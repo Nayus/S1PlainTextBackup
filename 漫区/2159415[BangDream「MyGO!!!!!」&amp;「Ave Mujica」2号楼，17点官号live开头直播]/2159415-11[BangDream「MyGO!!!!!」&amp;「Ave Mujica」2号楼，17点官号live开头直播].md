@@ -8746,3 +8746,15 @@ https://github.com/leiurayer/downkyi
 
 [https://twitter.com/sasakirico/status/1779065810885177650](https://twitter.com/sasakirico/status/1779065810885177650)
 
+
+*****
+
+####  -LYRE-  
+##### 15597#       发表于 2024-4-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64564842&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-11 23:11</a>
+那双月这首应该是国内特供好评了，b站老官号上播放是第二高的，新歌评论区车长谷川地图炮到双月也有很多人 ...</blockquote>
+按播放量来说的话，国内评价最低的是神蠢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+双月有假药，假面舞会和Choir 'S' Choir没什么假药
+神蠢灯箱假药泛滥，刷满了热评，然后喜提mujica官号所有视频播放量倒数第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/16/046b14de335b035a947de8f677d51e58/CMP_20240413193003201.jpg" referrerpolicy="no-referrer">
+

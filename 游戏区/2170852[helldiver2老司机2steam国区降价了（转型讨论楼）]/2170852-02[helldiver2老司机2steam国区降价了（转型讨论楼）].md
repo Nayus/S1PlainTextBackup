@@ -15277,3 +15277,21 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Awanano  
+##### 2947#       发表于 2024-4-13 19:25
+
+氪金想吐槽的是，债劵给这几套衣服要说好看也说不上，功能还各种重复和有点没用。买个债劵一堆没用的不是很舒服啊
+我买游戏的当天看商店里有可以cos克隆兵的b-24，买了穿用到现在。这游戏盔甲设计不知道为什么总有股土味，白色好少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  FLZB  
+##### 2948#       发表于 2024-4-13 19:28
+
+超级币不用bug就正常刷也不慢，好脸3分钟40-50，暴击了直接100+
+

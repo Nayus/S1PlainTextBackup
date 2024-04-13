@@ -1030,3 +1030,11 @@ O了，隔壁竞轮比这个烂得多
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  藤原彩花  
+##### 216#       发表于 2024-4-13 08:37
+
+养成系主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么也不懂什么也不练，大烂片预感
+

@@ -96,3 +96,21 @@ tb买bc卡挺好的，便宜
 [http://market.cmbchina.com/ccard/jcbpc/](http://market.cmbchina.com/ccard/jcbpc/)
 <strong>有效期内无附加条件免年费</strong>
 
+
+*****
+
+####  lihuit  
+##### 81#       发表于 2024-4-13 17:35
+
+招行banzai
+
+
+*****
+
+####  黑上シグマ  
+##### 82#       发表于 2024-4-13 17:44
+
+招行全币种JCB无条件免年费的，就是汇率我记得稍微差点
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

@@ -639,3 +639,16 @@ rebirth这起名确实够烂的
 
 希望收不回本，第三部克劳德坐椅子，让你SE尝尝高桥哥哥的苦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Linkwjj  
+##### 64#       发表于 2024-4-13 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580759&amp;ptid=2179698" target="_blank">Dragon_Quest_U 发表于 2024-4-13 10:45</a>
+
+巨魔一把。不到200万这个数量有个很尴尬的对比对象——XB3
+
+XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
+狒狒要沦落到跟XB比销量就已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -214,3 +214,30 @@
 
 有没有人需要帮忙带鲤鱼的演唱会谷？
 
+
+*****
+
+####  优妮可  
+##### 19951#       发表于 2024-4-13 09:38
+
+感觉闺泣好坏，也影响不到星三了。认了
+
+*****
+
+####  优妮可  
+##### 19952#       发表于 2024-4-13 09:38
+
+感觉闺泣好坏，也影响不到星三了。认了
+
+*****
+
+####  ads147147  
+##### 19953#       发表于 2024-4-13 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64577820&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-4-13 00:23</a>
+
+隔壁闺泣跟星一期前3集平行世界一样</blockquote>
+闺泣可还行，你们是会取名字的。
+
+花田在隔壁可兴奋了，看来是写的很开心，我们这边就默默等死亡通知书就行了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

@@ -20,3 +20,13 @@ dlsite推荐的dianshu.jp这网站到底什么逻辑，订单要注册账号但�
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  vacuumsword  
+##### 73#       发表于 2024-4-13 09:41
+
+招行jcb好像不用年费，我9号申请，昨天就收到了
+
+----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
+

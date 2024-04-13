@@ -1202,3 +1202,11 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 又要开始表演了吗 先欧羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新的十连二宝
 
+
+*****
+
+####  CHCL3  
+##### 12097#       发表于 2024-4-13 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">徽章后面几乎都用在最便宜的加np减cd了，伯爵能撑到最后一管血的话一直眩晕还是爽的
+

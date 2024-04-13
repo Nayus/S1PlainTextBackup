@@ -529,3 +529,16 @@ rebirth这起名确实够烂的
 
 你这小心脏就别往RB销量帖里钻了
 
+
+*****
+
+####  hentianwuya  
+##### 55#       发表于 2024-4-13 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582696&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 14:33</a>
+
+众所周知，说一个对SE不利的事实=嘲讽
+
+你这小心脏就别往RB销量帖里钻了</blockquote>
+我只是在提醒你这个喜欢搬数据的人，人家贴的数据还附有文字说明的，你自己不看就急急忙忙给了个想当然的解释，就相当于我刚把脚抬起来，你自己把头伸到我脚下，那我不狠踹你一脚我对得起你吗？<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+

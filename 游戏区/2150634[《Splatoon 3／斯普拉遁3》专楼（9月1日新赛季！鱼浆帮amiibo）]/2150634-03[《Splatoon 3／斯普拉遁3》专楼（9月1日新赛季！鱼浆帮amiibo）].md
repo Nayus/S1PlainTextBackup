@@ -10108,3 +10108,30 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 比涂地，世锦赛里应该没有比怪盗强的
 
+
+*****
+
+####  KBAC  
+##### 3982#       发表于 2024-4-13 14:37
+
+涂地用长热也太抽象了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  秋月孝三  
+##### 3983#       发表于 2024-4-13 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比牢棒好点，但还是抽象
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  oi99o  
+##### 3984#       发表于 2024-4-13 14:44
+
+平时基本不打涂地吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

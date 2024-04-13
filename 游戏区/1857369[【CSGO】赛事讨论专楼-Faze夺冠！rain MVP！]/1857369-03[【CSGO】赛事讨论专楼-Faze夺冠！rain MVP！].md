@@ -426,3 +426,21 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 这导播怎么这么喜欢盯着一个人几十秒，拷打呢搁这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4283#       发表于 2024-4-13 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64585234&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-4-13 19:39</a>
+
+可惜啊，图一没打赢感觉a队很难赢了</blockquote>
+想不到吧，13-5结束ancient
+
+*****
+
+####  那由  
+##### 4284#       发表于 2024-4-13 20:24
+
+残局太多一口气打不过，faze过于抽象了
+

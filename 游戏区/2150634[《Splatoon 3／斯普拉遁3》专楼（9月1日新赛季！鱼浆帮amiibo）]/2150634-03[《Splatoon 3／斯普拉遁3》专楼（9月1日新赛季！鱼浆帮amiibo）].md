@@ -10253,3 +10253,11 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 双击编辑
 
+
+*****
+
+####  Ryuuseigun  
+##### 3997#       发表于 2024-4-13 20:24
+
+原来冰壶比赛就是比谁搓的雷多<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">没意思不如打工
+

@@ -3723,3 +3723,13 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ironman_mk5  
+##### 336#       发表于 2024-4-13 09:05
+
+<blockquote>supermangunv4 发表于 2024-4-12 17:03
+看到个说法，种命抄的是星战前传，真飞鸟是安纳金，姨丈是帕尔帕庭，阿斯兰是人品王，基拉卡嘉莉是卢走天兄 ...</blockquote>
+卢克斯可没有安纳金变坏就不应该会用黑暗原力这种天才想法，老皇帝对尤达也没有姨丈这么废物
+

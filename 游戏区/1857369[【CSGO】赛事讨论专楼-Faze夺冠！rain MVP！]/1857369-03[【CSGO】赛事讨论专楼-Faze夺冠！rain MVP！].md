@@ -360,3 +360,13 @@ G了 mirage不是对手
 昨天有沟那个，今天没沟还给画面。最离谱的是残局给个小窗口放这人</blockquote>
 这么给镜头不会是来蹭流量的哪路网红吧
 
+
+*****
+
+####  宝儿  
+##### 4275#       发表于 2024-4-13 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583616&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-4-13 16:30</a>
+ 没看，是那个化浓妆有点胖的那个吗</blockquote>
+不是 一个网红脸 昨天是吊带
+

@@ -289,3 +289,11 @@
 
 我反正觉得没有锁定就打不中人，敌人招招都是强吸附招数的游戏不如做成rpg游戏了
 
+
+*****
+
+####  彩虹肥宅  
+##### 2991#       发表于 2024-4-13 23:34
+
+在清暗夜难度的地图，之前道馆单挑全都是夜晚打的极传，所以野外boss都还挺好打的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，就是这个堆小怪真的难受。
+

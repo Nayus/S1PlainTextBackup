@@ -691,3 +691,27 @@ I'm commander shepard……
 比起意大利不如说中东吧，更能代表这种地中海农牧民长相</blockquote>
 新闻里的阿拉伯小哥其实才是中东人最普遍的长相，缺乏棱角，中东男性据我观察最符合审美模板的是土耳其人，现实里也确实是土耳其男人在中东圈里最受西方欢迎，首楼的完美长相在意大利运动员里随处可见，就是典型意大利英俊男人
 
+
+*****
+
+####  FeliciaCWells  
+##### 50#       发表于 2024-4-14 00:34
+
+这是正确的looksmaxxing:
+
+<img src="https://img.saraba1st.com/forum/202404/14/003429uu51sikkzl71iutk.jpg" referrerpolicy="no-referrer">
+
+<strong>GKLut9qXYAA5_XL.jpg</strong> (518.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202404/14/003428ihomshczghz5o5s0.jpg" referrerpolicy="no-referrer">
+
+<strong>GJTQt1DWoAE0j1X.jpg</strong> (326.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 00:34 上传
+

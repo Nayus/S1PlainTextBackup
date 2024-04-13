@@ -8562,3 +8562,33 @@ IMG_20240121_223603.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  米拉苏尔  
+##### 15583#       发表于 2024-4-13 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580161&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-4-13 09:38</a>
+每天告诫自己，为人处世低调不圆滑，言行不油腻、有边界感
+
+—— 来自 S1Fun ...</blockquote>
+这句是从哪来的呢，经常看到有人复读
+
+
+*****
+
+####  御幸一也  
+##### 15584#       发表于 2024-4-13 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/13/095025eehquq94x0o94efx.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_น้องซากิโกด โก๊ะกิเกงโย๊ะ(@pcxwise)_20240412-174.jpg</strong> (548.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 09:50 上传
+
+[https://twitter.com/pcxwise/status/1778841643875192868](https://twitter.com/pcxwise/status/1778841643875192868)
+

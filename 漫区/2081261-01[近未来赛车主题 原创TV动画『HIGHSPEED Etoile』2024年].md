@@ -1048,3 +1048,13 @@ O了，隔壁竞轮比这个烂得多
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KDConan  
+##### 218#       发表于 2024-4-13 09:30
+
+又看一集解说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说以前对赛车一无所知，看弹幕和评论有不少科普和吐槽的，才知道原来赛车运动在叔叔家都有这么多受众
+

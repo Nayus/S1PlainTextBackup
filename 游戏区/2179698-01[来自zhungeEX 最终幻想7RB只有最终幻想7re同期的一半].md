@@ -669,3 +669,14 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Soyo  
+##### 67#       发表于 2024-4-13 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64584384&amp;ptid=2179698" target="_blank">FROM-SOFTWARE 发表于 2024-4-13 18:05</a>
+
+当你们都在说rebirth这个名字不行时，我要提醒下现在泄露出的第三部叫reunion，更不明所以的一个词，我感觉 ...</blockquote>
+有没有可能reunion是ccff7复刻的名字
+

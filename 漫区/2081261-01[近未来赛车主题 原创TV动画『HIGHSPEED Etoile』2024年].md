@@ -1151,3 +1151,11 @@ O了，隔壁竞轮比这个烂得多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这片真的是音乐公司做的吗，为什么没有BGM的
 
+
+*****
+
+####  wolf1997  
+##### 228#       发表于 2024-4-13 17:29
+
+元永大师不会真的做烂片做傻了吧，是不是觉得这部片子很大很空，非要使劲去塞一些弱智东西到里面
+

@@ -10035,3 +10035,20 @@ max局都能遇到，两个W，总计2蛋，9个怪
 大家都是西服 好不习惯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 田口这看起来也太正经人了
 
+
+*****
+
+####  罗克萨斯  
+##### 3973#       发表于 2024-4-13 13:35
+
+这几个队，感觉能被怪盗队打出屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  墨染白泉  
+##### 3974#       发表于 2024-4-13 13:36
+
+两个小组第一应该就是北美和日本了
+

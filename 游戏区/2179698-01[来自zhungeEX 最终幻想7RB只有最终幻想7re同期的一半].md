@@ -448,3 +448,32 @@ rebirth这起名确实够烂的
 
 能不能第三部沿用第二部的系统，顺便把第一部也按同样规格重置一下，简略掉垃圾时间
 
+
+*****
+
+####  ranapocket  
+##### 49#       发表于 2024-4-13 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64581039&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 11:18</a>
+应该是后劲严重不足，欧洲三月销量排行是这样的
+
+1        EA Sports FC 24 (EA)</blockquote>
+这一堆命令与征服是怎么回事，纯steam冷饭销量能这么夸张
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ppa11  
+##### 50#       发表于 2024-4-13 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580985&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-13 11:12</a>
+有个英国地区的统计新闻，FF7RB首月销量和龙信2差不多
+
+以龙信2的销量为参照点的话
+
+日本FF7RB比龙信高些</blockquote>
+龙信2有pc
+
+—— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

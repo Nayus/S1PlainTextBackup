@@ -1180,3 +1180,25 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只希望不是什么强力大拐 希望是纯粹的打手定位 这样拿不到也不会太难受
 
+
+*****
+
+####  alucardcz  
+##### 12095#       发表于 2024-4-13 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582071&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-13 13:16</a>
+
+我只希望不是什么强力大拐 希望是纯粹的打手定位 这样拿不到也不会太难受 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要开始表演了吗 先欧羡慕
+
+
+*****
+
+####  qixinno2  
+##### 12096#       发表于 2024-4-13 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582204&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-13 13:33</a>
+
+又要开始表演了吗 先欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新的十连二宝
+

@@ -1243,3 +1243,29 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来萌新奥师傅和杀狐都快要15羁绊了 焦虑起来了 倒是c呆不怎么用 还13羁绊
 
+
+*****
+
+####  保罗赫伯特  
+##### 12101#       发表于 2024-4-13 16:41
+
+已经返璞归真用回绿卡打白纸QP本了，换人服满了之后又绑定了水小黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 12102#       发表于 2024-4-13 16:41
+
+大总统翻车的话茶壶能退回吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 12103#       发表于 2024-4-13 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583698&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2024-4-13 16:41</a>
+
+大总统翻车的话茶壶能退回吗</blockquote>
+能啊，没打过都是不消耗茶壶的
+

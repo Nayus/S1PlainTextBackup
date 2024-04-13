@@ -1143,3 +1143,11 @@ O了，隔壁竞轮比这个烂得多
 
 看完第二话，这女主像极了连游戏教程都不看就直接开始玩的玩家，但是这可是赛车啊，连仪表盘看不懂这不是找死吗，确实有点离谱过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗铁  
+##### 227#       发表于 2024-4-13 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这片真的是音乐公司做的吗，为什么没有BGM的
+

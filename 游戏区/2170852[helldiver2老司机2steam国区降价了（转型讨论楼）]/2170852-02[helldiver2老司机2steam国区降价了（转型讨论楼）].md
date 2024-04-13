@@ -15142,3 +15142,14 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 飞鹰丢哑弹好像是新BUG，我遇到过两次丢燃烧弹和一次丢500KG没爆炸的情况。
 
+
+*****
+
+####  FLZB  
+##### 2934#       发表于 2024-4-13 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64580871&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-13 10:58</a>
+
+不是，是打机器人比较空旷的地方一颗500kg没炸，而且不是一次两次了。有时候怀疑是TM机器人把掉地上的500K ...</blockquote>
+网络问题，那天进了个延迟非常高的房，去炸据点结果还没打构筑者就在我面前凭空爆破，过了差不多20秒之后我突然被队友的爆炸击杀
+

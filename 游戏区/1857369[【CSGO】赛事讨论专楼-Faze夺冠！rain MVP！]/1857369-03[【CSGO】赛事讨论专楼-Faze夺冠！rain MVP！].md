@@ -339,3 +339,13 @@ G了 mirage不是对手
 这勾巴导播这么喜欢这女的？</blockquote>
 没看，是那个化浓妆有点胖的那个吗
 
+
+*****
+
+####  ork  
+##### 4273#       发表于 2024-4-13 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583616&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-4-13 16:30</a>
+没看，是那个化浓妆有点胖的那个吗</blockquote>
+昨天有沟那个，今天没沟还给画面。最离谱的是残局给个小窗口放这人
+

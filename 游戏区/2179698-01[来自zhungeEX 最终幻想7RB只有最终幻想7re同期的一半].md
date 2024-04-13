@@ -621,3 +621,21 @@ rebirth这起名确实够烂的
 人 ...</blockquote>
 原来是这样吗？我还真没看2月销量新闻，那我误解你了，修正下之前的说法，是FF7RB次周后的3月销量没卖进前10，不是次日后
 
+
+*****
+
+####  plok201  
+##### 62#       发表于 2024-4-13 15:40
+
+没过200W倒是挺多人猜的，毕竟FF受众就那些，各国比例都比较固定，然后用日本销量算就行了
+
+不过叫7RB不叫7-2确实不行，像WII和WIIU一样，大部分路人消费者搞不清关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ccc183  
+##### 63#       发表于 2024-4-13 15:44
+
+希望收不回本，第三部克劳德坐椅子，让你SE尝尝高桥哥哥的苦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

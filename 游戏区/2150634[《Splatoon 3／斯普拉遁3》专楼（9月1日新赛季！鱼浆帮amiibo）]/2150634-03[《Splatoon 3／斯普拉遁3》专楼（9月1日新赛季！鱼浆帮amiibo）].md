@@ -10261,3 +10261,13 @@ max局都能遇到，两个W，总计2蛋，9个怪
 
 原来冰壶比赛就是比谁搓的雷多<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">没意思不如打工
 
+
+*****
+
+####  raii  
+##### 3998#       发表于 2024-4-13 20:59
+
+什么脑死亡活动，还是区域
+
+冰壶冰壶冰壶开大冰壶冰壶冰壶开大不就完事了
+

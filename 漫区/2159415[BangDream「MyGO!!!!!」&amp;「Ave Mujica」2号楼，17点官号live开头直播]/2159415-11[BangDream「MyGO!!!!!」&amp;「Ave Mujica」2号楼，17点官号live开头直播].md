@@ -8793,3 +8793,16 @@ https://github.com/leiurayer/downkyi
 nyaa这个是有音频的，但不知道用了什么音频格式，没有任何播放器能够解码出来
 <img src="https://p.sda1.dev/16/2c093c7b46e42948a050db2a00c90290/untitle.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 15602#       发表于 2024-4-13 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64585831&amp;ptid=2159415" target="_blank">SwitimeKanga 发表于 2024-4-13 20:43</a>
+
+nyaa这个是有音频的，但不知道用了什么音频格式，没有任何播放器能够解码出来
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">就很难顶
+

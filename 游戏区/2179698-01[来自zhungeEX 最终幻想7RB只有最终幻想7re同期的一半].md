@@ -652,3 +652,20 @@ rebirth这起名确实够烂的
 XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 狒狒要沦落到跟XB比销量就已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FROM-SOFTWARE  
+##### 65#       发表于 2024-4-13 18:05
+
+当你们都在说rebirth这个名字不行时，我要提醒下现在泄露出的第三部叫reunion，更不明所以的一个词，我感觉都不如干脆叫respawn吸引人。
+
+*****
+
+####  Rowen233  
+##### 66#       发表于 2024-4-13 18:06
+
+谭友比se还关心rb销量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

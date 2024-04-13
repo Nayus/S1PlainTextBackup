@@ -1159,3 +1159,13 @@ O了，隔壁竞轮比这个烂得多
 
 元永大师不会真的做烂片做傻了吧，是不是觉得这部片子很大很空，非要使劲去塞一些弱智东西到里面
 
+
+*****
+
+####  主人ハム子  
+##### 229#       发表于 2024-4-13 18:01
+
+我直说了，这片就是骗广告费的冤大头们的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

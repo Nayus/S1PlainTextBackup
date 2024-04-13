@@ -1294,3 +1294,16 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 水所长绘里濑直接丢3令咒秒了，懒得解谜，血条上面下面的图标太多了
 
+
+*****
+
+####  sesuna  
+##### 12107#       发表于 2024-4-13 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582826&amp;ptid=2084912" target="_blank">清河子 发表于 2024-4-13 14:46</a>
+
+129徽章 43回合比记忆中的火玛丽打的要轻松一点，徽章buff还挺好的……紫伯爵打水玛丽很喂饭。
+
+用 ...</blockquote>
+借楼问一下,我的是38回合,怎么跟其他群友的40多不同?
+

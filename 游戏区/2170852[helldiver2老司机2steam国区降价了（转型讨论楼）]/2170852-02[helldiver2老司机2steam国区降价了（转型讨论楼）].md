@@ -15398,3 +15398,11 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 今天这个医疗重甲看着挺好看欸
 
+
+*****
+
+####  白昼梦  
+##### 2960#       发表于 2024-4-14 03:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">排到的菜起来是真的离谱，最常见的两种是三个瞎子围着已经清完的任务点打个十分钟把命死的差不多，另一种是死队友之后让你在空中挂机一分钟愣是不叫支援
+

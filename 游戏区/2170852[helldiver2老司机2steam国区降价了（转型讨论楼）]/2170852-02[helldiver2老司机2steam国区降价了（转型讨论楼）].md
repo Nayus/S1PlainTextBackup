@@ -15250,3 +15250,20 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能整点好活
 
+
+*****
+
+####  ddwhzh  
+##### 2944#       发表于 2024-4-13 19:03
+
+ 本帖最后由 ddwhzh 于 2024-4-13 19:09 编辑 
+
+现在砍完蓝币收益后不会有孝子说这游戏不是pay2win吧，三个高级包全有无可替代的主武器位武器，光靠三号位补齐游戏体验极差，尤其最近的包直接给换皮甲，额外效果要去商店买。你要说免费包有400伤以上狙或者主手盟友lite或者上dot喷子也就不喷了，免费重炮直接砍穿甲和击退，反器材勤勉加强蚊子腿，推出付费的镰刀，炸弹狙，龙息喷和主宰占了许多欠缺定位。太不要脸了。
+
+*****
+
+####  暴走的包子  
+##### 2945#       发表于 2024-4-13 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">现在似乎是按图或者时间有个获取上限了，等测试吧
+

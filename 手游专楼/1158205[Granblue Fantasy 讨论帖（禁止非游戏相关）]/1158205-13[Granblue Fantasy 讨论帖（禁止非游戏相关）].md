@@ -127,3 +127,11 @@ fkhr：你看，只要加武器，就会有人自愿坐牢
 
 贤者4突了，世界琴系列也终突以后，理念还有哪里要用吗？本来以为4技能要用结果没有。或者哪里能查到某个道具在哪里会用到
 
+
+*****
+
+####  cenhr  
+##### 17880#       发表于 2024-4-13 22:25
+
+看来极星器真的能让qks化身战斗狂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

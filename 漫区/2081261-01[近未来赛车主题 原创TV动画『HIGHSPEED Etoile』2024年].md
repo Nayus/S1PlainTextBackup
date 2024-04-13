@@ -1219,3 +1219,22 @@ O了，隔壁竞轮比这个烂得多
 
 以及女主你这训练了一年都训的啥啊，还不如风扇佬刚摸到车一小时开的好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KOPKOM  
+##### 235#       发表于 2024-4-13 22:25
+
+什么弱智洗钱动画，简直侮辱赛车运动了
+
+*****
+
+####  KOPKOM  
+##### 236#       发表于 2024-4-13 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582323&amp;ptid=2081261" target="_blank">菲特妹 发表于 2024-4-13 13:47</a>
+又吃了第二集的屎
+女主其实是很套路的设定，放别的作品可能没啥
+赛车这玩意专业程度太高就显得太弱 ...</blockquote>
+四驱兄弟的解说都完爆这个
+

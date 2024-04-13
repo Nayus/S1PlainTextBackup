@@ -477,3 +477,18 @@ rebirth这起名确实够烂的
 
 —— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  汪达  
+##### 51#       发表于 2024-4-13 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582249&amp;ptid=2179698" target="_blank">ranapocket 发表于 2024-4-13 13:38</a>
+
+这一堆命令与征服是怎么回事，纯steam冷饭销量能这么夸张
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 S ...</blockquote>
+看了下steam评论数也不高，好像就国人情怀比较深的红警2比较高，到了3000多，搜了下红警2的steam在线峰值，6617，也不高
+
+感觉应该不是这些冷饭销售太劲爆，而是没排到这堆冷饭上面的作品销量比较低迷
+

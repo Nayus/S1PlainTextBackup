@@ -1071,3 +1071,22 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 青子抽抽抽啊
 
+
+*****
+
+####  白金口袋  
+##### 12083#       发表于 2024-4-13 08:34
+
+联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 12084#       发表于 2024-4-13 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579808&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-13 08:34</a>
+
+联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全文字没选项，慢慢看的话要有十几个小时吧？好多年打的了记得不大清楚，反正肯定几个小时以上。
+

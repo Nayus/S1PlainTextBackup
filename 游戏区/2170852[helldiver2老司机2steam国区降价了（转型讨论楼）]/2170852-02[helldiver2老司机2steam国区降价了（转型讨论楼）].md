@@ -15319,3 +15319,22 @@ aimer还给playstation 宣传片唱了首歌,怪好听的<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我反正打个日常，试把单人样本就下，真没那么好功夫跟这个浮动难度折腾
 
+
+*****
+
+####  Mr.Hopp  
+##### 2952#       发表于 2024-4-13 20:28
+
+有些人觉得债券武器太弱了，箭头根本不会做游戏。
+
+有些人觉得债券武器无可替代，简直是PTW。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 2953#       发表于 2024-4-13 20:33
+
+只能说老板思路清奇，今天还在推特上说不搞幻化。
+

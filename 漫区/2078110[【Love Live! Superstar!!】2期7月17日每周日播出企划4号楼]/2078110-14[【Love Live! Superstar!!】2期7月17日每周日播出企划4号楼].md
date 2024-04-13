@@ -350,3 +350,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5月能不能别live house了啊 鱼今天走下来这么近的距离真的羡慕啊 拜托了 整个大点的场子吧
 
+
+*****
+
+####  oi99o  
+##### 19966#       发表于 2024-4-13 20:27
+
+<img src="https://img.saraba1st.com/forum/202404/13/202659r88ymymj0jijv7g8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (689.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-13 20:26 上传
+
+*****
+
+####  csolfans  
+##### 19967#       发表于 2024-4-13 20:28
+
+<blockquote>伊卡石 发表于 2024-4-13 19:44
+内部消息？</blockquote>
+有前方记者手渡去问了
+

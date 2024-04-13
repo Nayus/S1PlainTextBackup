@@ -550,3 +550,13 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 但状态还是必须得调整回来，慢慢学指挥可以，要是狙打不明白了那真没得搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 4297#       发表于 2024-4-14 00:06
+
+[https://www.bilibili.com/video/BV1W1421o741?t=2382.6](https://www.bilibili.com/video/BV1W1421o741?t=2382.6)
+
+还没打完放观众席的网红脸
+

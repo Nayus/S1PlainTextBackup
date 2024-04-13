@@ -48,3 +48,11 @@ tb买bc卡挺好的，便宜
 
 —— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  lhawp  
+##### 76#       发表于 2024-4-13 12:23
+
+买点数是只能买1000的倍数吧，还是有些不爽的
+

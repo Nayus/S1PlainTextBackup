@@ -1153,3 +1153,14 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 670多，看看卡面怎样吧。
 
+
+*****
+
+####  麻花疼  
+##### 12092#       发表于 2024-4-13 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579808&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-13 08:34</a>
+
+联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时</blockquote>
+一个周末差不多了，一天打8小时。
+

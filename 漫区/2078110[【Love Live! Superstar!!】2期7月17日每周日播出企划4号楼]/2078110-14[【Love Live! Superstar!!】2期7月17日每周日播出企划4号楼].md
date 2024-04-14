@@ -556,3 +556,14 @@ nako一天跑两个活动，不愧是妈妈<img src="https://static.saraba1st.co
 
 toupai
 
+
+*****
+
+####  cqc1021  
+##### 19982#       发表于 2024-4-14 13:17
+
+与其轮花田不如轮星团的加人策略。
+现在莲团加人跟当初星团二期加人的风评完全不一样。
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

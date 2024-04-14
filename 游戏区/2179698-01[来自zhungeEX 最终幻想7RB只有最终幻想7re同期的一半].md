@@ -921,3 +921,14 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 如果玩龙信2就是卡普空粉丝，那我也是SE粉丝呢，还是铁粉那种，我连DQX国服都玩过呢 ...</blockquote>
 照你这理论，我不该是SE粉丝啊，毕竟我FF7RE+FF7RB加起来的时间没有玩龙之信条多，你咋笃定我是SE粉丝呢？而且在你嘴里，我不是喷你几句就是有损SE形象和SE粉丝形象呢？你那会不是挺会扣帽子吗？这会又给自己叫起望天屈来了？你那双标的毛病又犯了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 92#       发表于 2024-4-14 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592128&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 13:02</a>
+
+照你这理论，我不该是SE粉丝啊，毕竟我FF7RE+FF7RB加起来的时间没有玩龙之信条多，你咋笃定我是SE粉丝呢？ ...</blockquote>
+哦，zhugeEX，跟你分享一件事实，当你发FF7RB销量不佳的新闻，有人追着你恶心的，不一定是SE粉丝，有可能是卡普空粉丝，所以以后不许武断地认为这是粉丝在恶心你了
+

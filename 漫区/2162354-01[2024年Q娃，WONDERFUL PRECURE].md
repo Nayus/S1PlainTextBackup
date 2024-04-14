@@ -49,3 +49,13 @@
 
 这集虽然作画和演出都在线，但演出真的需要做一些减法，一些暗示和景深没什么太大意义……
 
+
+*****
+
+####  pokemon最爱  
+##### 1297#       发表于 2024-4-14 10:35
+
+猫猫牛逼！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及好关心铲屎官啊这个傲娇猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

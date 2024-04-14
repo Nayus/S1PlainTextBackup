@@ -8863,3 +8863,23 @@ nyaa这个是有音频的，但不知道用了什么音频格式，没有任何�
 https://twitter.com/sasakirico/status/1779065810885177650</blockquote>
 金发绿衣牛仔裤，我知道了，是在cos沙皇，祥子危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 15607#       发表于 2024-4-14 10:39
+
+千早爱音这个名字是有深意的：千山万水到英国留学，不会说英语早早退学，爱慕虚荣想组乐队，音乐水平不够被淘汰，千早爱音
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 15608#       发表于 2024-4-14 10:39
+
+不许欺负我女朋友！[BanGDream_爱音-不解]不许欺负我女朋友！[BanGDream_爱音-不解]不许欺负我女朋友！[BanGDream_爱音-不解]不许欺负我女朋友！[BanGDream_爱音-不解]
+千早爱音这个名字是有深意的：千里迢迢来到我身边，早早就成为我的天使，爱上我后嫁给我做老婆，音乐只为我一个人奏响，千早爱音[BanGDream_伊芙-比心]
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

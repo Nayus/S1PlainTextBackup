@@ -125,3 +125,13 @@
 
 明天晚上应该会更新新战备吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 2975#       发表于 2024-4-14 19:07
+
+换上医疗重甲打机器人安心了好多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

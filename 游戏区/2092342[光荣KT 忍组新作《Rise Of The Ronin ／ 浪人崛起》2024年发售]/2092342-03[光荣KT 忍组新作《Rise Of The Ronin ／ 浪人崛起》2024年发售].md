@@ -417,3 +417,11 @@
 
 暗夜难度第二张地图的野外boss开始抽象了，好多没见过的招数阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 3005#       发表于 2024-4-14 21:14
+
+所以DLC出啥？箱馆和西南？
+

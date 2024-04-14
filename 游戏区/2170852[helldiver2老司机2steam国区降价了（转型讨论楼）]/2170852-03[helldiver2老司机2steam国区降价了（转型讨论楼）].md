@@ -165,3 +165,21 @@
 如果鹈鹕被打冒烟了就只接一个人上了就跑，包括己方伤害和敌方伤害</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我草原来是这样吗，玩了这么久头次知道
 
+
+*****
+
+####  Cookiekira  
+##### 2979#       发表于 2024-4-14 22:15
+
+机炮想让队友帮忙换弹是必须把背包丢给队友吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2980#       发表于 2024-4-14 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64596864&amp;ptid=2170852" target="_blank">Cookiekira 发表于 2024-4-14 22:15</a>
+机炮想让队友帮忙换弹是必须把背包丢给队友吗</blockquote>
+是啊，辅助换弹是拿B的背包给A换弹
+

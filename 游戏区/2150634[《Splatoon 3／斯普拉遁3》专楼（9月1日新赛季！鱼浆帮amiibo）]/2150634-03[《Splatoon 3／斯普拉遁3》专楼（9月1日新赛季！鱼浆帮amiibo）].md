@@ -11145,3 +11145,36 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
  ...</blockquote>
 哪里可以看选手视角的？我看任天堂官网没得选呀
 
+
+*****
+
+####  holoan  
+##### 4100#       发表于 2024-4-14 17:27
+
+现在所有分视角的直播视频全隐藏了，在刚才比赛中可以直接选，登陆一下任天堂帐号就行
+
+<img src="https://img.saraba1st.com/forum/202404/14/172516bf8agjqnqsabnccf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202404/14/172651n04688fci1xp2199.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 17:26 上传
+
+不过确实好像没人看，我看同接就3
+
+*****
+
+####  墨染白泉  
+##### 4101#       发表于 2024-4-14 17:28
+
+看了下推，日本人真会阴阳怪气，看的笑死我了
+

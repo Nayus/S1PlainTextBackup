@@ -11219,3 +11219,14 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
 
 被蹲起嘲讽了但是复盘才看见，因为喝了饮料瞬间复归，对面等正常复活黑屏时间时我已经跳下来了才开始蹲起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被戳中了莫名其妙的笑点
 
+
+*****
+
+####  martinium  
+##### 4107#       发表于 2024-4-15 01:43
+
+回头又看了下，吸尘器真是不行，优势的时候很适合推分，但是普通情况下开就等于少一个人。对面熟练的话完全可以先把吸尘器队友干死，然后剩下吸尘器一个人被正面怼爆。
+吸尘器吸满之后到发射之前的延迟应该取消，说不定还能一用。rpg掏出来就可以糊脸，吸尘器吸半天还需要前戏才能射。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

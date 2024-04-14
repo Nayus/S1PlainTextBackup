@@ -5266,3 +5266,23 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 5个6，强运
 
+
+*****
+
+####  holoan  
+##### 8647#         楼主| 发表于 2024-4-14 21:28
+
+ 本帖最后由 holoan 于 2024-4-14 21:31 编辑 
+
+连续两场都是豪运，这个月怎么了
+
+<img src="https://img.saraba1st.com/forum/202404/14/213117qluqx6wbs6u6lqys.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 21:31 上传
+
+两个人都是个人生涯最高分数
+

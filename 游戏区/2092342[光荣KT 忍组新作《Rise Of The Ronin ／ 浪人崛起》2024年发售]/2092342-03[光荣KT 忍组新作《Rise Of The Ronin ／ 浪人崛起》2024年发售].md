@@ -425,3 +425,37 @@
 
 所以DLC出啥？箱馆和西南？
 
+
+*****
+
+####  黑修士  
+##### 3006#       发表于 2024-4-14 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64596217&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-14 21:14</a>
+
+所以DLC出啥？箱馆和西南？</blockquote>
+估计够呛。不如到此为止，吸取这次的经验和教训，好好打磨个仁3卧2或者新IP出来吧
+
+*****
+
+####  hkguty  
+##### 3007#       发表于 2024-4-14 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64596322&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-4-14 21:25</a>
+
+估计够呛。不如到此为止，吸取这次的经验和教训，好好打磨个仁3卧2或者新IP出来吧 ...</blockquote>
+主角这个墙头草左右反复横跳的剧情表现倒是感觉会继承到卧龙2的主角
+
+
+*****
+
+####  黑修士  
+##### 3008#       发表于 2024-4-14 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64596344&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-14 21:27</a>
+
+主角这个墙头草左右反复横跳的剧情表现倒是感觉会继承到卧龙2的主角</blockquote>
+也比浪人强啊，白金后都没动力玩了
+
+卧龙五周目千里行至少还有点驱动力
+

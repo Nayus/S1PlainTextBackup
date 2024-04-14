@@ -243,3 +243,17 @@
 
 机炮护卫犬？
 
+
+*****
+
+####  bladethunder  
+##### 2987#       发表于 2024-4-15 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598773&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-4-15 01:25</a>
+用蓝牙耳机进游戏，整个电脑都会没声，有无大佬知道怎么解决
+
+—— 来自 OnePlus GM1910, Android 1 ...</blockquote>
+在设备管理器里禁用蓝牙耳机的Hands-Free AG Audio设备即可，代价是无法使用蓝牙耳机的麦克风
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

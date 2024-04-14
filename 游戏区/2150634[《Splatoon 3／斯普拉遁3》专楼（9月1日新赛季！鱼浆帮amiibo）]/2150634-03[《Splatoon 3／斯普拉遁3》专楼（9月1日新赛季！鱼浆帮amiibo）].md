@@ -10539,3 +10539,47 @@ ydd老哥咋不用长热泡了<img src="https://static.saraba1st.com/image/smile
 
 早该拿长热了
 
+
+*****
+
+####  KBAC  
+##### 4029#       发表于 2024-4-14 14:10
+
+ 本帖最后由 KBAC 于 2024-4-14 14:12 编辑 
+
+台湾蛤蜊被薄纱了
+
+还行，鱼模式比韩国体面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shirolin  
+##### 4030#       发表于 2024-4-14 14:10
+
+被巴伯罗玩弄
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  墨染白泉  
+##### 4031#       发表于 2024-4-14 14:10
+
+4k背大锅
+
+*****
+
+####  martinium  
+##### 4032#       发表于 2024-4-14 14:14
+
+4k配长热太抽象了，被笔刷调戏死。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  yanglian72  
+##### 4033#       发表于 2024-4-14 14:15
+
+4K太拉了
+

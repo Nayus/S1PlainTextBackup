@@ -362,3 +362,21 @@
 
 话说道场在哪来着，感觉还是喜欢跟精英干架，清小怪乐趣不大
 
+
+*****
+
+####  彩虹肥宅  
+##### 2999#       发表于 2024-4-14 14:11
+
+分享一个有趣的bug，清据点的时候最后一个人用开99的火烧死，之后你就会周身带火，挺酷的。
+
+*****
+
+####  彩虹肥宅  
+##### 3000#       发表于 2024-4-14 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592533&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-4-14 13:48</a>
+
+话说道场在哪来着，感觉还是喜欢跟精英干架，清小怪乐趣不大</blockquote>
+横滨推剧情就能解锁，在道馆你就要品尝这这游戏最恶心的版边视角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

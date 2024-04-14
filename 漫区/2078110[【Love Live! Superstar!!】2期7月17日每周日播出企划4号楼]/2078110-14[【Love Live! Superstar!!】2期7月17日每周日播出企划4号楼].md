@@ -567,3 +567,17 @@ toupai
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  we89623  
+##### 19983#       发表于 2024-4-14 14:11
+
+ 本帖最后由 we89623 于 2024-4-14 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592281&amp;ptid=2078110" target="_blank">cqc1021 发表于 2024-4-14 13:17</a>
+与其轮花田不如轮星团的加人策略。
+现在莲团加人跟当初星团二期加人的风评完全不一样。</blockquote>
+我觉得大概率只是粉丝脱敏了而已。
+星加人根本是意料之外，直接给粉丝当头一棒。
+莲加人基本从一开始就可预见的，而且有星这个前科。
+

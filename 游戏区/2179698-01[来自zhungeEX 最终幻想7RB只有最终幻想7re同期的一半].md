@@ -1037,3 +1037,42 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 这个我要澄清一下，我说话一直很有余地，也没发出过类似FF7RB游戏性就是一坨、狗都不玩这样的过激言论， ...</blockquote>
 看来你是真忘了自己以前那些锐评，不过你这个态度倒很诚恳，那咱们就骑驴看唱本走着瞧呗。
 
+
+*****
+
+####  Rowen233  
+##### 103#       发表于 2024-4-14 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592645&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 14:02</a>
+
+看来你是真忘了自己以前那些锐评，不过你这个态度倒很诚恳，那咱们就骑驴看唱本走着瞧呗。 ...</blockquote>
+又咋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hentianwuya  
+##### 104#       发表于 2024-4-14 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592693&amp;ptid=2179698" target="_blank">Rowen233 发表于 2024-4-14 14:09</a>
+
+又咋了</blockquote>
+没咋啊，就是之前的过节导致的对喷嘛，在S1司空见惯的那种。
+
+*****
+
+####  wjbdasd  
+##### 105#       发表于 2024-4-14 14:14
+
+我就说我怎么看不到某些楼层的回复？原来是石榴发售后专楼不见踪影的小红帽！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 106#       发表于 2024-4-14 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592737&amp;ptid=2179698" target="_blank">wjbdasd 发表于 2024-4-14 14:14</a>
+
+我就说我怎么看不到某些楼层的回复？原来是石榴发售后专楼不见踪影的小红帽！ ...</blockquote>
+我随时可以去专楼回复，你想进去跟我练练？<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+

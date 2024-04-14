@@ -147,3 +147,12 @@ fkhr：你看，只要加武器，就会有人自愿坐牢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">fa了两天刚好一档末尾路过
 
+
+*****
+
+####  jxzeroga0  
+##### 17882#       发表于 2024-4-14 11:35
+
+6月还有排名皮肤，到时估计脑浆都能打出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+咸鱼只希望能加点10亿以上的奖励了，现在卷成这样之前也该加到15亿了
+

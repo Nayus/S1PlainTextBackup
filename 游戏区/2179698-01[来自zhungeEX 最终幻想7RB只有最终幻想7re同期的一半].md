@@ -1015,3 +1015,25 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 你如果自认为这是一种破坏， ...</blockquote>
 昨天你挺武断的啊，今天就不敢武断了？薛定谔的武断？还什么取决于我的想法？被我喷了两天，终于学乖了说话留有余地了吗？那真是善莫大焉。<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 101#       发表于 2024-4-14 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592512&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 13:45</a>
+
+昨天你挺武断的啊，今天就不敢武断了？薛定谔的武断？还什么取决于我的想法？被我喷了两天，终于学乖了说 ...</blockquote>
+这个我要澄清一下，我说话一直很有余地，也没发出过类似FF7RB游戏性就是一坨、狗都不玩这样的过激言论，单纯是从个人体验出发说一下我觉得哪些设计影响了RB的销量。当然不排除我跟网友一时斗气说过了哪些过激言论的可能，如果你觉得我的说法不合适，那我会修改
+
+
+*****
+
+####  hentianwuya  
+##### 102#       发表于 2024-4-14 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592600&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 13:58</a>
+
+这个我要澄清一下，我说话一直很有余地，也没发出过类似FF7RB游戏性就是一坨、狗都不玩这样的过激言论， ...</blockquote>
+看来你是真忘了自己以前那些锐评，不过你这个态度倒很诚恳，那咱们就骑驴看唱本走着瞧呗。
+

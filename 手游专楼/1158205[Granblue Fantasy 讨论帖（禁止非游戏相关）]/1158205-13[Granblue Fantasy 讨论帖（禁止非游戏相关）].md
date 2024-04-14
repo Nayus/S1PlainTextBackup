@@ -135,3 +135,15 @@ fkhr：你看，只要加武器，就会有人自愿坐牢
 
 看来极星器真的能让qks化身战斗狂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leeskies  
+##### 17881#       发表于 2024-4-14 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">单纯的因为玩家战力上升了吧
+
+光团前的法武升级+龙武升级 光方3.0武器+召唤终凸  老王的芬剑+召唤终凸
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">fa了两天刚好一档末尾路过
+

@@ -3830,3 +3830,19 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 看到个说法，种命抄的是星战前传，真飞鸟是安纳金，姨丈是帕尔帕庭，阿斯兰是人品王，基拉卡嘉莉是卢走天兄 ...</blockquote>
 这事我记得是坂本真绫是日配帕德梅，在广播剧里说小鸟像安纳金。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 346#       发表于 2024-4-14 19:20
+
+我本来以为剧场版之后会出现碾压了，没想到会变成这种情况有趣
+
+<img src="https://img.saraba1st.com/forum/202404/14/192044ezvb5b3y4pnb7p3j.png" referrerpolicy="no-referrer">
+
+<strong>CB5B2C3F-3DA8-4D32-B6E5-0D4C0E2FDC97.png</strong> (227 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 19:20 上传
+

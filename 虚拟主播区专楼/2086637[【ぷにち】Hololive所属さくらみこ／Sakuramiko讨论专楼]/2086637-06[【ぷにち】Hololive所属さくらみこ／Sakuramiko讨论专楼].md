@@ -5286,3 +5286,19 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 两个人都是个人生涯最高分数
 
+
+*****
+
+####  holoan  
+##### 8648#         楼主| 发表于 2024-4-14 21:45
+
+<img src="https://img.saraba1st.com/forum/202404/14/214546kcmh9hb21h11z3f1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (165.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 21:45 上传
+
+笑死
+

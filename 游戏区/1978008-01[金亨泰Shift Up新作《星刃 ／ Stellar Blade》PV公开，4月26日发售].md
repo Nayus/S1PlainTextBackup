@@ -251,3 +251,17 @@ boss挑战拉着疾跑一直绕圈就行，反正场地够大boss跑不过玩家
 su的手游已经联动过尼尔了，把屁股加宽了一大圈，大卖</blockquote>
 什么游戏，有名字或者图或者视频吗
 
+
+*****
+
+####  ads147147  
+##### 707#       发表于 2024-4-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64594270&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-4-14 17:39</a>
+什么游戏，有名字或者图或者视频吗</blockquote>
+胜利女神 NIKKE
+
+隔壁手游分区有楼。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

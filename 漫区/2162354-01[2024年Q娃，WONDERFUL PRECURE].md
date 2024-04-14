@@ -59,3 +59,20 @@
 
 以及好关心铲屎官啊这个傲娇猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kreis  
+##### 1298#       发表于 2024-4-14 11:06
+
+找猫情节请做得重一点，什么时候人间体复刻吸猫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sheshiro  
+##### 1299#       发表于 2024-4-14 11:06
+
+养肥了可以看了，事实证明只要我不太高的期望看起来还是不错的。
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

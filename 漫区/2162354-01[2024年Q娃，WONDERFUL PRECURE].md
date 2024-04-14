@@ -129,3 +129,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">今年的绿白也要玩隐瞒真身吗？感觉比去年的要甜
 
+
+*****
+
+####  上坂莲华  
+##### 1306#       发表于 2024-4-14 14:31
+
+日本人看到山和巨大动物第一反应不都是熊吗，难道你们连这个刻板印象都要纠正<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猫看到mayu好奇心上来了还专门变人叮嘱一下，太傲娇了我哭死，这mayu也是颜控，以后怕是要双重吸猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计是上集猫看到两个人打怪，大惊这城市里咋还有怪捏不行我得拥有足以保护mayu的力量，刚好路过石头愿望成功，于是变成杯面开始全市出警打怪
+
+不过这熊脑袋上的石头裂痕明显猫爪子印啊，难道猫是格斗系的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

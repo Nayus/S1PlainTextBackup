@@ -10583,3 +10583,29 @@ ydd老哥咋不用长热泡了<img src="https://static.saraba1st.com/image/smile
 
 4K太拉了
 
+
+*****
+
+####  罗克萨斯  
+##### 4034#       发表于 2024-4-14 14:26
+
+jackpot竟然翻车了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秋月孝三  
+##### 4035#       发表于 2024-4-14 14:26
+
+4k早就是铅笔的✨😡了，本质3打4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  墨染白泉  
+##### 4036#       发表于 2024-4-14 14:28
+
+北美打欧洲这把好看多了，还得是高水平才好看
+

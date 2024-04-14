@@ -211,3 +211,27 @@
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  runningch  
+##### 2984#       发表于 2024-4-15 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598773&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-4-15 01:25</a>
+
+用蓝牙耳机进游戏，整个电脑都会没声，有无大佬知道怎么解决
+
+—— 来自 OnePlus GM1910, Android 1 ...</blockquote>
+这个问题暂时无解，原因大概是因为这个游戏用蓝牙耳机的时候会强制使用蓝牙耳机的Hands-Free AG Audio模式，而且没有办法切换。我猜测是矢脑袋把ps5的一些设定无脑搬过来pc版的结果。
+
+这个问题我也头疼了好久，最后认命不用蓝牙耳机。
+
+
+*****
+
+####  frosta  
+##### 2985#       发表于 2024-4-15 02:11
+
+快攒够第一个债券了买哪个好？最好万金油一点
+有固定队，但是平时带独头喷+机炮+护卫犬，主打一个啥都得我来打
+

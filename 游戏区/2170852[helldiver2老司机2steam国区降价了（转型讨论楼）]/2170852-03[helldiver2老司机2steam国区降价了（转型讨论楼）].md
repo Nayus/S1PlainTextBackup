@@ -154,3 +154,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">希望大家都能知道这个事，我昨天捡了全队的样本鬼佬直接上去了我撤离失败
 
+
+*****
+
+####  LrGsite  
+##### 2978#       发表于 2024-4-14 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64595604&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2024-4-14 20:05</a>
+
+如果鹈鹕被打冒烟了就只接一个人上了就跑，包括己方伤害和敌方伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我草原来是这样吗，玩了这么久头次知道
+

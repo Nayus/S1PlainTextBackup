@@ -5302,3 +5302,19 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 笑死
 
+
+*****
+
+####  holoan  
+##### 8649#         楼主| 发表于 2024-4-14 21:49
+
+<img src="https://img.saraba1st.com/forum/202404/14/214846pzpqq89m2szspztr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 21:48 上传
+
+第一次见投票数十万级别的，同接才7W，而且一个号只计算一次的，到底多少观众
+

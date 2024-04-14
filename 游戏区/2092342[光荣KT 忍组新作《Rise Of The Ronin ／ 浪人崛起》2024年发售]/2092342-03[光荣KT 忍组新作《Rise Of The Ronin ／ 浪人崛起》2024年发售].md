@@ -479,3 +479,23 @@
 主角:嗯
 进副本，一刀一个断肢断头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3011#       发表于 2024-4-15 00:21
+
+<blockquote>[ 医生狼多 replied on 2024-4-15 00:03](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598070&amp;ptid=2092342)  本帖最后由 医生狼多 于 2024-4-15 00:10 编辑  引用:噗呸破屁诚 发表于 2024-4-14 23:09 这作一周目游玩体验是忍组自仁王以来的历代最佳吧但这么好的游戏体验捏吗剧情就不能长点心？这第二 ... 龙马:我受够自相残杀了，我们要阻止他们! 主角:嗯 进副本，一刀一个断肢断头 </blockquote>
+为了阻止双边阵营互相残杀，我们提前一步杀光了所有人。来自: iPhone客户端
+
+*****
+
+####  黑修士  
+##### 3012#       发表于 2024-4-15 00:24
+
+维新派吃喝嫖赌但激情昂扬，佐幕派独断专行但大义凛然，说洋大人是反派吧，结果还有精日
+
+最后只有玩家自己捏的两个
+
+一个阴谋挑拨，偏执极端，一个左右横跳，杀人无数。男女不拘，四处留情，堪称幕末大嫖客<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

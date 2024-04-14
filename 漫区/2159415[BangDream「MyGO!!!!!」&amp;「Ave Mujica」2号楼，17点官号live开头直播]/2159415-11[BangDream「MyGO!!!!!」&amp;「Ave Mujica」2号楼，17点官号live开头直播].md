@@ -8940,3 +8940,41 @@ https://twitter.com/sasakirico/status/1779065810885177650</blockquote>
 
 这下看到音宝的练出来到底什么样子了，刚要满20岁啊，彻底和解了。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪川_  
+##### 15613#       发表于 2024-4-14 19:46
+
+<img src="https://img.saraba1st.com/forum/202404/14/194645ta34zkzrhkhc4h9y.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240413043406.png</strong> (64.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 19:46 上传
+
+ZUwrM1V1cUM1ZHNkUi9TZ2M1TlVpUlpEdlhIOVNBY3NYb0cxWDF5TXgrST0.jpg
+(320.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202404/14/194640av5pis55n1x5qeib.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 15614#       发表于 2024-4-14 19:49
+
+这下理解祥子为什么是蝶粉了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 15615#       发表于 2024-4-14 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

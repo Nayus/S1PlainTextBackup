@@ -59,3 +59,37 @@
 
 飞龙骑脸主要看你的主武器，如果是镰刀或者霰弹可以乱杀飞龙，边跑边杀冲到蘑菇下面叫地狱火。飞龙在没有干扰的情况下很好对付，很多人不知道趴在地上飞龙是打不到你的，一个人就可以轻松清理大群飞龙。
 
+
+*****
+
+####  xinfengj  
+##### 2968#       发表于 2024-4-14 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64574765&amp;ptid=2170852" target="_blank">Cookiekira 发表于 2024-4-12 20:22</a>
+
+为什么我躲着呼叫飞鹰也会被怪直接发现啊</blockquote>
+只是知道你扔球的位置，本体没被发现，扔完立刻转移就不会被抓到
+
+*****
+
+####  xinfengj  
+##### 2969#       发表于 2024-4-14 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64575591&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-4-12 21:33</a>
+
+你游ai的索敌逻辑：只要触发事件就拉警报
+
+具体例子：怪巡逻时踩到了地图默认的地雷，于是触发了警报[f:06 ...</blockquote>
+被攻击会触发警报，但是只要你本体没被发现刷出来的怪就会原地搜索然后发呆，机器人则会乱开枪，穿侦查甲单走优势比其他甲大的多
+
+*****
+
+####  Awanano  
+##### 2970#       发表于 2024-4-14 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64588939&amp;ptid=2170852" target="_blank">灰色蔓延 发表于 2024-4-14 01:30</a>
+今天这个医疗重甲看着挺好看欸</blockquote>
+会和克隆兵头盔有点穿模<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

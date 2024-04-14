@@ -10801,3 +10801,22 @@ jackpot竟然翻车了
 
 竟然是雨刷<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 4061#       发表于 2024-4-14 16:04
+
+北美蛤蜊好强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 4062#       发表于 2024-4-14 16:05
+
+悬，好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

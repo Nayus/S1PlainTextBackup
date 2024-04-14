@@ -3783,3 +3783,20 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 2024-4-13 22:39 上传
 
+
+*****
+
+####  shiko  
+##### 341#       发表于 2024-4-14 09:50
+
+包子的声线偏软，铃村的声线偏硬，要是互换角色感觉还挺怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Znesmoc  
+##### 342#       发表于 2024-4-14 09:54
+
+铃村配鸡就是隔壁空镜里黑桐干也声线了吧，也挺行的
+

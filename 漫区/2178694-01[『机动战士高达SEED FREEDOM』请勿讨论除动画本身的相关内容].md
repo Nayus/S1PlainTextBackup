@@ -3846,3 +3846,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 2024-4-14 19:20 上传
 
+
+*****
+
+####  stmule  
+##### 347#       发表于 2024-4-15 00:42
+
+<img src="https://p.sda1.dev/16/32eff714b80e07962fcee63621d81ba1/CMP_20240415004220815.jpg" referrerpolicy="no-referrer">
+翻相册翻到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

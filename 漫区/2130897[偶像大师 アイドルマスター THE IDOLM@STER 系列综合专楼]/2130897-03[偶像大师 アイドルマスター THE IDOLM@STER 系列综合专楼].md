@@ -2629,3 +2629,19 @@ IMG_3273.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">果然是妈妈
 
+
+*****
+
+####  グラフ  
+##### 3216#       发表于 2024-4-14 18:52
+
+最近因为一些小企划需要用到SC的BGM。不过目前SC仅发行了一张原声带，相关BGM都缺失标签，在索引时非常不方便。我这边创建了一个公开可编辑的表格[https://iwthsx70mee.feishu.cn/wiki/NiJRwnPOLiG5avk7VITcySb8nGA?table=tblknP5L0hHgTWOk&amp;view=vewgTQ2RSY](https://iwthsx70mee.feishu.cn/wiki/NiJRwnPOLiG5avk7VITcySb8nGA?table=tblknP5L0hHgTWOk&amp;view=vewgTQ2RSY)，列出了目前SC游戏内的所有BGM，并提供了试听链接。大家感兴趣可以自由使用或编辑该表格。
+
+<img src="https://img.saraba1st.com/forum/202404/14/185207q1aefq7xfaap4ezz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 18:52 上传
+

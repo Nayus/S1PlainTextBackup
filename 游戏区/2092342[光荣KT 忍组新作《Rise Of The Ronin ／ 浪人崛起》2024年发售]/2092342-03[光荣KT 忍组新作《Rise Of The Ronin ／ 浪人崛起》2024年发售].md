@@ -380,3 +380,11 @@
 话说道场在哪来着，感觉还是喜欢跟精英干架，清小怪乐趣不大</blockquote>
 横滨推剧情就能解锁，在道馆你就要品尝这这游戏最恶心的版边视角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ailiketian  
+##### 3001#       发表于 2024-4-14 14:40
+
+这个萨道义boss设计的真尼玛牛逼，穿上飞天鞋和哈利波特一样还到处冒火，这还是幕末吗？
+

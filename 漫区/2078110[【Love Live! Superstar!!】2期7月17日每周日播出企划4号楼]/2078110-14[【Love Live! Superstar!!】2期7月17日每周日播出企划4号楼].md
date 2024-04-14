@@ -581,3 +581,17 @@ toupai
 星加人根本是意料之外，直接给粉丝当头一棒。
 莲加人基本从一开始就可预见的，而且有星这个前科。
 
+
+*****
+
+####  ruffian  
+##### 19984#       发表于 2024-4-14 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592281&amp;ptid=2078110" target="_blank">cqc1021 发表于 2024-04-14 13:17:37</a>
+与其轮花田不如轮星团的加人策略。
+现在莲团加人跟当初星团二期加人的风评完全不一样。
+
+—— 来自 samsung ...</blockquote>那肯定不一样啊，星已经把雷趟过一遍了，别说莲，星自己也知道避一避了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

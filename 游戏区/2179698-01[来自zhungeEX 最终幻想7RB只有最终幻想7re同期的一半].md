@@ -826,3 +826,11 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 第三部ridie，再死一次。
 
+
+*****
+
+####  唯_change  
+##### 83#       发表于 2024-4-14 11:59
+
+无脑黑黑销量就可以了，RB体量超绝大部分的JRPG没啥毛病，怪物boss种类OST地图面积魔石多样性哪点体量不是大的。玩支线就会发觉很多人物故事都有补充，无脑黑最喜欢复读的小游戏也有不少故事线，没玩就瞎喷的原批真是搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

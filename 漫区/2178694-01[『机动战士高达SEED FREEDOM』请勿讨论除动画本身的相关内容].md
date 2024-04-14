@@ -3800,3 +3800,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 铃村配鸡就是隔壁空镜里黑桐干也声线了吧，也挺行的
 
+
+*****
+
+####  忧郁的杰哥  
+##### 343#       发表于 2024-4-14 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64586934&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-13 22:39</a>
+
+我一直以为福田这个采访很多都看见了，看来还是没有</blockquote>
+我说实话  SEED前期大天使逃亡那段剧情准将的性格特点以及一系列操作简直就是翻版的鸟
+

@@ -84,3 +84,13 @@
 
 小雪真好看啊，而且还是嘴硬心软，什么时候再吸猫，不，吸人啊
 
+
+*****
+
+####  patapon3  
+##### 1301#       发表于 2024-4-14 12:04
+
+我现在就要看到傲娇猫猫的巨大感情，又傲娇又护主，真是美味啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

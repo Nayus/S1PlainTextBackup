@@ -1151,3 +1151,15 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 分割商法哪来的后劲嘛，粉丝肯定基本上首周就入手了。路人没玩过1难道还能直接买2？这后劲不就直接归零了嘛
 
+
+*****
+
+####  陈乔恩  
+##### 114#       发表于 2024-4-14 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64581234&amp;ptid=2179698" target="_blank">青色精灵の最期 发表于 2024-4-13 11:42</a>
+三部曲中第二部算不错的跌幅，FF13-2直接跌到不足13本体的1/3</blockquote>
+不能这么比，毕竟ff7r还不错但是ff13真是一坨屎
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

@@ -109,3 +109,11 @@
 
 今天遇见好几次倒数没结束只上了一个人 鹈鹕就飞走了 样本全损
 
+
+*****
+
+####  晨汐听雨  
+##### 2973#       发表于 2024-4-14 18:03
+
+火喷加激光小背包打虫子好爽，每次都能杀三百多只<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

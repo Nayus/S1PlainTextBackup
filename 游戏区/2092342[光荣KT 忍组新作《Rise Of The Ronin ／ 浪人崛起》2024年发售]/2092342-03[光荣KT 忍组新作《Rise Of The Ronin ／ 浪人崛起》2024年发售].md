@@ -515,3 +515,28 @@
 
 已经能预见卧龙2主角的进化版三角跳剧情了，打完赤壁第二天见到曹操，曹操表示：当然是选择原谅！别说这些了，我这有些任务，你干不干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bwsusaga  
+##### 3015#       发表于 2024-4-15 00:58
+
+我就喜欢主角这左右横跳的劲儿，进据点园子杀人从不手软，主打一个枭首震慑。
+
+反正跟来的人最多抱怨两句，送礼就完事儿了。
+
+
+*****
+
+####  黑修士  
+##### 3016#       发表于 2024-4-15 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598391&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-15 00:40</a>
+
+一周目就是纯仁卧版只狼，全是人形boss，打铁是打爽了，道场视角确实有问题。剧情槽点太多，救松阴，松阴自 ...</blockquote>
+这次的剧情从头到尾就主打一个啼笑皆非的儿戏感
+
+想起游戏发售前，制作组被问及为啥不提供线上试玩？
+
+回答是这次的故事棒极了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

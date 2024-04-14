@@ -865,3 +865,26 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 这个zhugeEX把这条推特评论关闭了，但是没事，我在这个帖子里帮你教训他了
 
+
+*****
+
+####  hentianwuya  
+##### 87#       发表于 2024-4-14 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64591963&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 12:43</a>
+
+那个什么zhugeEX，如果你在看S1论坛，请重视这位SE粉丝的心态，不要再在互联网上发这种阴阳怪气的推特了
+
+ ...</blockquote>
+我不关注X上的新闻，ZHUGE大概率也不会来S1，你还是省省吧，我就是喜欢喷你这种明明没玩过却喜欢按头辩经的人，毕竟你比较好拿捏。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 88#       发表于 2024-4-14 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592003&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 12:48</a>
+
+我不关注X上的新闻，ZHUGE大概率也不会来S1，你还是省省吧，我就是喜欢喷你这种明明没玩过却喜欢按头辩经 ...</blockquote>
+哦，那zhugeEX，如果你逛S1的话，看到这条消息就表示你可以继续在X上YYGQ那些恶心你的SE粉丝了，S1的某位SE粉丝不会怪你的
+

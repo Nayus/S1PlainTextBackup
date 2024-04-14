@@ -845,3 +845,23 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 还真是</blockquote>
 大清早就开始清日常了是吧，好好的大周末不去玩游戏，是你的梦中情游没有论坛阴阳怪气好玩吗？你继续，我陪你玩。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nancygreenlife  
+##### 85#       发表于 2024-4-14 12:39
+
+第三部会不会再来个同期只有RB的一半<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 86#       发表于 2024-4-14 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64591872&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 12:33</a>
+
+大清早就开始清日常了是吧，好好的大周末不去玩游戏，是你的梦中情游没有论坛阴阳怪气好玩吗？你继续，我 ...</blockquote>
+那个什么zhugeEX，如果你在看S1论坛，请重视这位SE粉丝的心态，不要再在互联网上发这种阴阳怪气的推特了
+
+这个zhugeEX把这条推特评论关闭了，但是没事，我在这个帖子里帮你教训他了
+

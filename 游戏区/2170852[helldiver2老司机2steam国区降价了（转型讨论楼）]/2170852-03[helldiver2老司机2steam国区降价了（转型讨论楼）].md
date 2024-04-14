@@ -257,3 +257,19 @@
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  灰色蔓延  
+##### 2988#       发表于 2024-4-15 04:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598980&amp;ptid=2170852" target="_blank">frosta 发表于 2024-4-15 02:11</a>
+快攒够第一个债券了买哪个好？最好万金油一点
+有固定队，但是平时带独头喷+机炮+护卫犬，主打一个啥都得我 ...</blockquote>
+老兵甄选火喷虫子特化，主宰和焦土打机器人各有优势
+遥遥领先镰刀新时代万金油，眩晕雷特化玩法
+民主爆破就是爆破铳和榴弹手雷，吃练度上限高。
+目前看遥遥领先泛用性高一丢丢，不过最终看你的build习惯了
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

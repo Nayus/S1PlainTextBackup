@@ -11230,3 +11230,11 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  maomaoying  
+##### 4108#       发表于 2024-4-15 02:01
+
+搞不懂甲子园为什么比涂地，或者世锦赛为什么不比涂地，任天堂有大病
+

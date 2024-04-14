@@ -640,3 +640,15 @@ toupai
 
 一回生两回熟，三回大家都不在意<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 19990#       发表于 2024-4-14 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64593674&amp;ptid=2078110" target="_blank">starring 发表于 2024-4-14 16:26</a>
+算上虹加R3，这是第三次吧（星二三期算一次）
+
+一回生两回熟，三回大家都不在意 ...</blockquote>
+虹本来就是主打个人solo，加不加人无所谓，虽然也有些骚动，但主要原因更多是新角色剧情塑造不讨喜导致的，比星一期加人造成的负面影响差远了。
+

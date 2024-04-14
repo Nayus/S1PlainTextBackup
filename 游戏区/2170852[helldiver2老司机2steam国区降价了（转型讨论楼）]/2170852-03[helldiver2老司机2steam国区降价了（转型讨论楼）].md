@@ -93,3 +93,11 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Mr.Hopp  
+##### 2971#       发表于 2024-4-14 16:30
+
+感觉带红翅膀的机器人基础兵绝对加强过了，有时候射击能力不弱于盾牌。
+

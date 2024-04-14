@@ -606,3 +606,11 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 mouz稳定尽孝
 
+
+*****
+
+####  heseran  
+##### 4304#       发表于 2024-4-14 20:49
+
+在已经不抱任何希望的时候见到niko和小孩了，哥们儿这趟成都没白来<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，他们人真好。
+

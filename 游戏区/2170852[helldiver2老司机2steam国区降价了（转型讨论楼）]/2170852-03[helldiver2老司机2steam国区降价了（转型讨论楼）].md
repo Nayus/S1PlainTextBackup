@@ -318,3 +318,25 @@
 
 机炮和激光狗我不知道你是不是搞错了，不能一起带。 但是从喜欢机炮和喜欢激光狗的角度看，可能民主爆破会相对适合些。
 
+
+*****
+
+####  frosta  
+##### 2990#       发表于 2024-4-15 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64599384&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-14 13:45</a>
+老兵 火喷+主宰
+
+遥遥领先 镰刀 离子喷 晕雷
+
+爆破 爆裂狙/弩 榴弹手枪</blockquote>
+感谢分析了这么多
+这么带也是迫不得已<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+坦克电锯大盾都得我来打，之前用反器材感觉杀伤不太够，而且也打不掉难6的飞机，最后只好背着机炮
+
+主手用过突击步枪和激光，一个子弹下的太快一个被电锯贴脸活不下来，最后带了独头喷可远可近伤害也够
+
+但是独头喷清杂效率还是不太够，所以又得背着激光狗，所幸机炮的背包可以让队友带着顺便帮我装弹
+
+要是有其他比较万金油的配置推荐，我倒也想换换口味<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

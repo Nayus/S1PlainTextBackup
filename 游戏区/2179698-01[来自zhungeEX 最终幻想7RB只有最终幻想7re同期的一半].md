@@ -1076,3 +1076,42 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 我就说我怎么看不到某些楼层的回复？原来是石榴发售后专楼不见踪影的小红帽！ ...</blockquote>
 我随时可以去专楼回复，你想进去跟我练练？<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wjbdasd  
+##### 107#       发表于 2024-4-14 14:16
+
+被封几个月的痛看来是忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hentianwuya  
+##### 108#       发表于 2024-4-14 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592751&amp;ptid=2179698" target="_blank">wjbdasd 发表于 2024-4-14 14:16</a>
+
+被封几个月的痛看来是忘了</blockquote>
+所以呢，你害怕跟我对练？<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forzen  
+##### 109#       发表于 2024-4-14 14:22
+
+2024年了，在人世间也难以看到人们对自己的父母、伴侣和孩儿有着这么热切而深厚的爱，不经意间却在坛友对待一个游戏上发现了
+今天的泥潭没有白逛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rainwedell| + 2|欢乐多|
+
+查看全部评分
+

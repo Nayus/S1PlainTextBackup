@@ -961,3 +961,36 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 好好好，我是卡普空粉丝，那么请问，我是否有败坏了卡普空的形象和卡普空粉丝的形象？我是否得向你这个比 ...</blockquote>
 我当然认可你是卡普空粉丝了，希望各位看到此贴的坛友们也能记住，以后这位hentianwuya坛友和你在SE游戏意见上有分歧甚至语言攻击你的时候，各位应该记住，他是一位卡普空粉丝
 
+
+*****
+
+####  hentianwuya  
+##### 96#       发表于 2024-4-14 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592334&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 13:22</a>
+
+我当然认可你是卡普空粉丝了，希望各位看到此贴的坛友们也能记住，以后这位hentianwuya坛友和你在SE游戏 ...</blockquote>
+那你是觉的我作为一个卡普空粉丝败坏了SE的形象？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那么我是怎么败坏SE的形象的？能不能请你阐述一下？
+
+还有你身为一个06年注册的ID，你在这个帖子里率先语言攻击我的时候我可什么都没说，怎么现在又嘤嘤嘤上了？能不能像个男人一点？当然，如果我假定错了你的性别，我先在这里道歉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  astrayl  
+##### 97#       发表于 2024-4-14 13:32
+
+这折腾下去第三部啥样简直画美不看，头牌IP能续就算赢？
+
+*****
+
+####  汪达  
+##### 98#       发表于 2024-4-14 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592381&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 13:29</a>
+
+那你是觉的我作为一个卡普空粉丝败坏了SE的形象？那么我是怎么败坏SE的形象的？能不能请你阐述一 ...</blockquote>
+我不敢武断地判定你这样发帖是否在破坏粉丝群体的形象，这要取决于你的想法
+
+你如果自认为这是一种破坏，那么就是在破坏卡普空粉丝的形象，这是毫无疑问的
+

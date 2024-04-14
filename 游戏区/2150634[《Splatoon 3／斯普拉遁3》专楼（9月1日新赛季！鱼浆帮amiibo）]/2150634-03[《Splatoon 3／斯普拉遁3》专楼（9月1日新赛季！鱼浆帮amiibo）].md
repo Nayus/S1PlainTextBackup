@@ -10426,3 +10426,56 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 怎么官网页面还在马车，rtt你行不行的啊
 
+
+*****
+
+####  墨染白泉  
+##### 4015#       发表于 2024-4-14 13:31
+
+鲨鱼太幽默了
+
+*****
+
+####  carroy  
+##### 4016#       发表于 2024-4-14 13:35
+
+ 本帖最后由 carroy 于 2024-4-14 13:38 编辑 
+
+我艹韩国这个太牢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+根本看不懂韩国打比赛的思路（）
+
+*****
+
+####  KBAC  
+##### 4017#       发表于 2024-4-14 13:35
+
+韩国队拿鱼一直没人涂鱼台<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shirolin  
+##### 4018#       发表于 2024-4-14 13:35
+
+鲨鱼太好笑了
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  shirolin  
+##### 4019#       发表于 2024-4-14 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592424&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-4-14 13:35</a>
+韩国队拿鱼一直没人涂鱼台</blockquote>
+最后不得不选下面那个台子
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  墨染白泉  
+##### 4020#       发表于 2024-4-14 13:37
+
+电锯砍爆了吸墨机，研究所看到了还得削
+

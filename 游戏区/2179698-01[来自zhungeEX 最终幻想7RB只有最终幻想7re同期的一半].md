@@ -932,3 +932,32 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 照你这理论，我不该是SE粉丝啊，毕竟我FF7RE+FF7RB加起来的时间没有玩龙之信条多，你咋笃定我是SE粉丝呢？ ...</blockquote>
 哦，zhugeEX，跟你分享一件事实，当你发FF7RB销量不佳的新闻，有人追着你恶心的，不一定是SE粉丝，有可能是卡普空粉丝，所以以后不许武断地认为这是粉丝在恶心你了
 
+
+*****
+
+####  hentianwuya  
+##### 93#       发表于 2024-4-14 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592199&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 13:09</a>
+
+哦，zhugeEX，跟你分享一件事实，当你发FF7RB销量不佳的新闻，有人追着你恶心的，不一定是SE粉丝，有可能 ...</blockquote>
+好好好，我是卡普空粉丝，那么请问，我是否有败坏了卡普空的形象和卡普空粉丝的形象？我是否得向你这个比我纯正得多的粉丝道歉？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 94#       发表于 2024-4-14 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌 第3部大概率更低
+
+
+*****
+
+####  汪达  
+##### 95#       发表于 2024-4-14 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592274&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 13:16</a>
+
+好好好，我是卡普空粉丝，那么请问，我是否有败坏了卡普空的形象和卡普空粉丝的形象？我是否得向你这个比 ...</blockquote>
+我当然认可你是卡普空粉丝了，希望各位看到此贴的坛友们也能记住，以后这位hentianwuya坛友和你在SE游戏意见上有分歧甚至语言攻击你的时候，各位应该记住，他是一位卡普空粉丝
+

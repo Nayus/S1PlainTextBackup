@@ -10401,3 +10401,28 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 这牙刷真就不换
 
+
+*****
+
+####  罗克萨斯  
+##### 4012#       发表于 2024-4-14 13:20
+
+棒子蓝牙佬真就不管啥模式，蓝牙用到死啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KBAC  
+##### 4013#       发表于 2024-4-14 13:20
+
+黑气垫+蓝牙刷，感觉不如巨大冰壶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 4014#       发表于 2024-4-14 13:26
+
+怎么官网页面还在马车，rtt你行不行的啊
+

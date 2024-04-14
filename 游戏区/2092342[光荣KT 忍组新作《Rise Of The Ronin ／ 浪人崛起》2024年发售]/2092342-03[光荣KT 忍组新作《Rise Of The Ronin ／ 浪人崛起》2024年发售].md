@@ -354,3 +354,11 @@
 
 其实所有武器的石火起手判定都是一样的，二周目换武器上手没有感受到差别。<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 2998#       发表于 2024-4-14 13:48
+
+话说道场在哪来着，感觉还是喜欢跟精英干架，清小怪乐趣不大
+

@@ -10487,3 +10487,40 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 光看比赛的话要削的还得是rpg，但是野上恒不敢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 4022#         楼主| 发表于 2024-4-14 13:48
+
+没觉得rpg有啥不敢削的，削多削少而已吧，迟早的事
+
+*****
+
+####  墨染白泉  
+##### 4023#       发表于 2024-4-14 13:50
+
+塔楼居然一个长热都没有
+
+*****
+
+####  KBAC  
+##### 4024#       发表于 2024-4-14 13:52
+
+台湾长热佬塔楼换中刷了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 4025#       发表于 2024-4-14 13:54
+
+ydd老哥咋不用长热泡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 4026#       发表于 2024-4-14 13:56
+
+中刷尽力了，4k不行
+

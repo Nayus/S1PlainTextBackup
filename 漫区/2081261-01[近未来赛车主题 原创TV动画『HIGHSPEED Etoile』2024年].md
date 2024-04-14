@@ -1246,3 +1246,15 @@ O了，隔壁竞轮比这个烂得多
 
 看完两集。直接-2<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  道双晨曦  
+##### 238#       发表于 2024-4-14 13:48
+
+后排提醒，冲着美少女来的可以润了，前两集超过2/3的时间都是赛车，后续估计也是一集一赛或者两集一赛加几集过渡回
+
+赛车部分，找兵哥来解说说不定我还能看得下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后大声喊出那五个字：谢谢你元神！
+

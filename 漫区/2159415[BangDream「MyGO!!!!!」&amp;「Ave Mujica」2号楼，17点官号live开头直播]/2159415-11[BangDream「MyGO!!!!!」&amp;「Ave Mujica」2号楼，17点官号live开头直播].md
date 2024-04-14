@@ -8852,3 +8852,14 @@ nyaa这个是有音频的，但不知道用了什么音频格式，没有任何�
 
 原来是这个原因，怪不得音频解码不了
 
+
+*****
+
+####  好想看Mujica啊  
+##### 15606#       发表于 2024-4-14 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583678&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-13 16:38</a>
+
+https://twitter.com/sasakirico/status/1779065810885177650</blockquote>
+金发绿衣牛仔裤，我知道了，是在cos沙皇，祥子危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

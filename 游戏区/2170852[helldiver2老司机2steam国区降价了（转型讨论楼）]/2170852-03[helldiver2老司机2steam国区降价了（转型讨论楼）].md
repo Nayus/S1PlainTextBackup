@@ -340,3 +340,17 @@
 
 要是有其他比较万金油的配置推荐，我倒也想换换口味<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2991#       发表于 2024-4-15 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64599222&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-4-15 03:58</a>
+在设备管理器里禁用蓝牙耳机的Hands-Free AG Audio设备即可，代价是无法使用蓝牙耳机的麦克风
+
+—— 来自 ...</blockquote>
+落泪，我就是为了用麦克风
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

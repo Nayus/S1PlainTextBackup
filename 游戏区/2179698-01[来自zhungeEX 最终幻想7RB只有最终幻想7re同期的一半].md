@@ -888,3 +888,36 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 我不关注X上的新闻，ZHUGE大概率也不会来S1，你还是省省吧，我就是喜欢喷你这种明明没玩过却喜欢按头辩经 ...</blockquote>
 哦，那zhugeEX，如果你逛S1的话，看到这条消息就表示你可以继续在X上YYGQ那些恶心你的SE粉丝了，S1的某位SE粉丝不会怪你的
 
+
+*****
+
+####  hentianwuya  
+##### 89#       发表于 2024-4-14 12:56
+
+ 本帖最后由 hentianwuya 于 2024-4-14 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592024&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 12:51</a>
+
+哦，那zhugeEX，如果你逛S1的话，可以继续在X上YYGQ那些恶心你的SE粉丝了，S1的某位SE粉丝不会怪你的 ...</blockquote>
+就会这两句话复读了？当初指点江山激扬文字的劲哪去了？昨天贴数据来源被绕得东南西北还知道认错的认真态度呢？变成一个只会躲在推特IP身后的嘤嘤怪了？你作为一个卡普空粉丝不是挺会对别家游戏指点这指点那的？肚子里就这点货？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汪达  
+##### 90#       发表于 2024-4-14 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592073&amp;ptid=2179698" target="_blank">hentianwuya 发表于 2024-4-14 12:56</a>
+
+就会这两句话复读了？当初指点江山激扬文字的劲哪去了？昨天贴数据来源被绕得东南西北还知道认错的认真态 ...</blockquote>
+如果玩龙信2就是卡普空粉丝，那我也是SE粉丝呢，还是铁粉那种，我连DQX国服都玩过呢
+
+
+*****
+
+####  hentianwuya  
+##### 91#       发表于 2024-4-14 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592088&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 12:57</a>
+
+如果玩龙信2就是卡普空粉丝，那我也是SE粉丝呢，还是铁粉那种，我连DQX国服都玩过呢 ...</blockquote>
+照你这理论，我不该是SE粉丝啊，毕竟我FF7RE+FF7RB加起来的时间没有玩龙之信条多，你咋笃定我是SE粉丝呢？而且在你嘴里，我不是喷你几句就是有损SE形象和SE粉丝形象呢？你那会不是挺会扣帽子吗？这会又给自己叫起望天屈来了？你那双标的毛病又犯了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

@@ -10347,3 +10347,42 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  carroy  
+##### 4006#       发表于 2024-4-14 13:03
+
+公式网站怎么还在马车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shirolin  
+##### 4007#       发表于 2024-4-14 13:04
+
+开始了
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  oi99o  
+##### 4008#       发表于 2024-4-14 13:06
+
+昨天最后几局都没有选手视角，真是草台
+
+*****
+
+####  liekong  
+##### 4009#       发表于 2024-4-14 13:06
+
+<img src="https://img.saraba1st.com/forum/202404/14/130625k977m9v7vib9wrmt.png" referrerpolicy="no-referrer">
+
+<strong>K$)J(L}W90BUAUDLJ{HVD(Y.png</strong> (12.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 13:06 上传
+
+今天赛程时长好久阿
+

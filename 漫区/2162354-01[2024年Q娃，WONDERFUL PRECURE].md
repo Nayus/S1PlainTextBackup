@@ -110,3 +110,14 @@
 
 跟奶玫瑰UU差不多的套路啊，不晓得跟成田阿姨笔下这些前辈比小雪逼格能绷几集<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1304#       发表于 2024-4-14 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592323&amp;ptid=2162354" target="_blank">Cloudslin 发表于 2024-4-14 13:20</a>
+
+跟奶玫瑰UU差不多的套路啊，不晓得跟成田阿姨笔下这些前辈比小雪逼格能绷几集 ...</blockquote>
+已经看到像前几集时一样小雪一边骂着别靠近我笨犬一边对贴上来的小麦无能为力被单方面折腾的未来了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

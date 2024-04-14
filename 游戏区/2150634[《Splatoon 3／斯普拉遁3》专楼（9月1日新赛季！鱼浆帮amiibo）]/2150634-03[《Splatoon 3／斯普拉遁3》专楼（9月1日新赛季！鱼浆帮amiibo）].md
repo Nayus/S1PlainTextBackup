@@ -10479,3 +10479,11 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 电锯砍爆了吸墨机，研究所看到了还得削
 
+
+*****
+
+####  oi99o  
+##### 4021#       发表于 2024-4-14 13:39
+
+光看比赛的话要削的还得是rpg，但是野上恒不敢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

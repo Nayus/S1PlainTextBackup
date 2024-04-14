@@ -994,3 +994,24 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 你如果自认为这是一种破坏，那么就是在破坏卡普空粉丝的形象，这是毫无疑问的
 
+
+*****
+
+####  紫菜粉丝煲  
+##### 99#       发表于 2024-4-14 13:38
+
+看了感觉真可怜
+
+
+*****
+
+####  hentianwuya  
+##### 100#       发表于 2024-4-14 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592441&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 13:37</a>
+
+我不敢武断地判定你这样发帖是否在破坏粉丝群体的形象，这要取决于你的想法
+
+你如果自认为这是一种破坏， ...</blockquote>
+昨天你挺武断的啊，今天就不敢武断了？薛定谔的武断？还什么取决于我的想法？被我喷了两天，终于学乖了说话留有余地了吗？那真是善莫大焉。<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

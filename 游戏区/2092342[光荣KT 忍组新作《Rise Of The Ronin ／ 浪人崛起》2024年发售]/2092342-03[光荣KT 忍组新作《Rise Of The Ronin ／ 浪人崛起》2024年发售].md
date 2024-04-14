@@ -346,3 +346,11 @@
 
 这屌游戏我最难绷的一点就是不能切时间，京都的时间线就固定在1868了，想往前倒倒截一个本愿寺银杏都做不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 2997#       发表于 2024-4-14 11:36
+
+其实所有武器的石火起手判定都是一样的，二周目换武器上手没有感受到差别。<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

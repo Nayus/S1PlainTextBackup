@@ -265,3 +265,32 @@ su的手游已经联动过尼尔了，把屁股加宽了一大圈，大卖</bloc
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  纱布光环  
+##### 708#       发表于 2024-4-14 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64594270&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-4-14 17:39</a>
+
+什么游戏，有名字或者图或者视频吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+93e9a23ecb9c7bbde4ed03675b04b8bb.png
+(47.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 18:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/14/182318p9xjc9egjb19de1j.png" referrerpolicy="no-referrer">
+
+dcce645b86970f8dbcc46c8f9c4f82d3.png
+(165.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 18:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/14/182318n3s0bk42qiii5360.png" referrerpolicy="no-referrer">
+

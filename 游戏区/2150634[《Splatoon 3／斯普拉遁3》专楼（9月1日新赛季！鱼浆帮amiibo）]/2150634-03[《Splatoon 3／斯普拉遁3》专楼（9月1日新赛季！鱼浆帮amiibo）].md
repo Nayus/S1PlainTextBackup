@@ -10760,3 +10760,29 @@ jackpot竟然翻车了
 
 好残忍
 
+
+*****
+
+####  shirolin  
+##### 4056#       发表于 2024-4-14 15:44
+
+笑死
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  oi99o  
+##### 4057#       发表于 2024-4-14 15:44
+
+来了，漏油点的翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liekong  
+##### 4058#       发表于 2024-4-14 15:45
+
+翻车好啊，这才有看点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

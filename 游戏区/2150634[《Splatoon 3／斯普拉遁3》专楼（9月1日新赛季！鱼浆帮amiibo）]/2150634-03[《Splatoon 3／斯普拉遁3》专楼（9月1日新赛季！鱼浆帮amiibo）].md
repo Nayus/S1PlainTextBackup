@@ -10847,3 +10847,89 @@ jackpot竟然翻车了
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 4066#       发表于 2024-4-14 16:20
+
+怪盗队怎么不用铅笔打区域？
+
+*****
+
+####  holoan  
+##### 4067#       发表于 2024-4-14 16:21
+
+第二场第五场安排涂地我觉得是有意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻车啦
+
+*****
+
+####  幽香  
+##### 4068#       发表于 2024-4-14 16:23
+
+只能说心之怪盗还是太年轻了
+
+*****
+
+####  KBAC  
+##### 4069#       发表于 2024-4-14 16:23
+
+日本翻车了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  liekong  
+##### 4070#       发表于 2024-4-14 16:23
+
+草啊，北美世界champion了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oi99o  
+##### 4071#       发表于 2024-4-14 16:23
+
+恭喜Jackpot<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋月孝三  
+##### 4072#       发表于 2024-4-14 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下次还是派日本全明星上场吧
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4073#       发表于 2024-4-14 16:24
+
+涂地强化传说队最后没有上演传统逆转局还败在了真格涂地上
+
+*****
+
+####  carroy  
+##### 4074#       发表于 2024-4-14 16:24
+
+日本人输了区域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stoiorz  
+##### 4075#       发表于 2024-4-14 16:25
+
+不是吧，没怎么看过比赛，不是说心之怪盗团很强的吗？怎么是北美队碾压？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  liekong  
+##### 4076#       发表于 2024-4-14 16:26
+
+日本队1:4大比分输给北美队，丢人了
+

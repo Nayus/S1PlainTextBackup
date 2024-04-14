@@ -620,3 +620,23 @@ toupai
 
 主要还是不接受的人跑太多了，剩下的都习惯了基本
 
+
+*****
+
+####  Kfly  
+##### 19988#       发表于 2024-4-14 16:22
+
+第一次和第二次能一样吗，星三期生公布的时候不也没多大反应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 19989#       发表于 2024-4-14 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64593637&amp;ptid=2078110" target="_blank">Kfly 发表于 2024-4-14 16:22</a>
+
+第一次和第二次能一样吗，星三期生公布的时候不也没多大反应</blockquote>
+算上虹加R3，这是第三次吧（星二三期算一次）<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+一回生两回熟，三回大家都不在意<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

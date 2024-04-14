@@ -135,3 +135,14 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  全装甲夏亚  
+##### 2976#       发表于 2024-4-14 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64594196&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-14 17:31</a>
+
+今天遇见好几次倒数没结束只上了一个人 鹈鹕就飞走了 样本全损</blockquote>
+如果鹈鹕被打冒烟了就只接一个人上了就跑，包括己方伤害和敌方伤害
+

@@ -576,3 +576,11 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 这表演赛还行的，不过不知道到决赛这一个小时还有啥安排
 
+
+*****
+
+####  那由  
+##### 4300#       发表于 2024-4-14 20:08
+
+青训被踩头踩麻了
+

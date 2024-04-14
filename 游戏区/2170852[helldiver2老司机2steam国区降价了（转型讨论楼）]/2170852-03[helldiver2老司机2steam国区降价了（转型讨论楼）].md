@@ -201,3 +201,13 @@
 
 因为它的竞争对手是机炮，反器材伤害的提升并没有和机炮拉开质的差距，打蹂躏是一枪，无畏两枪。而机炮备弹多，容量大，还有在机器人图中无限好用的爆炸属性。
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 2983#       发表于 2024-4-15 01:25
+
+用蓝牙耳机进游戏，整个电脑都会没声，有无大佬知道怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

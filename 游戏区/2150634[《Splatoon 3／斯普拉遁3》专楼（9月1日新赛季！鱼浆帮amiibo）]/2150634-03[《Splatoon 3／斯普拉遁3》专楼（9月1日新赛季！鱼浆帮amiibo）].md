@@ -10719,3 +10719,20 @@ jackpot竟然翻车了
 
 太精彩了
 
+
+*****
+
+####  墨染白泉  
+##### 4051#       发表于 2024-4-14 15:23
+
+快进到怪盗打jackpot吧
+
+*****
+
+####  shirolin  
+##### 4052#       发表于 2024-4-14 15:23
+
+一边倒没意思<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">心之怪盗就不能翻一下车吗？
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

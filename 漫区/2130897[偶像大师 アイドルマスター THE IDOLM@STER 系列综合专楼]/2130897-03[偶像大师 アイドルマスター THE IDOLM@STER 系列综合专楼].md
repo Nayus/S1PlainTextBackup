@@ -2645,3 +2645,16 @@ IMG_3273.jpeg
 
 2024-4-14 18:52 上传
 
+
+*****
+
+####  六至九  
+##### 3217#       发表于 2024-4-14 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64594910&amp;ptid=2130897" target="_blank">グラフ 发表于 2024-4-14 18:52</a>
+
+最近因为一些小企划需要用到SC的BGM。不过目前SC仅发行了一张原声带，相关BGM都缺失标签，在索引时非常不方 ...</blockquote>
+以前韩国人也做过类似的网站[https://shinycolors.info/utils/bgm_player/?bgm=000.m4a](https://shinycolors.info/utils/bgm_player/?bgm=000.m4a)
+
+话说SC去年也没出几首新BGM，感觉ost2也该出了
+

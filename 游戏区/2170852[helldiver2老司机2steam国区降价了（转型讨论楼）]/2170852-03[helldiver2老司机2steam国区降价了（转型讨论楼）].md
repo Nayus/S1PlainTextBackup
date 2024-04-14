@@ -117,3 +117,11 @@
 
 火喷加激光小背包打虫子好爽，每次都能杀三百多只<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 2974#       发表于 2024-4-14 18:56
+
+明天晚上应该会更新新战备吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

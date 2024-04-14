@@ -1123,3 +1123,13 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 又是你们这群喜欢阴阳怪气的太监，从99楼开始成群结队的出现，跟上次团建被我喷得找不到北的那一拨人ID都一样。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yzj134100  
+##### 111#       发表于 2024-4-14 18:55
+
+再高再低也不妨碍我等合集<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

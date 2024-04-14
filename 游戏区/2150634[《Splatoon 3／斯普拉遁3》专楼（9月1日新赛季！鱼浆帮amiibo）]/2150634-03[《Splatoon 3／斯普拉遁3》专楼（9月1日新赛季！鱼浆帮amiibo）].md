@@ -10736,3 +10736,27 @@ jackpot竟然翻车了
 
 —— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  秋月孝三  
+##### 4053#       发表于 2024-4-14 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指望有中午马车那么激烈是不可能的
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  oi99o  
+##### 4054#       发表于 2024-4-14 15:28
+
+心之怪盗还是稳
+
+*****
+
+####  liekong  
+##### 4055#       发表于 2024-4-14 15:28
+
+好残忍
+

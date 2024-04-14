@@ -1289,3 +1289,11 @@ O了，隔壁竞轮比这个烂得多
 
 想着第一集虽然烂就当是引子了，毕竟真主角们还没登场，结果第二集更刷新了下限，又是上来就来一场比赛，但除了原地打圈外没有任何记忆点，你还不如萌豚片美少女先做点有的没的，起码角色形象强化一下，这比赛场面很多但只是水时长的感觉，第二集勉强塑造了下女主吧，结果相关的剧情设计一言难尽，你这企划骗凯子就算了，真的是完全把观众也当弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moudianzi  
+##### 242#       发表于 2024-4-14 21:58
+
+真有人能捏着鼻子追完这部番吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

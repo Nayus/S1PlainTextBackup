@@ -745,3 +745,11 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 你提到了血与酒，不妨想想血与酒着力的地方在哪里，7rb又差在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 74#       发表于 2024-4-14 09:12
+
+感觉市场反应和10-2 13-2、3反应差不多，但SE投的是正作的预算，这3代都不知道怎么做，只会继续下滑。不行当断则断，直接让这些人做17得了
+

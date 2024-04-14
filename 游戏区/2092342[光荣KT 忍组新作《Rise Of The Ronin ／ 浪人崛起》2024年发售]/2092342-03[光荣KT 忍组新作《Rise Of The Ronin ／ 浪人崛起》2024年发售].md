@@ -399,3 +399,13 @@
 这个萨道义boss设计的真尼玛牛逼，穿上飞天鞋和哈利波特一样还到处冒火，这还是幕末吗？ ...</blockquote>
 人形天慧龙
 
+
+*****
+
+####  阿提拉  
+##### 3003#       发表于 2024-4-14 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">二周目刷比翼饰品纯靠脸啊，龙马就是不给我极品八尺琼
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -240,3 +240,14 @@ boss挑战拉着疾跑一直绕圈就行，反正场地够大boss跑不过玩家
 
 [https://www.bilibili.com/video/BV1Bm411B7JW/](https://www.bilibili.com/video/BV1Bm411B7JW/)
 
+
+*****
+
+####  哆哆鸡  
+##### 706#       发表于 2024-4-14 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64556651&amp;ptid=1978008" target="_blank">千千千千鸟 发表于 2024-4-11 11:07</a>
+
+su的手游已经联动过尼尔了，把屁股加宽了一大圈，大卖</blockquote>
+什么游戏，有名字或者图或者视频吗
+

@@ -10820,3 +10820,30 @@ jackpot竟然翻车了
 
 —— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  墨染白泉  
+##### 4063#       发表于 2024-4-14 16:08
+
+怪盗蛤蜊打的不行，协同几乎没了
+
+
+*****
+
+####  liekong  
+##### 4064#       发表于 2024-4-14 16:14
+
+草，日本队大炎上不可避
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  秋月孝三  
+##### 4065#       发表于 2024-4-14 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">野上下次还推涂地特化队上世界赛吗？
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

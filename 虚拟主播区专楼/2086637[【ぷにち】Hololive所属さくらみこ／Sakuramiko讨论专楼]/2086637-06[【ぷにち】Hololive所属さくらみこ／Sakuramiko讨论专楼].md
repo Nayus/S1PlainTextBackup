@@ -5159,3 +5159,13 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这泳衣怀念
 
+
+*****
+
+####  holoan  
+##### 8639#         楼主| 发表于 2024-4-14 16:16
+
+延期大半个月跟时雨的对战要开了
+
+不过不是51，玩的是马趴，如果是常规模式怕是被CPU全部干死
+

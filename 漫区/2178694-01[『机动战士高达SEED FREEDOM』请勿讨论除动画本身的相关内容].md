@@ -3819,3 +3819,14 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 两个人都没能保护好自己的初恋情人，感觉这里应该是最可以共情的地方
 
+
+*****
+
+####  葛林TOP  
+##### 345#       发表于 2024-4-14 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64572656&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-12 17:03</a>
+
+看到个说法，种命抄的是星战前传，真飞鸟是安纳金，姨丈是帕尔帕庭，阿斯兰是人品王，基拉卡嘉莉是卢走天兄 ...</blockquote>
+这事我记得是坂本真绫是日配帕德梅，在广播剧里说小鸟像安纳金。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

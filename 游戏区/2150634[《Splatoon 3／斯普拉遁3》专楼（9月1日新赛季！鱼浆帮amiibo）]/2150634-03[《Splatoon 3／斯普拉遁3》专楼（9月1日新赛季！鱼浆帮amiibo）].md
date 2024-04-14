@@ -11130,3 +11130,18 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
 
 日本LGD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trhgejk  
+##### 4099#       发表于 2024-4-14 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64593712&amp;ptid=2150634" target="_blank">holoan 发表于 2024-4-14 16:29</a>
+
+刚才选了3号位中炮的视角看，最后统计结果出来涂地点数连1000都没上
+
+问题来了为什么选自己不擅长的武器
+
+ ...</blockquote>
+哪里可以看选手视角的？我看任天堂官网没得选呀
+

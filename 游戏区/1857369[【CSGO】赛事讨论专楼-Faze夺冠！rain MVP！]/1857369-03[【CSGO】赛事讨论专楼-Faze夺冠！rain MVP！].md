@@ -568,3 +568,11 @@ yuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu！！
 
 什么老登cs
 
+
+*****
+
+####  ork  
+##### 4299#       发表于 2024-4-14 17:14
+
+这表演赛还行的，不过不知道到决赛这一个小时还有啥安排
+

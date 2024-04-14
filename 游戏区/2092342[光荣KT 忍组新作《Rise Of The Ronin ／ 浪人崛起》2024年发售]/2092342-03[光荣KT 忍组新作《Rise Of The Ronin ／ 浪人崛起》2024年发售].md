@@ -388,3 +388,14 @@
 
 这个萨道义boss设计的真尼玛牛逼，穿上飞天鞋和哈利波特一样还到处冒火，这还是幕末吗？
 
+
+*****
+
+####  nagitoY  
+##### 3002#       发表于 2024-4-14 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64592924&amp;ptid=2092342" target="_blank">ailiketian 发表于 2024-4-14 14:40</a>
+
+这个萨道义boss设计的真尼玛牛逼，穿上飞天鞋和哈利波特一样还到处冒火，这还是幕末吗？ ...</blockquote>
+人形天慧龙
+

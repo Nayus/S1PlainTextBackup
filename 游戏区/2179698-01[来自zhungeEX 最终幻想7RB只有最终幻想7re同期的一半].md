@@ -773,3 +773,13 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 另外个人看法，remake，rebirth这种命名方式比X-2，Y-3乃至正统续作号16更劝退玩家。
 
+
+*****
+
+####  jtwing  
+##### 77#       发表于 2024-4-14 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果se真的把之后的宝压至少一半在ff7重制第三部上，那按照现在这个成绩，第三部不是review就是release了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

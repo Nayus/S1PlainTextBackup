@@ -10327,3 +10327,13 @@ https://youtu.be/DBeY3qvyo2w?si=xH5oE2xXuer64_bm</blockquote>
 
 推上有说今天比赛后宣布新弓的
 
+
+*****
+
+####  秋月孝三  
+##### 4004#       发表于 2024-4-14 10:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">先看马车。军曹可能要冠了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -834,3 +834,14 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 无脑黑黑销量就可以了，RB体量超绝大部分的JRPG没啥毛病，怪物boss种类OST地图面积魔石多样性哪点体量不是大的。玩支线就会发觉很多人物故事都有补充，无脑黑最喜欢复读的小游戏也有不少故事线，没玩就瞎喷的原批真是搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hentianwuya  
+##### 84#       发表于 2024-4-14 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64590255&amp;ptid=2179698" target="_blank">汪达 发表于 2024-4-14 08:56</a>
+
+还真是</blockquote>
+大清早就开始清日常了是吧，好好的大周末不去玩游戏，是你的梦中情游没有论坛阴阳怪气好玩吗？你继续，我陪你玩。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

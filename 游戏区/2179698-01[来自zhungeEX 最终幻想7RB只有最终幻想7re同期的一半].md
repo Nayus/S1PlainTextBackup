@@ -791,3 +791,23 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 只能求求se以后重置ff6和ff9时候别搞三部曲了，尤其是6<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电磁炮233  
+##### 79#       发表于 2024-4-14 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64591203&amp;ptid=2179698" target="_blank">无辄辄 发表于 2024-4-14 11:13</a>
+只能求求se以后重置ff6和ff9时候别搞三部曲了，尤其是6</blockquote>
+重制6北濑不是说二十年吗，那确实不搞三部曲，至少六部曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  fujin  
+##### 80#       发表于 2024-4-14 11:23
+
+第三部能再腰斩成什么样不敢想。
+

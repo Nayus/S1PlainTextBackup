@@ -8986,3 +8986,13 @@ ZUwrM1V1cUM1ZHNkUi9TZ2M1TlVpUlpEdlhIOVNBY3NYb0cxWDF5TXgrST0.jpg
 
 这个角色朗读剧的点子感觉mujica可以借鉴一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 15617#       发表于 2024-4-14 20:18
+
+<img src="https://p.sda1.dev/16/4fa6a73d154cdc21cbefd2c3aa5770a9/CMP_20240414200857282.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

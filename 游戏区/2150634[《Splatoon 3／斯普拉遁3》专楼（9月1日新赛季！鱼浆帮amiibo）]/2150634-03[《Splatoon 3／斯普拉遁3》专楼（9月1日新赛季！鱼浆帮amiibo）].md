@@ -11115,3 +11115,18 @@ Jackpot赢了也是实至名归，和怪盗比，四个人XP更高，武器池�
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  raii  
+##### 4097#       发表于 2024-4-14 17:04
+
+tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气总有用完的时候
+
+*****
+
+####  Variks  
+##### 4098#       发表于 2024-4-14 17:05
+
+日本LGD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

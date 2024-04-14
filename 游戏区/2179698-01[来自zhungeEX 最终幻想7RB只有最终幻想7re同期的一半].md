@@ -717,3 +717,31 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 你哪看的？野村访谈都说了本来第二部打算叫reunion，但是cc重制用过了就没用 ...</blockquote>
 啊，那是我看太多rumor记串了。
 
+
+*****
+
+####  汪达  
+##### 72#       发表于 2024-4-14 08:56
+
+<img src="https://img.saraba1st.com/forum/202404/14/085242ha5wgn2rwrmwwwdd.png" referrerpolicy="no-referrer">
+
+<strong>screenshot-1713055932285.png</strong> (41.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 08:52 上传
+
+还真是
+
+
+*****
+
+####  rbf1993  
+##### 73#       发表于 2024-4-14 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64581605&amp;ptid=2179698" target="_blank">表演系 发表于 2024-4-13 12:24</a>
+13-2和雷霆归来是类似血与酒 黄金树之影 往日之影一样的dlc，哪怕像血与酒这样做到年度最佳rpg都不可能卖的 ...</blockquote>
+拉倒吧，re+rb加起来都凑不齐一个完整体量rpg还有的剧情体验，rb这剧情体验，开篇无头苍蝇到处乱逛，终局究极谜语人，还完整体量乐在其中呢。
+
+你提到了血与酒，不妨想想血与酒着力的地方在哪里，7rb又差在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

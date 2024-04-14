@@ -1133,3 +1133,13 @@ XB3最后一次公布销量是186万，不知道现在有没有 ...</blockquote>
 
 —— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 112#       发表于 2024-4-14 20:30
+
+第三部指名道姓老艾return啊你们还不买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

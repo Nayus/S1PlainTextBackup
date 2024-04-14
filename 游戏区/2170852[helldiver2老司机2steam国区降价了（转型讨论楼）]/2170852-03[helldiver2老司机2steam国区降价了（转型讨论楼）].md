@@ -146,3 +146,11 @@
 今天遇见好几次倒数没结束只上了一个人 鹈鹕就飞走了 样本全损</blockquote>
 如果鹈鹕被打冒烟了就只接一个人上了就跑，包括己方伤害和敌方伤害
 
+
+*****
+
+####  Aeons  
+##### 2977#       发表于 2024-4-14 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">希望大家都能知道这个事，我昨天捡了全队的样本鬼佬直接上去了我撤离失败
+

@@ -409,3 +409,11 @@
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  彩虹肥宅  
+##### 3004#       发表于 2024-4-14 20:01
+
+暗夜难度第二张地图的野外boss开始抽象了，好多没见过的招数阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

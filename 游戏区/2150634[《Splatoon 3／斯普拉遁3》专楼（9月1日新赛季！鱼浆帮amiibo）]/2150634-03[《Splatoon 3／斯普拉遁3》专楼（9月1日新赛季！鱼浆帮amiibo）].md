@@ -11056,3 +11056,27 @@ Jackpot赢了也是实至名归，和怪盗比，四个人XP更高，武器池�
 
 更气人的还是野上恒居然就来颁个奖就溜了？什么更新都没
 
+
+*****
+
+####  墨染白泉  
+##### 4091#       发表于 2024-4-14 16:45
+
+下赛季该去艾洛眼了，追随第一赛区<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  trhgejk  
+##### 4092#       发表于 2024-4-14 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64593712&amp;ptid=2150634" target="_blank">holoan 发表于 2024-4-14 16:29</a>
+
+刚才选了3号位中炮的视角看，最后统计结果出来涂地点数连1000都没上
+
+问题来了为什么选自己不擅长的武器
+
+ ...</blockquote>
+ 区域，凃地P数少到没什么，香槟区域凃地P数也是不高的
+
+关键是作为队伍后排没压住对位的铅笔狙
+

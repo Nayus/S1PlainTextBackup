@@ -5235,3 +5235,26 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 羽衣你在放水么
 
+
+*****
+
+####  rs5621  
+##### 8644#       发表于 2024-4-14 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用大笑来扰乱对方注意力
+
+*****
+
+####  rs5621  
+##### 8645#       发表于 2024-4-14 21:06
+
+<img src="https://img.saraba1st.com/forum/202404/14/210555ucg9zifz9ebien0f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-14 21:05 上传
+
+没注意就赢了，我也是35？？
+

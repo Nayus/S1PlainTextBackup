@@ -9012,3 +9012,11 @@ ZUwrM1V1cUM1ZHNkUi9TZ2M1TlVpUlpEdlhIOVNBY3NYb0cxWDF5TXgrST0.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這套衣服估計要穿到動畫了吧
 
+
+*****
+
+####  6030sylar  
+##### 15620#       发表于 2024-4-15 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁有说鸡初始服应该是邪教黑袍，现在是castoff……
+

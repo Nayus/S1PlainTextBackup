@@ -467,3 +467,15 @@
 
 这作一周目游玩体验是忍组自仁王以来的历代最佳吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但这么好的游戏体验捏吗剧情就不能长点心？这第二章左右开始的阵营横跳也太出戏了，再加上这个光荣祖传“大家都是好人”的剧情结合你这随便断肢的游戏一起看实在是太蠢了，感觉就你自家战国无双的“大家都是好人”的剧情也比你这浪人崛起行来自: iPhone客户端
 
+
+*****
+
+####  医生狼多  
+##### 3010#       发表于 2024-4-15 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64597536&amp;ptid=2092342" target="_blank">噗呸破屁诚 发表于 2024-4-14 23:09</a>
+这作一周目游玩体验是忍组自仁王以来的历代最佳吧但这么好的游戏体验捏吗剧情就不能长点心？这第二 ...</blockquote>
+龙马:我受够自相残杀了，我们要组织他们!
+主角:嗯
+进副本，一刀一个断肢断头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

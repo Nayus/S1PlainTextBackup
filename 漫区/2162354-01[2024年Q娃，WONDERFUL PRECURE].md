@@ -28,3 +28,14 @@
 
 第 11 集的 TVer 源（含日字）：magnet:?xt=urn:btih:b3777fa44284d7952ac5d671ade46f5b0043adbf
 
+
+*****
+
+####  Piano-Forest  
+##### 1295#       发表于 2024-4-14 08:34
+
+[https://twitter.com/sc_ome/status/1779303650214686873](https://twitter.com/sc_ome/status/1779303650214686873)
+
+謎の人物が出てきましたね…
+<img src="https://p.sda1.dev/16/81f970b700b6d453bacf11fd820c304f/20240414_083402.jpg" referrerpolicy="no-referrer">
+

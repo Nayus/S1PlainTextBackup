@@ -210,3 +210,15 @@ ryosho.jpg
 
 该补唐吉柯德原著了。
 
+
+*****
+
+####  Spik3  
+##### 641#       发表于 2024-4-15 15:26
+
+刷到相关视频于是想入坑尝试一下，目前刚过了序章感觉还不错<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">期待后面的剧情，做了点功课请楼友赐教入坑姿势：
+
+1.目前的选择是带n辛和臼齿奥的自抽号，听说一些人格可以肝出来，那请问有必要再加一百五再多带个五辛和十罗嘛
+
+2.这游戏卡资源吗，开局是不是可以先练一些sr过渡屯到类似限定池的时候再下池补box<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

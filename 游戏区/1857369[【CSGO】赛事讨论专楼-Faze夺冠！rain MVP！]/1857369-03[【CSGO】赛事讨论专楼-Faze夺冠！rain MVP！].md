@@ -614,3 +614,12 @@ mouz稳定尽孝
 
 在已经不抱任何希望的时候见到niko和小孩了，哥们儿这趟成都没白来<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，他们人真好。
 
+
+*****
+
+####  朔方原的星  
+##### 4305#         楼主| 发表于 2024-4-15 15:26
+
+<img src="https://p.sda1.dev/16/5d424281bb77441b1d22cbf0b49e68f8/IMG_CMP_101880260.jpeg" referrerpolicy="no-referrer">
+电子哥加入vp
+

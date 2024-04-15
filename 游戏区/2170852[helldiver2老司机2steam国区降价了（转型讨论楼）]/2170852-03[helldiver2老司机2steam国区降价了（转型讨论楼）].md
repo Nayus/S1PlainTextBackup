@@ -752,3 +752,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  dfbbymice  
+##### 3031#       发表于 2024-4-15 15:26
+
+我来说个爆弹枪的缺点：这玩意有射程，还挺近的。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+我打虫子想打隔了大概有半个地图的孢子菇，打不中的，飞到一半炸了
+
+然后我乖乖换回了我的机炮<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

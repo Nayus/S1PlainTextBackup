@@ -652,3 +652,13 @@ toupai
 一回生两回熟，三回大家都不在意 ...</blockquote>
 虹本来就是主打个人solo，加不加人无所谓，虽然也有些骚动，但主要原因更多是新角色剧情塑造不讨喜导致的，比星一期加人造成的负面影响差远了。
 
+
+*****
+
+####  一个陆仁贾  
+##### 19991#       发表于 2024-4-16 01:22
+
+我水看是药丸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

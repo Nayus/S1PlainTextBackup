@@ -58,3 +58,23 @@ DLC第2弾「断章・柳生秘剣帖」の
 在第2部DLC中，新现界的无主Saber“柳生但马守宗矩”突然出现在宫本伊织与Saber面前。在被仪式的魔力所笼罩的江户，剑豪们在月下集结，新的故事徐徐展开。同时，本DLC将追加新技能与能够解放新魔术的技能树等多种要素。
 <img src="https://p.sda1.dev/16/5a634134beeef5169b29d2928a028528/006Jp6hMgy1hor941b2avj30u016fke6.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1739#       发表于 2024-4-15 12:28
+
+柳生宗矩那麼年青???真的是他嗎?
+
+殺人魔?
+
+會否連到以前的1.5.3 屍山血河?
+
+
+*****
+
+####  抹茶瓜  
+##### 1740#       发表于 2024-4-15 12:30
+
+剑鬼领域大神！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

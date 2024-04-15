@@ -890,3 +890,31 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DawnGuardian  
+##### 3044#       发表于 2024-4-15 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64607742&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-15 18:53</a>
+
+看解包的up说有武器升级系统，不知道真的假的
+
+—— 来自 S1Fun</blockquote>
+应该是废案，短期内基本不用想了，武器升级跟目前这套卖武器变体的氪金模式是冲突的。
+
+
+*****
+
+####  smdzh2  
+##### 3045#       发表于 2024-4-15 19:34
+
+刺刀解放者不会做成超级债券武器吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddwhzh  
+##### 3046#       发表于 2024-4-15 19:37
+
+这游戏社区是我见过挂钩和卡bug跳脸最严重的，放鼠疫或者深岩银河早飞马了，这边还能和正常玩家吵嘴。我寻思现在最高难度通过率都比深岩深潜高多少了怎么还有人在这喊难，不卡bug不开挂过不去。
+

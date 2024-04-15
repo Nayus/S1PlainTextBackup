@@ -461,3 +461,32 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DawnGuardian  
+##### 3003#       发表于 2024-4-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64600280&amp;ptid=2170852" target="_blank"> 丹德里恩 发表于 2024-4-15 09:16</a> 现在机枪哥实在是太可怕了，正面又硬火力又猛，基本全是死它手上，比能被类星体正面干爆的无畏强多了，要一次来几个不扔飞鹰我都不知道该怎么打 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打不过就加入，大盾防卫者你值得拥有来自: iPhone客户端
+
+*****
+
+####  xinfengj  
+##### 3004#       发表于 2024-4-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601329&amp;ptid=2170852" target="_blank">Emmerich 发表于 2024-4-15 10:34</a>
+
+啊我意思其实是不知道当前任务里一共有几个支线...昨天刚入坑来着 局内似乎也没法查看  ...</blockquote>
+看难度，N9五个N7四个N6三个
+
+*****
+
+####  dfbbymice  
+##### 3005#       发表于 2024-4-15 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601329&amp;ptid=2170852" target="_blank">Emmerich 发表于 2024-4-15 10:34</a>
+
+啊我意思其实是不知道当前任务里一共有几个支线...昨天刚入坑来着 局内似乎也没法查看  ...</blockquote>
+不同的难度的支线数量都是固定的，我没记过，只知道难9是5个支线<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，也不用怎么记，没跑过的地方都走一遍基本上能把支线点找完，运气好的有雷达站能直接开全图地标。
+

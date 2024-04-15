@@ -840,3 +840,25 @@
 
 以及这游戏类比暗潮来理解, 正确吗?
 
+
+*****
+
+####  Launce  
+##### 3039#       发表于 2024-4-15 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606614&amp;ptid=2170852" target="_blank">妹控使徒 发表于 2024-4-15 17:09</a>
+
+还没入的问下  这游戏的改枪系统大概是什么级别的变动?  微调下数值还是能大幅改变一些枪的性能/玩法?
+
+以及 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有改枪，就这搞枪数据平衡都出现各种伤害BUG的情况，出了改枪估计更难泵了
+
+
+*****
+
+####  DawnGuardian  
+##### 3040#       发表于 2024-4-15 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606614&amp;ptid=2170852" target="_blank"> 妹控使徒 发表于 2024-4-15 17:09</a> 还没入的问下  这游戏的改枪系统大概是什么级别的变动?  微调下数值还是能大幅改变一些枪的性能/玩法? 以及是否有能看的DMR类武器, 或者更进一步  火力很暴力的拉栓式武器有吗?   以及这游戏类比暗潮来理解, 正确吗? </blockquote>
+步枪dmr目前基本全是下水道，有一两把勉强能玩；很暴力的拉栓大狙倒是有一把，不过手感很沉不好操控来自: iPhone客户端
+

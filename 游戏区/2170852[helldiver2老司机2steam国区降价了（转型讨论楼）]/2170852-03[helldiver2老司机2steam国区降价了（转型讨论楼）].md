@@ -815,3 +815,16 @@
 那群纯良吗，楼里发言没几个，群成员我看都100多了</blockquote>
 我没进，现在qq不咋用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3037#       发表于 2024-4-15 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606185&amp;ptid=2170852" target="_blank">闲的有聊 发表于 2024-4-15 16:36</a>
+
+有没有什么微信qq群，自己单排打到难度8太吃队e了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单排要不难7要不难9，难8不上不下的
+

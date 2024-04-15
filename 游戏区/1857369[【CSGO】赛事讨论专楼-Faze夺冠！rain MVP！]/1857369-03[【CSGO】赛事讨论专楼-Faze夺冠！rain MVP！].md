@@ -623,3 +623,11 @@ mouz稳定尽孝
 <img src="https://p.sda1.dev/16/5d424281bb77441b1d22cbf0b49e68f8/IMG_CMP_101880260.jpeg" referrerpolicy="no-referrer">
 电子哥加入vp
 
+
+*****
+
+####  doublehit  
+##### 4306#       发表于 2024-4-15 17:02
+
+这VP步枪火力理论上快独一档了吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

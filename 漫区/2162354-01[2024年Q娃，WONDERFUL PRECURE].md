@@ -253,3 +253,25 @@
 
 上次看到小狗打熊还是在黄金神威
 
+
+*****
+
+####  pokemon最爱  
+##### 1315#       发表于 2024-4-15 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64600487&amp;ptid=2162354" target="_blank">hisousihou 发表于 2024-4-15 09:31</a>
+
+新Q娃还没看，这一部质量如何</blockquote>
+多好看算不上，但目前为止剧情个人感觉看着挺舒服的，小麦可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lydia5989  
+##### 1316#       发表于 2024-4-15 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64600487&amp;ptid=2162354" target="_blank">hisousihou 发表于 2024-4-15 09:31</a>
+
+新Q娃还没看，这一部质量如何</blockquote>
+这代动物是画的真不错，狗确实很狗，猫也很猫
+

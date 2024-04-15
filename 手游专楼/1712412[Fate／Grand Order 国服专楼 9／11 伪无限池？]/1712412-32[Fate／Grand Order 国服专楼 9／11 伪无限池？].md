@@ -24,3 +24,11 @@
 
 看到枪茨木最优一次UP，就打算丢点呼符进去，谁知道金光奶光出来了，兽尼要还债了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46294#       发表于 2024-4-15 20:13
+
+这就不得不提上次冲浪小莫up想摸一下结果摸出女帝赶紧跑的事情了，后面就对四星UP无感了，RBA池武则天也没捞到等自选
+

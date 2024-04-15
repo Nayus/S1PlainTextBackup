@@ -294,3 +294,11 @@ dcce645b86970f8dbcc46c8f9c4f82d3.png
 
 <img src="https://img.saraba1st.com/forum/202404/14/182318n3s0bk42qiii5360.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShiKi847  
+##### 709#       发表于 2024-4-15 20:15
+
+日亚下单了，ps5买来3年第一款实体游戏就给性刃了，7335
+

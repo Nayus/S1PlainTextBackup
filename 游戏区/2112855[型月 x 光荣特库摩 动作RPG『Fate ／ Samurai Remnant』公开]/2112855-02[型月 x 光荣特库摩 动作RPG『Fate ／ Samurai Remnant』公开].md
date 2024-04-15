@@ -101,3 +101,14 @@ DLC第2弾「断章・柳生秘剣帖」の
 會否連到以前的1.5.3 屍山血河?</blockquote>
 老人肯定都年轻过啊，比较好奇他发现明明自己才死了五年结果儿子也已经死了是什么感觉
 
+
+*****
+
+####  ckseng  
+##### 1743#       发表于 2024-4-15 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64605823&amp;ptid=2112855" target="_blank">暗日生化体 发表于 2024-4-15 16:11</a>
+
+老人肯定都年轻过啊，比较好奇他发现明明自己才死了五年结果儿子也已经死了是什么感觉 ...</blockquote>
+儿子这次可能是boss吧
+

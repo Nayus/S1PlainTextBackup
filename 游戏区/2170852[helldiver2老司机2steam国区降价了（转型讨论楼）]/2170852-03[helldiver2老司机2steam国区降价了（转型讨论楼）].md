@@ -870,3 +870,13 @@
 
 所以这游戏的改枪系统是无望了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bladethunder  
+##### 3042#       发表于 2024-4-15 18:31
+
+反器材步枪的准星是不是有点问题，感觉实际打点比十字线交点偏上
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

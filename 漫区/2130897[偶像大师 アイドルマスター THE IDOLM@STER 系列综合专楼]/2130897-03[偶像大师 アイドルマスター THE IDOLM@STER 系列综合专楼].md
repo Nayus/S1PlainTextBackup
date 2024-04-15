@@ -2682,3 +2682,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 完了，一想到p个偶像要翻来覆去听这个追求真实感的vo我就头痛
 
+
+*****
+
+####  rgauss  
+##### 3221#       发表于 2024-4-15 18:25
+
+来个跳过公演功能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 跟ip一样
+

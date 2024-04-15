@@ -862,3 +862,11 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606614&amp;ptid=2170852" target="_blank"> 妹控使徒 发表于 2024-4-15 17:09</a> 还没入的问下  这游戏的改枪系统大概是什么级别的变动?  微调下数值还是能大幅改变一些枪的性能/玩法? 以及是否有能看的DMR类武器, 或者更进一步  火力很暴力的拉栓式武器有吗?   以及这游戏类比暗潮来理解, 正确吗? </blockquote>
 步枪dmr目前基本全是下水道，有一两把勉强能玩；很暴力的拉栓大狙倒是有一把，不过手感很沉不好操控来自: iPhone客户端
 
+
+*****
+
+####  NeoEvens22  
+##### 3041#       发表于 2024-4-15 18:16
+
+所以这游戏的改枪系统是无望了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

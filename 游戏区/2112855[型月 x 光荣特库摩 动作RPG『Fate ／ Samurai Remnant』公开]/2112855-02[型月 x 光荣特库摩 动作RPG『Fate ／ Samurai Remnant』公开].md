@@ -86,3 +86,18 @@ DLC第2弾「断章・柳生秘剣帖」の
 
 柳生宗矩
 
+
+*****
+
+####  暗日生化体  
+##### 1742#       发表于 2024-4-15 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602860&amp;ptid=2112855" target="_blank">eilot 发表于 2024-4-15 12:28</a>
+
+柳生宗矩那麼年青???真的是他嗎?
+
+殺人魔?
+
+會否連到以前的1.5.3 屍山血河?</blockquote>
+老人肯定都年轻过啊，比较好奇他发现明明自己才死了五年结果儿子也已经死了是什么感觉
+

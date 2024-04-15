@@ -490,3 +490,24 @@
 啊我意思其实是不知道当前任务里一共有几个支线...昨天刚入坑来着 局内似乎也没法查看  ...</blockquote>
 不同的难度的支线数量都是固定的，我没记过，只知道难9是5个支线<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，也不用怎么记，没跑过的地方都走一遍基本上能把支线点找完，运气好的有雷达站能直接开全图地标。
 
+
+*****
+
+####  Emmerich  
+##### 3006#       发表于 2024-4-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601540&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-4-15 10:49</a>
+
+不同的难度的支线数量都是固定的，我没记过，只知道难9是5个支线，也不用怎么记，没跑过的地方都 ...</blockquote>
+原来如此 多谢<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Emmerich  
+##### 3007#       发表于 2024-4-15 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601537&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-15 10:48</a>
+
+看难度，N9五个N7四个N6三个</blockquote>
+感谢
+

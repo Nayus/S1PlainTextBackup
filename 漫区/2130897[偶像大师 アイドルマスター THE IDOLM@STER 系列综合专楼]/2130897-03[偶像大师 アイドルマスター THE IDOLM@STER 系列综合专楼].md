@@ -2666,3 +2666,11 @@ IMG_3273.jpeg
 
 最后一个未披露怎么功夫都用出来了？你不会真是华子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰寒之月  
+##### 3219#       发表于 2024-4-15 16:35
+
+level1培养出来的居然能唱的那么烂 只能说声优真有点技术
+

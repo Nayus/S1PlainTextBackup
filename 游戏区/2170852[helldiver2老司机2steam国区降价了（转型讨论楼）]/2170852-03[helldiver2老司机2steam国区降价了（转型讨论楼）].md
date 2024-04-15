@@ -772,3 +772,35 @@
 
 双人武器应该重做，至少改成装填手不用背背包，直接从射手背上装填，目前这个双人合体开火实在太鸡肋了
 
+
+*****
+
+####  闲的有聊  
+##### 3033#       发表于 2024-4-15 16:36
+
+有没有什么微信qq群，自己单排打到难度8太吃队e了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  kalavinka  
+##### 3034#         楼主| 发表于 2024-4-15 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606185&amp;ptid=2170852" target="_blank">闲的有聊 发表于 2024-4-15 16:36</a>
+
+有没有什么微信qq群，自己单排打到难度8太吃队e了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+主楼有坛友建的群
+
+*****
+
+####  Launce  
+##### 3035#       发表于 2024-4-15 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606235&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-15 16:40</a>
+
+主楼有坛友建的群</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那群纯良吗，楼里发言没几个，群成员我看都100多了
+

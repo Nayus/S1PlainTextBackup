@@ -511,3 +511,13 @@
 看难度，N9五个N7四个N6三个</blockquote>
 感谢
 
+
+*****
+
+####  大肥鸽子  
+##### 3008#       发表于 2024-4-15 11:42
+
+野队感觉纯看队友心情，碰到自己捡掉落样本，队友直接撤离就很难受<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

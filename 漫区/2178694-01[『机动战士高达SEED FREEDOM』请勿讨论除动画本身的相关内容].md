@@ -3899,3 +3899,13 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 <img src="https://p.sda1.dev/16/b00395bf1dc9f6da5bd2924b39e395c8/20240415_111527.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/7c85ccf75fc0aca7a2e88a4ae77216ce/20240415_111523.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  库瓦特罗.巴吉纳  
+##### 351#       发表于 2024-4-15 11:36
+
+ 本帖最后由 库瓦特罗.巴吉纳 于 2024-4-15 11:38 编辑 
+
+从机体到人物都在迫害阿斯兰
+

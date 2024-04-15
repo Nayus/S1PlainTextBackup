@@ -918,3 +918,21 @@
 
 这游戏社区是我见过挂钩和卡bug跳脸最严重的，放鼠疫或者深岩银河早飞马了，这边还能和正常玩家吵嘴。我寻思现在最高难度通过率都比深岩深潜高多少了怎么还有人在这喊难，不卡bug不开挂过不去。
 
+
+*****
+
+####  ddwhzh  
+##### 3047#       发表于 2024-4-15 19:41
+
+我记得刚开服打个三级纵步者都汗流浃背，打个强袭虫绕了10分钟，现在只要掏49肝一个小时，买了晕雷，爆裂铳，火喷，乱杀各种精英，怎么还有人活在过去版本。
+
+
+*****
+
+####  nagamasa  
+##### 3048#       发表于 2024-4-15 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606254&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-15 16:41</a>
+那群纯良吗，楼里发言没几个，群成员我看都100多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经基本变成nga群了，经常99+
+

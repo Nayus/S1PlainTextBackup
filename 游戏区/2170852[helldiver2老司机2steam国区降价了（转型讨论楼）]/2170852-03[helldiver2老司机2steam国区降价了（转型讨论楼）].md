@@ -1077,3 +1077,16 @@
 
 团队合作的话机枪架还是挺舒服的，就是一把可能没太多机会用。
 
+
+*****
+
+####  xinfengj  
+##### 3063#       发表于 2024-4-16 06:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64607510&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-4-15 18:31</a>
+
+反器材步枪的准星是不是有点问题，感觉实际打点比十字线交点偏上
+
+—— 来自 HUAWEI NOH-AN00, Android 12 ...</blockquote>
+要按距离长按r选对应码表才能打准
+

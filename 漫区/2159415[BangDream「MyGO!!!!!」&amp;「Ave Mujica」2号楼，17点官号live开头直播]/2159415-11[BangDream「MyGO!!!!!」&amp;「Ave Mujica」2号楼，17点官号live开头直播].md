@@ -9020,3 +9020,13 @@ ZUwrM1V1cUM1ZHNkUi9TZ2M1TlVpUlpEdlhIOVNBY3NYb0cxWDF5TXgrST0.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁有说鸡初始服应该是邪教黑袍，现在是castoff……
 
+
+*****
+
+####  6030sylar  
+##### 15621#       发表于 2024-4-15 11:45
+
+<img src="https://p.sda1.dev/16/504ed0827e0a52b481a6272af2017c58/CMP_20240415114443640.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

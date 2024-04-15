@@ -944,3 +944,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比深岩银河不打mod高那不是深岩银河玩家太菜吗
 
+
+*****
+
+####  FLZB  
+##### 3050#       发表于 2024-4-15 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608249&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-15 19:37</a>
+
+这游戏社区是我见过挂钩和卡bug跳脸最严重的，放鼠疫或者深岩银河早飞马了，这边还能和正常玩家吵嘴。我寻 ...</blockquote>
+卡bug是有，挂逼真不多吧，至少我180小时了还没见过，鼠疫和DRG碰不了
+

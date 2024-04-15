@@ -1005,3 +1005,14 @@
 —— 来自 Xiaomi 23117RK66C, Androi ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达那一项？很正常，我也是
 
+
+*****
+
+####  Kojimaru  
+##### 3055#       发表于 2024-4-15 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608364&amp;ptid=2170852" target="_blank">nagamasa 发表于 2024-4-15 19:46</a>
+
+已经基本变成nga群了，经常99+</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/256.png" referrerpolicy="no-referrer">入侵？
+

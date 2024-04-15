@@ -603,3 +603,14 @@
 
 —— 来自 samsung SM-T735C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  碎镜子  
+##### 3023#       发表于 2024-4-15 12:00
+
+昨天仁王流皆传试了一下里脊，真tm难按啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">感觉就算整个精英手柄也不会好按到那去
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

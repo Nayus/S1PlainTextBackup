@@ -3909,3 +3909,13 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 从机体到人物都在迫害阿斯兰
 
+
+*****
+
+####  shiko  
+##### 352#       发表于 2024-4-15 11:57
+
+ms这图谁画的，命运还行但是两个自由的头都好微妙<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

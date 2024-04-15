@@ -9114,3 +9114,27 @@ https://x.com/nunnun_0410/status/1779778575769669665<img src="https://p.sda1.dev
 
 只属于CCC的春日影
 
+
+*****
+
+####  基神的强袭自由  
+##### 15630#       发表于 2024-4-16 01:27
+
+ 本帖最后由 基神的强袭自由 于 2024-4-16 01:29 编辑 
+
+[寻找未知之泪的旅程- 水晶洞穴](https://video.weibo.com/show?fid=1034:5023583098044457)
+
+The Quest of the Unknown Tear - Crystal Caves
+
+标题出自霍华德·菲利普·洛夫克拉夫特的小说The Dream-Quest of Unknown Kadath/梦寻密境卡达斯
+
+（出处：英雄无敌六）
+
+*****
+
+####  skives  
+##### 15631#       发表于 2024-4-16 01:27
+
+成为人类歌也出了
+祥子的编曲好激昂
+

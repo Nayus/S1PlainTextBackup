@@ -880,3 +880,13 @@
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  风萧飒  
+##### 3043#       发表于 2024-4-15 18:53
+
+看解包的up说有武器升级系统，不知道真的假的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

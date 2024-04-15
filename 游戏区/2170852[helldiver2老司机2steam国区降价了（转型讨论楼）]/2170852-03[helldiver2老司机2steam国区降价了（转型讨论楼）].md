@@ -742,3 +742,13 @@
 现在机枪哥实在是太可怕了，正面又硬火力又猛，基本全是死它手上，比能被类星体正面干爆的无畏强多 ...</blockquote>
 我已经弃疗上无后坐步枪了，反正除了装弹慢弹药少以外什么都能打<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  daikejay  
+##### 3030#       发表于 2024-4-15 15:07
+
+爆弹枪习惯了瞄准速度还是挺好用的，特别是现在满地的毒爆虫，带爆弹枪处理中型虫群和追猎都很好用，而且清理虫巢效率极高，能改掉近身黑洞就很完美了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

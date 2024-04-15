@@ -354,3 +354,13 @@
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  dfbbymice  
+##### 2992#       发表于 2024-4-15 08:00
+
+昨晚上惯例难9机器人禁一个战备，碰到三炮艇工厂其中两个是双子塔，清完俩双子塔和主任务后我们打算去清角落上的最后一个。周边是小山体地形，进去之后就发现我们被巡逻队给包围了，密度之大拐个弯就是一队，开一枪直接就是两队过来视察然后立马触发警报，空中还不停刷炮艇。全队人硬刚都没法靠近工厂，最后大概10条命全交代在里面了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

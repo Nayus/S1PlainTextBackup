@@ -5334,3 +5334,11 @@ nyahelloworld实属最难曲，生歌到现在都没练起来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xjhx这歌的语速太快了，樱脑过载
 
+
+*****
+
+####  holoan  
+##### 8652#         楼主| 发表于 2024-4-15 23:49
+
+今天又收录的新曲，感觉还能发好几个月的
+

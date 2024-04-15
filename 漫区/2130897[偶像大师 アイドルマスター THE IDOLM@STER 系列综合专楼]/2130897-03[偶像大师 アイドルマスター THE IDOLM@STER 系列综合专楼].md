@@ -2658,3 +2658,11 @@ IMG_3273.jpeg
 
 话说SC去年也没出几首新BGM，感觉ost2也该出了
 
+
+*****
+
+####  cckuku  
+##### 3218#       发表于 2024-4-15 16:29
+
+最后一个未披露怎么功夫都用出来了？你不会真是华子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

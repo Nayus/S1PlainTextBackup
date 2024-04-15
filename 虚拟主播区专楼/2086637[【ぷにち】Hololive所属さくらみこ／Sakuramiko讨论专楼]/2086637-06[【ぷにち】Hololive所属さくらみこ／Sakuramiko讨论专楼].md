@@ -5326,3 +5326,11 @@ kanata今天本来跟skmt联动MH而且取消了所以应该也不是
 
 nyahelloworld实属最难曲，生歌到现在都没练起来
 
+
+*****
+
+####  rs5621  
+##### 8651#       发表于 2024-4-15 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xjhx这歌的语速太快了，樱脑过载
+

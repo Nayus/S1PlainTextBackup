@@ -983,3 +983,25 @@
 
 2024-4-15 22:02 上传
 
+
+*****
+
+####  azraelwang  
+##### 3053#       发表于 2024-4-15 23:24
+
+想问下舰船战备里最后8个买满了为啥还是显示7/8，这个是不是又bug了
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  丹德里恩  
+##### 3054#       发表于 2024-4-15 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64610582&amp;ptid=2170852" target="_blank">azraelwang 发表于 2024-4-15 23:24</a>
+
+想问下舰船战备里最后8个买满了为啥还是显示7/8，这个是不是又bug了
+
+—— 来自 Xiaomi 23117RK66C, Androi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达那一项？很正常，我也是
+

@@ -34,3 +34,13 @@
 
 意思是手冢p不仅毁原作现在还毁监督<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suke  
+##### 78#       发表于 2024-4-15 18:46
+
+你这么说也没问题，不过我指的是高桥爷爷是虫P出来人。
+
+因为有手冢这老招牌，在一些由电视台杂志社主导的企划里，经常能拿到些好白菜给自己拱
+

@@ -9146,3 +9146,15 @@ The Quest of the Unknown Tear - Crystal Caves
 
 完整的c团春日影也太赞了吧!
 
+
+*****
+
+####  remedios010000  
+##### 15633#       发表于 2024-4-16 02:22
+
+ 本帖最后由 remedios010000 于 2024-4-16 02:26 编辑 
+
+C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比猫猫早很多……这么搞总有一种爷爷像孙子的错位感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然作曲可能是实在懒得再做一版符合祥子音乐审美的间奏了，反正MyGo已经完结了，这下想听祥子的原曲只能靠脑补了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

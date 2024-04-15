@@ -233,3 +233,20 @@ ryosho.jpg
 所有人格都可以肝出来，所以其实我觉得还不如自己刷个初始……
 当然图省事的话自抽号也行，不过要买号的话最好还是选有上赛季强卡的号，比如船长以实玛利和剑契默尔索，这些卡目前没法肝出来，要等到下个赛季才能换
 
+
+*****
+
+####  Yuzutea  
+##### 643#       发表于 2024-4-15 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64605186&amp;ptid=2120922" target="_blank">Spik3 发表于 2024-4-15 15:26</a>
+
+刷到相关视频于是想入坑尝试一下，目前刚过了序章感觉还不错期待后面的剧情，做了点功课请楼友赐教 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要买初始号买最便宜的就行
+
+N辛现在都能换了买带这个的干嘛，而且现在也不强
+
+你后面说的五辛和十罗也全是常驻池子的，玩几天就能直接换的
+
+这游戏卡除了魔夜池子都是充个通行证靠肝就行，魔夜你不是要抽播音员成本也低得很
+

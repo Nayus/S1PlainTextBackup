@@ -542,3 +542,15 @@
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  大肥鸽子  
+##### 3011#       发表于 2024-4-15 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602632&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-4-15 12:08</a>
+反器材狙趴着打狙一枪蹂躏者两枪巨型者挺好玩的，但为了拆据点拆双足拆炮塔还是得带机炮，顺便狙的子弹也太 ...</blockquote>
+更像低配主宰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

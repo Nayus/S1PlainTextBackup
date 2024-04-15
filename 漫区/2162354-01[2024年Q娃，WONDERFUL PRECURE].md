@@ -306,3 +306,15 @@
 但如果是知道真相后，想要吸猫的时候反而束手束脚会不会更有滋味呢？ ...</blockquote>
 谁吸谁还不一定呢
 
+
+*****
+
+####  hummysiren  
+##### 1320#       发表于 2024-4-15 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64605078&amp;ptid=2162354" target="_blank">noneoneone 发表于 2024-4-15 15:19</a>
+吸人间体固然有意思。
+
+但如果是知道真相后，想要吸猫的时候反而束手束脚会不会更有滋味呢？ ...</blockquote>
+我也是想到差不多，还妄想yuki看到mayu畏畏缩缩不敢吸直接变成人形吸过去<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -222,3 +222,14 @@ ryosho.jpg
 
 2.这游戏卡资源吗，开局是不是可以先练一些sr过渡屯到类似限定池的时候再下池补box<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰原狼  
+##### 642#       发表于 2024-4-15 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64605186&amp;ptid=2120922" target="_blank">Spik3 发表于 2024-4-15 15:26</a>
+刷到相关视频于是想入坑尝试一下，目前刚过了序章感觉还不错期待后面的剧情，做了点功课请楼友赐教 ...</blockquote>
+所有人格都可以肝出来，所以其实我觉得还不如自己刷个初始……
+当然图省事的话自抽号也行，不过要买号的话最好还是选有上赛季强卡的号，比如船长以实玛利和剑契默尔索，这些卡目前没法肝出来，要等到下个赛季才能换
+

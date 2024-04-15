@@ -588,3 +588,18 @@
 
 —— 来自 samsung SM-T735C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鹿叔叔  
+##### 3022#       发表于 2024-4-15 10:35
+
+我理解主角是跟着龙马左右横跳
+但是能不能别处理的这么谐
+毕竟你龙马横跳，砍人可都是我上
+幕末这帮人也是没出息
+一秒前：你竟是这种人，竟还有脸过来，有屁快放<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+一秒后：巧克力真香，我刀送你了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-T735C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

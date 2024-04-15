@@ -574,3 +574,17 @@
 
 每个人物开口说话都是满满的日式模板味道。。。
 
+
+*****
+
+####  鹿叔叔  
+##### 3021#       发表于 2024-4-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64598257&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-4-15 00:24</a>
+维新派吃喝嫖赌但激情昂扬，佐幕派独断专行但大义凛然，说洋大人是反派吧，结果还有精日
+
+最后只有玩家自己 ...</blockquote>
+将军也嫖也赌，果然是最大的倒幕派
+
+—— 来自 samsung SM-T735C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

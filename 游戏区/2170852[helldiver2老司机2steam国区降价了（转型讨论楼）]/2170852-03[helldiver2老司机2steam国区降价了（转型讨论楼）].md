@@ -936,3 +936,11 @@
 那群纯良吗，楼里发言没几个，群成员我看都100多了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经基本变成nga群了，经常99+
 
+
+*****
+
+####  白昼梦  
+##### 3049#       发表于 2024-4-15 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比深岩银河不打mod高那不是深岩银河玩家太菜吗
+

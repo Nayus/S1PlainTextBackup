@@ -302,3 +302,14 @@ dcce645b86970f8dbcc46c8f9c4f82d3.png
 
 日亚下单了，ps5买来3年第一款实体游戏就给性刃了，7335
 
+
+*****
+
+####  恋妖壶  
+##### 710#       发表于 2024-4-15 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608707&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-15 20:15</a>
+
+日亚下单了，ps5买来3年第一款实体游戏就给性刃了，7335</blockquote>
+日版实体是便宜，但是要等啊，真心不相等
+

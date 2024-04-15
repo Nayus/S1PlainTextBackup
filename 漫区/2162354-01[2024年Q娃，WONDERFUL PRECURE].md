@@ -283,3 +283,13 @@
 
 小雪这人间体还真要高呼一句wonderful了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 1318#       发表于 2024-4-15 15:19
+
+吸人间体固然有意思。
+
+但如果是知道真相后，想要吸猫的时候反而束手束脚会不会更有滋味呢？
+

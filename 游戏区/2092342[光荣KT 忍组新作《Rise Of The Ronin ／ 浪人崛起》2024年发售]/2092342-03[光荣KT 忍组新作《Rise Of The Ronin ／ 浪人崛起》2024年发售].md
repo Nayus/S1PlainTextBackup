@@ -566,3 +566,11 @@
 
 无外流武技这个烈风取消窗口我服了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 3020#       发表于 2024-4-15 08:59
+
+每个人物开口说话都是满满的日式模板味道。。。
+

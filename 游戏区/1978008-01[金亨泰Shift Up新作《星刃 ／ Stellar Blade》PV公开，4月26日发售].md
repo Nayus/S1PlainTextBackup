@@ -321,3 +321,21 @@ dcce645b86970f8dbcc46c8f9c4f82d3.png
 
 偏个题，如果这个游戏出来之后，总体得到合格～良好以上的总体评价，那么我对黑神话的信心会有极大提升。这个想法有点跳跃，主要是觉得可以侧证业界动作游戏公式是真的研究出来了，非知名动作游戏厂下限整体在提升
 
+
+*****
+
+####  ky7913  
+##### 712#       发表于 2024-4-16 07:20
+
+横尾金亨泰采访
+[https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim](https://www.ign.com/articles/stellar-blade-x-nier-automata-taro-yoko-hyung-tae-kim)
+
+yoko-taro-1-1712791958418.jpg
+(27.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 07:19 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/071942pn6nkrkussnb6bu6.jpg" referrerpolicy="no-referrer">
+

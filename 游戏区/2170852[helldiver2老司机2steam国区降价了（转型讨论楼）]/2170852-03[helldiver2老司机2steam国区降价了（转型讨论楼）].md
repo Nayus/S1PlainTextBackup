@@ -699,3 +699,16 @@
 啊我意思其实是不知道当前任务里一共有几个支线...昨天刚入坑来着 局内似乎也没法查看  ...</blockquote>
 如果你想知道支线的具体位置，可以在小地图上标记没去过的地方，如果标记到了支线就会变成四角图标，不需要你提前发现支线，一般这个技巧用来找隐型虫虫巢
 
+
+*****
+
+####  NeoEvens22  
+##### 3026#       发表于 2024-4-15 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64603233&amp;ptid=2170852" target="_blank">looptube 发表于 2024-4-15 12:57</a>
+
+现在版本做雷达站支线调雷达角度时，是不是没有声音提示了
+
+—— 来自 OnePlus GM1910, Android 12上的 S1N ...</blockquote>
+有吧？我记得声音是从终端发出的，是不是雷达塔离终端太远了？
+

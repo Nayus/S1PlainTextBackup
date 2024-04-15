@@ -380,3 +380,35 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在机枪哥实在是太可怕了，正面又硬火力又猛，基本全是死它手上，比能被类星体正面干爆的无畏强多了，要一次来几个不扔飞鹰我都不知道该怎么打
 
+
+*****
+
+####  风萧飒  
+##### 2995#       发表于 2024-4-15 09:56
+
+【【地狱潜兵2】新战备解包飞鹰空空导弹VS所有敌人伤害测试-哔哩哔哩】 https://b23.tv/qiX0rUJ
+飞鹰空对空的最新解包测试，这精准度真是离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinfengj  
+##### 2996#       发表于 2024-4-15 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64597107&amp;ptid=2170852" target="_blank">normalli 发表于 2024-4-14 22:34</a>
+
+个人任务让用反器材，我发现这东西不是挺好用的嘛，各种蹂躏者打准了一枪一个 ...</blockquote>
+一个补丁加了30%伤害，能不好用么
+
+
+*****
+
+####  xinfengj  
+##### 2997#       发表于 2024-4-15 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64599969&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-15 08:43</a>
+
+榴弹杀牛到底是怎么操作的，有时候两下就把牛屁股炸了，有时候要炸半天，是不是不能炸牛的屁股上半有甲的部 ...</blockquote>
+用牛腿的脱甲bug贴地炸牛脚，修了几次之后炸起来不稳定，索性多带个eat了
+

@@ -3889,3 +3889,13 @@ BD特典直接装个MR进去吧   反正机战30也放了MR</blockquote>
 
 没想到特典这么厉害的情况下没有过亿，不过看来45应该是没问题了
 
+
+*****
+
+####  Piano-Forest  
+##### 350#         楼主| 发表于 2024-4-15 11:19
+
+种系列角色/机体(MS・MA)人气投票各前三名新图
+<img src="https://p.sda1.dev/16/b00395bf1dc9f6da5bd2924b39e395c8/20240415_111527.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/7c85ccf75fc0aca7a2e88a4ae77216ce/20240415_111523.jpg" referrerpolicy="no-referrer">
+

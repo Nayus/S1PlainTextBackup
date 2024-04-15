@@ -3919,3 +3919,11 @@ ms这图谁画的，命运还行但是两个自由的头都好微妙<img src="ht
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  死难者23er  
+##### 353#       发表于 2024-4-15 12:35
+
+看福田现在在推特上跪舔卡嘉莉，还有A C党真是太有意思了
+

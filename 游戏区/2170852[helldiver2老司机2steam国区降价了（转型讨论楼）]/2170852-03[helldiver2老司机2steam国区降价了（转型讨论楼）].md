@@ -564,3 +564,14 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 3013#       发表于 2024-4-15 12:40
+
+爆炸狙我用着挺爽的，机器人那边蛋盾+类星体，虫子狗+类星体这样配
+近身战最大的阻碍是这个脑残黑洞弹，如果能修好近身没什么大问题。近距离开一枪无论击飞到哪里都算是扯距离了，偏偏是吸过去给电锯哥开席<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

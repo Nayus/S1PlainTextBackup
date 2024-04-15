@@ -1406,3 +1406,17 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 4月下旬才來魔夜(就當草到30日)，不知道還有2星期是否甚麼都沒表示，狩獵本和禮裝本都沒有 ...</blockquote>
 标准长草啊，一个月长草都有，半个月算什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12118#       发表于 2024-4-15 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602432&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-15 11:51</a>
+
+标准长草啊，一个月长草都有，半个月算什么事</blockquote>
+今年難得終於見到活動完了後能即刻就來新的活動
+
+所以營運今年真是有員工在公司開工
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

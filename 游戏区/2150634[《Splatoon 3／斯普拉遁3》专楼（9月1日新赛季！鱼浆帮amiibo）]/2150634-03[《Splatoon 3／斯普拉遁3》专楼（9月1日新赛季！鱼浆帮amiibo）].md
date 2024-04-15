@@ -11305,3 +11305,13 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
 我怎么记得下水道之前改过了</blockquote>
 只改了涂地的图
 
+
+*****
+
+####  秋月孝三  
+##### 4117#       发表于 2024-4-15 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">タラポ呢......？
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

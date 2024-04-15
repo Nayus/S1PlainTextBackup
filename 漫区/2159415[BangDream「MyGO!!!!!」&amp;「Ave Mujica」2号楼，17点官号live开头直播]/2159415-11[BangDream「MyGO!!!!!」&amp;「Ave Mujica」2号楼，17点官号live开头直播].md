@@ -9158,3 +9158,11 @@ C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比
 
 当然作曲可能是实在懒得再做一版符合祥子音乐审美的间奏了，反正MyGo已经完结了，这下想听祥子的原曲只能靠脑补了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15634#       发表于 2024-4-16 05:34
+
+c团春日影<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

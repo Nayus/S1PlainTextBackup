@@ -804,3 +804,14 @@
 主楼有坛友建的群</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那群纯良吗，楼里发言没几个，群成员我看都100多了
 
+
+*****
+
+####  kalavinka  
+##### 3036#         楼主| 发表于 2024-4-15 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64606254&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-15 16:41</a>
+
+那群纯良吗，楼里发言没几个，群成员我看都100多了</blockquote>
+我没进，现在qq不咋用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

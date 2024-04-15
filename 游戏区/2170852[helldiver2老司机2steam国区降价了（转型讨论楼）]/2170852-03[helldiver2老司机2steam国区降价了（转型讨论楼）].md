@@ -532,3 +532,13 @@
 打不过就加入，大盾防卫者你值得拥有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我还不如多带点摔炮，把支援一个人全毛了
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3010#       发表于 2024-4-15 12:08
+
+反器材狙趴着打狙一枪蹂躏者两枪巨型者挺好玩的，但为了拆据点拆双足拆炮塔还是得带机炮，顺便狙的子弹也太少了，打不准纯粹是低配子弹还少的机炮<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

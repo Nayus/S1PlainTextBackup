@@ -412,3 +412,21 @@
 榴弹杀牛到底是怎么操作的，有时候两下就把牛屁股炸了，有时候要炸半天，是不是不能炸牛的屁股上半有甲的部 ...</blockquote>
 用牛腿的脱甲bug贴地炸牛脚，修了几次之后炸起来不稳定，索性多带个eat了
 
+
+*****
+
+####  Emmerich  
+##### 2998#       发表于 2024-4-15 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请教一下怎么判断当前任务里的蓝色支线是否已经被清完了 昨天被人骂了5555
+
+*****
+
+####  dfbbymice  
+##### 2999#       发表于 2024-4-15 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64600884&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-15 10:00</a>
+
+用牛腿的脱甲bug贴地炸牛脚，修了几次之后炸起来不稳定，索性多带个eat了 ...</blockquote>
+确实，我现在机炮都带个eat打牛牛，直接正面一发比用机炮绕后打屁股容易多了，还能补机炮打不了泰坦的短板
+

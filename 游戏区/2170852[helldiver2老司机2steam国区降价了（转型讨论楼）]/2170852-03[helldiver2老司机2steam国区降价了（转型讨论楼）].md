@@ -430,3 +430,34 @@
 用牛腿的脱甲bug贴地炸牛脚，修了几次之后炸起来不稳定，索性多带个eat了 ...</blockquote>
 确实，我现在机炮都带个eat打牛牛，直接正面一发比用机炮绕后打屁股容易多了，还能补机炮打不了泰坦的短板
 
+
+*****
+
+####  dfbbymice  
+##### 3000#       发表于 2024-4-15 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601067&amp;ptid=2170852" target="_blank">Emmerich 发表于 2024-4-15 10:15</a>
+
+请教一下怎么判断当前任务里的蓝色支线是否已经被清完了 昨天被人骂了5555 ...</blockquote>
+地图上已做完或者尚未满足开启条件的任务会以灰色图标显示，要是队友都熟悉的就说你去看看还有没有漏掉的样本就是了，要是野队的话就没办法了，我以前混野就是离个队去拿武器，稍微走了点距离就被房主远距离击杀踢出游戏一套无情操作，只是骂骂真不严重。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Emmerich  
+##### 3001#       发表于 2024-4-15 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601293&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-4-15 10:32</a>
+
+地图上已做完或者尚未满足开启条件的任务会以灰色图标显示，要是队友都熟悉的就说你去看看还有没有漏掉的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">啊我意思其实是不知道当前任务里一共有几个支线...昨天刚入坑来着 局内似乎也没法查看 
+
+*****
+
+####  风萧飒  
+##### 3002#       发表于 2024-4-15 10:35
+
+我最近n9野队倒基本是大伙各打各的，机器人稍微抱团一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

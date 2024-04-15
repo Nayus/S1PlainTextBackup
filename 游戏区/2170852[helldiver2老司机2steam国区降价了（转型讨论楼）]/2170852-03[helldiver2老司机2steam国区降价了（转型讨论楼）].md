@@ -575,3 +575,24 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  变老的大二  
+##### 3014#       发表于 2024-4-15 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602894&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-4-15 12:30</a>
+
+昨天刚解锁主宰完全用不习惯，弹道回正慢子弹还少
+
+论坛助手,iPhone</blockquote>
+主宰打机器人，实际体验是把一枪一个的狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 3015#       发表于 2024-4-15 12:52
+
+狙打机器人的优势基本上是能多个背包位
+

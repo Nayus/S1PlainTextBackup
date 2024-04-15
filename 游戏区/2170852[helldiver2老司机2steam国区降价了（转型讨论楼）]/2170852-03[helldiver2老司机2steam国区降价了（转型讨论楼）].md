@@ -712,3 +712,14 @@
 —— 来自 OnePlus GM1910, Android 12上的 S1N ...</blockquote>
 有吧？我记得声音是从终端发出的，是不是雷达塔离终端太远了？
 
+
+*****
+
+####  Emmerich  
+##### 3027#       发表于 2024-4-15 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64603996&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-15 13:59</a>
+
+如果你想知道支线的具体位置，可以在小地图上标记没去过的地方，如果标记到了支线就会变成四角图标，不需 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还能有这么牛的里技
+

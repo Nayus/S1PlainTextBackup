@@ -1420,3 +1420,16 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 所以營運今年真是有員工在公司開工
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12119#       发表于 2024-4-15 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64579808&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-13 08:34</a>
+
+联动前想紧急补课的问一下，魔夜很长吗？总共大约多少小时</blockquote>
+带外传（那堆.5什么的）全看在15小时左右
+
+只过主线大概10小时多一点，这是正常人阅读速度的情况
+

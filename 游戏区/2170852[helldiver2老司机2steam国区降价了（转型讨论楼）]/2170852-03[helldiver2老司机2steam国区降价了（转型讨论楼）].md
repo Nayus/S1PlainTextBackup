@@ -627,3 +627,35 @@
 
 头盔护甲实装有那么难吗好奇，这么久了
 
+
+*****
+
+####  wthall  
+##### 3019#       发表于 2024-4-15 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了，我昨天想着刷点超级货币，然后发现断网重摸的时候不加了，朋友有的可以有的不行。
+
+不知道到底封了没
+
+*****
+
+####  Mr.Hopp  
+##### 3020#       发表于 2024-4-15 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64603312&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-15 13:03</a>
+
+头盔护甲实装有那么难吗好奇，这么久了</blockquote>
+他更新个补丁都会把爆炸的代码写反，你觉得呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3021#       发表于 2024-4-15 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64603465&amp;ptid=2170852" target="_blank">wthall 发表于 2024-4-15 13:14</a>
+对了，我昨天想着刷点超级货币，然后发现断网重摸的时候不加了，朋友有的可以有的不行。
+
+不知道到 ...</blockquote>
+说是一张图最多刷三次。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的图沦陷了最近没打过。
+

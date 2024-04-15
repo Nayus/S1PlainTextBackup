@@ -764,3 +764,11 @@
 
 然后我乖乖换回了我的机炮<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 3032#       发表于 2024-4-15 15:57
+
+双人武器应该重做，至少改成装填手不用背背包，直接从射手背上装填，目前这个双人合体开火实在太鸡肋了
+

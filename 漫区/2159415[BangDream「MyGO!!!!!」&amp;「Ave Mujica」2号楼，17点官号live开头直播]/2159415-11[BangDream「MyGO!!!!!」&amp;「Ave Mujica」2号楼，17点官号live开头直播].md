@@ -9166,3 +9166,13 @@ C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比
 
 c团春日影<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skill  
+##### 15635#       发表于 2024-4-16 07:36
+
+所以c团春日影和声换成大祥老师和木头人了么？我有点听不出来
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

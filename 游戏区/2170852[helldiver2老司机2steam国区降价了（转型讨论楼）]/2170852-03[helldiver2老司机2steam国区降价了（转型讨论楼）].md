@@ -723,3 +723,22 @@
 如果你想知道支线的具体位置，可以在小地图上标记没去过的地方，如果标记到了支线就会变成四角图标，不需 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还能有这么牛的里技
 
+
+*****
+
+####  6x6z6w  
+##### 3028#       发表于 2024-4-15 14:47
+
+在Menkent打N7，到了第三个任务结果队友集体掉线，留我一个人被机器人轮翻<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">原来是防守进度到100%了
+
+
+*****
+
+####  6x6z6w  
+##### 3029#       发表于 2024-4-15 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64600280&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-4-15 09:16</a>
+
+现在机枪哥实在是太可怕了，正面又硬火力又猛，基本全是死它手上，比能被类星体正面干爆的无畏强多 ...</blockquote>
+我已经弃疗上无后坐步枪了，反正除了装弹慢弹药少以外什么都能打<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

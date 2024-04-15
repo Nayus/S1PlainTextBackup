@@ -11315,3 +11315,11 @@ tukuyomi他们从甲子园一路杀出来也是靠点好运气的，可惜运气
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ryuuseigun  
+##### 4118#       发表于 2024-4-15 13:01
+
+不要带走下水道<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">下水道的蛤蜊是我最喜欢玩也最熟练的一张图了……
+

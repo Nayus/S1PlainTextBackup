@@ -596,3 +596,34 @@
 
 狙打机器人的优势基本上是能多个背包位
 
+
+*****
+
+####  looptube  
+##### 3016#       发表于 2024-4-15 12:57
+
+现在版本做雷达站支线调雷达角度时，是不是没有声音提示了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3017#       发表于 2024-4-15 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602771&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-15 12:19</a>
+更像低配主宰
+
+—— 来自 OPPO PEAM00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">但主宰不能打巨型者正面
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Aeons  
+##### 3018#       发表于 2024-4-15 13:03
+
+头盔护甲实装有那么难吗好奇，这么久了
+

@@ -659,3 +659,23 @@
 说是一张图最多刷三次。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的图沦陷了最近没打过。
 
+
+*****
+
+####  wthall  
+##### 3022#       发表于 2024-4-15 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64603496&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-15 13:17</a>
+
+说是一张图最多刷三次。
+
+我的图沦陷了最近没打过。</blockquote>
+第二次去摸就不行了，朋友有能继续的，有不可以，也有断网不行关游戏重启可以的，看不懂
+
+*****
+
+####  Aeons  
+##### 3023#       发表于 2024-4-15 13:53
+
+听说机器人暗改了侦测范围？
+

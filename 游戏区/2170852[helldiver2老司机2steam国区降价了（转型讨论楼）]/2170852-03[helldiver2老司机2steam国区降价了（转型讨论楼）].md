@@ -1016,3 +1016,11 @@
 已经基本变成nga群了，经常99+</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/256.png" referrerpolicy="no-referrer">入侵？
 
+
+*****
+
+####  ddwhzh  
+##### 3056#       发表于 2024-4-16 00:56
+
+爆裂铳一枪一个蹂躏的打击点找到了，大盾哥是拿盾的那个脚，导弹哥是两腿胯下，只要能形成两个物体包夹爆点伤害直接翻倍。
+

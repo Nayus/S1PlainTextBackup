@@ -1059,3 +1059,13 @@
 
 刚才想了一下带了机枪架试试守点任务，居然感觉比带哨戒炮台有用，就是对重甲只能指望队友没在犯罪了
 
+
+*****
+
+####  Aeons  
+##### 3061#       发表于 2024-4-16 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64611515&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-16 01:54</a>
+刚才想了一下带了机枪架试试守点任务，居然感觉比带哨戒炮台有用，就是对重甲只能指望队友没在犯罪了 ...</blockquote>
+重机枪可以打强袭无畏啊
+

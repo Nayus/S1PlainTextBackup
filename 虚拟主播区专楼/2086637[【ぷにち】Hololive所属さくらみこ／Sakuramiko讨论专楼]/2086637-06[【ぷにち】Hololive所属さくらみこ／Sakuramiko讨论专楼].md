@@ -5342,3 +5342,19 @@ nyahelloworld实属最难曲，生歌到现在都没练起来
 
 今天又收录的新曲，感觉还能发好几个月的
 
+
+*****
+
+####  holoan  
+##### 8653#         楼主| 发表于 2024-4-16 00:00
+
+<img src="https://img.saraba1st.com/forum/202404/16/000015ryrsxx5443sysw55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 00:00 上传
+
+你死神吧，当然客观的说个人V的3年引退率本来就很高
+

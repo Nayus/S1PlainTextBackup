@@ -480,3 +480,15 @@ https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
 
 多玩点你就知道动作手感没那么好复制
 
+
+*****
+
+####  Ironman_mk5  
+##### 721#       发表于 2024-4-16 13:06
+
+<blockquote>ky7913 发表于 2024-4-16 07:20
+横尾金亨泰采访
+
+https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
+金吹中国手游比日本更懂二次元那里实在有点难绷
+

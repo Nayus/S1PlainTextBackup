@@ -1198,3 +1198,15 @@
 
 以前一个人叫撤离的时候我就躲到边边正好不会出警告的地方，现在这么干机器人一定会跑到我旁边，<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  runningch  
+##### 3074#       发表于 2024-4-16 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612580&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-16 09:09</a>
+看测试视频，机器人现在警戒范围暗改到51米了</blockquote>
+感觉这警戒范围是不是也影响了隐刀虫和炮艇的活动范围？昨天N8被一群又一群的隐刀虫杀全场，而且感觉现在得追比较远的距离才能找到瘾刀虫巢。
+
+—— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

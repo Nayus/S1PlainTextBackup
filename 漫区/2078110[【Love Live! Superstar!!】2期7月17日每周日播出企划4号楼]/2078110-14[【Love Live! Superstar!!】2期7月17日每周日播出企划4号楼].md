@@ -697,3 +697,20 @@ toupai
 
 而且一开始自我介绍说目标是LL优胜对应了梢，给我星2希奈子致敬可可的感觉
 
+
+*****
+
+####  ViyViy  
+##### 19995#       发表于 2024-4-16 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64614332&amp;ptid=2078110" target="_blank">Goisdust 发表于 2024-4-16 11:26</a>
+
+不是百生吟子？
+
+另外两只3话剧情就入队了她一个人占了6话都还没正式加入
+
+而且一开始自我介绍说目标是LL优 ...</blockquote>
+行吧，我不关注莲，所以也是疑问句。
+
+只能说新祖宗之法了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

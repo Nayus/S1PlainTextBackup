@@ -1576,3 +1576,14 @@ scary……</blockquote>
 昨天第一次打N8，开局三个人，之后一个人下线，就我跟房主打闪击战，死到最后没支援也没空袭可扔了，还剩两 ...</blockquote>
 超级地球不需要活着的英雄（）<blockquote>“不要为我流泪，我的荣誉长存”</blockquote>
 
+
+*****
+
+####  FLZB  
+##### 3108#       发表于 2024-4-17 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621956&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-16 23:35</a>
+
+话说重机枪不开镜没准心是不是bug？</blockquote>
+不是，是设定，因为箭头觉得这样很平衡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

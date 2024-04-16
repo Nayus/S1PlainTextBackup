@@ -32,3 +32,11 @@
 
 就这水平的系构还能对之后抱有期待纯属骗自己
 
+
+*****
+
+####  oi99o  
+##### 77#       发表于 2024-4-17 00:32
+
+还好我看完第一集之后紧急去补了小说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

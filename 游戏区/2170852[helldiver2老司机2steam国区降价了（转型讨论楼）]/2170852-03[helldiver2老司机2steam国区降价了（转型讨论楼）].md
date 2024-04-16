@@ -1587,3 +1587,11 @@ scary……</blockquote>
 话说重机枪不开镜没准心是不是bug？</blockquote>
 不是，是设定，因为箭头觉得这样很平衡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 3109#       发表于 2024-4-17 00:30
+
+我理解箭头PVE破天荒设计了。这游戏敌人都可以塞到刷怪模板，别人游戏都是权重限制刷太多，箭头：一架飞机5%概率刷出来就行
+

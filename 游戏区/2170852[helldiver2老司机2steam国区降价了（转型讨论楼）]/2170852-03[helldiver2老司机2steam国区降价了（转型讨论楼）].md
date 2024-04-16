@@ -1127,3 +1127,11 @@
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Launce  
+##### 3067#       发表于 2024-4-16 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看测试视频，机器人现在警戒范围暗改到51米了
+

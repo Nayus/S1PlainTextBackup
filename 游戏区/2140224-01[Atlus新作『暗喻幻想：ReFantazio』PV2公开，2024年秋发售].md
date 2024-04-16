@@ -2818,3 +2818,18 @@ ATLUS Exclusive公開記念特番
 ディレクターの橋野桂が語った #メタファー の情報を徹底分析していきます。
 <img src="https://p.sda1.dev/16/a2eb68fe3940373c47a8848ff685de14/20240416_090022.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2024-4-16 09:08
+
+📢ATLUS新作《暗喻幻想：ReFantazio》特别节目！📢
+
+“ATLUS Exclusive《暗喻幻想：ReFantazio》”将于4月23日（周二）早6：00播出！
+
+届时《暗喻幻想：ReFantazio》的总监桥野桂将在节目中向大家介绍本作的魅力之处！敬请期待！
+[https://live.bilibili.com/h5/2293539](https://live.bilibili.com/h5/2293539)
+
+※支持简体中文字幕
+

@@ -1624,3 +1624,11 @@ scary……</blockquote>
 不是，是设定，因为箭头觉得这样很平衡</blockquote>
 不太懂<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">反器材这种需要精度瞄准的就算了，重机枪只要蹲着或者趴着用加个准星我觉得就行了，这都不加平衡实在有点烂
 
+
+*****
+
+####  Aeons  
+##### 3113#       发表于 2024-4-17 03:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真占吗，我经常能看到有atat停在哨站里，没去管他也没感觉怪变少了啊。
+

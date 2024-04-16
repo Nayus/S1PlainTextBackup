@@ -10035,3 +10035,11 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 完了我现在得了一种看到大祥老师脸脑袋中就会自动开始播放春日影的病<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15710#       发表于 2024-4-16 17:05
+
+<img src="https://p.sda1.dev/17/44b24f6393ccc98bf0266dda14e4a56a/CMP_20240416170446668.jpg" referrerpolicy="no-referrer">https://x.com/narrensch1ff/status/1779844282771538289
+

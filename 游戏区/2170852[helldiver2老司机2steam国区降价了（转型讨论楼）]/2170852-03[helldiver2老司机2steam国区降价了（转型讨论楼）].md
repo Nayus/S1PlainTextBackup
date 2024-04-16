@@ -1356,3 +1356,14 @@ Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
 &gt; 透视单位：追踪虫始终得知玩家的位置，几乎不受任何潜行、烟雾等影响，但不会主动追击距离过于遥远的玩 ...</blockquote>
 我是感觉一个任务点来了3窝隐刀虫<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeoEvens22  
+##### 3086#       发表于 2024-4-16 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618348&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-16 17:18</a>
+
+Fixed an issue that resulted in different damage being dealt enemies between PC and console players. ...</blockquote>
+箭头：这就叫真空内爆弹<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

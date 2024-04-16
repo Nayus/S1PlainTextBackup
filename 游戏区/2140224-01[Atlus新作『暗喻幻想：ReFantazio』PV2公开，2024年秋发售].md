@@ -2872,3 +2872,13 @@ ATLUS Exclusive公開記念特番
 —— 来自 OPPO PGBM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 没提，但楼上有坛友说主角的台词有三百页
 
+
+*****
+
+####  猫沢  
+##### 176#       发表于 2024-4-17 00:52
+
+看起来只有5个可操控角色，皮克希大概是挂件<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -11371,3 +11371,18 @@ https://www.nintendo.co.jp/support/switch/software_support/av5ja/720.html
 
 —— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  绿冰  
+##### 4123#         楼主| 发表于 2024-4-17 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64622223&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-4-17 00:18</a>
+
+更新内容一般北京时间9点放，官推有时候会慢几分钟。
+
+先放个地址：</blockquote>
+[https://www.nintendo.co.jp/suppo ... rt/av5ja/index.html](https://www.nintendo.co.jp/support/switch/software_support/av5ja/index.html)
+
+发现这链接是自动跳转最新更新的
+

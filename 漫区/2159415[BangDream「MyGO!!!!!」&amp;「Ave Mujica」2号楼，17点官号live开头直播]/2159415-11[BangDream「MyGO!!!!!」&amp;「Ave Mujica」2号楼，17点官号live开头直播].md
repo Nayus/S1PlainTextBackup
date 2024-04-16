@@ -9996,3 +9996,11 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  NODY  
+##### 15705#       发表于 2024-4-16 14:45
+
+可能只是单纯的打工的时候没带自己贝斯用了livehouse的，当初第二季动画也有换其他人乐器借用的剧情
+

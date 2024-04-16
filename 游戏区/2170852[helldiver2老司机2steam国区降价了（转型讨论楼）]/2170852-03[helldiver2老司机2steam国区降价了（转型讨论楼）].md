@@ -1170,3 +1170,13 @@
 —— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我这种潜行玩家没影响，开黑战个痛的这下真战个痛了
 
+
+*****
+
+####  大肥鸽子  
+##### 3071#       发表于 2024-4-16 09:50
+
+现在游戏内没法加入好友小队是不是bug啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

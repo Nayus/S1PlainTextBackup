@@ -1102,3 +1102,16 @@
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Mr.Hopp  
+##### 3065#       发表于 2024-4-16 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612256&amp;ptid=2170852" target="_blank">MkChang 发表于 2024-4-16 08:35</a>
+
+加特林机甲太弱了。。四炮的倒是能用用但是一直不发
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 S1Nex ...</blockquote>
+四炮的测试下来不是打重甲根本没用吗？看贴吧说打重甲跟挠痒痒一样。
+

@@ -562,3 +562,14 @@ https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
 这就是为什么女主长得没有其他女配有特色的原因？</blockquote>
 没错，我也发现了，女主就是量产型的
 
+
+*****
+
+####  eulereld  
+##### 728#       发表于 2024-4-16 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64616726&amp;ptid=1978008" target="_blank">printer22 发表于 2024-4-16 15:02</a>
+金亨泰真的没发现莉莉的脸比女主好看太多？还需要网友提醒他？</blockquote>
+說的是微博圖4那個長髮妹妹吧
+Lily是技術員，短髮妹妹
+

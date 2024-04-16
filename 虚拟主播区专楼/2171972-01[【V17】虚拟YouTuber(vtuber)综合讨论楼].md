@@ -60,3 +60,12 @@
 
 我找不出虹有任何画面不阴间的live
 
+
+*****
+
+####  渡鸦骑士  
+##### 178#       发表于 2024-4-16 08:32
+
+我还以为阴间只是打光不好或者节目安排不行。
+怎么还有人物直接破碎这种阴间法……你们不检查一下的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

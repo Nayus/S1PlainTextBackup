@@ -1090,3 +1090,15 @@
 —— 来自 HUAWEI NOH-AN00, Android 12 ...</blockquote>
 要按距离长按r选对应码表才能打准
 
+
+*****
+
+####  MkChang  
+##### 3064#       发表于 2024-4-16 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64611380&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-16 01:19</a>
+7/8那个bug是当时刚出机甲的时候全员送免费体验 当时同时在战备解锁机甲就容易出这个bug，烂狗箭头两个月了 ...</blockquote>
+加特林机甲太弱了。。四炮的倒是能用用但是一直不发
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

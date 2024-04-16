@@ -1345,3 +1345,14 @@ Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个时间是玩家人数低点吗，感觉人又少又菜
 
+
+*****
+
+####  runningch  
+##### 3085#       发表于 2024-4-16 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64617248&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-16 15:54</a>
+
+&gt; 透视单位：追踪虫始终得知玩家的位置，几乎不受任何潜行、烟雾等影响，但不会主动追击距离过于遥远的玩 ...</blockquote>
+我是感觉一个任务点来了3窝隐刀虫<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+

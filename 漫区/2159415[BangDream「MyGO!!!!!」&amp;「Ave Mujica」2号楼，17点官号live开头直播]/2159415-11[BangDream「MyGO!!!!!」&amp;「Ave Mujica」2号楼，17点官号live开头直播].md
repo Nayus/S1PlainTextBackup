@@ -9410,3 +9410,35 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rinku  
+##### 15655#       发表于 2024-4-16 11:28
+
+小册子有什么新论据吗
+
+
+*****
+
+####  御幸一也  
+##### 15656#       发表于 2024-4-16 11:35
+
+小祥真好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/16/113506bsvke7idghzhvvvk.jpg" referrerpolicy="no-referrer">
+
+<strong>DSC03826-scaled.jpg</strong> (345.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/113508z8iv022vbxp07vm7.jpg" referrerpolicy="no-referrer">
+
+<strong>DSC03827-scaled.jpg</strong> (300.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 11:35 上传
+

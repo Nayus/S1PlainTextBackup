@@ -339,3 +339,17 @@ yoko-taro-1-1712791958418.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/16/071942pn6nkrkussnb6bu6.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jbjack1215  
+##### 713#       发表于 2024-4-16 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64611807&amp;ptid=1978008" target="_blank">chdhdhd 发表于 2024-4-16 05:52</a>
+偏个题，如果这个游戏出来之后，总体得到合格～良好以上的总体评价，那么我对黑神话的信心会有极大提升。这 ...</blockquote>
+做不好不等于卖不好
+另一个仿血源不就是，手感离一线还有很大距离
+卖得也还行，皮相好至少能保一群受众
+
+Demo玩下来，星剑最多勾到第二梯队，手感、打击感称不上好，玩玩就知道了，不需要等销量
+

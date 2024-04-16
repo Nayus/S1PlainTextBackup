@@ -9238,3 +9238,24 @@ C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  爱丁堡official  
+##### 15640#       发表于 2024-4-16 10:28
+
+白祥一直挺憨憨的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  remedios010000  
+##### 15641#       发表于 2024-4-16 10:35
+
+ 本帖最后由 remedios010000 于 2024-4-16 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613267&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-4-16 10:05</a>
+也不能这么说，猫猫solo部分也可以是看到原来的谱子改编的而不是即兴的</blockquote>
+但是从现实作曲的角度来说肯定是先做7集的再做的3集的片段最后加长个C团完整版的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">作曲也懒得再换个风格重新作曲了
+

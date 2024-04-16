@@ -1180,3 +1180,13 @@
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  Aeons  
+##### 3072#       发表于 2024-4-16 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612580&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-16 09:09</a>
+看测试视频，机器人现在警戒范围暗改到51米了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我昨天楼里说了，50m我只能说效果非常明显你看到一队过来马上就开扫你了
+

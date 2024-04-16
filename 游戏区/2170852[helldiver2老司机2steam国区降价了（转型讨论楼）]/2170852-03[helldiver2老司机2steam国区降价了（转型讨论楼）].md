@@ -1367,3 +1367,11 @@ Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
 Fixed an issue that resulted in different damage being dealt enemies between PC and console players. ...</blockquote>
 箭头：这就叫真空内爆弹<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dashuaibi  
+##### 3087#       发表于 2024-4-16 19:00
+
+现在机器人两船兵会空投atat了，享大福
+

@@ -730,3 +730,13 @@ toupai
 
 该说不说莲最近加新生的事情，看见几个魔怔退星搞莲“老面孔”破防真够好笑的
 
+
+*****
+
+####  starring  
+##### 19998#       发表于 2024-4-16 18:56
+
+山茶花私语完整版的试听出了
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

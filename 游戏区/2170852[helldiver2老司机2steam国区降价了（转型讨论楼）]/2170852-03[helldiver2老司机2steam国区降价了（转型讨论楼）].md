@@ -1537,3 +1537,14 @@ scary……</blockquote>
 
 什么时候出神风小车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 3104#       发表于 2024-4-16 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64619566&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-16 19:11</a>
+
+何止反器材，重机枪准星也是歪的，我就看看他要花几个月才修得好</blockquote>
+话说重机枪不开镜没准心是不是bug？
+

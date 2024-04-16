@@ -9648,3 +9648,33 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海铃太pro了，挚爱贝斯人
 
+
+*****
+
+####  NODY  
+##### 15676#       发表于 2024-4-16 12:18
+
+mujica参考ppp初设，贝斯是家人遗物的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 15677#       发表于 2024-4-16 12:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">海铃真把立希的头当叠叠乐玩具了。
+听了一上午c团春日影，突然明白睦在游戏里说的那句不属于crychic的春日影，对大祥的杀伤力了。
+
+*****
+
+####  枫林不见  
+##### 15678#       发表于 2024-4-16 12:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">海铃弹贝斯如此狂野如此热情似火，恐怕真的是想把立希抱起来O吔
+
+*****
+
+####  Yugao  
+##### 15679#       发表于 2024-4-16 12:22
+
+穿马裤，把立希当马骑
+

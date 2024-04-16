@@ -408,3 +408,11 @@ Demo玩下来，星剑最多勾到第二梯队，手感、打击感称不上好�
 
 这方面印象，还是要完整版更能做参考。毕竟试玩版内容不完整，并不能体现素质的全貌
 
+
+*****
+
+####  astrayl  
+##### 718#       发表于 2024-4-16 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天国的尼尔3能请金hentai来做人设？
+

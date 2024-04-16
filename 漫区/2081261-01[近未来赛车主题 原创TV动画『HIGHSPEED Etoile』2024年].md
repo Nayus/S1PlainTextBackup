@@ -1297,3 +1297,20 @@ O了，隔壁竞轮比这个烂得多
 
 真有人能捏着鼻子追完这部番吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 243#       发表于 2024-4-16 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和神田川jetgirls的手游转生版海豚波潮联动了
+感觉还不如动画化海豚波潮还能多看看泳装妹子
+
+<img src="https://img.saraba1st.com/forum/202404/16/203511ozd3qzgndnfwnd3v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 20:35 上传
+

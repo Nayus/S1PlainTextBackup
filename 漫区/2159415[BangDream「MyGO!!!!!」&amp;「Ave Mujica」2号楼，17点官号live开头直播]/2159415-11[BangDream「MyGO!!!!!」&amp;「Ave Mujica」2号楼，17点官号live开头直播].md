@@ -10204,3 +10204,47 @@ ost哪里可以听啊<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">woc，牛逼啊，史上最快，对国内超级特攻
 
+
+*****
+
+####  [皆神孝介]  
+##### 15723#       发表于 2024-4-16 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621679&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:58</a>
+
+为什么要演奏春日影，官方简中字幕ver
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
+这个字幕应该是外挂的吧？能单独提取吗？和目前限时上架那个有差别（颜色以外）没有？<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  此行远兮  
+##### 15724#       发表于 2024-4-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621734&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-4-16 23:05</a>
+这个字幕应该是外挂的吧？能单独提取吗？和目前限时上架那个有差别（颜色以外）没有？
+
+ ...</blockquote>
+不太清楚，我只有一台xsx能读蓝光，就算能提取我也提取不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  此行远兮  
+##### 15725#       发表于 2024-4-16 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621711&amp;ptid=2159415" target="_blank">天风绯炎 发表于 2024-4-16 23:03</a>
+woc，牛逼啊，史上最快，对国内超级特攻</blockquote>
+对啊，从未有过的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  skives  
+##### 15726#       发表于 2024-4-16 23:10
+
+bd修正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

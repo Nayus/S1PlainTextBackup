@@ -9364,3 +9364,25 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 
 睦祥真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 15651#       发表于 2024-4-16 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613288&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-16 10:07</a>
+寶寶</blockquote>
+这个是bd里的嘛可恶，我也想买了，现在还来得及嘛
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  PDQ4  
+##### 15652#       发表于 2024-4-16 11:02
+
+睦宝这好俊俏的生气脸。
+
+比她小的那个妹妹可爱要素超标了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

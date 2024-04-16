@@ -9194,3 +9194,14 @@ c团春日影<img src="https://static.saraba1st.com/image/smiley/face2017/138.pn
 
 [https://twitter.com/mkm22111/status/1779932206003318823](https://twitter.com/mkm22111/status/1779932206003318823)
 
+
+*****
+
+####  Aloereed  
+##### 15637#       发表于 2024-4-16 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64611593&amp;ptid=2159415" target="_blank">remedios010000 发表于 2024-4-16 02:22</a>
+
+C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比猫猫早很多……这么搞总有一种爷爷像孙子的错位 ...</blockquote>
+也不能这么说，猫猫solo部分也可以是看到原来的谱子改编的而不是即兴的
+

@@ -500,3 +500,24 @@ https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
 
 白金孝子简直笑死我  要拉踩搬也搬点好的，你拉贝姐来我都当你努力过了，尼尔2有个屁的动作设计，轻重攻击两套复读加储力，最老土的蹭防反无敌AAA，论动作飘更是50步笑百步，更不谈各种吃屎的锁视角和自以为是在3D流程中缝些弹幕横版垃圾小游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。另外跳跃到黑猴的逻辑更是无力吐槽，棒子做动作游戏从上个世代做MMO开始有一套传承的。C9，洛奇黑沙单拎动作部分出来都有可圈可点之处，更不用说金恒泰自己以前就是做剑灵的，人家本来就有自己的积累，可不是空地起高楼
 
+
+*****
+
+####  洛克萨斯  
+##### 723#       发表于 2024-4-16 13:45
+
+横尾接受采访比同行有意思多了，客套话少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jbjack1215  
+##### 724#       发表于 2024-4-16 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615732&amp;ptid=1978008" target="_blank">uponutopia 发表于 2024-4-16 13:21</a>
+白金孝子简直笑死我  要拉踩搬也搬点好的，你拉贝姐来我都当你努力过了，尼尔2有个屁的动作设计，轻重攻击 ...</blockquote>
+别急
+我说的是动作设计
+尼尔的剑舞动作连贯流畅
+双手握持太刀的施力动作符合想像中的物理惯性
+玩剑星demo，会发现无论轻重击，主角都是单持，另一只手经常放空，动作帧也有冗余问题，感觉就不是擅长动作设计的制作组
+

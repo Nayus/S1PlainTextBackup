@@ -9884,3 +9884,84 @@ mujica：已完成/主流出道pro-mygo：未完成/学生社团
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  twi  
+##### 15697#       发表于 2024-4-16 13:38
+
+海铃的贝斯应该是换了一把？图上的和动画里的不太一样，有可能是楼友之前猜测的海铃过去组乐队的画面
+
+*****
+
+####  PDQ4  
+##### 15698#       发表于 2024-4-16 13:39
+
+已知mana和初华是一个岛的（并没有）
+
+mana和喵梦是一同出道朋友（纯造谣）
+
+那初mana喵幼驯染三角可能性微存（完全谬论）
+
+原来初华深陷两个幼驯染三角当中，一个情感三角一个事业三角，不愧是三角主唱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  SakuraのOrigami  
+##### 15699#       发表于 2024-4-16 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615908&amp;ptid=2159415" target="_blank">twi 发表于 2024-4-16 13:38</a>
+海铃的贝斯应该是换了一把？图上的和动画里的不太一样，有可能是楼友之前猜测的海铃过去组乐队的画面 ...</blockquote>
+是，小册子上的是4弦
+不过如果这也是伏笔那就太离谱了（）
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  twi  
+##### 15700#       发表于 2024-4-16 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615917&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-16 13:39</a>
+
+是，小册子上的是4弦
+
+不过如果这也是伏笔那就太离谱了（）</blockquote>
+再结合一下海铃的头像锁屏全是贝斯，又有新的发散点了（）
+
+*****
+
+####  笋干爆炸碱  
+##### 15701#       发表于 2024-4-16 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615910&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-16 13:39</a>
+
+已知mana和初华是一个岛的（并没有）
+
+mana和喵梦是一同出道朋友（纯造谣）
+
+那初mana喵幼驯染三角可能性微存 ...</blockquote>
+草，版本更新的好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 15702#       发表于 2024-4-16 13:46
+
+ 本帖最后由 Aendst 于 2024-4-16 13:47 编辑 
+
+乐队散了路线，海喵前乐队时期见过面的可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人人都可以有千丝万缕
+

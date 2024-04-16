@@ -1458,3 +1458,20 @@ scary……
 
 看新报告不会是要更新大头兵战备了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 3095#       发表于 2024-4-16 21:15
+
+召唤四个大头兵想想都好蠢啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smdzh2  
+##### 3096#       发表于 2024-4-16 21:18
+
+四个50块好兄弟刚落地就被坦克虫创飞，想想就好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

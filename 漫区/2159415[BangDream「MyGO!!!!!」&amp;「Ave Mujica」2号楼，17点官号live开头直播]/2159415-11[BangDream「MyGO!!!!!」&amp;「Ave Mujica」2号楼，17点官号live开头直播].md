@@ -10168,3 +10168,39 @@ ost哪里可以听啊<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Xiaomi 2106118C, And ...</blockquote>
 好快啊，是rng渠道的货吗？
 
+
+*****
+
+####  此行远兮  
+##### 15720#       发表于 2024-4-16 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621551&amp;ptid=2159415" target="_blank">天风绯炎 发表于 2024-4-16 22:39</a>
+好快啊，是rng渠道的货吗？</blockquote>
+对的
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  此行远兮  
+##### 15721#       发表于 2024-4-16 22:58
+
+<img src="https://p.sda1.dev/17/21195ac723db9be194a2233991e6383f/CMP_20240416225739184.jpg" referrerpolicy="no-referrer">
+为什么要演奏春日影，官方简中字幕ver<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  天风绯炎  
+##### 15722#       发表于 2024-4-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621674&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:57</a>
+
+对的
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">woc，牛逼啊，史上最快，对国内超级特攻
+

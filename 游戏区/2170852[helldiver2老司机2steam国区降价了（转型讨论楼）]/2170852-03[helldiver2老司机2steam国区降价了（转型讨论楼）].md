@@ -1337,3 +1337,11 @@ Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
 —— 来自 Xiaomi M2102J2SC, Andr ...</blockquote>
 打虫群和巢穴原来的机甲也是随便打，没差别。打重甲好歹火箭能打打，新的那个根本没法打重甲。
 
+
+*****
+
+####  白昼梦  
+##### 3084#       发表于 2024-4-16 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个时间是玩家人数低点吗，感觉人又少又菜
+

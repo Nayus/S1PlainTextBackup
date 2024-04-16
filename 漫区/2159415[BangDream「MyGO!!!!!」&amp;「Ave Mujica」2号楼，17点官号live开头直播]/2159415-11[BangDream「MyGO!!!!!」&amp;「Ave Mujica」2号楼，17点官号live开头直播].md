@@ -10043,3 +10043,27 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 <img src="https://p.sda1.dev/17/44b24f6393ccc98bf0266dda14e4a56a/CMP_20240416170446668.jpg" referrerpolicy="no-referrer">https://x.com/narrensch1ff/status/1779844282771538289
 
+
+*****
+
+####  NODY  
+##### 15711#       发表于 2024-4-16 18:11
+
+ost感觉剧透不少
+
+<img src="https://img.saraba1st.com/forum/202404/16/181141r1e2r5z2p15vxce2.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1713262248303.jpg</strong> (76.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/181150eyozov2cgvlvol2z.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1713262254529.jpg</strong> (85.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 18:11 上传
+

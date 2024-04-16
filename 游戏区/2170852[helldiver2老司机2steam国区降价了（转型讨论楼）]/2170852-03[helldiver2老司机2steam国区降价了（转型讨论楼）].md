@@ -1190,3 +1190,11 @@
 看测试视频，机器人现在警戒范围暗改到51米了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我昨天楼里说了，50m我只能说效果非常明显你看到一队过来马上就开扫你了
 
+
+*****
+
+####  Hyst3r1a  
+##### 3073#       发表于 2024-4-16 11:55
+
+以前一个人叫撤离的时候我就躲到边边正好不会出警告的地方，现在这么干机器人一定会跑到我旁边，<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

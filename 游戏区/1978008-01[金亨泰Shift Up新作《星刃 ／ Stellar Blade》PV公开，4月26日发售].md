@@ -353,3 +353,14 @@ yoko-taro-1-1712791958418.jpg
 
 Demo玩下来，星剑最多勾到第二梯队，手感、打击感称不上好，玩玩就知道了，不需要等销量
 
+
+*****
+
+####  wiig  
+##### 714#       发表于 2024-4-16 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64555093&amp;ptid=1978008" target="_blank">hkguty 发表于 2024-4-11 09:07</a>
+
+金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？</blockquote>
+三大公交车哪有联动不上的选项 只要给钱就能联
+

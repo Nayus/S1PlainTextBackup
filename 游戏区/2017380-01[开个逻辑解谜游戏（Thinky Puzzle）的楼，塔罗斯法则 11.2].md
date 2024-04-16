@@ -2893,3 +2893,18 @@ discord 上也有不少人说相同问 ...</blockquote>
 
 有没有近两年的，侧重机制独特的解谜游戏推荐？
 
+
+*****
+
+####  铃森冬  
+##### 187#       发表于 2024-4-16 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621574&amp;ptid=2017380" target="_blank">Chia 发表于 2024-4-16 22:42</a>
+
+看到Patrick居然算难度“过低”，有点不敢点了
+
+有没有近两年的，侧重机制独特的解谜游戏推荐？</blockquote>
+机制独特的话去年的 Can of Wormholes 吧，玩过都说好
+
+以及 Parabox 全通平均应该还是有 10h 左右游戏时间的，不过主线关卡难度确实设计的极其克制，给人感觉设计思路是非常单纯的展示机制交互能不卡人就不卡人，好让轻度玩家也能 eureka moment 一下
+

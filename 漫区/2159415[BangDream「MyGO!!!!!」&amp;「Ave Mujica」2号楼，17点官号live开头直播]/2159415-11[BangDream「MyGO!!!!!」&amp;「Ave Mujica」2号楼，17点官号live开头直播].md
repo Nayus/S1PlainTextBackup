@@ -10248,3 +10248,21 @@ woc，牛逼啊，史上最快，对国内超级特攻</blockquote>
 
 bd修正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15727#       发表于 2024-4-16 23:19
+
+睦祥睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/16/231908qgvm2xagqqgjxhx0.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Chacalこ(@Sakuma07071)_20240416-100708_1780176091300434177_photo.jpg</strong> (517.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 23:19 上传
+
+[https://twitter.com/Sakuma07071/status/1780176091300434177](https://twitter.com/Sakuma07071/status/1780176091300434177)
+

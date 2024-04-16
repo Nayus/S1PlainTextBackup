@@ -11343,3 +11343,15 @@ Jackpot成员年龄有谁知道？感觉像是一个大姐头带三个小孩，�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 4121#         楼主| 发表于 2024-4-16 23:22
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-4-16 23:04
+明天是不是该发更新通知了，再不发来不及了吧
+
+论坛助手,iPhone</blockquote>
+基本都是提前1天，大概明天早上9点或10点出
+

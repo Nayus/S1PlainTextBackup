@@ -1273,3 +1273,18 @@ Known Issues里倒是没加那个爆裂铳会吸人的问题，不会真是游�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有时候拿红支援把点偷了也不敢凑进去扫样本，对这方面收益玩着真有点自我怀疑
 
+
+*****
+
+####  Launce  
+##### 3081#       发表于 2024-4-16 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64607510&amp;ptid=2170852" target="_blank">bladethunder 发表于 2024-4-15 18:31</a>
+
+反器材步枪的准星是不是有点问题，感觉实际打点比十字线交点偏上
+
+—— 来自 HUAWEI NOH-AN00, Android 12 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 对，准星就是歪的，今天补丁承认了
+
+Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
+

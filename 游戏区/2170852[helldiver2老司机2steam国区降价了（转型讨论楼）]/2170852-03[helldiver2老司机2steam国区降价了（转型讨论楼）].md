@@ -1388,3 +1388,29 @@ Fixed an issue that resulted in different damage being dealt enemies between PC 
 Scopes on some weapons such as the Anti-Materiel Rifle are ...</blockquote>
 何止反器材，重机枪准星也是歪的，我就看看他要花几个月才修得好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LrGsite  
+##### 3089#       发表于 2024-4-16 20:19
+
+<img src="https://img.saraba1st.com/forum/202404/16/201933k4tttlmootmtuulu.png" referrerpolicy="no-referrer">
+
+<strong>G`M4`L}C6W0X_[YM2`$T1G4.png</strong> (40.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/201933ubf17k88b6f78x2x.png" referrerpolicy="no-referrer">
+
+<strong>%V]WAAOTFJC6{]7@6{I13EN.png</strong> (56.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 20:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+10分钟30橙样本,谁还救那些刁民啊
+

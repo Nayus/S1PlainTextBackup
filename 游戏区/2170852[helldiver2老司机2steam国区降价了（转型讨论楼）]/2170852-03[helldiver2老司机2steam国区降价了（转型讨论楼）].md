@@ -1242,3 +1242,34 @@
 
 说实话现在据点支线是不是其实非必要最好不清，有些比如干扰塔探测塔和炮艇基地这种清一个可能搭进去不少命，再加上之前挖出来据点全清巡逻队反而增加，拖时间越久难度越大，唯一有效收益就是经验
 
+
+*****
+
+####  Launce  
+##### 3078#       发表于 2024-4-16 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618264&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-4-16 17:12</a>
+
+说实话现在据点支线是不是其实非必要最好不清，有些比如干扰塔探测塔和炮艇基地这种清一个可能搭进去不少命 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是看兜底情况，吃得消当前难度的话，能全清还是好的
+
+*****
+
+####  白昼梦  
+##### 3079#       发表于 2024-4-16 17:18
+
+Fixed an issue that resulted in different damage being dealt enemies between PC and console players.
+
+今天补丁把主机和pc敌人血量不一致的问题修了，不过说明上写的造成伤害不一致。
+
+剩下的修复好像都是各种游戏闪退问题
+
+Known Issues里倒是没加那个爆裂铳会吸人的问题，不会真是游戏特性吧
+
+*****
+
+####  白昼梦  
+##### 3080#       发表于 2024-4-16 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有时候拿红支援把点偷了也不敢凑进去扫样本，对这方面收益玩着真有点自我怀疑
+

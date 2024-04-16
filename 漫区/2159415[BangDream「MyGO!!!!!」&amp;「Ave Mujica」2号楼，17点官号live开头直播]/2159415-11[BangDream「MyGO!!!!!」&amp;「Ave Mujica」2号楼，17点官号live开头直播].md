@@ -10266,3 +10266,11 @@ bd修正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 [https://twitter.com/Sakuma07071/status/1780176091300434177](https://twitter.com/Sakuma07071/status/1780176091300434177)
 
+
+*****
+
+####  z2150966  
+##### 15728#       发表于 2024-4-17 02:57
+
+听之前：soyo别惦记你那bc团了 听之后：求你了，我想让crythic重新开始😭
+

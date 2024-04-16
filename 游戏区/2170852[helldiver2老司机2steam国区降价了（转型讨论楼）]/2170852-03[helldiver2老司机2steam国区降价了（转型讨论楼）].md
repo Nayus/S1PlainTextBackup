@@ -1115,3 +1115,15 @@
 —— 来自 Xiaomi M2102J2SC, Android 12上的 S1Nex ...</blockquote>
 四炮的测试下来不是打重甲根本没用吗？看贴吧说打重甲跟挠痒痒一样。
 
+
+*****
+
+####  jy000129  
+##### 3066#       发表于 2024-4-16 09:00
+
+ 本帖最后由 jy000129 于 2024-4-16 09:01 编辑 
+
+昨天和一个网友双人难9潜行，突出一个放一炮就跑，碰到大点丢个380就跑，中型和指挥部一个轨道激光就能搞定，类星体炸小点和飞机，能稳定清图，防守图就只能堆命丢380和引叛徒炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

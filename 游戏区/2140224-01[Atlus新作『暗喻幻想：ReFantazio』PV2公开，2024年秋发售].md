@@ -2882,3 +2882,16 @@ ATLUS Exclusive公開記念特番
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AeonsTorn  
+##### 177#       发表于 2024-4-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64622467&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-4-17 00:52</a>
+
+看起来只有5个可操控角色，皮克希大概是挂件放低预期了，等加强版加一个妹子比较合适
+
+论坛 ...</blockquote>
+pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧
+

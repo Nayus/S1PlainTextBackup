@@ -1424,3 +1424,21 @@ n9机器人太恐怖了，什么时候出核弹<img src="https://static.saraba1s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rainknine  
+##### 3091#       发表于 2024-4-16 21:02
+
+atat drop
+scary……
+
+加上机器人视野加强，我都不敢清据点了
+
+*****
+
+####  Mr.Hopp  
+##### 3092#       发表于 2024-4-16 21:03
+
+现在打虫子都没啥意思，还是打机器人有意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

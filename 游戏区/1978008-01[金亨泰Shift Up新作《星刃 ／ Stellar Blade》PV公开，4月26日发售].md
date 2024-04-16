@@ -598,3 +598,12 @@ Demo 这几天无聊打了好久
 </blockquote>
 后面不少范围技能
 
+
+*****
+
+####  Piano-Forest  
+##### 731#         楼主| 发表于 2024-4-16 21:11
+
+金亨泰×横尾太郎 特别对谈：
+[https://www.ign.com.cn/stellar-b ... -ren-te-bie-dui-tan](https://www.ign.com.cn/stellar-blade/48851/news/jian-xing-xni-er-zi-dong-ren-xing-zhi-zuo-ren-te-bie-dui-tan)
+

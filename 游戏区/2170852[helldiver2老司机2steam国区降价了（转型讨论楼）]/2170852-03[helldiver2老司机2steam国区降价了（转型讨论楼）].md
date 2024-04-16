@@ -1442,3 +1442,19 @@ scary……
 
 现在打虫子都没啥意思，还是打机器人有意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3093#       发表于 2024-4-16 21:05
+
+机器人现在一把工厂太多了
+
+
+*****
+
+####  Mr.Hopp  
+##### 3094#       发表于 2024-4-16 21:11
+
+看新报告不会是要更新大头兵战备了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

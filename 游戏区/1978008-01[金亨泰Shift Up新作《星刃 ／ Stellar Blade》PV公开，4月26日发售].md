@@ -573,3 +573,15 @@ https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
 說的是微博圖4那個長髮妹妹吧
 Lily是技術員，短髮妹妹
 
+
+*****
+
+####  lilod  
+##### 729#       发表于 2024-4-16 16:45
+
+ Demo 这几天无聊打了好久
+
+这游戏最大的问题我感觉是 1 对多的普通战斗
+
+1v1 的 boss 战挺好的，boss 的交互也多，压制 boss 多手段也挺多
+

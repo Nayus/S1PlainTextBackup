@@ -10019,3 +10019,11 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 拿着乐器开始演奏脸上就会露出笑容的三人组，海铃猫猫立希
 
+
+*****
+
+####  NODY  
+##### 15708#       发表于 2024-4-16 16:19
+
+这个设定集的图示感觉喵老师还是高中生的可能性增大了，把衣服换换完全就是JK<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

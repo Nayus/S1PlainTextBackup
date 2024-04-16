@@ -9205,3 +9205,36 @@ c团春日影<img src="https://static.saraba1st.com/image/smiley/face2017/138.pn
 C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比猫猫早很多……这么搞总有一种爷爷像孙子的错位 ...</blockquote>
 也不能这么说，猫猫solo部分也可以是看到原来的谱子改编的而不是即兴的
 
+
+*****
+
+####  御幸一也  
+##### 15638#       发表于 2024-4-16 10:07
+
+<img src="https://img.saraba1st.com/forum/202404/16/100642voakbwhokrsgkovs.jpg" referrerpolicy="no-referrer">
+
+<strong>GLP5W9cawAA8QQT.jpg</strong> (778.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:06 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/100646mxb5xhwx7p55xx4x.jpg" referrerpolicy="no-referrer">
+
+<strong>GLP5lcvbMAAAyGZ.jpg</strong> (328.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:06 上传
+
+寶寶<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  KirigawaMaki  
+##### 15639#       发表于 2024-4-16 10:11
+
+脸嘟嘟的好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

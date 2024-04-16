@@ -2843,3 +2843,19 @@ ATLUS Exclusive公開記念特番
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 174#         楼主| 发表于 2024-4-16 10:07
+
+本番組では、『メタファー：リファンタジオ』のディレクター橋野桂が皆さまへ直接『メタファー』の魅力をお伝えします。今回はこれまで公開してこなかったゲームシステムの詳細情報を開発者自らがプレイ動画とともに紹介する内容となっています。
+
+『メタファー：リファンタジオ』がどんなゲームプレイを楽しめるのか、本タイトルの魅力を約30分でしっかりとお伝えする内容となっています。ぜひ、ご覧ください。
+
+大概会详细介绍之前提到的觉醒「英雄形象（原型）」
+
+※英雄像（アーキタイプ）
+<img src="https://p.sda1.dev/16/28cc6a5581b4b1784ebb3e137a91b0d6/SaveTwitter.Net_1779305962056151040_720p_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/579e8bd1abf02e2602ade899dc043b4f/SaveTwitter.Net_1779887553371308032_720p_.gif" referrerpolicy="no-referrer">
+

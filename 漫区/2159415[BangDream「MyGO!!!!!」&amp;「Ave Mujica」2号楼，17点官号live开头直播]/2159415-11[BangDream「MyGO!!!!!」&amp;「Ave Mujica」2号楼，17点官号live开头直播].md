@@ -9290,3 +9290,77 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 寶寶</blockquote>
 我的天 世界上居然有这等萌物
 
+
+*****
+
+####  御幸一也  
+##### 15645#       发表于 2024-4-16 10:48
+
+<img src="https://img.saraba1st.com/forum/202404/16/104607y11azrl6zyl44p4p.jpg" referrerpolicy="no-referrer">
+
+<strong>58AD0E0D1E75C383E82F25DDEB651F66.jpg</strong> (377.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:46 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/104602stsif87ifm061jj1.jpg" referrerpolicy="no-referrer">
+
+<strong>2E8C1FBF1E06EF6E0E7A688E2C4A890D.jpg</strong> (405.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:46 上传
+
+兩個寶寶<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 15646#       发表于 2024-4-16 10:52
+
+祥子卡哇伊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15647#       发表于 2024-4-16 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613688&amp;ptid=2159415" target="_blank">remedios010000 发表于 2024-4-16 10:35</a>
+
+但是从现实作曲的角度来说肯定是先做7集的再做的3集的片段最后加长个C团完整版的啊而且我觉得现在 ...</blockquote>
+好像还真是先写的C团版，作曲还专门说了更擅长钢琴<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/16/105513sn1h969d8ddf86nv.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19d-42zmK2lT3cSsc-7s.jpg</strong> (55.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:55 上传
+
+*****
+
+####  枫林不见  
+##### 15648#       发表于 2024-4-16 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">好耀眼好温暖的c团春日影
+
+*****
+
+####  ads147147  
+##### 15649#       发表于 2024-4-16 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613864&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-16 10:48</a>
+
+兩個寶寶</blockquote>
+要捏着杯之耳朵喝茶这个我还是看jojo才知道，只能说欧美老贵族了（虽然英国老太婆自己就没遵守过几次）
+
+*****
+
+####  星空冻结  
+##### 15650#       发表于 2024-4-16 10:58
+
+睦祥真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

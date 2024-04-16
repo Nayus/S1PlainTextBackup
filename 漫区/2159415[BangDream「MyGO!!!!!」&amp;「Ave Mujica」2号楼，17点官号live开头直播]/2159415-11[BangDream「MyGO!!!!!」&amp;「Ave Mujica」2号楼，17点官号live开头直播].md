@@ -9965,3 +9965,34 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 乐队散了路线，海喵前乐队时期见过面的可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人人都可以有千丝万缕
 
+
+*****
+
+####  基神的强袭自由  
+##### 15703#       发表于 2024-4-16 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615945&amp;ptid=2159415" target="_blank">twi 发表于 2024-4-16 13:42</a>
+
+再结合一下海铃的头像锁屏全是贝斯，又有新的发散点了（）</blockquote>
+“我只有贝斯了”
+
+<img src="https://img.saraba1st.com/forum/202404/16/135046l5zjmctfjgbgux2m.jpg" referrerpolicy="no-referrer">
+
+<strong>UYM5(IWKX@@F[2YT]1MR0`C.jpg</strong> (50.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 13:50 上传
+
+*****
+
+####  SakuraのOrigami  
+##### 15704#       发表于 2024-4-16 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615945&amp;ptid=2159415" target="_blank">twi 发表于 2024-4-16 13:42</a>
+再结合一下海铃的头像锁屏全是贝斯，又有新的发散点了（）</blockquote>
+其实也不一定，毕竟海铃是雇佣兵（）
+这贝斯最多也只是初设而已（）
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

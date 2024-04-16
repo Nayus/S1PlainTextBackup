@@ -1375,3 +1375,16 @@ Fixed an issue that resulted in different damage being dealt enemies between PC 
 
 现在机器人两船兵会空投atat了，享大福
 
+
+*****
+
+####  FLZB  
+##### 3088#       发表于 2024-4-16 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618409&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-16 17:24</a>
+
+对，准星就是歪的，今天补丁承认了
+
+Scopes on some weapons such as the Anti-Materiel Rifle are ...</blockquote>
+何止反器材，重机枪准星也是歪的，我就看看他要花几个月才修得好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

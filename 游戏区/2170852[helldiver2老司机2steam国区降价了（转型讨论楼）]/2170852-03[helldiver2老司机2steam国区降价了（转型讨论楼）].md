@@ -1288,3 +1288,52 @@ Known Issues里倒是没加那个爆裂铳会吸人的问题，不会真是游�
 
 Scopes on some weapons such as the Anti-Materiel Rifle are slightly misaligned.
 
+
+*****
+
+####  MkChang  
+##### 3082#       发表于 2024-4-16 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612360&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-16 08:47</a>
+四炮的测试下来不是打重甲根本没用吗？看贴吧说打重甲跟挠痒痒一样。</blockquote>
+我自己试下来是打重甲确实有点吃力，不过打虫群和清重型巢穴挺好用的
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mr.Hopp  
+##### 3083#       发表于 2024-4-16 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618720&amp;ptid=2170852" target="_blank">MkChang 发表于 2024-4-16 17:48</a>
+
+我自己试下来是打重甲确实有点吃力，不过打虫群和清重型巢穴挺好用的
+
+—— 来自 Xiaomi M2102J2SC, Andr ...</blockquote>
+打虫巢和巢穴原来的机甲也是随便打，没差别。
+
+
+*****
+
+####  MkChang  
+##### 3082#       发表于 2024-4-16 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612360&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-16 08:47</a>
+四炮的测试下来不是打重甲根本没用吗？看贴吧说打重甲跟挠痒痒一样。</blockquote>
+我自己试下来是打重甲确实有点吃力，不过打虫群和清重型巢穴挺好用的
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mr.Hopp  
+##### 3083#       发表于 2024-4-16 17:49
+
+ 本帖最后由 Mr.Hopp 于 2024-4-16 17:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618720&amp;ptid=2170852" target="_blank">MkChang 发表于 2024-4-16 17:48</a>
+
+我自己试下来是打重甲确实有点吃力，不过打虫群和清重型巢穴挺好用的
+
+—— 来自 Xiaomi M2102J2SC, Andr ...</blockquote>
+打虫群和巢穴原来的机甲也是随便打，没差别。打重甲好歹火箭能打打，新的那个根本没法打重甲。
+

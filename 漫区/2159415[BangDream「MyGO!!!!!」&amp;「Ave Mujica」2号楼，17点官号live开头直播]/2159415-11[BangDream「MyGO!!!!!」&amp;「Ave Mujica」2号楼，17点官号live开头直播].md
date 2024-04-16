@@ -9259,3 +9259,34 @@ C团春日影的间奏旋律跟猫猫的solo大差不差，明明时间上要比
 也不能这么说，猫猫solo部分也可以是看到原来的谱子改编的而不是即兴的</blockquote>
 但是从现实作曲的角度来说肯定是先做7集的再做的3集的片段最后加长个C团完整版的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">作曲也懒得再换个风格重新作曲了
 
+
+*****
+
+####  基神的强袭自由  
+##### 15642#       发表于 2024-4-16 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613288&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-16 10:07</a>
+寶寶</blockquote>
+宝宝，你是一个宝宝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 15643#       发表于 2024-4-16 10:39
+
+https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  skives  
+##### 15644#       发表于 2024-4-16 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613288&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-16 10:07</a>
+寶寶</blockquote>
+我的天 世界上居然有这等萌物
+

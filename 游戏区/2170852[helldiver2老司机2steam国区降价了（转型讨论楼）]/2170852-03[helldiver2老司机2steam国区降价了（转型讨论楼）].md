@@ -1490,3 +1490,16 @@ scary……
 
 机枪上位好吧
 
+
+*****
+
+####  Mr.Hopp  
+##### 3099#       发表于 2024-4-16 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64620661&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-16 21:02</a>
+
+atat drop
+
+scary……</blockquote>
+看贴吧的讲解并没有暗改，文档里一直都是50米。但是环境因素会产生影响。
+

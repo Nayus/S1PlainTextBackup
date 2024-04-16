@@ -1556,3 +1556,23 @@ scary……</blockquote>
 
 昨天第一次打N8，开局三个人，之后一个人下线，就我跟房主打闪击战，死到最后没支援也没空袭可扔了，还剩两个虫洞没打，我一个人弹尽粮绝，心一横直接跑去撤离点附近一个虫窝，被无数虫子追，最后用类星体炮完成两次远程狙击结束任务，看着房主上飞机然后自己被虫群淹没了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">他妈的，好浪漫啊
 
+
+*****
+
+####  smdzh2  
+##### 3106#       发表于 2024-4-16 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621956&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-17 00:35</a>
+话说重机枪不开镜没准心是不是bug？</blockquote>
+反器材也没有，可能是某种奇怪设定
+
+
+*****
+
+####  smdzh2  
+##### 3107#       发表于 2024-4-16 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621990&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-17 00:39</a>
+昨天第一次打N8，开局三个人，之后一个人下线，就我跟房主打闪击战，死到最后没支援也没空袭可扔了，还剩两 ...</blockquote>
+超级地球不需要活着的英雄（）<blockquote>“不要为我流泪，我的荣誉长存”</blockquote>
+

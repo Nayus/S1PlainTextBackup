@@ -2859,3 +2859,16 @@ ATLUS Exclusive公開記念特番
 <img src="https://p.sda1.dev/16/28cc6a5581b4b1784ebb3e137a91b0d6/SaveTwitter.Net_1779305962056151040_720p_.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/16/579e8bd1abf02e2602ade899dc043b4f/SaveTwitter.Net_1779887553371308032_720p_.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 175#         楼主| 发表于 2024-4-16 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612920&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-4-16 09:37</a>
+
+主角是不是有配音了？官方有说吗？
+
+—— 来自 OPPO PGBM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没提，但楼上有坛友说主角的台词有三百页
+

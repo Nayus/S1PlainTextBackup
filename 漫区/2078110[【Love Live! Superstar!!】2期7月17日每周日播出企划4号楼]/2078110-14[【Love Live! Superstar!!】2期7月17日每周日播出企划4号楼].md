@@ -759,3 +759,18 @@ toupai
 
 5组CW曲完整版真好听
 
+
+*****
+
+####  Goisdust  
+##### 20001#       发表于 2024-4-16 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64619814&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-4-16 19:33</a>
+
+还真有人破防啊，莲已经搞的够和平了吧？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+反正我看到还不少
+
+莲说白了，除了卖CP和前辈团比就没有什么可取的，现在还往三对官配各加一个电灯泡
+

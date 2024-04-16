@@ -10155,3 +10155,16 @@ ost哪里可以听啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 2024-4-16 22:34 上传
 
+
+*****
+
+####  天风绯炎  
+##### 15719#       发表于 2024-4-16 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621462&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:25</a>
+
+这么多年了还是第一次在发售日前收到BD，你GO对国内观众真是不错
+
+—— 来自 Xiaomi 2106118C, And ...</blockquote>
+好快啊，是rng渠道的货吗？
+

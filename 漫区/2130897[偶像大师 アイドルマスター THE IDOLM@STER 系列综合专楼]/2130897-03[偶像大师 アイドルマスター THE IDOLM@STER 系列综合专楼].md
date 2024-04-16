@@ -2772,3 +2772,13 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 什么时候出暮光叶月
 
+
+*****
+
+####  Swss  
+##### 3229#       发表于 2024-4-17 02:42
+
+不安，感觉这个if是给所有人补完然后就要大结局一样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2188A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

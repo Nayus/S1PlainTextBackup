@@ -364,3 +364,19 @@ Demo玩下来，星剑最多勾到第二梯队，手感、打击感称不上好�
 金亨泰访谈猛舔横尾，横尾好像完全没反映，尼尔联动无望？</blockquote>
 三大公交车哪有联动不上的选项 只要给钱就能联
 
+
+*****
+
+####  卡博雷z  
+##### 715#       发表于 2024-4-16 10:19
+
+日亚预定了，26号就能配送到，爽到
+
+<img src="https://img.saraba1st.com/forum/202404/16/101928dmcp9jossclc0ocq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 10:19 上传
+

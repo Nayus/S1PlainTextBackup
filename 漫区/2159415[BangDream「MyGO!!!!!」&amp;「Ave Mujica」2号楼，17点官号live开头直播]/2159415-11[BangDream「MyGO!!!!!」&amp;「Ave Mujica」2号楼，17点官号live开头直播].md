@@ -9528,3 +9528,69 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 
 感觉鸡舞台剧绝对有现实对应，假药含量大幅度上升了，我的新小剧场在哪<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15663#       发表于 2024-4-16 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么塞了这么多mujica动画才会有的东西……果然是连续制作而且早就做完了吧
+
+*****
+
+####  qjw114514  
+##### 15664#       发表于 2024-4-16 11:58
+
+啊，睦的表情可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 15665#       发表于 2024-4-16 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613688&amp;ptid=2159415" target="_blank">remedios010000 发表于 2024-4-16 10:35</a>
+
+但是从现实作曲的角度来说肯定是先做7集的再做的3集的片段最后加长个C团完整版的啊而且我觉得现在 ...</blockquote>
+先C团再MyGO
+
+访谈上也有说，但其实根据作编曲藤田淳平也能推断出来
+
+他本人就是键盘手，所以会优先去写C团(舒适区)
+
+*****
+
+####  御幸一也  
+##### 15666#       发表于 2024-4-16 12:01
+
+喵夢的icon自己的自拍笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/16/120121mherdmuxpggx9gr0.jpg" referrerpolicy="no-referrer">
+
+<strong>A0127135CDB92363CCA963F5E8445894.jpg</strong> (158.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 12:01 上传
+
+*****
+
+####  PDQ4  
+##### 15667#       发表于 2024-4-16 12:01
+
+那我鸡BD怎么办，一定是有新演出服的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  竹嶋  
+##### 15668#       发表于 2024-4-16 12:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer"> 初华海玲好帅
+
+*****
+
+####  PDQ4  
+##### 15669#       发表于 2024-4-16 12:06
+
+怎么喵梦这身看起来有点小短腿，果然只有165左右吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

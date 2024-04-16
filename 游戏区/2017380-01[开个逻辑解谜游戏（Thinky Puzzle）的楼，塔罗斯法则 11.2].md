@@ -2908,3 +2908,26 @@ discord 上也有不少人说相同问 ...</blockquote>
 
 以及 Parabox 全通平均应该还是有 10h 左右游戏时间的，不过主线关卡难度确实设计的极其克制，给人感觉设计思路是非常单纯的展示机制交互能不卡人就不卡人，好让轻度玩家也能 eureka moment 一下
 
+
+*****
+
+####  Chia  
+##### 188#       发表于 2024-4-17 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621837&amp;ptid=2017380" target="_blank">铃森冬 发表于 2024-4-16 23:19</a>
+
+机制独特的话去年的 Can of Wormholes 吧，玩过都说好
+
+以及 Parabox 全通平均应该还是有 10h 左右游戏时 ...</blockquote>
+看了下挺眼熟的，收藏了
+
+多谢
+
+*****
+
+####  莉可厨  
+##### 189#       发表于 2024-4-17 01:29
+
+babaisyou作者的新作，有人玩过吗。
+还有吹哥到底在耍什么玩意，好久没关注了，22年的时候不是说新游戏快出了吗
+

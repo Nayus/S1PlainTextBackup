@@ -740,3 +740,14 @@ toupai
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ruffian  
+##### 19999#       发表于 2024-4-16 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618474&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-04-16 17:28:41</a>
+该说不说莲最近加新生的事情，看见几个魔怔退星搞莲“老面孔”破防真够好笑的 ...</blockquote>还真有人破防啊，莲已经搞的够和平了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

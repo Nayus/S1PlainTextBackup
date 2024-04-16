@@ -451,3 +451,32 @@ https://www.ign.com/articles/ste ... -yoko-hyung-tae-kim</blockquote>
 
 ・横尾太郎：听到了好多在日本听不到的夸赞，韩国真是个好国家。
 
+
+*****
+
+####  jbjack1215  
+##### 720#       发表于 2024-4-16 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64614844&amp;ptid=1978008" target="_blank">chdhdhd 发表于 2024-4-16 12:09</a>
+
+不是等销量，是等口碑，和卖的好不好没有关系
+
+匹诺曹和这部星刃，最初我都不期待一线水平，不如说觉得很 ...</blockquote>
+那我就明说
+
+一线二线的动作手感有明显的断层，不存在动作公式
+
+各家有自己的拿手绝活
+
+仿血源的皮诺曹，即便动作帧再像，依然也没完成血源的手感
+
+剑星的动作设计跟白金的尼尔2相比，就像是上古卷轴的mod水平
+
+仿忍组、仿战神，都是一样
+
+我自认二线的门槛很低，只要手感比the surge好就行，但可是有一大堆打击感连the surge的水平都没有
+
+还有一大堆类似mortal shell光卖皮相的三流arpg呢
+
+多玩点你就知道动作手感没那么好复制
+

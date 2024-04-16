@@ -1146,3 +1146,27 @@
 应该是废案，短期内基本不用想了，武器升级跟目前这套卖武器变体的氪金模式是冲突的。 ...</blockquote>
 我看说好像是上次更新多出来的文件，可能不是废案。。。
 
+
+*****
+
+####  jy000129  
+##### 3069#       发表于 2024-4-16 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612580&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-16 09:09</a>
+看测试视频，机器人现在警戒范围暗改到51米了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只是正面扇形范围，一般情况下你贴身站他背后都发觉不了你
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Launce  
+##### 3070#       发表于 2024-4-16 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64613009&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-16 09:45</a>
+
+只是正面扇形范围，一般情况下你贴身站他背后都发觉不了你
+
+—— 来自 HUAWEI WLZ-AL10, Android  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我这种潜行玩家没影响，开黑战个痛的这下真战个痛了
+

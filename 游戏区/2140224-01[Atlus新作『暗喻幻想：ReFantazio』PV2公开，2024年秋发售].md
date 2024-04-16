@@ -2833,3 +2833,13 @@ ATLUS Exclusive公開記念特番
 
 ※支持简体中文字幕
 
+
+*****
+
+####  baizhi  
+##### 173#       发表于 2024-4-16 09:37
+
+主角是不是有配音了？官方有说吗？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

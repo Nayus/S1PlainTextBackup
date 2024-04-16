@@ -1210,3 +1210,14 @@
 
 —— 来自 Sony SOG01, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 3075#       发表于 2024-4-16 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615653&amp;ptid=2170852" target="_blank">runningch 发表于 2024-4-16 13:12</a>
+
+感觉这警戒范围是不是也影响了隐刀虫和炮艇的活动范围？昨天N8被一群又一群的隐刀虫杀全场，而且感觉现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那东西索敌好像150米，索上就全图追了
+

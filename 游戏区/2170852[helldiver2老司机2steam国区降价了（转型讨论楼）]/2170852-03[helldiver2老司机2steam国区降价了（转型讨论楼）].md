@@ -1221,3 +1221,16 @@
 感觉这警戒范围是不是也影响了隐刀虫和炮艇的活动范围？昨天N8被一群又一群的隐刀虫杀全场，而且感觉现在 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那东西索敌好像150米，索上就全图追了
 
+
+*****
+
+####  kalavinka  
+##### 3076#         楼主| 发表于 2024-4-16 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615653&amp;ptid=2170852" target="_blank">runningch 发表于 2024-4-16 13:12</a>
+
+感觉这警戒范围是不是也影响了隐刀虫和炮艇的活动范围？昨天N8被一群又一群的隐刀虫杀全场，而且感觉现在 ...</blockquote>
+&gt; 透视单位：追踪虫始终得知玩家的位置，几乎不受任何潜行、烟雾等影响，但不会主动追击距离过于遥远的玩家，这点可能和游戏的刷怪机制有关。
+
+躲猫猫没用 还是得清巢穴<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

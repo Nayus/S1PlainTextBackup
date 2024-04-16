@@ -10114,3 +10114,14 @@ ost哪里可以听啊<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">冲动在乐天下了单（还没付款，有没有其他家特典图看看，不知道啥时候付钱）
 
+
+*****
+
+####  此行远兮  
+##### 15717#       发表于 2024-4-16 22:25
+
+<img src="https://p.sda1.dev/17/ccf52aba9fa7672e042a6292aba8fb7e/CMP_20240416222439942.jpg" referrerpolicy="no-referrer">
+这么多年了还是第一次在发售日前收到BD，你GO对国内观众真是不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

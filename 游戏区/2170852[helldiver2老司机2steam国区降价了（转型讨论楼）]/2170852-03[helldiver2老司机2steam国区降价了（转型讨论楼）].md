@@ -1135,3 +1135,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看测试视频，机器人现在警戒范围暗改到51米了
 
+
+*****
+
+####  nukecole  
+##### 3068#       发表于 2024-4-16 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608163&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-4-15 19:29</a>
+
+应该是废案，短期内基本不用想了，武器升级跟目前这套卖武器变体的氪金模式是冲突的。 ...</blockquote>
+我看说好像是上次更新多出来的文件，可能不是废案。。。
+

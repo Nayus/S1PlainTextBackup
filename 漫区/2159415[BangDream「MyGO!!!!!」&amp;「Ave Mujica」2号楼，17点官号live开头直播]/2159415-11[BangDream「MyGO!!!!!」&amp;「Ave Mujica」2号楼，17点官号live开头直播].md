@@ -9386,3 +9386,27 @@ https://bbs.nga.cn/read.php?tid=39882223&amp;fav=
 
 比她小的那个妹妹可爱要素超标了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KirigawaMaki  
+##### 15653#       发表于 2024-4-16 11:17
+
+睦笑起来真好看，两个小孩<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+祥4图好久没喝到好喝红茶有些落寞的神情<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KirigawaMaki  
+##### 15654#       发表于 2024-4-16 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64614004&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-16 10:59</a>
+这个是bd里的嘛可恶，我也想买了，现在还来得及嘛
+
+—— 来自 vivo V2227A, Android 14上的 S1Nex ...</blockquote>
+好像是bd附赠的特典小册子，闲鱼上应该能捡到几个转单的？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

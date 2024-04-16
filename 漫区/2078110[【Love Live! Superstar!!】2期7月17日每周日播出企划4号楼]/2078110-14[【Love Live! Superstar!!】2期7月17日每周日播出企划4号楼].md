@@ -680,3 +680,20 @@ toupai
 
 倒是莲加的这三是不是没有土妹子这样暗流定位同期lead的，至少现在看不出？
 
+
+*****
+
+####  Goisdust  
+##### 19994#       发表于 2024-4-16 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64612754&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-4-16 09:25</a>
+
+那就，毕业呗，刚开始介绍的时候不都有准备了吗。
+
+倒是莲加的这三是不是没有土妹子这样暗流定位同期lead的 ...</blockquote>
+不是百生吟子？
+
+另外两只3话剧情就入队了她一个人占了6话都还没正式加入
+
+而且一开始自我介绍说目标是LL优胜对应了梢，给我星2希奈子致敬可可的感觉
+

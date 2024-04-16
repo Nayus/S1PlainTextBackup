@@ -10027,3 +10027,11 @@ mana和喵梦是一同出道朋友（纯造谣）
 
 这个设定集的图示感觉喵老师还是高中生的可能性增大了，把衣服换换完全就是JK<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  car123  
+##### 15709#       发表于 2024-4-16 16:37
+
+完了我现在得了一种看到大祥老师脸脑袋中就会自动开始播放春日影的病<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

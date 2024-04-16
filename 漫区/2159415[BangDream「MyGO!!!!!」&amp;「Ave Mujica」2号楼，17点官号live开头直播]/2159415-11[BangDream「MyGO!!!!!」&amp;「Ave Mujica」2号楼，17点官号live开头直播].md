@@ -9678,3 +9678,88 @@ mujica参考ppp初设，贝斯是家人遗物的可能性<img src="https://stati
 
 穿马裤，把立希当马骑
 
+
+*****
+
+####  CyDiablo  
+##### 15680#       发表于 2024-4-16 12:27
+
+转自[https://b23.tv/MP9BpXs](https://b23.tv/MP9BpXs)
+<img src="https://p.sda1.dev/16/4c32d25fe63024298ab93ee1047e8b99/1713241443197.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/c4926c1c216cf0a013ed25da1cd55af3/1713241446537.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/7439ec3c1533a6ab660f6520766fe431/1713241449443.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/7bfb3d1c04d634f7e8b17d391619f2c7/1713241452295.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/16/9668c06de04a6dbd0b07ac44c4489d3f/1713241454909.jpg" referrerpolicy="no-referrer">
+
+真好看啊rikki<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫林不见  
+##### 15681#       发表于 2024-4-16 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615090&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-4-16 12:27</a>
+转自https://b23.tv/MP9BpXs</blockquote>
+阿农有特殊表情 阿农伟大<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15682#       发表于 2024-4-16 12:30
+
+灯唱歌的表情真的很动人<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 15683#       发表于 2024-4-16 12:30
+
+睦寶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/16/123021e7ywy7qcxwao7q8w.jpg" referrerpolicy="no-referrer">
+
+<strong>0cb5e0dc079142df1eb0d023c482e43f3826641.jpg</strong> (249.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 12:30 上传
+
+*****
+
+####  米拉苏尔  
+##### 15684#       发表于 2024-4-16 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64615090&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-4-16 12:27</a>
+转自https://b23.tv/MP9BpXs</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他人视角：左上右上右下
+海玲视角：左下
+
+*****
+
+####  NODY  
+##### 15685#       发表于 2024-4-16 12:32
+
+立希穿校服加围裙，父母不是双亡就是长期不在家这个假药我看是要成真了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 15686#       发表于 2024-4-16 12:35
+
+生气的表情太帅了这能不1？
+
+速速购入睦初睦海睦喵股。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15687#       发表于 2024-4-16 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睦all已经满仓了
+
+所有人表情里最帅的就是睦这个生气表情
+

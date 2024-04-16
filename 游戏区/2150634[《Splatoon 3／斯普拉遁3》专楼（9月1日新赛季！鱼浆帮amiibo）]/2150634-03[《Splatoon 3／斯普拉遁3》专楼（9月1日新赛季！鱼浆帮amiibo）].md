@@ -11355,3 +11355,19 @@ Jackpot成员年龄有谁知道？感觉像是一个大姐头带三个小孩，�
 论坛助手,iPhone</blockquote>
 基本都是提前1天，大概明天早上9点或10点出
 
+
+*****
+
+####  shirolin  
+##### 4122#       发表于 2024-4-17 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621858&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-4-16 23:22</a>
+基本都是提前1天，大概明天早上9点或10点出</blockquote>
+更新内容一般北京时间9点放，官推有时候会慢几分钟。
+
+先放个地址：
+
+https://www.nintendo.co.jp/support/switch/software_support/av5ja/720.html
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

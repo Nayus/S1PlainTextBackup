@@ -1414,3 +1414,13 @@ Scopes on some weapons such as the Anti-Materiel Rifle are ...</blockquote>
 
 10分钟30橙样本,谁还救那些刁民啊
 
+
+*****
+
+####  风萧飒  
+##### 3090#       发表于 2024-4-16 20:49
+
+n9机器人太恐怖了，什么时候出核弹<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我要跟这些玩意同归于尽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

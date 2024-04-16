@@ -2716,3 +2716,19 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 3223#       发表于 2024-4-16 20:49
+
+ 本帖最后由 rgauss 于 2024-4-16 20:53 编辑 
+
+哎 小高又来骗氪了 这红色甘奈又得抽
+
+等下 不能叶月吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 小高nmsl
+
+冠军皮？ 未来女友皮
+
+羽那的if能写出啥剧情呢
+

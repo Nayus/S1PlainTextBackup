@@ -9852,3 +9852,35 @@ mujica：已完成/主流出道pro-mygo：未完成/学生社团
 
 之前就看到讨论说独角兽特地选了若麦这种很乡土的名字就是暗示农村出身
 
+
+*****
+
+####  PDQ4  
+##### 15693#       发表于 2024-4-16 13:29
+
+什么大公司朋友，那我要造谣mana了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 15694#       发表于 2024-4-16 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线索都串起来了（没有
+
+
+*****
+
+####  Aloereed  
+##### 15695#       发表于 2024-4-16 13:34
+
+两个上京人，mana被选上了当了偶像，而喵梦只能加入大祥老师的一丘之貉了（……
+
+*****
+
+####  SakuraのOrigami  
+##### 15696#       发表于 2024-4-16 13:37
+
+什么连续剧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

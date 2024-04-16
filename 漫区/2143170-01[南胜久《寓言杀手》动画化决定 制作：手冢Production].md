@@ -72,3 +72,13 @@
 香菜配的这个角色后面戏份怎么样？要是还有她的话就再看几集</blockquote>
 可以说是戏份仅次于“妹妹”的吧，在漫画第一部参与了大部分主线，虽然是被卷进来的
 
+
+*****
+
+####  smdzh2  
+##### 82#       发表于 2024-4-16 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64608149&amp;ptid=2143170" target="_blank">没取名啊 发表于 2024-4-15 20:28</a>
+香菜配的这个角色后面戏份怎么样？要是还有她的话就再看几集</blockquote>
+漫画第一部雷打不动的女二，动画版接下来第一个大案子就是和她有关的
+

@@ -10282,3 +10282,16 @@ bd修正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://p.sda1.dev/17/7b2822b7afc0e2cde7b908e176690414/CMP_20240417053723712.jpg" referrerpolicy="no-referrer">https://x.com/happybunny0x0/status/1780193851392852160
 
+
+*****
+
+####  downforce  
+##### 15730#       发表于 2024-4-17 06:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621734&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-4-16 23:05</a>
+
+这个字幕应该是外挂的吧？能单独提取吗？和目前限时上架那个有差别（颜色以外）没有？
+
+ ...</blockquote>
+BD碟里的字幕还有外挂的？不都是内封的吗？提取出来是sup文件，实际每个字都是图片Subtitle Picture，还需要做ocr才能制作成srt字幕。
+

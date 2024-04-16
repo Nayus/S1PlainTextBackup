@@ -1613,3 +1613,14 @@ scary……</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  6x6z6w  
+##### 3112#       发表于 2024-4-17 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64622141&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-17 00:05</a>
+
+不是，是设定，因为箭头觉得这样很平衡</blockquote>
+不太懂<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">反器材这种需要精度瞄准的就算了，重机枪只要蹲着或者趴着用加个准星我觉得就行了，这都不加平衡实在有点烂
+

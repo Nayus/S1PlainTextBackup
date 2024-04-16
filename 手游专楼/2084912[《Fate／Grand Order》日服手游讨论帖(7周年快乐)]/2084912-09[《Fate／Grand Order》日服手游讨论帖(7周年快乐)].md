@@ -1443,3 +1443,11 @@ MD我就不该打什么狗逼全加成，累死了，打到后面完全是在跟
 
 本来认定男的绝对不抽的，现在想趁着最后下去捞面具伯爵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12121#       发表于 2024-4-16 15:52
+
+10張符給了LADY池，當然沒事發生(其實有點想要FAKER)
+

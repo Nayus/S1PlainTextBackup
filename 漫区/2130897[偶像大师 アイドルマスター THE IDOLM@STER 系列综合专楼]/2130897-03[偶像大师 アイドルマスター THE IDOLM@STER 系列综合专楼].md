@@ -2690,3 +2690,29 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 来个跳过公演功能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 跟ip一样
 
+
+*****
+
+####  Unlight  
+##### 3222#         楼主| 发表于 2024-4-16 20:43
+
+ 本帖最后由 Unlight 于 2024-4-16 20:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/16/204450ggc9eaaacgq0ad6e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3261.JPG</strong> (25.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202404/16/204306yf0w0bvzojbyycsm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3260.JPG</strong> (173.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-16 20:43 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -26,3 +26,11 @@
 先把ST发型换衣服就没了的问题改一下吧</blockquote>
 请去把ST的绊剧情还是四星剧情都看了解锁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl7424994  
+##### 1024#       发表于 2024-4-18 06:49
+
+阿金：很难用的意见我们收到了，准备改善发动条件。至于叫出来的队友挨打会掉血还会被打死的设计，我们觉得很酷，不打算改
+

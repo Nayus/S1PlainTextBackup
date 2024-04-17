@@ -11401,3 +11401,13 @@ https://www.nintendo.co.jp/support/switch/software_support/av5ja/720.html
 
 我补丁呢
 
+
+*****
+
+####  shirolin  
+##### 4126#       发表于 2024-4-17 09:07
+
+来了
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

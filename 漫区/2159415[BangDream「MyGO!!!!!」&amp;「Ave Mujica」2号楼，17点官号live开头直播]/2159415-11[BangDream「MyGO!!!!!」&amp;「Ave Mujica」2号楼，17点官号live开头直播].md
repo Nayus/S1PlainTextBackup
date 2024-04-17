@@ -10360,3 +10360,13 @@ ost感觉剧透不少</blockquote>
 <img src="https://p.sda1.dev/17/b30f4958b5fecb02b9d35a1379a7f221/CMP_20240417155303166.jpg" referrerpolicy="no-referrer">
 —— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  1a不解释  
+##### 15736#       发表于 2024-4-17 15:55
+
+我的查日本ems14号就到广州了，然后一直没有消息<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

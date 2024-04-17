@@ -1763,3 +1763,47 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 坐等8人图，atat，泰坦和三角机甲同屏出现，超级地球也需要有自己的巨兽战场。
 
+
+*****
+
+####  6x6z6w  
+##### 3126#       发表于 2024-4-17 12:46
+
+ 本帖最后由 6x6z6w 于 2024-4-17 12:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626489&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-17 12:33</a>
+
+坐等8人图，atat，泰坦和三角机甲同屏出现，超级地球也需要有自己的巨兽战场。 ...</blockquote>
+不要说高达了，超级气球起码弄个星河战队里那样的单兵高火力高机动型外骨骼出来对抗才像话吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">现在那套机甲看着比眼镜狗这种铁棺材还脆，走得还贼慢
+
+*****
+
+####  rainknine  
+##### 3127#       发表于 2024-4-17 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626267&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-17 12:15</a>
+atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
+
+—— 来自 S1Fun</blockquote>
+肚皮弱点的前提是要肚皮开门生喜锯人吧，就算是现在打不怎么移动的atat，要抓这个时间窗感觉都很难把握，我没试成功过——机炮打的子弹感觉全被喜锯人接住了
+
+
+*****
+
+####  MkChang  
+##### 3128#       发表于 2024-4-17 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626287&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-17 12:16</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怖如斯
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ashice  
+##### 3129#       发表于 2024-4-17 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626287&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-17 12:16</a></blockquote>
+第一眼以为是斯安威斯坦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

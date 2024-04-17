@@ -1507,3 +1507,18 @@ lv100的拉二，C呆，女梅林。   129个徽章
 
 希望下午至少开个魔夜预热，QP本和棋子本减半，虽然限时任务要刷这俩，但40AP没兴趣点进去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12128#       发表于 2024-4-17 12:50
+
+今天没停机更新的话感觉不会出DL或者带内容的预热，PU倒是不一定
+
+*****
+
+####  alucardcz  
+##### 12129#       发表于 2024-4-17 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">护符是有灵魂的
+

@@ -2939,3 +2939,11 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  抽烟的猴  
+##### 182#       发表于 2024-4-17 21:44
+
+不止播片，上面的对话截图也有种二十年前rpg的风味<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

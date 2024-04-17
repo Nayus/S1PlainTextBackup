@@ -2931,3 +2931,19 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 角色跟我开始想的一样 85不算小（）
 
+
+*****
+
+####  Unlight  
+##### 3244#         楼主| 发表于 2024-4-17 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630628&amp;ptid=2130897" target="_blank">白河响剑 发表于 2024-4-17 18:29</a>
+哎 有专楼哦
+
+加班时挂着PMM的视频到了偶像大师瞟了一眼
+
+来了点手绘2DLIVE的小震撼</blockquote>
+星耀季节建议玩之前把动画看了，看本家（2011，jzgg）和剧场版就行，基本可以正好接上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

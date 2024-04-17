@@ -1818,3 +1818,22 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 10分钟30橙样本,谁还救那些刁民啊</blockquote>
 一个人去救就行，野外拉两次警报之后分一个人进去救，基地里就不会刷怪了
 
+
+*****
+
+####  Aeons  
+##### 3131#       发表于 2024-4-17 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626287&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-17 12:16</a></blockquote>
+据说是带了定位混淆的bug。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我和朋友开黑见过，虽然下来的容易卡住一锅端，但还是很幽默只能说。
+
+*****
+
+####  Aeons  
+##### 3132#       发表于 2024-4-17 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626666&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-17 12:47</a>
+肚皮弱点的前提是要肚皮开门生喜锯人吧，就算是现在打不怎么移动的atat，要抓这个时间窗感觉都很难把握， ...</blockquote>
+机炮肚皮在第一个版本不开门也能打，现在修复没有不知道
+

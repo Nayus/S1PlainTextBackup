@@ -1416,3 +1416,23 @@ O了，隔壁竞轮比这个烂得多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">f1就是出蓝旗，让路，不让路出黑旗。这片里面也是出蓝旗，不但没让路还超车，出黑旗。规则都一样。这么说你明白了吗
 
+
+*****
+
+####  RPG-7  
+##### 253#       发表于 2024-4-17 13:12
+
+F1套圈的也能反超<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> （顺便把头车撞出去
+
+*****
+
+####  550616  
+##### 254#       发表于 2024-4-17 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626814&amp;ptid=2081261" target="_blank">菲特妹 发表于 2024-4-17 12:59</a>
+
+f1就是出蓝旗，让路，不让路出黑旗。这片里面也是出蓝旗，长期没让路，还干扰领先车，出黑旗，罚1 ...</blockquote>
+问题出在前面的直道阻挡不让过
+
+F1如果前面太慢是可以超回去的，哪怕是套圈的
+

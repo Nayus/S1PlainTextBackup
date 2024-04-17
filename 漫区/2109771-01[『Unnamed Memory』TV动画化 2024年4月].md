@@ -40,3 +40,11 @@
 
 还好我看完第一集之后紧急去补了小说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊克路西安  
+##### 78#       发表于 2024-4-17 08:07
+
+漫画做到小说多少卷了？
+

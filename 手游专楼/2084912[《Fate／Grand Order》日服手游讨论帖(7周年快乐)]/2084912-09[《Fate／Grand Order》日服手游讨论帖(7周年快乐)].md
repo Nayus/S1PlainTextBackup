@@ -1564,3 +1564,27 @@ lv100的拉二，C呆，女梅林。   129个徽章
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 12135#       发表于 2024-4-17 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 我还以为会up215呢
+
+*****
+
+####  UNISONIA  
+##### 12136#       发表于 2024-4-17 17:14
+
+历代联动复刻（实际上只有四格、FR和魔伊）
+
+联动大概26日晚上开
+
+*****
+
+####  洛克萨斯  
+##### 12137#       发表于 2024-4-17 17:15
+
+26号魔夜活动直播
+

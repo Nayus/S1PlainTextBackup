@@ -2984,3 +2984,28 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  废都刽子手  
+##### 3248#       发表于 2024-4-17 19:37
+
+这个发型很容易幻视成坤坤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 3249#       发表于 2024-4-17 19:40
+
+角色都85 觉得中之人大点没问题
+
+*****
+
+####  伊布桑  
+##### 3250#       发表于 2024-4-17 19:41
+
+老人当对手是吧，去隔壁ip棚抽两个人吧（
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

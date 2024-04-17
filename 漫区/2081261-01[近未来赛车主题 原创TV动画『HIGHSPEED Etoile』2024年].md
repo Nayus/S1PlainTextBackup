@@ -1444,3 +1444,29 @@ F1如果前面太慢是可以超回去的，哪怕是套圈的
 
 你们这么懂赛车竟然还觉得中规中矩吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菲特妹  
+##### 256#       发表于 2024-4-17 13:42
+
+ 本帖最后由 菲特妹 于 2024-4-17 13:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626946&amp;ptid=2081261" target="_blank">550616 发表于 2024-4-17 13:12</a>
+
+问题出在前面的直道阻挡不让过
+
+F1如果前面太慢是可以超回去的，哪怕是套圈的 ...</blockquote>
+第二名套圈接近也没让<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">还给了特写，十分抽象
+
+*****
+
+####  550616  
+##### 257#       发表于 2024-4-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64627272&amp;ptid=2081261" target="_blank">菲特妹 发表于 2024-4-17 13:42</a>
+
+第二名套圈接近也没让还给了特写，十分抽象</blockquote>
+我记得维斯塔盘和加大师还是奥康就有这么一下
+
+导致头车退赛了（笑哭）
+

@@ -813,3 +813,11 @@ toupai
 看店，也怕黑卡。现在日元便宜，自己搞个jcb的卡其实也不算贵（当然代充那种价格线是做不到的） ...</blockquote>
 不是那个，是b站的b币，想充🐟那个收藏的。看了下便宜不少。
 
+
+*****
+
+####  cybernetics31  
+##### 20006#       发表于 2024-4-17 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初大人她们真毕业了就等着骂吧反正
+

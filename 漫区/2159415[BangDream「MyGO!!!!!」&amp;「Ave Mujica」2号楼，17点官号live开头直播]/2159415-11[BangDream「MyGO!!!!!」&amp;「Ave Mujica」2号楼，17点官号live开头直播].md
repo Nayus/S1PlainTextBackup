@@ -10402,3 +10402,19 @@ EMS查就行了，过了海关以后基本就跟国内ems时效一样了
 
 —— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Alicest  
+##### 15740#       发表于 2024-4-17 18:24
+
+不是，这bd没修啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/17/182446xpb2vc22tdvaphp2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:24 上传
+

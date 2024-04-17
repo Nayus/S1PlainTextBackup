@@ -1653,3 +1653,17 @@ scary……</blockquote>
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Benighted  
+##### 3116#       发表于 2024-4-17 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64623641&amp;ptid=2170852" target="_blank">灰色蔓延 发表于 2024-4-17 08:46</a>
+昨晚两盘n7都是开局空投atat骑脸
+不过好像感觉脆了点？380飞鹰空袭全弹发射后就还是炸了…
+另外一个 ...</blockquote>
+只能怪超级气球抠门不给冻肉配热成像了
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

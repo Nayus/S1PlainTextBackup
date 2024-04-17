@@ -1688,3 +1688,14 @@ scary……</blockquote>
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rainknine  
+##### 3119#       发表于 2024-4-17 11:36
+
+atat能被运输船空投下来，也就是说运输船的运载力完全能支持atat不空投下来当个空中堡垒
+
+一个全身重甲，打弱点头部都能吃六下筒子，时不时生喜锯人的空中机枪加农炮火力，感觉天下无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+机器人还是太讲武德了
+

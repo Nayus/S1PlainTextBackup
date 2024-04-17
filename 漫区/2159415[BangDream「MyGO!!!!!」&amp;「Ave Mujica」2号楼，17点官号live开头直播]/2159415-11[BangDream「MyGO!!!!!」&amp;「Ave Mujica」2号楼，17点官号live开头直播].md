@@ -10295,3 +10295,11 @@ bd修正了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
  ...</blockquote>
 BD碟里的字幕还有外挂的？不都是内封的吗？提取出来是sup文件，实际每个字都是图片Subtitle Picture，还需要做ocr才能制作成srt字幕。
 
+
+*****
+
+####  紫吹兰  
+##### 15731#         楼主| 发表于 2024-4-17 11:36
+
+说实话，Crythic这两首吉他存在感是真的低，感觉不如贝斯。睦从没觉得玩乐队开心和soyo对Crythic恋恋不舍看起来都是编曲全责<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

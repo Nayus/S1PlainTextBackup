@@ -4595,3 +4595,15 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 ワイヤーフレーム表示
 <img src="https://p.sda1.dev/17/fee3f360e7bb5503169850041ceb6144/g.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 366#       发表于 2024-4-17 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64631019&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-17 19:07</a>
+可能是年龄变化带来的心境变化，我看完甚至感到生理性不适。
+
+回不到看种的年纪了啊。 ...</blockquote>
+种狗血度比这个当然差远了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

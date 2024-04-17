@@ -847,3 +847,21 @@ toupai
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ruffian  
+##### 20009#       发表于 2024-4-17 22:21
+
+挺好的，也就是说这次k组必不能再纯站桩了对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就是希望还能有始空那样的动画mv，不过星现在明显经费没有给到mv上，真人mv都一个比一个省钱，三个动画mv属于是想桃子了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  280041437  
+##### 20010#       发表于 2024-4-17 22:26
+
+k组新单本来就有编舞的，必不可能站桩
+

@@ -1667,3 +1667,14 @@ scary……</blockquote>
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wthall  
+##### 3117#       发表于 2024-4-17 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618731&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-16 17:49</a>
+
+打虫群和巢穴原来的机甲也是随便打，没差别。打重甲好歹火箭能打打，新的那个根本没法打重甲。 ...</blockquote>
+原来的机甲打虫巢真心脑子痛，各种打不到，那个准星根本看不懂
+

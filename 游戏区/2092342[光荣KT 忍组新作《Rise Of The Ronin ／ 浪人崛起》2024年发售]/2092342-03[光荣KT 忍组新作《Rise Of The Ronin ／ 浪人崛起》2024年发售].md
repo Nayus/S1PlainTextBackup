@@ -700,3 +700,32 @@ FFO的主角虽然表现为卡奥斯魔怔人，但剧情最后算是圆上了�
 横滨滑翔训练那本书怎么拿？我已经全撞掉了</blockquote>
 横滨有两个飞行的点，估计你去的不是给书的那个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  霖岚_  
+##### 3033#       发表于 2024-4-17 10:46
+
+这京都居然连个道场都没的么，像刷极传还得回魂录回横滨或江户，结果传回来还碰上治安点全部重刷的bug，看着满图红点人都麻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+还有部分流派里面的初传解锁是怎么判定的，有两个流派一直挂着桂小五郎和近藤勇道场初传解锁，但我道场都全极传了，后面试了拖时间拿初传，试了几回都不行……
+
+*****
+
+####  asakura20005  
+##### 3034#       发表于 2024-4-17 10:49
+
+京都道场在新选组大本营
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  医生狼多  
+##### 3035#       发表于 2024-4-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64624992&amp;ptid=2092342" target="_blank">铁甲钢弹 发表于 2024-4-17 10:37</a>
+横滨有两个滑翔训练，都做一下就可以解锁了我记得。</blockquote>
+get
+syl，这游戏居然还做了自动寻路，昨天听电台才知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3181,3 +3181,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 仔细一想前几年吃切片时一眼就看中了咲耶
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">对这种假小子/王子真是毫无抵抗力
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3269#       发表于 2024-4-18 00:16
+
+可能为了保证出场live先休息吧，之前百act4之前pyon也停了一期广播
+

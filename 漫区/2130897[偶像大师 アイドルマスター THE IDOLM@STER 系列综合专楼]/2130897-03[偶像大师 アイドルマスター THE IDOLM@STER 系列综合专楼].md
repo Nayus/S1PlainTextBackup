@@ -3084,3 +3084,43 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥叫唱功一个段位，道玄坂登跟kraz也不是一个水平啊，嗓门倒确实是大的。
 
+
+*****
+
+####  Kreis  
+##### 3259#       发表于 2024-4-17 20:57
+
+角色出完了吧，奶油糖写的哪首啊？莉莉娅？感觉这次写的歌不够爆款啊...
+
+*****
+
+####  Alicest  
+##### 3260#       发表于 2024-4-17 21:00
+
+才注意到有一天迷光是solo组合
+
+<img src="https://img.saraba1st.com/forum/202404/17/210027z1876pikz8f7mx7h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 21:00 上传
+
+*****
+
+####  cckuku  
+##### 3261#       发表于 2024-4-17 21:01
+
+看了一圈最对胃口的是小红小黄莉莉娅，里黄c看脸我也很喜欢，声音等介绍再看看<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 3262#       发表于 2024-4-17 21:05
+
+<blockquote>Kreis 发表于 2024-4-17 20:57
+角色出完了吧，奶油糖写的哪首啊？莉莉娅？感觉这次写的歌不够爆款啊...</blockquote>
+还有对手的三首吧。不知道有没有懂作家的把前面九首歌是谁负责的都判断出来了。
+

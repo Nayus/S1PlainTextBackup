@@ -1640,3 +1640,16 @@ scary……</blockquote>
 
 停着的是额外人口啊，说的是巡逻和警报吧
 
+
+*****
+
+####  灰色蔓延  
+##### 3115#       发表于 2024-4-17 08:46
+
+昨晚两盘n7都是开局空投atat骑脸<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+不过好像感觉脆了点？380飞鹰空袭全弹发射后就还是炸了…
+另外一个低视野图里就摸一个兴趣点就变成了十面埋伏的添油大战，迷雾里不断随机骑脸刷新和空投，近距离和机枪哥火箭哥突然贴脸实在过于刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+凭啥对面雾气里都能准确锁定，披风虫看对面只有昏黄里一片弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -10440,3 +10440,31 @@ EMS查就行了，过了海关以后基本就跟国内ems时效一样了
 
 另外CCC这两首，（真）贝斯存在感是真的强。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15743#       发表于 2024-4-17 18:55
+
+整理第2话发现的细节时突然发现
+
+三人组怎么用的是ESP琴包，而且这吉他包跟贝斯包的长度一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+(虽说三人组用的乐器根本不是ESP的)
+
+QQ图片20240417183220.jpg
+(192.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/17/185550osvy0jsj1vgis6xs.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  米拉苏尔  
+##### 15744#       发表于 2024-4-17 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">期待混团春日影
+

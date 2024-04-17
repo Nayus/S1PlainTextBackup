@@ -10683,3 +10683,21 @@ mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引
 
 这bd调色调的是个什么玩意，有必要把对比度拉这么高吗，观感不太行
 
+
+*****
+
+####  御幸一也  
+##### 15763#       发表于 2024-4-18 05:09
+
+狗狗！！<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/18/050856ki9t0uut666u6uhw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240417-145027_1780609774612316198_photo.jpg</strong> (136.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 05:08 上传
+
+[https://twitter.com/bpdne/status/1780609774612316198](https://twitter.com/bpdne/status/1780609774612316198)
+

@@ -10303,3 +10303,15 @@ BD碟里的字幕还有外挂的？不都是内封的吗？提取出来是sup文
 
 说实话，Crythic这两首吉他存在感是真的低，感觉不如贝斯。睦从没觉得玩乐队开心和soyo对Crythic恋恋不舍看起来都是编曲全责<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 15732#       发表于 2024-4-17 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618988&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-16 18:11</a>
+ost感觉剧透不少</blockquote>
+这里面还包括母鸡卡动画的ost吗？
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

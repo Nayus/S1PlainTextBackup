@@ -1377,3 +1377,14 @@ O了，隔壁竞轮比这个烂得多
 
 打游戏模拟器车手doge...
 
+
+*****
+
+####  菲特妹  
+##### 250#       发表于 2024-4-17 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64623026&amp;ptid=2081261" target="_blank">550616 发表于 2024-4-17 06:01</a>
+蓝旗后反超为啥黑旗了</blockquote>
+蓝旗就是后面有套圈车，要求让路
+黑旗就是违规，一般罚停，严重的话直接取消资格。蓝旗不让路是其中一种违规
+

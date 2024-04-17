@@ -1745,3 +1745,21 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 2024-4-17 12:16 上传
 
+
+*****
+
+####  dfbbymice  
+##### 3124#       发表于 2024-4-17 12:29
+
+现在难9机器人真是难上天了，打到后面任务点周边全是巡逻队还多半带甲，昨晚有一局焦土加飞矛摸鱼偷塔配置，全局400多枪击中，只有99击杀我都有点怀疑我是不是真的打了600多发子弹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ddwhzh  
+##### 3125#       发表于 2024-4-17 12:33
+
+坐等8人图，atat，泰坦和三角机甲同屏出现，超级地球也需要有自己的巨兽战场。
+

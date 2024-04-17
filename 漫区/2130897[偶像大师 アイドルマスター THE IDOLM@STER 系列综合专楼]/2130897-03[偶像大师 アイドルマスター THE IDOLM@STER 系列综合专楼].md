@@ -2947,3 +2947,30 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ViviR  
+##### 3245#       发表于 2024-4-17 19:19
+
+<blockquote>rgauss 发表于 2024-4-17 18:37
+头发也挺长
+
+他妈的 六文字选里三家能不能选老声优</blockquote>
+主要肯定还是推新人。老声优可以期待下周的对手介绍。不过中之人资历越老人越忙就越有一种后面也没法p的感觉就是了（
+
+*****
+
+####  安广多惠子  
+##### 3246#       发表于 2024-4-17 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630628&amp;ptid=2130897" target="_blank">白河响剑 发表于 2024-4-17 18:29</a>
+哎 有专楼哦
+
+加班时挂着PMM的视频到了偶像大师瞟了一眼
+
+来了点手绘2DLIVE的小震撼</blockquote>
+不合适，看上哪个角色哪首歌建议去玩对应那家的手游，星耀季节的游戏性和角色塑造基本等于一点没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

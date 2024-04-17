@@ -4545,3 +4545,19 @@ HJ 2024年5月号《剧场版 机动战士敢达SEED FREEDOM》相关作例，�
 
 回不到看种的年纪了啊。
 
+
+*****
+
+####  死难者23er  
+##### 364#       发表于 2024-4-17 19:22
+
+阿斯兰和卡嘉莉这个战斗力，官方只要好好对他们肯定是有钱赚的
+
+<img src="https://img.saraba1st.com/forum/202404/17/192210dceg19tjfqp9swiz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D4DB09DB-CADE-40E9-91A6-BF9B437B3461.jpeg</strong> (202.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 19:22 上传
+

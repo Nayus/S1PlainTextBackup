@@ -10499,3 +10499,16 @@ mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引
 
 另外五个人和春日影不熟，真要听十人合唱不如期待一下競宴二代，虽然会有点难为你羊姐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15748#       发表于 2024-4-17 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630931&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-17 18:58</a>
+
+mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引现充的路线？
+
+ ...</blockquote>
+這個挺貴的，武士道這次確實花了錢
+

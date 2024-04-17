@@ -10388,3 +10388,17 @@ ost感觉剧透不少</blockquote>
 
 日本EMS的单号可以在国内EMS直接查询，一般来说从海关出来还得2，3天吧
 
+
+*****
+
+####  此行远兮  
+##### 15739#       发表于 2024-4-17 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64628903&amp;ptid=2159415" target="_blank">downforce 发表于 2024-4-17 15:52</a>
+我这个状态距离到手大概还要几天？
+
+—— 来自 Xiaomi 22061218C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+EMS查就行了，过了海关以后基本就跟国内ems时效一样了
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

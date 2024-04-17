@@ -1874,3 +1874,26 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jy000129  
+##### 3137#       发表于 2024-4-17 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64628114&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-17 14:54</a>
+工厂目前看下来弱点一个在面门，一个在肚皮（不开门也可以打），还有一个是腿，但面门面积太小不好打，所以 ...</blockquote>
+打腿要几发？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 3138#       发表于 2024-4-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630044&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-17 17:27</a>
+打腿要几发？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+10发吧
+

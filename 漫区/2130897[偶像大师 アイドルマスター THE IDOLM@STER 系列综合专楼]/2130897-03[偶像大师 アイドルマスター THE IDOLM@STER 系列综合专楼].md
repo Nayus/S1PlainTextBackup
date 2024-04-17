@@ -3132,3 +3132,20 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 业界地位能比kraz的？那就几个人吧，希望别瞎吹
 
+
+*****
+
+####  陆久舟  
+##### 3264#       发表于 2024-4-17 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64632233&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-4-17 21:00</a>
+才注意到有一天迷光是solo组合 ...</blockquote>
+你说20号？有纪和eri是最后追加的
+
+*****
+
+####  rgauss  
+##### 3265#       发表于 2024-4-17 21:21
+
+奶油糖写的就是莉莉娅的吧 广的感觉是长谷川白纸的
+

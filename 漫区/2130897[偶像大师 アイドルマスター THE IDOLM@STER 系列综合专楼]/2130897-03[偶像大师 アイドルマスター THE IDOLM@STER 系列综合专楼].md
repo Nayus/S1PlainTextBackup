@@ -3076,3 +3076,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 157/46kg 85？什么老大鸽身材，这侧面真的能有85吗？裹胸这么神奇
 
+
+*****
+
+####  野菜一日分  
+##### 3258#       发表于 2024-4-17 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥叫唱功一个段位，道玄坂登跟kraz也不是一个水平啊，嗓门倒确实是大的。
+

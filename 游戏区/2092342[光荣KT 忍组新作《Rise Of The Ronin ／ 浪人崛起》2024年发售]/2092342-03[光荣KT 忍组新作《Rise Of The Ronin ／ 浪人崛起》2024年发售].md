@@ -769,3 +769,19 @@ syl，这游戏居然还做了自动寻路，昨天听电台才知道<img src="h
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  葵  
+##### 3040#       发表于 2024-4-17 17:53
+
+新选组队长级别的服装要怎么获得啊？普通队员的有了感觉挺土的，我和近藤土方冲田刷了好感度显示服装解锁，这个是在哪？还是后面任务会给队长级的服装？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SergeGlenn  
+##### 3041#       发表于 2024-4-17 17:55
+
+感觉衣服好看的不多，最后通关一直穿的黑甲武士没换过
+

@@ -1897,3 +1897,15 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 10发吧
 
+
+*****
+
+####  jy000129  
+##### 3139#       发表于 2024-4-17 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630059&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-17 17:28</a>
+10发吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那还是打头和肚皮快
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2915,3 +2915,17 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  AeonsTorn  
+##### 180#       发表于 2024-4-17 17:50
+
+ 本帖最后由 AeonsTorn 于 2024-4-17 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630118&amp;ptid=2140224" target="_blank">猫沢 发表于 2024-4-17 17:34</a>
+感觉不是，女神异闻录历来能操控的角色都画封面上的，官网character也就这五个，你说的那些是band。
+
+论 ...</blockquote>
+大眼妹台词直接说了自己觉醒了archetype啊，而且官网那个人物合照左右分布十分不对称，右边明显是留了空位等之后慢慢放出角色的
+<img src="https://p.sda1.dev/17/82e81188ecfb3b7a431d2d304d62fa9d/CMP_20240417175158425.jpg" referrerpolicy="no-referrer">
+

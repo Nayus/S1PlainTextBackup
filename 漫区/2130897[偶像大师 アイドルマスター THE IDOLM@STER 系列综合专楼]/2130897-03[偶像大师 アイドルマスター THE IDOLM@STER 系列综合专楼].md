@@ -3009,3 +3009,43 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  rgauss  
+##### 3251#       发表于 2024-4-17 19:46
+
+ 本帖最后由 rgauss 于 2024-4-17 19:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64631442&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-4-17 19:41</a>
+
+老人当对手是吧，去隔壁ip棚抽两个人吧（
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v2.2 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把IIIX抽过来 刚好三个人
+
+*****
+
+####  cckuku  
+##### 3252#       发表于 2024-4-17 19:47
+
+说是对手，反正到时候肯定会加到主角团里的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样看估计还会是三个新人。
+
+*****
+
+####  Unlight  
+##### 3253#         楼主| 发表于 2024-4-17 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64631534&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-17 19:47</a>
+说是对手，反正到时候肯定会加到主角团里的吧这样看估计还会是三个新人。 ...</blockquote>
+你看诗花和玲音也没移籍啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3254#       发表于 2024-4-17 19:52
+
+真要加主角团也不会太快
+

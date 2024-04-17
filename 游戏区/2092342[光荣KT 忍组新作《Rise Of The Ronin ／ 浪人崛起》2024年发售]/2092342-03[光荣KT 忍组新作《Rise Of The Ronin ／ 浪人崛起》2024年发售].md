@@ -729,3 +729,13 @@ FFO的主角虽然表现为卡奥斯魔怔人，但剧情最后算是圆上了�
 get
 syl，这游戏居然还做了自动寻路，昨天听电台才知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 3036#       发表于 2024-4-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64625130&amp;ptid=2092342" target="_blank">霖岚_ 发表于 2024-4-17 10:46</a>
+这京都居然连个道场都没的么，像刷极传还得回魂录回横滨或江户，结果传回来还碰上治安点全部重刷的bug，看 ...</blockquote>
+应该是另外一个形态你还没解锁，比如桂有个不醉的状态
+

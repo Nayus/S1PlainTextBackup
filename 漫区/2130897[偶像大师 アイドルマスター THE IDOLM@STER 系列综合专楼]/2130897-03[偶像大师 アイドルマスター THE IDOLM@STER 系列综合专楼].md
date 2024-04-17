@@ -2888,3 +2888,46 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 头发也挺长
 
+
+*****
+
+####  Alicest  
+##### 3241#       发表于 2024-4-17 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630678&amp;ptid=2130897" target="_blank">白河响剑 发表于 2024-4-17 18:36</a>
+
+好 游戏本身没啥问题就行
+
+我也要成为IMS凯子！！！</blockquote>
+能pc还是pc吧，dlc全解锁要的钱太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 3242#       发表于 2024-4-17 18:40
+
+学马仕颜一啊
+
+<img src="https://img.saraba1st.com/forum/202404/17/183951m40vk1ivvi53ko0k.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (170.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/17/183952zcuwz0zxl6zva6hv.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (172.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:39 上传
+
+*****
+
+####  rgauss  
+##### 3243#       发表于 2024-4-17 18:42
+
+角色跟我开始想的一样 85不算小（）
+

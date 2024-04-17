@@ -821,3 +821,18 @@ toupai
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初大人她们真毕业了就等着骂吧反正
 
+
+*****
+
+####  cat1230  
+##### 20007#       发表于 2024-4-17 18:43
+
+<blockquote>引用第20004楼优妮可于2024-04-17 17:00发表的  :
+
+引用:ads147147 发表于 2024-4-17 15:22看店，也怕黑卡。现在日元便宜，自己搞......</blockquote>
+@优妮可
+
+我买live门票的时候都是tb随便找家便宜的冲，目前没发现问题，捡销量高的买
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

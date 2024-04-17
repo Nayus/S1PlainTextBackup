@@ -2903,3 +2903,15 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧
 
 这代皮克希真可爱
 
+
+*****
+
+####  猫沢  
+##### 179#       发表于 2024-4-17 17:34
+
+<blockquote>AeonsTorn 发表于 2024-4-17 01:22
+pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote>
+感觉不是，女神异闻录历来能操控的角色都画封面上的，官网character也就这五个，你说的那些是band。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

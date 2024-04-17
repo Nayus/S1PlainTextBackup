@@ -2947,3 +2947,11 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 不止播片，上面的对话截图也有种二十年前rpg的风味<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星野航  
+##### 183#       发表于 2024-4-17 23:35
+
+本来就是“经典”rpg吧，当年出来吹的也是“重振真rpg”么，老味估计是最后的倔强了
+

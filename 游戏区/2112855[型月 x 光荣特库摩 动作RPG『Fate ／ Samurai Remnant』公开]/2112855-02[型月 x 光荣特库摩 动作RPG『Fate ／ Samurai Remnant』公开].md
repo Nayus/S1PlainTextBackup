@@ -120,3 +120,18 @@ DLC第2弾「断章・柳生秘剣帖」の
 
 看pv有新的强化，新的宝石魔法
 
+
+*****
+
+####  Piano-Forest  
+##### 1745#         楼主| 发表于 2024-4-17 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64601899&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2024-4-15 11:12</a>
+
+＼4月18日配信予定／
+
+DLC第2弾「断章・柳生秘剣帖」の
+
+あらすじを公開！</blockquote>
+PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
+

@@ -1632,3 +1632,11 @@ scary……</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真占吗，我经常能看到有atat停在哨站里，没去管他也没感觉怪变少了啊。
 
+
+*****
+
+####  唯识连刃  
+##### 3114#       发表于 2024-4-17 07:56
+
+停着的是额外人口啊，说的是巡逻和警报吧
+

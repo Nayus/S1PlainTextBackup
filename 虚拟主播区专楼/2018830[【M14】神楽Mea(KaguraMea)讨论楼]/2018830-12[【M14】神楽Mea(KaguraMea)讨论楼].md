@@ -87,3 +87,30 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不容易，官号终于好像活了。
 
+
+*****
+
+####  古战场亡魂  
+##### 16421#       发表于 2024-4-17 23:54
+
+<img src="https://img.saraba1st.com/forum/202404/17/235436z34d3ah99h90opze.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (119.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 23:54 上传
+
+*****
+
+####  古战场亡魂  
+##### 16422#       发表于 2024-4-17 23:55
+
+<img src="https://img.saraba1st.com/forum/202404/17/235531cmbifozpfoqo1oml.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 23:55 上传
+

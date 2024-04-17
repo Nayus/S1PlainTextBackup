@@ -3170,3 +3170,14 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 就先这样吧 周末出差回去刚好看完tv和动画 无缝衔接！
 大家都是丁香般的姑娘 曾经是萌豚的我怎么就错过了呢(
 
+
+*****
+
+####  白河响剑  
+##### 3268#       发表于 2024-4-17 23:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">真哥~可爱捏~真哥~
+可爱的~帅帅的~丁香般的姑娘！！！
+仔细一想前几年吃切片时一眼就看中了咲耶
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">对这种假小子/王子真是毫无抵抗力
+

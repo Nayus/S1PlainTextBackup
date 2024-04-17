@@ -10530,3 +10530,45 @@ mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引
 
 至少知道钱去哪了原谅一下武士道。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 15751#       发表于 2024-4-17 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621679&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:58</a>
+
+为什么要演奏春日影，官方简中字幕ver
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
+这里的画面好亮啊，我记得TV版里画面是比较暗的
+
+*****
+
+####  此行远兮  
+##### 15752#       发表于 2024-4-17 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64633970&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-4-17 23:47</a>
+这里的画面好亮啊，我记得TV版里画面是比较暗的</blockquote>
+我手机的问题，你看字幕已经过曝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  结衣小比取  
+##### 15753#       发表于 2024-4-17 23:50
+
+大马哈鱼上有这个 [2024.04.17] TVアニメ「BanG Dream! It's MyGO!!!!!」オリジナルサウンドトラック [FLAC]
+
+
+*****
+
+####  MuramasaSP  
+##### 15754#       发表于 2024-4-17 23:55
+
+跟风把mygo的动画看完了
+感觉bang是个好庞大的企划啊，最重要的是手游剧情吗？
+
+—— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

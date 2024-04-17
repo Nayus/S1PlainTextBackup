@@ -10346,3 +10346,17 @@ ost感觉剧透不少</blockquote>
 —— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
 为什么这一幕那么亮 而且颜色那么艳
 
+
+*****
+
+####  downforce  
+##### 15735#       发表于 2024-4-17 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621674&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:57</a>
+对的
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+我这个状态距离到手大概还要几天？
+<img src="https://p.sda1.dev/17/b30f4958b5fecb02b9d35a1379a7f221/CMP_20240417155303166.jpg" referrerpolicy="no-referrer">
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

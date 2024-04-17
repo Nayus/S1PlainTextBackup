@@ -3057,3 +3057,14 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 诗花铃音在土豆几乎没有存在感，卡都不出，我觉得学马仕不会这么暴殄天物浪费人设<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 3256#       发表于 2024-4-17 20:11
+
+ 本帖最后由 ViviR 于 2024-4-17 20:12 编辑 
+<blockquote>cckuku 发表于 2024-4-17 19:47
+说是对手，反正到时候肯定会加到主角团里的吧这样看估计还会是三个新人。 ...</blockquote>
+有舅舅（？）说里苍中之人跟灰灰百万的苍系一个段位（唱功等方面。表苍要汗流浃背了）。反正下周就知道了。真是全新人玩未来可期的话就当我啥都没说吧（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

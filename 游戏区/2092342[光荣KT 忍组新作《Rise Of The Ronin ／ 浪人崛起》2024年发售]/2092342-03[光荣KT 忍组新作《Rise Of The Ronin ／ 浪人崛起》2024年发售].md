@@ -749,3 +749,11 @@ syl，这游戏居然还做了自动寻路，昨天听电台才知道<img src="h
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑色的js  
+##### 3038#       发表于 2024-4-17 15:26
+
+京都有第4个隐藏的红眼boss，要在妖刀支线任务里把刀还回去，，，不过动作模组跟不还刀打的boss大概率一样的吧
+

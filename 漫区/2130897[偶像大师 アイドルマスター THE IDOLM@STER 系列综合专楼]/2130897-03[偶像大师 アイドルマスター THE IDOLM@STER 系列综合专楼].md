@@ -3157,3 +3157,16 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 有纪昨天不是体调不良 昨天的周年活动都推了 21号上得了吗
 
+
+*****
+
+####  白河响剑  
+##### 3267#       发表于 2024-4-17 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感谢大佬们回复 不一一回复了
+个人仅有的印象就是本家psp分三部的那作和日升的动画(
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以感受到手绘震撼后就开始看11版动画了
+又因为不太想手游且主游戏平台是ps<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">…
+就先这样吧 周末出差回去刚好看完tv和动画 无缝衔接！
+大家都是丁香般的姑娘 曾经是萌豚的我怎么就错过了呢(
+

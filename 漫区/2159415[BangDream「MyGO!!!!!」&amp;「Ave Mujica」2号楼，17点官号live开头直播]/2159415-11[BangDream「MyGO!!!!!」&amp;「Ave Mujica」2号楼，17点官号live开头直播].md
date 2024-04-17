@@ -10639,3 +10639,26 @@ mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引
 
 [https://g.nga.cn/read.php?&amp;t ... =754120234&amp;to=1](https://g.nga.cn/read.php?&amp;tid=36692529&amp;pid=754120234&amp;to=1)
 
+
+*****
+
+####  滑稽Captain  
+##### 15759#       发表于 2024-4-18 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64634044&amp;ptid=2159415" target="_blank">MuramasaSP 发表于 2024-4-17 23:55</a>
+
+跟风把mygo的动画看完了
+
+感觉bang是个好庞大的企划啊，最重要的是手游剧情吗？</blockquote>
+手游算是目前邦企划比较核心的部分，动画篇幅有限，但手游没有（
+
+
+*****
+
+####  dqtql  
+##### 15760#       发表于 2024-4-18 00:54
+
+现在听ost已经能迅速反应过来音乐对应动画里哪一集哪一段了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

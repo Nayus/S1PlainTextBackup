@@ -1661,3 +1661,11 @@ myroom已经变样了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  eilot  
+##### 12147#       发表于 2024-4-18 00:55
+
+PU角色暫時還沒有新增強化任務
+

@@ -4561,3 +4561,37 @@ HJ 2024年5月号《剧场版 机动战士敢达SEED FREEDOM》相关作例，�
 
 2024-4-17 19:22 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 365#         楼主| 发表于 2024-4-17 22:00
+
+TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM』（1）
+[https://cgworld.jp/article/308-gundamseed01.html](https://cgworld.jp/article/308-gundamseed01.html)
+
+メカニカルデザイン・大河原邦男氏による設定画
+<img src="https://p.sda1.dev/17/50106a656a2d3ff3598f4393f61d4d7a/4db3353111196b0511d9277bbab7c1ef5df9ea35.jpg" referrerpolicy="no-referrer">
+
+バランスラフモデル（色は仮）。重田氏風のプロポーションを目指し、縦横比率やサイズ感をパーツ単位で調整した
+<img src="https://p.sda1.dev/17/a10614080be9d0f0038a3fd67448baab/582871e6c005a6cc9ab9e2689aec202505ce2b67.jpg" referrerpolicy="no-referrer">
+
+上記の「バランスラフモデル」に対する重田氏からの修正指示の一例
+<img src="https://p.sda1.dev/17/b907c3de130139f833d0882a2ad8817d/4671dd2b7e425a6a98ba0f5c7ed2393871a434f0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/59afadbc48b1711ece02b1c60a5fbaa1/8c53f45edf45a03234d42f50dc4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/8a9002de41488eabaac5a8e2bed271f6/f5e3f2c7a5b0ac440dc40ba720117e272ce71e77.jpg" referrerpolicy="no-referrer">
+
+ディテールモデル
+<img src="https://p.sda1.dev/17/98b5a9adfe663d83f048c84181e397e9/ab0395a0ea8654ccb161c38157022cfb74887337.jpg" referrerpolicy="no-referrer">
+
+上記の「ディテールモデル」に対する重田氏からの修正指示の一例。ふくらはぎのフォルムを出すコツなどが記載
+<img src="https://p.sda1.dev/17/250263fb6106637a95663f7eacbf16d8/4cc11681e50715586e5813c47a1fa451d8051e0b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/93ab958b591d6b82bbbda58d0d877a66/3c390034e4ca69ec3762e157f23720d02b825d68.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/669357a32e0ad75c81b19c3b57b60c88/0522a672820a402d9b5f3bd716934c1a32fe2819.jpg" referrerpolicy="no-referrer">
+
+CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキング、ライン設定など）を追加した画像
+<img src="https://p.sda1.dev/17/e0d59b26e4b34f0e6d74faf4225c0ef5/3a67f3501d524cba8dabd909e21f3dbeb29c0063.jpg" referrerpolicy="no-referrer">
+
+ワイヤーフレーム表示
+<img src="https://p.sda1.dev/17/fee3f360e7bb5503169850041ceb6144/g.jpg" referrerpolicy="no-referrer">
+

@@ -1401,3 +1401,18 @@ O了，隔壁竞轮比这个烂得多
 黑旗就是违规，一般罚停，严重的话直接取消资格。蓝旗不让路是其中一种 ...</blockquote>
 以现在F1来说可以套圈车反超的黑旗明摆着就是告诉你片里规则不让超的
 
+
+*****
+
+####  菲特妹  
+##### 252#       发表于 2024-4-17 12:59
+
+ 本帖最后由 菲特妹 于 2024-4-17 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626606&amp;ptid=2081261" target="_blank">550616 发表于 2024-4-17 12:42</a>
+
+以现在F1来说可以套圈车反超的黑旗明摆着就是告诉你片里规则不让超的
+
+ ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">f1就是出蓝旗，让路，不让路出黑旗。这片里面也是出蓝旗，不但没让路还超车，出黑旗。规则都一样。这么说你明白了吗
+

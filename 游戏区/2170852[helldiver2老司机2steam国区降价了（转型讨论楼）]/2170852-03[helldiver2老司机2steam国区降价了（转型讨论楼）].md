@@ -1807,3 +1807,14 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 3130#       发表于 2024-4-17 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64620252&amp;ptid=2170852" target="_blank">LrGsite 发表于 2024-4-16 20:19</a>
+
+10分钟30橙样本,谁还救那些刁民啊</blockquote>
+一个人去救就行，野外拉两次警报之后分一个人进去救，基地里就不会刷怪了
+

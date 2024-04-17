@@ -1522,3 +1522,14 @@ lv100的拉二，C呆，女梅林。   129个徽章
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">护符是有灵魂的
 
+
+*****
+
+####  kulanyee  
+##### 12130#       发表于 2024-4-17 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64626715&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-17 12:51</a>
+
+护符是有灵魂的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看看这是人话吗
+

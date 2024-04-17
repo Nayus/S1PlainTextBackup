@@ -674,3 +674,29 @@ FFO的主角虽然表现为卡奥斯魔怔人，但剧情最后算是圆上了�
 
 女强人不愧是老山内社长都要高看一眼的实力存在。
 
+
+*****
+
+####  医生狼多  
+##### 3030#       发表于 2024-4-17 10:35
+
+横滨滑翔训练那本书怎么拿？我已经全撞掉了
+
+*****
+
+####  铁甲钢弹  
+##### 3031#       发表于 2024-4-17 10:37
+
+<blockquote>医生狼多 发表于 2024-4-17 10:35
+横滨滑翔训练那本书怎么拿？我已经全撞掉了</blockquote>
+横滨有两个滑翔训练，都做一下就可以解锁了我记得。
+
+*****
+
+####  duraa  
+##### 3032#       发表于 2024-4-17 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64624968&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-4-17 10:35</a>
+横滨滑翔训练那本书怎么拿？我已经全撞掉了</blockquote>
+横滨有两个飞行的点，估计你去的不是给书的那个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

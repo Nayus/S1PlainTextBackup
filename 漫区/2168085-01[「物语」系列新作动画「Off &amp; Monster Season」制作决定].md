@@ -1215,3 +1215,19 @@ CG監督：島 久登
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  广东侠  
+##### 130#       发表于 2024-4-17 19:24
+
+抚物语好做的一点是出现的角色都是你认识的，而且有大场面可以画，育惨败我是真不知道怎么改
+
+*****
+
+####  winda  
+##### 131#       发表于 2024-4-17 19:30
+
+老仓的剧情都是沾点本格推理的，没点功底改不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但相对的这样才有意思啊
+

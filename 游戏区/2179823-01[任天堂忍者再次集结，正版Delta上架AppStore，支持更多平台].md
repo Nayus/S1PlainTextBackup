@@ -397,3 +397,12 @@ delta正式上架ios商店了，名字要打全才能搜到
 
 2024-4-18 07:15 上传
 
+
+*****
+
+####  superkin185  
+##### 43#       发表于 2024-4-18 07:33
+
+[https://nenge.net/emulator/helppage/](https://nenge.net/emulator/helppage/)
+这里能下bios文件和模拟器皮肤
+

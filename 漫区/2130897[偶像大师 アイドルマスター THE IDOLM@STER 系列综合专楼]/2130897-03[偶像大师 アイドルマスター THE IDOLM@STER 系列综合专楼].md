@@ -3049,3 +3049,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 真要加主角团也不会太快
 
+
+*****
+
+####  花开安菲路  
+##### 3255#       发表于 2024-4-17 19:59
+
+诗花铃音在土豆几乎没有存在感，卡都不出，我觉得学马仕不会这么暴殄天物浪费人设<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -10370,3 +10370,13 @@ ost感觉剧透不少</blockquote>
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DarthAka  
+##### 15737#       发表于 2024-4-17 16:05
+
+<blockquote>紫吹兰 发表于 2024-4-17 11:36
+说实话，Crythic这两首吉他存在感是真的低，感觉不如贝斯。睦从没觉得玩乐队开心和soyo对Crythic恋恋不舍看 ...</blockquote>
+讲道理，哪有吉它手不自己编吉它的，睦头人活该了属于
+

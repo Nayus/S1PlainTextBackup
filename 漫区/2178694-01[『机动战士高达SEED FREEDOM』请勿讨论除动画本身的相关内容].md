@@ -4607,3 +4607,13 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 回不到看种的年纪了啊。 ...</blockquote>
 种狗血度比这个当然差远了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 367#       发表于 2024-4-18 07:38
+
+以及我不懂拂晓是什么概念武装吗？无视功率反弹的？
+
+反弹主炮已经很离谱了，连镇魂曲都能反弹，怎么不去隔壁超级系啊？
+

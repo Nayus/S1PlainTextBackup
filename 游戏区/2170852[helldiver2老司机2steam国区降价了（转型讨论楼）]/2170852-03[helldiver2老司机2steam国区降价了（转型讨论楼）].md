@@ -1909,3 +1909,11 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aeons  
+##### 3140#       发表于 2024-4-18 03:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">四人n9机器人野队，进门乱死跑了两个只剩两个人，还是做完撤离了，打完再开三个任务，两人配合也都做完了，结束后互相gg感觉真是铁兄弟了。
+

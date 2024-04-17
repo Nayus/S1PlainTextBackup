@@ -381,3 +381,19 @@ Delta上架AppStore，原来这个模拟器还支持FC SFC DS N64，就差个PS�
 
 ianc
 
+
+*****
+
+####  superkin185  
+##### 42#       发表于 2024-4-18 07:15
+
+delta正式上架ios商店了，名字要打全才能搜到
+
+<img src="https://img.saraba1st.com/forum/202404/18/071500sdxrx4gey4jd9yx9.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3047.png</strong> (375.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 07:15 上传
+

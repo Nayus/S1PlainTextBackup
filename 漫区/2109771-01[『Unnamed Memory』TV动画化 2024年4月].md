@@ -64,3 +64,11 @@
 
 完全不知道在演啥，连最起码的起承转合都没有......
 
+
+*****
+
+####  实津二三  
+##### 81#       发表于 2024-4-18 07:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">这么惨啊，原作可以说是我这几年看过的最优秀的轻小说之一了。
+

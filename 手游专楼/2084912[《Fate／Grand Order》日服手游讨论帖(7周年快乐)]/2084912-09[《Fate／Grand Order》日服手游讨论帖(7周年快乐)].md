@@ -1549,3 +1549,18 @@ lv100的拉二，C呆，女梅林。   129个徽章
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是阿瓦隆女士给的3石没有灵魂  没出2宝伯爵
 
+
+*****
+
+####  alucardcz  
+##### 12133#       发表于 2024-4-17 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然开了个超级班杨
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12134#       发表于 2024-4-17 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

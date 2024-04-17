@@ -2814,3 +2814,77 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来王子系人气真不太行
 
+
+*****
+
+####  lunaticfool  
+##### 3234#       发表于 2024-4-17 18:28
+
+来点事务员日花
+
+*****
+
+####  白河响剑  
+##### 3235#       发表于 2024-4-17 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 有专楼哦
+
+加班时挂着PMM的视频到了偶像大师瞟了一眼
+
+来了点手绘2DLIVE的小震撼
+
+如果想入坑游戏 PS4的星耀季节合适么 刚好港服还在打折（）
+
+*****
+
+####  rgauss  
+##### 3236#       发表于 2024-4-17 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630628&amp;ptid=2130897" target="_blank">白河响剑 发表于 2024-4-17 18:29</a>
+哎 有专楼哦
+
+加班时挂着PMM的视频到了偶像大师瞟了一眼
+
+来了点手绘2DLIVE的小震撼</blockquote>
+还行 不过买主机版 dlc画的钱可能有点多
+
+*****
+
+####  RhmBWT_Wu  
+##### 3237#       发表于 2024-4-17 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630628&amp;ptid=2130897" target="_blank">白河响剑 发表于 2024-4-17 18:29</a>
+哎 有专楼哦
+
+加班时挂着PMM的视频到了偶像大师瞟了一眼
+
+来了点手绘2DLIVE的小震撼</blockquote>
+星耀挺好的
+不过pc的话打不过有风灵月影救命，ps应该不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lovekoishi  
+##### 3238#       发表于 2024-4-17 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是什么蒙蔽了我的双眼
+
+
+*****
+
+####  白河响剑  
+##### 3239#       发表于 2024-4-17 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好 游戏本身没啥问题就行
+
+我也要成为IMS凯子！！！
+
+*****
+
+####  rgauss  
+##### 3240#       发表于 2024-4-17 18:37
+
+头发也挺长
+

@@ -1343,3 +1343,16 @@ O了，隔壁竞轮比这个烂得多
 蓝旗后反超为啥黑旗了</blockquote>
 妨碍冲线？
 
+
+*****
+
+####  550616  
+##### 247#       发表于 2024-4-17 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64596638&amp;ptid=2081261" target="_blank">moudianzi 发表于 2024-4-14 21:58</a>
+
+真有人能捏着鼻子追完这部番吗</blockquote>
+赛车部分中规中矩
+
+冲着声优也会看完啊
+

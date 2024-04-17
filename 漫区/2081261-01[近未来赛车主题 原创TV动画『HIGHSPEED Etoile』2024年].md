@@ -1470,3 +1470,15 @@ F1如果前面太慢是可以超回去的，哪怕是套圈的 ...</blockquote>
 
 导致头车退赛了（笑哭）
 
+
+*****
+
+####  koodooliz  
+##### 258#       发表于 2024-4-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64627313&amp;ptid=2081261" target="_blank">550616 发表于 2024-4-17 13:46</a>
+我记得维斯塔盘和加大师还是奥康就有这么一下
+
+导致头车退赛了（笑哭）</blockquote>
+18年巴西奥康想解套ver不让最后创了
+

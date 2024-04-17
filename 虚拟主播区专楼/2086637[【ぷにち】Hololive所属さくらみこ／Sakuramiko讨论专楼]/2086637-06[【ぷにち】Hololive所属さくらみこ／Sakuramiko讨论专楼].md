@@ -5368,3 +5368,19 @@ nyahelloworld实属最难曲，生歌到现在都没练起来
 
 听起来不是什么特别正面的内容
 
+
+*****
+
+####  holoan  
+##### 8655#         楼主| 发表于 2024-4-17 12:05
+
+<img src="https://img.saraba1st.com/forum/202404/17/120434o909ubszzrvyaryy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 12:04 上传
+
+工商！？工商！？工商！？工商！？工商！？工商！？？？？？？？？？？？？？？？？？？？？？？ <blockquote>主催が最下位としか思えない企画</blockquote>
+

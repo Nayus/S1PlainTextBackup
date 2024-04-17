@@ -1715,3 +1715,17 @@ atat能被运输船空投下来，也就是说运输船的运载力完全能支�
 
 现在怎么这么多常态迷雾图的，能见度20m，而且不像那些恶劣天气，只影响玩家
 
+
+*****
+
+####  风萧飒  
+##### 3122#       发表于 2024-4-17 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64625810&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-17 11:36</a>
+atat能被运输船空投下来，也就是说运输船的运载力完全能支持atat不空投下来当个空中堡垒
+
+一个全身重甲，打 ...</blockquote>
+atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

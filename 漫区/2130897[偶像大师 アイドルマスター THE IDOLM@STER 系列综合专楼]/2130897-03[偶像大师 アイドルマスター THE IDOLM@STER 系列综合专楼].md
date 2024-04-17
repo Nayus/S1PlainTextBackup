@@ -3197,3 +3197,13 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 最近没看，学马士还有几个人，是出完了吗
 
+
+*****
+
+####  大贺美沙知  
+##### 3271#       发表于 2024-4-18 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64634695&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-4-18 02:10</a>
+最近没看，学马士还有几个人，是出完了吗</blockquote>
+九个人，出完了。28号超会议会介绍御三家的对手
+

@@ -1678,3 +1678,13 @@ scary……</blockquote>
 打虫群和巢穴原来的机甲也是随便打，没差别。打重甲好歹火箭能打打，新的那个根本没法打重甲。 ...</blockquote>
 原来的机甲打虫巢真心脑子痛，各种打不到，那个准星根本看不懂
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3118#       发表于 2024-4-17 11:06
+
+昨天一把n7带激光大炮晕雷清常规蹂躏者巨型者挺方便快捷，然后打了一把n8，就清个干扰塔，5-6个大盾带2个巨型者源源不断从四面八方赶来，头都被打烂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

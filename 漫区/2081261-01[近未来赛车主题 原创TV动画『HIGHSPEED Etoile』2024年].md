@@ -1322,3 +1322,24 @@ O了，隔壁竞轮比这个烂得多
 
 蓝旗后反超为啥黑旗了
 
+
+*****
+
+####  6030sylar  
+##### 245#       发表于 2024-4-17 11:09
+
+元永这种垃圾为什么还有人找他拍
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  X(iaolw)S  
+##### 246#       发表于 2024-4-17 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64623026&amp;ptid=2081261" target="_blank">550616 发表于 2024-4-17 06:01</a>
+
+蓝旗后反超为啥黑旗了</blockquote>
+妨碍冲线？
+

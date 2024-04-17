@@ -836,3 +836,14 @@ toupai
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  starring  
+##### 20008#       发表于 2024-4-17 19:00
+
+疑似要发小组MV
+<img src="https://p.sda1.dev/17/56c6c8d212f197dd6039309bd93e9b87/CMP_20240417190013341.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

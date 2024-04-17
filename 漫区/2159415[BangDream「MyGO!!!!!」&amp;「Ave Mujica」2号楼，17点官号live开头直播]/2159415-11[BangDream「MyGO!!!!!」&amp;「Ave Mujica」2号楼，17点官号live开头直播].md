@@ -10468,3 +10468,19 @@ QQ图片20240417183220.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">期待混团春日影
 
+
+*****
+
+####  NODY  
+##### 15745#       发表于 2024-4-17 18:58
+
+mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引现充的路线？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/17/185736n40339ezb319pj60.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (58.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-17 18:57 上传
+

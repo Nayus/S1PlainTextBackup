@@ -10333,3 +10333,16 @@ ost感觉剧透不少</blockquote>
 
 [https://twitter.com/mkm22111/status/1780268770235429270](https://twitter.com/mkm22111/status/1780268770235429270)
 
+
+*****
+
+####  花火  
+##### 15734#       发表于 2024-4-17 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621679&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:58</a>
+
+为什么要演奏春日影，官方简中字幕ver
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
+为什么这一幕那么亮 而且颜色那么艳
+

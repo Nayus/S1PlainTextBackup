@@ -1482,3 +1482,16 @@ F1如果前面太慢是可以超回去的，哪怕是套圈的 ...</blockquote>
 导致头车退赛了（笑哭）</blockquote>
 18年巴西奥康想解套ver不让最后创了
 
+
+*****
+
+####  菲特妹  
+##### 259#       发表于 2024-4-17 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64627057&amp;ptid=2081261" target="_blank">山代风我 发表于 2024-4-17 13:23</a>
+
+你们这么懂赛车竟然还觉得中规中矩吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不说中规中矩吧，也是一坨狗屎
+
+是能让人怀疑制作团队里面有没人会开车的程度
+

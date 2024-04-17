@@ -757,3 +757,15 @@ syl，这游戏居然还做了自动寻路，昨天听电台才知道<img src="h
 
 京都有第4个隐藏的红眼boss，要在妖刀支线任务里把刀还回去，，，不过动作模组跟不还刀打的boss大概率一样的吧
 
+
+*****
+
+####  彩虹肥宅  
+##### 3039#       发表于 2024-4-17 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64628544&amp;ptid=2092342" target="_blank">黑色的js 发表于 2024-4-17 15:26</a>
+京都有第4个隐藏的红眼boss，要在妖刀支线任务里把刀还回去，，，不过动作模组跟不还刀打的boss大概率一样 ...</blockquote>
+阿？能重新做任务吗
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

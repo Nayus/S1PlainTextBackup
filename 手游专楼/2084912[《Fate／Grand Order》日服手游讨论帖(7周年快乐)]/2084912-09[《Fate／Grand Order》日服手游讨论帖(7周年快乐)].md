@@ -1651,3 +1651,13 @@ myroom已经变样了
 
 有小林裕介，盲猜送草十郎
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12146#       发表于 2024-4-17 22:08
+
+仔细一看怎么有五星式没有四星式
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2929,3 +2929,13 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 大眼妹台词直接说了自己觉醒了archetype啊，而且官网那个人物合照左右分布十分不对称，右边明显是留了空位等之后慢慢放出角色的
 <img src="https://p.sda1.dev/17/82e81188ecfb3b7a431d2d304d62fa9d/CMP_20240417175158425.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  baizhi  
+##### 181#       发表于 2024-4-17 20:18
+
+我一直想说了，这宣传里的动画播片是不是有点便宜啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是连滤镜都没加？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

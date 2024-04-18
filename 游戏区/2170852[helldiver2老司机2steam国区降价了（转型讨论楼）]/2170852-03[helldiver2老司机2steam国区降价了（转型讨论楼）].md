@@ -1925,3 +1925,33 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 这游戏时不时会有杂音，就是那种像风声的咋样，这什么情况？
 
+
+*****
+
+####  6x6z6w  
+##### 3142#       发表于 2024-4-18 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64636925&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-18 11:03</a>
+
+这游戏时不时会有杂音，就是那种像风声的咋样，这什么情况？</blockquote>
+可能是bug，我回了母舰声音还在
+
+*****
+
+####  6x6z6w  
+##### 3143#       发表于 2024-4-18 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630044&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-17 17:27</a>
+
+打腿要几发？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+一侧的肩膀（大腿）部分，五发类星体/EAT就能断腿，断腿能直接杀掉
+
+*****
+
+####  6x6z6w  
+##### 3144#       发表于 2024-4-18 12:06
+
+这波机器人感觉是真的加强了，N7难度支援船一次来三艘，大概率掉坦克，以前不记得有这么凶啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

@@ -10771,3 +10771,18 @@ mygo动画中似乎刻意隐藏了toypiano版本的钢琴乐段，也只用了�
 
 并不能完全定论只有toypiano版是睦角色曲
 
+
+*****
+
+####  紫吹兰  
+##### 15769#         楼主| 发表于 2024-4-18 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64630903&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-17 18:55</a>
+
+整理第2话发现的细节时突然发现
+
+三人组怎么用的是ESP琴包，而且这吉他包跟贝斯包的长度一样的
+
+(虽说 ...</blockquote>
+她们的乐器有拿出来过吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

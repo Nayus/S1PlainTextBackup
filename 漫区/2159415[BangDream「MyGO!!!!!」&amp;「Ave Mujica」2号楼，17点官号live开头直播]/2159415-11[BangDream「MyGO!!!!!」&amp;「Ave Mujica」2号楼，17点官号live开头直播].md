@@ -10701,3 +10701,29 @@ mv的钱都拿来干这个了吗，你邦是打算让鸡团和ras一样走吸引
 
 [https://twitter.com/bpdne/status/1780609774612316198](https://twitter.com/bpdne/status/1780609774612316198)
 
+
+*****
+
+####  novalli  
+##### 15764#       发表于 2024-4-18 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64634044&amp;ptid=2159415" target="_blank">MuramasaSP 发表于 2024-4-17 23:55</a>
+跟风把mygo的动画看完了
+感觉bang是个好庞大的企划啊，最重要的是手游剧情吗？</blockquote>
+大概了解一下之后看动画也差不多了，其实关系没那么复杂。老五团里popipa是起点，也是整个系列的基调，其他团的梗PICO里大多都有，RAS和蝶团的剧情有动画。除此之外大概还有paspal的出道风波的事情可能需要单独了解一下，还有无所不能的弦卷财团。除此之外的r团和a团背景故事似乎存在感不强，知道乐队本身的特点就够了，有兴趣了再去了解也不迟。
+以上是一个看动画入坑但没看过手游剧情的人的感觉（甚至还没看蝶团的动画）。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novalli  
+##### 15765#       发表于 2024-4-18 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64634044&amp;ptid=2159415" target="_blank">MuramasaSP 发表于 2024-4-17 23:55</a>
+跟风把mygo的动画看完了
+感觉bang是个好庞大的企划啊，最重要的是手游剧情吗？</blockquote>
+另外可以找一下初设漫画，有种和MyGO类似的沉重气息，B站有翻译。
+
+—— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

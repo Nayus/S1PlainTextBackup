@@ -11254,3 +11254,19 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  御幸一也  
+##### 15808#       发表于 2024-4-19 06:27
+
+<img src="https://img.saraba1st.com/forum/202404/19/062656g4ukj4piubj2pkj2.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_아작(@_A_jak_)_20240418-152833_1780981751336382724_photo.jpg</strong> (221.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 06:26 上传
+
+[https://twitter.com/_A_jak_/status/1780981751336382724](https://twitter.com/_A_jak_/status/1780981751336382724)
+

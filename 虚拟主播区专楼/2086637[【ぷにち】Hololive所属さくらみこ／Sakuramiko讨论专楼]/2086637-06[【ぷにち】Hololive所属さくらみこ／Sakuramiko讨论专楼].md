@@ -5481,3 +5481,19 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 跟fbk确实电波很合了，而且21点也是一起联动
 
+
+*****
+
+####  holoan  
+##### 8665#         楼主| 发表于 2024-4-18 18:36
+
+<img src="https://img.saraba1st.com/forum/202404/18/183539f6s683qrf8fkpkki.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 18:35 上传
+
+牛鼻，今天第一轮几乎0miss通关，金额应该是最高了
+

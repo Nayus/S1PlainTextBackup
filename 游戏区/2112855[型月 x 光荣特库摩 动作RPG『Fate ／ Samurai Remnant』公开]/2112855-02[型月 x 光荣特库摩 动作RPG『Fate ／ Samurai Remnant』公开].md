@@ -204,3 +204,11 @@ PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
 
 怎么deck玩不了，一进技能树就卡画面<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 1752#       发表于 2024-4-18 20:03
+
+感觉不如1有乐子，主要调查阶段把本篇最无聊的内容，跑路战斗钻洞调查搬过来了。武藏和saber打的那一架没看懂为什么。另外柳生的人设感觉已经剧透了，过程中就已经能看出不太对劲了。这么看DLC3应该也就一个追加从者了，不知道能落地谁。
+

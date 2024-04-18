@@ -1037,3 +1037,13 @@ sc逆天，5000这个没法关么
 如果真是未成年账户就狗了。反手来个未成年退款，下次又来😂约屯越多</blockquote>
 它fmt去过，不至于未成年
 
+
+*****
+
+####  ruffian  
+##### 20030#       发表于 2024-4-18 22:51
+
+鱼bb空间的头图是小红帽，不会是没抽到自己的隐藏吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

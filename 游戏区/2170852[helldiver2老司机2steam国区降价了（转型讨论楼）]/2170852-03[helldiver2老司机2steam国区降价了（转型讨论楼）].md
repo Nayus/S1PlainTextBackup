@@ -1955,3 +1955,16 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 这波机器人感觉是真的加强了，N7难度支援船一次来三艘，大概率掉坦克，以前不记得有这么凶啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  silversor  
+##### 3145#       发表于 2024-4-18 12:49
+
+这游戏感觉有点兴趣想试试，想请教一下这游戏
+1 不开加速器能玩吗，体验如何？
+2 独狼玩家体验如何？网游玩得少，电脑甚至没有麦
+3 能用手柄玩吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

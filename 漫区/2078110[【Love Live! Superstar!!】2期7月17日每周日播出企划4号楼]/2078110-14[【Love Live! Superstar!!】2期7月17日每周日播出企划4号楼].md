@@ -976,3 +976,13 @@ sc逆天，5000这个没法关么
 
 然后反手来个未成年退款<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20024#       发表于 2024-4-18 19:57
+
+不是第一次了这个逼
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

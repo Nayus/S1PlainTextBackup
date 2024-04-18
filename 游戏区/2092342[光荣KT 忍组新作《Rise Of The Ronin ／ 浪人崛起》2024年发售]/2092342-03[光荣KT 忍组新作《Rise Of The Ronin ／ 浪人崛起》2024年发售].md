@@ -872,3 +872,11 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 补丁之后武技伤害都加强了，虽然扫地没了但是又有了新轮椅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了zp的新视频，这无外流的牙突加强之后很猛
 
+
+*****
+
+####  wangjiawei1009  
+##### 3052#       发表于 2024-4-18 16:27
+
+新轮椅暗夜难度用起来如何  
+

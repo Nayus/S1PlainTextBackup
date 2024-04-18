@@ -443,3 +443,11 @@ delta正式上架ios商店了，名字要打全才能搜到
 
 但是ios/ipados/macos这边存储简直寸土寸金，就算第三方，加钱换个256g的硬盘都可以直接买两个周割的寨机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星海坊主  
+##### 48#       发表于 2024-4-18 15:01
+
+现在的安卓哪里随便插内存卡了
+

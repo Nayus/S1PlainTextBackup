@@ -909,3 +909,11 @@ k组新单本来就有编舞的，必不可能站桩
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  黒烨  
+##### 20016#       发表于 2024-4-18 13:22
+
+你星二单属于遥遥无期了，按照嫡系团规律明年应该就是新团披露了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

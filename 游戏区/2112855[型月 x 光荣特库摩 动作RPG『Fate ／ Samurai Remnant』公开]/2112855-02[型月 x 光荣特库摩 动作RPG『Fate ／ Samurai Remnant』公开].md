@@ -222,3 +222,11 @@ PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
 感觉不如1有乐子，主要调查阶段把本篇最无聊的内容，跑路战斗钻洞调查搬过来了。武藏和saber打的那一架没看 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能谁？现在就剩看门大爷了啊
 
+
+*****
+
+####  シャル  
+##### 1754#       发表于 2024-4-18 22:24
+
+下次不如上大狱丸和田村麻吕吧
+

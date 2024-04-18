@@ -4668,3 +4668,37 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 南十字星机体起码武装不一样，这哥仨纯换色怎么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 371#       发表于 2024-4-18 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64635220&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-18 07:38</a>
+
+以及我不懂拂晓是什么概念武装吗？无视功率反弹的？
+
+反弹主炮已经很离谱了，连镇魂曲都能反弹，怎么不去隔 ...</blockquote>
+
+八咫镜由纳米级光束衍射晶格层和超细临界等离子体抑制层组成的镜面装甲，通过偏转光束来抵御光束攻击，还可以使用传感器来跟踪敌人，并自动将这些光束重新定向到对方身上，价值20台M1异端
+
+<img src="https://img.saraba1st.com/forum/202404/18/081145kfdl3ye7yf73vx9z.jpg" referrerpolicy="no-referrer">
+
+<strong>d115_mb0001_edit_4299897731928250.jpg</strong> (290.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 08:11 上传
+
+黑骑士这边的FT装甲则是更夸张飞米级别的精度控制
+
+<img src="https://img.saraba1st.com/forum/202404/18/081115t1ira1zivsich9pn.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1713398952824a908980cc3964a9b08f92c31e7268ad67c596f8f583677dac2c9fdffcbc07b8.jpg</strong> (178.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 08:11 上传
+
+上号楼吐槽过，纳米级的晓防御力比飞米级的黑骑士更强，气氛到了就能上，不用太纠结，何况命运specII的分身有攻击力这事还没想好怎么设定呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4868,3 +4868,13 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 八咫镜由纳米级光束衍射晶格层和超细临界等离子体抑制层组成的镜面装甲，通过偏转光束来抵御光束攻击， ...</blockquote>
 毕竟没什么感情影响爆种强弱的设定，不能像z说是卡医生在极度愤怒的情况下nt力狂增悟出了超过机体出力上限的西瓜冰
 
+
+*****
+
+####  shiko  
+##### 375#       发表于 2024-4-18 11:37
+
+倒也没有说过福田装甲不能挡创世纪吧，万一都行呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -72,3 +72,11 @@
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  希望之花  
+##### 1029#       发表于 2024-4-19 01:15
+
+这个字体风格还挺哈人的，不会真的是萨终吧
+

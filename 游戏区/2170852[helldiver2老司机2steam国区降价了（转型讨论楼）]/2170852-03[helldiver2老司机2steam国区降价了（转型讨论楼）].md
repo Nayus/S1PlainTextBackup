@@ -2035,3 +2035,15 @@ ps5手柄震动是降维打击，在pc上也一样
 
 MD，飞矛锁定是修了，但是没修对新怪的锁定。
 
+
+*****
+
+####  6x6z6w  
+##### 3152#       发表于 2024-4-18 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64638178&amp;ptid=2170852" target="_blank">silversor 发表于 2024-4-18 12:49</a>
+这游戏感觉有点兴趣想试试，想请教一下这游戏
+1 不开加速器能玩吗，体验如何？
+2 独狼玩家体验如何？网游玩 ...</blockquote>
+单人找野队玩现在体验还算不错，跟老司机走就行了
+

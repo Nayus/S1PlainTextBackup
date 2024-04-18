@@ -10880,3 +10880,14 @@ bang的手游剧情，只能说人在十几岁的时候和二十几岁心态真�
 
 手游剧情才补到佐贺，所以这次活动后pareo能住东京大house别每天通勤六小时了吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 15777#         楼主| 发表于 2024-4-18 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64640492&amp;ptid=2159415" target="_blank">utotqe 发表于 2024-4-18 17:00</a>
+
+手游剧情才补到佐贺，所以&amp;#x8 ...</blockquote>
+pareo现在初三，还是要等高中上东京
+

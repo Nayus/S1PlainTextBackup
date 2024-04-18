@@ -10924,3 +10924,13 @@ QQ图片20240418183023.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/18/183043orpepp2x2pxle20p.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1a不解释  
+##### 15780#       发表于 2024-4-18 19:22
+
+问一下大家，买的bd今天海关短信说不符合申报要求要补充信息，任你购上面客服好像全是机器人，自己补充信息的话币种是填日元吗，购物凭证难道是任你购的订单界面？
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

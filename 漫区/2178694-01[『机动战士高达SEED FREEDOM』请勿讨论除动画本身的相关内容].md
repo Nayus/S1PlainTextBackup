@@ -4974,3 +4974,15 @@ VR、网飞、传奇都和日升没太大关系
 
 最新的宣传剧场版的万代模型，网站上对于种最后那一集的介绍写的还是芙蕾的灵魂，所以为什么剧场版的灵魂没有出来
 
+
+*****
+
+####  Piano-Forest  
+##### 384#         楼主| 发表于 2024-4-19 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64632853&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-4-17 22:00</a>
+
+TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM』 ...</blockquote>
+TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM』（2）
+[https://cgworld.jp/article/308-gundamseed02.html](https://cgworld.jp/article/308-gundamseed02.html)
+

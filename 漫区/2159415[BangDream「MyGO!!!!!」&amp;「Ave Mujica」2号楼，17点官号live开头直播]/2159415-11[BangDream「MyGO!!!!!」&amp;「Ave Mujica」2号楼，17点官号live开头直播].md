@@ -11045,3 +11045,13 @@ sumimi：？</blockquote>
 
 ayasa吃螺丝<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15789#       发表于 2024-4-18 22:04
+
+拜托，平时互相用假名称呼的两个人突然开始互相叫真名超浪漫的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+没想到最先看到四手联弹是在ras，还以为会是mujica
+

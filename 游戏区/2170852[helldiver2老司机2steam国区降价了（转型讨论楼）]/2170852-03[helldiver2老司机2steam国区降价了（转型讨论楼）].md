@@ -2080,3 +2080,13 @@ MD，飞矛锁定是修了，但是没修对新怪的锁定。
 
 这报告是不是说明下次去打机器人机器人又要增强了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainknine  
+##### 3157#       发表于 2024-4-18 20:56
+
+机器人的战备更新了两轮了
+我们披风虫的战备却还在被超级气球克扣
+太可恶了！
+

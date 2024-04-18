@@ -11639,3 +11639,17 @@ SB泡：长射程模式爆风半径扩大11%
 
 到现在还只有60多
 
+
+*****
+
+####  罗克萨斯  
+##### 4146#       发表于 2024-4-18 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64642348&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-4-18 20:17</a>
+一想到哪怕每天打一个金鳞片都要接近一年才能出金名片，而且还有两个，就感觉很抽象
+
+到现在还只有60多 ...</blockquote>
+其实工佬换了金铭牌以后没几天就腻了，为了短暂的快感去肝不值当啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

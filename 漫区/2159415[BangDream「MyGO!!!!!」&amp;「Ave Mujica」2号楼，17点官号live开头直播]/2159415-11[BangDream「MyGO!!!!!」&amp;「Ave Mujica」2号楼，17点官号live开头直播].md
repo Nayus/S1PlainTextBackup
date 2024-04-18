@@ -11243,3 +11243,14 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 2024-4-18 23:43 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15807#       发表于 2024-4-18 23:49
+
+唉，帕楚
+毕竟chuchu是Pareo的公主呢（）<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

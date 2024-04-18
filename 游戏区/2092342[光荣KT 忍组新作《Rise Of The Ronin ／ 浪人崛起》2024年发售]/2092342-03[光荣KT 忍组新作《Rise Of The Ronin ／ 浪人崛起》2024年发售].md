@@ -816,3 +816,14 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 经典更新找不到patch notes
 
+
+*****
+
+####  kemyes  
+##### 3046#       发表于 2024-4-18 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64635498&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-18 08:38</a>
+
+zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">忍组要不还是把那傻逼闪刃改成残心算了
+

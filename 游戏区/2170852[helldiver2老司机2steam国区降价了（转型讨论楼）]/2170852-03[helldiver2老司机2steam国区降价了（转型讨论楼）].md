@@ -1968,3 +1968,33 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白昼梦  
+##### 3146#       发表于 2024-4-18 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开不开加速器该闪退掉线都闪退掉线，延迟倒是还好，很多放到本地计算了，不会像全境封锁那种一梭子打上去血条没动
+
+*****
+
+####  白昼梦  
+##### 3147#       发表于 2024-4-18 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我百来个小时好像遇到开麦能构成交流的不超过二三十个，还不少是一个人开麦话痨的，就是偶尔英文打字的多点
+
+*****
+
+####  风萧飒  
+##### 3148#       发表于 2024-4-18 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64638178&amp;ptid=2170852" target="_blank">silversor 发表于 2024-4-18 12:49</a>
+这游戏感觉有点兴趣想试试，想请教一下这游戏
+1 不开加速器能玩吗，体验如何？
+2 独狼玩家体验如何？网游玩 ...</blockquote>
+1.可以，我基本不开加速器
+2.独狼还行，野排环境也还可以，不需要太多沟通，当然开黑体验更好
+3.这游戏pc和ps平台玩家五五开，肯定能用手柄，但具体体验怎么样我没试过，毕竟tps能用键鼠肯定还是用键鼠
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

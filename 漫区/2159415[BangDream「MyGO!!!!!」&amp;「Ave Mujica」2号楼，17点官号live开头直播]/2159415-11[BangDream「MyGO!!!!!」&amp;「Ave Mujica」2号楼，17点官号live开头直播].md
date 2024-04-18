@@ -10862,3 +10862,21 @@ ost感觉剧透不少</blockquote>
 
 互联网还是太精彩了，go团初结成那段还能看见说可以用ai作曲的弹幕。
 
+
+*****
+
+####  cindy355  
+##### 15775#       发表于 2024-4-18 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64639763&amp;ptid=2159415" target="_blank">rukimin 发表于 2024-4-18 15:47</a>
+
+bang的手游剧情，只能说人在十几岁的时候和二十几岁心态真不一样了。当年看就觉得是免费送的公式样板戏。现 ...</blockquote>
+说到底大家喊的OOC、切割手游剧情，大半都来自对“我推待遇不行”的不满吧，根本没有什么官方OOC，只有你对剧情能不能接受，作文那段损害立希形象我就会不满，混活爱音硬拉阴角二次会损害高情商形象农厨就会不满，但我们推的也只是自己心中的角色，该和解还是要和解，我已经选择对白骑士立希和解了。
+
+*****
+
+####  utotqe  
+##### 15776#       发表于 2024-4-18 17:00
+
+手游剧情才补到佐贺，所以这次活动后pareo能住东京大house别每天通勤六小时了吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

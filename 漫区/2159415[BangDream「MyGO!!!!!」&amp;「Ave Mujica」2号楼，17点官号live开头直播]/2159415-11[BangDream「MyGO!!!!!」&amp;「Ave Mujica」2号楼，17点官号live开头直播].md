@@ -10835,3 +10835,22 @@ bang的手游剧情，只能说人在十几岁的时候和二十几岁心态真�
 
 放在今天还就是独此一家掌握了核心科技：社会人偶像吧风平浪静岁月静好；赛跑偶像吧都是纯真傻大姐，那个世界观又体现不出老板间的各种勾心斗角；无法预测的命运舞台也不是一个赛道的，你整个EVA出来大伙确实无法预测了；以后可能会有一些半路出家的模仿者，说白了这种东西还是很吃积累沉淀的。半懂不懂写出来，就算能写出点情绪和细节，展开只会过于激进或者过于保守。然后剧本统筹又没弄好，逻辑漏洞就会无限放大。mygo就是吃了信息密度高和统筹好的红利，把观众的注意力从有漏洞的地方转移走；其他日常动漫搞笑动漫和搞古典乐的，也没必要转型该怎样就怎样。倒是敢达和马裤罗斯可以考虑转一转，尤其是前者烂活太密了，哪天整出个夏亚和阿姆罗组一辈子白色木马也不奇怪
 
+
+*****
+
+####  NODY  
+##### 15772#       发表于 2024-4-18 16:01
+
+ras新活剧情有够牛逼的，我愿称之为邦邦世上最女同性恋的活动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+在ylgo还在讨论鸡狗的一辈子和交付余生靠不靠谱的时候，楚平方已经去对pareo的父母说把你的女儿的一辈子交给我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  remedios010000  
+##### 15773#       发表于 2024-4-18 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64618988&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-16 18:11</a>
+ost感觉剧透不少</blockquote>
+这是只有MyGo13集的吧，还透不到母鸡卡
+

@@ -10786,3 +10786,42 @@ mygo动画中似乎刻意隐藏了toypiano版本的钢琴乐段，也只用了�
 (虽说 ...</blockquote>
 她们的乐器有拿出来过吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15770#       发表于 2024-4-18 12:28
+
+ 本帖最后由 SakuraのOrigami 于 2024-4-18 12:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64637682&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-18 12:01</a>
+
+她们的乐器有拿出来过吗</blockquote>
+只在爱音的想象中出现过
+
+但这两把根本就不是ESP的琴，而且还没标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我没见过ESP Eclipse有4个旋钮
+
+贝斯看起来是把Fender CS复古J贝斯
+
+而且第2话后面这琴包上的ESP标又不见了并且包的长度又不一样了
+鉴定为用爱音的琴包模型<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+QQ图片20240418121751.png
+(236.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 12:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/121811mzz2zhkspmje3hbf.png" referrerpolicy="no-referrer">
+
+QQ图片20240418122902.png
+(259.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/122918k8vy1swvwwww318u.png" referrerpolicy="no-referrer">
+

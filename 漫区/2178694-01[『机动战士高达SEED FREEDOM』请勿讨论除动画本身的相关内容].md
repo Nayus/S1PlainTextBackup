@@ -4878,3 +4878,13 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  novyMS  
+##### 376#       发表于 2024-4-18 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64636289&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-04-18 10:01:43</a></blockquote>腿做粗了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

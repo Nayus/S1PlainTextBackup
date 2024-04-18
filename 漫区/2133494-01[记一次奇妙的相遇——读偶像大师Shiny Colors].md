@@ -1024,3 +1024,16 @@ SC剧情的文学性有点高，说实话习惯了看网文的我看SC剧情已�
 
 不过话说回来，Hellarts也是闪耀色彩项目的外包商之一，最近的工作里就有闪耀色彩动画第一季和[第二季](https://twitter.com/envanishmentor/status/1780798308270915848)的制作协力、闪耀色彩手游宣传图的绘制。但看样子游戏脚本还是BlasTrain在做，目前BlasTrain还在招聘负责闪耀色彩的剧本作者：[https://open.talentio.com/r/1/c/blastrain/pages/88117](https://open.talentio.com/r/1/c/blastrain/pages/88117)
 
+
+*****
+
+####  shadowof  
+##### 47#         楼主| 发表于 2024-4-18 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64640694&amp;ptid=2133494" target="_blank">霓虹灯鱼 发表于 2024-4-18 17:15</a>
+
+不过话说回来，Hellarts也是闪耀色彩项目的外包商之一，最近的工作里就有闪耀色彩动画第一季和第二季的制作 ...</blockquote>
+我就是去年5周年的时候fo了刚成立的Hellarts，当时发的几个推就都是美术关系的外包，
+
+去年10月动画第一章上映期间Hellarts发的一条推就是写了和作者一起去看了电影，当时就觉得美术和文字的一部分staff出去重新成立了新公司。
+

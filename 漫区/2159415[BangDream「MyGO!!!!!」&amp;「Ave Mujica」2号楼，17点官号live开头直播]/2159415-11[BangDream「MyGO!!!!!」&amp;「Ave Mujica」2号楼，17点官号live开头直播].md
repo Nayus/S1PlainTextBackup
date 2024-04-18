@@ -10891,3 +10891,11 @@ bang的手游剧情，只能说人在十几岁的时候和二十几岁心态真�
 手游剧情才补到佐贺，所以&amp;#x8 ...</blockquote>
 pareo现在初三，还是要等高中上东京
 
+
+*****
+
+####  NODY  
+##### 15778#       发表于 2024-4-18 17:35
+
+看这期楚平方和pareo都互许终生了，等邦四年pareo来东京上高中就可以和楚平方同居了，虽然不知道这手游能不能活到邦四年<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

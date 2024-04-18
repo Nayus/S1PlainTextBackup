@@ -4617,3 +4617,54 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 反弹主炮已经很离谱了，连镇魂曲都能反弹，怎么不去隔壁超级系啊？
 
+
+*****
+
+####  gundammarkⅡ  
+##### 368#       发表于 2024-4-18 07:55
+
+还以为剩下的黑骑士会像多安的岛里南十字星小队那样每人单独一盒PB，结果直接三人打包<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/18/075440tw55pmpsdhsqqjim.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240418_075333.jpg</strong> (499.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 07:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/075443y0ix0xovaxiv2bxd.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240418_075350_edit_4298851517438827.jpg</strong> (467.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 07:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/075446oxv8ivwzrekwv1v2.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17133976715616ddd06195c45bc25f80599fa6e7db5e4dfff4162cfb148f05df171a77d4f68a.jpg</strong> (167.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 07:54 上传
+
+
+*****
+
+####  AraTurambar  
+##### 369#       发表于 2024-4-18 08:02
+
+<blockquote>gundammarkⅡ 发表于 2024-4-18 07:55
+还以为剩下的黑骑士会像多安的岛里南十字星小队那样每人单独一盒PB，结果直接三人打包
+
+</blockquote>
+毕竟被一人穿的待遇。
+
+*****
+
+####  Promeus  
+##### 370#       发表于 2024-4-18 08:05
+
+南十字星机体起码武装不一样，这哥仨纯换色怎么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

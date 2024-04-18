@@ -1998,3 +1998,18 @@ atat肚皮是弱点啊，机炮都能打死，在空中不是暴露弱点
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Awanano  
+##### 3149#       发表于 2024-4-18 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64638178&amp;ptid=2170852" target="_blank">silversor 发表于 2024-4-18 12:49</a>
+这游戏感觉有点兴趣想试试，想请教一下这游戏
+1 不开加速器能玩吗，体验如何？
+2 独狼玩家体验如何？网游玩 ...</blockquote>
+3.手柄挺简单的，以前有过手柄打枪的经验基本没问题，不是pvp游戏打起来强度很低
+我个人更建议ps系手柄，搓指令非常舒服
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

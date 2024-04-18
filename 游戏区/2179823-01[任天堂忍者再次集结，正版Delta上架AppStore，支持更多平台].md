@@ -414,3 +414,14 @@ delta正式上架ios商店了，名字要打全才能搜到
 
 这个delta性能怎么样？
 
+
+*****
+
+####  泰坦失足  
+##### 45#         楼主| 发表于 2024-4-18 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64637606&amp;ptid=2179823" target="_blank">fqxufo 发表于 2024-4-18 11:53</a>
+
+这个delta性能怎么样？</blockquote>
+最新只支持N64，应该毫无问题吧，毕竟当年PSP都能模拟N64
+

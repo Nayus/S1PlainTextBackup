@@ -11186,3 +11186,11 @@ wsd每次都让初中生穿网袜，很难不怀疑内部有什么炼铜倾向<i
 
 这渔网袜还是令人绷不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 15803#       发表于 2024-4-18 23:07
+
+【【直播回放】【光一】疯穿箱子MVP 2024年4月16日20点场】 [https://www.bilibili.com/video/B ... 7958f5a57980a3681ed](https://www.bilibili.com/video/BV1tt421j7XL/?share_source=copy_web&amp;vd_source=71ed796671fe37958f5a57980a3681ed)
+

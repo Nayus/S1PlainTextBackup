@@ -4714,3 +4714,147 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 一台一代机功率比地图炮还大就很离谱。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 373#       发表于 2024-4-18 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然，但是，GU的强自贰也太丑了吧
+
+<img src="https://img.saraba1st.com/forum/202404/18/100049geogu14k1o9i4xdx.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq1v8qwuj30xc0imn50.jpg</strong> (85.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100051ndvq0mfk008f4nzd.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq1vd7k4j30s30ef7ep.jpg</strong> (56.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100055wo6nutnt2db0nxdy.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq20qmgnj30n60uwgsc.jpg</strong> (80.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100059t77a778o7laf47l8.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq20hjbuj30n60uwgs7.jpg</strong> (78.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100105n3qric8v8kckzcqi.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq20p9jsj30n60uwwl1.jpg</strong> (73.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100107mk6ibs7lliilzznn.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq20ywvpj30n60uwjx4.jpg</strong> (62.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100110mq03zsck0kq0001u.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq20hmunj30n60uwwj5.jpg</strong> (77.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100113x7nznzckxnrqfkon.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq26fdukj30n60uwqa1.jpg</strong> (78.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100116i2zahyzafy3bvean.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq26f7zmj30n60uw45j.jpg</strong> (78.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100118z3dd00gdfs74fssr.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq26bzkwj30n60uwagc.jpg</strong> (66.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100121ct3ezcwriethxhhw.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq26r0qvj30n60uwq87.jpg</strong> (82.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100123gjpjc1u30j47icgn.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2dkh64j30n60uwagm.jpg</strong> (69.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100126cgnoz8mpsdcipq8u.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2l0lj8j30n60uwdm6.jpg</strong> (104.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100128vxblbvl2p5q0lxqe.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2rzmvhj30n60uw43o.jpg</strong> (84.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100132jhq11yzhy113ffje.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2kkwg6j30n60kwgq2.jpg</strong> (50.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100136wyn1n2w3wlddi3u8.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2rz9yyj30n60uwn18.jpg</strong> (64.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/100138q4c9d2iimm9pigio.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1houq2s0sg5j30n60uwwj7.jpg</strong> (76.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 10:01 上传
+

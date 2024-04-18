@@ -62,3 +62,13 @@
 
 ----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  冰风血羽  
+##### 1028#       发表于 2024-4-18 22:42
+
+好惊人人的重 大 发 表四个字
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

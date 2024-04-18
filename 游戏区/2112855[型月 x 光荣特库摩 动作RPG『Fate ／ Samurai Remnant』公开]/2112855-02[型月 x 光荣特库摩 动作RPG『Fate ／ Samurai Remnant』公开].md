@@ -196,3 +196,11 @@ PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
 
 有不少1.5.3的彩蛋，而且動機也好1.5.3...
 
+
+*****
+
+####  超极巨鲨鲨  
+##### 1751#       发表于 2024-4-18 18:40
+
+怎么deck玩不了，一进技能树就卡画面<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

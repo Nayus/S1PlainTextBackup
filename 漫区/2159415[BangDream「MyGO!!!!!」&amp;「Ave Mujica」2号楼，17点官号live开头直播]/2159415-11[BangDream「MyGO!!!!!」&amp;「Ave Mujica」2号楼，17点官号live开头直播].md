@@ -10899,3 +10899,28 @@ pareo现在初三，还是要等高中上东京
 
 看这期楚平方和pareo都互许终生了，等邦四年pareo来东京上高中就可以和楚平方同居了，虽然不知道这手游能不能活到邦四年<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15779#       发表于 2024-4-18 18:39
+
+翻了一圈，好像没人说这个细节（）
+
+这里其实弄错了（）
+
+这一部分原曲和动画版的都是16分音符，但猫猫这里却是扫8分音符的动作（）
+
+然后就是，有一部分弹得似乎跟谱子对不上（）
+
+原本是F4F5的八度双音，但这里弹得却是F#3和F#4的八度双音（）
+
+QQ图片20240418183023.jpg
+(106.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202404/18/183043orpepp2x2pxle20p.jpg" referrerpolicy="no-referrer">
+

@@ -161,3 +161,26 @@ PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
     修正於特定條件下遊戲會停止的問題。
     修正與改善其他問題。
 
+
+*****
+
+####  シャル  
+##### 1748#       发表于 2024-4-18 13:40
+
+这次是3个多小时打完，不用重复打m
+
+*****
+
+####  シャル  
+##### 1749#       发表于 2024-4-18 13:42
+
+ 本帖最后由 シャル 于 2024-4-18 13:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64602860&amp;ptid=2112855" target="_blank">eilot 发表于 2024-4-15 12:28</a>
+
+柳生宗矩那麼年青???真的是他嗎?
+
+殺人魔?
+
+會否連到以前的1.5.3 屍山血河?</blockquote>
+是的，不过不是liliy，和仇尼托差不多的不正常存在吧
+

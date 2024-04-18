@@ -406,3 +406,11 @@ delta正式上架ios商店了，名字要打全才能搜到
 [https://nenge.net/emulator/helppage/](https://nenge.net/emulator/helppage/)
 这里能下bios文件和模拟器皮肤
 
+
+*****
+
+####  fqxufo  
+##### 44#       发表于 2024-4-18 11:53
+
+这个delta性能怎么样？
+

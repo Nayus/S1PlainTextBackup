@@ -433,3 +433,13 @@ delta正式上架ios商店了，名字要打全才能搜到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">都可以上，ipad mini这个接近3:2的比例，最好3ds、ps2这些机种也上了就是新一代模拟神机了。安卓小平板那边做工和屏幕比例真不太行吧。
 
+
+*****
+
+####  贝恩德塔  
+##### 47#       发表于 2024-4-18 14:31
+
+ 本帖最后由 贝恩德塔 于 2024-4-18 14:33 编辑 
+
+但是ios/ipados/macos这边存储简直寸土寸金，就算第三方，加钱换个256g的硬盘都可以直接买两个周割的寨机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

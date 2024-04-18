@@ -11583,3 +11583,14 @@ SB泡：长射程模式爆风半径扩大11%
 
 再见了，所有的帝王摸蛤
 
+
+*****
+
+####  KBAC  
+##### 4141#       发表于 2024-4-18 12:23
+
+泄洪道中场新挖空的侧路游戏性上怎么样暂且不提
+单说世界观内，挖空的地方是承重柱，坏了要塌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

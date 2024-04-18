@@ -927,3 +927,11 @@ k组新单本来就有编舞的，必不可能站桩
 
 🐟阿b那个抽奖我佛了，5抽就抽到两种<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">本来还想弄个动态主题**这么玩的？
 
+
+*****
+
+####  lj205  
+##### 20018#       发表于 2024-4-18 14:50
+
+这个代抽是怎么个抽法？单抽两发一样的卡，不愧是我
+

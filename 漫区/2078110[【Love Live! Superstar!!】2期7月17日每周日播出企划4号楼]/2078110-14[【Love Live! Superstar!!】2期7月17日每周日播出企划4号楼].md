@@ -994,3 +994,11 @@ sc逆天，5000这个没法关么
 
 这种大脑结构堪比草履虫的生物的做事动机没有猜测的必要<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  优妮可  
+##### 20026#       发表于 2024-4-18 21:52
+
+sc对禁言的没用，所以他才敢次次来
+

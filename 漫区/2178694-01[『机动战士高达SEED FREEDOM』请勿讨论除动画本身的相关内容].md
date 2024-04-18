@@ -4924,3 +4924,14 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 再加上应该还会有的胶达新作，我现在有点担心日升的产能，说起来闪哈的村濑导演，当初也是W制作组的核心成员....<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">别说到头来是因为准备两边干耽搁了，逻辑上人物设计换人问题也不大吧
 
+
+*****
+
+####  王留美  
+##### 380#       发表于 2024-4-18 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64643076&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-18 21:35</a>
+ 万代最近手上高达其实蛮多，马上要上的VR高达和网飞高达，号称在做但是进度诡异的传奇版高达，第一 ...</blockquote>
+VR、网飞、传奇都和日升没太大关系
+最多出几个分镜，没有原画这层就占不了什么产能
+

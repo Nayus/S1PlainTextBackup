@@ -2126,3 +2126,22 @@ MD，飞矛锁定是修了，但是没修对新怪的锁定。
 死掉的话身上样本会掉在原地，提前把样本扔在撤退点就是预防撤退前死了还要跑尸去捡，打n7或以上需要捡超 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样，主要这队配合也挺好，就剩最后一个任务点了也就死了一条命，要是死多了我还能想到这个点
 
+
+*****
+
+####  Awanano  
+##### 3162#       发表于 2024-4-18 21:48
+
+打789最大价值就是那3/5/6个超级样本，丢撤离点后可以大胆送（
+说起来有一次队友捡满3个后掉线了，捡到的样本掉在地上，然后我又能在地图上看到超级样本，捡完再捡队友的就是4/3了，很神奇
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Mr.Hopp  
+##### 3163#       发表于 2024-4-18 21:55
+
+到后面发现最缺的还是第二级的样本。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

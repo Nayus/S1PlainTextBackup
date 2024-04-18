@@ -11037,3 +11037,11 @@ sumimi：？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64642930&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-4-18 21:18</a></blockquote>
 "这是女子乐队的歌曲，怎么可以把歌词写的这么heavy.jpg”
 
+
+*****
+
+####  6030sylar  
+##### 15788#       发表于 2024-4-18 21:53
+
+ayasa吃螺丝<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

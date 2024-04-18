@@ -212,3 +212,13 @@ PV：[https://youtu.be/i8aZ1v-aE8A](https://youtu.be/i8aZ1v-aE8A)
 
 感觉不如1有乐子，主要调查阶段把本篇最无聊的内容，跑路战斗钻洞调查搬过来了。武藏和saber打的那一架没看懂为什么。另外柳生的人设感觉已经剧透了，过程中就已经能看出不太对劲了。这么看DLC3应该也就一个追加从者了，不知道能落地谁。
 
+
+*****
+
+####  johnkamsar  
+##### 1753#       发表于 2024-4-18 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64642227&amp;ptid=2112855" target="_blank">空洞骑士 发表于 2024-4-18 20:03</a>
+感觉不如1有乐子，主要调查阶段把本篇最无聊的内容，跑路战斗钻洞调查搬过来了。武藏和saber打的那一架没看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能谁？现在就剩看门大爷了啊
+

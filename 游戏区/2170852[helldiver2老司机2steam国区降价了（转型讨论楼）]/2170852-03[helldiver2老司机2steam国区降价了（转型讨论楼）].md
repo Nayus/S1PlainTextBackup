@@ -2098,3 +2098,31 @@ MD，飞矛锁定是修了，但是没修对新怪的锁定。
 
 已经完成12%了？这速度估计两三天就能完成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 3159#         楼主| 发表于 2024-4-18 21:41
+
+把样本扔在撤退点有什么讲究吗，今天队友把样本扔在撤退点，我经过的时候没看见对话还以为是队友死了没捡，捡起来后过了会队友直接骂了我一句然后退了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 3160#       发表于 2024-4-18 21:43
+
+ 本帖最后由 6x6z6w 于 2024-4-18 21:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64643124&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-18 21:41</a>
+把样本扔在撤退点有什么讲究吗，今天队友把样本扔在撤退点，我经过的时候没看见对话还以为是队友死了没捡， ...</blockquote>
+死掉的话身上样本会掉在原地，提前把样本扔在撤退点就是预防撤退前死了还要跑尸去捡，打n7或以上需要捡超级样本的话这个算是基本操作，下次注意就行了
+
+
+*****
+
+####  kalavinka  
+##### 3161#         楼主| 发表于 2024-4-18 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64643139&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-18 21:43</a>
+死掉的话身上样本会掉在原地，提前把样本扔在撤退点就是预防撤退前死了还要跑尸去捡，打n7或以上需要捡超 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样，主要这队配合也挺好，就剩最后一个任务点了也就死了一条命，要是死多了我还能想到这个点
+

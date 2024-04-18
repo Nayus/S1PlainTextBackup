@@ -4896,3 +4896,21 @@ CG質感FIXモデル。質感（影面ノーマル色ディテール、マーキ
 
 好丑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 378#       发表于 2024-4-18 21:17
+
+ 本帖最后由 死难者23er 于 2024-4-18 21:19 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/18/211739m1zgr3d0y5so5yr8.png" referrerpolicy="no-referrer">
+
+<strong>80E22573-E42E-42BC-8C00-34C2F5472FD1.png</strong> (244.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 21:17 上传
+
+今天晚上的见面会福田表示还想继续做下去，看来有种正的概率越来越大了，不过先把前传O V A出来了行不行？
+

@@ -2090,3 +2090,11 @@ MD，飞矛锁定是修了，但是没修对新怪的锁定。
 我们披风虫的战备却还在被超级气球克扣
 太可恶了！
 
+
+*****
+
+####  Mr.Hopp  
+##### 3158#       发表于 2024-4-18 21:24
+
+已经完成12%了？这速度估计两三天就能完成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

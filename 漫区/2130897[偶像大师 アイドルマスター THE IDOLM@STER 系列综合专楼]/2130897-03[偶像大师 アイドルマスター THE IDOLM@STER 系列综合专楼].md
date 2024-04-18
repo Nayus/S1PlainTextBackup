@@ -3270,3 +3270,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 2024-4-18 20:55 上传
 
+
+*****
+
+####  野菜一日分  
+##### 3277#       发表于 2024-4-18 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理解是可以理解，但都IF了还没一些普通P卡剧情危险，多少还是有点扫兴
+

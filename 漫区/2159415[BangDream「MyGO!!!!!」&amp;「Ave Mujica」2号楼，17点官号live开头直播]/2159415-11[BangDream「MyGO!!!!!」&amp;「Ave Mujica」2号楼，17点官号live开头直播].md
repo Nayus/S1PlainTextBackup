@@ -11002,3 +11002,29 @@ sumimi：？
 
 2024-4-18 21:04 上传
 
+
+*****
+
+####  ddy2811  
+##### 15785#       发表于 2024-4-18 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64642795&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-18 21:04</a>
+
+这下真是逆输入涉谷街头广告大屏幕的初华了
+
+sumimi：？</blockquote>
+有想要忘记一切的祥子吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhwang11  
+##### 15786#       发表于 2024-4-18 21:18
+
+<img src="https://img.saraba1st.com/forum/202404/18/211830asm3zmrrrgkf2rs2.jpg" referrerpolicy="no-referrer">
+
+<strong>d545392c9b0e2bf7eead6580367729f.jpg</strong> (62.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 21:18 上传
+

@@ -4995,3 +4995,13 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 其实剧场版kl完全是受害者吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，鸡虽然种命成神，但粉黑大战十来年都没有剧场版一出基拉就是小格局这种舆论一边倒吧，拉就更别说了从一代妖女变成恋爱脑总裁，拉妖阴谋论破产得差不多了
 kl爱情大戏冲击不如ac那点边角料，以前吹神妖夫妇杂志霸榜然后现在人气投票略显尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">这剧场版都能算负面加成了吧
 
+
+*****
+
+####  AraTurambar  
+##### 386#       发表于 2024-4-19 04:31
+
+拉克丝重点在于，剧场版形象不好看啊。
+
+当然她穿驾驶服的身材还是很爆炸的。
+

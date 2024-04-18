@@ -11594,3 +11594,30 @@ SB泡：长射程模式爆风半径扩大11%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4142#       发表于 2024-4-18 12:59
+
+这不削合适嘛，一个大后排竟然能排这么高
+
+<img src="https://img.saraba1st.com/forum/202404/18/125926y8rrglypy1quvb11.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-18-12-55-23-307_com.nintendo.znca-edit.jpg</strong> (196.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-18 12:59 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KBAC  
+##### 4143#       发表于 2024-4-18 13:00
+
+太空枪有点意思了，感觉主武器强度上去不少
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

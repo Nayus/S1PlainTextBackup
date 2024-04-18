@@ -864,3 +864,11 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 看了眼b站投稿，现在立身流的虎冲三刀直接麻痹。无外流的穿牙蓄满两次突进就麻痹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 3051#       发表于 2024-4-18 15:37
+
+补丁之后武技伤害都加强了，虽然扫地没了但是又有了新轮椅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了zp的新视频，这无外流的牙突加强之后很猛
+

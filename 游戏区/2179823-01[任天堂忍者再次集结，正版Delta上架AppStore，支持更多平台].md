@@ -425,3 +425,11 @@ delta正式上架ios商店了，名字要打全才能搜到
 这个delta性能怎么样？</blockquote>
 最新只支持N64，应该毫无问题吧，毕竟当年PSP都能模拟N64
 
+
+*****
+
+####  Rushtime33  
+##### 46#       发表于 2024-4-18 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">都可以上，ipad mini这个接近3:2的比例，最好3ds、ps2这些机种也上了就是新一代模拟神机了。安卓小平板那边做工和屏幕比例真不太行吧。
+

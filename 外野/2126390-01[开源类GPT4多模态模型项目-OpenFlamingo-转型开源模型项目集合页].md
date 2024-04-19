@@ -24,3 +24,15 @@
 
 我记得泥潭是不是还有一个stable diffusion的专楼，怎么找不到了
 
+
+*****
+
+####  诚司  
+##### 1249#       发表于 2024-4-19 08:00
+
+dbrx开源，command R plus开源，llama3开源
+
+qwen1.5之后本来以为开源已经稳定了，结果这段时间模型都下不过来，gpt4级别模型遍地走了是吧
+
+不过8k context确实不大行，我还是选择command R+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

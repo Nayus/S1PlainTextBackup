@@ -11689,3 +11689,11 @@ SB泡：长射程模式爆风半径扩大11%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  秋月孝三  
+##### 4150#       发表于 2024-4-19 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伤害增加到26就行
+

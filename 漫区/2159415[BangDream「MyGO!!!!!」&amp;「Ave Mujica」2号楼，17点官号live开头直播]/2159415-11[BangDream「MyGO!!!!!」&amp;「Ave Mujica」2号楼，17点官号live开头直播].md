@@ -11334,3 +11334,21 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 当失去鸡团作为仇恨目标后，狗团粉丝就会自己打起来，太美味了
 
+
+*****
+
+####  星空冻结  
+##### 15814#       发表于 2024-4-19 12:07
+
+主要是go这代餐横行+跳脸真的很离谱，能压着纯粹是人气80导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15815#       发表于 2024-4-19 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64648310&amp;ptid=2159415" target="_blank">庸necro 发表于 2024-4-19 11:59</a>
+
+当失去鸡团作为仇恨目标后，狗团粉丝就会自己打起来，太美味了</blockquote>
+错误的，狗团本来就是内战大头，鸡团只是因为有两个C团强相关所以被波及到而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

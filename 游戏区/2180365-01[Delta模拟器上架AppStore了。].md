@@ -602,3 +602,26 @@ iPad没适配好像
 
 没有ipad版吗
 
+
+*****
+
+####  moekyo  
+##### 51#       发表于 2024-4-19 16:54
+
+说点热知识？，添加rom之后，可以在主界面长按对应的游戏，就会弹出进一步的菜单，可以设置对应的图片和导出导入存档，算是有点麻烦的云存档吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/19/165358hg53s30aat6swdsz.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3537.PNG</strong> (328.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 16:53 上传
+
+*****
+
+####  myron_cloud  
+##### 52#       发表于 2024-4-19 16:58
+
+那么大家有好用的手柄推荐嘛
+

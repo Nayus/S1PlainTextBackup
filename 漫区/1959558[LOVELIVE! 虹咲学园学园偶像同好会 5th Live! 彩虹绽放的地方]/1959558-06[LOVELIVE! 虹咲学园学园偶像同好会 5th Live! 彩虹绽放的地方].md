@@ -135,3 +135,26 @@ krrr的人设我觉得还行，风格其实还是延续横田的做派的，然�
 <img src="https://p.sda1.dev/17/79498bce19e9e4a4528481ce320577b6/CMP_20240419212934093.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/f87a698c65192a1ed165d17f3737c8ff/CMP_20240419213031175.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帆前  
+##### 7492#       发表于 2024-4-19 21:34
+
+什么喜多学园偶像同好会<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还我原来的虹咲
+
+*****
+
+####  Alicest  
+##### 7493#       发表于 2024-4-19 21:37
+
+感情四格就用了krrr画风
+
+<img src="https://img.saraba1st.com/forum/202404/19/213711k6oholoh18omo61f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 21:37 上传
+

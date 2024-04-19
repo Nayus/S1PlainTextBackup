@@ -5553,3 +5553,11 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 8671#         楼主| 发表于 2024-4-19 21:44
+
+看起来先看鲁鲁修，石头门下次
+

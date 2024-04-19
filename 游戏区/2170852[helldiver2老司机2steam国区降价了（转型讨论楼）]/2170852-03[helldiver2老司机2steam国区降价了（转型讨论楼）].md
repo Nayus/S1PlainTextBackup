@@ -2267,3 +2267,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 可以和ps好友联机</blockquote>
 那不連可不可以跨平台？
 
+
+*****
+
+####  wthall  
+##### 3177#       发表于 2024-4-19 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649442&amp;ptid=2170852" target="_blank">Soap 发表于 2024-4-19 13:45</a>
+
+那不連可不可以跨平台？</blockquote>
+跨平台没有限制
+

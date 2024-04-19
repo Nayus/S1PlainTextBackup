@@ -1513,3 +1513,15 @@ F1如果前面太慢是可以超回去的，哪怕是套圈的 ...</blockquote>
 
 连看两集看吐了，纯屎[f:166<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer"> 把观众都当rz
 
+
+*****
+
+####  上坂莲华  
+##### 262#       发表于 2024-4-20 03:28
+
+第三集这女主表现更加弱智了，不过倒是有了外挂，SEED，啊呸，远山家同款HSS……
+
+不是你们难道不知道女人的HSS屁用没有吗，怎么敢给的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下集国王也跑过来找女主了，真是脚后跟都能想到的落后起点三十年的弱智剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

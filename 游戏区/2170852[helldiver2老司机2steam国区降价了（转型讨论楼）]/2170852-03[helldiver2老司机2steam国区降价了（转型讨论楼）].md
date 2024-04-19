@@ -2363,3 +2363,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 这个战术刚被开发的时候 某一局撤退时大家把样本丢在撤离点开始和虫子死磕 好不容易撑到时间 扭头发现样 ...</blockquote>
 别把样本扔在撤离点中央就行了，开始撤离时一定要拿上
 
+
+*****
+
+####  looptube  
+##### 3185#       发表于 2024-4-19 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653422&amp;ptid=2170852" target="_blank">断片集 发表于 2024-4-19 19:48</a>
+
+就是pc版要震动效果全开还得&amp;# ...</blockquote>
+连了ps5手柄，盟友比重机枪还飘<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

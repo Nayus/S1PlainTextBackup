@@ -46,3 +46,17 @@ qwen1.5之后本来以为开源已经稳定了，结果这段时间模型都下�
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  诚司  
+##### 1251#       发表于 2024-4-19 22:44
+
+这llama3 70B tm的绝了，lmsys上它绝对被低估了，打榜上它和command R+差不多，但实测它比command R+强多了，哪怕是中文prompt，只不过llama3不喜欢说中文而已
+
+llama3 70B完爆 llama3 8B，8B用英文提示词就能答上来一些东西，中文就不行，但70B的没这个问题，而Command R+参数比70B多也一样有这种问题
+
+多轮工具调用我也试了试，llama3 70B至少是大杯claude水平，Sonnet claude是被llama3完爆的
+
+这玩意开源了真tm绝了
+

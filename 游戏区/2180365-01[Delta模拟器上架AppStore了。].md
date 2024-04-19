@@ -536,3 +536,11 @@ iPad没适配好像
 
 把bios都绑定了，打开nds游戏还是闪退是什么情况
 
+
+*****
+
+####  sakuranosibe  
+##### 45#       发表于 2024-4-19 11:46
+
+目前上架，包括上架又秒下架的基本上都是任系的(有一个似乎能玩sms，但是应用要获取的权限比较可疑，下了直接就删了)，等着sega系的和其他机种的上架<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

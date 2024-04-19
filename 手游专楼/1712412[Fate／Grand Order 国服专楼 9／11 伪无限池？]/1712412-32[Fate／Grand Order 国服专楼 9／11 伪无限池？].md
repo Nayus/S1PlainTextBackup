@@ -22,3 +22,21 @@
 
 下周再考虑
 
+
+*****
+
+####  blackjeo1  
+##### 46300#       发表于 2024-4-19 19:48
+
+  一直死活连不上服务器，有其他人也是这样吗
+
+*****
+
+####  khxooo  
+##### 46301#       发表于 2024-4-19 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653420&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2024-4-19 19:48</a>
+
+一直死活连不上服务器，有其他人也是这样吗</blockquote>
+渠道服吗？官服没问题，都清完体力了。
+

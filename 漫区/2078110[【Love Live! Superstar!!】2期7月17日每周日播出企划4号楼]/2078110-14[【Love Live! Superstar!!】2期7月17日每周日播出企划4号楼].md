@@ -1241,3 +1241,15 @@ K组的MV也出了，预料中的水平，无论曲子还是场景都敷衍了�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 20054#       发表于 2024-4-19 19:52
+
+捂脸，隔壁虹剧场版gpx赛制是单人偶像线上赛
+
+薇恩女士怎么不赶趟啊。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -2321,3 +2321,24 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 再就是可以用触控板操作地图，重力感应瞄准，体验暴杀xbox手柄了
 
+
+*****
+
+####  断片集  
+##### 3182#       发表于 2024-4-19 19:48
+
+就是pc版要震动效果全开还得设置下，有线连接后要把这两项勾上再进游戏才有效
+
+<img src="https://img.saraba1st.com/forum/202404/19/194412po8fx2kc8iff1oko.png" referrerpolicy="no-referrer">
+
+<strong>9f9e529f250df67e2d4530d5e796a9f5.png</strong> (48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 19:44 上传
+
+不是原我还真不知pc版也能开全震动效果（
+
+具体操作我还是在原的公告里发现的，就离谱
+[https://www.miyoushe.com/ys/article/37359201](https://www.miyoushe.com/ys/article/37359201)
+

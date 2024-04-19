@@ -3022,3 +3022,13 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">对白皮weeb特攻罢了，说不定游戏性上还没smt5v新增的内容好玩
 
+
+*****
+
+####  walfeds  
+##### 191#       发表于 2024-4-19 19:45
+
+半场香槟吗，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我还是信桥野哥哥的
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

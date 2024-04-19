@@ -140,3 +140,11 @@ b 限打麻将了
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiHaru  
+##### 16426#       发表于 2024-4-20 01:38
+
+b限说洗个澡之后23时还要开个窗，被问了一句真的假的之后有点反应，然后果然没有开窗
+

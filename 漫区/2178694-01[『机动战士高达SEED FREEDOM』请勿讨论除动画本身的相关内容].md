@@ -5722,3 +5722,18 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 虽然国内引进还前途未卜，但是就算最后沦落到看网盘，也别忘了给我加回来哈，自欺欺人的鸡粉们<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菲特妹  
+##### 449#       发表于 2024-4-20 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655423&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-19 23:29</a>
+
+新闻说换涂装后还能登高到肩部，还有配合剧场版的新演出，又是上映有望？
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">说了很多次都是那个自称舅舅的营销号自演，领导还在放假就信誓旦旦出来说说被毙了
+
+从利兹与青鸟，到eva终已经品鉴过很多次，你们还真反复信<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

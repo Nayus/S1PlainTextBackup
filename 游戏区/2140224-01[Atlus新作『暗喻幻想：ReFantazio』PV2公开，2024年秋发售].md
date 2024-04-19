@@ -2979,3 +2979,22 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 今年的游戏都让我提不起兴致啊，信一波atlus吧
 
+
+*****
+
+####  抽烟的猴  
+##### 187#       发表于 2024-4-19 17:34
+
+舅舅表示本作会是年度最佳游戏
+
+香槟开起来？
+
+0B8146758B10BBA1E49F5321ABDF8663_edit_166637727614151.jpg
+(181.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/19/173344mo7zaomumnv6uevm.jpg" referrerpolicy="no-referrer">
+

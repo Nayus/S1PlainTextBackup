@@ -5190,3 +5190,15 @@ VR、网飞、传奇都和日升没太大关系
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  shiko  
+##### 406#       发表于 2024-4-19 16:56
+
+对鸟的表现当然不满意了，又没成长又没boss打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到底，看透了你鸟就是个被放弃的角色，也不用有多高期待了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没恶心粉丝就不错了
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

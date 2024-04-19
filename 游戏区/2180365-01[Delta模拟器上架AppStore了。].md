@@ -744,3 +744,14 @@ citra可以，试过一次
  ...</blockquote>
 什么是生产力软件
 
+
+*****
+
+####  grox133  
+##### 64#       发表于 2024-4-19 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652732&amp;ptid=2180365" target="_blank">whyczc 发表于 2024-4-19 18:35</a>
+
+话说，pm能在手机模拟器上通信进化吗</blockquote>
+以前的myboy可以手机双开通信
+

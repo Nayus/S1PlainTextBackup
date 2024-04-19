@@ -572,3 +572,25 @@ iPad没适配好像
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  bomsw  
+##### 49#       发表于 2024-4-19 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64648930&amp;ptid=2180365" target="_blank">定春A梦 发表于 2024-4-19 12:51</a>
+
+能不能用金手指？
+
+论坛助手,iPhone</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/19/130724wsgchbshhvisymmp.png" referrerpolicy="no-referrer">
+
+<strong>Capture 2024-04-19  13.06.31-gFeM6FGM@2x.png</strong> (37.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 13:07 上传
+
+可以的
+

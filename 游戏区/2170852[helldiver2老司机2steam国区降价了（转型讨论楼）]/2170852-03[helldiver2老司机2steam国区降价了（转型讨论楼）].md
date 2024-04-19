@@ -2238,3 +2238,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 就是why u fxxxing pick it然后退了关键是我还离的挺近 他说一下我可以再扔回去啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能上几把野排因为这事0样本撤离，破防了吧
 
+
+*****
+
+####  frosta  
+##### 3174#       发表于 2024-4-19 13:01
+
+咋解锁难度7啊，打了好多盘6了，还是说要我打6来解锁
+

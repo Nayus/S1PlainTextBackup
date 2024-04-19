@@ -2227,3 +2227,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 不至于骂人退出吧，直接退出不是等于提前白打了吗</blockquote>
 就是why u fxxxing pick it然后退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3173#       发表于 2024-4-19 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64647565&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-19 11:03</a>
+
+就是why u fxxxing pick it然后退了关键是我还离的挺近 他说一下我可以再扔回去啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能上几把野排因为这事0样本撤离，破防了吧
+

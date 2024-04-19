@@ -5646,3 +5646,15 @@ VR、网飞、传奇都和日升没太大关系
 那官方不抬之前的前三，专给一个有断层的女主做票？你又自打脸了不是？这已经是第二次自己把自己绕进去了 ...</blockquote>
 不好意思，我也很想知道为什么，我看一群A C党拿出一大堆他们的相关周边排在网页销量前几名的证据，一次又一次证明他们的周边是卖得最快的，可是官方就是出的少，我也很想知道为什么他们有钱不赚
 
+
+*****
+
+####  Piano-Forest  
+##### 443#         楼主| 发表于 2024-4-19 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64644987&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-4-19 01:17</a>
+
+TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM ...</blockquote>
+TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM』（3）
+[https://cgworld.jp/article/308-gundamseed03.html](https://cgworld.jp/article/308-gundamseed03.html)
+

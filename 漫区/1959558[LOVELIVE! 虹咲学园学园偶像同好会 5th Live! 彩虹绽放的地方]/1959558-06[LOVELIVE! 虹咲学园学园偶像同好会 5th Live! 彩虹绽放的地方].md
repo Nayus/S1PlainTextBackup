@@ -158,3 +158,11 @@ krrr的人设我觉得还行，风格其实还是延续横田的做派的，然�
 
 2024-4-19 21:37 上传
 
+
+*****
+
+####  tubarl_kumiko  
+##### 7494#       发表于 2024-4-19 21:43
+
+这就是我们咕噜摇滚的大人设krrr啊，你们有这样的人设吗，真是kk又rr啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -109,3 +109,11 @@ krrr的人设我觉得还行，风格其实还是延续横田的做派的，然�
 
 不过看着都长同一副脸，有点回到水团/后室田时代的那个意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 7489#       发表于 2024-4-19 20:05
+
+<img src="https://p.sda1.dev/17/16d8db6cdec21752b4d0fcf93c344f9d/CMP_20240419200546607.jpg" referrerpolicy="no-referrer">
+

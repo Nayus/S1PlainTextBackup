@@ -92,3 +92,32 @@
 
 不过上次复刻之后还没多久，这是要干啥。难道真出战女高2，然后联动AGA（不是）
 
+
+*****
+
+####  冰风血羽  
+##### 1031#       发表于 2024-4-19 20:01
+
+ 本帖最后由 冰风血羽 于 2024-4-19 20:03 编辑 
+
+<img src="https://p.sda1.dev/17/400ac10672562a0abd63ddcd4db7e937/CMP_20240419200248938.jpg" referrerpolicy="no-referrer">
+卧槽真是鲁路修
+
+*****
+
+####  不灭的旋律  
+##### 1032#       发表于 2024-4-19 20:03
+
+居然真的是鲁鲁修，能不能把莫尼亚和阿尼亚吐出来啊我C.C.和卡莲都看腻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+赌一个鲁鲁修全语音
+
+*****
+
+####  江戸前ルナ  
+##### 1033#         楼主| 发表于 2024-4-19 20:04
+
+哈哈哈怎么哈士奇跟鲁路修站一起表情也变得中二了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+卡池果然是CC和卡莲
+

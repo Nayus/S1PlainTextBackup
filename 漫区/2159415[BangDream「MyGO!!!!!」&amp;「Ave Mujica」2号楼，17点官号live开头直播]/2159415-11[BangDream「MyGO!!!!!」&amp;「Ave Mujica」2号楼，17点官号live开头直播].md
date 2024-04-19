@@ -11704,3 +11704,39 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 立希乐奈型
 
+
+*****
+
+####  御幸一也  
+##### 15846#       发表于 2024-4-19 23:07
+
+佐々木李子 - 魂のルフラン(Anison Days ＃348)
+[https://drive.google.com/file/d/ ... de/view?usp=sharing](https://drive.google.com/file/d/1ow1cZZXHKPaZpo-2g7_IKGGaroxkgtde/view?usp=sharing)
+
+剛剛節目李子的翻唱
+
+
+*****
+
+####  御幸一也  
+##### 15847#       发表于 2024-4-19 23:13
+
+好美的初祥<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/19/231326rbcob8pbc8db18zh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ushio(@ushio0104)_20240417-094335_1780532550701850798_photo.jpg</strong> (364.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 23:13 上传
+
+[https://twitter.com/ushio0104/status/1780532550701850798](https://twitter.com/ushio0104/status/1780532550701850798)
+
+*****
+
+####  NODY  
+##### 15848#       发表于 2024-4-19 23:13
+
+看隔壁吐槽BD不仅画面失误一个没修，字幕还是漏句的，不会真是原本就没打算卖看能赚钱就临时搞出来圈一波吧，感觉总集篇真的不会有几个新画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

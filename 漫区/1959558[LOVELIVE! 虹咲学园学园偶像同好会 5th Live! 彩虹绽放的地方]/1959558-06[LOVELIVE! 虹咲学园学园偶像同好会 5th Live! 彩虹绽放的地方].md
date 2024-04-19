@@ -177,3 +177,16 @@ twi：solllolll ​ ​​​
 <img src="https://p.sda1.dev/17/5dbc827856c0d8c24c13b050ae4c37c2/CMP_20240419221225091.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/82eefe2cd3927226db158e6912626c9f/CMP_20240419221225152.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 7496#       发表于 2024-4-19 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652100&amp;ptid=1959558" target="_blank">水莲寺流歌 发表于 2024-4-19 17:36</a>
+
+第一眼，不错，挺可爱的
+
+第二眼，戴了头套的喜多，还是好多个</blockquote>
+虹团摇滚？
+

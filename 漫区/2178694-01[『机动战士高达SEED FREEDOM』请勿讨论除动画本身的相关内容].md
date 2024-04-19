@@ -5212,3 +5212,17 @@ VR、网飞、传奇都和日升没太大关系
 
 慰灵碑前被仇人说两句话就哭得弟弟一样 真是跟雷反水一样超级大迷的演出
 
+
+*****
+
+####  cxj649  
+##### 408#       发表于 2024-4-19 17:18
+
+ 本帖最后由 cxj649 于 2024-4-19 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651759&amp;ptid=2178694" target="_blank">MR.McGillis 发表于 2024-4-19 17:09</a>
+
+鸟厨在最终话就应该已经道心破碎了
+
+慰灵碑前被仇人说两句话就哭得弟弟一样 真是跟雷反水一样超级大迷的演出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"仇人“，其实不代入鸟的话鸟比较逆天的
+

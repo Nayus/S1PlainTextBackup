@@ -755,3 +755,21 @@ citra可以，试过一次
 话说，pm能在手机模拟器上通信进化吗</blockquote>
 以前的myboy可以手机双开通信
 
+
+*****
+
+####  直升机狒狒  
+##### 65#       发表于 2024-4-19 21:34
+
+那么有什么拉伸手柄推荐的吗？  话说如果主要想玩NDS和3DS游戏（希望以后有模拟器），是不是找那种可以竖着夹的拉伸手柄最好啊
+
+*****
+
+####  afer  
+##### 66#       发表于 2024-4-19 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653871&amp;ptid=2180365" target="_blank">dreamquest 发表于 2024-4-19 20:23</a>
+
+什么是生产力软件</blockquote>
+Procreate等
+

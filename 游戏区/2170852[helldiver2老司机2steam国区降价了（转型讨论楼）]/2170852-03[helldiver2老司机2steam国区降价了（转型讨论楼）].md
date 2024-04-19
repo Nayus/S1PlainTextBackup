@@ -2246,3 +2246,24 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 咋解锁难度7啊，打了好多盘6了，还是说要我打6来解锁
 
+
+*****
+
+####  Launce  
+##### 3175#       发表于 2024-4-19 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649037&amp;ptid=2170852" target="_blank">frosta 发表于 2024-4-19 13:01</a>
+
+咋解锁难度7啊，打了好多盘6了，还是说要我打6来解锁</blockquote>
+自建房，难6任务全开了还是不行的话，就是难度解锁BUG了，无解
+
+
+*****
+
+####  Soap  
+##### 3176#       发表于 2024-4-19 13:45
+
+<blockquote>kalavinka 发表于 2024-4-19 11:01
+可以和ps好友联机</blockquote>
+那不連可不可以跨平台？
+

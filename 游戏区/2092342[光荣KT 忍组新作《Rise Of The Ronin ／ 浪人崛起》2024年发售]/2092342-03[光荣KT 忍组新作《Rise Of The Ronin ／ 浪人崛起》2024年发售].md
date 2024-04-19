@@ -940,3 +940,16 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 更新后突然冒出一堆里技大佬
 
+
+*****
+
+####  kemyes  
+##### 3059#       发表于 2024-4-19 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64641739&amp;ptid=2092342" target="_blank">松风君 发表于 2024-4-18 19:05</a>
+
+非彼岸萤玩家都挺值得1.04体验一下新手感吧
+
+撸一次金刀比罗变成3银币（告别了看了断断续续小一个月的zesty ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">gtx369这只狗我见过很多很多次，我都怀疑这个是不是固定生成的假狗XD
+

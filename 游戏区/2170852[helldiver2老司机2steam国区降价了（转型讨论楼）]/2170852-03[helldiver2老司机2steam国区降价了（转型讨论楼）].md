@@ -2162,3 +2162,11 @@ MD，飞矛锁定是修了，但是没修对新怪的锁定。
 八个小时不到，老司机们杀了八亿只虫子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 感觉明早一起来这个为期六天的全服任务就完成了
 
+
+*****
+
+####  Soap  
+##### 3166#       发表于 2024-4-19 09:22
+
+Steam 連PS帳號有甚麼用，一定要連嗎？
+

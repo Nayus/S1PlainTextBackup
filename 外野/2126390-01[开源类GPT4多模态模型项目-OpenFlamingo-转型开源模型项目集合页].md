@@ -36,3 +36,13 @@ qwen1.5之后本来以为开源已经稳定了，结果这段时间模型都下�
 
 不过8k context确实不大行，我还是选择command R+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  两袖清风和中堂  
+##### 1250#       发表于 2024-4-19 08:18
+
+没有好的显卡，跑起来太痛苦了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

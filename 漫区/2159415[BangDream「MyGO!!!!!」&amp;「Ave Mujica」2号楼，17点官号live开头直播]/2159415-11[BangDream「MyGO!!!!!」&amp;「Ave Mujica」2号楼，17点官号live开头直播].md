@@ -11352,3 +11352,29 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 当失去鸡团作为仇恨目标后，狗团粉丝就会自己打起来，太美味了</blockquote>
 错误的，狗团本来就是内战大头，鸡团只是因为有两个C团强相关所以被波及到而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 15816#       发表于 2024-4-19 12:18
+
+你楼还笑是吧，等一下就一转开祥<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  庸necro  
+##### 15817#       发表于 2024-4-19 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64648541&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-4-19 12:18</a>
+
+你楼还笑是吧，等一下就一转开祥</blockquote>
+这种周常任务已经没感觉了
+
+
+*****
+
+####  cindy355  
+##### 15818#       发表于 2024-4-19 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又锁掉了，一次次封印起来，这颗雷真的爆炸的时候得有多华丽啊。
+

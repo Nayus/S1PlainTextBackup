@@ -671,3 +671,16 @@ iPad没适配好像
 没有ipad版吗</blockquote>
 没有ipad版，不够ipad可以下，就是用起来比较难受
 
+
+*****
+
+####  dreamquest  
+##### 58#       发表于 2024-4-19 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651735&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-19 17:07</a>
+
+2024年问个弱智问题，你们咋解决国区锁问题的。</blockquote>
+再注册个美区的号，换着用
+
+不过这个模拟器国区就有
+

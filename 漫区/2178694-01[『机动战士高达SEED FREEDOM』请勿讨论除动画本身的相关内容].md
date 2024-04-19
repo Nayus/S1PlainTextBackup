@@ -5226,3 +5226,19 @@ VR、网飞、传奇都和日升没太大关系
 慰灵碑前被仇人说两句话就哭得弟弟一样 真是跟雷反水一样超级大迷的演出 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">"仇人“，其实不代入鸟的话鸟比较逆天的
 
+
+*****
+
+####  shiko  
+##### 409#       发表于 2024-4-19 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651759&amp;ptid=2178694" target="_blank">MR.McGillis 发表于 2024-4-19 17:09</a>
+鸟厨在最终话就应该已经道心破碎了
+
+慰灵碑前被仇人说两句话就哭得弟弟一样 真是跟雷反水一样超级大迷的演出 ...</blockquote>
+感觉不如鸟心里还喜欢奥布更道心破碎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+起码鸡跟鸟谈不上有什么真的深仇大恨，奥布这弱智玩意儿还要被按头喜欢真特么难绷
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -989,3 +989,11 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁王粉吧两作和卧龙都有玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3064#       发表于 2024-4-19 20:28
+
+春岚蜻蜓处决后精力回满也是bug吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

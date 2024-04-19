@@ -11292,3 +11292,26 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 2024-4-19 10:52 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15810#       发表于 2024-4-19 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64647446&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-4-19 10:54</a></blockquote>
+形象（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽说我是不懂为什么会吵起来就是了（）
+
+不过也建议别去关注吵架贴（）
+
+
+*****
+
+####  cindy355  
+##### 15811#       发表于 2024-4-19 11:54
+
+ 本帖最后由 cindy355 于 2024-4-19 11:55 编辑 
+
+太棒了，大家的面具终于摘下来了，我早觉得大环境太宽容了，邦作为一个二偶企划，mygo的各路社群二创下面能有那么多无敌KY哥可多亏了这表面上的和和气气了。
+

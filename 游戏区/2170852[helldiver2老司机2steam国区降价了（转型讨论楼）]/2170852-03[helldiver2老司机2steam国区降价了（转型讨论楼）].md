@@ -2390,3 +2390,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5天防守10个星球，DM真的生气了
 
+
+*****
+
+####  looptube  
+##### 3188#       发表于 2024-4-19 23:59
+
+不知道是不是因为爆弹枪太强了，最近都没有遇到黄胖/绿胖局，全部是小跳虫<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

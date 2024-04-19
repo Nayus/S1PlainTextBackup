@@ -5747,3 +5747,15 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 戏内被ACO和萝莉BBA踩，戏外被钦定数据不如黄毛打架不如🐺，这种自对鸡毒唯可真不友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shiko  
+##### 451#       发表于 2024-4-20 07:16
+
+作为鸟厨只能说这是必须经历的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+相比种命里鸟和AC被恶心的程度，鸡这种已经算轻的了，只能说鸡粉这20年过的太顺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

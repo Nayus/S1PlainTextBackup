@@ -2374,3 +2374,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 就是pc版要震动效果全开还得&amp;# ...</blockquote>
 连了ps5手柄，盟友比重机枪还飘<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Emmerich  
+##### 3186#       发表于 2024-4-19 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">ps5怎么老报错啊我靠
+

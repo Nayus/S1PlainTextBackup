@@ -11541,3 +11541,15 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 2024-4-19 16:12 上传
 
+
+*****
+
+####  skill  
+##### 15835#       发表于 2024-4-19 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64641870&amp;ptid=2159415" target="_blank">1a不解释 发表于 2024-4-18 19:22</a>
+问一下大家，买的bd今天海关短信说不符合申报要求要补充信息，任你购上面客服好像全是机器人，自己补充信息 ...</blockquote>
+这个BD应该是免税的，申请复核只要把订单截图发过去就行了。备注写个个人邮寄音像制品一份，复核海关161号文件免税
+
+—— 来自 OPPO PEDM00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

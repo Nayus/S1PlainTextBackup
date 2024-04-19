@@ -5252,3 +5252,28 @@ VR、网飞、传奇都和日升没太大关系
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cxj649  
+##### 411#       发表于 2024-4-19 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652293&amp;ptid=2178694" target="_blank">shiko 发表于 2024-4-19 17:56</a>
+
+感觉不如鸟心里还喜欢奥布更道心破碎
+
+起码鸡跟鸟谈不上有什么真的深仇大恨，奥布这弱智玩意儿还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥布人爱奥布有什么奇怪，而且送鸟送Z军校也是奥布军人啊
+
+更不说奥布实际是日本啊
+
+*****
+
+####  王留美  
+##### 412#       发表于 2024-4-19 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652339&amp;ptid=2178694" target="_blank">supermangunv4 发表于 2024-4-19 17:59</a>
+ 如果种是高达的迪迦的话，种命就是特利迦了？    -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+理论上TDG对标GWX
+然后怎么排我就不知道了（摊手
+

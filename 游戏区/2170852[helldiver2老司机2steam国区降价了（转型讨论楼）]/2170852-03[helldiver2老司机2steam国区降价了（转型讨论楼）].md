@@ -2208,3 +2208,22 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 把样本扔在撤退点有什么讲究吗，今天队友把样本扔在撤退点，我经过的时候没看见对话还以为是队友死了没捡， ...</blockquote>
 不至于骂人退出吧，直接退出不是等于提前白打了吗
 
+
+*****
+
+####  kalavinka  
+##### 3171#         楼主| 发表于 2024-4-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64646304&amp;ptid=2170852" target="_blank">Soap 发表于 2024-4-19 09:22</a>
+Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
+可以和ps好友联机
+
+*****
+
+####  kalavinka  
+##### 3172#         楼主| 发表于 2024-4-19 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64647356&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-19 10:48</a>
+不至于骂人退出吧，直接退出不是等于提前白打了吗</blockquote>
+就是why u fxxxing pick it然后退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

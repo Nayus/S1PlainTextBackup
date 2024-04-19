@@ -2398,3 +2398,20 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 不知道是不是因为爆弹枪太强了，最近都没有遇到黄胖/绿胖局，全部是小跳虫<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 3189#       发表于 2024-4-20 01:09
+
+在此之前，任何作品说能12小时消灭20亿生物我只能笑话作者吹牛不打草稿
+
+*****
+
+####  风萧飒  
+##### 3190#       发表于 2024-4-20 01:12
+
+超级地球确实太离谱了，隔壁人类帝国看了都得尿
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

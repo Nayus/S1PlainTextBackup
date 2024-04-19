@@ -11680,3 +11680,11 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 確實哦，好頂贊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 15844#       发表于 2024-4-19 19:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话糙理不糙，本质有决定性差异的两个团的成员，本来就注定会解散的乐队，强行凑在一起续命只会闹得更不愉快
+

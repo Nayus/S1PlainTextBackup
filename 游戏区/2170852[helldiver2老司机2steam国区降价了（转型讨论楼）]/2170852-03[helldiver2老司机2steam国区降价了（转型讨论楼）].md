@@ -2382,3 +2382,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">ps5怎么老报错啊我靠
 
+
+*****
+
+####  jy000129  
+##### 3187#       发表于 2024-4-19 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5天防守10个星球，DM真的生气了
+

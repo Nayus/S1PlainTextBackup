@@ -5674,3 +5674,26 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 2024-4-19 23:28 上传
 
+
+*****
+
+####  ナルバレック  
+##### 445#       发表于 2024-4-19 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655423&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-19 23:29</a>
+
+新闻说换涂装后还能登高到肩部，还有配合剧场版的新演出，又是上映有望？
+
+ ...</blockquote>
+官方是肯定想上的啊，之前舅舅不就说了有关方找他让他别说了，免得有人关注影响排片和审核进度，而且这玩意明年大阪世博会的高达馆也有联动项目在
+
+*****
+
+####  ナルバレック  
+##### 446#       发表于 2024-4-19 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652848&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-19 18:48</a>
+
+其实没啥，日本人做事死脑筋，带上X也就凑一个整齐。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">X在论坛和推上其实还是有些存在感的，但是到商品和碟片层面就一直很透明了，武斗传好歹死忠投票力是真的强，影评也高，W的话在胶的种类之多上就很直观了
+

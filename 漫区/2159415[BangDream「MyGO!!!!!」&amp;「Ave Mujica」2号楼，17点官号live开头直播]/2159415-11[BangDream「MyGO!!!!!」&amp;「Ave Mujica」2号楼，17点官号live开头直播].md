@@ -11378,3 +11378,14 @@ amoris——！！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又锁掉了，一次次封印起来，这颗雷真的爆炸的时候得有多华丽啊。
 
+
+*****
+
+####  cindy355  
+##### 15819#       发表于 2024-4-19 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64648405&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-4-19 12:07</a>
+
+主要是go这代餐横行+跳脸真的很离谱，能压住纯粹是人气80导致的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人气80完了还要卖乖，“动画这么好你怎么跟个饭圈似的在说自推戏份少”“爱音人设和营业都这么完美，人气碾压不是理所应当的吗”，我太喜欢看这个了。
+

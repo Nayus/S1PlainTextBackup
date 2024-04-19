@@ -731,3 +731,16 @@ citra可以，试过一次
 
 我前一阵子就美区一直玩挺爽，结果扔在一边再开机wifi没了，然后打电话给苹果丫让我直接恢复系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恢复之后真好了，妈的苹果的软件真他x傻逼。
 
+
+*****
+
+####  dreamquest  
+##### 63#       发表于 2024-4-19 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653699&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-19 20:09</a>
+
+我有一个美区号，但应用一多就挺麻烦，我国区好几百块的生产力软件，哪天切两次忘了再把ipad锁了
+
+ ...</blockquote>
+什么是生产力软件
+

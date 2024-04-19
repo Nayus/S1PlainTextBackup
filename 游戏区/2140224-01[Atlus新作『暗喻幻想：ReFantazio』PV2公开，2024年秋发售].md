@@ -3032,3 +3032,20 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  纱布光环  
+##### 192#       发表于 2024-4-19 20:26
+
+不要提前开香槟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">教训还不够吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  AeonsTorn  
+##### 193#       发表于 2024-4-19 20:27
+
+还是先放低期待吧，期望越小失望越小啊
+

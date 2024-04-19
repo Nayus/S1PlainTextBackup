@@ -981,3 +981,11 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 
 这个抓投伤害和精伤好像都一般，但是强在可以强行打断敌人的动作。来自: iPhone客户端
 
+
+*****
+
+####  isa2456  
+##### 3063#       发表于 2024-4-19 20:27
+
+ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁王粉吧两作和卧龙都有玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

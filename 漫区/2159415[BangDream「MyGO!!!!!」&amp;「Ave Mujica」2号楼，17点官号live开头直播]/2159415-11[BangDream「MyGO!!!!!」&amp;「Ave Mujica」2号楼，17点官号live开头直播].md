@@ -11475,3 +11475,11 @@ NGA为什么那么热衷于分锅</blockquote>
 
 剧透哥又出现在GBC了，mujica动画看起来是还没完全做完没送审的样子，等年底送审或者提前送去做字幕的时候不会出现全集剧透直接偷跑的盛况吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15829#       发表于 2024-4-19 15:37
+
+先把全集staff名单透一下我看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

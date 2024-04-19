@@ -5130,3 +5130,13 @@ GU就是塑胶玩具，耐造，适合拿给熊孩子挡枪，质感和钢普拉
 
 2024-4-19 15:49 上传
 
+
+*****
+
+####  江城诀丶  
+##### 401#       发表于 2024-4-19 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649471&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-4-19 13:48</a>
+身边即世界一下，说是剧场版鸟大放异彩，但问了一下我周围算得上重课的鸟厨们，没有一个是对剧场版鸟的表现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明这帮鸟厨连广播剧都没看过，鸟在广播剧里就已经变成基拉铁粉了
+

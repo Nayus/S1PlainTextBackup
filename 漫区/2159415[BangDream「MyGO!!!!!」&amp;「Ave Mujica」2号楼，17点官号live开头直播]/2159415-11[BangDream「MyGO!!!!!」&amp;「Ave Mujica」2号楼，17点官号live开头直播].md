@@ -11498,3 +11498,27 @@ NGA为什么那么热衷于分锅</blockquote>
 
 真能全集剧透吗
 
+
+*****
+
+####  skives  
+##### 15832#       发表于 2024-4-19 15:58
+
+说自己看过kiss分镜就行了 没必要全局剧透
+
+
+*****
+
+####  Aendst  
+##### 15833#       发表于 2024-4-19 16:00
+
+crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+立希无所谓，祥子睦也都不是不能接受解散的
+
+非原成员的五个人更是跟crychic完全不熟，而且有crychic就没mygo没有avemujica，对这五个人来说crychic解散肯定不是坏事
+
+也就爽姐和灯姐自闭了不能和解罢了
+
+就这种组织结构和角色自身面临完全不同压力的情况，解散只能说是早晚的事，就算不说crychic解散是好事，那也不是什么值得分锅的坏事啊
+

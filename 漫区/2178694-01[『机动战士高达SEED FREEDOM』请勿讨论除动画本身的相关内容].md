@@ -5140,3 +5140,20 @@ GU就是塑胶玩具，耐造，适合拿给熊孩子挡枪，质感和钢普拉
 身边即世界一下，说是剧场版鸟大放异彩，但问了一下我周围算得上重课的鸟厨们，没有一个是对剧场版鸟的表现 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明这帮鸟厨连广播剧都没看过，鸟在广播剧里就已经变成基拉铁粉了
 
+
+*****
+
+####  线程召唤使  
+##### 402#       发表于 2024-4-19 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64643220&amp;ptid=2178694" target="_blank">王留美 发表于 2024-4-18 21:51</a>
+
+VR、网飞、传奇都和日升没太大关系
+
+最多出几个分镜，没有原画这层就占不了什么产能 ...</blockquote>
+现在TV不上心可能也只是一部分问题，这次剧场版2D人物这块，其实画得也挺一般的算不到现在第一梯队。
+
+既然这样，要不直接把日升拆分出去，要不以后更明确点干脆动画都交给别人做，胶和其他衍生抓手里就行了。
+
+这样反而更有机会看到质量更高的动画。
+

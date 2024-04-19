@@ -716,3 +716,18 @@ iPad没适配好像
 话说，pm能在手机模拟器上通信进化吗</blockquote>
 citra可以，试过一次
 
+
+*****
+
+####  afer  
+##### 62#       发表于 2024-4-19 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652233&amp;ptid=2180365" target="_blank">dreamquest 发表于 2024-4-19 17:48</a>
+
+再注册个美区的号，换着用
+
+不过这个模拟器国区就有</blockquote>
+我有一个美区号，但应用一多就挺麻烦，我国区好几百块的生产力软件，哪天切两次忘了再把ipad锁了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+我前一阵子就美区一直玩挺爽，结果扔在一边再开机wifi没了，然后打电话给苹果丫让我直接恢复系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恢复之后真好了，妈的苹果的软件真他x傻逼。
+

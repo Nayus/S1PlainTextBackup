@@ -684,3 +684,14 @@ iPad没适配好像
 
 不过这个模拟器国区就有
 
+
+*****
+
+####  whyczc  
+##### 59#       发表于 2024-4-19 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651598&amp;ptid=2180365" target="_blank">moekyo 发表于 2024-4-19 16:54</a>
+
+说点热知识？，添加rom之后，可以在主界面长按对应的游戏，就会弹出进一步的菜单，可以设置对应的图片和导 ...</blockquote>
+话说，pm能在手机模拟器上通信进化吗
+

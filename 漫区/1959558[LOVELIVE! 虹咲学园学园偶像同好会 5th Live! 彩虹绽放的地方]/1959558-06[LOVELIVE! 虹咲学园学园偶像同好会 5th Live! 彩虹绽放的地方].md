@@ -68,3 +68,16 @@ _2YLP7P`ET_Y2NZ6J3X~]T1.jpg
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  仟音一心  
+##### 7486#       发表于 2024-4-19 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652100&amp;ptid=1959558" target="_blank">水莲寺流歌 发表于 2024-4-19 17:36</a>
+第一眼，不错，挺可爱的
+
+第二眼，戴了头套的喜多，还是好多个</blockquote>
+可以用上了。
+<img src="https://p.sda1.dev/17/d391a0c2ec2225bc87c3ded7667980c3/CMP_20240419183635354.jpg" referrerpolicy="no-referrer">
+

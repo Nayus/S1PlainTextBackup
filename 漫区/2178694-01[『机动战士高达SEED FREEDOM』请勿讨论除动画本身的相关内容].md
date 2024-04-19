@@ -5157,3 +5157,26 @@ VR、网飞、传奇都和日升没太大关系
 
 这样反而更有机会看到质量更高的动画。
 
+
+*****
+
+####  王留美  
+##### 403#       发表于 2024-4-19 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651081&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-19 16:09</a>
+ 现在TV不上心可能也只是一部分问题，这次剧场版2D人物这块，其实画得也挺一般的算不到现在第一梯队。  既 ...</blockquote>
+把日升拆分出去是什么鬼
+宝富丢掉勇者蓝光人版权的前车之鉴还不够嘛
+
+*****
+
+####  线程召唤使  
+##### 404#       发表于 2024-4-19 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651199&amp;ptid=2178694" target="_blank">王留美 发表于 2024-4-19 16:20</a>
+
+把日升拆分出去是什么鬼
+
+宝富丢掉勇者蓝光人版权的前车之鉴还不够嘛</blockquote>
+日升扔出去又不是高达版权扔出去嘛，我就感觉日升现在作为动画公司战斗力不咋地。
+

@@ -72,3 +72,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">这么惨啊，原作可以说是我这几年看过的最优秀的轻小说之一了。
 
+
+*****
+
+####  zayrq  
+##### 82#       发表于 2024-4-19 22:02
+
+我是看漏了啥，记得是先解决了几件事情才去那个魔湖的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

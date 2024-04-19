@@ -1023,3 +1023,11 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">简单难度爽玩，简单之外看石火水平了
 
+
+*****
+
+####  nagitoY  
+##### 3068#       发表于 2024-4-19 21:58
+
+补丁提到了四方破更容易命中，是释放速度变快了吗？我怎么感觉还是不容易命中。来自: iPhone客户端
+

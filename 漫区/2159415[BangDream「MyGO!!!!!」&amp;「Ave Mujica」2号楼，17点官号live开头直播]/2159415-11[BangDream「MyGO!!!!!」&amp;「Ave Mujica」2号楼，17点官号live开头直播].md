@@ -11780,3 +11780,13 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 看隔壁吐槽BD不仅画面失误一个没修，字幕还是漏句的，不会真是原本就没打算卖看能赚钱就临时搞出来圈一波吧 ...</blockquote>
 真有人看是让人没想到的。。。。
 
+
+*****
+
+####  6030sylar  
+##### 15853#       发表于 2024-4-20 00:25
+
+这是3d动画，那几秒画面得重新做重新渲染，武士道的尿性就算有以前的收入也不会修
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

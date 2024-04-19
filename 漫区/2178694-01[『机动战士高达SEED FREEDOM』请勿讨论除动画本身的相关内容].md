@@ -5111,3 +5111,22 @@ GU就是塑胶玩具，耐造，适合拿给熊孩子挡枪，质感和钢普拉
 
 没啥需要臆测的吧，鸟的塑造在sdd可以说是被放弃了，后日谈基本是摁头和解，剧场版也没有对鸟的转变有任何说明，对一般观众来说形象自然是讨喜了，但对期望能有深刻角色描写的“厨”来说当然是不够了
 
+
+*****
+
+####  ナルバレック  
+##### 400#       发表于 2024-4-19 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64646807&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-4-19 10:03</a>
+
+GU就是塑胶玩具，耐造，适合拿给熊孩子挡枪，质感和钢普拉、R魂这种肯定没法比。我买给3岁小孩的高达无限也 ...</blockquote>
+北美廉价成品，耐摔耐造
+
+<img src="https://img.saraba1st.com/forum/202404/19/154922rxggzl7gxvjgjrvv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240419154911.png</strong> (252.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 15:49 上传
+

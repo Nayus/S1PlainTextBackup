@@ -2178,3 +2178,22 @@ Steam 連PS帳號有甚麼用，一定要連嗎？
 
 12小时就杀20亿虫子，感觉十个地球都不是超级地球敌人
 
+
+*****
+
+####  normalli  
+##### 3168#       发表于 2024-4-19 09:52
+
+一个轨道激光下去干死100多虫子常有，带个激光狗，击杀蹭蹭涨，20亿真的不够看，机器人就没那么好打了
+
+
+*****
+
+####  丹德里恩  
+##### 3169#       发表于 2024-4-19 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64646304&amp;ptid=2170852" target="_blank">Soap 发表于 2024-4-19 09:22</a>
+
+Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
+没用，我连上了也不知道有什么好处
+

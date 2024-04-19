@@ -2197,3 +2197,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？
 Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 没用，我连上了也不知道有什么好处
 
+
+*****
+
+####  赤井稻妻  
+##### 3170#       发表于 2024-4-19 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64643124&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-18 21:41</a>
+
+把样本扔在撤退点有什么讲究吗，今天队友把样本扔在撤退点，我经过的时候没看见对话还以为是队友死了没捡， ...</blockquote>
+不至于骂人退出吧，直接退出不是等于提前白打了吗
+

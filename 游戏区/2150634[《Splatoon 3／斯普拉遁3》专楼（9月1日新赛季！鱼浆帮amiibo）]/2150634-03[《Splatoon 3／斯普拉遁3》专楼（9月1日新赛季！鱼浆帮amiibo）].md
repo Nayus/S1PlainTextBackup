@@ -11679,3 +11679,13 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 4149#       发表于 2024-4-19 10:46
+
+感觉太空枪应该再增强点走速
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

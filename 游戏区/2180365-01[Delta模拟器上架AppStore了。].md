@@ -640,3 +640,24 @@ iPad没适配好像
 
 2024年问个弱智问题，你们咋解决国区锁问题的。
 
+
+*****
+
+####  npk7k  
+##### 55#       发表于 2024-4-19 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651735&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-19 17:07</a>
+
+2024年问个弱智问题，你们咋解决国区锁问题的。</blockquote>
+从不用国区
+
+*****
+
+####  afer  
+##### 56#       发表于 2024-4-19 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651632&amp;ptid=2180365" target="_blank">myron_cloud 发表于 2024-4-19 16:58</a>
+
+那么大家有好用的手柄推荐嘛</blockquote>
+能夹平板风评还可以的目前就是那个山寨D8手柄，多多和淘宝都有，质量一般，购买需谨慎，pro 12寸的好像夹着有难度
+

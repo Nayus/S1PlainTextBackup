@@ -166,3 +166,14 @@ krrr的人设我觉得还行，风格其实还是延续横田的做派的，然�
 
 这就是我们咕噜摇滚的大人设krrr啊，你们有这样的人设吗，真是kk又rr啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 7495#       发表于 2024-4-19 22:12
+
+twi：solllolll ​ ​​​
+
+<img src="https://p.sda1.dev/17/5dbc827856c0d8c24c13b050ae4c37c2/CMP_20240419221225091.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/82eefe2cd3927226db158e6912626c9f/CMP_20240419221225152.jpg" referrerpolicy="no-referrer">
+

@@ -562,3 +562,13 @@ iPad没适配好像
 可惜短期多半不会有citraVR了。
 我想玩3d版的谭游！
 
+
+*****
+
+####  定春A梦  
+##### 48#       发表于 2024-4-19 12:51
+
+能不能用金手指？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

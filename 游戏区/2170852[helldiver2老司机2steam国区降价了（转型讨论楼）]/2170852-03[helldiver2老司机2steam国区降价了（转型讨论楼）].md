@@ -2278,3 +2278,13 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 那不連可不可以跨平台？</blockquote>
 跨平台没有限制
 
+
+*****
+
+####  normalli  
+##### 3178#       发表于 2024-4-19 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649037&amp;ptid=2170852" target="_blank">frosta 发表于 2024-4-19 13:01</a>
+咋解锁难度7啊，打了好多盘6了，还是说要我打6来解锁</blockquote>
+你需要完成一个完整的区域任务，难度6开始一个区域任务包括三个子任务，当然蹭野队的也算，你进了正好在打第三场的队伍也算你完成。
+

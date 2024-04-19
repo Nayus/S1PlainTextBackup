@@ -117,3 +117,11 @@ krrr的人设我觉得还行，风格其实还是延续横田的做派的，然�
 
 <img src="https://p.sda1.dev/17/16d8db6cdec21752b4d0fcf93c344f9d/CMP_20240419200546607.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junglemgs  
+##### 7490#       发表于 2024-4-19 20:45
+
+官推发的预告下面，回复里不少对改画风不满的话语
+

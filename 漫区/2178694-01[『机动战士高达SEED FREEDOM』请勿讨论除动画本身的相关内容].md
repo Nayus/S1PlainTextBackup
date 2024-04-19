@@ -5439,3 +5439,85 @@ VR、网飞、传奇都和日升没太大关系
 那她后来为啥第三？**跑没了所以排名还上升了？自己的结论都能打自己脸，你死难在这个楼里还真是每回都能 ...</blockquote>
 就算不谈这个还有明明白白的香水这一次是明确告诉你有多少货物还有贩卖速度，拉克丝和另外三个人是真的出现断层了
 
+
+*****
+
+####  fengzhouyi  
+##### 427#       发表于 2024-4-19 20:39
+
+<blockquote>死难者23er 发表于 2024-4-19 20:31
+可能有三中间结果之后第一福田拱火，第二有死忠粉刷票，有人爆出有些死忠粉比我还要夸张第三官方内定 ...</blockquote>
+官方内定那还真是抬举了，卖胶动画抬举女主何德何能啊，官方下场送B格还不用粉丝抢，不是官方爱抬举吗，那多来点，最好官方出个拉克丝专属大女主OVA，唯一存活ACO大放异彩。
+
+*****
+
+####  fengzhouyi  
+##### 428#       发表于 2024-4-19 20:43
+
+<blockquote>死难者23er 发表于 2024-4-19 20:35
+就算不谈这个还有明明白白的香水这一次是明确告诉你有多少货物还有贩卖速度，拉克丝和另外三个人是真的出 ...</blockquote>
+是的，但是L又出新限定塑胶小人了，估计比起香水可能L粉关注重点还是胶和手办吧。体晾一下钱包负荷，东西太多，有些还在等MB飞升自由和MSF。
+
+
+*****
+
+####  gundammarkⅡ  
+##### 429#       发表于 2024-4-19 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丰田联名要出电动汽车麼？
+
+<img src="https://img.saraba1st.com/forum/202404/19/203905x3vzxyy5c5ipvpyi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240419_203356_com.sina.weibo_edit_4346734580999229.jpg</strong> (139.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/19/203909hnki933s22n4f9zf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240419_203433_com.sina.weibo_edit_4346727667780480.jpg</strong> (385.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202404/19/203914rsx30wwys8awyw04.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240419_203845.jpg</strong> (585.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 20:39 上传
+
+网址：[https://www.customizing.jp/view/ ... eabe1fa5f13fefa9cd3](https://www.customizing.jp/view/page/eternal?continueFlag=5d27bc1996270eabe1fa5f13fefa9cd3)
+
+拉粉们有米粉的行动力吗？
+
+以前丰田也出过夏亚专用版auris
+
+<img src="https://img.saraba1st.com/forum/202404/19/204353r4eaamlf4smfce4j.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17135305205059f26c1a31e1e30396f46c65dc377187855f732c8c17e7cece7c6063228cca64.jpg</strong> (105.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 20:43 上传
+
+*****
+
+####  死难者23er  
+##### 430#       发表于 2024-4-19 20:45
+
+<blockquote>fengzhouyi 发表于 2024-4-19 20:39
+官方内定那还真是抬举了，卖胶动画抬举女主何德何能啊，官方下场送B格还不用粉丝抢，不是官方爱抬举吗， ...</blockquote>
+一开始我也不信，但是这一次的获奖图，你要跟我说，官方没有人有私心，我真的不信
+
+<img src="https://img.saraba1st.com/forum/202404/19/204258yup6trw70mrr0bo4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>046B5BCE-1B84-4C4C-ADCC-4C6ABA8FA0A3.jpeg</strong> (169.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 20:42 上传
+

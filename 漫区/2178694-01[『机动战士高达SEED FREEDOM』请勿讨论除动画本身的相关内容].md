@@ -5242,3 +5242,13 @@ VR、网飞、传奇都和日升没太大关系
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  supermangunv4  
+##### 410#       发表于 2024-4-19 17:59
+
+如果种是高达的迪迦的话，种命就是特利迦了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

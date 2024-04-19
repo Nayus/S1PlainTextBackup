@@ -56,3 +56,15 @@ _2YLP7P`ET_Y2NZ6J3X~]T1.jpg
 
 <img src="https://p.sda1.dev/17/d02735058b4dda08eb1712b83bb96081/IMG_CMP_45353722.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7485#       发表于 2024-4-19 17:59
+
+过于孤独摇滚。岚珠更大狗狗了
+
+个人还是比较习惯tv横田的风格，不过可能只是习惯问题。（突然有种三个剧场版可以有三种不同原画的预感）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

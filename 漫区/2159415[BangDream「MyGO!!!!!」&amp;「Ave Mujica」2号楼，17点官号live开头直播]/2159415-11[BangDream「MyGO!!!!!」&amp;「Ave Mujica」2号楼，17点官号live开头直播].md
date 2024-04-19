@@ -11577,3 +11577,32 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 2024-4-19 17:20 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15837#       发表于 2024-4-19 17:58
+
+凛准备播怪猎
+
+虽然，怎么直播间全是国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/19/175855ynj6m9d3qkg9jeqd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240419175804.png</strong> (288.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 17:58 上传
+
+*****
+
+####  1a不解释  
+##### 15838#       发表于 2024-4-19 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651312&amp;ptid=2159415" target="_blank">skill 发表于 2024-4-19 16:29</a>
+这个BD应该是免税的，申请复核只要把订单截图发过去就行了。备注写个个人邮寄音像制品一份，复核海关161 ...</blockquote>
+好的谢谢，已经报上去了
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

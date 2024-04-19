@@ -107,3 +107,14 @@
 动画党，光这两集还看不出来剧情有啥大问题。。。</blockquote>
 看不出有啥问题就好好看下去吧，反正我补了小说再回来看已经不忍直视了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  belldandy_ye  
+##### 86#       发表于 2024-4-20 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64656526&amp;ptid=2109771" target="_blank">linux40 发表于 2024-4-20 01:01</a>
+
+动画党，光这两集还看不出来剧情有啥大问题。。。</blockquote>
+光看动画剧情当然找不出大问题，因为目前为止没有什么魔改的地方，原作剧情细节和框架都很顶，问题出在动画跳了非常多的剧情，以火箭速度推进，熟悉原作的人看就很恼火了.
+

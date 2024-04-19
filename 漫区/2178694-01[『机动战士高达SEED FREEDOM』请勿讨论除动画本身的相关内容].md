@@ -5737,3 +5737,13 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 从利兹与青鸟，到eva终已经品鉴过很多次，你们还真反复信<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  永恒的王牌  
+##### 450#       发表于 2024-4-20 01:55
+
+高吧就这两天FT对鸡的暴论开始起反应了
+
+戏内被ACO和萝莉BBA踩，戏外被钦定数据不如黄毛打架不如🐺，这种自对鸡毒唯可真不友好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

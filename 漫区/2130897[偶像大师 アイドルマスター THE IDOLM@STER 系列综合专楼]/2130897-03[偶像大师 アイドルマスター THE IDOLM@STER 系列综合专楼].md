@@ -3312,3 +3312,12 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  殿珣  
+##### 3281#       发表于 2024-4-20 01:59
+
+唉！我他妈以后再也不能用爱马仕这个ip嘲讽别的偶像动画了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

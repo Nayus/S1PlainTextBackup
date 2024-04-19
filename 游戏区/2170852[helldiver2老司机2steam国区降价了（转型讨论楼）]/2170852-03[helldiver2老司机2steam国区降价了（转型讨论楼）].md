@@ -2342,3 +2342,24 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 具体操作我还是在原的公告里发现的，就离谱
 [https://www.miyoushe.com/ys/article/37359201](https://www.miyoushe.com/ys/article/37359201)
 
+
+*****
+
+####  6x6z6w  
+##### 3183#       发表于 2024-4-19 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651331&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-4-19 16:31</a>
+
+这游戏没有个好心态确实挺容易让人破防的，我玩那么久唯一一次破防，是一个经常互黑的好友落地后不管周围的 ...</blockquote>
+下次如果你好友死了别直接扔支援，以示抗议<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 3184#       发表于 2024-4-19 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64650518&amp;ptid=2170852" target="_blank">lily-black 发表于 2024-4-19 15:26</a>
+
+这个战术刚被开发的时候 某一局撤退时大家把样本丢在撤离点开始和虫子死磕 好不容易撑到时间 扭头发现样 ...</blockquote>
+别把样本扔在撤离点中央就行了，开始撤离时一定要拿上
+

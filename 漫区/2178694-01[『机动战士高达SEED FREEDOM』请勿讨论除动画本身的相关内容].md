@@ -5697,3 +5697,28 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 其实没啥，日本人做事死脑筋，带上X也就凑一个整齐。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">X在论坛和推上其实还是有些存在感的，但是到商品和碟片层面就一直很透明了，武斗传好歹死忠投票力是真的强，影评也高，W的话在胶的种类之多上就很直观了
 
+
+*****
+
+####  七七見奈波  
+##### 447#       发表于 2024-4-20 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64650929&amp;ptid=2178694" target="_blank">江城诀丶 发表于 2024-4-19 15:58</a>
+
+说明这帮鸟厨连广播剧都没看过，鸟在广播剧里就已经变成基拉迷弟了 ...</blockquote>
+为什么会认为她们没看？这些人都是重氪，你说的奥布之夜她们早都看过也是八百年前就抱怨过了，但是广播剧毕竟不是正片，在很多人心里广播剧这种媒体和动画的“官方性”即使完全一致，在心理接受度上也是有距离的
+
+
+*****
+
+####  lokifreya  
+##### 448#       发表于 2024-4-20 00:13
+
+插个楼
+
+之前被爆破那楼里扣我分的朋友
+
+留个言给你们加分的地，别忘记看完了把我分加回来啊
+
+虽然国内引进还前途未卜，但是就算最后沦落到看网盘，也别忘了给我加回来哈，自欺欺人的鸡粉们<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

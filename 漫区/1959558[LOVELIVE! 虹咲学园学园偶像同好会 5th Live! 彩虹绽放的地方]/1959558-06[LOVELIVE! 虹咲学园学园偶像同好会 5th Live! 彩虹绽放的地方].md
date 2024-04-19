@@ -190,3 +190,17 @@ twi：solllolll ​ ​​​
 第二眼，戴了头套的喜多，还是好多个</blockquote>
 虹团摇滚？
 
+
+*****
+
+####  Skyline_R  
+##### 7497#       发表于 2024-4-20 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653486&amp;ptid=1959558" target="_blank">Skyline_R 发表于 2024-4-19 19:53</a>
+
+感觉摄影像样多了，影调的层次感明显更丰富，线条也明显没有二期往后发糊的感觉
+
+krrr的人设我觉得还行，风 ...</blockquote>
+太可爱了，我宣布我和新画风和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://github.com/Skyline-R/Imageboard/assets/116446247/60f67dd4-61ad-436f-b023-89576e364431" id="aimg_t7Ka8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

@@ -5658,3 +5658,19 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3DCGで描いた『機動戦士ガンダム SEED FREEDOM』（3）
 [https://cgworld.jp/article/308-gundamseed03.html](https://cgworld.jp/article/308-gundamseed03.html)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 444#       发表于 2024-4-19 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">新闻说换涂装后还能登高到肩部，还有配合剧场版的新演出，又是上映有望？
+
+<img src="https://img.saraba1st.com/forum/202404/19/232819ss0kikhnd3hs47ns.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240419_232511_com.sina.weibo_edit_4353053834053994.jpg</strong> (211.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-19 23:28 上传
+

@@ -11752,3 +11752,31 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  蒜灵  
+##### 15850#       发表于 2024-4-19 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655306&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-19 23:13</a>
+看隔壁吐槽BD不仅画面失误一个没修，字幕还是漏句的，不会真是原本就没打算卖看能赚钱就临时搞出来圈一波吧 ...</blockquote>
+为啥要修，反正都是一样卖
+
+*****
+
+####  蒜灵  
+##### 15851#       发表于 2024-4-19 23:27
+
+不管是鸡粉还是狗粉我都是祝福理解的，但是wsd孝子那是应该狠狠地骂的
+
+
+*****
+
+####  kauking  
+##### 15852#       发表于 2024-4-19 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655306&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-19 23:13</a>
+
+看隔壁吐槽BD不仅画面失误一个没修，字幕还是漏句的，不会真是原本就没打算卖看能赚钱就临时搞出来圈一波吧 ...</blockquote>
+真有人看是让人没想到的。。。。
+

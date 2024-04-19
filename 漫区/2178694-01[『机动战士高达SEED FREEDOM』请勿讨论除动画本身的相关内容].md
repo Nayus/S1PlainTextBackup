@@ -5299,3 +5299,31 @@ VR、网飞、传奇都和日升没太大关系
 然后怎么排我就不知道了（摊手</blockquote>
 虽然企划案进行很可能变成盖亚和高达X差不多情况，但是如果从系列内商业利益和影响力来论的话，其实只有戴拿和W是差不多的，武斗传这种有死忠厨力但卖胶力不强的真的很难归类，高成本难回本高口碑的盖亚和流水账腰斩的高达X更是感觉完全不对路，这次带X玩从商业角度其实蛮意外的，毕竟X胶几年都不出一个。
 
+
+*****
+
+####  线程召唤使  
+##### 415#       发表于 2024-4-19 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652544&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-19 18:18</a>
+
+虽然企划案进行很可能变成盖亚和高达X差不多情况，但是如果从系列内商业利益和影响力来论的话，其实只有 ...</blockquote>
+其实没啥，日本人做事死脑筋，带上X也就凑一个整齐。
+
+
+*****
+
+####  Promeus  
+##### 416#       发表于 2024-4-19 18:54
+
+题外话，ft好像又瞎jb论设定被喷了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fengzhouyi  
+##### 417#       发表于 2024-4-19 18:57
+
+<blockquote>Promeus 发表于 2024-4-19 18:54
+题外话，ft好像又瞎jb论设定被喷了</blockquote>
+这不活该，种系到底谁是真正的摇钱树大家心里门清
+

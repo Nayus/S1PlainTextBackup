@@ -695,3 +695,24 @@ iPad没适配好像
 说点热知识？，添加rom之后，可以在主界面长按对应的游戏，就会弹出进一步的菜单，可以设置对应的图片和导 ...</blockquote>
 话说，pm能在手机模拟器上通信进化吗
 
+
+*****
+
+####  moekyo  
+##### 60#       发表于 2024-4-19 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652732&amp;ptid=2180365" target="_blank">whyczc 发表于 2024-4-19 18:35</a>
+
+话说，pm能在手机模拟器上通信进化吗</blockquote>
+超过知识范围了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  欧派爱欧派  
+##### 61#       发表于 2024-4-19 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652732&amp;ptid=2180365" target="_blank">whyczc 发表于 2024-4-19 18:35</a>
+
+话说，pm能在手机模拟器上通信进化吗</blockquote>
+citra可以，试过一次
+

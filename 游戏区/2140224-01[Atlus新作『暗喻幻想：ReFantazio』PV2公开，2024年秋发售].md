@@ -2963,3 +2963,11 @@ pv里的那个大眼妹和三眼妹怎么看都是可操控角色吧</blockquote
 
 说实话，这IP过于普通，也就是P系列那种战斗系统，在游戏类别上没有突破，一直啃老本，这玩意再好也好不到哪，毕竟边界已经存在了
 
+
+*****
+
+####  Piano-Forest  
+##### 185#         楼主| 发表于 2024-4-19 12:39
+
+<img src="https://p.sda1.dev/17/f419be15c372e210b528bc0c4a714dd3/SaveTwitter.Net_1781149122268889088_720p_ _1_.gif" referrerpolicy="no-referrer">
+

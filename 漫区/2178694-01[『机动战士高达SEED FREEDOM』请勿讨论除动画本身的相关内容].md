@@ -5564,3 +5564,35 @@ VR、网飞、传奇都和日升没太大关系
 最下面还有10＞8＞9，所 ...</blockquote>
 对是搜索结果，但是其他几个差距非常接近，靠每天10票能赢，我还是相信，但是阿斯兰已经是拉克丝的一倍了，这已经不是靠每天刷10票可以追得上
 
+
+*****
+
+####  fengzhouyi  
+##### 435#       发表于 2024-4-19 21:03
+
+<blockquote>ALUD. 发表于 2024-4-19 20:51
+不认识日语你就别发了，这人都说仅供参考，不是实际票数，这只是谷歌检索结果。
+
+最下面还有10＞8＞9，所 ...</blockquote>
+主要按照死难的逻辑，粉丝跑了所以官方做票抬举，官方为啥抬举一个剧场版后卖气不行的女主？如果官方连米都不要了故意偏心的话那对粉丝来说不是爽爆？我啥也不干照样官方供着，拿剧场版大放异彩甚至带着卖胶任务的AS垫，还把K拉下来陪着，甚至后续的视频公告也让K抬一手，别家粉丝有这么舒心的官方吗？（手动扇子笑）
+
+*****
+
+####  kobushi  
+##### 436#       发表于 2024-4-19 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64654115&amp;ptid=2178694" target="_blank">Promeus 发表于 2024-4-19 20:50</a>
+
+很怪的是底下有阿拉伯语账号突然冒出一长段日语支持拉克丝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">这种都是智能僵尸号啦，赚阅读量薅马斯克羊毛的
+
+*****
+
+####  ALUD.  
+##### 437#       发表于 2024-4-19 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64654170&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-19 20:55</a>
+
+对是搜索结果，但是其他几个差距非常接近，靠每天10票能赢，我还是相信，但是阿斯兰已经快是拉克丝的一倍 ...</blockquote>
+别在那装不懂了，谁跟你说网页就不能刷票的？不如说一次10票效率更高
+

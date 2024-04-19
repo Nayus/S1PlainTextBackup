@@ -5543,3 +5543,13 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 2024-4-19 20:34 上传
 
+
+*****
+
+####  rs5621  
+##### 8670#       发表于 2024-4-19 21:04
+
+来啦，刚到家<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

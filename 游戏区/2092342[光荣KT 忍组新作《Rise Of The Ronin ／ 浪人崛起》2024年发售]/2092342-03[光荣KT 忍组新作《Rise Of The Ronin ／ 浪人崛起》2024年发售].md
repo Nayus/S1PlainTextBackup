@@ -1005,3 +1005,13 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 gtx369是金刀罗比狗四大天王之首
 
+
+*****
+
+####  医生狼多  
+##### 3066#       发表于 2024-4-19 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653907&amp;ptid=2092342" target="_blank">isa2456 发表于 2024-4-19 20:27</a>
+ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁王粉吧两作和卧龙都有玩 ...</blockquote>
+虽然简化过头了，打起来还是挺爽的，基本上其他要素都是奔着方便你打架来的，没别的动作游戏玩推荐尝试下
+

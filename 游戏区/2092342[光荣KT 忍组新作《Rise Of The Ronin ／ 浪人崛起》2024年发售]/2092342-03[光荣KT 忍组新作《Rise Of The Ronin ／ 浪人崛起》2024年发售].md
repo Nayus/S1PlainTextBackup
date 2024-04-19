@@ -953,3 +953,21 @@ zp和文轩拿来吹上限高的里技直接被忍者组削没了也是挺搞笑
 撸一次金刀比罗变成3银币（告别了看了断断续续小一个月的zesty ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">gtx369这只狗我见过很多很多次，我都怀疑这个是不是固定生成的假狗XD
 
+
+*****
+
+####  霖岚_  
+##### 3060#       发表于 2024-4-19 09:30
+
+应该说是这id太好记了，我这一个月碰到的金比罗也是来来回回那两三个id，但其他的id又长又不好记，所以只有一个gtx369印象特别深（x
+
+
+*****
+
+####  彩虹肥宅  
+##### 3061#       发表于 2024-4-19 09:37
+
+其实还有另外一个anime的id也常见，不过都没gtx369还有另外那个出现的多。
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

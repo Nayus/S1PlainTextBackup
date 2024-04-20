@@ -12007,3 +12007,13 @@ BD收到了，那么我该用什么设备来看这个BD呢<img src="https://stat
 
 —— 来自 OPPO PEDM00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  外骨骼  
+##### 15865#       发表于 2024-4-20 19:43
+
+初见：mygo有啥好看，说的啥故事。
+
+现在：mygo真好看，但依然不知道说的啥故事。顺便meme也好有趣
+

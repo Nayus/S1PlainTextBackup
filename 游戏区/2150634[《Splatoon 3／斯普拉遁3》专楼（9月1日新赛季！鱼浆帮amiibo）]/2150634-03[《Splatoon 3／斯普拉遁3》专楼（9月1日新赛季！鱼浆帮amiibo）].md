@@ -11784,3 +11784,13 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4158#       发表于 2024-4-20 14:31
+
+观星网是不是有问题，祭典T恤做坏了，本来想要的是三个安全鞋的小技能，出来的是安全鞋、行动强化、走速，浪费掉我两张饮料券<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -105,3 +105,11 @@
 
 400多石，最后一个十连出了提妈。下星期抽兽尼钱包要大出血了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sandro  
+##### 46309#       发表于 2024-4-20 23:07
+
+这波抽完是不是可以憋到泳装和周年了？不过想到武内那两张卡的卡面也不是很想抽
+

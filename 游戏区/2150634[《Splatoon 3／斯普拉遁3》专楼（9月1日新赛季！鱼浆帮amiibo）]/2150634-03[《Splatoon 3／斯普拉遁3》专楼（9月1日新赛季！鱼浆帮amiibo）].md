@@ -11882,3 +11882,13 @@ SB泡：长射程模式爆风半径扩大11%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 4167#       发表于 2024-4-20 22:21
+
+今天蛮颓镇广场上有个很搞的背景音效，以前特殊祭典有过类似的吗？没注意过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

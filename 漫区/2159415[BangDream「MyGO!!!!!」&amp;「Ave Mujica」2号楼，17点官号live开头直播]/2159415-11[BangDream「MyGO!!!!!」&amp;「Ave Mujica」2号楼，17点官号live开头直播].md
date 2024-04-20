@@ -12033,3 +12033,15 @@ BD收到了，那么我该用什么设备来看这个BD呢<img src="https://stat
 
 沟槽的海日
 
+
+*****
+
+####  木谷高明  
+##### 15867#       发表于 2024-4-20 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662248&amp;ptid=2159415" target="_blank">skill 发表于 2024-4-20 19:26</a>
+BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
+某宝USB蓝光光驱，能刻录的也就300左右
+
+怕碟坏了可以下个anydvd，翻录一份电子版存硬盘上（试用期免费）
+

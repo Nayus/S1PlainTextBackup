@@ -2466,3 +2466,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 原来星球胜利失败需要手动触发，地狱潜兵，我的大号纸质桌游
 
+
+*****
+
+####  Launce  
+##### 3197#       发表于 2024-4-20 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657597&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-20 09:11</a>
+
+赶紧让虫族占领了新球好推下一个剧本，现在虫族那几个破球早玩腻了，新出的硫酸雨会产生腐蚀牛子结果新图 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这素材和地形复用率极高的程序生成，来回也就换个粒子特效了
+

@@ -3321,3 +3321,11 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 唉！我他妈以后再也不能用爱马仕这个ip嘲讽别的偶像动画了！
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seeley  
+##### 3282#       发表于 2024-4-20 07:47
+
+41.8<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我看完觉得有点不行，大本营直接这么不给面子啊
+

@@ -12078,3 +12078,20 @@ BD是sup格式字幕（相当于一个字一张图那种，而不是文本内封
 BD是sup格式字幕（相当于一个字一张图那种，而不是文本内封）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没看到有sup格式的
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15871#       发表于 2024-4-20 21:32
+
+？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+QQ图片20240420213106.jpg
+(95.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 21:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/213209x8n1ir7mjdrvkmk4.jpg" referrerpolicy="no-referrer">
+

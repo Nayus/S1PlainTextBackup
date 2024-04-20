@@ -6158,3 +6158,22 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  exiaexa  
+##### 485#       发表于 2024-4-20 15:23
+
+ 本帖最后由 exiaexa 于 2024-4-20 15:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64659319&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-20 13:01</a>
+
+扎夫特的说法只到被阿斯兰击坠了又是什么鬼？扎夫特这边因为阿斯兰他爹的操作，一直认知是自然人 ...</blockquote>
+？这设定跟我说的有什么区别
+
+扎夫特对强袭的记录就是到被阿斯兰击坠了啊
+
+你吹的天花乱坠，只要被击坠了不就完事儿了
+
+你阿斯兰拿了星云奖章跟强袭驾驶员是笔烂账有什么关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1525,3 +1525,13 @@ F1如果前面太慢是可以超回去的，哪怕是套圈的 ...</blockquote>
 
 下集国王也跑过来找女主了，真是脚后跟都能想到的落后起点三十年的弱智剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 263#       发表于 2024-4-20 08:30
+
+我倒是越来越感兴趣了，看看到最后和竞轮哪个更烂<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

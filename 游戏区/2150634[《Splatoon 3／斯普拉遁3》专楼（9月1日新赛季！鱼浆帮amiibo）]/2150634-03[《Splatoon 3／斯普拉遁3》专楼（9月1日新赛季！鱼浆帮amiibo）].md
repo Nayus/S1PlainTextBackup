@@ -11862,3 +11862,13 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 4165#       发表于 2024-4-20 21:03
+
+五星小绿+金RPG徽章，然后站的比消防栓还后排，就没下过中场，一看战绩0-5，你说你玩这游戏有啥意思？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1071,3 +1071,13 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无攻不受鹿  
+##### 3073#       发表于 2024-4-20 16:26
+
+要拿-1饰品必须得和龙马搞基吗？这游戏有什么毛病，为什么不能做兄弟，必须得搞基<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

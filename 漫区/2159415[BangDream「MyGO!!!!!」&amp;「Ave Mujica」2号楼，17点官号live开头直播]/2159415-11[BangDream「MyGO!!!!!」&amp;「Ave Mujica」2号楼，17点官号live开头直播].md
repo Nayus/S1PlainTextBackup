@@ -12045,3 +12045,36 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 怕碟坏了可以下个anydvd，翻录一份电子版存硬盘上（试用期免费）
 
+
+*****
+
+####  傘木希美  
+##### 15868#       发表于 2024-4-20 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660694&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-20 16:15</a>
+
+自掃
+
+BD下卷booklet Ave Mujica的部分</blockquote>
+请问下BD里有字幕文件嘛，还是封在视频里的(下了个字幕组上传的，看字幕样式和官方的不一样，很别扭)
+
+
+*****
+
+####  木谷高明  
+##### 15869#       发表于 2024-4-20 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662743&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-20 20:29</a>
+请问下BD里有字幕文件嘛，还是封在视频里的(下了个字幕组上传的，看字幕样式和官方的不一样，很别扭) ...</blockquote>
+BD是sup格式字幕（相当于一个字一张图那种，而不是文本内封）
+
+*****
+
+####  傘木希美  
+##### 15870#       发表于 2024-4-20 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662777&amp;ptid=2159415" target="_blank">木谷高明 发表于 2024-4-20 20:33</a>
+
+BD是sup格式字幕（相当于一个字一张图那种，而不是文本内封）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没看到有sup格式的
+

@@ -6516,3 +6516,14 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 所以有上映时间吗</blockquote>
 4.25 已经订票了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 510#       发表于 2024-4-20 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661597&amp;ptid=2178694" target="_blank">windsaint 发表于 2024-4-20 18:10</a>
+
+4.25 已经订票了</blockquote>
+去香港看》
+

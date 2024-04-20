@@ -6266,3 +6266,29 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 综合鸡狼鸟的实力对比，应该采用另一种更合理的叙述语境——十回战，基拉VS阿斯兰，基拉最多只能赢下6次；十回战，鸟VS阿斯兰，摆脱阿斯兰恐惧症，则鸟能赢下5次。
 
+
+*****
+
+####  晴岚  
+##### 492#       发表于 2024-4-20 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660677&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-20 16:13</a>
+鸡狼之间的实力对比，只看重制版28话21分17秒阿斯兰第一次爆种开始之后那一分钟就行了，1V1双爆种的场景都 ...</blockquote>
+你这样说只会显得狼更拉……作为军校第一的狼开着同水平的机子比作为平民出身的鸡先用完电量然后被逼得只能自爆……这作为ms战而言算平手都是好的了……电量管理水平一塌糊涂，而且还没打出优势……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  exiaexa  
+##### 493#       发表于 2024-4-20 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660563&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-20 15:58</a>
+
+扎夫特这边找到的这只有这些，纯粹是宣传威胁性，联合那边完全没找到，后面都没人追究当时谁驾驶的强袭
+
+ ...</blockquote>
+兄弟你眼神不好的话记得去医院
+
+强袭到底是谁驾驶的在两边都是烂账，这个说法是以前为了帮两边挽尊<strong>网友给圆的</strong>
+

@@ -11808,3 +11808,145 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 真有人看是让人没想到的。。。。</blockquote>
 挺正常的吧，有BD的话，推荐、回味肯定优先BD啊，之前坛友们不推荐的压制组“DBD-Raws”已经做了BDrip，应该还会有其他家的
 
+
+*****
+
+####  御幸一也  
+##### 15856#       发表于 2024-4-20 16:15
+
+ 本帖最后由 御幸一也 于 2024-4-20 16:17 编辑 
+
+自掃
+
+BD下卷booklet Ave Mujica的部分
+
+<img src="https://img.saraba1st.com/forum/202404/20/161510ip0vrsodyk9dvdv0.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (632.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161511viuibjjimjiid0ar.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (560.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161515jr6g9ihttpt7t4ji.jpg" referrerpolicy="no-referrer">
+
+<strong>003.jpg</strong> (668.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161520nkla6f26wxeuaz91.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (701.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161524siixif95fnnivfbw.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (625.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161529zexwsnw7706xx1er.jpg" referrerpolicy="no-referrer">
+
+<strong>006.jpg</strong> (588.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161533boooewmcuscsmwwh.jpg" referrerpolicy="no-referrer">
+
+<strong>007.jpg</strong> (649.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161537g5eywbyebtyq6ble.jpg" referrerpolicy="no-referrer">
+
+<strong>008.jpg</strong> (756.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161541cggqcgw4bzpmqzvf.jpg" referrerpolicy="no-referrer">
+
+<strong>009.jpg</strong> (754.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/161545jhj44nmh1q9shl4m.jpg" referrerpolicy="no-referrer">
+
+<strong>010.jpg</strong> (708.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:15 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  kivz  
+##### 15857#       发表于 2024-4-20 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660667&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-20 16:12</a>
+
+绝对不能细想的事情：自己和新生代声优的年龄差</blockquote>
+认识的声优：阿姨→姐姐→同龄→妹妹→next 女儿
+
+唉，别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15858#       发表于 2024-4-20 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655488&amp;ptid=2159415" target="_blank">kauking 发表于 2024-4-19 23:33</a>
+
+真有人看是让人没想到的。。。。</blockquote>
+能买BD的基本上都是会多刷重温的，反正都是要重温了把BD版也看一遍还有找作画修正很正常啊，B站就一堆作画修正对比的
+
+
+*****
+
+####  御幸一也  
+##### 15859#       发表于 2024-4-20 16:23
+
+掃彩圖必然會出現的網紋問題，已經盡量處理了，湊合看吧。
+
+<img src="https://img.saraba1st.com/forum/202404/20/162140vo5i1vy0kw6j40gg.jpg" referrerpolicy="no-referrer">
+
+<strong>imag.jpg</strong> (264.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 16:21 上传
+

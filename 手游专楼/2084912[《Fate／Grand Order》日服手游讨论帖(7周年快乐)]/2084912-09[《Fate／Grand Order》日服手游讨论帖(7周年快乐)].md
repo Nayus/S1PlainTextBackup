@@ -1708,3 +1708,11 @@ PU角色暫時還沒有新增強化任務
 没有梅林，女梅林值不值得抽，感觉技能差不多，女的宝具数上去缓充好点，但是又不打算抽高宝 ...</blockquote>
 一个红UP一个蓝UP，这个差距很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 12152#       发表于 2024-4-20 17:18
+
+感谢各位拔草
+

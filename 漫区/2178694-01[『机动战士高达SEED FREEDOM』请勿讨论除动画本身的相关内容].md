@@ -6383,3 +6383,31 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 500#       发表于 2024-4-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661029&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-20 17:01</a>
+首先必须明确一点，这里没有所谓平民的存在，有的是钦定的最强调整人或者钦定的C位加成，这场必须体现出 ...</blockquote>
+既然没有所谓的平民那是不是也可以把阿斯兰军校第一这个设定给拿走？ 基拉就是平民出身不是军校生啊。
+我当然认同他们后续再演练一次也可能反过来，我也不认为战力比较是做数学题一样，10一定大于9。
+但就演出展现而言就是，至少在这一场战斗里阿斯兰的表现不足以支撑福田的话来体现出比基拉强。
+哪怕是作为小队长，阿斯兰在种跟种命展现出来的对比自由里基拉展现出来的带队水平我觉得两个人则是各有各的拉……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shiko  
+##### 501#       发表于 2024-4-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661042&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-20 17:03</a>
+2887经典战是分水岭，我认为到这个时候鸡狼都已经大成了。</blockquote>
+并不能大成，71鸡决战打神意被大破，74鸡边走神边无伤过传说
+
+虽然你种经常说“状态影响实力”，但克和雷毕竟纸面数据相等，差距这么大说不过去
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

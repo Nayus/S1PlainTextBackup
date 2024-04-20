@@ -6109,3 +6109,38 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 草，看最近几页真切感受到你种在高达史上地位了“其他作品做得到吗” ...</blockquote>
 一角驴做得到，虽说一角驴角色更难顶
 
+
+*****
+
+####  gundammarkⅡ  
+##### 483#       发表于 2024-4-20 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64658285&amp;ptid=2178694" target="_blank">exiaexa 发表于 2024-4-20 10:58</a>
+
+答案是没有，所以我打的是引号
+
+强袭到底是谁驾驶的在两边都是烂账，这个说法是以前为了帮两边挽尊网友给圆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">扎夫特的说法只到被阿斯兰击坠了又是什么鬼？扎夫特这边因为阿斯兰他爹的操作，一直认知是自然人驾驶的强袭，三番四次都打退追兵，自然人搞出了能威胁到协调者的MS
+
+阿斯兰打掉强袭获得了星云奖星云勋章
+
+<img src="https://img.saraba1st.com/forum/202404/20/125655mats337k337tas8z.jpg" referrerpolicy="no-referrer">
+
+<strong>Order_of_the_Nebula_File_01_(Official_Gundam_Fact_File_143).jpg</strong> (191.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 12:56 上传
+
+虽然后来真获得了两次让观众觉得这个星云勋章没什么含金量
+
+但在此之前获得星云勋章的克队战绩是在世界树攻防战打掉37台MA和6条战舰
+
+<img src="https://img.saraba1st.com/forum/202404/20/130112pgtl05auaxzb09lr.jpg" referrerpolicy="no-referrer">
+
+<strong>Battle_of_Yggdrasil_File_01_(Gundam_Perfect_Files_018-22).jpg</strong> (251.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 13:01 上传
+

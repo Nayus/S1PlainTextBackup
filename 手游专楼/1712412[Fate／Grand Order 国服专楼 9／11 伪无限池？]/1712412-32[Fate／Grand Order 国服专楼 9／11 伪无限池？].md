@@ -87,3 +87,13 @@
 
 提妈兽尼想一个抽一宝收藏一个抽个二宝，哪个抽二宝好一点呢
 
+
+*****
+
+####  khxooo  
+##### 46307#       发表于 2024-4-20 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661624&amp;ptid=1712412" target="_blank">Sleipnirω 发表于 2024-4-20 18:14</a>
+提妈兽尼想一个抽一宝收藏一个抽个二宝，哪个抽二宝好一点呢</blockquote>
+提妈？毕竟光炮，上班机会比兽尼高多了。
+

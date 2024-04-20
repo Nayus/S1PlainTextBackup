@@ -1716,3 +1716,14 @@ PU角色暫時還沒有新增強化任務
 
 感谢各位拔草
 
+
+*****
+
+####  清河子  
+##### 12153#       发表于 2024-4-20 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64659702&amp;ptid=2084912" target="_blank">beer 发表于 2024-4-20 13:56</a>
+没有梅林，女梅林值不值得抽，感觉技能差不多，女的宝具数上去缓充好点，但是又不打算抽高宝 ...</blockquote>
+有些高难降回血，蓝莓是hp上限不是绿字方便逃课……其他感觉大差不差
+我自己是对梅系脸有感情，抽个一宝当散装c呆用了
+

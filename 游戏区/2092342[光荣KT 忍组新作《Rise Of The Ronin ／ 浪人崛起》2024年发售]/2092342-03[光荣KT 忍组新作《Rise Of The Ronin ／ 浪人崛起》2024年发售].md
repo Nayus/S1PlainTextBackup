@@ -1059,3 +1059,15 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  垃圾网站上  
+##### 3072#       发表于 2024-4-20 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660239&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-20 15:19</a>
+给忍龙流的泽村在哪里可以刷好感？目前第二章还没找到他人</blockquote>
+江户麴町左上的军旗旁边房子地下是忍者屋，人在那里
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

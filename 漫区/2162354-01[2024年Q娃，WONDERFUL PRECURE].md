@@ -348,3 +348,13 @@
 <img src="https://p.sda1.dev/17/cc96e2f26ba0d6e668fcd7ae03dc7a46/003_2_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/8b6facd31baa6b4f8c636790df39bc12/004.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1323#       发表于 2024-4-20 15:53
+
+小雪屁股好大❤️
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -6189,3 +6189,14 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ナルバレック  
+##### 487#       发表于 2024-4-20 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660405&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-20 15:37</a>
+
+借之前坛友的话，狼再强，正义相关的产品线都太少了，狼再怎么被福田吹，商业价值甚至不如鸟，mb都是命运 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

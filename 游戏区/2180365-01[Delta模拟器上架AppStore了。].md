@@ -821,3 +821,28 @@ We have come to the decision that we cannot continue to allow this to occur. Pir
 
 Thank you for your years of support and for understanding our decision.
 
+
+*****
+
+####  nanonya2  
+##### 70#       发表于 2024-4-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660902&amp;ptid=2180365" target="_blank">batrain 发表于 2024-4-20 16:44</a>
+项目GG了。
+
+估计没希望上AppStore了。</blockquote>
+包含Citra内核的Folium正在准备上架。
+能否通信进化和是否有Citra是两个不同的问题，只要能正确联机那当然是可以通信进化的，前面那条回复混淆了二者。
+
+*****
+
+####  batrain  
+##### 71#         楼主| 发表于 2024-4-20 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660946&amp;ptid=2180365" target="_blank">nanonya2 发表于 2024-4-20 16:52</a>
+
+包含Citra内核的Folium正在准备上架。
+
+能否通信进化和是否有Citra是两个不同的问题，只要能正确联机那当 ...</blockquote>
+没注意到这个项目，关注了。
+

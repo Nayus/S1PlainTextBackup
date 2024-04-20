@@ -11984,3 +11984,16 @@ BD下卷booklet Ave Mujica的部分</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">话说，码云上买BD的话，除了米亚亲还有哪家能试试的啊
 
+
+*****
+
+####  御幸一也  
+##### 15863#       发表于 2024-4-20 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661075&amp;ptid=2159415" target="_blank">kivz 发表于 2024-4-20 17:07</a>
+
+初华还用家乡做头像啊……
+
+&amp; ...</blockquote>
+說真的看起來有點像是瀬戸内海，就是要特定到哪個島就太難了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

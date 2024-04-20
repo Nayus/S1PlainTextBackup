@@ -12154,3 +12154,11 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  [皆神孝介]  
+##### 15876#       发表于 2024-4-20 23:34
+
+1号楼好像讨论过三角和纯田都是奄美群岛出身的吧
+

@@ -6458,3 +6458,26 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 虽然你种经常说“状态影响实力”，但克和雷 ...</blockquote>
 没有大成也有9成，另外也不要在意纸面数据相等了，没比FT爆言有价值太多的。
 
+
+*****
+
+####  晴岚  
+##### 505#       发表于 2024-4-20 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64661238&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-20 17:31</a>
+1，基拉本来就不是平民，他是最强CO，坐进强袭就是顶级战力是天生的。
+
+2，阿斯兰本来就是军校第一。</blockquote>
+笑死，最强co就不是平民吗？他有接受过任何ms战斗的训练吗？基拉自己都在剧里讲了虽然调整者确实比自然人强，但也是要努力的好吧。
+
+之前给无限正义站台说了无限正义跟命运平级，被坛友说是狼厨，现在就被说成鸡厨，什么时候我才能被说是鸟厨啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  natmk  
+##### 506#       发表于 2024-4-20 17:40
+
+讲道理2887那次吃了自爆早挂了能活下来都靠主角光环
+

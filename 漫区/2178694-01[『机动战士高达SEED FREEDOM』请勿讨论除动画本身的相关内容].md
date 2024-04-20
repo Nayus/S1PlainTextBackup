@@ -5767,3 +5767,24 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 这时候就到了表现跟设定看哪个的时候了，无论怎么说鸡也赢过阿斯兰，而且种子的时候阿斯兰还拖着三个红衣...伊扎克第四集还是第五集就说了，他们四个红衣结果开着同水平的机体拿不下一台强袭，扣掉阿斯兰这个不作为的也是三个红衣最后还逼到阿斯兰用圣盾自爆才解决（
 
+
+*****
+
+####  AraTurambar  
+##### 453#       发表于 2024-4-20 08:21
+
+不过两泽死了那么多年，再出新作的话编剧谁为主呀？
+
+*****
+
+####  shiko  
+##### 454#       发表于 2024-4-20 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657323&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-20 08:14</a>
+这时候就到了表现跟设定看哪个的时候了，无论怎么说鸡也赢过阿斯兰，而且种子的时候阿斯兰还拖着三个红衣.. ...</blockquote>
+这题我会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先角色实力是会成长变化的，其次一个精神状态可以把同级别的人战力差距拉到一刀秒
+
+你种的战力问题补丁还是挺全面的，怎么扯都能圆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -415,3 +415,14 @@
 
 搁哪呐机兵，不如改名无限机械纪元
 
+
+*****
+
+####  nage560  
+##### 42#       发表于 2024-4-20 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651012&amp;ptid=2168791" target="_blank">Shu-Stella 发表于 2024-4-19 16:04</a>
+
+有个叫"创世E"的解密步行模拟游戏，几乎可以说是Blame的同人作，不过画面比较简单而且没什么剧情，总的来 ...</blockquote>
+看了下，的确有那种感觉，不过风格还是差蛮大的。
+

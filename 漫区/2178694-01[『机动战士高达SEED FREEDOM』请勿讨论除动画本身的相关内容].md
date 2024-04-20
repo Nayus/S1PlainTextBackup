@@ -6049,3 +6049,34 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 种前期扎夫特针对纯粹是因为大天使号和“强袭的驾驶员托尔”太强了，成为传奇的是自由可 ...</blockquote>
 托尔被编作强袭驾驶员记录的设定到底是出自哪里呀？
 
+
+*****
+
+####  supermangunv4  
+##### 477#       发表于 2024-4-20 10:49
+
+乐
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  tsoulgain  
+##### 478#       发表于 2024-4-20 10:55
+
+草，看最近几页真切感受到你种在高达史上地位了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">“其他作品做得到吗”
+
+*****
+
+####  exiaexa  
+##### 479#       发表于 2024-4-20 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64658090&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-20 10:40</a>
+
+托尔被编作强袭驾驶员记录的设定到底是出自哪里呀？</blockquote>
+答案是没有，所以我打的是引号
+
+强袭到底是谁驾驶的在两边都是烂账，这个说法是以前为了帮两边挽尊，网友给圆的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11790,3 +11790,21 @@ crychic解散是什么坏事吗非要分锅<img src="https://static.saraba1st.co
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cindy355  
+##### 15854#       发表于 2024-4-20 16:12
+
+绝对不能细想的事情：自己和新生代声优的年龄差
+
+*****
+
+####  [皆神孝介]  
+##### 15855#       发表于 2024-4-20 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64655488&amp;ptid=2159415" target="_blank">kauking 发表于 2024-4-19 23:33</a>
+
+真有人看是让人没想到的。。。。</blockquote>
+挺正常的吧，有BD的话，推荐、回味肯定优先BD啊，之前坛友们不推荐的压制组“DBD-Raws”已经做了BDrip，应该还会有其他家的
+

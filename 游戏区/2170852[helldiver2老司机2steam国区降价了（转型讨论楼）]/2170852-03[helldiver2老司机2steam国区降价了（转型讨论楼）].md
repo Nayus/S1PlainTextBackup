@@ -2536,3 +2536,14 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 我这边把打开空投列表设置成了小键盘0，但每次重新登陆后都会变成insert，有什么办法么
 
+
+*****
+
+####  白昼梦  
+##### 3204#       发表于 2024-4-21 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64663891&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-4-20 22:44</a>
+
+如果配装是爆裂铳+类星体，怎么解决清杂🤔带激光狗吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">爆裂铳打虫子是清杂武器，尤其对拉烟之后的增援怪压制力特别强，被贴身就向后飞扑射一发就完事了。激光狗就是补漏用的
+

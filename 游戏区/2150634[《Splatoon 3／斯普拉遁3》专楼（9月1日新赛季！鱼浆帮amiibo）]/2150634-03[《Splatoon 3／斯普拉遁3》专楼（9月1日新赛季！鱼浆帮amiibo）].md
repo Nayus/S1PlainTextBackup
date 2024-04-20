@@ -11918,3 +11918,15 @@ SB泡：长射程模式爆风半径扩大11%
 
 小鸡在哪里啊，好想看看小鸡和小熊的颜色搭配<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 4170#         楼主| 发表于 2024-4-21 00:07
+
+<blockquote>KBAC 发表于 2024-4-20 22:21
+今天蛮颓镇广场上有个很搞的背景音效，以前特殊祭典有过类似的吗？没注意过
+
+论坛助手,iPhone ...</blockquote>
+之前是蛮颓镇的祭典音乐变了，音效好像是这次才有？
+

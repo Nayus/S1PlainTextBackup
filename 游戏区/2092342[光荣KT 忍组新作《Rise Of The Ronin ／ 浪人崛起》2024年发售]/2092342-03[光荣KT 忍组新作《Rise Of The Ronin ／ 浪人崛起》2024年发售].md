@@ -1081,3 +1081,23 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hkguty  
+##### 3074#       发表于 2024-4-20 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660498&amp;ptid=2092342" target="_blank">垃圾网站上 发表于 2024-4-20 15:50</a>
+
+江户麴町左上的军旗旁边房子地下是忍者屋，人在那里
+
+—— 来自 nubia NX712J, Android 13上的 S1Next-鹅 ...</blockquote>
+谢了，立马就去
+
+*****
+
+####  hkguty  
+##### 3075#       发表于 2024-4-20 16:42
+
+反过来说如果对饰品没什么需求的话就不用比翼了吧，主要是他给的-1饰品太重要，如果后面有其他途径可以获取倒也没什么所谓了
+

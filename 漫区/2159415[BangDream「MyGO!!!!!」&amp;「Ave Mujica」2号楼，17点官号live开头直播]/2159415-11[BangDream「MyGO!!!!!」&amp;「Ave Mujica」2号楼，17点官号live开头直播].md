@@ -11950,3 +11950,14 @@ BD下卷booklet Ave Mujica的部分
 
 2024-4-20 16:21 上传
 
+
+*****
+
+####  cindy355  
+##### 15860#       发表于 2024-4-20 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660709&amp;ptid=2159415" target="_blank">kivz 发表于 2024-4-20 16:19</a>
+
+认识的声优：阿姨→姐姐→&amp;# ...</blockquote>
+实在是太恐怖故事了，根本不愿意看新生代声优的年龄。
+

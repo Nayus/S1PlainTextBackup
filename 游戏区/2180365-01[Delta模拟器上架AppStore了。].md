@@ -781,3 +781,43 @@ Procreate等
 
 等着啥时候支持滤镜了可以重温一下 rpg 了
 
+
+*****
+
+####  batrain  
+##### 68#         楼主| 发表于 2024-4-20 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64646286&amp;ptid=2180365" target="_blank">fyzqwzh 发表于 2024-4-19 09:21</a>
+
+把bios都绑定了，打开nds游戏还是闪退是什么情况</blockquote>
+换个bios试试看。
+
+比如用国行代理的iQue DSl导出的bios。
+
+下载地址：
+[https://pan.baidu.com/s/1MGpdJDetqdcoy2Vk_8NflA?pwd=kqna](https://pan.baidu.com/s/1MGpdJDetqdcoy2Vk_8NflA?pwd=kqna)
+
+*****
+
+####  batrain  
+##### 69#         楼主| 发表于 2024-4-20 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64652851&amp;ptid=2180365" target="_blank">欧派爱欧派 发表于 2024-4-19 18:49</a>
+
+citra可以，试过一次</blockquote>
+项目GG了。
+
+估计没希望上AppStore了。
+
+===============================================
+
+Hello yuz-ers and Citra fans:
+
+We write today to inform you that yuzu and yuzu’s support of Citra are being discontinued, effective immediately.
+
+yuzu and its team have always been against piracy. We started the projects in good faith, out of passion for Nintendo and its consoles and games, and were not intending to cause harm. But we see now that because our projects can circumvent Nintendo’s technological protection measures and allow users to play games outside of authorized hardware, they have led to extensive piracy. In particular, we have been deeply disappointed when users have used our software to leak game content prior to its release and ruin the experience for legitimate purchasers and fans.
+
+We have come to the decision that we cannot continue to allow this to occur. Piracy was never our intention, and we believe that piracy of video games and on video game consoles should end. Effective today, we will be pulling our code repositories offline, discontinuing our Patreon accounts and Discord servers, and, soon, shutting down our websites. We hope our actions will be a small step toward ending piracy of all creators’ works.
+
+Thank you for your years of support and for understanding our decision.
+

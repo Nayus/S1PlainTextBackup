@@ -846,3 +846,11 @@ Thank you for your years of support and for understanding our decision.
 能否通信进化和是否有Citra是两个不同的问题，只要能正确联机那当 ...</blockquote>
 没注意到这个项目，关注了。
 
+
+*****
+
+####  绯雨流  
+##### 72#       发表于 2024-4-20 21:57
+
+逆转4里的指纹吹气怎么解决？
+

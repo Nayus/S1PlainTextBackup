@@ -1117,3 +1117,14 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 又更新了？300m左右来自: iPhone客户端
 
+
+*****
+
+####  ckseng  
+##### 3078#       发表于 2024-4-20 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64654674&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-19 21:58</a>
+
+补丁提到了四方破更容易命中，是释放速度变快了吗？我怎么感觉还是不容易命中。 ...</blockquote>
+除了释放速度以外，更新前的判定范围超小
+

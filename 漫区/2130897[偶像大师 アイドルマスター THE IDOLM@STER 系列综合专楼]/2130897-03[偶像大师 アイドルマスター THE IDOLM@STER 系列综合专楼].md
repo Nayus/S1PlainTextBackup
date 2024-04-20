@@ -3418,3 +3418,72 @@ https://twitter.com/Karfeteria/status/178148740088953 ...</blockquote>
 
 导播开了得了
 
+
+*****
+
+####  wfhtony  
+##### 3291#       发表于 2024-4-20 19:19
+
+<img src="https://tc2.wfhtony.space/images/2024/04/20/28fbb3a02c9e23273f6f34620a30717f.jpg" referrerpolicy="no-referrer">
+
+Day 1 的業務聯絡環節：
+
+<img src="https://tc2.wfhtony.space/images/2024/04/20/c5d8ace1fc25716de6dae4f61fb5cffe.jpg" referrerpolicy="no-referrer">
+
+好...評......？
+
+<img src="https://tc2.wfhtony.space/images/2024/04/20/e8bfb291f67f5569397687f5e9250cdc.jpg" referrerpolicy="no-referrer">
+
+#04延時放送了。
+
+藍光小圓盤方面：
+<img src="https://tc2.wfhtony.space/images/2024/04/20/80d549550cf30a19e3ab0e5288515555.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/06d0b8e2126e46f3922acbae2eaf231c.jpg" referrerpolicy="no-referrer">
+
+二期先行方面：
+<img src="https://tc2.wfhtony.space/images/2024/04/20/a30985c548af2c27d54b4544391a57b9.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/29ac73f0c1edb0ebe81c45af98cac9e6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/1dc2f4bdebf31**f10003c5d047117.jpg" referrerpolicy="no-referrer">
+
+遊戲方面：
+<img src="https://tc1.wfhtony.space/images/2024/04/20/bf1362dfe8cf829de616bbd30d2afbbd.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/93526ad7aa05580aeb7d2a6a2b1ff47b.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/39f964a248d4ac3a51a1c7ffc510d86a.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/fa53a1ef1e4629fd3441c82924d37b6c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/ceeb0c8e298692e8c7261618352c5c31.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/1d39749c7d16597c100d3d0a94736745.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/90ecce7855e4eb689ef0167ed02ddc40.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/a0e74408d5c9e835a9013cbcf70a0fcb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/face70c58322dddf8cf4609f6733c167.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/e26d36d1008cda1f81e0bbb731ef847c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/cc95a12d3dec1208c0094ddf314e6ac8.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/ddc584587a44f421e937eda955402efe.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/20/48fd621944524be817575e1f7db1c687.jpg" referrerpolicy="no-referrer">
+
+**的MV直接拿來用是吧...
+
+<img src="https://tc2.wfhtony.space/images/2024/04/20/aea01ec6a4547c6feb9fbd6d04fc5d1e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/de783b33a3fc012bf6d2633795450adb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/f754a3525ddf3e7725aaade5d72e48bc.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/5b447af9abd7c2e655900529c586fe33.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/3bd63663ce58f5a5c6790d6c7baaf3e6.jpg" referrerpolicy="no-referrer">
+
+慣例最速VOD+副音軌。
+
+<img src="https://tc2.wfhtony.space/images/2024/04/20/2251031bf8a3db5ab463c0e0cb06581c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/b95edc1d364aacbff4406aa9054954b6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/545d7d4330b91735b822f2bfad4f87fb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/3508761606cc1ad07643f9513017c1b1.jpg" referrerpolicy="no-referrer">
+
+七月LIVE的追加出演：
+<img src="https://tc2.wfhtony.space/images/2024/04/20/4ed897287e83627b7350312f0379a4c3.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/bf928361eb0081b27d28fbc5d660fce9.jpg" referrerpolicy="no-referrer">
+
+這次的合言葉：
+<img src="https://tc2.wfhtony.space/images/2024/04/20/91b6cd7726dbd4c78b24dc713c06272d.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/58b7a0d8f435a6636eb7d3dc493ddf28.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/20/cabfc92bbd9108a266354df56f740e9a.jpg" referrerpolicy="no-referrer">
+
+Day 1業務聯絡結束。
+信息量......除了七月LIVE的追加出演人員之外，都是「如有」的程度吧。
+

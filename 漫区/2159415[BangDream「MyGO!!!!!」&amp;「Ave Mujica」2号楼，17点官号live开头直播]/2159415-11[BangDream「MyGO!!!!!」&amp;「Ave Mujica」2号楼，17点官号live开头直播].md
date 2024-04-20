@@ -11997,3 +11997,13 @@ BD下卷booklet Ave Mujica的部分</blockquote>
 &amp; ...</blockquote>
 說真的看起來有點像是瀬戸内海，就是要特定到哪個島就太難了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skill  
+##### 15864#       发表于 2024-4-20 19:26
+
+BD收到了，那么我该用什么设备来看这个BD呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

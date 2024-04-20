@@ -5855,3 +5855,14 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ALUD.  
+##### 460#       发表于 2024-4-20 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657460&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-20 08:46</a>
+
+自爆的那场阿斯兰没电还是因为自己瞎用海妖没电的，而且鸡作为普通人肉身战打不过狼这种军校生我觉得挺正 ...</blockquote>
+稍微更正一下，狼发挥了120%的实力是为了解释狼为什么能<strong>无伤</strong>赢鸟的，如果只是100%大概会受点擦伤。如果鸟精神没问题也发挥100%，IJ也得缺胳膊少腿
+

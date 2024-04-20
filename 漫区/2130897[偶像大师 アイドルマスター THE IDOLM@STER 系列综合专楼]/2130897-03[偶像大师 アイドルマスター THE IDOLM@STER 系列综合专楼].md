@@ -3398,3 +3398,15 @@ https://www.bilibili.com/video/av741191365 ...</blockquote>
 https://www.bilibili.com/v ...</blockquote>
 怜<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 3289#       发表于 2024-4-20 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64658620&amp;ptid=2130897" target="_blank">zeroed 发表于 2024-4-20 11:35</a>
+泰国版百万泳装回把除了瑞希的胸都打码了 
+
+https://twitter.com/Karfeteria/status/178148740088953 ...</blockquote>
+其实平胸妹子是吧，但是瑞希的泳装是最像内衣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

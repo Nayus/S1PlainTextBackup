@@ -11731,3 +11731,13 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4155#       发表于 2024-4-20 13:46
+
+到目前为止依然每场对战第一，这比游戏没法玩了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

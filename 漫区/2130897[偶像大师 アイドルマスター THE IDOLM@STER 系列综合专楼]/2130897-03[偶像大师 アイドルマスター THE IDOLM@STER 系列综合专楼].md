@@ -3337,3 +3337,25 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 
 到底是怎么做出来这么一坨狗屎到
 
+
+*****
+
+####  两个路人  
+##### 3284#       发表于 2024-4-20 11:23
+
+ 本帖最后由 两个路人 于 2024-4-20 11:26 编辑 
+<blockquote>Alicest 发表于 2024-4-18 20:55
+闪p急了</blockquote>
+建议赶快学习隔壁偶像荣耀，赶快开个gal玩玩，大家光明正大的大搞特搞（邪笑
+
+*****
+
+####  Alicest  
+##### 3285#       发表于 2024-4-20 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64658515&amp;ptid=2130897" target="_blank">两个路人 发表于 2024-4-20 11:23</a>
+建议赶快学习隔壁偶像荣耀，赶快开个gal玩玩（邪笑
+
+https://www.bilibili.com/video/av741191365 ...</blockquote>
+小高不敢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他现在已经肥了，没志气了
+

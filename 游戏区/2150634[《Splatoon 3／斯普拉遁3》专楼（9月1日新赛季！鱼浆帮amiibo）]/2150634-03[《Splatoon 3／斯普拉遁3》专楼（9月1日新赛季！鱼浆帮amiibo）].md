@@ -11750,3 +11750,37 @@ SB泡：长射程模式爆风半径扩大11%
 4kスコーピオン原本就是镜狙大佬吧，上赛季塔楼top13，其他模式基本也是100以内
 站塔开镜狙的特别稳，是我学不来的。
 
+
+*****
+
+####  罗克萨斯  
+##### 4157#       发表于 2024-4-20 14:26
+
+杀得好爽，连赢两个10倍了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/20/142622f2f5f72fnyd73q53.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042014245500-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (256.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/142623jrdohpdq2z2gh2du.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042013075400-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (242.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 14:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/20/142623dqtyuiec1j1w3zv1.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042014162000-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (249.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 14:26 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1677,3 +1677,23 @@ PU角色暫時還沒有新增強化任務
 
 没有梅林，女梅林值不值得抽，感觉技能差不多，女的宝具数上去缓冲好点，但是又不打算抽高宝
 
+
+*****
+
+####  希望之花  
+##### 12149#       发表于 2024-4-20 14:16
+
+女梅林抽到一年后还是绊1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 12150#       发表于 2024-4-20 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64659702&amp;ptid=2084912" target="_blank">beer 发表于 2024-4-20 13:56</a>
+
+没有梅林，女梅林值不值得抽，感觉技能差不多，女的宝具数上去缓冲好点，但是又不打算抽高宝 ...</blockquote>
+不打膀胱局的话，一宝就够了吧
+
+不是特别喜欢的话，现在也就所长本等锁助战的关卡能用上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

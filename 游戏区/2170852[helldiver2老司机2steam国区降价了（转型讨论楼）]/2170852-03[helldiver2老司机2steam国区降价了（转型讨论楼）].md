@@ -2440,3 +2440,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 昨天加路人局遇到bug，进撤离机舱没有触发判定，能在里面爬来爬去还能出来。最后几个人实在没法撤离，疯狂手雷自爆把增援耗干才完成任务<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 3194#       发表于 2024-4-20 14:18
+
+国防部！布拉施！我新战备呢！
+

@@ -6144,3 +6144,17 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 2024-4-20 13:01 上传
 
+
+*****
+
+####  晴岚  
+##### 484#       发表于 2024-4-20 14:14
+
+说到设定跟演出让我想起之前楼没炸的时候，我说了句四天王平级，无论无限正义武装怎么不炫都跟命运平级，结果被不少坛友说了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">甚至有坛友拿出命运的玩具比无限正义的玩具更多来说事。
+
+所以我个人觉得无论福田再怎么吹狼，再怎么说鸡普通，只要后续有续作鸡肯定都会是打对面最强的那个boss。
+
+再然后当初种子克队嘴炮鸡的理由有一大段说鸡太完美了是人类的梦想，结果现在鸡能堂堂正正的怼回去了，我只是个普通的调整者，什么人类的梦想，你说的是阿斯兰吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

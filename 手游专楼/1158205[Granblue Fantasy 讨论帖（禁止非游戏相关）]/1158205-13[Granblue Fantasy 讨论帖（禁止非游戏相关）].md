@@ -18,3 +18,13 @@
 
 先给浴衣宝石来个戒指压压惊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 17886#       发表于 2024-4-20 14:23
+
+ 本帖最后由 poor 于 2024-4-20 14:26 编辑 
+
+U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗上限好像也看到有人用，不过不知道什么时候用
+

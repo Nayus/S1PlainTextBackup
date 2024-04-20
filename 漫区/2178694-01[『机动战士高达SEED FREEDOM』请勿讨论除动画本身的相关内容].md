@@ -6369,3 +6369,17 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 我就提醒一句随着角色经历，角色的实力也会跟着变化的，你们论战 ...</blockquote>
 2887经典战是分水岭，我认为到这个时候鸡狼都已经大成了。
 
+
+*****
+
+####  晴岚  
+##### 499#       发表于 2024-4-20 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660988&amp;ptid=2178694" target="_blank">shiko 发表于 2024-4-20 16:56</a>
+不想讨论谁更强（反正跟我推无关
+
+我就提醒一句随着角色经历，角色的实力也会跟着变化的，你们论战 ...</blockquote>
+因为后面他们俩就没死斗过啊，再对上手已经是被一刀八了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

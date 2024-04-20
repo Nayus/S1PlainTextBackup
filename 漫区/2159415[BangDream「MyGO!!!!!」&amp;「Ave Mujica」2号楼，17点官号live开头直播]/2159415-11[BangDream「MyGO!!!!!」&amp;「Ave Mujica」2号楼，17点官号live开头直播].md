@@ -11961,3 +11961,18 @@ BD下卷booklet Ave Mujica的部分
 认识的声优：阿姨→姐姐→&amp;# ...</blockquote>
 实在是太恐怖故事了，根本不愿意看新生代声优的年龄。
 
+
+*****
+
+####  kivz  
+##### 15861#       发表于 2024-4-20 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64660694&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-20 16:15</a>
+
+自掃
+
+BD下卷booklet Ave Mujica的部分</blockquote>
+初华还用家乡做头像啊……
+
+能在mujica看到两个北漂人的故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -12142,3 +12142,15 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 立希&amp;喵梦（底边鼓手）
 
+
+*****
+
+####  dqtql  
+##### 15875#       发表于 2024-4-20 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64663278&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-20 21:32</a>
+？</blockquote>
+“你好，立刻给我停止聚众看盗版”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

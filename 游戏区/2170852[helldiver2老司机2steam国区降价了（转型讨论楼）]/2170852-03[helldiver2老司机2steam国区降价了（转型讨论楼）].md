@@ -2485,3 +2485,16 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这5天防守10个星球感觉就是导演组摆烂了，准备等下周四发新任务+战备
 
+
+*****
+
+####  Awanano  
+##### 3199#       发表于 2024-4-20 22:09
+
+以后各位见到南朝鲜狗不急着玩游戏的话，可以直接退或者踢<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+刚刚开到一把三个垃圾韩国人估计是三黑，打的又垃圾又摸不到样本，还卡。最后鹈鹕到位经典tk踢人
+倒不是很有所谓，打那么久还赶着收衣服已经很折磨了，样本还少
+草，我甚至都不感到生气，纯感觉他们好可怜哈哈哈哈
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

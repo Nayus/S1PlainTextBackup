@@ -97,3 +97,11 @@
 提妈兽尼想一个抽一宝收藏一个抽个二宝，哪个抽二宝好一点呢</blockquote>
 提妈？毕竟光炮，上班机会比兽尼高多了。
 
+
+*****
+
+####  GuDaZi  
+##### 46308#       发表于 2024-4-20 21:22
+
+400多石，最后一个十连出了提妈。下星期抽兽尼钱包要大出血了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+

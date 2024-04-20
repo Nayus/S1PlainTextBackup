@@ -2477,3 +2477,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 赶紧让虫族占领了新球好推下一个剧本，现在虫族那几个破球早玩腻了，新出的硫酸雨会产生腐蚀牛子结果新图 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这素材和地形复用率极高的程序生成，来回也就换个粒子特效了
 
+
+*****
+
+####  不可逆的坏死  
+##### 3198#       发表于 2024-4-20 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这5天防守10个星球感觉就是导演组摆烂了，准备等下周四发新任务+战备
+

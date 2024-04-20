@@ -12095,3 +12095,21 @@ QQ图片20240420213106.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/20/213209x8n1ir7mjdrvkmk4.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 15872#       发表于 2024-4-20 21:40
+
+ 本帖最后由 [皆神孝介] 于 2024-4-20 21:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662813&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-4-20 20:37</a>
+
+下的这个DBD-RAWS的放了他自家的字幕，把这些字幕拿掉后，能看到各种语言的字幕选项(不知道是不是 ...</blockquote>
+三年前的帖子了，不知道现在还有没有参考价值
+[https://bbs.acgrip.com/thread-8163-1-1.html](https://bbs.acgrip.com/thread-8163-1-1.html)
+
+这贴里，LPSub过几天应该也要发BDrip
+[https://bbs.acgrip.com/thread-11628-1-1.html](https://bbs.acgrip.com/thread-11628-1-1.html)
+
+顺带一提这贴的7L有BDMV的磁联
+

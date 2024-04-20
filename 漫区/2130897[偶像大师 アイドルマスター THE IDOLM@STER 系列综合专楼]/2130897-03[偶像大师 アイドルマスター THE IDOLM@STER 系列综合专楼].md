@@ -3359,3 +3359,30 @@ level1培养出来的居然能唱的那么烂 只能说声优真有点技术
 https://www.bilibili.com/video/av741191365 ...</blockquote>
 小高不敢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他现在已经肥了，没志气了
 
+
+*****
+
+####  lovekoishi  
+##### 3286#       发表于 2024-4-20 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奇现在评价里有多少报复性差评的成分（游戏王a5那种）
+
+以及最后评分会跌到多少
+
+
+*****
+
+####  zeroed  
+##### 3287#       发表于 2024-4-20 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泰国版百万泳装回把除了瑞希的胸都打码了 
+[https://twitter.com/Karfeteria/status/1781487400889536734](https://twitter.com/Karfeteria/status/1781487400889536734)
+
+<img src="https://img.saraba1st.com/forum/202404/20/113312spfopfa7ljx1liil.jpg" referrerpolicy="no-referrer">
+
+<strong>GLkdVzJa8AAbNC-.jpg</strong> (217.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 11:33 上传
+

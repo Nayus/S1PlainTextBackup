@@ -11910,3 +11910,11 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  藏獒·烨  
+##### 4169#       发表于 2024-4-20 23:55
+
+小鸡在哪里啊，好想看看小鸡和小熊的颜色搭配<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

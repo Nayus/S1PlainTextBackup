@@ -11836,3 +11836,19 @@ SB泡：长射程模式爆风半径扩大11%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4163#       发表于 2024-4-20 20:20
+
+<img src="https://img.saraba1st.com/forum/202404/20/201944z3ujncl4tjllijji.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-20-19-53-17-94_ddeaecd32494ea01189cfb481b91c95b.jpg</strong> (366.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 20:19 上传
+
+我还排到了hk队的kenji，这战绩怪不得被弯弯2比0抬走（
+

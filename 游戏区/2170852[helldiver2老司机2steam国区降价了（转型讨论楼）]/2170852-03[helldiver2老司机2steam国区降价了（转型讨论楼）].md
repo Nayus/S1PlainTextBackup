@@ -2516,3 +2516,15 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 如果配装是爆裂铳+类星体，怎么解决清杂🤔带激光狗吗</blockquote>
 激光狗，副手救世主，手雷可以带震撼弹，不过重点还是保持距离。我之前爆裂铳带盟友/机枪防身，结果一把下来一条弹链都不一定能打完。
 
+
+*****
+
+####  风萧飒  
+##### 3202#       发表于 2024-4-20 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64663891&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-4-20 22:44</a>
+如果配装是爆裂铳+类星体，怎么解决清杂🤔带激光狗吗</blockquote>
+激光狗注意点走位完全不会担心杂兵问题，如果距离稍微远点还可以用爆弹枪清下杂兵群
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -11712,3 +11712,22 @@ SB泡：长射程模式爆风半径扩大11%
 
 就不能所有的狙都狠狠砍一刀么
 
+
+*****
+
+####  KBAC  
+##### 4153#       发表于 2024-4-20 13:30
+
+春季祭典是熊先生商会的阴谋<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗克萨斯  
+##### 4154#       发表于 2024-4-20 13:31
+
+打了6场，都是对战第一，队友咋都这么菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -854,3 +854,14 @@ Thank you for your years of support and for understanding our decision.
 
 逆转4里的指纹吹气怎么解决？
 
+
+*****
+
+####  batrain  
+##### 73#         楼主| 发表于 2024-4-20 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64663509&amp;ptid=2180365" target="_blank">绯雨流 发表于 2024-4-20 21:57</a>
+
+逆转4里的指纹吹气怎么解决？</blockquote>
+给delta麦克风权限。
+

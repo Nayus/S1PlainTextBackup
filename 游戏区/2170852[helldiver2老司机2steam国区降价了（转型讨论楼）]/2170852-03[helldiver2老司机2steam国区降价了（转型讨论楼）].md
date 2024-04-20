@@ -2498,3 +2498,11 @@ Steam 連PS帳號有甚麼用，一定要連嗎？</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kojimaru  
+##### 3200#       发表于 2024-4-20 22:44
+
+如果配装是爆裂铳+类星体，怎么解决清杂🤔带激光狗吗
+

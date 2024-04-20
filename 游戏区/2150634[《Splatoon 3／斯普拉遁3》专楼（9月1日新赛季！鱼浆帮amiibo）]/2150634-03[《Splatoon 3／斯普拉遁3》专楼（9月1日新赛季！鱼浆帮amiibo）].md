@@ -11892,3 +11892,21 @@ SB泡：长射程模式爆风半径扩大11%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4168#       发表于 2024-4-20 22:35
+
+太恐怖了，3分钟杀这么多
+
+<img src="https://img.saraba1st.com/forum/202404/20/223535it93h33k1ri71grx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-20-22-34-57-668_com.google.android.youtube.jpg</strong> (702.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-20 22:35 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

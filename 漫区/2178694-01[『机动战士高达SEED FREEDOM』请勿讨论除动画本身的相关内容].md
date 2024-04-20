@@ -6558,3 +6558,14 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 而基拉刚开了新背包处于外挂无敌阶段，个人差距那么一点点远不如机体差距那么大，坐稳主角位没任何问题。
 
+
+*****
+
+####  windsaint  
+##### 514#       发表于 2024-4-20 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662770&amp;ptid=2178694" target="_blank">シャル 发表于 2024-4-20 20:32</a>
+
+去香港看》</blockquote>
+澳门方便点，来回半天就行
+

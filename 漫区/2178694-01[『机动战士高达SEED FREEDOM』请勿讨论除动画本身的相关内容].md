@@ -5801,3 +5801,57 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 说到底现在的阿斯兰再怎么抬都是自带下头buff的半搞笑角色了，到底有啥好在意的
 
+
+*****
+
+####  晴岚  
+##### 456#       发表于 2024-4-20 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657362&amp;ptid=2178694" target="_blank">shiko 发表于 2024-4-20 08:25</a>
+这题我会首先角色实力是会成长变化的，其次一个精神状态可以把同级别的人战力差距拉到一刀秒
+
+你 ...</blockquote>
+自爆的那场阿斯兰没电还是因为自己瞎用海妖没电的，而且鸡作为普通人肉身战打不过狼这种军校生我觉得挺正常的。反正上机也没赢过，圣盾打强袭的死斗还是3打1自己被逼到自爆，作为队友的暴风被俘虏……甚至作为小队长的表现都……除非福田有意重启种跟种命动画来让狼对鸡的ms战结果改变（
+
+而且这个所谓的设定全，很多人也不认种命终盘狼赢鸟是因为狼发挥了120%的实力而且鸟精神不行所以才输。大部分人就是觉得狼比鸟强（  剧场版出来之后这个印象只会更强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shiko  
+##### 457#       发表于 2024-4-20 08:46
+
+最近你b真好有人re种命就跟着重新看了一遍，前十几集鸟的戏份是真tm少的可怜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大量的镜头都是别人在说话他摆个臭脸然后就切走了
+
+甚至爆种回这么主场的集数，最后ed给的是救世主出击<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我看福田两泽根本就不是什么“后期放弃鸟”或者“写着写着感觉不对放弃鸟”，而是压根从头就没打算好好写<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shiko  
+##### 458#       发表于 2024-4-20 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657460&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-20 08:46</a>
+自爆的那场阿斯兰没电还是因为自己瞎用海妖没电的，而且鸡作为普通人肉身战打不过狼这种军校生我觉得挺正 ...</blockquote>
+信不信是一回事，他怎么圆是另一码事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少能看出正式设定还是喜欢端水的，等正式设定吧
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  晴岚  
+##### 459#       发表于 2024-4-20 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657472&amp;ptid=2178694" target="_blank">shiko 发表于 2024-4-20 08:48</a>
+信不信是一回事，他怎么圆是另一码事至少能看出正式设定还是喜欢端水的，等正式设定吧
+
+—— 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">主要想看如果种选择续写而不是写其他外传的话要怎么圆鸡是个普通调整者，对手随便拉名头都比他强但又打不过鸡这件事。或者说我不信福田真敢雪了鸡让狼上位当主角。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

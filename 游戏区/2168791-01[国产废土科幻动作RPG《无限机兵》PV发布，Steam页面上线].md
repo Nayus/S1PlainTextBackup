@@ -426,3 +426,24 @@
 有个叫"创世E"的解密步行模拟游戏，几乎可以说是Blame的同人作，不过画面比较简单而且没什么剧情，总的来 ...</blockquote>
 看了下，的确有那种感觉，不过风格还是差蛮大的。
 
+
+*****
+
+####  blueelf  
+##### 43#       发表于 2024-4-20 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649872&amp;ptid=2168791" target="_blank">nage560 发表于 2024-4-19 14:28</a>
+
+场景一看就看出借鉴了blame，美术的确不错，啥时候谁真做个还原blame场景的游戏就好了。 ...</blockquote>
+枯涩信仰放逐者，非常明显的贰瓶勉风格
+
+*****
+
+####  nage560  
+##### 44#       发表于 2024-4-20 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657913&amp;ptid=2168791" target="_blank">blueelf 发表于 2024-4-20 10:13</a>
+
+枯涩信仰放逐者，非常明显的贰瓶勉风格</blockquote>
+这个之前关注过，这纵深建筑有点那味，不过这个比较偏奇幻风吧，区别还是蛮大的。
+

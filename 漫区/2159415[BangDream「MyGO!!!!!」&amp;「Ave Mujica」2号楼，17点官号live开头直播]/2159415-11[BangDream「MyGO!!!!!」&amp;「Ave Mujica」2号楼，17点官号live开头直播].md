@@ -12162,3 +12162,14 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 1号楼好像讨论过三角和纯田都是奄美群岛出身的吧
 
+
+*****
+
+####  御幸一也  
+##### 15877#       发表于 2024-4-21 07:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那個是假藥，就別說得那麼篤定了……
+
+我都記得，是從純田和初華是幼馴染這個【假設】開始推的，然後查純田姓氏的分佈，最後查到奄美
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">只是覺得前提就很扯，後面已經不想看了，官方錘了真是幼馴染再說
+

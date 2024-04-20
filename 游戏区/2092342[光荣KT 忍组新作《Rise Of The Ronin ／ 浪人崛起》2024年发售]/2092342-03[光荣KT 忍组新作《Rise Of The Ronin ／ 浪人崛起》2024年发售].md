@@ -1162,3 +1162,13 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 看了一天评测和流派段子，妈的忍不住下单了ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">想问下流派是怎么获得的，我看好像招式都很多，又有隐藏洞窟啥的
 暗耻的游戏也是奇怪，其实我都不爱玩，除了战略游戏之外到终局都是刷，无双刷炼金工房刷仁王卧龙也刷，但它出的类型和题材又全刚好在自己球区上
 
+
+*****
+
+####  zqqwe  
+##### 3083#       发表于 2024-4-21 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665269&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-4-21 01:13</a>
+一周目来回玩各种武器，目前感觉最垃圾还是西洋剑，无明流和英国式都很捞，有些招式还带后跳只有美 ...</blockquote>
+可能是因为空手实在凑不出第四个流派了，其他武器最少也有四个（好几个全靠开新流凑够）。和尚和柔术都只给了奥义没给全套模组很可惜
+

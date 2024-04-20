@@ -6177,3 +6177,15 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 你阿斯兰拿了星云奖章跟强袭驾驶员是笔烂账有什么关系
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 486#       发表于 2024-4-20 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657847&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-20 10:00</a>
+你说你懂商业，请你告诉我为什么人气投票结果的奖励图片第三名站C为第二名只有一个后脑勺第一名脸绷得一 ...</blockquote>
+借之前坛友的话，狼再强，正义相关的产品线都太少了，狼再怎么被福田吹，商业价值甚至不如鸟，mb都是命运跟强袭自由来cp而不是狼的无限正义
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -12113,3 +12113,14 @@ QQ图片20240420213106.jpg
 
 顺带一提这贴的7L有BDMV的磁联
 
+
+*****
+
+####  枫林不见  
+##### 15873#       发表于 2024-4-20 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64662248&amp;ptid=2159415" target="_blank">skill 发表于 2024-4-20 19:26</a>
+
+BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">某宝买个碟片同区的蓝光光驱再加一根转接线连接主板就OK了
+

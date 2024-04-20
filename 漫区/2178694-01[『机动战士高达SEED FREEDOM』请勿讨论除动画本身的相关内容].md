@@ -5788,3 +5788,16 @@ TVシリーズ終了から約20年ぶりの完全新作、モビルスーツを3
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  exiaexa  
+##### 455#       发表于 2024-4-20 08:42
+
+看毒唯吃屎那可太开心了
+
+建议下次跟全一强自坐一桌
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说到底现在的阿斯兰再怎么抬都是自带下头buff的半搞笑角色了，到底有啥好在意的
+

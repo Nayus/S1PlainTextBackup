@@ -1626,3 +1626,14 @@ F1再无聊也比这一坨好吧…
 ----发送自 Sony XQ-CT44,Android 14</blockquote>
 毕竟自由媒体集团的主业是赚钱不是洗钱
 
+
+*****
+
+####  Anatoly  
+##### 274#       发表于 2024-4-21 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">快速扫了一眼
+感觉第三集不如改名“震惊，XX队引入三无新手只为在被套圈时鱼雷维斯塔潘”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

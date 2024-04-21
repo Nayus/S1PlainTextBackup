@@ -397,3 +397,11 @@
 
 不是很能想象高冷猫猫亚萨西地摸摸抱抱噶鲁噶鲁的样子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1329#       发表于 2024-4-21 08:19
+
+我觉得打戏至少在上半年就不要想了，顶多lilian入队之前能打几拳意思意思
+

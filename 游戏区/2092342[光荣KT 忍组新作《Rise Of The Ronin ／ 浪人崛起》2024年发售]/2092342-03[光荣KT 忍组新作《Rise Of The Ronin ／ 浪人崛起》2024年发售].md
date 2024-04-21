@@ -1292,3 +1292,21 @@ pro快出了现在买有点亏啊</blockquote>
 
 而且主角这剧情全程跟着龙马走，到龙马遇袭那里剧情也差不多结束了，那有主角没主角没啥区别啊，你还不如直接把龙马设定成主角演龙马传可能都比现在这剧情有代入感而且整体流程也没差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 3096#       发表于 2024-4-21 16:34
+
+冲田总司直接大太刀用太刀的无名流和北辰一刀流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，还有独特武技，这待遇也太好了吧
+
+*****
+
+####  彩虹肥宅  
+##### 3097#       发表于 2024-4-21 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668641&amp;ptid=2092342" target="_blank">葵 发表于 2024-4-21 14:32</a>
+
+夜晚难度通关了，后期倒幕佐幕反复横跳笑死我了，话说胜海舟为啥剧情上会被设定得这么强？初见就能轻松压制 ...</blockquote>
+暗夜野地的胜海舟<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+

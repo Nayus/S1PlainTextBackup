@@ -64,3 +64,15 @@ ok，这个可以用，谢谢了
 —— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
 你可以试试能不能发图。
 
+
+*****
+
+####  拉鲁拉丝  
+##### 1506#       发表于 2024-4-21 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668601&amp;ptid=1220112" target="_blank">被雨困住的城市 发表于 2024-4-21 14:26</a>
+官方版是变这样了，因为网页端改成40帖一页了，有个魔改版，记得楼里有人发过魔改版，不知道资源有没有失 ...</blockquote>
+有用，谢谢。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

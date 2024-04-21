@@ -5764,3 +5764,19 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 满脑子的乳头和大屁股
 
+
+*****
+
+####  holoan  
+##### 8693#         楼主| 发表于 2024-4-21 23:35
+
+<img src="https://img.saraba1st.com/forum/202404/21/233123wuxtxtkzmm13m1gh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 23:31 上传
+
+之前赌输几十万一次也不回滚，一次选错选项就毫不犹豫load
+

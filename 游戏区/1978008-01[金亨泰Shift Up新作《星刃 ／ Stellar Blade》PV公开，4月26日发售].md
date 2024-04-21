@@ -151,3 +151,31 @@ Image_1713524119771.jpg
 “有很好的游戏性，但确实没有比尼尔强太多”a9上看的</blockquote>
 这个不是国内的
 
+
+*****
+
+####  ky7913  
+##### 745#       发表于 2024-4-21 21:33
+
+ 本帖最后由 ky7913 于 2024-4-21 21:37 编辑 
+<blockquote>icylight 发表于 2024-4-21 18:43
+有没有哪位国内媒体人出来暗示一下游戏怎么样？ 当时浪人崛起都有人暗示过 ...</blockquote>
+【【剑星】已入手！正式版评测与内容规划预约-哔哩哔哩】 [https://b23.tv/hH56Y7J](https://b23.tv/hH56Y7J)
+
+看这里，这位回答了很多网友问题。
+
+*****
+
+####  ky7913  
+##### 746#       发表于 2024-4-21 21:35
+
+ 本帖最后由 ky7913 于 2024-4-21 21:36 编辑 
+
+今天有一位参加了提前玩的媒体在红迪发帖了，那个地图就是他爆的。他有提到一些对游戏的评价，这个帖子现在已经被锁了。
+
+他回复的两句留言
+
+yes defintitely worth the hype, there is so much more overall you won't see in the demo so if you did enjoy the demo then the full game will blow you away. Personally Nier Automata is till one of my fav games of all time, SB is getting there
+
+I can say it's one of the most polished AAA I have played in recent years
+

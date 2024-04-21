@@ -5714,3 +5714,21 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 35喝酒了？声线越来越开放了，梦回当年二代皮醉酒歌回的声线
 
+
+*****
+
+####  rs5621  
+##### 8689#       发表于 2024-4-21 21:27
+
+ 本帖最后由 rs5621 于 2024-4-21 21:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/21/212658jzlvffox4p46xl4z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 21:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚才还笑嘻嘻，转头看到账单就。。。
+

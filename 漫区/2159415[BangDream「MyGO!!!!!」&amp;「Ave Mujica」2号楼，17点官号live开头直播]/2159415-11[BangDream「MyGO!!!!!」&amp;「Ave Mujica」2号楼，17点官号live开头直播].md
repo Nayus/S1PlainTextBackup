@@ -12208,3 +12208,43 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草根组合有种突然从yoasobi变成凤凰传奇的观感
 
+
+*****
+
+####  rikaren  
+##### 15882#       发表于 2024-4-21 12:11
+
+放张之前看到的天蝎火睦祥
+
+*****
+
+####  rikaren  
+##### 15883#       发表于 2024-4-21 12:13
+
+草，怎么发不出去
+
+*****
+
+####  御幸一也  
+##### 15884#       发表于 2024-4-21 12:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/21/121555hl1l8lj33zw5dpbg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_タロ(@mkm22111)_20240419-170401_1781368165899104389_photo-0.jpg</strong> (119.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 12:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/21/121557fj3vbvqjb7czd3ao.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_タロ(@mkm22111)_20240419-170401_1781368165899104389_photo-1.jpg</strong> (114.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 12:15 上传
+
+[https://twitter.com/mkm22111/status/1781368165899104389](https://twitter.com/mkm22111/status/1781368165899104389)
+

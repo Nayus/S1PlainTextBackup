@@ -2619,3 +2619,15 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 说清杂当然是虫了，正常聊机器人的话没有什么清杂需求。</blockquote>
 机器人里没有杂，哪个来都够绝地冻肉喝一壶的（）
 
+
+*****
+
+####  6x6z6w  
+##### 3212#       发表于 2024-4-21 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668760&amp;ptid=2170852" target="_blank">白左 发表于 2024-4-21 14:51</a>
+防守任务感觉太看脸了（运气也是实力的一环？
+
+一次打得还行但是疯狂出泰坦，甚至开局就刷了2个直接破第一 ...</blockquote>
+来体验一下机器人防守，现在移动工厂能直接站在大门口就狙掉发电机<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

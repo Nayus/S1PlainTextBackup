@@ -232,3 +232,16 @@ I can say it's one of the most polished AAA I have played in recent years
 要不你去16专楼或者有关16的帖子里看看什么评价？连护的都没几个，从16以后我就再也不信什么偷跑的评价了 ...</blockquote>
 就算是全部媒体吹上天的年度游戏都不一定适合你自己，所有游戏都是这样。因为每一个人对游戏的要求都不一样。平常心就好
 
+
+*****
+
+####  Mr.Hopp  
+##### 752#       发表于 2024-4-21 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671856&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-21 21:57</a>
+
+就算是全部媒体吹上天的年度游戏都不一定适合你自己，所有游戏都是这样。因为每一个人对游戏的要求都不一 ...</blockquote>
+媒体确实不能信，但偷跑哥也不能信。
+
+怎么说都是第一次做这类型的游戏，最好别抱太高的期待。
+

@@ -1397,3 +1397,30 @@ pro快出了现在买有点亏啊</blockquote>
 可惜千叶佐那喜欢龙马</blockquote>
 佐那可以NTR啊
 
+
+*****
+
+####  黑修士  
+##### 3106#       发表于 2024-4-21 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64667381&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-4-21 11:34</a>
+
+这个打过了
+
+后面他似乎还在桥上可以继续打？我自动寻路时路过，结果勾到仇恨无法和任务目标对话也无法tp ...</blockquote>
+弁庆的话那里有随机任务可以再战，还能获得膝丸和岩融
+
+*****
+
+####  葵  
+##### 3107#       发表于 2024-4-21 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671666&amp;ptid=2092342" target="_blank">火华火华火 发表于 2024-4-21 21:33</a>
+
+楠本稻和千叶佐那太好看了吧
+
+可惜千叶佐那喜欢龙马</blockquote>
+佐那可以比翼的，因为龙马正妻是阿龙，所以可爱未婚妻就由好兄弟收下了也很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得这游戏最好看的就是小医生楠本稻，其次是小未婚妻和将军老婆<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

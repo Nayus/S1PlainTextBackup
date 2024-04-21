@@ -477,3 +477,14 @@
 
 对一只猫的行为逻辑要求那么高干嘛
 
+
+*****
+
+####  modedd  
+##### 1339#       发表于 2024-4-21 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668132&amp;ptid=2162354" target="_blank">京都不是城 发表于 2024-04-21 13:18:58</a>
+对一只猫的行为逻辑要求那么高干嘛</blockquote>因为现在除了撒拖鲁看着最有脑子的就是她了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

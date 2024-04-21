@@ -12040,3 +12040,13 @@ syl，兔子三色全在内战，破案了
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 4182#       发表于 2024-4-21 13:42
+
+小绿龟在大后排扔雷到底是什么玩法？麻了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

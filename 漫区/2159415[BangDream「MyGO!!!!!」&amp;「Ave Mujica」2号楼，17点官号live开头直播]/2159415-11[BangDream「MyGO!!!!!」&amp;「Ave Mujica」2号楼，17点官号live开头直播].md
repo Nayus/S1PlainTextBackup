@@ -12181,3 +12181,22 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">帕楚在ras最新剧情里已经真正约定终生了，真女同太强大了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 15879#       发表于 2024-4-21 10:36
+
+按照你邦幼驯染的性质，初华在sumimi那个状态，我觉得假药离破产就差到鸡开播了。
+
+不过姓氏考察的结果倒不是没意义，至少说明mana大概率也是岛民。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能sumimi出道有用草根组合来宣传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 15880#       发表于 2024-4-21 10:38
+
+老乡见老乡，两眼泪汪汪是吧
+

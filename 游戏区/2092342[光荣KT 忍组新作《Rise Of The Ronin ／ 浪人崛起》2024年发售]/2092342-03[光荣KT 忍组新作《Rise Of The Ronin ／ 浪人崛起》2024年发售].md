@@ -1259,3 +1259,22 @@ pro快出了现在买有点亏啊</blockquote>
 
 全篇打下来感觉有压力的战斗：搭档初见战，赤鬼&amp;青鬼，幕末三虎臣，然后就是第三章的完全体龙马，完全体四大人斩，完全体胜海舟，超级疯狗，战斗超级爽！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 3093#       发表于 2024-4-21 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64667640&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2024-4-21 12:06</a>
+把龙马的因缘任务都打完就行，支线有找妖刀，还有保镖这种能见到青鬼的任务 ...</blockquote>
+我都比翼了还是没打完吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 3094#       发表于 2024-4-21 14:41
+
+打完了，感觉虽然整体叙事水平不太行（最突出的左右横跳和大家都是好人），但几个重要人物的弧光还是立住了
+结局虽然不晒吐槽新黎明，但我觉得第三章后半段（池田屋事件）到结局这里的剧情还是有不少触动到我的
+总体我能给个八分吧
+

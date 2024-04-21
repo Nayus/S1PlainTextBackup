@@ -1336,3 +1336,13 @@ pro快出了现在买有点亏啊</blockquote>
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kangkangsama  
+##### 3100#       发表于 2024-4-21 19:09
+
+<blockquote>葵 发表于 2024-4-21 14:32
+夜晚难度通关了，后期倒幕佐幕反复横跳笑死我了，话说胜海舟为啥剧情上会被设定得这么强？初见就能轻松压制 ...</blockquote>
+胜海舟从小就跟着幕末三剑豪之二练（支线里提过）也实实在在拿到了免許皆伝的
+

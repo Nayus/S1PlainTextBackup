@@ -2647,3 +2647,30 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 机器人比虫子強得多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 3215#       发表于 2024-4-21 19:38
+
+被每日骗去打火焰流
+真的折磨，没有任何dot伤害
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Launce  
+##### 3216#       发表于 2024-4-21 19:42
+
+早上好，地狱潜兵们。
+
+@here
+
+在对弗农井的持续攻击中，机器人成功摧毁了远程通讯阵列，使我们无法追踪我们在整个银河系的部队。这意味着，很遗憾，在可预见的未来，我们将无法提供解放百分比和银河战争进展的最新消息。
+
+超级地球最高指挥部已经派出 SEAF 工程专家小组，在我们的地狱潜兵的保护下，尽快修复这些阵列。在此期间，驱逐舰系统和追踪软件可能会显示错误和不完整的数据。继续战斗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑拉了，解放进度全服BUG又来了
+

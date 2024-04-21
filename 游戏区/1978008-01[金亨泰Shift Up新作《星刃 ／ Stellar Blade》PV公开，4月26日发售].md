@@ -259,3 +259,11 @@ I can say it's one of the most polished AAA I have played in recent years
 
 至于16，我就是冲着画面和演出去的，剧情觉得也还可以。虽然我也觉得后面剧情不如我预期，但倒是没后悔买来玩，我本来也不是什么最终幻想老粉。
 
+
+*****
+
+####  Rainwedell  
+##### 754#       发表于 2024-4-22 02:10
+
+我周末正好碰了碰nier2，demo来看动作流畅度这些剑星确实差点意思，主要是卖相上的
+

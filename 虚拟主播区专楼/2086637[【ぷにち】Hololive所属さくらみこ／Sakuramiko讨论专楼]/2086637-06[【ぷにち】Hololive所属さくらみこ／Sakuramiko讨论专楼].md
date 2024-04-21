@@ -5780,3 +5780,19 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 之前赌输几十万一次也不回滚，一次选错选项就毫不犹豫load
 
+
+*****
+
+####  rs5621  
+##### 8694#       发表于 2024-4-21 23:59
+
+<img src="https://img.saraba1st.com/forum/202404/21/235820rd11gc2wwoh8dd8b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (438.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 23:58 上传
+
+@HASECO777<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

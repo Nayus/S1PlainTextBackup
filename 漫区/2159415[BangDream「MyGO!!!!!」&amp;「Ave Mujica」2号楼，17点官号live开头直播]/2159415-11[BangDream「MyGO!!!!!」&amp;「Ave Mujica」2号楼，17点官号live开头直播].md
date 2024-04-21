@@ -12173,3 +12173,11 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 我都記得，是從純田和初華是幼馴染這個【假設】開始推的，然後查純田姓氏的分佈，最後查到奄美
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">只是覺得前提就很扯，後面已經不想看了，官方錘了真是幼馴染再說
 
+
+*****
+
+####  枫林不见  
+##### 15878#       发表于 2024-4-21 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">帕楚在ras最新剧情里已经真正约定终生了，真女同太强大了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

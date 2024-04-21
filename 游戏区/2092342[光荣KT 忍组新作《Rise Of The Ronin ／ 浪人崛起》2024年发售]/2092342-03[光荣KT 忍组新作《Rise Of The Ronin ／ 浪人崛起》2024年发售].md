@@ -1239,3 +1239,13 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 以及救下龙马需要怎么做？ ...</blockquote>
 把龙马的因缘任务都打完就行，支线有找妖刀，还有保镖这种能见到青鬼的任务
 
+
+*****
+
+####  isa2456  
+##### 3091#       发表于 2024-4-21 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64667631&amp;ptid=2092342" target="_blank">寂长无星夜 发表于 2024-4-21 12:05</a>
+pro快出了现在买有点亏啊</blockquote>
+无所谓，不喜半代升级，ps4到卖出还是厚机呢. 反而ps5这么多年才有一个想买的游戏就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

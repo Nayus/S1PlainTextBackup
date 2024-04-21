@@ -7026,3 +7026,25 @@ OVA主要是讲前传故事，而阿斯兰的间谍生涯这么好的一个卖�
 
 依我看就该多敲打敲打K，锻炼一下**的心态
 
+
+*****
+
+####  紫煜  
+##### 562#       发表于 2024-4-21 13:57
+
+话说剧场版都上映后期了，就算鸡神厨能影响票房估计也很难看出来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黑夜守望者  
+##### 563#       发表于 2024-4-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668404&amp;ptid=2178694" target="_blank">紫煜 发表于 2024-4-21 13:57</a>
+
+话说剧场版都上映后期了，就算鸡神厨能影响票房估计也很难看出来了以后感觉很容易被嘲讽“你看这么 ...</blockquote>
+剧场版黑鸡和场外监督黑鸡两码事吧。你把片给不明缘由的路人看应该是得不出黑鸡的结论的，那不就结了
+
+只有ft没被冲才能证明鸡厨战五渣，但是ft已经被冲了
+

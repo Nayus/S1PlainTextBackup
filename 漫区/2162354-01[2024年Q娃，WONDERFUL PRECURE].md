@@ -585,3 +585,13 @@
 
 小雪这种蹭得累必然是麻油俘虏，谁是主子还真不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sheshiro  
+##### 1350#       发表于 2024-4-21 19:54
+
+多放点悟老师和彩叶的剧情啊，孩子爱看<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/7d2143e3311f12251ae3c4e232050cdf/CMP_20240421195308986.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

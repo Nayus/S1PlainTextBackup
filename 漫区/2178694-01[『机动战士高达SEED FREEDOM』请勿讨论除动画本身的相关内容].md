@@ -7078,3 +7078,25 @@ OVA主要是讲前传故事，而阿斯兰的间谍生涯这么好的一个卖�
 
 话说有潭友知道香港那边一般多久预售吗？搜了一下澳门的开了，但香港的还没开<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  晴岚  
+##### 567#       发表于 2024-4-21 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665261&amp;ptid=2178694" target="_blank">王留美 发表于 2024-4-21 01:12</a>
+
+种自之后可不好说了，毕竟你看阿斯兰都能带货HGUC夏亚专用魔蟹了</blockquote>
+超合金目前是MSF，MB的话我觉得只要万代脑子不是有病的话SF2和MSF以及命运2都是板上钉钉的事。甚至我觉得超合金命运2都可能会出现...
+
+魔蟹IJ2作为话题度当然是拉满，但如果用来出产品的话...很难解决如何让他们一体化，而如果单出魔蟹跟IJ2的话定价以及粉丝买账程度不见得会有多好，以及无论目前是HG的IJ2还是尚未公布的MR魂IJ2都明显看不到魔蟹壳的身影，如果没了魔蟹这层壳，单纯的IJ2人气真的有那么高能变现吗（
+
+阿斯兰跟卡嘉莉只能说不愧是夫妻，哪怕是目前话题度拉满也是空有人气很难变现.....
+
+*****
+
+####  晴岚  
+##### 568#       发表于 2024-4-21 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">解决方法不是很简单吗，参考GPX的sin，让阿斯兰跟基拉再次死斗一次看谁赢就行啦，虽然说加贺最后也没有风见强，但起码是实打实的赢了的。支持出个seed justice来让阿斯兰当主角，基拉当反派。
+

@@ -487,3 +487,15 @@
 背景正八经科幻的，但是故事和人物不是。类似blame那种无限超构造体导致科技人文断层，反而回到古代时期 ...</blockquote>
 人物穿着骑士盔甲拿着冷兵器，背景又有现代建筑，就是给我一种很违和感觉。
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 49#       发表于 2024-4-21 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64657913&amp;ptid=2168791" target="_blank">blueelf 发表于 2024-4-20 10:13</a>
+枯涩信仰放逐者，非常明显的贰瓶勉风格</blockquote>
+打听下，这游戏现在汉化质量质量咋样？
+
+—— 来自 HUAWEI ALN-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

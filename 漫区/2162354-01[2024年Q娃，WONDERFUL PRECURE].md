@@ -453,3 +453,11 @@
 
 要不让猫猫先入队上学，只剩麻油不知道身份。三人有共同的秘密，瞒着麻油抓噶噜噶噜，社恐麻油只能“ひとりにしないで”<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hummysiren  
+##### 1336#       发表于 2024-4-21 13:02
+
+动摇不好确定是对狗组的态度还是对grgr的事实，但这集多次强调猫头鹰的爪子甚至大特写mayu差一点被抓到的惊恐表情，结果反倒像在指责猫猫打伤grgr，感觉有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

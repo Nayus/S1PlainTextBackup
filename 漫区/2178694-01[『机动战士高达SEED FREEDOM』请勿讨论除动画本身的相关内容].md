@@ -7213,3 +7213,25 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 如果明年真宣布动画改编的话，无论怎么再改，只要拍的出来，五飞无论人气还是角色弧光的翻身仗估计是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，毕竟TV和EW都没去讲清楚身世，就他让人完全看不懂的一直正义，到时候会不会还有吵五飞是讨好拆尼斯的....
 
+
+*****
+
+####  oh_my_god  
+##### 576#       发表于 2024-4-21 16:45
+
+都开始车了吗？那我也不憋着了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+到底是哪个脑子有坑的才会把狼弄去搞情报的啊，种子种命100集也没看出来这人有任何搞情报的天赋啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+种子，阿斯兰这个人，一直以为L是纯种傻白甜，以为自己队长鞠躬尽瘁，以为自己爹是个好人。一直身处关键人物周边，结果永远都是被瞒到最后一刻，他本人是半点不带起疑心的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+好，大概这是他本人单纯，周围的人都太老谋深算了，但是种子里阿斯兰唯一一个主动寻找情报并且成功的行动，是潜入奥布找大天使号。怎么找的呢，动用zaft的暗线，很专业地伪造了身份潜入岛内，然后四处闲逛找了半天，半点痕迹找不到，最后是情报本人主动送上门。如果没有托利主动引导的这场铁窗泪，阿斯兰这个小队动用暗线潜入奥布后，大概就是逛街逛了一圈之后无功而返。这大概就是种子阿斯兰的情报力了（）
+
+种命，阿斯兰在奥布当保镖当了两年了，大概也没搞清楚塞兰家是什么时候跟地球联邦搅和上的。一开始阿斯兰主动请求去plant寻找情报和帮助，我还以为狼什么时候突然点亮了情报天赋呢，结果先不说阿斯兰去到plant就被忽悠了，我原本还以为阿斯兰是知道塞兰家狼子野心但是施展不开所以才去plant的，结果你丫开着救世主回奥布的时候是完全不知道塞兰家搞出来的大活啊？各种啊啊啊，你亚瑟吗？塞兰家处心积虑了那么久的逼宫，结果你是真的完全不知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+中间跟基拉卡嘉莉私会，说是交换情况，大天使号这边倒是把关键情报“姨丈疑似暗鲨拉克丝”告诉阿斯兰了，阿斯兰就只会复读“姨丈是个好人”。说好的情报呢？感情阿斯兰你蹲在密涅瓦上那么久，除了划水是真的啥都没干啊？而且直到逃跑那天阿斯兰才知道当日的会谈早就被船上一个两个三个人都知道了，所以说这人是真的完全就没有半点情报脑的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以，到底是哪个脑子有坑的人，才会把阿斯兰扔出去搞情报的啊？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+把这个人扔去搞情报，活该罗盘被坑到底裤都没了才收到“基地王国很可疑”的信息了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

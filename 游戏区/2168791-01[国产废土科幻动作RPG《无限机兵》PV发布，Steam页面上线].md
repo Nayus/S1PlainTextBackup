@@ -499,3 +499,26 @@
 
 —— 来自 HUAWEI ALN-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qappip  
+##### 50#       发表于 2024-4-21 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64666781&amp;ptid=2168791" target="_blank">半江瑟瑟半江红 发表于 2024-04-21 10:13:15</a>
+打听下，这游戏现在汉化质量质量咋样？
+
+—— 来自 HUAWEI ALN-AL10, Android 12上的  v2.5.4 ...</blockquote>3dm汉化只有一个早期版本，和现在这个区别很大，制作组最近准备大更新了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qappip  
+##### 51#       发表于 2024-4-21 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64666547&amp;ptid=2168791" target="_blank">nage560 发表于 2024-04-21 09:36:05</a>
+人物穿着骑士盔甲拿着冷兵器，背景又有现代建筑，就是给我一种很违和感觉。 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是二瓶勉玩腻的概念，游戏里还有套很像电基骑士
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

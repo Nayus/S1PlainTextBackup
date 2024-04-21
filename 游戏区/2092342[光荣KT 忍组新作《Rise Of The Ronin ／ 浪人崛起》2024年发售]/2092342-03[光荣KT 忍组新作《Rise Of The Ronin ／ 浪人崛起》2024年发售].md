@@ -1356,3 +1356,11 @@ pro快出了现在买有点亏啊</blockquote>
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ナルバレック  
+##### 3102#       发表于 2024-4-21 20:31
+
+这次是不是没有DLC来着
+

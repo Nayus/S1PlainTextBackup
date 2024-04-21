@@ -1384,3 +1384,16 @@ pro快出了现在买有点亏啊</blockquote>
 
 可惜千叶佐那喜欢龙马
 
+
+*****
+
+####  无攻不受鹿  
+##### 3105#       发表于 2024-4-21 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671666&amp;ptid=2092342" target="_blank">火华火华火 发表于 2024-4-21 21:33</a>
+
+楠本稻和千叶佐那太好看了吧
+
+可惜千叶佐那喜欢龙马</blockquote>
+佐那可以NTR啊
+

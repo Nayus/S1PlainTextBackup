@@ -179,3 +179,35 @@ yes defintitely worth the hype, there is so much more overall you won't see in t
 
 I can say it's one of the most polished AAA I have played in recent years
 
+
+*****
+
+####  Mr.Hopp  
+##### 747#       发表于 2024-4-21 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671677&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-21 21:35</a>
+
+今天有一位参加了提前玩的媒体在红迪发帖了，那个地图就是他爆的。他有提到一些对游戏的评价，这个帖子现在 ...</blockquote>
+这种看看就得了，之前FF16偷跑哥打完还是是自己的年度游戏呢
+
+*****
+
+####  ky7913  
+##### 748#       发表于 2024-4-21 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671323&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-4-21 20:50</a>
+
+高级版那堆送的东西，是游戏里可以拿的还是额外提前送的有确定了吗？</blockquote>
+豪华版送的衣服是显定的，游戏里拿不到
+
+
+*****
+
+####  ky7913  
+##### 749#       发表于 2024-4-21 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671722&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-4-21 21:41</a>
+
+这种看看就得了，之前FF16偷跑哥打完还是是自己的年度游戏呢</blockquote>
+16评价很差吗？那有人觉得是他的年度游戏没问题啊，媒体打分都不一定能代表你个人感受，更何况个人
+

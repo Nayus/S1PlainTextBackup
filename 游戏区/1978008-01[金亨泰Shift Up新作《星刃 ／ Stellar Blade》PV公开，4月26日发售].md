@@ -99,3 +99,13 @@ Image_1713524119771.jpg
 
 能用其实也不奇怪，一眼就是类似贝姐里的贞德一样的角色
 
+
+*****
+
+####  黑酒杯  
+##### 740#       发表于 2024-4-21 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64670450&amp;ptid=1978008" target="_blank">icylight 发表于 2024-4-21 18:43</a>
+有没有哪位国内媒体人出来暗示一下游戏怎么样？ 当时浪人崛起都有人暗示过 ...</blockquote>
+“有很好的游戏性，但确实没有比尼尔强太多”a9上看的
+

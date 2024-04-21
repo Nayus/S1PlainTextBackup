@@ -3570,3 +3570,79 @@ Day 1業務聯絡結束。
 
 2024-4-21 19:13 上传
 
+
+*****
+
+####  wfhtony  
+##### 3298#       发表于 2024-4-21 19:20
+
+ 本帖最后由 wfhtony 于 2024-4-21 19:24 编辑 
+
+Day 2業務聯絡環節(Day 1公佈的內容已忽略)：
+
+遊戲相關(頁遊)：
+<img src="https://tc1.wfhtony.space/images/2024/04/21/1df155f45251dd3425550afcdeab7fbc.jpg" referrerpolicy="no-referrer">
+
+遊戲相關(手遊)：
+<img src="https://tc1.wfhtony.space/images/2024/04/21/2abc1398464a5b8b31f781ab7e7fcec4.jpg" referrerpolicy="no-referrer">
+
+最速版VOD：
+<img src="https://tc2.wfhtony.space/images/2024/04/21/6c1ddd6368121ad6caf4a171efb7e2c4.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/21/36e2e22bcff2dc32d9d01b2519d5774f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/21/6a6a7c039631560930d55483554add37.jpg" referrerpolicy="no-referrer">
+
+最新消息：
+<img src="https://tc2.wfhtony.space/images/2024/04/21/da446c1b5aa12e129776fc3d67a15ac7.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc1.wfhtony.space/images/2024/04/21/a5c22c4fa4d75d8675433c7297b38446.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/0cc2cb31cc5e8ba33581d6b63234cf85.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/360bb67fabb7c2ba1b5518a8a78f0cbb.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/3f1b94516ba7cd198551daecc6109ec7.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/51374649b4e1eb723201caa624b769a4.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/30b7a64430b104ff9cec38adc4002d8e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/22f08244c470388ff7d859252fcdc894.jpg" referrerpolicy="no-referrer">
+
+三十分鐘姊妹的下一個聯動是安提卡。
+
+<img src="https://tc2.wfhtony.space/images/2024/04/21/f57d56a2a82059540a341471396b86d0.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/21/e623c21907a816e3c998d0f1f8ae7761.jpg" referrerpolicy="no-referrer">
+
+6thLIVE的圓盤確定製作。
+
+頁遊端的新劇情：
+<img src="https://tc1.wfhtony.space/images/2024/04/21/39a42472eb30f46f914d6ae31d8ac664.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/145aa5593c291393bcc9ed04dd6c44f8.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/0ab304e0db5829a651c6e4e5f9d93065.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/3481097523b278a017a89bc7ed9db34b.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/51f39a7d902f58f8d1a43cd38cd60d72.jpg" referrerpolicy="no-referrer">
+
+米組的感謝祭劇本，是新舊回億交替來啊。
+
+4/24實裝。
+
+<img src="https://tc1.wfhtony.space/images/2024/04/21/5bcd7f8be280ad2daf9da45fe2e47ca3.jpg" referrerpolicy="no-referrer">
+
+6週年的新曲也將於4/24上線。
+
+6.5週年LIVE確定將於10/5~6在武藏野之森舉辦，但名稱沒定（也有可能，演出的名字就是「名稱未定」）。
+
+詳情後日公佈。
+<img src="https://tc1.wfhtony.space/images/2024/04/21/e8ddec858638f9b824173328b3699f9e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/4bc1c6d8bc5771b737e41132fb3e77d0.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/24138f51ba6f897b4873fe18928a96e2.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/a9116ab43506c9c7ea3b811467e33de1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/21/9481bf6ca2a476367c9094363fdd2dd7.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/04/21/7c7d09cadb85398751da0d66be5fcfd4.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/cbb18195873fe8c0d62f9179cd6d3915.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/cc0f2bfca481583c1ca24fc478c38af6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/04/21/c6b33c1a0c21df13ca2bb64926f9c6cc.jpg" referrerpolicy="no-referrer">
+
+Day 2 業務聯絡環節結束。
+
+*****
+
+####  振翼发  
+##### 3299#       发表于 2024-4-21 19:21
+
+ybhl又刷了一波存在感，难绷
+

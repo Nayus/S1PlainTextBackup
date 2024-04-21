@@ -1346,3 +1346,13 @@ pro快出了现在买有点亏啊</blockquote>
 夜晚难度通关了，后期倒幕佐幕反复横跳笑死我了，话说胜海舟为啥剧情上会被设定得这么强？初见就能轻松压制 ...</blockquote>
 胜海舟从小就跟着幕末三剑豪之二练（支线里提过）也实实在在拿到了免許皆伝的
 
+
+*****
+
+####  垃圾网站上  
+##### 3101#       发表于 2024-4-21 19:22
+
+幕末时期比较有意思的是很多历史人物都是武士武丁出身，一些以前以为是思想家政治家的一查都是xx流免许皆传，所以做成剑戟大乱斗游戏挺合理的，换成辛亥革命背景就只能瞎掰铁拳无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

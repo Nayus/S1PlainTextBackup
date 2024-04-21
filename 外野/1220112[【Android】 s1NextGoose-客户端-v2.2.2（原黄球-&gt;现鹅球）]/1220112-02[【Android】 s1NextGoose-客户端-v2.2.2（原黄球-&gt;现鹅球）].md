@@ -76,3 +76,13 @@ ok，这个可以用，谢谢了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  拉鲁拉丝  
+##### 1507#       发表于 2024-4-21 17:36
+
+试了一下，s1fun倒是能直接跳转到被回复的上面。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

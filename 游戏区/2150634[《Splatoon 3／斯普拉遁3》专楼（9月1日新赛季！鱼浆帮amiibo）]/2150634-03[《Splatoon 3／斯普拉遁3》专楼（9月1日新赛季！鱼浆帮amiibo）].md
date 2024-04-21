@@ -12122,3 +12122,19 @@ syl，兔子三色全在内战，破案了
 
 明明是发电厂，怎么打得那么累，这期好像缺长手，清塔尤其麻烦，全得下去
 
+
+*****
+
+####  KBAC  
+##### 4186#       发表于 2024-4-21 20:54
+
+<img src="https://img.saraba1st.com/forum/202404/21/205112d92jg5bbsgyhb9qe.png" referrerpolicy="no-referrer">
+
+<strong>msedge_ewdlpQbWUW.png</strong> (90.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 20:51 上传
+
+草，虽然早就料到会有二创了，真看见还是难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -117,3 +117,27 @@ Image_1713524119771.jpg
 
 反正已经预购了豪华版，试玩下来感觉ACT里该有的都有，肯定不会是个雷。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 742#       发表于 2024-4-21 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64670721&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-4-21 19:24</a>
+
+反正已经预购了豪华版，试玩下来感觉ACT里该有的都有，肯定不会是个雷。
+
+ ...</blockquote>
+高级版那堆送的东西，是游戏里可以拿的还是额外提前送的有确定了吗？
+
+
+*****
+
+####  Mr.Hopp  
+##### 743#       发表于 2024-4-21 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64671323&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-4-21 20:50</a>
+
+高级版那堆送的东西，是游戏里可以拿的还是额外提前送的有确定了吗？</blockquote>
+好像没提过能不能在游戏里取得。
+

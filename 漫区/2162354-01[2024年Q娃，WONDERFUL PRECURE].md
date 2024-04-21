@@ -619,3 +619,17 @@
 
 结果撞到主子在逗猫头鹰，敢背着我吸其他猫，直接气不打一处来暴揍猫头鹰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1353#       发表于 2024-4-21 22:58
+
+另外这集彩羽和小麦表现确实圣母没得洗，猫和观众视角可是看到猫头鹰差点把mayu抓了的，猫暴怒起杀心很正常
+
+结果你俩啥都不知道就开始喊修玛基亚也有U咩，啊呸，嘎噜嘎噜也是好人，猫没连你俩一起打算好的了
+
+不过编剧也聪明，让彩羽这个当着猫面说mayu是朋友的去挡刀，要换成小麦挡刀，猫那一脚估计还得加几分力气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猫：看在你跟我主人之前那么肉麻俩公婆的份上这次不揍你了，唉，真是样衰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

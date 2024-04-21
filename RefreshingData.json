@@ -5720,7 +5720,7 @@
     "newtitle": "[型月 x 光荣特库摩『Fate ／ Samurai Remnant』PV1公开，9月28日发售]",
     "lastedit": 1713452412,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2141239": {
@@ -5859,10 +5859,10 @@
     "update": false
   },
   "2073353": {
-    "totalreply": 2231,
+    "totalreply": 2236,
     "title": "[2024『吹响吧！上低音号 久美子3年生篇』／ 合奏比赛篇23.08.04]",
     "newtitle": "[『吹响吧！上低音号 久美子3年生篇』动画楼 剧透请反白]",
-    "lastedit": 1713711373,
+    "lastedit": 1713711972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -6849,10 +6849,10 @@
     "update": false
   },
   "2162354": {
-    "totalreply": 1352,
+    "totalreply": 1353,
     "title": "[2024年Q娃，WONDERFUL PRECURE]",
     "newtitle": "[2024年Q娃，WONDERFUL PRECURE]",
-    "lastedit": 1713711373,
+    "lastedit": 1713711743,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7029,10 +7029,10 @@
     "update": false
   },
   "2125702": {
-    "totalreply": 1532,
+    "totalreply": 1533,
     "title": "[动工50周年纪念作「夜晚的水母不会游泳」原创TV动画 2024]",
     "newtitle": "[动工50周年纪念作「夜晚的水母不会游泳」原创TV动画 24年4月]",
-    "lastedit": 1713711373,
+    "lastedit": 1713711737,
     "category": "漫区",
     "active": true,
     "update": false
@@ -7065,10 +7065,10 @@
     "update": false
   },
   "2166322": {
-    "totalreply": 1798,
+    "totalreply": 1799,
     "title": "[缅甸专楼-1月版]",
     "newtitle": "[缅甸专楼-1月版]",
-    "lastedit": 1713710893,
+    "lastedit": 1713712097,
     "category": "外野",
     "active": true,
     "update": false
@@ -7452,10 +7452,10 @@
     "update": false
   },
   "2170568": {
-    "totalreply": 18820,
+    "totalreply": 18821,
     "title": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
     "newtitle": "[【大的就这！】｜崩坏星穹铁道｜ 综合讨论 #6]",
-    "lastedit": 1713711146,
+    "lastedit": 1713711743,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8676,10 +8676,10 @@
     "update": false
   },
   "2171891": {
-    "totalreply": 38653,
+    "totalreply": 38655,
     "title": "[【B88】VUP综合讨论楼]",
     "newtitle": "[【B88】VUP综合讨论楼]",
-    "lastedit": 1713711502,
+    "lastedit": 1713712093,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9990,19 +9990,19 @@
     "update": false
   },
   "2174128": {
-    "totalreply": 2520,
+    "totalreply": 2521,
     "title": "[俄乌专楼-3月版]",
     "newtitle": "[俄乌专楼-3月版]",
-    "lastedit": 1713710420,
+    "lastedit": 1713712097,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2174129": {
-    "totalreply": 2208,
+    "totalreply": 2209,
     "title": "[巴以中东专楼-3月版]",
     "newtitle": "[巴以中东专楼-3月版]",
-    "lastedit": 1713709104,
+    "lastedit": 1713712097,
     "category": "外野",
     "active": true,
     "update": false
@@ -10944,10 +10944,10 @@
     "update": false
   },
   "2175518": {
-    "totalreply": 35126,
+    "totalreply": 35133,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼6.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼6.0]",
-    "lastedit": 1713711374,
+    "lastedit": 1713711972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11061,10 +11061,10 @@
     "update": false
   },
   "2175581": {
-    "totalreply": 167,
+    "totalreply": 169,
     "title": "[2024年1月『ダンジョン飯 ／ 迷宫饭』动画观众专楼]",
     "newtitle": "[2024年1月『迷宫饭／ダンジョン飯 』动画观众专楼]",
-    "lastedit": 1713709339,
+    "lastedit": 1713711972,
     "category": "漫区",
     "active": true,
     "update": false
@@ -11313,10 +11313,10 @@
     "update": false
   },
   "2176281": {
-    "totalreply": 28298,
+    "totalreply": 28299,
     "title": "[蓝色星原：旅谣]",
     "newtitle": "[蓝色星原：旅谣(卡池全女，别肘！)]",
-    "lastedit": 1713711502,
+    "lastedit": 1713712097,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -13163,15 +13163,6 @@
     "newtitle": "[三国志8remake，2024年，PC／PS／NS]",
     "lastedit": 1712660299,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2178652": {
-    "totalreply": 48,
-    "title": "[对宫老一直有莫名其妙的成见]",
-    "newtitle": "[对宫老一直有莫名其妙的成见【含新作剧透】]",
-    "lastedit": 1712501924,
-    "category": "漫区",
     "active": false,
     "update": false
   },
@@ -16911,10 +16902,10 @@
     "update": false
   },
   "2179890": {
-    "totalreply": 216,
+    "totalreply": 217,
     "title": "[为什么同样上了b流媒体，播放量也差不多，但是迷宫饭的cos作品比芙莉莲少]",
     "newtitle": "[为什么同样上了b流媒体，播放量也差不多，但是迷宫饭的cos作品比芙莉莲少]",
-    "lastedit": 1713706811,
+    "lastedit": 1713711970,
     "category": "漫区",
     "active": true,
     "update": false
@@ -17537,7 +17528,7 @@
     "newtitle": "[痛，太痛了]",
     "lastedit": 1713452656,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2179892": {
@@ -18522,10 +18513,10 @@
     "update": false
   },
   "2180310": {
-    "totalreply": 88,
+    "totalreply": 89,
     "title": "[麦当劳 肯德基 汉堡王 御三家的原味冰淇淋甜筒谁最好吃..？]",
     "newtitle": "[麦当劳 肯德基 汉堡王 御三家的原味冰淇淋甜筒谁最好吃..？]",
-    "lastedit": 1713616938,
+    "lastedit": 1713712097,
     "category": "外野",
     "active": true,
     "update": false
@@ -18716,7 +18707,7 @@
     "newtitle": "[日本75岁以上人口首次突破两千万人]",
     "lastedit": 1713452652,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2180368": {
@@ -19476,10 +19467,10 @@
     "update": false
   },
   "2180548": {
-    "totalreply": 232,
+    "totalreply": 233,
     "title": "[24年锐评（炮轰）下法环]",
     "newtitle": "[24年锐评（炮轰）下法环]",
-    "lastedit": 1713704536,
+    "lastedit": 1713711607,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -19863,10 +19854,10 @@
     "update": false
   },
   "2180601": {
-    "totalreply": 71,
+    "totalreply": 72,
     "title": "[王国之泪，要被自己笑死了]",
     "newtitle": "[王国之泪，要被自己笑死了]",
-    "lastedit": 1713708756,
+    "lastedit": 1713711847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -19998,10 +19989,10 @@
     "update": false
   },
   "2180736": {
-    "totalreply": 148,
+    "totalreply": 149,
     "title": "[女朋友要我用一个月的工资给她买包]",
     "newtitle": "[女朋友要我用一个月的工资给她买包]",
-    "lastedit": 1713711502,
+    "lastedit": 1713711743,
     "category": "外野",
     "active": true,
     "update": false
@@ -20079,10 +20070,10 @@
     "update": false
   },
   "2180739": {
-    "totalreply": 104,
+    "totalreply": 105,
     "title": "[每次刷到吃辣话题下面都是粤苏浙大战云贵川渝湘]",
     "newtitle": "[每次刷到吃辣话题下面都是粤苏浙大战云贵川渝湘]",
-    "lastedit": 1713710777,
+    "lastedit": 1713712097,
     "category": "外野",
     "active": true,
     "update": false
@@ -20169,10 +20160,10 @@
     "update": false
   },
   "2180790": {
-    "totalreply": 147,
+    "totalreply": 148,
     "title": "[目前应该没有人测试过核武器对当代钢混森林的杀伤力吧？]",
     "newtitle": "[目前应该没有人测试过核武器对当代钢混森林的杀伤力吧？]",
-    "lastedit": 1713711502,
+    "lastedit": 1713711743,
     "category": "外野",
     "active": true,
     "update": false

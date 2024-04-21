@@ -12138,3 +12138,12 @@ syl，兔子三色全在内战，破案了
 
 草，虽然早就料到会有二创了，真看见还是难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Humpy  
+##### 4187#       发表于 2024-4-21 23:21
+
+和朋友组队打了把百倍，各种被压，最后以0.2的微弱优势赢了，感觉能睡个好觉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+但对方估计要难受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

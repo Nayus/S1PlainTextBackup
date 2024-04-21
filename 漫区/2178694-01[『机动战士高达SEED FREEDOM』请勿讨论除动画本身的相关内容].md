@@ -7062,3 +7062,11 @@ OVA主要是讲前传故事，而阿斯兰的间谍生涯这么好的一个卖�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Smith·勇  
+##### 565#       发表于 2024-4-21 14:22
+
+怎么听你们涛票房听着像代孙在用不好说的手段灌水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过🐔待遇也确实不算好，福田搞那一出问是不是看腻了🐔恶意属实大了点，当初看着不行了又把鸡拖出来救火的他算是把鸡粉丝当狗遛。
+

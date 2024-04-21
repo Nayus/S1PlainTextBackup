@@ -2585,3 +2585,14 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 说清杂当然是虫了，正常聊机器人的话没有什么清杂需求。
 
+
+*****
+
+####  rainknine  
+##### 3209#       发表于 2024-4-21 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665769&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-21 03:22</a>
+防守是消灭部队，保护科学家，还是高质量目标</blockquote>
+当然是保卫高价值冻肉
+毕竟歼灭战和拯救刁民的玩法很难算防御（
+

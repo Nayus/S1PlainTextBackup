@@ -7170,3 +7170,14 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 一道耀眼的光束从 ...</blockquote>
 鸡什么进步不进步的，这段只能说明，要么鸟一惊一乍的，要么后藤写得一惊一乍的，不要想太多233.
 
+
+*****
+
+####  ALUD.  
+##### 572#       发表于 2024-4-21 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669223&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-21 15:55</a>
+
+鸡什么进步不进步的，这段只能说明，要么鸟一惊一乍的，要么后藤写得一惊一乍的，不要想太多233. ...</blockquote>
+那就还是鸟含金量不够咯。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外鸟那句没有出场机会是剧场版的台词，不就是说我擦队长太强了
+

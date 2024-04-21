@@ -30,3 +30,14 @@
 
 [https://cowtransfer.com/s/9cbcd2643ae145](https://cowtransfer.com/s/9cbcd2643ae145) 点击链接查看 [ S1 Next Goose 魔改版.apk.1 ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 x9pyo0 查看；
 
+
+*****
+
+####  洛拉斯  
+##### 1503#       发表于 2024-4-21 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668466&amp;ptid=1220112" target="_blank">白色的120 发表于 2024-4-21 14:04</a>
+最近鹅球的回帖跳转是不是有bug，看回帖都跳不到
+正确位置</blockquote>
+鹅球还是每页30贴
+

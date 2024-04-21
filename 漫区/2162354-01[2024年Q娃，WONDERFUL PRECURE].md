@@ -517,3 +517,11 @@
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  不能摸的屁屁  
+##### 1343#       发表于 2024-4-21 17:04
+
+不会净化技能再能打也没辙，还用爪子上流血，让对面更痛苦相当于加了狂暴buff，反过来虐华哥和狗子，什么猫队友<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

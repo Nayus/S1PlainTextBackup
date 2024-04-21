@@ -2631,3 +2631,11 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 一次打得还行但是疯狂出泰坦，甚至开局就刷了2个直接破第一 ...</blockquote>
 来体验一下机器人防守，现在移动工厂能直接站在大门口就狙掉发电机<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 3213#       发表于 2024-4-21 17:04
+
+之前坦克空投到山顶也能轰掉发电机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

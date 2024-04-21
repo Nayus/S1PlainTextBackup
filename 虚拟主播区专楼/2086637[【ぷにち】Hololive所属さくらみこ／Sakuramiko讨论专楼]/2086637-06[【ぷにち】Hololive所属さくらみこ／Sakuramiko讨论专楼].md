@@ -5740,3 +5740,19 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这上下运动钻游戏空子啊，频道危！
 
+
+*****
+
+####  rs5621  
+##### 8691#       发表于 2024-4-21 22:29
+
+<img src="https://img.saraba1st.com/forum/202404/21/222831yygbhrtwoyu6wy66.png" referrerpolicy="no-referrer">
+
+<strong>TNP)EK1PG5F1T9P)BUC4MDM.png</strong> (58.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 22:28 上传
+
+这杀伤力太大，被金发狠狠拿捏了
+

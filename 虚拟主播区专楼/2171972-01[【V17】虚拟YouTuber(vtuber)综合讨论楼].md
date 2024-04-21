@@ -182,3 +182,13 @@ vshojo又来新人啊，这次看起来像是mika<img src="https://static.saraba
 
 黑黑和rfm这两场水平差距有点大
 
+
+*****
+
+####  渡鸦骑士  
+##### 190#       发表于 2024-4-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669719&amp;ptid=2171972" target="_blank">rzrbtk 发表于 2024-4-21 17:07</a>
+好希望バニーガーデン成为新的管人金游；；</blockquote>
+至少holo这边明显是了哦
+

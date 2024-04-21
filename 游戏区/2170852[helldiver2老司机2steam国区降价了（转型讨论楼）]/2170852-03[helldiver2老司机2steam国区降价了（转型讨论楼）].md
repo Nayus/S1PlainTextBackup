@@ -2639,3 +2639,11 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 之前坦克空投到山顶也能轰掉发电机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Soap  
+##### 3214#       发表于 2024-4-21 18:50
+
+机器人比虫子強得多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

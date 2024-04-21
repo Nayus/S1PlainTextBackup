@@ -525,3 +525,14 @@
 
 不会净化技能再能打也没辙，还用爪子上流血，让对面更痛苦相当于加了狂暴buff，反过来虐华哥和狗子，什么猫队友<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1344#       发表于 2024-4-21 17:22
+
+白猫现在入队情况感觉就是奶玫瑰+富春
+今年已经美其名曰说“不能伤害动物”来不画打戏了
+现在正版有拿这个来说教 打戏就别指望什么惹<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+还有一点就是现在编剧井上美绪说教味太重了 非常不喜欢
+

@@ -2608,3 +2608,14 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 第二把铆足了劲结果总共就出了两个泰坦，甚至连坦克虫都没见到几只，打到最后大家都站在第二道门旁的露台上轻松摸鱼，来虫了就丢个空袭，平时就看着激光浮游炮发呆，跟春游似的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yahuchi  
+##### 3211#       发表于 2024-4-21 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665770&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-21 03:23</a>
+
+说清杂当然是虫了，正常聊机器人的话没有什么清杂需求。</blockquote>
+机器人里没有杂，哪个来都够绝地冻肉喝一壶的（）
+

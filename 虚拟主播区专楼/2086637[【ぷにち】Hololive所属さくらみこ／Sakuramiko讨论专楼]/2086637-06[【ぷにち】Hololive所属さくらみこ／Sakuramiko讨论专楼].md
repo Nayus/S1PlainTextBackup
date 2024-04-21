@@ -5632,3 +5632,13 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 知道4年前播ドリクラ的时候是怎么玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rs5621  
+##### 8680#       发表于 2024-4-21 18:26
+
+封面的兔女郎35终于有用到的地方了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

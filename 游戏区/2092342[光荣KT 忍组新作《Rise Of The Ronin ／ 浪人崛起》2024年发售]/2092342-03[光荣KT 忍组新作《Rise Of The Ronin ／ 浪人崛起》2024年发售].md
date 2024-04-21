@@ -1324,3 +1324,15 @@ pro快出了现在买有点亏啊</blockquote>
 
 如此这般那看通关CG彩蛋美国重逢就更感觉哪哪都不对了，明明是我先来的啊......搭档君你配吗<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  垃圾网站上  
+##### 3099#       发表于 2024-4-21 18:31
+
+ 本帖最后由 垃圾网站上 于 2024-4-21 18:35 编辑 
+
+龙马才是真搭档和第一配角，支线干掉土佐出身的冈田以藏和结局主角干掉隐刀搭档是呼应的，另外龙马历史上一定程度也是左右横跳，这剧情算是近年光荣做得可以的了，但很可惜没做出佐幕的if剧情线，部分分支关卡偷懒
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

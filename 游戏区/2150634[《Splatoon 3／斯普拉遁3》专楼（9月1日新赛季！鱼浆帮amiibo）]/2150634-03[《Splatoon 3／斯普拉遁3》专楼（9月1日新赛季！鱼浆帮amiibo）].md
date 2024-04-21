@@ -12014,3 +12014,19 @@ SB泡：长射程模式爆风半径扩大11%
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 4180#       发表于 2024-4-21 11:29
+
+小不小不知道但是赢了输了对心理影响很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+百倍局赢了：爽了接下来随便涂涂
+
+百倍局输了：妈的接下来还打个屁随便涂涂算球
+
+总之不要碰到百倍局
+
+syl，兔子三色全在内战，破案了
+

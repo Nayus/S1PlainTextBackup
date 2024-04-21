@@ -1200,3 +1200,14 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 <blockquote>[ 医生狼多 replied on 2024-4-21 10:01](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64666704&amp;ptid=2092342) 估摸快通关了，打算回头清下地图,有啥支线推荐做的吗 以及救下龙马需要怎么做？ </blockquote>
 京都支线千本刀很有趣。敌人是弁庆，战斗地点在桥上。任务结束后获得“幕末的牛若丸”的称号。来自: iPhone客户端
 
+
+*****
+
+####  医生狼多  
+##### 3087#       发表于 2024-4-21 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64667258&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-21 11:16</a>
+京都支线千本刀很有趣。敌人是弁庆，战斗地点在桥上。任务结束后获得“幕末的牛若丸”的称号。 ...</blockquote>
+这个打过了
+后面他似乎还在桥上可以继续打？我自动寻路时路过，结果勾到仇恨无法和任务目标对话也无法tp，但是又看不到他人在哪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -3133,3 +3133,13 @@ segay青收收味
 
 pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainsheep  
+##### 203#       发表于 2024-4-21 12:28
+
+这个dlc是指服装那类，还是剧情流程的？别又整加强版单卖吧。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

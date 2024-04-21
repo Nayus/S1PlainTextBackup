@@ -12256,3 +12256,25 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逛了下本地谷店，门口放了go的五个立牌，进去却只有破琵琶的谷，真就ylgo
 
+
+*****
+
+####  [皆神孝介]  
+##### 15886#       发表于 2024-4-22 00:41
+
+[LP-Raws&amp;离谱Sub] BanG Dream! It's MyGO!!!!! [01-13 Fin][BDRip HEVC-YUV420P10 FLAC][1080p][简繁日外挂][三次校对字幕]【14.4GB】
+[https://share.dmhy.org/topics/vi ... P10_FLAC_1080p.html](https://share.dmhy.org/topics/view/667878_LP-Raws_Sub_BanG_Dream%21_It_s_MyGO%21%21%21%21%21_01-13_Fin_BDRip_HEVC-YUV420P10_FLAC_1080p.html)
+
+又有一家压BDrip
+
+*****
+
+####  基神的强袭自由  
+##### 15887#       发表于 2024-4-22 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64666699&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-4-21 10:00</a>
+帕楚在ras最新剧情里已经真正约定终生了，真女同太强大了</blockquote>
+姐们费力就住进了高楼<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

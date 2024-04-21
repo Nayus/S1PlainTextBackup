@@ -548,3 +548,13 @@
 
 可惜就这集的导向来看打斗是持续不了几集了……等2人入队基本就没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后面能用用擒拿技就不错了。
 
+
+*****
+
+####  starring  
+##### 1346#       发表于 2024-4-21 18:20
+
+突然又好看起来了，可不知道能维持几集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小雪入队肯定要被说服不攻击敌人，肉搏战且看且珍惜
+

@@ -1219,3 +1219,23 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 
 庆喜公塑造比西乡和第三章木户要讨喜很多吧 还有新撰組也比陪了两章的倒幕男团有新鲜感
 
+
+*****
+
+####  寂长无星夜  
+##### 3089#       发表于 2024-4-21 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64665908&amp;ptid=2092342" target="_blank">isa2456 发表于 2024-4-21 06:20</a>
+看了一天评测和流派段子，妈的忍不住下单了ps5了想问下流派是怎么获得的，我看好像招式都很多，又有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">pro快出了现在买有点亏啊
+
+*****
+
+####  寂长无星夜  
+##### 3090#       发表于 2024-4-21 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64666704&amp;ptid=2092342" target="_blank">医生狼多 发表于 2024-4-21 10:01</a>
+估摸快通关了，打算回头清下地图,有啥支线推荐做的吗
+以及救下龙马需要怎么做？ ...</blockquote>
+把龙马的因缘任务都打完就行，支线有找妖刀，还有保镖这种能见到青鬼的任务
+

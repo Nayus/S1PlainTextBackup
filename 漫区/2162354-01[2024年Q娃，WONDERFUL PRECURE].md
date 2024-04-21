@@ -652,3 +652,13 @@
 不如说彩羽的表现深得我心，她真敢上啊，猫那一脚下去要是没收住，被踢飞的就是彩羽了。
 这是有觉悟和决心去救嘎噜的真圣母啊
 
+
+*****
+
+####  maoyou  
+##### 1356#       发表于 2024-4-22 06:14
+
+别把大粪来打的风气带过来好伐<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这集哪里圣母了，不就是狗组按照往常动保的套路对噶路噶路进行救助而已，突然看到（野生动物在捕猎肯定会激发保护欲的
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -7181,3 +7181,14 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 鸡什么进步不进步的，这段只能说明，要么鸟一惊一乍的，要么后藤写得一惊一乍的，不要想太多233. ...</blockquote>
 那就还是鸟含金量不够咯。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外鸟那句没有出场机会是剧场版的台词，不就是说我擦队长太强了
 
+
+*****
+
+####  线程召唤使  
+##### 573#       发表于 2024-4-21 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669264&amp;ptid=2178694" target="_blank">ALUD. 发表于 2024-4-21 16:00</a>
+
+那就还是鸟含金量不够咯。另外鸟那句没有出场机会是剧场版的台词，不就是说我擦队长太强了 ...</blockquote>
+鸟：我就喜欢一惊一乍怎么了，我队长这么强，凭啥现在和以前一样强就不让吹了，非得比以前更厉害才能吹的次数+1吗
+

@@ -12248,3 +12248,11 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 [https://twitter.com/mkm22111/status/1781368165899104389](https://twitter.com/mkm22111/status/1781368165899104389)
 
+
+*****
+
+####  稀勢のささ  
+##### 15885#       发表于 2024-4-21 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逛了下本地谷店，门口放了go的五个立牌，进去却只有破琵琶的谷，真就ylgo
+

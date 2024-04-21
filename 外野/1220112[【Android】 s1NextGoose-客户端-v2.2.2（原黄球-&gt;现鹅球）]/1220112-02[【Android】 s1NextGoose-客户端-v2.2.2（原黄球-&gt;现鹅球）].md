@@ -41,3 +41,26 @@
 正确位置</blockquote>
 鹅球还是每页30贴
 
+
+*****
+
+####  白色的120  
+##### 1504#       发表于 2024-4-21 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668601&amp;ptid=1220112" target="_blank">被雨困住的城市 发表于 2024-4-21 14:26</a>
+官方版是变这样了，因为网页端改成40帖一页了，有个魔改版，记得楼里有人发过魔改版，不知道资源有没有失 ...</blockquote>
+ok，这个可以用，谢谢了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  慈父斯大林  
+##### 1505#       发表于 2024-4-21 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669292&amp;ptid=1220112" target="_blank">白色的120 发表于 2024-4-21 16:08</a>
+ok，这个可以用，谢谢了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
+你可以试试能不能发图。
+

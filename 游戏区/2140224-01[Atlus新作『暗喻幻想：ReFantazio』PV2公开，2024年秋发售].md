@@ -3118,3 +3118,18 @@ segay青收收味
 <img src="https://p.sda1.dev/17/fa65b8fa66ab2231982b424cf4cd6df8/IMG_20240421_100358.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/ee23b44f718119bc350784f0c522dbab/IMG_20240421_100416.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 201#       发表于 2024-4-21 11:52
+
+羊引擎还不错了，靠风格化堆画面，3r的特效就有些傻亮
+
+*****
+
+####  AeonsTorn  
+##### 202#       发表于 2024-4-21 11:57
+
+pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

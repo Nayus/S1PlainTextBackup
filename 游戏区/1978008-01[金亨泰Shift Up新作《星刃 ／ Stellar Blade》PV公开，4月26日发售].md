@@ -267,3 +267,11 @@ I can say it's one of the most polished AAA I have played in recent years
 
 我周末正好碰了碰nier2，demo来看动作流畅度这些剑星确实差点意思，主要是卖相上的
 
+
+*****
+
+####  kuker53  
+##### 755#       发表于 2024-4-22 05:49
+
+考虑了还是买了，应该还是稳得，有难度选项也不会卡关
+

@@ -109,3 +109,11 @@ Image_1713524119771.jpg
 有没有哪位国内媒体人出来暗示一下游戏怎么样？ 当时浪人崛起都有人暗示过 ...</blockquote>
 “有很好的游戏性，但确实没有比尼尔强太多”a9上看的
 
+
+*****
+
+####  Mr.Hopp  
+##### 741#       发表于 2024-4-21 19:24
+
+反正已经预购了豪华版，试玩下来感觉ACT里该有的都有，肯定不会是个雷。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

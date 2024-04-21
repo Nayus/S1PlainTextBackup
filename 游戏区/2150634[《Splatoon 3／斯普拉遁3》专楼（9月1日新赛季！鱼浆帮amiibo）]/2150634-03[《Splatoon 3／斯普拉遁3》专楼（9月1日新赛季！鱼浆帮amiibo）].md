@@ -12050,3 +12050,59 @@ syl，兔子三色全在内战，破案了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4183#       发表于 2024-4-21 19:26
+
+ 本帖最后由 罗克萨斯 于 2024-4-21 19:28 编辑 
+
+三色一场没赢，只能去挑战把胜率打回来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/21/192734dsxzx2i4lfqpl4n2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-21-19-09-22-206_com.nintendo.znca.jpg</strong> (557.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:27 上传
+
+挑战赢了4个10倍，还是没碰到100倍，看来运气不在我这边😮‍💨
+
+这次祭典匹配到超弱队友的概率极高，拿着审查者涂地P数没过700你敢信？当然对面也经常出现菜得离谱的，属于负负得正了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/21/192828bxch6ro6xtx8rk5n.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042118580600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (263.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/21/192828yxdk0uqkuassmsrb.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042016443700-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (236.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/21/192828ass9aa4jt4bwa9n0.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042119032200-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (256.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/21/192828k6ziiyqqi4cfh6f6.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042119080600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (256 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

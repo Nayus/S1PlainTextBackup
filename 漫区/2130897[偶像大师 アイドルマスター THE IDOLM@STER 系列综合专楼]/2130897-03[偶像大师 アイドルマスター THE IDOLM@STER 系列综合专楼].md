@@ -3646,3 +3646,26 @@ Day 2 業務聯絡環節結束。
 
 ybhl又刷了一波存在感，难绷
 
+
+*****
+
+####  Alicest  
+##### 3300#       发表于 2024-4-21 19:28
+
+安心感
+
+<img src="https://img.saraba1st.com/forum/202404/21/192804us9qa9brsug5xqb9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 19:28 上传
+
+*****
+
+####  陆久舟  
+##### 3301#       发表于 2024-4-21 19:29
+
+根本没有大的，高山我SOLO2呢？OST2呢？
+

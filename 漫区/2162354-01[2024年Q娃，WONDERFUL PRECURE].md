@@ -558,3 +558,22 @@
 
 小雪入队肯定要被说服不攻击敌人，肉搏战且看且珍惜
 
+
+*****
+
+####  水至清则无豚  
+##### 1347#       发表于 2024-4-21 19:28
+
+不会最后是由主子叫她不要动手吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  noneoneone  
+##### 1348#       发表于 2024-4-21 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64670754&amp;ptid=2162354" target="_blank">水至清则无豚 发表于 2024-4-21 19:28</a>
+
+不会最后是由主子叫她不要动手吧</blockquote>
+你说谁是主子？
+

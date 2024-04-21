@@ -633,3 +633,11 @@
 
 猫：看在你跟我主人之前那么肉麻俩公婆的份上这次不揍你了，唉，真是样衰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cloudslin  
+##### 1354#       发表于 2024-4-21 23:36
+
+很森生的一集，sakugabooru又开张了，不容易。猫猫现在的拳打脚踢爪挠大概和富春的「星よ 天に帰れ！」一样期间限定，且看且珍惜。
+

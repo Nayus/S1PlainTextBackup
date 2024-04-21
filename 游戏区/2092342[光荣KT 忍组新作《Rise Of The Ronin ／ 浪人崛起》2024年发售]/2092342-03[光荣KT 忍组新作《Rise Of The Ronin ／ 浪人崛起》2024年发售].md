@@ -1249,3 +1249,13 @@ ps5现在价格还行想问下这游戏值得特地买来玩么？也算是仁�
 pro快出了现在买有点亏啊</blockquote>
 无所谓，不喜半代升级，ps4到卖出还是厚机呢. 反而ps5这么多年才有一个想买的游戏就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 3092#       发表于 2024-4-21 14:32
+
+夜晚难度通关了，后期倒幕佐幕反复横跳笑死我了，话说胜海舟为啥剧情上会被设定得这么强？初见就能轻松压制龙马和主角，后面第三章的完全体超级疯狗，打完感觉剧情表现就是这老登要是不用忧心搞政治随随便便就是幕末剑圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+全篇打下来感觉有压力的战斗：搭档初见战，赤鬼&amp;青鬼，幕末三虎臣，然后就是第三章的完全体龙马，完全体四大人斩，完全体胜海舟，超级疯狗，战斗超级爽！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7235,3 +7235,29 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 把这个人扔去搞情报，活该罗盘被坑到底裤都没了才收到“基地王国很可疑”的信息了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 577#       发表于 2024-4-21 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669566&amp;ptid=2178694" target="_blank">oh_my_god 发表于 2024-4-21 16:45</a>
+都开始车了吗？那我也不憋着了
+
+到底是哪个脑子有坑的才会把狼弄去搞情报的啊，种子种命100集也没看 ...</blockquote>
+因为要分戏份啊，鸟的性格太冲动了，明显不适合，鸡也不像是受过这方面训练的，而且肉身战太差。那军校第一的兵王要不边缘化就只能去当特工咯。如果他是主角的话那就能替掉鸡的位置让鸡在后排给他开发各种新武器，但可惜不是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  线程召唤使  
+##### 578#       发表于 2024-4-21 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669566&amp;ptid=2178694" target="_blank">oh_my_god 发表于 2024-4-21 16:45</a>
+
+都开始车了吗？那我也不憋着了
+
+到底是哪个脑子有坑的才会把狼弄去搞情报的啊，种子种命100集也没看 ...</blockquote>
+不过就是剧场版时间不够戏份不够，用当间谍先把阿斯兰前半段砍没，然后两分钟让阿斯兰出来讲一下accord的设定接上最终战就完事了。
+

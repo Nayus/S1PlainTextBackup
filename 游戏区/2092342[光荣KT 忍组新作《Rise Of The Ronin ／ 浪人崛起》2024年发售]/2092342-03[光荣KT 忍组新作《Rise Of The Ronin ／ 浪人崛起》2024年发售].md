@@ -1310,3 +1310,17 @@ pro快出了现在买有点亏啊</blockquote>
 夜晚难度通关了，后期倒幕佐幕反复横跳笑死我了，话说胜海舟为啥剧情上会被设定得这么强？初见就能轻松压制 ...</blockquote>
 暗夜野地的胜海舟<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  松风君  
+##### 3098#       发表于 2024-4-21 16:54
+
+之前练盟友任务solo，黑洲藩老姜太辣打得完全没脾气了，最后碰上龙马&amp;搭档压轴也很让人意难平。
+
+毕竟是个正剧呢，龙马最后的因缘任务叙事上更像true end一些。
+
+在近江屋那啥的话CG也会说毕竟「你是我的搭档」，换言之确认了之于主角关系如同秀&lt;—&gt;吉也是钦定的。
+
+如此这般那看通关CG彩蛋美国重逢就更感觉哪哪都不对了，明明是我先来的啊......搭档君你配吗<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+

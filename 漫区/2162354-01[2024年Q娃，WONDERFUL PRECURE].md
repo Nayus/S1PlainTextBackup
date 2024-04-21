@@ -381,3 +381,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">狗组阻止了nyammy的攻击，合着入队后大伙还要接着搂搂抱抱吗……
 
+
+*****
+
+####  犬飼いろは  
+##### 1327#       发表于 2024-4-21 08:09
+
+第 12 集的 TVer 源（含日字）：magnet:?xt=urn:btih:a2fcccf6da0c94ed3cce800ba79341f0114fed6f
+
+
+*****
+
+####  Mr.Giraffe  
+##### 1328#       发表于 2024-4-21 08:13
+
+不是很能想象高冷猫猫亚萨西地摸摸抱抱噶鲁噶鲁的样子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

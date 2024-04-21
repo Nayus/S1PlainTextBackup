@@ -7192,3 +7192,24 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 那就还是鸟含金量不够咯。另外鸟那句没有出场机会是剧场版的台词，不就是说我擦队长太强了 ...</blockquote>
 鸟：我就喜欢一惊一乍怎么了，我队长这么强，凭啥现在和以前一样强就不让吹了，非得比以前更厉害才能吹的次数+1吗
 
+
+*****
+
+####  ALUD.  
+##### 574#       发表于 2024-4-21 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669306&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-21 16:10</a>
+
+鸟：我就喜欢一惊一乍怎么了，我队长这么强，凭啥现在和以前一样强就不让吹了，非得比以前更厉害才能吹的 ...</blockquote>
+他现在带有滤镜啊，然后还比他滤镜高一级，实际要高两级<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 575#       发表于 2024-4-21 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">人气还是重要的，迪奥是五小强人气最高的，冰泪小说两极分化的评价有一半就是惹了迪奥粉加了段浪子生涯，总是动不动就吵这个，对五飞全程装大B，单机开无双则是各种毫无关心.jpg，毕竟他是男团人气最低的一个
+
+如果明年真宣布动画改编的话，无论怎么再改，只要拍的出来，五飞无论人气还是角色弧光的翻身仗估计是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">，毕竟TV和EW都没去讲清楚身世，就他让人完全看不懂的一直正义，到时候会不会还有吵五飞是讨好拆尼斯的....
+

@@ -5642,3 +5642,19 @@ fbk发推说今晚21点玩那个4人联动的游戏，问题是昨晚断网断�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 8681#         楼主| 发表于 2024-4-21 18:57
+
+<img src="https://img.saraba1st.com/forum/202404/21/185636ocpmz83u88e85r3v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-21 18:56 上传
+
+这运营是真的特别要到了ASMR部分直播许可了，有点东西的
+

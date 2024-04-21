@@ -536,3 +536,15 @@
 现在正版有拿这个来说教 打戏就别指望什么惹<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 还有一点就是现在编剧井上美绪说教味太重了 非常不喜欢
 
+
+*****
+
+####  leleq  
+##### 1345#       发表于 2024-4-21 18:02
+
+小雪：老娘可不惯着你。
+
+猫不愧是小动物杀手下手果然狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜就这集的导向来看打斗是持续不了几集了……等2人入队基本就没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后面能用用擒拿技就不错了。
+

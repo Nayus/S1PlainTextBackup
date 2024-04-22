@@ -12241,3 +12241,24 @@ syl，兔子三色全在内战，破案了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次得票差距这么大结果兔子队还垫底
 
+
+*****
+
+####  KBAC  
+##### 4198#       发表于 2024-4-22 18:05
+
+鬼福说总觉得见过什么像小熊的东西。曼曼说是小猫，鬼福说对啊是小猫，然后话题又差点一转熊老板了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+话说小猫这条故事线到底啥时候展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KBAC  
+##### 4199#       发表于 2024-4-22 18:08
+
+突然发现广场上多了好多中文名字的非玩家NPC，有叫Xiaoming、Chenxi、Fanghua，还有叫Yunfei的。
+以前有这么多吗？怎么感觉是最近加的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

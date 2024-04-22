@@ -2730,3 +2730,22 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 只崩你一个已经很不错了，跟我开黑的朋友总是不管三七二十一丢他那个破空爆，有时候兴趣点一波小怪也能看 ...</blockquote>
 我对混战的时候捣乱的人还是挺宽容的，毕竟大家各凭实力，死了是自己太菜，但是做重要任务的时候TK是真绷不住，就算是扔个飞鹰过来我有个1秒的输入时间操作完再炸死我我都不至于被恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 3223#       发表于 2024-4-22 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64678667&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-22 15:37</a>
+跟朋友两个人打了几把难度6的机器人决定知难而退了，打虫子有什么推荐配备吗，我俩现在基本就是火喷+榴弹手 ...</blockquote>
+爆裂铳+救世主+震撼弹+激光狗+飞鹰500，三号位武器带类星体或者机枪/盟友（取决于你对爆裂铳的熟练程度，熟练了也能换成红战备），第四个战备带什么都无所谓，反甲就带轨道炮攻击，清杂就带飞鹰空袭/轨道空爆，带炮台也行。
+
+*****
+
+####  Awanano  
+##### 3224#       发表于 2024-4-22 18:11
+
+空爆感觉比集束炸弹文明多了，队友tk我最多次的战备就是集束。感觉很多人根本不管他那个横向范围直接丢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

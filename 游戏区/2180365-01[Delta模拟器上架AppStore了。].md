@@ -884,3 +884,14 @@ Thank you for your years of support and for understanding our decision.
 
 现解决办法是存档导入citra ，通讯进化完成后再导入delta<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  afer  
+##### 76#       发表于 2024-4-22 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64675697&amp;ptid=2180365" target="_blank">sakuranosibe 发表于 2024-4-22 11:27</a>
+
+我的账号是日区的，也有反过来的烦恼，有些只有国区的app就不能用了，比如B站，直到去年才上的日区 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">所以苹果真是渣渣，我最近wifi连不上要整机恢复就让我蚌埠住了
+

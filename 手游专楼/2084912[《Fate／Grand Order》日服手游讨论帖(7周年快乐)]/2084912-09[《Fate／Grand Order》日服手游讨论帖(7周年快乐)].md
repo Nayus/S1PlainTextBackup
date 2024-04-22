@@ -1782,3 +1782,15 @@ PU角色暫時還沒有新增強化任務
 
 虽然大家现在都嘲笑樱井大妈老爱用“呜呼（啊啊）”之类的，但好像魔夜一路上菌类也没少用，这俩货当初到底是谁影响了谁？结果菌类现在倒是没这毛病了，至少废狗几次执笔我感觉文章都很干练，不算难读，樱井就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 12159#       发表于 2024-4-23 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64675265&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-22 10:55</a>
+要说女梅林的存在感低到什么地步的话
+
+就是你甚至经常忘了她是个蓝拐……</blockquote>
+我日常甚至用水武后都不用女梅林，而且现在还多了个正雪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

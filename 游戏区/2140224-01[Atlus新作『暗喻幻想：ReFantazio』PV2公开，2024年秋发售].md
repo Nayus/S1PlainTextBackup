@@ -3310,3 +3310,22 @@ sega官方视频出了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  hkguty  
+##### 218#       发表于 2024-4-23 07:18
+
+实体豪华版送的都是那么点破东西，还是数字版走起吧
+
+*****
+
+####  喇叭  
+##### 219#       发表于 2024-4-23 07:18
+
+战斗看笑了…
+
+地图上又砍又闪，一通辗转腾挪，最后就换个类似p5开幕枪击的效果…这味有点熟悉，来自星尘？人回合里插即时，这即时里插回合，妙啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

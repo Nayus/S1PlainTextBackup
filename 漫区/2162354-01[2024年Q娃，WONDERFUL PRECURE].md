@@ -705,3 +705,13 @@
 
 真让小雪发自内心决定不打噶路嘎路感觉可以选择让反派出场给真由变一次，这样小雪就会收手并且理解彩羽和小麦了，可惜肯定是不会这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 1362#       发表于 2024-4-23 01:50
+
+要不打了，你让小雪回家睡觉还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

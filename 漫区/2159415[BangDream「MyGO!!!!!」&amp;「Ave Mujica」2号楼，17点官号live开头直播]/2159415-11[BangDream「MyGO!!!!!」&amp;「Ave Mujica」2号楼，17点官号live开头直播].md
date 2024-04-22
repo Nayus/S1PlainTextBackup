@@ -12516,3 +12516,11 @@ P的吧</blockquote>
 这个倒是早就有的事，不用太自己吓自己，不知道n站版本现在是什么样的。独角兽现在态度还是很让人担心的， ...</blockquote>
 那就是草台了，不过这还是不能解释独角兽为啥不发邦相关的内容了，神秘
 
+
+*****
+
+####  ddy2811  
+##### 15912#       发表于 2024-4-22 14:49
+
+什么“射の精神”同款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

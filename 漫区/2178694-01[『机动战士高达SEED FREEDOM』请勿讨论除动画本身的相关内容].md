@@ -7454,3 +7454,15 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 — from Xiaomi 23049RAD8C, Android 14 of S1 Nex ...</blockquote>
 和我说的有什么关系吗
 
+
+*****
+
+####  oi99o  
+##### 593#       发表于 2024-4-22 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668866&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-4-21 15:06</a>
+话说有潭友知道香港那边一般多久预售吗？搜了一下澳门的开了，但香港的还没开。 ...</blockquote>
+提前1-2天吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

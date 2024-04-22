@@ -2719,3 +2719,14 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 和朋友连续两把机器人N9做完任务没上的了飞机了，心痛的是捡了三四十最稀缺的黄绿样本啊，心态要崩了
 
+
+*****
+
+####  dfbbymice  
+##### 3222#       发表于 2024-4-22 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64674418&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-22 09:32</a>
+
+只崩你一个已经很不错了，跟我开黑的朋友总是不管三七二十一丢他那个破空爆，有时候兴趣点一波小怪也能看 ...</blockquote>
+我对混战的时候捣乱的人还是挺宽容的，毕竟大家各凭实力，死了是自己太菜，但是做重要任务的时候TK是真绷不住，就算是扔个飞鹰过来我有个1秒的输入时间操作完再炸死我我都不至于被恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

@@ -12280,3 +12280,15 @@ syl，兔子三色全在内战，破案了
 
 还有怎么打都是铜，干脆连银都不怎么出了，这次更新是不是动了什么手脚啊
 
+
+*****
+
+####  KBAC  
+##### 4202#       发表于 2024-4-22 23:57
+
+1600小时不知道超级跳，不知道碳酸能摇，还玩贴牌绿桶
+
+求求老任下次把新手教学做明显点直观点，大猫那个感叹号又随机又容易让人不耐烦，新手真的能看完并记住吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

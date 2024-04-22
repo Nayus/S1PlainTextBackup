@@ -69,3 +69,11 @@ U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这肥朱还真的是雌大鬼啊
 
+
+*****
+
+####  アンリエット  
+##### 17891#       发表于 2024-4-22 23:59
+
+从剧情来说，其实只有偶尔的口癖是雌小鬼，本身性格还是挺元气少女的
+

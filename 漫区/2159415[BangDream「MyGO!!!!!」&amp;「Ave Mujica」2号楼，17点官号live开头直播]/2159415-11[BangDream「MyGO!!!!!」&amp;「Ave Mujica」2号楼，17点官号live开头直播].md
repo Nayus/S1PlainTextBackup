@@ -12760,3 +12760,13 @@ GLgzX0JbUAAJ19l.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">怎么还有自残
 
+
+*****
+
+####  creaiii  
+##### 15937#       发表于 2024-4-23 01:21
+
+独角兽出走，会不会和老钟有关。武士道都倒贴B站成那样了，B站还是不肯买下MYGO，可能就是因为按这边的标准，浓度还是太高了。于是武士道为了mujica能更好的恰到这边的饭（mujica篇浓度可能更高），就找独角兽修改剧本稀释浓度。独角兽不愿意，于是便切割了
+
+因为改修了剧本，所以mujica篇才拖到明年1月。或许如果没在这边爆红，mujica篇4月就上了也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

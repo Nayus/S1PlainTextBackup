@@ -7716,3 +7716,11 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 617#       发表于 2024-4-23 01:19
+
+完全无法搞懂福田为什么就是不愿意道歉的这件事本来很好解决的呀
+

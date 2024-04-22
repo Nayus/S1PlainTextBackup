@@ -3143,3 +3143,11 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Farlight  
+##### 204#       发表于 2024-4-22 10:43
+
+有没有gal环节？
+

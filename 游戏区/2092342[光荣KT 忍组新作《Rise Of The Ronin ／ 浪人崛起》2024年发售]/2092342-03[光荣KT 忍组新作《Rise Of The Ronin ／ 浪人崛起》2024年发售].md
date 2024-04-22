@@ -1506,3 +1506,26 @@ pro快出了现在买有点亏啊</blockquote>
 
 另外银币已经1000多了，完全没地方用。进暗夜后根本不缺技能点，银币应该拿来换什么？来自: iPhone客户端
 
+
+*****
+
+####  黑修士  
+##### 3116#       发表于 2024-4-22 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64672564&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-21 23:30</a>
+
+这加成也太少了，有点对不起四件套装效果了。</blockquote>
+四维除了面板补正，自身对应的能力提升也会增长
+
+不过就算我把技能堆到了105，精力攻击力也只有700
+
+即使放弃高幸运，把技能堆到110左右，也没有质变
+
+<img src="https://img.saraba1st.com/forum/202404/22/143543hvy4zd8vyd6whvd6.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (323.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 14:35 上传
+

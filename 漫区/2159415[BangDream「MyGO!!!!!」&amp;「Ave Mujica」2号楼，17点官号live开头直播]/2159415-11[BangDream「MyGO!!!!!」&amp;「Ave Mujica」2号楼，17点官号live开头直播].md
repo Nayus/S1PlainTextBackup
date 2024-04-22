@@ -12701,3 +12701,11 @@ GLgzX0JbUAAJ19l.jpg
 
 之前滑坡也是担心会改剧本，鸡动画既然已经做完了那基本就没得动了，wsd又是个抠比。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15930#       发表于 2024-4-22 22:40
+
+也有已经改完了人才走的可能性，不过考虑到cv对剧情的评价，就算改了应该也是往和谐方向改的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

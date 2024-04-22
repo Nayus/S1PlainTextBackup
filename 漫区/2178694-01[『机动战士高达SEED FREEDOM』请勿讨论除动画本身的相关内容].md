@@ -7336,3 +7336,59 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 2024-4-22 11:12 上传
 
+
+*****
+
+####  ALUD.  
+##### 586#       发表于 2024-4-22 11:33
+
+笑死，前面6周成绩是0.9亿~1.2亿日元，观众6~7万左右，稳定得很。这周直接6000万日元4万观众跳水<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/22/113233a8s8b6kgpy688s8y.jpg" referrerpolicy="no-referrer">
+
+<strong>2a9d1165403373760ef8a4e3a1dbcc81.JPG</strong> (131.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/113234gflhdfugx2vfxddx.jpg" referrerpolicy="no-referrer">
+
+<strong>4a3fd5a7d20f05a44c1ac0f94a06d68a.JPG</strong> (179.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/113236x066q566y62q30w7.jpg" referrerpolicy="no-referrer">
+
+<strong>18f45e2bf5d26714b31338b7937dfc77.JPG</strong> (237.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/113236fuzhhub47tmh4m1b.jpg" referrerpolicy="no-referrer">
+
+<strong>d4b05ec13097808b7debcf63feab04cb.JPG</strong> (446.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/113236fffo1nfezjezppss.jpg" referrerpolicy="no-referrer">
+
+<strong>d1dc6ce4f4747494d538780d5cfbccd3.JPG</strong> (188.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/113235ivavnjpf5hc8n7cc.jpg" referrerpolicy="no-referrer">
+
+<strong>8a6e71cd68df7853dab33706a7b6e2d7.JPG</strong> (398.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 11:32 上传
+

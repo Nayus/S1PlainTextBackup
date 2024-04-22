@@ -865,3 +865,14 @@ Thank you for your years of support and for understanding our decision.
 逆转4里的指纹吹气怎么解决？</blockquote>
 给delta麦克风权限。
 
+
+*****
+
+####  sakuranosibe  
+##### 74#       发表于 2024-4-22 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651735&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-19 17:07</a>
+
+2024年问个弱智问题，你们咋解决国区锁问题的。</blockquote>
+我的账号是日区的，也有反过来的烦恼，有些只有国区的app就不能用了，比如B站，直到去年才上的日区
+

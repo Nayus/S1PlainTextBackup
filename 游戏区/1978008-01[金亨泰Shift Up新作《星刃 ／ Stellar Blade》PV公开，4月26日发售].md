@@ -329,3 +329,13 @@ I can say it's one of the most polished AAA I have played in recent years
 
 金亨泰不会真学尼尔吧，一周目伊芙二周目迅驰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 761#       发表于 2024-4-22 11:30
+
+<blockquote>clover293 发表于 2024-4-22 11:05
+金亨泰不会真学尼尔吧，一周目伊芙二周目迅驰</blockquote>
+三个结局
+

@@ -86,3 +86,15 @@ ok，这个可以用，谢谢了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  feliznavidad  
+##### 1508#       发表于 2024-4-22 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668601&amp;ptid=1220112" target="_blank">被雨困住的城市 发表于 2024-4-21 14:26</a>
+官方版是变这样了，因为网页端改成40帖一页了，有个魔改版，记得楼里有人发过魔改版，不知道资源有没有失 ...</blockquote>
+请问下为啥这个魔改版一打开就整个页面自动变黄(就好像是自动开启护眼模式了一样) ，也不是主题色的问题，关掉又恢复正常了
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -3163,3 +3163,14 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 —— 来自 vivo V2241A, Android 14上的 S1N ...</blockquote>
 不用怀疑，肯定的，2年后公布完全加强版，含故事DLC再给你加个新女主角。
 
+
+*****
+
+####  抽烟的猴  
+##### 206#       发表于 2024-4-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64675126&amp;ptid=2140224" target="_blank">Farlight 发表于 2024-4-22 10:43</a>
+
+有没有gal环节？</blockquote>
+当然有，系统已经说了复刻p5了
+

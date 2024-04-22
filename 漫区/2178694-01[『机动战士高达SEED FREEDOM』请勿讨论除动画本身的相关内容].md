@@ -7516,3 +7516,24 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 我咋记得福田说的是种的时候本想在结局让阿斯兰死在亚金·杜维的，是我记错了还是他两个人都说过 ...</blockquote>
 实际上制作中还有个基拉抱着阿斯兰坠入燃烧的地球的初版<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以，没错，他们的确每个人都考虑弄死过
 
+
+*****
+
+####  七七見奈波  
+##### 599#       发表于 2024-4-22 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680412&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-22 18:01</a>
+
+福田在种命给个捡来的基拉垫了一个最强亲儿子的阿斯兰跟一个新主？角的鸟，他真的讨厌基拉了 ...</blockquote>
+虽然那时我觉得他的本意是想强调鸡狼鸟都是主角，但是在绝对的“主人公”这一层认知上狼既比不上鸡这个堪称系列主角，也比不上鸟这个即使不被当成种命主角好好塑造但也曾经一度让观众当成新主角期待过的角色，总被当成主角之后的二号人物，所以他有心偏重一下吧，但是最近他这些B话一出来我也不知道他当初到底是不是我以为的那个意思了
+
+*****
+
+####  七七見奈波  
+##### 600#       发表于 2024-4-22 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680604&amp;ptid=2178694" target="_blank">Promeus 发表于 2024-4-22 18:17</a>
+
+实际上制作中还有个基拉抱着阿斯兰坠入燃烧的地球的初版所以，没错，他们的确每个人都考虑弄死过 ...</blockquote>
+BE~~~YOND THE TI~~~~ME<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+

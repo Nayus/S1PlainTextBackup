@@ -321,3 +321,11 @@ I can say it's one of the most polished AAA I have played in recent years
 —— 来自 vivo V2329A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不是一个类型的，不好对比。我个人感觉在音乐和演出规格方面肯定是剑星更强。玩法侧重点不太一样，看个人喜好
 
+
+*****
+
+####  clover293  
+##### 760#       发表于 2024-4-22 11:05
+
+金亨泰不会真学尼尔吧，一周目伊芙二周目迅驰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

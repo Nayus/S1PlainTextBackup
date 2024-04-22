@@ -7430,3 +7430,15 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 50亿没有了
 
+
+*****
+
+####  super_uni  
+##### 591#       发表于 2024-4-22 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669264&amp;ptid=2178694" target="_blank">ALUD. 发表于 2024-4-21 16:00</a>
+那就还是鸟含金量不够咯。另外鸟那句没有出场机会是剧场版的台词，不就是说我擦队长太强了 ...</blockquote>
+机体空中大破后接荡秋千撤退，基神也来个试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

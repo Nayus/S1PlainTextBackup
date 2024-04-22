@@ -12453,3 +12453,30 @@ P的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 15906#       发表于 2024-4-22 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我看到那个“皮神被和谐了“笑出了声”
+
+*****
+
+####  爱丁堡official  
+##### 15907#       发表于 2024-4-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64677094&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-4-22 13:25</a>
+P的吧</blockquote>
+<img src="https://p.sda1.dev/17/a7fba99c583ddbcf8458d65e5691dfc0/IMG_CMP_142405189.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 15908#       发表于 2024-4-22 13:54
+
+这也是一种mygo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

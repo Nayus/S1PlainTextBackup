@@ -12349,3 +12349,18 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 —— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  ydsbbt  
+##### 15895#       发表于 2024-4-22 13:16
+
+29号设定集就发售了，要是正文一字不提绫奈那就真的历史重演了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 15896#       发表于 2024-4-22 13:18
+
+真跑路啦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

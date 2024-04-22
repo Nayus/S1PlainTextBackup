@@ -98,3 +98,13 @@ ok，这个可以用，谢谢了
 
 —— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  被雨困住的城市  
+##### 1509#       发表于 2024-4-22 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64675700&amp;ptid=1220112" target="_blank">feliznavidad 发表于 2024-4-22 11:27</a>
+请问下为啥这个魔改版一打开就整个页面自动变黄(就好像是自动开启护眼模式了一样) ，也不是主题色的问题 ...</blockquote>
+颜色好像跟官方版就是有点区别，可能算bug
+

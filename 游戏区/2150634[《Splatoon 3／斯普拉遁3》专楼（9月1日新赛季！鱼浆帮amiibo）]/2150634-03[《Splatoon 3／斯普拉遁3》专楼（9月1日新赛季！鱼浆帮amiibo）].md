@@ -12292,3 +12292,31 @@ syl，兔子三色全在内战，破案了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4203#       发表于 2024-4-23 00:20
+
+ 本帖最后由 罗克萨斯 于 2024-4-23 00:23 编辑 
+
+重刷和中刷竟然在一个池子里吗（才想起来是和精英枪对位）？这场被对面俩刷子暴打。看本方的中刷配装，不像是瞎玩，还是秩序篇套装，只能是这场发挥不好给我碰上了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/23/000933w6gubbxuu6u6l1kr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-23-00-02-08-455_com.nintendo.znca-edit.jpg</strong> (521.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 00:09 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/000943iuks0g0vubphczvr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-23-00-02-58-895_com.nintendo.znca-edit.jpg</strong> (275.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 00:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7547,3 +7547,13 @@ BE~~~YOND THE TI~~~~ME<img src="https://static.saraba1st.com/image/smiley/face20
 虽然那时我觉得他的本意是想强调鸡狼鸟都是主角，但是在绝对的“主人公”这一层认知上狼既比不上鸡这个堪 ...</blockquote>
 其实福田很有可能就是在享受身为监督说一不二的感觉罢了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">他不爱哪个角色，只爱自己身为创世神的权能
 
+
+*****
+
+####  死难者23er  
+##### 602#       发表于 2024-4-22 20:02
+
+<blockquote>Promeus 发表于 2024-4-22 19:03
+其实福田很有可能就是在享受身为监督说一不二的感觉罢了他不爱哪个角色，只爱自己身为创世神的权 ...</blockquote>
+感觉他应该是真的喜欢金毛，还有拉克丝的
+

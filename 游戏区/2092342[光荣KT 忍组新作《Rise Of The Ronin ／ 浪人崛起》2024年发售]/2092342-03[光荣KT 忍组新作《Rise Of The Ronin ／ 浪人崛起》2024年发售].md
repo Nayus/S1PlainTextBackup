@@ -1583,3 +1583,11 @@ pro快出了现在买有点亏啊</blockquote>
 
 2024-4-22 18:57 上传
 
+
+*****
+
+####  nagitoY  
+##### 3122#       发表于 2024-4-22 22:07
+
+武器附魔后用紫电，再切回原武器好像就会把属性吞掉<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+

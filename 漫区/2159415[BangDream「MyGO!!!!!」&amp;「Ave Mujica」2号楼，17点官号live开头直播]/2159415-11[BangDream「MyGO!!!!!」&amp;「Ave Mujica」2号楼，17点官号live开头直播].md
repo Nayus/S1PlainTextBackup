@@ -12691,3 +12691,13 @@ GLgzX0JbUAAJ19l.jpg
 
 还是躁一点的编曲比较好
 
+
+*****
+
+####  PDQ4  
+##### 15929#       发表于 2024-4-22 22:13
+
+独角兽真走了也是意料之中，都跟你邦切成那样了。
+
+之前滑坡也是担心会改剧本，鸡动画既然已经做完了那基本就没得动了，wsd又是个抠比。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

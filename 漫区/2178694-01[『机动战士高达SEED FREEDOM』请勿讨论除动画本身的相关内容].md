@@ -7292,3 +7292,15 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 就是这么干的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉野在种自上映前的访谈其实挺重要的，把种到种命时期很多问题讲清楚了，只不过传播力度确实不大
 
+
+*****
+
+####  shiko  
+##### 582#       发表于 2024-4-22 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64670011&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-4-21 17:49</a>
+鸟在种命本质是有点像是描绘了十集左右放弃了角色弧光塑造的卡缪....</blockquote>
+问题是前十多集也没什么描绘，基本上都是狼的主角戏份，大主线奥布政变和重新开战更是几乎和鸟无关
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

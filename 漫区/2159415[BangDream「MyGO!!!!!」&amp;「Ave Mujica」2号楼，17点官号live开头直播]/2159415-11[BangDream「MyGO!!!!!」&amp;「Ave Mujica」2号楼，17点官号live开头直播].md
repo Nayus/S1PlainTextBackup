@@ -12492,3 +12492,17 @@ P的吧</blockquote>
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15910#       发表于 2024-4-22 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64677460&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-4-22 13:57</a>
+应该是let my people go然后故意丈育吧
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 ...</blockquote>
+是这样
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

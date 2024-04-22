@@ -1748,3 +1748,11 @@ PU角色暫時還沒有新增強化任務
 省C呆羁绊优先度的话，先是徐福，然后是琼安，梅林是跟满羁绊小玉抢位置的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千叶铁矢  
+##### 12156#       发表于 2024-4-22 11:57
+
+女梅林也就锁同名时候用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

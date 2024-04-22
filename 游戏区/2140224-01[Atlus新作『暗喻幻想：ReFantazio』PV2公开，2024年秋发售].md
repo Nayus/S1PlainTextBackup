@@ -3329,3 +3329,25 @@ sega官方视频出了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ultraseven  
+##### 220#       发表于 2024-4-23 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685144&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-4-23 07:18</a>
+
+实体豪华版送的都是那么点破东西，还是数字版走起吧</blockquote>
+美版挺不错啊
+
+<img src="https://pbs.twimg.com/media/GLzYn5cbIAAKgbA?format=jpg&amp;name=4096x4096" height="450" id="aimg_RunA5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+*****
+
+####  陈词与芍药  
+##### 221#       发表于 2024-4-23 07:28
+
+什么都好，就是这个故事……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

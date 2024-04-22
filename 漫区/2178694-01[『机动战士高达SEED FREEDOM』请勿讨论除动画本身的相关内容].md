@@ -7442,3 +7442,15 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 — from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  ALUD.  
+##### 592#       发表于 2024-4-22 14:00
+
+<blockquote>super_uni 发表于 2024-4-22 13:52
+机体空中大破后接荡秋千撤退，基神也来个试试
+
+— from Xiaomi 23049RAD8C, Android 14 of S1 Nex ...</blockquote>
+和我说的有什么关系吗
+

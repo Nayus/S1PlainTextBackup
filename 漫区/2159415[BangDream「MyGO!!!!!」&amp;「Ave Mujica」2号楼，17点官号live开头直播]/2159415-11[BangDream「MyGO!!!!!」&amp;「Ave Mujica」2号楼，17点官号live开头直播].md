@@ -12480,3 +12480,15 @@ P的吧</blockquote>
 
 这也是一种mygo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 15909#       发表于 2024-4-22 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64677094&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-4-22 13:25</a>
+P的吧</blockquote>
+应该是let my people go然后故意丈育吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

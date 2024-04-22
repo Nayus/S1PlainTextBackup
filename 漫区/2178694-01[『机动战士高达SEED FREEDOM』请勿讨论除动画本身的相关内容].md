@@ -7557,3 +7557,28 @@ BE~~~YOND THE TI~~~~ME<img src="https://static.saraba1st.com/image/smiley/face20
 其实福田很有可能就是在享受身为监督说一不二的感觉罢了他不爱哪个角色，只爱自己身为创世神的权 ...</blockquote>
 感觉他应该是真的喜欢金毛，还有拉克丝的
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 603#       发表于 2024-4-22 20:18
+
+ 本帖最后由 伊露伊道格拉斯 于 2024-4-22 20:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669155&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-4-21 15:46</a>
+
+PK十次也会有人说再比第十一次看看。
+
+IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不好卖是明摆 ...</blockquote>
+正义系那飞机……相较于自由和命运的大翅膀是真的很没竞争力<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+我也觉得圣盾的变形机制有意思得多，打戏的设计也比正义的飞机多样。（你小飞机分离设计得再花哨，充其量也就是个高级回旋镖，和龙骑兵没法比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+而且变形+小飞机的设计完全是可以结合的嘛，相比哪些同人机设，这新无正的设计是真保守<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plok201  
+##### 604#       发表于 2024-4-22 20:21
+
+按种系胶的销量来看，正义小飞机应该加入大光翼和复合武装变形功能
+

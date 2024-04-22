@@ -1591,3 +1591,14 @@ pro快出了现在买有点亏啊</blockquote>
 
 武器附魔后用紫电，再切回原武器好像就会把属性吞掉<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无攻不受鹿  
+##### 3123#       发表于 2024-4-22 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64672744&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-21 23:56</a>
+
+满级后100级极品装备去哪里刷？武器反应攻击力里的四维应该如何取舍？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别刷了吧，按仁王尿性出DLC搞不好让你重刷一遍
+

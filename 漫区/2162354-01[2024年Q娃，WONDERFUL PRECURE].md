@@ -715,3 +715,14 @@
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  maoyou  
+##### 1363#       发表于 2024-4-23 05:44
+
+<img src="https://p.sda1.dev/17/381815e7614a41c0ad151d1162ec0c8c/IMG_CMP_175859178.jpeg" referrerpolicy="no-referrer">
+处理食材还是得专业的人来，，
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

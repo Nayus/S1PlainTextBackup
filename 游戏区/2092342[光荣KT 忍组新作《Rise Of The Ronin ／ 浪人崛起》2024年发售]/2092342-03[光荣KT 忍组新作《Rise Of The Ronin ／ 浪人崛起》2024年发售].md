@@ -1545,3 +1545,13 @@ pro快出了现在买有点亏啊</blockquote>
 
 我问下剧情中主线任务选和倒幕派一起完成或者佐幕派一起完成有什么区别吗，是不是就加两派的姻缘数值？
 
+
+*****
+
+####  duraa  
+##### 3119#       发表于 2024-4-22 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679089&amp;ptid=2092342" target="_blank">Kyo.C 发表于 2024-4-22 16:11</a>
+我问下剧情中主线任务选和倒幕派一起完成或者佐幕派一起完成有什么区别吗，是不是就加两派的姻缘数值？ ...</blockquote>
+印象中冲田如果三章初不跟着佐幕走会接不到因缘任务导致死亡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

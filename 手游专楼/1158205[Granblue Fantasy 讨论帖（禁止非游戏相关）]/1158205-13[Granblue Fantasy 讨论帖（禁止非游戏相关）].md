@@ -61,3 +61,11 @@ U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗
 
 谢谢，那选做天司另外的用到再说了
 
+
+*****
+
+####  Geyorkias  
+##### 17890#       发表于 2024-4-22 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这肥朱还真的是雌大鬼啊
+

@@ -12412,3 +12412,44 @@ Oh no
 P的吧</blockquote>
 这看不出来p的痕迹，不过原文是指以色列人要求释放人质，跟mygo除了都有mygo四个字母以外没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  septer  
+##### 15902#       发表于 2024-4-22 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64676781&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-22 12:58</a>
+
+【【MyGO 蓝光BD对比】画面制作出错？原案脚本出走？小修小改但穿帮镜头没修？-哔哩哔哩】 https://b23.tv/ ...</blockquote>
+居然会有色彩范围错误负优化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  木莲满墙  
+##### 15903#       发表于 2024-4-22 13:38
+
+这个倒是早就有的事，不用太自己吓自己，不知道n站版本现在是什么样的。独角兽现在态度还是很让人担心的，只能祝愿。
+
+<img src="https://img.saraba1st.com/forum/202404/22/133735imvixzixmmqxraix.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-22-13-31-52-142_com.android.chrome-edit.jpg</strong> (108.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 13:37 上传
+
+*****
+
+####  滑稽Captain  
+##### 15904#       发表于 2024-4-22 13:40
+
+原来是画面版本问题嘛
+
+
+*****
+
+####  友情的结晶  
+##### 15905#       发表于 2024-4-22 13:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

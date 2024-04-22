@@ -1555,3 +1555,11 @@ pro快出了现在买有点亏啊</blockquote>
 我问下剧情中主线任务选和倒幕派一起完成或者佐幕派一起完成有什么区别吗，是不是就加两派的姻缘数值？ ...</blockquote>
 印象中冲田如果三章初不跟着佐幕走会接不到因缘任务导致死亡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 3120#       发表于 2024-4-22 17:25
+
+暗夜的空手关真是难顶，没有闪掌没有回精效果是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -976,3 +976,14 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 appstore不是可以单独登录嘛，在那想换哪个号就换哪个号</blockquote>
 对啊，但是我挺长时间用没电了关机了，然后我wifi连不上的时候看iCloud显示的美区那个号，问题我登录都没登陆过，然后我就没敢碰
 
+
+*****
+
+####  alucardcz  
+##### 84#       发表于 2024-4-22 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679856&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-22 17:13</a>
+
+问题我就是单独登录的，最近切来切去结果wifi突然连不上了（搜的上信号，连不上网），打电话给苹 ...</blockquote>
+我根本看不懂你在说什么 切个账号还能让你wifi坏掉  这话说出来你自己信吗？
+

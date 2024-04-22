@@ -1756,3 +1756,11 @@ PU角色暫時還沒有新增強化任務
 
 女梅林也就锁同名时候用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 12157#       发表于 2024-4-22 17:27
+
+女梅没多少出场机会啊，偶尔拿出来用下或xp抽卡1宝都足够了，没一定要抽的必要性
+

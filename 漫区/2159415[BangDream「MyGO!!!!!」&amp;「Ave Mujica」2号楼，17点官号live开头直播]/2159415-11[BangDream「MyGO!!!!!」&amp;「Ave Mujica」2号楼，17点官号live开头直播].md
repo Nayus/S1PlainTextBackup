@@ -12278,3 +12278,30 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  pipaopo  
+##### 15888#       发表于 2024-4-22 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64673004&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-4-22 00:41</a>
+[LP-Raws&amp;离谱Sub] BanG Dream! It's MyGO!!!!! [01-13 Fin][1080p][简繁日外挂][三次校对字幕]【14.4GB】
+
+ ...</blockquote>
+不知道这个有没有修复亮度问题
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pipaopo  
+##### 15889#       发表于 2024-4-22 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64673004&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-4-22 00:41</a>
+[LP-Raws&amp;离谱Sub] BanG Dream! It's MyGO!!!!! [01-13 Fin][1080p][简繁日外挂][三次校对字幕]【14.4GB】
+
+ ...</blockquote>
+不知道这个有没有修复亮度问题
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

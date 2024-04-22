@@ -12320,3 +12320,17 @@ syl，兔子三色全在内战，破案了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4204#       发表于 2024-4-23 00:47
+
+Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，但他玩的是加特林啊），太可怕了
+
+【【Splatoon3熟肉】世锦赛冠军Jackpot的独家采访-哔哩哔哩】 https://b23.tv/YeWCqI7
+
+这小子的绿双水平可能和kotaji差不多，算北美最强玩家了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

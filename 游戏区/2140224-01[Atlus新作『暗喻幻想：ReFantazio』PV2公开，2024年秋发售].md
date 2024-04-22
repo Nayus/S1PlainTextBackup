@@ -3214,3 +3214,20 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 
 查看全部评分
 
+
+*****
+
+####  Piano-Forest  
+##### 210#         楼主| 发表于 2024-4-23 06:29
+
+新PV「The King's Trial」：[https://youtu.be/0MzP47nijsU](https://youtu.be/0MzP47nijsU)
+
+*****
+
+####  猫沢  
+##### 211#       发表于 2024-4-23 06:31
+
+预购开了可以冲了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

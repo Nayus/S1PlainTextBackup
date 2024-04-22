@@ -1117,3 +1117,16 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 ppsspp有希望吗 想重玩机战<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断片集  
+##### 97#       发表于 2024-4-23 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64683737&amp;ptid=2180365" target="_blank">hav666 发表于 2024-4-22 23:26</a>
+
+ppsspp有希望吗 想重玩机战</blockquote>
+[https://www.ppsspp.org/news/apple-announcement-comment/](https://www.ppsspp.org/news/apple-announcement-comment/)
+
+按官方说法如果没意外的话今年就能出
+

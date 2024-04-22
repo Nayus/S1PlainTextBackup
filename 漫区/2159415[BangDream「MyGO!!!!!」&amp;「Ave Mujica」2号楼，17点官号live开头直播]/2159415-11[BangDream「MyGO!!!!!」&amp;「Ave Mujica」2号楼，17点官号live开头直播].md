@@ -12736,3 +12736,11 @@ GLgzX0JbUAAJ19l.jpg
 
 是引导邦多利great again的光吗（  <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 15934#       发表于 2024-4-23 00:08
+
+暗示了mujica其实是个温暖人心的故事
+

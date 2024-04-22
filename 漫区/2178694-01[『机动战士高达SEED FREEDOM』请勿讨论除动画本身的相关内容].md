@@ -7621,3 +7621,29 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 圣盾的遗体不是出场了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">啊，对，放了几年未清走的遗体
 
+
+*****
+
+####  晴岚  
+##### 608#       发表于 2024-4-22 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682370&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-22 21:00</a>
+
+啊，对，放了几年未清走的遗体</blockquote>
+圣盾的设计太完美了.jpg 就算修好了没人能驾驭。当然算外传的话明明有重生继承了圣盾（
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 609#       发表于 2024-4-22 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682339&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-22 20:56</a>
+
+神盾变形真的很有特色，可惜目前的各款胶还原起来总有缺憾
+
+公开前不是有舅舅党说新无正的背包可变形神盾 ...</blockquote>
+强袭的最佳后继，是命运啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+最有特点的换装被继承，还升级成了带大翅膀的全装
+

@@ -7582,3 +7582,42 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 按种系胶的销量来看，正义小飞机应该加入大光翼和复合武装变形功能
 
+
+*****
+
+####  gundammarkⅡ  
+##### 605#       发表于 2024-4-22 20:56
+
+ 本帖最后由 gundammarkⅡ 于 2024-4-22 20:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64681857&amp;ptid=2178694" target="_blank">伊露伊道格拉斯 发表于 2024-4-22 20:18</a>
+正义系那飞机……相较于自由和命运的大翅膀是真的很没竞争力
+
+我也觉得圣盾的变形机制有意思得多， ...</blockquote>
+神盾变形真的很有特色，可惜目前的各款胶还原起来总有缺憾
+公开前不是有舅舅党说新无正的背包可变形神盾爪子麼，还蛮期待的，结果只有这<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+最后剧场版里，初期GAT五子子就神盾没有血脉继承下来
+（暴风决斗不说，强袭还有个嫣红，迅雷都能用决斗的外装来致敬，神盾完全无痕迹，连留给正义系头顶的长监视器都给改成头剑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  晴岚  
+##### 606#       发表于 2024-4-22 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682339&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-22 20:56</a>
+
+神盾变形真的很有特色，可惜目前的各款胶还原起来总有缺憾
+
+公开前不是有舅舅党说新无正的背包可变形神盾 ...</blockquote>
+圣盾的遗体不是出场了吗
+
+
+*****
+
+####  gundammarkⅡ  
+##### 607#       发表于 2024-4-22 21:00
+
+ 本帖最后由 gundammarkⅡ 于 2024-4-22 21:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682356&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-22 20:59</a>
+圣盾的遗体不是出场了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">啊，对，放了几年未清走的遗体
+

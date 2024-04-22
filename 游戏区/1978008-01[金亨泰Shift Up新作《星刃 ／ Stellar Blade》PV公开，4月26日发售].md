@@ -309,3 +309,15 @@ I can say it's one of the most polished AAA I have played in recent years
 —— 来自 Xiaomi 2203121C, Android 14上的 S1Ne ...</blockquote>
 对日版是D级可以用点卡
 
+
+*****
+
+####  ky7913  
+##### 759#       发表于 2024-4-22 08:28
+
+<blockquote>saber6146 发表于 2024-4-22 08:06
+有匹诺曹级别就是合格，再强就是惊喜
+
+—— 来自 vivo V2329A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是一个类型的，不好对比。我个人感觉在音乐和演出规格方面肯定是剑星更强。玩法侧重点不太一样，看个人喜好
+

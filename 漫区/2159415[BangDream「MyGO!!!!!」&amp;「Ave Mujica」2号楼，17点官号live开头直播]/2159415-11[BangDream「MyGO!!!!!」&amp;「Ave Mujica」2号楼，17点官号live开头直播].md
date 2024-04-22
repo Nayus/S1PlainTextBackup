@@ -12572,3 +12572,11 @@ P的吧</blockquote>
 
 —— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫吹兰  
+##### 15917#         楼主| 发表于 2024-4-22 17:10
+
+上一部独角兽拍了一半走人的是轻拍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

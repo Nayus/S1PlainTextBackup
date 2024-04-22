@@ -950,3 +950,18 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 这回复我看的一楞一楞。。到底是不是ios
 
+
+*****
+
+####  afer  
+##### 82#       发表于 2024-4-22 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679723&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 17:01</a>
+
+appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
+
+而且去外服下个软件切回来后可以直接更新 只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题我就是单独登录的，最近切来切去结果wifi突然连不上了（搜的上信号，连不上网），打电话给苹果客服丫让我重置网络，我说我都试过了，结果丫说你把苹果整个恢复掉就好了，然后我恢复了就真好了
+
+我自己就怀疑是切号导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真这东西我不太拿来玩游戏，前一阵子是为了玩恶魔城才鼓捣一下
+

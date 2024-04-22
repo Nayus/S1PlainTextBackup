@@ -12524,3 +12524,11 @@ P的吧</blockquote>
 
 什么“射の精神”同款<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 15913#       发表于 2024-4-22 15:02
+
+我记得当初动画在播那会就有人根据那个宝可梦logo分析说任天堂logo不能随便画，这里敢画说明有版权，以此推测年底的大型联动是宝可梦，结果是管人，现在看估计就是随便贴了个现实的图，bd赶紧改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

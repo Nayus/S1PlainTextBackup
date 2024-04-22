@@ -12717,3 +12717,14 @@ GLgzX0JbUAAJ19l.jpg
 
 那种事情不要啊，没有独角兽老师的话哇达西————
 
+
+*****
+
+####  御幸一也  
+##### 15932#       发表于 2024-4-22 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64683323&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-22 22:40</a>
+
+也有已经改完了人才走的可能性，不过考虑到cv对剧情的评价，就算改了应该也是往和谐方向改的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是只說了mujica是光，誰也沒說雞狗和解了
+

@@ -1109,3 +1109,11 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 这模拟器有电脑版的吗
 
+
+*****
+
+####  hav666  
+##### 96#       发表于 2024-4-22 23:26
+
+ppsspp有希望吗 想重玩机战<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

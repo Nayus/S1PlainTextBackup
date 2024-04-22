@@ -347,3 +347,11 @@ I can say it's one of the most polished AAA I have played in recent years
 
 皮诺曹一开始的demo手感比这游戏捞b多了，后面正式版，我也不太好说，反正就是角色性能强化了好多，一周目一路碾压，基本算是近年玩过的最简单的魂游，这游戏感觉机体性能升上去大概也不难，一周目打算全程裸奔玩了
 
+
+*****
+
+####  ky7913  
+##### 763#       发表于 2024-4-22 13:06
+
+【【4K】PS5｜《剑星》战斗演示-「爆发技能」官方预告-哔哩哔哩】 [https://b23.tv/yvOFbrw](https://b23.tv/yvOFbrw)
+

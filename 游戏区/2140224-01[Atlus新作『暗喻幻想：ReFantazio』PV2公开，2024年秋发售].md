@@ -3182,3 +3182,15 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 
 还有半小时直面会，难熬
 
+
+*****
+
+####  Piano-Forest  
+##### 208#         楼主| 发表于 2024-4-23 06:02
+
+现已开始
+
+简中字幕：[https://live.bilibili.com/2293539](https://live.bilibili.com/2293539) 
+
+繁中字幕：[https://www.youtube.com/live/UQ23HzUkgng](https://www.youtube.com/live/UQ23HzUkgng)
+

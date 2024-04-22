@@ -12562,3 +12562,13 @@ P的吧</blockquote>
 
 2024-4-22 15:28 上传
 
+
+*****
+
+####  傘木希美  
+##### 15916#       发表于 2024-4-22 16:43
+
+说来，bd里除了各家的特典，就是/收纳盒/封入的小册子/贴纸/音乐啥的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

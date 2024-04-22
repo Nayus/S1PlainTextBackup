@@ -275,3 +275,13 @@ I can say it's one of the most polished AAA I have played in recent years
 
 考虑了还是买了，应该还是稳得，有难度选项也不会卡关
 
+
+*****
+
+####  saber6146  
+##### 756#       发表于 2024-4-22 08:06
+
+有匹诺曹级别就是合格，再强就是惊喜
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

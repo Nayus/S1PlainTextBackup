@@ -1052,3 +1052,41 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 原来在更新列表里更新就可以绕过去吗。app打开提示更新都是直接跳到页面，还没试过这么更新 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">切过账号第1次更新会要求你验证密码还有手机短信等安全措施  之后就永远一键更新了
 
+
+*****
+
+####  afer  
+##### 91#       发表于 2024-4-22 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680280&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 17:49</a>
+
+切过账号第1次更新会要求你验证密码还有手机短信等安全措施  之后就永远一键更新了 ...</blockquote>
+所以切完再点app让你提示输入密码输一次就行了？
+
+我要是用苹果这套东西用的很熟我也不问2024年有啥好办法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 92#       发表于 2024-4-22 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64681484&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-22 19:46</a>
+
+所以切完再点app让你提示输入密码输一次就行了？
+
+我要是用苹果这套东西用的很熟我也不问2024年有啥好办法 ...</blockquote>
+点更新不能点app 
+
+
+*****
+
+####  afer  
+##### 93#       发表于 2024-4-22 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64681503&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 19:48</a>
+
+点更新不能点app</blockquote>
+我那个是打不开，打开提示输账号，是不是每次还是得从AppStore换了账号才能开。
+
+我就是胆小，怕直接输密码iCloud登上去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

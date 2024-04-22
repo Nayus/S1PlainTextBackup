@@ -355,3 +355,13 @@ I can say it's one of the most polished AAA I have played in recent years
 
 【【4K】PS5｜《剑星》战斗演示-「爆发技能」官方预告-哔哩哔哩】 [https://b23.tv/yvOFbrw](https://b23.tv/yvOFbrw)
 
+
+*****
+
+####  禾芙绿豆沙  
+##### 764#       发表于 2024-4-22 13:32
+
+<blockquote>clover293 发表于 2024-4-22 11:05
+金亨泰不会真学尼尔吧，一周目伊芙二周目迅驰</blockquote>
+那应该二周目用那个男的才对！
+

@@ -12364,3 +12364,51 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 真跑路啦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0路人辛0  
+##### 15897#       发表于 2024-4-22 13:25
+
+<blockquote>爱丁堡official 发表于 2024-4-22 13:03
+乐
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
+P的吧
+
+*****
+
+####  ydsbbt  
+##### 15898#       发表于 2024-4-22 13:25
+
+灯妈原来叫ひかり，母女都是光吗。睦妈艺名里带个森，感觉睦全家好像和植物有关。
+
+*****
+
+####  SakuraのOrigami  
+##### 15899#       发表于 2024-4-22 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64676781&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-22 12:58</a>
+【【MyGO 蓝光BD对比】画面制作出错？原案脚本出走？小修小改但穿帮镜头没修？-哔哩哔哩】 https://b23.tv/ ...</blockquote>
+Oh no
+有种不好的预感<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  septer  
+##### 15900#       发表于 2024-4-22 13:30
+
+怎么又开始滑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 15901#       发表于 2024-4-22 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64677094&amp;ptid=2159415" target="_blank">0路人辛0 发表于 2024-4-22 13:25</a>
+P的吧</blockquote>
+这看不出来p的痕迹，不过原文是指以色列人要求释放人质，跟mygo除了都有mygo四个字母以外没有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

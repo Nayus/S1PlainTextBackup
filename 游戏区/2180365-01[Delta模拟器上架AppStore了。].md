@@ -1090,3 +1090,14 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 我就是胆小，怕直接输密码iCloud登上去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夏之岚  
+##### 94#       发表于 2024-4-22 20:57
+
+把Rog上玩了几个小时的DQ4存档导入进入能玩，不错。
+但是试了一下汉化的776，对话正常但是菜单显示有问题。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

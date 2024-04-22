@@ -3231,3 +3231,15 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  鳴上悠  
+##### 212#       发表于 2024-4-23 06:42
+
+メタファー：リファンタジオ 「ペルソナ４ ザ・ゴールデン」八十神高校制服&amp;バトルBGM＆バトルジングル セット
+
+啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

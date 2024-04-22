@@ -1563,3 +1563,23 @@ pro快出了现在买有点亏啊</blockquote>
 
 暗夜的空手关真是难顶，没有闪掌没有回精效果是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  isa2456  
+##### 3121#       发表于 2024-4-22 19:03
+
+草，本来是想为了cos妖梦和帅太刀玩的，没想到真的能捏妖梦，满分了已经<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+清了一下午马桶，你说乏味吧确实乏味，但是它的这些东西全是建立在让你战斗爽的基础上的，刚好也做的很紧凑，也不是不能接受，虽说看到横滨外还有一大片荒郊野岭...
+
+战斗比卧龙好多了，但还是不如仁王啊，石火和闪刃两个要花点时间理解，石火收益高以至于还是跟卧龙那样变成双方攻防互换打，闪刃还不如做回残心呢。
+
+<img src="https://img.saraba1st.com/forum/202404/22/185755wrpmkxpwounufd6w.jpg" referrerpolicy="no-referrer">
+
+<strong>GLwgKI-aoAAbkLq.jpg</strong> (418.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 18:57 上传
+

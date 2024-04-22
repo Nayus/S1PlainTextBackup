@@ -3717,3 +3717,14 @@ IMG_3335.jpeg
 
 <img src="https://img.saraba1st.com/forum/202404/22/145037hm7ugqfbbzjmqmvm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hlazd  
+##### 3305#       发表于 2024-4-22 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64678106&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-22 14:50</a>
+
+小蓝的人气好像不太行</blockquote>
+这种类型的角色在现在不吃香啊，你看PV播放量也是蓝很不行
+

@@ -12506,3 +12506,13 @@ P的吧</blockquote>
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  蒜灵  
+##### 15911#       发表于 2024-4-22 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64677253&amp;ptid=2159415" target="_blank">木莲满墙 发表于 2024-4-22 13:38</a>
+这个倒是早就有的事，不用太自己吓自己，不知道n站版本现在是什么样的。独角兽现在态度还是很让人担心的， ...</blockquote>
+那就是草台了，不过这还是不能解释独角兽为啥不发邦相关的内容了，神秘
+

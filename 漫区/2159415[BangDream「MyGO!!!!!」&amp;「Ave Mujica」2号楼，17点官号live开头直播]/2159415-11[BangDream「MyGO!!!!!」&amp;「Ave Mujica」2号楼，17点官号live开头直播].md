@@ -12317,3 +12317,35 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">每天几个小时通勤还要打扫大平层卫生和照顾小女友起居，确实费劲
 
+
+*****
+
+####  rikaren  
+##### 15891#       发表于 2024-4-22 12:58
+
+【【MyGO 蓝光BD对比】画面制作出错？原案脚本出走？小修小改但穿帮镜头没修？-哔哩哔哩】 https://b23.tv/DG1jgPD
+
+*****
+
+####  rikaren  
+##### 15892#       发表于 2024-4-22 12:58
+
+【【MyGO 蓝光BD对比】画面制作出错？原案脚本出走？小修小改但穿帮镜头没修？-哔哩哔哩】 https://b23.tv/DG1jgPD
+
+
+*****
+
+####  rikaren  
+##### 15893#       发表于 2024-4-22 13:01
+
+我超，怎么发了两次。总之情况有点不是明朗。
+
+*****
+
+####  爱丁堡official  
+##### 15894#       发表于 2024-4-22 13:03
+
+乐<img src="https://p.sda1.dev/17/87f0bdb66277b63d94c3009293761a9b/IMG_CMP_68428795.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

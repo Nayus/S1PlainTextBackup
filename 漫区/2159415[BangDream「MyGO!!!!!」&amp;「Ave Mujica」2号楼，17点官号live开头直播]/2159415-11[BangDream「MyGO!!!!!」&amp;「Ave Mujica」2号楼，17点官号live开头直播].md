@@ -12305,3 +12305,15 @@ BD收到了，那么我该用什么设备来看这个BD呢</blockquote>
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  枫林不见  
+##### 15890#       发表于 2024-4-22 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64673015&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-4-22 00:44</a>
+姐们费力就住进了高楼
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">每天几个小时通勤还要打扫大平层卫生和照顾小女友起居，确实费劲
+

@@ -2674,3 +2674,14 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑拉了，解放进度全服BUG又来了
 
+
+*****
+
+####  赤井稻妻  
+##### 3217#       发表于 2024-4-22 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64651331&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-4-19 16:31</a>
+
+这游戏没有个好心态确实挺容易让人破防的，我玩那么久唯一一次破防，是一个经常互黑的好友落地后不管周围的 ...</blockquote>
+只崩你一个已经很不错了，跟我开黑的朋友总是不管三七二十一丢他那个破空爆，有时候兴趣点一波小怪也能看到他丢个空爆下来，还有什么怪清完了正准备继续推进，突然一个空爆把所有人赶回原处，还有什么被四个人在撤离点被牛冲脸，突然一束红光，定睛一看是空爆（集束炸弹），然后反装甲人员四散奔逃被牛一波拱穿，问就是搓都搓了，不扔可惜，而且我们明明连麦语音他却从来不提前说一声自己要扔什么
+

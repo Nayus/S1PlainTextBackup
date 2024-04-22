@@ -7497,3 +7497,22 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 你猜怎么着，种命HD化的时候他反反复复在评论音轨里对石田叨叨阿斯兰是主角、阿斯兰才是主角，石田本人、 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">福田在种命给个捡来的基拉垫了一个最强亲儿子的阿斯兰跟一个新主？角的鸟，他真的讨厌基拉了
 
+
+*****
+
+####  死难者23er  
+##### 597#       发表于 2024-4-22 18:16
+
+<blockquote>七七見奈波 发表于 2024-4-22 17:46
+我咋记得福田说的是种的时候本想在结局让阿斯兰死在亚金·杜维的，是我记错了还是他两个人都说过 ...</blockquote>
+不是说的是阿斯兰会断一条手臂
+
+*****
+
+####  Promeus  
+##### 598#       发表于 2024-4-22 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680252&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-4-22 17:46</a>
+我咋记得福田说的是种的时候本想在结局让阿斯兰死在亚金·杜维的，是我记错了还是他两个人都说过 ...</blockquote>
+实际上制作中还有个基拉抱着阿斯兰坠入燃烧的地球的初版<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以，没错，他们的确每个人都考虑弄死过
+

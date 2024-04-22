@@ -876,3 +876,11 @@ Thank you for your years of support and for understanding our decision.
 2024年问个弱智问题，你们咋解决国区锁问题的。</blockquote>
 我的账号是日区的，也有反过来的烦恼，有些只有国区的app就不能用了，比如B站，直到去年才上的日区
 
+
+*****
+
+####  Ayre不发糖哟  
+##### 75#       发表于 2024-4-22 14:35
+
+现解决办法是存档导入citra ，通讯进化完成后再导入delta<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

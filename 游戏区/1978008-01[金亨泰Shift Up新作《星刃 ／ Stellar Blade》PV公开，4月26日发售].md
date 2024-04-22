@@ -285,3 +285,27 @@ I can say it's one of the most polished AAA I have played in recent years
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  名字已被吃  
+##### 757#       发表于 2024-4-22 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64669839&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-21 17:24</a>
+官推说星刃在所有国家提供的都是未经审查的版本</blockquote>
+那日服买应该可以直接充点卡买吧？不会用到信用卡验证
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  宛若青空  
+##### 758#       发表于 2024-4-22 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64673854&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-22 08:17</a>
+那日服买应该可以直接充点卡买吧？不会用到信用卡验证
+
+—— 来自 Xiaomi 2203121C, Android 14上的 S1Ne ...</blockquote>
+对日版是D级可以用点卡
+

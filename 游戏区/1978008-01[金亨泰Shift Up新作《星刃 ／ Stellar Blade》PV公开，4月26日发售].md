@@ -373,3 +373,13 @@ I can say it's one of the most polished AAA I have played in recent years
 
 阎魔刀还一还了啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky95  
+##### 766#       发表于 2024-4-22 17:53
+
+boss试玩点了一堆弹反闪避技能后比匹诺曹顺手多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

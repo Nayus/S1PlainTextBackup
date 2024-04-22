@@ -3761,3 +3761,13 @@ IMG_3335.jpeg
 
 蓝毛在这群问题儿里，人设确实普了点，傻china的人气没倒一，赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 3310#       发表于 2024-4-22 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680103&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-22 17:32</a>
+ 参考官方DC群的人物讨论板块的话，人气应该是倒一，然后倒二是上上周出pv的千奈。毕竟手毬目前来看是信号 ...</blockquote>
+第一是小红？那第二是谁？
+

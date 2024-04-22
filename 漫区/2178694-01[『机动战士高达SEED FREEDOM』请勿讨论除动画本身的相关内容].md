@@ -7466,3 +7466,23 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  七七見奈波  
+##### 594#       发表于 2024-4-22 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64674603&amp;ptid=2178694" target="_blank">shiko 发表于 2024-4-22 09:52</a>
+
+问题是前十多集也没什么描绘，基本上都是狼的主角戏份，大主线奥布政变和重新开战更是几乎和鸟无关
+
+—— ...</blockquote>
+你猜怎么着，种命HD化的时候他反反复复在评论音轨里对石田叨叨阿斯兰是主角、阿斯兰才是主角，石田本人、保志都被他这些叨逼整得很懵逼（可能只有铃村即使懵逼也没有马上表现出来），那大概是我看种系这么多年，最想让他在精神上吃我一掌的时候<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 595#       发表于 2024-4-22 17:46
+
+我咋记得福田说的是种的时候本想在结局让阿斯兰死在亚金·杜维的，是我记错了还是他两个人都说过
+

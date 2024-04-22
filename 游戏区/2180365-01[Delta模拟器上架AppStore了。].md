@@ -1031,3 +1031,24 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 界面不错，就是搓玻璃依然很难受啊，有没有手柄推荐
 
+
+*****
+
+####  Sliurus  
+##### 89#       发表于 2024-4-22 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680192&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 17:41</a>
+
+苹果商店 右上角点一下 进账户页面  按住屏幕往下拉 （上方会有个转圈动画说明成功了） 会刷新更新列表</blockquote>
+原来在更新列表里更新就可以绕过去吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。app打开提示更新都是直接跳到页面，还没试过这么更新
+
+*****
+
+####  alucardcz  
+##### 90#       发表于 2024-4-22 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680249&amp;ptid=2180365" target="_blank">Sliurus 发表于 2024-4-22 17:46</a>
+
+原来在更新列表里更新就可以绕过去吗。app打开提示更新都是直接跳到页面，还没试过这么更新 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">切过账号第1次更新会要求你验证密码还有手机短信等安全措施  之后就永远一键更新了
+

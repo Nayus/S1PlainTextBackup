@@ -987,3 +987,47 @@ appstore不是可以单独登录嘛，在那想换哪个号就换哪个号</bloc
 问题我就是单独登录的，最近切来切去结果wifi突然连不上了（搜的上信号，连不上网），打电话给苹 ...</blockquote>
 我根本看不懂你在说什么 切个账号还能让你wifi坏掉  这话说出来你自己信吗？
 
+
+*****
+
+####  afer  
+##### 85#       发表于 2024-4-22 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680029&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 17:25</a>
+
+我根本看不懂你在说什么 切个账号还能让你wifi坏掉  这话说出来你自己信吗？ ...</blockquote>
+问题没切账号之前没出问题，也就只能怀疑是切账号导致的了，这东西我没管他，放了两周没电了，再启动就这样，问题是icloud原来显示的是请登录，我再充电开机就显示的这个账号的名字
+
+*****
+
+####  Sliurus  
+##### 86#       发表于 2024-4-22 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679723&amp;ptid=2180365" target="_blank">alucardcz 发表于 2024-4-22 17:01</a>
+
+appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
+
+而且去外服下个软件切回来后可以直接更新 只 ...</blockquote>
+怎么验证？我每次更新都要打开app页面，国区不让访问，现在都直接挂着外服
+
+
+*****
+
+####  alucardcz  
+##### 87#       发表于 2024-4-22 17:41
+
+ 本帖最后由 alucardcz 于 2024-4-22 17:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64680172&amp;ptid=2180365" target="_blank">Sliurus 发表于 2024-4-22 17:39</a>
+
+怎么验证？我每次更新都要打开app页面，国区不让访问，现在都直接挂着外服 ...</blockquote>
+苹果商店 右上角点一下 进账户页面  按住屏幕往下拉 （上方会有个转圈动画说明成功了） 会刷新更新列表
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不是常识吗
+
+*****
+
+####  zonker  
+##### 88#       发表于 2024-4-22 17:43
+
+界面不错，就是搓玻璃依然很难受啊，有没有手柄推荐
+

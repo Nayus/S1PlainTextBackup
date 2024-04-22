@@ -3746,3 +3746,18 @@ IMG_3335.jpeg
 小蓝的人气好像不太行</blockquote>
 参考官方DC群的人物讨论板块的话，人气应该是倒一，然后倒二是上上周出pv的千奈。毕竟手毬目前来看是信号灯中三人中人设和性格最传统蓝的。
 
+
+*****
+
+####  zeroed  
+##### 3308#       发表于 2024-4-22 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">传统蓝至少vo力强啊，学马搞这个育成系统结果初始听起来都不太行
+
+*****
+
+####  花开安菲路  
+##### 3309#       发表于 2024-4-22 17:40
+
+蓝毛在这群问题儿里，人设确实普了点，傻china的人气没倒一，赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

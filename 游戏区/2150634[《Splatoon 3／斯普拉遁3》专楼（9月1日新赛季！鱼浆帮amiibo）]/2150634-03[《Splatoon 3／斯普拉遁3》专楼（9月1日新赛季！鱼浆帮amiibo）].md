@@ -12334,3 +12334,16 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laosai13  
+##### 4205#       发表于 2024-4-23 05:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64684418&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-23 00:47</a>
+
+Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，但他玩的是加特林啊），太可怕了
+
+【【Splat ...</blockquote>
+-4.5 有点过于难了，不过我记得他平时用的好像也是大概-1.5这样。不过我自己用小枪，刚开始也挺迷茫的大家都用什么55配置，不过时间长了适应下来我现在小绿也是-1.5，还挺舒服的。
+

@@ -2693,3 +2693,11 @@ atat空投之后机器人防御战难度提升了一大截，今天晚上当了�
 
 今天应该会有更新吧
 
+
+*****
+
+####  kalavinka  
+##### 3219#         楼主| 发表于 2024-4-22 15:14
+
+发个新战备吧 防守图要被射爆了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

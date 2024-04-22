@@ -3243,3 +3243,52 @@ pv里那个糊的一比的大招动画希望不是最终品质吧<img src="https
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  h122h  
+##### 213#       发表于 2024-4-23 06:46
+
+＜収録予定ダウンロードコード＞
+
+・メタファー：リファンタジオ 「ペルソナ５」秀尽学園高校制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ４ ザ・ゴールデン」八十神高校制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ３」月光館学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「ペルソナ２」七姉妹学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「Persona」聖エルミン学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「真・女神転生V」縄印学園制服&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「真・女神転生IV」サムライ衆衣装&amp;バトルBGM＆バトルジングル セット
+
+・メタファー：リファンタジオ 「世界樹の迷宮シリーズ」職業コスチューム＆バトルBGM セット
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 214#         楼主| 发表于 2024-4-23 06:48
+
+<img src="https://p.sda1.dev/17/c08369ea114d280895213a8fc11c7a14/008CrTd6ly1hp0d81nqotj30yl0jeqev.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ba56b2942418392d48e7cdc51652d32c/008CrTd6ly1hp0d81nqlij30yl0jeaml.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0edd8ad330ee1ad762db639444e441cf/008CrTd6ly1hp0d81lx1mj30yl0jedpg.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/6bdb5ccff9162babec5ac39a11bd6f95/20240423_063955.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e97400762d704d24d7fad4d605e86cc3/20240423_064252.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ec7406b5b6fdbd0bb4c7849dba2503a2/20240423_064000.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lynn冰翎  
+##### 215#       发表于 2024-4-23 06:53
+
+战斗的搭配看起来非常非常多，应该会好玩吧；
+
+故事没有期待了，第三个片的台词味道有点过于冲，不是能接受的水平。
+

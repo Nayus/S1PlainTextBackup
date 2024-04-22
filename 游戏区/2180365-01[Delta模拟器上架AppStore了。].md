@@ -965,3 +965,14 @@ appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
 
 我自己就怀疑是切号导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真这东西我不太拿来玩游戏，前一阵子是为了玩恶魔城才鼓捣一下
 
+
+*****
+
+####  afer  
+##### 83#       发表于 2024-4-22 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679684&amp;ptid=2180365" target="_blank">cuiluzhu 发表于 2024-4-22 16:58</a>
+
+appstore不是可以单独登录嘛，在那想换哪个号就换哪个号</blockquote>
+对啊，但是我挺长时间用没电了关机了，然后我wifi连不上的时候看iCloud显示的美区那个号，问题我登录都没登陆过，然后我就没敢碰
+

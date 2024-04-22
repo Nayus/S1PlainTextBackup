@@ -12155,3 +12155,35 @@ syl，兔子三色全在内战，破案了
 
 曼曼惨啊，兔子第三
 
+
+*****
+
+####  罗克萨斯  
+##### 4189#       发表于 2024-4-22 10:09
+
+开放输麻，三色输麻，挑战赢麻，结果小熊唯独挑战没赢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过最后依然是小熊赢，祭典四连胜达成<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KBAC  
+##### 4190#       发表于 2024-4-22 10:12
+
+ 本帖最后由 KBAC 于 2024-4-22 10:14 编辑 
+
+结果兔子队只占了个人多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+早说了春季祭典是熊先生商会的阴谋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4191#       发表于 2024-4-22 10:14
+
+还以为兔子会赢
+

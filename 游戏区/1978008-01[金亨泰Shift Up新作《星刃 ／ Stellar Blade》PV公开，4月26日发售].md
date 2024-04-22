@@ -383,3 +383,22 @@ boss试玩点了一堆弹反闪避技能后比匹诺曹顺手多了<img src="htt
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  ky7913  
+##### 767#       发表于 2024-4-22 22:45
+
+官方动态漫画
+
+【[https://stellarblade-comic.com](https://stellarblade-comic.com)】 ​
+
+Screenshot_20240422_224341_Chrome.jpg
+(193.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-22 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202404/22/224516y47m5nkcsh896n5k.jpg" referrerpolicy="no-referrer">
+

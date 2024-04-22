@@ -895,3 +895,58 @@ Thank you for your years of support and for understanding our decision.
 我的账号是日区的，也有反过来的烦恼，有些只有国区的app就不能用了，比如B站，直到去年才上的日区 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">所以苹果真是渣渣，我最近wifi连不上要整机恢复就让我蚌埠住了
 
+
+*****
+
+####  cuiluzhu  
+##### 77#       发表于 2024-4-22 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64653699&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-19 20:09</a>
+
+我有一个美区号，但应用一多就挺麻烦，我国区好几百块的生产力软件，哪天切两次忘了再把ipad锁了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥会锁啊，我日区港区国区三个号来回切，好几年了一点事都没
+
+而且现在更新软件也挺简单的，不用切号，直接点更新输个密码就行了
+
+*****
+
+####  afer  
+##### 78#       发表于 2024-4-22 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679650&amp;ptid=2180365" target="_blank">cuiluzhu 发表于 2024-4-22 16:55</a>
+
+为啥会锁啊，我日区港区国区三个号来回切，好几年了一点事都没</blockquote>
+手滑登陆了icloud好像就猝，然后那个逼玩意天天想自己上去，我估计我那个wifi失灵就是没注意更新系统导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuiluzhu  
+##### 79#       发表于 2024-4-22 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64679656&amp;ptid=2180365" target="_blank">afer 发表于 2024-4-22 16:56</a>
+
+手滑登陆了icloud好像就猝，然后那个逼玩意天天想自己上去，我估计我那个wifi失灵就是没注意更新系统导致 ...</blockquote>
+appstore不是可以单独登录嘛，在那想换哪个号就换哪个号
+
+
+*****
+
+####  Antidote丶  
+##### 80#       发表于 2024-4-22 17:00
+
+我就是天天国区日区切来切去的呀
+
+
+*****
+
+####  alucardcz  
+##### 81#       发表于 2024-4-22 17:01
+
+appstore账号和icloud账号登陆的地方都不同   怎么个手滑法？
+
+而且去外服下个软件切回来后可以直接更新 只需要重新验证一次就可以永久一键更新了
+
+这回复我看的一楞一楞。。到底是不是ios
+

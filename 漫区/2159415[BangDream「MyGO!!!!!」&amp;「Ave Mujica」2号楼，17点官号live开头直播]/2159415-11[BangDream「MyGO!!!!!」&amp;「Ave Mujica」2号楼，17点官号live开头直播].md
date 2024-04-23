@@ -12980,3 +12980,14 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 居然能卖三千多，中华炮威力恐怖如斯</blockquote>
 这个应该没算萌购
 
+
+*****
+
+####  NODY  
+##### 15958#       发表于 2024-4-23 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64691968&amp;ptid=2159415" target="_blank">明内幽 发表于 2024-4-23 16:45</a>
+
+不过你go怎么抽选来着，上下卷抽1个场还是2个场？</blockquote>
+买其中一卷就能两场全抽，但会买这个bd的人估计也不会只买单卷
+

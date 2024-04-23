@@ -3737,3 +3737,11 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无色辉火  
+##### 265#       发表于 2024-4-23 10:17
+
+总感觉新作的评分会不如5V<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

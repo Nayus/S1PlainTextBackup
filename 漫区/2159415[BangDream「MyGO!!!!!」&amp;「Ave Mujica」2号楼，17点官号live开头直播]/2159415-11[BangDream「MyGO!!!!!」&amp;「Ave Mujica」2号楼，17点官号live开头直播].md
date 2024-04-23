@@ -12991,3 +12991,11 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 不过你go怎么抽选来着，上下卷抽1个场还是2个场？</blockquote>
 买其中一卷就能两场全抽，但会买这个bd的人估计也不会只买单卷
 
+
+*****
+
+####  枫林不见  
+##### 15959#       发表于 2024-4-23 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推上看了一圈 爱素cp粉吃的疑似太好了点
+

@@ -12380,3 +12380,14 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 我发现比赛大家都是坐着玩？我必须站着玩，坐下各种别扭，打康工就得站大半天<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 4209#       发表于 2024-4-23 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64693333&amp;ptid=2150634" target="_blank">xgazer 发表于 2024-4-23 18:32</a>
+
+我发现比赛大家都是坐着玩？我必须站着玩，坐下各种别扭，打康工就得站大半天 ...</blockquote>
+啊？真的吗？你试试岔开腿坐着，手柄放低。我是这个样子的。
+

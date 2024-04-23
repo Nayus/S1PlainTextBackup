@@ -111,3 +111,11 @@
 
 最关心的是这会不会是个负硬币人格呢？毕竟【愤怒烙印】应该是图书馆原版唯一一个使用时获得负理智情感硬币的技能，而且和人物性格也说得通
 
+
+*****
+
+####  erratic璃月  
+##### 652#       发表于 2024-4-23 18:38
+
+别说，小辛戴眼镜还挺好看得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

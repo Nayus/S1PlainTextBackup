@@ -4339,3 +4339,13 @@ Relationships with party members is slightly different from Persona. There are m
 
 橋野　やれるだけのことはやった、という気持ちに尽きます。ただただ真面目に作り続けてきましたので、たくさんの方に楽しんでいただけることを願うばかりです。本作の公式サイトでは、作品の雰囲気をお見せしてきた従来のPVからもう一歩踏み込んで、実際の手触りをお伝えする解説映像も公開していますので、そちらもぜひご覧いただければと思います。今後のさらなる続報にも、どうぞご期待ください。
 
+
+*****
+
+####  guiminan  
+##### 328#       发表于 2024-4-23 21:28
+
+为啥把archetype翻译成阿基态<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

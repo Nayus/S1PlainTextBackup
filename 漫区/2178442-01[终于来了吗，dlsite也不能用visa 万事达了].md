@@ -38,3 +38,14 @@ dlsite还是屈服吧，本来就是有一部分要靠海外，美帝一哆嗦�
 
 Getchu 也被搞了
 
+
+*****
+
+####  caupollen  
+##### 88#         楼主| 发表于 2024-4-23 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694320&amp;ptid=2178442" target="_blank">慕容断月 发表于 2024-4-23 20:04</a>
+
+dlsite还是屈服吧，本来就是有一部分要靠海外，美帝一哆嗦那是真没招</blockquote>
+目前是要屈服什么内容，18+咔嚓了？
+

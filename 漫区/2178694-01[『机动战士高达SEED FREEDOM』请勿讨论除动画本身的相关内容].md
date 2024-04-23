@@ -7961,3 +7961,18 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  wenze  
+##### 640#       发表于 2024-4-24 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697232&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-24 01:51</a>
+难道代哥以前就觉得赚钱不重要吗。
+
+而且复国的时间在ta前还是后真的会影响赚钱吗（</blockquote>
+个人感觉可能90年代末那段时间代哥这种观念会弱一些。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于复国的设定，纯粹就是代哥认为ta这个终结世界线的设定很有噱头，打算留着以后挖掘价值呗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

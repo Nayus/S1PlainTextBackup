@@ -4098,3 +4098,11 @@ steam已经有了啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P系列没兴趣，但这个感兴趣
 
+
+*****
+
+####  wyy123  
+##### 304#       发表于 2024-4-23 13:30
+
+这次要预定豪华版，p3r当时没预定高价吃了现货。
+

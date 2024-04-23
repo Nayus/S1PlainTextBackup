@@ -12859,3 +12859,11 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">不同步直播我都不想买，摆了
 
+
+*****
+
+####  river0  
+##### 15946#       发表于 2024-4-23 13:34
+
+字幕弄好点的话还行，比直播唯一好的就是不担心错过时间
+

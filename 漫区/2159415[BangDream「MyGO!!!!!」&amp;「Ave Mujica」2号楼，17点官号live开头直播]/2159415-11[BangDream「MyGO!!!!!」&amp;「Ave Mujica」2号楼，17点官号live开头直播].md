@@ -12819,3 +12819,27 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 大航海模式看来是因为赚太少被b站ban了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 15942#       发表于 2024-4-23 11:35
+
+<img src="https://img.saraba1st.com/forum/202404/23/113536aerveoze874oev7j.jpg" referrerpolicy="no-referrer">
+
+<strong>]R2Y1(SJT1~38F}F%4UA}VQ_tmb.jpg</strong> (5.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 11:35 上传
+
+昭和罪大恶极
+
+
+*****
+
+####  NODY  
+##### 15943#       发表于 2024-4-23 11:44
+
+国人的钱还挺好赚的嘛，涨价的延时都能卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

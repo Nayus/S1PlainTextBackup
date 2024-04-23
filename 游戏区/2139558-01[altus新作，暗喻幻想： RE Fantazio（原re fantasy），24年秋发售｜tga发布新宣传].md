@@ -84,3 +84,11 @@ ATLUS今早播出的奇幻RPG新作《暗喻幻想 ReFantazio》直播节目全�
 普通版首发特典为2种DLC：原型经验值道具套组、旅行津贴套组。
 最新PV→http://t.cn/A6TEmZT7<img src="https://p.sda1.dev/17/34f0c265fedd2d5c1d360b3f2dc065be/CMP_20240423094954954.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王一唯不傲娇  
+##### 538#       发表于 2024-4-23 11:37
+
+感觉不如rpg.jp。。。美术
+

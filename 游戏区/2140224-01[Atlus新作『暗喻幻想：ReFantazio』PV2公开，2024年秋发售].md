@@ -3959,3 +3959,21 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 似乎能脑补出不少有趣的发展<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电磁炮233  
+##### 289#       发表于 2024-4-23 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687535&amp;ptid=2140224" target="_blank">Squall25 发表于 2024-4-23 11:08</a>
+
+这玩意跟黎轨明显不一样，不知道怎么天天有人瞎扯。暗喻幻想这个攻击键看ui只有一个，就是一个酷炫版地图攻 ...</blockquote>
+即时+回合的系统就那么几个有，拿来对比无可厚非，不知道有什么可敏感的，7re和李鬼暗喻差的更多了
+
+*****
+
+####  Soyo  
+##### 290#       发表于 2024-4-23 11:46
+
+有coop吗
+

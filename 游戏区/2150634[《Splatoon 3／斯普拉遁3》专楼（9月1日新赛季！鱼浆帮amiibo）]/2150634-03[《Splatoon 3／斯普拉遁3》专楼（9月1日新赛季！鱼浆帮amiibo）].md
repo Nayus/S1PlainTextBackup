@@ -12435,3 +12435,15 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 任 天 堂 抄 袭 门<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4214#       发表于 2024-4-24 06:39
+
+原来这就是大佬的手法啊，低感度所带来的aim稳定性，高感度不管练多久都无法达成。上位势里高感度玩得好的印象里就瓜啤马修，超低感度的远比想象的多
+
+【【Splatoon3搬运】【kamechan】超低体感！全一红双的手元视频【かめちゃん】-哔哩哔哩】 https://b23.tv/uwxVZUS
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

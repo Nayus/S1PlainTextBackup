@@ -7923,3 +7923,13 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 修罗和金毛很牛逼不是FT一直在说的嘛，虽然贴吧天天鞭策这俩角色....</blockquote>
 主要还能圆，按理说BOSS前期就跟主角五五开，那后续非凡哥直接秒就少了冲突和主角团新上的BUFF味。但是正片我觉得也没体现我K就真打不过白毛，不如说顶着这么多DEBUFF（读心，精神控制，L不在，机体差距，偷袭）撑到最后飞自才爆显得白毛也就那样。
 
+
+*****
+
+####  starring  
+##### 637#       发表于 2024-4-24 00:01
+
+飞自对黑骑士那段又不是不能圆，飞自被偷袭轰炸一轮没了主推和一边翅膀打不过很正常。FT这厮非要口嗨踩鸡一脚不能表现得太强<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

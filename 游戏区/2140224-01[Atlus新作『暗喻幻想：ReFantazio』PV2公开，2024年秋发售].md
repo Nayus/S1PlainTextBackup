@@ -4556,3 +4556,44 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 整个节目看下来印象最好的是音乐，有点担心这作啊。
 
+
+*****
+
+####  superlink  
+##### 350#       发表于 2024-4-23 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">人设被p345暴打吧
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  nancygreenlife  
+##### 351#       发表于 2024-4-23 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696458&amp;ptid=2140224" target="_blank">安心院紫苑 发表于 2024-4-23 23:43</a>
+
+看吹了半天美术就感觉ui和地图美术完全不搭，菜单ui还好。
+
+外加特效经常是一大片停留时间不断地色 ...</blockquote>
+玩P5的时候就感觉滥用特效了，攻克殿堂的时候总有各种边框特效压迫游玩视野
+
+
+*****
+
+####  Khellendros  
+##### 352#       发表于 2024-4-24 00:00
+
+<blockquote>抽烟的猴 发表于 2024-4-23 22:41
+不过感觉建模问题更大点。高情商：三十年前的复古感
+
+搭配过场更喜感</blockquote>
+女主正脸感觉像个回旋镖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 353#       发表于 2024-4-24 00:03
+
+p3re那是新引擎，这作是老引擎磨洋工（游戏晚发售两年就容易跟不上时代，UI看起来也不是御用须藤）出来的游戏
+

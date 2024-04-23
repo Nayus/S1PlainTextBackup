@@ -3189,3 +3189,20 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 搞这堆突击步枪真就凑数是吧，还有这个正义，看着也是大号审判者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 3259#       发表于 2024-4-23 19:07
+
+感觉只有最后那把315伤的破裂者能用，数据不改的话应该是把普通破裂者完爆了，我估计备弹可能会少一点；中甲穿透那把破裂者看上去被主宰完爆了；几把ar一个比一个幽默，难绷。
+
+*****
+
+####  ravend233  
+##### 3260#       发表于 2024-4-23 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些突击步枪伤害和弹容量都不够，突出一个幽默
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

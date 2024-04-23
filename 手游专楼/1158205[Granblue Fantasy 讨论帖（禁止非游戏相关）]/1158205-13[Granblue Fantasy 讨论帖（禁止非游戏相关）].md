@@ -89,3 +89,11 @@ U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗
 
 倒是转了一圈明年实装黄黑角色？
 
+
+*****
+
+####  Meiien  
+##### 17893#       发表于 2024-4-23 09:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新手活动送的也太好了，直接速成啊
+

@@ -3641,3 +3641,37 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 —— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  抽烟的猴  
+##### 255#       发表于 2024-4-23 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686033&amp;ptid=2140224" target="_blank">会长辅佐 发表于 2024-4-23 09:20</a>
+
+顺便这建模也太拉了</blockquote>
+比p5强一点，不如p3r
+
+*****
+
+####  汪达  
+##### 256#       发表于 2024-4-23 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685964&amp;ptid=2140224" target="_blank">ff2077 发表于 2024-4-23 09:14</a>
+
+这系统是不是能说句法老控遥遥领先了</blockquote>
+不就是P系列打一下怪进战斗那个系统改得酷炫了些，变成了一套连招进战斗，倒反天罡了
+
+
+*****
+
+####  Piano-Forest  
+##### 257#         楼主| 发表于 2024-4-23 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685447&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 08:21</a>
+
+新角色应该还有尚未公开的（新封面图主角身边）
+
+看今晚直播是否有进一步的消息或是得等到6月份了 </blockquote>
+<img src="https://p.sda1.dev/17/83332a3a03c03fa76eb0aeda2a3055be/19551317138364712.png" referrerpolicy="no-referrer">
+

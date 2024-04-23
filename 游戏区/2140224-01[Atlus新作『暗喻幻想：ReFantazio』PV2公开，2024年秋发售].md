@@ -3620,3 +3620,24 @@ dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image
 
 顺便这建模也太拉了
 
+
+*****
+
+####  jockeyjoestar  
+##### 253#       发表于 2024-4-23 09:29
+
+ 本帖最后由 jockeyjoestar 于 2024-4-23 09:31 编辑 
+
+消除人与人与人的斗争。。。味太冲了  一上来就给了一个宏大 空洞又不切实际的目标 
+
+P系列卖得好 就是因为他格局够小 更接地气 
+
+*****
+
+####  ranapocket  
+##### 254#       发表于 2024-4-23 09:30
+
+剧情感觉会雷。
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1632,3 +1632,14 @@ pro快出了现在买有点亏啊</blockquote>
 
 为了拿天然理心流京都开局选了佐幕，虽然主线打了冲田boss但道场没解锁他是后面解锁还是得重玩？
 
+
+*****
+
+####  黑修士  
+##### 3127#       发表于 2024-4-23 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685785&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-4-23 08:57</a>
+
+现在一身装备都是做任务捡的，词条也没弄。打“盟友们”，死在以藏那一对，药吃完了弹尽粮绝，后面还有完 ...</blockquote>
+词条也没太大助力，这一作不同的部件只能装限定类型的词条，分得很开，好用的词条堆不起高数值
+

@@ -3233,3 +3233,22 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Aeons  
+##### 3264#       发表于 2024-4-24 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，机器人这悬崖，做任务要绕来绕去不说，还等效个防空炮台呢，飞鹰全他妈落上面了，一不注意补给也在上面了。
+
+*****
+
+####  ravend233  
+##### 3265#       发表于 2024-4-24 00:33
+
+打了把塔防，结果卡bug火箭不发射，只能退出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+悬崖图是这样的，虫子那边也有，不注意就一堆东西落上面
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

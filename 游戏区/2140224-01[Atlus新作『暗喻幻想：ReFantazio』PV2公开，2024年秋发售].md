@@ -3449,3 +3449,49 @@ sega官方视频出了
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黑修士  
+##### 233#       发表于 2024-4-23 08:31
+
+新预告音画的卖相不错啊，希望能讲个好故事
+
+*****
+
+####  walfeds  
+##### 234#       发表于 2024-4-23 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685363&amp;ptid=2140224" target="_blank">头发头发 发表于 2024-4-23 08:08</a>
+为啥要藏角色不公布啊，战车的圆桌明显还有三个空位没人的来着，又不是有啥震惊业界美少女要藏，现在预告片 ...</blockquote>
+也没全藏吧，开头pv后几个过场场景已经看得出来黑白披风妹和金发大额头是队友了
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑上シグマ  
+##### 235#       发表于 2024-4-23 08:33
+
+<blockquote>引用第229楼Piano-Forest于2024-04-23 08:21发表的  :
+
+新角色应该还有尚未公开的（新封面图主角身边）看今晚直播是否有进一步的消息或是得等到6月份了 “关于本......</blockquote>
+今晚是イソッチ和光头的扯淡节目，不会有新情报的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Kojimaru  
+##### 236#       发表于 2024-4-23 08:35
+
+dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  refiver  
+##### 237#       发表于 2024-4-23 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种隐隐的预感P5这套UI要被阿特拉斯薅到死了
+

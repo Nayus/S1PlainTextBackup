@@ -3002,3 +3002,14 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 OPPO PCLM50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  xinfengj  
+##### 3246#       发表于 2024-4-23 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687900&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-4-23 11:32</a>
+
+集束扔脚下斜着跑；空袭侧身扔脚下稍微斜着点跑；空爆就有点危险，扔原地不一定能跑开，脸黑还是会被炸到 ...</blockquote>
+集束炸弹还是不太好控制，小炸弹会乱弹飞，可能会崩老远。断追兵还是空袭稳定。空爆范围是个圆圈，扔脚下跑不出去
+

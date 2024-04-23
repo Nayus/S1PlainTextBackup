@@ -4069,3 +4069,32 @@ steam已经有了啊</blockquote>
 
 阿特拉斯一年三产能不爆雷就有鬼了，还是先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 301#       发表于 2024-4-23 13:19
+
+没有好康的妹子，决定观望了
+
+
+*****
+
+####  抽烟的猴  
+##### 302#       发表于 2024-4-23 13:23
+
+ 本帖最后由 抽烟的猴 于 2024-4-23 13:24 编辑 
+
+看了这么多宣传后，感觉最大的问题还是“游戏卖点为p5制作组”
+
+剧情，美术，玩法和系统上，始终没有让人眼前一亮的东西
+
+也就是说它最大的受众是桥野桂目黑等人的粉丝，铁三角出的作品无脑买买买那种
+
+*****
+
+####  misya  
+##### 303#       发表于 2024-4-23 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P系列没兴趣，但这个感兴趣
+

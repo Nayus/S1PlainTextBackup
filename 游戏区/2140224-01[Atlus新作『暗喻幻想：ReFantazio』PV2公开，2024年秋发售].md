@@ -4425,3 +4425,25 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 脏兮兮的蒸汽和工业革命风果然只适合俯视角crpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  z692689995  
+##### 337#       发表于 2024-4-23 22:27
+
+这是不是说明阿特拉斯现在唯一能看的只有smt组了
+
+*****
+
+####  星野航  
+##### 338#       发表于 2024-4-23 22:30
+
+刚看了个宣传片就开始阿特拉斯只有smt能看么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 339#       发表于 2024-4-23 22:30
+
+画面里到处在飘的那些东西是什么啊也没说，本来就够杂乱了还搞一堆这种没用的设计
+

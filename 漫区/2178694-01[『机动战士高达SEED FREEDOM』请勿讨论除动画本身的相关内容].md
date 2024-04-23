@@ -7760,3 +7760,13 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 澳门就英皇葡京人和CGV影院（星皓广场）两家上映
 
+
+*****
+
+####  shiko  
+##### 621#       发表于 2024-4-23 10:32
+
+有什么好道歉的，20年了也没见福田给鸟道过歉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

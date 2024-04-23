@@ -4246,3 +4246,34 @@ UI设计又是一次大进步
 
 怎么看都不可能比p3r差吧<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 321#         楼主| 发表于 2024-4-23 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685073&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 06:48</a>
+
+https://ebten.jp/atlus/p/7015024101101
+
+三枚胸针
+
+「ユークロニア連合王国国旗」「幻想小説 ...</blockquote>
+详情
+<img src="https://p.sda1.dev/17/63ba083c22e8e24ff2c62681f494d7e3/IMG_20240423_194410.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9eb07c51abf31e769c5f6b6f909bd7c6/product_pkg_special_thumb_7c87849b80b5d7a56e77e8fd8f4edd00.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/c98c1af811981e15a51e0481d50551e1/IMG_20240423_194433.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/a80a36a9a5982fc0bffb3b38e77cab9b/IMG_20240423_194452.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/2f5b38796ecbe8ae5503a841f59074a1/IMG_20240423_194517.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 322#         楼主| 发表于 2024-4-23 20:37
+
+[https://weibo.com/7897210512/5026421357676732](https://weibo.com/7897210512/5026421357676732)
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节目中回答玩家提问时明言：
+
+本作虽然有类似于《女神异闻录3》《女神异闻录4》COMMU、《女神异闻录5》COOP的系统，即今早PV中展示的与“支持者”的交流，但主角与各位支持者角色并不会发展为恋爱关系。不过随着与支持者感情加深，会解锁各种支线剧情从而加深对整个游戏故事的了解。
+

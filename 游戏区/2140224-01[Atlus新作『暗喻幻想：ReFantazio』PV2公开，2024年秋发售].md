@@ -3977,3 +3977,21 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 有coop吗
 
+
+*****
+
+####  Squall25  
+##### 291#       发表于 2024-4-23 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64688037&amp;ptid=2140224" target="_blank">电磁炮233 发表于 2024-4-23 11:42</a>
+即时+回合的系统就那么几个有，拿来对比无可厚非，不知道有什么可敏感的，7re和李鬼暗喻差的更多了 ...</blockquote>
+我只是笑某些人喜欢当人家祖宗的心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于7re灵感这个近藤自己说的，又不是我们说像不像的问题，当然近藤还扯过伊苏x想学习魂这类鬼话。
+相对来说黎轨和7re还是可以理解。7re第一部动作要素不像7rb，本质是回合制，那近藤说灵感应该是指黎轨无缝这套跟7re接近，反而地图攻击这块其实没啥意义，黎轨的地图攻击做的问题有点太大了，暗喻幻想不是无缝反而让我觉得有点落后了，尤其是如果不能自由进入战斗的话。而地图攻击怎么改其实都那样。
+
+*****
+
+####  黑酒杯  
+##### 292#       发表于 2024-4-23 11:55
+
+还是没啥看对眼的女角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

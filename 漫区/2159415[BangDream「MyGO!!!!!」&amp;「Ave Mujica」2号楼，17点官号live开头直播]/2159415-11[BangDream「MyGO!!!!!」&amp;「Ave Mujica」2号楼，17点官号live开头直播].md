@@ -12843,3 +12843,11 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 国人的钱还挺好赚的嘛，涨价的延时都能卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 15944#       发表于 2024-4-23 11:48
+
+比e+还贵是不是过分了
+

@@ -3262,3 +3262,11 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 还有几把枪</blockquote>
 这几件武器三月上旬（遥遥领先还没出的时候）已经被解出来了，甚至民主爆破相关的美术资源也是那时候解出来的。然后现在还没能看到五月尊享债券的美术资源<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 3267#       发表于 2024-4-24 05:30
+
+机器人把把有类星体仙人真绷不住了，会打船打炮台还好，能碰到40多级啥都不会打被蹂躏者单杀的属实说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

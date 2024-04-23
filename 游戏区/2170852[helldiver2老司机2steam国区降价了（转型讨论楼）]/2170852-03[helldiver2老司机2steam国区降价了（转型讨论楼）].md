@@ -3052,3 +3052,14 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  FLZB  
+##### 3251#       发表于 2024-4-23 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685338&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-23 08:04</a>
+
+不仅仅ATST,连红翅膀的基础兵都能秒你。</blockquote>
+秒倒不至于，除了自爆兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

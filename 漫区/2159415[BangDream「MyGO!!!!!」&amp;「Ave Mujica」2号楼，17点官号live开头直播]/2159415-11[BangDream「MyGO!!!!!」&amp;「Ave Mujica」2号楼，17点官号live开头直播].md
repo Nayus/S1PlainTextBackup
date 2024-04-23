@@ -12922,3 +12922,11 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 所以可以从中猜测国区买bd占比<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 15952#       发表于 2024-4-23 16:34
+
+就差几十套可以忽略不计吧，大部分愿意买的都会买上下全卷
+

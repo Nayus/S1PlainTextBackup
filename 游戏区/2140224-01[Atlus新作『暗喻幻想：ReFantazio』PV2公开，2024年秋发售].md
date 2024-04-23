@@ -3703,3 +3703,37 @@ P系列卖得好 就是因为他格局够小 更接地气
 明明演示里有即时模式下翻滚躲避敌人攻击，跟何况打一下怪进战斗的系统也是轨迹早啊 ...</blockquote>
 空轨有这个系统吗？没印象了
 
+
+*****
+
+####  卡拉德利姆  
+##### 261#       发表于 2024-4-23 09:58
+
+空轨的先攻就是靠地图攻击打背啊
+
+
+*****
+
+####  SuNR1sE364  
+##### 262#       发表于 2024-4-23 10:05
+
+窝法伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 263#       发表于 2024-4-23 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686511&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-4-23 09:58</a>
+空轨的先攻就是靠地图攻击打背啊</blockquote>
+空轨原版没有，这个系统是从零轨加进来的，反哺回了空EVO
+
+*****
+
+####  walfeds  
+##### 264#       发表于 2024-4-23 10:08
+
+法老控粉丝打进来了，撤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

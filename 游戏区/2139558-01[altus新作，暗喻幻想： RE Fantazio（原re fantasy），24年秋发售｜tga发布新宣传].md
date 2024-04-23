@@ -52,3 +52,14 @@ ATLUS今早播出的奇幻RPG新作《暗喻幻想 ReFantazio》直播节目全�
 论坛助手,iPhone</blockquote>
 这位是？
 
+
+*****
+
+####  Sopp  
+##### 535#       发表于 2024-4-23 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686474&amp;ptid=2139558" target="_blank">医生狼多 发表于 2024-4-23 09:55</a>
+
+这位是？</blockquote>
+尼尔的概念设计
+

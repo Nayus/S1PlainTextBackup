@@ -100,3 +100,17 @@ PIXIV这个妥协也不太顶用吧，所在区域不是随便能改吗
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  pf67  
+##### 94#       发表于 2024-4-24 03:53
+
+ 本帖最后由 pf67 于 2024-4-24 03:54 编辑 
+
+点卡又不是不能充， 屈服个毛线
+
+这不正好就是打破美元霸权的切入点
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

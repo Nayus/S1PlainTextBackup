@@ -90,3 +90,13 @@ jcb+visa各办一张不就基本通吃了
 
 PIXIV这个妥协也不太顶用吧，所在区域不是随便能改吗
 
+
+*****
+
+####  白色的120  
+##### 93#       发表于 2024-4-23 22:22
+
+白皮信用卡公司真的恶心
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

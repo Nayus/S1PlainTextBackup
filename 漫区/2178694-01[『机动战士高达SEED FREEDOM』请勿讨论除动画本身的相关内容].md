@@ -7877,3 +7877,11 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 福田这样还要踩一脚，黑骑士和飞升战斗的时候飞升表现过强也要改一下，感觉在福田看来基拉是肯定打不过修罗的
 
+
+*****
+
+####  ナルバレック  
+##### 633#       发表于 2024-4-23 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">修罗和金毛很牛逼不是FT一直在说的嘛，虽然贴吧天天鞭策这俩角色....
+

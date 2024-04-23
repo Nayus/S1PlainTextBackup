@@ -3938,3 +3938,13 @@ imas体重有参考价值吗？怎么身高148的和161的一个体重</blockquo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小黄我个人觉得人气能不能超小红不好说，2创大概率是可以超的，特别是下三路二创
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3330#       发表于 2024-4-23 15:32
+
+来点小黄爸爸活二创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

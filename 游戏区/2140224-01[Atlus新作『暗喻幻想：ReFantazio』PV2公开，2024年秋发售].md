@@ -4165,3 +4165,16 @@ UI设计又是一次大进步
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说系统面的话这游戏有桥野哥哥全家桶的既视感，真3p345乃至dds葛叶
 
+
+*****
+
+####  walfeds  
+##### 312#       发表于 2024-4-23 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689879&amp;ptid=2140224" target="_blank">zet 发表于 2024-4-23 14:14</a>
+
+看完就准备预购豪华版了
+
+奔着红毛早见去的，看PV里躺了，不会真的挂了吧？ ...</blockquote>
+这次pv一股be味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主角关键道具书都落入唯一指定大反派？手里了
+

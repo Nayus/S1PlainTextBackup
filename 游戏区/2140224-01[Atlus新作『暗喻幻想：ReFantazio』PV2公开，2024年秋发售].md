@@ -4041,3 +4041,31 @@ steam已经有了啊
 
 女队友太少了吧...
 
+
+*****
+
+####  被击坠王  
+##### 298#       发表于 2024-4-23 13:12
+
+ 本帖最后由 被击坠王 于 2024-4-23 13:14 编辑 
+
+越宣传越回去，你成立新部门花费7年就做出来这种东西？
+
+*****
+
+####  牙狼GARO  
+##### 299#       发表于 2024-4-23 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689106&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-4-23 12:59</a>
+steam已经有了啊</blockquote>
+谢谢，看到了，先加入心愿单<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DET  
+##### 300#       发表于 2024-4-23 13:15
+
+阿特拉斯一年三产能不爆雷就有鬼了，还是先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

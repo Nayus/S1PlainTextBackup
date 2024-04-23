@@ -1664,3 +1664,14 @@ pro快出了现在买有点亏啊</blockquote>
 
 二周目暗夜清完红点就再也不刷新了？我就想大地图清据点啊，好歹再来个新周目重开啊
 
+
+*****
+
+####  粉刷月季  
+##### 3130#       发表于 2024-4-23 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694286&amp;ptid=2092342" target="_blank">阿尔泰尔 发表于 2024-4-23 20:01</a>
+
+二周目暗夜清完红点就再也不刷新了？我就想大地图清据点啊，好歹再来个新周目重开啊 ...</blockquote>
+好像因为刷新有BUG，给关了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

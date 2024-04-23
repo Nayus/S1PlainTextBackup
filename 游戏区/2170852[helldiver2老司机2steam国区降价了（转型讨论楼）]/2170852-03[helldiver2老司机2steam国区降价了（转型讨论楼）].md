@@ -2830,3 +2830,11 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先级很高，鬼知道它会不会神经枪一炮给你秒了。 ...</blockquote>
 不仅仅ATST,连红翅膀的基础兵都能秒你。
 
+
+*****
+
+####  Aeons  
+##### 3232#       发表于 2024-4-23 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被机枪奇袭，固定机枪，指挥碉堡秒可是司空见惯
+

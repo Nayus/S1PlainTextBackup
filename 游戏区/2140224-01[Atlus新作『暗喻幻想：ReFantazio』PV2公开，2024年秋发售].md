@@ -3420,3 +3420,32 @@ sega官方视频出了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 230#         楼主| 发表于 2024-4-23 08:21
+
+新角色应该还有尚未公开的（新封面图主角身边）
+
+看今晚直播是否有进一步的消息或是得等到6月份了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+“关于本作独有的故事情节和角色的内容，也希望大家能期待后续消息。另外我们还计划从6月开始在世界各地举行试玩活动”
+
+
+*****
+
+####  真空管  
+##### 231#       发表于 2024-4-23 08:22
+
+这所谓现代就是指我们的现实世界吧，上手又让你填你自己的名字而不是主角的，摆明了最后要玩打破第四面墙的花活
+
+*****
+
+####  walfeds  
+##### 232#       发表于 2024-4-23 08:27
+
+实体版额外的东西不是很吸引人，有点迟疑要不要直接上数字版算了
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

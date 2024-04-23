@@ -12770,3 +12770,14 @@ GLgzX0JbUAAJ19l.jpg
 
 因为改修了剧本，所以mujica篇才拖到明年1月。或许如果没在这边爆红，mujica篇4月就上了也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  _cvb_tassdar  
+##### 15938#       发表于 2024-4-23 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64684573&amp;ptid=2159415" target="_blank">creaiii 发表于 2024-4-23 01:21</a>
+
+独角兽出走，会不会和老钟有关。武士道都倒贴B站成那样了，B站还是不肯买下MYGO，可能就是因为按这边的标准 ...</blockquote>
+老中人真能爆米，早几年b站爆买的时候就改爆了，也不会等到日本人去欧美掘金才发现原来老中市场根本不重要
+

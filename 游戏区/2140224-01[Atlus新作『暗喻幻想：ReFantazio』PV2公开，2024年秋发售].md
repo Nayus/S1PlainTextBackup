@@ -3880,3 +3880,31 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">单看pv，主角在那闪避，一顿砍，我还以为变成ff7rb/16的那种战斗了，没想到看了完整版，砍完居然是进回合制
 
+
+*****
+
+####  Squall25  
+##### 282#       发表于 2024-4-23 11:08
+
+这玩意跟黎轨明显不一样，不知道怎么天天有人瞎扯。暗喻幻想这个攻击键看ui只有一个，就是一个酷炫版地图攻击，你甚至不如说跟零碧闪一样，就多个闪避。比如最主要的区别，黎轨是无缝进出战斗的，暗喻幻想还是老样子传异空间。
+而且说了多少次，真要论祖宗，近藤自己都说黎轨灵感是7re来的，轨迹侠天天想说自己多领先，想当人家祖宗能不能把自己祖宗先找对<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  フカミ  
+##### 283#       发表于 2024-4-23 11:09
+
+实体封面不是很好看，还是数字版好了<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 284#       发表于 2024-4-23 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687104&amp;ptid=2140224" target="_blank">BadYanL 发表于 2024-4-23 10:38</a>
+建模，脏乱贴图，文艺复兴风都能接受，但是这色调真的看萎了。
+
+战斗和故事什么的随意吧，Atlus主要是玩角色 ...</blockquote>
+前面那色调确实不太讨喜，不过看到后面有几个场景色调看着就很漂亮很舒服希望不是背景板而是能实际跑图的吧
+

@@ -4379,3 +4379,23 @@ Relationships with party members is slightly different from Persona. There are m
 连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼</blockquote>
 这UI好像不是须藤正喜的，但我认为这UI在画面规格强的游戏还挺搭的......现在这样就可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  528599244  
+##### 332#       发表于 2024-4-23 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694645&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 20:37</a>
+
+https://weibo.com/7897210512/5026421357676732
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</blockquote>
+没有恋爱要素推进的动力少一半啊，Atlus这次想怎么爆种
+
+*****
+
+####  影山银  
+##### 333#       发表于 2024-4-23 22:03
+
+大概是P系列看多了，这色调看起来有点土啊
+

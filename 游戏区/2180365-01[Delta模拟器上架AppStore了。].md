@@ -1157,3 +1157,14 @@ nds怎么旋转屏幕玩黄昏旅馆，手机旋转也不对。还有屏幕怎�
 
 2024-4-23 20:22 上传
 
+
+*****
+
+####  atomicink  
+##### 100#       发表于 2024-4-23 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694516&amp;ptid=2180365" target="_blank">泥潭办证先锋 发表于 2024-4-23 20:23</a>
+
+可以直接在商店下iOS版，就是不能随意缩放窗口，要么小窗要么全屏。</blockquote>
+mac用openemu
+

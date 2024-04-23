@@ -4293,3 +4293,16 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节�
 
 我对成品质量其实并不是太过悲观，毕竟现在的atlus要是连游戏都做不好那确实没有存在的必要了
 
+
+*****
+
+####  Piano-Forest  
+##### 325#         楼主| 发表于 2024-4-23 21:00
+
+人际关系更偏向于传统RPG
+
+可以约会 ，但跟P系列有区别
+
+Relationships with party members is slightly different from Persona. There are more traditional RPG elements in some character interactions.
+<img src="https://p.sda1.dev/17/f8da61cd5963ee2cf99525c42e624705/IMG_20240423_205417.jpg" referrerpolicy="no-referrer">
+

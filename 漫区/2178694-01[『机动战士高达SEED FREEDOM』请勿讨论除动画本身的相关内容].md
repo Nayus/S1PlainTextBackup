@@ -7796,3 +7796,32 @@ IJ系也就这样了，魔蟹都能卖还能怪谁，所以这么多年反正不
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黑夜守望者  
+##### 625#       发表于 2024-4-23 13:54
+
+万代：想啥呢，ft这逼嘴我堵不上，他手难道我还废不了（指片子审核把关）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜守望者  
+##### 626#       发表于 2024-4-23 13:55
+
+ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 627#       发表于 2024-4-23 13:57
+
+<blockquote>引用第619楼oi99o于2024-04-23 08:40发表的  :
+
+澳门就英皇葡京人和CGV影院（星皓广场）两家上映</blockquote>
+@oi99o
+
+還有永樂戲院和銀河戲院，大會堂估計也上，基本全部戲院都能看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

@@ -4447,3 +4447,59 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 画面里到处在飘的那些东西是什么啊也没说，本来就够杂乱了还搞一堆这种没用的设计
 
+
+*****
+
+####  抽烟的猴  
+##### 340#       发表于 2024-4-23 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64693393&amp;ptid=2140224" target="_blank">一夜秋风袭锦城 发表于 2024-4-23 18:37</a>
+
+上来就是种族平等了吗？P组居然能做这么烂俗的题材吗？</blockquote>
+烂俗的不是p系列高中生劈腿泡妞吗，但是人民群众就喜欢这个
+
+种族平等太不接地气了，不看好
+
+*****
+
+####  抽烟的猴  
+##### 341#       发表于 2024-4-23 22:41
+
+不过感觉建模问题更大点
+
+高情商：三十年前的复古感
+
+0f77521fd2e49192b0f19dbbfe32fd15.jpg
+(265.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 22:40 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/224056dcc111x1qpx1c31x.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  寂长无星夜  
+##### 342#       发表于 2024-4-23 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">国区不会也478吧
+
+*****
+
+####  卡拉德利姆  
+##### 343#       发表于 2024-4-23 22:43
+
+我只是想知道当年那个红发精灵女剑士的概念图是怎么变成现在这屌样的
+
+*****
+
+####  AeonsTorn  
+##### 344#       发表于 2024-4-23 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695825&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-4-23 22:43</a>
+
+我只是想知道当年那个红发精灵女剑士的概念图是怎么变成现在这屌样的</blockquote>
+按舅舅的说法19年开始正式开发的话，那从17年公布开始算的那两年工作全都推翻了呗
+

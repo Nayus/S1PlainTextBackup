@@ -7885,3 +7885,15 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">修罗和金毛很牛逼不是FT一直在说的嘛，虽然贴吧天天鞭策这俩角色....
 
+
+*****
+
+####  晴岚  
+##### 634#       发表于 2024-4-23 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695440&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-23 22:06</a>
+福田这样还要踩一脚，黑骑士和飞升战斗的时候飞升表现过强也要改一下，感觉在福田看来基拉是肯定打不过修罗 ...</blockquote>
+毕竟对面设定就压了基拉这种初代调整者一头啊，连二代调整者的阿斯兰都比不过呢。至于为什么基拉赢了我就不知道了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

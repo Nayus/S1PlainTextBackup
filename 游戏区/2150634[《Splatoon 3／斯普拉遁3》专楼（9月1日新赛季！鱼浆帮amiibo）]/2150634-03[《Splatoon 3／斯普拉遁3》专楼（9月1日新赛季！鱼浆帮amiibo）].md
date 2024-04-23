@@ -12421,3 +12421,17 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 我是一直苦于大炮局有些柱子就是死活打不到，搞得我有时候不敢上炮了，应该不会和灵敏度有关吧.......
 
+
+*****
+
+####  KBAC  
+##### 4213#       发表于 2024-4-23 22:42
+
+ 本帖最后由 KBAC 于 2024-4-23 22:44 编辑 
+
+[https://music.163.com/song?id=2006472461&amp;userid=78030657](https://music.163.com/song?id=2006472461&amp;userid=78030657)
+
+00:52 异 界 卡 农
+
+任 天 堂 抄 袭 门<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

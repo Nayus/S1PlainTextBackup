@@ -4349,3 +4349,21 @@ Relationships with party members is slightly different from Persona. There are m
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  HATENA  
+##### 329#       发表于 2024-4-23 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694737&amp;ptid=2140224" target="_blank">alviaze 发表于 2024-4-23 20:44</a>
+
+那我缺的纸片人老婆从哪里补啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从皇家版补
+
+*****
+
+####  被击坠王  
+##### 330#       发表于 2024-4-23 21:40
+
+连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼
+

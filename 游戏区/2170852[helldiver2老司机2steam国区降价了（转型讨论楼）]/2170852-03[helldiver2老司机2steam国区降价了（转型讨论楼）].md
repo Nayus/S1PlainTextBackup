@@ -2819,3 +2819,14 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Mr.Hopp  
+##### 3231#       发表于 2024-4-23 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64684859&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-23 03:12</a>
+
+ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先级很高，鬼知道它会不会神经枪一炮给你秒了。 ...</blockquote>
+不仅仅ATST,连红翅膀的基础兵都能秒你。
+

@@ -4178,3 +4178,11 @@ UI设计又是一次大进步
 奔着红毛早见去的，看PV里躺了，不会真的挂了吧？ ...</blockquote>
 这次pv一股be味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主角关键道具书都落入唯一指定大反派？手里了
 
+
+*****
+
+####  依存香炉  
+##### 313#       发表于 2024-4-23 15:40
+
+玩了p5t和灵魂骇客2 感觉atlus这公司有时候完全不是人
+

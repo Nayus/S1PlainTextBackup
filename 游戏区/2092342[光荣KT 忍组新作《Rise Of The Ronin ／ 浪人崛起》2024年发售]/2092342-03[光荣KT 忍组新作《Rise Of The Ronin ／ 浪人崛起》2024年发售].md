@@ -1602,3 +1602,23 @@ pro快出了现在买有点亏啊</blockquote>
 满级后100级极品装备去哪里刷？武器反应攻击力里的四维应该如何取舍？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别刷了吧，按仁王尿性出DLC搞不好让你重刷一遍
 
+
+*****
+
+####  nagitoY  
+##### 3124#       发表于 2024-4-23 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64683508&amp;ptid=2092342" target="_blank">无攻不受鹿 发表于 2024-4-22 22:57</a>
+
+别刷了吧，按仁王尿性出DLC搞不好让你重刷一遍</blockquote>
+现在一身装备都是做任务捡的，词条也没弄。打“盟友们”，死在以藏那一对，药吃完了弹尽粮绝，后面还有完全体龙马和搭档。不搞下装备容错太低了。
+
+*****
+
+####  彩虹肥宅  
+##### 3125#       发表于 2024-4-23 09:00
+
+猿叫 捕蜻蜓这个招数太快乐了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

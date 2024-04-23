@@ -1794,3 +1794,16 @@ PU角色暫時還沒有新增強化任務
 就是你甚至经常忘了她是个蓝拐……</blockquote>
 我日常甚至用水武后都不用女梅林，而且现在还多了个正雪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12160#       发表于 2024-4-23 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682254&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-22 20:49</a>
+
+紧急推完了魔夜主线，其他有时间再细品，简单说一下个人感受就是：看得出来确实是菌类早期的作品
+
+最大的问 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小说版日常的部分更少，因为整个学园戏都是AVG版加出来的（菌提过金鹿鸢丸是小说版没有的角色）
+

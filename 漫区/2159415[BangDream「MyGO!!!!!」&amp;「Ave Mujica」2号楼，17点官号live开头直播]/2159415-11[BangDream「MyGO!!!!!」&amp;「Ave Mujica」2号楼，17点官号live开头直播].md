@@ -13017,3 +13017,21 @@ BD如果不要店特的话倒是可以闲鱼收一份便宜的，我收的今天
 
 虽然收了其实还是看下载版……画面似乎问题不大，视频渲染器设置成内置D3D9，光暗就差不多正常了。
 
+
+*****
+
+####  御幸一也  
+##### 15962#       发表于 2024-4-23 23:38
+
+韓國人太會畫海鈴了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/23/233801q1a98z94621qf4q2.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_아작(@_A_jak_)_20240423-135215_1782769457326121027_photo.jpg</strong> (222.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 23:38 上传
+
+[https://twitter.com/_A_jak_/status/1782769457326121027](https://twitter.com/_A_jak_/status/1782769457326121027)
+

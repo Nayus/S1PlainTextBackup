@@ -3021,3 +3021,14 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 最近直播看得多，有点想玩，但是好奇有入坑时机这种东西嘛，自己一个人玩会不会一头雾水<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 3248#       发表于 2024-4-23 14:29
+
+ 本帖最后由 6x6z6w 于 2024-4-23 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689923&amp;ptid=2170852" target="_blank">Fake_news 发表于 2024-4-23 14:18</a>
+最近直播看得多，有点想玩，但是好奇有入坑时机这种东西嘛，自己一个人玩会不会一头雾水 ...</blockquote>
+现在入坑正好，光能族还没出，战事在发酵，没准你还能赶上一次麦河级别的狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+

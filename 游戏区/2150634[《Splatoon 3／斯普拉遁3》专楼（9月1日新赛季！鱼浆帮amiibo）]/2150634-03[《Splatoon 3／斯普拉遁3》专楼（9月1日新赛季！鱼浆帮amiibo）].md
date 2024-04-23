@@ -12347,3 +12347,17 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 【【Splat ...</blockquote>
 -4.5 有点过于难了，不过我记得他平时用的好像也是大概-1.5这样。不过我自己用小枪，刚开始也挺迷茫的大家都用什么55配置，不过时间长了适应下来我现在小绿也是-1.5，还挺舒服的。
 
+
+*****
+
+####  hisousihou  
+##### 4206#       发表于 2024-4-23 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64683975&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-4-22 23:57</a>
+
+1600小时不知道超级跳，不知道碳酸能摇，还玩贴牌绿桶
+
+求求老任下次把新手教学做明显点直观点，大猫那个感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明喷喷真的很休闲，随手刷到过好多个挂着自称萌新的说明打喷的，一看都是玩了一百多小时还这不知道那不知道的，主打一个随意
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">虽说我以前也差不多。这游戏的教学确实很不到位，太多靠本能的人了
+

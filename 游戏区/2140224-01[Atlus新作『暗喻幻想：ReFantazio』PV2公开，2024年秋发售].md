@@ -4503,3 +4503,33 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 我只是想知道当年那个红发精灵女剑士的概念图是怎么变成现在这屌样的</blockquote>
 按舅舅的说法19年开始正式开发的话，那从17年公布开始算的那两年工作全都推翻了呗
 
+
+*****
+
+####  baizhi  
+##### 345#       发表于 2024-4-23 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这合理吗？是不是风格不同的原因，怎么感觉比P3重置差多了。。。
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AeonsTorn  
+##### 346#       发表于 2024-4-23 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696264&amp;ptid=2140224" target="_blank">baizhi 发表于 2024-4-23 23:25</a>
+
+这合理吗？是不是风格不同的原因，怎么感觉比P3重置差多了。。。
+
+—— 来自 OPPO PGBM10, Android  ...</blockquote>
+毕竟p3r上了新引擎，能期待之后的加强版变成用新引擎的hd版吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 347#       发表于 2024-4-23 23:32
+
+感觉人设不得劲阿副岛，隔壁多种族圣兽之王那批发XP，这边反而没什么喜闻乐见的要素
+

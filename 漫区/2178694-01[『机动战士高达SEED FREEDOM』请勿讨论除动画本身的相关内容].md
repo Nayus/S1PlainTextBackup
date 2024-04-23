@@ -7947,3 +7947,17 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 639#       发表于 2024-4-24 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697202&amp;ptid=2178694" target="_blank">wenze 发表于 2024-4-24 01:43</a>
+只能说如今的代哥虽然肯定是认为能赚钱的人更重要，但是如果这个人阻碍代哥赚更多的钱，那就也不重要了[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">难道代哥以前就觉得赚钱不重要吗。
+
+而且复国的时间在ta前还是后真的会影响赚钱吗（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

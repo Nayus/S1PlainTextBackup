@@ -3063,3 +3063,89 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 不仅仅ATST,连红翅膀的基础兵都能秒你。</blockquote>
 秒倒不至于，除了自爆兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kalavinka  
+##### 3252#         楼主| 发表于 2024-4-23 17:37
+
+一些新解包
+
+<img src="https://img.saraba1st.com/forum/202404/23/173432w6d06dozm6d8qu3d.jpg" referrerpolicy="no-referrer">
+
+<strong>0ddfcf22720e0cf35315f8c74c46f21fbf09aabe.jpg</strong> (26.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:34 上传
+
+火箭弹坦克<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/23/173502bi7qgzqqwx544iv7.jpg" referrerpolicy="no-referrer">
+
+<strong>f6ed5b338744ebf89593d2039ff9d72a6159a7be.jpg</strong> (28.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:35 上传
+
+载具，任务里可以看到残骸，有驾驶功能和占位符，不清楚是否为新战备
+
+<img src="https://img.saraba1st.com/forum/202404/23/173732p2ogwlulguwoexen.jpg" referrerpolicy="no-referrer">
+
+<strong>未标题-2.jpg</strong> (112.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:37 上传
+
+依次为着甲战士+祭祀+高级三足
+
+
+*****
+
+####  kalavinka  
+##### 3253#         楼主| 发表于 2024-4-23 17:41
+
+还有几把枪
+
+<img src="https://img.saraba1st.com/forum/202404/23/174113grn3lzmw9wvhzkv5.jpg" referrerpolicy="no-referrer">
+
+<strong>0ddfcf22720e0cf35670fdc74c46f21fbf09aa91.jpg</strong> (59.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/174113v4wf5hgwm5f20pdi.jpg" referrerpolicy="no-referrer">
+
+<strong>2b8d6df33a87e950aae9405056385343faf2b49a.jpg</strong> (53.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/174113al1ono28p8l82ok2.jpg" referrerpolicy="no-referrer">
+
+<strong>4c84e4de9c82d1582508ea8dc60a19d8bd3e4296.jpg</strong> (60.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/174113evlw8zu6feq1616v.jpg" referrerpolicy="no-referrer">
+
+<strong>91bed044ebf81a4cdccf5ff5912a6059242da69f.jpg</strong> (63.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/174113uqslsaaeallc8z8l.jpg" referrerpolicy="no-referrer">
+
+<strong>b5b9639b033b5bb55e5793c270d3d539b700bc9c.jpg</strong> (61.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 17:41 上传
+

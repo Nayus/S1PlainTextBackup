@@ -12781,3 +12781,13 @@ GLgzX0JbUAAJ19l.jpg
 独角兽出走，会不会和老钟有关。武士道都倒贴B站成那样了，B站还是不肯买下MYGO，可能就是因为按这边的标准 ...</blockquote>
 老中人真能爆米，早几年b站爆买的时候就改爆了，也不会等到日本人去欧美掘金才发现原来老中市场根本不重要
 
+
+*****
+
+####  枫林不见  
+##### 15939#       发表于 2024-4-23 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64684391&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-23 00:43</a>
+都邦邦了能黑深残到哪里去，就算是隔壁少歌DJ也顶多来点孤儿或者自残什么的，独角兽真想学师父大河内来点黑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">本扭曲祥厨就想看到祥子爆顶压力结果在手臂上自残被家人侠喵梦看到直接狠狠的治愈
+

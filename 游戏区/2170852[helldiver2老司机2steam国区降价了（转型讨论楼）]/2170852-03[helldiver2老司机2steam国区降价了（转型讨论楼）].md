@@ -2838,3 +2838,11 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被机枪奇袭，固定机枪，指挥碉堡秒可是司空见惯
 
+
+*****
+
+####  Kojimaru  
+##### 3233#       发表于 2024-4-23 08:48
+
+是不是全世界的玻璃心白皮都来玩这游戏，老司机2告诉你野排房主的1000000种踢人理由<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

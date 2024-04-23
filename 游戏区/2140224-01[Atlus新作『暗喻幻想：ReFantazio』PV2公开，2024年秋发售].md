@@ -3510,3 +3510,43 @@ dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image
 
 致敬传奇rpg黎之轨迹
 
+
+*****
+
+####  星野航  
+##### 240#       发表于 2024-4-23 08:47
+
+ 本帖最后由 星野航 于 2024-4-23 09:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685549&amp;ptid=2140224" target="_blank">黑上シグマ 发表于 2024-4-23 09:33</a>
+今晚是イソッチ和光头的扯淡节目，不会有新情报的
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+感觉这俩人也没啥好聊，看错 桥野桂不来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  斯托雷加  
+##### 241#       发表于 2024-4-23 08:50
+
+期待！但是我想知道南条爱乃到底是哪个角色！好久都没看到南酱的作品了
+
+
+*****
+
+####  菟原手兒奈  
+##### 242#       发表于 2024-4-23 08:56
+
+好像没太多吸引力啊，今年除了SMT5V外还有什么值得期待的jrpg吗？
+
+*****
+
+####  57042711  
+##### 243#       发表于 2024-4-23 08:57
+
+主角的目标居然是众生平等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

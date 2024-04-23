@@ -2981,3 +2981,13 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  WGTCorp  
+##### 3244#       发表于 2024-4-23 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687693&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-4-23 11:18</a>
+压黄烟的时候最准，平时被包围了应急这种炸一条线的肯定不好使，不如丢摔炮 ...</blockquote>
+集束扔脚下斜着跑；空袭侧身扔脚下稍微斜着点跑；空爆就有点危险，扔原地不一定能跑开，脸黑还是会被炸到，可能得扔在身后一点的位置。
+

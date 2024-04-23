@@ -3984,3 +3984,20 @@ imas体重有参考价值吗？怎么身高148的和161的一个体重</blockquo
 
 买了油 管广告吧，记得那个也算播放量
 
+
+*****
+
+####  グラフ  
+##### 3335#       发表于 2024-4-23 22:11
+
+ 歌单制作第二期活动开始了，本活动希望大家就特定主题从IM@S各个企划中提名歌曲，最后组成歌单，让大家了解其他企划的优秀曲目。本次主题为 <strong>假日，</strong> 4/28 截止。
+填写表格：[腾讯文档]IM@S Playlist Maker Vol.2[假日]  [https://docs.qq.com/form/page/DWnlHbUhGckh2b1Zl](https://docs.qq.com/form/page/DWnlHbUhGckh2b1Zl)
+
+结果一览：[腾讯文档]IMSPlaylistMakerVol2假日(收集结果)  [https://docs.qq.com/sheet/DWmdzekxzZm9DS3hR?tab=ss_87qqxk](https://docs.qq.com/sheet/DWmdzekxzZm9DS3hR?tab=ss_87qqxk) 
+
+历史活动
+
+Vol.0 【春游】 [https://docs.qq.com/sheet/DWklWS ... ps16&amp;viewId=fv1](https://docs.qq.com/sheet/DWklWSWV1VUFYQkJK?tab=ss_jrps16&amp;viewId=fv1)
+
+Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;viewId=fv1](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca&amp;viewId=fv1)
+

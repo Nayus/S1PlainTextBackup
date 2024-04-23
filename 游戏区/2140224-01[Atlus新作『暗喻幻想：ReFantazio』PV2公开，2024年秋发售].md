@@ -4399,3 +4399,29 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 大概是P系列看多了，这色调看起来有点土啊
 
+
+*****
+
+####  Philister  
+##### 334#       发表于 2024-4-23 22:10
+
+画面真的好脏，有种碰一下就能沾一手颜料的感觉，UI还一直蠕动<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  528599244  
+##### 335#       发表于 2024-4-23 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695479&amp;ptid=2140224" target="_blank">Philister 发表于 2024-4-23 22:10</a>
+
+画面真的好脏，有种碰一下就能沾一手颜料的感觉，UI还一直蠕动</blockquote>
+高情商：画面有种重力少女的美（我个人其实还算喜欢，就是城镇里全是这样的房子太难蚌了）
+
+
+*****
+
+####  洛亚替身  
+##### 336#       发表于 2024-4-23 22:15
+
+脏兮兮的蒸汽和工业革命风果然只适合俯视角crpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3908,3 +3908,20 @@ P系列卖得好 就是因为他格局够小 更接地气
 战斗和故事什么的随意吧，Atlus主要是玩角色 ...</blockquote>
 前面那色调确实不太讨喜，不过看到后面有几个场景色调看着就很漂亮很舒服希望不是背景板而是能实际跑图的吧
 
+
+*****
+
+####  黑修士  
+##### 285#       发表于 2024-4-23 11:23
+
+看完实机解说再回看第一段预告，感觉被官方剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 286#       发表于 2024-4-23 11:26
+
+剧情看着是那种大逃杀类型的，很适合当前环境就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

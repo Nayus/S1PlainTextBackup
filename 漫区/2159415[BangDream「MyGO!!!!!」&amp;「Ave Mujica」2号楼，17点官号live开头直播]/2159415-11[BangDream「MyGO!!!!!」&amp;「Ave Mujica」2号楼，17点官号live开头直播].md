@@ -12811,3 +12811,11 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  NODY  
+##### 15941#       发表于 2024-4-23 11:24
+
+大航海模式看来是因为赚太少被b站ban了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

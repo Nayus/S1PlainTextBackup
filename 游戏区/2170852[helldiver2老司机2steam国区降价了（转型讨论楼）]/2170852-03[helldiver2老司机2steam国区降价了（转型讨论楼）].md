@@ -2954,3 +2954,30 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  丹德里恩  
+##### 3242#       发表于 2024-4-23 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64687209&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-23 10:46</a>
+
+这玩意给我感觉是炸队友范围挺大炸虫子就炸不到
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压黄烟的时候最准，平时被包围了应急这种炸一条线的肯定不好使，不如丢摔炮
+
+
+*****
+
+####  Ashice  
+##### 3243#       发表于 2024-4-23 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686268&amp;ptid=2170852" target="_blank">nbwjh0630 发表于 2024-4-23 09:38</a>
+虫族单走目前个人感觉最全能的，还是爆弹枪+救世主+激光狗+类星体，手雷震撼弹或烟雾弹。
+
+爆弹枪赋予了披风 ...</blockquote>
+空袭的最大问题是卡500k**啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

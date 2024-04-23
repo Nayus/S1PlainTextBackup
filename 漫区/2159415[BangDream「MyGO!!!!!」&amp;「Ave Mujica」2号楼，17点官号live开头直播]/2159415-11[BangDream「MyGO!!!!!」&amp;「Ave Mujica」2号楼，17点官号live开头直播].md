@@ -12969,3 +12969,14 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 3500出乎意料得高，毕竟BD实际上已经和CD打包卖过一次了
 
+
+*****
+
+####  紫吹兰  
+##### 15957#         楼主| 发表于 2024-4-23 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64691927&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-4-23 16:42</a>
+
+居然能卖三千多，中华炮威力恐怖如斯</blockquote>
+这个应该没算萌购
+

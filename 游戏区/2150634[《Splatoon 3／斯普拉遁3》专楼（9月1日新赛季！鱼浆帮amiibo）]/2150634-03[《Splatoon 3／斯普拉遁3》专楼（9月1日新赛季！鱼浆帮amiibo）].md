@@ -12399,3 +12399,15 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">草，今天那个四模式全一红双大哥居然也是-4.5体感，什么神仙
 
+
+*****
+
+####  罗克萨斯  
+##### 4211#       发表于 2024-4-23 20:23
+
+看到过-5感度玩审查者和竹子的，非常不可思议
+
+个人极限是-2，再高真的转不过来了，特想知道超低感度非长狙玩家的手元动画，好学习下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

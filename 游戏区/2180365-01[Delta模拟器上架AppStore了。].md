@@ -1138,3 +1138,22 @@ ppsspp有希望吗 想重玩机战</blockquote>
 
 nds怎么旋转屏幕玩黄昏旅馆，手机旋转也不对。还有屏幕怎么放大现在体验很差
 
+
+*****
+
+####  泥潭办证先锋  
+##### 99#       发表于 2024-4-23 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682671&amp;ptid=2180365" target="_blank">notromeo 发表于 2024-4-22 21:31</a>
+
+这模拟器有电脑版的吗</blockquote>
+可以直接在商店下iOS版，就是不能随意缩放窗口，要么小窗要么全屏。
+
+<img src="https://img.saraba1st.com/forum/202404/23/202217eiu4juvvg8uufs14.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (968.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 20:22 上传
+

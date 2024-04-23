@@ -3995,3 +3995,18 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 还是没啥看对眼的女角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Soap  
+##### 293#       发表于 2024-4-23 12:18
+
+战斗還是真三那套
+
+*****
+
+####  Rainwedell  
+##### 294#       发表于 2024-4-23 12:21
+
+pv3感觉有点乱，没前两个pv好
+

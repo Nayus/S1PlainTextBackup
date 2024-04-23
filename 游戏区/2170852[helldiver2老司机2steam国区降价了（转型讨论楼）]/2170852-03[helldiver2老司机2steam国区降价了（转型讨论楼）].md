@@ -2991,3 +2991,14 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 压黄烟的时候最准，平时被包围了应急这种炸一条线的肯定不好使，不如丢摔炮 ...</blockquote>
 集束扔脚下斜着跑；空袭侧身扔脚下稍微斜着点跑；空爆就有点危险，扔原地不一定能跑开，脸黑还是会被炸到，可能得扔在身后一点的位置。
 
+
+*****
+
+####  dfbbymice  
+##### 3245#       发表于 2024-4-23 12:26
+
+打虫子还是飞鹰空袭和500最实用，主要还是用来炸巢和重甲，有多余空位的我才会选择其他空袭方式。
+不过防守图当然是380+120不做人啦<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -12791,3 +12791,23 @@ GLgzX0JbUAAJ19l.jpg
 都邦邦了能黑深残到哪里去，就算是隔壁少歌DJ也顶多来点孤儿或者自残什么的，独角兽真想学师父大河内来点黑 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">本扭曲祥厨就想看到祥子爆顶压力结果在手臂上自残被家人侠喵梦看到直接狠狠的治愈
 
+
+*****
+
+####  1a不解释  
+##### 15940#       发表于 2024-4-23 11:05
+
+Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
+将在4月29日(星期一)举办！直播票在eplus即将开售！
+回看截至：5月6日 22:59
+
+此外，在bilibili将会以充电专属视频的形式,
+为大家带来延迟播出！
+充电挡位：288元（包月充电238元）
+字幕版预定时间：4月30日 12:00 ～ 5月6日 22:59
+※无字幕版的上传时间将根据当日情况进行调整
+
+详情请期待后续情报！
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

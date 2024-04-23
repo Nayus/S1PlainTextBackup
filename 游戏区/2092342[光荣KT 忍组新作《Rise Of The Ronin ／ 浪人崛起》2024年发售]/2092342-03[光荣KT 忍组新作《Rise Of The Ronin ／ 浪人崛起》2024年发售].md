@@ -1687,3 +1687,11 @@ pro快出了现在买有点亏啊</blockquote>
 
 另外堆幸运体感不会增加多少黄品质词条，盟友任务甚至不给任何红色装备保底，效率可能还不如背刺路边的野生流氓呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zwt21  
+##### 3132#       发表于 2024-4-24 07:19
+
+想问下各位老哥，红色超忍刀有固定任务能刷吗？
+

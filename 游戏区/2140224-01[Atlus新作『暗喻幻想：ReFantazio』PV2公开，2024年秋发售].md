@@ -4131,3 +4131,21 @@ steam已经有了啊</blockquote>
 
 UI设计又是一次大进步
 
+
+*****
+
+####  Swss  
+##### 308#       发表于 2024-4-23 14:07
+
+总感觉，看到了格里菲斯？<img src="https://static.saraba1st.com/image/smiley/carton2017/363.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zet  
+##### 309#       发表于 2024-4-23 14:14
+
+看完就准备预购豪华版了
+
+奔着红毛早见去的，看PV里躺了，不会真的挂了吧？
+

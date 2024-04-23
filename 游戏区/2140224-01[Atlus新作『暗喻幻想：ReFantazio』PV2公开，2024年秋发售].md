@@ -4020,3 +4020,24 @@ pv3感觉有点乱，没前两个pv好
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  AeonsTorn  
+##### 296#       发表于 2024-4-23 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689073&amp;ptid=2140224" target="_blank">牙狼GARO 发表于 2024-4-23 12:56</a>
+
+现在只有ps5版么，后面还是会上pc吧？888hk可太贵了，以后加强版肯定还会有
+
+—— 来自 OnePlus LE2100, An ...</blockquote>
+steam已经有了啊
+
+
+*****
+
+####  operatbig  
+##### 297#       发表于 2024-4-23 13:05
+
+女队友太少了吧...
+

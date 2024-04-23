@@ -71,3 +71,19 @@ xs 星小子叒不长记性
 
 叶子这一退，最小丑的还得是杨姐，杨姐都进567那个houou播了半年了，因为叶子进星律动自己下定决心也退了跟着进了星律动，结果还没多久星律动就炸了，最后还是杨姐拖着叶子和卡姐到处找人谈，社团好进但是常驻3D太难，就为了叶子和某些星小子心心念念的3D，最后还是求到了567手上，结果这还没一年，叶子就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">杨姐都三十一二了吧，估计这么一搞，心气都没了
 
+
+*****
+
+####  喜闻乐见  
+##### 3357#         楼主| 发表于 2024-4-23 15:22
+
+<img src="https://img.saraba1st.com/forum/202404/23/152144yat7n3aqp93haqut.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 15:21 上传
+
+回看发现也能go
+

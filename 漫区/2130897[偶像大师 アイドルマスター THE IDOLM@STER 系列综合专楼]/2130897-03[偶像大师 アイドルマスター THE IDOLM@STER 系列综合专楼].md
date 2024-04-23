@@ -3910,3 +3910,31 @@ imas体重有参考价值吗？怎么身高148的和161的一个体重</blockquo
 
 黄色打工妹可爱，支持打工妹战胜数值怪
 
+
+*****
+
+####  Genkishi  
+##### 3327#       发表于 2024-4-23 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好想看小红吃瘪的样子
+
+
+*****
+
+####  patema  
+##### 3328#       发表于 2024-4-23 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64683818&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-4-22 23:34</a>
+
+想出录制差分的staff感觉可以鲨了
+
+以及广lv1这真别似训练房里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">不挺好的，广的lv1我看的笑疯了好吗
+
+*****
+
+####  patema  
+##### 3329#       发表于 2024-4-23 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小黄我个人觉得人气能不能超小红不好说，2创大概率是可以超的，特别是下三路二创
+

@@ -4157,3 +4157,11 @@ UI设计又是一次大进步
 
 玩肯定是要玩的，不过玩完真5甚至P3再玩这个会不会有既视感太强的疲劳感？
 
+
+*****
+
+####  walfeds  
+##### 311#       发表于 2024-4-23 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说系统面的话这游戏有桥野哥哥全家桶的既视感，真3p345乃至dds葛叶
+

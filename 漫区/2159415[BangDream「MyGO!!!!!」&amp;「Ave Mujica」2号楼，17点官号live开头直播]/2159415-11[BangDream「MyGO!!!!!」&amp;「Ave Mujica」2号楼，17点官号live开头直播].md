@@ -12909,3 +12909,16 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 为什么下卷数量比上卷多
 
+
+*****
+
+####  明内幽  
+##### 15951#       发表于 2024-4-23 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64691525&amp;ptid=2159415" target="_blank">米拉苏尔 发表于 2024-4-23 16:13</a>
+
+为什么下卷数量比上卷多</blockquote>
+因为下卷送春日影钢琴版本来着？反正就和春日影相关<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+所以可以从中猜测国区买bd占比<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -4285,3 +4285,11 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那我缺的纸片人老婆从哪里补啊
 
+
+*****
+
+####  siansian  
+##### 324#       发表于 2024-4-23 20:48
+
+我对成品质量其实并不是太过悲观，毕竟现在的atlus要是连游戏都做不好那确实没有存在的必要了
+

@@ -4277,3 +4277,11 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节�
 
 本作虽然有类似于《女神异闻录3》《女神异闻录4》COMMU、《女神异闻录5》COOP的系统，即今早PV中展示的与“支持者”的交流，但主角与各位支持者角色并不会发展为恋爱关系。不过随着与支持者感情加深，会解锁各种支线剧情从而加深对整个游戏故事的了解。
 
+
+*****
+
+####  alviaze  
+##### 323#       发表于 2024-4-23 20:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那我缺的纸片人老婆从哪里补啊
+

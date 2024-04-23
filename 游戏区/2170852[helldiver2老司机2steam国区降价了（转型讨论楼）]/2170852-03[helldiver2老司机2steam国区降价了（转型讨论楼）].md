@@ -3216,3 +3216,20 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 3262#       发表于 2024-4-23 20:38
+
+你游DMR有什么存在的必要吗，除非加弹链插件不然狗才玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3263#       发表于 2024-4-23 20:41
+
+除开投石机弹速和没有高倍率瞄具，主宰玩起来都更像dmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

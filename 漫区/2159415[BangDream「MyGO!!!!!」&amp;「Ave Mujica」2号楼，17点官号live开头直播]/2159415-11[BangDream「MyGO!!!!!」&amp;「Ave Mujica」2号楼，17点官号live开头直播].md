@@ -13044,3 +13044,16 @@ BD如果不要店特的话倒是可以闲鱼收一份便宜的，我收的今天
 微博@海胆UNiiiii
 <img src="https://p.sda1.dev/17/62ee810f1c54928712237d2d51d8c757/CMP_20240424001841868.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暁美ほむら  
+##### 15964#       发表于 2024-4-24 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694325&amp;ptid=2159415" target="_blank">未熟串烧 发表于 2024-4-23 20:05</a>
+
+BD如果不要店特的话倒是可以闲鱼收一份便宜的，我收的今天到了。
+
+虽然收了其实还是看下载版……画面似乎问 ...</blockquote>
+等等？这次的BD有质量问题？
+

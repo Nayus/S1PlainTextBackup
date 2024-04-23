@@ -4597,3 +4597,11 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 p3re那是新引擎，这作是老引擎磨洋工（游戏晚发售两年就容易跟不上时代，UI看起来也不是御用须藤）出来的游戏
 
+
+*****
+
+####  Piano-Forest  
+##### 354#         楼主| 发表于 2024-4-24 00:48
+
+“Battle Theme”试听：[https://youtu.be/n3m-imqEmWE](https://youtu.be/n3m-imqEmWE)
+

@@ -7835,3 +7835,15 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 ----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  晴岚  
+##### 629#       发表于 2024-4-23 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">按楼上某位坛友都说法不是说万代会支持福田口嗨把阿斯兰最强这个设定加进去吗。
+
+虽然以前就有g复国时间前后跟富野有冲突，是时候看富野跟福田谁的地位在万代心里更高了！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

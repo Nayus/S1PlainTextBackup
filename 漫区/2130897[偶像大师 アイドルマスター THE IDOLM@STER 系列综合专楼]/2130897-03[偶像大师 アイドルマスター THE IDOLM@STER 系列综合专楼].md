@@ -3948,3 +3948,23 @@ imas体重有参考价值吗？怎么身高148的和161的一个体重</blockquo
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anatoly  
+##### 3331#       发表于 2024-4-23 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实你要说都是LV10（按照之前泄露标准），手球在九个人里也算最好的那个了
+
+但还是不太够能听啊，希望真有Lv15吧
+
+目前火的几个也都是人物属性比较不错的，手球这种目前看蓝C标配的结构真不太行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是为了里蓝的设计和学马仕的成长要素不能整成熟系的？
+
+*****
+
+####  sliver1997  
+##### 3332#       发表于 2024-4-23 15:56
+
+**上学马仕角色 pv 最低也有 80w 播放，有点怀疑万南是不是买播放了，我们爱马仕不是糊糊企划吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

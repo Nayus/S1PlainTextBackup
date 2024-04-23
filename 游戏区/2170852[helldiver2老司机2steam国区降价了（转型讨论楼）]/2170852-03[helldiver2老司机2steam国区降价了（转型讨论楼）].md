@@ -3042,3 +3042,13 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 现在入坑正好，光能族还没出，战事在发酵，没准你还能赶上一次麦河级别的狂欢 ...</blockquote>
 也好，等发钱了就买<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.BBWoLf  
+##### 3250#       发表于 2024-4-23 15:53
+
+群里看到个视频利用爆裂铳爆炸吸把自己吸上高地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

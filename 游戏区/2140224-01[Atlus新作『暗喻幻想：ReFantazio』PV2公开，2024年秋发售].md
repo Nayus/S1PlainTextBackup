@@ -3550,3 +3550,51 @@ dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  takayama  
+##### 244#       发表于 2024-4-23 09:10
+
+总觉得这些角色中肯定有个阿饼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有就是也差不多可以公布南条的角色了吧
+
+—— 来自 HUAWEI JER-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nancygreenlife  
+##### 245#       发表于 2024-4-23 09:11
+
+即时战斗做不到那么精致了，看起来打击感啥的都很一般
+
+*****
+
+####  nage560  
+##### 246#       发表于 2024-4-23 09:11
+
+加台萝卜感觉就是丹拜恩的RPG版那味了，一直蛮期待能来个丹拜恩那种世界观的rpg，这次请元千岁来唱歌了吗？还有提P5S的，还有暗荣能设计出这么时髦的设定和世界观？卖相就差了十万八千里了。本来前2个PV无什么欲望买的，这卖相这下真有点想玩了。
+
+
+*****
+
+####  ff2077  
+##### 247#       发表于 2024-4-23 09:14
+
+这系统是不是能说句法老控遥遥领先了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  u2deack  
+##### 248#       发表于 2024-4-23 09:15
+
+这么早就出啊还以为要到十一月之类的  
+
+*****
+
+####  Redimercia  
+##### 249#       发表于 2024-4-23 09:17
+
+就这个讲解的内容怎么感觉还没真v好玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

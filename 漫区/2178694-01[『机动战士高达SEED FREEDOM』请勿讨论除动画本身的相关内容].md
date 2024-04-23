@@ -7897,3 +7897,19 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwemiku  
+##### 635#       发表于 2024-4-23 22:54
+
+機動戦士ガンダムSEED 』シリーズ メモリアルCD-BOX
+
+中首次收录的观星者OVA的原声带，作曲者为大橋 恵
+
+『機動戦士ガンダムSEED C.E.73 -STARGAZER-』オリジナルサウンドトラック
+
+[https://pan.baidu.com/s/1pGZ8RNj701smBg41POGW-Q](https://pan.baidu.com/s/1pGZ8RNj701smBg41POGW-Q)
+
+码：tvqi 
+

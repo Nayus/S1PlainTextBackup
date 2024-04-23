@@ -4114,3 +4114,20 @@ steam已经有了啊</blockquote>
 
 这企划，从17年开始期待的人和从23年开始期待的人现在的感受肯定是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starwarszjm  
+##### 306#       发表于 2024-4-23 14:03
+
+有目黑其实就足够我下单了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sopp  
+##### 307#       发表于 2024-4-23 14:05
+
+UI设计又是一次大进步
+

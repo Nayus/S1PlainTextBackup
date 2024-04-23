@@ -7825,3 +7825,13 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 ----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  gary76  
+##### 628#       发表于 2024-4-23 14:03
+
+還有一家最新的是金銀島酒店博納影城，在舊葡京對面
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

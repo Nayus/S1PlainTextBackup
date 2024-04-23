@@ -4210,3 +4210,11 @@ UI设计又是一次大进步
 
 这即时战斗的部分感觉还不如黎轨啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼热的小市民  
+##### 317#       发表于 2024-4-23 18:07
+
+不看好，我觉得外国市场对p系列评价高是喜欢扮演高中生那套。换皮还没多大创新的话不看好能爆。
+

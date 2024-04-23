@@ -3149,3 +3149,28 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 2024-4-23 17:41 上传
 
+
+*****
+
+####  九十九忍  
+##### 3254#       发表于 2024-4-23 18:06
+
+看这堆差分枪感觉是没改枪了
+
+*****
+
+####  Aeons  
+##### 3255#       发表于 2024-4-23 18:07
+
+真理正义爱国<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 3256#       发表于 2024-4-23 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这代正义搞不好还不如建构好用
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

@@ -4106,3 +4106,11 @@ steam已经有了啊</blockquote>
 
 这次要预定豪华版，p3r当时没预定高价吃了现货。
 
+
+*****
+
+####  AeonsTorn  
+##### 305#       发表于 2024-4-23 13:34
+
+这企划，从17年开始期待的人和从23年开始期待的人现在的感受肯定是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4605,3 +4605,19 @@ p3re那是新引擎，这作是老引擎磨洋工（游戏晚发售两年就容�
 
 “Battle Theme”试听：[https://youtu.be/n3m-imqEmWE](https://youtu.be/n3m-imqEmWE)
 
+
+*****
+
+####  topia  
+##### 355#       发表于 2024-4-24 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要红发女精灵可以去玩世界树x
+
+
+*****
+
+####  bwsusaga  
+##### 356#       发表于 2024-4-24 01:23
+
+音乐有一小段实在太像三房主题曲了。
+

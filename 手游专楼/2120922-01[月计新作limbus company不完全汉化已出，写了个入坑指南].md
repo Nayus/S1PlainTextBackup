@@ -45,3 +45,61 @@
 
 话说我以前挺希望萨瓦尔多老爷子能做为瓦夜的烧伤人格，因为喜欢天将拂晓这个技能名称...
 
+
+*****
+
+####  Jamaisvu  
+##### 650#       发表于 2024-4-23 16:52
+
+查了一下图书馆Wiki，菲辛/跑男辛/哭辛的技能来源预测：
+
+一技能：
+
+<img src="https://img.saraba1st.com/forum/202404/23/165059doxk7zhr7z6c2sxx.png" referrerpolicy="no-referrer">
+
+<strong>挺身而出.png</strong> (25.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:50 上传
+
+<img src="https://img.saraba1st.com/forum/202404/23/165059lzyhjzauyns8asno.png" referrerpolicy="no-referrer">
+
+<strong>愤怨烙印.png</strong> (24.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:50 上传
+
+感觉愤怒烙印的可能性大一些，挺身而出是绿卡不太够格吧...
+
+二技能：
+
+<img src="https://img.saraba1st.com/forum/202404/23/165137j72l3prvaptvfrh1.png" referrerpolicy="no-referrer">
+
+<strong>炽热之刃.png</strong> (27.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:51 上传
+
+三技能：
+
+<img src="https://img.saraba1st.com/forum/202404/23/165137kh2y92ywmy9s2mte.png" referrerpolicy="no-referrer">
+
+<strong>燃烧一击.png</strong> (26.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:51 上传
+
+反击：
+
+<img src="https://img.saraba1st.com/forum/202404/23/165138y85cdhc1eerrczcd.png" referrerpolicy="no-referrer">
+
+<strong>凤翎之盾.png</strong> (28.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:51 上传
+

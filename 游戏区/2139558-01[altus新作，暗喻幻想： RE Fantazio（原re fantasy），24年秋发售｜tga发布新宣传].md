@@ -108,3 +108,23 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部”节�
 
 谁来上的图，我记的最早以前的人设精灵小姐姐不是这样的好像比现在好看？？
 
+
+*****
+
+####  kyoto2016  
+##### 541#       发表于 2024-4-24 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694782&amp;ptid=2139558" target="_blank">线程召唤使 发表于 2024-4-23 20:48</a>
+
+谁来上的图，我记的最早以前的人设精灵小姐姐不是这样的好像比现在好看？？ ...</blockquote>
+这个？
+
+aec1d0889e510fb31201d0599c33c895d0430cf5.jpg
+(47.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/001820x4xxdfg2wef7rxd8.jpg" referrerpolicy="no-referrer">
+

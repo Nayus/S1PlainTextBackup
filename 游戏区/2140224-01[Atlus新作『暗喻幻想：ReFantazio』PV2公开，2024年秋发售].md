@@ -3745,3 +3745,56 @@ P系列卖得好 就是因为他格局够小 更接地气
 
 总感觉新作的评分会不如5V<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  汪达  
+##### 266#       发表于 2024-4-23 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686622&amp;ptid=2140224" target="_blank">SuNR1sE364 发表于 2024-4-23 10:06</a>
+
+空轨原版没有，这个系统是从零轨加进来的，反哺回了空EVO</blockquote>
+原来是这样，我说怎么好像自己失忆了，也不记得空轨有地图攻击啊
+
+*****
+
+####  洛亚替身  
+##### 267#       发表于 2024-4-23 10:18
+
+看上眼的居然只有皮克希小姐和金毛有角帅哥.......但愿皮克希有恋爱线，虽然那大小只能柏拉图（男性恋爱线估计没可能）
+
+除了建模差点卖相其实还行，应该是磨洋工久了建模没跟上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新世界的派蒙  
+##### 268#       发表于 2024-4-23 10:20
+
+战斗学黎轨么啥坏处，只是这个战斗动画全靠背后灵也太偷懒了，想象一下异度之刃2你全带抽的大众脸战斗的代入感.....
+
+*****
+
+####  变老的大二  
+##### 269#       发表于 2024-4-23 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686641&amp;ptid=2140224" target="_blank">walfeds 发表于 2024-4-23 10:08</a>
+
+法老控粉丝打进来了，撤
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+坚定守住，就有办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 270#       发表于 2024-4-23 10:23
+
+这么做应该是为了带入感吧，狼群这种集群氛围怪还是适合无双（顺便滑板把皮克希小姐甩飞好有趣的小细节，感觉阿特拉斯做这种细节会越来越多）
+
+*****
+
+####  变老的大二  
+##### 271#       发表于 2024-4-23 10:24
+
+而且按照P组尿性，预告片能给你看的怕都是前期内容，剧情后半绝对藏起来了。
+

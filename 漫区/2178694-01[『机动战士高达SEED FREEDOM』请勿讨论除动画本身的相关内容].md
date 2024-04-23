@@ -7855,3 +7855,17 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 之前那个举报的居然被福田投诉了，本人亲自下场这一下剧场版又危险了
 
+
+*****
+
+####  啤酒炸鸡  
+##### 631#       发表于 2024-4-23 20:02
+
+ 本帖最后由 啤酒炸鸡 于 2024-4-23 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694212&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-4-23 19:54</a>
+
+之前那个举报的居然被福田投诉了，本人亲自下场这一下剧场版又危险了</blockquote>
+他投诉了啥？
+
+去官网举报他的粉丝？
+

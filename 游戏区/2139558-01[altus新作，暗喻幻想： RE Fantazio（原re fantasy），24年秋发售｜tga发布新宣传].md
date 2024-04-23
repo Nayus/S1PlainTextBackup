@@ -23,3 +23,32 @@ ATLUS奇幻RPG新作《暗喻幻想 ReFantazio》最新宣传片「“The King's
 
 ATLUS今早播出的奇幻RPG新作《暗喻幻想 ReFantazio》直播节目全程（中文版），含众多实机画面。从剧情、音乐、战场探索、旅行日常、世界地图、新城市、铁战驹、菜单UI、原型、战斗、与追随者交流等多方面详细介绍本作玩法。本作将于2024年10月11日发售，登陆PS5、PS4、XSX|S与PC平台。 http://t.cn/A6TE11a3
 
+
+*****
+
+####  血狂毘沙门  
+##### 532#       发表于 2024-4-23 09:47
+
+迷宫里的场景贴图脏兮兮的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猫沢  
+##### 533#       发表于 2024-4-23 09:53
+
+是不是因为幸田和磨，卧龙也挺脏的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  医生狼多  
+##### 534#         楼主| 发表于 2024-4-23 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686449&amp;ptid=2139558" target="_blank">猫沢 发表于 2024-4-23 09:53</a>
+是不是因为幸田和磨，卧龙也挺脏的。
+
+论坛助手,iPhone</blockquote>
+这位是？
+

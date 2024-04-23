@@ -3675,3 +3675,31 @@ P系列卖得好 就是因为他格局够小 更接地气
 看今晚直播是否有进一步的消息或是得等到6月份了 </blockquote>
 <img src="https://p.sda1.dev/17/83332a3a03c03fa76eb0aeda2a3055be/19551317138364712.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电磁炮233  
+##### 258#       发表于 2024-4-23 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686335&amp;ptid=2140224" target="_blank">汪达 发表于 2024-4-23 09:43</a>
+
+不就是P系列打一下怪进战斗那个系统改得酷炫了些，变成了一套连招进战斗，倒反天罡了 ...</blockquote>
+明明演示里有即时模式下翻滚躲避敌人攻击，跟何况打一下怪进战斗的系统也是轨迹早啊
+
+*****
+
+####  cowgp01  
+##### 259#       发表于 2024-4-23 09:52
+
+好x闷，再来个皆杀线吧
+
+*****
+
+####  汪达  
+##### 260#       发表于 2024-4-23 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64686447&amp;ptid=2140224" target="_blank">电磁炮233 发表于 2024-4-23 09:52</a>
+
+明明演示里有即时模式下翻滚躲避敌人攻击，跟何况打一下怪进战斗的系统也是轨迹早啊 ...</blockquote>
+空轨有这个系统吗？没印象了
+

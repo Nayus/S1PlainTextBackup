@@ -3495,3 +3495,18 @@ dlc只卖个皮肤？说实话还行<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种隐隐的预感P5这套UI要被阿特拉斯薅到死了
 
+
+*****
+
+####  爱丽丝梦游我家  
+##### 238#       发表于 2024-4-23 08:38
+
+感觉挺好的，味很正啊。
+
+*****
+
+####  光与暗的转生  
+##### 239#       发表于 2024-4-23 08:41
+
+致敬传奇rpg黎之轨迹
+

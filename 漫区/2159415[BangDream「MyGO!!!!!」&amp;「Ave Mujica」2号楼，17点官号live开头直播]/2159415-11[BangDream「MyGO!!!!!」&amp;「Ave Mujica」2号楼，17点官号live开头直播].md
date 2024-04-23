@@ -12883,3 +12883,29 @@ Poppin'Party×MyGO!!!!! 合同LIVE「Divide/Unite」
 
 看完mujica 所有人都会变得纯良起来
 
+
+*****
+
+####  明内幽  
+##### 15949#       发表于 2024-4-23 16:04
+
+<img src="https://img.saraba1st.com/forum/202404/23/160432ulezb51zszw66596.png" referrerpolicy="no-referrer">
+
+<strong>SDW`KSU9B8FXIRUQJ8~A`)J.png</strong> (31.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-23 16:04 上传
+
+接近3500，赢！
+
+（不过看趋势我猜3400来着，算猜准了）
+
+
+*****
+
+####  米拉苏尔  
+##### 15950#       发表于 2024-4-23 16:13
+
+为什么下卷数量比上卷多
+

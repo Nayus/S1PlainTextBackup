@@ -12361,3 +12361,22 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明喷喷真的很休闲，随手刷到过好多个挂着自称萌新的说明打喷的，一看都是玩了一百多小时还这不知道那不知道的，主打一个随意
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">虽说我以前也差不多。这游戏的教学确实很不到位，太多靠本能的人了
 
+
+*****
+
+####  KBAC  
+##### 4207#       发表于 2024-4-23 18:28
+
+ 本帖最后由 KBAC 于 2024-4-23 18:31 编辑 
+
+鱿鱼冲刺对战选个钢笔刷复活之后从家里推着赶路又是什么精神病人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xgazer  
+##### 4208#       发表于 2024-4-23 18:32
+
+我发现比赛大家都是坐着玩？我必须站着玩，坐下各种别扭，打康工就得站大半天<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

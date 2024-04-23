@@ -3174,3 +3174,18 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  用户名未定义  
+##### 3257#       发表于 2024-4-23 18:33
+
+话说按照老司机的皿煮主题，constitution应该翻译成宪法而不是构建。
+
+*****
+
+####  FLZB  
+##### 3258#       发表于 2024-4-23 18:33
+
+搞这堆突击步枪真就凑数是吧，还有这个正义，看着也是大号审判者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

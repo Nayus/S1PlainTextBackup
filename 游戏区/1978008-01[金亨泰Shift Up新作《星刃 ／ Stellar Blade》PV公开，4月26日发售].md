@@ -439,3 +439,17 @@ Screenshot_20240422_224341_Chrome.jpg
 求链接</blockquote>
 q群563383883，是视频不好发出来
 
+
+*****
+
+####  Darkentz  
+##### 772#       发表于 2024-4-23 14:37
+
+ 本帖最后由 Darkentz 于 2024-4-23 14:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64689555&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-23 13:43</a>
+
+看到迅驰模式了，新武器新动作模组</blockquote>
+剑星贴吧里吧主已经发出来了，可以看看
+
+哦豁，视频被和谐了
+

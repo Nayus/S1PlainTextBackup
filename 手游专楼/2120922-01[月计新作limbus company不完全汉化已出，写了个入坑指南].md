@@ -119,3 +119,11 @@
 
 别说，小辛戴眼镜还挺好看得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰原狼  
+##### 653#       发表于 2024-4-23 21:52
+
+昨天刚刚看完彷徨少年时，原来克罗默在原著里就是新手村小boss……后面怎么着也得再来一章把贝娅特里斯、琴师和爱娃夫人（夫人我喜欢你啊！）做出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

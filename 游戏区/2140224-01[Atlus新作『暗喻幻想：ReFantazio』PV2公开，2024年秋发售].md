@@ -4367,3 +4367,15 @@ Relationships with party members is slightly different from Persona. There are m
 
 连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼
 
+
+*****
+
+####  洛亚替身  
+##### 331#       发表于 2024-4-23 21:48
+
+ 本帖最后由 洛亚替身 于 2024-4-23 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695213&amp;ptid=2140224" target="_blank">被击坠王 发表于 2024-4-23 21:40</a>
+
+连整天cool来cool去的老外都在骂这UI过度设计像鬼画符一样看瞎眼</blockquote>
+这UI好像不是须藤正喜的，但我认为这UI在画面规格强的游戏还挺搭的......现在这样就可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

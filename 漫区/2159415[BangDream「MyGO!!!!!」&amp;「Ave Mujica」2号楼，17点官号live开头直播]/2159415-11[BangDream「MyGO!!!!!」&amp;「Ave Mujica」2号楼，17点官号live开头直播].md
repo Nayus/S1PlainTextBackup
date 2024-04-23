@@ -13073,3 +13073,51 @@ BD如果不要店特的话倒是可以闲鱼收一份便宜的，我收的今天
 
 绝大多数的日本动画bd原盘质量都不行来自: iPhone客户端
 
+
+*****
+
+####  暁美ほむら  
+##### 15967#       发表于 2024-4-24 01:41
+
+ 本帖最后由 暁美ほむら 于 2024-4-24 01:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697132&amp;ptid=2159415" target="_blank">zzhh0131 发表于 2024-4-24 01:20</a>
+
+绝大多数的日本动画bd原盘质量都不行</blockquote>
+不这次是翻车而不是画质不行
+
+TV
+
+<img src="https://img.saraba1st.com/forum/202404/24/014213dh9ww9y2xhy9f9g6.jpg" referrerpolicy="no-referrer">
+
+<strong>8bba339759ee3d6d3da32af705166d224f4ade29.jpg</strong> (35.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 01:42 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/014223kapbaqbqxows7lar.jpg" referrerpolicy="no-referrer">
+
+<strong>a1731fd162d9f2d30d7489d3efec8a136327cc29.jpg</strong> (16.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 01:42 上传
+
+BD
+
+<img src="https://img.saraba1st.com/forum/202404/24/014245ovi4lzj9jxzj14xz.jpg" referrerpolicy="no-referrer">
+
+<strong>e7ea40fbb2fb4316067ad74666a4462309f7d329.jpg</strong> (36.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 01:42 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/014251f9mjcg5l89hc9dfx.jpg" referrerpolicy="no-referrer">
+
+<strong>fc104cee3d6d55fbdba3db1a2b224f4a20a4dd29.jpg</strong> (14.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 01:42 上传
+

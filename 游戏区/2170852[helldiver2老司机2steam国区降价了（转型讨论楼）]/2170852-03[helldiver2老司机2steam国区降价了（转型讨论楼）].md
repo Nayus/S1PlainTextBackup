@@ -3252,3 +3252,13 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  LT_Harry  
+##### 3266#       发表于 2024-4-24 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64692746&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-23 17:41</a>
+还有几把枪</blockquote>
+这几件武器三月上旬（遥遥领先还没出的时候）已经被解出来了，甚至民主爆破相关的美术资源也是那时候解出来的。然后现在还没能看到五月尊享债券的美术资源<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -7933,3 +7933,17 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wenze  
+##### 638#       发表于 2024-4-24 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64691236&amp;ptid=2178694" target="_blank">晴岚 发表于 2024-4-23 15:53</a>
+按楼上某位坛友都说法不是说万代会支持福田口嗨把阿斯兰最强这个设定加进去吗。
+
+虽然以前就有g复国 ...</blockquote>
+只能说如今的代哥虽然认为能赚钱的人更重要，但是如果这个人阻碍代哥赚更多的钱，那就也不重要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

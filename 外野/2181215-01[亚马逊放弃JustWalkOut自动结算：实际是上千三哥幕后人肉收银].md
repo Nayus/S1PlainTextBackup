@@ -571,3 +571,14 @@ AI stands for anonymous Indian
 
 但我记得那种无人值守超市也基本没多少人来，太小、东西太少、种类少（基本就是零食和一些小物件而已）或许都是原因。
 
+
+*****
+
+####  lexi  
+##### 55#         楼主| 发表于 2024-4-24 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705066&amp;ptid=2181215" target="_blank">roypppp 发表于 2024-4-24 18:12</a>
+
+AI stands for anonymous Indian</blockquote>
+在这里absent更合适，毕竟不是没戴写着名字的工牌，而是不在现场<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

@@ -1369,3 +1369,11 @@ https://lo.swaytwig.com/</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  铁火辉夜  
+##### 133#       发表于 2024-4-24 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是你游诞生以来第一次日服有活韩服长草，arca已经喷爆了
+

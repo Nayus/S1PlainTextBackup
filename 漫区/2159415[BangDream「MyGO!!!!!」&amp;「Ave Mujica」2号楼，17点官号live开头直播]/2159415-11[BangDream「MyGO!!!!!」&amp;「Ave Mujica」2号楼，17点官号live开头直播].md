@@ -13513,3 +13513,45 @@ ANK-Raws还可以来自: iPhone客户端
 
 佐佐木單獨訪談
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15992#       发表于 2024-4-24 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705021&amp;ptid=2159415" target="_blank">vigilgt 发表于 2024-4-24 18:08</a>
+
+3个感叹号来3个人？</blockquote>
+看了一圈消息好像有点乱（）
+
+还是等官宣算了（）
+
+*****
+
+####  基神的强袭自由  
+##### 15993#       发表于 2024-4-24 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704881&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-24 17:57</a>
+
+（思考）</blockquote>
+先别急
+
+*****
+
+####  想喝一点点  
+##### 15994#       发表于 2024-4-24 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">狗要是真来国内不敢想象票价要有多高
+
+*****
+
+####  SakuraのOrigami  
+##### 15995#       发表于 2024-4-24 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705122&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-4-24 18:16</a>
+
+先别急</blockquote>
+是这样（）
+
+还是等官宣（）<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+

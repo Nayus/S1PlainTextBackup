@@ -4172,3 +4172,84 @@ https://bgm.tv/subject/482314
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">偶像荣耀有什么游戏性 拍照吗
 
+
+*****
+
+####  joshua1990  
+##### 3354#       发表于 2024-4-24 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道友的说明看得我虎躯一震 原来是你呀
+
+*****
+
+####  cckuku  
+##### 3355#       发表于 2024-4-24 15:39
+
+说实话我没玩过偶像荣耀，和sc赛马娘有啥区别吗？
+
+*****
+
+####  Anatoly  
+##### 3356#       发表于 2024-4-24 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64703106&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-24 15:39</a>
+
+说实话我没玩过偶像荣耀，和sc赛马娘有啥区别吗？</blockquote>
+偶像荣耀更像那种老式全自动手游
+
+就是摆个人物顺序场内打combo那种
+
+*****
+
+####  野菜一日分  
+##### 3357#       发表于 2024-4-24 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游/页游要啥游戏性啊，恨不得全部Auto，人物卖得好就够了
+
+*****
+
+####  rgauss  
+##### 3358#       发表于 2024-4-24 15:42
+
+偶像荣耀当作一个rpg看就行了，自动放技能那种
+
+*****
+
+####  rgauss  
+##### 3359#       发表于 2024-4-24 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64703155&amp;ptid=2130897" target="_blank">野菜一日分 发表于 2024-4-24 15:42</a>
+
+手游/页游要啥游戏性啊，恨不得全部Auto，人物卖得好就够了</blockquote>
+学偶像荣耀来个跳过功能就好了
+
+
+*****
+
+####  Anatoly  
+##### 3360#       发表于 2024-4-24 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64703167&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-24 15:43</a>
+
+学偶像荣耀来个跳过功能就&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他都给你安上那种类赛马娘养成还支支吾吾不敢说
+
+更何况特意整了个养成歌曲分级
+
+那怕是必不可能了
+
+
+*****
+
+####  joshua1990  
+##### 3361#       发表于 2024-4-24 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64703189&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-24 15:44</a>
+
+他都给你安上那种类赛马娘养成还支支吾吾不敢说
+
+更何况特意整了个养成歌曲分级
+
+那怕是必不可能了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这下不是可以直接偷师同门兄弟cy的马娘养成模式 给大家来一套组合拳了
+

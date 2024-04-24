@@ -192,3 +192,13 @@ IMG_1930.jpeg
 
 新建文件夹现在有名字了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 1810#       发表于 2024-4-24 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697359&amp;ptid=2152053" target="_blank">赫尔墨斯的权杖 发表于 2024-4-24 02:53</a>
+https://x.com/Neko_4cfantasy/status/1782771168795054248</blockquote>
+tkn学坏了，开始不好好穿衣服了
+

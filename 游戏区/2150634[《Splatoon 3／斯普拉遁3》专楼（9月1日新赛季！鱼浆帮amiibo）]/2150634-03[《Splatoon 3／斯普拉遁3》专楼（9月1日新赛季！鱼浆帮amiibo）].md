@@ -12465,3 +12465,39 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4217#       发表于 2024-4-25 00:03
+
+我都输成这样了，麻烦给我点靠谱的队友<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/25/000302v2ak2gzui6k2eazk.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042500011100-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (240.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/000302d6s1kg73s73kuwgl.jpg" referrerpolicy="no-referrer">
+
+<strong>2024042500011600-4CE9651EE88A979D41F24CE8D6EA1C23.jpg</strong> (254.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 00:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  laosai13  
+##### 4218#       发表于 2024-4-25 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708811&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-25 00:03</a>
+
+我都输成这样了，麻烦给我点靠谱的队友</blockquote>
+之前连胜之后需要去开发挑战献祭献祭，然后再回来打x<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

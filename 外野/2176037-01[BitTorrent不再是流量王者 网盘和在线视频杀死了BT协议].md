@@ -1342,3 +1342,11 @@ bt的这套使用模式我是真的很难坚持下来
 所以说买个20T硬盘当松鼠党才是版本答案</blockquote>
 真正的松鼠党已经买一箱硬盘组raid了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 140#       发表于 2024-4-25 00:11
+
+记得我这电骡很早就被运营商针对完全连不到人
+

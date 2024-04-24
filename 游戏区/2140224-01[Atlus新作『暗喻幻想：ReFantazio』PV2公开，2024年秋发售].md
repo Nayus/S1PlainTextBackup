@@ -4880,3 +4880,14 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 这队友人设完全没有购入的欲望阿
 
+
+*****
+
+####  Piano-Forest  
+##### 379#         楼主| 发表于 2024-4-25 00:12
+
+<img src="https://p.sda1.dev/17/908bd030e5bef820e4c8fe6d9f43df1a/82bd2e98gy1hp2bh5w1fyj22yo1o0kjr _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/eabab982836bbfeb02bb1addc6d2ebff/82bd2e98gy1hp2bh69t0tj22yo1o0u13 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0c6fabac253aa0d679a6b7c7fac544a8/82bd2e98gy1hp2bh7ncixj22yo1o0npj _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/d29fc639dc2a235e89408724ab446d81/82bd2e98gy1hp2bh6i0j9j22yo1o0b2g _1_.jpg" referrerpolicy="no-referrer">
+

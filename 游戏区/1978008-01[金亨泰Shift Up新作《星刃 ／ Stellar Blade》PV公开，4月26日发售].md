@@ -1052,3 +1052,11 @@ Image_1713976187970.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首日补丁更新二周目存档继承，这尼玛是故意的吧
 
+
+*****
+
+####  缺德猫  
+##### 838#       发表于 2024-4-25 03:51
+
+建议所有游戏跟进，评测完删档！
+

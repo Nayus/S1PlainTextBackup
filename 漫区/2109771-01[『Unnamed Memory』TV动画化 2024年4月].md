@@ -186,3 +186,14 @@ Screenshot_20211108_082737_tv.danmaku.bili.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/24/193917qljz1c5t3mlf44f1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 93#       发表于 2024-4-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700790&amp;ptid=2109771" target="_blank">kwin_ 发表于 2024-4-24 12:12</a>
+
+那个很菜的侍从是要非带不可吗还很吵</blockquote>
+人家自己跟来的，美其名曰不放心主子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

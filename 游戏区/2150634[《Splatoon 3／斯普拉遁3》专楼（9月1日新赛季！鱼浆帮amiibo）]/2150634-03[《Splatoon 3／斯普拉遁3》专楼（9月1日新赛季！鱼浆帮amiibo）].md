@@ -12530,3 +12530,15 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 低分段 ...</blockquote>
 拿起鹦鹉螺，你就是前线最靓的仔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拿小枪最头疼就是遇到鹦鹉螺，同水平根本打不过
 
+
+*****
+
+####  罗克萨斯  
+##### 4221#       发表于 2024-4-25 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709718&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-4-25 04:40</a>
+拿起鹦鹉螺，你就是前线最靓的仔拿小枪最头疼就是遇到鹦鹉螺，同水平根本打不过 ...</blockquote>
+鹦鹉螺得等会，我想把其它几把加特林练到五星，顺便尝试位置更拖后的打法。鹦鹉螺在上位势眼中差不多是使用难度最高的加特林，我虽然玩了有1500多胜场了，其实并没有精通，水平可能和只有四星熟练的审查者差不多，我是打算忘掉以前的打法重新开始和优秀的使用者学习的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4144,3 +4144,31 @@ Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;
 
 这个“狠狠期待游戏性”，是在说反话还是…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 3351#       发表于 2024-4-24 15:29
+
+<blockquote>屈江鸟 发表于 2024-4-24 12:29
+学霸这抖M发言，已经看见瑟瑟二创要怎么搞了</blockquote>
+当初人物pv出来以后就有人画首绞play了，质量还不错（
+
+*****
+
+####  花开安菲路  
+##### 3352#       发表于 2024-4-24 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702896&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-4-24 15:20</a>
+竟然还是跟ca合作，ca代工，这些可以狠狠期待游戏性了</blockquote>
+不是第一时间大家都知道是QualiArts代工了吗？跟偶像荣耀很多动作都一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你对偶像荣耀的游戏性如何看待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+https://bgm.tv/subject/482314
+
+*****
+
+####  rgauss  
+##### 3353#       发表于 2024-4-24 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">偶像荣耀有什么游戏性 拍照吗
+

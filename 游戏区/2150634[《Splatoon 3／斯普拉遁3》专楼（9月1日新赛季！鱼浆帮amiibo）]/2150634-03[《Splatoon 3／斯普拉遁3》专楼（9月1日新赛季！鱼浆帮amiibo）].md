@@ -12517,3 +12517,16 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laosai13  
+##### 4220#       发表于 2024-4-25 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709239&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-25 00:59</a>
+
+没用的，我挑战连胜断了才打的X，依然继续输，挑战和X间并不存在什么胜率平衡，队友感觉也没差。
+
+低分段 ...</blockquote>
+拿起鹦鹉螺，你就是前线最靓的仔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拿小枪最头疼就是遇到鹦鹉螺，同水平根本打不过
+

@@ -13693,3 +13693,14 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 【佐々木】この曲は、オブリビオニス（高尾）とドロリスの関係性が中心にあるパワ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">后面这句感觉可以假药一下的，比上次更详细一点，没那么笼统了
 
+
+*****
+
+####  基神的强袭自由  
+##### 16009#       发表于 2024-4-24 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705518&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-24 18:51</a>
+
+这不是正好三个感叹号，MyGO来三个（去掉没事就来中国的青木和李世林)，Mujica来两个，你们说好不好 ...</blockquote>
+不好，想看五人齐<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -3757,3 +3757,16 @@ EAT和无后坐力都行
 
 比较好的可能是面对着机器人后退吧，偶尔还能滑步躲一点火箭
 
+
+*****
+
+####  MkChang  
+##### 3308#       发表于 2024-4-24 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704777&amp;ptid=2170852" target="_blank">子夜琉璃子 发表于 2024-4-24 17:50</a>
+问问不氪金主手打机器人是不是只有单喷可以考虑了啊
+步枪跟狙感觉都不是太好用（</blockquote>
+蓝币可以肝的，地图散布的兴趣点一般一共会有10-50个不等的蓝币
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

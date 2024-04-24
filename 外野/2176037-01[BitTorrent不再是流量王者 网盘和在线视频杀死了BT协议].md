@@ -1332,3 +1332,13 @@ bt的这套使用模式我是真的很难坚持下来
 那会儿都是机械硬盘吧 现在的固态还怕么？</blockquote>
 有几个人的硬盘因为bt挂掉了-_-
 
+
+*****
+
+####  我就再氪一单  
+##### 139#       发表于 2024-4-24 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707957&amp;ptid=2176037" target="_blank">理子石 发表于 2024-4-24 22:52</a>
+所以说买个20T硬盘当松鼠党才是版本答案</blockquote>
+真正的松鼠党已经买一箱硬盘组raid了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

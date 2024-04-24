@@ -1722,3 +1722,13 @@ pro快出了现在买有点亏啊</blockquote>
 
 另外现在大太刀的天然理心流抓取武技好像有bug，抓取之后强制延续敌人的动摇时间，还能再接一个抓取技能。
 
+
+*****
+
+####  黑修士  
+##### 3136#       发表于 2024-4-24 23:14
+
+[https://www.bilibili.com/video/BV13T42117vU](https://www.bilibili.com/video/BV13T42117vU)
+
+skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

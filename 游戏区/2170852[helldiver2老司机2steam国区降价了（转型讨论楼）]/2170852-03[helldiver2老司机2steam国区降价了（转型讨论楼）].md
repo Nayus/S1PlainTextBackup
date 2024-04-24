@@ -3736,3 +3736,16 @@ EAT和无后坐力都行
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  LrGsite  
+##### 3306#       发表于 2024-4-24 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705006&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-24 18:07</a>
+
+话说爆裂铳修复切枪bug后手感不太行，感觉现在只能缩在队友后面了
+
+—— 来自 OPPO PEAM00, Android ...</blockquote>
+什么! 这种小技巧居然当bug修了 爆弹枪惨遭削弱
+

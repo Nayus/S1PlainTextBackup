@@ -8136,3 +8136,16 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 但是动能就不好弄地图炮了。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 654#       发表于 2024-4-24 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698888&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-24 09:56</a>
+
+拂晓ban一切光束武器，逼大家走动能。
+
+但是动能就不好弄地图炮了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">动能武器：发射核弹头
+

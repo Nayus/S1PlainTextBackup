@@ -4633,3 +4633,11 @@ https://weibo.com/7897210512/5026421357676732
 ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</blockquote>
 啊？那我缺的gal这块
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 358#       发表于 2024-4-24 10:31
+
+A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛
+

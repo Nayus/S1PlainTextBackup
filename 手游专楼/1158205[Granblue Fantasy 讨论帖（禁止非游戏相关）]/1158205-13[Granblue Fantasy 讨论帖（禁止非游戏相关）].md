@@ -97,3 +97,11 @@ U武3技能是无脑天司吗？还是有些要整上限？奥义获取跟治疗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新手活动送的也太好了，直接速成啊
 
+
+*****
+
+####  syndrome2032  
+##### 17894#       发表于 2024-4-24 10:27
+
+以前1.0就送的很多了吧。没想到这次看团友说是连勺子都不值钱大放送
+

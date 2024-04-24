@@ -5983,3 +5983,19 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 3年前coco就想玩了最后毕业前都没玩成
 
+
+*****
+
+####  holoan  
+##### 8710#         楼主| 发表于 2024-4-24 17:15
+
+<img src="https://img.saraba1st.com/forum/202404/24/171343odxkxtxhhlhduulb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 17:13 上传
+
+那还不简单，你自己在漫画给的设定不就是真假两面miko吗，把你想要增加的个性随便放到哪一面不就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正对观众来说都没有违和感
+

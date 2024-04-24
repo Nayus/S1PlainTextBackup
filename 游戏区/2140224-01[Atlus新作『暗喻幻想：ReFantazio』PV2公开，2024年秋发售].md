@@ -4710,3 +4710,24 @@ A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗�
 
 这从角色到原型再到敌人真是只能用乏来形容，不说隔壁土居，换真4那帮特摄来设计都比这行
 
+
+*****
+
+####  bwsusaga  
+##### 366#       发表于 2024-4-24 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700129&amp;ptid=2140224" target="_blank">黑修士 发表于 2024-4-24 11:25</a>
+
+https://www.bilibili.com/video/BV1Dm421W7FE
+
+可能是BOSS战的配乐吧，通常战用这种确实有些过猛了</blockquote>
+[https://music.163.com/#/song?id=1380869131&amp;dlt=0846](https://music.163.com/#/song?id=1380869131&amp;dlt=0846)
+
+風花雪月 メインテーマ 三房的主题战场曲
+
+1：00开始的副曲部分
+
+和暗喻这首2：20开始的副歌部分 
+
+旋律非常接近，也不是说抄，就是听感上一下子就窜到风花雪月去了。
+

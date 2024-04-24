@@ -1327,3 +1327,18 @@ K组这单和声个人觉得比起小组专那两首要逊色一些
 
 带着这么好的姑娘咋就经营成这个样子，哎
 
+
+*****
+
+####  CaptainPenguin  
+##### 20064#       发表于 2024-4-24 17:27
+
+<img src="https://img.saraba1st.com/forum/202404/24/172719l5d6xbd4obucxb5u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4075BDE9-B196-40EF-AF73-FBCC8407AF7A.jpeg</strong> (147.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-24 17:27 上传
+

@@ -472,3 +472,27 @@ rfid贵，优衣库和迪卡侬都是用的，但是服饰类本来就有吊卡�
 话说优衣库那个结算比别家体验恐怖太多了，东西丢进去我手机还没打开价格就出来了。每次付完钱我都觉得被抢 ...</blockquote>
 说实话优衣库真的要当心，有人会拆别件的吊牌放货架衣服裤兜的，至少要数清楚自己拿了几件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 47#       发表于 2024-4-24 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704266&amp;ptid=2181215" target="_blank">suhanblood 发表于 2024-4-24 17:04</a>
+
+说实话优衣库真的要当心，有人会拆别件的吊牌放货架衣服裤兜的，至少要数清楚自己拿了几件
+
+ ...</blockquote>
+多扣找人呗.又不是彻底没人.
+
+*****
+
+####  安娜导函数  
+##### 48#       发表于 2024-4-24 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702798&amp;ptid=2181215" target="_blank">Joshua64 发表于 2024-4-24 15:12</a>
+有啊，迪卡侬就是</blockquote>
+问题迪卡侬卖的东西大部分是按他们自己标准生产的吧，你总不能要求超市卖的所有东西都按你超市要求贴芯片吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

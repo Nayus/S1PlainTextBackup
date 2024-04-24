@@ -3691,3 +3691,28 @@ EAT和无后坐力都行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人现在是5发连射不中后，下一轮高概率锁人吗，昨晚打了几把发现吃枪子挺规律的
 
+
+*****
+
+####  子夜琉璃子  
+##### 3302#       发表于 2024-4-24 17:50
+
+问问不氪金主手打机器人是不是只有单喷可以考虑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+步枪跟狙感觉都不是太好用（
+
+—— 來自 samsung SM-G9960, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Aeons  
+##### 3303#       发表于 2024-4-24 17:55
+
+ 本帖最后由 Aeons 于 2024-4-24 17:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704777&amp;ptid=2170852" target="_blank">子夜琉璃子 发表于 2024-4-24 17:50</a>
+
+问问不氪金主手打机器人是不是只有单喷可以考虑了啊
+
+步枪跟狙感觉都不是太好用（</blockquote>
+焦土啊？焦土是打机器人最好用的主武器之一。
+

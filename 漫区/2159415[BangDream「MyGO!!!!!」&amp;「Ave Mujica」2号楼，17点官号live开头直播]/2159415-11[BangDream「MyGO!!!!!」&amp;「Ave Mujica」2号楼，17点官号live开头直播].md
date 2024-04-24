@@ -13129,3 +13129,16 @@ BD
 
 https://x.com/athyrabunlord/status/1780846350063538232<img src="https://p.sda1.dev/17/017036dce1d8d6cb693356519f73019e/CMP_20240424025121979.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 15969#       发表于 2024-4-24 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64682884&amp;ptid=2159415" target="_blank">H2Ofrozen 发表于 2024-4-22 21:55</a>
+话说ras这新曲有不少人觉得难听，估计是因为编得很prog。其实反而比之前的些个电子核更合我口味 ...</blockquote>
+感觉有点Intervals的味道（）
+虽说变拍到副歌但没主歌那么躁感觉有点不习惯（）
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

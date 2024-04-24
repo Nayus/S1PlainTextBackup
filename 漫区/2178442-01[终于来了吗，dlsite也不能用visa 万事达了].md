@@ -134,3 +134,13 @@ getchu独占了一些老黄油，下种子都没速度的。这次下架估计�
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  慕容断月  
+##### 97#       发表于 2024-4-24 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694970&amp;ptid=2178442" target="_blank">caupollen 发表于 2024-4-23 21:09</a>
+目前是要屈服什么内容，18+咔嚓了？</blockquote>
+无非也就是跟dmm那样，但如果要限制日本ip那属于自废武功了
+

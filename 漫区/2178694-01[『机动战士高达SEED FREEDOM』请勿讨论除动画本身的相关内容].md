@@ -8102,3 +8102,37 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 然后一个初代机拂晓把地图炮都给反了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拂晓1台用了30台M1异端的预算我看挺值的，地图炮一炮下去干掉10几台草薙级上百台异端/村雨不过分的
 
+
+*****
+
+####  AraTurambar  
+##### 651#       发表于 2024-4-24 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698814&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-4-24 09:51</a>
+
+拂晓1台用了30台M1异端的预算我看挺值的，地图炮一炮下去干掉10几台草薙级上百台异端/村雨不过分 ...</blockquote>
+拂晓这种能反地图炮的机体实在是……简直机械降神。
+
+*****
+
+####  主人ハム子  
+##### 652#       发表于 2024-4-24 09:55
+
+所以我就说拂晓一点都不贵，奥布死命量产就好了。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AraTurambar  
+##### 653#       发表于 2024-4-24 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698873&amp;ptid=2178694" target="_blank">主人ハム子 发表于 2024-4-24 09:55</a>
+
+所以我就说拂晓一点都不贵，奥布死命量产就好了。
+
+—— 来自 HUAWEI BRA-AL00, Android 12上的 S1N ...</blockquote>
+拂晓ban一切光束武器，逼大家走动能。
+
+但是动能就不好弄地图炮了。
+

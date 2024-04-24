@@ -3672,3 +3672,22 @@ EAT和无后坐力都行
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  FLZB  
+##### 3300#       发表于 2024-4-24 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698469&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-4-24 09:27</a>
+
+那是你还没遇到连类星体都不带的，不到10分钟增援次数少了一半</blockquote>
+这种纯菜他带什么或者带不带都没差，横竖都能光速耗完增援<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 3301#       发表于 2024-4-24 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机器人现在是5发连射不中后，下一轮高概率锁人吗，昨晚打了几把发现吃枪子挺规律的
+

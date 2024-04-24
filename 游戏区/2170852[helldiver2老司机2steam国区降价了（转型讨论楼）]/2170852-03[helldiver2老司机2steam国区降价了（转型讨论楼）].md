@@ -3634,3 +3634,18 @@ EAT和无后坐力都行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按他大的在下周来看这次本来就没想着能守下来的
 
+
+*****
+
+####  Hyst3r1a  
+##### 3296#       发表于 2024-4-24 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">打赢打输了都能编把，剧情岂是如此不便之物
+
+*****
+
+####  Launce  
+##### 3297#       发表于 2024-4-24 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输了就说新装备投入反攻，赢了就说新装备研发成功接着暗调数据，哈耶克的大手
+

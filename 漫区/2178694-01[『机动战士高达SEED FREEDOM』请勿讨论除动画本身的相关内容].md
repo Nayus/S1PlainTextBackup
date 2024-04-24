@@ -8192,3 +8192,11 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 OnePlus PHB110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  fengzhouyi  
+##### 659#       发表于 2024-4-24 14:18
+
+首先是FT“没有给魔蟹战斗指示，看到成品笑出来了”没有“开心差距”没有“机体实力对比”，我说某位翻译能不能就少带点私货
+

@@ -1377,3 +1377,26 @@ https://lo.swaytwig.com/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是你游诞生以来第一次日服有活韩服长草，arca已经喷爆了
 
+
+*****
+
+####  ace7ace  
+##### 134#       发表于 2024-4-24 19:11
+
+日服有啥活动啊。。。不就一个妇科都挂了快一个月了
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  黑上シグマ  
+##### 135#       发表于 2024-4-24 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705735&amp;ptid=2078383" target="_blank">ace7ace 发表于 2024-4-24 19:11</a>
+
+日服有啥活动啊。。。不就一个妇科都挂了快一个月了
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版  ...</blockquote>
+大概说的是30号的联动复刻
+

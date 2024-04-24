@@ -3726,3 +3726,13 @@ EAT和无后坐力都行
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  bladethunder  
+##### 3305#       发表于 2024-4-24 19:17
+
+感觉是不是打机器人溜怪不能闷头跑，要时不时回头打两枪
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

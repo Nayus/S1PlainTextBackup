@@ -13404,3 +13404,71 @@ https://x.com/athyrabunlord/status/1780846350063538232<img src="https://p.sda1.d
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  [皆神孝介]  
+##### 15986#       发表于 2024-4-24 15:58
+
+又有一家压制组出了BDRip
+
+[AI-Raws&amp;ANK-Raws] BanG Dream! It's MyGO!!!!! BDRip 1080p MKV [12.4GB]
+[https://share.dmhy.org/topics/view/668045_AI-Raws_ANK-Raws_BanG_Dream%21_It_s_MyGO%21%21%21%21%21_BDRip_1080p_MKV.html](https://share.dmhy.org/topics/view/668045_AI-Raws_ANK-Raws_BanG_Dream%21_It_s_MyGO%21%21%21%21%21_BDRip_1080p_MKV.html) <blockquote>简介: 
+
+ 感谢喵萌Production
+
+JP BD with JP/CN/EN/KR Sub
+
+Brightness level error fixed
+
+包含日版BD自带多语言字幕
+
+此压制版本已修复原始BD中的电平错误
+
+(此处应有500字小作文，有好人用gpt整个吗谢谢茄子)
+
+Q:BD制作中犯了什么错误？
+
+A:没有将原始的RGB full range数据正确转换到专业视频终端分发所需要的limited range数据，导致画面出现了过暗/过亮问题
+
+如果对此有兴趣可以参考以下文章：
+[https://www.thepostprocess.com/2019/09/24/how-to-deal-with-levels-full-vs-video/](https://www.thepostprocess.com/2019/09/24/how-to-deal-with-levels-full-vs-video/)
+
+实操中更大的可能性是本身渲染最后导出的数据即为full range，TV和WEB被校色彩条自动校正了，偏偏BD用的是工匠手压x264直出的，缺少了校色这个步骤
+
+这个错误不算少见，但大部分都会被自动机制校正掉。上次见到还是上次大概可以追溯到之前的《月色真美》，也正是这部片后不少动画流媒体网站也添加了校色彩条这道工序。
+
+值得一提的是和其他很多犯了明显错误的碟片一样，他又是只有NCED是正确的
+
+也不知道是不是因为NCED是最后烧碟的所以发现后可以纠正，而前面的就不管了
+
+Q:为什么会有limited range？
+
+A:模拟时代为了减轻信号长距离传输带来的干扰形成的产物，属于“祖宗之法”
+
+Q:这意味着BD质量很差吗？
+
+A:对于压制而言BD的画质其实更好了，因为full range可以容纳更多的范围，在BD的8bit YUV下可以略微提升画质。
+
+Q:如果播放器其实可以支持full range，为什么压回了limited range?
+
+A:几乎所有播放环境的默认设置都是针对limited range的，使用limited range可以防止在一些比较小众的播放器PotPlayer[em198]上出现无法正确识别的问题。
+
+而且10bit SDR YUV即使是在limited range下也可以完整覆盖8bit RGB，并不会降低画质。
+
+Q:有办法修复原盘的问题吗？
+
+A:在不重压的前提下可以通过补丁方式强制修正视频的flag，但由于BD规范中并没有相应的定义，经测试相当一部分播放器（包括PS4/PS5等保有量较大的机器）依然无法正确识别。只能保证PC端大概率可以正常观看
+
+Q:如果压几年yuv444p10le可以倒逼厂商支持硬解，full range有希望吗？
+
+A:你在想屁吃他们甚至不愿意放弃23.976（</blockquote>
+
+
+*****
+
+####  zzhh0131  
+##### 15987#       发表于 2024-4-24 16:04
+
+ANK-Raws还可以来自: iPhone客户端
+

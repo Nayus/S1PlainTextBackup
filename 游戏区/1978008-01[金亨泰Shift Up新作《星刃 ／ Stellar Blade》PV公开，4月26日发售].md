@@ -574,3 +574,39 @@ q群563383883，是视频不好发出来
 
 盲猜一个 80
 
+
+*****
+
+####  ky7913  
+##### 785#       发表于 2024-4-24 10:46
+
+<blockquote>医生狼多 发表于 2024-4-24 10:16
+十点or十一点</blockquote>
+10点
+
+*****
+
+####  ky7913  
+##### 786#       发表于 2024-4-24 10:47
+
+【《剑星》全新boss演示-哔哩哔哩】 https://b23.tv/lBH9A3v
+
+*****
+
+####  ky7913  
+##### 787#       发表于 2024-4-24 10:47
+
+【《剑星》2小时黄荒地图探索-哔哩哔哩】 [https://b23.tv/EA8322l](https://b23.tv/EA8322l)
+
+
+*****
+
+####  塔奇克马  
+##### 788#       发表于 2024-4-24 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699564&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-24 10:47</a>
+【《剑星》2小时黄荒地图探索-哔哩哔哩】 https://b23.tv/EA8322l</blockquote>
+开头小城探索 有种尼尔2 去小城做调查任务那味了
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

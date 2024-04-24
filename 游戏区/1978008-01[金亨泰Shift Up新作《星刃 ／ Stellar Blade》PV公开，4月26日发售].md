@@ -899,3 +899,25 @@ PS5更新1.002，4.1G的补丁
 
 更新完后有ng+和存档继承了...
 
+
+*****
+
+####  eulereld  
+##### 821#       发表于 2024-4-24 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死，評測解禁後才更新，什麼巨魔行為
+
+*****
+
+####  灼热的小市民  
+##### 822#       发表于 2024-4-24 23:42
+
+奖杯魔怔人要破防了
+
+*****
+
+####  zqqwe  
+##### 823#       发表于 2024-4-24 23:43
+
+a9提到这游戏有很多长连招加成机制但没有offset系统所以非昏迷状态很难打全，其实试玩里就给了很粗暴的叠攻速插件作为解决方案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知最多可以快多少
+

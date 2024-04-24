@@ -3575,3 +3575,36 @@ EAT和无后坐力都行
 
 2024-4-24 12:23 上传
 
+
+*****
+
+####  Aeons  
+##### 3290#       发表于 2024-4-24 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700960&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-24 12:24</a>
+大的要来了还是拉坨大的</blockquote>
+这不是官方
+
+*****
+
+####  kalavinka  
+##### 3291#         楼主| 发表于 2024-4-24 12:50
+
+ 本帖最后由 kalavinka 于 2024-4-24 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64701237&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-24 12:48</a>
+
+这不是官方</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3292#       发表于 2024-4-24 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699977&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:14</a>
+爆裂铳打巨型者应该瞄哪个位置啊，头吗？还是绕背打散热？还有爆裂铳处理虫子的思路是什么，强袭打腿？
+
+顺 ...</blockquote>
+打散热，正面弱点四穿且不吃爆破伤害，铳打不了一点。
+打强袭正常打打屁股，不正常打就强袭正面抬起来打爪附近，背面抬屁股时后足和肢体连接附近，可以一枪秒，不过实战可能没那么自由。
+

@@ -13280,3 +13280,24 @@ https://x.com/athyrabunlord/status/1780846350063538232<img src="https://p.sda1.d
 
 大撿特撿，我團好會賣<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 15977#       发表于 2024-4-24 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64693470&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-4-23 18:44</a>
+
+推上看了一圈 爱素cp粉吃的疑似太好了点</blockquote>
+美帝是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 15978#       发表于 2024-4-24 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64684573&amp;ptid=2159415" target="_blank">creaiii 发表于 2024-4-23 01:21</a>
+
+独角兽出走，会不会和老钟有关。武士道都倒贴B站成那样了，B站还是不肯买下MYGO，可能就是因为按这边的标准 ...</blockquote>
+什么水魔同款黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

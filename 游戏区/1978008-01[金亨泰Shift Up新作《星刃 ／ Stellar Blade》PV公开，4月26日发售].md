@@ -1044,3 +1044,11 @@ Image_1713976187970.jpg
 现在才买光盘，想等一周后再玩吗</blockquote>
 真有必要的话，后天收工了直接去超市买一盘就是，ps5游戏又脱不了销
 
+
+*****
+
+####  meltykiss  
+##### 837#       发表于 2024-4-25 02:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首日补丁更新二周目存档继承，这尼玛是故意的吧
+

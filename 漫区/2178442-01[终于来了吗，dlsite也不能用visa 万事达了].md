@@ -164,3 +164,16 @@ getchu独占了一些老黄油，下种子都没速度的。这次下架估计�
 这不正好就是打破美元霸权的切入点</blockquote>
 点卡好像也被禁了，现在只能 PP<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caupollen  
+##### 100#         楼主| 发表于 2024-4-24 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708151&amp;ptid=2178442" target="_blank">若荼泱 发表于 2024-4-24 23:08</a>
+
+点卡好像也被禁了，现在只能 PP</blockquote>
+这下还不如支付宝了，支付宝&gt;点数&gt;游戏
+
+信用卡&gt;paypal&gt;点数&gt;游戏
+

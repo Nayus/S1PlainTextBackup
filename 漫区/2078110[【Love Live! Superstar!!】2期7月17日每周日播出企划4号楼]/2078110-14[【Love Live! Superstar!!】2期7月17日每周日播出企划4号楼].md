@@ -1394,3 +1394,13 @@ KALEIDOSCORE ☕️🍨🦋『ニュートラル』
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 20070#       发表于 2024-4-24 23:31
+
+这三张碟的质量不都挺好，55组两首曲甩开另外两组。尤其谢谢早安我特别喜欢，至于现场怎样就看主C的铃原的表现
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

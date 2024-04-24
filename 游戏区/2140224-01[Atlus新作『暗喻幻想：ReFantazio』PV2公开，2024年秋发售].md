@@ -4831,3 +4831,34 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 算上黑白披风那个也就一个没露面吧
 
+
+*****
+
+####  potwater  
+##### 375#       发表于 2024-4-24 22:52
+
+黑白披风是PV1的这位吗
+
+<img src="https://img.saraba1st.com/forum/202404/24/225235bdtnucpdrdnal1p2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/225238j7mdw7hndfwdfhm9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 22:52 上传
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 376#       发表于 2024-4-24 22:54
+
+这披风太“高级”了，欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

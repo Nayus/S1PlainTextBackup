@@ -820,3 +820,20 @@ a9这个还留嘴了，看看篝火的<img src="https://static.saraba1st.com/ima
 
 先挨喷吧，这种东西两周内应该能补回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky95  
+##### 811#       发表于 2024-4-24 22:48
+
+这几天还不能玩，金亨泰快给我修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  SergeGlenn  
+##### 812#       发表于 2024-4-24 22:50
+
+原因就是这游戏本质是魂系框架，你一想魂是怎么处理这些东西的就明白了
+

@@ -3791,3 +3791,16 @@ EAT和无后坐力都行
 
 现在虫子难3就有巨兽级强袭虫了吗？主任务是撤离A级人员，不是击杀强袭虫
 
+
+*****
+
+####  FLZB  
+##### 3311#       发表于 2024-4-24 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704777&amp;ptid=2170852" target="_blank">子夜琉璃子 发表于 2024-4-24 17:50</a>
+
+问问不氪金主手打机器人是不是只有单喷可以考虑了啊
+
+步枪跟狙感觉都不是太好用（</blockquote>
+重炮手和勤勉非要用也不是不行，但总动员债卷里最适合打机器人的必然是焦土
+

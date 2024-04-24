@@ -13555,3 +13555,43 @@ ANK-Raws还可以来自: iPhone客户端
 
 还是等官宣（）<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 15996#       发表于 2024-4-24 18:36
+
+佐佐木oricon單獨訪談看完了，就 普通的新單發售日通稿，好多之前的訪談都聊過了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 15997#       发表于 2024-4-24 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705360&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-24 18:36</a>
+
+佐佐木oricon單獨訪談看完了，就 普通的新單發售日通稿，好多之前的訪談都聊過了 ...</blockquote>
+再捡一遍就是了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫吹兰  
+##### 15998#         楼主| 发表于 2024-4-24 18:41
+
+BML说实话有点讨厌，为了狗一两首去买那么大的拼盘的门票。大部分人都不认识，最好能像音宝一样上BW，要么还是单独演唱会吧。
+
+*****
+
+####  stygian  
+##### 15999#       发表于 2024-4-24 18:43
+
+BW可以考虑，BML就算了，票血妈贵还没几首
+
+*****
+
+####  基神的强袭自由  
+##### 16000#       发表于 2024-4-24 18:44
+
+真的吗，再考虑一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

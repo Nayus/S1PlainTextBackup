@@ -218,3 +218,11 @@ Nornis 巡回 2146/2530/1560
 
 虹生日谷老整这些改版是什么逼玩意
 
+
+*****
+
+####  cckuku  
+##### 193#       发表于 2024-4-24 14:32
+
+我服了就一张图，改来改去的干什么？除非你告诉我这4个set加起来等于以前一个套装的价格<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

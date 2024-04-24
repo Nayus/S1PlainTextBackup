@@ -3649,3 +3649,15 @@ EAT和无后坐力都行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输了就说新装备投入反攻，赢了就说新装备研发成功接着暗调数据，哈耶克的大手
 
+
+*****
+
+####  囧史密斯  
+##### 3298#       发表于 2024-4-24 14:35
+
+然后一夜回到开服前  再来一次麦河狂欢
+
+我们一起发克乔尔啦<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -246,3 +246,13 @@ Mea怎么又把自己推给锁了<img src="https://static.saraba1st.com/image/sm
 
 哪一个？
 
+
+*****
+
+####  十九号大侠  
+##### 16439#       发表于 2024-4-24 14:34
+
+老种，真的假的
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

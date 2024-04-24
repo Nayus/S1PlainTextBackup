@@ -1695,3 +1695,20 @@ pro快出了现在买有点亏啊</blockquote>
 
 想问下各位老哥，红色超忍刀有固定任务能刷吗？
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 3133#       发表于 2024-4-24 14:34
+
+无外流有啥条件吗，为啥我太刀的流派里没看到这个
+
+*****
+
+####  duraa  
+##### 3134#       发表于 2024-4-24 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702360&amp;ptid=2092342" target="_blank">华发夜眼[CN] 发表于 2024-4-24 14:34</a>
+无外流有啥条件吗，为啥我太刀的流派里没看到这个</blockquote>
+第三章斋藤一给<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

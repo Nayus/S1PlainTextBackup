@@ -690,3 +690,82 @@ q群563383883，是视频不好发出来
 
  http://t.cn/A6TuHXb0
 
+
+*****
+
+####  黑酒杯  
+##### 798#       发表于 2024-4-24 22:07
+
+看了下评测，好逆天的存档机制<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑色的js  
+##### 799#       发表于 2024-4-24 22:08
+
+希望能稳个mc80分，韩游去年匹诺曹跟这个也差不多吧
+
+*****
+
+####  Leliel  
+##### 800#       发表于 2024-4-24 22:08
+
+存档机制咋了？
+
+
+*****
+
+####  医生狼多  
+##### 801#       发表于 2024-4-24 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707550&amp;ptid=1978008" target="_blank">Leliel 发表于 2024-4-24 22:08</a>
+存档机制咋了？</blockquote><blockquote>前面提到的设计失误最多直让人撇撇嘴，而《剑星》最让人费解的设计是通关后要素。许多游戏在玩家通关之后将剧情进度拨回一段时间前，让玩家自由探索、继续收集没有获得的收集要素。但在《剑星》中通关了之后，结局存档会永远卡在最终BOSS所在的那一小块场景里，而这个存档能做的事就是和最终BOSS战斗。通关后会解锁困难模式和一套服装，前一个存档收集的所有档案、汽水瓶、成长状态等数据全部不继承。不是很理解这么设计的用意是什么，如果做了一半收集想去把剧情打完，那在这个存档里再也无法做完收集，只能开新档；要做完收藏再去推剧情，重复的战斗体验和正反馈稀少的收集要素会逐渐消解前期积累下来的好感。如果你打算要一个相对完美的游戏完成度的话，建议二周目再开始做收集</blockquote>
+
+*****
+
+####  ff2077  
+##### 802#       发表于 2024-4-24 22:11
+
+有点狗屎的设计了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+957dda841fac5b931a49d1abe1e9f35c_720.png
+(311.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 22:11 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/221122ff1a9eacqu0ezjrz.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 803#       发表于 2024-4-24 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707568&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-4-24 22:10</a></blockquote>
+这种就看制作者会不会更新了，感觉也不是不能救。
+
+*****
+
+####  crosz1985  
+##### 804#       发表于 2024-4-24 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707568&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-4-24 22:10</a></blockquote>
+喷了，有病吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  RushMove  
+##### 805#       发表于 2024-4-24 22:12
+
+我还以为是模仿尼尔删存档
+
+*****
+
+####  spjslord  
+##### 806#       发表于 2024-4-24 22:13
+
+学尼尔学魔怔了？
+

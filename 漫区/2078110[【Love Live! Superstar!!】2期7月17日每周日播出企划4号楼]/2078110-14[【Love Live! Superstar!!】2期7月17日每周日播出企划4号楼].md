@@ -1384,3 +1384,13 @@ KALEIDOSCORE ☕️🍨🦋『ニュートラル』
 <img src="https://p.sda1.dev/17/d3b6668a417c5df59628f727386b20c8/CMP_20240424211735806.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/ded26da8d227073c1ca860224731d5e9/CMP_20240424212101911.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20069#       发表于 2024-4-24 22:11
+
+三张都听了，发自内心的喜欢K组这张
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

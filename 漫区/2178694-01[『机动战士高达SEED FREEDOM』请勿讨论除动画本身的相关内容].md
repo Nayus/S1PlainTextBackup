@@ -8218,3 +8218,19 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 看到一种说法，觉得挺有意思的，基拉是唯一一个最后机体的性能比对方强获胜的
 
+
+*****
+
+####  liekong  
+##### 662#       发表于 2024-4-24 22:09
+
+ 本帖最后由 liekong 于 2024-4-24 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698050&amp;ptid=2178694" target="_blank">qwemiku 发表于 2024-4-24 08:47</a>
+
+拉克丝还没？</blockquote>
+拉妖风评被害那么多年，早被敲打够了，
+
+甚至剧场版PV台词“不是因为需要你才爱你，而是爱你才需要你”，
+
+就是为了回应拉妖多年粉切黑计划通的阴谋论吧
+

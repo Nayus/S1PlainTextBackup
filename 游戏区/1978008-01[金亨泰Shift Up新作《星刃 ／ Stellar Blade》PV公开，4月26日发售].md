@@ -628,3 +628,13 @@ q群563383883，是视频不好发出来
 
 刚玩这demo，感觉比想象得硬核多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 791#       发表于 2024-4-24 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700219&amp;ptid=1978008" target="_blank">黑色的js 发表于 2024-4-24 11:32</a>
+刚玩这demo，感觉比想象得硬核多了</blockquote>
+经典开局残疾人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

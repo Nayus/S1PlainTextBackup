@@ -4621,3 +4621,15 @@ p3re那是新引擎，这作是老引擎磨洋工（游戏晚发售两年就容�
 
 音乐有一小段实在太像三房主题曲了。
 
+
+*****
+
+####  Farlight  
+##### 357#       发表于 2024-4-24 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64694645&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-23 20:37</a>
+https://weibo.com/7897210512/5026421357676732
+
+ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</blockquote>
+啊？那我缺的gal这块
+

@@ -13142,3 +13142,24 @@ https://x.com/athyrabunlord/status/1780846350063538232<img src="https://p.sda1.d
 
 —— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  [皆神孝介]  
+##### 15970#       发表于 2024-4-24 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697197&amp;ptid=2159415" target="_blank">暁美ほむら 发表于 2024-4-24 01:41</a>
+
+不这次是翻车而不是画质不行</blockquote>
+可以试试压制的BDrip,前面几层有[LP-Raws的链接](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2159415&amp;pid=64673004)
+
+我觉得肯定还会有其他压制组的版本
+
+*****
+
+####  zzhh0131  
+##### 15971#       发表于 2024-4-24 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697197&amp;ptid=2159415" target="_blank"> 暁美ほむら 发表于 2024-4-24 01:41</a>  本帖最后由 暁美ほむら 于 2024-4-24 01:42 编辑  引用:zzhh0131 发表于 2024-4-24 01:20 绝大多数的日本动画bd原盘质量都不行 不这次是翻车而不是画质不行   TV   BD  附件： </blockquote>
+我就是这个意思来自: iPhone客户端
+

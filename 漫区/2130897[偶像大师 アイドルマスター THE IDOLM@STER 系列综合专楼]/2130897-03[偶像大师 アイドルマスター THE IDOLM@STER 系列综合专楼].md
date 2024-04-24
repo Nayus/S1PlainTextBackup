@@ -4001,3 +4001,12 @@ Vol.0 【春游】 [https://docs.qq.com/sheet/DWklWS ... ps16&amp;viewId=fv1](ht
 
 Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;viewId=fv1](https://docs.qq.com/sheet/DWndVbEdwbVJWdkRH?tab=ss_ahgxca&amp;viewId=fv1)
 
+
+*****
+
+####  铃木羽那  
+##### 3336#       发表于 2024-4-24 10:09
+
+黑星要是我和卢卡的双人组合该多好
+<img src="https://p.sda1.dev/17/a5f90263e69d8a509fede952c6605fdd/cd6740179f61c79d88bec928ba5584a7669141028.jpg" referrerpolicy="no-referrer">
+

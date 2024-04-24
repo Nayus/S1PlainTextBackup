@@ -123,3 +123,22 @@ IMG_1930.jpeg
 不懂棒球</blockquote>
 图都画错了，草坪的阴阳线怎么可能是和球门垂直的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1802#       发表于 2024-4-24 10:03
+
+我们莉可丽丝世界的球场是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王九的哥哥  
+##### 1803#       发表于 2024-4-24 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698693&amp;ptid=2152053" target="_blank">MagisterPeditum 发表于 2024-4-24 09:43</a>
+图都画错了，草坪的阴阳线怎么可能是和球门垂直的</blockquote>
+搜了一下照片，神户主场那个阴阳草皮好像是纵横都有的……
+
+其实是格子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

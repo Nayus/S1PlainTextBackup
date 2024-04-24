@@ -3494,3 +3494,68 @@ EAT和无后坐力都行
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  赤井稻妻  
+##### 3285#       发表于 2024-4-24 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700103&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:23</a>
+
+顺便再问下看很多人讲带反器材打机器人，思路是什么，反器材打头？能破巨型者的防吗，还有那个火箭蹂躏者应 ...</blockquote>
+理想情况都是打头，如果打不到蹂躏者的头打上半身的击杀效率也ok
+
+巨型者打那个红眼睛才能有伤害，要两枪，打不准就用震撼弹控住
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 迷途lite| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Launce  
+##### 3286#       发表于 2024-4-24 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700103&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:23</a>
+
+顺便再问下看很多人讲带反器材打机器人，思路是什么，反器材打头？能破巨型者的防吗，还有那个火箭蹂躏者应 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪里发光打哪里
+<img src="https://img.feixue.cloud/2024/04/24/146088d97a165.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 迷途lite| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  迷途lite  
+##### 3287#       发表于 2024-4-24 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700176&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-24 11:29</a>
+哪里发光打哪里</blockquote>
+牛逼，绝世好图
+
+
+*****
+
+####  normalli  
+##### 3288#       发表于 2024-4-24 11:31
+
+我用了几把飞矛，感觉如果它锁定能正常工作的话还是好用的，但它锁定完全随缘
+

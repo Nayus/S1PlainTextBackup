@@ -4677,3 +4677,20 @@ P3r是做的时候就用虚幻啊，暗喻幻想就算有加强版，直接换�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  黑修士  
+##### 363#       发表于 2024-4-24 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699305&amp;ptid=2140224" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-4-24 10:31</a>
+
+A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛 ...</blockquote>
+[https://www.bilibili.com/video/BV1Dm421W7FE](https://www.bilibili.com/video/BV1Dm421W7FE)
+
+可能是BOSS战的配乐吧，通常战用这种确实有些过猛了
+
+感觉目黑这次在编曲上融合了不少东西方的宗教元素
+
+有经文唱诵、圣歌和声，PV里还有邦乐风格的女声吟唱
+

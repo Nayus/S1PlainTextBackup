@@ -1025,3 +1025,11 @@ Image_1713976187970.jpg
 很纠结买数字版还是光盘</blockquote>
 现在才买光盘，想等一周后再玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 835#       发表于 2024-4-25 00:59
+
+准备直接数字版，可惜得等到 51 节后回来才能玩了
+

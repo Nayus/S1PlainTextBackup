@@ -12501,3 +12501,19 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 我都输成这样了，麻烦给我点靠谱的队友</blockquote>
 之前连胜之后需要去开发挑战献祭献祭，然后再回来打x<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4219#       发表于 2024-4-25 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708829&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-4-25 00:05</a>
+之前连胜之后需要去开发挑战献祭献祭，然后再回来打x</blockquote>
+没用的，我挑战连胜断了才打的X，依然继续输，挑战和X间并不存在什么胜率平衡，队友感觉也没差。
+
+低分段拿轮椅武器的、只会扔垃圾的、只敢打安全球的，太多太多了，明明是很有意思的游戏，却能玩得这么无聊，这帮人到底在想什么？加特林上前线还是困难，审查者再灵活也灵活不过小枪，更别说中加了，但跟一群贪生怕死的家伙做队友你不上前线能怎么办，等着输么？我连自己的数据都不要了，还是很难唤起这些人的良心。
+
+明明有着更容易C的小绿/绿双，有着能让数据更好看的4K，我却选择了专精加特林，我是不是贱？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

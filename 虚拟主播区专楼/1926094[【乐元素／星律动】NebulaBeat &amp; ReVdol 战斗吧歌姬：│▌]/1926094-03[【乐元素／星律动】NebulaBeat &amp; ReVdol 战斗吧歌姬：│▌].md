@@ -149,3 +149,16 @@ sagi如果是家用那种3d还行吧，要搞之前那种出bug的3d大可不必
 嘻嘻 真牛捏 继续 她这性格和做事社会会继续毒打她的[ ...</blockquote>
 不是说早有富哥男友了嘛
 
+
+*****
+
+####  ladiesman802  
+##### 3364#       发表于 2024-4-25 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709035&amp;ptid=1926094" target="_blank">逸yi 发表于 2024-4-25 00:28</a>
+
+不是说早有富哥男友了嘛</blockquote>
+有富哥男友还在这里哭穷？
+
+我不如相信卡姐有富哥男友，毕竟她营收最低还心疼哥们儿的钱包
+

@@ -8091,3 +8091,14 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 要相信战时半年一迭代非战时两年一迭代的种系的技术迭代速度</blockquote>
 然后一个初代机拂晓把地图炮都给反了。
 
+
+*****
+
+####  混乱之雨  
+##### 650#       发表于 2024-4-24 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698629&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-24 09:39</a>
+
+然后一个初代机拂晓把地图炮都给反了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拂晓1台用了30台M1异端的预算我看挺值的，地图炮一炮下去干掉10几台草薙级上百台异端/村雨不过分的
+

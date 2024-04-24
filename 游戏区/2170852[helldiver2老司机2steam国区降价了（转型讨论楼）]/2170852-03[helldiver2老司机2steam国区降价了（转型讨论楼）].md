@@ -3716,3 +3716,13 @@ EAT和无后坐力都行
 步枪跟狙感觉都不是太好用（</blockquote>
 焦土啊？焦土是打机器人最好用的主武器之一。
 
+
+*****
+
+####  大肥鸽子  
+##### 3304#       发表于 2024-4-24 18:07
+
+话说爆裂铳修复切枪bug后手感不太行，感觉现在只能缩在队友后面了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

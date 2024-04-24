@@ -78,3 +78,20 @@ https://twitter.com/torigon_0701/status/1781257691882823952
 
 https://x.com/Neko_4cfantasy/status/1782771168795054248<img src="https://p.sda1.dev/17/1d7e632ae502c42f14bf81ad56b29b40/CMP_20240424025224044.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 1798#       发表于 2024-4-24 09:20
+
+不懂棒球
+
+IMG_1930.jpeg
+(675.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 09:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/091852q6eearu651rrel4s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

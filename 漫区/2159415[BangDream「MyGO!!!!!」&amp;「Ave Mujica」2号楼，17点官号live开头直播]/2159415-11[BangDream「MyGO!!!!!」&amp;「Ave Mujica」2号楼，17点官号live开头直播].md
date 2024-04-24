@@ -13163,3 +13163,51 @@ https://x.com/athyrabunlord/status/1780846350063538232<img src="https://p.sda1.d
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697197&amp;ptid=2159415" target="_blank"> 暁美ほむら 发表于 2024-4-24 01:41</a>  本帖最后由 暁美ほむら 于 2024-4-24 01:42 编辑  引用:zzhh0131 发表于 2024-4-24 01:20 绝大多数的日本动画bd原盘质量都不行 不这次是翻车而不是画质不行   TV   BD  附件： </blockquote>
 我就是这个意思来自: iPhone客户端
 
+
+*****
+
+####  NODY  
+##### 15972#       发表于 2024-4-24 10:37
+
+昨天就看到有人在gamers路遇mujica团建的照片流出，果然今天就发出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/24/103526jaanzk4k14e8kefc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240424_103435.jpg</strong> (251.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/103536zkbsqrr27jrcf5qj.jpg" referrerpolicy="no-referrer">
+
+<strong>GL5Tb6gbMAAnCiY_format=jpg&amp;amp;name=large.jpg</strong> (385.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/103547kp6gwmt6hs866o7p.jpg" referrerpolicy="no-referrer">
+
+<strong>GL5Tb6fbMAAedX1_format=jpg&amp;amp;name=large.jpg</strong> (514.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/103605iniq8xbj7nm799i6.jpg" referrerpolicy="no-referrer">
+
+<strong>GL5Tb6ibUAAbFPX_format=jpg&amp;amp;name=large.jpg</strong> (392.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 10:36 上传
+
+<img src="https://img.saraba1st.com/forum/202404/24/103616e994sm9mvdm900hq.jpg" referrerpolicy="no-referrer">
+
+<strong>GL5Tb6gaMAAzw0__format=jpg&amp;amp;name=large.jpg</strong> (413.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 10:36 上传
+

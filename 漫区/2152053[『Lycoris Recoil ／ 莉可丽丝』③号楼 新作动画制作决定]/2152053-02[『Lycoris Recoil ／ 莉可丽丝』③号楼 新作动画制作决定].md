@@ -167,3 +167,20 @@ IMG_1930.jpeg
 
 先宣布二期的更衣人偶也没消息呢，aniplex的二期基本都慢的很
 
+
+*****
+
+####  Delicatus545  
+##### 1807#       发表于 2024-4-24 10:33
+
+慢工出细活，急不得<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MagisterPeditum  
+##### 1808#       发表于 2024-4-24 10:39
+
+三年不翅，将长羽翼；
+
+不鸣则已，一鸣惊人。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

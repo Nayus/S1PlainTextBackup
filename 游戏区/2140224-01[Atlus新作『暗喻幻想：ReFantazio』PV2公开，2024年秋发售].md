@@ -4641,3 +4641,13 @@ ATLUS在今晚播出的《暗喻幻想 ReFantazio》“跟踪者俱乐部 ...</b
 
 A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗用boss战规格的bgm有点用力过猛
 
+
+*****
+
+####  Squall25  
+##### 359#       发表于 2024-4-24 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696317&amp;ptid=2140224" target="_blank">AeonsTorn 发表于 2024-4-23 23:30</a>
+毕竟p3r上了新引擎，能期待之后的加强版变成用新引擎的hd版吗</blockquote>
+P3r是做的时候就用虚幻啊，暗喻幻想就算有加强版，直接换引擎这种操作真的有可能吗？怕是屎山根本不好弄
+

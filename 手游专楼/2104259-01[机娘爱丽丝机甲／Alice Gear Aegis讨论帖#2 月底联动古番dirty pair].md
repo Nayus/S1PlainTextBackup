@@ -14,3 +14,11 @@
 
 上次胸针是你游第一句男人语音（？
 
+
+*****
+
+####  hl7424994  
+##### 1037#       发表于 2024-4-24 20:19
+
+果然就跟上次预告的一样BUDDY LINK只是改善了发动条件，但最根本的叫出来的人挨打会掉血甚至会被打死导致毫无实用性问题压根没去动。我们阿金做的设计真的太Cool了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

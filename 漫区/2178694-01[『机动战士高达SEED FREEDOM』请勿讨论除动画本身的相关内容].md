@@ -7991,3 +7991,14 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 依我看就该多敲打敲 ...</blockquote>
 拉克丝还没？
 
+
+*****
+
+####  qwemiku  
+##### 642#       发表于 2024-4-24 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668505&amp;ptid=2178694" target="_blank">紫煜 发表于 2024-4-21 14:10</a>
+
+说老实话，这部剧场版鸡从心性到战力我觉得都挺那啥的，以前我真无法想象在女友被绑架，亲姐和养父母都可能 ...</blockquote>
+你看过全片没有？最后基在2个BOSS围攻情况下的操作看了吗，看了就不会说基弱这种话了
+

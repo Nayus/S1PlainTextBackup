@@ -3270,3 +3270,24 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 机器人把把有类星体仙人真绷不住了，会打船打炮台还好，能碰到40多级啥都不会打被蹂躏者单杀的属实说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 3268#       发表于 2024-4-24 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697503&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-24 05:30</a>
+机器人把把有类星体仙人真绷不住了，会打船打炮台还好，能碰到40多级啥都不会打被蹂躏者单杀的属实说不出话 ...</blockquote>
+队友有机炮仙人我才会带类星体，打机器人没机炮处理小怪难受很多
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ravend233  
+##### 3269#       发表于 2024-4-24 08:57
+
+机器人野队日常三个类星体仙人，只能被迫当机炮仙人兜底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

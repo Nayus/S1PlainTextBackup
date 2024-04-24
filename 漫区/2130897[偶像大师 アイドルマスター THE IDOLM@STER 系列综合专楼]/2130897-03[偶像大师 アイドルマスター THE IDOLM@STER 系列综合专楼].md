@@ -4110,3 +4110,37 @@ Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学霸这抖M发言，已经看见瑟瑟二创要怎么搞了
 
+
+*****
+
+####  joshua1990  
+##### 3348#       发表于 2024-4-24 15:20
+
+<img src="https://img.saraba1st.com/forum/202404/24/152039xjd8krvm2jzms1kw.jpg" referrerpolicy="no-referrer">
+
+<strong>9274CE0228862DE5A9C8DA26BD43F6FD.jpg</strong> (145.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 15:20 上传
+
+竟然还是跟ca合作，ca代工，这些可以狠狠期待游戏性了
+
+
+*****
+
+####  Anatoly  
+##### 3349#       发表于 2024-4-24 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702896&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-4-24 15:20</a>
+
+竟然还是跟ca合作，ca代工，这些可以狠狠期待游戏性了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个不是早说了吗，偶像荣耀那家代工
+
+*****
+
+####  ViviR  
+##### 3350#       发表于 2024-4-24 15:27
+
+这个“狠狠期待游戏性”，是在说反话还是…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

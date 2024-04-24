@@ -4891,3 +4891,21 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 <img src="https://p.sda1.dev/17/0c6fabac253aa0d679a6b7c7fac544a8/82bd2e98gy1hp2bh7ncixj22yo1o0npj _1_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/d29fc639dc2a235e89408724ab446d81/82bd2e98gy1hp2bh6i0j9j22yo1o0b2g _1_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秦南心  
+##### 380#       发表于 2024-4-25 00:25
+
+好顶级的游戏介绍，越看到后面越兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suzakushi  
+##### 381#       发表于 2024-4-25 00:31
+
+人设是真的土，还没GAL，开始提前盼P6了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

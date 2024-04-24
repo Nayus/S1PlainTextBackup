@@ -4253,3 +4253,19 @@ https://bgm.tv/subject/482314
 那怕是必不可能了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这下不是可以直接偷师同门兄弟cy的马娘养成模式 给大家来一套组合拳了
 
+
+*****
+
+####  rgauss  
+##### 3362#       发表于 2024-4-24 15:49
+
+不是学sc?
+
+
+*****
+
+####  ViviR  
+##### 3363#       发表于 2024-4-24 15:55
+
+不是回归初代偶像大师的模式么（
+

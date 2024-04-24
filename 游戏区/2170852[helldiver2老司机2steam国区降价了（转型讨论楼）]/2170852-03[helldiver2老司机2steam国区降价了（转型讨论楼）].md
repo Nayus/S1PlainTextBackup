@@ -3661,3 +3661,14 @@ EAT和无后坐力都行
 
 —— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  MkChang  
+##### 3299#       发表于 2024-4-24 15:49
+
+怎么感觉解包的武器早就塞进本体了，新模型倒是确实是新的。
+之前玩没放出来的武器感觉大部分都是玩具，特别那几把破裂者同分异构体，纯来搞笑的。不过都没上线后边再改数据也很正常
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

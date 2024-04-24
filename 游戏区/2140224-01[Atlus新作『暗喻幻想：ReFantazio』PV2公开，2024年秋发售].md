@@ -4651,3 +4651,11 @@ A社游戏玩得小，听着像STRANGE JOURNEY的敬虔な恐れ，通常战斗�
 毕竟p3r上了新引擎，能期待之后的加强版变成用新引擎的hd版吗</blockquote>
 P3r是做的时候就用虚幻啊，暗喻幻想就算有加强版，直接换引擎这种操作真的有可能吗？怕是屎山根本不好弄
 
+
+*****
+
+####  heseran  
+##### 360#       发表于 2024-4-24 10:55
+
+什么？不能发展为恋爱关系？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

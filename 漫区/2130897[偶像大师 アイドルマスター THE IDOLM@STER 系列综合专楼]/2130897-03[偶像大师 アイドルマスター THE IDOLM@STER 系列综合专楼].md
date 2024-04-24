@@ -4018,3 +4018,11 @@ Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">你们哪来的这么多马甲
 
+
+*****
+
+####  cckuku  
+##### 3338#       发表于 2024-4-24 10:55
+
+我去试了一下，学马仕的信号灯马甲都被抢占了，但是小黄注册的是藤田ことね，我试了一下藤田琴音还在就抢了。剩下六个人的马甲都还在<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

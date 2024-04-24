@@ -638,3 +638,22 @@ q群563383883，是视频不好发出来
 刚玩这demo，感觉比想象得硬核多了</blockquote>
 经典开局残疾人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名字已被吃  
+##### 792#       发表于 2024-4-24 11:59
+
+话说demo有什么试玩奖励之类的能继承到正式版吗？当时用的港服号玩的试玩，现在日服小号买的游戏，因为合购关系，我这边要用日服小号来玩正式版了，在想是否需要日服小号再玩一遍试玩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宛若青空  
+##### 793#       发表于 2024-4-24 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700622&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-24 11:59</a>
+话说demo有什么试玩奖励之类的能继承到正式版吗？当时用的港服号玩的试玩，现在日服小号买的游戏，因为合购 ...</blockquote>
+没有，只是可以继承存档
+

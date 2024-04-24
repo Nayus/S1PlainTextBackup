@@ -1033,3 +1033,14 @@ Image_1713976187970.jpg
 
 准备直接数字版，可惜得等到 51 节后回来才能玩了
 
+
+*****
+
+####  cedarmil1  
+##### 836#       发表于 2024-4-25 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709177&amp;ptid=1978008" target="_blank">寂长无星夜 发表于 2024-4-25 00:47</a>
+
+现在才买光盘，想等一周后再玩吗</blockquote>
+真有必要的话，后天收工了直接去超市买一盘就是，ps5游戏又脱不了销
+

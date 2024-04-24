@@ -1015,3 +1015,13 @@ Image_1713976187970.jpg
 
 很纠结买数字版还是光盘
 
+
+*****
+
+####  寂长无星夜  
+##### 834#       发表于 2024-4-25 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709150&amp;ptid=1978008" target="_blank">r1r2r3 发表于 2024-4-25 00:43</a>
+很纠结买数字版还是光盘</blockquote>
+现在才买光盘，想等一周后再玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -152,3 +152,15 @@ getchu独占了一些老黄油，下种子都没速度的。这次下架估计�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  若荼泱  
+##### 99#       发表于 2024-4-24 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697430&amp;ptid=2178442" target="_blank">pf67 发表于 2024-4-24 03:53</a>
+点卡又不是不能充， 屈服个毛线
+
+这不正好就是打破美元霸权的切入点</blockquote>
+点卡好像也被禁了，现在只能 PP<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

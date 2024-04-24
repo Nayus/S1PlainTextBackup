@@ -852,3 +852,19 @@ a9这个还留嘴了，看看篝火的<img src="https://static.saraba1st.com/ima
 
 只要别搞那种流程打一半老家被炸，任务做不了道具补不齐的设计就行
 
+
+*****
+
+####  Leliel  
+##### 815#       发表于 2024-4-24 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能继承存档，不能选章节，很好，这是忍龙1，纯真复古风味
+
+
+*****
+
+####  jacket  
+##### 816#       发表于 2024-4-24 23:10
+
+PS5更新1.002，4.1G的补丁
+

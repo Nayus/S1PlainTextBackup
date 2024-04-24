@@ -1319,3 +1319,16 @@ bt的这套使用模式我是真的很难坚持下来
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  剑鹰  
+##### 138#       发表于 2024-4-24 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708077&amp;ptid=2176037" target="_blank">奶奶扣 发表于 2024-4-24 23:03</a>
+
+我记得之前说BT伤硬盘
+
+那会儿都是机械硬盘吧 现在的固态还怕么？</blockquote>
+有几个人的硬盘因为bt挂掉了-_-
+

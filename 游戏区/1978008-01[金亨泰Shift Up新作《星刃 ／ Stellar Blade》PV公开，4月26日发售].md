@@ -554,3 +554,23 @@ q群563383883，是视频不好发出来
 
 虽然我是ps5玩家，我可不在乎剑星是不是独占，我自己能马上玩上就行了，还管别人什么时候能玩？
 
+
+*****
+
+####  医生狼多  
+##### 783#       发表于 2024-4-24 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64697727&amp;ptid=1978008" target="_blank">crosz1985 发表于 2024-4-24 07:56</a>
+今晚出分吗？
+
+论坛助手,iPhone</blockquote>
+十点or十一点
+
+
+*****
+
+####  lilod  
+##### 784#       发表于 2024-4-24 10:20
+
+盲猜一个 80
+

@@ -461,3 +461,14 @@ rfid贵，优衣库和迪卡侬都是用的，但是服饰类本来就有吊卡�
 确实是人工的，首先里面的东西就是随便乱堆的，而且定期会有人来往里面放更换品种，其次买来的东西和超市里卖的没区别，包装上没有任何的特殊之处，最后如果仔细观察的话，右上角有拍摄的摄像头
 还有就是半夜去买东西有概率打不开门或者反应特别慢，这除了人工我想不到第二种可能性
 
+
+*****
+
+####  suhanblood  
+##### 46#       发表于 2024-4-24 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64703334&amp;ptid=2181215" target="_blank">真红之闪电 发表于 2024-4-24 15:56</a>
+
+话说优衣库那个结算比别家体验恐怖太多了，东西丢进去我手机还没打开价格就出来了。每次付完钱我都觉得被抢 ...</blockquote>
+说实话优衣库真的要当心，有人会拆别件的吊牌放货架衣服裤兜的，至少要数清楚自己拿了几件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

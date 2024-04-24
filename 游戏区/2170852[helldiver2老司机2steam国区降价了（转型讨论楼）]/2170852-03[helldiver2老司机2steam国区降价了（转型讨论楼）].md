@@ -3371,3 +3371,126 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  迷途lite  
+##### 3277#       发表于 2024-4-24 11:14
+
+ 本帖最后由 迷途lite 于 2024-4-24 11:17 编辑 
+
+爆裂铳打巨型者应该瞄哪个位置啊，头吗？还是绕背打散热？还有爆裂铳处理虫子的思路是什么，强袭打腿？
+
+顺便楼上说的类星体打运输船是什么操作？
+
+离开喷子类星体感觉已经不会玩游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 3278#       发表于 2024-4-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699954&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-24 11:13</a>
+
+直接开镜，兵工厂散热口上半是挡板，下半是窗口，瞄准窗口下半部分基本能一炮打爆，正面∠45度内打是最稳 ...</blockquote>
+类星体原来是直接打窗户
+
+机炮第一天打的很顺利，后面再没成功过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 3279#       发表于 2024-4-24 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699977&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:14</a>
+爆裂铳打巨型者应该瞄哪个位置啊，头吗？还是绕背打散热？
+
+顺便楼上说的类星体打运输船是什么操作？
+
+ ...</blockquote>
+看到运输船来就直接蓄力，瞄准喷气的四个引擎之一，一炮就能打沉
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 迷途lite| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3280#       发表于 2024-4-24 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699977&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:14</a>
+爆裂铳打巨型者应该瞄哪个位置啊，头吗？还是绕背打散热？还有爆裂铳处理虫子的思路是什么，强袭打腿？
+
+顺 ...</blockquote>
+爆裂铳只能打巨型者背部散热吧，
+类星体打运输船4个引擎任意一个可以打下运输船，eat和无后坐力炮同理
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 迷途lite| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  迷途lite  
+##### 3281#       发表于 2024-4-24 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700001&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-24 11:16</a>
+
+看到运输船来就直接蓄力，瞄准喷气的四个引擎之一，一炮就能打沉
+
+—— 来自 HUAWEI WLZ-AL10, Android 1 ...</blockquote>
+牛逼，晚上试试，是不是EAT或者其他带爆炸的AT武器也能做到？
+
+
+*****
+
+####  Launce  
+##### 3282#       发表于 2024-4-24 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700022&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:17</a>
+
+牛逼，晚上试试，是不是EAT或者其他带爆炸的AT武器也能做到？</blockquote>
+EAT和无后坐力都行
+
+*****
+
+####  迷途lite  
+##### 3283#       发表于 2024-4-24 11:23
+
+顺便再问下看很多人讲带反器材打机器人，思路是什么，反器材打头？能破巨型者的防吗，还有那个火箭蹂躏者应该打头还是打弹巢啊？
+
+机器人火力太变态了，打起来根本想不起来任何处理，怀念难度3机器人
+
+*****
+
+####  jy000129  
+##### 3284#       发表于 2024-4-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700022&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-24 11:17</a>
+牛逼，晚上试试，是不是EAT或者其他带爆炸的AT武器也能做到？</blockquote>
+次抛和无后座不需要蓄力，可以更快在运输船空投前打掉，稳定死一船
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

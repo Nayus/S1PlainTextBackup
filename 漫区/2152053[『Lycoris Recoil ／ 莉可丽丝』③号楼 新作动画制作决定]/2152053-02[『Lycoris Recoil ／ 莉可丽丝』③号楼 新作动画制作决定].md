@@ -95,3 +95,20 @@ IMG_1930.jpeg
 
 <img src="https://img.saraba1st.com/forum/202404/24/091852q6eearu651rrel4s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 1799#       发表于 2024-4-24 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698403&amp;ptid=2152053" target="_blank">osore 发表于 2024-4-24 09:20</a>
+不懂棒球</blockquote>
+这是足球……
+
+*****
+
+####  Delicatus545  
+##### 1800#       发表于 2024-4-24 09:35
+
+不懂足球<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

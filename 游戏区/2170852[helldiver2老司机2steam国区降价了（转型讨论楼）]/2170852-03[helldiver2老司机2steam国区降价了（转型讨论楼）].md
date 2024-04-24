@@ -3291,3 +3291,33 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  丹德里恩  
+##### 3270#       发表于 2024-4-24 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698145&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-4-24 08:57</a>
+
+机器人野队日常三个类星体仙人，只能被迫当机炮仙人兜底
+
+—— 来自 Xiaomi 23013RK75C, Android 14 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">那是你还没遇到连类星体都不带的，不到10分钟增援次数少了一半
+
+
+*****
+
+####  wthall  
+##### 3271#       发表于 2024-4-24 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698123&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-4-24 08:54</a>
+
+队友有机炮仙人我才会带类星体，打机器人没机炮处理小怪难受很多
+
+不过有类星体处理飞机坦克巨型者就轻松 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟有很多人30多级了都只打虫子，比如我：杀虫9K，杀机器人1K。
+
+我也只会用类星体打打飞船，但是怎么拆兵营一头雾水，打窗户完全没用。
+
+包括很多机器人的单位怎么处理都不太知道。
+

@@ -8024,3 +8024,47 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 至于复国的设定，纯粹就是代哥 ...</blockquote>
 我觉得G复兴在倒A前面确实比较合理诶，在后面那说不通了。
 
+
+*****
+
+####  pokemon最爱  
+##### 645#       发表于 2024-4-24 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698279&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-24 09:10</a>
+
+我问一个设定上的问题，可能是我没看懂。
+
+基地国这是怎么在短时间内建设得这么强的，虽然之前有水面下的实 ...</blockquote>
+靠种姓制度化的命运计划<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 646#       发表于 2024-4-24 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698511&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-4-24 09:30</a>
+
+靠种姓制度化的命运计划</blockquote>
+那他们这也没几年啊，一代人都没有呢。
+
+命运计划也不是超能力啊。虽然他们确实有超能力，但是这么短时间够干什么的。
+
+*****
+
+####  qwemiku  
+##### 647#       发表于 2024-4-24 09:32
+
+高达SEED DESTINY OP&amp;ED（TV SIZE）
+
+提取自高达SEED系列音乐纪念CD-BOX
+
+比较惊喜的是这次收录了以前没有的几首 tv size
+
+但是像reason和life goes on的特殊变奏还是没有收录
+
+[https://pan.baidu.com/s/1JQYib6FtVq26OewueIYIKg](https://pan.baidu.com/s/1JQYib6FtVq26OewueIYIKg)
+
+提取码：ngb4
+
+原地址：[https://www.bilibili.com/video/BV1FZ421H7Ff](https://www.bilibili.com/video/BV1FZ421H7Ff)
+

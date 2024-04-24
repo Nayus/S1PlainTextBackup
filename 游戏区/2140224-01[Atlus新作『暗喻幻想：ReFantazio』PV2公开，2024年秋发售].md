@@ -4659,3 +4659,21 @@ P3r是做的时候就用虚幻啊，暗喻幻想就算有加强版，直接换�
 
 什么？不能发展为恋爱关系？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 361#       发表于 2024-4-24 11:06
+
+感觉这次曲风和以往p系列差别很大，还是有点担心目黑能不能驾驭得好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ouyang菌  
+##### 362#       发表于 2024-4-24 11:10
+
+目黑区分多变的很，sj的交响乐和smt3不少曲子不都是他作的
+非要把人家绑死在p系列的流行乐身上才是浪费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3358,3 +3358,16 @@ ATST那个炮的爆头伤害还是很恐怖的，所以这玩意的处理优先�
 
 机炮也能清，不过是要打盖板位置让子弹反弹进工厂。
 
+
+*****
+
+####  jy000129  
+##### 3276#       发表于 2024-4-24 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699596&amp;ptid=2170852" target="_blank">真红眼教授 发表于 2024-4-24 10:50</a>
+类星体打机器人工厂到底要瞄哪个位置，每次看队友都是一炮清，很羡慕</blockquote>
+直接开镜，兵工厂散热口上半是挡板，下半是窗口，瞄准窗口下半部分基本能一炮打爆，正面∠45度内打是最稳定的
+机炮就是打挡板上半部分，也是建议正面∠45度
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8160,3 +8160,17 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 然后一个初代机拂晓把地图炮都给反了。</blockquote>
 只能说那个涂层离谱外加穆叔离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 656#       发表于 2024-4-24 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698888&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-24 09:56</a>
+拂晓ban一切光束武器，逼大家走动能。
+
+但是动能就不好弄地图炮了。</blockquote>
+钢钉吧，跟铁血联动
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4026,3 +4026,25 @@ Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;
 
 我去试了一下，学马仕的信号灯马甲都被抢占了，但是小黄注册的是藤田ことね，我试了一下藤田琴音还在就抢了。剩下六个人的马甲都还在<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3339#       发表于 2024-4-24 11:04
+
+草，你们这么多十块钱的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 3340#       发表于 2024-4-24 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64699804&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-24 11:04</a>
+草，你们这么多十块钱的吗
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+死鱼换
+

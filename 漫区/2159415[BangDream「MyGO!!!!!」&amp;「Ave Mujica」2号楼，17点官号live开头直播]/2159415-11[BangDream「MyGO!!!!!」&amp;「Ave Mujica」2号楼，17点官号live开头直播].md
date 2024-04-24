@@ -13704,3 +13704,11 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 这不是正好三个感叹号，MyGO来三个（去掉没事就来中国的青木和李世林)，Mujica来两个，你们说好不好 ...</blockquote>
 不好，想看五人齐<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 16010#       发表于 2024-4-24 20:11
+
+怎么还有夏色祭，木口这是正式回旋了？
+

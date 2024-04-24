@@ -946,3 +946,33 @@ a9提到这游戏有很多长连招加成机制但没有offset系统所以非昏
 
 这更新时间属实幽默
 
+
+*****
+
+####  Leona_Akari  
+##### 827#       发表于 2024-4-25 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是什么巨魔更新，只坑评测不坑玩家是吧
+
+*****
+
+####  Piano-Forest  
+##### 828#         楼主| 发表于 2024-4-25 00:18
+
+IGN 7：
+[https://www.ign.com/articles/stellar-blade-review](https://www.ign.com/articles/stellar-blade-review)
+
+GS 8：
+[https://www.gamespot.com/reviews ... n-get/1900-6418215/](https://www.gamespot.com/reviews/stellar-blade-review-nier-as-it-can-get/1900-6418215/)
+
+MC：
+[https://www.metacritic.com/game/stellar-blade/](https://www.metacritic.com/game/stellar-blade/)
+
+
+*****
+
+####  jacket  
+##### 829#       发表于 2024-4-25 00:21
+
+游戏媒体不能光提前爽，也要承担相应风险
+

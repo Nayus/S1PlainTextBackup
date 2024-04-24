@@ -8325,3 +8325,11 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 有意思，福田又重新开启评论了
 
+
+*****
+
+####  Smith·勇  
+##### 673#       发表于 2024-4-24 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龟壳里出来了，老登脊梁骨硬的
+

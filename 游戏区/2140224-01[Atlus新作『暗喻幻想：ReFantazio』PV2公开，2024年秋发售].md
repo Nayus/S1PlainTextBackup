@@ -4862,3 +4862,21 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 这披风太“高级”了，欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 377#       发表于 2024-4-24 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707950&amp;ptid=2140224" target="_blank">potwater 发表于 2024-4-24 22:52</a>
+
+黑白披风是PV1的这位吗</blockquote>
+这么一看还有一个大概是右上角那个西装人，大概是细谷佳正配的那个？
+
+*****
+
+####  Arians  
+##### 378#       发表于 2024-4-24 23:59
+
+这队友人设完全没有购入的欲望阿
+

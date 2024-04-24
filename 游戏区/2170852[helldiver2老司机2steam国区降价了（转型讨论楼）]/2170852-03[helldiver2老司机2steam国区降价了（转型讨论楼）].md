@@ -3770,3 +3770,16 @@ EAT和无后坐力都行
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  暴走的包子  
+##### 3309#       发表于 2024-4-24 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704777&amp;ptid=2170852" target="_blank">子夜琉璃子 发表于 2024-4-24 17:50</a>
+
+问问不氪金主手打机器人是不是只有单喷可以考虑了啊
+
+步枪跟狙感觉都不是太好用（</blockquote>
+勤勉可以用的啊，你当成是弱一点的反器材就行，高难度还是乖乖肝焦土吧
+

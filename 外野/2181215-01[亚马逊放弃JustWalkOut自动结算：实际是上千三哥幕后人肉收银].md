@@ -496,3 +496,20 @@ rfid贵，优衣库和迪卡侬都是用的，但是服饰类本来就有吊卡�
 
 —— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Joshua64  
+##### 49#       发表于 2024-4-24 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704499&amp;ptid=2181215" target="_blank">安娜导函数 发表于 2024-4-24 17:23</a>
+
+问题迪卡侬卖的东西大部分是按他们自己标准生产的吧，你总不能要求超市卖的所有东西都按你超市要求贴芯片 ...</blockquote>
+不谈成本的话，理论上确实可以……
+
+衣服就不说了，RFID标签在水洗标或者吊牌上
+
+其他的商品就是一张标签纸贴在包装上的，只要超市愿意粘那肯定是能做的
+
+但是话又说回来了，这肯定是一笔不小的物料和人工成本……
+

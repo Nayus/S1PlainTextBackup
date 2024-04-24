@@ -13595,3 +13595,101 @@ BW可以考虑，BML就算了，票血妈贵还没几首
 
 真的吗，再考虑一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  多莉DOLLY  
+##### 16001#       发表于 2024-4-24 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705402&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-24 18:41</a>
+
+BML说实话有点讨厌，为了狗一两首去买那么大的拼盘的门票。大部分人都不认识，最好能像音宝一样上BW，要么 ...</blockquote>
+而且就算真要来人也来不齐，青木少歌抽不开身的
+
+但我想看看b站能不能像19年九九组那样安排个签名会之类的
+
+*****
+
+####  御幸一也  
+##### 16002#       发表于 2024-4-24 18:49
+
+看點狂暴大金毛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/24/184924ac2fc21a58prrwcw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240423-154054_1782796799562101039_photo.jpg</strong> (147.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-24 18:49 上传
+
+[https://twitter.com/bpdne/status/1782796799562101039](https://twitter.com/bpdne/status/1782796799562101039)
+
+*****
+
+####  御幸一也  
+##### 16003#       发表于 2024-4-24 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705385&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-4-24 18:39</a>
+
+再捡一遍就是了</blockquote>
+確實<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 16004#       发表于 2024-4-24 18:50
+
+隔壁又开始了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来来回回就这一套，光在泥漏看都看腻了
+
+*****
+
+####  紫吹兰  
+##### 16005#         楼主| 发表于 2024-4-24 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705444&amp;ptid=2159415" target="_blank">多莉DOLLY 发表于 2024-4-24 18:44</a>
+
+而且就算真要来人也来不齐，青木少歌抽不开身的
+
+但我想看看b站能不能像19年九九组那样安排个签名会之类的 ...</blockquote>
+这不是正好三个感叹号，MyGO来三个（去掉没事就来中国的青木和李世林)，Mujica来两个，你们说好不好
+
+*****
+
+####  Aendst  
+##### 16006#       发表于 2024-4-24 18:52
+
+没有动画的底边乐队本质不存在，不配出席海外重要活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16007#       发表于 2024-4-24 18:52
+
+再撿一次angles<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+【佐々木】この曲は、オブリビオニス（高尾）とドロリスの関係性が中心にあるパワーバラードなので、「今までの世界と別れを告げる」というニュアンスをすごく大切にしましたし、「生と死」がテーマになっている曲だからこそ、その間の寸劇も含めて1つひとつの言葉をより大切にしていました。
+
+angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“和迄今為止的世界做出告別”這個感覺。也正因為這首歌是以「生與死」為主題，讓李子更加珍惜這首歌的每一句歌詞，包括穿插其間的短劇。
+
+其他說的真的都感覺，之前訪談聊過了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+例如
+
+これは個人的な思いでもあるんですが、絶望に苛まれてどん底にいるときに、Ave Mujicaの曲は「歪んだままでもいいんだよ」と言ってくれるような気がしていて、私自身もすごく救われたんです。
+
+感覺和上一個訪談她聊配音完了的動畫感想差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16008#       发表于 2024-4-24 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64705537&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-24 18:52</a>
+
+再撿一次angles
+
+【佐々木】この曲は、オブリビオニス（高尾）とドロリスの関係性が中心にあるパワ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">后面这句感觉可以假药一下的，比上次更详细一点，没那么笼统了
+

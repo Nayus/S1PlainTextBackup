@@ -4067,3 +4067,30 @@ Vol.1 【偶像、是什么啊】[https://docs.qq.com/sheet/DWndVb ... gxca&amp;
  在哪用死鱼换邀请码？</blockquote>
 好友-好友邀请
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3343#       发表于 2024-4-24 11:38
+
+原来死鱼还有这功能，我还以为只能用来加鹅扣鹅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 3344#       发表于 2024-4-24 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64700210&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-4-24 11:31</a>
+在哪用死鱼换邀请码？</blockquote>
+好友-好友邀请
+
+
+*****
+
+####  Alicest  
+##### 3345#       发表于 2024-4-24 11:44
+
+<img src="https://p.sda1.dev/17/019eb6bdd70f09e5ed93d1fcb25ac1d5/CMP_20240424114419962.png" referrerpolicy="no-referrer">
+

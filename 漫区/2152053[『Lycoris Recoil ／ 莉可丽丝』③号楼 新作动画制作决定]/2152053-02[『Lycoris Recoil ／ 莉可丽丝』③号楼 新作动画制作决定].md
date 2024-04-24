@@ -112,3 +112,14 @@ IMG_1930.jpeg
 
 不懂足球<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MagisterPeditum  
+##### 1801#       发表于 2024-4-24 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698403&amp;ptid=2152053" target="_blank">osore 发表于 2024-4-24 09:20</a>
+
+不懂棒球</blockquote>
+图都画错了，草坪的阴阳线怎么可能是和球门垂直的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

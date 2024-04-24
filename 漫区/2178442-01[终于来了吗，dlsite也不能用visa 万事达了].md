@@ -122,3 +122,15 @@ PIXIV这个妥协也不太顶用吧，所在区域不是随便能改吗
 
 getchu独占了一些老黄油，下种子都没速度的。这次下架估计在圈内造成永久损失了，看过两天有没有人统计吧
 
+
+*****
+
+####  pf67  
+##### 96#       发表于 2024-4-24 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695030&amp;ptid=2178442" target="_blank">caupollen 发表于 2024-4-23 21:16</a>
+如果是这样不是直接要你命吧</blockquote>
+这贴的地址贴一下嘛
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

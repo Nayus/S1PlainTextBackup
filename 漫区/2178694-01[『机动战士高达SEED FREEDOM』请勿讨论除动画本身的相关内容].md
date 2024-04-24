@@ -8068,3 +8068,26 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 原地址：[https://www.bilibili.com/video/BV1FZ421H7Ff](https://www.bilibili.com/video/BV1FZ421H7Ff)
 
+
+*****
+
+####  pokemon最爱  
+##### 648#       发表于 2024-4-24 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698524&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-4-24 09:30</a>
+
+那他们这也没几年啊，一代人都没有呢。
+
+命运计划也不是超能力啊。虽然他们确实有超能力，但是这么短时间 ...</blockquote>
+要相信战时半年一迭代非战时两年一迭代的种系的技术迭代速度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AraTurambar  
+##### 649#       发表于 2024-4-24 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64698617&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-4-24 09:38</a>
+
+要相信战时半年一迭代非战时两年一迭代的种系的技术迭代速度</blockquote>
+然后一个初代机拂晓把地图炮都给反了。
+

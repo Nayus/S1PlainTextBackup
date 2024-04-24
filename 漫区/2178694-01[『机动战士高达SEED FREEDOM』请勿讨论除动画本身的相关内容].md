@@ -7976,3 +7976,18 @@ ft还是和他最看不上的seed外传作者同坐一桌吧<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qwemiku  
+##### 641#       发表于 2024-4-24 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64668376&amp;ptid=2178694" target="_blank">liekong 发表于 2024-4-21 13:54</a>
+
+种粉现在都多少岁了，到现在还这么一副结晶的样子，
+
+其他哪个角色没被敲打过，
+
+依我看就该多敲打敲 ...</blockquote>
+拉克丝还没？
+

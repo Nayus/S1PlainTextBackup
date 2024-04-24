@@ -111,3 +111,11 @@ xs 星小子叒不长记性
 
 sagi如果是家用那种3d还行吧，要搞之前那种出bug的3d大可不必，浪费钱又效果不好
 
+
+*****
+
+####  龙娘777  
+##### 3360#       发表于 2024-4-24 22:20
+
+我评价为和史上几场最虚拟直播并列的一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

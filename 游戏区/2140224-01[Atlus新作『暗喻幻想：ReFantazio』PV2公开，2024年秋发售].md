@@ -4909,3 +4909,18 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 —— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  LuciferMustDie  
+##### 382#       发表于 2024-4-25 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64695120&amp;ptid=2140224" target="_blank">guiminan 发表于 2024-4-23 21:28</a>
+
+为啥把archetype翻译成阿基态
+
+—— 来自 vivo V2329A, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一个普通名词，非要硬扭成个生造词，就是装逼装成low逼中学生了
+
+想要装逼就译成<strong>原典</strong>也好啊
+

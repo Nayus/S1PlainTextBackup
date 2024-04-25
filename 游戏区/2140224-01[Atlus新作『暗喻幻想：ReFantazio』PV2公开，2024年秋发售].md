@@ -5025,3 +5025,14 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 这世界观加PV那些台词，安全落地都谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 392#       发表于 2024-4-25 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713323&amp;ptid=2140224" target="_blank">洛亚替身 发表于 2024-4-25 12:55</a>
+
+队友人设就这样了，没gal也无所谓吧......暗喻人设感觉是让你专注主线而设计的P6也不远了，最多两 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题这剧情感觉也不见得会好到哪去，玩法又是一眼望到头的东西。到时也就买来看看潮出水的UI听听BGM了，我是真不理解当年刚公布时那么好看的红毛妹怎么最后被改成了这副德行。
+

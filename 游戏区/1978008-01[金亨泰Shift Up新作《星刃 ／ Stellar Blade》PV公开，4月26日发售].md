@@ -1184,3 +1184,16 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 26号几点？凌晨能玩到嘛
 
+
+*****
+
+####  马马虎虎  
+##### 851#       发表于 2024-4-25 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707581&amp;ptid=1978008" target="_blank">ff2077 发表于 2024-4-24 22:11</a>
+
+有点狗屎的设计了</blockquote>
+这点官方已经紧急修复了，说会有“”新游戏+“，继承全部服装、技能点和钱币等，并开通困难模式
+
+就喜欢官方这个及时服务态度。
+

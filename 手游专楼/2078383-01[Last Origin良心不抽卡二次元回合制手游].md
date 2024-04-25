@@ -1432,3 +1432,11 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 猪舍已将Last Origin的IP和开发，运营权全部转让给了valofe社。
 [https://www.bilibili.com/opus/924262118711099427](https://www.bilibili.com/opus/924262118711099427)
 
+
+*****
+
+####  katern  
+##### 140#       发表于 2024-4-25 19:25
+
+那还玩毛啊，日服才到第11章啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

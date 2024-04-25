@@ -1273,3 +1273,14 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好急，好想玩
 
+
+*****
+
+####  jacket  
+##### 860#       发表于 2024-4-25 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719034&amp;ptid=1978008" target="_blank">bletilla 发表于 2024-4-25 21:47</a>
+
+有，强化无人机就可以</blockquote>
+彳亍，明码标价可以，老子买豪华版就是为了开局过的舒适点
+

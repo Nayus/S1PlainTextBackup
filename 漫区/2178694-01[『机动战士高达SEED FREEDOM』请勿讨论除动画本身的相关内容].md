@@ -8450,3 +8450,14 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 看来福田还是怕了今天说了一天高智能方程式相关的内容
 
+
+*****
+
+####  novyDC  
+##### 685#       发表于 2024-4-25 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716733&amp;ptid=2178694" target="_blank">永恒的王牌 发表于 2024-04-25 17:52:35</a>
+我还挺好奇背包能不能对接正义二，能的话构想中的AC非凡无限正义就能实现了 ...</blockquote>接口不一样吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

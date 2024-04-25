@@ -14171,3 +14171,25 @@ R组的曲子是龙哥作编曲
 
 2024-4-25 21:50 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16045#       发表于 2024-4-25 21:57
+
+PASTEL和HALO的性能估计没什么差别
+
+毕竟这可是SV()
+
+还有这PPP的娃娃，区别对待是吧()
+
+Mujica的看起来就很唐()<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 16046#       发表于 2024-4-25 22:05
+
+今天的邦邦stage2024有mujica0th<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

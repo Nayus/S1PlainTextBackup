@@ -4075,3 +4075,11 @@ n9其实机器人比虫子好打
 我新战备呢？
 喊了三周了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 3340#       发表于 2024-4-25 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">没想到居然真防守成功了，没算好勋章还是给吞了一点
+

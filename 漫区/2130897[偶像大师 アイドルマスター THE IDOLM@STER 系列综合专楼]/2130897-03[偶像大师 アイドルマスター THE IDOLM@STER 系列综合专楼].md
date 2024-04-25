@@ -4408,3 +4408,26 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 对手三人都是正统信号灯的话，我已经在期待学生会长和我贴贴了
 
+
+*****
+
+####  natmk  
+##### 3378#       发表于 2024-4-25 21:57
+
+妹妹人设比姐姐好看  伏见司的骨科还是可以期待的
+
+*****
+
+####  Genkishi  
+##### 3379#       发表于 2024-4-25 21:59
+
+<img src="https://img.saraba1st.com/forum/202404/25/215856oeqmu16q5uqkq7jg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 21:58 上传
+
+才发现和四格里的动作一摸一样，妹阿你是多喜欢压着你姐姐
+

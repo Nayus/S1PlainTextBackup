@@ -1448,3 +1448,11 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">与隔壁敲锣打鼓喜迎十周年庆的舰R对比鲜明
 
+
+*****
+
+####  leina0602  
+##### 142#       发表于 2024-4-25 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">今年基本上是半弃坑状态了，看到LO要倒还是挺难受的
+

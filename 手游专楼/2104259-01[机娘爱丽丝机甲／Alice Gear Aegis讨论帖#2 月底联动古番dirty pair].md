@@ -72,3 +72,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">阿嘎的摄像模式在我玩过的一票手游里都算牛逼那种了，跟索索那票3A的摄影模式差不多了（就是镜头不能离角色位置太远有点难绷
 
+
+*****
+
+####  江戸前ルナ  
+##### 1044#         楼主| 发表于 2024-4-25 22:37
+
+试玩了下，这CC和卡莲的手感都很强啊
+

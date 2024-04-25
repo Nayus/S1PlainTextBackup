@@ -3812,3 +3812,11 @@ EAT和无后坐力都行
 
 一觉起来已经保卫成功8个了，兄弟们，胜利就在眼前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 3313#       发表于 2024-4-25 11:04
+
+如果你们游戏启动的时候载入时间过长，而且其他应用播放声音出现卡顿的话，建议检查一下游戏文件完整性<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我今天查出来五个文件损坏，steam修不了，最后只能靠重装游戏修复，之前几天游戏里经常出现不能用支援的bug不知道是不是和损坏文件有关
+

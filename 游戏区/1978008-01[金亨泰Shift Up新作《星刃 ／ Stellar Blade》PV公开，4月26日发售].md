@@ -1284,3 +1284,13 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 有，强化无人机就可以</blockquote>
 彳亍，明码标价可以，老子买豪华版就是为了开局过的舒适点
 
+
+*****
+
+####  Piano-Forest  
+##### 861#         楼主| 发表于 2024-4-25 22:09
+
+售前PV：
+[https://youtu.be/r4FQwS0u4RA](https://youtu.be/r4FQwS0u4RA)
+[https://youtu.be/6rhcrZN0UZQ](https://youtu.be/6rhcrZN0UZQ)
+

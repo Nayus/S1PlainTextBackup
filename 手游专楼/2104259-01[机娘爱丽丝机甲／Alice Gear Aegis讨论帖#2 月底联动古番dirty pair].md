@@ -56,3 +56,11 @@
 
 继续留着月卡的石头等几个本命出FA或者ST。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1042#         楼主| 发表于 2024-4-25 19:40
+
+这relink的拍照功能除了设置表情和视线外怎么感觉就是对着阿嘎做的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

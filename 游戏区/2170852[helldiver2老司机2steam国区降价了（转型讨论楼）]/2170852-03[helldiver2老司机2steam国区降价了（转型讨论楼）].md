@@ -3936,3 +3936,44 @@ EAT和无后坐力都行
 再来问下各位老司机勋章任务怎么看的 很多时候上飞机结算发现只完成一个</blockquote>
 一个行动三个任务，每完成一个任务结算一次勋章。
 
+
+*****
+
+####  安姆闲人  
+##### 3327#       发表于 2024-4-25 15:24
+
+机器人虽然比重组难很多，不过梗也是真有，脑海里一直反复在响星战和魔戒的BGM
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">到了8我们已经是挣扎求存悄悄打游击战了，感觉跟前面难度完全不是一个体验，昨天难度8大家被机器人包围了最后困在一个山头扔了一发380，在欢声笑语中牺牲，到了9不敢想象，有啥策略和诀窍啊
+
+*****
+
+####  squritle  
+##### 3328#       发表于 2024-4-25 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714736&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-25 15:14</a>
+
+一个行动三个任务，每完成一个任务结算一次勋章。</blockquote>
+是不是只有做房主才能知道？中途匹配加入的怎么看勋章任务内容？
+
+
+*****
+
+####  squritle  
+##### 3329#       发表于 2024-4-25 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714646&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-25 15:05</a>
+
+勋章任务是什么？ 不是一个图三个任务，依次做吗</blockquote>
+就是最后结算的时候会跳出任务完成奖励 第一 x个勋章 第二 y个勋章 第三 z个勋章 我经常只能完成第一个
+
+*****
+
+####  Mr.Hopp  
+##### 3330#       发表于 2024-4-25 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714896&amp;ptid=2170852" target="_blank">squritle 发表于 2024-4-25 15:26</a>
+
+是不是只有做房主才能知道？中途匹配加入的怎么看勋章任务内容？</blockquote>
+应该是吧，中途进去只能看当前什么任务，行动做到哪步不知道。
+

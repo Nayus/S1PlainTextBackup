@@ -1168,3 +1168,13 @@ nds怎么旋转屏幕玩黄昏旅馆，手机旋转也不对。还有屏幕怎�
 可以直接在商店下iOS版，就是不能随意缩放窗口，要么小窗要么全屏。</blockquote>
 mac用openemu
 
+
+*****
+
+####  crosz1985  
+##### 101#       发表于 2024-4-25 23:38
+
+在小红书上下了个带滤镜的皮肤，感觉还行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

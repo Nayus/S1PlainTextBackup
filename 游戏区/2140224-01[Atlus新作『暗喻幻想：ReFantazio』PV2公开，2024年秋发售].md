@@ -5101,3 +5101,14 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 不过现在35周年纪念版没货了
 
+
+*****
+
+####  Piano-Forest  
+##### 399#         楼主| 发表于 2024-4-25 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64696970&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-24 00:48</a>
+
+“Battle Theme”试听：https://youtu.be/n3m-imqEmWE</blockquote>
+“Story BGM”试听：[https://b23.tv/x2T0xeP](https://b23.tv/x2T0xeP)
+

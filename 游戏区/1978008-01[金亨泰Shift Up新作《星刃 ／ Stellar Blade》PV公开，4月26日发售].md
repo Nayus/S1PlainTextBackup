@@ -1135,3 +1135,13 @@ Image_1713976187970.jpg
 
 苦一苦媒体造福了玩家
 
+
+*****
+
+####  社友者  
+##### 846#       发表于 2024-4-25 11:25
+
+【【剑星/星刃】全服装饰品外观展示】 [https://www.bilibili.com/video/B ... 3f408e02b16d74f908a](https://www.bilibili.com/video/BV1WE421L7ZF/?share_source=copy_web&amp;vd_source=cda2f7c926d883f408e02b16d74f908a)
+
+伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

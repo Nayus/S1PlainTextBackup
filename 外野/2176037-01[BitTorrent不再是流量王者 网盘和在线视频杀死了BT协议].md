@@ -1383,3 +1383,16 @@ bt的这套使用模式我是真的很难坚持下来
 
 所以emule为啥不行了?我感觉比BT更加去中心化欸,自带索引,用kad甚至不用连tracker.每个客户端都是发布页.
 
+
+*****
+
+####  qq350295  
+##### 144#       发表于 2024-4-25 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292657&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-3-18 19:51</a>
+
+不懂为什么有人总说以前好，
+
+以前那些糊成一团的480p RMVB，还会有人看么？</blockquote>
+你总不能要求2000年代有4k的资源吧
+

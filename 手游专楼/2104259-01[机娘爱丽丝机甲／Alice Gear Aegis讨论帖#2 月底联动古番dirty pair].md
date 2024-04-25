@@ -64,3 +64,11 @@
 
 这relink的拍照功能除了设置表情和视线外怎么感觉就是对着阿嘎做的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1043#       发表于 2024-4-25 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">阿嘎的摄像模式在我玩过的一票手游里都算牛逼那种了，跟索索那票3A的摄影模式差不多了（就是镜头不能离角色位置太远有点难绷
+

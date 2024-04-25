@@ -232,3 +232,11 @@ pp可以选用银行卡汇率结算，只亏一点点
 信用卡&gt;paypal&gt;点数&gt;游戏</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">JCB又不算信用卡了咯
 
+
+*****
+
+####  awertg  
+##### 105#       发表于 2024-4-25 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中行建行jcb用起来是ok的
+

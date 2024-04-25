@@ -8426,3 +8426,19 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 这得是什么冤大头才能花500块钱登高看贴纸？
 
+
+*****
+
+####  gary76  
+##### 683#       发表于 2024-4-25 21:26
+
+<blockquote>引用第676楼菲特妹于2024-04-25 14:43发表的  :
+
+周末准备去澳门看，希望不要下雨</blockquote>
+@菲特妹
+
+这几天澳门都是薛定谔的雷雨预告<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+估计周末的白天应该天气不错，就算下雨也不会太大<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

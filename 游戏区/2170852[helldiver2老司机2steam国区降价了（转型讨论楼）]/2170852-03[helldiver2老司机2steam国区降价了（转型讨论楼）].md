@@ -4066,3 +4066,12 @@ n9其实机器人比虫子好打
 
 —— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rainknine  
+##### 3339#       发表于 2024-4-25 21:32
+
+我新战备呢？
+喊了三周了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

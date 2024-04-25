@@ -14070,3 +14070,29 @@ ptw86879
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64718724&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-4-25 21:12</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人要么是图案标志要么是5人齐聚，有一个是什么玩意儿
 
+
+*****
+
+####  NODY  
+##### 16038#       发表于 2024-4-25 21:31
+
+生放背景歌居然有ave mujica，我还记得之前周年连mygo的歌都没有
+
+*****
+
+####  SakuraのOrigami  
+##### 16039#       发表于 2024-4-25 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64718724&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-4-25 21:12</a></blockquote>
+R组的曲子是龙哥作编曲
+
+回来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SakuraのOrigami  
+##### 16040#       发表于 2024-4-25 21:36
+
+不是，PP箱活怎么TM是斗舞啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

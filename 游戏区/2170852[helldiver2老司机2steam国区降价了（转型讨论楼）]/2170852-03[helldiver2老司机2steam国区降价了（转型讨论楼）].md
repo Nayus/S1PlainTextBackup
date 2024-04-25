@@ -4049,3 +4049,20 @@ n9其实机器人比虫子好打
 顺带一提轨道精准攻击打机器人挺好用的，能打探测塔，干扰装置解除干扰后也能直接丢不用叫地狱火，打atat打坦克打巨型者都很合适
 与500比不会卡空袭cd
 
+
+*****
+
+####  FLZB  
+##### 3337#       发表于 2024-4-25 20:34
+
+机器人都觉得难主要就是因为入门比虫子略难，有装备软门槛，会打之后高难比虫子简单多了。很多人都是上来被打蒙了就一只搁那复读机器人难难难，难个鸡儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyb  
+##### 3338#       发表于 2024-4-25 20:37
+
+新战备怎么还不出啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1265,3 +1265,11 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 对了，既然有强化闪避、强化格挡这种点了才正常的天赋，有没有强化扫描时间、缩短扫描CD的天赋啊 ...</blockquote>
 有，强化无人机就可以
 
+
+*****
+
+####  NirvashS1  
+##### 859#       发表于 2024-4-25 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好急，好想玩
+

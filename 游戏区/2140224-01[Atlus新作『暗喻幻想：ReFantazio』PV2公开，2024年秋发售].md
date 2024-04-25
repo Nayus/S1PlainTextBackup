@@ -5088,3 +5088,16 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 明天7点，不见不散！
 
+
+*****
+
+####  QYMtutututu  
+##### 398#       发表于 2024-4-25 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716942&amp;ptid=2140224" target="_blank">c0x9z8 发表于 2024-4-25 18:09</a>
+
+求私信个地址，哪里买的</blockquote>
+2000fun官网
+
+不过现在35周年纪念版没货了
+

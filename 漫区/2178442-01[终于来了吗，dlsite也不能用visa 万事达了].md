@@ -240,3 +240,11 @@ pp可以选用银行卡汇率结算，只亏一点点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中行建行jcb用起来是ok的
 
+
+*****
+
+####  日本游戏销量  
+##### 106#       发表于 2024-4-25 21:47
+
+getchu 屈服什么，本子没信用卡不会付钱了吗
+

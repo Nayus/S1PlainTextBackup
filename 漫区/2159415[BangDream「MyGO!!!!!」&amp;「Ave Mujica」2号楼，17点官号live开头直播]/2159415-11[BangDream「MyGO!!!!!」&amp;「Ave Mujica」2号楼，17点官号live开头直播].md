@@ -13791,3 +13791,12 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 原作都还没到c团和好，mygo的live连春日影都不敢演，三次元现在搞重组c团真是想多了，除非有个大富豪c团遗 ...</blockquote>
 大富豪c团姨姥不是有个现成的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 16018#       发表于 2024-4-25 13:19
+
+7月live开完还是歇歇吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+上半年这流媒体单曲轮完wsd不得接着榨
+

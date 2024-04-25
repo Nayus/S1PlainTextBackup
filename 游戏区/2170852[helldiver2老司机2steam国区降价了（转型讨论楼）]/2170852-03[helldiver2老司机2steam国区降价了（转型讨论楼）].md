@@ -3854,3 +3854,14 @@ EAT和无后坐力都行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让队友自己打.jpg
 
+
+*****
+
+####  smdzh2  
+##### 3318#       发表于 2024-4-25 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712106&amp;ptid=2170852" target="_blank">squritle 发表于 2024-4-25 12:09</a>
+25级了才刚玩难6的虫子 清慢了有时候能看到两个泰坦在追人跑 泰坦追队友侧面对着我的时候 用类星体打泰坦的 ...</blockquote>
+先打烂肚子，这样它就不会吐酸了，然后打头
+离得远就交给队友啦，你办事我放心.jpg
+

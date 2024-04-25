@@ -668,3 +668,25 @@ AGI  A Guy in India
 
 1兆游戏是写实记录片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninini212  
+##### 64#       发表于 2024-4-25 09:01
+
+<blockquote>引用第24楼天桥夜风于2024-04-24 15:16发表的  :
+
+引用:安娜导函数 发表于 2024-4-24 15:06你说的技术是不是要求所有商品上再贴个类似芯片......</blockquote>
+@天桥夜风
+
+水签里有nfc标记，你坛不是讨论过很多次了吗
+
+----发送自 [asus ASUS_I005DB,Android 13](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  霍乱  
+##### 65#       发表于 2024-4-25 09:03
+
+印度员工是美国科技企业的福报
+

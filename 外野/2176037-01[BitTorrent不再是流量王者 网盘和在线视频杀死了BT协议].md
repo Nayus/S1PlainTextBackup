@@ -1350,3 +1350,16 @@ bt的这套使用模式我是真的很难坚持下来
 
 记得我这电骡很早就被运营商针对完全连不到人
 
+
+*****
+
+####  Kazuhira  
+##### 141#       发表于 2024-4-25 09:00
+
+ 本帖最后由 Kazuhira 于 2024-4-25 09:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292708&amp;ptid=2176037" target="_blank">ccc183 发表于 2024-3-18 19:57</a>
+俄国人是不是很有BT精神，从rutrack上下很多老资源虽然就个位数的种子但是居然能完整下完 ...</blockquote>
+我下了一堆素材和教程，体感欧美鬼佬比俄罗斯人更喜欢用垃圾网盘，你懂的，uploaded和rapidgator还有各种见都没见过的玩意，不掏钱的话十多个分卷是根本下不动的，他们用的网盘那么散也不可能全都掏钱开会员
+
+他们遇到这种情况得开一个代下网盘的“网盘”会员，就是中转站<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

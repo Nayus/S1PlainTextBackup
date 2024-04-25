@@ -1473,3 +1473,15 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  宛若青空  
+##### 881#       发表于 2024-4-26 03:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64720990&amp;ptid=1978008" target="_blank">whzfjd 发表于 2024-4-26 02:54</a>
+日版还是全部？</blockquote>
+目前流出的消息是欧美那边
+
+[https://www.reddit.com/r/Stellar ... nsored_can_someone/](https://www.reddit.com/r/StellarBladeFandom/comments/1ccpyhm/stellar_blade_outfit_getting_censored_can_someone/)
+

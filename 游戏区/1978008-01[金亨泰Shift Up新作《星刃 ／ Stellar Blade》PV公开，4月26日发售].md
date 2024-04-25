@@ -1386,3 +1386,23 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 老问题，加点前面差不多十多点全部都要先给生存，点完差不多像个正常人，但是手感还是很怪，总感觉延迟很大<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 地图里其实隐藏的东西很多，扫描基本断不了很烦<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  105gun  
+##### 872#       发表于 2024-4-26 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64720702&amp;ptid=1978008" target="_blank">忘却旋律 发表于 2024-4-26 01:14</a>
+
+问下 豪华版特典哪里拿  另外默认HDR是关的  平衡模式下开HDR各位感觉帧数如何
+
+我打完停车场的双刀BOSS还没 ...</blockquote>
+进城之后停机坪左边有高光礼物箱
+
+*****
+
+####  whzfjd  
+##### 873#       发表于 2024-4-26 02:20
+
+为什么偏偏难度不学尼尔，防御生效慢，敌人攻击追踪强，相比之下噩兆妖鬼都算喝茶了
+

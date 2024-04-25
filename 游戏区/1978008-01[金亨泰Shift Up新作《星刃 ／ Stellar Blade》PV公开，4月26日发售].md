@@ -1153,3 +1153,16 @@ Image_1713976187970.jpg
 
 看到死了可以原地复活一次，不知道是天赋还是简单模式自带的
 
+
+*****
+
+####  Rintani_Yahato  
+##### 848#       发表于 2024-4-25 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709801&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-4-25 06:44</a>
+
+【顶级性感游戏！《剑星》证明了美观即是第一驱动力-哔哩哔哩】 https://b23.tv/PRMgNzM
+
+这评测笑死我了</blockquote>
+VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语连珠辱骂Rocksteady和科乐美给我笑得合不拢嘴
+

@@ -8351,3 +8351,13 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 建议直接封号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  detao0452  
+##### 676#       发表于 2024-4-25 13:13
+
+好乐的作品，虽然知道剧情了但还是看的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+— from Google Pixel Fold, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

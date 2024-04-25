@@ -1445,3 +1445,31 @@ bt的这套使用模式我是真的很难坚持下来
  ...</blockquote>
 应该说资源质量提高了，这是技术的更新，但内容不一定留了
 
+
+*****
+
+####  热风疾风  
+##### 149#       发表于 2024-4-25 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64292657&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-3-18 19:51</a>
+
+不懂为什么有人总说以前好，
+
+以前那些糊成一团的480p RMVB，还会有人看么？</blockquote>
+也不用那么前，七八年前不是很好，网速也很快了
+
+
+*****
+
+####  热风疾风  
+##### 150#       发表于 2024-4-25 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64293043&amp;ptid=2176037" target="_blank">我特么吹爆 发表于 2024-3-18 20:48</a>
+
+反正
+
+我还在用
+
+我会一直用</blockquote>
+反正每次下冷门种的时候看着那一两个国外ip再给我分享资源，就很感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

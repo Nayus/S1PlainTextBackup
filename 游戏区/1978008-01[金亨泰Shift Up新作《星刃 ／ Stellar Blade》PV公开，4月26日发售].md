@@ -1503,3 +1503,16 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 刚开局那个四位密码的箱子，要等之后才能回来开？直到坐列车走人都没找到钥匙。
 
+
+*****
+
+####  依存香炉  
+##### 884#       发表于 2024-4-26 04:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721025&amp;ptid=1978008" target="_blank">ku2154513 发表于 2024-4-26 03:20</a>
+
+流程推能捡到一套换色橙色条纹的空降服，后面好像还有能捡到的设计图但我没找到
+
+  -- 来自 能手机投票的 S ...</blockquote>
+thx
+

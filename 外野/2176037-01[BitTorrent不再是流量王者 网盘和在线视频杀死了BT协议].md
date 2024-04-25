@@ -1473,3 +1473,17 @@ bt的这套使用模式我是真的很难坚持下来
 我会一直用</blockquote>
 反正每次下冷门种的时候看着那一两个国外ip再给我分享资源，就很感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jet.Black  
+##### 151#       发表于 2024-4-25 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713089&amp;ptid=2176037" target="_blank">macos 发表于 2024-4-25 12:31</a>
+应该说资源质量提高了，这是技术的更新，但内容不一定留了</blockquote>
+非要盯着某某特定断种的资源说事也是扯
+
+现在有更多的，以前见都没见过的东西咋不说呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -13781,3 +13781,13 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 
 要代打也是ras或者mika老师去，虽然更大的可能性是搞点不插电或者干脆放录音完事了
 
+
+*****
+
+####  蒜灵  
+##### 16017#       发表于 2024-4-25 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713014&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-25 12:24</a>
+原作都还没到c团和好，mygo的live连春日影都不敢演，三次元现在搞重组c团真是想多了，除非有个大富豪c团遗 ...</blockquote>
+大富豪c团姨姥不是有个现成的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1145,3 +1145,11 @@ Image_1713976187970.jpg
 
 伟大，无需多言<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 847#       发表于 2024-4-25 12:53
+
+看到死了可以原地复活一次，不知道是天赋还是简单模式自带的
+

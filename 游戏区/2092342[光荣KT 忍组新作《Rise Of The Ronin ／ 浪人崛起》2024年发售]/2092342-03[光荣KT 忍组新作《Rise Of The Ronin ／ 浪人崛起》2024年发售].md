@@ -1750,3 +1750,13 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64710216&amp;ptid=2092342" target="_blank"> isa2456 发表于 2024-4-25 08:33</a> 两天高强度通马桶把横滨江户通完，立身流和爱洲阴流打野boss就是战斗爽，就爱闪来闪去，还有小游戏不玩到极的话不影响全技能点满吧？滑翔实在玩不过来. 跟太刀比双刀就一个二天一能用？ </blockquote>
 不影响，一周目的技能和全收集的技能点比是溢出蛮多的，另外奖杯也是每个小游戏拿过一次极就行，不用全部来自: iPhone客户端
 
+
+*****
+
+####  彩虹肥宅  
+##### 3139#       发表于 2024-4-25 18:59
+
+大太刀这几个流派都好强啊。
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

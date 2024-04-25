@@ -5017,3 +5017,11 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 —— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  plok201  
+##### 391#       发表于 2024-4-25 16:26
+
+这世界观加PV那些台词，安全落地都谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

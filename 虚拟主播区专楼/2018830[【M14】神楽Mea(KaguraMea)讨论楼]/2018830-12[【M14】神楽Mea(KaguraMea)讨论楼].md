@@ -282,3 +282,13 @@ Mea怎么又把自己推给锁了<img src="https://static.saraba1st.com/image/sm
 
 明明有必须要去烦恼的事情，但是现在的烦恼是没有干劲
 
+
+*****
+
+####  sino__unnko3  
+##### 16443#       发表于 2024-4-25 23:05
+
+昨晚睡前录了2小时左右的推限声音文件，做了个模型，但是实现效果不如之前的版本，手机录音哪怕是纯干音感觉跟麻酱平时的直播杂谈+分离背景音处理后的音质都差别很大。但是成品比较有小女友在被子里打长途电话内味（）。麻酱的告白.wav 链接：[https://pan.baidu.com/s/146KB2tdhYUZ7xdrSUEAKAQ?pwd=0221](https://pan.baidu.com/s/146KB2tdhYUZ7xdrSUEAKAQ?pwd=0221) 
+
+提取码：0221 
+

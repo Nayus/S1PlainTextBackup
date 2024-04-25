@@ -1309,3 +1309,11 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 笑死，king hentai把疑似种族歧视的涂鸦改了，变成了真种族歧视涂鸦笑零元购黑鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 864#       发表于 2024-4-25 23:02
+
+实体版有能补数字豪华版内容的 dlc 吗，官网太简陋啥都看不到
+

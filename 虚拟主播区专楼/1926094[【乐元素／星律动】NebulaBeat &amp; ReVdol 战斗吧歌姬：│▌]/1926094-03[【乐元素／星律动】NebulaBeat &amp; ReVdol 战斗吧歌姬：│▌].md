@@ -173,3 +173,25 @@ sagi如果是家用那种3d还行吧，要搞之前那种出bug的3d大可不必
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ladiesman802  
+##### 3366#       发表于 2024-4-26 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712913&amp;ptid=1926094" target="_blank">天青月白 发表于 2024-4-25 12:14</a>
+
+干这个如果不是不爆火几年赚十几年的钱就肯定干不下去。要生活的，之前她们回归就预料到了，所以后面都不忍 ...</blockquote>
+老哥终于放出来了啊
+
+
+*****
+
+####  ladiesman802  
+##### 3367#       发表于 2024-4-26 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712913&amp;ptid=1926094" target="_blank">天青月白 发表于 2024-4-25 12:14</a>
+
+干这个如果不是不爆火几年赚十几年的钱就肯定干不下去。要生活的，之前她们回归就预料到了，所以后面都不忍 ...</blockquote>
+妮可儿这个人也是个奇葩，开口闭口就是mbti，对自己家庭极度不满，爱死掉的猫胜过自己父母，恨国党，说她是精日也不全是，对过往念念不忘不能释怀，时不时对日乐yygq，看她wb就是个脑子不正常的人但为了工作勉强装作正常人
+

@@ -3900,3 +3900,11 @@ EAT和无后坐力都行
 过场tips说机器人在被火力压制的时候会降准度，那我拿火喷对着怪堆散布民主的光辉是不是也算为team做出了一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那TIP潜台词是你清空弹夹把对面废了，对面自然没准度了
 
+
+*****
+
+####  squritle  
+##### 3323#       发表于 2024-4-25 14:54
+
+再来问下各位老司机勋章任务怎么看的 很多时候上飞机结算发现只完成一个
+

@@ -1460,3 +1460,16 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 这套绿色油漆服太诡异了
 
+
+*****
+
+####  ku2154513  
+##### 880#       发表于 2024-4-26 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721017&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-04-26 03:14:58</a>
+普通版啥进度有新服装
+
+这套绿色油漆服太诡异了</blockquote>流程推能捡到一套换色橙色条纹的空降服，后面好像还有能捡到的设计图但我没找到
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

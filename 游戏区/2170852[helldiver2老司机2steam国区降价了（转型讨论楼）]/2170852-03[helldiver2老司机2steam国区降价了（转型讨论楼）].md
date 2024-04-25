@@ -3837,3 +3837,20 @@ EAT和无后坐力都行
 25级了才刚玩难6的虫子 清慢了有时候能看到两个泰坦在追人跑 泰坦追队友侧面对着我的时候 用类星体打泰坦的 ...</blockquote>
 瞄头<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">实在不能瞄那就先把它肚子打烂
 
+
+*****
+
+####  北条早苗  
+##### 3316#       发表于 2024-4-25 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712106&amp;ptid=2170852" target="_blank">squritle 发表于 2024-4-25 11:09</a>
+25级了才刚玩难6的虫子 清慢了有时候能看到两个泰坦在追人跑 泰坦追队友侧面对着我的时候 用类星体打泰坦的 ...</blockquote>
+500/110/轨道电磁炮，类星体只有正中头部才能有效杀伤泰坦，红战备打不死再用类星体补刀
+
+*****
+
+####  Aeons  
+##### 3317#       发表于 2024-4-25 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让队友自己打.jpg
+

@@ -4940,3 +4940,16 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 2024-4-25 05:58 上传
 
+
+*****
+
+####  洛亚替身  
+##### 384#       发表于 2024-4-25 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64709055&amp;ptid=2140224" target="_blank">suzakushi 发表于 2024-4-25 00:31</a>
+
+人设是真的土，还没GAL，开始提前盼P6了。
+
+—— 来自 Sony XQ-AT52, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+队友人设就这样了，没gal也无所谓吧......暗喻人设感觉是让你专注主线而设计的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P6也不远了，最多两年不到就能看见
+

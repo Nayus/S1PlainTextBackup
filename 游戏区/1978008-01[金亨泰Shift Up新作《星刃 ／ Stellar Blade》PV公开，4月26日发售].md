@@ -1524,3 +1524,17 @@ thx
 
 打了下试玩版boss，这节奏音游真是麻了
 
+
+*****
+
+####  rainsheep  
+##### 886#       发表于 2024-4-26 05:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721040&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-26 03:34</a>
+目前流出的消息是欧美那边
+
+https://www.reddit.com/r/StellarBladeFandom/comments/1ccpyhm/stellar_bla ...</blockquote>
+这串里说的那件兔女郎衣服看国内的媒体评测视频的更新补丁前里就已经是加布版本了，串里有1.0版本不带布的视频，就等到时候实体盘验证一下了。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

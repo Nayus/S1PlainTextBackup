@@ -8369,3 +8369,11 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周末准备去澳门看，希望不要下雨
 
+
+*****
+
+####  アーリィ  
+##### 678#       发表于 2024-4-25 16:10
+
+西川贵教今年到上海应该会唱freedom吧
+

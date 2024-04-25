@@ -4996,3 +4996,24 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 赌一把超神<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  慕容断月  
+##### 389#       发表于 2024-4-25 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64685145&amp;ptid=2140224" target="_blank">喇叭 发表于 2024-4-23 07:18</a>
+战斗看笑了…
+
+地图上又砍又闪，一通辗转腾挪，最后就换个类似p5开幕枪击的效果…这味有点熟悉，来自星尘？ ...</blockquote>
+这玩意儿不是零之轨迹嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nianiania  
+##### 390#       发表于 2024-4-25 16:07
+
+这作队友看着和p系列的路人一个等级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

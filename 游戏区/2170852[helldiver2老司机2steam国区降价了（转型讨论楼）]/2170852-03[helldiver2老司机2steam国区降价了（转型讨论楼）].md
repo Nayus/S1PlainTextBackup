@@ -4130,3 +4130,14 @@ n9其实机器人比虫子好打
 
 高难机器人更了atat和炮艇才算比虫族难打，只要别乱撞巡逻队，难9机器人空投的压力远小于虫族黄烟
 
+
+*****
+
+####  6x6z6w  
+##### 3346#       发表于 2024-4-26 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719862&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-4-25 23:25</a>
+
+干脆直接改成毒气弹得了，增加扩散+遮挡视野</blockquote>
+有轨道毒气弹，但因为DOT伤害的问题那个现在也是鸡肋，我其实想的是烟雾弹能让在烟雾里的机器人命中率大幅度下降，直接变暴风兵，但这么一整不知道能整出什么新bug出来就是了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

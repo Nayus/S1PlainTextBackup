@@ -1359,3 +1359,11 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 豪华版给的升级点数和服装什么时机解锁？继承试玩存档重打停车场boss后还是没拿到
 
+
+*****
+
+####  今天不守尸  
+##### 869#       发表于 2024-4-26 00:04
+
+看直播有弹幕说这游戏是奇迹卵卵，蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

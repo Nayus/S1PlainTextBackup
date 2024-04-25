@@ -1120,3 +1120,18 @@ Image_1713976187970.jpg
 
 2024-4-25 10:20 上传
 
+
+*****
+
+####  三千珈蓝  
+##### 845#       发表于 2024-4-25 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64710097&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-4-25 08:17</a>
+
+我记得之前pgn评匹诺曹也是媒体评测版各种粪设计然后正式版改简单了让他吃了一嘴回旋镖。
+
+可能韩国制作人就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知错肯改这不挺好的
+
+苦一苦媒体造福了玩家
+

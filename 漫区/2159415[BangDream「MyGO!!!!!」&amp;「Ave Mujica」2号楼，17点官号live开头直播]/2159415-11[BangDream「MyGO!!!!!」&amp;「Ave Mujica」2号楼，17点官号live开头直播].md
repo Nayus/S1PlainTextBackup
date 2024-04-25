@@ -13831,3 +13831,16 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 
 还有好哥哥有不要的bd抽选吗
 
+
+*****
+
+####  Dark_Zagi  
+##### 16022#       发表于 2024-4-25 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714093&amp;ptid=2159415" target="_blank">downforce 发表于 2024-4-25 14:16</a>
+
+我有，晚上回家拍给你。
+
+—— 来自 Xiaomi 22061218C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+感激不尽<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

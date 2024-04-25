@@ -1098,3 +1098,11 @@ Image_1713976187970.jpg
 我记得之前pgn评匹诺曹也是媒体评测版各种粪设计然后正式版改简单了让他吃了一嘴回旋镖。
 可能韩国制作人就喜欢这一套。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Darkentz  
+##### 843#       发表于 2024-4-25 10:06
+
+80来分可以了，算平稳落地，希望早点发盘吧
+

@@ -3804,3 +3804,11 @@ EAT和无后坐力都行
 步枪跟狙感觉都不是太好用（</blockquote>
 重炮手和勤勉非要用也不是不行，但总动员债卷里最适合打机器人的必然是焦土
 
+
+*****
+
+####  Mr.Hopp  
+##### 3312#       发表于 2024-4-25 08:25
+
+一觉起来已经保卫成功8个了，兄弟们，胜利就在眼前<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

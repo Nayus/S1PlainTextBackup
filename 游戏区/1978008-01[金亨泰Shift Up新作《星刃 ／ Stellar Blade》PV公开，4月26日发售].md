@@ -1089,3 +1089,12 @@ Image_1713976187970.jpg
 真有必要的话，后天收工了直接去超市买一盘就是，ps5游戏又脱不了销</blockquote>
 在日有什么好纠结的，实体还比数字便宜1000円呢
 
+
+*****
+
+####  Schwarzess  
+##### 842#       发表于 2024-4-25 08:17
+
+我记得之前pgn评匹诺曹也是媒体评测版各种粪设计然后正式版改简单了让他吃了一嘴回旋镖。
+可能韩国制作人就喜欢这一套。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

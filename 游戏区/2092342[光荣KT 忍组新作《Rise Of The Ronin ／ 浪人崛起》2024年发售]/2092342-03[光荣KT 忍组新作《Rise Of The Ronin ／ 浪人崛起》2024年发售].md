@@ -1786,3 +1786,13 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 我草，赌全压没了800个牌不相信这玩意了，怎么速刷好感度道具啊？捡垃圾捡回来的很快都送完了 ...</blockquote>
 正常扫地图看到行商就上去买好感度道具，应该不会缺吧？我到通关是溢出的
 
+
+*****
+
+####  isa2456  
+##### 3143#       发表于 2024-4-26 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721050&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2024-4-26 03:44</a>
+正常扫地图看到行商就上去买好感度道具，应该不会缺吧？我到通关是溢出的 ...</blockquote>
+银币太少了，几百个优先买了技能书就全没了
+

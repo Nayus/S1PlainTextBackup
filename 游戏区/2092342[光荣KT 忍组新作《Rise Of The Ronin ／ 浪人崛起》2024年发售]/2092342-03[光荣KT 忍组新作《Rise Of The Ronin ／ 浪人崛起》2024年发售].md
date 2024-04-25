@@ -1796,3 +1796,14 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 正常扫地图看到行商就上去买好感度道具，应该不会缺吧？我到通关是溢出的 ...</blockquote>
 银币太少了，几百个优先买了技能书就全没了
 
+
+*****
+
+####  阿提拉  
+##### 3144#       发表于 2024-4-26 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719312&amp;ptid=2092342" target="_blank">isa2456 发表于 2024-04-25 22:23:55</a>
+我草，赌全压没了800个牌不相信这玩意了，怎么速刷好感度道具啊？捡垃圾捡回来的很快都送完了 ...</blockquote>输了直接退游戏啊，赌博这个只要不选结束赌博回到赌场，中间是不存档的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

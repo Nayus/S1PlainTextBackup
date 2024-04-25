@@ -3999,3 +3999,26 @@ EAT和无后坐力都行
 过场tips说机器人在被火力压制的时候会降准度，那我拿火喷对着怪堆散布民主的光辉是不是也算为team做出了一 ...</blockquote>
 如果你能触发燃烧伤害的话，火喷的燃烧正好可以烧死一个机器人小怪，面对漫山遍野的这种小逼的时候这样撒火就能把场上烧得只剩蹂躏者
 
+
+*****
+
+####  dfbbymice  
+##### 3333#       发表于 2024-4-25 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714880&amp;ptid=2170852" target="_blank">安姆闲人 发表于 2024-4-25 15:24</a>
+
+机器人虽然比重组难很多，不过梗也是真有，脑海里一直反复在响星战和魔戒的BGM
+
+到了8我们已经是挣 ...</blockquote>
+打了就跑，绝不恋战，炮艇工厂全队配合强攻，或者卡刷怪地点强攻，主任务能最后做的留到最后做，380捏手里随时准备玉碎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风萧飒  
+##### 3334#       发表于 2024-4-25 17:05
+
+今天会有新玩意吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

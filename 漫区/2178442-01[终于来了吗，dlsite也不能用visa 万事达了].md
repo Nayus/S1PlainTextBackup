@@ -190,3 +190,32 @@ getchu独占了一些老黄油，下种子都没速度的。这次下架估计�
 信用卡&gt;paypal&gt;点数&gt;游戏</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有借记卡的哥们应该还是一样的吧，pp绑借记卡就行了
 
+
+*****
+
+####  pf67  
+##### 102#       发表于 2024-4-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708492&amp;ptid=2178442" target="_blank">caupollen 发表于 2024-4-24 23:31</a>
+
+这下还不如支付宝了，支付宝&gt;点数&gt;游戏
+
+信用卡&gt;paypal&gt;点数&gt;游戏</blockquote>
+用支付宝汇率亏爆
+
+pp可以选用银行卡汇率结算，只亏一点点
+
+*****
+
+####  pf67  
+##### 103#       发表于 2024-4-25 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708492&amp;ptid=2178442" target="_blank">caupollen 发表于 2024-4-24 23:31</a>
+
+这下还不如支付宝了，支付宝&gt;点数&gt;游戏
+
+信用卡&gt;paypal&gt;点数&gt;游戏</blockquote>
+用支付宝汇率亏爆
+
+pp可以选用银行卡汇率结算，只亏一点点
+

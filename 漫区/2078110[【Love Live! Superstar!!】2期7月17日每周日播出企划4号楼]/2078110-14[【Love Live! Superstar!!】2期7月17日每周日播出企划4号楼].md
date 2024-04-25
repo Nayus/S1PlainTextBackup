@@ -1404,3 +1404,11 @@ KALEIDOSCORE ☕️🍨🦋『ニュートラル』
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  黒烨  
+##### 20071#       发表于 2024-4-25 20:16
+
+fmt主视图出来，第一眼看着挺好看的，第二眼没看懂k组那部分是什么意思
+

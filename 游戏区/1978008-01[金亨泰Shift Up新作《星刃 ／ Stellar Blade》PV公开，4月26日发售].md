@@ -1538,3 +1538,15 @@ https://www.reddit.com/r/StellarBladeFandom/comments/1ccpyhm/stellar_bla ...</bl
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  哆哆鸡  
+##### 887#       发表于 2024-4-26 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721123&amp;ptid=1978008" target="_blank">rainsheep 发表于 2024-4-26 05:30</a>
+这串里说的那件兔女郎衣服看国内的媒体评测视频的更新补丁前里就已经是加布版本了，串里有1.0版本不带布 ...</blockquote>
+没有红迪账号看不了啊，视频有油土鳖的版本吗
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

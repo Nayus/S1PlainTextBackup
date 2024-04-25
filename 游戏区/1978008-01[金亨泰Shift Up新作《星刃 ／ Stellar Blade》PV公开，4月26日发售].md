@@ -1239,3 +1239,29 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 [https://twitter.com/ydh2101/status/1783477533822140742](https://twitter.com/ydh2101/status/1783477533822140742)
 <img src="https://p.sda1.dev/17/887cfffb61d6cdd3b2d7ee2f681bd419/20240425_212411.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依存香炉  
+##### 856#       发表于 2024-4-25 21:38
+
+海外的游戏自媒体评价貌似不错啊
+
+*****
+
+####  horacio  
+##### 857#       发表于 2024-4-25 21:40
+
+我看到有人开始直播玩了，这游戏能直播太吸引人了，一堆人再问什么游戏，up主直接说是黄油
+
+
+*****
+
+####  bletilla  
+##### 858#       发表于 2024-4-25 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716964&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-25 18:11</a>
+
+对了，既然有强化闪避、强化格挡这种点了才正常的天赋，有没有强化扫描时间、缩短扫描CD的天赋啊 ...</blockquote>
+有，强化无人机就可以
+

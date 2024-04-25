@@ -622,3 +622,18 @@ AGI  A Guy in India
 
 他们一开始为啥不使用现在提出的这个“智能购物车”方案，非得靠着机器学习去搞什么一步到位，结果还是寄了。话说亚马逊算是很有技术力的公司吗？<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  弓形虫  
+##### 60#       发表于 2024-4-25 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64701525&amp;ptid=2181215" target="_blank">木谷高明 发表于 2024-4-24 13:14</a>
+
+上次去国内4S店保养车，看到有自动售货机完成了自动识别。
+
+微信扫码，信用分够就开门，拿了东西关门，自动 ...</blockquote>
+每一层上面都有一个计重秤，不同东西的重量不一样
+
+比如你扫码放一个西瓜进去，拿出来的时候就会按西瓜放的那一层的重量价格给你计费扣钱
+

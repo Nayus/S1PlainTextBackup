@@ -1408,3 +1408,15 @@ bt的这套使用模式我是真的很难坚持下来
 
 也快20年了
 
+
+*****
+
+####  Jet.Black  
+##### 146#       发表于 2024-4-25 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712749&amp;ptid=2176037" target="_blank">qq350295 发表于 2024-4-25 12:00</a>
+你总不能要求2000年代有4k的资源吧</blockquote>
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

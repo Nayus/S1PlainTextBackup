@@ -13771,3 +13771,13 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 
 当然更大可能放录音就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16016#       发表于 2024-4-25 12:24
+
+原作都还没到c团和好，mygo的live连春日影都不敢演，三次元现在搞重组c团真是想多了，除非有个大富豪c团遗老砸大钱逼武士道出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要代打也是ras或者mika老师去，虽然更大的可能性是搞点不插电或者干脆放录音完事了
+

@@ -14282,3 +14282,16 @@ ARS这个脸让我想起那个把祥子的嘴往上P的图<img src="https://stat
 
 看了一眼微博转发好多人在骂才发现原来不止我觉得shuzuku的画风有点抽象啊，也不知道wsd为什么喜欢让这位画版权绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16055#       发表于 2024-4-26 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64720248&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-26 00:10</a>
+看了一眼微博转发好多人在骂才发现原来不止我觉得shuzuku的画风有点抽象啊，也不知道wsd为什么喜欢让这位画 ...</blockquote>
+我个人感觉这位画的其实还好（）
+虽说也有点想吐槽shuzuku的柄什么情况，是不是钱没给够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

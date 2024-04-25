@@ -1420,3 +1420,28 @@ bt的这套使用模式我是真的很难坚持下来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qq350295  
+##### 147#       发表于 2024-4-25 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712983&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-4-25 12:20</a>
+
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+ ...</blockquote>
+怀念的又不是画质音质提高，是方便与内容类型多。虽然在线光看更方便了，但版权限制小众内容找起来没那么方便了
+
+
+*****
+
+####  macos  
+##### 148#       发表于 2024-4-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712983&amp;ptid=2176037" target="_blank">Jet.Black 发表于 2024-4-25 12:20</a>
+所以从网上资源的角度，现在比以前好很多，在这个方面完全不需要怀念过去。
+
+ ...</blockquote>
+应该说资源质量提高了，这是技术的更新，但内容不一定留了
+

@@ -128,3 +128,11 @@ aec1d0889e510fb31201d0599c33c895d0430cf5.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/24/001820x4xxdfg2wef7rxd8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 542#         楼主| 发表于 2024-4-25 23:08
+
+ATLUS的两部新作《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将携独家内容亮相于4月26日晚上7点的哔哩哔哩高能电玩节线上直播活动，为本次活动特别制作的简体中文实机宣传片将首次公开
+

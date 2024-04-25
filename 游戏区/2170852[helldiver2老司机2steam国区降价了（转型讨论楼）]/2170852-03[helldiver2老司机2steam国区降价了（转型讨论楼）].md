@@ -4083,3 +4083,24 @@ n9其实机器人比虫子好打
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">没想到居然真防守成功了，没算好勋章还是给吞了一点
 
+
+*****
+
+####  6x6z6w  
+##### 3341#       发表于 2024-4-25 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">别新战备了，先把旧武器和支援修一修吧，烟雾弹这种鸡肋能不能改一下
+
+*****
+
+####  6x6z6w  
+##### 3342#       发表于 2024-4-25 23:11
+
+ 本帖最后由 6x6z6w 于 2024-4-25 23:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714880&amp;ptid=2170852" target="_blank">安姆闲人 发表于 2024-4-25 15:24</a>
+
+机器人虽然比重组难很多，不过梗也是真有，脑海里一直反复在响星战和魔戒的BGM
+
+到了8我们已经是挣 ...</blockquote>
+尽量不要和巡逻队打，踹基地扔了空袭就可以走，为了那点样本跟对面援兵纠缠不值得，带扰乱对面支援的buff，优先清小兵防止刷支援
+

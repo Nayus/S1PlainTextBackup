@@ -5063,3 +5063,16 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 楼里充分证明了大家都是来玩gal的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，普通coop不能泡队友也不安个固定CP吗？
 
+
+*****
+
+####  c0x9z8  
+##### 396#       发表于 2024-4-25 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64715088&amp;ptid=2140224" target="_blank">QYMtutututu 发表于 2024-4-25 15:39</a>
+
+入了，
+
+赌一把超神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">求私信个地址，哪里买的
+

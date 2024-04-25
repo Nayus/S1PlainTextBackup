@@ -1416,3 +1416,19 @@ https://lo.swaytwig.com/</blockquote>
 
 LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑上シグマ  
+##### 138#       发表于 2024-4-25 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啥情况？手游太平间是啥？
+
+*****
+
+####  zornlemma  
+##### 139#         楼主| 发表于 2024-4-25 18:33
+
+猪舍已将Last Origin的IP和开发，运营权全部转让给了valofe社。
+[https://www.bilibili.com/opus/924262118711099427](https://www.bilibili.com/opus/924262118711099427)
+

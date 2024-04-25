@@ -8400,3 +8400,21 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 681#       发表于 2024-4-25 18:32
+
+登高原来是限时的呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/25/183138qvp7xbyhu27x2y7b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240425_182635_com.sina.weibo_edit_4485484844724932.jpg</strong> (761.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 18:31 上传
+
+左肩这个标志应该是原创的基拉个人标志吧
+

@@ -637,3 +637,34 @@ AGI  A Guy in India
 
 比如你扫码放一个西瓜进去，拿出来的时候就会按西瓜放的那一层的重量价格给你计费扣钱
 
+
+*****
+
+####  lexi  
+##### 61#         楼主| 发表于 2024-4-25 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64710296&amp;ptid=2181215" target="_blank">弓形虫 发表于 2024-4-25 08:40</a>
+
+每一层上面都有一个计重秤，不同东西的重量不一样
+
+比如你扫码放一个西瓜进去，拿出来的时候就会按西瓜放的 ...</blockquote>
+这也太难了吧，每次上架还得逐个称重，另外顾客拿了1斤苹果，2斤葡萄，跟顾客拿了2斤苹果，1斤葡萄怎么区分？最终还是要视频+AI识别才行。
+
+
+*****
+
+####  jojog  
+##### 62#       发表于 2024-4-25 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64710267&amp;ptid=2181215" target="_blank">空彦秋 发表于 2024-4-25 08:37</a>
+
+他们一开始为啥不使用现在提出的这个“智能购物车”方案，非得靠着机器学习去搞什么一步到位，结果还是寄了 ...</blockquote>
+炒股价 LLM之类的贝索斯几十亿是投了的
+
+*****
+
+####  GMJ  
+##### 63#       发表于 2024-4-25 08:52
+
+1兆游戏是写实记录片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1760,3 +1760,11 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  hugosol  
+##### 3140#       发表于 2024-4-25 20:26
+
+原来现在新轮椅是影分身，我就说怎么一直无脑放对面就死了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

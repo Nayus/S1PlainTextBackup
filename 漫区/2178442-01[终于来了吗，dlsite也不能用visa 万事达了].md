@@ -219,3 +219,16 @@ pp可以选用银行卡汇率结算，只亏一点点
 
 pp可以选用银行卡汇率结算，只亏一点点
 
+
+*****
+
+####  黑上シグマ  
+##### 104#       发表于 2024-4-25 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64708492&amp;ptid=2178442" target="_blank">caupollen 发表于 2024-4-24 23:31</a>
+
+这下还不如支付宝了，支付宝&gt;点数&gt;游戏
+
+信用卡&gt;paypal&gt;点数&gt;游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">JCB又不算信用卡了咯
+

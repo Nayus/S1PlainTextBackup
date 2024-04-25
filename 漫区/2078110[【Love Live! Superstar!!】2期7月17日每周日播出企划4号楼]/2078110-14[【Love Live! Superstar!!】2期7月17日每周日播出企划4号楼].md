@@ -1412,3 +1412,14 @@ KALEIDOSCORE ☕️🍨🦋『ニュートラル』
 
 fmt主视图出来，第一眼看着挺好看的，第二眼没看懂k组那部分是什么意思
 
+
+*****
+
+####  ruffian  
+##### 20072#       发表于 2024-4-25 20:27
+
+应该没啥特别的意思，猫组比较摇滚（而且主推）所以表情更？热血？5组看起来很乐呵，k组比较苦情所以一脸凝重？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+相比之下k组的探戈还算有点构思的虽然可可的姿势跟上次的蓝光封面一样迷惑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

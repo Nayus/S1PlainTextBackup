@@ -4318,3 +4318,18 @@ https://bgm.tv/subject/482314
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 3368#       发表于 2024-4-25 19:53
+
+为什么新入生前面还要打个码，码的是啥啊这么神秘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3369#       发表于 2024-4-25 19:56
+
+感觉比红色体育生高啊
+

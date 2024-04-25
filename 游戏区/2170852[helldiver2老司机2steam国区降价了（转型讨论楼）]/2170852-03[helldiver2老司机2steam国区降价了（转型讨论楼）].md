@@ -3820,3 +3820,20 @@ EAT和无后坐力都行
 
 如果你们游戏启动的时候载入时间过长，而且其他应用播放声音出现卡顿的话，建议检查一下游戏文件完整性<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我今天查出来五个文件损坏，steam修不了，最后只能靠重装游戏修复，之前几天游戏里经常出现不能用支援的bug不知道是不是和损坏文件有关
 
+
+*****
+
+####  squritle  
+##### 3314#       发表于 2024-4-25 11:09
+
+25级了才刚玩难6的虫子 清慢了有时候能看到两个泰坦在追人跑 泰坦追队友侧面对着我的时候 用类星体打泰坦的话打哪里最有效呢
+
+*****
+
+####  6x6z6w  
+##### 3315#       发表于 2024-4-25 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64712106&amp;ptid=2170852" target="_blank">squritle 发表于 2024-4-25 11:09</a>
+25级了才刚玩难6的虫子 清慢了有时候能看到两个泰坦在追人跑 泰坦追队友侧面对着我的时候 用类星体打泰坦的 ...</blockquote>
+瞄头<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">实在不能瞄那就先把它肚子打烂
+

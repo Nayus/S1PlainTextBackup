@@ -13844,3 +13844,70 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 —— 来自 Xiaomi 22061218C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 感激不尽<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skill  
+##### 16023#       发表于 2024-4-25 17:34
+
+我的BD抽选码，大家可自取
+ptw86879
+54xdm948
+
+—— 来自 OPPO PEDM00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cindy355  
+##### 16024#       发表于 2024-4-25 17:35
+
+之前还说隔壁d4dj有真女同，现在人家的新角色都开始溜冰了，wsd你真牛逼
+
+<img src="https://img.saraba1st.com/forum/202404/25/173512h7jbj0abbayeg75j.png" referrerpolicy="no-referrer">
+
+<strong>01C10BME%5L~0Y3}TU`V7}K.png</strong> (179.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/173511m3k1az12224m2mk2.png" referrerpolicy="no-referrer">
+
+<strong>4J)6I7)$CM1Q~$Z6(LXLQ0I.png</strong> (197.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/173512rib8a54465aj4x4a.png" referrerpolicy="no-referrer">
+
+<strong>D8SI7B0@K5EAO9XNVN88~CW.png</strong> (191.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/173512moa34u4z3h3xxzvv.jpg" referrerpolicy="no-referrer">
+
+<strong>]BZA_8IBANGL4JUDIIO645P_tmb.jpg</strong> (196.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/173512td6np8gczxlp44ko.jpg" referrerpolicy="no-referrer">
+
+<strong>F$_WZNAIHR%(JRSNOWDLLR7_tmb.jpg</strong> (273.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/173512zt0me61jz6pl1ijw.jpg" referrerpolicy="no-referrer">
+
+<strong>Z~~%QPCBY$EYBB~WJ8C``OL_tmb.jpg</strong> (194.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 17:35 上传
+

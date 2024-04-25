@@ -8388,3 +8388,15 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 顺便“非凡强袭自由”现阶段没有任何参考和数据完全证明比“迦楼罗”强，其实真正强的应该是荣耀捍卫者背包 ...</blockquote>
 我还挺好奇背包能不能对接正义二，能的话构想中的AC非凡无限正义就能实现了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 680#       发表于 2024-4-25 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716733&amp;ptid=2178694" target="_blank">永恒的王牌 发表于 2024-4-25 17:52</a>
+我还挺好奇背包能不能对接正义二，能的话构想中的AC非凡无限正义就能实现了 ...</blockquote>
+不如说三巨头的背包能不能都互换吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

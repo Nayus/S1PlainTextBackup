@@ -1485,3 +1485,13 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 [https://www.reddit.com/r/Stellar ... nsored_can_someone/](https://www.reddit.com/r/StellarBladeFandom/comments/1ccpyhm/stellar_blade_outfit_getting_censored_can_someone/)
 
+
+*****
+
+####  ku2154513  
+##### 882#       发表于 2024-4-26 03:41
+
+流程到安全屋没有豪华版特典的，重新进入游戏就能领取了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

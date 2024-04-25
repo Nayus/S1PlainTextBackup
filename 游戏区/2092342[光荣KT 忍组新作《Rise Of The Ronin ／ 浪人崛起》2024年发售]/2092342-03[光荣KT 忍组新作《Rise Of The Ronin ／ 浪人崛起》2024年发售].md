@@ -1776,3 +1776,13 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 
 我草，赌全压没了800个牌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不相信这玩意了，怎么速刷好感度道具啊？捡垃圾捡回来的很快都送完了
 
+
+*****
+
+####  Booorunestud  
+##### 3142#       发表于 2024-4-26 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719312&amp;ptid=2092342" target="_blank">isa2456 发表于 2024-4-25 22:23</a>
+我草，赌全压没了800个牌不相信这玩意了，怎么速刷好感度道具啊？捡垃圾捡回来的很快都送完了 ...</blockquote>
+正常扫地图看到行商就上去买好感度道具，应该不会缺吧？我到通关是溢出的
+

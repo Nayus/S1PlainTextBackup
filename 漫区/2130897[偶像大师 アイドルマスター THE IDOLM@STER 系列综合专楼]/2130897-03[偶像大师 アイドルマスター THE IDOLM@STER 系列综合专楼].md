@@ -4373,3 +4373,13 @@ https://bgm.tv/subject/482314
 
 妹妹的头发省面数了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 3375#       发表于 2024-4-25 20:48
+
+姐姐是假天才，妹妹应该是真天才吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

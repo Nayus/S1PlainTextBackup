@@ -1440,3 +1440,11 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 
 那还玩毛啊，日服才到第11章啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  铁火辉夜  
+##### 141#       发表于 2024-4-25 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">与隔壁敲锣打鼓喜迎十周年庆的舰R对比鲜明
+

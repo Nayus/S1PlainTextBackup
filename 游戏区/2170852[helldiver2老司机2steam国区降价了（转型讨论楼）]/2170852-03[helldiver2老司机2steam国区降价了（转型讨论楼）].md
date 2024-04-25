@@ -4104,3 +4104,13 @@ n9其实机器人比虫子好打
 到了8我们已经是挣 ...</blockquote>
 尽量不要和巡逻队打，踹基地扔了空袭就可以走，为了那点样本跟对面援兵纠缠不值得，带扰乱对面支援的buff，优先清小兵防止刷支援
 
+
+*****
+
+####  smdzh2  
+##### 3343#       发表于 2024-4-25 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719715&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-26 00:09</a>
+别新战备了，先把旧武器和支援修一修吧，烟雾弹这种鸡肋能不能改一下 ...</blockquote>
+干脆直接改成毒气弹得了，增加扩散+遮挡视野
+

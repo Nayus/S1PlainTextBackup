@@ -14237,3 +14237,16 @@ ARS这个脸让我想起那个把祥子的嘴往上P的图<img src="https://stat
 —— 来自 HUAWEI NAM-AL00, Android 12上的 S1Next-鹅版 v2.5.2</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在播的时候就说过这个了，轮回而已
 
+
+*****
+
+####  NODY  
+##### 16051#       发表于 2024-4-25 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719354&amp;ptid=2159415" target="_blank">爱丁堡official 发表于 2024-4-25 22:28</a>
+
+为啥老五团不一次出齐呢，我还觉得佐仓算是剩下三个里最顶的呢
+
+  -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
+问就是太贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

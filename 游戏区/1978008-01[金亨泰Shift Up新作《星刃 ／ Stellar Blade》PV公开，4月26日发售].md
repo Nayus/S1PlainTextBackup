@@ -1317,3 +1317,17 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 实体版有能补数字豪华版内容的 dlc 吗，官网太简陋啥都看不到
 
+
+*****
+
+####  宛若青空  
+##### 865#       发表于 2024-4-25 23:18
+
+<img src="https://img.saraba1st.com/forum/202404/25/231826d8nfyrwm0hnn0hwp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9523.jpeg</strong> (933.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 23:18 上传
+

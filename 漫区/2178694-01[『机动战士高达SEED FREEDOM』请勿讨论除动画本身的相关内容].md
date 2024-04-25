@@ -8377,3 +8377,14 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 西川贵教今年到上海应该会唱freedom吧
 
+
+*****
+
+####  永恒的王牌  
+##### 679#       发表于 2024-4-25 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64707699&amp;ptid=2178694" target="_blank">fengzhouyi 发表于 2024-4-24 22:23</a>
+
+顺便“非凡强袭自由”现阶段没有任何参考和数据完全证明比“迦楼罗”强，其实真正强的应该是荣耀捍卫者背包 ...</blockquote>
+我还挺好奇背包能不能对接正义二，能的话构想中的AC非凡无限正义就能实现了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

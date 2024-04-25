@@ -13993,3 +13993,40 @@ ptw86879
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64717651&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-25 19:16</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16033#       发表于 2024-4-25 19:58
+
+看了访谈我觉得睦是嫌弃c团不够金属才觉得不开心的假说可能要成真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16034#       发表于 2024-4-25 20:01
+
+<img src="https://img.saraba1st.com/forum/202404/25/200113jg8c8vd8gv9vi99x.png" referrerpolicy="no-referrer">
+
+<strong>{SXP2KZ}SR3)HLJ`$`BHBR4.png</strong> (84.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/200118yrzh67fnnjrk9hct.png" referrerpolicy="no-referrer">
+
+<strong>[ZT)7(~F(G8M$A6~BCE@_E9.png</strong> (63.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202404/25/200124ur06fr2v92yxfr80.png" referrerpolicy="no-referrer">
+
+<strong>V9)7)RT2{6%5(N(24{42T`S.png</strong> (71.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 20:01 上传
+

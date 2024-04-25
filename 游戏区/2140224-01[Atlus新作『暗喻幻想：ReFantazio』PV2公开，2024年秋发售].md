@@ -4971,3 +4971,28 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 
 估计就是喊两句白左口号然后加上尬演。还没有泡女人兜底。想想都灾难。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack_qh  
+##### 387#       发表于 2024-4-25 15:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏最开始公布的那个红发女主彻底没了是吧
+
+*****
+
+####  QYMtutututu  
+##### 388#       发表于 2024-4-25 15:39
+
+<img src="https://img.saraba1st.com/forum/202404/25/153818cu8udwnsann803un.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-25 15:38 上传
+
+入了，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+赌一把超神<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+

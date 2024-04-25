@@ -3977,3 +3977,14 @@ EAT和无后坐力都行
 是不是只有做房主才能知道？中途匹配加入的怎么看勋章任务内容？</blockquote>
 应该是吧，中途进去只能看当前什么任务，行动做到哪步不知道。
 
+
+*****
+
+####  squritle  
+##### 3331#       发表于 2024-4-25 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64715004&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-25 15:33</a>
+
+应该是吧，中途进去只能看当前什么任务，行动做到哪步不知道。</blockquote>
+大概知道了 我因为匹配玩得多 没有自己按一个地区三个任务这样按顺序做 
+

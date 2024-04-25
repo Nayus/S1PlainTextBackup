@@ -14193,3 +14193,23 @@ Mujica的看起来就很唐()<img src="https://static.saraba1st.com/image/smiley
 
 今天的邦邦stage2024有mujica0th<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  爱丁堡official  
+##### 16047#       发表于 2024-4-25 22:28
+
+为啥老五团不一次出齐呢，我还觉得佐仓算是剩下三个里最顶的呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  爱丁堡official  
+##### 16048#       发表于 2024-4-25 22:34
+
+太牛了<img src="https://p.sda1.dev/17/f304e0fc0895946abbb946b5d2bc1312/03F9F43F6CC5C66BD4418F7B5F688DF2.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

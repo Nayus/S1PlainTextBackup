@@ -582,3 +582,22 @@ AI stands for anonymous Indian
 AI stands for anonymous Indian</blockquote>
 在这里absent更合适，毕竟不是没戴写着名字的工牌，而是不在现场<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sakuranosibe  
+##### 56#       发表于 2024-4-25 07:46
+
+<blockquote>真红之闪电 发表于 2024-4-24 15:56
+话说优衣库那个结算比别家体验恐怖太多了，东西丢进去我手机还没打开价格就出来了。每次付完钱我都觉得被抢 ...</blockquote>
+然后经常性算错 我在日本和国内都遇到过被多算钱
+
+*****
+
+####  xxren  
+##### 57#       发表于 2024-4-25 07:48
+
+AGI  A Guy in India
+
+—— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

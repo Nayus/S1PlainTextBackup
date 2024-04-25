@@ -13759,3 +13759,15 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  PDQ4  
+##### 16015#       发表于 2024-4-25 11:25
+
+ 本帖最后由 PDQ4 于 2024-4-25 11:26 编辑 
+
+代打也是栗子代打，mujica 还有2nd的呢别嚯嚯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种事从来专业人士干好吧
+
+当然更大可能放录音就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

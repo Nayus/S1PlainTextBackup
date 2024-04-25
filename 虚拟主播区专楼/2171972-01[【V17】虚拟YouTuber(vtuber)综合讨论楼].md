@@ -226,3 +226,16 @@ Nornis 巡回 2146/2530/1560
 
 我服了就一张图，改来改去的干什么？除非你告诉我这4个set加起来等于以前一个套装的价格<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 194#       发表于 2024-4-25 23:51
+
+https://twitter.com/NEXAS_live/status/1783302210069405744
+三天出27个人，立志打造新平台，对标iriam
+台日混血在17直播台干过的CEO对大家的质疑声表示：
+https://twitter.com/harry__so/status/1783440709376446739
+
+另外竞争对手VSteam表示烧钱烧到4/1没钱结束了。
+

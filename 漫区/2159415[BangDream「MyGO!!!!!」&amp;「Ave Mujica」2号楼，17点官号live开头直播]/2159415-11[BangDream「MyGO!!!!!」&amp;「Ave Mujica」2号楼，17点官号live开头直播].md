@@ -14261,3 +14261,16 @@ ARS这个脸让我想起那个把祥子的嘴往上P的图<img src="https://stat
 别人要么是图案标志要么是5人齐聚，有一个是什么玩意儿</blockquote>
 就你go在日本的影响和我心危的比，怕不是靠中之人蹭热度。
 
+
+*****
+
+####  tsukatsukieiko  
+##### 16053#       发表于 2024-4-25 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716504&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-25 17:35</a>
+
+之前还说隔壁d4dj有真女同，现在人家的新角色都开始溜冰了，wsd你真牛逼</blockquote>
+止咳糖浆都出了，还不磕么。
+
+日本估计还是右美这种渣渣，国内复方可是有阿片汀的……顺便这玩意国内虽然非处方但是你到药店直接买基本不可能买到，得去医院开，并且要明确和医生说知道自己在干啥，就是临时镇咳。效果是真好，毕竟有效成分对咳嗽是字面意义的药到病除。
+

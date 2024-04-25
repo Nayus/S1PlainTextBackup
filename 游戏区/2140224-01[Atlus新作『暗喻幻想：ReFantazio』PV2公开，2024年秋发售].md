@@ -5076,3 +5076,15 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 赌一把超神</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">求私信个地址，哪里买的
 
+
+*****
+
+####  Piano-Forest  
+##### 397#         楼主| 发表于 2024-4-25 18:53
+
+《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将于4月26日携独家内容亮相Bilibili高能电玩节2024线上直播活动，为本次活动特别制作的简体中文实机宣传片首次公开，向各位玩家展示两部作品的精彩游戏内容！
+
+直播间：[https://live.bilibili.com/905563](https://live.bilibili.com/905563)
+
+明天7点，不见不散！
+

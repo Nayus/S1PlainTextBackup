@@ -13921,3 +13921,28 @@ ptw86879
 
 又有聲優訪談了
 
+
+*****
+
+####  akirakira  
+##### 16026#       发表于 2024-4-25 18:46
+
+这都第几次官方访谈主动提神笨蛋木箱了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉和初祥关系性差不多频率了
+
+
+*****
+
+####  安瓦尔阿明  
+##### 16027#       发表于 2024-4-25 18:50
+
+姨这个造型非常非常难以评价……
+
+*****
+
+####  米拉苏尔  
+##### 16028#       发表于 2024-4-25 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713989&amp;ptid=2159415" target="_blank">Dark_Zagi 发表于 2024-4-25 14:06</a>
+想问下还送吗</blockquote>
+得等五一了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不在手边
+

@@ -601,3 +601,16 @@ AGI  A Guy in India
 
 —— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  avayazhg  
+##### 58#       发表于 2024-4-25 08:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702845&amp;ptid=2181215" target="_blank">天桥夜风 发表于 2024-4-24 15:16</a>
+我附近的优衣库，拿了衣服放到那个自助结算那里，会自动出结果，但不是扫码啥的，衣服拿回家也没翻出来哪 ...</blockquote>
+<img src="https://p.sda1.dev/17/83f4f3e526d0e5c987718c5e11a7abbd/CMP_20240425080051364.jpg" referrerpolicy="no-referrer">
+网上找了个图
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

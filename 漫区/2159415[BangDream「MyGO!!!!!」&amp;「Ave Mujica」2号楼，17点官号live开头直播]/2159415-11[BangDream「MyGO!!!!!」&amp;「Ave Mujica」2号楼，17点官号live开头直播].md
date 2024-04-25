@@ -13747,3 +13747,15 @@ angles是以ob和dolo的關係性為中心的歌，所以李子非常重視“�
 
 上海迪士尼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 16014#       发表于 2024-4-25 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64704881&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-24 17:57</a>
+（思考）</blockquote>
+是不是米女士的名字被打错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1431,3 +1431,22 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 
 好像还是和谐了两套服装？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依存香炉  
+##### 877#       发表于 2024-4-26 02:46
+
+这闪避的延迟还在呢。难受
+
+
+*****
+
+####  whzfjd  
+##### 878#       发表于 2024-4-26 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64720962&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-26 02:32</a>
+
+好像还是和谐了两套服装？</blockquote>
+日版还是全部？
+

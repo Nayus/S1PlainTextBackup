@@ -3916,3 +3916,23 @@ EAT和无后坐力都行
 
 勋章任务是什么？ 不是一个图三个任务，依次做吗
 
+
+*****
+
+####  大肥鸽子  
+##### 3325#       发表于 2024-4-25 15:14
+
+可能是指全服任务和个人任务吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  Mr.Hopp  
+##### 3326#       发表于 2024-4-25 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714530&amp;ptid=2170852" target="_blank">squritle 发表于 2024-4-25 14:54</a>
+
+再来问下各位老司机勋章任务怎么看的 很多时候上飞机结算发现只完成一个</blockquote>
+一个行动三个任务，每完成一个任务结算一次勋章。
+

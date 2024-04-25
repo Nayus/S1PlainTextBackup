@@ -4953,3 +4953,21 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 —— 来自 Sony XQ-AT52, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 队友人设就这样了，没gal也无所谓吧......暗喻人设感觉是让你专注主线而设计的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P6也不远了，最多两年不到就能看见
 
+
+*****
+
+####  bm7号  
+##### 385#       发表于 2024-4-25 15:16
+
+之前我老觉得本作3d美术看着一般，今天才发现是19世纪风格根本幻想不起来。
+
+
+*****
+
+####  kuarwbwe  
+##### 386#       发表于 2024-4-25 15:22
+
+没法恋爱+种族问题是吧。那剧情基本完蛋了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+估计就是喊两句白左口号然后加上尬演。还没有泡女人兜底。想想都灾难。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

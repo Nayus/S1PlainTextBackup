@@ -3889,3 +3889,14 @@ EAT和无后坐力都行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是有这个设定，不过喷火器没试过，而且你真敢和六七个大盾哥对枪吗
 
+
+*****
+
+####  Launce  
+##### 3322#       发表于 2024-4-25 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713588&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-4-25 13:25</a>
+
+过场tips说机器人在被火力压制的时候会降准度，那我拿火喷对着怪堆散布民主的光辉是不是也算为team做出了一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那TIP潜台词是你清空弹夹把对面废了，对面自然没准度了
+

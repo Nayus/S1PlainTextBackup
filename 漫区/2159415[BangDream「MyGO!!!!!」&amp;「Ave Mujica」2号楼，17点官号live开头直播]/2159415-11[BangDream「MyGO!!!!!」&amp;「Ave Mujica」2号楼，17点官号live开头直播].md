@@ -14250,3 +14250,14 @@ ARS这个脸让我想起那个把祥子的嘴往上P的图<img src="https://stat
   -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
 问就是太贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tsukatsukieiko  
+##### 16052#       发表于 2024-4-25 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64718772&amp;ptid=2159415" target="_blank">Kasroz 发表于 2024-4-25 21:17</a>
+
+别人要么是图案标志要么是5人齐聚，有一个是什么玩意儿</blockquote>
+就你go在日本的影响和我心危的比，怕不是靠中之人蹭热度。
+

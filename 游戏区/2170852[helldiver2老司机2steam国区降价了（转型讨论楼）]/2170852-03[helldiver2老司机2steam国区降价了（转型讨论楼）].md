@@ -4022,3 +4022,16 @@ EAT和无后坐力都行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 3335#       发表于 2024-4-25 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64714880&amp;ptid=2170852" target="_blank">安姆闲人 发表于 2024-4-25 15:24</a>
+
+机器人虽然比重组难很多，不过梗也是真有，脑海里一直反复在响星战和魔戒的BGM
+
+到了8我们已经是挣 ...</blockquote>
+什么叫已经？机器人正确的打法从来都是游击战，突出一个偷鸡摸狗精准打击，熟知每种据点的打法和构筑者的位置，快进快出炸了就跑，轻松拿下据点的同时还要骗一波警报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

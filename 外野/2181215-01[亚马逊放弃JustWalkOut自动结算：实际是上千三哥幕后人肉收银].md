@@ -614,3 +614,11 @@ AGI  A Guy in India
 
 —— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  空彦秋  
+##### 59#       发表于 2024-4-25 08:37
+
+他们一开始为啥不使用现在提出的这个“智能购物车”方案，非得靠着机器学习去搞什么一步到位，结果还是寄了。话说亚马逊算是很有技术力的公司吗？<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+

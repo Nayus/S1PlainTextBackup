@@ -1768,3 +1768,11 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 
 原来现在新轮椅是影分身，我就说怎么一直无脑放对面就死了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  isa2456  
+##### 3141#       发表于 2024-4-25 22:23
+
+我草，赌全压没了800个牌<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不相信这玩意了，怎么速刷好感度道具啊？捡垃圾捡回来的很快都送完了
+

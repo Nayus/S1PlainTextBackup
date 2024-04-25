@@ -1294,3 +1294,18 @@ VGN这个新编辑风格特别逗，之前自杀小队和寂静岭评测炮语�
 [https://youtu.be/r4FQwS0u4RA](https://youtu.be/r4FQwS0u4RA)
 [https://youtu.be/6rhcrZN0UZQ](https://youtu.be/6rhcrZN0UZQ)
 
+
+*****
+
+####  105gun  
+##### 862#       发表于 2024-4-25 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，原来再半小时就解锁了？这下计划乱了
+
+*****
+
+####  lucky95  
+##### 863#       发表于 2024-4-25 22:27
+
+笑死，king hentai把疑似种族歧视的涂鸦改了，变成了真种族歧视涂鸦笑零元购黑鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

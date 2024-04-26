@@ -280,3 +280,20 @@ dmm和dl作品缺太多了，很多都没有（但是有时候反而会有一些
 
 vndb用起来太麻烦了，而且作品都是以英语显示
 
+
+*****
+
+####  虚无连斩  
+##### 110#       发表于 2024-4-26 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64723293&amp;ptid=2178442" target="_blank">哆哆鸡 发表于 2024-4-26 11:05</a>
+
+怪不得有些老作品在getchu上搜不到了，
+
+问一下除了getchu以外，还有什么类似的作品信息比较全的网站吗，
+
+dm ...</blockquote>
+[https://moepedia.net](https://moepedia.net)
+
+软伦的这个资料站点？然后跳转到官网或者对应的资料站，感觉也不是很好用就是了
+

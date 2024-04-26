@@ -4489,3 +4489,16 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3385#       发表于 2024-4-26 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724615&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-26 12:39</a>
+两个组都不够了？
+虽然喵萌确实也会几集一起发就是了</blockquote>
+问的北宇治的，原来还有别的组吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

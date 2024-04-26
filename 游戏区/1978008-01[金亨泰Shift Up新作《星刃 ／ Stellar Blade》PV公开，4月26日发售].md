@@ -1830,3 +1830,71 @@ https://streamable.com/tbvmoy
 就是得买日版对吧，好贵</blockquote>
 日版因为汇率原因现在才是比较便宜的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leliel  
+##### 912#       发表于 2024-4-26 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724141&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-4-26 12:03</a>
+
+你说的这是哪个版本？</blockquote>
+就港服能买的版本
+
+*****
+
+####  隔壁老黄  
+##### 913#       发表于 2024-4-26 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724322&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-4-26 12:17</a>
+
+日版因为汇率原因现在才是比较便宜的那个</blockquote>
+我看了下拼多多，最便宜是韩版，最贵是港版
+
+都是5字头了，这也太离谱了比之前足足贵了100多
+
+*****
+
+####  隔壁老黄  
+##### 914#       发表于 2024-4-26 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724382&amp;ptid=1978008" target="_blank">Leliel 发表于 2024-4-26 12:21</a>
+
+就港服能买的版本</blockquote>
+是港日版吗
+
+*****
+
+####  Leliel  
+##### 915#       发表于 2024-4-26 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都光明正大卖的游戏了，还要遮掩真的有能挽回什么吗
+
+*****
+
+####  变老的大二  
+##### 916#       发表于 2024-4-26 12:23
+
+所以要么等官方回旋，要么等pc版本？
+
+
+*****
+
+####  Leliel  
+##### 917#       发表于 2024-4-26 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724400&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-4-26 12:22</a>
+
+是港日版吗</blockquote>
+港服那个没有日文
+
+日文大概只有日版有吧
+
+*****
+
+####  Leomai  
+##### 918#       发表于 2024-4-26 12:24
+
+感想就是这游戏假装让你和怪物交互弹反，其实最优解是一套摁死对面
+△□△□△应该是出伤最高的连段，前期大多数怪物都能在反击之前被一套连死。贝塔能量用来控制加解场。战斗效率上来后其实还挺惬意的。
+

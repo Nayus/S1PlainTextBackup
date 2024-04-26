@@ -14340,3 +14340,18 @@ shuzuku差了点但是也还不错吧
 不约图都能卖那干嘛要约，等急了再约一张灭火。
 控制成本懂不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16061#       发表于 2024-4-26 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64723331&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-26 11:07</a>
+
+羡慕隔壁gbc有手鸟nari负责所有柄图
+
+shuzuku差了点但是也还不错吧
+
+所以为毛不让治愈负责ave所有柄图呢 也不 ...</blockquote>
+有一說一，2nd LIVE約的這個感覺有5個治愈那麼貴，好像武士道真不是出不起這個錢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -2097,3 +2097,47 @@ PC版大概率上来就是和谐过的
 
 有拿实体试了的没，实体到了晚上回去才能玩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 941#       发表于 2024-4-26 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725800&amp;ptid=1978008" target="_blank">卡博雷z 发表于 2024-4-26 14:32</a>
+有拿实体试了的没，实体到了晚上回去才能玩</blockquote>
+实体这么快吗？在国外的？
+
+
+*****
+
+####  卡博雷z  
+##### 942#       发表于 2024-4-26 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725902&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-4-26 14:41</a>
+实体这么快吗？在国外的？</blockquote>
+在日本
+
+*****
+
+####  袄_偶滴小乔  
+##### 943#       发表于 2024-4-26 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725902&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-4-26 14:41</a>
+实体这么快吗？在国外的？</blockquote>
+你看他记录，日本的
+
+*****
+
+####  宛若青空  
+##### 944#       发表于 2024-4-26 14:47
+
+旗袍也被和谐过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/26/144707kdwwpzvzfxwozq7o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>406ED61F-E4D3-4EE9-B330-0C8390A28E66.jpeg</strong> (629.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 14:47 上传
+

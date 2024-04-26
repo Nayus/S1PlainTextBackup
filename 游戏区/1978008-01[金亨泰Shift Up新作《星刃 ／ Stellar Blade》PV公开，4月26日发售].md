@@ -3146,3 +3146,51 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  阿尔泰尔  
+##### 1036#       发表于 2024-4-26 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731745&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-26 23:13</a>
+
+不太懂CV界，好像都不是常见的CV名字，是不是都不是什么大牌CV</blockquote>
+濑户麻沙美算不错的了，最近铁拳8的丽奈也算人气角色了
+
+*****
+
+####  土路生優里  
+##### 1037#       发表于 2024-4-26 23:26
+
+开放世界的探索有些索然无味了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  名字已被吃  
+##### 1038#       发表于 2024-4-26 23:29
+
+上面图片女主CV的动画作品，我一个都没看过，然后之前试玩选的日语配音，感觉比较平淡
+
+
+*****
+
+####  eulereld  
+##### 1039#       发表于 2024-4-26 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730501&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-26 21:10</a>
+
+这要是选不合作会怎样</blockquote>
+百合會哄/勸/請求伊芙答應，然後伊芙會同意
+
+*****
+
+####  浅川雏羽  
+##### 1040#       发表于 2024-4-26 23:35
+
+卢瓦高层这章硬蹭生化危机真是史诗级烂活，谁想玩这个
+有种当年狒狒15烂到震撼全世界的第十三章的美
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

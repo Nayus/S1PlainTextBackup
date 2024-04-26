@@ -2367,3 +2367,32 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  宛若青空  
+##### 964#       发表于 2024-4-26 16:05
+
+实体版确定是1.0的版本
+
+<img src="https://img.saraba1st.com/forum/202404/26/160504fk1jrfkkgjcyrrgv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9537.jpeg</strong> (39.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 16:05 上传
+
+*****
+
+####  两个路人  
+##### 965#       发表于 2024-4-26 16:08
+
+ 本帖最后由 两个路人 于 2024-4-26 16:09 编辑 
+
+哎呀，这么一想，还是脱裤魔熟练。奶排蒸汽上直接锁在亚区，白皮都要翻过来看瑟瑟 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+那么这个河蟹补丁究竟是谁的主意？翔尼还能站起来吗？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+<img src="https://ttfou.com/i/2024/04/18/6rj9aa.jpg" referrerpolicy="no-referrer">
+

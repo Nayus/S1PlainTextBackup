@@ -3289,3 +3289,26 @@ BB这 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 12293#       发表于 2024-4-27 02:38
+
+没玩明白，草食狼这1技能的死回顶不了自己宝具的即死，是有bug还是就这么设计的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  DARKGRAY  
+##### 12294#       发表于 2024-4-27 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733619&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-4-27 02:38</a>
+
+没玩明白，草食狼这1技能的死回顶不了自己宝具的即死，是有bug还是就这么设计的
+
+—— 来自 OnePlus KB2000 ...</blockquote>
+致死攻击回避是当前血量会被这一下攻击拍死的话就回避，和即死是两回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

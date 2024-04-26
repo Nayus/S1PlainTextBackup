@@ -3341,3 +3341,31 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 看热闹不嫌弃事儿大，玩家社区赶紧持续发酵一波，教会shit up做人（
 
+
+*****
+
+####  陈词与芍药  
+##### 1056#       发表于 2024-4-27 02:44
+
+<img src="https://img.saraba1st.com/forum/202404/26/144319vd9d5nzd0h9hsmm1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4528.JPG</strong> (322.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 02:43 上传
+
+真结局达成，其他的结局等会云下
+真的是金玉其外 败絮其中，没有音乐和美术（角色设计）这游戏最多7分<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ku2154513  
+##### 1057#       发表于 2024-4-27 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733635&amp;ptid=1978008" target="_blank">陈词与芍药 发表于 2024-04-27 02:44:39</a></blockquote>打的也太快了，流程这么短的吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

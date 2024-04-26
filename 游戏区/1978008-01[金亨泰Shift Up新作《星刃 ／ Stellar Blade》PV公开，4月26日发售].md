@@ -1898,3 +1898,41 @@ https://streamable.com/tbvmoy
 感想就是这游戏假装让你和怪物交互弹反，其实最优解是一套摁死对面
 △□△□△应该是出伤最高的连段，前期大多数怪物都能在反击之前被一套连死。贝塔能量用来控制加解场。战斗效率上来后其实还挺惬意的。
 
+
+*****
+
+####  nyaneko  
+##### 919#       发表于 2024-4-26 12:28
+
+艹，如果实体版没和谐的话，不也意味着实体版不更新就没有新游戏+。
+
+*****
+
+####  塔奇克马  
+##### 920#       发表于 2024-4-26 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724473&amp;ptid=1978008" target="_blank">nyaneko 发表于 2024-4-26 12:28</a>
+艹，如果实体版没和谐的话，不也意味着实体版不更新就没有新游戏+。</blockquote>
+打到需要的时候再打补丁有后遗症吗？没有的话应该可行吧
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  HATENA  
+##### 921#       发表于 2024-4-26 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实体版要涨价了把
+
+*****
+
+####  袄_偶滴小乔  
+##### 922#       发表于 2024-4-26 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724522&amp;ptid=1978008" target="_blank">塔奇克马 发表于 2024-4-26 12:32</a>
+打到需要的时候再打补丁有后遗症吗？没有的话应该可行吧
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 S1N ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当你辛苦收集了所有瑟瑟的衣服，准备二周目一开始就换上爽爽的时候，打上补丁，然后告诉你，您的衣服已被和谐
+

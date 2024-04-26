@@ -2275,3 +2275,80 @@ d2e1eceegy1hp4f8lnk5cj223v16o1ky.jpg
 
 —— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  里村紅葉  
+##### 12208#       发表于 2024-4-26 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729177&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-26 19:17</a>
+你变了 什么时候变成欧皇的</blockquote>
+我抽的轻松说明强度堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我抽菜鸡角色一向很拿手
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Jamaisvu  
+##### 12209#       发表于 2024-4-26 19:27
+
+草十郎才是本次活动重头戏吧，二技能10级NP翻倍50变100，一技能双魔放，三技能变指令卡加指定魔放，宝具单体自爆适合90++道中（还带个跟等级走的对防御力特攻）。
+
+*****
+
+####  exiaexa  
+##### 12210#       发表于 2024-4-26 19:28
+
+ 本帖最后由 exiaexa 于 2024-4-26 19:29 编辑 
+
+研究了下草十郎，强度至少暴打两个青子吧
+
+你只需要点一下暗狐狸的1，就可以获得一个
+
+无敌贯通+防御贯通+防御特攻+50红+30攻的红卡单体自曝狂
+
+致敬传奇自爆手阿拉什<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12211#       发表于 2024-4-26 19:28
+
+ 本帖最后由 シャル 于 2024-4-26 19:29 编辑 
+
+第9张护符出货，石头没用一个
+
+稳定玄学单抽<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
+(795.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/192826zgvg6h00gvv33dn0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  onemoment  
+##### 12212#       发表于 2024-4-26 19:33
+
+1500石青子6宝达成，收工，等有珠了。前面这青子解包图真是丑出天际<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/26/193245qah7htti9i7v5cgn.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2212.png</strong> (512.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:32 上传
+
+*****
+
+####  qixinno2  
+##### 12213#       发表于 2024-4-26 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么大佬们都又欧又有钱 
+

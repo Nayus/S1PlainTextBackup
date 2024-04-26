@@ -2774,3 +2774,14 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 就欧美区的和谐了吗
 
+
+*****
+
+####  缺德猫  
+##### 1004#       发表于 2024-4-26 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728210&amp;ptid=1978008" target="_blank">llliu 发表于 2024-4-26 17:50</a>
+
+和谐的还都是游戏前期就能获得的，明明还有不少胖次都随便看的，真的很迷惑 ...</blockquote>
+一般这类和谐都是和谐前期内容，我记得CDPR还分享过这方面经验。
+

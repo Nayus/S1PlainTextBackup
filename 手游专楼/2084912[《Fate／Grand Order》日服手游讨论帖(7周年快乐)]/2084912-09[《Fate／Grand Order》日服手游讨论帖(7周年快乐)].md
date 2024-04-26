@@ -2039,3 +2039,137 @@ d2e1eceegy1hp4f8lnk5cj223v16o1ky.jpg
 
 有珠要等到5.1，痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12186#       发表于 2024-4-26 19:05
+
+ 本帖最后由 Jamaisvu 于 2024-4-26 19:09 编辑 
+
+解包数据出来了，青子这是做了两张卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">：
+
+（化身博士：我也是变身宝具，不能给海德三红吗...）
+
+<img src="https://img.saraba1st.com/forum/202404/26/190454i1pp7zdk32dx1m3s.png" referrerpolicy="no-referrer">
+
+<strong>e94e0ecbebf6c5f3dc933dba6ea0717c_bfc9dc5ea111cfaa2f70457d4e55e7e95102723.png</strong> (671.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/190409vb0393seo33isz3m.png" referrerpolicy="no-referrer">
+
+<strong>9bac6945484ed3800d871cd06aa690c3_68234b221472413669fcf6e85d20e1975102723.png</strong> (619.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:04 上传
+
+（式姐：来早了，要不也得要个100充<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">）
+
+草十郎这个技能名字看着好高深啊：
+
+<img src="https://img.saraba1st.com/forum/202404/26/190536qx73zxgibwbs33sr.png" referrerpolicy="no-referrer">
+
+<strong>d5419359edded70e899b5c706c39568d_4319c5b74ab41e48db30bb0f7feea1b95102723.png</strong> (632.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:05 上传
+
+*****
+
+####  高木なつめ  
+##### 12187#       发表于 2024-4-26 19:08
+
+满头大汗了…只有1井两个五星…
+
+
+*****
+
+####  alucardcz  
+##### 12188#       发表于 2024-4-26 19:10
+
+卡图出了  太失望了。。。。。。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 12189#       发表于 2024-4-26 19:12
+
+这解包
+
+真就1宝走人了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高木なつめ  
+##### 12190#       发表于 2024-4-26 19:12
+
+600石1宝，有珠也没了
+
+*****
+
+####  琴酒  
+##### 12191#       发表于 2024-4-26 19:13
+
+110连出了 还歪了山鲁佐德和伽拉忒亚
+
+*****
+
+####  yzj134100  
+##### 12192#       发表于 2024-4-26 19:13
+
+喊满宝的呢
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  v22325  
+##### 12193#       发表于 2024-4-26 19:13
+
+这一上来碰到的草十郎笑死我了
+
+*****
+
+####  alucardcz  
+##### 12194#       发表于 2024-4-26 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729104&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 19:12</a>
+
+这解包
+
+真就1宝走人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新希望大佬说到做到 别又偷偷（
+
+*****
+
+####  areklose  
+##### 12195#       发表于 2024-4-26 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这变身和宝具绑定还是有点蠢，不如技能变身
+
+*****
+
+####  森兰丸  
+##### 12196#       发表于 2024-4-26 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">没看过魔夜...这联动卡池怎么连1个4星都没
+
+*****
+
+####  exiaexa  
+##### 12197#       发表于 2024-4-26 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729128&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-26 19:13</a>
+
+萌新希望大佬说到做到 别又偷偷（</blockquote>
+我两单没出，直接等有珠
+
+再抽我送你一单
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3286,3 +3286,14 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 看女主打完boss捡起核心顺手塞屁股后面收起来，我就想起之前那根巨大的超能电池
 
+
+*****
+
+####  ultraseven  
+##### 1051#       发表于 2024-4-27 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731700&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-26 23:09</a>
+
+说句题外话，原来数字版游戏在有更新的情况下，不更新是玩不了的</blockquote>
+断网就可以玩
+

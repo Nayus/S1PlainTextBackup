@@ -594,3 +594,14 @@ FURYU原创动作RPG《雷纳提斯》（REYNATIS）第二弹宣传片公开，�
 
 妈耶我怎么记得第一个pv卖相没这么差吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 61#       发表于 2024-4-26 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728222&amp;ptid=2172675" target="_blank">黑酒杯 发表于 2024-4-26 17:52</a>
+妈耶我怎么记得第一个pv卖相没这么差吧</blockquote>
+直面会上的第一个pv几乎没有实机内容，全是cg
+后面几个有实机的片都比较克味
+

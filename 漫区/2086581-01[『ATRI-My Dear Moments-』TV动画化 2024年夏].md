@@ -603,3 +603,15 @@ ED：22/7
 
 <img src="https://p.sda1.dev/17/5619cf939f027f310e5bb88042a085f9/CMP_20240426174900333.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cqc1021  
+##### 57#       发表于 2024-4-26 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728156&amp;ptid=2086581" target="_blank">Libartas 发表于 2024-4-26 17:46</a>
+不是one akimoto？</blockquote>
+索尼艺人演唱索尼制作的由索尼游戏改编的动画的主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

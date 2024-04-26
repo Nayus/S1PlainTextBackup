@@ -3243,3 +3243,14 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 没打 demo，大概多久的流程能领衣服</blockquote>
 2h吧，得把前两张图推完
 
+
+*****
+
+####  jacket  
+##### 1046#       发表于 2024-4-26 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64732162&amp;ptid=1978008" target="_blank">shinoverse 发表于 2024-4-26 23:45</a>
+
+请问一下，裙子类的换装底下有安全裤么？</blockquote>
+豪华版送的那个没有，而且刻画的肉感比较写实
+

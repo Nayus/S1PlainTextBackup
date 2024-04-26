@@ -14527,3 +14527,35 @@ DJ新团倒底溜没溜，而且这团不是真人团吧，推子+放学后失�
 
 <img src="http://img.nga.178.com/attachments/mon_202404/26/-9lddQ19e-1s8cZgT1kSfy-tt.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16077#       发表于 2024-4-27 00:00
+
+千聖: 日菜酱，不要再开玩笑了。
+
+那么彩酱，文章的后面是怎么写的？
+
+彩: 嗯……接下来是关于TIS的内容。
+
+"Pastel*Palettes的制作人，
+
+拥有黑暗过去"……？
+
+彩: 诶……？
+
+网络新闻: "Pastel*Palettes的制作人是
+
+東中野ナオ，她是
+
+人气偶像团体Marmalade的前成员"
+
+网络新闻: "几年前Marmalade突然解散的事情
+
+大家应该还记忆犹新。表面上是和平解散，
+
+但真相相当悲惨"
+
+你邦世界原来真有狗仔啊，感觉能看到mujica未来的剧情走向了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

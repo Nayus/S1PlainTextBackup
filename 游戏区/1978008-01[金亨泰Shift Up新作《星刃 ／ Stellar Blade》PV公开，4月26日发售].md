@@ -2495,3 +2495,46 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  医生狼多  
+##### 976#       发表于 2024-4-26 16:47
+
+《剑星》现已正式发售，外媒GameSpot发布了游戏中比基尼套装的解锁位置：
+
+-任务目标位置在“大沙漠”，前往该地区东南部，在那里，你会看到高速公路的废墟。沿着高速公路向北前进。最终会看到一个可以攀爬的斜坡路段。继续沿着这条路走，直到发现一辆公交车。射击炸药桶使其掉落，穿越缺口，打开红色的箱子，即可获得。
+
+*****
+
+####  popchong  
+##### 977#       发表于 2024-4-26 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726498&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-26 15:35</a>
+
+日亚就是快，已经到货了，下班直接冲回去玩</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下班直接回去冲
+
+*****
+
+####  n5965315  
+##### 978#       发表于 2024-4-26 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727055&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-26 16:19</a>
+
+初见boss残血处决 --&gt; 搞定放下手柄喝口水 --&gt; 唉尼玛QTE！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我开了自动qte也得老老实实按qte
+
+*****
+
+####  两个路人  
+##### 979#       发表于 2024-4-26 16:49
+
+<blockquote>彩虹肥宅 发表于 2024-4-26 16:43
+有无去索尼社交账号下面团建的，说不定能给个开关
+
+—— 来自 OPPO PGJM10, Android 14上的 S1Next- ...</blockquote>
+资本主义就要用资本主义才能懂的办法：看看能不能号召大规模退款吧（邪笑
+
+看戏不能嫌事儿大（哈哈哈
+

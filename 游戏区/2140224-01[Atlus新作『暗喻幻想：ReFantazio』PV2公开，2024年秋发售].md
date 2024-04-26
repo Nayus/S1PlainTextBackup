@@ -5123,3 +5123,14 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将于4月26日携独家内容亮相Bilibili高能电玩节202 ...</blockquote>
 PV3 简中系统演示版（简中版游戏画面）
 
+
+*****
+
+####  Piano-Forest  
+##### 401#         楼主| 发表于 2024-4-26 20:06
+
+PV3 简中系统演示版（简中版游戏画面）
+
+《暗喻幻想：ReFantazio》简体中文实机画面首发：
+[https://b23.tv/lkU2gKZ](https://b23.tv/lkU2gKZ)
+

@@ -14386,3 +14386,26 @@ shuzuku差了点但是也还不错吧
 
 —— 来自 HONOR BVL-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  木谷高明  
+##### 16065#       发表于 2024-4-26 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726262&amp;ptid=2159415" target="_blank">暗黑能乐 发表于 2024-4-26 15:11</a>
+现实点的大祥的末路
+
+—— 来自 HONOR BVL-AN00, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+会被soyo包年的吧
+
+*****
+
+####  暗黑能乐  
+##### 16066#       发表于 2024-4-26 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726359&amp;ptid=2159415" target="_blank">木谷高明 发表于 2024-4-26 15:21</a>
+会被soyo包年的吧</blockquote>
+soyo有新团了，和你祥切割了
+
+—— 来自 HONOR BVL-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

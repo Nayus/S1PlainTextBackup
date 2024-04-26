@@ -65,3 +65,15 @@ s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  闻道沐心  
+##### 1517#       发表于 2024-4-26 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721577&amp;ptid=1220112" target="_blank">库德里尔 发表于 2024-4-26 08:25</a>
+鹅球有办法把黑名单里的楼直接抽掉吗？
+
+我现在把部分用户加入黑名单后，鹅球里还会显示一层[用户已被屏蔽] ...</blockquote>
+作者说了会用其他的方式优化一下而不是直接抽楼
+

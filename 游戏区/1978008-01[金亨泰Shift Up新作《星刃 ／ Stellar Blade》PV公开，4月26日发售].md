@@ -3093,3 +3093,32 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 序章用不放过一颗螺丝钉的舔图玩法打了好久，舔图是目前最喜欢的部分，量大而且明牌，能扫描到说明一定有路
 
+
+*****
+
+####  名字已被吃  
+##### 1031#       发表于 2024-4-26 23:09
+
+说句题外话，原来数字版游戏在有更新的情况下，不更新是玩不了的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  loliwansui87  
+##### 1032#       发表于 2024-4-26 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731568&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-4-26 22:55</a>
+
+1.02 版本增加了N+模式等等，怎么看都是比较完整的版本，他这个说法其实没问题。。应该问题能不能出个补丁 ...</blockquote>
+你再认真看看我的图，人家问的是滚回befor the censorship，老金回答的是final costume，都是指衣服的出场版本而不是具体的游戏版本，老金说衣服版本出场就是1.02的和谐版本，言外之意就是不会回滚旧的衣服版本，文字游戏而已
+
+*****
+
+####  名字已被吃  
+##### 1033#       发表于 2024-4-26 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731103&amp;ptid=1978008" target="_blank">huoguoshan23 发表于 2024-4-26 22:06</a>
+
+https://gamewith.jp/stellarblade/444545</blockquote>
+不太懂CV界，好像都不是常见的CV名字，是不是都不是什么大牌CV
+

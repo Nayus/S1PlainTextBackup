@@ -3122,3 +3122,27 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 https://gamewith.jp/stellarblade/444545</blockquote>
 不太懂CV界，好像都不是常见的CV名字，是不是都不是什么大牌CV
 
+
+*****
+
+####  哆哆鸡  
+##### 1034#       发表于 2024-4-26 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731745&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-26 23:13</a>
+不太懂CV界，好像都不是常见的CV名字，是不是都不是什么大牌CV</blockquote>
+eve的声优还是有一点名气的，游戏还配过绯红结系女主
+其他的都很糊
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rainsheep  
+##### 1035#       发表于 2024-4-26 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731745&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-26 23:13</a>
+不太懂CV界，好像都不是常见的CV名字，是不是都不是什么大牌CV</blockquote>
+感觉只有女主cv稍微有名点，配过樱岛麻衣，盾勇，咒术的女主.
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

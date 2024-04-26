@@ -127,3 +127,21 @@
 
 昨天刚刚看完彷徨少年时，原来克罗默在原著里就是新手村小boss……后面怎么着也得再来一章把贝娅特里斯、琴师和爱娃夫人（夫人我喜欢你啊！）做出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  erratic璃月  
+##### 654#       发表于 2024-4-26 18:34
+
+ 本帖最后由 erratic璃月 于 2024-4-26 18:38 编辑 
+
+菲利普小辛疑似两个形态
+
+陪跑二星无了，两个ego
+
+蛇哥和臼齿的播报员
+
+要命，我觉得一井毕业可能性大幅下降<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+不亏是自由的月计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14453,3 +14453,14 @@ soyo有新团了，和你祥切割了
 
 诗和歌不都是诗的意思嘛
 
+
+*****
+
+####  木莲满墙  
+##### 16070#       发表于 2024-4-26 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728627&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-26 18:25</a>
+
+诗和歌不都是诗的意思嘛</blockquote>
+因为b站和蓝光里的翻译都把这里当“歌”、“歌声”的，而且B站也标明是按官方脚本文字翻的。就是感觉字幕里的“歌（うた）”和梗概的“诗（うた）”对不上。
+

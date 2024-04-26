@@ -1847,3 +1847,69 @@ PU角色暫時還沒有新增強化任務
 
 原来还是有香菜虽然是录播中的录播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 12165#       发表于 2024-4-26 18:35
+
+外星青子
+
+*****
+
+####  不垃圾屌丝  
+##### 12166#       发表于 2024-4-26 18:36
+
+还真给那些考据党奶中外星人了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Jamaisvu  
+##### 12167#       发表于 2024-4-26 18:37
+
+青子竟然是外星人，这是坐实FGO和魔夜是不同的平行宇宙吗？
+
+期待一个特殊卡背演出。
+
+*****
+
+####  GuDaZi  
+##### 12168#       发表于 2024-4-26 18:38
+
+这宝具怎么感觉是辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  onemoment  
+##### 12169#       发表于 2024-4-26 18:41
+
+狂介草十郎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12170#       发表于 2024-4-26 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂草十郎
+
+cp吗
+
+*****
+
+####  Jamaisvu  
+##### 12171#       发表于 2024-4-26 18:42
+
+草十郎是赠送狂阶，宝具是灭狼一击，看着有点简陋啊...
+
+有珠呢，我的五星有珠呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  临界点  
+##### 12172#       发表于 2024-4-26 18:43
+
+怎么脸都感觉怪怪的 是小山画的吗
+

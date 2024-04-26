@@ -1552,3 +1552,14 @@ blt拍的真不错啊（顺便吐槽星按人气倾斜是最近才流行的是�
 
 除非三期直接切割了跳世界线软重启，不然拉人什么的肯定是不指望的了。
 
+
+*****
+
+####  cat1230  
+##### 20088#       发表于 2024-4-26 18:37
+
+小组曲3天，k组-猫组-5组，k组2天第一，猫组1天，5组3天垫底。
+人气<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

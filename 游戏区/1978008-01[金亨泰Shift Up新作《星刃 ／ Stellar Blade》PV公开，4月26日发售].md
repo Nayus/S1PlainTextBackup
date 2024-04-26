@@ -2722,3 +2722,37 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 流程上好多东西初见无法互动，不写下来记不住
 
+
+*****
+
+####  寂静空气  
+##### 1000#       发表于 2024-4-26 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在看还是得等pc然后mod神功，希望不是永久独占吧……
+
+
+*****
+
+####  两个路人  
+##### 1001#       发表于 2024-4-26 18:35
+
+ 本帖最后由 两个路人 于 2024-4-26 18:38 编辑 
+
+哈哈哈，翔尼还是厉害，预购数字版只要下载了就不给退。这下真是秦始皇吃花椒，赢麻了
+
+如果您已经在PlayStation Store上为预购内容付费，但是改变了想法，则可以要求退款。对于在PlayStation Store上购买的预购内容，只要在发布日期之前，或是在购买后14天内提出退款请求，且该内容尚未开始下载或流式传输，则可以获得退款。
+
+请注意，如果您已经开始下载订单的主要部分，则无法要求退款。请注意，如果启用了自动下载，下载将自动进行。
+
+<img src="https://img.saraba1st.com/forum/202404/26/183426kedby0ev2ve2aez9.jpg" referrerpolicy="no-referrer">
+
+<strong>20240426_182907.jpg</strong> (256.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:34 上传
+
+[https://www.playstation.com/zh-h ... ps-store-pre-order/](https://www.playstation.com/zh-hans-hk/support/store/cancel-ps-store-pre-order/)
+
+[https://twitter.com/S_Rank_Hunter/status/1783734793374494796](https://twitter.com/S_Rank_Hunter/status/1783734793374494796)
+

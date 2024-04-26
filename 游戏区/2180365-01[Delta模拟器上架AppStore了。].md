@@ -1265,3 +1265,20 @@ iPhone上打开app直接运行时就感觉轻微的掉帧微微卡顿，启动ro
 
 用IPAD玩NDS的SRWW没有声音，有小伙伴遇到过类似的问题嘛？
 
+
+*****
+
+####  batrain  
+##### 109#         楼主| 发表于 2024-4-26 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728405&amp;ptid=2180365" target="_blank">风清云淡 发表于 2024-4-26 18:06</a>
+
+用IPAD玩NDS的SRWW没有声音，有小伙伴遇到过类似的问题嘛？</blockquote>
+型号：iPad9
+
+系统：iPadOS17.4.1
+
+rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)
+
+测试了，声音没有问题。
+

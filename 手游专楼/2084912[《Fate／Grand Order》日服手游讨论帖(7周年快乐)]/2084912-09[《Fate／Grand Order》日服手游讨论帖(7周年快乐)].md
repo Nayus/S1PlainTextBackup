@@ -2830,3 +2830,78 @@ AOE化后伤害减半，你红卡暴击又怎么样
 你看看十年前画的和写的是什么。</blockquote>
 感觉CBA原来的头也还行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xunit  
+##### 12257#       发表于 2024-4-26 21:57
+
+橙子都破满了，小熊才两张，什么鬼概率
+
+*****
+
+####  シャル  
+##### 12258#       发表于 2024-4-26 21:58
+
+ 本帖最后由 シャル 于 2024-4-26 22:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730742&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 21:30</a>
+
+兄弟你清醒点，我都不跟你说打晕发牌员
+
+AOE化后伤害减半，你红卡暴击又怎么样</blockquote>
+研究试了下，80级双狐buff只能打10万多<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+10万以下敌人还是能秒的
+
+但是第一回合得刷出红卡
+
+9D21FA86-36A8-4561-B63A-65A1CE40212C.jpeg
+(1014.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/215800cwlo30klejqoqwjc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+8ACB1952-FE8B-48DE-BC2E-DD7AC31B1412.png
+(880.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/215653bwwwisysz0d6qcgg.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 12259#       发表于 2024-4-26 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731029&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 21:58</a>
+
+研究试了下，80级双狐buff只能打10万多
+
+10万以下敌人还是能秒的</blockquote>
+我说话难听担待点
+
+你们是不是脑子里有屎才整这种傻逼阵容来给傻逼公司挽尊
+
+你上三个5星拐，你换个啥阵容不能直接秒了，得用这种阵容来骗自己钱没白花
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 12260#       发表于 2024-4-26 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731045&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 22:00</a>
+
+我说话难听担待点
+
+你们是不是脑子里有屎才整这种傻逼阵容来给傻逼公司挽尊</blockquote>
+、抽到卡不要想办法用用嘛
+
+不然不就白抽了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

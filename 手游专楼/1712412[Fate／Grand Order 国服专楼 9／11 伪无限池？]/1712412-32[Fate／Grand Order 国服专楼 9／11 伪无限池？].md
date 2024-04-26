@@ -439,3 +439,11 @@
 
 本来都半AFK了，什么活动都不打，签到三天一断，今天更新上去抽了下，没想到7符出兽尼，转场幼提，第一个11连的第二发出货。想想兽尼那边再投3符就有+1奖励啦，跑去第2符出蘑菇女<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Urakawa  
+##### 46345#       发表于 2024-4-27 01:18
+
+提妈100抽没出，兽尼十连到手<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

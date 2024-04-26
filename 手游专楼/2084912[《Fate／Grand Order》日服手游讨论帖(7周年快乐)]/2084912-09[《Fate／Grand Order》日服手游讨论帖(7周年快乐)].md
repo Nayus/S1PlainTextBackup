@@ -3236,3 +3236,20 @@ BB这 ...</blockquote>
 
 现在就等有珠强度&amp;技能了
 
+
+*****
+
+####  琴酒  
+##### 12288#       发表于 2024-4-27 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64732558&amp;ptid=2084912" target="_blank">eilot 发表于 2024-4-27 00:09</a>
+
+怪不得，
+
+原來是要前排才算符合提示
+
+不過這樣看來，之後的關卡都是這樣玩，就是令你難以再3T完結</blockquote>
+这个怪异会盯上男人，但是(圣人)不限性别会被盯上，所以怪物出现条件是男性+贞德、玛尔达(女教皇琼和莫莱会不会触发没实验)
+
+这个条件其实和守关英灵有联动的，这关的守关是莎乐美 
+

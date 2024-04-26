@@ -12550,3 +12550,11 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 这期鲑坝都说屎玩起来还行，过不了基本都是队里有个只搬个位数的梦游哥
 
+
+*****
+
+####  Ryuuseigun  
+##### 4223#       发表于 2024-4-27 01:17
+
+cnm今晚新卷堡真的是贵物开会了<img src="https://static.saraba1st.com/image/smiley/carton2017/010.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/f27ca18b77feaf6701d5dbee4eaf5337/CMP_20240427011707467.jpg" referrerpolicy="no-referrer">
+

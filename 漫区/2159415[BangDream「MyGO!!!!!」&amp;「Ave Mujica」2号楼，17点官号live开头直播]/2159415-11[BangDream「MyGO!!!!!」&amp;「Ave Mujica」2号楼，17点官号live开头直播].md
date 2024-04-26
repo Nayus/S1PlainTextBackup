@@ -14323,3 +14323,20 @@ ARS这个脸让我想起那个把祥子的嘴往上P的图<img src="https://stat
 shuzuku差了点但是也还不错吧
 所以为毛不让治愈负责ave所有柄图呢 也不像出不起钱的样子啊
 
+
+*****
+
+####  NODY  
+##### 16059#       发表于 2024-4-26 11:18
+
+懂了，shuzuku画的图质量不行所以收钱少可以经常约，治愈画得好看收钱贵只能偶尔约<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akirakira  
+##### 16060#       发表于 2024-4-26 11:23
+
+不约图都能卖那干嘛要约，等急了再约一张灭火。
+控制成本懂不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

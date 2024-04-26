@@ -2396,3 +2396,34 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 <img src="https://ttfou.com/i/2024/04/18/6rj9aa.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 966#       发表于 2024-4-26 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726892&amp;ptid=1978008" target="_blank">两个路人 发表于 2024-4-26 16:08</a>
+
+哎呀，这么一想，还是脱裤魔熟练。奶排蒸汽上直接锁在亚区，白皮都要翻过来看瑟瑟  
+
+那么这个光速 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索6金4吧，当然最大可能是唱双簧炒作
+
+*****
+
+####  jacket  
+##### 967#       发表于 2024-4-26 16:19
+
+初见boss残血处决 --&gt; 搞定放下手柄喝口水 --&gt; 唉尼玛QTE！
+
+*****
+
+####  faithlifer  
+##### 968#       发表于 2024-4-26 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727055&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-26 16:19</a>
+初见boss残血处决 --&gt; 搞定放下手柄喝口水 --&gt; 唉尼玛QTE！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

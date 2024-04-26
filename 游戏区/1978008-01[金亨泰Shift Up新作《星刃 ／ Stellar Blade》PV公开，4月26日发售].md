@@ -2577,3 +2577,32 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 所以想玩日语语音中文字幕无和谐的是只能买日版尸体盘了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  会长辅佐  
+##### 984#       发表于 2024-4-26 17:15
+
+日版有中文字幕吗，我看港版无日配
+
+*****
+
+####  caupollen  
+##### 985#       发表于 2024-4-26 17:16
+
+港服应该没有和谐吧
+
+*****
+
+####  袄_偶滴小乔  
+##### 986#       发表于 2024-4-26 17:17
+
+ 本帖最后由 袄_偶滴小乔 于 2024-4-26 17:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727751&amp;ptid=1978008" target="_blank">会长辅佐 发表于 2024-4-26 17:15</a>
+
+日版有中文字幕吗，我看港版无日配</blockquote>
+
+有，简繁都有
+
+但是字幕内容和日配说的内容差挺多的
+

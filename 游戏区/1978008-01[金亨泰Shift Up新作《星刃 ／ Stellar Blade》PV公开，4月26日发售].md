@@ -2033,3 +2033,23 @@ pc版呢
 
 下载dlc和更新用掉sp后存档删数据？但ns
 
+
+*****
+
+####  陈词与芍药  
+##### 934#       发表于 2024-4-26 14:01
+
+越玩越想骂，美术和音乐把这游戏抬到了不属于它的高度，起码抬了三个档次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wujae  
+##### 935#       发表于 2024-4-26 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725366&amp;ptid=1978008" target="_blank">whzfjd 发表于 2024-4-26 13:56</a>
+
+下载dlc和更新用掉sp后存档删数据？但ns有知道存在更新就不让你启动旧版本的规矩，只能重置系统才能记忆消 ...</blockquote>
+PS5也有这个，之前滴嘟侠2更新新游戏+，草台程序忘记把控制台快捷键禁用就上线了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

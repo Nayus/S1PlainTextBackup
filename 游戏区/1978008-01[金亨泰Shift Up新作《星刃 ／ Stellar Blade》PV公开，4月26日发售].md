@@ -2141,3 +2141,46 @@ PC版大概率上来就是和谐过的
 
 2024-4-26 14:47 上传
 
+
+*****
+
+####  bletilla  
+##### 945#       发表于 2024-4-26 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724573&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-4-26 12:36</a>
+
+当你辛苦收集了所有瑟瑟的衣服，准备二周目一开始就换上爽爽的时候，打上补丁，然后告诉你，您的 ...</blockquote>
+想太多了，实体版已经是加块布的状态了
+
+欧美那边只发了前面没发后面
+
+<img src="https://img.saraba1st.com/forum/202404/26/145031o5mq0gj2tqqmjp25.jpg" referrerpolicy="no-referrer">
+
+<strong>剑星_20240423183551.jpg</strong> (242.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 14:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">纯属惊弓之鸟罢了
+
+
+*****
+
+####  bletilla  
+##### 946#       发表于 2024-4-26 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725967&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-26 14:47</a>
+
+旗袍也被和谐过 
+
+如果有人说不是和谐是为了美感改了，那明明游戏里换色服装也不少，把黑丝旗袍和裸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真要是和谐的话需要有一个统一标准是不是，也不是没有光腿的服装，还有很多侧绑带的，露东西南半球的
+
+*****
+
+####  jacket  
+##### 947#       发表于 2024-4-26 14:58
+
+总觉得打起来比demo顺畅了，是我变强了还是正式版调整过
+

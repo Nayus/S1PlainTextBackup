@@ -8523,3 +8523,16 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 500元那是会员，非会员1000多
 
+
+*****
+
+####  liy30dlys  
+##### 692#       发表于 2024-4-27 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730939&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-04-26 21:49:45</a>
+有的有一个画面你那就好好看一下</blockquote>我知道是有个约等于彩蛋
+但是我看千禧年两舰长宇航服前黄后白的就觉得这个配色应该是留给虎的
+整部都没一句台词多少有点不正常
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -3369,3 +3369,13 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  隔壁老黄  
+##### 1058#       发表于 2024-4-27 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731103&amp;ptid=1978008" target="_blank">huoguoshan23 发表于 2024-4-26 22:06</a>
+https://gamewith.jp/stellarblade/444545</blockquote>
+女主是濑户麻沙美那也还不错
+

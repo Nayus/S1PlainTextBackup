@@ -3312,3 +3312,11 @@ BB这 ...</blockquote>
 —— 来自 OnePlus KB2000 ...</blockquote>
 致死攻击回避是当前血量会被这一下攻击拍死的话就回避，和即死是两回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  七千星  
+##### 12295#       发表于 2024-4-27 02:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几年没上邮箱任务给的石头还不少,抽到1宝,收工
+

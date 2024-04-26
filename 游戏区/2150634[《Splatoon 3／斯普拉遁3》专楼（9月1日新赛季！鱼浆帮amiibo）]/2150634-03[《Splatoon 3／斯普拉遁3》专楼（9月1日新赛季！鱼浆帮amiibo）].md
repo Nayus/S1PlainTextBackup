@@ -12558,3 +12558,15 @@ Jackpot的Jared竟然用-4.5感度玩双枪/小枪（奶狗拉也是这感度，
 
 cnm今晚新卷堡真的是贵物开会了<img src="https://static.saraba1st.com/image/smiley/carton2017/010.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/f27ca18b77feaf6701d5dbee4eaf5337/CMP_20240427011707467.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 4224#         楼主| 发表于 2024-4-27 03:53
+
+<blockquote>罗克萨斯 发表于 2024-4-24 06:39
+原来这就是大佬的手法啊，低感度所带来的aim稳定性，高感度不管练多久都无法达成。上位势里高感度玩得好的 ...</blockquote>
+本来就很多，超高灵敏度是日本玩家居多，欧美哪怕职业玩家都很多是-3甚至更低的
+
+欧美玩家更倾向于低灵敏度，手腕大动作
+

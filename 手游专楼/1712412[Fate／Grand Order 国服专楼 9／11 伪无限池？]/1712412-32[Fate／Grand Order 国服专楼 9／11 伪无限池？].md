@@ -340,3 +340,11 @@
 
 4星也开了几个骑阶图鉴，这骑阶饼干也清空了，计划还想明年抽太公的呢......
 
+
+*****
+
+####  shin3  
+##### 46334#       发表于 2024-4-26 21:00
+
+福袋闪闪，3宝了，2单一个兽尼，提妈等新年吧，快整整一年只签到了，也不知道氪了干嘛的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

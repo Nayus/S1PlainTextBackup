@@ -2838,3 +2838,16 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 没打 demo，大概多久的流程能领衣服
 
+
+*****
+
+####  但丁叮蛋  
+##### 1011#       发表于 2024-4-26 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728746&amp;ptid=1978008" target="_blank">两个路人 发表于 2024-4-26 18:35</a>
+
+哈哈哈，翔尼还是厉害，预购数字版只要下载了就不给退。这下真是秦始皇吃花椒，赢麻了
+
+一个封闭系统还不如 ...</blockquote>
+我昨天下载的日版电子版，没玩，今天网页也退了
+

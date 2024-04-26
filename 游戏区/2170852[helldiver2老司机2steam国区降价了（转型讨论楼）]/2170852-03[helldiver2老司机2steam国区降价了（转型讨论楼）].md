@@ -4269,3 +4269,11 @@ n9其实机器人比虫子好打
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  smdzh2  
+##### 3359#       发表于 2024-4-26 21:02
+
+玩了差不多100h，光能不出来实在没什么好玩的，回隔壁打阿拉奇虫族了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

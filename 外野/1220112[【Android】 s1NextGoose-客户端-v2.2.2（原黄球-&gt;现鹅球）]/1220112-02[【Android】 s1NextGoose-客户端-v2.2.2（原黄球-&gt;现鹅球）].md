@@ -77,3 +77,12 @@ s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢
 我现在把部分用户加入黑名单后，鹅球里还会显示一层[用户已被屏蔽] ...</blockquote>
 作者说了会用其他的方式优化一下而不是直接抽楼
 
+
+*****
+
+####  wsktcy  
+##### 1518#       发表于 2024-4-26 23:56
+
+好起来了，终于好用起来了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+换回α版
+

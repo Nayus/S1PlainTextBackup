@@ -3202,3 +3202,44 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 只有一个档不敢耍，老实选了答应
 
+
+*****
+
+####  shinoverse  
+##### 1042#       发表于 2024-4-26 23:45
+
+请问一下，裙子类的换装底下有安全裤么？
+
+*****
+
+####  Rainwedell  
+##### 1043#       发表于 2024-4-26 23:47
+
+ 本帖最后由 Rainwedell 于 2024-4-26 23:48 编辑 
+
+我打到现在的最大不满是boss战难度低了一些。还有就是能不能加个小地图<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+探索其实还行，指引有一些问题
+
+*****
+
+####  储安平  
+##### 1044#       发表于 2024-4-26 23:48
+
+<img src="https://img.saraba1st.com/forum/202404/26/234817p1370ebxwbxteekm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 23:48 上传
+
+
+*****
+
+####  Rainwedell  
+##### 1045#       发表于 2024-4-26 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730312&amp;ptid=1978008" target="_blank">Risotto_Nero 发表于 2024-4-26 20:51</a>
+没打 demo，大概多久的流程能领衣服</blockquote>
+2h吧，得把前两张图推完
+

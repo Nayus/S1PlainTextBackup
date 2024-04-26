@@ -615,3 +615,15 @@ ED：22/7
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Libartas  
+##### 58#       发表于 2024-4-26 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728310&amp;ptid=2086581" target="_blank">cqc1021 发表于 2024-4-26 17:59</a>
+索尼艺人演唱索尼制作的由索尼游戏改编的动画的主题曲
+
+—— 来自 samsung SM-N9860, Android 13 ...</blockquote>
+没有打通sie，还不够one<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -324,3 +324,11 @@ dm ...</blockquote>
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 批评空间限制日本 IP 吧
 
+
+*****
+
+####  Orianna  
+##### 113#       发表于 2024-4-26 18:12
+
+欧美宅宅救一下啊！断供销卡！禁黄不用！必须狠狠教育一波卡商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

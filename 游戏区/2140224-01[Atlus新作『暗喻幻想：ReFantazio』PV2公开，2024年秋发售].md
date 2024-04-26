@@ -5134,3 +5134,19 @@ PV3 简中系统演示版（简中版游戏画面）
 《暗喻幻想：ReFantazio》简体中文实机画面首发：
 [https://b23.tv/lkU2gKZ](https://b23.tv/lkU2gKZ)
 
+
+*****
+
+####  Piano-Forest  
+##### 402#         楼主| 发表于 2024-4-26 21:28
+
+<img src="https://p.sda1.dev/17/2e27e9d4dc580102360c88fba88ecca2/7831017141361652.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/15438fce85fcb7e72a5c4aa0da8aad2f/7884617141362302.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/607ebf2af0598318347b968512face66/7944617141362392.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/7f40d04fa7dcdedfcac1082c85680e60/8824317141362672.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ccaeb9c557e3911639767fe30a1497c3/8870717141362872.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e5889960d3a0b7e43e81fec31f668539/8930717141362962.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0b5a724961f44d4ac2db79df218c94fd/8990717141363022.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/97ced58e368c8131ae0818a7b96fd366/4421117141360812.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/6b898094d4311f39d8b0aed7faacdf9b/12175317141363482.png" referrerpolicy="no-referrer">
+

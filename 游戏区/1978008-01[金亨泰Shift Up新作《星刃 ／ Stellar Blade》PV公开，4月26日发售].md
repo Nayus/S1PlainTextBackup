@@ -2859,3 +2859,22 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 这要是选不合作会怎样
 
+
+*****
+
+####  roxassix  
+##### 1013#       发表于 2024-4-26 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730433&amp;ptid=1978008" target="_blank">但丁叮蛋 发表于 2024-4-26 21:02</a>
+我昨天下载的日版电子版，没玩，今天网页也退了</blockquote>
+搜了下都说最低限度是没启动过然后走流程能退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我tm已经进去了。。哎只能认栽了
+
+*****
+
+####  两个路人  
+##### 1014#       发表于 2024-4-26 21:31
+
+<blockquote>roxassix 发表于 2024-4-26 17:39
+信了发售前的鬼话买了下载版。现在觉得膈应得很又下单了实体。。下载版还退不了。怎么感觉被套路了[ ...</blockquote>
+你快问问楼上1011的哥们儿是咋退款的吧，不能便宜了shit up和翔尼
+

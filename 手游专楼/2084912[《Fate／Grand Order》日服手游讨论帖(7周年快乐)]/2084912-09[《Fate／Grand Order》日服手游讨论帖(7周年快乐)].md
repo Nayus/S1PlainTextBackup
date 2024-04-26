@@ -2764,3 +2764,69 @@ B站刷到一个视频，貌似是青子的正确用法之一？锁红卡开宝�
 
 艹十郎的立绘过于草（双重意味
 
+
+*****
+
+####  格林卡罗尔  
+##### 12253#       发表于 2024-4-26 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730691&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 21:26</a>
+
+全体红卡暴击还是很强的
+
+不过得上bb锁卡</blockquote>
+打周回不可能摇2/15的概率
+
+高难自然是另说
+
+*****
+
+####  exiaexa  
+##### 12254#       发表于 2024-4-26 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730691&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 21:26</a>
+
+全体红卡暴击还是很强的
+
+不过得上bb锁卡</blockquote>
+兄弟你清醒点，我都不跟你说打晕发牌员
+
+AOE化后伤害减半，你红卡暴击又怎么样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布伦史塔德  
+##### 12255#       发表于 2024-4-26 21:32
+
+早说了，倒退十年是好事。
+你月全体。
+你看看十年前画的和写的是什么。
+
+评价为不如bba
+
+<img src="https://img.saraba1st.com/forum/202404/26/213150vjo114w66u4u5aln.jpg" referrerpolicy="no-referrer">
+
+<strong>-18495668571714138305095.jpg</strong> (58.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 21:31 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  保罗赫伯特  
+##### 12256#       发表于 2024-4-26 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730757&amp;ptid=2084912" target="_blank">布伦史塔德 发表于 2024-4-26 21:32</a>
+
+早说了，倒退十年是好事。
+
+你月全体。
+
+你看看十年前画的和写的是什么。</blockquote>
+感觉CBA原来的头也还行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

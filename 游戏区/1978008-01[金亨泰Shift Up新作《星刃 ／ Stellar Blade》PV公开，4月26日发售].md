@@ -1637,3 +1637,27 @@ https://streamable.com/tbvmoy
 
 近闻新看
 
+
+*****
+
+####  储安平  
+##### 896#       发表于 2024-4-26 11:29
+
+<img src="https://img.saraba1st.com/forum/202404/26/112956zcod99px4cupq9uq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:29 上传
+
+*****
+
+####  ku2154513  
+##### 897#       发表于 2024-4-26 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64722587&amp;ptid=1978008" target="_blank">105gun 发表于 2024-04-26 10:07:59</a>
+主城告示版旁边卖情报的npc，买东西升好感，两次好感升级都会解锁服装设计图 ...</blockquote>流程藏了设计图，我看贴吧才知道工地那张图有设计图，但是已经错过了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

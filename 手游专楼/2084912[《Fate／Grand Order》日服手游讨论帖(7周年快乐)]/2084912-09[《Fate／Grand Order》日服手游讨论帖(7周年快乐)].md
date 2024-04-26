@@ -2524,3 +2524,43 @@ E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
 
 立绘搞得各平台哀嚎一片
 
+
+*****
+
+####  无证madam  
+##### 12229#       发表于 2024-4-26 20:19
+
+084是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 瓦夜魔弹
+
+*****
+
+####  保罗赫伯特  
+##### 12230#       发表于 2024-4-26 20:19
+
+脸有种早期名侦探柯南角色的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12231#       发表于 2024-4-26 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729819&amp;ptid=2084912" target="_blank">lhwang11 发表于 2024-4-26 20:15</a>
+
+立绘搞得各平台哀嚎一片</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待太高  现在这样能不嚎吗（
+
+
+*****
+
+####  嘘月姫  
+##### 12232#       发表于 2024-4-26 20:24
+
+小山至少好几年前就是这样画青子了，都是简单画画很多人没看出来而已<img src="https://p.sda1.dev/17/e9ac28c9f039eb922e1afe850fcbed53/CMP_20240426202331722.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 12233#       发表于 2024-4-26 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">主要是没有以前立绘好看啊，不应该啊
+

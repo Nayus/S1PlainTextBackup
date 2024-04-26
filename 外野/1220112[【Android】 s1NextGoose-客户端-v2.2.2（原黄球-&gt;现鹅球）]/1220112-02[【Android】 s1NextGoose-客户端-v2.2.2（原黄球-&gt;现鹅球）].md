@@ -12,3 +12,15 @@
 
 s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢鹅球。
 
+
+*****
+
+####  被雨困住的城市  
+##### 1512#       发表于 2024-4-26 21:41
+
+作者做了3.0.0的阿尔法版，但是毕竟是阿尔法版，可能有bug
+
+[https://cowtransfer.com/s/be5b04772b8845](https://cowtransfer.com/s/be5b04772b8845) 点击链接查看 [ S1NextGoose-3.0.0-alpha.apk.1 ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 um8hn3 查看；
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

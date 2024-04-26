@@ -1481,3 +1481,31 @@ fmt主视图出来，第一眼看着挺好看的，第二眼没看懂k组那部�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Goisdust  
+##### 20080#       发表于 2024-4-26 11:13
+
+ 本帖最后由 Goisdust 于 2024-4-26 11:14 编辑 
+
+编辑
+
+
+*****
+
+####  晋冠丘  
+##### 20081#       发表于 2024-4-26 11:15
+
+大家觉得星团动画第三季会怎么样
+
+*****
+
+####  cowboyblue  
+##### 20082#       发表于 2024-4-26 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64723435&amp;ptid=2078110" target="_blank">晋冠丘 发表于 2024-4-26 11:15</a>
+
+大家觉得星团动画第三季会怎么样</blockquote>
+和sc动画第二季双向奔赴。。。。
+

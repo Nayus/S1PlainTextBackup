@@ -1238,3 +1238,22 @@ mac用openemu
 
 拼多多下单了一个50多的手柄，迟点回来反馈效果<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  batrain  
+##### 107#         楼主| 发表于 2024-4-26 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727684&amp;ptid=2180365" target="_blank">404page 发表于 2024-4-26 17:09</a>
+
+反馈了一下让他们增加import cheat database功能
+
+不抱希望地等等吧</blockquote>
+老哥GitHub上反馈的吗？方便的话帮给他们反馈一下：
+
+iPhone上打开app直接运行时就感觉轻微的掉帧微微卡顿，启动rom后，下拉了一下通知栏，再上划回游戏，发现画面流畅，帧率似乎上涨且稳定了（ipad9上无此效果）。
+
+不知道是不是通病。
+
+机型iphone13 ios17.4.1
+

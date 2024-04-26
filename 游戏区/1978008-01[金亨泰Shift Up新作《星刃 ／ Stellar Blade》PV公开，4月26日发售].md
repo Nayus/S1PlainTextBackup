@@ -2635,3 +2635,41 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 就多了几块破布而已，无伤大雅
 
+
+*****
+
+####  卡博雷z  
+##### 990#       发表于 2024-4-26 17:35
+
+日配和简中字幕出入有点大<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 991#       发表于 2024-4-26 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是su自己说上市版本没问题啊，加块布是无伤大雅，但肯定有被膈应到的
+
+*****
+
+####  operatbig  
+##### 992#       发表于 2024-4-26 17:39
+
+问题首日补丁修正输入延迟啊
+
+*****
+
+####  roxassix  
+##### 993#       发表于 2024-4-26 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈词与芍药  
+##### 994#       发表于 2024-4-26 17:39
+
+拿到真结局条件就狂奔主线最后了，感觉金亨泰想做的是死亡空间吧（<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

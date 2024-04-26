@@ -4451,3 +4451,13 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 3382#       发表于 2024-4-26 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，闪是不是把字幕组都干碎了
+
+马上第四集要播了第三集还没出，第二集还是当天能出的速度。高山你坏事做尽啊。总不会是因为预料到了这种结果才卖给了巴哈吧（
+

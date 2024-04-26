@@ -2435,3 +2435,62 @@ E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
 暗狐狸再就业计划
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12222#       发表于 2024-4-26 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729491&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-4-26 19:48</a>
+
+哈哈哈哈跟你们说个笑话，我把青子立绘给我一个没玩过魔夜的朋友看，他说这个师匠画得还可以23333 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/26/195447w28pnnfoo7r7xne2.png" referrerpolicy="no-referrer">
+
+<strong>f80f33ffdb4ebd8482e3e28c735b62cf_351px-英灵旅装：斯卡哈_20180729143748.png</strong> (111.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/195543ee99wz2e9f3zzw79.png" referrerpolicy="no-referrer">
+
+<strong>苍崎青子初始.png</strong> (124.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/195704qowbzfe0qt56cpp8.png" referrerpolicy="no-referrer">
+
+<strong>04a6360ecdd41c0f2531ca1019aa8eba_苍崎青子一破.png</strong> (141.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 19:57 上传
+
+除了发色和瞳色确实很像，斯卡哈的旅装正好是青子初始的下半身和一破的发型（发丝交叉的位置都一样）。
+
+武内有呆毛脸，细究起来的话斯卡哈也算是青子脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">类似呆毛王和尼禄。
+
+*****
+
+####  保罗赫伯特  
+##### 12223#       发表于 2024-4-26 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729491&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-4-26 19:48</a>
+
+哈哈哈哈跟你们说个笑话，我把青子立绘给我一个没玩过魔夜的朋友看，他说这个师匠画得还可以23333 ...</blockquote>
+原初的斯卡哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 12224#       发表于 2024-4-26 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729604&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-26 19:58</a>
+
+除了发色和瞳色确实很像，斯卡哈的旅装正好是青子初始的下半身和一破的发型（发丝交叉的位置都一样）。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">和紫色老太婆还是2个感觉啊....比起后面2张斯卡哈这张脸明显要成熟一点
+

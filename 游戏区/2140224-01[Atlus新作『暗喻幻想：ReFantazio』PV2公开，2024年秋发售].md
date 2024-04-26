@@ -5112,3 +5112,14 @@ SJ的通常战斗好在,當你聽得到後段,就代表你是陷入劣勢或快�
 “Battle Theme”试听：https://youtu.be/n3m-imqEmWE</blockquote>
 “Story BGM”试听：[https://b23.tv/x2T0xeP](https://b23.tv/x2T0xeP)
 
+
+*****
+
+####  Piano-Forest  
+##### 400#         楼主| 发表于 2024-4-26 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64717404&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-4-25 18:53</a>
+
+《暗喻幻想：ReFantazio》及《真·女神转生Ⅴ Vengeance》将于4月26日携独家内容亮相Bilibili高能电玩节202 ...</blockquote>
+PV3 简中系统演示版（简中版游戏画面）
+

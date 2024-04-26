@@ -14482,3 +14482,16 @@ DJ新团倒底溜没溜，而且这团不是真人团吧，推子+放学后失�
 
 经典你谁
 
+
+*****
+
+####  多莉DOLLY  
+##### 16073#       发表于 2024-4-26 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721290&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-26 07:25</a>
+
+我个人感觉这位画的其实还好（）
+
+虽说也有点想吐槽shuzuku的柄什么情况，是不是钱没给够</blockquote>
+感觉shuzuku不太稳定，有时候画得挺好的，有时候又画得很抽象，比如4单封面，通常版就比限定版的好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

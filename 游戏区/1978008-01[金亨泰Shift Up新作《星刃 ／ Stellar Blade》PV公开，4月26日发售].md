@@ -1676,3 +1676,88 @@ https://streamable.com/tbvmoy
 
 以后没和谐的实体版是不是很保值？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 900#       发表于 2024-4-26 11:48
+
+买什么版本好？棒子语实在接受不了，又没中文配音，只能买日语了
+
+日语是日版限定吗
+
+*****
+
+####  zoomegg  
+##### 901#       发表于 2024-4-26 11:53
+
+这和谐。。。想起神域塔2了，还得专门断网玩不然就偷摸给你更新
+
+*****
+
+####  zoomegg  
+##### 902#       发表于 2024-4-26 11:53
+
+这和谐。。。想起神域塔2了，还得专门断网玩不然就偷摸给你更新
+
+*****
+
+####  Leliel  
+##### 903#       发表于 2024-4-26 11:53
+
+<blockquote>隔壁老黄 发表于 2024-4-26 11:48
+买什么版本好？棒子语实在接受不了，又没中文配音，只能买日语了
+
+日语是日版限定吗 ...</blockquote>
+还有包括英文在在内的n国配音
+
+
+*****
+
+####  宛若青空  
+##### 904#       发表于 2024-4-26 11:56
+
+真的无语，和谐的不止两件，还有忍者套前面胸部也加了布料
+
+<img src="https://img.saraba1st.com/forum/202404/26/115555u7355uex7g3x7xuf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9528.jpeg</strong> (69.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/115555jzwqb2o2soqgig8i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9531.jpeg</strong> (202.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/115556g70ir4ko44ebrj72.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9529.jpeg</strong> (739.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:55 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/115556mhozh28bt5t8y0yb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9533.jpeg</strong> (218.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:55 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/26/115610tauaap33kudah631.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9530.jpeg</strong> (198.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 11:56 上传
+

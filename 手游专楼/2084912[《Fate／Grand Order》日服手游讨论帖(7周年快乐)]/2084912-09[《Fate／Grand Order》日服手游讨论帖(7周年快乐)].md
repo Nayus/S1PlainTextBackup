@@ -2655,3 +2655,112 @@ B站刷到一个视频，貌似是青子的正确用法之一？锁红卡开宝�
 
 青子带梵高有没有说法
 
+
+*****
+
+####  exiaexa  
+##### 12244#       发表于 2024-4-26 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730539&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 21:13</a>
+
+没人说下这青子的强度么....完全不知道该怎么用啊
+
+变身要先100NP开第一次宝具...看起来就是个打平A ...</blockquote>
+这么说吧，在新拐落地之前
+
+这就是个花里胡哨的暴击过图机器，没必要也不配开第二宝具
+
+只不过你游因为狗逼发牌员的原因，所有第一回合就要求刷牌、还没有兜底措施的套路都是狗屎
+
+所以在新拐落地前青子只能当个杂技玩具
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gulant  
+##### 12245#       发表于 2024-4-26 21:18
+
+还不是月球人太m，画個蛋都能氪爆？最后口嫌手正直fgo登顶<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 12246#       发表于 2024-4-26 21:19
+
+<blockquote>格林卡罗尔 发表于 2024-4-26 20:57
+楼友在说3t，我还在想要怎么多出一面
+
+比如第一个本说要给点心，这怎么给？ ...</blockquote>
+看带括号的，第一个打水茨木童子的带子供英灵就行了，我带了个幼吉尔是三面每次多一个，不知道多带几个是不是额外的怪也会多。
+
+*****
+
+####  シャル  
+##### 12247#       发表于 2024-4-26 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730539&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 21:13</a>
+
+没人说下这青子的强度么....完全不知道该怎么用啊
+
+变身要先100NP开第一次宝具...看起来就是个打平A ...</blockquote>
+卡色不咬合
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">变身后只有一个红卡，而且宝具是蓝卡
+
+一技能10加双狐的话魔弹能直接加到9，但是红卡buff就用不上了
+
+
+*****
+
+####  保罗赫伯特  
+##### 12248#       发表于 2024-4-26 21:22
+
+红卡和extre的aoe机制这个时候出是没想到的，不知道之后所长还会不会用这套了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 12249#       发表于 2024-4-26 21:23
+
+ 本帖最后由 格林卡罗尔 于 2024-4-26 21:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730539&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 21:13</a>
+
+没人说下这青子的强度么....完全不知道该怎么用啊
+
+变身要先100NP开第一次宝具...看起来就是个打平A ...</blockquote>
+变身后会有一套新的技能组，然后二技能能直接+100np
+
+虽然开第二宝具能有180%-200%的万物特攻，但只有60色卡buff
+
+相较之下第二套技能组的三技能，消耗100np群充50+全体技能冷却减2要实用多了
+
+变身后红卡指令卡只有1张，感觉还是适合当辅助
+
+*****
+
+####  戏言学者  
+##### 12250#       发表于 2024-4-26 21:23
+
+500个石头最后30个出的<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12251#       发表于 2024-4-26 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730664&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-4-26 21:23</a>
+
+变身后会有一套新的技能组，然后二技能能直接+100np
+
+虽然开第二宝具能有180%-200%的万物特攻，但没有自buf ...</blockquote>
+全体红卡暴击还是很强的
+
+不过得上bb锁卡
+
+*****
+
+####  zore  
+##### 12252#       发表于 2024-4-26 21:27
+
+艹十郎的立绘过于草（双重意味
+

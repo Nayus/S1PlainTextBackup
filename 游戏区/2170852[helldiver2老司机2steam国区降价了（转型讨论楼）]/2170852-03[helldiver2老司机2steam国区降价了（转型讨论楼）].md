@@ -4277,3 +4277,11 @@ n9其实机器人比虫子好打
 
 玩了差不多100h，光能不出来实在没什么好玩的，回隔壁打阿拉奇虫族了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 3360#       发表于 2024-4-26 21:16
+
+每次一出新东西头一两天就不停的报错，刚才要么退房间报错要么打得好好的突然报错，隔壁星河战队更是重量级，进主菜单直接30秒固定闪退报错，这帮崽种做的什么勾史游戏没一个能玩的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

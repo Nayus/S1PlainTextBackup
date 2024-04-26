@@ -14355,3 +14355,14 @@ shuzuku差了点但是也还不错吧
 所以为毛不让治愈负责ave所有柄图呢 也不 ...</blockquote>
 有一說一，2nd LIVE約的這個感覺有5個治愈那麼貴，好像武士道真不是出不起這個錢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  春哥亲自  
+##### 16062#       发表于 2024-4-26 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64716504&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-25 17:35</a>
+
+之前还说隔壁d4dj有真女同，现在人家的新角色都开始溜冰了，wsd你真牛逼</blockquote>
+不愧是有27俱乐部的摇滚，rapper有类似的俱乐部吗？
+

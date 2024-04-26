@@ -2606,3 +2606,32 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 但是字幕内容和日配说的内容差挺多的
 
+
+*****
+
+####  rainsheep  
+##### 987#       发表于 2024-4-26 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727772&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-4-26 17:17</a>
+有，简繁都有
+
+但是字幕内容和日配说的内容差挺多的</blockquote>
+还好，没ff16中字和英配差那么多
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  losm  
+##### 988#       发表于 2024-4-26 17:27
+
+索尼是这样的，当时鬼泣5还给打圣光呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  icylight  
+##### 989#       发表于 2024-4-26 17:30
+
+就多了几块破布而已，无伤大雅
+

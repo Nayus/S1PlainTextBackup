@@ -2220,3 +2220,65 @@ PC版大概率上来就是和谐过的
 真要是和谐的话需要有一个统一标准是不是，也不是没有光腿的服装，还有很多侧绑带的，露东西南半 ...</blockquote>
 所以确实搞不懂，明明还有其他暴露的服装在，就针对那几件是为什么，只能说服自己是设计变更了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainsheep  
+##### 951#       发表于 2024-4-26 15:09
+
+这游戏在欧美属于什么评级，欧美主机上直接露两点的都不少吧，是区别对待还是评级不同。
+这事其实最幽默的其实是发售前没两天，shift up还发条信息说所有版本包括日版都没和谐，现在看来是不是全部都统一成日版的D级了。看就这两天官方会不会回应了。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  酒菜下饭  
+##### 952#       发表于 2024-4-26 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725967&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-26 14:47</a>
+旗袍也被和谐过 
+
+如果有人说不是和谐是为了美感改了，那明明游戏里换色服装也不少，把黑丝旗袍和裸 ...</blockquote>
+这套衣服的黑丝被和谐了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rainsheep  
+##### 953#       发表于 2024-4-26 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726241&amp;ptid=1978008" target="_blank">酒菜下饭 发表于 2024-4-26 15:09</a>
+这套衣服的黑丝被和谐了吗？
+
+—— 来自 S1Fun</blockquote>
+正式版有黑丝，光腿是未和谐前的。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  宛若青空  
+##### 954#       发表于 2024-4-26 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726241&amp;ptid=1978008" target="_blank">酒菜下饭 发表于 2024-4-26 15:09</a>
+这套衣服的黑丝被和谐了吗？
+
+—— 来自 S1Fun</blockquote>
+反了，和谐的是光腿，现在的是黑丝版
+
+
+*****
+
+####  但丁叮蛋  
+##### 955#       发表于 2024-4-26 15:14
+
+ 本帖最后由 但丁叮蛋 于 2024-4-26 15:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726241&amp;ptid=1978008" target="_blank">酒菜下饭 发表于 2024-4-26 15:09</a>
+
+这套衣服的黑丝被和谐了吗？
+
+—— 来自 S1Fun</blockquote>
+据说加黑丝前里头是丁字裤，那还是不加黑丝涩一些，因为这个旗袍是可以掀起来的
+

@@ -14376,3 +14376,13 @@ shuzuku差了点但是也还不错吧
 赛博羊姐和赛博李子指日可待</blockquote>
 赛博tymm我不敢想啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗黑能乐  
+##### 16064#       发表于 2024-4-26 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现实点的大祥的末路
+
+—— 来自 HONOR BVL-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

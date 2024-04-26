@@ -297,3 +297,30 @@ dm ...</blockquote>
 
 软伦的这个资料站点？然后跳转到官网或者对应的资料站，感觉也不是很好用就是了
 
+
+*****
+
+####  oskneo  
+##### 111#       发表于 2024-4-26 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64723293&amp;ptid=2178442" target="_blank">哆哆鸡 发表于 2024-4-26 11:05</a>
+怪不得有些老作品在getchu上搜不到了，
+
+问一下除了getchu以外，还有什么类似的作品信息比较全的网站吗，
+
+dm ...</blockquote>
+批评空间
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JetBrains  
+##### 112#       发表于 2024-4-26 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727310&amp;ptid=2178442" target="_blank">oskneo 发表于 2024-4-26 16:39</a>
+批评空间
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+批评空间限制日本 IP 吧
+

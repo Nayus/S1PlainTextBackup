@@ -2468,3 +2468,30 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 等我通关就写信退款。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  火的意志  
+##### 973#       发表于 2024-4-26 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727149&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-4-26 16:27</a>
+索尼的问题吧，虽然加块布不是啥大问题，但就是很膈应</blockquote>
+好讨厌这种，首日补丁都没法打了
+
+
+*****
+
+####  jacket  
+##### 974#       发表于 2024-4-26 16:42
+
+收集到的饮料罐只有计数没有图鉴吗？看不到列表怎么确定漏没漏
+
+*****
+
+####  彩虹肥宅  
+##### 975#       发表于 2024-4-26 16:43
+
+有无去索尼社交账号下面团建的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，说不定能给个开关
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

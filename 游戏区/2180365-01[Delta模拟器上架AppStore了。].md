@@ -1206,3 +1206,17 @@ mac用openemu
 
 既然ios能玩模拟器了 有没有推荐的手机手柄？ 方便携带的 
 
+
+*****
+
+####  batrain  
+##### 104#         楼主| 发表于 2024-4-26 16:40
+
+ 本帖最后由 batrain 于 2024-4-26 16:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726762&amp;ptid=2180365" target="_blank">siebten 发表于 2024-4-26 15:57</a>
+
+既然ios能玩模拟器了 有没有推荐的手机手柄？ 方便携带的</blockquote>
+可以看看八位堂的Micro等产品，不过不是夹式的，而且溢价偏高。
+
+但是外观和便携性应该没问题。兼容性可以在网上搜搜测评看看。
+

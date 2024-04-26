@@ -1471,3 +1471,13 @@ fmt主视图出来，第一眼看着挺好看的，第二眼没看懂k组那部�
 
 实际，猫组就是人气最高啊，有啥好抱怨的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20079#       发表于 2024-4-26 10:55
+
+原来星是按人气倾斜的啊，真的吗这是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

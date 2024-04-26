@@ -57,3 +57,12 @@ braid周年纪念版5月14号发售，吹哥现在在开发两部游戏，还有
 
 2024-4-23 15:51 上传
 
+
+*****
+
+####  BRAVADO  
+##### 193#       发表于 2024-4-26 10:50
+
+Alex Diener发了Leaf's Odyssey的Trailer，DROD和Bean and Nothingness味非常浓，喜欢这两个游戏的可以关注一下<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">。
+[https://store.steampowered.com/app/2880750/Leafs_Odyssey/](https://store.steampowered.com/app/2880750/Leafs_Odyssey/)
+

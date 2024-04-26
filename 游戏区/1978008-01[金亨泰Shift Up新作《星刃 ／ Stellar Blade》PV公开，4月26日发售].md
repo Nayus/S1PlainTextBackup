@@ -1796,3 +1796,37 @@ https://streamable.com/tbvmoy
 
 好像说只有实体盘1.0版本是未和谐的，媒体测评的和首日补丁的版本都是已经和谐过了的
 
+
+*****
+
+####  偶滴小乔  
+##### 909#       发表于 2024-4-26 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724141&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-4-26 12:03</a>
+
+你说的这是哪个版本？</blockquote>
+日版反正有这些配音：意大利语、西班牙语、西班牙语（墨西哥）、德语、法语（法国）、葡萄牙语（巴西）、日语、英语、韩语
+
+就算你买数字版也比其他服便宜，普通版大概58刀，高级版64刀
+
+*****
+
+####  隔壁老黄  
+##### 910#       发表于 2024-4-26 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724230&amp;ptid=1978008" target="_blank">偶滴小乔 发表于 2024-4-26 12:09</a>
+
+日版反正有这些配音：意大利语、西班牙语、西班牙语（墨西哥）、德语、法语（法国）、葡萄牙语（巴西）、 ...</blockquote>
+就是得买日版对吧，好贵<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哆哆鸡  
+##### 911#       发表于 2024-4-26 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724242&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-4-26 12:10</a>
+
+就是得买日版对吧，好贵</blockquote>
+日版因为汇率原因现在才是比较便宜的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

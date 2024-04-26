@@ -44,3 +44,14 @@ s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢
 
 —— 来自 HUAWEI BRA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  hoyice  
+##### 1515#       发表于 2024-4-26 22:57
+
+<img src="https://p.sda1.dev/17/7ccdd3bd728f53f4876b0e0e1d66bb5b/20240418 nina.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/carton2017/427.png" referrerpolicy="no-referrer">图片+麻将脸测试
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

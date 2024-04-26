@@ -374,3 +374,26 @@
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xy1041  
+##### 46338#       发表于 2024-4-26 22:53
+
+200石3宝，1600石5宝，<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤备传承  
+##### 46339#       发表于 2024-4-26 22:56
+
+提妈扔了100石头只出了一个四星瓦格里
+
+兽尼第一发十连，金卡杀new
+
+第二发十连，金卡杀2宝了，附带尼托一个
+
+第三发十连，关灯了
+
+转运了
+

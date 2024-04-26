@@ -3053,3 +3053,23 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 吃了一堆瓜，感觉金是主犯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ku2154513  
+##### 1027#       发表于 2024-4-26 22:54
+
+这地图收集也太折磨了，好多小道找都找不到，一堆收集品雷达扫出来就是找不到路
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Mr.Hopp  
+##### 1028#       发表于 2024-4-26 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731416&amp;ptid=1978008" target="_blank">loliwansui87 发表于 2024-4-26 22:37</a>
+
+那图只是红迪的总结，原发布会是视频，有媒体问老金他能否回滚回游戏的初始版本，老金回答他认为的出厂版 ...</blockquote>
+1.02 版本增加了N+模式等等，怎么看都是比较完整的版本。。应该问题能不能出个补丁取消和谐，或者出个开关，想玩和谐版自己按开关。。
+

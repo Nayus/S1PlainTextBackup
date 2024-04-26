@@ -1564,3 +1564,14 @@ https://streamable.com/tbvmoy
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  n5965315  
+##### 889#       发表于 2024-4-26 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64713307&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-25 12:53</a>
+
+看到死了可以原地复活一次，不知道是天赋还是简单模式自带的</blockquote>
+需要到商人那里购买自动复活道具 好像一千多一个
+

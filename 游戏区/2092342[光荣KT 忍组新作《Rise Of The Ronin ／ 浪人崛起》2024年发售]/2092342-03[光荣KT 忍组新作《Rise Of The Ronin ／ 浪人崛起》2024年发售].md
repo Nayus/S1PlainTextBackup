@@ -1807,3 +1807,14 @@ skip it!!<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" r
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Booorunestud  
+##### 3145#       发表于 2024-4-26 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721196&amp;ptid=2092342" target="_blank">isa2456 发表于 2024-4-26 06:43</a>
+
+银币太少了，几百个优先买了技能书就全没了</blockquote>
+不用银币买，行商的好感道具是卖铜钱的
+

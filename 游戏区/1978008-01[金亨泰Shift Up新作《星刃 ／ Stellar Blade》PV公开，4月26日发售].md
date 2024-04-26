@@ -3001,3 +3001,55 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 序章之后就会到主城，这里已经可以买到相当数量，并且质量很好的衣服图纸了（豪华版的衣服感觉挺一般的~
 
+
+*****
+
+####  Mr.Hopp  
+##### 1024#       发表于 2024-4-26 22:37
+
+要不再送几套服装作为补偿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loliwansui87  
+##### 1025#       发表于 2024-4-26 22:37
+
+ 本帖最后由 loliwansui87 于 2024-4-26 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731217&amp;ptid=1978008" target="_blank">icylight 发表于 2024-4-26 22:17</a>
+
+这意思难道不是我们会跟索尼那边讨论，给出一个让用户满意的答案吗？
+
+之前的二周目存档问题，也是马上就 ...</blockquote>
+那图只是红迪的总结，原发布会是视频，有媒体问老金他能否回滚回游戏的初始版本，老金回答他认为的出厂版本是1.02，后面就是补充些官话而已，说明他是知情并和sony沟通过同意主动修改的，至少是从犯，除非是韩转英语出了偏差，不看好有回旋的余地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/26/223811htx9m5mng235xdx5.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (60.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:38 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/223815i0ywtwdv4iqvbqnr.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (58.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:38 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/223820uyqy005n5qyl0nyz.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (57.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:38 上传
+
+*****
+
+####  Mr.Hopp  
+##### 1026#       发表于 2024-4-26 22:41
+
+吃了一堆瓜，感觉金是主犯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

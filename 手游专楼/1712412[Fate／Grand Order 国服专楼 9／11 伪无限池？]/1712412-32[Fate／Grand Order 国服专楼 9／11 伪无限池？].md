@@ -364,3 +364,13 @@
 
 十二护符二宝，想冲三宝还是留着给提妈一宝
 
+
+*****
+
+####  一个陆仁贾  
+##### 46337#       发表于 2024-4-26 22:37
+
+卡池里的那个杀阶10宝了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

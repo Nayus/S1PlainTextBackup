@@ -413,3 +413,11 @@
 
 十连二宝四宝了，尼禄你是懂我的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sleipnirω  
+##### 46342#       发表于 2024-4-26 23:47
+
+锁卡锁麻了，双黄之后还剩一千石，想追个三宝，结果出的全是四星上头了现在什么也不剩
+

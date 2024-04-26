@@ -3194,3 +3194,11 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  jacket  
+##### 1041#       发表于 2024-4-26 23:40
+
+只有一个档不敢耍，老实选了答应
+

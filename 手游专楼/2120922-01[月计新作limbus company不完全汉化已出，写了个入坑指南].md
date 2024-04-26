@@ -249,3 +249,21 @@
 
 另外岚镜也要开了，这周是最后的大湖镜了。
 
+
+*****
+
+####  salic428  
+##### 656#       发表于 2024-4-26 22:14
+
+冷知识，目前刚好有100个人格，然后菲利普是第101个：
+
+<img src="https://img.saraba1st.com/forum/202404/26/221419e52wh5d2w20w1cwd.png" referrerpolicy="no-referrer">
+
+<strong>Just noticed something....png</strong> (248.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:14 上传
+
+我更好奇星光会不会部分继承/转化（做梦）
+

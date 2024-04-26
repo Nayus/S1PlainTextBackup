@@ -2878,3 +2878,61 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 信了发售前的鬼话买了下载版。现在觉得膈应得很又下单了实体。。下载版还退不了。怎么感觉被套路了[ ...</blockquote>
 你快问问楼上1011的哥们儿是咋退款的吧，不能便宜了shit up和翔尼
 
+
+*****
+
+####  icylight  
+##### 1015#       发表于 2024-4-26 22:05
+
+剑星和谐问题，金亨泰的最新回应
+
+金的回答：
+
+我知道这个问题
+
+我试图展示的最终版本是第一天补丁版本。
+
+无论如何，这都不是一个能让用户信服的答案。
+
+内部讨论中。
+
+原网站帖子: [https://gall.dcinside.com/m/stellarblade/8588](https://gall.dcinside.com/m/stellarblade/8588)
+
+*****
+
+####  huoguoshan23  
+##### 1016#       发表于 2024-4-26 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729984&amp;ptid=1978008" target="_blank">隔壁老黄 发表于 2024-4-26 20:27</a>
+
+刚下单日版，有没有cv表？</blockquote>
+[https://gamewith.jp/stellarblade/444545](https://gamewith.jp/stellarblade/444545)
+
+<img src="https://img.saraba1st.com/forum/202404/26/220551h7u113b4m8gbumeb.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240426220535.png</strong> (214.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:05 上传
+
+
+*****
+
+####  loliwansui87  
+##### 1017#       发表于 2024-4-26 22:10
+
+ 本帖最后由 loliwansui87 于 2024-4-26 22:13 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/26/220046mvzy8x8zzce9c4jw.jpg" referrerpolicy="no-referrer">
+
+<strong>s1.jpg</strong> (117.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 22:00 上传
+
+已经结束了，老金已经确定是站Sony这边的，不用期待回旋镖了，可以选择站队了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+我当然还是选择原谅她啦，师姐就算多穿了还是足够油腻，游戏也不拉，辣鸡脱裤魔又一丁点都不争气，代替不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

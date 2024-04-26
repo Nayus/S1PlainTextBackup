@@ -2905,3 +2905,82 @@ AOE化后伤害减半，你红卡暴击又怎么样</blockquote>
 
 不然不就白抽了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12261#       发表于 2024-4-26 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730539&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 21:13</a>
+
+没人说下这青子的强度么....完全不知道该怎么用啊
+
+变身要先100NP开第一次宝具...看起来就是个打平A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+另外结论已经出了 卡面寄中寄 强度寄中寄  某地已经在狼嚎了
+
+*****
+
+####  exiaexa  
+##### 12262#       发表于 2024-4-26 22:14
+
+ 本帖最后由 exiaexa 于 2024-4-26 22:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731066&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 22:02</a>
+
+、抽到卡不要想办法用用嘛
+
+不然不就白抽了</blockquote>
+不至于不至于
+
+我是真的被这个阵容给气笑了
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+咱都花过钱了，没必要再找罪受，还是美美的放仓库里等着手术室吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 12263#       发表于 2024-4-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730588&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 21:18</a>
+
+这么说吧，在新拐落地之前
+
+这就是个花里胡哨的暴击过图机器，没必要也不配开第二宝具</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏直到关服前真会出能锁某个角色卡的拐么
+
+能打暴击的角色多了去了.....真要出了爆炸的可就不是青子一个角色
+
+*****
+
+####  alucardcz  
+##### 12264#       发表于 2024-4-26 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731183&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 22:14</a>
+
+这游戏直到关服前真会出能锁某个角色卡的拐么
+
+能打暴击的角色多了去了.....真要出了爆炸的可就不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起我水bb？ 但锁了又有什么用
+
+*****
+
+####  森兰丸  
+##### 12265#       发表于 2024-4-26 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">蚌埠住了....虽然知道蘑菇笔下的男主没有正常人但草十郎怎么直接就成了B阶了
+
+*****
+
+####  琴酒  
+##### 12266#       发表于 2024-4-26 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731029&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 21:58</a>
+
+研究试了下，80级双狐buff只能打10万多
+
+10万以下敌人还是能秒的</blockquote>
+求id 求个好友 借bb爽爽
+

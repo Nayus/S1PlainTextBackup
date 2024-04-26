@@ -230,3 +230,61 @@
 
 不抽汪姐了 等魔夜双5星池钱包要大破了
 
+
+*****
+
+####  溯夜  
+##### 46323#       发表于 2024-4-26 18:56
+
+330石寄了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  fengzijiang  
+##### 46324#       发表于 2024-4-26 18:58
+
+我280抽出的，什么sb游戏<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+算了下存货，不太想抽cba了，要是抽rba的话可以不要cba吗？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  khxooo  
+##### 46325#       发表于 2024-4-26 19:00
+
+大号240石头2宝兽尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 46326#       发表于 2024-4-26 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728994&amp;ptid=1712412" target="_blank">fengzijiang 发表于 2024-4-26 18:58</a>
+我280抽出的，什么sb游戏不对，应该是298左右，更是sb游戏了
+
+算了下存货，不太想抽cba了，要 ...</blockquote>
+有RBA不需要CBA了，省点石头抽后面的吧。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fengzijiang| + 2|感谢|
+
+查看全部评分
+
+*****
+
+####  sandro  
+##### 46327#       发表于 2024-4-26 19:04
+
+这波抽完坐等泳装了
+

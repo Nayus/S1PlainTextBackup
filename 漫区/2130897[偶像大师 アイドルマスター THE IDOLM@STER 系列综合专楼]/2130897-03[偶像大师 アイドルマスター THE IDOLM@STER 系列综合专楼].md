@@ -4513,3 +4513,11 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 明明是姐妹，发色瞳色却完全不一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 妹妹大概也是个拥抱狂魔吧，之前的宣传图里还有她抱其他偶像的景象
 
+
+*****
+
+####  Genkishi  
+##### 3387#       发表于 2024-4-26 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么今天简介用的图是之前有的，我还以为会有新的呢
+

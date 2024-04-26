@@ -1282,3 +1282,11 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)
 
 测试了，声音没有问题。
 
+
+*****
+
+####  zonker  
+##### 110#       发表于 2024-4-26 18:57
+
+目前购物车里有黑武士3搭配支架，盖世小鸡的卡扣式手柄，八位堂的迷你小手柄。脑补了一下，舒适程度和工位摸鱼扎眼程度成正比，选择困难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

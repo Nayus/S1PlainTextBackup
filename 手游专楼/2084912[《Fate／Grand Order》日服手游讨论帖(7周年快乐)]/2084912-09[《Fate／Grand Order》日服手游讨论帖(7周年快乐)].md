@@ -2015,3 +2015,27 @@ d2e1eceegy1hp4f8lnk5cj223v16o1ky.jpg
 要想压过库小姐和暗兔子两座大山太难了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xy1041  
+##### 12183#       发表于 2024-4-26 18:55
+
+这苏帕青子是所长攻击方式啊，红卡ex全体攻击，这红爆普攻可以当光炮用了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  壳壳牛  
+##### 12184#       发表于 2024-4-26 18:57
+
+好像能绑账号了，可以告别引继码了？
+
+*****
+
+####  yangun22  
+##### 12185#       发表于 2024-4-26 18:57
+
+有珠要等到5.1，痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

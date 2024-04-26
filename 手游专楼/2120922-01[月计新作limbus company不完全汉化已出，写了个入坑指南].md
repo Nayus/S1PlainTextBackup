@@ -145,3 +145,107 @@
 
 不亏是自由的月计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 655#       发表于 2024-4-26 18:58
+
+第三个瓦夜来了，菲利普单人格双形态，可能是理智低到一定程度会变身？感觉普通形态正硬币、神备负硬币比较合适：
+
+<img src="https://img.saraba1st.com/forum/202404/26/185425biiy8o7ypcq1py6o.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185125.jpg</strong> (216.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185425n97pahpzxxmoffap.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185135.jpg</strong> (219.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185426iy7xjuoq5zxj1o61.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185152.jpg</strong> (173.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185426zfjwewn72y532efe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185204.jpg</strong> (224.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+（小怪打得是妖精女王衍生物，这次的沙包）
+
+两个ego，妖精女王玛丽和红舞鞋罗佳，都挺好看的，应该送一个抽一个吧：
+
+<img src="https://img.saraba1st.com/forum/202404/26/185427wyosoy8ox7ek7cxs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185221.jpg</strong> (231.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185427pwfegkhll84ggpoz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185239.jpg</strong> (208.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185428mou7fz1o1q21fq1w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185230.jpg</strong> (255.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185428vu5uy3r80bsirycc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185247.jpg</strong> (204.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185429w4d3nmu2tz4welk2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185303.jpg</strong> (163.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/185430rhcs8030gc08qm8c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185256.jpg</strong> (231.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+播报员是毒舌yesod和臼齿三人组，感觉两者的顺序都有迹可循吧...：
+
+<img src="https://img.saraba1st.com/forum/202404/26/185430u9zyaoak6ldc20kc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_185214.jpg</strong> (161.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:54 上传
+
+另外岚镜也要开了，这周是最后的大湖镜了。
+

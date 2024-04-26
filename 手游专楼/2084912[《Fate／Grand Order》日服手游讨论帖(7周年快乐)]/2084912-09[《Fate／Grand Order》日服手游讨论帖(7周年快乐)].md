@@ -3281,3 +3281,11 @@ BB这 ...</blockquote>
 
 青子这卡就算做的破坏平衡又怎么样，fgo还要搞强度平衡这种东西的吗
 
+
+*****
+
+####  astrayl  
+##### 12292#       发表于 2024-4-27 02:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

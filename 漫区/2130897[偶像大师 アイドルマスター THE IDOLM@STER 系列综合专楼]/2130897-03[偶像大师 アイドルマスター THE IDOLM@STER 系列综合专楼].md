@@ -4502,3 +4502,14 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  霓虹灯鱼  
+##### 3386#       发表于 2024-4-26 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64717640&amp;ptid=2130897" target="_blank">lovekoishi 发表于 2024-4-25 19:15</a>
+快进到爆杀姐姐</blockquote>
+明明是姐妹，发色瞳色却完全不一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+妹妹大概也是个拥抱狂魔吧，之前的宣传图里还有她抱其他偶像的景象
+

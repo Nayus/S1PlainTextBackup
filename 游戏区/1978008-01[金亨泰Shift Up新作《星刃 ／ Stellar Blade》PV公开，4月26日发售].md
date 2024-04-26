@@ -2184,3 +2184,39 @@ PC版大概率上来就是和谐过的
 
 总觉得打起来比demo顺畅了，是我变强了还是正式版调整过
 
+
+*****
+
+####  陈词与芍药  
+##### 948#       发表于 2024-4-26 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726106&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-26 02:58</a>
+总觉得打起来比demo顺畅了，是我变强了还是正式版调整过</blockquote>
+首日补丁的改善内容之一，而且技能加点也有更容易闪避，更容易完美格挡之类的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Mr.Hopp  
+##### 949#       发表于 2024-4-26 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726136&amp;ptid=1978008" target="_blank">陈词与芍药 发表于 2024-4-26 15:00</a>
+
+首日补丁的改善内容之一，而且技能加点也有更容易闪避，更容易完美格挡之类的
+
+—— 来自 S1Fun ...</blockquote>
+能加点也有更容易闪避，更容易完美格挡之类的
+
+这些试玩就有。。BOSS挑战模式都给你点上了
+
+*****
+
+####  宛若青空  
+##### 950#       发表于 2024-4-26 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726038&amp;ptid=1978008" target="_blank">bletilla 发表于 2024-4-26 14:53</a>
+真要是和谐的话需要有一个统一标准是不是，也不是没有光腿的服装，还有很多侧绑带的，露东西南半 ...</blockquote>
+所以确实搞不懂，明明还有其他暴露的服装在，就针对那几件是为什么，只能说服自己是设计变更了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

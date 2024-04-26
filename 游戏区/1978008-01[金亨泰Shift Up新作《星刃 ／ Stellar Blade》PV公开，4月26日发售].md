@@ -3269,3 +3269,20 @@ eve的声优还是有一点名气的，游戏还配过绯红结系女主
 
 反正我是不退款了 能做到这个尺度，再说游戏素质本身还不错
 
+
+*****
+
+####  rainsheep  
+##### 1049#       发表于 2024-4-27 00:36
+
+这解锁二段跳的任务也太莫名其妙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  jacket  
+##### 1050#       发表于 2024-4-27 00:38
+
+看女主打完boss捡起核心顺手塞屁股后面收起来，我就想起之前那根巨大的超能电池
+

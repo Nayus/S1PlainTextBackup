@@ -1456,3 +1456,11 @@ LO终归还是要死了~~白嫖玩家多少有点不舍~<img src="https://static
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">今年基本上是半弃坑状态了，看到LO要倒还是挺难受的
 
+
+*****
+
+####  lonegone  
+##### 143#       发表于 2024-4-26 08:46
+
+皮肤全入的日服玩家表示很淦
+

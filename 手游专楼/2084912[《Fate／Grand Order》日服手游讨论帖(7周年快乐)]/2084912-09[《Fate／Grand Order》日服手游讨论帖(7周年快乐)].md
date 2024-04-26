@@ -2564,3 +2564,28 @@ E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">主要是没有以前立绘好看啊，不应该啊
 
+
+*****
+
+####  都谷捻柏  
+##### 12234#       发表于 2024-4-26 20:26
+
+青子强度给的好低，心塞
+
+*****
+
+####  xunit  
+##### 12235#       发表于 2024-4-26 20:26
+
+斯卡哈后小山好看都是摸鱼图，比如毛衣斯卡哈，其他卡面不是一直被人吐槽，比如剑武藏的脖子和CBA的脖子……
+
+*****
+
+####  lhwang11  
+##### 12236#       发表于 2024-4-26 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729880&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-26 20:19</a>
+
+期待太高  现在这样能不嚎吗（</blockquote>
+脸抄点魔夜cg估计也没什么人有意见<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

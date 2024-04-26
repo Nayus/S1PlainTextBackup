@@ -4231,3 +4231,31 @@ n9其实机器人比虫子好打
 
 这个游戏有公布过销量吗？steam销量榜称霸了几周，但是从来没公布过销量
 
+
+*****
+
+####  风萧飒  
+##### 3356#       发表于 2024-4-26 20:28
+
+估计差不多一千万了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  风萧飒  
+##### 3357#       发表于 2024-4-26 20:34
+
+空爆火箭好像已经有了
+
+<img src="https://img.saraba1st.com/forum/202404/26/203402ooz3qeoexjtbcoqm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240426_203339.jpg</strong> (879.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 20:34 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

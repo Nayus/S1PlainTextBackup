@@ -8486,3 +8486,13 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 按理说没理由接口不一样……种系背包通用度还挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liy30dlys  
+##### 688#       发表于 2024-4-26 20:27
+
+看了一遍，这次没有沙漠之虎戏份有花絮讲过吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

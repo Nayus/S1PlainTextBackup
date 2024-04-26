@@ -2538,3 +2538,42 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 看戏不能嫌事儿大（哈哈哈
 
+
+*****
+
+####  宛若青空  
+##### 980#       发表于 2024-4-26 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727362&amp;ptid=1978008" target="_blank">彩虹肥宅 发表于 2024-4-26 16:43</a>
+有无去索尼社交账号下面团建的，说不定能给个开关
+
+—— 来自 OPPO PGJM10, Android 14上的 S1Next- ...</blockquote>
+游戏官推下倒是一堆人在抗议了
+
+*****
+
+####  Leona_Akari  
+##### 981#       发表于 2024-4-26 17:08
+
+这游戏自动和提示都有点问题吧
+我开了关键操作提示，他那个L1和圈的提示大概5次出一次吧
+
+*****
+
+####  卡博雷z  
+##### 982#       发表于 2024-4-26 17:10
+
+ 本帖最后由 卡博雷z 于 2024-4-26 17:14 编辑 
+
+拿到盘变量控制了一下，断网插盘就是1.000，开着网就是1.002。实体盘记得先断网
+<img src="https://p.sda1.dev/17/9ca89baa181214c5da46cc3908d02e41/剑星.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/5f10f909bb620b91b533e6791d6283ce/IMG20240426175844.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/2db94ed333af516cfe9c87ad93873d67/IMG20240426180339.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zoomegg  
+##### 983#       发表于 2024-4-26 17:13
+
+所以想玩日语语音中文字幕无和谐的是只能买日版尸体盘了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

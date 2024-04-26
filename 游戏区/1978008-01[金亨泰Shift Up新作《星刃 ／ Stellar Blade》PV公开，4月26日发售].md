@@ -2290,3 +2290,54 @@ PC版大概率上来就是和谐过的
 
 我记得兔女郎和旗袍很前期就能拿到的，当时还在想着大冤种豪华版送的都没机会穿了。结果这还是已经和谐过的
 
+
+*****
+
+####  nagitoY  
+##### 957#       发表于 2024-4-26 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">怎么玩个单机游戏也要被和谐
+
+*****
+
+####  naclken.  
+##### 958#       发表于 2024-4-26 15:30
+
+是否可以形容为
+
+韩国出品的独占大作尺度不如国产二流手游？
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你不会没有吧  
+##### 959#       发表于 2024-4-26 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算虚假宣传吧，快进到开放退款通道
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  patema  
+##### 960#       发表于 2024-4-26 15:33
+
+ 本帖最后由 patema 于 2024-4-26 15:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726443&amp;ptid=1978008" target="_blank">naclken. 发表于 2024-4-26 15:30</a>
+
+是否可以形容为
+
+韩国出品的独占大作尺度不如国产二流手游？</blockquote>
+sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不如国游了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">完全的健全宝宝游戏
+
+屎黄论坛手综仙人直接感叹年初还称之为大韩双雄这么没过几个月全投降了
+
+
+*****
+
+####  ShiKi847  
+##### 961#       发表于 2024-4-26 15:35
+
+日亚就是快，已经到货了，下班直接冲回去玩
+

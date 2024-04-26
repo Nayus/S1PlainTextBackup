@@ -4521,3 +4521,24 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么今天简介用的图是之前有的，我还以为会有新的呢
 
+
+*****
+
+####  screeper  
+##### 3388#       发表于 2024-4-26 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724582&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-26 12:37</a>
+
+问了一下群友，是时轴不够用了
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+北宇治的闪字幕仓库在[https://github.com/Kitauji-Sub/subs-imas-shinycolors](https://github.com/Kitauji-Sub/subs-imas-shinycolors)
+
+虽然当天就出了轴（ep3打错成ep4了）
+<img src="https://p.sda1.dev/17/241c77223aa92b11ed8658ba96ce7053/PixPin_2024-04-26_19-42-00.jpg" referrerpolicy="no-referrer">
+
+但是
+<img src="https://p.sda1.dev/17/fa8c2cb4918ab9bcb28f15d32e90de3e/PixPin_2024-04-26_19-42-09.jpg" referrerpolicy="no-referrer">
+
+man, what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

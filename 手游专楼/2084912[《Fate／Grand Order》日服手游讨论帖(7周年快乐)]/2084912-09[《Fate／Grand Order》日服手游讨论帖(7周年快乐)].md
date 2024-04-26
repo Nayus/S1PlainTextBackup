@@ -2352,3 +2352,35 @@ E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么大佬们都又欧又有钱 
 
+
+*****
+
+####  白金口袋  
+##### 12214#       发表于 2024-4-26 19:38
+
+570石头+27呼符1宝，有珠可千万别这么对我<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 12215#       发表于 2024-4-26 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729269&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 19:28</a>
+
+研究了下草十郎，强度至少暴打两个青子吧
+
+你只需要点一下暗狐狸的1，就可以获得一个
+
+无敌贯通+防御贯通+防 ...</blockquote>
+草十郎没自充，基本上就是一次性自爆然后换后排辅助上场，一技能不点剩结晶了。
+
+如果一技能给个三回合5次战续也好啊，可以用二技能打暴击..不过比起高贵的单体自爆，这点毒不算什么。
+
+*****
+
+####  angelooo  
+##### 12216#       发表于 2024-4-26 19:43
+
+草食狼这满破瞎了，青子一破好壮，其他勉强还行，等有珠了
+

@@ -2936,3 +2936,44 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 我当然还是选择原谅她啦，师姐就算多穿了还是足够油腻，游戏也不拉，辣鸡脱裤魔又一丁点都不争气，代替不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icylight  
+##### 1018#       发表于 2024-4-26 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731138&amp;ptid=1978008" target="_blank">loliwansui87 发表于 2024-4-26 22:10</a>
+
+已经结束了，老金已经确定是站Sony这边的，不用期待回旋镖了，可以选择站队了
+
+我当然还是选择原 ...</blockquote>
+这意思难道不是我们会跟索尼那边讨论，给出一个让用户满意的答案吗？
+
+之前的二周目存档问题，也是马上就解决了，至少说明韩国那边还是愿意听取用户建议的...
+
+*****
+
+####  宛若青空  
+##### 1019#       发表于 2024-4-26 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731099&amp;ptid=1978008" target="_blank">icylight 发表于 2024-4-26 22:05</a>
+剑星和谐问题，金亨泰的最新回应</blockquote>
+确实不能让人信服，就拿假日兔子那套来说，N+里能换别的颜色，但是那个颜色只有本身的服装变了，多加进去的布料还是原版的颜色，这难道不能说明什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxassix  
+##### 1020#       发表于 2024-4-26 22:19
+
+ 本帖最后由 roxassix 于 2024-4-26 22:21 编辑 
+
+管他能不能退，先跟客服走流程了。人太多line要排到明天才能给回复<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  今天不守尸  
+##### 1021#       发表于 2024-4-26 22:22
+
+投降过企鹅，自然也能投降索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

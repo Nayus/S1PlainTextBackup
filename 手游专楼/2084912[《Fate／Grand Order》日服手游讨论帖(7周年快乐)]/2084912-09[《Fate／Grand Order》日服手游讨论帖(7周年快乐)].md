@@ -2173,3 +2173,105 @@ d2e1eceegy1hp4f8lnk5cj223v16o1ky.jpg
 再抽我送你一单
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 12198#       发表于 2024-4-26 19:16
+
+一发十连出了，然后一个活动礼装都没有，这还继续抽吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  任天索尼子  
+##### 12199#       发表于 2024-4-26 19:16
+
+两单0五星<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">等福袋了
+
+*****
+
+####  qixinno2  
+##### 12200#       发表于 2024-4-26 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毛都没出 滚了
+
+
+*****
+
+####  alucardcz  
+##### 12201#       发表于 2024-4-26 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729163&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-4-26 19:16</a>
+
+一发十连出了，然后一个活动礼装都没有，这还继续抽吗
+
+—— 来自 OnePlus NE2210, Android 14上的  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 什么时候变成欧皇的
+
+*****
+
+####  exiaexa  
+##### 12202#       发表于 2024-4-26 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729163&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-4-26 19:16</a>
+
+一发十连出了，然后一个活动礼装都没有，这还继续抽吗
+
+—— 来自 OnePlus NE2210, Android 14上的  ...</blockquote>
+来自母猪的建议
+
+还是等下个池子吧
+
+
+*****
+
+####  Jamaisvu  
+##### 12203#       发表于 2024-4-26 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729146&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-4-26 19:15</a>
+
+没看过魔夜...这联动卡池怎么连1个4星都没</blockquote>
+情怀太重了，除了普通人男主谁四星都不合适...
+
+*****
+
+####  eilot  
+##### 12204#       发表于 2024-4-26 19:22
+
+ 本帖最后由 eilot 于 2024-4-26 19:23 编辑 
+
+120石
+
+1張羅摩(寶4)、1張迦爾納(寶2)，1張阿斯特賴亞(寶2)
+
+完全錯棚...
+
+*****
+
+####  yyzcacxg  
+##### 12205#       发表于 2024-4-26 19:24
+
+3发10连开个图鉴，感觉...不如等泳装
+
+*****
+
+####  cenhr  
+##### 12206#       发表于 2024-4-26 19:25
+
+三个人都丑爆了
+
+*****
+
+####  里村紅葉  
+##### 12207#       发表于 2024-4-26 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729187&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-4-26 19:19</a>
+来自母猪的建议
+
+还是等下个池子吧</blockquote>
+很好的建议<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去抽友情池了
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

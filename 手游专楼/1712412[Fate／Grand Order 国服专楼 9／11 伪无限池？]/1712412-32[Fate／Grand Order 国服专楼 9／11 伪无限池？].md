@@ -303,3 +303,15 @@
 
 200石左右，最后一个十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 46330#       发表于 2024-4-26 19:19
+
+提妈五单才出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+兽尼两单还没影，一开始上来冒个彩圈转过来是福利多…<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+半年摸鱼状态，最近心态有点崩
+

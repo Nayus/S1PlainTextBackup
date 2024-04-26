@@ -332,3 +332,14 @@ dm ...</blockquote>
 
 欧美宅宅救一下啊！断供销卡！禁黄不用！必须狠狠教育一波卡商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  caupollen  
+##### 114#         楼主| 发表于 2024-4-26 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728478&amp;ptid=2178442" target="_blank">Orianna 发表于 2024-4-26 18:12</a>
+
+欧美宅宅救一下啊！断供销卡！禁黄不用！必须狠狠教育一波卡商</blockquote>
+欧美宅宅已经被变性黑人南通肥猪人干的满地跑了，可能真顾不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

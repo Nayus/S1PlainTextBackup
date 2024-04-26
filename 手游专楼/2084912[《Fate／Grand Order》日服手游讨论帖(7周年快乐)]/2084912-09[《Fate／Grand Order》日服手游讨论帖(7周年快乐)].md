@@ -1913,3 +1913,105 @@ cp吗
 
 怎么脸都感觉怪怪的 是小山画的吗
 
+
+*****
+
+####  Jamaisvu  
+##### 12173#       发表于 2024-4-26 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728833&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 18:42</a>
+
+狂草十郎
+
+cp吗</blockquote>
+好像一直有CP相克的说法，比如枪布姐剑西哥，法国三人组什么的...
+
+话说我一直以为草十郎是蘑菇自己带入，“草十”拼一下就是“茸”啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 12174#       发表于 2024-4-26 18:45
+
+麻了，开始介绍礼装了，感觉有珠不会出场了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+也好，如果四星出场我也不会太接受，等二期吧...
+
+礼装里没有有珠！！！还有出场的余地！还有余地！
+
+*****
+
+####  v22325  
+##### 12175#       发表于 2024-4-26 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728877&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-26 18:45</a>
+
+麻了，开始介绍礼装了，感觉有珠不会出场了
+
+也好，如果四星出场我也不会太接受，等二期吧...</blockquote>
+式姐右边那个是吧
+
+d2e1eceegy1hp4f8lnk5cj223v16o1ky.jpg
+(396.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-26 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202404/26/184757n1m1di76xiziho6s.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 12176#       发表于 2024-4-26 18:50
+
+有珠来了！！.
+
+*****
+
+####  onemoment  
+##### 12177#       发表于 2024-4-26 18:50
+
+术介有珠
+
+*****
+
+####  Jamaisvu  
+##### 12178#       发表于 2024-4-26 18:50
+
+宝具是月之油，在fate侧得到了补充吧。
+
+*****
+
+####  xiongxingyu  
+##### 12179#       发表于 2024-4-26 18:51
+
+卧槽，青子双模式，然后有珠怎么可能没有呢，难得的双5星联动啊，钱包要大破了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 12180#       发表于 2024-4-26 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没钱，没石，只能看缘了
+
+*****
+
+####  giddenslee  
+##### 12181#       发表于 2024-4-26 18:53
+
+小山现在这个眼间距真是有点接受不能……抽还是得抽
+
+*****
+
+####  exiaexa  
+##### 12182#       发表于 2024-4-26 18:54
+
+每个抽1
+
+剩下的看表现明年见
+
+要想压过库小姐和暗兔子两座大山太难了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14366,3 +14366,13 @@ shuzuku差了点但是也还不错吧
 之前还说隔壁d4dj有真女同，现在人家的新角色都开始溜冰了，wsd你真牛逼</blockquote>
 不愧是有27俱乐部的摇滚，rapper有类似的俱乐部吗？
 
+
+*****
+
+####  Licheus  
+##### 16063#       发表于 2024-4-26 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719003&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-25 21:43</a>
+赛博羊姐和赛博李子指日可待</blockquote>
+赛博tymm我不敢想啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2076,3 +2076,24 @@ PS5也有这个，之前滴嘟侠2更新新游戏+，草台程序忘记把控制
 
 还行吧，反正那几套衣服也不敢在家里光明正大的穿着玩
 
+
+*****
+
+####  塔奇克马  
+##### 939#       发表于 2024-4-26 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64725307&amp;ptid=1978008" target="_blank">CrayS1 发表于 2024-4-26 13:49</a>
+
+等pc版被</blockquote>
+就算未来上了PC版也是玩家自制的mod手工制作出出未和谐的服装了,原版数据应该是没了
+
+PC版大概率上来就是和谐过的
+
+
+*****
+
+####  卡博雷z  
+##### 940#       发表于 2024-4-26 14:32
+
+有拿实体试了的没，实体到了晚上回去才能玩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

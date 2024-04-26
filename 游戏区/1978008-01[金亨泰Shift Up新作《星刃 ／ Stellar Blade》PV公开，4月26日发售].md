@@ -2793,3 +2793,13 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 所以游民那个全服装视频已经是河蟹版的了？那对我来说还算能接受，对我xp的都保留了，不过宣传无河蟹搞这出是不太爽
 
+
+*****
+
+####  宛若青空  
+##### 1006#       发表于 2024-4-26 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728912&amp;ptid=1978008" target="_blank">caupollen 发表于 2024-4-26 18:50</a>
+就欧美区的和谐了吗</blockquote>
+全区，目前除了实体的1.0.0版之外其他全是和谐版
+

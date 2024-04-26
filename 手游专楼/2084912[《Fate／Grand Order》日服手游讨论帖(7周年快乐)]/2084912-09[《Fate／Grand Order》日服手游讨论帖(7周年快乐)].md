@@ -2384,3 +2384,54 @@ E3296E51-66A6-4DDE-9ACB-1899197D890A.jpeg
 
 草食狼这满破瞎了，青子一破好壮，其他勉强还行，等有珠了
 
+
+*****
+
+####  Jamaisvu  
+##### 12217#       发表于 2024-4-26 19:48
+
+我有个朋友说青子三破像一只长着须子和羽翅的蓝色大蟋蟀，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 12218#       发表于 2024-4-26 19:48
+
+哈哈哈哈跟你们说个笑话，我把青子立绘给我一个没玩过魔夜的朋友看，他说这个师匠画得还可以23333
+
+
+*****
+
+####  Jamaisvu  
+##### 12219#       发表于 2024-4-26 19:50
+
+150抽0五星，对青子的热情燃烧殆尽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">收手等有珠吧。
+
+（有珠不强或不好看的话再回来挑战一下第五法...）
+
+*****
+
+####  森兰丸  
+##### 12220#       发表于 2024-4-26 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">70多张护符和200多石头才出了1个青子....没看过魔夜就不继续抽多宝了
+
+留1张收藏够了
+
+*****
+
+####  exiaexa  
+##### 12221#       发表于 2024-4-26 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729409&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-26 19:42</a>
+
+草十郎没自充，基本上就是一次性自爆然后换后排辅助上场，一技能不点剩结晶了。
+
+如果一技能给个三回合5次 ...</blockquote>
+自充无所谓的
+
+他是红卡就赢在起跑线了，甚至OC效果还是贴心的加攻
+
+暗狐狸再就业计划
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4461,3 +4461,31 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 马上第四集要播了第三集还没出，第二集还是当天能出的速度。高山你坏事做尽啊。总不会是因为预料到了这种结果才卖给了巴哈吧（
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3383#       发表于 2024-4-26 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64722600&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-26 10:09</a>
+说起来，闪是不是把字幕组都干碎了
+
+马上第四集要播了第三集还没出，第二集还是当天能出的速度。高山 ...</blockquote>
+问了一下群友，是时轴不够用了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Anatoly  
+##### 3384#       发表于 2024-4-26 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64724582&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-26 12:37</a>
+问了一下群友，是时轴不够用了
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+两个组都不够了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽然喵萌确实也会几集一起发就是了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

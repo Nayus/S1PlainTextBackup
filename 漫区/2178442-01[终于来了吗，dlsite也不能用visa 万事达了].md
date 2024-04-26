@@ -258,3 +258,11 @@ getchu 屈服什么，本子没信用卡不会付钱了吗
 
 所以欧美标准以后只有大妈脸能过审了.
 
+
+*****
+
+####  唯一指定用户名  
+##### 108#       发表于 2024-4-26 10:31
+
+中行招财猫没有白办<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

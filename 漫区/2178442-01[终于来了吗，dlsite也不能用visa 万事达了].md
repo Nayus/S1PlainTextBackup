@@ -266,3 +266,17 @@ getchu 屈服什么，本子没信用卡不会付钱了吗
 
 中行招财猫没有白办<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哆哆鸡  
+##### 109#       发表于 2024-4-26 11:05
+
+怪不得有些老作品在getchu上搜不到了，
+
+问一下除了getchu以外，还有什么类似的作品信息比较全的网站吗，
+
+dmm和dl作品缺太多了，很多都没有（但是有时候反而会有一些独占作）
+
+vndb用起来太麻烦了，而且作品都是以英语显示
+

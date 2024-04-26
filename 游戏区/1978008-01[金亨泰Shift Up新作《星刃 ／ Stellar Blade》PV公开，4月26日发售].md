@@ -1595,3 +1595,22 @@ https://streamable.com/tbvmoy
   -- 来自 能手机投票的 S ...</blockquote>
 主城告示版旁边卖情报的npc，买东西升好感，两次好感升级都会解锁服装设计图
 
+
+*****
+
+####  tanghu  
+##### 892#       发表于 2024-4-26 10:57
+
+数字豪华版的特典衣服在哪儿领啊 我是日服买了 然后港服玩 没看到哪儿领特典
+
+
+*****
+
+####  Mr.Hopp  
+##### 893#       发表于 2024-4-26 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64723183&amp;ptid=1978008" target="_blank">tanghu 发表于 2024-4-26 10:57</a>
+
+数字豪华版的特典衣服在哪儿领啊 我是日服买了 然后港服玩 没看到哪儿领特典 ...</blockquote>
+跟着流程，要到城市里才能领取。
+

@@ -2427,3 +2427,44 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 —— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  火的意志  
+##### 969#       发表于 2024-4-26 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726857&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-26 16:05</a>
+实体版确定是1.0的版本</blockquote>
+等下，所以真有和谐？这是为啥啊
+还好我定的实体版
+
+*****
+
+####  洛克萨斯  
+##### 970#       发表于 2024-4-26 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727141&amp;ptid=1978008" target="_blank">火的意志 发表于 2024-4-26 16:26</a>
+
+等下，所以真有和谐？这是为啥啊
+
+还好我定的实体版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼的问题吧，虽然加块布不是啥大问题，但就是很膈应
+
+*****
+
+####  天王寺綯  
+##### 971#       发表于 2024-4-26 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726892&amp;ptid=1978008" target="_blank">两个路人 发表于 2024-4-26 16:08</a>
+哎呀，这么一想，还是脱裤魔熟练。奶排蒸汽上直接锁在亚区，白皮都要翻过来看瑟瑟  
+
+那么这个光速 ...</blockquote>
+锁亚区不是也和谐了触摸么
+
+*****
+
+####  Mr.Hopp  
+##### 972#       发表于 2024-4-26 16:27
+
+等我通关就写信退款。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

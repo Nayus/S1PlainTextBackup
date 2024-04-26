@@ -8473,3 +8473,16 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 在你这宣布的剧场版计划，结果你这看不到还在这放剧场版的宣传内容
 
+
+*****
+
+####  pokemon最爱  
+##### 687#       发表于 2024-4-26 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719164&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-4-25 22:03</a>
+
+接口不一样吧
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+按理说没理由接口不一样……种系背包通用度还挺高的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

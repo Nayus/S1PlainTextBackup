@@ -30,3 +30,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6年了
 
+
+*****
+
+####  三千珈蓝  
+##### 4317#       发表于 2024-4-26 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64721956&amp;ptid=1857369" target="_blank">heseran 发表于 2024-4-26 09:13</a>
+
+6年了</blockquote>
+这两年的比赛cz这把枪也很少有人起了吧
+
+t 起tec9 ct P2000
+

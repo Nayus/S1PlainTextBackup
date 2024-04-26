@@ -2673,3 +2673,27 @@ sp是这样的，他家手游nikke最近也是尺度缩卵还上ai图已经不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Rainwedell  
+##### 995#       发表于 2024-4-26 17:48
+
+所以说和谐了几套，就两套吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  llliu  
+##### 996#       发表于 2024-4-26 17:50
+
+和谐的还都是游戏前期就能获得的，明明还有不少胖次都随便看的，真的很迷惑
+
+*****
+
+####  宛若青空  
+##### 997#       发表于 2024-4-26 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728185&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-4-26 17:48</a>
+所以说和谐了几套，就两套吗？</blockquote>
+目前能确定的是4套，然后还有疑似两套被和谐的（因为服装图标和服装本身对不上
+

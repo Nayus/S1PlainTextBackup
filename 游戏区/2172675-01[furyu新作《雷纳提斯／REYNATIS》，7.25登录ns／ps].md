@@ -578,3 +578,19 @@ FURYU原创动作RPG《雷纳提斯》（REYNATIS）第二弹宣传片公开，�
 角色设计：鏑木康隆
 制作/监督：TAKUMI（FURYU Company）http://t.cn/A6TBxnOv ​​​
 
+
+*****
+
+####  Booorunestud  
+##### 59#       发表于 2024-4-26 17:45
+
+这画面也太
+
+
+*****
+
+####  黑酒杯  
+##### 60#       发表于 2024-4-26 17:52
+
+妈耶我怎么记得第一个pv卖相没这么差吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

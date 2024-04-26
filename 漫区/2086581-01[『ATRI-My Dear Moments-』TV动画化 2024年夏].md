@@ -583,3 +583,23 @@ ED：22/7
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Libartas  
+##### 55#       发表于 2024-4-26 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64727993&amp;ptid=2086581" target="_blank">cqc1021 发表于 2024-4-26 17:33</a>
+OP：乃木坂46
+ED：22/7
+没想到姨夫的ONE SONY战略居然在GAL改实现了</blockquote>
+不是one akimoto？
+
+
+*****
+
+####  Libartas  
+##### 56#       发表于 2024-4-26 17:51
+
+<img src="https://p.sda1.dev/17/5619cf939f027f310e5bb88042a085f9/CMP_20240426174900333.jpg" referrerpolicy="no-referrer">
+

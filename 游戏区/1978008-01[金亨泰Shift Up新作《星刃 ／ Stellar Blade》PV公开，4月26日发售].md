@@ -1982,3 +1982,20 @@ https://streamable.com/tbvmoy
 
 看老外的结论就是，实体版是未和谐版本。评测版打新游戏+的补丁前就已经和谐了。
 
+
+*****
+
+####  寂长无星夜  
+##### 928#       发表于 2024-4-26 13:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">我看媒体展示的衣服也够色了，还行吧
+
+*****
+
+####  mcq_2  
+##### 929#       发表于 2024-4-26 13:26
+
+<blockquote>HATENA 发表于 2024-4-26 12:34
+实体版要涨价了把</blockquote>
+pc版呢
+

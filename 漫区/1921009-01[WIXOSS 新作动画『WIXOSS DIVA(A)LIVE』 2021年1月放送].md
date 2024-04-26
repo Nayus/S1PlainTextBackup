@@ -887,3 +887,11 @@ selectorシリーズの１０年後を描いた続編「selector loth WIXOSS」
 
 ©LRIG/Project WDA
 
+
+*****
+
+####  Goisdust  
+##### 80#       发表于 2024-4-27 04:12
+
+天啊竟然还有续篇吗
+

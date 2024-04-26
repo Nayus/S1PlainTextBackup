@@ -3055,3 +3055,29 @@ BB这 ...</blockquote>
 求id 求个好友 借bb爽爽</blockquote>
 675422730
 
+
+*****
+
+####  森兰丸  
+##### 12273#       发表于 2024-4-26 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731304&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-26 22:23</a>
+
+还有啊，2张红卡，其中第一张变身会变蓝卡
+
+就算锁卡也没用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正都是在做梦....大胆点....出个不仅能锁卡还能直接把卡色给改成5红或者5蓝5绿的拐
+
+
+*****
+
+####  森兰丸  
+##### 12274#       发表于 2024-4-26 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731271&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-26 22:21</a>
+
+萌新刚刚all in了最后的15石 无事发生！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新的石头去哪了萌新自己最清楚不过了
+
+我这次距离上次最新抽到的卡还是裁上衫
+

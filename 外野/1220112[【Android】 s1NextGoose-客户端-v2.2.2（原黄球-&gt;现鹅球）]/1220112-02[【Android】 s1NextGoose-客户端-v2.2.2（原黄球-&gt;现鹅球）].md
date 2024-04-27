@@ -299,3 +299,13 @@ GitHub有earlyaccess的release啊
 
 —— 来自 Xiaomi 2211133G, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  螺纹  
+##### 1540#       发表于 2024-4-28 00:12
+
+论坛一页改40对旧鹅球一页30影响不大，就是点击引用的跳转基本没法用，现在新鹅球解决了
+
+—— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

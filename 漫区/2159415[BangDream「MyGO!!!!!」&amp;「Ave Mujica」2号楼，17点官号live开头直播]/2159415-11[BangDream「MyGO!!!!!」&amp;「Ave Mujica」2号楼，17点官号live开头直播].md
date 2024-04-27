@@ -15418,3 +15418,26 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">當然是說明了祥祥在ave mujica過得非常開心呀
 
+
+*****
+
+####  nebulanoby  
+##### 16163#       发表于 2024-4-28 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743487&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-28 00:04</a>
+當然是說明了祥祥在ave mujica過得非常開心呀</blockquote>
+开心（指能爆米）
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 16164#       发表于 2024-4-28 00:13
+
+还是挺明显的，左页演出服都是手游画风，右页演出服是动画画风。
+
+这个立绘都出来了，基本上说明手游鸡相关的东西也跑完了，演出服都换上了。
+
+除非明年手游又又大活，不然真就纯粹就是硬压<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -4209,3 +4209,15 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 powerpyx这里是更新之前的？不是说首日更新加了通关后的自由模式么
 
+
+*****
+
+####  陈词与芍药  
+##### 1130#       发表于 2024-4-28 03:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744821&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-4-27 15:08</a>
+Free-Roam / Level Select after Story?: No, there’s no free-roam or mission replay after the story.  ...</blockquote>
+没加啊，读取通关存档只会回到最终战前，不能做其他的也不能更改选择玩其他的结局
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

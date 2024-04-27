@@ -278,3 +278,14 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  geeky_kappa  
+##### 1538#       发表于 2024-4-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64739600&amp;ptid=1220112" target="_blank">闻道沐心 发表于 2024-4-27 19:30</a>
+因为是QQ群发的灰度测试版本，正常根本不会公开发啊</blockquote>
+GitHub有earlyaccess的release啊
+现在这样主要是fork百花齐放，不能有效整合人力，路人也没法关注进展
+

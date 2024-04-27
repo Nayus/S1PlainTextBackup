@@ -4574,3 +4574,18 @@ man, what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 感觉从人设来说这表信号灯3v3就不太乐观，看访谈说如今的表红原本才是对手役，结果后来和里红换位了才成功上位当红c。让我想起了国产网文遮天里原本大纲主角叫王腾的来着，结果后面改成当主角的垫脚石反派了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 3390#       发表于 2024-4-27 22:22
+
+现在的咲季已经一股败者气息了，要是按原设让咲季去当劲敌不就显得她更杂鱼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把一定会输这四个字写在脸上了啊。
+
+*****
+
+####  Kreis  
+##### 3391#       发表于 2024-4-27 22:23
+
+表里信号灯都有明显对立设定。红这对是真假天才，黄这对是贫富差距。推测表蓝性格不讨人喜欢，里蓝是大人气设定。
+

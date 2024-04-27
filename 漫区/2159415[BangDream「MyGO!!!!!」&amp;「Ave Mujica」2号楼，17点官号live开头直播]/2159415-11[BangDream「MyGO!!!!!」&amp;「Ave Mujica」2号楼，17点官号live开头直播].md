@@ -15330,3 +15330,11 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 唉小小年纪就看红脸了，长大了要做什么我不敢想。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16153#       发表于 2024-4-27 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">初祥這個幼年圖沒有不撿的可能性，甚至感覺兩位是在對視臉紅了，哎呀這真的是
+

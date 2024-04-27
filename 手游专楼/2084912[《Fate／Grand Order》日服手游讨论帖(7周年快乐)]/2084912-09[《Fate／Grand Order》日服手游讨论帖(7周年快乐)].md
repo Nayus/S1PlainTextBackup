@@ -3806,3 +3806,14 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">想骂人了.....常态本用3+1这种配置来恶心玩家....正常能刷的本还要限时.....有必要这么恶心人吗
 
+
+*****
+
+####  cenhr  
+##### 12346#       发表于 2024-4-27 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64741067&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-4-27 21:02</a>
+
+魔法使不如暗杀拳，谁要是之前说魔夜联动青子强度会不如送的草十郎怕是要被挂起来婊 ...</blockquote>
+看成绩这种强度和美术都能大卖，只能说蘑菇他们吃死了玩家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

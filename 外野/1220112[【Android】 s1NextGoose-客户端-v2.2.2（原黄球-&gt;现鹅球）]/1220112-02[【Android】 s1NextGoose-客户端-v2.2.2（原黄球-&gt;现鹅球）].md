@@ -324,3 +324,13 @@ GitHub有earlyaccess的release啊
 
 —— 来自 HONOR MAA-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  hisousihou  
+##### 1542#       发表于 2024-4-28 07:08
+
+这些年开发的app里还是鹅球最好使。
+
+现在鹅球一共有几个版本？这个3.0.0 alpha是原作者开发的吗
+

@@ -3532,3 +3532,44 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 很期待这次的90++或者高难怎么抬青子这种废物卡[f:2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单出个6波7波怪 让你其他队伍刷不动
 
+
+*****
+
+####  alucardcz  
+##### 12317#       发表于 2024-4-27 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735510&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-27 11:21</a>
+
+才发现每日三次减半了，以后活动期是打算送果+减半还是逐渐变成不送果只减半呢 ...</blockquote>
+说实话 我看不懂日本人的脑回路  每日3把直接不消耗体力不就完了?
+
+*****
+
+####  alucardcz  
+##### 12318#       发表于 2024-4-27 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735906&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 12:03</a>
+
+说自己没欧过的狗萌新 你敢亮出今年的五星出货么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我那是没灵魂的虚假欧! 跟欧皇这种真正的欧是不一样的!
+
+
+*****
+
+####  格林卡罗尔  
+##### 12319#       发表于 2024-4-27 13:32
+
+90++可以捧有珠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然想这么说，但其实简单出个pretender本或者外星人本就行了
+
+*****
+
+####  qixinno2  
+##### 12320#       发表于 2024-4-27 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736535&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 13:25</a>
+
+我那是没灵魂的虚假欧! 跟欧皇这种真正的欧是不一样的!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要没灵魂的虚假欧 
+

@@ -14682,3 +14682,11 @@ https://rognize.lofter.com/post/4c11867b_2bbaeed5d<img src="https://p.sda1.dev/1
 —— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
 你这个是放的BD吗？我用PS5放，字幕根本不是这个式样。
 
+
+*****
+
+####  DarthAka  
+##### 16087#       发表于 2024-4-27 13:34
+
+分开卖吧，上下半场各卖半价，挺好
+

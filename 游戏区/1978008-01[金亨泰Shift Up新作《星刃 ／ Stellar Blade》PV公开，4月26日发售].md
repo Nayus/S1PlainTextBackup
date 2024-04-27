@@ -3739,3 +3739,26 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 cnm 这回这个客服直接说启动了就不给退<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只能认栽了。社区老哥们给点力啊，冲出一个可以退款
 
+
+*****
+
+####  Synopses6087  
+##### 1082#       发表于 2024-4-27 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736517&amp;ptid=1978008" target="_blank">roxassix 发表于 2024-4-27 13:23</a>
+
+cnm 这回这个客服直接说启动了就不给退，还反复强调这一点只能认栽了。说真的这几家客服我感觉最烂 ...</blockquote>
+你哪个区的？我过年找港区客服退会员钱的时候对方服务态度挺好的，八成港人对简体中文的歧视是刻在文化基因里了，你下次用英文试试
+
+*****
+
+####  roxassix  
+##### 1083#       发表于 2024-4-27 13:33
+
+ 本帖最后由 roxassix 于 2024-4-27 13:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736589&amp;ptid=1978008" target="_blank">Synopses6087 发表于 2024-4-27 13:31</a>
+
+你哪个区的？我过年找港区客服退会员钱的时候对方服务态度挺好的，八成港人对简体中文的歧视是刻在文化基 ...</blockquote>
+
+日服啊，走的linechat，还tm排两个小时。。要直接打电话好点吗
+

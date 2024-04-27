@@ -12620,3 +12620,15 @@ cnm今晚新卷堡真的是贵物开会了</blockquote>
 
 那到底在干什么.....
 
+
+*****
+
+####  Ryuuseigun  
+##### 4230#       发表于 2024-4-27 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735649&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-27 11:34</a>
+这是遇上K头怪了吧，眼里只有徽章根本不顾队友
+
+—— 来自 S1Fun</blockquote>
+K也没K得多少的菜狗，2wave还把大都开了就18个<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">正常打两wave上十七八也不算很难的事情，把搬蛋都放弃了才这么点属实狗屎<img src="https://p.sda1.dev/17/99a5d93dde17558edceba5e4faefd326/CMP_20240427132024939.jpg" referrerpolicy="no-referrer">
+

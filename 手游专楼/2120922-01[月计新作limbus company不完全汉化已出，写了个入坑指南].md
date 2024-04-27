@@ -289,3 +289,18 @@
 
 （以后每赛季镜牢更新都得重刷一遍天赋树，想想就酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  erratic璃月  
+##### 658#       发表于 2024-4-27 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734546&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-4-27 09:10</a>
+
+月计：保留星光？想得挺美啊都给我回到同一起跑线上吧！
+
+（以后每赛季镜牢更新都得重刷一遍天 ...</blockquote>
+星光能保证速通困镜的程度就行了，没必要硬刷折磨自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还挺期待这种开卡包形式的，至少开局不用刷遗物了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

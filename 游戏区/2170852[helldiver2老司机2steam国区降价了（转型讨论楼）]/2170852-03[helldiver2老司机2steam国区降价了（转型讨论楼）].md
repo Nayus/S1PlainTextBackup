@@ -4705,3 +4705,13 @@ AA→Anti-Ally
 这空爆太幽默了，随便就拿了披风虫四杀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种类星体刚出的自爆美
 
+
+*****
+
+####  6x6z6w  
+##### 3403#       发表于 2024-4-28 04:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742148&amp;ptid=2170852" target="_blank">NeoEvens22 发表于 2024-4-27 22:18</a>
+所以引信是bug还是箭头故意的？</blockquote>
+说了是bug，下周更新会修复
+

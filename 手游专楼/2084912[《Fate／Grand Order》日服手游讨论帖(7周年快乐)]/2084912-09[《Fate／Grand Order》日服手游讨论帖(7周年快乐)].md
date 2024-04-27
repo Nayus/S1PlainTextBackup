@@ -3776,3 +3776,25 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两套技能公用CD太TMD弱智了
 
+
+*****
+
+####  alucardcz  
+##### 12343#       发表于 2024-4-27 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64741321&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 21:13</a>
+
+两套技能公用CD太TMD弱智了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人的烦恼 羡慕
+
+
+*****
+
+####  qixinno2  
+##### 12344#       发表于 2024-4-27 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64741559&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 21:26</a>
+
+欧洲人的烦恼 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等狗萌新过两天豹跳连着出青子和有珠
+

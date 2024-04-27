@@ -15186,3 +15186,74 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 16143#       发表于 2024-4-27 21:29
+
+ 本帖最后由 御幸一也 于 2024-4-27 21:33 编辑 
+
+設定集裡ave mujica的部分
+
+這是群友掃的，過兩天我也會另外再掃一個高畫質版本<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/27/213311msd00r98e8d0s9vj.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_001.jpg</strong> (586.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/213315kglly4dgzajqffo4.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_002.jpg</strong> (589.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/213319feeerdyyviv7isii.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_003.jpg</strong> (577.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/213324m2r1mjo1yb1ssmxo.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_004.jpg</strong> (572.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/213330g38mt9fitw220krz.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_005.jpg</strong> (648.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:33 上传
+
+還有我們的幼初祥<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/27/212812dq22qd5d8gpwql83.jpg" referrerpolicy="no-referrer">
+
+<strong>240427_2028_006.jpg</strong> (398.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:28 上传
+
+*****
+
+####  skives  
+##### 16144#       发表于 2024-4-27 21:34
+
+这个世界居然有丰川祥子这等萌物存在
+

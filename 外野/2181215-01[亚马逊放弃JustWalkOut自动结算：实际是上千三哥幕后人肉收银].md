@@ -756,3 +756,27 @@ AGI  A Guy in India
 
 费诺文奇在《天渊》一书中早已有描写
 
+
+*****
+
+####  tylunas  
+##### 73#       发表于 2024-4-27 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64701525&amp;ptid=2181215" target="_blank">木谷高明 发表于 2024-4-24 13:14</a>
+
+上次去国内4S店保养车，看到有自动售货机完成了自动识别。
+
+微信扫码，信用分够就开门，拿了东西关门，自动 ...</blockquote>
+然后我在某直聘上看到他们招残疾人远程管理售货机<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 74#       发表于 2024-4-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735501&amp;ptid=2181215" target="_blank">tylunas 发表于 2024-4-27 11:21</a>
+然后我在某直聘上看到他们招残疾人远程管理售货机</blockquote>
+招残疾人有税收优惠，指标够了你企业就能享受优惠
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

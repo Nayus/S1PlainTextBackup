@@ -3669,3 +3669,13 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 干 睡过了 退款客服又要重新排<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看了眼之前的回复，一上来就问我是不是有实体版
 
+
+*****
+
+####  roxassix  
+##### 1075#       发表于 2024-4-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735213&amp;ptid=1978008" target="_blank">卡博雷z 发表于 2024-4-27 10:45</a>
+领预购之类的衣服还是要联网的，不想断网了</blockquote>
+预购那几个就是提前解锁吧，除非你想要豪华那几套应该都不需要联网<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

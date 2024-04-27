@@ -14637,3 +14637,13 @@ https://rognize.lofter.com/post/4c11867b_2bbaeed5d<img src="https://p.sda1.dev/1
 
 武士道那麼小氣我猜沒下次了
 
+
+*****
+
+####  Toki_Ai  
+##### 16082#       发表于 2024-4-27 13:01
+
+笑死，b站武士道拉一踩一，只做mygo字幕，还好我还没充电，这么看不起ppp那就别共演啊<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

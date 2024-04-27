@@ -4088,3 +4088,16 @@ nier3 夜光?
 
 如果不找吉田明彥，人物設計很難有2代高度
 
+
+*****
+
+####  ShiKi847  
+##### 1118#       发表于 2024-4-27 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743007&amp;ptid=1978008" target="_blank">jbjack1215 发表于 2024-4-27 23:27</a>
+
+nier3 夜光?
+
+哪的消息阿</blockquote>
+夜光组被并入第二开发部了，新社长不让搞外包了，基本后续的3A作全社内，前夜光头头的一个演讲介绍说他在做新3A
+

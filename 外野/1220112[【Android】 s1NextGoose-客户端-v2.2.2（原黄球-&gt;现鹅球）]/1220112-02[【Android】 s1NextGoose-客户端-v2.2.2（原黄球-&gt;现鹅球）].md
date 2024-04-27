@@ -136,3 +136,14 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 作者可以更新到github上么?百度云居然在登录状态下下载还要打开客户端
 
+
+*****
+
+####  亚瑟邓特  
+##### 1524#       发表于 2024-4-27 11:39
+
+欢呼！
+测试下发图<img src="https://p.sda1.dev/17/5e2258f1b9f17597cd79ea653943688d/CMP_20240427113929604.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

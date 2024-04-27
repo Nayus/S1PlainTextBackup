@@ -796,3 +796,30 @@ AGI  A Guy in India
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的s1素质太高了，这楼竟然都在正经讨论技术，后面几乎没有嘲笑印度佬了
 
+
+*****
+
+####  lexi  
+##### 77#         楼主| 发表于 2024-4-27 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735633&amp;ptid=2181215" target="_blank">kooor555 发表于 2024-4-27 11:33</a>
+
+妈的s1素质太高了，这楼竟然都在正经讨论技术，后面几乎没有嘲笑印度佬了 ...</blockquote>
+我也始料未及啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eroneko  
+##### 78#       发表于 2024-4-27 11:36
+
+我学校的自助食堂是称重+RFID，RFID在餐盘里，用来识别用户和扣费，然后打菜的摊位称重计费，每个位置人工设置每单位重量价格。不过还是得有人盯着有没有人不绑定餐盘就打菜，菜打完了也需要经常更换，感觉省不了多少人力。
+
+*****
+
+####  icicle31415  
+##### 79#       发表于 2024-4-27 11:37
+
+<blockquote>ffaaf 发表于 2024-4-25 13:28
+我怎么记得阿里也搞过类似的，也是拿了点水，吃的，门口自动结账，那个是怎么实现的 ...</blockquote>
+1. 纯视觉ai方案 2. 重力传感器 3. 远程人工视觉辅助 我之前面试做自动货柜公司的时候，那边的算法老哥和我这说的
+

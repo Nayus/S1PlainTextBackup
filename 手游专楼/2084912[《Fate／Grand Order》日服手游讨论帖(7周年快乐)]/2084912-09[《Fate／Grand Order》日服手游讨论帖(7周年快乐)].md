@@ -3873,3 +3873,14 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 对了，每天限时的农本是几点，还是天天都不同？
 
+
+*****
+
+####  DARKGRAY  
+##### 12353#       发表于 2024-4-28 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742779&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-4-27 23:12</a>
+
+c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的话强度肯定一般吧 ...</blockquote>
+五星绿卡术光炮目前人数还是0，可以填空缺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

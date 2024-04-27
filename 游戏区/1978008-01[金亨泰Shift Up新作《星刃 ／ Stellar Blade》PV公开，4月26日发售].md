@@ -3653,3 +3653,11 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 我之前听说剑星剧情一比一像素级复刻尼尔机械纪元我才开始期待，结果不是复刻，是拙劣的模仿，还缝了一堆 ...</blockquote>
 我一直关注剑星的新闻，没看到过这么说啊，虽然尼尔确实是金亨泰参考的游戏素材之一
 
+
+*****
+
+####  卡博雷z  
+##### 1073#       发表于 2024-4-27 10:45
+
+领预购之类的衣服还是要联网的，不想断网了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+

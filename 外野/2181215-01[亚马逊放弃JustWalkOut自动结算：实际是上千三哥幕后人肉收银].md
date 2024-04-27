@@ -737,3 +737,14 @@ AGI  A Guy in India
 
 我怎么记得阿里也搞过类似的，也是拿了点水，吃的，门口自动结账，那个是怎么实现的
 
+
+*****
+
+####  yuxiao  
+##### 71#       发表于 2024-4-27 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702740&amp;ptid=2181215" target="_blank">安娜导函数 发表于 2024-4-24 15:06</a>
+
+你说的技术是不是要求所有商品上再贴个类似芯片的东西？这种放在超市零售业是否有成功案例 ...</blockquote>
+好多年前RFID标签已经可以做到非常小，普通人感觉就是这个标签嵌入普通的标签纸里面去了，非常小的，成本也非常低
+

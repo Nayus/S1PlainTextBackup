@@ -3918,3 +3918,44 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 告示板有个任务拒绝接受，是我手快点错了还是系统故意安排的？点的时候没仔细看 ...</blockquote>
 应该都是拒绝
 
+
+*****
+
+####  洛克萨斯  
+##### 1101#       发表于 2024-4-27 20:50
+
+所以现在是全部衣服都被和谐么，还是只有部分？
+
+*****
+
+####  哆哆鸡  
+##### 1102#       发表于 2024-4-27 20:51
+
+觉得和谐恶心，想退款的，可以等上了pc狠狠白嫖pc版，到时候什么补丁mod都随便打
+为了防和谐玩实体版不更新的话，领不了豪华版和预购衣服，而且1.0版本二周目不继承，想全收集很折磨的
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  哆哆鸡  
+##### 1103#       发表于 2024-4-27 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64740848&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-4-27 20:50</a>
+所以现在是全部衣服都被和谐么，还是只有部分？</blockquote>
+有几件被加了布料，你可以往前面翻几页
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  洛克萨斯  
+##### 1104#       发表于 2024-4-27 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64740868&amp;ptid=1978008" target="_blank">哆哆鸡 发表于 2024-4-27 20:52</a>
+
+有几件被加了布料，你可以往前面翻几页
+
+—— 来自 samsung SM-G9758, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+就是只有那几件么，大部分不受影响？
+

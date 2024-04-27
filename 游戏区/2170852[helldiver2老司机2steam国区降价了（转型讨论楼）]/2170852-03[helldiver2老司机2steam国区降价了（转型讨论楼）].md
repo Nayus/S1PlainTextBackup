@@ -4424,3 +4424,15 @@ hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Aeons  
+##### 3375#       发表于 2024-4-27 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64737972&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-27 16:34</a>
+话说机炮适合打炮艇和运输机吗，之前打引擎也没啥用的样子
+
+—— 来自 OPPO PEAM00, Android 10上的 ...</blockquote>
+机炮4穿，只能打炮艇，引擎两发，机体五发，紧急情况泼水连发也是可以的。
+

@@ -4686,3 +4686,11 @@ AA→Anti-Ally
 
 这游戏很多人买来三个月就只玩回一半票价，50多级来西线两杆类星体一杆MG43，非要去冲已经打掉的广播台，下地没跑出300米来了几波空降 ，一个点里啪啪啪没了5条命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 3401#       发表于 2024-4-28 02:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这空爆太幽默了，随便就拿了披风虫四杀
+

@@ -15135,3 +15135,23 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  鳥栖朝  
+##### 16138#       发表于 2024-4-27 21:07
+
+某动态下面的两条一模一样的评论 ：“你们ppp遗老给mygo官号打过米吗，就想要歌词，我们mujica起码还给官号送了7000舰呢[呲牙]​”  喜欢我🐔团盾牌吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  鳥栖朝  
+##### 16139#       发表于 2024-4-27 21:11
+
+就这么喜欢⛵是吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

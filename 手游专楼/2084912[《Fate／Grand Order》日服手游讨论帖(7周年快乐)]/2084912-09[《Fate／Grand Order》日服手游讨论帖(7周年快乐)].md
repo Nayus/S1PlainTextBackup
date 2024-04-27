@@ -3670,3 +3670,41 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 发石头和呼符了 萌新快去抽啊 必出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽完了 无事发生 甚至礼装都没有 萌新为什么不能欧一把呢
 
+
+*****
+
+####  الطائر  
+##### 12331#       发表于 2024-4-27 18:28
+
+在返老还童温泉死亡的青子，她的死因是──她老死了（不是）
+
+*****
+
+####  qixinno2  
+##### 12332#       发表于 2024-4-27 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738937&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 18:25</a>
+
+抽完了 无事发生 甚至礼装都没有 萌新为什么不能欧一把呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我两张四星都是四张 五星礼装一张没有 绝了
+
+*****
+
+####  alucardcz  
+##### 12333#       发表于 2024-4-27 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738980&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 18:29</a>
+
+我两张四星都是四张 五星礼装一张没有 绝了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太欧了 礼装能出那么多  欧 不羡慕
+
+*****
+
+####  qixinno2  
+##### 12334#       发表于 2024-4-27 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738993&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 18:30</a>
+
+太欧了 礼装能出那么多  欧 不羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祝你以后抽卡全是礼装
+

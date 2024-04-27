@@ -15091,3 +15091,15 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 到底谁带头姐妹的。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 16134#       发表于 2024-4-27 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64729503&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-26 19:49</a>
+经典你谁</blockquote>
+这是麻弥？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

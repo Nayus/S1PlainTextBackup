@@ -4221,3 +4221,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kuker53  
+##### 1131#       发表于 2024-4-28 06:24
+
+通关了，收尾有些仓促，直接告诉你续作在做了，不过还不错，8分，打打二周目
+

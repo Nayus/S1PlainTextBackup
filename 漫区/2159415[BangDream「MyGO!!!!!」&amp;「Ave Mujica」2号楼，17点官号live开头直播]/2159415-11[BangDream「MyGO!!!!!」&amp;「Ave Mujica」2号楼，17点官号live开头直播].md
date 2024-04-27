@@ -14820,3 +14820,11 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  滑稽Captain  
+##### 16103#       发表于 2024-4-27 14:33
+
+要么都做要么都不做，做一半确实不是正常人的思路
+

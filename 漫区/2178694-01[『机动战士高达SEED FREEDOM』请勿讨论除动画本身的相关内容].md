@@ -8551,3 +8551,13 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 整部都没一句 ...</blockquote>
 他推上有帮忙宣传种自，应该只是单纯时长原因排不进了。
 
+
+*****
+
+####  mirageC  
+##### 694#       发表于 2024-4-27 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看完这个剧场版，这四倍速的剧情节奏甚至可以改成个半年番再狠狠收割一大波
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

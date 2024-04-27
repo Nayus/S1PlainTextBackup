@@ -194,3 +194,14 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 OnePlus PHP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Nanachi  
+##### 1530#       发表于 2024-4-27 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736771&amp;ptid=1220112" target="_blank">geeky_kappa 发表于 2024-4-27 13:55</a>
+
+也没有最新fork的GitHub仓库地址，一个个改完传网盘是闹哪样</blockquote>
+[https://github.com/TomoeMami/S1P ... releases/tag/Other1](https://github.com/TomoeMami/S1PlainTextBackup/releases/tag/Other1) 楼主还没上传代码，我先把apk传到我的release里面了
+

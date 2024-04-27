@@ -1321,3 +1321,15 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)
 rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)</blockquote>
 我自己的锅，不知道啥时候把ipad给静音了，但是看视频还有声音，挺奇怪的。不过今天反复折腾发现这个模拟器不支持DeSmuME的存档，还得重新打，好烦！
 
+
+*****
+
+####  emcl  
+##### 114#       发表于 2024-4-28 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719981&amp;ptid=2180365" target="_blank">crosz1985 发表于 2024-4-25 23:38</a>
+在小红书上下了个带滤镜的皮肤，感觉还行
+
+论坛助手,iPhone</blockquote>
+请问能分享一下您说的皮肤滤镜么
+

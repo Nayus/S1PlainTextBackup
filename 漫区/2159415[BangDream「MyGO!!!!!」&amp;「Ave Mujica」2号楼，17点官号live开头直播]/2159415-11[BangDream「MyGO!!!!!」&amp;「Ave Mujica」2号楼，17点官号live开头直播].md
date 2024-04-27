@@ -14828,3 +14828,11 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 要么都做要么都不做，做一半确实不是正常人的思路
 
+
+*****
+
+####  NODY  
+##### 16104#       发表于 2024-4-27 14:54
+
+字幕没了一半约等于花完整的钱买一半的服务，eplus海外又不用翻墙，这种情况下还给这个官号送钱的人我只能说一句尊重祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

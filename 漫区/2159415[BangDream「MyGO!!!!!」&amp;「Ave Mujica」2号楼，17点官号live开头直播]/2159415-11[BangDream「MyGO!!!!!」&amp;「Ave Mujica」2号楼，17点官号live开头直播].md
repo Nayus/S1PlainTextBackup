@@ -14800,3 +14800,23 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 看笑了，虽然各家运营都好不到哪里去，但傻逼成这样的确实头一回见，歌词复制粘贴都不愿意了是吧
 
+
+*****
+
+####  NODY  
+##### 16101#       发表于 2024-4-27 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736953&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-4-27 14:22</a>
+
+没学到精髓啊，快进到临时工背锅。</blockquote>
+错误的，这号的习惯是让角色背锅，问就是某staff某客服不熟所以没带<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16102#       发表于 2024-4-27 14:27
+
+<img src="https://p.sda1.dev/17/10d708e34a13ad03806d0146d6993f8b/CMP_20240427142456853.png" referrerpolicy="no-referrer">傻逼才给叔叔钱
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

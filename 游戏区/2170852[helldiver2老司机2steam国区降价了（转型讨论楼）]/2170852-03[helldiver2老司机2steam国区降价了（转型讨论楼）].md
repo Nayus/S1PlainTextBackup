@@ -4723,3 +4723,13 @@ AA→Anti-Ally
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">说爆炸吸附的只有爆炸铳这素在？
 
+
+*****
+
+####  FLZB  
+##### 3405#       发表于 2024-4-28 05:41
+
+ 本帖最后由 FLZB 于 2024-4-28 05:42 编辑 
+
+每次更新bug全都“凑巧”出在能恶心你的地方，什么机甲自爆，重机枪歪准星（至今没修复），爆炸吸附，类星体自爆，连空爆也说有射出去立马在脸上爆的问题，箭头哪次更新是能让你好好玩的？说是程序失误你信吗？我反正不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

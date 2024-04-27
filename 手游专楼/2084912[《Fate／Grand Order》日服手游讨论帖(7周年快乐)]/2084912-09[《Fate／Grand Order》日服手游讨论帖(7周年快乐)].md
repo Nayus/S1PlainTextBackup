@@ -3884,3 +3884,14 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的话强度肯定一般吧 ...</blockquote>
 五星绿卡术光炮目前人数还是0，可以填空缺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 12354#       发表于 2024-4-28 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744449&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-28 01:33</a>
+
+五星绿卡术光炮目前人数还是0，可以填空缺</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那岂不是更没救了，你游经典砍绿光炮NP率
+

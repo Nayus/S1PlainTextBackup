@@ -4599,3 +4599,11 @@ AA→Anti-Ally
 这个幽默火箭筒把我的怒火放出来了</blockquote>
 所以打预防针周一会改。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 3392#       发表于 2024-4-27 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了二十多小时，越玩越觉得像ff14，队里就算有大佬只要sb把命死没了也很难搞
+

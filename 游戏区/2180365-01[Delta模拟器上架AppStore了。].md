@@ -1306,3 +1306,18 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)
 
 今天发现一个问题，和drastic模拟器的存档格式不兼容……
 
+
+*****
+
+####  风清云淡  
+##### 113#       发表于 2024-4-27 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64728796&amp;ptid=2180365" target="_blank">batrain 发表于 2024-4-26 18:39</a>
+
+型号：iPad9
+
+系统：iPadOS17.4.1
+
+rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)</blockquote>
+我自己的锅，不知道啥时候把ipad给静音了，但是看视频还有声音，挺奇怪的。不过今天反复折腾发现这个模拟器不支持DeSmuME的存档，还得重新打，好烦！
+

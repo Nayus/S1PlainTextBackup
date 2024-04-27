@@ -3835,3 +3835,11 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有珠会是个正统法师光炮 青子太抽象了 
 
+
+*****
+
+####  希望之花  
+##### 12349#       发表于 2024-4-27 23:12
+
+c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的话强度肯定一般吧
+

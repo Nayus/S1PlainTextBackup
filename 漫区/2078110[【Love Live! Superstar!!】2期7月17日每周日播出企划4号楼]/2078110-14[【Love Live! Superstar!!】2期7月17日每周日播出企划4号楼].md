@@ -1648,3 +1648,22 @@ blt拍的真不错啊（顺便吐槽星按人气倾斜是最近才流行的是�
 
 今年杂志4.30发售，估计没你星事了
 
+
+*****
+
+####  ruffian  
+##### 20098#       发表于 2024-4-27 18:55
+
+刷到俩副音轨烤肉切片，感受是你星运营要是有成员不说一半，哪怕五分之三的上进心呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 20099#       发表于 2024-4-27 18:55
+
+ 本帖最后由 ruffian 于 2024-4-27 18:57 编辑 
+
+。
+

@@ -247,3 +247,12 @@ https://twitter.com/harry__so/status/1783440709376446739
 
 那种日语和中文一样溜的vtb是不是都是混血
 
+
+*****
+
+####  渡鸦骑士  
+##### 196#       发表于 2024-4-27 22:35
+
+新加坡虹en那场看推特图……
+真清闲啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

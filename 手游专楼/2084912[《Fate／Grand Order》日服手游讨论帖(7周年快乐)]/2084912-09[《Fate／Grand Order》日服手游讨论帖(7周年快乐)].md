@@ -3817,3 +3817,21 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 魔法使不如暗杀拳，谁要是之前说魔夜联动青子强度会不如送的草十郎怕是要被挂起来婊 ...</blockquote>
 看成绩这种强度和美术都能大卖，只能说蘑菇他们吃死了玩家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 12347#       发表于 2024-4-27 22:39
+
+<blockquote>洛克萨斯 发表于 2024-4-27 21:02
+魔法使不如暗杀拳，谁要是之前说魔夜联动青子强度会不如送的草十郎怕是要被挂起来婊 ...</blockquote>
+还有个有珠，我生怕再来个什么无充能绿卡术光炮。
+
+
+*****
+
+####  qixinno2  
+##### 12348#       发表于 2024-4-27 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有珠会是个正统法师光炮 青子太抽象了 
+

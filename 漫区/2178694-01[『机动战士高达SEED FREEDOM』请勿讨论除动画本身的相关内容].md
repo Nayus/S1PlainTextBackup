@@ -8610,3 +8610,11 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 这片后半简直可以说是用高达bf系的拍法来演seed的剧情，这种群像合家欢太适合在电影院看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  镜hinata  
+##### 700#       发表于 2024-4-27 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">岛国看的杜比，今天去hk看的4dmx摇得好爽就是屏幕不够大
+

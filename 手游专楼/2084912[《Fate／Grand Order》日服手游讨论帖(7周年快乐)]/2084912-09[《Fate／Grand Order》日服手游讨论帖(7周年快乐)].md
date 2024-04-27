@@ -3573,3 +3573,16 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 我那是没灵魂的虚假欧! 跟欧皇这种真正的欧是不一样的!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要没灵魂的虚假欧 
 
+
+*****
+
+####  alucardcz  
+##### 12321#       发表于 2024-4-27 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736594&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-4-27 13:32</a>
+
+90++可以捧有珠
+
+虽然想这么说，但其实简单出个pretender本或者外星人本就行了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有不让玩家3t一条路可走  不然这机制出什么怪都没用
+

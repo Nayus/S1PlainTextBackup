@@ -3679,3 +3679,13 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 领预购之类的衣服还是要联网的，不想断网了</blockquote>
 预购那几个就是提前解锁吧，除非你想要豪华那几套应该都不需要联网<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡博雷z  
+##### 1076#       发表于 2024-4-27 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735524&amp;ptid=1978008" target="_blank">roxassix 发表于 2024-4-27 11:22</a>
+预购那几个就是提前解锁吧，除非你想要豪华那几套独占的，其他的应该都不需要联网 ...</blockquote>
+实体版预购的也得先输码<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

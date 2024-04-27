@@ -823,3 +823,15 @@ AGI  A Guy in India
 我怎么记得阿里也搞过类似的，也是拿了点水，吃的，门口自动结账，那个是怎么实现的 ...</blockquote>
 1. 纯视觉ai方案 2. 重力传感器 3. 远程人工视觉辅助 我之前面试做自动货柜公司的时候，那边的算法老哥和我这说的
 
+
+*****
+
+####  11116等  
+##### 80#       发表于 2024-4-27 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64702845&amp;ptid=2181215" target="_blank">天桥夜风 发表于 2024-4-24 15:16</a>
+我附近的优衣库，拿了衣服放到那个自助结算那里，会自动出结果，但不是扫码啥的，衣服拿回家也没翻出来哪 ...</blockquote>
+他那个标签有点厚，就是这个
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

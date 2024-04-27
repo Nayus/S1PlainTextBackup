@@ -4379,3 +4379,11 @@ hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 3371#       发表于 2024-4-27 15:38
+
+之前看空爆解包测试，西线纯贵物，炮艇一发都轰不下来，说是防空武器只能防防飞龙，但更多的时候是在打地面单位，非常抽象。要用集束我为什么不用飞鹰集束？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

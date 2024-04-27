@@ -3462,3 +3462,28 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 哎 这就是欧皇吗 萌新为什么从来没欧过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说自己没欧过的狗萌新 你敢亮出今年的五星出货么 
 
+
+*****
+
+####  格林卡罗尔  
+##### 12310#       发表于 2024-4-27 12:11
+
+这个怪异大量发生，该不会是变相柱子本吧
+
+
+*****
+
+####  khxooo  
+##### 12311#       发表于 2024-4-27 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735974&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-4-27 12:11</a>
+这个怪异大量发生，该不会是变相柱子本吧</blockquote>
+应该是之前情人节那种给大量点数改成大量怪物吧。
+
+*****
+
+####  七千星  
+##### 12312#       发表于 2024-4-27 12:17
+
+青子升级材料都在2.5后面,好麻烦,好远,感觉又要退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

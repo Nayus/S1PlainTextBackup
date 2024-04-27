@@ -3689,3 +3689,21 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 预购那几个就是提前解锁吧，除非你想要豪华那几套独占的，其他的应该都不需要联网 ...</blockquote>
 实体版预购的也得先输码<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 1077#       发表于 2024-4-27 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735803&amp;ptid=1978008" target="_blank">卡博雷z 发表于 2024-4-27 11:53</a>
+实体版预购的也得先输码</blockquote>
+我意思是预购特典只是服装早期解锁，你不用流程里也能正常拿到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不像豪华版那几套是只有豪华版才能解锁
+
+
+*****
+
+####  BadYanL  
+##### 1078#       发表于 2024-4-27 12:12
+
+大地图探索做得不错啊
+

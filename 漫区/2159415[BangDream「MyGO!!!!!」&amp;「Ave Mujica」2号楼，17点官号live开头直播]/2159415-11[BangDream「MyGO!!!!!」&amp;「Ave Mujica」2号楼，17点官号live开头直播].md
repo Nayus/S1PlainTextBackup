@@ -15301,3 +15301,11 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 期待第二季能看到摘了面具的母鸡卡在舞台上真容演奏的一天
 
+
+*****
+
+####  NODY  
+##### 16150#       发表于 2024-4-27 22:02
+
+说明这个吉他要在台上砸了以后换成有亮片的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

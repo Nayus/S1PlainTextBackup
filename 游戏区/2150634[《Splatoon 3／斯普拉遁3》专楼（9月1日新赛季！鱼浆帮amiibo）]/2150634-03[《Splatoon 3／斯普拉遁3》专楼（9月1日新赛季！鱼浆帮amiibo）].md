@@ -12649,3 +12649,32 @@ K也没K得多少的菜狗，2wave还把大都开了就18个<img src="https://st
 
 为什么拿到了铅笔还不站在高台顶上还要满地乱爬<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4233#       发表于 2024-4-27 21:54
+
+MAGIACE的对战录像，前线消防栓太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+RKH4-PQJW-JMRC-HM0J
+
+顺便抄了下配装，自己做大概会这样
+
+<img src="https://img.saraba1st.com/forum/202404/27/215406uzhhgott0zhgztbt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-27-21-53-22-835_com.android.chrome-edit.jpg</strong> (135.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ryuuseigun  
+##### 4234#       发表于 2024-4-27 21:54
+
+新卷堡真的一堆贵物，昨天打鲑坝都能轻松上800，今天新卷宝600就开始牢
+

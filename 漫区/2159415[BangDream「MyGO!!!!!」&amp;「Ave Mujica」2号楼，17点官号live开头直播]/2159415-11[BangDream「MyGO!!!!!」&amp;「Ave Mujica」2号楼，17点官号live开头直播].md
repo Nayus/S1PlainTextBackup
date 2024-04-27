@@ -14922,3 +14922,36 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 那麼這次我無限支持老團粉加大力度狠狠地罵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16115#       发表于 2024-4-27 15:25
+
+怎么滑轨了，是不是没想到国内还有姨姥会冲锋啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 16116#       发表于 2024-4-27 15:27
+
+可能运营真的觉得没有mygo谁知道你邦邦吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻巳巳  
+##### 16117#       发表于 2024-4-27 15:28
+
+看评论说的真好，a团要带个狗牌子才能看live骂了三天都拿不下，人家ppp三小时就滑跪了，不就是挑软柿子区别对待，继续作下去呗
+
+
+*****
+
+####  御幸一也  
+##### 16118#       发表于 2024-4-27 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64737464&amp;ptid=2159415" target="_blank">麻巳巳 发表于 2024-4-27 15:28</a>
+
+看评论说的真好，a团要带个狗牌子才能看live骂了三天都拿不下，人家ppp三小时就滑跪了，不就是挑软柿子区别 ...</blockquote>
+呵呵 我記得這個，唉動畫沒播的底邊團真是鬧麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

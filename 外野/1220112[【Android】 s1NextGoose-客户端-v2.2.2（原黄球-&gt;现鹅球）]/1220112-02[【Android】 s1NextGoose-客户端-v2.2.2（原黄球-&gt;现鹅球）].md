@@ -128,3 +128,11 @@ s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢
 https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 作者有考虑过更新到github上么？或者试试重上play store?<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wpwing  
+##### 1523#       发表于 2024-4-27 11:23
+
+作者可以更新到github上么?百度云居然在登录状态下下载还要打开客户端
+

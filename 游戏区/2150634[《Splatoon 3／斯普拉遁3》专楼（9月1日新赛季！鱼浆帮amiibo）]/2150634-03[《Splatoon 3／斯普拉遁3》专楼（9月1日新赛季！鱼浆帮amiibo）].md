@@ -12578,3 +12578,33 @@ cnm今晚新卷堡真的是贵物开会了<img src="https://static.saraba1st.com
 
 人累真的不能打喷，感觉看对手都在瞬移<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 4226#       发表于 2024-4-27 11:30
+
+白天打工正常人多多了，以后再也不打半夜开门了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 4227#       发表于 2024-4-27 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64726627&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-4-26 15:47</a>
+
+这期鲑坝都说屎玩起来还行，过不了基本都是队里有个只搬个位数的梦游哥</blockquote>
+但是鲑坝本身劝退，我第一天打得感觉也还行，到600多挺顺的，但是第二天一想到后面可能的高压局就不想打了
+
+*****
+
+####  罗克萨斯  
+##### 4228#       发表于 2024-4-27 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733270&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-4-27 01:17</a>
+cnm今晚新卷堡真的是贵物开会了</blockquote>
+这是遇上K头怪了吧，眼里只有徽章根本不顾队友
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

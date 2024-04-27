@@ -780,3 +780,19 @@ AGI  A Guy in India
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  宇白顺  
+##### 75#       发表于 2024-4-27 11:27
+
+扫脸验证的也是人工的
+
+
+*****
+
+####  kooor555  
+##### 76#       发表于 2024-4-27 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的s1素质太高了，这楼竟然都在正经讨论技术，后面几乎没有嘲笑印度佬了
+

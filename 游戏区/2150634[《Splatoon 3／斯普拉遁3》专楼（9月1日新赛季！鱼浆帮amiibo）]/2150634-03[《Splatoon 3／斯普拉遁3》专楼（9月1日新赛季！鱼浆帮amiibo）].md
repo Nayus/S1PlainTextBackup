@@ -12688,3 +12688,11 @@ RKH4-PQJW-JMRC-HM0J
 
 不算这场掉线的话就是46场野康，还行吧，800分以上就没miss过
 
+
+*****
+
+####  Ryuuseigun  
+##### 4236#       发表于 2024-4-27 23:53
+
+这次工彻底根治了我拿狙不爱出差的毛病<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">垃圾桶塔铁球不主动去清队友是真的能让它们活一整局
+

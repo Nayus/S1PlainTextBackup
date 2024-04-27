@@ -289,3 +289,13 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 GitHub有earlyaccess的release啊
 现在这样主要是fork百花齐放，不能有效整合人力，路人也没法关注进展
 
+
+*****
+
+####  ashunicorn  
+##### 1539#       发表于 2024-4-27 23:56
+
+新版本确实流畅度很可以
+
+—— 来自 Xiaomi 2211133G, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

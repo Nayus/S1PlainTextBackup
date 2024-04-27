@@ -8571,3 +8571,14 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 —— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  starring  
+##### 696#       发表于 2024-4-27 15:21
+
+看完了
+机战部分看爽了，剧情也就那样不动脑子乐就完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

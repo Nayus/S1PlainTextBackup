@@ -14874,3 +14874,51 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 别急，待会就用爱音对ppp的歌不熟所以做不了字幕来洗</blockquote>
 你是懂語C的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 16109#       发表于 2024-4-27 15:17
+
+从去年交口称赞的神仙运营变成现在人人唾骂的拱火官方，非常难评。
+
+*****
+
+####  zackAlove  
+##### 16110#       发表于 2024-4-27 15:17
+
+幽默滑轨
+
+*****
+
+####  6030sylar  
+##### 16111#       发表于 2024-4-27 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">别说是老前辈，就算其他企划的别人跟你搞合同live，搞区别对待好意思吗？！
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Toki_Ai  
+##### 16112#       发表于 2024-4-27 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">怎么不继续坚持做一半字幕了，这滑轨的那些帮忙洗地不很尴尬咯
+
+*****
+
+####  Aendst  
+##### 16113#       发表于 2024-4-27 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强力的快速应对，这下直接背刺帮忙洗地的了
+
+*****
+
+####  御幸一也  
+##### 16114#       发表于 2024-4-27 15:22
+
+這狗屎營運區別對待又不是第一天了，我看ave粉罵的時候還有人覺得鬧麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+那麼這次我無限支持老團粉加大力度狠狠地罵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

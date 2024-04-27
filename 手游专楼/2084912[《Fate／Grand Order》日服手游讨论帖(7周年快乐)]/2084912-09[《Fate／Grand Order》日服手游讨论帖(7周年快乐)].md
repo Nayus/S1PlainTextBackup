@@ -3620,3 +3620,21 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">哦哦哦哦 今天给的抽终于抽出伊利亚了
 
+
+*****
+
+####  v22325  
+##### 12326#       发表于 2024-4-27 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天说青子死了我还以为是搞笑那种……没想到直接扑杀这么认真……
+
+我一开始以为这次活动是搞笑活动来的……
+
+
+*****
+
+####  cenhr  
+##### 12327#       发表于 2024-4-27 18:16
+
+这次的大奖是免费的草十郎吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -234,3 +234,15 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 这种情况是从什么时候开始的啊？我的持续一个月了……没改过任何网络设置… ...</blockquote>
 有十几天了，几个泥潭app全军覆没，不知道什么情况。
 
+
+*****
+
+####  被雨困住的城市  
+##### 1534#       发表于 2024-4-27 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735099&amp;ptid=1220112" target="_blank">布拉德莱恩 发表于 2024-4-27 10:31</a>
+作者有考虑过更新到github上么？或者试试重上play store?</blockquote>
+这个就不知道了……
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

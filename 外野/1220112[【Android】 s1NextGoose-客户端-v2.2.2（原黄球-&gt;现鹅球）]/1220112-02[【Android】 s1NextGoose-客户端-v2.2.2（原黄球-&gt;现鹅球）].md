@@ -157,3 +157,13 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  蒜灵  
+##### 1526#       发表于 2024-4-27 12:48
+
+话说鹅球有没有办法在加载图片的时候优先使用HTTPS而不是强制转换成HTTP？有些图床不用HTTPS打不开
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

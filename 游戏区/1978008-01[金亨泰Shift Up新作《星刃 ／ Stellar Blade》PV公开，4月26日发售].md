@@ -3707,3 +3707,13 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 大地图探索做得不错啊
 
+
+*****
+
+####  卡博雷z  
+##### 1079#       发表于 2024-4-27 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735952&amp;ptid=1978008" target="_blank">roxassix 发表于 2024-4-27 12:08</a>
+我意思是预购特典只是服装早期解锁，你不用流程里也能正常拿到不像豪华版那几套是只有豪华版才能 ...</blockquote>
+哦哦，那倒还好
+

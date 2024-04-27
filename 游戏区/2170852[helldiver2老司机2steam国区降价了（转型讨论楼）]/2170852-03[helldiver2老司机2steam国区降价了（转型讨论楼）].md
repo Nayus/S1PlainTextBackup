@@ -4694,3 +4694,14 @@ AA→Anti-Ally
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这空爆太幽默了，随便就拿了披风虫四杀
 
+
+*****
+
+####  Launce  
+##### 3402#       发表于 2024-4-28 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744694&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-28 02:27</a>
+
+这空爆太幽默了，随便就拿了披风虫四杀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种类星体刚出的自爆美
+

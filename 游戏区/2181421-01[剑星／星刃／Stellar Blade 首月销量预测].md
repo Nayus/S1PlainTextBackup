@@ -458,3 +458,14 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 就忍组那瞎眼的美术跟风出来的成果大概率真不如棒子
 
+
+*****
+
+####  ultraseven  
+##### 44#       发表于 2024-4-28 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744612&amp;ptid=2181421" target="_blank">littlezoo 发表于 2024-4-28 02:03</a>
+
+看Twitch热度也不太高的样子，和庄园领主差不太多，100万应该没有，30万估计到了。 ...</blockquote>
+是浪人好几倍了吧。浪人再怎么全球50万也该有吧
+

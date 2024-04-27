@@ -106,3 +106,11 @@
 
 pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  regular  
+##### 1048#       发表于 2024-4-27 17:29
+
+我今天才反应过来，鲁鲁修是个纸板<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，当然比其他只有头像的强那么一点点。
+

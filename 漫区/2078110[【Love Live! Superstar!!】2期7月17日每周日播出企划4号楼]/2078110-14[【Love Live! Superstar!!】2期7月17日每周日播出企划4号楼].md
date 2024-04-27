@@ -1625,3 +1625,18 @@ blt拍的真不错啊（顺便吐槽星按人气倾斜是最近才流行的是�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 20096#       发表于 2024-4-27 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64737966&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-4-27 16:33</a>
+
+不是，这才过去一年多“唯一正常人”称号就易主了？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+外面的社区还是会多捎上些人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二期那两位的伟大性格和牺牲精神，细想来都是自我感动的自私鬼，当事人真的希望你这么做么。。
+

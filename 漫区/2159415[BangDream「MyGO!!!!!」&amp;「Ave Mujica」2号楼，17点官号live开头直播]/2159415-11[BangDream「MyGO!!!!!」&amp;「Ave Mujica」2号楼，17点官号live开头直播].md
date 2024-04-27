@@ -15041,3 +15041,11 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 原来这就是一直宣传姐妹团的作用？这回挨打不是单个姐妹有，而是姐姐妹妹都能一起挨打，这就是端水啊端水
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实在不行还有语擦，我看之前有些粉丝挺喜欢的，问就是staff A不熟别的团
 
+
+*****
+
+####  Aendst  
+##### 16129#       发表于 2024-4-27 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica作为洗脚婢还能被赋予一个替身影武者的职能，武士道真是太客气了
+

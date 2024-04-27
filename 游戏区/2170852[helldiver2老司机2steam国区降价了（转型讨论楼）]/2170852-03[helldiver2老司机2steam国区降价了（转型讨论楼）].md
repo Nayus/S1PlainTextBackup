@@ -4576,3 +4576,26 @@ AA→Anti-Ally
 
 等周一更新看情况。
 
+
+*****
+
+####  NeoEvens22  
+##### 3390#       发表于 2024-4-27 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742190&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-27 22:21</a>
+
+感觉是为了平息玩家怒火还没调试就放出来了，之前类星体可是开放前增强过一次的。
+
+等周一更新看情况。 ...</blockquote>
+这个幽默火箭筒把我的怒火放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 3391#       发表于 2024-4-27 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742353&amp;ptid=2170852" target="_blank">NeoEvens22 发表于 2024-4-27 22:34</a>
+
+这个幽默火箭筒把我的怒火放出来了</blockquote>
+所以打预防针周一会改。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

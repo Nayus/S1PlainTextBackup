@@ -3808,3 +3808,13 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 
 废土是不是有的地方需要二段跳才能探索
 
+
+*****
+
+####  Rainwedell  
+##### 1089#       发表于 2024-4-27 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738449&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-27 17:28</a>
+废土是不是有的地方需要二段跳才能探索</blockquote>
+感觉是的，我这遇到两个点试了20次确实过不去
+

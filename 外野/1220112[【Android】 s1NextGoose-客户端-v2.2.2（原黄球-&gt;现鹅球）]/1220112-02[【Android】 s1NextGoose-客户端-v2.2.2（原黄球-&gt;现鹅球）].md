@@ -213,3 +213,14 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 同样打开鹅球网络错误，现在只能网页版看论坛。
 
+
+*****
+
+####  StarCrusader  
+##### 1532#       发表于 2024-4-27 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64737244&amp;ptid=1220112" target="_blank">泰阿剑tan 发表于 2024-4-27 15:05</a>
+
+同样打开鹅球网络错误，现在只能网页版看论坛。</blockquote>
+这种情况是从什么时候开始的啊？我的持续一个月了……没改过任何网络设置…
+

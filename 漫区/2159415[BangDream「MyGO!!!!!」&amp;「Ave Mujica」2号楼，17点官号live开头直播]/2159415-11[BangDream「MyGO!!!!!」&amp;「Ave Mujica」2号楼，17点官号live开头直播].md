@@ -14720,3 +14720,18 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 这就中华炮想带头篡位了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 16091#       发表于 2024-4-27 14:06
+
+哇，之前帮官号说话的现在能不能再帮最好的官号说说话啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 16092#       发表于 2024-4-27 14:07
+
+别急，待会就用爱音对ppp的歌不熟所以做不了字幕来洗<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+

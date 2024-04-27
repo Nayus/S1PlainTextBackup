@@ -14690,3 +14690,33 @@ https://rognize.lofter.com/post/4c11867b_2bbaeed5d<img src="https://p.sda1.dev/1
 
 分开卖吧，上下半场各卖半价，挺好
 
+
+*****
+
+####  NODY  
+##### 16088#       发表于 2024-4-27 13:54
+
+价格比eplus还贵，延迟放送，回放时间减半，甚至连字幕都减半，这都敢拿出来卖
+
+再问一次，国人的钱真的有这么好赚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 16089#       发表于 2024-4-27 13:56
+
+我以为鸡1st上舰观看是美好的开始，原来是出道即巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  PDQ4  
+##### 16090#       发表于 2024-4-27 13:58
+
+去吃瓜了，牛逼啊，B友喜欢尊崇B号的这时候要不要学着国内运营帮忙切割？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧，牛的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这就中华炮想带头篡位了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

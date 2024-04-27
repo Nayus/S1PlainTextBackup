@@ -177,3 +177,20 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  geeky_kappa  
+##### 1528#       发表于 2024-4-27 13:55
+
+也没有最新fork的GitHub仓库地址，一个个改完传网盘是闹哪样
+
+*****
+
+####  cloudian  
+##### 1529#       发表于 2024-4-27 13:59
+
+用上3.0.0 alpha了，开心
+
+—— 来自 OnePlus PHP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

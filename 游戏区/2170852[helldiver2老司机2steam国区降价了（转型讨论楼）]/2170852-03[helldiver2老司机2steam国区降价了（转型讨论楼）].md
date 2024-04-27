@@ -4499,3 +4499,14 @@ bug修的少了么？你自己翻翻更新列表人家修了多少了？发现�
 
 空爆RPG偷兴趣点，任务点，巡逻队还挺好用，主要浓雾星球限制了发挥。箭头是懂推销武器的。
 
+
+*****
+
+####  KafuuChino  
+##### 3383#       发表于 2024-4-27 21:04
+
+AA→Anti-Ally
+空爆绝对有bug，身旁的队友也会触发近炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

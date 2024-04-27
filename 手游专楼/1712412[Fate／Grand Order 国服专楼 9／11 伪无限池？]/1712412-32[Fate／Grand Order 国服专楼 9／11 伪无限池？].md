@@ -518,3 +518,13 @@
 
 两个池子提妈300石歪孔明，兽尼300石一宝跑路，就当前面金时池一发十连两宝还债了
 
+
+*****
+
+####  GALLADE  
+##### 46354#       发表于 2024-4-27 21:00
+
+[https://www.bilibili.com/video/BV1XM4m1Z7bp/](https://www.bilibili.com/video/BV1XM4m1Z7bp/)
+
+还有这么好玩的吗
+

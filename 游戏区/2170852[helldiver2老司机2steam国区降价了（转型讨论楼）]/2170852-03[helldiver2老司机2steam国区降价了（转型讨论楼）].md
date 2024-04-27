@@ -4618,3 +4618,11 @@ AA→Anti-Ally
 玩了二十多小时，越玩越觉得像ff14，队里就算有大佬只要sb把命死没了也很难搞 ...</blockquote>
 确实，他一直搁那扣你的命你毫无办法，除非一个不救就让他待天上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  全装甲夏亚  
+##### 3394#       发表于 2024-4-28 00:04
+
+空爆是真正的队友杀手，刚一局队友都在试玩空爆，70%人头都是空爆，撤离的时候一发死仨队友（
+

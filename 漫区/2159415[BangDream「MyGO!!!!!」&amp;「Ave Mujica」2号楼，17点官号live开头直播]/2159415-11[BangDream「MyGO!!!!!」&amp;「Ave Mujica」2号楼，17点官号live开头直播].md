@@ -15399,3 +15399,22 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 很明显的动画画风啊，手游画风全员包子脸的</blockquote>
 演出服正面设定图
 
+
+*****
+
+####  KirigawaMaki  
+##### 16161#       发表于 2024-4-28 00:00
+
+ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的吗
+小初华长得真俊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  御幸一也  
+##### 16162#       发表于 2024-4-28 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">當然是說明了祥祥在ave mujica過得非常開心呀
+

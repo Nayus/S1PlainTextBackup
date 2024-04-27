@@ -3731,3 +3731,11 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 <img src="https://p.sda1.dev/17/a8b6f1b1fe996c08a63efc07660a7a2c/20240427_120539.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 1081#       发表于 2024-4-27 13:23
+
+cnm 这回这个客服直接说启动了就不给退<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只能认栽了。社区老哥们给点力啊，冲出一个可以退款
+

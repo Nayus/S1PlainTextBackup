@@ -3519,3 +3519,16 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 紧急上修？简直就是天荒夜谈<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12316#       发表于 2024-4-27 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736212&amp;ptid=2084912" target="_blank">枫雨 发表于 2024-4-27 12:38</a>
+
+技能说明文像游戏王一样，花里胡哨的，结果根本用不了
+
+很期待这次的90++或者高难怎么抬青子这种废物卡[f:2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单出个6波7波怪 让你其他队伍刷不动
+

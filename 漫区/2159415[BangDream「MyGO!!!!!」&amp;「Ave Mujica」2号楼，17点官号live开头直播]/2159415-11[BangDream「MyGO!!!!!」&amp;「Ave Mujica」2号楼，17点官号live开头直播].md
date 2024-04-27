@@ -14647,3 +14647,38 @@ https://rognize.lofter.com/post/4c11867b_2bbaeed5d<img src="https://p.sda1.dev/1
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  rslika  
+##### 16083#       发表于 2024-4-27 13:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">历史就像个大圈，2.5次元偶像也逃不出错误的循环
+
+*****
+
+####  麻巳巳  
+##### 16084#       发表于 2024-4-27 13:18
+
+不是别人动态拉出来质问我都没看到，充电还只做狗部分就好笑，哦是啊确实你狗这种占着资源不拉屎的拉胯东西早该切出邦了，真以为自己孩还活在去年啊
+
+
+*****
+
+####  麻巳巳  
+##### 16085#       发表于 2024-4-27 13:24
+
+不说还以为你狗有什么实力让观众可以不看ppp呢
+
+*****
+
+####  downforce  
+##### 16086#       发表于 2024-4-27 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64621679&amp;ptid=2159415" target="_blank">此行远兮 发表于 2024-4-16 22:58</a>
+
+为什么要演奏春日影，官方简中字幕ver
+
+—— 来自 Xiaomi 2106118C, Android 13上的 S1Next-鹅版 v ...</blockquote>
+你这个是放的BD吗？我用PS5放，字幕根本不是这个式样。
+

@@ -15103,3 +15103,11 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rslika  
+##### 16135#       发表于 2024-4-27 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然喷赢了，邦邦遗老成功正名
+

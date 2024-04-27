@@ -4041,3 +4041,17 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 
 建议不点L1+圈的剑气，可以按住防御接闪避，十分安逸，目前一直裸奔玩着感觉也没啥难度
 
+
+*****
+
+####  依存香炉  
+##### 1114#       发表于 2024-4-27 22:54
+
+<img src="https://img.saraba1st.com/forum/202404/27/225420cqxnm0lqckkkxg0x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 22:54 上传
+

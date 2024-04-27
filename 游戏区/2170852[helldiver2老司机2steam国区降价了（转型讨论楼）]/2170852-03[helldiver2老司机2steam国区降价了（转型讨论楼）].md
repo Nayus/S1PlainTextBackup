@@ -4352,3 +4352,20 @@ hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全�
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  rainknine  
+##### 3368#       发表于 2024-4-27 14:51
+
+其实，TCS塔之前的全服命令几乎都是东线的，那个时候感觉西线小透明得要死（
+
+不如说喜欢打虫子的完全可以不在意全服命令嘛，毕竟虫子一直都能打，不陪Joel玩过家家也没问题
+
+*****
+
+####  Aeons  
+##### 3369#       发表于 2024-4-27 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那新玩具大多都是适合东线的呀，西线真是一杆机炮玩到死了
+

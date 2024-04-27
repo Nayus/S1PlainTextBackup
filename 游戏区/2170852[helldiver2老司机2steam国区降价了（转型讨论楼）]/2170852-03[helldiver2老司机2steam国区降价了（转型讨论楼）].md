@@ -4369,3 +4369,13 @@ hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那新玩具大多都是适合东线的呀，西线真是一杆机炮玩到死了
 
+
+*****
+
+####  风萧飒  
+##### 3370#       发表于 2024-4-27 15:07
+
+空爆主要还占个背包位也挺烦的，想想这玩意就算免费用也挺尴尬，我在东线还得把激光狗和类星体丢下去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

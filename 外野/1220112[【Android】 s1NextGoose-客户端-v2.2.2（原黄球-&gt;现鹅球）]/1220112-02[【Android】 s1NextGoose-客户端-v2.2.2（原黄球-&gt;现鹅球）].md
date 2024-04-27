@@ -205,3 +205,11 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 也没有最新fork的GitHub仓库地址，一个个改完传网盘是闹哪样</blockquote>
 [https://github.com/TomoeMami/S1P ... releases/tag/Other1](https://github.com/TomoeMami/S1PlainTextBackup/releases/tag/Other1) 楼主还没上传代码，我先把apk传到我的release里面了
 
+
+*****
+
+####  泰阿剑tan  
+##### 1531#       发表于 2024-4-27 15:05
+
+同样打开鹅球网络错误，现在只能网页版看论坛。
+

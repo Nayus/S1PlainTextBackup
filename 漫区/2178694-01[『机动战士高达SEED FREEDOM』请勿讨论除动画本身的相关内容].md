@@ -8561,3 +8561,13 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  可乐姜饼  
+##### 695#       发表于 2024-4-27 15:07
+
+这演出，脑子没病的拍不出来。难怪叫高达春晚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

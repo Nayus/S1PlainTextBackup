@@ -500,3 +500,13 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  GALLADE  
+##### 46352#       发表于 2024-4-27 15:09
+
+呼符一歪，大公4宝
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好像已经无需抽兽尼了这
+

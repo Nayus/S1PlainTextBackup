@@ -14836,3 +14836,41 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 字幕没了一半约等于花完整的钱买一半的服务，eplus海外又不用翻墙，这种情况下还给这个官号送钱的人我只能说一句尊重祝福了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 16105#       发表于 2024-4-27 15:03
+
+逆天wsd
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  skives  
+##### 16106#       发表于 2024-4-27 15:11
+
+光速滑跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16107#       发表于 2024-4-27 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736846&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-4-27 14:06</a>
+
+哇，之前帮官号说话的现在能不能再帮最好的官号说说话啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16108#       发表于 2024-4-27 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736852&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-4-27 14:07</a>
+
+别急，待会就用爱音对ppp的歌不熟所以做不了字幕来洗</blockquote>
+你是懂語C的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

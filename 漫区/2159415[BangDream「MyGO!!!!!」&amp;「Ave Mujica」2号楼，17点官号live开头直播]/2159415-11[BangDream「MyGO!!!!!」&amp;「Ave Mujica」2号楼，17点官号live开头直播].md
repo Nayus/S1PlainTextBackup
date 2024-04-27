@@ -14955,3 +14955,19 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 看评论说的真好，a团要带个狗牌子才能看live骂了三天都拿不下，人家ppp三小时就滑跪了，不就是挑软柿子区别 ...</blockquote>
 呵呵 我記得這個，唉動畫沒播的底邊團真是鬧麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 16119#       发表于 2024-4-27 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，不愧是营销号炒作狗
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不热度就起来了，红黑也是红！
+
+*****
+
+####  ydsbbt  
+##### 16120#       发表于 2024-4-27 15:49
+
+这回是影响恰米了，才反应这么快。之前怎么冲都只会装死。
+

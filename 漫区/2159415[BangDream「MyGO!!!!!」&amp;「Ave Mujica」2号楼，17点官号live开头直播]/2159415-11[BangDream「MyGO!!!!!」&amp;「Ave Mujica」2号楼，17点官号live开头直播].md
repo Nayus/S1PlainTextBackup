@@ -15309,3 +15309,24 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 说明这个吉他要在台上砸了以后换成有亮片的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16151#       发表于 2024-4-27 22:10
+
+要么对应之前访谈mujica是光，直接给睦的粉红吉他光堕了
+
+要吗就是跟1单一样破坏与创造。
+
+怎么这里也能对应世界观，好微妙。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16152#       发表于 2024-4-27 22:13
+
+幼初祥那两个脸红像对视，我捡了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+唉小小年纪就看红脸了，长大了要做什么我不敢想。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

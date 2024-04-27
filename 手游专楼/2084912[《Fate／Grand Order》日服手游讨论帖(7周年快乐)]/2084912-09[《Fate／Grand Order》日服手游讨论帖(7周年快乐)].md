@@ -3798,3 +3798,11 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 欧洲人的烦恼 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坐等狗萌新过两天豹跳连着出青子和有珠
 
+
+*****
+
+####  森兰丸  
+##### 12345#       发表于 2024-4-27 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">想骂人了.....常态本用3+1这种配置来恶心玩家....正常能刷的本还要限时.....有必要这么恶心人吗
+

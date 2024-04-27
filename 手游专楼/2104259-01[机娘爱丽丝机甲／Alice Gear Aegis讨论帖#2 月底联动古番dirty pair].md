@@ -88,3 +88,13 @@
 
 这CC和卡莲穿GEAR的剧情也太儿戏了吧，最多半天就把gear做出来了，整备部是超人吗
 
+
+*****
+
+####  灰色蔓延  
+##### 1046#       发表于 2024-4-27 16:14
+
+不去解释成反正都穿越了，ADA也福临心至地开发了红莲和高文对应的gear得了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+人家大流士本家来了都要拆机呢
+

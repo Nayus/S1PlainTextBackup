@@ -3594,3 +3594,13 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借100还100，这非常第五法
 
+
+*****
+
+####  都谷捻柏  
+##### 12323#       发表于 2024-4-27 16:14
+
+<blockquote>UNISONIA 发表于 2024-4-27 14:59
+借100还100，这非常第五法</blockquote>
+我觉得奥伯龙这种更像啊，找一回合后的自己贷款。青子这是别人给她投资，最后还亏了（花了时间没有多很多收益）。
+

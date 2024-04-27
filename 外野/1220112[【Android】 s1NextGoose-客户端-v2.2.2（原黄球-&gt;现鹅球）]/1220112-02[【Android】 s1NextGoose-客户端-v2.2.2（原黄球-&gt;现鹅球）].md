@@ -167,3 +167,13 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  UNICORN00  
+##### 1527#       发表于 2024-4-27 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/274.png" referrerpolicy="no-referrer">好耶，有新表情（可惜还是只能按一次，之后点不开
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

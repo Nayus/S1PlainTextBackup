@@ -256,3 +256,25 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  闻道沐心  
+##### 1536#       发表于 2024-4-27 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736771&amp;ptid=1220112" target="_blank">geeky_kappa 发表于 2024-4-27 13:55</a>
+也没有最新fork的GitHub仓库地址，一个个改完传网盘是闹哪样</blockquote>
+因为是QQ群发的灰度测试版本，正常根本不会公开发啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翎羽  
+##### 1537#       发表于 2024-4-27 19:31
+
+我去，鹅球，40楼一页。很流畅，最重要的是更新了表情<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">  
+感谢感谢！！！这段时间一直用的是坛友制作的v2.5.3-play版本，一并感谢
+
+但是似乎还是只能一次性输入所有表情：第一次选择完表情后，打字，第二次再点击表情按钮就弹不出来了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

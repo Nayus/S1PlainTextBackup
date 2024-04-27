@@ -15272,3 +15272,32 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 <img src="https://p.sda1.dev/17/81872477a3d7b90f56d807ef37315a88/CMP_20240427214522391.png" referrerpolicy="no-referrer">面具单列看起来也不错
 
+
+*****
+
+####  PDQ4  
+##### 16147#       发表于 2024-4-27 21:49
+
+睦的吉他还是没有kirakira起来，不是失误了应该，看来明年要么换吉他要么上BUFF？
+
+可以看到砸吉他吗，这对我真的很重要。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 16148#       发表于 2024-4-27 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64741807&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-4-27 21:46</a>
+面具单列看起来也不错</blockquote>
+这头盔明显要包住结月宝那胖脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16149#       发表于 2024-4-27 21:52
+
+期待第二季能看到摘了面具的母鸡卡在舞台上真容演奏的一天
+

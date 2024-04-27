@@ -4542,3 +4542,35 @@ AJAMGP5F6Z9V30}1G77WK$V_tmb.jpg
 
 man, what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3389#       发表于 2024-4-27 21:53
+
+<img src="https://img.saraba1st.com/forum/202404/27/215038m7rp64yo2797bhop.png" referrerpolicy="no-referrer">
+
+<strong>]_S$ML9}4WSX~CG@WPLXQ_S.png</strong> (78.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/215040wqdxdlm5goybk4yy.png" referrerpolicy="no-referrer">
+
+<strong>5RHIJLZ)CPUA11L52RQ}HTR.png</strong> (67.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/215044uh838yhc3731ca33.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240427214530.png</strong> (107.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 21:50 上传
+
+感觉从人设来说这表信号灯3v3就不太乐观，看访谈说如今的表红原本才是对手役，结果后来和里红换位了才成功上位当红c。让我想起了国产网文遮天里原本大纲主角叫王腾的来着，结果后面改成当主角的垫脚石反派了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

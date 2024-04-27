@@ -3638,3 +3638,35 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 这次的大奖是免费的草十郎吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12328#       发表于 2024-4-27 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738347&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-27 17:19</a>
+
+哦哦哦哦 今天给的抽终于抽出伊利亚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们都这么欧呢（
+
+*****
+
+####  qixinno2  
+##### 12329#       发表于 2024-4-27 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738865&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 18:18</a>
+
+为什么你们都这么欧呢（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发石头和呼符了 萌新快去抽啊 必出
+
+
+*****
+
+####  alucardcz  
+##### 12330#       发表于 2024-4-27 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738888&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 18:21</a>
+
+发石头和呼符了 萌新快去抽啊 必出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽完了 无事发生 甚至礼装都没有 萌新为什么不能欧一把呢
+

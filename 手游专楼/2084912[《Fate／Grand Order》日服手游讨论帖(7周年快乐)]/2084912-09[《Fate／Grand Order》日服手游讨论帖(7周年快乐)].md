@@ -3495,3 +3495,27 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">直接商店兑换啊 
 
+
+*****
+
+####  枫雨  
+##### 12314#       发表于 2024-4-27 12:38
+
+技能说明文像游戏王一样，花里胡哨的，结果根本用不了
+
+很期待这次的90++或者高难怎么抬青子这种废物卡<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+如果90++这种废物都能乱杀，其他卡不是随便起飞？
+
+*****
+
+####  枫雨  
+##### 12315#       发表于 2024-4-27 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731791&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-4-26 23:19</a>
+
+青子这强度不需要紧急上修么...................很有问题吧</blockquote>
+都要放五一黄金周了，以lxs社一贯的嘴脸，顶多在一年后给你弄个强化就完事了。
+
+紧急上修？简直就是天荒夜谈<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

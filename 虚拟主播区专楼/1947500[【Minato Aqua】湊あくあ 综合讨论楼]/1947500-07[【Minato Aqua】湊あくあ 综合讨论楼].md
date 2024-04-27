@@ -79,3 +79,13 @@
 
 还是说一开始就奔着双太刀去cos桐人了，那力敏菜刀流也算是受点苦
 
+
+*****
+
+####  离魂仙  
+##### 9726#       发表于 2024-4-27 12:42
+
+丝血斩杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">似曾相识的一幕
+
+打个大树1个小时出头，比预想中的慢了些，明显可以很快拿捏的，心态毛躁了
+

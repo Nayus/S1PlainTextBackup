@@ -3440,3 +3440,25 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 才发现每日三次减半了，以后活动期是打算送果+减半还是逐渐变成不送果只减半呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12308#       发表于 2024-4-27 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734278&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 08:17</a>
+
+艹 出了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 这就是欧皇吗 萌新为什么从来没欧过
+
+
+*****
+
+####  qixinno2  
+##### 12309#       发表于 2024-4-27 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64735834&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-27 11:56</a>
+
+哎 这就是欧皇吗 萌新为什么从来没欧过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说自己没欧过的狗萌新 你敢亮出今年的五星出货么 
+

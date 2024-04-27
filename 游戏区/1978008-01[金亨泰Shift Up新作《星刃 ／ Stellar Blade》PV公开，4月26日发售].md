@@ -4063,3 +4063,28 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 
 荒原清了半天支线，多少有点无聊
 
+
+*****
+
+####  葵  
+##### 1116#       发表于 2024-4-27 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64740898&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-4-27 20:55</a>
+
+就是只有那几件么，大部分不受影响？</blockquote>
+好像就三件加了点布，而且关键那三件又不是最色露出度最高的，搞不懂索尼的审查什么脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jbjack1215  
+##### 1117#       发表于 2024-4-27 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742359&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-27 22:34</a>
+
+据说SE的新社长已经给安排上了，而且有可能用夜光引擎做</blockquote>
+nier3 夜光?
+
+哪的消息阿
+
+如果不找吉田明彥，人物設計很難有2代高度
+

@@ -15346,3 +15346,20 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">五一北京IDO武士道又来摆摊了，这次又有卖啥的啊【现在mygo总该过气了没那么多人了吧】
 
+
+*****
+
+####  米拉苏尔  
+##### 16155#       发表于 2024-4-27 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742787&amp;ptid=2159415" target="_blank">swessia 发表于 2024-4-27 23:12</a>
+五一北京IDO武士道又来摆摊了，这次又有卖啥的啊【现在mygo总该过气了没那么多人了吧】 ...</blockquote>
+不信，肯定长队排死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 16156#       发表于 2024-4-27 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">上次元旦是青木凛来了（还有C103场贩）排队排的久，这回应该还好吧
+

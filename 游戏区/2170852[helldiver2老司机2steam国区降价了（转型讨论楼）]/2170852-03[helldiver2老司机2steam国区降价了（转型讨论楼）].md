@@ -4607,3 +4607,14 @@ AA→Anti-Ally
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了二十多小时，越玩越觉得像ff14，队里就算有大佬只要sb把命死没了也很难搞
 
+
+*****
+
+####  FLZB  
+##### 3393#       发表于 2024-4-27 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742742&amp;ptid=2170852" target="_blank">qwased 发表于 2024-4-27 23:09</a>
+
+玩了二十多小时，越玩越觉得像ff14，队里就算有大佬只要sb把命死没了也很难搞 ...</blockquote>
+确实，他一直搁那扣你的命你毫无办法，除非一个不救就让他待天上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3895,3 +3895,21 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 五星绿卡术光炮目前人数还是0，可以填空缺</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那岂不是更没救了，你游经典砍绿光炮NP率
 
+
+*****
+
+####  史蒂符  
+##### 12355#       发表于 2024-4-28 07:16
+
+有珠：会赢的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/28/071648y44cplcskgk1gtzi.jpg" referrerpolicy="no-referrer">
+
+<strong>D8803485-DBEF-436C-A892-6611F5BB7366.jpg</strong> (225.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 07:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

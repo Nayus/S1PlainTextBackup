@@ -3959,3 +3959,18 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 —— 来自 samsung SM-G9758, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
 就是只有那几件么，大部分不受影响？
 
+
+*****
+
+####  jacket  
+##### 1105#       发表于 2024-4-27 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64739063&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-4-27 18:37</a>
+
+感觉是的，我这遇到两个点试了20次确实过不去</blockquote>
+找到两个不太一样的跳法过某些点
+
+一处是跳脚手架，先向外跳，空中再反向闪避，挂到上一层
+
+另一处有斜坡助跑，起跳、空中闪避，靠中间就趴不到对面的边，但是靠右起跳就能成功扒到边
+

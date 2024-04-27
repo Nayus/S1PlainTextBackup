@@ -4733,3 +4733,13 @@ AA→Anti-Ally
 
 每次更新bug全都“凑巧”出在能恶心你的地方，什么机甲自爆，重机枪歪准星（至今没修复），爆炸吸附，类星体自爆，连空爆也说有射出去立马在脸上爆的问题，箭头哪次更新是能让你好好玩的？说是程序失误你信吗？我反正不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 3406#       发表于 2024-4-28 07:30
+
+类星体自爆是什么，我甚至还是第一次听说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

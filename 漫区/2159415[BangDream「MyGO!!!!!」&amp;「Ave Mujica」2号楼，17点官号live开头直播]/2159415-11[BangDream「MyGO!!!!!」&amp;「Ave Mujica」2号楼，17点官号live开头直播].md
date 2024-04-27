@@ -15121,3 +15121,17 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 虽然这官号现在操作这样估计也没什么人愿意在上面买票就是了，本来就比eplus贵还延迟，现在甚至有阉割风险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 16137#       发表于 2024-4-27 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64739014&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-4-27 18:32</a>
+这是麻弥？
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+绿色的当然是
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

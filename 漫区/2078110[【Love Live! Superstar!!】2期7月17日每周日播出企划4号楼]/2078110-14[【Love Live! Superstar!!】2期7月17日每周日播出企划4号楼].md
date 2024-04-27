@@ -1615,3 +1615,13 @@ blt拍的真不错啊（顺便吐槽星按人气倾斜是最近才流行的是�
 
 星2希奈子可是也爆出过迷惑发言的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20095#       发表于 2024-4-27 16:33
+
+不是，这才过去一年多“唯一正常人”称号就易主了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4400,3 +4400,13 @@ hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  大肥鸽子  
+##### 3373#       发表于 2024-4-27 16:34
+
+话说机炮适合打炮艇和运输机吗，之前打引擎也没啥用的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

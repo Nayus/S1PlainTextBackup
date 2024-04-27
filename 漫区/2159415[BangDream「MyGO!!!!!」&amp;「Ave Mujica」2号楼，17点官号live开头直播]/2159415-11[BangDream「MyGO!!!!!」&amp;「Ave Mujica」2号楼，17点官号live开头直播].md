@@ -15363,3 +15363,39 @@ S1傳不了那麼大的圖，只好壓一下<img src="https://static.saraba1st.c
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">上次元旦是青木凛来了（还有C103场贩）排队排的久，这回应该还好吧
 
+
+*****
+
+####  Aendst  
+##### 16157#       发表于 2024-4-27 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个正面设定图看着是手游画风
+
+*****
+
+####  NODY  
+##### 16158#       发表于 2024-4-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743146&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-27 23:38</a>
+
+这个正面设定图看着是手游画风</blockquote>
+很明显的动画画风啊，手游画风全员包子脸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16159#       发表于 2024-4-27 23:40
+
+什么时候出小小祥的周边<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 16160#       发表于 2024-4-27 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743182&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-27 23:40</a>
+
+很明显的动画画风啊，手游画风全员包子脸的</blockquote>
+演出服正面设定图
+

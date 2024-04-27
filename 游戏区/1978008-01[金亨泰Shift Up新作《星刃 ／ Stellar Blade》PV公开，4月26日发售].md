@@ -4101,3 +4101,22 @@ nier3 夜光?
 哪的消息阿</blockquote>
 夜光组被并入第二开发部了，新社长不让搞外包了，基本后续的3A作全社内，前夜光头头的一个演讲介绍说他在做新3A
 
+
+*****
+
+####  哎哟卧槽了  
+##### 1119#       发表于 2024-4-27 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743020&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-27 23:28</a>
+夜光组被并入第二开发部了，新社长不让搞外包了，基本后续的3A作全社内，前夜光头头的一个演讲介绍说他在 ...</blockquote>
+別再搞出下一個forspoken就好
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天王寺綯  
+##### 1120#       发表于 2024-4-27 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">问题来了，尼尔算得上3a吗
+

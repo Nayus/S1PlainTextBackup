@@ -4340,3 +4340,15 @@ bug修的少了么？你自己翻翻更新列表人家修了多少了？发现�
 
 骂完记得玩
 
+
+*****
+
+####  大肥鸽子  
+##### 3367#       发表于 2024-4-27 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733883&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-27 05:02</a>
+hd2算是我见过最烂程序的最烂策划的游戏了。发售两个月全是bug不修同时，整的主线全是打机器人而不是社区喜 ...</blockquote>
+主线有过好几次东线相关吧，目前剧情可以理解为东线为了西线服务，东线最大的价值就是作为石油开采基地，等到终结族威胁程度加大后说不定主要任务又都是打虫子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

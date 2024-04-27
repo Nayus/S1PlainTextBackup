@@ -15025,3 +15025,19 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 还有这种角度，那看来运营是个高手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16127#       发表于 2024-4-27 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真是姐姐又妹妹啊，你們有這樣既洗腳婢還要一起挨打的姐妹嗎？
+
+*****
+
+####  相坂君  
+##### 16128#       发表于 2024-4-27 17:22
+
+原来这就是一直宣传姐妹团的作用？这回挨打不是单个姐妹有，而是姐姐妹妹都能一起挨打，这就是端水啊端水
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实在不行还有语擦，我看之前有些粉丝挺喜欢的，问就是staff A不熟别的团
+

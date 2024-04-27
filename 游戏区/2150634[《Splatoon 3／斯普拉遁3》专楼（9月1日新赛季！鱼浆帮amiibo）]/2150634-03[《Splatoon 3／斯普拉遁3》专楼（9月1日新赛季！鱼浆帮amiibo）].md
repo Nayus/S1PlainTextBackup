@@ -12632,3 +12632,12 @@ cnm今晚新卷堡真的是贵物开会了</blockquote>
 —— 来自 S1Fun</blockquote>
 K也没K得多少的菜狗，2wave还把大都开了就18个<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">正常打两wave上十七八也不算很难的事情，把搬蛋都放弃了才这么点属实狗屎<img src="https://p.sda1.dev/17/99a5d93dde17558edceba5e4faefd326/CMP_20240427132024939.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4231#       发表于 2024-4-27 17:00
+
+-2感度有这转向幅度应该是够了吧，再大幅度就必须结合右摇杆了，俩一起操作至今依然会手忙脚乱
+<img src="https://s1.locimg.com/2024/04/27/dc20aa010bb71.gif" referrerpolicy="no-referrer">
+

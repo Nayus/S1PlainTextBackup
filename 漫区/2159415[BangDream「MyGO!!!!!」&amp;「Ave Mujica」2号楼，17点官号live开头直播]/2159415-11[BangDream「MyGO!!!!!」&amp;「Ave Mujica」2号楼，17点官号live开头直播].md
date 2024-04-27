@@ -15057,3 +15057,27 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 已经改成整场中字了，横批，官方幽默
 
+
+*****
+
+####  zzhh0131  
+##### 16131#       发表于 2024-4-27 17:55
+
+取关了，啥时候分号了喊我来自: iPhone客户端
+
+
+*****
+
+####  -LYRE-  
+##### 16132#       发表于 2024-4-27 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738152&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-4-27 16:54</a>
+希望🐔不会被波及太多
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼b站评论区，好些帮着贷款mujica和双R对邦时双R没字幕的
+贴吧首页还推送了个骂官方只知道🐔🐶的
+
+好事没见给🐔摊点，挨骂了却是肯定要🐔🐶一起的
+这就是我们官号的“姐妹团”呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

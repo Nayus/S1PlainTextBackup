@@ -12641,3 +12641,11 @@ K也没K得多少的菜狗，2wave还把大都开了就18个<img src="https://st
 -2感度有这转向幅度应该是够了吧，再大幅度就必须结合右摇杆了，俩一起操作至今依然会手忙脚乱
 <img src="https://s1.locimg.com/2024/04/27/dc20aa010bb71.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  carroy  
+##### 4232#       发表于 2024-4-27 20:32
+
+为什么拿到了铅笔还不站在高台顶上还要满地乱爬<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

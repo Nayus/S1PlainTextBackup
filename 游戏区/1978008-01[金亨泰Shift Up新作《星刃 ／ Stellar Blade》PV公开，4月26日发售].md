@@ -3867,3 +3867,36 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 
 奇迹2那种真预告骗都冲不出退款，剑星不看好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2077索尼给退也不是宣传的问题，那是游戏都没法正常玩
 
+
+*****
+
+####  ohi.02  
+##### 1096#       发表于 2024-4-27 20:27
+
+强制解密真的好讨厌，看个时钟都能把人卡主
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  塔尔洛斯  
+##### 1097#       发表于 2024-4-27 20:31
+
+<img src="https://img.saraba1st.com/forum/202404/27/203141v1k0vg119v71wkzi.png" referrerpolicy="no-referrer">
+
+<strong>387428c062576abfe929147dab4b320a.png</strong> (60.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 20:31 上传
+
+不知信息源，但是…
+
+
+*****
+
+####  卡博雷z  
+##### 1098#       发表于 2024-4-27 20:34
+
+刚想着半天没新衣服解锁，情报商人那就能买到四个设计图
+

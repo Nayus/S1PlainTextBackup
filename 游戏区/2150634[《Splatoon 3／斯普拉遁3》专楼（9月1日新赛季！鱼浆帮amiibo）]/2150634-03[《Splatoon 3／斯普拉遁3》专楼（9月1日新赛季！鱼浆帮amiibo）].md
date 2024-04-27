@@ -12570,3 +12570,11 @@ cnm今晚新卷堡真的是贵物开会了<img src="https://static.saraba1st.com
 
 欧美玩家更倾向于低灵敏度，手腕大动作
 
+
+*****
+
+####  laosai13  
+##### 4225#       发表于 2024-4-27 10:47
+
+人累真的不能打喷，感觉看对手都在瞬移<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -3661,3 +3661,11 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 领预购之类的衣服还是要联网的，不想断网了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 1074#       发表于 2024-4-27 10:55
+
+干 睡过了 退款客服又要重新排<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看了眼之前的回复，一上来就问我是不是有实体版
+

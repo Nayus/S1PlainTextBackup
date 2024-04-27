@@ -309,3 +309,18 @@ GitHub有earlyaccess的release啊
 
 —— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  zmw_831110  
+##### 1541#       发表于 2024-4-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64739612&amp;ptid=1220112" target="_blank">翎羽 发表于 2024-4-27 19:31</a>
+我去，鹅球，40楼一页。很流畅，最重要的是更新了表情  
+感谢 ...</blockquote>
+这个毛病是随手机的。。。我之前几个手机就10T Pro有点击图片按钮就是一次性这个毛病，其他设备都没有这个问题
+
+建议换手机呢
+
+—— 来自 HONOR MAA-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

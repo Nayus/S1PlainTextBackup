@@ -4639,3 +4639,20 @@ AA→Anti-Ally
 
 防守十球任务恰恰就是鬼佬在discord宣传机器人要夺回麦河，一窝蜂的在特力贡星域疯狂阻击反复拉锯才打出10防守的。
 
+
+*****
+
+####  frosta  
+##### 3396#       发表于 2024-4-28 01:04
+
+爆炸吸附我咋感觉机炮也有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 3397#       发表于 2024-4-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743496&amp;ptid=2170852" target="_blank">全装甲夏亚 发表于 2024-4-28 00:04</a>
+空爆是真正的队友杀手，刚一局队友都在试玩空爆，70%人头都是空爆，撤离的时候一发死仨队友（ ...</blockquote>
+对（披风）虫特攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

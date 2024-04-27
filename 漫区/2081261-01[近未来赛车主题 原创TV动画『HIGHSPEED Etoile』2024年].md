@@ -10,3 +10,23 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KDConan  
+##### 277#       发表于 2024-4-27 09:49
+
+连续两集都没有赛车，还都用同一个故事模板也是神奇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是这集1.25倍速我看得挺乐的，还有古畑任三郎梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 277#       发表于 2024-4-27 09:49
+
+连续两集都没有赛车，还都用同一个故事模板也是神奇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是这集1.25倍速我看得挺乐的，还有古畑任三郎梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

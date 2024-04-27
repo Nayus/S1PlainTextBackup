@@ -3391,3 +3391,265 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 毫无指引的情况下还塞了一堆隐藏要素（包括一件衣服），操作起重机又特别抽象，不反复上蹿下跳根本不知道应该停在那
 
+
+*****
+
+####  ky7913  
+##### 1060#       发表于 2024-4-27 07:09
+
+ 本帖最后由 ky7913 于 2024-4-27 07:11 编辑 
+<blockquote>ku2154513 发表于 2024-4-27 02:45
+打的也太快了，流程这么短的吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+全收集要40-50小时的，他明显是为了冲剧情才玩这么快
+
+*****
+
+####  Mr.Hopp  
+##### 1061#       发表于 2024-4-27 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731743&amp;ptid=1978008" target="_blank">loliwansui87 发表于 2024-4-26 23:13</a>
+
+你再认真看看我的图，人家问的是滚回befor the censorship，老金回答的是final costume，都是指衣服的出场 ...</blockquote>
+所以为什么信誓旦旦一开始说不会和谐让人蒙蔽。真就为了骗一波也不至于啊。
+
+*****
+
+####  operatbig  
+##### 1062#       发表于 2024-4-27 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733521&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-27 02:12</a>
+
+前前暴雪员工及《暗黑破坏神2》《星际争霸》制作人Grummz在推上发起「Free Stellar Blade」请愿活动，有兴 ...</blockquote>
+这逼又在蹭。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loliwansui87  
+##### 1063#       发表于 2024-4-27 08:02
+
+ 本帖最后由 loliwansui87 于 2024-4-27 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734107&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-4-27 07:35</a>
+
+所以为什么信誓旦旦一开始说不会和谐让人蒙蔽。真就为了骗一波也不至于啊。 ...</blockquote>
+营运给高层暴雷的事多了去，你要不看看最近漫区的高达seed，那边万代现在头都大了，这次只不过是老金自己屁股也不干净罢了，要不然怎么也无法解释出厂盘和媒体版完全对不上这种离谱的事，和谐素材和测试是要时间的，有时间给媒体版打补丁却没时间重新压出厂盘肯定和shift up知情不报脱不了关系的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 1064#       发表于 2024-4-27 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733635&amp;ptid=1978008" target="_blank">陈词与芍药 发表于 2024-4-27 02:44</a>
+真结局达成，其他的结局等会云下
+真的是金玉其外 败絮其中，没有音乐和美术（角色设计）这游戏最多7分[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就说了这是一个卖画的手游厂搞出来的第一部主机作品
+对他有期待是你的不对
+
+*****
+
+####  jxzeroga0  
+##### 1065#       发表于 2024-4-27 08:46
+
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价
+
+*****
+
+####  缺德猫  
+##### 1066#       发表于 2024-4-27 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734408&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-4-27 08:46</a>
+
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价 ...</blockquote>
+感觉还是返工太多，如果立项时规划好，质量能上一个台阶。
+
+*****
+
+####  陈词与芍药  
+##### 1067#       发表于 2024-4-27 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733640&amp;ptid=1978008" target="_blank">ku2154513 发表于 2024-4-26 14:45</a>
+打的也太快了，流程这么短的吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+17h+，不短了，我是为了真结局多肝了会支线，真速通主线10小时就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 1068#       发表于 2024-4-27 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734408&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-4-26 20:46</a>
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价 ...</blockquote>
+因为要素材复用的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 1069#       发表于 2024-4-27 09:52
+
+首日好像100W销量，玩家闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 1070#       发表于 2024-4-27 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">没办法，主机玩家太饥渴了.jpg
+
+*****
+
+####  陈词与芍药  
+##### 1071#       发表于 2024-4-27 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734358&amp;ptid=1978008" target="_blank">天王寺綯 发表于 2024-4-26 20:35</a>
+早就说了这是一个卖画的手游厂搞出来的第一部主机作品
+对他有期待是你的不对 ...</blockquote>
+我之前听说剑星剧情一比一像素级复刻尼尔机械纪元我才开始期待，结果不是复刻，是拙劣的模仿，还缝了一堆好的坏的（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ky7913  
+##### 1072#       发表于 2024-4-27 10:27
+
+<blockquote>陈词与芍药 发表于 2024-4-27 10:06
+我之前听说剑星剧情一比一像素级复刻尼尔机械纪元我才开始期待，结果不是复刻，是拙劣的模仿，还缝了一堆 ...</blockquote>
+我一直关注剑星的新闻，没看到过这么说啊，虽然尼尔确实是金亨泰参考的游戏素材之一
+
+
+*****
+
+####  ky7913  
+##### 1060#       发表于 2024-4-27 07:09
+
+ 本帖最后由 ky7913 于 2024-4-27 07:11 编辑 
+<blockquote>ku2154513 发表于 2024-4-27 02:45
+打的也太快了，流程这么短的吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+全收集要40-50小时的，他明显是为了冲剧情才玩这么快
+
+*****
+
+####  Mr.Hopp  
+##### 1061#       发表于 2024-4-27 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731743&amp;ptid=1978008" target="_blank">loliwansui87 发表于 2024-4-26 23:13</a>
+
+你再认真看看我的图，人家问的是滚回befor the censorship，老金回答的是final costume，都是指衣服的出场 ...</blockquote>
+所以为什么信誓旦旦一开始说不会和谐让人蒙蔽。真就为了骗一波也不至于啊。
+
+*****
+
+####  operatbig  
+##### 1062#       发表于 2024-4-27 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733521&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-4-27 02:12</a>
+
+前前暴雪员工及《暗黑破坏神2》《星际争霸》制作人Grummz在推上发起「Free Stellar Blade」请愿活动，有兴 ...</blockquote>
+这逼又在蹭。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  loliwansui87  
+##### 1063#       发表于 2024-4-27 08:02
+
+ 本帖最后由 loliwansui87 于 2024-4-27 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734107&amp;ptid=1978008" target="_blank">Mr.Hopp 发表于 2024-4-27 07:35</a>
+
+所以为什么信誓旦旦一开始说不会和谐让人蒙蔽。真就为了骗一波也不至于啊。 ...</blockquote>
+营运给高层暴雷的事多了去，你要不看看最近漫区的高达seed，那边万代现在头都大了，这次只不过是老金自己屁股也不干净罢了，要不然怎么也无法解释出厂盘和媒体版完全对不上这种离谱的事，和谐素材和测试是要时间的，有时间给媒体版打补丁却没时间重新压出厂盘肯定和shift up知情不报脱不了关系的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 1064#       发表于 2024-4-27 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733635&amp;ptid=1978008" target="_blank">陈词与芍药 发表于 2024-4-27 02:44</a>
+真结局达成，其他的结局等会云下
+真的是金玉其外 败絮其中，没有音乐和美术（角色设计）这游戏最多7分[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早就说了这是一个卖画的手游厂搞出来的第一部主机作品
+对他有期待是你的不对
+
+*****
+
+####  jxzeroga0  
+##### 1065#       发表于 2024-4-27 08:46
+
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价
+
+*****
+
+####  缺德猫  
+##### 1066#       发表于 2024-4-27 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734408&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-4-27 08:46</a>
+
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价 ...</blockquote>
+感觉还是返工太多，如果立项时规划好，质量能上一个台阶。
+
+*****
+
+####  陈词与芍药  
+##### 1067#       发表于 2024-4-27 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733640&amp;ptid=1978008" target="_blank">ku2154513 发表于 2024-4-26 14:45</a>
+打的也太快了，流程这么短的吗
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+17h+，不短了，我是为了真结局多肝了会支线，真速通主线10小时就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 1068#       发表于 2024-4-27 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734408&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-4-26 20:46</a>
+第二章的研究所做得还蛮有诚意，关卡设计颇有死亡空间八九成功力了，值回票价 ...</blockquote>
+因为要素材复用的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr.Hopp  
+##### 1069#       发表于 2024-4-27 09:52
+
+首日好像100W销量，玩家闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 1070#       发表于 2024-4-27 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">没办法，主机玩家太饥渴了.jpg
+
+*****
+
+####  陈词与芍药  
+##### 1071#       发表于 2024-4-27 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734358&amp;ptid=1978008" target="_blank">天王寺綯 发表于 2024-4-26 20:35</a>
+早就说了这是一个卖画的手游厂搞出来的第一部主机作品
+对他有期待是你的不对 ...</blockquote>
+我之前听说剑星剧情一比一像素级复刻尼尔机械纪元我才开始期待，结果不是复刻，是拙劣的模仿，还缝了一堆好的坏的（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ky7913  
+##### 1072#       发表于 2024-4-27 10:27
+
+<blockquote>陈词与芍药 发表于 2024-4-27 10:06
+我之前听说剑星剧情一比一像素级复刻尼尔机械纪元我才开始期待，结果不是复刻，是拙劣的模仿，还缝了一堆 ...</blockquote>
+我一直关注剑星的新闻，没看到过这么说啊，虽然尼尔确实是金亨泰参考的游戏素材之一
+

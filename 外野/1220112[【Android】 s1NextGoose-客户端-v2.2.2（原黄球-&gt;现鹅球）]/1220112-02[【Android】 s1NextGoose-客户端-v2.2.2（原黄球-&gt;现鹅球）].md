@@ -86,3 +86,45 @@ s1fun倒是整个抽掉了，但不支持从网页同步黑名单，还是喜欢
 好起来了，终于好用起来了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 换回α版
 
+
+*****
+
+####  StarCrusader  
+##### 1519#       发表于 2024-4-27 08:34
+
+求问大家，鹅球最近打开就显示网络错误怎么解决？刚升级到最新3.0也不行……大概一个月前还好好的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Destiny4073  
+##### 1520#       发表于 2024-4-27 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734353&amp;ptid=1220112" target="_blank">StarCrusader 发表于 2024-4-27 08:34</a>
+求问大家，鹅球最近打开就显示网络错误怎么解决？刚升级到最新3.0也不行……大概一个月前还好好的 ...</blockquote>
+如果只有某个板块打不开就是论坛的bug
+
+
+*****
+
+####  StarCrusader  
+##### 1521#       发表于 2024-4-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734400&amp;ptid=1220112" target="_blank">Destiny4073 发表于 2024-4-27 08:45</a>
+
+如果只有某个板块打不开就是论坛的bug</blockquote>
+不是，是整个App都打不开，一打开最下面显示“发生了网络错误”<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+手机浏览器看论坛没问题…………
+
+*****
+
+####  布拉德莱恩  
+##### 1522#       发表于 2024-4-27 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64730846&amp;ptid=1220112" target="_blank">被雨困住的城市 发表于 2024-4-26 21:41</a>
+
+作者做了3.0.0的阿尔法版，但是毕竟是阿尔法版，可能有bug
+
+https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
+作者有考虑过更新到github上么？或者试试重上play store?<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

@@ -447,3 +447,28 @@
 
 提妈100抽没出，兽尼十连到手<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 46346#       发表于 2024-4-27 08:27
+
+<img src="https://p.sda1.dev/17/ee1ec0b603f2edadf71d5670d9408fff/CMP_20240427082629533.jpg" referrerpolicy="no-referrer">
+保底那次十连出了俩<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 46347#       发表于 2024-4-27 08:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪了三单才出 我是傻逼
+
+*****
+
+####  JOHNCHCHAN  
+##### 46348#       发表于 2024-4-27 10:14
+
+900石全清空才2宝兽尼，四星就出了个黄飞虎，倒是当期四星10宝了，没颜值没强度还占用欧气，气到我想全卖了换黄方块
+

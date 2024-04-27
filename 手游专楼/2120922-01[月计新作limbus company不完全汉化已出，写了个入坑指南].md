@@ -267,3 +267,25 @@
 
 我更好奇星光会不会部分继承/转化（做梦）
 
+
+*****
+
+####  Jamaisvu  
+##### 657#       发表于 2024-4-27 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731187&amp;ptid=2120922" target="_blank">salic428 发表于 2024-4-26 22:14</a>
+
+冷知识，目前刚好有100个人格，然后菲利普是第101个：</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202404/27/090911e4jlp4j45d4wg7b1.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (98.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 09:09 上传
+
+月计：保留星光？想得挺美啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都给我回到同一起跑线上吧！
+
+（以后每赛季镜牢更新都得重刷一遍天赋树，想想就酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

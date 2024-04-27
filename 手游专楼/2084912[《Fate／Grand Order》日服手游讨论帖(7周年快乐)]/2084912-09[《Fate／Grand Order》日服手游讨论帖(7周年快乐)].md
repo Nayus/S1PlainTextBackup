@@ -3320,3 +3320,107 @@ BB这 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几年没上邮箱任务给的石头还不少,抽到1宝,收工
 
+
+*****
+
+####  清河子  
+##### 12296#       发表于 2024-4-27 07:45
+
+青子卡面有点失望，尤其3破脸真接受不来，很喜欢满破但满破绑定3破立绘的设定实在太烦了，最后还是调到2破用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（本来想着俩十连赌一宝收藏，结果没忍住抽了好多才出。可恶，下个池子变得渺茫起来……说实话纯为当年第一次看第五法的目瞪口呆买单的，还是原作演出更好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看到有跟琼安公主的组队还不错，可惜我琼安没练满，青子现在也8106，还是想省点儿QP和素材。
+
+题外话，草十郎本体还行（技能名好酷炫啊触动了我的中二之魂<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">），10年后那寸头立绘真是看得我汗流浃背，初登场的10+草十郎还给近景特写演出，我在手机前面当场一个后仰……
+
+小山你先死缓，缓是为了有珠，要是有珠落地卡面……<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清河子  
+##### 12297#       发表于 2024-4-27 07:47
+
+对了，不得不喷一下这个远古追加怪设计，明明可以一面6怪了还整这出，强行周回6t，搞笑吗<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 12298#       发表于 2024-4-27 08:02
+
+地图里藏时间提示，梦回第一次万圣了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qixinno2  
+##### 12299#       发表于 2024-4-27 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 出了
+
+ZVSS}AM673`1_4YXK`_L[@8.jpg
+(325.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-27 08:17 上传
+
+<img src="https://img.saraba1st.com/forum/202404/27/081724iyr5wi57f587wgwt.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ATEX  
+##### 12300#       发表于 2024-4-27 08:29
+
+草哥升技能要的花去哪刷啊，预感有珠大概率也要这玩意
+
+*****
+
+####  Jamaisvu  
+##### 12301#       发表于 2024-4-27 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734331&amp;ptid=2084912" target="_blank">ATEX 发表于 2024-4-27 08:29</a>
+
+草哥升技能要的花去哪刷啊，预感有珠大概率也要这玩意</blockquote>
+终之花吗，奏章II的自宅掉率最高。
+
+不过有珠也可能会吃新素材黄金釜，掉率最高是把西新宿两个free本打通后开放的新宿御苑（副产物也有花）。
+
+不过现在是活动期间，刷free本可能有点浪费体力，白方块够的话直接换得了，2块一个花。
+
+*****
+
+####  khxooo  
+##### 12302#       发表于 2024-4-27 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734278&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-27 08:17</a>
+艹 出了</blockquote>
+欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beer  
+##### 12303#       发表于 2024-4-27 09:18
+
+ 本帖最后由 beer 于 2024-4-27 09:26 编辑 
+
+青子变身后提升buff好像是永续的，高难长线好像能玩，但是周回完全用不上，估计本次活动高难会有针对骗氪
+但卡面我是打死不抽
+
+*****
+
+####  qixinno2  
+##### 12304#       发表于 2024-4-27 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734538&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-27 09:08</a>
+
+欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用了下 感觉是个意义不明的卡
+
+*****
+
+####  GuDaZi  
+##### 12305#       发表于 2024-4-27 10:11
+
+就看后面的有珠了
+

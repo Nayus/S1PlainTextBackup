@@ -246,3 +246,13 @@ https://cowtransfer.com/s/be5b04772b8845 点 ...</blockquote>
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Freakyyu  
+##### 1535#       发表于 2024-4-27 18:56
+
+想备份换到α版但是显示读写错误，权限是都给了的也找不到原因<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

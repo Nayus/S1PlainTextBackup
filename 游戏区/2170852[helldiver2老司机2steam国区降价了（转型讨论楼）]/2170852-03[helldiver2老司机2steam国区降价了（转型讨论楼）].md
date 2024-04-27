@@ -4664,3 +4664,17 @@ AA→Anti-Ally
 
 另外感觉这游戏有和splatoon一样的毛病，有更新-玩的人多-野队匹配突然变得很难玩而且网络水平极其屎<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3399#       发表于 2024-4-28 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744231&amp;ptid=2170852" target="_blank">frosta 发表于 2024-4-28 01:04</a>
+
+爆炸吸附我咋感觉机炮也有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别听他吹特性，现在玩家除了手雷，所有爆炸属性都是吸人
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">穿个重甲去对墙自爆就知道了，嫌麻烦就丢120或者110站边上
+
+手雷正常炸出去我怀疑是伤害来源判定是来自“手雷”这物体，而不是玩家，或者玩家把手雷丢出去，手雷视为独立个体
+

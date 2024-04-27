@@ -14735,3 +14735,68 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 别急，待会就用爱音对ppp的歌不熟所以做不了字幕来洗<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1a不解释  
+##### 16093#       发表于 2024-4-27 14:14
+
+我记得上次的充电视频也是有的歌有字幕有的没有，似乎如果是之前mv里面就有中文翻译的话，充电视频里面的歌就也有，没有的话，就也没有
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aendst  
+##### 16094#       发表于 2024-4-27 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了十几年二偶了，这种情况还是第一次见
+
+*****
+
+####  PDQ4  
+##### 16095#       发表于 2024-4-27 14:17
+
+不熟，指歌少的时候翻唱。
+
+运营总能给整出点新活，你们有这样的二偶运营吗，真是二二又偶偶啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16096#       发表于 2024-4-27 14:18
+
+我这下真有点怀疑这官号皮下的成分了，不会真是个只认识热门角色的纯ylg吧，玩新出的烂梗速度飞快，生日只发爱祥这样人气高二创多的角色，老团更是不认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 16097#       发表于 2024-4-27 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64736915&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-27 14:16</a>
+
+看了十几年二偶了，这种情况还是第一次见</blockquote>
+这是日元不断贬值，中华炮价值不断凸显而带来的新局面新发现。武士道运营面临的老钟老团粉丝不满的新困难新挑战亟待解决啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 16098#       发表于 2024-4-27 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是武士道充满生命力的创新，其他运营做得到吗
+
+*****
+
+####  PDQ4  
+##### 16099#       发表于 2024-4-27 14:22
+
+没学到精髓啊，快进到临时工背锅。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 16100#       发表于 2024-4-27 14:23
+
+看笑了，虽然各家运营都好不到哪里去，但傻逼成这样的确实头一回见，歌词复制粘贴都不愿意了是吧
+

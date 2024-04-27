@@ -4656,3 +4656,11 @@ AA→Anti-Ally
 空爆是真正的队友杀手，刚一局队友都在试玩空爆，70%人头都是空爆，撤离的时候一发死仨队友（ ...</blockquote>
 对（披风）虫特攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 3398#       发表于 2024-4-28 01:20
+
+另外感觉这游戏有和splatoon一样的毛病，有更新-玩的人多-野队匹配突然变得很难玩而且网络水平极其屎<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

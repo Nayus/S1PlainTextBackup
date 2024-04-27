@@ -3487,3 +3487,11 @@ ZVSS}AM673`1_4YXK`_L[@8.jpg
 
 青子升级材料都在2.5后面,好麻烦,好远,感觉又要退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12313#       发表于 2024-4-27 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">直接商店兑换啊 
+

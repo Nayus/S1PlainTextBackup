@@ -4190,3 +4190,22 @@ nier3 夜光?
 
 辛辛苦苦找到箱子却没有密码，有点打击探索的心情。
 
+
+*****
+
+####  依存香炉  
+##### 1128#       发表于 2024-4-28 03:08
+
+Approximate amount of time to platinum: 40-50 Hours
+
+Number of missable trophies: Technically all the trophies are missable, except automatic story-related ones. There are 2 Points of No Return that will gradually lock you out of content and trophies. The first one is after finishing the area “Abyss Levoire” and locks you out of all side quests and all the collectibles in Xion City. The second one is after finishing the area “Spire 4” just before heading to the final area of the game, once you go there you cannot leave. Because of this, it’s recommended to do everything before each point of no return or make a PS+ Cloud Save so you can redownload it to clean up afterward. You can start a New Game+ file after beating the game to clean up anything you missed, everything will transfer.
+
+*****
+
+####  依存香炉  
+##### 1129#       发表于 2024-4-28 03:08
+
+Free-Roam / Level Select after Story?: No, there’s no free-roam or mission replay after the story. You’ll be stuck in the last area once you enter it.
+
+powerpyx这里是更新之前的？不是说首日更新加了通关后的自由模式么
+

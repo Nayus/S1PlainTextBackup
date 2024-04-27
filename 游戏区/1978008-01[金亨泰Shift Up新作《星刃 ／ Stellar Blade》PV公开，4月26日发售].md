@@ -3859,3 +3859,11 @@ cnm 这回这个客服直接说启动了就不给退，还反复强调这一点�
 
 赛博魔法师<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑色的js  
+##### 1095#       发表于 2024-4-27 20:04
+
+奇迹2那种真预告骗都冲不出退款，剑星不看好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">2077索尼给退也不是宣传的问题，那是游戏都没法正常玩
+

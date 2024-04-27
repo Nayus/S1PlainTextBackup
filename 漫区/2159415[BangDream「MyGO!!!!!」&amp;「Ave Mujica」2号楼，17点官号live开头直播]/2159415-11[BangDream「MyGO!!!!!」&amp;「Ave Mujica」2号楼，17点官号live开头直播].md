@@ -15111,3 +15111,13 @@ ppp就算人气下滑live少了，但是这么直白的无视还是头一遭吧�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然喷赢了，邦邦遗老成功正名
 
+
+*****
+
+####  NODY  
+##### 16136#       发表于 2024-4-27 19:55
+
+很显然这次冲成功是因为真的有很多人不肯花钱了，所以鸡团粉在官号下面宣传一下集体不买票除非复活旧官号，没准有希望冲成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然这官号现在操作这样估计也没什么人愿意在上面买票就是了，本来就比eplus贵还延迟，现在甚至有阉割风险<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

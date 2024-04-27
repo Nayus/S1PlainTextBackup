@@ -8582,3 +8582,15 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Toby_dak  
+##### 697#       发表于 2024-4-27 20:02
+
+<img src="https://p.sda1.dev/17/6789be911d3a81a81f58a55fa4def038/1000017379.jpg" referrerpolicy="no-referrer">
+
+刚才好像唱了剧场版的歌，说是第一次在舞台表演。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

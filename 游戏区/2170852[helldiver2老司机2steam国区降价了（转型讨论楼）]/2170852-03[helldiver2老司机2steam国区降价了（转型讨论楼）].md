@@ -4715,3 +4715,11 @@ AA→Anti-Ally
 所以引信是bug还是箭头故意的？</blockquote>
 说了是bug，下周更新会修复
 
+
+*****
+
+####  Aeons  
+##### 3404#       发表于 2024-4-28 05:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">说爆炸吸附的只有爆炸铳这素在？
+

@@ -4841,3 +4841,34 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆炸物那个BUG是最搞笑的，上次修爆炸导致肢体多次伤害结算后出现的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">严重怀疑就是粗暴的写成肢体不吃爆炸，就问你是不是修好了多次结算
 
+
+*****
+
+####  ddwhzh  
+##### 3416#       发表于 2024-4-28 09:54
+
+<blockquote>Launce 发表于 2024-4-28 09:50
+爆炸物那个BUG是最搞笑的，上次修爆炸导致肢体多次伤害结算后出现的
+
+严重怀疑就是粗暴的写 ...</blockquote>
+这游戏代码我猜什么测试都没有就直接上，箭头该找一些测试了
+
+*****
+
+####  dfbbymice  
+##### 3417#       发表于 2024-4-28 09:55
+
+这正符合超级地球那种充满了黑色幽默的醍醐味啊，太一本正经就没啥乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 3418#       发表于 2024-4-28 09:57
+
+ 本帖最后由 jy000129 于 2024-4-28 09:58 编辑 
+
+说起来之前有提到铝热手雷可以降甲，ATAT的腿是吃火箭弹伤害的（5发），那么丢铝热到腿上是不是靠机炮就能打死？
+同理巨型者铝热糊脸应该也有效果吧？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -502,3 +502,11 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 我们忍组就是吊打一切act啦
 
+
+*****
+
+####  今天不守尸  
+##### 48#       发表于 2024-4-28 09:54
+
+忍组看了剑星的表现后，不会觉得浪人的问题出在战斗系统太复杂，下作继续做减法吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

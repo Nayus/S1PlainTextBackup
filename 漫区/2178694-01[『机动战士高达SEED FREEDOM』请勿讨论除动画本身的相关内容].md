@@ -8653,3 +8653,18 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 705#       发表于 2024-4-28 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">内地什么时候上？
+
+*****
+
+####  棍机凹升龙  
+##### 706#       发表于 2024-4-28 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天hk意外没下雨，看完立马有下单命运的冲动
+

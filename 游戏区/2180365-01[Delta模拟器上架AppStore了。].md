@@ -1369,3 +1369,14 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)</blockq
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  h122h  
+##### 117#       发表于 2024-4-28 16:53
+
+[https://www.reddit.com/r/Delta_E ... reen_pixel_effects/](https://www.reddit.com/r/Delta_Emulator/comments/1cdfesn/skin_that_simulates_real_nds_screen_pixel_effects/)
+
+估计一样的作者吧，reddit也发了，懒得下小红书什么加群的，可以看看。
+[https://drive.google.com/drive/f ... EK2J?usp=drive_link](https://drive.google.com/drive/folders/1TliT8yYAcQG1QkORbCo1NUp0wuKMEK2J?usp=drive_link)
+

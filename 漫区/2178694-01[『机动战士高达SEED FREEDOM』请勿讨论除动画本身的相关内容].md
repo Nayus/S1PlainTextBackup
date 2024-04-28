@@ -8676,3 +8676,15 @@ FT是傻X和您翻译夹带私货不互斥，谢谢。翻译的前提就是保�
 
 我看别的戏院有派小册子，里面是一些机设图。但我看的那家没有，有好心人扫图么
 
+
+*****
+
+####  gundammarkⅡ  
+##### 708#       发表于 2024-4-28 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747217&amp;ptid=2178694" target="_blank">棍机凹升龙 发表于 2024-4-28 11:01</a>
+我看别的戏院有派小册子，里面是一些机设图。但我看的那家没有，有好心人扫图么 ...</blockquote>
+https://weibo.com/7503521063/5002857336804256
+是不是这个？
+赞美文姐
+

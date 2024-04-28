@@ -422,3 +422,16 @@ GitHub有earlyaccess的release啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  翎羽  
+##### 1552#       发表于 2024-4-28 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745390&amp;ptid=1220112" target="_blank">pgain2004 发表于 2024-4-28 08:20</a>
+点表情（或者其它标签功能）后没法重新打开应该是因为该栏展开后每次都会被输入法遮挡并抢占焦点
+ ...</blockquote>
+试试！！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我去
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -4332,3 +4332,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 续作可能要等好久去了，shift up下作是全平台开放世界氪金手游，估计就是拿星刃的技术做。星刃的技术积累 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机
 
+
+*****
+
+####  patema  
+##### 1142#       发表于 2024-4-28 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747914&amp;ptid=1978008" target="_blank">天王寺綯 发表于 2024-4-28 11:56</a>
+
+这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星刃：不朽
+

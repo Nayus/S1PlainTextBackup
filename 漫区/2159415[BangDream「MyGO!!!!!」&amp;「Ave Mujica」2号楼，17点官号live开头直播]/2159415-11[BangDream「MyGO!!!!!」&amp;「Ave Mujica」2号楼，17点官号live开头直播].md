@@ -15479,3 +15479,33 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 终于知道开整个企划的官号了是吧
 
+
+*****
+
+####  skives  
+##### 16170#       发表于 2024-4-28 11:56
+
+唉 没动画的糊逼 冲的力度太小了
+
+*****
+
+####  Kfly  
+##### 16171#       发表于 2024-4-28 11:57
+
+还真整出个官号来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 16172#       发表于 2024-4-28 12:03
+
+草，冲居然真的有用还这么有用，光速响应啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16173#       发表于 2024-4-28 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哎喲，罵是有用的呢。那什麼時候把我ave mujica的號重啟
+

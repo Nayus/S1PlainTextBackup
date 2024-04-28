@@ -5010,3 +5010,24 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 空爆筒子可以买了
 
+
+*****
+
+####  Aeons  
+##### 3431#       发表于 2024-4-28 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753021&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-28 19:21</a>
+反常识=恶性BUG？
+
+我打爆裂铳出来我打虫子都是用爆裂铳跳包榴弹帮队友持续压制虫烟，除了打光手冲子弹近身 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">说只有爆裂铳有吸附的我还能说你什么呢？
+你爹我机炮西线受影响了怎么样？
+
+*****
+
+####  Aeons  
+##### 3432#       发表于 2024-4-28 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">天字第一孝了属于是，说一句恶性bug就戳到肺管子了？
+建议直接awwbwg搬上来嗷
+

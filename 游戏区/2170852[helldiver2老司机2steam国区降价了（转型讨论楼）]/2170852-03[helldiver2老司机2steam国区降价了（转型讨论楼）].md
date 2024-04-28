@@ -5031,3 +5031,18 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">天字第一孝了属于是，说一句恶性bug就戳到肺管子了？
 建议直接awwbwg搬上来嗷
 
+
+*****
+
+####  Aeons  
+##### 3433#       发表于 2024-4-28 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">能说出只有爆裂铳能吸附，不说是个云狗子，少说也是个臭低能吧？啥都不知道就在这吠啊？
+
+*****
+
+####  九十九忍  
+##### 3434#       发表于 2024-4-28 20:40
+
+撤离图暗改了？虫烟会刷在挺远的地方而不是直接在旁边
+

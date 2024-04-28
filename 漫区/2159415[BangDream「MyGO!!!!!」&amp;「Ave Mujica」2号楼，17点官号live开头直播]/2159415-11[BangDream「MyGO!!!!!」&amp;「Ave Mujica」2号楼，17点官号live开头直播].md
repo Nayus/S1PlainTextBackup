@@ -16103,3 +16103,14 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 淦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 16225#       发表于 2024-4-28 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753386&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-28 19:57</a>
+
+淦</blockquote>
+哎，这小娃娃这么讲究的？
+

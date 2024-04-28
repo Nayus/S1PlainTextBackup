@@ -4584,3 +4584,14 @@ HA发售日
 
 不过2001年的巴泽特也不可能认识卡莲啊
 
+
+*****
+
+####  DARKGRAY  
+##### 12421#       发表于 2024-4-28 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753571&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-28 20:16</a>
+
+第三次了吧，一次后脑，一次正面，第三次被枪打了。</blockquote>
+原来最后一小节又死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

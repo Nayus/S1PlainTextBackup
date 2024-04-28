@@ -4059,3 +4059,24 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 663随便冲，昨天甚至用了一下一宝水妖高，虽然伤害不够要补刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12371#       发表于 2024-4-28 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748838&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-28 13:15</a>
+
+仇凛和卡莲都行吧 我昨天仇凛爽冲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇 怎么还有仇凛  欧 不羡慕
+
+*****
+
+####  qixinno2  
+##### 12372#       发表于 2024-4-28 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749121&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-28 13:39</a>
+
+欧皇 怎么还有仇凛  欧 不羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新
+

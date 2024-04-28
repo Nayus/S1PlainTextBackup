@@ -5515,3 +5515,42 @@ ytb上有不少360度场景展示，可能要vr
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Swss  
+##### 3487#       发表于 2024-4-28 13:35
+
+看了这个蓝c唱歌的pv，感觉，爆了薯片十条街啊
+
+*****
+
+####  Unlight  
+##### 3488#         楼主| 发表于 2024-4-28 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748992&amp;ptid=2130897" target="_blank">馬斯特壺 发表于 2024-4-28 13:28</a>
+
+感觉咲季已经输了</blockquote>
+姐姐比妹妹小的：
+
+星井美希，久川凪，马场木实，花海咲季（New！）
+
+姐姐比妹妹大的：
+
+城崎美嘉，大崎甜花，七草叶月
+
+姐姐妹妹一样的：
+
+双海真美
+
+还有需要补充的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hummysiren  
+##### 3489#       发表于 2024-4-28 13:38
+
+感觉从公布到现在，个人感觉表红还是最有吸引力的，别人数值一个个公布出来，就越能体现她数值的异样，结合假天才设定，我真的好想看表红的剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

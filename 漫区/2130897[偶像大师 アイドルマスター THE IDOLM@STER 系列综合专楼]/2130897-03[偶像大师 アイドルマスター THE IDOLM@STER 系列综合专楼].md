@@ -4597,3 +4597,40 @@ man, what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 苦呀西———
 
+
+*****
+
+####  rgauss  
+##### 3393#       发表于 2024-4-28 12:17
+
+1m7
+
+*****
+
+####  1024676511  
+##### 3394#       发表于 2024-4-28 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">感觉这十王cv还挺好看的
+
+*****
+
+####  rgauss  
+##### 3395#       发表于 2024-4-28 12:20
+
+急急急急 什么时候开服
+
+
+*****
+
+####  rgauss  
+##### 3396#       发表于 2024-4-28 12:22
+
+好年轻的声优啊
+
+*****
+
+####  ViviR  
+##### 3397#       发表于 2024-4-28 12:23
+
+亲友闺蜜有点多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15536,3 +15536,35 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 脑补mujica的故事都能脑补一部令人流泪的巨作
 
+
+*****
+
+####  御幸一也  
+##### 16177#       发表于 2024-4-28 12:26
+
+訪談昨天就全部啃完了沒什麼料，反正就……還有8個月大概也不會有什麼新料了，慢慢等吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16178#       发表于 2024-4-28 12:30
+
+下个月没新歌就得冲了哦，而且就这提前半个月发预告的预告的尿性5.17就能确定了，
+
+
+*****
+
+####  御幸一也  
+##### 16179#       发表于 2024-4-28 12:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我覺得應該不會再預告的預告了吧，好智障
+
+*****
+
+####  Aendst  
+##### 16180#       发表于 2024-4-28 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">事实证明开号这种东西都是可以冲下来的
+
+炎上合号的动静还是太小了
+

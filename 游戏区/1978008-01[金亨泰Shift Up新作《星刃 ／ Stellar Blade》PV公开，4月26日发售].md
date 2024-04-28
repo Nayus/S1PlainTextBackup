@@ -4372,3 +4372,13 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机 ...</blockquote>
 说不定是nikke续作
 
+
+*****
+
+####  jacket  
+##### 1146#       发表于 2024-4-28 12:28
+
+昨天在废土见到一个黄色小机器人被卡住，旁边有个可互动的杆子，当时没搞明白什么意思就走了。
+
+今天想再回去试试但找不到位置了。
+

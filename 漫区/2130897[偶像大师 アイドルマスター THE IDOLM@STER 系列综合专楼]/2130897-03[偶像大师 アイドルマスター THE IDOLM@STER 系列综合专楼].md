@@ -4634,3 +4634,73 @@ man, what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 亲友闺蜜有点多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kirakira~  
+##### 3398#       发表于 2024-4-28 12:27
+
+妈呀这个个身怀绝技啊
+
+这三个里信号灯全是一等一的重女啊，超级单箭头信号灯，可怕。
+
+一个是对姐姐最最最喜欢
+
+一个是对好友的苍抱有沉重的友情
+
+一个是想把黄变成自己的东西
+
+龟龟
+
+学p不会被里信号灯哪天暗杀了吧
+
+*****
+
+####  馬斯特壺  
+##### 3399#       发表于 2024-4-28 12:27
+
+果然是妹妹更有以往红C的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 3400#       发表于 2024-4-28 12:29
+
+秦谷美铃是能成为我母亲的女性<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gammatau  
+##### 3401#       发表于 2024-4-28 12:30
+
+这仨信号灯，感觉会是关系性（）拉满的一作
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3402#       发表于 2024-4-28 12:32
+
+怎么感觉里信号灯的3d模型和2d立绘差别有点明显，比表这边差别大多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  koodooliz  
+##### 3403#       发表于 2024-4-28 12:34
+
+什么，要搞oo最爱的女女关系性了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 3404#       发表于 2024-4-28 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不想说里灯完爆表灯，但这是事实
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

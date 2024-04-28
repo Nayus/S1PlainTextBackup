@@ -843,3 +843,14 @@ INABA
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">猫组这条线怕是要磨叽到五月末了……但也算是好事
 
+
+*****
+
+####  modedd  
+##### 1374#       发表于 2024-4-28 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746232&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-4-28 09:49</a>
+
+猫组这条线怕是要磨叽到五月末了……但也算是好事</blockquote>
+那跟当初情报差不多，猫组到夏季双人入队
+

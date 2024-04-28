@@ -1023,3 +1023,15 @@ INABA
 但是这个角色和本集的小友和妈妈都没cv表……嗯… ...</blockquote>
 其实主要的证据就是连cv表都没有，而且就算是配角这个出场也太随便了一点，完全就是唐突出现的蜜汁铁t大姐姐，可能以后有元气弹之类的剧情会再出场吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1387#       发表于 2024-4-28 21:18
+
+声优自行出来认领了
+
+相川奈都姬，与汪宠の鹤老太太同声优
+
+真是路人啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

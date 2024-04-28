@@ -4595,3 +4595,23 @@ HA发售日
 第三次了吧，一次后脑，一次正面，第三次被枪打了。</blockquote>
 原来最后一小节又死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 12422#       发表于 2024-4-28 21:15
+
+ 本帖最后由 exiaexa 于 2024-4-28 21:17 编辑 
+
+MD是不是要炸了
+
+毕竟是羽毛+晶体的女武神快乐本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12423#       发表于 2024-4-28 21:17
+
+刷了两下懒的刷了
+

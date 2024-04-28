@@ -4614,3 +4614,14 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 百合的配音，日配不如韩配，韩配更像萝莉的声音，应该不止我一个人这么觉得吧？
 
+
+*****
+
+####  Mr.Hopp  
+##### 1170#       发表于 2024-4-28 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64750486&amp;ptid=1978008" target="_blank">trb315 发表于 2024-4-28 15:40</a>
+
+一开始的御姐能用吗？</blockquote>
+不能
+

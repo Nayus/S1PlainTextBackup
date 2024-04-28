@@ -4615,3 +4615,51 @@ MD是不是要炸了
 
 刷了两下懒的刷了
 
+
+*****
+
+####  森兰丸  
+##### 12424#       发表于 2024-4-28 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">卡成傻逼了....这限时本做成全天开放日替是不是会要了运营全家的老命
+
+*****
+
+####  里村紅葉  
+##### 12425#       发表于 2024-4-28 21:26
+
+服务器是不是快炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 12426#       发表于 2024-4-28 21:26
+
+感觉有些卡，是我的问题还是服务器问题？
+
+*****
+
+####  琴酒  
+##### 12427#       发表于 2024-4-28 21:28
+
+服务器问题
+
+free本太阴间 都想大量刷限时本 能不卡吗
+
+*****
+
+####  不垃圾屌丝  
+##### 12428#       发表于 2024-4-28 21:29
+
+看有珠的评价式姐也是本人啊
+就是蘑菇拿特异点这种方便设定搞点粉丝服务嘛
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 12429#       发表于 2024-4-28 21:30
+
+开服万圣节就经历过的问题 没想到那么多年过去了一点都没有成长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

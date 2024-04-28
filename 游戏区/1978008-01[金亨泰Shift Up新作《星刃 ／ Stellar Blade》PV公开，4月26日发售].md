@@ -4530,3 +4530,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 长马尾档视线啊，尤其打boss看到底是格挡还是闪避的时候，头发眼前晃
 
+
+*****
+
+####  trb315  
+##### 1162#       发表于 2024-4-28 15:40
+
+一开始的御姐能用吗？
+

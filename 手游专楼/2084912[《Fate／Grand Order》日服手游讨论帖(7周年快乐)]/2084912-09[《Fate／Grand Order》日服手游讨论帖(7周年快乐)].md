@@ -4122,3 +4122,14 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 萌新玩的游戏太多太忙了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并不忙 但这**游戏1天只登陆2次 谁吃报没事启动他
 
+
+*****
+
+####  DARKGRAY  
+##### 12377#       发表于 2024-4-28 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749541&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-4-28 14:21</a>
+
+带倍卡啊，这种本少个加成亏不了多少。昨晚带着1宝迦梨冲爽了。</blockquote>
+不加掉落还没换，因为一般都是平铺礼装尽量减少刷的次数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

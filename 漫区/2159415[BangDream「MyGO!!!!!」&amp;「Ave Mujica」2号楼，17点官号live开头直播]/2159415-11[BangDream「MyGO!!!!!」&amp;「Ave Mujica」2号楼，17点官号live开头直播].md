@@ -15935,3 +15935,41 @@ Mujica则是第13话才有月光品记（）
 而且完全没有母鸡卡的年龄</blockquote>
 ave更詳細的情報為什麼不放ave mujica的設定集說<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 16209#       发表于 2024-4-28 15:41
+
+该藏要藏的
+
+*****
+
+####  赤魔法师  
+##### 16210#       发表于 2024-4-28 15:43
+
+总的来说这本确实还是比较水
+
+如果明年母鸡卡能出个一样规格的
+
+也还是挺想要的
+
+*****
+
+####  DarthAka  
+##### 16211#       发表于 2024-4-28 15:45
+
+<blockquote>skives 发表于 2024-4-28 14:56
+喵老师其实是熊本人 在东京赚钱养全家
+
+有一集是喵老师退团 然后祥子去家里抓人 两人交心
+</blockquote>
+熊本人是什么梗
+
+*****
+
+####  御幸一也  
+##### 16212#       发表于 2024-4-28 15:46
+
+ave mujica的當然全部溺愛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

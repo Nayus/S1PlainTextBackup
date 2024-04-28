@@ -484,3 +484,13 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 《庄园领主》打破了 Steam 上城市建设游戏类型的纪录，游戏刚发布一天，销量就突破了一百万份。发行商Hooded Horse还表示，本作的Steam同时在线峰值超过了17万人，为城市建设游戏有史以来最高的。
 
+
+*****
+
+####  Moltres.lv70  
+##### 46#       发表于 2024-4-28 07:45
+
+玩了一天，这战斗系统真被浪人崛起吊打
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+

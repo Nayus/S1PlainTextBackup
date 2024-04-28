@@ -3921,3 +3921,13 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 氵由管上看到个双青子搭公主的娱乐阵容，又花了30抽，2宝出院！
 
+
+*****
+
+####  千叶铁矢  
+##### 12357#       发表于 2024-4-28 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744449&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-28 01:33</a>
+五星绿卡术光炮目前人数还是0，可以填空缺</blockquote>
+绿卡+术阶，这尼玛太地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

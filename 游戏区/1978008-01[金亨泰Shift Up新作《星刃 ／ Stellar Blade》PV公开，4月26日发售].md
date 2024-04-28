@@ -4229,3 +4229,13 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 通关了，收尾有些仓促，直接告诉你续作在做了，不过还不错，8分，打打二周目
 
+
+*****
+
+####  swordofsoul1  
+##### 1132#       发表于 2024-4-28 08:54
+
+全易拉罐攻略出了吗，全收集的服装有点涩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

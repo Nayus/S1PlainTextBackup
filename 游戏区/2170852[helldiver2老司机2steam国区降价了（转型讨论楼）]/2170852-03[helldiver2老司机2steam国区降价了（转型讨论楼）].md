@@ -4764,3 +4764,15 @@ AA→Anti-Ally
 类星体加蛋盾有概率会直接炸死披风虫
 最近几次更新的东西都有恶性bug，主打一个超级气球草菅人命的沉浸感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3409#       发表于 2024-4-28 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745152&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-28 08:30</a>
+类星体自爆是什么，我甚至还是第一次听说
+
+—— 来自 S1Fun</blockquote>
+带蛋盾的情况下使用类星体有概率因为打在蛋盾上炸死自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

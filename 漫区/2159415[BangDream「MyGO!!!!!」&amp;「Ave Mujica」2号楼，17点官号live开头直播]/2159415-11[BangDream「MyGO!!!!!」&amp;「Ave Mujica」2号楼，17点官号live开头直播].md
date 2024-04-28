@@ -15689,3 +15689,25 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 好像没看到有发的
 
+
+*****
+
+####  Aendst  
+##### 16191#       发表于 2024-4-28 13:16
+
+ 本帖最后由 Aendst 于 2024-4-28 13:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">STF表写个大名的程度
+
+系列构成 绫奈
+
+脚本 第一个是绫奈
+
+
+*****
+
+####  御幸一也  
+##### 16192#       发表于 2024-4-28 13:20
+
+本來就不會有，這本東西情報出來那天，綾奈還特地說明，ferbi那次訪談就是最後一次訪談<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

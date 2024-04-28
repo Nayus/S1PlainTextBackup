@@ -4034,3 +4034,20 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 甚至比一些玩家认为的强卡（例如S伊斯塔或是托勒密）卖的好的多
 
+
+*****
+
+####  sprongs  
+##### 12368#       发表于 2024-4-28 13:13
+
+这次限时本如果都是663 那真神还真是卡莲了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qixinno2  
+##### 12369#       发表于 2024-4-28 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛和卡莲都行吧 我昨天仇凛爽冲
+

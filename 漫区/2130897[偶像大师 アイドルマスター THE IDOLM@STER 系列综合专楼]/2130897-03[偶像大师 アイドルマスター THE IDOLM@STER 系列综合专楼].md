@@ -5345,3 +5345,105 @@ X上的另一版关系图
 既然全都是年轻声优那肯定最开始就想过要加了</blockquote>
 早入坑不如晚入坑，晚入坑可以P里三家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 3471#       发表于 2024-4-28 13:16
+
+ 本帖最后由 ViviR 于 2024-4-28 13:18 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/28/131526n166rl7oo7ytg6gt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8483.jpeg</strong> (22.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:15 上传
+
+不知道的还以为…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 3472#       发表于 2024-4-28 13:16
+
+ok
+
+<img src="https://img.saraba1st.com/forum/202404/28/131614segj3m8gqqons8cv.jpg" referrerpolicy="no-referrer">
+
+<strong>RTB98~(KNR0~YBS{U()@MDF.jpg</strong> (56.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:16 上传
+
+*****
+
+####  Anatoly  
+##### 3473#       发表于 2024-4-28 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748807&amp;ptid=2130897" target="_blank">Unlight 发表于 2024-4-28 13:13</a>
+
+早入坑不如晚入坑，晚入坑可以P里三家</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果真是完全棒球/SC/马娘模式那肯定先得抽S卡，光P卡也没用啊
+
+提前一年垫了属于是
+
+*****
+
+####  Achlys  
+##### 3474#       发表于 2024-4-28 13:19
+
+原来最初是王道妹妹打虚假天才姐姐啊，那还挺合理的
+不过还是像现在这样换一下更有趣！想看咲季输之后狠狠哭
+
+
+*****
+
+####  rgauss  
+##### 3475#       发表于 2024-4-28 13:20
+
+saiki现在不都已经输光光了？
+
+*****
+
+####  RhmBWT_Wu  
+##### 3476#       发表于 2024-4-28 13:21
+
+说起来里三家三围是不是还没公布
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViviR  
+##### 3477#       发表于 2024-4-28 13:22
+
+<blockquote>Achlys 发表于 2024-4-28 13:09
+其他六人会加rival吗？</blockquote>
+不太可能，如果打算九个人都有对手那站在企划的角度应该早就决定好了，不可能到现在一点消息都不放出来
+
+*****
+
+####  Unlight  
+##### 3478#         楼主| 发表于 2024-4-28 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748858&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-28 13:17</a>
+
+如果真是完全棒球/SC/马娘模式那肯定先得抽S卡，光P卡也没用啊
+
+提前一年垫了属于是 ...</blockquote>
+唉，卫星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Swss  
+##### 3479#       发表于 2024-4-28 13:25
+
+红色姐妹：”我要当全校第一“
+
+蓝色组：”我要当全校第一“
+
+学生会长：“ことね你来当全校第一”
+

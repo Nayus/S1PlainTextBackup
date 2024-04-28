@@ -4413,3 +4413,12 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 今天想再回 ...</blockquote>
 我碰到的是黄色小无人机被几根钢筋卡住，我试着用枪把钢筋打掉，他飞出来之后赏了一个罐子。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 1150#       发表于 2024-4-28 13:18
+
+请问下埃多斯7还能再回去么？
+我在demo里就碰到个密码箱开不了，结果正式版还是没找到密码。
+

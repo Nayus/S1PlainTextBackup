@@ -876,3 +876,11 @@ INABA
 猫组的净化武器5月发售，带猫组变身音效，应该拖不到夏季吧</blockquote>
 犬q的节奏现在确实是不快，五月中下旬离入夏也不算远了，不过我也希望早点入队，毕竟人都收齐了再不给干部露个脸实在说不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1377#       发表于 2024-4-28 13:20
+
+感觉下集最多还是怀疑，真暴露身份要再往后了
+

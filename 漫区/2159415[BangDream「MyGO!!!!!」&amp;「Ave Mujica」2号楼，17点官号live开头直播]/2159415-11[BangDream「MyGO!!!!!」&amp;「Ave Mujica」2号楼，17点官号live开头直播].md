@@ -16012,3 +16012,27 @@ ave mujica的當然全部溺愛<img src="https://static.saraba1st.com/image/smil
 
 https://x.com/Gumshou38/status/1784484948482883905<img src="https://p.sda1.dev/17/5276615f2f48b2c70e56683fdf35de00/CMP_20240428165650143.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16218#         楼主| 发表于 2024-4-28 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749269&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-28 13:55</a>
+
+有趣的是MyGO的琴在动画里除了OP以外都没有"M"字品记（）
+
+Mujica则是第13话才有月光品记（）</blockquote>
+毕竟13话之前都不存在Mujica，自然不应该有品记号。MyGO定名也是接近终局，而且毕竟是非商业乐队，没时间或者没想起来改造吉他吧。
+
+相比之下Mujica作为商业乐队，第一场就有品记就合理多了。
+
+*****
+
+####  Aendst  
+##### 16219#       发表于 2024-4-28 17:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">怎么已经滑到没有设定集了
+
+但仔细想想觉得确实有可能，这就是武士道给我的自信
+

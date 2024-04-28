@@ -334,3 +334,27 @@ GitHub有earlyaccess的release啊
 
 现在鹅球一共有几个版本？这个3.0.0 alpha是原作者开发的吗
 
+
+*****
+
+####  pgain2004  
+##### 1543#       发表于 2024-4-28 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64739612&amp;ptid=1220112" target="_blank">翎羽 发表于 2024-4-27 19:31</a>
+我去，鹅球，40楼一页。很流畅，最重要的是更新了表情  
+感谢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">点表情（或者其它标签功能）后没法重新打开应该是因为该栏展开后每次都会被输入法遮挡并抢占焦点
+快速修复办法是在这时候回退一次，让它收起来，就能再次点开了
+
+
+*****
+
+####  pgain2004  
+##### 1544#       发表于 2024-4-28 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745084&amp;ptid=1220112" target="_blank">hisousihou 发表于 2024-4-28 07:08</a>
+这些年开发的app里还是鹅球最好使。
+
+现在鹅球一共有几个版本？这个3.0.0 alpha是原作者开发的吗 ...</blockquote>
+作者本人在群里放的apk文件
+

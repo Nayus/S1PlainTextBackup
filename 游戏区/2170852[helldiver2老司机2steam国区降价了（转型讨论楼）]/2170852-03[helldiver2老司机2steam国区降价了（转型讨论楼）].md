@@ -4755,3 +4755,12 @@ AA→Anti-Ally
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  北条早苗  
+##### 3408#       发表于 2024-4-28 08:18
+
+类星体加蛋盾有概率会直接炸死披风虫
+最近几次更新的东西都有恶性bug，主打一个超级气球草菅人命的沉浸感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

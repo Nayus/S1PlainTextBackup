@@ -4880,3 +4880,12 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 要说优点就是两炮能清干净干扰塔，免费会用，占个格子就算了
 
+
+*****
+
+####  DawnGuardian  
+##### 3420#       发表于 2024-4-28 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746242&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-4-28 09:50</a> 引用:ddwhzh 发表于 2024-4-28 09:42 这游戏bug都融合在整个游戏里了，低温星球其实能量武器散热不会变好，镰刀过热数值填错了，爆炸物现在打在 ... 爆炸物那个BUG是最搞笑的，上次修爆炸导致肢体多次伤害结算后出现的 严重怀疑就是粗暴的写成肢体不吃爆炸，就问你是不是修好了多次结算 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有为了修复举盾打针卡模型的bug，现在打针会自动把盾收回去，战况激烈的时候被害死好几次。我觉得箭头真该搞一次健康行动了来自: iPhone客户端
+

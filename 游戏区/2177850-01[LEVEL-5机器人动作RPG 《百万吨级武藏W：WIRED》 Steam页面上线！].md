@@ -427,3 +427,16 @@ steam deck能稳60fps吗
 
 话说2代武器能瞬切了吗，还是说依然只能停下来推摇杆切
 
+
+*****
+
+####  Plasmagica  
+##### 45#       发表于 2024-4-28 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746590&amp;ptid=2177850" target="_blank">violettor 发表于 2024-4-28 10:13</a>
+
+话说2代武器能瞬切了吗，还是说依然只能停下来推摇杆切</blockquote>
+PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果正在打连招会等打完一套再实际切换。
+
+手柄应该也有对应的按键。
+

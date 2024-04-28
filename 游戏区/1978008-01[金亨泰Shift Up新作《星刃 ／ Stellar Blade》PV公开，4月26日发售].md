@@ -4401,3 +4401,15 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 求教主线离开废土这张图之前（任务：卢瓦高层），一共可以获得几个升级药水次数上限的素材，自己瞎比探索只拿到两个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 1149#       发表于 2024-4-28 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748275&amp;ptid=1978008" target="_blank">jacket 发表于 2024-4-28 12:28</a>
+昨天在废土见到一个黄色小机器人被卡住，旁边有个可互动的杆子，当时没搞明白什么意思就走了。
+
+今天想再回 ...</blockquote>
+我碰到的是黄色小无人机被几根钢筋卡住，我试着用枪把钢筋打掉，他飞出来之后赏了一个罐子。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

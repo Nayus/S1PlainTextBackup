@@ -5213,3 +5213,135 @@ QQ截图20240428124227.png
 
 不过本来以为会有对手三人的曲子pv呢，结果没有。别说是因为不能p所以根本没准备吧…
 
+
+*****
+
+####  Achlys  
+##### 3457#       发表于 2024-4-28 13:05
+
+不是说春季开服来着？
+八月怎么都不算春天了吧
+
+*****
+
+####  Alicest  
+##### 3458#       发表于 2024-4-28 13:05
+
+只能说不像蓝灯吧
+[【学マス】4K 全体曲「初」ライブシーン （月村 手毬）フル映像【アイドルマスター】](https://www.youtube.com/watch?v=HwZbq2tGguE)
+
+*****
+
+####  RhmBWT_Wu  
+##### 3459#       发表于 2024-4-28 13:05
+
+不是还有校歌吗，还是贵公子写的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  郁田阳希  
+##### 3460#       发表于 2024-4-28 13:05
+
+估计是留着之后和卡池一块出了
+
+*****
+
+####  rgauss  
+##### 3461#       发表于 2024-4-28 13:06
+
+校歌的作词标的是校长是最绷不住的
+
+*****
+
+####  Alicest  
+##### 3462#       发表于 2024-4-28 13:07
+
+<img src="https://img.saraba1st.com/forum/202404/28/130707gehhf07l8l4cl3nc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:07 上传
+
+*****
+
+####  Unlight  
+##### 3463#         楼主| 发表于 2024-4-28 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748695&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-28 13:04</a>
+
+不过本来以为会有对手三人的曲子pv呢，结果没有。别说是因为不能p所以根本没准备吧…不过想想星耀季节对手 ...</blockquote>
+主机作上是通关一周目后二周目开始可以P对手，手游该怎么玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3464#       发表于 2024-4-28 13:08
+
+过一年加入
+
+*****
+
+####  Unlight  
+##### 3465#         楼主| 发表于 2024-4-28 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748740&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-28 13:08</a>
+
+过一年加入</blockquote>
+放卫星是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 3466#       发表于 2024-4-28 13:09
+
+其他六人会加rival吗？
+
+*****
+
+####  Anatoly  
+##### 3467#       发表于 2024-4-28 13:10
+
+剧情推进加呗
+
+既然全都是年轻声优那肯定最开始就想过要加了
+
+
+*****
+
+####  郁田阳希  
+##### 3468#       发表于 2024-4-28 13:10
+
+<img src="https://img.saraba1st.com/forum/202404/28/131013eqbujnoj8xwjqxo8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (320.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:10 上传
+
+X上的另一版关系图
+
+*****
+
+####  Achlys  
+##### 3469#       发表于 2024-4-28 13:12
+
+黄有种“我打会长，真的假的”的感觉ww
+明明和红蓝两个争第一的比，ことね还挺chill的，结果安排的挑战好大
+
+*****
+
+####  Unlight  
+##### 3470#         楼主| 发表于 2024-4-28 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748758&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-28 13:10</a>
+
+剧情推进加呗
+
+既然全都是年轻声优那肯定最开始就想过要加了</blockquote>
+早入坑不如晚入坑，晚入坑可以P里三家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

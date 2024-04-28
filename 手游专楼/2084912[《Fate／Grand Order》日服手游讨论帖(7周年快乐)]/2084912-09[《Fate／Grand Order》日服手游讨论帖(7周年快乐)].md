@@ -4021,3 +4021,16 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 怎么还有限时任务? 真是越活越回去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12367#       发表于 2024-4-28 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64742145&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-4-27 22:18</a>
+
+看成绩这种强度和美术都能大卖，只能说蘑菇他们吃死了玩家</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实上面提到的更弱的刑部姬和君十一刚出的时候也是大卖的
+
+甚至比一些玩家认为的强卡（例如S伊斯塔或是托勒密）卖的好的多
+

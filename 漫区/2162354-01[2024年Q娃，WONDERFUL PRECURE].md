@@ -865,3 +865,14 @@ INABA
 那跟当初情报差不多，猫组到夏季双人入队</blockquote>
 猫组的净化武器5月发售，带猫组变身音效，应该拖不到夏季吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  modedd  
+##### 1376#       发表于 2024-4-28 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746752&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-4-28 10:26</a>
+
+猫组的净化武器5月发售，带猫组变身音效，应该拖不到夏季吧</blockquote>
+犬q的节奏现在确实是不快，五月中下旬离入夏也不算远了，不过我也希望早点入队，毕竟人都收齐了再不给干部露个脸实在说不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

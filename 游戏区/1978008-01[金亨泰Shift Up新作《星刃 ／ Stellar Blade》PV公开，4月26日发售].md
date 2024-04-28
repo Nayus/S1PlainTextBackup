@@ -4254,3 +4254,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 昨晚发现头饰是爬绳器，设定还挺详细的
 
+
+*****
+
+####  bletilla  
+##### 1135#       发表于 2024-4-28 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745963&amp;ptid=1978008" target="_blank">icebarrier 发表于 2024-4-28 09:22</a>
+
+昨晚解锁了爆发技，看得出是花了点心思，有些地方暗示你多处决，有些就让你单挑，手感没有之前听说的那么延 ...</blockquote>
+第二个脊椎是剧情解锁，其他收集螺栓解锁，这玩意严重溢出
+

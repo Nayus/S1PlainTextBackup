@@ -5959,3 +5959,13 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这两话妹妹的表情真丰富，截图即用
 
+
+*****
+
+####  ViviR  
+##### 3533#       发表于 2024-4-28 18:51
+
+ 本帖最后由 ViviR 于 2024-4-28 18:53 编辑 
+
+虽然知道毕竟是手游，但开头这场景建模也太简陋了，跟之前pv里面渲染精细度拉满的场景建模完全不是一回事啊…
+

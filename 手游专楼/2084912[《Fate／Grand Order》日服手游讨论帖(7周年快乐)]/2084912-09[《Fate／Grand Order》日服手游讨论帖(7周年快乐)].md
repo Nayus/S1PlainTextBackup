@@ -4403,3 +4403,28 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 12402#       发表于 2024-4-28 18:49
+
+五一怎么还没到，我要审判小山的有珠卡面
+
+*****
+
+####  Jamaisvu  
+##### 12403#       发表于 2024-4-28 18:53
+
+有珠的优点可能是70NP自充，算上满级被动和衣服技能，不用像其他绿光炮一样必需50NP礼装或换人充能，可以带黑杯或加成礼装。不过身材、职介和数值方面还是没眼看...
+
+*****
+
+####  alucardcz  
+##### 12404#       发表于 2024-4-28 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752695&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-4-28 18:49</a>
+
+五一怎么还没到，我要审判小山的有珠卡面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联动卡面强度4寄1体这种事情 不要啊
+

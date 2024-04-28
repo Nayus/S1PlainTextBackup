@@ -6065,3 +6065,29 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">表里御三家的设定还真挺有意思的
 
+
+*****
+
+####  何处分可  
+##### 3545#       发表于 2024-4-28 21:55
+
+<img src="https://img.saraba1st.com/forum/202404/28/215455zovh0jc5vzgui5gc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 21:54 上传
+
+起跑线就已经输妹妹太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 3546#       发表于 2024-4-28 21:56
+
+<img src="https://p.sda1.dev/17/9c1da6b0f73051d998f4b2c252fe1ef8/CMP_20240428215606499.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

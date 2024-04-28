@@ -43,3 +43,25 @@
 
 flip kb的键盘非常烂的样子……
 
+
+*****
+
+####  ronac  
+##### 1175#       发表于 2024-4-28 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64734582&amp;ptid=2086469" target="_blank">trow233 发表于 2024-4-27 09:16</a>
+
+看了B站视频
+
+flip kb的键盘非常烂的样子……</blockquote>
+那个造型简直了，魂穿文曲星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我之前关注这种键盘机就是因为想躺床玩rogue like，本身没有小键盘区就已经需要做出很大让步了，现在看真是不行，两家都不行
+
+*****
+
+####  crosz1985  
+##### 1176#       发表于 2024-4-28 09:04
+
+现在win掌机还是rog那个最优吗
+

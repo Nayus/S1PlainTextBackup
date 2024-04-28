@@ -15902,3 +15902,36 @@ Mujica则是第13话才有月光品记（）
 
 海铃开摩托车载祥子千里追妻是吧，这集我看过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 16206#       发表于 2024-4-28 15:28
+
+ 本帖最后由 6030sylar 于 2024-4-28 15:29 编辑 
+
+按乐器位当然是祥子泥给路哒后，喵梦开面包车车一车面包人去把祥子绑回来(当然开机车只带睦或者只带初也行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  御幸一也  
+##### 16207#       发表于 2024-4-28 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749652&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-4-28 14:32</a>
+
+不是很懂，设定集里完全没有提到系构是正常情况吗？之前特地查了一下动画的各个职位的功能，不单是各集脚本 ...</blockquote>
+單純你go這本設定集很水好吧，我之前買轉天的幾乎每個staff每個主要聲優都訪談了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16208#       发表于 2024-4-28 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749766&amp;ptid=2159415" target="_blank">赤魔法师 发表于 2024-4-28 14:43</a>
+
+而且完全没有母鸡卡的年龄</blockquote>
+ave更詳細的情報為什麼不放ave mujica的設定集說<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

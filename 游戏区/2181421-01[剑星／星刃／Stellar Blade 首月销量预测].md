@@ -574,3 +574,27 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 确实，忍组不可能再提升画质，至少要买点肉提卖相吧
 
+
+*****
+
+####  垃圾网站上  
+##### 55#       发表于 2024-4-28 19:34
+
+ 本帖最后由 垃圾网站上 于 2024-4-28 19:37 编辑 
+
+<img src="https://p.sda1.dev/17/8fecccaf1bcd50a8dfb9c50115c9968d/CMP_20240428193410868.jpg" referrerpolicy="no-referrer">
+
+现在泥潭很多人连云都不云张口就来了，浪人崛起里头明示和几个男女npc共度良宵的情节都有，女角色也可以露大北半球，美术也还不错，无非就是引擎光影画质差点
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哆哆鸡  
+##### 56#         楼主| 发表于 2024-4-28 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753131&amp;ptid=2181421" target="_blank">垃圾网站上 发表于 2024-4-28 19:34</a>
+
+—— 来自 nubia NX712J, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+这是打了mod还是可以直接捏出这种效果？
+

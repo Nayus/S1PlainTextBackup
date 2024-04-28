@@ -4265,3 +4265,16 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 昨晚解锁了爆发技，看得出是花了点心思，有些地方暗示你多处决，有些就让你单挑，手感没有之前听说的那么延 ...</blockquote>
 第二个脊椎是剧情解锁，其他收集螺栓解锁，这玩意严重溢出
 
+
+*****
+
+####  巨魔已被忠诚  
+##### 1136#       发表于 2024-4-28 11:28
+
+吃到个瓜
+星剑豪华版给的服装仿的歪萌社几年前出的一套巨火的瑟瑟衣服。
+现在嘛，应该是云玩家懂帝跑去冲主创微博，说主创声讨的是狗叫，什么服装版型相似元素什么的。
+当初pv出来就有说还没这么弱智言论呢。
+
+—— 来自 HUAWEI ANA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

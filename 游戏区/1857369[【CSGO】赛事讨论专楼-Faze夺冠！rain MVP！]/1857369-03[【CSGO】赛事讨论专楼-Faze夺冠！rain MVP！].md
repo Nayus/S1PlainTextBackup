@@ -66,3 +66,22 @@ d2真没意思吧 也不想玩也不想看
 
 阿杜在preasy一绿四红狠狠坐牢，来falcons还是一绿四红狠狠坐牢，真是把年轻时没坐的牢都偿还了
 
+
+*****
+
+####  ork  
+##### 4321#       发表于 2024-4-29 02:53
+
+woc，g2 m80回家局图1加时赛3niko连着两个ace
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ork  
+##### 4322#       发表于 2024-4-29 02:54
+
+9-24杀到30-29
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

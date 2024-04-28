@@ -5093,3 +5093,12 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 你 ...</blockquote>
 对对对，您最有个性，快和上面那位一起凑钱租卡车去箭头门口抗议啊，在论坛上放屁他们能有一点压力吗？
 
+
+*****
+
+####  Aeons  
+##### 3440#       发表于 2024-4-29 02:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在discord里反应你又懂了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上这丑态大伙看到了吗。
+

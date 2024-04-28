@@ -5447,3 +5447,71 @@ saiki现在不都已经输光光了？
 
 学生会长：“ことね你来当全校第一”
 
+
+*****
+
+####  koodooliz  
+##### 3480#       发表于 2024-4-28 13:26
+
+QA这舞台做的真够细的，还有悬臂摄像机<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 3481#       发表于 2024-4-28 13:27
+
+来个自拍舞台 我要看qa的最新技术
+
+*****
+
+####  馬斯特壺  
+##### 3482#       发表于 2024-4-28 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748898&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-28 13:21</a>
+说起来里三家三围是不是还没公布
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+感觉咲季已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/936e7fc5e9df7208568e521be5a36c0d/54F55F8FBE776ED2A093B32F1EBA8625.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 3483#       发表于 2024-4-28 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748898&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-4-28 13:21</a>
+
+说起来里三家三围是不是还没公布
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+看了眼确实
+
+官网目前只有超会议已经公布的介绍
+
+*****
+
+####  Alicest  
+##### 3484#       发表于 2024-4-28 13:28
+
+ytb上有不少360度场景展示，可能要vr
+
+*****
+
+####  RhmBWT_Wu  
+##### 3485#       发表于 2024-4-28 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748992&amp;ptid=2130897" target="_blank">馬斯特壺 发表于 2024-4-28 13:28</a>
+感觉咲季已经输了</blockquote>
+至少年龄不会输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  l⑨th_Knight  
+##### 3486#       发表于 2024-4-28 13:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偶像荣耀也有女女关系甚至p还人鬼情未了，不妨碍大搞特搞plove啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

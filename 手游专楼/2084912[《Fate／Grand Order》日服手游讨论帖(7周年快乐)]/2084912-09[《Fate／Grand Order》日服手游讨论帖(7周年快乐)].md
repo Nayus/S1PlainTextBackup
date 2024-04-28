@@ -4051,3 +4051,11 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仇凛和卡莲都行吧 我昨天仇凛爽冲
 
+
+*****
+
+####  DARKGRAY  
+##### 12370#       发表于 2024-4-28 13:29
+
+663随便冲，昨天甚至用了一下一宝水妖高，虽然伤害不够要补刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

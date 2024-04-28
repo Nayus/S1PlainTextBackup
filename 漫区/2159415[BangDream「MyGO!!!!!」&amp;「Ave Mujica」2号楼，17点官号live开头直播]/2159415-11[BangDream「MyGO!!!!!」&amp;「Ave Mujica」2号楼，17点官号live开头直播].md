@@ -15711,3 +15711,43 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 本來就不會有，這本東西情報出來那天，綾奈還特地說明，ferbi那次訪談就是最後一次訪談<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 16193#       发表于 2024-4-28 13:29
+
+<img src="https://img.saraba1st.com/forum/202404/28/132647qbzmd76dg86s8dmu.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19e-f3krZcT3cSk0-ag-1.jpg</strong> (47.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/132651iscd797zswmfzh1w.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19e-6sa3K25T1kSg0-sg.jpg</strong> (82.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/132704w2ki6t4jyci29ck6.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19e-9l7lK2bT1kSfz-sg.jpg</strong> (89.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:27 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/132829f4dnn8v773ut3zfz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19e-1nwcK1uT1kShc-sg.jpg</strong> (71.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘿嘿乌咪铃
+

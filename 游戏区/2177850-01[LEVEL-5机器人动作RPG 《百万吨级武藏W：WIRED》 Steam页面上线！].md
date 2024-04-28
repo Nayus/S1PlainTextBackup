@@ -440,3 +440,11 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 手柄应该也有对应的按键。
 
+
+*****
+
+####  天才八嘎  
+##### 46#       发表于 2024-4-28 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">版本更新当新游戏卖不愧是L5
+

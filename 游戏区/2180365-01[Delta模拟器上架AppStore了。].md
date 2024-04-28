@@ -1333,3 +1333,27 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)</blockq
 论坛助手,iPhone</blockquote>
 请问能分享一下您说的皮肤滤镜么
 
+
+*****
+
+####  superkin185  
+##### 115#       发表于 2024-4-28 13:27
+
+推荐小红书上PIX3L的皮肤滤镜，比较完美，目前只有竖版，横版也在制作中。皮肤加作者小红书的群可以免费获取，有两个群，第一个群满了，第二个可以进。
+
+<img src="https://img.saraba1st.com/forum/202404/28/132641kmvydyc9vwmnxdzw.png" referrerpolicy="no-referrer">
+
+<strong>dc90b58b2madf2c1a0f32afa35e92de7.png</strong> (975.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:26 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/132641oz8fuc113fqy3f1c.png" referrerpolicy="no-referrer">
+
+<strong>e8725dc33i2a0f97f8d3eb94cc3c2af8.png</strong> (877.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:26 上传
+

@@ -4422,3 +4422,39 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 请问下埃多斯7还能再回去么？
 我在demo里就碰到个密码箱开不了，结果正式版还是没找到密码。
 
+
+*****
+
+####  n5965315  
+##### 1151#       发表于 2024-4-28 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748869&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-4-28 13:18</a>
+
+请问下埃多斯7还能再回去么？
+
+我在demo里就碰到个密码箱开不了，结果正式版还是没找到密码。 ...</blockquote>
+可以回去 那个箱子是后面的任务直接给密码 
+
+*****
+
+####  BadYanL  
+##### 1152#       发表于 2024-4-28 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748869&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-4-28 13:18</a>
+
+请问下埃多斯7还能再回去么？
+
+我在demo里就碰到个密码箱开不了，结果正式版还是没找到密码。 ...</blockquote>
+可以回去的，后面一堆支线要回到埃多斯7
+
+
+*****
+
+####  jacket  
+##### 1153#       发表于 2024-4-28 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748824&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-4-28 13:14</a>
+
+我碰到的是黄色小无人机被几根钢筋卡住，我试着用枪把钢筋打掉，他飞出来之后赏了一个罐子。 ...</blockquote>
+哦哦，原来是打掉，我对着钢筋跳了半天没反应
+

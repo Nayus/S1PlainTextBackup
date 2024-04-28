@@ -4704,3 +4704,23 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 上臂显得长，然后背又显得厚。
 然后这个明明是高颧骨的脸正面真感觉怪怪的，感觉被削掉了一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShiKi847  
+##### 1180#       发表于 2024-4-29 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64755610&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-29 00:14</a>
+
+玩到废土地图，开了日光塔，感叹这优化真好，性能模式还能不感觉到糊，都是手游厂第一次做主机游戏，韩国人 ...</blockquote>
+数毛社说平衡模式比4K模式还要做的好
+
+*****
+
+####  Risotto_Nero  
+##### 1181#       发表于 2024-4-29 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64754765&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-28 22:25</a>
+这假日兔太离谱了，跑步能看到侧乳的，屁股抖的妈都不认识了</blockquote>
+后面有一套空降服原型更离谱
+

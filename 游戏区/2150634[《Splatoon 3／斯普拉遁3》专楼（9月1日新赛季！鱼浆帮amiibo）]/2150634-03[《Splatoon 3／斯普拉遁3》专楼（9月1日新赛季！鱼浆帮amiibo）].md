@@ -12712,3 +12712,11 @@ RKH4-PQJW-JMRC-HM0J
 
 桶不行，桶去K铁基本必死，最好还是文森特去
 
+
+*****
+
+####  Ryuuseigun  
+##### 4239#       发表于 2024-4-29 00:47
+
+两wave出了9个铁球就nm无语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

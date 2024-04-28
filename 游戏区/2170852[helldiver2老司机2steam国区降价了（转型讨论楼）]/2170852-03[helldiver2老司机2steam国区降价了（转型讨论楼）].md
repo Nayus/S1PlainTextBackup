@@ -5080,3 +5080,16 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想做个日常，打了几盘全是黄胖
 
+
+*****
+
+####  xinfengj  
+##### 3439#       发表于 2024-4-29 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753788&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-28 20:37</a>
+
+能说出只有爆裂铳能吸附，不说是个云狗子，少说也是个臭低能吧？啥都不知道就在这吠啊？
+
+你 ...</blockquote>
+对对对，您最有个性，快和上面那位一起凑钱租卡车去箭头门口抗议啊，在论坛上放屁他们能有一点压力吗？
+

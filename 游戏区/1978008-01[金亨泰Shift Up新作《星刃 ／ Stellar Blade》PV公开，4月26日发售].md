@@ -4458,3 +4458,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 我碰到的是黄色小无人机被几根钢筋卡住，我试着用枪把钢筋打掉，他飞出来之后赏了一个罐子。 ...</blockquote>
 哦哦，原来是打掉，我对着钢筋跳了半天没反应
 
+
+*****
+
+####  彩虹肥宅  
+##### 1154#       发表于 2024-4-28 14:12
+
+武器也是发饰变的，还挺优雅
+

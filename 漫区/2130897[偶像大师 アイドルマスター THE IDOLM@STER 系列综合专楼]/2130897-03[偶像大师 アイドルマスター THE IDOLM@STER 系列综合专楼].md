@@ -5628,3 +5628,54 @@ ytb上有不少360度场景展示，可能要vr
 
 完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有个马甲密码忘了
 
+
+*****
+
+####  水莲寺流歌  
+##### 3498#       发表于 2024-4-28 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 3499#       发表于 2024-4-28 14:09
+
+里蓝真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  commie_neko  
+##### 3500#       发表于 2024-4-28 14:14
+
+里苍短发侧颜真好看，表苍的cv这是第一次主役吧，vocal力好高
+
+*****
+
+####  cckuku  
+##### 3501#       发表于 2024-4-28 14:15
+
+里黄初始周边是在扎头发，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+IMG_3363.jpeg
+(235.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 14:15 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/141519h7wokasoigt77ozk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kirakira~  
+##### 3502#       发表于 2024-4-28 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749373&amp;ptid=2130897" target="_blank">水莲寺流歌 发表于 2024-4-28 14:06</a>
+
+原本以为是另一片场的szsh，没想到居然是重力系幼驯染，已转型学马仕铁粉 ...</blockquote>
+猜一手类似banana那样的直升机妈妈角色，小蓝叛逆期到了不想被妈管了（
+

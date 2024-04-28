@@ -995,3 +995,31 @@ INABA
 
 但老实说也想象不出来其他的可能，可能就是单纯想加一个外表偏中性的路人进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1385#       发表于 2024-4-28 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751797&amp;ptid=2162354" target="_blank">modedd 发表于 2024-4-28 17:28</a>
+
+只看人设确实是和路人两字不沾边
+
+但老实说也想象不出来其他的可能性了，也许就是单纯想加一个外表偏中性 ...</blockquote>
+我的想法是新到镇上的高级配角类似与主角同学的定位。
+
+但是这个角色和本集的小友和妈妈都没cv表……嗯……没证据啊
+
+
+*****
+
+####  modedd  
+##### 1386#       发表于 2024-4-28 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752066&amp;ptid=2162354" target="_blank">leleq 发表于 2024-4-28 17:50</a>
+
+我的想法是新到镇上的高级配角类似与主角同学的定位。
+
+但是这个角色和本集的小友和妈妈都没cv表……嗯… ...</blockquote>
+其实主要的证据就是连cv表都没有，而且就算是配角这个出场也太随便了一点，完全就是唐突出现的蜜汁铁t大姐姐，可能以后有元气弹之类的剧情会再出场吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

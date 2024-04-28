@@ -4686,3 +4686,24 @@ free本太阴间 都想大量刷限时本 能不卡吗
 
 这次的全是本人吧，一开始的伊斯塔尔说自己是伊斯塔凛远坂，村正说自己是士郎
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12433#       发表于 2024-4-28 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64754623&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-4-28 22:08</a>
+这次的全是本人吧，一开始的伊斯塔尔说自己是伊斯塔凛远坂，村正说自己是士郎 ...</blockquote>
+01年士郎有没有上初中还是个问题
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eilot  
+##### 12434#       发表于 2024-4-28 23:31
+
+今日更新後，剛清完新劇情後，刷FREE關，手機愈來愈熱，用電也去得好快
+
+iphone XR
+

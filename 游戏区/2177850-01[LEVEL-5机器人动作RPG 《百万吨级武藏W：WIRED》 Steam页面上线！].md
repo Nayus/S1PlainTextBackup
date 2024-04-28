@@ -448,3 +448,11 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">版本更新当新游戏卖不愧是L5
 
+
+*****
+
+####  pzgr43  
+##### 47#       发表于 2024-4-28 23:29
+
+除了魔神z，盖塔，孔巴多拉v还有哪些联动机体啊？
+

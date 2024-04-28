@@ -4667,3 +4667,21 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 大沙漠开始怪强度陡然上升啊，不过对于暗杀来说都是一下就是了
 
+
+*****
+
+####  pissca  
+##### 1176#       发表于 2024-4-29 00:07
+
+这废品堆放场有个梯子判定是不是短了，试了好几次空中攻击才抓上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名字已被吃  
+##### 1177#       发表于 2024-4-29 00:14
+
+玩到废土地图，开了日光塔，感叹这优化真好，性能模式还能不感觉到糊，都是手游厂第一次做主机游戏，韩国人就比日本cy做得牛逼，cy你看看你的relink性能模式是什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5072,3 +5072,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用空爆弹打了一晚上的虫族保卫高价值算是基本摸清楚这空爆怎么玩了
 
+
+*****
+
+####  不可逆的坏死  
+##### 3438#       发表于 2024-4-28 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想做个日常，打了几盘全是黄胖
+

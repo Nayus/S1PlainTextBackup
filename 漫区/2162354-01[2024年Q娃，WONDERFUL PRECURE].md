@@ -1035,3 +1035,12 @@ INABA
 
 真是路人啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1388#       发表于 2024-4-28 23:44
+
+不知道因为去年被骂过 导致今年比以往配角数量及登场频率次数明显上来了
+配角同学甚至意外的有人气
+

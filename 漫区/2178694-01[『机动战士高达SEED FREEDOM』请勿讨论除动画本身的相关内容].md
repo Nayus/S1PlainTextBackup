@@ -8769,3 +8769,13 @@ https://weibo.com/7503521063/5002857336804256
 
 澳门看完，全场笑的地方还是满多的，绝好调哈佬倒是没什么人有反应
 
+
+*****
+
+####  mirageC  
+##### 716#       发表于 2024-4-28 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有个隐藏彩蛋（？）桑岛法子这次终于没死了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

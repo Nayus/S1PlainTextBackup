@@ -537,3 +537,32 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 看31l，一个铁血索索说，可能首日一百万
 然后文章就写成，索尼内部人士已经说了销量首日一百万了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼热的小市民  
+##### 51#       发表于 2024-4-28 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746299&amp;ptid=2181421" target="_blank">今天不守尸 发表于 2024-4-28 09:54</a>
+忍组看了剑星的表现后，不会觉得浪人的问题出在战斗系统太复杂，下作继续做减法吧？ ...</blockquote>
+依忍组的尿性还真有可能，忍组什么时候才能知道自己的长处在哪里啊。希望他们看了剑星能明白，用doa的女角色做个act吧，绝对比那笔浪人卖得好。
+
+*****
+
+####  今天不守尸  
+##### 52#       发表于 2024-4-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751951&amp;ptid=2181421" target="_blank">灼热的小市民 发表于 2024-4-28 17:41</a>
+
+依忍组的尿性还真有可能，忍组什么时候才能知道自己的长处在哪里啊。希望他们看了剑星能明白，用doa的女 ...</blockquote>
+问题是按忍组那大红大黑审美+祖传引擎+抠抠搜搜的预算，能做出和剑星一样卖相的游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 53#       发表于 2024-4-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751951&amp;ptid=2181421" target="_blank">灼热的小市民 发表于 2024-4-28 17:41</a>
+依忍组的尿性还真有可能，忍组什么时候才能知道自己的长处在哪里啊。希望他们看了剑星能明白，用doa的女 ...</blockquote>
+忍龙西格玛:你好
+

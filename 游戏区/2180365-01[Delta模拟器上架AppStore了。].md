@@ -1380,3 +1380,22 @@ rom：超级机器人大战W V1.1终结完美版(简)(JP)(星组)(512Mb)</blockq
 估计一样的作者吧，reddit也发了，懒得下小红书什么加群的，可以看看。
 [https://drive.google.com/drive/f ... EK2J?usp=drive_link](https://drive.google.com/drive/folders/1TliT8yYAcQG1QkORbCo1NUp0wuKMEK2J?usp=drive_link)
 
+
+*****
+
+####  Ameyoru  
+##### 118#       发表于 2024-4-28 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748975&amp;ptid=2180365" target="_blank">superkin185 发表于 2024-4-28 13:27</a>
+
+推荐小红书上PIX3L的皮肤滤镜，比较完美，目前只有竖版，横版也在制作中。皮肤加作者小红书的群可以免费获 ...</blockquote>
+中间这节快捷菜单按钮是怎么弄出来的？我下了reddit上的版本，改完之后没看有这个菜单<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/28/174305ypdvidepaii2dpig.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:43 上传
+

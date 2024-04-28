@@ -4288,3 +4288,58 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 3技能需要的那个指示物是怎么获得的？
 
+
+*****
+
+####  Jamaisvu  
+##### 12390#       发表于 2024-4-28 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751856&amp;ptid=2084912" target="_blank">hououmon 发表于 2024-4-28 17:32</a>
+
+3技能需要的那个指示物是怎么获得的？</blockquote>
+好像是固定13只，用一次三技能少一只。
+
+3技能10级2CD给一次不能解除的对肃正防御和20NP，除非打20多回合长线否则轻易用不完吧。
+
+*****
+
+####  Jamaisvu  
+##### 12391#       发表于 2024-4-28 17:40
+
+有珠这设计的太随便了吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">厨子狂怒。
+
+现在只能希望卡面超水平发挥，让我有动力下池子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">强度换颜值很公平吧...
+
+*****
+
+####  hououmon  
+##### 12392#       发表于 2024-4-28 17:40
+
+ 本帖最后由 hououmon 于 2024-4-28 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751908&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-28 17:37</a>
+
+好像是固定13只，用一次三技能少一只。
+
+3技能10级2CD给一次不能解除的对肃正防御和20NP，除非打20多回合 ...</blockquote>
+谢谢，简单来说就是每局开场直接给13只？
+
+*****
+
+####  Jamaisvu  
+##### 12393#       发表于 2024-4-28 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751941&amp;ptid=2084912" target="_blank">hououmon 发表于 2024-4-28 17:40</a>
+
+谢谢，简单来说就是每局开场13只？</blockquote>
+是的，可以理解为一局游戏三技能只能使用十三次，升级只影响NP量（10—20），鸟的数量固定。
+
+一般来说不会触发上限的，只是为了还原设定吧。
+
+
+*****
+
+####  onemoment  
+##### 12394#       发表于 2024-4-28 17:46
+
+每天限时时间都不一样，真是有病
+

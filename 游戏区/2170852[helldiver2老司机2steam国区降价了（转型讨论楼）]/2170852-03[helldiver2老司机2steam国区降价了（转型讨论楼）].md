@@ -4968,3 +4968,13 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 说到修BUG，先把头盔防御问题解决下吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像不在已知bug中
 
+
+*****
+
+####  风萧飒  
+##### 3428#       发表于 2024-4-28 17:34
+
+之前还在想今天有没有补丁，然后想起来是周日
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

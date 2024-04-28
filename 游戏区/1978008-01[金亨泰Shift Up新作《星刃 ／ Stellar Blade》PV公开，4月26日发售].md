@@ -4734,3 +4734,11 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 流程到解锁爆发，这游戏即使不靠烧的综合素质也能算中等偏上
 
+
+*****
+
+####  Leona_Akari  
+##### 1183#       发表于 2024-4-29 01:34
+
+已经“战斗，爽！”了，衣服随便穿，别影响我打怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

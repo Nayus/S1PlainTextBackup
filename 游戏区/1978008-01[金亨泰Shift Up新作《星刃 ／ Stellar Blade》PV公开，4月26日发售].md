@@ -4343,3 +4343,32 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星刃：不朽
 
+
+*****
+
+####  skgaminger1988  
+##### 1143#       发表于 2024-4-28 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733592&amp;ptid=1978008" target="_blank">两个路人 发表于 2024-4-27 02:29</a>
+作为一名成熟的大人，你个shit up的小人物得罪不起翔尼的大人物，大家心照不宣。但是，棒子这格局确实小了 ...</blockquote>
+这个制作公司有前科的，手游就打着软色情的招牌结果天天和谐，不要真当它白莲花好吧
+
+*****
+
+####  哎哟卧槽了  
+##### 1144#       发表于 2024-4-28 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747880&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-28 11:54</a>
+
+续作可能要等好久去了，shift up下作是全平台开放世界氪金手游，估计就是拿星刃的技术做。星刃的技术积累 ...</blockquote>
+再次说明PS5游戏卡帧数纯粹是日厂自己不进取<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShiKi847  
+##### 1145#       发表于 2024-4-28 12:15
+
+<blockquote>天王寺綯 发表于 2024-4-28 11:56
+这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机 ...</blockquote>
+说不定是nikke续作
+

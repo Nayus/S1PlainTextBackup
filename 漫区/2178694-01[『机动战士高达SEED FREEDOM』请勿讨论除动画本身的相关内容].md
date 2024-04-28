@@ -8715,3 +8715,25 @@ https://weibo.com/7503521063/5002857336804256
 赞美文姐</blockquote>
 吼吼吼，赞美文姐
 
+
+*****
+
+####  gary76  
+##### 711#       发表于 2024-4-28 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745977&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-4-28 09:24</a>
+这片排档到几号，澳门就两家上映？5月下半月去还有的看吗？</blockquote>
+澳門5家電影院都有
+兩家有4DX，強烈推薦，親臨駕駛艙的效果<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 712#       发表于 2024-4-28 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747575&amp;ptid=2178694" target="_blank">charles0815 发表于 2024-4-28 11:26</a>
+永乐、大会堂、银河、葡京人、星皓都有
+
+排档就不清楚了，5月下半估计大会堂和永乐就没了，其他影院多点 ...</blockquote>
+還有金銀島的博納影城，在舊葡京對面馬路
+

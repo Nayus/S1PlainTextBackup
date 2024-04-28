@@ -5881,3 +5881,58 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  rgauss  
+##### 3523#       发表于 2024-4-28 18:17
+
+好大
+
+*****
+
+####  kirakira~  
+##### 3524#       发表于 2024-4-28 18:17
+
+妹妹进学校干的第一件事就是撬姐姐墙角啊，前途有望
+
+*****
+
+####  ViviR  
+##### 3525#       发表于 2024-4-28 18:19
+
+妹妹的前置装甲是不是有点大
+
+*****
+
+####  rgauss  
+##### 3526#       发表于 2024-4-28 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752373&amp;ptid=2130897" target="_blank">kirakira~ 发表于 2024-4-28 18:17</a>
+妹妹进学校干的第一件事就是撬姐姐墙角啊，前途有望</blockquote>
+确实前途有望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3527#       发表于 2024-4-28 18:21
+
+风怒
+
+*****
+
+####  Swss  
+##### 3528#       发表于 2024-4-28 18:23
+
+大概里信号灯一开始不在主角手下不可p了
+
+
+*****
+
+####  rgauss  
+##### 3529#       发表于 2024-4-28 18:25
+
+ 本帖最后由 rgauss 于 2024-4-28 18:26 编辑 
+
+开学迟到＋碰上P，这下妹妹真红c了
+

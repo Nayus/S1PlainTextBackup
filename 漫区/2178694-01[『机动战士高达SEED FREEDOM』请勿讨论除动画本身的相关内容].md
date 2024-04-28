@@ -8737,3 +8737,13 @@ https://weibo.com/7503521063/5002857336804256
 排档就不清楚了，5月下半估计大会堂和永乐就没了，其他影院多点 ...</blockquote>
 還有金銀島的博納影城，在舊葡京對面馬路
 
+
+*****
+
+####  qwemiku  
+##### 713#       发表于 2024-4-28 13:56
+
+大陆啥时候啊
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

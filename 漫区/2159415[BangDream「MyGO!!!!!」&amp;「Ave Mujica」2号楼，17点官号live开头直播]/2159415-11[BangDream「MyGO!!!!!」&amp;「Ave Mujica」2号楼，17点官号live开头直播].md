@@ -15767,3 +15767,15 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 <img src="https://wx4.sinaimg.cn/large/005xT5lgly1hp6f24nj2qj313m1ygdry.jpg" referrerpolicy="no-referrer">
 <img src="https://wx2.sinaimg.cn/large/005xT5lgly1hp6f253rr9j313m1ygn7i.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16195#       发表于 2024-4-28 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749117&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-28 13:38</a></blockquote>
+有趣的是MyGO的琴在动画里除了OP以外都没有"M"字品记（）
+Mujica则是第13话才有月光品记（）
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

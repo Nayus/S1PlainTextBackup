@@ -4080,3 +4080,14 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 欧皇 怎么还有仇凛  欧 不羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新
 
+
+*****
+
+####  alucardcz  
+##### 12373#       发表于 2024-4-28 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749166&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-28 13:44</a>
+
+不如狗萌新</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新都不知道昨天有限时本 亏了不知道多少个5星了
+

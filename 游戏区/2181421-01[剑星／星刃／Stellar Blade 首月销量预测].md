@@ -598,3 +598,42 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 —— 来自 nubia NX712J, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 这是打了mod还是可以直接捏出这种效果？
 
+
+*****
+
+####  十六夜镜月  
+##### 57#       发表于 2024-4-28 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753147&amp;ptid=2181421" target="_blank">哆哆鸡 发表于 2024-4-28 19:35</a>
+
+这是打了mod还是可以直接捏出这种效果？</blockquote>
+浪人怎么打MOD？
+
+
+*****
+
+####  sandro  
+##### 58#       发表于 2024-4-28 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751951&amp;ptid=2181421" target="_blank">灼热的小市民 发表于 2024-4-28 17:41</a>
+依忍组的尿性还真有可能，忍组什么时候才能知道自己的长处在哪里啊。希望他们看了剑星能明白，用doa的女 ...</blockquote>
+不是，忍龙用霞红叶凌音不也就这样吗
+
+*****
+
+####  199april  
+##### 59#       发表于 2024-4-28 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忍组还是快点把它那个破烂引擎换了吧，不换引擎就还是那个样子
+
+剑星首周应该能80-100w 总销量200w~300w
+
+*****
+
+####  线程召唤使  
+##### 60#       发表于 2024-4-28 19:55
+
+听说内容量不行是真的嘛？
+
+我还想着去剑灵怀旧服玩玩先不买这个了
+

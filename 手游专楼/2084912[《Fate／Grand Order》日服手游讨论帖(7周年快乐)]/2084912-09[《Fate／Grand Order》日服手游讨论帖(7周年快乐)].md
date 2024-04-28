@@ -4516,3 +4516,14 @@ HA发售日
 
 草青子怎么又死了，这是要每天死一次？
 
+
+*****
+
+####  UNISONIA  
+##### 12414#       发表于 2024-4-28 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752724&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-28 18:53</a>
+
+有珠的优点可能是70NP自充，算上满级被动和衣服技能，不用像其他绿光炮一样必需50NP礼装或换人充能，可以带 ...</blockquote>
+绿卡的50+20NP很尴尬啊（要带条衣服补10吧）
+

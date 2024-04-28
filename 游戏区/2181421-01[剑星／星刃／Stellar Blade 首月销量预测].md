@@ -510,3 +510,19 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 忍组看了剑星的表现后，不会觉得浪人的问题出在战斗系统太复杂，下作继续做减法吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依存香炉  
+##### 49#       发表于 2024-4-28 16:26
+
+<img src="https://img.saraba1st.com/forum/202404/28/162601eke499w2m23jw84j.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-04-28 at 16.23.37.png</strong> (50.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 16:26 上传
+
+这没头没尾的爆料是哪儿来的？24小时一百万有点夸张吧
+

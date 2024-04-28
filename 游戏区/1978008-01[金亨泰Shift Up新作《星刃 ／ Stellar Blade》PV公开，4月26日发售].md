@@ -4549,3 +4549,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 好奇你们都是长马尾还是短马尾？demo我一直选的短马尾，正式版发现长马尾也挺香的 ...</blockquote>
 妨碍我看假日兔侧乳了 所以不用
 
+
+*****
+
+####  ShiKi847  
+##### 1164#       发表于 2024-4-28 16:24
+
+这城市内罗盘怎么让它一直显示啊，这标点就消失太恶心了
+

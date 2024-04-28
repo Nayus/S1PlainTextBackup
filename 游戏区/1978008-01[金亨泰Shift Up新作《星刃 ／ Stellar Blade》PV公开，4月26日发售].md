@@ -4776,3 +4776,14 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 这弹反真的能不用就不用，感觉闪避的判定都比他宽松，完美弹甚至还会子弹时间一下打乱你节奏，是真的不行
 
+
+*****
+
+####  kuarwbwe  
+##### 1187#       发表于 2024-4-29 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753460&amp;ptid=1978008" target="_blank">RainbowSealife 发表于 2024-4-28 20:05</a>
+
+发售都两天了，也没见泥潭有人发帖表示伊芙或其他角色太涩了忍不住撸了两管，看来这游戏的软瑟琴似乎不能让 ...</blockquote>
+主要女主的脸太像娃娃了，色不动。同样是韩国人的卖烧鸡游戏，我更喜欢另一个出demo的洛奇。
+

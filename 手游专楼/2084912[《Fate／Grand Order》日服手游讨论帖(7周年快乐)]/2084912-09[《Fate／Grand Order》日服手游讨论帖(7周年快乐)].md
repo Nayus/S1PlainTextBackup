@@ -4359,3 +4359,21 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 限時任務都是不同時間，只能直接無視...
 
+
+*****
+
+####  alucardcz  
+##### 12397#       发表于 2024-4-28 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744449&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-28 01:33</a>
+
+五星绿卡术光炮目前人数还是0，可以填空缺</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预言家！
+
+*****
+
+####  alucardcz  
+##### 12398#       发表于 2024-4-28 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了 联动双寄 最强的是送的  说明流水还是太高可以为所欲为
+

@@ -6057,3 +6057,11 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">里御三家原来是山本亮负责的 六文字你还是让山本亮上位选人吧
 
+
+*****
+
+####  水莲寺流歌  
+##### 3544#       发表于 2024-4-28 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">表里御三家的设定还真挺有意思的
+

@@ -5554,3 +5554,69 @@ ytb上有不少360度场景展示，可能要vr
 
 —— 来自 OPPO PGU110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ViviR  
+##### 3490#       发表于 2024-4-28 13:44
+
+ 本帖最后由 ViviR 于 2024-4-28 13:48 编辑 
+<blockquote>l⑨th_Knight 发表于 2024-4-28 13:30
+偶像荣耀也有女女关系甚至p还人鬼情未了，不妨碍大搞特搞plove啊
+
+—— 来自 S1Fun ...</blockquote>论IP某个既能跟玩家角色脸红玩暖味，还出了恋爱模拟的小游戏，然后又会给闺蜜送自己的等身抱枕，在圣诞节剧情里plove到最后又转头和闺蜜约会去的角色的含金量（
+
+然后IP的玩家角色（牧野）有头有脸有配音，有正常的人物塑造，甚至还会劝退热衷于代入的一部分人（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3491#       发表于 2024-4-28 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749173&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-28 13:44</a>
+然后IP的玩家角色（牧野）有头有脸有配音，有正常的人物塑造，甚至还会劝退热衷于代入的一部分人（ ...</blockquote>
+大家难道不是代入牧野的吗
+
+*****
+
+####  ViviR  
+##### 3492#       发表于 2024-4-28 13:49
+
+<blockquote>rgauss 发表于 2024-4-28 13:46
+大家难道不是代入牧野的吗</blockquote>
+有些人觉得牧野形象太具体了不好代入（
+
+
+*****
+
+####  ViviR  
+##### 3493#       发表于 2024-4-28 13:52
+
+哦，搞明白了，全体曲有至少两首以上，校园曲是贵公子作曲的。我还以为只有一首全体曲（校园曲）。
+
+*****
+
+####  rgauss  
+##### 3494#       发表于 2024-4-28 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749210&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-28 13:49</a>
+有些人觉得牧野形象太具体了不好代入（</blockquote>
+不要紧 我都可以代入啊 形象具体也无所谓
+
+*****
+
+####  三度音  
+##### 3495#       发表于 2024-4-28 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748992&amp;ptid=2130897" target="_blank">馬斯特壺 发表于 2024-4-28 13:28</a>
+
+感觉咲季已经输了</blockquote>
+这个生日…只差一年，父母好着急要老二啊……
+
+*****
+
+####  倉本千奈  
+##### 3496#       发表于 2024-4-28 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

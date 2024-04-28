@@ -8747,3 +8747,17 @@ https://weibo.com/7503521063/5002857336804256
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qwemiku  
+##### 714#       发表于 2024-4-28 17:04
+
+高达SEED 纪念CD-BOX的最后一张碟
+
+收录了主要歌曲的重录版（除教主的METEOR外）
+
+[https://pan.baidu.com/s/1QkprKhoMjbZUrph6N-pjYw](https://pan.baidu.com/s/1QkprKhoMjbZUrph6N-pjYw)
+
+提取码:tjmc
+

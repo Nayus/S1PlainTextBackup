@@ -16004,3 +16004,11 @@ ave mujica的當然全部溺愛<img src="https://static.saraba1st.com/image/smil
 
 点进来就在滑<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16217#       发表于 2024-4-28 16:57
+
+https://x.com/Gumshou38/status/1784484948482883905<img src="https://p.sda1.dev/17/5276615f2f48b2c70e56683fdf35de00/CMP_20240428165650143.jpg" referrerpolicy="no-referrer">
+

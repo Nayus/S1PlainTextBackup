@@ -978,3 +978,20 @@ INABA
 
 查看全部评分
 
+
+*****
+
+####  modedd  
+##### 1384#       发表于 2024-4-28 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64750965&amp;ptid=2162354" target="_blank">leleq 发表于 2024-4-28 16:17</a>
+
+小友前面说要保密转头就跟妈妈说太真实啦
+
+这位带狗姐姐这人设真是路人吗？
+
+太太可爱</blockquote>
+只看人设确实是和路人两字不沾边
+
+但老实说也想象不出来其他的可能，可能就是单纯想加一个外表偏中性的路人进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

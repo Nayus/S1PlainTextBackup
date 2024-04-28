@@ -16036,3 +16036,25 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 但仔细想想觉得确实有可能，这就是武士道给我的自信
 
+
+*****
+
+####  基神的强袭自由  
+##### 16220#       发表于 2024-4-28 17:29
+
+羡慕你们的都到了
+
+我的EMS包裹从日本发了两天了都没反应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 16221#       发表于 2024-4-28 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749923&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-28 14:56</a>
+
+喵老师其实是熊本人 在东京赚钱养全家
+
+有一集是喵老师退团 然后祥子去家里抓人 两人交心</blockquote>
+祥子一边跑一边喊喵梦然后平地摔是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

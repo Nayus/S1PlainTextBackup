@@ -4428,3 +4428,34 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 五一怎么还没到，我要审判小山的有珠卡面</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联动卡面强度4寄1体这种事情 不要啊
 
+
+*****
+
+####  alucardcz  
+##### 12405#       发表于 2024-4-28 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752724&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-28 18:53</a>
+
+有珠的优点可能是70NP自充，算上满级被动和衣服技能，不用像其他绿光炮一样必需50NP礼装或换人充能，可以带 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么最关键的回收率如何呢 如果不行不是全都不用聊了
+
+*****
+
+####  Jamaisvu  
+##### 12406#       发表于 2024-4-28 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752738&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-28 18:54</a>
+
+那么最关键的回收率如何呢 如果不行不是全都不用聊了</blockquote>
+确实，如果第一面打完回收不到50NP，可能三技能要留给第二面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚至要带阿特拉斯服给三技能减CD重复使用...
+
+真毒成这样我就不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 12407#       发表于 2024-4-28 19:01
+
+有珠可以了，要上班肯定能用，术光炮本来就打克制用的不会真有人拿术光炮当泛用吧，高自充+有特攻，90++基本条件也符合了，就看卡面了，小山能不能扭转下风评就看5月1号了
+

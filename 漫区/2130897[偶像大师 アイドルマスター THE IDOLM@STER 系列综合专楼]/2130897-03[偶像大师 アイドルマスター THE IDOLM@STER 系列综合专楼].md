@@ -5969,3 +5969,26 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 虽然知道毕竟是手游，但开头这场景建模也太简陋了，跟之前pv里面渲染精细度拉满的场景建模完全不是一回事啊…
 
+
+*****
+
+####  伊布桑  
+##### 3534#       发表于 2024-4-28 19:20
+
+ 本帖最后由 伊布桑 于 2024-4-28 19:22 编辑 
+
+我真是服了qa了，这个播片用的字幕黑底白字和人名白底黑字一眼串戏ip，不会是整个交互ui都搬过来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/a8895cc538f0de3f97b4be58391f01fa/IMG_A5A330207E4EA3AC9A26838C94DDF667.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/1be0ec79d04a2ca743d61d0d44c96b43/IMG_1DB0FE9349E7F33BEAD02DF9588699EA.jpeg" referrerpolicy="no-referrer">
+不过目前放出来的剧情片段来看，过剧情的时候切镜很多，比ip那种放个镜头在那就开始站栋聊天的效果要好不少
+
+另外妹妹走主角模板的话，表红是不是又多一个恶役千金属性（
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  安广多惠子  
+##### 3535#       发表于 2024-4-28 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同时p两个就不乐意了，你们两个小妮子不知道本制作人可是能同时p一百多个的人
+

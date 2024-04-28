@@ -114,3 +114,18 @@ pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face
 
 我今天才反应过来，鲁鲁修是个纸板<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，当然比其他只有头像的强那么一点点。
 
+
+*****
+
+####  Picavian  
+##### 1049#       发表于 2024-4-28 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64737724&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-4-27 15:59</a>
+
+这CC和卡莲穿GEAR的剧情也太儿戏了吧，最多半天就把gear做出来了，整备部是超人吗
+
+ ...</blockquote>
+和之前石头门情况类似，实际上是先做出了装备，然后人再过来。
+
+至于这次是怎么做到的，还得等后续剧情。
+

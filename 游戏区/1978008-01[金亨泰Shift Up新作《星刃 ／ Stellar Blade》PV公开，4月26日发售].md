@@ -4538,3 +4538,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 一开始的御姐能用吗？
 
+
+*****
+
+####  n5965315  
+##### 1163#       发表于 2024-4-28 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749906&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-4-28 14:54</a>
+
+好奇你们都是长马尾还是短马尾？demo我一直选的短马尾，正式版发现长马尾也挺香的 ...</blockquote>
+妨碍我看假日兔侧乳了 所以不用
+

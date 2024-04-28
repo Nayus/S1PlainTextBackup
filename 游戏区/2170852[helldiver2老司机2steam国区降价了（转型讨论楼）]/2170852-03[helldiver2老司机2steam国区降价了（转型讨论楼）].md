@@ -4743,3 +4743,15 @@ AA→Anti-Ally
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jy000129  
+##### 3407#       发表于 2024-4-28 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64744969&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-28 05:41</a>
+每次更新bug全都“凑巧”出在能恶心你的地方，什么机甲自爆，重机枪歪准星（至今没修复），爆炸吸附，类星 ...</blockquote>
+所以说一开始可能是失误，不修一定是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

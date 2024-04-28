@@ -6119,3 +6119,27 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 一个是电脑还没到，一个是观众告诉她了里面是专用冷却液
 
+
+*****
+
+####  holoan  
+##### 8722#         楼主| 发表于 2024-4-29 03:25
+
+<img src="https://img.saraba1st.com/forum/202404/29/032501rvbs6zsowwbtffi6.jpg" referrerpolicy="no-referrer">
+
+<strong>i.imgur.com_AriqkzP_6381045087EBB5BD5D78742A6AD3F608B7BF7B05.jpg</strong> (169.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 03:25 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/032501a1r4aotpsuhzgprp.jpg" referrerpolicy="no-referrer">
+
+<strong>i.imgur.com_qH0cWDG_7B1D254BE60FE213764ACBF4E5909F73CE67B26D.jpg</strong> (89.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 03:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

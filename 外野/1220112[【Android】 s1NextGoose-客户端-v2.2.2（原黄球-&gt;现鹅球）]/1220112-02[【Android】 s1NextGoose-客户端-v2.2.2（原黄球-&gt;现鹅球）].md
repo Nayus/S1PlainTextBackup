@@ -388,3 +388,11 @@ GitHub有earlyaccess的release啊
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  smdzh2  
+##### 1548#       发表于 2024-4-28 09:09
+
+旧鹅球还会更新吗<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">
+

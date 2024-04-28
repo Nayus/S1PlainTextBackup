@@ -4789,3 +4789,15 @@ AA→Anti-Ally
 bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 打完才发现不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 3411#       发表于 2024-4-28 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745595&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-4-28 08:49</a>
+带蛋盾的情况下使用类星体有概率因为打在蛋盾上炸死自己</blockquote>
+好久没用蛋盾了，难怪不知道
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

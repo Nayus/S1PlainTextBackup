@@ -811,3 +811,17 @@ INABA
 
 第 13 集的 TVer 源（含日字）：magnet:?xt=urn:btih:c3ebd3a5a987c99f9ec48b7008a57fa7b526f0af
 
+
+*****
+
+####  最强惠酱  
+##### 1371#       发表于 2024-4-28 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738207&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-4-27 17:03</a>
+INABA
+
+员工待遇差+老板玩男人</blockquote>
+乔治社长?
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4584,3 +4584,33 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 去和谐补丁什么时候出？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  两个路人  
+##### 1168#       发表于 2024-4-28 20:55
+
+<blockquote>patema 发表于 2024-4-28 11:47
+你以为是su只看到小钱钱，su搞不好是想复刻nikke成熟路线玩黑红呢
+
+到时候su全服送服装， ...</blockquote>
+这届玩家不行啊，怎么还没风向带着一起冲shit up呀？还在聚焦翔尼和某些抽象媒体
+
+game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍体验，不行（哈哈哈
+
+<img src="https://img.saraba1st.com/forum/202404/28/205410pxbfzhvszpivpndb.jpg" referrerpolicy="no-referrer">
+
+<strong>20240428_203407.jpg</strong> (103.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 20:54 上传
+
+
+*****
+
+####  icylight  
+##### 1169#       发表于 2024-4-28 21:02
+
+百合的配音，日配不如韩配，韩配更像萝莉的声音，应该不止我一个人这么觉得吧？
+

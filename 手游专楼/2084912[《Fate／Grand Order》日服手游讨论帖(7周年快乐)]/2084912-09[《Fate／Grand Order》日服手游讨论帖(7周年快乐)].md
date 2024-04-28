@@ -4151,3 +4151,94 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 看了攻略網都是每晚來2小時
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12380#       发表于 2024-4-28 17:17
+
+青子又死了，太没人性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku  
+##### 12381#       发表于 2024-4-28 17:17
+
+五星绿光炮术来了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 12382#       发表于 2024-4-28 17:18
+
+<img src="https://img.saraba1st.com/forum/202404/28/171822q61f2c6cacc3dxx2.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1328.JPG</strong> (114.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/171822rz1mxy9ytj55fp2x.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1329.JPG</strong> (115.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/171822adbrdbdql6rbb8f6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1330.JPG</strong> (115.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:18 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/171822bzffcojerfrgjffj.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1331.JPG</strong> (109.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:18 上传
+
+*****
+
+####  琴酒  
+##### 12383#       发表于 2024-4-28 17:21
+
+<img src="https://img.saraba1st.com/forum/202404/28/172144av9lg3rktmx1dmmo.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1332.JPG</strong> (112.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/172144fc0jyv3clu5988cv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1333.JPG</strong> (152.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:21 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/172144gwqyyju6o7caa7uj.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1334.JPG</strong> (177.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 17:21 上传
+
+
+*****
+
+####  阿提拉  
+##### 12384#       发表于 2024-4-28 17:23
+
+绿卡，寄
+

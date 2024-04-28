@@ -526,3 +526,14 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 这没头没尾的爆料是哪儿来的？24小时一百万有点夸张吧
 
+
+*****
+
+####  医生狼多  
+##### 50#       发表于 2024-4-28 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64751085&amp;ptid=2181421" target="_blank">依存香炉 发表于 2024-4-28 16:26</a>
+这没头没尾的爆料是哪儿来的？24小时一百万有点夸张吧</blockquote>
+看31l，一个铁血索索说，可能首日一百万
+然后文章就写成，索尼内部人士已经说了销量首日一百万了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

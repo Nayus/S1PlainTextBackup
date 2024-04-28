@@ -15568,3 +15568,29 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 炎上合号的动静还是太小了
 
+
+*****
+
+####  skives  
+##### 16181#       发表于 2024-4-28 12:37
+
+不分号也行 
+那就等着动画开播后mujica粉的折磨吧 自找的
+
+*****
+
+####  rikaren  
+##### 16182#       发表于 2024-4-28 12:39
+
+岂止是动画放送期间？动画放送后背景和头像一团一半也太智障了。何况真要端水的话放送完结后mujica这边头像和背景至少也得挂一年才能平衡吧，逆天运营看看给自己挖的坑。
+
+
+*****
+
+####  御幸一也  
+##### 16183#       发表于 2024-4-28 12:43
+
+人就是欺負你現在ave粉絲少，動畫沒播的底邊團衝不動呢。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+那我就要看看之後的好戲了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

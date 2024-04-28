@@ -4393,3 +4393,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 星刃：不朽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错了 是尼尔3：r后面记不住
 
+
+*****
+
+####  divalun  
+##### 1148#       发表于 2024-4-28 13:03
+
+求教主线离开废土这张图之前（任务：卢瓦高层），一共可以获得几个升级药水次数上限的素材，自己瞎比探索只拿到两个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

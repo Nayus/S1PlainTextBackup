@@ -5062,3 +5062,154 @@ QQ截图20240428124227.png
 
 手毬唱的这首真还可以，vo力上来了，比美波那首强。
 
+
+*****
+
+####  Anatoly  
+##### 3440#       发表于 2024-4-28 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，这体验入学，难不成玩法还得再拖一周？
+
+不会你们优化炸中炸吧
+
+
+*****
+
+####  cckuku  
+##### 3441#       发表于 2024-4-28 12:59
+
+谷子都卖起来了，这不是铁叛变了吗？
+
+*****
+
+####  ViviR  
+##### 3442#       发表于 2024-4-28 12:59
+
+美铃很好，登场的bgm也好听，要投敌了
+
+*****
+
+####  Unlight  
+##### 3443#         楼主| 发表于 2024-4-28 13:00
+
+偶像之间的复杂关系这又不是一次两次了，至于这么激动吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3444#       发表于 2024-4-28 13:01
+
+先让你们在周边上花钱
+
+*****
+
+####  Alicest  
+##### 3445#       发表于 2024-4-28 13:01
+
+<img src="https://img.saraba1st.com/forum/202404/28/130108isa83cgg8dla6tpe.jpg" referrerpolicy="no-referrer">
+
+<strong>D3]5V767)_9@7HIXDAHBCKW.jpg</strong> (81.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:01 上传
+
+*****
+
+####  野菜一日分  
+##### 3446#       发表于 2024-4-28 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这无论人设还是中之人都是里组更有吸引力吧，表信号灯只能靠剧本拉一手了，表蓝的CV已经搁那吹关系性了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 3447#       发表于 2024-4-28 13:02
+
+信号灯人设最喜欢的还是里苍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  郁田阳希  
+##### 3448#       发表于 2024-4-28 13:02
+
+<img src="https://img.saraba1st.com/forum/202404/28/130113yrtnns9xspism3z0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:01 上传
+
+林檎商店预约日期变成八月了，不知道啥时候改的
+
+*****
+
+####  Alicest  
+##### 3449#       发表于 2024-4-28 13:02
+
+<img src="https://img.saraba1st.com/forum/202404/28/130225ldbskgs4zddskb50.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 13:02 上传
+
+*****
+
+####  koodooliz  
+##### 3450#       发表于 2024-4-28 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748666&amp;ptid=2130897" target="_blank">郁田阳希 发表于 2024-4-28 13:02</a>
+林檎商店预约日期变成八月&amp;#x ...</blockquote>
+前几天看的时候就已经改成8月了
+
+*****
+
+####  花开安菲路  
+##### 3451#       发表于 2024-4-28 13:03
+
+里三人感觉都会非常有人气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+偶像岂是如此不便之物！不用拿国内手游圈（juan）那套来圈地划线了，就是要多头恰！
+
+*****
+
+####  rgauss  
+##### 3452#       发表于 2024-4-28 13:03
+
+早就写了八月了 六文字第二次直播说了那是占位
+
+*****
+
+####  koodooliz  
+##### 3453#       发表于 2024-4-28 13:04
+
+我对游戏卖啥没什么感觉，只是不喜欢🐡罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 3454#       发表于 2024-4-28 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，里三突出一个各种方面赢赢赢
+
+不会到最后表信号灯真被干碎了吧
+
+*****
+
+####  cckuku  
+##### 3455#       发表于 2024-4-28 13:04
+
+八月份会不会太久了点？
+
+*****
+
+####  ViviR  
+##### 3456#       发表于 2024-4-28 13:04
+
+不过本来以为会有对手三人的曲子pv呢，结果没有。别说是因为不能p所以根本没准备吧…
+

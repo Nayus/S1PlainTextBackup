@@ -15656,3 +15656,21 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 那位还真是爱音的母亲啊，还以为是保姆
 
+
+*****
+
+####  rikaren  
+##### 16187#       发表于 2024-4-28 12:59
+
+对了下第八话回忆的镜头和上面设定集，幼祥幼初躺木板上(？)的时候动作和上面设定集不一样，可以奶二期还有幼祥和幼初的镜头了。
+
+
+*****
+
+####  御幸一也  
+##### 16188#       发表于 2024-4-28 13:02
+
+一定會有的好吧，我不僅要奶幼初祥還要奶幼睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+這就是幼馴染關係給我的自信<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

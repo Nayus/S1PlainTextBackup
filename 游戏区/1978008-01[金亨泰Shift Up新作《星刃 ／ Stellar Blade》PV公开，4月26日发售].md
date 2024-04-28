@@ -4514,3 +4514,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 为了油腻师姐想入个ps5了，但又听人说pro马上出
 
+
+*****
+
+####  依存香炉  
+##### 1160#       发表于 2024-4-28 14:54
+
+好奇你们都是长马尾还是短马尾？demo我一直选的短马尾，正式版发现长马尾也挺香的
+

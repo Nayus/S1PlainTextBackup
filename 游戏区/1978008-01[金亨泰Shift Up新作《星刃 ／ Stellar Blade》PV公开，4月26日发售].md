@@ -4685,3 +4685,22 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1178#       发表于 2024-4-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64755610&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-29 00:14</a>
+玩到废土地图，开了日光塔，感叹这优化真好，性能模式还能不感觉到糊，都是手游厂第一次做主机游戏，韩国人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">索尼技术支持了吧，我有种地平线即视感
+
+*****
+
+####  渡鸦骑士  
+##### 1179#       发表于 2024-4-29 00:28
+
+感觉有些衣服的背看起来真的不好看。
+上臂显得长，然后背又显得厚。
+然后这个明明是高颧骨的脸正面真感觉怪怪的，感觉被削掉了一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

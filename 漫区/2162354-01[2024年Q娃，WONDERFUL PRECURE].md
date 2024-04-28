@@ -943,3 +943,38 @@ INABA
 主要附带了猫组变身音效的净化武器5月就开卖了，真由怎么也得在6月前和猫猫一起入队用一次净化技的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过话说回来猫组乃至后面的追加应该不用Wonderful Pact变身，到时候全队变身时开头怎么喊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1382#       发表于 2024-4-28 16:17
+
+小友前面说要保密转头就跟妈妈说太真实啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这位带狗姐姐这人设真是路人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+太太可爱<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+小雪：还好是条傻狗<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+猫组这有点成田大妈那味了（虽然这集不是大妈写的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  猫屋敷ゆき  
+##### 1383#       发表于 2024-4-28 16:19
+
+茉优抱起来手感真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 帝下室の年糕| + 1|多“抱”，爱看|
+
+查看全部评分
+

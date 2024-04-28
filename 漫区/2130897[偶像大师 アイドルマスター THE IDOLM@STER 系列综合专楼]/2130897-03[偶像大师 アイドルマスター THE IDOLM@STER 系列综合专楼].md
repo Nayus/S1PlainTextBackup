@@ -5992,3 +5992,20 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同时p两个就不乐意了，你们两个小妮子不知道本制作人可是能同时p一百多个的人
 
+
+*****
+
+####  rgauss  
+##### 3536#       发表于 2024-4-28 19:34
+
+<img src="https://p.sda1.dev/17/010b4888e2e83cef8e6671176cd0b424/1000003589.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3537#       发表于 2024-4-28 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752997&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-4-28 19:20</a>
+我真是服了qa了，这个播片用的字幕黑底白字和人名白底黑字一眼串戏ip，不会是整个交互ui都搬过来了吧[f:067 ...</blockquote>
+这叫减少工作量（）
+

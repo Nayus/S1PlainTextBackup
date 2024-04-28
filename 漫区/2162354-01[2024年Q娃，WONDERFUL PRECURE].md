@@ -825,3 +825,13 @@ INABA
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pokemon最爱  
+##### 1372#       发表于 2024-4-28 09:14
+
+笨犬小麦你行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下集小雪过劳被送医院（指彩羽家）总该暴露身份了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

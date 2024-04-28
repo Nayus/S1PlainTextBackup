@@ -4801,3 +4801,13 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  丹德里恩  
+##### 3412#       发表于 2024-4-28 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天遇到个非要玩空爆的，我一看不对赶紧化身机炮仙人，结果还是带不动
+
+真是干啥啥不行
+

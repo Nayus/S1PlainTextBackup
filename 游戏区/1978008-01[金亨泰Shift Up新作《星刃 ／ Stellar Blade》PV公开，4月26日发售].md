@@ -4477,3 +4477,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 武器也是发饰变的，还挺优雅</blockquote>
 虽然是这个感觉但是没看清过
 
+
+*****
+
+####  jacket  
+##### 1156#       发表于 2024-4-28 14:31
+
+打枪地图最恐怖的地方是不能扫描，玩收集的一不注意就会漏芯片信息之类的东西
+

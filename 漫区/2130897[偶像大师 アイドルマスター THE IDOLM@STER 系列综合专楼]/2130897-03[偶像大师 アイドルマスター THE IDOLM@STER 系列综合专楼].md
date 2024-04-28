@@ -5759,3 +5759,16 @@ IMG_3363.jpeg
 不知道那个八月是手滑还是铁了心准备重新定义春季 ...</blockquote>
 应该是五月出，有日语佬提到直播说了8月只是暂时占个位置的
 
+
+*****
+
+####  rgauss  
+##### 3510#       发表于 2024-4-28 14:31
+
+ 本帖最后由 rgauss 于 2024-4-28 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749590&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-28 14:27</a>
+楼里不是有舅舅说里苍的vo力也很高吗？现在cv出来了有没有人去发掘下？</blockquote>
+https://b23.tv/BLA64xR
+
+https://m.youtube.com/watch?v=SPK9bOL7928
+

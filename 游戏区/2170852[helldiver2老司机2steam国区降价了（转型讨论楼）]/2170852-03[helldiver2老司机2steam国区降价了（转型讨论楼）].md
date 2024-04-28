@@ -4950,3 +4950,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 好开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红眼教授  
+##### 3426#       发表于 2024-4-28 16:40
+
+说到修BUG，先把头盔防御问题解决下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

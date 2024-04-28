@@ -4485,3 +4485,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 打枪地图最恐怖的地方是不能扫描，玩收集的一不注意就会漏芯片信息之类的东西
 
+
+*****
+
+####  忘却旋律  
+##### 1157#       发表于 2024-4-28 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745989&amp;ptid=1978008" target="_blank">彩虹肥宅 发表于 2024-4-28 09:25</a>
+
+昨晚发现头饰是爬绳器，设定还挺详细的</blockquote>
+你武器也是头饰变的啊
+

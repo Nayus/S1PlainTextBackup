@@ -4899,3 +4899,16 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 然后前赴后继招地狱火，然后被炮艇炸掉，再招再炸，折腾了20分钟，命死光了退了。乐死
 
+
+*****
+
+####  Launce  
+##### 3422#       发表于 2024-4-28 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749522&amp;ptid=2170852" target="_blank">wthall 发表于 2024-4-28 14:20</a>
+
+昨天和2个朋友玩，难5机器人，3个人都是第一次面对炮艇塔，没带激光大炮。
+
+然后前赴后继招地狱火， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕带个类星体，炸塔关键就是炮艇出一个打一个，不能让数量叠起来
+

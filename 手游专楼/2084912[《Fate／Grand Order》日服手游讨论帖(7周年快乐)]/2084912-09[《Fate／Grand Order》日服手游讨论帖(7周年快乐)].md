@@ -4101,3 +4101,24 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 663随便冲，昨天甚至用了一下一宝水妖高，虽然伤害不够要补刀</blockquote>
 带倍卡啊，这种本少个加成亏不了多少。昨晚带着1宝迦梨冲爽了。
 
+
+*****
+
+####  qixinno2  
+##### 12375#       发表于 2024-4-28 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749268&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-28 13:55</a>
+
+萌新都不知道昨天有限时本 亏了不知道多少个5星了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">萌新玩的游戏太多太忙了
+
+*****
+
+####  alucardcz  
+##### 12376#       发表于 2024-4-28 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749678&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-4-28 14:35</a>
+
+萌新玩的游戏太多太忙了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">并不忙 但这**游戏1天只登陆2次 谁吃报没事启动他
+

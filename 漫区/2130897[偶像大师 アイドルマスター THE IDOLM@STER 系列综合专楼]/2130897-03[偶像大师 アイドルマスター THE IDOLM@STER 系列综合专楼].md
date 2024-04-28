@@ -5772,3 +5772,22 @@ https://b23.tv/BLA64xR
 
 https://m.youtube.com/watch?v=SPK9bOL7928
 
+
+*****
+
+####  rgauss  
+##### 3511#       发表于 2024-4-28 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749581&amp;ptid=2130897" target="_blank">kirakira~ 发表于 2024-4-28 14:26</a>
+这首表现出来的水平和美波那首的实在有点差太多了
+
+感觉可能不止有lv10的版本 ...</blockquote>
+修音师傅钱到账了
+
+*****
+
+####  rgauss  
+##### 3512#       发表于 2024-4-28 14:40
+
+讲道理 美波的歌本来就难唱（）
+

@@ -4866,3 +4866,199 @@ QQ截图20240428124227.png
 
 最潮最in的女女关系性拉满了，赢面赢面赢面
 
+
+*****
+
+####  kirakira~  
+##### 3417#       发表于 2024-4-28 12:49
+
+这vo力感觉挺嗯
+
+这下我信lv10以后还有了
+
+*****
+
+####  cckuku  
+##### 3418#       发表于 2024-4-28 12:49
+
+我还想着抢一个里黄c的马甲呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">被人抢先了。
+
+*****
+
+####  Swss  
+##### 3419#       发表于 2024-4-28 12:49
+
+好劲好劲的女女关系性，已经迫不及待了
+
+*****
+
+####  rgauss  
+##### 3420#       发表于 2024-4-28 12:49
+
+哎 两头卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 3421#       发表于 2024-4-28 12:50
+
+现在这种不叫两头买，叫缅北游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kirakira~  
+##### 3422#       发表于 2024-4-28 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748526&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-28 12:49</a>
+
+哎 两头卖</blockquote>
+这也是一种传承（
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3423#       发表于 2024-4-28 12:52
+
+唉，混厕游戏。唉，万南社管。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3424#       发表于 2024-4-28 12:52
+
+为啥让原口来做全体曲
+
+*****
+
+####  Unlight  
+##### 3425#         楼主| 发表于 2024-4-28 12:53
+
+差不多得了，这儿是漫区，不是手游区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Alicest  
+##### 3426#       发表于 2024-4-28 12:53
+
+真要致敬马娘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 3427#       发表于 2024-4-28 12:54
+
+看到关系图就知道要卖贵乱了
+
+*****
+
+####  rgauss  
+##### 3428#       发表于 2024-4-28 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以去手游区论战 加大手游区的流量
+
+*****
+
+####  Alicest  
+##### 3429#       发表于 2024-4-28 12:54
+
+<img src="https://img.saraba1st.com/forum/202404/28/125439unnhipsxv0abgjbn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (376.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 12:54 上传
+
+*****
+
+####  koodooliz  
+##### 3430#       发表于 2024-4-28 12:55
+
+所以P是来干嘛的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3431#       发表于 2024-4-28 12:55
+
+不是 哥们 游戏开服时间呢
+
+*****
+
+####  Alicest  
+##### 3432#       发表于 2024-4-28 12:56
+
+<img src="https://img.saraba1st.com/forum/202404/28/125648jd6fd3hvm6ppfpff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (233.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 12:56 上传
+
+*****
+
+####  Anatoly  
+##### 3433#       发表于 2024-4-28 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">里信号灯两个索尼一个大泽
+
+虽然共同特点还是没活，甚至里黄甚至还没接过TV动画
+
+*****
+
+####  Alicest  
+##### 3434#       发表于 2024-4-28 12:57
+
+<img src="https://img.saraba1st.com/forum/202404/28/125701ftt13v1tm1wma1s6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (420.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 12:57 上传
+
+*****
+
+####  RhmBWT_Wu  
+##### 3435#       发表于 2024-4-28 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748530&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-28 12:50</a>
+现在这种不叫两头买，叫缅北游戏</blockquote>
+如果登顶氪金榜就可以吹plove荣光了，行fgo故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViviR  
+##### 3436#       发表于 2024-4-28 12:57
+
+为什么看到女角色有亲密关系性就觉得自己不能建立新的关系性了。别被那些无聊的论战给卷进去了。
+
+*****
+
+####  cckuku  
+##### 3437#       发表于 2024-4-28 12:57
+
+等下日本这次黄金周放几天啊？怎么搞到八号去了。
+
+*****
+
+####  Alicest  
+##### 3438#       发表于 2024-4-28 12:57
+
+[【学マス】事前登録期間中のミラー配信大歓迎！実施ポリシーを公開！](https://idolmaster-official.jp/news/01_11020)
+
+*****
+
+####  ViviR  
+##### 3439#       发表于 2024-4-28 12:58
+
+手毬唱的这首真还可以，vo力上来了，比美波那首强。
+

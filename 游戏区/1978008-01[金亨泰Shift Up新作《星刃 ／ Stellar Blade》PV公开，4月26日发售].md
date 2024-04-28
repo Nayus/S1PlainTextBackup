@@ -4382,3 +4382,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 今天想再回去试试但找不到位置了。
 
+
+*****
+
+####  n5965315  
+##### 1147#       发表于 2024-4-28 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747955&amp;ptid=1978008" target="_blank">patema 发表于 2024-4-28 12:01</a>
+
+星刃：不朽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错了 是尼尔3：r后面记不住
+

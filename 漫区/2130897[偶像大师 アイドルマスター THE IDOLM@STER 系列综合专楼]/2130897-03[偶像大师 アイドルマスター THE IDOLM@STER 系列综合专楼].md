@@ -5852,3 +5852,32 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 我这么不人气嘛，下午id还没被注册。
 
+
+*****
+
+####  cckuku  
+##### 3520#       发表于 2024-4-28 18:10
+
+光看第一话看不出来谁是主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Genkishi  
+##### 3521#       发表于 2024-4-28 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64752289&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-28 18:10</a>
+
+光看第一话看不出来谁是主角</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看最开始的pv也看不出
+
+*****
+
+####  RhmBWT_Wu  
+##### 3522#       发表于 2024-4-28 18:13
+
+群里有人管佑芽叫正红，那咲季是不是可以叫镶红了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黄和蓝也有，nmd学马仕原来是八旗吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

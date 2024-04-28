@@ -8700,3 +8700,18 @@ https://weibo.com/7503521063/5002857336804256
 
 排档就不清楚了，5月下半估计大会堂和永乐就没了，其他影院多点的可能就还有
 
+
+*****
+
+####  棍机凹升龙  
+##### 710#       发表于 2024-4-28 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747516&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-4-28 11:23</a>
+
+https://weibo.com/7503521063/5002857336804256
+
+是不是这个？
+
+赞美文姐</blockquote>
+吼吼吼，赞美文姐
+

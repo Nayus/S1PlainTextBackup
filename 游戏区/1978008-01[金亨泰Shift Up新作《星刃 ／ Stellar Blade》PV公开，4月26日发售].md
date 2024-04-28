@@ -4286,3 +4286,49 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 这6O和21O两人的衣服正面看像大肚子，很劲
 
+
+*****
+
+####  patema  
+##### 1138#       发表于 2024-4-28 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64733592&amp;ptid=1978008" target="_blank">两个路人 发表于 2024-4-27 02:29</a>
+
+作为一名成熟的大人，你个shit up的小人物得罪不起翔尼的大人物，大家心照不宣。但是，棒子这格局确实小了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你以为是su只看到小钱钱，su搞不好是想复刻nikke成熟路线玩黑红呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">到时候su全服送服装，软脚虾一个个都大喊是我的问题su万岁su千古对抗黑暗大资本哦。手游先进经验降维打击<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ShiKi847  
+##### 1139#       发表于 2024-4-28 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745022&amp;ptid=1978008" target="_blank">kuker53 发表于 2024-4-28 06:24</a>
+
+通关了，收尾有些仓促，直接告诉你续作在做了，不过还不错，8分，打打二周目 ...</blockquote>
+续作可能要等好久去了，shift up下作是全平台开放世界氪金手游，估计就是拿星刃的技术做。星刃的技术积累确实厉害，虚幻4能做出这种表现，开放世界估计就是虚幻5做了
+
+*****
+
+####  sc1997  
+##### 1140#       发表于 2024-4-28 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747792&amp;ptid=1978008" target="_blank">patema 发表于 2024-4-28 11:47</a>
+
+你以为是su只看到小钱钱，su搞不好是想复刻nikke成熟路线玩黑红呢
+
+到时候su全服送服装， ...</blockquote>
+单机整这出有啥意思，还能有人因为这出戏去买游戏？
+
+*****
+
+####  天王寺綯  
+##### 1141#       发表于 2024-4-28 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64747880&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-28 11:54</a>
+
+续作可能要等好久去了，shift up下作是全平台开放世界氪金手游，估计就是拿星刃的技术做。星刃的技术积累 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个“全平台开放世界课金手游”就是续作也不是不可能，谁也没说单机的续作必须是单机
+

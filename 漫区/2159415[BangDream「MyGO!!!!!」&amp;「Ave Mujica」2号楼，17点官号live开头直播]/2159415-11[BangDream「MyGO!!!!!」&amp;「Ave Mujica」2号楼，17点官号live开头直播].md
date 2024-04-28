@@ -15457,3 +15457,25 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 <img src="https://p.sda1.dev/17/fb2aa5db81a5445be2eb0e3fdf224b95/CMP_20240428114225113.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  EBe  
+##### 16167#       发表于 2024-4-28 11:50
+
+看来鸡杂也得评论区多冲冲，说不一定精良mv和独立官号重启都来了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rslika  
+##### 16168#       发表于 2024-4-28 11:50
+
+😆炎上真的有用哈哈
+
+*****
+
+####  rikaren  
+##### 16169#       发表于 2024-4-28 11:52
+
+终于知道开整个企划的官号了是吧
+

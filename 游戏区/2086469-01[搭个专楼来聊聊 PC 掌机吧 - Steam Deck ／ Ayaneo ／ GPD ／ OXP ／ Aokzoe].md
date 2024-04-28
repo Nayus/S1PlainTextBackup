@@ -73,3 +73,13 @@ flip kb的键盘非常烂的样子……</blockquote>
 
 日版的steamdeck吧，日元汇率都这样了，就是渠道不好搞
 
+
+*****
+
+####  luffyzhou  
+##### 1178#       发表于 2024-4-28 15:08
+
+pocket s，要是没买奥丁2可能就买了，不过奥丁2现在吃灰也比较多，大部分ps2在沙雕4上玩了，小就是王道……
+
+我是定了8840版flip kb的冤种，估计五一过后咋也该收到了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

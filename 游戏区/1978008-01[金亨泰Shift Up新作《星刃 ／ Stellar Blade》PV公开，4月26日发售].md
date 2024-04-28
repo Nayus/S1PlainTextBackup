@@ -4522,3 +4522,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 好奇你们都是长马尾还是短马尾？demo我一直选的短马尾，正式版发现长马尾也挺香的
 
+
+*****
+
+####  kuker53  
+##### 1161#       发表于 2024-4-28 15:08
+
+长马尾档视线啊，尤其打boss看到底是格挡还是闪避的时候，头发眼前晃
+

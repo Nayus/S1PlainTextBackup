@@ -884,3 +884,62 @@ INABA
 
 感觉下集最多还是怀疑，真暴露身份要再往后了
 
+
+*****
+
+####  脚底心，洗则白  
+##### 1378#       发表于 2024-4-28 15:06
+
+看完了，猫组这边剧情其实挺成田，大友爱看，多来点。成田本人就别插手猫组了，追完大人Q娃的怨气咱一直没处发泄呢。
+
+
+*****
+
+####  新HGCG  
+##### 1379#         楼主| 发表于 2024-4-28 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745758&amp;ptid=2162354" target="_blank">最强惠酱 发表于 2024-4-28 09:05</a>
+
+乔治社长?
+
+—— 來自 samsung SM-S9110, Android 14上的 S1Next-鵝版 v2.5.4</blockquote>
+现在多了一条
+
+二老板强迫员工给指定政客投票
+
+*****
+
+####  modedd  
+##### 1380#       发表于 2024-4-28 15:14
+
+这个路人........呃，姐姐？的存在感好强
+
+<img src="https://img.saraba1st.com/forum/202404/28/151441mdoddk9jj5bdalbl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240428150954.png</strong> (142.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/151450s82c8bvmfam2nnww.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240428151021.png</strong> (170.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 15:14 上传
+
+*****
+
+####  pokemon最爱  
+##### 1381#       发表于 2024-4-28 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64748891&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-4-28 13:20</a>
+
+感觉下集最多还是怀疑，真暴露身份要再往后了</blockquote>
+也没准下集小雪妇科奶玫瑰因为过度疲劳直接解除变身变回猫猫状态暴露身份然后再下一集真由变身呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主要附带了猫组变身音效的净化武器5月就开卖了，真由怎么也得在6月前和猫猫一起入队用一次净化技的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过话说回来猫组乃至后面的追加应该不用Wonderful Pact变身，到时候全队变身时开头怎么喊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

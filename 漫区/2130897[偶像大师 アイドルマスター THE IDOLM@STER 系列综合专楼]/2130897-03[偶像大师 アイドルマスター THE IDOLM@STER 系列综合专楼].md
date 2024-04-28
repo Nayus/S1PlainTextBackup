@@ -5799,3 +5799,24 @@ https://m.youtube.com/watch?v=SPK9bOL7928
 
 学马这几人真就不上大滤镜吗，皮肤细节这么细，真不多点磨皮吗，不知道为啥感觉浑身难受，感觉自己各种企划公式照看多了导致精神出问题了。
 
+
+*****
+
+####  840266848  
+##### 3514#       发表于 2024-4-28 15:08
+
+关系性一出来，期待度拉满想看剧情了。虽然那几位轻小说写手。感兴趣有蓝c的前女友+幼驯染组合。红c这里比同学年的人大一岁也很有意思，姐妹两人在同一学年一个是头一个是尾串联起来，而且咲季这种吃瘪设定看来要疯狂迫害了，过生日都是妹妹比自己早一天，出生日期已经写明妹妹是1自己是2，好美味
+
+
+*****
+
+####  Anatoly  
+##### 3515#       发表于 2024-4-28 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749971&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-4-28 15:00</a>
+
+学马这几人真就不上大滤镜吗，皮肤细节这么细，真不多点磨皮吗，不知道为啥感觉浑身难受，感觉自己各种企划 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说声优？
+
+超会议这死亡打光，直播神仙难救吧
+

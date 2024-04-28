@@ -14,3 +14,11 @@
 
 这集演出还不错，E7的钻头感觉比男主的剑盾劲多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  创始’’’天翔  
+##### 53#       发表于 2024-4-28 23:20
+
+所以黑新干线放完怪就跑啊，看定位应该类似四天王那种高端工具人手下
+

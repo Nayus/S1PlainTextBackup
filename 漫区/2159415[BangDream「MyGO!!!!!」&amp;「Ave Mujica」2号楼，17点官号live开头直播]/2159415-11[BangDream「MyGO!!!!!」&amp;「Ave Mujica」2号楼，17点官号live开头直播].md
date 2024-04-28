@@ -15449,3 +15449,11 @@ ob祥怎么笑的那么开心 那个玩偶表情是参考这个人设图做的�
 
 我只想知道幼祥和幼初的谷子什么时候出<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16166#       发表于 2024-4-28 11:42
+
+<img src="https://p.sda1.dev/17/fb2aa5db81a5445be2eb0e3fdf224b95/CMP_20240428114225113.jpg" referrerpolicy="no-referrer">
+

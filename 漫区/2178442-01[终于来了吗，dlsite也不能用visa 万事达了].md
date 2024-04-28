@@ -343,3 +343,13 @@ dm ...</blockquote>
 欧美宅宅救一下啊！断供销卡！禁黄不用！必须狠狠教育一波卡商</blockquote>
 欧美宅宅已经被变性黑人南通肥猪人干的满地跑了，可能真顾不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  喵喵叫的猫  
+##### 115#       发表于 2024-4-29 04:59
+
+要付下月的ci-en订阅
+话说是要怎么从支付宝付？没找到入口，我搜支付宝买点数介绍的居然是魔法商店<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不过试了dl pay下用Amazon pay可以正常用visa卡，直接扣日元没加手续费那应该和之前直接用信用卡费用一样了
+

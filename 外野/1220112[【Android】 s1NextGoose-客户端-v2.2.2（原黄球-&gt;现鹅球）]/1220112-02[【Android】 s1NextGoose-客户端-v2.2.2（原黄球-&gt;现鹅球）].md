@@ -378,3 +378,13 @@ GitHub有earlyaccess的release啊
 
 —— 来自 Xiaomi M2003J15SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  rickee  
+##### 1547#       发表于 2024-4-28 08:37
+
+测试下小尾巴和表情<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

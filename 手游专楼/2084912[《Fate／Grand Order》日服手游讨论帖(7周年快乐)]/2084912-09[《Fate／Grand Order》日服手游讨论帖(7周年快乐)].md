@@ -4395,3 +4395,11 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 能上班就是胜利 配公主努力一下能打两面
 
+
+*****
+
+####  シャル  
+##### 12401#       发表于 2024-4-28 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

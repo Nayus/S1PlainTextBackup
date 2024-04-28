@@ -5679,3 +5679,83 @@ IMG_3363.jpeg
 原本以为是另一片场的szsh，没想到居然是重力系幼驯染，已转型学马仕铁粉 ...</blockquote>
 猜一手类似banana那样的直升机妈妈角色，小蓝叛逆期到了不想被妈管了（
 
+
+*****
+
+####  ViviR  
+##### 3503#       发表于 2024-4-28 14:21
+
+所以表蓝vo力到底行不行。到底是美波那首确实不好唱还是全体曲这首明显修音了（
+
+*****
+
+####  Anatoly  
+##### 3504#       发表于 2024-4-28 14:22
+
+<img src="https://img.saraba1st.com/forum/202404/28/142213jd55ehksdhd77pj7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 14:22 上传
+
+官推最新的推的时间仍然是春季
+
+不知道那个八月是手滑还是铁了心准备重新定义春季
+
+
+*****
+
+####  kirakira~  
+##### 3505#       发表于 2024-4-28 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749547&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-4-28 14:22</a>
+
+官推最新的推的时间仍然是春季
+
+不知道那个八月是手滑还是铁了心准备重新定义春季 ...</blockquote>
+参考那个pdf，感觉应该是5.16
+
+*****
+
+####  Anatoly  
+##### 3506#       发表于 2024-4-28 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749542&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-28 14:21</a>
+
+所以表蓝vo力到底行不行。到底是美波那首确实不好唱还是全体曲这首明显修音了（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我个人觉得就前一轮公开的表现表蓝的水平也算九人最好了就是，起码说不管怎么修团队内定位还是vo
+
+当然这玩意儿不上live折磨折磨谁也不知道真实水平
+
+*****
+
+####  kirakira~  
+##### 3507#       发表于 2024-4-28 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749542&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-4-28 14:21</a>
+
+所以表蓝vo力到底行不行。到底是美波那首确实不好唱还是全体曲这首明显修音了（ ...</blockquote>
+这首表现出来的水平和美波那首的实在有点差太多了
+
+感觉可能不止有lv10的版本
+
+*****
+
+####  cckuku  
+##### 3508#       发表于 2024-4-28 14:27
+
+楼里不是有舅舅说里苍的vo力也很高吗？现在cv出来了有没有人去发掘下？
+
+*****
+
+####  ViviR  
+##### 3509#       发表于 2024-4-28 14:27
+
+<blockquote>Anatoly 发表于 2024-4-28 14:22
+官推最新的推的时间仍然是春季
+
+不知道那个八月是手滑还是铁了心准备重新定义春季 ...</blockquote>
+应该是五月出，有日语佬提到直播说了8月只是暂时占个位置的
+

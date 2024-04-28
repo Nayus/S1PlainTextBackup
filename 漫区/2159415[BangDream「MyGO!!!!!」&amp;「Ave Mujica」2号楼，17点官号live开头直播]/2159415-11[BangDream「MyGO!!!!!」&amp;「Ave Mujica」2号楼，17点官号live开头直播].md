@@ -15779,3 +15779,65 @@ Mujica则是第13话才有月光品记（）
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  NODY  
+##### 16196#       发表于 2024-4-28 14:18
+
+......不甘心、愤怒、入迷、兴奋？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/28/141652p8hkiik9fkzu19n0.jpg" referrerpolicy="no-referrer">
+
+<strong>CMP_20240428140231673.jpg</strong> (204.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 14:16 上传
+
+
+*****
+
+####  ydsbbt  
+##### 16197#       发表于 2024-4-28 14:23
+
+贴吧老哥的新发现。Returns的含金量懂得都懂
+
+初华对两团的处理是和tae一样还是相反呢
+
+<img src="https://img.saraba1st.com/forum/202404/28/142305sw0abz3o5cacisw6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-04-27-15-19-03-52_2b95b5a1545d19ca955bcf1044f94582.jpg</strong> (198.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-28 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/142312lotllpbvzmi5pizl.jpg" referrerpolicy="no-referrer">
+
+<strong>7B8315B420989EA609FF54FA09457CE0.jpg</strong> (9.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-28 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202404/28/142320cday9h9k94kcxjhz.jpg" referrerpolicy="no-referrer">
+
+<strong>45954F3659927EEC306137FDFEF242C9.jpg</strong> (115.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-28 14:23 上传
+
+*****
+
+####  赤魔法师  
+##### 16198#       发表于 2024-4-28 14:27
+
+而且这个设定集里完全没有甜甜圈
+
+到底会不会是重要人物呢
+

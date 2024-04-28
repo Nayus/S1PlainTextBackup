@@ -4466,3 +4466,14 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 
 武器也是发饰变的，还挺优雅
 
+
+*****
+
+####  粉刷月季  
+##### 1155#       发表于 2024-4-28 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749428&amp;ptid=1978008" target="_blank">彩虹肥宅 发表于 2024-4-28 14:12</a>
+
+武器也是发饰变的，还挺优雅</blockquote>
+虽然是这个感觉但是没看清过
+

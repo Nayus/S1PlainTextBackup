@@ -4576,3 +4576,11 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 发售都两天了，也没见泥潭有人发帖表示伊芙或其他角色太涩了忍不住撸了两管，看来这游戏的软瑟琴似乎不能让 ...</blockquote>
 投票贴都明示了泥潭大家不喜欢油腻师姐了
 
+
+*****
+
+####  ppntint  
+##### 1167#       发表于 2024-4-28 20:19
+
+去和谐补丁什么时候出？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

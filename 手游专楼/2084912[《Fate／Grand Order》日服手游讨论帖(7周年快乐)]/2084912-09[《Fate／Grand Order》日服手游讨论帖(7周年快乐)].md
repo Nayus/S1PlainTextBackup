@@ -4546,3 +4546,22 @@ HA发售日
 草青子怎么又死了，这是要每天死一次？</blockquote>
 标题写着死两次嘛，应该不会再死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 12417#       发表于 2024-4-28 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753488&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-28 20:08</a>
+标题写着死两次嘛，应该不会再死了吧</blockquote>
+第三次了吧，一次后脑，一次正面，第三次被枪打了。
+
+*****
+
+####  KOBI  
+##### 12418#       发表于 2024-4-28 20:18
+
+就有珠那死人复活的论证来看是有人想把青子会死在大浴场这件事写进规则里？
+
+草十郎也光荣的加入非人男主组了，像机器一样的人类（物理）可还行
+

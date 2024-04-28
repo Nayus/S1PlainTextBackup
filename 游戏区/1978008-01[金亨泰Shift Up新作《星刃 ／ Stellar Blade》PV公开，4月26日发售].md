@@ -4496,3 +4496,21 @@ Free-Roam / Level Select after Story?: No, there’s no free-roam or mission rep
 昨晚发现头饰是爬绳器，设定还挺详细的</blockquote>
 你武器也是头饰变的啊
 
+
+*****
+
+####  彩虹肥宅  
+##### 1158#       发表于 2024-4-28 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64749741&amp;ptid=1978008" target="_blank">忘却旋律 发表于 2024-4-28 14:41</a>
+
+你武器也是头饰变的啊</blockquote>
+后面发现了
+
+*****
+
+####  浅草若旦那  
+##### 1159#       发表于 2024-4-28 14:46
+
+为了油腻师姐想入个ps5了，但又听人说pro马上出
+

@@ -3961,3 +3961,11 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 好像是地图上藏着提示，B站有up发了今天的怪异本时间，北京时间21—23点：</blockquote>
 好的，谢谢！
 
+
+*****
+
+####  ATEX  
+##### 12360#       发表于 2024-4-28 09:50
+
+昨天没刷限时本有什么损失吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

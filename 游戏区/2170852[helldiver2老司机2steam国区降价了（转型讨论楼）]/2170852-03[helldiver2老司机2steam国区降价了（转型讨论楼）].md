@@ -4829,3 +4829,15 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 这游戏bug都融合在整个游戏里了，低温星球其实能量武器散热不会变好，镰刀过热数值填错了，爆炸物现在打在四肢没伤害，准星和射出弹道不匹配，扎针出现声音没扎，弹飞撞石头延迟伤害，友伤擦边就是队友击杀，遍地问号素材，一堆兴趣点错误标记，侦查塔周围弹球，爆头伤害时大时小
 
+
+*****
+
+####  Launce  
+##### 3415#       发表于 2024-4-28 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64746157&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-28 09:42</a>
+
+这游戏bug都融合在整个游戏里了，低温星球其实能量武器散热不会变好，镰刀过热数值填错了，爆炸物现在打在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆炸物那个BUG是最搞笑的，上次修爆炸导致肢体多次伤害结算后出现的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">严重怀疑就是粗暴的写成肢体不吃爆炸，就问你是不是修好了多次结算
+

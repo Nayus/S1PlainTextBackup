@@ -396,3 +396,29 @@ GitHub有earlyaccess的release啊
 
 旧鹅球还会更新吗<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ork  
+##### 1549#       发表于 2024-4-28 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用的gboard
+搞错了开的老版本
+
+*****
+
+####  ork  
+##### 1550#       发表于 2024-4-28 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  买码！注册！  
+##### 1551#       发表于 2024-4-28 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+

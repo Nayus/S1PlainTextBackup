@@ -3950,3 +3950,14 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 
 2024-4-28 07:56 上传
 
+
+*****
+
+####  cenhr  
+##### 12359#       发表于 2024-4-28 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745252&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-28 07:56</a>
+
+好像是地图上藏着提示，B站有up发了今天的怪异本时间，北京时间21—23点：</blockquote>
+好的，谢谢！
+

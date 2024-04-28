@@ -358,3 +358,23 @@ GitHub有earlyaccess的release啊
 现在鹅球一共有几个版本？这个3.0.0 alpha是原作者开发的吗 ...</blockquote>
 作者本人在群里放的apk文件
 
+
+*****
+
+####  superbigd  
+##### 1545#       发表于 2024-4-28 08:28
+
+终于更新了，回一个表示支持！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  edlose  
+##### 1546#       发表于 2024-4-28 08:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+并没有这个毛病，是不是你的输入法有冲突？我用的讯飞小米版。
+
+—— 来自 Xiaomi M2003J15SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

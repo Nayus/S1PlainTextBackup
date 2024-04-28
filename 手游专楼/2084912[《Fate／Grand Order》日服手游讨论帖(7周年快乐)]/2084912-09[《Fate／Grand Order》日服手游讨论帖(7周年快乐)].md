@@ -3931,3 +3931,22 @@ c光炮已经够多了，还有几个人权仇狂光炮，要是正常术阶的�
 五星绿卡术光炮目前人数还是0，可以填空缺</blockquote>
 绿卡+术阶，这尼玛太地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12358#       发表于 2024-4-28 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64743674&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-4-28 00:17</a>
+
+对了，每天限时的农本是几点，还是天天都不同？</blockquote>
+好像是地图上藏着提示，B站有up发了今天的怪异本时间，北京时间21—23点：
+
+<img src="https://img.saraba1st.com/forum/202404/28/075621axk9doxp6k6vbke4.jpg" referrerpolicy="no-referrer">
+
+<strong>1714262081447.jpg</strong> (395.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-28 07:56 上传
+

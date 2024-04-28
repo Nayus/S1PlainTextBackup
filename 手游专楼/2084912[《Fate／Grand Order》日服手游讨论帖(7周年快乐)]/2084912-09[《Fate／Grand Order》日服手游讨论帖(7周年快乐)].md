@@ -4535,3 +4535,14 @@ HA发售日
 
 用魔法魔术就是逊，都不如草十郎尚未出师的暗杀拳
 
+
+*****
+
+####  DARKGRAY  
+##### 12416#       发表于 2024-4-28 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753185&amp;ptid=2084912" target="_blank">v22325 发表于 2024-4-28 19:39</a>
+
+草青子怎么又死了，这是要每天死一次？</blockquote>
+标题写着死两次嘛，应该不会再死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

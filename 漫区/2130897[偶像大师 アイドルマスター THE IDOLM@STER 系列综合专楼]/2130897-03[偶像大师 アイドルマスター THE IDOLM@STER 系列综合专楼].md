@@ -6605,3 +6605,48 @@ qa特有的报菜名环节
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  安广多惠子  
+##### 3599#       发表于 2024-4-29 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763867&amp;ptid=2130897" target="_blank">a85982313 发表于 2024-4-29 19:04</a>
+学马仕这代开头应该是历代最plove，最服务，最轻小说（当然确实就是找的轻小说作家）的了吧？
+
+这个开头4话 ...</blockquote>
+想起修罗场恋人，上来被三个重量级告白，后来还惹上了其中一个的妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3600#       发表于 2024-4-29 19:17
+
+琴音也想跑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 被制作人框住了而已
+
+
+*****
+
+####  伊布桑  
+##### 3601#       发表于 2024-4-29 19:22
+
+所以说真的很离谱啊，表蓝设定是原主唱，那她lv1这个唱功说不过去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  Alicest  
+##### 3602#       发表于 2024-4-29 19:22
+
+小黄说了啊，“全都赌在这上面了”
+
+*****
+
+####  rgauss  
+##### 3603#       发表于 2024-4-29 19:24
+
+是心魔  唱歌是唯心的（）
+

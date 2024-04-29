@@ -5098,3 +5098,25 @@ iphone XR
 —— 来自 S1Fun ...</blockquote>
 感谢科普，之前没深入了解这个游戏（光看过梗图），刚才找了一下视频发现很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 12469#       发表于 2024-4-29 19:17
+
+只要满破不乱搞小山的马暂时保住了，强度什么的能吃吗
+
+*****
+
+####  cenhr  
+##### 12470#       发表于 2024-4-29 19:18
+
+猜测会不会像当年CCC一样活动杀出隐藏卡角：橙子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 12471#       发表于 2024-4-29 19:20
+
+卧槽这宝具给我吓到了，但是好带感，真的是魔女……同样是一副痛苦样子开宝具的藤乃：现在是你赢了
+

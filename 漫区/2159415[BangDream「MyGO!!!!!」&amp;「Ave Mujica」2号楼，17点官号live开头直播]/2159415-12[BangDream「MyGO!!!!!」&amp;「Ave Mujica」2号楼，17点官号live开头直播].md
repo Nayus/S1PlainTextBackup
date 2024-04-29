@@ -888,3 +888,36 @@ wsd孝子更是恶心，ppp和mujica那两件事的时候，转移矛盾六得�
 
 羊还是一如既往的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 16363#       发表于 2024-4-29 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63563356&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-1-7 13:15</a>
+
+以下发言纯混沌请漏油不要当真。
+
+鸡粉可以学习立希推先进经验，一不在乎路人风评，二不在乎人气，三不期 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吗的，这比话怎么越看越真了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|一种同病相怜|
+
+查看全部评分
+
+
+*****
+
+####  星空冻结  
+##### 16364#       发表于 2024-4-29 21:32
+
+鸡粉的好日子还在后面呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

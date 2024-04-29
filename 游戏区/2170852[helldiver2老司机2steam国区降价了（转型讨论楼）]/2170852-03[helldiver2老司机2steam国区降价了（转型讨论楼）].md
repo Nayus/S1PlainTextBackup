@@ -6104,3 +6104,13 @@ QQ截图20240429200420.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实弹狗打机器人还是可以的，经常爆头把机器人秒了
 
+
+*****
+
+####  风萧飒  
+##### 3527#       发表于 2024-4-29 21:30
+
+可能是虫子太弱了，爆弹激光狗类星体打n9好像区别不大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

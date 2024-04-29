@@ -16341,3 +16341,22 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 猫希就纯搞笑戏份了，就当是这俩戏份在手游或者总集篇没揭露所以只能暂时酱油吧（真的吗）
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16250#       发表于 2024-4-29 16:00
+
+ 本帖最后由 SakuraのOrigami 于 2024-4-29 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761806&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-29 15:51</a>
+端水的话只能说是给爱素发了惊天大糖的同时小端水了一下爱灯
+
+猫希就纯搞笑戏份了，就当是这俩戏份 ...</blockquote>
+猫希那个真的算搞笑吗，怎么感觉像是猫吃醋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+爱素我个人觉得还好，算是在正常范围内
+虽说我不磕爱素，主磕爱灯
+爱灯的话已经够王道了，不过牵手一起跑不放手那里也算是有点惊讶，居然还能这么写（）<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+这剧情真的可以做动画了有一说一（）
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

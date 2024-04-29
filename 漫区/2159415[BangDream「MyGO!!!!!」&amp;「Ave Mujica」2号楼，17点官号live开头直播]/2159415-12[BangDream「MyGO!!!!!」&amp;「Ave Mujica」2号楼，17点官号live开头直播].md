@@ -1034,3 +1034,57 @@ ako：这个世界上的神明居然有三位？
 
 所以真组暗黑中二天团贝斯找谁比较合适？
 
+
+*****
+
+####  天子控  
+##### 16378#       发表于 2024-4-29 22:07
+
+立希厨日常卑微，what can I say
+
+*****
+
+####  DarthAka  
+##### 16379#       发表于 2024-4-29 22:08
+
+为啥要bass，找把中音电吉它凑合
+
+*****
+
+####  twi  
+##### 16380#       发表于 2024-4-29 22:08
+
+在这里内耗还是比直接去冲官方更友善一些的
+
+*****
+
+####  cindy355  
+##### 16381#       发表于 2024-4-29 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765651&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-29 22:06</a>
+
+所以真组暗黑中二天团贝斯找谁比较合适？</blockquote>
+我看好海铃。毕竟连那么中二的小剧场都演了，专业性值得肯定。
+
+*****
+
+####  EBe  
+##### 16382#       发表于 2024-4-29 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765552&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-29 21:54</a>
+不過說到這個，其實我挺喜歡立希的，但每次想到她是個燈廚就非常下頭。
+
+其他立希推你們是怎麼調理的 ...</blockquote>
+我也是mygo里最喜欢立希，我拉入坑的亲友也是，我俩都认为立希是灯单推这件事很下头<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cindy355  
+##### 16383#       发表于 2024-4-29 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765417&amp;ptid=2159415" target="_blank">天子控 发表于 2024-4-29 21:40</a>
+
+奶一口海希幼驯染，不能其他人都讲过去就立希没有吧😎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">还是不太敢抱期待，其他人家人都有出镜，立希不说爹妈了，姐姐都不露脸，难道真的要相信是因为第二季有大的吗
+

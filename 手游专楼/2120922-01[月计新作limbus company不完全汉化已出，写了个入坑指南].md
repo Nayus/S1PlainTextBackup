@@ -368,3 +368,18 @@
 好毒的池子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 5up就一个三灯人格，剩下两个ego两个播报员全是1.3%，播报员还会重复
 
+
+*****
+
+####  erratic璃月  
+##### 662#       发表于 2024-4-29 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765526&amp;ptid=2120922" target="_blank">冰原狼 发表于 2024-4-29 21:51</a>
+
+好毒的池子
+
+5up就一个三灯人格，剩下两个ego两个播报员全是1.3%，播报员还会重复 ...</blockquote>
+还行吧，真正有价值的还是两个播音员，基本是抽一井一的节奏。
+
+得益于巴士的游戏生态，要是换个其他二游，估计玩家得跟策划爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

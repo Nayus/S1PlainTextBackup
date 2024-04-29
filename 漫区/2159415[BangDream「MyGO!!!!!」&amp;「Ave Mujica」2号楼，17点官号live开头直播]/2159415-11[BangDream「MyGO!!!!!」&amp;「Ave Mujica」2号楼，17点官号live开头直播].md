@@ -16198,3 +16198,13 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">皇族有是因為他是皇族，你別想了
 
+
+*****
+
+####  PDQ4  
+##### 16235#       发表于 2024-4-29 12:36
+
+这下官方挂件了，幽默wsd。
+
+鸡周年庆没资格过，但是狗周年庆还是得上来洗脚是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

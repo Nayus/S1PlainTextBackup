@@ -4917,3 +4917,14 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 说起来从demo起就在想为什么不把女主男主直接翻译成夏娃亚当，而是要音译成伊芙跟艾达姆，后面有解释吗（我进度才刚进城
 
+
+*****
+
+####  kuker53  
+##### 1200#       发表于 2024-4-29 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64758724&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-4-29 11:12</a>
+
+说起来从demo起就在想为什么不把女主男主直接翻译成夏娃亚当，而是要音译成伊芙跟艾达姆，后面有解释吗（我 ...</blockquote>
+没有，就这么翻译的
+

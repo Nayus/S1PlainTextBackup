@@ -763,3 +763,11 @@ Install Base论坛的投票
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  siro1987  
+##### 74#       发表于 2024-4-29 14:13
+
+这年头画面不好半只脚就踏入棺材了啦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

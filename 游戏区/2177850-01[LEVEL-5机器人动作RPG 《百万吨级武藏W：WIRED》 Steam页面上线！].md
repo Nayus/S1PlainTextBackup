@@ -490,3 +490,22 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 有生之年的雷球呢？还出不出了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂大法  
+##### 52#         楼主| 发表于 2024-4-29 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760571&amp;ptid=2177850" target="_blank">MortarHeadd 发表于 2024-4-29 13:56</a>
+有生之年的雷球呢？还出不出了？</blockquote>
+小足球新作，NS版3月底推了测试版，等5月份会更新单人剧情和测试跨平台网联（ps+steam版测试版会跟着推出），发售日要是今年能发售大概率7-8月，要么就2025<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  linc555  
+##### 53#       发表于 2024-4-29 14:12
+
+这个价格值得买么 
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

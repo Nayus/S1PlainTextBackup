@@ -1044,3 +1044,13 @@ INABA
 不知道因为去年被骂过 导致今年比以往配角数量及登场频率次数明显上来了
 配角同学甚至意外的有人气
 
+
+*****
+
+####  碎镜子  
+##### 1389#       发表于 2024-4-29 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">以为是反派boss和我方boss二选一，真路人啊
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

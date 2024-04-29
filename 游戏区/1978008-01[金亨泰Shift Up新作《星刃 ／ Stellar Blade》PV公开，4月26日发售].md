@@ -4887,3 +4887,14 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  光焰天下第一  
+##### 1197#       发表于 2024-4-29 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64731103&amp;ptid=1978008" target="_blank">huoguoshan23 发表于 2024-4-26 22:06</a>
+
+https://gamewith.jp/stellarblade/444545</blockquote>
+感谢 
+

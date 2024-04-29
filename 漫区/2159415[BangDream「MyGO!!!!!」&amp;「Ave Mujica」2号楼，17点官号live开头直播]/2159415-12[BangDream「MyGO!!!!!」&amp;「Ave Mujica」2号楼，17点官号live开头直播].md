@@ -1314,3 +1314,17 @@ woc，这个脸红对视
 那么BandDream Ave Mujica有没有可能做到让没看过Mygo的观众也能 ...</blockquote>
 你邦自己第二季人气就比第一季高很多，这玩意本质还是看剧本水平，ll缪斯和马娘也是第二季人气更高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 16405#       发表于 2024-4-30 05:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767398&amp;ptid=2159415" target="_blank">yujz 发表于 2024-4-30 03:43</a>
+一般来说，动画第二季人气很难超过第一季
+
+那么BandDream Ave Mujica有没有可能做到让没看过Mygo的观众也能 ...</blockquote>
+安排一话祥子视角走一遍go就行
+火不火很难说的，但还是得集数多才能好好讲故事
+像mygo就做得挺紧凑虽然监督说该做的做完了还有余的，但结果在粉丝那儿嘛……，换到mujica这边既要讲好鸡中间还要讲mygo……唉，又回到去年开播那会儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

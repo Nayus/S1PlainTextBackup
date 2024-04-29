@@ -16313,3 +16313,16 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 听了一下这广播主要是讲爱素灯尤其是爱素的剧情啊，猫希和ppp没什么戏份，算得上半个美帝特典了，你邦果然是看人气分的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16248#       发表于 2024-4-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761258&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-29 15:06</a>
+听了一下这广播主要是讲爱素灯尤其是爱素的剧情啊，猫希和ppp没什么戏份，算得上半个美帝特典了，你邦果然 ...</blockquote>
+还行吧，毕竟遵循了你邦传统端水乱炖（）
+不过这剧情写的挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

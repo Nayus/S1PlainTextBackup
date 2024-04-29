@@ -6358,3 +6358,21 @@ IMG_3365.jpeg
 
 聪明人早就准备好了200张pass和200瓶full药准备大战了
 
+
+*****
+
+####  十王星南(せな)  
+##### 3574#       发表于 2024-4-29 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761038&amp;ptid=2130897" target="_blank">有村麻央 发表于 2024-4-29 14:42</a>
+
+刚注册的，怎么就忘记密码了？</blockquote>
+饭点吃饭 吃完发现没自动储存上密码
+
+*****
+
+####  rgauss  
+##### 3575#       发表于 2024-4-29 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">根本不想打这活动 肯定一堆人屯了资源等着活动放开了打排名
+

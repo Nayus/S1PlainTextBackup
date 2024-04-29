@@ -5218,3 +5218,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中穿武器现在纸面都被主宰按着打，大后座和稍慢拉枪是不是真的需要这么多属性去填我暂且蒙在鼓里，穿甲勤勉和审判也配和主宰一样6个弹夹吗
 
+
+*****
+
+####  白昼梦  
+##### 3452#       发表于 2024-4-29 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在高难不同配置各有各的爽都做不到，一个dot伤害bug搞得打虫子都不能当喷火仙人
+

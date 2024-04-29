@@ -6299,3 +6299,19 @@ IMG_3365.jpeg
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Porsche  
+##### 3569#       发表于 2024-4-29 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760177&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-4-29 13:18</a>
+有一说一都拿6w建模面数做宣传了，是该整点系统好好展示一下次时代建模拍照系统确实很合适。如果技 ...</blockquote>
+之前ip出过一个技术讲座
+里面ppt写着平时你手机看到的那部分其实只占整个场景渲染的很小一块<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+所以疯狂运镜才能给你看清楚舞台全貌
+
+这次学马仕学聪明了，喜欢搞超远景，直接给你看到一个完整的舞台
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是人物好像还在穿模
+

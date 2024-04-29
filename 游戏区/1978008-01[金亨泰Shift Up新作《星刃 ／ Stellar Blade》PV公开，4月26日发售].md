@@ -5163,3 +5163,12 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 这还有half-life地图，感觉做的很嗨
 
+
+*****
+
+####  jacket  
+##### 1225#       发表于 2024-4-30 04:53
+
+还得是黑礼服
+<img src="https://img.imoutomoe.net/images/2024/04/30/20240430043057.jpg" referrerpolicy="no-referrer">
+

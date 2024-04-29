@@ -6564,3 +6564,44 @@ qa特有的报菜名环节
 
 但是感觉单人育成的剧情到时候会和马娘一样直接变成平行线
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3596#       发表于 2024-4-29 19:06
+
+感觉会是红蓝对峙，小黄遭殃的剧情走向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小黄：搅，搅什么啦
+
+看到了小黄后面想维持最基本的组合凝聚力结果被两头受气的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/29/190618gkbq8frf1jifjfes.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240429190623.png</strong> (71.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 19:06 上传
+
+*****
+
+####  a85982313  
+##### 3597#       发表于 2024-4-29 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763885&amp;ptid=2130897" target="_blank">虚无缥缈的光阴 发表于 2024-4-29 19:06</a>
+
+感觉会是红蓝对峙，小黄遭殃的剧情走向
+
+小黄：搅，搅什么啦</blockquote>
+受苦的是p吧（不过这个p神经也蛮大的
+
+*****
+
+####  RhmBWT_Wu  
+##### 3598#       发表于 2024-4-29 19:07
+
+这种外招的和内部直升的经常有矛盾吗，我想起少战法国组了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5085,3 +5085,16 @@ iphone XR
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Jamaisvu  
+##### 12468#       发表于 2024-4-29 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763829&amp;ptid=2084912" target="_blank">漆黑之花 发表于 2024-4-29 19:00</a>
+
+因为8号出口玩法就是让你在细微的地方找不同，现在也是每天在地图上找哪里有时间
+
+—— 来自 S1Fun ...</blockquote>
+感谢科普，之前没深入了解这个游戏（光看过梗图），刚才找了一下视频发现很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

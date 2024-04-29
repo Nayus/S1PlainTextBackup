@@ -4859,3 +4859,24 @@ iphone XR
 根据地图提示今天晚上怪异本是北京时间20点开启，和解包出来那一大串时间相符合，之后的开启时间可以确定 ...</blockquote>
 请问是怎么看得出来时间，昨天也是，弹窗关了以后怎么点都点不出来
 
+
+*****
+
+####  Jamaisvu  
+##### 12449#       发表于 2024-4-29 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762059&amp;ptid=2084912" target="_blank">beer 发表于 2024-4-29 16:16</a>
+
+请问是怎么看得出来时间，昨天也是，弹窗关了以后怎么点都点不出来</blockquote>
+地图上每天会藏着一段数字，要自己找<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也是转载的，反正就是20-22、21—23、23—24三种，北京时间晚七点八点九点开始俩小时限定本。
+
+*****
+
+####  v22325  
+##### 12450#       发表于 2024-4-29 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762059&amp;ptid=2084912" target="_blank">beer 发表于 2024-4-29 16:16</a>
+
+请问是怎么看得出来时间，昨天也是，弹窗关了以后怎么点都点不出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹窗应该是告诉你现在地图上有时间的提示了，但是时间还没到，你到时间进游戏在地图上就自动有限时本打了。
+

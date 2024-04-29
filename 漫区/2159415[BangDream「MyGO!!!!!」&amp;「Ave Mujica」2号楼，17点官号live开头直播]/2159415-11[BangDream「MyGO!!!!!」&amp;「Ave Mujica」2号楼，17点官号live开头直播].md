@@ -16394,3 +16394,12 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cindy355  
+##### 16254#       发表于 2024-4-29 16:28
+
+楼里的鸡友不需要担心没有设定集。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们应该担心设定集水得不行但你们还是不得不爆米才对。
+

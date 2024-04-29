@@ -4928,3 +4928,38 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 说起来从demo起就在想为什么不把女主男主直接翻译成夏娃亚当，而是要音译成伊芙跟艾达姆，后面有解释吗（我 ...</blockquote>
 没有，就这么翻译的
 
+
+*****
+
+####  粉刷月季  
+##### 1201#       发表于 2024-4-29 14:27
+
+日光塔旁边带开关的电线杆是干什么用的？
+
+日光塔营地附近的高台能上去吗？
+
+*****
+
+####  ku2154513  
+##### 1202#       发表于 2024-4-29 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760862&amp;ptid=1978008" target="_blank">粉刷月季 发表于 2024-04-29 14:27:00</a>
+日光塔旁边带开关的电线杆是干什么用的？
+
+日光塔营地附近的高台能上去吗？ ...</blockquote>全部打开，解锁一个箱子
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  粉刷月季  
+##### 1203#       发表于 2024-4-29 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760895&amp;ptid=1978008" target="_blank">ku2154513 发表于 2024-4-29 14:29</a>
+
+全部打开，解锁一个箱子
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+只看到3个，下次再去找找
+

@@ -5307,3 +5307,16 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 类星体真砍的话只能绕后打散热口了，晕雷必带咯
 
+
+*****
+
+####  Mr.Hopp  
+##### 3461#       发表于 2024-4-29 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760662&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-29 14:06</a>
+
+啊，两发瞄头能弄死泰坦吗，感觉我这边至少要打3发
+
+—— 来自 OPPO PEAM00, Android 10上的 S1Ne ...</blockquote>
+刚出的时候是两下，范围很宽松，现在大概是跟机甲的导弹一样砍了爆炸范围。两下要瞄准嘴部朝上一点好像，而且要很准确才能秒。
+

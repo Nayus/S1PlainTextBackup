@@ -47,3 +47,14 @@
 不过高岛屋 ...</blockquote>
 那四个三角拼成个大的周边是什么，糖果盒？
 
+
+*****
+
+####  冷泉夜月  
+##### 15700#       发表于 2024-4-29 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760810&amp;ptid=1997982" target="_blank">beer 发表于 2024-04-29 14:21:46</a>
+那四个三角拼成个大的周边是什么，糖果盒？</blockquote>塞尔达主题的曲奇饼干，应该是三种味道<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -16295,3 +16295,13 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 算了 还是看看有什么特典吧
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16246#       发表于 2024-4-29 14:32
+
+【「MyGO!!!!!」设定集附录语音·迷子の寄リ道·（生肉）-哔哩哔哩】 [https://b23.tv/UHFVTvY](https://b23.tv/UHFVTvY)
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

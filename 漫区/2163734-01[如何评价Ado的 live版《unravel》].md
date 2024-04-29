@@ -573,3 +573,18 @@ Ado我是很喜欢的，跟当年喜欢梁静茹和欢欢一样，这种毁嗓�
 
 欣赏不了这位<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ylssb10438  
+##### 63#       发表于 2024-4-29 14:32
+
+我倒是很喜欢她唱偏抒情的安静点的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">永遠のあくる日   風のゆくえ 啥的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">想起来听狮子神也是喜欢她唱抒情曲
+
+*****
+
+####  shinraki  
+##### 64#       发表于 2024-4-29 14:34
+
+我喜欢，不过你区很多老年人肯定接受不了，还是别推了
+

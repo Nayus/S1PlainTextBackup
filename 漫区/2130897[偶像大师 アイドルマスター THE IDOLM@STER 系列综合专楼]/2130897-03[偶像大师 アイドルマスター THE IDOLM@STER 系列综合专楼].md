@@ -6448,3 +6448,28 @@ qa特有的报菜名环节
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Achlys  
+##### 3584#       发表于 2024-4-29 18:38
+
+这个剧本只是到学园偶像祭优胜的？
+
+
+*****
+
+####  Achlys  
+##### 3585#       发表于 2024-4-29 18:41
+
+ことね内心戏可爱，天使<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3586#       发表于 2024-4-29 18:45
+
+第一集才说只培育一个人的来着？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从1v1一转多人协力了
+

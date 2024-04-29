@@ -35,3 +35,11 @@
 “听说你幻视人头牌 Build。”</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也被这个坑过，后来就注意看boss的挑战换构筑了
 
+
+*****
+
+####  double8  
+##### 562#       发表于 2024-4-30 05:46
+
+测试版更新了有中文了，建议直接测试版走起，高难度体验优化了不少
+

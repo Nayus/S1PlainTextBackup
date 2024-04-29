@@ -5272,3 +5272,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  Mr.Hopp  
+##### 3457#       发表于 2024-4-29 13:17
+
+类星体两发打死泰坦挺难的，有必要砍吗。。。
+

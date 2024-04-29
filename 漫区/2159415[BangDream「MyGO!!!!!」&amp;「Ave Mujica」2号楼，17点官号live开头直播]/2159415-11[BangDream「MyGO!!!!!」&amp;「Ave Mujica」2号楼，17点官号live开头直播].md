@@ -16208,3 +16208,21 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 鸡周年庆没资格过，但是狗周年庆还是得上来洗脚是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16236#       发表于 2024-4-29 13:18
+
+你GO可是太子呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  ddy2811  
+##### 16237#       发表于 2024-4-29 13:24
+
+只能期待这皇族“莫倾人栋梁”了<img src="https://static.saraba1st.com/image/smiley/carton2017/400.png" referrerpolicy="no-referrer">
+

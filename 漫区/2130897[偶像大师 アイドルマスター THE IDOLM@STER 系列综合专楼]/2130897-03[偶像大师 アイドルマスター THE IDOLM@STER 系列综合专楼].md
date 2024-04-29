@@ -6289,3 +6289,13 @@ IMG_3365.jpeg
 
 <img src="https://p.sda1.dev/17/2bd341b8bbc7c9ca06cd6b24fc756d73/1000003606.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 3568#       发表于 2024-4-29 13:18
+
+有一说一都拿6w建模面数做宣传了，是该整点系统好好展示一下次时代建模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍照系统确实很合适。如果技术力再高点能整个录像功能就牛逼了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

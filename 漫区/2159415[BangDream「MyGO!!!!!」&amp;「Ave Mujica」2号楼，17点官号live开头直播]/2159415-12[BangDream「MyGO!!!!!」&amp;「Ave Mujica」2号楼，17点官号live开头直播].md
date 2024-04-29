@@ -250,3 +250,55 @@
 
 2024-4-29 19:35 上传
 
+
+*****
+
+####  PDQ4  
+##### 16298#       发表于 2024-4-29 19:37
+
+怕是鸡的咖位没资格跟狗对邦，你什么乐队，虽然翻唱碟有鸡但是是当狗料宣的，洗脚婢认清自己的身份好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+| 御幸一也| + 1|如何才能有你的口才|
+
+查看全部评分
+
+*****
+
+####  滑稽Captain  
+##### 16299#       发表于 2024-4-29 19:39
+
+初秋晚秋大概是9月11月吧
+
+*****
+
+####  枫林不见  
+##### 16300#       发表于 2024-4-29 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764168&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-29 19:35</a></blockquote>
+猫猫。原来你也穿海澜之家啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rslika  
+##### 16301#       发表于 2024-4-29 19:40
+
+唉…底蕴，团魂，实力。
+就这运营还只想翻译一半
+
+*****
+
+####  kivz  
+##### 16302#       发表于 2024-4-29 19:44
+
+合在一起就很搞，鸡粉买了这张数据是不是还要算go友头上
+

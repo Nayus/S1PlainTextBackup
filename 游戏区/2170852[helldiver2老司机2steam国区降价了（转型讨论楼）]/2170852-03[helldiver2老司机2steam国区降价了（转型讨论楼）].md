@@ -6242,3 +6242,46 @@ QQ截图20240429200420.jpg
 
 [https://www.bilibili.com/video/BV13r421u7er/](https://www.bilibili.com/video/BV13r421u7er/)
 
+
+*****
+
+####  北条早苗  
+##### 3541#       发表于 2024-4-29 22:50
+
+光能要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂风DKC  
+##### 3542#       发表于 2024-4-29 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">O TMD现在离子喷会弹到蛋盾内部上，SB箭头NMSL
+
+*****
+
+####  屑屑代沟尼亚  
+##### 3543#       发表于 2024-4-29 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">更新完好像不能在地图上盲标找支线了
+
+*****
+
+####  FLZB  
+##### 3544#       发表于 2024-4-29 22:51
+
+电喷也能用了，射速大概来了电弧被砍之前的水平，跟制裁者一样把追踪虫摁在地上打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xinfengj  
+##### 3545#       发表于 2024-4-29 22:56
+
+ 本帖最后由 xinfengj 于 2024-4-29 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64756543&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-4-29 07:53</a>
+
+楼上某人真是哄堂大孝了家人们
+
+“箭头的诚意你们看到了吗”可以入典了</blockquote>
+真空内爆和空爆这不是给你们修好了吗？这个补丁你们一定很开心吧？
+

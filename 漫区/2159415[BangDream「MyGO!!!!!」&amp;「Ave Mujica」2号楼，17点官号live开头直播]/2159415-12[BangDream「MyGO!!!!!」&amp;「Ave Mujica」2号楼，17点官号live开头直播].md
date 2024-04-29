@@ -1228,3 +1228,14 @@ ako：这个世界上的神明居然有三位？
 这就是我说不要指望动画立希的原因，各个版本都看过会发现把立希职能分出去的剧情基本上是动画相关（TV、 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">住口！不要再说了！
 
+
+*****
+
+####  NODY  
+##### 16397#       发表于 2024-4-29 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766417&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-29 23:31</a>
+
+住口！不要再说了！</blockquote>
+我的看法是立希展望一下手游还是可以的，ras新箱活的水准让我对手游编剧又有了点信心，而且手游立希虽然也灯单推，但灯对立希态度非常好这点就已经比动画要强了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至于动画，独角兽能大发慈悲少玩点败犬迫害梗和拿立希去垫其他人或者cp就不错了
+

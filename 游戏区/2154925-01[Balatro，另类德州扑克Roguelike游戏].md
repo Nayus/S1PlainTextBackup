@@ -24,3 +24,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草啊为什么会有一个解锁全部按钮还没二次确认啊，手贱点了下看到收藏直接跳到 100%，行吧也省时间了。
 
+
+*****
+
+####  游蜓  
+##### 561#       发表于 2024-4-29 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762771&amp;ptid=2154925" target="_blank">Junakr 发表于 2024-4-29 17:15</a>
+
+“听说你幻视人头牌 Build。”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也被这个坑过，后来就注意看boss的挑战换构筑了
+

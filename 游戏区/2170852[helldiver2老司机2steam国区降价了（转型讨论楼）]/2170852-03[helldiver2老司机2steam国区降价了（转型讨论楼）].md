@@ -6330,3 +6330,36 @@ QQ截图20240429200420.jpg
 
 副武器抬一抬吧 救世主用一万年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 3551#       发表于 2024-4-29 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766461&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-4-29 23:36</a>
+
+副武器抬一抬吧 救世主用一万年了</blockquote>
+抬了啊，左轮伤害加了，全弹打完换弹还多了speed loader，你还想奢求啥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 3552#       发表于 2024-4-29 23:47
+
+<img src="https://img.saraba1st.com/forum/202404/29/234708pnjjxvz2l8w6bhvn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 23:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这7/8是什么牛批深层代码BUG吗，就不见修
+
+*****
+
+####  九十九忍  
+##### 3553#       发表于 2024-4-29 23:47
+
+唉麻了，主线又是三张图就一张有样本还是很赶时间的
+

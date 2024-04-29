@@ -5262,3 +5262,13 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 爆裂铳弹夹减半其实还能接受，类星体散热加倍那玩不了了
 
+
+*****
+
+####  大肥鸽子  
+##### 3456#       发表于 2024-4-29 13:02
+
+爆裂铳倒不一定砍弹夹吧，爆炸范围和伤害都能动刀，类星体要是挨大砍就很可惜，目前最舒服的反重甲筒子了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

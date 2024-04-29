@@ -593,3 +593,14 @@ DA8CA5EDCE87E5952C2C7DDFDEA85573.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/29/161331tpfnnnf7ffficoy3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Blackson  
+##### 46360#       发表于 2024-4-29 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761634&amp;ptid=1712412" target="_blank">lcn 发表于 2024-4-29 15:38</a>
+巡灵之叶就是换活动送的从者的？
+那我活动从者满了是不是就没用了？</blockquote>
+可以换硬币
+

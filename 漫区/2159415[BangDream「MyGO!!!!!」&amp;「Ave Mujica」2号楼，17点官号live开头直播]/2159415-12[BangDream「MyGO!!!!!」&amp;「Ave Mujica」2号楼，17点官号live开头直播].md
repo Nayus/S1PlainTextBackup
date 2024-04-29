@@ -614,3 +614,102 @@ wsd这会又想起来两个是姐妹团了，要打包一起卖是吧
 我发现一个事儿
 shuzuku的推特粉丝还不到7000<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 16336#       发表于 2024-4-29 20:37
+
+真别怪人滑坡，武士道的操作永远超乎你的想象。
+
+现在还能用mujica没到宣发期骗一下。
+
+*****
+
+####  御幸一也  
+##### 16337#       发表于 2024-4-29 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是他愛你go啊，尊重 祝福
+
+*****
+
+####  御幸一也  
+##### 16338#       发表于 2024-4-29 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764853&amp;ptid=2159415" target="_blank">御景 发表于 2024-4-29 20:37</a>
+
+真别怪人滑坡，武士道的操作永远超乎你的想象。
+
+现在还能用mujica没到宣发期骗一下。 ...</blockquote>
+還這個話術？我看半年前就這個話術了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+哎呀這個宣發期真難等呢，我看有一個團動畫沒播這時候都什麼小動畫小廣播安排上了，甚至還有週年曲。
+
+*****
+
+####  Aendst  
+##### 16339#       发表于 2024-4-29 20:41
+
+那些说没到时候等1.27没消息就出来骂的人到现在都还是跟离开人间了一样毫无动静<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还打算用同一套说法是想骗五岁以下小孩吗
+
+*****
+
+####  twi  
+##### 16340#       发表于 2024-4-29 20:41
+
+原来mujica一周年什么都没有，如果有的话请告诉我。。
+
+
+*****
+
+####  skives  
+##### 16341#       发表于 2024-4-29 20:43
+
+mujica一周年印象里连官方贺图都没有
+这真是赶人跑路<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难评
+
+*****
+
+####  yuyin589  
+##### 16342#       发表于 2024-4-29 20:44
+
+动画没播没到发力期所以不给资源本来就是站在公司的角度 喜欢拿这种理由捂嘴的本质都是wsd孝子 当然如果只是没到发力期这个理由就好了 但是还有一个一出生就是“发力期”的“姐妹团”在那当对比 显得捂嘴的孝子更恶心了 ​​​
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 16343#       发表于 2024-4-29 20:44
+
+鸡一周年确实什么都没有。
+
+当天是发了2nd视觉图，但是图很好看，大家都和解了。
+
+虽然官方没有任何地方提到一周年这个事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 16344#       发表于 2024-4-29 20:45
+
+<img src="https://img.saraba1st.com/forum/202404/29/204529fpqxc6tkmpx8xsri.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240429204445.png</strong> (93.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:45 上传
+
+staff还没出（）
+
+*****
+
+####  skives  
+##### 16345#       发表于 2024-4-29 20:46
+
+2nd的图属于那种第一眼很好看 但仔细看有点微妙
+不得不说面具太伤颜值了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

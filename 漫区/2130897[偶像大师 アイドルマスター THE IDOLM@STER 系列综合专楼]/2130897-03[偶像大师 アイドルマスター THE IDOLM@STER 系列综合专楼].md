@@ -6658,3 +6658,38 @@ qa特有的报菜名环节
 
 原精英，小蓝估计也要来一段战胜过去的样板戏吧
 
+
+*****
+
+####  840266848  
+##### 3605#       发表于 2024-4-29 20:41
+
+<img src="https://img.saraba1st.com/forum/202404/29/203602bfqqh1rhqghz8tgg.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240429203511.png</strong> (136.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/203826vzyz11j91e591yj1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240429203815.png</strong> (132.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是咲季的新生首席即使不算内推那批人，人物介绍都说了天才肌属性，在全校能进入前十
+
+这学校不会就你们9人+3个里信号灯12人在前排吧哈哈哈
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果面板数据不是偶像自己乱填的或者虚假的，这歌唱力设定上咲季就秒了歌姬大人这位内推生。看看最后红蓝练习表现谁是吃瘪役
+
+*****
+
+####  奥F特  
+##### 3606#       发表于 2024-4-29 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不显得你作为P的能力强吗
+

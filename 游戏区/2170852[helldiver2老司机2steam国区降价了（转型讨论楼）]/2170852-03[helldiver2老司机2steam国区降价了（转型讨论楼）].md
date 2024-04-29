@@ -6293,3 +6293,24 @@ QQ截图20240429200420.jpg
 
 现在的电喷除了刮了点，在虫子那边还挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂风DKC  
+##### 3547#       发表于 2024-4-29 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766138&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-29 22:56</a>
+
+真空内爆和空爆这不是给你们修好了吗？这个补丁你们一定很开心吧？</blockquote>
+请问离子喷和蛋盾冲突是箭头的诚意到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YY骑士  
+##### 3548#       发表于 2024-4-29 23:25
+
+3人组队打难7，闪电战防守图。。。黄胖子+牛牛+泰坦的组合，泰坦是2个2个连着刷的， 机器人都打空弹药，次抛筒都跟不上了。。。绝了，感觉比之前难不少。
+
+虽然过了，但是你这个不满4人+刷新也太离谱了吧。
+

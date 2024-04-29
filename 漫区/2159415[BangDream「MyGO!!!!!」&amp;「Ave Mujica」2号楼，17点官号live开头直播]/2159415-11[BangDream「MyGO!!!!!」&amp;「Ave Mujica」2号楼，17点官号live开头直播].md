@@ -16403,3 +16403,38 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 楼里的鸡友不需要担心没有设定集。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们应该担心设定集水得不行但你们还是不得不爆米才对。
 
+
+*****
+
+####  6030sylar  
+##### 16255#       发表于 2024-4-29 16:54
+
+<img src="https://p.sda1.dev/17/4e94e6b55c5aa29ebe5946b8d2313753/CMP_20240429165344103.jpg" referrerpolicy="no-referrer">转邦羡慕频现地佬
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  SakuraのOrigami  
+##### 16256#       发表于 2024-4-29 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762196&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-29 16:28</a>
+
+楼里的鸡友不需要担心没有设定集。
+
+你们应该担心设定集水得不行但你们还是不得不爆米才对。 ...</blockquote>
+没事，反正3月初那会就已经买了（）
+
+接下来就等到货（）
+
+*****
+
+####  eciriganu  
+##### 16257#       发表于 2024-4-29 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762521&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-29 16:54</a>
+转邦羡慕频现地佬
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+草，就在我正前方
+

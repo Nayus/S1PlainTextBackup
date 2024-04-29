@@ -803,3 +803,32 @@ wsd孝子更是恶心，ppp和mujica那两件事的时候，转移矛盾六得�
 还有ylgo再往毫无相关的评论区弹幕流窜，迟早风评和jo小鬼一样</blockquote>
 不用迟早，现在已经差不多了。
 
+
+*****
+
+####  dqtql  
+##### 16355#       发表于 2024-4-29 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765038&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-29 21:00</a>
+还有ylgo再往毫无相关的评论区弹幕流窜，迟早风评和jo小鬼一样</blockquote>
+水母和gbc的弹幕早就全是狗批的烂梗了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16356#       发表于 2024-4-29 21:13
+
+刚来，什么时候学催眠麦克风玩cd打榜
+
+*****
+
+####  cindy355  
+##### 16357#       发表于 2024-4-29 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764675&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-4-29 20:20</a>
+
+什么言出法随
+
+这下真来了，非单独碟但是捆鸡单独live抽选让去现场的鸡粉爆米 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真别怪漏油滑坡了。
+

@@ -5414,3 +5414,36 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 剩下的buff多nerf少，还行。
 
+
+*****
+
+####  DawnGuardian  
+##### 3471#       发表于 2024-4-29 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762757&amp;ptid=2170852" target="_blank"> BadYanL 发表于 2024-4-29 17:14</a> 类星体加5秒CD，完球了；磁轨炮穿甲加回来了，要试试。 剩下的buff多nerf少，还行。 </blockquote>
+类星体哪把cd加一倍都不会怎么影响它的强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  FLZB  
+##### 3472#       发表于 2024-4-29 17:19
+
+类星体仙人说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  九十九忍  
+##### 3473#       发表于 2024-4-29 17:26
+
+哪怕蓄力短点都不至于让这加的五秒这么吃屎
+
+*****
+
+####  风萧飒  
+##### 3474#       发表于 2024-4-29 17:27
+
+感觉加cd比增加蓄力时间能接受一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6388,3 +6388,18 @@ QQ截图20240429200420.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kalavinka  
+##### 3557#         楼主| 发表于 2024-4-30 00:18
+
+感觉现在电喷+磁轨打虫子很舒适<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YY骑士  
+##### 3558#       发表于 2024-4-30 00:19
+
+隐身虫现在是真隐形啊。。。我特么，2个巢，第一次靠着蛋盾杀了2个，没跑几步背后又冒出2个，真没看见啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

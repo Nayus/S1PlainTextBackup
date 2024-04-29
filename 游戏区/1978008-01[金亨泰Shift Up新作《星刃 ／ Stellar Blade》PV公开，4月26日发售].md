@@ -5105,3 +5105,14 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 马桶太多了，清的人打瞌睡
 
+
+*****
+
+####  名字已被吃  
+##### 1219#       发表于 2024-4-30 00:20
+
+绝了，废土正上方那块地方，有个上坡过去，一前一后两个炮台守着一个箱子，好不容易躲着过去了发现战斗中打不开箱子，这怎么搞<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+另外过去另一条路有个开关按了怎么没反应，不断地放几个红色机器人动画又是什么意思(前头一个开关我也来了的，难道是要限时过去吗？但是这躲炮台也太难了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

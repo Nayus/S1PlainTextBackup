@@ -5172,3 +5172,13 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 还得是黑礼服
 <img src="https://img.imoutomoe.net/images/2024/04/30/20240430043057.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky95  
+##### 1226#       发表于 2024-4-30 07:34
+
+生化危机那关金亨泰真是幽默，啥都不让我升级就去打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

@@ -5280,3 +5280,22 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 类星体两发打死泰坦挺难的，有必要砍吗。。。
 
+
+*****
+
+####  normalli  
+##### 3458#       发表于 2024-4-29 14:05
+
+好像说不会砍威力但会砍备弹，我感觉焦土危
+
+*****
+
+####  大肥鸽子  
+##### 3459#       发表于 2024-4-29 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760163&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-29 13:17</a>
+类星体两发打死泰坦挺难的，有必要砍吗。。。</blockquote>
+啊，两发瞄头能弄死泰坦吗，感觉我这边至少要打3发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

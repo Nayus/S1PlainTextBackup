@@ -947,3 +947,35 @@ wsd孝子更是恶心，ppp和mujica那两件事的时候，转移矛盾六得�
 
 立希的过去应该高度绑定立希姐，但是npc。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16368#       发表于 2024-4-29 21:50
+
+别内耗了，自己写点同人想想mujica五人会怎么和老团互动都比内耗有意思。
+
+*****
+
+####  rikaren  
+##### 16369#       发表于 2024-4-29 21:51
+
+玩梗的讲，ako看了mujica的演出后怕不是一场不落，或许黑祥说服喵梦就用这个来诱惑喵梦呢(开玩笑的，黑祥哪里知道ako的情报)
+
+
+*****
+
+####  御幸一也  
+##### 16370#       发表于 2024-4-29 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">泥樓就是要狠狠地滑，不滑無法調理的。
+
+*****
+
+####  御幸一也  
+##### 16371#       发表于 2024-4-29 21:54
+
+不過說到這個，其實我挺喜歡立希的，但每次想到她是個燈廚就非常下頭。
+
+其他立希推你們是怎麼調理的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

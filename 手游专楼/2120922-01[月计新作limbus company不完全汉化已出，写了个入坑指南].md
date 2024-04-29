@@ -359,3 +359,12 @@
 
 凡是玩家喜欢的我们就要取消是吧，金总监你学坏了。
 
+
+*****
+
+####  冰原狼  
+##### 661#       发表于 2024-4-29 21:51
+
+好毒的池子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+5up就一个三灯人格，剩下两个ego两个播报员全是1.3%，播报员还会重复
+

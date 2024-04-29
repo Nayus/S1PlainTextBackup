@@ -1336,3 +1336,13 @@ woc，这个脸红对视
 
 https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17/f3f21c7ac69c368e7afbd37bfffa028a/CMP_20240430061735423.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 16407#       发表于 2024-4-30 07:09
+
+羊宫妃那昨天表现还可以，错过进入**病了。
+
+横A这个场地还有当天的调音真不行，吵死了。
+

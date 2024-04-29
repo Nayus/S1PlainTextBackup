@@ -5113,3 +5113,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 —— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Mr.Hopp  
+##### 3442#       发表于 2024-4-29 08:27
+
+我觉得箭头其实也很捉急，百来人的工作室，引擎也没得支援，又要修BUG又要更新进度。本来想着小众游戏可以慢慢摸，想不到一下子太火了想摸鱼都没法摸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

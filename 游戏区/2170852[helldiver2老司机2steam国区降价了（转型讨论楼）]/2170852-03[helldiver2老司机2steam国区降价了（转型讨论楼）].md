@@ -6161,3 +6161,31 @@ QQ截图20240429200420.jpg
 
 游戏帧数有bug，我4090，4k下稳定165，今天跟新后，发射出船舱后直接下降到80，明显觉得卡顿，落地后马上正常。
 
+
+*****
+
+####  Benighted  
+##### 3533#       发表于 2024-4-29 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764896&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-29 20:42</a>
+
+更新后离子喷好爽。</blockquote>
+闪电喷也很好用了..
+
+*****
+
+####  6x6z6w  
+##### 3534#       发表于 2024-4-29 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764896&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-29 20:42</a>
+更新后离子喷好爽。</blockquote>
+然而如果带蛋盾，离子喷子弹会在盾里自爆弄死你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狂风DKC  
+##### 3535#       发表于 2024-4-29 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

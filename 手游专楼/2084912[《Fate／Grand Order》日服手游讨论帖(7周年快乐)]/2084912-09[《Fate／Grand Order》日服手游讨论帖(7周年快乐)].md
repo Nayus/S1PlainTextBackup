@@ -5205,3 +5205,16 @@ iphone XR
 
 要么一朝功成要么一无所有.jpg
 
+
+*****
+
+####  cenhr  
+##### 12481#       发表于 2024-4-29 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764951&amp;ptid=2084912" target="_blank">シャル 发表于 2024-4-29 20:49</a>
+
+射程外攻击
+
+镜子怪没想到有射程距离</blockquote>
+开窗+射程外攻击所有镜子破了规则，然后就是正义的围殴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

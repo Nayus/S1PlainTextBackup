@@ -5243,3 +5243,11 @@ iphone XR
 
 一个十连意思一下也是抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 12485#       发表于 2024-4-30 01:36
+
+那么今天的剧情其实就解释了之前的青子是怎样死的，其实就是被仇澟、巴姐的复制人给干掉的。
+

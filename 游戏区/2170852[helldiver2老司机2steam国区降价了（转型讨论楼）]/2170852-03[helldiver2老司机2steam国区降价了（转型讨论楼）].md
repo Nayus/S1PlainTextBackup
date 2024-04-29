@@ -5592,3 +5592,129 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 
 玩了这么久，只用过一次屎蛋狗，还是捡路人掉落的，****哒一下子就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真红眼教授  
+##### 3492#       发表于 2024-4-29 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763162&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-29 17:52</a>
+
+Patrol spawning has been increased when there are fewer than 4 players. The fewer the players the bi ...</blockquote>
+人越少怪越多？疯了吧
+
+*****
+
+####  ravend233  
+##### 3493#       发表于 2024-4-29 17:56
+
+实弹狗有次单刷机器人试过，没两下就打空弹药了，补充子弹还得叫空投补给，还占背包位，幽默极了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  风萧飒  
+##### 3494#       发表于 2024-4-29 17:56
+
+我唯一用的一次实弹狗是有次背着激光狗走路，走着走着就开始不发射激光变成实弹了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我当时都怀疑是不是精神错乱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  smdzh2  
+##### 3495#       发表于 2024-4-29 17:57
+
+我有理由怀疑激光狗最初的设计是过热后直接gg，只能通过空投补给，结果贱头忘记敲这段代码了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  真红眼教授  
+##### 3496#       发表于 2024-4-29 17:57
+
+最重要两条改动
+
+防御超过100的部分可以减少爆头伤害，重甲价值变高
+
+玩家越少巡逻刷的越多，这条大概是疯了
+
+*****
+
+####  Launce  
+##### 3497#       发表于 2024-4-29 17:59
+
+Explosive weapons such as R-36 Eruptor, CB-9 Exploding Crossbow. GP-31 Grenade Pistol no longer pulls players inward from the blast.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆裂铳特性哥哭死了要
+
+*****
+
+####  FLZB  
+##### 3498#       发表于 2024-4-29 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763162&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-29 17:52</a>
+
+Patrol spawning has been increased when there are fewer than 4 players. The fewer the players the bi ...</blockquote>
+之前solo那个巡逻队刷新就够离谱了，这还嫌不够多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 3499#       发表于 2024-4-29 17:59
+
+看了一下机器人还有几个改动感觉也挺重要的，无畏的踉跄抗性轻微提升，步行者（双足哨兵）驾驶员爆炸抗性提升，不知道这俩加强幅度有多大。另外直升机的数量上限说是被大砍了，防空压力应该没有那么大了来自: iPhone客户端
+
+*****
+
+####  北条早苗  
+##### 3500#       发表于 2024-4-29 18:00
+
+都让你箭头幽默完了，好用的东西一刀砍大动脉，加强都很幽默
+
+*****
+
+####  九十九忍  
+##### 3501#       发表于 2024-4-29 18:00
+
+好几个猛了砍，砍完再加的，开马戏团吗
+
+单走巡逻队现在多过报团，爆中爆
+
+*****
+
+####  DawnGuardian  
+##### 3502#       发表于 2024-4-29 18:01
+
+巡逻队这个改动确实挺抽象的，箭头跟单刷玩家有仇吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  Launce  
+##### 3503#       发表于 2024-4-29 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763264&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-4-29 18:00</a>
+
+好几个猛了砍，砍完再加的，开马戏团吗
+
+单走巡逻队现在多过报团，爆中爆</blockquote>
+这是单人刷任务，不影响4人单走
+
+*****
+
+####  暴走的包子  
+##### 3504#       发表于 2024-4-29 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定是看你们单人刷材料不爽
+
+—— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainknine  
+##### 3505#       发表于 2024-4-29 18:05
+
+箭头行不行啊箭头
+没活了
+不会赶着休五一这就放假了吧
+

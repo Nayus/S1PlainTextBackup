@@ -5718,3 +5718,23 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 没活了
 不会赶着休五一这就放假了吧
 
+
+*****
+
+####  风萧飒  
+##### 3506#       发表于 2024-4-29 18:08
+
+所以长柄镰加强了激光狗数据有变化吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Benighted  
+##### 3507#       发表于 2024-4-29 18:14
+
+给重机枪加准星，左轮加快速装填，磁轨稍微上修算是比较好的改动，其他改动里有不少都让人觉得莫名其妙
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

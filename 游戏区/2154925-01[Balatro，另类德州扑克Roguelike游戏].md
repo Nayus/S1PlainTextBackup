@@ -16,3 +16,11 @@
 
 然后头五张 AAKQQ 秒了（。
 
+
+*****
+
+####  Junakr  
+##### 560#       发表于 2024-4-29 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草啊为什么会有一个解锁全部按钮还没二次确认啊，手贱点了下看到收藏直接跳到 100%，行吧也省时间了。
+

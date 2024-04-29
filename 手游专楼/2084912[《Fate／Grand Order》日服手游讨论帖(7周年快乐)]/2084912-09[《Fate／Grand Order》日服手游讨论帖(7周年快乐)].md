@@ -4880,3 +4880,16 @@ iphone XR
 请问是怎么看得出来时间，昨天也是，弹窗关了以后怎么点都点不出来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弹窗应该是告诉你现在地图上有时间的提示了，但是时间还没到，你到时间进游戏在地图上就自动有限时本打了。
 
+
+*****
+
+####  Jamaisvu  
+##### 12451#       发表于 2024-4-29 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760234&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-4-29 13:26</a>
+
+这个怪异出现时间，是8号出口的灵感吧</blockquote>
+但是在日本那边是21时晚上九点开始呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且8号出口好像是地铁站来着...
+
+如果是公路上游荡的怪异可能是高速婆婆吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

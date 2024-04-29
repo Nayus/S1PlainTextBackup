@@ -4999,3 +4999,13 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  过气页游  
+##### 1207#       发表于 2024-4-29 16:40
+
+<blockquote>pissca 发表于 2024-4-29 01:07
+这废品堆放场有个梯子判定是不是短了，试了好几次空中攻击才抓上</blockquote>
+这个本来是要二段跳上去的
+

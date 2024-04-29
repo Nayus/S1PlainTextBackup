@@ -6490,3 +6490,11 @@ QQ截图20240429200420.jpg
 
 下一个砍的就是你，电喷！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 3566#       发表于 2024-4-30 05:07
+
+想出巡逻队和机器人感知改动的这位逆天，改成这样他最好是自己打得过现在的机器人solo高难，否则他今天出门必撞大运<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

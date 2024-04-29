@@ -6710,3 +6710,20 @@ qa特有的报菜名环节
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学马仕动画超出意料啊，至少这开局是真不错，作为偶像动画趣味性却没落下，3D看着也挺舒服的
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">小黄也太可爱了，期待后面展开
 
+
+*****
+
+####  sliver1997  
+##### 3609#       发表于 2024-4-30 00:29
+
+感觉学马仕比 sc 动画好
+
+
+*****
+
+####  Swss  
+##### 3610#       发表于 2024-4-30 00:32
+
+<img src="https://p.sda1.dev/17/1e060eb38deed2bc76a8e4d4077779be/CMP_20240430003205475.jpg" referrerpolicy="no-referrer">
+最符合人设的一集<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+

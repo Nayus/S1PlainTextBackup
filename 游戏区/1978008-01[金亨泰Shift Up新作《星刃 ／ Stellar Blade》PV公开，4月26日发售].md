@@ -5116,3 +5116,14 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pissca  
+##### 1220#       发表于 2024-4-30 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766825&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-30 00:20</a>
+
+绝了，废土正上方那块地方，有个上坡过去，一前一后两个炮台守着一个箱子，好不容易躲着过去了发现战斗中打 ...</blockquote>
+红色机器人是都要打掉
+

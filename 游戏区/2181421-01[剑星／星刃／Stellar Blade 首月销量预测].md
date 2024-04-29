@@ -663,3 +663,13 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 浪人女角色的美感还不如卧龙，卧龙美术风格不行，但红晶、大乔还是很顶的，就是楼里说的，缺乏一种女角色独特的美感。
 
+
+*****
+
+####  海豹墨鱼卷  
+##### 64#       发表于 2024-4-29 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753131&amp;ptid=2181421" target="_blank">垃圾网站上 发表于 2024-4-28 19:34</a>
+现在泥潭很多人连云都不云张口就来了，浪人崛起里头明示和几个男女npc共度良宵的情节都有，女角色也可以 ...</blockquote>
+僵尸一样的打光，没救了。
+

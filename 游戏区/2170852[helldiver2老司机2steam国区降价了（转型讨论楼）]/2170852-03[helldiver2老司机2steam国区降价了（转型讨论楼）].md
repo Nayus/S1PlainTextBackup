@@ -5226,3 +5226,13 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在高难不同配置各有各的爽都做不到，一个dot伤害bug搞得打虫子都不能当喷火仙人
 
+
+*****
+
+####  风萧飒  
+##### 3453#       发表于 2024-4-29 12:06
+
+看了下贴吧说有24项武器加强，两项削弱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

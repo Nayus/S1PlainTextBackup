@@ -4971,3 +4971,31 @@ https://gamewith.jp/stellarblade/444545</blockquote>
 
 这游戏没有一键地图吗，跑图有点麻烦
 
+
+*****
+
+####  lucky95  
+##### 1205#       发表于 2024-4-29 15:45
+
+引导小地图稀烂，我都在开地图找路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+demo存档开始玩，一口气玩了9个小时，是蛮好玩的
+QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+战斗其实只要多通马桶一下子就一堆点可以升，我还没那防反插件基本就还没玩弹刀，都是靠格挡+闪避+技能打怪
+
+跑图倒是容易被怪正义群殴，瞬间就没了，特别难绷，跑路大法好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  陈词与芍药  
+##### 1206#       发表于 2024-4-29 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64758724&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-4-28 23:12</a>
+说起来从demo起就在想为什么不把女主男主直接翻译成夏娃亚当，而是要音译成伊芙跟艾达姆，后面有解释吗（我 ...</blockquote>
+可能是不想太剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，名字本身就是剧透啥的不要啊（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

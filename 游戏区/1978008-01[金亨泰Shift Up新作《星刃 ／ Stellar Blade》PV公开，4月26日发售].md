@@ -4846,3 +4846,14 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 —— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1193#       发表于 2024-4-29 09:58
+
+几时更拍照模式啊
+4202年的500大洋大作怎么没拍照模式啊，尤其是一个卖点就是人物建模的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

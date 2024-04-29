@@ -6701,3 +6701,12 @@ qa特有的报菜名环节
 
 你有背负藤田琴音人生的觉悟吗？
 
+
+*****
+
+####  darkendless  
+##### 3608#       发表于 2024-4-30 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学马仕动画超出意料啊，至少这开局是真不错，作为偶像动画趣味性却没落下，3D看着也挺舒服的
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">小黄也太可爱了，期待后面展开
+

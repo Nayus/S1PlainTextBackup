@@ -5146,3 +5146,11 @@ iphone XR
 直接去逆写之间居然BE了</blockquote>
 但是如果根据故事走的话这次破局是靠主角想出来的对应方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 12475#       发表于 2024-4-29 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蘑菇是被前妻NTR然后离婚爆金币了么，这么对青子
+

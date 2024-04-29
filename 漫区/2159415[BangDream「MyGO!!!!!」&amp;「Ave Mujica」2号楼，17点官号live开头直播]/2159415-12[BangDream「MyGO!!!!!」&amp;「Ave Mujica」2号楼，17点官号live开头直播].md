@@ -302,3 +302,41 @@
 
 合在一起就很搞，鸡粉买了这张数据是不是还要算go友头上
 
+
+*****
+
+####  cindy355  
+##### 16303#       发表于 2024-4-29 19:46
+
+有点小看老登的营业能力了吧
+
+*****
+
+####  SakuraのOrigami  
+##### 16304#       发表于 2024-4-29 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764168&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-29 19:35</a></blockquote>
+倒影里的小猫还挺可爱
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  -LYRE-  
+##### 16305#       发表于 2024-4-29 19:51
+
+ 本帖最后由 -LYRE- 于 2024-4-29 19:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764242&amp;ptid=2159415" target="_blank">kivz 发表于 2024-4-29 19:44</a>
+合在一起就很搞，鸡粉买了这张数据是不是还要算go友头上</blockquote>
+那不肯定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+早说了1st 7000舰全靠🐶，要是🐔自己单独的号的话就百舰不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+数据高了是全靠蹭🐶，数据低了是被🐶吊打活该没资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 16306#       发表于 2024-4-29 19:52
+
+一眼看成鸡狗对邦，还以为有机会能产点真人海希糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

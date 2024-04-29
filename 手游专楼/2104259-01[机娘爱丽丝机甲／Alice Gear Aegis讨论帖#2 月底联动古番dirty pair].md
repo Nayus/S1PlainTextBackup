@@ -129,3 +129,15 @@ pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face
 
 至于这次是怎么做到的，还得等后续剧情。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1050#         楼主| 发表于 2024-4-29 19:54
+
+ 本帖最后由 江戸前ルナ 于 2024-4-29 19:55 编辑 
+
+阿枫戴面具当ZERO毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+装备问题似乎在CC四星剧情有解释，说是什么“共时性”，但图只有一张没头没尾的我没看懂就是。得抽到的海豹坛友帮忙解释下了
+

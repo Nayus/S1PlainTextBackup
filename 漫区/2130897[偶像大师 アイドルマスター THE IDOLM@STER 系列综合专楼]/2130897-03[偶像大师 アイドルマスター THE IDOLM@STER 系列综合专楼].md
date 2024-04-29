@@ -6762,3 +6762,12 @@ qa特有的报菜名环节
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了眼都开骂这是“日轻雌竞味太重”了
 哎 都是我们男性起家的问题
 
+
+*****
+
+####  Achlys  
+##### 3615#       发表于 2024-4-30 03:10
+
+怎么imas这都能有雌竞这样的评论...女子偶像还能不是雌竞了
+是本家粉还是闪p呀？
+

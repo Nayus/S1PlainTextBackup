@@ -6315,3 +6315,30 @@ IMG_3365.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是人物好像还在穿模
 
+
+*****
+
+####  有村麻央  
+##### 3570#       发表于 2024-4-29 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64755187&amp;ptid=2130897" target="_blank">十王星南(せな) 发表于 2024-4-28 23:15</a>
+没后缀那个马甲忘记密码了</blockquote>
+刚注册的，怎么就忘记密码了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王九的哥哥  
+##### 3571#       发表于 2024-4-29 14:44
+
+<img src="https://img.saraba1st.com/forum/202404/29/142827wbdnhhdj79t1it7t.png" referrerpolicy="no-referrer">
+
+<strong>27629017162EDBA55300C6555FC790D3.png</strong> (541.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 14:28 上传
+
+动画联动活动到最后一个Team了，活动明天开始，今天游戏里发了綿田监督的寄语……
+
+看完感觉什么评论都是多余的，突出一个綿田监督真就是ミリオンライブの精<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -1054,3 +1054,11 @@ INABA
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pokemon最爱  
+##### 1390#       发表于 2024-4-29 11:22
+
+星闪的屑星座公主们大部分也没有在Cast表里表记CV，所以其实不能证明是真路人（雾）
+

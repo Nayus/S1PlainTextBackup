@@ -5155,3 +5155,34 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太他妈弱智了，3个钟头没找到绿虫子
 
+
+*****
+
+####  Launce  
+##### 3446#       发表于 2024-4-29 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64758735&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-4-29 11:12</a>
+
+太他妈弱智了，3个钟头没找到绿虫子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次这逼任务，我打了一天进度0，全是黄的，所有星球所有任务都做一圈
+
+
+*****
+
+####  rainknine  
+##### 3447#       发表于 2024-4-29 11:20
+
+其实我还挺能接受小而频繁的平衡性补丁的
+因为废枪废战备太多了，所以平衡性补丁上来之后经常会有武器从不可用变成可用。
+这个时候这个武器才能真正成为游戏体验的一部分，带来的新鲜感大概能达到发新战备的一半吧（
+跟着版本用主宰和火喷都挺开心的，给常驻玩家提供新鲜感对服务类型的PVE游戏还是很重要的
+
+当然会有buff也会有削弱，我个人能接受一定的削弱，因为削弱的武器大多玩腻了，但绝大部分人应该都不大会喜欢自己用的顺手的武器被一刀砍没…
+
+*****
+
+####  Benighted  
+##### 3448#       发表于 2024-4-29 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次会重新buff下磁轨吗？坐等看戏
+

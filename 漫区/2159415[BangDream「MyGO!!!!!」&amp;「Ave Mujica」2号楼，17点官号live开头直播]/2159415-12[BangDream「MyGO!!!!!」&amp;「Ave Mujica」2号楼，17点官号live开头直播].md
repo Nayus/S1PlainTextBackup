@@ -740,3 +740,66 @@ staff还没出（）
 等秋季剧场版出了， ...</blockquote>
 那真是太噁心了點哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 16348#       发表于 2024-4-29 20:55
+
+ 本帖最后由 御景 于 2024-4-29 20:58 编辑 
+
+我也觉得恶心，但感觉要成为事实。
+
+都是武士道的傻逼操作，一点点看着鸡狗出现对立的苗头。
+
+以前不是和谐友爱，也是井水不犯河水，局限于角色粉冲突。
+
+*****
+
+####  Aendst  
+##### 16349#       发表于 2024-4-29 20:58
+
+原来武士道费尽心思只是为了切割mujica和mygo，那还真是劳他们费心了，不得不说他们做得很高效
+
+*****
+
+####  EBe  
+##### 16350#       发表于 2024-4-29 20:58
+
+wsd孝子更是恶心，ppp和mujica那两件事的时候，转移矛盾六得一批
+不过玩得最行还属你b官号语C<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 16351#       发表于 2024-4-29 21:00
+
+还有ylgo再往毫无相关的评论区弹幕流窜，迟早风评和jo小鬼一样<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16352#       发表于 2024-4-29 21:00
+
+原来切割是wsd一步步精心策划的，那成效真的挺好。
+
+我已经越来越不想看见某个团了，连美帝都不想吃了，什么时候真正切割。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御景  
+##### 16353#       发表于 2024-4-29 21:02
+
+我取消关注了，不如看李子消息，最近官号还玩语C吗？
+
+*****
+
+####  御景  
+##### 16354#       发表于 2024-4-29 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765038&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-29 21:00</a>
+
+还有ylgo再往毫无相关的评论区弹幕流窜，迟早风评和jo小鬼一样</blockquote>
+不用迟早，现在已经差不多了。
+

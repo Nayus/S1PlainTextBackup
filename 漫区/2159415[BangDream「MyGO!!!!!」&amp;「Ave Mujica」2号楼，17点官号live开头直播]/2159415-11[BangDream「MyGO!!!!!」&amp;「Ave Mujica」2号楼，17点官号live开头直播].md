@@ -16481,3 +16481,56 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 这套也不错，动画首套战服实在太丐了
 
+
+*****
+
+####  6030sylar  
+##### 16262#       发表于 2024-4-29 17:41
+
+<img src="https://img.saraba1st.com/forum/202404/29/174121l8p7c9cc3icc06q0.png" referrerpolicy="no-referrer">
+
+<strong>9%D~_284%8TZ3K(_R{[UN0W.png</strong> (47.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/174229c85kp8p8jp1qa888.png" referrerpolicy="no-referrer">
+
+<strong>@8UK65B@792H3[0X{PN%0XC.png</strong> (60.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:42 上传
+
+打鼓真高兴
+
+*****
+
+####  6030sylar  
+##### 16263#       发表于 2024-4-29 17:47
+
+<img src="https://img.saraba1st.com/forum/202404/29/174659exqz2aax33xb77a2.png" referrerpolicy="no-referrer">
+
+<strong>IDWT)DCZB5}3T]X7YZ9MGBW.png</strong> (46.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:46 上传
+
+历史一刻
+
+*****
+
+####  御幸一也  
+##### 16264#       发表于 2024-4-29 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762196&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-29 16:28</a>
+
+楼里的鸡友不需要担心没有设定集。
+
+你们应该担心设定集水得不行但你们还是不得不爆米才对。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不過再水，只要是ave肯定還是會爆米的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

@@ -5472,3 +5472,58 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德燃烧伤害又减了，真是拍脑袋平衡的么
 
+
+*****
+
+####  山风短  
+##### 3478#       发表于 2024-4-29 17:38
+
+哪怕类星体激光狗爆裂铳都砍了也不影响现在东线的散步难度，西线这幽默敌我战力对比真是一秒钟都不会去看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 3479#       发表于 2024-4-29 17:38
+
+看了一下更新公告，感觉除了爆裂铳被削的有点狠外，各方面改动都有点不疼不痒，加强也没加强多少，削弱也就小砍一刀，具体效果可能得上游戏实际体验一下才知道了来自: iPhone客户端
+
+*****
+
+####  山风短  
+##### 3480#       发表于 2024-4-29 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763005&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-4-29 17:38</a>
+看了一下更新公告，感觉除了爆裂铳被削的有点狠外，各方面改动都有点不疼不痒，加强也没加强多少，削弱也就 ...</blockquote>
+爆裂铳12个备弹我从来没用完过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FLZB  
+##### 3481#       发表于 2024-4-29 17:41
+
+下水道加一丢丢伤害意思意思，之前好用的几乎全砍一刀。最幽默是这逼审判者的改动，之前大家都一致认为DMR弱爆了需要加强，期待来一波伤害大提升，结果天才箭头直接给你分类一改变成突击步枪了，没有DMR就不存在DMR太弱的问题喇！真是平平又衡衡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 3482#       发表于 2024-4-29 17:42
+
+爆弹枪那个弹药确实挺难用完的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Launce  
+##### 3483#       发表于 2024-4-29 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矢脑什么抽象玩意儿还有没看懂的？居然还对他这平衡有这么大期望
+
+*****
+
+####  DawnGuardian  
+##### 3484#       发表于 2024-4-29 17:42
+
+看了一下贴吧，无限手雷修完更无限了，幽默箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

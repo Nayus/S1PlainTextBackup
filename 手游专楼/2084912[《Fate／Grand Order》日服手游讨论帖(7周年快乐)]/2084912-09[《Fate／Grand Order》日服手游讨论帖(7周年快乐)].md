@@ -4938,3 +4938,84 @@ iphone XR
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具自插头吓我一跳，有点意思
 
+
+*****
+
+####  alucardcz  
+##### 12455#       发表于 2024-4-29 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762893&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-29 17:27</a>
+
+有珠竟然是双宝具，如果蔷薇猎犬是蓝光炮就好了，对应一技能的蓝绿魔放（做大梦）（宝具效果和月之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">解饱不是已经出了 醒（
+
+*****
+
+####  Jamaisvu  
+##### 12456#       发表于 2024-4-29 17:37
+
+ 本帖最后由 Jamaisvu 于 2024-4-29 17:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202404/29/173639tzppg8gd3988f63q.jpg" referrerpolicy="no-referrer">
+
+<strong>6CF7522E6673710969530F08410AB403.jpg</strong> (152.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:36 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/173853cln9n99y0a9n94n7.jpg" referrerpolicy="no-referrer">
+
+<strong>45A060F0B3B738B0EC78071B8B751E55.jpg</strong> (126.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:38 上传
+
+解包出的新立绘，画得比青子好多了。有珠才是小山的亲女儿吧，长这样就有抽多宝的动力了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 12457#       发表于 2024-4-29 17:38
+
+虚假的女主角——青子
+真正的女主角——有珠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beer  
+##### 12458#       发表于 2024-4-29 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762220&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-29 16:30</a>
+
+地图上每天会藏着一段数字，要自己找我也是转载的，反正就是20-22、21—23、23—24三种，北京时间 ...</blockquote>
+谢谢，昨天白天看不出限时本在哪还以为更新大版本出bug了
+
+
+*****
+
+####  Jamaisvu  
+##### 12459#       发表于 2024-4-29 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762996&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-4-29 17:37</a>
+
+解饱不是已经出了 醒（</blockquote>
+唉，一直没接受绿光炮C这个抽象概念，下意识帮有珠找补<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过长这样真应了那句“给敌方加血也得抽”（红阎魔：啾啾，谁在叫我嘛？）。
+
+强度换颜值真不是说着玩的呀，作为绿卡老前辈的刑部姬能做证！
+
+*****
+
+####  alucardcz  
+##### 12460#       发表于 2024-4-29 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763065&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-29 17:43</a>
+
+唉，一直没接受绿光炮C这个抽象概念，下意识帮有珠找补
+
+不过长这样真应了那句“给敌方加血也得抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当心被满破卡面埋伏了！
+

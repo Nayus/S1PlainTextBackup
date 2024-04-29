@@ -5071,3 +5071,17 @@ iphone XR
 艹登场的全是熟人
 明天能见到kuma吗
 
+
+*****
+
+####  漆黑之花  
+##### 12467#       发表于 2024-4-29 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762385&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-29 16:43</a>
+但是在日本那边是21时晚上九点开始呀而且8号出口好像是地铁站来着...
+
+如果是公路上游荡的怪异可 ...</blockquote>
+因为8号出口玩法就是让你在细微的地方找不同，现在也是每天在地图上找哪里有时间
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

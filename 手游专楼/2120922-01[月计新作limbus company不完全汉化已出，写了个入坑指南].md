@@ -304,3 +304,42 @@
 
 我还挺期待这种开卡包形式的，至少开局不用刷遗物了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 659#       发表于 2024-4-29 19:02
+
+新人格和ego来啦，真就一个池子抽俩ego，越来越逼氪了，以后该不会出概率等于ego的人格吧？
+
+不过有人会希望捞播报员，这个过程中ego顺手出了也是很有可能的。
+
+（反过来一样）
+
+<img src="https://img.saraba1st.com/forum/202404/29/190055gbk2c39iw3spbvhu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240429_190012.jpg</strong> (509.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-29 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/190055n7muuj9mlitmwuyt.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240429_190000.jpg</strong> (432.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-29 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/190055prsnesiiskixs66w.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240429_190019.jpg</strong> (377.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-29 19:00 上传
+

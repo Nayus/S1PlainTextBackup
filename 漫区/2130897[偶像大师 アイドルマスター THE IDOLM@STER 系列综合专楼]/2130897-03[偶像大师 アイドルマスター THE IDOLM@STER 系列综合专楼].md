@@ -6496,3 +6496,71 @@ qa特有的报菜名环节
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">内推生看不起外招的很正常（bushi
 
+
+*****
+
+####  枫紫  
+##### 3589#       发表于 2024-4-29 18:59
+
+入学首席还要给人看不起，我看这补课3人组怕是要被80吧
+
+
+*****
+
+####  Alicest  
+##### 3590#       发表于 2024-4-29 19:01
+
+不是，你的设定原来是元elite的歌姬大人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/29/190110azg36foi6igqycim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 19:01 上传
+
+*****
+
+####  cckuku  
+##### 3591#       发表于 2024-4-29 19:01
+
+小蓝为什么当不了首席，是不想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3592#       发表于 2024-4-29 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763838&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-29 19:01</a>
+小蓝为什么当不了首席，是不想吗</blockquote>
+红的首席不算内推生的
+
+*****
+
+####  a85982313  
+##### 3593#       发表于 2024-4-29 19:04
+
+学马仕这代开头应该是历代最plove，最服务，最轻小说（当然确实就是找的轻小说作家）的了吧？
+
+这个开头4话的内容放到轻小说漫画里面，也算是很服务的那种，以往没有这种程度过吧
+
+*****
+
+####  枫紫  
+##### 3594#       发表于 2024-4-29 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763838&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-29 19:01</a>
+
+小蓝为什么当不了首席，是不想吗</blockquote>
+她是中学直升高中的，saki是外面第一名考进高中的
+
+*****
+
+####  1024676511  
+##### 3595#       发表于 2024-4-29 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这小剧情可真乐啊
+
+但是感觉单人育成的剧情到时候会和马娘一样直接变成平行线
+

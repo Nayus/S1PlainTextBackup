@@ -16241,3 +16241,57 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 查询连体人数量<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16240#       发表于 2024-4-29 13:37
+
+<img src="https://p.sda1.dev/17/06ae9baaf5bf228e5a1fad4908e14361/CMP_20240429133731259.jpg" referrerpolicy="no-referrer">https://x.com/izami_md/status/1784771503080571282
+二周年快乐
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16241#       发表于 2024-4-29 13:38
+
+双主唱的立绘是真的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16242#       发表于 2024-4-29 13:39
+
+https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/17/870997457567c6ba741469e1ed90606d/CMP_20240429133901459.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 16243#       发表于 2024-4-29 13:42
+
+初華確實是好看的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16244#       发表于 2024-4-29 13:42
+
+<img src="https://img.saraba1st.com/forum/202404/29/134228mzu1dd1nrjn44411.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_shiki47(@Shikiii_39love)_20240427-104457_1784171873544372464_photo.jpg</strong> (126.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 13:42 上传
+
+[https://twitter.com/Shikiii_39love/status/1784171873544372464](https://twitter.com/Shikiii_39love/status/1784171873544372464)
+
+*****
+
+####  skives  
+##### 16245#       发表于 2024-4-29 13:42
+
+算了 还是看看有什么特典吧
+

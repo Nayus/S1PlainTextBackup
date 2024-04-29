@@ -707,3 +707,41 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 它也配销量预测？ 日本首周明显不行，连浪人首周都打不过，全球估计跟浪人抱死在一起
 
+
+*****
+
+####  icylight  
+##### 69#       发表于 2024-4-29 13:43
+
+日本亚马逊，今天刚刚截的图，这个能反应销量吗？不太懂...
+
+<img src="https://img.saraba1st.com/forum/202404/29/134311gvlvjslee1tvvg2g.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-04-29 134249.jpg</strong> (214.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 13:43 上传
+
+*****
+
+####  哈扎马  
+##### 70#       发表于 2024-4-29 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753131&amp;ptid=2181421" target="_blank">垃圾网站上 发表于 2024-4-28 19:34</a>
+
+现在泥潭很多人连云都不云张口就来了，浪人崛起里头明示和几个男女npc共度良宵的情节都有，女角色也可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这美术叫好吗？从衣品到材质白送都不玩
+
+*****
+
+####  Sopp  
+##### 71#       发表于 2024-4-29 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64719601&amp;ptid=2181421" target="_blank">ultraseven 发表于 2024-4-25 22:57</a>
+
+Install Base论坛的投票
+
+欧美市场肯定比浪人高，日本市场从COMG点数来看至少和浪人持平，50-100 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">现在感觉什么都能比浪人卖的多
+

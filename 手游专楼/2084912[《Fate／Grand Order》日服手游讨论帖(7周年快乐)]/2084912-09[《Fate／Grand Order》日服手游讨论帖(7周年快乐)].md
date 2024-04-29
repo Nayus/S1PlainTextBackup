@@ -5218,3 +5218,20 @@ iphone XR
 镜子怪没想到有射程距离</blockquote>
 开窗+射程外攻击所有镜子破了规则，然后就是正义的围殴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiiTiiLL  
+##### 12482#       发表于 2024-4-30 00:38
+
+小山伟大，无需多言
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  khxooo  
+##### 12483#       发表于 2024-4-30 00:41
+
+看来就只有我没打算抽青子和有珠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

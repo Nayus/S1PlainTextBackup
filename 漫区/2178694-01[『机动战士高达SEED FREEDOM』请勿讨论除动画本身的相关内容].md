@@ -8846,3 +8846,13 @@ https://weibo.com/7503521063/5002857336804256
 
 看来福田最初的想法就是剧场版结束之后让基拉休息了，说法提了好几次了
 
+
+*****
+
+####  battleship64  
+##### 723#       发表于 2024-4-30 00:38
+
+买票了，明天去深圳，后天香港看两遍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

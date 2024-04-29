@@ -4802,3 +4802,31 @@ iphone XR
 很缺骑饼干但是昨晚整晚都在忙根本没空刷本，输麻了五一还要陪家里人出门玩大概也没空打本，祈祷等 ...</blockquote>
 服务器如乌龟一样，没了就算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12444#       发表于 2024-4-29 12:19
+
+<blockquote>v22325 发表于 2024-4-29 10:25
+草十郎攻击模组一大半是青子和有珠的攻击也挺有意思的</blockquote>
+这套模组让我想起了JOJO8里面那个wonder of U，全靠代打的替身。
+
+不过草十郎至少有三次自己上：猫皮套送外卖，EX攻击，宝具自爆拳。
+
+*****
+
+####  Jamaisvu  
+##### 12445#       发表于 2024-4-29 12:20
+
+<img src="https://img.saraba1st.com/forum/202404/29/121924yefjfpfuqhy7ft90.jpg" referrerpolicy="no-referrer">
+
+<strong>1714364132638.jpg</strong> (244.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-4-29 12:19 上传
+
+根据地图提示今天晚上怪异本是北京时间20点开启，和解包出来那一大串时间相符合，之后的开启时间可以确定了。
+

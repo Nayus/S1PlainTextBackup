@@ -482,3 +482,11 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 买本体的时候顺手买了个面包狗的语音导航，没想到一局说不了几句话……
 
+
+*****
+
+####  MortarHeadd  
+##### 51#       发表于 2024-4-29 13:56
+
+有生之年的雷球呢？还出不出了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

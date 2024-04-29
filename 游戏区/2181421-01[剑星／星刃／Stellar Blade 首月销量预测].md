@@ -745,3 +745,21 @@ Install Base论坛的投票
 欧美市场肯定比浪人高，日本市场从COMG点数来看至少和浪人持平，50-100 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">现在感觉什么都能比浪人卖的多
 
+
+*****
+
+####  天王寺綯  
+##### 72#       发表于 2024-4-29 13:51
+
+不是...
+为啥偏偏和浪人崛起较上劲了...浪人不是五百万的大作么
+
+*****
+
+####  彩虹肥宅  
+##### 73#       发表于 2024-4-29 13:53
+
+浪人崛起怎么一堆人在黑，这游戏质量真的不差<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

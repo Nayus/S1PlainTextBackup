@@ -567,3 +567,29 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  TiiTiiLL  
+##### 46359#       发表于 2024-4-29 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+DA8CA5EDCE87E5952C2C7DDFDEA85573.jpg
+(79.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 16:13 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/161324tz8ilt5pdtl19vf8.jpg" referrerpolicy="no-referrer">
+
+122B66107E44E2267F0A18BE582F68AB.jpg
+(5.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 16:13 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/161331tpfnnnf7ffficoy3.jpg" referrerpolicy="no-referrer">
+

@@ -4838,3 +4838,24 @@ iphone XR
 
 这个怪异出现时间，是8号出口的灵感吧
 
+
+*****
+
+####  beer  
+##### 12447#       发表于 2024-4-29 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64759225&amp;ptid=2084912" target="_blank">清河子 发表于 2024-4-29 11:49</a>
+
+很缺骑饼干但是昨晚整晚都在忙根本没空刷本，输麻了五一还要陪家里人出门玩大概也没空打本，祈祷等 ...</blockquote>
+开了不一定能进本，昨天最后一次，刷完结束一分钟了，在掉落结果页卡得死来活去
+
+*****
+
+####  beer  
+##### 12448#       发表于 2024-4-29 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64759591&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-4-29 12:20</a>
+
+根据地图提示今天晚上怪异本是北京时间20点开启，和解包出来那一大串时间相符合，之后的开启时间可以确定 ...</blockquote>
+请问是怎么看得出来时间，昨天也是，弹窗关了以后怎么点都点不出来
+

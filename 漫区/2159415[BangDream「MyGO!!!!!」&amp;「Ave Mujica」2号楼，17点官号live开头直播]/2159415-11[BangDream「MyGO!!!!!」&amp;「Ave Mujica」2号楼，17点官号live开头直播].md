@@ -16377,3 +16377,20 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 我愿称之为邦邦三板斧
 
+
+*****
+
+####  間桐櫻  
+##### 16252#       发表于 2024-4-29 16:21
+
+爽世怒的表情原來是這樣
+
+*****
+
+####  6030sylar  
+##### 16253#       发表于 2024-4-29 16:24
+
+<img src="https://p.sda1.dev/17/bace1681bae2856317eda45072889df4/CMP_20240429162441466.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

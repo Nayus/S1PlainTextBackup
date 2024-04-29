@@ -5120,3 +5120,29 @@ iphone XR
 
 卧槽这宝具给我吓到了，但是好带感，真的是魔女……同样是一副痛苦样子开宝具的藤乃：现在是你赢了
 
+
+*****
+
+####  eilot  
+##### 12472#       发表于 2024-4-29 19:27
+
+今次+1雜兵不再是清完場後才出來，而是和其他雜兵一起上
+
+*****
+
+####  白金口袋  
+##### 12473#       发表于 2024-4-29 19:29
+
+直接去逆写之间居然BE了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 12474#       发表于 2024-4-29 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764113&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-29 19:29</a>
+
+直接去逆写之间居然BE了</blockquote>
+但是如果根据故事走的话这次破局是靠主角想出来的对应方法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

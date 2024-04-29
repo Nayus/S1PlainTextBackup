@@ -5809,3 +5809,28 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 
 现在用的32位的unsigned int，所以0-1到4294967295了
 
+
+*****
+
+####  FLZB  
+##### 3515#       发表于 2024-4-29 19:26
+
+机器人这边的联动仇恨已经烂完了，在指挥官碉堡据点外围摸了个小虾米，山后面百米开外的巡逻队立马开始朝我的位置开火<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YY骑士  
+##### 3516#       发表于 2024-4-29 19:27
+
+AX/AR-23 Guard Dog
+
+Decreased damage by 30%
+
+我靠。。笑死我了。。。这个不是激光护卫犬，这个是实弹犬。
+
+实弹犬估计都没明白为啥自己能被削弱，都没人用。
+
+绷不住了。。我靠<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+ax/las-5是激光犬
+

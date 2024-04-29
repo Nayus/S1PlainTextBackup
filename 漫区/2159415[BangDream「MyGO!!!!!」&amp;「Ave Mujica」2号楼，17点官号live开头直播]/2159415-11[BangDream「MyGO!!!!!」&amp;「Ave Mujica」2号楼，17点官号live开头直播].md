@@ -16360,3 +16360,20 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  NODY  
+##### 16251#       发表于 2024-4-29 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761903&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-29 16:00</a>
+
+猫希那个真的算搞笑吗，怎么感觉像是猫吃醋了
+
+爱素我个人觉得还好，算是在正常范围内
+
+虽说我不磕 ...</blockquote>
+其实就和13集差不多，爱素灯负责深入交心，猫负责吃抹茶，立希负责被迫害
+
+我愿称之为邦邦三板斧
+

@@ -588,3 +588,18 @@ Ado我是很喜欢的，跟当年喜欢梁静茹和欢欢一样，这种毁嗓�
 
 我喜欢，不过你区很多老年人肯定接受不了，还是别推了
 
+
+*****
+
+####  capelin  
+##### 65#       发表于 2024-4-29 16:07
+
+这个现场早就在ytb火了一轮被各种音乐人react爆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+保养如何以及未来演唱风格会不会变先不说，嗓子天赋确实是一流
+
+至于某些人欣赏不来的舞美，乐队吉他和贝斯的solo可以看这位大佬的点评：
+[https://www.youtube.com/watch?v= ... ikeaRockstarPodcast](https://www.youtube.com/watch?v=wVcZ6HkiEcA&amp;ab_channel=PartyLikeaRockstarPodcast)
+
+Rocko Reedy，给各种知名乐队合作过的资深舞台经理
+

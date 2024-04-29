@@ -4787,3 +4787,14 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 发售都两天了，也没见泥潭有人发帖表示伊芙或其他角色太涩了忍不住撸了两管，看来这游戏的软瑟琴似乎不能让 ...</blockquote>
 主要女主的脸太像娃娃了，色不动。同样是韩国人的卖烧鸡游戏，我更喜欢另一个出demo的洛奇。
 
+
+*****
+
+####  lucky95  
+##### 1188#       发表于 2024-4-29 08:21
+
+本来还想骂一骂和谐，看到辟谷宝玉，可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/815112ffa5079ba42e6e432fa2899b21/1000026660.jpg" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

@@ -713,3 +713,30 @@ staff还没出（）
 2nd的图属于那种第一眼很好看 但仔细看有点微妙
 不得不说面具太伤颜值了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 16346#       发表于 2024-4-29 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764863&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-29 20:39</a>
+
+還這個話術？我看半年前就這個話術了
+
+哎呀這個宣發期真難等呢，我看有一個團動畫沒播這時候都什麼 ...</blockquote>
+有个看上去能应付的理由，能哄住ylgo就行了，其他人又不关注Mujica，起码能用到明年。
+
+等秋季剧场版出了，还能说，狗又给你鸡引流了。
+
+*****
+
+####  御幸一也  
+##### 16347#       发表于 2024-4-29 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764922&amp;ptid=2159415" target="_blank">御景 发表于 2024-4-29 20:46</a>
+
+有个看上去能应付的理由，能哄住ylgo就行了，其他人又不关注Mujica，起码能用到明年。
+
+等秋季剧场版出了， ...</blockquote>
+那真是太噁心了點哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

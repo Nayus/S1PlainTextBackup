@@ -5162,3 +5162,16 @@ iphone XR
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">Alice这三破做的真棒啊，可惜日服号没钻了等明年国服必冲一波。话说魔夜剧场版上映的时候出强化本概率挺大的，青子应该还有救
 
+
+*****
+
+####  シャル  
+##### 12477#       发表于 2024-4-29 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764157&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-4-29 19:34</a>
+
+但是如果根据故事走的话这次破局是靠主角想出来的对应方法</blockquote>
+射程外攻击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+镜子怪没想到有射程距离
+

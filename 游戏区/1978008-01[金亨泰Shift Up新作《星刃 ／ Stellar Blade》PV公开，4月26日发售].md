@@ -4832,3 +4832,17 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1192#       发表于 2024-4-29 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64757090&amp;ptid=1978008" target="_blank">名字已被吃 发表于 2024-4-29 09:07</a>
+正式版评测出了吗，我记得demo说平衡模式帧数波动较大，性能模式有2k 60针的样子，我正式版就一直选性能 ...</blockquote>
+前天看的，出了
+
+平衡可能掉到58-59帧，远处细节有些不如画质模式，但整体效果比画质模式好
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4741,3 +4741,29 @@ iphone XR
 标题写着死两次嘛，应该不会再死了吧</blockquote>
 恐怕要死六次
 
+
+*****
+
+####  史蒂符  
+##### 12439#       发表于 2024-4-29 09:56
+
+有珠：输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/29/095600nr2suflo002e9g7g.jpg" referrerpolicy="no-referrer">
+
+<strong>C125AD61-3830-409E-8979-CF4ECB47B703.jpg</strong> (279.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 09:56 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/095609nauuyuduyjeepjsd.jpg" referrerpolicy="no-referrer">
+
+<strong>FEE1B89D-5B52-4C39-A32C-DE9BF7940C5F.jpg</strong> (238.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 09:56 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

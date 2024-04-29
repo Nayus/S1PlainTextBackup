@@ -12720,3 +12720,11 @@ RKH4-PQJW-JMRC-HM0J
 
 两wave出了9个铁球就nm无语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4240#       发表于 2024-4-29 09:51
+
+这次工确实配置还行，昨天打了个低保感觉不错
+

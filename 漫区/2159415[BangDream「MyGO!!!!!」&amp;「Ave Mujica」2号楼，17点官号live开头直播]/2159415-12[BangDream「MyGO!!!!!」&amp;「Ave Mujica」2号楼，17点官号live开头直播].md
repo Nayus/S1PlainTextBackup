@@ -407,3 +407,90 @@ mujica不仅原创歌曲没有mv
 翻唱也没有mv
 默默记在小本本上
 
+
+*****
+
+####  御幸一也  
+##### 16313#       发表于 2024-4-29 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764466&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-29 20:05</a>
+
+唯一的价值就是特典</blockquote>
+下一次單獨live你敢不抽？乖乖買去給皇族墊銷量好吧
+
+*****
+
+####  Aendst  
+##### 16314#       发表于 2024-4-29 20:09
+
+单独live绑到非单独cd上？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 16315#       发表于 2024-4-29 20:10
+
+幽默wsd，你们有没有这样的最速抽选啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16316#       发表于 2024-4-29 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764521&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-4-29 20:09</a>
+下一次單獨live你敢不抽？乖乖買去給皇族墊銷量好吧</blockquote>
+大概率还会有别的cd 抽下次live的吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 16317#       发表于 2024-4-29 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mujica连能拿来塞抽选的东西都没有了吗请问
+
+*****
+
+####  御幸一也  
+##### 16318#       发表于 2024-4-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764547&amp;ptid=2159415" target="_blank">skives 发表于 2024-4-29 20:11</a>
+
+大概率还会有别的cd 抽下次live的吧</blockquote>
+但最速抽就是綁這鬼東西上了捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16319#       发表于 2024-4-29 20:14
+
+怎么这翻唱砖普通版封面 初华还是倒立状态啊 wsd可真能恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16320#       发表于 2024-4-29 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764561&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-29 20:12</a>
+
+mujica连能拿来塞抽选的东西都没有了吗请问</blockquote>
+
+連翻唱都沒幾首，不像皇族固定有得唱，好像確實沒東西出
+
+唉 皇族 唉 洗腳<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 16321#       发表于 2024-4-29 20:15
+
+mygo这新碟封面谁画的 比mujica 1st封面还丑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16322#       发表于 2024-4-29 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">講道理初華還是好看的
+

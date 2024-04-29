@@ -340,3 +340,70 @@
 
 一眼看成鸡狗对邦，还以为有机会能产点真人海希糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16307#       发表于 2024-4-29 19:57
+
+更幽默的是，这个翻唱碟塞了鸡的单独live抽选。
+
+哈哈，你们有没有这种live抽选在别的团live上宣的碟啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么太子给婢女开恩准许出宫，wsd你不想推鸡可以不推的，真的有点破防了。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  eciriganu  
+##### 16308#       发表于 2024-4-29 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763431&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-4-29 18:20</a></blockquote>
+爽爆，我当时就在社长脚下，距离就三四米……回去翻回放可能能看到自己
+
+内场靠这边简直就是横滨中华街，体感得有一半说中文的。光污染也量大管饱
+
+*****
+
+####  御幸一也  
+##### 16309#       发表于 2024-4-29 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">洗腳的乖乖幫人家皇族墊銷量好吧，還敢呼吸？
+
+賣多了算皇族的，賣少了就是你洗腳的拖後腿
+
+
+*****
+
+####  天子控  
+##### 16310#       发表于 2024-4-29 20:01
+
+感觉没有立希戏份了啊，更底边了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16311#       发表于 2024-4-29 20:05
+
+唯一的价值就是特典
+
+*****
+
+####  skives  
+##### 16312#       发表于 2024-4-29 20:05
+
+mujica不仅原创歌曲没有mv
+翻唱也没有mv
+默默记在小本本上
+

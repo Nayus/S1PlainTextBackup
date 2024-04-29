@@ -5025,3 +5025,11 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 拿了二段跳总算能爬上废土门口两座孤峰了
 
+
+*****
+
+####  lazycat233  
+##### 1210#       发表于 2024-4-29 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">昨天在废土通了一天马桶，被bgm搞得脑子疼
+

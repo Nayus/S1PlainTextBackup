@@ -5447,3 +5447,28 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kalavinka  
+##### 3475#         楼主| 发表于 2024-4-29 17:29
+
+“发布测试不足的布丁可能导致更多问题”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddwhzh  
+##### 3476#       发表于 2024-4-29 17:31
+
+<blockquote>ddwhzh 发表于 2024-4-29 12:38
+我猜一下，24项加强指解放者，震荡解放者，穿甲解放者弹夹加一，离子喷伤害加100，爆炸弩弹速增加，这种完 ...</blockquote>
+感觉我是预言家
+
+
+*****
+
+####  暴走的包子  
+##### 3477#       发表于 2024-4-29 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德燃烧伤害又减了，真是拍脑袋平衡的么
+

@@ -4893,3 +4893,48 @@ iphone XR
 
 如果是公路上游荡的怪异可能是高速婆婆吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12452#       发表于 2024-4-29 17:27
+
+ 本帖最后由 Jamaisvu 于 2024-4-29 17:28 编辑 
+
+有珠竟然是双宝具，蔷薇猎犬该不会是蓝光炮吧，对应一技能的蓝绿魔放<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/29/172816mhqzikhid8dz5qw6.png" referrerpolicy="no-referrer">
+
+<strong>174417143828612.png</strong> (153.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/172817lz6026we56sf4cwj.png" referrerpolicy="no-referrer">
+
+<strong>314317143828672.png</strong> (166.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 17:28 上传
+
+（脸和衣服看着都不错(*๓´╰╯`๓)♡）
+
+这是不是除了马修外第一个不靠技能或宝具，纯粹根据灵基更换宝具的角色呀？
+
+
+*****
+
+####  qixinno2  
+##### 12453#       发表于 2024-4-29 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蓝卡术光炮感觉也不行啊
+
+*****
+
+####  棍机凹升龙  
+##### 12454#       发表于 2024-4-29 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具自插头吓我一跳，有点意思
+

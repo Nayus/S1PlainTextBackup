@@ -5121,3 +5121,14 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 我觉得箭头其实也很捉急，百来人的工作室，引擎也没得支援，又要修BUG又要更新进度。本来想着小众游戏可以慢慢摸，想不到一下子太火了想摸鱼都没法摸。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3443#       发表于 2024-4-29 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64756729&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-29 08:27</a>
+
+我觉得箭头其实也很捉急，百来人的工作室，引擎也没得支援，又要修BUG又要更新进度。本来想着小众游戏可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BUG和新内容产能不足还在那搞平衡，这大恩大德真哭死
+

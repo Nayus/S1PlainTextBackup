@@ -5328,3 +5328,13 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 焦土备弹砍的话那太大便了
 
+
+*****
+
+####  大肥鸽子  
+##### 3463#       发表于 2024-4-29 14:59
+
+话说假如箭头想把电弧喷整成版本之子，得怎么改啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

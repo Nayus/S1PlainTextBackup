@@ -5139,3 +5139,11 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Schwarzess  
+##### 1222#       发表于 2024-4-30 00:58
+
+炮台用枪a掉，红色机器人也要打掉。
+

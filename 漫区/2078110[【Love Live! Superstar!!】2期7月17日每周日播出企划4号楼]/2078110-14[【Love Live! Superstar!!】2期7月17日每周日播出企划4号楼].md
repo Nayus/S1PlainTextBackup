@@ -1811,3 +1811,24 @@ Liyuu 5thSG「No Complete」8/28(三)发售决定！
 
 8月底机票定好了
 
+
+*****
+
+####  csolfans  
+##### 20116#       发表于 2024-4-30 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765613&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2024-4-29 22:02</a>
+
+求别live house了，开个大点的吧</blockquote>
++1....那天排队一整天排到非常折磨
+
+*****
+
+####  csolfans  
+##### 20117#       发表于 2024-4-30 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765762&amp;ptid=2078110" target="_blank">lj205 发表于 2024-4-29 22:14</a>
+
+8月底机票定好了</blockquote>
+横K？
+

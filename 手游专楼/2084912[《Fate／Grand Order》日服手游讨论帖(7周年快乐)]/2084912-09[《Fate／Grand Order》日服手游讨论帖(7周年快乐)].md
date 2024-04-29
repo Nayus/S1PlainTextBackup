@@ -4775,3 +4775,11 @@ iphone XR
 
 挖矿抽了100多次没5星，更别说青子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 12441#       发表于 2024-4-29 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草十郎攻击模组一大半是青子和有珠的攻击也挺有意思的
+

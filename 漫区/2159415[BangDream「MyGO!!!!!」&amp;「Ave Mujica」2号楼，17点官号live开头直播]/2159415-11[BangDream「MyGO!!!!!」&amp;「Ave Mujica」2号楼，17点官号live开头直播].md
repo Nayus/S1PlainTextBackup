@@ -16438,3 +16438,13 @@ https://x.com/Qing_00129/status/1784601037418234362<img src="https://p.sda1.dev/
 —— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
 草，就在我正前方
 
+
+*****
+
+####  6030sylar  
+##### 16258#       发表于 2024-4-29 17:12
+
+<img src="https://p.sda1.dev/17/958154450d9f40865d152ceb1ae599a7/CMP_20240429171131232.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

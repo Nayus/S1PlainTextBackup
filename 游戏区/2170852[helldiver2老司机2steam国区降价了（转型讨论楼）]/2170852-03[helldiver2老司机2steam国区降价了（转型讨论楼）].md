@@ -6472,3 +6472,13 @@ QQ截图20240429200420.jpg
 爆裂铳没一刀砍废，但是清杂压制力砍太多了
 类星体是没什么必要带了，15秒够现在的无后坐力炮射3发了
 
+
+*****
+
+####  passerjustby  
+##### 3564#       发表于 2024-4-30 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766890&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-4-30 00:29</a>
+怎么就是洗真空内爆弹了？我打五百多场用的最多的就是飞鹰，失误被自己飞鹰炸到也很多次，但是炸到就秒 ...</blockquote>
+听劝就是哪个体系最舒服就砍哪个？你不会用下来感觉不出这次平衡削得最大的激光狗吧，就挑一个还算能用的爆裂铳说事？
+

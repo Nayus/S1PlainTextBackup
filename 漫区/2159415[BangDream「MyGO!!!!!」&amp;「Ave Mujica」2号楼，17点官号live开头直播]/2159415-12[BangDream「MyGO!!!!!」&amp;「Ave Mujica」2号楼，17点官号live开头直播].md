@@ -1266,3 +1266,20 @@ ako：这个世界上的神明居然有三位？
 
 —— 来自 HUAWEI FIN-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  御幸一也  
+##### 16401#       发表于 2024-4-30 02:28
+
+重新丟一次幼年初祥<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer"> 
+修圖修了半天發現不如不修，掃出來的網紋就讓它這樣吧。
+
+<img src="https://img.saraba1st.com/forum/202404/30/022541cern18rvpni28vi8.jpg" referrerpolicy="no-referrer">
+
+<strong>105.jpg</strong> (904.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 02:25 上传
+

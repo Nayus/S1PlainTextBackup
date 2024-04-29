@@ -683,3 +683,11 @@ zuby还报道说是insider，幽默了<img src="https://static.saraba1st.com/ima
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Soyo  
+##### 66#       发表于 2024-4-29 13:15
+
+说真的剑星画面也不太行，就主角打磨的精细一点
+

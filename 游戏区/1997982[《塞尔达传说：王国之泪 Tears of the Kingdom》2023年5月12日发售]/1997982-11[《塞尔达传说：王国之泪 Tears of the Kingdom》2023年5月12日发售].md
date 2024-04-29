@@ -16,3 +16,21 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  冷泉夜月  
+##### 15698#       发表于 2024-4-29 13:11
+
+<img src="https://img.saraba1st.com/forum/202404/29/130847u0w7ig6njpiwahiu.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1714367284053.jpg</strong> (210.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 13:08 上传
+
+这次新周边确实质量过硬又好看，刚好在京都旅游直接买了39件商品快8万日元，这汇率太爽了～～
+
+不过高岛屋别的都能退税就你任不行，可恶的古川！
+

@@ -566,3 +566,51 @@ wsd这会又想起来两个是姐妹团了，要打包一起卖是吧
 
 懂什么商法，懂洗脚吗，那确实没有人能比武士道更懂抓人给太子洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 16331#       发表于 2024-4-29 20:27
+
+什么鬼图？wsd是不是屎吃多了啊
+
+<img src="https://img.saraba1st.com/forum/202404/29/202643kz6dpdrsib68mb1e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B65356A8-22FB-45D3-A8DA-5092680214C6.jpeg</strong> (189.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:26 上传
+
+*****
+
+####  滑稽Captain  
+##### 16332#       发表于 2024-4-29 20:29
+
+这个灯的脸和朱元璋一样恐怖，太不可思议了
+
+*****
+
+####  御景  
+##### 16333#       发表于 2024-4-29 20:31
+
+这图，丑不说，除了猫能看出来其他人的影子？
+
+
+*****
+
+####  NODY  
+##### 16334#       发表于 2024-4-29 20:33
+
+早说了shuzuku肯定是收钱特别少才能让wsd坚持用ta画的鬼图，不然早就和老团一样直接用手游画师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16335#       发表于 2024-4-29 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764811&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-29 20:33</a>
+早说了shuzuku肯定是收钱特别少才能让wsd坚持用ta画的鬼图，不然早就和老团一样直接用手游画师了 ...</blockquote>
+我发现一个事儿
+shuzuku的推特粉丝还不到7000<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

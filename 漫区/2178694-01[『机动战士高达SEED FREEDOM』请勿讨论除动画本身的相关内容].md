@@ -8822,3 +8822,27 @@ https://weibo.com/7503521063/5002857336804256
 
 明天去日本的签证出结果，到时候去日本看。
 
+
+*****
+
+####  死难者23er  
+##### 722#       发表于 2024-4-29 20:29
+
+<img src="https://img.saraba1st.com/forum/202404/29/202829q2k77lwu07irflr0.png" referrerpolicy="no-referrer">
+
+<strong>1FAB7E84-E403-4B1C-A4DE-05F83309D301.png</strong> (563.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202404/29/202831n2ecv2berlf254vl.png" referrerpolicy="no-referrer">
+
+<strong>B8815787-EDE2-4C4F-AB38-31B1C88045F4.png</strong> (540.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:28 上传
+
+看来福田最初的想法就是剧场版结束之后让基拉休息了，说法提了好几次了
+

@@ -6032,3 +6032,32 @@ QQ截图20240429200420.jpg
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  风萧飒  
+##### 3520#       发表于 2024-4-29 20:30
+
+光能等机炮机甲呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  风萧飒  
+##### 3521#       发表于 2024-4-29 20:35
+
+新债券
+头盔还挺好看
+
+<img src="https://img.saraba1st.com/forum/202404/29/203550h9inykpip9dicrru.jpg" referrerpolicy="no-referrer">
+
+<strong>04cac34e-de1a-4644-9ea9-d2965805bdaf.jpg</strong> (131.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 20:35 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

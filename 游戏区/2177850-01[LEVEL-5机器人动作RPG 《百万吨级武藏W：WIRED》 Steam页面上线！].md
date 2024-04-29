@@ -509,3 +509,18 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  agsva  
+##### 54#       发表于 2024-4-30 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760738&amp;ptid=2177850" target="_blank">linc555 发表于 2024-4-29 14:12</a>
+
+这个价格值得买么 
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.5.2</blockquote>
+日系游戏通病，偏贵。
+
+不是对超级机器人非常有情怀的话建议等打折。
+

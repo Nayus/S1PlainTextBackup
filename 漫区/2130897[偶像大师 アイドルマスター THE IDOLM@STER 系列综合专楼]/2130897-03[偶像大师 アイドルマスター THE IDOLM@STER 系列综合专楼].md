@@ -6751,3 +6751,14 @@ qa特有的报菜名环节
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到微博去搜了下，发现连自称俺都要骂，以前爱马仕企划有吗
 
+
+*****
+
+####  1024676511  
+##### 3614#       发表于 2024-4-30 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767239&amp;ptid=2130897" target="_blank">l⑨th_Knight 发表于 2024-4-30 01:46</a>
+看到微博去搜了下，发现连自称俺都要骂，以前爱马仕企划有吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了眼都开骂这是“日轻雌竞味太重”了
+哎 都是我们男性起家的问题
+

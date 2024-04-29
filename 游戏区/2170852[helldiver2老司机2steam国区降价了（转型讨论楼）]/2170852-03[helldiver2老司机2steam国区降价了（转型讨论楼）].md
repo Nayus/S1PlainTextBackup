@@ -5338,3 +5338,46 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  passerjustby  
+##### 3464#       发表于 2024-4-29 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761197&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-29 14:59</a>
+话说假如箭头想把电弧喷整成版本之子，得怎么改啊
+
+—— 来自 OPPO PEAM00, Android 10上的 S1Next- ...</blockquote>
+给个电流可传导，电流数量再翻个倍大概能行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 3465#       发表于 2024-4-29 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761197&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-29 14:59</a>
+话说假如箭头想把电弧喷整成版本之子，得怎么改啊
+
+—— 来自 OPPO PEAM00, Android 10上的 S1Next- ...</blockquote>
+舰艇4级科技里面把电喷加进去先<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  风萧飒  
+##### 3466#       发表于 2024-4-29 15:11
+
+大概是这样的。看样子箭头觉得类星体没超模
+
+<img src="https://img.saraba1st.com/forum/202404/29/151051gozune5qx2ffu5j3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240429_151001.jpg</strong> (899.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 15:10 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

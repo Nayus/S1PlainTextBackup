@@ -6189,3 +6189,36 @@ QQ截图20240429200420.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安姆闲人  
+##### 3536#       发表于 2024-4-29 22:28
+
+撤退飞机半截入土了能救么，我们肘到时间结束还没肘出来
+
+<img src="https://img.saraba1st.com/forum/202404/29/222817hqd0w4dw44xvdh0t.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240429222756.png</strong> (118.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 22:28 上传
+
+*****
+
+####  Dashuaibi  
+##### 3537#       发表于 2024-4-29 22:29
+
+关闭灭虫塔任务开了，下一步应该就是暗流体炸星了，牢光终于要闪亮登场了吗
+
+*****
+
+####  Mr.Hopp  
+##### 3538#       发表于 2024-4-29 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765788&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-4-29 22:18</a>
+
+然而如果带蛋盾，离子喷子弹会在盾里自爆弄死你</blockquote>
+几乎不带蛋盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

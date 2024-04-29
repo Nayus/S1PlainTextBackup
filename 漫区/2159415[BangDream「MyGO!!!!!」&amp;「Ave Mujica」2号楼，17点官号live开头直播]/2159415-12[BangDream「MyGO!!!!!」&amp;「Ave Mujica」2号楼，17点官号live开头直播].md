@@ -1247,3 +1247,22 @@ ako：这个世界上的神明居然有三位？
 
 看手游成长那可有的等了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sweet.  
+##### 16399#       发表于 2024-4-30 02:09
+
+有阵子没关注了，这就是Bang Dream第九团阿贝募集卡吗，哈哈。
+
+—— 来自 HUAWEI FIN-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  sweet.  
+##### 16400#       发表于 2024-4-30 02:10
+
+2nd再见吧
+
+—— 来自 HUAWEI FIN-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

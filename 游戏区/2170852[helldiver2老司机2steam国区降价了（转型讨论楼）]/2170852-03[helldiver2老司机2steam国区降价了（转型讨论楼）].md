@@ -5772,3 +5772,20 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 
 孢子喷涌虫硬得离谱，刚试枪碰到一颗打了大概10发雌鬼+5发手炮+2颗摔炮才打掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DawnGuardian  
+##### 3512#       发表于 2024-4-29 18:30
+
+据说狗子的改动还真是写错了，该把临时工自愿发配自由营了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  风萧飒  
+##### 3513#       发表于 2024-4-29 18:30
+
+蘑菇加强下倒无所谓，之前跟飞龙巢比是真的没牌面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

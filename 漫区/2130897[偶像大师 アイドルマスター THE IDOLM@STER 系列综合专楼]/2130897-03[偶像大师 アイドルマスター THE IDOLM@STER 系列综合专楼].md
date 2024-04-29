@@ -6407,3 +6407,44 @@ IMG_3365.jpeg
 
 qa特有的报菜名环节
 
+
+*****
+
+####  Unlight  
+##### 3580#         楼主| 发表于 2024-4-29 18:27
+
+你们这些练习生怎么独占欲这么强啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要的就是这种典中典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rgauss  
+##### 3581#       发表于 2024-4-29 18:30
+
+感觉saki已经成搞笑役了 
+前一秒刚说只有两人的事务所<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 3582#         楼主| 发表于 2024-4-29 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763535&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-4-29 18:30</a>
+感觉saki已经成搞笑役了 
+前一秒刚说只有两人的事务所</blockquote>
+正统红C的精神传承<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  安广多惠子  
+##### 3583#       发表于 2024-4-29 18:33
+
+你们是我带过的最没团队精神的一届<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

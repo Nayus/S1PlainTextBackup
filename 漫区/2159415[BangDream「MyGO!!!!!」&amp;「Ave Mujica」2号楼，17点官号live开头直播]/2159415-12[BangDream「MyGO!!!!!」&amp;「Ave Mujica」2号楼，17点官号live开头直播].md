@@ -494,3 +494,75 @@ mygo这新碟封面谁画的 比mujica 1st封面还丑<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">講道理初華還是好看的
 
+
+*****
+
+####  鳥栖朝  
+##### 16323#       发表于 2024-4-29 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764373&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-04-29 19:57:27</a>
+更幽默的是，这个翻唱碟塞了鸡的单独live抽选。
+
+哈哈，你们有没有这种live抽选在别的团live上宣的碟啊。 ...</blockquote>我服了，还带这样的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  笋干爆炸碱  
+##### 16324#       发表于 2024-4-29 20:17
+
+活了这么多年第一次见这样抽单独live的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好有创意的武士道，给太子抬轿子装都不装是吧
+
+*****
+
+####  twi  
+##### 16325#       发表于 2024-4-29 20:18
+
+wsd这会又想起来两个是姐妹团了，要打包一起卖是吧
+
+*****
+
+####  御幸一也  
+##### 16326#       发表于 2024-4-29 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">這就是洗腳的命運，好事沒你份，但要爆米的時候會狠狠地抓你過來墊皇族，真是姐姐又妹妹啊
+
+*****
+
+####  笋干爆炸碱  
+##### 16327#       发表于 2024-4-29 20:19
+
+这样的好姐妹以后不会再有了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 16328#       发表于 2024-4-29 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64762196&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-29 16:28</a>
+楼里的鸡友不需要担心没有设定集。
+
+你们应该担心设定集水得不行但你们还是不得不爆米才对。 ...</blockquote>
+什么言出法随<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下真来了，非单独碟但是捆鸡单独live抽选让去现场的鸡粉爆米<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 16329#       发表于 2024-4-29 20:21
+
+按时间来说7月2nd正好结束，抽选大概率是3rd最速；然后五个月的五首歌发完应该是8月，9月大概会出成mini2专，附上2nd的bd，继续塞3rd二次
+
+抽选商法懂得都懂，单一个talk event抽选吸引力不够，就多塞一个，假如没有这个翻唱专还是很符合wsd开live-卖新碟（附下一场live抽选+上一场live bd）-开live的周期的
+
+
+*****
+
+####  Aendst  
+##### 16330#       发表于 2024-4-29 20:22
+
+懂什么商法，懂洗脚吗，那确实没有人能比武士道更懂抓人给太子洗脚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

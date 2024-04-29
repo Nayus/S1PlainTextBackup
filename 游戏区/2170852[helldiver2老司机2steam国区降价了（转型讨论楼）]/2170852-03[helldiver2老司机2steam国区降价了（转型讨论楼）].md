@@ -6021,3 +6021,14 @@ QQ截图20240429200420.jpg
 
 <img src="https://img.saraba1st.com/forum/202404/29/200444erxiiuoz2o6de822.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3519#       发表于 2024-4-29 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64764176&amp;ptid=2170852" target="_blank">丹德里恩 发表于 2024-04-29 19:36:17</a>
+不陪箭头组玩了，等光能回&amp;#x6 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在敲甲都这么费劲，牢能的盾海不更幽默了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

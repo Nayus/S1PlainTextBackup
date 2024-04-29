@@ -5527,3 +5527,68 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 看了一下贴吧，无限手雷修完更无限了，幽默箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  风萧飒  
+##### 3485#       发表于 2024-4-29 17:45
+
+实弹狗被削了激光狗反而没事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  暴走的包子  
+##### 3486#       发表于 2024-4-29 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763088&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-4-29 17:45</a>
+
+实弹狗被削了激光狗反而没事
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个是最难绷的，路人看到实弹狗的次数一只手都能数得完居然还能砍
+
+
+*****
+
+####  FLZB  
+##### 3487#       发表于 2024-4-29 17:50
+
+在无人关心的角落，左轮打空会用装弹器上弹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 3488#       发表于 2024-4-29 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64763143&amp;ptid=2170852" target="_blank"> 暴走的包子 发表于 2024-4-29 17:50</a> 引用:风萧飒 发表于 2024-4-29 17:45 实弹狗被削了激光狗反而没事  —— 来自 S1Fun 这个是最难绷的，路人看到实弹狗的次数一只手都能数得完居然还能砍 </blockquote>
+严重怀疑是箭头自己记错型号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Launce  
+##### 3489#       发表于 2024-4-29 17:52
+
+Patrol spawning has been increased when there are fewer than 4 players. The fewer the players the bigger the change. For 4 player missions there will be no change compared to before.The biggest noticeable change will be for solo players at higher difficulties.
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，给他幽默完了
+
+*****
+
+####  Awanano  
+##### 3490#       发表于 2024-4-29 17:52
+
+这个水平，这补丁只能说是调整，而不能说是平衡。燃烧伤害太幽默了
+爆炸弩这个调整是出于什么目的，单看这个补丁仿佛是很强的热门武器
+看他这意思高级难度也有升旗任务了？
+说是黑洞爆炸修了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  smdzh2  
+##### 3491#       发表于 2024-4-29 17:54
+
+玩了这么久，只用过一次屎蛋狗，还是捡路人掉落的，****哒一下子就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

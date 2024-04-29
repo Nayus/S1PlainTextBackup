@@ -6285,3 +6285,11 @@ QQ截图20240429200420.jpg
 “箭头的诚意你们看到了吗”可以入典了</blockquote>
 真空内爆和空爆这不是给你们修好了吗？这个补丁你们一定很开心吧？
 
+
+*****
+
+####  北条早苗  
+##### 3546#       发表于 2024-4-29 23:13
+
+现在的电喷除了刮了点，在虫子那边还挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

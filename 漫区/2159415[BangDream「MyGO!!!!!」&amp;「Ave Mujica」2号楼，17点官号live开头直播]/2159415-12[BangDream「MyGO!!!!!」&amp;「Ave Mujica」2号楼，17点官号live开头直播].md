@@ -1181,3 +1181,24 @@ ako：这个世界上的神明居然有三位？
  ...</blockquote>
 看到z8有用排除法的，就是鸡
 
+
+*****
+
+####  米拉苏尔  
+##### 16393#       发表于 2024-4-29 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">心疼鸡粉
+
+*****
+
+####  NODY  
+##### 16394#       发表于 2024-4-29 23:10
+
+ 本帖最后由 NODY 于 2024-4-29 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766008&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-29 22:42</a>
+
+说起来立希，我不太理解立希是被猫拉归队以及爱音分一半饲主位的剧情设计是用来干嘛的，前者还好说，后者那 ...</blockquote>
+这就是我说不要指望动画立希的原因，各个版本都看过会发现把立希职能分出去的剧情基本上是动画相关（TV、小动画、新出的广播），反而手游和迷子集会对饲主位和负责乐队职能的强调比较明显<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我之前分析过独角兽写mygo参考了一部分given的人设和关系性，里面电波天然主唱的cp是爱音和立希的结合体，而独角兽把跑主线和cp发糖相互救赎的部分拆出了爱音，性格和作曲组乐队的部分拆出了立希作为单箭头败犬，这就是立希的戏份只有玩乐队和迫害的原因，对于独角兽来说立希的戏份本来就是多出来的，所以用立希当引发矛盾工具人的时候很顺手，却很难写出立希的个人剧情
+

@@ -612,3 +612,11 @@ DA8CA5EDCE87E5952C2C7DDFDEA85573.jpg
 
 小号沉船，大号2单一宝，麻了，开始攒石头等狂呆，不知道到时候有多少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sleipnirω  
+##### 46362#       发表于 2024-4-29 23:06
+
+千石补宝失败之后疯狂挖矿挖了90，还是没出，累了
+

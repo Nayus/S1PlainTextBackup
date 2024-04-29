@@ -5102,3 +5102,14 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在discord里反应你又懂了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上这丑态大伙看到了吗。
 
+
+*****
+
+####  狂风DKC  
+##### 3441#       发表于 2024-4-29 07:53
+
+楼上某人真是哄堂大孝了家人们<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+“箭头的诚意你们看到了吗”可以入典了
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -5186,3 +5186,27 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次会重新buff下磁轨吗？坐等看戏
 
+
+*****
+
+####  北条早苗  
+##### 3449#       发表于 2024-4-29 11:27
+
+一刀砍废磁轨炮之后又做出了类星体
+
+看现在的主宰再看削弱重炮手的理由
+
+相信他们在认真做平衡还不如指望他们别摸了把bug好好修一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 3450#       发表于 2024-4-29 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64758833&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-4-29 11:20</a>
+
+其实我还挺能接受小而频繁的平衡性补丁的
+
+因为废枪废战备太多了，所以平衡性补丁上来之后经常会有武器从不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题纯GAAS糟粕盯着强势砍，真·弱势武器一个没加强，中上的给加强了
+

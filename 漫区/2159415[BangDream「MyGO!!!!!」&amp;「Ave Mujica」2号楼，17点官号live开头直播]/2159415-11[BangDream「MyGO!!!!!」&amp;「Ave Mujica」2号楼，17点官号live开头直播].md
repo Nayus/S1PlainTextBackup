@@ -16180,3 +16180,21 @@ Mujica则是第13话才有月光品记（）</blockquote>
 
 受众是日本人和国内的箱推吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 16233#       发表于 2024-4-29 12:28
+
+看到有人聊🐶一周年有无路矢，“二周年真得再来一首”
+
+才发现原来还有周年曲这种玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 16234#       发表于 2024-4-29 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">皇族有是因為他是皇族，你別想了
+

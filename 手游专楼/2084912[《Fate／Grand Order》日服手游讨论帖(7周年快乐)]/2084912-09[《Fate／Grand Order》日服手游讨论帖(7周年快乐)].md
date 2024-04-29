@@ -4731,3 +4731,13 @@ iphone XR
 
 天上最大的星星就是boss吧
 
+
+*****
+
+####  beer  
+##### 12438#       发表于 2024-4-29 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64753488&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-28 20:08</a>
+标题写着死两次嘛，应该不会再死了吧</blockquote>
+恐怕要死六次
+

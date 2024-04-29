@@ -4798,3 +4798,25 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  icebarrier  
+##### 1189#       发表于 2024-4-29 08:57
+
+1.打到沙漠了，看不出进度，现在关卡占总共大约多少
+
+2.那个有几率不消耗贝塔的槽，触发了挺强的，大概几率多少
+
+*****
+
+####  icebarrier  
+##### 1190#       发表于 2024-4-29 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64756277&amp;ptid=1978008" target="_blank">RinC 发表于 2024-4-29 04:05</a>
+
+解了爆发那套资源之后两套资源加道具交换着打才总算舒服起来了
+
+这弹反真的能不用就不用，感觉闪避的判定都 ...</blockquote>
+弹反打击感可以，但感觉也就弹弹红光几连，一般还是闪好，还可以涨红槽
+

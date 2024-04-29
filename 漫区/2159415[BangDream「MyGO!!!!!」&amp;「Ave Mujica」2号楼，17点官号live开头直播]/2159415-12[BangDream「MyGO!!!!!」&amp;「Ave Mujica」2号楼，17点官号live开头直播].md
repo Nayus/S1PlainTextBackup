@@ -1202,3 +1202,29 @@ ako：这个世界上的神明居然有三位？
 
 我之前分析过独角兽写mygo参考了一部分given的人设和关系性，里面电波天然主唱的cp是爱音和立希的结合体，而独角兽把跑主线和cp发糖相互救赎的部分拆出了爱音，性格和作曲组乐队的部分拆出了立希作为单箭头败犬，这就是立希的戏份只有玩乐队和迫害的原因，对于独角兽来说立希的戏份本来就是多出来的，所以用立希当引发矛盾工具人的时候很顺手，却很难写出立希的个人剧情
 
+
+*****
+
+####  6030sylar  
+##### 16395#       发表于 2024-4-29 23:26
+
+<img src="https://img.saraba1st.com/forum/202404/29/232635mk3s4sht40zwshd4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 23:26 上传
+
+飞天小羊
+
+*****
+
+####  cindy355  
+##### 16396#       发表于 2024-4-29 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64766252&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-29 23:10</a>
+
+这就是我说不要指望动画立希的原因，各个版本都看过会发现把立希职能分出去的剧情基本上是动画相关（TV、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">住口！不要再说了！
+

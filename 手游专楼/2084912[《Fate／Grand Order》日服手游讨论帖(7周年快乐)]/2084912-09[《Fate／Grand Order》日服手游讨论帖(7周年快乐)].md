@@ -5039,3 +5039,26 @@ iphone XR
 你拉个2宝总能混到优势区间的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 12463#       发表于 2024-4-29 18:17
+
+等周年出了新拐，青子一定直升S+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12464#       发表于 2024-4-29 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青子哪怕就是纯用的大总统的技能组都不会弱智成这样 
+
+
+*****
+
+####  シャル  
+##### 12465#       发表于 2024-4-29 18:21
+
+有珠的第二段宝具不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

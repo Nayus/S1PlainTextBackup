@@ -5738,3 +5738,37 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  MkChang  
+##### 3508#       发表于 2024-4-29 18:19
+
+平衡补丁有哪一次是好活吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3509#       发表于 2024-4-29 18:20
+
+笑死<img src="https://p.sda1.dev/17/9e44a50b8ce1959cff0ae7298f7e996f/CMP_20240429182041252.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  风萧飒  
+##### 3510#       发表于 2024-4-29 18:21
+
+审判现在这后坐力手感倒是不错，很稳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  FLZB  
+##### 3511#       发表于 2024-4-29 18:23
+
+孢子喷涌虫硬得离谱，刚试枪碰到一颗打了大概10发雌鬼+5发手炮+2颗摔炮才打掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

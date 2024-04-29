@@ -5132,3 +5132,26 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 我觉得箭头其实也很捉急，百来人的工作室，引擎也没得支援，又要修BUG又要更新进度。本来想着小众游戏可以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BUG和新内容产能不足还在那搞平衡，这大恩大德真哭死
 
+
+*****
+
+####  rainknine  
+##### 3444#       发表于 2024-4-29 11:04
+
+感觉箭头好像真准备在周二补丁来波大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+＜—我们在这
+大幅度平衡性补丁发布
+大量新bug被发现 or 强势版本武器纷纷被nerf
+玩家群体怨声载道
+但是箭头在修五一假期！
+在线人数进一步下滑
+
+
+*****
+
+####  丹德里恩  
+##### 3445#       发表于 2024-4-29 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太他妈弱智了，3个钟头没找到绿虫子
+

@@ -4898,3 +4898,22 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 https://gamewith.jp/stellarblade/444545</blockquote>
 感谢 
 
+
+*****
+
+####  光焰天下第一  
+##### 1198#       发表于 2024-4-29 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64732162&amp;ptid=1978008" target="_blank">shinoverse 发表于 2024-4-26 23:45</a>
+
+请问一下，裙子类的换装底下有安全裤么？</blockquote>
+没有安全裤 直接是内裤 色的不行
+
+
+*****
+
+####  霖岚_  
+##### 1199#       发表于 2024-4-29 11:12
+
+说起来从demo起就在想为什么不把女主男主直接翻译成夏娃亚当，而是要音译成伊芙跟艾达姆，后面有解释吗（我进度才刚进城
+

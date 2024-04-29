@@ -4820,3 +4820,15 @@ game radar某投稿：博德之门3大鸡鸡直球好赞顶；星剑瑟瑟有碍
 这弹反真的能不用就不用，感觉闪避的判定都 ...</blockquote>
 弹反打击感可以，但感觉也就弹弹红光几连，一般还是闪好，还可以涨红槽
 
+
+*****
+
+####  名字已被吃  
+##### 1191#       发表于 2024-4-29 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64755829&amp;ptid=1978008" target="_blank">ShiKi847 发表于 2024-4-29 00:47</a>
+数毛社说平衡模式比4K模式还要做的好</blockquote>
+正式版评测出了吗，我记得demo说平衡模式帧数波动较大，性能模式有2k 60针的样子，我正式版就一直选性能模式
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

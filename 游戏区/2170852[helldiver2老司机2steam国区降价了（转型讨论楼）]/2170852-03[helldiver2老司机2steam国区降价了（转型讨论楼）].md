@@ -5789,3 +5789,23 @@ Patrol spawning has been increased when there are fewer than 4 players. The fewe
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  断片集  
+##### 3514#       发表于 2024-4-29 18:45
+
+箭头的弱智程序员是不是以为数据类型从int改成unsigned int就能避免无限手雷了啊
+
+<img src="https://img.saraba1st.com/forum/202404/29/184445wiy4jfz0ngpp7yib.png" referrerpolicy="no-referrer">
+
+<strong>f817711c935724a1d9fe794e08223693.png</strong> (19.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-29 18:44 上传
+
+原来用的int，所以0-1到-1了
+
+现在用的32位的unsigned int，所以0-1到4294967295了
+

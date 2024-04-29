@@ -1328,3 +1328,11 @@ woc，这个脸红对视
 火不火很难说的，但还是得集数多才能好好讲故事
 像mygo就做得挺紧凑虽然监督说该做的做完了还有余的，但结果在粉丝那儿嘛……，换到mujica这边既要讲好鸡中间还要讲mygo……唉，又回到去年开播那会儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16406#       发表于 2024-4-30 06:17
+
+https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17/f3f21c7ac69c368e7afbd37bfffa028a/CMP_20240430061735423.jpg" referrerpolicy="no-referrer">
+

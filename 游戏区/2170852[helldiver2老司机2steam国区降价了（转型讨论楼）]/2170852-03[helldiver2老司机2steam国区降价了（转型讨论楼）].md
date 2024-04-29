@@ -5249,3 +5249,16 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 —— 来自 S1Fun</blockquote>
 我猜一下，24项加强指解放者，震荡解放者，穿甲解放者弹夹加一，离子喷伤害加100，爆炸弩弹速增加，这种完全无痛无痒改动，2项削弱类星体散热时间加倍，爆裂铳弹夹数减半，这种直接砍废。
 
+
+*****
+
+####  jy000129  
+##### 3455#       发表于 2024-4-29 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64759802&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-29 12:38</a>
+
+我猜一下，24项加强指解放者，震荡解放者，穿甲解放者弹夹加一，离子喷伤害加100，爆炸弩弹速增加，这种完 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别吧，最近打虫子就这两再背个激光狗特舒服
+
+爆裂铳弹夹减半其实还能接受，类星体散热加倍那玩不了了
+

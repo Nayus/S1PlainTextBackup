@@ -6693,3 +6693,11 @@ qa特有的报菜名环节
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不显得你作为P的能力强吗
 
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3607#       发表于 2024-4-29 21:36
+
+你有背负藤田琴音人生的觉悟吗？
+

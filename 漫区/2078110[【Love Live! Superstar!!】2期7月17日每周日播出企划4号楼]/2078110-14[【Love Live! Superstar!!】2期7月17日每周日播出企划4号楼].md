@@ -1741,3 +1741,11 @@ blt拍的真不错啊（顺便吐槽星按人气倾斜是最近才流行的是�
 不知道花田对星三能不能有对gbc一半认真</blockquote>
 ……看企划对他限制大不大？(
 
+
+*****
+
+####  伊卡石  
+##### 20108#       发表于 2024-4-29 11:36
+
+反正我到现在没搞清楚星二做烂的这口锅该怎么分<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

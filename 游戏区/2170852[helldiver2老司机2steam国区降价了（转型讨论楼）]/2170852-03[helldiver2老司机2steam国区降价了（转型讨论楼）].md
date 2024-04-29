@@ -5210,3 +5210,11 @@ bug黑屏，玩家“卧槽这就是被入侵的感觉了吗”
 因为废枪废战备太多了，所以平衡性补丁上来之后经常会有武器从不 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题纯GAAS糟粕盯着强势砍，真·弱势武器一个没加强，中上的给加强了
 
+
+*****
+
+####  唯识连刃  
+##### 3451#       发表于 2024-4-29 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中穿武器现在纸面都被主宰按着打，大后座和稍慢拉枪是不是真的需要这么多属性去填我暂且蒙在鼓里，穿甲勤勉和审判也配和主宰一样6个弹夹吗
+

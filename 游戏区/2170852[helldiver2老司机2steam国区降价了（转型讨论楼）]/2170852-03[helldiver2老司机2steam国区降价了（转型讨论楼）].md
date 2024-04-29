@@ -6222,3 +6222,23 @@ QQ截图20240429200420.jpg
 然而如果带蛋盾，离子喷子弹会在盾里自爆弄死你</blockquote>
 几乎不带蛋盾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 3539#       发表于 2024-4-29 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765692&amp;ptid=2170852" target="_blank">YY骑士 发表于 2024-4-29 22:08</a>
+
+游戏帧数有bug，我4090，4k下稳定165，今天跟新后，发射出船舱后直接下降到80，明显觉得卡顿，落地后马上正 ...</blockquote>
+在重建着色器缓存
+
+*****
+
+####  yahuchi  
+##### 3540#       发表于 2024-4-29 22:46
+
+更新之后先是黑屏进不去游戏，删游戏重装之后能进了，但是丢帧丢到没法玩。。。
+
+[https://www.bilibili.com/video/BV13r421u7er/](https://www.bilibili.com/video/BV13r421u7er/)
+

@@ -8787,3 +8787,22 @@ https://weibo.com/7503521063/5002857336804256
 
 我觉得剧情可以倒过来，打烂千禧年回头开大天使更有情怀，希望大天使可以复活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 718#       发表于 2024-4-29 10:03
+
+今天没有更新下个礼拜的特典，看来结束了最终46 47左右吧
+
+
+*****
+
+####  lacusforever  
+##### 719#       发表于 2024-4-29 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64718657&amp;ptid=2178694" target="_blank">notqiao 发表于 2024-4-25 21:05</a>
+
+这得是什么冤大头才能花500块钱登高看贴纸？</blockquote>
+说得让你白花500块一样。
+

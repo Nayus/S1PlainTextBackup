@@ -1785,3 +1785,21 @@ Liyuu 5thSG「No Complete」8/28(三)发售决定！
 
 看了下PV，人设不是很好看，片子不知道怎么样。
 
+
+*****
+
+####  starring  
+##### 20113#       发表于 2024-4-29 22:01
+
+上海
+<img src="https://p.sda1.dev/17/43f56e678909e347a9305b0da3ab8740/CMP_20240429220049793.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 20114#       发表于 2024-4-29 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">求别live house了，开个大点的吧
+

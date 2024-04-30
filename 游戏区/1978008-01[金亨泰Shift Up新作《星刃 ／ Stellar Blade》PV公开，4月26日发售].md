@@ -5359,3 +5359,14 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 第一个大图到后面也不会有地图吗？总感觉营地可能没开完
 
+
+*****
+
+####  ku2154513  
+##### 1244#       发表于 2024-4-30 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772276&amp;ptid=1978008" target="_blank">过气页游 发表于 2024-04-30 15:03:20</a>
+第一个大图到后面也不会有地图吗？总感觉营地可能没开完</blockquote>没有，只有废土和大沙漠有地图
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1778,3 +1778,11 @@ mygo到底是日文还是英文意思
 吉他键盘还可以买来收藏，鼓占地也会很麻烦</blockquote>
 rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点刻画的两首的曲子，一首是祥子的遗物，一首是以猫猫为主的全队即兴演出
 
+
+*****
+
+####  Arrogate  
+##### 16451#       发表于 2024-4-30 15:28
+
+对立希恶意玩梗的也非常多，CP图都有人ky立希吃桃，对角色太不友好了点<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

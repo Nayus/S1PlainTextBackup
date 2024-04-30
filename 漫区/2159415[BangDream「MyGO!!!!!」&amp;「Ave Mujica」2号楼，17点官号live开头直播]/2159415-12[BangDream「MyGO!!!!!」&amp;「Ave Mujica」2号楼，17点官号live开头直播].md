@@ -2028,3 +2028,24 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 怎么发不出来大图
 
+
+*****
+
+####  冬日之日  
+##### 16472#       发表于 2024-4-30 17:18
+
+ 本帖最后由 冬日之日 于 2024-4-30 17:19 编辑 
+
+我是觉得立希性格挺讨喜的，直率又意外地很细腻。
+之所以很多人不喜欢还是太多人喜欢包饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就像隔壁来来回回车炸团分锅一样
+
+—— 来自 samsung SM-G9910, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  akirakira  
+##### 16473#       发表于 2024-4-30 17:21
+
+不是因为背锅?毕竟狗拆队都是立希的错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

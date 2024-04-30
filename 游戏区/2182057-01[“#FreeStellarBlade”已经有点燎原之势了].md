@@ -816,3 +816,36 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 但是劳拉没有长这样过啊……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ohi.02  
+##### 74#       发表于 2024-4-30 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775834&amp;ptid=2182057" target="_blank">naclken. 发表于 2024-4-30 20:40</a>
+但是劳拉没有长这样过啊……</blockquote>
+我们COD的劳拉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  杰西坦尼斯  
+##### 75#       发表于 2024-4-30 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774821&amp;ptid=2182057" target="_blank">jakie_guo 发表于 2024-4-30 18:51</a>
+
+【《剑星》成为今年MC用户最高评分游戏，在索尼作品中名列前茅】由金亨泰及其工作室Shift Up所带来的ARPG ...</blockquote>
+虽然我对这游戏一点意见没有，但刷数据这事韩国人应该是这世界上最专业的之一吧
+
+*****
+
+####  银白色暴风雪  
+##### 76#       发表于 2024-4-30 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774907&amp;ptid=2182057" target="_blank">icylight 发表于 2024-4-30 18:59</a>
+
+日本亚马逊的销量排行，星刃第一名，这个能反应销量吗？不懂就问</blockquote>
+排名第二的是NS上的潜水员模拟器，你觉得这玩意有含金量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

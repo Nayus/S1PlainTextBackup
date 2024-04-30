@@ -2178,3 +2178,45 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 警惕脚臭吧入侵
 
+
+*****
+
+####  星天观测  
+##### 16485#       发表于 2024-4-30 20:57
+
+2nd是只能抽第一场吗
+
+*****
+
+####  utotqe  
+##### 16486#       发表于 2024-4-30 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774948&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-30 19:05</a>
+
+说起来写立希二创的话有什么好点子吗</blockquote>
+其实立希和凛凛子的关系挺有意思的，靠谱大人培育臭屁高中生社会性什么的（让ksm和saaya来也可以，下课一起去打工什么的）
+
+不看同人，但这个应该挺少见的
+
+*****
+
+####  WhiteGlint  
+##### 16487#       发表于 2024-4-30 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775415&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-30 19:54</a>
+这俩又是怎么写到一起的（）
+有些CP我也没搞懂怎么磕起来的，爱祥就算了，爱睦这俩人都没见过面的都能磕 ...</blockquote>
+一个不擅长说话 一个不擅长听别人说话
+要互相学习弥补包容的感觉吧 有一定成长性（）
+还有很经典的所谓“劣等感”
+
+*****
+
+####  御幸一也  
+##### 16488#       发表于 2024-4-30 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775987&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-4-30 20:57</a>
+
+2nd是只能抽第一场吗</blockquote>
+一張票只能抽1場，看你想抽神奈川還是愛知，可選
+

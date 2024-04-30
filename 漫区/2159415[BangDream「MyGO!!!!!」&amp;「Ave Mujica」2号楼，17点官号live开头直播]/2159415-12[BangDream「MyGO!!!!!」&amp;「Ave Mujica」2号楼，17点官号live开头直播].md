@@ -2269,3 +2269,19 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 别处看到有人讨论第七话的分镜，原来祥子本来不打算进去听歌，是睦提出来先进去等的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 16493#       发表于 2024-4-30 22:33
+
+分镜稿里有但动画里没有的台词感觉大多数是为单集时长让步才删掉的，比如“不属于crychic的春日影”动画没说，反而是手游剧情里把这句加上了
+
+
+*****
+
+####  米拉苏尔  
+##### 16494#       发表于 2024-4-30 22:40
+
+才发现把送BD抽选券的事给忘了，那个券什么时候截止<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

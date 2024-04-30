@@ -5249,3 +5249,15 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 心情好砍几刀 不好刷点技能 对面就没了
 
+
+*****
+
+####  名字已被吃  
+##### 1233#       发表于 2024-4-30 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767070&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-4-30 00:58</a>
+炮台用枪a掉，红色机器人也要打掉。</blockquote>
+靠，我没想过可以用枪去打掉炮台，晚上试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

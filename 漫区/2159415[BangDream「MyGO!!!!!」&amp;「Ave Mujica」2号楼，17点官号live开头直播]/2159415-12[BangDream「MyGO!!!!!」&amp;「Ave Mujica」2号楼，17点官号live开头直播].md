@@ -1488,3 +1488,38 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 
 还有是突然明白为啥少歌这么多真昼厨讨厌迫害梗了，看多了自家推被当垫子和乐子的确让人火大<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  屑猫猫  
+##### 16424#       发表于 2024-4-30 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64765630&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-29 22:04</a>
+ako：这个世界上的神明居然有三位？
+
+不行，ako对着小白喊kami就够生草了，对着比自己还小一届的初／祥喊 ...</blockquote>
+邦中二三清嘛，也未尝不合理，没人规定kami只有一位（
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  好想看Mujica啊  
+##### 16425#       发表于 2024-4-30 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769066&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-30 10:30</a>
+
+还有是突然明白为啥少歌这么多真昼厨讨厌迫害梗了，看多了自家推被当垫子和乐子的确让人火大 ...</blockquote>
+不能一概而论，真昼至少还能卖丑，拿逼格换人气，类似soyo，立希就真纯纯迫害了。
+
+而且樋口处理也没独角兽好，迫害真昼太惨了，让很多人讨厌光恋转推真昼，独角兽就比较强，就迫害了怎么样，也没伤害到别人的人气。
+
+*****
+
+####  屑猫猫  
+##### 16426#       发表于 2024-4-30 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

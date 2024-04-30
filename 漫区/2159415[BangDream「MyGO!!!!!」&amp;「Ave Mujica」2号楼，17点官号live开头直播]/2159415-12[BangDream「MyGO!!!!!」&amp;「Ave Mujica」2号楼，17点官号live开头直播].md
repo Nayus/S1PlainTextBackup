@@ -2099,3 +2099,52 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773326&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-30 16:34</a></blockquote>
 我們海鈴夢以太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16479#       发表于 2024-4-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775038&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-30 19:14</a>
+
+音乐性的追求（？）
+
+单独一个劣等感可能挺多人写的很多导致有点cliche（）🤔
+
+如果要有深度一点的话可以试 ...</blockquote>
+音乐性的追求......我乐理不通<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WhiteGlint  
+##### 16480#       发表于 2024-4-30 19:49
+
+立希我倒是写过立希x睦的
+只能说跟音乐没啥关系x
+
+
+*****
+
+####  SakuraのOrigami  
+##### 16481#       发表于 2024-4-30 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775372&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-4-30 19:49</a>
+立希我倒是写过立希x睦的
+只能说跟音乐没啥关系x</blockquote>
+这俩又是怎么写到一起的（）
+有些CP我也没搞懂怎么磕起来的，爱祥就算了，爱睦这俩人都没见过面的都能磕（）
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  SakuraのOrigami  
+##### 16482#       发表于 2024-4-30 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775362&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-30 19:48</a>
+音乐性的追求......我乐理不通</blockquote>
+也不一定要懂乐理，可以往"音乐追求/乐队目标"的方向去写
+毕竟MyGO现在都还没一个特别明确的目标，或者说对音乐有什么追求（）
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -702,3 +702,24 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 明明金亨泰自己都說加布料是不得已而為之了，為啥還能有人支持加布料，難以理解。
 
+
+*****
+
+####  nianiania  
+##### 63#       发表于 2024-4-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775317&amp;ptid=2182057" target="_blank">病態極端 发表于 2024-4-30 19:42</a>
+
+明明金亨泰自己都說加布料是不得已而為之了，為啥還能有人支持加布料，難以理解。
+
+ ...</blockquote>
+泥潭站ZZZQ的高雅人士不少的，之前喷地平线2女主丑的帖子里不也有大把人跳出来说不觉得丑，挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SinoWarrior  
+##### 64#       发表于 2024-4-30 19:53
+
+有lgbt不玩，有zzzq不玩
+

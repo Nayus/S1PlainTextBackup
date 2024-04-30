@@ -2319,3 +2319,13 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 翻到监督的人物评价，才知道原来还有这一层的影响（ <blockquote>立希对自己的姐姐有着强烈的自卑感，不论得到了谁的夸奖，都会认为这是托姐姐的福，最后变得没有办法直率地接受他人的好意了。 作者：Miki Sayaka [https://www.bilibili.com/read/cv26092103/](https://www.bilibili.com/read/cv26092103/) 出处：bilibili</blockquote>
 
+
+*****
+
+####  名津流  
+##### 16498#       发表于 2024-5-1 03:11
+
+[https://www.bilibili.com/video/BV1Ff421D75P](https://www.bilibili.com/video/BV1Ff421D75P)
+
+剧场版「BanG Dream! It's MyGO!!!!!前編 : 春の陽だまり、迷い猫」主视觉图解禁
+

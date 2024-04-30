@@ -6898,3 +6898,11 @@ ca7464d6d05794efaafcdf6018017f21.jpg
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Anatoly  
+##### 3630#       发表于 2024-4-30 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手综哥早就拿discord那群规当令箭打了一波了好吧
+

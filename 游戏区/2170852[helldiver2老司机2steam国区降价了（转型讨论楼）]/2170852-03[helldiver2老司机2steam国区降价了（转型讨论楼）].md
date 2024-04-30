@@ -6766,3 +6766,35 @@ QQ截图20240429200420.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  北条早苗  
+##### 3593#       发表于 2024-4-30 14:22
+
+无后坐力炮这个版本最大的增强就是它装弹只要把弹药塞进去就算完成了，后续动画可以用切枪或者飞扑取消，实际装弹时间也就4秒左右
+背包位的问题可以通过这个版本的电喷和多带一个战备解决，玩下来体验不会比上个版本的类星体差多少
+
+*****
+
+####  大肥鸽子  
+##### 3594#       发表于 2024-4-30 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771371&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-30 13:46</a>
+是的吧，如果这游戏的武器还和初版一个只有一个破裂者能用全员背着磁轨枪那早就玩腻了 ...</blockquote>
+考虑到现在磁轨又加强穿甲，感觉过段时间类星体也要玩这种朝三暮四的把戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  赤井稻妻  
+##### 3595#       发表于 2024-4-30 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771752&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-30 14:23</a>
+
+考虑到现在磁轨又加强穿甲，感觉过段时间类星体也要玩这种朝三暮四的把戏
+
+—— 来自 OPPO PEAM00 ...</blockquote>
+磁轨抢其实是错杀了，因为一直有磁轨抢两枪爆泰坦头的案例，导致箭头错误估计了磁轨枪伤害，现在bug修好了再回调也是情理之中，顺便削了硬直能力不像一开始一样能把牛控得动不了
+

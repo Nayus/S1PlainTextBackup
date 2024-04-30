@@ -7132,3 +7132,11 @@ saki明天就要发动反攻了
 
 第5和第6话看下来，阿黄明显和P没那么熟。那到底是啥让她敢把人生托付于P我是很好奇的，果然是脸么
 
+
+*****
+
+####  joshua1990  
+##### 3653#       发表于 2024-4-30 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">剧情配合画面，可爱的妹子跃然眼前，真要好好期待一手游戏了
+

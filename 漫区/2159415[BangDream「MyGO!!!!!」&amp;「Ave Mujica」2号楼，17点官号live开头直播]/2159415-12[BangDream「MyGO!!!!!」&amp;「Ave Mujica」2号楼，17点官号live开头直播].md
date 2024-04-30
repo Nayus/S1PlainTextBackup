@@ -1953,3 +1953,25 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 去z8看热闹发现有个加精的决战邦邦男科CP之巅楼，太乐了，而且还意外的没打起来，都在和平的吐黑泥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 16466#       发表于 2024-4-30 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773379&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-30 16:38</a>
+
+去z8看热闹发现有个加精的决战邦邦男科CP之巅楼，太乐了，而且还意外的没打起来，都在和平的吐黑泥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点进去2楼就是希灯我一下没绷住
+
+
+*****
+
+####  rikaren  
+##### 16467#       发表于 2024-4-30 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772528&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-30 15:24</a>
+
+rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点 ...</blockquote>
+看到有提到鼓手作曲实际上是有debuff的，只能说立希非常努力和倔强，但是鼓手作曲比键盘手/吉他手作曲难这点恐怕也不会有多少人在意。
+

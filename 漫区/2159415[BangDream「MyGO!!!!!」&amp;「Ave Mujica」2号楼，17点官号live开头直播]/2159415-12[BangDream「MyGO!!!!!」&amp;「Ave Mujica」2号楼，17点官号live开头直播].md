@@ -2248,3 +2248,16 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 有些CP我也没搞懂怎么磕起来的，爱祥就算了，爱睦这俩人都没见过面的都能磕 ...</blockquote>
 完全说不上能扯CP，但是我觉得这两个人的关系性还蛮有趣的，“说话了”“唱歌了”“笑了”“告诉我soyo家地址→不知道，我不当传话筒”“把话说完就走这点，和以前一样完全没变啊”。
 
+
+*****
+
+####  WhiteGlint  
+##### 16491#       发表于 2024-4-30 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776324&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-30 21:37</a>
+
+有理有据（）</blockquote>
+再怎么说C团时候好歹也是队友，虽然动画里互动就是0<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小睦第二季还有戏份，立希我看是没啥东西了（悲观主义者.jpg）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

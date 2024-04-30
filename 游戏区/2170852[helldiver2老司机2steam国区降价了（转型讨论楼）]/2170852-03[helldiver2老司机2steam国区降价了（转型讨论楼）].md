@@ -6603,3 +6603,29 @@ QQ截图20240429200420.jpg
 
 箭头的更新补丁写得太直白了，不要写增加单人任务时的巡逻队数量，改成“现在单人任务的巡逻队数量将是四人任务的四分之一”，是不是听起来合理多了，然而实际上之前是六分之一
 
+
+*****
+
+####  Launce  
+##### 3579#       发表于 2024-4-30 10:17
+
+ 本帖最后由 Launce 于 2024-4-30 10:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新债券那风暴兵就算了，看到新解包模型，这不我们ST的莫里塔吗，几天不见怎么还加机柄了
+
+<img src="https://img.saraba1st.com/forum/202404/30/101718b6exppuz2nhx7x2e.png" referrerpolicy="no-referrer">
+
+<strong>PL~885%}[X{B0C{0RR%3}2W.png</strong> (15.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 10:17 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/101725kazlaluzgnl4vaal.png" referrerpolicy="no-referrer">
+
+<strong>PR4`FHXJS57P2XCEXOU82DT.png</strong> (12.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 10:17 上传
+

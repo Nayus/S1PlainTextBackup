@@ -934,3 +934,28 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  脚本水平  
+##### 85#       发表于 2024-5-1 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776081&amp;ptid=2182057" target="_blank">银白色暴风雪 发表于 2024-4-30 21:08</a>
+
+现在已经不是涩不涩的问题，而是厂商所谓的态度问题。部分人的诉求已经演变为厂商对自己要求的绝对服从， ...</blockquote>
+加点布料确实屁大点事
+
+不过你这个“厂商所谓态度”屁股都不知道歪到哪里去了
+
+所以发售前是有人拿枪指着SU说什么uncensored all countries的吗？
+
+
+*****
+
+####  eulereld  
+##### 86#       发表于 2024-5-1 02:53
+
+唉，**仙人，唉忠誠不絕對等於絕對不忠誠
+至少還沒開始指責不一起罵街一起簽名退款的玩家是龜，還有救<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+個人覺得從虛假宣傳這方面來看是挺活該，一開始就放現版本明明沒大問題
+

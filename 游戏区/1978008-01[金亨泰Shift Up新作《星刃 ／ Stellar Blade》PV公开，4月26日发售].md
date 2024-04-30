@@ -5676,3 +5676,16 @@ evc40
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  jacket  
+##### 1276#       发表于 2024-5-1 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778337&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-1 02:12</a>
+
+子弹不随着休息恢复真是难绷
+
+老是到打boss出紫光弱点才发现没子弹</blockquote>
+紫色技暴弱点我都留个三角蓄力直接上去劈，懒得瞄准
+

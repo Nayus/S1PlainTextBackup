@@ -1760,3 +1760,21 @@ mygo到底是日文还是英文意思
 还是珍珠投钱投得少企划地位低,从bang tv到外景给esp做过多少次宣传了，鼓我印象中就没宣传过，甚至联动的 ...</blockquote>
 吉他键盘还可以买来收藏，鼓占地也会很麻烦
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16449#       发表于 2024-4-30 15:21
+
+手游至少能混到自己当主角的活动，仅限活动中不需要当垫子衬托别人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 16450#         楼主| 发表于 2024-4-30 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772405&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-30 15:14</a>
+
+吉他键盘还可以买来收藏，鼓占地也会很麻烦</blockquote>
+rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点刻画的两首的曲子，一首是祥子的遗物，一首是以猫猫为主的全队即兴演出
+

@@ -889,3 +889,20 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 百万销量这点起码在销量楼里也辟谣了几次，外人基本当索索笑话看，主楼又信誓旦旦讲出来
 
+
+*****
+
+####  LuciferMustDie  
+##### 81#       发表于 2024-4-30 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774988&amp;ptid=2182057" target="_blank">uponutopia 发表于 2024-4-30 19:09</a>
+
+这游戏在泥潭有三层debuff，很多人早就看不顺眼了 。第一是棒子做的游戏，越是精日的人反而越瞧不起 ...</blockquote>
+1和2其实是一回事
+
+什么韩式美术风格啊，这是金最没个人特色的作品了，扔到p站里都能泯然众人
+
+如果是太君做的，他们最多说不喜欢
+
+但既然是棒子做的，那必须得找各种角度表达一下恶心之情
+

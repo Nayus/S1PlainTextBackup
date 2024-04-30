@@ -1730,3 +1730,33 @@ mygo到底是日文还是英文意思
 那我觉得手游剧情的立希还是比动画好点的，起码手游猫出了问题是立希亲自去找回来的，换成动画第一季只会写 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别太惨了，这是被pua了吗
 
+
+*****
+
+####  紫吹兰  
+##### 16446#         楼主| 发表于 2024-4-30 15:12
+
+还是珍珠投钱投得少企划地位低,从bang tv到外景给esp做过多少次宣传了，鼓我印象中就没宣传过，甚至联动的也只有鼓棒没有鼓。当然架子鼓本身带货就带不动，从基本找不到声优鼓手就能看出来，业余当兴趣玩架子鼓的就是远比吉他和键盘少得多。
+
+*****
+
+####  NODY  
+##### 16447#       发表于 2024-4-30 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772286&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-30 15:04</a>
+
+别太惨了，这是被pua了吗</blockquote>
+这就是动画给我的自信，就算第二季独角兽找到了新的背锅小能手，大发慈悲放立希当个初华或者海铃那样的助攻路人，那也是下一季的事情了
+
+手游目前来说活动剧情的立希都没问题，也有自己的高光，小作文这种出问题的剧情都在其他人的卡里面，没关系，我不抽就是不存在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16448#       发表于 2024-4-30 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772379&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-30 15:12</a>
+
+还是珍珠投钱投得少企划地位低,从bang tv到外景给esp做过多少次宣传了，鼓我印象中就没宣传过，甚至联动的 ...</blockquote>
+吉他键盘还可以买来收藏，鼓占地也会很麻烦
+

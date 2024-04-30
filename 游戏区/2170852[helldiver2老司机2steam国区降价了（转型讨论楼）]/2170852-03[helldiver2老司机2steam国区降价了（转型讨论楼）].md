@@ -6894,3 +6894,21 @@ QQ截图20240429200420.jpg
 
 打强袭问题最大的不是距离近直接穿过去打空吗，不知道修了没
 
+
+*****
+
+####  Mr.Hopp  
+##### 3606#       发表于 2024-4-30 15:11
+
+那个会不会是故意的？有一条很明显的打飞弹道<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  wthall  
+##### 3607#       发表于 2024-4-30 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772265&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-4-30 15:02</a>
+
+打强袭问题最大的不是距离近直接穿过去打空吗，不知道修了没</blockquote>
+没有，我昨天就花了3发飞矛炸近处牛，全空
+

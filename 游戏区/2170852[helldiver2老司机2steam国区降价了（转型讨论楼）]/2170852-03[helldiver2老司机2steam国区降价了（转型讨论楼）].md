@@ -6498,3 +6498,13 @@ QQ截图20240429200420.jpg
 
 想出巡逻队和机器人感知改动的这位逆天，改成这样他最好是自己打得过现在的机器人solo高难，否则他今天出门必撞大运<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 3567#       发表于 2024-4-30 07:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的，激光狗削的我心态都崩了，本来就是手柄玩家最后的救赎。
+
+今天回家去打差评去
+

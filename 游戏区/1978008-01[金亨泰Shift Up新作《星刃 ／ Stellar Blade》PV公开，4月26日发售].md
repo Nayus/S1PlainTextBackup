@@ -5318,3 +5318,15 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 爬到楼顶，有个机器人被压着了，把东西推开</blockquote>
 那是废土的把，我说的是大沙漠的塔
 
+
+*****
+
+####  彩虹肥宅  
+##### 1240#       发表于 2024-4-30 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771093&amp;ptid=1978008" target="_blank">lazycat233 发表于 2024-4-30 13:17</a>
+那是废土的把，我说的是大沙漠的塔</blockquote>
+你去把塔下的小boss打了
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

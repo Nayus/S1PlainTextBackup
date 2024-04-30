@@ -1445,3 +1445,11 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 当纯音乐乐队可不成，就昨天这个收音，我mygo到后半都想把耳塞塞上了…… ...</blockquote>
 草，忘了wsd逆天器械
 
+
+*****
+
+####  天子控  
+##### 16419#       发表于 2024-4-30 09:02
+
+赢麻论前提全看制作组重视，不然那些伏笔一笔带过也有可能，最后高光还是给别人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

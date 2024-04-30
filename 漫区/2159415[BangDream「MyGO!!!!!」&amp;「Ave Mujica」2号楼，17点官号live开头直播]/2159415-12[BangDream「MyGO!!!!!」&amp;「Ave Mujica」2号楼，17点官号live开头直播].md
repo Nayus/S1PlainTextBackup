@@ -1637,3 +1637,13 @@ mygo到底是日文还是英文意思
 还有是突然明白为啥少歌这么多真昼厨讨厌迫害梗了，看多了自家推被当垫子和乐子的确让人火大 ...</blockquote>
 而且恋光在剧场版补丁前几乎是一边倒觉得男科<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  友情的结晶  
+##### 16436#       发表于 2024-4-30 14:33
+
+剧场版光恋才是真的男科<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

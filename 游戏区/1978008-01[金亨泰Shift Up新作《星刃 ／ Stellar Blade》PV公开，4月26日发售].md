@@ -5330,3 +5330,24 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  bletilla  
+##### 1241#       发表于 2024-4-30 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771093&amp;ptid=1978008" target="_blank">lazycat233 发表于 2024-4-30 13:17</a>
+
+那是废土的把，我说的是大沙漠的塔</blockquote>
+你接了重启任务了么
+
+*****
+
+####  bletilla  
+##### 1242#       发表于 2024-4-30 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760766&amp;ptid=1978008" target="_blank">kuker53 发表于 2024-4-29 14:16</a>
+
+没有，就这么翻译的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">确实和剧透有关的，结局会提
+

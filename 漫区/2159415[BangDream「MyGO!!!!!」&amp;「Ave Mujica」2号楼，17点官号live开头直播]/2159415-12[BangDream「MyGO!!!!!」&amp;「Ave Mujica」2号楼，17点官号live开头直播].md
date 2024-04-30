@@ -1523,3 +1523,17 @@ ako：这个世界上的神明居然有三位？
 
 —— 来自 Xiaomi 21091116AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  skives  
+##### 16427#       发表于 2024-4-30 11:15
+
+<img src="https://img.saraba1st.com/forum/202404/30/111551ht4mgmcgoo6r4nt7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3AC84C39-5DE6-4F1D-A0F9-979A097CE59C.jpeg</strong> (659.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 11:15 上传
+

@@ -603,3 +603,26 @@ Ado我是很喜欢的，跟当年喜欢梁静茹和欢欢一样，这种毁嗓�
 
 Rocko Reedy，给各种知名乐队合作过的资深舞台经理
 
+
+*****
+
+####  AraTurambar  
+##### 66#       发表于 2024-4-30 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64760932&amp;ptid=2163734" target="_blank">ylssb10438 发表于 2024-4-29 14:32</a>
+
+我倒是很喜欢她唱偏抒情的安静点的曲子永遠のあくる日   風のゆくえ 啥的想起来听狮子神也是 ...</blockquote>
+握手。我喜欢她唱的歌前四位：
+
+永遠のあくる日
+
+心という名の不可解
+
+DIGNITY
+
+ギラギラ
+
+只论她自己的表现所以不考虑马夫马夫不讨喜之类的问题。
+
+新国立永遠のあくる日之后无人机烟花出来的时候我是真的哭了。
+

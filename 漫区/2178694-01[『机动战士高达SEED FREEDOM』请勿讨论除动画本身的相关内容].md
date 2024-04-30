@@ -8921,3 +8921,11 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 </blockquote>
 太正常了，这一波被炎上，双子的生日的，其中一个不在，另外一个声优还要和最近一直踩他的角色互动简直了
 
+
+*****
+
+####  Smith·勇  
+##### 729#       发表于 2024-4-30 21:19
+
+又在QQ群看见代孙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7208,3 +7208,24 @@ QQ截图20240429200420.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  九十九忍  
+##### 3639#       发表于 2024-5-1 01:19
+
+没破片这枪基本完蛋，跳弹锁玩家这种幽默机制有那么重要吗
+
+*****
+
+####  Aeons  
+##### 3640#       发表于 2024-5-1 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778055&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-5-1 01:07</a>
+
+但是缺乏弹片溅射整个aoe能力都会差吧，还是说范围伤害是独立于弹片存在？
+
+有点幽默了，到头来该用什么枪 ...</blockquote>
+
+我认为aoe能力会下降，因为看他的意思，他对爆裂铳的定位就是三穿机炮，主要功能就是拆哨站用的，对aoe问题避而不谈了
+

@@ -5655,3 +5655,13 @@ evc40
 
 一周目射击关没难度啊，怪都脆，又一地子弹。沙漠是真的突然上强度了，说起来迅驰模式做的像大招，结果感觉纯刮痧啊，我都升满了，还是普通b技能最实在
 
+
+*****
+
+####  依存香炉  
+##### 1274#       发表于 2024-5-1 01:18
+
+[https://www.ign.com/wikis/stella ... Nano_Suit_Locations](https://www.ign.com/wikis/stellar-blade/Stellar_Blade_Outfits_and_Nano_Suit_Locations)
+
+没想到ign这个服装攻略整理得还挺好的
+

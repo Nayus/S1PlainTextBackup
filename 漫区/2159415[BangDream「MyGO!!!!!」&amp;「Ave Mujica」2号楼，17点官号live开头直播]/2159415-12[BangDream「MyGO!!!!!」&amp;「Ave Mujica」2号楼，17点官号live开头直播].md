@@ -1559,3 +1559,16 @@ mygo到底是日文还是英文意思
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  滑稽Captain  
+##### 16430#       发表于 2024-4-30 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769913&amp;ptid=2159415" target="_blank">macos 发表于 2024-4-30 11:34</a>
+
+mygo到底是日文还是英文意思
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+谐音梗
+

@@ -6280,3 +6280,21 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 真的没注意到
 
+
+*****
+
+####  holoan  
+##### 8735#         楼主| 发表于 2024-5-1 01:25
+
+<img src="https://img.saraba1st.com/forum/202405/01/012423ew0wywr6dhdwryoc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 01:24 上传
+
+推上的关于昨天发售的那个シチュー的感想
+
+一句话说就是，甜
+

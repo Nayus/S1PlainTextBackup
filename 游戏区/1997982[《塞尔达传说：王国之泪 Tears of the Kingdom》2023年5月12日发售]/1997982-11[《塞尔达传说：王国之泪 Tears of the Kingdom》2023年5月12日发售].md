@@ -138,3 +138,14 @@
 
 昨天在贴吧偶然看见有人说众神2要复刻了，感觉意料之外又情理之中。当然消息准确性未知
 
+
+*****
+
+####  liekong  
+##### 15706#       发表于 2024-4-30 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769459&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2024-4-30 10:59</a>
+
+昨天在贴吧偶然看见有人说众神2要复刻了，感觉意料之外又情理之中。当然消息准确性未知 ...</blockquote>
+众神2？跟其他3DS一样的简单移植么？理论上众神1更需要复刻吧
+

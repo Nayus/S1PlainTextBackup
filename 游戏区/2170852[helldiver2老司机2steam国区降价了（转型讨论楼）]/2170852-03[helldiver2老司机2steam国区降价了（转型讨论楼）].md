@@ -6706,3 +6706,26 @@ QQ截图20240429200420.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发出实弹武器的超级气球脉冲吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁也是贵物了，换虚幻5优化爆炸就算了，职业重做就是专精拆1个，凑的6职业，麻了
 
+
+*****
+
+####  Cybellybanana  
+##### 3587#       发表于 2024-4-30 11:37
+
+为啥昨晚更新后还没事，今早一选任务就疯狂闪退<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  smdzh2  
+##### 3588#       发表于 2024-4-30 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769772&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-30 12:24</a>
+发出实弹武器的超级气球脉冲吗
+
+隔壁也是贵物了，换虚幻5优化爆炸就算了，职业重做就是专精 ...</blockquote>
+医疗和重装直接废了，现在版本之子是强袭和工程<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+在比烂方面，世外联邦和贱头气球真是一脉相承的好兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

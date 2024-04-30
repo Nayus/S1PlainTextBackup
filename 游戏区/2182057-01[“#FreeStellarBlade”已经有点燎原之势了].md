@@ -617,3 +617,80 @@ psn上这游戏评价22K 4.79分；ff7rb 29K评价
 
 genshin censorship当年再欧美是不是也爆了一波，记得是一个活动把censor 跟ship两个物品拼在一起了，让老外高潮了一下
 
+
+*****
+
+####  ky7913  
+##### 56#       发表于 2024-4-30 19:27
+
+<blockquote>依存香炉 发表于 2024-4-30 19:14
+psn上这游戏评价22K 4.79分；ff7rb 29K评价</blockquote>
+剑星现在每天1000多的速度在涨，同样是demo评价不错的ff16销量300万评价好像只有2.3万
+
+*****
+
+####  ultraseven  
+##### 57#       发表于 2024-4-30 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775032&amp;ptid=2182057" target="_blank">依存香炉 发表于 2024-4-30 19:14</a>
+
+psn上这游戏评价22K 4.79分；ff7rb 29K评价</blockquote>
+PSN评价数包括demo啊，只看评论数当然得不出销量关系
+
+[[新闻] 星刃试玩版日活跃是FF7rb两倍，龙信2月活超两百万](https://www.saraba1st.com/2b/thread-2179537-1-1.html)
+
+*****
+
+####  ultraseven  
+##### 58#       发表于 2024-4-30 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774750&amp;ptid=2182057" target="_blank">jakie_guo 发表于 2024-4-30 18:45</a>
+
+有没有可能，我是说有没有可能啊。
+
+各个地区下载，盘的出货程度消化程度。各个地区排行榜，PSN的评论数。 ...</blockquote>
+盘的出货程度消化程度哪里能看到？
+
+*****
+
+####  ky7913  
+##### 59#       发表于 2024-4-30 19:29
+
+<blockquote>ultraseven 发表于 2024-4-30 19:27
+PSN评价数包括demo啊，只看评论数当然得不出销量关系
+
+[新闻] 星刃试玩版日活跃是FF7rb两倍，龙信2月活超 ...</blockquote>
+跟都有demo的ff7rb和ff16比好了
+
+
+*****
+
+####  ultraseven  
+##### 60#       发表于 2024-4-30 19:32
+
+剑星COMG点数
+
+首周销量： 31 
+
+预购最后一天： 19 
+
+浪人
+
+首周销量： 44
+
+预购最后一天： 16
+
+日本市场表现应该和浪人差不多，估一个法米通5w+ 
+
+*****
+
+####  ky7913  
+##### 61#       发表于 2024-4-30 19:34
+
+<blockquote>ultraseven 发表于 2024-4-30 19:32
+剑星COMG点数
+
+首周销量： 31 
+</blockquote>
+我比较关心欧美销量
+

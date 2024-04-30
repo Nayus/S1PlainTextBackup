@@ -8864,3 +8864,21 @@ https://weibo.com/7503521063/5002857336804256
 
 预感五一人会很多，趁着工作日从深圳跑去香港看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">体验不错
 
+
+*****
+
+####  oi99o  
+##### 725#       发表于 2024-4-30 08:11
+
+香港第二周派胶片了（5月2日起）
+
+<img src="https://img.saraba1st.com/forum/202404/30/081100yqeqnollbqe5qlr4.jpg" referrerpolicy="no-referrer">
+
+<strong>img_3137.jpg</strong> (215.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 08:11 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -7066,3 +7066,38 @@ image.png
 小组里唯一的常识人挺搞的，把自己赌在p身上后莫名其妙被卷入麻烦团伙，还得先比赛才能建成小组，倒霉透了 ...</blockquote>
 小红：一听到要和同学比赛我就高兴，入学考试算什么比赛？
 
+
+*****
+
+####  koodooliz  
+##### 3646#       发表于 2024-4-30 18:55
+
+胜负欲太强了花海桑，需要好好敲打一下辣<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 3647#       发表于 2024-4-30 19:01
+
+他妈的什么萌物？？太可爱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+IMG_3373.jpeg
+(296.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/190057idppjrob6yha7apc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Genkishi  
+##### 3648#       发表于 2024-4-30 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774922&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-4-30 19:01</a>
+
+他妈的什么萌物？？太可爱了吧</blockquote>
+saki明天就要发动反攻了
+

@@ -531,3 +531,44 @@ zzzq确实是傻逼，你的味也有点冲了。买的号？</blockquote>
 
 2024-4-30 18:52 上传
 
+
+*****
+
+####  jumpingchild  
+##### 47#       发表于 2024-4-30 18:56
+
+兄弟这点是你不懂了，那个24小时100万的出处是一个叫Zuby_Tech的纯血主机战士，整天以吹索尼为己任，似乎FF7和75分崛起大暴死之后这人彻底被索尼游戏销售惨淡的现状逼疯了，拼了命的想抓住一切救命稻草来证明索爹的伟大，不出意外的话这次星刃的销量还是暴死
+
+*****
+
+####  icylight  
+##### 48#       发表于 2024-4-30 18:59
+
+日本亚马逊的销量排行，星刃第一名，这个能反应销量吗？不懂就问
+
+<img src="https://img.saraba1st.com/forum/202404/30/185907yuwqw2o2qudodoxo.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-04-29 134249.jpg</strong> (214.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 18:59 上传
+
+
+*****
+
+####  TNN  
+##### 49#       发表于 2024-4-30 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774837&amp;ptid=2182057" target="_blank">jakie_guo 发表于 2024-4-30 18:52</a></blockquote>
+看来是第一天上泥潭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky7913  
+##### 50#       发表于 2024-4-30 19:04
+
+<blockquote>jumpingchild 发表于 2024-4-30 18:56
+兄弟这点是你不懂了，那个24小时100万的出处是一个叫Zuby_Tech的纯血主机战士，整天以吹索尼为己任，似乎FF ...</blockquote>
+你先说一下暴死的标准是多少
+

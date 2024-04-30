@@ -6536,3 +6536,18 @@ QQ截图20240429200420.jpg
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  Benighted  
+##### 3571#       发表于 2024-4-30 08:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到个视频 盾哥弹反火箭弹
+
+*****
+
+####  赤井稻妻  
+##### 3572#       发表于 2024-4-30 08:37
+
+无后座力的问题是你必须要原地装弹，类星体可以切成主武器打一会再开一发，还不占用背包
+

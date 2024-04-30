@@ -1407,3 +1407,22 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 羊宫怎么当不存在法……</blockquote>
 还能咋样，live假装听不到人声mygo是纯音乐乐队，cd和游戏就当只有灯在唱。
 
+
+*****
+
+####  AraTurambar  
+##### 16415#       发表于 2024-4-30 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767890&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-30 08:31</a>
+
+还能咋样，live假装听不到人声mygo是纯音乐乐队，cd和游戏就当只有灯在唱。 ...</blockquote>
+当纯音乐乐队可不成，就昨天这个收音，我mygo到后半都想把耳塞塞上了……
+
+
+*****
+
+####  天子控  
+##### 16416#       发表于 2024-4-30 08:43
+
+立希在mujica赢麻论也只是立希厨自我安慰罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1688,3 +1688,45 @@ mygo到底是日文还是英文意思
 
 就我感觉还不错了吗，至少没给你奖励鼓手该有的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 16442#       发表于 2024-4-30 14:59
+
+保不准又是预告的预告<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aendst  
+##### 16443#       发表于 2024-4-30 15:01
+
+立希的问题不只是戏份待遇……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+其实可以看出来，很多时候她能有更多高光，有更多表现魅力点的机会，包括她压力自己这一点也有更合适的表现方式
+
+但是这部分被盖住了被略过去了，不管是动画还是手游都太过强调她对灯的执着，甚至用这一点去做一些有点迫害意味的表现
+
+从观感上来说就是其他讨喜的角色特征都被这个单箭头掩盖过去了，角色行动的可能性也被限制死了
+
+*****
+
+####  NODY  
+##### 16444#       发表于 2024-4-30 15:01
+
+ 本帖最后由 NODY 于 2024-4-30 15:03 编辑 
+
+那我觉得手游剧情的立希还是比动画好点的，起码手游猫出了问题是立希拒绝了灯的帮忙以后亲自去找回来的，换成动画第一季只会写成立希把人气走或者自己气走，然后其他人去安慰和拉人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16445#       发表于 2024-4-30 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772260&amp;ptid=2159415" target="_blank">NODY 发表于 2024-4-30 15:01</a>
+
+那我觉得手游剧情的立希还是比动画好点的，起码手游猫出了问题是立希亲自去找回来的，换成动画第一季只会写 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别太惨了，这是被pua了吗
+

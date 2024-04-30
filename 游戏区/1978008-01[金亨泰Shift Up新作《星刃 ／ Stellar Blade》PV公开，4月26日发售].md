@@ -5351,3 +5351,11 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 没有，就这么翻译的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">确实和剧透有关的，结局会提
 
+
+*****
+
+####  过气页游  
+##### 1243#       发表于 2024-4-30 15:03
+
+第一个大图到后面也不会有地图吗？总感觉营地可能没开完
+

@@ -5416,3 +5416,14 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 日服老没登录 密码忘了  特典用不了</blockquote>
 三个饰品和皮肤，皮肤是一个大红屁股
 
+
+*****
+
+####  光焰天下第一  
+##### 1249#       发表于 2024-4-30 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773184&amp;ptid=1978008" target="_blank">粉刷月季 发表于 2024-4-30 16:21</a>
+
+我这按着防御闪避的习惯是改不过来了</blockquote>
+然后就触发了技能，建议洗点，不学那个技能
+

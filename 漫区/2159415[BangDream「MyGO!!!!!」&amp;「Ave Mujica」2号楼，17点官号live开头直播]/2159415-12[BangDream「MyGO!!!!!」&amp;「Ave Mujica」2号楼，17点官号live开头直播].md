@@ -1880,3 +1880,68 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 并不是什么会让普通观众觉得很有问题的行为
 
+
+*****
+
+####  skives  
+##### 16461#       发表于 2024-4-30 16:28
+
+抽live的难度又高了 
+6500人抽2400个座<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16462#       发表于 2024-4-30 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">初动还不错
+
+然后抽选地狱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cindy355  
+##### 16463#       发表于 2024-4-30 16:34
+
+<img src="https://img.saraba1st.com/forum/202404/30/163407f8aon8wwbw7afhub.png" referrerpolicy="no-referrer">
+
+<strong>)5F4X}B%M%4V(]C3`WUE1]7.png</strong> (345.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 16:34 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/163408wsqpbsx5ks6x95so.png" referrerpolicy="no-referrer">
+
+<strong>@Y{VSROK97VWHWG@V`2HL.png</strong> (392.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 16:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 16464#       发表于 2024-4-30 16:36
+
+<img src="https://img.saraba1st.com/forum/202404/30/163514fg057x2gq9z5zqp5.png" referrerpolicy="no-referrer">
+
+<strong>~P[3%7Q]UJG%NZ3QQ_2B5`I.png</strong> (549.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 16:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/163514m52as3940934a5yr.png" referrerpolicy="no-referrer">
+
+<strong>X)}Z_X]5QQ8(R4~1X_B5Q0B.png</strong> (617.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 16:35 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">鼓子真是有种黄金年代的明星的感觉，非常积极健康的美丽
+

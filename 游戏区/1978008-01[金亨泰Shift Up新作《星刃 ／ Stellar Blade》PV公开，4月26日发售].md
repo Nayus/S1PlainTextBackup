@@ -5378,3 +5378,41 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 我这按着防御闪避的习惯是改不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oahcihs  
+##### 1246#       发表于 2024-4-30 16:28
+
+实体盘特典 是早期解锁权吗?
+日服老没登录 密码忘了  特典用不了
+
+*****
+
+####  jacket  
+##### 1247#       发表于 2024-4-30 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64768153&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-4-30 09:01</a>
+
+昨晚死磕一个钟头才打死二见的金刚
+
+这闪避是故意做这么短的么，像尼尔2那种长闪避无脑按基本都能躲开，剑星 ...</blockquote>
+闪避格挡点了强化天赋以后会变成正常游戏的手感，没点之前判定帧数极少，而且装备还能进一步强化闪避格挡提升帧数，这游戏是把闪避格挡做成了build的一部分。
+
+闪避格挡长按不出招是因为没能量，有些派生动作需要消耗能量。
+
+天赋装备多强化一下就会发现普通模式的人物性能还是很强的。
+
+
+*****
+
+####  Kojimaru  
+##### 1248#       发表于 2024-4-30 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773264&amp;ptid=1978008" target="_blank">oahcihs 发表于 2024-4-30 16:28</a>
+
+实体盘特典 是早期解锁权吗?
+
+日服老没登录 密码忘了  特典用不了</blockquote>
+三个饰品和皮肤，皮肤是一个大红屁股
+

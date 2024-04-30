@@ -7174,3 +7174,11 @@ saki明天就要发动反攻了
 
 恋爱喜剧轻小说要素太齐全了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  田所あずさ  
+##### 3658#       发表于 2024-4-30 21:08
+
+你们柏油真的疯了，这次活动强度和masterpiece感觉是一样的，半天你们柏油打20w和发疯了一样
+

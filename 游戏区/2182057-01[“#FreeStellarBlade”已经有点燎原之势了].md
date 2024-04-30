@@ -849,3 +849,33 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 日本亚马逊的销量排行，星刃第一名，这个能反应销量吗？不懂就问</blockquote>
 排名第二的是NS上的潜水员模拟器，你觉得这玩意有含金量吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  银白色暴风雪  
+##### 77#       发表于 2024-4-30 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775750&amp;ptid=2182057" target="_blank">垃圾网站上 发表于 2024-4-30 20:30</a>
+
+我是不懂那么多人魔怔到和麻辣仙人一样，又不是这游戏改成不涩涩了，三十几件就改了几件还不是最涩的，都开 ...</blockquote>
+现在已经不是涩不涩的问题，而是厂商所谓的态度问题。部分人的诉求已经演变为厂商对自己要求的绝对服从，正所谓忠诚不绝对就是绝对不忠诚，你敢不听我的话我就要把你批倒批臭。
+
+别看这帮人天天在网上喷别人爹味重，其实最渴望在虚拟世界里当爹的就属他们了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kaolimadepi  
+##### 78#       发表于 2024-4-30 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚假宣传又来洗了
+
+
+*****
+
+####  杉田悠一  
+##### 79#       发表于 2024-4-30 21:12
+
+哎，宅男文娱，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2311DRK48C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

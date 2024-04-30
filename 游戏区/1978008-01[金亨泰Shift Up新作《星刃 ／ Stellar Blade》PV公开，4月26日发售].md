@@ -5277,3 +5277,13 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 沙漠得太阳能塔怎么开，到了说要连接机器人，路上见到的机器人触发也没东西
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1236#       发表于 2024-4-30 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64770514&amp;ptid=1978008" target="_blank">lazycat233 发表于 2024-4-30 12:24</a>
+沙漠得太阳能塔怎么开，到了说要连接机器人，路上见到的机器人触发也没东西 ...</blockquote>
+爬到楼顶，有个机器人被压着了，把东西推开
+

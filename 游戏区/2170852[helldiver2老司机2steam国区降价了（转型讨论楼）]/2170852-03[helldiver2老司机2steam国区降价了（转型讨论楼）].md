@@ -6694,3 +6694,15 @@ QQ截图20240429200420.jpg
  ...</blockquote>
 感觉很快就能看到隔壁的脉冲系列了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3586#       发表于 2024-4-30 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769499&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-4-30 11:02</a>
+
+感觉很快就能看到隔壁的脉冲系列了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发出实弹武器的超级气球脉冲吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁也是贵物了，换虚幻5优化爆炸就算了，职业重做就是专精拆1个，凑的6职业，麻了
+

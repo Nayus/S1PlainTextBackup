@@ -1537,3 +1537,25 @@ ako：这个世界上的神明居然有三位？
 
 2024-4-30 11:15 上传
 
+
+*****
+
+####  天子控  
+##### 16428#       发表于 2024-4-30 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769025&amp;ptid=2159415" target="_blank">EBe 发表于 2024-4-30 10:27</a>
+我这个海希推其实看完所有访谈后也不是很期待母鸡卡，因为感觉没多少塑造
+可能全要放游戏里了
+倒是 ...</blockquote>
+不是说本来想写海希怎么认识，但是篇幅不够了吗
+
+
+*****
+
+####  macos  
+##### 16429#       发表于 2024-4-30 11:34
+
+mygo到底是日文还是英文意思
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

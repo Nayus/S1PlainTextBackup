@@ -6881,3 +6881,20 @@ ca7464d6d05794efaafcdf6018017f21.jpg
 
 来个破防集合贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 3628#       发表于 2024-4-30 15:40
+
+破防能多搬点去刀区集中楼吗？想鉴赏
+
+*****
+
+####  RhmBWT_Wu  
+##### 3629#       发表于 2024-4-30 15:40
+
+刀区那人有人搬手综哥我知道，有人搬厕妹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

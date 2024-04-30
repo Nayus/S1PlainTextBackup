@@ -6947,3 +6947,26 @@ QQ截图20240429200420.jpg
 
 以箭头的调性，可能是忘了电喷之前跟着电枪一起拿到了击退buff，但从给巨型者上调击退抗性来看又不像，如果真的带起了电喷热潮可能下个版本箭头会把电喷的击退调回去
 
+
+*****
+
+####  Mr.Hopp  
+##### 3612#       发表于 2024-4-30 15:43
+
+每个版本都有每个版本的版本之子，削弱前先爽呗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 3613#       发表于 2024-4-30 15:47
+
+<img src="https://img.saraba1st.com/forum/202404/30/154434ur1ra9ha33z7ookr.jpg" referrerpolicy="no-referrer">
+
+<strong>b2a3ee389b504fc2bb065b39a3dde71190ef6d3b.jpg</strong> (186.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 15:44 上传
+
+箭畜魅力时刻
+

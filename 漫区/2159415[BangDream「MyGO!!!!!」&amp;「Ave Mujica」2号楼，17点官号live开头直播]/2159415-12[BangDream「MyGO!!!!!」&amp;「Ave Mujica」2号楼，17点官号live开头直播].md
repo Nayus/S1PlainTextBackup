@@ -1786,3 +1786,14 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 对立希恶意玩梗的也非常多，CP图都有人ky立希吃桃，对角色太不友好了点<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16452#       发表于 2024-4-30 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772528&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-30 15:24</a>
+
+rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点 ...</blockquote>
+其实立希还有个圈外评价高人气也不低的影色舞，不过我有点担心这首歌又开除立希作曲籍，上次回层浮风评不错然后访谈来了句这首歌可能是灯的幻想真给我绷不住了（幸好迷子集会都盖章了一遍是立希写，只能感谢鼓小姐尽力RP了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

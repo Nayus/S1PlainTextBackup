@@ -5496,3 +5496,16 @@ iphone XR
 
 就看最後那批能否堅持下去
 
+
+*****
+
+####  DARKGRAY  
+##### 12509#       发表于 2024-5-1 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64777639&amp;ptid=2084912" target="_blank">eilot 发表于 2024-5-1 00:02</a>
+
+對啊
+
+連續兩天都是一起來</blockquote>
+问题不大，前面是可能创造机会让大家多用用青子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

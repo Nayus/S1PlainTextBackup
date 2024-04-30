@@ -7142,3 +7142,20 @@ QQ截图20240429200420.jpg
 
 这么一搞配合超级气球的lore还真是黑色幽默了，冻肉潜兵拿着超级气球分发的劣质武器在前线送命，高层和所有超级气球的拥护者还在小圈子里歌舞升平<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">说一句不好都会被打成叛徒
 
+
+*****
+
+####  暴走的包子  
+##### 3633#       发表于 2024-5-1 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉电喷也没强到需要人手一把，索敌还是很微妙，主要喷涌虫不是全中的话好像还是会吐的出来，离子喷用下来会更全面一些
+
+—— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  FLZB  
+##### 3634#       发表于 2024-5-1 00:07
+
+今晚真是新手和卡逼的狂欢了，一晚上没正常打一把，进去不是一眼幽默配装秒退就是卡爆<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

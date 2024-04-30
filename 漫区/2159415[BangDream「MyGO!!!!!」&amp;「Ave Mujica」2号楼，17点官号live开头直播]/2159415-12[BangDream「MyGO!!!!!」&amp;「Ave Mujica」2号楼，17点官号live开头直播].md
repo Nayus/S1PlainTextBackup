@@ -1867,3 +1867,16 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 没东西几个月还能涨，不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 16460#       发表于 2024-4-30 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773006&amp;ptid=2159415" target="_blank">guughgh 发表于 2024-4-30 16:07</a>
+
+还有一点先入为主的原因，立希在剧情开端的表现相对地不那么讨人喜欢，后续要把评价拉回来就比较困难 ...</blockquote>
+可能有点这个原因在，但我觉得剧情矛盾比较激烈的情况下，立希的开局的表现真的也还好了
+
+并不是什么会让普通观众觉得很有问题的行为
+

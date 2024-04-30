@@ -5370,3 +5370,11 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  粉刷月季  
+##### 1245#       发表于 2024-4-30 16:21
+
+我这按着防御闪避的习惯是改不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

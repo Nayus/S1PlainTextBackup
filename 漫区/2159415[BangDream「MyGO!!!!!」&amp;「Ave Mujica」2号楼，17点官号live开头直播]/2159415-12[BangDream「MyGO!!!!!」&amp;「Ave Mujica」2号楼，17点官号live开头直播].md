@@ -1603,3 +1603,26 @@ mygo到底是日文还是英文意思
 
 [https://twitter.com/Rainy_NEGI/status/1784937946812190807](https://twitter.com/Rainy_NEGI/status/1784937946812190807)
 
+
+*****
+
+####  相坂君  
+##### 16433#       发表于 2024-4-30 13:11
+
+怎么还聊起少歌了，第一季除了光恋外，其他角色垫脚迫害可是一个都没少。这么一想怎么又是wsd，从拉缪到邦狗，迫害役随不迟但一定会有
+
+*****
+
+####  6030sylar  
+##### 16434#       发表于 2024-4-30 13:13
+
+<img src="https://img.saraba1st.com/forum/202404/30/131249ps3k2ru3s27pu1m1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (50.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 13:12 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

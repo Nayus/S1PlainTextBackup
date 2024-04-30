@@ -5287,3 +5287,34 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 沙漠得太阳能塔怎么开，到了说要连接机器人，路上见到的机器人触发也没东西 ...</blockquote>
 爬到楼顶，有个机器人被压着了，把东西推开
 
+
+*****
+
+####  RinC  
+##### 1237#       发表于 2024-4-30 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64768153&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-4-30 09:01</a>
+
+昨晚死磕一个钟头才打死二见的金刚
+
+这闪避是故意做这么短的么，像尼尔2那种长闪避无脑按基本都能躲开，剑星 ...</blockquote>
+长按没有吞指令吧，两个反击长按都是要消耗一个资源的，可能是你没有资源所以没按出来
+
+
+*****
+
+####  lazycat233  
+##### 1238#       发表于 2024-4-30 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">d大沙漠真是个粪图 这游戏无论干什么都没霸体和无敌，而且都会给你个大硬直 处决也是没无敌和霸体的，处决完旁边的怪接着揍你，配这图的超级堆怪
+
+*****
+
+####  lazycat233  
+##### 1239#       发表于 2024-4-30 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64770551&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-4-30 12:27</a>
+
+爬到楼顶，有个机器人被压着了，把东西推开</blockquote>
+那是废土的把，我说的是大沙漠的塔
+

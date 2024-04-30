@@ -626,3 +626,20 @@ DIGNITY
 
 新国立永遠のあくる日之后无人机烟花出来的时候我是真的哭了。
 
+
+*****
+
+####  AraTurambar  
+##### 67#       发表于 2024-4-30 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64761961&amp;ptid=2163734" target="_blank">capelin 发表于 2024-4-29 16:07</a>
+
+这个现场早就在ytb火了一轮被各种音乐人react爆了
+
+保养如何以及未来演唱风格会不会变先不说，嗓子 ...</blockquote>
+其实她的乐队也蛮有趣的哈哈哈哈。
+
+以及她其实并没有把不露脸放在一个特别高的优先级，反正我觉得灯光和舞台设计肯定是在线的。
+
+反而是巨大露天场地的音效只能听个响了。
+

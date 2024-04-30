@@ -6629,3 +6629,39 @@ QQ截图20240429200420.jpg
 
 2024-4-30 10:17 上传
 
+
+*****
+
+####  Znesmoc  
+##### 3580#       发表于 2024-4-30 10:26
+
+副手左轮伤害175穿中甲还单手操作
+反器材勤勉伤害更低也穿中甲 还是一号位
+箭头这伤害就不能buff多点？ 
+
+顺便爆炸弩这波调整…同样是5发单点，削弱过的爆裂铳也还是比你好使，又没啥特别大的爆炸，准星也没有分划，爆炸吸人的bug还修了
+唉
+
+*****
+
+####  大肥鸽子  
+##### 3581#       发表于 2024-4-30 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64768608&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-4-30 09:51</a>
+箭头的更新补丁写得太直白了，不要写增加单人任务时的巡逻队数量，改成“现在单人任务的巡逻队数量将是四人 ...</blockquote>
+新补丁里最恶心的改动，万一我单人空降别人又加不进来呢，箭头这波才是纯sb<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  赤井稻妻  
+##### 3582#       发表于 2024-4-30 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64769032&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-30 10:27</a>
+
+新补丁里最恶心的改动，万一我单人空降别人又加不进来呢，箭头这波才是纯sb
+
+—— 来自 OPPO PEAM ...</blockquote>
+我建主的时候都会在跳伞页面等一会人，一般等个一分钟就能满人，凑齐至少仨人再跳
+

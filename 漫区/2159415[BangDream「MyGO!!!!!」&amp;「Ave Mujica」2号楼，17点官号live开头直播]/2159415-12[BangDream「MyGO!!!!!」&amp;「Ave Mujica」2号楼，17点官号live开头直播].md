@@ -1471,3 +1471,20 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  EBe  
+##### 16422#       发表于 2024-4-30 10:27
+
+我这个海希推其实看完所有访谈后也不是很期待母鸡卡，因为感觉没多少塑造<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可能全要放游戏里了
+倒是很想看动画播出后官方到底能不能一碗水端平的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  EBe  
+##### 16423#       发表于 2024-4-30 10:30
+
+还有是突然明白为啥少歌这么多真昼厨讨厌迫害梗了，看多了自家推被当垫子和乐子的确让人火大<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

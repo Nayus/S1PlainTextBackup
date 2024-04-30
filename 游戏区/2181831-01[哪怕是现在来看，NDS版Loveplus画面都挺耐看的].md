@@ -471,3 +471,13 @@ retro玩家全都精神失常的又一力证<img src="https://static.saraba1st.c
 
  哪怕你说3ds版的我都能理解
 
+
+*****
+
+####  黑茶子  
+##### 43#       发表于 2024-4-30 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64757392&amp;ptid=2181831" target="_blank">superkin185 发表于 2024-4-29 09:36</a>
+正在玩，画面能接受</blockquote>
+玩家名字取BBC可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

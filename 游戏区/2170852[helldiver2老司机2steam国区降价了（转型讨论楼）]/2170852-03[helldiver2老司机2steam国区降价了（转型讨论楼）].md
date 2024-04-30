@@ -6729,3 +6729,12 @@ QQ截图20240429200420.jpg
 医疗和重装直接废了，现在版本之子是强袭和工程<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 在比烂方面，世外联邦和贱头气球真是一脉相承的好兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DawnGuardian  
+##### 3589#       发表于 2024-4-30 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64770022&amp;ptid=2170852" target="_blank"> smdzh2 发表于 2024-4-30 11:41</a> 引用:Launce 发表于 2024-4-30 12:24 发出实弹武器的超级气球脉冲吗 隔壁也是贵物了，换虚幻5优化爆炸就算了，职业重做就是专精 ... 医疗和重装直接废了，现在版本之子是强袭和工程 在比烂方面，世外联邦和贱头气球真是一脉相承的好兄弟 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这年头的主流gass游戏运营基本就是互相比烂，我就没见过几家能保住亲马的，可能也就岩深的鬼船好一点来自: iPhone客户端
+

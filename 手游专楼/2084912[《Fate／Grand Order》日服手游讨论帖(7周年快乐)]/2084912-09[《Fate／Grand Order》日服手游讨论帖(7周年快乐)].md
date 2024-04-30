@@ -5295,3 +5295,13 @@ iphone XR
 
 我其实不太看得起限时本的收益……每次都只打3次就收手了
 
+
+*****
+
+####  quanlix  
+##### 12490#       发表于 2024-4-30 11:58
+
+限时本我都是当qp本刷的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

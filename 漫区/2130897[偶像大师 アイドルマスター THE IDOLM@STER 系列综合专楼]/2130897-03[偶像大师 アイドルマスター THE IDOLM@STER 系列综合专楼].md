@@ -7190,3 +7190,14 @@ saki明天就要发动反攻了
 
 P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
+
+*****
+
+####  rgauss  
+##### 3660#       发表于 2024-4-30 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776076&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-4-30 21:08</a>
+
+你们柏油真的疯了，这次活动强度和masterpiece感觉是一样的，半天你们柏油打20w和发疯了一样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这活动一堆人屯了不少道具
+

@@ -2220,3 +2220,18 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 2nd是只能抽第一场吗</blockquote>
 一張票只能抽1場，看你想抽神奈川還是愛知，可選
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16489#       发表于 2024-4-30 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776033&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-4-30 21:03</a>
+
+一个不擅长说话 一个不擅长听别人说话
+
+要互相学习弥补包容的感觉吧 有一定成长性（）
+
+还有很经典的所谓“ ...</blockquote>
+有理有据（）
+

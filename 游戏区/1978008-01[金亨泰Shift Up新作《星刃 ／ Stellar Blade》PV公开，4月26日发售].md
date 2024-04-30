@@ -5689,3 +5689,16 @@ evc40
 老是到打boss出紫光弱点才发现没子弹</blockquote>
 紫色技暴弱点我都留个三角蓄力直接上去劈，懒得瞄准
 
+
+*****
+
+####  RinC  
+##### 1277#       发表于 2024-5-1 03:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778337&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-1 02:12</a>
+
+子弹不随着休息恢复真是难绷
+
+老是到打boss出紫光弱点才发现没子弹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他不是免费补的就算了，甚至没有仁王那种额外子弹存仓库里的系统，每次打完都得记着去贩卖机补
+

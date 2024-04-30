@@ -2148,3 +2148,17 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Суслов  
+##### 16483#       发表于 2024-4-30 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775415&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-4-30 19:54</a>
+这俩又是怎么写到一起的（）
+有些CP我也没搞懂怎么磕起来的，爱祥就算了，爱睦这俩人都没见过面的都能磕 ...</blockquote>
+也许是那个爱睦灵魂互换的视频给的灵感
+而且爱x的cp怎么说呢，我觉得跟手里拿着锤子看谁都是钉子差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

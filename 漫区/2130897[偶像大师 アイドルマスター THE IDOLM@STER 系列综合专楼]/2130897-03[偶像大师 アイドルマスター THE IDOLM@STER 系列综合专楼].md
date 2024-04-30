@@ -7148,3 +7148,13 @@ saki明天就要发动反攻了
 
 小黄是真的很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三度音  
+##### 3655#       发表于 2024-4-30 20:15
+
+<blockquote>麻巳巳 发表于 2024-4-30 18:22
+看有p发现校庆日好像是5月16日，先奶一个16号开服</blockquote>
+闪彩18年在4月21（谐音shiny）前针对性地搞了不少预热活动，结果是4月28开服
+

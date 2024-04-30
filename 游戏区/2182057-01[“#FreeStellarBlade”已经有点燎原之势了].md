@@ -723,3 +723,56 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 有lgbt不玩，有zzzq不玩
 
+
+*****
+
+####  垃圾网站上  
+##### 65#       发表于 2024-4-30 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775155&amp;ptid=2182057" target="_blank">ky7913 发表于 2024-4-30 19:27</a>
+剑星现在每天1000多的速度在涨，同样是demo评价不错的ff16销量300万评价好像只有2.3万 ...</blockquote>
+商店评分系统是去年9月底上的，那个时候ff16已经发售3个月。。。
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ironman_mk5  
+##### 66#       发表于 2024-4-30 20:12
+
+<blockquote>uponutopia 发表于 2024-4-30 19:09
+这游戏在泥潭有三层debuff，很多人早就看不顺眼了 。第一是棒子做的游戏，越是精日的人反而越瞧不起 ...</blockquote>
+金在ign访谈说日韩在二次元美少女这赛道卷不过中国手游，所以韩国应坚持走自己特色的油腻路线
+
+*****
+
+####  qwwsong  
+##### 67#       发表于 2024-4-30 20:12
+
+所以是和谐补丁是谁要求的
+
+和谐前和PS5上的DOA比是什么水平
+
+*****
+
+####  垃圾网站上  
+##### 68#       发表于 2024-4-30 20:13
+
+ 本帖最后由 垃圾网站上 于 2024-4-30 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775317&amp;ptid=2182057" target="_blank">病態極端 发表于 2024-4-30 19:42</a>
+明明金亨泰自己都說加布料是不得已而為之了，為啥還能有人支持加布料，難以理解。
+
+ ...</blockquote>
+金亨泰只说了一句我们已经注意到这事情(网上的讨论)，从来就没说过为什么要改，国内造谣越来越离谱
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rainwedell  
+##### 69#       发表于 2024-4-30 20:15
+
+ 本帖最后由 Rainwedell 于 2024-4-30 20:17 编辑 
+
+评分没炸吧，因为去掉那几套别的服装设计也确实屌，我玩着还是挺开心的，这游戏我又不是冲它反zzzq来的，日服拿下450左右，去掉rsq素质也还可以，优化，战斗系统和ps5手柄适配都相当合格，反倒是觉得这游戏除了色一无是处的言论看的有点蒙
+

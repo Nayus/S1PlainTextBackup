@@ -7217,3 +7217,25 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 太君们黄金周捏，游戏活动想打看看情况要不要请假吧。
 
+
+*****
+
+####  枫紫  
+##### 3663#       发表于 2024-4-30 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776409&amp;ptid=2130897" target="_blank">再三忘记账号 发表于 2024-4-30 21:46</a>
+
+太君们黄金周捏，游戏活动想打看看情况要不要请假吧。</blockquote>
+有没有可能鬼子们的黄金周是5月3号开始，你们现在嘴里的太君是今天开始放假的国人
+
+
+*****
+
+####  再三忘记账号  
+##### 3664#       发表于 2024-4-30 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776436&amp;ptid=2130897" target="_blank">枫紫 发表于 2024-4-30 21:50</a>
+
+有没有可能鬼子们的黄金周是5月3号开始，你们现在嘴里的太君是今天开始放假的国人 ...</blockquote>
+我有人讨论从昭和日开始休假，之后直接请假到5月2日，我看了是怕了
+

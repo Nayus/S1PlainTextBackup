@@ -2002,3 +2002,29 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773326&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-30 16:34</a></blockquote>
 难得没p成外星人
 
+
+*****
+
+####  cindy355  
+##### 16471#       发表于 2024-4-30 17:08
+
+<img src="https://img.saraba1st.com/forum/202404/30/170745z80f0lkj8gtpkfg1.png" referrerpolicy="no-referrer">
+
+<strong>GMZQ-aQbAAAMTpt.png</strong> (908.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/170755kczevl373oowiw77.png" referrerpolicy="no-referrer">
+
+<strong>[YUUKDPIJI1J0ON5AOVRJ$S.png</strong> (63.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 17:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">真好看
+
+怎么发不出来大图
+

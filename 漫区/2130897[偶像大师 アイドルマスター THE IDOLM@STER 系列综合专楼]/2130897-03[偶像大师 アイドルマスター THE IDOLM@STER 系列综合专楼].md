@@ -7021,3 +7021,19 @@ image.png
 这个黄的，还有P
 全是顶级串子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 3641#       发表于 2024-4-30 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哎哟太恋爱喜剧了，别说偶像大师了。感觉市面的别手游卖恋爱要素都没有这么恋爱喜剧
+
+
+*****
+
+####  rgauss  
+##### 3642#       发表于 2024-4-30 18:33
+
+都是顶级搞子
+

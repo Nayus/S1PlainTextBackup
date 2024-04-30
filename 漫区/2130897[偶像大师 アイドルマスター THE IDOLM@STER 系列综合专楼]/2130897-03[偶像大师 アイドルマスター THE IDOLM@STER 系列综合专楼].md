@@ -7055,3 +7055,14 @@ image.png
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  kirakira~  
+##### 3645#       发表于 2024-4-30 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774695&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-4-30 18:40</a>
+
+小组里唯一的常识人挺搞的，把自己赌在p身上后莫名其妙被卷入麻烦团伙，还得先比赛才能建成小组，倒霉透了 ...</blockquote>
+小红：一听到要和同学比赛我就高兴，入学考试算什么比赛？
+

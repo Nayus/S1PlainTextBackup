@@ -6516,3 +6516,23 @@ QQ截图20240429200420.jpg
 
 砍都是对半砍起步，buff就是找一堆垃圾到完全没人用的武器加5点伤害就完事了。这就是我们的瑞典原神啊
 
+
+*****
+
+####  狂风DKC  
+##### 3569#       发表于 2024-4-30 08:27
+
+孝子经典语录:我家爹爹虽然bug修完一个冒一个平衡性瞎jb改磨洋工但是爹爹罪己诏了你们不能说我家爹爹坏话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  大肥鸽子  
+##### 3570#       发表于 2024-4-30 08:31
+
+电喷真加强了啊，看来我也是预言家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

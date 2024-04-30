@@ -5191,3 +5191,39 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 钓鱼这环节真的是坑比一样体验<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 钓了几小时，才15/20
 
+
+*****
+
+####  彩虹肥宅  
+##### 1228#       发表于 2024-4-30 08:29
+
+炮台怪根本就不能背刺，和钻地的那个算是目前最恶心的小怪了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clyde-wang  
+##### 1229#       发表于 2024-4-30 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767880&amp;ptid=1978008" target="_blank">彩虹肥宅 发表于 2024-4-30 08:29</a>
+炮台怪根本就不能背刺，和钻地的那个算是目前最恶心的小怪了
+
+—— 来自 OPPO PGJM10, Android 14上 ...</blockquote>
+但是炮台怪脆啊，冲刺然后连击重击就死了，我进度是打完了那个死亡空间关卡
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  彩虹肥宅  
+##### 1230#       发表于 2024-4-30 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767901&amp;ptid=1978008" target="_blank">clyde-wang 发表于 2024-4-30 08:32</a>
+但是炮台怪脆啊，冲刺然后连击重击就死了，我进度是打完了那个死亡空间关卡
+
+—— 来自 samsung SM-S9280 ...</blockquote>
+大沙漠的怪硬度全都up<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

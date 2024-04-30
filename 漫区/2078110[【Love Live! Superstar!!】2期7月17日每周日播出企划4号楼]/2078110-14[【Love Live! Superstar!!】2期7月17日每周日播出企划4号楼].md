@@ -1832,3 +1832,13 @@ Liyuu 5thSG「No Complete」8/28(三)发售决定！
 8月底机票定好了</blockquote>
 横K？
 
+
+*****
+
+####  lj205  
+##### 20118#       发表于 2024-4-30 08:33
+
+<blockquote>csolfans 发表于 2024-4-30 01:05
+横K？</blockquote>
+不是，鱼最后那周刚好几个新单宣传活动
+

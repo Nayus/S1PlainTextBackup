@@ -1585,3 +1585,21 @@ mygo到底是日文还是英文意思
 
 还有拿真昼比的，真昼第五集个人回就走出来不搞单箭头了，立希要走出来不知道还要等几年手游，不过总比等第二季要现实，我看不少立希厨宁愿第二季不出场，都不要像第一季那样出来专门垫脚
 
+
+*****
+
+####  御幸一也  
+##### 16432#       发表于 2024-4-30 12:54
+
+看點獸耳<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/30/125409sokjqazqk9vjs2sz.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240429-132903_1784937946812190807_photo.jpg</strong> (130.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 12:54 上传
+
+[https://twitter.com/Rainy_NEGI/status/1784937946812190807](https://twitter.com/Rainy_NEGI/status/1784937946812190807)
+

@@ -1975,3 +1975,30 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点 ...</blockquote>
 看到有提到鼓手作曲实际上是有debuff的，只能说立希非常努力和倔强，但是鼓手作曲比键盘手/吉他手作曲难这点恐怕也不会有多少人在意。
 
+
+*****
+
+####  PDQ4  
+##### 16468#       发表于 2024-4-30 17:00
+
+我还挺喜欢立希是努力家这个设定，天生对劳苦人会有好感。
+
+只可惜好像并没有太多表现
+
+提前贷款手游立希会累倒好吧，来点样板戏。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 16469#       发表于 2024-4-30 17:03
+
+立希也是拿键盘作曲——然后乐队双吉它，一个不会说话，一个除了说话啥都不会，换谁都绝望，把那三个踢了和灯组个凤凰传奇的难度比这低多了
+
+*****
+
+####  豚厨二象性  
+##### 16470#       发表于 2024-4-30 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773326&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-30 16:34</a></blockquote>
+难得没p成外星人
+

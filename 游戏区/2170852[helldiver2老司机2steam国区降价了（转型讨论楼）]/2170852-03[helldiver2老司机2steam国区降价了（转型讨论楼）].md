@@ -6989,3 +6989,14 @@ QQ截图20240429200420.jpg
 箭畜魅力时刻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢在DC喷的都吃BAN了，能不和谐一家人吗
 
+
+*****
+
+####  Mr.Hopp  
+##### 3616#       发表于 2024-4-30 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773024&amp;ptid=2170852" target="_blank">Launce 发表于 2024-4-30 16:08</a>
+
+敢在DC喷的都吃BAN了，能不和谐一家人吗</blockquote>
+我看贴吧孝子说是玩家人身攻击大胡子大胡子才说得那番话，而且指的是攻击他的人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

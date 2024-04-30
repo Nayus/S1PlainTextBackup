@@ -7167,3 +7167,11 @@ QQ截图20240429200420.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打虫子打的太难受直接开始卡无限手雷bug，一下就舒服了，炸tmd，3红+筒子平时就一直丢雷攻点扔战备完事
 
+
+*****
+
+####  IWS2000  
+##### 3636#       发表于 2024-5-1 00:47
+
+卡无畏雷还是晕雷舒服，牛牛都死得好惨
+

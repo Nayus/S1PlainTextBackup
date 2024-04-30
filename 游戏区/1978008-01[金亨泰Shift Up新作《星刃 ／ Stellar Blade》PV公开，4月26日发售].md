@@ -5182,3 +5182,12 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  startea15  
+##### 1227#       发表于 2024-4-30 07:53
+
+钓鱼这环节真的是坑比一样体验<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+钓了几小时，才15/20
+

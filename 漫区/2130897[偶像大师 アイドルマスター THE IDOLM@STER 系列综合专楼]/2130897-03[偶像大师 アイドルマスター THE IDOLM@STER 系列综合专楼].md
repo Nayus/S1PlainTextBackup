@@ -7158,3 +7158,11 @@ saki明天就要发动反攻了
 看有p发现校庆日好像是5月16日，先奶一个16号开服</blockquote>
 闪彩18年在4月21（谐音shiny）前针对性地搞了不少预热活动，结果是4月28开服
 
+
+*****
+
+####  lyz1196  
+##### 3656#       发表于 2024-4-30 20:20
+
+这下不得不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

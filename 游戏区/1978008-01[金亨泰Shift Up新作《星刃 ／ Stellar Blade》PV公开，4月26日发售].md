@@ -5599,3 +5599,13 @@ evc40
 如果你一周目想达成满收集结局和这个结局,直接牵手满收集结局拿到后, 演 ...</blockquote>
 我看到有些人说什么如果之前BOSS战死过就不行，有这种弱智要求吗？真不想为了这个搞云存档
 
+
+*****
+
+####  Rainwedell  
+##### 1268#       发表于 2024-4-30 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773468&amp;ptid=1978008" target="_blank">光焰天下第一 发表于 2024-4-30 16:47</a>
+请教下各位大佬，处决动画好像有好几版，能自主选择么，还是特定的</blockquote>
+不能选，目前看像是怪物特定
+

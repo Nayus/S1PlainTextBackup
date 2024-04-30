@@ -5702,3 +5702,14 @@ evc40
 老是到打boss出紫光弱点才发现没子弹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他不是免费补的就算了，甚至没有仁王那种额外子弹存仓库里的系统，每次打完都得记着去贩卖机补
 
+
+*****
+
+####  jacket  
+##### 1278#       发表于 2024-5-1 05:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778528&amp;ptid=1978008" target="_blank">RinC 发表于 2024-5-1 03:50</a>
+
+他不是免费补的就算了，甚至没有仁王那种额外子弹存仓库里的系统，每次打完都得记着去贩卖机补 ...</blockquote>
+补给品和手雷都有仓库储备功能，子弹没有可能是漏了
+

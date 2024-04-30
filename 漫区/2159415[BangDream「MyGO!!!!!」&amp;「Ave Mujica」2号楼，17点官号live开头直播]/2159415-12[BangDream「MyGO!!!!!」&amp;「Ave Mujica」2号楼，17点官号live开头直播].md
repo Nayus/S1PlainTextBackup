@@ -2069,3 +2069,24 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773326&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-4-30 16:34</a></blockquote>
 居然能看到梦以发能看的地球人照片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16476#       发表于 2024-4-30 19:05
+
+说起来写立希二创的话有什么好点子吗<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SakuraのOrigami  
+##### 16477#       发表于 2024-4-30 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774948&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-30 19:05</a>
+说起来写立希二创的话有什么好点子吗</blockquote>
+音乐性的追求（？）
+劣等感之类的可能挺多人写的很多导致有点cliche（）🤔
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

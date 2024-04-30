@@ -572,3 +572,40 @@ zzzq确实是傻逼，你的味也有点冲了。买的号？</blockquote>
 兄弟这点是你不懂了，那个24小时100万的出处是一个叫Zuby_Tech的纯血主机战士，整天以吹索尼为己任，似乎FF ...</blockquote>
 你先说一下暴死的标准是多少
 
+
+*****
+
+####  uponutopia  
+##### 51#       发表于 2024-4-30 19:09
+
+这游戏在泥潭有三层debuff，很多人早就看不顺眼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 。第一是棒子做的游戏，越是精日的人反而越瞧不起棒子 第二金恒泰的韩式美术风格，天生和日式萌二审美取向相左，第三是索尼发行的PS5游戏。不是在反正确的风口这游戏在泥潭的口碑会更差
+
+*****
+
+####  Mr.Hopp  
+##### 52#       发表于 2024-4-30 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774907&amp;ptid=2182057" target="_blank">icylight 发表于 2024-4-30 18:59</a>
+
+日本亚马逊的销量排行，星刃第一名，这个能反应销量吗？不懂就问</blockquote>
+这排第一估计也就2、3w销量吧，之前记得FF16也排过第一，这第一的销量也就2w 到3W。
+
+
+*****
+
+####  首领  
+##### 53#       发表于 2024-4-30 19:12
+
+啊
+
+ZZZQ几个E的生意才出20K买头
+
+这帮人这辈子也就这水准了
+
+*****
+
+####  依存香炉  
+##### 54#       发表于 2024-4-30 19:14
+
+psn上这游戏评价22K 4.79分；ff7rb 29K评价
+

@@ -6779,3 +6779,15 @@ qa特有的报菜名环节
 
 对某些物种来说圈地是本能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3617#       发表于 2024-4-30 08:19
+
+感觉都像是偶像学校会教的课程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老师:“同学们，注意了。要当偶像就要学会多头恰营业。现在打开你们的课本，我们本学期偶像营业课题分三部分。第一部分是打造卑女雌竞pl形象养gachi媚宅男，第二部分是选取同事来进行贴贴百合营业养cp粉媚河豚，第三部分是锻炼唱跳，塑造独立大女人专注偶像事业形象，对男人和同事都没兴趣，不穿漏肉服装来媚集美和事业粉”<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

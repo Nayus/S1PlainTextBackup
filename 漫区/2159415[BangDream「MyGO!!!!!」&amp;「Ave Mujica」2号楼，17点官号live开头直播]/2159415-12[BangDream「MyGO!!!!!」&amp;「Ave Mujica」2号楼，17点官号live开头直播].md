@@ -1379,3 +1379,21 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 也可以，当立希不存在其实也关系不大</blockquote>
 草，我说的是当羊宫不存在。
 
+
+*****
+
+####  AraTurambar  
+##### 16412#       发表于 2024-4-30 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767771&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-4-30 08:11</a>
+
+草，我说的是当羊宫不存在。</blockquote>
+羊宫怎么当不存在法……
+
+*****
+
+####  DarthAka  
+##### 16413#       发表于 2024-4-30 08:26
+
+羊会营业/健身/练歌虽然约等于零，但都比立希剧情里翻身的可能大……
+

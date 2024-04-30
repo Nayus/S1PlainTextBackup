@@ -6917,3 +6917,36 @@ ca7464d6d05794efaafcdf6018017f21.jpg
 5/1的音乐news会公开个人曲吗？8号应该是实机游玩了吧，2号生放是什么？
 希望五月中旬能开服
 
+
+*****
+
+####  篠澤広  
+##### 3632#       发表于 2024-4-30 17:29
+
+ひたすら回復。死なないように、がんばってる
+
+*****
+
+####  Vacuolar  
+##### 3633#       发表于 2024-4-30 17:36
+
+每次到了春香一定会出来的四格画师
+
+559fbc0e20cd0afd3314cdabd2d222fc.jpg
+(871.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/173534d1zgcyrlyycvede8.jpg" referrerpolicy="no-referrer">
+
+dbbd1c02736756d467b6cd398083e70b.jpeg
+(760.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202404/30/173546u6zy808068iacjjy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

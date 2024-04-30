@@ -5617,3 +5617,25 @@ evc40
 
 这沙漠的怪让人觉得火大，，，这游戏什么动作都喜欢加个大硬值给你，被怪围殴没任何反击手段，技能都开不了
 
+
+*****
+
+####  Wubaba  
+##### 1270#       发表于 2024-4-30 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775818&amp;ptid=1978008" target="_blank">lazycat233 发表于 2024-4-30 20:38</a>
+这沙漠的怪让人觉得火大，，，这游戏什么动作都喜欢加个大硬值给你，被怪围殴没任何反击手段，技能都开不了 ...</blockquote>
+更可恶的是好不容易在怪堆里走出来然后陷进流沙莫名其妙死掉
+
+
+*****
+
+####  rainsheep  
+##### 1271#       发表于 2024-4-30 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64775486&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-4-30 20:00</a>
+第二条脊椎啥时候解锁啊</blockquote>
+找完第三块电池回来
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

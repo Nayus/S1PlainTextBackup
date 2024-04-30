@@ -1461,3 +1461,13 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 
 立希推还是期待游戏剧情吧，至少保底2个cp，不算纯底边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 16421#       发表于 2024-4-30 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我早已放弃抵抗
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

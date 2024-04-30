@@ -5713,3 +5713,26 @@ evc40
 他不是免费补的就算了，甚至没有仁王那种额外子弹存仓库里的系统，每次打完都得记着去贩卖机补 ...</blockquote>
 补给品和手雷都有仓库储备功能，子弹没有可能是漏了
 
+
+*****
+
+####  lucky95  
+##### 1279#       发表于 2024-5-1 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778434&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-1 02:46</a>
+紫色技暴弱点我都留个三角蓄力直接上去劈，懒得瞄准</blockquote>
+我大部分情况都是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1280#       发表于 2024-5-1 07:26
+
+荒土日照塔那个解密怎样破啊
+
+玩到沙漠了还是找不到第四台机器<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

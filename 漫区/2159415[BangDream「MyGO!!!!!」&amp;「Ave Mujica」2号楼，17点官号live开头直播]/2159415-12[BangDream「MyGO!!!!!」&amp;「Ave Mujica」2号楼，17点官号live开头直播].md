@@ -2285,3 +2285,19 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 才发现把送BD抽选券的事给忘了，那个券什么时候截止<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 16495#       发表于 2024-4-30 22:51
+
+ 本帖最后由 Aendst 于 2024-4-30 22:53 编辑 
+
+也没什么，都是可以通过动画已有内容推测到的
+
+祥子觉得没必要进去看live，她的目的是来办事这一点动画里明说过，不知道什么时候结束总不能一直站门口干等着，进去等是很普通的判断
+
+比较有意思的其实是祥子对live没兴趣的同时睦也是无感情地看live的，再就是锤了祥子跑出门之后睦一直在往祥子的方向看，没有回头看live<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两个地方
+
+其他没什么讨论价值吧，都是轮回级的
+

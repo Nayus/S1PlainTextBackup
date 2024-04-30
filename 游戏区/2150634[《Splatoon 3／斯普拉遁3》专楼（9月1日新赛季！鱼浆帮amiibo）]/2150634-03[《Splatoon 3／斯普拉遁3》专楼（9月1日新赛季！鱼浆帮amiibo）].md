@@ -12744,3 +12744,14 @@ RKH4-PQJW-JMRC-HM0J
 
 尽管从数据上看是除了鼹鼠以外击杀数最多的了，但是绿帽总是出现关键的处理失误，比如开飞机打不中，牙刷打不到，文森特打不到，其他各种漏枪
 
+
+*****
+
+####  罗克萨斯  
+##### 4243#       发表于 2024-4-30 22:47
+
+努力养成激烈对战中保存集锦的习惯，顺便放下今晚让我得瑟的两次对枪（依然-2.0感度）
+
+<img src="https://s1.locimg.com/2024/04/30/a6e4bc4a59e67.gif" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/04/30/26a7961eba9df.gif" referrerpolicy="no-referrer">
+

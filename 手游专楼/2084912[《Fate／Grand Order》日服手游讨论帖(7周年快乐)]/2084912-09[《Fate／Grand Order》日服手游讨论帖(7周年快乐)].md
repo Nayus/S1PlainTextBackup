@@ -5468,3 +5468,16 @@ iphone XR
 
 今次新的FREE關，追加的敵人都是一起出來，職階也是一樣
 
+
+*****
+
+####  DARKGRAY  
+##### 12507#       发表于 2024-4-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776757&amp;ptid=2084912" target="_blank">eilot 发表于 2024-4-30 22:25</a>
+
+是否真是被玩家罵得太多
+
+今次新的FREE關，追加的敵人都是一起出來，職階也是一樣 ...</blockquote>
+资料室开始就是一起出来了
+

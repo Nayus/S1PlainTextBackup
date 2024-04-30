@@ -12778,3 +12778,15 @@ RKH4-PQJW-JMRC-HM0J
 
 —— 来自 vivo V2232A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 4246#       发表于 2024-5-1 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64777895&amp;ptid=2150634" target="_blank">菲泽k 发表于 2024-5-1 00:40</a>
+你这两段说实话都是先看到对方且对方靠近前开射，以中加跟小枪差不多的kt，做到并不难。说白了你占先机和 ...</blockquote>
+其实有很多比这更极限的，比如被绕后击中一枪时180度转向反杀的、雷神步躲枪线后最小半蓄击杀的，怕影响战局都不敢把手指挪截图键
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

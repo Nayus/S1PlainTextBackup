@@ -2261,3 +2261,11 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 小睦第二季还有戏份，立希我看是没啥东西了（悲观主义者.jpg）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 16492#       发表于 2024-4-30 22:13
+
+别处看到有人讨论第七话的分镜，原来祥子本来不打算进去听歌，是睦提出来先进去等的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

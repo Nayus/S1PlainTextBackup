@@ -5435,3 +5435,18 @@ iphone XR
 那些分日子的讨伐战后几天都流畅的很
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12504#       发表于 2024-4-30 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776313&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-30 21:35</a>
+
+不知道是不是错觉，今天服务器状态超好，刷本无障碍，不像前几天疯狂跑狗 ...</blockquote>
+伺服器半死經常要芙芙長跑都算，還要手機發熱得好恐怖
+
+要強制關機重啟，稍待一會才正常
+
+但活動完了劇情後就沒甚麼事
+

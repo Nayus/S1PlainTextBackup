@@ -5665,3 +5665,14 @@ evc40
 
 没想到ign这个服装攻略整理得还挺好的
 
+
+*****
+
+####  lucky95  
+##### 1275#       发表于 2024-5-1 02:12
+
+子弹不随着休息恢复真是难绷
+老是到打boss出紫光弱点才发现没子弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

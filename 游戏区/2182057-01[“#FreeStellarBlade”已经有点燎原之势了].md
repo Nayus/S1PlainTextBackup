@@ -924,3 +924,13 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 有丑逼不玩，我就这一个态度
 
+
+*****
+
+####  lucky95  
+##### 84#       发表于 2024-5-1 02:13
+
+兔女郎没沟看确实差点意思
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

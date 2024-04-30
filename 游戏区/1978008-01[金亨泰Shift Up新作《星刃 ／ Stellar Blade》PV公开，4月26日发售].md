@@ -5468,3 +5468,14 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 同词条的拆件带两件生效吗，例如带一个beta充能8%和beta充能6%</blockquote>
 生效
 
+
+*****
+
+####  粉刷月季  
+##### 1255#       发表于 2024-4-30 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64773415&amp;ptid=1978008" target="_blank">光焰天下第一 发表于 2024-4-30 16:41</a>
+
+然后就触发了技能，建议洗点，不学那个技能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">那不行，这技能感觉挺厉害
+

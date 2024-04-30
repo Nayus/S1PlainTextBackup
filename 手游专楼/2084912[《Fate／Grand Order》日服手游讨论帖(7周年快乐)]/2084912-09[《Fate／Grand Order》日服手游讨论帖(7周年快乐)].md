@@ -5356,3 +5356,31 @@ iphone XR
 
 如之前楼上老兄所说，如果N年前你说魔法使和魔女直系的限定卡比免费的未出师暗杀拳弱我是绝对不信的。但看了看和性能与美术不配的成绩，只能说蘑菇和友人们很懂玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12497#       发表于 2024-4-30 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771580&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-4-30 14:08</a>
+
+看隔壁讨论说青子变身的buff能被强化解除给解除掉是真的吗</blockquote>
+現在主線劇情的BOSS，每條血槽總會上一大堆自己不能解的BUFF，和幫玩家上一大堆NERF和解除強化，那不是直接變成笑話嗎?
+
+至於B卡和EX全體攻擊會大幅弱化，基本上也是預期之內，
+
+這些卡就算做來給BOSS版用
+
+
+*****
+
+####  シャル  
+##### 12498#       发表于 2024-4-30 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771988&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-4-30 14:42</a>
+
+想推b和ex全体化，然后效果给你砍一半，相当于b和ex打啥都是蓝字，也是莫名其妙 ...</blockquote>
+打八折可以接受
+
+五折这种搞啥呢
+

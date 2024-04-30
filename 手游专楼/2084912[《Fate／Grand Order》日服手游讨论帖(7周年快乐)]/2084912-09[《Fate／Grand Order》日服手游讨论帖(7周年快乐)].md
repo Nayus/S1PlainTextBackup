@@ -5348,3 +5348,11 @@ iphone XR
 
 想推b和ex全体化，然后效果给你砍一半，相当于b和ex打啥都是蓝字，也是莫名其妙
 
+
+*****
+
+####  cenhr  
+##### 12496#       发表于 2024-4-30 16:04
+
+如之前楼上老兄所说，如果N年前你说魔法使和魔女直系的限定卡比免费的未出师暗杀拳弱我是绝对不信的。但看了看和性能与美术不配的成绩，只能说蘑菇和友人们很懂玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

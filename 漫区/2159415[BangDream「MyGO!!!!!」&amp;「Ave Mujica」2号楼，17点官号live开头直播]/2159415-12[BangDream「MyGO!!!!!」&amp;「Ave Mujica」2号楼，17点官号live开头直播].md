@@ -1797,3 +1797,44 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点 ...</blockquote>
 其实立希还有个圈外评价高人气也不低的影色舞，不过我有点担心这首歌又开除立希作曲籍，上次回层浮风评不错然后访谈来了句这首歌可能是灯的幻想真给我绷不住了（幸好迷子集会都盖章了一遍是立希写，只能感谢鼓小姐尽力RP了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 16453#       发表于 2024-4-30 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772528&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-4-30 15:24</a>
+
+rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是占了yoshiki的位置。但是MyGO最出圈也是最重点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不谈作曲都好说，一谈作曲没得聊了，这设定上的作曲这个身份剧情上没有任何表现，汪吧都不认啊，我早说立希的作曲能力和副队长职责都是用来找补的设定盾罢了，外面大把go批觉得其他人剧情上的高光归角色本身，而立希的作曲只是个设定呢。哪怕没当作设定，都还有人跟神金一样来一句“C团春日影就是比go团春日影好，立希果然还是不如祥子啊”呢，再聊作曲人爆了。
+
+
+*****
+
+####  御幸一也  
+##### 16454#       发表于 2024-4-30 16:03
+
+6573
+
+*****
+
+####  御幸一也  
+##### 16455#       发表于 2024-4-30 16:04
+
+比4299高就是勝利<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202404/30/160437uscddsi9s1wcirrw.png" referrerpolicy="no-referrer">
+
+<strong>f2157ef0f736afc3a3b9e859f519ebc4b7451234.png</strong> (190.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 16:04 上传
+
+*****
+
+####  笋干爆炸碱  
+##### 16456#       发表于 2024-4-30 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

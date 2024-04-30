@@ -5639,3 +5639,11 @@ evc40
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  suzakushi  
+##### 1272#       发表于 2024-4-30 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我吐了，战斗手感垃圾点我都能忍，跳跳乐手感垃圾我也忍了，强迫我玩生化是真的太恶心了，就没考虑过来买你动作游戏的人压根不喜欢玩射击？
+

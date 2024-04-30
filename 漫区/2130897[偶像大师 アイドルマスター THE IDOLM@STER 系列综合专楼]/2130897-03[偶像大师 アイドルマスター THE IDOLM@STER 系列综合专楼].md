@@ -7257,3 +7257,11 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 明天应该是放完整版live了后天像看着是放实机？
 
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3667#       发表于 2024-4-30 23:35
+
+这几天一直循环初，太好听了我要听完成版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

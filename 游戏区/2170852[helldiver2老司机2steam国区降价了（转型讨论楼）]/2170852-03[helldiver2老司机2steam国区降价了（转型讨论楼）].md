@@ -7126,3 +7126,19 @@ QQ截图20240429200420.jpg
 电喷算是虫子专精吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，多个电喷算是选择
 
+
+*****
+
+####  6x6z6w  
+##### 3632#       发表于 2024-4-30 23:49
+
+ 本帖最后由 6x6z6w 于 2024-4-30 23:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771260&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-4-30 13:32</a>
+
+为啥pve网游日常喜欢胡改啊，游戏内容产能太低所以要靠平衡来增加新鲜感吗
+
+—— 来自 OPPO PEAM00, ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">为了不让玩家整天打穿难9，刷素材刷到手软，还能怎么办，削呗
+
+这么一搞配合超级气球的lore还真是黑色幽默了，冻肉潜兵拿着超级气球分发的劣质武器在前线送命，高层和所有超级气球的拥护者还在小圈子里歌舞升平<img src="https://static.saraba1st.com/image/smiley/face2017/225.png" referrerpolicy="no-referrer">说一句不好都会被打成叛徒
+

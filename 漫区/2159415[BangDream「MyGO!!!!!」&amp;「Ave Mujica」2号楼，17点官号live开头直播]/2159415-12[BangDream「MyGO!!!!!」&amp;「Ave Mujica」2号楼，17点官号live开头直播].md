@@ -1838,3 +1838,32 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16457#       发表于 2024-4-30 16:06
+
+ 本帖最后由 PDQ4 于 2024-4-30 16:07 编辑 
+
+1单这特典都有6500，好好好，超出预期了好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  guughgh  
+##### 16458#       发表于 2024-4-30 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772252&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-30 15:01</a>
+
+立希的问题不只是戏份待遇……
+
+其实可以看出来，很多时候她能有更多高光，有更多表现魅力点的机会， ...</blockquote>
+还有一点先入为主的原因，立希在剧情开端的表现相对地不那么讨人喜欢，后续要把评价拉回来就比较困难<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 16459#       发表于 2024-4-30 16:07
+
+没东西几个月还能涨，不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

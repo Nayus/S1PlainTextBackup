@@ -6978,3 +6978,14 @@ QQ截图20240429200420.jpg
 
 离子喷和电喷感觉算是这版本好玩的武器，但是离子喷伤害好难看
 
+
+*****
+
+####  Launce  
+##### 3615#       发表于 2024-4-30 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772787&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-30 15:47</a>
+
+箭畜魅力时刻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢在DC喷的都吃BAN了，能不和谐一家人吗
+

@@ -5481,3 +5481,18 @@ iphone XR
 今次新的FREE關，追加的敵人都是一起出來，職階也是一樣 ...</blockquote>
 资料室开始就是一起出来了
 
+
+*****
+
+####  eilot  
+##### 12508#       发表于 2024-5-1 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64777056&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-4-30 22:55</a>
+
+资料室开始就是一起出来了</blockquote>
+對啊
+
+連續兩天都是一起來
+
+就看最後那批能否堅持下去
+

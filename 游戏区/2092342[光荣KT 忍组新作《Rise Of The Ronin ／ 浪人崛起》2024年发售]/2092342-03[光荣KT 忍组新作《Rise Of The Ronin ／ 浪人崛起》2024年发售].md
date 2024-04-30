@@ -142,3 +142,11 @@
 
 只是说初动销售比仁王系列好，不知道后续常买能到多少
 
+
+*****
+
+####  isa2456  
+##### 3158#       发表于 2024-5-1 00:02
+
+快通关了，打到后面好腻，石火完全弹不动，精力槽又短，鸟羽伏见那边斋藤一和新八还有大炮我都不知道做给谁玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

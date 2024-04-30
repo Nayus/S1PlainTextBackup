@@ -1647,3 +1647,36 @@ mygo到底是日文还是英文意思
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  cindy355  
+##### 16437#       发表于 2024-4-30 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">你们不要再说实话了我好难受。
+
+
+*****
+
+####  凡人  
+##### 16438#       发表于 2024-4-30 14:42
+
+还是那句话，利息厨期待换编剧吧，从种种迹象来看概率不小。
+
+*****
+
+####  御幸一也  
+##### 16439#       发表于 2024-4-30 14:43
+
+建議多滑滑，滑完就不難受了，像我昨天的都調理好了，今天又是期待有ave情報的一天<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+等下19:00會有新曲預告的對吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16440#       发表于 2024-4-30 14:46
+
+期待换编剧不如期待武士道炸了
+
+手游也不是动画组负责的，结果写得更迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个程度几乎可以确认是基础设定和武士道的问题了
+

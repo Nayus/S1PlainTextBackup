@@ -5331,3 +5331,20 @@ iphone XR
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定能啊 又没有框 这卡就突出一个爆笑
 
+
+*****
+
+####  miro112233  
+##### 12494#       发表于 2024-4-30 14:42
+
+隔壁有句话说的挺好，弱的卡处处有惊吓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  quanlix  
+##### 12495#       发表于 2024-4-30 14:42
+
+想推b和ex全体化，然后效果给你砍一半，相当于b和ex打啥都是蓝字，也是莫名其妙
+

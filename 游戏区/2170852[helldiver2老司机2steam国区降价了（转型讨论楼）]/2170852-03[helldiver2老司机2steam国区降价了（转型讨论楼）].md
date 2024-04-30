@@ -7193,3 +7193,18 @@ QQ截图20240429200420.jpg
 
 作为补偿会加强威力，因为不会失去拆哨站能力，所以这是一种加强。
 
+
+*****
+
+####  Awanano  
+##### 3638#       发表于 2024-5-1 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778012&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-1 01:01</a>
+这是说因为弹片反弹会击杀玩家所以要移除爆裂铳的弹片吗？
+
+作为补偿会加强威力，因为不会失去拆哨站能力 ...</blockquote>
+但是缺乏弹片溅射整个aoe能力都会差吧，还是说范围伤害是独立于弹片存在？
+有点幽默了，到头来该用什么枪呢？削完等新机票然后再发现有问题？每个月都这么来么
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

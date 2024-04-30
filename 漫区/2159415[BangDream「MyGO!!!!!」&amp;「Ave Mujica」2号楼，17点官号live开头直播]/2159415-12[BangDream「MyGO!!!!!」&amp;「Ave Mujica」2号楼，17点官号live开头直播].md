@@ -1680,3 +1680,11 @@ mygo到底是日文还是英文意思
 
 手游也不是动画组负责的，结果写得更迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个程度几乎可以确认是基础设定和武士道的问题了
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16441#       发表于 2024-4-30 14:48
+
+就我感觉还不错了吗，至少没给你奖励鼓手该有的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6738,3 +6738,13 @@ QQ截图20240429200420.jpg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64770022&amp;ptid=2170852" target="_blank"> smdzh2 发表于 2024-4-30 11:41</a> 引用:Launce 发表于 2024-4-30 12:24 发出实弹武器的超级气球脉冲吗 隔壁也是贵物了，换虚幻5优化爆炸就算了，职业重做就是专精 ... 医疗和重装直接废了，现在版本之子是强袭和工程 在比烂方面，世外联邦和贱头气球真是一脉相承的好兄弟 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这年头的主流gass游戏运营基本就是互相比烂，我就没见过几家能保住亲马的，可能也就岩深的鬼船好一点来自: iPhone客户端
 
+
+*****
+
+####  大肥鸽子  
+##### 3590#       发表于 2024-4-30 13:32
+
+为啥pve网游日常喜欢胡改啊，游戏内容产能太低所以要靠平衡来增加新鲜感吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

@@ -1426,3 +1426,22 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 
 立希在mujica赢麻论也只是立希厨自我安慰罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16417#       发表于 2024-4-30 08:53
+
+<blockquote>天子控 发表于 2024-4-30 08:43
+立希在mujica赢麻论也只是立希厨自我安慰罢了</blockquote>
+我怎么感觉见到的立希推对于立希未来塑造一个比一个悲观
+
+*****
+
+####  rikaren  
+##### 16418#       发表于 2024-4-30 08:54
+
+<blockquote>AraTurambar 发表于 2024-4-30 08:41
+当纯音乐乐队可不成，就昨天这个收音，我mygo到后半都想把耳塞塞上了…… ...</blockquote>
+草，忘了wsd逆天器械
+

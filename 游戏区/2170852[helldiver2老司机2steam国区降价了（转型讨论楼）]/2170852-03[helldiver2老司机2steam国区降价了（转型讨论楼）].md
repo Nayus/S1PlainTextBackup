@@ -7159,3 +7159,11 @@ QQ截图20240429200420.jpg
 
 今晚真是新手和卡逼的狂欢了，一晚上没正常打一把，进去不是一眼幽默配装秒退就是卡爆<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 3635#       发表于 2024-5-1 00:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打虫子打的太难受直接开始卡无限手雷bug，一下就舒服了，炸tmd，3红+筒子平时就一直丢雷攻点扔战备完事
+

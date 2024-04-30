@@ -12755,3 +12755,14 @@ RKH4-PQJW-JMRC-HM0J
 <img src="https://s1.locimg.com/2024/04/30/a6e4bc4a59e67.gif" referrerpolicy="no-referrer">
 <img src="https://s1.locimg.com/2024/04/30/26a7961eba9df.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 4244#       发表于 2024-5-1 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776990&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-30 22:47</a>
+
+努力养成激烈对战中保存集锦的习惯，顺便放下今晚让我得瑟的两次对枪（依然-2.0感度）</blockquote>
+对面仿佛就是去偷后排被反杀的我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

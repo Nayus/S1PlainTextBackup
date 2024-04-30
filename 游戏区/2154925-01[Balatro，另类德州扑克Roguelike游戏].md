@@ -43,3 +43,22 @@
 
 测试版更新了有中文了，建议直接测试版走起，高难度体验优化了不少
 
+
+*****
+
+####  泥潭办证先锋  
+##### 563#       发表于 2024-4-30 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64767493&amp;ptid=2154925" target="_blank">double8 发表于 2024-4-30 05:46</a>
+
+测试版更新了有中文了，建议直接测试版走起，高难度体验优化了不少</blockquote>
+啊？不是一直都自带中文的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202404/30/135919gd90j95f941h4o42.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (878.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-4-30 13:59 上传
+

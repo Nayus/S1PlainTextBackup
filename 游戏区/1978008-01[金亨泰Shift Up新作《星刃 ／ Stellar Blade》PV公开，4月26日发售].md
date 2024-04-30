@@ -5479,3 +5479,13 @@ QTE多但都不烦（SE学学人家做小游戏QTE吧<img src="https://static.sa
 然后就触发了技能，建议洗点，不学那个技能</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">那不行，这技能感觉挺厉害
 
+
+*****
+
+####  ky7913  
+##### 1256#       发表于 2024-4-30 17:55
+
+<blockquote>hokagokenjatime 发表于 2024-4-30 17:23
+这游戏 ps5 独占多久啊</blockquote>
+没宣布
+

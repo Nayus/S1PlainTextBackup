@@ -134,3 +134,11 @@
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  霖岚_  
+##### 3157#       发表于 2024-4-30 17:59
+
+只是说初动销售比仁王系列好，不知道后续常买能到多少
+

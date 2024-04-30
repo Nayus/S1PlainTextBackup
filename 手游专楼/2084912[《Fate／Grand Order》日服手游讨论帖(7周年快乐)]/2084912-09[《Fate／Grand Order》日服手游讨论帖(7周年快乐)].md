@@ -5402,3 +5402,15 @@ iphone XR
 
 1隻南丁格爾(NEW)
 
+
+*****
+
+####  シャル  
+##### 12501#       发表于 2024-4-30 20:48
+
+ 本帖最后由 シャル 于 2024-4-30 20:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">规则怪谈根本没用啊今天
+
+一力破十会，直接杀结界<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

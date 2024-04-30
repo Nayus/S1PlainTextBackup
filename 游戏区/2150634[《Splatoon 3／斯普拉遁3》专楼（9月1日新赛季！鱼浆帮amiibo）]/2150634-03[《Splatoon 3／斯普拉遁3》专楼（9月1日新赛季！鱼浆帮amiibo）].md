@@ -12766,3 +12766,15 @@ RKH4-PQJW-JMRC-HM0J
 努力养成激烈对战中保存集锦的习惯，顺便放下今晚让我得瑟的两次对枪（依然-2.0感度）</blockquote>
 对面仿佛就是去偷后排被反杀的我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  菲泽k  
+##### 4245#       发表于 2024-5-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776990&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-4-30 22:47</a>
+努力养成激烈对战中保存集锦的习惯，顺便放下今晚让我得瑟的两次对枪（依然-2.0感度）</blockquote>
+你这两段说实话都是先看到对方且对方靠近前开射，以中加跟小枪差不多的kt，做到并不难。说白了你占先机和对方太好预判，还是多努力吧。
+
+—— 来自 vivo V2232A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

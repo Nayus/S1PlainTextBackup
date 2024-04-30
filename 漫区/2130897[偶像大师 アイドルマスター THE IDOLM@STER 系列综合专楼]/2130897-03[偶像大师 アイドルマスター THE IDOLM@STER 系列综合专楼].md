@@ -7201,3 +7201,19 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 你们柏油真的疯了，这次活动强度和masterpiece感觉是一样的，半天你们柏油打20w和发疯了一样 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这活动一堆人屯了不少道具
 
+
+*****
+
+####  Thalassa  
+##### 3661#       发表于 2024-4-30 21:41
+
+小黄表情做的很好啊，配音也不错。光速上床，下一话dmm限定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再三忘记账号  
+##### 3662#       发表于 2024-4-30 21:46
+
+太君们黄金周捏，游戏活动想打看看情况要不要请假吧。
+

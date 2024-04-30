@@ -5414,3 +5414,24 @@ iphone XR
 
 一力破十会，直接杀结界<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 12502#       发表于 2024-4-30 21:35
+
+不知道是不是错觉，今天服务器状态超好，刷本无障碍，不像前几天疯狂跑狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 12503#       发表于 2024-4-30 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776313&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-4-30 21:35</a>
+不知道是不是错觉，今天服务器状态超好，刷本无障碍，不像前几天疯狂跑狗 ...</blockquote>
+你游的服务器向来都是这逼样
+估计是第一天看反应，第二天适当扩容
+
+那些分日子的讨伐战后几天都流畅的很
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

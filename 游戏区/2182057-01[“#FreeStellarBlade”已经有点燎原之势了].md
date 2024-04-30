@@ -798,3 +798,21 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  土狼菌  
+##### 72#       发表于 2024-4-30 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64774182&amp;ptid=2182057" target="_blank">缺德猫 发表于 2024-4-30 17:47</a>
+
+索尼要一直是宝宝巴士也就算了，独占各种血腥暴力，TLOU2的血腥程度堪称3A之最，而且还有漏点，哈草之类的 ...</blockquote>
+确实，当年看直播都给我看不适了
+
+*****
+
+####  naclken.  
+##### 73#       发表于 2024-4-30 20:40
+
+但是劳拉没有长这样过啊……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

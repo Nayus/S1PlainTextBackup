@@ -7090,3 +7090,39 @@ QQ截图20240429200420.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  白昼梦  
+##### 3628#       发表于 2024-4-30 22:28
+
+看了眼梗图，电弧现在又不能控无畏了吗
+
+
+*****
+
+####  白昼梦  
+##### 3629#       发表于 2024-4-30 22:30
+
+这次更新也算更新了个寂寞啊，看了眼西线也就1w人，东线10w人在打虫子，但是这次更新对东线又没太大变化，甚至dot的bug还没修。这波是更新内容跟重要指令配合的不是很好
+
+*****
+
+####  Mr.Hopp  
+##### 3630#       发表于 2024-4-30 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776826&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-4-30 22:30</a>
+
+这次更新也算更新了个寂寞啊，看了眼西线也就1w人，东线10w人在打虫子，但是这次更新对东线又没太大变化， ...</blockquote>
+电喷算是虫子专精吧
+
+*****
+
+####  白昼梦  
+##### 3631#       发表于 2024-4-30 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64776832&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-4-30 22:31</a>
+
+电喷算是虫子专精吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，多个电喷算是选择
+

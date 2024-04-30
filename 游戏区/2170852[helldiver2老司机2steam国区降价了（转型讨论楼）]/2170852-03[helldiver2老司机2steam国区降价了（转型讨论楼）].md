@@ -7246,3 +7246,16 @@ QQ截图20240429200420.jpg
 一句话就是箭头发现这东西功能性强的同时，还能清杂，于是就准备把清杂这个功能给削了
 以后就是爆裂铳是3穿机炮，大勤勉是3穿反器材，电喷是3穿旧版电弧射速的新版电弧
 
+
+*****
+
+####  Awanano  
+##### 3643#       发表于 2024-5-1 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778124&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-1 01:22</a>
+我认为aoe能力会下降，因为看他的意思，他对爆裂铳的定位就是三穿机炮，主要功能就是拆哨站用的，对aoe问 ...</blockquote>
+这种躲在dc传圣旨瞎改改和橙p的画饼自high哥有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+我陪兄弟玩是觉得这个游戏稍微可以视为l4d2，现在提鞋都不配啊，真的有爽点么？北欧杂碎对自己手底下这套武器系统设计思路能讲的明白么，混乱不堪连代码执行预期功能都做不好<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

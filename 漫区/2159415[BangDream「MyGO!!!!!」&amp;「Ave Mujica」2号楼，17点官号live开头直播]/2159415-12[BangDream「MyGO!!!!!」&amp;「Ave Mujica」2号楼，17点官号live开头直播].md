@@ -1453,3 +1453,11 @@ https://x.com/00Lagann/status/1784911287853727794<img src="https://p.sda1.dev/17
 
 赢麻论前提全看制作组重视，不然那些伏笔一笔带过也有可能，最后高光还是给别人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16420#       发表于 2024-4-30 09:51
+
+立希推还是期待游戏剧情吧，至少保底2个cp，不算纯底边了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

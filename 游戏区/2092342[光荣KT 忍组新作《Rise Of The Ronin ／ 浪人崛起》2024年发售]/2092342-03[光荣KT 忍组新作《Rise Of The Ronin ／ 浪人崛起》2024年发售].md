@@ -150,3 +150,32 @@
 
 快通关了，打到后面好腻，石火完全弹不动，精力槽又短，鸟羽伏见那边斋藤一和新八还有大炮我都不知道做给谁玩<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 3159#         楼主| 发表于 2024-5-1 02:20
+
+<img src="https://p.sda1.dev/17/8ba2bc4ea30b9a7b7f9b08f3511b19c4/ad1xp-qdg1y-028.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/61d4fedd6ae0b5e2d6017803234d2b1b/aiy0z-63n4w-028.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/7306cc70397a48b9ae38186334630dbd/ad1xp-qdg1y-029.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e0db4aca65b6af7150c74e19ddc69db3/aiy0z-63n4w-029.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 3160#         楼主| 发表于 2024-5-1 02:21
+
+<img src="https://p.sda1.dev/17/da7920e224d108d953ef0dbad5ef6926/a9oow-pnkqq-020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/3f5e389a045dd163c753995b66ed1cde/aiy0z-63n4w-020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/81310223246e29b1495621fcc2619889/a9oow-pnkqq-021.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/1ee6c521ce28b544c95bdd16122497d4/aiy0z-63n4w-021.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/5aa1ef31f069d47944c30d91f0b44857/a9oow-pnkqq-022.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/47733c4bbb0a755450568921b4082451/aiy0z-63n4w-022.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/00b058945bef54e8d29e9327bcd309a5/a9oow-pnkqq-026.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/cb09c66270cdf9725286d4069b74f406/aiy0z-63n4w-026.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/c74a6072ad9276e800684798e7f0787d/a9oow-pnkqq-035.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/4516e67bdb61fb4192bff13b5d29105b/aiy0z-63n4w-035.jpg" referrerpolicy="no-referrer">
+

@@ -5305,3 +5305,29 @@ iphone XR
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  cckuku  
+##### 12491#       发表于 2024-4-30 14:08
+
+看隔壁讨论说青子变身的buff能被强化解除给解除掉是真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 12492#       发表于 2024-4-30 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64771580&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-4-30 14:08</a>
+
+看隔壁讨论说青子变身的buff能被强化解除给解除掉是真的吗</blockquote>
+杰基尔能被解，青子一样也很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 12493#       发表于 2024-4-30 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">肯定能啊 又没有框 这卡就突出一个爆笑
+

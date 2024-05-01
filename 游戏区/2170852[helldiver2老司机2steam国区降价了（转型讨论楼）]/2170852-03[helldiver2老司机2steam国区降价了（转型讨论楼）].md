@@ -7637,3 +7637,22 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 箭头真想平衡，把新任务弄的难一点呀，现在新任务纯纯xp farm，还有掉到洞里bug。完全看不出箭头平衡武器的 ...</blockquote>
 任务弄难点不照样被人骂司马，还是赶紧开难度10才是硬道理。
 
+
+*****
+
+####  风萧飒  
+##### 3681#       发表于 2024-5-1 20:58
+
+爆裂铳改动什么时候上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大肥鸽子  
+##### 3682#       发表于 2024-5-1 21:00
+
+爆裂铳进土就很麻烦，现在除了机炮外还有啥高效率拆房又能兼顾清杂的武器啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

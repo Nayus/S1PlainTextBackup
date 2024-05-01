@@ -5993,3 +5993,13 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 有珠的技能介绍全是怼青子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 12558#       发表于 2024-5-1 21:01
+
+<blockquote>RiesbyfeAtlasia 发表于 2024-5-1 20:04
+家人们 有珠保底了 还剩一个保底的量是继续冲有珠还是隔壁保个青子</blockquote>
+一个池子保底只生效一次，再抽有珠天知道要多少石头，青子如果不是厨建议不要抽，完全不知道咋用，石头囤着等后面活动比如周年和泳装吧
+

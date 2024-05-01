@@ -7724,3 +7724,40 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 平衡补丁一发布，几个群都没人传播民主了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 3690#       发表于 2024-5-1 23:53
+
+西线现在是开服以来最丰富的版本
+
+加强和修复了很多玩具，主宰不痛不痒，机炮永远的神一刀未砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主武器：焦土、主宰、离子喷
+
+三号位：机炮、反器材、激光大炮、磁轨炮、EAT、无后坐力炮、飞矛
+
+*****
+
+####  smdzh2  
+##### 3691#       发表于 2024-5-1 23:53
+
+玩了一把新的爆破铳，我还是回去玩机炮吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大肥鸽子  
+##### 3692#       发表于 2024-5-1 23:54
+
+跟朋友两人一起强攻n9，被虫子吊打，从头寄到尾，狗牛泰是这游戏里最可恶的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  九十九忍  
+##### 3693#       发表于 2024-5-1 23:56
+
+草，恶性bug出现，进游戏后屏蔽房主会立刻把房主移出房间
+

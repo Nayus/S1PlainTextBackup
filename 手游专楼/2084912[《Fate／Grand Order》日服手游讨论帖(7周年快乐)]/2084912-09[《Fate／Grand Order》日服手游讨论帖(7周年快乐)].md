@@ -5682,3 +5682,20 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 四大男主还剩志贵没出场了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年能达成四大女主+四大男主全成就么
 
+
+*****
+
+####  洛克萨斯  
+##### 12524#       发表于 2024-5-1 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1200石头开抽，剩500多才第一个有珠，毒死了
+
+
+*****
+
+####  exiaexa  
+##### 12525#       发表于 2024-5-1 18:04
+
+我吐了，八单一宝，福袋见
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

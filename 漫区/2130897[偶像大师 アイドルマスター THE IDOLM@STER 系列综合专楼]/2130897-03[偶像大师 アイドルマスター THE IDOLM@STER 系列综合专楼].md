@@ -8706,3 +8706,19 @@ giga的能现场唱？我是不信的，除非有reol和ado的水平<img src="ht
 
 live翻车也是表演的一环
 
+
+*****
+
+####  kongxian  
+##### 3782#       发表于 2024-5-1 22:47
+
+代哥集大成之作，浑身解数的一击？
+
+
+*****
+
+####  rslika  
+##### 3783#       发表于 2024-5-1 22:54
+
+这mv风格疯狂幻视某一届msi的主题设计<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">加上曲风还非常pop
+

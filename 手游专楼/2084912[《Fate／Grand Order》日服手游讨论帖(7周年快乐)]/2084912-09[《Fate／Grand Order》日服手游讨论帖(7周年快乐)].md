@@ -6127,3 +6127,15 @@ cos够吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" r
 cos够吗</blockquote>
 这也是这阵容的最大问题……好在这次加成在卡池礼装可以用低星礼装缓和，如果是无限池那种全是五星礼装就不够了
 
+
+*****
+
+####  alucardcz  
+##### 12572#       发表于 2024-5-1 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785470&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-1 22:09</a>
+
+宇蛇神红卡拳拳到肉 三令咒复活轰过去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 大佬怎么什么都有呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 我也有 那没事了
+

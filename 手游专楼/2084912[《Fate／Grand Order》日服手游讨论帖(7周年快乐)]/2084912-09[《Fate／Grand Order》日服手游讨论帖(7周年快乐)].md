@@ -5647,3 +5647,30 @@ DA267AD6-F78B-4667-8E0D-AD460961088D.png
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qixinno2  
+##### 12521#       发表于 2024-5-1 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 出了可还行
+
+Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
+(515.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/173911i2tam0ammagl35ll.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12522#       发表于 2024-5-1 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783103&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-1 17:40</a>
+
+艹 出了可还行</blockquote>
+你石头没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

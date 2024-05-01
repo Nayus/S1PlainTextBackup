@@ -2672,3 +2672,11 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 https://x.com/zizoumiao/status/1785565071655289198<img src="https://p.sda1.dev/17/06889dc14e2c37713e18ee0cd6ed1b85/CMP_20240501230019334.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16519#       发表于 2024-5-1 23:31
+
+来奶一下什么时候发预告的预告？总不会第二首准备卡喵梦生日吧
+

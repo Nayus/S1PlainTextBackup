@@ -7626,3 +7626,14 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 箭头真想平衡，把新任务弄的难一点呀，现在新任务纯纯xp farm，还有掉到洞里bug。完全看不出箭头平衡武器的意义。
 
+
+*****
+
+####  Mr.Hopp  
+##### 3680#       发表于 2024-5-1 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784665&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-5-1 20:29</a>
+
+箭头真想平衡，把新任务弄的难一点呀，现在新任务纯纯xp farm，还有掉到洞里bug。完全看不出箭头平衡武器的 ...</blockquote>
+任务弄难点不照样被人骂司马，还是赶紧开难度10才是硬道理。
+

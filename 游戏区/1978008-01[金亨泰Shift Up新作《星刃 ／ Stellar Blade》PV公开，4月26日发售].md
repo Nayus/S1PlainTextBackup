@@ -5901,3 +5901,16 @@ Screenshot_20240501_085839_Chrome.jpg
 我看电塔修复了飞船还没好，那下一步主线只能把这地图通了。 ...</blockquote>
 原本设计是你在主线过程中修好，百合会接手前半段卢瓦地底的语音辅助，Adam去修飞机了
 
+
+*****
+
+####  粉刷月季  
+##### 1297#       发表于 2024-5-1 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778779&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-1 07:26</a>
+
+荒土日照塔那个解密怎样破啊
+
+玩到沙漠了还是找不到第四台机器</blockquote>
+在中间
+

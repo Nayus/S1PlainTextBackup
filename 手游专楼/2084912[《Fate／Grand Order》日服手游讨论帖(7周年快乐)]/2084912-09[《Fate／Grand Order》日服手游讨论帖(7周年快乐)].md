@@ -5813,3 +5813,61 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 这就是欧皇吗 看我们非萌一无所有</blockquote>
 非洲人终于比狗萌新欧了一点点 不过感觉狗萌新过两天签到石会再次豹跳
 
+
+*****
+
+####  alucardcz  
+##### 12538#       发表于 2024-5-1 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783986&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-1 19:24</a>
+
+非洲人终于比狗萌新欧了一点点 不过感觉狗萌新过两天签到石会再次豹跳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳不动 因为我根本没兴趣抽
+
+*****
+
+####  森兰丸  
+##### 12539#       发表于 2024-5-1 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">++差不多600石才出了一个有珠....亏死了
+
+
+*****
+
+####  alucardcz  
+##### 12540#       发表于 2024-5-1 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784034&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-1 19:28</a>
+
+++差不多600石才出了一个有珠....亏死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然不是豹跳！
+
+*****
+
+####  森兰丸  
+##### 12541#       发表于 2024-5-1 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784081&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-1 19:33</a>
+
+居然不是豹跳！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">非洲人什么时候豹跳过
+
+*****
+
+####  史蒂符  
+##### 12542#       发表于 2024-5-1 19:34
+
+双六宝达成<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  不垃圾屌丝  
+##### 12543#       发表于 2024-5-1 19:35
+
+结果就是不能笑番外那套模式嘛
+蘑菇已经黔驴技穷啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

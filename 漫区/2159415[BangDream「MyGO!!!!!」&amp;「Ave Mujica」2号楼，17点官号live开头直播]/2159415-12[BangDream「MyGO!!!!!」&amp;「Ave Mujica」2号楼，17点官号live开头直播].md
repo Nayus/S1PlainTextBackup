@@ -2342,3 +2342,14 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 祥子觉得没必要进去看live，她的目的是来办事这一点动画里明 ...</blockquote>
 可以不用假药，soyo第一次堵祥的时候，祥听到别人说“又有月之森"的时候还准备笑来着，除了以为说的是睦还有什么原因吗？哪怕睦过来会暴露自己也还是比较开心。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16500#       发表于 2024-5-1 11:40
+
+<img src="https://p.sda1.dev/17/34c02bf4e1a5df941a3513fdea417895/IMG_59F4443C2334757BC20DD8D4CC10ABA9.jpeg" referrerpolicy="no-referrer">
+吉他组列车联动
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

@@ -8375,3 +8375,25 @@ Music Label : ASOBINOTES
 
 MV Producer : Takuya Negawa</blockquote>
 
+
+*****
+
+####  840266848  
+##### 3742#       发表于 2024-5-1 19:20
+
+本家cg和ml毕竟10年以上了，我觉得这待遇应该单说sc落泪
+
+*****
+
+####  有村麻央  
+##### 3743#       发表于 2024-5-1 19:23
+
+有没有一种可能，万南比你们还急，毕竟sc手游和动画都拉了，只能扶学马仕上位了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3744#       发表于 2024-5-1 19:24
+
+急急急急急
+

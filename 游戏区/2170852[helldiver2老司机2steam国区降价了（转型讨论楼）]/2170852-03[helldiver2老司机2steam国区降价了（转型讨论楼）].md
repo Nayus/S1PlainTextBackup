@@ -7580,3 +7580,25 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3675#       发表于 2024-5-1 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783617&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-5-1 18:42</a>
+
+现实见过活人就应该知道，活的会呼吸的人都有多面性，一个人是可以又蠢又坏。把一个人，一个群体的毛病全部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说了，刚上线服务器炸了摆烂放假，STEAM社区有个专门搞机房运维的玩家都开喷了，他们机房网络出了事都是7*24全力解决后才休息，矢脑直接双手一摆说忙了，累了，休息去了
+
+
+*****
+
+####  Launce  
+##### 3676#       发表于 2024-5-1 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783792&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-1 19:02</a>
+
+直球喷是没有的，做表情包阴阳怪气的不少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">真实PVD（developer）游戏
+

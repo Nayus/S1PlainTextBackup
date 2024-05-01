@@ -8794,3 +8794,23 @@ live翻车也是表演的一环
 
 没有live总感觉缺点什么，但是溜久了居然感觉还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kangkangsama  
+##### 3793#       发表于 2024-5-2 02:41
+
+不说别的这mv跟beyond the way（giga给pjsk写的上一首歌的风格一摸一样的感觉
+
+https://youtu.be/UAzw5B-35kI?si=s5QrDrmVQjB-IEAz
+
+<img src="https://img.saraba1st.com/forum/202405/02/023433dcnawwhtsnzq6uv8.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3300.png</strong> (357.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 02:34 上传
+
+full版感觉至少红本来那词和词之间粘在一起的感觉没有那么明显了吐字清楚了很多。
+

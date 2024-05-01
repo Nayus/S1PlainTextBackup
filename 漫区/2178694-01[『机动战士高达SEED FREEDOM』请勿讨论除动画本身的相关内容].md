@@ -8961,3 +8961,14 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  线程召唤使  
+##### 733#       发表于 2024-5-2 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783873&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-1 19:11</a>
+
+看哭了整整四次，开头飞自出击一次，命运出击一次，无正暴甲一次，非自登场一次。熟悉的bgm响起这种事情我 ...</blockquote>
+黑骑士真实水货，都不用拿小鸟比，2打1都吃不下开村雨的穆。
+

@@ -2571,3 +2571,14 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">禁止COSmujica
 
+
+*****
+
+####  鳥栖朝  
+##### 16509#       发表于 2024-5-1 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783560&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-05-01 18:36:26</a>
+禁止COSmujica</blockquote>世界观要被破坏了，请问是羽丘的丰川祥子，花咲川的三角初华、八幡海铃，月之森的若叶睦和网红主播佑天寺若麦吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

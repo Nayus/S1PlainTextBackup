@@ -5756,3 +5756,21 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">木乃美回想愿望那段挺好的……我就爱看这个
 
+
+*****
+
+####  都谷捻柏  
+##### 12532#       发表于 2024-5-1 18:55
+
+魔夜联动完，也算是了却了一段因果，就剩月姬了，但是现在的月姬也不是以前那个月姬了。
+
+*****
+
+####  alucardcz  
+##### 12533#       发表于 2024-5-1 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783103&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-1 17:40</a>
+
+艹 出了可还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧皇吗 看我们非萌一无所有  
+

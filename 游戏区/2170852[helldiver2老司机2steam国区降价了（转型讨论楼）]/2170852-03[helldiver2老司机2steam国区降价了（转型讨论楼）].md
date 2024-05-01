@@ -7549,3 +7549,26 @@ PS：躲在dc当皇帝的制作组不是闭门造车，是今年目前以来在s
 
 爆裂铳基本把我能想到削废的招数全用上了。砍破片，砍备弹（我预测砍到8，现实更恶心）。等破片移出一发下去跳虫飞过来恶心死吧
 
+
+*****
+
+####  ravend233  
+##### 3672#       发表于 2024-5-1 19:00
+
+ 本帖最后由 ravend233 于 2024-5-1 19:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，如果脑子有失是坏逼，那他是可预测的，它为了自己的利益会做出的行为玩家是可以理解的，但是又菜又蠢才是真的没救了好吧，不可预测而且损人不利己
+
+你直接说矢脑菜，原来你才是最大的矢脑黑
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  山风短  
+##### 3673#       发表于 2024-5-1 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783540&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-1 18:33</a>
+Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所以跑STEAM社区了 ...</blockquote>
+直球喷是没有的，做表情包阴阳怪气的不少
+

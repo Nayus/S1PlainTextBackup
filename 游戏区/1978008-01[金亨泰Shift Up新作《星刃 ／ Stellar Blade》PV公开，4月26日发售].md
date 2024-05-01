@@ -6047,3 +6047,13 @@ Screenshot_20240501_085839_Chrome.jpg
 
 三级突袭连段那个三角正方三角正方三角吧
 
+
+*****
+
+####  Rainwedell  
+##### 1313#       发表于 2024-5-1 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785773&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-1 22:42</a>
+自动保存的游戏没上PC就算有多档位也没法复制存档呀，只能外部备份</blockquote>
+自动存档不是问题，他通完继续的时候能让玩家选一下从哪个节点开始就行，现在通完点继续就是再打一遍而已，当然最好的是能做到ff7那样章节选择
+

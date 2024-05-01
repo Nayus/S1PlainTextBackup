@@ -7716,3 +7716,11 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机炮大弹容高射速有群控，单人装弹惩罚还没其他背包武器那么严重，实属西线完美武器
 
+
+*****
+
+####  MkChang  
+##### 3689#       发表于 2024-5-1 23:45
+
+平衡补丁一发布，几个群都没人传播民主了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

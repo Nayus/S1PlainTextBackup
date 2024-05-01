@@ -1081,3 +1081,16 @@ INABA
 玩具情报出了 看来今年是有二段了
 猫组起码5月底后入队
 
+
+*****
+
+####  pokemon最爱  
+##### 1393#       发表于 2024-5-2 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786458&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-5-2 00:00</a>
+
+玩具情报出了 看来今年是有二段了
+
+猫组起码5月底后入队</blockquote>
+但疑惑的是没有追加的变身道具情报……或者代哥今年良心发现猫组和追加都不出换色的变身道具直接把变身音效塞武器里？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7761,3 +7761,17 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 草，恶性bug出现，进游戏后屏蔽房主会立刻把房主移出房间
 
+
+*****
+
+####  Ashice  
+##### 3694#       发表于 2024-5-2 00:27
+
+ 本帖最后由 Ashice 于 2024-5-2 00:29 编辑 
+
+西线再丰富也不想打啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我看有人说什么机器人只是入门难度比虫子大，会打了并没有比虫子难，但是我是完全不知道怎么在机器人那个铺天盖地的火力下边活下去的。看这帮人说这些话有一种看人洗箭头的补丁没问题的感觉。
+面对一大波虫子就算阵形被冲乱了，大家分开跑别恋战兜个圈子也就清掉了，机器人的话数量一多那就是打又打不过，逃跑一旦跑出掩体就会被不明机枪火力打爆或者被火箭弹炸飞，压根没法玩了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+反正最新补丁一下来我就去打了差评，西线打不过，东线主力武器一大刀，这游戏已经变成一坨狗屎了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

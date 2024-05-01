@@ -5899,3 +5899,11 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 （只能安慰自己尼莫也很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 12547#       发表于 2024-5-1 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这里有个真的保底的
+

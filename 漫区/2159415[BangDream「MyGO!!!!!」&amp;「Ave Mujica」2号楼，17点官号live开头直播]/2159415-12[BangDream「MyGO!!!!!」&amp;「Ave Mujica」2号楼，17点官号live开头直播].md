@@ -2602,3 +2602,18 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 [https://twitter.com/hayashicoco1/status/1785630095077724266](https://twitter.com/hayashicoco1/status/1785630095077724266)
 
+
+*****
+
+####  枫林不见  
+##### 16511#       发表于 2024-5-1 19:51
+
+[https://www.bilibili.com/video/B ... 3576ed6cf8cbe6aaff7](https://www.bilibili.com/video/BV1Zx4y1B77n?p=1&amp;vd_source=874d9201869f83576ed6cf8cbe6aaff7)      <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 16512#       发表于 2024-5-1 19:55
+
+这就是爱素，这就是美帝
+

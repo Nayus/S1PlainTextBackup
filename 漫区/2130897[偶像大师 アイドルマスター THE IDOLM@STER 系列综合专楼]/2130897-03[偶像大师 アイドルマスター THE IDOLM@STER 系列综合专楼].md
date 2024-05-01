@@ -8456,3 +8456,18 @@ MV Producer : Takuya Negawa</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代的没活硬整显得很低能 但是用不完的资源又弥补了这一部分
 
+
+*****
+
+####  Vacuolar  
+##### 3752#       发表于 2024-5-1 19:51
+
+再回顾一次，这个2dmv真的赢太多
+
+*****
+
+####  倉本千奈  
+##### 3753#       发表于 2024-5-1 19:51
+
+给我狠狠的上资源口牙！不用担心钱的问题，仓本家会出手！<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

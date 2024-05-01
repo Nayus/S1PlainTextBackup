@@ -7602,3 +7602,11 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 直球喷是没有的，做表情包阴阳怪气的不少</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">真实PVD（developer）游戏
 
+
+*****
+
+####  FLZB  
+##### 3677#       发表于 2024-5-1 19:53
+
+至少我玩过的同类型游戏，还从来没见过开发者或者社区管理下场骂玩家的，你箭头独一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

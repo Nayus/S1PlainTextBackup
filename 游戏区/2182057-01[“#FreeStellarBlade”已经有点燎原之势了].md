@@ -1025,3 +1025,29 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 货不对板
 
+
+*****
+
+####  散装星空  
+##### 94#       发表于 2024-5-1 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个问题难道不是放到哪都可以上纲上线的货不对板吗，怎么又要延伸到我玩了我觉得没问题，你们是真要身体力行地演绎宅男文娱是吧
+
+*****
+
+####  春哥亲自  
+##### 95#       发表于 2024-5-1 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781248&amp;ptid=2182057" target="_blank">SergeGlenn 发表于 2024-5-1 13:35</a>
+玩的有几个觉得有大问题的，添几块布这游戏就从涩变质到不涩了？</blockquote>
+你去吃饭，点了一桌大餐，有几道招牌菜从好吃变成不好吃，你会觉着这顿饭吃高兴了吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hanan1  
+##### 96#       发表于 2024-5-1 14:14
+
+不是，人家的诉求不是反和谐吗？怎么又和麻辣仙人扯上关系了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1079,3 +1079,20 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 有一说一，她那几件衣服硬加布料之后，确实变得更丑了，单从设计美观度上来说，不如不加。
 
+
+*****
+
+####  ItJustWorks  
+##### 100#       发表于 2024-5-1 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要求角色全对着主角发情的是麻辣仙人 → 要求别把喜欢主角的角色拿去和NPC配CP的是麻辣仙人 → 要求别虚假宣传的是麻辣仙人
+
+什么时候快进到不喜欢兽娘动物园2的是麻辣仙人？
+
+*****
+
+####  Rugal_Bernstein  
+##### 101#       发表于 2024-5-1 15:07
+
+SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

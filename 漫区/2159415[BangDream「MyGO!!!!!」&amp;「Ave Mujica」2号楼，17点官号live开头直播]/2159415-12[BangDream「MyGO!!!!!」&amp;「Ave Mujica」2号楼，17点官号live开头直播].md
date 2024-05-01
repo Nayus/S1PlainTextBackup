@@ -2470,3 +2470,13 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 唉，制作人的大手。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 16504#       发表于 2024-5-1 15:01
+
+唉，丰川p的大手
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

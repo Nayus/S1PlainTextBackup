@@ -7433,3 +7433,11 @@ HD2的爽点，乃至大多数pve游戏的爽点都在于在于怪物十分强�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  daikejay  
+##### 3660#       发表于 2024-5-1 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">竟然还能见到活的箭孝子，真的开眼了
+

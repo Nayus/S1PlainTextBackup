@@ -1176,3 +1176,11 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 
 世界大串联
 
+
+*****
+
+####  HazukiShion  
+##### 110#       发表于 2024-5-1 16:54
+
+为啥不买个 NS 玩 XB2？
+

@@ -5889,3 +5889,15 @@ Screenshot_20240501_085839_Chrome.jpg
 
 废土那图我感觉在玩银河城的探索收集，刚开始还下意识想去手动标记地图
 
+
+*****
+
+####  Rainwedell  
+##### 1296#       发表于 2024-5-1 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64779263&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-1 09:36</a>
+它原本设计是打算什么时候修好？
+
+我看电塔修复了飞船还没好，那下一步主线只能把这地图通了。 ...</blockquote>
+原本设计是你在主线过程中修好，百合会接手前半段卢瓦地底的语音辅助，Adam去修飞机了
+

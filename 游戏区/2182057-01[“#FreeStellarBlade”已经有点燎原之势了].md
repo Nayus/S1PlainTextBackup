@@ -1096,3 +1096,11 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陛下欲反邪  
+##### 102#       发表于 2024-5-1 15:21
+
+看杉果的微博，该活动发起人Grummz宣称受到了推特上一位名叫Toneman（账号已注销）的用户死亡威胁，这位用户声称要用2万美元的悬赏酬金让Grummz“消失”，而Twitch主播DenimsTV也参与了此事，并且将悬赏金提高到了3万美元。目前DenimsTV已经删空了Twitch频道的视频
+

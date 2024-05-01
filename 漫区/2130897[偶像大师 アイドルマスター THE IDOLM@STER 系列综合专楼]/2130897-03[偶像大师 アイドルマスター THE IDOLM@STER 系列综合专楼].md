@@ -8471,3 +8471,15 @@ MV Producer : Takuya Negawa</blockquote>
 
 给我狠狠的上资源口牙！不用担心钱的问题，仓本家会出手！<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 3754#       发表于 2024-5-1 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">造势造成这样，5月玩不上那就真是是小丑了
+
+当年IP和契约之吻都有这个问题来着
+
+动画都播完半天了才开服，热度都没了
+

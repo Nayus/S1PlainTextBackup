@@ -7610,3 +7610,11 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 至少我玩过的同类型游戏，还从来没见过开发者或者社区管理下场骂玩家的，你箭头独一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwased  
+##### 3678#       发表于 2024-5-1 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为捍卫管理式民主都是说着玩的，你来真的啊
+

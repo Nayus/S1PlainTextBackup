@@ -5907,3 +5907,19 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这里有个真的保底的
 
+
+*****
+
+####  rollingusagi  
+##### 12548#       发表于 2024-5-1 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">看完了，情怀拉满的一次联动，最后一战配合星が瞬くこんな夜に的响起，画面由黑白变明亮的演出太赞了
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12549#       发表于 2024-5-1 20:04
+
+家人们 有珠保底了 还剩一个保底的量是继续冲有珠还是隔壁保个青子
+

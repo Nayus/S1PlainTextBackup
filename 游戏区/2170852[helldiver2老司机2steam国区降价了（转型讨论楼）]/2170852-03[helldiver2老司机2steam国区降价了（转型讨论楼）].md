@@ -7668,3 +7668,19 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 —— 来自 OPPO PEAM00 ...</blockquote>
 那怕是只有带榴弹了。
 
+
+*****
+
+####  Mr.Hopp  
+##### 3684#       发表于 2024-5-1 22:07
+
+说起来榴弹这个打虫子利器一直没改过，等出个能打重甲的主手武器估计能起飞了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FLZB  
+##### 3685#       发表于 2024-5-1 22:15
+
+榴弹和机炮是完美武器，不需要改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

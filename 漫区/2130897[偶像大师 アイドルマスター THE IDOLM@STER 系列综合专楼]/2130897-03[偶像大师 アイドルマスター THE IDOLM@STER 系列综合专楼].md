@@ -8516,3 +8516,112 @@ IMG_3389.png
 
 scsp赶工就是为了避开学，这要晚开服就说不过去了
 
+
+*****
+
+####  a1370303  
+##### 3758#       发表于 2024-5-1 22:06
+
+Fighting My Way
+▼MV
+youtu.be/T1GK55fsIhw
+
+*****
+
+####  joshua1990  
+##### 3759#       发表于 2024-5-1 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">小红的完整2dmv曲听完了，有一种微妙的感觉
+
+*****
+
+####  安广多惠子  
+##### 3760#       发表于 2024-5-1 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这歌...首次live不翻大车才有鬼，反而期待起来了
+
+
+*****
+
+####  kirakira~  
+##### 3761#       发表于 2024-5-1 22:07
+
+live版本和mv版本差的有点多哈
+
+*****
+
+####  ViviR  
+##### 3762#       发表于 2024-5-1 22:07
+
+mv明显是cd版了。虽然giga这首还是唱得比较…
+
+*****
+
+####  rgauss  
+##### 3763#       发表于 2024-5-1 22:07
+
+太糊了
+
+*****
+
+####  Achlys  
+##### 3764#       发表于 2024-5-1 22:09
+
+太风格化了，不是很能接受giga
+
+或者说是歌手唱不好这歌？
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3765#       发表于 2024-5-1 22:09
+
+LV10歌唱力还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  840266848  
+##### 3766#       发表于 2024-5-1 22:09
+
+等个4k版本，变调很多。然后你这红c的第一首歌对比前辈们，不愧是原对手役
+
+*****
+
+####  Genkishi  
+##### 3767#       发表于 2024-5-1 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看习惯游戏3d版的这MV没有saki那动作感觉不习惯了
+
+*****
+
+####  超法拉  
+##### 3768#       发表于 2024-5-1 22:10
+
+好电啊
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  绯田美琴  
+##### 3769#       发表于 2024-5-1 22:11
+
+giga的能现场唱？我是不信的，除非有reol和ado的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 3770#       发表于 2024-5-1 22:13
+
+ 本帖最后由 cckuku 于 2024-5-1 22:15 编辑 
+
+有人能听出来这跟lv10有什么区别吗？反正我没听出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 3771#       发表于 2024-5-1 22:15
+
+太giga了 听多了头疼
+

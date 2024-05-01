@@ -6015,3 +6015,35 @@ Screenshot_20240501_085839_Chrome.jpg
 通了一个结局，整体还行，就是明牌没做完，换个JRPG高低加一章地图上天开砍，不知道su是打算续作还 ...</blockquote>
 自动保存的游戏没上PC就算有多档位也没法复制存档呀，只能外部备份
 
+
+*****
+
+####  医生狼多  
+##### 1309#       发表于 2024-5-1 23:18
+
+三角方块有哪个派生比较有用吗，全程方块方块砍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 1310#       发表于 2024-5-1 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786104&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-5-1 23:18</a>
+三角方块有哪个派生比较有用吗，全程方块方块砍</blockquote>
+砍杂兵△起手和方块交替按那套最高级派生比较有用，脆一点的能在反打前直接打死
+
+
+*****
+
+####  卡博雷z  
+##### 1311#       发表于 2024-5-1 23:24
+
+探图体验最差的是太多后面解锁的密码箱了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startea15  
+##### 1312#       发表于 2024-5-1 23:25
+
+三级突袭连段那个三角正方三角正方三角吧
+

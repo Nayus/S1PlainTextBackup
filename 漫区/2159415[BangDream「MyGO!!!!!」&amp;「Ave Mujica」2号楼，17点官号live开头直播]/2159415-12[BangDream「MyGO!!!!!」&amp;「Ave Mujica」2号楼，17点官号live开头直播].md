@@ -2500,3 +2500,50 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  6030sylar  
+##### 16507#       发表于 2024-5-1 18:10
+
+<img src="https://img.saraba1st.com/forum/202405/01/180947oijlilkjklbkaib6.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQk6p-78xaZmT3cSpx-y6.png</strong> (228.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/180952vzd9dqt077haa2qh.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQk6p-a4xrZiT3cSlb-sg.jpg</strong> (183.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/180958k99oxi6iytwzrew0.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQk6p-7lp1ZjT3cSpe-sg.jpg</strong> (194.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:09 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/181003tiz8dpyeeylynheo.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQrh9k-5x87ZtT3cSk0-lk.jpg</strong> (110.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:10 上传
+
+}~MISJ5YPK5E)X}$XYZ7KQ0.jpg
+(5.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:10 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/181040ph6nhlmlsjn08lrz.jpg" referrerpolicy="no-referrer">
+

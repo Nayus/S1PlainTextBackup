@@ -7310,3 +7310,57 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 5.16开服呗 不然怎么会上流媒体
 
+
+*****
+
+####  wfhtony  
+##### 3673#       发表于 2024-5-1 18:07
+
+ 本帖最后由 wfhtony 于 2024-5-1 18:11 编辑 
+
+5/16開放學馬仕十首歌曲的先行販賣+串流。
+
+<img src="https://img.saraba1st.com/forum/202405/01/180715itzjd08td5sklmm0.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h06m02s344.jpg</strong> (86.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/180715eiogdhx30083ne0a.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h06m30s516.jpg</strong> (191.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/180715y8q2bwbuaat6swgw.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h07m01s081.jpg</strong> (181.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/180740w86lvukg8x8xd8xk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h07m32s248.jpg</strong> (176.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:07 上传
+
+全體曲+9首SOLO曲。
+
+<img src="https://img.saraba1st.com/forum/202405/01/181054wdtzdb7csspd35ub.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h10m25s690.jpg</strong> (205.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:10 上传
+
+↑ 學馬仕的Label
+

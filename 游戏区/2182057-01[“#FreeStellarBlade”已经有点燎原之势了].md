@@ -1192,3 +1192,11 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏也是难崩，光看流量搞得像是千万级别的，结果现在一百万销量有没有都不知道
 
+
+*****
+
+####  めぐる  
+##### 112#       发表于 2024-5-1 18:09
+
+如果剑星靠色能24小时100w，那ff7re也不止卖这么点了
+

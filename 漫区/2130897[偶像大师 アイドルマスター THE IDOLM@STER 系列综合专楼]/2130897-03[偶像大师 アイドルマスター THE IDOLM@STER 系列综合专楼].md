@@ -7968,3 +7968,410 @@ a28abbbdd15a2aeb50206ef619587d84.png
 哪抄的？</blockquote>
 原梗出自尼哥拍皮球，后常用于电竞相关
 
+
+*****
+
+####  lz741990563  
+##### 3737#       发表于 2024-5-1 19:07
+
+等个最速动画化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依然荏苒  
+##### 3738#       发表于 2024-5-1 19:07
+
+总之先预约了
+
+*****
+
+####  花开安菲路  
+##### 3739#       发表于 2024-5-1 19:10
+
+现在媒体宣发都安排上了，你再等到8月开服，那不是白花钱了吗，中间靠什么宣传？不会这么蠢吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萨文科夫  
+##### 3740#       发表于 2024-5-1 19:11
+
+<img src="https://p.sda1.dev/17/acf1168609f7f0743bad3cd8244f340c/Image_1714561873311.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 3741#       发表于 2024-5-1 19:12
+
+ 本帖最后由 wfhtony 于 2024-5-1 19:14 编辑 
+
+MV/Song Credits：
+
+01. [Fighting My Way](https://www.youtube.com/watch?v=T1GK55fsIhw) <blockquote>▶Music
+
+歌：花海咲季 (CV. 長月あおい)
+
+作詞：HIROMI
+
+作曲編曲：Giga
+
+▶Movie
+
+イラスト：村カルキ
+
+ディレクター：倉島 伶
+
+グラフィックデザイン：岩佐 トモタカ
+
+CGデザイン：山田 春彦
+
+監修：矢向 直大
+
+プロダクション：flapper3 Inc.
+
+MVプロデューサー：子川拓哉
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+02. [Luna Say Maybe](https://www.youtube.com/watch?v=Sq5Dj0U06vQ) <blockquote>▶Music
+
+歌：月村手毬 (CV. 小鹿なお)
+
+作詞作曲：美波
+
+編曲：美波、真船勝博
+
+Electric Guitar：美波
+
+Electric Guitar：大塚巧 
+
+Bass：難部一真 
+
+Drums：柏倉隆史 
+
+Piano：渡辺シュンスケ
+
+Synth &amp; Programming：真船勝博
+
+Strings Arrangement：徳澤青弦
+
+1st Vn. ：藤堂昌彦
+
+2nd Vn. ：徳永友美
+
+Va. ：二木美里
+
+Vc, ：徳澤青弦
+
+Horn Arrangement：武嶋聡、美波
+
+Trumpet：真砂陽地
+
+Trumpet：松井秀太郎
+
+Trombone：和田充弘
+
+Tenor Sax, Flute, Piccolo：武嶋聡
+
+Recording Engineer：吉井 雅之
+
+Mixing Engineer：高桑秋朝 
+
+Management：Water Reflection
+
+Instrumental Technician：西木 章智
+
+▶Movie
+
+監督・キャラクターデザイン・イラスト：萩森じあ
+
+撮影：イクミ
+
+アニメーター：庄一
+
+仕上げ：蒼原えま
+
+プランナー：髙橋政記
+
+アニメーションプロデューサー：tete
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+03. [世界一可愛い私](https://www.youtube.com/watch?v=cHaEJgn4HYc) <blockquote>▶Music
+
+歌：藤田ことね (CV. 飯田ヒカル)
+
+作詞作曲編曲：HoneyWorks
+
+Guitar：中西
+
+Bass：さと
+
+Keyboard：宇都圭輝
+
+Drums：樋口幸佑
+
+Strings Arrangement：堤 博明
+
+Strings：門脇大輔ストリングス
+
+Recorded by Gom &amp; shito, 米田 聖 at G &amp; S studio, Higashi-Azabu Studio
+
+Strings Recorded by 青柳延幸 at AVACO STUDIO
+
+Assisted by 川越誠也 (AVACO STUDIO), セガワ ロク (studio MSR)
+
+Mixed by 米田 聖 at Higashi-Azabu Studio
+
+▶Movie
+
+監督・映像制作：安村俊介
+
+イラスト・アニメーション：△崎
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+04. [clumsy trick](https://www.youtube.com/watch?v=ND5MsmApfTE) <blockquote>▶Music
+
+歌：姫崎莉波 (CV. 薄井友里)
+
+作詞作曲：渡辺 翔
+
+編曲：奈須野 新平
+
+Bass: タツキサラダ (7M)
+
+▶Movie
+
+イラスト：はまふぐ
+
+デザイン：玉野ハヅキ
+
+映像：こんぶ
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+05. [Tame-Lie-One-Step](https://www.youtube.com/watch?v=O0Ylv6GNWMQ) <blockquote>▶Music
+
+歌：紫雲清夏 (CV. 湊 みや)
+
+作詞作曲編曲：東 優太
+
+Mixed by Henrik Nordenback at White Room Sthlm
+
+▶Movie
+
+Producer：小佐畑 和 (cresco motion design) / 中元寺 隆夢（ベイシカ）
+
+Director : 山口 裕美 (cresco motion design)
+
+CG Designer : 井上 佑樹 (cresco motion design)
+
+Illustrator：やまはる (cresco motion design)
+
+Illustrator：古山 寛司 (cresco motion design)
+
+Production manager：宮坂 菜津紀 (centean)
+
+Production manager：早野 奏 (centean)
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+06. [光景](https://www.youtube.com/watch?v=VJk2etK8I1w) <blockquote>▶Music
+
+歌：篠澤 広 (CV. 川村玲奈)
+
+作詞作曲編曲：長谷川白紙
+
+ARRANGEMENTS, PROGRAM &amp; KEY : Hakushi Hasegawa
+
+STRINGS AND HORN ARRANGEMENTS : Arthur Verocai
+
+VIOLINS : Ana de Oliveira / Angélica Alves / Caroline Santa Rosa / Clóvis Pereira Filho / Daniel Passuni / Gabriela Queiroz / Joyce Veiga / Luisa de Castro / Michel Bessler / Nikolay Sapoundjiev / Ubiratã Rodrigues / William Isaac
+
+VIOLAS : Bernardo Fantini / Diego Silva / Ivan Zandonade / Victor Botene
+
+CELLOS : Alceu Reis / Emilia / Glenda Carvalho / Lisiane de Los Santos
+
+TRUMPETS : José Arimatéa / Diogo Gomes
+
+ALTO SAX : Idriss Boudrouia
+
+TENOR SAX and PICCOLO : Edu Neves
+
+TROMBONE : Aldivas Ayres
+
+ORCHESTRA FIXER : Paulo Guimarães
+
+RECORDING ENGINEER : William Luna at studio Cia dos Técnicos (RJ)
+
+RJ RECORDING COORDINATORS : Tamara Emy / Nick Dwyer / Ayano Kondo
+
+PANDEIRO : Leo Nanjo
+
+CO-DIRECTION : Go Yamazaki
+
+MIX ENGINEER : Masashi Uramoto at Soi Studio
+
+▶Movie
+
+director &amp; animator : 植草航 
+
+animators : 酒井浩史 / フジシマケイ 
+
+background artists : ひかがみひなみ / moge 
+
+logo &amp; prop design : ひかがみひなみ 
+
+text design : ととりか
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+07. [白線](https://www.youtube.com/watch?v=m4VahiqP9vA) <blockquote>▶Music
+
+歌：葛城リーリヤ (CV. 花岩香奈)
+
+作詞作曲編曲：ナユタン星人
+
+Gt：SHiNNOSUKE(ROOKiEZ is PUNK'D)
+
+Pf,Vn：半田彬倫
+
+Ba：HIROTOMO
+
+Dr：田中航
+
+Recording&amp;Mixing Engineer：新保正博(MIXER'S LAB)
+
+▶Movie
+
+イラスト：鴨川彰
+
+デザイン：nagum
+
+映像：NaGi
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+08. [Wonder Scale](https://www.youtube.com/watch?v=NkC8ahzYm3k) <blockquote>▶Music
+
+歌：倉本千奈 (CV. 伊藤舞音)
+
+作詞：大森祥子
+
+作曲編曲：兼松 衆
+
+Strings：室屋光一郎ストリングス
+
+Concertmaster：室屋光一郎
+
+1st Violin：相川麻里子 / 村田晃歌 / 對馬哲男 / 遠藤雄一 / 浮村恵梨子
+
+2nd Violin：小寺里奈 / 山本理紗 / 入江 茜 / 雨宮麻未子
+
+Viola：菊地幹代 / 萩谷金太郎 / 髙木真悠子
+
+Cello：堀沢真己 / 水野由紀 / 遠藤益民
+
+Contrabass：一本茂樹
+
+Harp：朝川朋之
+
+Trumpet：吉澤達彦 /  田沼慶紀
+
+Trombone：半田信英 / 鳥塚心輔
+
+Bass Trombone：小椋瑞季
+
+Flute：多久潤一朗
+
+Oboe：荒木奏美
+
+Clarinet：中 ヒデヒト
+
+Fagott：石川 晃
+
+Horn：日橋辰朗 / 熊井 優 / 谷 あかね / 藤田麻理絵
+
+Electric Bass：一本茂樹
+
+Acoustic Guitar：高木大丈夫
+
+Drums：吉田雄介(tricot）by the courtesy of cutting edge / 8902 RECORDS
+
+Piano&amp;Programming：兼松 衆
+
+Recording&amp;Mixing Engineer：高桑秋朝（ビクタースタジオ）
+
+Recording Studio：SOUND INN STUDIOS
+
+Mixing Studio：NICHION STUDIO
+
+Assistant Engineer：執行 航(SOUND INN STUDIO)
+
+▶Movie
+
+監督：畳谷 哲也、中元寺 隆夢（ベイシカ）
+
+キャラクターデザイン：鈴木 紗英子
+
+Live 2D アニメーション：羅　悠美
+
+アニメーション：リンダ＝ビュハガ / 鈴木紗英子
+
+アニメーション制作：pH studio
+
+背景：凪谷
+
+エフェクトアニメーション：畳谷 哲也
+
+CGデザイナー&amp;コンポジット：ANGELO
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+09. [Fluorite](https://www.youtube.com/watch?v=4AcOcsvGluY) <blockquote>▶Music
+
+歌：有村麻央 (CV. 七瀬つむぎ)
+
+作詞：やぎぬまかな
+
+作曲編曲：Moe Shop
+
+▶Movie
+
+Director &amp; Animator &amp; Storyboard : つづつ
+
+Animators : スズキハルカ / のをか
+
+3DCG &amp; Motion Graphics : yonayona graphics
+
+------------------------------
+
+Music Label : ASOBINOTES
+
+MV Producer : Takuya Negawa</blockquote>
+

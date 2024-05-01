@@ -7572,3 +7572,11 @@ PS：躲在dc当皇帝的制作组不是闭门造车，是今年目前以来在s
 Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所以跑STEAM社区了 ...</blockquote>
 直球喷是没有的，做表情包阴阳怪气的不少
 
+
+*****
+
+####  Aeons  
+##### 3674#       发表于 2024-5-1 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

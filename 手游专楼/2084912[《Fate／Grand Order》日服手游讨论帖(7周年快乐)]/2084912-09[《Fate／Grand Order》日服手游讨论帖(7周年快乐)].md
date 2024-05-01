@@ -5774,3 +5774,25 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 艹 出了可还行</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是欧皇吗 看我们非萌一无所有  
 
+
+*****
+
+####  シャル  
+##### 12534#       发表于 2024-5-1 19:09
+
+ 本帖最后由 シャル 于 2024-5-1 19:10 编辑 
+<blockquote>洛克萨斯 发表于 2024-5-1 18:41
+我准备了1200多石头等有珠差点翻车，剩五百多的时候脸都绿了</blockquote>
+但是啊，你要信机制玄学就好了
+
+青子有珠全呼符出
+
+*****
+
+####  シャル  
+##### 12535#       发表于 2024-5-1 19:09
+
+<blockquote>格林卡罗尔 发表于 2024-5-1 18:36
+藤乃是不是没up过，什么情况强化了不up？</blockquote>
+没单up过
+

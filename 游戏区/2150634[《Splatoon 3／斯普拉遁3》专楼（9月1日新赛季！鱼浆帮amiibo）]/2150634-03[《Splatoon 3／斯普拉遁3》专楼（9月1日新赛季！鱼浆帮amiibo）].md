@@ -12855,3 +12855,23 @@ naegora用审查者打到3800了
 naegora用审查者打到3800了</blockquote>
 看过直播，算是把审查者的性能发挥到极致了，看看这赛季有没有可能打破上赛季鹦鹉螺的记录
 
+
+*****
+
+####  760194962  
+##### 4253#       发表于 2024-5-1 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782562&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-5-1 16:37</a>
+打击范围宽，可以在敌方环境里游走</blockquote>
+是能够走很快 但是怎么躲（撤退）呢……
+我想象玩这个很厉害的玩家是不是可以沿着自己画的那条细线快速往回走，应该不是吧。
+
+几乎首发的时候全收集了单人剧情模式觉得挺棒的 然后去打多人也就随便打打
+最近买了一个月个人会员无聊又捡起来打了几把 感觉还是得有个老手教教带带才有动力 不然每次打开来玩个三局左右就想关游戏了
+
+现在8级
+
+看了看其他楼喷的无意识新手玩家行为 可能就是我<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

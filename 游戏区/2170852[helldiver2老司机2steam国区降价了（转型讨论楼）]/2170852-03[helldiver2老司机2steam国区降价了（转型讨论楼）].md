@@ -7775,3 +7775,14 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 反正最新补丁一下来我就去打了差评，西线打不过，东线主力武器一大刀，这游戏已经变成一坨狗屎了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rainknine  
+##### 3695#       发表于 2024-5-2 00:54
+
+最近因为hd2的内容玩的差不多腻了，开始和朋友玩hd1
+然后今天hd1把光能族干碎了，这下一代也没有光能族内容可玩了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+开车真好玩，不知道2代什么时候出多人载具
+

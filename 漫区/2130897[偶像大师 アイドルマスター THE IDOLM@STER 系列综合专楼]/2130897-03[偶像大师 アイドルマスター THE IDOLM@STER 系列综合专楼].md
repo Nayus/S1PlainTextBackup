@@ -8491,3 +8491,20 @@ MV Producer : Takuya Negawa</blockquote>
 
 1st宣布动画化播完后游戏开服绝杀了好吧
 
+
+*****
+
+####  cckuku  
+##### 3756#       发表于 2024-5-1 21:21
+
+代便又开始犯畜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官网上每个角色的吧唧有6个柄，想要哪个只能500y随机抽没得选。我第一次见到单角色盲抽的，佩服。
+
+IMG_3389.png
+(398.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/212217w3ryrpt5hggmofuf.png" referrerpolicy="no-referrer">
+

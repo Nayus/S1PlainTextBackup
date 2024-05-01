@@ -6018,3 +6018,18 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次高难又能用伯爵逃课 第3阶段无限晕到死
 
+
+*****
+
+####  alucardcz  
+##### 12561#       发表于 2024-5-1 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么打完还有一个超高难。好烦
+
+*****
+
+####  gulant  
+##### 12562#       发表于 2024-5-1 21:19
+
+仓鼠120抽掏空家底今天才出青子，有珠意思意思3发颗粒无收<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

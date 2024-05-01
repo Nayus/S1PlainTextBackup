@@ -60,3 +60,20 @@
 
 又有消息了呀 太好了
 
+
+*****
+
+####  Zami_two  
+##### 584#       发表于 2024-5-1 21:15
+
+五一微博突然诈尸一下想起来到现在还没发布，急急急，再不出就又要再去重温一遍原作了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  丹德里恩  
+##### 585#       发表于 2024-5-1 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到这楼被顶上来才想起游戏还没出
+

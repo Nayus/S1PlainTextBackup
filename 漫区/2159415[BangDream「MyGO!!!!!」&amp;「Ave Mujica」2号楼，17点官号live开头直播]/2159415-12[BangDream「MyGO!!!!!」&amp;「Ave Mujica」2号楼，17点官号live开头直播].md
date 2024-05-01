@@ -2329,3 +2329,16 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 剧场版「BanG Dream! It's MyGO!!!!!前編 : 春の陽だまり、迷い猫」主视觉图解禁
 
+
+*****
+
+####  rikaren  
+##### 16499#       发表于 2024-5-1 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64777024&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-4-30 22:51</a>
+
+也没什么，都是可以通过动画已有内容推测到的
+
+祥子觉得没必要进去看live，她的目的是来办事这一点动画里明 ...</blockquote>
+可以不用假药，soyo第一次堵祥的时候，祥听到别人说“又有月之森"的时候还准备笑来着，除了以为说的是睦还有什么原因吗？哪怕睦过来会暴露自己也还是比较开心。
+

@@ -5777,3 +5777,20 @@ evc40
 
 人在沙漠，飞船没修好不让飞，但我可以从沙漠地图出口坐电梯回到主城，这流程上没问题吧？
 
+
+*****
+
+####  ky7913  
+##### 1285#       发表于 2024-5-1 09:00
+
+mc已经93了
+
+Screenshot_20240501_085839_Chrome.jpg
+(86.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 08:59 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/085929tu4mwuiffdpadzmz.jpg" referrerpolicy="no-referrer">
+

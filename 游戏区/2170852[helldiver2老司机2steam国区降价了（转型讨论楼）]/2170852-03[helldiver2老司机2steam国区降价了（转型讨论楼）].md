@@ -7656,3 +7656,15 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  WGTCorp  
+##### 3683#       发表于 2024-5-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784925&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-5-1 21:00</a>
+爆裂铳进土就很麻烦，现在除了机炮外还有啥高效率拆房又能兼顾清杂的武器啊
+
+—— 来自 OPPO PEAM00 ...</blockquote>
+那怕是只有带榴弹了。
+

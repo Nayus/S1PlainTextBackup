@@ -7290,3 +7290,26 @@ QQ截图20240429200420.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  烈焰舞阳  
+##### 3647#       发表于 2024-5-1 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64759802&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-29 12:38</a>
+我猜一下，24项加强指解放者，震荡解放者，穿甲解放者弹夹加一，离子喷伤害加100，爆炸弩弹速增加，这种完 ...</blockquote>
+草，带预言家
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  烈焰舞阳  
+##### 3648#       发表于 2024-5-1 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64759802&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-4-29 12:38</a>
+我猜一下，24项加强指解放者，震荡解放者，穿甲解放者弹夹加一，离子喷伤害加100，爆炸弩弹速增加，这种完 ...</blockquote>
+草，带预言家
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

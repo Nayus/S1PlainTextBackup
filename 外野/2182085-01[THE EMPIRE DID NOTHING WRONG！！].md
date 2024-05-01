@@ -522,3 +522,13 @@
 
 —— 来自 HONOR SDY-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kamus  
+##### 51#       发表于 2024-5-1 12:41
+
+星战就是米利坚人民的神话和传说，米利坚人民没有上古神话全靠星战
+
+贸易联盟封锁纳布真的笑死，不是，最后应该大喊一句：Hann shots first!
+

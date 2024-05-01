@@ -6041,3 +6041,33 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 最近库库尔坎确实成泛用解了，就是库库尔坎+小黑+w杀狐+奥伯龙占五个位，这次活动甚至能六加成
 
+
+*****
+
+####  alucardcz  
+##### 12564#       发表于 2024-5-1 21:48
+
+<img src="https://img.saraba1st.com/forum/202405/01/214738zkp9dtktky09k3og.jpg" referrerpolicy="no-referrer">
+
+<strong>2323232.jpg</strong> (427.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 21:47 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吐了 借不到巴师傅 青子刷了半天最高只有一个2宝的  怎么回事 和说好的不一样啊 怎么没人抽啊
+
+
+*****
+
+####  KOBI  
+##### 12565#       发表于 2024-5-1 21:54
+
+ 本帖最后由 KOBI 于 2024-5-1 21:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">活动最后这有珠怎么看都没戏啊。。
+
+也就捞到个每年都会见面
+
+这三个人真的。。
+

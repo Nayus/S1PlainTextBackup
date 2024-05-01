@@ -7484,3 +7484,16 @@ discord上没人说是因为都被禁言堵嘴了，Reddit上我把手机划烂�
 机甲现在怎么没人用了，被削了什么？</blockquote>
 脆皮、没法补给、重新部署cd过长导致长线作战乏力，在枪林弹雨的西线就是吸引火箭弹的大号靶子，东线随着单兵能力的不断加强机甲清杂的作用也逐渐降低了
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 3666#       发表于 2024-5-1 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782592&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-5-1 16:40</a>
+
+机甲现在怎么没人用了，被削了什么？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火箭弹焊死不能指哪打哪后我就再也没带过了
+
+两三发才能打一只坦克虫根本不够用
+

@@ -5674,3 +5674,11 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 艹 出了可还行</blockquote>
 你石头没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 12523#       发表于 2024-5-1 17:51
+
+四大男主还剩志贵没出场了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年能达成四大女主+四大男主全成就么
+

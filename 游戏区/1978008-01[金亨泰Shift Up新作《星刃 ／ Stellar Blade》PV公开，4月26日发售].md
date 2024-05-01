@@ -5736,3 +5736,16 @@ evc40
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  jxzeroga0  
+##### 1281#       发表于 2024-5-1 07:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778779&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-1 07:26</a>
+
+荒土日照塔那个解密怎样破啊
+
+玩到沙漠了还是找不到第四台机器</blockquote>
+就周边一圈3个和宝箱旁边的1个（需要二段跳），都在附近
+

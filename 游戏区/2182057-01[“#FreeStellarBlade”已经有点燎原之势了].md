@@ -959,3 +959,13 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 至少還沒開始指責不一起罵街一起簽名退款的玩家是龜，還有救<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 個人覺得從虛假宣傳這方面來看是挺活該，一開始就放現版本明明沒大問題
 
+
+*****
+
+####  superlink  
+##### 87#       发表于 2024-5-1 07:48
+
+讲道理这和谐的的确莫名其妙，然而mc高分<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，明显都没觉得被和谐了有问题
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

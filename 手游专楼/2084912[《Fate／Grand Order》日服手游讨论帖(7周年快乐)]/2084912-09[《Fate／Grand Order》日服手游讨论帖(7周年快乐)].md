@@ -5748,3 +5748,11 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我准备了1200多石头等有珠差点翻车，剩五百多的时候脸都绿了
 
+
+*****
+
+####  v22325  
+##### 12531#       发表于 2024-5-1 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">木乃美回想愿望那段挺好的……我就爱看这个
+

@@ -7743,3 +7743,134 @@ a7d1f66c2c678abf0539811ec3a29cc8.jpeg
 
 一直都是吧，选一大批最后这批里面能出几个过几年大家能喊上名字的就不错了，这么看百万那批确实是出名了不少的，虽然不是靠的爱马仕这个牌子
 
+
+*****
+
+####  cckuku  
+##### 3711#       发表于 2024-5-1 18:46
+
+立牌吧唧透卡麻将，这次真是周边全家桶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Swss  
+##### 3712#       发表于 2024-5-1 18:48
+
+好幽默的南征北战环节啊
+
+*****
+
+####  Seeley  
+##### 3713#       发表于 2024-5-1 18:48
+
+搜了一下，这几个场地都是700左右的livehouse，不说1st，作为live tour来看都有些微妙，叫做出道还真挺合适的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 3714#       发表于 2024-5-1 18:49
+
+东京不是断层 这有好比的吗
+
+*****
+
+####  zhwpjy  
+##### 3715#       发表于 2024-5-1 18:49
+
+<img src="https://img.saraba1st.com/forum/202405/01/184803xa874nx464in4ti2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4861.png</strong> (557.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:48 上传
+
+appstore显示8月26日
+
+*****
+
+####  Vacuolar  
+##### 3716#       发表于 2024-5-1 18:50
+
+是小美也日出文能做得出的企划，他的想法还是那么低能，令人安心
+
+
+*****
+
+####  Seeley  
+##### 3717#       发表于 2024-5-1 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  田所あずさ  
+##### 3718#       发表于 2024-5-1 18:50
+
+百万那年声优基本上都是严选，当然不差了
+
+*****
+
+####  Vacuolar  
+##### 3719#       发表于 2024-5-1 18:51
+
+所以五月究竟怎么说
+
+a28abbbdd15a2aeb50206ef619587d84.png
+(115.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:51 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/185111zplh2tssp7hkskhy.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 3720#       发表于 2024-5-1 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近高强度宣发，5月要是开不了服不就搞笑了
+
+
+*****
+
+####  cckuku  
+##### 3721#       发表于 2024-5-1 18:53
+
+应该是五月开服吧？不然还有啥猛料能放在六七月份的吗？
+
+*****
+
+####  绯田美琴  
+##### 3722#       发表于 2024-5-1 18:53
+
+5月真开不了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Genkishi  
+##### 3723#       发表于 2024-5-1 18:55
+
+这波造势5月不开服也太幽默了点，东西都放完了
+
+*****
+
+####  Seeley  
+##### 3724#       发表于 2024-5-1 18:55
+
+五月上估计也不是中旬，最快也是23号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陆久舟  
+##### 3725#       发表于 2024-5-1 18:56
+
+5月不开，这MV也没必要一天出一个
+

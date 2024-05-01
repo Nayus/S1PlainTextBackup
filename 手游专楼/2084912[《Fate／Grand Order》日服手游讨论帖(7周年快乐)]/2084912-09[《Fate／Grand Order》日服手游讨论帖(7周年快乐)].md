@@ -5923,3 +5923,28 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 家人们 有珠保底了 还剩一个保底的量是继续冲有珠还是隔壁保个青子
 
+
+*****
+
+####  khxooo  
+##### 12550#       发表于 2024-5-1 20:07
+
+用瓦尔基里冲，难得绿卡可以上班<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 12551#       发表于 2024-5-1 20:10
+
+<blockquote>RiesbyfeAtlasia 发表于 2024-5-1 20:04
+家人们 有珠保底了 还剩一个保底的量是继续冲有珠还是隔壁保个青子</blockquote>
+FGO一个卡池只保你一宝，后面没保底了。
+
+
+*****
+
+####  qixinno2  
+##### 12552#       发表于 2024-5-1 20:14
+
+没爱真心不建议去抽青子 真的太迷惑了这卡
+

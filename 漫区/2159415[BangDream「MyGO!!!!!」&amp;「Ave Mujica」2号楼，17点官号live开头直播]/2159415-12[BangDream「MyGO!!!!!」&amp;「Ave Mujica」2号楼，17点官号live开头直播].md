@@ -2617,3 +2617,11 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 这就是爱素，这就是美帝
 
+
+*****
+
+####  6030sylar  
+##### 16513#       发表于 2024-5-1 20:06
+
+【【mygo/手书】小妹为了糊弄作业画出的低质玩意……】 [https://www.bilibili.com/video/B ... ecc94d95054d66e11a8](https://www.bilibili.com/video/BV1Nz421D7Ky/?share_source=copy_web&amp;vd_source=b1820cee5cb70ecc94d95054d66e11a8)
+

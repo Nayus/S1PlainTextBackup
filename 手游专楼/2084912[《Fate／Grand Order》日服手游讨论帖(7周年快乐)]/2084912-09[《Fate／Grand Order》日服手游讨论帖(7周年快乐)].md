@@ -5966,3 +5966,22 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 今天这个素材本就一面太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ggyy0088  
+##### 12555#       发表于 2024-5-1 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784623&amp;ptid=2084912" target="_blank">シャル 发表于 2024-5-1 20:24</a>
+今天这个素材本就一面太棒了</blockquote>
+一个一个出怪太拖了
+
+*****
+
+####  qixinno2  
+##### 12556#       发表于 2024-5-1 20:35
+
+<blockquote>alucardcz 发表于 2024-5-1 20:23
+欧皇说的对！ 但你有</blockquote>
+用着不如狗萌新的女教皇
+

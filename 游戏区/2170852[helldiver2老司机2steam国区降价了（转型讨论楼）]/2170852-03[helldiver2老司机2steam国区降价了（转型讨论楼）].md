@@ -7618,3 +7618,11 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为捍卫管理式民主都是说着玩的，你来真的啊
 
+
+*****
+
+####  ddwhzh  
+##### 3679#       发表于 2024-5-1 20:29
+
+箭头真想平衡，把新任务弄的难一点呀，现在新任务纯纯xp farm，还有掉到洞里bug。完全看不出箭头平衡武器的意义。
+

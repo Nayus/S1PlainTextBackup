@@ -6273,3 +6273,36 @@ fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉�
 fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉 ...</blockquote>
 CCC的确是完整，但SR以合作来说是失败的，因为主角单位就是无法融入的第三者，加上我不是gay，没兴趣。至少这次活动把主角团体毫无问题地融入魔夜队伍里面，也让我想去玩魔夜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萨拉丁  
+##### 12585#       发表于 2024-5-2 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786925&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 01:21</a>
+
+剧本完成度和年初的fsr完全比不了，更别说ccc了
+
+fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉 ...</blockquote>
+完整什么？一个被拿掉人格核心只剩老好人人格的空壳升华了什么？不如说型月主角不剩内部矛盾纠葛割裂还能算型月主角？
+
+还是你们CP厨看到不剩原型的同性恋发情雌化小鬼就满足了？
+
+看联动觉得不明白建议提升阅读能力。这次蘑菇基本已经是以“大概不会有魔夜2、3了吧”的姿态把几个人的事情都交代完了。
+
+
+*****
+
+####  exiaexa  
+##### 12586#       发表于 2024-5-2 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786972&amp;ptid=2084912" target="_blank">萨拉丁 发表于 2024-5-2 01:36</a>
+
+完整什么？一个被拿掉人格核心只剩老好人人格的空壳升华了什么？不如说型月主角不剩内部矛盾纠葛割裂还能 ...</blockquote>
+巧了，我的态度就是
+
+你丫不想写魔夜2就别来浪费时间骗人爆米
+
+我连着魔夜1的记忆直接扔垃圾桶里
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

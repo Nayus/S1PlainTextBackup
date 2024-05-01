@@ -7798,3 +7798,11 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 车子早做好了，改文件可以调出来
 两种车辆装甲车和侦察车，前者中甲带一门炮+两挺机枪，一局限召两次；后者裸奔带一挺机枪，一局限召一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3697#       发表于 2024-5-2 01:41
+
+这种地形开车真能开吗
+

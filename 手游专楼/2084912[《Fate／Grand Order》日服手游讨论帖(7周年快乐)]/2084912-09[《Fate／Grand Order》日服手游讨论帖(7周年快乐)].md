@@ -6236,3 +6236,16 @@ FGO的剧本一年有一个，不两年有一个这种级别的我都能烧高�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">所以还是要早点谈恋爱早点生孩子，这次两仪家一家三口都来秀恩爱了你们三别跟小学生一样啊
 
+
+*****
+
+####  exiaexa  
+##### 12582#       发表于 2024-5-2 01:21
+
+剧本完成度和年初的fsr完全比不了，更别说ccc了
+
+fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉丝对比原作完全是升华了
+
+魔夜这边就给你硬拉扯，本篇说不明白联动也不给你说明白，我就搞个同学会你们这么认真干啥，只能说fgo母猪活该被爆米，以后继续这么干迟早被骑空士反过来笑话
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

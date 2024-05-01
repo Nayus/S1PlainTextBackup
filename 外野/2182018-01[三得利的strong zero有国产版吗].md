@@ -399,3 +399,16 @@ strongzero这完应不建议随便喝，真不好喝，买醉用的
 
 我在盒马上买过柠檬味的，不咋好喝,感觉不如何乐怡
 
+
+*****
+
+####  smdzh2  
+##### 43#       发表于 2024-5-2 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778719&amp;ptid=2182018" target="_blank">a9okalypse 发表于 2024-5-1 07:35</a>
+-196应该是6%的酒精，比strong zero度数低，不过这个喝一次就没那新鲜劲了
+
+我更好奇乌龙嗨是什么味道，有 ...</blockquote>
+就是烧酎+乌龙茶的味道，可能我喝不惯酎嗨，仿佛在吞刀子，感觉乌龙茶和烧酒根本不搭
+乌龙茶更适合兑洋酒做嗨棒，按照酒茶2:3比例混合再加冰块加柠檬汁搅拌，口感十分清爽<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

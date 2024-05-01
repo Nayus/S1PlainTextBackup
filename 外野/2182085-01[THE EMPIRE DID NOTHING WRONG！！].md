@@ -508,3 +508,17 @@
 
 —— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+*****
+
+####  无念  
+##### 50#       发表于 2024-5-1 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64779906&amp;ptid=2182085" target="_blank">aruruu 发表于 2024-5-1 10:57</a>
+娱乐化的乐子人跑去和鱿鱼真人对线，主张严肃议题的键盘侠又做了什么？
+
+—— 来自 HUAWEI BKL-AL20, Andro ...</blockquote>
+试图用这是娱乐化！堵嘴，这是最乐的，暴露了自己的确是和某些思维一丘之貉
+
+—— 来自 HONOR SDY-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

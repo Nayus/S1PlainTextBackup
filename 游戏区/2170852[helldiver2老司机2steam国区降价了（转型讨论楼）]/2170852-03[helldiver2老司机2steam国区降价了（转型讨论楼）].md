@@ -7376,3 +7376,15 @@ eat免费是很爽，之前不知道哪个缺德的送的免费燃烧弹，在�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳弹锁玩家本身就很幽默了，不知道箭头脑子里装了多少屎
 
+
+*****
+
+####  jy000129  
+##### 3656#       发表于 2024-5-1 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64780496&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-1 12:02</a>
+跳弹锁玩家本身就很幽默了，不知道箭头脑子里装了多少屎</blockquote>
+生化人的卡利亚奉还喜欢吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

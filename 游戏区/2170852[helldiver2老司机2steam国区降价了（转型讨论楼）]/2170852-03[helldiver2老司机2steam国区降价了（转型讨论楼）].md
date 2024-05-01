@@ -7507,3 +7507,30 @@ discord上没人说是因为都被禁言堵嘴了，Reddit上我把手机划烂�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Launce  
+##### 3668#       发表于 2024-5-1 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782949&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-1 17:22</a>
+
+discord上没人说是因为都被禁言堵嘴了，Reddit上我把手机划烂了都找不到一条好评，什么狗罕见在这捧洋人臭 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所以跑STEAM社区了
+
+
+*****
+
+####  Awanano  
+##### 3669#       发表于 2024-5-1 18:42
+
+现实见过活人就应该知道，活的会呼吸的人都有多面性，一个人是可以又蠢又坏。把一个人，一个群体的毛病全部归因于蠢并不能让他多高贵，捧上高地又不能堵住批判者的嘴。
+计算机这工学行当，菜就是菜。又菜又赚别人钱，还想不被骂，没有那么好的事。
+红迪蓝鸟的洋人可没少骂，到中国的s1，倒谈起温良恭俭让了。骂也是讨论嘛，如果觉得骂就会去开卡车，有辱传统文化了，那你也可以去up square一下。让高手发布发布精神，指引我们这些以hd2问题为导向的进行批判的玩家，压实我们评价箭头的责任，明确规定地狱潜兵2讨论的大致范围和方针。
+
+这个楼我看也没觉得这游戏应该一把枪杀到底啊。但是这样一个火力协同攻击的游戏，我看到的是制作组对各部份火力设计和调整的反覆无常。没做出特色，先做出问题。有些做好了一点在同类别鹤立鸡群了，又看玩家摸路虎车门了急眼了穷回去。为什么一更新大家都用电喷离子喷，是劣根性吗，是不尊重多样性吗？是其他武器在享受其特色的同时问题比这两把多。哦还有不知道不买高级债劵的算不算人。
+
+PS：躲在dc当皇帝的制作组不是闭门造车，是今年目前以来在s1看到最好笑的笑话
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

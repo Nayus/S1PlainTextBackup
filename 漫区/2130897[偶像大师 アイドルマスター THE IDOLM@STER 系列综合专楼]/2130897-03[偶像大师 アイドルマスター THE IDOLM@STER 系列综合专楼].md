@@ -7598,3 +7598,148 @@ cy参与了吧。</blockquote>
 
 万南之前搞的电音部也是一直有出2D MV的，没这么多就是了。反正都是AsobiNote的。
 
+
+*****
+
+####  rgauss  
+##### 3696#       发表于 2024-5-1 18:37
+
+这就live了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 3697#       发表于 2024-5-1 18:38
+
+ 本帖最后由 wfhtony 于 2024-5-1 18:39 编辑 
+
+LIVE，還是巡演。
+
+<img src="https://img.saraba1st.com/forum/202405/01/183813ovuabxwa6wzvbvif.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h37m45s609.jpg</strong> (102.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183813dj173heew3u71r7o.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h37m56s816.jpg</strong> (191.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183947t9110l0vhassmukh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h38m56s951.jpg</strong> (246.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:39 上传
+
+*****
+
+####  Swss  
+##### 3698#       发表于 2024-5-1 18:38
+
+这么快就live嘛
+
+*****
+
+####  Vacuolar  
+##### 3699#       发表于 2024-5-1 18:38
+
+详细演出计划
+
+a7d1f66c2c678abf0539811ec3a29cc8.jpeg
+(162.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183816vgr174fkok917fkg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Seeley  
+##### 3700#       发表于 2024-5-1 18:38
+
+出道live，怪怪的
+
+*****
+
+####  joshua1990  
+##### 3701#       发表于 2024-5-1 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">直接上live，这么快
+
+*****
+
+####  陆久舟  
+##### 3702#       发表于 2024-5-1 18:39
+
+这live太快了
+
+
+*****
+
+####  joshua1990  
+##### 3703#       发表于 2024-5-1 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这下直接验中之人成色了
+
+*****
+
+####  Vacuolar  
+##### 3704#       发表于 2024-5-1 18:40
+
+都是livehouse，不算正经1st
+
+*****
+
+####  Achlys  
+##### 3705#       发表于 2024-5-1 18:40
+
+这个是不是和之前imas企划的运营方式有点不一样啊...怪不得声优都选些没啥人气的。
+
+*****
+
+####  cckuku  
+##### 3706#       发表于 2024-5-1 18:41
+
+哥们儿这么有自信吗？？万一后续反响热度不高咋整？
+
+*****
+
+####  magicc  
+##### 3707#       发表于 2024-5-1 18:42
+
+代哥这次攻势有点猛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 3708#       发表于 2024-5-1 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783599&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-1 18:40</a>
+
+这个是不是和之前imas企划的运营方式有点不一样啊...怪不得声优都选些没啥人气的。 ...</blockquote>
+声优的话一直都是这样吧，一开始都选没什么名气的
+
+*****
+
+####  rgauss  
+##### 3709#       发表于 2024-5-1 18:44
+
+开始带货了
+
+*****
+
+####  joshua1990  
+##### 3710#       发表于 2024-5-1 18:45
+
+一直都是吧，选一大批最后这批里面能出几个过几年大家能喊上名字的就不错了，这么看百万那批确实是出名了不少的，虽然不是靠的爱马仕这个牌子
+

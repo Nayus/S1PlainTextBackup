@@ -5717,3 +5717,34 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 你石头没了啊</blockquote>
 本身就只剩69石和10呼符 没想到能出
 
+
+*****
+
+####  exiaexa  
+##### 12528#       发表于 2024-5-1 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783390&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-5-1 18:18</a>
+日本人就对fgo没有天井制度没意见的么，太毒了啊</blockquote>
+虽然很难以置信，但是你游的氪金其实算便宜的，某种意义上算是抵消了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 12529#       发表于 2024-5-1 18:36
+
+藤乃是不是没up过，什么情况强化了不up？
+
+
+*****
+
+####  洛克萨斯  
+##### 12530#       发表于 2024-5-1 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783541&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-1 18:33</a>
+
+虽然很难以置信，但是你游的氪金其实算便宜的，某种意义上算是抵消了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我准备了1200多石头等有珠差点翻车，剩五百多的时候脸都绿了
+

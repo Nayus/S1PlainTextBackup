@@ -561,3 +561,13 @@
 
 怪不得米国电影越来越拉跨，和把持着舆论的鱿鱼一起怎么能拍好片
 
+
+*****
+
+####  leviathan  
+##### 55#       发表于 2024-5-1 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781510&amp;ptid=2182085" target="_blank">装甲兔 发表于 2024-5-1 14:11</a>
+卡梅隆前几年曾经拍过一个纪录片，专门找各种科幻片导演来采访问他当年心路历程还有如今社会发展和他当年 ...</blockquote>
+卢卡斯这么说没被冲？
+

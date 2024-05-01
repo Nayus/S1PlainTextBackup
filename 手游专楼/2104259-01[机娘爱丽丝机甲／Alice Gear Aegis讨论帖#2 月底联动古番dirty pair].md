@@ -149,3 +149,24 @@ pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face
 
 昨天刷调查挖矿攒卡，发现红黄图的贝壳加成好高，今天就没有了，不知道啥原因
 
+
+*****
+
+####  Picavian  
+##### 1052#       发表于 2024-5-1 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781684&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-5-1 14:35</a>
+
+昨天刷调查挖矿攒卡，发现红黄图的贝壳加成好高，今天就没有了，不知道啥原因 ...</blockquote>
+玩家生涯的最初几个调查图的攒条是有加成的。最近伴随攒条系统更新，所有人重新开始享用一次加成（这个加成本身也更新了，以前适用五张图，现在是十张图）。
+
+*****
+
+####  冰风血羽  
+##### 1053#       发表于 2024-5-1 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785182&amp;ptid=2104259" target="_blank">Picavian 发表于 2024-5-1 21:31</a>
+
+玩家生涯的最初几个调查图的攒条是有加成的。最近伴随攒条系统更新，所有人重新开始享用一次加成（这个加 ...</blockquote>
+原来如此，我还以为阿金开窍鼓励大家多多调查了
+

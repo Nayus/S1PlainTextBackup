@@ -2641,3 +2641,18 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天子控  
+##### 16515#       发表于 2024-5-1 21:28
+
+<img src="https://p.sda1.dev/17/523f41a915a3de1a436fbb2fa8a7abbf/CMP_20240501212710369.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天子控  
+##### 16516#       发表于 2024-5-1 21:30
+
+<img src="https://p.sda1.dev/17/0c8f5dc8faa0921afb43bca3aa15d3a3/CMP_20240501212852244.jpg" referrerpolicy="no-referrer">
+

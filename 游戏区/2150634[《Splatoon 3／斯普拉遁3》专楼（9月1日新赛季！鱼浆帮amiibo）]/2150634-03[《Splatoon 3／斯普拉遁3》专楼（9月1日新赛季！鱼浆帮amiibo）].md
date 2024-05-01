@@ -12844,3 +12844,14 @@ RKH4-PQJW-JMRC-HM0J
 
 naegora用审查者打到3800了
 
+
+*****
+
+####  罗克萨斯  
+##### 4252#       发表于 2024-5-1 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783359&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-5-1 18:13</a>
+
+naegora用审查者打到3800了</blockquote>
+看过直播，算是把审查者的性能发挥到极致了，看看这赛季有没有可能打破上赛季鹦鹉螺的记录
+

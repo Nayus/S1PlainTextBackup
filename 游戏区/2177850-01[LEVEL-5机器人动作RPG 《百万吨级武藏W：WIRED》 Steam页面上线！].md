@@ -558,3 +558,16 @@ PC版用键鼠可以Z键切近战，C键切远程，都是瞬切，但是如果�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  woaimiyabi  
+##### 58#       发表于 2024-5-1 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782121&amp;ptid=2177850" target="_blank">cherry__ 发表于 2024-5-1 15:43</a>
+
+豪华版送的限定武器是什么呀
+
+有必要买吗</blockquote>
+不用买， 豪华版给的机体和武器 完全没用。
+

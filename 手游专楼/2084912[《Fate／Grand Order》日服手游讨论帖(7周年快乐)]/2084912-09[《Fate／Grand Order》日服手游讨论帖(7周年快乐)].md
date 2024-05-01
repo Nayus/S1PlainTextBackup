@@ -5707,3 +5707,13 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人就对fgo没有天井制度没意见的么，太毒了啊
 
+
+*****
+
+####  qixinno2  
+##### 12527#       发表于 2024-5-1 18:27
+
+<blockquote>シャル 发表于 2024-5-1 17:43
+你石头没了啊</blockquote>
+本身就只剩69石和10呼符 没想到能出
+

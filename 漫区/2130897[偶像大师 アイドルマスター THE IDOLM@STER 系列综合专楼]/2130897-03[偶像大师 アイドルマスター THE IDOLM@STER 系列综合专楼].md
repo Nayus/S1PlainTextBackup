@@ -7380,3 +7380,221 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 琴音的SOLO曲是（9首SOLO中）最早開始製作的。
 
+
+*****
+
+####  wfhtony  
+##### 3676#       发表于 2024-5-1 18:26
+
+新廣播《雙佐藤之間》，廣播中會聊一些樂曲製作祕話（類似於MOR，不過只有大叔）。
+
+<img src="https://img.saraba1st.com/forum/202405/01/182633jdbff0jy2sffrxoq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h24m47s847.jpg</strong> (168.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:26 上传
+
+*****
+
+####  Achlys  
+##### 3677#       发表于 2024-5-1 18:27
+
+小蓝的mv情绪好强烈啊
+
+*****
+
+####  wfhtony  
+##### 3678#       发表于 2024-5-1 18:27
+
+ 本帖最后由 wfhtony 于 2024-5-1 18:30 编辑 
+
+9首SOLO曲都有專門製作的MV。今天晚上10點（UTC+8）開始按順序在 學馬仕官方音樂頻道（youtube） 中公開。
+
+<img src="https://img.saraba1st.com/forum/202405/01/182919bcc1vfnf7pccfkkk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h28m47s418.jpg</strong> (217.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183002qcndascfq8s7s2ld.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h29m26s784.jpg</strong> (224.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:30 上传
+
+*****
+
+####  Vacuolar  
+##### 3679#       发表于 2024-5-1 18:27
+
+2dmv，哇，什么投入啊。
+
+cy参与了吧。
+
+*****
+
+####  rgauss  
+##### 3680#       发表于 2024-5-1 18:28
+
+能问卓巴卡布拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  陆久舟  
+##### 3681#       发表于 2024-5-1 18:28
+
+不错啊，这mv
+
+*****
+
+####  Achlys  
+##### 3682#       发表于 2024-5-1 18:29
+
+直接全公开了，感谢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3683#       发表于 2024-5-1 18:29
+
+好好好 2d mv
+
+*****
+
+####  koodooliz  
+##### 3684#       发表于 2024-5-1 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783474&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-5-1 18:27</a>
+2dmv，哇，什么投入啊。
+
+cy参与了吧。</blockquote>
+本子做2D MV的不少啊，和cy估计没啥关系吧…
+
+*****
+
+####  magicc  
+##### 3685#       发表于 2024-5-1 18:30
+
+还专门搞了个学院mas音乐的频道吗
+
+*****
+
+####  rgauss  
+##### 3686#       发表于 2024-5-1 18:30
+
+该买cd了
+
+*****
+
+####  Seeley  
+##### 3687#       发表于 2024-5-1 18:31
+
+我焯，真下血本了啊，全员2d？
+
+*****
+
+####  cckuku  
+##### 3688#       发表于 2024-5-1 18:32
+
+好快的卖碟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就是火力全开的万代吗？
+
+*****
+
+####  Vacuolar  
+##### 3689#       发表于 2024-5-1 18:32
+
+草，这真的是小美也日出文吗？活太多了吧，真的会花钱。
+
+舅舅党说过他拿到的投资不算很多，对比强推的sc，整出来的东西真是超人。
+
+
+*****
+
+####  wfhtony  
+##### 3690#       发表于 2024-5-1 18:32
+
+<img src="https://img.saraba1st.com/forum/202405/01/183136cherqeb015x9mkmh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h31m23s418.jpg</strong> (247.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183208dc5nq42oqozzaqon.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h31m58s182.jpg</strong> (204.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183216pi8bb2gz8q2gtq2q.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h32m11s247.jpg</strong> (181.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183230v54mktrtx439s49s.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-05-01-18h32m22s182.jpg</strong> (189.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:32 上传
+
+三張單曲CD將於8/7發售。
+
+*****
+
+####  Achlys  
+##### 3691#       发表于 2024-5-1 18:32
+
+御三家待遇是不是太好了些...
+
+*****
+
+####  洋葱葱  
+##### 3692#       发表于 2024-5-1 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2DMV这不就是烤的操作吗
+
+*****
+
+####  陆久舟  
+##### 3693#       发表于 2024-5-1 18:33
+
+狠狠的爆米
+
+*****
+
+####  Vacuolar  
+##### 3694#       发表于 2024-5-1 18:33
+
+8月吗。。不会真的那时候再上线吧
+
+1c861e418f3fd4b8d70edc691548b70d.png
+(111.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/183257abl0qmqlgmlksbls.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 3695#       发表于 2024-5-1 18:34
+
+万南之前搞的电音部也是一直有出2D MV的，没这么多就是了。反正都是AsobiNote的。
+

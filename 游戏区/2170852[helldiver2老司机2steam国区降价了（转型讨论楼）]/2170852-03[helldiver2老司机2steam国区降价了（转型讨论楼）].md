@@ -7786,3 +7786,15 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 开车真好玩，不知道2代什么时候出多人载具
 
+
+*****
+
+####  smdzh2  
+##### 3696#       发表于 2024-5-2 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786808&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-2 01:54</a>
+最近因为hd2的内容玩的差不多腻了，开始和朋友玩hd1
+然后今天hd1把光能族干碎了，这下一代也没有光能族内容 ...</blockquote>
+车子早做好了，改文件可以调出来
+两种车辆装甲车和侦察车，前者中甲带一门炮+两挺机枪，一局限召两次；后者裸奔带一挺机枪，一局限召一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

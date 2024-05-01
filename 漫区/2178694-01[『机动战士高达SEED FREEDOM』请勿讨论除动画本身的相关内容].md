@@ -8950,3 +8950,14 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 看哭了整整四次，开头飞自出击一次，命运出击一次，无正暴甲一次，非自登场一次。熟悉的bgm响起这种事情我这种感性的人根本忍不住，虽然只办了一次签注，但已经打算明天二刷了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">也不知道黑骑士凭啥觉得小鸟菜，二对一都拿不下人家
 
+
+*****
+
+####  battleship64  
+##### 732#       发表于 2024-5-2 01:30
+
+看完了，4dx别第一遍看，震太多
+飞鸟上就是震得最厉害的，虽然全程带入的是被打的那个
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

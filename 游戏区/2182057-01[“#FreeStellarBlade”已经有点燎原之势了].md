@@ -1248,3 +1248,23 @@ zzzq加进游戏这东西，就是切香肠，最开始玩到的游戏是和谐�
 
 倒不是滑坡，因为谁都看到了美末2这鸟样，还有之后的游戏全是这鸟样。
 
+
+*****
+
+####  popchong  
+##### 118#       发表于 2024-5-2 01:33
+
+StellarBlade
+
+@StellarBlade
+
+Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned for updates🤍
+
+由
+
+翻译自 英语
+
+感谢所有 Stellar Blade 粉丝的热情和反馈。敬请关注更新
+
+索尼怂了？
+

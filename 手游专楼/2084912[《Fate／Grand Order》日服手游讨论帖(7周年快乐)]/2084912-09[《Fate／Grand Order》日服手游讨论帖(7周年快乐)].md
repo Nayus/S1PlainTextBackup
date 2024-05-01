@@ -6249,3 +6249,27 @@ fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉�
 魔夜这边就给你硬拉扯，本篇说不明白联动也不给你说明白，我就搞个同学会你们这么认真干啥，只能说fgo母猪活该被爆米，以后继续这么干迟早被骑空士反过来笑话
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萨拉丁  
+##### 12583#       发表于 2024-5-2 01:27
+
+ 本帖最后由 萨拉丁 于 2024-5-2 01:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786881&amp;ptid=2084912" target="_blank">v22325 发表于 2024-5-2 01:12</a>
+
+所以还是要早点谈恋爱早点生孩子，这次两仪家一家三口都来秀恩爱了你们三别跟小学生一样啊 ...</blockquote>
+问题的根子其实还是青子，草食狼虽然自己没有明显意识到但是一到性命攸关的紧迫时刻最后还是青子优先已经好几次了，还是很明显的；有珠其实也清楚这一点（比方说这次青子说草食狼是保护你而死的吧那里有珠的微妙表情“哦你说是那就是咯”）。你说他们三个一直就是高中生谈恋爱那个感觉还真就没错。
+
+*****
+
+####  cenhr  
+##### 12584#       发表于 2024-5-2 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786925&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 01:21</a>
+
+剧本完成度和年初的fsr完全比不了，更别说ccc了
+
+fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉 ...</blockquote>
+CCC的确是完整，但SR以合作来说是失败的，因为主角单位就是无法融入的第三者，加上我不是gay，没兴趣。至少这次活动把主角团体毫无问题地融入魔夜队伍里面，也让我想去玩魔夜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

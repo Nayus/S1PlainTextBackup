@@ -7323,3 +7323,20 @@ QQ截图20240429200420.jpg
 马的西线机炮+EAT强无敌，之前怎么没想到这样的配置</blockquote>
 Eat加强好久了，之前有活动给免费eat，那打起来简直太爽
 
+
+*****
+
+####  ykyin09  
+##### 3650#       发表于 2024-5-1 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64779232&amp;ptid=2170852" target="_blank"> normalli 发表于 2024-5-1 09:32</a> 引用:FLZB 发表于 2024-5-1 03:59 马的西线机炮 EAT强无敌，之前怎么没想到这样的配置 Eat加强好久了，之前有活动给免费eat，那打起来简直太爽 </blockquote>
+eat加哨戒炮，直接化身阵地战大师来自: iPhone客户端
+
+
+*****
+
+####  赤井稻妻  
+##### 3651#       发表于 2024-5-1 09:44
+
+eat免费是很爽，之前不知道哪个缺德的送的免费燃烧弹，在那卡飞鹰cd，真就是反向buff
+

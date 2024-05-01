@@ -6208,3 +6208,31 @@ FGO的剧本一年有一个，不两年有一个这种级别的我都能烧高�
 
 另外FGO看来是真准备完结了。这次联动蘑菇抖了不少核心设定，比如レイシフト和青子魔法的类似性，特异点可以靠后发设定覆盖先发设定（基本上这个设定肯定和最后的特异点F有关），以及一番星怎么看都是最后迦勒底亚斯的预演（愿望机靠曲解规则和燃烧全人类的情报（文化，愿望）来达到超阶变态不讲道理级别的强度），蘑菇已经在往终章铺线了。
 
+
+*****
+
+####  清河子  
+##### 12579#       发表于 2024-5-2 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785736&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-5-1 22:38</a>
+青子有珠不老不死，但是草十郎会正常长大，继续下去就是寿命论了，青草和草珠都注定没希望的，但是阿草说了 ...</blockquote>
+痛 太痛了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萨拉丁  
+##### 12580#       发表于 2024-5-2 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786855&amp;ptid=2084912" target="_blank">清河子 发表于 2024-5-2 01:04</a>
+
+痛 太痛了蘑菇我想要饺子能给我包点吗，饺子……看到有珠摸摸右手那里我真破防了虽然这种 ...</blockquote>
+草食狼的右手应该是蘑菇给魔夜2留的引子，草食狼给青子争取两秒钟用的那一下应该是1991年为了救有珠或者解决有珠造成的麻烦用过一次，这次导致他的右手没了或者废了。
+
+
+*****
+
+####  v22325  
+##### 12581#       发表于 2024-5-2 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">所以还是要早点谈恋爱早点生孩子，这次两仪家一家三口都来秀恩爱了你们三别跟小学生一样啊
+

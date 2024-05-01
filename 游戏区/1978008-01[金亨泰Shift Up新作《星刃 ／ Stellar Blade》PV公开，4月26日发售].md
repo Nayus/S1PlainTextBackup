@@ -6123,3 +6123,15 @@ Screenshot_20240501_085839_Chrome.jpg
 本来觉得荒野那张大图就够恶的了 让你来回绕着跑 
 没想到后边沙漠这张图 不绕了 一个大方块地图里边随便跑 笑了
 
+
+*****
+
+####  rainsheep  
+##### 1321#       发表于 2024-5-2 04:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785562&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-1 22:19</a>
+通了一个结局，整体还行，就是明牌没做完，换个JRPG高低加一章地图上天开砍，不知道su是打算续作还 ...</blockquote>
+翻译文本是韩语或者英语，反正肯定不是日语。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

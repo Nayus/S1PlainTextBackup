@@ -5985,3 +5985,11 @@ FGO一个卡池只保你一宝，后面没保底了。
 欧皇说的对！ 但你有</blockquote>
 用着不如狗萌新的女教皇
 
+
+*****
+
+####  洛克萨斯  
+##### 12557#       发表于 2024-5-1 20:36
+
+有珠的技能介绍全是怼青子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

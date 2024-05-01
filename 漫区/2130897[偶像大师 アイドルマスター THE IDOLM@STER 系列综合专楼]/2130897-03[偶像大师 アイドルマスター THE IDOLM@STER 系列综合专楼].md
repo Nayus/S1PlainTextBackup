@@ -8814,3 +8814,14 @@ https://youtu.be/UAzw5B-35kI?si=s5QrDrmVQjB-IEAz
 
 full版感觉至少红本来那词和词之间粘在一起的感觉没有那么明显了吐字清楚了很多。
 
+
+*****
+
+####  Seeley  
+##### 3794#       发表于 2024-5-2 07:02
+
+full听完，全曲感觉比之前放出来的高潮要难不少
+出道live不管怎么样都能和解了，第一首个人曲选giga属实有点不做人了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

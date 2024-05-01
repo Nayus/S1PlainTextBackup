@@ -7684,3 +7684,35 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 榴弹和机炮是完美武器，不需要改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 3686#       发表于 2024-5-1 22:19
+
+榴弹和机炮的问题也很明显吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且作为3号位都没有反重甲能力
+
+
+*****
+
+####  Mr.Hopp  
+##### 3687#       发表于 2024-5-1 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785564&amp;ptid=2170852" target="_blank">Ashice 发表于 2024-5-1 22:19</a>
+
+榴弹和机炮的问题也很明显吧
+
+而且作为3号位都没有反重甲能力</blockquote>
+机炮也就打不了泰坦吧，其他都能打。
+
+3号位有反重甲能力的仅仅只有反重甲能力吧。
+
+*****
+
+####  白昼梦  
+##### 3688#       发表于 2024-5-1 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机炮大弹容高射速有群控，单人装弹惩罚还没其他背包武器那么严重，实属西线完美武器
+

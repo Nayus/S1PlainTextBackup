@@ -1184,3 +1184,11 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 
 为啥不买个 NS 玩 XB2？
 
+
+*****
+
+####  simonroam  
+##### 111#       发表于 2024-5-1 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏也是难崩，光看流量搞得像是千万级别的，结果现在一百万销量有没有都不知道
+

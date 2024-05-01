@@ -8825,3 +8825,11 @@ full听完，全曲感觉比之前放出来的高潮要难不少
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  sliver1997  
+##### 3795#       发表于 2024-5-2 07:08
+
+隔壁电音部管人在 live 唱 giga 曲也是很难绷，和吉田凛音的 live 版本对比强烈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

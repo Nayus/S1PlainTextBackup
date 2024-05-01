@@ -5871,3 +5871,31 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 12544#       发表于 2024-5-1 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784093&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-1 19:34</a>
+
+非洲人什么时候豹跳过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我就要来了 5宝限定欧皇（
+
+
+*****
+
+####  都谷捻柏  
+##### 12545#       发表于 2024-5-1 19:42
+
+试了下，1宝有珠+牢青，抱水斯卡蒂可以打，不用开被动。
+
+*****
+
+####  清河子  
+##### 12546#       发表于 2024-5-1 19:44
+
+看有珠羁绊礼装，尖叫抓挠<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+（只能安慰自己尼莫也很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

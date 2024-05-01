@@ -8429,3 +8429,30 @@ MV Producer : Takuya Negawa</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁3DSC做的这么变态，能先救一下吗
 
+
+*****
+
+####  ViviR  
+##### 3749#       发表于 2024-5-1 19:38
+
+<blockquote>陆久舟 发表于 2024-5-1 19:31
+学马仕玩法还没具体介绍吧，看上去很坐牢</blockquote>
+玩法到8号体验入学应该会示范。不过越是到后面才讲的东西一般就越不重要了。不如说这游戏的玩法最开始放pv出来的时候不就一眼望穿了么（
+
+*****
+
+####  Achlys  
+##### 3750#       发表于 2024-5-1 19:39
+
+那还是挺重要，要是是个新牢房，哪怕小偶像再可爱也玩不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rslika  
+##### 3751#       发表于 2024-5-1 19:40
+
+ 本帖最后由 rslika 于 2024-5-1 19:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代的没活硬整显得很低能 但是用不完的资源又弥补了这一部分
+

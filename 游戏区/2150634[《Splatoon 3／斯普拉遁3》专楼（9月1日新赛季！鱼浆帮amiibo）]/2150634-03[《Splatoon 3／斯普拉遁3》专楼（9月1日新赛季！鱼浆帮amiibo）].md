@@ -12875,3 +12875,20 @@ naegora用审查者打到3800了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hisousihou  
+##### 4254#       发表于 2024-5-1 19:41
+
+ 本帖最后由 hisousihou 于 2024-5-1 19:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64783874&amp;ptid=2150634" target="_blank">760194962 发表于 2024-5-1 19:11</a>
+
+是能够走很快 但是怎么躲（撤退）呢……
+
+我想象玩这个很厉害的玩家是不是可以沿着自己画的那条细线快速往 ...</blockquote>开始对枪以后基本就是你死我活了，如果墨水环境维持得好还有机会走位撤退。如果环境不好的话就还是继续长按ZR拖着笔迹走路。身法好的话是能跑开的
+
+636119309，游戏区ns群，基本都在打喷。不如进群找人一起打找人指点一下。
+
+游戏挺多不直接教给你的技巧和玩法的，有兴趣的话可以研究一下
+

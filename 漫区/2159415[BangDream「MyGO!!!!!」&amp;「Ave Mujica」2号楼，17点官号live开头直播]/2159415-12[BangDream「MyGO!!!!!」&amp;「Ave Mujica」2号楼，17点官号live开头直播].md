@@ -2582,3 +2582,23 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  御幸一也  
+##### 16510#       发表于 2024-5-1 19:42
+
+ 本帖最后由 御幸一也 于 2024-5-1 19:43 编辑 
+
+鼓子和奏音的直播看一眼<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/01/194310lcbvb7c8d7cvqvdn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_林鼓子のココいちばん！🍒(@hayashicoco1)_20240501-111924_1785630095077724.jpg</strong> (174.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 19:43 上传
+
+[https://twitter.com/hayashicoco1/status/1785630095077724266](https://twitter.com/hayashicoco1/status/1785630095077724266)
+

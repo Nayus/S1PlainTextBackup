@@ -2353,3 +2353,94 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  御幸一也  
+##### 16501#       发表于 2024-5-1 12:04
+
+重新掃了，這本是群友買的，感謝他。
+
+大圖丟了這邊：
+[https://drive.google.com/drive/f ... M2IyTXkds3TKq5uLgGu](https://drive.google.com/drive/folders/12AWAbBYDz8UoKM2IyTXkds3TKq5uLgGu)
+
+<img src="https://img.saraba1st.com/forum/202405/01/120251q6a66n6bra28s585.jpg" referrerpolicy="no-referrer">
+
+<strong>094.jpg</strong> (526.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120255tys39s5qow55ws45.jpg" referrerpolicy="no-referrer">
+
+<strong>095.jpg</strong> (425.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120258p80k1jz0jw8swdsw.jpg" referrerpolicy="no-referrer">
+
+<strong>096.jpg</strong> (491.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:02 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120303rpwkla45p41plbz8.jpg" referrerpolicy="no-referrer">
+
+<strong>097.jpg</strong> (498.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120308ddxjgkjxjdgmxbdv.jpg" referrerpolicy="no-referrer">
+
+<strong>098.jpg</strong> (525.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120315zoepsfum24m5uv7r.jpg" referrerpolicy="no-referrer">
+
+<strong>099.jpg</strong> (484.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120320sollo9v9zehdvryr.jpg" referrerpolicy="no-referrer">
+
+<strong>100.jpg</strong> (497.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120325mh7dqpskwvksstkw.jpg" referrerpolicy="no-referrer">
+
+<strong>101.jpg</strong> (517.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120331dzbi3d6h333zrhib.jpg" referrerpolicy="no-referrer">
+
+<strong>102.jpg</strong> (585.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/120337vusg1shhnr88nssr.jpg" referrerpolicy="no-referrer">
+
+<strong>103.jpg</strong> (534.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 12:03 上传
+

@@ -5833,3 +5833,21 @@ Screenshot_20240501_085839_Chrome.jpg
 
 我想问问到了废土之后还能回吊机那边那服装吗，看传送点是已经消失了
 
+
+*****
+
+####  birdma  
+##### 1290#       发表于 2024-5-1 11:59
+
+这游戏感觉好费手，高强度玩法环手都没有玩这游戏两个小时疼，有人有这种感觉吗
+
+*****
+
+####  ku2154513  
+##### 1291#       发表于 2024-5-1 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64780096&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-05-01 11:18:30</a>
+沙漠南部的断桥上怎么还有个服饰箱子是不让开的，一点提示都没有。</blockquote>后面支线才能开，这游戏好多内容必须接支线才能触发
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -12790,3 +12790,11 @@ RKH4-PQJW-JMRC-HM0J
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4247#       发表于 2024-5-1 12:02
+
+加特林最爽的还是还剩不到半蓄时被对面加特林等着偷袭对枪赢了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

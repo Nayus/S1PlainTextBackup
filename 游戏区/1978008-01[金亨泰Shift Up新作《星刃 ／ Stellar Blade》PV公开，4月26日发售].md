@@ -6004,3 +6004,14 @@ Screenshot_20240501_085839_Chrome.jpg
 
 通了一个结局，整体还行，就是明牌没做完，换个JRPG高低加一章地图上天开砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。这战斗系统说不上多优秀但足够支撑完整个流程，还有个问题就是日配和中文经常意思差这么多到底是怎么个事？
 
+
+*****
+
+####  jacket  
+##### 1308#       发表于 2024-5-1 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785562&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-1 22:19</a>
+
+通了一个结局，整体还行，就是明牌没做完，换个JRPG高低加一章地图上天开砍，不知道su是打算续作还 ...</blockquote>
+自动保存的游戏没上PC就算有多档位也没法复制存档呀，只能外部备份
+

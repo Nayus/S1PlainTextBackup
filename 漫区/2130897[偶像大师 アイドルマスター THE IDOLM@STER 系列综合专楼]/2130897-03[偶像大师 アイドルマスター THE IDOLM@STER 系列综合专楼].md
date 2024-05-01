@@ -8691,3 +8691,18 @@ giga的能现场唱？我是不信的，除非有reol和ado的水平<img src="ht
 有人能听出来这跟lv10有什么区别吗？反正我没听出来都是giga，唱的跟隔壁电音仓鼠差的不是一点半点 ...</blockquote>
 夹角色音唱giga也很难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  index  
+##### 3780#       发表于 2024-5-1 22:37
+
+不知道对手三人有没有solo曲这点待遇
+
+*****
+
+####  六至九  
+##### 3781#       发表于 2024-5-1 22:38
+
+live翻车也是表演的一环
+

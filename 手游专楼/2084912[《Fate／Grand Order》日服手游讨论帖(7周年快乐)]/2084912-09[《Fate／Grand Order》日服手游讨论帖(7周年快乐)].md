@@ -6107,3 +6107,23 @@ FGO一个卡池只保你一宝，后面没保底了。
 最近库库尔坎确实成泛用解了，就是库库尔坎+小黑+w杀狐+奥伯龙占五个位，这次活动甚至能六加成 ...</blockquote>
 cos够吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 12570#       发表于 2024-5-1 22:38
+
+青子有珠不老不死，但是草十郎会正常长大，继续下去就是寿命论了，青草和草珠都注定没希望的，但是阿草说了一年会去一次久远寺邸，为了履行约定，要是死了就让其他人代他去，以他的个性大概会这样一直坚持到老吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  格林卡罗尔  
+##### 12571#       发表于 2024-5-1 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785714&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2024-5-1 22:35</a>
+
+cos够吗</blockquote>
+这也是这阵容的最大问题……好在这次加成在卡池礼装可以用低星礼装缓和，如果是无限池那种全是五星礼装就不够了
+

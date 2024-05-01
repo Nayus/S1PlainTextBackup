@@ -6082,3 +6082,13 @@ Screenshot_20240501_085839_Chrome.jpg
 
 看到那个毛绒熊服装爆笑，太怪了，就像手机开长腿滤镜一样
 
+
+*****
+
+####  Rainwedell  
+##### 1317#       发表于 2024-5-2 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786158&amp;ptid=1978008" target="_blank">卡博雷z 发表于 2024-5-1 23:24</a>
+探图体验最差的是太多后面解锁的密码箱了</blockquote>
+密码箱奖励也拉，给的都是溢出的升级资源，一个地区全收集给个衣服就好了
+

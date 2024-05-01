@@ -7467,3 +7467,20 @@ HD2的爽点，乃至大多数pve游戏的爽点都在于在于怪物十分强�
 
 discord上没人说是因为都被禁言堵嘴了，Reddit上我把手机划烂了都找不到一条好评，什么狗罕见在这捧洋人臭脚呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3664#       发表于 2024-5-1 17:28
+
+楼上小作文总结一下不就是：giegie本意是好的，只是执行坏了，bug和nerf并不针对玩家，觉得埋暗雷恶心人肯定是因为你们心理阴暗<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 3665#       发表于 2024-5-1 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782592&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-5-1 17:40</a>
+机甲现在怎么没人用了，被削了什么？</blockquote>
+脆皮、没法补给、重新部署cd过长导致长线作战乏力，在枪林弹雨的西线就是吸引火箭弹的大号靶子，东线随着单兵能力的不断加强机甲清杂的作用也逐渐降低了
+

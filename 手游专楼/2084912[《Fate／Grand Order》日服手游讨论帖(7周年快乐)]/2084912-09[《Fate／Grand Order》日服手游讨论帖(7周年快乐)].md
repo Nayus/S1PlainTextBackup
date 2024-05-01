@@ -5587,3 +5587,63 @@ iphone XR
 
 比青子好看一点........
 
+
+*****
+
+####  onemoment  
+##### 12517#       发表于 2024-5-1 17:27
+
+2000石有珠6宝达成，歪了布妹、奶奶和1001
+
+<img src="https://img.saraba1st.com/forum/202405/01/172702tu7ags37j8eaauae.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2218.png</strong> (511.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 17:27 上传
+
+*****
+
+####  sosgame67  
+##### 12518#       发表于 2024-5-1 17:29
+
+100石头还歪了一个恩奇都..嘛，魔夜联动结束<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12519#       发表于 2024-5-1 17:30
+
+玄学呼符出
+
+这次省石头了
+
+DA267AD6-F78B-4667-8E0D-AD460961088D.png
+(996.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/172909nw69lw6rvlvfqv69.png" referrerpolicy="no-referrer">
+
+2BFC41C1-D7E8-4C05-938A-8103A77DC156.jpeg
+(790.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-1 17:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/01/172923gl0neolnyod4989e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不垃圾屌丝  
+##### 12520#       发表于 2024-5-1 17:36
+
+又吃黑灰又吃黑曜石，太黑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

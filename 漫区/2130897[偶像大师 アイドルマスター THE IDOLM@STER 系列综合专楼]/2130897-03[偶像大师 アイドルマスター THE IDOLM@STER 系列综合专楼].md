@@ -7364,3 +7364,19 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 ↑ 學馬仕的Label
 
+
+*****
+
+####  rgauss  
+##### 3674#       发表于 2024-5-1 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">莉波的猜错了
+
+
+*****
+
+####  wfhtony  
+##### 3675#       发表于 2024-5-1 18:24
+
+琴音的SOLO曲是（9首SOLO中）最早開始製作的。
+

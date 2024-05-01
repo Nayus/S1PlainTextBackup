@@ -5699,3 +5699,11 @@ Screenshot_2024-05-01-17-31-02-642_com.aniplex.fategrandorder.jpg
 我吐了，八单一宝，福袋见
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 12526#       发表于 2024-5-1 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人就对fgo没有天井制度没意见的么，太毒了啊
+

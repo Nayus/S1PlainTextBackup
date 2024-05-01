@@ -2656,3 +2656,19 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 <img src="https://p.sda1.dev/17/0c8f5dc8faa0921afb43bca3aa15d3a3/CMP_20240501212852244.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16517#       发表于 2024-5-1 22:57
+
+五月了，离母鸡卡的应许之日只有不到九个月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16518#       发表于 2024-5-1 23:00
+
+https://x.com/zizoumiao/status/1785565071655289198<img src="https://p.sda1.dev/17/06889dc14e2c37713e18ee0cd6ed1b85/CMP_20240501230019334.jpg" referrerpolicy="no-referrer">
+

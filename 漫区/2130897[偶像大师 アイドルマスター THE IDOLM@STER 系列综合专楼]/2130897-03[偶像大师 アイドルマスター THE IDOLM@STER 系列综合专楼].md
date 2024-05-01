@@ -8722,3 +8722,11 @@ live翻车也是表演的一环
 
 这mv风格疯狂幻视某一届msi的主题设计<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">加上曲风还非常pop
 
+
+*****
+
+####  ViviR  
+##### 3784#       发表于 2024-5-1 22:57
+
+之前还都说手毬的solo曲vo力不够苍，现在对比下小红的这首就觉得不是事了。九个人中听感最差的只能说。代孙做做人，Solo2给个好唱的吧。而且giga这首感觉比起他之前几首曲子也差些意思。
+

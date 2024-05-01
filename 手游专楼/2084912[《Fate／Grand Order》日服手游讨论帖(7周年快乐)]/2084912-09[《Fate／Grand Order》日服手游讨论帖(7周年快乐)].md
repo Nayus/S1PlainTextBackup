@@ -5948,3 +5948,21 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 没爱真心不建议去抽青子 真的太迷惑了这卡
 
+
+*****
+
+####  alucardcz  
+##### 12553#       发表于 2024-5-1 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784522&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-1 20:14</a>
+
+没爱真心不建议去抽青子 真的太迷惑了这卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇说的对！ 但你有
+
+*****
+
+####  シャル  
+##### 12554#       发表于 2024-5-1 20:24
+
+今天这个素材本就一面太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

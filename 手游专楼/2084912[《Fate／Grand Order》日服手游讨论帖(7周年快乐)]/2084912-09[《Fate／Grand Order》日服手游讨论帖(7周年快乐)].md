@@ -6306,3 +6306,20 @@ fsr和ccc好就好在一次性讲清楚，所以后续好写，伊织和莉莉 .
 我连着魔夜1的记忆直接扔垃圾桶里
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萨拉丁  
+##### 12587#       发表于 2024-5-2 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787009&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 01:44</a>
+
+巧了，我的态度就是
+
+你丫不想写魔夜2就别来浪费时间骗人爆米，我连着魔夜1的记忆直接扔垃圾桶里</blockquote>
+尽管你是这个态度，但是事实是今天魔夜的销量已经是Steam日本20位了。
+
+显然更多人的态度是玩了联动更想玩魔夜了。
+
+So，你算老几？
+

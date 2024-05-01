@@ -7313,3 +7313,13 @@ QQ截图20240429200420.jpg
 
 —— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  normalli  
+##### 3649#       发表于 2024-5-1 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778546&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-1 03:59</a>
+马的西线机炮+EAT强无敌，之前怎么没想到这样的配置</blockquote>
+Eat加强好久了，之前有活动给免费eat，那打起来简直太爽
+

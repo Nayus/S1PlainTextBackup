@@ -5794,3 +5794,26 @@ Screenshot_20240501_085839_Chrome.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/01/085929tu4mwuiffdpadzmz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  B.K.  
+##### 1286#       发表于 2024-5-1 09:31
+
+<blockquote>jacket 发表于 2024-5-1 08:47
+人在沙漠，飞船没修好不让飞，但我可以从沙漠地图出口坐电梯回到主城，这流程上没问题吧？ ...</blockquote>
+没啥问题，虽然从出口回过一次主城后沙漠的飞船也能用来传送了（跳过了修好的剧情），但是不会出现什么影响进度的bug 
+
+
+*****
+
+####  jacket  
+##### 1287#       发表于 2024-5-1 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64779227&amp;ptid=1978008" target="_blank">B.K. 发表于 2024-5-1 09:31</a>
+
+没啥问题，虽然从出口回过一次主城后沙漠的飞船也能用来传送了（跳过了修好的剧情），但是不会出现什么影 ...</blockquote>
+它原本设计是打算什么时候修好？
+
+我看电塔修复了飞船还没好，那下一步主线只能把这地图通了。
+

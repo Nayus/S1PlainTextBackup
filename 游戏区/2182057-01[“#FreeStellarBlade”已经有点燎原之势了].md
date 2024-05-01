@@ -1133,3 +1133,26 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 
 既然准备吃这波流量那后来被人发现并没有兑现承诺被冲也是很正常的事情
 
+
+*****
+
+####  jag0713_plus  
+##### 106#       发表于 2024-5-1 16:27
+
+<blockquote>hanan1 发表于 2024-5-1 14:14
+不是，人家的诉求不是反和谐吗？怎么又和麻辣仙人扯上关系了？
+
+还有觉得没有影响的，咋没见你们去支持b站 ...</blockquote>
+遇上这种发言 先查成分就明白了 
+
+
+*****
+
+####  jakie_guo  
+##### 107#         楼主| 发表于 2024-5-1 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781993&amp;ptid=2182057" target="_blank">陛下欲反邪 发表于 2024-5-1 15:21</a>
+
+看杉果的微博，该活动发起人Grummz宣称受到了推特上一位名叫Toneman（账号已注销）的用户死亡威胁，这位用 ...</blockquote>
+是关推了。
+

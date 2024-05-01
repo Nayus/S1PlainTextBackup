@@ -6331,3 +6331,15 @@ So，你算老几？
 
 还差80石头就够一井了，除了7周年，还有妖兰那一次吃井外从来没有过这么多石头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12589#       发表于 2024-5-2 02:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我一个没看过魔夜的人看了这次联动剧情后也觉得根本不会有什么魔夜2了啊
+
+主要角色的后续这不都交代清楚了么....成年草十郎的那张脸还是别来辣眼睛了....简直比路人还要路人...和这次最后出场的干也待遇差别太大了
+
+另外短命种和长生不老的人要在一起就是无解.....觉得最后草十郎还是会找个普通人结婚然后让自己的子子孙孙每年都去一次久远寺邸.....就像XXXHOLiC最后的四月一日和百目鬼一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

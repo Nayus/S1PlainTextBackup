@@ -7806,3 +7806,16 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 这种地形开车真能开吗
 
+
+*****
+
+####  rainknine  
+##### 3698#       发表于 2024-5-2 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786960&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-5-2 01:33</a>
+车子早做好了，改文件可以调出来
+两种车辆装甲车和侦察车，前者中甲带一门炮+两挺机枪，一局限召两次；后 ...</blockquote>
+这我倒是知道
+箭头特有的先把东西放游戏里但就是不给用
+堪称悲剧级别的预期管理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

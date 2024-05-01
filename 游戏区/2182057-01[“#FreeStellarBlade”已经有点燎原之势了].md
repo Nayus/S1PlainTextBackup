@@ -1051,3 +1051,23 @@ PSN评价数包括demo啊，只看评论数当然得不出销量关系
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  acg_gyanc  
+##### 97#       发表于 2024-5-1 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781248&amp;ptid=2182057" target="_blank">SergeGlenn 发表于 2024-5-1 13:35</a>
+玩的有几个觉得有大问题的，添几块布这游戏就从涩变质到不涩了？</blockquote>
+只看几块布当然不算是什么大问题，但是我记得发售前星刃是官推专门发过一条保证这个游戏各个版本都没有和谐，结果发售了就开始推补丁，这可就有点问题了吧<img src="https://p.sda1.dev/17/2be2d8e43a5f3acae8cfc77fe6f53a03/1714544412912.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  woodcoin  
+##### 98#       发表于 2024-5-1 14:23
+
+看到一个国内评测说索尼在快发售的时候以防止泄露为名禁止了媒体提前发key直播
+可能因为这个得罪不少人
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

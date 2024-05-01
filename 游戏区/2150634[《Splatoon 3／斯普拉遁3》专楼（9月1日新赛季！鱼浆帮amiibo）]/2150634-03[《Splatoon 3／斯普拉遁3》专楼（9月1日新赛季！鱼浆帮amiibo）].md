@@ -12816,3 +12816,14 @@ RKH4-PQJW-JMRC-HM0J
 
 外加突然有事，这康不打了，就可惜了卡了个岗子一直没打掉
 
+
+*****
+
+####  hisousihou  
+##### 4250#       发表于 2024-5-1 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64781390&amp;ptid=2150634" target="_blank">760194962 发表于 2024-5-1 13:55</a>
+
+那个笔刷有什么优势。。。</blockquote>
+打击范围宽，可以在敌方环境里游走 
+

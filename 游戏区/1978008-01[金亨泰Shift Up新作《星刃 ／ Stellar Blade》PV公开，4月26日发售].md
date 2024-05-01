@@ -5825,3 +5825,11 @@ Screenshot_20240501_085839_Chrome.jpg
 
 沙漠南部的断桥上怎么还有个服饰箱子是不让开的，一点提示都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hokagokenjatime  
+##### 1289#       发表于 2024-5-1 11:46
+
+我想问问到了废土之后还能回吊机那边那服装吗，看传送点是已经消失了
+

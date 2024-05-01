@@ -496,3 +496,15 @@
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  圣血天使  
+##### 49#       发表于 2024-5-1 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64778884&amp;ptid=2182085" target="_blank">gearh 发表于 2024-5-1 08:10</a>
+【霍格沃茨的学生 坐不住了-哔哩哔哩】 https://b23.tv/ooEiOlk</blockquote>
+这哥们做的视频要是翻译完发tiktok，怕不是哈利波特指环王都要被禁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJC110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

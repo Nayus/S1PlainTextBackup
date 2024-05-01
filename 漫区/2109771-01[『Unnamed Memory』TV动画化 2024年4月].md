@@ -41,3 +41,17 @@ Screenshot_20240501_090652_tv.danmaku.bili.jpg
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Laie  
+##### 100#       发表于 2024-5-2 06:34
+
+之前被漫画吸引去看原作，那时候才出到第三卷，看完了也没补web版
+
+动画看下来又穷又赶，但是有华哥和ed足矣
+
+现在有动画化的素材加成有动力补完原作了，一看后日谈都出到4了还是web都没的新内容，再后日谈下去比本篇卷数都要多了
+
+顺便终于想起当初看到战双赛琳娜的既视感从何而来，反过来现在看着女主变成了既视感赛琳娜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

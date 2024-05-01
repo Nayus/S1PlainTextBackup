@@ -6135,3 +6135,11 @@ Screenshot_20240501_085839_Chrome.jpg
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  jacket  
+##### 1322#       发表于 2024-5-2 06:43
+
+看人提到一个视线诱导思路，说前期那个抬头看时钟读取密码的地方，把时钟放在很高的地方，就能光明正大引导玩家把机位压低看屁股
+

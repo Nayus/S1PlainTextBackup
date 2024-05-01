@@ -12920,3 +12920,13 @@ naegora用审查者打到3800了</blockquote>
 拿着完全不熟悉的卷管在尾工阶段艰难地康掉了
 感觉工坊+栓的配置出现次数有点多啊，满潮一旦没环境完全不会用。
 
+
+*****
+
+####  秋月孝三  
+##### 4258#       发表于 2024-5-2 00:48
+
+[https://docs.google.com/spreadsh ... XA/edit?usp=sharing](https://docs.google.com/spreadsheets/d/1T6GrF3Qk-GWQfbyRRyENxbTh3kURBWe2ygGQ95pjjXA/edit?usp=sharing)
+
+工房栓也不多，刚好最近两次都有而已
+

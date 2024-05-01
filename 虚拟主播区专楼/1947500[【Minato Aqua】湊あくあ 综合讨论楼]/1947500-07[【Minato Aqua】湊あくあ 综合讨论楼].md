@@ -176,3 +176,11 @@
 你现在看到的不是频道后台真实数据而只是第三方网站的简易线性预测值，实际上多少只有本人知道，不过如果 ...</blockquote>
 现在没提耐久冲200W，可能就是差的还有点多，耐了也上不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9737#       发表于 2024-5-1 17:24
+
+不存在上不去的，azki前两天耐久看到了吗，几小时就到了
+

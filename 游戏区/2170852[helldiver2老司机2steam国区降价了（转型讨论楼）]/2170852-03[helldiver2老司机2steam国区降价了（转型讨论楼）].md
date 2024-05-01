@@ -7449,3 +7449,21 @@ HD2的爽点，乃至大多数pve游戏的爽点都在于在于怪物十分强�
 
 楼上这么喜欢汴京，怎么不去dc和Reddit跟打差评的白皮对线
 
+
+*****
+
+####  狂风DKC  
+##### 3662#       发表于 2024-5-1 17:18
+
+翻译一下 
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人家箭头爹爹只是傻逼不是坏逼，玩家爱用什么砍什么是爹爹菜不是故意恶心你们的你们不要骂爹爹了
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  山风短  
+##### 3663#       发表于 2024-5-1 17:22
+
+discord上没人说是因为都被禁言堵嘴了，Reddit上我把手机划烂了都找不到一条好评，什么狗罕见在这捧洋人臭脚呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

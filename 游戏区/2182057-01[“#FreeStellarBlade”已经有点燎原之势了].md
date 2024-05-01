@@ -1115,3 +1115,11 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 看杉果的微博，该活动发起人Grummz宣称受到了推特上一位名叫Toneman（账号已注销）的用户死亡威胁，这位用 ...</blockquote>
 哪删空了，就删了最近一次的录播啊
 
+
+*****
+
+####  D-JoeII  
+##### 104#       发表于 2024-5-1 15:39
+
+兩邊都KOL都是什麼牛鬼蛇神
+

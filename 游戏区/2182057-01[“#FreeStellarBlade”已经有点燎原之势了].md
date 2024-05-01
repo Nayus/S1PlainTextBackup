@@ -1123,3 +1123,13 @@ SU确实冰清玉洁<img src="https://static.saraba1st.com/image/smiley/face2017
 
 兩邊都KOL都是什麼牛鬼蛇神
 
+
+*****
+
+####  interzhang  
+##### 105#       发表于 2024-5-1 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是官推自己打了包票说没有和谐，显然准备吃的就是这波ZZZQ对冲带来的流量
+
+既然准备吃这波流量那后来被人发现并没有兑现承诺被冲也是很正常的事情
+

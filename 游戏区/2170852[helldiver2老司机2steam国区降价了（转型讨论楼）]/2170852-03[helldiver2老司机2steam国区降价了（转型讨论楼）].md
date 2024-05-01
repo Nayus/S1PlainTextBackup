@@ -7278,3 +7278,15 @@ QQ截图20240429200420.jpg
 马的西线机炮+EAT强无敌，之前怎么没想到这样的配置</blockquote>
 机炮打机器人一直都很强无敌啊，EAT打下到大盾机枪哥上到最近的行走工厂都是游刃有余
 
+
+*****
+
+####  2stage  
+##### 3646#       发表于 2024-5-1 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64772787&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-4-30 15:47</a>
+箭畜魅力时刻</blockquote>
+评测改差评了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

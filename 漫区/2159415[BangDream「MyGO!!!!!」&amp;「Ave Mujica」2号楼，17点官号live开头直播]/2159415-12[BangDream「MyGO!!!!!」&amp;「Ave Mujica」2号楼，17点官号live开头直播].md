@@ -2480,3 +2480,13 @@ rikki作为负责作曲的鼓手倒是全邦队内地位最高的鼓手，算是
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫吹兰  
+##### 16505#         楼主| 发表于 2024-5-1 17:12
+
+[https://b23.tv/LauX7OU](https://b23.tv/LauX7OU)
+
+今晚kdhr在b站直播
+

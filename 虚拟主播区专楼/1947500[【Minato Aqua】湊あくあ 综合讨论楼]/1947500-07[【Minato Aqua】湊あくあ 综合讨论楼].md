@@ -165,3 +165,14 @@
 感觉还是难，看了一下离199W都还差5000多</blockquote>
 你现在看到的不是频道后台真实数据而只是第三方网站的简易线性预测值，实际上多少只有本人知道，不过如果按以前的性格很可能就做一个什么游戏的耐久顺便冲200W，既然到现在也没提大概就是不耐久了
 
+
+*****
+
+####  Scardy  
+##### 9736#       发表于 2024-5-1 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782560&amp;ptid=1947500" target="_blank">holoan 发表于 2024-5-1 16:37</a>
+
+你现在看到的不是频道后台真实数据而只是第三方网站的简易线性预测值，实际上多少只有本人知道，不过如果 ...</blockquote>
+现在没提耐久冲200W，可能就是差的还有点多，耐了也上不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

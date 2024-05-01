@@ -7441,3 +7441,11 @@ HD2的爽点，乃至大多数pve游戏的爽点都在于在于怪物十分强�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">竟然还能见到活的箭孝子，真的开眼了
 
+
+*****
+
+####  山风短  
+##### 3661#       发表于 2024-5-1 17:11
+
+楼上这么喜欢汴京，怎么不去dc和Reddit跟打差评的白皮对线
+

@@ -1995,3 +1995,15 @@ SWW
 
 2024-5-1 20:11 上传
 
+
+*****
+
+####  starring  
+##### 20129#       发表于 2024-5-1 21:57
+
+（疑似）分别是nako、鲤、打铁、pay
+
+<img src="https://p.sda1.dev/17/8556cc0ad8b7396a6a2d51a9d73d97ed/QQ截图20240501215158.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/794f158c2a0850ae7beb6b7023918018/GMfw5EXawAAYL65.jpg" referrerpolicy="no-referrer">
+

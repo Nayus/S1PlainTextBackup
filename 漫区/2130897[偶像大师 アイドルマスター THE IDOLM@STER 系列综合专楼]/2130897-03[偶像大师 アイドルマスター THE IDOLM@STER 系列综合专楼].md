@@ -8666,3 +8666,28 @@ giga的能现场唱？我是不信的，除非有reol和ado的水平<img src="ht
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3777#       发表于 2024-5-1 22:31
+
+小蓝pv里唱的太难听了
+虽然初已经证明了一次，明天看看能不能复仇solo曲
+
+*****
+
+####  a85982313  
+##### 3778#       发表于 2024-5-1 22:31
+
+红这个不太行
+
+*****
+
+####  koodooliz  
+##### 3779#       发表于 2024-5-1 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785510&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-5-1 22:13</a>
+有人能听出来这跟lv10有什么区别吗？反正我没听出来都是giga，唱的跟隔壁电音仓鼠差的不是一点半点 ...</blockquote>
+夹角色音唱giga也很难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

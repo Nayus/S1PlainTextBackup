@@ -6097,3 +6097,13 @@ FGO一个卡池只保你一宝，后面没保底了。
 
 有珠自己都知道自己没戏
 
+
+*****
+
+####  千叶铁矢  
+##### 12569#       发表于 2024-5-1 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64785269&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-5-1 21:44</a>
+最近库库尔坎确实成泛用解了，就是库库尔坎+小黑+w杀狐+奥伯龙占五个位，这次活动甚至能六加成 ...</blockquote>
+cos够吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

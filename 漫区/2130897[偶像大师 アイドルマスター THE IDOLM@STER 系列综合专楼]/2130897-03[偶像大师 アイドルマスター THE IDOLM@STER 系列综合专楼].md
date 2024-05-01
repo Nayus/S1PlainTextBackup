@@ -7273,3 +7273,11 @@ P主视角commu里塞太多小黄心理描写了吧，看着有点怪
 
 这剧情会不会有，“就决定是你了皮卡丘，你去把蕾冠王干掉。”的情节。
 
+
+*****
+
+####  koodooliz  
+##### 3669#       发表于 2024-5-1 14:36
+
+舞台都放到校园了，就要这个味儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

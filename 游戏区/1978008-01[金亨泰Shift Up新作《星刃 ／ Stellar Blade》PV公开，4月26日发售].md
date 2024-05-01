@@ -5914,3 +5914,13 @@ Screenshot_20240501_085839_Chrome.jpg
 玩到沙漠了还是找不到第四台机器</blockquote>
 在中间
 
+
+*****
+
+####  woodcoin  
+##### 1298#       发表于 2024-5-1 14:41
+
+远程瞄准一下就自动解除锁定也太蠢了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

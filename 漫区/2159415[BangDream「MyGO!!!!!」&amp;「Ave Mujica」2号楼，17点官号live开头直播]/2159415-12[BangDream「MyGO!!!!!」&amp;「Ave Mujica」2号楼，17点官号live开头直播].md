@@ -3276,3 +3276,20 @@ sry，我居然在假定5月份有新歌<img src="https://static.saraba1st.com/i
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  滑稽Captain  
+##### 16582#       发表于 2024-5-2 21:17
+
+mv晚发也不奇怪，只能说按“连续五个月”歌肯定是不会跑了的，就是不知道会不会准时
+
+*****
+
+####  Aendst  
+##### 16583#       发表于 2024-5-2 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点奇怪的拖延感，新曲披露用预告预告拖延→拖延mv→拖延下一首新曲
+
+不过好歹有mv了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

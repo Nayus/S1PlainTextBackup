@@ -8931,3 +8931,16 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 
 千奈也是学生会的 会长看中仓本家的财力吗
 
+
+*****
+
+####  枫紫  
+##### 3806#       发表于 2024-5-2 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792715&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-5-2 19:01</a>
+
+可能妹妹有优秀的管理能力，只是不会当偶像
+
+会长不避成绩差这点，选贤任能</blockquote>
+5个人里两个补习班的，你确定？
+

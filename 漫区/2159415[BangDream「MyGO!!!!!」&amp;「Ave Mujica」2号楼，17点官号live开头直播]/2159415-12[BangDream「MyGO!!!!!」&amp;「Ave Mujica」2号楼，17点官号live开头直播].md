@@ -3035,3 +3035,69 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 這就是我們的女鬼團ave mujica，你們有沒有這樣的女鬼呀</blockquote>
 我只看到一个“烧”字
 
+
+*****
+
+####  滑稽Captain  
+##### 16555#       发表于 2024-5-2 19:18
+
+<img src="https://img.saraba1st.com/forum/202405/02/191840ugo2bb0eeetd1bo1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:18 上传
+
+*****
+
+####  御幸一也  
+##### 16556#       发表于 2024-5-2 19:21
+
+畫師丟圖了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/02/192110uzepefrzfwrgpyrg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_鮭まゆ🐟(@syakemayusan)_20240502-111233_1785990758862028846_photo.jpg</strong> (167.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:21 上传
+
+[https://twitter.com/syakemayusan/status/1785990758862028846](https://twitter.com/syakemayusan/status/1785990758862028846)
+
+
+*****
+
+####  鳥栖朝  
+##### 16557#       发表于 2024-5-2 19:23
+
+这次MV的头发会动了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  想喝一点点  
+##### 16558#       发表于 2024-5-2 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">饼图我觉得还行，比那个朱元璋好多了，虽然算不上好看但是有mv就是好事
+
+*****
+
+####  PDQ4  
+##### 16559#       发表于 2024-5-2 19:25
+
+发现各种mv里我好像都更喜欢海铃，是当梦以肉体厨被影响了吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 16560#       发表于 2024-5-2 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792750&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-2 19:04</a>
+這就是我們的女鬼團ave mujica，你們有沒有這樣的女鬼呀</blockquote>
+感觉像是会劝退不知情的人的画风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

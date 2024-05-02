@@ -8196,3 +8196,28 @@ Fix for crash wh ...</blockquote>
 绷，守卫遇到傻逼鬼佬了，砸死我两次试图砸第三次没成功，最后上飞机tk踢人，只能说我还是给他脸了 ...</blockquote>
 没任何用处，举报只能举报骂人，这破游戏甚至不能顺着近期玩家找到steam个人主页，大路id连查成分都查不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 3739#       发表于 2024-5-3 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796038&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-3 02:38</a>
+没任何用处，举报只能举报骂人，这破游戏甚至不能顺着近期玩家找到steam个人主页，大路id连查成分都查不 ...</blockquote>
+但是有心的可能会开steam自己进行检索，之前被南朝鲜垃圾tk我就怀疑他们这么做了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  FLZB  
+##### 3740#       发表于 2024-5-3 03:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796069&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-5-3 02:58</a>
+
+但是有心的可能会开steam自己进行检索，之前被南朝鲜垃圾tk我就怀疑他们这么做了
+
+论坛助手,iPhone ...</blockquote>
+只有比较特别的id能查到，这游戏我已经顺着id找过很多次了但都因为太普通重名太多根本无法锁定目标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

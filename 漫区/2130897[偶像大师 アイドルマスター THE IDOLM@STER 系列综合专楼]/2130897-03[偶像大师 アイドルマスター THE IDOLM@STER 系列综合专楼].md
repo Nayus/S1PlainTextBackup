@@ -9290,3 +9290,13 @@ mv说了是谁做的吗？
 
 出道live上小红和小蓝唱完这两首，再让小黄上去唱世界第一可爱的我的温度差<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  香蕉芭菲  
+##### 3848#       发表于 2024-5-3 01:38
+
+黄的歌明显是互动型的，到时候上live热度很可能会比红蓝的要高
+
+—— 来自 OnePlus KB2000, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

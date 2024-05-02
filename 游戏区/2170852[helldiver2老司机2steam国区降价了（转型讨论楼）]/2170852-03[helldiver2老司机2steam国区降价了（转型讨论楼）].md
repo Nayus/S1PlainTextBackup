@@ -8164,3 +8164,14 @@ Fix for crash wh ...</blockquote>
 
 喷火器我肯定不玩，武器设计就是一坨，队友玩我拿爆裂铳辅助，十分舒服。目前就是这样，讨论只谈强度就不谈武器互补，等这游戏真出全能武器估计两天就玩腻了。这游戏不止削武器存在问题，加强武器也没脑子，电喷射速提高50%，主宰伤害提高50%是正常人能想出来的吗。肯定到时候下版本回退一些，被人骂。
 
+
+*****
+
+####  Launce  
+##### 3736#       发表于 2024-5-3 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793688&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-2 20:55</a>
+
+新债卷三把主手一眼幽默</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，下个平衡补丁后你就笑不出来了
+

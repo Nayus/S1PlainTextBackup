@@ -8833,3 +8833,15 @@ full听完，全曲感觉比之前放出来的高潮要难不少
 
 隔壁电音部管人在 live 唱 giga 曲也是很难绷，和吉田凛音的 live 版本对比强烈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花火碳  
+##### 3796#       发表于 2024-5-2 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787165&amp;ptid=2130897" target="_blank">kangkangsama 发表于 2024-5-2 02:41</a>
+不说别的这mv跟beyond the way（giga给pjsk写的上一首歌的风格一摸一样的感觉
+
+https://youtu.be/UAzw5B-35k ...</blockquote>
+我每次听完小红这歌，都忍不住要去听一遍beyond the way洗耳朵
+

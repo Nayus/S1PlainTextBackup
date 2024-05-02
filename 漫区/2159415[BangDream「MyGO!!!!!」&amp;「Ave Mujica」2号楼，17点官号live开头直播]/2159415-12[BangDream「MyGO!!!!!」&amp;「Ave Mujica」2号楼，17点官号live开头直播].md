@@ -3695,3 +3695,13 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 
 别的能骂出来但分号没骂出来让我基本确定原本两个官号皮下就是一个人，馋热度又懒得管两个号才合的，估计热度有分成什么的吧，才死活不肯分号分流热度又喜欢玩那些蹭热度的语C梗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16628#       发表于 2024-5-2 23:25
+
+ 本帖最后由 PDQ4 于 2024-5-2 23:26 编辑 
+
+如果有邦官号当然是ksm，这个没人会有意见吧，你邦诞生的原点就是因为爱美，ppp一点点打下的江山，要不怎么说邦高祖。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

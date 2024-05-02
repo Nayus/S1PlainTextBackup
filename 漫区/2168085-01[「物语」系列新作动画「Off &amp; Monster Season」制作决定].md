@@ -1272,3 +1272,19 @@ yoasobi还行，看来没有角色曲了？也算正常，后面几个物语的�
 
 yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 139#       发表于 2024-5-2 17:28
+
+另外还是角色曲的话结物语不就得神谷来唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lollipopstar  
+##### 140#       发表于 2024-5-2 17:36
+
+角色曲也算是物语动画的卖点之一吧，应该还会有，和主题曲倒也不冲突，就是这YOASOBI是真腻了，只能安慰自己至少说明物语这企划还是相当重视的… 
+

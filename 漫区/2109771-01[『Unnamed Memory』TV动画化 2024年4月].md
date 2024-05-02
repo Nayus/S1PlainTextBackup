@@ -65,3 +65,16 @@ Screenshot_20240501_090652_tv.danmaku.bili.jpg
 
 —— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  星火龙  
+##### 102#       发表于 2024-5-2 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787404&amp;ptid=2109771" target="_blank">Laie 发表于 2024-5-2 06:34</a>
+
+之前被漫画吸引去看原作，那时候才出到第三卷，看完了也没补web版
+
+动画看下来又穷又赶，但是有华哥和ed足矣 ...</blockquote>
+后日谈在哪里看的？
+

@@ -8017,3 +8017,29 @@ dot伤害bug一个月修不好，反器材准星偏移问题一个月不处理�
 新补丁是只修了性能？
 那估计是加班加点了，之前去dc看提的人挺多的
 
+
+*****
+
+####  Launce  
+##### 3721#       发表于 2024-5-2 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791768&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-2 17:23</a>
+
+新补丁是只修了性能？
+
+那估计是加班加点了，之前去dc看提的人挺多的</blockquote>
+还有2奇葩闪退
+
+Fix for a crash that could occur during the post mission end screen
+
+Fix for crash which could occur when destroying automaton tanks.
+
+*****
+
+####  smdzh2  
+##### 3722#       发表于 2024-5-2 17:33
+
+哨戒炮转速慢、不能被近身的特性使其对位置要求比较高，我一般是进点前在附近找块高地部署，充分发挥哨戒炮长射程反甲的优势
+加特林高爆发且不怕被贴脸，适合随时随地部署阻滞虫潮，除了牛和泰坦外都能打
+再找人带静电迫击炮，队里两个塔防仙人能极大缓解占点/防守压力，现在撤离时看到没人放炮台我就浑身难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

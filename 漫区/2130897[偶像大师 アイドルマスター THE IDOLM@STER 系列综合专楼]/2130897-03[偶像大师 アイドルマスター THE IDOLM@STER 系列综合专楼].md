@@ -9271,3 +9271,22 @@ mv说了是谁做的吗？
 
 <img src="https://p.sda1.dev/17/a90fefd83d511d90e44b28a29181fa3b/1000003792.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 3846#       发表于 2024-5-3 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64795168&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-5-2 23:45</a>
+mv说了是谁做的吗？
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+视频下面都有cast表的
+
+*****
+
+####  北条早苗  
+##### 3847#       发表于 2024-5-3 00:06
+
+出道live上小红和小蓝唱完这两首，再让小黄上去唱世界第一可爱的我的温度差<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

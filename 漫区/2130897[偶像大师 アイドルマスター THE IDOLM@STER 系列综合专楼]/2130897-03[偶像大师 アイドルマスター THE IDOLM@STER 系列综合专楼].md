@@ -8944,3 +8944,27 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 会长不避成绩差这点，选贤任能</blockquote>
 5个人里两个补习班的，你确定？
 
+
+*****
+
+####  倉本千奈  
+##### 3807#       发表于 2024-5-2 19:40
+
+蒸馍，你们不服气？<img src="https://p.sda1.dev/17/65ae5db74bb0ed3c074b009f69b1254b/CMP_20240502194029531.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Achlys  
+##### 3808#       发表于 2024-5-2 19:46
+
+<img src="https://img.saraba1st.com/forum/202405/02/194541jy1jy8rgskrj1nms.jpg" referrerpolicy="no-referrer">
+
+<strong>GMkOuEBaYAAbq21.jpg</strong> (252.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:45 上传
+
+[作者](https://x.com/andoushuki/status/1785975687909945463)
+

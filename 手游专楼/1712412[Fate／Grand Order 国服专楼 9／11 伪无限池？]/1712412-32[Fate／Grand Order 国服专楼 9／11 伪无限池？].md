@@ -674,3 +674,17 @@ DA8CA5EDCE87E5952C2C7DDFDEA85573.jpg
 
 QP和骑饼干突然成两大缺口了，后面什么时候有机会刷呢?
 
+
+*****
+
+####  Blackson  
+##### 46367#       发表于 2024-5-2 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789434&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-5-2 12:24</a>
+没自充还真挺卡手的，尤其是一宝还得6绊才能开被动
+
+不过QP不够了这被动也点不动......
+
+QP和骑饼干突然成两 ...</blockquote>
+街机活动结束后下一个活动就是无限池了。再者就是年末的圣诞活动
+

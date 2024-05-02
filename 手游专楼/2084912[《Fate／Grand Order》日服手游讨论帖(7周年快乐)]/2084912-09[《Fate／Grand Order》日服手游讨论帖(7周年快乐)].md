@@ -6800,3 +6800,16 @@ fsr光荣23-24财报是41万
 个人倾向是同化，具体解释反正都是有生之年了</blockquote>
 可能第一代就是靠同化或夺舍维持不生不死？但听起来好low
 
+
+*****
+
+####  exiaexa  
+##### 12626#       发表于 2024-5-2 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792278&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-2 18:19</a>
+可能第一代就是靠同化或夺舍维持不生不死？但听起来好low</blockquote>
+拓展一下也可以是第一魔法已经死了，但是活在第一法里，越接近就越被同化
+
+这不是挺方便的设定，甚至还能圆一下魔法使为什么不换人
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

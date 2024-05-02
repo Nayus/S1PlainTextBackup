@@ -1351,3 +1351,42 @@ web archive也能看到，来源网站最初用的是上面这张图，和之后
 我一直好奇一件事，就是伤物语新剧场版的宣传图为啥换掉了。去年刚宣布的时候用的是下面这张，后来这个绘柄 ...</blockquote>
 这个不是普通国旗吗 动画开头也有很多吧？居然被神隐了
 
+
+*****
+
+####  客服少女小祥  
+##### 145#       发表于 2024-5-2 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 魔圆剧场版+物语新作+改编漫画，shaft的产能真的顶得住吗
+
+
+*****
+
+####  芜湖挨宰  
+##### 146#       发表于 2024-5-2 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792313&amp;ptid=2168085" target="_blank">集合酱 发表于 2024-5-2 18:22</a>
+
+这个不是普通国旗吗 动画开头也有很多吧？居然被神隐了</blockquote>
+我一直在等用这张做的谷子，结果没有<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+希望有人能告诉我哪些商品用的是旧图。
+
+连官推发推都不用这张，上映时的贴的宣传海报和传单也用的是新图。
+
+<img src="https://img.saraba1st.com/forum/202405/02/182955mczls1csh1bulzc9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/182958iifiutotf814hlbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:29 上传
+

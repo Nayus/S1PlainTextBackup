@@ -6168,3 +6168,11 @@ Screenshot_20240502_081359_X.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/02/081457cnbmez8xmmuenz80.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 1325#       发表于 2024-5-2 08:21
+
+数字版肯定退不了了，实体一直没敢开封，官方你赶紧更新把衣服弄回来我实体还能退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

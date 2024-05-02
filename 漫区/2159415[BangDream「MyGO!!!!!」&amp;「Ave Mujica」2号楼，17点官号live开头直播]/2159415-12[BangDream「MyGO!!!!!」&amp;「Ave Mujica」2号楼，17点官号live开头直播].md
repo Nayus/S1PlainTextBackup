@@ -3559,3 +3559,78 @@ Ave Mujica - Symbol I : △ (Official Music Video)
 
 2nd可以有mujica五人邦TV吗，我期待相声好久了，乐观的话6.6就能看见。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16614#       发表于 2024-5-2 22:35
+
+live前要團練吧，6/13差不多<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+我也要ave團的五人生放！
+
+*****
+
+####  skives  
+##### 16615#       发表于 2024-5-2 22:36
+
+明年鸡粉团结go粉就可以把号冲下来了 
+因为到时候被侵犯利益的就是双方了
+如果冲不下来 后果就是几场大战之后企划凉掉
+
+*****
+
+####  御景  
+##### 16616#       发表于 2024-5-2 22:37
+
+虽然有融合头像了，但是这个头像是真的丑，色调又暗，看不清logo，只能看出来模糊的红、蓝两个色块
+
+*****
+
+####  御幸一也  
+##### 16617#       发表于 2024-5-2 22:38
+
+go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一半了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+剛開始沒意見純粹是因為你雞洗腳，我看有些go粉是真的把你雞當附屬了，接下來就不好說咯<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 16618#       发表于 2024-5-2 22:38
+
+太暗了，包括红和蓝也都是偏暗的，换成白底呗
+
+
+*****
+
+####  cherryjia12  
+##### 16619#       发表于 2024-5-2 22:41
+
+感觉不如某过世字幕组头像。。。有辨识度
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NODY  
+##### 16620#       发表于 2024-5-2 22:41
+
+很显然是拿上面那个展览的官图直接改的，你让B站官号自己做个他们还没那能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 16621#       发表于 2024-5-2 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794583&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-2 22:38</a>
+
+go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一半了
+
+剛開始沒意見純粹是因為你雞洗腳，我 ...</blockquote>
+是这样，go粉什么都有的时候，看鸡粉闹就像大人看小孩子，有绝对的优势和掌控感。
+
+一旦角色逆转，尤其是以前拥有过的，要给出去的时候，难免会有芥蒂。
+
+我早就说过，角色互换，我绝对比现在更大方。
+

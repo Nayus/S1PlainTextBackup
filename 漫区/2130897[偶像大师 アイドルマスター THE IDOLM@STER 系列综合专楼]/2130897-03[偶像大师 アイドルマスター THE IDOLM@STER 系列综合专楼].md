@@ -9118,3 +9118,54 @@ really！ re@lly！
 
 想到将来的 live 现场忍俊不禁了
 
+
+*****
+
+####  Seeley  
+##### 3828#       发表于 2024-5-2 22:35
+
+ 本帖最后由 Seeley 于 2024-5-2 22:37 编辑 
+
+美波这歌还挺戳我的，或者说美波的歌就是很戳我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+但是我不觉得这歌能唱，哪怕美波自己来这歌也没法唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信号机的出道live有福了
+
+以及这mv感觉有点凌乱，预告里感觉质量比较高的也就手球广跟麻央，今晚这个不是很理想
+
+*****
+
+####  rgauss  
+##### 3829#       发表于 2024-5-2 22:36
+
+美波不是来过音乐现场吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还指导了来着 自己应该还是能唱吧
+
+*****
+
+####  安广多惠子  
+##### 3830#       发表于 2024-5-2 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己过不了的关卡不许上传给别人玩好吧
+
+
+*****
+
+####  野菜一日分  
+##### 3831#       发表于 2024-5-2 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是觉得像灰姑娘solo那样怎么样的偶像给怎么样的作曲作词阵容才像话，但一想到今天物语Xyoasobi，只能说凑活听吧
+
+*****
+
+####  Seeley  
+##### 3832#       发表于 2024-5-2 22:41
+
+那就看她什么时候会不会传一下弹唱视频吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 3833#       发表于 2024-5-2 22:42
+
+上trending了呀，昨天上了没
+这波mv连发的宣发还挺成功？
+

@@ -8980,3 +8980,11 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 今天去香港再抽一次胶片
 
+
+*****
+
+####  アーリィ  
+##### 735#       发表于 2024-5-2 09:47
+
+这第一场还没开就说胶片派完了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

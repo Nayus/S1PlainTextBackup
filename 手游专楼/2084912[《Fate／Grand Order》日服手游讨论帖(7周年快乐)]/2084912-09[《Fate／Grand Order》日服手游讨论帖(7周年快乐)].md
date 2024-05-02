@@ -6418,3 +6418,13 @@ So，你算老几？
 做不到不带滤镜看人就别出来锐评好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 12595#       发表于 2024-5-2 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787097&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-05-02 02:14:40</a></blockquote>你还别说，这次活动后青草珠给我感觉已经和百四羽差不太多了，都是神仙谈恋爱+三角关系，因为只有神仙才会无论时间过去多久感情都不会变<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

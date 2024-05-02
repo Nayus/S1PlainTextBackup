@@ -8853,3 +8853,21 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">giga给宝可梦地平线写的新ed还是找的底边小唱见，和这个比都一个天一个地了
 
+
+*****
+
+####  hlazd  
+##### 3798#       发表于 2024-5-2 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786848&amp;ptid=2130897" target="_blank">flynnei 发表于 2024-5-2 01:03</a>
+0th live，居然抛弃了舞滨出道的传统</blockquote>
+舞浜被剧团长期包场了，想去也去不了
+
+*****
+
+####  ヒトニナル  
+##### 3799#       发表于 2024-5-2 09:55
+
+听起来很夹，而且是夹的不好听的那种
+不是我踩一捧一，这歌换成夹子秋奈听感绝对会上一层次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

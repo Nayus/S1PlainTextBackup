@@ -6176,3 +6176,13 @@ Screenshot_20240502_081359_X.jpg
 
 数字版肯定退不了了，实体一直没敢开封，官方你赶紧更新把衣服弄回来我实体还能退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jxzeroga0  
+##### 1326#       发表于 2024-5-2 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786606&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-2 00:18</a>
+密码箱奖励也拉，给的都是溢出的升级资源，一个地区全收集给个衣服就好了 ...</blockquote>
+多一点算是照顾不舔图一周目和二周目体验，二周目脊椎有mk2高级版本和换色纳米服，要重新强化和制作
+

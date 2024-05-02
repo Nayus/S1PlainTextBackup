@@ -6604,3 +6604,55 @@ CCC 和FSR 來的雖然都是完結，但不同是，CCC是徹底說完整編故
 steam日区20名，魔夜作为质量在线的视觉小说，在打折+fgo的巨大引流下这个成绩，只能说不值一提好不<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 作为对比，国区的gal纯白交响曲打折直接进了第八
 
+
+*****
+
+####  katun  
+##### 12608#       发表于 2024-5-2 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788878&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 11:20</a>
+
+怎么，先手扣帽子你还很有理是吧
+
+我是你爹吗为什么要惯着你</blockquote>
+你反驳不出一句话，只能够继续说些低级父母脏话，却只是把“我的父母没有对我进行正确的家教”这顶帽子往自己头上扣。
+
+正如同你觉得我在扣你帽子，却不知露出了喜光癖的你，等于是在把一顶“我是食雪异食癖”的帽子往自己头上扣。
+
+没人能往你头上扣帽子，只能是你自取其辱。你的言行就是反应你水平的镜子。毕竟你再像个没受过义务教育的街溜子一样骂街，又哪能有一句“这人爱吹樱井光”来的侮辱人呢，是吧。
+
+*****
+
+####  芭德薇  
+##### 12609#       发表于 2024-5-2 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789219&amp;ptid=2084912" target="_blank">v22325 发表于 2024-5-2 11:59</a>
+
+奏2虽然大部分时间昏昏欲睡，但和玛丽黑贞约会咕哒家中事件的反应和岩窟王最后还是有点意思的。
+
+烂 ...</blockquote>
+那次上来第一句就是“比意义不明的奏章I强太多”，如果让我选奏1和奏2哪个适用意义不明这个形容词，我肯定会选2，所以我说人和人之间无法理解。
+
+*****
+
+####  yangun22  
+##### 12610#       发表于 2024-5-2 12:12
+
+日本人要买也去买主机板啊，能有多少日本人去steam上买文字游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 12611#       发表于 2024-5-2 12:13
+
+再说一下为什么不扯销量
+
+月姬r磨过了30w
+魔夜4月份我记得磨过了20w
+fsr光荣23-24财报是41万
+
+魔夜还在卖，fsr就不卖了？
+
+月球人是凯子不是傻逼
+都有数字的东西何苦呢
+

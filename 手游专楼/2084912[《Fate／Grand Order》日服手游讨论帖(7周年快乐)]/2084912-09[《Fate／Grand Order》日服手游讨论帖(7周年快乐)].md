@@ -6765,3 +6765,24 @@ fsr光荣23-24财报是41万
 
 50连 有珠也1宝了
 
+
+*****
+
+####  cenhr  
+##### 12623#       发表于 2024-5-2 18:08
+
+有珠三临虽然没有特殊台词，但再临时的语音，战斗语音以及从善人属性改成恶地应该是暗示老祖夺舍？
+
+
+*****
+
+####  exiaexa  
+##### 12624#       发表于 2024-5-2 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792170&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-2 18:08</a>
+有珠三临虽然没有特殊台词，但再临时的语音，战斗语音以及从善人属性改成恶地应该是暗示老祖夺舍？ ...</blockquote>
+就两种情况嘛
+要么朱利安这种夺舍，要么卫宫那种同化
+个人倾向是同化，具体解释反正都是有生之年了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

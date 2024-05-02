@@ -53,3 +53,14 @@
 但是暗方怎么这么抽象
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ming_tt  
+##### 17901#       发表于 2024-5-2 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788920&amp;ptid=1158205" target="_blank">usoda 发表于 2024-5-2 11:26</a>
+
+这高达居然堵车的……农尼玛啊</blockquote>
+高达fa挺容易，暗方不好fa啊，那个异常状态...
+

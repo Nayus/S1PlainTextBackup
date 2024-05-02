@@ -3665,3 +3665,15 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 
 2024-5-2 22:52 上传
 
+
+*****
+
+####  御幸一也  
+##### 16625#       发表于 2024-5-2 22:54
+
+ 本帖最后由 御幸一也 于 2024-5-2 22:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794680&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-2 22:48</a>
+
+说实话那个官号给不给一半我是无所谓的，那个尴尬语C谁爱要谁要好吧，更别说这号收钱还一次比一次贵就差把 ...</blockquote>
+怎麼這樣，還想說這麼好的語擦地盤讓你go自己好好收著的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

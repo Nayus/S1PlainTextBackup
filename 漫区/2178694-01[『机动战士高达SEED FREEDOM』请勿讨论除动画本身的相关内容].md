@@ -9133,3 +9133,15 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 对了，中岛美嘉的望乡是插入在哪段的？我看到ed字幕才想起来还有这首歌，中间完全没留意到
 
+
+*****
+
+####  qwemiku  
+##### 750#       发表于 2024-5-2 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794520&amp;ptid=2178694" target="_blank">oi99o 发表于 2024-5-2 22:30</a>
+对了，中岛美嘉的望乡是插入在哪段的？我看到ed字幕才想起来还有这首歌，中间完全没留意到 ...</blockquote>
+基拉去救拉克丝那一段
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

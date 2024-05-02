@@ -6875,3 +6875,17 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个新角色肯定强度爆炸 毕竟已经靠联动的两个菜B骗够了石头 是时候出强力角色骗石头了
 
+
+*****
+
+####  exiaexa  
+##### 12633#       发表于 2024-5-2 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794260&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-2 22:04</a>
+
+下个新角色肯定强度爆炸 毕竟已经靠联动的两个菜B骗够了石头 是时候出强力角色骗石头了 ...</blockquote>
+已经从年初菜到现在了
+
+大的还是没来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8143,3 +8143,16 @@ Fix for crash wh ...</blockquote>
 
 新玩具里唯一看着比较有用的居然是反追猎虫的booster<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这下杀虫每场都必须带了
 
+
+*****
+
+####  yahuchi  
+##### 3734#       发表于 2024-5-2 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793488&amp;ptid=2170852" target="_blank">sunbeach 发表于 2024-5-2 20:35</a>
+
+修完之后出现了昨天还没有的瞬间卡顿掉帧太幽默了
+
+至于难度说实话 找个人一直拉警报自己去做任务 ...</blockquote>
+有点怀疑我0429更新之后出现的卡顿掉帧今天修复了之后是转移到你那去了（
+

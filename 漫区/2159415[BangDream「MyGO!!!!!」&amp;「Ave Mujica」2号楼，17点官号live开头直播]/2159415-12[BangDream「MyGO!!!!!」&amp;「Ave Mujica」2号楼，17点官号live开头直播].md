@@ -3332,3 +3332,37 @@ QQ图片20240502214009.jpg
 
 这套新立绘还挺有风格的
 
+
+*****
+
+####  御幸一也  
+##### 16588#       发表于 2024-5-2 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794052&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-5-2 21:40</a>
+
+这头像也都换了（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哇 不必了吧，好像委屈他go和我們ave一起變陰間風了捏
+
+不如分開把青春陽光龐克還給他go。
+
+*****
+
+####  PDQ4  
+##### 16589#       发表于 2024-5-2 21:46
+
+就是不分号是吧，那以后继续吵呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16590#       发表于 2024-5-2 21:46
+
+你們ave粉罵得還不夠狠，加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 16591#       发表于 2024-5-2 21:49
+
+这估计会拖到12点发（）
+

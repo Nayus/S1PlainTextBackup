@@ -1302,3 +1302,11 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 那索尼為甚麼給這種明顯違反zzzq的遊戲上架，是因為想賺錢嗎
 
+
+*****
+
+####  kooor555  
+##### 122#       发表于 2024-5-2 10:07
+
+这游戏原来翻译剑星吗，前几天看到相关新闻，我还想到s1找下专楼但是找不到。。所以s1有专楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

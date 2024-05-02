@@ -451,3 +451,11 @@ strongzero这完应不建议随便喝，真不好喝，买醉用的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  asazuki  
+##### 47#       发表于 2024-5-2 15:38
+
+昨天路过全家正好看到-196在特价8.8一罐，想起这贴就买了一罐桃子，但是感觉不太好喝，酒精味真有点重，不过好在喝了没有上头不难受，无功无过吧。想起了二十多年前学校门口小吃摊上买的菠萝味果啤<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+

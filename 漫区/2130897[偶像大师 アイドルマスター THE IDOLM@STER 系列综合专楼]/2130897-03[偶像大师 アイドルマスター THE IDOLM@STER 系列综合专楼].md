@@ -8845,3 +8845,11 @@ full听完，全曲感觉比之前放出来的高潮要难不少
 https://youtu.be/UAzw5B-35k ...</blockquote>
 我每次听完小红这歌，都忍不住要去听一遍beyond the way洗耳朵
 
+
+*****
+
+####  洋葱葱  
+##### 3797#       发表于 2024-5-2 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">giga给宝可梦地平线写的新ed还是找的底边小唱见，和这个比都一个天一个地了
+

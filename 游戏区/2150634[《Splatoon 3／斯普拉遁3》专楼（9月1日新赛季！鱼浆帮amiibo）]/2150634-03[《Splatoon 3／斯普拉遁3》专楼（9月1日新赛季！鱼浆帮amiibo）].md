@@ -12930,3 +12930,21 @@ naegora用审查者打到3800了</blockquote>
 
 工房栓也不多，刚好最近两次都有而已
 
+
+*****
+
+####  罗克萨斯  
+##### 4259#       发表于 2024-5-2 10:04
+
+2-3都能掉一百多，其实输的场次kd也在2以上的，制裁太狠了
+
+<img src="https://img.saraba1st.com/forum/202405/02/100008glzgg2zk3qdg2bko.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-02-09-59-19-256_com.google.android.youtube-edit.jpg</strong> (484.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 10:00 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -6241,3 +6241,13 @@ Screenshot_20240502_081359_X.jpg
 
 最后干脆输入字数最多的字母，结果蒙中了。
 
+
+*****
+
+####  rainsheep  
+##### 1333#       发表于 2024-5-2 14:30
+
+话说有个任务有人给了个坏了的设备给伊芙，有后续吗？通关了都没看见有下文。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

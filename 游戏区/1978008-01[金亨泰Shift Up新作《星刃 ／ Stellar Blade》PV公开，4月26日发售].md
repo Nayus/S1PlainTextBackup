@@ -6313,3 +6313,11 @@ Screenshot_20240502_081359_X.jpg
 
 防御和回避我记得都能取消。战斗其实就是选对build吧 ，双b技能强化build的话 一堆怪多闭着眼睛礽技能就行了。combo倒是没啥存在感，无非就是存能量用的。觉醒其实看着一堆技能，其实打boss都没啥用，基本对着boss三角一直按就行。boss会被傻傻的被砍到能量槽用完
 
+
+*****
+
+####  医生狼多  
+##### 1341#       发表于 2024-5-2 23:21
+
+怎么过个路边小支线还能被剧情杀一次的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

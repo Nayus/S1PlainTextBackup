@@ -8051,3 +8051,11 @@ Fix for crash which could occur when destroying automaton tanks.
 
 连穿甲机制都要黑箱，至今有人弄不清穿甲，现在还能看到有人问为什么磁轨抢能打atat，而机炮打不了
 
+
+*****
+
+####  暴走的包子  
+##### 3724#       发表于 2024-5-2 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得主要是箭头默认你四个人一起走的，那他各项削弱增强其实还是有点道理，但是实际上很多人都是野排，为了任务效率也需要有人去单走，那肯定得考虑单走情况下应对绝大部分场景的能力问题
+

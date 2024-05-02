@@ -2900,3 +2900,14 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NODY  
+##### 16539#       发表于 2024-5-2 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791680&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-5-2 17:11</a>
+
+都上手了，之后提到也是没好脸色，那确实是水火不容。</blockquote>
+那也应该是立希单向，祥子看起来早无所谓这个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

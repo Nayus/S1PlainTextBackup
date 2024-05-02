@@ -1444,3 +1444,11 @@ Ayase竟然有时间写新歌<img src="https://static.saraba1st.com/image/smiley
 
 理解大家对yoasobi不满 但是能不能别天天惦记只给一共都写了两首的ryo了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 152#       发表于 2024-5-3 00:26
+
+其实对企划来说是好事
+

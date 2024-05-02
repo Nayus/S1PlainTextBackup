@@ -2123,3 +2123,13 @@ Image_1714658944297.jpg
 
 <img src="https://p.sda1.dev/17/70830e4f1d62c38a3c8839f38dfe84fc/CMP_20240503002458971.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20141#       发表于 2024-5-3 00:28
+
+去印尼的活动只能无奈取消，趁着假期好好休息
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

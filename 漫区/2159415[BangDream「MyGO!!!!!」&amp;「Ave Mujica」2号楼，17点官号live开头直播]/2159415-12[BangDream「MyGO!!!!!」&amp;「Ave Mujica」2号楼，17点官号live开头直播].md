@@ -2927,3 +2927,65 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">做逆输入梦。
 
+
+*****
+
+####  御幸一也  
+##### 16542#       发表于 2024-5-2 19:00
+
+[https://www.youtube.com/watch?v=2O5C0mJx0Fs&amp;](https://www.youtube.com/watch?v=2O5C0mJx0Fs&amp;)
+
+我操 MV
+
+*****
+
+####  NODY  
+##### 16543#       发表于 2024-5-2 19:01
+
+逆输入太不现实了，劣等感发作又影响mygo出事的可能性比较大，如果可以的话希望立希一整季都不要出场，至少神隐个十集吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16544#       发表于 2024-5-2 19:02
+
+有MV了？现在出？不会真是冲出来的吧？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16545#       发表于 2024-5-2 19:04
+
+感觉鬼图，行吧至少有了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 16546#       发表于 2024-5-2 19:04
+
+居然有mv了
+
+—— 来自 vivo V2227A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 16547#       发表于 2024-5-2 19:04
+
+這就是我們的女鬼團ave mujica，你們有沒有這樣的女鬼呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/02/190439ie21yrfmntm1qfjk.png" referrerpolicy="no-referrer">
+
+<strong>Ave Mujica - Symbol I _ △ (Official Music Video) 1-13 screenshot.png</strong> (224.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:04 上传
+
+*****
+
+####  御幸一也  
+##### 16548#       发表于 2024-5-2 19:05
+
+有一說一，特效做得還挺中二的，有MV我和解了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

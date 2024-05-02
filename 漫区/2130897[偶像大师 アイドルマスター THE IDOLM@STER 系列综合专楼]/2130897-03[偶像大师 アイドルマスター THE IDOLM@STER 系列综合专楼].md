@@ -8889,3 +8889,35 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 
 这花海姐妹为啥是一块儿入学的，还有为什么妹妹这倒数第一还不如的入学成绩还能进学生会工作<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 3802#       发表于 2024-5-2 18:59
+
+<img src="https://img.saraba1st.com/forum/202405/02/185821ob4j77pa7c42p6xb.png" referrerpolicy="no-referrer">
+
+<strong>IMG_8513.png</strong> (189.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-2 18:58 上传
+
+*****
+
+####  RhmBWT_Wu  
+##### 3803#       发表于 2024-5-2 19:01
+
+可能妹妹有优秀的管理能力，只是不会当偶像
+会长不避成绩差这点，选贤任能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cckuku  
+##### 3804#       发表于 2024-5-2 19:02
+
+这个会长的发言也太刻板印象了，我不想见到一个黄毛濑田薰啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -8921,3 +8921,13 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 
 这个会长的发言也太刻板印象了，我不想见到一个黄毛濑田薰啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 3805#       发表于 2024-5-2 19:07
+
+中二病罢了
+
+千奈也是学生会的 会长看中仓本家的财力吗
+

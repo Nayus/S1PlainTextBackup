@@ -2989,3 +2989,49 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 有一說一，特效做得還挺中二的，有MV我和解了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16549#       发表于 2024-5-2 19:06
+
+接下来四首应该也会有了吧
+
+*****
+
+####  NODY  
+##### 16550#       发表于 2024-5-2 19:07
+
+我觉得没那么鬼图吧，而且全员腿画得很长这点很好，总的来说已经比shuzuku强很多了
+
+*****
+
+####  御幸一也  
+##### 16551#       发表于 2024-5-2 19:08
+
+我覺得還行，就是風格很女鬼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16552#       发表于 2024-5-2 19:10
+
+我还蛮喜欢这种全员成熟的画风的，早期几个mv的立绘感觉全员画得像初中生
+
+
+*****
+
+####  滑稽Captain  
+##### 16553#       发表于 2024-5-2 19:12
+
+这个nyamu真的很像deep♂dark♂fantasy（
+
+*****
+
+####  isummon  
+##### 16554#       发表于 2024-5-2 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792750&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-2 19:04</a>
+這就是我們的女鬼團ave mujica，你們有沒有這樣的女鬼呀</blockquote>
+我只看到一个“烧”字
+

@@ -6251,3 +6251,11 @@ Screenshot_20240502_081359_X.jpg
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  lazycat233  
+##### 1334#       发表于 2024-5-2 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏为什么要设计这么大的动作硬直，是故意的还是设计水平不行
+

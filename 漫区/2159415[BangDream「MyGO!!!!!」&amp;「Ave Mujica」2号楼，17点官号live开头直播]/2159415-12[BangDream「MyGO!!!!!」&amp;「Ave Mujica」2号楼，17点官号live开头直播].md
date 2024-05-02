@@ -3713,3 +3713,13 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 
 求推荐点好用的mygo qq表情包<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 16630#       发表于 2024-5-3 00:41
+
+我只想知道为什么中间夹着一个C
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

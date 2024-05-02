@@ -2023,3 +2023,13 @@ SWW
 
 星3就要出了，看见老五仁，个中滋味<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20132#       发表于 2024-5-2 08:27
+
+提及五老星，满朝文武无不涕零
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

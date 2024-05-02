@@ -6867,3 +6867,11 @@ fsr光荣23-24财报是41万
 大黑天比有珠好用多了</blockquote>
 不如说谁不会比青子和有珠好用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12632#       发表于 2024-5-2 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个新角色肯定强度爆炸 毕竟已经靠联动的两个菜B骗够了石头 是时候出强力角色骗石头了
+

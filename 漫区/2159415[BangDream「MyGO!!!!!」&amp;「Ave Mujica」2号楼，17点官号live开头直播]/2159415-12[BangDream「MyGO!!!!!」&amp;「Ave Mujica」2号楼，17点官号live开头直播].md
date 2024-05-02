@@ -3450,3 +3450,48 @@ Ave Mujica - Symbol I : △ (Official Music Video)
 
 那5.9要预告的预告吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 16602#       发表于 2024-5-2 22:06
+
+宣传翻唱专应该很合理吧（
+
+*****
+
+####  rikaren  
+##### 16603#       发表于 2024-5-2 22:09
+
+4.7那天还在评论区吐槽动画放送完结后是不是要搞头像和背景一团一半这种幽默的搞法，结果用不着动画放送结束就来了……
+
+
+*****
+
+####  NODY  
+##### 16604#       发表于 2024-5-2 22:10
+
+原来是照着这个做的
+
+<img src="https://img.saraba1st.com/forum/202405/02/221036lr7elys4nyxgssx5.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQn6dc-2x87ZbT3cSl7-sg.jpg</strong> (112.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 22:10 上传
+
+*****
+
+####  御幸一也  
+##### 16605#       发表于 2024-5-2 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">7/10發售的東西現在宣傳什麼
+
+*****
+
+####  rikaren  
+##### 16606#       发表于 2024-5-2 22:12
+
+还是来努力考虑mv吧
+

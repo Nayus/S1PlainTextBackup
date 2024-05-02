@@ -8976,3 +8976,40 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 
 藤田的色图呢？这剧情里都要去保健室滚床单了
 
+
+*****
+
+####  cckuku  
+##### 3810#       发表于 2024-5-2 22:07
+
+听完了，总的来说比昨天好，但是感觉live也要翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3811#       发表于 2024-5-2 22:08
+
+live真不会唱断气？
+
+
+*****
+
+####  绯田美琴  
+##### 3812#       发表于 2024-5-2 22:10
+
+听的就是这种断气的味道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 3813#       发表于 2024-5-2 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">唱到后面我不自觉地笑了，怎么上来就给新人上强度唱这种歌的
+
+*****
+
+####  安广多惠子  
+##### 3814#       发表于 2024-5-2 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">小黄：她俩唱完这些然后我上去唱世界一可爱私？
+

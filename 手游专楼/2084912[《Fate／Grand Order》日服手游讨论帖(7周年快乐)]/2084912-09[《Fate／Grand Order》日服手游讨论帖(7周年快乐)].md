@@ -6375,3 +6375,18 @@ So，你算老几？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这超高难星星菜的抠脚啊....后备放个霸王花被打的伤害还没增殖的血多
 
+
+*****
+
+####  katun  
+##### 12592#       发表于 2024-5-2 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787032&amp;ptid=2084912" target="_blank">萨拉丁 发表于 2024-5-2 01:52</a>
+
+尽管你是这个态度，但是事实是今天魔夜的销量已经是Steam日本20位了。
+
+显然更多人的态度是玩了联动更想 ...</blockquote>
+你引用的这人唯爱樱井光，已经反菌反到脑子不正常了，这次剧本在日推上都是普遍好评，结果你提哪壶不好，偏要拿钢屋这复读机写的查重率80%的水货来踩
+
+我看以后联动也确实不用写啥新东西了，直接照搬原文再把原作流程重新过一遍，反正只要不是菌写的，就会有这种人来无脑舔
+

@@ -3677,3 +3677,21 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 说实话那个官号给不给一半我是无所谓的，那个尴尬语C谁爱要谁要好吧，更别说这号收钱还一次比一次贵就差把 ...</blockquote>
 怎麼這樣，還想說這麼好的語擦地盤讓你go自己好好收著的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 16626#       发表于 2024-5-2 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794329&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-2 22:09</a>
+
+4.7那天还在评论区吐槽动画放送完结后是不是要搞头像和背景一团一半这种幽默的搞法，结果用不着动画放送结 ...</blockquote>
+那以后邦邦官号要不要和欧洲贵族的纹章一样一家家拼起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16627#       发表于 2024-5-2 23:08
+
+别的能骂出来但分号没骂出来让我基本确定原本两个官号皮下就是一个人，馋热度又懒得管两个号才合的，估计热度有分成什么的吧，才死活不肯分号分流热度又喜欢玩那些蹭热度的语C梗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

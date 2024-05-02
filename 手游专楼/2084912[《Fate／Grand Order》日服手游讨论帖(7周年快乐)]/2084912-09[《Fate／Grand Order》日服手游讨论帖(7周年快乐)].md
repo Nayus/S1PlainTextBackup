@@ -6889,3 +6889,26 @@ fsr光荣23-24财报是41万
 大的还是没来
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 12634#       发表于 2024-5-2 23:06
+
+今天不是齐格乱杀么，一个c闪+正雪，就可以不换人三连光炮了
+
+*****
+
+####  qixinno2  
+##### 12635#       发表于 2024-5-2 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都忘了齐格这角色了 回头试试
+
+
+*****
+
+####  CNFH1984  
+##### 12636#       发表于 2024-5-2 23:10
+
+有没有甚么群收留一下难民的
+

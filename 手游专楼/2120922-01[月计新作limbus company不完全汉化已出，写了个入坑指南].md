@@ -401,3 +401,11 @@
 
 两个魔夜ego始终抽不出，只能二选一兑换的话选哪个更好？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  龙宫李奥义  
+##### 665#       发表于 2024-5-2 11:51
+
+振翅玛玛下限是3+7+7，但是第二个币最大能投五次，更适合欧洲人顶着25SP偷刀。
+

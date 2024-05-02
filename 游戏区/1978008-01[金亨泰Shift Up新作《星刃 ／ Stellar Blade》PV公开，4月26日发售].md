@@ -6218,3 +6218,13 @@ Screenshot_20240502_081359_X.jpg
 
 拿会员存档通了第二个结局，轨道电梯那段一路砍上太空应该是是最出彩的流程了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，几个bgm也用的好。
 
+
+*****
+
+####  真空管  
+##### 1331#       发表于 2024-5-2 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788423&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-2 10:24</a>
+沙漠西边那个密码箱的密码蒙出来了，但不知道为什么</blockquote>
+一长串文字猜谜那个？ 看第一句就行，第一句有两个3，下面的密码正好18位可以分成3*6组，所以是每3个一组的第3个
+

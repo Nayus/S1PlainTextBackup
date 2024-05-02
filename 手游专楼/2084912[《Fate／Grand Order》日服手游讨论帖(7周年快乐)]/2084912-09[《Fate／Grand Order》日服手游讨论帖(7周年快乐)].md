@@ -6719,3 +6719,14 @@ fsr光荣23-24财报是41万
 
 我特么被青子这强度下的毒，毒到现在都还没完全缓过来。
 
+
+*****
+
+####  白金口袋  
+##### 12618#       发表于 2024-5-2 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789985&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-5-2 13:21</a>
+
+还真有个朋友因为联动在steam上买了魔夜，好像最近也在打折吧</blockquote>
+因为联动紧急去补魔夜的在这呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

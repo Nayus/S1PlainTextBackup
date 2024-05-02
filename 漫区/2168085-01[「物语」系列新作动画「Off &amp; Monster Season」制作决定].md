@@ -1436,3 +1436,11 @@ Ayase竟然有时间写新歌<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  集合酱  
+##### 151#       发表于 2024-5-3 00:25
+
+理解大家对yoasobi不满 但是能不能别天天惦记只给一共都写了两首的ryo了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

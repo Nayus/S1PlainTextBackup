@@ -6489,3 +6489,21 @@ CCC 和FSR 來的雖然都是完結，但不同是，CCC是徹底說完整編故
 
 急需看点无脑包饺子二创治疗（无助地翻找推
 
+
+*****
+
+####  exiaexa  
+##### 12599#       发表于 2024-5-2 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788633&amp;ptid=2084912" target="_blank">katun 发表于 2024-5-2 10:51</a>
+
+哇，好会骂脏话哦，是令堂教你这么说话的吗？小心别把号又给封了哦。
+
+但还是省省吧，你当是猴山和童厕能 ...</blockquote>
+怎么，先手扣帽子你还很有理是吧
+
+我是你爹吗为什么要惯着你
+
+想别人不问候你全家先从自己做起，你觉得你做的对你大可以去投诉而不是在这儿当怨妇
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

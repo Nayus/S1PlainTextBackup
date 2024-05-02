@@ -2713,3 +2713,22 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 2024-5-2 08:54 上传
 
+
+*****
+
+####  Aendst  
+##### 16522#       发表于 2024-5-2 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">怎么又在一柄多卖还拿的杂志封面
+
+
+*****
+
+####  skives  
+##### 16523#       发表于 2024-5-2 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788860&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-5-2 11:17</a>
+怎么又在一柄多卖还拿的杂志封面</blockquote>
+如果能卖黑色生日那套柄的立牌 我绝对不抱怨<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+就怕是wsd计划的是给当成mujica蓝光的特典
+

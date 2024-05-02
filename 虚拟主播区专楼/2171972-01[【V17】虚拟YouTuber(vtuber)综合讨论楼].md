@@ -360,3 +360,15 @@ vspo这次新人终于不是枪女了，但lol
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  poipanchao  
+##### 206#       发表于 2024-5-3 02:46
+
+也不算播了9个月吧，小景本来就是个人势混饭吃
+
+选不进去只能曲线救国走研究生路子
+
+前世那个号从2021年就开始用了
+

@@ -8185,3 +8185,14 @@ Fix for crash wh ...</blockquote>
 
 才想起来有个举报功能，被踢了又不在近期玩家里显示有什么用吗
 
+
+*****
+
+####  FLZB  
+##### 3738#       发表于 2024-5-3 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796017&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-3 02:27</a>
+
+绷，守卫遇到傻逼鬼佬了，砸死我两次试图砸第三次没成功，最后上飞机tk踢人，只能说我还是给他脸了 ...</blockquote>
+没任何用处，举报只能举报骂人，这破游戏甚至不能顺着近期玩家找到steam个人主页，大路id连查成分都查不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

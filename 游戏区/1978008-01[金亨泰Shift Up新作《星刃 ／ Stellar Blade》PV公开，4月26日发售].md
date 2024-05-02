@@ -6369,3 +6369,43 @@ Screenshot_20240502_081359_X.jpg
 奖励解锁二段跳啊</blockquote>
 这个感觉应该是主线解锁的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚好送过去触发？
 
+
+*****
+
+####  lucky95  
+##### 1347#       发表于 2024-5-3 02:04
+
+沙漠真是全面扣分
+
+怪比之前强就算了（蜘蛛基本一个B技能才能杀一个，什么机械法师都要两套才能带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
+金亨泰**幽默，人物基本升满也要被轮死
+
+跳跳乐还行，很多，前提是要把周围的怪清掉不然连玩的资格都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+节奏也是问题，沙漠后就最终章，马桶一次过糊脸上，不打就没了
+在沙漠通马桶都三天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1348#       发表于 2024-5-3 02:06
+
+钓鱼也是，要一口气钓完
+
+这什么玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1349#       发表于 2024-5-3 02:09
+
+比基尼好敷衍啊，色度严重不足，扣分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

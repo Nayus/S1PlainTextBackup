@@ -12948,3 +12948,13 @@ naegora用审查者打到3800了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 4260#       发表于 2024-5-2 13:18
+
+火力怪里混了个老鼠屎
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

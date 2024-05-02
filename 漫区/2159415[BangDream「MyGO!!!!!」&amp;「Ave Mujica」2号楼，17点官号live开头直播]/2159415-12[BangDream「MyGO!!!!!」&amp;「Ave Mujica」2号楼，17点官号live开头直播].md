@@ -2780,3 +2780,25 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 按时间点翻了一下，这个写手没怎么转发其他的活动但唯独转发了处救生，不知道是不是负责处救生的文案，是的话这次小剧场让猫希酱油+刻板印象这事我还能原谅一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 16528#       发表于 2024-5-2 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789761&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-5-2 12:59</a>
+啊？还能限定国内的？真的有这种商法吗？</blockquote>
+68 BushiroadCreative发布了一篇小红书笔记，快来看吧！ 😆 2fBp6jI5Czhk1bk 😆 [http://xhslink.com/ZKkF5H](http://xhslink.com/ZKkF5H)，复制本条信息，打开【小红书】App查看精彩内容！
+
+说的是展会限定
+
+也许日后还会通贩吧
+
+
+*****
+
+####  Aendst  
+##### 16529#       发表于 2024-5-2 13:23
+
+应该有通贩吧，这图上都是日文，如果是国内限定也太奇怪了
+

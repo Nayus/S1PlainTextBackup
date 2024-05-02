@@ -6703,3 +6703,11 @@ fsr光荣23-24财报是41万
 太他妈三角了，我正式怀疑蘑菇是中老年肥皂剧爱好者大妈 ...</blockquote>
 不然怎么说蘑菇乙女心呢。魔夜男女倒过来就是韩剧剧本。
 
+
+*****
+
+####  保罗赫伯特  
+##### 12616#       发表于 2024-5-2 13:21
+
+还真有个朋友因为联动在steam上买了魔夜，好像最近也在打折吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

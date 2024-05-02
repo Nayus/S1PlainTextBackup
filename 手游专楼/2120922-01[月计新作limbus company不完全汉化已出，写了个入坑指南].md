@@ -508,3 +508,11 @@
 
 黎明辛才出一天就紧急上修了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sosgame67  
+##### 675#       发表于 2024-5-2 21:13
+
+上修后理智拉跨的问题也没彻底解决，之前1、2技能也要减理智太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">（抽了200发出了5个黎明辛，一个ego都没出）
+

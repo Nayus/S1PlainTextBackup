@@ -3255,3 +3255,24 @@ sry，我居然在假定5月份有新歌<img src="https://static.saraba1st.com/i
 
 感觉是冲出来的，不然哪会隔了一个月出mv，估计本来打算五首歌就啥也没有的放完的，看来还是得多冲一下。
 
+
+*****
+
+####  御幸一也  
+##### 16580#       发表于 2024-5-2 21:06
+
+好像之前你邦也有MV晚發的歌，不好說是不是真的被罵所以補的，但武士道這操作真的欠罵就是了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+不會真的是在PUA你雞粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+你看，晚1個月的MV大家吃得多香
+
+*****
+
+####  鳥栖朝  
+##### 16581#       发表于 2024-5-2 21:07
+
+可以期待下5月7号有新歌吗？<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

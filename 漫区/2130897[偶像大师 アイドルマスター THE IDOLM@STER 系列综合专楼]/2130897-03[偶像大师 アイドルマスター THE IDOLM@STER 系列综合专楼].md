@@ -8871,3 +8871,13 @@ https://youtu.be/UAzw5B-35k ...</blockquote>
 听起来很夹，而且是夹的不好听的那种
 不是我踩一捧一，这歌换成夹子秋奈听感绝对会上一层次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 3800#       发表于 2024-5-2 17:46
+
+这学生会是一窝怪人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

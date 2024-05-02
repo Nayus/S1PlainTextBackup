@@ -8043,3 +8043,11 @@ Fix for crash which could occur when destroying automaton tanks.
 加特林高爆发且不怕被贴脸，适合随时随地部署阻滞虫潮，除了牛和泰坦外都能打
 再找人带静电迫击炮，队里两个塔防仙人能极大缓解占点/防守压力，现在撤离时看到没人放炮台我就浑身难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 3723#       发表于 2024-5-2 17:39
+
+连穿甲机制都要黑箱，至今有人弄不清穿甲，现在还能看到有人问为什么磁轨抢能打atat，而机炮打不了
+

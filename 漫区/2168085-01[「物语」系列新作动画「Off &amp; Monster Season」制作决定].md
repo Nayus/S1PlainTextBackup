@@ -1288,3 +1288,11 @@ yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" ref
 
 角色曲也算是物语动画的卖点之一吧，应该还会有，和主题曲倒也不冲突，就是这YOASOBI是真腻了，只能安慰自己至少说明物语这企划还是相当重视的… 
 
+
+*****
+
+####  米拉苏尔  
+##### 141#       发表于 2024-5-2 17:45
+
+ryo江郎才尽也还有神前晓呢，你索是不是没有别人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

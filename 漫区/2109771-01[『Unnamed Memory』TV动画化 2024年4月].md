@@ -78,3 +78,14 @@ Screenshot_20240501_090652_tv.danmaku.bili.jpg
 动画看下来又穷又赶，但是有华哥和ed足矣 ...</blockquote>
 后日谈在哪里看的？
 
+
+*****
+
+####  Laie  
+##### 103#       发表于 2024-5-2 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791856&amp;ptid=2109771" target="_blank">星火龙 发表于 2024-5-2 17:32</a>
+
+后日谈在哪里看的？</blockquote>
+就那个after the end系列，z library有人传了1-3，4我是昨天自己买的
+

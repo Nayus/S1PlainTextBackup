@@ -6554,3 +6554,53 @@ CCC 和FSR 來的雖然都是完結，但不同是，CCC是徹底說完整編故
 你引用的这人唯爱樱井光，已经反菌反到脑子不正常了，这次剧本在日推上都是普遍好评，结果你提哪壶不好， ...</blockquote>
 上次吹奏2的时候我就觉得人和人之间是无法理解的……
 
+
+*****
+
+####  v22325  
+##### 12603#       发表于 2024-5-2 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789149&amp;ptid=2084912" target="_blank">芭德薇 发表于 2024-5-2 11:51</a>
+
+上次吹奏2的时候我就觉得人和人之间是无法理解的……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奏2虽然大部分时间昏昏欲睡，但和玛丽黑贞约会咕哒家中事件的反应和岩窟王最后还是有点意思的。
+
+烂的时候是真烂，吹肯定吹不了，综合起来算是不功不过吧？
+
+*****
+
+####  kisskick  
+##### 12604#       发表于 2024-5-2 11:59
+
+吵这个没意思。我更关心能不能带动魔夜，目前来看确实带了点。
+
+
+*****
+
+####  CNFH1984  
+##### 12605#       发表于 2024-5-2 12:02
+
+微博和你睿看了下翻译
+
+太他妈三角了，我正式怀疑蘑菇是中老年肥皂剧爱好者大妈
+
+*****
+
+####  exiaexa  
+##### 12606#       发表于 2024-5-2 12:03
+
+你楼某些人就是装瞎
+合着我骂的时候就是同志可以无视
+我不骂了就是敌人要批斗到死是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/1c2a47121305f2c8ea27ee7d8a6a3799/CMP_20240502120152902.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  间宮夏生  
+##### 12607#       发表于 2024-5-2 12:04
+
+我看这次联动不也一堆人就盯着cp在那里大呼小叫，半斤八两罢了
+steam日区20名，魔夜作为质量在线的视觉小说，在打折+fgo的巨大引流下这个成绩，只能说不值一提好不<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+作为对比，国区的gal纯白交响曲打折直接进了第八
+

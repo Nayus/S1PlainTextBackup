@@ -6507,3 +6507,39 @@ CCC 和FSR 來的雖然都是完結，但不同是，CCC是徹底說完整編故
 想别人不问候你全家先从自己做起，你觉得你做的对你大可以去投诉而不是在这儿当怨妇
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 12600#       发表于 2024-5-2 11:34
+
+ 本帖最后由 exiaexa 于 2024-5-2 11:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788603&amp;ptid=2084912" target="_blank">eilot 发表于 2024-5-2 10:46</a>
+
+某程度同感
+
+CCC 和FSR 來的雖然都是完結，但不同是，CCC是徹底說完整編故事(除非EXTRA重製版又將部份改了 ...</blockquote>
+原作没完结就是很难做联动没辙的
+
+这个联动最难崩的就是阿菌几乎是明牌告诉你我不想写魔夜2
+
+但是我又有几个点子可以用一下，那……那你联动除了爆魔夜玩家的米还图个啥呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 12601#       发表于 2024-5-2 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788992&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 11:34</a>
+
+原作没完结就是很难做联动没辙的
+
+这个联动最难崩的就是阿菌几乎是明牌告诉你我不想写魔夜2
+
+但是我又有几个 ...</blockquote>
+這情況就好像對面KEY手遊《緋熱》和《AB》的聯動
+
+而《緋熱》就挖了GDM女樂團其中一位背景板女，TV版也是背景板，甚至去到4格漫她們2人更自我吐槽...手遊現在有她的生前劇情，這根本就是《AB》之後劇情，因《AB》都沒打算出2章，只是資源再利用吧了
+

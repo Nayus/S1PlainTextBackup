@@ -6746,3 +6746,14 @@ fsr光荣23-24财报是41万
 
 咕哒的愿望是和喜欢的人一起开面包店？这面包店的有多少人呢
 
+
+*****
+
+####  萨拉丁  
+##### 12621#       发表于 2024-5-2 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789985&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-5-2 13:21</a>
+
+还真有个朋友因为联动在steam上买了魔夜，好像最近也在打折吧</blockquote>
+打折应该就是为联动准备的。
+

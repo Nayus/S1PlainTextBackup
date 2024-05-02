@@ -7839,3 +7839,22 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 这种地形开车真能开吗</blockquote>
 坑少只有坡的星球应该可以，但这运兵车估计不适合在虫子图开
 
+
+*****
+
+####  YWNS  
+##### 3701#       发表于 2024-5-2 15:16
+
+刚买的游戏 看评论什么几号位几号位的，这游戏还分位置吗？具体每个位置要做什么
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 3702#       发表于 2024-5-2 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64790848&amp;ptid=2170852" target="_blank">YWNS 发表于 2024-5-2 15:16</a>
+
+刚买的游戏 看评论什么几号位几号位的，这游戏还分位置吗？具体每个位置要做什么 ...</blockquote>
+没分吧……但联机高难玩得舒服还是能分工一下清杂和处理重甲
+

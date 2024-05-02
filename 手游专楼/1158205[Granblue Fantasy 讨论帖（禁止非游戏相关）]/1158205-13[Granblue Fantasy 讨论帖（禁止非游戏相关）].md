@@ -16,3 +16,20 @@
 
 这高达居然堵车的……农尼玛啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17898#       发表于 2024-5-2 13:40
+
+风铳-3.0boost武器
+光铳-3.0boost武器
+鸡腿-3.0boost武器
+暗爪-3.0boost武器
+
+按这个趋势，泥鳅短作为水方1.0的唯一攻刃武器应该会荣登3.0boost样板。
+
+土3.0boost应该是剑或者杖，杖的概率大些。
+
+问题来了，现在人手技练，会不会只有光是乱舞没有技练。
+

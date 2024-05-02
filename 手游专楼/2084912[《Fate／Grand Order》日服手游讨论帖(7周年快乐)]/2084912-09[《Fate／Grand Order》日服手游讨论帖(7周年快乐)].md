@@ -6711,3 +6711,11 @@ fsr光荣23-24财报是41万
 
 还真有个朋友因为联动在steam上买了魔夜，好像最近也在打折吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 12617#       发表于 2024-5-2 13:38
+
+我特么被青子这强度下的毒，毒到现在都还没完全缓过来。
+

@@ -13024,3 +13024,13 @@ naegora用审查者打到3800了</blockquote>
 发电厂好工，可惜万事无法完美，你说对吧小巴。
 同样的射程，小笔刷怎么就不能换成喇叭呢！
 
+
+*****
+
+####  KBAC  
+##### 4269#       发表于 2024-5-2 20:03
+
+一想到祭典话题设定上是已经被世界末日犁了的人类遗留的信息就感觉有点地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

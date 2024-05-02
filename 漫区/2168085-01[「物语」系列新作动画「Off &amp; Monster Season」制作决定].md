@@ -1227,3 +1227,33 @@ CG監督：島 久登
 
 yoasobi还行，看来没有角色曲了？也算正常，后面几个物语的故事都挺短的
 
+
+*****
+
+####  dot  
+##### 133#       发表于 2024-5-2 17:09
+
+草
+
+*****
+
+####  dot  
+##### 134#       发表于 2024-5-2 17:09
+
+不过，应该不会一个曲子用到底
+
+*****
+
+####  forgetit  
+##### 135#       发表于 2024-5-2 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  振翼发  
+##### 136#       发表于 2024-5-2 17:12
+
+什么新旧时代交汇的霸权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

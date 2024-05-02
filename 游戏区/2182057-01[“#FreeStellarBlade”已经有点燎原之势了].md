@@ -1310,3 +1310,29 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 这游戏原来翻译剑星吗，前几天看到相关新闻，我还想到s1找下专楼但是找不到。。所以s1有专楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希克苏鲁伯  
+##### 123#       发表于 2024-5-2 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788301&amp;ptid=2182057" target="_blank">kooor555 发表于 2024-5-2 10:07</a>
+
+这游戏原来翻译剑星吗，前几天看到相关新闻，我还想到s1找下专楼但是找不到。。所以s1有专楼吗 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1978008-1-1.html](https://bbs.saraba1st.com/2b/thread-1978008-1-1.html)
+
+最近一直在第一页挂着呢
+
+*****
+
+####  名居守  
+##### 124#       发表于 2024-5-2 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787881&amp;ptid=2182057" target="_blank">間桐櫻 发表于 2024-5-2 09:03</a>
+那索尼為甚麼給這種明顯違反zzzq的遊戲上架，是因為想賺錢嗎</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有钱不赚是“傻子”
+之前有gal上ps，整个图里被索尼和谐的全白就露个头都拿来卖
+还有个游戏专门围绕着擦边做了个擦边系统为主的游戏，索尼大手一挥，直接砍掉了这个擦边系统上架亚服卖
+剑星这个算好了，和谐了听说开通了退款渠道
+上面我提的那两个游戏，我真没听说过
+

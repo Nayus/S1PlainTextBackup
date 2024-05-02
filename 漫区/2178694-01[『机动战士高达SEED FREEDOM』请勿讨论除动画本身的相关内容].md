@@ -9020,3 +9020,11 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ShyCrazydog  
+##### 739#       发表于 2024-5-2 10:38
+
+运气不是很好换到的是露娜勇士突入大气层的那段<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

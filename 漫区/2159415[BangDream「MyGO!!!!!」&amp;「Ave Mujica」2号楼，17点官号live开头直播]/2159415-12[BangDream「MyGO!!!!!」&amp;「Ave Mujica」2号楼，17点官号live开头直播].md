@@ -3152,3 +3152,28 @@ mujica发东西哪次不是突然（
 
 只不过不会接下来四首还是这一套图，然后凑个mini专这套图档特典吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kosou  
+##### 16567#       发表于 2024-5-2 20:04
+
+图鬼点都不抱怨了 有就行 真是被wsd pua的一生<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16568#       发表于 2024-5-2 20:04
+
+好好笑，bilibili的官號沒更新你雞的MV<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuyin589  
+##### 16569#       发表于 2024-5-2 20:11
+
+能不能趁这个机会把b站的鸡号复活了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

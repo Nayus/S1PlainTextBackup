@@ -170,3 +170,45 @@ pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face
 玩家生涯的最初几个调查图的攒条是有加成的。最近伴随攒条系统更新，所有人重新开始享用一次加成（这个加 ...</blockquote>
 原来如此，我还以为阿金开窍鼓励大家多多调查了
 
+
+*****
+
+####  冰风血羽  
+##### 1054#       发表于 2024-5-2 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">又攒了20连啥都没有。。。只有200钻的妮娜安慰我
+
+*****
+
+####  江戸前ルナ  
+##### 1055#         楼主| 发表于 2024-5-2 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793287&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-5-2 20:08</a>
+
+又攒了20连啥都没有。。。只有200钻的妮娜安慰我</blockquote>
+随缘吧，我周年追京姐失败，到现在还没一个NEW<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我现在是囤石头囤票等几个老臣主的新形态了
+
+
+*****
+
+####  冰风血羽  
+##### 1056#       发表于 2024-5-2 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793301&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-5-2 20:10</a>
+随缘吧，我周年追京姐失败，到现在还没一个NEW反正我现在是囤石头囤票等几个老臣主的新形态了 ...</blockquote>
+可惜月卡不能连续续费，不然汇率低的时候狠狠氪几个月<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江戸前ルナ  
+##### 1057#         楼主| 发表于 2024-5-2 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793347&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-5-2 20:16</a>
+
+可惜月卡不能连续续费，不然汇率低的时候狠狠氪几个月
+
+—— 来自 realme RMX3706, Android 13上 ...</blockquote>
+可以啊，你可以先充成DMM点数放着的啊。
+

@@ -1372,3 +1372,31 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  名居守  
+##### 128#       发表于 2024-5-2 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789461&amp;ptid=2182057" target="_blank">往日不在 发表于 2024-5-2 12:27</a>
+布料和谐这件事不是索尼的问题么，坛里有些人不去喷索尼而去喷厂商，这屁股。。啧啧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是控制变量的问题
+
+比如su+腾讯搞的nikke手游，有和谐，su冰清玉洁
+现在索尼+su搞的单机游戏，有和谐，su冰清玉洁
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然，dc加进去这个控制变量就无效了
+
+*****
+
+####  天王寺綯  
+##### 129#       发表于 2024-5-2 12:40
+
+ 本帖最后由 天王寺綯 于 2024-5-2 12:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正金亨泰发售之前说全区无和谐了
+就冲这欺诈也不能说su冰清玉洁，除非这句话也是索尼给钱让他说的
+那只能说挣钱不寒碜了，毕竟都拿了钱搞独占了，拿人家的手短嘛
+
+反正dc已经死了，dc时期的su怎么样也改变不了他现在出尔反尔的问题
+

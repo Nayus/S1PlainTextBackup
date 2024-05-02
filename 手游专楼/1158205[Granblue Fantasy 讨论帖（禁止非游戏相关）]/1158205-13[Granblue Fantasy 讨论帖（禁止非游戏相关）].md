@@ -43,3 +43,13 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  exiaexa  
+##### 17900#       发表于 2024-5-2 14:07
+
+高达赢麻了，词条作用配合明确
+但是暗方怎么这么抽象
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

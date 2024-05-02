@@ -9102,3 +9102,26 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 在电影院买票时候问了个拿着种自手幅的香港肥肥你干嘛不买2d场拿胶片，他才知道原来4dx场的特典不如2d的，电影院的线下宣传也只写了4dx送东西，然后赶快去买了张2d票，抽到飞自不正一起捅毁灭的，我告诉他这种以后最好去Facebook看
 
+
+*****
+
+####  oi99o  
+##### 747#       发表于 2024-5-2 18:50
+
+看完了，打是打得挺爽的，就是后面台词里“爱”实在太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  oi99o  
+##### 748#       发表于 2024-5-2 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64790479&amp;ptid=2178694" target="_blank">アーリィ 发表于 2024-5-2 14:20</a>
+去尖沙咀英皇，还有，买完票就能拿
+
+这次比在东京运气还差，抽到飞自大破画面（ ...</blockquote>
+谢谢，不过我懒得跑，就算了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -6259,3 +6259,13 @@ Screenshot_20240502_081359_X.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏为什么要设计这么大的动作硬直，是故意的还是设计水平不行
 
+
+*****
+
+####  zqqwe  
+##### 1335#       发表于 2024-5-2 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792488&amp;ptid=1978008" target="_blank">lazycat233 发表于 2024-5-2 18:39</a>
+这游戏为什么要设计这么大的动作硬直，是故意的还是设计水平不行</blockquote>
+为了推插件和技能的加速buff<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反正我两个加速芯片是锁死不拆了
+

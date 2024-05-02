@@ -6925,3 +6925,18 @@ fsr光荣23-24财报是41万
 大的还是没来</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不算奏二 三个活动两次是联动 一次情人节 全是盛产菜B的活动
 
+
+*****
+
+####  newtypelv2  
+##### 12638#       发表于 2024-5-3 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64794882&amp;ptid=2084912" target="_blank">CNFH1984 发表于 2024-5-2 23:10</a>
+
+有没有甚么群收留一下难民的</blockquote>
+泥潭日服群还活着
+
+↓
+
+602677219
+

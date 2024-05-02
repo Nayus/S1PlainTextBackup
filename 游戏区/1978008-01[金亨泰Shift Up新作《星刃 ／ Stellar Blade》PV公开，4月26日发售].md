@@ -6352,3 +6352,20 @@ Screenshot_20240502_081359_X.jpg
 奖励就是没奖励吧</blockquote>
 奖励解锁二段跳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1345#       发表于 2024-5-3 01:20
+
+我记得附近哪个npc好像提醒过，说一个人走小巷危险之类的
+
+*****
+
+####  医生狼多  
+##### 1346#       发表于 2024-5-3 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64795714&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-3 01:05</a>
+奖励解锁二段跳啊</blockquote>
+这个感觉应该是主线解锁的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚好送过去触发？
+

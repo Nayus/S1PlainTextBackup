@@ -6841,3 +6841,16 @@ fsr光荣23-24财报是41万
 
 大黑天杀疯了，就是泪石的掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 12630#       发表于 2024-5-2 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793599&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-5-2 20:46</a>
+
+大黑天杀疯了，就是泪石的掉率太低了</blockquote>
+这么一说
+
+大黑天比有珠好用多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

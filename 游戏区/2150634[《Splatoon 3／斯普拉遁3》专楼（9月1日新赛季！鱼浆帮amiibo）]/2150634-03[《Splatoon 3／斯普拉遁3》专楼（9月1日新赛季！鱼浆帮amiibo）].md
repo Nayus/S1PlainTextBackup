@@ -13064,3 +13064,11 @@ naegora用审查者打到3800了</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4273#       发表于 2024-5-2 20:57
+
+快点人类爆炸我要当章鱼<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

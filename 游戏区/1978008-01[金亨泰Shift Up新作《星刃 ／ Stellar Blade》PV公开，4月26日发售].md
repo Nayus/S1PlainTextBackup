@@ -6269,3 +6269,21 @@ Screenshot_20240502_081359_X.jpg
 这游戏为什么要设计这么大的动作硬直，是故意的还是设计水平不行</blockquote>
 为了推插件和技能的加速buff<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反正我两个加速芯片是锁死不拆了
 
+
+*****
+
+####  malisa  
+##### 1336#       发表于 2024-5-2 19:48
+
+一周目打完了，总体感觉还是满值首发的，剧情基本符合预期，支线有几个还有点意思。收集意外的简单，钓鱼和罐子其实照着攻略补漏也花不了多少时间，特别是钓鱼。给的奖励时装也比较有诚意。音乐挺喜欢的，比较超预期
+
+*****
+
+####  lazycat233  
+##### 1337#       发表于 2024-5-2 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792624&amp;ptid=1978008" target="_blank">zqqwe 发表于 2024-5-2 18:52</a>
+
+为了推插件和技能的加速buff，反正我两个加速芯片是锁死不拆了</blockquote>
+真没啥意义感觉 不是加速不加速的问题 任何动作的后摇都很大 必须要把他的POSE摆完，处决怪物那个硬直也大的离谱，旁边的小怪还能抓你的处决硬直空档 
+

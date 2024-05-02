@@ -1414,3 +1414,25 @@ yoasobi这海报，算是官方剧透？
 
 竟然是yoasobi
 
+
+*****
+
+####  oi99o  
+##### 149#       发表于 2024-5-2 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792995&amp;ptid=2168085" target="_blank">downnote 发表于 2024-5-2 19:29</a>
+yoasobi这海报，算是官方剧透？</blockquote>
+3月份就发过了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  木木の林  
+##### 150#       发表于 2024-5-2 19:55
+
+Ayase竟然有时间写新歌<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">双厨狂喜，期待4号<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

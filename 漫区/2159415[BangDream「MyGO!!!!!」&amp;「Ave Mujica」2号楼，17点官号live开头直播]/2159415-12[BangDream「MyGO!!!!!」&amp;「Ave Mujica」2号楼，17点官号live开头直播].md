@@ -2680,3 +2680,12 @@ https://x.com/zizoumiao/status/1785565071655289198<img src="https://p.sda1.dev/1
 
 来奶一下什么时候发预告的预告？总不会第二首准备卡喵梦生日吧
 
+
+*****
+
+####  akirakira  
+##### 16520#       发表于 2024-5-2 07:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/17/47a05122b948258bacc706c57474f27f/2f2fa217ce23a472-1.jpg" referrerpolicy="no-referrer">
+

@@ -1282,3 +1282,15 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 同理评分也是一样 ...</blockquote>
 是失去理智了，但是怪谁？玩家看个乳勾都要被各种拷打，母猩猩草逼随便骑脸，现在怪人不理智？
 
+
+*****
+
+####  emmer  
+##### 120#       发表于 2024-5-2 08:00
+
+另外觉得“就加了几块布”的人也是搞笑
+
+既然无关痛痒那何必要加
+
+原则问题跟加布尺寸有关系么
+

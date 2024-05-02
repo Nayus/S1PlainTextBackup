@@ -1094,3 +1094,16 @@ INABA
 猫组起码5月底后入队</blockquote>
 但疑惑的是没有追加的变身道具情报……或者代哥今年良心发现猫组和追加都不出换色的变身道具直接把变身音效塞武器里？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1394#       发表于 2024-5-2 08:02
+
+[https://m.weibo.cn/detail/5029359636712434](https://m.weibo.cn/detail/5029359636712434) <blockquote>15 羊执事咩咩的一天
+
+16 镜石的奇妙
+
+17 我会保护你</blockquote>
+<img src="https://p.sda1.dev/17/c655d5806a3fef6807c9736e10eaaf6c/e7cbae74gy1hpaf0iw5uhj20m609ajwb.jpg" referrerpolicy="no-referrer">
+

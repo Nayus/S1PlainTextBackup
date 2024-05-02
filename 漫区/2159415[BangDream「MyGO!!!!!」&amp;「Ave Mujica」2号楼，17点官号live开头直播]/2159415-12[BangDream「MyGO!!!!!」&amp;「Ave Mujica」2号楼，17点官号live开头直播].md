@@ -3177,3 +3177,33 @@ mujica发东西哪次不是突然（
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星空冻结  
+##### 16570#       发表于 2024-5-2 20:34
+
+合号是团队决策，你复活🐔号是想让谁背锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 16571#       发表于 2024-5-2 20:40
+
+这个图怕不是还会卖立牌
+
+*****
+
+####  rikaren  
+##### 16572#       发表于 2024-5-2 20:40
+
+这个图怕不是还会卖立牌
+
+*****
+
+####  御幸一也  
+##### 16573#       发表于 2024-5-2 20:42
+
+當然要一圖多賺，武士道肯定拿去賣立牌的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

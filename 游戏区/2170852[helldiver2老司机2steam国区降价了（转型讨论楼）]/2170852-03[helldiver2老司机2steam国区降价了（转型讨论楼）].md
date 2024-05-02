@@ -8119,3 +8119,11 @@ Fix for crash wh ...</blockquote>
 至于难度说实话 找个人一直拉警报自己去做任务就很简单 但是正面硬钢战斗爽那确实就得bis
 贱头就是不想让你单刷太舒服逼你组队避免降游戏热度，跟厂商共情肯定觉得做得好但是站在玩家的角度我只能说qnmd<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 3731#       发表于 2024-5-2 20:43
+
+大盾兵就别忘了，除非敌人永远正面对着你。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

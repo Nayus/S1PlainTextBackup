@@ -6824,3 +6824,20 @@ fsr光荣23-24财报是41万
 有珠三临虽然没有特殊台词，但再临时的语音，战斗语音以及从善人属性改成恶地应该是暗示老祖夺舍？ ...</blockquote>
 三临宝具太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 12628#       发表于 2024-5-2 20:42
+
+<blockquote>シャル 发表于 2024-5-2 20:26
+三临宝具太吓人了</blockquote>
+香菜拿手的演技
+
+*****
+
+####  khxooo  
+##### 12629#       发表于 2024-5-2 20:46
+
+大黑天杀疯了，就是泪石的掉率太低了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

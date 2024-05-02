@@ -8241,3 +8241,25 @@ Fix for crash wh ...</blockquote>
 
 为防止还有还在玩的人不知道有关左轮的tips，提醒一句：提着左轮时按住R可以转枪。只要按住R不松，无论站定状态、移动状态还是冲刺状态都会转。
 
+
+*****
+
+####  FLZB  
+##### 3743#       发表于 2024-5-3 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796089&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-5-3 03:08</a>
+
+没太大必要在这个傻逼游戏上想太多，傻逼就是傻逼不分地域。这个游戏房主权限太大，欧美南朝鲜那种低能人 ...</blockquote>
+有时只是比较好奇，想看看这些贵物是哪国人，好强化一下刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Awanano  
+##### 3744#       发表于 2024-5-3 03:15
+
+我以前被司马贼海恶心时就对洋人有一定理解了。他们很喜欢以“this is game”来为自己脑残和野蛮辩护，“游戏有操作空间=允许我这么玩，哎呀只是游戏而已”
+南傀不太一样的地方是他们真的生活不如意，没活了必须从鸡毛蒜皮来维护自己那点民族情感
+习惯就好，要么不玩要么少玩
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

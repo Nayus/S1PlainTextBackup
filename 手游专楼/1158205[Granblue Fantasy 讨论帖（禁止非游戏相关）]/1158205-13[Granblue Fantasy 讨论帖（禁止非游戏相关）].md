@@ -33,3 +33,13 @@
 
 问题来了，现在人手技练，会不会只有光是乱舞没有技练。
 
+
+*****
+
+####  Sylpheed  
+##### 17899#       发表于 2024-5-2 13:57
+
+光不给技炼不是明摆着光技伤占比高么，估计水也大概率不会给，怎么限制强度制作人还是门清的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

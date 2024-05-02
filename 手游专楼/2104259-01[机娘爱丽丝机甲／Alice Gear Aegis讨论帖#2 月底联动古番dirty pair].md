@@ -212,3 +212,15 @@ pick up rate都是假的<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 realme RMX3706, Android 13上 ...</blockquote>
 可以啊，你可以先充成DMM点数放着的啊。
 
+
+*****
+
+####  冰风血羽  
+##### 1058#       发表于 2024-5-2 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793353&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-5-2 20:17</a>
+可以啊，你可以先充成DMM点数放着的啊。</blockquote>
+对哦，忘了DMM点这茬
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

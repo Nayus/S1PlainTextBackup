@@ -13053,3 +13053,14 @@ naegora用审查者打到3800了</blockquote>
 论坛助手,iPhone ...</blockquote>
 不说我都差点忘了233
 
+
+*****
+
+####  KBAC  
+##### 4272#       发表于 2024-5-2 20:18
+
+上次祭典熊赢了然后这次祭典就世界末日
+这不就是英雄模式的BadEnding吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

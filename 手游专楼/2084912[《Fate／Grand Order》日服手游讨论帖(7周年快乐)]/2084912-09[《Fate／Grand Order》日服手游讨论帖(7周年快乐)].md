@@ -6813,3 +6813,14 @@ fsr光荣23-24财报是41万
 这不是挺方便的设定，甚至还能圆一下魔法使为什么不换人
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 12627#       发表于 2024-5-2 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792170&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-2 18:08</a>
+
+有珠三临虽然没有特殊台词，但再临时的语音，战斗语音以及从善人属性改成恶地应该是暗示老祖夺舍？ ...</blockquote>
+三临宝具太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

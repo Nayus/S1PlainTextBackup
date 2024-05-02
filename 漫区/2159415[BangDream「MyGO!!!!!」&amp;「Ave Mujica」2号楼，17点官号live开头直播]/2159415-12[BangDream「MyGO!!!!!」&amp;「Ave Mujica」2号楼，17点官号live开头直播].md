@@ -2869,3 +2869,16 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NODY  
+##### 16536#       发表于 2024-5-2 16:32
+
+鼓奏生放，但李子含量三分之一以上<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+林鼓子のココいちばん！第１２回【ゲスト：高尾奏音】
+[https://www.bilibili.com/video/BV1mi42117MC/](https://www.bilibili.com/video/BV1mi42117MC/)
+
+我没文化你们两个不要骗我，祥子和立希的互动真的有多到能被叫犬猿之仲的级别吗，这两个目前不是互相无视的关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

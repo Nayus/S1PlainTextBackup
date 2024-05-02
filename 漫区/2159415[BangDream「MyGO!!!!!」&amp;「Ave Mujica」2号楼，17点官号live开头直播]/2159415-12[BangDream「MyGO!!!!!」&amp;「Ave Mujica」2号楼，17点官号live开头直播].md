@@ -3301,3 +3301,34 @@ mv晚发也不奇怪，只能说按“连续五个月”歌肯定是不会跑了
 
 作为粉丝要学会pua运营，该骂就骂，有成绩了夸一下，然后过几天接着骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16585#       发表于 2024-5-2 21:40
+
+这头像也都换了（）
+
+QQ图片20240502214009.jpg
+(61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/214015rur6w6pt6tujmomo.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16586#       发表于 2024-5-2 21:41
+
+<img src="https://p.sda1.dev/17/de72de5656e709f37eb43e9a5d915913/CMP_20240502214048384.png" referrerpolicy="no-referrer">这个mv的画风，总给我一种巨神兵要毁灭世界的感觉
+
+*****
+
+####  skives  
+##### 16587#       发表于 2024-5-2 21:41
+
+这套新立绘还挺有风格的
+

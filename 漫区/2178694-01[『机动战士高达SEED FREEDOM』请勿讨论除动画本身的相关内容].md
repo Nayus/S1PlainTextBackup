@@ -9049,3 +9049,17 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  アーリィ  
+##### 742#       发表于 2024-5-2 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64790144&amp;ptid=2178694" target="_blank">oi99o 发表于 2024-5-2 13:41</a>
+唉，奥海城the sky也没了
+
+论坛助手,iPhone</blockquote>
+去尖沙咀英皇，还有，买完票就能拿
+
+这次比在东京运气还差，抽到飞自大破画面（
+

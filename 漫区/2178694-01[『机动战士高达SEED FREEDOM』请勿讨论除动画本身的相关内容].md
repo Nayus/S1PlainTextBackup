@@ -8998,3 +8998,25 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 这第一场还没开就说胶片派完了。。。</blockquote>
 我在时代广场的英皇这边一个人都没有，好不容易逮到一个工作人员，结果给我说没开门<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 737#       发表于 2024-5-2 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788160&amp;ptid=2178694" target="_blank">アーリィ 发表于 2024-5-2 09:47</a>
+这第一场还没开就说胶片派完了。。。</blockquote>
+哪家戏院？我预定下午去的瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  oi99o  
+##### 738#       发表于 2024-5-2 10:30
+
+听说有些戏院是只要提前买了第二周的票就可以去换特典的，不用等到当天。所以我看到有些早场直接被人买空真的是汗流浃背。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

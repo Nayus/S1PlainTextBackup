@@ -55,3 +55,13 @@ Screenshot_20240501_090652_tv.danmaku.bili.jpg
 
 顺便终于想起当初看到战双赛琳娜的既视感从何而来，反过来现在看着女主变成了既视感赛琳娜了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  codezwei  
+##### 101#       发表于 2024-5-2 10:29
+
+出警<img src="https://p.sda1.dev/17/f8b9055a4fbac1fc0ae227e38a9a59b4/CMP_20240502102754469.png" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

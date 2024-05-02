@@ -3101,3 +3101,42 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星空冻结  
+##### 16561#       发表于 2024-5-2 19:26
+
+应该不是冲出来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 16562#       发表于 2024-5-2 19:27
+
+有MV是喜事，但是为啥今天突然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 16563#       发表于 2024-5-2 19:28
+
+mujica发东西哪次不是突然（
+
+*****
+
+####  月光的道标  
+##### 16564#       发表于 2024-5-2 19:29
+
+这个图还行啊，至少比端程山那个抽象图好多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16565#       发表于 2024-5-2 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792960&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-5-2 19:26</a>
+
+应该不是冲出来的吧</blockquote>
+隔了一個月呢 為啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

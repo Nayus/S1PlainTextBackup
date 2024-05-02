@@ -1390,3 +1390,19 @@ web archive也能看到，来源网站最初用的是上面这张图，和之后
 
 2024-5-2 18:29 上传
 
+
+*****
+
+####  downnote  
+##### 147#       发表于 2024-5-2 19:29
+
+yoasobi这海报，算是官方剧透？
+
+<img src="https://img.saraba1st.com/forum/202405/02/192909ak52r99w7khfo9nz.png" referrerpolicy="no-referrer">
+
+<strong>twitter_YOASOBI(@YOASOBI_staff)_20240502-090031_1785957530004594959_photo.png</strong> (131.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 19:29 上传
+

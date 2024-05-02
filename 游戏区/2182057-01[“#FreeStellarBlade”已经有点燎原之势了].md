@@ -1268,3 +1268,17 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 索尼怂了？
 
+
+*****
+
+####  emmer  
+##### 119#       发表于 2024-5-2 07:51
+
+ 本帖最后由 emmer 于 2024-5-2 07:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64784591&amp;ptid=2182057" target="_blank">sephal 发表于 2024-5-1 20:21</a>
+
+忠诚不绝对就是绝对不忠诚，现在这么多人拿这游戏当枪用，结果自己先缩了，当然要骂成狗
+
+同理评分也是一样 ...</blockquote>
+是失去理智了，但是怪谁？玩家看个乳勾都要被各种拷打，母猩猩草逼随便骑脸，现在怪人不理智？
+

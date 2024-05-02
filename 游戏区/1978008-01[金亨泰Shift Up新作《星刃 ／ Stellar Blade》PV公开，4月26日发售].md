@@ -6210,3 +6210,11 @@ Screenshot_20240502_081359_X.jpg
 
 回避和弹反二段派生的爆发技如果按太快老是变成回避取消了（资源肯定是够的），在练习模式试了很久发现慢一拍再按反而容易出来
 
+
+*****
+
+####  Rainwedell  
+##### 1330#       发表于 2024-5-2 13:17
+
+拿会员存档通了第二个结局，轨道电梯那段一路砍上太空应该是是最出彩的流程了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，几个bgm也用的好。
+

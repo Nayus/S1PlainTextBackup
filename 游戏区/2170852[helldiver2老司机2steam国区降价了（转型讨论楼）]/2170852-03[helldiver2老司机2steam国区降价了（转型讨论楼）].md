@@ -8221,3 +8221,23 @@ Fix for crash wh ...</blockquote>
 论坛助手,iPhone ...</blockquote>
 只有比较特别的id能查到，这游戏我已经顺着id找过很多次了但都因为太普通重名太多根本无法锁定目标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 3741#       发表于 2024-5-3 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796079&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-3 03:02</a>
+只有比较特别的id能查到，这游戏我已经顺着id找过很多次了但都因为太普通重名太多根本无法锁定目标 ...</blockquote>
+没太大必要在这个傻逼游戏上想太多，傻逼就是傻逼不分地域。这个游戏房主权限太大，欧美南朝鲜那种低能人很容易暴露自己劣根性。
+之前就见过那种丢了sos人下来就tk给自己刷命。还有最后等撤离发狂杀另外两个队友想恶心他们干等，我正好加入空降，下来看到直接叫支援救回来。房主踢完人后骂了好久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xinfengj  
+##### 3742#       发表于 2024-5-3 03:12
+
+为防止还有还在玩的人不知道有关左轮的tips，提醒一句：提着左轮时按住R可以转枪。只要按住R不松，无论站定状态、移动状态还是冲刺状态都会转。
+

@@ -9169,3 +9169,13 @@ really！ re@lly！
 上trending了呀，昨天上了没
 这波mv连发的宣发还挺成功？
 
+
+*****
+
+####  YetToCome  
+##### 3834#       发表于 2024-5-2 22:48
+
+美波这曲子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，别说live了，就这录音棚的味道都不对吧
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

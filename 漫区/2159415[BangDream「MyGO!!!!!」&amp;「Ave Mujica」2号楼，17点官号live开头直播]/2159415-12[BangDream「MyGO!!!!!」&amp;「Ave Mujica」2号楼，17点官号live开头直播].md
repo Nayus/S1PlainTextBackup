@@ -3634,3 +3634,34 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 
 我早就说过，角色互换，我绝对比现在更大方。
 
+
+*****
+
+####  NODY  
+##### 16622#       发表于 2024-5-2 22:48
+
+说实话那个官号给不给一半我是无所谓的，那个尴尬语C谁爱要谁要好吧，更别说这号收钱还一次比一次贵就差把抢钱写脸上了，能对这号有归属感还馋那点地盘的只能是很好骗的韭菜了，尊重祝福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16623#       发表于 2024-5-2 22:49
+
+最抽象的是 明明日本那边都是分开的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 16624#       发表于 2024-5-2 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/02/225236t9xj04tu0aazfxut.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQk6r-h5aaZcT3cSk4-sg.jpg</strong> (127.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 22:52 上传
+

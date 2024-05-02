@@ -3293,3 +3293,11 @@ mv晚发也不奇怪，只能说按“连续五个月”歌肯定是不会跑了
 
 不过好歹有mv了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 16584#       发表于 2024-5-2 21:30
+
+作为粉丝要学会pua运营，该骂就骂，有成绩了夸一下，然后过几天接着骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6690,3 +6690,16 @@ fsr光荣23-24财报是41万
 
 日区榜又不是全球榜，反映的是日本steam玩家里的反响，steam榜强度又不高，这都只有20，真没什么拉动，纯白全球都进榜了（55）
 
+
+*****
+
+####  萨拉丁  
+##### 12615#       发表于 2024-5-2 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789252&amp;ptid=2084912" target="_blank">CNFH1984 发表于 2024-5-2 12:02</a>
+
+微博和你睿看了下翻译
+
+太他妈三角了，我正式怀疑蘑菇是中老年肥皂剧爱好者大妈 ...</blockquote>
+不然怎么说蘑菇乙女心呢。魔夜男女倒过来就是韩剧剧本。
+

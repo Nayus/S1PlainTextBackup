@@ -1304,3 +1304,50 @@ ryo江郎才尽也还有神前晓呢，你索是不是没有别人了<img src="h
 
 居然是yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下强强联手了
 
+
+*****
+
+####  芜湖挨宰  
+##### 143#       发表于 2024-5-2 18:19
+
+我一直好奇一件事，就是伤物语新剧场版的宣传图为啥换掉了。去年刚宣布的时候用的是下面这张，后来这个绘柄惨遭神隐，不再出现在任何宣传材料和谷子中。
+
+难道不只是中国人反感旭日旗，国际上其他国家也有碍观瞻嘛？
+
+<img src="https://img.saraba1st.com/forum/202405/02/181100rnfazak9aksdt4dp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+web archive也能看到，来源网站最初用的是上面这张图，和之后更换的绘柄甚至链接都一样：
+[https://web.archive.org/web/2023 ... /194775/flyer_1.jpg](https://web.archive.org/web/20231112120958im_/https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg)
+[https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg](https://ogre.natalie.mu/media/ex/film/194775/flyer_1.jpg)
+
+<img src="https://img.saraba1st.com/forum/202405/02/181141itfggpd7diorng0t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/181149z9mb1mqq2a4m7bi1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 18:11 上传
+
+*****
+
+####  集合酱  
+##### 144#       发表于 2024-5-2 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792287&amp;ptid=2168085" target="_blank">芜湖挨宰 发表于 2024-5-2 18:19</a>
+我一直好奇一件事，就是伤物语新剧场版的宣传图为啥换掉了。去年刚宣布的时候用的是下面这张，后来这个绘柄 ...</blockquote>
+这个不是普通国旗吗 动画开头也有很多吧？居然被神隐了
+

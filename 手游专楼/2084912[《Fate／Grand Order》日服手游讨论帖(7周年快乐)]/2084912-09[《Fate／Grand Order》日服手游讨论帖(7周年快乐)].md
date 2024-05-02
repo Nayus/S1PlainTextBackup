@@ -6786,3 +6786,17 @@ fsr光荣23-24财报是41万
 个人倾向是同化，具体解释反正都是有生之年了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 12625#       发表于 2024-5-2 18:19
+
+<blockquote>exiaexa 发表于 2024-5-2 18:13
+就两种情况嘛
+
+要么朱利安这种夺舍，要么卫宫那种同化
+
+个人倾向是同化，具体解释反正都是有生之年了</blockquote>
+可能第一代就是靠同化或夺舍维持不生不死？但听起来好low
+

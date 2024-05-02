@@ -7940,3 +7940,22 @@ dot伤害bug一个月修不好，反器材准星偏移问题一个月不处理�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DawnGuardian  
+##### 3713#       发表于 2024-5-2 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791093&amp;ptid=2170852" target="_blank"> 小绿瓜拉苟莱斯 发表于 2024-5-2 15:54</a> 磁轨安全模式打无畏窗可以一枪打死吗，我之前试不行，所以都是开非安全，但有人说安全模式可以一枪  —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 </blockquote>
+最早可以，削弱后不行，最近一次加强后又可以了来自: iPhone客户端
+
+*****
+
+####  FLZB  
+##### 3714#       发表于 2024-5-2 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64790939&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-5-2 15:30</a>
+
+感觉社区越来越魔怔，箭头**削武器，不修bug是煞白。但追求高难度说现在有能用的武器，开发弱武器就是孝子 ...</blockquote>
+上面不还有觉得说西线比东线容易是在洗箭头。只能说玩家基数大了就是这样，在贴吧跟那些对游戏理解有所欠缺的选手对线时我都懒得好好分析了，就直接骂他菜逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

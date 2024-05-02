@@ -8059,3 +8059,14 @@ Fix for crash which could occur when destroying automaton tanks.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得主要是箭头默认你四个人一起走的，那他各项削弱增强其实还是有点道理，但是实际上很多人都是野排，为了任务效率也需要有人去单走，那肯定得考虑单走情况下应对绝大部分场景的能力问题
 
+
+*****
+
+####  Launce  
+##### 3725#       发表于 2024-5-2 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792021&amp;ptid=2170852" target="_blank">暴走的包子 发表于 2024-5-2 17:52</a>
+
+我觉得主要是箭头默认你四个人一起走的，那他各项削弱增强其实还是有点道理，但是实际上很多人都是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">他匹配都没做好，纯傻卵
+

@@ -13098,3 +13098,13 @@ naegora用审查者打到3800了</blockquote>
 
 打得烂出金，打得好出铜，太奇妙了
 
+
+*****
+
+####  KBAC  
+##### 4276#       发表于 2024-5-3 01:02
+
+才发现3代祭典次数上次才刚刚追平1代祭典总次数<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+按最多的每个赛季3次祭典算得再过5个赛季才能追平二代的祭典数量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

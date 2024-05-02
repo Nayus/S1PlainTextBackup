@@ -6331,3 +6331,24 @@ Screenshot_20240502_081359_X.jpg
 怎么过个路边小支线还能被剧情杀一次的</blockquote>
 演出和奖励更抽象，怀疑是恶趣味给3d区发挥的
 
+
+*****
+
+####  医生狼多  
+##### 1343#       发表于 2024-5-3 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64795524&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-3 00:35</a>
+演出和奖励更抽象，怀疑是恶趣味给3d区发挥的</blockquote>
+奖励就是没奖励吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 1344#       发表于 2024-5-3 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64795678&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-5-3 00:58</a>
+
+奖励就是没奖励吧</blockquote>
+奖励解锁二段跳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

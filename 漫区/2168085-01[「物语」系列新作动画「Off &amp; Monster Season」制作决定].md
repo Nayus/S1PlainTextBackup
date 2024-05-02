@@ -1257,3 +1257,18 @@ yoasobi还行，看来没有角色曲了？也算正常，后面几个物语的�
 
 什么新旧时代交汇的霸权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 137#       发表于 2024-5-2 17:25
+
+愚物语的三个故事好像除了老仓育外都能一集结束吧，还有角色曲真就一集换一个OP了
+
+*****
+
+####  Skymoon  
+##### 138#       发表于 2024-5-2 17:27
+
+yoasobi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

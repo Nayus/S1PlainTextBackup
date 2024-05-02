@@ -9235,3 +9235,39 @@ QA这个mv商法和动态演出也成了一套成熟的商法了，之后学马�
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3842#       发表于 2024-5-2 23:45
+
+mv说了是谁做的吗？
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Laie  
+##### 3843#       发表于 2024-5-2 23:48
+
+比起蓝这首反而觉得红的还不错了，美波的歌实在不太欣赏得来，况且光录音版都唱得本音都歪掉了
+
+还有这种歌放live里打call想想那画面就<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+另外信号灯里两个人的个人曲都一副破釜沉舟逆反天罡的气势，听pv里黄的却又是二次元偶像企划标准且保守的那种萌曲，不知道是什么思路
+
+*****
+
+####  无雨中  
+##### 3844#       发表于 2024-5-2 23:52
+
+简直想问断气唱法是什么新流行吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秦谷美鈴  
+##### 3845#       发表于 2024-5-2 23:52
+
+<img src="https://p.sda1.dev/17/a90fefd83d511d90e44b28a29181fa3b/1000003792.jpg" referrerpolicy="no-referrer">
+

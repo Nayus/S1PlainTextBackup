@@ -3366,3 +3366,87 @@ QQ图片20240502214009.jpg
 
 这估计会拖到12点发（）
 
+
+*****
+
+####  MZZK  
+##### 16592#       发表于 2024-5-2 21:53
+
+发了
+
+*****
+
+####  蒜灵  
+##### 16593#       发表于 2024-5-2 21:56
+
+发了，首页刷到了
+
+*****
+
+####  [皆神孝介]  
+##### 16594#       发表于 2024-5-2 21:58
+
+Ave Mujica - Symbol I : △ (Official Music Video)
+[https://www.bilibili.com/video/BV1GJ4m1E7F4/](https://www.bilibili.com/video/BV1GJ4m1E7F4/)
+
+*****
+
+####  基神的强袭自由  
+##### 16595#       发表于 2024-5-2 21:58
+
+完了，我也刷到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 16596#       发表于 2024-5-2 21:59
+
+下週
+
+<img src="https://img.saraba1st.com/forum/202405/02/215901kuvj3zwcwiwp7pcp.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #214 1-6-1 screenshot.png</strong> (371.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 21:59 上传
+
+
+*****
+
+####  skives  
+##### 16597#       发表于 2024-5-2 22:00
+
+难道说mujica宣传期到了
+
+*****
+
+####  PDQ4  
+##### 16598#       发表于 2024-5-2 22:00
+
+有初睦，得看了，但是要宣什么东西啊，不会是翻唱碟吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 16599#       发表于 2024-5-2 22:01
+
+可能是來宣傳單曲
+
+*****
+
+####  NODY  
+##### 16600#       发表于 2024-5-2 22:02
+
+中华炮这么猛的，真的把宣传期骂出来了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 16601#       发表于 2024-5-2 22:03
+
+那5.9要预告的预告吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

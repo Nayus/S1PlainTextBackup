@@ -1362,3 +1362,13 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 这一套组合拳如果放几年前对立还没那么严重的版本还真给他两面通吃了
 
+
+*****
+
+####  往日不在  
+##### 127#       发表于 2024-5-2 12:27
+
+布料和谐这件事不是索尼的问题么，坛里有些人不去喷索尼而去喷厂商，这屁股。。啧啧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

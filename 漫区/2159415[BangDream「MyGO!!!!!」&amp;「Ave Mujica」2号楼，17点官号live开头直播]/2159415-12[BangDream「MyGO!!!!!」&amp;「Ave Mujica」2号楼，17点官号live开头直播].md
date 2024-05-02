@@ -2732,3 +2732,11 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 如果能卖黑色生日那套柄的立牌 我绝对不抱怨<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 就怕是wsd计划的是给当成mujica蓝光的特典
 
+
+*****
+
+####  PDQ4  
+##### 16524#       发表于 2024-5-2 12:26
+
+国限不至于吧，我在等通贩呢，这种周边弄成国限不怕日本人炎上？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

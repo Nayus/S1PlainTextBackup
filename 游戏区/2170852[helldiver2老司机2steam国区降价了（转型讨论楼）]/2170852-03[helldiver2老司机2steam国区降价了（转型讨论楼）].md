@@ -7829,3 +7829,13 @@ Reddit砍不过来了吗，之前看STEAM社区吐槽Reddit喷矢脑吃BAN，所
 
 顺便试了一下喷火器+震撼弹+榴弹手枪的组合，有时候牛聚团可以一次解决两三只牛，单走除非遇到泰坦，不然乱杀，所以战备我选轨道打击+110，特化对泰坦能力
 
+
+*****
+
+####  6x6z6w  
+##### 3700#       发表于 2024-5-2 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64786997&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-2 01:41</a>
+这种地形开车真能开吗</blockquote>
+坑少只有坡的星球应该可以，但这运兵车估计不适合在虫子图开
+

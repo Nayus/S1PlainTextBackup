@@ -1107,3 +1107,11 @@ INABA
 17 我会保护你</blockquote>
 <img src="https://p.sda1.dev/17/c655d5806a3fef6807c9736e10eaaf6c/e7cbae74gy1hpaf0iw5uhj20m609ajwb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kreis  
+##### 1395#       发表于 2024-5-2 08:36
+
+麻油15话先进微笑花园，16话解释世界观，看来17话要变身了。
+

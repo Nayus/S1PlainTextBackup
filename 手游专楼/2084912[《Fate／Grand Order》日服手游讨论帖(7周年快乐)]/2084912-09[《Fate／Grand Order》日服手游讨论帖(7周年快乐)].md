@@ -6390,3 +6390,31 @@ So，你算老几？
 
 我看以后联动也确实不用写啥新东西了，直接照搬原文再把原作流程重新过一遍，反正只要不是菌写的，就会有这种人来无脑舔
 
+
+*****
+
+####  exiaexa  
+##### 12593#       发表于 2024-5-2 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787032&amp;ptid=2084912" target="_blank">萨拉丁 发表于 2024-5-2 01:52</a>
+尽管你是这个态度，但是事实是今天魔夜的销量已经是Steam日本20位了。
+
+显然更多人的态度是玩了联动更想 ...</blockquote>
+你在想什么
+联动你只想摸鱼端水，不愿意好好往下写，那你就去跟fr坐一桌没问题吧
+
+你现在跟我说，我只想做fr联动级的事情，但你们应该给我ccc级的评价，贴吧菌孝子都干不出来这事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 12594#       发表于 2024-5-2 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787823&amp;ptid=2084912" target="_blank">katun 发表于 2024-5-2 08:49</a>
+你引用的这人唯爱樱井光，已经反菌反到脑子不正常了，这次剧本在日推上都是普遍好评，结果你提哪壶不好， ...</blockquote>
+我给东出和阿菌站台的时候，你妈是没把你生出来还是你在给你妈奔丧
+
+做不到不带滤镜看人就别出来锐评好吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

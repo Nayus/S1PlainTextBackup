@@ -1294,3 +1294,11 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 原则问题跟加布尺寸有关系么
 
+
+*****
+
+####  間桐櫻  
+##### 121#       发表于 2024-5-2 09:03
+
+那索尼為甚麼給這種明顯違反zzzq的遊戲上架，是因為想賺錢嗎
+

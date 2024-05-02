@@ -6656,3 +6656,37 @@ fsr光荣23-24财报是41万
 月球人是凯子不是傻逼
 都有数字的东西何苦呢
 
+
+*****
+
+####  exiaexa  
+##### 12612#       发表于 2024-5-2 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789330&amp;ptid=2084912" target="_blank">katun 发表于 2024-5-2 12:11</a>
+你反驳不出一句话，只能够继续说些低级父母脏话，却只是把“我的父母没有对我进行正确的家教”这顶帽子往 ...</blockquote>
+乐了，你不先去解释扣帽子的问题，跑来问我为什么不回应你？
+
+我是你爹吗被你扣帽子还要哄着你
+我还是那句话，想不被问候全家就先做好自己
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  katun  
+##### 12613#       发表于 2024-5-2 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789365&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-2 12:16</a>
+
+乐了，你不先去解释扣帽子的问题，跑来问我为什么不回应你？
+
+我是你爹吗被你扣帽子还要哄着你</blockquote>
+看来自取其辱这个词对你来说太难理解了，倒是非常符合喜光癖的阅读水准。
+
+*****
+
+####  间宮夏生  
+##### 12614#       发表于 2024-5-2 12:21
+
+日区榜又不是全球榜，反映的是日本steam玩家里的反响，steam榜强度又不高，这都只有20，真没什么拉动，纯白全球都进榜了（55）
+

@@ -432,3 +432,25 @@
 
 草，前100抽菲跑跑和2个ego齐了，后100抽4个播报全重复。yj你up了个什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  实验性  
+##### 668#       发表于 2024-5-2 12:21
+
+一直服务器错误，只有我一个人这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 669#       发表于 2024-5-2 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789176&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-5-2 11:54</a>
+
+我还没实战，不过建议换罗佳那红舞鞋吧
+
+一点是waw现在出的还是少
+
+一点是玛玛那ego竞争位是四破红 ...</blockquote>
+谢了..我看看任务给的票能不能出奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

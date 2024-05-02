@@ -3207,3 +3207,27 @@ mujica发东西哪次不是突然（
 
 當然要一圖多賺，武士道肯定拿去賣立牌的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 16574#       发表于 2024-5-2 20:50
+
+上个月的已经骂出来了，这个月的可以开始骂了吗
+
+sry，我居然在假定5月份有新歌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16575#       发表于 2024-5-2 20:51
+
+不是說好了連續5個月新曲嗎，這個月當然也要有的吧！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16576#       发表于 2024-5-2 20:54
+
+反正5.17前就能知道了
+

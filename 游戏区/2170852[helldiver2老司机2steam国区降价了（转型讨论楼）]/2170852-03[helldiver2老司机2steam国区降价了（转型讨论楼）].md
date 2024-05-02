@@ -8103,3 +8103,19 @@ Fix for crash which could occur when destroying automaton tanks.
 
 是否有点帝国了
 
+
+*****
+
+####  sunbeach  
+##### 3730#       发表于 2024-5-2 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791854&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-2 17:32</a>
+还有2奇葩闪退
+
+Fix for a crash that could occur during the post mission end screen
+
+Fix for crash wh ...</blockquote>
+修完之后出现了昨天还没有的瞬间卡顿掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太幽默了
+至于难度说实话 找个人一直拉警报自己去做任务就很简单 但是正面硬钢战斗爽那确实就得bis
+贱头就是不想让你单刷太舒服逼你组队避免降游戏热度，跟厂商共情肯定觉得做得好但是站在玩家的角度我只能说qnmd<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

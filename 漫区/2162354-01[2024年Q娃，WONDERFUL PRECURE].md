@@ -1115,3 +1115,14 @@ INABA
 
 麻油15话先进微笑花园，16话解释世界观，看来17话要变身了。
 
+
+*****
+
+####  pokemon最爱  
+##### 1396#       发表于 2024-5-2 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787750&amp;ptid=2162354" target="_blank">Kreis 发表于 2024-5-2 08:36</a>
+
+麻油15话先进微笑花园，16话解释世界观，看来17话要变身了。</blockquote>
+17话标题没有Cure Lillian，八成变不了身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

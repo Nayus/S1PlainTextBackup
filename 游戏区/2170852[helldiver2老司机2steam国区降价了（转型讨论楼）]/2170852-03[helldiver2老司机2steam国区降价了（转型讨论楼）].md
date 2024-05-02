@@ -8175,3 +8175,13 @@ Fix for crash wh ...</blockquote>
 新债卷三把主手一眼幽默</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，下个平衡补丁后你就笑不出来了
 
+
+*****
+
+####  Aeons  
+##### 3737#       发表于 2024-5-3 02:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绷，守卫遇到傻逼鬼佬了，砸死我两次试图砸第三次没成功，最后上飞机tk踢人，只能说我还是给他脸了，第二次就该杀他妈了。
+
+才想起来有个举报功能，被踢了又不在近期玩家里显示有什么用吗
+

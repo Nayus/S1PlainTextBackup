@@ -2846,3 +2846,14 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 [https://twitter.com/AkaneY_banu/status/1785933914063962157](https://twitter.com/AkaneY_banu/status/1785933914063962157)
 
+
+*****
+
+####  紫吹兰  
+##### 16534#         楼主| 发表于 2024-5-2 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64787849&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-2 08:54</a>
+
+绷不住 wsd还弄上国限了 这要是后面没有通贩 那真的是黄牛狂喜</blockquote>
+怎么个国限法
+

@@ -9083,3 +9083,14 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 二刷完了，修罗这人铁处男无疑。见到漂亮妹妹阿格尼斯直接上滤镜了。阿格尼斯绿茶找他求安慰，他还真上套了。要不是阿格尼斯自己脑子就不好使，换成卡迪公那样的恶女怕是要被玩废<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アーリィ  
+##### 745#       发表于 2024-5-2 16:10
+
+ 本帖最后由 アーリィ 于 2024-5-2 16:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64791063&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-2 15:51</a>
+这不是运气超好吗？可恶的海豹</blockquote>
+我之前东京抽的是拉克丝低头捂脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1400,3 +1400,13 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 反正dc已经死了，dc时期的su怎么样也改变不了他现在出尔反尔的问题
 
+
+*****
+
+####  hifumi_daisuki  
+##### 130#       发表于 2024-5-2 12:47
+
+怎么回事呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

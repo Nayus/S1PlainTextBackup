@@ -2740,3 +2740,27 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 国限不至于吧，我在等通贩呢，这种周边弄成国限不怕日本人炎上？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16525#       发表于 2024-5-2 12:51
+
+广播剧写手不是TV阵容的人，但独角兽有在关注（至少还没取关），看了一眼转发你邦内容挺多的，可能早就在给你邦写广播剧或者小剧场了
+
+<img src="https://img.saraba1st.com/forum/202405/02/124807o5fff1qmfebz35zq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240502124757.png</strong> (70.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 12:48 上传
+
+<img src="https://img.saraba1st.com/forum/202405/02/124855bwvrdhuwhpaohano.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240502124707.png</strong> (57.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 12:48 上传
+

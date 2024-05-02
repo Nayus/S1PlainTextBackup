@@ -9028,3 +9028,14 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 运气不是很好换到的是露娜勇士突入大气层的那段<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アーリィ  
+##### 740#       发表于 2024-5-2 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64788464&amp;ptid=2178694" target="_blank">oi99o 发表于 2024-5-2 10:30</a>
+听说有些戏院是只要提前买了第二周的票就可以去换特典的，不用等到当天。所以我看到有些早场直接被人买空真 ...</blockquote>
+就是这样啊，能不能学学日本入场再派（
+朗豪坊的cinema city
+

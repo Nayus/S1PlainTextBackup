@@ -473,3 +473,22 @@
 
 抽到小辛+振翅ego，在犹豫抽红舞鞋不
 
+
+*****
+
+####  实验性  
+##### 672#       发表于 2024-5-2 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64789494&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-5-2 12:30</a>
+
+挂个梯子吧，我这边连接也不稳定</blockquote>
+服务器崩了，等发狂气<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/02/124324wavttjazt8ss77yw.png" referrerpolicy="no-referrer">
+
+<strong>249.png</strong> (94.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-2 12:43 上传
+

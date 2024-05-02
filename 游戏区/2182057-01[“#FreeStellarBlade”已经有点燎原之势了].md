@@ -1336,3 +1336,17 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 剑星这个算好了，和谐了听说开通了退款渠道
 上面我提的那两个游戏，我真没听说过
 
+
+*****
+
+####  Ironman_mk5  
+##### 125#       发表于 2024-5-2 11:06
+
+<blockquote>名居守 发表于 2024-5-2 10:40
+有钱不赚是“傻子”
+
+之前有gal上ps，整个图里被索尼和谐的全白就露个头都拿来卖
+
+还有个游戏专门围 ...</blockquote>
+擦边那个不会是前作男主对不可攻略的女同主人公上下其手的神狱塔2吧
+

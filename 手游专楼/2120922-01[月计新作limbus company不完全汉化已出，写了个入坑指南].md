@@ -383,3 +383,13 @@
 
 得益于巴士的游戏生态，要是换个其他二游，估计玩家得跟策划爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 663#       发表于 2024-5-2 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">250抽出4换1
+
+畜生啊
+

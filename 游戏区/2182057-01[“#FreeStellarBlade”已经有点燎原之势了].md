@@ -1410,3 +1410,11 @@ Thanks to all our Stellar Blade fans for your passion &amp; feedback. Stay tuned
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  千千千千鸟  
+##### 131#       发表于 2024-5-2 14:57
+
+早该拷打拷打了，su出的手游妮姬的尺度也越来越不行了，给我骂死它
+

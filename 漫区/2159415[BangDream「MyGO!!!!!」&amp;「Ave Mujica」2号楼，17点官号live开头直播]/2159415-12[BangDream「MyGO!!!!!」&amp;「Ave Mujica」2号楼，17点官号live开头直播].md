@@ -2802,3 +2802,19 @@ https://x.com/ng_suzuki3/status/1784959350437781769<img src="https://p.sda1.dev/
 
 应该有通贩吧，这图上都是日文，如果是国内限定也太奇怪了
 
+
+*****
+
+####  cindy355  
+##### 16530#       发表于 2024-5-2 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我造了什么孽还能看到中之人厨说立希拖累鼓子这种言论
+
+
+*****
+
+####  PDQ4  
+##### 16531#       发表于 2024-5-2 15:02
+
+看到说首发，那应该是会有通贩，不急。
+

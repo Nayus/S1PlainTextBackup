@@ -6730,3 +6730,11 @@ fsr光荣23-24财报是41万
 还真有个朋友因为联动在steam上买了魔夜，好像最近也在打折吧</blockquote>
 因为联动紧急去补魔夜的在这呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 12619#       发表于 2024-5-2 15:06
+
+草十郎宝具真名是逆行银河 恶灵杀 吧，看名字就不简单
+

@@ -7384,3 +7384,22 @@ fsr光荣23-24财报是41万
 
 完全不想打限时本，可以咸到周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空彦秋  
+##### 12679#       发表于 2024-5-3 21:23
+
+到现在才云完了这次联动剧情的我是不是火星了。
+
+话说之前推完《魔夜》，我一直以为最终草十郎对待青子的态度，最终会变成《倚天》里张君宝对郭襄那样的态度，感情还在，但也就只是那样了。但这次草十郎还要为青子默默献身这种剧情，感觉一方面是拿《魔夜1》剧情改了改就端上来了，一方面草十郎的人设有点像《龙族》路明非那个样子了（当然，我还是相信蘑菇的笔力，最终不会搞成这样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+哪怕这段改成青子草十郎合作，草十郎舍命换机会，青子许诺解决麻烦把他救回来，这样会不会好一点?
+
+*****
+
+####  aono  
+##### 12680#       发表于 2024-5-3 21:24
+
+111的狂本我就喜欢带我的水BB上 锁卡暴击一张红卡就够了  <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

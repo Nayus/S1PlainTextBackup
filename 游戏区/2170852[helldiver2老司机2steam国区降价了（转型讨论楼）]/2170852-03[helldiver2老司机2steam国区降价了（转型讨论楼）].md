@@ -8854,3 +8854,20 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 —— 来自 ...</blockquote>
 银英是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qionglu735  
+##### 3806#       发表于 2024-5-3 21:21
+
+箭头：来体验真实的管理式民主吧！
+索尼：来了！
+
+
+*****
+
+####  Rugal_Bernstein  
+##### 3807#       发表于 2024-5-3 21:22
+
+致敬传奇管理机构超级气球🤣
+

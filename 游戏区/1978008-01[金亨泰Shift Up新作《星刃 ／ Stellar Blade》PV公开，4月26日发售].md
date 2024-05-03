@@ -6753,3 +6753,25 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 为什么老是有人拿剑星去踩最终幻想7啊？都不是一个类型的游戏，我不理解...
 
+
+*****
+
+####  纱布光环  
+##### 1383#       发表于 2024-5-3 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801939&amp;ptid=1978008" target="_blank">icylight 发表于 2024-05-03 21:14:50</a>
+为什么老是有人拿剑星去踩最终幻想7啊？都不是一个类型的游戏，我不理解... ...</blockquote>少见多怪了，喜欢捧一踩一的低情商可不要太多，也不是这游戏独有，习惯就好啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ku2154513  
+##### 1384#       发表于 2024-5-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801722&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-05-03 20:50:53</a>
+这游戏除了堆怪傻逼外最蠢的就是这个跳跃判定了，一堆罐子和宝箱的跳跳乐看着抓上了实际摔下去了，看着跳不 ...</blockquote>这游戏吸附有问题吧，老是抓不到梯子、平台，跳死我好几次
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

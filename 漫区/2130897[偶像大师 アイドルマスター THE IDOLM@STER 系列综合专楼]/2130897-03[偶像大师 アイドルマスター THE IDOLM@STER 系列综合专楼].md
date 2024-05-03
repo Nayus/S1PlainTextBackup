@@ -9348,3 +9348,11 @@ mv说了是谁做的吗？
 
 初期投入确实没话说，趁热打铁。虽然小红和小蓝的歌实在欣赏不来，这是在搞养成系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 3854#       发表于 2024-5-3 21:20
+
+不知道为什么总有人说美波是术力口风…人家是创作歌手出身啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

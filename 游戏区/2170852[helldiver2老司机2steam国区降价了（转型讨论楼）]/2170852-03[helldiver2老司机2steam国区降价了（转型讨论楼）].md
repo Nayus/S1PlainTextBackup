@@ -8954,3 +8954,33 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  dfbbymice  
+##### 3816#       发表于 2024-5-4 00:06
+
+我还想着这游戏今年至少能进年度游戏奖项提名名单的，不把这事解决估计大家只会把这游戏给彻底除名了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 3817#       发表于 2024-5-4 00:08
+
+解决方法那当然是有的，不想绑的直接给退款就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 3818#       发表于 2024-5-4 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干脆点，不绑退款，绑定送1000超级币
+
+*****
+
+####  FLZB  
+##### 3819#       发表于 2024-5-4 00:13
+
+不是，我买key的怎么退款啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8798,3 +8798,11 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">强权军政府世界观营造的一环
 
+
+*****
+
+####  Kojimaru  
+##### 3800#       发表于 2024-5-3 18:49
+
+瑞典老爷能在30号前把绑定索尼账号这功能做进游戏里吗？我看bu说要打开steam神秘海域来确认是否成功链接psn账号，给我笑喷了
+

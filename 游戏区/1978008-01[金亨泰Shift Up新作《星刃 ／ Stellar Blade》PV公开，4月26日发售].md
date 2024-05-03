@@ -6851,3 +6851,31 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 二周目衣服设计图还涨价了，愤怒
 
+
+*****
+
+####  zqqwe  
+##### 1392#       发表于 2024-5-3 23:44
+
+清完全支线后一直打到宇宙物流中心，目前总的来说boss战不过不失（作为首作甚至可以说优良），可以弹刀+回避交互也可以技能强制倒地/stun循环压制。但杂兵群战一坨狗屎。
+
+硬锁+没有屏外/同时攻击抑制完全就是传统魂系设计思路，只能用各种AOE清场化粪。关了攻击自动锁定后相对灵活点但非锁定状态出不了蓝/紫闪+只有正面防御判定不会自动转向=送死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+探图解谜部分由于场景美术+人物服装+音乐的加成还是挺舒畅的，除了钓鱼全图鉴稍微坐牢，其他环节基本在厌倦前就结束了。不过管道滑行的光污染也有点过分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+二周目拿完新技能还是先等boss rush模式更新吧，重新跑图拿换色服装吸引力也不大。
+
+*****
+
+####  lucky95  
+##### 1393#       发表于 2024-5-3 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802543&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-3 22:41</a>
+风暴中心，我卡死了，这两个箱子刷的错位了，搬不出来，后面的门就打不开，我看了下别人的 ...</blockquote>
+这我才刚过
+我记得也就是给一堆垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你坐火也开不了就算了
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

@@ -8930,3 +8930,13 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  风萧飒  
+##### 3814#       发表于 2024-5-3 23:46
+
+你也确实指望不了箭头有什么解决办法。不过哪怕真有办法箭头那个效率这个月能搞出来就不错了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

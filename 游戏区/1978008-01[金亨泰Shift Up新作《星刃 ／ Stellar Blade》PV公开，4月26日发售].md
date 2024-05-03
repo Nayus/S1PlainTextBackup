@@ -6823,3 +6823,31 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 风暴中心，我卡死了，这两个箱子刷的错位了，搬不出来，后面的门就打不开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我看了下别人的视频，这里两个箱子应该是可以直接拉走的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后这个比游戏和龙信一样就一个存档，所以我这个存档废了吧。。。
 
+
+*****
+
+####  Rainwedell  
+##### 1389#       发表于 2024-5-3 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802543&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-3 22:41</a>
+风暴中心，我卡死了，这两个箱子刷的错位了，搬不出来，后面的门就打不开，我看了下别人的 ...</blockquote>
+找个地方读档一般会刷回去
+
+
+*****
+
+####  Leona_Akari  
+##### 1390#       发表于 2024-5-3 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802662&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-3 22:57</a>
+
+找个地方读档一般会刷回去</blockquote>
+不行，在上升电梯里，不能去其他存档点
+
+*****
+
+####  过气页游  
+##### 1391#       发表于 2024-5-3 23:03
+
+二周目衣服设计图还涨价了，愤怒
+

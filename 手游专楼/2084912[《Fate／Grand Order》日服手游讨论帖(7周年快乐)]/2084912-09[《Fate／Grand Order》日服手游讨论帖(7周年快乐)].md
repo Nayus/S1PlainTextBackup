@@ -7166,3 +7166,11 @@ fsr光荣23-24财报是41万
 证明你还是不非 经历过几次攒石抽卡大暴死后 我基本都是瞎JB抽了 越攒越不出货 瞎JB抽出货率还高 ...</blockquote>
 真是个悲伤的故事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12657#       发表于 2024-5-3 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">215池子 怒扔仅剩的21石头 果然没出
+

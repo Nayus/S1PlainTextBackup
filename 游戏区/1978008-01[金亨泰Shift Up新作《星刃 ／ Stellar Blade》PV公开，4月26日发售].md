@@ -6481,3 +6481,11 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kuker53  
+##### 1357#       发表于 2024-5-3 08:49
+
+协议3年，那就是3年销量，首周你真敢想
+

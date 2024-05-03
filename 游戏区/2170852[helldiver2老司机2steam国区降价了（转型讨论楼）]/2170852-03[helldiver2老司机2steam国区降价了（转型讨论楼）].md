@@ -8323,3 +8323,14 @@ Fix for crash wh ...</blockquote>
 #6113-5306</blockquote>
 游戏好友码最好不要公开，如果是steam玩家还是加steam好友，有淘宝卖蓝币的之前说过如果箭头封号就无差别报复所有暴露游戏好友码的玩家
 
+
+*****
+
+####  大肥鸽子  
+##### 3750#       发表于 2024-5-3 11:29
+
+现在两人空降虫子n9的话理论最佳配装是啥，蛋盾+eat+500+喷火，主武电喷/火喷/等离子，两人都带晕雷吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+之前试过一人带爆弹一人火喷，被虫潮分开后二人幸终
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

@@ -9308,3 +9308,19 @@ mv说了是谁做的吗？
 
 翻了一下阵容 其实最期待原来在長谷川白紙这呀
 
+
+*****
+
+####  ViviR  
+##### 3850#       发表于 2024-5-3 11:26
+
+<img src="https://img.saraba1st.com/forum/202405/03/112504gug7u3v4x675o1fe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8515.jpeg</strong> (200.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 11:25 上传
+
+其实比起信号灯更期待其他几个的完整版。顺便还以为请乐团的是千奈呢（
+

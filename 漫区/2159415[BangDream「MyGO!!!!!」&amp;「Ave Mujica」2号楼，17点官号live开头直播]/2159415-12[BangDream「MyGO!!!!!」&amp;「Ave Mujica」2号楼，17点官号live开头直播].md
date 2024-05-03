@@ -3741,3 +3741,11 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 三个小时了还没中文字幕，考虑到官推那边还是东八区七点发的，这真的是赶工出来的mv吧…… ...</blockquote>
 现在是十三个小时了还没字幕
 
+
+*****
+
+####  御幸一也  
+##### 16633#       发表于 2024-5-3 14:37
+
+不至於吧，這點歌詞翻譯那麼久<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

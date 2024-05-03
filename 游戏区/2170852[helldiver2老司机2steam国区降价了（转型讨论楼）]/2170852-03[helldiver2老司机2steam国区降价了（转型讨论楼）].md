@@ -8551,3 +8551,11 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 只能说公告口吻看的恶心好吧恶心
 
+
+*****
+
+####  DawnGuardian  
+##### 3773#       发表于 2024-5-3 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看公告评论区鬼佬也炸了，等一个光速滑轨。顺便箭头真该把它目前这帮搞运营的傻卵开除了
+

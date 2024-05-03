@@ -1497,3 +1497,42 @@ pv完全就是斧乃木主角 undead是指她了？
 
 愚物语只剩月火了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 158#       发表于 2024-5-3 19:08
+
+老仓育首次出镜居然是抚物语的短发版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 159#       发表于 2024-5-3 19:08
+
+7月
+
+
+*****
+
+####  oi99o  
+##### 160#       发表于 2024-5-3 19:16
+
+夜游确定是ed，可以继续期待op角色歌了
+
+<img src="https://img.saraba1st.com/forum/202405/03/191604ki2z1km552f5f555.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:16 上传
+
+<img src="https://img.saraba1st.com/forum/202405/03/191610c6ly65lymlne553l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:16 上传
+

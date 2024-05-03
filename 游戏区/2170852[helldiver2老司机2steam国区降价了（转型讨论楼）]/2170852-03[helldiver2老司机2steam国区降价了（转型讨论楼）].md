@@ -8642,3 +8642,40 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 5月14日公布财报，这不狠狠把STEAM存量用户换成PSN活跃用户，怎么可能滑轨 ...</blockquote>
 6月才正式执行。。。PC现在最高日货也就10W多，能增加多少PSN用户。
 
+
+*****
+
+####  6x6z6w  
+##### 3783#       发表于 2024-5-3 15:25
+
+有psn账号的人建议都改下密码吧，年内搞不好要有个人或者团体借这次索尼的行为发动黑客攻击的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 3784#       发表于 2024-5-3 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799239&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-3 15:22</a>
+
+6月才正式执行。。。PC现在最高日货也就10W多，能增加多少PSN用户。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这就是财报经营分析里未来可期的部分了，你STEAM这么高的购买量，要玩肯定需要绑定PSN了，并不看你当前实际活跃玩家数
+
+*****
+
+####  ナルバレック  
+##### 3785#       发表于 2024-5-3 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799254&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-5-3 15:25</a>
+
+有psn账号的人建议都改下密码吧，年内搞不好要有个人或者团体借这次索尼的行为发动黑客攻击的 ...</blockquote>
+黑客攻击哪需要这种理由，上一次还不到一年呢，就是失眠组那次，已经连续三年被黑客组织攻击过了吧
+
+*****
+
+####  6x6z6w  
+##### 3786#       发表于 2024-5-3 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799269&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-5-3 15:28</a>
+黑客攻击哪需要这种理由，上一次还不到一年呢，就是失眠组那次，已经连续三年被黑客组织攻击过了吧 ...</blockquote>
+没准今年的会效仿一下冻肉潜兵来套超级气球人海战术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

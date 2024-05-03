@@ -8271,3 +8271,19 @@ Fix for crash wh ...</blockquote>
 
 这游戏玩家是不是有病啊，居然不集中打一颗星球而是分散打。
 
+
+*****
+
+####  Gmlazy  
+##### 3746#       发表于 2024-5-3 08:34
+
+ 本帖最后由 Gmlazy 于 2024-5-3 08:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796520&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-3 08:23</a>
+
+这游戏玩家是不是有病啊，居然不集中打一颗星球而是分散打。</blockquote>
+朋友好好玩，等你玩几个月你就知道兵力集中和分散没有区别。
+
+无形的大手会指引着你们前进。
+
+上次玩家打的太快，箭头一下刷十颗球让玩家们同时守住还是上次。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

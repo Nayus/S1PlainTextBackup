@@ -13108,3 +13108,16 @@ naegora用审查者打到3800了</blockquote>
 
 按最多的每个赛季3次祭典算得再过5个赛季才能追平二代的祭典数量<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ‮‮‮‮  
+##### 4277#       发表于 2024-5-3 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64795696&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-5-3 01:02</a>
+
+才发现3代祭典次数上次才刚刚追平1代祭典总次数
+
+按最多的每个赛季3次祭典算得再过5个赛季才能追平2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">然而下个赛季过完就不更新了，可能直接从s1开始复刻
+

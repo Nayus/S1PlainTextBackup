@@ -6513,3 +6513,15 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 论坛助手,iPhone</blockquote>
 出货量也不等于总销量，等于大概是对销量的一个预估。可能实际销量不如出货量，或者销量太好卖光了那还要出第二批。这个也不是官方数字，先看看好了。如果真有500万出货，要多少时间市场才消化完也不好说，但至少还挺有信心的
 
+
+*****
+
+####  jxzeroga0  
+##### 1360#       发表于 2024-5-3 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796035&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-5-3 02:37</a>
+有没有人能反白说下记忆失落的代价这个结局值得打吗（我理解真结局应该是这个的上位替代？）
+个人基本不打n ...</blockquote>
+差不多，就是狒狒7cc结局<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+二周目有上位插件上位脊椎新的生命贝塔上限和换色纳米服，和这个结局也是有点冲突的，不追求白金就云一下。
+

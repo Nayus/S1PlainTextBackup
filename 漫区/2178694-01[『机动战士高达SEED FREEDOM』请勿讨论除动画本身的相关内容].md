@@ -9176,3 +9176,13 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 论坛助手,iPhone ...</blockquote>
 上映前的声优访谈说是种命最终战整什么人性战胜基因导致当年很多观众不满，福田不服气就来个更易懂的爱战胜基因
 
+
+*****
+
+####  poonhk  
+##### 754#       发表于 2024-5-4 05:45
+
+4DX初期摇得几乎影响观看，反面习惯了就没感觉了
+
+印象最深就是基拉：还不是因为你们太弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

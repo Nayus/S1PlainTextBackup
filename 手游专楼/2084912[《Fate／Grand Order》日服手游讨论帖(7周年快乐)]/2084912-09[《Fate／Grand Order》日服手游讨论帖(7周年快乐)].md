@@ -7214,3 +7214,31 @@ fsr光荣23-24财报是41万
 
 还是研究一下怎么稳定3T吧，首先排除青子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 12662#       发表于 2024-5-3 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801001&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-5-3 19:17</a>
+
+今天的怪异本叫鬼哭啾啾，正好街霸6五月底出豪鬼，最新版瞬狱杀开始写书法了：“一瞬千击，拔山盖世，鬼哭 ...</blockquote>
+这是中平漫画逆输入的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12663#       发表于 2024-5-3 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抄了个草十郎 兽尼 C呆加任意50充的阵容
+
+*****
+
+####  alucardcz  
+##### 12664#       发表于 2024-5-3 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801108&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 19:33</a>
+
+抄了个草十郎 兽尼 C呆加任意50充的阵容</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 
+

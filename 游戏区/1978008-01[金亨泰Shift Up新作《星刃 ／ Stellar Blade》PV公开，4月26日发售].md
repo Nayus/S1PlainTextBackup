@@ -6720,3 +6720,36 @@ boss倒是一波就被带走，什么反差<img src="https://static.saraba1st.co
 
 师姐呢？油腻的师姐真的救不回来了吗！？
 
+
+*****
+
+####  lucky95  
+##### 1380#       发表于 2024-5-3 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801790&amp;ptid=1978008" target="_blank">woshenc 发表于 2024-5-3 20:58</a>
+师姐呢？油腻的师姐真的救不回来了吗！？</blockquote>
+shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1381#       发表于 2024-5-3 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801722&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-3 20:50</a>
+这游戏除了堆怪傻逼外最蠢的就是这个跳跃判定了，一堆罐子和宝箱的跳跳乐看着抓上了实际摔下去了， ...</blockquote>
+还有他妈按O有时候会跳冲左冲右，麻了
+
+傻逼箱子起码做点吸附啊
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  icylight  
+##### 1382#       发表于 2024-5-3 21:14
+
+为什么老是有人拿剑星去踩最终幻想7啊？都不是一个类型的游戏，我不理解...
+

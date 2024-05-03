@@ -9259,3 +9259,11 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 孝哥来了
 
+
+*****
+
+####  FLZB  
+##### 3847#       发表于 2024-5-4 04:45
+
+这傻逼索尼怕不是完全没想到其他平台不会像他家这样这么傻逼的分区并且人家的服务覆盖范围要远比他广得多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

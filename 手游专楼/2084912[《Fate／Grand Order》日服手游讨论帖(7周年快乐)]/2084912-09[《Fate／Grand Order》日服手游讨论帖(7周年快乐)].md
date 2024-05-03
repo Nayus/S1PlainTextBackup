@@ -7100,3 +7100,28 @@ fsr光荣23-24财报是41万
 兽尼禄1宝我去年用的还挺顺手的，倒是3宝羽蛇神上场更少</blockquote>
 克死传统7阶就是优点，唯一一个缺点是宝具不是AOE<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 12651#       发表于 2024-5-3 15:43
+
+你们提醒我跑去加了个免责声明
+
+贴吧的恐怖记忆又回上来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 12652#       发表于 2024-5-3 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799375&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-3 15:43</a>
+
+你们提醒我跑去加了个免责声明
+
+贴吧的恐怖记忆又回上来了</blockquote>
+没啥的，你有多宝当然是以这个标准去评论，但一些人如我真抽也只抽一个就够，那么比性能当然是有多宝的更有说服力。
+
+只是对大多都是1宝的玩家来说分别感觉不太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

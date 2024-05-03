@@ -8679,3 +8679,19 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 黑客攻击哪需要这种理由，上一次还不到一年呢，就是失眠组那次，已经连续三年被黑客组织攻击过了吧 ...</blockquote>
 没准今年的会效仿一下冻肉潜兵来套超级气球人海战术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 3787#       发表于 2024-5-3 15:50
+
+像这种要求我这辈子没见过，公告还锁主题，这大概就是管理式皿煮吧，估计要被鬼佬冲一波大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  范坚强  
+##### 3788#       发表于 2024-5-3 15:55
+
+主机版玩家情绪稳定 反正也没法退款
+

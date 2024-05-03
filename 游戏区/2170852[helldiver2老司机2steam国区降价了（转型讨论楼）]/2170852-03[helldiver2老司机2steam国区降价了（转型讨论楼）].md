@@ -8263,3 +8263,11 @@ Fix for crash wh ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Mr.Hopp  
+##### 3745#       发表于 2024-5-3 08:23
+
+这游戏玩家是不是有病啊，居然不集中打一颗星球而是分散打。
+

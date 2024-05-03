@@ -9834,3 +9834,14 @@ hw这首应该放个加了掛け声版的给JK拍小视频，再请几个管人�
 
 —— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3913#       发表于 2024-5-4 01:09
+
+<img src="https://p.sda1.dev/17/10237ff398d34110d9ced6996eae01ec/CMP_20240504010934172.jpg" referrerpolicy="no-referrer">
+我也丢一张吧
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

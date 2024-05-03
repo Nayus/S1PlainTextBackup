@@ -6963,3 +6963,13 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 —— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Rainwedell  
+##### 1401#       发表于 2024-5-4 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804030&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-4 00:50</a>
+在刚才那段时间里我连游戏都重新下过了，没用</blockquote>
+变态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，建议差评
+

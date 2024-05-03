@@ -6712,3 +6712,11 @@ boss倒是一波就被带走，什么反差<img src="https://static.saraba1st.co
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏除了堆怪傻逼外最蠢的就是这个跳跃判定了，一堆罐子和宝箱的跳跳乐看着抓上了实际摔下去了，看着跳不过去二段跳+圈又过去了。。。
 
+
+*****
+
+####  woshenc  
+##### 1379#       发表于 2024-5-3 20:58
+
+师姐呢？油腻的师姐真的救不回来了吗！？
+

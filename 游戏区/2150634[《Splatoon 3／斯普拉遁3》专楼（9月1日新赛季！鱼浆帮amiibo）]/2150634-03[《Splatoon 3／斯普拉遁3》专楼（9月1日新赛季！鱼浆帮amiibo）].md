@@ -13181,3 +13181,16 @@ X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打�
 
 2024-5-3 20:46 上传
 
+
+*****
+
+####  shirolin  
+##### 4284#       发表于 2024-5-3 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801533&amp;ptid=2150634" target="_blank">来看你 发表于 2024-5-3 20:29</a>
+三代的祭典真的一点品牌和游戏联动没有？？？？？？</blockquote>
+游戏联动：宝可梦、塞尔达
+品牌联动：31冰淇淋、卡乐比
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

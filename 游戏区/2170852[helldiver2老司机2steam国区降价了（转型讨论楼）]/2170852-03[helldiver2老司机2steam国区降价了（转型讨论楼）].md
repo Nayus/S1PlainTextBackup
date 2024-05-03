@@ -8695,3 +8695,29 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 主机版玩家情绪稳定 反正也没法退款
 
+
+*****
+
+####  想象的亚兹拉  
+##### 3789#       发表于 2024-5-3 16:02
+
+没有跨平台进度绑定psn是何意？
+
+*****
+
+####  陈词与芍药  
+##### 3790#       发表于 2024-5-3 16:05
+
+看了下，最麻烦的是国区玩家要梯子注册一个非国区psn才能绑定
+理由也很尬，先不说索尼的数据保护跟个笑话似的，byd的连微软和育碧都有的跨平台进度你没有？
+连注册绑定畅通无阻的鬼佬在推特都冲了几百条，这下管理式皿煮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kalavinka  
+##### 3791#         楼主| 发表于 2024-5-3 16:05
+
+太搞了我曹里的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

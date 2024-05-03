@@ -8453,3 +8453,11 @@ Sony Interactive Entertainment
 幽默，帐号跨平台互通功能都没有吧。
 等下新债券的碰炸燃烧雷是不是也是dot没伤害的bug都没修好就卖给你了
 
+
+*****
+
+####  smdzh2  
+##### 3762#       发表于 2024-5-3 12:21
+
+psn账号早忘记了，老子自觉滚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7284,3 +7284,75 @@ fsr光荣23-24财报是41万
 不是你没抽么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能不抽 3石探路
 
+
+*****
+
+####  白金口袋  
+##### 12669#       发表于 2024-5-3 19:46
+
+这帮人到底有什么毛病？前几天一直能冲浪，今天突然就给你上个111<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12670#       发表于 2024-5-3 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801162&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-3 19:41</a>
+
+怎么可能不抽 3石探路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">证明你还是不想要 可以试试草十郎 开被动20的藤乃再借个高宝的公主 我藤乃只有1宝用不了
+
+*****
+
+####  alucardcz  
+##### 12671#       发表于 2024-5-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801204&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 19:46</a>
+
+证明你还是不想要 可以试试草十郎 开被动20的藤乃再借个高宝的公主 我藤乃只有1宝用不了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 红暴队秒了 不是乱杀的吗  萌新只是羡慕有兽
+
+*****
+
+####  Jamaisvu  
+##### 12672#       发表于 2024-5-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801088&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-3 19:30</a>
+
+这是中平漫画逆输入的吧</blockquote>
+对，来自一部叫ryu final的漫画。我街霸只看过港漫那堆口胡和美国udon的官方同人，日本版反而接触少了...
+
+话说我一圈外朋友看了新瞬狱杀特写后，吐槽说“像不懂中文的老外穿了件乱写汉字的文化衫”<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12673#       发表于 2024-5-3 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801211&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-3 19:47</a>
+
+啥 红暴队秒了 不是乱杀的吗  萌新只是羡慕有兽</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懒得选牌 还是宝具流比较舒服
+
+
+*****
+
+####  cenhr  
+##### 12674#       发表于 2024-5-3 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801215&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-5-3 19:47</a>
+
+对，来自一部叫ryu final的漫画。我街霸只看过港漫那堆口胡和美国udon的官方同人，日本版反而接触少了... ...</blockquote>
+我还在等隆摆脱真升龙改风之拳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 12675#       发表于 2024-5-3 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64800582&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 18:25</a>
+氪佬的号怎么被干了</blockquote>
+我？怼人啊，下次还敢.jpg
+毕竟论坛就一交流的地儿，id没那么重要，无所谓的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

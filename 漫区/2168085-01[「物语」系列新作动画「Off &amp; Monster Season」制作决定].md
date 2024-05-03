@@ -1599,3 +1599,22 @@ pv完全就是斧乃木主角 undead是指她了？
 
 直接就做抚物语真好，这本是最喜欢的
 
+
+*****
+
+####  AlfredXC  
+##### 168#       发表于 2024-5-3 19:53
+
+无法想象这首歌要怎么切入ed<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acerola  
+##### 169#       发表于 2024-5-3 19:55
+
+ 本帖最后由 Acerola 于 2024-5-3 19:57 编辑 
+
+老苍好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+育惨败这一节正片砍了，放到BD特典里也不是不行，改编一下塞副音轨也行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

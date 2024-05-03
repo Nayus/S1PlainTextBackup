@@ -8721,3 +8721,27 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 太搞了我曹里的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  曼陀罗肥  
+##### 3792#       发表于 2024-5-3 16:36
+
+吃大份去吧
+
+*****
+
+####  狂风DKC  
+##### 3793#       发表于 2024-5-3 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">孝子呢，来教教我怎么洗这个
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  九十九忍  
+##### 3794#       发表于 2024-5-3 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">阿索出个公告宣布绑了送999超级货币可能都这么爆，但那可是阿索欸
+

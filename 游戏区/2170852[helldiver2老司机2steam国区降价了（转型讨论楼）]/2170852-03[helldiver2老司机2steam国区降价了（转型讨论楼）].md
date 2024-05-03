@@ -9074,3 +9074,13 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 然后nga s1 b站 贴吧全都在黑我索尼哥哥，都是小黑子偏见，绝对不是我在逆行
 
+
+*****
+
+####  FLZB  
+##### 3829#       发表于 2024-5-4 01:27
+
+Last week Arrowhead roasted the Tarkov devs for treating their players like shit....
+
+看到条评论，都差点忘了这事，感觉也挺幽默的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

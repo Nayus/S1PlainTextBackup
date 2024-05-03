@@ -7364,3 +7364,15 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可还行 血气方刚啊
 
+
+*****
+
+####  beer  
+##### 12677#       发表于 2024-5-3 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801037&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-5-3 19:22</a>
+竟然是111的狂本，该不会是为青子准备的吧...
+
+感觉谁都能打呀，我带了有珠+双泳装斯卡蒂，暴击、宝具、暴击 ...</blockquote>
+草十郎一只，借的草十郎一只，都带50NP礼装，100充的拐自己解决，衣服带战续。开局放草十郎技能2，技能1，自灭，二面重复，不过记得放战续，三面充能100NP
+

@@ -9109,3 +9109,52 @@ Last week Arrowhead roasted the Tarkov devs for treating their players like shit
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  山风短  
+##### 3832#       发表于 2024-5-4 02:17
+
+红迪我下午看还风平浪静的，这会全在狂暴鸿儒箭畜经理，原来是又在dc爆典了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 3833#       发表于 2024-5-4 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804570&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-4 02:17</a>
+
+红迪我下午看还风平浪静的，这会全在狂暴鸿儒箭畜经理，原来是又在dc爆典了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆什么了，红迪看来杀的人头滚滚了
+
+
+*****
+
+####  YY骑士  
+##### 3834#       发表于 2024-5-4 02:25
+
+1w7差评了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山风短  
+##### 3835#       发表于 2024-5-4 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804580&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-4 02:22</a>
+爆什么了，红迪看来杀的人头滚滚了</blockquote>
+贴吧有人发了，你现在能刷到的英文meme基本都是红迪这会搬过来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sanco  
+##### 3836#       发表于 2024-5-4 02:27
+
+<img src="https://img.saraba1st.com/forum/202405/04/022717gt900bu87yzk0xqz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4568.jpeg</strong> (236.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-4 02:27 上传
+

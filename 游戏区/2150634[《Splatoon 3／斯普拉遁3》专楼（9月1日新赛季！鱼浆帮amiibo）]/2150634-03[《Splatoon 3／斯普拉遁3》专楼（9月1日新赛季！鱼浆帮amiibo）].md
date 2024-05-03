@@ -13121,3 +13121,11 @@ naegora用审查者打到3800了</blockquote>
 按最多的每个赛季3次祭典算得再过5个赛季才能追平2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">然而下个赛季过完就不更新了，可能直接从s1开始复刻
 
+
+*****
+
+####  Kiriz  
+##### 4278#       发表于 2024-5-3 15:01
+
+X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打了一周了，总共掉了50分。
+

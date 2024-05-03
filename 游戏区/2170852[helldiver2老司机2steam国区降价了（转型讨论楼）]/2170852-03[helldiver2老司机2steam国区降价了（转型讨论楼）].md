@@ -8570,3 +8570,29 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 看公告评论区鬼佬也炸了，等一个光速滑轨。顺便箭头真该把它目前这帮搞运营的傻卵开除了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然运营一直傻卵，但这次爹味爆炸的公告署名是“Sony Interactive Entertainment”
 
+
+*****
+
+####  Launce  
+##### 3775#       发表于 2024-5-3 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ONP，设置那二维码绑定没了，多了一串数字账户什么鬼
+
+*****
+
+####  DawnGuardian  
+##### 3776#       发表于 2024-5-3 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799050&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-3 14:49</a>
+
+虽然运营一直傻卵，但这次爹味爆炸的公告署名是“Sony Interactive Entertainment” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就看这块锅准备怎么分了，看公告的意思不像是索尼心血来潮突然要搞的，你箭头一开始不说清楚那这口锅绝对要背好
+
+
+*****
+
+####  Mr.Hopp  
+##### 3777#       发表于 2024-5-3 15:04
+
+索尼会滑轨吗？剑星和谐闹这么大索尼都当没看到。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

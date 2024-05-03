@@ -1452,3 +1452,48 @@ Ayase竟然有时间写新歌<img src="https://static.saraba1st.com/image/smiley
 
 其实对企划来说是好事
 
+
+*****
+
+####  oi99o  
+##### 153#       发表于 2024-5-3 19:01
+
+7月起abema独占配信
+
+<img src="https://img.saraba1st.com/forum/202405/03/190137r1tsphsuhzqzuhpp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 19:01 上传
+
+
+*****
+
+####  Tachikoma88  
+##### 154#       发表于 2024-5-3 19:02
+
+7月好啊
+
+*****
+
+####  集合酱  
+##### 155#       发表于 2024-5-3 19:03
+
+感觉挺好听的 赢！
+
+*****
+
+####  集合酱  
+##### 156#       发表于 2024-5-3 19:05
+
+pv完全就是斧乃木主角 undead是指她了？
+
+*****
+
+####  Sliurus  
+##### 157#       发表于 2024-5-3 19:06
+
+愚物语只剩月火了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

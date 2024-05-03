@@ -8484,3 +8484,28 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 直接点申请退款，退款理由写，你的国家不支持第三方账号绑定，无法再进行游戏
 
+
+*****
+
+####  烈焰舞阳  
+##### 3766#       发表于 2024-5-3 12:58
+
+索尼跟箭头真的是一对天造地合的垃圾，恶心人都要组合技
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  九十九忍  
+##### 3767#       发表于 2024-5-3 13:01
+
+落款直接就是**的SIE
+
+*****
+
+####  Launce  
+##### 3768#       发表于 2024-5-3 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预购的冤种公民直接申请退款算了，成功了不亏，后面矢脑拟人了买个普通版回来
+

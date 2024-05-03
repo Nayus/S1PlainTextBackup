@@ -8879,3 +8879,19 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来箭头内部真有真理部啊
 
+
+*****
+
+####  MkChang  
+##### 3809#       发表于 2024-5-3 23:07
+
+今天一天steam多8000条差评，看得出来大伙都不是很喜欢索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 3810#       发表于 2024-5-3 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一天一万差评，嫌好评太多了
+

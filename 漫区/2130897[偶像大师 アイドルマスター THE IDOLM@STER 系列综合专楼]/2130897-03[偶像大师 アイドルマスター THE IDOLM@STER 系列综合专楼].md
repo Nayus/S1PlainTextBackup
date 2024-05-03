@@ -9824,3 +9824,13 @@ hw这首应该放个加了掛け声版的给JK拍小视频，再请几个管人�
 
 白纸是实验音乐感觉不乐观 我看了白纸的歌给花谱写的 下面的评论都是云里雾里的 另外MoeShop和奶油糖都知道了 几个商业音乐人应该稳字当头 合理评价
 
+
+*****
+
+####  Ask_10A  
+##### 3912#       发表于 2024-5-3 23:57
+
+丢两张only图<img src="https://p.sda1.dev/17/6b93e27db4c18e18bb260030012368a9/CMP_20240503235727899.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8940,3 +8940,17 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Awanano  
+##### 3815#       发表于 2024-5-3 23:58
+
+真心恭喜索尼在2024年能收获这条和他如此般配的好狗，真的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+重新看了一遍公告，你索能把这种本来占理事情说的这么惹人厌太有本事了。嘴巴子臭的像是刚从化粪池捞出来
+脱日入欧后表面功夫红豆尼私密马赛是彻底丢掉，直接快进到摆臭脸环节。
+
+客观点说原罪还是矢头技术力低下，索尼真想抱紧这个ip可以考虑老蒋人要换种的先进理念
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

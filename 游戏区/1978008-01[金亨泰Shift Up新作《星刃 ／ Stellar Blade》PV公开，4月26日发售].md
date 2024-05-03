@@ -6541,3 +6541,24 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 
 二周目把新增的衣服脊椎组件啥的收集一遍，那个true end进度条是不是很容易就会变满？
 
+
+*****
+
+####  lucky95  
+##### 1363#       发表于 2024-5-3 11:06
+
+一百万大字报都还没出
+
+还五百万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  两个路人  
+##### 1364#       发表于 2024-5-3 11:07
+
+<blockquote>roxassix 发表于 2024-5-2 08:21
+数字版肯定退不了了，实体一直没敢开封，官方你赶紧更新把衣服弄回来我实体还能退 ...</blockquote>
+换我就把盘子退了，加入蓝鸟声讨大军。等PC学习版用修改器白女票算了（
+

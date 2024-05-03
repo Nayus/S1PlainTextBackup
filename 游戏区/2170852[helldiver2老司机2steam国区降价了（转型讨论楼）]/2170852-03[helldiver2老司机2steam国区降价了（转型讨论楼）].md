@@ -9234,3 +9234,28 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 3844#       发表于 2024-5-4 04:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804593&amp;ptid=2170852" target="_blank">Sanco 发表于 2024-5-4 02:27</a></blockquote>
+又没说错，人家说不愿意注册psn账号就去steam打差评，在dc喷没用啊。
+
+要放图也是应该放那句我以为你退款退游了才对
+
+*****
+
+####  Aeons  
+##### 3845#       发表于 2024-5-4 04:07
+
+差评看了下又多了几千，红迪瞧了瞧有孝的明天再看了。
+
+*****
+
+####  Aeons  
+##### 3846#       发表于 2024-5-4 04:08
+
+孝哥来了
+

@@ -9733,3 +9733,42 @@ giga，美波，行。hw，烂，不行。
 讲真角色都挺可爱的，但目前没有一首歌是喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 而且也不熟悉这些网红作曲家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  l3r0nY@  
+##### 3901#       发表于 2024-5-3 22:45
+
+说实话这三首的作编风格真的就是刻板印象中的刻板印象，giga还行，美波真船胜博的编曲过于华丽听的感觉混音都有点问题了吧，今天走在路上外放听了一下都怀疑是不是有好几首歌在一起放，hw这个确实也是标准的不能再标准的口水歌
+
+不知道这个导向到底是个什么意思，流媒体风向是这么跟的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿色子龙  
+##### 3902#       发表于 2024-5-3 22:45
+
+honeywork还是产出很多Live常用曲的，讲究的就是一个再菜也能唱
+
+*****
+
+####  Kreis  
+##### 3903#       发表于 2024-5-3 22:48
+
+美波曲弦乐混得有点问题，giga和hw都有点流水线，后面就期待奶油糖了，作首流水线都能赢的局，我反而担心他想搞新突破，曲子不够毒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  倉本千奈  
+##### 3904#       发表于 2024-5-3 22:49
+
+等贵公子发起进攻，一切都会好起来的！
+
+
+*****
+
+####  Kreis  
+##### 3905#       发表于 2024-5-3 22:52
+
+hw这首应该放个加了掛け声版的给JK拍小视频，再请几个管人跟跟风，流媒流量不就搞起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

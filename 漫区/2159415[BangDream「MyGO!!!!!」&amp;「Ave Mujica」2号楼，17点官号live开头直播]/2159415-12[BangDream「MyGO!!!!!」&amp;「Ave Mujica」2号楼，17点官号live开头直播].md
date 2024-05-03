@@ -3903,3 +3903,17 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 2024-5-3 22:37 上传
 
+
+*****
+
+####  cqc1021  
+##### 16648#       发表于 2024-5-3 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64800022&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-5-3 17:13</a>
+5月3号JAPAN JAM上GO的歌单
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+真不唱春日影啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">JAPAN JAM会有视频吗？好想看音乐节的现场，气氛跟平时的live肯定不一样。
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

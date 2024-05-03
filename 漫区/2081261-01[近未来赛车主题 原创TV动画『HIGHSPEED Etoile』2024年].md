@@ -28,3 +28,21 @@ ai的cv是ac6艾尔的cv吗？动画里没标，感觉那电波声线很像还�
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  按时间灵活  
+##### 286#       发表于 2024-5-4 02:11
+
+这集比前几集好太多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 原来这集ai才是真帮女主开挂 最后还留了个悬念
+
+
+*****
+
+####  天剑流星  
+##### 287#       发表于 2024-5-4 02:16
+
+轮堂凛比赛开挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这集的重车确实挺乐的
+

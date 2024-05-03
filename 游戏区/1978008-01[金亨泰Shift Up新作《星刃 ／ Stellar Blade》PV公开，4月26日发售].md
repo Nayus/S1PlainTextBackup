@@ -6669,3 +6669,46 @@ boss倒是一波就被带走，什么反差<img src="https://static.saraba1st.co
 
 这梯子死活跳不上去。。。
 
+
+*****
+
+####  lucky95  
+##### 1375#       发表于 2024-5-3 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801605&amp;ptid=1978008" target="_blank">MuramasaSP 发表于 2024-5-3 20:37</a>
+这梯子死活跳不上去。。。</blockquote>
+过主线拿了二段跳再回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1376#       发表于 2024-5-3 20:46
+
+过山车过后的图怎么怪都这么弱
+
+我是被沙漠lj太多了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+尼玛只要少于两个怪真是乱杀，三个就完了
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  MuramasaSP  
+##### 1377#       发表于 2024-5-3 20:48
+
+<blockquote>lucky95 发表于 2024-5-3 20:45
+过主线拿了二段跳再回来
+
+— from OnePlus CPH2493, Android 14 of S1 Next Goose v2.5.4 ...</blockquote>
+原来还要二段跳，从视觉效果上感觉能抓到的。
+
+*****
+
+####  Leona_Akari  
+##### 1378#       发表于 2024-5-3 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏除了堆怪傻逼外最蠢的就是这个跳跃判定了，一堆罐子和宝箱的跳跳乐看着抓上了实际摔下去了，看着跳不过去二段跳+圈又过去了。。。
+

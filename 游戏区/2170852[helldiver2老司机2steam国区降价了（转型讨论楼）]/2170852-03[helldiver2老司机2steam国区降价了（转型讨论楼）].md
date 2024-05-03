@@ -9008,3 +9008,40 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事有孝子吗？上红迪看了看鬼佬盾也不好使了
 
+
+*****
+
+####  白昼梦  
+##### 3823#       发表于 2024-5-4 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候开放退款啊，反正也不指望索尼能改
+
+
+*****
+
+####  qianoooo  
+##### 3824#       发表于 2024-5-4 00:52
+
+家庭组共享的基本都没法玩了吧 要强制绑定的话
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  catcoffee  
+##### 3825#       发表于 2024-5-4 00:54
+
+<img src="https://p.sda1.dev/17/4c16128a0f214066ee741743ab277a44/54C3B4662E80E81FE8097C2CF184A0B6.jpg" referrerpolicy="no-referrer">
+累了，不玩了，snwcnm
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  屑屑代沟尼亚  
+##### 3826#       发表于 2024-5-4 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样吧 以后不绑的每个月交一千超级货币服务器使用费
+
+让你们白嫖几个月了 不想充钱还可以肝出来  我们超级地球够良心了吧
+

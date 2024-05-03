@@ -6940,3 +6940,26 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 收集品倒无所谓了，这个箱子不搬掉的话，后面的人摸不到，摸不到的话百合就不能开门，等于我这个 ...</blockquote>
 关游戏再进试试，有点抽象
 
+
+*****
+
+####  Leona_Akari  
+##### 1399#       发表于 2024-5-4 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804016&amp;ptid=1978008" target="_blank">Rainwedell 发表于 2024-5-4 00:48</a>
+
+关游戏再进试试，有点抽象</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在刚才那段时间里我连游戏都重新下过了，没用
+
+
+*****
+
+####  lucky95  
+##### 1400#       发表于 2024-5-4 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64803982&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-4 00:44</a>
+收集品倒无所谓了，这个箱子不搬掉的话，后面的人摸不到，摸不到的话百合就不能开门，等于我这个 ...</blockquote>
+旁边应该能跳上去。。吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

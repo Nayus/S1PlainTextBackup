@@ -7242,3 +7242,45 @@ fsr光荣23-24财报是41万
 抄了个草十郎 兽尼 C呆加任意50充的阵容</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 
 
+
+*****
+
+####  qixinno2  
+##### 12665#       发表于 2024-5-3 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801120&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-3 19:35</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么老欧 
+
+*****
+
+####  alucardcz  
+##### 12666#       发表于 2024-5-3 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801137&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 19:37</a>
+
+你怎么老欧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新没有兽尼 那只能欧羡慕了
+
+
+*****
+
+####  qixinno2  
+##### 12667#       发表于 2024-5-3 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801146&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-3 19:39</a>
+
+萌新没有兽尼 那只能欧羡慕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是你没抽么 
+
+*****
+
+####  alucardcz  
+##### 12668#       发表于 2024-5-3 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801153&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 19:40</a>
+
+不是你没抽么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能不抽 3石探路
+

@@ -8842,3 +8842,15 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  smdzh2  
+##### 3805#       发表于 2024-5-3 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801096&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-5-3 20:31</a>
+突发奇想，箭头还能再整个烂活，绑定psn的可以跟没绑定的pvp，银河战争又拉开了新的一页
+
+—— 来自 ...</blockquote>
+银英是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

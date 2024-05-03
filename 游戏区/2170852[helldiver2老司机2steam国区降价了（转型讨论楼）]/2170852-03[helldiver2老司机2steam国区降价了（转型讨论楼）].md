@@ -8509,3 +8509,11 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预购的冤种公民直接申请退款算了，成功了不亏，后面矢脑拟人了买个普通版回来
 
+
+*****
+
+####  Aeons  
+##### 3769#       发表于 2024-5-3 13:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5月底强制吧，也差不多了不玩就不玩了
+

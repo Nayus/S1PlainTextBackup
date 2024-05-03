@@ -7070,3 +7070,33 @@ fsr光荣23-24财报是41万
 那你也太坚强了，各种意义上
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 12648#       发表于 2024-5-3 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799252&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-3 15:24</a>
+
+那你也太坚强了，各种意义上</blockquote>
+毕竟有C呆，两个版本的斯卡蒂，杀狐狸在，有啥是干不过的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+如果有，那么问题不在我这边，而是在ch<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sosgame67  
+##### 12649#       发表于 2024-5-3 15:33
+
+兽尼禄1宝我去年用的还挺顺手的，倒是3宝羽蛇神上场更少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 12650#       发表于 2024-5-3 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799309&amp;ptid=2084912" target="_blank">sosgame67 发表于 2024-5-3 15:33</a>
+
+兽尼禄1宝我去年用的还挺顺手的，倒是3宝羽蛇神上场更少</blockquote>
+克死传统7阶就是优点，唯一一个缺点是宝具不是AOE<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

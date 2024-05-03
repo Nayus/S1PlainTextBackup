@@ -6471,3 +6471,13 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 泥潭销量贴最大预测才首月 400w吧，这直接首周 500w了</blockquote>
 漫威蜘蛛侠2 10天官方数字才500万<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wiig  
+##### 1356#       发表于 2024-5-3 08:41
+
+也没说首周啊 整个生命周期吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

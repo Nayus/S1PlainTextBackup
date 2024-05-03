@@ -8287,3 +8287,18 @@ Fix for crash wh ...</blockquote>
 
 上次玩家打的太快，箭头一下刷十颗球让玩家们同时守住还是上次。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 3747#       发表于 2024-5-3 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796556&amp;ptid=2170852" target="_blank">Gmlazy 发表于 2024-5-3 08:34</a>
+
+朋友好好玩，等你玩几个月你就知道兵力集中和分散没有区别。
+
+无形的大手会指引着你们前进。
+
+上次玩家打的 ...</blockquote>
+无形大手也就调调反攻值罢了，好几次任务失败或者进展太快发出来的报告连汉化都没有，说明大手也就那样。
+

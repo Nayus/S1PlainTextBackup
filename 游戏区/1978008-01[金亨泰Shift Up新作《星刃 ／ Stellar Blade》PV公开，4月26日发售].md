@@ -7040,3 +7040,33 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 宣传资料，第17、18
 
+
+*****
+
+####  lucky95  
+##### 1407#       发表于 2024-5-4 04:17
+
+40小时通关了，一周目罐子钓鱼马桶啥的都做完了
+
+真百合结局真有百合！
+还有白毛萝莉！
+星刃2启动吧<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+全程主要还是沙漠扣分，堆怪严重到基本坐牢+美术单调
+最终章各种跳跳乐+必死镭射也是蛮恶心的，不过很短
+技能树/脊椎/插件什么的没法一周目全开也是很恶心，捡到几十个完全不能用，探索成长动力大减
+基本后半节奏很迷
+
+战斗刀是弹不了一点，手感到通关了很迷
+但有难易度选项和各种技能轰炸，到头来还是随便玩
+
+剧情算不过不失，猜到一半但不俗套不谜语人
+碍于体量和篇幅基本没啥展开，世界观铺得还行但还能讲得更细
+要是多10小时主线+多一张图就很好了
+
+总体还是玩得很舒服的，缺点也都是小毛病，大体是很成熟的作品了
+主要是带着这么高清的师姐逛大世界就是爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+各路缺点扣2分，手感扣半分，肥肥首款的无限暖暖加1分，8.5是没问题的，日厂都有这素质就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

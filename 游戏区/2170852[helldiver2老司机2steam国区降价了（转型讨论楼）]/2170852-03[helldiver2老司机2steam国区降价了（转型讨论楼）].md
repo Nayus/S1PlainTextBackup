@@ -8469,3 +8469,18 @@ psn账号早忘记了，老子自觉滚<img src="https://static.saraba1st.com/im
 
 PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 3764#       发表于 2024-5-3 12:36
+
+给PC玩家小小的索尼震撼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhongjie  
+##### 3765#       发表于 2024-5-3 12:36
+
+直接点申请退款，退款理由写，你的国家不支持第三方账号绑定，无法再进行游戏
+

@@ -7403,3 +7403,16 @@ fsr光荣23-24财报是41万
 
 111的狂本我就喜欢带我的水BB上 锁卡暴击一张红卡就够了  <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 12681#       发表于 2024-5-3 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802001&amp;ptid=2084912" target="_blank">空彦秋 发表于 2024-05-03 21:23:57</a>
+到现在才云完了这次联动剧情的我是不是火星了。
+
+话说之前推完《魔夜》，我一直以为最终草十郎对待青子的态 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">太俗了，不行，而且放着为救她而牺牲的阿草不管自己逃跑，首先青子绝不可能会这么做，属于纯ooc行为
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

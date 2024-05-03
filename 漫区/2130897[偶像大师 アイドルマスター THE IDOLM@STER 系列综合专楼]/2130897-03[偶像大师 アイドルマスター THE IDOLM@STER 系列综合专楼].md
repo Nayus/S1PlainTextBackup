@@ -9598,3 +9598,87 @@ hw萌奈的偶像歌我还是喜欢的，琴音这首不太行。想想萌奈是
 
 经典 hw 罐头
 
+
+*****
+
+####  ViviR  
+##### 3885#       发表于 2024-5-3 22:25
+
+不过确实，感觉除非里信号灯有歌力强强的存在，或者以后加人有相对会唱的，不然学马可以当历代企划中歌力最拉的那颗星了。我现在只求曲子别拉了…
+
+*****
+
+####  野菜一日分  
+##### 3886#       发表于 2024-5-3 22:27
+
+按初期阵容来说sc开始时也就安提卡一两位好一点，说实话跟学马拉不开差距的
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Achlys  
+##### 3887#       发表于 2024-5-3 22:27
+
+对这种企划来说肯定是作词作曲要比歌力更加重要吧，适合角色，声优能唱好的歌。
+但到现在为止的前三首楼友觉得作曲行吗？
+
+*****
+
+####  joshua1990  
+##### 3888#       发表于 2024-5-3 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802431&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-3 22:27</a>
+
+对这种企划来说肯定是作词作曲要比歌力更加重要吧，适合角色，声优能唱好的歌。
+
+但到现在为止的前三首楼友 ...</blockquote>
+歌不好评价，可能换会唱的来完全另一种体验，但是肯定不适合这三个新人
+
+*****
+
+####  Porsche  
+##### 3889#       发表于 2024-5-3 22:29
+
+等我们qa吧3dmv放出来 一切都会好起来的
+
+
+*****
+
+####  cckuku  
+##### 3890#       发表于 2024-5-3 22:30
+
+听感是蓝&gt;红&gt;黄，预感live翻车可能性也是蓝&gt;红&gt;黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3891#       发表于 2024-5-3 22:30
+
+相信3dmv吧 相信是不需要理由的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野菜一日分  
+##### 3892#       发表于 2024-5-3 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这个solo 1的最大目的是引流，能不能吸引到圈外人来看你大帅才是关键，适不适合声优不打紧
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  koodooliz  
+##### 3893#       发表于 2024-5-3 22:32
+
+是不是还没放过贵公子那首全体啊，这首应该是传统imas味的吧（
+
+*****
+
+####  超法拉  
+##### 3894#       发表于 2024-5-3 22:34
+
+讲道理闪开始那几年我是真听不进去鸽子唱歌……
+
+但是放课后前四首一首比一首超神。
+

@@ -7190,3 +7190,27 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">氪佬的号怎么被干了
 
+
+*****
+
+####  Jamaisvu  
+##### 12660#       发表于 2024-5-3 19:17
+
+ 本帖最后由 Jamaisvu 于 2024-5-3 19:19 编辑 
+
+今天的怪异本叫鬼哭啾啾，正好街霸6五月底出豪鬼，最新版瞬狱杀开始写书法了：“一瞬千击，拔山盖世，鬼哭啾啾，故豪鬼成”，这词算是日语中形容恐怖氛围的固定用语，不过几天内连续看见也怪巧的。
+
+
+*****
+
+####  Jamaisvu  
+##### 12661#       发表于 2024-5-3 19:22
+
+ 本帖最后由 Jamaisvu 于 2024-5-3 19:25 编辑 
+
+竟然是111的狂本，该不会是为青子准备的吧...
+
+感觉谁都能打呀，我带了有珠+双泳装斯卡蒂，暴击、宝具、暴击，随便过了...
+
+还是研究一下怎么稳定3T吧，首先排除青子<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

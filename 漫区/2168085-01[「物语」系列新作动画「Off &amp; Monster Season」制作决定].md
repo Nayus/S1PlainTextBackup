@@ -1536,3 +1536,41 @@ pv完全就是斧乃木主角 undead是指她了？
 
 2024-5-3 19:16 上传
 
+
+*****
+
+####  Sliurus  
+##### 161#       发表于 2024-5-3 19:18
+
+这次新歌还可以，没那么刻板印象
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2024-5-3 19:19
+
+『〈物語〉シリーズ オフ＆モンスターシーズン』
+
+愚物語＆撫物語 PV：[https://youtu.be/LfbSFeWG9NY](https://youtu.be/LfbSFeWG9NY)
+
+7月6日より毎週土曜 ABEMAにて独占見放題配信開始
+
+
+*****
+
+####  一心而用  
+##### 163#       发表于 2024-5-3 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64800927&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-5-3 19:06</a>
+愚物语只剩月火了？</blockquote>
+好像是的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这……
+
+*****
+
+####  歪镜  
+##### 164#       发表于 2024-5-3 19:27
+
+<blockquote>Tachikoma88 发表于 2024-5-3 19:08
+老仓育首次出镜居然是抚物语的短发版</blockquote>
+挺好的，展示老仓温柔的一面
+

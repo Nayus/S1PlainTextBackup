@@ -8806,3 +8806,29 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 瑞典老爷能在30号前把绑定索尼账号这功能做进游戏里吗？我看bu说要打开steam神秘海域来确认是否成功链接psn账号，给我笑喷了
 
+
+*****
+
+####  gammatau  
+##### 3801#       发表于 2024-5-3 19:18
+
+这下不得不非法广播了
+
+*****
+
+####  smdzh2  
+##### 3802#       发表于 2024-5-3 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64800672&amp;ptid=2170852" target="_blank">天王寺綯 发表于 2024-5-3 19:36</a>
+强权军政府世界观营造的一环</blockquote>
+不绑账号的统统发配自由营，两人一组手持地狱火扑进虫巢，用鲜血洗刷耻辱！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 3803#       发表于 2024-5-3 19:19
+
+绑定之前在设置里有的，现在突然没了。可能回炉重造了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

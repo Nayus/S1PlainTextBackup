@@ -9158,3 +9158,29 @@ Last week Arrowhead roasted the Tarkov devs for treating their players like shit
 由手机上传
 2024-5-4 02:27 上传
 
+
+*****
+
+####  白昼梦  
+##### 3837#       发表于 2024-5-4 02:29
+
+前面忘了，为什么国人喜欢打差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 3838#       发表于 2024-5-4 02:30
+
+CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气球的角色扮演玩上瘾了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 3839#       发表于 2024-5-4 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804587&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-4 02:25</a>
+
+贴吧有人发了，你现在能刷到的英文meme基本都是红迪这会搬过来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到了，但是就不能统一一下甩锅索索吗，怎么又爹又立的
+

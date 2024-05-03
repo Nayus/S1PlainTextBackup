@@ -8909,3 +8909,24 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 2024-5-3 23:18 上传
 
+
+*****
+
+####  北条早苗  
+##### 3812#       发表于 2024-5-3 23:41
+
+官方在dc里甩锅给索尼了
+
+但是一问解决手段是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大肥鸽子  
+##### 3813#       发表于 2024-5-3 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801164&amp;ptid=2170852" target="_blank">smdzh2 发表于 2024-5-3 19:41</a>
+银英是吧</blockquote>
+反正超级气球也要让皿煮之风吹遍整个银河嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

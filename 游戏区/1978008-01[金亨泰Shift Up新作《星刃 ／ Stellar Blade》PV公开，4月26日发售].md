@@ -7084,3 +7084,13 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 —— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1409#       发表于 2024-5-4 05:21
+
+woc 渡鸦皮真是又大又圆啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

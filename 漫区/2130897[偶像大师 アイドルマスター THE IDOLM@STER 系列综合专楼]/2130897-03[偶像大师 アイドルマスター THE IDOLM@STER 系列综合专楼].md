@@ -9682,3 +9682,54 @@ hw萌奈的偶像歌我还是喜欢的，琴音这首不太行。想想萌奈是
 
 但是放课后前四首一首比一首超神。
 
+
+*****
+
+####  北条早苗  
+##### 3895#       发表于 2024-5-3 22:35
+
+夹子加上蜂蜜工作量产口水歌有点难绷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 3896#       发表于 2024-5-3 22:35
+
+总不能九个人全军覆没吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  840266848  
+##### 3897#       发表于 2024-5-3 22:35
+
+ 本帖最后由 840266848 于 2024-5-3 22:36 编辑 
+
+giga，美波，行。hw，烂，不行。
+
+*****
+
+####  你谁  
+##### 3898#       发表于 2024-5-3 22:38
+
+昨天看了一下 后面几个商业音乐人应该合理 好像还有奶油糖 p主不好说 还有一个MoeShop 感觉还是在白纸这里 他能写什么曲子
+
+
+*****
+
+####  PacificWind  
+##### 3899#       发表于 2024-5-3 22:41
+
+有没有楼友熟长谷川白纸的，我浅搜了一下这位做前卫爵士的，不听爵士听不出来多厉害。
+
+这次给企划供曲拉了25个管弦乐团成员来配器，感觉比恋风彩录的还大手笔，可以下判断只要长谷川白纸发起进攻一切都会好起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 3900#       发表于 2024-5-3 22:43
+
+ 本帖最后由 花开安菲路 于 2024-5-3 22:44 编辑 
+
+讲真角色都挺可爱的，但目前没有一首歌是喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且也不熟悉这些网红作曲家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

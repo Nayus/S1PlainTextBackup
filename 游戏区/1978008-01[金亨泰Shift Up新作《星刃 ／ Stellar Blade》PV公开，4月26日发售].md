@@ -6796,3 +6796,30 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  灼热的小市民  
+##### 1387#       发表于 2024-5-3 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801199&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-5-3 19:46</a>
+面对单体敌人和boss你随便打铁，面对超过2个敌人请用aoe，因为只有正面可以完美格挡。平衡值很长，有两个 ...</blockquote>
+原来如此，多谢解答。我刚开坑，看来还是要到后期才能爽起来。
+
+
+*****
+
+####  Leona_Akari  
+##### 1388#       发表于 2024-5-3 22:41
+
+<img src="https://img.saraba1st.com/forum/202405/03/223930bhih1uddcd7777ou.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_7503.jpg</strong> (753.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 22:39 上传
+
+风暴中心，我卡死了，这两个箱子刷的错位了，搬不出来，后面的门就打不开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我看了下别人的视频，这里两个箱子应该是可以直接拉走的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后这个比游戏和龙信一样就一个存档，所以我这个存档废了吧。。。
+

@@ -13194,3 +13194,23 @@ X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打�
 
 —— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  KBAC  
+##### 4285#       发表于 2024-5-3 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801533&amp;ptid=2150634" target="_blank">来看你 发表于 2024-5-3 20:29</a>
+
+三代的祭典真的一点品牌和游戏联动没有？？？？？？</blockquote>
+有，只不过除了宝可梦和塞尔达这种自家的，其他品牌联动都没直接体现在游戏里。
+
+*****
+
+####  罗克萨斯  
+##### 4286#       发表于 2024-5-3 22:39
+
+塞尔达T恤是目前最好看的祭典T恤，如果能直接作为常规装备就好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

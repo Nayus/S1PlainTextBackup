@@ -3874,3 +3874,32 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 按个人印象歌词翻译风格和以前这个号的发的也差不多呀，没什么问题吧（
 
+
+*****
+
+####  cindy355  
+##### 16646#       发表于 2024-5-3 22:37
+
+<img src="https://img.saraba1st.com/forum/202405/03/223702c1xbfp9xffsbyp17.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240503223509.png</strong> (7.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 22:37 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16647#       发表于 2024-5-3 22:37
+
+<img src="https://img.saraba1st.com/forum/202405/03/223753hv171pgr67szdiry.png" referrerpolicy="no-referrer">
+
+<strong>00{3P3U[C$P]7_(WFLF$N)B.png</strong> (108.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 22:37 上传
+

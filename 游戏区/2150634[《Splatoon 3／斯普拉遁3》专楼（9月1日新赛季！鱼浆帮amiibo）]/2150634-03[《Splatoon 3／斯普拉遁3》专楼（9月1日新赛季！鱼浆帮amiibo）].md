@@ -13214,3 +13214,11 @@ X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4287#       发表于 2024-5-3 23:18
+
+刷子费ZR，要疯狂连点的武器比如刷子比如香槟比如l3都玩的难受<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

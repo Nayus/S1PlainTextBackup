@@ -2173,3 +2173,13 @@ yabu还染了一撮红发
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20146#       发表于 2024-5-3 23:19
+
+不是，怎么还把耳返的音频流推到直播里的，这啥业余操作...难得小百合这次的青空唱的很棒<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

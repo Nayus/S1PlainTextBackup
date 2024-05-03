@@ -9788,3 +9788,31 @@ hw这首应该放个加了掛け声版的给JK拍小视频，再请几个管人�
 
 就没人相信渡边翔吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 3908#       发表于 2024-5-3 23:25
+
+早听hw不爽了
+
+—— 来自 HONOR KJR-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  馬斯特壺  
+##### 3909#       发表于 2024-5-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802690&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-5-3 23:02</a>
+就没人相信渡边翔吗</blockquote>
+看了下，居然是小圆op和魔纪oped的词曲作者，之前莉波的live版本有点一般，说不定全曲还行
+
+*****
+
+####  Porsche  
+##### 3910#       发表于 2024-5-3 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802516&amp;ptid=2130897" target="_blank">你谁 发表于 2024-5-3 22:38</a>
+昨天看了一下 后面几个商业音乐人应该合理 好像还有奶油糖 p主不好说 还有一个MoeShop 感觉还是在白纸这里  ...</blockquote>
+找这么多模版复制粘贴作曲的只能说品味烂透了
+

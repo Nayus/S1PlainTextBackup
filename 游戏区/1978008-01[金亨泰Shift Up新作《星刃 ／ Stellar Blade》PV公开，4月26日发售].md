@@ -6775,3 +6775,24 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  oahcihs  
+##### 1385#       发表于 2024-5-3 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801605&amp;ptid=1978008" target="_blank">MuramasaSP 发表于 2024-5-3 20:37</a>
+这梯子死活跳不上去。。。</blockquote>
+没有二段跳 正下边跳起来按三角 也可以
+没有二段跳的时候 很多都可以这样
+
+
+*****
+
+####  lucky95  
+##### 1386#       发表于 2024-5-3 21:54
+
+玩了快40小时要通关，不上防反脊椎还是弹不了刀，真是抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

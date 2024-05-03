@@ -6571,3 +6571,13 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 就算整个生命周期，500w也有点夸张了。
 光荣：你一个手游厂商处女作就500w，我不要面子的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ky7913  
+##### 1366#       发表于 2024-5-3 11:44
+
+<blockquote>jacket 发表于 2024-5-3 10:59
+二周目把新增的衣服脊椎组件啥的收集一遍，那个true end进度条是不是很容易就会变满？ ...</blockquote>
+尽量不要摸海报和尸体，有些支线也最好别做
+

@@ -8395,3 +8395,52 @@ Sony Interactive Entertainment
 
 神经病吧…不想做了就赶人是把
 
+
+*****
+
+####  passerjustby  
+##### 3755#       发表于 2024-5-3 11:45
+
+逆天，steam国区号是不是绑定起来特别麻烦？
+
+*****
+
+####  DawnGuardian  
+##### 3756#       发表于 2024-5-3 11:46
+
+我只能说幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  大肥鸽子  
+##### 3757#       发表于 2024-5-3 11:46
+
+这，就是管理式皿煮
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  我不是夏承凛  
+##### 3758#       发表于 2024-5-3 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64797745&amp;ptid=2170852" target="_blank">passerjustby 发表于 2024-5-3 11:45</a>
+
+逆天，steam国区号是不是绑定起来特别麻烦？</blockquote>
+是，要开全局梯子，注册非国区账号才行。
+
+*****
+
+####  Fake_news  
+##### 3759#       发表于 2024-5-3 11:49
+
+妈的逆天，才买了没几天啊，这下玩不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  normalli  
+##### 3760#       发表于 2024-5-3 11:51
+
+这倒没啥吧，几个大厂的游戏都得磅
+

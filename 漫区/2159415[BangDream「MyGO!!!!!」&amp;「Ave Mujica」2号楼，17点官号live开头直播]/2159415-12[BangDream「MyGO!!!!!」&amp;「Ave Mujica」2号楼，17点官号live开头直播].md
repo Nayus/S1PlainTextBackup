@@ -3749,3 +3749,15 @@ go粉確實應該要越來越有意見才對，你看這已經把頭像搶走一
 
 不至於吧，這點歌詞翻譯那麼久<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16634#       发表于 2024-5-3 14:55
+
+答案是就没想翻译，4月初的歌了。
+
+MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本来可以不翻译，干干净净全是狗视频多好，反了鸡了不得晾一晾让你知道自己什么身份。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只能说洗脚的还是老老实实洗脚，头像头图换了做个面子罢了，还真以为自己是个东西了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

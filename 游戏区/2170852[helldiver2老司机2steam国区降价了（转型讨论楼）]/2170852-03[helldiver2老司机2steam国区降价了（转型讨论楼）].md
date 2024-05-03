@@ -8559,3 +8559,14 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">看公告评论区鬼佬也炸了，等一个光速滑轨。顺便箭头真该把它目前这帮搞运营的傻卵开除了
 
+
+*****
+
+####  Launce  
+##### 3774#       发表于 2024-5-3 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799024&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-3 14:44</a>
+
+看公告评论区鬼佬也炸了，等一个光速滑轨。顺便箭头真该把它目前这帮搞运营的傻卵开除了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然运营一直傻卵，但这次爹味爆炸的公告署名是“Sony Interactive Entertainment”
+

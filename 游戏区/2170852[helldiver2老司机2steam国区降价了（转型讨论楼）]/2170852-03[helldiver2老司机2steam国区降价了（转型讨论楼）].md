@@ -8461,3 +8461,11 @@ Sony Interactive Entertainment
 
 psn账号早忘记了，老子自觉滚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 3763#       发表于 2024-5-3 12:32
+
+PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

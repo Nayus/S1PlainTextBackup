@@ -6965,3 +6965,11 @@ fsr光荣23-24财报是41万
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  qixinno2  
+##### 12641#       发表于 2024-5-3 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年纯强度应该是烟雾境 宇蛇神 水C呆 托勒密 差一点的也有提妈 兽尼 水妖兰之类的 还有强力插件的若安 水小黑吧
+

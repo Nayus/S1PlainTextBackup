@@ -9267,3 +9267,14 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 这傻逼索尼怕不是完全没想到其他平台不会像他家这样这么傻逼的分区并且人家的服务覆盖范围要远比他广得多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 3848#       发表于 2024-5-4 05:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804840&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-4 04:45</a>
+
+这傻逼索尼怕不是完全没想到其他平台不会像他家这样这么傻逼的分区并且人家的服务覆盖范围要远比他广得多[f ...</blockquote>
+索尼应该是知道的，但为了季度财报才不会管那么多<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

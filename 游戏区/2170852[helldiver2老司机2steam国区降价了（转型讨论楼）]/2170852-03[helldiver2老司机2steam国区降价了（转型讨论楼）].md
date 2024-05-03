@@ -8745,3 +8745,25 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">阿索出个公告宣布绑了送999超级货币可能都这么爆，但那可是阿索欸
 
+
+*****
+
+####  Awanano  
+##### 3795#       发表于 2024-5-3 16:57
+
+虽然我港区的psn没太大所谓，但是如果能借这个机会把这个游戏退掉还是很开心的
+幺蛾子太多了，psn的可靠性也是让人担忧
+如果真的是为了做数据的话（ps这代有这么糟么），这操作有种瞌睡乔的非法移民阴兵选票之美
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  xinfengj  
+##### 3796#       发表于 2024-5-3 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799514&amp;ptid=2170852" target="_blank">陈词与芍药 发表于 2024-5-3 16:05</a>
+刚问了在steam玩的朋友，国区steam强制绑定国区psn？
+理由也很尬，先不说索尼的数据保护跟个笑话似 ...</blockquote>
+开服就绑了港区psn了，国区psn根本绑不上
+

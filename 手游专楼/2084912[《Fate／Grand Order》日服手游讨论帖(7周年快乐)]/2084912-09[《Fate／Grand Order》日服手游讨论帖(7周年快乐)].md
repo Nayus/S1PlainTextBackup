@@ -7125,3 +7125,22 @@ fsr光荣23-24财报是41万
 
 只是对大多都是1宝的玩家来说分别感觉不太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12653#       发表于 2024-5-3 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">基本都是一宝的非洲穷B只能说有啥用啥
+
+
+*****
+
+####  cenhr  
+##### 12654#       发表于 2024-5-3 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799582&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 16:16</a>
+
+基本都是一宝的非洲穷B只能说有啥用啥</blockquote>
+非洲穷B也有选择权，至少我不会特地去为了性能抽篮子和有珠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -9084,3 +9084,28 @@ Last week Arrowhead roasted the Tarkov devs for treating their players like shit
 
 看到条评论，都差点忘了这事，感觉也挺幽默的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3830#       发表于 2024-5-4 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804285&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-4 02:27</a>
+Last week Arrowhead roasted the Tarkov devs for treating their players like shit....
+
+看到条评论，都 ...</blockquote>
+乐，回旋镖这就打过来了，有一种飞矛绕着坦克虫转一圈后精准击中发射员的美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 3831#       发表于 2024-5-4 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804154&amp;ptid=2170852" target="_blank">Shu-Stella 发表于 2024-5-4 01:07</a>
+0点赞也算是绝景了。
+
+能不能再晚一个月，这样我就可以无缝EDF了，该去拯救值得拯救的地球了。</blockquote>
+这里点赞显示其实有问题，要进社区中心才能看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

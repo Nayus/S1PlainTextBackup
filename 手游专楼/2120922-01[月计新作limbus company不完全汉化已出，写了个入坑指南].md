@@ -516,3 +516,13 @@
 
 上修后理智拉跨的问题也没彻底解决，之前1、2技能也要减理智太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">（抽了200发出了5个黎明辛，一个ego都没出）
 
+
+*****
+
+####  Yuzutea  
+##### 676#       发表于 2024-5-3 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎明辛这一次加强之后就能镜牢火队断崖层次输出了啊
+
+感觉下周再加强之后能日常本游龙了
+

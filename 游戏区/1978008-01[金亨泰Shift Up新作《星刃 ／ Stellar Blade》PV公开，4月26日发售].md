@@ -6609,3 +6609,15 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 
 今晚是不是就有日本mc每周销量榜了？估计能卖多少份？
 
+
+*****
+
+####  clyde-wang  
+##### 1370#       发表于 2024-5-3 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64798978&amp;ptid=1978008" target="_blank">icylight 发表于 2024-5-3 14:37</a>
+今晚是不是就有日本mc每周销量榜了？估计能卖多少份？</blockquote>
+日本假期，今晚惯例没有
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

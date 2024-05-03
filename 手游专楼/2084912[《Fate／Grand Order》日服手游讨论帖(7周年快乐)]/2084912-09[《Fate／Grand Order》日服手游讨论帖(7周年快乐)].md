@@ -7026,3 +7026,31 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">反正感觉多数比今年目前出来的角色强多了 今年真的是菜的没法看
 
+
+*****
+
+####  exiaexa  
+##### 12645#       发表于 2024-5-3 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799142&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-3 15:06</a>
+
+尼禄和烟雾镜怎么看都是阿库水平吧</blockquote>
+你用1宝试试绝对不会有这个评价
+
+我兽尼因为嫌弃3破的棉裤只抽了2宝，然后我就决定让她在仓库里住到关服
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 12646#       发表于 2024-5-3 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799173&amp;ptid=2084912" target="_blank">exiaexa 发表于 2024-5-3 15:11</a>
+
+你用1宝试试绝对不会有这个评价
+
+我兽尼因为嫌弃3破的棉裤只抽了2宝，然后我就决定让她在仓库里住到关服
+
+[ ...</blockquote>
+我所有角色都不会抽多过一宝，所以都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

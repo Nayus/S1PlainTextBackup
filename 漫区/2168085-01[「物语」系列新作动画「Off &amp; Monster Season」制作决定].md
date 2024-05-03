@@ -1618,3 +1618,22 @@ pv完全就是斧乃木主角 undead是指她了？
 
 育惨败这一节正片砍了，放到BD特典里也不是不行，改编一下塞副音轨也行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 170#       发表于 2024-5-3 20:01
+
+育惨败呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  F1andre  
+##### 171#       发表于 2024-5-3 20:02
+
+没老仓我看你妈啊？
+
+—— 来自 Xiaomi 21091116AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

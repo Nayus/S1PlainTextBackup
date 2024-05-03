@@ -6887,3 +6887,20 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 埃多斯9号这里有一个衣服宝箱是空的？打开什么都没给
 
+
+*****
+
+####  lucky95  
+##### 1395#       发表于 2024-5-4 00:17
+
+不看攻略还有9个罐子没拿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+钓鱼女仆装应该是色及好看度拉满的了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+这牢没白坐
+
+剧情给的衣服一件比一件拉啊
+
+另外发售一周了，怎么还没有拍照模式，愤怒<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

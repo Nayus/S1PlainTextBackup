@@ -8984,3 +8984,12 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 不是，我买key的怎么退款啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3820#       发表于 2024-5-4 00:17
+
+不绑还想拿退款全身而退？披风蟑螂想造反啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/0b18cea9cb5225a5fc31feedfd063636/CMP_20240504001704909.jpg" referrerpolicy="no-referrer">
+

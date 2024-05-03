@@ -8517,3 +8517,11 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5月底强制吧，也差不多了不玩就不玩了
 
+
+*****
+
+####  daikejay  
+##### 3770#       发表于 2024-5-3 13:57
+
+真是**配狗，不愧是索尼这个贱种，恶心人这方面从不让人失望
+

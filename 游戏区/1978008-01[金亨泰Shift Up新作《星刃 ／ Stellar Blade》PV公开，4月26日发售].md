@@ -7070,3 +7070,17 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 —— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1408#       发表于 2024-5-4 04:55
+
+ 本帖最后由 lucky95 于 2024-5-4 05:00 编辑 
+
+最后3个boss真是比前面的各路boss强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+血条就厚一倍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus CPH2493, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

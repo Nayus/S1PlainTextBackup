@@ -7449,3 +7449,14 @@ fsr光荣23-24财报是41万
 
 今次90++不用換人，用陳宮先轟兩炮，最後草食狼再自爆就解決，算是簡單
 
+
+*****
+
+####  cenhr  
+##### 12685#       发表于 2024-5-4 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802793&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-5-3 23:17</a>
+
+首先青子跳跃各个时间线处理威胁人类的危机是不愿意牵扯任何人的，这次活动她前面一直反复死就是因为这点， ...</blockquote>
+不是因为青子不知道老的草十郎为了救她而灰飞烟灭吗？
+

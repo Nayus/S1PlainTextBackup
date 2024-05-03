@@ -8993,3 +8993,18 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 不绑还想拿退款全身而退？披风蟑螂想造反啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/0b18cea9cb5225a5fc31feedfd063636/CMP_20240504001704909.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tienx  
+##### 3821#       发表于 2024-5-4 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，原来sony就是光能者
+
+*****
+
+####  Aeons  
+##### 3822#       发表于 2024-5-4 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事有孝子吗？上红迪看了看鬼佬盾也不好使了
+

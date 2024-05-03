@@ -1693,3 +1693,11 @@ pv完全就是斧乃木主角 undead是指她了？
 
 没搞懂，这是要改几章放几集啊
 
+
+*****
+
+####  751984871  
+##### 179#       发表于 2024-5-4 00:30
+
+等BD再看。说不定又是在BD里才补上角色OP。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

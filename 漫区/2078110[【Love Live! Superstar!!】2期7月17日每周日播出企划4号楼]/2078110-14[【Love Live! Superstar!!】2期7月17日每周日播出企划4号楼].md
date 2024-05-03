@@ -2143,3 +2143,13 @@ yabu还染了一撮红发
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  starring  
+##### 20143#       发表于 2024-5-3 17:39
+
+今天的设备事故频发简直灾难，连耳返的音频都放出来了
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

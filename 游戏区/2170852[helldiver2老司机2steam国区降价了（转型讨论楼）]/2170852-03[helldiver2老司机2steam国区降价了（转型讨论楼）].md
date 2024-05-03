@@ -8767,3 +8767,14 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 理由也很尬，先不说索尼的数据保护跟个笑话似 ...</blockquote>
 开服就绑了港区psn了，国区psn根本绑不上
 
+
+*****
+
+####  xinfengj  
+##### 3797#       发表于 2024-5-3 17:45
+
+<img src="https://p.sda1.dev/17/7abca5c0f734f96e6d0cee4f9c36cc15/CMP_20240503170727337.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e3385e2a78575ef0caa6e5173425528a/CMP_20240503170806163.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/2311b4fcaa5a33cececf66a5c60a1ff7/CMP_20240503174436036.jpg" referrerpolicy="no-referrer">
+箭头经济系统有个严重的问题，可以直接通过游戏好友码漏洞刷蓝币，淘宝一个店周销量200+。这次绑完不知道会封多少
+

@@ -1701,3 +1701,11 @@ pv完全就是斧乃木主角 undead是指她了？
 
 等BD再看。说不定又是在BD里才补上角色OP。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hokagokenjatime  
+##### 180#       发表于 2024-5-4 00:39
+
+不是电子乐不适配，而是yoasobi念经歌的潮流程度和物语动画格格不入了
+

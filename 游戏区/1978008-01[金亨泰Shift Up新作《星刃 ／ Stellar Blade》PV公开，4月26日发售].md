@@ -6904,3 +6904,39 @@ shit up早滑轨让退款了，怎样救<img src="https://static.saraba1st.com/i
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1396#       发表于 2024-5-4 00:35
+
+傻逼白左又来送热度了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+“伊芙不露出的时候是最性感的”
+
+<img src="https://p.sda1.dev/17/ff26c3d70b57273f8e8069c69c472fa8/CMP_20240504003459067.jpg" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  Leona_Akari  
+##### 1397#       发表于 2024-5-4 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64803202&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-3 23:47</a>
+
+这我才刚过
+
+我记得也就是给一堆垃圾</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">收集品倒无所谓了，这个箱子不搬掉的话，后面的人摸不到，摸不到的话百合就不能开门，等于我这个档现在就变成死档了，特么玩了几十年游戏了第一次碰到因为存档不能通关的
+
+*****
+
+####  Rainwedell  
+##### 1398#       发表于 2024-5-4 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64803982&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-4 00:44</a>
+收集品倒无所谓了，这个箱子不搬掉的话，后面的人摸不到，摸不到的话百合就不能开门，等于我这个 ...</blockquote>
+关游戏再进试试，有点抽象
+

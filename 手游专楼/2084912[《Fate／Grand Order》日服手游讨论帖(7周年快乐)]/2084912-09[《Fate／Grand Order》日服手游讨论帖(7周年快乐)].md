@@ -7054,3 +7054,19 @@ fsr光荣23-24财报是41万
 [ ...</blockquote>
 我所有角色都不会抽多过一宝，所以都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  exiaexa  
+##### 12647#       发表于 2024-5-3 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799186&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-3 15:13</a>
+
+我所有角色都不会抽多过一宝，所以都一样
+
+多过一宝的大多数都是因为抽其他的时候出的
+
+ ...</blockquote>
+那你也太坚强了，各种意义上
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

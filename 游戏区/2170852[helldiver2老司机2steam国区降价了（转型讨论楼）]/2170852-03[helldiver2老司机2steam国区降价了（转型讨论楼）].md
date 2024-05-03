@@ -8604,3 +8604,41 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">然后还不给退款是吧，可以的。
 
+
+*****
+
+####  Launce  
+##### 3779#       发表于 2024-5-3 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799120&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-3 15:04</a>
+
+索尼会滑轨吗？剑星和谐闹这么大索尼都当没看到。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5月14日公布财报，这不狠狠把STEAM存量用户换成PSN活跃用户，怎么可能滑轨
+
+*****
+
+####  山风短  
+##### 3780#       发表于 2024-5-3 15:18
+
+一直到昨天为止贴吧里都还有孝子据理力争呢，只能说索尼的大手太伟大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 3781#       发表于 2024-5-3 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799211&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-3 15:18</a>
+
+一直到昨天为止贴吧里都还有孝子据理力争呢，只能说索尼的大手太伟大了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">贴吧GK笑话不就是，XBOX吧吧主是GK，SWITCH吧吧主也是GK
+
+*****
+
+####  Mr.Hopp  
+##### 3782#       发表于 2024-5-3 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799209&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-3 15:17</a>
+
+5月14日公布财报，这不狠狠把STEAM存量用户换成PSN活跃用户，怎么可能滑轨 ...</blockquote>
+6月才正式执行。。。PC现在最高日货也就10W多，能增加多少PSN用户。
+

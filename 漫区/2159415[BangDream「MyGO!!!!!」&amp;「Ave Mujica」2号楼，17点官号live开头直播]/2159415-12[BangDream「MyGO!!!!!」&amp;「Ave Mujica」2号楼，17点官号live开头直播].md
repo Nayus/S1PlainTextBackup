@@ -3842,3 +3842,19 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 2024-5-3 21:29 上传
 
+
+*****
+
+####  Aloereed  
+##### 16643#       发表于 2024-5-3 22:23
+
+<img src="https://img.saraba1st.com/forum/202405/03/222140v93y9qn1wb4wb6bq.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240503222059.png</strong> (249.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 22:21 上传
+
+其实同歌同奏羊姐的那声nee也是翻译的“呐啊”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

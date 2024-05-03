@@ -9499,3 +9499,102 @@ mv说了是谁做的吗？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可爱就完事了 要什么歌力 表信号灯过完 我对学马士这个企划的歌力有点绝望
 
+
+*****
+
+####  花开安菲路  
+##### 3872#       发表于 2024-5-3 22:14
+
+有点夹啊，太二次元了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  840266848  
+##### 3873#       发表于 2024-5-3 22:16
+
+honeyworks现在的作曲套路，很符合大家的印象哈哈哈
+
+*****
+
+####  枫紫  
+##### 3874#       发表于 2024-5-3 22:17
+
+为什么这么简单的歌有些地方断气一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 3875#       发表于 2024-5-3 22:17
+
+怎么还有对口水歌有歌力要求的，夹一夹卖萌卖可爱就完事了（
+
+*****
+
+####  rgauss  
+##### 3876#       发表于 2024-5-3 22:17
+
+因为夹着唱的 中间有一段感觉气要上不来了
+
+*****
+
+####  1024676511  
+##### 3877#       发表于 2024-5-3 22:18
+
+可爱就完事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 3878#       发表于 2024-5-3 22:18
+
+可是这么简单的口水歌她唱的也很烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">我甚至觉得她唱的不如ktv的路人。
+
+*****
+
+####  野菜一日分  
+##### 3879#       发表于 2024-5-3 22:19
+
+至少这歌在live的时候很容易call &amp; response，再怎么也有应援撑着演出，比红蓝那样可能只能地藏听声优翻车还是要舒服一点。
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  840266848  
+##### 3880#       发表于 2024-5-3 22:20
+
+hw萌奈的偶像歌我还是喜欢的，琴音这首不太行。想想萌奈是夏川椎菜配音，百万（
+
+
+*****
+
+####  麻巳巳  
+##### 3881#       发表于 2024-5-3 22:22
+
+因为要夹声音单薄撑不起歌，游戏加了混响应该会好很多
+
+*****
+
+####  BQlin  
+##### 3882#       发表于 2024-5-3 22:23
+
+过于普通了，还一直复读
+
+*****
+
+####  PacificWind  
+##### 3883#       发表于 2024-5-3 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802320&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-5-3 22:12</a>
+
+可爱就完事了 要什么歌力 表信号灯过完 我对学马士这个企划的歌力有点绝望 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">企划角色曲动不动唱得上气不接下气的，甚至连最刻板印象的偶像曲都没气，这大概也是第一次见了，咱也不是要求高，起码一整首录音棚里唱完不喘气是基本要求吧，初代人人要爬椎名曲的坡，也没见唱成这样的。
+
+*****
+
+####  sliver1997  
+##### 3884#       发表于 2024-5-3 22:24
+
+经典 hw 罐头
+

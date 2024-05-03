@@ -9184,3 +9184,19 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 贴吧有人发了，你现在能刷到的英文meme基本都是红迪这会搬过来的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到了，但是就不能统一一下甩锅索索吗，怎么又爹又立的
 
+
+*****
+
+####  Launce  
+##### 3840#       发表于 2024-5-4 03:06
+
+<img src="https://img.saraba1st.com/forum/202405/04/030632tklkjfl68006kt3o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 03:06 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NB啊，这就是引以为傲的游戏社区吗，一天2万差评
+

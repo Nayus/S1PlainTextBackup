@@ -6955,3 +6955,13 @@ fsr光荣23-24财报是41万
 602677219</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">搜不到……有没有拉一下的
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12640#       发表于 2024-5-3 12:04
+
+好奇去年有几个不算菜B的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

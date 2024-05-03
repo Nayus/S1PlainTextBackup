@@ -1637,3 +1637,13 @@ pv完全就是斧乃木主角 undead是指她了？
 
 —— 来自 Xiaomi 21091116AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  JackTitor  
+##### 172#       发表于 2024-5-3 20:36
+
+育惨败砍了看毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

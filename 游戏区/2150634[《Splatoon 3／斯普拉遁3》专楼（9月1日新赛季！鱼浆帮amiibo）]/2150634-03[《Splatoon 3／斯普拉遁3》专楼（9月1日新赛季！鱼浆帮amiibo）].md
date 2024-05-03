@@ -13153,3 +13153,15 @@ X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">三代的祭典真的一点品牌和游戏联动没有？？？？？？
 
+
+*****
+
+####  晴岚  
+##### 4282#       发表于 2024-5-3 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801533&amp;ptid=2150634" target="_blank">来看你 发表于 2024-5-3 20:29</a>
+三代的祭典真的一点品牌和游戏联动没有？？？？？？</blockquote>
+游戏联动有个塞尔达
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

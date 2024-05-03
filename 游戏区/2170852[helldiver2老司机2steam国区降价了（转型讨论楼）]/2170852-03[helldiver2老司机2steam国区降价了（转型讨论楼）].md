@@ -8334,3 +8334,64 @@ Fix for crash wh ...</blockquote>
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  我不是夏承凛  
+##### 3751#       发表于 2024-5-3 11:34
+
+ 本帖最后由 我不是夏承凛 于 2024-5-3 11:36 编辑 
+
+HELLDIVERS
+
+新闻 已发布 5月3日周五
+
+《HELLDIVERS™2》- 账号绑定更新
+
+全体绝地潜兵注意，
+
+由于《HELLDIVERS™2》推出时遭遇技术问题，我们暂时允许玩家自行选择是否将Steam账户与PlayStation Network账户绑定。现在，宽限期将结束。详情请见下文。
+
+对于保护玩家以及维护PlayStation和PlayStation Studios游戏的安全保障价值而言，账户绑定至关重要。这是我们保护玩家的主要手段，这样才能封禁恶意与违规玩家，让其他玩家不受此类行为影响，也能让受封禁的玩家有机会提出申诉。
+
+所以，5月6日起，所有《HELLDIVERS™2》的Steam新玩家都必须将自己的Steam账户绑定至PlayStation Network账户。而当前的Steam玩家将从5月30日开始收到强制登录的提示，且在6月4日前必须将Steam账户绑定至PlayStation Network账户。访问此链接，可以轻松免费创建PlayStation Network账户:
+[https://www.playstation.com/support/account/create-account-for-psn/](https://www.playstation.com/support/account/create-account-for-psn/)
+
+我们明白，这可能会给部分玩家带来不便，但绑定操作将帮助我们继续完善能让您引以为傲的游戏社区。非常感谢您持续支持《HELLDIVERS™2》!
+
+Sony Interactive Entertainment
+
+<img src="https://img.saraba1st.com/forum/202405/03/113642dcmzudsxu8dw58si.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240503111532.jpg</strong> (166.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 11:36 上传
+
+这游戏绑定PSN很麻烦，绑定跳转链接会显示锁区，国区账号不支持，需要自己想办法登录其他区服账号然后再对应页面绑定STEAM才行……
+
+*****
+
+####  MkChang  
+##### 3752#       发表于 2024-5-3 11:38
+
+突发恶疾让强制绑定psn<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 3753#       发表于 2024-5-3 11:39
+
+索尼事情真多啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  linhaolin1  
+##### 3754#       发表于 2024-5-3 11:40
+
+神经病吧…不想做了就赶人是把
+

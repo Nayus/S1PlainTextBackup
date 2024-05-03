@@ -8525,3 +8525,21 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 真是**配狗，不愧是索尼这个贱种，恶心人这方面从不让人失望
 
+
+*****
+
+####  Launce  
+##### 3771#       发表于 2024-5-3 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/03/141135duz8f5097usu6sun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-3 14:11 上传
+
+光速拒绝，等一个感人小作文再申请一次
+

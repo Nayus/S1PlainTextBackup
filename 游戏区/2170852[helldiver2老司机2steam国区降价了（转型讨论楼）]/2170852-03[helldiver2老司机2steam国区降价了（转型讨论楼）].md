@@ -8778,3 +8778,15 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 <img src="https://p.sda1.dev/17/2311b4fcaa5a33cececf66a5c60a1ff7/CMP_20240503174436036.jpg" referrerpolicy="no-referrer">
 箭头经济系统有个严重的问题，可以直接通过游戏好友码漏洞刷蓝币，淘宝一个店周销量200+。这次绑完不知道会封多少
 
+
+*****
+
+####  YY骑士  
+##### 3798#       发表于 2024-5-3 18:18
+
+ 本帖最后由 YY骑士 于 2024-5-3 18:22 编辑 
+
+开服就绑过港区psn了，默认打开国区psn直接显示不支持，要手动把链接cn换成hk。
+
+但是时间太久了，我也忘记我那时候到底绑成功了没，游戏里也看不到自己到底绑定过账号没。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">等他到5月底时间自动弹绑定算了。
+

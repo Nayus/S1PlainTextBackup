@@ -8790,3 +8790,11 @@ PSN国区无法绑定，这下要狠狠劝退了<img src="https://static.saraba1
 
 但是时间太久了，我也忘记我那时候到底绑成功了没，游戏里也看不到自己到底绑定过账号没。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">等他到5月底时间自动弹绑定算了。
 
+
+*****
+
+####  天王寺綯  
+##### 3799#       发表于 2024-5-3 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">强权军政府世界观营造的一环
+

@@ -9332,3 +9332,19 @@ mv说了是谁做的吗？
 
 学马什么时候能玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PacificWind  
+##### 3852#       发表于 2024-5-3 18:38
+
+蓝色曲这个断气唱法听得人难受，唱的人也不好过，真把声优当V家使啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">Live上能响不缺氧都算成功了吧，不理解为什么要这么设计个人曲。
+
+*****
+
+####  darkendless  
+##### 3853#       发表于 2024-5-3 18:38
+
+初期投入确实没话说，趁热打铁。虽然小红和小蓝的歌实在欣赏不来，这是在搞养成系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

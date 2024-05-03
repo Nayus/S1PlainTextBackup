@@ -6489,3 +6489,27 @@ ctmd真爱堆怪，还是两三群怪一起+触手+沙虫+炮台的伦煎组合
 
 协议3年，那就是3年销量，首周你真敢想
 
+
+*****
+
+####  bhunter  
+##### 1358#       发表于 2024-5-3 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64796297&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-5-3 06:31</a>
+据韩国媒体globalE从业内知情人士获悉，《剑星》与索尼互动娱乐的合约为期3年，其中包含PC版的发行，而韩媒 ...</blockquote>
+这个出货量是估计的总销量？首周不太敢信，夸张了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ky7913  
+##### 1359#       发表于 2024-5-3 09:32
+
+<blockquote>bhunter 发表于 2024-5-3 09:24
+这个出货量是估计的总销量？首周不太敢信，夸张了
+
+论坛助手,iPhone</blockquote>
+出货量也不等于总销量，等于大概是对销量的一个预估。可能实际销量不如出货量，或者销量太好卖光了那还要出第二批。这个也不是官方数字，先看看好了。如果真有500万出货，要多少时间市场才消化完也不好说，但至少还挺有信心的
+

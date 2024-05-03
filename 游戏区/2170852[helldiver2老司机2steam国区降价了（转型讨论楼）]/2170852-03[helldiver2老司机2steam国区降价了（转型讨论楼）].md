@@ -8310,3 +8310,16 @@ Fix for crash wh ...</blockquote>
 
 终于要开始封人了，看看拿好友码漏洞刷蓝币的能封几个
 
+
+*****
+
+####  xinfengj  
+##### 3749#       发表于 2024-5-3 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792696&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-5-2 18:59</a>
+
+有一起玩的吗，目前四十级。基本都是晚上9点开始玩
+
+#6113-5306</blockquote>
+游戏好友码最好不要公开，如果是steam玩家还是加steam好友，有淘宝卖蓝币的之前说过如果箭头封号就无差别报复所有暴露游戏好友码的玩家
+

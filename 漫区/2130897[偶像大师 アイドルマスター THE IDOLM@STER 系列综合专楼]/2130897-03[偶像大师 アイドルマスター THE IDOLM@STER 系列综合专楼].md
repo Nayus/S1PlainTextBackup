@@ -9356,3 +9356,146 @@ mv说了是谁做的吗？
 
 不知道为什么总有人说美波是术力口风…人家是创作歌手出身啊<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Porsche  
+##### 3855#       发表于 2024-5-3 22:05
+
+果然honeyworks的曲子全是垃圾
+但是起码这个live能唱
+
+*****
+
+####  rslika  
+##### 3856#       发表于 2024-5-3 22:06
+
+ 本帖最后由 rslika 于 2024-5-3 22:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">好纯的偶像歌 我大了
+
+这种简洁清楚的mv看着比较舒服
+
+*****
+
+####  Achlys  
+##### 3857#       发表于 2024-5-3 22:06
+
+管人那品鉴太多honeyworks了有点ptsd...毫无惊喜符合刻板印象的曲子
+
+*****
+
+####  rgauss  
+##### 3858#       发表于 2024-5-3 22:07
+
+符合对honeywork的刻板印象
+
+*****
+
+####  Seeley  
+##### 3859#       发表于 2024-5-3 22:07
+
+不过不失的hw<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+至少live有的唱了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  liyropen  
+##### 3860#       发表于 2024-5-3 22:07
+
+感觉也...不太是能热场的曲子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  l3r0nY@  
+##### 3861#       发表于 2024-5-3 22:08
+
+「覚悟はいい?声出していくよ!🏃」
+
+世界一🌍\かわいい！/
+
+宇宙一🌌\かわいい！/
+
+もっともっと声出せ🔉よそ見はダメ❌！\OK？！👌/
+
+瞬きも😉\かわいい！/
+
+存在が👧\かわいい！/
+
+もっともっと聞かせて👂ご褒美は🎁目を閉じて😣chu❤
+
+*****
+
+####  a85982313  
+##### 3862#       发表于 2024-5-3 22:08
+
+好标准的歌
+
+*****
+
+####  ViviR  
+##### 3863#       发表于 2024-5-3 22:09
+
+曲子本身实在没什么好说的。这曲子要配合游戏内的3d演出才有看头。
+
+*****
+
+####  安广多惠子  
+##### 3864#       发表于 2024-5-3 22:09
+
+过于标准无可评论，快进到下一首
+
+
+*****
+
+####  PacificWind  
+##### 3865#       发表于 2024-5-3 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么三原色个人曲都给人一种要断气的感觉，主唱是不是太拼命了？都把声优当牲口使是吧。
+
+*****
+
+####  cckuku  
+##### 3866#       发表于 2024-5-3 22:11
+
+说实话，唱得好难听。。。。我带着滤镜都听不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">而且不知道为什么总是会让我幻听成fans。
+
+*****
+
+####  koodooliz  
+##### 3867#       发表于 2024-5-3 22:11
+
+口水歌就这样了，不挺好，总要有的
+
+*****
+
+####  Achlys  
+##### 3868#       发表于 2024-5-3 22:11
+
+因为确实很像fansa吧...
+
+*****
+
+####  magicc  
+##### 3869#       发表于 2024-5-3 22:12
+
+很符合对honeyworks的印象
+
+*****
+
+####  l3r0nY@  
+##### 3870#       发表于 2024-5-3 22:12
+
+难不难听先不说，好歹能互动能唱下来，总比一个含电线一个戴氧气罩的好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 3871#       发表于 2024-5-3 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可爱就完事了 要什么歌力 表信号灯过完 我对学马士这个企划的歌力有点绝望
+

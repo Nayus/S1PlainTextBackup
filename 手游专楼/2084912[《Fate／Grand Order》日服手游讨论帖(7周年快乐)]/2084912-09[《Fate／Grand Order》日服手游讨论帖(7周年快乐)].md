@@ -7144,3 +7144,25 @@ fsr光荣23-24财报是41万
 基本都是一宝的非洲穷B只能说有啥用啥</blockquote>
 非洲穷B也有选择权，至少我不会特地去为了性能抽篮子和有珠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12655#       发表于 2024-5-3 16:30
+
+ 本帖最后由 qixinno2 于 2024-5-3 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799625&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-5-3 16:21</a>
+
+非洲穷B也有选择权，至少我不会特地去为了性能抽篮子和有珠</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">证明你还是不非 经历过几次攒石抽卡大暴死后 我基本都是瞎JB抽了 越攒越不出货 瞎JB抽出货率还高一点当然也只是出货率高一点 强度就是一堆花里胡哨菜B卡基本只能仓库吃灰
+
+*****
+
+####  cenhr  
+##### 12656#       发表于 2024-5-3 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64799693&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-5-3 16:30</a>
+
+证明你还是不非 经历过几次攒石抽卡大暴死后 我基本都是瞎JB抽了 越攒越不出货 瞎JB抽出货率还高 ...</blockquote>
+真是个悲伤的故事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

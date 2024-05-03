@@ -696,3 +696,11 @@ QP和骑饼干突然成两 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这剧情算牛了扎比子吗
 
+
+*****
+
+####  苍蓝之枪  
+##### 46369#       发表于 2024-5-3 21:43
+
+有些任务好像还是分配不是很均匀啊，机械和骨系怎么还有差的，甚至七丘城5次都打完了还不够
+

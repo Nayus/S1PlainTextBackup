@@ -3781,3 +3781,14 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 不管mv是赶工才做完或其他奇怪原因，估计就没提前通气过要发mv，粉丝也好b号也好都被突袭到了
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16637#       发表于 2024-5-3 17:13
+
+<img src="https://p.sda1.dev/17/603638915f6c58a583379fb1e3b72b53/IMG_5A6664702104AA03E0ACA942E4243F31.jpeg" referrerpolicy="no-referrer">
+5月3号JAPAN JAM上GO的歌单
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

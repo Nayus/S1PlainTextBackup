@@ -9853,3 +9853,59 @@ image.png
 <img src="https://p.sda1.dev/17/af2d5b68d2d40bc9859f0f4f9c485332/1714808231575.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3904#       发表于 2024-5-4 15:59
+
+<img src="https://img.saraba1st.com/forum/202405/04/155358ggb0f99ffd93nfnr.png" referrerpolicy="no-referrer">
+
+<strong>弱智1.png</strong> (67.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 15:53 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/155358jhilv8o052ccgtzl.png" referrerpolicy="no-referrer">
+
+<strong>弱智2.png</strong> (29.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 15:53 上传
+
+孝子和社管的问题在哪里，我想大家看我的回复应该也明白了。
+
+在论坛喷，说没用，你要去dc喷，你要去线下喷。
+
+去dc喷，说没用，你要去steam改评价。
+
+有没有可能呢，我dc喷了，我steam评价差评也打了，退款申请也发了呢？
+
+打着理性，功利，效率的大旗做着堵嘴的事，我现在告诉你，这些有效的手段我都用了，该做的事我也都做了，闲暇之余我就是想骂，行不行？
+
+*****
+
+####  Aeons  
+##### 3905#       发表于 2024-5-4 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">当然孝子还有最后一招，喷子破坏社区，但是破坏社区的到底是什么呢？我暂且蒙古啊。
+
+
+*****
+
+####  Launce  
+##### 3906#       发表于 2024-5-4 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这波矢索双孝合并我是真绷不住
+
+*****
+
+####  春哥亲自  
+##### 3907#       发表于 2024-5-4 16:04
+
+退款怎么填？
+I must HAVE a PSN ACCONUT before play game？
+but I DO NOT！
+

@@ -7188,3 +7188,19 @@ boss二周目血盾起码三倍，打起来起码不是一波秒，像样了许�
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  jacket  
+##### 1418#       发表于 2024-5-4 11:34
+
+一周目人物性能这么强哪来堆怪一说，我想速刷奎爷模式成就还嫌怪不够
+
+*****
+
+####  真空管  
+##### 1419#       发表于 2024-5-4 11:35
+
+ng+才发现村长身边那个老哥也有个任务链<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+还有小巷背刺任务真的纯搞笑，不走小路从另一条走绕袭击者背也不会有变化，感觉想讲点什么又没精力做后续所以完成得特别生硬
+

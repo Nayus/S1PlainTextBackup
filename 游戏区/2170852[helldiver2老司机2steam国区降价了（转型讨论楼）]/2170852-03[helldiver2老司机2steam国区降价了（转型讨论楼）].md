@@ -9468,3 +9468,13 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 引爆火药桶的导火索<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DZDZaima  
+##### 3870#       发表于 2024-5-4 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64805038&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-4 07:46</a>
+索尼这么做唯一的解释就是转化率不行，现在在提纯，要么就是某些觉得登录PC会对PS平台发展有益的人的死线。 ...</blockquote>
+因为要推广PC平台，马上对马岛也是要绑定psn获得奖杯和联机的。
+

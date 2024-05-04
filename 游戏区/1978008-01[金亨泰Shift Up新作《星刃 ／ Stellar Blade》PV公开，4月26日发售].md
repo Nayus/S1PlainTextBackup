@@ -7429,3 +7429,55 @@ ng+才发现村长身边那个老哥也有个任务链
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  jacket  
+##### 1441#       发表于 2024-5-4 19:00
+
+溢出的HP、MP机体核心能带到下周目起作用吗？
+
+*****
+
+####  kuker53  
+##### 1442#       发表于 2024-5-4 19:00
+
+<blockquote>jacket 发表于 2024-5-4 19:00
+溢出的HP、MP机体核心能带到下周目起作用吗？</blockquote>
+能
+
+
+*****
+
+####  lucky95  
+##### 1443#       发表于 2024-5-4 19:02
+
+二周目还是不能做刺杀自己委托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来我还是太看得起棒子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+速通拿杯子收工算了
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  jacket  
+##### 1444#       发表于 2024-5-4 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809524&amp;ptid=1978008" target="_blank">kuker53 发表于 2024-5-4 19:00</a>
+
+能</blockquote>
+这东西由于一周目会溢出，反而松懈了不确定漏没漏
+
+*****
+
+####  lucky95  
+##### 1445#       发表于 2024-5-4 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809558&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-4 19:04</a>
+这东西由于一周目会溢出，反而松懈了不确定漏没漏</blockquote>
+我一周目两个都溢出一个，应该没漏
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

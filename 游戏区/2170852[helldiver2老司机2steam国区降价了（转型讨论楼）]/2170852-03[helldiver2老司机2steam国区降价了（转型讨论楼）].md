@@ -10174,3 +10174,14 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他真脑子好使还知道问题源头在哪儿还看重同事和社群玩家的话，开始那几个臭屁压根就不应该对着玩家放
 
+
+*****
+
+####  ナルバレック  
+##### 3936#       发表于 2024-5-4 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808850&amp;ptid=2170852" target="_blank">solks 发表于 2024-5-4 17:31</a>
+
+1代我记得也不用绑psn吧</blockquote>
+索尼准备搞个PC版的PSN好像也就是最近一年内的事情，一代都是上世代初期的游戏了，咋可能要绑定，不过EA和育碧的启动平台都有十岁了吧，这算起意太晚加措辞粗暴
+

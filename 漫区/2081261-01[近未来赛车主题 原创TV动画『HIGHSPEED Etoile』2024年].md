@@ -171,3 +171,13 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 最后那里暗示ai要成精了吗，明显感觉女主车里的ai跟其他人的ai不是一个版本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有骨气的百合  
+##### 301#       发表于 2024-5-4 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809366&amp;ptid=2081261" target="_blank">arachnid 发表于 2024-5-4 18:41</a>
+最后那里暗示ai要成精了吗，明显感觉女主车里的ai跟其他人的ai不是一个版本 ...</blockquote>
+经典机灵了
+

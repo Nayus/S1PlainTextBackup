@@ -10332,3 +10332,26 @@ IMG_3400.jpeg
 
 lv1大概率只有清夏能听 放出来4个里面只有她是摆烂 剩下5个没有摆烂的吧
 
+
+*****
+
+####  青天孤月  
+##### 3968#       发表于 2024-5-4 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新生代真有唱功牛逼的哪还轮得到万南来挑。
+
+*****
+
+####  l3r0nY@  
+##### 3969#       发表于 2024-5-4 22:59
+
+相信代哥选cv的实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 3970#       发表于 2024-5-4 23:03
+
+主要是今天的mv和昨天比，因为风格类似所以有点让人很难不捧一踩一...蓝和黄的mv真的不错
+

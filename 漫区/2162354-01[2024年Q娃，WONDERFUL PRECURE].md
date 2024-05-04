@@ -1126,3 +1126,27 @@ INABA
 麻油15话先进微笑花园，16话解释世界观，看来17话要变身了。</blockquote>
 17话标题没有Cure Lillian，八成变不了身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1397#       发表于 2024-5-4 11:04
+
+第14話　まゆ、はじめてのお泊り
+
+脚本：香村純子
+
+演出：広末悠奈
+
+絵コンテ：中村亮太
+
+作画監督：玖遠らぎ
+
+美術：鈴木祥太
+
+部屋にユキの姿が見当たらず、あちこち探し回るまゆ。やっとソファの下で見つけると、ユキは苦しそうにうずくまっていた。あわてていろは（CV.種﨑敦美）の家にやってきたまゆは、獣医であるいろはの母・陽子にユキを見せる。「疲れがたまっている」という診察結果を聞いてひと安心するもいまだ不安げなまゆに、いろはは「うちに泊まっていかない？」と提案し、ユキとともにひと晩いっしょに過ごすことになった。ユキを見守りながらまゆと夕食を食べ、お風呂に入り、就寝するこむぎ（CV.長縄まりあ）たち。まだ夜が明ける前の翌朝、こむぎが飛び起きる。まゆのいるところで自分の名前を呼ぶこむぎを止めようとするいろはだったが、ガルガルが出た、という言葉を聞いて、ふたりでこっそりと家を抜け出そうとする。
+<img src="https://p.sda1.dev/17/d0e19f51f0d773137f93e6b7bb531815/001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/3a706efc894d8523c6a8fde6c9a59e7f/002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e9c81bc72cb395ba9e811c409c1eceef/003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/3ee041dd35700cd12c1c5ae6c7c77dd5/004.jpg" referrerpolicy="no-referrer">
+

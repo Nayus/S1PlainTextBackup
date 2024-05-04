@@ -9424,3 +9424,14 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 管理式民主太伟大了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 3865#       发表于 2024-5-4 10:55
+
+从箭头员工在社交媒体上的发言来看，管理式民主似乎不是个玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+他们不会本意不是在讽刺吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

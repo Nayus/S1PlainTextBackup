@@ -2231,3 +2231,11 @@ yabu还染了一撮红发
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 20152#       发表于 2024-5-4 21:02
+
+昼场的时候还好好的，夜场唱到最后pay的声音哑了，一巡群马day2以来第二次把嗓子唱劈了。第一场FMT正好结束得好好调养身体和嗓子
+

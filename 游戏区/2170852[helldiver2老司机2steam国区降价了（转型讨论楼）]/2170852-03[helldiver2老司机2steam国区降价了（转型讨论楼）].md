@@ -10407,3 +10407,11 @@ steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">STEAMDB实时差评已经5万9了
 
+
+*****
+
+####  zzf111  
+##### 3955#       发表于 2024-5-4 21:01
+
+请索尼继续作，爱看
+

@@ -10089,3 +10089,21 @@ IMG_3400.jpeg
 万南负责爱马仕的高层及制作人，思想之落后与保守，可 ...</blockquote>
 毕竟原来都是在BNEI下面的，爱马仕相关和其他游戏新闻一起发。
 
+
+*****
+
+####  Seeley  
+##### 3939#       发表于 2024-5-4 20:56
+
+漏油也太乐观了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个量说不准还小买了一点，毕竟才三天
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  l3r0nY@  
+##### 3940#       发表于 2024-5-4 21:03
+
+但是皮卡丘的gif表情包确实能在不少地方见到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

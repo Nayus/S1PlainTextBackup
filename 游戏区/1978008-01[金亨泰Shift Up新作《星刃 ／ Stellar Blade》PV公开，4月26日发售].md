@@ -7165,3 +7165,26 @@ woc 渡鸦皮真是又大又圆啊<img src="https://static.saraba1st.com/image/s
 — from OnePlus CPH2493, Android 14 of S1 Nex ...</blockquote>
 这游戏有扫描啊，基本都是你先手。除非是任务不断出敌人吧，熟识了地图敌人分布就还好。技能真的太强了
 
+
+*****
+
+####  lucky95  
+##### 1417#       发表于 2024-5-4 10:53
+
+二周目好幽默，感情一周目捡的一堆垃圾都没啥鸟用
+螺栓这些捡了一堆的只能换金币，武器石一次只加10攻击。。。
+有提升的就元素瓶和无人机了
+脊椎插件啥的二周目版多几点百分比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+技能都多了一两级，继续普通难度月牙天冲连着秒爽爆了，切去困难遇到堆怪继续坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+服装就给最烧的渡鸦皮，别的基本就是换色
+
+看剧情对话配合结局有另一种感觉，挺好的
+
+boss二周目血盾起码三倍，打起来起码不是一波秒，像样了许多，算是唯一亮点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉二周目就是给直推主线拿白金做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

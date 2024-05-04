@@ -526,3 +526,22 @@
 
 感觉下周再加强之后能日常本游龙了
 
+
+*****
+
+####  Jamaisvu  
+##### 677#       发表于 2024-5-4 10:49
+
+<img src="https://img.saraba1st.com/forum/202405/04/104820lqefpcjpamepaphj.jpg" referrerpolicy="no-referrer">
+
+<strong>29BFCA1893F2D1F9265B4262DF5990E0.jpg</strong> (101.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-4 10:48 上传
+
+转一下新地牢的合成列表。
+
+不过各种饰品的获取还是挺随机的，四层改五层说不定是想着万一道中运气好合出来了可以多爽一层？
+

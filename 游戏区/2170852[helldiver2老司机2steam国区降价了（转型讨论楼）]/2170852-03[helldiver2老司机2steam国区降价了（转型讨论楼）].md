@@ -9286,3 +9286,13 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 原来全球这么多国家没有psn啊，索尼这真是拍脑门做的决定
 
+
+*****
+
+####  Mr.Hopp  
+##### 3850#       发表于 2024-5-4 07:46
+
+ 本帖最后由 Mr.Hopp 于 2024-5-4 07:50 编辑 
+
+索尼这么做唯一的解释就是转化率不行，现在在提纯，要么就是某些觉得登录PC会对PS平台发展有益的人的死线。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

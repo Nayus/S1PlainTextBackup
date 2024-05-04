@@ -187,3 +187,13 @@
 
 一周目hard打完，挺爽的
 
+
+*****
+
+####  手铐君  
+##### 3162#       发表于 2024-5-4 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">后期赤报队那些据点里的精英怪是玩家建的角色吗
+
+—— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -7471,3 +7471,13 @@ fsr光荣23-24财报是41万
 搜不到……有没有拉一下的</blockquote>
 那就只好麻烦坛友单窗一下q
 
+
+*****
+
+####  清河子  
+##### 12687#       发表于 2024-5-4 09:57
+
+喷了，坠机+联动剧透药太伤心，搞得昨晚我睡觉做梦都在抽有珠池，我大脑还给我编了个二宝有珠哄我！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">……要是真的就好了（）
+

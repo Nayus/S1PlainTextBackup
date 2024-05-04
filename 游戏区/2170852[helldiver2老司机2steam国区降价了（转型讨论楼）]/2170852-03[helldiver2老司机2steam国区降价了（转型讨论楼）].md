@@ -10151,3 +10151,26 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809287&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-4 18:32</a></blockquote>
 思路其实没问题，决定是领导做的，玩家和员工对线没什么意义，不如去打差评给领导看
 
+
+*****
+
+####  白昼梦  
+##### 3933#       发表于 2024-5-4 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就那对线态度，就是权限狗看这事挨批评不舒服就想禁言当鸵鸟了而已，有个屁的大义，qq群里玩这套的弱智群主还少吗
+
+
+*****
+
+####  北条早苗  
+##### 3934#       发表于 2024-5-4 18:52
+
+你说得都对，但I thought you were refunding and leaving
+
+*****
+
+####  白昼梦  
+##### 3935#       发表于 2024-5-4 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他真脑子好使还知道问题源头在哪儿还看重同事和社群玩家的话，开始那几个臭屁压根就不应该对着玩家放
+

@@ -7401,3 +7401,31 @@ tp点不全给篝火以及大地图不能随时tp真的是垃圾设计，通马�
 一周目te通关，挖坑续作味太冲了最终boss和渡鸦还是压制流打得顺畅，不过渡鸦那bgm棒团味顶不住[f:1 ...</blockquote>
 这棒团味不是和这cat fight很相称吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky95  
+##### 1439#       发表于 2024-5-4 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806445&amp;ptid=1978008" target="_blank">birdma 发表于 2024-5-4 11:58</a>
+查了视频攻略发现是迎击三波自爆无人机，但我这边没刷无人机就很搞笑，看来是遇到bug了 ...</blockquote>
+试试坐火重刷
+
+在箱子那按R2开始打靶会有框框的
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1440#       发表于 2024-5-4 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806287&amp;ptid=1978008" target="_blank">真空管 发表于 2024-5-4 11:35</a>
+ng+才发现村长身边那个老哥也有个任务链
+还有小巷背刺任务真的纯搞笑，不走小路从另一条走绕袭击者 ...</blockquote>
+啊，这我倒是没有打到
+
+地图没显示就没去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

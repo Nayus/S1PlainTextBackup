@@ -84,3 +84,14 @@
 
 暗船。。。你能拿得出差不多的盘子和配置其实不难，我2诺短2uni2联通LOW王，路+涂鸦再带个缇可，Q宙斯随便打了
 
+
+*****
+
+####  Sylpheed  
+##### 17904#       发表于 2024-5-5 01:52
+
+问题船妈fa也不快啊，高达还能见到6分台的，我自己技伤队fa也是9分出头
+船妈我就没见到过低于9分台的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

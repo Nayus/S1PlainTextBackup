@@ -10516,3 +10516,11 @@ SOS出圈，想了想学马仕目前的选曲还真有点把tiktok爆款可能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在学mas之前imas这牌子都快是冢中枯骨了，还谈什么爆款，还是看看这次广撒网能不能撞大运火一个吧，第一批这些歌目前看来有点难
 
+
+*****
+
+####  Alicest  
+##### 3991#       发表于 2024-5-5 01:47
+
+fashionable只能说在大帅圈里可以吧，出圈是不可能出的，上次异次元拉拉人不基本没听过
+

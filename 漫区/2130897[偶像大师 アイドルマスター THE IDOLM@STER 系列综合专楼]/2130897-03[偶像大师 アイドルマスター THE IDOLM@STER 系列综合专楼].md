@@ -9890,3 +9890,13 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gane1010  
+##### 3919#       发表于 2024-5-4 08:44
+
+其实我觉得还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   一开始用蓝牙耳机听前面两首确实糊成一团  后面换了一副好一些耳机 有了分离感感觉效果没有那么差  
+
+ 还在接受范围之内  
+

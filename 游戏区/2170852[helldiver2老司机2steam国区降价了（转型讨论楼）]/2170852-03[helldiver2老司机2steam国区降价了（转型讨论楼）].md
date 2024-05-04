@@ -10011,3 +10011,11 @@ ED1B94D69219E7BE0BB6EEA81C4B6E4C.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">太好了，省服务器资源了
 毕竟是宁可让玩家排队也不肯扩充服务器的厂商
 
+
+*****
+
+####  ykyin09  
+##### 3919#       发表于 2024-5-4 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用我的塑料英语给steam的客户写了说明，说我所在地区的psn账户无法绑定，希望给我退款。虽然我已经玩了一百来个小时
+

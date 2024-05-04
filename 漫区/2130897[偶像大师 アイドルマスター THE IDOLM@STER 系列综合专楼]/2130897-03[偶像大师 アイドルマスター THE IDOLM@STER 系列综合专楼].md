@@ -9930,3 +9930,13 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 官网上的live短视频观感倒是很不错，如果实机能有这个效果的竖屏live那就是绝杀
 
+
+*****
+
+####  北条早苗  
+##### 3923#       发表于 2024-5-4 13:32
+
+小黄出了练习版的唱跳世界一可爱
+
+小红和小蓝没有是因为唱完直接躺了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

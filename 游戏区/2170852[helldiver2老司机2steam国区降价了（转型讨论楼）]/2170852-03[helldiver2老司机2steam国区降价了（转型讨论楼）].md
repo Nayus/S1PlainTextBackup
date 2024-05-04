@@ -10019,3 +10019,40 @@ ED1B94D69219E7BE0BB6EEA81C4B6E4C.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用我的塑料英语给steam的客户写了说明，说我所在地区的psn账户无法绑定，希望给我退款。虽然我已经玩了一百来个小时
 
+
+*****
+
+####  FLZB  
+##### 3920#       发表于 2024-5-4 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808785&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-4 17:23</a>
+
+用我的塑料英语给steam的客户写了说明，说我所在地区的psn账户无法绑定，希望给我退款。虽然我已经 ...</blockquote>
+看贴吧有百小时选手写小作文成功退款<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  solks  
+##### 3921#       发表于 2024-5-4 17:31
+
+1代我记得也不用绑psn吧
+
+
+*****
+
+####  北条早苗  
+##### 3922#       发表于 2024-5-4 17:35
+
+spitz都开始在dc群里爆典说steam允许重名没法ban人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 3923#       发表于 2024-5-4 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808850&amp;ptid=2170852" target="_blank">solks 发表于 2024-5-4 17:31</a>
+
+1代我记得也不用绑psn吧</blockquote>
+一代没火出圈啊，索尼就是来摘桃子的
+

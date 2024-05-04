@@ -10076,3 +10076,16 @@ IMG_3400.jpeg
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  koodooliz  
+##### 3938#       发表于 2024-5-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810293&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-4 20:35</a>
+
+然后我看了眼爱马仕频道注册时间，2020年7月
+
+万南负责爱马仕的高层及制作人，思想之落后与保守，可 ...</blockquote>
+毕竟原来都是在BNEI下面的，爱马仕相关和其他游戏新闻一起发。
+

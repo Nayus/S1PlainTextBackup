@@ -151,3 +151,15 @@ ai的cv是ac6艾尔的cv吗？动画里没标，感觉那电波声线很像还�
 我没理解错的话，AI领导下的全自动驾驶就是所有路线都是最佳路线吧？那跟女主的差别就是，别的车手是客观 ...</blockquote>
 今集未看，不过赛车就要超过其他车，应该不怎么有最佳路线？
 
+
+*****
+
+####  woeiqp00  
+##### 299#       发表于 2024-5-4 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806198&amp;ptid=2081261" target="_blank">X(iaolw)S 发表于 2024-5-4 11:23</a>
+田村啊，AI叫ami</blockquote>
+ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

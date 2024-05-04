@@ -10504,3 +10504,21 @@ DC上披露,只写这些关键内容就可以,投人工客服.
 看了下绑定教程 不仅仅是注册个账号那么简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要去C盘里删掉游戏的系统文件，这样游戏再打开的时候会重新弹出初次绑定界面。绑定跳转链接指向的是ps国区的网页，还要连续手动改两次网址里的cn为hk才能绑上。过程中可能还要挂hk节点的加速器或者梯子。
 逆天 不看教程估计是要琢磨好一会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  フカミ  
+##### 3964#       发表于 2024-5-4 23:18
+
+最逆天的是如果你的psn账号被ban了，steam里的绑定过的ps游戏可能也会被ban<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  normalli  
+##### 3965#       发表于 2024-5-4 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811620&amp;ptid=2170852" target="_blank">フカミ 发表于 2024-5-4 23:13</a>
+
+看了下绑定教程 不仅仅是注册个账号那么简单还要去C盘里删掉游戏的系统文件，这样游戏再打开的时候 ...</blockquote>
+不需要加速器，就是得改路径，还得改两次，这问题本质上就是sony的锅，sony完全没有考虑跨区绑定的可能性
+

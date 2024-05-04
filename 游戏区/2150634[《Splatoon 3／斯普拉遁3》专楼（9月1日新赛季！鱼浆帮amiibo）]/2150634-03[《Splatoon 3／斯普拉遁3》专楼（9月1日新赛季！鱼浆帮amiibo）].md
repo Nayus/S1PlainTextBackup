@@ -13293,3 +13293,16 @@ X比赛胜率有办法超过50吗？赢一局就必须要输一局，假期打�
 
 没条件让NS直连网线的可以试试这种折中方案，相当于是把无线收发数据包的工作交给了路由器
 
+
+*****
+
+####  来看你  
+##### 4294#       发表于 2024-5-5 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64801819&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-5-3 21:02</a>
+
+游戏联动：宝可梦、塞尔达
+
+品牌联动：31冰淇淋、卡乐比</blockquote>
+和以前的联动比差远了，三选是不大好搞联动对决
+

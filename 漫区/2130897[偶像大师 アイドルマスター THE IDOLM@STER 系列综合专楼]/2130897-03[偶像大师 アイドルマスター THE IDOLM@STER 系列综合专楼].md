@@ -9922,3 +9922,11 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 我就说怎么听起来那么像fans<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  harukage  
+##### 3922#       发表于 2024-5-4 13:05
+
+官网上的live短视频观感倒是很不错，如果实机能有这个效果的竖屏live那就是绝杀
+

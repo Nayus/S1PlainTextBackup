@@ -9606,3 +9606,61 @@ PSN集成这种从几年前就该做的事情能硬拖到现在，这不活该�
 操死索尼了，马币的以后索尼的pc游戏不会也套自己的启动器吧？</blockquote>
 之前死忠社区就有反映为啥不做自己的PC账号通用平台的，目前来看确实是在弄了
 
+
+*****
+
+####  厚乳果珍爽  
+##### 3883#       发表于 2024-5-4 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没买地狱老司机的原因就是因为是GAAS，而且还是索尼的GAAS，索尼什么鸟货色还不清楚？
+
+*****
+
+####  ravend233  
+##### 3884#       发表于 2024-5-4 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说索尼的gaas梦想大概又要破灭了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Midnight.Coup  
+##### 3885#       发表于 2024-5-4 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806310&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-4 11:39</a>
+看了一下别的地方发的，锁泥正在连夜改psn条款，看来主要的锅确实不在箭头，不过箭头招的这帮运营和 ...</blockquote>
+把自己代入超级气球了属于是
+
+*****
+
+####  Launce  
+##### 3886#       发表于 2024-5-4 13:16
+
+<img src="https://img.saraba1st.com/forum/202405/04/131153m0hvdr0grd2rx0xh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/131330agh1wgdz78ge8h9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 13:13 上传
+
+根据DC上老外所说,STEAMDB好像实时准确点，昨天6万，今天现在逼近2万差评
+
+image.png
+(31.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 13:14 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/131415ef7ndfmsrbzenvrv.png" referrerpolicy="no-referrer">
+

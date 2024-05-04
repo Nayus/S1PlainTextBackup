@@ -7276,3 +7276,27 @@ ng+才发现村长身边那个老哥也有个任务链
 
 真的有点想为了这游戏买个ps5了
 
+
+*****
+
+####  塔奇克马  
+##### 1426#       发表于 2024-5-4 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806885&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-4 12:53</a>
+一周目通关了。
+这游戏属于是我玩过的所有带钓鱼要素的作品里最浮夸的一个，就一根杆子一个饵嗯掉15吨鲸鲨 ...</blockquote>
+能在太空存活，战斗力应该有赛亚人等级，钓大鲨鱼不算夸张（
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  jxzeroga0  
+##### 1427#       发表于 2024-5-4 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806885&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-4 12:53</a>
+一周目通关了。
+这游戏属于是我玩过的所有带钓鱼要素的作品里最浮夸的一个，就一根杆子一个饵嗯掉15吨鲸鲨 ...</blockquote>
+是，没拿到的异色就得下一个周目
+

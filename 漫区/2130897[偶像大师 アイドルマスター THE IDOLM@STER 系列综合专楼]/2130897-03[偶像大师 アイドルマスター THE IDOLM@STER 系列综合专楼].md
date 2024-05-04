@@ -10107,3 +10107,12 @@ IMG_3400.jpeg
 
 但是皮卡丘的gif表情包确实能在不少地方见到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有村麻央  
+##### 3941#       发表于 2024-5-4 21:12
+
+万南的整体宣发水平就挺落后的，学马仕算是已经进步了一点，开始搞流量请网红创作者了。
+就是不知道接下来，会不会重金买二创和管人工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

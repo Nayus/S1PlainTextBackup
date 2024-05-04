@@ -10415,3 +10415,14 @@ steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨
 
 请索尼继续作，爱看
 
+
+*****
+
+####  m98626  
+##### 3956#       发表于 2024-5-4 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809779&amp;ptid=2170852" target="_blank">Variks 发表于 2024-5-4 19:33</a>
+
+没用的，一切愤怒和不甘都是拳头打进空气里，gaas玩家群体就是这么贱，表示不满的只是少数，沉默的大多数还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对命运2年7预购数据不乐观有什么看法么，社区已经用脚投票了
+

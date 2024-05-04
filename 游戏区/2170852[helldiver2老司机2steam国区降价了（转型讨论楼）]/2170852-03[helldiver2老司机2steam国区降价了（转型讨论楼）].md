@@ -9486,3 +9486,11 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一下别的地方发的，锁泥正在连夜改psn条款，看来主要的锅确实不在箭头，不过箭头招的这帮运营和社区经理也是真的逆天，一点基本的危机公告意识都没有吗？
 
+
+*****
+
+####  smdzh2  
+##### 3872#       发表于 2024-5-4 11:59
+
+毕竟是首发炸服时能淡定说出“现在我们要去睡一会”然后把玩家晒一晚上的顶级运营<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

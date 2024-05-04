@@ -7129,3 +7129,27 @@ woc 渡鸦皮真是又大又圆啊<img src="https://static.saraba1st.com/image/s
 
 大沙漠有个蓝色宝箱写着cool要怎么开？互动后就给个蓝框也没提示的
 
+
+*****
+
+####  lucky95  
+##### 1414#       发表于 2024-5-4 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64805044&amp;ptid=1978008" target="_blank">birdma 发表于 2024-5-4 07:53</a>
+大沙漠有个蓝色宝箱写着cool要怎么开？互动后就给个蓝框也没提示的</blockquote>
+看看有没有靶子，不是跳跳乐小游戏就是打靶
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  lucky95  
+##### 1415#       发表于 2024-5-4 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804982&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-5-4 07:16</a>
+我倒是觉得沙漠的建筑残骸还有超级管道那些挺有意思的，楼顶各种跳跳乐也还好，跟废土差异化还是挺大。堆 ...</blockquote>
+妈的被一堆机器人围着lj连按键都按不出来怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

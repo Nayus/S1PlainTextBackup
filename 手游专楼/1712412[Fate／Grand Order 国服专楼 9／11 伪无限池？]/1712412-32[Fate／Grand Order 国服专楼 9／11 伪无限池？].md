@@ -704,3 +704,16 @@ QP和骑饼干突然成两 ...</blockquote>
 
 有些任务好像还是分配不是很均匀啊，机械和骨系怎么还有差的，甚至七丘城5次都打完了还不够
 
+
+*****
+
+####  lcn  
+##### 46370#       发表于 2024-5-5 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64793774&amp;ptid=1712412" target="_blank">6030sylar 发表于 2024-5-2 21:04</a>
+这剧情算牛了扎比子吗</blockquote>
+我看苦主不是出来认领了吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

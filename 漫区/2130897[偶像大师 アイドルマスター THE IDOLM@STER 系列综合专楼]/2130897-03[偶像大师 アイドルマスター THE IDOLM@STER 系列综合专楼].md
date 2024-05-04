@@ -9982,3 +9982,13 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 信号灯三首听完，各人排名大概是蓝&gt;红&gt;黄。蓝和红的编曲和mv感觉和黄就不在一个次元，但是很让人担心年轻声优的live表现
 
+
+*****
+
+####  Seeley  
+##### 3929#       发表于 2024-5-4 15:29
+
+怎么还能比氢氧化钾的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">baba的曲子拿出来全杀了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

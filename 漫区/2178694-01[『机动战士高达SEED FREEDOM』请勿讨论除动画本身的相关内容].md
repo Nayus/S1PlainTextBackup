@@ -9199,3 +9199,18 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">台词实在是太让人尴尬了😅😅😅，文戏部分肉麻到我jio趾抠地。
 感觉卡咖喱可能在全程“不对，他/她有病吧？！”
 
+
+*****
+
+####  poonhk  
+##### 756#       发表于 2024-5-4 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808263&amp;ptid=2178694" target="_blank">kanago 发表于 2024-5-4 16:09</a>
+
+台词实在是太让人尴尬了😅😅😅，文戏部分肉麻到我jio趾抠地。
+
+感觉卡咖喱可能在全 ...</blockquote>
+卡咖喱在国际会议偏私，鸡在作战会议耍情绪，只能说真不愧是姐弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过剧情本来就很乱来，别人越境你对市区射核弹还击，不管是不是意外竟然还能摆出追究责任的嘴脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

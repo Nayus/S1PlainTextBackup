@@ -10102,3 +10102,13 @@ spitz都开始在dc群里爆典说steam允许重名没法ban人了</blockquote>
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  ravend233  
+##### 3928#       发表于 2024-5-4 18:00
+
+cdk买的，只能看能不能逼出特殊退款的乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

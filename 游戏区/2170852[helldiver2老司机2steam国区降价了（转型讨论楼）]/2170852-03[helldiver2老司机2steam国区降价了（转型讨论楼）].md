@@ -9364,3 +9364,16 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 本来上次平衡补丁就已经让社区不满情绪泛滥了，新的通行证又是给你塞一堆垃圾
 箭头他爹索尼一个爹味公告直接就把社区彻底点燃了，箭头的社区经理还在dc里嘲讽玩家你们难道没有psn账号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鸽子  
+##### 3858#       发表于 2024-5-4 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64805583&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-4 09:55</a>
+本来上次平衡补丁就已经让社区不满情绪泛滥了，新的通行证又是给你塞一堆垃圾
+箭头他爹索尼一个爹味公告直 ...</blockquote>
+这波绝对能竞争年度最强运营连招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

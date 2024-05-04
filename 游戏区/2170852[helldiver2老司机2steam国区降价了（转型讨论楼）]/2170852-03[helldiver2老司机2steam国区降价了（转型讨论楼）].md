@@ -10227,3 +10227,35 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是第几个FW刀CM被发现暴言速锁推特了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">先不说他们的抽象BAN人效率，用索尼的剑斩STEAM的人也太宇宙爹权了，就不能接个VAC举报吗
 
+
+*****
+
+####  xinfengj  
+##### 3940#       发表于 2024-5-4 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809731&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-4 19:26</a>
+
+无人在意的角落，这次几乎不可能完成的指令要完成了</blockquote>
+N9刷很快的，灭虫塔那个任务白送一样，另外一个任务一般是歼灭扔扔红战备，最后一个任务要么是闪电战要么是炸虫卵，虫卵还有新的空爆筒子可以隔着一百米远程拆。
+
+不拿样本的话基本半个小时就做完一轮三个，放假这几天随便打了打都从八十级升九十多级了
+
+*****
+
+####  13640128732  
+##### 3941#       发表于 2024-5-4 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809538&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-5-4 19:02</a>
+
+索尼准备搞个PC版的PSN好像也就是最近一年内的事情，一代都是上世代初期的游戏了，咋可能要绑定，不过EA ...</blockquote>
+ubi是一开始就说了要uplay账号，不想注册可以不买，而且也没有国家地区限制ea是出了origin就直接不在steam卖了，过几年回来也是说清楚要ea账号
+
+QQ截图20240504195124.png
+(18.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 19:52 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/195201x68bteetvbobpbf8.png" referrerpolicy="no-referrer">
+

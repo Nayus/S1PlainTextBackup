@@ -9304,3 +9304,14 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 这逼游戏可以提前荣登我今年买的最后悔的游戏了
 
+
+*****
+
+####  遗尿  
+##### 3852#       发表于 2024-5-4 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804779&amp;ptid=2170852" target="_blank">陈词与芍药 发表于 2024-5-4 03:57</a>
+—— 来自 S1Fun</blockquote>
+啊？绑定psn会被封？我一开始就绑定了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -9840,3 +9840,16 @@ image.png
 还有真去读完用户协议的啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进去直接搜PSN或者SONY相关词条就好了，这种主要是单独搜也是一大坨看的眼花就是了
 
+
+*****
+
+####  xinfengj  
+##### 3903#       发表于 2024-5-4 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804793&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-4 04:07</a>
+又没说错，人家说不愿意注册psn账号就去steam打差评，在dc喷没用啊。
+
+要放图也是应该放那句我以为你退款 ...</blockquote>
+<img src="https://p.sda1.dev/17/af2d5b68d2d40bc9859f0f4f9c485332/1714808231575.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

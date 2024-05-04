@@ -9974,3 +9974,11 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 这几坨真不如koh把目前看来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Swss  
+##### 3928#       发表于 2024-5-4 15:07
+
+信号灯三首听完，各人排名大概是蓝&gt;红&gt;黄。蓝和红的编曲和mv感觉和黄就不在一个次元，但是很让人担心年轻声优的live表现
+

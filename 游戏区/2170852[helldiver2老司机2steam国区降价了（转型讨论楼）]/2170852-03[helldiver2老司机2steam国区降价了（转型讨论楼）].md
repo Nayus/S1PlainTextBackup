@@ -9531,3 +9531,34 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  卡拉德利姆  
+##### 3876#       发表于 2024-5-4 12:38
+
+gaas玩家的福报<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不过他们又要赶着去下一个场子做赛博黑奴了
+
+*****
+
+####  Launce  
+##### 3877#       发表于 2024-5-4 12:38
+
+<img src="https://img.saraba1st.com/forum/202405/04/123754krjiiivovzmhggb3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 12:37 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/123800oth8zak76uran0an.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 12:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉明天全部评测就褒贬不一了
+

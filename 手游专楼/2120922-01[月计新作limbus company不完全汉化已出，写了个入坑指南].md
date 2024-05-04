@@ -573,3 +573,29 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">镜牢最后一层选道具池小的好像低级道具前面全拿了的话选项和商店就只会刷池子里面的高级道具了
 
+
+*****
+
+####  实验性  
+##### 681#       发表于 2024-5-4 12:38
+
+困难镜牢的亚哈真难打啊
+
+<img src="https://img.saraba1st.com/forum/202405/04/123547y8ss9uaudp22v9nj.png" referrerpolicy="no-referrer">
+
+<strong>518.png</strong> (447.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 12:35 上传
+
+
+*****
+
+####  Jamaisvu  
+##### 682#       发表于 2024-5-4 12:41
+
+<blockquote>Yuzutea 发表于 2024-5-4 12:31
+镜牢最后一层选道具池小的好像低级道具前面全拿了的话选项和商店就只会刷池子里面的高级道具了 ...</blockquote>
+原来如此，我习惯把体系外的东西卖了，导致商店什么都有...选包的时候斟酌一下感觉最后可以赌出来月之记忆。
+

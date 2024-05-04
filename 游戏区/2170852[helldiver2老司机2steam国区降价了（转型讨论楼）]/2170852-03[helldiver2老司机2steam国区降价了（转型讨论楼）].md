@@ -10345,3 +10345,21 @@ QQ截图20240504195124.png
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你索都能搞出倒收你欠的会员费烂活，居然还想着开放退款
 
+
+*****
+
+####  h122h  
+##### 3949#       发表于 2024-5-4 20:19
+
+不知道之前那个twitch drop的事情大家知不知道，就是好像是游戏刚出那会有twitch drop活动掉个皮肤的兑换key，可以选ps5或者steam，然后好像没多久key就断货了，即使你已经挂到了twitch drop，兑换页面也显示没key了。然后也是去官方discrod问，好像也是什么社区经理回复说是索尼那边没给key。导致现在这个皮肤的key好像价格还涨了蛮高了。
+
+
+*****
+
+####  2stage  
+##### 3950#       发表于 2024-5-4 20:24
+
+steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨论怎么写小作文退款，还有人在联系律师准备开告。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

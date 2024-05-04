@@ -9967,3 +9967,11 @@ ED1B94D69219E7BE0BB6EEA81C4B6E4C.jpg
 
 这波索尼太离谱了，只能说一句有索不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  daikejay  
+##### 3914#       发表于 2024-5-4 16:32
+
+我买的Key而且都两百小时了肯定没法退，属于是贪小便宜吃大亏，只能给你把差评举报都给你安排了，就算我多年PSN会员也懒得绑，上都不想上线，不是每个人都像你们索狗一样喜欢认爹，发个爹味公告真以为自己很幽默是吧，先滚回去学下做人再来做GAAS吧
+

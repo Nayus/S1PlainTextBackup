@@ -9956,3 +9956,13 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 一想到今天晚上也是个十级vo音准飘得有点多的主就头痛。只能期待翔哥的曲子了。
 
+
+*****
+
+####  raimouse  
+##### 3926#       发表于 2024-5-4 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到不少人都觉得不好听，我放心了
+
+虽然小黄是真的可爱
+

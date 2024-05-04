@@ -6306,3 +6306,19 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 特地叫个风真就为了这啊
 
+
+*****
+
+####  holoan  
+##### 8737#         楼主| 发表于 2024-5-4 14:49
+
+<img src="https://img.saraba1st.com/forum/202405/04/144835we7wwtwf0trdhrif.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 14:48 上传
+
+前提概要：korone前两天要耐久通关这个游戏，最后被折磨疯了中途放弃耐久失败
+

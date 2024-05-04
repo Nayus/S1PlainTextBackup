@@ -24,3 +24,13 @@
 
 玩了个开头，太像PSP上的纸箱战机W跟高达AGE了，连打击感都是，估计后期又是各种刷零件，还是BANDAI的机器人好玩
 
+
+*****
+
+####  crosz1985  
+##### 62#       发表于 2024-5-5 07:21
+
+这游戏还支持跨平台存档，想再买一份5版了，switch版战斗有点卡
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

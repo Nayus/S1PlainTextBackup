@@ -10010,3 +10010,11 @@ KOH is god<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 KOH写kpop都能打赢美波，这根本没法同台经济
 
+
+*****
+
+####  koodooliz  
+##### 3932#       发表于 2024-5-4 20:03
+
+这就是策略啊，你歌写得好？你有名气嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

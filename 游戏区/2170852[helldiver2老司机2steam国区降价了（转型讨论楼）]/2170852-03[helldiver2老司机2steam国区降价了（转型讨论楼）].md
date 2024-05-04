@@ -10259,3 +10259,36 @@ QQ截图20240504195124.png
 
 <img src="https://img.saraba1st.com/forum/202405/04/195201x68bteetvbobpbf8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 3942#       发表于 2024-5-4 20:00
+
+<img src="https://img.saraba1st.com/forum/202405/04/195910cqxdxnp4ndoknvjn.png" referrerpolicy="no-referrer">
+
+<strong>LI5I)$C1)A`RUU~EKCM@BW7.png</strong> (247.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 19:59 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/195910sikoooyoo6cco9pe.png" referrerpolicy="no-referrer">
+
+<strong>0F_)3J3~_Q$CTDZGQSB1S)9.png</strong> (173.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 19:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是孝子说的独立工作室吗，真是独独又立立
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三个真把我幽默到了
+
+
+*****
+
+####  Mr.Hopp  
+##### 3943#       发表于 2024-5-4 20:03
+
+独立只是说没被收购吧，但这个游戏是索尼出钱做的，说白了索尼就是甲方，而且是强势的那种。
+

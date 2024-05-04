@@ -10430,3 +10430,39 @@ lv1大概率只有清夏能听 放出来4个里面只有她是摆烂 剩下5个�
 
 我觉得这首声优自己都快唱笑场了，突出一个放飞自我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ruriko_  
+##### 3981#       发表于 2024-5-4 23:48
+
+太难绷了，这花组三合一唱的还不如前仨<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 3982#       发表于 2024-5-4 23:51
+
+其他几个企划，近年来有没有什么特别出众的“爆款曲”？
+自己知道的，除去梗曲大概是voyager和sos？不过这俩好像也有段时间了。
+（是情弱新人，若说错抱歉）
+
+
+*****
+
+####  magicc  
+##### 3983#       发表于 2024-5-4 23:55
+
+爆款的话，感觉只有SOS一首<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 3984#       发表于 2024-5-4 23:56
+
+ 本帖最后由 rgauss 于 2024-5-4 23:57 编辑 
+
+fashionable
+
+这一提让我想到四字母给柏上个活动的曲子了 笑了半天<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

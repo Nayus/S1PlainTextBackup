@@ -9664,3 +9664,43 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202405/04/131415ef7ndfmsrbzenvrv.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鸽子  
+##### 3887#       发表于 2024-5-4 13:40
+
+ 本帖最后由 大肥鸽子 于 2024-5-4 13:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64807060&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-4 13:12</a>
+只能说索尼的gaas梦想大概又要破灭了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v ...</blockquote>
+索尼估计也懵了，讲道理索尼和箭头要是一开始就把这事跟玩家理清楚，现在何至于此呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  白昼梦  
+##### 3888#       发表于 2024-5-4 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计索尼还是继续装死，然后这波差评过去在线降完也就完事了
+
+*****
+
+####  大肥鸽子  
+##### 3889#       发表于 2024-5-4 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64807288&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-4 13:41</a>
+估计索尼还是继续装死，然后这波差评过去在线降完也就完事了</blockquote>
+不装死的话要么放弃强制绑psn要么退钱，想想都不可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  Aeons  
+##### 3890#       发表于 2024-5-4 13:45
+
+装就装呗，这事不占理，听说是可以退款的，退款了谁还管你装不装死。
+

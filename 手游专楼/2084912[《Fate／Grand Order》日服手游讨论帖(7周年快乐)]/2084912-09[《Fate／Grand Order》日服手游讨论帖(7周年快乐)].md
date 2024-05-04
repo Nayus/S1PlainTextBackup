@@ -7612,3 +7612,11 @@ fsr光荣23-24财报是41万
 小山觉得成年三人组里，草十郎的样 ...</blockquote>
 我觉得草十郎的样子很合适啊，适应了社会磨平棱角不就是一副平平无奇的模样，甚至给人感觉这些日子过得很平稳有些感动
 
+
+*****
+
+####  khxooo  
+##### 12697#       发表于 2024-5-4 23:38
+
+最高难的过了，巴姐的主场啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

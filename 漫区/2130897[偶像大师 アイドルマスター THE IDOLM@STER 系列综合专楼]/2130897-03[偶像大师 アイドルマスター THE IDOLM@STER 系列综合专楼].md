@@ -10379,3 +10379,54 @@ lv1大概率只有清夏能听 放出来4个里面只有她是摆烂 剩下5个�
 
 不行了，我二偶的歌曲也听了好几个企划的，怎么都是录音室版本你学马听感还明显低一个档次的。看到有人评价莉波这首“唱歌方面游走于走调和不走调之间”真是绷不住了。
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3974#       发表于 2024-5-4 23:41
+
+不是说这一次企划集合这么多资源是有点像赌国运造出来的企划吗，怎么搞成这样，养成系是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 3975#       发表于 2024-5-4 23:42
+
+前两天还可以说声优业务能力不行，这两天的也是这样，只能认为故意让唱成这样的吧，感觉有的地方就是单纯放飞自我了，特别是今天这首，不自然的地方太多了，如果是标准化要求肯定是要重录的。学马仕这盘棋有点看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 3976#       发表于 2024-5-4 23:42
+
+能不能把钱分点给scsp
+
+*****
+
+####  野菜一日分  
+##### 3977#       发表于 2024-5-4 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然找CV应该是集体作业，但制作人肯定有不小话语权，这么一比六字跟元石原真是没得比吧
+
+*****
+
+####  l3r0nY@  
+##### 3978#       发表于 2024-5-4 23:46
+
+我也觉得有点在快跑调的边缘上，不过还挺喜欢这种微妙的听感的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 3979#       发表于 2024-5-4 23:46
+
+还没听，不过看你们评价怎么比昨天小黄还难听的样子，有点慌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 3980#       发表于 2024-5-4 23:47
+
+我觉得这首声优自己都快唱笑场了，突出一个放飞自我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

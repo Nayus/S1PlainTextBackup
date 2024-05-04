@@ -74,3 +74,13 @@
 
 试过黑猫+光龙100%弱耐，想着诅咒的随机2DB我能净化但是起码满豆的特动DB不吃，但原来中了诅咒是DB必中依然满身DB，傻逼四字母这是小孩子打架吗，你反弹我我反弹你你再反弹我<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17903#       发表于 2024-5-4 23:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">高达FA实在是太慢了，奥义动画太长了，一开始纯纯日钢板
+
+暗船。。。你能拿得出差不多的盘子和配置其实不难，我2诺短2uni2联通LOW王，路+涂鸦再带个缇可，Q宙斯随便打了
+

@@ -7549,3 +7549,16 @@ fsr光荣23-24财报是41万
 我只是觉得，草十郎 ...</blockquote>
 所以她不是一开始就是自己轻敌了
 
+
+*****
+
+####  rollingusagi  
+##### 12692#       发表于 2024-5-4 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64807062&amp;ptid=2084912" target="_blank">空彦秋 发表于 2024-5-4 13:13</a>
+
+但问题是这活她处理不了，也不至于不找帮手吧，实际剧情最后不还有咕哒参合了一脚。
+
+我只是觉得，草十郎 ...</blockquote>
+她就是不愿意找帮手啊，就是打算全部自己一个人干，你还是小看青子的倔了，她要真愿意找帮手那第一天就把全部事情和有珠咕哒一说不就ok了吗，那自己也不用一直拿命去挡愿望
+

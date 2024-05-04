@@ -9806,3 +9806,37 @@ image.png
 
 我说怎么dc不管什么大便公告进去看都是什么国旗表情，红迪看了看还删表情的？
 
+
+*****
+
+####  狂风DKC  
+##### 3900#       发表于 2024-5-4 15:38
+
+“昨天晚上 Discord上开发组回复某位玩家“要么回调要么等着丢掉玩家基础”的观点时这么说：“我觉得你可以现在退款走人了（Refund and leave）” 合着箭头也是想着爱玩玩不玩滚呗”
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然鹅泥潭的孝子还在维护他爹爹只是菜不是坏
+
+*****
+
+####  白昼梦  
+##### 3901#       发表于 2024-5-4 15:38
+
+<img src="https://img.saraba1st.com/forum/202405/04/153814kbwdq3whbwb709b9.jpg" referrerpolicy="no-referrer">
+
+<strong>103c9c134954092382555f43d458d109b3de4958.jpg</strong> (49.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 15:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有真去读完用户协议的啊
+
+*****
+
+####  Launce  
+##### 3902#       发表于 2024-5-4 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808049&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-4 15:38</a>
+
+还有真去读完用户协议的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进去直接搜PSN或者SONY相关词条就好了，这种主要是单独搜也是一大坨看的眼花就是了
+

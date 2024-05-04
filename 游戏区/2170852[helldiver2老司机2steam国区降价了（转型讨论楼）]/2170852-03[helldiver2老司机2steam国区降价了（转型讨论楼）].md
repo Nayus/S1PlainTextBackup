@@ -9355,3 +9355,12 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 我还以为steam玩家被动暴eaplayu狂暴鸿儒这么多年已经躺平了呢，主要还是这社区经理太逆天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  北条早苗  
+##### 3857#       发表于 2024-5-4 09:55
+
+本来上次平衡补丁就已经让社区不满情绪泛滥了，新的通行证又是给你塞一堆垃圾
+箭头他爹索尼一个爹味公告直接就把社区彻底点燃了，箭头的社区经理还在dc里嘲讽玩家你们难道没有psn账号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

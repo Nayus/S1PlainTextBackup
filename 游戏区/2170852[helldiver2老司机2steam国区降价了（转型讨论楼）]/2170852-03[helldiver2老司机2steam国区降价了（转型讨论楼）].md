@@ -10056,3 +10056,14 @@ spitz都开始在dc群里爆典说steam允许重名没法ban人了<img src="http
 1代我记得也不用绑psn吧</blockquote>
 一代没火出圈啊，索尼就是来摘桃子的
 
+
+*****
+
+####  FLZB  
+##### 3924#       发表于 2024-5-4 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808872&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-4 17:35</a>
+
+spitz都开始在dc群里爆典说steam允许重名没法ban人了</blockquote>
+有被弱智到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

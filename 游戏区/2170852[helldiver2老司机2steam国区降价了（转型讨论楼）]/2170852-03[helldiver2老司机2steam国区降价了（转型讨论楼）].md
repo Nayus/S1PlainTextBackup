@@ -10495,3 +10495,12 @@ DC上披露,只写这些关键内容就可以,投人工客服.
 
 吃鸡普及steam，这游戏是想普及一波psn么，我发现很多玩家对这个psn处于一头雾水，谣言满天飞的状态，狠狠的婊索尼或者箭头都没问题，但其实玩不了倒是真不至于，国区steam和港服psn都属于灰色地带，你都玩steam了就别考虑合规了，注册个港服psn绑了就完，不需要魔法上网，只需要切一下地区
 
+
+*****
+
+####  フカミ  
+##### 3963#       发表于 2024-5-4 23:13
+
+看了下绑定教程 不仅仅是注册个账号那么简单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要去C盘里删掉游戏的系统文件，这样游戏再打开的时候会重新弹出初次绑定界面。绑定跳转链接指向的是ps国区的网页，还要连续手动改两次网址里的cn为hk才能绑上。过程中可能还要挂hk节点的加速器或者梯子。
+逆天 不看教程估计是要琢磨好一会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

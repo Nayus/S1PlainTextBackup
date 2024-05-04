@@ -9588,3 +9588,21 @@ PSN集成这种从几年前就该做的事情能硬拖到现在，这不活该�
 因为要推广PC平台，马上对马岛也是要绑定psn获得奖杯和联机的。</blockquote>
 操死索尼了，马币的以后索尼的pc游戏不会也套自己的启动器吧？
 
+
+*****
+
+####  UNICORN00  
+##### 3881#       发表于 2024-5-4 13:02
+
+这就是管理式民主吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 3882#       发表于 2024-5-4 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806883&amp;ptid=2170852" target="_blank">天王寺綯 发表于 2024-5-4 12:53</a>
+
+操死索尼了，马币的以后索尼的pc游戏不会也套自己的启动器吧？</blockquote>
+之前死忠社区就有反映为啥不做自己的PC账号通用平台的，目前来看确实是在弄了
+

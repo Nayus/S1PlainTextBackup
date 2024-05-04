@@ -10549,3 +10549,40 @@ DC上披露,只写这些关键内容就可以,投人工客服.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">PS3的时候就注册过了，还买了好多年会员，不需要你教我怎么注册港服，不会以为自己那玩意多好用吧普及个锤子呢，自从你索爹改成睿智三档会员我也不续了，ps4也卖了，买的数字版游戏就当喂狗了我也不在乎，反正玩过了算沉没成本了。我就是不爽你这傻逼游戏开服没说过一个字要绑会员，现在蹦出来告诉你之前是你爹我宽限你的，现在不绑不让玩，真以为你是超级地球了敢命令我？真属于不是一家人不进一家门了，爹味都是祖传的，喜欢搞服从性测试是吧，以后沾上索尼的游戏我一个都不会买了
 
+
+*****
+
+####  stormquantage  
+##### 3969#       发表于 2024-5-5 00:24
+
+滑轨出公告了。这下好了，PS玩家成下等公民了。
+
+<img src="https://img.saraba1st.com/forum/202405/05/002144zsrawk0sjjz17z1j.jpg" referrerpolicy="no-referrer">
+
+<strong>Weixin Image_20240504122128.jpg</strong> (66.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 00:21 上传
+
+另外附一个英文的退款小作文：
+
+“The developers have announced that they will restrict my access to the game unless I sign up for and use a third-party service and account. This requirement was obfuscated at release and waived for three months, before it was announced as a REQUIREMENT to continue to play the game at all."
+
+deepl翻译：“开发商宣布，除非我注册并使用第三方服务和账户，否则他们将限制我访问游戏。这一要求在发布之初就被混淆了，并被豁免了三个月，之后才被宣布为继续玩这款游戏的必要条件"。” 其中第三方服务和账户这一条件很重要，修改的时候务必带上
+
+退款理由写："The multiplayer doesn't work"多人游戏不能玩
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 3970#       发表于 2024-5-5 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64812370&amp;ptid=2170852" target="_blank">stormquantage 发表于 2024-5-5 00:24</a>
+滑轨出公告了。这下好了，PS玩家成下等公民了。
+
+另外附一个英文的退款小作文：</blockquote>
+没看见啊，而且这日期是5月5
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

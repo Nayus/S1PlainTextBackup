@@ -10258,3 +10258,40 @@ IMG_3400.jpeg
 
 歌唱力真就一个比一个菜么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 3960#       发表于 2024-5-4 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811294&amp;ptid=2130897" target="_blank">枫紫 发表于 2024-5-4 22:32</a>
+
+歌唱力真就一个比一个菜么</blockquote>
+不仅游戏是养成模式，现实也要养成模式了
+
+
+*****
+
+####  940045933  
+##### 3961#       发表于 2024-5-4 22:42
+
+这选的都是什么人，业务水平太差了，连卖萌类型的角色歌都唱不好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萨文科夫  
+##### 3962#       发表于 2024-5-4 22:45
+
+声优都找的什么玩意
+
+*****
+
+####  PacificWind  
+##### 3963#       发表于 2024-5-4 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这次歌还好吧，至少挺完整唱下来不累人。
+
+就是MV越来越敷衍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

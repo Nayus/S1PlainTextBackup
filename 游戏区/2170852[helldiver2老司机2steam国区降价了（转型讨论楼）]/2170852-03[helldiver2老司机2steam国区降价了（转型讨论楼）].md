@@ -10479,3 +10479,19 @@ DC上披露,只写这些关键内容就可以,投人工客服.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">箭头是虫子，索尼是超级气球，玩家是地狱潜兵，这下全对上了
 
+
+*****
+
+####  kalavinka  
+##### 3961#         楼主| 发表于 2024-5-4 22:39
+
+写了小作文了，退款到了就买smtvv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  normalli  
+##### 3962#       发表于 2024-5-4 22:44
+
+吃鸡普及steam，这游戏是想普及一波psn么，我发现很多玩家对这个psn处于一头雾水，谣言满天飞的状态，狠狠的婊索尼或者箭头都没问题，但其实玩不了倒是真不至于，国区steam和港服psn都属于灰色地带，你都玩steam了就别考虑合规了，注册个港服psn绑了就完，不需要魔法上网，只需要切一下地区
+

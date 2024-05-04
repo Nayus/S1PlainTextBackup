@@ -9781,3 +9781,20 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个跟现实联动补完游戏世界观的是极乐迪斯科
 
+
+*****
+
+####  wincle  
+##### 3897#       发表于 2024-5-4 14:17
+
+动动小手，点个差评
+
+— from Xiaomi 2304FPN6DC, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0-alpha
+
+*****
+
+####  九十九忍  
+##### 3898#       发表于 2024-5-4 14:21
+
+那个暴典巨多的社区管理好像是箭头从社区招安的？
+

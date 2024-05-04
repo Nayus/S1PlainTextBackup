@@ -10444,3 +10444,38 @@ steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨
 
 现在SP等社区经理极力把箭头描述的弱小可怜又无助,在邪恶的索尼大魔王的掌中做一个仁波切任其摆布.
 
+
+*****
+
+####  Awanano  
+##### 3958#       发表于 2024-5-4 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810871&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-4 21:44</a>
+草，什么抽象玩意儿，我绷不住了
+
+现在SP等社区经理极力把箭头描述的弱小可怜又无助,在邪恶的索尼大 ...</blockquote>
+这索尼能忍啊，人要换种直接搞起来
+和矢头比顽皮狗简直是敢作敢当。居然敢把脏水泼给亲爹，太不合礼法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Launce  
+##### 3959#       发表于 2024-5-4 21:52
+
+贴吧看到的，漏油可以试试
+
+The developers have announced that they will restrict my access to the game unless I sign up for and use a third-party service and account. This requirement was obfuscated at release and waived for three months, before it was announced as a REQUIREMENT to continue to play the game at all.
+
+DC上披露,只写这些关键内容就可以,投人工客服.
+
+根据软件从业者指出,具体在退款申请中指出开发商要求强制绑定第三方平台对STEAM是个高度敏感的危险信号,容易被认真对待.尤其提及到这个要求是特意潜伏了三个月以至于每个人都错过了退款窗口后.
+
+*****
+
+####  ykyin09  
+##### 3960#       发表于 2024-5-4 21:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">箭头是虫子，索尼是超级气球，玩家是地狱潜兵，这下全对上了
+

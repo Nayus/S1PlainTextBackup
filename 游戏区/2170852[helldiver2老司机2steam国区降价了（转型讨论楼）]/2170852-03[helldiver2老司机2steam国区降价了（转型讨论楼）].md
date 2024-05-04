@@ -9315,3 +9315,14 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 啊？绑定psn会被封？我一开始就绑定了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sixgun  
+##### 3853#       发表于 2024-5-4 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64805140&amp;ptid=2170852" target="_blank">leafS 发表于 2024-5-4 08:27</a>
+
+这逼游戏可以提前荣登我今年买的最后悔的游戏了</blockquote>
++1
+

@@ -10174,3 +10174,33 @@ IMG_3400.jpeg
 
 我……我想起来了……我，我是，我是……莉波的制作人啊
 
+
+*****
+
+####  joshua1990  
+##### 3949#       发表于 2024-5-4 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">中规中矩，只能说今天的歌唱力也还是一如既往的没能让人有期待
+
+*****
+
+####  六至九  
+##### 3950#       发表于 2024-5-4 22:09
+
+没错我就是莉波P
+
+*****
+
+####  安广多惠子  
+##### 3951#       发表于 2024-5-4 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">妥妥的花组第四人，跟花组换歌唱都不会有违和感
+
+
+*****
+
+####  magicc  
+##### 3952#       发表于 2024-5-4 22:13
+
+花组三合一
+

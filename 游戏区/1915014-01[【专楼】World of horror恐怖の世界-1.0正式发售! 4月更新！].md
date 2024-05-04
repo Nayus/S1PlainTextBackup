@@ -33,3 +33,82 @@
 
 2024-5-4 21:42 上传
 
+
+*****
+
+####  Tnsbilws  
+##### 308#         楼主| 发表于 2024-5-4 22:09
+
+ 本帖最后由 Tnsbilws 于 2024-5-4 22:13 编辑 
+
+如何上传MOD至创意工坊
+     1.如何打开上传器。（假设你已经更新至1.02）
+在游戏刚开始加载的时候按下键盘的M键即可打开。（如下）
+
+<img src="https://img.saraba1st.com/forum/202405/04/220324yjev8hzu3uu6nune.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220215.png</strong> (13.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/220324zum42319493ssudl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220306.png</strong> (96.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:03 上传
+
+   2.如何选择要上传的mod
+
+在上传器界面点击game directory，之后选择WOH的游戏根目录，之后在图三的界面选择你存MOD的文件夹。
+
+<img src="https://img.saraba1st.com/forum/202405/04/220454kwwwkaaaw5nvumwn.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220426.png</strong> (98.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/220455jzcy5cs5brsb5vzx.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220431.png</strong> (90.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/220455f7709lf0y26l9hzz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220444.png</strong> (38.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:04 上传
+
+  3.设置MOD上传选项
+
+如图，选择你的MOD类型
+
+之后再按照此图选择你需要的选项，点击上传即可。
+
+<img src="https://img.saraba1st.com/forum/202405/04/220924iv4kochqw4gym4da.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240504220855.png</strong> (176.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:09 上传
+
+QQ截图20240504220741.png
+(96.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/221302ym07ez1z8bef9xhp.png" referrerpolicy="no-referrer">
+

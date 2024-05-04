@@ -9460,3 +9460,11 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 索尼罪大滔天，搞到D百姓怨声载道+1
 
+
+*****
+
+####  Znesmoc  
+##### 3869#       发表于 2024-5-4 11:16
+
+引爆火药桶的导火索<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

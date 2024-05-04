@@ -80,3 +80,36 @@ ai的cv是ac6艾尔的cv吗？动画里没标，感觉那电波声线很像还�
 
 之前不听AI的话原来是因为音量太小吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 292#       发表于 2024-5-4 11:18
+
+总算观感正常了点，AI我没印象前面怎么讲这个规则了，还有好多AI车手直接预选被刷掉了。主角这AI是真正跨时代的挂么？好像还有点个性
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  UnrealApartheid  
+##### 293#       发表于 2024-5-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804514&amp;ptid=2081261" target="_blank">woeiqp00 发表于 2024-05-04 02:07:08</a>
+ai的cv是ac6艾尔的cv吗？动画里没标，感觉那电波声线很像 v2.5.4</blockquote>AI的声优是田村由香里，与装甲核心6的不是同一位
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  X(iaolw)S  
+##### 294#       发表于 2024-5-4 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804514&amp;ptid=2081261" target="_blank">woeiqp00 发表于 2024-5-4 02:07</a>
+
+ai的cv是ac6艾尔的cv吗？动画里没标，感觉那电波声线很像还一样很重
+
+—— 来自 Xiaomi 2312 ...</blockquote>
+田村啊，AI叫ami
+

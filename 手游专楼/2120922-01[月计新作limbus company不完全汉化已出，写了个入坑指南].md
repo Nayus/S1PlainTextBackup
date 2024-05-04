@@ -545,3 +545,11 @@
 
 不过各种饰品的获取还是挺随机的，四层改五层说不定是想着万一道中运气好合出来了可以多爽一层？
 
+
+*****
+
+####  实验性  
+##### 678#       发表于 2024-5-4 11:22
+
+玛玛的新EGO好强啊，概率7币，还吃血雾，这水平竟然只是HE级<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

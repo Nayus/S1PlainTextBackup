@@ -10609,3 +10609,15 @@ deepl翻译：“开发商宣布，除非我注册并使用第三方服务和账
 你对命运2年7预购数据不乐观有什么看法么，社区已经用脚投票了</blockquote>
 希望对现状不满艺的玩家都能不买吧，我还是有几个好友前几周换上了预购年7豪华版的三角舰飞船，只能说铁杆黑奴还是有的
 
+
+*****
+
+####  UNICORN00  
+##### 3973#       发表于 2024-5-5 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811394&amp;ptid=2170852" target="_blank">normalli 发表于 2024-5-4 22:44</a>
+吃鸡普及steam，这游戏是想普及一波psn么，我发现很多玩家对这个psn处于一头雾水，谣言满天飞的状态，狠狠 ...</blockquote>
+steam怎么就灰色地带了？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

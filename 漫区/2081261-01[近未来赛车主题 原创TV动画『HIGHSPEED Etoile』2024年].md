@@ -189,3 +189,27 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 这个片子开车靠AI，甚至有AI车手，整备不需要人手。线下开车图啥呢，图一个失误在护栏上创似吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。在家开把游戏不好吗
 
+
+*****
+
+####  藤原彩花  
+##### 303#       发表于 2024-5-5 00:19
+
+脑内模拟可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/05/001748vzjqushouum65zqm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (193.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/001905on14ja9r1yrsg1pw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 00:19 上传
+

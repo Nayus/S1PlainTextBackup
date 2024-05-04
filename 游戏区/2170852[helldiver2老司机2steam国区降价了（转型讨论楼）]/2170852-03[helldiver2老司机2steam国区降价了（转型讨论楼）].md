@@ -10112,3 +10112,13 @@ cdk买的，只能看能不能逼出特殊退款的乐子了<img src="https://st
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Awanano  
+##### 3929#       发表于 2024-5-4 18:20
+
+sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账户发售就得绑。即便是技术无能这次这个乐子也是有点赖了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

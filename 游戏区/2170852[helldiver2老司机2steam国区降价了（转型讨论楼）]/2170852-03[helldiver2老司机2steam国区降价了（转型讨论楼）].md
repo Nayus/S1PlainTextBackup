@@ -10067,3 +10067,38 @@ spitz都开始在dc群里爆典说steam允许重名没法ban人了<img src="http
 spitz都开始在dc群里爆典说steam允许重名没法ban人了</blockquote>
 有被弱智到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白昼梦  
+##### 3925#       发表于 2024-5-4 17:46
+
+<img src="https://img.saraba1st.com/forum/202405/04/174639vjetz7xxtg4eg4sr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240504174623.png</strong> (70.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 17:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天申请退款自己写了两句，不到一个小时就被驳回了。
+
+今天吵了贴吧那个小作文又往下面把小作文机翻了一遍一起挂上去，跟昨天差不多时间都是一点多提交，结果到现在还没客服反馈
+
+*****
+
+####  smdzh2  
+##### 3926#       发表于 2024-5-4 17:49
+
+等回家就试试退款，感觉好久没有写英语小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大肥鸽子  
+##### 3927#       发表于 2024-5-4 17:54
+
+上次写英语小作文还是为了改wows账号生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

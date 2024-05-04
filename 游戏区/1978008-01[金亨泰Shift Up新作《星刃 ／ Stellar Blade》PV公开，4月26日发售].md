@@ -7391,3 +7391,13 @@ tp点不全给篝火以及大地图不能随时tp真的是垃圾设计，通马�
 
 一周目te通关，挖坑续作味太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真空管  
+##### 1438#       发表于 2024-5-4 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808725&amp;ptid=1978008" target="_blank">zqqwe 发表于 2024-5-4 17:14</a>
+一周目te通关，挖坑续作味太冲了最终boss和渡鸦还是压制流打得顺畅，不过渡鸦那bgm棒团味顶不住[f:1 ...</blockquote>
+这棒团味不是和这cat fight很相称吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

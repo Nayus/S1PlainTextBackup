@@ -9940,3 +9940,19 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 小红和小蓝没有是因为唱完直接躺了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 3924#       发表于 2024-5-4 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">听完表三家已经绝望了
+
+
+*****
+
+####  ViviR  
+##### 3925#       发表于 2024-5-4 13:53
+
+一想到今天晚上也是个十级vo音准飘得有点多的主就头痛。只能期待翔哥的曲子了。
+

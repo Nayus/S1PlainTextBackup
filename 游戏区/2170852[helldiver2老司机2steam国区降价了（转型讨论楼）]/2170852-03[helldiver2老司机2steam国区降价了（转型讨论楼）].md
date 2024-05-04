@@ -9326,3 +9326,32 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 这逼游戏可以提前荣登我今年买的最后悔的游戏了</blockquote>
 +1
 
+
+*****
+
+####  大肥鸽子  
+##### 3854#       发表于 2024-5-4 09:27
+
+看看差评能不能冲到5万吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  oidoid  
+##### 3855#       发表于 2024-5-4 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64804779&amp;ptid=2170852" target="_blank">陈词与芍药 发表于 2024-5-4 03:57</a>
+—— 来自 S1Fun</blockquote>
+<img src="https://p.sda1.dev/17/cabbe342f45bdd15aadc88045889c77e/CMP_20240504092653307.png" referrerpolicy="no-referrer">
+这是外国佬看错国内的信息了，这个是国内的psn被盗了之后被封了
+不过结论倒是没有变，因为索尼曾经有过大规模泄露用户信息的丑闻，所以就安全性来说也没办法信任psn
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 3856#       发表于 2024-5-4 09:36
+
+我还以为steam玩家被动暴eaplayu狂暴鸿儒这么多年已经躺平了呢，主要还是这社区经理太逆天吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

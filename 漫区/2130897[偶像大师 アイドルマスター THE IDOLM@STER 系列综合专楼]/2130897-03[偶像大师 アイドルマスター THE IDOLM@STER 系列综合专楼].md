@@ -10482,3 +10482,13 @@ fashionable
 
 真正爆款就只有sos了，各种mmd翻跳里很多观众都不知道是黛专的歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Laie  
+##### 3987#       发表于 2024-5-5 01:08
+
+SOS出圈，想了想学马仕目前的选曲还真有点把tiktok爆款可能的模板都踩一遍，说不定就能再复刻一次SOS的意思，然而这唱出来的效果就（
+
+剩下的按流媒体播放量算的话就变成嘘组无双了吧，然而学马仕对kpop又有点欲拒还迎的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

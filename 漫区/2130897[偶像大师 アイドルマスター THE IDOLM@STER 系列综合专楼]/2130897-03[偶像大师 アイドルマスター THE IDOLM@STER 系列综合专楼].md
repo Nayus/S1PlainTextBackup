@@ -10548,3 +10548,12 @@ fashionable只能说在大帅圈里可以吧，出圈是不可能出的，上次
 
 原来是黛专的歌吗
 
+
+*****
+
+####  Erikas  
+##### 3995#       发表于 2024-5-5 06:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 爆款没有，只能说有爆款潜质的，这年头想火请加油买量
+sos当初solo专出的时候哪有话题度，后来找头部管人宣传才堆上去的，看看sc为了火一把都活成啥扭曲样子了
+

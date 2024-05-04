@@ -10717,3 +10717,15 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202405/05/051741i3vleld1wx3qqv4e.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鸽子  
+##### 3977#       发表于 2024-5-5 06:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64813828&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-5 05:08</a>
+10万牛逼啊</blockquote>
+我本来以为能冲到5万就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

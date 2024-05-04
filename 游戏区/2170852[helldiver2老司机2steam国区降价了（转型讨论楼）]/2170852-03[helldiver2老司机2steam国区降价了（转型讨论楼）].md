@@ -10599,3 +10599,13 @@ deepl翻译：“开发商宣布，除非我注册并使用第三方服务和账
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 看了看好想是假的，删了删了
 
+
+*****
+
+####  Variks  
+##### 3972#       发表于 2024-5-5 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810606&amp;ptid=2170852" target="_blank">m98626 发表于 2024-5-4 21:10</a>
+你对命运2年7预购数据不乐观有什么看法么，社区已经用脚投票了</blockquote>
+希望对现状不满艺的玩家都能不买吧，我还是有几个好友前几周换上了预购年7豪华版的三角舰飞船，只能说铁杆黑奴还是有的
+

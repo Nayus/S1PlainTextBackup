@@ -7489,3 +7489,35 @@ fsr光荣23-24财报是41万
 
 今早单抽出了青子，接下来去有珠池碰碰运气了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 12689#       发表于 2024-5-4 12:32
+
+ 本帖最后由 シャル 于 2024-5-4 12:35 编辑 
+
+青子并不知道草十郎为了救她死了
+
+青子以为是草十郎是救有珠死的
+
+都不看剧情吗
+
+2BA571E4-407E-41B8-A8FE-DFB07BCE3BFC.png
+(698.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/123531l3v979vfmif41it4.png" referrerpolicy="no-referrer">
+
+766C6A4B-C5FD-4274-AB6E-34F0438757A3.png
+(750.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 12:35 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/123532j4wiwi5wzz55i7i4.png" referrerpolicy="no-referrer">
+

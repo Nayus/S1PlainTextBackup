@@ -7245,3 +7245,16 @@ ng+才发现村长身边那个老哥也有个任务链
  ...</blockquote>
 暗示鱼老板又要重蹈覆辙偷吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是他一直在说的要用到葡萄酒的祭典倒是一点下文都没了
 
+
+*****
+
+####  jacket  
+##### 1423#       发表于 2024-5-4 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806482&amp;ptid=1978008" target="_blank">真空管 发表于 2024-5-4 12:04</a>
+
+暗示鱼老板又要重蹈覆辙偷吃吧就是他一直在说的要用到葡萄酒的祭典倒是一点下文都没了 ...</blockquote>
+还有小机器人和歌姬任务线，如果小机器人不搬家，歌姬这边好像就找不到机会触发后续？
+
+我都做了所以没怎么在意，现在回想起来制作组是不是在尝试稍微复杂一点的多任务干涉。
+

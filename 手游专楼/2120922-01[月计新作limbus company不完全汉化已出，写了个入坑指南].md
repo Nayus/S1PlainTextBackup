@@ -565,3 +565,11 @@
 
 深黯军团：Me too.
 
+
+*****
+
+####  Yuzutea  
+##### 680#       发表于 2024-5-4 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">镜牢最后一层选道具池小的好像低级道具前面全拿了的话选项和商店就只会刷池子里面的高级道具了
+

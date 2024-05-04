@@ -10018,3 +10018,28 @@ KOH写kpop都能打赢美波，这根本没法同台经济
 
 这就是策略啊，你歌写得好？你有名气嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hlazd  
+##### 3933#       发表于 2024-5-4 20:08
+
+今天去看不相关管人live在排队和待机时都能听到周围人议论小黄这首，话题度和流量就这么来了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 3934#       发表于 2024-5-4 20:14
+
+这播放量也太少了，我怀疑除了老屁股外真的有吸引到人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+IMG_3400.jpeg
+(479.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 20:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/201309fb775w4537355qq3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

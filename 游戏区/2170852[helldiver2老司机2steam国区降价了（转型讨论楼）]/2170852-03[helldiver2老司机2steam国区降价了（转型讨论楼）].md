@@ -10292,3 +10292,56 @@ QQ截图20240504195124.png
 
 独立只是说没被收购吧，但这个游戏是索尼出钱做的，说白了索尼就是甲方，而且是强势的那种。
 
+
+*****
+
+####  Kojimaru  
+##### 3944#       发表于 2024-5-4 20:08
+
+这些社区经理有没有一个脑子正常的
+
+*****
+
+####  Launce  
+##### 3945#       发表于 2024-5-4 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810008&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-4 20:03</a>
+
+独立只是说没被收购吧，但这个游戏是索尼出钱做的，说白了索尼就是甲方，而且是强势的那种。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，那索尼这项目管理不就比XBOX还拉？强势控制还搞出各种运营烂活就算了，索索自己运营也是一坨，但你这游戏BUG品控也各种问题
+
+
+*****
+
+####  Mr.Hopp  
+##### 3946#       发表于 2024-5-4 20:13
+
+ 本帖最后由 Mr.Hopp 于 2024-5-4 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810040&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-4 20:08</a>
+
+草，那索尼这项目管理不就比XBOX还拉？强势控制还搞出各种运营烂活就算了，索索自己运营也是一坨， ...</blockquote>
+因为本来只是小众游戏，没想到意外大火。BUG这玩意，就欧美厂商的态度真是能玩就行。一直轮日厂技术不行，但除BUG这种事不得不服日厂的水平。
+
+游戏怎么改应该是箭头能做主的，但绑定账号这种事肯定索尼说了算。反正这几次更新后，PS5版恶性BUG少了很多，连闪退都不怎么有了，退一万步讲，PS基本盘没丢掉不是。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火华火华火  
+##### 3947#       发表于 2024-5-4 20:14
+
+真有种就开放退款呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Launce  
+##### 3948#       发表于 2024-5-4 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810093&amp;ptid=2170852" target="_blank">火华火华火 发表于 2024-5-4 20:14</a>
+
+真有种就开放退款呗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你索都能搞出倒收你欠的会员费烂活，居然还想着开放退款
+

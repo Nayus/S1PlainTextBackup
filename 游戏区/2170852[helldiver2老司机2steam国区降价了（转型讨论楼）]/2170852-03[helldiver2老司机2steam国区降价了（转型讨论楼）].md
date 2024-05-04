@@ -9494,3 +9494,14 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 毕竟是首发炸服时能淡定说出“现在我们要去睡一会”然后把玩家晒一晚上的顶级运营<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zid99825  
+##### 3873#       发表于 2024-5-4 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806310&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-4 11:39</a>
+
+看了一下别的地方发的，锁泥正在连夜改psn条款，看来主要的锅确实不在箭头，不过箭头招的这帮运营和 ...</blockquote>
+不就是成功之后的，爱玩玩不玩滚么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7231,3 +7231,17 @@ ng+才发现村长身边那个老哥也有个任务链
 — from OnePlus CPH2493, Android 14 of S1 Next Goose v2. ...</blockquote>
 查了视频攻略发现是迎击三波自爆无人机，但我这边没刷无人机就很搞笑，看来是遇到bug了
 
+
+*****
+
+####  真空管  
+##### 1422#       发表于 2024-5-4 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806333&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-4 11:43</a>
+一周目任务都做了，包里还有一个坏掉的密码机没看到后续。
+
+鱼老板吃葡萄给了个镜头，也不知道有没后续。
+
+ ...</blockquote>
+暗示鱼老板又要重蹈覆辙偷吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是他一直在说的要用到葡萄酒的祭典倒是一点下文都没了
+

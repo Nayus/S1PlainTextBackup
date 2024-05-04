@@ -10002,3 +10002,12 @@ ED1B94D69219E7BE0BB6EEA81C4B6E4C.jpg
 
 从箭畜的天才平衡到索尼这波，steam在线是肉眼可见的下跌，前两天这个点还有9万，现在只剩6万不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天王寺綯  
+##### 3918#       发表于 2024-5-4 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">太好了，省服务器资源了
+毕竟是宁可让玩家排队也不肯扩充服务器的厂商
+

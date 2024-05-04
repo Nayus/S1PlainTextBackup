@@ -10363,3 +10363,31 @@ steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  SinoWarrior  
+##### 3951#       发表于 2024-5-4 20:37
+
+有索不玩
+
+*****
+
+####  Launce  
+##### 3952#       发表于 2024-5-4 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808957&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-4 17:46</a>
+
+昨天申请退款自己写了两句，不到一个小时就被驳回了。
+
+今天吵了贴吧那个小作文又往下面把小作文机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这6小时了，还没回我小作文
+
+
+*****
+
+####  Mr.Hopp  
+##### 3953#       发表于 2024-5-4 20:45
+
+现在差不多又有10W潜兵在线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难怪索尼有恃无恐。
+

@@ -10054,3 +10054,25 @@ IMG_3400.jpeg
 不少了，毕竟新号。
 你看看34.6w订阅的爱马仕主企划油罐号，平时视频才多少播放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 3936#       发表于 2024-5-4 20:35
+
+然后我看了眼爱马仕频道注册时间，2020年7月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+万南负责爱马仕的高层及制作人，思想之落后与保守，可见一斑。
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 3937#       发表于 2024-5-4 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810037&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-5-4 20:08</a>
+今天去看不相关管人live在排队和待机时都能听到周围人议论小黄这首，话题度和流量就这么来了 ...</blockquote>
+不会是永雏塔菲吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我看地偶的朋友跟我吐槽说五一五天只有一天不是地偶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

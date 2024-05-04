@@ -10043,3 +10043,14 @@ IMG_3400.jpeg
 
 <img src="https://img.saraba1st.com/forum/202405/04/201309fb775w4537355qq3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 3935#       发表于 2024-5-4 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64810084&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-5-4 20:14</a>
+这播放量也太少了，我怀疑除了老屁股外真的有吸引到人吗</blockquote>
+不少了，毕竟新号。
+你看看34.6w订阅的爱马仕主企划油罐号，平时视频才多少播放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3951,3 +3951,16 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 [https://twitter.com/baiyuBYY/status/1786430043763482791](https://twitter.com/baiyuBYY/status/1786430043763482791)
 
+
+*****
+
+####  紫吹兰  
+##### 16651#         楼主| 发表于 2024-5-4 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802563&amp;ptid=2159415" target="_blank">cqc1021 发表于 2024-5-3 22:44</a>
+
+真不唱春日影啊JAPAN JAM会有视频吗？好想看音乐节的现场，气氛跟平时的live肯定不一样。
+
+——  ...</blockquote>
+春日影不管怎么说都是ccc的歌啊
+

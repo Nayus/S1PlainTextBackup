@@ -10295,3 +10295,40 @@ IMG_3400.jpeg
 
 就是MV越来越敷衍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Achlys  
+##### 3964#       发表于 2024-5-4 22:50
+
+前面企划的经验呢？企划的现实养成可以相信代哥吗？
+
+*****
+
+####  枫紫  
+##### 3965#       发表于 2024-5-4 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811369&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-5-4 22:41</a>
+
+不仅游戏是养成模式，现实也要养成模式了</blockquote>
+别说，这群人真大概率就那么想的
+
+红蓝还能用歌难洗，黄和今天这首那么简单的CD音源能唱成这样我已经不敢想象游戏里低等级时啥样了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kongxian  
+##### 3966#       发表于 2024-5-4 22:56
+
+今天的真是好“穷”啊，钱都用在蓝那了吗
+
+*****
+
+####  rgauss  
+##### 3967#       发表于 2024-5-4 22:57
+
+九个mv水平估计就手球高点
+
+lv1大概率只有清夏能听 放出来4个里面只有她是摆烂 剩下5个没有摆烂的吧
+

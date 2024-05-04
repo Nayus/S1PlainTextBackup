@@ -10637,3 +10637,83 @@ steam怎么就灰色地带了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10万牛逼啊
 
+
+*****
+
+####  Launce  
+##### 3975#       发表于 2024-5-5 05:15
+
+<img src="https://img.saraba1st.com/forum/202405/05/051524m5z7eckuegzfegjj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 05:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">箭头我感觉没有脑子，只有矢
+
+*****
+
+####  Launce  
+##### 3976#       发表于 2024-5-5 05:19
+
+Look familiar？
+
+Things like these are happening all over the Sony games.
+
+You could be next.
+
+That is, unless you make the most decision of your life.
+
+Prove that you have the strength and courage to be free.
+
+Bomb, the bad review.
+
+Become part of angry steam gamers.
+
+See exotic community managers.
+
+And protect our game envoronment, throughout the PC side.
+
+Become a hero！
+
+Become a legend！
+
+Become a bad review！
+
+Heart  — Key!
+
+Dive  —  Free!
+
+Liber  —  Tea!
+
+ON TO WAR!!!
+
+Fool — Links!
+
+Fuck — Sony!
+
+We —  Resist!
+
+NEVER GIVE UP!!!
+
+Helldiver!
+
+Democratic hand!
+
+We revolt!
+
+TILL SONY DOWN!!!
+
+(also fuck you too Arrowhead for terrible updates)
+
+image.png
+(45.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 05:17 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/051741i3vleld1wx3qqv4e.png" referrerpolicy="no-referrer">
+

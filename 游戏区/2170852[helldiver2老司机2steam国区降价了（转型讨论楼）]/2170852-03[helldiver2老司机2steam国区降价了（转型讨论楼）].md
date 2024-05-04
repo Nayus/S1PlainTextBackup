@@ -9766,3 +9766,18 @@ image.png
 
 自己技术不行，什么配套都没就强推，加上真理部式公告，活该被抵制。
 
+
+*****
+
+####  bakuza  
+##### 3895#       发表于 2024-5-4 14:11
+
+真当自己是超级地球了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈姆乐斯美都莎  
+##### 3896#       发表于 2024-5-4 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个跟现实联动补完游戏世界观的是极乐迪斯科
+

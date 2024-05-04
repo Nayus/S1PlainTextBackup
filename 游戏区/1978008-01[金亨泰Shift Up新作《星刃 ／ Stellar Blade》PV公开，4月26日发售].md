@@ -7625,3 +7625,13 @@ ng+才发现村长身边那个老哥也有个任务链
 比较下来  感觉语音 都行 选哪个都没啥 ...</blockquote>
 我觉得韩配cv还是差口气，尤其是百合的配音，从人物形象和替换服装来看，她就是一个假小子的感觉，日配很贴合这个形象，韩配搞了个萝莉音，挺别扭的。伊芙的配音韩配太弱气了，感觉有点唯唯诺诺的，日配则让人有一种有傲气但又不失人情温度的气质在里面。
 
+
+*****
+
+####  lucky95  
+##### 1459#       发表于 2024-5-5 04:00
+
+啊 原来去太空电梯前没把百合好感拉满连埃多斯9号都没得打啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

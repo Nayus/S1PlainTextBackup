@@ -7153,3 +7153,15 @@ woc 渡鸦皮真是又大又圆啊<img src="https://static.saraba1st.com/image/s
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  ky7913  
+##### 1416#       发表于 2024-5-4 09:37
+
+<blockquote>lucky95 发表于 2024-5-4 08:22
+妈的被一堆机器人围着lj连按键都按不出来怎么玩
+
+— from OnePlus CPH2493, Android 14 of S1 Nex ...</blockquote>
+这游戏有扫描啊，基本都是你先手。除非是任务不断出敌人吧，熟识了地图敌人分布就还好。技能真的太强了
+

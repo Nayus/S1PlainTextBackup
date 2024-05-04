@@ -10492,3 +10492,11 @@ SOS出圈，想了想学马仕目前的选曲还真有点把tiktok爆款可能�
 
 剩下的按流媒体播放量算的话就变成嘘组无双了吧，然而学马仕对kpop又有点欲拒还迎的样子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Swss  
+##### 3988#       发表于 2024-5-5 01:18
+
+感觉莉波这首的mv版不如之前的3d切片有意思，这种带设计上带互动曲子mv里表现不出来有点可惜
+

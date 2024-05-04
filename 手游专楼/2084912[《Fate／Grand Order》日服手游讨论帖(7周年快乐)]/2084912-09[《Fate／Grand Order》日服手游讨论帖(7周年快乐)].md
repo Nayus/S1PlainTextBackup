@@ -7620,3 +7620,15 @@ fsr光荣23-24财报是41万
 
 最高难的过了，巴姐的主场啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12698#       发表于 2024-5-5 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中年草十郎那张脸就是辣眼睛.....这个真没得洗....月世界一堆融入社会的中年人士哪有这样的
+
+比中年草十郎年龄更大一圈的切嗣...时辰...麻婆等人还有续作从少年变成成年的王妃不都是画的各有特色
+
+别的也就不说了这次活动最后作为彩蛋登场抱着女儿出场的干也不就画的要好看多了
+

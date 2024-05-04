@@ -2201,3 +2201,13 @@ yabu还染了一撮红发
 
 竟然唱了free flight
 
+
+*****
+
+####  starring  
+##### 20149#       发表于 2024-5-4 18:38
+
+小百合笑着唱完自由飞翔，心态彻底改变过来真是太好了
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

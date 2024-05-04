@@ -163,3 +163,11 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  arachnid  
+##### 300#       发表于 2024-5-4 18:41
+
+最后那里暗示ai要成精了吗，明显感觉女主车里的ai跟其他人的ai不是一个版本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

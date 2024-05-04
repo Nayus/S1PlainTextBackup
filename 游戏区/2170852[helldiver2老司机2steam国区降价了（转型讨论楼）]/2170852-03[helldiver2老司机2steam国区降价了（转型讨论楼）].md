@@ -10142,3 +10142,12 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 <img src="https://p.sda1.dev/17/2f543bd2ae049128eb577312547f30e0/20240504_182901.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  13640128732  
+##### 3932#       发表于 2024-5-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809287&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-4 18:32</a></blockquote>
+思路其实没问题，决定是领导做的，玩家和员工对线没什么意义，不如去打差评给领导看
+

@@ -7363,3 +7363,13 @@ tp点不全给篝火以及大地图不能随时tp真的是垃圾设计，通马�
 
 这游戏qol部分小毛病一大堆，不给随时随地传只是其中之一。我后面都是直接死回营地了
 
+
+*****
+
+####  医生狼多  
+##### 1435#       发表于 2024-5-4 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808493&amp;ptid=1978008" target="_blank">真空管 发表于 2024-5-4 16:40</a>
+这游戏qol部分小毛病一大堆，不给随时随地传只是其中之一。我后面都是直接死回营地了 ...</blockquote>
+明明无障碍做的不错，感觉这部分可能是sie的人协助的
+

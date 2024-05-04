@@ -9992,3 +9992,13 @@ V家P主们没活了已经，现在什么动画游戏都喜欢请P主商业出�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 3930#       发表于 2024-5-4 16:51
+
+KOH is god<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

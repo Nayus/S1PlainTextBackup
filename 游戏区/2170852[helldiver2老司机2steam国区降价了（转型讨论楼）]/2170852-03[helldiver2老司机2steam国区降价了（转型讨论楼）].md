@@ -10426,3 +10426,21 @@ steam上已经66%褒贬不一，披风虫异常团结。reddit上很多人在讨
 没用的，一切愤怒和不甘都是拳头打进空气里，gaas玩家群体就是这么贱，表示不满的只是少数，沉默的大多数还 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你对命运2年7预购数据不乐观有什么看法么，社区已经用脚投票了
 
+
+*****
+
+####  Launce  
+##### 3957#       发表于 2024-5-4 21:44
+
+<img src="https://img.saraba1st.com/forum/202405/04/214407va4nuufanaa6m6mq.png" referrerpolicy="no-referrer">
+
+<strong>V7F_H_BHMLD8]MDE2)7]IVD.png</strong> (81.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 21:44 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，什么抽象玩意儿，我绷不住了
+
+现在SP等社区经理极力把箭头描述的弱小可怜又无助,在邪恶的索尼大魔王的掌中做一个仁波切任其摆布.
+

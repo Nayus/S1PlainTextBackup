@@ -7635,3 +7635,14 @@ ng+才发现村长身边那个老哥也有个任务链
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  lucky95  
+##### 1460#       发表于 2024-5-5 06:41
+
+草
+二周目沙漠全跳，荒土随便逛一逛，血条和蓝条只跑主线居然都溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

@@ -10557,3 +10557,12 @@ fashionable只能说在大帅圈里可以吧，出圈是不可能出的，上次
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 爆款没有，只能说有爆款潜质的，这年头想火请加油买量
 sos当初solo专出的时候哪有话题度，后来找头部管人宣传才堆上去的，看看sc为了火一把都活成啥扭曲样子了
 
+
+*****
+
+####  花海佑芽  
+##### 3996#       发表于 2024-5-5 06:41
+
+sc当初狠蹭管人的宣传方式，真的引到流量了啊，只能说管人宣传已经是宣发的重要组成部分了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+想火请加钱买量+1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

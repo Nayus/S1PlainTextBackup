@@ -10002,3 +10002,11 @@ KOH is god<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Vacuolar  
+##### 3931#       发表于 2024-5-4 19:24
+
+KOH写kpop都能打赢美波，这根本没法同台经济
+

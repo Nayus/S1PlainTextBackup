@@ -10193,3 +10193,37 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 
 无人在意的角落，这次几乎不可能完成的指令要完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Variks  
+##### 3938#       发表于 2024-5-4 19:33
+
+没用的，一切愤怒和不甘都是拳头打进空气里，gaas玩家群体就是这么贱，表示不满的只是少数，沉默的大多数还是老老实实地该玩玩该氪氪，这也是那个社区经理这么狂的原因。至少在命运2，这几年已经是看得够多了。
+
+*****
+
+####  Launce  
+##### 3939#       发表于 2024-5-4 19:34
+
+ 本帖最后由 Launce 于 2024-5-4 19:36 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/04/193331yuj9rwa4nwk4zwr4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/193313exkuugngfp95cu5f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 19:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是第几个FW刀CM被发现暴言速锁推特了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">先不说他们的抽象BAN人效率，用索尼的剑斩STEAM的人也太宇宙爹权了，就不能接个VAC举报吗
+

@@ -10500,3 +10500,19 @@ SOS出圈，想了想学马仕目前的选曲还真有点把tiktok爆款可能�
 
 感觉莉波这首的mv版不如之前的3d切片有意思，这种带设计上带互动曲子mv里表现不出来有点可惜
 
+
+*****
+
+####  l⑨th_Knight  
+##### 3989#       发表于 2024-5-5 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉是四首里最好的了
+
+
+*****
+
+####  安广多惠子  
+##### 3990#       发表于 2024-5-5 01:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在学mas之前imas这牌子都快是冢中枯骨了，还谈什么爆款，还是看看这次广撒网能不能撞大运火一个吧，第一批这些歌目前看来有点难
+

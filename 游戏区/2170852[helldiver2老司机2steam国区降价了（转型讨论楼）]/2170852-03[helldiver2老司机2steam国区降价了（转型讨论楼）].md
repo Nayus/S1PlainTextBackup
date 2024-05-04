@@ -10122,3 +10122,23 @@ sbeam其实也可以以后改一下条款，服务性游戏要绑定第三方账
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Mr.Hopp  
+##### 3930#       发表于 2024-5-4 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806204&amp;ptid=2170852" target="_blank">DZDZaima 发表于 2024-5-4 11:24</a>
+
+因为要推广PC平台，马上对马岛也是要绑定psn获得奖杯和联机的。</blockquote>
+那个也是自愿的，跟这种先上车后补票差别大了。
+
+*****
+
+####  xinfengj  
+##### 3931#       发表于 2024-5-4 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808121&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-4 15:48</a></blockquote>
+<img src="https://p.sda1.dev/17/2f543bd2ae049128eb577312547f30e0/20240504_182901.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

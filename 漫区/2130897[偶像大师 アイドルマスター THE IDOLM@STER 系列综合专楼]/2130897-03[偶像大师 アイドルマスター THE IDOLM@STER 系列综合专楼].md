@@ -10116,3 +10116,21 @@ IMG_3400.jpeg
 万南的整体宣发水平就挺落后的，学马仕算是已经进步了一点，开始搞流量请网红创作者了。
 就是不知道接下来，会不会重金买二创和管人工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seeley  
+##### 3942#       发表于 2024-5-4 21:17
+
+【【歌替/学园偶像大师】「ファンサ」藤田ことね2DMV（伪）-哔哩哔哩】 https://b23.tv/kB06L32
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  姫崎莉波  
+##### 3943#       发表于 2024-5-4 21:18
+
+<img src="https://p.sda1.dev/17/f43b2a88838d8333fcf1f6d96a73d884/1000003802.png" referrerpolicy="no-referrer">
+

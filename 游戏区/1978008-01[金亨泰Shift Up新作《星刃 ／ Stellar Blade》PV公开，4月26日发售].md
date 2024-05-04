@@ -7527,3 +7527,15 @@ ng+才发现村长身边那个老哥也有个任务链
 后来:卧槽怎么在管道里背部着地一路火花带闪电
 打到轨道:丢太空和肉身突入大气层啥事没有的<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  塔奇克马  
+##### 1450#       发表于 2024-5-4 21:23
+
+[https://www.bilibili.com/video/BV1jx4y1z7Mc](https://www.bilibili.com/video/BV1jx4y1z7Mc)
+
+【OST】【剑星】渡鸦BOSS战 神曲
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来听来听
+

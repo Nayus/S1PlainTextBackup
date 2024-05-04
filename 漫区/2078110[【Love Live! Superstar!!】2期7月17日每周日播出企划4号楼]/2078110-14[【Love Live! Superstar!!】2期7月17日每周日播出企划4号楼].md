@@ -2211,3 +2211,11 @@ yabu还染了一撮红发
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kfly  
+##### 20150#       发表于 2024-5-4 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

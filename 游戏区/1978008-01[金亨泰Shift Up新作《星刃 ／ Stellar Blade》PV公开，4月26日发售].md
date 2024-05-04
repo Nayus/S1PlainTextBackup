@@ -7481,3 +7481,16 @@ ng+才发现村长身边那个老哥也有个任务链
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  jacket  
+##### 1446#       发表于 2024-5-4 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64809574&amp;ptid=1978008" target="_blank">lucky95 发表于 2024-5-4 19:05</a>
+
+我一周目两个都溢出一个，应该没漏
+
+— from OnePlus CPH2493, Android 14 of S1 Next Goose v2.5.4 ...</blockquote>
+那肯定不止一个，这游戏藏东西量大管饱，地毯式搜索都能漏掉各种各样的。
+

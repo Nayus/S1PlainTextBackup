@@ -181,3 +181,11 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 最后那里暗示ai要成精了吗，明显感觉女主车里的ai跟其他人的ai不是一个版本 ...</blockquote>
 经典机灵了
 
+
+*****
+
+####  zayrq  
+##### 302#       发表于 2024-5-4 19:10
+
+这个片子开车靠AI，甚至有AI车手，整备不需要人手。线下开车图啥呢，图一个失误在护栏上创似吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。在家开把游戏不好吗
+

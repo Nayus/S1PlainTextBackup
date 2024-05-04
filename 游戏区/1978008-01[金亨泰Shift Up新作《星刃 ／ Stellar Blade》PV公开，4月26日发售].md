@@ -7547,3 +7547,11 @@ ng+才发现村长身边那个老哥也有个任务链
 
 全成就我得打3个周目<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隔壁老黄  
+##### 1452#       发表于 2024-5-4 22:04
+
+刚开始玩，初期升什么能力好？
+

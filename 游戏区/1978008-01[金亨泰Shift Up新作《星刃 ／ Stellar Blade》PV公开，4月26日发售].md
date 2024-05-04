@@ -7204,3 +7204,18 @@ boss二周目血盾起码三倍，打起来起码不是一波秒，像样了许�
 ng+才发现村长身边那个老哥也有个任务链<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 还有小巷背刺任务真的纯搞笑，不走小路从另一条走绕袭击者背也不会有变化，感觉想讲点什么又没精力做后续所以完成得特别生硬
 
+
+*****
+
+####  jacket  
+##### 1420#       发表于 2024-5-4 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806287&amp;ptid=1978008" target="_blank">真空管 发表于 2024-5-4 11:35</a>
+
+ng+才发现村长身边那个老哥也有个任务链
+
+还有小巷背刺任务真的纯搞笑，不走小路从另一条走绕袭击者 ...</blockquote>
+一周目任务都做了，包里还有一个坏掉的密码机没看到后续。
+
+鱼老板吃葡萄给了个镜头，也不知道有没后续。
+

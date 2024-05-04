@@ -10466,3 +10466,11 @@ fashionable
 
 这一提让我想到四字母给柏上个活动的曲子了 笑了半天<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  l3r0nY@  
+##### 3985#       发表于 2024-5-4 23:58
+
+嘘组的fashionable算吗，世界杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10530,3 +10530,14 @@ DC上披露,只写这些关键内容就可以,投人工客服.
 
 讲个笑话，我之前已经绑定了PSN，然后买了PS5光盘版游戏，结果发现存档根本就不互通……所以你绑定了个寄把
 
+
+*****
+
+####  GDIHARVESTER  
+##### 3967#       发表于 2024-5-5 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811801&amp;ptid=2170852" target="_blank">ycjiang1337 发表于 2024-5-4 23:37</a>
+
+讲个笑话，我之前已经绑定了PSN，然后买了PS5光盘版游戏，结果发现存档根本就不互通……所以你绑定了个寄把 ...</blockquote>
+是，上面发了FAQ，官方也是这么回答的，当前存档不共通。真的是绑了个寂寞。对玩家0好处的东西，说话还那么难听，真的活该被骂
+

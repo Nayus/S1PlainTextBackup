@@ -9406,3 +9406,13 @@ CEO都亲自下场甩锅索尼了，你们这帮瑞典人还真就玩超级气�
 
 等它真开始实行玩不了了就试下能不能退款，现在它还没正式实行，steam应该是不让退的。
 
+
+*****
+
+####  Sayuki1025  
+##### 3863#       发表于 2024-5-4 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 司马运营
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

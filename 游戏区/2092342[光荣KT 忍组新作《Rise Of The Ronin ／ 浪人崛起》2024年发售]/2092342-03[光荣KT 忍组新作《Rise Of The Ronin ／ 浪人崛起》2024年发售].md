@@ -197,3 +197,13 @@
 
 —— 来自 vivo V2025A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  不会武术  
+##### 3163#       发表于 2024-5-4 10:24
+
+京都后面几个任务跟赶着下班一样，鸟羽伏见毫无大场面感的车轮战，然后就是把几个打过的boss排列组合一下再来一遍，西乡隆盛这个死胖子来来回回打三遍，最后的aibo也毫无最终boss的感觉，这他妈就完了？
+
+日本人对幕末这段历史的滤镜加成有点大，其实就是几个菜鸡利益集团人脑子打出狗脑子，不过毕竟再往后的历史就没法做了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

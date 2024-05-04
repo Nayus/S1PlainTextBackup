@@ -9909,3 +9909,53 @@ image.png
 I must HAVE a PSN ACCONUT before play game？
 but I DO NOT！
 
+
+*****
+
+####  白昼梦  
+##### 3908#       发表于 2024-5-4 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不许人在平时讨论的平台喷也太弱智了
+
+*****
+
+####  屑屑代沟尼亚  
+##### 3909#       发表于 2024-5-4 16:09
+
+帮楼上补图
+
+ED1B94D69219E7BE0BB6EEA81C4B6E4C.jpg
+(102.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 16:09 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/160929wfoto6dqkf2fffnt.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiiTiiLL  
+##### 3910#       发表于 2024-5-4 16:13
+
+所以我现在80小时能退款成功吗
+
+*****
+
+####  春哥亲自  
+##### 3911#       发表于 2024-5-4 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64808290&amp;ptid=2170852" target="_blank">TiiTiiLL 发表于 2024-5-4 16:13</a>
+所以我现在80小时能退款成功吗</blockquote>
+试试呗，强调你必须有psn账号才能玩
+但是你没有
+不行用我的初中英语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3912#       发表于 2024-5-4 16:14
+
+贴吧有一百多小时退款成功的不知道怎么整的，感觉到5.30-6.4真不绑不能玩的时候肯定有办法。
+

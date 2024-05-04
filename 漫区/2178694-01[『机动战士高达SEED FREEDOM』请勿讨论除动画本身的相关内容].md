@@ -9186,3 +9186,16 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 印象最深就是基拉：还不是因为你们太弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kanago  
+##### 755#       发表于 2024-5-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64792606&amp;ptid=2178694" target="_blank">oi99o 发表于 2024-5-2 18:50</a>
+看完了，打是打得挺爽的，就是后面台词里“爱”实在太多了
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">台词实在是太让人尴尬了😅😅😅，文戏部分肉麻到我jio趾抠地。
+感觉卡咖喱可能在全程“不对，他/她有病吧？！”
+

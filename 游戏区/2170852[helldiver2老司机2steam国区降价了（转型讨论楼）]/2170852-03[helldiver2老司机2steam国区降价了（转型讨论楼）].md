@@ -9562,3 +9562,29 @@ gaas玩家的福报<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉明天全部评测就褒贬不一了
 
+
+*****
+
+####  Fake_news  
+##### 3878#       发表于 2024-5-4 12:46
+
+现在是不是退款还很难成功啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先打个差评，找机会一定要退掉
+
+*****
+
+####  ycjiang1337  
+##### 3879#       发表于 2024-5-4 12:47
+
+PSN集成这种从几年前就该做的事情能硬拖到现在，这不活该么
+
+
+*****
+
+####  天王寺綯  
+##### 3880#       发表于 2024-5-4 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806204&amp;ptid=2170852" target="_blank">DZDZaima 发表于 2024-5-4 11:24</a>
+
+因为要推广PC平台，马上对马岛也是要绑定psn获得奖杯和联机的。</blockquote>
+操死索尼了，马币的以后索尼的pc游戏不会也套自己的启动器吧？
+

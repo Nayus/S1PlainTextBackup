@@ -9728,3 +9728,41 @@ image.png
 索尼真是傻逼不断啊
 前脚和谐剑星，风波还没过去，后脚就搞这垃圾绑定
 
+
+*****
+
+####  Launce  
+##### 3893#       发表于 2024-5-4 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿索现在真的是，一边喊play has no limits，一边用实际行动告诉你，你还有个爹limits
+
+*****
+
+####  BadYanL  
+##### 3894#       发表于 2024-5-4 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64807281&amp;ptid=2170852" target="_blank">大肥鸽子 发表于 2024-5-4 13:40</a>
+
+索尼估计也懵了，讲道理索尼和箭头要是一开始就把这事跟玩家理清楚，现在何至于此呀
+
+—— 来自 O ...</blockquote>
+邮局港剧，该写的都有写，不过谁会去读
+
+<img src="https://img.saraba1st.com/forum/202405/04/135657jl7e7zh4va4yh4df.png" referrerpolicy="no-referrer">
+
+<strong>image_2024-05-04_135649459.png</strong> (11.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202405/04/135815iv6dovvwtt5whho5.png" referrerpolicy="no-referrer">
+
+<strong>image_2024-05-04_135806941.png</strong> (74.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-4 13:58 上传
+
+自己技术不行，什么配套都没就强推，加上真理部式公告，活该被抵制。
+

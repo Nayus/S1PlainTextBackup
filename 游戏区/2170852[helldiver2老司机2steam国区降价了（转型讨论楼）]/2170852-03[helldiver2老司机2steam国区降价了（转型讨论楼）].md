@@ -12913,3 +12913,11 @@ Steam差评是给游戏的还不是第一方，索尼只要财报数字好看就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  m98626  
+##### 4188#       发表于 2024-5-6 06:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控制不住事态就破罐子破摔装可怜装无奈，还不如闭嘴别继续挑动玩家敏感神经
+

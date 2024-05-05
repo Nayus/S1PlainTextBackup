@@ -1746,3 +1746,13 @@ pv完全就是斧乃木主角 undead是指她了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就看过动画和国内出版的几本，后面剧情能配上这么欢快的歌吗？
 
+
+*****
+
+####  一心而用  
+##### 185#       发表于 2024-5-5 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64813721&amp;ptid=2168085" target="_blank">一只优越Fa♂ 发表于 2024-5-5 03:23</a>
+就看过动画和国内出版的几本，后面剧情能配上这么欢快的歌吗？</blockquote>
+没有问题的，应该。
+

@@ -11041,3 +11041,98 @@ Best regards,
 
 索尼很坚决啊，直接把游戏从PSN未覆盖区域的商店下架了？
 
+
+*****
+
+####  szrxs  
+##### 4006#       发表于 2024-5-5 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是把国区给留下了，别舍不得啊
+
+*****
+
+####  BadYanL  
+##### 4007#       发表于 2024-5-5 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814628&amp;ptid=2170852" target="_blank">朔方原的星 发表于 2024-5-5 10:00</a>
+
+好好骑着自行车非要自己拿根木棍插进前轮里，还有嗦粉高呼插得好，难道你们骑自行车都不往前轮插木棍吗
+
+这 ...</blockquote>
+索粉肯定叫好的，一直不爽steam版卖得好，恨不得索尼马上退出PC市场。
+
+*****
+
+####  ravend233  
+##### 4008#       发表于 2024-5-5 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索嗨巴不得索尼就此退出pc市场只给主机侠服务
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Geyorkias  
+##### 4009#       发表于 2024-5-5 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">在支持索尼退出pc市场这件事儿上，索粉和索黑微妙的达成了共识
+
+
+*****
+
+####  Mr.Hopp  
+##### 4010#       发表于 2024-5-5 10:20
+
+ 本帖最后由 Mr.Hopp 于 2024-5-5 10:21 编辑 
+
+作为PS玩家，索尼退出PC我肯定高兴啦，所以你再怎么冲怎么骂索尼养眼索尼游戏出PC版都只玩盗版我都支持的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 4011#       发表于 2024-5-5 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814729&amp;ptid=2170852" target="_blank">szrxs 发表于 2024-5-5 10:15</a>
+但是把国区给留下了，别舍不得啊</blockquote>
+因为国区理论上是有psn的，当然真正的原因是中国人至少占了这游戏1/3的销量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Shu-Stella  
+##### 4012#       发表于 2024-5-5 10:22
+
+很符合我对索尼的刻板印象。
+
+*****
+
+####  热风疾风  
+##### 4013#       发表于 2024-5-5 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814628&amp;ptid=2170852" target="_blank">朔方原的星 发表于 2024-5-5 10:00</a>
+
+好好骑着自行车非要自己拿根木棍插进前轮里，还有嗦粉高呼插得好，难道你们骑自行车都不往前轮插木棍吗
+
+这 ...</blockquote>
+许多“主机党”就是这样的
+
+我们高贵的主机游戏岂容pc贱民玷污<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+索尼傻逼归傻逼，我个人倒是无所谓.......绑就绑  ea育碧不是一样
+
+*****
+
+####  m98626  
+##### 4014#       发表于 2024-5-5 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国区这帮gk这么卖力宣传，买的人太多了舍不得退想再争取一下吧。V社顶住啊
+
+*****
+
+####  Mr.Hopp  
+##### 4015#       发表于 2024-5-5 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814781&amp;ptid=2170852" target="_blank">normalli 发表于 2024-5-5 10:21</a>
+
+因为国区理论上是有psn的，当然真正的原因是中国人至少占了这游戏1/3的销量 ...</blockquote>
+帕鲁也就1/3销量，这个游戏国内热度跟国外没法比，国人能占这么高销量？
+

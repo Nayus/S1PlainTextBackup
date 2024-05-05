@@ -11888,3 +11888,18 @@ DLC退了，本体还在写小作文扯皮中
 
 年度多人也是年度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  m98626  
+##### 4087#       发表于 2024-5-5 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我会给他一个最佳运营奖和最佳社区奖
+
+*****
+
+####  Mr.Hopp  
+##### 4088#       发表于 2024-5-5 15:48
+
+顺便，指令完成了，看看晚上有没有新活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

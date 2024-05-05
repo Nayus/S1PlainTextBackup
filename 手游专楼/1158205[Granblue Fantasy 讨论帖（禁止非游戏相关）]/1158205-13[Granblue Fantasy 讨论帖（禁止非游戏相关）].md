@@ -188,3 +188,13 @@
 
 极星器不用非得拳的，有就行。你就用琴放上去也比巴武厉害得多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  syndrome2032  
+##### 17910#       发表于 2024-5-5 15:52
+
+古战就别打奥义了，强敌上限660w。
+
+不把这个取消，打啥不比奥义香。
+

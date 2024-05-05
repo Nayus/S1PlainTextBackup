@@ -11218,3 +11218,14 @@ b站学马那个号不就是大名鼎鼎的万南哥吗<img src="https://static.
 
 没想到你万南宣传终于跟上现代化潮流了
 
+
+*****
+
+####  霓虹灯鱼  
+##### 4070#       发表于 2024-5-6 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820799&amp;ptid=2130897" target="_blank">joshua1990 发表于 2024-5-5 22:39</a>
+
+今天这首可以，就是明显的唱跳曲，到时候看声优配舞后驾驭能力如何了 ...</blockquote>
+披露生放送里说清夏是唯一在试镜时要测试舞蹈的角色，湊みや表示自己一直喜欢跳舞，所以还算轻松地过了试镜……没问题吧，大概<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

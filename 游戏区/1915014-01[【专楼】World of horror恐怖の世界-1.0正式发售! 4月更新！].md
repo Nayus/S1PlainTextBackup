@@ -112,3 +112,21 @@ QQ截图20240504220741.png
 
 <img src="https://img.saraba1st.com/forum/202405/04/221302ym07ez1z8bef9xhp.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  myep  
+##### 309#       发表于 2024-5-5 08:16
+
+拖的实在太久，到五月甚至都没有正式更新Steam成就，创意工坊还藏在测试版里。虽然说这么多年都等了，但正式版发布以来的表现实在没什么前途，更像是作者终于甩掉了包袱。
+
+—— 来自 Xiaomi 2201123C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  喀秋莎450  
+##### 310#       发表于 2024-5-5 08:24
+
+玩的switch版，表现实在令人着急。字体选的不好，挤成一团；bug频出，数字显示不对，某个挑战难度错误
+

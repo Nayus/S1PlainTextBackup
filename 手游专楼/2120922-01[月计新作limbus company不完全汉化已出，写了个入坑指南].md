@@ -621,3 +621,18 @@
 （不过我怎么都找不到明镜 ...</blockquote>
 要看卡包里出啥饰品
 
+
+*****
+
+####  Yuzutea  
+##### 685#       发表于 2024-5-5 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64806794&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-5-4 12:41</a>
+
+原来如此，我习惯把体系外的东西卖了，导致商店什么都有...选包的时候斟酌一下感觉最后可以赌出来月之记 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我大星光点满了
+
+试了几把最后一层入口买五个然后到结束那商店就是必刷那几个通用四级和月计
+
+不过下星期改回四层之后也没这玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

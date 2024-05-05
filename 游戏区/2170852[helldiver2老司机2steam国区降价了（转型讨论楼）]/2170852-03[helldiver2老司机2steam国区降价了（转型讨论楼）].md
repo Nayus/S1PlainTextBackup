@@ -12895,3 +12895,21 @@ Steam差评是给游戏的还不是第一方，索尼只要财报数字好看就
 按steam的政策他们现在是没拿到钱的，所以退款主动权在v社手上</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">过段时间就结算了，退款也就部分吧，认了。
 
+
+*****
+
+####  陈词与芍药  
+##### 4187#       发表于 2024-5-6 06:01
+
+<img src="https://img.saraba1st.com/forum/202405/05/180053phhh7xjs3ze7sdaq.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4853.PNG</strong> (297.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 06:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

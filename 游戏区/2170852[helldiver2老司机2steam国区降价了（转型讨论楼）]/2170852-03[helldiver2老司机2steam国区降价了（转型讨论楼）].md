@@ -12796,3 +12796,13 @@ https://weibo.com/2016719001/OcV1QBfHB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矢脑这批CM，头像和推特简介个顶个的LGBT浓度拉满，绝地潜兵这社区真的有这么高的浓度？
 
+
+*****
+
+####  大哀之君  
+##### 4177#       发表于 2024-5-6 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64821490&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-5 23:49</a>
+矢脑这批CM，头像和推特简介个顶个的LGBT浓度拉满，绝地潜兵这社区真的有这么高的浓度？ ...</blockquote>
+L和G且不说，非传统性别认知者即T有无限的时间泡在互联网上，天生社管圣体。你去观察下欧美中小工作室找的社管，有相当大比例是T
+

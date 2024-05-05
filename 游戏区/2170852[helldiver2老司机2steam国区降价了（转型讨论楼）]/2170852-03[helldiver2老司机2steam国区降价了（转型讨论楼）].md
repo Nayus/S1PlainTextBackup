@@ -11836,3 +11836,39 @@ DLC退了，本体还在写小作文扯皮中
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ycjiang1337  
+##### 4081#       发表于 2024-5-5 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815396&amp;ptid=2170852" target="_blank">爱护动物抓根宝 发表于 2024-5-5 11:33</a>
+
+此一时彼一时嘛，16年那会为了在pc上玩60帧地平线3可是废了我好大的劲，去他妈的印度人 ...</blockquote>
+所以你这更是驴头不对马嘴了，Steam版微软游戏不是UWP，用的Xbox服务组件是自带的，当时战争机器5都可以在Win7上运行
+
+*****
+
+####  琦乐无穷  
+##### 4082#       发表于 2024-5-5 15:29
+
+眼睁睁的看着一个年度提名游戏把自己作没了
+
+
+*****
+
+####  TiiTiiLL  
+##### 4083#       发表于 2024-5-5 15:32
+
+漏油有退款成功的吗
+
+*****
+
+####  septer  
+##### 4084#       发表于 2024-5-5 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817075&amp;ptid=2170852" target="_blank">琦乐无穷 发表于 2024-5-5 15:29</a>
+
+眼睁睁的看着一个年度提名游戏把自己作没了</blockquote>
+接下来索尼会给你展示一点游戏媒体关系<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+

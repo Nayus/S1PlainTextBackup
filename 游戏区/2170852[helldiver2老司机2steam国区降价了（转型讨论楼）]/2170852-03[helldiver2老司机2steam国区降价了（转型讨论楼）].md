@@ -12687,3 +12687,37 @@ https://weibo.com/2016719001/OcV1QBfHB
 —— 来自  ...</blockquote>
 箭头原计划就两万在线吧，最初上线那会北欧佬慢悠悠的换了好几次服务器这事儿楼里都忘了嘛，还有先睡觉再说的名场面
 
+
+*****
+
+####  ravend233  
+##### 4167#       发表于 2024-5-5 22:35
+
+箭头我觉得就是纯纯的蠢和草台，什么都不知道就搁那闭门造车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  风萧飒  
+##### 4168#       发表于 2024-5-5 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820605&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-5-5 22:22</a>
+箭头原计划就两万在线吧，最初上线那会北欧佬慢悠悠的换了好几次服务器这事儿楼里都忘了嘛，还有先睡觉再 ...</blockquote>
+差不多吧，要是这热度索尼搞不好真就懒得管你绑不绑psn了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zid99825  
+##### 4169#       发表于 2024-5-5 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820551&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-5-5 22:16</a>
+箭头可能本来没想到那么火就觉得说不定索尼也不会管那么严，于是没强制要求绑定。结果真爆款了
+
+—— 来自  ...</blockquote>
+上线写的就是required <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，只不过一堆bug绑定失败就去掉了而已
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

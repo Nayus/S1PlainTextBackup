@@ -164,3 +164,33 @@ ng+衣服和数据库全收集了。虽然世界观是一堆sf元素大杂烩但
 可以，但服装箱一周目不拿完二周目再拿对应的设计图就只能拿原版拿不到换色 ...</blockquote>
 服装好找，我以为200箱子会差，结果不知不觉已经完成了，剩下二周目通一次就OK
 
+
+*****
+
+####  lucky95  
+##### 1494#       发表于 2024-5-6 04:47
+
+ 本帖最后由 lucky95 于 2024-5-6 04:50 编辑 
+
+终于白金了
+二周目只能看屎结局有点郁闷<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+二周目衣服大多数都是换色就算了，颜色比一周目难看不要太多，除了红珍珠白礼服奥卡工程师都是大妈配色，真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+续作把这弹反闪避手感改一改就很好了
+还有这什么发型都要留的马尾，真是欣赏不来
+这大众娃娃脸就别谈什么辨识度了，还是让我愉快的改发型吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1495#       发表于 2024-5-6 04:50
+
+另外boss挑战模式和拍照模式几时端出来啊
+boss挑战模式不说，拍照模式这么难做吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尼玛过场每次想拍红珍珠就糊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

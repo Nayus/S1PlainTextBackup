@@ -11313,3 +11313,84 @@ Reddit有人发过一篇大意为“一个月后就没有中国高玩来hard car
 
 唉，微软
 
+
+*****
+
+####  拉鲁拉丝  
+##### 4030#       发表于 2024-5-5 10:55
+
+【突发】#Steam# 将《#绝地潜兵2# 》在177个地区封禁购买！ 基本只要PSN无法注册的地区全部都被Ban掉！数个货币区域无法购买（不包括国区），而前些时间部分玩家的《绝地潜兵2》退款申请已经开始获得Steam批准，其中包括超200小时游玩时间的申请！[思考]
+
+(图4)一篇比较长的退款申请。
+大意是先前玩这款游戏并不需要PSN账号，现在突然要求绑定是极其不合理的，且考虑到PSN的不安全性以及EULA条款并不包括要求PSN账号。
+这位玩家同时表示理解自己已经超过了允许的窗口时间，但希望steam不会这样轻易放过Arrowhead和索尼这种刁蛮的行为。
+
+(图5)一篇短的退款申请。
+“索尼改变了游戏的运作机制，并强制我同意不会接受的条款。“
+”Steam已将您的购买退款“
+
+※不得不说，在今年竟然还能看见以一己之力试图抗衡全体玩家的事情……罪大恶极啊！
+https://weibo.com/1842080303/OcQCg6nzL
+
+<img src="https://p.sda1.dev/17/d36cfec42c9a27ce08eff4510eb997ac/CMP_20240505105417748.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  披头破落户  
+##### 4031#       发表于 2024-5-5 10:55
+
+国区卖的多就不锁国区是吧，贱不贱啊，我看ps4，5吧和a9还能怎么洗
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  Khellendros  
+##### 4032#       发表于 2024-5-5 10:56
+
+ 本帖最后由 Khellendros 于 2024-5-5 10:57 编辑 
+<blockquote>大哀之君 发表于 2024-5-5 10:53
+唉，微软</blockquote>
+虽然绑微软账号也挺烦的，但好像不像psn一样不能跨区吧
+
+
+*****
+
+####  ycjiang1337  
+##### 4033#       发表于 2024-5-5 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815083&amp;ptid=2170852" target="_blank">Khellendros 发表于 2024-5-5 10:56</a>
+虽然绑微软账号也挺烦的，但好像不像psn一样不能跨区吧</blockquote>
+而且光环无限真的数据全互通，甚至可以steam买通行证给Xbox用
+
+—— 来自 HUAWEI HBN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大哀之君  
+##### 4034#       发表于 2024-5-5 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815083&amp;ptid=2170852" target="_blank">Khellendros 发表于 2024-5-5 10:56</a>
+虽然绑微软账号也挺烦的，但好像不像psn一样不能跨区吧</blockquote>
+可以跨区注册，就是对于PC玩家来说PSN账号除了是个索狗证以外没有丝毫用途。索尼需要PC玩家人头来冲财报却不提供相应服务，公告又写得跟遣返偷渡犯一样，惹人烦
+
+*****
+
+####  爱护动物抓根宝  
+##### 4035#       发表于 2024-5-5 11:00
+
+微软挺奸其实，现在win上面的xbox游戏要玩必须要装xbox服务，直接ban掉了win7和一票精简版win10，而能把这服务在国内弄好基本也就默认你有微软账号了
+
+*****
+
+####  zid99825  
+##### 4036#       发表于 2024-5-5 11:01
+
+微软账号全区，而且现在用windows的谁没有
+
+索尼这个人家玩的好好的，跑出来叫人把私人信息交出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想不被喷
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

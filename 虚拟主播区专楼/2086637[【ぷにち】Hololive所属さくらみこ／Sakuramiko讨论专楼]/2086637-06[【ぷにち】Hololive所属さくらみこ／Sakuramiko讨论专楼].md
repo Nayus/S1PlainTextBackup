@@ -6355,3 +6355,21 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 说回来昨天的地狱俱乐部企划，最后下播前sora突然蹦了一句这样的地狱企划也不错嘛笑死了，果然表面天然切开都是黑的，miko你以后可以多给0期安排这种企划，反正我看soraz的粉丝侧并没有什么意见还很乐见，而且昨天MVP也是这两位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8741#         楼主| 发表于 2024-5-5 15:13
+
+今天也是3小时
+
+这游戏3小时限制按这节奏根本没法前进多少吧，5小时也好啊
+
+<img src="https://img.saraba1st.com/forum/202405/05/151312v0bfrchncftpt6n0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 15:13 上传
+

@@ -11505,3 +11505,57 @@ May 5, 2024
 
 联机服务费交一交<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4048#       发表于 2024-5-5 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815264&amp;ptid=2170852" target="_blank">h122h 发表于 2024-5-5 11:20</a>
+
+下一步是不是要steam玩家必须有psn会员，才能给你联机啊。</blockquote>
+也没哪家敢，看好索尼第一个吃螃蟹，还玩的都是优质客户<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Buke  
+##### 4049#       发表于 2024-5-5 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815205&amp;ptid=2170852" target="_blank">雪地白狼 发表于 2024-5-5 11:12</a>
+国区试了下没法退款，会以超过时间为理由直接打回来。</blockquote>
+估计第一道是ai机器人处理，写个小作文再提一次看能不能转人工甚至V社正式工
+
+*****
+
+####  ddwhzh  
+##### 4050#       发表于 2024-5-5 11:28
+
+怎么不锁国区，建议锁了，绝版+1
+
+*****
+
+####  sixgun  
+##### 4051#       发表于 2024-5-5 11:29
+
+强制绑定，还特么宽限期都整出来了？真司马玩意儿
+
+*****
+
+####  Buke  
+##### 4052#       发表于 2024-5-5 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815116&amp;ptid=2170852" target="_blank">爱护动物抓根宝 发表于 2024-5-5 11:00</a>
+微软挺奸其实，现在win上面的xbox游戏要玩必须要装xbox服务，直接ban掉了win7和一票精简版win10，而能把这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连steam都已经正式停止对win10以下支持了，别抱着win7不放了
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4053#       发表于 2024-5-5 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815367&amp;ptid=2170852" target="_blank">Buke 发表于 2024-5-5 11:30</a>
+
+连steam都已经正式停止对win10以下支持了，别抱着win7不放了</blockquote>
+此一时彼一时嘛，16年那会为了在pc上玩60帧地平线3可是废了我好大的劲，去他妈的印度人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

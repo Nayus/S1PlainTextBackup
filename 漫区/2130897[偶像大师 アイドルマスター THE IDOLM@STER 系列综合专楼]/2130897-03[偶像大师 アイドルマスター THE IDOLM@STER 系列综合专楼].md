@@ -10764,3 +10764,11 @@ pv买了，老早就有人吐槽了。
 
 不过短视频网站宣发真的需要跟上时代
 
+
+*****
+
+####  joshua1990  
+##### 4019#       发表于 2024-5-5 12:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">马的成功我觉得还是游戏确实出场惊艳的作用吧，宣发的话cy自家有个金船频道，游戏落地前做了好多期了也没多火，一度停播的
+

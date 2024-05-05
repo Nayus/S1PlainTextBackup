@@ -10833,3 +10833,46 @@ steam很有可能会给受影响的玩家无条件退款，部分玩家已经开
 
 各位记得动动小手点个差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3987#       发表于 2024-5-5 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下cdk买的亏麻了
+
+选了最臭的棋还行
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Ashice  
+##### 3988#       发表于 2024-5-5 09:32
+
+完全没有想到的发展方向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+索尼彻底无敌了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ravend233  
+##### 3989#       发表于 2024-5-5 09:33
+
+这么弱智的活非常有日本人那味，吉姆滚蛋后上台的是日本人来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  super_uni  
+##### 3990#       发表于 2024-5-5 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814169&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-5 08:35</a>
+箭头开始整新活了，把没有PSN的国家地区都锁区了，连南极洲都锁了</blockquote>
+期待南纬90度飞出一颗洲际导弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

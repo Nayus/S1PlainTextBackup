@@ -12596,3 +12596,38 @@ look familiar?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等9号怕不是都又开始开开心心讨论债券武器了
 
+
+*****
+
+####  Mr.Hopp  
+##### 4158#       发表于 2024-5-5 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820255&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-5 21:47</a>
+
+等9号怕不是都又开始开开心心讨论债券武器了</blockquote>
+然后都是垃圾，继续炎上<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4159#       发表于 2024-5-5 21:55
+
+下次债券武器不是解包出来都是垃圾嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  白昼梦  
+##### 4160#       发表于 2024-5-5 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正射手武器越多垃圾武器越多
+
+
+*****
+
+####  狂风DKC  
+##### 4161#       发表于 2024-5-5 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以箭头就是假装无事发生开了三个月香槟？请问孝子这是蠢还是坏啊？
+

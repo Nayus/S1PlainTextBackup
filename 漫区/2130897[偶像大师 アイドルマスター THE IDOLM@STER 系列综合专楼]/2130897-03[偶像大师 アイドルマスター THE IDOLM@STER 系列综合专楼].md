@@ -10594,3 +10594,17 @@ sc当初狠蹭管人的宣传方式，真的引到流量了啊，只能说管人
 
 谁啊，我一直觉得大帅圈老登太多，想做皇帝还挺难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 4000#       发表于 2024-5-5 08:56
+
+ 本帖最后由 花开安菲路 于 2024-5-5 09:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814040&amp;ptid=2130897" target="_blank">darkendless 发表于 2024-5-5 07:50</a>
+这次不也买量了吗，我看yt上角色pv个个都至少是八九十万的播放，但是点赞评论就那么多
+放个对比图</blockquote>
+pv买了，老早就有人吐槽了。
+不过如果就买点pv的流量，只能说万南还没开窍。
+联系多学学近几年最火的原、马娘、ba是怎么搞宣发的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

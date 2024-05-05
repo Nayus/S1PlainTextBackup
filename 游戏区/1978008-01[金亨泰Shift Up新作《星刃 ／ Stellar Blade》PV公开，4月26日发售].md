@@ -7837,3 +7837,14 @@ bu技能都是无敌的，beta技能只是霸体，可以直接利用bu技跟bos
 
 2024-5-5 18:52 上传
 
+
+*****
+
+####  hokagokenjatime  
+##### 1480#       发表于 2024-5-5 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818613&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-5 18:52</a>
+最终盘，之后基本是一路主线到底了。
+电梯剧情结束还可以进行探索，之前接过的部分任务还能做，包括板子 ...</blockquote>
+只影响地图上感叹号支线，不影响其他收集是吗
+

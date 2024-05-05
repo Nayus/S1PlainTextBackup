@@ -11166,3 +11166,46 @@ Best regards,
 帕鲁也就1/3销量，这个游戏国内热度跟国外没法比，国人能占这么高销量？ ...</blockquote>
 Reddit有人发过一篇大意为“一个月后就没有中国高玩来hard carry我了”的帖子，回复还不少
 
+
+*****
+
+####  Mr.Hopp  
+##### 4019#       发表于 2024-5-5 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814875&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-5 10:33</a>
+
+Reddit有人发过一篇大意为“一个月后就没有中国高玩来hard carry我了”的帖子，回复还不少 ...</blockquote>
+这也能作为依据？
+
+*****
+
+####  ultraseven  
+##### 4020#       发表于 2024-5-5 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814865&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-5-5 10:31</a>
+
+日本竟然也上榜，索尼狠起来连自己都砍，果然是美国公司。</blockquote>
+日区的SubID不一样
+
+[https://steamdb.info/sub/906469/](https://steamdb.info/sub/906469/)
+
+*****
+
+####  朔方原的星  
+##### 4021#       发表于 2024-5-5 10:38
+
+<img src="https://p.sda1.dev/17/1d425269d45b538bdaf4d7514b048f84/IMG_CMP_56865193.png" referrerpolicy="no-referrer">
+光看二柄我还以为hd2社区运营多委屈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烈焰舞阳  
+##### 4022#       发表于 2024-5-5 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814623&amp;ptid=2170852" target="_blank">紫菜粉丝煲 发表于 2024-5-5 09:59</a>
+这么大件乐子看微博只有游民星空和二柄说了，要不是看论坛都不知道这事</blockquote>
+杉果也发了相关新闻
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

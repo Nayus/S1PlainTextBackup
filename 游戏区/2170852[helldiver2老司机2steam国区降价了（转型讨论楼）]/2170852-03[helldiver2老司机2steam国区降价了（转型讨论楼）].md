@@ -12304,3 +12304,20 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Aeons  
+##### 4127#       发表于 2024-5-5 19:37
+
+什么老缠
+
+*****
+
+####  ravend233  
+##### 4128#       发表于 2024-5-5 19:38
+
+索尼和箭头有无数种把这事处理好的手段，但是他们选了弹幕最多的打法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -12885,3 +12885,13 @@ Steam差评是给游戏的还不是第一方，索尼只要财报数字好看就
 因为可能本来的目的就是为了增加psn影响啊，反正游戏钱也赚到了，后续影响也是后续的事了，又不是所有人都 ...</blockquote>
 按steam的政策他们现在是没拿到钱的，所以退款主动权在v社手上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4186#       发表于 2024-5-6 03:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822449&amp;ptid=2170852" target="_blank">m98626 发表于 2024-5-6 02:41</a>
+按steam的政策他们现在是没拿到钱的，所以退款主动权在v社手上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">过段时间就结算了，退款也就部分吧，认了。
+

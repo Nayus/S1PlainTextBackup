@@ -7742,3 +7742,13 @@ fsr光荣23-24财报是41万
 重温着本体又挖了两发绊石，毛都没<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给伯爵青子狠狠还债了喵
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">挖不动了，还剩过几天的签到呼符抽一下完事了，菲特狗主打的就是一个不能强求（远目望向帝王花
 
+
+*****
+
+####  壳壳牛  
+##### 12709#       发表于 2024-5-6 03:08
+
+通算登录的30石也沉了....
+
+又要剁手了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

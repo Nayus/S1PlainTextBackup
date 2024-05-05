@@ -221,3 +221,19 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 这集竟然还行，就是前面给ai当狗后面又让ai说你靠感觉开更快有点搞笑
 
+
+*****
+
+####  上坂莲华  
+##### 305#       发表于 2024-5-5 10:01
+
+ 本帖最后由 上坂莲华 于 2024-5-5 10:04 编辑 
+
+这集还叫能看啊，整个突出一个莫名其妙不知所谓，有种从弱智吧招了女主来练AI大数据的美感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外这个赛车第一集说了其他人是手操然后关键时刻AI接手防撞，那几个写了车手是XXXAI的车是全AI开，怂的一笔拿不到分
+
+女主按第一集老头的说法，应该是打算拿强AI带的菜鸡光速打败这几年的最强车手做宣传，来推强AI大数据（？）
+
+但这集这AI自己跑上头了，下集不整个大活给女主的话我是瞧不起她的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

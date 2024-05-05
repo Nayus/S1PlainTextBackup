@@ -10935,3 +10935,75 @@ steam很有可能会给受影响的玩家无条件退款，部分玩家已经开
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  天王寺綯  
+##### 3998#       发表于 2024-5-5 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814550&amp;ptid=2170852" target="_blank">normalli 发表于 2024-5-5 09:49</a>
+
+非常符合我对日本人的认识</blockquote>
+索尼是美国公司！不许你侮辱他！
+
+*****
+
+####  紫菜粉丝煲  
+##### 3999#       发表于 2024-5-5 09:59
+
+这么大件乐子看微博只有游民星空和二柄说了，要不是看论坛都不知道这事
+
+
+*****
+
+####  朔方原的星  
+##### 4000#       发表于 2024-5-5 10:00
+
+好好骑着自行车非要自己拿根木棍插进前轮里，还有嗦粉高呼插得好，难道你们骑自行车都不往前轮插木棍吗
+
+这，就是索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bakuza  
+##### 4001#       发表于 2024-5-5 10:01
+
+拿gpt写的，未作语法检查
+
+Subject: Refund Request for "Helldivers 2" due to New Third-Party Account Requirement
+
+Dear Steam Support Team,
+
+I am writing to formally request a refund for my purchase of "Helldivers 2" (Order ID: [Your Order ID]), which I purchased on [Date of Purchase]. I understand that Steam's refund policy typically covers games with less than two hours of playtime within 14 days of purchase. However, I believe my situation warrants special consideration due to recent developments with the game that were not disclosed at the time of purchase.
+
+When I bought "Helldivers 2", there was no clear indication that a PlayStation Network (PSN) account would be a mandatory requirement to access the game. This requirement was introduced after the purchase and has significantly altered the terms under which I originally agreed to buy the game. It was not until recently that the developers announced that linking a PSN account would become compulsory, a condition that was obscured at the game's release and waived for three months.
+
+The introduction of this unforeseen requirement restricts my access to the game unless I consent to register and use a third-party service and account, which I am neither willing nor comfortable to do. This change was not part of the initial agreement when I made my purchase, and it is a condition that I cannot accept due to privacy concerns and the principle of the matter.
+
+Additionally, the multiplayer functionality of "Helldivers 2", which is a core aspect of the gaming experience, has not been working as intended. This has significantly diminished my ability to enjoy the game and is yet another reason why I am seeking a refund.
+
+Given these exceptional circumstances, where the product's terms of use have been substantially altered post-purchase, and the game's key features are not functioning as promised, I am requesting a full refund of my purchase.
+
+I appreciate your attention to this matter and hope that Steam can make an exception to the refund policy under these unique circumstances. I look forward to your response and a resolution to this issue.
+
+Thank you for your time and understanding.
+
+Best regards,
+
+[Your Full Name]
+
+[Your Steam User ID]
+
+[Your Contact Information]
+
+*****
+
+####  wthall  
+##### 4002#       发表于 2024-5-5 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814580&amp;ptid=2170852" target="_blank">狂风DKC 发表于 2024-5-5 09:53</a>
+
+所以我们CD-KEY玩家就只能躺平任艹了吗，有没有办法救救啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我认了，反正也玩了70多个小时，够本了。以后索尼的游戏全部盗版伺候就行，不想赚我钱还不容易吗？
+

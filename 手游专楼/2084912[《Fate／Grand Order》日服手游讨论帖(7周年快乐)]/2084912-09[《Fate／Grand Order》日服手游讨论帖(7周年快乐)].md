@@ -7708,3 +7708,19 @@ fsr光荣23-24财报是41万
 我一直脑补草十郎成年后大概会是隔壁冬木teacher那种范儿，没想到会这样。
 趁长假最后一天云完了，这次联动剧本真的非常令人满足。但看着三人组各奔东西，有种淡淡的悲伤，总觉得周遭人物都在变好，唯独他们的时间仿佛凝固了一样
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12706#       发表于 2024-5-5 23:10
+
+<img src="https://img.saraba1st.com/forum/202405/05/230937as1rj2gsm1sjm2kj.png" referrerpolicy="no-referrer">
+
+<strong>70f4edc3b3924c6ff08b562a299c3db3.png</strong> (365.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 23:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

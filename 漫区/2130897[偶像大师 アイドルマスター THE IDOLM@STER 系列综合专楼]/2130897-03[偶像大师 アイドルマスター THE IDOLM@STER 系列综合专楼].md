@@ -11146,3 +11146,19 @@ b站学马那个号不就是大名鼎鼎的万南哥吗<img src="https://static.
 
 去年就在发还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkendless  
+##### 4062#       发表于 2024-5-5 23:06
+
+代便这手是跟上了潮流。学马仕角色关系性不少，毕竟完全的学院背景，初期角色也不算太多，剧情上肯定要做文章的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这对看角色pv就入股了，期待一下后续
+
+*****
+
+####  rgauss  
+##### 4063#       发表于 2024-5-5 23:08
+
+万代：简单进行一个两头恰
+

@@ -12742,3 +12742,39 @@ https://weibo.com/2016719001/OcV1QBfHB
 
 这游戏成本不会太低的，单纯就是箭头技术拉垮了
 
+
+*****
+
+####  sprongs  
+##### 4172#       发表于 2024-5-5 23:10
+
+<img src="https://img.saraba1st.com/forum/202405/05/230950zk99eep4ri44244v.jpg" referrerpolicy="no-referrer">
+
+<strong>img_7082.jpg</strong> (111.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 23:09 上传
+
+啊这算不算花生弹了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  九十九忍  
+##### 4173#       发表于 2024-5-5 23:11
+
+社区管理这种岗位是不是真就是从在游戏社区里“花很多时间”的人里招来的，不然真的很难想象哪弄来的这种贵物
+
+*****
+
+####  Benighted  
+##### 4174#       发表于 2024-5-5 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64821122&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-5-5 23:11</a>
+社区管理这种岗位是不是真就是从在游戏社区里“花很多时间”的人里招来的，不然真的很难想象哪弄来的这种贵 ...</blockquote>
+好像之前都是一代reddit板块的管理员
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12721,3 +12721,24 @@ https://weibo.com/2016719001/OcV1QBfHB
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  风萧飒  
+##### 4170#       发表于 2024-5-5 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820785&amp;ptid=2170852" target="_blank">zid99825 发表于 2024-5-5 22:38</a>
+上线写的就是required ，只不过一堆bug绑定失败就去掉了而已
+
+论坛助手,iPad ...</blockquote>
+说是这么说但要这就是个小众游戏，箭头跟索尼说自己技术太差不支持绑定，应该就给他浑水摸鱼摸过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  normalli  
+##### 4171#       发表于 2024-5-5 22:59
+
+这游戏成本不会太低的，单纯就是箭头技术拉垮了
+

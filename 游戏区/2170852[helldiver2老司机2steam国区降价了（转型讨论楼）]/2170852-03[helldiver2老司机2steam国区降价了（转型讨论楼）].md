@@ -11786,3 +11786,15 @@ Sucker Punch是比较无辜，但对马岛PC版我已经决定不买了<img src=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟电脑系统用的都是微软的，psn这账号就算绑上去在pc端也是毫无意义提供不了任何服务
 
+
+*****
+
+####  tonyunreal  
+##### 4076#       发表于 2024-5-5 14:06
+
+<img src="https://p.sda1.dev/17/5acb7e2c95791e5bd6dc2d79a3e234dc/psnaccount.jpg" referrerpolicy="no-referrer">
+
+其他游戏的评论开始出现新模板了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+出处: [https://steamcommunity.com/profi ... recommended/548430/](https://steamcommunity.com/profiles/76561198417919554/recommended/548430/)
+

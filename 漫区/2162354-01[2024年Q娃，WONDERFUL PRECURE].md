@@ -1273,3 +1273,22 @@ INABA
 明日のわんぷり演出しました　よろしくお願いします
 <img src="https://p.sda1.dev/17/1f1a85214220124fb0ff2a432e9bfe0c/20240505_134810.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kreis  
+##### 1410#       发表于 2024-5-5 14:08
+
+狗组都暴露了，小雪也没必要再藏了吧，铲屎官都让人给拐微笑花园了，再不变人告白真要成苦主了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 1411#       发表于 2024-5-5 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816602&amp;ptid=2162354" target="_blank">Kreis 发表于 2024-5-5 14:08</a>
+
+狗组都暴露了，小雪也没必要再藏了吧，铲屎官都让人给拐微笑花园了，再不变人告白真要成苦主了 ...</blockquote>
+怕不是下集犬组要被猫猫暴打了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

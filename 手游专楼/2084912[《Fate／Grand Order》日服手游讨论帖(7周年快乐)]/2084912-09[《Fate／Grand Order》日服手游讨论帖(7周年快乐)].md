@@ -7675,3 +7675,14 @@ fsr光荣23-24财报是41万
 
 何况要批评也是抽卡的篮子和有珠丑爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12703#       发表于 2024-5-5 14:55
+
+远离魔术，魔术让人不幸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+将来会不会有鸢丸侦探事件薄的可能性
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1304,3 +1304,17 @@ INABA
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  粉儿alice  
+##### 1413#       发表于 2024-5-5 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814092&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-5-5 08:05</a>
+原来猫真的讨厌狗啊，又有得写了
+
+上野这部为什么要用这个马甲呢，搞不懂，修得还是一如既往 ...</blockquote>
+这两年的策略都挺乱的 天空各种笑话不用说了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+今年开局就公布狗组两人就可以了 猫组本身就是追加配置瞒着 小雪先春季空降不入队 给观众吊胃口 之后夏季真由变身后和小雪一起入队就可以了
+当然我觉得是这是制片人没水平的问题
+

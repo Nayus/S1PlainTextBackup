@@ -144,3 +144,13 @@
 
 ng+衣服和数据库全收集了。虽然世界观是一堆sf元素大杂烩但在美术的加持下观感很好。旧世界三大公司还得属四星物产最变态，都设计些啥衣服呀能自由变形的，自带真实花香的，自带兴奋剂的，自带隐形装置的….<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Rainwedell  
+##### 1492#       发表于 2024-5-5 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820421&amp;ptid=1978008" target="_blank">宿 发表于 2024-5-5 22:06</a>
+想知道体力和贝塔能量升级，还有箱子能放二周目重复开的时候做完吗，漏了一些但是很难找补，不知道哪些错过 ...</blockquote>
+可以，但服装箱一周目不拿完二周目再拿对应的设计图就只能拿原版拿不到换色
+

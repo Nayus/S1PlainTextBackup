@@ -279,3 +279,23 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  月夜凝雪  
+##### 310#       发表于 2024-5-5 23:50
+
+第三话到第五话明显比一二话好太多，就是两解说那说话方式和语气太烂，
+
+不过莫名其妙的弹出排名太蛋疼了，真的就不能像现实比赛那样直接放在角落么，明明其他动画到了比赛桥段都会这样干
+
+*****
+
+####  月夜凝雪  
+##### 311#       发表于 2024-5-5 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64582040&amp;ptid=2081261" target="_blank">Gysumitka 发表于 2024-4-13 13:13</a>
+
+训练一年什么也不懂，这怎么敢让女主上场</blockquote>
+是找了人来要一年出成果，并不是主角练了一年
+

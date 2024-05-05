@@ -113,3 +113,22 @@
 
 上次暗团最高难得是要靠老鼠走奥义流的，但是这第一把星醒武器除了替代一把暗杖或者暗龙剑外全是掉预测的，替代一把暗杖双面少8K血多6W预测，，替代暗龙剑高3W预测少60W奥义伤害，不懂怎么配了，感觉要把法武的进境换成神威中补回一把暗杖的损失吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17906#       发表于 2024-5-5 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815862&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-5-5 12:35</a>
+
+终于够一个拳了，但是盘子整不会了</blockquote>
+暗方的东西我没农完，不过基本配盘思路还是2星醒拳2巫妖1afd琴当基底，法U上了还剩3个位置
+
+团战的极星器还是尽快换一把出来，哪怕不选箱子纯靠95的掉落箱子也应该够一把了
+
+极星器再占一个位置，剩的两个就看你是想保奥义还是保技伤了
+
+单面船妈x红路的情况，哪怕放弃暗杖也应该有6W血左右，打团也是足够用的。2杖单面+极星器现在的加护数值也有68的奥义上限不用太拘泥于堆满
+
+不过说实话暗10格保奥义收益实在太低了，你哪怕0奥义词条，现在的数值靠各种通用上限也保底有个400w+的奥义伤害，浪费格子堆奥义不值的。打团还是优先技伤好点<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+

@@ -11723,3 +11723,11 @@ only on ps还是有可取之处的，至少不会发生这次这种丢人现眼�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nmd，还是不给退
 
+
+*****
+
+####  Mr.Hopp  
+##### 4070#       发表于 2024-5-5 12:57
+
+无人在意的角落，全服指令快要完成了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

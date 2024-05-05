@@ -12492,3 +12492,13 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七八个朋友也都不玩了，估计怎么样都玩不下去了。
 看了下db好像是补丁后人数掉的更明显点
 
+
+*****
+
+####  北条早苗  
+##### 4147#       发表于 2024-5-5 20:40
+
+PSN这一波掉的没上次平衡后掉的多，但不妨碍玩家们点差评
+
+我就等着看懒狗社周末回来怎么处理，g胖敢开退款的口子才能真金白银痛击索尼和它的狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

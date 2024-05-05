@@ -216,3 +216,24 @@
 
 要说最整齐的大概是火方，虽然火现在并不需要猪枪
 
+
+*****
+
+####  ming_tt  
+##### 17913#       发表于 2024-5-5 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811826&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-5-4 23:41</a>
+
+高达FA实在是太慢了，奥义动画太长了，一开始纯纯日钢板
+
+暗船。。。你能拿得出差不多的盘子和配置其 ...</blockquote>
+差不多阵容，但是最后20％多不知道为啥总是翻车…<strong></strong>
+
+
+*****
+
+####  cenhr  
+##### 17914#       发表于 2024-5-5 20:43
+
+只是看外卖，光火两个基甲式的进化帅爆了，风勉强还行，暗是回归幽灵船了
+

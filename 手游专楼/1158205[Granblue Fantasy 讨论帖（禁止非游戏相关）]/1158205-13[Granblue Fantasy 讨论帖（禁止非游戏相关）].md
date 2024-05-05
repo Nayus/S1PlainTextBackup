@@ -162,3 +162,16 @@
 
 对了法武如果不是为了主手追伤（实际也只有天元jf会用到），暗方也浑身通用点除非你要凑必爆。进境现在太垃圾了，慢热数值也不高上限还卡死了
 
+
+*****
+
+####  江戸前ルナ  
+##### 17908#       发表于 2024-5-5 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816343&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-5-5 13:36</a>
+
+差不多这样，2星醒拳就把afd杖换下来主手得换暗U杖或者职业换成武僧了，为了不让预测虚高用的U拳，其实暗 ...</blockquote>
+谢，看到时候团战BOSS是偏奥义还是技伤吧，上次就是技伤打不过最后还是靠老鼠+跳舞狐的奥义流打过去的。但LICH和红路和跳舞狐都相冲。主要是6W血没暗龙就没防感觉在200HL不会几巴掌就被拍死吗，但是上暗龙和负责驱散的老鼠领域又冲突了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+我天人没做齐果报箱也打得很咸，现在才做了个琴，做拳没戏的。法武也想着换技能的。必爆就算了，现在慢慢农多个拳头就算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -11798,3 +11798,22 @@ Sucker Punch是比较无辜，但对马岛PC版我已经决定不买了<img src=
 
 出处: [https://steamcommunity.com/profi ... recommended/548430/](https://steamcommunity.com/profiles/76561198417919554/recommended/548430/)
 
+
+*****
+
+####  天妇罗  
+##### 4077#       发表于 2024-5-5 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816496&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-5-5 13:53</a>
+
+不就是在整这个玩意吗？只不过大概率是去年下半年才开始起意搞个PC端通用的PSN启动器的，更早之前PC端都 ...</blockquote>
+这个我双手双脚赞成，最好把联机需要psn会员的限制也加上，让pc玩家体验原汁原味的playstation
+
+
+*****
+
+####  burgerWang  
+##### 4078#       发表于 2024-5-5 14:23
+
+DLC退了，本体还在写小作文扯皮中
+

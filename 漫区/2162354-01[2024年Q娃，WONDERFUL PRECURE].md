@@ -1292,3 +1292,15 @@ INABA
 狗组都暴露了，小雪也没必要再藏了吧，铲屎官都让人给拐微笑花园了，再不变人告白真要成苦主了 ...</blockquote>
 怕不是下集犬组要被猫猫暴打了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 1412#       发表于 2024-5-5 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816296&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-5-5 13:29</a>
+她们要对我的茉优做什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">你家麻油都被邀上床了，接着要干什么我都不敢想
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

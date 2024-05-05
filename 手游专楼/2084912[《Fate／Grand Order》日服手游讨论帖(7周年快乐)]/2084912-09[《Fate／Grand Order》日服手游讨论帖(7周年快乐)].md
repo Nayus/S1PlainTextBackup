@@ -7660,3 +7660,18 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">实在不能大改的话咱商量下把鼻子画法改一下吧这个地方差异感太大了
 
+
+*****
+
+####  cenhr  
+##### 12702#       发表于 2024-5-5 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64813042&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-5 01:16</a>
+
+中年草十郎那张脸就是辣眼睛.....这个真没得洗....月世界一堆融入社会的中年人士哪有这样的
+
+比中年 ...</blockquote>
+切嗣、时辰、麻婆和二世那个不是生活在水深火热中，和草十郎成年了最多是和好友一起搭档当侦探差远了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+何况要批评也是抽卡的篮子和有珠丑爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

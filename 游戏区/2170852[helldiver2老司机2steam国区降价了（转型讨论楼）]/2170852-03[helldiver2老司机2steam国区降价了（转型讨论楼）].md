@@ -12465,3 +12465,21 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 那索尼不是心里更有底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊塔库亚  
+##### 4144#       发表于 2024-5-5 20:15
+
+就这样上线人数都没少，大家伙还是闹闹就算了吧，给自己一个台阶下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  daikejay  
+##### 4145#       发表于 2024-5-5 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你随意，我不上线也不会绑，这就是我的态度。又不是只有你索游戏才能玩，买几个4399一样打发一天，既然这么有恃无恐那只能祝你们越办越好了，希望下次继续
+

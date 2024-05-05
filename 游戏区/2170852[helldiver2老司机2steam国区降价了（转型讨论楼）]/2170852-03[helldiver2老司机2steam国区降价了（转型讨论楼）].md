@@ -12321,3 +12321,81 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Aeons  
+##### 4129#       发表于 2024-5-5 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818690&amp;ptid=2170852" target="_blank">陈词与芍药 发表于 2024-5-5 18:59</a>
+在谈了在谈了.jpg</blockquote>
+下面这一条他删了。
+
+*****
+
+####  Aeons  
+##### 4130#       发表于 2024-5-5 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我刚想说他这条推挺危险的，结果就删了
+
+*****
+
+####  Awanano  
+##### 4131#       发表于 2024-5-5 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819058&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-5 19:45</a>
+我刚想说他这条推挺危险的，结果就删了</blockquote>
+这条可以吃集体诉讼了吧…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刻意不告知
+也许他们招程序员之前可以先招一下法务和公关，李想都比这帮北欧人会说话
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Leomai  
+##### 4132#       发表于 2024-5-5 19:49
+
+<img src="https://img.saraba1st.com/forum/202405/05/194819tzkcmjkd9k0607p4.png" referrerpolicy="no-referrer">
+
+<strong>3T@S66Z@J)AI]BL$M[%IJML.png</strong> (205.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 19:48 上传
+
+感觉应该是没有回旋余地了，要么延后期限要么准备别的缓冲方案
+
+看他的意思是箭头这边做了决定一开始没有强制要求绑定，先让游戏发售后跑起来。
+
+但是现在时间到了他们竟然啥也没准备就让玩家去绑定PSN账号不然不让玩，只能说这些人是不是战锤涂棋子涂傻了。
+
+2024年最大的草台！
+
+
+*****
+
+####  Aeons  
+##### 4133#       发表于 2024-5-5 19:51
+
+ 本帖最后由 Aeons 于 2024-5-5 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819098&amp;ptid=2170852" target="_blank">Awanano 发表于 2024-5-5 19:49</a>
+
+这条可以吃集体诉讼了吧…刻意不告知
+
+也许他们招程序员之前可以先招一下法务和公关，李想都比这帮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的，回复太多有点乱，找了下没删，挺硬的。 感觉是坐实了诈骗加一己之力承担所有责任吧？
+
+*****
+
+####  JOJO42  
+##### 4134#       发表于 2024-5-5 19:51
+
+乐，我上个f95zone都能看到有人骂索尼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4135#       发表于 2024-5-5 19:52
+
+最终结局，拉扯到月中箭头宣布跟索尼谈妥不用绑定也能继续玩，第二天光能上线，箭头重回荣耀之地。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

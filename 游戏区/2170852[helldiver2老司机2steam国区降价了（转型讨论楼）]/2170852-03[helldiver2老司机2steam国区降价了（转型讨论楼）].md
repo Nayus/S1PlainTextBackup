@@ -12502,3 +12502,18 @@ PSN这一波掉的没上次平衡后掉的多，但不妨碍玩家们点差评
 
 我就等着看懒狗社周末回来怎么处理，g胖敢开退款的口子才能真金白银痛击索尼和它的狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暴走的包子  
+##### 4148#       发表于 2024-5-5 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算不出绑定这事，平衡一坨+下个通行证也是一坨的情况下人数肯定是继续掉的了
+
+*****
+
+####  gammatau  
+##### 4149#       发表于 2024-5-5 20:46
+
+箭头最近这几个表态怎么一股把索尼架起来的样子啊，索尼还是不是你老板了
+

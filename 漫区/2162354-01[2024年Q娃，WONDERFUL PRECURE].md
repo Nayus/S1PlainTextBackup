@@ -1388,3 +1388,31 @@ INABA
 
 一起蹲草丛草死<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  支仓爱理  
+##### 1421#       发表于 2024-5-5 20:47
+
+的确有点配 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/05/204753tt2omotfegoy691e.jpg" referrerpolicy="no-referrer">
+
+<strong>NJ[Y{J}UA{AW`Y{D)9@H1EQ.jpg</strong> (152.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 20:47 上传
+
+
+*****
+
+####  粉儿alice  
+##### 1422#       发表于 2024-5-5 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817350&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-5-5 16:07</a>
+汪q现在怎么感觉彩羽像是真主角，小麦是彩羽的狗(挂件)，小麦后面可以给点力当回真粉主吗 ...</blockquote>
+去年也不是这样子吗
+名义上是创新把传统女一女二换了位置
+结果换汤不换药 现在小麦地位各种情况堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

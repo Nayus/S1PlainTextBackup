@@ -11949,3 +11949,11 @@ DLC退了，本体还在写小作文扯皮中
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Mr.Hopp  
+##### 4093#       发表于 2024-5-5 16:21
+
+我觉得你们该退款退款该差评差评，但是别急，我觉得索尼肯定滑轨。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

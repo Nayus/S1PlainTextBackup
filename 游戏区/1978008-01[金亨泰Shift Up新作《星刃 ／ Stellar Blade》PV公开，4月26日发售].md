@@ -7811,3 +7811,29 @@ bu技能都是无敌的，beta技能只是霸体，可以直接利用bu技跟bos
 
 到轨道电梯了是什么进度，要收集服装的话是不是最后之前把该收集的收集了？
 
+
+*****
+
+####  Schwarzess  
+##### 1478#       发表于 2024-5-5 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818419&amp;ptid=1978008" target="_blank">hokagokenjatime 发表于 2024-5-5 18:28</a>
+到轨道电梯了是什么进度，要收集服装的话是不是最后之前把该收集的收集了？ ...</blockquote>
+最终盘，之后基本是一路主线到底了。
+电梯剧情结束还可以进行探索，之前接过的部分任务还能做，包括板子接的委托（可以去废土的板子交），但新任务不能接了。捡罐子开箱子之类的不影响。
+
+*****
+
+####  icylight  
+##### 1479#       发表于 2024-5-5 18:53
+
+日本那边都开始限购了，每人只能买一份，说明日本应该卖得不错？
+
+<img src="https://img.saraba1st.com/forum/202405/05/185232k6x5omjzzbnx7ycb.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-05-05 184922.jpg</strong> (102.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 18:52 上传
+

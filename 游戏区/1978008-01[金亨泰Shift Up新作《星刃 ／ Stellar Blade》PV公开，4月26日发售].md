@@ -7787,3 +7787,11 @@ bu技能都是无敌的，beta技能只是霸体，可以直接利用bu技跟bos
 
 应该可以往后拉的这个箱子，然后从拉出的缝隙走出去。
 
+
+*****
+
+####  iceblue  
+##### 1475#       发表于 2024-5-5 17:10
+
+漏了俩篝火，可能是在埃多斯9的两个，意味着要白金得三周目了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

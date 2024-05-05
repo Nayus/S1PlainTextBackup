@@ -11957,3 +11957,36 @@ DLC退了，本体还在写小作文扯皮中
 
 我觉得你们该退款退款该差评差评，但是别急，我觉得索尼肯定滑轨。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  burgerWang  
+##### 4094#       发表于 2024-5-5 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817450&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-5 16:21</a>
+
+我觉得你们该退款退款该差评差评，但是别急，我感觉索尼肯定滑轨。</blockquote>
+箭头已经有滑跪的趋势了，先是甩锅索尼切割，然后说自己之前没有意识到那么多地区无法注册PSN账户balabala，说肯定会找到个解决办法。我寻思解决办法不就是不强制绑定么，你难道给那些需要主机才能注册PSN的国家的人每人发一台主机吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+转几条红迪的热评 <blockquote>Sony: "Just don't be poor lol"</blockquote><blockquote>Don’t you guys have playstations?</blockquote><blockquote>"We're sorry your place of work was blown up or has been turned into a military outpost but have you considered buying a PS5 so you can continue to play a game you bought on your PC?"</blockquote>
+
+*****
+
+####  Mr.Hopp  
+##### 4095#       发表于 2024-5-5 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817537&amp;ptid=2170852" target="_blank">burgerWang 发表于 2024-5-5 16:29</a>
+
+箭头已经有滑跪的趋势了，先是甩锅索尼切割，然后说自己之前没有意识到那么多地区无法注册PSN账户balabal ...</blockquote>
+问题在于决策肯定是索尼做的，不强制绑定他也说了不算。
+
+我真怀疑箭头是不是欺上瞒下，对索尼说玩家肯定会答应链接账号，对玩家说都是索尼的决策。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sanco  
+##### 4096#       发表于 2024-5-5 16:35
+
+现在还有回旋余地，几十个小时给退款我觉得不太可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

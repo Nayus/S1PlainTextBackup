@@ -10772,3 +10772,13 @@ pv买了，老早就有人吐槽了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">马的成功我觉得还是游戏确实出场惊艳的作用吧，宣发的话cy自家有个金船频道，游戏落地前做了好多期了也没多火，一度停播的
 
+
+*****
+
+####  花开安菲路  
+##### 4020#       发表于 2024-5-5 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815598&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-5-5 12:01</a>
+管人宣发我真觉得没必要好吧 你企划火了管人自己都会来蹭的</blockquote>
+流量是需要引导的，做好自身当然是最重要的，我想表达的就是管人工商流媒体买量投放这些，是最基础的宣发方式了，你不能指望做了这些就能大火，但如果你连这些基础的东西都不干，只能说纯摆烂或连当今宣发的门都没入。
+

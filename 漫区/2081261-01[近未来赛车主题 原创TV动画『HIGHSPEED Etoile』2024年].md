@@ -247,3 +247,17 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 —— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  小大头菜  
+##### 307#       发表于 2024-5-5 12:52
+
+相对好看的主因是这集总算是在跑赛道，有攻防了吧，而不是前几集那样转圈圈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+往回去看了看前几集，女主玩游戏拿冠军时第一个发消息祝贺的就是ami酱，
+
+女主怕不是ami酱钦点的挂件，所以才让女主自由发挥，但没到游戏水平就很气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赛博姛有戏
+
+不懂规则的提个问，出黄旗时能进站吗？这集不准进，前几集随便进，哪个对啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

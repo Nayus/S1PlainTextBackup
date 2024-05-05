@@ -327,3 +327,17 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 第一集的时候我就说这片子没摆烂了
 
+
+*****
+
+####  BB-63  
+##### 315#       发表于 2024-5-6 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815998&amp;ptid=2081261" target="_blank">小大头菜 发表于 2024-5-5 12:52</a>
+相对好看的主因是这集总算是在跑赛道，有攻防了吧，而不是前几集那样转圈圈
+
+往回去看了看前几集， ...</blockquote>
+F1黄旗维修区通道没关闭就能pit
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

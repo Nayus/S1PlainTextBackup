@@ -130,3 +130,28 @@ QQ截图20240504220741.png
 
 玩的switch版，表现实在令人着急。字体选的不好，挤成一团；bug频出，数字显示不对，某个挑战难度错误
 
+
+*****
+
+####  Tnsbilws  
+##### 311#         楼主| 发表于 2024-5-5 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814127&amp;ptid=1915014" target="_blank">myep 发表于 2024-5-5 08:16</a>
+拖的实在太久，到五月甚至都没有正式更新Steam成就，创意工坊还藏在测试版里。虽然说这么多年都等了，但正 ...</blockquote>
+但新内容是可以确定在做，只是确定在夏季更新。
+而创意工坊还在测试版是bug一直出，pan也一反常态最近几周一直都频繁呆在discord和玩家联系反馈（也包括和我）。
+我很难想象他会抛下这个游戏，毕竟热度仍然很高（特指外网），当然你要说做这游戏就是想追星也有可能（伊藤润二嘛....）
+
+—— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Tnsbilws  
+##### 312#         楼主| 发表于 2024-5-5 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814150&amp;ptid=1915014" target="_blank">喀秋莎450 发表于 2024-5-5 08:24</a>
+玩的switch版，表现实在令人着急。字体选的不好，挤成一团；bug频出，数字显示不对，某个挑战难度错误 ...</blockquote>
+NS版不知道为啥发行不把新补丁打上去，搞不懂
+
+—— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

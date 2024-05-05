@@ -132,3 +132,33 @@
 
 不过说实话暗10格保奥义收益实在太低了，你哪怕0奥义词条，现在的数值靠各种通用上限也保底有个400w+的奥义伤害，浪费格子堆奥义不值的。打团还是优先技伤好点<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17907#       发表于 2024-5-5 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815862&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-5-5 12:35</a>
+
+终于够一个拳了，但是盘子整不会了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202405/05/132712czacaeg9ah0zvh7z.png" referrerpolicy="no-referrer">
+
+<strong>`J0G9L])496R2LP_{]9(IYM.png</strong> (81.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 13:27 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/133059fsog2zt21mltk9ul.png" referrerpolicy="no-referrer">
+
+<strong>FS~WT4{B_ORBNTOHRAHW43S.png</strong> (44.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 13:30 上传
+
+差不多这样，2星醒拳就把afd杖换下来主手得换暗U杖或者职业换成武僧了，为了不让预测虚高用的U拳，其实暗直接用U杖也不算虚高就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面加护角色如果落地了两把技炼刀的增伤单面也几乎快堆满了，还能赚不少技伤上限，是可以考虑进盘替代群神弓的。
+
+对了法武如果不是为了主手追伤（实际也只有天元jf会用到），暗方也浑身通用点除非你要凑必爆。进境现在太垃圾了，慢热数值也不高上限还卡死了
+

@@ -11559,3 +11559,26 @@ May 5, 2024
 连steam都已经正式停止对win10以下支持了，别抱着win7不放了</blockquote>
 此一时彼一时嘛，16年那会为了在pc上玩60帧地平线3可是废了我好大的劲，去他妈的印度人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4054#       发表于 2024-5-5 11:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的牛批，每步都选择弹幕最多的打发
+
+*****
+
+####  kalavinka  
+##### 4055#         楼主| 发表于 2024-5-5 11:46
+
+给
+
+<img src="https://img.saraba1st.com/forum/202405/05/114512g0g0xh5nxr4rgef5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5974.png</strong> (291.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 11:45 上传
+

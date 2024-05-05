@@ -1211,3 +1211,13 @@ INABA
 
 小雪：我才被ban一集你们怎么快进到能聊Q娃的话题了？
 
+
+*****
+
+####  pokemon最爱  
+##### 1405#       发表于 2024-5-5 11:40
+
+小雪直接被铲屎官BAN了一集可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结果三个笨蛋依然完全没有思考到小雪可能就是Nyammy这件事上（
+

@@ -7640,3 +7640,11 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">成年草的五官有很强烈的へのへのもへじ既视感，尤其鼻子和眼睛，反正挺刻意的
 
+
+*****
+
+####  v22325  
+##### 12700#       发表于 2024-5-5 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草十郎成年那个我都没认出来，一上来说他叫静希草十郎，我以为是哪个黑幕上来冒充他的。
+

@@ -11490,3 +11490,18 @@ Best regards,
 
 May 5, 2024
 
+
+*****
+
+####  h122h  
+##### 4046#       发表于 2024-5-5 11:20
+
+下一步是不是要steam玩家必须有psn会员，才能给你联机啊。
+
+*****
+
+####  卡拉德利姆  
+##### 4047#       发表于 2024-5-5 11:23
+
+联机服务费交一交<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

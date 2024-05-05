@@ -10891,3 +10891,47 @@ steam很有可能会给受影响的玩家无条件退款，部分玩家已经开
 
 不在上述地区没得退款？感觉亏了几个亿
 
+
+*****
+
+####  KafuuChino  
+##### 3993#       发表于 2024-5-5 09:44
+
+难蚌
+买的超级冤种版CDK，更难蚌了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  陈词与芍药  
+##### 3994#       发表于 2024-5-5 09:47
+
+这也行啊，想你了积木叔叔，起码人只会涨价，涨价后也没恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  normalli  
+##### 3995#       发表于 2024-5-5 09:49
+
+非常符合我对日本人的认识
+
+
+*****
+
+####  狂风DKC  
+##### 3996#       发表于 2024-5-5 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以我们CD-KEY玩家就只能躺平任艹了吗，有没有办法救救啊
+
+*****
+
+####  ravend233  
+##### 3997#       发表于 2024-5-5 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都买cdk了，认了吧，就当看乐子的门票，下次不买了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

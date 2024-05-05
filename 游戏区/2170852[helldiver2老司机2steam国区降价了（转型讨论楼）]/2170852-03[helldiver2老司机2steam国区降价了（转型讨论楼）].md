@@ -11007,3 +11007,37 @@ Best regards,
 所以我们CD-KEY玩家就只能躺平任艹了吗，有没有办法救救啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我认了，反正也玩了70多个小时，够本了。以后索尼的游戏全部盗版伺候就行，不想赚我钱还不容易吗？
 
+
+*****
+
+####  760194962  
+##### 4003#       发表于 2024-5-5 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64811355&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-5-4 22:39</a>
+
+写了小作文了，退款到了就买smtvv</blockquote>
+俩游戏都得刷 也有相似性<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 4004#       发表于 2024-5-5 10:12
+
+头疼砍头咋把国区留住了
+
+<img src="https://img.saraba1st.com/forum/202405/05/101215m162cvkkkkck3fqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (256.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:12 上传
+
+*****
+
+####  SergeGlenn  
+##### 4005#       发表于 2024-5-5 10:12
+
+索尼很坚决啊，直接把游戏从PSN未覆盖区域的商店下架了？
+

@@ -12814,3 +12814,22 @@ L和G且不说，非传统性别认知者即T有无限的时间泡在互联网�
 
 上次上线还是4月4号，到时候如果退不了这逼游戏就跟还愿一样污染我游戏库了
 
+
+*****
+
+####  缺德猫  
+##### 4179#       发表于 2024-5-6 01:11
+
+为啥索尼这么强硬啊？有点不可思议。
+
+
+*****
+
+####  FLZB  
+##### 4180#       发表于 2024-5-6 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822090&amp;ptid=2170852" target="_blank">leafS 发表于 2024-5-6 00:59</a>
+
+上次上线还是4月4号，到时候如果退不了这逼游戏就跟还愿一样污染我游戏库了 ...</blockquote>
+退不了还可以直接进客服页要求移除游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

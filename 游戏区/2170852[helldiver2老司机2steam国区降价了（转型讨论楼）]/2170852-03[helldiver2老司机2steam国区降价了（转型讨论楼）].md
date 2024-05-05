@@ -12849,3 +12849,21 @@ L和G且不说，非传统性别认知者即T有无限的时间泡在互联网�
 
 这逼箭头是不是有什么特殊嗜好？社区管理全是这种逆天飞柱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 4182#       发表于 2024-5-6 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822158&amp;ptid=2170852" target="_blank">缺德猫 发表于 2024-5-6 01:11</a>
+
+为啥索尼这么强硬啊？有点不可思议。</blockquote>
+明显是sony对玩家做服从性和底线测试，从会员费补差价到涨价70到再到现在，没反应就继续割，纯粹的死妈资本
+
+*****
+
+####  Aeons  
+##### 4183#       发表于 2024-5-6 02:26
+
+因为可能本来的目的就是为了增加psn影响啊，反正游戏钱也赚到了，后续影响也是后续的事了，又不是所有人都不绑了，绑多少都是赚到。
+

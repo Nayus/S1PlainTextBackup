@@ -11229,3 +11229,18 @@ b站学马那个号不就是大名鼎鼎的万南哥吗<img src="https://static.
 今天这首可以，就是明显的唱跳曲，到时候看声优配舞后驾驭能力如何了 ...</blockquote>
 披露生放送里说清夏是唯一在试镜时要测试舞蹈的角色，湊みや表示自己一直喜欢跳舞，所以还算轻松地过了试镜……没问题吧，大概<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰澄  
+##### 4071#       发表于 2024-5-6 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820674&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-5 22:28</a>
+
+要比小黄的难听还是很难吧
+
+感觉中规中规，也不对个人的电波
+
+隔壁世界大明星的原创曲我倒是挺多喜欢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大明星感觉纯是作曲编曲在负重训练
+

@@ -95,3 +95,21 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  江戸前ルナ  
+##### 17905#       发表于 2024-5-5 12:35
+
+终于够一个拳了，但是盘子整不会了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/05/123112mzj48w48ngjhj4nm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240505123108.png</strong> (136.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 12:31 上传
+
+上次暗团最高难得是要靠老鼠走奥义流的，但是这第一把星醒武器除了替代一把暗杖或者暗龙剑外全是掉预测的，替代一把暗杖双面少8K血多6W预测，，替代暗龙剑高3W预测少60W奥义伤害，不懂怎么配了，感觉要把法武的进境换成神威中补回一把暗杖的损失吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -11698,3 +11698,20 @@ only on ps还是有可取之处的，至少不会发生这次这种丢人现眼�
 
 看了下30天内22%了
 
+
+*****
+
+####  天妇罗  
+##### 4067#       发表于 2024-5-5 12:29
+
+索尼真的真么在乎它那个b账号就应该在pc上出自己的启动器，看看有多少人去买你的游戏
+
+*****
+
+####  ravend233  
+##### 4068#       发表于 2024-5-5 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">steam 方面估计也在寻思怎么处理这事，别急
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

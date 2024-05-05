@@ -11209,3 +11209,107 @@ Reddit有人发过一篇大意为“一个月后就没有中国高玩来hard car
 
 —— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gammatau  
+##### 4023#       发表于 2024-5-5 10:46
+
+简直可以阴谋论了，也许这是从舆论上摧毁“这款游戏比3A好”的一环
+
+*****
+
+####  zid99825  
+##### 4024#       发表于 2024-5-5 10:48
+
+<img src="https://img.saraba1st.com/forum/202405/05/104806z6yjiztyvvhywhq9.png" referrerpolicy="no-referrer">
+
+<strong>img_1702.png</strong> (169.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:48 上传
+
+国内索索怎么就学不会洗地呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Hyst3r1a  
+##### 4025#       发表于 2024-5-5 10:48
+
+箭头这顺势把锅全甩给索尼，计划通？
+这下没人关心箭头不修bug挤牙膏的罪了
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  唯识连刃  
+##### 4026#       发表于 2024-5-5 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还没有回旋，小作文启动！
+
+
+*****
+
+####  xinfengj  
+##### 4027#       发表于 2024-5-5 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814863&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-5 10:31</a>
+说话，别装死，怎么逆风就打不了了</blockquote>
+<img src="https://p.sda1.dev/17/f18e7cdb2f5c0203b7faf8be3f3e9a4e/CMP_20240505104913484.jpg" referrerpolicy="no-referrer">
+哪来的逆风？打差评才能帮箭头对抗索尼啊？
+
+*****
+
+####  Mr.Hopp  
+##### 4028#       发表于 2024-5-5 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815012&amp;ptid=2170852" target="_blank">Hyst3r1a 发表于 2024-5-5 10:48</a>
+
+箭头这顺势把锅全甩给索尼，计划通？
+
+这下没人关心箭头不修bug挤牙膏的罪了</blockquote>
+玩都快没得玩了，还有人担心这个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大哀之君  
+##### 4029#       发表于 2024-5-5 10:53
+
+<img src="https://img.saraba1st.com/forum/202405/05/105321uns8ni3j0fi2ngn2.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1714877565864.jpg</strong> (47.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/105321ecyubcctstwtyfce.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1714877568127.jpg</strong> (87.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/105321pw0smm0qggfazm1f.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1714877573358.jpg</strong> (125.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/105322x8rme98s978i5j9j.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1714877576262.jpg</strong> (107.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 10:53 上传
+
+唉，微软
+

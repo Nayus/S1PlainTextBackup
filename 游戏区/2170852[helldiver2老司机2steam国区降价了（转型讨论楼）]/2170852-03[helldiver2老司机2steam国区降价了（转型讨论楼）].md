@@ -12517,3 +12517,32 @@ PSN这一波掉的没上次平衡后掉的多，但不妨碍玩家们点差评
 
 箭头最近这几个表态怎么一股把索尼架起来的样子啊，索尼还是不是你老板了
 
+
+*****
+
+####  Launce  
+##### 4150#       发表于 2024-5-5 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819603&amp;ptid=2170852" target="_blank">gammatau 发表于 2024-5-5 20:46</a>
+
+箭头最近这几个表态怎么一股把索尼架起来的样子啊，索尼还是不是你老板了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CEO已经揽下来是他锅了，承认了不充分告知玩家绑定政策是他做的决策
+
+*****
+
+####  zid99825  
+##### 4151#       发表于 2024-5-5 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819603&amp;ptid=2170852" target="_blank">gammatau 发表于 2024-5-5 20:46</a>
+箭头最近这几个表态怎么一股把索尼架起来的样子啊，索尼还是不是你老板了 ...</blockquote>
+索尼本来就不是他老板啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只是发行商金主
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  空中的风铃  
+##### 4152#       发表于 2024-5-5 20:59
+
+别人玩不玩是别人的事，反正我是不绑加不玩，能退就退，不能退就当烧给索尼和箭头那不存在的爹妈吧
+

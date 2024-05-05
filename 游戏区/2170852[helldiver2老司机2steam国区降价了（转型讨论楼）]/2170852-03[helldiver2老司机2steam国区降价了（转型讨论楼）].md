@@ -10876,3 +10876,18 @@ steam很有可能会给受影响的玩家无条件退款，部分玩家已经开
 
 — from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  m98626  
+##### 3991#       发表于 2024-5-5 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，现在16万差评把V社引过来开放退款了
+
+*****
+
+####  BadYanL  
+##### 3992#       发表于 2024-5-5 09:43
+
+不在上述地区没得退款？感觉亏了几个亿
+

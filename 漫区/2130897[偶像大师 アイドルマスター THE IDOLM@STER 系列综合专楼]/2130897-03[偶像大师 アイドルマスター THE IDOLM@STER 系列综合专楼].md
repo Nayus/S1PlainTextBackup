@@ -10893,3 +10893,116 @@ b站学马那个号不就是大名鼎鼎的万南哥吗<img src="https://static.
 
 比小黄的好听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 4033#       发表于 2024-5-5 22:06
+
+我一直是清夏p啊😭
+
+*****
+
+####  rslika  
+##### 4034#       发表于 2024-5-5 22:07
+
+ 本帖最后由 rslika 于 2024-5-5 22:09 编辑 
+
+应该是目前为止唱功最好的，歌也挺好虽然不合我胃口
+
+但是这个编曲结构感觉要高强度唱跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超法拉  
+##### 4035#       发表于 2024-5-5 22:07
+
+感觉…很扎实的jpop？
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  花开安菲路  
+##### 4036#       发表于 2024-5-5 22:07
+
+清夏是目前感觉最好的一首<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 4037#       发表于 2024-5-5 22:07
+
+还得是商业音乐人
+
+*****
+
+####  magicc  
+##### 4038#       发表于 2024-5-5 22:08
+
+话说贵公子这次也是负责写全体曲吗
+
+*****
+
+####  rgauss  
+##### 4039#       发表于 2024-5-5 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820452&amp;ptid=2130897" target="_blank">magicc 发表于 2024-5-5 22:08</a>
+话说贵公子这次也是负责写全体曲吗</blockquote>
+校歌
+
+*****
+
+####  安广多惠子  
+##### 4040#       发表于 2024-5-5 22:10
+
+歌不错，但是イラストだけしょぼくね？
+
+
+*****
+
+####  rgauss  
+##### 4041#       发表于 2024-5-5 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820344&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-5 21:58</a>
+比小黄的好听</blockquote>
+这个时间段的hw还没太公式化
+
+*****
+
+####  840266848  
+##### 4042#       发表于 2024-5-5 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作曲虽然对我个人没毒性，但是看起来不走网红曲风了吧，但是目前风评最好的一首
+
+
+*****
+
+####  a85982313  
+##### 4043#       发表于 2024-5-5 22:12
+
+这首才是真的没啥可吐槽的
+
+*****
+
+####  BQlin  
+##### 4044#       发表于 2024-5-5 22:13
+
+比之前的两首好
+
+明天还有植草航，期待一波
+
+*****
+
+####  ViviR  
+##### 4045#       发表于 2024-5-5 22:13
+
+应该是目前为止vo表现最让我满意的。就是不知道为什么有些地方感觉可以更加力大砖飞的地方有一种刻意去压的感觉。但总的来说问题不大。
+
+*****
+
+####  cckuku  
+##### 4046#       发表于 2024-5-5 22:13
+
+感觉还行？中规中矩，就是不知道为什么中间有几段声音听起来有点抖。
+

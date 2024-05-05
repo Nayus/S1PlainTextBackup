@@ -10782,3 +10782,54 @@ image.png
 
 好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我不是夏承凛  
+##### 3983#       发表于 2024-5-5 09:18
+
+突发情况
+
+Steam上《绝地潜兵2》已经在177个无法使用PSN的地区封禁购买，数个货币区域无法购买，目前不包括国区。
+
+完整列表：[https://steamdb.info/changelist/23416542/](https://steamdb.info/changelist/23416542/)
+
+基本只要PSN无法注册的地区全部都被ban掉
+
+以下货币地区今日起已无法再购买游戏
+
+<img src="https://img.saraba1st.com/forum/202405/05/091819ikv1v2kik2w2ijvx.png" referrerpolicy="no-referrer">
+
+<strong>163627dqkcea6761c6nqtn.png</strong> (57.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 09:18 上传
+
+steam很有可能会给受影响的玩家无条件退款，部分玩家已经开始获批。
+
+*****
+
+####  Lisylfn  
+##### 3984#       发表于 2024-5-5 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814169&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-5 08:35</a>
+箭头开始整新活了，把没有PSN的国家地区都锁区了，连南极洲都锁了</blockquote>
+有没有人告诉他实际上国区虽然有psn实际不行然后锁国区
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wthall  
+##### 3985#       发表于 2024-5-5 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cdkey买的退不了，擦，下次这种gaas游戏不贪小便宜了
+
+*****
+
+####  山风短  
+##### 3986#       发表于 2024-5-5 09:21
+
+各位记得动动小手点个差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12014,3 +12014,11 @@ DLC退了，本体还在写小作文扯皮中
 
 别傻了索尼绝不可能妥协。要是PC平台可以不绑PSN它还整什么GaaS战略
 
+
+*****
+
+####  Aeons  
+##### 4100#       发表于 2024-5-5 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我不玩了，我骂索尼不是希望他回旋，是因为索尼贱。
+

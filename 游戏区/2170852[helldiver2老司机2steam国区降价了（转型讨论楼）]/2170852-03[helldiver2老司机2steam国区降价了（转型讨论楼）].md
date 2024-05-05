@@ -12087,3 +12087,50 @@ DLC退了，本体还在写小作文扯皮中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">箭头进入摆烂模式
 
+
+*****
+
+####  YWNS  
+##### 4106#       发表于 2024-5-5 18:09
+
+有没有稳定的组织啊 一直在和老外联机 来个群号
+
+*****
+
+####  Aeons  
+##### 4107#       发表于 2024-5-5 18:10
+
+ceo还挺幽默的
+
+*****
+
+####  ravend233  
+##### 4108#       发表于 2024-5-5 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是没招了，不如逗大伙笑吧
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  ナルバレック  
+##### 4109#       发表于 2024-5-5 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818221&amp;ptid=2170852" target="_blank">acg_gyanc 发表于 2024-5-5 18:03</a>
+
+看了眼锁区的图，为啥日本也在上面？</blockquote>
+蒸汽日区的SubID不一样的
+
+*****
+
+####  新庄運切  
+##### 4110#       发表于 2024-5-5 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817866&amp;ptid=2170852" target="_blank">大哀之君 发表于 2024-5-5 17:11</a>
+
+别傻了索尼绝不可能妥协。要是PC平台可以不绑PSN它还整什么GaaS战略</blockquote>
+但是土命好像没让绑定psn，都吃了这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年不就冲着gaas买了棒鸡
+

@@ -1249,3 +1249,16 @@ INABA
 
 她们要对我的茉优做什么<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1408#       发表于 2024-5-5 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816296&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-5-5 13:29</a>
+
+她们要对我的茉优做什么</blockquote>
+她们想要让你家真由便Q娃口牙便Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然以她们这集线索贴脸了都猜不出真相的脑子恐怕很难完成这样复杂的任务<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

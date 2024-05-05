@@ -1432,3 +1432,11 @@ INABA
 
 总不能“あなたを守る”的“あなた”是草丛里的悟吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 1425#       发表于 2024-5-6 00:05
+
+小麦现在在我看来和数码兽没什么分别，希望二段真的能像dt那样合体
+

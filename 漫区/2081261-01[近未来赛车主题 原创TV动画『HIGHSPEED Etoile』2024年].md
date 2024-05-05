@@ -299,3 +299,13 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 训练一年什么也不懂，这怎么敢让女主上场</blockquote>
 是找了人来要一年出成果，并不是主角练了一年
 
+
+*****
+
+####  6030sylar  
+##### 312#       发表于 2024-5-6 00:01
+
+女主这刚入行纯萌新竟然不是撞车退赛，已经是天才超人了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

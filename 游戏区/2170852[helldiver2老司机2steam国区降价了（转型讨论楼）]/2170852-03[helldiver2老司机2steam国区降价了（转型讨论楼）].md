@@ -11136,3 +11136,33 @@ Best regards,
 因为国区理论上是有psn的，当然真正的原因是中国人至少占了这游戏1/3的销量 ...</blockquote>
 帕鲁也就1/3销量，这个游戏国内热度跟国外没法比，国人能占这么高销量？
 
+
+*****
+
+####  山风短  
+##### 4016#       发表于 2024-5-5 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782558&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-1 16:37</a>
+箭头的问题就是菜，但是不知道为什么就是有人非要把箭头妖魔化。
+每次更新一堆bug，有几个很恶心bug的就要 ...</blockquote>
+说话，别装死，怎么逆风就打不了了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 4017#       发表于 2024-5-5 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814698&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-5-5 10:12</a>
+
+头疼砍头咋把国区留住了</blockquote>
+日本竟然也上榜，索尼狠起来连自己都砍，果然是美国公司。
+
+*****
+
+####  山风短  
+##### 4018#       发表于 2024-5-5 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814800&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-5 10:23</a>
+帕鲁也就1/3销量，这个游戏国内热度跟国外没法比，国人能占这么高销量？ ...</blockquote>
+Reddit有人发过一篇大意为“一个月后就没有中国高玩来hard carry我了”的帖子，回复还不少
+

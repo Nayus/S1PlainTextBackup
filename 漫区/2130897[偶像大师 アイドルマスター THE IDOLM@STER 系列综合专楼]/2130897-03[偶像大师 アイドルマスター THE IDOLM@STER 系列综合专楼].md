@@ -10566,3 +10566,14 @@ sos当初solo专出的时候哪有话题度，后来找头部管人宣传才堆�
 sc当初狠蹭管人的宣传方式，真的引到流量了啊，只能说管人宣传已经是宣发的重要组成部分了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 想火请加钱买量+1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkendless  
+##### 3997#       发表于 2024-5-5 07:50
+
+这次不也买量了吗，我看yt上角色pv个个都至少是八九十万的播放，但是点赞评论就那么多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+放个对比图
+<img src="https://p.sda1.dev/17/f6e0188df9e96fdaa2e87896f678fd16/CMP_20240505074928647.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/6a71e1665f1565a5ea4c5a7d571e13fb/CMP_20240505074934382.jpg" referrerpolicy="no-referrer">
+

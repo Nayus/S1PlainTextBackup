@@ -269,3 +269,13 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 因为监督已经成功用4集让观众把预期降到底了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 309#       发表于 2024-5-5 15:45
+
+前几集那个看得想睡的这集起码有点赛车的意思<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

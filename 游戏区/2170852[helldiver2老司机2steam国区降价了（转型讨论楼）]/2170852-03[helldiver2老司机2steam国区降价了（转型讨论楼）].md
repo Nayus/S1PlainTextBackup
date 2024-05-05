@@ -11872,3 +11872,19 @@ DLC退了，本体还在写小作文扯皮中
 眼睁睁的看着一个年度提名游戏把自己作没了</blockquote>
 接下来索尼会给你展示一点游戏媒体关系<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4085#       发表于 2024-5-5 15:38
+
+年度提名不至于吧？这游戏虽然好玩，但是各方面真配不上年度题目。
+
+
+*****
+
+####  rainknine  
+##### 4086#       发表于 2024-5-5 15:43
+
+年度多人也是年度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

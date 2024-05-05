@@ -11937,3 +11937,15 @@ DLC退了，本体还在写小作文扯皮中
 
 抵制索尼，人人有责
 
+
+*****
+
+####  ravend233  
+##### 4092#       发表于 2024-5-5 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817075&amp;ptid=2170852" target="_blank">琦乐无穷 发表于 2024-5-5 15:29</a>
+眼睁睁的看着一个年度提名游戏把自己作没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要小看索尼的媒体控制力口牙
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

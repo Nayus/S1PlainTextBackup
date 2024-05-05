@@ -7774,3 +7774,16 @@ bu技能都是无敌的，beta技能只是霸体，可以直接利用bu技跟bos
 流程上的QTE估计 ...</blockquote>
 原来如此，流程上qte真的也希望取消，就想打完踏踏实实欣赏播片。
 
+
+*****
+
+####  光焰天下第一  
+##### 1474#       发表于 2024-5-5 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64802543&amp;ptid=1978008" target="_blank">Leona_Akari 发表于 2024-5-3 22:41</a>
+
+风暴中心，我卡死了，这两个箱子刷的错位了，搬不出来，后面的门就打不开，我看了下别人的 ...</blockquote>
+不是吧 问问官方 在这存档费了太悲伤了。。。。。
+
+应该可以往后拉的这个箱子，然后从拉出的缝隙走出去。
+

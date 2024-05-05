@@ -11656,3 +11656,45 @@ May 5, 2024
 
 我收到的回复，希望不是在打太极
 
+
+*****
+
+####  kalavinka  
+##### 4063#         楼主| 发表于 2024-5-5 12:18
+
+G胖应该是知道这事了，早上看到被拒绝后我贴了楼上楼友模版，然后再看了眼我4055楼的回复，竟然变了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/05/121731wgotowtyvhkkuvuu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5975.png</strong> (280.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 12:17 上传
+
+*****
+
+####  Awanano  
+##### 4064#       发表于 2024-5-5 12:19
+
+only on ps还是有可取之处的，至少不会发生这次这种丢人现眼的情况
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  风萧飒  
+##### 4065#       发表于 2024-5-5 12:20
+
+现在还能玩大概率退不了，得等下月才有机会吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aeons  
+##### 4066#       发表于 2024-5-5 12:20
+
+看了下30天内22%了
+

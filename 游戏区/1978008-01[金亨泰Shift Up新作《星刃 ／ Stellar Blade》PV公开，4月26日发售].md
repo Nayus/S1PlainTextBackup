@@ -7795,3 +7795,11 @@ bu技能都是无敌的，beta技能只是霸体，可以直接利用bu技跟bos
 
 漏了俩篝火，可能是在埃多斯9的两个，意味着要白金得三周目了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BadYanL  
+##### 1476#       发表于 2024-5-5 18:19
+
+牵手是肯定不牵的，一早就看他不顺眼了，而且真结局boss战那么寒酸。
+

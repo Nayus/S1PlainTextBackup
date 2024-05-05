@@ -12134,3 +12134,68 @@ ceo还挺幽默的
 
 当年不就冲着gaas买了棒鸡
 
+
+*****
+
+####  Aeons  
+##### 4111#       发表于 2024-5-5 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818285&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-5 18:11</a>
+怕是没招了，不如逗大伙笑吧
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.2-pl ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">你还别说，他这个发出来很多同情他的。
+
+*****
+
+####  BadYanL  
+##### 4112#       发表于 2024-5-5 18:22
+
+索尼肯定不会缩，现在锁区只是怕法律追责一刀切
+
+箭头索尼卧龙凤雏最好绑死别祸害别人
+
+*****
+
+####  Launce  
+##### 4113#       发表于 2024-5-5 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818321&amp;ptid=2170852" target="_blank">ナルバレック 发表于 2024-5-5 18:16</a>
+
+蒸汽日区的SubID不一样的</blockquote>
+发现还有个澳门也锁了
+
+
+*****
+
+####  zid99825  
+##### 4114#       发表于 2024-5-5 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818377&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-5 18:23</a>
+发现还有个澳门也锁了</blockquote>
+澳门本来就没psn啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，用的港区
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Launce  
+##### 4115#       发表于 2024-5-5 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818388&amp;ptid=2170852" target="_blank">zid99825 发表于 2024-5-5 18:24</a>
+
+澳门本来就没psn啊，用的港区
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，都忘记这茬了
+
+*****
+
+####  h122h  
+##### 4116#       发表于 2024-5-5 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818221&amp;ptid=2170852" target="_blank">acg_gyanc 发表于 2024-5-5 18:03</a>
+
+看了眼锁区的图，为啥日本也在上面？</blockquote>
+日区单独SUB，独占日语语音。很神奇吧。
+

@@ -10729,3 +10729,11 @@ image.png
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  北条早苗  
+##### 3978#       发表于 2024-5-5 08:35
+
+箭头开始整新活了，把没有PSN的国家地区都锁区了，连南极洲都锁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

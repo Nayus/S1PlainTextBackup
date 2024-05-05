@@ -10577,3 +10577,20 @@ sc当初狠蹭管人的宣传方式，真的引到流量了啊，只能说管人
 <img src="https://p.sda1.dev/17/f6e0188df9e96fdaa2e87896f678fd16/CMP_20240505074928647.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/6a71e1665f1565a5ea4c5a7d571e13fb/CMP_20240505074934382.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  倉本千奈  
+##### 3998#       发表于 2024-5-5 08:29
+
+现在b站学马仕“头子”，不就是被管人引流到sc的，结晶到因群里喷scsp怒而退群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在转推我们学马仕啦，还整了三四个学马仕群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  啪嗒啪嗒嗒  
+##### 3999#       发表于 2024-5-5 08:32
+
+谁啊，我一直觉得大帅圈老登太多，想做皇帝还挺难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

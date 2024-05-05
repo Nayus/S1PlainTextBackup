@@ -12399,3 +12399,32 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 最终结局，拉扯到月中箭头宣布跟索尼谈妥不用绑定也能继续玩，第二天光能上线，箭头重回荣耀之地。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4136#       发表于 2024-5-5 19:55
+
+故意瞒着不说把人骗进来杀，他是完全没考虑过这样做的后果是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈词与芍药  
+##### 4137#       发表于 2024-5-5 19:57
+
+箭头天天吹自己是独立工作室，结果自由度还不如隔壁棒鸡
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ravend233  
+##### 4138#       发表于 2024-5-5 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就箭头这草台程度大概确实不能理解后果
+
+我甚至觉得他们都没想过psn在一堆国家无法正常使用这个问题，属于纯纯的低能和傻逼
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

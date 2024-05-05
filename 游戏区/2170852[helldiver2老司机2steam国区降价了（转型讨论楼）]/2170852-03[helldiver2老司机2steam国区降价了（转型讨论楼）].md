@@ -11817,3 +11817,11 @@ Sucker Punch是比较无辜，但对马岛PC版我已经决定不买了<img src=
 
 DLC退了，本体还在写小作文扯皮中
 
+
+*****
+
+####  暴走的包子  
+##### 4079#       发表于 2024-5-5 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一定要英文么，我是中文写了段还在审
+

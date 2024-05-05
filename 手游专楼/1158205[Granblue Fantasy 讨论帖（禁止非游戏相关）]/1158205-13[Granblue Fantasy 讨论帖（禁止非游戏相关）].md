@@ -175,3 +175,16 @@
 
 我天人没做齐果报箱也打得很咸，现在才做了个琴，做拳没戏的。法武也想着换技能的。必爆就算了，现在慢慢农多个拳头就算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17909#       发表于 2024-5-5 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816690&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-5-5 14:23</a>
+
+谢，看到时候团战BOSS是偏奥义还是技伤吧，上次就是技伤打不过最后还是靠老鼠+跳舞狐的奥义流打过去的。 ...</blockquote>
+等团前看谁终突吧，按上次来算角色是可以老鼠大奶双子就能处理200的，不过盘子的要求也高，这次暗方盘子好歹也补强了。防御值这个属性其实不用太纠结，现在团战的boss，很多都有增伤buff，这部分伤害是无视防御的，所以现在坚守这个词条才越来越没用了。防御主要还是靠角色自身和减伤一类的buff来撑。团战主要还是优先考虑输出先拉满才好对轴，实在输出不够才开始考虑生存。
+
+极星器不用非得拳的，有就行。你就用琴放上去也比巴武厉害得多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

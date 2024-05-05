@@ -12483,3 +12483,12 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你随意，我不上线也不会绑，这就是我的态度。又不是只有你索游戏才能玩，买几个4399一样打发一天，既然这么有恃无恐那只能祝你们越办越好了，希望下次继续
 
+
+*****
+
+####  Aeons  
+##### 4146#       发表于 2024-5-5 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七八个朋友也都不玩了，估计怎么样都玩不下去了。
+看了下db好像是补丁后人数掉的更明显点
+

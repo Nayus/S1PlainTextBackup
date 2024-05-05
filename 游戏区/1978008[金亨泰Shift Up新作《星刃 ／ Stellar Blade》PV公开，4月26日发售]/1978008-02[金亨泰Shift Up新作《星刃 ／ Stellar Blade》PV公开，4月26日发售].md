@@ -95,3 +95,13 @@
 
 棒子的美术和音乐真的吊，大场景爽死我了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1486#       发表于 2024-5-5 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817335&amp;ptid=1978008" target="_blank">光焰天下第一 发表于 2024-5-5 16:04</a>
+原来如此，流程上qte真的也希望取消，就想打完踏踏实实欣赏播片。</blockquote>
+设置里的自动qte试过吗
+

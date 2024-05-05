@@ -51,3 +51,13 @@ ROG Ally 二代要来了。</blockquote>
 
 福建的电信网络去洗吧
 
+
+*****
+
+####  clyde-wang  
+##### 1184#       发表于 2024-5-5 18:02
+
+AMD 没新的APU，ROG也不可能完全定制一款，小修小改再卖吧
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

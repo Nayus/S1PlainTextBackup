@@ -12040,3 +12040,50 @@ DLC退了，本体还在写小作文扯皮中
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  acg_gyanc  
+##### 4102#       发表于 2024-5-5 18:03
+
+看了眼锁区的图，为啥日本也在上面？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  highsky  
+##### 4103#       发表于 2024-5-5 18:03
+
+先让你们绑
+
+你们pc玩家别觉得玩着pc能高人一等，隔壁ps5版玩家要玩必须买psplus
+
+你们pc玩家以后也得乖乖买psplus
+
+*****
+
+####  Aeons  
+##### 4104#       发表于 2024-5-5 18:05
+
+最近评测差评如潮了
+
+*****
+
+####  Benighted  
+##### 4105#       发表于 2024-5-5 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64818159&amp;ptid=2170852" target="_blank">陈词与芍药 发表于 2024-5-5 17:55</a>
+
+"psn不支持我的国家怎么办“ "我不到啊”
+
+—— 来自 S1Fun</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202405/05/180527hzu1u5ii2cuc525m.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (116.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 18:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">箭头进入摆烂模式
+

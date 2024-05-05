@@ -12867,3 +12867,21 @@ L和G且不说，非传统性别认知者即T有无限的时间泡在互联网�
 
 因为可能本来的目的就是为了增加psn影响啊，反正游戏钱也赚到了，后续影响也是后续的事了，又不是所有人都不绑了，绑多少都是赚到。
 
+
+*****
+
+####  山岚夜雨  
+##### 4184#       发表于 2024-5-6 02:37
+
+Steam差评是给游戏的还不是第一方，索尼只要财报数字好看就行了影响不到他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  m98626  
+##### 4185#       发表于 2024-5-6 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822413&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-6 02:26</a>
+因为可能本来的目的就是为了增加psn影响啊，反正游戏钱也赚到了，后续影响也是后续的事了，又不是所有人都 ...</blockquote>
+按steam的政策他们现在是没拿到钱的，所以退款主动权在v社手上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

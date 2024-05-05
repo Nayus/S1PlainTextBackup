@@ -12941,3 +12941,14 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  Launce  
+##### 4191#       发表于 2024-5-6 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822158&amp;ptid=2170852" target="_blank">缺德猫 发表于 2024-05-06 01:11:33</a>
+为啥索尼这么强硬啊？有点不可思议。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼家大业大，银行，音乐，电视和电影都有份，游戏只占你索一部分，而且你这ip只是突然爆火的小ip，估计价值还没高到能影响整个游戏部门战略运营
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

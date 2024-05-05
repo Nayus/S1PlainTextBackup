@@ -10767,3 +10767,18 @@ image.png
 
 最后，edf5现在steam国区打折仅需50块，无需注册其他账号，一个steam账号可以与世界各地的防卫军队员随时联机，语言不通也可以用游戏内置的固定语句交流，edf大家庭欢迎你的加入，现在加入还有高额年金等着你！
 
+
+*****
+
+####  ykyin09  
+##### 3981#       发表于 2024-5-5 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的英语小作文给客服打回来了，所以有没有退款成功的定型文让我抄袭一下
+
+*****
+
+####  山风短  
+##### 3982#       发表于 2024-5-5 09:12
+
+好日子还在后头呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

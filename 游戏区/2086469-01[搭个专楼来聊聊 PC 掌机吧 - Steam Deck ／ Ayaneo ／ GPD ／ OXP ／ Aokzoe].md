@@ -22,3 +22,13 @@ ROG Ally 二代要来了。
 
 真和笔记本一年一代啊
 
+
+*****
+
+####  医生狼多  
+##### 1181#       发表于 2024-5-5 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64814194&amp;ptid=2086469" target="_blank">bypass 发表于 2024-5-5 08:42</a>
+ROG Ally 二代要来了。</blockquote>
+这个不是二代，refresh版而已，调了sd卡啥的
+

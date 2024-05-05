@@ -11640,3 +11640,19 @@ May 5, 2024
 寄</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的还没回，快22小时了
 
+
+*****
+
+####  Freewolf  
+##### 4062#       发表于 2024-5-5 12:10
+
+<img src="https://img.saraba1st.com/forum/202405/05/120945nh6avqyavhryybhj.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-05-05_12-09-30.png</strong> (22.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 12:09 上传
+
+我收到的回复，希望不是在打太极
+

@@ -12546,3 +12546,45 @@ PSN这一波掉的没上次平衡后掉的多，但不妨碍玩家们点差评
 
 别人玩不玩是别人的事，反正我是不绑加不玩，能退就退，不能退就当烧给索尼和箭头那不存在的爹妈吧
 
+
+*****
+
+####  Kojimaru  
+##### 4153#       发表于 2024-5-5 21:27
+
+<img src="https://img.saraba1st.com/forum/202405/05/212647kf414s3sc4si49c9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 21:26 上传
+
+what can i say！
+
+*****
+
+####  ナルバレック  
+##### 4154#       发表于 2024-5-5 21:28
+
+索尼和箭头的关系只是长期金主和超过十年的第二方合作伙伴，上个月不是有传闻要收购的嘛，被这两天忙的飞起的CEO给自己否认掉了还
+
+*****
+
+####  smdzh2  
+##### 4155#       发表于 2024-5-5 21:29
+
+鬼佬口嫌体直是它们的事，我早就细软跑了
+所以什么时候开退款窗口，拿到钱就去买p3r后日谈<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  super_uni  
+##### 4156#       发表于 2024-5-5 21:32
+
+look familiar?
+铛铛铛。。。
+啊，都是嘴上喊喊的?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

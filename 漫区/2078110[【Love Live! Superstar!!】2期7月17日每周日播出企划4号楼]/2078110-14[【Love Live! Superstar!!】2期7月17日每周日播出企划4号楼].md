@@ -2276,3 +2276,22 @@ yabu还染了一撮红发
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  280041437  
+##### 20157#       发表于 2024-5-5 21:26
+
+pay宝燃尽了（）
+
+
+*****
+
+####  starring  
+##### 20158#       发表于 2024-5-5 21:35
+
+要一天就恢复嗓子果然很难，要好好休息
+<img src="https://p.sda1.dev/17/c023f7435338807e13e8ba2ff4d0ddb2/CMP_20240505213500638.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

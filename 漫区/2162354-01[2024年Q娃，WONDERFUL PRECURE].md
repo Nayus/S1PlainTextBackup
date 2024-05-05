@@ -1416,3 +1416,19 @@ INABA
 名义上是创新把传统女一女二换了位置
 结果换汤不换药 现在小麦地位各种情况堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 1423#       发表于 2024-5-5 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这叫地位明确，狗就是狗就不会当人
+
+
+*****
+
+####  Kreis  
+##### 1424#       发表于 2024-5-5 21:32
+
+总不能“あなたを守る”的“あなた”是草丛里的悟吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

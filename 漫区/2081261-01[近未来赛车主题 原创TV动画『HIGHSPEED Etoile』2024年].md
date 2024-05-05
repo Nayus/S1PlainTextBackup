@@ -341,3 +341,30 @@ F1黄旗维修区通道没关闭就能pit
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  poonhk  
+##### 316#       发表于 2024-5-6 07:09
+
+ 本帖最后由 poonhk 于 2024-5-6 07:10 编辑 
+
+看完，今话的表现方式好点，开始能带出速度感来，但是相比赛车更像四驱车，加上3D模型动作太稳定，在纯粹比赛部份就是有点无聊
+
+赞助里像世嘉KFC之类都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+两旁述还是一般的悠闲，女主还是一样可爱，田村AI有意思以后会给形象化吗
+
+综合评分有提高但是还是有不少要改善的点
+
+
+*****
+
+####  poonhk  
+##### 317#       发表于 2024-5-6 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64812705&amp;ptid=2081261" target="_blank">没取名啊 发表于 2024-5-5 00:44</a>
+
+这集竟然还行，就是前面给ai当狗后面又让ai说你靠感觉开更快有点搞笑</blockquote>
+这里应该是针对前面那女车手的特殊能力而定的策略
+

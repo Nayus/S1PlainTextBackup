@@ -12929,3 +12929,15 @@ Steam差评是给游戏的还不是第一方，索尼只要财报数字好看就
 
 Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不定箭头CEO决定暂缓关联，这人当时想法是不是如果游戏市场表现好的话就有很多筹码和索尼谈不强制关联的事宜，结果现在玩成这样了。索尼的PC策略肯定还是围绕自己平台发展进行的，想让他们妥协这个估计比较难，如果闹的太大的话给HD2开个临时绿灯是最好解决方案，但今后其他游戏估计不会像让箭头CEO这样搞临时不关联了，一开始就得咬死才能不生事儿。
 
+
+*****
+
+####  Launce  
+##### 4190#       发表于 2024-5-6 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822726&amp;ptid=2170852" target="_blank">SergeGlenn 发表于 2024-05-06 06:51:10</a>
+Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不定箭头CEO决定暂缓关联，这人当时想法是不是如 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矢脑这逼反应感觉纯纯discord护城河太舒服，觉得全是服从性拉满的孝子了。除了discord和红迪，别的地方骂他运营和bug不修的可不少。
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">你谈失败没进展早放出语气正常的道歉公告不比突然来个爹强，还搁这“独立工作室”犟着
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

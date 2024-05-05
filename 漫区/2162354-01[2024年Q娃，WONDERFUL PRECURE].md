@@ -1262,3 +1262,14 @@ INABA
 
 虽然以她们这集线索贴脸了都猜不出真相的脑子恐怕很难完成这样复杂的任务<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1409#       发表于 2024-5-5 13:48
+
+[https://twitter.com/u7hirosue/status/1786715538028384566](https://twitter.com/u7hirosue/status/1786715538028384566)
+
+明日のわんぷり演出しました　よろしくお願いします
+<img src="https://p.sda1.dev/17/1f1a85214220124fb0ff2a432e9bfe0c/20240505_134810.jpg" referrerpolicy="no-referrer">
+

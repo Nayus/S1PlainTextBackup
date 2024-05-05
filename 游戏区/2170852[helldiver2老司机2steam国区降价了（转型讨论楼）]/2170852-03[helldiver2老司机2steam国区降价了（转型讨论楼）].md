@@ -11756,3 +11756,25 @@ HELLDRIVERS2 has been plagued with many problems, like the balance and anti-chea
 
 自己写的小作文
 
+
+*****
+
+####  6x6z6w  
+##### 4073#       发表于 2024-5-5 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815175&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-5 11:09</a>
+
+隔壁对马岛求生欲太强了，直接出来澄清我们玩单机不用绑PSN</blockquote>
+Sucker Punch是比较无辜，但对马岛PC版我已经决定不买了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 4074#       发表于 2024-5-5 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815816&amp;ptid=2170852" target="_blank">天妇罗 发表于 2024-5-5 12:29</a>
+
+索尼真的真么在乎它那个b账号就应该在pc上出自己的启动器，看看有多少人去买你的游戏 ...</blockquote>
+不就是在整这个玩意吗？只不过大概率是去年下半年才开始起意搞个PC端通用的PSN启动器的，更早之前PC端都没几个游戏，所以他们没考虑搞启动器，现在大概率是准备参考各家大厂的PC启动器，传闻对马岛的PC版就是单机模式不需要账号，联机需要账号
+

@@ -11903,3 +11903,37 @@ DLC退了，本体还在写小作文扯皮中
 
 顺便，指令完成了，看看晚上有没有新活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  burgerWang  
+##### 4089#       发表于 2024-5-5 15:55
+
+上外网看到个大乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+微信图片_20240505155516.png
+(131.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-5 15:55 上传
+
+<img src="https://img.saraba1st.com/forum/202405/05/155504oj9mrurz0q36j9a3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 4090#       发表于 2024-5-5 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817265&amp;ptid=2170852" target="_blank">burgerWang 发表于 2024-5-5 16:55</a>
+上外网看到个大乐子</blockquote>
+之前还有个已知bug是选乌克兰语会被踢下线，不知道修复没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长门有希的忧郁  
+##### 4091#       发表于 2024-5-5 16:02
+
+抵制索尼，人人有责
+

@@ -237,3 +237,13 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 但这集这AI自己跑上头了，下集不整个大活给女主的话我是瞧不起她的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最强惠酱  
+##### 306#       发表于 2024-5-5 11:05
+
+这集跑起来快得吓人，算是体会到高速的感觉
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11394,3 +11394,99 @@ https://weibo.com/1842080303/OcQCg6nzL
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DawnGuardian  
+##### 4037#       发表于 2024-5-5 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来以为箭头的操作已经够抽象了，结果还有高手来自: iPhone客户端
+
+*****
+
+####  Freewolf  
+##### 4038#       发表于 2024-5-5 11:08
+
+玩了5.1小时，昨天第一次直接申请退款失败。第二次写了小作文，客服回复steam已经知晓游戏的问题，正在研究解决方案。希望能成功退款
+
+*****
+
+####  北条早苗  
+##### 4039#       发表于 2024-5-5 11:09
+
+隔壁对马岛求生欲太强了，直接出来澄清我们玩单机不用绑PSN<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nodkane  
+##### 4040#       发表于 2024-5-5 11:09
+
+索尼还是抱着你的米爹一辈子吧 反正我已经申请退款了
+
+
+*****
+
+####  m98626  
+##### 4041#       发表于 2024-5-5 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">win10时代开始微软就把pc用户账号这条路给趟平了，我电脑上甚至两个账号。打开电脑根本不用登陆就能玩，你psn是个什么东西。而且你不是惦记你那全价会免神作上pc再卖一遍么，ps+也不让pc玩家吃一口，被骂活该
+
+*****
+
+####  丹德里恩  
+##### 4042#       发表于 2024-5-5 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到我就几天没点进来有这么大的乐子，赶紧写小作文试试退款去
+
+
+*****
+
+####  大哀之君  
+##### 4043#       发表于 2024-5-5 11:11
+
+这次事件可以跟微软给Mojang做用户迁移的情况相类比。当时微软方案是三年缓冲期，完成绑号送限定披风，送Xbox端数字版游戏，就这还引起了大量节奏。索尼的做法真是嫌自己生活太平淡不整点乐子不舒服
+
+*****
+
+####  雪地白狼  
+##### 4044#       发表于 2024-5-5 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国区试了下没法退款，会以超过时间为理由直接打回来。
+
+*****
+
+####  Freewolf  
+##### 4045#       发表于 2024-5-5 11:12
+
+顺便发个我用的小作文模板：
+
+Subject: Request for Special Consideration Regarding Refund for "HELLDIVERS™ 2" Due to Policy Change
+
+Dear Steam Support Team,
+
+I am writing to request your special consideration regarding my refund application for "HELLDIVERS™ 2," which I purchased on【购买时间】. Initially, I was attracted by the flexible account binding policy mentioned in the game's promotion, where players could freely choose whether to link their Steam account with a PlayStation Network (PSN) account. Based on this information, I made the purchase willingly.
+
+However, the recent announcement by the game publisher that all users must now bind a PSN account to play the game came as a surprise. This significant change contradicts the terms I understood and accepted at the time of purchase. As a platform that respects user choice, I believe Steam also values consumer rights and meeting the expectations set at the time of purchase.
+
+While I understand Steam's standard refund policy is within 14 days of purchase and under 2 hours of gameplay, my situation falls outside of these parameters. However, I believe my case is unique and merits special consideration. This policy change effectively alters the basis of our service agreement, preventing me from enjoying the game on Steam as intended, contrary to my original purchase intent.
+
+Considering the above circumstances, I earnestly request that the Steam team understands my position and considers providing a one-time refund as a reasonable response to this sudden change. I remain confident that Steam is committed to safeguarding consumer rights and look forward to your consistent support for users on this matter.
+
+For your convenience, I have included the necessary purchase information:
+
+Game Name: HELLDIVERS™ 2
+
+Purchase Date: 【购买时间】
+
+Playtime: 【游玩时间】 (unable to continue due to policy change)
+
+Transaction ID: 【交易ID】
+
+I sincerely hope we can find a satisfactory solution and thank you for taking the time to review my request. I eagerly await your positive response.
+
+Best regards,
+
+【steamID】
+
+May 5, 2024
+

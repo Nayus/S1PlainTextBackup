@@ -11612,3 +11612,31 @@ May 5, 2024
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815509&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-5-5 11:49</a> 引用:Mr.Hopp 发表于 2024-5-5 11:46 有人发现购买页面确实写了需要PSN账号，估计一开始就想绑，100%是箭头SB搞不定绑定的系统才延期到现在。 [f ... 第三方账户绑定这么成熟的玩意儿都能搞不定，我相信SP说的矢脑程序员连STEAM UUID的API都不会写了 </blockquote>
 箭头索尼属于是卧龙凤雏，破锅配烂盖了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  Aeons  
+##### 4059#       发表于 2024-5-5 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拐着弯【】你【】爹
+
+*****
+
+####  丹德里恩  
+##### 4060#       发表于 2024-5-5 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815490&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-5-5 11:46</a>
+
+寄</blockquote>
+第一遍一般是AI自动回复，再发、别停<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4061#       发表于 2024-5-5 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815490&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-5-5 11:46</a>
+
+寄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的还没回，快22小时了
+

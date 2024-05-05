@@ -11582,3 +11582,33 @@ May 5, 2024
 
 2024-5-5 11:45 上传
 
+
+*****
+
+####  Mr.Hopp  
+##### 4056#       发表于 2024-5-5 11:46
+
+有人发现购买页面确实写了需要PSN账号，估计一开始就想绑，100%是箭头SB搞不定绑定的系统才延期到现在。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4057#       发表于 2024-5-5 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815492&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-5 11:46</a>
+
+有人发现购买页面确实写了需要PSN账号，估计一开始就想绑，100%是箭头SB搞不定绑定的系统才延期到现在。
+
+[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三方账户绑定这么成熟的玩意儿都能搞不定，我相信SP说的矢脑程序员连STEAM UUID的API都不会写了
+
+
+*****
+
+####  DawnGuardian  
+##### 4058#       发表于 2024-5-5 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815509&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-5-5 11:49</a> 引用:Mr.Hopp 发表于 2024-5-5 11:46 有人发现购买页面确实写了需要PSN账号，估计一开始就想绑，100%是箭头SB搞不定绑定的系统才延期到现在。 [f ... 第三方账户绑定这么成熟的玩意儿都能搞不定，我相信SP说的矢脑程序员连STEAM UUID的API都不会写了 </blockquote>
+箭头索尼属于是卧龙凤雏，破锅配烂盖了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

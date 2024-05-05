@@ -10700,3 +10700,40 @@ pv买了，老早就有人吐槽了。
 
 清夏的solo这么快就有歌词了嘛
 
+
+*****
+
+####  Vacuolar  
+##### 4012#       发表于 2024-5-5 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">次次有动静就有人幻想要火，火哪有那么容易，祝他们好运就完事了，不强求。
+
+
+*****
+
+####  rgauss  
+##### 4013#       发表于 2024-5-5 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815489&amp;ptid=2130897" target="_blank">麻巳巳 发表于 2024-5-5 11:46</a>
+清夏的solo这么快就有歌词了嘛</blockquote>
+每个人都会提前放 不然你以为b站那群人怎么那么快出中文歌词的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 4014#       发表于 2024-5-5 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815467&amp;ptid=2130897" target="_blank">koodooliz 发表于 2024-5-5 11:42</a>
+游戏还没出没什么可说的，指望着游戏没出就先🔥起来，那也是有些难度的。
+🏇那是动画二期先行带了一波，ba ...</blockquote>
+马动画确实功不可没，cy搞多媒体企划和宣发真的有一手。不过马娘的管人宣发也是最用力的作品之一了，当初看各种管人“早知道还是原道”式的痛哭流涕，是一大乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻巳巳  
+##### 4015#       发表于 2024-5-5 11:55
+
+<blockquote>rgauss 发表于 2024-5-5 11:50
+每个人都会提前放 不然你以为b站那群人怎么那么快出中文歌词的</blockquote>
+原来是这样
+

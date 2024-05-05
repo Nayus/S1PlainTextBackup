@@ -7648,3 +7648,15 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草十郎成年那个我都没认出来，一上来说他叫静希草十郎，我以为是哪个黑幕上来冒充他的。
 
+
+*****
+
+####  清河子  
+##### 12701#       发表于 2024-5-5 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815048&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-5-5 10:52</a>
+成年草的五官有很强烈的へのへのもへじ既视感，尤其鼻子和眼睛，反正挺刻意的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死我一直不知道怎么形容我内心的吐槽欲 你这个形容好准确就是这个感觉
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">实在不能大改的话咱商量下把鼻子画法改一下吧这个地方差异感太大了
+

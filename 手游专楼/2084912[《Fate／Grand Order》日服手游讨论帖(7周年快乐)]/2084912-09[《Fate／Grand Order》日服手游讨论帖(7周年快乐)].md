@@ -7724,3 +7724,12 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水也木又  
+##### 12707#       发表于 2024-5-6 00:05
+
+看完联动剧情心痒痒，重温了一遍本体，刚好听听语音版。cv选择且不谈，时隔多年再看，观感依然舒适，仿佛给眼睛耳朵大脑做了个全套按摩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+所以，画出如今抽象卡面的小山，月r里都已经是fgo形状的蘑菇，魔夜2何在<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

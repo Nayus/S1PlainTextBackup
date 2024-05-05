@@ -10797,3 +10797,13 @@ mv要是没买量的话，能开始小偶像播放量斗虫了吗？
 
 现在学马仕游戏还没开服，谈这些还为时过早，以我的判断scsp开服也一段时间，大火大概是指望不上了，等游戏开服万南肯定会花大量宣发到学身上的，这些东西肯定都会做。
 
+
+*****
+
+####  倉本千奈  
+##### 4023#       发表于 2024-5-5 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64816057&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-5 13:00</a>
+mv要是没买量的话，能开始小偶像播放量斗虫了吗？</blockquote>
+这不还没出完嘛，等出齐了再斗吧，我先个预订第一，倒数的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

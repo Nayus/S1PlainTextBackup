@@ -11731,3 +11731,28 @@ only on ps还是有可取之处的，至少不会发生这次这种丢人现眼�
 
 无人在意的角落，全服指令快要完成了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Znesmoc  
+##### 4071#       发表于 2024-5-5 13:06
+
+每当觉得这游戏还算有点可取之处的时候，索尼和箭头就回来给我整个活
+
+可惜是买的cdkey没法退款了
+
+*****
+
+####  SBRrunner  
+##### 4072#       发表于 2024-5-5 13:08
+
+cdkey退不了，但是我送朋友那份给退了，cdkey那份超级公民当喂狗了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+Hello friends.
+
+The recent announcement of HELLDRIVERS2 being forced to bind to a PSN account in order to play has angered me as well as my friend, as not only does it go against the promises made at the time of the game's release, but also the fact that PSN doesn't work smoothly in the region I'm located in with my friend, which leads to a high probability that we won't be able to play the game properly in the future.
+
+HELLDRIVERS2 has been plagued with many problems, like the balance and anti-cheating has been criticized the whole time, and the production staff and community manager have often talked down to the players, all of which we put up with, but this time? No, such behavior like this would definitely be unacceptable to us, and therefore we both agreed that it was necessary for us to speak up for our rights and to meet Arrowhead Studios' community manager's demands "refund and leave".
+
+自己写的小作文
+

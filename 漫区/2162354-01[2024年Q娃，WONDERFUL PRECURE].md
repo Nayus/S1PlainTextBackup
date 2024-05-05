@@ -1221,3 +1221,13 @@ INABA
 
 结果三个笨蛋依然完全没有思考到小雪可能就是Nyammy这件事上（
 
+
+*****
+
+####  上坂莲华  
+##### 1406#       发表于 2024-5-5 13:06
+
+17集是我要保护你是吧，那18集大概率是猫吃瘪然后mayu变身了，我要和你一起战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结果暖男不能说毫无作用只能说一点作用都没有，兔子更是好多话没出来过了，成田大妈用点心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

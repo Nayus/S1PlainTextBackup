@@ -261,3 +261,11 @@ ami就是啊，忘了什么时候介绍的了，认错了尴尬<img src="https:/
 
 不懂规则的提个问，出黄旗时能进站吗？这集不准进，前几集随便进，哪个对啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 308#       发表于 2024-5-5 13:08
+
+因为监督已经成功用4集让观众把预期降到底了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

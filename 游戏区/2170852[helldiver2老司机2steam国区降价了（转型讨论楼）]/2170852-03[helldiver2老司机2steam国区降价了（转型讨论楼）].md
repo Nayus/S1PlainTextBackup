@@ -12428,3 +12428,40 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  ykyin09  
+##### 4139#       发表于 2024-5-5 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就现在这局面，到光能者上线前还能有多少玩家留存
+
+*****
+
+####  李喜睡  
+##### 4140#       发表于 2024-5-5 20:06
+
+试了两次，没给我退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4141#       发表于 2024-5-5 20:06
+
+听说在线人数没怎么少？
+
+*****
+
+####  Mr.Hopp  
+##### 4142#       发表于 2024-5-5 20:08
+
+昨天晚上9点多的时候12W到13W潜兵，今天中午午后有段时间差不多14W潜兵。跟之前长草期人数差不多。
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4143#       发表于 2024-5-5 20:10
+
+那索尼不是心里更有底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

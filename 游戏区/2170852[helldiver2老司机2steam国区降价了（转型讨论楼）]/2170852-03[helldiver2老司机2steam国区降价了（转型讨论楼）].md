@@ -11825,3 +11825,14 @@ DLC退了，本体还在写小作文扯皮中
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一定要英文么，我是中文写了段还在审
 
+
+*****
+
+####  Awanano  
+##### 4080#       发表于 2024-5-5 14:47
+
+今天第二份投出去了
+想一想这个小作文好像确实很适合高中生拿来练手，这不比李华真实多了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

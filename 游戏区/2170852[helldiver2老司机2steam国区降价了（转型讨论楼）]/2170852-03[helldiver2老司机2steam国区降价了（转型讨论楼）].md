@@ -12225,3 +12225,13 @@ cdkey吃大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.g
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  lb19931118  
+##### 4119#       发表于 2024-5-5 19:11
+
+“Spitz：I thought you were refunding and leaving”
+
+实话说很多事情我都不会生气，无非背后就是赤裸裸的商业决策，但是这种自以为高枕无忧的傲慢跳脸让人心里起邪火。退款已申请。
+

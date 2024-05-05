@@ -12664,3 +12664,26 @@ https://weibo.com/2016719001/OcV1QBfHB
 
 有没有可能就是草台班子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 4165#       发表于 2024-5-5 22:16
+
+箭头可能本来没想到那么火就觉得说不定索尼也不会管那么严，于是没强制要求绑定。结果真爆款了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ナルバレック  
+##### 4166#       发表于 2024-5-5 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64820551&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-5-5 22:16</a>
+
+箭头可能本来没想到那么火就觉得说不定索尼也不会管那么严，于是没强制要求绑定。结果真爆款了
+
+—— 来自  ...</blockquote>
+箭头原计划就两万在线吧，最初上线那会北欧佬慢悠悠的换了好几次服务器这事儿楼里都忘了嘛，还有先睡觉再说的名场面
+

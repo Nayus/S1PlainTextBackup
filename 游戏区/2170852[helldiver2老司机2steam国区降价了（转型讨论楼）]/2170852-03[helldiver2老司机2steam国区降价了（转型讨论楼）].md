@@ -13296,3 +13296,87 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 未来肯定还是要绑定PSN账号的，只不过这次事情之后，索尼怎么评估自己的这个合作伙伴，就不好说了。。。
 
+
+*****
+
+####  6x6z6w  
+##### 4226#       发表于 2024-5-6 12:20
+
+看来箭头是真的急了，昨天找索尼谈今天索尼马上表态
+
+*****
+
+####  zid99825  
+##### 4227#       发表于 2024-5-6 12:22
+
+其实是G胖找去了吧，再不取消就开放特殊退款了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  北条早苗  
+##### 4228#       发表于 2024-5-6 12:23
+
+你索光速滑跪了？
+
+*****
+
+####  风萧飒  
+##### 4229#       发表于 2024-5-6 12:23
+
+难道箭头说话真有用吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 4230#       发表于 2024-5-6 12:23
+
+比较好奇前几天ban了的地区，游戏还闪电般归来不<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  chgzzl  
+##### 4231#       发表于 2024-5-6 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">笑死，结果箭头把自己撇干净，喂索索吃了口大的
+
+*****
+
+####  hagaren  
+##### 4232#       发表于 2024-5-6 12:26
+
+剑星被环保了也没见到这气势，还是好色的宅宅好拿捏<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lisylfn  
+##### 4233#       发表于 2024-5-6 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825614&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-6 12:17</a>
+
+捷报！索尼构了！</blockquote>
+索尼YYDS
+
+*****
+
+####  丹德里恩  
+##### 4234#       发表于 2024-5-6 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怂得也太快了
+
+*****
+
+####  Awanano  
+##### 4235#       发表于 2024-5-6 12:28
+
+居然是缓兵之计分化玩家的路线，索尼的身段也太灵活了
+我还是想要退款呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

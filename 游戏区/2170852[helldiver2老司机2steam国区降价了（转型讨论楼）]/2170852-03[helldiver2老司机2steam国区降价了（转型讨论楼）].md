@@ -13180,3 +13180,16 @@ steam现在必须要win10以上啊</blockquote>
 
 下探的趋势意外的很平滑啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我不是夏承凛  
+##### 4214#       发表于 2024-5-6 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64824247&amp;ptid=2170852" target="_blank">overmindoyj 发表于 2024-5-6 10:26</a>
+
+steam现在必须要win10以上啊</blockquote>
+WIN7其实也能装....办公室电脑正用着。
+
+右上角会有个提示“steam会win7系统的支持已经结束”。
+

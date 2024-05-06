@@ -237,3 +237,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  两个路人  
+##### 1500#       发表于 2024-5-6 11:53
+
+<blockquote>icylight 发表于 2024-5-5 18:53
+日本那边都开始限购了，每人只能买一份，说明日本应该卖得不错？</blockquote>
+怕不是实体盘没河蟹的功劳吧…
+

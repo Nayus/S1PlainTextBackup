@@ -12952,3 +12952,11 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  北条早苗  
+##### 4192#       发表于 2024-5-6 08:10
+
+箭头CEO已经破罐子破摔了，发售的时候炸服的锅也甩给绑PSN了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

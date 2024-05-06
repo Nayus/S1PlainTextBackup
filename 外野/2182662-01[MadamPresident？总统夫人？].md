@@ -507,3 +507,22 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 肯定是有可能的 因为拜登是真的有可能死在第二任上啊
 
+
+*****
+
+####  EP2  
+##### 58#       发表于 2024-5-6 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825397&amp;ptid=2182662" target="_blank">双面人 发表于 2024-5-6 12:00</a>
+奥黑八年两期霍霍满了吧，至于拉链，他要真有声望资源也不至于下去…</blockquote>
+拉链不是任期满了吗
+
+—— 来自 samsung SM-G9810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  llions  
+##### 59#       发表于 2024-5-6 21:21
+
+想起那个AI识别为大猩猩的笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

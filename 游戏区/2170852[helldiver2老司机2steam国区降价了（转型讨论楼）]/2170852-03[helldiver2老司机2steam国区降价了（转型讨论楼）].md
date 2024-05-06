@@ -14434,3 +14434,15 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ravend233  
+##### 4348#       发表于 2024-5-6 21:20
+
+平衡这块我觉得箭头是看到了玩家的抱怨，但是箭头有自己的游戏理解，不觉得自己有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（）
+
+不过上次改完后机器人还挺好玩的，勤勉一点小改动就可以在西线玩得比较舒服了，但是虫子遇到重甲模板或者黄绿胖模板是真的头痛
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

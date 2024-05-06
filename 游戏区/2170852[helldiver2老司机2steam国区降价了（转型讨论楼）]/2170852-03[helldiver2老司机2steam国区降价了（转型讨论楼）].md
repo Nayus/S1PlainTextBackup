@@ -14308,3 +14308,21 @@ CEO表示认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 4335#       发表于 2024-5-6 18:49
+
+箭头最开始出道作魔能bug频出经常闪退，于是在bug修好之后加了个新魔法叫系统崩溃，效果是随机杀掉场上一个目标，包括游戏自己
+
+就他们这个脑洞真把差评做成披风我也不意外
+
+
+*****
+
+####  BadYanL  
+##### 4336#       发表于 2024-5-6 18:51
+
+绑账号就送这个披风，够不够泯煮
+

@@ -11359,3 +11359,13 @@ amn甜辣也是辣妹，花组合体的莉波何尝不是有着辣妹基因(有�
 
 官推没fo的号大概率是假的，这么简单的道理<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 4084#       发表于 2024-5-6 18:52
+
+万代是不是在s1也安排了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

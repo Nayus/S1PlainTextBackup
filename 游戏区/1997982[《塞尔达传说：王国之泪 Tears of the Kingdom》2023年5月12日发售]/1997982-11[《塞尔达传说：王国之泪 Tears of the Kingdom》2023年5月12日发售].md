@@ -51,3 +51,13 @@
 
 终于有OST消息了阿，不过这么看来确实是不打算出DLC了
 
+
+*****
+
+####  freedom12  
+##### 15713#       发表于 2024-5-6 23:38
+
+刚说完就出ost
+
+dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+

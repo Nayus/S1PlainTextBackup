@@ -11698,3 +11698,78 @@ mv很有特色喜欢
 
 这首意外地觉得好听，2.5企划听了这么多这种带点实验性质的歌反而能让人眼前一亮
 
+
+*****
+
+####  22P  
+##### 4119#       发表于 2024-5-6 22:48
+
+伴奏提取出来单独听更有感觉了
+
+*****
+
+####  はらみー  
+##### 4120#       发表于 2024-5-6 22:49
+
+确实让人联想到乃乃的森之国，但是那首有高桥花林Vo撑着，这首听起来像krk那种轻飘飘的声不知道现场会什么样
+
+
+*****
+
+####  raimouse  
+##### 4121#       发表于 2024-5-6 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">欣赏不来
+
+目前为止红，清夏个人算是可以接受
+
+蓝觉得曲子不错，就是感觉唱不起来
+
+黄的辣耳朵
+
+*****
+
+####  田所あずさ  
+##### 4122#       发表于 2024-5-6 22:50
+
+ 本帖最后由 田所あずさ 于 2024-5-6 22:52 编辑 
+
+怎么不能live唱了，难道那这么多豪哥曲就适合live唱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+万代什么时候出off vocal？很关键，这首歌去除人声绝对很顶
+
+*****
+
+####  wfhtony  
+##### 4123#       发表于 2024-5-6 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832832&amp;ptid=2130897" target="_blank">田所あずさ 发表于 2024-5-6 22:50</a>
+
+怎么不能live唱了，难道那这么多豪哥曲就适合live唱了吗
+
+万代什么时候出inst？很关键，这首歌去除人 ...</blockquote>
+伴奏的话，感觉16号会一起发售/开放串流（和电音部类似？）。
+
+
+*****
+
+####  Unlight  
+##### 4124#         楼主| 发表于 2024-5-6 22:54
+
+有人提到豪哥，那就不得不提李依的这个live了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1NP4y1R7a5/](https://www.bilibili.com/video/BV1NP4y1R7a5/)
+
+*****
+
+####  joshua1990  
+##### 4125#       发表于 2024-5-6 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">欣赏不来，期待live和游戏内表现
+
+*****
+
+####  ViviR  
+##### 4126#       发表于 2024-5-6 22:58
+
+之前听的二次元曲的vo一般不过不失所以没啥感觉。学马让我意识到了vo对曲子耐听度的重要性。就，学马以后就是找井上拓给小红写曲子，我的第一反应不是“好耶拓哥是神”，而是“求求了让清夏来唱吧”这样
+

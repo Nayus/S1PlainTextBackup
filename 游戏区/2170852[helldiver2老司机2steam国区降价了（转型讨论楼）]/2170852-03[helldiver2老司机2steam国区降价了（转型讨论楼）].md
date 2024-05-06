@@ -14478,3 +14478,14 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  日日日日日野  
+##### 4352#       发表于 2024-5-6 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829405&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-5-6 17:25</a>
+
+红迪社管最新指示，把差评通通改为好评</blockquote>
+就冲这个，我觉得贵游这个玩家社区氛围真的蛮畸形的
+

@@ -491,3 +491,11 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 —— 来自 HUAWEI OXF-AN10, And ...</blockquote>
 总统被杀都好几个了。
 
+
+*****
+
+####  akumaps5  
+##### 56#       发表于 2024-5-6 21:00
+
+倾向最后**被暗杀，明显民主党没活了。
+

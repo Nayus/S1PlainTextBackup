@@ -14402,3 +14402,25 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 这么快服软了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4345#       发表于 2024-5-6 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64831500&amp;ptid=2170852" target="_blank">哎哟卧槽了 发表于 2024-5-6 20:42</a>
+
+有大菠蘿這種前車之鑒，沒想到還有廠商搞平衡問題
+
+—— 來自 Google Pixel 2, Android 11上的 S1Next-鵝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大菠萝平衡有点抽象，次次搞文明人，次次还是文明人一锤完事
+
+*****
+
+####  披头破落户  
+##### 4346#       发表于 2024-5-6 21:03
+
+根本原因不就是箭头产能底下，只能靠平衡来发新版本
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

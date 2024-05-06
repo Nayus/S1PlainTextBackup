@@ -636,3 +636,13 @@
 
 不过下星期改回四层之后也没这玩法了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哩子ayil  
+##### 686#       发表于 2024-5-6 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">镜牢打完一遍普通直冲困难三层见鬼滚出来了
+
+逆天boss太恐怖了，再也不敢乱选卡包
+

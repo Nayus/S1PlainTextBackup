@@ -257,3 +257,17 @@
 
 整体来说220新图还行。我一度以为gbf这几年除了产出waifu就是产出软色情waifu，做点奇形怪状的东西也还成。
 
+
+*****
+
+####  syndrome2032  
+##### 17916#       发表于 2024-5-6 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819471&amp;ptid=1158205" target="_blank">はちたや 发表于 2024-5-5 20:31</a>
+方阵3.0现在确实有种别扭感，大概还是为未来的插件还有3.5留点空间吧
+
+要说最整齐的大概是火方，虽然 ...</blockquote>
+这贷款说不准就是2年后了。
+
+还是安心按照3.0为前提规划吧
+

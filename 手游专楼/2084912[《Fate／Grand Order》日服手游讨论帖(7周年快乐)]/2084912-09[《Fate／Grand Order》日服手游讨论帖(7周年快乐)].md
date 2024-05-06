@@ -7778,3 +7778,13 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">奇迹般的抽齐了，明明前面巴姐补宝夏露露补宝黑贞补宝统统沉船 耀星伯爵图鉴都没开成
 
+
+*****
+
+####  khxooo  
+##### 12713#       发表于 2024-5-6 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64824698&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-5-6 11:01</a>
+奇迹般的抽齐了，明明前面巴姐补宝夏露露补宝黑贞补宝统统沉船 耀星伯爵图鉴都没开成 ...</blockquote>
+概率补正<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

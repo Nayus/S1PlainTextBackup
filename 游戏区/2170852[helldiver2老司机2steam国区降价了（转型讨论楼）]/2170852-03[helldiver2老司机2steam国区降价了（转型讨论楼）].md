@@ -14105,3 +14105,45 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 游戏IP是索尼的啊，万代又没有FS游戏IP所有权</blockquote>
 代哥当然有，权利方那里那么大一个代哥真看不见吗？宫崎英高访谈都说几百次了血源恶魂看你索脸色魂看代哥脸色
 
+
+*****
+
+####  HATENA  
+##### 4313#       发表于 2024-5-6 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827007&amp;ptid=2170852" target="_blank">icylight 发表于 2024-5-6 14:21</a>
+
+不懂就问，索尼不是发行商吗，为什么对这个游戏的控制权这么大？
+
+作为类比，万代对黑暗之魂的控制权也这么 ...</blockquote>
+看了一眼hd2的版权标识部分跟死亡搁浅差不多，算你索的品牌话语权很大
+
+*****
+
+####  DawnGuardian  
+##### 4314#       发表于 2024-5-6 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在就好奇一点，就是索尼到底知不知道箭头开服那会的骚操作，游戏发售前除了说可以跨平台联机外完全没提过steam版必须绑定psn账号这回事，箭头这波操作到底是先斩后奏还是索尼默许的？来自: iPhone客户端
+
+
+*****
+
+####  ruistu  
+##### 4315#       发表于 2024-5-6 15:55
+
+把玩家逼到互称同志，组织性质变，让索尼看看什么是真正的皿煮
+
+*****
+
+####  TiiTiiLL  
+##### 4316#       发表于 2024-5-6 15:55
+
+不懂就问，现在还能退款不
+
+*****
+
+####  Sanco  
+##### 4317#       发表于 2024-5-6 15:57
+
+不管开服情况怎么样，如果一开始就定了要绑定账号那不应该是游戏开卖之前就确定并且加入游戏里的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

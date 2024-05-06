@@ -12960,3 +12960,13 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 
 箭头CEO已经破罐子破摔了，发售的时候炸服的锅也甩给绑PSN了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jag0713_plus  
+##### 4193#       发表于 2024-5-6 08:41
+
+<blockquote>FLZB 发表于 2024-5-6 01:34
+这逼箭头是不是有什么特殊嗜好？社区管理全是这种逆天飞柱</blockquote>
+这种太普遍了 这种人取得社区管理的位置有一套标准流程（除非你直球歧视） 同人圈都常见
+

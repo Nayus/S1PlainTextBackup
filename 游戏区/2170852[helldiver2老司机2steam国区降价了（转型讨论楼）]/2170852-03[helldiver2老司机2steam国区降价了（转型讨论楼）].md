@@ -14334,3 +14334,33 @@ CEO表示认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 牛，社区经理吐槽sony还鼓励大众退款，最后还成了。对比之下隔壁剑星制作人和玩家都太弱鸡了
 
+
+*****
+
+####  lb19931118  
+##### 4338#       发表于 2024-5-6 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64830753&amp;ptid=2170852" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-5-6 19:26</a>
+
+牛，社区经理吐槽sony还鼓励大众退款，最后还成了。对比之下隔壁剑星制作人和玩家都太弱鸡了 ...</blockquote>
+箭头的社区经理跳脸玩家被冲烂了才改口，然后甩锅给索尼并假装自己是和玩家站在一边的。这个事情也是玩家不满箭头公关的主因之一。
+
+*****
+
+####  Mr.Hopp  
+##### 4339#       发表于 2024-5-6 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64830753&amp;ptid=2170852" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-5-6 19:26</a>
+
+牛，社区经理吐槽sony还鼓励大众退款，最后还成了。对比之下隔壁剑星制作人和玩家都太弱鸡了 ...</blockquote>
+也不能说没用，NGA有玩了十几小时的退款成功的。
+
+*****
+
+####  Shu-Stella  
+##### 4340#       发表于 2024-5-6 19:47
+
+索尼怂了，但是现在问题是箭头呢
+
+我是不信这次能让箭头意识到这是积怨已久的后果，反而有些转移矛盾了。
+

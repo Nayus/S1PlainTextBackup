@@ -4224,3 +4224,19 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 —— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 钻石星尘主唱确实是hina<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 16671#       发表于 2024-5-6 19:24
+
+<img src="https://img.saraba1st.com/forum/202405/06/192327tz3ttlkt94xupn99.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-05-06 19.22.26.png</strong> (50.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 19:23 上传
+
+为什么要演奏空之箱！ 来自贝斯手
+

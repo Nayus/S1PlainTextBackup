@@ -14268,3 +14268,11 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在改好评，再出烂活又可以打出四个空投舱了（）
 
+
+*****
+
+####  normalli  
+##### 4332#       发表于 2024-5-6 17:49
+
+卖的好的游戏确实是有特权的，居然能让索尼低头
+

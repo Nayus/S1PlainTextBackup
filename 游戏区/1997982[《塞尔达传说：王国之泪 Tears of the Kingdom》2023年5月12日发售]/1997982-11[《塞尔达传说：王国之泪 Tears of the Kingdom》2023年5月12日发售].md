@@ -30,3 +30,16 @@
 
 当然，能直接早点出新作就最好不过了
 
+
+*****
+
+####  冷泉夜月  
+##### 15711#       发表于 2024-5-6 21:09
+
+据Nintendo Everything报道，#塞尔达传说王国之泪# OST 7月底在日本发售。
+详情预计5月12日公开。 ​​​
+
+终于啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

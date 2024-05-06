@@ -14424,3 +14424,13 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  风萧飒  
+##### 4347#       发表于 2024-5-6 21:15
+
+产能说不定也没那么低，不过估计很多内容都得放这个月索尼发布会上
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

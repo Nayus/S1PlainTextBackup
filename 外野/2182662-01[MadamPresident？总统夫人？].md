@@ -499,3 +499,11 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 倾向最后**被暗杀，明显民主党没活了。
 
+
+*****
+
+####  tuichu0425  
+##### 57#       发表于 2024-5-6 21:08
+
+肯定是有可能的 因为拜登是真的有可能死在第二任上啊
+

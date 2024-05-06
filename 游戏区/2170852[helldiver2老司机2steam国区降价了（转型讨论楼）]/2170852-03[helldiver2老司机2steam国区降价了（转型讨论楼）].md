@@ -14489,3 +14489,14 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 红迪社管最新指示，把差评通通改为好评</blockquote>
 就冲这个，我觉得贵游这个玩家社区氛围真的蛮畸形的
 
+
+*****
+
+####  FLZB  
+##### 4353#       发表于 2024-5-6 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832708&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-6 22:37</a>
+
+矢脑那抽象码农技术，产能能高到哪去</blockquote>
+其实早做完了，发售前的pv就已经展示了驱逐舰6级升级，现在就是藏着内容等剧本，起码够他更新一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11773,3 +11773,35 @@ mv很有特色喜欢
 
 之前听的二次元曲的vo一般不过不失所以没啥感觉。学马让我意识到了vo对曲子耐听度的重要性。就，学马以后就是找井上拓给小红写曲子，我的第一反应不是“好耶拓哥是神”，而是“求求了让清夏来唱吧”这样
 
+
+*****
+
+####  patema  
+##### 4127#       发表于 2024-5-6 22:59
+
+ 本帖最后由 patema 于 2024-5-6 23:03 编辑 
+
+广可爱捏
+
+但是总体而言是在拖歌的后腿。太虚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉唱完会死，也撑不起架子
+
+广可能更适合一些设计的比较干净清亮的另类摇滚。这歌给广宝强度上的太高了
+
+*****
+
+####  rslika  
+##### 4128#       发表于 2024-5-6 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷幻摇滚？？
+
+
+*****
+
+####  patema  
+##### 4129#       发表于 2024-5-6 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832949&amp;ptid=2130897" target="_blank">rslika 发表于 2024-5-6 23:02</a>
+
+迷幻摇滚？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我第一反应是ハイスイノナサ
+

@@ -581,3 +581,11 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  wjxforever  
+##### 66#       发表于 2024-5-6 23:30
+
+为啥不选希拉里
+

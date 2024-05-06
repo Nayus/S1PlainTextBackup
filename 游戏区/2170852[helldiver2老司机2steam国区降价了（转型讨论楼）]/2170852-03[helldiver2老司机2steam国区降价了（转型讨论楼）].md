@@ -14508,3 +14508,35 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了来自: iPhone客户端
 
+
+*****
+
+####  Benighted  
+##### 4355#       发表于 2024-5-6 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64833090&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-6 23:17</a>
+
+话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了</blockquote>
+看过**视频，一般也就30帧，高难度怪多的话可能降到二十多
+
+*****
+
+####  kalavinka  
+##### 4356#         楼主| 发表于 2024-5-6 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64833090&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-6 23:17</a>
+话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了</blockquote>
+最低特效虫潮20帧畅玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 4357#       发表于 2024-5-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832430&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-6 22:05</a>
+
+讲道理，是不是忘了锁区那批人后续处理了</blockquote>
+很多人猜下架的人其实是G胖，只有退款+集体诉讼才能逼索尼滑跪
+
+所以锁区的处理要等Steam 
+

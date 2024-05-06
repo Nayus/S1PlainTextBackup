@@ -7752,3 +7752,13 @@ fsr光荣23-24财报是41万
 
 又要剁手了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12710#       发表于 2024-5-6 08:47
+
+单纯论月R和魔夜联动的动态CG水平，只能说魔夜演出つくりものじ的退社是Notes.社之后基本不可能找人顶得上的了
+
+月R这一块Black搞的依托答辩，联动不知道是谁弄的，也答辩
+

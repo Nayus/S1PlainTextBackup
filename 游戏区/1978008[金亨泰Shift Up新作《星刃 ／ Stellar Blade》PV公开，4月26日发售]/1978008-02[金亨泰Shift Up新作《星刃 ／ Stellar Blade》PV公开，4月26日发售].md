@@ -304,3 +304,14 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 那个男性npc任务有后续，你如果选择交还日记和记忆棒，之后再回去看看他 ...</blockquote>
 我还是很仁慈没把记忆棒给他 都给他会怎样？
 
+
+*****
+
+####  B.K.  
+##### 1507#       发表于 2024-5-6 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829656&amp;ptid=1978008" target="_blank">Wubaba 发表于 2024-5-6 17:43</a>
+
+我还是很仁慈没把记忆棒给他 都给他会怎样？</blockquote>
+忍受不了真相自杀了
+

@@ -14249,3 +14249,22 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 红迪社管最新指示，把差评通通改为好评
 
+
+*****
+
+####  bakuza  
+##### 4330#       发表于 2024-5-6 17:32
+
+想让箭头把这四条差评做成麦河那样的纪念披风，作为谨言慎行的警示哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+后面就是sony全款买下箭头，踢掉几个当初甩锅的，然后24年底绝地潜兵2关服并推出单人战役关。
+
+25年年初推出绝地潜兵2025！全员绑定PSN，sony最高一档月票会员可获得超级公民（
+
+*****
+
+####  ravend233  
+##### 4331#       发表于 2024-5-6 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在改好评，再出烂活又可以打出四个空投舱了（）
+

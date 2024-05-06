@@ -284,3 +284,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  ky7913  
+##### 1505#       发表于 2024-5-6 17:36
+
+<blockquote>hokagokenjatime 发表于 2024-5-6 16:57
+这游戏像艾葵司7号这种开不了地图的图的要做支线只能在地图上嗯找人？之前回被水淹掉的那个广场发现地图上 ...</blockquote>
+那个男性npc任务有后续，你如果选择交还日记和记忆棒，之后再回去看看他
+

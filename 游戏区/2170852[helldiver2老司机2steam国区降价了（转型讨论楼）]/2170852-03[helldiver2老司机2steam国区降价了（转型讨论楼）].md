@@ -13990,3 +13990,33 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难蚌，贴吧还看到有人趁机洗育碧和uplay的
 
+
+*****
+
+####  三千珈蓝  
+##### 4302#       发表于 2024-5-6 14:27
+
+接下来外国老哥们会反攻倒算那几个社区运营么
+
+
+*****
+
+####  fangJmin  
+##### 4303#       发表于 2024-5-6 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827007&amp;ptid=2170852" target="_blank">icylight 发表于 2024-5-6 14:21</a>
+
+不懂就问，索尼不是发行商吗，为什么对这个游戏的控制权这么大？
+
+作为类比，万代对黑暗之魂的控制权也这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">索尼虽然是发行商但实际上脑子进矢能活到现在有很大原因是索尼注资，这个是实际和白金的贝姐2和3都在ns不移植一样，属于是被包养了。
+
+*****
+
+####  蓝色的眷念  
+##### 4304#       发表于 2024-5-6 14:35
+
+民主再次取胜
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

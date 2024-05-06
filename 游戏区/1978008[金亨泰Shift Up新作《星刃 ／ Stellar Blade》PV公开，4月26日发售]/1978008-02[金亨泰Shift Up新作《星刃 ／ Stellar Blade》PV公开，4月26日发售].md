@@ -331,3 +331,15 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 现在回头想想反面的美术图一开始还以为最右边是塔奇，其实是渡鸦吧
 
+
+*****
+
+####  lucky95  
+##### 1510#       发表于 2024-5-6 20:30
+
+去看了一看这么多年的预告片，原来2021年就做好了，2年用来打磨是真牛逼
+
+估计是索尼按着头优化的，不然早就出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

@@ -378,3 +378,23 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 估计是索尼按着头优化的，不然早 ...</blockquote>
 21年只是把线性关卡流程做了，半开放关卡甚至xion都没有出现
 
+
+*****
+
+####  宛若青空  
+##### 1514#       发表于 2024-5-7 01:53
+
+<blockquote>Concept art wallpaper from the early days of EVE💕
+
+#StellarBlade #PS5 #EVE</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202405/07/015316ihz5j2x1t5wjhtxh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9687.jpeg</strong> (607.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 01:53 上传
+
+好喜欢早期这个<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+

@@ -14020,3 +14020,41 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ultraseven  
+##### 4305#       发表于 2024-5-6 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827007&amp;ptid=2170852" target="_blank">icylight 发表于 2024-5-6 14:21</a>
+
+不懂就问，索尼不是发行商吗，为什么对这个游戏的控制权这么大？
+
+作为类比，万代对黑暗之魂的控制权也这么 ...</blockquote>
+游戏IP是索尼的啊，万代又没有FS游戏IP所有权
+
+
+*****
+
+####  日日日日日野  
+##### 4306#       发表于 2024-5-6 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826819&amp;ptid=2170852" target="_blank">zid99825 发表于 2024-5-6 14:05</a>
+
+对马岛不是早就怂了么，直接出来说单机不需要绑定psn
+
+论坛助手,iPad</blockquote>
+问题是对马岛的多人模式如果不出这个岔子，大概率还是要绑账号的，当然现在估计是不绑了
+
+*****
+
+####  Awanano  
+##### 4307#       发表于 2024-5-6 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827261&amp;ptid=2170852" target="_blank">日日日日日野 发表于 2024-5-6 14:42</a>
+问题是对马岛的多人模式如果不出这个岔子，大概率还是要绑账号的，当然现在估计是不绑了 ...</blockquote>
+对马岛声明是单人内容不需要绑，多人需要吧
+还没发售，这个规则也可以接受
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

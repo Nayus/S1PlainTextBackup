@@ -14233,3 +14233,19 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">你永远可以相信矢脑的平衡烂活和逆天CM再创辉煌
 
+
+*****
+
+####  Midnight.Coup  
+##### 4328#       发表于 2024-5-6 17:16
+
+这游戏要是哪天停服了，高低整个起义推倒超级气球的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 4329#       发表于 2024-5-6 17:25
+
+红迪社管最新指示，把差评通通改为好评
+

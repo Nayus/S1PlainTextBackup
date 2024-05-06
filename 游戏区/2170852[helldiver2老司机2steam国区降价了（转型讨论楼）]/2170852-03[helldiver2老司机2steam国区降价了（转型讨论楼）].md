@@ -13952,3 +13952,41 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 翻译自 英语首先，我对@helldivers2社区的意志力和合作能力印象深刻。其次，我要感谢@PlayStation的合作伙伴和朋友迅速有效地做出让 PSN 链接成为可选项的决定。我们共同希望为实时游戏以及开发者和社区如何相互支持以创造最佳游戏体验设定新标准。
 
+
+*****
+
+####  Awanano  
+##### 4298#       发表于 2024-5-6 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826901&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-5-6 14:13</a>
+@PilestedtFirstly, I am impressed by the willpower of the @helldivers2 community and your ability to ...</blockquote>
+索尼：<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  icylight  
+##### 4299#       发表于 2024-5-6 14:21
+
+不懂就问，索尼不是发行商吗，为什么对这个游戏的控制权这么大？
+
+作为类比，万代对黑暗之魂的控制权也这么大吗？
+
+
+*****
+
+####  厚乳果珍爽  
+##### 4300#       发表于 2024-5-6 14:22
+
+<blockquote>BK10 发表于 2024-5-6 13:21
+Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没这次这么严重，只能说我没看见有ps玩家去报团尝 ...</blockquote>
+不，玩家直接不抱团，直接不买ps5就是了。你可以调查一下这个是不是玩家不买ps5的主要原因。
+
+*****
+
+####  白昼梦  
+##### 4301#       发表于 2024-5-6 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难蚌，贴吧还看到有人趁机洗育碧和uplay的
+

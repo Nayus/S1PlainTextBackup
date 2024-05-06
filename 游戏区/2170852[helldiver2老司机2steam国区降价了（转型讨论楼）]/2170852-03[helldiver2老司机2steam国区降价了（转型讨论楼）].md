@@ -13102,3 +13102,14 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 
 本质问题又不是强制绑定psn账号，到底是因为啥大伙心里都清楚
 
+
+*****
+
+####  overmindoyj  
+##### 4207#       发表于 2024-5-6 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64815116&amp;ptid=2170852" target="_blank">爱护动物抓根宝 发表于 2024-5-5 11:00</a>
+
+微软挺奸其实，现在win上面的xbox游戏要玩必须要装xbox服务，直接ban掉了win7和一票精简版win10，而能把这 ...</blockquote>
+steam现在必须要win10以上啊
+

@@ -14225,3 +14225,11 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 这次的差评率应该到底了，期待箭头下次平衡更新再创辉煌！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4327#       发表于 2024-5-6 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">你永远可以相信矢脑的平衡烂活和逆天CM再创辉煌
+

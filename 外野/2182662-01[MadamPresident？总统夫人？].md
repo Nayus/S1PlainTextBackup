@@ -456,3 +456,13 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  泥鳅化石  
+##### 53#       发表于 2024-5-6 20:40
+
+最近对川那一堆审判难道很阳间吗？把前总统送进法庭这事本身就坏了规矩。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

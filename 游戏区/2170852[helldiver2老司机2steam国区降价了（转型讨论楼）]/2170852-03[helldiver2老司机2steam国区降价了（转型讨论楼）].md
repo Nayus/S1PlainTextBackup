@@ -14364,3 +14364,25 @@ CEO表示认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 我是不信这次能让箭头意识到这是积怨已久的后果，反而有些转移矛盾了。
 
+
+*****
+
+####  ravend233  
+##### 4341#       发表于 2024-5-6 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  哎哟卧槽了  
+##### 4342#       发表于 2024-5-6 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64831444&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-6 20:38</a>
+箭头肯定意识不到自己在平衡工作上的问题，大伙的关注度明显被转移到索尼去了。至于逆天社区管理我 ...</blockquote>
+有大菠蘿這種前車之鑒，沒想到還有廠商搞平衡問題
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

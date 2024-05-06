@@ -270,3 +270,17 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 这游戏像艾葵司7号这种开不了地图的图的要做支线只能在地图上嗯找人？之前回被水淹掉的那个广场发现地图上居然还有两个人物可以对话接支线
 
+
+*****
+
+####  lucky95  
+##### 1504#       发表于 2024-5-6 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829072&amp;ptid=1978008" target="_blank">hokagokenjatime 发表于 2024-5-6 16:57</a>
+这游戏像艾葵司7号这种开不了地图的图的要做支线只能在地图上嗯找人？之前回被水淹掉的那个广场发现地图上 ...</blockquote>
+对的，就是扫描跑图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但7号也只有淹水广场那里会有新npc
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

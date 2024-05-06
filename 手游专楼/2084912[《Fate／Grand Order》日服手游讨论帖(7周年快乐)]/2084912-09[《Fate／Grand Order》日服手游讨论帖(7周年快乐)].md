@@ -7788,3 +7788,19 @@ fsr光荣23-24财报是41万
 奇迹般的抽齐了，明明前面巴姐补宝夏露露补宝黑贞补宝统统沉船 耀星伯爵图鉴都没开成 ...</blockquote>
 概率补正<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 12714#       发表于 2024-5-6 21:41
+
+卡池里某些常驻西星总是歪出来，感觉伪随机数相当糟糕
+
+
+*****
+
+####  v22325  
+##### 12715#       发表于 2024-5-6 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前段时间也是黑贞抽到弹尽粮绝关池都不出，然后伯爵几发就出了，虽然伯爵也挺好，但能不能换一下啊。啊。
+

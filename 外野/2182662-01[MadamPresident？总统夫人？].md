@@ -537,3 +537,47 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 民主党不如狠一点，直接内部弄死拜登，然后吹风是**支持者下手的，推现在的女副总统上位坐完剩下的时间再直 ...</blockquote>
 如果哈哈哈这个时候接手，总统余额怎么算，直接减4年？
 
+
+*****
+
+####  猫咪澎澎  
+##### 61#       发表于 2024-5-6 21:37
+
+仿希拉里故事？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吉田美和  
+##### 62#       发表于 2024-5-6 21:37
+
+我建议阿美莉卡从明年开始试行新新罗马的二帝共治<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 63#       发表于 2024-5-6 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825597&amp;ptid=2182662" target="_blank">treexper 发表于 2024-5-6 12:16</a>
+
+纸牌屋换克莱尔当总统后据说收视率就不好了。</blockquote>
+如果不是木下的演员被指控性侵未成年，也不会换克莱尔挑大梁了，英版原作写到男主死就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eva02eva02  
+##### 64#       发表于 2024-5-6 21:39
+
+民主党可以让莱文斯基参选啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  主人ハム子  
+##### 65#       发表于 2024-5-6 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832090&amp;ptid=2182662" target="_blank">莫吉 发表于 2024-5-6 21:30</a>
+如果哈哈哈这个时候接手，总统余额怎么算，直接减4年？</blockquote>
+好像不足一年还是两年的不算一任，之前讨论ykw当议长有人科普过。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

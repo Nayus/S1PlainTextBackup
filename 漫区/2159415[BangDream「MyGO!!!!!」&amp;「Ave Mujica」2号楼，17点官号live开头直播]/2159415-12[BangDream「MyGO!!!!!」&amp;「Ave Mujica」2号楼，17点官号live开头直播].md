@@ -4210,3 +4210,17 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫吹兰  
+##### 16670#         楼主| 发表于 2024-5-6 18:18
+
+ 本帖最后由 紫吹兰 于 2024-5-6 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829617&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-5-6 17:41</a>
+
+为什么要演奏空之箱！
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+钻石星尘主唱确实是hina<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

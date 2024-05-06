@@ -14147,3 +14147,28 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 不管开服情况怎么样，如果一开始就定了要绑定账号那不应该是游戏开卖之前就确定并且加入游戏里的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 4318#       发表于 2024-5-6 16:08
+
+我看都开始有刷好评的了，贱不贱啊，💩头和索索准备扔过来一坨大粪，然后又说先不扔了之后看情况再来扔大粪，还得谢谢💩头和索索宽宏大量听取意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卡拉德利姆  
+##### 4319#       发表于 2024-5-6 16:10
+
+不然嘞？不然你们以为被驯化的超级公民是什么东西？
+
+
+*****
+
+####  GDIHARVESTER  
+##### 4320#       发表于 2024-5-6 16:15
+
+四个空投舱太行为艺术了
+

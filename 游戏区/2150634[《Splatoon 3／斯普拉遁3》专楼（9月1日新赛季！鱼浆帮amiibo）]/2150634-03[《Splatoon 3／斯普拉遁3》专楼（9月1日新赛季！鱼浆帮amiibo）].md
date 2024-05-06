@@ -13416,3 +13416,13 @@ w5 平潮
 
 卧槽这是怎么攒出来十个RPG的<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">没带任何sp技能，队里也没饮料机，我记得RPG210p吧，1800p怎么攒出来10个的<img src="https://p.sda1.dev/17/b3e495210c1761d63ef3487d24742f18/CMP_20240506234644013.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4306#       发表于 2024-5-7 00:04
+
+单排开放果然不能玩，18局赢6局，那编成简直惨不忍睹，XP6000都没辙。除非你完全完全不在乎胜率，完全完全不在乎隐藏分，那就随便玩呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

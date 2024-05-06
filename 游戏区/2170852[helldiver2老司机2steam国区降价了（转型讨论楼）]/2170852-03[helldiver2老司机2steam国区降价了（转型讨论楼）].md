@@ -14500,3 +14500,11 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 矢脑那抽象码农技术，产能能高到哪去</blockquote>
 其实早做完了，发售前的pv就已经展示了驱逐舰6级升级，现在就是藏着内容等剧本，起码够他更新一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 4354#       发表于 2024-5-6 23:17
+
+话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了来自: iPhone客户端
+

@@ -11805,3 +11805,18 @@ mv很有特色喜欢
 迷幻摇滚？？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我第一反应是ハイスイノナサ
 
+
+*****
+
+####  格雷殿下  
+##### 4130#       发表于 2024-5-6 23:15
+
+我很确信唱这首歌的小偶像不会死在我手机里
+
+*****
+
+####  野菜一日分  
+##### 4131#       发表于 2024-5-6 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那学马声优的能力看上去也就是这样吧，就没什么很亮眼的，而且感觉年纪都算不上小了，百里边年纪小的几个公布的时候才16，7岁，灰1st的时候不到20的hego和tmy已经在carry了，爱马仕出那些明显超出一般声优难度的曲子也挺常见的，有没有能发挥的人选又是另一回事了。
+

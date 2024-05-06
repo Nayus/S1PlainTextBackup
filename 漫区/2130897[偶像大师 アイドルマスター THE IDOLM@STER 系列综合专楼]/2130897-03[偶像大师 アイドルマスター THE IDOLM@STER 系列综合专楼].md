@@ -11596,3 +11596,75 @@ mv很有特色喜欢
 
 作为一个单品来看很惊艳，但作为一个2.5次元偶像企划的角色曲，考虑到live的情况感觉就很难顶了
 
+
+*****
+
+####  野菜一日分  
+##### 4107#       发表于 2024-5-6 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我觉得这种问题对偶像大师来说从来不是问题，有太多恰角色音唱个性很强的曲子的例子了，楼上提到森久保乃々的もりのくにから比广这首歌还夸张
+
+*****
+
+####  花开安菲路  
+##### 4108#       发表于 2024-5-6 22:32
+
+别管多难顶的曲子，现场p都能快速进入角色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 4109#       发表于 2024-5-6 22:32
+
+森久保确实可爱
+明年moiw是不是可以安排这俩一桌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萨文科夫  
+##### 4110#       发表于 2024-5-6 22:33
+
+看了遍词，有种雾子的感觉，你也要做梦吗
+
+*****
+
+####  馬斯特壺  
+##### 4111#       发表于 2024-5-6 22:33
+
+森久保那首solo高桥花林vo力没得说，这位嘛…只能说声音和这首炫技的曲子有些不搭
+
+
+*****
+
+####  shinna  
+##### 4112#       发表于 2024-5-6 22:34
+
+感觉现在公布的大部分都不是口水歌那种类型的，这首更是特点鲜明
+
+*****
+
+####  篠澤広  
+##### 4113#       发表于 2024-5-6 22:35
+
+我是个让人很难理解的学生吗
+
+*****
+
+####  wfhtony  
+##### 4114#       发表于 2024-5-6 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832628&amp;ptid=2130897" target="_blank">Swss 发表于 2024-5-6 22:28</a>
+
+对比了一下，小蓝的曲子和这首都是四分半。但前者是几乎没停过，后者有一分钟左右是没唱词的。
+
+作为一个单 ...</blockquote>
+这个还得看声优了。
+
+七分钟没停过的：《世界滅亡 or KISS》
+
+七分钟中间间奏长的：《もりのくにから》（楼上有提到）
+
+九分钟舞台剧中插曲的：《Home Sweet Home》（不过这首的完整版目前只上了一次LIVE）
+

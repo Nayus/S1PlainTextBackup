@@ -14454,3 +14454,27 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理，是不是忘了锁区那批人后续处理了
 
+
+*****
+
+####  Launce  
+##### 4350#       发表于 2024-5-6 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64831903&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-5-6 21:15</a>
+
+产能说不定也没那么低，不过估计很多内容都得放这个月索尼发布会上
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">矢脑那抽象码农技术，产能能高到哪去
+
+*****
+
+####  风萧飒  
+##### 4351#       发表于 2024-5-6 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832708&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-6 22:37</a>
+矢脑那抽象码农技术，产能能高到哪去</blockquote>
+做完但没放出来的东西还是挺多的，我只能认为是在硬拖<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

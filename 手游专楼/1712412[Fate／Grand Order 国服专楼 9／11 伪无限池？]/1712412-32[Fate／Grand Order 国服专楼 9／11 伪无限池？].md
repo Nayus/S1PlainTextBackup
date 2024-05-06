@@ -725,3 +725,13 @@ QP和骑饼干突然成两 ...</blockquote>
 
 提妈吃了我好几单才出来一次，兽尼吃了一单多出来一次，隔了两天呼符又来了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哔——  
+##### 46372#       发表于 2024-5-6 11:30
+
+目前4单了没出梅莉，加上之前免费石也有一单，我终于要吃到人生第一井了吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+我都不知道为什么自己要强氪梅莉，还不如留石头给汇呆，可又都抽到这份上了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

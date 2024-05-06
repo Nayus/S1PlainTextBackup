@@ -331,3 +331,36 @@
 
 还有一种可能，救援时候血少，7c没砸完高达就没了，所以本来40w+20w变成了30w。
 
+
+*****
+
+####  poor  
+##### 17923#       发表于 2024-5-6 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828705&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-5-6 16:30</a>
+高达的盾加的是攻击力和技伤防御。10层盾时候技伤目测只有1/10。
+
+还有一种可能，救援时候血少，7c没砸完 ...</blockquote>
+没有，都能打出第二T，我菜都是打两T的
+又观察了下，伤害多的时候最少是66w左右，多的能到80多w左右，所以应该也不是db没上够的问题。打得少的时候一般是37w，最多也就40w，大概后面db都上得差不多了所以浮动小
+
+另外求个没有hls跟cos的船妈1t配置，光老王
+
+
+*****
+
+####  syndrome2032  
+##### 17924#       发表于 2024-5-6 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828828&amp;ptid=1158205" target="_blank">poor 发表于 2024-5-6 16:39</a>
+没有，都能打出第二T，我菜都是打两T的
+又观察了下，伤害多的时候最少是66w左右，多的能到80多w左右，所 ...</blockquote>
+船妈1t本来就不要cos。
+
+光老王带uni琴比荷鲁斯弓方便多了。
+
+拳皇 涅槃 lm贞 1002（或者看其他什么打手）。主苍蝇用bba皮肤。
+
+召唤-涅槃123-21-偷跑-后退-a出去。
+这套两拳打完110w贡献。就怕人太多网太慢打不完。
+

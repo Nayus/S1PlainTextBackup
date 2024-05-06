@@ -14197,3 +14197,23 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 —— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  HATENA  
+##### 4324#       发表于 2024-5-6 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828143&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-6 15:51</a>
+
+我现在就好奇一点，就是索尼到底知不知道箭头开服那会的骚操作，游戏发售前除了说可以跨平台联机外 ...</blockquote>
+你觉得你索对第二方会没有这点管控权吗？
+
+*****
+
+####  ravend233  
+##### 4325#       发表于 2024-5-6 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多数参与冲锋的玩家诉求确实就是把绑账号冲回去，毕竟这个上线了那确实有一批玩家想继续游玩这款游戏会有很多麻烦，平衡和逆天社区管理这些反正以后再慢慢冲呗
+
+你索绑定账号肯定不会放弃的，但是大概会用一些脑子更正常的手段，吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

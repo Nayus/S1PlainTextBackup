@@ -353,3 +353,15 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 萌新求问欧美版剑星实体版有中文吗？还是说有其他河蟹？价格比其他地区便宜不少，想下手了，另外欧美版是买 ...</blockquote>
 应该都有，商店标注中文了，估计全区。买dlc一般你就多注册个对应地区商店的账号就行了，国行加账号要重新备份恢复麻烦点
 
+
+*****
+
+####  faithlifer  
+##### 1512#       发表于 2024-5-6 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64831547&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-6 20:47</a>
+应该都有，商店标注中文了，估计全区。买dlc一般你就多注册个对应地区商店的账号就行了，国行加账号要重 ...</blockquote>
+买了数字版港版已经，感谢解答<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

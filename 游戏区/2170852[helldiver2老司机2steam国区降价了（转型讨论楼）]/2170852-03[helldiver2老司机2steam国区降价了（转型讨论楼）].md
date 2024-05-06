@@ -13016,3 +13016,25 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 
 有内鬼
 
+
+*****
+
+####  wthall  
+##### 4198#       发表于 2024-5-6 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64823341&amp;ptid=2170852" target="_blank">Kojimaru 发表于 2024-5-6 09:11</a>
+
+有内鬼</blockquote>
+啥数据？
+
+
+*****
+
+####  丹德里恩  
+##### 4199#       发表于 2024-5-6 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64823246&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 09:02</a>
+
+6号后的玩家强制绑定，之前买的不强制绑定，但是你绑定了送你超级货币，这群人肯定没玩过二次元手游。[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但超级货币根本就不值钱啊，只要肯花时间搜罗，理论上可以无限量获取
+

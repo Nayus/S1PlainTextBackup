@@ -13754,3 +13754,56 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 艹，能不能等我退款成功了再跪呀，这tm退不了看着这坨屎很闹心呀，玩也闹心，删了又是自己花钱买的
 
+
+*****
+
+####  wthall  
+##### 4279#       发表于 2024-5-6 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826434&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 13:26</a>
+
+有人骂，但没啥用，先不说用X健确认的地方没法跟你共情，这个玩意根本不涉及核心问题。而箭头这个行为跟 ...</blockquote>
+奇迹2的销量有公布嘛？
+
+*****
+
+####  DawnGuardian  
+##### 4280#       发表于 2024-5-6 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">之前还以为是索尼自己作临时改规定，结果和着是箭头自己先斩后奏知情不报，现在还要反过来替无能箭头背锅擦屁股，真是太难绷了。索尼干脆把箭头踢了换人运营吧，天知道这帮人继续搞gass还能捅出多大篓子来自: iPhone客户端
+
+
+*****
+
+####  Aeons  
+##### 4281#       发表于 2024-5-6 13:41
+
+<img src="https://img.saraba1st.com/forum/202405/06/134057kqrseshq5hqzi5hq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>46963A46-3AF6-4C1D-8D82-EF8B5C872F15.jpeg</strong> (76.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 13:40 上传
+
+*****
+
+####  Mr.Hopp  
+##### 4282#       发表于 2024-5-6 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826534&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-6 13:38</a>
+
+奇迹2的销量有公布嘛？</blockquote>
+2022年黑客泄露出来是1000W，虽然看着是挺高但要看战神5和猪猪侠2破1000W也就个把月。
+
+
+*****
+
+####  Awanano  
+##### 4283#       发表于 2024-5-6 13:45
+
+你索还是纯坏不蠢的，今天不滑轨明天补丁更新作实了绑定无法游玩，到时候退款估计就一申一个准了
+可恶啊又给索尼圆回去了，好烦
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

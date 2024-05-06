@@ -364,3 +364,15 @@
 召唤-涅槃123-21-偷跑-后退-a出去。
 这套两拳打完110w贡献。就怕人太多网太慢打不完。
 
+
+*****
+
+####  poor  
+##### 17925#       发表于 2024-5-6 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828943&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2024-5-6 16:47</a>
+那就不清楚了我基本是稳定40w。
+
+船妈1t本来就不要cos。</blockquote>
+谢谢，试了下原始人机神貌似也还行，不过这套看着貌似更快
+

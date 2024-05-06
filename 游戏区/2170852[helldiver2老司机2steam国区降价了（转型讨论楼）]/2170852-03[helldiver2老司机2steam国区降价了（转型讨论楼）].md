@@ -14217,3 +14217,11 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 你索绑定账号肯定不会放弃的，但是大概会用一些脑子更正常的手段，吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琦乐无穷  
+##### 4326#       发表于 2024-5-6 16:47
+
+这次的差评率应该到底了，期待箭头下次平衡更新再创辉煌！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

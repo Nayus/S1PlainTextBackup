@@ -13370,3 +13370,14 @@ Dlc就通了一次为回尚兴广场，之后就没再进过dlc了……
 
 红双的灵活性在中排里是最强的吧，虽然我用不来
 
+
+*****
+
+####  KBAC  
+##### 4302#       发表于 2024-5-6 16:49
+
+大冰壶活动5月16日复刻
+看来研究所还是知道啥活动好玩的，刷子碰碰车复刻，请<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

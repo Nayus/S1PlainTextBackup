@@ -4165,3 +4165,15 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 幻觉来了
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16666#       发表于 2024-5-6 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827691&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-6 15:16</a>
+药店联动？这是官方认证两个幻想主唱精神不对劲？</blockquote>
+宛平南路600号（bushi）
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

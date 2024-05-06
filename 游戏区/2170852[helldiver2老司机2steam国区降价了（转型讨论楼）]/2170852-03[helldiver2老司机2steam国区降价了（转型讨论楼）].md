@@ -14094,3 +14094,14 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 不，玩家直接不抱团，直接不买ps5就是了。你可以调查一下这个是不是玩家不买ps5的主要原因。 ...</blockquote>
 这个是我不买ps5的主因之一，另外一个主因是因为丑
 
+
+*****
+
+####  HATENA  
+##### 4312#       发表于 2024-5-6 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64827214&amp;ptid=2170852" target="_blank">ultraseven 发表于 2024-5-6 14:38</a>
+
+游戏IP是索尼的啊，万代又没有FS游戏IP所有权</blockquote>
+代哥当然有，权利方那里那么大一个代哥真看不见吗？宫崎英高访谈都说几百次了血源恶魂看你索脸色魂看代哥脸色
+

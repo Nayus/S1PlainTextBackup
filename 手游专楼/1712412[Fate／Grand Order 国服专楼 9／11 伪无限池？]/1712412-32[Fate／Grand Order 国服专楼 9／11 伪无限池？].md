@@ -748,3 +748,11 @@ QP和骑饼干突然成两 ...</blockquote>
 我节前就上头抽了梅丽保底，为此整个假期都隐隐有些心疼。不知能安慰到你不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 哦对了，还有尼禄的第三宝，不提了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46374#       发表于 2024-5-6 19:29
+
+梅莉毕竟是第一个让我享受到保底的角色，帮C呆省了不少磨损
+

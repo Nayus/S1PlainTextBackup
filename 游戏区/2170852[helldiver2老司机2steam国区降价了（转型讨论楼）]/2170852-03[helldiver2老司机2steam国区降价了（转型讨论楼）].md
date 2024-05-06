@@ -13713,3 +13713,44 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 真要说PS玩家不会反抗的话，奇迹2销量就不会差战神5和蜘蛛侠2这么多了。
 
+
+*****
+
+####  Aeons  
+##### 4274#       发表于 2024-5-6 13:28
+
+希望箭头不要把自己当成反索先锋一会出来邀功
+
+*****
+
+####  BK10  
+##### 4275#       发表于 2024-5-6 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826434&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 13:26</a>
+有人骂，但没啥用，先不说用X健确认的地方没法跟你共情，这个玩意根本不涉及核心问题。而箭头这个行为跟 ...</blockquote>
+骂肯定有人骂，但是没啥报团反抗势力，也许反抗就是日本持续走低的销量吧，只能说没有白皮会闹腾
+
+
+*****
+
+####  Awanano  
+##### 4276#       发表于 2024-5-6 13:32
+
+索尼：pc的营商环境太差了，在我的地盘我想做什么做什么，玩家给钱少了我还要他们补。这上pc又得劳烦我高贵的员工多工作，结果连收的钱都要先被一个邪恶胖子先收着，他甚至会把钱退回去！太没有天理了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Fake_news  
+##### 4277#       发表于 2024-5-6 13:34
+
+还能退吗，我还是想退款啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空中的风铃  
+##### 4278#       发表于 2024-5-6 13:34
+
+艹，能不能等我退款成功了再跪呀，这tm退不了看着这坨屎很闹心呀，玩也闹心，删了又是自己花钱买的
+

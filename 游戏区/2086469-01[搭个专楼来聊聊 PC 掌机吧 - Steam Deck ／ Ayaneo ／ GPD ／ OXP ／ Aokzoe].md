@@ -69,3 +69,16 @@ AMD 没新的APU，ROG也不可能完全定制一款，小修小改再卖吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">考虑要不要把6800u的win4出掉了，换7840/8840有提升吗？
 
+
+*****
+
+####  blueelf  
+##### 1186#       发表于 2024-5-6 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64817717&amp;ptid=2086469" target="_blank">trow233 发表于 2024-5-5 16:52</a>
+
+最近要被STEAM DECK的云存档弄疯了
+
+就是无法同步，在SD上安装STEAM++也好，改HOST也好，UU也试了，没用</blockquote>
+同在福建，云存档在电脑上可以用steamcommunity 302这个软件解决，SD上是真没办法
+

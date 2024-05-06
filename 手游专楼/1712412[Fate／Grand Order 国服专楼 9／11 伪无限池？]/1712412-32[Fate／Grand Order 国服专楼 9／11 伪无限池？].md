@@ -735,3 +735,16 @@ QP和骑饼干突然成两 ...</blockquote>
 
 我都不知道为什么自己要强氪梅莉，还不如留石头给汇呆，可又都抽到这份上了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风行骓  
+##### 46373#       发表于 2024-5-6 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825040&amp;ptid=1712412" target="_blank">哔—— 发表于 2024-5-6 11:30</a>
+目前4单了没出梅莉，加上之前免费石也有一单，我终于要吃到人生第一井了吗
+
+我都不知道为什么自己要 ...</blockquote>
+我节前就上头抽了梅丽保底，为此整个假期都隐隐有些心疼。不知能安慰到你不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+哦对了，还有尼禄的第三宝，不提了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

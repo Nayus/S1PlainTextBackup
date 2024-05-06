@@ -13208,3 +13208,91 @@ WIN7其实也能装....办公室电脑正用着。
 
 我还是喜欢你桀骜不驯的样子
 
+
+*****
+
+####  jy000129  
+##### 4217#       发表于 2024-5-6 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825457&amp;ptid=2170852" target="_blank">仿身泪滴 发表于 2024-5-6 12:05</a>
+索尼官方服软了</blockquote>
+哈？我还想退款呢<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zris  
+##### 4218#       发表于 2024-5-6 12:11
+
+前天刚去差评了
+
+不过我倒是觉得，这玩意如果这么搞了
+
+未来psn上pc，以及ps 在pc的launcher咋办
+
+还是说就hd2是个特例
+
+总感觉这个绑拍脑门，不绑也拍脑门
+
+*****
+
+####  zpl123  
+##### 4219#       发表于 2024-5-6 12:11
+
+PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日发布的更新，要求《绝地潜兵2》新玩家和现有玩家从5月30日开始必须将Steam和PlayStation Network账户进行关联，该更新现已取消。 ​​​<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 4220#       发表于 2024-5-6 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">未来的事儿未来再说啊
+下次记得再商店标注好drm且需要psn账号就行
+当然挨喷肯定还是免不了，毕竟育碧和ea都挨了多少年了
+
+
+*****
+
+####  ravend233  
+##### 4221#       发表于 2024-5-6 12:15
+
+一开始就要求绑定就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后你索把psn锁区问题解决一下，送点奖励就完事了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Hyst3r1a  
+##### 4222#       发表于 2024-5-6 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是觉得绑账户没什么所谓，语气好一点发个1000货币大家不就绑了。
+
+他妈的贱头这波把自己全撇干净了。
+
+*****
+
+####  xinfengj  
+##### 4223#       发表于 2024-5-6 12:17
+
+<img src="https://p.sda1.dev/17/0e6ac59e1d560871ee695b4f8abae7fb/CMP_20240506121700102.jpg" referrerpolicy="no-referrer">
+捷报！索尼构了！
+
+*****
+
+####  Sayuki1025  
+##### 4224#       发表于 2024-5-6 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">b游戏什么强砍什么 
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  日日日日日野  
+##### 4225#       发表于 2024-5-6 12:17
+
+未来肯定还是要绑定PSN账号的，只不过这次事情之后，索尼怎么评估自己的这个合作伙伴，就不好说了。。。
+

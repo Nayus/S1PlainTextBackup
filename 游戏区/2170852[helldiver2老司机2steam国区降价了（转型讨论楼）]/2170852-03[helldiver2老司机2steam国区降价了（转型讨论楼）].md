@@ -13050,3 +13050,31 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 但超级货币根本就不值钱啊，只要肯花时间搜罗，理论上可以无限量获取 ...</blockquote>
 你这么说，这游戏里啥东西值钱？好歹超级货币是要花钱买的，总比啥都不给好吧。
 
+
+*****
+
+####  Launce  
+##### 4201#       发表于 2024-5-6 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64823416&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-6 09:18</a>
+
+啥数据？</blockquote>
+绑了PSN的
+
+*****
+
+####  丹德里恩  
+##### 4202#       发表于 2024-5-6 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64823517&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 09:28</a>
+
+你这么说，这游戏里啥东西值钱？好歹超级货币是要花钱买的，总比啥都不给好吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">增加勋章/样本的上限再送一点，不比超级货币强多了
+
+*****
+
+####  BadYanL  
+##### 4203#       发表于 2024-5-6 09:41
+
+超级货币还是香的，现在还欠300多才够解锁这个月的，懒得刷了
+

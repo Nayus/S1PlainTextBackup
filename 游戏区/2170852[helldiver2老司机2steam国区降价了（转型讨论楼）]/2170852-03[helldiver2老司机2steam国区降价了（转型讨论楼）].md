@@ -13457,3 +13457,76 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然afk好久了，但是索尼和💩脑过了这么久还能让我看乐子，这游戏买的不亏
 
+
+*****
+
+####  bonnwang  
+##### 4244#       发表于 2024-5-6 12:40
+
+好寺庙
+
+*****
+
+####  フカミ  
+##### 4245#       发表于 2024-5-6 12:40
+
+￼锁区的怎么办好像没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Sevenzerofive  
+##### 4246#       发表于 2024-5-6 12:40
+
+箭头：下次继续
+
+*****
+
+####  PoiYudachiPoi  
+##### 4247#       发表于 2024-5-6 12:42
+
+<img src="https://img.saraba1st.com/forum/202405/06/124157c5svi51zhzq4joyq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240506_124015.jpg</strong> (192.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 12:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">刚刚收到退款了，但是Steam客服案件还没更新，不知道什么情况
+
+*****
+
+####  Launce  
+##### 4248#       发表于 2024-5-6 12:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿索弯下膝盖，瞬间让万众一心有索不玩的抗议群体分裂了
+
+*****
+
+####  沧兰殇  
+##### 4249#       发表于 2024-5-6 12:42
+
+索尼就是贱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ykyin09  
+##### 4250#       发表于 2024-5-6 12:46
+
+全服任务完成，等待超级气球最高指挥部指令？来自: iPhone客户端
+
+*****
+
+####  暴走的包子  
+##### 4251#       发表于 2024-5-6 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真不管头不头硬，索尼也拿不到国内大部分玩家的注册量啊，我反正一开始就不是因为这点去退款的，就怕箭头那群人以为这次差评真就是索尼的全责就完了，后面依然平衡一坨新债券新战备一坨，那不还是吃屎，不如现在退了算了
+
+*****
+
+####  ravend233  
+##### 4252#       发表于 2024-5-6 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我本来就不玩索系第一方，问题不大
+

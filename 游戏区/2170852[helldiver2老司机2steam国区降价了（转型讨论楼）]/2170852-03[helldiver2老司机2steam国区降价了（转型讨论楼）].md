@@ -13807,3 +13807,47 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Variks  
+##### 4284#       发表于 2024-5-6 13:49
+
+好似，差评真有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 但是打出去的差评还能轻易收回去吗，想想箭头和索尼一手好牌打成这个局面就想笑
+
+*****
+
+####  m98626  
+##### 4285#       发表于 2024-5-6 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的我好想退款买edf6啊
+
+*****
+
+####  qianoooo  
+##### 4286#       发表于 2024-5-6 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826555&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-6 13:40</a>
+
+之前还以为是索尼自己作临时改规定，结果和着是箭头自己先斩后奏知情不报，现在还要反过来替无能箭 ...</blockquote>
+换不了 这引擎现在就space marine2和地狱潜兵2这两个游戏用 索尼把箭头踢了市面上都基本找不到第二个会用这个引擎的厂商
+
+倒是可以趁热打铁把这个破引擎丢了做3
+
+现在箭头更新效率低本质是因为这个引擎太难用bug和feature都得他们自己解决 又不肯扩招找更多的人做这个项目
+
+*****
+
+####  ravend233  
+##### 4287#       发表于 2024-5-6 13:51
+
+<img src="https://img.saraba1st.com/forum/202405/06/135135rmr3lig0mwr0prmz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 13:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好四个空投舱
+

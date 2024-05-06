@@ -13157,3 +13157,26 @@ steam现在必须要win10以上啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有下探空间，不急
 
+
+*****
+
+####  天王寺綯  
+##### 4211#       发表于 2024-5-6 11:19
+
+话说硬要求绑psn的下一步会不会是不开ps+不能联机啊
+
+
+*****
+
+####  smdzh2  
+##### 4212#       发表于 2024-5-6 11:27
+
+不能享受HD2乐趣的玩家，舍弃！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4213#       发表于 2024-5-6 11:27
+
+下探的趋势意外的很平滑啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

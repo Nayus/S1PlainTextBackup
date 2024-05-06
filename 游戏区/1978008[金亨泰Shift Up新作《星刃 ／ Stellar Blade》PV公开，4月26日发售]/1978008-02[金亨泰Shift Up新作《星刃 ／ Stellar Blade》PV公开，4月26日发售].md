@@ -206,3 +206,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 —— 来自 Xiaomi 2206123SC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  宿  
+##### 1497#       发表于 2024-5-6 10:42
+
+昨晚一周目打完，还差不收集结局和二周目相关奖杯
+
+最大的惊喜是……这游戏原来是女同（个人角度）
+

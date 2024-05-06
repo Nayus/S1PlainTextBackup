@@ -12970,3 +12970,22 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 这逼箭头是不是有什么特殊嗜好？社区管理全是这种逆天飞柱</blockquote>
 这种太普遍了 这种人取得社区管理的位置有一套标准流程（除非你直球歧视） 同人圈都常见
 
+
+*****
+
+####  Mr.Hopp  
+##### 4194#       发表于 2024-5-6 08:59
+
+现在10W人在线，可以看得出来核心玩家大概就这10W人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr.Hopp  
+##### 4195#       发表于 2024-5-6 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64822726&amp;ptid=2170852" target="_blank">SergeGlenn 发表于 2024-5-6 06:51</a>
+
+Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不定箭头CEO决定暂缓关联，这人当时想法是不是如 ...</blockquote>
+6号后的玩家强制绑定，之前买的不强制绑定，但是你绑定了送你超级货币，这群人肯定没玩过二次元手游。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

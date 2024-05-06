@@ -61,3 +61,11 @@ AMD 没新的APU，ROG也不可能完全定制一款，小修小改再卖吧
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  肛之练筋士  
+##### 1185#       发表于 2024-5-6 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">考虑要不要把6800u的win4出掉了，换7840/8840有提升吗？
+

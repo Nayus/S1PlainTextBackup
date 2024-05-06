@@ -7804,3 +7804,13 @@ fsr光荣23-24财报是41万
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前段时间也是黑贞抽到弹尽粮绝关池都不出，然后伯爵几发就出了，虽然伯爵也挺好，但能不能换一下啊。啊。
 
+
+*****
+
+####  格林卡罗尔  
+##### 12716#       发表于 2024-5-7 02:31
+
+蘑菇说这是魔夜6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后转的后转了
+
+不过看起来还是有做魔夜2的打算的
+

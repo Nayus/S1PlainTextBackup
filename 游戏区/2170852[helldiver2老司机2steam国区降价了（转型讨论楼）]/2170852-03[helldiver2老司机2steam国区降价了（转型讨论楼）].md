@@ -13662,3 +13662,54 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 箭头先把那几个社管挂城墙再来谈和解好吧
 推特上白皮拿社管的话来质问CEO，都能得到不同的答复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4269#       发表于 2024-5-6 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826118&amp;ptid=2170852" target="_blank">BK10 发表于 2024-5-6 12:56</a>
+
+还是pc爷硬气，ps玩家强制xo互换就这么吃了</blockquote>
+两件事性质差远了，真比较ps玩家强制xo互换跟箭头和谐武器的性质差不多。更别说
+
+*****
+
+####  heseran  
+##### 4270#       发表于 2024-5-6 13:21
+
+跪得太快，没劲
+
+*****
+
+####  朔方原的星  
+##### 4271#       发表于 2024-5-6 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826118&amp;ptid=2170852" target="_blank">BK10 发表于 2024-5-6 12:56</a>
+还是pc爷硬气，ps玩家强制xo互换就这么吃了</blockquote>
+索尼之前驯化太成功脑子里就没有玩家是会反抗的这种概念
+
+啊？玩家不是我说什么就照做的吗？来，给我翻个跟头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BK10  
+##### 4272#       发表于 2024-5-6 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826364&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 13:20</a>
+两件事性质差远了，真比较ps玩家强制xo互换跟箭头和谐武器的性质差不多。更别说 ...</blockquote>
+Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没这次这么严重，只能说我没看见有ps玩家去报团尝试
+
+
+*****
+
+####  Mr.Hopp  
+##### 4273#       发表于 2024-5-6 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826386&amp;ptid=2170852" target="_blank">BK10 发表于 2024-5-6 13:21</a>
+
+Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没这次这么严重，只能说我没看见有ps玩家去报团尝 ...</blockquote>
+有人骂，但没啥用，先不说用X健确认的地方没法跟你共情，这个玩意根本不涉及核心问题。而箭头这个行为跟欺诈差不多了。
+
+真要说PS玩家不会反抗的话，奇迹2销量就不会差战神5和蜘蛛侠2这么多了。
+

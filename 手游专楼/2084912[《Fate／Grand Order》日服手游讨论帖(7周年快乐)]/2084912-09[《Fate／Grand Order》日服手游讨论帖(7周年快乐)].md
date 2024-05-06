@@ -7770,3 +7770,11 @@ fsr光荣23-24财报是41万
 
 蘑菇扔了一堆里设定出来，已经算是明牌不会有魔夜2了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 12712#       发表于 2024-5-6 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">奇迹般的抽齐了，明明前面巴姐补宝夏露露补宝黑贞补宝统统沉船 耀星伯爵图鉴都没开成
+

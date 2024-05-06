@@ -294,3 +294,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 这游戏像艾葵司7号这种开不了地图的图的要做支线只能在地图上嗯找人？之前回被水淹掉的那个广场发现地图上 ...</blockquote>
 那个男性npc任务有后续，你如果选择交还日记和记忆棒，之后再回去看看他
 
+
+*****
+
+####  Wubaba  
+##### 1506#       发表于 2024-5-6 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829563&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-5-6 17:36</a>
+那个男性npc任务有后续，你如果选择交还日记和记忆棒，之后再回去看看他 ...</blockquote>
+我还是很仁慈没把记忆棒给他 都给他会怎样？
+

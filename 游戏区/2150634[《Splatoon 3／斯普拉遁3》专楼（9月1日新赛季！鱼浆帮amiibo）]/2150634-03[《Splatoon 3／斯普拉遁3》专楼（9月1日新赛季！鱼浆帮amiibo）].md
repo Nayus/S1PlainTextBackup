@@ -13381,3 +13381,13 @@ Dlc就通了一次为回尚兴广场，之后就没再进过dlc了……
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4303#       发表于 2024-5-6 22:13
+
+这个红双，竟然主动朝着我枪口对准的地方翻滚，本以为手腕快要扭不过来要挂了没想到对面主动递人头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://s1.locimg.com/2024/05/06/41c7b3ca57b91.gif" referrerpolicy="no-referrer">
+

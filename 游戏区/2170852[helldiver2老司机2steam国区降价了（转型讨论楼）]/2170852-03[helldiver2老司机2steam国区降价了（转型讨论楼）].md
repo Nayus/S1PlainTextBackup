@@ -13923,3 +13923,32 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 论坛助手,iPad</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不信，我觉得又是骗猪进来杀
 
+
+*****
+
+####  布伦史塔德  
+##### 4295#       发表于 2024-5-6 14:06
+
+从付费用户的差评变成了已退款用户的差评，你就说change了没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪地白狼  
+##### 4296#       发表于 2024-5-6 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">还希望索尼能硬到最后让我退款呢，失望
+
+
+*****
+
+####  Benighted  
+##### 4297#       发表于 2024-5-6 14:13
+
+@PilestedtFirstly, I am impressed by the willpower of the @helldivers2 community and your ability to collaborate. Secondly I want to thank our partners and friends at [@PlayStation](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=100905) for quickly and effectively making the decision to leave PSN linking optional. We togheter want to set a new standard for what a live game is, and how developers and community can support each other to create the best game experiences.
+
+使用DeepL翻译
+
+由
+
+翻译自 英语首先，我对@helldivers2社区的意志力和合作能力印象深刻。其次，我要感谢@PlayStation的合作伙伴和朋友迅速有效地做出让 PSN 链接成为可选项的决定。我们共同希望为实时游戏以及开发者和社区如何相互支持以创造最佳游戏体验设定新标准。
+

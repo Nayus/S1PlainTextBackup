@@ -13616,3 +13616,49 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 推特前排还有一堆谢谢索尼的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，绝了
 
+
+*****
+
+####  天妇罗  
+##### 4264#       发表于 2024-5-6 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826182&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 13:02</a>
+
+提前6个月就知道，没告知客户不是自找的。。。</blockquote>
+是自己作的没毛病，不过根本原因还是作为SIE工作室强制绑定PSN这件事，看公告也只是缓兵之计
+
+*****
+
+####  Mr.Hopp  
+##### 4265#       发表于 2024-5-6 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826242&amp;ptid=2170852" target="_blank">天妇罗 发表于 2024-5-6 13:08</a>
+
+是自己作的没毛病，不过根本原因还是作为SIE工作室强制绑定PSN这件事，看公告也只是缓兵之计 ...</blockquote>
+各家游戏不都绑了？强制绑定PSN本来就没啥问题，只不过没提前告知玩家，如果发售时就通知玩家因为技术问题现在不绑以后要绑肯定没这么多节奏。
+
+
+*****
+
+####  九十九忍  
+##### 4266#       发表于 2024-5-6 13:14
+
+那篇公告的措词和箭头社管一直以来的行为决定了这绝对不会是最后一次炎上
+
+*****
+
+####  h1r0  
+##### 4267#       发表于 2024-5-6 13:17
+
+我是没见过哪个卖家敢对消费者说出宽限期的
+
+给钱的成了欠钱的
+
+*****
+
+####  北条早苗  
+##### 4268#       发表于 2024-5-6 13:17
+
+箭头先把那几个社管挂城墙再来谈和解好吧
+推特上白皮拿社管的话来质问CEO，都能得到不同的答复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

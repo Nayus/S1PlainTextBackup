@@ -4110,3 +4110,14 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 2024-5-6 11:22 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16660#       发表于 2024-5-6 13:05
+
+<img src="https://p.sda1.dev/17/7ba19590947519ebb9ad2fa0ed52aada/IMG_C0D2C4F1A48C98A95B76F16A6B9F4DE6.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9c5bcd7ceb6be75757198a4ed31d893c/IMG_88AA52AEA23D9BB7EC5D36888F27CC5D.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

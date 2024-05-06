@@ -4129,3 +4129,16 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 设定集都到快递柜了，和它仅相差一分钟到达国际互换局的BD物流信息至今没更新<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 16662#       发表于 2024-5-6 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826759&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-5-6 13:58</a>
+
+设定集都到快递柜了，和它仅相差一分钟到达国际互换局的BD物流信息至今没更新
+
+ ...</blockquote>
+我的也是一直在海关<img src="https://static.saraba1st.com/image/smiley/carton2017/392.gif" referrerpolicy="no-referrer">
+

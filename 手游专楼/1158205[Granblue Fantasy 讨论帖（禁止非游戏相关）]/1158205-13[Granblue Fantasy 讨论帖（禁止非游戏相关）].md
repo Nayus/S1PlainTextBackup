@@ -287,3 +287,26 @@
 
 高达撞盾是什么原理？我看特动只有开局10层那个算盾，但是我10层的时候打上去也有正常60w贡献，反而有时打到中间或者后面只有30多w，都是丢咸鱼7C，应该不存在这么大变数
 
+
+*****
+
+####  syndrome2032  
+##### 17919#       发表于 2024-5-6 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825882&amp;ptid=1158205" target="_blank">poor 发表于 2024-5-6 12:35</a>
+高达撞盾是什么原理？我看特动只有开局10层那个算盾，但是我10层的时候打上去也有正常60w贡献，反而有时打 ...</blockquote>
+3.0那个10层必出绿箱，解掉1层给20w贡献。
+
+后面少这20w基本是满10层了
+
+
+*****
+
+####  usoda  
+##### 17920#       发表于 2024-5-6 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825882&amp;ptid=1158205" target="_blank">poor 发表于 2024-5-6 12:35</a>
+
+高达撞盾是什么原理？我看特动只有开局10层那个算盾，但是我10层的时候打上去也有正常60w贡献，反而有时打 ...</blockquote>
+减一层盾就给20万贡献奖励，那种半血的进去已经没盾层数了就吃不到这个奖励了
+

@@ -13530,3 +13530,56 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我本来就不玩索系第一方，问题不大
 
+
+*****
+
+####  Freewolf  
+##### 4253#       发表于 2024-5-6 12:48
+
+虽然我有ps4和psn账号，但我还是不想吃这种强制绑定的屎
+
+*****
+
+####  白昼梦  
+##### 4254#       发表于 2024-5-6 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼居然还投降了，这波下去不会就没人记得要拷打箭头了吧
+
+*****
+
+####  Mr.Hopp  
+##### 4255#       发表于 2024-5-6 12:54
+
+索尼投降很正常，隔壁剑星还有玩了十几小时退款成功的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山风短  
+##### 4256#       发表于 2024-5-6 12:54
+
+这才哪到哪，索尼还没正式道歉呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rainknine  
+##### 4257#       发表于 2024-5-6 12:56
+
+意思是Sony原计划一开始就强制psn绑定，而箭头独走，先不强制psn链接做大玩家群，再挟玩家声量强行逼宫生米煮成熟饭
+
+不考虑箭头事实上真的是草台脑子进矢的话，只看结果，是很高级的黑暗兵法<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BK10  
+##### 4258#       发表于 2024-5-6 12:56
+
+还是pc爷硬气，ps玩家强制xo互换就这么吃了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leafS  
+##### 4259#       发表于 2024-5-6 12:57
+
+日啊，这公告一出我还能退款吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -13851,3 +13851,75 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好四个空投舱
 
+
+*****
+
+####  Sopp  
+##### 4288#       发表于 2024-5-6 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826561&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-5-6 13:41</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">索小将们现在该怎么洗呢
+
+*****
+
+####  wthall  
+##### 4289#       发表于 2024-5-6 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826738&amp;ptid=2170852" target="_blank">Sopp 发表于 2024-5-6 13:56</a>
+
+索小将们现在该怎么洗呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">参考之前战神上pc就行。
+
+*****
+
+####  Launce  
+##### 4290#       发表于 2024-5-6 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826653&amp;ptid=2170852" target="_blank">Variks 发表于 2024-5-6 13:49</a>
+
+好似，差评真有用 但是打出去的差评还能轻易收回去吗，想想箭头和索尼一手好牌打成这个局面就想笑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">能啊，现在就分裂了，一部分说不能改，一部分说索尼滑轨了伤不及矢脑
+
+*****
+
+####  Sopp  
+##### 4291#       发表于 2024-5-6 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826774&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-6 14:00</a>
+
+参考之前战神上pc就行。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">后面还有对马岛在等着呢
+
+
+*****
+
+####  zid99825  
+##### 4292#       发表于 2024-5-6 14:04
+
+他们的discord server里在刷change your review back<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zid99825  
+##### 4293#       发表于 2024-5-6 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826784&amp;ptid=2170852" target="_blank">Sopp 发表于 2024-5-6 14:01</a>
+后面还有对马岛在等着呢</blockquote>
+对马岛不是早就怂了么，直接出来说单机不需要绑定psn
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Sopp  
+##### 4294#       发表于 2024-5-6 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826819&amp;ptid=2170852" target="_blank">zid99825 发表于 2024-5-6 14:05</a>
+
+对马岛不是早就怂了么，直接出来说单机不需要绑定psn
+
+论坛助手,iPad</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我不信，我觉得又是骗猪进来杀
+

@@ -526,3 +526,14 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 想起那个AI识别为大猩猩的笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  莫吉  
+##### 60#       发表于 2024-5-6 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825727&amp;ptid=2182662" target="_blank">龙星丸 发表于 2024-5-6 12:24</a>
+
+民主党不如狠一点，直接内部弄死拜登，然后吹风是**支持者下手的，推现在的女副总统上位坐完剩下的时间再直 ...</blockquote>
+如果哈哈哈这个时候接手，总统余额怎么算，直接减4年？
+

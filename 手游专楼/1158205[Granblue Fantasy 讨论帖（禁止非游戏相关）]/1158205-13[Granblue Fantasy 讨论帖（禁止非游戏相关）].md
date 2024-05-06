@@ -318,3 +318,16 @@
 
 但是少了30w，而且盾少了伤害不是应该能多点吗？少个10几W差不多了吧
 
+
+*****
+
+####  syndrome2032  
+##### 17922#       发表于 2024-5-6 16:30
+
+ 本帖最后由 syndrome2032 于 2024-5-6 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826409&amp;ptid=1158205" target="_blank">poor 发表于 2024-5-6 13:23</a>
+但是少了30w，而且盾少了伤害不是应该能多点吗？少个10几W差不多了吧</blockquote>
+高达的盾加的是攻击力和技伤防御。10层盾时候技伤目测只有1/10。
+
+还有一种可能，救援时候血少，7c没砸完高达就没了，所以本来40w+20w变成了30w。
+

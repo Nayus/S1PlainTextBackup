@@ -14180,3 +14180,20 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌萌人鬼佬需要的也就是这个结果了，没啥办法
 
+
+*****
+
+####  Sanco  
+##### 4322#       发表于 2024-5-6 16:28
+
+一开始的目的不就是这个吗，想赔钱退款的反而是少数，又不能灭了索尼箭头，当然对本来就玩腻了的人来说要是能退款退游白嫖几十个小时游戏时间反而赚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狂风DKC  
+##### 4323#       发表于 2024-5-6 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">某种程度上来说这确实已经是最好结果了，不然还能咋办，指望贱头再白送一期通行证表示歉意吗
+
+—— 来自 meizu MEIZU 21 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

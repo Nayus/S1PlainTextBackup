@@ -13113,3 +13113,15 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 微软挺奸其实，现在win上面的xbox游戏要玩必须要装xbox服务，直接ban掉了win7和一票精简版win10，而能把这 ...</blockquote>
 steam现在必须要win10以上啊
 
+
+*****
+
+####  ycjiang1337  
+##### 4208#       发表于 2024-5-6 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64824247&amp;ptid=2170852" target="_blank">overmindoyj 发表于 2024-5-6 10:26</a>
+steam现在必须要win10以上啊</blockquote>
+这人把XPA和steam版微软游戏搞混了，最初微软PC游戏几乎只通过微软商店发行，都是UWP应用所以依赖Win10相关的商店组件。后来2019年微软第一方上steam，因为steam无法发行UWP应用所以游戏都是自己带了相关组件，当时战争机器5首发的时候实测是可以在Win7上玩的。
+
+—— 来自 HUAWEI HBN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

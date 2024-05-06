@@ -14276,3 +14276,35 @@ Ps互换别人十几年习惯，我觉得还是比补丁厉害多了，当然没
 
 卖的好的游戏确实是有特权的，居然能让索尼低头
 
+
+*****
+
+####  山风短  
+##### 4333#       发表于 2024-5-6 18:42
+
+ 本帖最后由 山风短 于 2024-5-6 18:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64829510&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-5-6 17:32</a>
+
+想让箭头把这四条差评做成麦河那样的纪念披风，作为谨言慎行的警示哈哈哈
+
+后面就是sony全款买下箭 ...</blockquote>
+
+CEO表示认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/06/184322vuc27yb0noeuxj7u.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2053.png</strong> (293.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 18:43 上传
+
+*****
+
+####  ravend233  
+##### 4334#       发表于 2024-5-6 18:45
+
+确实挺酷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最好再在红线下面画个超级气球（）
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

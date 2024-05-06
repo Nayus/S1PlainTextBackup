@@ -14551,3 +14551,13 @@ CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.
 话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了</blockquote>
 steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最低特效下终端机很糊，还是不太推荐用sd玩的
 
+
+*****
+
+####  normalli  
+##### 4359#       发表于 2024-5-6 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64833090&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-6 23:17</a>
+话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了</blockquote>
+我觉得可以用来刷蓝币，但正经打还是有点自虐
+

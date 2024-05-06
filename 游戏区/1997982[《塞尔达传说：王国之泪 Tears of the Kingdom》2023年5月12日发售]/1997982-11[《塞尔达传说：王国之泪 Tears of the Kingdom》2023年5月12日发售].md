@@ -61,3 +61,11 @@
 
 dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佛罗伦萨  
+##### 15714#       发表于 2024-5-6 23:46
+
+不知道能不能顺便公布点新的Amiibo
+

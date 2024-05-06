@@ -13406,3 +13406,13 @@ w4 退潮大炮
 w5 平潮
 没有难的再加上生筋子地图，这次我猜顶上能卷到接近400蛋
 
+
+*****
+
+####  Ryuuseigun  
+##### 4305#       发表于 2024-5-6 23:48
+
+ 本帖最后由 Ryuuseigun 于 2024-5-6 23:50 编辑 
+
+卧槽这是怎么攒出来十个RPG的<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">没带任何sp技能，队里也没饮料机，我记得RPG210p吧，1800p怎么攒出来10个的<img src="https://p.sda1.dev/17/b3e495210c1761d63ef3487d24742f18/CMP_20240506234644013.jpg" referrerpolicy="no-referrer">
+

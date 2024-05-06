@@ -13380,3 +13380,80 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  m98626  
+##### 4236#       发表于 2024-5-6 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，为什么是索尼出来替箭头滑跪啊？你们之间的关系是不是有点太抽象了？
+
+*****
+
+####  BadYanL  
+##### 4237#       发表于 2024-5-6 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825711&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-5-6 12:23</a>
+
+比较好奇前几天ban了的地区，游戏还闪电般归来不
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Nex ...</blockquote>
+现在从索尼光速滑跪来看，下架这一步还真不一定是索尼干的
+
+*****
+
+####  novyDC  
+##### 4238#       发表于 2024-5-6 12:30
+
+跪的挺快的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Ashice  
+##### 4239#       发表于 2024-5-6 12:31
+
+怂了也没用
+
+根本原因是箭头这个只看使用率和通过率的游戏平衡改动压根不打算让玩家玩的开心
+
+*****
+
+####  风萧飒  
+##### 4240#       发表于 2024-5-6 12:31
+
+你让箭头出来滑跪也没用啊，说到底那个公告落款是索尼，真绑定了受益者也是索尼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  烈焰舞阳  
+##### 4241#       发表于 2024-5-6 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825540&amp;ptid=2170852" target="_blank">zris 发表于 2024-5-6 12:11</a>
+前天刚去差评了
+
+不过我倒是觉得，这玩意如果这么搞了</blockquote>
+本质上是多个原因不停发酵引发的，制作组跟玩家针锋相对的对线和垃圾平衡补丁让社区本身就是一堆干柴，然后索尼这个爹味公告就像是往里头再灌了一桶汽油该扔了个烟头进去，导致彻底大爆发
+如果从一开始发售就要求绑定psn都不会有这么大的风波
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mr.Hopp  
+##### 4242#       发表于 2024-5-6 12:34
+
+这次不是纯粹箭头SB吗？昨天不是说早知道一定要绑定的，如果事先告知为了要绑定肯定没这么大节奏了。
+
+
+*****
+
+####  pwzzy  
+##### 4243#       发表于 2024-5-6 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然afk好久了，但是索尼和💩脑过了这么久还能让我看乐子，这游戏买的不亏
+

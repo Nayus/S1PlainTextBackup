@@ -446,3 +446,13 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  武蔵  
+##### 52#       发表于 2024-5-6 12:30
+
+反正横竖都得靠阴招，谁上都一样
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

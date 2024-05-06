@@ -14386,3 +14386,19 @@ CEO表示认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Mr.Hopp  
+##### 4343#       发表于 2024-5-6 20:49
+
+CEO一直出来道歉，可能不知道吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这老头要么极其聪明要么极其蠢，但能做出这么好玩的游戏，蠢是不可能的。
+
+
+*****
+
+####  sixgun  
+##### 4344#       发表于 2024-5-6 20:53
+
+这么快服软了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -466,3 +466,28 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  不见不散  
+##### 54#       发表于 2024-5-6 20:50
+
+想起那个笑话：
+
+投票日，希拉里出门前对克林顿说：今天晚上我回来时，就是两个总统睡一张床了。
+
+晚上希拉里进门后，克林顿问：是让特郎普过来睡还是我过去？
+
+这下奥巴马也要过去睡了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星花  
+##### 55#       发表于 2024-5-6 20:51
+
+<blockquote>泥鳅化石 发表于 2024-5-6 20:40
+最近对川那一堆审判难道很阳间吗？把前总统送进法庭这事本身就坏了规矩。
+
+—— 来自 HUAWEI OXF-AN10, And ...</blockquote>
+总统被杀都好几个了。
+

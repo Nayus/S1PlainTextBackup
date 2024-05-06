@@ -1480,3 +1480,11 @@ INABA
 
 2024-5-6 20:08 上传
 
+
+*****
+
+####  Mr.Giraffe  
+##### 1430#       发表于 2024-5-6 20:55
+
+被关一晚上还把心心念念的铲屎官给卷进去，可把小雪给憋屈坏了<img src="https://static.saraba1st.com/image/smiley/animal2017/019.png" referrerpolicy="no-referrer">
+

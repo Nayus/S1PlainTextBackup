@@ -13583,3 +13583,36 @@ PlayStation官方发推：我们已经收到了各位反馈，原定于5月6日�
 
 日啊，这公告一出我还能退款吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天妇罗  
+##### 4260#       发表于 2024-5-6 13:00
+
+箭头真是最大输家。差评如潮了，被退款了，名声臭了，最后换来的大概率是延后几个月实装。究极白忙活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4261#       发表于 2024-5-6 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826169&amp;ptid=2170852" target="_blank">天妇罗 发表于 2024-5-6 13:00</a>
+
+箭头真是最大输家。差评如潮了，被退款了，名声臭了，最后换来的大概率是延后几个月实装。究极白忙活[f:067 ...</blockquote>
+提前6个月就知道，没告知客户不是自找的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sevenzerofive  
+##### 4262#       发表于 2024-5-6 13:03
+
+能不能让我退款了再跪啊，现在这滑跪我还怎么退<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sevenzerofive  
+##### 4263#       发表于 2024-5-6 13:04
+
+推特前排还有一堆谢谢索尼的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，绝了
+

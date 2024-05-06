@@ -42,3 +42,13 @@
 
 花了20个小时入门，终于基本上手、能体验到点快乐而不是昏昏欲睡了。就一个问题：单机一周目体验流的话，只用盖塔魔神能爽快通关么，还是必须得上拼装机体强度才够？
 
+
+*****
+
+####  yujie  
+##### 64#       发表于 2024-5-6 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64826126&amp;ptid=2177850" target="_blank">alecwong 发表于 2024-5-6 12:57</a>
+花了20个小时入门，终于基本上手、能体验到点快乐而不是昏昏欲睡了。就一个问题：单机一周目体验流的话，只 ...</blockquote>
+后续肯定要换装备，不过有幻化
+

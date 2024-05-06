@@ -12989,3 +12989,30 @@ Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不
 Sony发售前6个月就告诉箭头要关联PSN，首发的时候服务器搞不定箭头CEO决定暂缓关联，这人当时想法是不是如 ...</blockquote>
 6号后的玩家强制绑定，之前买的不强制绑定，但是你绑定了送你超级货币，这群人肯定没玩过二次元手游。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烈焰舞阳  
+##### 4196#       发表于 2024-5-6 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64823221&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-6 08:59</a>
+现在10W人在线，可以看得出来核心玩家大概就这10W人。</blockquote>
+其实我和几个朋友，这几天在线纯粹就当最后一个月游戏时间了，到下个月就算无法退款也当这游戏不存在了
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kojimaru  
+##### 4197#       发表于 2024-5-6 09:11
+
+<img src="https://img.saraba1st.com/forum/202405/06/090709u50j35355ft51w75.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-6 09:07 上传
+
+有内鬼
+

@@ -14601,3 +14601,11 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 搞了，确定不能退款了，客服回复的理由是索尼发布了最新公告，已经不用绑定pan账户了。所以其它想退款的应该也是一样不可能了。
 
+
+*****
+
+####  ravend233  
+##### 4364#       发表于 2024-5-7 08:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼发了公告退款就没有基础了，当然不给退了
+

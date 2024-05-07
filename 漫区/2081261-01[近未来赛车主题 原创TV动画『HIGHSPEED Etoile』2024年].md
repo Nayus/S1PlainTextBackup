@@ -378,3 +378,19 @@ F1黄旗维修区通道没关闭就能pit
 
 凛那台能说话的AI应该就是他们的杀手锏，不过这一话看下来，怎么感觉这AI还不如凛，关键时刻居然还是让AI跟着凛的感觉跑
 
+
+*****
+
+####  kos_mos  
+##### 319#       发表于 2024-5-7 18:30
+
+tag“顾客真正需要的东西”“从一开始就给我这样做”
+
+<img src="https://img.saraba1st.com/forum/202405/07/183029xlhjappmmhw6mqh5.png" referrerpolicy="no-referrer">
+
+<strong>hs.png</strong> (213.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 18:30 上传
+

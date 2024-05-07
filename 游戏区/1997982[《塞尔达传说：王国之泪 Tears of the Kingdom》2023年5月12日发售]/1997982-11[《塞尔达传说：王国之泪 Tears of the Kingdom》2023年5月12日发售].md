@@ -69,3 +69,11 @@ dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face201
 
 不知道能不能顺便公布点新的Amiibo
 
+
+*****
+
+####  h122h  
+##### 15715#       发表于 2024-5-7 18:25
+
+感觉万代之前展会那个PROPLICA大师剑也会在一周年公布发售吧。
+

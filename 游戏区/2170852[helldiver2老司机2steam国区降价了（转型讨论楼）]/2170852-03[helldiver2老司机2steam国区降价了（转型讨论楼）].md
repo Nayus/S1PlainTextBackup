@@ -15038,3 +15038,13 @@ atat呢（
 “Prodigal Son（回头浪子）”，数据挖掘出来了，但是还没实装。</blockquote>
 这个是网友自己做的图吧，这几天游戏没更新，应该解包不出什么新东西。
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 4409#       发表于 2024-5-7 18:27
+
+爆裂铳现在还能炸据点吗
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

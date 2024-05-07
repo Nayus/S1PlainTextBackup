@@ -1256,3 +1256,13 @@ Tango真的可惜了
 
 — from Xiaomi M2007J1SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  Лилия  
+##### 138#       发表于 2024-5-8 07:08
+
+傻逼吧，tango也关。当年关师头现在又整这出，微软是真没品位啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

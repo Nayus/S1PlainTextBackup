@@ -24,3 +24,18 @@ ATLUS公开奇幻RPG新作《暗喻幻想：ReFantazio》大量新截图，介�
 
 -逗留期间做什么全部由玩家自由安排，可以享受富有“真实感”的冒险之旅
 
+
+*****
+
+####  Piano-Forest  
+##### 405#         楼主| 发表于 2024-5-7 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64840352&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-5-7 15:51</a>
+
+https://weibo.com/7897210512/5031415269556919
+
+ATLUS公开奇幻RPG新作《暗喻幻想：ReFantazio》大量新截图 ...</blockquote>
+全文：
+[https://www.famitsu.com/article/202405/4425](https://www.famitsu.com/article/202405/4425)
+[https://game.watch.impress.co.jp/docs/news/1589358.html](https://game.watch.impress.co.jp/docs/news/1589358.html)
+

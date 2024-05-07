@@ -1070,3 +1070,53 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 
 如果说没掏出来大的就应该关，那微软的工作室早该全关了
 
+
+*****
+
+####  绿色食品  
+##### 119#       发表于 2024-5-8 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845401&amp;ptid=2182889" target="_blank">FROM-SOFTWARE 发表于 2024-5-7 22:48</a>
+
+你说hfr叫好不叫座，可你其他工作室就一定能好了？什么腐烂国度3、everwild，好几个这种一眼难产的褒姒货， ...</blockquote>
+等着 一个也跑不了
+
+*****
+
+####  ddwhzh  
+##### 120#       发表于 2024-5-8 00:52
+
+前年就砍了就没现在这些问题了，rare和343这两个废物怎么还活着
+
+
+*****
+
+####  smdzh2  
+##### 121#       发表于 2024-5-8 00:53
+
+巨硬能不能管管某天天跳票的xgp合作伙伴<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnhappyTails  
+##### 122#       发表于 2024-5-8 00:55
+
+前略，真的懂游戏
+
+*****
+
+####  lucky95  
+##### 123#       发表于 2024-5-8 00:57
+
+真的不如索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  逸一死吾亦死  
+##### 124#       发表于 2024-5-8 00:58
+
+槟子这几年干得好啊，啥时候再拍个纪录片
+

@@ -14621,3 +14621,23 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没赶上第一波抽奖，后面的好像直接客服统一暂挂处理了
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">好气哦，我还是喜欢索尼面对主机玩家桀骜不驯的样子
 
+
+*****
+
+####  ravend233  
+##### 4366#       发表于 2024-5-7 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟可能真的会开退款，要少赚钱了当然当不了爹了
+
+
+*****
+
+####  屑屑代沟尼亚  
+##### 4367#       发表于 2024-5-7 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可恶 索尼跪太快又让箭头逃过去了
+
+不过这波共识也就只有绑PSN飞马
+
+让那些只有几小时的差评了解箭头的惊世平衡智慧有点难
+

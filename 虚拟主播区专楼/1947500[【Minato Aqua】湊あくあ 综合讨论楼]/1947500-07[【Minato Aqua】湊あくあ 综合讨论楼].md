@@ -182,3 +182,13 @@
 
 凛子小姐的抗压懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9761#       发表于 2024-5-7 22:39
+
+因为是直播限时比拼的特殊情况所以几乎没有多余时间磨练技术就是初见直接硬上了，看得出来很多时候都是强推的实际上控球稳定性的基础功并不扎实，所以要过冰块独木桥就非常难了几乎看运气了，如果是平时常规solo的话表现应该不会那么赶
+
+关键是这关过了不是就拜拜了后面还会掉回来的还要重新再过无数次的这关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还是得重头练好基础功要不后面越困难
+

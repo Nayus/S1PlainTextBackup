@@ -15201,3 +15201,11 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  暴走的包子  
+##### 4426#       发表于 2024-5-7 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新包那三坨除非加中穿不然没法救吧，都太幽默了，还是让我们把目光投向6月份的债券吧
+

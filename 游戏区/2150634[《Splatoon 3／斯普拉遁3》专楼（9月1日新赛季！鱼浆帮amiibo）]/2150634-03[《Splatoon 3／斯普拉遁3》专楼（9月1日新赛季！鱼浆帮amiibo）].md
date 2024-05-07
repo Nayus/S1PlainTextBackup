@@ -13437,3 +13437,13 @@ w5 平潮
 卧槽这是怎么攒出来十个RPG的没带任何sp技能，队里也没饮料机，我记得RPG210p吧，1800p怎么攒出来10 ...</blockquote>
 不同规则下有不同的SP自动增长的条件
 
+
+*****
+
+####  KBAC  
+##### 4308#       发表于 2024-5-7 22:45
+
+伞活动比赛，竹伞意外的好用
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

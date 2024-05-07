@@ -1013,3 +1013,13 @@ bungie开掉那大部分都是营销和社区团体，反正我fo的好几个喜
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  反作用于指甲盖  
+##### 113#       发表于 2024-5-8 00:15
+
+austin只留了部分人，不知道是不是填充到阿肯里昂去做刀锋战士了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来让他们做GaaS就挺离谱的，真要在暴殄天物的路上一直走下去啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

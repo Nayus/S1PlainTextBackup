@@ -14561,3 +14561,16 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 话说有人试过用steamdeck玩这游戏吗，运行效果怎样，最近有点被sd种草了</blockquote>
 我觉得可以用来刷蓝币，但正经打还是有点自虐
 
+
+*****
+
+####  Mr.Hopp  
+##### 4360#       发表于 2024-5-7 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832727&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-5-6 22:40</a>
+
+做完但没放出来的东西还是挺多的，我只能认为是在硬拖
+
+—— 来自 S1Fun ...</blockquote>
+实际上就是跟着剧情开放了，好处是有代入感，坏处是挤牙膏。
+

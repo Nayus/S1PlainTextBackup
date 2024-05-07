@@ -811,3 +811,14 @@ QP和骑饼干突然成两 ...</blockquote>
 
 商店毕业，正好骑本想刷一下羁绊和饼干，但是只有一个好友抽了五宝的兽尼，人家也没带午茶
 
+
+*****
+
+####  df600a  
+##### 46379#       发表于 2024-5-7 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64839403&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-5-7 14:48</a>
+
+商店毕业，正好骑本想刷一下羁绊和饼干，但是只有一个好友抽了五宝的兽尼，人家也没带午茶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥这时候要下午茶兽尼禄？？活动没结束不是要倍卡吗？
+

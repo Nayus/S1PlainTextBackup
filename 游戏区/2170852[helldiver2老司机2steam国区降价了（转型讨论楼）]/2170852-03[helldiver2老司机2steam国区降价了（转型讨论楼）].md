@@ -14677,3 +14677,14 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 我发现现在爆裂铳的爆炸还是会把小怪尸体往中间吸，只是不吸玩家了，真没看懂这是什么bug ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看下别的战备爆炸物？也是这么吸尸体的话大概率就是粗暴的给玩家加了个TAG，专门变成炸飞该TAG物体
 
+
+*****
+
+####  赤井稻妻  
+##### 4372#       发表于 2024-5-7 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836309&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-7 10:41</a>
+
+看下别的战备爆炸物？也是这么吸尸体的话大概率就是粗暴的给玩家加了个TAG，专门变成炸飞该TAG物 ...</blockquote>
+这个bug好像之前就只针对新加的三款爆炸武器，爆炸弩爆裂铳和榴弹手枪，也不知道这三把武器有什么特别的点需要独立写新的爆炸效果，直接用和榴弹枪一样的不好吗，尤其是榴弹手枪
+

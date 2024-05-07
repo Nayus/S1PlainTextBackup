@@ -12450,3 +12450,54 @@ VO力就明显比学马好一截<img src="https://static.saraba1st.com/image/smi
 好急
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 4173#       发表于 2024-5-7 22:04
+
+​奶油糖這次走的真是王道路線啊...
+
+*****
+
+####  霓虹灯鱼  
+##### 4174#       发表于 2024-5-7 22:04
+
+像动画OP<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4175#       发表于 2024-5-7 22:05
+
+galgame op
+
+*****
+
+####  你谁  
+##### 4176#       发表于 2024-5-7 22:05
+
+奶油糖现在是这样的吗 虽然可以听出来
+
+*****
+
+####  rgauss  
+##### 4177#       发表于 2024-5-7 22:05
+
+夹不上去的高音
+
+*****
+
+####  枫紫  
+##### 4178#       发表于 2024-5-7 22:06
+
+可怜，那么高的音给新人唱
+
+*****
+
+####  花开安菲路  
+##### 4179#       发表于 2024-5-7 22:06
+
+曲风像gal曲，静止画mv更像gal风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+作者有没马甲写gal曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

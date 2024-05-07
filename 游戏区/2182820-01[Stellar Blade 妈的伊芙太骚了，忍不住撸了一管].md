@@ -594,3 +594,11 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 其他韩系角色才是真没记忆点，伊芙这逆天比例和怪脸，挺有记忆点的。
 
+
+*****
+
+####  B.K.  
+##### 49#         楼主| 发表于 2024-5-7 22:05
+
+统统置顶，不能让坛友的好图被埋没<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

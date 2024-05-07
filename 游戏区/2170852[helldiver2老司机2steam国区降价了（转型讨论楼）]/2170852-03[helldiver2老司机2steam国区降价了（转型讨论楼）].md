@@ -15167,3 +15167,11 @@ atat呢（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这爆裂铳改的，以后能不能干脆出个债券退款返还所有超级货币和奖章啊，这债券还出个p啊
 
+
+*****
+
+####  6x6z6w  
+##### 4422#       发表于 2024-5-7 22:02
+
+既然现在dot伤害修了，建议把爆裂铳直接改成火焰或者毒气铳算了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

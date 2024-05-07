@@ -1180,3 +1180,13 @@ bsd1＞bsd2
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  ParadiseMartyr  
+##### 112#       发表于 2024-5-7 14:15
+
+啥事萝莉病化
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

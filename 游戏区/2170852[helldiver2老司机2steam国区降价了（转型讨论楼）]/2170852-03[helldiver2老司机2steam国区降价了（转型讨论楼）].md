@@ -14830,3 +14830,23 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 感觉现在很多人离开龟男一词就不会说话了，前一秒一起冲锋，下一秒就骂别人龟男了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4387#       发表于 2024-5-7 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64840277&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-5-7 15:47</a>
+
+感觉现在很多人离开龟男一词就不会说话了，前一秒一起冲锋，下一秒就骂别人龟男了 ...</blockquote>
+不会的，贴吧里都是用软骨头来骂的。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是夏承凛  
+##### 4388#       发表于 2024-5-7 16:56
+
+<img src="https://p.sda1.dev/17/b373704c90b47e1fe0fbddf5b011fb02/IMG_045A85C4209F015D30394766B5A7B626.jpeg" referrerpolicy="no-referrer">
+
+“Prodigal Son（回头浪子）”，数据挖掘出来了，但是还没实装。
+

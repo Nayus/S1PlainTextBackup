@@ -14747,3 +14747,12 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 <img src="https://p.sda1.dev/17/68e45fd9caf3fe3bdb9893b1dcc4653b/1715055459648.png" referrerpolicy="no-referrer">
 我还没上车呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 4379#       发表于 2024-5-7 12:32
+
+好气啊，没赶上车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+198就当喂狗了
+

@@ -14850,3 +14850,41 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 “Prodigal Son（回头浪子）”，数据挖掘出来了，但是还没实装。
 
+
+*****
+
+####  IWS2000  
+##### 4389#       发表于 2024-5-7 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841284&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-7 16:54</a>
+不会的，贴吧里都是用软骨头来骂的。</blockquote>
+软骨头是有等级的，看到许多1级的用龟男骂
+
+*****
+
+####  IWS2000  
+##### 4390#       发表于 2024-5-7 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841316&amp;ptid=2170852" target="_blank">我不是夏承凛 发表于 2024-5-7 16:56</a>
+“Prodigal Son（回头浪子）”，数据挖掘出来了，但是还没实装。</blockquote>
+带兜帽的吗？
+
+*****
+
+####  IWS2000  
+##### 4391#       发表于 2024-5-7 17:00
+
+ 本帖最后由 IWS2000 于 2024-5-7 17:02 编辑 
+
+。
+
+*****
+
+####  Mr.Hopp  
+##### 4392#       发表于 2024-5-7 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841374&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-5-7 16:59</a>
+
+软骨头是有等级的，看到许多1级的用龟男骂</blockquote>
+那100%是来带节奏的。龟男比软骨头难听而且有一层对立的含义。
+

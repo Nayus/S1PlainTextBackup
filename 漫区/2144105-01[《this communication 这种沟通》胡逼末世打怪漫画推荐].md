@@ -1524,3 +1524,13 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 第45话，难得维持了一整集的形象，可惜最后一页还是挨了招玉足碎蛋
 真希望本作能动画化啊
 
+
+*****
+
+####  KDConan  
+##### 148#       发表于 2024-5-8 04:31
+
+这么个动不动杀孩子自保的主角谁敢动画化啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

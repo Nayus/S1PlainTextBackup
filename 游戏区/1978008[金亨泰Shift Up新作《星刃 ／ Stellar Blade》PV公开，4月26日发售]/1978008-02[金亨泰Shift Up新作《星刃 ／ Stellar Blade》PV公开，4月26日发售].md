@@ -485,3 +485,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 —— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  B.K.  
+##### 1524#       发表于 2024-5-7 13:55
+
+对，如果想真 全收集，还要白金的话必须3周目
+
+这取决于二周目还有多少好看衣服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

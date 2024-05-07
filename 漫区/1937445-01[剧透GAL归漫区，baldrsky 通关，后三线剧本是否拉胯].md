@@ -1170,3 +1170,13 @@ ve难度双机**，随便打
 
 bsd1＞bsd2
 
+
+*****
+
+####  88is88  
+##### 111#       发表于 2024-5-7 14:02
+
+萝莉病化毁了多少好画手
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

@@ -14787,3 +14787,11 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 我知道第一方和第三方，这第二方是什么意思</blockquote>
 就这个HD2这种的，索尼出钱出人让这个公司帮他出一个游戏，这就叫第二方
 
+
+*****
+
+####  ravend233  
+##### 4383#       发表于 2024-5-7 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绑账号是肯定要绑的，如何处理的问题，你索这次事做得太蠢了
+

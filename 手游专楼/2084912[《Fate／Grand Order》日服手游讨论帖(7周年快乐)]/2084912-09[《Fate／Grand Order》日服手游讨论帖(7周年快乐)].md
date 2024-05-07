@@ -7814,3 +7814,13 @@ fsr光荣23-24财报是41万
 
 不过看起来还是有做魔夜2的打算的
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12717#       发表于 2024-5-7 07:44
+
+结果也没说草十郎十年后怎么变那样了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

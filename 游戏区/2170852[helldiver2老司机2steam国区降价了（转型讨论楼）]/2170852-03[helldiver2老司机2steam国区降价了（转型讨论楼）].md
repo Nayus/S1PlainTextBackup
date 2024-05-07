@@ -14756,3 +14756,14 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 好气啊，没赶上车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 198就当喂狗了
 
+
+*****
+
+####  洛拉斯  
+##### 4380#       发表于 2024-5-7 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828844&amp;ptid=2170852" target="_blank">HATENA 发表于 2024-5-6 16:39</a>
+
+你觉得你索对第二方会没有这点管控权吗？</blockquote>
+我知道第一方和第三方，这第二方是什么意思
+

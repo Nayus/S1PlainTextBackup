@@ -12374,3 +12374,14 @@ hw:我给pjsk写的歌有200万播放，建议你们反思。
 
 日本原神跟你说着玩的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 4166#       发表于 2024-5-7 17:37
+
+日本○的播放量不都挺高的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+拿pjsk比有点欺负人了
+
+我只是想骂hw写的一坨 
+

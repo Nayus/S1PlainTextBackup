@@ -967,3 +967,11 @@ bungie开掉那大部分都是营销和社区团体，反正我fo的好几个喜
 
 你软最抽象的收购难道不是we happy few 那个工作室嘛
 
+
+*****
+
+####  katern  
+##### 108#       发表于 2024-5-7 23:51
+
+唉，最近Arkane真的是太拉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1246,3 +1246,13 @@ Tango真的可惜了
 
 一觉醒来hifihush进包了 果然杉果打折的都要忍住
 
+
+*****
+
+####  astrayveller  
+##### 137#       发表于 2024-5-8 06:38
+
+微软属实一点品味没有
+
+— from Xiaomi M2007J1SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

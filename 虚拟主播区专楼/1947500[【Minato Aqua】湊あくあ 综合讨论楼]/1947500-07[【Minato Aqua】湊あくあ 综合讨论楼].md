@@ -136,3 +136,11 @@
 
 阿库坦，不要输呀<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星の守  
+##### 9755#       发表于 2024-5-7 21:51
+
+这游戏看的手心出汗
+

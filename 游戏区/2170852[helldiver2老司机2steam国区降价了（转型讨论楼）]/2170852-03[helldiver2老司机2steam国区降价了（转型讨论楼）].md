@@ -15159,3 +15159,11 @@ atat呢（
 个人任务那块好像没有修复，队友的飞鹰机枪击杀还是算在我的任务里了</blockquote>
 一个人完成队伍4人都算完成
 
+
+*****
+
+####  白昼梦  
+##### 4421#       发表于 2024-5-7 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这爆裂铳改的，以后能不能干脆出个债券退款返还所有超级货币和奖章啊，这债券还出个p啊
+

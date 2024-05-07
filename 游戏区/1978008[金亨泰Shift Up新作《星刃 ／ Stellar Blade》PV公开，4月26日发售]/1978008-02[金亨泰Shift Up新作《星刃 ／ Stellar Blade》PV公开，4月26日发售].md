@@ -473,3 +473,15 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 2周目想收集全部换色衣服和强化装备的话必须再去一次埃多斯9号，这样2周目也没办法白金了
 
+
+*****
+
+####  塔奇克马  
+##### 1523#       发表于 2024-5-7 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836093&amp;ptid=1978008" target="_blank">宛若青空 发表于 2024-5-7 10:24</a>
+那楼主也没有说自己是不是断网安装的，没断网的话装的时候就会自动变成1.002版了 ...</blockquote>
+看到了，那个楼主改标题了<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

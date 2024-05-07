@@ -4343,3 +4343,15 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 
 要反超小仓唯再出一周数据就行了
 
+
+*****
+
+####  akirakira  
+##### 16679#       发表于 2024-5-7 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841668&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-7 17:17</a>
+次週 1799
+
+累計 8372</blockquote>
+后劲不错，保持的话下单初动八千有望<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

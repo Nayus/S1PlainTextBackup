@@ -13426,3 +13426,14 @@ w5 平潮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 4307#       发表于 2024-5-7 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64833404&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-6 23:48</a>
+
+卧槽这是怎么攒出来十个RPG的没带任何sp技能，队里也没饮料机，我记得RPG210p吧，1800p怎么攒出来10 ...</blockquote>
+不同规则下有不同的SP自动增长的条件
+

@@ -15048,3 +15048,28 @@ atat呢（
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  IWS2000  
+##### 4410#       发表于 2024-5-7 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842582&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-5-7 18:27</a>
+爆裂铳现在还能炸据点吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+之前说过会保留这个功能
+
+*****
+
+####  风萧飒  
+##### 4411#       发表于 2024-5-7 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842582&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-5-7 18:27</a>
+爆裂铳现在还能炸据点吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+本来炸据点也不是用弹片
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

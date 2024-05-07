@@ -15191,3 +15191,13 @@ atat呢（
 
 dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4425#       发表于 2024-5-7 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下“平衡”火喷必死，下个真神是新包那构式还是又轮回到碎裂者
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

@@ -389,3 +389,375 @@ yysy，腐烂国度2我觉得更新还算勤快的，3我个人挺期待 希望�
 关了343还不是有人要接手光环IP。而且高层都大换血一次了</blockquote>
 HALO早该换人了，别的组能不能做好我不知道，反正343没这个能力
 
+
+*****
+
+####  pwzzy  
+##### 44#       发表于 2024-5-7 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ms不如把前段时间被棒鸡开掉的那一批员工招过来组个新工作室做halo，343这坨不可燃垃圾让他们去续红霞岛的命
+
+
+*****
+
+####  绿色食品  
+##### 45#       发表于 2024-5-7 22:09
+
+austin死的不冤，tango很奇怪，难道hifi rush销量大不如预期？ 不然想不到为什么关掉
+
+*****
+
+####  ultraseven  
+##### 46#       发表于 2024-5-7 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844888&amp;ptid=2182889" target="_blank">绿色食品 发表于 2024-5-7 22:09</a>
+
+austin死的不冤，tango很奇怪，难道hifi rush销量大不如预期？ 不然想不到为什么关掉 ...</blockquote>
+应该是吧，上PS5后销量很低，好像当月美国第50名
+
+*****
+
+####  h1r0  
+##### 47#       发表于 2024-5-7 22:14
+
+除非是tango核心人走光了，不然想不出为什么关它
+
+*****
+
+####  无辄辄  
+##### 48#       发表于 2024-5-7 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844845&amp;ptid=2182890" target="_blank">ycy8332589 发表于 2024-5-7 22:06</a>
+索尼之前被微软大收购吓到，慌乱之中收了棒鸡这个烂摊子，也难受啊</blockquote>
+那几年那几年大收购战，索尼就不该更牌，收了棒鸡在手里想搞服务性游戏，结果也没有成功，只能说被微软带偏。
+
+*****
+
+####  zzy516232108  
+##### 49#       发表于 2024-5-7 22:16
+
+阿肯奥斯丁端出来redfall不冤
+
+tango最近也就一个hifirush啊，难道你们要捏着鼻子说幽灵线很好玩吗
+
+*****
+
+####  滋啦球  
+##### 50#       发表于 2024-5-7 22:19
+
+ 本帖最后由 滋啦球 于 2024-5-7 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">HiFi-Rush成Tango遗作了? 本来以为Tango终于从恶灵附身2和幽灵线东京走出来了, 没想到是回光返照
+
+*****
+
+####  IcarusInFire  
+##### 51#       发表于 2024-5-7 22:19
+
+所以三上离开是因还是果呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">JOJO之后去哪，投奔三上不成？
+
+*****
+
+####  madcow  
+##### 52#       发表于 2024-5-7 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那说起来弟兄们总觉得幽灵线属于三丧给傻逼小妹留的烂摊子擦屁股不作数的好吧，再说这不收购前的吗
+
+*****
+
+####  哈罗  
+##### 53#       发表于 2024-5-7 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844809&amp;ptid=2182889" target="_blank">ef6270 发表于 2024-5-7 22:03</a>
+
+我还在等DLC！</blockquote>
+开发彻底终止了，当初买了英雄dlc的会给出补偿方案
+
+*****
+
+####  断翼  
+##### 54#       发表于 2024-5-7 22:25
+
+<blockquote>feimaqundao337 发表于 2024-5-7 21:54
+那个中村育美，幽灵线没做完就跑了，还是三上擦的屁股。
+
+</blockquote>
+另一个说法是B社母公司认为方向不对要求踢人，而三上最近的访谈也说到自从zenimix收购后他失去了所有权力
+
+*****
+
+####  TheOccuria  
+##### 55#       发表于 2024-5-7 22:29
+
+其他的不说，tango不是做了个hi-fi rush吗，也被关了？
+
+*****
+
+####  FLZB  
+##### 56#       发表于 2024-5-7 22:30
+
+tango好歹整出了hifi rush，看不懂为什么关，最该关难道不是343？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cranberries  
+##### 57#       发表于 2024-5-7 22:31
+
+去年好游戏很多，但是阳了的那段时间玩hifirush的快乐印象太深刻了。
+可惜啊。
+arkane奥斯丁也有prey这种佳作吧。
+真不至于把这两个工作室关了。
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  JOJO42  
+##### 58#       发表于 2024-5-7 22:33
+
+不懂，想不到tango有什么被裁的理由，虽然完美音浪口碑好没赚到钱.....但也远不算你微软第一方里成绩最差的那批吧
+
+*****
+
+####  makar0601  
+##### 59#       发表于 2024-5-7 22:36
+
+Tango down！
+
+*****
+
+####  ultraseven  
+##### 60#       发表于 2024-5-7 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845182&amp;ptid=2182889" target="_blank">FLZB 发表于 2024-5-7 22:30</a>
+
+tango好歹整出了hifi rush，看不懂为什么关，最该关难道不是343？</blockquote>
+关了343还不是有人要接手光环IP。而且高层都大换血一次了
+
+*****
+
+####  FUZE  
+##### 61#       发表于 2024-5-7 22:45
+
+这下PERY 2也没了 
+
+M$这下做实比EA还狠 像HIFI这种游戏哪怕买的再不好 那也是叫好不叫座
+
+EA枪毙工作室起码都要犯错两次 这家伙 真的是做不好就关闭
+
+妈的把你那个傻逼XBOX关了算了 
+
+*****
+
+####  1913  
+##### 62#       发表于 2024-5-7 22:45
+
+旧文新读：药荚《钱到账之后，那些公司怎么样了》
+[https://yaojiaiddqd.blogspot.com/2024/01/blog-post_29.html](https://yaojiaiddqd.blogspot.com/2024/01/blog-post_29.html)
+
+*****
+
+####  chdhdhd  
+##### 63#       发表于 2024-5-7 22:45
+
+ 本帖最后由 chdhdhd 于 2024-5-7 22:47 编辑 
+
+ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编后没有高光，多半是一样结局了
+
+不太懂版权，如果它关了，小写鬼泣是确定永无后文了吗？还是说和它其实没关系，一直都是只看卡婊自己意思？
+
+*****
+
+####  |胡说|  
+##### 64#       发表于 2024-5-7 22:45
+
+只能说没有品位是刻在巨硬骨子里的基因传承.
+
+红霞岛这种从立项就是一坨屎的垃圾能活到现在也真是个奇葩.
+
+完美音浪这种小众高口碑的作品,就该养着提升口碑.这种小团队根本就花不了几个钱,但整出一个活却能极大提升企业的口碑.就养起来当广告都超值.即使不想养,也可以只裁员或者拆散员工,保留工作室品牌即可.
+
+巨硬做游戏.就和我朝前些年煤老板/互联网资本做电影一样,只看表面数据砸钱,完美的大便生产者
+
+*****
+
+####  zxdrtyhn  
+##### 65#       发表于 2024-5-7 22:46
+
+tango该润的都润了，留着也没用吧
+
+*****
+
+####  FROM-SOFTWARE  
+##### 66#       发表于 2024-5-7 22:48
+
+你说hfr叫好不叫座，可你其他工作室就一定能好了？什么腐烂国度3、everwild，好几个这种一眼难产的褒姒货，到时怎么办？继续砍？
+
+*****
+
+####  A-01  
+##### 67#       发表于 2024-5-7 22:49
+
+先别急，关探戈就是把勾结索尼都图图了，给软软一个交代，下一个就是黑曜石然后就是rare，史称p3除三害
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 68#       发表于 2024-5-7 22:49
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-5-7 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845375&amp;ptid=2182890" target="_blank">chdhdhd 发表于 2024-5-7 22:45</a>
+
+ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编后没有高光，多半是一样结局了
+
+不太懂版权，如 ...</blockquote>
+对一个zzzq公司（应该说是更进一步的，以zzzq为卖点）有所期待你也是奇怪，而且有zzzq的buff不容易没吧，不怕不明群体围攻微软？
+
+*****
+
+####  凛冬将至  
+##### 69#       发表于 2024-5-7 22:49
+
+地主家也没余粮啊～
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lucky95  
+##### 70#       发表于 2024-5-7 22:50
+
+LZ认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+巨硬除了废渣工作室全部加起来都不如剑星一个手游厂，是不是都能关了呢
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  东之伊甸  
+##### 71#       发表于 2024-5-7 22:51
+
+就一个感觉，微软真是钱多<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzsxd  
+##### 72#       发表于 2024-5-7 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844983&amp;ptid=2182889" target="_blank">zzy516232108 发表于 2024-5-7 22:16</a>
+
+阿肯奥斯丁端出来redfall不冤
+
+tango最近也就一个hifirush啊，难道你们要捏着鼻子说幽灵线很好玩吗 ...</blockquote>
+MD我过年玩了幽灵线。一直想写个感想破口大骂一下。没想到字没打出一个这制作公司先没了
+
+*****
+
+####  凛冬将至  
+##### 73#       发表于 2024-5-7 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844474&amp;ptid=2182889" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-5-7 21:33</a>
+搞出完美音浪还以为后继有人，不过细想下Tango女制作人新作有股异味，其实已经有点不对劲了 ...</blockquote>
+那个早跑了，去年tga上还宣发了新作。 之后tango有个白皮老外，说是三上的接班人，hifirush也是他做的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  东之伊甸  
+##### 74#       发表于 2024-5-7 22:52
+
+就一个感受，微软钱真多<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  back57992  
+##### 75#       发表于 2024-5-7 22:52
+
+探戈估计是hifirush后没项目 走了一批人又
+
+*****
+
+####  黑色的js  
+##### 76#       发表于 2024-5-7 22:52
+
+yysy，腐烂国度2我觉得更新还算勤快的，3我个人挺期待 希望能留住
+
+*****
+
+####  FLZB  
+##### 77#       发表于 2024-5-7 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845295&amp;ptid=2182889" target="_blank">ultraseven 发表于 2024-5-7 22:39</a>
+
+关了343还不是有人要接手光环IP。而且高层都大换血一次了</blockquote>
+HALO早该换人了，别的组能不能做好我不知道，反正343没这个能力
+
+*****
+
+####  FUZE  
+##### 78#       发表于 2024-5-7 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844526&amp;ptid=2182890" target="_blank">电磁炮233 发表于 2024-5-7 21:37</a>
+
+343这种飞舞不砍，杀做出过Prey和Hifi-Rush的工作室，你猜索尼杀Japan studio的时候大伙叫好了吗，自觉滚去 ...</blockquote>
+别 现在EA可比M$仁慈多了
+
+BIO DICE放在MS早就死了
+
+*****
+
+####  Asukalangley33  
+##### 79#       发表于 2024-5-7 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845218&amp;ptid=2182890" target="_blank">JOJO42 发表于 2024-5-7 22:33</a>
+
+不懂，想不到tango有什么被裁的理由，虽然完美音浪口碑好没赚到钱.....但也远不算你微软第一方里成绩最差的 ...</blockquote>
+砍TANGO很正常
+
+三上作为创始人都走了，扶起来的两人一个做网红去了
+
+另一个外国佬挺有才华的，没必要在微软这里被埋没
+
+arkane这边红霞岛实在过于离谱，共情不了一点
+
+比较可惜的是没把343那群BYD给飞了，真的亲儿子
+
+*****
+
+####  shamanda  
+##### 80#       发表于 2024-5-7 22:58
+
+嗯？zenimax？那我老滚ol是不是可以有点起色了。
+
+
+*****
+
+####  pwzzy  
+##### 81#       发表于 2024-5-7 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ms不如把前段时间被棒鸡开掉的那一批员工招过来组个新工作室做halo，343这坨不可燃垃圾让他们去续红霞岛的命
+
+*****
+
+####  madcow  
+##### 82#       发表于 2024-5-7 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">棒鸡现在也不行吧，铁黑楼粉宁可接着玩MCC也不吸棒鸡开掉的尾气好吧（
+
+*****
+
+####  199april  
+##### 83#       发表于 2024-5-7 23:07
+
+所以战争机器和神鬼寓言不重启一下？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  posthoc  
+##### 84#       发表于 2024-5-7 23:07
+
+反正prey的核心也早就跑路了，之前看mca也在跟他们混。
+希望有生之年能看到软软枪毙BGS<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

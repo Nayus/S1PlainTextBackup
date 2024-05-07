@@ -12720,3 +12720,13 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 今天这个才是正经偶像歌吧
 
+
+*****
+
+####  Kreis  
+##### 4206#       发表于 2024-5-7 22:55
+
+两段call是不是学马的人硬塞的啊，非常突兀。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这歌配器换一下糖味还是很足的，和美波曲一样弦乐有点打架，不过这两首都很对我胃口，能不能重编一下让作曲本家发啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

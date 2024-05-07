@@ -7889,3 +7889,17 @@ A2A8F0C6-6A18-4917-BE86-E608A2A2950D.jpeg
 
 NGA那个[日服汉化]无需ROOT的汉化包的帖子，按照帖子里面的操作替换文件后进入游戏还是日文，是不是已经失效了，那么现在替换文件日服看中文剧情是否无解？
 
+
+*****
+
+####  琴酒  
+##### 12724#       发表于 2024-5-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841646&amp;ptid=2084912" target="_blank">gulant 发表于 2024-5-7 17:15</a>
+
+NGA那个[日服汉化]无需ROOT的汉化包的帖子，按照帖子里面的操作替换文件后进入游戏还是日文，是不是已经失 ...</blockquote>
+是的 英文和机翻可以看这个
+[https://github.com/rayshift/translatefgo/](https://github.com/rayshift/translatefgo/)
+
+中文主要是字体原因
+

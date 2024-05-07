@@ -1154,3 +1154,11 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  6x6z6w  
+##### 128#       发表于 2024-5-8 01:57
+
+上周是索尼作妖，这周轮到微软了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待下周EA也整点活出来
+

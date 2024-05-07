@@ -12769,3 +12769,14 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 花海咲季就是炽焰咆哮虎说
 
+
+*****
+
+####  screeper  
+##### 4212#       发表于 2024-5-8 02:01
+
+ 本帖最后由 screeper 于 2024-5-8 02:04 编辑 
+
+平心而论烤就没开几次live，大多数live还是类似魔法未来那样的全息投影，好不容易声优来现地还会开很大垫音，声优能力再强也体现不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+只能说烤跟其他二偶企划就不是一个赛道的，更注重推虚拟角色，至于声优就让其回归本质当个配音员<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

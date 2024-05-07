@@ -574,3 +574,23 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 2b主要是普及率高，任何人只要带上眼罩只要不是身材差太远都能有八分像
 
+
+*****
+
+####  nukacolamania  
+##### 47#       发表于 2024-5-7 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64839277&amp;ptid=2182820" target="_blank">希克苏鲁伯 发表于 2024-5-7 14:36</a>
+这个脊椎的设计好难接受，就像后入的时候看到女方的骨节一样失去性欲</blockquote>
+布差拉迪狂喜
+
+—— 来自 motorola moto g stylus 5G (2022), Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  缺德猫  
+##### 48#       发表于 2024-5-7 20:33
+
+其他韩系角色才是真没记忆点，伊芙这逆天比例和怪脸，挺有记忆点的。
+

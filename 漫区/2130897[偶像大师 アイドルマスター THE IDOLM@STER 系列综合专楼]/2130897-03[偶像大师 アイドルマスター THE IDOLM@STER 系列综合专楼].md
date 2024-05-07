@@ -11979,3 +11979,21 @@ mv很有特色喜欢
 
 原来小黄才是初星学园女一
 
+
+*****
+
+####  Ruriko_  
+##### 4149#       发表于 2024-5-7 11:37
+
+还得是我们皮卡丘<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安广多惠子  
+##### 4150#       发表于 2024-5-7 11:41
+
+皮卡丘当然是主角了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

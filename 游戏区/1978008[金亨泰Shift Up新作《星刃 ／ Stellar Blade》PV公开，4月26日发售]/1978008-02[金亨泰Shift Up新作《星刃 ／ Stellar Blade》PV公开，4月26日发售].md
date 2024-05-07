@@ -445,3 +445,15 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一周目打到准备去找摩托，看奖杯，营地84/89，一查最终战就两个营地了，怀疑9号漏了，痛苦
 
+
+*****
+
+####  彩虹肥宅  
+##### 1520#       发表于 2024-5-7 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836801&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-7 11:11</a>
+一周目打到准备去找摩托，看奖杯，营地84/89，一查最终战就两个营地了，怀疑9号漏了，痛苦 ...</blockquote>
+9号那个2个藏很深
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -14795,3 +14795,30 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绑账号是肯定要绑的，如何处理的问题，你索这次事做得太蠢了
 
+
+*****
+
+####  Mr.Hopp  
+##### 4384#       发表于 2024-5-7 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836388&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-7 10:46</a>
+
+这个bug好像之前就只针对新加的三款爆炸武器，爆炸弩爆裂铳和榴弹手枪，也不知道这三把武器有什么特别的 ...</blockquote>
+离子喷也有这个BUG
+
+
+*****
+
+####  icylight  
+##### 4385#       发表于 2024-5-7 15:14
+
+已经”多半好评“了
+
+<img src="https://img.saraba1st.com/forum/202405/07/151410xn3n9kyfehzfkjhl.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-05-07 151403.jpg</strong> (97.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 15:14 上传
+

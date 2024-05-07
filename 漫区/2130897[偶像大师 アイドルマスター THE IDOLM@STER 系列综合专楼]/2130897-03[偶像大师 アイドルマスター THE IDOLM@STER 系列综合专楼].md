@@ -12308,3 +12308,15 @@ https://www.bilibili.com/video/BV1NP4y1R7a5/ ...</blockquote>
 
 [color=var(--t)][backcolor=var(--bg)]道具背景：[backcolor=var(--bg)]ひかがみひなみ [color=var(--t)][backcolor=var(--bg)]https://twitter.com/moucou
 
+
+*****
+
+####  枫紫  
+##### 4159#       发表于 2024-5-7 15:11
+
+ 本帖最后由 枫紫 于 2024-5-7 15:12 编辑 
+
+光景比预想的好很多，mv也很优秀，总算又有一首能听的了
+
+顺便我以为作画张数多是信号机独有待遇呢，这样看李波和紫云是不是太惨了点
+

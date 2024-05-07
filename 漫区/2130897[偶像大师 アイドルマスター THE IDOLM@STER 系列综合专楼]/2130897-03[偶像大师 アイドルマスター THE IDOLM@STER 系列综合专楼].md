@@ -11942,3 +11942,12 @@ mv很有特色喜欢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说担心live表现的去B站回顾一遍04年阁下唱的大腸のジェラシー，调都不知道在哪，总会有办法的
 
+
+*****
+
+####  koodooliz  
+##### 4145#       发表于 2024-5-7 10:17
+
+以前是以前，现在是现在👐
+而且阁下那个现场连live也算不上，都能叫小场地卡拉ok了（
+

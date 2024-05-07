@@ -416,3 +416,24 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  塔奇克马  
+##### 1517#       发表于 2024-5-7 10:19
+
+尼姑庵那边说 剑星日版盘第二批预装的1.002版
+
+1.0不会绝版了吧
+
+*****
+
+####  宛若青空  
+##### 1518#       发表于 2024-5-7 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836031&amp;ptid=1978008" target="_blank">塔奇克马 发表于 2024-5-7 10:19</a>
+尼姑庵那边说 剑星日版盘第二批预装的1.002版
+
+1.0不会绝版了吧</blockquote>
+那楼主也没有说自己是不是断网安装的，没断网的话装的时候就会自动变成1.002版了
+

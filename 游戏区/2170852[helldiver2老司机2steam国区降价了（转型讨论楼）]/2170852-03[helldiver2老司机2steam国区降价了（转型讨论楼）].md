@@ -15073,3 +15073,45 @@ atat呢（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CirnoNoir  
+##### 4412#       发表于 2024-5-7 18:48
+
+简单去东线试了下，都是正面直击头部，打虫巢护卫变成两发以上才能杀了，打指挥官甚至要三发以上。
+
+清潮能力也基本没了，溅射范围感觉小的不行
+
+近距离确实不太容易把自己炸死了，但大概率一发把自己炸成大残，可能这就是加了40点伤害的用意吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 4413#       发表于 2024-5-7 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842037&amp;ptid=2170852" target="_blank"> IWS2000 发表于 2024-5-7 17:43</a> 毒气压潮效果怎么样 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毒气除了毒死好奇的队友之外p用没有来自: iPhone客户端
+
+*****
+
+####  大肥鸽子  
+##### 4414#       发表于 2024-5-7 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842806&amp;ptid=2170852" target="_blank">CirnoNoir 发表于 2024-5-7 18:48</a>
+简单去东线试了下，都是正&amp;#x9 ...</blockquote>
+听起来感觉被电喷爆鲨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  风萧飒  
+##### 4415#       发表于 2024-5-7 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842806&amp;ptid=2170852" target="_blank">CirnoNoir 发表于 2024-5-7 18:48</a>
+简单去东线试了下，都是正&amp;#x9 ...</blockquote>
+刚才试了试护卫打脚下还是能一枪秒杀（其实之前打头就秒不了），指挥官试了会结果刷不出来了，不知道是什么bug
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

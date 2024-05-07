@@ -15142,3 +15142,20 @@ atat呢（
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 可以的
 
+
+*****
+
+####  looptube  
+##### 4419#       发表于 2024-5-7 20:17
+
+个人任务那块好像没有修复，队友的飞鹰机枪击杀还是算在我的任务里了
+
+*****
+
+####  IWS2000  
+##### 4420#       发表于 2024-5-7 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64843764&amp;ptid=2170852" target="_blank">looptube 发表于 2024-5-7 20:17</a>
+个人任务那块好像没有修复，队友的飞鹰机枪击杀还是算在我的任务里了</blockquote>
+一个人完成队伍4人都算完成
+

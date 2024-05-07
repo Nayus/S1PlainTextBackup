@@ -495,3 +495,11 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 这取决于二周目还有多少好看衣服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  你不会没有吧  
+##### 1525#       发表于 2024-5-7 15:34
+
+这炮台真烦啊，怎么还带溅射伤害的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

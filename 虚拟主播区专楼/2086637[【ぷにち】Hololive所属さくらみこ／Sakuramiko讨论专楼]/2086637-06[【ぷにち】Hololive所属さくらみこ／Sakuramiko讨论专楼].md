@@ -6502,3 +6502,19 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 7大豆有想和其他人一起玩
 
+
+*****
+
+####  holoan  
+##### 8757#         楼主| 发表于 2024-5-7 22:15
+
+<img src="https://img.saraba1st.com/forum/202405/07/221354gd88gmgccjhp27v2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 22:13 上传
+
+还好miko没看到这条SC，就你这机翻水平都不如的乱七八糟拼接出来的文字就这还想做二手屎给4V的观众看？感觉真可怜
+

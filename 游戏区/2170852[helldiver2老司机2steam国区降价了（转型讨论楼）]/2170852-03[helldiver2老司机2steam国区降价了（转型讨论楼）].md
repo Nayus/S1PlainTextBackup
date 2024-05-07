@@ -15175,3 +15175,11 @@ atat呢（
 
 既然现在dot伤害修了，建议把爆裂铳直接改成火焰或者毒气铳算了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  looptube  
+##### 4423#       发表于 2024-5-7 22:09
+
+现在基本人人火喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

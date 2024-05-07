@@ -12501,3 +12501,117 @@ galgame op
 曲风像gal曲，静止画mv更像gal风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 作者有没马甲写gal曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超法拉  
+##### 4180#       发表于 2024-5-7 22:06
+
+可奈，原来你还有个远方亲戚啊
+
+*****
+
+####  darkendless  
+##### 4181#       发表于 2024-5-7 22:06
+
+很王道，虽然声优有点顶不上去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大贺美沙知  
+##### 4182#       发表于 2024-5-7 22:07
+
+不错，给我听起来很舒服
+
+*****
+
+####  ViviR  
+##### 4183#       发表于 2024-5-7 22:07
+
+挺王道感的。但能不能不要每次都让我这个不懂声乐的人都能听出来vo欠佳啊…
+
+*****
+
+####  rgauss  
+##### 4184#       发表于 2024-5-7 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844846&amp;ptid=2130897" target="_blank">超法拉 发表于 2024-5-7 22:06</a>
+可奈，原来你还有个远方亲戚啊</blockquote>
+能吃九层松饼吗 就亲戚了（）
+
+*****
+
+####  Swss  
+##### 4185#       发表于 2024-5-7 22:07
+
+奶油糖显得格外纯良，虽然还是写了一段唱不上去的高音<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 4186#       发表于 2024-5-7 22:07
+
+伴奏确实很有op味
+
+人声有股夹子管人味，虽然都没看过管人
+
+*****
+
+####  Achlys  
+##### 4187#       发表于 2024-5-7 22:09
+
+maybe must be到ほらね、飛べるんだ那段转折确实有点怪？第一次副歌那有几次类似的节奏听上去总感觉有点生硬。
+
+但自己是木耳也不怎么听得懂为啥。
+
+声音可爱，阳光向上的歌词很舒服，しゅき<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 4188#       发表于 2024-5-7 22:09
+
+可能2dmv用的人声基本上也是游戏内的版本吧。到时候cd出来后修修修。
+
+*****
+
+####  野菜一日分  
+##### 4189#       发表于 2024-5-7 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头部分是真的很像时下的萌系黄油...话说这歌词的部分是不是太密了，副歌又高又长现场估计挺难的
+
+
+*****
+
+####  witchverr  
+##### 4190#       发表于 2024-5-7 22:12
+
+好正常的曲子（和之前几首相比），vo力感觉还可以提升一下
+
+*****
+
+####  rslika  
+##### 4191#       发表于 2024-5-7 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家日本原神日活几十万怎么碰啊
+
+很不奶油糖的一首，挺有意思
+
+*****
+
+####  raimouse  
+##### 4192#       发表于 2024-5-7 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉跟luna say mabe一样是个好曲子
+
+但是声优驾驭不了
+
+莉莉娅声音挺欢快的，跟曲子算搭了，可惜唱不动的感觉
+
+*****
+
+####  Kreis  
+##### 4193#       发表于 2024-5-7 22:16
+
+为难声优了，对比之下烤的声优都真能唱啊
+

@@ -12158,3 +12158,153 @@ https://www.bilibili.com/video/BV1NP4y1R7a5/ ...</blockquote>
 
 小黄重力展开
 
+
+*****
+
+####  l3r0nY@  
+##### 4158#       发表于 2024-5-7 14:58
+
+花海咲季：
+
+导演：flapper3所属 倉島伶 [https://twitter.com/krei_krei_krei](https://twitter.com/krei_krei_krei)
+
+<img src="https://img.saraba1st.com/forum/202405/07/142824vvpdd5mbsu9nbwun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:28 上传
+
+插画：村カルキ [https://twitter.com/murakaruki](https://twitter.com/murakaruki) 画集「我」[https://www.bilibili.com/video/BV1bb421Y7m3/](https://www.bilibili.com/video/BV1bb421Y7m3/)
+
+平面设计：岩佐トモタカ [https://twitter.com/iwstmtk](https://twitter.com/iwstmtk)
+
+<img src="https://img.saraba1st.com/forum/202405/07/143021znogr5czzr05covw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (294.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/143038dy4f8guuma4lx8fg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (666.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/143045bjyyju8loy8xljqo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (624.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/143057unk12npqsnvkv4rv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (609.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:30 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/143437u9valt2v9ik2l9kc.jpg" referrerpolicy="no-referrer">
+
+<strong>D3C88CAB10413A73320A744AD12BD4DA.jpg</strong> (219.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:34 上传
+
+月村手毬：
+
+导演插画：萩森じあ [https://twitter.com/jirujiaru826](https://twitter.com/jirujiaru826)
+
+动画：MAPPA原画 庄一 [https://twitter.com/souitiroukirari](https://twitter.com/souitiroukirari)
+
+<img src="https://img.saraba1st.com/forum/202405/07/144303p57x4dlmzxn4cmx5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:43 上传
+
+藤田琴音：
+
+导演：安村俊介 [https://twitter.com/Syun_blocks](https://twitter.com/Syun_blocks) 
+
+插画动画：△崎 [https://twitter.com/s_sk_1875](https://twitter.com/s_sk_1875) 
+
+信号灯三个还真挺大手笔的（
+
+紫云清夏：
+
+插画：やまはる [https://twitter.com/Ymhr_im](https://twitter.com/Ymhr_im) 看起来是新创的号
+
+<img src="https://img.saraba1st.com/forum/202405/07/145035zzm1f1xq2j00h0xx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (163.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:50 上传
+
+姬崎莉波：导演：こんぶ [https://twitter.com/Siokonbu_dashi](https://twitter.com/Siokonbu_dashi)
+
+插画：はまふぐ [https://twitter.com/hamafugu](https://twitter.com/hamafugu)
+
+平面设计：玉野ハヅキ [https://twitter.com/p_a_r_a_l_l_e_l](https://twitter.com/p_a_r_a_l_l_e_l)
+
+<img src="https://img.saraba1st.com/forum/202405/07/141517a93x22a18vk9rjvk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (313.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:15 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/141534dhac7g898oa7ysu5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (334.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:15 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/141539khgrfne1nwop27pp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (253.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:15 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/141545jikf4b101z0shf1p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (468.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:15 上传
+
+筱泽广：
+
+导演：植草航 [https://twitter.com/WATARU336](https://twitter.com/WATARU336)  FLKL Alternative 和 PUNCH LINE 的OPED分镜演出作画 确实和符合这个MV表现的调性（
+
+<img src="https://img.saraba1st.com/forum/202405/07/145418lfaxhhddaxdkcncl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 14:54 上传
+
+动画：酒井浩史、フジシマケイ [color=var(--t)][backcolor=var(--bg)]https://twitter.com/Fujishima_KEI
+
+[color=var(--t)][backcolor=var(--bg)]道具背景：[backcolor=var(--bg)]ひかがみひなみ [color=var(--t)][backcolor=var(--bg)]https://twitter.com/moucou
+

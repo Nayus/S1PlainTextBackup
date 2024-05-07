@@ -14939,3 +14939,20 @@ dot和瞄具终于修了<img src="https://static.saraba1st.com/image/smiley/face
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经看到火喷砍成滋水枪的“平衡”了
 
+
+*****
+
+####  DawnGuardian  
+##### 4397#       发表于 2024-5-7 17:23
+
+dot伤害真的修好了吗？有没有什么测试一下？我对箭头的技术实力真的不抱任何期望来自: iPhone客户端
+
+*****
+
+####  风萧飒  
+##### 4398#       发表于 2024-5-7 17:24
+
+爆弹移除弹片但是增加40爆炸伤害，150→190
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

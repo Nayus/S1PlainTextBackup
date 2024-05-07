@@ -12346,3 +12346,23 @@ https://www.bilibili.com/video/BV1NP4y1R7a5/ ...</blockquote>
 
 就现在几十万的播放量连prsk的脚后跟都摸不到，还要斗虫吗？看看什么时候破百万吧。虽然目前来看播放量万代是不打算买了，红蓝大概和其他七人断层，最有机会破百万的
 
+
+*****
+
+####  cckuku  
+##### 4163#       发表于 2024-5-7 17:18
+
+hw:我给pjsk写的歌有200万播放，建议你们反思。
+
+虽然200万播放在pjsk也属于拉中之拉就是了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Achlys  
+##### 4164#       发表于 2024-5-7 17:24
+
+啤酒烧烤居然那么火的，都能网络播放上百万也挺不得了了。反而感觉自己平时这几个音游里面听到pjsk的次数不怎么多...
+
+俗话说得好，斗草履虫也是斗虫，小偶像菜一点也是能斗的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

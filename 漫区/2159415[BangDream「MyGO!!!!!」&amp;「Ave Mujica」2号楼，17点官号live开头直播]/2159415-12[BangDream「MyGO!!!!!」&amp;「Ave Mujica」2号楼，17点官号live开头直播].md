@@ -4306,3 +4306,32 @@ MV突袭给b号运营干蒙了，说好的洗脚婢怎么突然有东西，本�
 祥子的口味还真是一直没变，都喜欢儿拉梦主唱</blockquote>
 最搞的應該是李子早在2020年就自稱最愛自尊心高的角色，而祥子性格特點……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16676#       发表于 2024-5-7 17:17
+
+次週 1799
+
+累計 8372
+
+<img src="https://img.saraba1st.com/forum/202405/07/171642w6lrls6a4zcimc1c.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (193.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 17:16 上传
+
+*****
+
+####  skives  
+##### 16677#       发表于 2024-5-7 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64841668&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-7 17:17</a>
+次週 1799
+
+累計 8372</blockquote>
+3rd赶紧去东京花园剧场吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

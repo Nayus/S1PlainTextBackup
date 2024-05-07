@@ -1023,3 +1023,42 @@ austin只留了部分人，不知道是不是填充到阿肯里昂去做刀锋�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MobyDickStudio  
+##### 114#       发表于 2024-5-8 00:19
+
+微软把所有b社旗下其它的工作室都解散了得了，反正毫无区别<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ybfelix  
+##### 115#       发表于 2024-5-8 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845375&amp;ptid=2182889" target="_blank">chdhdhd 发表于 2024-5-7 22:45</a>
+ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编后没有高光，多半是一样结局了
+
+不太懂版权，如 ...</blockquote>
+有多少人真的很期待这个地刃来着.. 感觉神经病主角又不是什么很大的商业卖点，游戏性本身看起来又没有多么进化
+
+*****
+
+####  Q版胖子  
+##### 116#       发表于 2024-5-8 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846264&amp;ptid=2182889" target="_blank">ybfelix 发表于 2024-5-8 00:20</a>
+
+有多少人真的很期待这个地刃来着.. 感觉神经病主角又不是什么很大的商业卖点，游戏性本身看起来又没有多 ...</blockquote>
+用屁股想想能吹这游戏的也就豆瓣的女拳，吹一手坚强独立大女主精神病不媚男
+
+有男友？死得好，不死怎么凸显女主坚强独立
+
+
+*****
+
+####  FROM-SOFTWARE  
+##### 117#       发表于 2024-5-8 00:27
+
+地刃怎么看也不想能赚钱的货，甚至即使高分都未必能赚口碑。指望神经病还不如指望印第安纳琼斯靠谱呢。
+

@@ -14888,3 +14888,54 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 软骨头是有等级的，看到许多1级的用龟男骂</blockquote>
 那100%是来带节奏的。龟男比软骨头难听而且有一层对立的含义。
 
+
+*****
+
+####  Launce  
+##### 4393#       发表于 2024-5-7 17:06
+
+Enemies
+
+Increased Shrieker sight and hearing range slightly.
+
+Increased Gunship hearing range slightly.
+
+onp，真滴np
+
+
+*****
+
+####  Launce  
+##### 4394#       发表于 2024-5-7 17:11
+
+我们修复了 "DOT "效果的应用方式问题。这将修复只有网络会话所有者才能应用DOT的问题，以及其他DOT不一致的情况。
+
+在穿戴护盾背包时发射惩罚者等离子不再对潜兵造成伤害
+
+修复了某些武器瞄准镜在第一人称视角下无法对齐的问题。
+
+刺激时的声音在被打断时不再响起
+
+带有 "击杀任务 "的主要命令现在可以正确跟踪得分。以前，它会为每个玩家计算一次整个小队的击杀数，这意味着分数会乘以任务中的人数；现在这种情况已得到修正。
+
+在 "部落防御任务 "中，潜兵不再能降落在高高的岩石上
+
+在 "解除终结者控制系统 "任务中，潜兵无法再降落在虫柱顶端
+
+修复了当潜兵在准备就绪之前离开会话，然后又加入活动会话时，增援策略不存在的问题
+
+
+*****
+
+####  FLZB  
+##### 4395#       发表于 2024-5-7 17:14
+
+dot和瞄具终于修了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4396#       发表于 2024-5-7 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经看到火喷砍成滋水枪的“平衡”了
+

@@ -563,3 +563,11 @@ Concept art wallpaper from the early days of EVE💕
 不是记机器上的罐头编号</blockquote>
 哦 重新搜了下eurogamer的攻略是按编号来的 确实方便多
 
+
+*****
+
+####  operatbig  
+##### 1531#       发表于 2024-5-8 02:52
+
+感觉打了快一半了，觉得这游戏挺平庸的，优点就只有地图收集探索量大和人物了。
+

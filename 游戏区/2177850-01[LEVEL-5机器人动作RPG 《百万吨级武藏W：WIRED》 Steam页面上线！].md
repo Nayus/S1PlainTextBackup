@@ -60,3 +60,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖塔魔神那些联动机我看别人评论说没有超级传说品质的导致没法用到终盘，光是同主线肯定是够的
 
+
+*****
+
+####  alecwong  
+##### 66#       发表于 2024-5-7 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">谢谢，那太好了
+

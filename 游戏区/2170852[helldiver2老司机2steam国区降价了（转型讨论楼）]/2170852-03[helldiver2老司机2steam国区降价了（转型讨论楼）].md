@@ -14582,3 +14582,14 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 又是虫子任务，但东线几个星区又是零零散散每个星区几千人做无用功，即便这几天闹得最火热的时候也有这么些人，不知道他们在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 4362#       发表于 2024-5-7 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64832958&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-6 23:03</a>
+
+其实早做完了，发售前的pv就已经展示了驱逐舰6级升级，现在就是藏着内容等剧本，起码够他更新一年 ...</blockquote>
+应该是只有建模部分做完了，实际效果可能还没做或者还没设计
+

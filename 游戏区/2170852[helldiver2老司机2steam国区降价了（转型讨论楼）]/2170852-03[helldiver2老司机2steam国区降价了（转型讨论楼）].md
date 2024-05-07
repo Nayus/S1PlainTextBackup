@@ -14767,3 +14767,23 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 你觉得你索对第二方会没有这点管控权吗？</blockquote>
 我知道第一方和第三方，这第二方是什么意思
 
+
+*****
+
+####  bobsaint  
+##### 4381#       发表于 2024-5-7 13:29
+
+估计下次就是给甜头 让玩家绑来分化玩家
+
+—— 来自 realme RMX3700, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wthall  
+##### 4382#       发表于 2024-5-7 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64837964&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-5-7 12:39</a>
+
+我知道第一方和第三方，这第二方是什么意思</blockquote>
+就这个HD2这种的，索尼出钱出人让这个公司帮他出一个游戏，这就叫第二方
+

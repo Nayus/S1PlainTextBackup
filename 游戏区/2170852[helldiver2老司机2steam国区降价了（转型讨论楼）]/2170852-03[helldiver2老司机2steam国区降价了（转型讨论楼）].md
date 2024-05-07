@@ -15209,3 +15209,11 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新包那三坨除非加中穿不然没法救吧，都太幽默了，还是让我们把目光投向6月份的债券吧
 
+
+*****
+
+####  ykyin09  
+##### 4427#       发表于 2024-5-7 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是真不懂在一个pve游戏里削弱武器搞所谓平衡的意义在哪，除了恶心玩家还有什么作用来自: iPhone客户端
+

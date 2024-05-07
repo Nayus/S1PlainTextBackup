@@ -12730,3 +12730,26 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 这歌配器换一下糖味还是很足的，和美波曲一样弦乐有点打架，不过这两首都很对我胃口，能不能重编一下让作曲本家发啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 4207#       发表于 2024-5-7 23:08
+
+说实话刚开始公布这个企划的时候，我确实没想到日后需要担心歌力的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hlazd  
+##### 4208#       发表于 2024-5-7 23:11
+
+好正常的歌啊
+
+*****
+
+####  a85982313  
+##### 4209#       发表于 2024-5-7 23:12
+
+换个人唱这个时候会好不少吧
+

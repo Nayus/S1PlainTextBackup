@@ -761,3 +761,36 @@ arkane这边红霞岛实在过于离谱，共情不了一点
 反正prey的核心也早就跑路了，之前看mca也在跟他们混。
 希望有生之年能看到软软枪毙BGS<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三尖酸努努  
+##### 85#       发表于 2024-5-7 23:09
+
+prey2这下没了。为啥tango也关啊，hifi-rush不好吗
+
+*****
+
+####  电磁炮233  
+##### 86#       发表于 2024-5-7 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845614&amp;ptid=2182889" target="_blank">199april 发表于 2024-5-7 23:07</a>
+所以战争机器和神鬼寓言不重启一下？</blockquote>
+这俩不都难产了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Junakr  
+##### 87#       发表于 2024-5-7 23:12
+
+十年后我能看到 Prey（2006）的 IP 继承者 Prey（2017）的 Prey 精神续作吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  acg_gyanc  
+##### 88#       发表于 2024-5-7 23:13
+
+话说从这个结果倒回去想，微软是不是一早就想把tango关了？当时hifirush可是一点宣发都没有直接就甩了出来上xgp，如果从这个方面去想好像也能解释得通了，反正都是决定要关了也懒得去做宣发了，结果hifirush口碑爆棚反而是一个意外。当然如果真的是这样，那就再一次验证了那一句话“微软最大的问题就是没有品味”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

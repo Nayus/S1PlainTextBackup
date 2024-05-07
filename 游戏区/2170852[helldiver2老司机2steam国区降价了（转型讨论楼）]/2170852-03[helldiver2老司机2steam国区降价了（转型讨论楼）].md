@@ -14666,3 +14666,14 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 我发现现在爆裂铳的爆炸还是会把小怪尸体往中间吸，只是不吸玩家了，真没看懂这是什么bug
 
+
+*****
+
+####  Launce  
+##### 4371#       发表于 2024-5-7 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836102&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-7 10:24</a>
+
+我发现现在爆裂铳的爆炸还是会把小怪尸体往中间吸，只是不吸玩家了，真没看懂这是什么bug ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看下别的战备爆炸物？也是这么吸尸体的话大概率就是粗暴的给玩家加了个TAG，专门变成炸飞该TAG物体
+

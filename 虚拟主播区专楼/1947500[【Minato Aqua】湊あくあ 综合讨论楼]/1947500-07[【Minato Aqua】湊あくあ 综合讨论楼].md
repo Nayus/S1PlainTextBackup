@@ -152,3 +152,33 @@
 
 卧槽，还能就差一步的吗
 
+
+*****
+
+####  星の守  
+##### 9757#       发表于 2024-5-7 22:18
+
+居然平手改天再战，同时掉落这同步率有点高，不过兔子运气比较好卡在中间了
+
+*****
+
+####  离魂仙  
+##### 9758#       发表于 2024-5-7 22:20
+
+夸的应战很勉强啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想逃，被配信达人架住了
+
+*****
+
+####  zpy393  
+##### 9759#       发表于 2024-5-7 22:23
+
+都连播多少天了，破纪录了！本来明天想休息这下不得不播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9760#       发表于 2024-5-7 22:25
+
+凛子小姐的抗压懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -225,3 +225,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">还在清马桶的动力就是还没拿到无外流
 
+
+*****
+
+####  垃圾网站上  
+##### 3166#       发表于 2024-5-7 22:19
+
+这游戏在一些奇怪的地方做得莫名的细致，那个英国的精日翻译可以泡，第一次满好感，是他主动跟你告白的，然后我分手，第二次再谈就是主角告白，台词完全不一样，不知道其他人有没有
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

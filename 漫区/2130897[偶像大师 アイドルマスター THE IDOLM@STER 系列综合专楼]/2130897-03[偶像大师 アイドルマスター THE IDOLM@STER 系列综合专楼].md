@@ -12780,3 +12780,23 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 平心而论烤就没开几次live，大多数live还是类似魔法未来那样的全息投影，好不容易声优来现地还会开很大垫音，声优能力再强也体现不出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 只能说烤跟其他二偶企划就不是一个赛道的，更注重推虚拟角色，至于声优就让其回归本质当个配音员<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 4213#       发表于 2024-5-8 03:48
+
+术力口本身就是个网红玩意没想到竟然会有人主动跑去和烤比播放量，我还以为普罗丢人会用付费率狠狠看不起烤呢
+
+
+*****
+
+####  Seeley  
+##### 4214#       发表于 2024-5-8 03:52
+
+ 本帖最后由 Seeley 于 2024-5-8 03:54 编辑 
+
+这个歌力，真的没问题嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉歌挺好的，声线也挺好的，就是这个演唱水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -15332,3 +15332,11 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 平衡还是要的，初期全员雌鬼META说实话真的没啥意思。问题还是在于箭头的平衡标准，强度只是将将够有就要 ...</blockquote>
 要平衡的应该是敌人，不是武器<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">箭头要是搞个特定星球会刷特定敌人的设计，比如火焰星球的虫子火抗高但没有重甲，极寒星球的虫子甲厚但怕电，植被星球的虫子怕火但机动性高，玩家就不用煞费苦心每次出击都要特地带meta装备，箭头搞平衡也就省点心了
 
+
+*****
+
+####  6x6z6w  
+##### 4438#       发表于 2024-5-8 03:49
+
+喜讯，Spitz被箭头开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来CEO觉得还是要杀鸡儆猴才能给玩家一个交代
+

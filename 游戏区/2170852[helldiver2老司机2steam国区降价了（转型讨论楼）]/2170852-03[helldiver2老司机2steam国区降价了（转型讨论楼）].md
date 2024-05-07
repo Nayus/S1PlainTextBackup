@@ -14609,3 +14609,15 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼发了公告退款就没有基础了，当然不给退了
 
+
+*****
+
+####  Launce  
+##### 4365#       发表于 2024-5-7 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64835126&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-7 08:57</a>
+
+索尼发了公告退款就没有基础了，当然不给退了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没赶上第一波抽奖，后面的好像直接客服统一暂挂处理了
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">好气哦，我还是喜欢索尼面对主机玩家桀骜不驯的样子
+

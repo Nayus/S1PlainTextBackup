@@ -1198,3 +1198,11 @@ Tango真的可惜了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ab20000801  
+##### 132#       发表于 2024-5-8 04:03
+
+笑死了，国外一群人开始要抵制取消xgp了，因为前几天psn那事尝到了甜头，但是微软这个明显是不可逆的吧
+

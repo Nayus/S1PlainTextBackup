@@ -15340,3 +15340,13 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 
 喜讯，Spitz被箭头开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来CEO觉得还是要杀鸡儆猴才能给玩家一个交代
 
+
+*****
+
+####  ab20000801  
+##### 4439#       发表于 2024-5-8 04:05
+
+<blockquote>6x6z6w 发表于 2024-5-8 03:49
+喜讯，Spitz被箭头开了看来CEO觉得还是要杀鸡儆猴才能给玩家一个交代</blockquote>
+这笔明显是被sie那边压力了吧，这货在dc群让玩家去sie那边打差评，一群和hd2完全无关的索尼那边的活动也被爆破了，不被开除怎么可能...
+

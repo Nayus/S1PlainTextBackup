@@ -437,3 +437,11 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 1.0不会绝版了吧</blockquote>
 那楼主也没有说自己是不是断网安装的，没断网的话装的时候就会自动变成1.002版了
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1519#       发表于 2024-5-7 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一周目打到准备去找摩托，看奖杯，营地84/89，一查最终战就两个营地了，怀疑9号漏了，痛苦
+

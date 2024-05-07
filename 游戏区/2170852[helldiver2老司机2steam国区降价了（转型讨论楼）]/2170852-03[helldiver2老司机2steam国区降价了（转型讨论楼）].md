@@ -14711,3 +14711,14 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼情报站，discord那帮社区管理还在整烂活啊
 
+
+*****
+
+####  Launce  
+##### 4375#       发表于 2024-5-7 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836681&amp;ptid=2170852" target="_blank">白昼梦 发表于 2024-5-7 11:03</a>
+
+看了眼情报站，discord那帮社区管理还在整烂活啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然情报站转CM烂活很靓仔，但是当🔒🐶打滚确实很狼狈
+

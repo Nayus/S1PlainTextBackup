@@ -11961,3 +11961,13 @@ mv很有特色喜欢
 
 话说小黄果然是真女主啊，这待遇
 
+
+*****
+
+####  伊布桑  
+##### 4147#       发表于 2024-5-7 11:10
+
+光景这曲子真不错啊，就是听起来完全不像是偶像企划出来的歌，感觉比起人声更重伴奏，live现场也只能想象得到大概是站栋输出（这下符合人设了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

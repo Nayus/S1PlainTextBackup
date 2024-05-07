@@ -12411,3 +12411,13 @@ hw:我给pjsk写的歌有200万播放，建议你们反思。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Giga和美波能不能说，你别管声优能不能唱，金主看我们有没有拿钱办事吧
 
+
+*****
+
+####  raimouse  
+##### 4169#       发表于 2024-5-7 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚好今天pjsk也是新歌《烈火》
+
+VO力就明显比学马好一截<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

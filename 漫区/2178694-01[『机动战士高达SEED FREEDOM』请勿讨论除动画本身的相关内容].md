@@ -9334,3 +9334,13 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 767#       发表于 2024-5-7 14:50
+
+又有新的烂活，官方别太恨c了。
+
+如果说这其中没有ft的手笔，那我肯定是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -975,3 +975,41 @@ bungie开掉那大部分都是营销和社区团体，反正我fo的好几个喜
 
 唉，最近Arkane真的是太拉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Q版胖子  
+##### 109#       发表于 2024-5-8 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845846&amp;ptid=2182889" target="_blank">FROM-SOFTWARE 发表于 2024-5-7 23:30</a>
+
+忍者理论其实还有个bleeding edge的，只不过褒姒的你都完全没印象。</blockquote>
+那个肥婆我有印象
+
+*****
+
+####  sandro  
+##### 110#       发表于 2024-5-8 00:03
+
+巨硬现在是all in ai其他随便瞎搞了？
+
+*****
+
+####  herryk159  
+##### 111#       发表于 2024-5-8 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没把343砍了，让id去做光环算了
+
+*****
+
+####  zid99825  
+##### 112#       发表于 2024-5-8 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845808&amp;ptid=2182889" target="_blank">canti 发表于 2024-5-7 23:26</a>
+赌五毛下一个忍者理论，18年收购24年才有作品产出，主创发布前离职，debuff上满了
+
+—— 来自 S1Fun ...</blockquote>
+那人收购后就跑路到处玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哪是现在的事情
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

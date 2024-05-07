@@ -1206,3 +1206,27 @@ Tango真的可惜了
 
 笑死了，国外一群人开始要抵制取消xgp了，因为前几天psn那事尝到了甜头，但是微软这个明显是不可逆的吧
 
+
+*****
+
+####  lucky95  
+##### 133#       发表于 2024-5-8 05:56
+
+这xgp值多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真不知道请人多贵吗
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 134#       发表于 2024-5-8 05:58
+
+巨硬的问题是没有实际方向
+买了这么多工作室却挤不出游戏出来
+
+索尼可是能稳定每年拿出一款8-9分大作，更别提任地狱
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

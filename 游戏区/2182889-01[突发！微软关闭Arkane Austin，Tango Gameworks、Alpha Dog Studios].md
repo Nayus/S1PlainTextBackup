@@ -833,3 +833,60 @@ ea算个勾巴工作室杀手，真杀手害得看我们微软
 
 恶灵和Prey续作还是有可能的，IP还在找其他工作室代工就行了
 
+
+*****
+
+####  FROM-SOFTWARE  
+##### 94#       发表于 2024-5-7 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845808&amp;ptid=2182889" target="_blank">canti 发表于 2024-5-7 23:26</a>
+
+赌五毛下一个忍者理论，18年收购24年才有作品产出，主创发布前离职，debuff上满了
+
+—— 来自 S1Fun ...</blockquote>
+忍者理论其实还有个bleeding edge的，只不过褒姒的你都完全没印象。
+
+*****
+
+####  哈罗  
+##### 95#       发表于 2024-5-7 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845816&amp;ptid=2182889" target="_blank">BadYanL 发表于 2024-5-7 23:27</a>
+
+恶灵和Prey续作还是有可能的，IP还在找其他工作室代工就行了</blockquote>
+要是微软认为这些ip有价值，就不会关闭工作室了
+
+
+*****
+
+####  chdhdhd  
+##### 96#       发表于 2024-5-7 23:36
+
+<blockquote>Dai-Dai-Dai-Dai 发表于 2024-5-7 22:49
+对一个zzzq公司（应该说是更进一步的，以zzzq为卖点）有所期待你也是奇怪，而且有zzzq的buff不容易没吧， ...</blockquote>
+对他们没啥期待，所以以地狱之刃2不行为前提假设
+
+曾经确实对这个组有曾一点好感，主要是感觉难得西方有小组会有心耕耘动作内容，即使地狱之刃1，对我来说也感觉还算有心思去做动作
+
+血边和地狱之刃2，动作部分没沉淀没追求，反而大搞woke，我就已经承认看走眼
+
+小写鬼泣我不算多喜欢，但也不讨厌，虽然现在和死了没分别，但彻底确定不可能有续是不同情况，所以有一点关心怎么算
+
+*****
+
+####  canti  
+##### 97#       发表于 2024-5-7 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845846&amp;ptid=2182889" target="_blank">FROM-SOFTWARE 发表于 2024-5-7 23:30</a>
+忍者理论其实还有个bleeding edge的，只不过褒姒的你都完全没印象。</blockquote>
+艹，你不说我还真不记得了，查了一下才想起来还有这么个游戏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卡拉德利姆  
+##### 98#       发表于 2024-5-7 23:37
+
+笑死，软驱去年问就是我们也有hifirush这种高质量游戏未来可期，现在立马一转这个也是褒姒货，能不能至少表现的伤心一点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

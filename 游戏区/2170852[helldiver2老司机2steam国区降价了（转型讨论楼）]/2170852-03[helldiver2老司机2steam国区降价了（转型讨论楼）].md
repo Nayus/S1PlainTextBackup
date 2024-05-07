@@ -15238,3 +15238,17 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 反正我是真不懂在一个pve游戏里削弱武器搞所谓平衡的意义在哪，除了恶心玩家还有什么作用 ...</blockquote>
 新内容产能跟不上就玩朝三暮四保持新鲜感？
 
+
+*****
+
+####  ravend233  
+##### 4430#       发表于 2024-5-7 23:29
+
+平衡肯定是要平衡的，不然面多加水水多加面
+
+但是箭头的平衡对游戏的理解确实很抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这连续两刀把一个强势武器砍成废物颇有隔壁白毛子的风味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

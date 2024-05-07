@@ -1187,3 +1187,14 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 上周是索尼作妖，这周轮到微软了是吧期待下周EA也整点活出来</blockquote>
 索尼是恶心别人啊，微软从年初动暴大裁员、2月份跨平台风波、5月关Tango和阿肯奥斯汀，都是精准恶心自己员工和粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trentswd  
+##### 131#       发表于 2024-5-8 03:01
+
+不知道怎么说，吹斯宾塞的风气仿佛还是昨天，是从什么时候开始风向变了的呢？对我来说是星空吧
+Tango真的可惜了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

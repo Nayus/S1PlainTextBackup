@@ -13465,3 +13465,11 @@ w5 平潮
 
 看了一眼奶狗拉直播，太可怕了什么绕后审查者，太强了
 
+
+*****
+
+####  藏獒·烨  
+##### 4311#       发表于 2024-5-8 03:01
+
+除了打工从来没用过伞结果伞活动里打出最高战力，这就是新手buff吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

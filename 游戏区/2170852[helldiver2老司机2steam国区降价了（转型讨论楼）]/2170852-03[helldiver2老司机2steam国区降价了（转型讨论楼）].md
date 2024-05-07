@@ -15115,3 +15115,30 @@ atat呢（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  chgzzl  
+##### 4416#       发表于 2024-5-7 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">修复了爆裂铳能用的BUG，原来伤害都靠破片AOE 现在没有破片一发过去什么都打不掉了，上弹本来就慢 这下彻底废物了
+
+*****
+
+####  IWS2000  
+##### 4417#       发表于 2024-5-7 18:58
+
+还不如改成小反器材，去西线玩了一下反器材有点爽
+
+
+*****
+
+####  山风短  
+##### 4418#       发表于 2024-5-7 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842582&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-5-7 18:27</a>
+爆裂铳现在还能炸据点吗
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+可以的
+

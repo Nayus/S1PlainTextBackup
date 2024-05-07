@@ -11868,3 +11868,31 @@ mv很有特色喜欢
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  achilleus  
+##### 4137#       发表于 2024-5-7 09:17
+
+说到豪哥，其实 太陽のジェラシー 已经很迁就声优了，刚出道的nu现场就很稳了，10th时还带着先生唱了回<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰与火的协奏曲  
+##### 4138#       发表于 2024-5-7 09:19
+
+升天了，好爽的乐器<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anatoly  
+##### 4139#       发表于 2024-5-7 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64835267&amp;ptid=2130897" target="_blank">fgyy2003 发表于 2024-5-7 09:13</a>
+
+—— 来自 S1Fun</blockquote>
+居然是请在T台上微笑的作者
+
+（藤田好像还没请在T台上微笑的女主高，虽然行当差多了
+

@@ -7855,3 +7855,13 @@ A2A8F0C6-6A18-4917-BE86-E608A2A2950D.jpeg
 
 <img src="https://img.saraba1st.com/forum/202405/07/082605nvut2teq0wgg7sv2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12720#       发表于 2024-5-7 09:28
+
+去年说法是魔夜2要做也不做AVG了，跟在本篇的剧场版后面做动画
+
+然而本篇的剧场版动画难产是导致今年联动空降的原因不是么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1130,3 +1130,16 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 
 曼联还好，至少还有英力士可以开除管理层，微软管理层我看只能等彻底烂掉了……
 
+
+*****
+
+####  Piano-Forest  
+##### 126#       发表于 2024-5-8 01:36
+
+<img src="https://p.sda1.dev/17/ebf43c965aad3771fd8a0986539127e3/20240508_013442.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/27ca901a7a928fdf95a3cba5c8633981/Screenshot_2024-05-08-01-35-06-970_com.twitter.android-edit.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/d32bbf1c1a895679f16a4d8427717fc4/20240508_013535.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/17d6b390b0ead7fad9fef1461810bfab/20240508_013536.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/a33422659d237bc2fb33a0b4434ec2a0/20240508_013537.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/ef3d0791499e2f4bdc1b1d8692eb3102/20240508_013538.jpg" referrerpolicy="no-referrer">
+

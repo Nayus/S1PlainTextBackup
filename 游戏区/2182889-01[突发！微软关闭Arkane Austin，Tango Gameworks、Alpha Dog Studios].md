@@ -1176,3 +1176,14 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 
 2024-5-8 02:19 上传
 
+
+*****
+
+####  ultraseven  
+##### 130#       发表于 2024-5-8 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846788&amp;ptid=2182889" target="_blank">6x6z6w 发表于 2024-5-8 01:57</a>
+
+上周是索尼作妖，这周轮到微软了是吧期待下周EA也整点活出来</blockquote>
+索尼是恶心别人啊，微软从年初动暴大裁员、2月份跨平台风波、5月关Tango和阿肯奥斯汀，都是精准恶心自己员工和粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

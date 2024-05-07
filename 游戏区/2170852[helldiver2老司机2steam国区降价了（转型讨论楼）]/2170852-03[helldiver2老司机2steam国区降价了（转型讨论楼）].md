@@ -14730,3 +14730,11 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 怎么这就不能退了，师傅我还没上车
 
+
+*****
+
+####  白昼梦  
+##### 4377#       发表于 2024-5-7 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我被驳回三次，之后一觉醒来就是索尼回旋了
+

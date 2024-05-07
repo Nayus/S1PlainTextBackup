@@ -12393,3 +12393,21 @@ hw:我给pjsk写的歌有200万播放，建议你们反思。
 
 看歌词PV是一刀没剪，Bメロ转副歌这段有点怪，就看奶油糖经典落ちサビ能不能救一下了。
 
+
+*****
+
+####  840266848  
+##### 4168#       发表于 2024-5-7 19:09
+
+<img src="https://img.saraba1st.com/forum/202405/07/190307ac9952psssazoazj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240507190210.png</strong> (180.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 19:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一下hw这首的确是角色人气都救不了的口水歌，手毬这首MV画得有点强哪天估计就超过咲季MV了，虽然就几十万播放
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Giga和美波能不能说，你别管声优能不能唱，金主看我们有没有拿钱办事吧
+

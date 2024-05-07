@@ -546,3 +546,31 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 全是紧身衣看腻了，还是小短裙加绝对领域对味
 
+
+*****
+
+####  嘉术2015  
+##### 44#       发表于 2024-5-7 20:14
+
+从两管到一管，谭友的身体状况令人堪忧
+
+*****
+
+####  Licheus  
+##### 45#       发表于 2024-5-7 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64839313&amp;ptid=2182820" target="_blank">Rushtime33 发表于 2024-5-7 14:39</a>
+伊芙这个人设单拿出来远没有2b出彩了，记忆点有点少，还是得放在游戏里。
+
+—— 来自 S1Fun ...</blockquote>
+有设计没概念是这样的呀。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hkguty  
+##### 46#       发表于 2024-5-7 20:16
+
+2b主要是普及率高，任何人只要带上眼罩只要不是身材差太远都能有八分像
+

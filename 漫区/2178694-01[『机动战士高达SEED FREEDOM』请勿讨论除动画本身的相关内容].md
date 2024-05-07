@@ -9322,3 +9322,15 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 官方这操作是真的不怕死，基拉生日把黄毛叫过去
 
+
+*****
+
+####  shiko  
+##### 766#       发表于 2024-5-7 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64803801&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-5-4 00:28</a>
+上映前的声优访谈说是种命最终战整什么人性战胜基因导致当年很多观众不满，福田不服气就来个更易懂的爱战 ...</blockquote>
+啊？种命结局不是基因更牛逼的一方赢了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

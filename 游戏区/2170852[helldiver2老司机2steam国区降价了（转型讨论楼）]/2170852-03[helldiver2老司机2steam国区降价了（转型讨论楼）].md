@@ -15252,3 +15252,13 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  BadYanL  
+##### 4431#       发表于 2024-5-7 23:41
+
+箭头平衡的理念还是很好读懂的，无非是不希望有太全面的武器，玩家是填线宝宝，不是士官长独当一面，鼓励配合
+
+问题是箭头菜，下手不知轻重
+

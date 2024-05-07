@@ -890,3 +890,80 @@ ea算个勾巴工作室杀手，真杀手害得看我们微软
 
 笑死，软驱去年问就是我们也有hifirush这种高质量游戏未来可期，现在立马一转这个也是褒姒货，能不能至少表现的伤心一点<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ckseng  
+##### 99#       发表于 2024-5-7 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845526&amp;ptid=2182889" target="_blank">shamanda 发表于 2024-5-7 22:58</a>
+
+嗯？zenimax？那我老滚ol是不是可以有点起色了。</blockquote>
+老滚ol不是被放置play有几年了？记得说团队在做新ip的mmo
+
+*****
+
+####  zzf111  
+##### 100#       发表于 2024-5-7 23:38
+
+幽灵线除了不好玩以外还是给过我很长时间享受游戏的快乐的，hifirush做得又近年游戏业界少见的特别纯，
+
+关tango不如关343和ninja theory妈的
+
+*****
+
+####  coldsmile  
+##### 101#       发表于 2024-5-7 23:39
+
+该给安
+
+*****
+
+####  coldsmile  
+##### 102#       发表于 2024-5-7 23:40
+
+该给安德鲁 威尔逊道歉了
+
+*****
+
+####  ab20000801  
+##### 103#       发表于 2024-5-7 23:41
+
+<blockquote>无辄辄 发表于 2024-5-7 22:15
+那几年那几年大收购战，索尼就不该更牌，收了棒鸡在手里想搞服务性游戏，结果也没有成功，只能说被微软带 ...</blockquote>
+hd2已经是sie第七赚钱的游戏了，这不能叫没有成功吧（虽然最近爆了一波）
+
+*****
+
+####  ナルバレック  
+##### 104#       发表于 2024-5-7 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64844717&amp;ptid=2182889" target="_blank">电磁炮233 发表于 2024-5-7 21:57</a>
+
+微软不是傻逼也沾个无能，PS5这种被裸装老年NS吊打的飞舞还能反过来吊打XBOX ...</blockquote>
+老年NS持续吊打仅限日本吧，PSV退市后PS系在日本就是飞舞了，从22年开始大部分时间PS5销量在欧洲和美国还是领先NS的吧
+
+*****
+
+####  ab20000801  
+##### 105#       发表于 2024-5-7 23:43
+
+<blockquote>pwzzy 发表于 2024-5-7 22:58
+ms不如把前段时间被棒鸡开掉的那一批员工招过来组个新工作室做halo，343这坨不可燃垃圾让他们去续红 ...</blockquote>
+bungie开掉那大部分都是营销和社区团体，反正我fo的好几个喜欢搞lgbt的bungie社区经理被开掉了...
+
+
+*****
+
+####  螺旋的小夜曲  
+##### 106#       发表于 2024-5-7 23:44
+
+去掉一个最高分，去掉一个最低分
+
+*****
+
+####  ab20000801  
+##### 107#       发表于 2024-5-7 23:45
+
+你软最抽象的收购难道不是we happy few 那个工作室嘛
+

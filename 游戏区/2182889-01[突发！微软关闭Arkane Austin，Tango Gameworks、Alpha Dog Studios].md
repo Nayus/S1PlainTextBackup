@@ -1143,3 +1143,14 @@ ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编�
 <img src="https://p.sda1.dev/17/a33422659d237bc2fb33a0b4434ec2a0/20240508_013537.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/ef3d0791499e2f4bdc1b1d8692eb3102/20240508_013538.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UnrealApartheid  
+##### 127#       发表于 2024-5-8 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845614&amp;ptid=2182889" target="_blank">199april 发表于 2024-05-07 23:07:53</a>
+所以战争机器和神鬼寓言不重启一下？</blockquote>神鬼寓言的重启现在在由Playground Games开发中
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

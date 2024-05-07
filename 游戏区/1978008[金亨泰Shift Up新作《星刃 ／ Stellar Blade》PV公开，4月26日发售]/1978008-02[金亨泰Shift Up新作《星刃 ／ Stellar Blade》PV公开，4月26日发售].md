@@ -542,3 +542,13 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 Concept art wallpaper from the early days of EVE💕
 <img src="https://p.sda1.dev/17/03e17d3c034d8b2a1368149f9c74303d/20240508_013303.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1529#       发表于 2024-5-8 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846307&amp;ptid=1978008" target="_blank">依存香炉 发表于 2024-5-8 00:27</a>
+做all can collection好麻烦啊 得拉清单 头大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">不是记机器上的罐头编号
+

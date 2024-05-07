@@ -11904,3 +11904,20 @@ mv很有特色喜欢
 
 小黄面子那么大啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 4141#       发表于 2024-5-7 09:40
+
+漫画也这么早就安排了啊
+
+*****
+
+####  RhmBWT_Wu  
+##### 4142#       发表于 2024-5-7 09:41
+
+看群友发的图，这位还是诹访彩花老公<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -14822,3 +14822,11 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 
 2024-5-7 15:14 上传
 
+
+*****
+
+####  IWS2000  
+##### 4386#       发表于 2024-5-7 15:47
+
+感觉现在很多人离开龟男一词就不会说话了，前一秒一起冲锋，下一秒就骂别人龟男了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

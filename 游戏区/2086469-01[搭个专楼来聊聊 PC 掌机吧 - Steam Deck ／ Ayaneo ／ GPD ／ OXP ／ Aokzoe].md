@@ -93,3 +93,13 @@ AMD 没新的APU，ROG也不可能完全定制一款，小修小改再卖吧
 电脑端云存档可以用UsbEAm Hosts Editor解决，SD上是真没办法</blockquote>
 我在SD也安装了UsbEAm Hosts Editor，改了HOST，还是一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bypass  
+##### 1188#         楼主| 发表于 2024-5-7 15:53
+
+Aya 也要出显卡坞了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/XrldLNy.png" referrerpolicy="no-referrer">
+

@@ -1488,3 +1488,11 @@ INABA
 
 被关一晚上还把心心念念的铲屎官给卷进去，可把小雪给憋屈坏了<img src="https://static.saraba1st.com/image/smiley/animal2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hisousihou  
+##### 1431#       发表于 2024-5-7 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就是来看猫猫狗狗的，能不能少点人类戏份多来点宠物日常。
+

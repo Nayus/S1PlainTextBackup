@@ -822,3 +822,16 @@ QP和骑饼干突然成两 ...</blockquote>
 商店毕业，正好骑本想刷一下羁绊和饼干，但是只有一个好友抽了五宝的兽尼，人家也没带午茶 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥这时候要下午茶兽尼禄？？活动没结束不是要倍卡吗？
 
+
+*****
+
+####  苍蓝之枪  
+##### 46380#       发表于 2024-5-7 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842232&amp;ptid=1712412" target="_blank">df600a 发表于 2024-5-7 17:59</a>
+
+为啥这时候要下午茶兽尼禄？？活动没结束不是要倍卡吗？</blockquote>
+倍卡只加成伤害又不加成羁绊点数，商店办完刷90++就为了羁绊，那显然是午茶啊
+
+而且考虑倍卡的话2宝就够了，我是要求高配的
+

@@ -14688,3 +14688,26 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 看下别的战备爆炸物？也是这么吸尸体的话大概率就是粗暴的给玩家加了个TAG，专门变成炸飞该TAG物 ...</blockquote>
 这个bug好像之前就只针对新加的三款爆炸武器，爆炸弩爆裂铳和榴弹手枪，也不知道这三把武器有什么特别的点需要独立写新的爆炸效果，直接用和榴弹枪一样的不好吗，尤其是榴弹手枪
 
+
+*****
+
+####  Launce  
+##### 4373#       发表于 2024-5-7 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64836388&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-7 10:46</a>
+
+这个bug好像之前就只针对新加的三款爆炸武器，爆炸弩爆裂铳和榴弹手枪，也不知道这三把武器有什么特别的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是“爆炸”属性的战备都会吸，我测了一圈就手雷不会吸人
+
+榴弹枪其实也吸，不过那玩意儿有安全范围，得调距离角度，不好录下来我就没录了
+<img src="https://p.sda1.dev/17/ac8ad55ac46344fae941544665051be8/EAT.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/07b39b8ea2284bbe7c9d74f153020851/%E7%B1%BB%E6%98%9F%E4%BD%93.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白昼梦  
+##### 4374#       发表于 2024-5-7 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼情报站，discord那帮社区管理还在整烂活啊
+

@@ -518,3 +518,23 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 2024-5-7 19:19 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 42#       发表于 2024-5-7 19:46
+
+ 本帖最后由 江戸前ルナ 于 2024-5-7 19:48 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/07/194541h5vd5q5oiibixdix.jpg" referrerpolicy="no-referrer">
+
+<strong>GMrLjuGWoAAOrfL.jpg</strong> (796.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 19:45 上传
+
+已经很多3D的EVE X 2B的屁股图和小动画了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">很多NSFW的不贴了
+
+不过对比图可以看出2B有个很大的优势，就是眼罩，就算脸做得不够好看完全可以用眼罩遮丑，EVE就不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -398,3 +398,11 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 好喜欢早期这个<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  Schwarzess  
+##### 1515#       发表于 2024-5-7 08:20
+
+为了全收集干脆开了新档重新玩，尝试之前不同的开荒路线（先主攻贝塔，爆发解锁后转平a红刀+爆发技），直推卢瓦底层解锁第二段脊椎再舔沙漠图，体验直线上升。堆怪？同屏有三只我就化身抛瓦人次元斩斩斩。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

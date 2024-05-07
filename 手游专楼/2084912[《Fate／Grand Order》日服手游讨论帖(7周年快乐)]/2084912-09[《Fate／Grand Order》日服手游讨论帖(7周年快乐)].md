@@ -7824,3 +7824,34 @@ fsr光荣23-24财报是41万
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  シャル  
+##### 12718#       发表于 2024-5-7 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64834687&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-5-7 07:44</a>
+
+结果也没说草十郎十年后怎么变那样了
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+城市里生活太久了
+
+*****
+
+####  シャル  
+##### 12719#       发表于 2024-5-7 08:26
+
+日记
+
+有珠三坡
+
+A2A8F0C6-6A18-4917-BE86-E608A2A2950D.jpeg
+(25.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-7 08:26 上传
+
+<img src="https://img.saraba1st.com/forum/202405/07/082605nvut2teq0wgg7sv2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

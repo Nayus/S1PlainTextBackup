@@ -14574,3 +14574,11 @@ steamdeck玩这游戏搓指令是真的反人类…而且720p的分辨率和最�
 —— 来自 S1Fun ...</blockquote>
 实际上就是跟着剧情开放了，好处是有代入感，坏处是挤牙膏。
 
+
+*****
+
+####  Mr.Hopp  
+##### 4361#       发表于 2024-5-7 08:22
+
+又是虫子任务，但东线几个星区又是零零散散每个星区几千人做无用功，即便这几天闹得最火热的时候也有这么些人，不知道他们在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

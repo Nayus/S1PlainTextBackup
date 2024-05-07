@@ -103,3 +103,14 @@ Aya 也要出显卡坞了 <img src="https://static.saraba1st.com/image/smiley/fa
 
 <img src="https://imgur.ihainan.me/XrldLNy.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毒品  
+##### 1189#       发表于 2024-5-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64830530&amp;ptid=2086469" target="_blank">trow233 发表于 2024-5-6 19:02</a>
+
+我在SD也安装了UsbEAm Hosts Editor，改了HOST，还是一样</blockquote>
+tomoon吧，翻墙啥都有了
+

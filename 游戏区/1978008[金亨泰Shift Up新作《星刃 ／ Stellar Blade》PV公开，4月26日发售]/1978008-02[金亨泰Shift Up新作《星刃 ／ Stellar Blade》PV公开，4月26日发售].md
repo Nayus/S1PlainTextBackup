@@ -503,3 +503,17 @@ boss挑战模式不说，拍照模式这么难做吗<img src="https://static.sar
 
 这炮台真烦啊，怎么还带溅射伤害的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lucky95  
+##### 1526#       发表于 2024-5-7 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64838789&amp;ptid=1978008" target="_blank">B.K. 发表于 2024-5-7 13:55</a>
+对，如果想真 全收集，还要白金的话必须3周目
+
+这取决于二周目还有多少好看衣服 ...</blockquote>
+二周目的衣服大差评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

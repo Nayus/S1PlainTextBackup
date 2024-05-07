@@ -666,3 +666,19 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 感觉不如女配角</blockquote>
 伊芙就是白纸圣母的人设，跟渡鸦迅驰那种御姐风的就不能一样，脸就要显得平庸无辜一点才行
 
+
+*****
+
+####  不入流美术  
+##### 57#       发表于 2024-5-8 06:57
+
+真的不如2b
+
+
+*****
+
+####  jxzeroga0  
+##### 58#       发表于 2024-5-8 07:02
+
+看来大家都很喜欢那个夹着发夹的斜刘海，很多截图包括我都用这个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -655,3 +655,14 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 感觉不如女配角
 
+
+*****
+
+####  printer22  
+##### 56#       发表于 2024-5-8 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64847081&amp;ptid=2182820" target="_blank">Algie 发表于 2024-5-8 06:08</a>
+
+感觉不如女配角</blockquote>
+伊芙就是白纸圣母的人设，跟渡鸦迅驰那种御姐风的就不能一样，脸就要显得平庸无辜一点才行
+

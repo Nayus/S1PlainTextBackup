@@ -629,3 +629,13 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 — from OnePlus CPH2493, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  martinium  
+##### 53#       发表于 2024-5-7 23:17
+
+感觉屁股好奇怪，肩膀太细了，显得屁股很突兀
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

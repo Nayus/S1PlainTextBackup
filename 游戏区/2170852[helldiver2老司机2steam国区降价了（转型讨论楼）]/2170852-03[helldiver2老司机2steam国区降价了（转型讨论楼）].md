@@ -15217,3 +15217,24 @@ dot修好了东线当然是火喷毒气了<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是真不懂在一个pve游戏里削弱武器搞所谓平衡的意义在哪，除了恶心玩家还有什么作用来自: iPhone客户端
 
+
+*****
+
+####  FLZB  
+##### 4428#       发表于 2024-5-7 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845660&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-7 23:12</a>
+
+反正我是真不懂在一个pve游戏里削弱武器搞所谓平衡的意义在哪，除了恶心玩家还有什么作用 ...</blockquote>
+平衡还是要的，初期全员雌鬼META说实话真的没啥意思。问题还是在于箭头的平衡标准，强度只是将将够有就要挨刀，摆明了就是要你玩得难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 4429#       发表于 2024-5-7 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845660&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-7 23:12</a>
+
+反正我是真不懂在一个pve游戏里削弱武器搞所谓平衡的意义在哪，除了恶心玩家还有什么作用 ...</blockquote>
+新内容产能跟不上就玩朝三暮四保持新鲜感？
+

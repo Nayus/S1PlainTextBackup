@@ -794,3 +794,42 @@ prey2这下没了。为啥tango也关啊，hifi-rush不好吗
 
 话说从这个结果倒回去想，微软是不是一早就想把tango关了？当时hifirush可是一点宣发都没有直接就甩了出来上xgp，如果从这个方面去想好像也能解释得通了，反正都是决定要关了也懒得去做宣发了，结果hifirush口碑爆棚反而是一个意外。当然如果真的是这样，那就再一次验证了那一句话“微软最大的问题就是没有品味”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  嘉术2015  
+##### 89#       发表于 2024-5-7 23:18
+
+ea算个勾巴工作室杀手，真杀手害得看我们微软
+
+
+*****
+
+####  你又开始了？  
+##### 90#       发表于 2024-5-7 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">wcnm我要prey续作啊
+
+*****
+
+####  canti  
+##### 91#       发表于 2024-5-7 23:26
+
+赌五毛下一个忍者理论，18年收购24年才有作品产出，主创发布前离职，debuff上满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hkguty  
+##### 92#       发表于 2024-5-7 23:27
+
+探戈也关有没有搞JB错
+
+*****
+
+####  BadYanL  
+##### 93#       发表于 2024-5-7 23:27
+
+恶灵和Prey续作还是有可能的，IP还在找其他工作室代工就行了
+

@@ -1357,3 +1357,15 @@ Tango真的可惜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑了，只能说索尼这么多昏招都能压着微软打真是有原因的。
 
+
+*****
+
+####  泰坦失足  
+##### 149#       发表于 2024-5-8 09:43
+
+ 本帖最后由 泰坦失足 于 2024-5-8 09:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848000&amp;ptid=2182889" target="_blank">madcow 发表于 2024-5-8 09:31</a>
+
+那，下一部黑楼想做成什么样子大家心里有谱吗，没有啊。北美光环老嗨反对光环里出现疾跑机瞄角色能力，你对 ...</blockquote>
+但是在经济和奖励系统上无限比Halo5激进多了，这是我们的限时活动/战令/20美元起一套捆绑包，老害们别10美元买个MCC就用几年服务器，赶紧滚来无限每周上班了
+

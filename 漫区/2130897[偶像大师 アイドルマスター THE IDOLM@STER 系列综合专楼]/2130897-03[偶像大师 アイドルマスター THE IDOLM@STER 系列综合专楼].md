@@ -14000,3 +14000,42 @@ scsp三星的发型抽到倒是直接解锁
 
 不知道学的抽衣服发行成本如何
 
+
+*****
+
+####  rgauss  
+##### 4356#       发表于 2024-5-8 22:07
+
+好听
+
+*****
+
+####  840266848  
+##### 4357#       发表于 2024-5-8 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千奈这首怎么看都不会是倒一了，甚至排前面吧
+
+*****
+
+####  倉本千奈  
+##### 4358#       发表于 2024-5-8 22:08
+
+好好好，编曲、mv、本人歌唱力都感觉不错！起码不是倒数第一！<img src="https://p.sda1.dev/17/40ebc771e43e78d3b8c794b901cdb362/__kuramoto_china_idolmaster_and_1_more_drawn_by_mmmakaron888__d0d619fc9d5d1a3fa5acea189432de49.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raimouse  
+##### 4359#       发表于 2024-5-8 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千奈跟莉莉娅的就是感觉VO缺点感觉
+
+曲子，MV都不差
+
+*****
+
+####  magicc  
+##### 4360#       发表于 2024-5-8 22:13
+
+学马那个讲作曲的节目是几号？
+

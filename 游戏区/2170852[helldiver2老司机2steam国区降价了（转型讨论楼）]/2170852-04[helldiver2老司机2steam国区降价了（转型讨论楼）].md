@@ -423,3 +423,20 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 现在solo这怪量，一波没压住直接再起不能，我炸个巢附近就凭空刷了几支巡逻队加入战斗，带着满屏的怪连拉了三波警报越打越多，黄胖混强袭混泰坦混追猎，太享受了……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4482#       发表于 2024-5-8 22:07
+
+真不玩游戏怎么会精准地把武器一刀砍死？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风萧飒  
+##### 4483#       发表于 2024-5-8 22:11
+
+这版本无后坐力炮还是挺爽的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

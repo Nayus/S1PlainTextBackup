@@ -1504,3 +1504,11 @@ INABA
 
 19话mayu变身，那真是更新初期公布成员变身最晚记录了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1433#       发表于 2024-5-8 22:06
+
+扬羽和真由就是夏季追加配置 这下实锤+1
+

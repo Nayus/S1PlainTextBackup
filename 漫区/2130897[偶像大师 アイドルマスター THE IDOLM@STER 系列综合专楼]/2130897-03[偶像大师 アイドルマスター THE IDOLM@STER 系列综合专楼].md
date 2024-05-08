@@ -12818,3 +12818,23 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 另外B站这推送，我只能用一个词形容，歹毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 4216#       发表于 2024-5-8 10:41
+
+ 本帖最后由 ViviR 于 2024-5-8 10:43 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/08/104117ovnqxvnndznue8vq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8564.jpeg</strong> (54.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 10:41 上传
+
+高情商：符合人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前还看到有人说中之人故意唱成这样好符合人设的（
+

@@ -9464,3 +9464,32 @@ HG宙斯命运还是通贩，放长线可以不怕被炒价</blockquote>
 
 而且还很大可能PB出不带宙斯魅影的红色骨架的HGCE命运高达specII过载版本<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 778#       发表于 2024-5-8 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848663&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-8 10:25</a>
+搞不好宙斯魅影的板件留足转水口开关，往后替换小量零件和加贴纸，PB出RG晓用的版本
+
+而且还很大可 ...</blockquote>
+红骨和贴纸都是小意思，有条件就喷笔，没条件就喷灌。关键还是肯出，买不起铁魂不用苦等<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Grahamlinks  
+##### 779#       发表于 2024-5-8 10:42
+
+这模型的怒涛，不像你啊代便<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Grahamlinks  
+##### 780#       发表于 2024-5-8 10:43
+
+这模型的怒涛，不像你啊代便<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

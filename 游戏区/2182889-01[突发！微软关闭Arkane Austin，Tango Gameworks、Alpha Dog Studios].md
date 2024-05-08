@@ -1788,3 +1788,57 @@ prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  那我也没办法  
+##### 192#       发表于 2024-5-8 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64845375&amp;ptid=2182889" target="_blank">chdhdhd 发表于 2024-5-7 22:45</a>
+ninja theory危险了，地狱之刃2要是商业不满意，这组也是收编后没有高光，多半是一样结局了
+
+不太懂版权，如 ...</blockquote>
+dmc本来就是卡普空外包给忍者理论做试水的吧。
+
+—— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qianoooo  
+##### 193#       发表于 2024-5-8 16:19
+
+阿肯里昂人不多可以厚厚脸皮去valve 前提是阿肯自己能接受十几年出不来一款游戏
+
+HL新作要是有阿肯加持真的是如虎添翼
+
+*****
+
+####  zxtree  
+##### 194#       发表于 2024-5-8 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64853164&amp;ptid=2182889" target="_blank">qianoooo 发表于 2024-5-8 16:19</a>
+
+阿肯里昂人不多可以厚厚脸皮去valve 前提是阿肯自己能接受十几年出不来一款游戏
+
+HL新作要是有阿肯加持真的 ...</blockquote>
+不是早就试过了
+
+
+*****
+
+####  BK10  
+##### 195#       发表于 2024-5-8 16:23
+
+V社下个半条命还会是传统游戏吗？是不是忘了艾利克斯是vr游戏了
+
+*****
+
+####  madcow  
+##### 196#       发表于 2024-5-8 16:23
+
+<blockquote>Wounds 发表于 2024-5-8 16:14
+可能是我信息茧房了，想问一下地狱之刃这种卖相都不如一众三流游戏的企划是怎么做到2代的 ...</blockquote>
+理论上还是xsx性能展示用游戏之一（？
+
+很神奇吧
+

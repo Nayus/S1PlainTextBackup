@@ -12996,3 +12996,28 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 出台服的话，估计还是万代台湾公司自己运营吧，就算火了要开也至少一年后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 4236#       发表于 2024-5-8 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851414&amp;ptid=2130897" target="_blank">Thalassa 发表于 2024-5-8 13:37</a>
+ 啊？看了眼DC还是那几个频道啊？</blockquote>
+我没去求证，我只是记得上个月楼里有漏油提过官方dc开了中文和粤语版<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  野菜一日分  
+##### 4237#       发表于 2024-5-8 14:21
+
+dc频道里有一个global，里边有英语韩语泰语简中繁中粤语，简中印象里是第二能水的区。至于开国服什么还算得了，一眼活不过几个月，最多国际服可以选语言
+
+*****
+
+####  田所あずさ  
+##### 4238#       发表于 2024-5-8 14:22
+
+国际服也不会有的，万代的德行肯定是首发日服然后看情况发不发国际服，数据不好看就不发了
+

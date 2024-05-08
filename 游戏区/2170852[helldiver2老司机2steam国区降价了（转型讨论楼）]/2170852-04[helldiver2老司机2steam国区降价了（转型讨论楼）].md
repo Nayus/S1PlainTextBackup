@@ -262,3 +262,21 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 真是箭箭又头头啊
 
+
+*****
+
+####  ravend233  
+##### 4466#       发表于 2024-5-8 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说箭头的数值策划对游戏的理解水平确实很幽默
+
+
+*****
+
+####  大肥鸽子  
+##### 4467#       发表于 2024-5-8 14:22
+
+这人没得到spitz一样的待遇实在太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

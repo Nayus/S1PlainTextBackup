@@ -1642,3 +1642,18 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Todds_lies  
+##### 176#       发表于 2024-5-8 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">关tango图啥，他妈的hifirush做那么好为啥要关，微软游戏部我*你先人！
+
+*****
+
+####  舌怪  
+##### 177#       发表于 2024-5-8 14:18
+
+这次怎么赢？<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+

@@ -9421,3 +9421,32 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 梦想成真了，之前一直在做hg命运宙斯和rg拂晓的梦，这下都来了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三俗怪人  
+##### 774#       发表于 2024-5-8 10:04
+
+福田说希望看了的人笑着走出电影院， 我看完是满脸绷不住的笑容。
+
+*****
+
+####  Charizard  
+##### 775#       发表于 2024-5-8 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848271&amp;ptid=2178694" target="_blank">stormquantage 发表于 2024-5-8 09:57</a>
+北美小规模点映了，赶紧就去观摩了这个看过无数剧透的大作。完全不虚此行。
+
+这片前段节奏和叙事一塌糊涂。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">太对了！就是要这碗醋耶耶耶
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  starring  
+##### 776#       发表于 2024-5-8 10:12
+
+HG宙斯命运还是通贩，放长线可以不怕被炒价<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

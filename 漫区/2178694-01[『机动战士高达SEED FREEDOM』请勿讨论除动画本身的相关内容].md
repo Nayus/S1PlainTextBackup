@@ -9750,3 +9750,19 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 — from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  gary76  
+##### 805#       发表于 2024-5-9 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850958&amp;ptid=2178694" target="_blank">starring 发表于 2024-5-8 12:55</a>
+她被露娜击败后说喜欢的人是黑骑士的修罗，她就是慕强
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next- ...</blockquote>
+我倒是覺得她這裡說的對象就是小鳥
+
+不想承認自己喜歡了個對自己沒反應的小鬼，然後這小鬼還竟然開竅，跟自己同屆的競爭對手在一起了
+
+這才對狗血味啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

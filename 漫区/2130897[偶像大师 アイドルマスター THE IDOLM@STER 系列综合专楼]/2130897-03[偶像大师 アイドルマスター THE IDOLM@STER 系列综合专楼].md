@@ -14296,3 +14296,11 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 不就是孤注一掷么，反正偶像大师活了这么久了赌一赌好过啥都不做
 
+
+*****
+
+####  ViviR  
+##### 4392#       发表于 2024-5-9 01:17
+
+真的是“孤注一掷”吗。就目前来看，作为一个大企业的大型企划也就是普通地跟上了时代而已。真下力气了的话首先开头这2d动画是不是太便宜了点？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

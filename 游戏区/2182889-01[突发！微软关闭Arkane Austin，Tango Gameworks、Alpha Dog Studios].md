@@ -1771,3 +1771,20 @@ prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的
 
 微软又发挥传统艺能了
 
+
+*****
+
+####  Wounds  
+##### 190#       发表于 2024-5-8 16:14
+
+可能是我信息茧房了，想问一下地狱之刃这种卖相都不如一众三流游戏的企划是怎么做到2代的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhouzongxing  
+##### 191#       发表于 2024-5-8 16:15
+
+恶灵附身2成绝唱了，乙烷，想玩3
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

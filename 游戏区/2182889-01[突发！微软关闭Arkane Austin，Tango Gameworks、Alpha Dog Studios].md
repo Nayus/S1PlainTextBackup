@@ -1392,3 +1392,44 @@ Tango真的可惜了
 </blockquote>
 这个真不一定吧，为啥一直有人说ogbungie都在343啊，现在bungie的主管层的多数都还是老bungie那些人，老棒极其实很多人都在ca和firewalk这两个组
 
+
+*****
+
+####  Cloudslin  
+##### 152#       发表于 2024-5-8 11:57
+
+阿肯里昂估计也危，铁饭碗端不牢了，现在的环境没有长期主义的空间
+
+*****
+
+####  byisme001  
+##### 153#       发表于 2024-5-8 11:59
+
+三上离开tango前后都说了无数次不想再作恐怖游戏，也说明了恶灵附身也不是他想做的
+
+*****
+
+####  qsscwddv1  
+##### 154#       发表于 2024-5-8 11:59
+
+<img src="https://img.saraba1st.com/forum/202405/08/115912te68997e9xqeq6l8.jpg" referrerpolicy="no-referrer">
+
+<strong>a53fe9ef76094b36ebf81dd0e5cc7cd98d109d33.jpg</strong> (375.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 11:59 上传
+
+
+*****
+
+####  毛利提督  
+##### 155#       发表于 2024-5-8 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64847175&amp;ptid=2182889" target="_blank">Лилия 发表于 2024-5-8 07:08</a>
+
+傻逼吧，tango也关。当年关师头现在又整这出，微软是真没品位啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上 ...</blockquote>
+斯宾塞笑话之“当年关闭狮头不是菲尔的本意，他一直在为此后悔反思并对手下工作室宽松”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

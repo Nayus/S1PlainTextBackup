@@ -13370,3 +13370,120 @@ scsp不会是学的试验品吧
 
 手球怎么还在记东西
 
+
+*****
+
+####  rgauss  
+##### 4280#       发表于 2024-5-8 18:19
+
+美海豹
+
+
+*****
+
+####  cckuku  
+##### 4281#       发表于 2024-5-8 18:20
+
+我怎么感觉训练员的中之人颜值更高呢？
+
+*****
+
+####  raimouse  
+##### 4282#       发表于 2024-5-8 18:20
+
+还送自选初始，这开局算良心拉
+
+省了部分刷初始的功夫
+
+*****
+
+####  rslika  
+##### 4283#       发表于 2024-5-8 18:21
+
+从iris和wug找来的老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很合理
+
+*****
+
+####  花开安菲路  
+##### 4284#       发表于 2024-5-8 18:21
+
+芹泽优好啊，这女人又好看又有趣，能唱能跳 ，有机会上live吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4285#       发表于 2024-5-8 18:21
+
+果然有拍照
+
+*****
+
+####  Anatoly  
+##### 4286#       发表于 2024-5-8 18:21
+
+若井友希完全没印象
+查了查原来都28了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 4287#       发表于 2024-5-8 18:23
+
+今天长月好看多了
+
+*****
+
+####  麻巳巳  
+##### 4288#       发表于 2024-5-8 18:23
+
+还好scsp没玩多久，这下有新牢房了
+
+*****
+
+####  rgauss  
+##### 4289#       发表于 2024-5-8 18:24
+
+这不就是ip?
+
+*****
+
+####  raimouse  
+##### 4290#       发表于 2024-5-8 18:24
+
+这就是IP x SCSP杂交产品吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  野菜一日分  
+##### 4291#       发表于 2024-5-8 18:25
+
+功能是真多，跟在做社区一样，然而核心玩法做大牢
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BQlin  
+##### 4292#       发表于 2024-5-8 18:26
+
+还能换发型啊，挺好，都新游戏了最好还是能随便换吧
+
+百万换发型也要花材料实在是坐牢
+
+*****
+
+####  rgauss  
+##### 4293#       发表于 2024-5-8 18:26
+
+喜欢我ip生日池抽发型吗<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 4294#       发表于 2024-5-8 18:26
+
+比我预想的功能要少一些
+

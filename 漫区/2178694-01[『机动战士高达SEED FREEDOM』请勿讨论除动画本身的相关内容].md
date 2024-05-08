@@ -9564,3 +9564,29 @@ HG宙斯命运还是通贩，放长线可以不怕被炒价</blockquote>
 
 ----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  battleship64  
+##### 789#       发表于 2024-5-8 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850224&amp;ptid=2178694" target="_blank">三俗怪人 发表于 2024-5-8 12:02</a>
+另外红发葵司被击败后说我喜欢他，这里的他是飞鸟还是基拉？</blockquote>
+应该是前男友，红葵司走关系让他开强自运给大天使号然后这男的大概叛变被黑骑士击坠了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  outel  
+##### 790#       发表于 2024-5-8 12:50
+
+<blockquote>引用第687楼liy30dlys于2024-04-26 05:27发表的  :
+
+看了一遍，这次没有沙漠之虎戏份有花絮讲过吗  -- 来自 能搜索的 Stage1官方 Android......</blockquote>
+@liy30dlys
+
+一个镜头
+
+----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
+

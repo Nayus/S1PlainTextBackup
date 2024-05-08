@@ -1494,3 +1494,65 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 另外，Hifi-rush的发售可以说很突然，微软都没怎么做预热，配套营销措施少得可怜，这么一款他们都不看好的作品却成了获奖无数的2023年微软第一方唯一指定遮羞布。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀着最大的恶意撺掇的话，该不会有自诩“懂游戏”打造”资深玩家“人设的人被打脸了吧？
 
+
+*****
+
+####  liekong  
+##### 163#       发表于 2024-5-8 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">突然联想：
+
+1、一个跨国软件大企业，经常被人质疑规模过大有垄断嫌疑
+
+2、喜欢花钱收购、入股看好的大小游戏公司，这些公司都有过一些不错的代表作品
+
+3、花钱后不怎么干涉经营，还会配合给资源
+
+4、玩家吹嘘过这公司这种行为很好很受欢迎
+
+那么这家公司是......？
+
+巨硬：当然是.......（被捂嘴）
+
+企鹅：不，你不是，是我
+
+*****
+
+####  泰坦失足  
+##### 164#       发表于 2024-5-8 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850608&amp;ptid=2182889" target="_blank">Yeelolo 发表于 2024-5-8 12:28</a>
+
+育碧打包进xgp可破，至少育碧一年做一部八分游戏没啥问题吧再不济就是7分，也不是不能玩 ...</blockquote>
+育碧游戏不少进XGP和PS+二档来着
+
+*****
+
+####  变老的大二  
+##### 165#       发表于 2024-5-8 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850770&amp;ptid=2182889" target="_blank">itsmyrailgun 发表于 2024-5-8 12:42</a>
+
+就别泼脏水说什么HIFIRUSH不赚钱了，HIFIRUSH肯定是名利双收的，在首发进XGP的情况下，这游戏在stea ...</blockquote>
+我估计和我公司经历的事件差不多，总部要裁员两个团队，然后就论资排辈裁了两个最年轻的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  变老的大二  
+##### 166#       发表于 2024-5-8 12:53
+
+我现在唯一的指望arkane里昂别被关掉，或者可以赎身成功。沉浸式模拟游戏就他家还能高成本投入了。
+
+*****
+
+####  cedarmil1  
+##### 167#       发表于 2024-5-8 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850353&amp;ptid=2182889" target="_blank">tureleona 发表于 2024-5-8 13:11</a>
+
+最该关的的是忍者组和Compulsion Games，忍组做的都是啥玩意，地刃这种神经病游戏能出2也就是微软拿来当XSX ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忍组风评被害.jpg
+
+虽然忍组也喜欢给游戏里掺点粪, 但人家一直不忘黄暴的初心
+

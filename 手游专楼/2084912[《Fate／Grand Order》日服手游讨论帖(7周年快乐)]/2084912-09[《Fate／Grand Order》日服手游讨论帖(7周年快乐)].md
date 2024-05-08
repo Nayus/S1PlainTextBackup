@@ -7903,3 +7903,18 @@ NGA那个[日服汉化]无需ROOT的汉化包的帖子，按照帖子里面的�
 
 中文主要是字体原因
 
+
+*****
+
+####  gulant  
+##### 12725#       发表于 2024-5-8 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846357&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-5-8 00:33</a>
+
+是的 英文和机翻可以看这个
+
+https://github.com/rayshift/translatefgo/
+
+中文主要是字体原因 ...</blockquote>
+还有这个是不是也失效了：[https://www.caimogu.cc/post/242401.html](https://www.caimogu.cc/post/242401.html)，我看很久没更新。现在fgo的中文是不是没有一个可行的？
+

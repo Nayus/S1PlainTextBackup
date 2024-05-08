@@ -1293,3 +1293,22 @@ Tango真的可惜了
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Midnight.Coup  
+##### 142#       发表于 2024-5-8 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64847448&amp;ptid=2182889" target="_blank">布拉德莱恩 发表于 2024-5-8 08:23</a>
+我很好奇到底是索尼不向三上真司抛橄榄枝还是三上真司真就这么看不起索尼</blockquote>
+因为出的游戏烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过 u1s1，解散这个 343，下一个开发 Halo 的组还得改名叫 343
+
+*****
+
+####  垃圾网站上  
+##### 143#       发表于 2024-5-8 09:16
+
+只能说微软的操作毫不意外，这些年下来一直动歪脑筋想通过资本力量搞垮竞争对手，而不是好好的开发市场和游戏
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

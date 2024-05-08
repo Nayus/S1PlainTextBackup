@@ -9376,3 +9376,29 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 只能说比起来剧透，还是现场看更震撼。
 最后决战bgm听的爽的要死，演出max了。
 
+
+*****
+
+####  oi99o  
+##### 771#       发表于 2024-5-8 09:07
+
+ 本帖最后由 oi99o 于 2024-5-8 09:09 编辑 
+
+静冈模型展新品：hg命运2+宙斯魅影、hg村雨改、hg迦楼罗、hg魔蟹、rg拂晓大鹫装备
+
+<img src="https://img.saraba1st.com/forum/202405/08/090637lhiz33ssw2hwkv4y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>559dde5861bc556a24e7a7ac4d9a9db7.jpeg</strong> (315.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 09:06 上传
+
+<img src="https://img.saraba1st.com/forum/202405/08/090637vbkz1i3ckc3d41nz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00f58b22fdc0e8591a59ff574c60bf13.jpeg</strong> (317.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 09:06 上传
+

@@ -759,3 +759,22 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Schwarzess  
+##### 1551#       发表于 2024-5-8 18:26
+
+精防长按框接三角再接三角+圆圈确实迷，而且类似的招式输入窗口特别短。
+但这招真龙闪华伤害不高的，不太建议用。
+
+
+*****
+
+####  Schwarzess  
+##### 1552#       发表于 2024-5-8 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64853794&amp;ptid=1978008" target="_blank">过气页游 发表于 2024-5-8 17:10</a>
+PV里白色那个空降服怎么没找到啊</blockquote>
+不太清楚我们说的是不是同一件，但如果是pv里那件屁股后面有类似电源线带一样的装饰的话，是二周目就会自动进包。
+

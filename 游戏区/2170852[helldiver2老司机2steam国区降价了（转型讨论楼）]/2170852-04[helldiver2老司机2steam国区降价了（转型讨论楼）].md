@@ -389,3 +389,13 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 可能跟箭头在discord圈地自high有关系，一堆脑残粉捧臭脚</blockquote>
 说起来平时x逛窑子就经常看到鬼船的直播链接，他们不光玩DRG还玩别家的游戏（比如HD2）。相比之下箭头这边测试组话事人完全不懂自家游戏的机制设定，玩个难5丑态百出，真是高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鸽子  
+##### 4479#       发表于 2024-5-8 18:31
+
+平衡组不光自己不玩，大概率也不看玩家玩高难，如果真跟上面说的那样只靠固定靶测试武器强度，应该能竞选年度最闭门造车的游戏公司了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

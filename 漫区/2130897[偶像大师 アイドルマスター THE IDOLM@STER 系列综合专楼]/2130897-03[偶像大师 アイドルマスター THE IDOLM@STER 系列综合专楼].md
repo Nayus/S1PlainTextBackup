@@ -14304,3 +14304,13 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 真的是“孤注一掷”吗。就目前来看，作为一个大企业的大型企划也就是普通地跟上了时代而已。真下力气了的话首先开头这2d动画是不是太便宜了点？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  超法拉  
+##### 4393#       发表于 2024-5-9 02:02
+
+就这还算烧企划烟火啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -117,3 +117,22 @@
 
 爆裂铳的伤害没有bug，现在这个面板砍掉弹片就是纯粹的主手位榴弹手枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bakuza  
+##### 4454#       发表于 2024-5-8 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848593&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-8 10:20</a>
+
+全能武器还剩电喷，近距离对单一发爆头指挥官，中距离可以控住绿胖喷不出来。专精的话一号位清杂用火喷， ...</blockquote>
+榴弹手枪可以清虫穴吗？没试过哈哈，这样的话我倒想试试火喷/焦土+榴弹手枪+次抛火箭筒+工程服（加手雷数量）
+
+
+*****
+
+####  ravend233  
+##### 4455#       发表于 2024-5-8 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天打虫都是无后座EAT，轨道空爆和集束，主手审判或者主宰，还挺乐（
+

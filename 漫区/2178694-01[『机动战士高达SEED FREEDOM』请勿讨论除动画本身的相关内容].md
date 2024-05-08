@@ -9450,3 +9450,17 @@ C粉闹得凶，明明是双子生日，结果没有森奈奈子出场
 
 HG宙斯命运还是通贩，放长线可以不怕被炒价<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 777#       发表于 2024-5-8 10:25
+
+ 本帖最后由 gundammarkⅡ 于 2024-5-8 10:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848495&amp;ptid=2178694" target="_blank">starring 发表于 2024-5-8 10:12</a>
+
+HG宙斯命运还是通贩，放长线可以不怕被炒价</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不好宙斯魅影的板件留足转水口开关，往后替换小量零件和加贴纸，PB出RG晓用的版本
+
+而且还很大可能PB出不带宙斯魅影的红色骨架的HGCE命运高达specII过载版本<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

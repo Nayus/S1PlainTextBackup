@@ -166,3 +166,29 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 爆裂冲也改的太蠢了 现在打隐身虫根本打不死了
 
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 4458#       发表于 2024-5-8 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64849277&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-8 11:03</a>
+说起来这两天用了下毒气
+除了非常常用的压虫潮清杂玩法之外，毒气事实上是可以当反泰坦战备用的
+因为毒气弹 ...</blockquote>
+我昨天带轨道精准想用来反泰坦，结果没注意有个轨道散布debuff，疯狂歪，属实脑溢血
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rainknine  
+##### 4459#       发表于 2024-5-8 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64849870&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-5-8 11:40</a>
+我昨天带轨道精准想用来反泰坦，结果没注意有个轨道散布debuff，疯狂歪，属实脑溢血
+
+—— 来自 OnePlus  ...</blockquote>
+轨道不精准攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

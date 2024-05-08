@@ -12838,3 +12838,11 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 之前还看到有人说中之人故意唱成这样好符合人设的（
 
+
+*****
+
+####  ViviR  
+##### 4217#       发表于 2024-5-8 11:41
+
+坐等今晚公布的游戏内容&amp;玩法比马娘和sc还坐牢，吓跑一堆路人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

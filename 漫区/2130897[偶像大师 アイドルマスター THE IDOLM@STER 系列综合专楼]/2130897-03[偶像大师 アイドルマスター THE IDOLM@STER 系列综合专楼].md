@@ -13045,3 +13045,11 @@ dc频道里有一个global，里边有英语韩语泰语简中繁中粤语，简
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  raimouse  
+##### 4241#       发表于 2024-5-8 15:29
+
+说那么多，重点还是几号开服。ios显示是8月吧。
+

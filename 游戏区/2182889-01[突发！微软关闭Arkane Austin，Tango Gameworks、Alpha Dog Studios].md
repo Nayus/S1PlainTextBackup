@@ -1710,3 +1710,14 @@ prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕留着给COD HALO打工不好么
 
+
+*****
+
+####  Yeelolo  
+##### 184#       发表于 2024-5-8 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851129&amp;ptid=2182889" target="_blank">ultraseven 发表于 2024-5-8 13:10</a>
+
+为什么不订阅育碧会员呢而且育碧一个月就打7折了啊</blockquote>
+国区没有，懒得弄<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+

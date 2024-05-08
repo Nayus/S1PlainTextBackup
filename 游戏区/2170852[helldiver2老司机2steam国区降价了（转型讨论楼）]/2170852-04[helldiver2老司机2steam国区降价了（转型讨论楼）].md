@@ -97,3 +97,23 @@
 这游戏高难下重甲敌人成片出，人人都必须带反重甲，不然反重甲火力肯定不够，那剩下的余地就很小了 ...</blockquote>
 试试4秒换弹的无后座配eat吧，人人火喷清杂的时代玩专职反甲真的很舒服
 
+
+*****
+
+####  xinfengj  
+##### 4452#       发表于 2024-5-8 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848394&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-5-8 10:06</a>
+昨晚爆裂统一炮打不死吐酸液的大胖虫，就感觉不太行了。只能当成额外手雷炸虫穴了
+
+所以有没有替代的一号位 ...</blockquote>
+全能武器还剩电喷，近距离对单一发爆头指挥官，中距离可以控住绿胖喷不出来。专精的话一号位清杂用火喷，绿胖指挥官这种用主宰焦土。
+
+
+*****
+
+####  北条早苗  
+##### 4453#       发表于 2024-5-8 10:27
+
+爆裂铳的伤害没有bug，现在这个面板砍掉弹片就是纯粹的主手位榴弹手枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

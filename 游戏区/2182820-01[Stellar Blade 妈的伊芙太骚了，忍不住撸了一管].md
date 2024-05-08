@@ -756,3 +756,12 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 我是觉得师姐比2b差远了 以至于确实只够撸1管的 按泥潭标准一般都是2管起步吧
 
+
+*****
+
+####  zqqwe  
+##### 68#       发表于 2024-5-8 10:22
+
+全支线真结局通关的感想，eve真就只有肉体和动作镜头值一管，剧本台词甚至表情管理都毫无波澜，第二管往上就全靠这些加分的啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+我玩的还是日配，瀬戸麻沙美真是尽力了也救不回来多少。相比同样是她演的铁拳8丽奈没啥露出度人设魅力却爆棚<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -1369,3 +1369,14 @@ Tango真的可惜了
 那，下一部黑楼想做成什么样子大家心里有谱吗，没有啊。北美光环老嗨反对光环里出现疾跑机瞄角色能力，你对 ...</blockquote>
 但是在经济和奖励系统上无限比Halo5激进多了，这是我们的限时活动/战令/20美元起一套捆绑包，老害们别10美元买个MCC就用几年服务器，赶紧滚来无限每周上班了
 
+
+*****
+
+####  madcow  
+##### 150#       发表于 2024-5-8 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848123&amp;ptid=2182889" target="_blank">泰坦失足 发表于 2024-5-8 09:43</a>
+
+但是在经济和奖励系统上无限比Halo5激进多了，这是我们的限时活动/战令/20美元起一套捆绑包，老害们别10美 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">h5那么良心的开包都被喷惨了，自己选的嘛靓仔
+

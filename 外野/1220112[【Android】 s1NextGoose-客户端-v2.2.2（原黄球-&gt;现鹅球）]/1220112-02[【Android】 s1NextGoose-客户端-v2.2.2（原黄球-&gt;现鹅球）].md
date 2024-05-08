@@ -124,3 +124,30 @@ https://cowtransfer.com/s/5ad09d6c2a7c45</blockquote>
 他喵的我也是看上一页有人用这个分享就试一下</blockquote>
 层主，现在网盘显示的是“Transfer has been deleted by uploader”。还是不能下。
 
+
+*****
+
+####  pgain2004  
+##### 1563#       发表于 2024-5-9 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857760&amp;ptid=1220112" target="_blank">beckuse 发表于 2024-5-9 00:47</a>
+
+层主，现在网盘显示的是“Transfer has been deleted by uploader”。还是不能下。
+
+ ...</blockquote>
+看了一下，奶牛不支持直接分享apk
+
+换成夸克了
+
+
+*****
+
+####  dswll  
+##### 1564#       发表于 2024-5-9 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857857&amp;ptid=1220112" target="_blank">pgain2004 发表于 2024-5-9 01:07</a>
+看了一下，奶牛不支持直接分享apk
+
+换成夸克了</blockquote>
+改下后缀名就行吧
+

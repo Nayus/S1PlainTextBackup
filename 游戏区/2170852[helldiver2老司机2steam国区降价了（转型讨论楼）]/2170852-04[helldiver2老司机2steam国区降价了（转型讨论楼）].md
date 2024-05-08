@@ -280,3 +280,14 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  rainknine  
+##### 4468#       发表于 2024-5-8 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851219&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-5-8 13:19</a>
+轨道毒气现在还能秒杀泰坦吗？我记得以前削过一次直击伤害，原来能砸爆科研站之类的任务建筑，现在不行了 ...</blockquote>
+前两天打的时候心血来潮试了几局，感觉应该没见到过挨了一下还没死的，至少有一只是我认为满血状态下被击杀
+当然也可能是打到头了
+

@@ -1456,3 +1456,11 @@ Tango真的可惜了
 
 arkane做IP改编跟死了有什么区别
 
+
+*****
+
+####  Yeelolo  
+##### 159#       发表于 2024-5-8 12:28
+
+育碧打包进xgp可破，至少育碧一年做一部八分游戏没啥问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再不济就是7分，也不是不能玩
+

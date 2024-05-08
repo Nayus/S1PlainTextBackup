@@ -210,3 +210,14 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xinfengj  
+##### 4462#       发表于 2024-5-8 12:24
+
+ 本帖最后由 xinfengj 于 2024-5-8 12:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848754&amp;ptid=2170852" target="_blank">bakuza 发表于 2024-5-8 10:31</a>
+榴弹手枪可以清虫穴吗？没试过哈哈，这样的话我倒想试试火喷/焦土+榴弹手枪+次抛火箭筒+工程服（加手雷数 ...</blockquote>
+一号位拆迁爆裂铳，二号位拆迁榴弹手枪。这俩都是同位置独一无二能拆迁的武器
+

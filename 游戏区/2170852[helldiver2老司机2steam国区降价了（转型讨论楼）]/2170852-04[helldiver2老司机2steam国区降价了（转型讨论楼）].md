@@ -344,3 +344,22 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 箭头这平衡看起来完全没有一个量化标准就算了，不同武器的dps、总伤、续航上下差距能如此之大，属于是连俺寻思都寻思不明白。你一把手感极其笨重的栓动狙击步枪砍aoe就砍吧，那你能不能把单体伤害提升到能一枪爆头必秒中型单位？这踏马不过分吧？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Benighted  
+##### 4475#       发表于 2024-5-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64853657&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-8 16:59</a>
+
+箭头这平衡看起来完全没有一个量化标准就算了，不同武器的dps、总伤、续航上下差距能如此之大，属于是连俺 ...</blockquote>
+可能跟箭头在discord圈地自high有关系，一堆脑残粉捧臭脚
+
+<img src="https://img.saraba1st.com/forum/202405/08/170721a0y66vhhhkhehrrh.png" referrerpolicy="no-referrer">
+
+<strong>fk4snbmim2zc1.png</strong> (157.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 17:07 上传
+

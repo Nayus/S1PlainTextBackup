@@ -905,3 +905,14 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 感觉不如渡鸦</blockquote>
 我也觉得渡鸦骚  阿当姆 真是眼瞎
 
+
+*****
+
+####  B.K.  
+##### 79#         楼主| 发表于 2024-5-8 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852257&amp;ptid=2182820" target="_blank">atlus2000 发表于 2024-5-8 15:01</a>
+
+只有我看不到图吗  都X了。。。</blockquote>
+S1的附件又又又挂了！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

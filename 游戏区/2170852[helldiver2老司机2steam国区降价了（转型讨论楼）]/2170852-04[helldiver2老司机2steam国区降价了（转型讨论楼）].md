@@ -306,3 +306,13 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 爆炸火弩这个装备有没有搞头啊 应该怎么搭配好
 
+
+*****
+
+####  山风短  
+##### 4471#       发表于 2024-5-8 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852521&amp;ptid=2170852" target="_blank">YWNS 发表于 2024-5-8 15:24</a>
+爆炸火弩这个装备有没有搞头啊 应该怎么搭配好</blockquote>
+别玩
+

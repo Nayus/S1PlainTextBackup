@@ -456,3 +456,14 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 说起来毒气响应时间好像比轨道精准攻击快个一两秒，不知道为什么
 
+
+*****
+
+####  FLZB  
+##### 4485#       发表于 2024-5-9 04:33
+
+<blockquote>Alexis killed hello neighbor 2 now on to kill HD2. Look, I am sweaty player myself when I say that they are nerfing every damn weapon that is fun and effective to use and it has to stop for me to keep spending money and time in the game. Why is Johan allowing this to happen? What is he doing about it? What the hell is this game even supposed to be now?</blockquote><blockquote>Just a reminder that Alexus was the guy who "fine tuned" Hello Neighbor 2 into the ground and is now in charge of balancing HD2</blockquote><blockquote>isnt that Alexus Kravchenko, the same guy who killed Hello Neighbors 2 </blockquote>
+刚看油土鳖up锐评平衡性，下面评论说这个Alexus之前是你好邻居2的首席设计师，当时游戏做一半这人突然上位替换掉了原来的首席设计，然后做了很多改动最后把游戏做烂，属于甲级战犯，现在来祸害HD2了。对这系列不是很熟悉，有没有比较了解情况的选手科普一下？
+
+另外这个Alexus就是昨天爆典说自己测试爆裂铳改动前后伤害没区别，你们之前能一枪秒怪都是bug，跟故意利用强袭转身护甲失效一样的那位。
+

@@ -9590,3 +9590,47 @@ HG宙斯命运还是通贩，放长线可以不怕被炒价</blockquote>
 
 ----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  starring  
+##### 791#       发表于 2024-5-8 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850206&amp;ptid=2178694" target="_blank">三俗怪人 发表于 2024-5-8 12:01</a>
+另外红发葵司是喜欢真飞鸟吗？</blockquote>
+阿格尼斯讨厌飞鸟，军校时期和飞鸟一个小队嫌弃他拖后腿，觉得飞鸟是个废物。
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 792#       发表于 2024-5-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850224&amp;ptid=2178694" target="_blank">三俗怪人 发表于 2024-5-8 12:02</a>
+另外红发葵司被击败后说我喜欢他，这里的他是飞鸟还是基拉？</blockquote>
+她被露娜击败后说喜欢的人是黑骑士的修罗，她就是慕强
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ironman_mk5  
+##### 793#       发表于 2024-5-8 13:03
+
+<blockquote>三俗怪人 发表于 2024-5-8 11:59
+命运为啥可以分身，不会是当初机体性能领先业界10年吧。 这算不算还原四小强里命运性能最好的不知真假的初 ...</blockquote>
+福田说分身大招是超过性能上限但懒得想理由
+
+*****
+
+####  32767  
+##### 794#       发表于 2024-5-8 13:04
+
+同美国看了，两个字，快乐
+
+最后一种看战姬绝唱一样放飞大脑的感觉，爽
+
+福田片头采访说的很对，这片就是entertainment
+

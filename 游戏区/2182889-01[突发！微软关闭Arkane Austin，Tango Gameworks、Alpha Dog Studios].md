@@ -1556,3 +1556,14 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 
 虽然忍组也喜欢给游戏里掺点粪, 但人家一直不忘黄暴的初心
 
+
+*****
+
+####  Yeelolo  
+##### 168#       发表于 2024-5-8 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850903&amp;ptid=2182889" target="_blank">泰坦失足 发表于 2024-5-8 12:51</a>
+
+育碧游戏不少进XGP和PS+二档来着</blockquote>
+我意思是首发进xgp，毕竟现在育碧定价太司马，我这种育boy都快受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

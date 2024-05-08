@@ -394,3 +394,13 @@
 
 完蛋，船妈也开始堵了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">前段时间说挤不进去我还以为暗方很多人，结果刚发现其实这本很屎，只是团战前人多，想赶紧多农点已经晚了
 
+
+*****
+
+####  Geyorkias  
+##### 17928#       发表于 2024-5-8 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外传开了之后倒是实打实的降速了，涅槃无限一排键也能随便按出去
+
+唯一的问题就是——我也得刷外传<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

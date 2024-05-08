@@ -579,3 +579,13 @@ Concept art wallpaper from the early days of EVE💕
 
 战斗系统挺丰富，但是这boss怪物设计……简单不是坏事，但这体验实在太雷同了。
 
+
+*****
+
+####  ky7913  
+##### 1533#       发表于 2024-5-8 11:26
+
+<blockquote>operatbig 发表于 2024-5-8 03:10
+战斗系统挺丰富，但是这boss怪物设计……简单不是坏事，但这体验实在太雷同了。 ...</blockquote>
+好的BOSS全在最后面
+

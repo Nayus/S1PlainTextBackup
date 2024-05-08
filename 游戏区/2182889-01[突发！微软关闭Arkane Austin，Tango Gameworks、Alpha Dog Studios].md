@@ -1588,3 +1588,16 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 我意思是首发进xgp，毕竟现在育碧定价太司马，我这种育boy都快受不了了 ...</blockquote>
 为什么不订阅育碧会员呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且育碧一个月就打7折了啊
 
+
+*****
+
+####  tureleona  
+##### 171#       发表于 2024-5-8 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850938&amp;ptid=2182889" target="_blank">cedarmil1 发表于 2024-5-8 12:54</a>
+
+忍组风评被害.jpg
+
+虽然忍组也喜欢给游戏里掺点粪, 但人家一直不忘黄暴的初心 ...</blockquote>
+你说的啥，我们讨论的是一个东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

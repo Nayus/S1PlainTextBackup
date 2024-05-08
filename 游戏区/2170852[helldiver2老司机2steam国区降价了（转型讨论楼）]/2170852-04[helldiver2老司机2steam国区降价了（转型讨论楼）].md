@@ -234,3 +234,15 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 —— 来自 S1Fun</blockquote>
 可以，效率虽然不算高，但是对于主武器来说已经很好了，有点费子弹就是了，感觉一个弹夹只能打死两到三只
 
+
+*****
+
+####  WGTCorp  
+##### 4464#       发表于 2024-5-8 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64849277&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-8 11:03</a>
+说起来这两天用了下毒气
+除了非常常用的压虫潮清杂玩法之外，毒气事实上是可以当反泰坦战备用的
+因为毒气弹 ...</blockquote>
+轨道毒气现在还能秒杀泰坦吗？我记得以前削过一次直击伤害，原来能砸爆科研站之类的任务建筑，现在不行了。
+

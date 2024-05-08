@@ -34,3 +34,13 @@
 在不断试探底线</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">确实一直在上下其手个不停，我以为这个特写还有什么这之外别的意思
 
+
+*****
+
+####  帆前  
+##### 107#       发表于 2024-5-8 13:24
+
+打戏突出一个“我先放几个不知道干什么的小光球，你则用几个不知道有什么用的小光环对付”，文戏突出一个“我先说几个谜语给你听，你将来会知道厉害的”<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+只有带古早乙女味的感情戏还有点看头，看男主百般积极进攻黑长直长生系女主<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

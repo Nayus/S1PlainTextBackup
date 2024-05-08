@@ -1690,3 +1690,15 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 
 prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的事情公开道过歉，估计也是那种大公司收购后管理摩擦的老套路。
 
+
+*****
+
+####  zxtree  
+##### 182#       发表于 2024-5-8 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852134&amp;ptid=2182889" target="_blank">lionheart 发表于 2024-5-8 14:50</a>
+
+prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的事情公开道过歉，估计也是那种大公司收购后管理 ...</blockquote>
+没错
+[https://www.youtube.com/watch?v=QT8GzH16Lz4&amp;t=3201s](https://www.youtube.com/watch?v=QT8GzH16Lz4&amp;t=3201s)
+

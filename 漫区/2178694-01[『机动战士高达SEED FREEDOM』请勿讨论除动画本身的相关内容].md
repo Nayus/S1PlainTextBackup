@@ -9691,3 +9691,25 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 迦楼罗HG素质完爆非自可还行</blockquote>
 淦，迦楼罗真好看，旁边MSF那坨金色的玩意和几条粉色的玩意简直伤眼
 
+
+*****
+
+####  ナルバレック  
+##### 800#       发表于 2024-5-8 21:56
+
+<img src="https://img.saraba1st.com/forum/202405/08/215615j4sknofaqs5am5y3.jpg" referrerpolicy="no-referrer">
+
+<strong>8c0a349b033b5bb5f2de27c370d3d539b600bc44.jpg</strong> (368.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 21:56 上传
+
+
+*****
+
+####  Sleipnirω  
+##### 801#       发表于 2024-5-8 22:00
+
+迦楼罗这分色给新安洲看哭了，还给了特效件，代便这次这么良心吗
+

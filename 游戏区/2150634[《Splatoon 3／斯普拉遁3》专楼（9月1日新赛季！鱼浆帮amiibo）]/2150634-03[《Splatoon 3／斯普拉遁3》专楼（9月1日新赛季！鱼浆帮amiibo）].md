@@ -13473,3 +13473,15 @@ w5 平潮
 
 除了打工从来没用过伞结果伞活动里打出最高战力，这就是新手buff吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 4312#       发表于 2024-5-8 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846930&amp;ptid=2150634" target="_blank">藏獒·烨 发表于 2024-5-8 03:01</a>
+除了打工从来没用过伞结果伞活动里打出最高战力，这就是新手buff吗</blockquote>
+无印间谍伞涂地埋雷 看准时机鲨鱼开炸 挺快乐的<img src="https://p.sda1.dev/17/711f82336f120f9684158c6e13949877/CMP_20240508200815092.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

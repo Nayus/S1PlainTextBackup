@@ -13933,3 +13933,11 @@ ip那个高级怨种池开了之后一次都没抽过+1。这次一起端上来�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，爱马仕楼里这么多人玩过ip的吗
 学马仕要弄这个池子冤种度得翻倍吧，除了一张卡一个发型之外其他玩意儿可真的就全是垃圾了
 
+
+*****
+
+####  野菜一日分  
+##### 4349#       发表于 2024-5-8 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上个月回坑SC的时候，点进抽卡数了数有15个卡池，是真的逆天，那么学马到时候会有多少呢
+

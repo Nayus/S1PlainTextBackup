@@ -1357,3 +1357,24 @@ DA2是个很特殊的情况,从觉醒到DA2也就14个月的制作时间，当�
 
 jeff说预计本财年发售（ea财报里说的unannounced game之一）
 
+
+*****
+
+####  jf8350143  
+##### 148#       发表于 2024-5-8 20:09
+
+EA财年是几月到几月来着
+
+6月才全面放料的话本财年发售很紧张吧
+
+*****
+
+####  医生狼多  
+##### 149#         楼主| 发表于 2024-5-8 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855581&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-5-8 20:09</a>
+EA财年是几月到几月来着
+
+6月才全面放料的话本财年发售很紧张吧</blockquote>
+25年三月
+

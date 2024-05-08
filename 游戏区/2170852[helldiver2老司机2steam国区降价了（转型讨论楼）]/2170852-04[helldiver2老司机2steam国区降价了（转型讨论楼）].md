@@ -467,3 +467,13 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 另外这个Alexus就是昨天爆典说自己测试爆裂铳改动前后伤害没区别，你们之前能一枪秒怪都是bug，跟故意利用强袭转身护甲失效一样的那位。
 
+
+*****
+
+####  6x6z6w  
+##### 4486#       发表于 2024-5-9 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64858217&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-9 04:33</a>
+刚看油土鳖up锐评平衡性，下面评论说这个Alexus之前是你好邻居2的首席设计师，当时游戏做一半这人突然上 ...</blockquote>
+瑞典佬到底都是从哪找的这些贵物<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">游戏爆火了还要抱着小作坊心态折磨玩家，实属透支玩家信用了
+

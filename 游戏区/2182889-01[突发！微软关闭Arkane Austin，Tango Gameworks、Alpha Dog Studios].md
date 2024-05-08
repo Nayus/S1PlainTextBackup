@@ -2014,3 +2014,15 @@ tango也关？就算hifirush没赚那么多钱，起码也给微软挽回了点�
 软软这么没见过世面么，你这也就6页还能一惊一乍 ...</blockquote>
 隔壁是A9吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  astrayveller  
+##### 213#       发表于 2024-5-9 00:52
+
+prey的那个DLC mooncrash都比死亡循环好玩
+
+XBOX真的一点品味没有
+
+hfr还拿了几个奖 xbox第一方工作室有谁去年拿了奖 星空吗
+

@@ -13882,3 +13882,35 @@ scsp已经可以很方便随时换发型了，只是发型需要游玩解锁，�
 
 ip的发型是生日卡池or时尚小垃圾池，后者这个池子我觉得学马仕不会有的吧
 
+
+*****
+
+####  commie_neko  
+##### 4343#       发表于 2024-5-8 19:33
+
+ip可以有的学马为什么不能有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+时代变了，bnie也要跟上市场环境的变迁
+
+*****
+
+####  rgauss  
+##### 4344#       发表于 2024-5-8 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">高级怨种池塞个高人气角色 发型 还不是得乖乖抽 学马仕可以抄过来的 毕竟都是qa的
+
+*****
+
+####  伊布桑  
+##### 4345#       发表于 2024-5-8 19:35
+
+冤种池真的很司马，我玩到现在一直无视那玩意的，真不是什么好文明。生日池姑且可以接受
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  sodah  
+##### 4346#       发表于 2024-5-8 19:37
+
+ip那个高级怨种池开了之后一次都没抽过+1。这次一起端上来吧，别装模作样了。
+

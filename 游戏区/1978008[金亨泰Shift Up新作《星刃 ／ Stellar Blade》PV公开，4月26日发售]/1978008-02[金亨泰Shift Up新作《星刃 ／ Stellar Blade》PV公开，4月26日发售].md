@@ -845,3 +845,13 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 最好看的还得是师姐吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  彩虹肥宅  
+##### 1560#       发表于 2024-5-8 23:11
+
+不是吧，怎么都喜欢疯女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

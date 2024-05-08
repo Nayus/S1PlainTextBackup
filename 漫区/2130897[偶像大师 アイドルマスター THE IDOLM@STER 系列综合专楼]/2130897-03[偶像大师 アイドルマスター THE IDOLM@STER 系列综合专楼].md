@@ -14169,3 +14169,39 @@ vo力虽然不行，但是整首歌还是可以的。是我感觉目前所有歌
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无可用之兵换谁去，老实说就声优而言，能唱的初出茅庐的时候就很能唱，不能唱的到最后也就是勉强能听
 
+
+*****
+
+####  ViviR  
+##### 4377#       发表于 2024-5-8 23:04
+
+天赋哪怕是一般的普通人确实上个半年一年的声乐课马上唱功就不一样了，但问题是她们是声优不是歌手啊，你只能期望谁刚好对vo有兴趣有追求了。
+
+*****
+
+####  YetToCome  
+##### 4378#       发表于 2024-5-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64856954&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-5-8 22:57</a>
+估计所有mv都是外包出去的吧，就看接单老哥的厨力了，信号灯可能代哥重视一点。
+我觉得最抽象的还是，白线 ...</blockquote>
+mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，之前ip那边就经历过了
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  披头破落户  
+##### 4379#       发表于 2024-5-8 23:05
+
+感觉学马仕热度一般啊，万代还有什么大牌没打呀
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  cckuku  
+##### 4380#       发表于 2024-5-8 23:08
+
+万代你可别告诉我莉莉娅的mv和千奈的mv花了同样的经费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

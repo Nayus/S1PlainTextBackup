@@ -13781,3 +13781,84 @@ op歌也不太行
 
 5年前立项就端出这点东西，日企的工资真好混啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水莲寺流歌  
+##### 4333#       发表于 2024-5-8 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">画面ip主题拉拉玩法sc，代哥五年企划到底还有没新活
+
+*****
+
+####  ViviR  
+##### 4334#       发表于 2024-5-8 19:10
+
+很奇怪。你学马现在一会儿给我“代孙还是挺重视的”，一会儿给我“代孙就是随便搞搞看看后续反应”的感觉。今天这个生放送的情报量被上次介绍对手的生放送秒杀了。然后开头2d动画一开始挺惊喜的，但仔细想想，老实说去掉2d元素只看到了廉价，还不如让qa搞个精致度拉满的3d。然后没有实机试玩，连贵公子的校歌也没有披露我也是没有想到的，不应该啊，真要玩家自己去游戏里听啊？
+
+*****
+
+####  cckuku  
+##### 4335#       发表于 2024-5-8 19:11
+
+这么早就急着带货，是怕后面卖不出去吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 4336#       发表于 2024-5-8 19:11
+
+ 本帖最后由 Achlys 于 2024-5-8 19:14 编辑 
+
+ip的发型是放在哪个池子里抽的？
+氪金的话有月通行证和礼包。氪金点主要会在技能卡那里？发型和衣服会是单独一个池子总共三个卡池吗？
+
+希望每张卡te打通会给钻<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4337#       发表于 2024-5-8 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855058&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-8 19:11</a>
+ip的发型是放在哪个池子里抽的？
+氪金的话有月通行证和礼包。氪金点主要会在技能卡那里？发型和衣服会是单 ...</blockquote>
+生日池或者高级限定池
+
+
+*****
+
+####  田所あずさ  
+##### 4338#       发表于 2024-5-8 19:14
+
+DELF
+
+@DELF_001
+
+ﾊｯ、学マスのゲーム内OP
+
+少しだけ原画やりました🎤
+
+よろしくお願いします✋
+
+*****
+
+####  天王寺綯  
+##### 4339#       发表于 2024-5-8 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855048&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-8 19:10</a>
+
+很奇怪。你学马现在一会儿给我“代孙还是挺重视的”，一会儿给我“代孙就是随便搞搞看看后续反应”的感觉。 ...</blockquote>
+“代孙还是挺重视的”：因为确实挺重视
+
+“代孙就是随便搞搞看看后续反应”：因为万代就这么菜，重视也菜
+
+*****
+
+####  花开安菲路  
+##### 4340#       发表于 2024-5-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855048&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-8 19:10</a>
+很奇怪。你学马现在一会儿给我“代孙还是挺重视的”，一会儿给我“代孙就是随便搞搞看看后续反应”的感觉。 ...</blockquote>
+就是想搞好，万南也投入大量资金资源了，但万南这帮人能力有限，内部跟上时代的或许有，但不一定有地位和话语权，所以宣传搞的时好时坏的，内容呢基本都是外包，所以质量也参差不齐。
+

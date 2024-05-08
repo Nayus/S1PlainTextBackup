@@ -877,3 +877,11 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  NirvashS1  
+##### 1563#       发表于 2024-5-8 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法米通给了35合理
+

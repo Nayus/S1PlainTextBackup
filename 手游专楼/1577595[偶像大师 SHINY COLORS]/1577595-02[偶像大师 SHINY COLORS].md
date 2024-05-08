@@ -63,3 +63,14 @@
 
 6周年送全员初期SSR一共28张，今天也是最后一天。
 
+
+*****
+
+####  琥珀凝光  
+##### 2938#       发表于 2024-5-8 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857232&amp;ptid=1577595" target="_blank">shadowof 发表于 2024-5-8 23:32</a>
+
+6周年送全员初期SSR一共28张，&amp;#x4EC ...</blockquote>
+了解，打算买个初始开干
+

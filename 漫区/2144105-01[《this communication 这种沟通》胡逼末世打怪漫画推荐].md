@@ -1534,3 +1534,19 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ストック  
+##### 149#       发表于 2024-5-8 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64847014&amp;ptid=2144105" target="_blank">KDConan 发表于 2024-5-8 04:31</a>
+这么个动不动杀孩子自保的主角谁敢动画化啊
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next- ...</blockquote>
+推上有个日本up主做本作的推广视频，说了一句名言
+“本作最大的魅力和看点就是德鲁哈殿下，但是本作不能动画化最大的罪魁祸首肯定也是德鲁哈殿下”
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

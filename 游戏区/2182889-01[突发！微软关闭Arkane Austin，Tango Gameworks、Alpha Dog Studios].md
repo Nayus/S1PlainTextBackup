@@ -1869,3 +1869,13 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
 
 干不干肯定是嘉富康拍板啊，现在自家DMCV也出来了，拿自家ip找欧美外包的风气也过去了，各方面来说都不用指望了吧，当时也不算什么正面案例
 
+
+*****
+
+####  museqsou  
+##### 199#       发表于 2024-5-8 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851445&amp;ptid=2182889" target="_blank">cedarmil1 发表于 2024-5-8 13:40</a>
+ 是一个东西啊, 忍者理论可以简称忍组了?</blockquote>
+忍组一般是指光荣的忍组。你回的那个因为有前后文说忍组看得出是说忍者理论，但你回那条没有前后文其他人也没往前翻就会误会
+

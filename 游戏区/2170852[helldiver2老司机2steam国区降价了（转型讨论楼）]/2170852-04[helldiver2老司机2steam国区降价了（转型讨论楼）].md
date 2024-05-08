@@ -440,3 +440,19 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rainknine  
+##### 4484#       发表于 2024-5-8 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851219&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-5-8 13:19</a>
+轨道毒气现在还能秒杀泰坦吗？我记得以前削过一次直击伤害，原来能砸爆科研站之类的任务建筑，现在不行了 ...</blockquote>
+今晚再试了一下，
+毒气其实依然能打下研究站设施，前提是球丢得到研究站屋顶上
+
+但是毒气打身体没法秒满血的泰坦，之前应该是我的错觉
+以及不知道为什么好像也打不了坦克虫
+
+说起来毒气响应时间好像比轨道精准攻击快个一两秒，不知道为什么
+

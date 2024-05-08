@@ -867,3 +867,13 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 —— 来自 OPPO PGJM10, Android 14上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
 忠犬美强惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  塔奇克马  
+##### 1562#       发表于 2024-5-8 23:36
+
+疯女人出了脑子坏了，应该没别的缺点<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

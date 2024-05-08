@@ -12885,3 +12885,31 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 养成玩法，牢是肯定会有点牢的，何况马娘又极其成功，说不定会把牢当成功经验，就跟曾经一堆日游学废狗一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 希望万代这次吃相好看点，scsp做那么烂，但吃相一点都不好看。
 
+
+*****
+
+####  游蜓  
+##### 4223#       发表于 2024-5-8 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848905&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-8 10:41</a>
+
+高情商：符合人设
+
+之前还看到有人说中之人故意唱成这样好符合人设的（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">写歌的这帮人感觉老爱折磨歌手了
+
+*****
+
+####  cckuku  
+##### 4224#       发表于 2024-5-8 12:07
+
+我只在想会不会有中文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 4225#       发表于 2024-5-8 12:13
+
+不懂日语瞎玩，进阶到开软件玩，最后变成自学日语，也是二刺螈的一环
+

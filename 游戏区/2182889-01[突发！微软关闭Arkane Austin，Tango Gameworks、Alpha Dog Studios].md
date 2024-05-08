@@ -1433,3 +1433,18 @@ Tango真的可惜了
 —— 来自 HUAWEI ELS-AN00, Android 12上 ...</blockquote>
 斯宾塞笑话之“当年关闭狮头不是菲尔的本意，他一直在为此后悔反思并对手下工作室宽松”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tureleona  
+##### 156#       发表于 2024-5-8 12:11
+
+最该关的的是忍者组和Compulsion Games，忍组做的都是啥玩意，地刃这种神经病游戏能出2也就是微软拿来当XSX系列主机画面担当了，Compulsion做的少数幸运儿属于毫无讨论度的庸作，正在做的妮姐主角新作没期待能好到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 157#       发表于 2024-5-8 12:12
+
+三上跟索尼不共戴天…………倒也不至于，不过人老了可能想搞点自己喜欢的小规模制作玩玩算了
+

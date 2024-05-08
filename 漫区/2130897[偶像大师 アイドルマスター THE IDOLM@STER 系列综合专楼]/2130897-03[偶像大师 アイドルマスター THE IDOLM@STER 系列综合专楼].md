@@ -14151,3 +14151,21 @@ vo力虽然不行，但是整首歌还是可以的。是我感觉目前所有歌
 
 这首也是换个人唱更好吧
 
+
+*****
+
+####  伊布桑  
+##### 4375#       发表于 2024-5-8 22:57
+
+估计所有mv都是外包出去的吧，就看接单老哥的厨力了，信号灯可能代哥重视一点。
+我觉得最抽象的还是，白线那个mv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌比较普通就算了，mv也就是比一图流好点的水平
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  野菜一日分  
+##### 4376#       发表于 2024-5-8 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无可用之兵换谁去，老实说就声优而言，能唱的初出茅庐的时候就很能唱，不能唱的到最后也就是勉强能听
+

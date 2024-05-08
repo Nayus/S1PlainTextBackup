@@ -68,3 +68,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">谢谢，那太好了
 
+
+*****
+
+####  lmclmc2  
+##### 67#       发表于 2024-5-9 02:55
+
+<img src="https://img.saraba1st.com/forum/202405/09/025432y7uhdfswbvpbupzu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7146.jpeg</strong> (206.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-9 02:54 上传
+
+这机甲变形挺离谱的，本来一梭子打不死的怪变形后一炮就死了……
+

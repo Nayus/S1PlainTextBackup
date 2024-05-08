@@ -13088,3 +13088,13 @@ ML台服韩服还是活了一年多的，毕竟我对那个好几位偶像的参
 
 我没记错的话，土豆台服一周年有一位p打了个全员彩牌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  abfk  
+##### 4246#       发表于 2024-5-8 16:30
+
+清夏好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+其他就各有各的难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">giga都翻车出了个近年最低谷
+

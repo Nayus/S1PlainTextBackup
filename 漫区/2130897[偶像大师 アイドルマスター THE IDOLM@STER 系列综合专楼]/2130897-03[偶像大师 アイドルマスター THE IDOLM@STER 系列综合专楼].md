@@ -14039,3 +14039,56 @@ scsp三星的发型抽到倒是直接解锁
 
 学马那个讲作曲的节目是几号？
 
+
+*****
+
+####  倉本千奈  
+##### 4361#       发表于 2024-5-8 22:16
+
+果然没什么人气呢，ytb同接最高也只有6000多，其它人都是7000+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 4362#       发表于 2024-5-8 22:19
+
+印象里面财团b好像是地区不能选中国吗
+
+*****
+
+####  RinC  
+##### 4363#       发表于 2024-5-8 22:19
+
+这首歌剧风的可能live表现反而会意外的好 如果舞台编排到位的话
+
+*****
+
+####  rgauss  
+##### 4364#       发表于 2024-5-8 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64856676&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-5-8 22:19</a>
+印象里面财团b好像是地区不能选中国吗</blockquote>
+预抽卡锁日区
+
+*****
+
+####  野菜一日分  
+##### 4365#       发表于 2024-5-8 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有种在听普通中小学女生唱歌的感觉...唉，vo力，唉。话说每个偶像的MV质量差距也太大了
+
+
+*****
+
+####  rgauss  
+##### 4366#       发表于 2024-5-8 22:20
+
+莉波的mv究竟是谁外包出去 为什么那么穷啊<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4367#       发表于 2024-5-8 22:22
+
+vo力虽然不行，但是整首歌还是可以的。是我感觉目前所有歌总体听感最好的一首
+

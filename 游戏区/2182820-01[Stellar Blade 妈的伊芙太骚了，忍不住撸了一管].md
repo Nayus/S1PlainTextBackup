@@ -748,3 +748,11 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  osborn  
+##### 67#       发表于 2024-5-8 10:03
+
+我是觉得师姐比2b差远了 以至于确实只够撸1管的 按泥潭标准一般都是2管起步吧
+

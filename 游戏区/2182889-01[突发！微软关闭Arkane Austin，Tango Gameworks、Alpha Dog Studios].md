@@ -1657,3 +1657,28 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 
 这次怎么赢？<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 178#       发表于 2024-5-8 14:27
+
+微软哥要怎么评价
+
+*****
+
+####  coldsmile  
+##### 179#       发表于 2024-5-8 14:29
+
+你赢赢赢，到最后是输光光。
+
+*****
+
+####  变老的大二  
+##### 180#       发表于 2024-5-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851586&amp;ptid=2182889" target="_blank">甲乙丙丁戊 发表于 2024-5-8 13:54</a>
+
+在不玩游戏的高管眼里，阿肯奥斯汀就是先做了个反响平平的8分游戏掠食，再做了个大暴死的红霞岛，从商业逻 ...</blockquote>
+当初ign因为编辑玩prey出bug死档，给了prey 4分好像
+

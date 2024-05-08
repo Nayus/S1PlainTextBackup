@@ -13021,3 +13021,27 @@ dc频道里有一个global，里边有英语韩语泰语简中繁中粤语，简
 
 国际服也不会有的，万代的德行肯定是首发日服然后看情况发不发国际服，数据不好看就不发了
 
+
+*****
+
+####  Seeley  
+##### 4239#       发表于 2024-5-8 14:28
+
+ 本帖最后由 Seeley 于 2024-5-8 14:30 编辑 
+
+中文多少想太多了，只希望别太卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今晚试玩卡死事故就有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+再说只要认识offer，lesson，gift几个单词就能玩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 4240#       发表于 2024-5-8 14:30
+
+真有台服的话还有人敢去玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

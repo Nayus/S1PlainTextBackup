@@ -1993,3 +1993,24 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
 
 软软这么没见过世面么，你这也就6页还能一惊一乍
 
+
+*****
+
+####  杜微  
+##### 211#       发表于 2024-5-8 23:51
+
+tango也关？就算hifirush没赚那么多钱，起码也给微软挽回了点颜面啊，大公司的品牌价值不要考虑的？
+
+
+*****
+
+####  ultraseven  
+##### 212#       发表于 2024-5-8 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64856411&amp;ptid=2182889" target="_blank">槐聚 发表于 2024-5-8 21:46</a>
+
+索索在泥潭很收敛了，隔壁已经号丧20多页了
+
+软软这么没见过世面么，你这也就6页还能一惊一乍 ...</blockquote>
+隔壁是A9吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

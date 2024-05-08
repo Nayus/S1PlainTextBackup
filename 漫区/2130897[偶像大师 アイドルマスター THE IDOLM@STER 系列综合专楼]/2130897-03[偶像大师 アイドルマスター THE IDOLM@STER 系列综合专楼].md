@@ -14092,3 +14092,29 @@ scsp三星的发型抽到倒是直接解锁
 
 vo力虽然不行，但是整首歌还是可以的。是我感觉目前所有歌总体听感最好的一首
 
+
+*****
+
+####  darkendless  
+##### 4368#       发表于 2024-5-8 22:25
+
+这曲风，果然是小广的好朋友
+
+*****
+
+####  raimouse  
+##### 4369#       发表于 2024-5-8 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">综合素质我个人认为还得小蓝和清夏争一二
+
+这MV便宜的特别便宜富的特别富
+
+都是外包给外面做的吧，有没有偷吃经费啊
+
+*****
+
+####  kykawaiii  
+##### 4370#       发表于 2024-5-8 22:27
+
+学马能出圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

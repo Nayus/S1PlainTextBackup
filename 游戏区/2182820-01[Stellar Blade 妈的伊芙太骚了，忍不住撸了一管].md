@@ -874,3 +874,15 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  牙狼GARO  
+##### 76#       发表于 2024-5-8 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848632&amp;ptid=2182820" target="_blank">zqqwe 发表于 2024-5-8 10:22</a>
+全支线真结局通关的感想，eve真就只有肉体和动作镜头值一管，剧本台词甚至表情管理都毫无波澜，第二管往上 ...</blockquote>
+谁不喜欢黑丝疯批还会最速风神拳的雌小鬼美少女jk呢<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

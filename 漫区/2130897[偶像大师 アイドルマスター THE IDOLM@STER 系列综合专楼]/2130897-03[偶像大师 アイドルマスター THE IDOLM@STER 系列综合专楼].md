@@ -13133,3 +13133,87 @@ ML台服韩服还是活了一年多的，毕竟我对那个好几位偶像的参
 
 <img src="https://p.sda1.dev/17/a043e3bdffae7f4fdf4f331006ece2c8/CMP_20240508174208307.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rgauss  
+##### 4251#       发表于 2024-5-8 18:01
+
+动画好好好
+
+*****
+
+####  l3r0nY@  
+##### 4252#       发表于 2024-5-8 18:01
+
+我去，2d
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  l3r0nY@  
+##### 4253#       发表于 2024-5-8 18:03
+
+5.16
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Seeley  
+##### 4254#       发表于 2024-5-8 18:04
+
+什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+真就决战武器？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Swss  
+##### 4255#       发表于 2024-5-8 18:04
+
+就在下周！就在下周！
+
+*****
+
+####  水莲寺流歌  
+##### 4256#       发表于 2024-5-8 18:06
+
+ 本帖最后由 水莲寺流歌 于 2024-5-8 18:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/08/180606haois0mpgyvwijor.png" referrerpolicy="no-referrer">
+
+<strong>KO2NIY2J4GB_M2OLEBEJDAV_tmb.png</strong> (77.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 18:06 上传
+
+居然下周就开了
+
+*****
+
+####  BQlin  
+##### 4257#       发表于 2024-5-8 18:06
+
+来晚了一点 只看到开服时间 前面也有东西吗
+
+*****
+
+####  l3r0nY@  
+##### 4258#       发表于 2024-5-8 18:07
+
+代哥的全力一击
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  麻巳巳  
+##### 4259#       发表于 2024-5-8 18:07
+
+前面有游戏的op2d动画
+

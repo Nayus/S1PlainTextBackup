@@ -1274,3 +1274,22 @@ Tango真的可惜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> hifi rush这种玩意居然这么多喜欢的么
 
+
+*****
+
+####  布拉德莱恩  
+##### 140#       发表于 2024-5-8 08:23
+
+我很好奇到底是索尼不向三上真司抛橄榄枝还是三上真司真就这么看不起索尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外众所周知，343里的OG Bungie员工数量远远多于Bungie里的OG Bungie员工数量，那么为何反而纯度更高的343开发的光环被骂了这么多年？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuluwu  
+##### 141#       发表于 2024-5-8 08:25
+
+怪不得hifirush进包了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

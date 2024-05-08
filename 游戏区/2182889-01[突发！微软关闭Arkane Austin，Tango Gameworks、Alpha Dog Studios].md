@@ -1567,3 +1567,24 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 育碧游戏不少进XGP和PS+二档来着</blockquote>
 我意思是首发进xgp，毕竟现在育碧定价太司马，我这种育boy都快受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 169#       发表于 2024-5-8 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851011&amp;ptid=2182889" target="_blank">Yeelolo 发表于 2024-5-8 12:58</a>
+
+我意思是首发进xgp，毕竟现在育碧定价太司马，我这种育boy都快受不了了 ...</blockquote>
+可以闲鱼上买育碧会员的激活资格吧，毕竟那个可以一鱼两吃，同时绑定PC和Xbox
+
+*****
+
+####  ultraseven  
+##### 170#       发表于 2024-5-8 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851011&amp;ptid=2182889" target="_blank">Yeelolo 发表于 2024-5-8 12:58</a>
+
+我意思是首发进xgp，毕竟现在育碧定价太司马，我这种育boy都快受不了了 ...</blockquote>
+为什么不订阅育碧会员呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且育碧一个月就打7折了啊
+

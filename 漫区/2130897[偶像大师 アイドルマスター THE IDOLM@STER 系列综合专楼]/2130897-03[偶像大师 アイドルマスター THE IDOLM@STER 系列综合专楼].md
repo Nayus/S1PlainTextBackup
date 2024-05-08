@@ -13686,3 +13686,38 @@ op歌也不太行
 
 试玩没有？
 
+
+*****
+
+####  raimouse  
+##### 4321#       发表于 2024-5-8 18:49
+
+小鹿看着像发福kraz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 4322#       发表于 2024-5-8 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854877&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-8 18:49</a>
+小鹿看着像发福kraz</blockquote>
+而小红cv侧脸则像damayu
+
+
+*****
+
+####  Achlys  
+##### 4323#       发表于 2024-5-8 18:54
+
+お味噌ww
+
+*****
+
+####  田所あずさ  
+##### 4324#       发表于 2024-5-8 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854877&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-8 18:49</a>
+
+小鹿看着像发福kraz</blockquote>
+不需要的眼睛可以送给漏油
+

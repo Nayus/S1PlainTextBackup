@@ -1879,3 +1879,55 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
  是一个东西啊, 忍者理论可以简称忍组了?</blockquote>
 忍组一般是指光荣的忍组。你回的那个因为有前后文说忍组看得出是说忍者理论，但你回那条没有前后文其他人也没往前翻就会误会
 
+
+*****
+
+####  ycjiang1337  
+##### 200#       发表于 2024-5-8 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851806&amp;ptid=2182889" target="_blank">Todds_lies 发表于 2024-5-8 14:17</a>
+
+关tango图啥，他妈的hifirush做那么好为啥要关，微软游戏部我*你先人！</blockquote>
+不知道你有没有买或者XGP玩HFR，但起码大部分索索是不配站在道德制高点上的——因为就在两个多月前，HFR上了PS5，然后现在发售不到3个月就开始打折了……
+
+[https://store.playstation.com/zh ... 00-HIFIRUSH00000000](https://store.playstation.com/zh-hans-hk/product/HP1003-PPSA17191_00-HIFIRUSH00000000)
+
+最糟糕的情况下HFR在PS5上的收入可能都没法Cover游戏移植的成本
+
+
+*****
+
+####  ycjiang1337  
+##### 201#       发表于 2024-5-8 18:53
+
+ 本帖最后由 ycjiang1337 于 2024-5-8 18:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852927&amp;ptid=2182889" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-5-8 16:00</a>
+
+嫌弃HIFIRUSH是“没赚够足够的钱”挺神奇的，毕竟都让游戏进XGP了，不该有做慈善的心理准备吗？ ...</blockquote>
+因为就在几个月前让软软震怒的跨平台风波主角之一就是HFR，然后上了PS5之后销量直接褒姒（可能都赚不回移植成本），发售刚一个多月的现在就已经开始30% Off了，显然PS5可没有XGP，而且发售的时候已经拿了一堆奖名声在外了。
+
+同样上PS5的SoT首销的时候好歹还能占个PS5排行榜前列
+
+*****
+
+####  电磁炮233  
+##### 202#       发表于 2024-5-8 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854886&amp;ptid=2182889" target="_blank">ycjiang1337 发表于 2024-5-8 18:50</a>
+
+不知道你有没有买或者XGP玩HFR，但起码大部分索索是不配站在道德制高点上的——因为就在两个多月前，HFR ...</blockquote>
+纯血索索肯定不买对家游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ycjiang1337  
+##### 203#       发表于 2024-5-8 18:54
+
+ 本帖最后由 ycjiang1337 于 2024-5-8 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854906&amp;ptid=2182889" target="_blank">电磁炮233 发表于 2024-5-8 18:53</a>
+
+纯血索索肯定不买对家游戏</blockquote>
+那索索就更没资格号丧了，Tango最近发售的两个游戏，一个HFR一个幽灵线东京，全都上了PS5，其中HFR是拿了一堆奖之后上的PS5，幽灵线东京甚至还是索尼花钱买的主机限时独占。真要是因为商业原因被砍掉，那软软骂两句也就算了，索索肯定没资格骂。
+
+顺带一提SoT发售的时候是上了PS5游戏销量榜的
+

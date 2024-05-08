@@ -32,3 +32,13 @@
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  stevenzero  
+##### 1556#       发表于 2024-5-8 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64738180&amp;ptid=1220112" target="_blank">泰阿剑tan 发表于 2024-4-27 16:59</a>
+有十几天了，几个泥潭app全军覆没，不知道什么情况。</blockquote>
+同样的情况，主手机鹅球正常。备机同样配置官球鹅球s1fun全军覆没，网页访问可以但是会报证书错误。不知道什么原因。
+

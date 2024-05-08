@@ -13098,3 +13098,14 @@ ML台服韩服还是活了一年多的，毕竟我对那个好几位偶像的参
 
 其他就各有各的难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">giga都翻车出了个近年最低谷
 
+
+*****
+
+####  Thalassa  
+##### 4247#       发表于 2024-5-8 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851795&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-5-8 15:15</a>
+
+我没去求证，我只是记得上个月楼里有漏油提过官方dc开了中文和粤语版 ...</blockquote>
+找到了，感谢~
+

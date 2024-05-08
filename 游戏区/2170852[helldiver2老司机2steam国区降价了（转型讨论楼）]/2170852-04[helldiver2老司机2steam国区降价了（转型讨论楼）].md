@@ -29,3 +29,11 @@
 —— 来自 Xiaomi 23013RK7 ...</blockquote>
 和不了一点，爆典太多整天被人拿出来鞭尸，留着早晚出事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 4444#       发表于 2024-5-8 08:50
+
+大胡子说的应该是本次改动里有一部分没有达成预期目的，其中包括爆裂铳的改动
+

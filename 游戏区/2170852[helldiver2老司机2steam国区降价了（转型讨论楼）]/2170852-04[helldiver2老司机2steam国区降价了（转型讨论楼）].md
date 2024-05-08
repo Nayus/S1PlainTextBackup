@@ -407,3 +407,19 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 社管下了，策划顶上是吧
 
+
+*****
+
+####  FLZB  
+##### 4481#       发表于 2024-5-8 20:30
+
+<img src="https://img.saraba1st.com/forum/202405/08/202639iadju0swuaxxhz8e.jpg" referrerpolicy="no-referrer">
+
+<strong>20240508201352_1_cr.jpg</strong> (70.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 20:26 上传
+
+现在solo这怪量，一波没压住直接再起不能，我炸个巢附近就凭空刷了几支巡逻队加入战斗，带着满屏的怪连拉了三波警报越打越多，黄胖混强袭混泰坦混追猎，太享受了……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

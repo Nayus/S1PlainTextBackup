@@ -13956,3 +13956,27 @@ ip那个高级怨种池开了之后一次都没抽过+1。这次一起端上来�
 
 刚上线应该没那么夸张，等多几年可能也一堆有偿池吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 4352#       发表于 2024-5-8 20:25
+
+一登上QQ就看到了来自路人的正义锐评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ALJ8)83A5F}FA%]0Z)MQC2W.png
+(16.76 KB, 下载次数: 1)
+
+下载附件
+
+2024-5-8 20:24 上传
+
+<img src="https://img.saraba1st.com/forum/202405/08/202411lssfe77zsf7fq2bg.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 4353#       发表于 2024-5-8 20:28
+
+那确实是啊，音乐没几首（综合质量和vo还一言难尽），手游玩法没啥意思，但是出谷子出得挺勤快的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

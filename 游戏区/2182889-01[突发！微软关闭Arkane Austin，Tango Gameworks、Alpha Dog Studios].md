@@ -1931,3 +1931,11 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
 
 顺带一提SoT发售的时候是上了PS5游戏销量榜的
 
+
+*****
+
+####  suzakushi  
+##### 204#       发表于 2024-5-8 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索索骂两句微软还要软软授权。你都没看过我家哥哥作品凭什么黑我家哥哥。
+

@@ -371,3 +371,21 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正爆裂铳这平衡我只能说数值策划确实不玩这个游戏，别说性能够不够了，这武器还有什么特色吗
 
+
+*****
+
+####  Aeons  
+##### 4477#       发表于 2024-5-8 18:07
+
+爆裂铳是削废了吗
+
+*****
+
+####  FLZB  
+##### 4478#       发表于 2024-5-8 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64853769&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-5-8 17:08</a>
+
+可能跟箭头在discord圈地自high有关系，一堆脑残粉捧臭脚</blockquote>
+说起来平时x逛窑子就经常看到鬼船的直播链接，他们不光玩DRG还玩别家的游戏（比如HD2）。相比之下箭头这边测试组话事人完全不懂自家游戏的机制设定，玩个难5丑态百出，真是高下立判<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -363,3 +363,11 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 2024-5-8 17:07 上传
 
+
+*****
+
+####  ravend233  
+##### 4476#       发表于 2024-5-8 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正爆裂铳这平衡我只能说数值策划确实不玩这个游戏，别说性能够不够了，这武器还有什么特色吗
+

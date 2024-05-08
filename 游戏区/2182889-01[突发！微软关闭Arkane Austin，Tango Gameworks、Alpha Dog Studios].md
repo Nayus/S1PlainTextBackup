@@ -1380,3 +1380,15 @@ Tango真的可惜了
 但是在经济和奖励系统上无限比Halo5激进多了，这是我们的限时活动/战令/20美元起一套捆绑包，老害们别10美 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">h5那么良心的开包都被喷惨了，自己选的嘛靓仔
 
+
+*****
+
+####  ab20000801  
+##### 151#       发表于 2024-5-8 11:52
+
+<blockquote>布拉德莱恩 发表于 2024-5-8 08:23
+我很好奇到底是索尼不向三上真司抛橄榄枝还是三上真司真就这么看不起索尼
+
+</blockquote>
+这个真不一定吧，为啥一直有人说ogbungie都在343啊，现在bungie的主管层的多数都还是老bungie那些人，老棒极其实很多人都在ca和firewalk这两个组
+

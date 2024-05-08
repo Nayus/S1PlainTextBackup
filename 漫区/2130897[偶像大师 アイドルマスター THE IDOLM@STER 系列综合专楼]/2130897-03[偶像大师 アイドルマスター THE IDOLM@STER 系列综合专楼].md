@@ -13941,3 +13941,18 @@ ip那个高级怨种池开了之后一次都没抽过+1。这次一起端上来�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我上个月回坑SC的时候，点进抽卡数了数有15个卡池，是真的逆天，那么学马到时候会有多少呢
 
+
+*****
+
+####  北条早苗  
+##### 4350#       发表于 2024-5-8 20:16
+
+是你，ip画面的sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 4351#       发表于 2024-5-8 20:16
+
+刚上线应该没那么夸张，等多几年可能也一堆有偿池吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

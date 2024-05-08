@@ -738,3 +738,13 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 这完全就是黑人身材。。。。
 
+
+*****
+
+####  poptopzip  
+##### 66#       发表于 2024-5-8 09:33
+
+有没有gantz的联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

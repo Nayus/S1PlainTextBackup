@@ -9736,3 +9736,17 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  被子十三  
+##### 804#       发表于 2024-5-8 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64848364&amp;ptid=2178694" target="_blank">三俗怪人 发表于 2024-5-8 10:04</a>
+福田说希望看了的人笑着走出电影院， 我看完是满脸绷不住的笑容。</blockquote>
+这个真的是笑死我了，电影开播前我看他这么说心里想到底是啥意思啊
+
+看完电影后：原来是这么个意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

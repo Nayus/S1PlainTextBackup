@@ -13485,3 +13485,27 @@ w5 平潮
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ‮‮‮‮  
+##### 4313#       发表于 2024-5-8 23:24
+
+毕业了
+
+<img src="https://img.saraba1st.com/forum/202405/08/232357blvfosf0ynoezid2.png" referrerpolicy="no-referrer">
+
+<strong>68d018c4ba0855de9a1346fb91e177fd.png</strong> (131.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 23:23 上传
+
+<img src="https://img.saraba1st.com/forum/202405/08/232401cgduvwv3w3y6qx11.png" referrerpolicy="no-referrer">
+
+<strong>1ee05eb2582fd1815b995613afe7a4ca.png</strong> (32.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 23:24 上传
+

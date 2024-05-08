@@ -14205,3 +14205,38 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 万代你可别告诉我莉莉娅的mv和千奈的mv花了同样的经费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 4381#       发表于 2024-5-8 23:16
+
+经费肯定有多有少啦，大概就是要做出不同风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有一说一，这些cv正因为不是歌手，参与了偶像企划练一练，能提高不少歌力。
+
+
+*****
+
+####  黑翼死神  
+##### 4382#       发表于 2024-5-8 23:21
+
+什麼時候變得這麼嚴格了，不如說大部分新人參加企劃的時候vo力也不怎麼樣吧 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+加上愛馬仕不也是習慣找新人嗎?
+
+*****
+
+####  rslika  
+##### 4383#       发表于 2024-5-8 23:25
+
+这种与企划强绑定的2.5次元偶像声优进步速度都是飞快的
+
+代的拉拉几轮下来都是这样
+
+*****
+
+####  cckuku  
+##### 4384#       发表于 2024-5-8 23:26
+
+话说到这里，有没有拉偶双推的漏油告诉我，隔壁星团那个payton尚未是什么来头？我今天刷到她唱妄想感伤代偿联盟，给我听的惊为天人啊一点失误都没有，本人真的有这么牛吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

@@ -855,3 +855,15 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 —— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  医生狼多  
+##### 1561#       发表于 2024-5-8 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857060&amp;ptid=1978008" target="_blank">彩虹肥宅 发表于 2024-5-8 23:11</a>
+不是吧，怎么都喜欢疯女人
+
+—— 来自 OPPO PGJM10, Android 14上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+忠犬美强惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -192,3 +192,18 @@
 
 关键是这关过了不是就拜拜了后面还会掉回来的还要重新再过无数次的这关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还是得重头练好基础功要不后面越困难
 
+
+*****
+
+####  星の守  
+##### 9762#       发表于 2024-5-8 23:16
+
+结果还是输了，也好，以后别让我看见这个游戏了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9763#       发表于 2024-5-8 23:21
+
+不是，最后10分钟故意放水掉的吧，什么操作看不下去
+

@@ -1947,3 +1947,18 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
 
 人是哭丧吗？人是嘲笑你微软。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 206#       发表于 2024-5-8 20:46
+
+好了好了总结一下还是索尼的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  origen  
+##### 207#       发表于 2024-5-8 20:47
+
+软软的逆天程度令人惊讶
+

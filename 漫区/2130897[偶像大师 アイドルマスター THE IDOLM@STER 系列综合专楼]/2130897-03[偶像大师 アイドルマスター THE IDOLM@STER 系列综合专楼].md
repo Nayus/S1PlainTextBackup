@@ -13980,3 +13980,11 @@ ALJ8)83A5F}FA%]0Z)MQC2W.png
 
 那确实是啊，音乐没几首（综合质量和vo还一言难尽），手游玩法没啥意思，但是出谷子出得挺勤快的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三度音  
+##### 4354#       发表于 2024-5-8 20:41
+
+像IP还有一点好处的，那就是UX远比万南这堆手游现代。长按加速剧情，加速抽卡，快速切去各个分页面，很舒服（不过马娘也做得到
+

@@ -778,3 +778,11 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 PV里白色那个空降服怎么没找到啊</blockquote>
 不太清楚我们说的是不是同一件，但如果是pv里那件屁股后面有类似电源线带一样的装饰的话，是二周目就会自动进包。
 
+
+*****
+
+####  隔壁老黄  
+##### 1553#       发表于 2024-5-8 19:57
+
+刚打完撸娃高层，为啥卖破烂萝莉颜值高得那么离谱，其他角色加起来也打不过啊<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

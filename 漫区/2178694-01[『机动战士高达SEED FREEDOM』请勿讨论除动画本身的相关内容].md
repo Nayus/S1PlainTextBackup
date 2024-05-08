@@ -9549,3 +9549,18 @@ HG宙斯命运还是通贩，放长线可以不怕被炒价</blockquote>
 
 美国今天上，刚才看完了，整个厅从头笑到尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  outel  
+##### 788#       发表于 2024-5-8 12:43
+
+<blockquote>引用第786楼圈量子于2024-05-07 21:13发表的  :
+
+美国今天上，刚才看完了，整个厅从头笑到尾从未见过如此欢乐的场面</blockquote>
+@圈量子
+
+严重虐狗 建议带妹看<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
+

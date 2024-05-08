@@ -1464,3 +1464,33 @@ arkane做IP改编跟死了有什么区别
 
 育碧打包进xgp可破，至少育碧一年做一部八分游戏没啥问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再不济就是7分，也不是不能玩
 
+
+*****
+
+####  itsmyrailgun  
+##### 160#       发表于 2024-5-8 12:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就别泼脏水说什么HIFIRUSH不赚钱了，HIFIRUSH肯定是名利双收的，在首发进XGP的情况下，这游戏在steam上还有两万多个评价，粗略估算仅steam平台销量有60-70万。去年四月份XBOX的营销副总裁是这么评价的： <blockquote>Hi-Fi RUSH was a break out hit for us and our players in all key measurements and expectations. We couldn’t be happier with what the team at Tango Gameworks delivered with this surprise release.
+
+由
+
+Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带来了突破性成功。我们对 Tango Gameworks 团队推出的这款惊喜产品感到非常满意。</blockquote>
+那么这一几乎代表了去年一整年XBOX颜面的作品所在工作室被砍，其原因要么是三上真司走了以后核心团队流失太大对外来预期悲观，要么是他走了以后没人帮Tango说话导致它被优先砍掉，都是非常可悲——看，又成为了愚蠢办公室政治的牺牲品，如此看来，我真心觉得微软看起来只配出垃圾第一方！
+
+
+*****
+
+####  itsmyrailgun  
+##### 161#       发表于 2024-5-8 12:47
+
+另外，Hifi-rush的发售可以说很突然，微软都没怎么做预热，配套营销措施少得可怜，这么一款他们都不看好的作品却成了获奖无数的2023年微软第一方唯一指定遮羞布。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀着最大的恶意撺掇的话，该不会有自诩“懂游戏”打造”资深玩家“人设的人被打脸了吧？
+
+*****
+
+####  itsmyrailgun  
+##### 162#       发表于 2024-5-8 12:47
+
+另外，Hifi-rush的发售可以说很突然，微软都没怎么做预热，配套营销措施少得可怜，这么一款他们都不看好的作品却成了获奖无数的2023年微软第一方唯一指定遮羞布。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀着最大的恶意撺掇的话，该不会有自诩“懂游戏”打造”资深玩家“人设的人被打脸了吧？
+

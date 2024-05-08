@@ -690,3 +690,11 @@ fd9bc067f6f584fb006a832b931b1e5f.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 两管变一管，坛友的体质令人担心。
 
+
+*****
+
+####  woaimiyabi  
+##### 60#       发表于 2024-5-8 07:49
+
+要是游戏里面也都是同人图这种画风就好了
+

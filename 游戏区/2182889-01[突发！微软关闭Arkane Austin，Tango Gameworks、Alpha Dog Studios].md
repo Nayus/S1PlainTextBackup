@@ -1721,3 +1721,15 @@ prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的
 为什么不订阅育碧会员呢而且育碧一个月就打7折了啊</blockquote>
 国区没有，懒得弄<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darcia  
+##### 185#       发表于 2024-5-8 15:54
+
+百度了下，HIFIRUSH是“没赚够足够的钱”
+
+红霞岛是销量惨淡（进steam前20一次都能当新闻。
+
+光环无限再怎么骂还是有几次steam榜首的（都没有具体销量。
+

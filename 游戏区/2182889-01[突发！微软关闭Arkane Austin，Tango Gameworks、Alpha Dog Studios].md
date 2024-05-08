@@ -2026,3 +2026,18 @@ XBOX真的一点品味没有
 
 hfr还拿了几个奖 xbox第一方工作室有谁去年拿了奖 星空吗
 
+
+*****
+
+####  ouyang菌  
+##### 214#       发表于 2024-5-9 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857787&amp;ptid=2182889" target="_blank">astrayveller 发表于 2024-05-09 00:52:48</a>
+prey的那个DLC mooncrash都比死亡循环好玩
+
+XBOX真的一点品味没有
+
+hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>那当然是我tga得奖数第三的新极限竞速
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

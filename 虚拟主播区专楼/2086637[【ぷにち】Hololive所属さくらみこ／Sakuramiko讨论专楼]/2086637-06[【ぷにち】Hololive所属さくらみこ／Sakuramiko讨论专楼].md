@@ -6550,3 +6550,27 @@ GW有一个自己的企划预定，运营那边有没有企划不清楚
 
 这控球稳定力太NB了，一发通关了，本来以为今天过不了的
 
+
+*****
+
+####  Map-2  
+##### 8762#       发表于 2024-5-8 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855308&amp;ptid=2086637" target="_blank">holoan 发表于 2024-5-8 19:38</a>
+
+没掉多远就算了，直接掉了6 7关出去前几次从来没掉出那么远，你可以等夸她们推到这个时候再看看，有的人看 ...</blockquote>
+5关
+
+*****
+
+####  holoan  
+##### 8763#         楼主| 发表于 2024-5-8 20:03
+
+<img src="https://img.saraba1st.com/forum/202405/08/200318l2juuimjc0niyutf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 20:03 上传
+

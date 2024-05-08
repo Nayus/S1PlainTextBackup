@@ -1733,3 +1733,41 @@ prey做完后创始人跑路自己另外开工作室，后面还就prey撞名的
 
 光环无限再怎么骂还是有几次steam榜首的（都没有具体销量。
 
+
+*****
+
+####  甲乙丙丁戊  
+##### 186#       发表于 2024-5-8 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851943&amp;ptid=2182889" target="_blank">变老的大二 发表于 2024-05-08 14:31:57</a>
+当初ign因为编辑玩prey出bug死档，给了prey 4分好像</blockquote>后面改成8分，然后到死亡循环又给了个10分，搞笑的，这俩评分对调一下还差不多。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  毛利提督  
+##### 187#       发表于 2024-5-8 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851943&amp;ptid=2182889" target="_blank">变老的大二 发表于 2024-5-8 14:31</a>
+
+当初ign因为编辑玩prey出bug死档，给了prey 4分好像</blockquote>
+而且不是一次，是坏档重打了两次
+
+这要是还能给高分才是铁定塞钱了吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 188#       发表于 2024-5-8 16:00
+
+嫌弃HIFIRUSH是“没赚够足够的钱”挺神奇的，毕竟都让游戏进XGP了，不该有做慈善的心理准备吗？
+
+
+*****
+
+####  roamer  
+##### 189#       发表于 2024-5-8 16:00
+
+微软又发挥传统艺能了
+

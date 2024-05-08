@@ -798,3 +798,14 @@ PV里白色那个空降服怎么没找到啊</blockquote>
  ...</blockquote>
 后面还有更高的
 
+
+*****
+
+####  过气页游  
+##### 1555#       发表于 2024-5-8 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854021&amp;ptid=1978008" target="_blank">ky7913 发表于 2024-5-8 18:30</a>
+
+你是找第6小队的改版吧，二周目才能拿到，就在一周目拿第6小队的埃多斯9号地区 ...</blockquote>
+对，好像就是这个，多谢了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

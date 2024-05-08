@@ -1980,3 +1980,16 @@ dmc本来就是卡普空外包给忍者理论做试水的吧。
 
 惊了，互联网吐槽微软还需要授权资格，你谁啊，中宣部吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  槐聚  
+##### 210#       发表于 2024-5-8 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854912&amp;ptid=2182889" target="_blank">ycjiang1337 发表于 2024-5-8 18:54</a>
+
+那索索就更没资格号丧了，Tango最近发售的两个游戏，一个HFR一个幽灵线东京，全都上了PS5，其中HFR是拿了 ...</blockquote>
+索索在泥潭很收敛了，隔壁已经号丧20多页了
+
+软软这么没见过世面么，你这也就6页还能一惊一乍
+

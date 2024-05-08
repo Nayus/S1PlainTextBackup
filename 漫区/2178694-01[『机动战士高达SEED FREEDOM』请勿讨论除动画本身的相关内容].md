@@ -9680,3 +9680,14 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 迦楼罗HG素质完爆非自可还行</blockquote>
 图片被吞了，重新发一下吧。
 
+
+*****
+
+####  七七見奈波  
+##### 799#       发表于 2024-5-8 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851731&amp;ptid=2178694" target="_blank">ナルバレック 发表于 2024-5-8 14:11</a>
+
+迦楼罗HG素质完爆非自可还行</blockquote>
+淦，迦楼罗真好看，旁边MSF那坨金色的玩意和几条粉色的玩意简直伤眼
+

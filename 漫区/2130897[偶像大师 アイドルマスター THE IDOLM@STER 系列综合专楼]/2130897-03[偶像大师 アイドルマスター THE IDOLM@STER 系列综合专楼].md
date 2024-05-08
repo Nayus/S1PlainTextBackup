@@ -12951,3 +12951,29 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 
 有中文的话，我会原谅万代的一切（仅限开服前）
 
+
+*****
+
+####  Thalassa  
+##### 4231#       发表于 2024-5-8 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850524&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-5-8 13:23</a>
+
+官方discord开了中文频道啊，出一个中文也很合理吧？</blockquote>
+啊？看了眼DC还是那几个频道啊？
+
+*****
+
+####  Anatoly  
+##### 4232#       发表于 2024-5-8 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代孙对中文的理解不都是单开繁中服吗
+
+
+*****
+
+####  权志龙  
+##### 4233#       发表于 2024-5-8 13:43
+
+中文指出台服 然后半年后萨终
+

@@ -1601,3 +1601,14 @@ Hi-Fi RUSH 在所有关键指标和预期方面都为我们和我们的玩家带
 虽然忍组也喜欢给游戏里掺点粪, 但人家一直不忘黄暴的初心 ...</blockquote>
 你说的啥，我们讨论的是一个东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cedarmil1  
+##### 172#       发表于 2024-5-8 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64851331&amp;ptid=2182889" target="_blank">tureleona 发表于 2024-5-8 14:30</a>
+
+你说的啥，我们讨论的是一个东西吗</blockquote>
+是一个东西啊, 忍者理论可以简称忍组了?
+

@@ -830,3 +830,18 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 就是要按快一点
 
+
+*****
+
+####  ff2077  
+##### 1558#       发表于 2024-5-8 22:55
+
+打到进卢瓦了 两个问题吧 一个是按键的输入挺怪的 动作性挺强的但动作之间的衔接挺烂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1559#       发表于 2024-5-8 22:57
+
+最好看的还得是师姐吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

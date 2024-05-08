@@ -9721,3 +9721,18 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 代哥这次再加个完全新规Mg那真的就是怒涛了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">没个大的总感觉差了点什么
 
+
+*****
+
+####  X(iaolw)S  
+##### 803#       发表于 2024-5-8 22:49
+
+<blockquote>引用第800楼Sleipnirω于2024-05-08 22:00发表的  :
+
+迦楼罗这分色给新安洲看哭了，还给了特效件，代便这次这么良心吗</blockquote>
+@Sleipnirω
+
+3700呢，就比rg新安洲便宜100
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

@@ -809,3 +809,16 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 你是找第6小队的改版吧，二周目才能拿到，就在一周目拿第6小队的埃多斯9号地区 ...</blockquote>
 对，好像就是这个，多谢了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ShiKi847  
+##### 1556#       发表于 2024-5-8 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854140&amp;ptid=1978008" target="_blank">扑克脸军曹 发表于 2024-5-8 17:40</a>
+
+一周目没拿到碾压脊椎，亏麻
+
+玩下来战斗系统确实有点像新战神，一开始弹刀弹一整套然后处决，差点以为回到 ...</blockquote>
+流程设计也很新战神，半开放世界+线性关卡
+

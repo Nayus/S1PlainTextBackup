@@ -24,3 +24,14 @@
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wfhtony  
+##### 5445#       发表于 2024-5-8 19:24
+
+看6月的两场livehouse结束之后会公布些啥吧...
+当时那张PPT，除了这个财年Q4关服之外，还有「万南（从Cy手上）回收版权」「万南自己的制作组准备开始制作CG的新手游（MLTD的制作组也会参与）」等消息。
+
+—— 來自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

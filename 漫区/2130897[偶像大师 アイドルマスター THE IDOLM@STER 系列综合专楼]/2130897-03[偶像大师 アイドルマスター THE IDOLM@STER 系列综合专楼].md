@@ -12800,3 +12800,21 @@ Mao的pv听起来没啥毛病，但其实电得有些明显，所以不好说。
 感觉歌挺好的，声线也挺好的，就是这个演唱水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 4215#       发表于 2024-5-8 09:27
+
+歌好正常啊，至于vo力啥的已经没法指望了
+
+<img src="https://img.saraba1st.com/forum/202405/08/092613t9ye3qhpi9eide3a.jpg" referrerpolicy="no-referrer">
+
+<strong>f8600a226423eec082267a78cb3bbd3.jpg</strong> (370.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-8 09:26 上传
+
+另外B站这推送，我只能用一个词形容，歹毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

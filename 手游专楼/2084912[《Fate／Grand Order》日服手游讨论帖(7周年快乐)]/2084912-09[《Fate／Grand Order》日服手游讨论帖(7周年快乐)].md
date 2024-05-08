@@ -7918,3 +7918,18 @@ https://github.com/rayshift/translatefgo/
 中文主要是字体原因 ...</blockquote>
 还有这个是不是也失效了：[https://www.caimogu.cc/post/242401.html](https://www.caimogu.cc/post/242401.html)，我看很久没更新。现在fgo的中文是不是没有一个可行的？
 
+
+*****
+
+####  琴酒  
+##### 12726#       发表于 2024-5-8 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64847800&amp;ptid=2084912" target="_blank">gulant 发表于 2024-5-8 09:08</a>
+
+还有这个是不是也失效了：https://www.caimogu.cc/post/242401.html，我看很久没更新。现在fgo的中文是不 ...</blockquote>
+是的
+
+不过很久之前有个叫kuyo的加速器的软件自带汉化 不过不敢用
+
+怀疑和蘑菇一样是魔改字体的apk
+

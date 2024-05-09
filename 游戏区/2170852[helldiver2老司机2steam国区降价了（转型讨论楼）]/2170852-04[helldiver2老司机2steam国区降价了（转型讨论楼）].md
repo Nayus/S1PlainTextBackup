@@ -827,3 +827,41 @@ Hey, yeah i think we've gone too far in some areas. Will talk to the team about 
 榴弹手枪捡野生弹药箱就补一发，组队不就是弹药黑洞</blockquote>
 ↑↓→←↑可回满全部弹药
 
+
+*****
+
+####  风萧飒  
+##### 4520#       发表于 2024-5-9 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861692&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-9 13:02</a>
+不是，这是同人还是解包啊？真要打叛军？</blockquote>
+解包有疑似平行宇宙的超级地球
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DawnGuardian  
+##### 4521#       发表于 2024-5-9 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861759&amp;ptid=2170852" target="_blank"> 风萧飒 发表于 2024-5-9 13:11</a> 引用:DawnGuardian 发表于 2024-5-9 13:02 不是，这是同人还是解包啊？真要打叛军？ 解包有疑似平行宇宙的超级地球  —— 来自 S1Fun </blockquote>
+有点抽象啊，这玩意是准备做成第四阵营？那样不会跟机器人重复吗？来自: iPhone客户端
+
+
+*****
+
+####  Awanano  
+##### 4522#       发表于 2024-5-9 13:15
+
+所以以前加载界面说的不要跟敌人说话指的是这个阵营？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  赤井稻妻  
+##### 4523#       发表于 2024-5-9 13:17
+
+问题是解包这么多内容你倒是放啊，现在如果大伙正在快乐屠杀光能者或者被光能者屠杀谁还有空喷你箭头啊
+

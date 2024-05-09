@@ -13519,3 +13519,14 @@ w5 平潮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 4315#       发表于 2024-5-9 10:16
+
+以后3代投稿涂鸦不用绑FB和X了
+2代则是直接把展示涂鸦这个功能取消了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -2065,3 +2065,23 @@ hifi前不久不是搞出ps平台优化最好吗，已有取死之道。
 
 Tom Warren和Jason发布这两篇报道之后，我彻底看不懂为什么要砍掉探戈了
 
+
+*****
+
+####  牛奶笛  
+##### 218#       发表于 2024-5-9 10:33
+
+hifirush总监在x上开始输出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前看资料片，是一个很年轻有活力的团队，就这么没了
+
+*****
+
+####  zid99825  
+##### 219#       发表于 2024-5-9 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64859682&amp;ptid=2182889" target="_blank">日日日日日野 发表于 2024-5-9 10:10</a>
+Tom Warren和Jason发布这两篇报道之后，我彻底看不懂为什么要砍掉探戈了</blockquote>
+一年了，手上没有任何已经立项的项目……
+取死之道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

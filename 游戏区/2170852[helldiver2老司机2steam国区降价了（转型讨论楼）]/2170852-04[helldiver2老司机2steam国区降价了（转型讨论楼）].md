@@ -611,3 +611,34 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 离子喷和电喷也不是加强伤害而是加强了射速。
 
+
+*****
+
+####  wthall  
+##### 4501#       发表于 2024-5-9 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860328&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-9 11:01</a>
+
+说明他们知道武器强在哪里，弱在哪里
+
+离子喷和电喷也不是加强伤害而是加强了射速。 ...</blockquote>
+还加了击退。他们做平衡的目的是为了让你玩的不爽延长游戏时间而已
+
+
+*****
+
+####  6x6z6w  
+##### 4502#       发表于 2024-5-9 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860310&amp;ptid=2170852" target="_blank">YWNS 发表于 2024-5-9 11:00</a>
+
+这游戏好容易玩到后i面黑屏闪退 有什么办法吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">没有，建议你多验证几次文件完整性，打两场就退出重开，减少bug几率
+
+*****
+
+####  Mr.Hopp  
+##### 4503#       发表于 2024-5-9 11:15
+
+这次的指令是不是又没法完成了？
+

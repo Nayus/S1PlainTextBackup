@@ -14351,3 +14351,13 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 —— 来自 S1Fun ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">?看不起我们百万?
 
+
+*****
+
+####  超法拉  
+##### 4398#       发表于 2024-5-9 08:40
+
+柏友摸着自己良心问问，这企划现在喂饱这些老人就差不多了，拉的到新人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

@@ -1091,3 +1091,27 @@ app是不是炸了，楼友发的图我全看不到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下新枪面板，看着过于幽默了
 
+
+*****
+
+####  Mr.Hopp  
+##### 4547#       发表于 2024-5-9 17:36
+
+那两把突击步枪我看描述都是打特效的，击退啥的，不知道实际效果如何。
+
+*****
+
+####  暴走的包子  
+##### 4548#       发表于 2024-5-9 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">燃烧摔炮还行，但是手雷位我已经离不开晕雷了，其他枪没什么试用的必要，肯定都是垃圾
+
+*****
+
+####  ravend233  
+##### 4549#       发表于 2024-5-9 17:37
+
+ar伤害区间太小了，数值也确实很难办，还是得整体加伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

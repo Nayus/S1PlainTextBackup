@@ -633,3 +633,15 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 
 真正奠定David Jaffe江湖地位的是暴力竞速游戏Twisted Metal系列，这是他一手打造的，而且出了好多代。但因为是老PS独占而且多年没新作，新一批玩家不知道。但在老一代PS玩家里那是很有名的系列
 
+
+*****
+
+####  魔法酪饼  
+##### 65#       发表于 2024-5-9 21:32
+
+ 本帖最后由 魔法酪饼 于 2024-5-9 21:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861164&amp;ptid=2183057" target="_blank">midimusic 发表于 2024-5-9 12:07</a>
+
+题外话，老战神杰夫最大的作用就是把自己扎实的关卡设计能力展现出来了，类比下新战神在诸神黄昏才比得上do ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 啊？诸神黄昏的战斗比得上doom永恒了？屎和巧克力都是咖啡色的是吧。
+

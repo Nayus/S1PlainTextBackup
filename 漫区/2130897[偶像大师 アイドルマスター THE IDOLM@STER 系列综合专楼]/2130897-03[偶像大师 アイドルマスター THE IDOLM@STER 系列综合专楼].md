@@ -14369,3 +14369,19 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 里三巨头可惜了，如果她们当主角人气不会比这些人差<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 4400#       发表于 2024-5-9 09:20
+
+无所谓吧，ip里面3x一开始也是对手位呢。反正都是qa做的，等一个里三周年入队
+
+
+*****
+
+####  hinarin  
+##### 4401#       发表于 2024-5-9 09:23
+
+热度还行吧 一万基本盘足够养活一个企划
+

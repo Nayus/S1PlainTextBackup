@@ -1027,3 +1027,13 @@ PS5 剑星：67131本（首周）</blockquote>
 
 太莫名其妙了吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依存香炉  
+##### 1579#       发表于 2024-5-10 01:31
+
+adam这名字一出就能猜到这人有反转，但是角色塑造实在太差了，整个游戏adam除了和lily斗下嘴之外还就没有任何性格表现了
+
+说着融合还是半裸，我还以为要和eve来段动作戏，结果就是碰碰手指。融合之后eve就换了套衣服，这哪叫融合，叫eve把adam给吸收了还差不多
+

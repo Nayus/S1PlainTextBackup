@@ -14726,3 +14726,34 @@ Moe Shop是这样的，唱是不难唱，就是有点考验舞台效果，最后
 
 说实话，目前这个热度真的是一脸暴死相啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊布桑  
+##### 4438#       发表于 2024-5-9 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64867812&amp;ptid=2130897" target="_blank">ytttsuuuba 发表于 2024-5-9 23:30</a>
+这首还有光景和luna say maybe我都特别喜欢</blockquote>
+还真是，你列这三首也是我喜欢的前三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  ViviR  
+##### 4439#       发表于 2024-5-9 23:42
+
+没事，曲子数量起来后一切都会好起来的。
+
+
+*****
+
+####  kirakira~  
+##### 4440#       发表于 2024-5-9 23:47
+
+咋说呢，总不能全都往奇形怪状的方向跑吧（
+
+目前大部分曲子比起要求，更像是让作曲自由发挥的感觉？
+
+话说热度感觉还行，可能是因为我推特被爱马仕包围了
+

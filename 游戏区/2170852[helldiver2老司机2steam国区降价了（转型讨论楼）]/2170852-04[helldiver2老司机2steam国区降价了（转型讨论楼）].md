@@ -865,3 +865,25 @@ Hey, yeah i think we've gone too far in some areas. Will talk to the team about 
 
 问题是解包这么多内容你倒是放啊，现在如果大伙正在快乐屠杀光能者或者被光能者屠杀谁还有空喷你箭头啊
 
+
+*****
+
+####  风萧飒  
+##### 4524#       发表于 2024-5-9 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861768&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-9 13:12</a>
+有点抽象啊，这玩意是准备做成第四阵营？那样不会跟机器人重复吗？</blockquote>
+应该不会是第四势力吧，感觉是什么特殊机制<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  大肥鸽子  
+##### 4525#       发表于 2024-5-9 13:27
+
+app是不是炸了，楼友发的图我全看不到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

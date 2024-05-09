@@ -4684,3 +4684,18 @@ Piano emo punk是吧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 （型号是NTG-LTD）
 
+
+*****
+
+####  Aloereed  
+##### 16708#       发表于 2024-5-9 22:42
+
+看截图本来以为是独角兽高强度自搜回复了，原来是在X上求鼓励啊（
+
+*****
+
+####  NODY  
+##### 16709#       发表于 2024-5-9 22:42
+
+武士道有点太现实了，联动只有人气高的爱灯猫，素希没有，推特都吐槽怎么又是灯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

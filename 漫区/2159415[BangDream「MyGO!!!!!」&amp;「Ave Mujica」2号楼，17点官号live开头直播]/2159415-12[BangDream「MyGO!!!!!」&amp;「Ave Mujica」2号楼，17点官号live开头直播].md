@@ -4664,3 +4664,23 @@ Piano emo punk是吧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16706#       发表于 2024-5-9 22:04
+
+努力维持世界观好好笑，鸡绝对是相声团吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 16707#       发表于 2024-5-9 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64866044&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-5-9 20:29</a>
+
+这是我们的粉毛吉他主唱，你们有没有这样的粉毛吉他主唱</blockquote>
+草钻石之尘主唱怎么用的Fernandes的琴啊（）
+
+（型号是NTG-LTD）
+

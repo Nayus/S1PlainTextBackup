@@ -642,3 +642,14 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 这次的指令是不是又没法完成了？
 
+
+*****
+
+####  LiniN  
+##### 4504#       发表于 2024-5-9 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860246&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-9 10:54</a>
+
+安全清虫洞可以副手榴弹枪啊。</blockquote>
+榴弹手枪捡野生弹药箱就补一发，组队不就是弹药黑洞
+

@@ -2343,3 +2343,14 @@ hnk也身体不适换人了，主办方连续发文<img src="https://static.sara
 
 <img src="https://p.sda1.dev/17/d5a367ffcb32e5ee194039afc3ddb5fc/CMP_20240509102317596.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20164#       发表于 2024-5-9 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64859832&amp;ptid=2078110" target="_blank">一心而用 发表于 2024-5-9 10:23</a></blockquote>
+真是不往雷点上踩就不会说话
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

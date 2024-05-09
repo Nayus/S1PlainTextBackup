@@ -9774,3 +9774,14 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 北美看完了，飞鸟劝架，史黛拉开大，和狼下头三个场景全场爆笑，作为喜剧片算是合格的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太极八爪鱼  
+##### 807#       发表于 2024-5-9 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64849071&amp;ptid=2178694" target="_blank">AkaiSuisei 发表于 2024-5-7 18:51</a>
+
+我日死北美电影公司的血妈，提前一个月订的票当时就排了一场赶紧抢个位置提前给公司请假空出时间，电影院离 ...</blockquote>
+我也是北美看的，这片我记得当初是直接说有两版吧……虽然订票也挺混乱的。
+

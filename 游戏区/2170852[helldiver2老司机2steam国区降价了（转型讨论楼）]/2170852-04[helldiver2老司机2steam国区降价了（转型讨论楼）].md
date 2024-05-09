@@ -653,3 +653,22 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 安全清虫洞可以副手榴弹枪啊。</blockquote>
 榴弹手枪捡野生弹药箱就补一发，组队不就是弹药黑洞
 
+
+*****
+
+####  Launce  
+##### 4505#       发表于 2024-5-9 11:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起还有捧CEO黑暗兵法逼迫索尼的假药，但矢脑这从CEO到CM，从上到下真的都是脑子进矢
+
+
+*****
+
+####  Launce  
+##### 4506#       发表于 2024-5-9 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860310&amp;ptid=2170852" target="_blank">YWNS 发表于 2024-5-9 11:00</a>
+
+这游戏好容易玩到后i面黑屏闪退 有什么办法吗</blockquote>
+全局光那个关了试试，还不行就开个CPU和GPU监视器，看看是不是游戏搞超频超炸了
+

@@ -956,3 +956,11 @@ app是不是炸了，楼友发的图我全看不到
 
 王师真登陆了啊   我要投敌啊
 
+
+*****
+
+####  bakuza  
+##### 4533#       发表于 2024-5-9 16:43
+
+已经在亚空间漂流了10个千年的冻肉从北方的阴影重返正常空间，发现当初的管理式民主邪教占领了母星<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+

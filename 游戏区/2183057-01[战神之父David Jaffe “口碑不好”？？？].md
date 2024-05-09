@@ -492,3 +492,48 @@ Cory Barlog我一直没懂他在旧系列里到底nb在哪里，当然战神4那
 
 什么遗老
 
+
+*****
+
+####  hkguty  
+##### 53#       发表于 2024-5-9 16:46
+
+我感觉David Jaffe其实并没有经常自己报自己战神之父这个名头，而是因为他唯一能留给人们深刻印象的游戏只有战神，所以媒体转发他锐评的时候总喜欢提他是战神之父吧
+
+*****
+
+####  nilren  
+##### 54#         楼主| 发表于 2024-5-9 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863052&amp;ptid=2183057" target="_blank">banjia0815 发表于 2024-5-9 15:24</a>
+
+战神1成功，作为导演当然功劳第一，但对于Cory就一句无他是真的牛逼，人好歹是lead animator，合着没功劳直 ...</blockquote>
+气势很足，嗯
+
+不过，不管是lead animator还是 Cinematics director，还是story writer
+
+对游戏玩法的贡献，游戏乐趣的贡献，都要远低于Director、Design - Combat Scenarios
+
+说白了，2的成功是站在1的基础上的。
+
+这就跟现在说硫酸脸和神谷英树一样，现在看起来都挺废的，但人家做领导的一年考出过超越满分的成绩，你打杂十年也还是打杂一个道理
+
+都是个人看法，谈不上什么说了就算不算的，别急眼。
+
+
+*****
+
+####  nilren  
+##### 55#         楼主| 发表于 2024-5-9 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863882&amp;ptid=2183057" target="_blank">hkguty 发表于 2024-5-9 16:46</a>
+
+我感觉David Jaffe其实并没有经常自己报自己战神之父这个名头，而是因为他唯一能留给人们深刻印象的游戏只 ...</blockquote>
+是的
+
+其实想一想，要不是他这种性格，他也做不出奎托斯这个过于个性的邪门角色来。
+
+作为编剧之一、战斗设计和总导演，1代就是【他想要的样子】了，包括cody做的什么动画做成什么样子也是他来拍板的。跟现在他这到处喷的劲儿也是完全符合嘛。
+
+艺术家是不是就得邪门一点才有创造力、、、、我大概可以这么理解。
+

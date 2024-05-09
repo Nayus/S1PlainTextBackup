@@ -14419,3 +14419,13 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://imgur.com/m1AopCb" id="aimg_uZtXI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+*****
+
+####  德米特里  
+##### 4405#       发表于 2024-5-9 16:52
+
+谁也没想到，谁也没想到，被我们寄予厚望的04，倒在了八强
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

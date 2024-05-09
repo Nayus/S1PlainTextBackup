@@ -964,3 +964,11 @@ app是不是炸了，楼友发的图我全看不到
 
 已经在亚空间漂流了10个千年的冻肉从北方的阴影重返正常空间，发现当初的管理式民主邪教占领了母星<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4534#       发表于 2024-5-9 16:48
+
+解包不仅有机甲、坦克，还有导弹发射车以及像苏-47的战斗机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

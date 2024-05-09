@@ -534,3 +534,50 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 真不玩游戏怎么会精准地把武器一刀砍死？</blockquote>
 按照武器使用率闭着眼睛一个一个砍就是了，哪里需要玩游戏了
 
+
+*****
+
+####  大肥鸽子  
+##### 4493#       发表于 2024-5-9 10:49
+
+图裂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  lily-black  
+##### 4494#       发表于 2024-5-9 10:51
+
+好吧 上一个补丁精确的砍了我野队杀虫日常三件套：爆弹枪 激光狗 类星体，但当时勉强还能用：爆弹枪砍备弹，但作为1号位武器，能处理除牛牛和泰坦之外的所有虫子 外加远距离处理虫洞，大不了满地图找弹药便当就是了；激光狗砍伤害，行吧反正带它的目的更多地是为了预警防身；类星体加冷却时间emmmm.....算了本来就是对重甲的应急手段，只要不用原地换弹就行。
+
+结果**的傻逼箭头这次直接把爆弹枪砍废了，换电喷也不是不行，但是电喷距离近而且不能远距离安全清虫洞。玩儿这么多年游戏真的第一次见这种厂家，pvp你装备调来调去也就算了，一pve游戏你平衡个蛋蛋啊
+
+*****
+
+####  siebten  
+##### 4495#       发表于 2024-5-9 10:53
+
+这个投票搞笑的 你有一代的武器改造吗？你新武器新能力新内容解锁除了债券以外有别的渠道吗？不放新的债券就意味着没新的东西玩 老债券的武器又要砍到让大家玩的不爽 玩得爽的那几种武器装备下次估计又要以磁轨蛋盾当初的理由一样被砍 迫真西式皿煮 不然吃一坨屎 不然吃另一坨 给你一种有得选的错觉
+
+
+*****
+
+####  Mr.Hopp  
+##### 4496#       发表于 2024-5-9 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860210&amp;ptid=2170852" target="_blank">lily-black 发表于 2024-5-9 10:51</a>
+
+好吧 上一个补丁精确的砍了我野队杀虫日常三件套：爆弹枪 激光狗 类星体，但当时勉强还能用：爆弹枪砍备弹 ...</blockquote>
+安全清虫洞可以副手榴弹枪啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4497#       发表于 2024-5-9 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860137&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-9 10:45</a>
+
+按照武器使用率闭着眼睛一个一个砍就是了，哪里需要玩游戏了</blockquote>
+那也是砍伤害啊，而不是一刀砍特色。
+

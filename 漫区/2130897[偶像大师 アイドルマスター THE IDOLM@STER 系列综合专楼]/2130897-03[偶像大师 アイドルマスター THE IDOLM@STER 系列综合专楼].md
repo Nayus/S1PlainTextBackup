@@ -14514,3 +14514,18 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 那歌真太烂了，编的烂唱的也烂，我连第一次都没能听完整曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 4413#       发表于 2024-5-9 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sc二期你们以为是描写迷光和水，人家是打算继续写一期组合再陆陆续续写这两个组招满人
+
+*****
+
+####  patema  
+##### 4414#       发表于 2024-5-9 19:47
+
+sc烂完了，我来拍可能都好过万球+玻璃钢
+

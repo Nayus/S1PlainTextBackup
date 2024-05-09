@@ -1055,3 +1055,39 @@ app是不是炸了，楼友发的图我全看不到
 
 说实在的，突击步枪这玩意无论怎么做都会有一把DPS最强，其他的只能靠花活去做区分了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 4542#       发表于 2024-5-9 17:28
+
+主手蓄力武器，不知道将来能不能来个小类星体。切换过载模式5秒蓄力发出一发筒子威力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4543#       发表于 2024-5-9 17:29
+
+按照爆裂狙是1号位代替3号位的初衷，后面肯定会有专打重甲的1号位或者2号位。
+
+*****
+
+####  九十九忍  
+##### 4544#       发表于 2024-5-9 17:31
+
+枪有数据了，非常拉，这债券看着就只有衣服和防减速能用
+
+*****
+
+####  FLZB  
+##### 4545#       发表于 2024-5-9 17:31
+
+新武器数据喷了，纯纯解放者下位，谁爱买谁买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4546#       发表于 2024-5-9 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下新枪面板，看着过于幽默了
+

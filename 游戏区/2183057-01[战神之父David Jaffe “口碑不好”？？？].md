@@ -555,3 +555,26 @@ Cory Barlog我一直没懂他在旧系列里到底nb在哪里，当然战神4那
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  隔壁老黄  
+##### 58#       发表于 2024-5-9 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863953&amp;ptid=2183057" target="_blank">nilren 发表于 2024-5-9 16:53</a>
+
+是的
+
+其实想一想，要不是他这种性格，他也做不出奎托斯这个过于个性的邪门角色来。</blockquote>
+奎托斯也算不上啥邪门角色啊
+
+*****
+
+####  hkguty  
+##### 59#       发表于 2024-5-9 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861033&amp;ptid=2183057" target="_blank">我要写个惨字 发表于 2024-5-9 11:58</a>
+
+战神2的关卡流程我认为是全系列最佳，张弛有度，每当情绪有点松懈的时候就能有新的战斗、场景、演出等给人 ...</blockquote>
+看战神3纪录片的时候只感觉好像大家唯他马首是瞻，他要走的时候很多人都比较失落，只感觉是办公室里人望比较高的人物之一，但说到到底贡献了什么NB的设计好像也一直不太明白
+

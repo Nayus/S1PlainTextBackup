@@ -9808,3 +9808,13 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 ----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ztgmeteor  
+##### 810#       发表于 2024-5-9 14:00
+
+话说为啥日升对meteor这么执着，vestige自从当了重制版OP之后，高潮就只放meteor了。
+
+我还是想看一次基神在vestige里开大啊
+

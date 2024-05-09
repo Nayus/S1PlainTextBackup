@@ -938,3 +938,13 @@ app是不是炸了，楼友发的图我全看不到
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  wincle  
+##### 4531#       发表于 2024-5-9 14:06
+
+上上次解包的载具呢？
+
+— from Xiaomi 2304FPN6DC, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0-alpha
+

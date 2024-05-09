@@ -964,3 +964,21 @@ wow，这一版为何如此美丽迷人，成品是抽了什么风
 
 绳索都跟人物产生碰撞了，都不带一点修正。
 
+
+*****
+
+####  hkguty  
+##### 1572#       发表于 2024-5-9 20:15
+
+eve真结局最后杀了一堆同族，最终也是逐渐变成渡鸦般的立场了
+
+
+*****
+
+####  zqqwe  
+##### 1573#       发表于 2024-5-9 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64865847&amp;ptid=1978008" target="_blank">hkguty 发表于 2024-5-9 20:15</a>
+eve真结局最后杀了一堆同族，最终也是逐渐变成渡鸦般的立场了</blockquote>
+不杀渡鸦本来应该接杀亚当的结局，真结局和MS翻脸渡鸦反而要笑出声了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

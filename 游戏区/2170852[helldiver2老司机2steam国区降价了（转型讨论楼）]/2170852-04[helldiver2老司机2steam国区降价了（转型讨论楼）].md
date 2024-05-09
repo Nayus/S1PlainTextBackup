@@ -972,3 +972,37 @@ app是不是炸了，楼友发的图我全看不到
 
 解包不仅有机甲、坦克，还有导弹发射车以及像苏-47的战斗机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4535#       发表于 2024-5-9 17:02
+
+ 本帖最后由 ravend233 于 2024-5-9 17:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yysy那飞机的造型我第一反应是雪风，倒是没有特别像金雕
+
+<img src="https://img.saraba1st.com/forum/202405/09/170137nplfr9dbaleen19b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 17:01 上传
+
+<img src="https://img.saraba1st.com/forum/202405/09/170301pan3eusalvwul3us.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202405/09/170325cfpkjmpjmz5br5j4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 17:03 上传
+

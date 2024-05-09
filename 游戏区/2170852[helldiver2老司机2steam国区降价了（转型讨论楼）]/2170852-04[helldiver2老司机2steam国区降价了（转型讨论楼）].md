@@ -801,3 +801,29 @@ Hey, yeah i think we've gone too far in some areas. Will talk to the team about 
 <img src="https://img.feixue.cloud/2024/05/09/04dbe84f7371e.gif" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这机甲，正统人类联邦了属于是
 
+
+*****
+
+####  赤井稻妻  
+##### 4517#       发表于 2024-5-9 13:01
+
+他们和我们一模一样！我下不去手啊！
+
+*****
+
+####  DawnGuardian  
+##### 4518#       发表于 2024-5-9 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861636&amp;ptid=2170852" target="_blank"> Launce 发表于 2024-5-9 12:57</a>  草，这机甲，正统人类联邦了属于是 </blockquote>
+不是，这是同人还是解包啊？真要打叛军？来自: iPhone客户端
+
+*****
+
+####  赤井稻妻  
+##### 4519#       发表于 2024-5-9 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860560&amp;ptid=2170852" target="_blank">LiniN 发表于 2024-5-9 11:18</a>
+
+榴弹手枪捡野生弹药箱就补一发，组队不就是弹药黑洞</blockquote>
+↑↓→←↑可回满全部弹药
+

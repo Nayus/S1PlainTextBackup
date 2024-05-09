@@ -645,3 +645,33 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 题外话，老战神杰夫最大的作用就是把自己扎实的关卡设计能力展现出来了，类比下新战神在诸神黄昏才比得上do ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer"> 啊？诸神黄昏的战斗比得上doom永恒了？屎和巧克力都是咖啡色的是吧。
 
+
+*****
+
+####  barry.allen  
+##### 66#       发表于 2024-5-9 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863953&amp;ptid=2183057" target="_blank">nilren 发表于 2024-5-9 16:53</a>
+
+是的
+
+其实想一想，要不是他这种性格，他也做不出奎托斯这个过于个性的邪门角色来。</blockquote>
+只可惜Twisted Metal系列国内几乎没什么人知道
+
+这个系列的游戏那真是邪气冲天，充分体现David Jaffe的美学风格，他胡逼程度其实和罗梅罗有一拼
+
+到战神他已经比较收敛了，战神1代更多是戾气而不是邪气
+
+
+*****
+
+####  midimusic  
+##### 67#       发表于 2024-5-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64866701&amp;ptid=2183057" target="_blank">魔法酪饼 发表于 2024-5-9 21:32</a>
+
+啊？诸神黄昏的战斗比得上doom永恒了？屎和巧克力都是咖啡色的是吧。 ...</blockquote>
+你要不自己搜搜看什么叫做level design？
+
+另外，中文我用的“才比得上”，你再搜搜这是什么意思吧
+

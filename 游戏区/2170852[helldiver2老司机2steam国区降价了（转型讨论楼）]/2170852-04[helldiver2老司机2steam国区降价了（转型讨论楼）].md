@@ -1006,3 +1006,30 @@ app是不是炸了，楼友发的图我全看不到
 
 2024-5-9 17:03 上传
 
+
+*****
+
+####  Launce  
+##### 4536#       发表于 2024-5-9 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个图床吧，泥潭的图是真的一个都看不到
+
+*****
+
+####  BadYanL  
+##### 4537#       发表于 2024-5-9 17:07
+
+新债卷上架了，不够蓝币，坐等测评。
+
+
+*****
+
+####  大肥鸽子  
+##### 4538#       发表于 2024-5-9 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64864139&amp;ptid=2170852" target="_blank">BadYanL 发表于 2024-5-9 17:07</a>
+新债卷上架了，不够蓝币，坐等测评。</blockquote>
+现在都是垃圾，将来是不是就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

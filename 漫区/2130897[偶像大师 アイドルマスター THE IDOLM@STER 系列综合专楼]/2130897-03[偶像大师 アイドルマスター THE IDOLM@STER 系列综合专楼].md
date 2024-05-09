@@ -14619,3 +14619,60 @@ hw我要鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/08
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉前半部分还行，全曲就有点微妙了
 
+
+*****
+
+####  Swss  
+##### 4427#       发表于 2024-5-9 22:16
+
+ 本帖最后由 Swss 于 2024-5-9 22:20 编辑 
+
+好电好电，感觉像是什么音游曲syl  pv最后伸出来的好像是莉波的手
+
+image.png
+(102.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202405/09/221958x74r12nrm4mn6rnt.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4428#       发表于 2024-5-9 22:18
+
+我怀疑手球和麻央的mv 美波和法国人都进行了厨力放出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+但是为什么莉莉娅和莉波的mv那么穷啊
+
+*****
+
+####  花开安菲路  
+##### 4429#       发表于 2024-5-9 22:18
+
+ 本帖最后由 花开安菲路 于 2024-5-9 22:21 编辑 
+
+所以仓本家果然给mv制作组塞预算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+千奈的歌，舞台演出搞好了，效果应该会非常棒。
+电音的舞台效果也不会差。
+
+*****
+
+####  德米特里  
+##### 4430#       发表于 2024-5-9 22:19
+
+就感觉，很奇妙吧，就这么感觉
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  安广多惠子  
+##### 4431#       发表于 2024-5-9 22:23
+
+有一种djmax曲的感觉，还蛮喜欢这首的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

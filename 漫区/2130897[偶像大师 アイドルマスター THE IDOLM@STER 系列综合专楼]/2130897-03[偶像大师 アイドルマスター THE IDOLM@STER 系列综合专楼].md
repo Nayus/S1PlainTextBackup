@@ -14408,3 +14408,14 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  Thalassa  
+##### 4404#       发表于 2024-5-9 14:56
+
+ 本帖最后由 Thalassa 于 2024-5-9 15:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://imgur.com/m1AopCb" id="aimg_uZtXI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

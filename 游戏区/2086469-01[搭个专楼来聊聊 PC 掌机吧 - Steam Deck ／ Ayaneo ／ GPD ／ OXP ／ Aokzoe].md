@@ -114,3 +114,13 @@ Aya 也要出显卡坞了 <img src="https://static.saraba1st.com/image/smiley/fa
 我在SD也安装了UsbEAm Hosts Editor，改了HOST，还是一样</blockquote>
 tomoon吧，翻墙啥都有了
 
+
+*****
+
+####  bypass  
+##### 1190#         楼主| 发表于 2024-5-9 08:15
+
+明天公布新 ROG Ally 情报。
+
+<img src="https://imgur.ihainan.me/f9ytCUp.png" referrerpolicy="no-referrer">
+

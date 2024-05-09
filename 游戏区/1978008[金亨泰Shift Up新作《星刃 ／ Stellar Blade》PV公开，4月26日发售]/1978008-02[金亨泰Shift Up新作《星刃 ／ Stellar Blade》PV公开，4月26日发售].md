@@ -1007,3 +1007,13 @@ PS5 剑星：67131本（首周）
 PS5 剑星：67131本（首周）</blockquote>
 双周的其实
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1577#       发表于 2024-5-9 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64865689&amp;ptid=1978008" target="_blank">operatbig 发表于 2024-5-9 20:00</a>
+这跳跳乐弱智吧，二段跳方向不受控什么鬼？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">挂绳子是吧，你是不是摇杆前后摇了，不用管状态，摇杆一直往前按着就行
+

@@ -9839,3 +9839,17 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 问一下国内到底还有没有机会上？看不着有点气
 
+
+*****
+
+####  notqiao  
+##### 813#       发表于 2024-5-9 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863128&amp;ptid=2178694" target="_blank">lacusforever 发表于 2024-5-9 15:31</a>
+问一下国内到底还有没有机会上？看不着有点气</blockquote>
+国内早上了呀 只不过是港澳台地区<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+大陆公映的事现在代哥到处公关捂嘴不准说 但说到底还是扛不住几个野生二次元到处政审
+
+估计最后也就趁三周年在金桥啦啦宝都的影城给媒体放几场乐呵乐呵 6月份上影节即使要上估计也会被投诉下架
+

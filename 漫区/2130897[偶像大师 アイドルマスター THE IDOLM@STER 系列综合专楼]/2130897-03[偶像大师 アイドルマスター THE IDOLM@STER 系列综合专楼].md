@@ -14574,3 +14574,48 @@ sc烂完了，我来拍可能都好过万球+玻璃钢
 
 手机电满了
 
+
+*****
+
+####  840266848  
+##### 4421#       发表于 2024-5-9 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看完MV预言一句，mao哥会是你学人气王
+
+*****
+
+####  野菜一日分  
+##### 4422#       发表于 2024-5-9 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MV和歌质量都不错，虽然电麻了，但CV放学马里算得上会唱歌的
+
+*****
+
+####  raimouse  
+##### 4423#       发表于 2024-5-9 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这首反而是觉得vo还行，但是曲子欣赏不来
+
+曲子都全了，HW倒一应该稳了吧
+
+*****
+
+####  rgauss  
+##### 4424#       发表于 2024-5-9 22:08
+
+hw我要鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 4425#       发表于 2024-5-9 22:09
+
+演出服的发型不错，可惜实机还是没换
+
+*****
+
+####  Anatoly  
+##### 4426#       发表于 2024-5-9 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉前半部分还行，全曲就有点微妙了
+

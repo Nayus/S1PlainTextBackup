@@ -2354,3 +2354,13 @@ hnk也身体不适换人了，主办方连续发文<img src="https://static.sara
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ads147147  
+##### 20165#       发表于 2024-5-9 12:17
+
+接这种工作么，nako的资源总觉得差一节。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

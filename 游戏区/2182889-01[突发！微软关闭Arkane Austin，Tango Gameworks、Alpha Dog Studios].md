@@ -2162,3 +2162,26 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 嫌弃HIFIRUSH是“没赚够足够的钱”挺神奇的，毕竟都让游戏进XGP了，不该有做慈善的心理准备吗？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xgp也一样可以量化的，xgp使用量和游戏时长是可以量化成游戏成绩的（xgp本身就是用这种方法和第三方分成的）。所以大概不止销量，HIFIRUSH本身在xgp成绩也不理想
 
+
+*****
+
+####  哈毛  
+##### 227#       发表于 2024-5-9 12:23
+
+ 本帖最后由 哈毛 于 2024-5-9 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64850844&amp;ptid=2182889" target="_blank">itsmyrailgun 发表于 2024-5-8 14:47</a>
+
+另外，Hifi-rush的发售可以说很突然，微软都没怎么做预热，配套营销措施少得可怜，这么一款他们都不看好的 ...</blockquote>
+也不算意外，再前一年XGP的Tunic冲老头环情况也差不多。
+
+有点EA让战地和Titanfall左右互搏的意思了。
+
+多说一句，工作室调整关停一般也不是一个月内就能决策的，想法估计早有了。
+
+*****
+
+####  风景很好  
+##### 228#       发表于 2024-5-9 12:27
+
+这种贴子为啥没DJ哥呢没？
+

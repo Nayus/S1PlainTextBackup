@@ -917,3 +917,13 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 
 我倒觉得eve挺好看的。
 
+
+*****
+
+####  隔壁老黄  
+##### 1567#       发表于 2024-5-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64862580&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-9 14:38</a>
+我倒觉得eve挺好看的。</blockquote>
+不是不好看，是太模板了
+

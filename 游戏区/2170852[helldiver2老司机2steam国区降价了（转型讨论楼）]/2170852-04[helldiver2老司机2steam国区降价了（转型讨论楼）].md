@@ -1115,3 +1115,21 @@ ar伤害区间太小了，数值也确实很难办，还是得整体加伤<img s
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  北条早苗  
+##### 4550#       发表于 2024-5-9 17:56
+
+讲个鬼故事，新AR数据比解放者还低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  扑克脸军曹  
+##### 4551#       发表于 2024-5-9 18:03
+
+买这债券跟炒股似的，抄底赌一手升值
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

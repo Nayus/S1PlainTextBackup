@@ -14710,3 +14710,19 @@ Moe Shop是这样的，唱是不难唱，就是有点考验舞台效果，最后
 
 当年电音部初公布的时候倒是有挺多一听就抓耳的，Mani Mani、good night baby、いただきバベル、where is the love
 
+
+*****
+
+####  ytttsuuuba  
+##### 4436#       发表于 2024-5-9 23:30
+
+这首还有光景和luna say maybe我都特别喜欢
+
+
+*****
+
+####  cckuku  
+##### 4437#       发表于 2024-5-9 23:35
+
+说实话，目前这个热度真的是一脸暴死相啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

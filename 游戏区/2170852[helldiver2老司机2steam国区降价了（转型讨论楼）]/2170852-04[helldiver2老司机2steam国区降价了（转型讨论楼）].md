@@ -680,3 +680,14 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 新债卷几点上？还差120好像来不及刷了
 
+
+*****
+
+####  Mr.Hopp  
+##### 4508#       发表于 2024-5-9 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860560&amp;ptid=2170852" target="_blank">LiniN 发表于 2024-5-9 11:18</a>
+
+榴弹手枪捡野生弹药箱就补一发，组队不就是弹药黑洞</blockquote>
+满载8发，配合手雷和战备一个人都能清一个大型虫巢了。虽然不是很逆天，但强度也足够，一张图估计也就两个大型虫巢差不多。
+

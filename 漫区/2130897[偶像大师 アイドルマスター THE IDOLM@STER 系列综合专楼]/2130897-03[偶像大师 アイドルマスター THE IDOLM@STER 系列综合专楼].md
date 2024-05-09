@@ -14459,3 +14459,29 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 当然光美这个ip万南占比应该比拉拉和爱马仕占比低，这三个企划万南版权占比应该是爱马仕＞拉＞光美吧？
 
+
+*****
+
+####  Ask_10A  
+##### 4408#       发表于 2024-5-9 18:59
+
+闪闪但凡游戏做的好点我都感觉能起来
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  a85982313  
+##### 4409#       发表于 2024-5-9 19:03
+
+上面说的那个18年来源
+
+<img src="https://img.saraba1st.com/forum/202405/09/190220iksksgtpkg4m3gz0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240509190125.jpg</strong> (116.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 19:02 上传
+

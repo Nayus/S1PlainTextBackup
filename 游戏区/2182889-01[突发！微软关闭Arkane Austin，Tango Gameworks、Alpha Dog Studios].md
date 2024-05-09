@@ -2115,3 +2115,24 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  日日日日日野  
+##### 222#       发表于 2024-5-9 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64859982&amp;ptid=2182889" target="_blank">zid99825 发表于 2024-5-9 10:35</a>
+
+一年了，手上没有任何已经立项的项目……
+
+取死之道了</blockquote>
+看上去是没过项目绿灯会，但现在的项目评估体系，谁又说得准
+
+
+*****
+
+####  chivalry  
+##### 223#       发表于 2024-5-9 11:04
+
+什么逆天玩意，微软傻逼还不能骂？孝子到这个程度你倒是支持一下销量去啊
+

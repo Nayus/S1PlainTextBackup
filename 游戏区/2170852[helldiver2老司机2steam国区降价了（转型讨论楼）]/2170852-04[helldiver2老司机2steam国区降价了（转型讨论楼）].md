@@ -581,3 +581,33 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 按照武器使用率闭着眼睛一个一个砍就是了，哪里需要玩游戏了</blockquote>
 那也是砍伤害啊，而不是一刀砍特色。
 
+
+*****
+
+####  wthall  
+##### 4498#       发表于 2024-5-9 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860252&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-9 10:55</a>
+
+那也是砍伤害啊，而不是一刀砍特色。</blockquote>
+他这游戏一把枪一共就那么几个数值，一个伤害类型，一个备弹+弹匣，一个子弹伤害，一个攻击范围。哪里看的不爽砍哪里
+
+*****
+
+####  YWNS  
+##### 4499#       发表于 2024-5-9 11:00
+
+这游戏好容易玩到后i面黑屏闪退 有什么办法吗
+
+*****
+
+####  Mr.Hopp  
+##### 4500#       发表于 2024-5-9 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860307&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-9 11:00</a>
+
+他这游戏一把枪一共就那么几个数值，一个伤害类型，一个备弹+弹匣，一个子弹伤害，一个攻击范围。哪里看 ...</blockquote>
+说明他们知道武器强在哪里，弱在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+离子喷和电喷也不是加强伤害而是加强了射速。
+

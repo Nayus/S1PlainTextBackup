@@ -705,3 +705,22 @@
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 692#       发表于 2024-5-9 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64866057&amp;ptid=2120922" target="_blank">salic428 发表于 2024-5-9 20:30</a>
+
+图书馆的拇指也是流血（）
+
+还是期待一下食指什么时候出场以及机制怎么体现吧</blockquote>
+食指的故事感觉都讲完了，估计也就瓦夜能出场吧，主线可能要着重于图书馆没有的中环小三指。
+
+独一宇宙流确实不好加入，或许凑独一的条件可以先天改后天，比如三个回合每回合使用不同技能后进入独一状态，为技能增加新效果。
+
+或者干脆不整独一了，被动加个剑刃解放，将六张技能卡都用一遍后全硬币威力增加。
+
+（暖机太慢了，还是凑独一吧...）
+

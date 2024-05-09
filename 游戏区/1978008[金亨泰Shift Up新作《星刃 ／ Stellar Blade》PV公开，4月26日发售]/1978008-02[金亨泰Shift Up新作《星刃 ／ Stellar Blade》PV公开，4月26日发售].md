@@ -948,3 +948,11 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 Concept art wallpaper from the early days of EVE💕</blockquote>
 wow，这一版为何如此美丽迷人，成品是抽了什么风
 
+
+*****
+
+####  operatbig  
+##### 1570#       发表于 2024-5-9 20:00
+
+这跳跳乐弱智吧，二段跳方向不受控什么鬼？
+

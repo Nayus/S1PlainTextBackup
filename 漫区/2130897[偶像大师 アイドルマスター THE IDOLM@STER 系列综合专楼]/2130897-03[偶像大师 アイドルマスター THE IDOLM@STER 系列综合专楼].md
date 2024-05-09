@@ -14692,3 +14692,11 @@ Moe Shop是这样的，唱是不难唱，就是有点考验舞台效果，最后
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">今天电麻了，唱功倒还行
 
+
+*****
+
+####  a85982313  
+##### 4434#       发表于 2024-5-9 22:55
+
+结果这九首都没有比较惊艳的感觉
+

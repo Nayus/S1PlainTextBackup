@@ -4699,3 +4699,11 @@ Piano emo punk是吧<img src="https://static.saraba1st.com/image/smiley/face2017
 
 武士道有点太现实了，联动只有人气高的爱灯猫，素希没有，推特都吐槽怎么又是灯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 16710#       发表于 2024-5-9 22:51
+
+https://twitter.com/JiBliy81/status/1788215039897584048?t=epkRYs_Hd__B9dgrGgHk2Q&amp;s=19<img src="https://p.sda1.dev/17/34d5fbc32de66906dc0a74ea5eff21f4/IMG_CMP_207887494.jpeg" referrerpolicy="no-referrer">
+

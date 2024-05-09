@@ -4494,3 +4494,28 @@ GBC键盘手凪都弹了迷星叫
 改的挺华丽的</blockquote>
 唯一MyGO没有的乐器是吧
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16691#       发表于 2024-5-9 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64855494&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-5-8 19:59</a>
+唯一MyGO没有的乐器是吧，和青木互换一下，我们GO就变成键盘主音的乐队了 ...</blockquote>
+Piano emo punk是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  skives  
+##### 16692#       发表于 2024-5-9 19:16
+
+<img src="https://img.saraba1st.com/forum/202405/09/191600comazmofytesmhj2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8475.jpeg</strong> (199.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 19:16 上传
+

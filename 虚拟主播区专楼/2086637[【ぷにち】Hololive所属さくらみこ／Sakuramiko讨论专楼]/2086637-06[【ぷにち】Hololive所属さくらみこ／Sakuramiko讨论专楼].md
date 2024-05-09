@@ -6623,3 +6623,14 @@ RTA开始了
 ####  holoan  
 ##### 8768#         楼主| 发表于 2024-5-9 23:42
 
+
+*****
+
+####  rs5621  
+##### 8769#       发表于 2024-5-10 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64867914&amp;ptid=2086637" target="_blank">holoan 发表于 2024-5-9 23:41</a>
+
+这最后一小时内，不仅是那些非会员普通帐号，我直接看得到大量会员而且都是2 3年会员徽章的帐号在评论区露 ...</blockquote>
+发生什么事了
+

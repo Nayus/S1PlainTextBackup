@@ -501,3 +501,36 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 爆裂铳就不该出现在游戏里，而不是花好几个补丁砍废。许多人上来1000买了包，相当于开服破裂者，你砍废了新人玩啥
 
+
+*****
+
+####  BadYanL  
+##### 4490#       发表于 2024-5-9 10:42
+
+箭头CEO流量上脑了，能这么玩的吗？
+
+<img src="https://img.saraba1st.com/forum/202405/09/104211fnkydmdxd8oyqz5q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-05-09 103959.jpg</strong> (38.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-9 10:42 上传
+
+*****
+
+####  赤井稻妻  
+##### 4491#       发表于 2024-5-9 10:44
+
+感觉像免责声明，我问过你们可以发售新付费内容的，出了事可别再骂了哦
+
+*****
+
+####  wthall  
+##### 4492#       发表于 2024-5-9 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64856589&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-8 22:07</a>
+
+真不玩游戏怎么会精准地把武器一刀砍死？</blockquote>
+按照武器使用率闭着眼睛一个一个砍就是了，哪里需要玩游戏了
+

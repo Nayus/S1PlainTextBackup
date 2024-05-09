@@ -2085,3 +2085,33 @@ Tom Warren和Jason发布这两篇报道之后，我彻底看不懂为什么要�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  byisme001  
+##### 220#       发表于 2024-5-9 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857787&amp;ptid=2182889" target="_blank">astrayveller 发表于 2024-5-9 00:52</a>
+prey的那个DLC mooncrash都比死亡循环好玩
+
+XBOX真的一点品味没有
+
+hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
+去年tga上xbox拿奖比ps多啊
+
+
+*****
+
+####  zid99825  
+##### 221#       发表于 2024-5-9 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857787&amp;ptid=2182889" target="_blank">astrayveller 发表于 2024-5-9 00:52</a>
+prey的那个DLC mooncrash都比死亡循环好玩
+
+XBOX真的一点品味没有
+
+hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
+做prey的在redfall开始之后就跑的没剩下多少了，现在这个Austin就这点水平。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

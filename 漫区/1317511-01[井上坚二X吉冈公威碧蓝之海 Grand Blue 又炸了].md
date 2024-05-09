@@ -74,3 +74,13 @@
 那位可是经验丰富的，今村本质就是个纯情宅男，估计对不上啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泥鳅化石  
+##### 1324#       发表于 2024-5-9 12:40
+
+这部自从开始掺和恋爱戏就一股东一榔头西一棒子的感觉，正剧和搞笑撕裂严重，后面更是给人感觉想出一出是一出，没活硬整。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

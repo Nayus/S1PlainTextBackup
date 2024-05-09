@@ -982,3 +982,11 @@ eve真结局最后杀了一堆同族，最终也是逐渐变成渡鸦般的立�
 eve真结局最后杀了一堆同族，最终也是逐渐变成渡鸦般的立场了</blockquote>
 不杀渡鸦本来应该接杀亚当的结局，真结局和MS翻脸渡鸦反而要笑出声了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 1574#       发表于 2024-5-9 20:34
+
+看了youtube鬼佬视频才知道敌人种族名在英语也用了naytiba这种空耳词，日版直接用native的片假导致试玩版我就猜到大概剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

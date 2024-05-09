@@ -14330,3 +14330,24 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 人不错 歌不怎么行
 
+
+*****
+
+####  安广多惠子  
+##### 4396#       发表于 2024-5-9 07:51
+
+现在的imas哪怕整个烧了又能有几点火光了，真靠sc才是没救了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天王寺綯  
+##### 4397#       发表于 2024-5-9 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64858529&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-5-9 07:51</a>
+现在的imas哪怕整个烧了又能有几点火光了，真靠sc才是没救了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">?看不起我们百万?
+

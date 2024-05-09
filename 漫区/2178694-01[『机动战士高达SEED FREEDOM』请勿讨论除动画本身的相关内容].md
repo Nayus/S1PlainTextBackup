@@ -9818,3 +9818,16 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 我还是想看一次基神在vestige里开大啊
 
+
+*****
+
+####  线程召唤使  
+##### 811#       发表于 2024-5-9 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64862195&amp;ptid=2178694" target="_blank">ztgmeteor 发表于 2024-5-9 14:00</a>
+
+话说为啥日升对meteor这么执着，vestige自从当了重制版OP之后，高潮就只放meteor了。
+
+我还是想看一次基神在 ...</blockquote>
+因为vestige就是不好听呗
+

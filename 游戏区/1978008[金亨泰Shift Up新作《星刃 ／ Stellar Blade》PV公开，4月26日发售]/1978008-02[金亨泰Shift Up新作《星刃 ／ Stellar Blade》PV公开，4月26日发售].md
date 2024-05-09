@@ -937,3 +937,14 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 不是不好看，是太模板了</blockquote>
 因为要换装，要一个耐看但不会特色太明显的模板
 
+
+*****
+
+####  emmer  
+##### 1569#       发表于 2024-5-9 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64846707&amp;ptid=1978008" target="_blank">Piano-Forest 发表于 2024-5-8 01:33</a>
+
+Concept art wallpaper from the early days of EVE💕</blockquote>
+wow，这一版为何如此美丽迷人，成品是抽了什么风
+

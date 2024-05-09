@@ -24,3 +24,19 @@
 
 这样的话可能会更有趣也更有策略性。
 
+
+*****
+
+####  Awanano  
+##### 566#       发表于 2024-5-9 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64865101&amp;ptid=2154925" target="_blank">睡不醒的虾米 发表于 2024-5-9 19:06</a>
+租赁机制如果改成：可以自由决定是有效还是无效，在有效状态没发出一手手牌（或触发了效果）都要付钱。
+
+ ...</blockquote>
+这样也还行
+他这个设计思路只能说我没想明白，不过看他会对高难做大改的样子，如果不合适他应该还是会调
+主要出血量太大了。腐化还有过渡意义，租借抓手上除非是后期，对整一局的影响太严重
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

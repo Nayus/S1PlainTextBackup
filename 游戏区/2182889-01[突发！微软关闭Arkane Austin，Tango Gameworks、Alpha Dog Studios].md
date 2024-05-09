@@ -2151,3 +2151,14 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 好像微软高层对游戏部门这几年的业绩收购不太满意，这次裁掉的几个工作室只是个开始，后续会有更多裁员计划
 
+
+*****
+
+####  AyCoodt  
+##### 226#       发表于 2024-5-9 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852927&amp;ptid=2182889" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-5-8 16:00</a>
+
+嫌弃HIFIRUSH是“没赚够足够的钱”挺神奇的，毕竟都让游戏进XGP了，不该有做慈善的心理准备吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xgp也一样可以量化的，xgp使用量和游戏时长是可以量化成游戏成绩的（xgp本身就是用这种方法和第三方分成的）。所以大概不止销量，HIFIRUSH本身在xgp成绩也不理想
+

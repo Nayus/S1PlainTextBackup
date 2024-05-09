@@ -9793,3 +9793,18 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 如果rg拂晓是部分老结构加部分新规的话，2.0的rg强袭全家桶应该也不远了吧
 
+
+*****
+
+####  outel  
+##### 809#       发表于 2024-5-9 12:06
+
+<blockquote>引用第780楼AkaiSuisei于2024-05-07 19:51发表的  :
+
+我日死北美电影公司的血妈，提前一个月订的票当时就排了一场赶紧抢个位置提前给公司请假空出时间，电影院离......</blockquote>
+@AkaiSuisei
+
+我这边5月7号的场次全是嘎仔话sub 8号才是鬼话dub
+
+----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
+

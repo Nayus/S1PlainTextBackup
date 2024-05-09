@@ -14398,3 +14398,13 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  超法拉  
+##### 4403#       发表于 2024-5-9 14:39
+
+凛世她，她倒在了八强
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

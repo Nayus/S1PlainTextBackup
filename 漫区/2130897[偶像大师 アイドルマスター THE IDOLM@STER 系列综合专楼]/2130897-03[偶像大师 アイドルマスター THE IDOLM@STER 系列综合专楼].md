@@ -14429,3 +14429,16 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  rslika  
+##### 4406#       发表于 2024-5-9 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64862027&amp;ptid=2130897" target="_blank">K·os 发表于 2024-5-9 13:44</a>
+
+你这个头像说这个话，也是个顶级串子
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摆烂的那当然不算了
+

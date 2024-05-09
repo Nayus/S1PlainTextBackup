@@ -2378,3 +2378,11 @@ hnk也身体不适换人了，主办方连续发文<img src="https://static.sara
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  优妮可  
+##### 20167#       发表于 2024-5-9 13:54
+
+nako资源确实好起来了，但nagi也不差也有音乐剧这边，应该就pay跟不上了
+

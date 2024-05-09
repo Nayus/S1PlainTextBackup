@@ -928,3 +928,13 @@ app是不是炸了，楼友发的图我全看不到
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  ravend233  
+##### 4530#       发表于 2024-5-9 13:48
+
+什么地联和人联（）
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -4740,3 +4740,20 @@ https://twitter.com/JiBliy81/status/1788215039897584048?t=epkRYs_Hd__B9dgrGgHk2Q
 
 2024-5-9 23:01 上传
 
+
+*****
+
+####  NODY  
+##### 16713#       发表于 2024-5-9 23:11
+
+ag新箱活这剧情仿佛c团和平解散if线，虽然没真说解散但所有人都不来了，只剩下一个精神出问题的重女一个人坚持练习幻想队友还在身边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16714#       发表于 2024-5-9 23:13
+
+别虐摩卡酱<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

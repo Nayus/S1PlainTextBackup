@@ -7965,3 +7965,13 @@ https://github.com/rayshift/translatefgo/
 
 我也不敢绑，，先观望一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 12731#       发表于 2024-5-9 20:15
+
+有啥不敢绑的，就算掉了号你发氪金单过去就帮你发回来了
+你游在氪金单找号这个问题上意外的靠谱
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

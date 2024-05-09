@@ -1033,3 +1033,25 @@ app是不是炸了，楼友发的图我全看不到
 
 —— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  kalavinka  
+##### 4539#         楼主| 发表于 2024-5-9 17:16
+
+不给这些步枪系集体加强感觉是看不到用的必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 4540#         楼主| 发表于 2024-5-9 17:19
+
+另外超级商店上新货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4541#       发表于 2024-5-9 17:20
+
+说实在的，突击步枪这玩意无论怎么做都会有一把DPS最强，其他的只能靠花活去做区分了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

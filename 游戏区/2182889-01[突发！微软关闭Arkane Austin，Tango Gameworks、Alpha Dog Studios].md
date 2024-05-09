@@ -2185,3 +2185,25 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 这种贴子为啥没DJ哥呢没？
 
+
+*****
+
+####  Todds_lies  
+##### 229#       发表于 2024-5-9 12:48
+
+ 本帖最后由 Todds_lies 于 2024-5-9 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64854886&amp;ptid=2182889" target="_blank">ycjiang1337 发表于 2024-5-8 18:50</a>
+
+不知道你有没有买或者XGP玩HFR，但起码大部分索索是不配站在道德制高点上的——因为就在两个多月前，HFR ...</blockquote>
+毛？怎么感觉突然一个帽子扣过来了？我三家游戏都玩，三家公司游戏部门都在天上被我放飞中。
+
+发售没多久我就玩了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，怎么？作为玩家骂微软这操作傻X还得先会制冷是吧。S1图床这几天什么毛病，老是看不了图。
+
+<img src="https://img.saraba1st.com/forum/202405/09/124757d75485i58g7zi5o9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.05 KB, 下载次数: 1)
+
+下载附件
+
+2024-5-9 12:47 上传
+

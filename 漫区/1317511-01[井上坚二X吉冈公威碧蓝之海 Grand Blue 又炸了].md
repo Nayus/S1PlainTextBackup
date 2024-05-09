@@ -84,3 +84,21 @@
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  liekong  
+##### 1325#       发表于 2024-5-9 12:50
+
+话说这楼里没人提，有天朝外包公司xxn在小红书上泄露了第二季动画
+
+
+*****
+
+####  saglork  
+##### 1326#       发表于 2024-5-9 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860644&amp;ptid=1317511" target="_blank">tsoulgain 发表于 2024-5-9 11:25</a>
+千纱伊织就是很明显的兄弟关系。之前被书砸到两人直接贴贴都被姐姐误会了结果两人屁事没有心无波澜。伊织 ...</blockquote>
+是的，钦定女一号其实没什么，千纱从第一次登场到伪女友身份其实就已经是典型的钦定女一号赢到最后的配置了，但因为中间部分整体剧情氛围都是走沙雕风，角色之间关系缺乏暧昧塑造，到最后一转感情线这种生拉硬凑的感觉太过明显，其实作品整体观感严重下降了
+

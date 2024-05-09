@@ -2364,3 +2364,17 @@ hnk也身体不适换人了，主办方连续发文<img src="https://static.sara
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  starring  
+##### 20166#       发表于 2024-5-9 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861260&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-5-9 12:17</a>
+接这种工作么，nako的资源总觉得差一节。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+现在nako的资源都快比nagi好了，常驻广播参加拼盘还有作客电视节目等等，二单发售肯定又有各种签售。只是刚好这个广播的MC是那种开荤段子的搞笑艺人
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

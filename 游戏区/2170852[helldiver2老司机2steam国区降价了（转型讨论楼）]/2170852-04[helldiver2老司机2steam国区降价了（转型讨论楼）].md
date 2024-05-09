@@ -737,3 +737,67 @@ cd只有70s，比精准攻击少30s，清杂反重甲两用，缺点是局势一
 
 难绷，北边大概率是光明地球，光之国（难视
 
+
+*****
+
+####  Benighted  
+##### 4514#       发表于 2024-5-9 12:51
+
+CEO要下场拨乱反正？
+
+Zecr
+
+@Official_Zecr
+
+@Pilestedt
+
+ Helldivers has just become un-fun for me and a lot of my friends, I've put insane hours, (rank 80), I don't know what to say these past months of balancing changes has made the game basically unplayable for me,  sad to see balance changes come over the priority of fun
+
+使用DeepL翻译
+
+@Pilestedt《地狱潜航者》对我和我的很多朋友来说已经变得毫无乐趣可言了，我已经投入了大量的时间（等级 80），我不知道该说什么，过去几个月的平衡性变化已经让我基本上无法玩这款游戏了，看到平衡性变化优先于乐趣，我很难过。 
+
+打开DeepL.com
+
+翻译帖子
+
+上午3:21 · 2024年5月9日
+
+·
+
+7,728
+
+ 查看
+
+Pilestedt
+
+@Pilestedt
+
+·
+
+9小时
+
+Hey, yeah i think we've gone too far in some areas. Will talk to the team about the approach to balance. It feels like every time someone finds something fun, the fun is removed.
+
+使用DeepL翻译
+
+是的，我认为我们在某些方面做得太过了。我会和团队讨论平衡的方法。感觉每次有人发现好玩的东西，好玩的东西就会被删除。
+
+
+*****
+
+####  conanoysq  
+##### 4515#       发表于 2024-5-9 12:57
+
+**箭头的仙人板板，砍武器强度，砍ps5版分辨率就算了，现在还尼玛掉帧，还尼玛闪退，4个月了，体验越来越差，玩儿尼玛，倒闭算了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Launce  
+##### 4516#       发表于 2024-5-9 12:57
+
+<img src="https://img.feixue.cloud/2024/05/09/04dbe84f7371e.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这机甲，正统人类联邦了属于是
+

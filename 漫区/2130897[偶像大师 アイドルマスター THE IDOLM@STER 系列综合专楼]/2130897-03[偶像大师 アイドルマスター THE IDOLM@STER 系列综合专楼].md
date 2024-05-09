@@ -14385,3 +14385,16 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
 
 热度还行吧 一万基本盘足够养活一个企划
 
+
+*****
+
+####  K·os  
+##### 4402#       发表于 2024-5-9 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64857167&amp;ptid=2130897" target="_blank">rslika 发表于 2024-05-08 23:25:55</a>
+这种与企划强绑定的2.5次元偶像声优进步速度都是飞快的
+
+代的拉拉几轮下来都是这样 ...</blockquote>你这个头像说这个话，也是个顶级串子
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

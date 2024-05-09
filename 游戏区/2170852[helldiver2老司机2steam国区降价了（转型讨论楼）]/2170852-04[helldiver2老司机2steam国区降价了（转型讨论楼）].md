@@ -908,3 +908,23 @@ app是不是炸了，楼友发的图我全看不到
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861845&amp;ptid=2170852" target="_blank"> 风萧飒 发表于 2024-5-9 13:21</a> 引用:DawnGuardian 发表于 2024-5-9 13:12 有点抽象啊，这玩意是准备做成第四阵营？那样不会跟机器人重复吗？ 应该不会是第四势力吧，感觉是什么特殊机制  —— 来自 S1Fun </blockquote>
 也是，之前机器人战舰白模泄漏的时候不少人也是浮想联翩，后来事实证明人家就只是过场动画里用的模型而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  Mr.Hopp  
+##### 4528#       发表于 2024-5-9 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861954&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-5-9 13:36</a>
+
+也是，之前机器人战舰白模泄漏的时候不少人也是浮想联翩，后来事实证明人家就只是过场动画里用的模型而已 ...</blockquote>
+解包里还有坦克什么的呢，不太可能只是过长
+
+*****
+
+####  大肥鸽子  
+##### 4529#       发表于 2024-5-9 13:48
+
+要是能来个限时登舰战也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

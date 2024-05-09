@@ -897,3 +897,15 @@ PV里白色那个空降服怎么没找到啊</blockquote>
 —— 来自 OPPO PGJM10, Android 14上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
 迅驰最高 渡鸦次之 Lily第三 倒是女主越看越不经看
 
+
+*****
+
+####  jacket  
+##### 1565#       发表于 2024-5-9 14:19
+
+二周目才注意到，咸湿钓鱼佬的脑袋好像是个手持DV的造型
+
+<img src="https://img.imoutomoe.net/images/2024/05/09/20240509140806.jpg" referrerpolicy="no-referrer">
+
+●REC
+

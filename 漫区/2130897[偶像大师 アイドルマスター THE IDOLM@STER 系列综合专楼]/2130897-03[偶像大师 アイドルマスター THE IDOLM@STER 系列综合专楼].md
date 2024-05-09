@@ -14676,3 +14676,11 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Kreis  
+##### 4432#       发表于 2024-5-9 22:33
+
+Moe Shop是这样的，唱是不难唱，就是有点考验舞台效果，最后Live不站桩就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

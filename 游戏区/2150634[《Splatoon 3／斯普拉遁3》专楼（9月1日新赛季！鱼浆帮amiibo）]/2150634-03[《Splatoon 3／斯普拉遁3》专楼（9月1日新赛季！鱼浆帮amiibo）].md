@@ -13530,3 +13530,11 @@ w5 平潮
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4316#       发表于 2024-5-9 18:38
+
+不用绑fb和x还利好国内玩家，看到xhs挺多要投稿的
+

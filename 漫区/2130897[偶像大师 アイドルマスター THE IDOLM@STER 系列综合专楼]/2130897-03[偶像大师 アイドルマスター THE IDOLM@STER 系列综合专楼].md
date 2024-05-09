@@ -14442,3 +14442,20 @@ mv商法不得不品的一环<img src="https://static.saraba1st.com/image/smiley
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摆烂的那当然不算了
 
+
+*****
+
+####  a85982313  
+##### 4407#       发表于 2024-5-9 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64858529&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-5-9 07:51</a>
+
+现在的imas哪怕整个烧了又能有几点火光了，真靠sc才是没救了
+
+—— 来自 S1Fun ...</blockquote>
+推上有个说法是，18年的时候万南社长田口三昭说过，拉拉和爱马仕销售额和当年的光美差不多，18年的话大约就是80多亿的水平
+
+虽然是六年前了，不过这三个企划好像也没有重焕新生的感觉，可能就这个水平吧
+
+当然光美这个ip万南占比应该比拉拉和爱马仕占比低，这三个企划万南版权占比应该是爱马仕＞拉＞光美吧？
+

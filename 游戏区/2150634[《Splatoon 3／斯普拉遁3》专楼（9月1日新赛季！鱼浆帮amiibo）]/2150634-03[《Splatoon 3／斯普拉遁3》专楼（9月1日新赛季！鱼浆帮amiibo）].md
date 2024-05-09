@@ -13538,3 +13538,13 @@ w5 平潮
 
 不用绑fb和x还利好国内玩家，看到xhs挺多要投稿的
 
+
+*****
+
+####  KBAC  
+##### 4317#       发表于 2024-5-9 21:18
+
+多点投稿的好，港服涂鸦太少了，有也很多是纯写字的，期待国内各个社交平台上的小画家发力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

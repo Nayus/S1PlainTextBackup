@@ -602,3 +602,34 @@ Cory Barlog我一直没懂他在旧系列里到底nb在哪里，当然战神4那
 
 我一直是把新战神当一种外传来看待的，因为和老战神真的不像是一个东西。
 
+
+*****
+
+####  barry.allen  
+##### 62#       发表于 2024-5-9 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64862509&amp;ptid=2183057" target="_blank">zzy516232108 发表于 2024-5-9 14:31</a>
+
+dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点的</blockquote>
+那不就是生化危机么，还做啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madcow  
+##### 63#       发表于 2024-5-9 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实回头想想，主要还是新战神开头陌生人那一场把好感拉爆了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能跟我一直觉得旧战神不怎么样也有关系就是了
+
+*****
+
+####  barry.allen  
+##### 64#       发表于 2024-5-9 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64863882&amp;ptid=2183057" target="_blank">hkguty 发表于 2024-5-9 16:46</a>
+
+我感觉David Jaffe其实并没有经常自己报自己战神之父这个名头，而是因为他唯一能留给人们深刻印象的游戏只 ...</blockquote>
+战神之父更多是媒体给David Jaffe套的名头，因为战神还在持续出新作所以拉这个名字有曝光量
+
+真正奠定David Jaffe江湖地位的是暴力竞速游戏Twisted Metal系列，这是他一手打造的，而且出了好多代。但因为是老PS独占而且多年没新作，新一批玩家不知道。但在老一代PS玩家里那是很有名的系列
+

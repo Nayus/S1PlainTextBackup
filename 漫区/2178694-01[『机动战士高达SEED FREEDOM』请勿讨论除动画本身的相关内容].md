@@ -9964,3 +9964,14 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 我这一开始也这么说，后来发现他放反了，7号dub,8号sub，然后9号加场了 ...</blockquote>
 那可能不是fanthom events？起码fanthom events是7号sub，8号dub，也没有9号
 
+
+*****
+
+####  太极八爪鱼  
+##### 823#       发表于 2024-5-11 05:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64880414&amp;ptid=2178694" target="_blank">franklee28 发表于 2024-5-10 11:45</a>
+
+那可能不是fanthom events？起码fanthom events是7号sub，8号dub，也没有9号</blockquote>
+加拿大的……一开始写的是7号sub,然后预售只有dub的。后面9号还加场了。听混乱的
+

@@ -4845,3 +4845,15 @@ ag新箱活这剧情仿佛c团和平解散if线，虽然没真说解散但所有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  枫林不见  
+##### 16721#       发表于 2024-5-10 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64867679&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-5-9 23:13</a>
+别虐摩卡酱
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这下中之人逆输入了
+

@@ -76,3 +76,24 @@ B站也别说**了，两边咲季和手毬的MV播放量与其他人拉开一大
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评价是不如饭制
 
+
+*****
+
+####  游蜓  
+##### 4448#       发表于 2024-5-10 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64868059&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-10 00:01</a>
+
+就这个热度，已经是万南在宣传上超常发挥了。
+
+只要游戏别太拉，吃相别太难看了，小火一把还是有机会的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏模式已经是坐牢预定了
+
+
+*****
+
+####  格雷殿下  
+##### 4449#       发表于 2024-5-10 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去预约网站乐了一下，怎么抽出1万只白毛
+

@@ -5050,3 +5050,23 @@ a在泥潭和nga两头跑整天暴论想充当意见领袖结果像个小丑一�
 只能說 看了感覺兩個團裡面的人是真的不熟……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 應該安排我們鼓音上去給大家肉麻一下看看什麼是閨蜜<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16738#       发表于 2024-5-10 12:58
+
+就迷你专吧大概？
+
+不过5个月连续也是到8月了，感觉对不上，总不能拆两单？感觉一个系列的。
+
+当然可以做大梦不止5首，元素系列7月就出完，8月是别的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 16739#       发表于 2024-5-10 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎麼記得這是第4還5首，等我看看我的excel
+

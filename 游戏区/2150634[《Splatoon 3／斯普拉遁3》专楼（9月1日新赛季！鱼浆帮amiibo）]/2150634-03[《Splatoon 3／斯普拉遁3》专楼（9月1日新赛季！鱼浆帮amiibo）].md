@@ -13558,3 +13558,29 @@ w5 平潮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4319#       发表于 2024-5-10 12:59
+
+第一次升到S+10，太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+<img src="https://s1.locimg.com/2024/05/10/b6d114e90bafd.gif" referrerpolicy="no-referrer">
+
+这个隐游小绿，我慢放才发现他是直接切到我的，并没有躲掩体后面，能杀掉得亏对面跟枪不行
+<img src="https://s1.locimg.com/2024/05/10/78b9ffe551f98.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿冰  
+##### 4320#         楼主| 发表于 2024-5-10 13:02
+
+<blockquote>罗克萨斯 发表于 2024-5-10 10:28
+打挑战遇到个KD为负的双银X章玩家，怀疑是破解机改存档，老任不封么？
+
+—— 来自 S1Fun ...</blockquote>
+也有可能号给来家里的人随便玩玩，这种可能性又排除不了的
+
+有自信的大佬不见得在乎输几把掉的分
+

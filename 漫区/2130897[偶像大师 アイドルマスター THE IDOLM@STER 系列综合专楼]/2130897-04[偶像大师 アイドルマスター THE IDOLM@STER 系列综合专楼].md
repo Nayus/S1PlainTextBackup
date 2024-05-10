@@ -66,3 +66,13 @@ B站也别说**了，两边咲季和手毬的MV播放量与其他人拉开一大
 就这个热度，已经是万南在宣传上超常发挥了。
 只要游戏别太拉，吃相别太难看了，小火一把还是有机会的。
 
+
+*****
+
+####  何处分可  
+##### 4447#       发表于 2024-5-10 12:33
+
+【「Fashionable」【偶像大师闪耀色彩 Song for Prism MV】】 [https://www.bilibili.com/video/B ... cc556defeee1979fb27](https://www.bilibili.com/video/BV1zH4y1g7o6/?share_source=copy_web&amp;vd_source=7c4a22637017bcc556defeee1979fb27)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评价是不如饭制
+

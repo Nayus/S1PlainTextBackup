@@ -1128,3 +1128,23 @@ DISK-９
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ramsenia  
+##### 15732#       发表于 2024-5-10 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873513&amp;ptid=1997982" target="_blank">Kiyohara_Yasuke 发表于 2024-5-10 15:30</a>
+这次是9cd啊，野吹的ost是11张还是几张来着我给忘了</blockquote>
+野吹是5张CD
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  芜湖挨宰  
+##### 15733#       发表于 2024-5-10 15:45
+
+所以dlc确定是没了？
+

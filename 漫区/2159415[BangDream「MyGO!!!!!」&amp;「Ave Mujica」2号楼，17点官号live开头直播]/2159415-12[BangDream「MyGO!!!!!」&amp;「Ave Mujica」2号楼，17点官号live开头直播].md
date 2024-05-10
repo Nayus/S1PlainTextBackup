@@ -5084,3 +5084,21 @@ a在泥潭和nga两头跑整天暴论想充当意见领袖结果像个小丑一�
 
 新团母鸡卡live全靠他收到的
 
+
+*****
+
+####  穗波殊  
+##### 16741#       发表于 2024-5-10 15:41
+
+虽然感觉不太合时宜但这张翻唱的曲绘真好啊
+
+<img src="https://img.saraba1st.com/forum/202405/10/153934gd1ptl50etee0ez7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_153902_tv.danmaku.bili.jpg</strong> (242.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 15:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">重音teto今犹在，不见当年奇美拉
+

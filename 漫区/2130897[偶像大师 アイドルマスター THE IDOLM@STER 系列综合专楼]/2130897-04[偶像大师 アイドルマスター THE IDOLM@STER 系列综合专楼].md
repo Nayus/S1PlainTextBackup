@@ -186,3 +186,18 @@ SC组在galgame的PPT形式艺术造诣有多高，他们在3D动画上的审美
 
 找个更可靠的动画P吧
 
+
+*****
+
+####  花开安菲路  
+##### 4460#       发表于 2024-5-10 18:32
+
+ 本帖最后由 花开安菲路 于 2024-5-10 18:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875427&amp;ptid=2130897" target="_blank">はらみー 发表于 2024-5-10 18:17</a>
+scsp和动画我觉得不像拿了多大的资源做的，至少动画我觉得就没百万投入的多 ...</blockquote>
+一季动画还能比两季投入多啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+百万动画那是遇到了厨力监督，在这种厨力+专业人士带领下，制作组齐心做出了好作品，
+原作万南百万这边除了提出把人物改成熟点，基本是放手让他们去做。
+sc动画看访谈基本就是高山为代表的游戏制作组，全权发挥指导，监督系构脚本演出都是打工仔，得时时看甲方脸色。
+这些做页游的，能搞好动画就见鬼了。
+

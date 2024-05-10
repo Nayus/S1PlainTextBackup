@@ -1296,3 +1296,11 @@ CD日亚能订了，可以直邮</blockquote>
 
 —— 来自 HUAWEI BLA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  seize1121  
+##### 15748#       发表于 2024-5-10 18:28
+
+OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage普通版7cd+1dvd卖8250，ff7rb初回8cd卖8800
+

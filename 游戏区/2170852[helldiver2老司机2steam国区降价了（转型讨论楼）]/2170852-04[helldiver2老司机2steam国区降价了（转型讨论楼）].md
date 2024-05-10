@@ -1778,3 +1778,18 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 由衷感谢u/gergination和他的团队对巡逻机制做出的宝贵分析工作。没有他们的数据,我们就无法驳斥Arrowhead关于巡逻出现率的完全虚假的说法。
 
+
+*****
+
+####  屑屑代沟尼亚  
+##### 4607#       发表于 2024-5-10 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875302&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-10 18:03</a>
+
+我一代钉刺虫呢
+
+一百年前最吓人的钉刺虫怎么过了一百年后消失了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按现在这个坦克不要钱的刷法
+
+高难随到钉刺虫模板直接变触手巢穴开启R18剧情是吧
+

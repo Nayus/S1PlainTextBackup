@@ -9908,3 +9908,36 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 阿斯兰党和卡嘉莉的战斗力是真的吓人，都卖光了惟一一个剩下的还是官方自己没长眼的搞了阿斯兰和米亚
 
+
+*****
+
+####  novyMS  
+##### 818#       发表于 2024-5-10 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64869185&amp;ptid=2178694" target="_blank">残酷的天使 发表于 2024-05-10 08:35:23</a>
+在加拿大看完了
+
+狼简直深不可测感觉根本没有用全力。你个修罗近战和魔蝎打平真的脸都不要了。
+
+鸡神最强科研 ...</blockquote>开个扎古都能按着3小强打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  欧金金  
+##### 819#       发表于 2024-5-10 21:10
+
+刚出的种命BD-BOX新规强自可以在地球上开光翼，设定上不是不可以吗？
+
+*****
+
+####  pokemon最爱  
+##### 820#       发表于 2024-5-10 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64877331&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-5-10 21:10</a>
+
+刚出的种命BD-BOX新规强自可以在地球上开光翼，设定上不是不可以吗？</blockquote>
+最近几年的设定是能开但是不丢龙骑不能完全发挥（
+

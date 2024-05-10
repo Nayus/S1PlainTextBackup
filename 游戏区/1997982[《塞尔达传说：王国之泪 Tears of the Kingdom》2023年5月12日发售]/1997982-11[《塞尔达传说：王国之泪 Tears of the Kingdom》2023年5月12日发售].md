@@ -1377,3 +1377,70 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  清浦刹那  
+##### 15756#       发表于 2024-5-10 21:11
+
+<strong>大师碟 </strong>24.07.31
+
+任店：
+
+通常版
+[https://store-jp.nintendo.com/li ... er/NSJ_8_BLAAQ.html](https://store-jp.nintendo.com/list/goods/book-music-poster/NSJ_8_BLAAQ.html)
+
+初回数量限定
+[https://store-jp.nintendo.com/li ... ter/NSJ_8_BLAAP.htm](https://store-jp.nintendo.com/list/goods/book-music-poster/NSJ_8_BLAAP.htm)
+
+日亚：
+
+已可订 能直邮
+[https://www.amazon.co.jp/dp/B0D2 ... t_b_product_details](https://www.amazon.co.jp/dp/B0D2RXXVCH?psc=1&amp;ref=ppx_yo2ov_dt_b_product_details)
+
+<strong>大师书 </strong>24.08.30
+
+任店：
+[https://store-jp.nintendo.com/li ... er/NSJ_8_CJAAA.html](https://store-jp.nintendo.com/list/goods/book-music-poster/NSJ_8_CJAAA.html)
+
+日亚：
+
+已可订 无直邮
+[https://www.amazon.co.jp/dp/4198 ... _wl_lv_ov_lig_dp_it](https://www.amazon.co.jp/dp/4198658730/?coliid=I7A7U09HO63CY&amp;colid=1SK9U1I0MBORN&amp;psc=0&amp;ref_=list_c_wl_lv_ov_lig_dp_it)
+
+<strong>大师剑 </strong>24.09.--
+
+任店：
+[https://store-jp.nintendo.com/list/goods/hobby/NSJ_8_A3AAN.html](https://store-jp.nintendo.com/list/goods/hobby/NSJ_8_A3AAN.html)
+
+日亚：
+
+暂无第一方
+
+天猫旗舰店：
+
+未知
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Waldeinsamkeit| + 1|辛苦整理信息|
+
+查看全部评分
+
+*****
+
+####  冷泉夜月  
+##### 15757#       发表于 2024-5-10 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64877171&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-05-10 20:53:18</a>
+啊日亚上了吗？我只看到一个32700不支持直邮的，感觉不像官方像黄牛（
+就算国内能买我也很头大，完全不知 ...</blockquote>好像确实不是日亚官方的，等等看吧<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

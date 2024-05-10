@@ -261,3 +261,26 @@ sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">scsp主要是几个问题都很致命，画面糊糊，动作僵硬，是一眼就能开出来的都没搞好
 
+
+*****
+
+####  野菜一日分  
+##### 4467#       发表于 2024-5-10 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组合拳不是打出来就会有效果，过去几年万南在media mix的方针上就有大问题，大家这次感叹学马上有进步了不就是因为之前太糟了。百动画靠厨力照顾了P但那个构成也不是能拉到新人的构成（不过我是觉得百动画本身就是各个交代，没什么运营上意义）。
+
+
+*****
+
+####  Seeley  
+##### 4468#       发表于 2024-5-10 21:10
+
+说到底做的时候百动画有拉新的想法嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 4469#       发表于 2024-5-10 21:16
+
+都十年了还要吸引新人？不如多照顾照顾老东西，让老东西把自己儿子女儿拉进坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

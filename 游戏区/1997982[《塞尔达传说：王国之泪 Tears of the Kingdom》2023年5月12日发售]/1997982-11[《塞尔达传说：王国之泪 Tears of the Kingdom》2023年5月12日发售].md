@@ -1352,3 +1352,28 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 天猫店不知道会不会出
 
+
+*****
+
+####  冷泉夜月  
+##### 15754#       发表于 2024-5-10 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64876912&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-05-10 20:28:35</a>
+大师剑是不是日亚还没上架</blockquote>日亚上了但是好像寄不了国内，代哥微博发了大师剑的介绍，如果国内不搞魂限的话到时候可以考虑吃现<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15755#       发表于 2024-5-10 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64877109&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2024-5-10 20:46</a>
+日亚上了但是好像寄不了国内，代哥微博发了大师剑的介绍，如果国内不搞魂限的话到时候可以考虑吃现
+ ...</blockquote>
+啊日亚上了吗？我只看到一个32700不支持直邮的，感觉不像官方像黄牛（
+就算国内能买我也很头大，完全不知道要怎么带出来，随身真的感觉安检不会让我上飞机，感觉得给这货额外买个行李托运<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

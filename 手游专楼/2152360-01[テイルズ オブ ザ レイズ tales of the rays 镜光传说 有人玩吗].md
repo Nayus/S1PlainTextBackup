@@ -573,3 +573,14 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 
 活动21日结束，每日免费十连30日结束
 
+
+*****
+
+####  法拉  
+##### 65#         楼主| 发表于 2024-5-10 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64874897&amp;ptid=2152360" target="_blank">kurosophie 发表于 2024-5-10 17:27</a>
+
+活动21日结束，每日免费十连30日结束</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">blue earth，全外传co，新池免费十连，你游真的一股子要寿终正寝的味道了
+

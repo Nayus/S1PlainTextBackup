@@ -1524,3 +1524,26 @@ pay to未来可期
 
 对了冲锋枪能打坦克虫屁股晕坦克虫，但是没法晕泰坦。
 
+
+*****
+
+####  山风短  
+##### 4594#       发表于 2024-5-10 14:04
+
+薪火相传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/10/140318jz9s8a901wny8um4.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2084.png</strong> (459.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 14:03 上传
+
+*****
+
+####  山风短  
+##### 4595#       发表于 2024-5-10 14:05
+
+我看这Reddit节奏是又压不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -153,3 +153,17 @@ dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face201
 
 大人向け玩具「PROPLICA」シリーズで実物大商品化！
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15720#       发表于 2024-5-10 13:57
+
+ 本帖最后由 Waldeinsamkeit 于 2024-5-10 13:58 编辑 
+
+真漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+看来是OST、大师剑和设定集三连发？不知道这回设定集会不会同步引进翻译……
+如果又晚上几年的话，难道我又得先买本外语的，书架真的快放不下了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1384,3 +1384,37 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ravend233  
+##### 4579#       发表于 2024-5-10 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空投四个斯巴达下来看你们冻肉怎么打
+
+*****
+
+####  Mr.Hopp  
+##### 4580#       发表于 2024-5-10 11:08
+
+主宰能全自动，但是好像是三连发？
+
+*****
+
+####  WGTCorp  
+##### 4581#       发表于 2024-5-10 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870156&amp;ptid=2170852" target="_blank">wthall 发表于 2024-5-10 10:16</a>
+
+镰刀的问题屎遇到盾虫坦克虫这种的就抓瞎了，所以之前才被迫加入火喷神教 ...</blockquote>
+盾虫可以打前爪可以绕；坦克虫这种就不是常规一号位武器需要处理的东西，正面打不穿，屁股90%减伤，没有爆炸伤害的主武器打它纯属浪费弹药。镰刀的问题是不能快速击杀指挥官和隐身虫，主宰能打这俩但是清不了虫潮，连喷火喷这些都能打，所以就能压其他主武器一头。
+
+*****
+
+####  ravend233  
+##### 4582#       发表于 2024-5-10 11:09
+
+切连射是间隔比较长的三连射，不是全自动
+
+把审判改改，伤害加到100，弹匣30感觉可能差不多了?
+

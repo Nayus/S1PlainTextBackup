@@ -715,3 +715,20 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 
 跳跳乐推箱子很爽？
 
+
+*****
+
+####  gane1010  
+##### 72#       发表于 2024-5-10 11:10
+
+新老战神我都喜欢  当年老战神完结也是那个模式到顶了啊  新战神让这个ip重发生机  都非常重要  
+
+*****
+
+####  sxcluck  
+##### 73#       发表于 2024-5-10 11:15
+
+建议分开看和解吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老版就是个cult类，虽然David jaffe收敛了很多，但1很明显很多流程剧情设计单纯就只有一个目的，暴血浆<img src="https://static.saraba1st.com/image/smiley/carton2017/413.png" referrerpolicy="no-referrer"> 
+

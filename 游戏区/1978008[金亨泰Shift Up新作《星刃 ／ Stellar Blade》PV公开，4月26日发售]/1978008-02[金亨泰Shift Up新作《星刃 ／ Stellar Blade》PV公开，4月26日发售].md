@@ -1119,3 +1119,23 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 我想知道后面怎么延续人类，从eve身体里分裂出后代吗？</blockquote>
 怀疑制作组自己都没想好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jacket  
+##### 1587#       发表于 2024-5-10 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870559&amp;ptid=1978008" target="_blank">jxzeroga0 发表于 2024-5-10 10:51</a>
+
+怀疑制作组自己都没想好</blockquote>
+
+这游戏从物品文字到流程中的一些细节能看出来想了很多，这方面倒是不担心，就看怎么实现了。
+
+几个有印象的点：
+
+· 最终营地玩家第一反应会吐槽这地方怎么会有营地，于是专门给坐椅子加了一段台词补充。
+
+· 扫描和机炮都是无人机的工作，所以扫描的一瞬间左手开不了枪，另外无人机飞到一旁指路的时候连续好几秒都开不了枪，设定卡的很死。
+
+· 小熊服装那个任务，本来奖励直接进包就可以，这游戏为了不让衣服凭空出现，专门在npc身后的长椅上摆了一件小熊服装的完整模型，交完任务才消失，我看着就很惊讶。
+

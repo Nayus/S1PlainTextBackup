@@ -4917,3 +4917,13 @@ ag新箱活这剧情仿佛c团和平解散if线，虽然没真说解散但所有
 
 虽然我也觉得不会解散就是，不然对摩卡cv来说也太地狱了，这是真的能搞出病的
 
+
+*****
+
+####  akirakira  
+##### 16726#       发表于 2024-5-10 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨晚邦tv尬尬的还挺乐，可能节约比较内向第一次上邦TV紧张了
+不过节约除了李子可能就和青木熟点，初睦确实磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+快结束的时候甚至自己说和羊宫小日向不熟(这是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，还特意追加一段以后想和她们搞好关系的客套话笑死
+

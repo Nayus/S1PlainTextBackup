@@ -154,3 +154,19 @@ tomoon吧，翻墙啥都有了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ultraseven  
+##### 1194#       发表于 2024-5-10 10:38
+
+感觉没升级需求，反正我都是插电玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  trow233  
+##### 1195#       发表于 2024-5-10 10:42
+
+新的电池要是能单卖给原版升级就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

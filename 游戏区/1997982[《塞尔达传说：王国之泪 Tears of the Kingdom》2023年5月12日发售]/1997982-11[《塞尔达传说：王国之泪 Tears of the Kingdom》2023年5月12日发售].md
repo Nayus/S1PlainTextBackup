@@ -1200,3 +1200,16 @@ DISK-９
 
 那个LEVEL应该是难易度？不过目前只解开了三角力量，对锁链反而苦手
 
+
+*****
+
+####  liekong  
+##### 15739#       发表于 2024-5-10 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873928&amp;ptid=1997982" target="_blank">佛罗伦萨 发表于 2024-5-10 16:03</a>
+
+我印象中织梦岛里好像没有出现大师剑，众神2是有的。这张图感觉是搞错了
+
+ ...</blockquote>
+图只是列举了收录了哪些作品的BGM，要说的话，初代海拉鲁幻想也没大师之剑
+

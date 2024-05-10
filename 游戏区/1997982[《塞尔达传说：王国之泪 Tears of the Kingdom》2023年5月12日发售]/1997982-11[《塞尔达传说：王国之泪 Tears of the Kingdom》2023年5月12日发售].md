@@ -1055,3 +1055,11 @@ DISK-９
 
 这是要大家带着剑出去当自带BGM的林克吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  牛奶笛  
+##### 15725#       发表于 2024-5-10 14:46
+
+有大师之书挺惊喜的，还以为要等40周年的企划。
+

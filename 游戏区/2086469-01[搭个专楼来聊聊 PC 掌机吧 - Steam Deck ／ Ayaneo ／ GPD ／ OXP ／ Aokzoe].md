@@ -170,3 +170,13 @@ tomoon吧，翻墙啥都有了
 
 新的电池要是能单卖给原版升级就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  luffyzhou  
+##### 1196#       发表于 2024-5-10 14:53
+
+ 本帖最后由 luffyzhou 于 2024-5-10 14:56 编辑 
+
+其实32g内存还有些意义（可用显存能多分配些），2280支持现在也有改装方案。另外要是有32g的话，是不是后续自己咸鱼加装32g的也可以正常更新BIOS了
+

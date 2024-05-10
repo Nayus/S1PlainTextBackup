@@ -1418,3 +1418,11 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 把审判改改，伤害加到100，弹匣30感觉可能差不多了?
 
+
+*****
+
+####  Mr.Hopp  
+##### 4583#       发表于 2024-5-10 11:25
+
+看主宰的描述，真能连发等着伤害被砍废吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

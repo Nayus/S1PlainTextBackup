@@ -209,3 +209,26 @@ sc动画看访谈基本就是高山为代表的游戏制作组，全权发挥指
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞美术的不会演出啥的也正常
 
+
+*****
+
+####  花开安菲路  
+##### 4462#       发表于 2024-5-10 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875823&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-5-10 18:50</a>
+搞美术的不会演出啥的也正常</blockquote>
+不光演出，动画音乐插入拉中拉，也是影响观感最烂的点之一，而动画音响监督正是sc页游的音响监督<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vacuolar  
+##### 4463#       发表于 2024-5-10 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875427&amp;ptid=2130897" target="_blank">はらみー 发表于 2024-5-10 18:17</a>
+
+scsp和动画我觉得不像拿了多大的资源做的，至少动画我觉得就没百万投入的多 ...</blockquote>
+为啥有这种幻觉，scsp上来模型精细度，服装材质，动作数量，布娃娃效果能上的装饰都完爆mltd，进入互动界面的流畅跟偶像动作的微调非常成功。这么好的底子但mv做不好，不就是一群纯菜狗做不好舞步，镜头和优化。
+
+sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的垃圾模型。这毫无信息量的幽默脚本小高早说了自己有最终审核权并且在写的时候高度参与，搞成这样要怪没钱吗？3d动画，静态镜头反而很贵，动作镜头反而便宜。但明显企划方发癫了找他们做了一堆非常幽默的静态镜头，这垃圾op看得出是有人对静态镜头相当执着才会那么难看，而不是钱没给够卡数低。
+

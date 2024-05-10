@@ -5026,3 +5026,27 @@ QQ图片20240510123845.png
 
 ag可别逆输入，就三泽那个精神状态……倒是樱小姐当皮套歌手挺开心，又是发专辑又是tie电视剧又要开演唱会的
 
+
+*****
+
+####  御幸一也  
+##### 16736#       发表于 2024-5-10 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64871237&amp;ptid=2159415" target="_blank">zzhh0131 发表于 2024-5-10 11:47</a>
+
+a在泥潭和nga两头跑整天暴论想充当意见领袖结果像个小丑一样</blockquote>
+點草說名字吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16737#       发表于 2024-5-10 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870453&amp;ptid=2159415" target="_blank">akirakira 发表于 2024-5-10 10:42</a>
+
+昨晚邦tv尬尬的还挺乐，可能节约比较内向第一次上邦TV紧张了
+
+不过节约除了李子可能就和青木熟点，初 ...</blockquote>
+只能說 看了感覺兩個團裡面的人是真的不熟……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+應該安排我們鼓音上去給大家肉麻一下看看什麼是閨蜜<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

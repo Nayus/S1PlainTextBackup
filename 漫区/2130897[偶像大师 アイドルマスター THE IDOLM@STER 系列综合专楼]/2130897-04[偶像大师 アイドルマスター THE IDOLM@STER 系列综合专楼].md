@@ -284,3 +284,20 @@ sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的
 
 都十年了还要吸引新人？不如多照顾照顾老东西，让老东西把自己儿子女儿拉进坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 4470#       发表于 2024-5-10 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">走东方老路，拉小朋友入坑是吧
+
+*****
+
+####  RhmBWT_Wu  
+##### 4471#       发表于 2024-5-10 21:23
+
+这就是做成ニチアサ的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

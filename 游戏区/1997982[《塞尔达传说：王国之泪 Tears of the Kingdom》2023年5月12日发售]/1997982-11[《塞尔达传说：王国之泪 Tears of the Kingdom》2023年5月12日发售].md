@@ -1444,3 +1444,19 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  h122h  
+##### 15758#       发表于 2024-5-10 21:23
+
+日亚上了但不能直邮，现在是被倒爷抢完了，都是第三方倒爷上架了现在。这剑是通贩的，除了日亚其他都上的，比如乐天自营[https://books.rakuten.co.jp/rb/17872977/](https://books.rakuten.co.jp/rb/17872977/)，但现在也抢完了。
+
+<img src="https://img.saraba1st.com/forum/202405/10/212415ht4z2h3xc43b3iig.png" referrerpolicy="no-referrer">
+
+<strong>22.png</strong> (41.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 21:24 上传
+

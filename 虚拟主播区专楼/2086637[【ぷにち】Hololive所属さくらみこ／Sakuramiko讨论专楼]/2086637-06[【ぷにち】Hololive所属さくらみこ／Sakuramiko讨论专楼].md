@@ -6700,3 +6700,19 @@ RTA开始了
 
 甚至官方给配了中文翻译字幕
 
+
+*****
+
+####  holoan  
+##### 8777#         楼主| 发表于 2024-5-10 23:13
+
+<img src="https://img.saraba1st.com/forum/202405/10/231143l5ljs7jj7jjbpfbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (719.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 23:11 上传
+
+直播窗还没开，如果日程没变的话明天中午的一个联动
+

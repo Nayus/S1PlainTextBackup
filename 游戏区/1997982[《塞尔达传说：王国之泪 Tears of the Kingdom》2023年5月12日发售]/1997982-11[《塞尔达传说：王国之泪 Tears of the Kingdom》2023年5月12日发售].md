@@ -1108,3 +1108,23 @@ DISK-９
 希望国内能早点引进Master Work吧，目前除了25周年绿色那本，红的白的蓝的我全都买了两本，如果绿的引进了 ...</blockquote>
 其实也不着急买，也没初回特典，稍微等一段时间看看呗
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 15730#       发表于 2024-5-10 15:30
+
+这次是9cd啊，野吹的ost是11张还是几张来着我给忘了
+
+*****
+
+####  Waldeinsamkeit  
+##### 15731#       发表于 2024-5-10 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873471&amp;ptid=1997982" target="_blank">liekong 发表于 2024-5-10 15:27</a>
+其实也不着急买，也没初回特典，稍微等一段时间看看呗</blockquote>
+我就担心国内又隔上好几年，然后这中间我管不住手了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过现在倒确实是有个稍微能拦住我的理由：英语版肯定是MTPE（先机翻后校对），大师之书的英翻我其实不是特别满意，为了这个理由确实可以多等等
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

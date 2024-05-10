@@ -1163,3 +1163,40 @@ DISK-９
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大师剑如果想买的话国内有靠谱渠道吗？
 
+
+*****
+
+####  liekong  
+##### 15736#       发表于 2024-5-10 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873697&amp;ptid=1997982" target="_blank">芜湖挨宰 发表于 2024-5-10 15:45</a>
+
+所以dlc确定是没了？</blockquote>
+九成概率是没了，NS2发售后顶多搞个性能增加补丁
+
+*****
+
+####  佛罗伦萨  
+##### 15737#       发表于 2024-5-10 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873140&amp;ptid=1997982" target="_blank">liekong 发表于 2024-5-10 14:59</a>
+
+这大师剑可能就占个官方版权+官方监修造型还原了，
+
+不舍得钱的话，某宝不到500一把拿来收藏也不错 ...</blockquote>
+我印象中织梦岛里好像没有出现大师剑，众神2是有的。这张图感觉是搞错了
+
+
+*****
+
+####  棍机凹升龙  
+##### 15738#       发表于 2024-5-10 16:04
+
+<img src="https://pic.imgdb.cn/item/663dd3dd0ea9cb14038650c6.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.imgdb.cn/item/663dd3dd0ea9cb1403865054.jpg" referrerpolicy="no-referrer">
+<img src="https://pic.imgdb.cn/item/663dd3dc0ea9cb1403864f98.jpg" referrerpolicy="no-referrer">
+
+在大阪梅田的旗舰店买了三个HUZZLE，回头一搜PDD价格其实差不多不过当时逛得真开心还能积金币<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+那个LEVEL应该是难易度？不过目前只解开了三角力量，对锁链反而苦手
+

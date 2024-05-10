@@ -1109,3 +1109,13 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 
 我想知道后面怎么延续人类，从eve身体里分裂出后代吗？
 
+
+*****
+
+####  jxzeroga0  
+##### 1586#       发表于 2024-5-10 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870282&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-10 10:26</a>
+我想知道后面怎么延续人类，从eve身体里分裂出后代吗？</blockquote>
+怀疑制作组自己都没想好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

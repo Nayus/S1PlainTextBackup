@@ -4927,3 +4927,24 @@ ag新箱活这剧情仿佛c团和平解散if线，虽然没真说解散但所有
 不过节约除了李子可能就和青木熟点，初睦确实磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 快结束的时候甚至自己说和羊宫小日向不熟(这是可以说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，还特意追加一段以后想和她们搞好关系的客套话笑死
 
+
+*****
+
+####  PDQ4  
+##### 16727#       发表于 2024-5-10 10:50
+
+真有那个魄力手游团毕业吗，大炎上不可避，这下邦邦真要寄了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 16728#       发表于 2024-5-10 10:53
+
+ 本帖最后由 平昭·南宫司卿 于 2024-5-10 10:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870186&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-10 10:19</a>
+
+因为手游三团没有真人压底，是真的担心哪天就被邦邦官方毕业掉了，ag因为cv全员大牌对这点尤其担心，之前 ...</blockquote>
+没真人更没啥好毕业的，卖卡的游戏就是配个音唱点歌，要哪天真出现这个情况，那还不如认为是 cv 自身情况更合理；说实话先不谈所谓的打牌不打牌，如果就因为打牌就不要了那配音这行还是死球算了；至于 sv 音源，除了自家人和半个亲女儿养的，还不如说出不了的才是最符合常理的，miku 能出才是比较意外的那个
+
+又不是爆不了米，实在是不知道真把一个团毕业了对 wsd 有啥好处
+

@@ -9954,3 +9954,13 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 我这边5月7号的场次全是嘎仔话sub 8号才是鬼话dub</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我这一开始也这么说，后来发现他放反了，7号dub,8号sub，然后9号加场了
 
+
+*****
+
+####  franklee28  
+##### 822#       发表于 2024-5-11 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64880405&amp;ptid=2178694" target="_blank">太极八爪鱼 发表于 2024-5-11 03:35</a>
+我这一开始也这么说，后来发现他放反了，7号dub,8号sub，然后9号加场了 ...</blockquote>
+那可能不是fanthom events？起码fanthom events是7号sub，8号dub，也没有9号
+

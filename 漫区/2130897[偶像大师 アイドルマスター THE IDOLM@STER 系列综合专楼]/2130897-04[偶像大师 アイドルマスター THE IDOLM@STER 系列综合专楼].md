@@ -301,3 +301,11 @@ sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  840266848  
+##### 4472#       发表于 2024-5-10 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">等个学1st宣布2D动画化
+

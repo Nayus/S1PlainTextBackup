@@ -1264,3 +1264,19 @@ ar伤害区间太小了，数值也确实很难办，还是得整体加伤<img s
 
 箭头内部怎么这么多贵物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 4566#       发表于 2024-5-10 10:03
+
+新的冲锋枪好像还可以，打牛屁股可以直接控到屁股被打爆，打机器人好像也能控住很多敌人，就是对瞄准有点要求，还好能带盾
+
+*****
+
+####  白昼梦  
+##### 4567#       发表于 2024-5-10 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前那个跳弹优先击杀玩家的补丁，我现在觉得就是傻逼箭头对护甲系统想出来的解决方案了。
+解决不了护甲系统就让玩家穿不了甲的时候越打自己越掉血作为警告
+

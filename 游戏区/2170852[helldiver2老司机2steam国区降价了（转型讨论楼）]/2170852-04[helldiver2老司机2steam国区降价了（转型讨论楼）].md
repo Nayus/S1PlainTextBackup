@@ -1474,3 +1474,38 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 遥遥领先债券出来时，甚至还有这个游戏pay to win的言论
 现在大概是pay to 当冤种
 
+
+*****
+
+####  Launce  
+##### 4589#       发表于 2024-5-10 12:19
+
+<img src="https://img.saraba1st.com/forum/202405/10/121704iv0siagz4s3k4rva.jpg" referrerpolicy="no-referrer">
+
+<strong>RGQMV8LZ%]NWE4DKGO1ZOVC.jpg</strong> (13.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 12:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S级！
+
+*****
+
+####  NeoEvens22  
+##### 4590#       发表于 2024-5-10 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64871173&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-10 11:41</a>
+
+那个之前传闻的武器改造系统其实就是开发者武器设计工具，基本上可以看作以某个武器为模板增增减减。[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那真是遗憾
+
+*****
+
+####  ravend233  
+##### 4591#       发表于 2024-5-10 12:21
+
+pay to未来可期
+

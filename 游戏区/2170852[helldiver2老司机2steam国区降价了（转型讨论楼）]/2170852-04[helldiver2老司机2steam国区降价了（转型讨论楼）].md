@@ -1280,3 +1280,32 @@ ar伤害区间太小了，数值也确实很难办，还是得整体加伤<img s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前那个跳弹优先击杀玩家的补丁，我现在觉得就是傻逼箭头对护甲系统想出来的解决方案了。
 解决不了护甲系统就让玩家穿不了甲的时候越打自己越掉血作为警告
 
+
+*****
+
+####  WGTCorp  
+##### 4568#       发表于 2024-5-10 10:13
+
+审判的问题还是后坐力太大了，虽然之前降了，但全自动扫射还是不好控制。
+
+高难怪太多了，跳虫潮混几个虫族指挥官/隐身虫就算是射速拉满的盟友也扫不完，普通的突击步枪就更别说了，也就镰刀这种dps不差，还能无限弹药的步枪能上场了。
+
+*****
+
+####  wthall  
+##### 4569#       发表于 2024-5-10 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64870116&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-5-10 10:13</a>
+
+审判的问题还是后坐力太大了，虽然之前降了，但全自动扫射还是不好控制。
+
+高难怪太多了，跳虫潮混几个虫族 ...</blockquote>
+镰刀的问题屎遇到盾虫坦克虫这种的就抓瞎了，所以之前才被迫加入火喷神教
+
+*****
+
+####  白昼梦  
+##### 4570#       发表于 2024-5-10 10:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过巴不得箭头这帮傻逼2028再出补丁，在此之前先回退到爆裂铳砍废之前的版本
+

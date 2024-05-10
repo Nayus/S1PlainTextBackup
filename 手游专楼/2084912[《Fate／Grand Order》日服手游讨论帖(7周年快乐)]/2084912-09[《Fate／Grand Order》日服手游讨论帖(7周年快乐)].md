@@ -7983,3 +7983,11 @@ https://github.com/rayshift/translatefgo/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至不是绑apple id
 
+
+*****
+
+####  usoda  
+##### 12733#       发表于 2024-5-10 08:10
+
+游戏里的简易注册那是真的简易…邮箱密码一打就完事了…我甚至在邮箱里看不到相关的通知邮件<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+

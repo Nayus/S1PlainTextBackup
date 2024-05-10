@@ -1589,3 +1589,145 @@ pay to未来可期
 
 还有个控制效果的生效范围的问题，像主宰和重炮手，主宰有35的击晕，可以控住虫子的大部分敌人，重炮有35击退，好像就击退不了隐型虫
 
+
+*****
+
+####  kalavinka  
+##### 4601#         楼主| 发表于 2024-5-10 17:50
+
+Illuminate        光能者        光能者        イルミネイト
+
+Observers        光能观测者        光能觀測者        オブザーバー
+
+Outcast Seeker        逐觅光弃者        光棄追尋者        アウトキャスト・シーカー
+
+Outcast Trackers 循踪光弃者        光棄追蹤者        アウトキャスト・トラッカー
+
+Zealot        狂热战士        狂熱者        ジーロット
+
+Ghoul        噬光者        食屍者        グール
+
+Outcast Slasher        狂刃光弃者        光棄殺戮者        アウトキャスト・スラッシャー
+
+Sentinel        哨兵        哨兵        センチネル
+
+Sentinel        光能哨兵        哨兵        センチネル
+
+Baneful Sentinel        祸患光能哨兵        邪惡哨兵        ベインフル・センチネル
+
+Magus Acolyte        奇能侍僧        魔法學徒        マグス・アコライト
+
+Magus Adept        奇能灵使者        魔法萬能者        マグス・アデプト
+
+Prophet Illusionist        先知幻光大师        先知幻光大師        プロフェット・イリュージョニスト
+
+Xenobite Initiate        初始异噬者        新進地獄使者        ゼノバイト・イニシエイト
+
+Xenobite Ardent        炽热异噬者        熾燃地獄使者        ゼノバイト・アーデント
+
+*****
+
+####  kalavinka  
+##### 4602#         楼主| 发表于 2024-5-10 17:51
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+2ef537be73ed8afa9161f7da4e03d00d8360100.png@1048w_!web-dynamic.avif
+(23.86 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+4db54309ed6578643454add2207dce098360100.png@1048w_!web-dynamic.avif
+(27.14 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+62d0b9488d2547e6d3bea2e65cca7bc38360100.png@1048w_!web-dynamic.avif
+(45.43 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+832f1591ac3645041878723d343b46108360100.png@1048w_!web-dynamic.avif
+(25.54 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+354788ca4ef8128b55ead941821770b18360100.png@1048w_!web-dynamic.avif
+(42.08 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+b247a45fba1045c05befd664a58c6ff48360100.png@1048w_!web-dynamic.avif
+(13.82 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+dbdcab8a472849f3f0a743e71907c0708360100.png@1048w_!web-dynamic.avif
+(35.54 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+dda7f9a291b98ab49ec3bb600e4436b18360100.png@1048w_!web-dynamic.avif
+(9.41 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+e6fb6c3b7090489d6e62ef46056cdf7e8360100.png@1048w_!web-dynamic.avif
+(36.72 KB, 下载次数: 0)
+
+2024-5-10 17:50 上传
+
+点击文件名下载附件
+
+*****
+
+####  Mr.Hopp  
+##### 4603#       发表于 2024-5-10 17:51
+
+按照箭头的习惯，这把冲锋枪的晕眩代码应该跟晕眩雷用同一个代码。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 4604#         楼主| 发表于 2024-5-10 17:52
+
+然后貌似还有几个虫子和机器人的新单位
+
+Prowler        潜掠虫        潛掠蟲        プローラー
+
+Bile Charger        吐酸强袭虫        膽汁衝鋒蟲        バイル・チャージャー
+
+Barrager Tanks        铁幕坦克        火箭彈幕坦克        バラ―ジャー・タンク
+

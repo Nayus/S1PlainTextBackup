@@ -5070,3 +5070,17 @@ a在泥潭和nga两头跑整天暴论想充当意见领袖结果像个小丑一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎麼記得這是第4還5首，等我看看我的excel
 
+
+*****
+
+####  550616  
+##### 16740#       发表于 2024-5-10 13:50
+
+ 本帖最后由 550616 于 2024-5-10 13:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">B战收藏灰了好多，看动态是被举报了
+
+还有某位字幕组成员发了萝前几年大阪第一天熟肉，现在账号是封禁状态
+
+新团母鸡卡live全靠他收到的
+

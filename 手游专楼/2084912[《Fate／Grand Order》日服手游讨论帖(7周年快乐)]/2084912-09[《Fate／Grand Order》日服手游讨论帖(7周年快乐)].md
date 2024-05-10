@@ -7991,3 +7991,11 @@ https://github.com/rayshift/translatefgo/
 
 游戏里的简易注册那是真的简易…邮箱密码一打就完事了…我甚至在邮箱里看不到相关的通知邮件<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 12734#       发表于 2024-5-10 08:23
+
+不放心就去aniplex官网补充信息呗，但要求的都是日本地区线下寄件的信息<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -124,3 +124,13 @@ tomoon吧，翻墙啥都有了
 
 <img src="https://imgur.ihainan.me/f9ytCUp.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bypass  
+##### 1191#         楼主| 发表于 2024-5-10 08:25
+
+改进款的 ROG Ally X：
+
+<strong> 屏幕和处理器不变。</strong> 增加黑色版本。 电池容量提升，官方称<strong>远大于 30%-40% 的提升幅度</strong>（"way more" than 30-40% more capacity） 轻微<strong>重</strong>于旧版，改进的遥杆、扳机和按键。 &gt;16G 内存，2280 M.2 固态支持，更好的可维修性。 笔记本同款 MicroSD 读卡器，主板布局会有所调整。<strong> 比原版更贵</strong>，两者会继续同时售卖。 六月初会公布更多消息。
+

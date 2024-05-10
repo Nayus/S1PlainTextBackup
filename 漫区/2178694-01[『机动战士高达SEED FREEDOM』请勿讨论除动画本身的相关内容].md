@@ -9853,3 +9853,17 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 估计最后也就趁三周年在金桥啦啦宝都的影城给媒体放几场乐呵乐呵 6月份上影节即使要上估计也会被投诉下架
 
+
+*****
+
+####  残酷的天使  
+##### 814#       发表于 2024-5-10 08:35
+
+在加拿大看完了
+
+狼简直深不可测感觉根本没有用全力。你个修罗近战和魔蝎打平真的脸都不要了。
+
+鸡神最强科研，拉妖的饭都不吃也要加班。毕竟这么牛逼的背包搓出来就无敌换我也要加班确保万无一失。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+鸟就是个喜剧人，真正的少年不吃任何控制技能除了打架不行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

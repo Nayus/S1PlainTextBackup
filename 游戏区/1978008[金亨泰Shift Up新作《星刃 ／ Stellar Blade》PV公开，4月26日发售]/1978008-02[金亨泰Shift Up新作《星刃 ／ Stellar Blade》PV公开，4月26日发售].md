@@ -1063,3 +1063,14 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 
 过完卡司又燃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Schwarzess  
+##### 1581#       发表于 2024-5-10 08:35
+
+ 本帖最后由 Schwarzess 于 2024-5-10 08:37 编辑 
+
+同学打完的评价是下头男一路cpu，目的只是想在女主身体里留下dna然后玩消失。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后我个人觉得真结局应该让eve一边是tacky的机械翅膀一边是adam的白翅膀，象征生物和机械的融合。
+

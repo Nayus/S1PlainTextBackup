@@ -5171,3 +5171,11 @@ QQ图片20240510170908.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">没抽到S席
 
+
+*****
+
+####  滑稽Captain  
+##### 16747#       发表于 2024-5-10 20:30
+
+我两张码都落了，遗憾离场
+

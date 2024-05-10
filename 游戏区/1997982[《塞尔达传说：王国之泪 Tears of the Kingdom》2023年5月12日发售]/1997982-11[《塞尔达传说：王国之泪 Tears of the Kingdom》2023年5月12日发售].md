@@ -1333,3 +1333,14 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 既然日亚有先订了OST，大师剑哪个途径比较稳定啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说要等等
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15752#       发表于 2024-5-10 20:28
+
+大师剑是不是日亚还没上架<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看了眼，似乎只在日本的My Nintendo Store上架了？之后会通贩吗？不通贩的话感觉会有些麻烦，行李箱里装不下，这种东西安检能让我带上飞机吗，大概不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

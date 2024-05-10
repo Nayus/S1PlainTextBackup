@@ -6690,3 +6690,13 @@ RTA开始了
 
 5月19号手游工商直播
 
+
+*****
+
+####  holoan  
+##### 8776#         楼主| 发表于 2024-5-10 20:03
+
+[https://www.youtube.com/watch?v=joHIaldnmlM](https://www.youtube.com/watch?v=joHIaldnmlM)
+
+甚至官方给配了中文翻译字幕
+

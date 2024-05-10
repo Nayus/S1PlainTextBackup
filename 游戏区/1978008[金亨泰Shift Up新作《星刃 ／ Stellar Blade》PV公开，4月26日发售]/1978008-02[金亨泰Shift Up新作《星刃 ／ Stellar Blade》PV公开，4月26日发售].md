@@ -1216,3 +1216,11 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半个月过去了，一个更新patch还没有，我的存档依然死在那
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1596#       发表于 2024-5-11 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">二周目居然没有换色旗袍，但是给了个新的空乘风
+

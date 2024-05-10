@@ -1325,3 +1325,11 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 大师剑也很心动，但是好大一个感觉不好带回国<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downnote  
+##### 15751#       发表于 2024-5-10 20:21
+
+既然日亚有先订了OST，大师剑哪个途径比较稳定啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说要等等
+

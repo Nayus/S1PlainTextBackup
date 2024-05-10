@@ -253,3 +253,11 @@ sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黛冬优子  
+##### 4466#       发表于 2024-5-10 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">scsp主要是几个问题都很致命，画面糊糊，动作僵硬，是一眼就能开出来的都没搞好
+

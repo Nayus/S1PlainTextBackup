@@ -5209,3 +5209,21 @@ QQ图片20240510170908.jpg
 還真是，今天練習的這首已經不是說好的5個月連續的那5首了</blockquote>
 一首歌不一定是一次就录好的
 
+
+*****
+
+####  御幸一也  
+##### 16750#       发表于 2024-5-10 22:21
+
+沒事了3月的2次應該是同一首，所以這樣才是對的，結果還是那5首歌嘛……
+
+但這樣看應該是錄完了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/10/222028cfygl1nkyyky4214.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 22:20 上传
+

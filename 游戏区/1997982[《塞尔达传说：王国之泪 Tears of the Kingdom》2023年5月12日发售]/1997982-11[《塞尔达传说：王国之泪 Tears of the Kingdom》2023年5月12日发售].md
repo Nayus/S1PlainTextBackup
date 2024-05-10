@@ -1471,3 +1471,33 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  岸波  
+##### 15760#       发表于 2024-5-10 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873225&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-5-10 15:07</a>
+希望国内能早点引进Master Work吧，目前除了25周年绿色那本，红的白的蓝的我全都买了两本，如果绿的引进了 ...</blockquote>
+起码御宅学已经开始安排了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/881153165ae584080580324d2a56a16d/CMP_20240510221627073.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄泉川此方  
+##### 15761#       发表于 2024-5-10 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只想在NS2上玩到60帧的DLC，没DLC大师模式也行
+
+*****
+
+####  Waldeinsamkeit  
+##### 15762#       发表于 2024-5-10 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64878076&amp;ptid=1997982" target="_blank">岸波 发表于 2024-5-10 22:16</a>
+起码御宅学已经开始安排了</blockquote>
+太好了，感谢告知<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+年底回国安排！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -13548,3 +13548,13 @@ w5 平潮
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4318#       发表于 2024-5-10 10:28
+
+打挑战遇到个KD为负的双银X章玩家，怀疑是破解机改存档，老任不封么？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

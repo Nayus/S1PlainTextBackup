@@ -5179,3 +5179,33 @@ QQ图片20240510170908.jpg
 
 我两张码都落了，遗憾离场
 
+
+*****
+
+####  御幸一也  
+##### 16748#       发表于 2024-5-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64871808&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-10 12:41</a>
+
+按时间倒推好像已经超过之前宣布的五首了，所以2nd会宣布迷你专+二单？</blockquote>
+
+還真是，今天練習的這首已經不是說好的5個月連續的那5首了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/10/221234bvptxuknwwstgnvl.png" referrerpolicy="no-referrer">
+
+<strong>image (7).png</strong> (96.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 22:12 上传
+
+*****
+
+####  祐天寺若麦  
+##### 16749#       发表于 2024-5-10 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64878038&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-10 22:13</a>
+
+還真是，今天練習的這首已經不是說好的5個月連續的那5首了</blockquote>
+一首歌不一定是一次就录好的
+

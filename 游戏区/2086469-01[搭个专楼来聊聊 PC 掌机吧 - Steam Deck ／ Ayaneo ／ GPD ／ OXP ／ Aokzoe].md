@@ -180,3 +180,14 @@ tomoon吧，翻墙啥都有了
 
 其实32g内存还有些意义（可用显存能多分配些），2280支持现在也有改装方案。另外要是有32g的话，是不是后续自己咸鱼加装32g的也可以正常更新BIOS了
 
+
+*****
+
+####  shanajiang  
+##### 1197#       发表于 2024-5-10 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64745775&amp;ptid=2086469" target="_blank">看别人玩游戏 发表于 2024-4-28 09:06</a>
+
+日版的steamdeck吧，日元汇率都这样了，就是渠道不好搞</blockquote>
+日版我看只有oled  普通版 多多都没有...
+

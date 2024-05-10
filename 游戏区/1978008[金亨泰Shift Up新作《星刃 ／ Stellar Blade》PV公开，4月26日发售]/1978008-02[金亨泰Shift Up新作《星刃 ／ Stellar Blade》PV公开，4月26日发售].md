@@ -1208,3 +1208,11 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 
 日版碟总算到了，日语配音就是舒服<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leona_Akari  
+##### 1595#       发表于 2024-5-10 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半个月过去了，一个更新patch还没有，我的存档依然死在那
+

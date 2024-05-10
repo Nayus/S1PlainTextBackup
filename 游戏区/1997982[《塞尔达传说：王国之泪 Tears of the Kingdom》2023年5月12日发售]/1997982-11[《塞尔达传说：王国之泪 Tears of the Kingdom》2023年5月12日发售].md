@@ -1148,3 +1148,18 @@ DISK-９
 
 所以dlc确定是没了？
 
+
+*****
+
+####  芜湖挨宰  
+##### 15734#       发表于 2024-5-10 15:50
+
+等等，大师之剑怎么还自带bgm？
+
+*****
+
+####  cy6959  
+##### 15735#       发表于 2024-5-10 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大师剑如果想买的话国内有靠谱渠道吗？
+

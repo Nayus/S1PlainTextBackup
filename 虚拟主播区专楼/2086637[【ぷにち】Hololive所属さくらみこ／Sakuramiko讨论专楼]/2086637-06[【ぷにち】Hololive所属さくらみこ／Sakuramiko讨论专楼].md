@@ -6682,3 +6682,11 @@ RTA开始了
 
 35这推石头，我挂录播在后台听声音。又是喘息又是怪叫的，楞是听出好似真的在推石头一样,反应很真。这人不会是天才吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8775#         楼主| 发表于 2024-5-10 19:48
+
+5月19号手游工商直播
+

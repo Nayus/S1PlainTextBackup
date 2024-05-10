@@ -77,3 +77,23 @@ dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face201
 
 感觉万代之前展会那个PROPLICA大师剑也会在一周年公布发售吧。
 
+
+*****
+
+####  竜破斬  
+##### 15716#       发表于 2024-5-10 11:00
+
+有没有人收到my nintendo的王国之泪周边的新闻消息推送然后点进去什么都没有的？我搜了一圈貌似也没看到相关新闻
+
+就我快速瞥一眼的记忆貌似提到了设定集和大师剑模型，不知道是不是哪个临时工想发定时的新闻结果弄错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 15717#       发表于 2024-5-10 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64842562&amp;ptid=1997982" target="_blank">h122h 发表于 2024-5-7 18:25</a>
+
+感觉万代之前展会那个PROPLICA大师剑也会在一周年公布发售吧。</blockquote>
+刚刚my nintendo app 推送了通知写的就是大师剑和OST，点进去空白……
+

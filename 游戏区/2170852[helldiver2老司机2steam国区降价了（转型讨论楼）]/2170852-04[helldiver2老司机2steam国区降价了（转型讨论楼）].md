@@ -1374,3 +1374,13 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 一个杀虫游戏，比较泛用的主武器一个主宰一个焦土，都不能鼠标左键按到死，实在是不浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 4578#       发表于 2024-5-10 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个平行超级气球看着像是光环那边穿越过来的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

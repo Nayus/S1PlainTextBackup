@@ -1460,3 +1460,14 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 2024-5-10 21:24 上传
 
+
+*****
+
+####  冷泉夜月  
+##### 15759#       发表于 2024-5-10 21:38
+
+按代哥以往的周期现在开预订至少要半年后出货，这次9月就发售还是比较少见的快速，热度也挺高的，希望到时候现货不要炒吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+按说这个系列出货后大多都会跌的<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

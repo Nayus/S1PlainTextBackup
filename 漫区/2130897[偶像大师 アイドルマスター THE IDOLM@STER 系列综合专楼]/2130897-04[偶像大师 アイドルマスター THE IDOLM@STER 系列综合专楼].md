@@ -309,3 +309,18 @@ sc动画更是幽默，南梦宫的人又没有按着头让小高选玻璃钢的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">等个学1st宣布2D动画化
 
+
+*****
+
+####  OBW  
+##### 4473#       发表于 2024-5-10 21:36
+
+和做游戏op一样日升逼样接呗。
+
+*****
+
+####  Vacuolar  
+##### 4474#       发表于 2024-5-10 21:37
+
+百万那个动画播出时全是各种带孩子小故事
+

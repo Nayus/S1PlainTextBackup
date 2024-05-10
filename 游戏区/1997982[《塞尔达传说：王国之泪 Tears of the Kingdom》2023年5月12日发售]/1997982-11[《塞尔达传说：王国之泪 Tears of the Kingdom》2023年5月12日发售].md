@@ -105,3 +105,51 @@ dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face201
 
 可能是临时工发早了吧。确实有传闻12号一周年的时候会有ost的消息
 
+
+*****
+
+####  h122h  
+##### 15719#       发表于 2024-5-10 13:42
+
+ 本帖最后由 h122h 于 2024-5-10 13:44 编辑 
+
+【バンダイ】#ゼルダの伝説PROPLICA ゼルダの伝説 マスターソード 約1050mm ABS製 完成品
+
+『PROPLICA マスターソード』
+
+<img src="https://img.saraba1st.com/forum/202405/10/134239kexfnn1xtes86zne.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (38.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/134239ell0znhxedfpqqqs.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (65.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/134239vyai4uf2cy7c12it.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (59.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 13:42 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/134239bz6ekgexeeuxwxwu.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (55.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 13:42 上传
+
+マスターソードが“本物感”を目指した
+
+大人向け玩具「PROPLICA」シリーズで実物大商品化！
+

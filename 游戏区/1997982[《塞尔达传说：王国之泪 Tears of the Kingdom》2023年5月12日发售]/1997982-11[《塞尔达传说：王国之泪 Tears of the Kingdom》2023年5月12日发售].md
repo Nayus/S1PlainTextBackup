@@ -1271,3 +1271,18 @@ CD日亚能订了，可以直邮</blockquote>
 
 天灭任天堂。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15746#       发表于 2024-5-10 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64874429&amp;ptid=1997982" target="_blank">konev 发表于 2024-5-10 16:45</a>
+有人为了买王泪，购入的任亏券还没兑换的吗
+
+集体过期，时间差不多咯！（上膛</blockquote>
+当初坚持到XB3发售前一天才用任亏换的我，顺利在到期前换到了王泪<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+但我10月又买了两张，一张换了wonder，另一张……6月直面会能给我一个换zelda冷饭的希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -9941,3 +9941,16 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 刚出的种命BD-BOX新规强自可以在地球上开光翼，设定上不是不可以吗？</blockquote>
 最近几年的设定是能开但是不丢龙骑不能完全发挥（
 
+
+*****
+
+####  太极八爪鱼  
+##### 821#       发表于 2024-5-11 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861156&amp;ptid=2178694" target="_blank">outel 发表于 2024-5-8 20:06</a>
+
+@AkaiSuisei
+
+我这边5月7号的场次全是嘎仔话sub 8号才是鬼话dub</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我这一开始也这么说，后来发现他放反了，7号dub,8号sub，然后9号加场了
+

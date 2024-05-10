@@ -1558,3 +1558,17 @@ INABA
 
 上田华子，op有画没想到今年直接参与了单集演出，挺厉害的可以期待一下17集
 
+
+*****
+
+####  犬飼いろは  
+##### 1438#       发表于 2024-5-10 09:12
+
+前 2 张：月刊アニメージュ 2024年6月号
+
+后 2 张：アニメディア 2024年6月号
+<img src="https://p.sda1.dev/17/623dcb692004f7b4aa6fd7b99178814a/Animage-202406-086.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/cb7b10dbe46edfaf2edd5fbe345c5400/Animage-202406-087.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/5000f9d586bfed10885dd62a93c976f3/Animedia-202406-082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e4511c49ac604a68cce9b9bd2e60c58a/Animedia-202406-083.jpg" referrerpolicy="no-referrer">
+

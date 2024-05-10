@@ -4992,3 +4992,37 @@ a在泥潭和nga两头跑整天暴论想充当意见领袖结果像个小丑一�
 
 2024-5-10 12:12 上传
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16733#       发表于 2024-5-10 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64871502&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-10 12:12</a>
+
+好像又有新歌了</blockquote>
+又是首鼓点非常暴躁的曲子吗（）
+
+QQ图片20240510123845.png
+(20.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 12:39 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/123901us5af0fs8y0ud6ty.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16734#       发表于 2024-5-10 12:41
+
+按时间倒推好像已经超过之前宣布的五首了，所以2nd会宣布迷你专+二单？
+
+*****
+
+####  DarthAka  
+##### 16735#       发表于 2024-5-10 12:43
+
+ag可别逆输入，就三泽那个精神状态……倒是樱小姐当皮套歌手挺开心，又是发专辑又是tie电视剧又要开演唱会的
+

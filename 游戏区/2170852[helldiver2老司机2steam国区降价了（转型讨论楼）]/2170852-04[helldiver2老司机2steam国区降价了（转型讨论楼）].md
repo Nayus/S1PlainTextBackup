@@ -1509,3 +1509,18 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 pay to未来可期
 
+
+*****
+
+####  Mr.Hopp  
+##### 4592#       发表于 2024-5-10 12:35
+
+这次指令是不是又要失败了？箭头又能摸鱼一周？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4593#       发表于 2024-5-10 12:36
+
+对了冲锋枪能打坦克虫屁股晕坦克虫，但是没法晕泰坦。
+

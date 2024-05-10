@@ -1230,3 +1230,44 @@ CD日亚能订了，可以直邮<img src="https://static.saraba1st.com/image/smi
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  h122h  
+##### 15742#       发表于 2024-5-10 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64874317&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2024-5-10 16:35</a>
+不知道代哥旗舰店开不开大师剑
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+御三家看到个宇宙世纪开了个先行，卖了 6 单，直接下架了。这东西 1000 块纯 abs 塑料。感觉有点贵了。
+
+*****
+
+####  芜湖挨宰  
+##### 15743#       发表于 2024-5-10 16:41
+
+cd送的usb模型是塑料的还是金属的？
+
+*****
+
+####  Waldeinsamkeit  
+##### 15744#       发表于 2024-5-10 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64874303&amp;ptid=1997982" target="_blank">清浦刹那 发表于 2024-5-10 16:34</a>
+
+CD日亚能订了，可以直邮</blockquote>
+感谢告知，预定了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  konev  
+##### 15745#       发表于 2024-5-10 16:45
+
+有人为了买王泪，购入的任亏券还没兑换的吗
+
+集体过期，时间差不多咯！（上膛
+
+天灭任天堂。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

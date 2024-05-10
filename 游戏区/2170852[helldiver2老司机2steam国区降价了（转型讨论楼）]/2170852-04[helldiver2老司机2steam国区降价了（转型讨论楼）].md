@@ -1571,3 +1571,13 @@ pay to未来可期
 
 也够了，刚好升完驱逐舰，刷满样本就afk去圣休瑞亚，不跟这帮马戏团耗了
 
+
+*****
+
+####  WGTCorp  
+##### 4599#       发表于 2024-5-10 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64872854&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-5-10 14:30</a>
+梦里啥都有，我给箭头做平衡，突击步枪不搞高伤害或者高穿甲也行，加点控制效果呗，眩晕，减速，中毒，或者 ...</blockquote>
+有啊，老兵债券里有把震荡解放者，用普通解放者一半的dps换了击退能力，但是得子弹打穿护甲之后才能击退目标。
+

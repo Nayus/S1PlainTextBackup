@@ -1085,3 +1085,15 @@ DISK-９
 
 不舍得钱的话，某宝不到500一把拿来收藏也不错
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15728#       发表于 2024-5-10 15:07
+
+ 本帖最后由 Waldeinsamkeit 于 2024-5-10 15:08 编辑 
+
+希望国内能早点引进Master Work吧，目前除了25周年绿色那本，红的白的蓝的我全都买了两本，如果绿的引进了那肯定还要再买一本
+
+我不想达成塞尔达大部头设定集全部买两本的成就啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

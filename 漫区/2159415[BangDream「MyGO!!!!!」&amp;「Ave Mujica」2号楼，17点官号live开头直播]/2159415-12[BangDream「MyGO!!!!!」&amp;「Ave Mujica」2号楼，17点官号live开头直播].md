@@ -4904,3 +4904,16 @@ ag新箱活这剧情仿佛c团和平解散if线，虽然没真说解散但所有
 
 在 bestdori 上看了下 ag 这期剧情我感觉写的还行啊，氛围基本上也都到位了，反正是包饺子的命题作文，等出锅不就行了，怎么感觉意见这么大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16725#       发表于 2024-5-10 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64869589&amp;ptid=2159415" target="_blank">平昭·南宫司卿 发表于 2024-5-10 09:25</a>
+
+在 bestdori 上看了下 ag 这期剧情我感觉写的还行啊，氛围基本上也都到位了，反正是包饺子的命题作文，等出 ...</blockquote>
+因为手游三团没有真人压底，是真的担心哪天就被邦邦官方毕业掉了，ag因为cv全员大牌对这点尤其担心，之前的虚拟歌姬还跳过了ag没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我也觉得不会解散就是，不然对摩卡cv来说也太地狱了，这是真的能搞出病的
+

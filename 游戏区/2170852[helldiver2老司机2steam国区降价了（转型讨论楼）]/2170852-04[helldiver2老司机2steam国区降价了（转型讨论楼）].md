@@ -1309,3 +1309,33 @@ ar伤害区间太小了，数值也确实很难办，还是得整体加伤<img s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过巴不得箭头这帮傻逼2028再出补丁，在此之前先回退到爆裂铳砍废之前的版本
 
+
+*****
+
+####  jag0713_plus  
+##### 4571#       发表于 2024-5-10 10:22
+
+<blockquote>北条早苗 发表于 2024-5-10 09:49
+箭头内部怎么这么多贵物</blockquote>
+其实也就一般水平 是整个产业中对接社区的都贵物多
+
+
+*****
+
+####  Launce  
+##### 4572#       发表于 2024-5-10 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64869845&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-10 09:49</a>
+
+箭头内部怎么这么多贵物</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CEO都多少有点抽象贵物了，下面怎样可想而知
+
+*****
+
+####  ravend233  
+##### 4573#       发表于 2024-5-10 10:25
+
+审判要打短点射，摁住扫射一下子就打光子弹了
+
+不过确实也只能清几只怪，面对虫潮打不了一点，只能说勉强能用一下
+

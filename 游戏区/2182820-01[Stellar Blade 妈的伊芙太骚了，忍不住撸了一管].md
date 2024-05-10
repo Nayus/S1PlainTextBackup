@@ -1013,3 +1013,18 @@ GM0FxiJbwAAA8uO.jpg
 
 油刃有余
 
+
+*****
+
+####  洛克萨斯  
+##### 84#       发表于 2024-5-10 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">伊芙那个马尾太长了，动起来非常诡异
+
+*****
+
+####  joker9527  
+##### 85#       发表于 2024-5-10 10:20
+
+感觉还是太油了，不如2B那种戳xp的设计高级<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

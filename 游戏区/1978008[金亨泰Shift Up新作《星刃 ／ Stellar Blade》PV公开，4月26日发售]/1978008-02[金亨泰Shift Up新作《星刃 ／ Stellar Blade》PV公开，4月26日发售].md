@@ -1074,3 +1074,38 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 同学打完的评价是下头男一路cpu，目的只是想在女主身体里留下dna然后玩消失。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 然后我个人觉得真结局应该让eve一边是tacky的机械翅膀一边是adam的白翅膀，象征生物和机械的融合。
 
+
+*****
+
+####  jxzeroga0  
+##### 1582#       发表于 2024-5-10 10:18
+
+结局就是感觉工期结束了差不多凑合收个尾吧，故事基本才刚刚开始，双翅膀多武器要么丢dlc要么丢续作了
+
+*****
+
+####  医生狼多  
+##### 1583#       发表于 2024-5-10 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64869186&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-10 08:35</a>
+同学打完的评价是下头男一路cpu，目的只是想在女主身体里留下dna然后玩消失。
+然后我个人觉得真结局 ...</blockquote>
+模组还直接复用迅驰，评价为没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 1584#       发表于 2024-5-10 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64867371&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-5-9 22:39</a>
+双周的其实</blockquote>
+首周4.8，次周1.8
+
+
+*****
+
+####  jacket  
+##### 1585#       发表于 2024-5-10 10:26
+
+我想知道后面怎么延续人类，从eve身体里分裂出后代吗？
+

@@ -1731,3 +1731,12 @@ Bile Charger        吐酸强袭虫        膽汁衝鋒蟲        �
 
 Barrager Tanks        铁幕坦克        火箭彈幕坦克        バラ―ジャー・タンク
 
+
+*****
+
+####  rainknine  
+##### 4605#       发表于 2024-5-10 18:03
+
+我一代钉刺虫呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+一百年前最吓人的钉刺虫怎么过了一百年后消失了
+

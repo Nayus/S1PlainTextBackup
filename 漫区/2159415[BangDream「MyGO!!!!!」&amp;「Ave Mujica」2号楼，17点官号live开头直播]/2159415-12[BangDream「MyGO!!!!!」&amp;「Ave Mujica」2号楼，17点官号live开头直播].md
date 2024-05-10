@@ -5155,3 +5155,11 @@ QQ图片20240510170908.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/10/171600x7i0ggv7hjzdijvw.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16745#         楼主| 发表于 2024-5-10 18:04
+
+抽选到的现地群友有方便帮忙带把吉他回国的吗（找代购寄到住处），一定程度上的有偿也行。
+

@@ -1315,3 +1315,13 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  bird-lay  
+##### 15750#       发表于 2024-5-10 20:11
+
+定了ost和设定集
+
+大师剑也很心动，但是好大一个感觉不好带回国<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

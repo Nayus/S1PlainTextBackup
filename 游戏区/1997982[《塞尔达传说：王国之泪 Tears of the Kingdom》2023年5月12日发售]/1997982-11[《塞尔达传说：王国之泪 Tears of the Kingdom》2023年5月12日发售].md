@@ -1075,3 +1075,13 @@ DISK-９
 
 22000円 大师剑 24.9--
 
+
+*****
+
+####  liekong  
+##### 15727#       发表于 2024-5-10 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大师剑可能就占个官方版权+官方监修造型还原了，
+
+不舍得钱的话，某宝不到500一把拿来收藏也不错
+

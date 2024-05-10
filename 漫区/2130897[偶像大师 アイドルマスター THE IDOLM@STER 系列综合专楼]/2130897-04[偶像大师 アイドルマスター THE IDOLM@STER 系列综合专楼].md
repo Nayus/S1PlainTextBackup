@@ -154,3 +154,13 @@ sc是不是只能吃老本了，新动画新游戏都给了（虽然质量拉跨
 
 sc不是看小高后面能不能拿到大资源吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得很难
 
+
+*****
+
+####  安广多惠子  
+##### 4457#       发表于 2024-5-10 17:23
+
+就算给他资源又能做出什么呢，scsp刚上的已经这样了，tv第一季已烂完，无缝继续制作的第二季难道能逆天改命，我是不信的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

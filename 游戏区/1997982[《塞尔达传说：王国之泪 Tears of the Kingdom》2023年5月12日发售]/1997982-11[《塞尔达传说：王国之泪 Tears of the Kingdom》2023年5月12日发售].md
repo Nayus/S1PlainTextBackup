@@ -1286,3 +1286,13 @@ CD日亚能订了，可以直邮</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  vmon  
+##### 15747#       发表于 2024-5-10 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实这大师剑你就对标万代骑士的各种csg武器就行了，虽然是塑料的但是涂装一般都不差，带bgm都是标准配置，要不是林克是哑巴高低还得给你加几句台词。
+
+—— 来自 HUAWEI BLA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

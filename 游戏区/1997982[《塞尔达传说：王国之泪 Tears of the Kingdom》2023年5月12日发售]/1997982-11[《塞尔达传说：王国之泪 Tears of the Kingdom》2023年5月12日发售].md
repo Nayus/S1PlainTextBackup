@@ -1097,3 +1097,14 @@ DISK-９
 
 我不想达成塞尔达大部头设定集全部买两本的成就啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 15729#       发表于 2024-5-10 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64873225&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2024-5-10 15:07</a>
+
+希望国内能早点引进Master Work吧，目前除了25周年绿色那本，红的白的蓝的我全都买了两本，如果绿的引进了 ...</blockquote>
+其实也不着急买，也没初回特典，稍微等一段时间看看呗
+

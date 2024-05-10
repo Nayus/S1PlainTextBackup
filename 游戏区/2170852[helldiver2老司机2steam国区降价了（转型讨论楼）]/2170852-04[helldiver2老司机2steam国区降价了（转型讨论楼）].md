@@ -1426,3 +1426,41 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 看主宰的描述，真能连发等着伤害被砍废吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rainknine  
+##### 4584#       发表于 2024-5-10 11:37
+
+不如说主宰自己感觉都在被砍废的边缘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只以主宰作为baseline的话，完全可以牺牲一下主宰的停止作用来换射速、操控性或者弹速
+
+但是箭头应该是以解放者来作为新枪的baseline，那就只能说弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 4585#       发表于 2024-5-10 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幽默箭头出武器的时候真的有考虑过基线吗
+
+
+*****
+
+####  Mr.Hopp  
+##### 4586#       发表于 2024-5-10 11:41
+
+ 本帖最后由 Mr.Hopp 于 2024-5-10 11:45 编辑 
+
+那个之前传闻的武器改造系统其实就是开发者武器设计工具，基本上可以看作以某个武器为模板增增减减。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比如这次冲锋枪就是以之前那把为模板增加了震荡但是减少了DPS。
+
+*****
+
+####  ravend233  
+##### 4587#       发表于 2024-5-10 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要一个月出三把主武器那肯定不给你做武器改造的，现在这样靠着开发者给你改造缝缝补补才能维持出主武器频率
+

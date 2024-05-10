@@ -724,3 +724,55 @@
 
 （暖机太慢了，还是凑独一吧...）
 
+
+*****
+
+####  Jamaisvu  
+##### 693#       发表于 2024-5-10 18:51
+
+新人格，环指点彩派学徒李箱、奥提斯：
+
+<img src="https://img.saraba1st.com/forum/202405/10/184738ptet5277w2q45q4x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_184436.jpg</strong> (322.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/184739u71g2naloqq1mqq7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_184544.jpg</strong> (157.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/184740f5bteq5ebeiepgpb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_184607.jpg</strong> (203.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/184738v3g3enn83mvlv20a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_184503.jpg</strong> (173.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202405/10/184739hjtqarlbre4q4r03.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240510_184532.jpg</strong> (185.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 18:47 上传
+
+突然发现都星阵营的三星和二星人格都是最低阶级，环指二三星都是学徒了，上面还有讲解员和大师。之前中指末妹也是三星，不知道以后的瓦夜还没有机会出食指传令者的人格...
+
+（赛季或常驻人格估计也就出苦行者了...）
+

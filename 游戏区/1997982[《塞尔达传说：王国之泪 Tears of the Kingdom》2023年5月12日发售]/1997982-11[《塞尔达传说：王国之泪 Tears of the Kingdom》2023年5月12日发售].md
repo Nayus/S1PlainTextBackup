@@ -1213,3 +1213,20 @@ DISK-９
  ...</blockquote>
 图只是列举了收录了哪些作品的BGM，要说的话，初代海拉鲁幻想也没大师之剑
 
+
+*****
+
+####  清浦刹那  
+##### 15740#       发表于 2024-5-10 16:34
+
+CD日亚能订了，可以直邮<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 15741#       发表于 2024-5-10 16:35
+
+不知道代哥旗舰店开不开大师剑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -6674,3 +6674,11 @@ RTA开始了
 
 然后网上还有人说今年mikorone24之类的企划基本不用期待了，一说确实是，哎
 
+
+*****
+
+####  rs5621  
+##### 8774#       发表于 2024-5-10 16:31
+
+35这推石头，我挂录播在后台听声音。又是喘息又是怪叫的，楞是听出好似真的在推石头一样,反应很真。这人不会是天才吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

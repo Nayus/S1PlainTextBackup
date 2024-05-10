@@ -97,3 +97,28 @@ B站也别说**了，两边咲季和手毬的MV播放量与其他人拉开一大
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去预约网站乐了一下，怎么抽出1万只白毛
 
+
+*****
+
+####  sliver1997  
+##### 4450#       发表于 2024-5-10 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64871720&amp;ptid=2130897" target="_blank">何处分可 发表于 2024-5-10 12:33</a>
+ 【「Fashionable」【偶像大师闪耀色彩 Song for Prism MV】】 https://www.bilibili.com/video/BV1zH4y1g7o ...</blockquote>
+这就是 scsp 给我带来的自卑
+
+*****
+
+####  cckuku  
+##### 4451#       发表于 2024-5-10 13:09
+
+烂的令人发指<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">很想知道高层哪来的自信让sc双线操作的。
+
+
+*****
+
+####  格雷殿下  
+##### 4452#       发表于 2024-5-10 13:10
+
+【我觉得藤田琴音就是一条大香蕉】 [https://www.bilibili.com/video/B ... a0f5be03f85b4f123ec](https://www.bilibili.com/video/BV17J4m1K7xA/?share_source=copy_web&amp;vd_source=b658e17e9c28ea0f5be03f85b4f123ec)
+

@@ -788,3 +788,19 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳跳乐推箱子应该比敲钟好点
 
+
+*****
+
+####  zris  
+##### 79#       发表于 2024-5-10 13:16
+
+tim cain就作了一部辐射1，但是他有辐射之父的头衔
+
+老陶做的辐射3，无论mc均分还是销量薄纱老辐射了吧，延续了辐射这个IP
+
+咋既视感这么强<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+国内网站评论区给cory叫屈我是不理解，这玩意已经三大都大满贯了有啥问题
+
+david锐评一些不认可就行，何必扯有的没的
+

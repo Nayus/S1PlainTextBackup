@@ -122,3 +122,11 @@ B站也别说**了，两边咲季和手毬的MV播放量与其他人拉开一大
 
 【我觉得藤田琴音就是一条大香蕉】 [https://www.bilibili.com/video/B ... a0f5be03f85b4f123ec](https://www.bilibili.com/video/BV17J4m1K7xA/?share_source=copy_web&amp;vd_source=b658e17e9c28ea0f5be03f85b4f123ec)
 
+
+*****
+
+####  Vacuolar  
+##### 4453#       发表于 2024-5-10 13:21
+
+动画配合手游一并推出算非常好的策略，要分开反而蹩脚，比如百万现场，问题就是sc动画拉跨，手游也拉跨。
+

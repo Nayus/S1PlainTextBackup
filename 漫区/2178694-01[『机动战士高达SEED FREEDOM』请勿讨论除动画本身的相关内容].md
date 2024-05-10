@@ -9884,3 +9884,11 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 不能跟搞笑角色比战力的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zoomegg  
+##### 816#       发表于 2024-5-10 14:21
+
+卡嘉莉越涩，狼越强？
+

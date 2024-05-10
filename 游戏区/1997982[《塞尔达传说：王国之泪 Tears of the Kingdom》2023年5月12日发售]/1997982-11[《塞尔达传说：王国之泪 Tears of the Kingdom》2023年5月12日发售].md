@@ -1304,3 +1304,14 @@ CD日亚能订了，可以直邮</blockquote>
 
 OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage普通版7cd+1dvd卖8250，ff7rb初回8cd卖8800
 
+
+*****
+
+####  冷泉夜月  
+##### 15749#       发表于 2024-5-10 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875529&amp;ptid=1997982" target="_blank">seize1121 发表于 2024-05-10 18:28:02</a>
+OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage普通版7cd+1dvd卖8250，ff7rb初回8cd卖8800 ...</blockquote>日元贬值定价上涨，锅可能在日本哥伦比亚唱片，相比之下代哥22000的大师剑定价竟然显得有点良心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

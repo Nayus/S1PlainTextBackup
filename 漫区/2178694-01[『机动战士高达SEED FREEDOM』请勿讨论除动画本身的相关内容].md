@@ -9892,3 +9892,19 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 卡嘉莉越涩，狼越强？
 
+
+*****
+
+####  死难者23er  
+##### 817#       发表于 2024-5-10 20:58
+
+<img src="https://img.saraba1st.com/forum/202405/10/205745tvve2zfz521ahsev.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2155.jpeg</strong> (565.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-10 20:57 上传
+
+阿斯兰党和卡嘉莉的战斗力是真的吓人，都卖光了惟一一个剩下的还是官方自己没长眼的搞了阿斯兰和米亚
+

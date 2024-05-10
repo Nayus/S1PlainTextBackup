@@ -374,3 +374,15 @@ man what can i say ，sc out
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰寒之月  
+##### 4479#       发表于 2024-5-11 00:50
+
+这集sc都直接模仿那种特典里会塞进去的偶像们线下记录档案了 
+
+要是放第一集我可能还会觉得是个大活 
+
+和本家第一集那个纪录片比起来感觉就挺……虚无的 我好像啥也没看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

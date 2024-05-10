@@ -97,3 +97,11 @@ dlc可能性又大减<img src="https://static.saraba1st.com/image/smiley/face201
 感觉万代之前展会那个PROPLICA大师剑也会在一周年公布发售吧。</blockquote>
 刚刚my nintendo app 推送了通知写的就是大师剑和OST，点进去空白……
 
+
+*****
+
+####  牛奶笛  
+##### 15718#       发表于 2024-5-10 11:46
+
+可能是临时工发早了吧。确实有传闻12号一周年的时候会有ost的消息
+

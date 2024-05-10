@@ -765,3 +765,26 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 
 看了一下Cory Barlog离开圣莫妮卡后和George Miller合作过疯狂麦克斯游戏项目  只是这个项目夭折了  然后这游戏的一些创意好像被引用到新战神和新疯狂麦克斯里  然后一个拿了年度最佳游戏 一个拿了奥斯卡 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
 
+
+*****
+
+####  chdhdhd  
+##### 77#       发表于 2024-5-10 11:49
+
+<blockquote>barry.allen 发表于 2024-5-9 21:37
+只可惜Twisted Metal系列国内几乎没什么人知道
+
+这个系列的游戏那真是邪气冲天，充分体现David Jaffe的美 ...</blockquote>
+知名度其实也还好，在玩家圈子有与其质量相符的认知度，尤其ps1世代还是很有存在感
+
+缺乏讨论应该是因为系列没出多少，并且ps1世代之后游戏本身做得不行。猎奇度收敛，不管是载具和战斗均不出彩，失去竞争力了
+
+不过后面代数可能也不是这位老兄做的
+
+*****
+
+####  Vladimeow  
+##### 78#       发表于 2024-5-10 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳跳乐推箱子应该比敲钟好点
+

@@ -1038,3 +1038,20 @@ DISK-９
 
 看模特1米6妹子，单手举了大概1米的大师剑。有底座好评。
 
+
+*****
+
+####  竜破斬  
+##### 15724#       发表于 2024-5-10 14:32
+
+ 本帖最后由 竜破斬 于 2024-5-10 14:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64872814&amp;ptid=1997982" target="_blank">h122h 发表于 2024-5-10 14:26</a>
+[https://tamashiiweb.com/tn_blog/142/](https://tamashiiweb.com/tn_blog/142/)
+
+从来没买过万代的 PROPLICA ，这能放SE和BGM有点搞。
+
+是不是就是里 ...</blockquote>
+放SE还可以理解， 放BGM确实有点搞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这是要大家带着剑出去当自带BGM的林克吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">）
+

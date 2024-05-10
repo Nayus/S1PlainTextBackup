@@ -699,3 +699,11 @@ dmc要不也搞个越肩视角试验作看看，战斗节奏可以放缓一点�
 
 但是你要说保留了这个系列的最初精髓，那多少有点扯犊子了
 
+
+*****
+
+####  Fuero  
+##### 70#       发表于 2024-5-10 09:55
+
+就我体感来说他“口碑不好”难道不是因为老喜欢在推上锐评吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

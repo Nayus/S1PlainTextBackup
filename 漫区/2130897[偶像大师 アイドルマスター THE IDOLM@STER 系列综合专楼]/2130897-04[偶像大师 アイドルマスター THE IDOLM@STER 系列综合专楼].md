@@ -146,3 +146,11 @@ sc是不是只能吃老本了，新动画新游戏都给了（虽然质量拉跨
 
 小高是没活了吧
 
+
+*****
+
+####  rgauss  
+##### 4456#       发表于 2024-5-10 17:08
+
+sc不是看小高后面能不能拿到大资源吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我觉得很难
+

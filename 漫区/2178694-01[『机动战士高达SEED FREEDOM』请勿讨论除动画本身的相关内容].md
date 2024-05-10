@@ -9867,3 +9867,20 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 鸟就是个喜剧人，真正的少年不吃任何控制技能除了打架不行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ztgmeteor  
+##### 815#       发表于 2024-5-10 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64869185&amp;ptid=2178694" target="_blank">残酷的天使 发表于 2024-5-10 08:35</a>
+
+在加拿大看完了
+
+狼简直深不可测感觉根本没有用全力。你个修罗近战和魔蝎打平真的脸都不要了。
+
+鸡神最强科研 ...</blockquote>
+狼就是一搞笑角色了。
+
+不能跟搞笑角色比战力的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

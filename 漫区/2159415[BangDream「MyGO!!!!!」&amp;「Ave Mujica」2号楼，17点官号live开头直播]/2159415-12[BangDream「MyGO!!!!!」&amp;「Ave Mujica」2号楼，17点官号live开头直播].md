@@ -5163,3 +5163,11 @@ QQ图片20240510170908.jpg
 
 抽选到的现地群友有方便帮忙带把吉他回国的吗（找代购寄到住处），一定程度上的有偿也行。
 
+
+*****
+
+####  bindata  
+##### 16746#       发表于 2024-5-10 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">没抽到S席
+

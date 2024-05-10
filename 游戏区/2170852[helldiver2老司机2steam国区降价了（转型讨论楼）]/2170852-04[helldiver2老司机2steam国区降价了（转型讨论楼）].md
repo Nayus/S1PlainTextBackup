@@ -1740,3 +1740,41 @@ Barrager Tanks        铁幕坦克        火箭彈幕坦克        
 我一代钉刺虫呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 一百年前最吓人的钉刺虫怎么过了一百年后消失了
 
+
+*****
+
+####  Benighted  
+##### 4606#       发表于 2024-5-10 18:13
+
+u/gergination, the person responsible for the amazing post from 2 months ago analyzing how patrols work, has posted a new video showcasing that patrol spawn rates are the same regardless of group size.
+
+PSA
+
+Link to video: [https://www.youtube.com/watch?v= ... mp;ab_channel=Luchs](https://www.youtube.com/watch?v=1Fu6ddHejh0&amp;t=217s&amp;ab_channel=Luchs)
+
+Previous post on how patrols work: [https://www.reddit.com/r/Helldiv ... _depth_analysis_of/](https://www.reddit.com/r/Helldivers/comments/1bdudf3/lets_talk_about_patrols_an_in_depth_analysis_of/)
+
+TLDR: The recent change to patrols made it so that they currently spawn as if their were four players in the game regardless of group size.
+
+Seeing this video was amazing validation. As a solo diver, games have felt significantly more frustrating following the changes to patrol spawn rates Arrowhead made a couple patches ago. u/gergination's new video perfectly shows why this is the case. Prior to this stupid update, patrol spawn rates would scale with the amount of players in the game. Arrowhead claimed that solo players had patrols spawning at 1/6th the rate as they would against a full group. Following the patch, they CLAIMED to change this to 1/4th, 1/2 (2/4th), and 3/4th for solo, duos, and trios respectively.
+
+Except this isn't what they did at all. Instead, they just took the spawn rates for four players and applied it to every group size across all the difficulties. So a solo player playing helldive difficulty will experience the same amount of patrols as a full team playing helldive. This is so unfathomably stupid and is no doubt responsible for the plethora of complaints people have had regarding patrol spawn rates for solo players. I hope this is just yet another example of Arrowhead not implementing a change correctly, I sincerely hope this is brought to their attention soon. I doubt they are even aware of it.
+
+Massive props to u/gergination and his team for the invaluable work they did in analyzing patrol spawns. Without them we would have no data to counter Arrowhead's completely false claims.
+
+u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游戏巡逻机制的精彩分析贴文。最近,他再次发布了一段视频,证明了无论小队人数如何,巡逻队伍的出现率都是相同的。
+
+公告
+
+视频链接: [https://www.youtube.com/watch?v= ... mp;ab_channel=Luchs](https://www.youtube.com/watch?v=1Fu6ddHejh0&amp;t=217s&amp;ab_channel=Luchs)
+
+之前关于巡逻机制分析的贴文: [https://www.reddit.com/r/Helldiv ... _depth_analysis_of/](https://www.reddit.com/r/Helldivers/comments/1bdudf3/lets_talk_about_patrols_an_in_depth_analysis_of/)
+
+简单概括:最近的更新使得游戏视为总是有四名玩家在线,而不论实际小队人数,从而决定了巡逻队伍的出现率。
+
+看到这段视频让我深有感触。作为一名单人玩家,自从Arrowhead在前几个补丁中改变了巡逻出现率后,游戏体验确实变得更加沮丧和困难。u/gergination的新视频完美地解释了为什么会这样。在这次愚蠢的更新之前,巡逻队伍的出现率是根据玩家人数而缩放的。Arrowhead曾声称,单人玩家遇到巡逻队伍的频率是4人小队的1/6。在补丁后,他们声称将此改为单人1/4、双人1/2(2/4)、三人3/4。
+
+但事实并非如此。他们只是简单地将4人小队的出现率应用到了所有人数和难度等级上。所以单人玩家在最高难度时遇到的巡逻队伍数量,与一支4人小队在相同难度下是完全相同的。这是何等的愚蠢之举,它无疑导致了大量玩家对单人游戏中巡逻队伍出现率的投诉。我希望这只是Arrowhead在实施更新时又一次出现了失误,并且他们能够尽快意识到这一点。
+
+由衷感谢u/gergination和他的团队对巡逻机制做出的宝贵分析工作。没有他们的数据,我们就无法驳斥Arrowhead关于巡逻出现率的完全虚假的说法。
+

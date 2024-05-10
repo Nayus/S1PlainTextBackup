@@ -14,3 +14,11 @@ FURYU原创动作RPG《雷纳提斯》（REYNATIS）×Square Enix《新美妙世
 
 这还真联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Booorunestud  
+##### 64#       发表于 2024-5-10 12:04
+
+突出一个原味 立绘不改的同时模型效果更加丑陋
+

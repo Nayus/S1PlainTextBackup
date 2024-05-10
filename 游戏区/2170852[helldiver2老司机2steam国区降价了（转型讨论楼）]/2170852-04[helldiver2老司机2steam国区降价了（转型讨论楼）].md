@@ -1464,3 +1464,13 @@ ar系主要是一个弹夹总伤害太少了，dps是够的，如果能整体提
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要一个月出三把主武器那肯定不给你做武器改造的，现在这样靠着开发者给你改造缝缝补补才能维持出主武器频率
 
+
+*****
+
+####  rainknine  
+##### 4588#       发表于 2024-5-10 11:58
+
+回想两个月前
+遥遥领先债券出来时，甚至还有这个游戏pay to win的言论
+现在大概是pay to 当冤种
+

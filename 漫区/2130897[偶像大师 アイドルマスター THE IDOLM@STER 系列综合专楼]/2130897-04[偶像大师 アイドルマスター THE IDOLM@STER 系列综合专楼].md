@@ -529,3 +529,13 @@ scsp要复刻土豆台服了嘛？
 
 什么情况？这就背水一战了吗
 
+
+*****
+
+####  安广多惠子  
+##### 4497#       发表于 2024-5-11 13:17
+
+yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，可惜做得一坨<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

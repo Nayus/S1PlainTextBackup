@@ -5327,3 +5327,37 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 对初华的七弦有点兴趣，因为没弹过七弦，看了下oricon的文章好像有公布一些配置，感觉似乎跟量产版也没多大区别，应该不会到ESP那么贵吧，不知什么时候会开订，可能得鸡团动画开播后了？
 
+
+*****
+
+####  枫林不见  
+##### 16758#       发表于 2024-5-11 19:08
+
+经典的预告的预告 看看第二首能玩出什么花样
+
+*****
+
+####  PDQ4  
+##### 16759#       发表于 2024-5-11 19:08
+
+ 本帖最后由 PDQ4 于 2024-5-11 19:10 编辑 
+
+新曲5.18
+
+<img src="https://img.saraba1st.com/forum/202405/11/190839r3fhrxus3r468uks.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8710.jpeg</strong> (473.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 19:08 上传
+
+*****
+
+####  PDQ4  
+##### 16760#       发表于 2024-5-11 19:11
+
+第二首主题是风？我还以为会是绿油油的图呢<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+该开盘MV是当天就有还是继续下个月见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

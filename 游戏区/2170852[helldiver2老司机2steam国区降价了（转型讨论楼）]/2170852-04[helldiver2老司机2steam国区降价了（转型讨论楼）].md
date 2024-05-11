@@ -2081,3 +2081,17 @@ PSN服务占收入13%
 
 这CEO跟他家那几个逆天设计师和社管一个逼德性，只不过他负责唱红脸语气温和点，踏马的绑定psn知情不报、新债卷太烂就开个投票下套好给制作组找理由之类的下三滥破事也没少干，居然还有人指望他能整顿好箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 4632#       发表于 2024-5-11 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64887942&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-11 18:55</a>
+这CEO跟他家那几个逆天设计师和社管一个逼德性，只不过他负责唱红脸语气温和点，踏马的绑定psn知情不报、新 ...</blockquote>
+还有人真的觉得这个ceo不一样，有人性呢。再显摆几次估计舔狗们就要说ceo本意是好的了
+那个投票更难绷，微博关注游侠还在报这个，看到第一眼脑子里就是“假民主真xx”
+箭头如果是在中国已经该写信举报斜蕉了。做游戏把自己玩进去了当真的独此一家
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

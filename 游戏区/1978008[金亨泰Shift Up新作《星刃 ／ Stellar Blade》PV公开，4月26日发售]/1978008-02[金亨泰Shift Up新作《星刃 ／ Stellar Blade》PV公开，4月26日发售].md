@@ -1240,3 +1240,13 @@ adam这名字一出就能猜到这人有反转，但是角色塑造实在太差�
 
 另外新游戏+的两个奖杯，在奖杯列表里的分类是DLC奖杯，这是什么操作
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1599#       发表于 2024-5-11 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64887392&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-11 17:56</a>
+另外新游戏+的两个奖杯，在奖杯列表里的分类是DLC奖杯，这是什么操作</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新游戏+这个模式都是发售前日才更新出来的，奖杯组则是之前媒体评测就有了，所以才成了dlc吧
+

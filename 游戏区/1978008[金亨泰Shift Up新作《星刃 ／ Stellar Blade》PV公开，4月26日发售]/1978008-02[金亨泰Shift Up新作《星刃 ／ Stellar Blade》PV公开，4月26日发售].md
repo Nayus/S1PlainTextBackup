@@ -1406,3 +1406,25 @@ boss战就不多说了，除了攻击模式有点重复以及完美格挡处决�
 —— 来自 S1Fun ...</blockquote>
 搞了啊，跑图伪装，打boss本能，解锁两个之后会固定带贝塔出神。并不解决根本问题啊。
 
+
+*****
+
+####  jacket  
+##### 1604#       发表于 2024-5-12 07:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64887600&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-11 18:17</a>
+
+新游戏+这个模式都是发售前日才更新出来的，奖杯组则是之前媒体评测就有了，所以才成了dlc吧 ...</blockquote>
+那可能PS平台规定新加的奖杯只能放到DLC分类里
+
+
+*****
+
+####  你不会没有吧  
+##### 1605#       发表于 2024-5-12 07:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892403&amp;ptid=1978008" target="_blank">haru橙子 发表于 2024-5-12 06:51</a>
+
+搞了啊，跑图伪装，打boss本能，解锁两个之后会固定带贝塔出神。并不解决根本问题啊。 ...</blockquote>
+[https://gamewith.jp/stellarblade/447319](https://gamewith.jp/stellarblade/447319) 参考一下吧
+

@@ -5577,3 +5577,23 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 不过邦琴走量还是邦标（尤其邦标M2....)，包括六花那把四川都做了高低配两个版本，schecter这次估计也会 ...</blockquote>
 我的想法是如果买就买斯科特标的，先看看开订什么价格，如果太贵就算了。
 
+
+*****
+
+####  NODY  
+##### 16781#       发表于 2024-5-12 03:30
+
+ 本帖最后由 NODY 于 2024-5-12 03:32 编辑 
+
+翻到的日本的讨论想到的，风阻止火、地阻止水，会和剧情走向有关吗，海睦互动和喵初互动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还有按这个五角星的画法五首歌顺序是是火风水地灵？
+
+<img src="https://img.saraba1st.com/forum/202405/12/032536r4mtxyg3ic33gaki.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (33.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 03:25 上传
+

@@ -2073,3 +2073,11 @@ PSN服务占收入13%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>Hey, yeah i think we've gone too far in some areas. Will talk to the team about the approach to balance. It feels like every time someone finds something fun, the fun is removed.</blockquote>
 
+
+*****
+
+####  FLZB  
+##### 4631#       发表于 2024-5-11 18:55
+
+这CEO跟他家那几个逆天设计师和社管一个逼德性，只不过他负责唱红脸语气温和点，踏马的绑定psn知情不报、新债卷太烂就开个投票下套好给制作组找理由之类的下三滥破事也没少干，居然还有人指望他能整顿好箭头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

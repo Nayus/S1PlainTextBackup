@@ -1911,3 +1911,18 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀20E机器人属实天才，一局机器人才能杀多少个啊
 
+
+*****
+
+####  北条早苗  
+##### 4618#       发表于 2024-5-11 11:45
+
+别看对马岛了，老司机2把立陶宛三国也锁区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4619#       发表于 2024-5-11 11:46
+
+箭头虽然修了离子喷在蛋盾里自爆，但是没修离子喷在防御塔里自爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  估计这玩意根本没用人。
+

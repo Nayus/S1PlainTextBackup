@@ -1981,3 +1981,11 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 指令都失败好几次，感觉也没影响后续剧情。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4625#       发表于 2024-5-11 15:59
+
+杀20亿机器人不就充分证明了箭头这帮贵物不但不玩自己做游戏，甚至有时连数据都不看，突出一个一拍脑袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

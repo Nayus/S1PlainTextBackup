@@ -10037,3 +10037,13 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 放机战里前奏太长</blockquote>
 所以后面的机战出现了中段播放
 
+
+*****
+
+####  Alphawalker  
+##### 830#       发表于 2024-5-11 18:00
+
+看完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉不能用狗血，爱来爱去口水实在太多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">还是宇宙魅影拂晓帅，可惜就那么几个镜头，mb还不能还原
+

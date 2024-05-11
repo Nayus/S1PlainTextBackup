@@ -5311,3 +5311,11 @@ QQ图片20240510170908.jpg
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16756#       发表于 2024-5-11 17:05
+
+https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

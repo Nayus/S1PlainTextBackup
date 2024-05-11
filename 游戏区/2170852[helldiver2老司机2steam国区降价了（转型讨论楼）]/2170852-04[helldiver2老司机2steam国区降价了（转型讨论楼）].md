@@ -2025,3 +2025,25 @@ PSN服务占收入13%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我就觉得上次杀20亿虫子能完成就是借阴兵来自: iPhone客户端
 
+
+*****
+
+####  Mr.Hopp  
+##### 4628#       发表于 2024-5-11 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64886387&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-11 16:40</a>
+
+反正我就觉得上次杀20亿虫子能完成就是借阴兵</blockquote>
+上次是有BUG，每杀一个都算了4次。
+
+*****
+
+####  looptube  
+##### 4629#       发表于 2024-5-11 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64886673&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-11 16:59</a>
+上次是有BUG，每杀一个都算了4次。</blockquote>
+有bug也不正常，毕竟不到24小时就完成了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

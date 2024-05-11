@@ -1579,3 +1579,14 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  冷泉夜月  
+##### 15771#       发表于 2024-5-11 10:39
+
+如果真有的话，感觉是用王泪素材改的小规格外传，没准是新机护航作之一<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过玩法感觉得和正作区分，不然单纯换操纵对象感觉意义不大<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

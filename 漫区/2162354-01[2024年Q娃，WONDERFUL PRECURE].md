@@ -1755,3 +1755,12 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 
 这画风感觉和小麦的智商很相符<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1452#       发表于 2024-5-11 23:12
+
+[https://twitter.com/ankrD1029/status/1789083353897181389](https://twitter.com/ankrD1029/status/1789083353897181389)
+<img src="https://p.sda1.dev/17/7bb4c1b080ab25549791ecc6d7aaca9c/20240511_231159.jpg" referrerpolicy="no-referrer">
+

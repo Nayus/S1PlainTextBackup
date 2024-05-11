@@ -2294,3 +2294,34 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 我意思是盗贼之海的销量不过如此。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">2017年老游戏能这样还不过如此我真不好说啥了，愿意玩的早就去玩了好吧
 
+
+*****
+
+####  Mr.Hopp  
+##### 238#       发表于 2024-5-11 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889636&amp;ptid=2182889" target="_blank">BK10 发表于 2024-5-11 21:47</a>
+
+2017年老游戏能这样还不过如此我真不好说啥了，愿意玩的早就去玩了好吧首发XGP加各种骨折 ...</blockquote>
+吃了那啥雷掉的红利吧。
+
+*****
+
+####  BK10  
+##### 239#       发表于 2024-5-11 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889653&amp;ptid=2182889" target="_blank">Mr.Hopp 发表于 2024-5-11 21:49</a>
+
+吃了那啥雷掉的红利吧。</blockquote>
+碧海黑帆2月的隔得有点久说实话，而且可以说死的悄无声息，这玩意又不是2077那种全网痛骂热度不算高
+
+*****
+
+####  毛利提督  
+##### 240#       发表于 2024-5-11 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64860293&amp;ptid=2182889" target="_blank">日日日日日野 发表于 2024-5-9 10:59</a>
+
+看上去是没过项目绿灯会，但现在的项目评估体系，谁又说得准</blockquote>
+微软的评估体系（指给博德之门3报价几百万美刀打发叫花子）
+

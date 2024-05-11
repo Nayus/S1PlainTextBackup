@@ -1942,3 +1942,21 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">波罗的海三兄弟，鬼佬什么时候开冲
 
+
+*****
+
+####  Launce  
+##### 4621#       发表于 2024-5-11 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64882938&amp;ptid=2170852" target="_blank">北条早苗 发表于 2024-5-11 11:45</a>
+
+别看对马岛了，老司机2把立陶宛三国也锁区了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">延迟刀效果挺好的，目前才3K差评
+
+*****
+
+####  Mr.Hopp  
+##### 4622#       发表于 2024-5-11 15:15
+
+现在已经15%的击杀了，总感觉箭头现在控制任务完成时间的水平比之前高很多，总是感觉无法完成但实际上又差不多。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

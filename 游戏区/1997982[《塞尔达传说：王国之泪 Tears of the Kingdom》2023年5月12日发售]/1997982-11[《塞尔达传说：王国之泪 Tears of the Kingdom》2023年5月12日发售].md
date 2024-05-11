@@ -1590,3 +1590,13 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  schneehertz  
+##### 15772#       发表于 2024-5-11 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">主角是塞尔达的塞尔达传说！
+
+—— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

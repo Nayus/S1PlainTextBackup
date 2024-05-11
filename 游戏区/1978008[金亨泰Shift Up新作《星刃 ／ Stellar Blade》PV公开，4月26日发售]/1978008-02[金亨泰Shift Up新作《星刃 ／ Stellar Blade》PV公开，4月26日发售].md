@@ -1379,3 +1379,17 @@ boss战就不多说了，除了攻击模式有点重复以及完美格挡处决�
 
 这样才能让这个游戏的普通战斗越打越爽，而不是现在这种系统底子很好但就是爽不起来的感受
 
+
+*****
+
+####  你不会没有吧  
+##### 1602#       发表于 2024-5-12 06:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892317&amp;ptid=1978008" target="_blank">haru橙子 发表于 2024-5-12 05:49</a>
+玩完我只觉得这游戏设计初心很好，但最终实际落地就是不尽如人意，想法太多思路太杂导致体验混乱。
+
+主要说 ...</blockquote>
+不是，你配装是完全不配吗，脊椎组件搞一下呀，技能和爆发回转都有相应搭配的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

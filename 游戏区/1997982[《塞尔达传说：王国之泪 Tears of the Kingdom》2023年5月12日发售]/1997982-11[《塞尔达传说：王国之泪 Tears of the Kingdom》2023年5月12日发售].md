@@ -1516,3 +1516,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 林克传说？
 
+
+*****
+
+####  佛罗伦萨  
+##### 15765#       发表于 2024-5-11 09:32
+
+感觉情理之中吧，就是不知道用哪一代的塞尔达
+

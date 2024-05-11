@@ -2384,3 +2384,29 @@ tracker 可以用于同步阅读状态，不过只适合用于更新最远进度
 
 mihon怎么用kavita插件?添加[https://raw.githubusercontent.co ... repo/index.min.json](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/index.min.json)仓库搜不到,tachiyomi kavita的apk能安装上,添加opds后图源里还是没有kavita;用tachiyomisy就可以,但安全中心提示病毒看着难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pgain2004  
+##### 216#         楼主| 发表于 2024-5-11 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64880248&amp;ptid=2167901" target="_blank">FSS 发表于 2024-5-11 02:02</a>
+
+mihon怎么用kavita插件?添加[https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde](https://raw.githubusercontent.com/Kareadita/tachiyomi-extensions/repo/inde) ...</blockquote>
+不明白是权限给少了还是没开那什么工具，我添加你这个之后很顺利就找到了啊
+
+<img src="https://img.saraba1st.com/forum/202405/11/092534unud1uuzoitzrjnm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-11-09-23-03-287_app.mihon.debug.jpg</strong> (144.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 09:25 上传
+
+*****
+
+####  ccfcfc  
+##### 217#       发表于 2024-5-11 09:30
+
+mihon能双页显示吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

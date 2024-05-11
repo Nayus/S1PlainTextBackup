@@ -1501,3 +1501,18 @@ OST普通版9CD卖13200也太贵了，对比下近期发售的ost，火纹engage
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  JOJOROY  
+##### 15763#       发表于 2024-5-11 09:00
+
+Papagenos hints at a new adventure game starring Zelda as the main playable character, Papagenos暗示以塞尔达为可操作角色的冒险游戏开发中
+
+*****
+
+####  星花  
+##### 15764#       发表于 2024-5-11 09:01
+
+林克传说？
+

@@ -10083,3 +10083,11 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 之前就能猜到了吧 根本不可能上映的
 
+
+*****
+
+####  wyhman  
+##### 835#       发表于 2024-5-12 02:02
+
+虽然在日本看过了，但是大陆不能上映，真的好可惜
+

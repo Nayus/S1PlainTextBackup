@@ -1550,3 +1550,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 这个？
 
+
+*****
+
+####  芜湖挨宰  
+##### 15768#       发表于 2024-5-11 09:57
+
+可以可以，没dlc就没dlc，王国之泪前传更棒了
+

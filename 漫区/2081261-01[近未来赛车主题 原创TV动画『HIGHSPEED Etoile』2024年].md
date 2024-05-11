@@ -19,3 +19,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">藤真的人设是真不错
 
+
+*****
+
+####  KDConan  
+##### 322#       发表于 2024-5-11 09:47
+
+所以这片就是关于女主各种拉客来拯救自家文字烧店的呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

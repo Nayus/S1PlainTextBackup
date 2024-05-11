@@ -191,3 +191,14 @@ tomoon吧，翻墙啥都有了
 日版的steamdeck吧，日元汇率都这样了，就是渠道不好搞</blockquote>
 日版我看只有oled  普通版 多多都没有...
 
+
+*****
+
+####  eternity0079  
+##### 1198#       发表于 2024-5-11 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64828625&amp;ptid=2086469" target="_blank">肛之练筋士 发表于 2024-5-6 16:25</a>
+
+考虑要不要把6800u的win4出掉了，换7840/8840有提升吗？</blockquote>
+看评测提升最多也就10% 没有本质提升，不值得换。
+

@@ -2436,3 +2436,14 @@ mihon能双页显示吗<img src="https://static.saraba1st.com/image/smiley/face2
  ...</blockquote>
 不知道为啥重启插件会不见
 
+
+*****
+
+####  pgain2004  
+##### 220#         楼主| 发表于 2024-5-11 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881642&amp;ptid=2167901" target="_blank">qbz95 发表于 2024-5-11 09:53</a>
+不知道为啥重启插件会不见</blockquote>
+如果没安装，重启后就需要连上那什么才能正确读取未安装的插件列表？已安装的应该不受影响
+我这边安装后重启测试了一下，没问题
+

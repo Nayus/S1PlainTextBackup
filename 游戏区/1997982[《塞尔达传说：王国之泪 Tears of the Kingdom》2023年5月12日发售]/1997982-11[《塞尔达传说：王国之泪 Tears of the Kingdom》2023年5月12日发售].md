@@ -1558,3 +1558,13 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 可以可以，没dlc就没dlc，王国之泪前传更棒了
 
+
+*****
+
+####  JOJOROY  
+##### 15769#       发表于 2024-5-11 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881541&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2024-5-11 09:43</a>
+这个？</blockquote>
+对，大写字母拼起来就是this is a hint
+

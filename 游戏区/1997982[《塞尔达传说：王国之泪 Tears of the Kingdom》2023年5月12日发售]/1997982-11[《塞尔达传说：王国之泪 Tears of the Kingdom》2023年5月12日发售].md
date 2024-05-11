@@ -1640,3 +1640,13 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 其他：电影（已公布）、游乐园项目（有疑似图透）
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15777#       发表于 2024-5-11 15:29
+
+现在感觉你任也不是在乎周年了，还是好好做游戏好好QA吧，品质最重要
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

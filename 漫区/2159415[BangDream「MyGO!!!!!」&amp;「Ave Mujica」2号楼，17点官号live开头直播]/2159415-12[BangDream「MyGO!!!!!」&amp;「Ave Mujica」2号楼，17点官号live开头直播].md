@@ -5556,3 +5556,14 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 日本ESP标都是手工琴自带溢价，schecter有量产也有手工琴，所以很多琴型价格比ESP友好很多，不过这次联动 ...</blockquote>
 我看他们给唱过巨人的歌的乐队吉他手SHOW-HATE做的联名7弦也不便宜噢，不过初华那把实在不可能堆料堆到跟那把一个级别吧，保守猜一个3万上下
 
+
+*****
+
+####  紫吹兰  
+##### 16779#         楼主| 发表于 2024-5-12 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64890281&amp;ptid=2159415" target="_blank">hkguty 发表于 2024-5-11 23:08</a>
+
+我看他们给唱过巨人的歌的乐队吉他手SHOW-HATE做的联名7弦也不便宜噢，不过初华那把实在不可能堆料堆到跟 ...</blockquote>
+不过邦琴走量还是邦标（尤其邦标M2....)，包括六花那把四川都做了高低配两个版本，schecter这次估计也会是走量和手工都有。
+

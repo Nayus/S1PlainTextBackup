@@ -214,3 +214,11 @@ tomoon吧，翻墙啥都有了
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  crosz1985  
+##### 1200#       发表于 2024-5-11 13:10
+
+steamdeck支持FSR3吗
+

@@ -2162,3 +2162,14 @@ PSN服务占收入13%
 新smg改成半自动足够挤进t1了，45发60伤害比预想的压制力强的多，放西线配盾吊打蹂躏者 ...</blockquote>
 这枪尴尬在于，它能两枪爆头带走蹂躏者，所以通常肯定是照头打，但如果马了的话蹂躏者躯干又打不穿，所以除非去打四肢否则眩晕效果感觉其实作用不大，这枪在西线真正的亮点其实是停电锯人。
 
+
+*****
+
+####  DawnGuardian  
+##### 4639#       发表于 2024-5-12 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64890502&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-11 23:32</a>
+
+这枪尴尬在于，它能两枪爆头带走蹂躏者，所以通常肯定是照头打，但如果马了的话蹂躏者躯干又打不穿，所以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">45发弹容，能两枪爆头送走蹂躏者，还能停电锯人，这不是全方位完爆防卫者？这下p2w了
+

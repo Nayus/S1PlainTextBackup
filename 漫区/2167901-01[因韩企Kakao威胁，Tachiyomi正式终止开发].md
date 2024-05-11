@@ -2455,3 +2455,31 @@ mihon能双页显示吗<img src="https://static.saraba1st.com/image/smiley/face2
 
 mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M
 
+
+*****
+
+####  azbhg1  
+##### 222#       发表于 2024-5-11 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881936&amp;ptid=2167901" target="_blank">suika2 发表于 2024-5-11 10:22</a>
+
+mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M ...</blockquote>
+那加载速度怕不是非常感人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芜湖挨宰  
+##### 223#       发表于 2024-5-11 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881936&amp;ptid=2167901" target="_blank">suika2 发表于 2024-5-11 10:22</a>
+mihon上有个绅士漫画的源好像完全不压画质，而且没水印，下了一本漫画，每张图能到10M ...</blockquote>
+我这里的绅士漫画怎么全是本子？
+
+*****
+
+####  芜湖挨宰  
+##### 224#       发表于 2024-5-11 11:31
+
+kakao这企业这是不是傻逼？折腾了一圈不还是和以前一样。
+这是新ceo上任脑抽了吗？
+

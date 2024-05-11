@@ -2504,3 +2504,14 @@ kakao这企业这是不是傻逼？折腾了一圈不还是和以前一样。
 不知道为啥重启插件会不见</blockquote>
 安卓系统的话别忘了打开读取应用列表的权限
 
+
+*****
+
+####  qbz95  
+##### 227#       发表于 2024-5-11 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64882961&amp;ptid=2167901" target="_blank">nocode 发表于 2024-5-11 11:47</a>
+
+安卓系统的话别忘了打开读取应用列表的权限</blockquote>
+噢噢，原来如此，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -6724,3 +6724,21 @@ RTA开始了
 
 486最后下播前也没叫起来的嘉宾果然还是你啊！能睡的确实
 
+
+*****
+
+####  holoan  
+##### 8779#         楼主| 发表于 2024-5-11 14:19
+
+<img src="https://img.saraba1st.com/forum/202405/11/141903mo0y0afpffzaorna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 14:19 上传
+
+拿到正式许可了
+
+然后还是当年帕鲁那3个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

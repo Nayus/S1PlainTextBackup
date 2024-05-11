@@ -2338,3 +2338,15 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 看了下索尼STEAM上游戏销量，几个大作基本上在200W到300W左右，感觉有些玩家还是等得起的。
 
+
+*****
+
+####  BK10  
+##### 242#       发表于 2024-5-11 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889786&amp;ptid=2182889" target="_blank">Mr.Hopp 发表于 2024-5-11 22:02</a>
+2月份在HD2欧洲销量暴增的那周碧海黑帆能销量排第二，估计因为历史原因欧洲玩家特别喜欢这个类型。
+
+看了 ...</blockquote>
+有肯定有，但是这个年数基本排除多平台选手了，所以我觉得卖的不差，这是纯ps用户
+

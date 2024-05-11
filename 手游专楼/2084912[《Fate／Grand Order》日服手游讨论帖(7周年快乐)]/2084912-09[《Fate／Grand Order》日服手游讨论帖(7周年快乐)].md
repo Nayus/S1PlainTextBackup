@@ -8021,3 +8021,13 @@ https://github.com/rayshift/translatefgo/
 啊，原来没有新活动和新从者，那没事了</blockquote>
 有微小3000wdl复刻兽尼可能，
 
+
+*****
+
+####  khxooo  
+##### 12737#       发表于 2024-5-11 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64883163&amp;ptid=2084912" target="_blank">ggyy0088 发表于 2024-5-11 12:03</a>
+有微小3000wdl复刻兽尼可能，</blockquote>
+公主的机会比兽尼大吧。
+

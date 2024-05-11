@@ -645,3 +645,16 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 搞错了
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  raimouse  
+##### 4509#       发表于 2024-5-11 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64888414&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-5-11 19:40</a>
+
+只能说红c吃了最多的宣发红利也胜在出的早，路人可能就看这一个
+
+不如说作为信号灯的黄被超了还挺 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莉波反杀皮卡丘也是经典，虽然我觉得清夏的MV和曲子都爆了莉波
+

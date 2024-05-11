@@ -2121,3 +2121,13 @@ PSN服务占收入13%
 
 员工都放假了，看到玩家在讨论才知道自家游戏又被多锁了三个区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 4635#       发表于 2024-5-11 21:34
+
+索尼活也太多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

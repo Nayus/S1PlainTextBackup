@@ -5499,3 +5499,20 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 我印象里之前查aether一开始是天界的构成元素，也说是四元素相互作用的媒介。在往后发展被联系到是电磁学和 ...</blockquote>
 这玩意虽然和炼金术／神秘学强相关，但是最有关系的不是亚里士多德吗，感觉很多人都没意识到四元素说一开始是古希腊朴素的世界观来着。
 
+
+*****
+
+####  rikaren  
+##### 16774#       发表于 2024-5-11 21:36
+
+<img src="https://img.saraba1st.com/forum/202405/11/213606szv1n81wfhlflf99.png" referrerpolicy="no-referrer">
+
+<strong>Image_1715434527394.png</strong> (267.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-11 21:36 上传
+
+论天和天象学里对以太的论述有点稀散，姑且就只截这一张出来吧
+

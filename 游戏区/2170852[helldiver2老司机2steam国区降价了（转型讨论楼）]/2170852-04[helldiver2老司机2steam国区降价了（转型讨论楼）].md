@@ -1926,3 +1926,19 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 箭头虽然修了离子喷在蛋盾里自爆，但是没修离子喷在防御塔里自爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  估计这玩意根本没用人。
 
+
+*****
+
+####  Launce  
+##### 4620#       发表于 2024-5-11 15:03
+
+<img src="https://img.saraba1st.com/forum/202405/11/150322omdqkrqrq7yqzzrq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 15:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">波罗的海三兄弟，鬼佬什么时候开冲
+

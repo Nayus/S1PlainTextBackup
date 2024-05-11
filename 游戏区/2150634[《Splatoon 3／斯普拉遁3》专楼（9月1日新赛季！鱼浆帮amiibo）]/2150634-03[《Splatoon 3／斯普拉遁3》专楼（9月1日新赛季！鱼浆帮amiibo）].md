@@ -13668,3 +13668,13 @@ w5 平潮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 4330#       发表于 2024-5-11 13:27
+
+打不过就加入
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

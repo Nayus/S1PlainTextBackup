@@ -5292,3 +5292,11 @@ QQ图片20240510170908.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/11/131537tzymy2g6y2m2i2d3.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 16754#       发表于 2024-5-11 13:39
+
+原來青木也有去看0th，是跟大鼓一起去的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

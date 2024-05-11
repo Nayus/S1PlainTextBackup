@@ -588,3 +588,26 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 
 小红的mv我觉得打不过小蓝的啊，播放量居然还没被反超
 
+
+*****
+
+####  伊布桑  
+##### 4503#       发表于 2024-5-11 19:40
+
+ 本帖最后由 伊布桑 于 2024-5-11 19:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64888380&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-11 19:37</a>
+小红的mv我觉得打不过小蓝的啊，播放量居然还没被反超</blockquote>
+只能说红c吃了最多的宣发红利也胜在出的早，路人可能就看这一个
+
+不如说作为信号灯的黄被超了还挺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  披头破落户  
+##### 4504#       发表于 2024-5-11 19:44
+
+一个星期多了还没破百万，什么糊逼企划
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

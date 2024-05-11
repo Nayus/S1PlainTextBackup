@@ -5388,3 +5388,40 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 现在看倒是系列预告，但还是溜粉。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16764#       发表于 2024-5-11 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64888083&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-5-11 19:08</a>
+
+经典的预告的预告 看看第二首能玩出什么花样</blockquote>
+這次有圖了應該不是預告的預告了吧！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16765#       发表于 2024-5-11 19:47
+
+上次被炎上过了我估计mv应该会当天发了
+
+*****
+
+####  御幸一也  
+##### 16766#       发表于 2024-5-11 19:47
+
+按照星座的屬性，air風象的話應該是對喵夢（雖然祥子也是風）
+
+不過看第一首歌，感覺也沒有很海鈴，不是角色曲就當看個樂了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 
+
+反正這次能確定的是這個symbol，指的是煉金術相關的那個了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/11/194639ggsbbhg769913l9l.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_5197.jpg</strong> (168.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 19:46 上传
+

@@ -2095,3 +2095,13 @@ PSN服务占收入13%
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  白昼梦  
+##### 4633#       发表于 2024-5-11 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">投票要不要延后债券那个事就纯纯故意不说是因为债券烂了。
+债券做烂了设计组被喷还直接回喷你们自己选的不延后债券。
+完全就是一群烂人沆瀣一气
+

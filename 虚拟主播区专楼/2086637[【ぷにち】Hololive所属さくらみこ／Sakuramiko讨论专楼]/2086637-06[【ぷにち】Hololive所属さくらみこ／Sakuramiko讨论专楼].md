@@ -6788,3 +6788,11 @@ NB极了
 
 都是这些打僵尸的硬核生存游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8784#         楼主| 发表于 2024-5-11 23:53
+
+今天长时间直播这么久时间，看起来骨传导耳机的相性还不错，以后长时间直播应该可以安排上了
+

@@ -8031,3 +8031,11 @@ https://github.com/rayshift/translatefgo/
 有微小3000wdl复刻兽尼可能，</blockquote>
 公主的机会比兽尼大吧。
 
+
+*****
+
+####  乾理央  
+##### 12738#       发表于 2024-5-12 00:17
+
+可能又是开线下展会，复刻几个老东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

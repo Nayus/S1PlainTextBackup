@@ -676,3 +676,21 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 说到底做的时候百动画有拉新的想法嘛</blockquote>
 这动画怎么拉人嘛，怎么看都是给多年土豆甚至格力老P看着乐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Laie  
+##### 4512#       发表于 2024-5-12 06:21
+
+看前几天财报和问答，蓝色协议那一波是真的伤到了
+
+内部开发资源调整拿scsp来开刀再正常不过
+
+<img src="https://img.saraba1st.com/forum/202405/12/061431rk4dh8spt1vd1t84.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 06:14 上传
+

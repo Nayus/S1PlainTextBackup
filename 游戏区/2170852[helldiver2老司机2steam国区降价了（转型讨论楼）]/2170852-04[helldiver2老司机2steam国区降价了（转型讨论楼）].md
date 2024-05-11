@@ -2131,3 +2131,15 @@ PSN服务占收入13%
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mr.Hopp  
+##### 4636#       发表于 2024-5-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64888928&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-11 20:31</a>
+
+员工都放假了，看到玩家在讨论才知道自家游戏又被多锁了三个区
+
+ ...</blockquote>休假咋了你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

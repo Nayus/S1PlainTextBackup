@@ -2263,3 +2263,34 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 前阵子盗贼之海在ps上发售就卖得很好，可能两相对比就让微软决定把tango关了 ...</blockquote>
 盗贼之海下载版北美还不如剑星，欧洲倒是比剑星好不少，但是日本好像没有销量。
 
+
+*****
+
+####  BK10  
+##### 235#       发表于 2024-5-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889374&amp;ptid=2182889" target="_blank">Mr.Hopp 发表于 2024-5-11 21:18</a>
+
+盗贼之海下载版北美还不如剑星，欧洲倒是比剑星好不少，但是日本好像没有销量。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">死的是探戈啊，你拿剑星出来有啥用，这又不是探戈做的，不如看看HIFiRUSH在哪里，盗贼之海能名列前茅还不好吗多久的老游戏了（2017年发售的）
+
+*****
+
+####  Mr.Hopp  
+##### 236#       发表于 2024-5-11 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889617&amp;ptid=2182889" target="_blank">BK10 发表于 2024-5-11 21:45</a>
+
+死的是探戈啊，你拿剑星出来有啥用，这又不是探戈做的，不如看看HIFiRUSH在哪里，盗贼之海能名列前 ...</blockquote>
+我意思是盗贼之海的销量不过如此。
+
+*****
+
+####  BK10  
+##### 237#       发表于 2024-5-11 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889626&amp;ptid=2182889" target="_blank">Mr.Hopp 发表于 2024-5-11 21:46</a>
+
+我意思是盗贼之海的销量不过如此。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">2017年老游戏能这样还不过如此我真不好说啥了，愿意玩的早就去玩了好吧
+

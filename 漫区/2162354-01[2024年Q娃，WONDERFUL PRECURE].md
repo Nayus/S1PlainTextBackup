@@ -1764,3 +1764,13 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 [https://twitter.com/ankrD1029/status/1789083353897181389](https://twitter.com/ankrD1029/status/1789083353897181389)
 <img src="https://p.sda1.dev/17/7bb4c1b080ab25549791ecc6d7aaca9c/20240511_231159.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1453#       发表于 2024-5-12 06:37
+
+在外面看见doremi的帖子我才发现，今年有成田在，河豚都不在楼里了啊<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">伟大！成田牌蚊香！
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

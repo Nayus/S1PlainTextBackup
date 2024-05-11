@@ -1725,3 +1725,25 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 
 彩羽小姐的脸不伟大了
 
+
+*****
+
+####  新HGCG  
+##### 1449#         楼主| 发表于 2024-5-11 17:36
+
+小新声优换人了啊
+
+否则就是初代妖精了
+
+
+*****
+
+####  粉儿alice  
+##### 1450#       发表于 2024-5-11 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64887146&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-5-11 17:36</a>
+小新声优换人了啊
+
+否则就是初代妖精了</blockquote>
+小新现在的声优小林由美子配过奏她弟奏太
+

@@ -2223,3 +2223,16 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 微软大撒比
 
+
+*****
+
+####  Q版胖子  
+##### 232#       发表于 2024-5-11 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64853907&amp;ptid=2182889" target="_blank">chdhdhd 发表于 2024-5-8 17:20</a>
+
+是的，卡普空似乎是版权主要持有者，并且深度参与新鬼泣
+
+知识面窄，认识里这种模式特殊，不知道非纯外包 ...</blockquote>
+没有任何影响
+

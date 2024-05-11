@@ -2236,3 +2236,19 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 知识面窄，认识里这种模式特殊，不知道非纯外包 ...</blockquote>
 没有任何影响
 
+
+*****
+
+####  ohi.02  
+##### 233#       发表于 2024-5-11 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64852866&amp;ptid=2182889" target="_blank">darcia 发表于 2024-5-8 15:54</a>
+百度了下，HIFIRUSH是“没赚够足够的钱”
+
+红霞岛是销量惨淡（进steam前20一次都能当新闻。
+
+光环无限再怎么 ...</blockquote>
+这个理由太为难人了，有xgp免费玩的情况下单机游戏哪有销量，卖不出去还要怎么赚钱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

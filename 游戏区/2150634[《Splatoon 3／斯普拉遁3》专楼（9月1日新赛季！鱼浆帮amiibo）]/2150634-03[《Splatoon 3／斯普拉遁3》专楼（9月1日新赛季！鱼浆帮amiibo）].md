@@ -13719,3 +13719,11 @@ w5 平潮
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4335#       发表于 2024-5-11 20:25
+
+牛逼，国内居然有通天代练能打上X3000分
+

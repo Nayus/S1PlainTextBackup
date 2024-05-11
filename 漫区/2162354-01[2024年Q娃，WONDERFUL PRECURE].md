@@ -1662,3 +1662,21 @@ lilian：不要害怕，不要害怕
 
 犬飼いろは:種崎敦美</blockquote>
 
+
+*****
+
+####  青蛙佬  
+##### 1443#       发表于 2024-5-11 15:51
+
+<img src="https://img.saraba1st.com/forum/202405/11/154934pot0l0zsf726z0o3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 15:49 上传
+
+5/18 下周六「我、是Precure」
+
+「Wonderful Precure」超级合作！新之助和小白玩耍的时候遇到了彩羽和小麦。在大家在一起开心玩耍之时，噶路噶路突然出现。为了和变身为Precure的两人一起帮助噶路噶路，新之助和小白也变身为“キュアオシリィ/屁屁愈使/尻愈使/Cure Oshirii”和“キュアワタアメ/棉花糖愈使/绵饴愈使/Cure Wataame”……！！
+

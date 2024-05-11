@@ -1968,3 +1968,16 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是看情况借阴兵么
 
+
+*****
+
+####  Mr.Hopp  
+##### 4624#       发表于 2024-5-11 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64885381&amp;ptid=2170852" target="_blank">m98626 发表于 2024-5-11 15:23</a>
+
+难道不是看情况借阴兵么</blockquote>
+借什么阴兵？指令时间全耗完对箭头摸鱼最有力好吗。
+
+指令都失败好几次，感觉也没影响后续剧情。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

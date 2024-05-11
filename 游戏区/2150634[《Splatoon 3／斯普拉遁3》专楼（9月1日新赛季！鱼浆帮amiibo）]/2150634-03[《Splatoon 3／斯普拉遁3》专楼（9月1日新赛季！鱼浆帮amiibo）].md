@@ -13735,3 +13735,16 @@ w5 平潮
 
 怎么切出去开个手柄震动就被踢下线了啊......
 
+
+*****
+
+####  shirolin  
+##### 4337#       发表于 2024-5-12 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64886584&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-5-11 16:53</a>
+昨天刚从灵缇换uu 突然流畅得让我不太适应 因为网络卡顿被打死的情况没了
+最近灵缇感觉真不行</blockquote>
+不是，前阵子灵缇和uu都不行，今天就都挺好。
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

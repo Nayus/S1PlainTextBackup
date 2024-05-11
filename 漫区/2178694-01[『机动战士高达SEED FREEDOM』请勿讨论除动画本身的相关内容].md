@@ -9975,3 +9975,11 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 那可能不是fanthom events？起码fanthom events是7号sub，8号dub，也没有9号</blockquote>
 加拿大的……一开始写的是7号sub,然后预售只有dub的。后面9号还加场了。听混乱的
 
+
+*****
+
+####  黑夜守望者  
+##### 824#       发表于 2024-5-11 09:09
+
+不是，vestige哪里不好听了，我觉得meteor不如vestige一根
+

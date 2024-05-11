@@ -403,3 +403,18 @@ man what can i say ，sc out
 
 不要慌 是准备大型アプデ<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 4482#       发表于 2024-5-11 09:04
+
+scsp这运营缩减堪称极速
+
+*****
+
+####  萨文科夫  
+##### 4483#       发表于 2024-5-11 09:05
+
+半周年运营缩减，一周年别直接似了
+

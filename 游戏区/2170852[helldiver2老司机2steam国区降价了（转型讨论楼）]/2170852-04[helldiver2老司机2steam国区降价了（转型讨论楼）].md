@@ -1813,3 +1813,11 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+*****
+
+####  ravend233  
+##### 4610#       发表于 2024-5-11 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到过几个月索尼什么都不做再开强制绑账号
+

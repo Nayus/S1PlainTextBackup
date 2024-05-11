@@ -1524,3 +1524,29 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 感觉情理之中吧，就是不知道用哪一代的塞尔达
 
+
+*****
+
+####  星花  
+##### 15766#       发表于 2024-5-11 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881433&amp;ptid=1997982" target="_blank">佛罗伦萨 发表于 2024-5-11 09:32</a>
+
+感觉情理之中吧，就是不知道用哪一代的塞尔达</blockquote>
+本代吧，剧情都是现成的。
+
+*****
+
+####  冷泉夜月  
+##### 15767#       发表于 2024-5-11 09:43
+
+<img src="https://img.saraba1st.com/forum/202405/11/094238vvts78rp87nnv8qo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240511_094131_com.twitter.andorid.jpg</strong> (363.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 09:42 上传
+
+这个？
+

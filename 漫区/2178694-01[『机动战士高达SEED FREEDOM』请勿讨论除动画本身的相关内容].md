@@ -9994,3 +9994,26 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 不是，vestige哪里不好听了，我觉得meteor不如vestige一根</blockquote>
 放机战里前奏太长<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shiko  
+##### 826#       发表于 2024-5-11 09:36
+
+机战里sf常用的那几首都不行，前奏太长整体脱力
+
+还是OP1和UX里命运脉冲用的ed3还是ed2那首最适合当机战bgm
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shiko  
+##### 827#       发表于 2024-5-11 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64877331&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-5-10 21:10</a>
+刚出的种命BD-BOX新规强自可以在地球上开光翼，设定上不是不可以吗？</blockquote>
+10年的pgsf是写的就是可以，种命bd已经有对应的作画了，不过没有这次这么明显
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

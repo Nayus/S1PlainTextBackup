@@ -5534,3 +5534,14 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 柏拉图和亚里士多德提出的四元素论对应图形是非常经典的梅塔特隆立方体，确实好奇那个简洁的元素符号根源是哪里来的了，没找到出处。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16777#         楼主| 发表于 2024-5-11 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64887000&amp;ptid=2159415" target="_blank">hkguty 发表于 2024-5-11 17:24</a>
+
+对初华的七弦有点兴趣，因为没弹过七弦，看了下oricon的文章好像有公布一些配置，感觉似乎跟量产版也没多大 ...</blockquote>
+日本ESP标都是手工琴自带溢价，schecter有量产也有手工琴，所以很多琴型价格比ESP友好很多，不过这次联动琴不知道是走量产线还是走和ESP同厂的手工琴
+

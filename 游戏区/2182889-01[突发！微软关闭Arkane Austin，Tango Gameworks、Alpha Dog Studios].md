@@ -2397,3 +2397,19 @@ hifi微软本来就没有宣发投入，全是靠发售后口碑撑起来的，�
 
 hifi出来那会微软压根不知道这游戏吧
 
+
+*****
+
+####  a9okalypse  
+##### 247#       发表于 2024-5-12 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64891782&amp;ptid=2182889" target="_blank">RTLordCaptain 发表于 2024-5-12 01:28</a>
+xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
+
+结果说了一堆车轱辘话饱受恶评
+
+最难绷的一段，被问到为什么t ...</blockquote>
+笑死，这回复是chatgpt生成的吗
+
+— from OnePlus CPH2551, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -13602,3 +13602,14 @@ w5 平潮
 
 看了眼奶啤上分，也太折磨了
 
+
+*****
+
+####  KBAC  
+##### 4323#       发表于 2024-5-11 08:39
+
+最后一个赛季快宣发了，别最后整得武器阵容和祭典数量全都不如2代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+6月直面会应该会把续期和第二贴牌情报吐出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

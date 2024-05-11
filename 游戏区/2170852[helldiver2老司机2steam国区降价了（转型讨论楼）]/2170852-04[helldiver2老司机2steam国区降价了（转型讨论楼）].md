@@ -1802,3 +1802,14 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 新任务是拆20亿机器人做反坦克雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 带上晕雷和反器材回西线打了一晚上
 
+
+*****
+
+####  Launce  
+##### 4609#       发表于 2024-5-11 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对马也锁170+了，实锤那锁区就是索尼干的了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然滑跪了，但是那170+大概率不解锁了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

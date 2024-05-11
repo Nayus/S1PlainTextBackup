@@ -8,3 +8,15 @@
 
 碎空星的解谜好难啊，宇宙平台跳跃真恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  martinium  
+##### 1154#       发表于 2024-5-12 01:24
+
+今天把ost仔细听了几遍，结合一些评论，发现很多之前没注意的细节。比如太阳站的bgm是the search的镜像，后者用在南部天文台和追踪模块的bgm
+木炉星的bgm是从早到晚按时间配乐的
+echoes of the eye的最后主题，是本体主题outer wilds的小调remix版。然后在讲述挪麦人历史的时候，班卓琴又变成了挪麦主题的哈斯remix版，随着哈斯人的进化，小调也渐渐转成大调的主题，最后部分有一段口风琴代表feldspar，背景则是宇宙bgm的变奏。dlc最后这段演出10分里bgm至少占5分。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

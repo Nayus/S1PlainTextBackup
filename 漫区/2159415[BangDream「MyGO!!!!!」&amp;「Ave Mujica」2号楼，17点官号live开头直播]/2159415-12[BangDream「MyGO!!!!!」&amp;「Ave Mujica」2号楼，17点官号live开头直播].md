@@ -5300,3 +5300,14 @@ QQ图片20240510170908.jpg
 
 原來青木也有去看0th，是跟大鼓一起去的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 16755#       发表于 2024-5-11 14:14
+
+<img src="https://p.sda1.dev/17/bd862a35345bd979f4daa1e45773b2b8/CMP_20240511141210952.jpg" referrerpolicy="no-referrer">
+普通和理算当然是什么呢
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

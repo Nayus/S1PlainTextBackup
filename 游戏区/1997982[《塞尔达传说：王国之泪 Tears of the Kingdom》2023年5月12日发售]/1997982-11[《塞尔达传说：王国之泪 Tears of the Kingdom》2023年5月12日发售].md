@@ -1664,3 +1664,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 [1]: [https://www.ign.com/articles/201 ... official-zelda-game](https://www.ign.com/articles/2019/03/21/how-an-indie-developer-is-making-an-official-zelda-game)
 
+
+*****
+
+####  a317216007  
+##### 15779#       发表于 2024-5-11 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就塞尔达暖暖环游世界吧
+

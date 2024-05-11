@@ -500,3 +500,32 @@ scsp要复刻土豆台服了嘛？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  殿珣  
+##### 4494#       发表于 2024-5-11 12:56
+
+说起来这次去爱马仕only，是真的有初中生的！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+谁说偶像大师拉不到新人
+
+*****
+
+####  Anatoly  
+##### 4495#       发表于 2024-5-11 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64883716&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-5-11 12:51</a>
+
+失败了就四家游戏一起噶，未尝不是一种风光大葬
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么家族墓地
+
+
+*****
+
+####  sodah  
+##### 4496#       发表于 2024-5-11 13:02
+
+什么情况？这就背水一战了吗
+

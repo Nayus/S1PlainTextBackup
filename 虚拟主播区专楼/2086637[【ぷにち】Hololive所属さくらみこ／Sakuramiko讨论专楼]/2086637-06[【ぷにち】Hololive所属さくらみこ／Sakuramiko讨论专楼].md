@@ -6778,3 +6778,13 @@ NB极了
 
 刚才说也是最近看过了日亚的fallout电视剧来玩的，那应该多少懂一点背景常识了吧
 
+
+*****
+
+####  holoan  
+##### 8783#         楼主| 发表于 2024-5-11 23:21
+
+7大豆也要玩，辐射也要玩
+
+都是这些打僵尸的硬核生存游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

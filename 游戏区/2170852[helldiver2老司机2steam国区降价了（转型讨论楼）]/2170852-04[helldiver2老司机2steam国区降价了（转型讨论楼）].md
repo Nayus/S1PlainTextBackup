@@ -2143,3 +2143,11 @@ PSN服务占收入13%
 
  ...</blockquote>休假咋了你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 4637#       发表于 2024-5-11 23:18
+
+新smg改成半自动足够挤进t1了，45发60伤害比预想的压制力强的多，放西线配盾吊打蹂躏者
+

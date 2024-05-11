@@ -2413,3 +2413,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 — from OnePlus CPH2551, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  缺德猫  
+##### 248#       发表于 2024-5-12 04:21
+
+说明早就想关了，hifi比现在成功三倍，也得关。
+

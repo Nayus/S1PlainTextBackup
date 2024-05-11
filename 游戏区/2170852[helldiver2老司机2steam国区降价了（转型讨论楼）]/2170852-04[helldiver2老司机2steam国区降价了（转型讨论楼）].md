@@ -1989,3 +1989,31 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 杀20亿机器人不就充分证明了箭头这帮贵物不但不玩自己做游戏，甚至有时连数据都不看，突出一个一拍脑袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4626#       发表于 2024-5-11 16:29
+
+扒拉了下索索2023财报
+
+<img src="https://img.saraba1st.com/forum/202405/11/162513f6bsbrrl5zm9s2cc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 16:25 上传
+
+PSN服务占收入13%
+
+<img src="https://img.saraba1st.com/forum/202405/11/162733jzhffyzgohuy0g2o.png" referrerpolicy="no-referrer">
+
+<strong>E1YIGHJZFJ_DMPT[A%_)JNN.png</strong> (14.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 16:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以2024战略重点指标：PSN月活用户
+

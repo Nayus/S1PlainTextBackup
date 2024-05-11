@@ -580,3 +580,11 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 <img src="https://p.sda1.dev/17/b94c17f5d05b0af4c719ae295e71f4b2/CMP_20240511183009337.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/a75053d87bb3678d48d7e01ca42795fa/CMP_20240511182943615.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 4502#       发表于 2024-5-11 19:37
+
+小红的mv我觉得打不过小蓝的啊，播放量居然还没被反超
+

@@ -1650,3 +1650,17 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Junakr  
+##### 15778#       发表于 2024-5-11 19:23
+
+放宽点，也有可能是 IP 授权的第三方独立游戏？
+
+反正节奏海拉鲁开了个先河，IGN 访谈也提到节奏地牢工作室是最早使用塞尔达 IP 的独立开发者之一（one of the first independent developers to use Zelda content）[1]。
+
+要是真有第二家独立游戏工作室接到老任的工作，重做一个「塞尔达的冒险」，那我还是蛮期待的。
+
+[1]: [https://www.ign.com/articles/201 ... official-zelda-game](https://www.ign.com/articles/2019/03/21/how-an-indie-developer-is-making-an-official-zelda-game)
+

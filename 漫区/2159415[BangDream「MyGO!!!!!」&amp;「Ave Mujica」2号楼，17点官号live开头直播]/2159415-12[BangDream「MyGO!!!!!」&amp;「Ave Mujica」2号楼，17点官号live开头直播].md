@@ -5361,3 +5361,30 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 该开盘MV是当天就有还是继续下个月见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 16761#       发表于 2024-5-11 19:28
+
+风属性是对位谁来这？
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rikaren  
+##### 16762#       发表于 2024-5-11 19:34
+
+风属性对应的是喵梦（祥子对应的应该是以太了），这次应该不至于是预告的预告了
+
+*****
+
+####  PDQ4  
+##### 16763#       发表于 2024-5-11 19:36
+
+上次预告的预告无图无时间，发了—Symbols—。
+
+现在看倒是系列预告，但还是溜粉。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

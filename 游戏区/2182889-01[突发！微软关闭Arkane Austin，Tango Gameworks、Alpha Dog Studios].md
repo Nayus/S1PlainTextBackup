@@ -2252,3 +2252,14 @@ hfr还拿了几个奖 xbox第一方工作室有谁去 ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Mr.Hopp  
+##### 234#       发表于 2024-5-11 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861738&amp;ptid=2182889" target="_blank">acg_s1 发表于 2024-5-9 13:08</a>
+
+前阵子盗贼之海在ps上发售就卖得很好，可能两相对比就让微软决定把tango关了 ...</blockquote>
+盗贼之海下载版北美还不如剑星，欧洲倒是比剑星好不少，但是日本好像没有销量。
+

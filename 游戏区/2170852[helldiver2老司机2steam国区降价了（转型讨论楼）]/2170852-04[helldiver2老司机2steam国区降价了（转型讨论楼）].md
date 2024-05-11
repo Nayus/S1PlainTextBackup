@@ -1869,3 +1869,45 @@ u/gergination是一位非凡的分析师,两个月前他发布了一篔关于游
 
 话说之前看到有贝雷帽的爆料那个是真的假的？
 
+
+*****
+
+####  Launce  
+##### 4614#       发表于 2024-5-11 10:30
+
+<img src="https://img.saraba1st.com/forum/202405/11/102957eotrdoy1u60z0p6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-11 10:29 上传
+
+看着像拼接，现在这一坨平衡真不觉得会出
+
+*****
+
+####  Mr.Hopp  
+##### 4615#       发表于 2024-5-11 10:30
+
+20亿机器人一晚上才8%进度，估计这次指令又要失败了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4616#       发表于 2024-5-11 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881838&amp;ptid=2170852" target="_blank">RockingHorse 发表于 2024-5-11 10:13</a>
+
+这些个头盔真的一个比一个丑
+
+话说之前看到有贝雷帽的爆料那个是真的假的？ ...</blockquote>
+后台一堆乱七八糟的边角料，他不上，你永远不知道是废案还是先摆进去的东西
+
+*****
+
+####  ravend233  
+##### 4617#       发表于 2024-5-11 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杀20E机器人属实天才，一局机器人才能杀多少个啊
+

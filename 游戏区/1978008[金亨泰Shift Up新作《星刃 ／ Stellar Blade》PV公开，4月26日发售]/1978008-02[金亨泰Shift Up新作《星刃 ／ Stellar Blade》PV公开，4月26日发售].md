@@ -1428,3 +1428,22 @@ boss战就不多说了，除了攻击模式有点重复以及完美格挡处决�
 搞了啊，跑图伪装，打boss本能，解锁两个之后会固定带贝塔出神。并不解决根本问题啊。 ...</blockquote>
 [https://gamewith.jp/stellarblade/447319](https://gamewith.jp/stellarblade/447319) 参考一下吧
 
+
+*****
+
+####  jacket  
+##### 1606#       发表于 2024-5-12 07:12
+
+[https://twitter.com/StellarBlade/status/1789396086303461857](https://twitter.com/StellarBlade/status/1789396086303461857)
+<img src="https://img.imoutomoe.net/images/2024/05/12/1789396086303461857.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  haru橙子  
+##### 1607#       发表于 2024-5-12 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892420&amp;ptid=1978008" target="_blank">你不会没有吧 发表于 2024-5-12 07:02</a>
+
+https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
+我也没在说后面装备成型之后战斗的问题啊。你贝塔出神加碾压是强压的怪物起不了身。前期能这么搞吗，而且你这给的配装不也都是贝塔出神为核心的，跟我说的不冲突，反而不是更印证了其他系统确实有缺陷并不强吗。
+

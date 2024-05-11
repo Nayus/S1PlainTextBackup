@@ -10091,3 +10091,14 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 虽然在日本看过了，但是大陆不能上映，真的好可惜
 
+
+*****
+
+####  smmlalexdino  
+##### 836#       发表于 2024-5-12 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64880498&amp;ptid=2178694" target="_blank">太极八爪鱼 发表于 2024-5-11 05:56</a>
+
+加拿大的……一开始写的是7号sub,然后预售只有dub的。后面9号还加场了。听混乱的 ...</blockquote>
+加拿大这边昨天起到16号都能正常看了，今天早上才看完，上映的影院和场次都挺多的。
+

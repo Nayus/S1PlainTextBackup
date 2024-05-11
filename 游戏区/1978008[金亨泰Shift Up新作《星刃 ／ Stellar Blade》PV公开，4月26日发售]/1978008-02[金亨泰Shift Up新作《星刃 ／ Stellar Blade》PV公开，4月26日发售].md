@@ -1393,3 +1393,16 @@ boss战就不多说了，除了攻击模式有点重复以及完美格挡处决�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  haru橙子  
+##### 1603#       发表于 2024-5-12 06:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892334&amp;ptid=1978008" target="_blank">你不会没有吧 发表于 2024-5-12 06:05</a>
+
+不是，你配装是完全不配吗，脊椎组件搞一下呀，技能和爆发回转都有相应搭配的
+
+—— 来自 S1Fun ...</blockquote>
+搞了啊，跑图伪装，打boss本能，解锁两个之后会固定带贝塔出神。并不解决根本问题啊。
+

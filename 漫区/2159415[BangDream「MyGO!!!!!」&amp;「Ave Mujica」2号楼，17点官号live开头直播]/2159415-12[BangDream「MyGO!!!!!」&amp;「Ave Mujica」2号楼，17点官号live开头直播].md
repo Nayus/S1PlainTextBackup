@@ -5524,3 +5524,13 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 在鸡楼里学到了一堆奇奇怪怪的知识
 
+
+*****
+
+####  PDQ4  
+##### 16776#       发表于 2024-5-11 22:23
+
+因为那个符号吧，我检索的时候也是四元素符号一开始就关联到炼金术上了，根本没多想。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+柏拉图和亚里士多德提出的四元素论对应图形是非常经典的梅塔特隆立方体，确实好奇那个简洁的元素符号根源是哪里来的了，没找到出处。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

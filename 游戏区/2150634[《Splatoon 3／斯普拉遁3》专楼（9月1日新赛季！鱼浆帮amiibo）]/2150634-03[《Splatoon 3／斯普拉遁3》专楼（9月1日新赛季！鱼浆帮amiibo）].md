@@ -13768,3 +13768,15 @@ w5 平潮
 
 ？
 
+
+*****
+
+####  DeltaStriker  
+##### 4340#       发表于 2024-5-12 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64888865&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-11 20:25</a>
+牛逼，国内居然有通天代练能打上X3000分</blockquote>
+有🍉吃？
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

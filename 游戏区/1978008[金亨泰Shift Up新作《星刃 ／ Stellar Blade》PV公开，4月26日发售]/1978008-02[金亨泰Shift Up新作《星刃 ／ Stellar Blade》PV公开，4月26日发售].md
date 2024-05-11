@@ -1447,3 +1447,24 @@ boss战就不多说了，除了攻击模式有点重复以及完美格挡处决�
 https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 我也没在说后面装备成型之后战斗的问题啊。你贝塔出神加碾压是强压的怪物起不了身。前期能这么搞吗，而且你这给的配装不也都是贝塔出神为核心的，跟我说的不冲突，反而不是更印证了其他系统确实有缺陷并不强吗。
 
+
+*****
+
+####  你不会没有吧  
+##### 1608#       发表于 2024-5-12 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892442&amp;ptid=1978008" target="_blank">haru橙子 发表于 2024-5-12 07:15</a>
+
+我也没在说后面装备成型之后战斗的问题啊。你贝塔出神加碾压是强压的怪物起不了身。前期能这么搞吗，而且 ...</blockquote>
+你往下看啊，又不是没有其他配装，再说我是来帮你解决你所谓不够爽的问题，又不是来汴京的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">咋就应激了呢
+
+*****
+
+####  haru橙子  
+##### 1609#       发表于 2024-5-12 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892453&amp;ptid=1978008" target="_blank">你不会没有吧 发表于 2024-5-12 07:28</a>
+
+你往下看啊，又不是没有其他配装，再说我是来帮你解决你所谓不够爽的问题，又不是来汴京的咋就应 ...</blockquote>
+你要觉得我是汴京何必回复我呢？你要是觉得下面发的用连锁和贝塔出神就是解决方案，那你也压根没看我说什么啊，又何必回复我呢。
+

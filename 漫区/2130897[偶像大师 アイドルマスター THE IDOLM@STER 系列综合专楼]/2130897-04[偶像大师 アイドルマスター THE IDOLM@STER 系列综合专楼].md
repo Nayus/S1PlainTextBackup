@@ -702,3 +702,16 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 
 单个MV一周一百万用脚想都不可能，二次元文化里的顶流管人们都不一定能做得到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 4514#       发表于 2024-5-12 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892412&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-5-12 06:55</a>
+
+单个MV一周一百万用脚想都不可能，二次元文化里的顶流管人们都不一定能做得到 ...</blockquote>
+星街すいせい的ビビデバ一天就能一百万
+
+pjsk也有一天一百万的记录 <blockquote>イベント終了後の6月18日21:15にYouTube上にプロセカ公式チャンネルよりニーゴ&amp;鏡音レン歌唱のフルバージョンが公開された。ニーゴ&amp;鏡音レン歌唱ver.は約1日1時間でYouTubeで100万再生を達成した。</blockquote>
+

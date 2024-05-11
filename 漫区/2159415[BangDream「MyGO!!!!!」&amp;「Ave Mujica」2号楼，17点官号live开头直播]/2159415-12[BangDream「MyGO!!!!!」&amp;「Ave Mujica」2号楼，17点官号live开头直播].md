@@ -5319,3 +5319,11 @@ QQ图片20240510170908.jpg
 
 https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 16757#       发表于 2024-5-11 17:24
+
+对初华的七弦有点兴趣，因为没弹过七弦，看了下oricon的文章好像有公布一些配置，感觉似乎跟量产版也没多大区别，应该不会到ESP那么贵吧，不知什么时候会开订，可能得鸡团动画开播后了？
+

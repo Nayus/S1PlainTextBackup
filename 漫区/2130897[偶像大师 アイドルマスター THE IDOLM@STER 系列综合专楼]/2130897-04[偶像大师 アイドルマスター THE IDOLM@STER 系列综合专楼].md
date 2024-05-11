@@ -658,3 +658,21 @@ yysy虾泥松这原本的更新频率确实也有点高，投入是真的多，�
 不如说作为信号灯的黄被超了还挺 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莉波反杀皮卡丘也是经典，虽然我觉得清夏的MV和曲子都爆了莉波
 
+
+*****
+
+####  黑翼死神  
+##### 4510#       发表于 2024-5-12 00:28
+
+有什麼企劃能在一星期破百萬，更不要說是沒出動畫的前提下 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斑驳的阴影  
+##### 4511#       发表于 2024-5-12 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64877338&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-5-10 21:10</a>
+
+说到底做的时候百动画有拉新的想法嘛</blockquote>
+这动画怎么拉人嘛，怎么看都是给多年土豆甚至格力老P看着乐的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

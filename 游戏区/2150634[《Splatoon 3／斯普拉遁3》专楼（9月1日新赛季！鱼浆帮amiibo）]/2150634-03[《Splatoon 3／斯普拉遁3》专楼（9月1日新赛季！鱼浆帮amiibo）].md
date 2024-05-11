@@ -13697,3 +13697,15 @@ w5 平潮
 
 团工轻松220下班，这个难度应该能混个银
 
+
+*****
+
+####  蓝色的眷念  
+##### 4333#       发表于 2024-5-11 18:32
+
+<img src="https://p.sda1.dev/17/e632d13d912fa67a43a3a4c9d13d49d7/CMP_20240511183115105.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/db0aad3b9679dcc175d9f4c65ea2a67c/CMP_20240511183115141.jpg" referrerpolicy="no-referrer">
+终于抽时间弄完了，伞面复活时间维持蓄力那几个真是折磨
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

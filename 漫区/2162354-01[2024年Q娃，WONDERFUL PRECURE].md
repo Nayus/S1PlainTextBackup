@@ -1747,3 +1747,11 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 否则就是初代妖精了</blockquote>
 小新现在的声优小林由美子配过奏她弟奏太
 
+
+*****
+
+####  HANDAIYV  
+##### 1451#       发表于 2024-5-11 20:51
+
+这画风感觉和小麦的智商很相符<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5481,3 +5481,11 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 以及没用的知识，炼金术最基准的颜色是红、黑、白，也有地方加入黄色（终点是黄金），说是象征物质变化的各种阶段，非常的mujica风。权威性没有图一乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16772#       发表于 2024-5-11 20:56
+
+这次还会不会是长谷川大介写呢（）
+

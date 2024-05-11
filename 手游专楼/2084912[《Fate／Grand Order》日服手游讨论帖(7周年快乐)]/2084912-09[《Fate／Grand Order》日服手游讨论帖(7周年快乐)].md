@@ -7999,3 +7999,14 @@ https://github.com/rayshift/translatefgo/
 
 不放心就去aniplex官网补充信息呗，但要求的都是日本地区线下寄件的信息<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12735#       发表于 2024-5-11 11:15
+
+下周三有生放送怎么没人说
+啊，原来没有新活动和新从者，那没事了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9983,3 +9983,14 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 不是，vestige哪里不好听了，我觉得meteor不如vestige一根
 
+
+*****
+
+####  飞霞精灵  
+##### 825#       发表于 2024-5-11 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881190&amp;ptid=2178694" target="_blank">黑夜守望者 发表于 2024-5-11 09:09</a>
+
+不是，vestige哪里不好听了，我觉得meteor不如vestige一根</blockquote>
+放机战里前奏太长<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

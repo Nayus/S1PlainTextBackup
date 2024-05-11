@@ -1680,3 +1680,15 @@ lilian：不要害怕，不要害怕
 
 「Wonderful Precure」超级合作！新之助和小白玩耍的时候遇到了彩羽和小麦。在大家在一起开心玩耍之时，噶路噶路突然出现。为了和变身为Precure的两人一起帮助噶路噶路，新之助和小白也变身为“キュアオシリィ/屁屁愈使/尻愈使/Cure Oshirii”和“キュアワタアメ/棉花糖愈使/绵饴愈使/Cure Wataame”……！！
 
+
+*****
+
+####  犬飼いろは  
+##### 1444#       发表于 2024-5-11 16:12
+
+土曜夕方『クレヨンしんちゃん』×日曜朝『わんだふるぷりきゅあ！』奇跡のコラボレーションが実現!!
+[https://www.tv-asahi.co.jp/shinchan/news/0247/index.html](https://www.tv-asahi.co.jp/shinchan/news/0247/index.html)
+<img src="https://p.sda1.dev/17/7178ed7763af7c03b5a63180a4e5bfa3/d1NfL9yfhF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/4a532e1a27165723d69e450f74a2ef48/rm23KN1tT5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/16bb4ec5997fbf9578f86c118594586d/XLeJlxubyj.jpg" referrerpolicy="no-referrer">
+

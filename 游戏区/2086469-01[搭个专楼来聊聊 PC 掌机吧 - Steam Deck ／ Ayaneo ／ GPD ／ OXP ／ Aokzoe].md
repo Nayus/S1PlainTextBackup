@@ -222,3 +222,14 @@ tomoon吧，翻墙啥都有了
 
 steamdeck支持FSR3吗
 
+
+*****
+
+####  bypass  
+##### 1201#         楼主| 发表于 2024-5-11 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64883918&amp;ptid=2086469" target="_blank">crosz1985 发表于 2024-5-11 13:10</a>
+
+steamdeck支持FSR3吗</blockquote>
+游戏自带的没问题，全局 FSR 3 目前还没有。
+

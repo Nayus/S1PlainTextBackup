@@ -1702,3 +1702,11 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  丹德里恩  
+##### 1446#       发表于 2024-5-11 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小新你难道背叛动感超人了吗
+

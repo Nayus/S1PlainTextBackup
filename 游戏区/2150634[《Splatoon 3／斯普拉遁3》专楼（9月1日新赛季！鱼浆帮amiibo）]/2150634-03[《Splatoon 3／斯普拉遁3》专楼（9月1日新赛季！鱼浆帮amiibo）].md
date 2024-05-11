@@ -13678,3 +13678,14 @@ w5 平潮
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DeltaStriker  
+##### 4331#       发表于 2024-5-11 16:53
+
+昨天刚从灵缇换uu 突然流畅得让我不太适应 因为网络卡顿被打死的情况没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+最近灵缇感觉真不行
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

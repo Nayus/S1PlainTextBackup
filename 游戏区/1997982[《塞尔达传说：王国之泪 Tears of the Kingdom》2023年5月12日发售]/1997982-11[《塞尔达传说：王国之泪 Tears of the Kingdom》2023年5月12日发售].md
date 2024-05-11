@@ -1600,3 +1600,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 —— 来自 Xiaomi 2203121C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  tachikoma27  
+##### 15773#       发表于 2024-5-11 13:47
+
+塞尔达当主角的呼声现在挺高的，跟碧琪完全不一样，如果像碧琪的衍生游戏那样用小品糊弄，纯纯的浪费一个再做高整个IP的声势。要做希望能做好做到惊喜的程度
+

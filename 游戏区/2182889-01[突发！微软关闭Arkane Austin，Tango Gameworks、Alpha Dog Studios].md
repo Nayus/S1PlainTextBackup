@@ -2621,3 +2621,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内对地刃好评的社区除了网抑云和豆瓣女玩家小组还有别的地吗（（
 
+
+*****
+
+####  ff2077  
+##### 266#       发表于 2024-5-12 18:16
+
+画面党应该也是好评吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2603,3 +2603,13 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 只不过当年你批评这个会被堵嘴骂冷无缺……
 
+
+*****
+
+####  plok201  
+##### 264#       发表于 2024-5-12 15:22
+
+地刃1所有称赞就没见过几个赞游戏性的，全是赞其他有的没的
+
+说要保持项目其实没啥问题，毕竟这些buff也算是集团的面子工程，谁能想到另一个面子工程HIFI都完了，要知道一年前可是微软高管亲自说hifi销售大成功的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2496,3 +2496,14 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 最难绷的一段，被问到为什么t ...</blockquote>
 感觉是GPT胡扯的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RTLordCaptain  
+##### 255#       发表于 2024-5-12 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892646&amp;ptid=2182889" target="_blank">iou90 发表于 2024-5-12 08:36</a>
+
+额这个 dina bass 是不是那个在 surface pro 3 发布会用 macbook 被 panos 现场输出的那位姐哈哈 跟巨硬 ...</blockquote>
+说的时候脸色确实挺难看，考虑到也不是被突击问道，可能公关部门对这个问题也没辙，出了车轱辘话也准备不出更好的回答了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

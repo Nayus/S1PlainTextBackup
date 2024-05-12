@@ -2591,3 +2591,15 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 现在整个组被架那儿了，危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  毛利提督  
+##### 263#       发表于 2024-5-12 15:09
+
+地狱之刃1其实还有个因素：这游戏有不小的政治正确的buff
+
+蹭疾病人士要素的噱头+故意给女主画丑妆容压脸模的颜值
+
+只不过当年你批评这个会被堵嘴骂冷无缺……
+

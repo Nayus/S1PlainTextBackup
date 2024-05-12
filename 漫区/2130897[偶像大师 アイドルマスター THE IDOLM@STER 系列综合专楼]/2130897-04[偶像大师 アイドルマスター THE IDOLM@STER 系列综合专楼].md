@@ -1036,3 +1036,14 @@ qa有个祖传的坏习惯就是镜头喜欢发癫，到处晃，我个人觉得
 
 說偶像類市場一直再縮不如說是南萬基本什麼都不做，當別人ip 一直賺錢又一直加大投入的時候南萬又做了什麼？
 
+
+*****
+
+####  Vacuolar  
+##### 4547#       发表于 2024-5-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64896675&amp;ptid=2130897" target="_blank">黑翼死神 发表于 2024-5-12 17:43</a>
+
+說偶像類市場一直再縮不如說是南萬基本什麼都不做，當別人ip 一直賺錢又一直加大投入的時候南萬又做了什麼 ...</blockquote>
+热血的办公室战争！
+

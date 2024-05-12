@@ -2517,3 +2517,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 有一股汉弗莱长难句的美</blockquote>
 更像是哈克接受采访说的驴头不对马嘴车轱辘话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 257#       发表于 2024-5-12 12:48
+
+我感觉机核有条评论可能说出了真理，就是微软上层的饭桶可能压根不知道是tango做了HIFI
+

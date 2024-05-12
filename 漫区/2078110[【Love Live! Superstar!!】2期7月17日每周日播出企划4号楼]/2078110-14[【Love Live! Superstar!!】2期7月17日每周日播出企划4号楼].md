@@ -2509,3 +2509,11 @@ live house去的动力都不大 真不想挤了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得说一下期待第三季
 
+
+*****
+
+####  cat1230  
+##### 20181#       发表于 2024-5-12 21:57
+
+直播间终于可以唱歌了么，虽然是清唱。下次直播能安排上么，今晚直播哼哼两句四谎OP弹幕明显增多了。
+

@@ -2469,3 +2469,30 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 最难绷的一段，被问到为什么t ...</blockquote>
 建议看下是，首相，这是标准的话术，别管别人问什么你只要回答你想回答的就行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 253#       发表于 2024-5-12 09:38
+
+哎 360独占的偶像大师…
+Live for you倒是没什么出奇的音游 独占就独占吧
+xenia加把劲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  bad_alloc  
+##### 254#       发表于 2024-5-12 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64891782&amp;ptid=2182889" target="_blank">RTLordCaptain 发表于 2024-5-12 01:28</a>
+
+xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
+
+结果说了一堆车轱辘话饱受恶评
+
+最难绷的一段，被问到为什么t ...</blockquote>
+感觉是GPT胡扯的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -834,3 +834,13 @@ pjsk也有一天一百万的记录</blockquote>
 我好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 务必去看一下
 
+
+*****
+
+####  洋葱葱  
+##### 4527#       发表于 2024-5-12 09:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说白了就是系列企划粉丝自带的流量嘛，大伙被代哥pua久了没见识过这种操作有点新鲜感罢了
+
+拿木口这种顶流管人团体对比，能刷出数据还不是因为本质是靠粉丝厨力的偶像团，真的以为是唱的好听/歌好听吗
+

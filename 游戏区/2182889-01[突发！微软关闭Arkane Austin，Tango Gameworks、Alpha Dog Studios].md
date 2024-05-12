@@ -2538,3 +2538,14 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 发售没多久 ...</blockquote>
 所以软软骂一骂本来就没问题啊
 
+
+*****
+
+####  ycjiang1337  
+##### 259#       发表于 2024-5-12 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64889864&amp;ptid=2182889" target="_blank">BK10 发表于 2024-5-11 22:12</a>
+
+有肯定有，但是这个年数基本排除多平台选手了，所以我觉得卖的不差，这是纯ps用户 ...</blockquote>
+除了年代原因之外，贼海2018年刚上市的时候灾难程度几乎不比现在的红霞岛差多少，纯粹就是靠后期更新救回来的。
+

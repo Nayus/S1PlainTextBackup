@@ -2428,3 +2428,16 @@ nako资源很好了，五老星就只有pay的资源差，老生常谈
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 20172#       发表于 2024-5-12 11:27
+
+<img src="https://p.sda1.dev/17/fb025c6ce654aae30fa7f12f2693e230/CMP_20240512112615695.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9bc95e2902a4d5318e37c3b2a81ccd63/CMP_20240512112616082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/7052f72690a0b2b5b15e427ea1a7fa52/CMP_20240512112616018.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/8746ffc3d14109c2e91ee669958987e1/CMP_20240512112615953.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

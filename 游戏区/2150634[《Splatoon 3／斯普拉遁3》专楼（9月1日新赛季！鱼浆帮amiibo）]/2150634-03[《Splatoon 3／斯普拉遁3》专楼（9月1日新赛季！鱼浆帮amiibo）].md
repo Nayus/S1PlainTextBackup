@@ -13794,3 +13794,15 @@ w5 平潮
 
 凭直觉打的话，蛋数肯定冲不了高分，哪怕是W2开泉这种，平时开泉60多已经很好了，80以上那估计是要用某些特定技巧的
 
+
+*****
+
+####  Ryuuseigun  
+##### 4342#       发表于 2024-5-12 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892464&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-5-12 07:34</a>
+有🍉吃？
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+昨天群里看的，翻了下确有其人在美服艾洛眼打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不想努力了<img src="https://p.sda1.dev/17/f08511c82e378aaa9b8ddf04e0eadfd1/CMP_20240512112204778.jpg" referrerpolicy="no-referrer">
+

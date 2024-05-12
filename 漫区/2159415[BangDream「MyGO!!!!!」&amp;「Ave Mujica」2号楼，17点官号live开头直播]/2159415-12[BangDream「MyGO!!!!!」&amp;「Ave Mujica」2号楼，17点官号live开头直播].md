@@ -5671,3 +5671,16 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 2024-5-12 11:02 上传
 
+
+*****
+
+####  hkguty  
+##### 16787#       发表于 2024-5-12 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64893256&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-5-12 10:30</a>
+
+草看错了不好意思（）
+
+初华那个的话，价格确实可能3W左右（）</blockquote>
+我也只是随便猜的，3W上下感觉可以冲一下，反正没玩过7弦，4W可能就算了，转买Ibanez了。我才发现睦的那把也是7弦，鸡团两把吉他都是7弦，感觉对于想入坑弹吉他的粉丝来说不是很友好啊。不过睦的那把，感觉是三把里跟动画相差最远的，样品贴面有点闪粉的效果，动画里感觉就是单纯的纯粉色。明明另外两把吉他和贝斯看起来跟动画没什么区别，不知为什么就她那把做得最不像
+

@@ -2629,3 +2629,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 画面党应该也是好评吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hanan1  
+##### 267#       发表于 2024-5-12 19:01
+
+只能说软软主机战争没赢过是有原因的
+

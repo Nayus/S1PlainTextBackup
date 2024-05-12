@@ -942,3 +942,44 @@ pjsk也有一天一百万的记录</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有没有可能，步子一步步来，先比旗下几个手游“现在水平”的流水高才有经济价值
 
+
+*****
+
+####  840266848  
+##### 4539#       发表于 2024-5-12 15:45
+
+<img src="https://img.saraba1st.com/forum/202405/12/154442beob4qeb5vxeh7os.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240512154424.png</strong> (134.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 15:44 上传
+
+<img src="https://img.saraba1st.com/forum/202405/12/154445ahke16k9eiipi3ii.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240512154435.png</strong> (130.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 15:44 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看起来这三人是同桌和前后桌
+
+<img src="https://img.saraba1st.com/forum/202405/12/154506eb9qeis9szb9o97h.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240512154100.png</strong> (197.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 15:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道还以为你们三个才是信号灯，话说这排列CP真是分明，首席你是不是太孤高了被霸凌孤立了
+
+*****
+
+####  游蜓  
+##### 4540#       发表于 2024-5-12 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灰已经是偶像手游最后的巅峰了，偶像类市场不是一直在缩吗
+

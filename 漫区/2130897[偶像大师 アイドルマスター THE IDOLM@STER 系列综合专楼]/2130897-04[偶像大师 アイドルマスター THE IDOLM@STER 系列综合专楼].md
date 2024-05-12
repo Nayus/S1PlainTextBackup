@@ -1047,3 +1047,11 @@ qa有个祖传的坏习惯就是镜头喜欢发癫，到处晃，我个人觉得
 說偶像類市場一直再縮不如說是南萬基本什麼都不做，當別人ip 一直賺錢又一直加大投入的時候南萬又做了什麼 ...</blockquote>
 热血的办公室战争！
 
+
+*****
+
+####  commie_neko  
+##### 4548#       发表于 2024-5-12 19:25
+
+cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不可能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

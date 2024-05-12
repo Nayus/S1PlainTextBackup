@@ -1015,3 +1015,16 @@ pjsk也有一天一百万的记录</blockquote>
 
 灰页游蹭了时代红利，你学能蹭什么红利，honeywork吗？
 
+
+*****
+
+####  ヒトニナル  
+##### 4545#       发表于 2024-5-12 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64894936&amp;ptid=2130897" target="_blank">abfk 发表于 2024-5-12 13:48</a>
+纯路人，scsp 3dmv也太烂了浪费这服设和模型，去学学烤吧编舞
+
+清夏3d不会也烂吧不安desu ...</blockquote>
+qa有个祖传的坏习惯就是镜头喜欢发癫，到处晃，我个人觉得能接受就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+它如果有直拍功能的话应该就完美了（我好像没看到有？）
+

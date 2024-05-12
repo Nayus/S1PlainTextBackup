@@ -1697,3 +1697,14 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 无字版<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 15782#       发表于 2024-5-12 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64881433&amp;ptid=1997982" target="_blank">佛罗伦萨 发表于 2024-5-11 09:32</a>
+
+感觉情理之中吧，就是不知道用哪一代的塞尔达</blockquote>
+当然是新的了
+

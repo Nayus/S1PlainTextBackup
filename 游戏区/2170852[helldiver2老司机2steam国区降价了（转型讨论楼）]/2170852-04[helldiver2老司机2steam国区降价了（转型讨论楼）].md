@@ -2206,3 +2206,14 @@ PSN服务占收入13%
 
 下午打了会新冲锋枪，感觉配盾牌类星体/EAT就可以在西线横着走了来自: iPhone客户端
 
+
+*****
+
+####  FLZB  
+##### 4643#       发表于 2024-5-12 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64899474&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-5-12 22:58</a>
+
+下午打了会新冲锋枪，感觉配盾牌类星体/EAT就可以在西线横着走了</blockquote>
+类星体玩不了一点，西线还是得配激光大炮或者反器材
+

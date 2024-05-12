@@ -13905,3 +13905,14 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 打不明白的工要尽早放弃！
 
+
+*****
+
+####  laosai13  
+##### 4352#       发表于 2024-5-13 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64893727&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-12 11:25</a>
+
+昨天群里看的，翻了下确有其人在美服艾洛眼打的什么通天代能直接干上3000分，42级三个武器甚至都 ...</blockquote>
+代练到这么高分之后还能打pvp吗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">国内能上3k的也寥寥无**就算是美服也不好打。美服高分段最大的问题确实是人少不好匹配。
+

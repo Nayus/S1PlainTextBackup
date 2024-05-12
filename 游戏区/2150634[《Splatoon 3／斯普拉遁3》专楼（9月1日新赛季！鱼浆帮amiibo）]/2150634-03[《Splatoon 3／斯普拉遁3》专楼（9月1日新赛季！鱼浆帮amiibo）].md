@@ -13806,3 +13806,15 @@ w5 平潮
 —— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
 昨天群里看的，翻了下确有其人在美服艾洛眼打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不想努力了<img src="https://p.sda1.dev/17/f08511c82e378aaa9b8ddf04e0eadfd1/CMP_20240512112204778.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 4343#       发表于 2024-5-12 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64893727&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-12 11:25</a>
+昨天群里看的，翻了下确有其人在美服艾洛眼打的什么通天代能直接干上3000分，42级三个武器甚至都 ...</blockquote>
+代完敢带上金x徽章一直打pvp我就服这人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

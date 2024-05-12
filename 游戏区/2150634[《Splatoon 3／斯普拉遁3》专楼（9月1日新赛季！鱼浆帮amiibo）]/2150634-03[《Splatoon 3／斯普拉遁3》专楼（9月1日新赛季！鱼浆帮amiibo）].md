@@ -13840,3 +13840,11 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 4346#       发表于 2024-5-12 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">视角是柔和的，但是队友也是要压力的
+

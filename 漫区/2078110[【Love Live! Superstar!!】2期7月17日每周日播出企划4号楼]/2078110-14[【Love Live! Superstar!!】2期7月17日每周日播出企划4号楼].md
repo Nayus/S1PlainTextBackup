@@ -2490,3 +2490,14 @@ nako资源很好了，五老星就只有pay的资源差，老生常谈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live house去的动力都不大 真不想挤了
 
+
+*****
+
+####  csolfans  
+##### 20179#       发表于 2024-5-12 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64898419&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2024-5-12 21:10</a>
+
+live house去的动力都不大 真不想挤了</blockquote>
+挤都不是问题。。。问题还是排队太痛苦
+

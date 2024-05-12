@@ -1672,3 +1672,12 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就塞尔达暖暖环游世界吧
 
+
+*****
+
+####  Piano-Forest  
+##### 15780#         楼主| 发表于 2024-5-12 11:06
+
+『ゼルダの伝説　ティアーズ オブ ザ キングダム』 あれから1年。
+<img src="https://p.sda1.dev/17/8729d1feccd473b80522c37d498f2b6f/20240512_110610.jpg" referrerpolicy="no-referrer">
+

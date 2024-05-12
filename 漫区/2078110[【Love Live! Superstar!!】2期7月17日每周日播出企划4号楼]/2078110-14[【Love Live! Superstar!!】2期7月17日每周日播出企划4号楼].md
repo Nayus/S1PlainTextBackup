@@ -2464,3 +2464,29 @@ nako资源很好了，五老星就只有pay的资源差，老生常谈
 
 其实场地很好猜，22号已经官宣的演出很多，mao瓦肆蜚声the boxx都没了，不是浅水湾楼下就还是摩登天空
 
+
+*****
+
+####  csolfans  
+##### 20176#       发表于 2024-5-12 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64898347&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-12 21:03</a>
+
+其实场地很好猜，22号已经官宣的演出很多，mao瓦肆蜚声the boxx都没了，不是浅水湾楼下就还是摩登天空，或 ...</blockquote>
+不要live house 不要live house<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stygian  
+##### 20177#       发表于 2024-5-12 21:10
+
+看horipro咋想呗，如果live house的话浅水湾楼下也可以，场地够大够宽舞台也够高，能看得清楚，摩登天空太窄了
+
+*****
+
+####  cybernetics31  
+##### 20178#       发表于 2024-5-12 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live house去的动力都不大 真不想挤了
+

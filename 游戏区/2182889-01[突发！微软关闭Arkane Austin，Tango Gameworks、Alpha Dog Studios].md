@@ -2507,3 +2507,13 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 额这个 dina bass 是不是那个在 surface pro 3 发布会用 macbook 被 panos 现场输出的那位姐哈哈 跟巨硬 ...</blockquote>
 说的时候脸色确实挺难看，考虑到也不是被突击问道，可能公关部门对这个问题也没辙，出了车轱辘话也准备不出更好的回答了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tureleona  
+##### 256#       发表于 2024-5-12 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892647&amp;ptid=2182889" target="_blank">ff2077 发表于 2024-5-12 08:36</a>
+有一股汉弗莱长难句的美</blockquote>
+更像是哈克接受采访说的驴头不对马嘴车轱辘话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

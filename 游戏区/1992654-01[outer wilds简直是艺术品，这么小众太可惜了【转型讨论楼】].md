@@ -30,3 +30,13 @@ echoes of the eye的最后主题，是本体主题outer wilds的小调remix版�
 今天把ost仔细听了几遍，结合一些评论，发现很多之前没注意的细节。比如太阳站的bgm是the search的镜像，后 ...</blockquote>
 今天才在啊b看到，原来在宇宙之眼真能找到鹿人的屏蔽器<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 1156#       发表于 2024-5-12 09:30
+
+Fez是一部探索世界及宇宙奥妙的解谜类游戏 你在游戏中扮演Gomez 在几乎无Game Over的Gameplay系统下收集散落在世界各地的可让你重新审视之前看到的东西的再语境化信息。并最终引来绝望性的瓶颈-Monolith（与制作奶度之奶的公司无关）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

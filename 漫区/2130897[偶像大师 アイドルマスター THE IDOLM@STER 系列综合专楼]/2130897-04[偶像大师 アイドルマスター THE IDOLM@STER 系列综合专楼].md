@@ -824,3 +824,13 @@ pjsk也有一天一百万的记录</blockquote>
 
 再说，要不是有爱马仕这牌子在，还能有现在这数据么？娘胎企划又有几个开局就爆的
 
+
+*****
+
+####  Achlys  
+##### 4526#       发表于 2024-5-12 09:33
+
+翻推看到说皮卡丘摆4的小短片，抬腿的时候，腿部3d模型大腿根的肉有明显晃动
+我好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+务必去看一下
+

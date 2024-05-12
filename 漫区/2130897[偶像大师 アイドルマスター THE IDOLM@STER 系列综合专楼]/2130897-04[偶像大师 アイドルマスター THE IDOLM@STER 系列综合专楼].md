@@ -735,3 +735,18 @@ pjsk也有一天一百万的记录</blockquote>
 
 说到底学马仕也是个新企划，靠爱马仕这个牌子能吸引一些流量，但要一个新企划，上来就能打现在的顶流，也太难为人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kirenyama  
+##### 4517#       发表于 2024-5-12 07:56
+
+印象中烤一开始也挺糊的，后来不知道怎么突然就火起来了…
+
+*****
+
+####  ViviR  
+##### 4518#       发表于 2024-5-12 07:57
+
+学马仕要是有哪个mv播放量一周超100w我只会害怕好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

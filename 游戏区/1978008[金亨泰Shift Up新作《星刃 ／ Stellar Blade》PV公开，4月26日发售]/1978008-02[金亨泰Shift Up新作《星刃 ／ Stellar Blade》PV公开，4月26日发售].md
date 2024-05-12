@@ -1468,3 +1468,14 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 你往下看啊，又不是没有其他配装，再说我是来帮你解决你所谓不够爽的问题，又不是来汴京的咋就应 ...</blockquote>
 你要觉得我是汴京何必回复我呢？你要是觉得下面发的用连锁和贝塔出神就是解决方案，那你也压根没看我说什么啊，又何必回复我呢。
 
+
+*****
+
+####  霖岚_  
+##### 1610#       发表于 2024-5-12 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">炸完xion后再做的钓鱼任务才知道废土的揭示板不能接任务……因为最后的神奇鱼饵任务接不了搞的没能一周目全支线达成，而且还少了件衣服，是不是二周目即使鱼图鉴全收集也只能拿另一套配色的服装了
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">还有黄连杂货店原本是在哪啊，先是在别人的服装攻略里面看到，但印象之前也没看到有相关的支线，炸完xion才突然冒出来……
+
+—— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -789,3 +789,15 @@ pjsk也有一天一百万的记录</blockquote>
 
 问就是群众喜欢我算老几
 
+
+*****
+
+####  klushyo  
+##### 4523#       发表于 2024-5-12 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892724&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-12 08:54</a>
+这些个管人唱歌我觉得难听的要命
+
+问就是群众喜欢我算老几</blockquote>
+问题在于，管人是先有粉丝后唱歌，而且一个火的管人脚下有100个凉凉的。你学马游戏都没开服，直接上歌还这么难听，是管人早就凉了
+

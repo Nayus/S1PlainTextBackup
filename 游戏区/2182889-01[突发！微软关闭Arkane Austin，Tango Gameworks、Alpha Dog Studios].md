@@ -2613,3 +2613,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 说要保持项目其实没啥问题，毕竟这些buff也算是集团的面子工程，谁能想到另一个面子工程HIFI都完了，要知道一年前可是微软高管亲自说hifi销售大成功的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 265#       发表于 2024-5-12 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内对地刃好评的社区除了网抑云和豆瓣女玩家小组还有别的地吗（（
+

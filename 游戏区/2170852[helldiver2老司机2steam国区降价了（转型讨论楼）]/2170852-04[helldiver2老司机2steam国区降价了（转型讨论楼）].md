@@ -2258,3 +2258,11 @@ PSN服务占收入13%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最近玩的少的原因是出差的地方网络不稳定，经常打着打着就掉线了，这游戏又死活不做正经的重连功能
 
+
+*****
+
+####  FLZB  
+##### 4647#       发表于 2024-5-13 00:42
+
+这两天西线玩了下双狙配置感觉很不错，大勤勉秒杀小虾米和蹂躏者，反器材针对各种炮台和重型单位，两把枪都是200米镜，看到巡逻队直接远远的开狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

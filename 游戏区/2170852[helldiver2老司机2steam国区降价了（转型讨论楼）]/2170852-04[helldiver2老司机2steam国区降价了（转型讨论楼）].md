@@ -2250,3 +2250,11 @@ PSN服务占收入13%
 当然我岩神也就玩了十个小时吧
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  白昼梦  
+##### 4646#       发表于 2024-5-13 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我最近玩的少的原因是出差的地方网络不稳定，经常打着打着就掉线了，这游戏又死活不做正经的重连功能
+

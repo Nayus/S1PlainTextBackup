@@ -5610,3 +5610,20 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 @gumoyu
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16783#       发表于 2024-5-12 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892038&amp;ptid=2159415" target="_blank">hkguty 发表于 2024-5-12 02:16</a>
+
+我的想法是如果买就买斯科特标的，先看看开订什么价格，如果太贵就算了。 ...</blockquote>
+睦那把没记错是EX系列，也不便宜（）
+
+官网上的价格是
+
+660,000 yen (in TAX)　600,000 yen (without TAX)
+
+我个人猜测接近4W左右（）
+

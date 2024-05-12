@@ -2421,3 +2421,51 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 说明早就想关了，hifi比现在成功三倍，也得关。
 
+
+*****
+
+####  iou90  
+##### 249#       发表于 2024-5-12 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64891782&amp;ptid=2182889" target="_blank">RTLordCaptain 发表于 2024-5-12 01:28</a>
+xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
+
+结果说了一堆车轱辘话饱受恶评
+
+最难绷的一段，被问到为什么t ...</blockquote>
+额这个 dina bass 是不是那个在 surface pro 3 发布会用 macbook 被 panos 现场输出的那位姐哈哈 跟巨硬新闻跟了几十年了也快
+
+bond 出来就是为了让人集火的 p3 怎么不出来啊？架空？
+4分钟开始也可能是拐着弯说以后标准变了？得来钱？总之她脸色可真难看
+
+*****
+
+####  ff2077  
+##### 250#       发表于 2024-5-12 08:36
+
+有一股汉弗莱长难句的美
+
+*****
+
+####  iou90  
+##### 251#       发表于 2024-5-12 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892646&amp;ptid=2182889" target="_blank">iou90 发表于 2024-5-12 08:36</a>
+额这个 dina bass 是不是那个在 surface pro 3 发布会用 macbook 被 panos 现场输出的那位姐哈哈 跟巨硬 ...</blockquote>
+意思是 bond p3 都被架空？
+
+
+*****
+
+####  Mr.Hopp  
+##### 252#       发表于 2024-5-12 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64891782&amp;ptid=2182889" target="_blank">RTLordCaptain 发表于 2024-5-12 01:28</a>
+
+xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
+
+结果说了一堆车轱辘话饱受恶评
+
+最难绷的一段，被问到为什么t ...</blockquote>
+建议看下是，首相，这是标准的话术，别管别人问什么你只要回答你想回答的就行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

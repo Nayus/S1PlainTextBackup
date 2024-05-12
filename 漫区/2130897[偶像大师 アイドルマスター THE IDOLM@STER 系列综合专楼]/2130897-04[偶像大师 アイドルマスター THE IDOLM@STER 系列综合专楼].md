@@ -771,3 +771,11 @@ pjsk也有一天一百万的记录</blockquote>
 
 百动画怎么就不能拉新了，推上看到好多看了动画入坑开始玩土豆的
 
+
+*****
+
+####  Porsche  
+##### 4521#       发表于 2024-5-12 08:44
+
+当你有个牛逼的mv制作团队和几十w的脑残粉，也能投稿一周破千万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算歌烂的不行，唱的也垃圾
+

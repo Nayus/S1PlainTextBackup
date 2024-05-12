@@ -1681,3 +1681,19 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 『ゼルダの伝説　ティアーズ オブ ザ キングダム』 あれから1年。
 <img src="https://p.sda1.dev/17/8729d1feccd473b80522c37d498f2b6f/20240512_110610.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 15781#       发表于 2024-5-12 15:57
+
+<img src="https://img.saraba1st.com/forum/202405/12/155724qx77bclanmzttxc7.jpg" referrerpolicy="no-referrer">
+
+<strong>王泪1周年贺图.jpg</strong> (463.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 15:57 上传
+
+无字版<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

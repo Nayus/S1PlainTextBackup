@@ -983,3 +983,11 @@ pjsk也有一天一百万的记录</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灰已经是偶像手游最后的巅峰了，偶像类市场不是一直在缩吗
 
+
+*****
+
+####  田所あずさ  
+##### 4541#       发表于 2024-5-12 15:57
+
+复刻灰你自己觉得可能吗？能和土豆这种结晶粉聚集地比划比划差不了
+

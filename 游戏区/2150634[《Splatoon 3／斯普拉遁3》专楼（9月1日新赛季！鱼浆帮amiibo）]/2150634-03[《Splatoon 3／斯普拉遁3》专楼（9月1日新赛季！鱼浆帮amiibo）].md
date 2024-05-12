@@ -13848,3 +13848,22 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">视角是柔和的，但是队友也是要压力的
 
+
+*****
+
+####  KBAC  
+##### 4347#       发表于 2024-5-12 21:04
+
+<img src="https://img.saraba1st.com/forum/202405/12/204234g5zohx2xpot5x7x2.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9288.jpg</strong> (138.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-12 20:42 上传
+
+银喷，爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（常年只打真格开放，感觉非晋级赛的S段压力比开放低多了，开放鱼龙混杂是最难受的）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -750,3 +750,16 @@ pjsk也有一天一百万的记录</blockquote>
 
 学马仕要是有哪个mv播放量一周超100w我只会害怕好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 4519#       发表于 2024-5-12 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892490&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-5-12 07:45</a>
+个例有意义吗…更别提ビビデバ还是首刷新纪录的歌。
+学马仕这还没开服呢，娘胎里就得比肩顶流？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只是反驳二次元顶流管人都不一定能做到单个MV一周百万这句话罢了
+至于你学马仕第一支MV10天61w的播放我觉得成绩是还行的，而且看起来没有注水，还能跟esm打个来回呢
+看看游戏内3D MV公开后会是什么成绩
+

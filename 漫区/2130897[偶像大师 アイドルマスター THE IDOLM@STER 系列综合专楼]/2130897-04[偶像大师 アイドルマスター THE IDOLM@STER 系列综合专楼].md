@@ -872,3 +872,13 @@ pjsk也有一天一百万的记录</blockquote>
 
 看sc动画ai台长的分析，看到live对称分镜真的快笑死了
 
+
+*****
+
+####  ヒトニナル  
+##### 4531#       发表于 2024-5-12 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64894100&amp;ptid=2130897" target="_blank">黑翼死神 发表于 2024-5-12 12:06</a>
+愛馬仕什麼時候能跟pjsk和星街比了 ，V家一直是頂流不說，管人早幾年就超愛馬仕很多了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要不仔细看我回的什么，“顶流管人都不一定能做到一周一百万”，没谈爱马仕也不想拿爱马仕去比好吧
+

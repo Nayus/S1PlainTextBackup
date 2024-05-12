@@ -1790,3 +1790,19 @@ q娃历史上的第三位男q是来自春日部的5岁小孩野原新之助<img 
 
 第 15 集的 TVer 源（含日字）：magnet:?xt=urn:btih:a70ab5e59b8867064204ec3c4111f384d347fc40
 
+
+*****
+
+####  上坂莲华  
+##### 1456#       发表于 2024-5-12 12:19
+
+ 本帖最后由 上坂莲华 于 2024-5-12 12:21 编辑 
+
+你们这大招怎么能打友军的，你们这什么大招啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊，自适应恐高症是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外这羊随手就能掏出个奇妙小工具特攻，不是比智慧袋暖男有用多了，干脆常驻得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大妈别搁那嗯卖你暖男CP了，那么多糖还要刻意分着吃的画面你自己看着不尬么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8065,3 +8065,11 @@ https://github.com/rayshift/translatefgo/
 
 有没有类似别的游戏schale.gg那种的，，
 
+
+*****
+
+####  AbigailWilliams  
+##### 12742#       发表于 2024-5-12 20:19
+
+mooncell，chaldea网页端也能用
+

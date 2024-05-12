@@ -844,3 +844,23 @@ pjsk也有一天一百万的记录</blockquote>
 
 拿木口这种顶流管人团体对比，能刷出数据还不是因为本质是靠粉丝厨力的偶像团，真的以为是唱的好听/歌好听吗
 
+
+*****
+
+####  黑翼死神  
+##### 4528#       发表于 2024-5-12 12:03
+
+真有人以為愛馬仕有几十w的脑残粉? 有十萬都多了吧，真以為推特追隨數是是粉絲嗎 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑翼死神  
+##### 4529#       发表于 2024-5-12 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892460&amp;ptid=2130897" target="_blank">ヒトニナル 发表于 2024-5-12 07:33</a>
+
+星街すいせい的ビビデバ一天就能一百万
+
+pjsk也有一天一百万的记录</blockquote>
+愛馬仕什麼時候能跟pjsk和星街比了 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，V家一直是頂流不說，管人早幾年就超愛馬仕很多了吧
+

@@ -13818,3 +13818,13 @@ w5 平潮
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  罗克萨斯  
+##### 4344#       发表于 2024-5-12 12:01
+
+我上次遇到的 KD 7-13 的日区银X不会也是代打的吧，不过他有两个银X，代打两个赛季嘛？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

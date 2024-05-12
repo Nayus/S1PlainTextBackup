@@ -13897,3 +13897,11 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 被团工气晕，第一次打到出现无力的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junchoon  
+##### 4351#       发表于 2024-5-13 00:11
+
+打不明白的工要尽早放弃！
+

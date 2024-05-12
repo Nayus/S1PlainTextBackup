@@ -5627,3 +5627,31 @@ https://x.com/izami_md/status/1788027449017803178<img src="https://static.saraba
 
 我个人猜测接近4W左右（）
 
+
+*****
+
+####  hkguty  
+##### 16784#       发表于 2024-5-12 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64893132&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-5-12 10:11</a>
+
+睦那把没记错是EX系列，也不便宜（）
+
+官网上的价格是
+
+660,000 yen (in TAX)　600,000 yen (without TAX)</blockquote>
+你是指那把粉红色的双双tele吗，那把感觉太怪了，而且样品看起来也不咋地，个人不太感兴趣，不过斯科特之前给凛として時雨也出了把tele，卖得不算贵
+
+
+*****
+
+####  SakuraのOrigami  
+##### 16785#       发表于 2024-5-12 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64893209&amp;ptid=2159415" target="_blank">hkguty 发表于 2024-5-12 10:24</a>
+
+你是指那把粉红色的双双tele吗，那把感觉太怪了，而且样品看起来也不咋地，个人不太感兴趣，不过斯科特之 ...</blockquote>
+草看错了不好意思（）
+
+初华那个的话，价格确实可能3W左右（）
+

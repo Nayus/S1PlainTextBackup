@@ -8083,3 +8083,13 @@ mooncell，chaldea网页端也能用
 
 举例来说，新限定五星礼装，和橙子一起泡温泉的使魔，这个网站就有链接标注（[https://www.wicurio.com/grand_order/index.php?人形師の休息](https://www.wicurio.com/grand_order/index.php?%E4%BA%BA%E5%BD%A2%E5%B8%AB%E3%81%AE%E4%BC%91%E6%81%AF)）。
 
+
+*****
+
+####  壳壳牛  
+##### 12744#       发表于 2024-5-12 22:14
+
+青子花了700石...有珠不到1单出了...
+
+也是一种平衡吧...
+

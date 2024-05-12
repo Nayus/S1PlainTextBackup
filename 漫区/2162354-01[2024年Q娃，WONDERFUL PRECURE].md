@@ -1826,3 +1826,17 @@ mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊，自�
 mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊 ...</blockquote>
 那毕竟是我抱着的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1459#       发表于 2024-5-12 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64894199&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-5-12 12:19</a>
+你们这大招怎么能打友军的，你们这什么大招啊
+
+mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊 ...</blockquote>
+被抱的时候注意力全在小雪身上当然不怕咯<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

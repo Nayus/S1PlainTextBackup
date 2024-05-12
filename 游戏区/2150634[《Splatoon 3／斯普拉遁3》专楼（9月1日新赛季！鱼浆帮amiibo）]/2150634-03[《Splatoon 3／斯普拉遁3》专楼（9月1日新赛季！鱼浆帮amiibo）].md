@@ -13916,3 +13916,16 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 昨天群里看的，翻了下确有其人在美服艾洛眼打的什么通天代能直接干上3000分，42级三个武器甚至都 ...</blockquote>
 代练到这么高分之后还能打pvp吗<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">国内能上3k的也寥寥无**就算是美服也不好打。美服高分段最大的问题确实是人少不好匹配。
 
+
+*****
+
+####  laosai13  
+##### 4353#       发表于 2024-5-13 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64894318&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-5-12 12:36</a>
+
+偶然看到的一个玩小绿的职业玩家，鱼虎XP和奶啤差不多，不过转视角要比奶啤柔和很多
+
+https://www.youtube. ...</blockquote>
+hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛。
+

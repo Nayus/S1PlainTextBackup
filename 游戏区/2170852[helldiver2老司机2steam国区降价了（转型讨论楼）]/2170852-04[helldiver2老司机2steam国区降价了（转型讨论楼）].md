@@ -2314,3 +2314,11 @@ PSN服务占收入13%
 
 单人特意观察了一下算是看懂为什么现在强袭这么恶心了，不光只是转弯半径小，它有时甚至不演了直接预判你的移动方向然后加大转弯角度冲过来，这种情况下无论你怎么跑它能保持锁定你在车头位置，横向冲刺和飞扑通通没用基本必被创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4653#       发表于 2024-5-13 03:45
+
+另外鬼佬新测试4人以下不光是巡逻队数量改了，甚至巡逻队的生成速率也大幅提升了，箭畜是真的想要solo党死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

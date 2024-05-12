@@ -2525,3 +2525,16 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 我感觉机核有条评论可能说出了真理，就是微软上层的饭桶可能压根不知道是tango做了HIFI
 
+
+*****
+
+####  ycjiang1337  
+##### 258#       发表于 2024-5-12 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64861549&amp;ptid=2182889" target="_blank">Todds_lies 发表于 2024-5-9 12:48</a>
+
+毛？怎么感觉突然一个帽子扣过来了？我三家游戏都玩，三家公司游戏部门都在天上被我放飞中。
+
+发售没多久 ...</blockquote>
+所以软软骂一骂本来就没问题啊
+

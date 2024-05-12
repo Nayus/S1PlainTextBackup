@@ -1806,3 +1806,23 @@ mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊，自�
 
 大妈别搁那嗯卖你暖男CP了，那么多糖还要刻意分着吃的画面你自己看着不尬么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1457#       发表于 2024-5-12 13:04
+
+这些人竟然当着我的面拐走茉优，真是不可饶恕<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猫屋敷ゆき  
+##### 1458#       发表于 2024-5-12 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64894199&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-5-12 12:19</a>
+
+你们这大招怎么能打友军的，你们这什么大招啊
+
+mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊 ...</blockquote>
+那毕竟是我抱着的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

@@ -13867,3 +13867,17 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Niangkouqiang  
+##### 4348#       发表于 2024-5-12 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64892171&amp;ptid=2150634" target="_blank">carroy 发表于 2024-5-12 03:13</a>
+团工打野就是被发一把消防栓陪一群低段的坐牢是吧
+
+打了三把没一把过w3
+
+？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 以为是我自己在发言，真是打得没脾气了 
+

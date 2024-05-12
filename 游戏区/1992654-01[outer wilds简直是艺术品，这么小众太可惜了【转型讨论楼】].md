@@ -20,3 +20,13 @@ echoes of the eye的最后主题，是本体主题outer wilds的小调remix版�
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  渺晓  
+##### 1155#       发表于 2024-5-12 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64891740&amp;ptid=1992654" target="_blank">martinium 发表于 2024-5-12 01:24</a>
+今天把ost仔细听了几遍，结合一些评论，发现很多之前没注意的细节。比如太阳站的bgm是the search的镜像，后 ...</blockquote>
+今天才在啊b看到，原来在宇宙之眼真能找到鹿人的屏蔽器<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

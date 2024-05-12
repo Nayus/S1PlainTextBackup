@@ -2239,3 +2239,14 @@ PSN服务占收入13%
 
 然后游戏就TM的崩溃了.....<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ashice  
+##### 4645#       发表于 2024-5-13 00:16
+
+说实话啊。。。虽然都在喊什么岩神岩神的，但是深岩银河真的比冻肉模拟器要差不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+可惜制作组不做人
+当然我岩神也就玩了十个小时吧
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2173,3 +2173,15 @@ PSN服务占收入13%
 这枪尴尬在于，它能两枪爆头带走蹂躏者，所以通常肯定是照头打，但如果马了的话蹂躏者躯干又打不穿，所以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">45发弹容，能两枪爆头送走蹂躏者，还能停电锯人，这不是全方位完爆防卫者？这下p2w了
 
+
+*****
+
+####  ddwhzh  
+##### 4640#       发表于 2024-5-12 09:09
+
+ 本帖最后由 ddwhzh 于 2024-5-12 09:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64890502&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-11 23:32</a>
+
+这枪尴尬在于，它能两枪爆头带走蹂躏者，所以通常肯定是照头打，但如果马了的话蹂躏者躯干又打不穿，所以 ...</blockquote>
+你要全自动一梭子一个蹂躏那确实不好用，但半自动两下一个头，一梭子打一堆蹂躏就是神中神，有了盾牌和他完全不怕机枪蹂躏。比较搞笑一点，普通蹂躏因为挂件太少不容易穿更难打了，幸好高难不多
+

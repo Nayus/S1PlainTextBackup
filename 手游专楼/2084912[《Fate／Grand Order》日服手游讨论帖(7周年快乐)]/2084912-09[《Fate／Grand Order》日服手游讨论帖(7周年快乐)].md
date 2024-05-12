@@ -8047,3 +8047,11 @@ https://github.com/rayshift/translatefgo/
 
 20连有珠池三个芙兰……这也没up啊
 
+
+*****
+
+####  七千星  
+##### 12740#       发表于 2024-5-12 09:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连着5天用1石头单抽,终于在石头快没的时候出有珠了,圆满了
+

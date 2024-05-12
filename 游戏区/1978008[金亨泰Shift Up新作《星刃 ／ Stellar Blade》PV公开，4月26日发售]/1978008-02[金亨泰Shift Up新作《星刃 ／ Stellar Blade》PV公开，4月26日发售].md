@@ -1479,3 +1479,16 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 —— 来自 meizu MEIZU 20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  rainsheep  
+##### 1611#       发表于 2024-5-13 06:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64900007&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-5-12 23:54</a>
+炸完xion后再做的钓鱼任务才知道废土的揭示板不能接任务……因为最后的神奇鱼饵任务接不了搞的没能 ...</blockquote>
+钓鱼只有一件，二周目没换色，而且你一周目没收集的服装二周目也只会给你原版，有了原版再开箱子才有换色。
+黄连杂货店，是那个找女儿和佛像的支线，完成了解锁商店，就在xion正门进去右手边。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -13828,3 +13828,15 @@ w5 平潮
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4345#       发表于 2024-5-12 12:36
+
+偶然看到的一个玩小绿的职业玩家，鱼虎XP和奶啤差不多，不过转视角要比奶啤柔和很多
+
+https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2266,3 +2266,24 @@ PSN服务占收入13%
 
 这两天西线玩了下双狙配置感觉很不错，大勤勉秒杀小虾米和蹂躏者，反器材针对各种炮台和重型单位，两把枪都是200米镜，看到巡逻队直接远远的开狙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4648#       发表于 2024-5-13 00:46
+
+ 本帖最后由 ravend233 于 2024-5-13 00:49 编辑 
+
+从上次更新加强大勤勉后就一直双狙补给背包，非常好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大勤勉清杂兵手感比主宰舒服多了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ddwhzh  
+##### 4649#       发表于 2024-5-13 00:51
+
+感觉反坦克地雷又解锁不了了。箭头策划是不是低能，连续多少个任务都完成不了，我看箭头主线以后怎么推进
+

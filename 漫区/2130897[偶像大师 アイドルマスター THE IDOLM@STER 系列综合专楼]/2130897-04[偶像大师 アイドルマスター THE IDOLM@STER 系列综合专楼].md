@@ -1082,3 +1082,11 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 反正安藤周记已经出手了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 4552#       发表于 2024-5-12 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱马仕这种活了20年的古董IP还指望逆流而上重回巅峰，这种期望就没必要，最后平稳运营出百那种稳定的万把人死忠在我眼里都算可以了，游戏别像SCSP那样光速入土。当然最怕的还是代便搞赌国运把其他几家还有点生命力的抬走。
+

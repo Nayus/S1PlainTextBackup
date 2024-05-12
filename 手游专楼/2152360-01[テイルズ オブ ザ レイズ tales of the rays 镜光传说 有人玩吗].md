@@ -584,3 +584,13 @@ hp翻倍、限制时间、限制攻击術限制魔镜，boss攻击还高的要�
 活动21日结束，每日免费十连30日结束</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">blue earth，全外传co，新池免费十连，你游真的一股子要寿终正寝的味道了
 
+
+*****
+
+####  kurosophie  
+##### 66#       发表于 2024-5-12 23:11
+
+<blockquote>法拉 发表于 2024-5-10 20:50
+blue earth，全外传co，新池免费十连，你游真的一股子要寿终正寝的味道了 ...</blockquote>
+下周应该就知道了，有新活动一般会提前2-3天预热
+

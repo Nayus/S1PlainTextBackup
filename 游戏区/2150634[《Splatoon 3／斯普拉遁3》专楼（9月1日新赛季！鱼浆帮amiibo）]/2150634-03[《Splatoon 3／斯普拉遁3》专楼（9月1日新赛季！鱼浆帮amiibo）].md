@@ -13889,3 +13889,11 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 
 这次团队真是最简单的地图搞出个最难的剧本，全是无情的看高手技巧233
 
+
+*****
+
+####  screeper  
+##### 4350#       发表于 2024-5-12 23:08
+
+被团工气晕，第一次打到出现无力的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

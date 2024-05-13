@@ -10369,3 +10369,34 @@ vestige没露面是有点可惜。
 这个就是下个礼拜的特典，不出意外的话，周五网上网上就会有的卖了</blockquote>
 我想要的是原图电子格式那种。
 
+
+*****
+
+####  ShyCrazydog  
+##### 861#       发表于 2024-5-13 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64906417&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-5-13 15:56</a>
+仔细看，基拉拉克丝后边的别墅，门口站着的，好像是基拉的养父母？所以养父母都听到了？？？
+
+然后，阿格尼 ...</blockquote>
+迪亚哥不也是判逃回来就换身衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。按ft的说法是鸟月考虑到自己以前被议长忽悠瘸当枪的经历所以不想太责备她
+
+*****
+
+####  ShyCrazydog  
+##### 862#       发表于 2024-5-13 17:37
+
+而且最后战场上伊扎克和迪亚哥也只是让政变的扎夫特士兵回原部队报道。不是国防部长死脑筋，小伊甚至不想杀他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  凤舞夜月  
+##### 863#       发表于 2024-5-13 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907393&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-13 17:35</a>
+
+迪亚哥不也是判逃回来就换身衣服。按ft的说法是鸟月考虑到自己以前被议长忽悠瘸当枪的经历所以不 ...</blockquote>
+这只能说不愧是小日子的思考，鞠躬90°没出事就过了。。。
+
+这ZAFT当兵就像玩一样。
+

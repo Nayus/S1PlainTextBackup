@@ -1587,3 +1587,35 @@ IMG_3438.jpeg
 
 手球在随口嘴臭之后有内心os演出反省，还是被收手机变脸的小屁孩和吃货，逼格是一点都不剩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  麻巳巳  
+##### 4606#       发表于 2024-5-13 17:29
+
+手毬的傲沉还是挺感兴趣的，四格漫画都铺垫过一次
+
+
+*****
+
+####  zhwpjy  
+##### 4607#       发表于 2024-5-13 17:36
+
+<img src="https://img.saraba1st.com/forum/202405/13/173613y5vh51q5fufhkqfe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4945.jpeg</strong> (129.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 17:36 上传
+
+悲报，确实是4凸+同名突破，电击online里提及了
+
+同じアイドル複数枚入手すると才能開花(凸)ができる
+
+https://dengekionline.com/article/202405/4367
+
+左上有四朵花，估计就是突破次数了
+
+https://dengekionline.com/article/images/202405/4367/25724
+

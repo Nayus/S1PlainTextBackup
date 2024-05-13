@@ -2384,3 +2384,11 @@ biQk74-1cwrZjT3cSqe-5f.png
 
 <img src="https://img.saraba1st.com/forum/202405/13/112838m3ts5csart137t9b.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暴走的包子  
+##### 4658#       发表于 2024-5-13 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是早实锤索尼搞的么
+

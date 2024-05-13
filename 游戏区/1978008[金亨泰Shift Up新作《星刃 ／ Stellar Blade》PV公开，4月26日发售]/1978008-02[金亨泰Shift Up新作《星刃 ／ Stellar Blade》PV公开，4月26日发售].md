@@ -1576,3 +1576,23 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 - 首日补丁服装设计符合预期结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 1620#       发表于 2024-5-13 14:57
+
+ 本帖最后由 宛若青空 于 2024-5-13 14:59 编辑 
+
+- 首日补丁服装设计符合预期结果
+
+这是上个月发售日的内容？看来打死不会改回去了，还想着继续做主机游戏，看你下次能跌多少销量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Wounds  
+##### 1621#       发表于 2024-5-13 15:02
+
+别的不说假日兔那个丑飞了的黑布也符合预期吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

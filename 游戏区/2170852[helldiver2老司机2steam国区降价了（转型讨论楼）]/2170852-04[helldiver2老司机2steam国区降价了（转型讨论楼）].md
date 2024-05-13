@@ -2392,3 +2392,21 @@ biQk74-1cwrZjT3cSqe-5f.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是早实锤索尼搞的么
 
+
+*****
+
+####  stormquantage  
+##### 4659#       发表于 2024-5-13 21:58
+
+昨天和哥们儿难9四排。
+
+第一局增援不能呼叫，四个人全死没人下来。重开，换房主。
+
+第二局，全程卡全程捡东西捡不动，打虫子没事儿。PS5队友疯狂卡，掉线两次，每掉线我们就不卡。
+
+第三局，地质任务探测器砸地上不升起来，强退。
+
+第四局，炸巢任务打巢超级延迟，撤离的时候鹈鹕降落在泰坦尸体上面直接掉入地核。全员懵逼。两分钟后撤离信标点刷新了！<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+我只能说别出你的战令了，赶紧搞健康行动修游戏吧
+

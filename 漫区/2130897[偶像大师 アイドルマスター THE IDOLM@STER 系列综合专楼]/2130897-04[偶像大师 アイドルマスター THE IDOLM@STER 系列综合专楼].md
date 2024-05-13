@@ -1426,3 +1426,11 @@ ip的照片=坏文明
 
 自取学生证太傻逼了 就不能来个身份证明吗 给倒勾爽完了
 
+
+*****
+
+####  koodooliz  
+##### 4590#       发表于 2024-5-13 14:24
+
+haha，别忘了SC<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

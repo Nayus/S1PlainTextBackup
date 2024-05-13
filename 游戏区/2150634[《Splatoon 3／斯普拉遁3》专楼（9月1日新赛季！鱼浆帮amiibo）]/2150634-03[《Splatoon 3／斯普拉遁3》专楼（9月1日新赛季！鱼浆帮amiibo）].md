@@ -13990,3 +13990,11 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 我还特意去找了小红书这人没搜到，wb搜水印看了一眼后续，找代打这人说自己只打涂地那为啥要花钱 ...</blockquote>
 喷喷玩的人也不多吧这种超级高分感觉没什么真正的社交炫耀意义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总之感觉没什么意义
 
+
+*****
+
+####  幽香  
+##### 4360#       发表于 2024-5-13 13:15
+
+泥锅特色就完事了还能咋样，从网游时期遗留至今的糟粕罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

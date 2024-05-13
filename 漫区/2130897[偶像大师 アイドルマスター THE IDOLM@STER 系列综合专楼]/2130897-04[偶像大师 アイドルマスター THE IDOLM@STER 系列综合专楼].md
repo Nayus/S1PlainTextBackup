@@ -1345,3 +1345,29 @@ ip的照片=坏文明
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  rgauss  
+##### 4581#       发表于 2024-5-13 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱歌分三挡 最差的副歌没唱完
+就结束 中间唱了副歌没唱完 最好的是大舞台上唱（广p说打到大舞台10小时左右）
+
+*****
+
+####  北条早苗  
+##### 4582#       发表于 2024-5-13 13:14
+
+还以为毛球是正统苍，没想到这么弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 4583#       发表于 2024-5-13 13:22
+
+<blockquote>北条早苗 发表于 2024-5-13 13:14
+还以为毛球是正统苍，没想到这么弱</blockquote>
+里苍看上去也是温柔妈妈角色。想了想好像学马真没正统苍了（
+

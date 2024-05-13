@@ -10475,3 +10475,29 @@ vestige没露面是有点可惜。
 
 但我感觉隔壁真不是好主意，明显赚不了几个钱还在那出，这边的话鸡狼鸟不换大概还能维持吸金能力，但肯定也出不来什么好作品了哎。
 
+
+*****
+
+####  qwemiku  
+##### 871#       发表于 2024-5-13 21:28
+
+链接：https://pan.baidu.com/s/1_uShXXix1VPTAqrkkeYJIw?pwd=ynz3 
+提取码：ynz3 
+
+高清枪版
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qwemiku  
+##### 872#       发表于 2024-5-13 21:29
+
+通过百度网盘分享的文件：高达剧场版
+链接:https://pan.baidu.com/s/1DtzH7V1Ah_G_jK8DlM5a_g?pwd=ohi4 
+提取码:ohi4
+
+繁体版
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

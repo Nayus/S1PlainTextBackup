@@ -1559,3 +1559,14 @@ IMG_3438.jpeg
 
 玩过sc页游也行呀，p卡和s卡要不自己吃自己突破，要不就是有道具叶月突破
 
+
+*****
+
+####  patema  
+##### 4603#       发表于 2024-5-13 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64906712&amp;ptid=2130897" target="_blank">六至九 发表于 2024-5-13 16:21</a>
+
+莉波这特技，真就千雪—学mas版啊</blockquote>
+有无千雪前传可能，学马斯是sc8，9年前的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

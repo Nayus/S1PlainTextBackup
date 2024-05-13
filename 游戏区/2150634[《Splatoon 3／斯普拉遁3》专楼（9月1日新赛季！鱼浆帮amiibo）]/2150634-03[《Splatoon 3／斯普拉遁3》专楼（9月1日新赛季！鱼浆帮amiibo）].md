@@ -14068,3 +14068,11 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 如果要拿成绩的话，强强联合还是挺重要的，好在MAGIACE在活动组排和大赛时水准都很在线，以至于不缺XP400 ...</blockquote>
 我其实也不知道magi现在什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绿冰  
+##### 4367#         楼主| 发表于 2024-5-13 21:52
+
+团队打工算不算最悬殊的一次了233，20%是185个，5%是236个，都差了足足51个了
+

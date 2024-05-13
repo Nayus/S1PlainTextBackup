@@ -14048,3 +14048,12 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Teiume  
+##### 4365#       发表于 2024-5-13 20:47
+
+看预测下次金工是发电厂5/25-27，可能新熊武
+我还以为会是斗技场先来
+

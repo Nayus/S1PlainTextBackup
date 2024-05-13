@@ -1783,3 +1783,21 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  raimouse  
+##### 4625#       发表于 2024-5-13 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来,傲沉这属性感觉好久没见了
+
+第一次接触还是凛凛蝶了,这都10多年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flynnei  
+##### 4626#       发表于 2024-5-13 20:23
+
+周日就能听到晴solo了，9月应该能有小春的solo吧
+

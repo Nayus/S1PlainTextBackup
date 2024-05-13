@@ -1268,3 +1268,38 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 <img src="https://p.sda1.dev/17/8ed4e9abcca26eaf135500fd38b84721/20240513_123531.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 4572#       发表于 2024-5-13 12:38
+
+大图再看咲季的腹肌，dokidoki
+
+*****
+
+####  篠澤広  
+##### 4573#       发表于 2024-5-13 12:40
+
+わたしのことを、いまにも見限ってきそうな眼差しが好き。
+
+*****
+
+####  安广多惠子  
+##### 4574#       发表于 2024-5-13 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64904243&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-5-13 12:32</a>
+照片在ip里是一个装备，类似rpg游戏里那种加攻加防加暴击爆伤啥的，在ip里那玩意是随机副词条的
+
+ ...</blockquote>
+懂了，圣遗物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  篠澤広  
+##### 4575#       发表于 2024-5-13 12:43
+
+ip有专属照片 那玩意挺难哪弄的
+

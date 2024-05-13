@@ -1387,3 +1387,22 @@ ip的照片=坏文明
 不是ip那种照片饰品就行，ip那个照片系统就是氪金无底洞
 学马仕这个随机性还在我能接受的范围内，不过手札事故是打牌的一环，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 4586#       发表于 2024-5-13 13:50
+
+<blockquote>raimouse 发表于 2024-5-13 13:34
+这支援卡如果还是同名4破估计要苟不过IP，看看运营有没有点逼数了</blockquote>
+那别想了，反正我是看到了升星选项和经典锁技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 4587#       发表于 2024-5-13 13:51
+
+手球那篇试玩报告里特地点名了杀戮尖塔，勾起我无数个夜晚在爬塔时暴毙的痛苦回忆
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

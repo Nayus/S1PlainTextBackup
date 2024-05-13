@@ -1691,3 +1691,12 @@ ip的突破好歹只加属性，这个还锁技能就很恶心。我sc和马就�
 有一说一ip突破只加数值，而且福利好通用碎片获取途径也多，然而学马仕这套突破很显然跟sc如出一辙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 快进到暮光fes平行fes卖专用叶月捏
 
+
+*****
+
+####  rgauss  
+##### 4616#       发表于 2024-5-13 19:07
+
+https://www.famitsu.com/article/202405/4979
+琴音的
+

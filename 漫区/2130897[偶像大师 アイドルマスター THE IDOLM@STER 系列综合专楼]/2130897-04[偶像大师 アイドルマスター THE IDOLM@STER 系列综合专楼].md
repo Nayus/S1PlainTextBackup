@@ -1143,3 +1143,20 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 没玩过类马娘和sc这种育成游戏，应该怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViviR  
+##### 4559#       发表于 2024-5-13 11:55
+
+ 本帖最后由 ViviR 于 2024-5-13 11:57 编辑 
+
+广的一部分性格（xp？）已经可以用“变态”来形容了，比什么一般路过卑女重女重量级多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 4560#       发表于 2024-5-13 11:57
+
+老师是前偶像
+

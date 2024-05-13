@@ -1736,3 +1736,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 模玩熊的大师剑990，今天一出价感觉很快就切了，还好我昨天就订了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 15786#       发表于 2024-5-13 21:36
+
+模玩熊前两天上架就拍了，980的价格也还不错了比好几个任系代购的鬼畜价格强多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

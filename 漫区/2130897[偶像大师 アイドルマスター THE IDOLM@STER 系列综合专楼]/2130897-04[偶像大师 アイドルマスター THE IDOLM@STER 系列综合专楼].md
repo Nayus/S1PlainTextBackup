@@ -1570,3 +1570,20 @@ IMG_3438.jpeg
 莉波这特技，真就千雪—学mas版啊</blockquote>
 有无千雪前传可能，学马斯是sc8，9年前的世界线<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 4604#       发表于 2024-5-13 17:00
+
+突破才有完全体那完蛋了呀，最烦这种
+
+老老实实提数值不好吗
+
+*****
+
+####  仓鼠吃火锅  
+##### 4605#       发表于 2024-5-13 17:03
+
+手球在随口嘴臭之后有内心os演出反省，还是被收手机变脸的小屁孩和吃货，逼格是一点都不剩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

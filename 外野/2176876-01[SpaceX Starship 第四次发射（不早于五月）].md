@@ -827,3 +827,14 @@ NASA月球到火星计划副助理署长阿米特·克沙特里亚表示，Space
 那个不是早期的火星方案里的一环吗？后来就没什么动静了</blockquote>
 HLS登月要用啊……
 
+
+*****
+
+####  madbird023  
+##### 44#       发表于 2024-5-13 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64901461&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-13 08:37</a>
+
+HLS登月要用啊……</blockquote>
+不着急，那个方案本来就不怎么靠谱，不如也跟着迭代掉算了
+

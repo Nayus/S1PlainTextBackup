@@ -10400,3 +10400,15 @@ vestige没露面是有点可惜。
 
 这ZAFT当兵就像玩一样。
 
+
+*****
+
+####  ShyCrazydog  
+##### 864#       发表于 2024-5-13 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907420&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-5-13 17:37</a>
+这只能说不愧是小日子的思考，鞠躬90°没出事就过了。。。
+
+这ZAFT当兵就像玩一样。 ...</blockquote>
+扎夫特我记得71年的时候连军衔都没有。而且每次大战最后某种意义上都变成了鸽派vs鹰派的内战，真要清算怕是扎夫特直接裁军一半<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -1708,3 +1708,13 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 感觉情理之中吧，就是不知道用哪一代的塞尔达</blockquote>
 当然是新的了
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 15783#       发表于 2024-5-13 17:44
+
+我才发现万代还是有欧洲店的，预定算上税和邮费大概170多欧……还行吧能接受了，毕竟官网上都说剑太大了只能单独订购（也就是不让和其他东西合并在一张订单里买），还能免除各种各样的海关费用/海淘邮费/托运费用……
+
+看到有人试图从美国购买，各种税费算下来一把剑300欧，这都能下单属实真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

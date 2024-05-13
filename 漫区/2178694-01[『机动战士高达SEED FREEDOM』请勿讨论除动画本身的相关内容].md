@@ -10230,3 +10230,20 @@ vestige没露面是有点可惜。
 第17弹最终观影特典为描绘剧场版结局之后的明信片(A6大小，全3种随机)，正面是福井构图平井久司绘新图、背 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">阿格尼丝也算神奇人物了
 
+
+*****
+
+####  natmk  
+##### 845#       发表于 2024-5-13 13:08
+
+阿格尼丝这是往女同发展了?
+
+*****
+
+####  王留美  
+##### 846#       发表于 2024-5-13 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64902356&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-13 10:07</a>
+ 福田这一次居然这么正常，那么18号也不要乱来了</blockquote>
+艹，某人缠上露娜了？😂
+

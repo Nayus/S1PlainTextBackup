@@ -14030,3 +14030,11 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4363#       发表于 2024-5-13 17:11
+
+新手教程在英雄模式里，但有些人根本不打（
+

@@ -1538,3 +1538,41 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 黄连杂货店记得是阿琳偷佛像那个任务解锁吧。
 
+
+*****
+
+####  医生狼多  
+##### 1617#       发表于 2024-5-13 14:35
+
+机翻
+
+星刃韩国发布日活动详情！ #StellarBlade - Boss 挑战模式正在考虑中，将尝试尽快推出 
+- 马尾辫不可拆卸，因为里面存放着夏娃之剑。但如果有下一款游戏，他们会把马尾辫做成可拆卸的 
+- 故事设计得很简单，因为他们想专注于游戏玩法 - 动作与故事的平衡比例为 70/30，重点是战斗 
+- 与索尼的合作有助于提高他们在制作主机游戏方面的专业知识
+ - 在优化和帧率上投入了大量精力 
+- 游戏发布后，团队熬夜，只睡了 1-2 个小时，在线观察玩家的反应。
+ - 首日补丁服装设计符合预期结果 
+- Shift Up 想要继续制作主机游戏！
+
+*****
+
+####  塔奇克马  
+##### 1618#       发表于 2024-5-13 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64905550&amp;ptid=1978008" target="_blank">医生狼多 发表于 2024-5-13 14:35</a>
+机翻
+
+星刃韩国发布日活动详情！ #StellarBlade - Boss 挑战模式正在考虑中，将尝试尽快推出 </blockquote>
+😏继续做主机游戏？销量应该是稳了
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  emmer  
+##### 1619#       发表于 2024-5-13 14:43
+
+- 首日补丁服装设计符合预期结果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

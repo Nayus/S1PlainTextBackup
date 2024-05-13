@@ -2418,3 +2418,11 @@ biQk74-1cwrZjT3cSqe-5f.png
 
 这两天的在线人数最低已经降到3万了，好死我只能说<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4661#       发表于 2024-5-13 22:50
+
+上次大更之后就搞坏什么东西，现在碰到延迟稍微高一点的鬼佬就会越玩越卡，卡到最后AI瞬移，互动需要十多二十秒才能完成，野队起码5成以上是这样的情况。
+

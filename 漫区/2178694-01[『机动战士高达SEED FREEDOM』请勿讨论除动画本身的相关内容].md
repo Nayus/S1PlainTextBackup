@@ -10323,3 +10323,20 @@ vestige没露面是有点可惜。
 
 能有鸟月阿格尼斯的3p本子吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 856#       发表于 2024-5-13 15:55
+
+阿格尼斯回去后，按常理不立即吃花生米也应该先被扣押起来吧<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凤舞夜月  
+##### 857#       发表于 2024-5-13 15:56
+
+仔细看，基拉拉克丝后边的别墅，门口站着的，好像是基拉的养父母？所以养父母都听到了？？？
+
+然后，阿格尼斯这种叛变，差点把基拉干掉，导致强袭自由被偷的人物，就这么嘻嘻哈哈的回船了？没有逮捕起来？
+

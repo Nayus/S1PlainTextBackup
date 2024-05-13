@@ -1484,3 +1484,21 @@ haha，别忘了SC<img src="https://static.saraba1st.com/image/smiley/face2017/0
 财团b的蓝色星原，当初看主播内测玩，就感觉很昏睡。后面正式版出来虽然没这么昏睡，但是还是很昏睡。大概 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">蓝色协议啊，怎么就蓝色星原了，草生
 
+
+*****
+
+####  格雷殿下  
+##### 4595#       发表于 2024-5-13 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64906295&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-5-13 15:46</a>
+
+蓝色协议啊，怎么就蓝色星原了，草生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">拼音都一样，那就是同一个游戏呀
+
+*****
+
+####  noripants  
+##### 4596#       发表于 2024-5-13 15:57
+
+广与其说是抖M 不如说是人生未尝一败想要被打倒一次的颠佬吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

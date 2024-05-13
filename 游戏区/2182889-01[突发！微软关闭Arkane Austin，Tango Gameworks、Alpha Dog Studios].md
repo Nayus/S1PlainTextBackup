@@ -2637,3 +2637,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 只能说软软主机战争没赢过是有原因的
 
+
+*****
+
+####  patema  
+##### 268#       发表于 2024-5-13 19:32
+
+看了下疯猫视频下面的评论区，这下风向是tengo活该去死了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我软无罪！
+

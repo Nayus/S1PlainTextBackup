@@ -14038,3 +14038,13 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 新手教程在英雄模式里，但有些人根本不打（
 
+
+*****
+
+####  DeltaStriker  
+##### 4364#       发表于 2024-5-13 19:37
+
+按头让你玩完新手教程感觉就该被喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

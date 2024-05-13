@@ -1700,3 +1700,15 @@ ip的突破好歹只加属性，这个还锁技能就很恶心。我sc和马就�
 https://www.famitsu.com/article/202405/4979
 琴音的
 
+
+*****
+
+####  rgauss  
+##### 4617#       发表于 2024-5-13 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907854&amp;ptid=2130897" target="_blank">YetToCome 发表于 2024-5-13 18:26</a>
+很好，突破、照片，还差一个指数倍增的首饰就能叠满ip糟粕三件套了
+
+—— 来自 realme RMX3706, A ...</blockquote>
+没有照片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看错了 那应该不叫照片 叫做因子更合适
+

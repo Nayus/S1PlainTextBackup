@@ -1189,3 +1189,36 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 又可以带照片？
 梦回ip卷照片属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 4564#       发表于 2024-5-13 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64903600&amp;ptid=2130897" target="_blank">花海佑芽 发表于 2024-5-13 11:40</a>
+没玩过类马娘和sc这种育成游戏，应该怎么玩</blockquote>
+氪金，然后坐牢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViviR  
+##### 4565#       发表于 2024-5-13 12:23
+
+<img src="https://img.saraba1st.com/forum/202405/13/122344eqneydaqqagyz449.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8632.jpeg</strong> (215.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 12:23 上传
+
+
+*****
+
+####  rgauss  
+##### 4566#       发表于 2024-5-13 12:25
+
+氪金 坐牢就行了
+

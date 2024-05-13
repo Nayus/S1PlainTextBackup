@@ -1492,3 +1492,11 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  hokagokenjatime  
+##### 1612#       发表于 2024-5-13 10:00
+
+目前一周目打到渡鸦逃了，不打算重打二周目的话要不要直接把钓鱼和罐头全拿了拿衣服奖励啊
+

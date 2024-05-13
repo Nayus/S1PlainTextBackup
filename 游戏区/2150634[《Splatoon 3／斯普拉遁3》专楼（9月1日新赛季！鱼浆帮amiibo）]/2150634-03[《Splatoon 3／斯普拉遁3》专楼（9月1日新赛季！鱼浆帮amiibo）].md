@@ -13939,3 +13939,14 @@ hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4355#       发表于 2024-5-13 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64900808&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-5-13 02:04</a>
+
+hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛。</blockquote>
+MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精圆珠笔的Abyss玩消防栓玩得高
+

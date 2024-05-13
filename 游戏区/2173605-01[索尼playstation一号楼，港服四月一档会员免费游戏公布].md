@@ -17,3 +17,14 @@
 
 年底才发售会这么早公布吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 349#       发表于 2024-5-13 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64901688&amp;ptid=2173605" target="_blank">npk7k 发表于 2024-5-13 09:03</a>
+
+据Jeff Grubb表示，PS Pro可能会在PS Showcase期间公布。另外，Sucker Punch可能会复活《狡狐大冒险》，这 ...</blockquote>
+彭博社的Jason Schreier辟谣了Sucker Punch没有在做《狡狐大冒险》，应该就是Jeff Grubb随口一提就被添油加醋传播出去了
+

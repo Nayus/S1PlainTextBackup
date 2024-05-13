@@ -41,3 +41,11 @@
 
 只要嘉宾阵容够强大，万人场也不在话下
 
+
+*****
+
+####  aritaatsu222  
+##### 217#       发表于 2024-5-13 14:56
+
+那个场地应该实际利用只能7k席左右，不过也是够突然我以为肯定是zepp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真不想看嘉宾能不能加油一下
+

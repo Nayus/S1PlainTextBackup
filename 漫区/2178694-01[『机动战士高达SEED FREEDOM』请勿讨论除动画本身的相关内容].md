@@ -10281,3 +10281,13 @@ vestige没露面是有点可惜。
 
 福田解释了一下三张图的创作思路，最后一张只是想表达阿古尼斯脸皮比较厚，飞鸟和露娜很大度没有怪她而已，
 
+
+*****
+
+####  starring  
+##### 851#       发表于 2024-5-13 14:49
+
+鸡和拉海滩do完回家，狼和卡准备回家do，月被阿格尼斯缠着鸟do不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

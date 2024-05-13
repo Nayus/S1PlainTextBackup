@@ -2473,3 +2473,11 @@ n9杀效率不高，老外已经在号召大家一起去n3完成屠20e机器人�
 
 新债券这个鬼样子，周一上班居然无事发生，不会真是日活掉的厉害没人在乎了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4667#       发表于 2024-5-14 06:52
+
+这游戏已经玩不下去了，上次平衡大更和绑定psn两个逆天大活后国人肉眼可见的少了很多，现在天天被弱智（字面意义上的，有时我真怀疑网线对面坐着的是个真弱智）鬼佬折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

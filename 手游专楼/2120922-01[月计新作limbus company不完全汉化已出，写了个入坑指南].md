@@ -792,3 +792,33 @@
 
 李箱加入环指也太地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 696#       发表于 2024-5-13 18:54
+
+环指二人组技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202405/13/184950yd0v0aywkyfpkwam.jpg" referrerpolicy="no-referrer">
+
+<strong>EF66953C636D19CC172242FFF5045FA2.jpg</strong> (278.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-13 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202405/13/184950zjqudjbqujhfss7j.jpg" referrerpolicy="no-referrer">
+
+<strong>45E8C58D56D4C5270C066314F8A94CD2.jpg</strong> (265.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-13 18:49 上传
+
+与其说是流血系不如说是debuff系，看着还挺强，每个技能都能随出血量或层数加威力，二技能可以重复使用，被动还有精神力回复，感觉纯流血队未来可期？只要等罗佳出一个强力流血人格就能直接起飞了。
+
+（同理，以实玛利出个能打的破裂三星也能增强破裂队。）
+

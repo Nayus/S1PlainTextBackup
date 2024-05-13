@@ -1667,3 +1667,18 @@ https://dengekionline.com/article/images/202405/4367/25724
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  raimouse  
+##### 4613#       发表于 2024-5-13 18:51
+
+ip的突破好歹只加属性，这个还锁技能就很恶心。我sc和马就很讨厌这套了。估计学马蝗不了多久了
+
+*****
+
+####  raimouse  
+##### 4614#       发表于 2024-5-13 18:51
+
+ip的突破好歹只加属性，这个还锁技能就很恶心。我sc和马就很讨厌这套了。估计学马蝗不了多久了
+

@@ -13929,3 +13929,13 @@ https://www.youtube.com/live/ZSufLjkcKAM?si=7Ot2DFovXqLkQMzb
 https://www.youtube. ...</blockquote>
 hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4354#       发表于 2024-5-13 08:45
+
+这周要放最终赛季的pv了吧，看看研究所打算怎么摆
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

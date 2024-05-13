@@ -817,3 +817,13 @@ NASA月球到火星计划副助理署长阿米特·克沙特里亚表示，Space
 比起这个还是更好奇今年说要出来的加油星舰啥样 ...</blockquote>
 那个不是早期的火星方案里的一环吗？后来就没什么动静了
 
+
+*****
+
+####  柴汪汪  
+##### 43#       发表于 2024-5-13 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64900993&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-5-13 05:25</a>
+那个不是早期的火星方案里的一环吗？后来就没什么动静了</blockquote>
+HLS登月要用啊……
+

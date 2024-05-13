@@ -1627,3 +1627,13 @@ https://dengekionline.com/article/images/202405/4367/25724
 
 同名突破加锁技能机制那不是比ip的弱智照片系统**多了
 
+
+*****
+
+####  伊布桑  
+##### 4609#       发表于 2024-5-13 18:01
+
+这个突破名字和ip一模一样（连字体都一样），是不是可以期待一下通用突破物和ip一样不要钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

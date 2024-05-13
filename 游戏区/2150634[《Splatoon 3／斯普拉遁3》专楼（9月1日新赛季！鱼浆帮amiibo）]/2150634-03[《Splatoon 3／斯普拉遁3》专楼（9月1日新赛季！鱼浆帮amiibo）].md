@@ -13998,3 +13998,16 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 泥锅特色就完事了还能咋样，从网游时期遗留至今的糟粕罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4361#       发表于 2024-5-13 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64904573&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-5-13 13:01</a>
+
+毕竟交朋友也不是看xp交的</blockquote>
+如果要拿成绩的话，强强联合还是挺重要的，好在MAGIACE在活动组排和大赛时水准都很在线，以至于不缺XP4000+的找他玩
+
+虽然灭龙能打到XP5000，不过日区XP3000的消防栓再怎么说也算顶尖玩家了，实际打起来差距未必会有数字上看起来那么大
+

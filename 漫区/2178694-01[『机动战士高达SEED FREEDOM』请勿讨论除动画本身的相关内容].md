@@ -10358,3 +10358,14 @@ vestige没露面是有点可惜。
 不知道什么时候公布无水印版的特典图。</blockquote>
 这个就是下个礼拜的特典，不出意外的话，周五网上网上就会有的卖了
 
+
+*****
+
+####  SorroFrost  
+##### 860#       发表于 2024-5-13 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64906647&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-13 16:16</a>
+
+这个就是下个礼拜的特典，不出意外的话，周五网上网上就会有的卖了</blockquote>
+我想要的是原图电子格式那种。
+

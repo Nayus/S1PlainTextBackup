@@ -1111,3 +1111,27 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 学园的媒体评测出了 部分截图我放手游楼了 有p卡和s卡 2k5一个十连 
 手球的心里配音太软了 反差太萌了
 
+
+*****
+
+####  patema  
+##### 4555#       发表于 2024-5-13 11:35
+
+感觉广是个M啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 4556#       发表于 2024-5-13 11:35
+
+首页ui有些难绷。然后玩法，看上去挺坐牢的。不知道p好的卡是不是要拿去参加什么。不过反正我手机里也只有一个全自动养老冷门手游，所以压力倒不是有多大（
+
+*****
+
+####  安广多惠子  
+##### 4557#       发表于 2024-5-13 11:36
+
+玩法感觉好坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

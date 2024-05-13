@@ -2359,3 +2359,28 @@ PSN服务占收入13%
 西线主武器目前最好的选择还是火喷，燃烧伤害对小兵的杀伤力实在太大了，根本不用瞄准就能把小兵直接烧死， ...</blockquote>
 离子喷buff完在西线也很好用了，打双足和小兵群都很轻松，也能打蹂躏者
 
+
+*****
+
+####  kalavinka  
+##### 4657#         楼主| 发表于 2024-5-13 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/13/112830gflwl33ull3ouojl.png" referrerpolicy="no-referrer">
+
+<strong>biQk74-b81vK2lT3cStf-8b.png</strong> (83.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 11:28 上传
+
+biQk74-1cwrZjT3cSqe-5f.png
+(53.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202405/13/112838m3ts5csart137t9b.png" referrerpolicy="no-referrer">
+

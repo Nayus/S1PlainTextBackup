@@ -1500,3 +1500,22 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 目前一周目打到渡鸦逃了，不打算重打二周目的话要不要直接把钓鱼和罐头全拿了拿衣服奖励啊
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1613#       发表于 2024-5-13 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64900007&amp;ptid=1978008" target="_blank">霖岚_ 发表于 2024-5-12 23:54</a>
+炸完xion后再做的钓鱼任务才知道废土的揭示板不能接任务……因为最后的神奇鱼饵任务接不了搞的没能 ...</blockquote>
+支线感觉可能不影响钓鱼，我当时没做任务也拿到了鱼饵，然后把图鉴最底下几个鱼掉了，后来全图鉴是卡一条中级鱼钓了很久
+
+*****
+
+####  袄_偶滴小乔  
+##### 1614#       发表于 2024-5-13 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64902282&amp;ptid=1978008" target="_blank">hokagokenjatime 发表于 2024-5-13 10:00</a>
+目前一周目打到渡鸦逃了，不打算重打二周目的话要不要直接把钓鱼和罐头全拿了拿衣服奖励啊 ...</blockquote>
+是的，你选择去找去找摩托的话直接进最终两场boss战了
+

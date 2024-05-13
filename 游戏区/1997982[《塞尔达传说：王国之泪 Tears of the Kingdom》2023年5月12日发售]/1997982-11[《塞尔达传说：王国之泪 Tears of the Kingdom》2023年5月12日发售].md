@@ -1726,3 +1726,13 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 是个好消息，但感觉突破在于换装/妆，玩法方面没啥指望了。最期待的是把无双里的各种石板能力和武器拓展成全尺寸古墓丽影，毕竟是考古学家么不是，可惜做不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  岸波  
+##### 15785#       发表于 2024-5-13 20:04
+
+ 本帖最后由 岸波 于 2024-5-13 20:07 编辑 
+
+模玩熊的大师剑990，今天一出价感觉很快就切了，还好我昨天就订了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

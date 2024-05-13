@@ -1738,3 +1738,28 @@ https://www.famitsu.com/article/202405/4979
 
 其实这种游戏只要不冲排名，坐牢也不会坐到哪去
 
+
+*****
+
+####  840266848  
+##### 4621#       发表于 2024-5-13 20:02
+
+<img src="https://img.saraba1st.com/forum/202405/13/200033kuoo2oj8ul7v06ju.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240513200020.png</strong> (85.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 20:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看初星剧情还以为小红是跳舞厉害的类型，最后果然是要求Vi吗，不过看风格的确是Vi比较符合
+
+*****
+
+####  liyropen  
+##### 4622#       发表于 2024-5-13 20:04
+
+IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

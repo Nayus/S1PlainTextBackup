@@ -1459,3 +1459,28 @@ haha，别忘了SC<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 看了篇清夏的试玩测评，果然是崭新的牢房，好消息是优化应该不错
 
+
+*****
+
+####  伊布桑  
+##### 4593#       发表于 2024-5-13 15:40
+
+<img src="https://p.sda1.dev/17/ce1ce99555cff6846c80d0d72a1dcf24/IMG_91432EBE80B0BAC981D104A0D66F504B.jpeg" referrerpolicy="no-referrer">
+看了下有点搞笑
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毛球你怎么还是个吃货，这下一点不高冷了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">china这下真的迪士尼在逃公主了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">琴音这种打工战士人设居然是社牛还是比较少见
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  Anatoly  
+##### 4594#       发表于 2024-5-13 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64905848&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-5-13 15:03</a>
+
+财团b的蓝色星原，当初看主播内测玩，就感觉很昏睡。后面正式版出来虽然没这么昏睡，但是还是很昏睡。大概 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">蓝色协议啊，怎么就蓝色星原了，草生
+

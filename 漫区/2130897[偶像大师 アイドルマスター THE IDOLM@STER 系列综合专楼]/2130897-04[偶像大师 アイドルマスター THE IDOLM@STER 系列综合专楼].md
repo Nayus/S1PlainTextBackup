@@ -1950,3 +1950,16 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 又是大家最爱的同卡突破锁技能
 
+
+*****
+
+####  Ithilien  
+##### 4642#       发表于 2024-5-14 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64911346&amp;ptid=2130897" target="_blank">z2150966 发表于 2024-5-14 01:11</a>
+
+预约地址是多少来着</blockquote>
+[https://idolmaster-official.jp/gakuen/campaign](https://idolmaster-official.jp/gakuen/campaign)
+
+预约活动今天开始分享卡面到推每张给10抽了，应该只要参与的都能抽满拿1000石头吧
+

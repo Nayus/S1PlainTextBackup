@@ -1763,3 +1763,23 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  姫崎莉波  
+##### 4623#       发表于 2024-5-13 20:04
+
+わあ、水族館!綺麗だよね。
+
+*****
+
+####  YetToCome  
+##### 4624#       发表于 2024-5-13 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64908293&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-5-13 19:23</a>
+没有照片我看错了 那应该不叫照片 叫做因子更合适</blockquote>
+感觉没有什么区别，都是随机性拉满的玩意。
+冲排名也不一定坐牢，代哥还有mltd这种刺激性拉满要命的存在
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

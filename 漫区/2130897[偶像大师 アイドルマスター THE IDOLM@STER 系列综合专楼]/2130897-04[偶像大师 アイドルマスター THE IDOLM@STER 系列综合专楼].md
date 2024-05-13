@@ -1222,3 +1222,49 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 氪金 坐牢就行了
 
+
+*****
+
+####  枫紫  
+##### 4567#       发表于 2024-5-13 12:28
+
+有IP的拍照要素，礼装却需要SC那样去抽...算了没开服先不把话说死
+
+*****
+
+####  田所あずさ  
+##### 4568#       发表于 2024-5-13 12:29
+
+这电子牢房谁爱坐谁坐，mltd见
+
+*****
+
+####  Achlys  
+##### 4569#       发表于 2024-5-13 12:29
+
+照片属性是？
+大伙都觉得広是不妙的抖m ww
+求少点pvp内容，没排行榜单纯p的过程咋都不坐牢，马娘一开始单纯刷成就刷温泉剧情的还是蛮开心
+虽然没组合，但也会有几个合关系好的小团体的剧情嘛，那推一个角色，是不是还得把跟她有关系性的几个人抽齐了
+
+*****
+
+####  伊布桑  
+##### 4570#       发表于 2024-5-13 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64904213&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-13 12:29</a>
+照片属性是？
+大伙都觉得広是不妙的抖m ww
+求少点pvp内容，没排行榜单纯p的过程咋都不坐牢，马娘一开始单纯 ...</blockquote>
+照片在ip里是一个装备，类似rpg游戏里那种加攻加防加暴击爆伤啥的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，在ip里那玩意是随机副词条的
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  Piano-Forest  
+##### 4571#       发表于 2024-5-13 12:36
+
+<img src="https://p.sda1.dev/17/8ed4e9abcca26eaf135500fd38b84721/20240513_123531.jpg" referrerpolicy="no-referrer">
+

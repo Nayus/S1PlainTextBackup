@@ -2645,3 +2645,22 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 看了下疯猫视频下面的评论区，这下风向是tengo活该去死了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我软无罪！
 
+
+*****
+
+####  4869Bi  
+##### 269#       发表于 2024-5-13 19:52
+
+欸，放养式管理
+
+欸，xgp大锅饭
+
+*****
+
+####  赤尸藏人  
+##### 270#       发表于 2024-5-13 19:54
+
+破案了，门圣下的手 <blockquote>Bill Gates "is still pulling the strings at Microsoft, $MSFT," per insiders quoted in BI.
+
+"Satya and the entire senior leadership team lean on Gates very significantly. His opinion is sought every time we make a major change."</blockquote>
+

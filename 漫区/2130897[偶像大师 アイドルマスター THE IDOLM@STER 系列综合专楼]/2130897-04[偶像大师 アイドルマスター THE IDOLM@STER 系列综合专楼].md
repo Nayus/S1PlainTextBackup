@@ -1712,3 +1712,29 @@ https://www.famitsu.com/article/202405/4979
 —— 来自 realme RMX3706, A ...</blockquote>
 没有照片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看错了 那应该不叫照片 叫做因子更合适
 
+
+*****
+
+####  Achlys  
+##### 4618#       发表于 2024-5-13 19:44
+
+总感觉福利也不会有sc好...这套系统一出来就和良心运营无关了
+
+*****
+
+####  raimouse  
+##### 4619#       发表于 2024-5-13 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过老实说,一开始就不指望代哥有良心
+
+吃相太难看蝗一波就跑的估计会很多
+
+毕竟同类游戏已经有赛马娘珠玉在前了,人家人气火多了
+
+*****
+
+####  rgauss  
+##### 4620#       发表于 2024-5-13 19:47
+
+其实这种游戏只要不冲排名，坐牢也不会坐到哪去
+

@@ -2434,3 +2434,14 @@ biQk74-1cwrZjT3cSqe-5f.png
 
 地质探查那个网格找坐标要怎么搞的，一直玩不明白
 
+
+*****
+
+####  FLZB  
+##### 4663#       发表于 2024-5-14 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64911474&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-5-14 01:47</a>
+
+地质探查那个网格找坐标要怎么搞的，一直玩不明白</blockquote>
+把十字移动到上面提示的对应坐标格子里就行了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

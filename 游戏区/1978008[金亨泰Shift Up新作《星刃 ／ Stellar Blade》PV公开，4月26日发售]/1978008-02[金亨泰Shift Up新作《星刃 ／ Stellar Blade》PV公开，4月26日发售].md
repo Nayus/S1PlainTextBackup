@@ -1530,3 +1530,11 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 支线感觉可能不影响钓鱼，我当时没做任务也拿到了鱼饵，然后把图鉴最底下几个鱼掉了，后来全图鉴是卡一条 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我已经进二周目了，到时候再一起清吧
 
+
+*****
+
+####  Schwarzess  
+##### 1616#       发表于 2024-5-13 11:07
+
+黄连杂货店记得是阿琳偷佛像那个任务解锁吧。
+

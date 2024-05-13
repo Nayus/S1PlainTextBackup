@@ -838,3 +838,13 @@ HLS登月要用啊……
 HLS登月要用啊……</blockquote>
 不着急，那个方案本来就不怎么靠谱，不如也跟着迭代掉算了
 
+
+*****
+
+####  柴汪汪  
+##### 45#       发表于 2024-5-13 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64901872&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-5-13 09:21</a>
+不着急，那个方案本来就不怎么靠谱，不如也跟着迭代掉算了</blockquote>
+NASA自己选的，蓝原的新登月舱也要加注，看看这次谁先谁后
+

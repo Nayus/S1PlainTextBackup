@@ -14057,3 +14057,14 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 看预测下次金工是发电厂5/25-27，可能新熊武
 我还以为会是斗技场先来
 
+
+*****
+
+####  laosai13  
+##### 4366#       发表于 2024-5-13 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64904817&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-5-13 13:27</a>
+
+如果要拿成绩的话，强强联合还是挺重要的，好在MAGIACE在活动组排和大赛时水准都很在线，以至于不缺XP400 ...</blockquote>
+我其实也不知道magi现在什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

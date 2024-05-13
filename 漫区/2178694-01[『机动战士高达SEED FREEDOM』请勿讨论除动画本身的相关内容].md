@@ -10102,3 +10102,26 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 加拿大的……一开始写的是7号sub,然后预售只有dub的。后面9号还加场了。听混乱的 ...</blockquote>
 加拿大这边昨天起到16号都能正常看了，今天早上才看完，上映的影院和场次都挺多的。
 
+
+*****
+
+####  死难者23er  
+##### 837#       发表于 2024-5-13 10:07
+
+<img src="https://img.saraba1st.com/forum/202405/13/100630gbwpbgwwf1snfb4b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2170.jpeg</strong> (415.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 10:06 上传
+
+福田这一次居然这么正常，那么18号也不要乱来了
+
+*****
+
+####  死难者23er  
+##### 838#       发表于 2024-5-13 10:08
+
+而且最后一周特典居然这么好，估计可以再赚一亿多，看来有可能48
+

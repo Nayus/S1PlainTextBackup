@@ -1801,3 +1801,11 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 周日就能听到晴solo了，9月应该能有小春的solo吧
 
+
+*****
+
+####  枫紫  
+##### 4627#       发表于 2024-5-13 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草，那这突破系统不就是虾页游...好的不继承尽保留糟粕
+

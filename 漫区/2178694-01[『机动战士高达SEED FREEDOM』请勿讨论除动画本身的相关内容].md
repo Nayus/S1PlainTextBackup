@@ -10219,3 +10219,14 @@ vestige没露面是有点可惜。
 <img src="https://p.sda1.dev/17/4d240e062c6f9bbfb6ef2396f5966280/20240513_125232.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/58748fd18c605e6812557a16ca24c9a3/20240513_110652_p_o_71192800.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 844#       发表于 2024-5-13 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64904534&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-5-13 12:57</a>
+
+第17弹最终观影特典为描绘剧场版结局之后的明信片(A6大小，全3种随机)，正面是福井构图平井久司绘新图、背 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">阿格尼丝也算神奇人物了
+

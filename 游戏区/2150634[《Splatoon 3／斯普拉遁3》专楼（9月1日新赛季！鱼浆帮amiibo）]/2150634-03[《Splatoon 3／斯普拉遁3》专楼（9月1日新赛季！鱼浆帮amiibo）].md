@@ -13969,3 +13969,24 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 magiace看来是彻底工堕了啊，团工和肯师傅刷到377了。
 你能在任何地方看到magi除了他自己的直播间.jpg
 
+
+*****
+
+####  laosai13  
+##### 4358#       发表于 2024-5-13 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64901913&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-5-13 09:26</a>
+
+MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精圆珠笔的Abyss玩消防栓玩得高 ...</blockquote>
+毕竟交朋友也不是看xp交的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laosai13  
+##### 4359#       发表于 2024-5-13 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64903570&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-13 11:37</a>
+
+我还特意去找了小红书这人没搜到，wb搜水印看了一眼后续，找代打这人说自己只打涂地那为啥要花钱 ...</blockquote>
+喷喷玩的人也不多吧这种超级高分感觉没什么真正的社交炫耀意义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总之感觉没什么意义
+

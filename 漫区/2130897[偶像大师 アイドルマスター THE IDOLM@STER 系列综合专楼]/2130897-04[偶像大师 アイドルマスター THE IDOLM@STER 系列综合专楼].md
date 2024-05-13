@@ -1319,3 +1319,29 @@ ip有专属照片 那玩意挺难哪弄的
 我看错了 广的评测具体解释了系统 那个应该不是照片 而是培育出来的偶像记忆
 技能效果具体可以看广的测评
 
+
+*****
+
+####  Vacuolar  
+##### 4578#       发表于 2024-5-13 13:01
+
+回忆炸弹
+
+
+*****
+
+####  raimouse  
+##### 4579#       发表于 2024-5-13 13:05
+
+ip的照片=坏文明
+
+*****
+
+####  伊布桑  
+##### 4580#       发表于 2024-5-13 13:07
+
+偶像版杀戮尖塔就很草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+能不能来点游戏性啊代哥
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

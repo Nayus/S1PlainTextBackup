@@ -1653,3 +1653,17 @@ https://dengekionline.com/article/images/202405/4367/25724
 
 反正对这种狗食养成玩法提不起兴趣，大概率云了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YetToCome  
+##### 4612#       发表于 2024-5-13 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907650&amp;ptid=2130897" target="_blank">伊布桑 发表于 2024-5-13 18:01</a>
+这个突破名字和ip一模一样（连字体都一样），是不是可以期待一下通用突破物和ip一样不要钱
+
+—— 来 ...</blockquote>
+很好，突破、照片，还差一个指数倍增的首饰就能叠满ip糟粕三件套了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

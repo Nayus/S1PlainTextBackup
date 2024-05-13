@@ -10420,3 +10420,15 @@ vestige没露面是有点可惜。
 
 福田只是说飞鸟和露娜因为自己过去的原因，所以不好说什么，基拉和拉克丝是什么情况？还不清楚，说不定还会有更离谱的操作
 
+
+*****
+
+####  gundammarkⅡ  
+##### 866#       发表于 2024-5-13 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907473&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-13 17:42</a>
+扎夫特我记得71年的时候连军衔都没有。而且每次大战最后某种意义上都变成了鸽派vs鹰派的内战，真要清算怕 ...</blockquote>
+以前没军衔是因为那时是个民兵组织呀
+扎夫特最早是个政党（狼爹和拉爹建的），为PLANT争取到自治后，改组成相当于民兵的志愿军事组织，种命结束后才正规军化，引入军衔制等制度
+反正，主角团都是来去自由都不严肃就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

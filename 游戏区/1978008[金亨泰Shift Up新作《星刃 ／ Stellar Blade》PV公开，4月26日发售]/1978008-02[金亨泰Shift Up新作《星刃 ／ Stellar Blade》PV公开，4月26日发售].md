@@ -1519,3 +1519,14 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 目前一周目打到渡鸦逃了，不打算重打二周目的话要不要直接把钓鱼和罐头全拿了拿衣服奖励啊 ...</blockquote>
 是的，你选择去找去找摩托的话直接进最终两场boss战了
 
+
+*****
+
+####  霖岚_  
+##### 1615#       发表于 2024-5-13 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64902501&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-13 10:19</a>
+
+支线感觉可能不影响钓鱼，我当时没做任务也拿到了鱼饵，然后把图鉴最底下几个鱼掉了，后来全图鉴是卡一条 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我已经进二周目了，到时候再一起清吧
+

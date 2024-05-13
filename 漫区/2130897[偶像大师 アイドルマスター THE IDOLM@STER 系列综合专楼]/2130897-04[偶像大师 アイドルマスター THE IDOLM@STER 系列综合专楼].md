@@ -1841,3 +1841,20 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 有点恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，反正随便玩玩蝗就是了
 
+
+*****
+
+####  ViviR  
+##### 4631#       发表于 2024-5-13 22:04
+
+ 本帖最后由 ViviR 于 2024-5-13 22:08 编辑 
+
+期待学马仕在玩法上搞出什么好活甚至创新加强游戏性降低坐牢体验，不如期待这次请来的轻小说脚本家能在剧本方面搞出什么好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  1024676511  
+##### 4632#       发表于 2024-5-13 22:05
+
+跳过剧情的速度够快就算成功
+

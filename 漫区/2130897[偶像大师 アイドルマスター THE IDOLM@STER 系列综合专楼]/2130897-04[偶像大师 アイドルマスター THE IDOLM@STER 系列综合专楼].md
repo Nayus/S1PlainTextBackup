@@ -1442,3 +1442,20 @@ haha，别忘了SC<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 财团b的蓝色星原，当初看主播内测玩，就感觉很昏睡。后面正式版出来虽然没这么昏睡，但是还是很昏睡。大概是觉得海外的网友不充值吧，就直接全砍头了。建模看着挺好看的，现在想，大抵原来是一个单机改出来的吧。
 
+
+*****
+
+####  麻巳巳  
+##### 4592#       发表于 2024-5-13 15:23
+
+<img src="https://img.saraba1st.com/forum/202405/13/152243maay6m2y1kczrmfj.jpg" referrerpolicy="no-referrer">
+
+<strong>1000022947.jpg</strong> (138.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-13 15:22 上传
+
+看了篇清夏的试玩测评，果然是崭新的牢房，好消息是优化应该不错
+

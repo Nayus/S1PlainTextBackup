@@ -14011,3 +14011,22 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 虽然灭龙能打到XP5000，不过日区XP3000的消防栓再怎么说也算顶尖玩家了，实际打起来差距未必会有数字上看起来那么大
 
+
+*****
+
+####  KBAC  
+##### 4362#       发表于 2024-5-13 15:09
+
+<img src="https://img.saraba1st.com/forum/202405/13/150502jfyepgsh3gkhyanj.png" referrerpolicy="no-referrer">
+
+<strong>img_9292.png</strong> (491.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 15:05 上传
+
+挂着涂地50胜章，打工100绿帽100锅盖章，不知道滚筒能推着走，太神秘了。
+虽然不排除号给别人玩的可能，但是这游戏的新手教程绝对有问题，几百个小时不知道最最基础操作的人多的不正常。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1637,3 +1637,11 @@ https://dengekionline.com/article/images/202405/4367/25724
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  koodooliz  
+##### 4610#       发表于 2024-5-13 18:06
+
+哈哈，觉得酸菜页游那套很好玩么
+

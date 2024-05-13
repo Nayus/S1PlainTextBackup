@@ -1160,3 +1160,32 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 老师是前偶像
 
+
+*****
+
+####  天王寺綯  
+##### 4561#       发表于 2024-5-13 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64903600&amp;ptid=2130897" target="_blank">花海佑芽 发表于 2024-5-13 11:40</a>
+没玩过类马娘和sc这种育成游戏，应该怎么玩</blockquote>
+课与肝！
+
+*****
+
+####  kirakira~  
+##### 4562#       发表于 2024-5-13 12:10
+
+毛球，好弱（第一感想
+
+比想象中还弱，这不会输灯吧
+
+再加上一点日花那种臭小孩的感觉
+
+*****
+
+####  ヒトニナル  
+##### 4563#       发表于 2024-5-13 12:12
+
+又可以带照片？
+梦回ip卷照片属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

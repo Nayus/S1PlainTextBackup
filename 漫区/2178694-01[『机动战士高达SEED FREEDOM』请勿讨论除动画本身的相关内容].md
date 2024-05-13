@@ -10125,3 +10125,19 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 而且最后一周特典居然这么好，估计可以再赚一亿多，看来有可能48
 
+
+*****
+
+####  死难者23er  
+##### 839#       发表于 2024-5-13 10:33
+
+<img src="https://img.saraba1st.com/forum/202405/13/103315q2zsfarb2pmqpsr2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2171.jpeg</strong> (267.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 10:33 上传
+
+现在还差1.6亿，还剩下10天看最后能不能靠这个特典拼一下48
+

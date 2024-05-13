@@ -1606,3 +1606,13 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 别的不说假日兔那个丑飞了的黑布也符合预期吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉像故意的黑红营销行为
 
+
+*****
+
+####  woodcoin  
+##### 1623#       发表于 2024-5-13 17:21
+
+符合预期结果 = 早就做好挨骂准备了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

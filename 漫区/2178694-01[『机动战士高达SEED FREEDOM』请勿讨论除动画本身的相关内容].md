@@ -10154,3 +10154,32 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 我还是想看一次基神在 ...</blockquote>
 我个人觉得meteor好听。
 
+
+*****
+
+####  ztgmeteor  
+##### 841#       发表于 2024-5-13 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64903015&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-5-13 10:57</a>
+
+我个人觉得meteor好听。</blockquote>
+主要是vestige是SF的专属BGM，重制版之后再看SF出场有着浓浓的违和感。
+
+剧场版用meteor可以理解，但不给vestige出场感觉还是有点遗憾。
+
+*****
+
+####  AraTurambar  
+##### 842#       发表于 2024-5-13 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64903615&amp;ptid=2178694" target="_blank">ztgmeteor 发表于 2024-5-13 11:41</a>
+
+主要是vestige是SF的专属BGM，重制版之后再看SF出场有着浓浓的违和感。
+
+剧场版用meteor可以理解，但不给v ...</blockquote>
+楼上说了，进入高潮占用的时间太长。
+
+那段演出展开得很急的，meteor显然更对节奏。
+
+vestige没露面是有点可惜。
+

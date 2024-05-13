@@ -13950,3 +13950,13 @@ hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛
 hiiragi好像是老牌上位势，跟magi组的甲子园队也进了全国大赛。</blockquote>
 MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精圆珠笔的Abyss玩消防栓玩得高
 
+
+*****
+
+####  Ryuuseigun  
+##### 4356#       发表于 2024-5-13 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64900766&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-5-13 01:47</a>
+代练到这么高分之后还能打pvp吗国内能上3k的也寥寥无几，就算是美服也不好打。美服高分段最大的问 ...</blockquote>
+我还特意去找了小红书这人没搜到，wb搜水印看了一眼后续，找代打这人说自己只打涂地<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/b67f30f68f8c4d81235c96f169ee7cbc/IMG_20240513_113549_355.jpg" referrerpolicy="no-referrer">
+

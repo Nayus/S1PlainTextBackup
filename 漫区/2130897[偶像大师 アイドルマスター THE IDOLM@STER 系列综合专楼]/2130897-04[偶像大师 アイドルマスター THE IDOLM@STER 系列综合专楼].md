@@ -1135,3 +1135,11 @@ cgss那时候是畅销榜钉子户，看看现在日区的排行榜想想就不�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  花海佑芽  
+##### 4558#       发表于 2024-5-13 11:40
+
+没玩过类马娘和sc这种育成游戏，应该怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

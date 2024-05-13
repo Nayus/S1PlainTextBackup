@@ -13960,3 +13960,12 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 代练到这么高分之后还能打pvp吗国内能上3k的也寥寥无几，就算是美服也不好打。美服高分段最大的问 ...</blockquote>
 我还特意去找了小红书这人没搜到，wb搜水印看了一眼后续，找代打这人说自己只打涂地<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/b67f30f68f8c4d81235c96f169ee7cbc/IMG_20240513_113549_355.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Teiume  
+##### 4357#       发表于 2024-5-13 12:45
+
+magiace看来是彻底工堕了啊，团工和肯师傅刷到377了。
+你能在任何地方看到magi除了他自己的直播间.jpg
+

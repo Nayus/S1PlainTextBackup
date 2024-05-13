@@ -10183,3 +10183,39 @@ meteor响起直接炸裂<img src="https://static.saraba1st.com/image/smiley/face
 
 vestige没露面是有点可惜。
 
+
+*****
+
+####  Piano-Forest  
+##### 843#         楼主| 发表于 2024-5-13 12:57
+
+第17弹最终观影特典为描绘剧场版结局之后的明信片(A6大小，全3种随机)，正面是福井构图平井久司绘新图、背面则是福田执笔的围绕此图的短篇故事
+
+🌟週替わり入場者プレゼント🌟
+
+いよいよ最後の入場者プレゼントです🌱
+
+⋱第𝟏𝟕弾🎊⋰
+
+￣￣￣￣￣￣￣￣￣
+
+🔹配布期間
+
+𝟓.𝟏𝟕㈮～
+
+🔹内容
+
+本作のその後を描いた
+
+アフターカットポストカード（ランダム全3種）
+
+＿＿＿＿＿＿＿＿＿
+
+『機動戦士ガンダム #SEEDFREEDOM』
+
+ついに劇場上映フィナーレ🎉
+<img src="https://p.sda1.dev/17/4e7b22733f3dbe682d9b1806d7ce5cb6/20240513_124825.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/630bf313116c8c80f51bb68a36351730/20240513_110651_p_o_17213981.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/4d240e062c6f9bbfb6ef2396f5966280/20240513_125232.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/58748fd18c605e6812557a16ca24c9a3/20240513_110652_p_o_71192800.jpg" referrerpolicy="no-referrer">
+

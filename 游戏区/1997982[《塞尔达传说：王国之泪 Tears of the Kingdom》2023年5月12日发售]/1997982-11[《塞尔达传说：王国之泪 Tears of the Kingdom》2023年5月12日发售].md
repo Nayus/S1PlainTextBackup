@@ -1718,3 +1718,11 @@ Papagenos hints at a new adventure game starring Zelda as the main playable char
 
 看到有人试图从美国购买，各种税费算下来一把剑300欧，这都能下单属实真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nma  
+##### 15784#       发表于 2024-5-13 18:41
+
+是个好消息，但感觉突破在于换装/妆，玩法方面没啥指望了。最期待的是把无双里的各种石板能力和武器拓展成全尺寸古墓丽影，毕竟是考古学家么不是，可惜做不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

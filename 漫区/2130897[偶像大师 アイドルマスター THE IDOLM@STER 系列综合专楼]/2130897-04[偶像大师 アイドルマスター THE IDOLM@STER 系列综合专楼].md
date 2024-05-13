@@ -1526,3 +1526,28 @@ haha，别忘了SC<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 莉波这特技，真就千雪—学mas版啊
 
+
+*****
+
+####  cckuku  
+##### 4600#       发表于 2024-5-13 16:32
+
+我没有玩过赛马娘，请问这个所谓的上限解放，是有通用道具解放的？还是只能通过吃同名卡解放的？
+
+IMG_3438.jpeg
+(277.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-13 16:31 上传
+
+<img src="https://img.saraba1st.com/forum/202405/13/163105eq6k9pr9xlbzk6qp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  840266848  
+##### 4601#       发表于 2024-5-13 16:36
+
+看了咲季的测评，挺详细。剧透也不多，不过中期果然妹妹就崭露头角，以及pv里的台词是在个人剧情也出现。虚假的天才一生一次的挣扎，好奇怎么写真天才妹妹打进决赛局
+

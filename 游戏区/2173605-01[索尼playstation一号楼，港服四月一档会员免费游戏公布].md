@@ -28,3 +28,13 @@
 据Jeff Grubb表示，PS Pro可能会在PS Showcase期间公布。另外，Sucker Punch可能会复活《狡狐大冒险》，这 ...</blockquote>
 彭博社的Jason Schreier辟谣了Sucker Punch没有在做《狡狐大冒险》，应该就是Jeff Grubb随口一提就被添油加醋传播出去了
 
+
+*****
+
+####  clyde-wang  
+##### 350#       发表于 2024-5-13 09:51
+
+这Pro没有啥换机的兴趣，现在PS5上都没什么让我感觉因为设备性能不足没法好好玩的游戏。厂家不做优化才是大问题
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

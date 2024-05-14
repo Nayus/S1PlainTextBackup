@@ -2682,3 +2682,11 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就是说，原版是符合一代发展的，一代就是不可阻挡+停止，发展100年加了个穿甲爆伤，结果2刀下来，没有不可阻挡，停止力可有可无
 
+
+*****
+
+####  ravend233  
+##### 4687#       发表于 2024-5-14 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的磁轨倒是能玩就是了，在机器人那边打无畏比较好使
+

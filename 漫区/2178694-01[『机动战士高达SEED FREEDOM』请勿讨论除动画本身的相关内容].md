@@ -10531,3 +10531,19 @@ vestige没露面是有点可惜。
 扎夫特我记得71年的时候连军衔都没有。而且每次大战最后某种意义上都变成了鸽派vs鹰派的内战，真要清算怕 ...</blockquote>
 我印像中PLANT的體制是參考蘇聯來設計的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 876#       发表于 2024-5-14 16:18
+
+<img src="https://img.saraba1st.com/forum/202405/14/161709egukfeseg06oaqzs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2184.jpeg</strong> (59.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 16:17 上传
+
+昨天阿古妮斯居然上搜了，先是最后什么事都没有，然后又来当飞鸟露娜的电灯泡，直接话题都拉满了，福田果然总调动观众情绪
+

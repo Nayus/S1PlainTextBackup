@@ -1992,3 +1992,11 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 开服一单想舒服不可能的，代哥明显不像这么良心的
 
+
+*****
+
+####  rgauss  
+##### 4646#       发表于 2024-5-14 09:38
+
+偶像游戏一点米都不爆不可能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算是单推 也不会让白嫖很轻松全持
+

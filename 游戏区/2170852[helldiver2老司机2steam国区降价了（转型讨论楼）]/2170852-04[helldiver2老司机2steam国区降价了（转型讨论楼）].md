@@ -2499,3 +2499,13 @@ n9杀效率不高，老外已经在号召大家一起去n3完成屠20e机器人�
 
 这几天是实在没啥新东西玩了，空爆火箭筒纯玩具，新债券也全是玩具，虽然多了毒和火这些老玩意儿玩，但还是没啥兴致，这游戏的更新不能说不勤快，但更出来的这些东西实在缺乏可玩性，不容易弄出把好玩的武器又给改没了
 
+
+*****
+
+####  暴走的包子  
+##### 4670#       发表于 2024-5-14 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打机器人鬼才想上线，还给个垃圾战备，他要是换成解包的飞鹰空空我都有兴趣打
+
+—— 來自 samsung SM-F9260, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

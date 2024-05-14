@@ -8145,3 +8145,25 @@ mooncell，chaldea网页端也能用
 这我知道，但你来个锐意制作中To the next 10 years也好啊，现在是连有没有这个项目都不知道。我感觉是没 ...</blockquote>
 毕竟上一个NEXT 10 YEARS的东西都没搞完嘛，怕是不敢现在就再用一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 12749#       发表于 2024-5-14 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64911611&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-5-14 02:53</a>
+
+这联动写得真好啊，月R之后我对蘑菇有一种写什么都能写成FGO的坏印象，结果这次给来了个在FGO里写了个原汁 ...</blockquote>
+去年就直球提过魔夜就算有续作应该也跟着现在在做的剧场版，也做成剧场版了，不会再做AVG了
+
+
+*****
+
+####  TheLoof  
+##### 12750#       发表于 2024-5-14 14:12
+
+你月现在出东西随意得很
+
+反正短期内都不会出，抱着希望等等也无所谓的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

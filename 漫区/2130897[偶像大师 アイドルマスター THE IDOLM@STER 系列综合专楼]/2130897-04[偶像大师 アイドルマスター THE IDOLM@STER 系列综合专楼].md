@@ -2018,3 +2018,20 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ronu  
+##### 4649#       发表于 2024-5-14 10:13
+
+S卡突破解放词条，有一种实家的亲切感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+这种制度下一般月卡党不太玩得动的，基本轻中氪起步
+马娘那边年投入2k到3k软妹币左右差不多是能维持正常体验，以5周年后超得和10选2聪明必频发作为基准
+
+*****
+
+####  zyxsqw  
+##### 4650#       发表于 2024-5-14 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">代哥手游最佳体验当然是当云玩家。
+

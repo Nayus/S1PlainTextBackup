@@ -5789,3 +5789,13 @@ mujica能不能搞点布莱克神话
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才不是那个black神话啊，是说威廉布莱克啦
 
+
+*****
+
+####  6030sylar  
+##### 16796#       发表于 2024-5-14 19:02
+
+<img src="https://p.sda1.dev/17/80d39c248a87fbfd1c93e11bd0cbd9fc/CMP_20240514190221043.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

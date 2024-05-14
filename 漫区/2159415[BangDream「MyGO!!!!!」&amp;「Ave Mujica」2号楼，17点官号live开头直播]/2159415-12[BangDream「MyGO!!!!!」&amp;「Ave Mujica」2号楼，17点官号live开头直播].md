@@ -5904,3 +5904,29 @@ mujica能不能搞点布莱克神话
 
 [https://twitter.com/Rainy_NEGI/status/1790375013570245030](https://twitter.com/Rainy_NEGI/status/1790375013570245030)
 
+
+*****
+
+####  御幸一也  
+##### 16806#       发表于 2024-5-14 23:59
+
+ 本帖最后由 御幸一也 于 2024-5-15 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64922310&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-14 23:41</a>
+
+看了一眼是挺搞的，跟风玩梗嘲立希差生也就算了一定要带一嘴花咲川中专水平烂把老角色也骂进去，被角色厨和 ...</blockquote>
+玩爛梗還不讓人生氣，一生氣就說粉絲玩不起，怎麼感覺10年前在lovelive我也品鑑過這種爛人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真是不管跑到哪個坑都躲不掉這些人
+
+
+*****
+
+####  dqtql  
+##### 16807#       发表于 2024-5-15 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921682&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-14 22:35</a>
+楼友们都加群了吗
+
+—— 来自 S1Fun</blockquote>
+啥群，带哥们一个
+

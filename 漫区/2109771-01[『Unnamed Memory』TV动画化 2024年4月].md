@@ -38,3 +38,13 @@
 
 本来挺沉重的情节被动画做出了搞笑效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">旋转镜头嗯捅太鬼畜了
 
+
+*****
+
+####  X(iaolw)S  
+##### 112#       发表于 2024-5-15 00:00
+
+居然不是断在牛头人的位置<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

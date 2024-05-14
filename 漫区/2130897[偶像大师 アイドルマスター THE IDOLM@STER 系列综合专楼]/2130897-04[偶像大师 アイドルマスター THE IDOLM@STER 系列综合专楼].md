@@ -2157,3 +2157,12 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 噢豁，狗叔今晚要搬服务器，封站到周末，我不能第一时间看漏油品学马仕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Achlys  
+##### 4662#       发表于 2024-5-15 00:19
+
+你楼也蛮久了有没有q群之类的？
+过两天游戏就能玩了，以前s1也有过关一周多的事情
+

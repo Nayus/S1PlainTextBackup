@@ -5961,3 +5961,13 @@ mujica能不能搞点布莱克神话
 
 不过上次去这里已经是好几年前了
 
+
+*****
+
+####  御幸一也  
+##### 16811#       发表于 2024-5-15 01:31
+
+原來是S1要維護，我說怎麼突然問這個<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不用QQ，有人用discord的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

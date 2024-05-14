@@ -6904,3 +6904,21 @@ NB极了
 
 网上漏出了新周边的图片，正在确认真实性
 
+
+*****
+
+####  holoan  
+##### 8795#         楼主| 发表于 2024-5-14 22:19
+
+大家开始很积极地挖以前直播时提到的各种魔法少女相关话题
+
+简直了，一抓一大把
+
+<img src="https://img.saraba1st.com/forum/202405/14/221718q1z9mffz2z5nmg5m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (348.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 22:17 上传
+

@@ -1637,3 +1637,11 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 [https://www.freestellarblade.com](https://www.freestellarblade.com)
 
+
+*****
+
+####  Schwarzess  
+##### 1626#       发表于 2024-5-15 07:38
+
+说起来我看有些日站攻略说豪华版特典的占星套普通版也可以二周目解锁，真的假的啊？
+

@@ -1963,3 +1963,12 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 预约活动今天开始分享卡面到推每张给10抽了，应该只要参与的都能抽满拿1000石头吧
 
+
+*****
+
+####  天王寺綯  
+##### 4643#       发表于 2024-5-14 09:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">开服一单就能玩舒服，做什么春秋大梦呢
+没有任何一个手游能够开服只要一单就能玩的舒服吧
+

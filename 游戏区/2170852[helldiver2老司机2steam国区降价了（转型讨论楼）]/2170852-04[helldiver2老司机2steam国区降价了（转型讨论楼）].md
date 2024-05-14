@@ -2525,3 +2525,11 @@ n9杀效率不高，老外已经在号召大家一起去n3完成屠20e机器人�
 
 ATAT学会处理方式了也比泰坦好处理我觉得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  icylight  
+##### 4673#       发表于 2024-5-14 14:18
+
+话说，地狱遣兵2为什么一直不公布销量？光是steam的评价数量都有几十万了，保守估计pc+ps5总销量几百万是肯定有的
+

@@ -8122,3 +8122,15 @@ mooncell，chaldea网页端也能用
 这联动写得真好啊，月R之后我对蘑菇有一种写什么都能写成FGO的坏印象，结果这次给来了个在FGO里写了个原汁 ...</blockquote>
 电影上映前是不可能出完月姬R的，那必然是之后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  被子十三  
+##### 12747#       发表于 2024-5-14 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64913329&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-5-14 10:17</a>
+电影上映前是不可能出完月姬R的，那必然是之后</blockquote>
+这我知道，但你来个锐意制作中To the next 10 years也好啊，现在是连有没有这个项目都不知道。我感觉是没有<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

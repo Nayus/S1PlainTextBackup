@@ -2725,3 +2725,11 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 二代改为战备，能对重甲停止杀伤，接着一顿幽默平衡
 
+
+*****
+
+####  FLZB  
+##### 4692#       发表于 2024-5-14 17:58
+
+更新又是各种崩溃修复，没劲，现在只想看平衡性改动，感觉比游戏好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

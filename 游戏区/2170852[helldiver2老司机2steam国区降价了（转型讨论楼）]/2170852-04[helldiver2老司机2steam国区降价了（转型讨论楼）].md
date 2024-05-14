@@ -2663,3 +2663,22 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就是说最早的版本 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这串回复就是他提的感觉平衡有问题，要约谈的那个推，前后文联系再搭配他那傻卵投票，我觉得还是别对他有期望最好
 
+
+*****
+
+####  Launce  
+##### 4686#       发表于 2024-5-14 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917102&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-14 15:42</a>
+
+最早版本磁轨炮和现在的差别是什么？
+
+伤害值？</blockquote>
+不止，除了高穿甲和对部位高伤，他还有高停止力
+
+第一个平衡砍了穿甲和部位伤害
+
+后面说加了穿甲，但没说加到什么地步，接着又把停止力砍了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就是说，原版是符合一代发展的，一代就是不可阻挡+停止，发展100年加了个穿甲爆伤，结果2刀下来，没有不可阻挡，停止力可有可无
+

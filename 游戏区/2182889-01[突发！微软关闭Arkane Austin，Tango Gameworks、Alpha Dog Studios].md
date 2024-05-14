@@ -2664,3 +2664,11 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 "Satya and the entire senior leadership team lean on Gates very significantly. His opinion is sought every time we make a major change."</blockquote>
 
+
+*****
+
+####  tureleona  
+##### 271#       发表于 2024-5-14 22:39
+
+话说tango死了中村育美这傻逼算不算重要原因，成了网红后撂摊子跑路导致幽灵线东京成现在这b样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

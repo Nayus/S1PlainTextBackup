@@ -2761,3 +2761,13 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 要是能造出新神削掉旧神倒也行</blockquote>
 上次补丁主武器两把新神，但是砍了爆裂狙这把旧神，你看行吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 4696#       发表于 2024-5-14 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64918949&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-14 18:15</a>
+上次补丁主武器两把新神，但是砍了爆裂狙这把旧神，你看行吗</blockquote>
+称不上神<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

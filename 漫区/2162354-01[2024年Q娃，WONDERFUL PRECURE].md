@@ -2029,3 +2029,17 @@ mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊 ...</b
 
 法q2怎么看都不像进展顺利的样子，这个3月就是个纯粹的死线吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千恋万花  
+##### 1472#       发表于 2024-5-14 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917397&amp;ptid=2162354" target="_blank">千恋万花 发表于 2024-5-14 16:05</a>
+
+这个应该是说本财年内吧，不是说 25 年 3 月份</blockquote>
+找了下[来源](https://data.swcms.net/file/toei-anim/dam/jcr:595a78b1-5490-469a-ae22-a1a10106e704/140120240513591654.pdf)，的确是财报里的
+
+单纯说明预计会在 2024 年 4 月 - 2025 年 3 月这一财年播出，不过连个 LOGO 之类的都没有，是不太乐观
+<img src="https://p.sda1.dev/17/9b3c7dcac589592267a202a31d0cadfd/image.png" referrerpolicy="no-referrer">
+

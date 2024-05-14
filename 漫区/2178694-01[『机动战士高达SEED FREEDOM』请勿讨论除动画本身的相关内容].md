@@ -10520,3 +10520,14 @@ vestige没露面是有点可惜。
 为什么海水浴会沾满砂子，真打野战啊了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">他们落地后脱光下水的呀，当然全是沙子
 
+
+*****
+
+####  gary76  
+##### 875#       发表于 2024-5-14 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64907473&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-13 17:42</a>
+
+扎夫特我记得71年的时候连军衔都没有。而且每次大战最后某种意义上都变成了鸽派vs鹰派的内战，真要清算怕 ...</blockquote>
+我印像中PLANT的體制是參考蘇聯來設計的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

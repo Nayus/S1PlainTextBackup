@@ -2126,3 +2126,14 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 可能因为这个P也是历代年龄最小的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Thalassa  
+##### 4659#       发表于 2024-5-14 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921714&amp;ptid=2130897" target="_blank">ヒトニナル 发表于 2024-5-14 23:38</a>
+
+可能因为这个P也是历代年龄最小的吧</blockquote>
+开除u149的话，是最小的了
+

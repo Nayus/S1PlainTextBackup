@@ -14086,3 +14086,13 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 4369#       发表于 2024-5-14 15:41
+
+按3代宣发一贯的尿性新赛季估计就是这两天哪个下午5点的普通宣发，续期啊第二贴牌什么的一概没有，有也是等6月直面会或者下赛季末<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

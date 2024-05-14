@@ -2586,3 +2586,80 @@ evil-bosse：我们的ceo在强力推进平衡的事情，开 ...</blockquote>
 <img src="https://img.feixue.cloud/2024/05/14/f89f0dd74af61.png" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">CEO可是觉得磁轨炮比EAT和无后坐力炮OP
 
+
+*****
+
+####  ravend233  
+##### 4678#       发表于 2024-5-14 15:36
+
+如果说最早版本那个磁轨炮，确实吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且他们可能真觉得磁轨用BUG杀泰坦是这玩意本身的数值优势（
+
+*****
+
+####  Mr.Hopp  
+##### 4679#       发表于 2024-5-14 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917009&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-14 15:34</a>
+
+CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
+过去式吧，没削弱前确实是很强。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4680#       发表于 2024-5-14 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917041&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-14 15:36</a>
+
+过去式吧，没削弱前确实是很强。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">5月9日，我觉得别指望这屌游戏的平衡了
+
+
+*****
+
+####  ravend233  
+##### 4681#       发表于 2024-5-14 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917053&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-14 15:38</a>
+
+5月9日，我觉得别指望这屌游戏的平衡了</blockquote>
+CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就是说最早的版本
+
+*****
+
+####  rainknine  
+##### 4682#       发表于 2024-5-14 15:42
+
+最早版本磁轨炮和现在的差别是什么？
+伤害值？
+
+
+*****
+
+####  Mr.Hopp  
+##### 4683#       发表于 2024-5-14 15:42
+
+现在磁轨炮大概是什么水平？记得还是加强了一次了。虽然我觉得磁轨就削弱备弹就行了。
+
+*****
+
+####  Mr.Hopp  
+##### 4684#       发表于 2024-5-14 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917102&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-14 15:42</a>
+
+最早版本磁轨炮和现在的差别是什么？
+
+伤害值？</blockquote>
+备弹20发，除了没法清杂中重甲啥都能打，伤害，穿甲，都能很高，还有打泰坦的BUG，两发打嘴能秒个泰坦，正常是要好几发。
+
+*****
+
+####  Launce  
+##### 4685#       发表于 2024-5-14 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917075&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-14 15:39</a>
+
+CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就是说最早的版本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这串回复就是他提的感觉平衡有问题，要约谈的那个推，前后文联系再搭配他那傻卵投票，我觉得还是别对他有期望最好
+

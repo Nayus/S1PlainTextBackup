@@ -1972,3 +1972,23 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">开服一单就能玩舒服，做什么春秋大梦呢
 没有任何一个手游能够开服只要一单就能玩的舒服吧
 
+
+*****
+
+####  伊布桑  
+##### 4644#       发表于 2024-5-14 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64912448&amp;ptid=2130897" target="_blank">天王寺綯 发表于 2024-5-14 09:02</a>
+开服一单就能玩舒服，做什么春秋大梦呢
+没有任何一个手游能够开服只要一单就能玩的舒服吧 ...</blockquote>
+你真要找的话甚至还有一些无课都能很舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然要求偶像游戏一点米都不爆也不太现实
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  raimouse  
+##### 4645#       发表于 2024-5-14 09:29
+
+开服一单想舒服不可能的，代哥明显不像这么良心的
+

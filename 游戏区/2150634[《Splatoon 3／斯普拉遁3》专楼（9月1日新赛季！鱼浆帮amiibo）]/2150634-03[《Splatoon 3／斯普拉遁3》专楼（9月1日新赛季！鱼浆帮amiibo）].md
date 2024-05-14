@@ -14112,3 +14112,28 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 打下来感觉大桥真的是目前最垃圾的图了，什么时候改
 
+
+*****
+
+####  DeltaStriker  
+##### 4372#       发表于 2024-5-14 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64920770&amp;ptid=2150634" target="_blank">晴岚 发表于 2024-5-14 20:56</a>
+打下来感觉大桥真的是目前最垃圾的图了，什么时候改</blockquote>
+因为真的完全没法绕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 就算是另一个知名＊图臭鱼干温泉还能稍微绕一点（
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  晴岚  
+##### 4373#       发表于 2024-5-14 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921126&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-5-14 21:31</a>
+
+因为真的完全没法绕 就算是另一个知名＊图臭鱼干温泉还能稍微绕一点（
+
+—— 来自 samsung SM-S90 ...</blockquote>
+大桥玩虎鱼碰到射程被压制的时候尤其恶心，对方领先了想突破简直难过登天，温泉的区域也是恶心至极
+

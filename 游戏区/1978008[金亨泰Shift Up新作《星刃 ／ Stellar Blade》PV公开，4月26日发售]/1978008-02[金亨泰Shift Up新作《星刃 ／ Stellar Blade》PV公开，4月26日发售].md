@@ -1616,3 +1616,14 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  光焰天下第一  
+##### 1624#       发表于 2024-5-14 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64819441&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-5 20:27</a>
+
+设置里的自动qte试过吗</blockquote>
+试过 打完boss后还有 跳过的是战斗过程中的qte，比如被boss抓了 和boss对砍。
+

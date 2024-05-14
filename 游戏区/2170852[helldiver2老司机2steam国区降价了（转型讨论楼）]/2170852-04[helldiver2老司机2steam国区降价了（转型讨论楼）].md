@@ -2771,3 +2771,13 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 上次补丁主武器两把新神，但是砍了爆裂狙这把旧神，你看行吗</blockquote>
 称不上神<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大肥鸽子  
+##### 4697#       发表于 2024-5-14 18:42
+
+离子和电喷局限性还是大了，泛用性远不如旧版爆裂铳<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

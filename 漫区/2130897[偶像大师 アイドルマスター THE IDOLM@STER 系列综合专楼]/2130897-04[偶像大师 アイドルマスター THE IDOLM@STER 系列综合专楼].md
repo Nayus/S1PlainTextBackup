@@ -2000,3 +2000,21 @@ IP我还玩的挺舒服的，希望坑别加料太多了<img src="https://static
 
 偶像游戏一点米都不爆不可能啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算是单推 也不会让白嫖很轻松全持
 
+
+*****
+
+####  cckuku  
+##### 4647#       发表于 2024-5-14 09:45
+
+又要抽角色又要抽支援卡还得同卡突破，这已经不是爆一点米的程度了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  安广多惠子  
+##### 4648#       发表于 2024-5-14 09:51
+
+如果有马娘那边的绿帽这样的前期百搭s卡的话就会舒服一点，当然也就一点，看目前透露出来的条件打TE可能没那么容易
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2572,3 +2572,17 @@ evil-bosse：我们的ceo在强力推进平衡的事情，开了好多会，还�
 
 刚刚公布
 
+
+*****
+
+####  Launce  
+##### 4677#       发表于 2024-5-14 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64916611&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-14 15:07</a>
+
+john schizo:如果主武器能不被砍得这么惨就好了，我球球了
+
+evil-bosse：我们的ceo在强力推进平衡的事情，开 ...</blockquote>
+<img src="https://img.feixue.cloud/2024/05/14/f89f0dd74af61.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">CEO可是觉得磁轨炮比EAT和无后坐力炮OP
+

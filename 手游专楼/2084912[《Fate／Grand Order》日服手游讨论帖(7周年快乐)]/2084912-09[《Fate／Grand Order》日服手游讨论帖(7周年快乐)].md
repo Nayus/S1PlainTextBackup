@@ -8167,3 +8167,20 @@ mooncell，chaldea网页端也能用
 反正短期内都不会出，抱着希望等等也无所谓的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  暗之谋者  
+##### 12751#       发表于 2024-5-14 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64911611&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-5-14 02:53</a>
+
+这联动写得真好啊，月R之后我对蘑菇有一种写什么都能写成FGO的坏印象，结果这次给来了个在FGO里写了个原汁 ...</blockquote>
+蘑菇写什么都能写成fgo X
+
+蘑菇故意把月R最后写成了FGO O
+
+蘑菇把月R写成这样的本意我觉得还是希望月姬不是止停留在了remake，还是想有后续的，那么必然要和整个世界设定有更紧密的联系。公主作为月世界绕不过去的角色就不可能弱，所以最后自然导向了学姐线最后的大战。
+
+其实月姬r里面志贵对时代变换的探讨，还有最后志贵和罗亚在椅子上的交谈，我觉得都能体现出蘑菇还是那个蘑菇，那种细腻感是没变的，无论是老月姬的调子也好，魔夜的调子也好，他现在都写得出来，问题只是在他的想法，愿不愿意去那么写而已。
+

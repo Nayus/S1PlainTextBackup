@@ -5950,3 +5950,14 @@ mujica能不能搞点布莱克神话
 我蒙圈的是老团人是怎么被牵连进来的，筑紫saya花音都是明牌成绩不错的吧，更别说masking和maya的成绩在 ...</blockquote>
 补充下，花音也是庆鹏的
 
+
+*****
+
+####  [皆神孝介]  
+##### 16810#       发表于 2024-5-15 00:40
+
+其实还有个Stage3rd
+[https://ac.stage3rd.com/forumTopicList.asp?id=1](https://ac.stage3rd.com/forumTopicList.asp?id=1)
+
+不过上次去这里已经是好几年前了
+

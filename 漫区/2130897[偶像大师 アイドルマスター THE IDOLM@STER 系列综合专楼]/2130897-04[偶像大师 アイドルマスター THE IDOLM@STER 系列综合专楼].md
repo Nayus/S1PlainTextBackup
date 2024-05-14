@@ -2035,3 +2035,11 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">代哥手游最佳体验当然是当云玩家。
 
+
+*****
+
+####  倉本千奈  
+##### 4651#       发表于 2024-5-14 19:14
+
+万南这种落后时代的日本大企业，抄别人的东西，那肯定是把💩点加倍啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

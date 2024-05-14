@@ -6844,3 +6844,39 @@ NB极了
 
 这个5（算上shion的话6）人组合除了歌之外确实想不出来还有什么重大发表，毕竟次次发翻唱，大概这次发原创曲吧但是这5个人一起唱歌想象不出来，或者说这5个人凑一起做什么其他事都想象不出来，莫名其妙的
 
+
+*****
+
+####  holoan  
+##### 8790#         楼主| 发表于 2024-5-14 20:39
+
+<img src="https://img.saraba1st.com/forum/202405/14/203853dav330b3p9cbmpv3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 20:38 上传
+
+发色的问题一开始很多人没认出来，确实有点问题
+
+*****
+
+####  holoan  
+##### 8791#         楼主| 发表于 2024-5-14 20:39
+
+这个企划好像很壮大，6个人只是主演还有其他holomem也参演
+
+*****
+
+####  holoan  
+##### 8792#         楼主| 发表于 2024-5-14 20:40
+
+<img src="https://img.saraba1st.com/forum/202405/14/204049j7mjg753s7swjvw7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 20:40 上传
+

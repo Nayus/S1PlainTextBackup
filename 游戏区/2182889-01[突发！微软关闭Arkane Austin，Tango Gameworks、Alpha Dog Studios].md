@@ -2672,3 +2672,14 @@ xbox主管刚刚接受了彭博社的采访：oIpc8VZ3Bnw
 
 话说tango死了中村育美这傻逼算不算重要原因，成了网红后撂摊子跑路导致幽灵线东京成现在这b样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ultraseven  
+##### 272#       发表于 2024-5-14 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921715&amp;ptid=2182889" target="_blank">tureleona 发表于 2024-5-14 22:39</a>
+
+话说tango死了中村育美这傻逼算不算重要原因，成了网红后撂摊子跑路导致幽灵线东京成现在这b样 ...</blockquote>
+幽灵线东京是PS5独占啊，你还不如和SE信者一样总结是独占费没给够的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

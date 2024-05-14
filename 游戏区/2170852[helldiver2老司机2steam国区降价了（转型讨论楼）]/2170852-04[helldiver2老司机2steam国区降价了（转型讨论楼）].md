@@ -2541,3 +2541,34 @@ ATAT学会处理方式了也比泰坦好处理我觉得<img src="https://static.
 
 不想打了，这几天差不多3把掉线1把，闪退1把，成功结算1把。n9都没打崩我，这玩意打崩我
 
+
+*****
+
+####  Mr.Hopp  
+##### 4675#       发表于 2024-5-14 15:07
+
+john schizo:如果主武器能不被砍得这么惨就好了，我球球了
+
+evil-bosse：我们的ceo在强力推进平衡的事情，开了好多会，还在约谈好多人
+
+希望有效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BadYanL  
+##### 4676#       发表于 2024-5-14 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64916019&amp;ptid=2170852" target="_blank">icylight 发表于 2024-5-14 14:18</a>
+
+话说，地狱遣兵2为什么一直不公布销量？光是steam的评价数量都有几十万了，保守估计pc+ps5总销量几百万是肯 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202405/14/150736dc8jdc3ejjqhcchq.png" referrerpolicy="no-referrer">
+
+<strong>image_2024-05-14_150732047.png</strong> (49.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 15:07 上传
+
+刚刚公布
+

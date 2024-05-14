@@ -1627,3 +1627,13 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 设置里的自动qte试过吗</blockquote>
 试过 打完boss后还有 跳过的是战斗过程中的qte，比如被boss抓了 和boss对砍。
 
+
+*****
+
+####  宛若青空  
+##### 1625#       发表于 2024-5-14 19:07
+
+国外网友做了个汇总星刃和谐的所有资料网站，有对比图等等，总计目前有8套
+
+[https://www.freestellarblade.com](https://www.freestellarblade.com)
+

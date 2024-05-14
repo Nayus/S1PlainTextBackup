@@ -8199,3 +8199,30 @@ mooncell，chaldea网页端也能用
 
 不过近几年魔夜也不会有续作就是了……
 
+
+*****
+
+####  被子十三  
+##### 12753#       发表于 2024-5-15 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917003&amp;ptid=2084912" target="_blank">暗之谋者 发表于 2024-5-14 15:34</a>
+蘑菇写什么都能写成fgo X
+
+蘑菇故意把月R最后写成了FGO O</blockquote>
+唉，我觉得蘑菇的视觉小说最出色的地方在于他能在构建一个大世界观的同时把大部分世界观藏起来，主角在前期只能瞥到这个世界的一小部分，整体的悬疑感很强。漫区的人很喜欢说的「日常和非日常的交织」其实就是归功于这个。
+
+那有悬疑篇必然就有解明篇，我不是不能理解蘑菇想要在表线结束的时候描绘一场酣畅淋漓的大战作为表线True End，但实际上就是以表线的这个内容量是撑不起结尾的大战的，特别是在学姐线里通过法国事变又挖了一堆大坑的情况下，这个结尾给人的感觉实在太过单薄。为什么这么多人喜欢学姐线的NE多过TE估计也有这个因素吧。
+
+要以FSN来类比的话就像是UBW中段C妈刚出现抢走人之后就突然跑步进入HF结局的失速感。
+
+— from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  被子十三  
+##### 12754#       发表于 2024-5-15 01:51
+
+不过归根结底还是蘑菇自己不出活，如果公主线来了个酣畅淋漓的TE之后玩家能接着进入窒息的里线的话还好，但事实上是玩家打完TE之后就进入了等下一个奥运会的心境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菌子真别写FGO了，FGO就交给大妈吧
+
+— from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

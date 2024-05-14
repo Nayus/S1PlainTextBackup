@@ -8134,3 +8134,14 @@ mooncell，chaldea网页端也能用
 
 — from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  DARKGRAY  
+##### 12748#       发表于 2024-5-14 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64915281&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-5-14 13:03</a>
+
+这我知道，但你来个锐意制作中To the next 10 years也好啊，现在是连有没有这个项目都不知道。我感觉是没 ...</blockquote>
+毕竟上一个NEXT 10 YEARS的东西都没搞完嘛，怕是不敢现在就再用一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

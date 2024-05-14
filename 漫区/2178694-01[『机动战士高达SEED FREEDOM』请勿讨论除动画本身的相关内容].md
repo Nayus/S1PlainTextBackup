@@ -10571,3 +10571,16 @@ vestige没露面是有点可惜。
 
 开头一股牛味后面大决战却乐得不行，廿年前咋没发现种这么弱智(褒义?)的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 879#       发表于 2024-5-15 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64906397&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-13 15:55</a>
+
+阿格尼斯回去后，按常理不立即吃花生米也应该先被扣押起来吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要看罗盘怎么定义这次事件了
+
+仔细复盘，这次事件就算写报告也是一大堆要涂黑的内容，估计和当年0083一样，档案封闭完事
+

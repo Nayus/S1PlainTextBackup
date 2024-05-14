@@ -2733,3 +2733,31 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 更新又是各种崩溃修复，没劲，现在只想看平衡性改动，感觉比游戏好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 4693#       发表于 2024-5-14 18:09
+
+要是能造出新神削掉旧神倒也行
+
+*****
+
+####  WGTCorp  
+##### 4694#       发表于 2024-5-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917703&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-14 16:33</a>
+磁轨当时OP的原因是因为筒子不能一发牛两发泰坦。现在buff的磁轨直伤600，不蓄力5穿蓄力8穿，筒子直伤650伤 ...</blockquote>
+磁轨的600伤害是虚的，吃完减伤要掉一大截，体现就是筒子爆头秒杀的坦克虫，磁轨炮半天打不死。
+
+
+*****
+
+####  Mr.Hopp  
+##### 4695#       发表于 2024-5-14 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64918888&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-5-14 18:09</a>
+
+要是能造出新神削掉旧神倒也行</blockquote>
+上次补丁主武器两把新神，但是砍了爆裂狙这把旧神，你看行吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

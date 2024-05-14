@@ -2082,3 +2082,13 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 来骗，来偷袭
 
+
+*****
+
+####  Achlys  
+##### 4655#       发表于 2024-5-14 22:02
+
+広那句我听着好像是“除了我以外，(居然)还有朋友吗？”
+没有朋友和小偶像是对方的唯一的关系性好香<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+应该也能解释成作为大学生的p在高中部没啥熟人，或者是事业狂全心全意放在p小偶像上，没啥私人时间？
+

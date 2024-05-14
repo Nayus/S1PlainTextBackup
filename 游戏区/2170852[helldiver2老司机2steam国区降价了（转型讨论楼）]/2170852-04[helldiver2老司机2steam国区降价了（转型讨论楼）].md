@@ -2481,3 +2481,13 @@ n9杀效率不高，老外已经在号召大家一起去n3完成屠20e机器人�
 
 这游戏已经玩不下去了，上次平衡大更和绑定psn两个逆天大活后国人肉眼可见的少了很多，现在天天被弱智（字面意义上的，有时我真怀疑网线对面坐着的是个真弱智）鬼佬折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dfbbymice  
+##### 4668#       发表于 2024-5-14 08:11
+
+昨晚上野队难九莫名奇妙的掉线，根本没法好好玩一整局，我掉回船里大概5次左右之后直接关游了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

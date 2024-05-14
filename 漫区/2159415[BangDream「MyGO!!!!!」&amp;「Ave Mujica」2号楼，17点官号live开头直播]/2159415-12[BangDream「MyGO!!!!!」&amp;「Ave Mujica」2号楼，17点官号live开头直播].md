@@ -5864,3 +5864,43 @@ mujica能不能搞点布莱克神话
 
 看了一眼是挺搞的，跟风玩梗嘲立希差生也就算了一定要带一嘴花咲川中专水平烂把老角色也骂进去，被角色厨和姨姥拿设定反驳，说不过就说人玩不起再转进立希厨素质不行难怪人气低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 16803#       发表于 2024-5-14 23:50
+
+大鼓生贺最先到齐的是sumimi，你们有没有这样的sumimi啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/14/235044bvuwdwaaaucdz8ea.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (119.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 23:50 上传
+
+*****
+
+####  太二EricGuo  
+##### 16804#       发表于 2024-5-14 23:54
+
+这楼有难民群？
+
+*****
+
+####  御幸一也  
+##### 16805#       发表于 2024-5-14 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/14/235521odtjdgsdc3sx2jas.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240514-133401_1790375013570245030_photo.jpg</strong> (128.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-14 23:55 上传
+
+[https://twitter.com/Rainy_NEGI/status/1790375013570245030](https://twitter.com/Rainy_NEGI/status/1790375013570245030)
+

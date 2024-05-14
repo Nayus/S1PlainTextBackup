@@ -2137,3 +2137,15 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 可能因为这个P也是历代年龄最小的吧</blockquote>
 开除u149的话，是最小的了
 
+
+*****
+
+####  Unlight  
+##### 4660#         楼主| 发表于 2024-5-14 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64922290&amp;ptid=2130897" target="_blank">Thalassa 发表于 2024-5-14 23:39</a>
+开除u149的话，是最小的了</blockquote>
+米内P只是长得年轻，比赤羽根P和源P大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

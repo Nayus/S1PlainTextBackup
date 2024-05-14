@@ -10509,3 +10509,14 @@ vestige没露面是有点可惜。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">六月份隔壁村的影院也排片了，走起
 
+
+*****
+
+####  太极八爪鱼  
+##### 874#       发表于 2024-5-14 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64905791&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-12 22:58</a>
+
+为什么海水浴会沾满砂子，真打野战啊了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">他们落地后脱光下水的呀，当然全是沙子
+

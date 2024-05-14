@@ -2517,3 +2517,11 @@ n9杀效率不高，老外已经在号召大家一起去n3完成屠20e机器人�
 
 解锁了焦土感觉打机器人挺爽的，特别是磁轨打无畏。打n6够了，没有atat基本不会翻车
 
+
+*****
+
+####  ravend233  
+##### 4672#       发表于 2024-5-14 10:16
+
+ATAT学会处理方式了也比泰坦好处理我觉得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

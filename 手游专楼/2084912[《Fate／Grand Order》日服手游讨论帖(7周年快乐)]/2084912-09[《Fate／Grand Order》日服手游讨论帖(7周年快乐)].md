@@ -8111,3 +8111,14 @@ mooncell，chaldea网页端也能用
 
 — from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  DARKGRAY  
+##### 12746#       发表于 2024-5-14 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64911611&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-5-14 02:53</a>
+
+这联动写得真好啊，月R之后我对蘑菇有一种写什么都能写成FGO的坏印象，结果这次给来了个在FGO里写了个原汁 ...</blockquote>
+电影上映前是不可能出完月姬R的，那必然是之后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

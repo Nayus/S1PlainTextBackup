@@ -5799,3 +5799,11 @@ mujica能不能搞点布莱克神话
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  rikaren  
+##### 16797#       发表于 2024-5-14 21:02
+
+鼓手高考应援视频底下果然有玩烂梗的，立希逃学学渣二创形象入脑就够那啥了，居然还把老团带上了，这算是欺负别人鼓手粉丝少吗
+

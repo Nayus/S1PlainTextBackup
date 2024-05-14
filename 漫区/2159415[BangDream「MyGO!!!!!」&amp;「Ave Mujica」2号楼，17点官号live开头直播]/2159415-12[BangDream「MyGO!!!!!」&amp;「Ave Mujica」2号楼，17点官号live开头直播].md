@@ -5828,3 +5828,15 @@ mujica能不能搞点布莱克神话
 鼓手高考应援视频底下果然有玩烂梗的，立希逃学学渣二创形象入脑就够那啥了，居然还把老团带上了，这算是欺 ...</blockquote>
 祥子人氣高粉絲也多，不是也一樣被玩爛梗嗎，就是某些人賤而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 16800#       发表于 2024-5-14 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921682&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-14 22:35</a>
+楼友们都加群了吗
+
+—— 来自 S1Fun</blockquote>
+啊？什么群
+

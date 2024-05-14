@@ -2809,3 +2809,22 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 刚刚玩了一局运ssd，不知道房主不会玩还是怎么了，拿到两个ssd以后带着ssd的队友不去上传点，而是到处乱走，最后还退了，最后剩我一个居然勉强过了，我一个人带不了两块ssd，只能运两次，真的是险象环生，好在上传数据时又有人加进来了，不然我一个人真没办法在枪林弹雨里调整天线，主线完成后倒计时也结束了，被机器人碾着屁股往飞机狂奔，最后居然全员生还了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yzqray  
+##### 4701#       发表于 2024-5-14 23:19
+
+离子喷是西线t0，清杂无敌
+东线现在没t0，没一把武器可以同时做到清杂和反中甲
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rainknine  
+##### 4702#       发表于 2024-5-14 23:20
+
+这两天才意识到超级硬盘简写sssd
+致敬传奇主机ps5的sssssssssd<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

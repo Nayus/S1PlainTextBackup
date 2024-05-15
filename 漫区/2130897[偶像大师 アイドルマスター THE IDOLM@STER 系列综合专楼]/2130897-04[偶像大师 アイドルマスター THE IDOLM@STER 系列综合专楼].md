@@ -2188,3 +2188,25 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Anatoly  
+##### 4665#       发表于 2024-5-15 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921258&amp;ptid=2130897" target="_blank">虚无缥缈的光阴 发表于 2024-5-14 21:47</a>
+
+话说看剧透的对话内容怎么小偶像都问学p是不是没有朋友啊，难道又是友少那套吗，学p该不会真没有朋友吧[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有朋友就不用写同学了好吧
+
+
+*****
+
+####  harukage  
+##### 4666#       发表于 2024-5-15 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921516&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-14 22:16</a>
+
+难道不是因为学马P目前来看可能是历代P里最creepy最屑的么</blockquote>
+这个对话我怎么感觉像是p对小黄的贫穷程度感到震惊啊（没见过这么穷的
+

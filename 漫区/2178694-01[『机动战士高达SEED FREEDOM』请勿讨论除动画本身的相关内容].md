@@ -10594,3 +10594,11 @@ vestige没露面是有点可惜。
 
 是不是OVA要补一下强自被夺事件了？
 
+
+*****
+
+####  洛克萨斯  
+##### 881#       发表于 2024-5-15 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sf配色的飞升自由捍卫者背包形态感觉要排上日程了吧，现在那个不好看啊
+

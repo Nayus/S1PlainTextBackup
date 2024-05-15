@@ -2936,3 +2936,14 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  赤井稻妻  
+##### 4712#       发表于 2024-5-15 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924966&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-15 10:24</a>
+
+不尬黑的话，1代备弹150，射速780，改战备后备弹和射速都加强了</blockquote>
+2级穿甲太尴尬了，打机器人和烧火棍无异，打虫子遇到几个指挥官在场也会打得很难受
+

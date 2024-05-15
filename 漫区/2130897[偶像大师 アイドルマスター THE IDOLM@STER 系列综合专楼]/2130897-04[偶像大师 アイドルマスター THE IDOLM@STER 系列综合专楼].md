@@ -2218,3 +2218,17 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学p感觉如果在s1有号的话，鹅一定是负的
 
+
+*****
+
+####  Unlight  
+##### 4668#         楼主| 发表于 2024-5-15 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924682&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-15 10:00</a>
+学p感觉如果在s1有号的话，鹅一定是负的</blockquote>
+粪海狂蛆巨魔是吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+不过泥潭巨魔也有可能是高鹅吧<img src="https://static.saraba1st.com/image/smiley/goose2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1657,3 +1657,11 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  apefrank  
+##### 1628#       发表于 2024-5-15 08:22
+
+为啥网上很多文章管这游戏叫剑星？和名字的意思不是完全反过来吗
+

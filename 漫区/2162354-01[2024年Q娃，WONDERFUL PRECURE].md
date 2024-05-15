@@ -2043,3 +2043,11 @@ mayu这集咋还恐高了，前面猫抱着你跑路的时候你没恐啊 ...</b
 单纯说明预计会在 2024 年 4 月 - 2025 年 3 月这一财年播出，不过连个 LOGO 之类的都没有，是不太乐观
 <img src="https://p.sda1.dev/17/9b3c7dcac589592267a202a31d0cadfd/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1473#       发表于 2024-5-15 10:03
+
+反正我是觉得等未来生日那天吧，要是那天再没消息那就是咕咕咕了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

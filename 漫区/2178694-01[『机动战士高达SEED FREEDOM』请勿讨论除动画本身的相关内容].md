@@ -10602,3 +10602,27 @@ vestige没露面是有点可惜。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sf配色的飞升自由捍卫者背包形态感觉要排上日程了吧，现在那个不好看啊
 
+
+*****
+
+####  永恒的王牌  
+##### 882#       发表于 2024-5-15 10:00
+
+什么黑暗组织，笑出声
+
+<img src="https://img.saraba1st.com/forum/202405/15/100021aziexigjhqzsnoin.jpg" referrerpolicy="no-referrer">
+
+<strong>8355dac5gy1hpowp32kqpj21qs2bc1kx.jpg</strong> (864.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-15 10:00 上传
+
+<img src="https://img.saraba1st.com/forum/202405/15/100023h9cckopbupo6pqfo.jpg" referrerpolicy="no-referrer">
+
+<strong>8355dac5gy1hpowp34emcj21qs2bc4qp.jpg</strong> (960.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-15 10:00 上传
+

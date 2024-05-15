@@ -2210,3 +2210,11 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 难道不是因为学马P目前来看可能是历代P里最creepy最屑的么</blockquote>
 这个对话我怎么感觉像是p对小黄的贫穷程度感到震惊啊（没见过这么穷的
 
+
+*****
+
+####  patema  
+##### 4667#       发表于 2024-5-15 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学p感觉如果在s1有号的话，鹅一定是负的
+

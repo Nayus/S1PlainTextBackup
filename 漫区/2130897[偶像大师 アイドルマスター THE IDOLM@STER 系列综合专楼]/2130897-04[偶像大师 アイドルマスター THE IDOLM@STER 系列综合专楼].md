@@ -2240,3 +2240,28 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 
 16号几点开服有人知道🐎
 
+
+*****
+
+####  raimouse  
+##### 4670#       发表于 2024-5-15 12:16
+
+一般没写几点的都是见步行事的，鬼子特有只要我不说就是没有开服事故。说起来鬼子还有些公司的抽象事前下载，只下载本体数据包还是得等开服后下
+
+
+*****
+
+####  rgauss  
+##### 4671#       发表于 2024-5-15 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">周末见
+
+*****
+
+####  Seeley  
+##### 4672#       发表于 2024-5-15 12:25
+
+怎么这样<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">居然看不到漏油品鉴直播
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

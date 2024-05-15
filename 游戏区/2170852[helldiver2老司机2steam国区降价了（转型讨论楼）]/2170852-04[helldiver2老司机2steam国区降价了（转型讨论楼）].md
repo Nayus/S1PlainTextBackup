@@ -2913,3 +2913,26 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 星际元帅钦定之机炮，100%部位破坏比例，高速战术装填，反中型之标杆武器</blockquote>
 盟友：在想我的事？
 
+
+*****
+
+####  Launce  
+##### 4710#       发表于 2024-5-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924815&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-15 10:11</a>
+
+盟友：在想我的事？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不尬黑的话，1代备弹150，射速780，改战备后备弹和射速都加强了
+
+*****
+
+####  looptube  
+##### 4711#       发表于 2024-5-15 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924083&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-15 09:10</a>
+星际元帅钦定之机炮，100%部位破坏比例，高速战术装填，反中型之标杆武器</blockquote>
+空爆火箭筒直击穿甲等级是6？？？
+但是因为引信触发机制导致它不可能直击任何目标！！！
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

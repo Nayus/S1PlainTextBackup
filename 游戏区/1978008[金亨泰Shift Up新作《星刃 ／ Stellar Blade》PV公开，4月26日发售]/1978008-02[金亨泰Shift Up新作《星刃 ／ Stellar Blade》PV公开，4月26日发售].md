@@ -1645,3 +1645,15 @@ https://gamewith.jp/stellarblade/447319 参考一下吧</blockquote>
 
 说起来我看有些日站攻略说豪华版特典的占星套普通版也可以二周目解锁，真的假的啊？
 
+
+*****
+
+####  rainsheep  
+##### 1627#       发表于 2024-5-15 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64923472&amp;ptid=1978008" target="_blank">Schwarzess 发表于 2024-5-15 07:38</a>
+说起来我看有些日站攻略说豪华版特典的占星套普通版也可以二周目解锁，真的假的啊？ ...</blockquote>
+占星套就是镂空套换色而已，二周目给的是套白色换色款。豪华版的金色没有。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

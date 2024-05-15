@@ -2890,3 +2890,26 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 高贵的4级穿打牛牛以下都是满伤
 
+
+*****
+
+####  赤井稻妻  
+##### 4708#       发表于 2024-5-15 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924445&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-5-15 09:42</a>
+
+可以试试激光大炮，除了不能反重甲和炸巢啥都能干
+
+高贵的4级穿打牛牛以下都是满伤 ...</blockquote>
+虫子普遍2甲，不需要4级穿就满伤，推荐激光大炮还不如用喷火器，还能打牛
+
+*****
+
+####  赤井稻妻  
+##### 4709#       发表于 2024-5-15 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64924083&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-15 09:10</a>
+
+星际元帅钦定之机炮，100%部位破坏比例，高速战术装填，反中型之标杆武器</blockquote>
+盟友：在想我的事？
+

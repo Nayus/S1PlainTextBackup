@@ -5998,3 +5998,15 @@ mujica能不能搞点布莱克神话
 
 已绑定，谢谢
 
+
+*****
+
+####  footmanpon  
+##### 16815#       发表于 2024-5-15 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64921682&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-14 22:35</a>
+楼友们都加群了吗
+
+—— 来自 S1Fun</blockquote>
+有群吗有群吗，想学习一下s1的go学成果
+

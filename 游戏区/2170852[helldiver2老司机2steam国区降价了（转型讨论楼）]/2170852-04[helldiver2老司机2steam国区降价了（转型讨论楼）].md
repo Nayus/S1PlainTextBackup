@@ -2966,3 +2966,16 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 
 解包数据表[https://docs.qq.com/sheet/DS25ybHRKaHhZWlhn?tab=000001](https://docs.qq.com/sheet/DS25ybHRKaHhZWlhn?tab=000001) <blockquote>我还发现了很多武器的离谱数值，比如重机枪全弹总伤和反器材差不多，这意味着重机枪和反器材的单体斩杀总量是相近的，重机枪作为一个拉枪缓慢，换弹罚站，后座上天的武器，结果上限和各种灵活的反器材一样，太离谱了……</blockquote>
 
+
+*****
+
+####  赤井稻妻  
+##### 4715#       发表于 2024-5-15 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64925166&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-15 10:44</a>
+
+1代也差不多，不过这作改战备给了100备弹+高射速，上场率和实用性比前作好多了
+
+1代打生化还能打打 ...</blockquote>
+这作盟友也就作为爆裂铳的小弟的时候有他个位置，主要是能做的事太少了，爆裂铳没了也就没他事了，大部分人宁愿带护卫犬也不愿意带盟友
+

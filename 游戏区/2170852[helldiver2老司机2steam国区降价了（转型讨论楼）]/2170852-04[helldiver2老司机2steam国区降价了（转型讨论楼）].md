@@ -2947,3 +2947,22 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 不尬黑的话，1代备弹150，射速780，改战备后备弹和射速都加强了</blockquote>
 2级穿甲太尴尬了，打机器人和烧火棍无异，打虫子遇到几个指挥官在场也会打得很难受
 
+
+*****
+
+####  Launce  
+##### 4713#       发表于 2024-5-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64925044&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-15 10:32</a>
+
+2级穿甲太尴尬了，打机器人和烧火棍无异，打虫子遇到几个指挥官在场也会打得很难受 ...</blockquote>
+1代也差不多，不过这作改战备给了100备弹+高射速，上场率和实用性比前作好多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1代打生化还能打打小狗，这代已经完全飞升确实不太行
+
+*****
+
+####  Launce  
+##### 4714#       发表于 2024-5-15 10:47
+
+解包数据表[https://docs.qq.com/sheet/DS25ybHRKaHhZWlhn?tab=000001](https://docs.qq.com/sheet/DS25ybHRKaHhZWlhn?tab=000001) <blockquote>我还发现了很多武器的离谱数值，比如重机枪全弹总伤和反器材差不多，这意味着重机枪和反器材的单体斩杀总量是相近的，重机枪作为一个拉枪缓慢，换弹罚站，后座上天的武器，结果上限和各种灵活的反器材一样，太离谱了……</blockquote>
+

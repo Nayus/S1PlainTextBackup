@@ -2867,3 +2867,26 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 东线现在没t0，没一把武器可以同时做到清杂和反中甲</blockquote>
 火喷吧，放烟花直接烧光小虫子，效率甚至高过几乎所有支援武器，打指挥官5发爆头，除了喷毒虫什么都能打
 
+
+*****
+
+####  洛拉斯  
+##### 4706#       发表于 2024-5-15 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917041&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-14 15:36</a>
+过去式吧，没削弱前确实是很强。</blockquote>
+以前是主机结算bug多段计算了伤害
+
+
+*****
+
+####  洛拉斯  
+##### 4707#       发表于 2024-5-15 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64922090&amp;ptid=2170852" target="_blank">yzqray 发表于 2024-5-14 23:19</a>
+离子喷是西线t0，清杂无敌
+东线现在没t0，没一把武器可以同时做到清杂和反中甲</blockquote>
+可以试试激光大炮，除了不能反重甲和炸巢啥都能干
+
+高贵的4级穿打牛牛以下都是满伤
+

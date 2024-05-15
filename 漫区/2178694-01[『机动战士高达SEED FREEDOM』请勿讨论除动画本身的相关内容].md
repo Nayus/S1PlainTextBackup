@@ -10638,3 +10638,19 @@ vestige没露面是有点可惜。
 是不是OVA要补一下强自被夺事件了？ ...</blockquote>
 是的，这个福田提到过，小说作者也提到过
 
+
+*****
+
+####  死难者23er  
+##### 884#       发表于 2024-5-15 11:15
+
+<img src="https://img.saraba1st.com/forum/202405/15/111419i6635e87isxsike7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2189.jpeg</strong> (500.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-15 11:14 上传
+
+居然追加了福山润，不过这个角色是剧场版人物人气最高的声优也是高人气，剧场把和基拉的关系也很好，一天追加一个，不知道剩下两个是谁
+

@@ -2178,3 +2178,13 @@ S卡突破解放词条，有一种实家的亲切感<img src="https://static.sar
 过两天游戏就能玩了，以前s1也有过关一周多的事情</blockquote>
 官方dc的简中频道有人建了q群就是了：859778249
 
+
+*****
+
+####  伊布桑  
+##### 4664#       发表于 2024-5-15 08:32
+
+已经看到一些広的过激同人图了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">官方公认m还是太有冲击力了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

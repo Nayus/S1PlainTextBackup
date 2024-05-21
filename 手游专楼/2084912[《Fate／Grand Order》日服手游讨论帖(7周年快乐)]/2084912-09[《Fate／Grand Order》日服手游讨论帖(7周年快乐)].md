@@ -8226,3 +8226,199 @@ mooncell，chaldea网页端也能用
 
 — from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  khxooo  
+##### 12755#       发表于 2024-5-19 15:37
+
+辣鸡街机联动国服打完又来一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12756#       发表于 2024-5-19 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64926493&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-5-19 15:37</a>
+
+辣鸡街机联动国服打完又来一次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是还有一个复课 不要不知好歹!
+
+*****
+
+####  yyzcacxg  
+##### 12757#       发表于 2024-5-19 18:46
+
+联动结束前最后一天用完最后3颗圣晶石单抽终于抽出有珠，魔夜联动完结，你们三个在迦过好日子比啥都重要。到周年庆前没法再碰卡池了，可惜兽尼禄只有1宝也不能补宝了。
+
+*****
+
+####  UNISONIA  
+##### 12758#       发表于 2024-5-19 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64923028&amp;ptid=2084912" target="_blank">被子十三 发表于 2024-5-15 01:51</a>
+
+不过归根结底还是蘑菇自己不出活，如果公主线来了个酣畅淋漓的TE之后玩家能接着进入窒息的里线的话还好，但 ...</blockquote>
+奏2的态度来说樱井不像是打算接盘
+
+东出这几年的态度已经够明确了，积极寻求别的工作
+
+*****
+
+####  khxooo  
+##### 12759#       发表于 2024-5-21 01:08
+
+打算抽2个4星的，谁知道210石头2宝剑魔总、顺便歪一个杰克，两个4星都到手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12760#       发表于 2024-5-21 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64946750&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-5-21 01:08</a>
+
+打算抽2个4星的，谁知道210石头2宝剑魔总、顺便歪一个杰克，两个4星都到手了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是欧洲人 半夜欧羡慕
+
+
+*****
+
+####  qixinno2  
+##### 12761#       发表于 2024-5-21 01:34
+
+<blockquote>khxooo 发表于 2024-5-21 01:08
+打算抽2个4星的，谁知道210石头2宝剑魔总、顺便歪一个杰克，两个4星都到手了 ...</blockquote>
+欧 羡慕
+
+*****
+
+####  希望之花  
+##### 12762#       发表于 2024-5-21 02:20
+
+等泳装从者和复刻了，去年没有抽到泳装巴万希
+
+*****
+
+####  都谷捻柏  
+##### 12763#       发表于 2024-5-21 12:30
+
+想日常用一用牢青，是不是得去抽水妖兰，水伊吹的np根本驾驭不了牢青啊。
+
+*****
+
+####  qixinno2  
+##### 12764#       发表于 2024-5-21 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何必呢 让青子在仓库里吃灰吧
+
+*****
+
+####  清河子  
+##### 12765#       发表于 2024-5-21 13:19
+
+青子我纯靠刷魔夜本的后排老板位满绊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 12766#       发表于 2024-5-21 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64950900&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-5-21 12:30</a>
+
+想日常用一用牢青，是不是得去抽水妖兰，水伊吹的np根本驾驭不了牢青啊。 ...</blockquote>
+你为了一个仓管，去抽一个在水伊吹下班前也是一直当仓管的
+
+何苦呢，不如直接带宝石翁，又省钱又省事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 12767#       发表于 2024-5-21 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有额外培养的水妖兰运营还是有喂饭的，但是我实在不是很想喂她杯子
+
+*****
+
+####  森兰丸  
+##### 12768#       发表于 2024-5-21 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">有80自充和不错的NP回收率的水妖兰都是仓管了么.....
+
+*****
+
+####  TheLoof  
+##### 12769#       发表于 2024-5-21 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64951941&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-21 14:10</a>
+
+有80自充和不错的NP回收率的水妖兰都是仓管了么.....</blockquote>
+这是个阈值问题，也不奇怪吧
+
+如果大家都只能打40np，那你送80np是稳赢
+
+问题是能打到80甚至超过100，那你多出来这点NP转成伤害不是更好吗
+
+更别说人一开始就说他有水伊吹啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12770#       发表于 2024-5-21 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64951941&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-21 14:10</a>
+
+有80自充和不错的NP回收率的水妖兰都是仓管了么.....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹豹你会用吗！
+
+*****
+
+####  森兰丸  
+##### 12771#       发表于 2024-5-21 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64952243&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-5-21 14:34</a>
+
+豹豹你会用吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在活动就在用水妖兰作通解打手....等出了90++本后再换
+
+*****
+
+####  希望之花  
+##### 12772#       发表于 2024-5-21 14:43
+
+我的一宝仇尼托升到一百级带宝石翁已经冲了一年了，最新剧情章里还有仇阶加成继续冲
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 12773#       发表于 2024-5-21 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64952075&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-5-21 14:21</a>
+
+这是个阈值问题，也不奇怪吧
+
+如果大家都只能打40np，那你送80np是稳赢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">水伊吹我没抽...不合XP
+
+水妖兰的伤害也不低啊.....打狂本就不用说了....就算白字伤害只要不是90++本一般来说也是绰绰有余
+
+拿来对付一般本足够了
+
+*****
+
+####  TheLoof  
+##### 12774#       发表于 2024-5-21 15:10
+
+ 本帖最后由 TheLoof 于 2024-5-21 15:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64952333&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-5-21 14:44</a>
+
+水伊吹我没抽...不合XP
+
+水妖兰的伤害也不低啊.....打狂本就不用说了....就算白字伤害只要不是90++本一般 ...</blockquote>
+单飞是没问题啊，可是水伊吹作为一个上位版本
+
+为了扶青子你让人重新抽一个下位版这是否有点浪费资金了，不至于不至于
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6010,3 +6010,282 @@ mujica能不能搞点布莱克神话
 —— 来自 S1Fun</blockquote>
 有群吗有群吗，想学习一下s1的go学成果
 
+
+*****
+
+####  御幸一也  
+##### 16816#       发表于 2024-5-19 15:34
+
+回來了，我的巨魔論壇<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16817#       发表于 2024-5-19 15:35
+
+新曲真的好異域風情，總之ave沒有綁死在金屬曲風上是一件好事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  akirakira  
+##### 16818#       发表于 2024-5-19 15:39
+
+新曲风格耳目一新啊，早该这么搞了别惦记那长谷川了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16819#       发表于 2024-5-19 15:41
+
+<img src="https://img.saraba1st.com/forum/202405/19/154116a4ykoq53osyov6zy.jpg" referrerpolicy="no-referrer">
+
+<strong>cdcc19df9c82d1583360f28cc60a19d8bd3e4270.jpg</strong> (229.37 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-19 15:41 上传
+
+*****
+
+####  stygian  
+##### 16820#       发表于 2024-5-19 15:57
+
+🐶一首比一首无聊🐔倒是突然开窍了，新曲整这种视觉系爱搞的dark cabaret好像还真能指望模仿malice mizer整首<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16821#       发表于 2024-5-19 16:31
+
+已经开始期待后面三首了
+
+*****
+
+####  御幸一也  
+##### 16822#       发表于 2024-5-19 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">如果每一次都不同的曲風……期待
+
+*****
+
+####  kivz  
+##### 16823#       发表于 2024-5-19 17:16
+
+ 本帖最后由 kivz 于 2024-5-19 17:24 编辑 
+
+阿？！有新曲<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+惭愧，听完啥都记不得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 16824#       发表于 2024-5-19 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这次新曲还挺有意思的
+
+*****
+
+####  御景  
+##### 16825#       发表于 2024-5-19 18:04
+
+ 本帖最后由 御景 于 2024-5-19 18:15 编辑 
+
+复活，周末还加班了，我还以为至少要到周一。
+
+网页上怎么不能放大比例了，现在放大比例，右边要拖过去才能显示。
+
+我是木耳，只感觉新曲听着更欢快些，有不同的曲风就很好。
+
+*****
+
+####  紫吹兰  
+##### 16826#         楼主| 发表于 2024-5-19 18:16
+
+幽默网易云
+
+QQ图片20240518201511.jpg
+(462.32 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-19 18:16 上传
+
+<img src="https://img.saraba1st.com/forum/202405/19/181658z4cl44e4kt4kid1l.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16827#       发表于 2024-5-19 18:39
+
+活了
+
+新曲风格好啊，听到堕天的时候就想要这样一首，终于有了
+
+最适合做成动画的一集，曲风变了那MV能不能也动一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 16828#       发表于 2024-5-19 18:41
+
+新曲挺好听，曲风融合很不错
+
+这shuffle爽了
+
+就是这吉他一堆前附点后十六，鼓一大堆三连音，贝斯弹得跟吉他一样
+
+又是军训曲是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 16829#       发表于 2024-5-19 18:56
+
+这就是中华炮吗（）
+
+QQ图片20240519185525.png
+(138.19 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-19 18:55 上传
+
+<img src="https://img.saraba1st.com/forum/202405/19/185543p575tuha879571g0.png" referrerpolicy="no-referrer">
+
+QQ图片20240519185527.png
+(970.94 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-19 18:55 上传
+
+<img src="https://img.saraba1st.com/forum/202405/19/185545d0zrcp1pcs0stm00.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16830#       发表于 2024-5-19 19:03
+
+新歌神似少歌的gang star，这才是舞台剧团该有的风味，下一首能不能来点你鬼我鬼的风格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16831#       发表于 2024-5-19 19:11
+
+ag来摩卡，感觉有点地狱
+
+*****
+
+####  CyDiablo  
+##### 16832#       发表于 2024-5-19 19:51
+
+不算中华炮吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">周年特别直播去年，前年和大前年都有<img src="https://p.sda1.dev/17/65bb7682175bcabf7eb1bfbf4e163804/Screenshot_20240519_195045.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 16833#       发表于 2024-5-19 20:36
+
+傍晚看其他版块，有坛友反映评分系统似乎有问题，最近大家还是不要加鹅了吧
+
+*****
+
+####  nebulanoby  
+##### 16834#       发表于 2024-5-19 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64926452&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-19 15:35</a>
+新曲真的好異域風情，總之ave沒有綁死在金屬曲風上是一件好事</blockquote>
+没绑在金属上面是好事×
+SL这水平就别惦记硬核金属了吧✓
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御幸一也  
+##### 16835#       发表于 2024-5-19 23:53
+
+是我們節奏組<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/19/235330fae110n1h0arqqe1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_안녕(@pink22_21)_20240519-123541_1792172271358062989_photo.jpg</strong> (189.92 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-19 23:53 上传
+
+[https://x.com/pink22_21/status/1792172271358062989](https://x.com/pink22_21/status/1792172271358062989)
+
+*****
+
+####  笋干爆炸碱  
+##### 16836#       发表于 2024-5-20 09:56
+
+终于活了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 16837#       发表于 2024-5-20 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64929711&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-5-19 19:11</a>
+
+ag来摩卡，感觉有点地狱</blockquote>
+唯一的成员了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  後藤正文  
+##### 16838#       发表于 2024-5-20 23:45
+
+怎么又来中国了
+
+*****
+
+####  ddy2811  
+##### 16839#       发表于 2024-5-21 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64946220&amp;ptid=2159415" target="_blank">後藤正文 发表于 2024-5-20 23:45</a>
+
+怎么又来中国了</blockquote>
+之前宣过的打牌活动随机掉落啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asion617  
+##### 16840#       发表于 2024-5-21 15:02
+
+感觉只刷到过她来, 没刷到过有人打牌遇到啊
+
+
+*****
+
+####  九陌狂游  
+##### 16841#       发表于 2024-5-21 17:34
+
+<img src="https://img.saraba1st.com/forum/202405/21/173317r9h7u414zyubvuzu.jpg" referrerpolicy="no-referrer">
+
+<strong>img_8998.jpg</strong> (640.4 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-21 17:33 上传
+
+是专门来大陆推广武士道那个b卡牌游戏的，接下来广州和深圳还各有一场
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

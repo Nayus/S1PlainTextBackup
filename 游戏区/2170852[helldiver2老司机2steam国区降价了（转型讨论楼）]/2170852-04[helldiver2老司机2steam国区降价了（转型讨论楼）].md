@@ -2997,3 +2997,167 @@ CEO用词是过去式，提问的也是希望把磁轨加强回去，大概就�
 这作盟友也就作为爆裂铳的小弟的时候有他个位置，主要是能做的事太少了，爆裂铳没了也就没他事了，大部分 ...</blockquote>
 其实只要把贴上来的那一波扫完就能拉开距离用爆裂铳炸了，所以我到后面都是带机枪防身，毕竟机枪伤害更高，150发也足够扫完面前的虫子换爆裂铳了，换弹可以去安全的地方。
 
+
+*****
+
+####  xinfengj  
+##### 4718#       发表于 2024-5-20 11:20
+
+圆周率刷怪令还挺稳定的，一天半36%了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这次结束后的索尼发布会再不整个大活儿有点说不过去了。
+
+*****
+
+####  ravend233  
+##### 4719#       发表于 2024-5-20 11:41
+
+从四月初起其实就没有太多实质性的内容更新了，新债券又是几把幽默武器和一把玩具，六月还在摸鱼那长草期就太长了
+
+*****
+
+####  FROST1997  
+##### 4720#       发表于 2024-5-20 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64917009&amp;ptid=2170852" target="_blank">Launce 发表于 2024-5-14 15:34</a>
+
+CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
+让他和制作人打几个难度9再说。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山风短  
+##### 4721#       发表于 2024-5-20 15:07
+
+是不是烂完了，有人看看日活掉到多少了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  burgerWang  
+##### 4722#       发表于 2024-5-20 15:17
+
+<img src="https://img.saraba1st.com/forum/202405/20/151723yqt1sfs1pyqng3pq.jpg" referrerpolicy="no-referrer">
+
+<strong>{7783620D-B734-0DD9-3566-C3EEFA4B7F9B}.jpg</strong> (36.06 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-20 15:17 上传
+
+昨天的个人指令是飞鹰500KG炸200个敌人，坐实了箭头运营不玩游戏了
+
+*****
+
+####  萨伊苏  
+##### 4723#       发表于 2024-5-20 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64940860&amp;ptid=2170852" target="_blank">burgerWang 发表于 2024-5-20 15:17</a>
+
+昨天的个人指令是飞鹰500KG炸200个敌人，坐实了箭头运营不玩游戏了</blockquote>
+专门去做其实也还行，有500KG战备试验，守发电机任务配合电磁迫击炮两把就做完了
+
+*****
+
+####  Launce  
+##### 4724#       发表于 2024-5-20 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64940739&amp;ptid=2170852" target="_blank">山风短 发表于 2024-5-20 15:07</a>
+
+是不是烂完了，有人看看日活掉到多少了吗</blockquote>
+<img src="https://img.feixue.cloud/2024/05/20/74316db975d20.png" referrerpolicy="no-referrer">
+<img src="https://img.feixue.cloud/2024/05/20/6b0ec763d3c29.png" referrerpolicy="no-referrer">
+
+月线平均略微下滑，3月线就很明显了
+
+*****
+
+####  ravend233  
+##### 4725#       发表于 2024-5-20 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64940860&amp;ptid=2170852" target="_blank">burgerWang 发表于 2024-5-20 15:17</a>
+
+昨天的个人指令是飞鹰500KG炸200个敌人，坐实了箭头运营不玩游戏了</blockquote>
+打虫子，往烟丢500有时候能一波炸几十个人头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 4726#       发表于 2024-5-20 17:10
+
+看鬼佬视频才发现镰刀55点伤害能两枪爆头蹂躏者，而125点伤害的勤勉却做不到一枪秒，byd箭头怕不是填的假数值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 4727#       发表于 2024-5-20 17:24
+
+看5天之后有啥东西吧，这游戏我就算每天想出一套新配装拿去打，也早就打腻了
+
+*****
+
+####  ravend233  
+##### 4728#       发表于 2024-5-20 17:26
+
+索尼的发布会是啥时候来着，应该发布会之前都没有活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  风萧飒  
+##### 4729#       发表于 2024-5-20 19:27
+
+好像23号吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinfengj  
+##### 4730#       发表于 2024-5-21 00:50
+
+<img src="https://p.sda1.dev/17/73ce685323b516e60752a413429bc890/20240521_004815.jpg" referrerpolicy="no-referrer">
+飞矛：孩子们我回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stormquantage  
+##### 4731#       发表于 2024-5-21 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64946685&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-21 00:50</a>
+
+飞矛：孩子们我回来了</blockquote>
+然后打出去炸膛，或者xjb锁<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 4732#       发表于 2024-5-21 01:50
+
+锁定修了也没吊用，打个怪角度不对得玩杂技，还没法确保击杀<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 4733#       发表于 2024-5-21 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64946893&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-21 01:50</a>
+锁定修了也没吊用，打个怪角度不对得玩杂技，还没法确保击杀</blockquote>
+昨晚打防守捡了队友飞毛，三发2泰坦一牛爽到了，自己带就各种锁不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 4734#       发表于 2024-5-21 13:44
+
+飞矛理论上应该是终极反重甲，但实际上因为bug成了娱乐武器
+
+*****
+
+####  赤井稻妻  
+##### 4735#       发表于 2024-5-21 13:59
+
+飞矛也没很终极，主要是射程够远，一旦被牛贴身了就是搞笑武器。
+

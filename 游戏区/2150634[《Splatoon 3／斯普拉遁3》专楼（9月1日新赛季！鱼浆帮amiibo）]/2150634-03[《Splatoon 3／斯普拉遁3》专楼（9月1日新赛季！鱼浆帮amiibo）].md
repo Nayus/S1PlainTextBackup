@@ -14147,3 +14147,423 @@ MAGIACE上位势人缘好到不可思议，明明消防栓最高XP还没专精�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4375#       发表于 2024-5-19 15:41
+
+贴牌审查者疑似配置：雨帘+螃蟹坦克
+
+最强加特林？T0级武器？抱歉，鹦鹉螺，我可能要换主力了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星野航  
+##### 4376#       发表于 2024-5-19 16:05
+
+贴牌审查者这一脸无敌的模样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 4377#       发表于 2024-5-19 16:05
+
+贴牌审查者这一脸无敌的模样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DeltaStriker  
+##### 4378#       发表于 2024-5-19 16:17
+
+无限正义打不赢强袭自由.jpg<img src="https://p.sda1.dev/17/6b6fd4575391e85a34d24cd5abf6ee4a/CMP_20240519161644238.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蓝色的眷念  
+##### 4379#       发表于 2024-5-19 19:23
+
+三色进攻真适合玩浴缸，乱泼
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 4380#       发表于 2024-5-19 21:08
+
+蓝队简直是无止境的内战地狱，为什么每次都能选到这种阵营
+
+*****
+
+####  幽香  
+##### 4381#       发表于 2024-5-19 22:26
+
+这次我蓝队打上永远一次内战都没遇到啊。
+
+*****
+
+####  藏獒·烨  
+##### 4382#       发表于 2024-5-19 22:34
+
+蓝队太凶了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  墨染白泉  
+##### 4383#       发表于 2024-5-19 22:54
+
+三色又是进攻方碾压局，在靠近中场的部位就能打到防守方家里，不去拿信标都能赢
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4384#       发表于 2024-5-19 22:55
+
+泥潭终于活了，这期工真舒服随随便便就康了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Pumpkin_ccc  
+##### 4385#       发表于 2024-5-19 23:07
+
+可算恢复了，PV出想来看看，结果一直炸到现在
+
+期待贴牌审查者和栓啊，雨帘+螃蟹的审查者<img src="https://static.saraba1st.com/image/smiley/face/55.gif" referrerpolicy="no-referrer">
+
+不知道贴牌栓是墨墙还是气球，绿色方墨墙和气球都有，不好判断
+
+*****
+
+####  carroy  
+##### 4386#       发表于 2024-5-19 23:22
+
+网一掉禁赛十分钟就给我排神秘队友<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 4387#       发表于 2024-5-19 23:26
+
+全是躺平等死和及时行乐派，根本没什么拯救派，看样子大家都差不多......
+
+*****
+
+####  Ryuuseigun  
+##### 4388#       发表于 2024-5-20 01:56
+
+说起来三色夺宝没打的记得打，看赛季PV大概率是没有更新续摊了，没有祭典复刻的话三色夺宝的彩徽章金徽章就成为旧版X徽章之后的第二个你游绝版徽章，反正我游戏出来玩到现在还没有金的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这模式真的无聊到不想打
+
+*****
+
+####  laosai13  
+##### 4389#       发表于 2024-5-20 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64934327&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-20 01:56</a>
+
+说起来三色夺宝没打的记得打，看赛季PV大概率是没有更新续摊了，没有祭典复刻的话三色夺宝的彩徽章金徽章就 ...</blockquote>
+旧版x徽章还有吧，你打到前3k不管哪个服都会给
+
+*****
+
+####  绿冰  
+##### 4390#         楼主| 发表于 2024-5-20 08:57
+
+ 本帖最后由 绿冰 于 2024-5-20 09:54 编辑 
+<blockquote>laosai13 发表于 2024-5-20 02:12
+旧版x徽章还有吧，你打到前3k不管哪个服都会给</blockquote>
+手机版UI还是有点问题，回错人了
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4391#       发表于 2024-5-20 09:19
+
+周末斗技场金工，又能康一张图了
+
+*****
+
+####  绿冰  
+##### 4392#         楼主| 发表于 2024-5-20 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64934327&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-5-20 01:56</a>
+
+说起来三色夺宝没打的记得打，看赛季PV大概率是没有更新续摊了，没有祭典复刻的话三色夺宝的彩徽章金徽章就 ...</blockquote>
+你在担心最不需要担心的233，而且金章不难拿啊
+
+谭里不少人第一第二次祭典就肝完了
+
+*****
+
+####  秋月孝三  
+##### 4393#       发表于 2024-5-20 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个星球，没有拯救的价值.jpg
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shirolin  
+##### 4394#       发表于 2024-5-20 10:06
+
+蓝队赢了
+
+Screenshot_20240520-100153.png
+(663.39 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-20 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202405/20/100543iy0yn2z3ec0yp255.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幽香  
+##### 4395#       发表于 2024-5-20 10:07
+
+曼曼终于赢了
+
+*****
+
+####  墨染白泉  
+##### 4396#       发表于 2024-5-20 10:22
+
+不容易
+
+*****
+
+####  KBAC  
+##### 4397#       发表于 2024-5-20 11:01
+
+我已经能想象到新刀实装之后一局八把刀的场景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4398#       发表于 2024-5-20 11:20
+
+新刀看上去没那么强，研究所这代做的最成功的武器就是电锯和铅笔了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗克萨斯  
+##### 4399#       发表于 2024-5-20 11:27
+
+贴牌审查者也很成功，要防守有防守，要输出有输出，迫不及待想看Naegora拿它冲击4500了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xgazer  
+##### 4400#       发表于 2024-5-20 11:34
+
+打得晚了，夜里还在打的就那几个难兄难弟，打到两点才康<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DeltaStriker  
+##### 4401#       发表于 2024-5-20 11:48
+
+你说得对 但是我就是想玩居合.jpg
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  martinium  
+##### 4402#       发表于 2024-5-20 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64937807&amp;ptid=2150634" target="_blank">Kiyohara_Yasuke 发表于 2024-5-20 11:20</a>
+新刀看上去没那么强，研究所这代做的最成功的武器就是电锯和铅笔了
+
+论坛助手,iPhone ...</blockquote>
+铅笔不行的，就靠一手涂地无脑加极其有限的饮料选项。随便动一下马上跌落神坛。电锯是已经被削了好多次了还依然坚挺。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  秋月孝三  
+##### 4403#       发表于 2024-5-20 16:54
+
+ 本帖最后由 秋月孝三 于 2024-5-20 17:04 编辑 
+
+新刀看PV里主要问题是没有纵斩导致对高台压制力不行，除非居合在平地上的性能无敌否则没什么前途
+
+亚种盾背包，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 4404#       发表于 2024-5-20 17:08
+
+不是，这蓄力斩范围也太广了吧，就是蓄力时间长多少暂时还没实感
+
+*****
+
+####  KBAC  
+##### 4405#       发表于 2024-5-20 17:10
+
+ 本帖最后由 KBAC 于 2024-5-20 17:12 编辑 
+
+贴牌太刀雨帘飞机，什么源氏缝法鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太刀还能架盾的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  秋月孝三  
+##### 4406#       发表于 2024-5-20 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至紫金的配色还是奥利奥太刀的配色
+
+*****
+
+####  墨染白泉  
+##### 4407#       发表于 2024-5-20 17:14
+
+新刀演示视频肉眼可见的强和帅
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4408#       发表于 2024-5-20 17:19
+
+不是，新刀判定这么大的？这不妥妥的无敌<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 4409#       发表于 2024-5-20 17:21
+
+新刀目测射程比电锯差一截，无纵斩，但是横斩判定貌似更大，居合超帅，大热武器预定！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  绿冰  
+##### 4410#         楼主| 发表于 2024-5-20 17:29
+
+蓄力时间感觉和电锯没什么差别，射程感觉蓄力一丁点都不加，比电锯蓄力短，但换来特别大的横斩范围，像个人形三角雷233
+
+*****
+
+####  oi99o  
+##### 4411#       发表于 2024-5-20 17:56
+
+怎么这也能登顶趋势的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/20/175631jokft1wu1eutugw6.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-05-20 175628.png</strong> (21.46 KB, 下载次数: 0)
+
+下载附件
+
+ 保存到相册
+
+2024-5-20 17:56 上传
+
+*****
+
+####  hisousihou  
+##### 4412#       发表于 2024-5-20 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">居合爽但是和比电锯更依赖地图地形。电锯在某些地形很难受，牙刷更加了。
+
+*****
+
+####  墨染白泉  
+##### 4413#       发表于 2024-5-20 18:09
+
+雨帘太刀有啥对策呢，正面打完全近不了身吧，绕到侧面也挺难
+
+*****
+
+####  Humpy  
+##### 4414#       发表于 2024-5-20 18:31
+
+太刀看着好爽，无论如何也要练练，哪怕自己菜。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pumpkin_ccc  
+##### 4415#       发表于 2024-5-20 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64942181&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-5-20 17:10</a>
+
+贴牌太刀雨帘飞机，什么源氏缝法鸡
+
+太刀还能架盾的</blockquote>
+水月架势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 4416#       发表于 2024-5-20 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64943085&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-5-20 18:35</a>
+
+水月架势</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有圆月。太刀正统在喷3
+
+*****
+
+####  清浦刹那  
+##### 4417#       发表于 2024-5-20 21:06
+
+太刀，长泡，审查者
+
+不知道谁能笑到最后。
+
+*****
+
+####  nor000  
+##### 4418#       发表于 2024-5-20 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个月没玩了，该回来杵拐了
+
+*****
+
+####  KBAC  
+##### 4419#       发表于 2024-5-21 17:08
+
+竹狙碳酸烟花
+竹伞毒雾砸地
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  墨染白泉  
+##### 4420#       发表于 2024-5-21 17:13
+
+两个下水道
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4421#       发表于 2024-5-21 17:21
+
+まだスプラ4がある！頑張れ和傘使い！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

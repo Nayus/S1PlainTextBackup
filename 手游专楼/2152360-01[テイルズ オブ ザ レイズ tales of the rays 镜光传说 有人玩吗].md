@@ -655,3 +655,14 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？</blockquote>
 去年就判死刑了，这新模式根本拉不起来
 
+
+*****
+
+####  枫紫  
+##### 74#       发表于 2024-5-21 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955429&amp;ptid=2152360" target="_blank">法拉 发表于 2024-5-21 19:06</a>
+
+去年就判死刑了，这新模式根本拉不起来</blockquote>
+那玩意很明显本来是准备新开一个手游硬装进rays的，也无所谓啦。我是觉得挺好玩的，但是要看脸刷技能就比较智障所以后来没怎么玩
+

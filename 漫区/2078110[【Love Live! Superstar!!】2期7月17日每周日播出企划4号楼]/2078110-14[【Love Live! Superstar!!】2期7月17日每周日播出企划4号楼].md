@@ -366,3 +366,16 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 
 翻了自己的历史发言找到了，[https://bbs.nga.cn/thread.php?au ... rchpost=1&amp;fid=0](https://bbs.nga.cn/thread.php?authorid=37297490&amp;searchpost=1&amp;fid=0) 这位老哥，他水贴也不多你可以慢慢翻
 
+
+*****
+
+####  csolfans  
+##### 20202#       发表于 2024-5-22 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958263&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-21 23:22</a>
+
+最糟糕的是我连虹楼还是星楼都忘了
+
+翻了自己的历史发言找到了，https://bbs.nga.cn/thread.php?authorid ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">谢谢坛友。我发现live Staff结合动画Staff能看到更多有趣东西，明天写下
+

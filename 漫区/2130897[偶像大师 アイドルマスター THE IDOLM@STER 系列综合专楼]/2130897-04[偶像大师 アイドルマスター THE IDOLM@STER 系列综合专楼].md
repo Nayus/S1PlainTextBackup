@@ -4769,3 +4769,23 @@ p了把3144属性的莉莉娅，结果差200 A+。真的难受，有种因为自
 
 起床再看04 step吧，我总感觉美琴if卡要比较平淡了<img src="https://static.saraba1st.com/image/smiley/carton2017/450.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  l3r0nY@  
+##### 4887#       发表于 2024-5-22 02:53
+
+IFhnn：黛小姐 觉得现在幸福吗？
+IF忽悠：怎么说呢 也可以说算是吧 呵呵
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kirakira~  
+##### 4888#       发表于 2024-5-22 02:54
+
+个人觉得sc很多时候能力也没到敢写且写的好，但是敢写对我来说就已经很够了。不过于极端也不单纯包饺子，游走在暧昧的边境线上用有时候可以说是幼稚的方法去走不同的路
+
+有时候，只要存在在那里就是好的
+

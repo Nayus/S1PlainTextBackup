@@ -1,0 +1,223 @@
+﻿
+*****
+
+####  noHentai  
+##### 1567#       发表于 2024-5-19 19:13
+
+坐等更新惹
+
+*****
+
+####  与天争锋_LZ  
+##### 1568#       发表于 2024-5-19 19:14
+
+同等
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红炉灰  
+##### 1569#       发表于 2024-5-19 19:50
+
+还不如传mega，这夸克不装下不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dalarmar  
+##### 1570#       发表于 2024-5-19 20:11
+
+今天论坛重开后频繁闪退
+
+*****
+
+####  Evomenon  
+##### 1571#       发表于 2024-5-19 20:19
+
+等更新
+
+*****
+
+####  pgain2004  
+##### 1572#       发表于 2024-5-19 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64930181&amp;ptid=1220112" target="_blank">红炉灰 发表于 2024-5-19 19:50</a>
+
+还不如传mega，这夸克不装下不了
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+[https://mega.nz/file/ZFtFxKZC#yK ... a7QKA2dMOWPLcpYRKVQ](https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 红炉灰| + 1||
+
+查看全部评分
+
+*****
+
+####  红炉灰  
+##### 1573#       发表于 2024-5-19 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64931002&amp;ptid=1220112" target="_blank">pgain2004 发表于 2024-5-19 20:45</a>
+
+https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</blockquote>
+好好好
+
+*****
+
+####  三尖酸努努  
+##### 1574#       发表于 2024-5-19 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64931002&amp;ptid=1220112" target="_blank">pgain2004 发表于 2024-5-19 20:45</a>
+https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</blockquote>
+这是最新的吗，好像bug还在啊
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  翻车堪比吃饭  
+##### 1575#       发表于 2024-5-19 22:06
+
+怪事。我现在用3.0α，回帖能准确定位了，头像加载不出来。2.5.4是头像全部能加载但是别人回我帖子的提醒点进去定位永远不准。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pgain2004  
+##### 1576#       发表于 2024-5-19 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64932096&amp;ptid=1220112" target="_blank">三尖酸努努 发表于 2024-5-19 22:02</a>
+
+这是最新的吗，好像bug还在啊
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+看文件名，还是5月5那个，只不过因为楼上想要mega的就传了一份
+
+论坛更新后一堆移动页面有问题，通过抓取方式实现的那些地方自然也会出问题，加上作者工作比较忙，再加上官方本身也会继续修论坛，估计还得等。先看看哪些bug是最急迫的吧
+
+*****
+
+####  pgain2004  
+##### 1577#       发表于 2024-5-19 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64932170&amp;ptid=1220112" target="_blank">翻车堪比吃饭 发表于 2024-5-19 22:06</a>
+
+怪事。我现在用3.0α，回帖能准确定位了，头像加载不出来。2.5.4是头像全部能加载但是别人回我帖子的提醒点 ...</blockquote>
+定位那个明显是因为每楼帖子数量导致的
+
+*****
+
+####  翻车堪比吃饭  
+##### 1578#       发表于 2024-5-19 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64932393&amp;ptid=1220112" target="_blank">pgain2004 发表于 2024-5-19 22:21</a>
+定位那个明显是因为每楼帖子数量导致的</blockquote>
+那没办法，确实我去的那几个帖子数量都挺多。3.0能解决这个问题还是挺惊奇的，同样的几个帖子。
+
+—— 来自 Xiaomi 24031PN0DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  千千千千鸟  
+##### 1579#       发表于 2024-5-19 23:33
+
+鹅球3.0可以直接app里检查更新吗，还是说有个github页面啥的？
+
+*****
+
+####  河水  
+##### 1580#       发表于 2024-5-20 00:34
+
+没法看到自己的发帖历史了
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  itsmyrailgun  
+##### 1581#       发表于 2024-5-20 02:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我的发帖历史变成我好友们的发帖历史了，救一救
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sevenzerofive  
+##### 1582#       发表于 2024-5-20 12:35
+
+我这是发帖历史和坛友的头像都不显示嘞
+
+*****
+
+####  shinnfin  
+##### 1583#       发表于 2024-5-20 12:38
+
+刚开的时候还是好好的
+为啥出bug了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  带头大哥威尔士  
+##### 1584#       发表于 2024-5-20 14:21
+
+3.0A看不见发帖历史 头像 小黑屋
+
+*****
+
+####  gaosf  
+##### 1585#       发表于 2024-5-21 11:55
+
+ 本帖最后由 gaosf 于 2024-5-21 11:59 编辑 
+
+3.0.0α版，点进帖子里再切出app到其他界面之后app会闪退。
+刚这个帖点完发送之后app也闪退了。
+
+*****
+
+####  Nanachi  
+##### 1586#       发表于 2024-5-21 16:33
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/zip.gif" referrerpolicy="no-referrer">
+
+3.0.0.80-alpha.apk.zip
+(6.88 MB, 下载次数: 260)
+
+2024-5-21 16:33 上传
+
+点击文件名下载附件
+
+搬运群内最新版，建议有需要的及时加群 
+
+522433035
+
+*****
+
+####  三尖酸努努  
+##### 1587#       发表于 2024-5-21 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64953719&amp;ptid=1220112" target="_blank">Nanachi 发表于 2024-5-21 16:33</a>
+搬运群内最新版，建议有需要的及时加群 
+
+522433035</blockquote>
+感谢，用了下最新版，头像能显示了，但看不到自己发帖、回帖和小黑屋的bug好像还在
+
+
+*****
+
+####  三尖酸努努  
+##### 1588#       发表于 2024-5-21 19:54
+
+最新版好像还多了个新bug，一点投票就闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

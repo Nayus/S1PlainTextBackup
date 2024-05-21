@@ -1,0 +1,133 @@
+﻿
+*****
+
+####  月夜凝雪  
+##### 324#       发表于 2024-5-19 16:27
+
+这一话起码表现出了其他人是真的都有机会赢的，那么之后主角赢的时候就没有那么唐突
+
+*****
+
+####  KDConan  
+##### 325#       发表于 2024-5-19 16:46
+
+要换新车了吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  X(iaolw)S  
+##### 326#       发表于 2024-5-19 19:54
+
+赛季报废（腰斩）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  最强惠酱  
+##### 327#       发表于 2024-5-19 21:28
+
+看得真是憋屈，赢不了就算了，各种智障操作导致上不了台没有一点体育运动的爽快感，不如隔壁自行车一毛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  按时间灵活  
+##### 328#       发表于 2024-5-19 21:35
+
+原来还有人看自行车
+
+*****
+
+####  zayrq  
+##### 329#       发表于 2024-5-19 21:35
+
+这烂片，要不是有堀江就弃了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 330#       发表于 2024-5-19 21:38
+
+自行车那每集都洗澡比这观感差吧，这里女主前两集跑第五算超常发挥了，这集撞车退赛才是正常水平（当然观感也差
+
+*****
+
+####  KDConan  
+##### 331#       发表于 2024-5-20 00:07
+
+我认为对比之下还是竞轮更差一些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这三集训练营就讲了那么一点破事
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  最强惠酱  
+##### 332#       发表于 2024-5-20 00:40
+
+ 本帖最后由 最强惠酱 于 2024-5-20 07:35 编辑 
+
+风怒
+
+*****
+
+####  最强惠酱  
+##### 333#       发表于 2024-5-20 00:43
+
+ 本帖最后由 最强惠酱 于 2024-5-20 07:35 编辑 
+
+风怒
+
+*****
+
+####  最强惠酱  
+##### 334#       发表于 2024-5-20 00:43
+
+竞轮即使画面一坨可对体育根的阐述还是挺打动我的，毕竟是完全不了解的运动且这么一个水平的动画制作，还是挣扎中少女比较能带入感情
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  瓦格雷  
+##### 335#       发表于 2024-5-20 07:58
+
+<blockquote>KDConan 发表于 2024-5-20 00:07
+我认为对比之下还是竞轮更差一些这三集训练营就讲了那么一点破事
+
+—— 来自 Xiaomi 23013RK75C, Android 1 ...</blockquote>
+竞轮起码真的在讲体育   你看这个  一堆选手嘻嘻哈哈 玩玩游戏  开开女子会    然后一个不懂竞赛规则的害群之马  一堆选手捧着
+
+*****
+
+####  瓦格雷  
+##### 336#       发表于 2024-5-20 08:00
+
+<blockquote>月夜凝雪 发表于 2024-5-19 16:27
+这一话起码表现出了其他人是真的都有机会赢的，那么之后主角赢的时候就没有那么唐突 ...</blockquote>
+赛队 赛会的气象部门都可以直接自杀了   不如一个老头摸地板来的准  
+
+*****
+
+####  月夜凝雪  
+##### 337#       发表于 2024-5-20 10:04
+
+ 本帖最后由 月夜凝雪 于 2024-5-20 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64935187&amp;ptid=2081261" target="_blank">瓦格雷 发表于 2024-5-20 08:00</a>
+赛队 赛会的气象部门都可以直接自杀了   不如一个老头摸地板来的准</blockquote>
+有些突然的天气变化真不好说，设备未必有经验好用，广东人尤为感同身受
+
+广东气象部门得自杀几万回了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天剑流星  
+##### 338#       发表于 2024-5-21 19:50
+
+估计女主不到最后一集是站不上领奖台了，太安定了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -340,3 +340,16 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 
 然而我忘了谁统计的以及啥时候讨论的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20200#       发表于 2024-5-21 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64956059&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-21 20:09</a>
+
+nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年也都讨论过你星这堆破事
+
+然而我忘了谁统计的以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有大致关键词
+

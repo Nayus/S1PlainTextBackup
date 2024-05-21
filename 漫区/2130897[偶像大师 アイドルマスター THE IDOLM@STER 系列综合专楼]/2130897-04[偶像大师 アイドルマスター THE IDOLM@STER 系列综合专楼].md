@@ -4595,3 +4595,14 @@ VHQXVQW3
 
 初代苍p新时代苍.jpg
 
+
+*****
+
+####  KiraYoshikage  
+##### 4874#       发表于 2024-5-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64950356&amp;ptid=2130897" target="_blank">Porsche 发表于 2024-5-21 11:50</a>
+
+依稀记得以前追v家曲的时候刷到一个新曲叫スキキライ，作者叫ハニワp和ゴムp，难听得我怀疑人生，看到播放 ...</blockquote>
+我超 原来就是这个歌作者，喷了
+

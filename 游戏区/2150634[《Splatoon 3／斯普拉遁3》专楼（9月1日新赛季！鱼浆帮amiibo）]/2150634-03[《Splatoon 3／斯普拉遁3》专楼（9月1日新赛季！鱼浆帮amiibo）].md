@@ -14575,3 +14575,20 @@ Screenshot_20240520-100153.png
 
 明知是下水道武器还故意出，纯粹是用来凑数的吧。到四代的时候什么大招该删，什么大招该做调整，研究所可别偷懒啊
 
+
+*****
+
+####  KBAC  
+##### 4423#       发表于 2024-5-21 20:22
+
+4代拿大涂地战争做背景重做个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绿冰  
+##### 4424#         楼主| 发表于 2024-5-21 20:27
+
+我怎么觉得竹筒这主次武器配置挺强的233
+

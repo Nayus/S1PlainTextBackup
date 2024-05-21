@@ -353,3 +353,16 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 然而我忘了谁统计的以 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有大致关键词
 
+
+*****
+
+####  stygian  
+##### 20201#       发表于 2024-5-21 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958112&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-5-21 23:09</a>
+
+有没有大致关键词</blockquote>
+最糟糕的是我连虹楼还是星楼都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻了自己的历史发言找到了，[https://bbs.nga.cn/thread.php?au ... rchpost=1&amp;fid=0](https://bbs.nga.cn/thread.php?authorid=37297490&amp;searchpost=1&amp;fid=0) 这位老哥，他水贴也不多你可以慢慢翻
+

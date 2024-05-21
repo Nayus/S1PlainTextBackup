@@ -636,3 +636,11 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 
 真希望出PC離線版
 
+
+*****
+
+####  枫紫  
+##### 72#       发表于 2024-5-21 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？
+

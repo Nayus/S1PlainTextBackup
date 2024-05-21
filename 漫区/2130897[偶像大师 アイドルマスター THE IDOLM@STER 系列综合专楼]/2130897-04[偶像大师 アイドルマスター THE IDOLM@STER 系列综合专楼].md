@@ -4690,3 +4690,11 @@ p了把3144属性的莉莉娅，结果差200 A+。真的难受，有种因为自
 
 希望明天活动给点s卡pt，现在根本养不起
 
+
+*****
+
+####  花开安菲路  
+##### 4880#       发表于 2024-5-21 22:52
+
+牢广pro终于赢了，没敢憋到最后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">倒数二轮就把盾爆了<img src="https://p.sda1.dev/17/f91939fac59e5fbfdc370a6ca77c884d/CMP_20240521225145194.jpg" referrerpolicy="no-referrer">
+

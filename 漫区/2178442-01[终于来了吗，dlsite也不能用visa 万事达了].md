@@ -135,3 +135,13 @@ fantia对创作内容干预最少，但是相对的支付手段最闭塞，某�
 
 这下理解陪酒女为什么对钱少事多的社畜欧吉桑深恶痛绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oskneo  
+##### 128#       发表于 2024-5-21 22:50
+
+啥时候日亚都玩完就再没留的需要了
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

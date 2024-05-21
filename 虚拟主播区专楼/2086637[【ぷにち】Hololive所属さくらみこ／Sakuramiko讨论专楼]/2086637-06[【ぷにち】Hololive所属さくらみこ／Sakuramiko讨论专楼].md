@@ -7233,3 +7233,21 @@ miko非常不情愿不过最后还是发了
 
 但是感觉就这点内容要特地买一张5500的视听票也有点太贵了
 
+
+*****
+
+####  holoan  
+##### 8823#         楼主| 发表于 2024-5-21 22:46
+
+ 本帖最后由 holoan 于 2024-5-21 22:50 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/21/224605hfpy23eycuyxhm2p.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (7.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-21 22:46 上传
+
+装备了望远镜结果更容易晕画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

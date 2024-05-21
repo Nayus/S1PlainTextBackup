@@ -145,3 +145,16 @@ fantia对创作内容干预最少，但是相对的支付手段最闭塞，某�
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hlazd  
+##### 129#       发表于 2024-5-21 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64957906&amp;ptid=2178442" target="_blank">oskneo 发表于 2024-5-21 22:50</a>
+
+啥时候日亚都玩完就再没留的需要了
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+亚马逊又不是搞黄色为主的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

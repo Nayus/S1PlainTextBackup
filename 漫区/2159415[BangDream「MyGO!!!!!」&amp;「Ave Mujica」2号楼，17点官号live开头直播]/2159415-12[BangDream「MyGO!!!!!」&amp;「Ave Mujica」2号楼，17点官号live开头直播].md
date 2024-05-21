@@ -6307,3 +6307,15 @@ ag来摩卡，感觉有点地狱</blockquote>
 
 [https://x.com/moepusanai/status/1792551050077143248](https://x.com/moepusanai/status/1792551050077143248)
 
+
+*****
+
+####  米拉苏尔  
+##### 16843#       发表于 2024-5-21 23:43
+
+<img src="https://p.sda1.dev/17/e80657ef12114912ff7b3f841c377288/20240521_233415.jpg" referrerpolicy="no-referrer">
+
+[mizukitoko](https://twitter.com/mizukitoko/status/1792786222777315490?s=19)
+
+怀疑是国人约的稿
+

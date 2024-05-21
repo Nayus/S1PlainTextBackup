@@ -45,3 +45,17 @@ fantia认死了信用卡一种方式，甚至不能用贝宝之类曲线救国�
 
 话说信用卡老财什么时候干google play和苹果啊，很急，在线等<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duo_wolf  
+##### 121#       发表于 2024-5-21 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64953734&amp;ptid=2178442" target="_blank">ronac 发表于 2024-5-21 16:34</a>
+fantia认死了信用卡一种方式，甚至不能用贝宝之类曲线救国，这下省出零食钱了
+
+话说信用卡老财什么时候干g ...</blockquote>
+而且fantia好像不能用国内的jcb，我记得我是招行jcb没绑上去才改绑的visa，这下彻底省钱了，然后突然想起来我购物车里还有两套图没有下单，这下完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-BC72, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

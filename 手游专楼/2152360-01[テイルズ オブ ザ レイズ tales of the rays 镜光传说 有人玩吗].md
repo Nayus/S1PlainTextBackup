@@ -644,3 +644,14 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？
 
+
+*****
+
+####  法拉  
+##### 73#         楼主| 发表于 2024-5-21 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955127&amp;ptid=2152360" target="_blank">枫紫 发表于 2024-5-21 18:43</a>
+
+猜到了，这7年有酸甜也有苦乐，辛苦了。是不是还该感谢一下蓝色协议？</blockquote>
+去年就判死刑了，这新模式根本拉不起来
+

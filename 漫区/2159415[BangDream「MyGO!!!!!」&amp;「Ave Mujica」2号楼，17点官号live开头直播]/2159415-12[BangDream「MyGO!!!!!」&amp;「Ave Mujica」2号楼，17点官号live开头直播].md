@@ -6289,3 +6289,21 @@ ag来摩卡，感觉有点地狱</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  御幸一也  
+##### 16842#       发表于 2024-5-21 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/21/215632myguhrlighewhzsk.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ド膝(@moepusanai)_20240520-134048_1792551050077143248_photo.jpg</strong> (184.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-21 21:56 上传
+
+[https://x.com/moepusanai/status/1792551050077143248](https://x.com/moepusanai/status/1792551050077143248)
+

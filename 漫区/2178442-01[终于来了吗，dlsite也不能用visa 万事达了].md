@@ -77,3 +77,26 @@ fantia也用不了VISA了，这下省钱了
 
 日本好歹是发达国家，这方面能被洋人要挟也是可以的。
 
+
+*****
+
+####  红多泥  
+##### 124#       发表于 2024-5-21 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955795&amp;ptid=2178442" target="_blank">we89623 发表于 2024-5-21 19:48</a>
+日本好歹是发达国家，这方面被洋人要挟也是可以的。
+
+他们没有自己的在线交易金融渠道吗？</blockquote>
+最受影响的又不是日本人
+
+
+*****
+
+####  screeper  
+##### 125#       发表于 2024-5-21 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955954&amp;ptid=2178442" target="_blank">红多泥 发表于 2024-5-21 20:01</a>
+
+最受影响的又不是日本人</blockquote>
+但是就jcb那个样子，日本人自己在日常生活中用的最多的不也是visa和mastercard吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

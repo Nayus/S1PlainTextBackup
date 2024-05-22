@@ -205,3 +205,14 @@
 
 [https://www.nintendo.com/jp/topi ... 3-ba00-a7e775cc54b9](https://www.nintendo.com/jp/topics/article/af825de6-16d5-4653-ba00-a7e775cc54b9) rtt官方立回教程
 
+
+*****
+
+####  KBAC  
+##### 4461#       发表于 2024-5-22 21:25
+
+我就不明白为什么很多人拿了鱼对面没人也非得原地射几炮<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+等对面鱼台来人了想起来往前走然后在枪林弹雨中进行人头的一个送<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

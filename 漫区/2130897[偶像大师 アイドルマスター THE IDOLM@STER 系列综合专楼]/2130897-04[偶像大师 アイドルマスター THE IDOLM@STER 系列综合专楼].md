@@ -4955,3 +4955,22 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 还以为if卡池又是小高弄的骗钱玩意，现在看确实有点想法的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">希望多来点这种出人意料的剧情
 
+
+*****
+
+####  liyropen  
+##### 4903#       发表于 2024-5-22 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64963280&amp;ptid=2130897" target="_blank">闭挂锁人 发表于 2024-5-22 13:08</a>
+这莉莉娅究竟怎么育成的，vo，da，vi3个属性都要练吗。。。前两个提升高的属性是vi和da，结果数值奖励第二 ...</blockquote>
+三个属性都要达到测试要求的基准线才行，属性高于基准线之后提供的倍率很低
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  花开安菲路  
+##### 4904#       发表于 2024-5-22 14:04
+
+小美也第一个活动就整烂活，真是服了，大好开局怕是要被他玩死
+

@@ -6341,3 +6341,13 @@ mizukitoko
 感觉完结之后越来越多人意识到睦祥的好磕了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 希望明年成为美帝
 
+
+*****
+
+####  御幸一也  
+##### 16846#       发表于 2024-5-22 08:58
+
+訪談不停賣睦祥的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+而且還同團，LIVE也會大賣特賣 嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

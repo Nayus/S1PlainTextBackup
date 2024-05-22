@@ -14709,3 +14709,31 @@ Screenshot_20240520-100153.png
 目前情况是无 ...</blockquote>
 长热炮和泼桶
 
+
+*****
+
+####  hirro  
+##### 4435#       发表于 2024-5-22 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64961061&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-5-22 10:20</a>
+
+长热炮和泼桶</blockquote>
+有一个很像热泡的武器，以前没见过，一发直击125，好用吗？感觉爆炸范围很小
+
+桶现在哪几个好用？首发时候洗衣机无敌，但我是用小绿和重桶的
+
+另外，大招强化对天上掉一堆橡皮弹的大招，能强化耐久么？感觉落下来被敌人一扫还没爆炸就没了
+
+*****
+
+####  Linsdy  
+##### 4436#       发表于 2024-5-22 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64960644&amp;ptid=2150634" target="_blank">hirro 发表于 2024-5-22 09:43</a>
+首发打了两周就没打了，昨天充了家庭会员上去看了下，起始段位掉到S了，武器出了一堆看不懂的
+
+目前情况是无 ...</blockquote>
+现在远程肯定没蜡笔恶臭，回坑的唯一建议是练习体感，现在的强势武器多多少少要aim，除了长热泡，这个和蜡笔一样恶臭
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

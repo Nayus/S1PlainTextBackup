@@ -10807,3 +10807,15 @@ magnet:?xt=urn:btih:17AB2166FA4861 ...</blockquote>
 我日死北美电影公司的血妈，提前一个月订的票当时就排了一场赶紧抢个位置提前给公司请假空出时间，电影院离 ...</blockquote>
 瞎逼逼的主
 
+
+*****
+
+####  主人ハム子  
+##### 899#       发表于 2024-5-22 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64959634&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-22 07:28</a>
+所以，原定非凡飞升自由大概是这样？头要不要换呢？</blockquote>
+原定没刀吧。刀是拂晓的，临时装来破甲的。
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

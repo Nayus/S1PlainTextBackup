@@ -178,3 +178,16 @@ skeb直接投降了
 
 另外楼里的人可能不太关心，但有些做AI图平台业务的小网站也在这几个月里一刀切了R18内容，摆明了是要保支付渠道<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无色辉火  
+##### 132#       发表于 2024-5-22 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64583409&amp;ptid=2178442" target="_blank">password 发表于 2024-4-13 16:00</a>
+
+招行是0门槛免年费，没有次数的，完全不用也不要年费
+
+http://market.cmbchina.com/ccard/jcbpc/</blockquote>
+我这周一刚办的招行JCB卡，也问了这事，柜台小姐姐说是他们只有VISA卡是0门槛的，其他的都是够消费次数才免<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

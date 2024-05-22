@@ -4797,3 +4797,13 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 这活动给的钻石连一发十连都没有，幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 4890#       发表于 2024-5-22 11:57
+
+这次sc忽悠if卡的四格剧情有点狠啊，我看我加的群里有群友看到这次的忽悠四格漫画嗷一声地破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

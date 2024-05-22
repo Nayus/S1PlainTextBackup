@@ -190,3 +190,11 @@
 
 成田大妈啊，是时候把当年因为你写出的雪空而被封印的内斗禁止令解除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫睛石  
+##### 1500#       发表于 2024-5-23 02:37
+
+这猫独占欲真强<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">和我家暹罗似的
+

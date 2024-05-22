@@ -168,3 +168,13 @@ fantia 买过几次 还都是自己画海苔的 就停了
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  shinoverse  
+##### 131#       发表于 2024-5-22 13:41
+
+skeb直接投降了
+
+另外楼里的人可能不太关心，但有些做AI图平台业务的小网站也在这几个月里一刀切了R18内容，摆明了是要保支付渠道<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

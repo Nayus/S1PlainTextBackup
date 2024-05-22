@@ -8430,3 +8430,14 @@ mooncell，chaldea网页端也能用
 
 忘了这活动咋打了，概率礼装带两张满配的就行吗？还是铺满
 
+
+*****
+
+####  quanlix  
+##### 12776#       发表于 2024-5-22 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64968893&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2024-5-22 21:58</a>
+
+忘了这活动咋打了，概率礼装带两张满配的就行吗？还是铺满</blockquote>
+两张满破就行，100%就上限了，其他礼装随意
+

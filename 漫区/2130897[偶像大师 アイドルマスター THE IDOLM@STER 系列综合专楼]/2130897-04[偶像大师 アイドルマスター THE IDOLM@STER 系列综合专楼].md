@@ -5109,3 +5109,11 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 我的建议是放弃小火龙 小火龙啥都要拉 太难受了 又吃牌序又吃卡池</blockquote>
 没人可用了，怎么也要练三人摸下pvp吧，我连sr角色卡都只有咲季（ssr也有）和千奈两张<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  harukage  
+##### 4919#       发表于 2024-5-22 16:17
+
+四十抽抽出两个重复的p卡，给我整麻了
+

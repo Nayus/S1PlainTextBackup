@@ -5473,3 +5473,44 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 算下来一天6W左右就行 自回体再补一两瓶药
 
+
+*****
+
+####  Achlys  
+##### 4957#       发表于 2024-5-22 18:47
+
+等等看下个活动吧，这个加时长的处理方式太糙了
+希望能让万南老逼意识到这么运营游戏，本身素质再好也要暴死的
+
+*****
+
+####  天王寺綯  
+##### 4958#       发表于 2024-5-22 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">万南是真不行，这下理解了蓝色协议为什么那么傻逼了
+又肝又抠
+
+
+*****
+
+####  raimouse  
+##### 4959#       发表于 2024-5-22 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967181&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-22 18:36</a>
+
+之前小美野采访说了，企划开发五年，游戏主要玩法是第一年里定下来的。后来的时间里也有想过这个新出的游 ...</blockquote>
+这游戏的养成材料,碎片升星上基本就是照搬ip的
+
+但是IP通用碎片不值钱,送的抽还超多
+
+每期fes无课肯定是能有一井的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 4960#       发表于 2024-5-22 18:52
+
+这次就先当做是已经上线了不方便去大改，后面还这鸟样就继续挨喷吧
+
+也不可能说每次活动盯着那几张卡闷头刷半个月，没抽到甚至只能刷一张卡
+

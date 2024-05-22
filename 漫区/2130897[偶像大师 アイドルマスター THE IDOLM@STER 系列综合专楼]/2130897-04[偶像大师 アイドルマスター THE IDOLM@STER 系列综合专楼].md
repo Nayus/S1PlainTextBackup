@@ -5320,3 +5320,31 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 肝不动了肝不动，不玩了。啥时候出皮卡丘的小人，想要。
 
+
+*****
+
+####  patema  
+##### 4941#       发表于 2024-5-22 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64966796&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-5-22 17:59</a>
+
+事业民最垂头丧气的一集。
+
+不过熟悉六文字对这种低能操作毫不意外，不如说之前超常发挥属于纯惊喜，他在背 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百万退坑早，能不能细说
+
+*****
+
+####  ぽんぽこ仮面  
+##### 4942#       发表于 2024-5-22 18:08
+
+20连石沉大海，按这抠门程度感觉林冲玩家已经可以放弃抽任何新卡了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">P了3把A皮卡丘才5万点数，这得肝到猴年马月啊
+
+
+*****
+
+####  麻巳巳  
+##### 4943#       发表于 2024-5-22 18:13
+
+育成游戏一上来就做这种加速疲劳的活动，再怎么天胡开局都白说，拿卡走人了
+

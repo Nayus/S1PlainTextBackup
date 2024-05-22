@@ -7351,3 +7351,24 @@ miko非常不情愿不过最后还是发了
 
 fanletter这么多而且内容如此丰富真羡慕啊
 
+
+*****
+
+####  holoan  
+##### 8833#         楼主| 发表于 2024-5-22 23:22
+
+明天和sora联动，等了好久了
+
+*****
+
+####  holoan  
+##### 8834#         楼主| 发表于 2024-5-22 23:23
+
+<img src="https://img.saraba1st.com/forum/202405/22/232347gibpbqiphikqi4fw.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (5.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 23:23 上传
+

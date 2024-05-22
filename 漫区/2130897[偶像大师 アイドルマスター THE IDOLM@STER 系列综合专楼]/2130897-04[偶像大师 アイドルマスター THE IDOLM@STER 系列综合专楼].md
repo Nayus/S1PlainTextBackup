@@ -5756,3 +5756,31 @@ Image_1716377919763.jpg
 <img src="https://p.sda1.dev/17/0a21ce33f6f11dd0d102288a695c2ae6/73c3d039gy1hpqlz7qzznj219y1kw7wh.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/e054f7ed73ef4e4aaf2c2cb2489e326d/73c3d039gy1hpqlzcu7qqj219y1kwnpd.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 4985#       发表于 2024-5-22 23:19
+
+[https://twitter.com/hechima10040/status/1790974853941764336](https://twitter.com/hechima10040/status/1790974853941764336)
+
+学園アイドルマスターリリースおめでとうございます！！🎉🎉🎉 私もプロデュース頑張ります！※非公式FAです　
+<img src="https://p.sda1.dev/17/a75df0d35ceb4a07236a9db0314eefa9/20240522_231314.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/741ksk/status/1791091451637707192](https://twitter.com/741ksk/status/1791091451637707192)
+
+デザインを担当しました🙇
+<img src="https://p.sda1.dev/17/ef57862a03f8455723666e818ddb387e/20240522_230934.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9893b33ee7e51b8ba5c0fe0cd01e1815/20240522_230942.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e0d7bb87af6dc1b034a9a0f1d1b46f1d/20240522_230946.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/8130423e259559b4c96c98a2c5f2edc5/20240522_230949.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/485d5cb2b736f9323a2dedc867f8959d/006bjbFMgy1hpqn693ihbj32bc2bc1gk.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/b414943117f59a06e333be50d430b3d8/006bjbFMgy1hpqn6at9cnj32bc2bcqs9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/7e7a90ddc250e1c394fb1f0a4c70ad01/006bjbFMgy1hpqn6cc85xj32bc2bc1kx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/2b5fa5a8c66cd25bb9caaef069693272/006bjbFMgy1hpqn6tzmj6j32bc2bcx08.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/33f9adae8d7298115dd5fe099db741ee/006bjbFMgy1hpqn6qoczxj32bc2bc1i0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/469b4f28bb09f16e99f7dc9caaa227d8/006bjbFMgy1hpqn6ssxg2j32bc2bcawz.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/3e58c9271b6d53bd112241bac38b9a99/006bjbFMgy1hpqn6jdlhfj32bc2bckhr.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/4e2db7ca70a21e5ac24382b7bed8fcd0/006bjbFMgy1hpqn6mb9twj32bc2bctt6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/18aae6f03774d31e6fbb4fc11e1723e4/006bjbFMgy1hpqn6hoa5rj32bc2bcke1.jpg" referrerpolicy="no-referrer">
+

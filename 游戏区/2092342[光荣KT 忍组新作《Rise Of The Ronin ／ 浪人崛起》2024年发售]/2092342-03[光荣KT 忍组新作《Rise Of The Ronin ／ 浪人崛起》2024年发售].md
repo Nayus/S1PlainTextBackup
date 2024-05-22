@@ -58,3 +58,20 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最近实体盘价格来去很大啊，PDD今天看到券前382的了
 
+
+*****
+
+####  ef6270  
+##### 3174#       发表于 2024-5-22 23:19
+
+被幕末钢铁侠吓到<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+为什么我不能用那双靴子
+
+*****
+
+####  teo・tesukatoru  
+##### 3175#       发表于 2024-5-22 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我330（日版）这价格入的玩了几天简直是神作啊
+

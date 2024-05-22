@@ -3238,3 +3238,39 @@ CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
 
 机炮会加强吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4745#       发表于 2024-5-22 23:05
+
+<img src="https://img.saraba1st.com/forum/202405/22/230146nx63ka310777wx0k.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (40.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 23:01 上传
+
+首先，他们要玩自己做的游戏了！其次，他认为现在TTK太长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 4746#       发表于 2024-5-22 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969322&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-22 22:48</a>
+
+难绷，ceo退位任首席创意官，亲自下场了</blockquote>
+玩星河战队的大兵梗是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不过看新CEO管理能力怎么样了，那人好像以前在Paradox工作过
+
+*****
+
+####  FLZB  
+##### 4747#       发表于 2024-5-22 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969549&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-5-22 23:13</a>
+
+玩星河战队的大兵梗是吧不过看新CEO管理能力怎么样了，那人好像以前在Paradox工作过 ...</blockquote>
+看了下是p社老将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

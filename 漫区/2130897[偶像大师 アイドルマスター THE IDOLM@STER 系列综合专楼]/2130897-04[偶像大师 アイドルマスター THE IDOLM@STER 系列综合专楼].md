@@ -5374,3 +5374,37 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">日本人在推特能发出质疑就已经算炎上了
 太君母猪推特上一般都是你好我好大家好的
 
+
+*****
+
+####  天王寺綯  
+##### 4947#       发表于 2024-5-22 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965964&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-22 17:01</a>
+学马官方推特那条活动开始的文现在80多条回复大部分都是说这活动有问题的。当然画风比起国内就显得很温和了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">日本人在推特能发出质疑就已经算炎上了
+太君母猪推特上一般都是你好我好大家好的
+
+*****
+
+####  花开安菲路  
+##### 4948#       发表于 2024-5-22 18:26
+
+送体力说明它也知道玩家不满，活动设计有问题，只能希望以后活动能改善吧。
+
+*****
+
+####  BQlin  
+##### 4949#       发表于 2024-5-22 18:26
+
+只送药不改分数那不还是坐牢，那么多场打下来手机都不知道烧成什么样了
+
+真头铁不降低档线或者改加成机制啊
+
+*****
+
+####  zeroed  
+##### 4950#       发表于 2024-5-22 18:30
+
+直接送活动点数都不肯，就是要你肝
+

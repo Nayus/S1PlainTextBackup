@@ -3211,3 +3211,30 @@ CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
 
 索尼直面会呢？？？
 
+
+*****
+
+####  Dementia  
+##### 4742#       发表于 2024-5-22 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64962657&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-5-22 12:11</a>
+
+看清楚是掉了还是被踢了
+
+还有，如果是国内主机，不开加速器更好</blockquote>
+画面闪退或者黄字connection
+
+*****
+
+####  FLZB  
+##### 4743#       发表于 2024-5-22 22:48
+
+难绷，ceo退位任首席创意官，亲自下场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 4744#       发表于 2024-5-22 22:57
+
+机炮会加强吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

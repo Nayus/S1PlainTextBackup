@@ -84,3 +84,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">3代新玩家又迎来一把1代武器了
 
+
+*****
+
+####  KBAC  
+##### 4449#       发表于 2024-5-22 17:42
+
+长热泡的SP槽这不得开局220p<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -25,3 +25,11 @@
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Shabadadoo  
+##### 3170#       发表于 2024-5-22 21:08
+
+先把夏天的江户和秋天的京都加回来，其他更新都没意思
+

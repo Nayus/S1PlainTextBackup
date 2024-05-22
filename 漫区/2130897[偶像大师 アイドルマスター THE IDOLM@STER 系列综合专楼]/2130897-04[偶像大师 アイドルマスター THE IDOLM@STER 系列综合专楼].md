@@ -5136,3 +5136,34 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 没人可用了，怎么也要练三人摸下pvp吧，我连sr角色卡都只有咲季（ssr也有）和千奈两张 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主线没打完吗还是出重复了，怎么就2张
 
+
+*****
+
+####  花开安菲路  
+##### 4922#       发表于 2024-5-22 16:40
+
+ 本帖最后由 花开安菲路 于 2024-5-22 16:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965608&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-22 16:32</a>
+主线没打完吗还是出重复了，怎么就2张</blockquote>
+送两个ssr券拿到了一张，咲季重复+1，另外牢广和莉莉娅也是有的，所以需要练三人，肯定得练咲季的，其它也没人了用了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4923#       发表于 2024-5-22 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965711&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-22 16:40</a>
+
+送两个ssr券拿到了一张，咲季重复+1，另外牢广和莉莉娅也是有的，在练了</blockquote>
+莉莉娅挺厉害的，打pvp牢广不值得，纯沙包
+
+*****
+
+####  花开安菲路  
+##### 4924#       发表于 2024-5-22 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965740&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-22 16:43</a>
+莉莉娅挺厉害的，打pvp牢广不值得，纯沙包</blockquote>
+嗯，所以就是练咲季，牢广，莉莉娅三人，
+其它除了千奈，sr都没<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -50,3 +50,11 @@
 
 目前看来好像是去混沌刷新套装，永夜3v3车轮战打不过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  theworld  
+##### 3173#       发表于 2024-5-22 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">最近实体盘价格来去很大啊，PDD今天看到券前382的了
+

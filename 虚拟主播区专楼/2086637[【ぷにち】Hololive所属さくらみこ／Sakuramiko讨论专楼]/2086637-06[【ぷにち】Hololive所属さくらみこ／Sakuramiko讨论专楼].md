@@ -7336,3 +7336,18 @@ miko非常不情愿不过最后还是发了
 
 不要吧唧。。。。。。。。。。。
 
+
+*****
+
+####  rs5621  
+##### 8831#       发表于 2024-5-22 23:07
+
+35翻台本的声音被发现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8832#         楼主| 发表于 2024-5-22 23:10
+
+fanletter这么多而且内容如此丰富真羡慕啊
+

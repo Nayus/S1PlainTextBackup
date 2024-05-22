@@ -58,3 +58,13 @@ ST BBA挺色的。话说这次ST的后缀似乎都是塔罗牌的样子啊</bloc
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">阿迪信赖和粉丝都拉完了，什么时候出FA
 
+
+*****
+
+####  不灭的旋律  
+##### 1066#       发表于 2024-5-22 21:01
+
+九荣神之后还有黄道十二宫托勒密四十八星座是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天更新的双月刊送的扳手居然有专用动作，可以物理修理队长了
+

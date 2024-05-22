@@ -197,3 +197,11 @@
 
 不知道新武器排名谁能第一
 
+
+*****
+
+####  笔仁SaSaSa  
+##### 4460#       发表于 2024-5-22 20:57
+
+[https://www.nintendo.com/jp/topi ... 3-ba00-a7e775cc54b9](https://www.nintendo.com/jp/topics/article/af825de6-16d5-4653-ba00-a7e775cc54b9) rtt官方立回教程
+

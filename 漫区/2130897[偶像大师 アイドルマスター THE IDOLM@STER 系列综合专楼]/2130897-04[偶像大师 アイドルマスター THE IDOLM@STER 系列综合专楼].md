@@ -5636,3 +5636,15 @@ Image_1716377919763.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">百百佛系打歌久了是真的顶不住学马仕这活动强度
 
+
+*****
+
+####  Laie  
+##### 4974#       发表于 2024-5-22 21:01
+
+[https://www.youtube.com/watch?v=mm3SxrANkqY](https://www.youtube.com/watch?v=mm3SxrANkqY)
+
+アイマス完全新作が完全に"シャニソン潰し"だった件…バンナムは何を考えているのか【学園アイドルマスター】
+
+果然ナカイド又来蹭热度了，不过确实从开发体制上来看高山这次从的地方回归中央再进一步的尝试全盘失败，还是安心继续做子公司的地方大员吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

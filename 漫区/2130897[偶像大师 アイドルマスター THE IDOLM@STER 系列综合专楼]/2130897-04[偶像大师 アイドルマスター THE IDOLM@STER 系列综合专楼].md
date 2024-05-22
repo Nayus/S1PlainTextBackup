@@ -4860,3 +4860,26 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">按1w2一把自回体是不够拿完活动钻的，代孙真有你的
 
+
+*****
+
+####  闭挂锁人  
+##### 4897#       发表于 2024-5-22 13:08
+
+这莉莉娅究竟怎么育成的，vo，da，vi3个属性都要练吗。。。前两个提升高的属性是vi和da，结果数值奖励第二个是vo达成需要450？
+
+*****
+
+####  kykawaiii  
+##### 4898#       发表于 2024-5-22 13:11
+
+代孙扣死了
+
+
+*****
+
+####  patema  
+##### 4899#       发表于 2024-5-22 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有前半年抠门的预期，但是没想到这么抠
+

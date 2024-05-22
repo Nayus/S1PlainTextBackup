@@ -5620,3 +5620,11 @@ Image_1716377919763.jpg
 已经过牢师了，氪金母猪能不能给力点，把海贼超了，看看代孙发不发10连</blockquote>
 别想太多，开服已经发过一次氪金登顶10连了啊，怎么可能会给你发第二次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 4972#       发表于 2024-5-22 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">果然是代便味的运营，票子只能抽普池不共通，不当人的活动点数奖励
+

@@ -131,3 +131,11 @@
 
 估计女主不到最后一集是站不上领奖台了，太安定了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  堆雪若叶  
+##### 339#       发表于 2024-5-23 01:17
+
+气氛好不容易拉起来被骚操作一下又拉到底，既然要捧ho酱的运气让女主因为运气不好翻车也比这强啊，现在变成技术拉跨到运气都救不了观感也太差<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

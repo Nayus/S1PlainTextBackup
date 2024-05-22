@@ -3302,3 +3302,28 @@ paradox interactive是发行部门，做游戏的是paradox development studio�
 paradox interactive是发行部门，做游戏的是paradox development studio，两个是不一样的啊。这新ceo是发行 ...</blockquote>
 这个Shams Jorjani看贴吧说好像以前负责过城市天际线1，庄园领主和CK2，光看履历表现还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4751#       发表于 2024-5-23 00:15
+
+<img src="https://img.feixue.cloud/2024/05/23/d43c40fe7e9c3.png" referrerpolicy="no-referrer">
+<img src="https://img.feixue.cloud/2024/05/23/e9056a343243f.png" referrerpolicy="no-referrer">
+<img src="https://img.feixue.cloud/2024/05/23/6434316552e90.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xinfengj  
+##### 4752#       发表于 2024-5-23 02:34
+
+<img src="https://p.sda1.dev/17/8fa1f7db78110c5a215c2ad4cca7dc54/CMP_20240523023420989.jpg" referrerpolicy="no-referrer">
+要缩短TTK
+
+*****
+
+####  Mr.Hopp  
+##### 4753#       发表于 2024-5-23 07:32
+
+缩短TTK怎么理解？
+

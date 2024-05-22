@@ -14696,3 +14696,16 @@ Screenshot_20240520-100153.png
 
 真自由搭配我就玩副强水球新叶了
 
+
+*****
+
+####  hisousihou  
+##### 4434#       发表于 2024-5-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64960644&amp;ptid=2150634" target="_blank">hirro 发表于 2024-5-22 09:43</a>
+
+首发打了两周就没打了，昨天充了家庭会员上去看了下，起始段位掉到S了，武器出了一堆看不懂的
+
+目前情况是无 ...</blockquote>
+长热炮和泼桶
+

@@ -5610,3 +5610,13 @@ Image_1716377919763.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/22/193912rn5h3z20o1e5ewih.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 4971#       发表于 2024-5-22 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967777&amp;ptid=2130897" target="_blank">kykawaiii 发表于 2024-5-22 19:39</a>
+已经过牢师了，氪金母猪能不能给力点，把海贼超了，看看代孙发不发10连</blockquote>
+别想太多，开服已经发过一次氪金登顶10连了啊，怎么可能会给你发第二次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -4815,3 +4815,19 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 这算拷打玩家嘛？<img src="https://p.sda1.dev/17/e36785f82a91ab270549aa1bb0b252a3/IMG_CMP_91047737.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 4892#       发表于 2024-5-22 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">有冻柚子这样的角色还能把SC运营成这样的制作人高山謝罪しろ！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IF就放开写嘛，老是皆大欢喜少点趣味，第二期的IF看完起码让我对这个主题卡池重燃了期待
+
+*****
+
+####  八宫めぐる  
+##### 4893#       发表于 2024-5-22 12:57
+
+阴暗点，万代：283事务所什么的已经不认识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

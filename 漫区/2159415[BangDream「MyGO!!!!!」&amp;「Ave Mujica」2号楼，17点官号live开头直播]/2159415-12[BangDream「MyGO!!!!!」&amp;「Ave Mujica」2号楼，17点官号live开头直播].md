@@ -6359,3 +6359,11 @@ mizukitoko
 
 说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关系，总之也不明白四元素系列会不会也和初始五首有对应，这解密是真的卡壳了。
 
+
+*****
+
+####  KozueAkimoto  
+##### 16848#       发表于 2024-5-22 11:13
+
+广州竟然有活动？watch out need more<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 正统二次元活动 不是什么 小卡拉米国漫漫展和cos 而是和官方霓虹有联系的 牛逼牛逼
+

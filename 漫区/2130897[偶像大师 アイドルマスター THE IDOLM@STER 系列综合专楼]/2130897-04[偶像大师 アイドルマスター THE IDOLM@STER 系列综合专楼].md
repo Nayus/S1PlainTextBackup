@@ -5222,3 +5222,50 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那看来是福报了
 
+
+*****
+
+####  kykawaiii  
+##### 4931#       发表于 2024-5-22 17:17
+
+<blockquote>花开安菲路 发表于 2024-5-22 17:08
+换个角度说，日本人是最讲究表面功夫的，无论是做事还是做人，
+
+除非特别过分，一般是不会直接在推特社交平 ...</blockquote>
+希望狗代不要葬送掉这么好的开局
+
+*****
+
+####  patema  
+##### 4932#       发表于 2024-5-22 17:19
+
+群友发了这篇文章不知道有没有楼u能找到出处
+
+
+*****
+
+####  patema  
+##### 4933#       发表于 2024-5-22 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64966173&amp;ptid=2130897" target="_blank">kykawaiii 发表于 2024-5-22 17:17</a>
+
+希望狗代不要葬送掉这么好的开局</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大概率是葬送掉了
+
+*****
+
+####  闭挂锁人  
+##### 4934#       发表于 2024-5-22 17:21
+
+我还蛮期待半年后或者一年后万代做广告把琴音或者手球放出来，念“学马斯，多少连无料？”的。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4935#       发表于 2024-5-22 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64966243&amp;ptid=2130897" target="_blank">闭挂锁人 发表于 2024-5-22 17:21</a>
+
+我还蛮期待半年后或者一年后万代做广告把琴音或者手球放出来，念“学马斯，多少连无料？”的。 ...</blockquote>
+大概率吧，现在日游不都喜欢开服扣然后半年到一年开始改善福利周年半周年送无料。只是学马这个开局扣的有点惊悚了
+

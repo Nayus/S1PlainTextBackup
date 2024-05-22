@@ -176,3 +176,14 @@
 感觉三角雷和粘弹虽然是T0副武器，但是和加特林相性并不好，丢出去后站桩输出能力就暴跌了，毕竟不是小枪， ...</blockquote>
 以后被长热泡和狙恶心就化身扔雷人互相恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不是雨帘可惜了，不过贴牌审查者的弹夹是金属色的倒是挺好看的，比起原版
 
+
+*****
+
+####  星野航  
+##### 4458#       发表于 2024-5-22 19:39
+
+雨帘+螃蟹属于破坏环境的配置，那到时候更骂人
+但是贴牌长泡属实更恶心<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

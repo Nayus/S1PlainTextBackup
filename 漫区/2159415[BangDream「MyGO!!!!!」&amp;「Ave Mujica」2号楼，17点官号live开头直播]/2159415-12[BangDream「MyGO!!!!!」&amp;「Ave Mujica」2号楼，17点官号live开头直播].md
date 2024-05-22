@@ -6319,3 +6319,16 @@ ag来摩卡，感觉有点地狱</blockquote>
 
 怀疑是国人约的稿
 
+
+*****
+
+####  御幸一也  
+##### 16844#       发表于 2024-5-22 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958488&amp;ptid=2159415" target="_blank">米拉苏尔 发表于 2024-5-21 23:43</a>
+
+mizukitoko
+
+怀疑是国人约的稿</blockquote>
+這個是日本人來的，skeb能看到約稿語，有個日本睦祥姐天天和這人約睦祥
+

@@ -42,3 +42,11 @@
 现在一把装备上可以出现多个套装词条了，要重新刷了。
 然而到现在我还不知道去哪刷装备<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  nagitoY  
+##### 3172#       发表于 2024-5-22 22:37
+
+目前看来好像是去混沌刷新套装，永夜3v3车轮战打不过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

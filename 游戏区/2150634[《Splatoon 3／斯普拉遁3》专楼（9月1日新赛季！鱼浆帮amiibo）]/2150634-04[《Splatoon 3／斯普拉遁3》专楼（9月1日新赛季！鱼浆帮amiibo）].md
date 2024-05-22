@@ -216,3 +216,15 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4462#       发表于 2024-5-22 22:38
+
+新赛季头一个月退游算了，到时候场上肯定一堆长热，拿审查者/鹦鹉螺根本打不过<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+【【Splatoon3搬运】【etona】这就是新赛季绝对会破坏环境的离谱武器，请趁早练习【えとな】-哔哩哔哩】 https://b23.tv/72ENA2y
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

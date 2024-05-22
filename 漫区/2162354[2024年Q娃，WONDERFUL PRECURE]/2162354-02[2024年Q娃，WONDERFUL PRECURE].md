@@ -206,3 +206,14 @@
 
 你的猫猫很担心你.jpg 并且希望你别再跟狗一起玩了
 
+
+*****
+
+####  maoyou  
+##### 1502#       发表于 2024-5-23 06:17
+
+<img src="https://p.sda1.dev/17/956b07f8a57484ef173fecfb7fa847fd/IMG_20240523_061703_063.jpg" referrerpolicy="no-referrer">
+键帽！
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

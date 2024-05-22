@@ -94,3 +94,21 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 4450#       发表于 2024-5-22 17:46
+
+官推武器地图打工这些牙膏挤完好像还能剩几天，是不是又藏东西了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  墨染白泉  
+##### 4451#       发表于 2024-5-22 17:53
+
+之前解包不是说有熊刷吗，还能挤挤牙膏
+

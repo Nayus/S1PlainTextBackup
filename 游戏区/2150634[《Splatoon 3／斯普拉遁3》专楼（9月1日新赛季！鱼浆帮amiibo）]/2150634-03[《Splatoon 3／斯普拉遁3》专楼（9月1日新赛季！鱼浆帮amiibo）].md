@@ -14664,3 +14664,13 @@ Screenshot_20240520-100153.png
 
 查了下你这个是2023年冬赛季目录商品，当时没解锁的话肯定不能买。但是衣服的话，在第下一年同季的目录里会重复出现。其他东西可以抽奖出来。
 
+
+*****
+
+####  秋月孝三  
+##### 4431#       发表于 2024-5-22 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自由搭配的下场请参考一代末期环境
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

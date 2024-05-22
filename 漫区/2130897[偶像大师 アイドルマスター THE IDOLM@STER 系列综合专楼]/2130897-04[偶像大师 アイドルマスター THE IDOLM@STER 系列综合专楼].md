@@ -5514,3 +5514,11 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 也不可能说每次活动盯着那几张卡闷头刷半个月，没抽到甚至只能刷一张卡
 
+
+*****
+
+####  北条早苗  
+##### 4961#       发表于 2024-5-22 19:04
+
+我怀疑万南根本没想过活动打完需要多少时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

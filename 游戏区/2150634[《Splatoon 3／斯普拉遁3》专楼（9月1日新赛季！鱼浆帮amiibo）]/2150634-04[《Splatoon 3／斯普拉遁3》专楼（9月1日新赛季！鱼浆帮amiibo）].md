@@ -132,3 +132,23 @@
 
 冰壶+飞机，雨帘+螃蟹的逆天配置只能活在梦里了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 4454#       发表于 2024-5-22 18:54
+
+加特林带副省那玩啥加特林啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4455#       发表于 2024-5-22 19:00
+
+研究所这么玩不怕赶客吗，太君已经直球开骂了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

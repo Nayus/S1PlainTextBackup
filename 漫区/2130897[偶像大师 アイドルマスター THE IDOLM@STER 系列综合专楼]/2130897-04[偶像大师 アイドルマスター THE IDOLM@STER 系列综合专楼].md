@@ -5408,3 +5408,68 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 直接送活动点数都不肯，就是要你肝
 
+
+*****
+
+####  ViviR  
+##### 4951#       发表于 2024-5-22 18:36
+
+<blockquote>raimouse 发表于 2024-5-22 18:20
+目前这福利,等林冲存够一井,估计已经无聊到弃坑了吧
+
+每天就是重复Ｐ那几张Ｒ卡或者ｓｒ
+
+加上活动还有加成 ...</blockquote>
+之前小美野采访说了，企划开发五年，游戏主要玩法是第一年里定下来的。后来的时间里也有想过这个新出的游戏玩法不错，要不要改成这种；那个新出的游戏的元素有意思，要不要加进来。但是他想起了某人曾经告诉他要搞什么东西要么坚持初心到底要么推倒重来，不要半途变卦，于是才把最开始的玩法坚持了下来（。
+
+说实话小方向上的杀戮尖塔like的玩法还行，但大方向上这种传统的培育玩法有没有更优解我也不清楚了。
+
+*****
+
+####  Vacuolar  
+##### 4952#       发表于 2024-5-22 18:38
+
+设计不难，只要后面推出一次养成x3体力获得x3分数就能轻松穿奖。不过会不会第一次活动就推出护肝机制，看大家闹到什么样了。
+
+*****
+
+####  patema  
+##### 4953#       发表于 2024-5-22 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967072&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-5-22 18:26</a>
+只送药不改分数那不还是坐牢，那么多场打下来手机都不知道烧成什么样了
+
+真头铁不降低档线或者改加成机制啊 ...</blockquote>
+时间也延长了，现在不用打这么多把了
+
+*****
+
+####  Seeley  
+##### 4954#       发表于 2024-5-22 18:41
+
+给了15个瓶子<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">代孙这是不想改
+
+哪怕活动后段给倍率呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+不对，跟土豆一样那前半段肝多了的要炸了
+
+
+*****
+
+####  liyropen  
+##### 4955#       发表于 2024-5-22 18:42
+
+敲敲计算器都能算出来打这活动全 Pt 奖励怎么算都要十几个小时，九天，在一个手游放十几个小时<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 4956#       发表于 2024-5-22 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967229&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-22 18:40</a>
+
+时间也延长了，现在不用打这么多把了</blockquote>
+哦 看到了 多了一周
+
+算下来一天6W左右就行 自回体再补一两瓶药
+

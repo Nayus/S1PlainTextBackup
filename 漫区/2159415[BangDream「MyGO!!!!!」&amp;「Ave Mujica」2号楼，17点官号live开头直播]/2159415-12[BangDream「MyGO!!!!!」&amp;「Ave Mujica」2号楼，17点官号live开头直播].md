@@ -6351,3 +6351,11 @@ mizukitoko
 
 而且還同團，LIVE也會大賣特賣 嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16847#       发表于 2024-5-22 09:51
+
+说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关系，总之也不明白四元素系列会不会也和初始五首有对应，这解密是真的卡壳了。
+

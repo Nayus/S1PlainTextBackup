@@ -123,3 +123,14 @@
 最近实体盘价格来去很大啊，PDD今天看到券前382的了</blockquote>
 现在tb百亿补贴359应该是最便宜的
 
+
+*****
+
+####  theworld  
+##### 3179#       发表于 2024-5-23 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969950&amp;ptid=2092342" target="_blank">oahcihs 发表于 2024-5-23 00:11</a>
+
+现在tb百亿补贴359应该是最便宜的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好吧我第五次退单重买了
+

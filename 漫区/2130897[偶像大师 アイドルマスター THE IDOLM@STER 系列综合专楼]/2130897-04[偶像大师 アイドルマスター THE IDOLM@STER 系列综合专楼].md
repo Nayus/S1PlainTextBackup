@@ -5853,3 +5853,24 @@ vivopad3Pro适配cgss真的是一坨，打个歌卡成PPT，要关了タッチ�
 
 —— 来自 vivo PA2473, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  摩天城  
+##### 4992#       发表于 2024-5-23 00:24
+
+两张ssr券一个重复的p卡，一个重复的s卡，还好新卡池第一个十连给我补回来了，不然真没法玩了。
+
+然后现在logic三张ssr，sence连张sr都没，绝赞卡课题。
+
+*****
+
+####  SinoWarrior  
+##### 4993#       发表于 2024-5-23 00:25
+
+ 本帖最后由 SinoWarrior 于 2024-5-23 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969862&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-23 00:00</a>
+
+刚解锁了pro就玩了一把月说眉笔手毬，结果一路挺顺的直接就顺势解锁te了。然后我才发现…敢情一个角色只有 ...</blockquote>
+个人线应该还会加，每个人基本都提到了下一阶段的目标是HIF第一
+

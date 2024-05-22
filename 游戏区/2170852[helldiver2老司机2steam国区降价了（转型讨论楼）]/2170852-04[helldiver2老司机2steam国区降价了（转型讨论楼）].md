@@ -3183,3 +3183,31 @@ CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
 
 开uu，一晚掉4次，还全都是在飞艇快要降落之前掉的，删游戏了
 
+
+*****
+
+####  大肥鸽子  
+##### 4739#       发表于 2024-5-22 11:41
+
+从乐子游戏变成坐牢游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEAM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+*****
+
+####  洛拉斯  
+##### 4740#       发表于 2024-5-22 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64962104&amp;ptid=2170852" target="_blank">Dementia 发表于 2024-5-22 11:30</a>
+开uu，一晚掉4次，还全都是在飞艇快要降落之前掉的，删游戏了</blockquote>
+看清楚是掉了还是被踢了
+
+还有，如果是国内主机，不开加速器更好
+
+*****
+
+####  Mr.Hopp  
+##### 4741#       发表于 2024-5-22 12:32
+
+索尼直面会呢？？？
+

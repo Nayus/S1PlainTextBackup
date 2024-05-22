@@ -57,3 +57,18 @@ Screenshot_20240522_093000_tv.danmaku.bili.jpg
 
 <img src="https://img.saraba1st.com/forum/202405/22/093658b3l840rssxuusw7l.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kwin_  
+##### 119#       发表于 2024-5-22 12:30
+
+演出衔接真的很一言难尽，节奏很突兀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kwin_  
+##### 120#       发表于 2024-5-22 12:31
+
+还有本集这个大场景本该挺震撼的，不过全是乱七八糟光污染的魔法阵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -10819,3 +10819,14 @@ magnet:?xt=urn:btih:17AB2166FA4861 ...</blockquote>
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  novyDC  
+##### 900#       发表于 2024-5-22 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64959634&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-05-22 07:28:47</a>
+所以，原定非凡飞升自由大概是这样？头要不要换呢？</blockquote>感觉不用
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

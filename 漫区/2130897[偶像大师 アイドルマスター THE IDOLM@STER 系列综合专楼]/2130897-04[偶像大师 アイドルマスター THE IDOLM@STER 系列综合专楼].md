@@ -5348,3 +5348,29 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 育成游戏一上来就做这种加速疲劳的活动，再怎么天胡开局都白说，拿卡走人了
 
+
+*****
+
+####  liyropen  
+##### 4944#       发表于 2024-5-22 18:18
+
+不是，万代你这就给15个瓶子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kykawaiii  
+##### 4945#       发表于 2024-5-22 18:23
+
+幽默代狗，送体力药加延长时间，我缺的是这时间加体力药吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 4946#       发表于 2024-5-22 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965964&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-22 17:01</a>
+学马官方推特那条活动开始的文现在80多条回复大部分都是说这活动有问题的。当然画风比起国内就显得很温和了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">日本人在推特能发出质疑就已经算炎上了
+太君母猪推特上一般都是你好我好大家好的
+

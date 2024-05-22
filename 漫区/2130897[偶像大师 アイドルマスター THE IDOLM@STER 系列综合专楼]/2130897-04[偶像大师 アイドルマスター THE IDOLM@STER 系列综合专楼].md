@@ -5195,3 +5195,30 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 
 不过说真的，奖励全拿最少也要打80多把是一回事。但你这奖励扣到没几个人愿意去打那么多把了。而且我没看错的话貌似活动没有名次牌子这种东西吧。
 
+
+*****
+
+####  花开安菲路  
+##### 4928#       发表于 2024-5-22 17:08
+
+换个角度说，日本人是最讲究表面功夫的，无论是做事还是做人，
+除非特别过分，一般是不会直接在推特社交平台，说游戏和运营不好的，80多评论很多人觉得有问题，其实也能说明太君的态度了，就看狗代重视不重视这些反馈了。
+
+
+*****
+
+####  patema  
+##### 4929#       发表于 2024-5-22 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965964&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-5-22 17:01</a>
+
+学马官方推特那条活动开始的文现在80多条回复大部分都是说这活动有问题的。当然画风比起国内就显得很温和了 ...</blockquote>
+有个证明你是万代小女友的名片封面，没了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4930#       发表于 2024-5-22 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那看来是福报了
+

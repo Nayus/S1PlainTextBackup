@@ -191,3 +191,31 @@ skeb直接投降了
 http://market.cmbchina.com/ccard/jcbpc/</blockquote>
 我这周一刚办的招行JCB卡，也问了这事，柜台小姐姐说是他们只有VISA卡是0门槛的，其他的都是够消费次数才免<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  password  
+##### 133#       发表于 2024-5-22 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965944&amp;ptid=2178442" target="_blank">无色辉火 发表于 2024-5-22 16:59</a>
+
+我这周一刚办的招行JCB卡，也问了这事，柜台小姐姐说是他们只有VISA卡是0门槛的，其他的都是够消费次数才 ...</blockquote>
+柜台什么的根本不懂的，推信用卡不是他们的活，甚至我网申以后当年上门给我调查征信的都以为是6次免。
+
+你放心吧，以网页和信用卡信上的为准。
+
+这卡我用了很多年，都换新过一次了。而我一年用不到6次从来没被收过年费。
+
+
+*****
+
+####  无色辉火  
+##### 134#       发表于 2024-5-22 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64966034&amp;ptid=2178442" target="_blank">password 发表于 2024-5-22 17:05</a>
+
+柜台什么的根本不懂的，推信用卡不是他们的活，甚至我网申以后当年上门给我调查征信的都以为是6次免。
+
+ ...</blockquote>
+感谢老哥解惑
+

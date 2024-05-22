@@ -8422,3 +8422,11 @@ mooncell，chaldea网页端也能用
 为了扶青子你让人重新抽一个下位版这是否有点浪费资金了，不至于不至于
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千叶铁矢  
+##### 12775#       发表于 2024-5-22 21:58
+
+忘了这活动咋打了，概率礼装带两张满配的就行吗？还是铺满
+

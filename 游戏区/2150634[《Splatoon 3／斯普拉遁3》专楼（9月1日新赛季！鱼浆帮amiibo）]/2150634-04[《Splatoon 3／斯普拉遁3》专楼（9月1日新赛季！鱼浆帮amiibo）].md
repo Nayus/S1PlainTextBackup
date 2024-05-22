@@ -152,3 +152,16 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 4456#       发表于 2024-5-22 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967368&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-5-22 18:54</a>
+
+加特林带副省那玩啥加特林啊
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+一开始真有上位势带的，甚至连Naegora都尝试带过1.0的副省，不过后面就换成回归头了
+

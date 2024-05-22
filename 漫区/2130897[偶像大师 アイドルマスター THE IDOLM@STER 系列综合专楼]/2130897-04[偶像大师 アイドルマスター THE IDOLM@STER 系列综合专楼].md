@@ -5522,3 +5522,64 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 
 我怀疑万南根本没想过活动打完需要多少时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 4962#       发表于 2024-5-22 19:06
+
+幽默笨代 nga有人还发现了活动货币的过期时间没改
+
+*****
+
+####  萨文科夫  
+##### 4963#       发表于 2024-5-22 19:07
+
+太幽默了代哥，第一次见这种补偿，辣真的牛批
+
+*****
+
+####  patema  
+##### 4964#       发表于 2024-5-22 19:08
+
+很明显临时赶的，代畜知道改就不错了
+
+*****
+
+####  koodooliz  
+##### 4965#       发表于 2024-5-22 19:08
+
+代孙一直这样，真构思草台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 4966#       发表于 2024-5-22 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967352&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-5-22 18:52</a>
+
+这次就先当做是已经上线了不方便去大改，后面还这鸟样就继续挨喷吧
+
+也不可能说每次活动盯着那几张卡闷头刷 ...</blockquote>
+这机制不改,按目前送抽的频次和资源获取数量
+
+黑鬼就真的是开服那2张傻必玩几个月了
+
+再什么纯情单推也受不了吧
+
+
+*****
+
+####  Genkishi  
+##### 4967#       发表于 2024-5-22 19:12
+
+准备了8年的企划，然后手游上来的第一个活动就那么搞笑，这就是代孙
+
+*****
+
+####  天王寺綯  
+##### 4968#       发表于 2024-5-22 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不如还是交给西歪运营吧
+半袋还是稳稳拿住百万就够了
+

@@ -50,3 +50,11 @@ ST BBA挺色的。话说这次ST的后缀似乎都是塔罗牌的样子啊
 ST BBA挺色的。话说这次ST的后缀似乎都是塔罗牌的样子啊</blockquote>
 因此也好奇这个系列是要仅出二十二位大阿尔卡纳，还是打算塔罗牌后九荣神跟上之类的展开。
 
+
+*****
+
+####  madcow  
+##### 1065#       发表于 2024-5-22 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">阿迪信赖和粉丝都拉完了，什么时候出FA
+

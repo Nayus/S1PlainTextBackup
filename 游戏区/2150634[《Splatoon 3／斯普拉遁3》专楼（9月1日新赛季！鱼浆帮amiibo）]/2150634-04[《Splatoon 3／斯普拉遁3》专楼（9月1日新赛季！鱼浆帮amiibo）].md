@@ -165,3 +165,14 @@
 —— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 一开始真有上位势带的，甚至连Naegora都尝试带过1.0的副省，不过后面就换成回归头了
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 4457#       发表于 2024-5-22 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967160&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-5-22 18:34</a>
+
+感觉三角雷和粘弹虽然是T0副武器，但是和加特林相性并不好，丢出去后站桩输出能力就暴跌了，毕竟不是小枪， ...</blockquote>
+以后被长热泡和狙恶心就化身扔雷人互相恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不是雨帘可惜了，不过贴牌审查者的弹夹是金属色的倒是挺好看的，比起原版
+

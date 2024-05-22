@@ -5583,3 +5583,13 @@ https://matomame.jp/user/yonepo665/9f35abbb0f8dc4787ebf
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不如还是交给西歪运营吧
 半袋还是稳稳拿住百万就够了
 
+
+*****
+
+####  田所あずさ  
+##### 4969#       发表于 2024-5-22 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64966886&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-22 18:07</a>
+百万退坑早，能不能细说</blockquote>
+六文字在百万鸽子p生孩子去一年摆烂不作为，在灰灰操纵总选，最后一次总选选了个未付声的做灰姑娘 窒息p气死了
+

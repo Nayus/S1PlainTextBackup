@@ -6375,3 +6375,14 @@ mizukitoko
 
 https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev/17/599d3fe139905f435b0af89756d76250/CMP_20240522191751222.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 16850#       发表于 2024-5-22 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64960728&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-22 09:51</a>
+
+说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关 ...</blockquote>
+應該沒解密吧，感覺解不出什麼東西了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

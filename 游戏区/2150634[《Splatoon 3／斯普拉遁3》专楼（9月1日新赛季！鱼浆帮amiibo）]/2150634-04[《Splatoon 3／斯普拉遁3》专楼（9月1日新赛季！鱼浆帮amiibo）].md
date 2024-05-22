@@ -20,3 +20,18 @@
 
 玩了几把香槟然后再看chocopero直播有一种看科幻片的感觉
 
+
+*****
+
+####  hirro  
+##### 4443#       发表于 2024-5-22 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64962288&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-5-22 11:44</a>
+
+泼桶说的是飞溅泼桶，最基础的那款。长热炮指远距离爆破枪。
+
+这两款是现在强度表最靠前的。对瞄准要求中 ...</blockquote>
+长热泡不是暴风才35要3下才死吗？直击才2下？
+
+原来蜡笔现在还能玩？我蜡笔就是靠转角暴风杀人的
+

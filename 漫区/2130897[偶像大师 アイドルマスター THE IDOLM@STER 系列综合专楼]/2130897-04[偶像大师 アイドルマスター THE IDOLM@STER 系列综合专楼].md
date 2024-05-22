@@ -5041,3 +5041,43 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  花开安菲路  
+##### 4912#       发表于 2024-5-22 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64964945&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-5-22 15:34</a>
+需要堆好调后启动绝好调伤害才够
+
+—— 来自 S1Fun</blockquote>
+绝好调是什么意思，要堆到多少触发？
+
+*****
+
+####  Seeley  
+##### 4913#       发表于 2024-5-22 15:40
+
+我四倍跟auto呢<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  伊布桑  
+##### 4914#       发表于 2024-5-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965000&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-22 15:39</a>
+绝好调是什么意思，要堆到多少触发？</blockquote>
+绝好调是另一种buff，要等级高才会有这种卡，效果是根据好调剩余回合增伤，每一回合+10%
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  Seeley  
+##### 4915#       发表于 2024-5-22 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965000&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-22 15:39</a>
+
+绝好调是什么意思，要堆到多少触发？</blockquote>
+17级还是多少级给的卡开始有的状态
+

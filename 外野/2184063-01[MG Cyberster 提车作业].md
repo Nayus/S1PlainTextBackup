@@ -420,3 +420,13 @@ E人最爱
 
 等内饰颜色可选就下单
 
+
+*****
+
+####  wincle  
+##### 45#       发表于 2024-5-22 10:00
+
+真好看，但是真贵
+
+— from Xiaomi 2304FPN6DC, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0-alpha
+

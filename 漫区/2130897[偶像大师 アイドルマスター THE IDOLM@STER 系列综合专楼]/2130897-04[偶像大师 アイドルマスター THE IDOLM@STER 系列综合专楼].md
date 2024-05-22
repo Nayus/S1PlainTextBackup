@@ -5784,3 +5784,39 @@ Image_1716377919763.jpg
 <img src="https://p.sda1.dev/17/4e2db7ca70a21e5ac24382b7bed8fcd0/006bjbFMgy1hpqn6mb9twj32bc2bctt6.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/18aae6f03774d31e6fbb4fc11e1723e4/006bjbFMgy1hpqn6hoa5rj32bc2bcke1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SinoWarrior  
+##### 4986#       发表于 2024-5-22 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64968643&amp;ptid=2130897" target="_blank">Achlys 发表于 2024-5-22 21:27</a>
+支援卡面和活动是同世界吧，支援卡我也见到咲季セクハラ清夏大腿的桥段
+活动和主线的话，大概之后会接上？ ...</blockquote>
+因为卡面剧情里kotone明确说过没和你们结成组合实在太好了，所以看漫画应该也不是主线同世界线
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Piano-Forest  
+##### 4987#       发表于 2024-5-22 23:47
+
+学园偶像大师 OP动画：[https://youtu.be/-fI9rNo28CY](https://youtu.be/-fI9rNo28CY)
+
+[https://twitter.com/Kuvshinov_Ilya/status/1793148252621283709](https://twitter.com/Kuvshinov_Ilya/status/1793148252621283709)
+
+こちらの4カットの原画を担当させて頂きました！✨
+
+ありがとうございました！！
+<img src="https://p.sda1.dev/17/079cee674d1a9b4b96a97d36a335b3dd/SaveTwitter.Net_3Hb9rZ9vuxJv_sAz_720p_ _1_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/bd1a62368d7cd61c7f75167cb18f0940/SaveTwitter.Net_59nmmStQs1Qh8wsT_720p_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/d7f17b6abeb4ab75e4f24c4533dc7088/SaveTwitter.Net_clCwX4jntcZgWhPX_720p_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/210a65e22817eab34f7fcf677eb12b03/SaveTwitter.Net_6LOn_Gm0wzexg-WF_720p_.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/555725a582767566e20a958725e65435/20240522_233358.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/c50cf7fd00c5786fa69108a4f7ff9ef2/20240522_233400.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9ff072010583d3349e20b461694dff0d/20240522_233401.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/9825efe6a7094a2a9d49711a95437d4a/20240522_233402.jpg" referrerpolicy="no-referrer">
+

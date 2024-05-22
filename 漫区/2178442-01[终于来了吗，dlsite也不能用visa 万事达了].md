@@ -158,3 +158,13 @@ fantia对创作内容干预最少，但是相对的支付手段最闭塞，某�
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 亚马逊又不是搞黄色为主的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山药白薯  
+##### 130#       发表于 2024-5-22 11:29
+
+fantia 买过几次 还都是自己画海苔的 就停了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

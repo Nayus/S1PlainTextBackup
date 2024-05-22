@@ -379,3 +379,17 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 翻了自己的历史发言找到了，https://bbs.nga.cn/thread.php?authorid ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">谢谢坛友。我发现live Staff结合动画Staff能看到更多有趣东西，明天写下
 
+
+*****
+
+####  csolfans  
+##### 20203#       发表于 2024-5-23 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958263&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-21 23:22</a>
+最糟糕的是我连虹楼还是星楼都忘了
+
+翻了自己的历史发言找到了，https://bbs.nga.cn/thread.php?authorid ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然还没翻完这位老哥的记录，但是学不到不少Staff的知识。我最惊讶一点是他提到小道信息是水虹是若林哥主管，星这边其实脇黒丸翔大主管(反正脇黒丸翔大已经离职相当年份了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

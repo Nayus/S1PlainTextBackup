@@ -5117,3 +5117,22 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 
 四十抽抽出两个重复的p卡，给我整麻了
 
+
+*****
+
+####  patema  
+##### 4920#       发表于 2024-5-22 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有人看下太君推特上开冲了没
+
+
+*****
+
+####  patema  
+##### 4921#       发表于 2024-5-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965225&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-22 15:58</a>
+
+没人可用了，怎么也要练三人摸下pvp吧，我连sr角色卡都只有咲季（ssr也有）和千奈两张 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主线没打完吗还是出重复了，怎么就2张
+

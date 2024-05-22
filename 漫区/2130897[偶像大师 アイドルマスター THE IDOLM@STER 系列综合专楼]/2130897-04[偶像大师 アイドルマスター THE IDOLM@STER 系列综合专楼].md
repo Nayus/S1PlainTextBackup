@@ -4831,3 +4831,32 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 阴暗点，万代：283事务所什么的已经不认识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  patema  
+##### 4894#       发表于 2024-5-22 12:59
+
+活动ssr挺厉害的，不像是送的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">代哥不会是因为这个不给钻吧
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 4895#       发表于 2024-5-22 13:04
+
+ 本帖最后由 虚无缥缈的光阴 于 2024-5-22 13:06 编辑 
+
+有点期待if线日花了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有本事放开了写，想看日花知道儿力她妈是谁后当面指着儿力大喊:“你是我推的孩子”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Serious  
+##### 4896#       发表于 2024-5-22 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">按1w2一把自回体是不够拿完活动钻的，代孙真有你的
+

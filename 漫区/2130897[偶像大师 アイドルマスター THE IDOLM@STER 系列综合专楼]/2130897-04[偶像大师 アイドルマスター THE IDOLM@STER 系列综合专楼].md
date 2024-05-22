@@ -5099,3 +5099,13 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是放弃小火龙 小火龙啥都要拉 太难受了 又吃牌序又吃卡池
 
+
+*****
+
+####  花开安菲路  
+##### 4918#       发表于 2024-5-22 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965190&amp;ptid=2130897" target="_blank">rgauss 发表于 2024-5-22 15:55</a>
+我的建议是放弃小火龙 小火龙啥都要拉 太难受了 又吃牌序又吃卡池</blockquote>
+没人可用了，怎么也要练三人摸下pvp吧，我连sr角色卡都只有咲季（ssr也有）和千奈两张<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

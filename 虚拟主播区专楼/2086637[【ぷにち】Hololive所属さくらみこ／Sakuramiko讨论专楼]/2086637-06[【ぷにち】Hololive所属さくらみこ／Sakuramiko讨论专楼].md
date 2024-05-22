@@ -7251,3 +7251,38 @@ miko非常不情愿不过最后还是发了
 
 装备了望远镜结果更容易晕画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  holoan  
+##### 8824#         楼主| 发表于 2024-5-21 22:46
+
+ 本帖最后由 holoan 于 2024-5-22 15:43 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/21/224605hfpy23eycuyxhm2p.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (7.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-21 22:46 上传
+
+装备了望远镜结果更容易晕画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+另外通关后的load画面文字上作者塞了点私货，peko句尾和船长的口吻，miko罕见地对这种行为表达了不满要求作者也加上有关自己的内容
+
+*****
+
+####  holoan  
+##### 8825#         楼主| 发表于 2024-5-22 15:57
+
+<img src="https://img.saraba1st.com/forum/202405/22/155529w06r0ry6zfqdo6en.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (13.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 15:55 上传
+
+待机间有人提醒了一下，我看了一下上一次SC6确实是一个半月前有一段时间了
+

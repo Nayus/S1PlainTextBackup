@@ -5167,3 +5167,11 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 嗯，所以就是练咲季，牢广，莉莉娅三人，
 其它除了千奈，sr都没<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 4925#       发表于 2024-5-22 16:49
+
+其实我挺想练千奈sr，听说她sr和ssr差距不大？
+

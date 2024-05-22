@@ -3096,3 +3096,14 @@ Leaf’s Odyssey打了差不多三分之一，实在是太好玩了，喜欢基�
 海天岛咋今天发售还没给售价</blockquote>
 美区15刀，国区好像48，机核可以提前买key，据说还便宜点，我是众筹的，昨天发的key。
 
+
+*****
+
+####  HZY298  
+##### 201#       发表于 2024-5-22 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965714&amp;ptid=2017380" target="_blank">weiyun 发表于 2024-5-22 16:41</a>
+
+美区15刀，国区好像48，机核可以提前买key，据说还便宜点，我是众筹的，昨天发的key。 ...</blockquote>
+咦，那还挺便宜，谢谢，我去看看
+

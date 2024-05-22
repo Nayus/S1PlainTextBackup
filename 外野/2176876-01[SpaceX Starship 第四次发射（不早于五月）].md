@@ -99,3 +99,39 @@ FAA近日透露了SpaceX正在请求以另一种方式申请许可证，也就�
 
 2024-5-22 06:17 上传
 
+
+*****
+
+####  commcody  
+##### 50#         楼主| 发表于 2024-5-22 22:52
+
+ 本帖最后由 commcody 于 2024-5-22 22:54 编辑 
+
+墨西哥湾海事预警发布，北京时间6月1日20点至24点。
+
+SpaceX似乎并不打算运回S29。目前原地有众多升降机围绕着S29检查隔热瓦。
+
+<img src="https://img.saraba1st.com/forum/202405/22/225206e5my6rnlosm39szc.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (369.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/225205ykuzkdmwkdn9wu9d.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/225205g6hhtbu52ibcdcsm.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (1018.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 22:52 上传
+

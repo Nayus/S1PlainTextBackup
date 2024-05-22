@@ -7302,3 +7302,29 @@ miko非常不情愿不过最后还是发了
 
 你竟然会爱玩mio玩的磨宝石的游戏
 
+
+*****
+
+####  holoan  
+##### 8828#         楼主| 发表于 2024-5-22 22:17
+
+一天内最多完成过千枚的亲笔签名
+
+这是极限了吧
+
+
+*****
+
+####  holoan  
+##### 8829#         楼主| 发表于 2024-5-22 22:22
+
+我觉得QC比较辛苦
+
+<img src="https://img.saraba1st.com/forum/202405/22/222242xsjrgtdm4tbjkcqt.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (66.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 22:22 上传
+

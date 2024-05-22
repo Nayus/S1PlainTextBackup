@@ -4925,3 +4925,33 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 台上cool苍台下疯狂撒娇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Achlys  
+##### 4901#       发表于 2024-5-22 13:48
+
+ 本帖最后由 Achlys 于 2024-5-22 13:50 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/22/134814h3l3uysz1y1wzidf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-22-12-15-39-064_com.bandainamc.jpg</strong> (176.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 13:48 上传
+
+好姐妹前后脚A+达成，开心
+
+清夏从一开始抱着“从芭蕾那逃出来尝试偶像”的心态，变到克服脚伤ptsd仍然选择偶像，蛮好的成长
+
+下一个就是盾批A+，要和随机性作战了
+
+
+*****
+
+####  水莲寺流歌  
+##### 4902#       发表于 2024-5-22 13:52
+
+还以为if卡池又是小高弄的骗钱玩意，现在看确实有点想法的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">希望多来点这种出人意料的剧情
+

@@ -26,3 +26,129 @@ mea和兰熊闹掰，我怎么会做这种梦<img src="https://static.saraba1st.
 
 希望**有更多切片吧
 
+
+*****
+
+####  sino__unnko3  
+##### 16459#       发表于 2024-5-22 12:44
+
+昨晚看你咩早年的加锁小号（即本id）
+
+<img src="https://img.saraba1st.com/forum/202405/22/123544t3td9i8zfjvgftcc.jpg" referrerpolicy="no-referrer">
+
+<strong>1716352424494.jpg</strong> (264.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:35 上传
+
+（前几个月看她这个号的tc记录还有点留档）在5月20号那天新增了两三个帖子，
+
+翻了翻对话的人（今年这个加锁小号的几次帖子回复好像都是这位对话者，有个关西的女朋友，看手机型号和体型发型应该不是麻酱；
+
+此对话者最早和麻酱小号的交流记录在18年9月左右，一直使用しの称呼，并未使用麻酱等粉丝称呼），
+
+在21年看到了一些不安的回复你咩小号的记录（早年咩楼有没有挖掘大佬讨论过这事来着，忘了；也可能GPT翻译词不达意，请大佬们指正）
+
+<img src="https://img.saraba1st.com/forum/202405/22/123624vnobkucohh2c1b2g.jpg" referrerpolicy="no-referrer">
+
+<strong>1716351697485.jpg</strong> (223.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:36 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/123625pkkybveevezci236.jpg" referrerpolicy="no-referrer">
+
+<strong>1716351774372.jpg</strong> (148.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:36 上传
+
+会不会是麻酱好像今年直播说的，直播生涯开始以后有过的一次友情接近爱情，但对方选择了放弃。
+
+关键词搜索，发现这位21年曾经约出来麻酱下五子棋，于是下面这张图理论上应该桌子对面是你麻的双腿。
+
+<img src="https://img.saraba1st.com/forum/202405/22/123828gmfj7h21zrzerxt8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-22-01-57-10-151_com.kiwibrowser.browser.jpg</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:38 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/123826uhthtlhvzthl5tw9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E0x_zEqVcAYLR8p.jpeg</strong> (522.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:38 上传
+
+以上事情可能早有讨论，但这个账号权限不够没法往更早记录翻，于是昨晚连夜有了这些推测和发现（），请指正
+
+1716351697485.jpg
+(223.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:24 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/122419r1w3h5gzy1g6ywig.jpg" referrerpolicy="no-referrer">
+
+1716351774372.jpg
+(148.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:24 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/122420qi4mmqu101qckw6l.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2024-05-22-01-57-10-151_com.kiwibrowser.browser.jpg
+(1.12 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/122915dg6n9bvvjv719jh1.jpg" referrerpolicy="no-referrer">
+
+E0x_zEqVcAYLR8p.jpeg
+(522.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/122925kl8xvxxi63b202cx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+1716352424494.jpg
+(264.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202405/22/123413viq6aiqpvp9nq8cz.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  秋游刃  
+##### 16460#       发表于 2024-5-22 13:48
+
+有点意思，怎么挖出来的，确定是小号吗？看了眼推特，人际关系跟mea和小麻都没啥交集，不会挖错人了吧。
+

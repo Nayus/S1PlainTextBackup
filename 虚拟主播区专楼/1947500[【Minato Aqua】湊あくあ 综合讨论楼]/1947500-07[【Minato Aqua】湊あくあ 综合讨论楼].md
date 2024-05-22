@@ -49,3 +49,11 @@
 
 可能是因为20年还是19年播了一千小时以上吧
 
+
+*****
+
+####  lightsuger  
+##### 9774#       发表于 2024-5-22 14:31
+
+怕回B播的时候被本土观众喷罢了，先播勤点给自己加加分<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

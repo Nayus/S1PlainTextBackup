@@ -55,3 +55,16 @@
 原来蜡笔现在还能玩？我蜡笔就是靠转角暴风杀人的 ...</blockquote>
 蜡笔永远的入门简单但上限极低（击杀速度全武器倒数级别），玩得不错后要提升得换武器
 
+
+*****
+
+####  hisousihou  
+##### 4446#       发表于 2024-5-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64962681&amp;ptid=2150634" target="_blank">hirro 发表于 2024-5-22 12:12</a>
+
+长热泡不是暴风才35要3下才死吗？直击才2下？
+
+原来蜡笔现在还能玩？我蜡笔就是靠转角暴风杀人的 ...</blockquote>
+你看错武器了。长热炮是暴风两下直接秒杀的那把
+

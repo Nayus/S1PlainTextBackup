@@ -3274,3 +3274,31 @@ CEO可是觉得磁轨炮比EAT和无后坐力炮OP</blockquote>
 玩星河战队的大兵梗是吧不过看新CEO管理能力怎么样了，那人好像以前在Paradox工作过 ...</blockquote>
 看了下是p社老将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Launce  
+##### 4748#       发表于 2024-5-22 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969582&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-22 23:18</a>
+
+看了下是p社老将</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不鸡掰完了，每个时代都有每个时代的瑞典蠢驴，这位更是纯血统是吧
+
+*****
+
+####  WGTCorp  
+##### 4749#       发表于 2024-5-23 00:02
+
+paradox interactive是发行部门，做游戏的是paradox development studio，两个是不一样的啊。这新ceo是发行部门出来的，管商务之类应该没问题吧。
+
+*****
+
+####  6x6z6w  
+##### 4750#       发表于 2024-5-23 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969879&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-5-23 00:02</a>
+
+paradox interactive是发行部门，做游戏的是paradox development studio，两个是不一样的啊。这新ceo是发行 ...</blockquote>
+这个Shams Jorjani看贴吧说好像以前负责过城市天际线1，庄园领主和CK2，光看履历表现还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+

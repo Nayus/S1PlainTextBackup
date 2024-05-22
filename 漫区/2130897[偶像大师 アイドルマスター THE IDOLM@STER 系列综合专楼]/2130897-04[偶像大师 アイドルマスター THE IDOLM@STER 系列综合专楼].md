@@ -5835,3 +5835,21 @@ Image_1716377919763.jpg
 
 TE线剧情挺好的，但没矿挖是最弱智的，导致现在福利巨抠无比然后活动要求还恶心，补偿也不知道是个什么东西，一手好牌打的稀烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 4990#       发表于 2024-5-23 00:09
+
+卧槽泥马啊，老子怒了啊，气死我了，两张ssr券全是咲季，cnmd的万南<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  代叁蘋  
+##### 4991#       发表于 2024-5-23 00:17
+
+vivopad3Pro适配cgss真的是一坨，打个歌卡成PPT，要关了タッチ音才能解决问题。
+
+—— 来自 vivo PA2473, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

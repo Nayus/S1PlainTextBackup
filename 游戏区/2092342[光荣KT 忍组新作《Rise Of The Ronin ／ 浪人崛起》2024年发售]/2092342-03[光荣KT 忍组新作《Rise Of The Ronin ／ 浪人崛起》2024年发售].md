@@ -83,3 +83,43 @@
 
 新套装是啥效果
 
+
+*****
+
+####  黑修士  
+##### 3177#       发表于 2024-5-23 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969810&amp;ptid=2092342" target="_blank">captoon 发表于 2024-5-22 23:51</a>
+
+新套装是啥效果</blockquote>
+两个7件套
+
+【才能非凡的巨龙】
+
+1 精力耗尽发动石火
+
+2 以钩绳攻击削减敌人的精力上限
+
+4 紫电与烈风后不利效果无效化
+
+6 石火性能↑
+
+【一夫当关的猛虎】
+
+1 赋予紫电闪刃效果
+
+2 强化前方闪避
+
+4 使用不同武技时攻击力↑
+
+6 赋予闪刃精力持续恢复效果
+
+*****
+
+####  oahcihs  
+##### 3178#       发表于 2024-5-23 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64969521&amp;ptid=2092342" target="_blank">theworld 发表于 2024-5-22 23:11</a>
+最近实体盘价格来去很大啊，PDD今天看到券前382的了</blockquote>
+现在tb百亿补贴359应该是最便宜的
+

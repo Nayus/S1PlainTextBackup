@@ -180,3 +180,13 @@
 
 要是能再来一次内斗就好了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1499#       发表于 2024-5-23 00:01
+
+建议猫猫和犬组打一架呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+成田大妈啊，是时候把当年因为你写出的雪空而被封印的内斗禁止令解除了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

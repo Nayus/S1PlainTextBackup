@@ -5005,3 +5005,39 @@ IF忽悠：怎么说呢 也可以说算是吧 呵呵
 
 比能想到最扣的情况还扣
 
+
+*****
+
+####  花开安菲路  
+##### 4908#       发表于 2024-5-22 15:26
+
+p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应该怎么取舍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 4909#       发表于 2024-5-22 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ssr活动一共有六张，摸鱼哥们30w就可以摆烂了
+
+
+*****
+
+####  伊布桑  
+##### 4910#       发表于 2024-5-22 15:33
+
+扣是一回事，我现在玩手游都不爱玩太肝的，这游戏一把把打下来也太累了，活动非要手刷太肝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  安广多惠子  
+##### 4911#       发表于 2024-5-22 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64964827&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-5-22 15:26</a>
+p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应该怎么取舍</blockquote>
+需要堆好调后启动绝好调伤害才够
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

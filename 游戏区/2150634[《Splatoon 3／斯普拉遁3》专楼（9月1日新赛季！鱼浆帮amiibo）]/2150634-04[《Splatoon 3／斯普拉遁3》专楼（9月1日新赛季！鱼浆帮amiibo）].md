@@ -76,3 +76,11 @@
 
 贴牌审查者是三角雷螃蟹，倒是不意外<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">终于不用被对面长手恶心了，就是之前为啥好多人传是雨帘螃蟹，PV副武器墨水线挺明显的70%只有粘雷三角雷是<img src="https://p.sda1.dev/17/116dfff415254eb9edae22443f26f541/CMP_20240522171530521.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 4448#       发表于 2024-5-22 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">3代新玩家又迎来一把1代武器了
+

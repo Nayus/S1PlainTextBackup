@@ -5081,3 +5081,21 @@ p了把咲季，怎么刀刀烈火？感觉伤害太低了，集中和好调应�
 绝好调是什么意思，要堆到多少触发？</blockquote>
 17级还是多少级给的卡开始有的状态
 
+
+*****
+
+####  花开安菲路  
+##### 4916#       发表于 2024-5-22 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64965026&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-5-22 15:41</a>
+17级还是多少级给的卡开始有的状态</blockquote>
+哦哦，我说怎么没见过，是我等级不够<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 4917#       发表于 2024-5-22 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是放弃小火龙 小火龙啥都要拉 太难受了 又吃牌序又吃卡池
+

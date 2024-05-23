@@ -6017,3 +6017,11 @@ p逻辑毛球和琴音的思路还不太一样，不能前夜无脑刷好印象�
 
 云了几段毛球的剧情，也太整蛊了
 
+
+*****
+
+####  Seeley  
+##### 5008#       发表于 2024-5-23 14:10
+
+确实中期没影响挺抽象的，对打分还没期中冲刺训练重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -221,3 +221,15 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 最新版好像还多了个新bug，一点投票就闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛拉斯  
+##### 1589#       发表于 2024-5-23 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64953719&amp;ptid=1220112" target="_blank">Nanachi 发表于 2024-5-21 16:33</a>
+搬运群内最新版，建议有需要的及时加群 
+
+522433035</blockquote>
+申请了群，没人审批吗？
+

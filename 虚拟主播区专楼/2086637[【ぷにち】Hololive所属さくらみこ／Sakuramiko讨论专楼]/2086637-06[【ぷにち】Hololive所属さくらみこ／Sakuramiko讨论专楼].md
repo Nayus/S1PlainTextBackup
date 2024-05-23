@@ -7424,3 +7424,34 @@ fanletter这么多而且内容如此丰富真羡慕啊
 
 这时间这么早是因为21点萝卜的逆凸吧
 
+
+*****
+
+####  holoan  
+##### 8839#         楼主| 发表于 2024-5-23 17:22
+
+<img src="https://img.saraba1st.com/forum/202405/23/172156cpmfv30b69frv6ff.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (288.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 17:21 上传
+
+看样子不是实装3D而是live2D了？
+
+*****
+
+####  holoan  
+##### 8840#         楼主| 发表于 2024-5-23 19:57
+
+<img src="https://img.saraba1st.com/forum/202405/23/195650ta1448zvxnkztz46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 19:56 上传
+
+笑死了，486玩竟然是意外的结果
+

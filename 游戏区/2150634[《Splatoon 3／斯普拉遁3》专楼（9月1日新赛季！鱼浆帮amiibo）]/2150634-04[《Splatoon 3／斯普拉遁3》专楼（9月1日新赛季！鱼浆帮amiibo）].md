@@ -338,3 +338,13 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 做好的1.3走速消防员头盔这辈子没机会COS了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hugosol  
+##### 4476#       发表于 2024-5-23 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说FF的缺点和喷3 t0以下大部分武器的缺点是一样的，击杀能力不是特别稳定所以很难用来上分
+
+贴牌大概还是比原版强一点吧，原版的地雷实在是没什么用
+

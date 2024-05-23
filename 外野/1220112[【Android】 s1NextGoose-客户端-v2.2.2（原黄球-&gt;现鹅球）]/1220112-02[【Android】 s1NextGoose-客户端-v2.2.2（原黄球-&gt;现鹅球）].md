@@ -246,3 +246,13 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 等等吧
 
+
+*****
+
+####  苦瓜师傅  
+##### 1591#       发表于 2024-5-23 16:42
+
+2.5.4之后还有稳定版么？
+
+— from Google Pixel 8 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

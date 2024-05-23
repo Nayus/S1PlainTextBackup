@@ -6433,3 +6433,11 @@ https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代神笨最好笑的还是那个传说中所谓的Memento mori藏名，每次看到这个说法都会差点笑出声
 
+
+*****
+
+####  rikaren  
+##### 16857#       发表于 2024-5-23 16:39
+
+说起来官方中字mv对“神さま,バカ”的翻译是“愚神”，感觉有点说法，比如命运捉弄本是姐妹的两人被迫分开之类的。
+

@@ -11077,3 +11077,14 @@ MGEX也没提呀
 
 让超级调整者回归到最初始的“100%按计划调整”的设定也挺好的，鸡身上叠得buff已经足够多了
 
+
+*****
+
+####  starring  
+##### 914#       发表于 2024-5-23 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64980084&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-23 21:53</a>
+
+我觉得这就是一个开始剧场版之后的第一个模型介绍变成了他是父亲研究诞生的调整者。这个也和福田之前的一 ...</blockquote>
+老HG1/144和1/100也没有写超调的内容，从来没有决定做剧场版就把设定改了的说法
+

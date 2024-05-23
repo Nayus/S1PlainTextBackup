@@ -6713,3 +6713,13 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 笑死 泥樓現在是漫區唯一異類
 
+
+*****
+
+####  6030sylar  
+##### 16880#       发表于 2024-5-23 22:30
+
+摩卡给牢兰下了多少电脑配件
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

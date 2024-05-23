@@ -6457,3 +6457,24 @@ https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev
 
 syl，Memento mori藏名还有一点难蚌的是，这可不是什么好意思，造谣这个是想做什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16859#       发表于 2024-5-23 17:55
+
+<blockquote>PDQ4 发表于 2024-5-23 17:22
+要回到经典姐妹论假药了吗
+
+虽然中字是愚神但是我还是喜欢叫神笨。本来对这首歌无感但live卖太大越来越喜欢 ...</blockquote>
+谨记你终有一死，翻当时拿这个贷款／假药的就没看到有提这个什么意思
+
+*****
+
+####  6030sylar  
+##### 16860#       发表于 2024-5-23 17:56
+
+牛排的allin真的欠<img src="https://p.sda1.dev/17/48d75a918cc4f6bb7c2205e768ac41a0/CMP_20240523175658280.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

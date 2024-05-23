@@ -230,3 +230,16 @@ http://market.cmbchina.com/ccard/jcbpc/</blockquote>
 而且fantia好像不能用国内的jcb，我记得我是招行jcb没绑上去才改绑的visa，这下彻底省钱了，然后突然想起 ...</blockquote>
 咦，JCB好像可以用，但是我记得之前肯定是因为JCB没绑上去才绑的VISA啊，奇了怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shudushimo  
+##### 136#       发表于 2024-5-23 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955795&amp;ptid=2178442" target="_blank">we89623 发表于 2024-5-21 19:48</a>
+
+日本好歹是发达国家，这方面被洋人要挟也是可以的。
+
+他们没有自己的在线交易金融渠道吗？</blockquote>
+有啊，paypay，linepay之类的，对日本人没啥影响，现在问题是外国人用不了只能用信用卡
+

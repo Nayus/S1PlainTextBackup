@@ -6425,3 +6425,11 @@ https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev
 
 愚神，CSC都指向睦祥，还有双子情歌的翻唱，这要么真是姐妹要么不是姐妹胜似姐妹了。
 
+
+*****
+
+####  Aendst  
+##### 16856#       发表于 2024-5-23 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">代神笨最好笑的还是那个传说中所谓的Memento mori藏名，每次看到这个说法都会差点笑出声
+

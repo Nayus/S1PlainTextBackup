@@ -10953,3 +10953,19 @@ D、E版都是一半一半，空了四分一
 
 想一下福田最开始，对于阿古尼斯的结局设定是修罗对她完全利用最后卷进了修罗和阿斯兰的战斗当中被修罗杀死了，最后阿斯兰爆发打败修罗。这个剧本就是当时芙蕾克鲁泽基拉结局时剧本的翻版，只能说幸好福田后面觉得这个发展完全没理由把他改成了幻想卡嚞莉，不然真的好恶心 
 
+
+*****
+
+####  gundammarkⅡ  
+##### 906#       发表于 2024-5-23 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64973892&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-5-23 12:12</a>
+
+—— 来自 S1Fun</blockquote>
+拉克丝：收束重核子光束分裂炮 批准使用
+
+阿比：（复述）收束重核子光束分裂炮 批准使用，收束重核子光束分裂炮程序启动（锤碎玻璃下的按钮，MS管制电脑屏幕显示程序启动后各种刷新画面）
+
+基拉：（驾驶舱弹窗显示收束重核子光束分裂炮程序启动，一连串骚操作的机动动作占据有利发射位置）射击准备完毕，收束重核子光束分裂炮开启
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

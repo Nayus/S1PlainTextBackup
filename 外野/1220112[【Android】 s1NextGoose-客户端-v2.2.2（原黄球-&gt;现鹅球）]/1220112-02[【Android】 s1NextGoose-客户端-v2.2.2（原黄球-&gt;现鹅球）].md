@@ -256,3 +256,15 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 — from Google Pixel 8 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  mirari  
+##### 1592#       发表于 2024-5-23 19:38
+
+有一个需求虽然不紧急但是我个人非常想要
+
+就是希望能有一个备份导出功能，将自己发的主题、回复所有楼层信息都保存下来。毕竟快20年历史了，老了回头翻翻也都是回忆。
+
+但是有些很老的帖子没备份可能就再也看不到了……
+

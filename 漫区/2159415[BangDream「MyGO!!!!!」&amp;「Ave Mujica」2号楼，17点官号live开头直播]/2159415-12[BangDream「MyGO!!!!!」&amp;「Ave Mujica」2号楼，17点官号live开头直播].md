@@ -6530,3 +6530,20 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 [https://x.com/reibouQ/status/1792226313908203999](https://x.com/reibouQ/status/1792226313908203999)
 
+
+*****
+
+####  PDQ4  
+##### 16866#       发表于 2024-5-23 19:34
+
+国服自从1.6知道鸡明年就弃了，打算等明年直接日服初始号入坑
+
+就是又要从头复健，好不容易才能打回28，明年可能反应更差了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 16867#       发表于 2024-5-23 19:39
+
+氪金姬胖了
+

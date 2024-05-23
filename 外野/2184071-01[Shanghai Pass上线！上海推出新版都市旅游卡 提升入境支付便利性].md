@@ -529,3 +529,14 @@ Shanghai Passport
 
 原来真的有沪照啊，什么时候出大沪公国成立宣言？
 
+
+*****
+
+####  JJDUB3VQ  
+##### 60#       发表于 2024-5-23 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64939485&amp;ptid=2184071" target="_blank">Alexmacau8 发表于 2024-05-20 13:29:29</a>
+上海版的八达通 会有洋人拿来发经费吗</blockquote>最多只能存1000元
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

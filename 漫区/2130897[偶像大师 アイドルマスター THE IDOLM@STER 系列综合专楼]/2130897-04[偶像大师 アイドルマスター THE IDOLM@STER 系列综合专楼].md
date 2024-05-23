@@ -6201,3 +6201,25 @@ SC这个争议IF的内容再简单不过了，冻柚子和P约了去看电影，
 
 合着主创都是gal厨啊，那死宅气息有点高啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 5026#       发表于 2024-5-23 21:15
+
+小美野P还有岩本P这种年纪，又选择加入游戏公司的，年轻时候大量接触美少女游戏挺正常的，采访里小美野P说就是因为接触了MUV才有了去做游戏的想法，有一说一看小美野在节目的时候没啥情绪波动，还挺无法想象对着AL篇结局大哭的。岩本P提到自己是丸户厨，怎么没去找丸户参加学马，再怎么也比 伏见司之辈强得多。
+
+*****
+
+####  Seeley  
+##### 5027#       发表于 2024-5-23 21:16
+
+喜欢帕露菲是不是以后能有丸户老贼的故事看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野菜一日分  
+##### 5028#       发表于 2024-5-23 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉宗也够搞的，明明里边最校园喜剧的是MUV无印
+

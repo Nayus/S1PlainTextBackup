@@ -233,3 +233,16 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 522433035</blockquote>
 申请了群，没人审批吗？
 
+
+*****
+
+####  库德里尔  
+##### 1590#       发表于 2024-5-23 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64970820&amp;ptid=1220112" target="_blank">洛拉斯 发表于 2024-5-23 07:55</a>
+
+申请了群，没人审批吗？</blockquote>
+1群主+1群管不是什么时候都在的
+
+等等吧
+

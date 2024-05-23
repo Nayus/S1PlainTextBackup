@@ -3548,3 +3548,22 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Benighted  
+##### 4761#       发表于 2024-5-23 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64970453&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-23 02:34</a>
+
+要缩短TTK</blockquote>
+突然想到这个meme:
+
+<img src="https://img.saraba1st.com/forum/202405/23/233602k9t9k6iknd959z1g.jpg" referrerpolicy="no-referrer">
+
+<strong>Anakin Padme Meme.jpg</strong> (189.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 23:36 上传
+

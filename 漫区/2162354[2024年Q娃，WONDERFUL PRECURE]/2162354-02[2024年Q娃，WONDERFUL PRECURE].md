@@ -244,3 +244,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">太好了，快吵架吧
 
+
+*****
+
+####  猫睛石  
+##### 1506#       发表于 2024-5-23 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64971244&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-5-23 08:57</a>
+有什么问题吗</blockquote>
+没问题<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">现实就爱独占欲强经常骂骂咧咧的猫猫。不过剧情里应该要等着看你被打脸吧
+

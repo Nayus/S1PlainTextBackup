@@ -39,3 +39,14 @@
 好久没玩了，问下今年泳装是必须抽的吗，后面的关卡没有会不会很难受</blockquote>
 只追求强度的话，未来的新卡好像都没有什么必要。
 
+
+*****
+
+####  DET  
+##### 46387#       发表于 2024-5-23 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64980957&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2024-5-23 23:00</a>
+
+只追求强度的话，未来的新卡好像都没有什么必要。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">好的，那我就安心等我喜欢的角色实装
+

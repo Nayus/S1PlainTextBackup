@@ -6741,3 +6741,14 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 像这种问题的回复者是志愿者还是微软的员工？
 
+
+*****
+
+####  tiro_finale  
+##### 16883#       发表于 2024-5-23 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64981083&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-5-23 23:14</a>
+
+https://answers.microsoft.com/zh-hans/windows/forum/all/windows11%E6%97%A0%E8%A7%84%E5%BE%8B%E8%93%9 ...</blockquote>
+志愿者版主吧，点进主页，那个版主号还是soyo的
+

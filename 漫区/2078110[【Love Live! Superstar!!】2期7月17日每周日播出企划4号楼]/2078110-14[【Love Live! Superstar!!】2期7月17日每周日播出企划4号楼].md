@@ -393,3 +393,63 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  stygian  
+##### 20204#       发表于 2024-5-21 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958112&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-5-21 23:09</a>
+
+有没有大致关键词</blockquote>
+最糟糕的是我连虹楼还是星楼都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻了自己的历史发言找到了，[https://bbs.nga.cn/thread.php?au ... rchpost=1&amp;fid=0](https://bbs.nga.cn/thread.php?authorid=37297490&amp;searchpost=1&amp;fid=0) 这位老哥，他水贴也不多你可以慢慢翻
+
+*****
+
+####  csolfans  
+##### 20205#       发表于 2024-5-22 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958263&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-21 23:22</a>
+
+最糟糕的是我连虹楼还是星楼都忘了
+
+翻了自己的历史发言找到了，https://bbs.nga.cn/thread.php?authorid ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">谢谢坛友。我发现live Staff结合动画Staff能看到更多有趣东西，明天写下
+
+*****
+
+####  csolfans  
+##### 20206#       发表于 2024-5-23 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64958263&amp;ptid=2078110" target="_blank">stygian 发表于 2024-5-21 23:22</a>
+最糟糕的是我连虹楼还是星楼都忘了
+
+翻了自己的历史发言找到了，https://bbs.nga.cn/thread.php?authorid ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然还没翻完这位老哥的记录，但是学不到不少Staff的知识。我最惊讶一点是他提到小道信息是水虹是若林哥主管，星这边其实脇黒丸翔大主管(反正脇黒丸翔大已经离职相当年份了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  奥柏伦亲王  
+##### 20207#       发表于 2024-5-23 07:53
+
+看4th本体的时候感觉很快乐，但是4th的花絮却觉得不是很有意思，难道我是只爱看2nd那种忧郁调调的扭曲厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  csolfans  
+##### 20208#       发表于 2024-5-23 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64970807&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-5-23 07:53</a>
+看4th本体的时候感觉很快乐，但是4th的花絮却觉得不是很有意思，难道我是只爱看2nd那种忧郁调调的扭曲厨
+
+ ...</blockquote>
+4th花絮在Liella Club还有3段共45分钟
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -11019,3 +11019,40 @@ D、E版都是一半一半，空了四分一
 的内容，超级调整者的设定彻底消失</blockquote>
 没什么可在意的，FT自己估计都没想明白奥路菲骂的失败作到底是什么意思，脑门一拍演出需要有这句台词看着比较酷那就这样了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 911#       发表于 2024-5-23 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64979192&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-23 20:36</a>
+
+刚刚才注意到模型介绍里的关于基拉
+
+的内容，超级调整者的设定彻底消失</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是钢普拉玩得少了
+
+MGEX也没提呀
+
+<img src="https://img.saraba1st.com/forum/202405/23/212738rxddldyfedfhehed.jpg" referrerpolicy="no-referrer">
+
+<strong>mgex02m_0050.jpg</strong> (710.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:27 上传
+
+你说MGEX时已经开始制作剧场版所以按新剧场版设定不提？
+
+但PG时也没有提
+
+<img src="https://img.saraba1st.com/forum/202405/23/212743gqi3z3aoejsa0dtp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>p13_im0012.jpeg</strong> (619.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:27 上传
+
+又不是基拉的商品吗，说明介绍肯定以机体为中心较为详细，驾驶员较为简略
+

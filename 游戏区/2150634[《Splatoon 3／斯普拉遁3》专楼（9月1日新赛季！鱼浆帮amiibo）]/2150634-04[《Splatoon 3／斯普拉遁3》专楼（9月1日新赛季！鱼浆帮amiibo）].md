@@ -320,3 +320,13 @@ ff水球加龙卷风，消防栓陷阱和墨墙
 
 怎么还嫌弃的，水球龙卷风多梦幻啊，这就是喷一竹子丙的配置，天杀的rtt还我竹丙<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 4474#       发表于 2024-5-23 18:54
+
+FF的主墨效率是个大问题，不强化一下没什么前途
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

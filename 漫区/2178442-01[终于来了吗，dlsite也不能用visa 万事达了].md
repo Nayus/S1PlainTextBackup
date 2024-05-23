@@ -219,3 +219,14 @@ http://market.cmbchina.com/ccard/jcbpc/</blockquote>
  ...</blockquote>
 感谢老哥解惑
 
+
+*****
+
+####  duo_wolf  
+##### 135#       发表于 2024-5-23 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64955023&amp;ptid=2178442" target="_blank">duo_wolf 发表于 2024-5-21 18:32</a>
+
+而且fantia好像不能用国内的jcb，我记得我是招行jcb没绑上去才改绑的visa，这下彻底省钱了，然后突然想起 ...</blockquote>
+咦，JCB好像可以用，但是我记得之前肯定是因为JCB没绑上去才绑的VISA啊，奇了怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

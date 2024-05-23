@@ -6053,3 +6053,20 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202405/23/144155fd8zu2duu0e6ucu8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aureth  
+##### 5011#       发表于 2024-5-23 14:54
+
+我现在前半拿到的饮料也是allin冲分训练了，这训练要打满比期中打第一难多了，特别是几张核心牌全进因子了拿个不成型的牌组在那打课程。
+
+*****
+
+####  ads147147  
+##### 5012#       发表于 2024-5-23 14:55
+
+肉鸽游戏还是好玩的，烧时间那也真烧时间。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

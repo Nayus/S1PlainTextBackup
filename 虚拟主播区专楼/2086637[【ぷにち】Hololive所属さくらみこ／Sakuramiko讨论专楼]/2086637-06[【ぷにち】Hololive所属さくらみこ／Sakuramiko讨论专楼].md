@@ -7393,3 +7393,34 @@ fanletter这么多而且内容如此丰富真羡慕啊
 
 赶签名到早上然后直接参加连线polka的早安直播窗，还在聊OPED画面更新的话题，基本上你每年都有更新OP吧跟其他人比起来已经很勤了，ED的话没有改的意义啊大家都习惯现在这版了
 
+
+*****
+
+####  rs5621  
+##### 8837#       发表于 2024-5-23 12:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这版的ed很好看，没必要换吧
+
+*****
+
+####  holoan  
+##### 8838#         楼主| 发表于 2024-5-23 13:18
+
+<img src="https://img.saraba1st.com/forum/202405/23/131818dglggs2oocgk96l6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 13:18 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/131641bvkxovozkkpvok6x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 13:16 上传
+
+这时间这么早是因为21点萝卜的逆凸吧
+

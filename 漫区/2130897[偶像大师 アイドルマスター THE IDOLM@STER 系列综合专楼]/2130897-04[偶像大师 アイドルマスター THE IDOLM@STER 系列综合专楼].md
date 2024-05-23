@@ -6070,3 +6070,13 @@ image.png
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  raimouse  
+##### 5013#       发表于 2024-5-23 15:25
+
+说起来现在这个继承机制也挺尴尬的，核心卡放照片会因为限一导致前期不可能抽到
+
+但是不放照片又不知道猴年马月抽到
+

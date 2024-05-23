@@ -6573,3 +6573,50 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 真的不会成为年初贴吧人气投票的复刻吗
 
+
+*****
+
+####  御幸一也  
+##### 16871#       发表于 2024-5-23 21:40
+
+這麼賣的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/23/213959bumuzpcu6kkur6p4.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #217 46-26 screenshot.jpg</strong> (299.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/214013etmxhh55mibcxpmy.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #217 46-30 screenshot.jpg</strong> (405.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/214021im1bzmuf1zqcxc2o.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #217 47-15 screenshot.jpg</strong> (312.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/214028h51qpg555s99g6n6.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #217 47-31 screenshot.jpg</strong> (375.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 21:40 上传
+
+*****
+
+####  PDQ4  
+##### 16872#       发表于 2024-5-23 21:42
+
+卡面这，官推cp卖好大，画这么好看要骗我现在回坑吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

@@ -6441,3 +6441,19 @@ https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev
 
 说起来官方中字mv对“神さま,バカ”的翻译是“愚神”，感觉有点说法，比如命运捉弄本是姐妹的两人被迫分开之类的。
 
+
+*****
+
+####  PDQ4  
+##### 16858#       发表于 2024-5-23 17:22
+
+要回到经典姐妹论假药了吗
+
+虽然中字是愚神但是我还是喜欢叫神笨。本来对这首歌无感但live卖太大越来越喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+睦的祈祷真的很适合造假药，忘了是不是泥漏里说过的了，初华写词能完美感受他人内心，这首歌到底对应谁。对应睦就是祈祷无望痛斥神明，对应祥子可以造谣睦在祈祷而祥子早已放弃，这种错位昭示着姐妹身份回不去
+
+不过没进动画不好说有多少信息量，可能最后只有黑生进吧，但是live卖这么大先当真为敬<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+syl，Memento mori藏名还有一点难蚌的是，这可不是什么好意思，造谣这个是想做什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

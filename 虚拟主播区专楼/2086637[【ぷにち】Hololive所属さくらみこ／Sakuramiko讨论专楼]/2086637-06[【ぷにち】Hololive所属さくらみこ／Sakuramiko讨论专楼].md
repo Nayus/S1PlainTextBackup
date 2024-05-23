@@ -7470,3 +7470,34 @@ fanletter这么多而且内容如此丰富真羡慕啊
 
 看看还有谁会来，这全败战绩啊
 
+
+*****
+
+####  rs5621  
+##### 8843#       发表于 2024-5-23 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">61被35的语言攻势整分神还行
+
+*****
+
+####  holoan  
+##### 8844#         楼主| 发表于 2024-5-23 20:54
+
+rui太丢人了，赛马没赢过直接对决miko也没赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 8845#       发表于 2024-5-23 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来挽尊的
+
+*****
+
+####  holoan  
+##### 8846#         楼主| 发表于 2024-5-23 20:56
+
+所以说还是看本身的实力水平，你平时打更熟练的话就不容易被对手影响分神
+
+miko刚才说自己开播前也没有偷练过直接裸上的
+

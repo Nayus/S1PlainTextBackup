@@ -3345,3 +3345,14 @@ paradox interactive是发行部门，做游戏的是paradox development studio�
 <img src="https://p.sda1.dev/17/3ea08bf2b07517eb6986aa8601263d7c/CMP_20240523111003673.jpg" referrerpolicy="no-referrer">
 飞矛1000直伤
 
+
+*****
+
+####  Mr.Hopp  
+##### 4756#       发表于 2024-5-23 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64971823&amp;ptid=2170852" target="_blank">ws4222 发表于 2024-5-23 09:47</a>
+
+缩短每个单位的击杀时间，大概意思就是要加强枪械或者引入大规模杀伤支援吧 ...</blockquote>
+我觉得TTK不是最大的问题，最大的问题是追求TTK只能选固定几个装备，考虑到CEO觉得一开始磁轨太强了，不太看好后面的更新。
+

@@ -6025,3 +6025,31 @@ p逻辑毛球和琴音的思路还不太一样，不能前夜无脑刷好印象�
 
 确实中期没影响挺抽象的，对打分还没期中冲刺训练重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 5009#       发表于 2024-5-23 14:42
+
+后面特训花的钱也太多了吧，升个五一半金币没了，材料也是要一大堆
+
+而且后面会加不少sp率，也是得升上去才好打
+
+*****
+
+####  Achlys  
+##### 5010#       发表于 2024-5-23 14:42
+
+凹出我是大明星了，就是回忆属性菜了点...玩好印象的楼友自便
+
+34WSYP8K
+
+image.png
+(1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 14:41 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/144155fd8zu2duu0e6ucu8.png" referrerpolicy="no-referrer">
+

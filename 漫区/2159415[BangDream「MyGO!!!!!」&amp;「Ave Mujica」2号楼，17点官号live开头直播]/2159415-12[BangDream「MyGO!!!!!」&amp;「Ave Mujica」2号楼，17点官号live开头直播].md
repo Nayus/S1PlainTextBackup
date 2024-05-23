@@ -6486,3 +6486,29 @@ syl，Memento mori藏名还有一点难蚌的是，这可不是什么好意思�
 
 https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32f5ece3df845c3fbf53486900/Image_1716460522218.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16862#       发表于 2024-5-23 19:15
+
+这节目，i83本来快要答对了又拐到打枪上去了，不过后面又回答对了
+
+
+*****
+
+####  rikaren  
+##### 16863#       发表于 2024-5-23 19:22
+
+漏油有来看手游国服五周年直播的吗？
+
+*****
+
+####  御幸一也  
+##### 16864#       发表于 2024-5-23 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64977743&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-23 17:55</a>
+
+谨记你终有一死，翻当时拿这个贷款／假药的就没看到有提这个什么意思</blockquote>
+可能是一些人根本不知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

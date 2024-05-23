@@ -3578,3 +3578,11 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 <img src="https://p.sda1.dev/17/2e3b603d0cbd1c3337aa29a38eeeb250/Image_1716480094901.jpg" referrerpolicy="no-referrer">
 新任务解锁机炮机甲
 
+
+*****
+
+####  rainknine  
+##### 4763#       发表于 2024-5-24 01:13
+
+箭头终于舍得动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

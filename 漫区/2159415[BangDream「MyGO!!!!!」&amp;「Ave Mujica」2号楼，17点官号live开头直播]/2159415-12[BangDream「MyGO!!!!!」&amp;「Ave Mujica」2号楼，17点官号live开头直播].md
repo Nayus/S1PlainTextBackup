@@ -6777,3 +6777,15 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 这个眼神，花音果然是攻
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16887#       发表于 2024-5-24 00:06
+
+花音本来就是攻，两个人相处的剧情一般就是花音用这张素食的脸把千圣玩得一愣一愣的。
+
+那句“不是我的家，是我们两个人的家”，我都被shock到了，更何况是当面的千圣。
+
+还有舞台剧之后阻止千圣给薰哥哥寄信，打断薰哥哥的大招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

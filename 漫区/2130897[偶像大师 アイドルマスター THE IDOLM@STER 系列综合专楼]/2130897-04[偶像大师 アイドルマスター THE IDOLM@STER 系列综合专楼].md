@@ -6140,3 +6140,23 @@ IF线我觉得核心最大问题是高山似乎是试图去展示“未来的另
 
 很多艺术电影用这种手法能做到，但我不觉得高山和SC这个企划做到了这点。
 
+
+*****
+
+####  rgauss  
+##### 5020#       发表于 2024-5-23 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64976540&amp;ptid=2130897" target="_blank">kykawaiii 发表于 2024-5-23 16:07</a>
+能不能来个闪p，说说scif新剧情啊，我☁️不懂</blockquote>
+高山脑子抽筋了 
+
+
+*****
+
+####  raimouse  
+##### 5021#       发表于 2024-5-23 16:23
+
+<blockquote>植树淡季 发表于 2024-5-23 15:47
+可以抽到的。抽到后中期不给你发而已</blockquote>
+那好像还是坑，这样等于没抽到，或者说少带半张照片
+

@@ -6386,3 +6386,42 @@ https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev
 说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关 ...</blockquote>
 應該沒解密吧，感覺解不出什麼東西了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16851#       发表于 2024-5-22 09:51
+
+说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关系，总之也不明白四元素系列会不会也和初始五首有对应，这解密是真的卡壳了。
+
+*****
+
+####  KozueAkimoto  
+##### 16852#       发表于 2024-5-22 11:13
+
+广州竟然有活动？watch out need more<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 正统二次元活动 不是什么 小卡拉米国漫漫展和cos 而是和官方霓虹有联系的 牛逼牛逼
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16853#       发表于 2024-5-22 19:18
+
+https://x.com/novi_visual/status/1793201381982994900<img src="https://p.sda1.dev/17/599d3fe139905f435b0af89756d76250/CMP_20240522191751222.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16854#       发表于 2024-5-22 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64960728&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-22 09:51</a>
+
+说起来有个问题，愚神和CSC都是指向睦祥的吧，逆天wsd不会初始五首没做一一对应吧。火元素那首又和愚神有关 ...</blockquote>
+應該沒解密吧，感覺解不出什麼東西了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16855#       发表于 2024-5-23 09:22
+
+愚神，CSC都指向睦祥，还有双子情歌的翻唱，这要么真是姐妹要么不是姐妹胜似姐妹了。
+

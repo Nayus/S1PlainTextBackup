@@ -3567,3 +3567,14 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 
 2024-5-23 23:36 上传
 
+
+*****
+
+####  xinfengj  
+##### 4762#       发表于 2024-5-24 00:03
+
+<img src="https://p.sda1.dev/17/3bd590c010b79ae712192e79ecd50c29/CMP_20240524000212936.jpg" referrerpolicy="no-referrer">
+败了
+<img src="https://p.sda1.dev/17/2e3b603d0cbd1c3337aa29a38eeeb250/Image_1716480094901.jpg" referrerpolicy="no-referrer">
+新任务解锁机炮机甲
+

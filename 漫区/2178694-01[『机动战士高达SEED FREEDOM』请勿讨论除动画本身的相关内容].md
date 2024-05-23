@@ -10863,3 +10863,61 @@ magnet:?xt=urn:btih:17AB2166FA4861 ...</blockquote>
 
 这也能给差评？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 903#       发表于 2024-5-23 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在X上的HGCE非凡强自板件图不够清晰，但大致能看到，基本上都把非凡强自/强自贰式本体与强自有差异的零件能集中的都集中在一起，相应的流道上均有转水口开关
+
+<img src="https://img.saraba1st.com/forum/202405/23/114546slkf7uoo6shoso47.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIly1hpx69x3n8yj30m80gok28.jpg</strong> (86.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 11:45 上传
+
+A板红色零件部分的流道看不清，就不标记转水口开关了
+
+<img src="https://img.saraba1st.com/forum/202405/23/114639pvurj7crdjuwmrvw.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIly1hpx69xk4ahj30m80gogth.jpg</strong> (83.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 11:46 上传
+
+B1、B2板是一个大板件剪开两半，有差异的零件都在两则，不注塑两侧的零件的话，可以就不剪开
+
+<img src="https://img.saraba1st.com/forum/202405/23/114829r7ztvkz0utkfqbex.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIly1hpx69yq1kij30m80go134.jpg</strong> (60.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 11:48 上传
+
+C板也是把荣耀捍卫者的零件放两则，中间的都是关节
+
+<img src="https://img.saraba1st.com/forum/202405/23/114833o3a3g9naydgd7dag.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIly1hpx69z9bqtj30m80gon6p.jpg</strong> (54.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 11:48 上传
+
+<img src="https://img.saraba1st.com/forum/202405/23/114857mpd99ummpecy0ycp.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIly1hpx69zr4yvj30m80gowm6.jpg</strong> (40.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 11:48 上传
+
+D、E版都是一半一半，空了四分一
+
+这个转水口开关的份量和颜色，明细不是一个背包就算的准备<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

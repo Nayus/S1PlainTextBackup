@@ -10830,3 +10830,19 @@ magnet:?xt=urn:btih:17AB2166FA4861 ...</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  死难者23er  
+##### 901#       发表于 2024-5-23 10:12
+
+<img src="https://img.saraba1st.com/forum/202405/23/101133x4uj8wdo42u55zlf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2223.png</strong> (245.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-23 10:11 上传
+
+看来非凡自由模型评价非常低，不过最后一句话才是核心估计还是会大卖的
+

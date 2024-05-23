@@ -3538,3 +3538,13 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 
 查看全部评分
 
+
+*****
+
+####  风萧飒  
+##### 4760#       发表于 2024-5-23 18:51
+
+星际元帅亲自下场的话会加强机炮吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

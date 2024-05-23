@@ -262,3 +262,13 @@ ff水球加龙卷风，消防栓陷阱和墨墙
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 4467#       发表于 2024-5-23 17:43
+
+下季预告：贴牌栓，死す
+
+—— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

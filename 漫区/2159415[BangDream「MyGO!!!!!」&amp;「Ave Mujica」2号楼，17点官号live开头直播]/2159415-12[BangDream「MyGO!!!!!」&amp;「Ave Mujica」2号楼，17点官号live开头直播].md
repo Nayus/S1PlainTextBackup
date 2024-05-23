@@ -6693,3 +6693,15 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 好羡慕五人回，我的鸡相声呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16878#         楼主| 发表于 2024-5-23 22:10
+
+ 本帖最后由 紫吹兰 于 2024-5-23 22:12 编辑 
+
+顺便，由于我们神奇的二号楼是目前漫区活着的楼里唯一没有分类的，web页面还挺突出的，我暂时不太想修改顶楼（修改了就必须选分类了）。
+
+所以我暂时置顶了一层更新动态了，不过效果不好就是了，主要还是舍不得修改顶楼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

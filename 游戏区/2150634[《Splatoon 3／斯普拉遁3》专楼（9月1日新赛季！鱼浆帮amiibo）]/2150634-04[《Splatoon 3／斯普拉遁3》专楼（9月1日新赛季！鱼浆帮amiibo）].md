@@ -348,3 +348,15 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 贴牌大概还是比原版强一点吧，原版的地雷实在是没什么用
 
+
+*****
+
+####  martinium  
+##### 4477#       发表于 2024-5-24 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64960436&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-5-22 09:22</a>
+自由搭配(加上cost制也一样)的下场请参考一代末期环境。一代中桶哪怕把大招换成二代砸地也是你喷史上最强前 ...</blockquote>
+难道不自由搭配就没有最强武器么？电锯铅笔现在不一样是队伍必备。指望研究所三个月大更新搞平衡就是想多了，自由搭配主要是让游戏更好玩一点。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

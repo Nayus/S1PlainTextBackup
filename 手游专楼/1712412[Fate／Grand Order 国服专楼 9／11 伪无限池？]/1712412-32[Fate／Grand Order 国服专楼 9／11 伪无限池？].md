@@ -29,3 +29,13 @@
 
 唉只能靠好友的5宝公主刷90++
 
+
+*****
+
+####  GuDaZi  
+##### 46386#       发表于 2024-5-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64977483&amp;ptid=1712412" target="_blank">DET 发表于 2024-5-23 17:29</a>
+好久没玩了，问下今年泳装是必须抽的吗，后面的关卡没有会不会很难受</blockquote>
+只追求强度的话，未来的新卡好像都没有什么必要。
+

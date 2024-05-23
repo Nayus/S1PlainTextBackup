@@ -8441,3 +8441,21 @@ mooncell，chaldea网页端也能用
 忘了这活动咋打了，概率礼装带两张满配的就行吗？还是铺满</blockquote>
 两张满破就行，100%就上限了，其他礼装随意
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12777#       发表于 2024-5-23 23:01
+
+第一波数量可变，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  alucardcz  
+##### 12778#       发表于 2024-5-23 23:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当成2个就行了 真遇到一个直接平a砍死
+

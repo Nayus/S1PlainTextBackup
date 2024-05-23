@@ -8459,3 +8459,11 @@ mooncell，chaldea网页端也能用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当成2个就行了 真遇到一个直接平a砍死
 
+
+*****
+
+####  khxooo  
+##### 12779#       发表于 2024-5-24 07:44
+
+水信长带倍卡一宝伤害就够了，不愧是神性特攻特化。
+

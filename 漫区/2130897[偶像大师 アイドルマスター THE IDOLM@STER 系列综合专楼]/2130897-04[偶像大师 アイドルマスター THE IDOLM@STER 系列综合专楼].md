@@ -5920,3 +5920,36 @@ vivopad3Pro适配cgss真的是一坨，打个歌卡成PPT，要关了タッチ�
 加上活动还有加成 ...</blockquote>
 几个感兴趣的角色开完A+就没什么可玩的了，还抽不到新P卡，感觉不如直接b站云剧情<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">至少开服这几天是玩爽了
 
+
+*****
+
+####  joshua1990  
+##### 4998#       发表于 2024-5-23 01:04
+
+感觉小蓝solo2的水平比solo1进步不少呀，可能也是solo1这歌太不当人的缘故吧。
+
+*****
+
+####  ぽんぽこ仮面  
+##### 4999#       发表于 2024-5-23 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64967022&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-22 18:20</a>
+
+目前这福利,等林冲存够一井,估计已经无聊到弃坑了吧
+
+每天就是重复Ｐ那几张Ｒ卡或者ｓｒ
+
+加上活动还有加成 ...</blockquote>
+几个感兴趣的角色开完A+就没什么可玩的了，还抽不到新P卡，感觉不如直接b站云剧情<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">至少开服这几天是玩爽了
+
+*****
+
+####  raimouse  
+##### 5000#       发表于 2024-5-23 08:14
+
+昨天就差几十分a+了，今天赶紧同阵容又开了一局结果刷不出sp课程不说
+
+课程还卡手倒扣体力
+
+57%的sp几率一次没出
+

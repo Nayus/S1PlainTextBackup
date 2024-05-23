@@ -134,3 +134,11 @@
 现在tb百亿补贴359应该是最便宜的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好吧我第五次退单重买了
 
+
+*****
+
+####  nagitoY  
+##### 3180#       发表于 2024-5-23 11:12
+
+浪人还有机会出dlc吗？或者对马岛这种资料片也行。
+

@@ -3327,3 +3327,21 @@ paradox interactive是发行部门，做游戏的是paradox development studio�
 
 缩短TTK怎么理解？
 
+
+*****
+
+####  迷途lite  
+##### 4754#       发表于 2024-5-23 11:03
+
+说到飞矛，飞矛的伤害和次抛这些筒子比起来有区别吗？之前打防守战的时候有过飞矛一发破头打死泰坦的情况，不知道是累计伤害够了还是怎样。朋友说次抛无后作和飞矛伤害是一样的
+
+*****
+
+####  xinfengj  
+##### 4755#       发表于 2024-5-23 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64972930&amp;ptid=2170852" target="_blank">迷途lite 发表于 2024-5-23 11:03</a>
+说到飞矛，飞矛的伤害和次抛这些筒子比起来有区别吗？之前打防守战的时候有过飞矛一发破头打死泰坦的情况， ...</blockquote>
+<img src="https://p.sda1.dev/17/3ea08bf2b07517eb6986aa8601263d7c/CMP_20240523111003673.jpg" referrerpolicy="no-referrer">
+飞矛1000直伤
+

@@ -10846,3 +10846,20 @@ magnet:?xt=urn:btih:17AB2166FA4861 ...</blockquote>
 
 看来非凡自由模型评价非常低，不过最后一句话才是核心估计还是会大卖的
 
+
+*****
+
+####  gundammarkⅡ  
+##### 902#       发表于 2024-5-23 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64972157&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-23 10:12</a>
+
+看来非凡自由模型评价非常低，不过最后一句话才是核心估计还是会大卖的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么会评价非常低？
+
+完全新规，可动也是种自系列的SEEDアクションシステム，本体完美分色，荣耀捍卫者翅膀的红色是PGU 78开始使用的那种3D贴纸，能还原拉伸展开，只有尾巴的蓝色边要上蓝色普通贴纸
+
+缺点是武器，新规的双步枪还是要一堆贴纸补蓝色和枪口后端一圈红色，头炮展开替换件整个黄色要上贴纸，打刀刀锷分件了但刀柄尾端金色连贴纸都没有
+
+这也能给差评？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

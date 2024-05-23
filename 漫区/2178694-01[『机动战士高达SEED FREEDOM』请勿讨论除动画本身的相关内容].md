@@ -10969,3 +10969,14 @@ D、E版都是一半一半，空了四分一
 基拉：（驾驶舱弹窗显示收束重核子光束分裂炮程序启动，一连串骚操作的机动动作占据有利发射位置）射击准备完毕，收束重核子光束分裂炮开启
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NBGI  
+##### 907#       发表于 2024-5-23 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64959634&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-22 07:28</a>
+
+所以，原定非凡飞升自由大概是这样？头要不要换呢？</blockquote>
+本体颜色应该会配合翅膀变成白色吧
+

@@ -7372,3 +7372,24 @@ fanletter这么多而且内容如此丰富真羡慕啊
 
 2024-5-22 23:23 上传
 
+
+*****
+
+####  holoan  
+##### 8835#         楼主| 发表于 2024-5-22 23:23
+
+<img src="https://img.saraba1st.com/forum/202405/22/232347gibpbqiphikqi4fw.png" referrerpolicy="no-referrer">
+
+<strong>image.PNG</strong> (5.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-22 23:23 上传
+
+*****
+
+####  holoan  
+##### 8836#         楼主| 发表于 2024-5-23 10:04
+
+赶签名到早上然后直接参加连线polka的早安直播窗，还在聊OPED画面更新的话题，基本上你每年都有更新OP吧跟其他人比起来已经很勤了，ED的话没有改的意义啊大家都习惯现在这版了
+

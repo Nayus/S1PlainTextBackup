@@ -177,3 +177,22 @@ E0x_zEqVcAYLR8p.jpeg
 
 所以这人不是你麻啊 你麻前任野男人还差不多 
 
+
+*****
+
+####  rubinliu  
+##### 16463#       发表于 2024-5-23 19:17
+
+好几年没看你咩姐了
+
+最近听到了学马仕皮卡丘那首hw歌不知怎么就想到了你咩姐
+
+请问现在让过气主播唱一首歌要几钱SC啊？<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 16464#       发表于 2024-5-23 23:06
+
+免费点歌，随缘唱歌。
+

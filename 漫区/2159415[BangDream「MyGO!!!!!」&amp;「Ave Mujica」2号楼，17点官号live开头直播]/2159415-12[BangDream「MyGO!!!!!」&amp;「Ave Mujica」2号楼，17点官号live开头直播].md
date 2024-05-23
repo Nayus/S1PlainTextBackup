@@ -6731,3 +6731,13 @@ https://www.pixiv.net/artworks/118978463<img src="https://p.sda1.dev/17/c8858b32
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就说怎么不对齐
 
+
+*****
+
+####  [皆神孝介]  
+##### 16882#       发表于 2024-5-23 23:14
+
+[https://answers.microsoft.com/zh ... d-be2e-541e3eb65d63](https://answers.microsoft.com/zh-hans/windows/forum/all/windows11%E6%97%A0%E8%A7%84%E5%BE%8B%E8%93%9D/35ba4c0d-84cf-446d-be2e-541e3eb65d63)
+
+像这种问题的回复者是志愿者还是微软的员工？
+

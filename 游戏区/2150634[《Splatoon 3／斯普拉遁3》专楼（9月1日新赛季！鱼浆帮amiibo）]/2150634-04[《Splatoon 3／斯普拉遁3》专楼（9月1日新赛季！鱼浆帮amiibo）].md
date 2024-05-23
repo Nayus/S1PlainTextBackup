@@ -252,3 +252,13 @@ ff水球加龙卷风，消防栓陷阱和墨墙
 
 竟然是灭熄FF改装，而不是叫灭熄GG之类的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4466#       发表于 2024-5-23 17:33
+
+消防栓 奠
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

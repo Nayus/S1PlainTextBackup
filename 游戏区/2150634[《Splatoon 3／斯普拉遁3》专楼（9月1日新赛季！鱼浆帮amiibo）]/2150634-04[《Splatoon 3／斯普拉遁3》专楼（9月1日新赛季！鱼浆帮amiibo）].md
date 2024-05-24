@@ -483,3 +483,29 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 熊加要来了吗！！
 最后还剩熊笔和熊刷，要不一次性都出了吧boss都能联合熊武器怎么不能多来几个。
 
+
+*****
+
+####  KBAC  
+##### 4488#       发表于 2024-5-24 17:56
+
+<img src="https://img.saraba1st.com/forum/202405/24/175601ani1bh4e14nbh0y0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_9481.jpeg</strong> (637.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 17:56 上传
+
+宣传图里的购物公园好像已经是修改后的了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  stoiorz  
+##### 4489#       发表于 2024-5-24 18:02
+
+端午节要出行，不一定玩的到。岂可修。
+

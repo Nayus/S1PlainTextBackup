@@ -7621,3 +7621,40 @@ rui。。。
 
 我懂了这是昨天输了的怨念
 
+
+*****
+
+####  holoan  
+##### 8854#         楼主| 发表于 2024-5-24 17:42
+
+ 本帖最后由 holoan 于 2024-5-24 17:56 编辑 
+
+而且是稍后立即开播，难道是晚上还有其他安排……？
+
+<img src="https://img.saraba1st.com/forum/202405/24/175255ntr1t566lt8rargk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (961.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 17:52 上传
+
+我打赌1000%剧情全忘了，就记得那几架漂亮的机体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+主要是我一个月前突击补的全部剧情其实现在也忘得差不多了，这就是恶补的坏处
+
+*****
+
+####  holoan  
+##### 8855#         楼主| 发表于 2024-5-24 18:00
+
+<img src="https://img.saraba1st.com/forum/202405/24/180045mwbev3vkpwn321je.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 18:00 上传
+
+又谁
+

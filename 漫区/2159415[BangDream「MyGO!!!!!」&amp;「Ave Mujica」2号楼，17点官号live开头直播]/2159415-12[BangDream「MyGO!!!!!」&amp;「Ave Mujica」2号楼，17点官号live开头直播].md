@@ -7167,3 +7167,21 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">舞台劇是事先錄好的，官方想烤只會更簡單，要個台本的事
 
+
+*****
+
+####  NODY  
+##### 16920#       发表于 2024-5-24 13:15
+
+国内现在这舅舅满天飞的环境，提前给台本的话被舅舅偷偷爆出来的危险有点大就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 16921#       发表于 2024-5-24 13:22
+
+<blockquote>NODY 发表于 2024-5-24 13:11
+cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降青梅或者初中同学就行了，再不行还有追星，再给 ...</blockquote>
+高人气角色乱配小心炎上哦，chu²卡面是ykn这我都很好奇ccpr推，ras推那边居然没什么反应。
+

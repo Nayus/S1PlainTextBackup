@@ -256,3 +256,11 @@
 
 补词条的因缘珠现在倒是好刷，但升级装备到110级挺花钱的，全身110的话建议先刷到高等级的底子再强化。
 
+
+*****
+
+####  nagitoY  
+##### 3192#       发表于 2024-5-25 00:48
+
+送礼sl了两天，总算是搞了套龙4虎2，再也不想刷了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

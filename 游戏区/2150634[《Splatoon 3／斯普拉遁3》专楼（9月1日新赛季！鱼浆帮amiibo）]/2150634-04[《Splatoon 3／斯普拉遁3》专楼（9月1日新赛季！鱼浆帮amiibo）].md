@@ -613,3 +613,19 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  martinium  
+##### 4500#       发表于 2024-5-25 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987529&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-5-24 16:34</a>
+让电锯在无印和贴牌间切配置吗
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+自由组合的本质又不是削弱强武器，而是让垃圾武器有上场机会。环境武器总会存在，现在最大的问题是很多弱武器因为配置问题只能直接进垃圾堆
+开放配置的话好歹这些武器还有一线可以抢救的余地。
+比如绿桶，如果可以选择碳酸飞机的话本来是有t0潜力的武器。银喷搞出一个碳酸nice弹，也不是不能玩。强武器因为配置已经很优化了，自由组合并不会提高多少强度，一些因为副武器大招配置抽签输掉的武器倒是有一定上场机会。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -243,3 +243,13 @@ Starship在开始滑行阶段数分钟后失去了姿态控制能力。它依然
 
 最可能的原因是负责滚转控制的活门堵塞。SpaceX已在之后的Starship上增加了额外了滚转推进器以提高姿态控制的冗余能力，并升级了硬件以提高对堵塞的抵御能力。
 
+
+*****
+
+####  susan28  
+##### 59#       发表于 2024-5-24 22:48
+
+坐等6月5号！
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

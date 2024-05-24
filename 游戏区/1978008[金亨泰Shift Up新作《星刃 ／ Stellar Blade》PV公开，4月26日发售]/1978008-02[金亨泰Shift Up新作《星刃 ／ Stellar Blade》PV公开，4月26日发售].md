@@ -338,3 +338,14 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐为你准备了个小礼物。 ...</blockquote>
 原来这个不明说的小礼物是未和谐版本的两件衣服的换色版
 
+
+*****
+
+####  jacket  
+##### 1651#       发表于 2024-5-24 19:52
+
+还没推送，只能先看别人的图过把瘾
+
+<img src="https://img.imoutomoe.net/images/2024/05/24/GOVt4j3XsAAqriq.jpg" referrerpolicy="no-referrer">
+<img src="https://img.imoutomoe.net/images/2024/05/24/GOVt4j3XsAEd40H.jpg" referrerpolicy="no-referrer">
+

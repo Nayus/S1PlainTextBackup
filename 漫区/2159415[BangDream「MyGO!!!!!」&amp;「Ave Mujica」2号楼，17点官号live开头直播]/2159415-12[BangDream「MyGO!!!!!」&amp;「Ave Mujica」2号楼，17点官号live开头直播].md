@@ -7500,3 +7500,14 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
 
 唉，就算是隔壁某个虚拟女团最火的时候我都没去BML，估计今年要去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雪川_  
+##### 16954#       发表于 2024-5-25 07:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985635&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-24 13:22</a>
+
+高人气角色乱配小心炎上哦，chu²卡面是ykn这我都很好奇ccpr推，ras推那边居然没什么反应。 ...</blockquote>
+为什么叫乱配，楚平方不一直叫着要打败她吗，
+

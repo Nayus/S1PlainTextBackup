@@ -6282,3 +6282,19 @@ SC这个争议IF的内容再简单不过了，冻柚子和P约了去看电影，
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  zhwpjy  
+##### 5035#       发表于 2024-5-24 12:04
+
+<img src="https://img.saraba1st.com/forum/202405/24/120318gfpcudrdbhf7zub1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5171.jpeg</strong> (105.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:03 上传
+
+机器人动画的葛城莉莉娅，印象色是白银，演出服是蓝黑制服风格(联合国军同款)，性格弱气，有个叫Sumika的开朗好朋友 nga猜莉莉娅是不是致敬白银武
+

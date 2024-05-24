@@ -50,3 +50,11 @@
 只追求强度的话，未来的新卡好像都没有什么必要。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">好的，那我就安心等我喜欢的角色实装
 
+
+*****
+
+####  Blackson  
+##### 46388#       发表于 2024-5-24 10:34
+
+礼物盒放狗粮太多了，导致抽不了池子
+

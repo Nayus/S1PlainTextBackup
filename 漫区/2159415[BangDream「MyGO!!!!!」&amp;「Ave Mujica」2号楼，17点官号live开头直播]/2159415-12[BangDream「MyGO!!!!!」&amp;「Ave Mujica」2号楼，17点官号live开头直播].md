@@ -7239,3 +7239,23 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 
 不过就算做了估计也是三人行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16926#       发表于 2024-5-24 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984994&amp;ptid=2159415" target="_blank">nebulanoby 发表于 2024-5-24 12:16</a>
+
+可恶啊，麻弥和1V都好喜欢，还刚好对烤炉无感
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 S1Next-鹅版  ...</blockquote>
+反正伊芙还有个保底，老家的青梅
+
+*****
+
+####  NODY  
+##### 16927#       发表于 2024-5-24 14:03
+
+情人节那次还真看到有彩花音厨在推特黑泥难得轮上自家cp结果没剧情的，开服这么多年也没一次的事偏偏给冷cp撞上是真的倒霉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

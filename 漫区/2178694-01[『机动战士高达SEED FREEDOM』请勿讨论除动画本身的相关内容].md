@@ -11324,3 +11324,16 @@ MGEX也没提呀
 
 这下国内肯定不会上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 934#       发表于 2024-5-24 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985172&amp;ptid=2178694" target="_blank">ShyCrazydog 发表于 2024-5-24 12:33</a>
+
+贴吧色佬说是上面在福田事后二审也开绿灯了，但华策软蛋一直在拖</blockquote>
+华策真的不行
+
+既然流媒体这么快要上，内地现在即使上映票房也不会好看
+

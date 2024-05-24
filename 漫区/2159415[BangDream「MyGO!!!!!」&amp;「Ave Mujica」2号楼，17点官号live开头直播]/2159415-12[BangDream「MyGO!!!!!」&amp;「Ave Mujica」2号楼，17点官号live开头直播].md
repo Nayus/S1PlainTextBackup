@@ -7341,3 +7341,26 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
  漏油有来看手游国服五周年直播的吗？</blockquote>
 看完发现是录播<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16937#       发表于 2024-5-24 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987282&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-24 16:15</a>
+
+原来路痴只是一个陷阱，真正的猎人往往以猎物的形态出现</blockquote>
+薰哥哥别装帅，还保持幼年的软妹形象，早tm赢了
+
+
+*****
+
+####  utotqe  
+##### 16938#       发表于 2024-5-24 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987397&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 16:23</a>
+薰哥哥别装帅，还保持幼年的软妹形象，早tm赢了</blockquote>
+薰哥哥也可以加入她们<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">古典花园那期其实是花音的后宫
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

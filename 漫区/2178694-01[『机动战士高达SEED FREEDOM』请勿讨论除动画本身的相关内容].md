@@ -11369,3 +11369,22 @@ MGEX也没提呀
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没那么多弯弯绕绕，就是华策草台而已。
 
+
+*****
+
+####  洛克萨斯  
+##### 939#       发表于 2024-5-24 16:27
+
+怎么感觉福田眼里的准将比风见还巨婴.................
+
+
+*****
+
+####  ナルバレック  
+##### 940#       发表于 2024-5-24 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985759&amp;ptid=2178694" target="_blank">vincenttc 发表于 2024-5-24 13:37</a>
+
+这下国内肯定不会上了吧</blockquote>
+不一定，HF第二部我记得就是网上资源到处是了再上的
+

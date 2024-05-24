@@ -403,3 +403,13 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 我只是想在几个选项里自由搭配而已，倒不是说想要快进到完全开放自选配置，甚至脑洞一下如果对战中可以切换 ...</blockquote>
 现在已有的无印及贴牌所提供的两组副武器与大招有哪些是值得抉择而不是秒选其一的
 
+
+*****
+
+####  秋月孝三  
+##### 4482#       发表于 2024-5-24 16:34
+
+让电锯在无印和贴牌间切配置吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -205,3 +205,19 @@ FAA发布了印度洋落区NOTAM
 
 2024-5-24 19:15 上传
 
+
+*****
+
+####  commcody  
+##### 57#         楼主| 发表于 2024-5-24 21:40
+
+[https://www.spacex.com/launches/ ... d=starship-flight-4](https://www.spacex.com/launches/mission/?missionId=starship-flight-4)
+
+SpaceX宣布将在最早6月5日进行第四飞，仍在等待有关部门批准。
+
+第四飞主要目标是演示Super Heavy的软着陆和Starship的再入能力。
+
+SpaceX针对第三飞所暴露的问题进行了修正，同时进行了新改进。例如将在Super Heavy返场飞行时抛弃热分离级间段以减少重量。
+
+第四飞仍将再入印度洋。
+

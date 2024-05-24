@@ -359,3 +359,21 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 还没推送，只能先看别人的图过把瘾</blockquote>
 挂上海外代理就能更新了
 
+
+*****
+
+####  现实的叉子  
+##### 1653#       发表于 2024-5-24 20:11
+
+服了这都几点了日服都不更新
+
+*****
+
+####  jacket  
+##### 1654#       发表于 2024-5-24 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64989465&amp;ptid=1978008" target="_blank">袄_偶滴小乔 发表于 2024-5-24 20:06</a>
+
+挂上海外代理就能更新了</blockquote>
+dns代理重启一条龙了，没有出来
+

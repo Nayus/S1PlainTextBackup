@@ -555,3 +555,14 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 温泉这个大粪图也赶紧修了吧
 
+
+*****
+
+####  Teiume  
+##### 4495#       发表于 2024-5-24 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64988894&amp;ptid=2150634" target="_blank">hisousihou 发表于 2024-5-24 19:01</a>
+喷喷法国官号说是滚筒</blockquote>
+日服图是加特林，法推号说是刷，很疑惑（挠头.jpg）。
+或者一次来两个？总不会是加和刷的混合吧
+

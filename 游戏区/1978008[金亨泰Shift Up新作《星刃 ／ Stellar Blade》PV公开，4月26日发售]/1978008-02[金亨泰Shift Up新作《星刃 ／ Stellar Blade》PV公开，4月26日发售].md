@@ -461,3 +461,13 @@ dns代理重启一条龙了，没有出来</blockquote>
 
 准备打boss rush的时候才发现，用这个顺序白金的存档里没有解锁普通结局的老boss，要再通一遍三周目才能拿到boss rush衣服。
 
+
+*****
+
+####  B.K.  
+##### 1663#       发表于 2024-5-24 22:41
+
+等等，这换色未和谐衣服屁股部分还是和谐的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然能反和谐一部分也不错就是了
+

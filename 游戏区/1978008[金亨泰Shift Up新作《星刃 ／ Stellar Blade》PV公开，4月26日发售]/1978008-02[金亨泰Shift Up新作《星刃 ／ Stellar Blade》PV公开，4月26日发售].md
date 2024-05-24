@@ -303,3 +303,19 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  nage560  
+##### 1648#       发表于 2024-5-24 18:24
+
+<img src="https://img.saraba1st.com/forum/202405/24/182354bqmis01d4hise0lw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240517_231950.jpg</strong> (215.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 18:23 上传
+
+玩完只觉得系统太浅了，一周目后不想再碰，再多烧鸡衣服也没有动力了，而且很多衣服设计得还不咋样。真的远不如机械纪元……
+

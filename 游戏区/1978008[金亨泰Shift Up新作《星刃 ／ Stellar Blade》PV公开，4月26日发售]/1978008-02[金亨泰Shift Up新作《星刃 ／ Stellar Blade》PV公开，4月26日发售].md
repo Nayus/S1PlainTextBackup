@@ -428,3 +428,16 @@ dns代理重启一条龙了，没有出来</blockquote>
 换了色之后还是和谐的吗......</blockquote>
 不是，换了就是没和谐的，但是原本和谐的不改
 
+
+*****
+
+####  盗圣白静婷  
+##### 1660#       发表于 2024-5-24 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64989797&amp;ptid=1978008" target="_blank">洛克萨斯 发表于 2024-5-24 20:41</a>
+
+把被和谐掉的衣服换个色做成新衣服送给玩家
+
+老金这是何苦</blockquote>
+让我想起国产游戏为了过审各种和谐，拿到版号后就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

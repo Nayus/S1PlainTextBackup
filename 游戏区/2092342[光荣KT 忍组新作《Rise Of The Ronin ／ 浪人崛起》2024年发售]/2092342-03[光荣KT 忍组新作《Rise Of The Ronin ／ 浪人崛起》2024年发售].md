@@ -198,3 +198,11 @@
 
 1.04完全没做装备，到现在还没打过“盟友们”。现在搞一套龙6虎2，再把词条继承一下，看能不能打过。
 
+
+*****
+
+####  godless2020  
+##### 3187#       发表于 2024-5-24 14:31
+
+目前这版本如何开荒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

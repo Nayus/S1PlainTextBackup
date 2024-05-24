@@ -377,3 +377,13 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 挂上海外代理就能更新了</blockquote>
 dns代理重启一条龙了，没有出来
 
+
+*****
+
+####  袄_偶滴小乔  
+##### 1655#       发表于 2024-5-24 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64989519&amp;ptid=1978008" target="_blank">jacket 发表于 2024-5-24 20:11</a>
+dns代理重启一条龙了，没有出来</blockquote>
+我是日服日版游戏，挂全局才刷出来更新的
+

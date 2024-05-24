@@ -566,3 +566,22 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 日服图是加特林，法推号说是刷，很疑惑（挠头.jpg）。
 或者一次来两个？总不会是加和刷的混合吧
 
+
+*****
+
+####  hugosol  
+##### 4496#       发表于 2024-5-24 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987529&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-5-24 16:34</a>
+
+让电锯在无印和贴牌间切配置吗
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+比如无印牙刷和贴牌牙刷之间切配置<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实搞不好这种模式平衡性更好做，毕竟这游戏每个赛季更新的武器里就只有那么一两种配置能进入环境，打散了随机排列组合，能用的组合肯定比乌贼研自己想出来的还要多
+
+至于担心最优解的问题，看这个赛季更新的无脑强配置就知道了，乌贼研是想要通过限制武器配置来调整平衡性吗，无非是如果一开始就把武器配置的选择权交给玩家，那每个赛季可以更新的东西就显得很少了
+
+实际上正是当电锯螃蟹这种配置出现的时候差不多就可以开始放弃幻想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

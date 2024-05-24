@@ -51,3 +51,18 @@
 
 感觉那辛那特效挺震撼引爆的
 
+
+*****
+
+####  Jamaisvu  
+##### 701#       发表于 2024-5-25 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64991577&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-5-24 23:35</a>
+
+蛙蛙真不会最后是两震撼吗
+
+感觉那辛那特效挺震撼引爆的</blockquote>
+很有道理，毕竟镜牢里蛙蛙的两个视频都是震动系的。
+
+不过宝辛二人同样没有厉害的震动人格，这俩ego顶多未来可期吧...好像之前EGO空间撕裂者也是在W箱和W宝之前出的。
+

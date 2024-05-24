@@ -7293,3 +7293,17 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 
 做梦做大一点，初祥来个薰千圣那种花前幼年对卡花后双人对卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16932#       发表于 2024-5-24 15:21
+
+ 本帖最后由 SakuraのOrigami 于 2024-5-24 15:23 编辑 
+
+说起来国服总选举第一名新曲要找谁做
+难道还是找EG吗（）
+如果这样，EG会写国风摇滚吗（？）<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FRI-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

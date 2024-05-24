@@ -159,3 +159,15 @@
 
 这是要起飞的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 342#       发表于 2024-5-25 07:17
+
+这什么屑AI跟不上车手的动作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我们以为女主玩的是新世纪GPX，其实是玩头文字D和GT出身的……这样？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

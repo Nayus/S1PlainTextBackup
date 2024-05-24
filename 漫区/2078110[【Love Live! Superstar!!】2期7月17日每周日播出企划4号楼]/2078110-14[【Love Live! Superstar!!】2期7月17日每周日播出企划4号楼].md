@@ -453,3 +453,11 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  黒烨  
+##### 20209#       发表于 2024-5-24 10:35
+
+隔壁不说新游，做的动画剧情和演出（特指2d）确实要比这边要强点，当然运营逆天程度俩边都不分伯仲的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

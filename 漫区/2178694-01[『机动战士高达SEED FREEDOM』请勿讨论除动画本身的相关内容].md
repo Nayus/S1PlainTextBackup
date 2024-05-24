@@ -11171,3 +11171,25 @@ MGEX也没提呀
 
 搞修罗场让拉克丝哭了，而且还想强行和拉克丝那个，福田心里的基拉到底是个什么样的人？
 
+
+*****
+
+####  伊露伊道格拉斯  
+##### 920#       发表于 2024-5-24 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64982274&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-24 07:14</a>
+
+もうネタもほぼないのですが、冒頭のタンクの中で浮いているオルフェのシーンは実は、OVA用のシナリオから ...</blockquote>
+某人上次还说为之前的口嗨“道歉”呢，转头就“鸡会qj拉”，你这“下次还敢”的速度也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jackcheny  
+##### 921#       发表于 2024-5-24 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64959634&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-22 07:28</a>
+
+所以，原定非凡飞升自由大概是这样？头要不要换呢？</blockquote>
+飞自脑袋就脸和强自不同……脑门开个炮口就行了吧
+

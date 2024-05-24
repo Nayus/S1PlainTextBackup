@@ -7472,3 +7472,15 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
 
 不，俩偶像女团吵什么翻唱啊……不都是用别人写的词曲么。
 
+
+*****
+
+####  PDQ4  
+##### 16951#       发表于 2024-5-24 22:32
+
+睦的台词数取决于第一视角集数，但估计最多也就一集，不过前三戏份初睦祥应该还是跑不掉的
+
+以及虽然没人看好但我要赌会卖点喵睦，典中典本来想和睦爹妈搭关系结果上头帮睦说话了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+假使姐妹论成真我还真想看sayo睦对话，都是吉他，都是姐，妹妹都很能干（？），来点经典误解，比如sayo说“你那边也很不容易呢”，睦内心“？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

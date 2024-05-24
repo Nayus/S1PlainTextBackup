@@ -534,3 +534,16 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hisousihou  
+##### 4493#       发表于 2024-5-24 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64988195&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-5-24 17:33</a>
+
+熊加要来了吗！！
+
+最后还剩熊笔和熊刷，要不一次性都出了吧boss都能联合熊武器怎么不能多来几个。 ...</blockquote>
+喷喷法国官号说是滚筒
+

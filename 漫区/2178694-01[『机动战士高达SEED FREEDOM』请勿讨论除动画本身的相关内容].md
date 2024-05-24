@@ -11440,3 +11440,14 @@ MGEX也没提呀
 —— 来自 S1Fun</blockquote>
 啊，之前没详细看，无正贰应该也是完全新规吧？
 
+
+*****
+
+####  novyDC  
+##### 946#       发表于 2024-5-24 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64988761&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-05-24 18:42:15</a>
+啊，之前没详细看，无正贰应该也是完全新规吧？</blockquote>头 外甲 背包新规吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -6829,3 +6829,16 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ddy2811  
+##### 16891#       发表于 2024-5-24 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64981465&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 00:06</a>
+
+花音本来就是攻，两个人相处的剧情一般就是花音用这张素食的脸把千圣玩得一愣一愣的。
+
+那句“不是我的家， ...</blockquote>
+联想之前生日语音彩彩对花音说“我要加入”，真有种大戏开演的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

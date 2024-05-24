@@ -31,3 +31,16 @@
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pgain2004  
+##### 231#         楼主| 发表于 2024-5-24 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64982930&amp;ptid=2167901" target="_blank">oskneo 发表于 2024-5-24 09:12</a>
+那kisslove呢？其实这些插件的github怎么找，再不更新想自己加了
+
+—— 来自 HUAWEI TAH-AN00m, Android  ...</blockquote>
+随便上Google搜了搜github kisslove extension……
+[https://github.com/keiyoushi/extensions-source/issues/3197](https://github.com/keiyoushi/extensions-source/issues/3197)
+

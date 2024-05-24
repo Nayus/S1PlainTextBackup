@@ -7211,3 +7211,31 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 高人气角色乱配小心炎上哦，chu²卡面是ykn这我都很好奇ccpr推，ras推那边居然没什么反应。 ...</blockquote>
 楚平方太像宠物了反而没什么影响吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skill  
+##### 16924#       发表于 2024-5-24 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985308&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-5-24 12:51</a>
+
+有专属页面付费直播渠道那就是有阿b介入合作了，看看之后能不能都这种形式，就不需要舰限充电那些花里胡哨 ...</blockquote>
+疫情前R团的演唱会在b站上卖过线上live，后来又完全没影子了。传说是被人举报有审批问题，罚了叔叔一大笔。所以打擦边的什么舰长直播，充电视频搞这么多花样
+
+这次是什么情况还真不好说
+
+
+*****
+
+####  好想看Mujica啊  
+##### 16925#       发表于 2024-5-24 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985488&amp;ptid=2159415" target="_blank">utotqe 发表于 2024-5-24 13:09</a>
+
+彩花音都出情人节对卡了然而没剧情
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 S1Next-鹅版 v2.5.3-p ...</blockquote>
+运气不好吧，记得刚好是工艺蛋转生那段时间。
+
+不过就算做了估计也是三人行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

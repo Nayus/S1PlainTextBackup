@@ -11430,3 +11430,13 @@ MGEX也没提呀
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 945#       发表于 2024-5-24 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64988648&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-5-24 18:28</a>
+—— 来自 S1Fun</blockquote>
+啊，之前没详细看，无正贰应该也是完全新规吧？
+

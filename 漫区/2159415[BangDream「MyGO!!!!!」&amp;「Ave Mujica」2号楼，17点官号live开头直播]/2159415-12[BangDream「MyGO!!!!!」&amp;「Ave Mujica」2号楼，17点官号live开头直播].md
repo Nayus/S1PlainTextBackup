@@ -7403,3 +7403,11 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
 
 我倒是希望第一个主线池子是五人五星池，感觉wsd没有那个胆子，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16943#       发表于 2024-5-24 18:40
+
+端水不要忘了海铃和喵梦啊，到明年动画里我估计海睦，海喵，喵祥都会卖，但是其他cp就不好说了
+

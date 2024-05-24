@@ -276,3 +276,30 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 
 20年了老金还是忘不掉惣流<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苏斯赫查  
+##### 1645#       发表于 2024-5-24 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64923662&amp;ptid=1978008" target="_blank">apefrank 发表于 2024-5-15 08:22</a>
+为啥网上很多文章管这游戏叫剑星？和名字的意思不是完全反过来吗</blockquote>
+因为官方中文就叫剑星
+
+*****
+
+####  Schwarzess  
+##### 1646#       发表于 2024-5-24 11:56
+
+亨泰哟，西巴我拍照模式呢shake it。<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woodcoin  
+##### 1647#       发表于 2024-5-24 11:58
+
+就加了三款？其中俩还是换色？
+你管这个叫增加大量衣服？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

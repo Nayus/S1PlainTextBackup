@@ -6933,3 +6933,38 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 —— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ddy2811  
+##### 16897#       发表于 2024-5-24 12:23
+
+ 本帖最后由 ddy2811 于 2024-5-24 12:24 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/24/122355swwf32z21213m25p.jpg" referrerpolicy="no-referrer">
+
+<strong>9d3a751d4d28c5ee3558383dd6ca1cbd.jpg</strong> (195.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202405/24/122433u3jkonxjgcrvvczf.jpg" referrerpolicy="no-referrer">
+
+<strong>29ac2ba1ceed6449bb03c031df58c8c7.jpg</strong> (221.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:24 上传
+
+官号这端水真的有点幽默<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下两边得罪了
+
+*****
+
+####  rikaren  
+##### 16898#       发表于 2024-5-24 12:24
+
+<blockquote>NODY 发表于 2024-5-24 12:16
+你邦巅峰期这种卡面有不少的，冰川双子和薰千圣也有，后面不怎么见了，问就是画两人份只能赚一张卡的钱wsd ...</blockquote>
+草，笑死，我玩烤的朋友之前还在和我吐槽过烤因为卖cp，角色单推人在吐黑泥，还有人拿邦的卡面出来说真正的双人花后是怎么样的（甚至还就是千圣那一张）
+

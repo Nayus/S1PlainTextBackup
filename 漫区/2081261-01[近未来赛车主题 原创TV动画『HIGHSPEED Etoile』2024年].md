@@ -149,3 +149,13 @@
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  550616  
+##### 341#       发表于 2024-5-25 06:20
+
+刹车比1:9
+
+这是要起飞的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

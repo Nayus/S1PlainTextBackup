@@ -7259,3 +7259,21 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 
 情人节那次还真看到有彩花音厨在推特黑泥难得轮上自家cp结果没剧情的，开服这么多年也没一次的事偏偏给冷cp撞上是真的倒霉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 16928#       发表于 2024-5-24 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985982&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-24 14:03</a>
+
+情人节那次还真看到有彩花音厨在推特黑泥难得轮上自家cp结果没剧情的，开服这么多年也没一次的事偏偏给冷cp ...</blockquote>
+想开点，说不定是好事，真有剧情大概率是两个人一起做巧克力送给千圣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16929#       发表于 2024-5-24 14:21
+
+运营还是一如既往的抽象啊，b友的福报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

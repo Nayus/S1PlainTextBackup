@@ -38,3 +38,16 @@
 
 十宝用得上新的teth级，不过辛克莱也就一个舞王人格带沉沦，最近的三星人格辛弃疾也是其他体系的...也许下次间章会出个沉沦二星吧...
 
+
+*****
+
+####  Yuzutea  
+##### 700#       发表于 2024-5-24 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64989449&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-5-24 20:04</a>
+
+新池子预告：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蛙蛙真不会最后是两震撼吗
+
+感觉那辛那特效挺震撼引爆的
+

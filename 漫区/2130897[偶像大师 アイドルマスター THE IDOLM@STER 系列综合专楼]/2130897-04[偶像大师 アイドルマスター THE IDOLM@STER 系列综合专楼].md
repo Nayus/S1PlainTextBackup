@@ -6272,3 +6272,13 @@ SC这个争议IF的内容再简单不过了，冻柚子和P约了去看电影，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个丸户参加的手游什么结果大家都知道了
 
+
+*****
+
+####  伊布桑  
+##### 5034#       发表于 2024-5-24 08:37
+
+事实证明没找错人，不然就没有我手球啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

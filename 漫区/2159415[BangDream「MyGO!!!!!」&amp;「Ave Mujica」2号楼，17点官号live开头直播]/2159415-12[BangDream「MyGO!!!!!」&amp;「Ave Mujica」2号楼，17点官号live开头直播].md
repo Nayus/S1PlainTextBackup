@@ -7380,3 +7380,16 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
 
 海铃&amp;喵梦：我们没意见
 
+
+*****
+
+####  -LYRE-  
+##### 16941#       发表于 2024-5-24 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64972628&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-23 10:46</a>
+外面进来就看到这页，是说少女灵吗，这要是算官推曲/cp曲（不知看到一次有所谓灯祥党说少女灵/想成为你的 ...</blockquote>
+我反正是不懂为什么都说对应的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+一个翻唱曲一个原创曲，对应？也配？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+还是他们觉得mujica真的洗脚婢到如此地步，原创曲只配拿去和狗的翻唱对标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过确实有可能，毕竟指出Ave Mujica也多次出现Memento Mori这句谚语，都有人敢说团名曲也是卖灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

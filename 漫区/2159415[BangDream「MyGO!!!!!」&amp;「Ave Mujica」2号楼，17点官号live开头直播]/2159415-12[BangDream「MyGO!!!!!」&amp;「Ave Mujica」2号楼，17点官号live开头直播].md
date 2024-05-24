@@ -6994,3 +6994,92 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 不过说实话这张里面花音是不是脖子有点不太对？
 
+
+*****
+
+####  御幸一也  
+##### 16901#       发表于 2024-5-24 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">啊？你們這bilibili官號有點好笑了
+
+早說了之前go粉沒有不爽純粹是把你雞當附屬了，你看這不就
+
+*****
+
+####  NODY  
+##### 16902#       发表于 2024-5-24 12:51
+
+反正你邦现在好像没有这种双人卡了，连动态双人卡都停了大半年了，原因未知
+
+说是被cp厨车的也不像，毕竟花前还是卖很大，就是那种花后也是双人对卡的没了，顶多是国服这期摩卡兰一张图中间切成两半的对卡
+
+*****
+
+####  滑稽Captain  
+##### 16903#       发表于 2024-5-24 12:51
+
+有专属页面付费直播渠道那就是有阿b介入合作了，看看之后能不能都这种形式，就不需要舰限充电那些花里胡哨的方法了
+
+*****
+
+####  rikaren  
+##### 16904#       发表于 2024-5-24 12:52
+
+售票直播能搞定下来不是对双方都是好事吗，真不理解。
+
+*****
+
+####  CyDiablo  
+##### 16905#       发表于 2024-5-24 12:53
+
+等6th再看怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">希望也是直播票
+
+*****
+
+####  skives  
+##### 16906#       发表于 2024-5-24 12:54
+
+就怕下次又变成充电了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsukatsukieiko  
+##### 16907#       发表于 2024-5-24 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985203&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-24 12:38</a>
+
+答案是羊姐的唱歌飘忽不定不敢卖直播怕被喊欺骗消费者，mujica没这个问题 ...</blockquote>
+其实按照设定，mygo作为emo punk，感情到了唱功确实可以无所谓，但小羊大概不是这么设定的，大家也归根结底在追一个会吹拉弹唱的女团偶像而不是下北泽或者大阪城公园的地下女子乐队。
+
+*****
+
+####  rikaren  
+##### 16908#       发表于 2024-5-24 12:54
+
+<blockquote>NODY 发表于 2024-5-24 12:51
+反正你邦现在好像没有这种双人卡了，连动态双人卡都停了大半年了，原因未知
+
+说是被cp厨车的也不像，毕竟花 ...</blockquote>
+圣诞蝶那期应该也能算伪双人花后，筑白两个人场景应该是连着的，然后筑花后捧的蜡烛灯还是筑花前卡面里的一个。
+
+*****
+
+####  御幸一也  
+##### 16909#       发表于 2024-5-24 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985318&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-24 12:52</a>
+
+售票直播能搞定下来不是对双方都是好事吗，真不理解。</blockquote>
+說真的你們不如買elpus，給這個語C營運送的每一分錢都在助力他玩爛梗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16910#       发表于 2024-5-24 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985328&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-24 12:54</a>
+
+就怕下次又变成充电了</blockquote>
+那可太樂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -524,3 +524,13 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 温泉这种重量级什么时候修
 
+
+*****
+
+####  DeltaStriker  
+##### 4492#       发表于 2024-5-24 18:52
+
+赛季中应该还有一次机会 再不修温泉就大概没机会了
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

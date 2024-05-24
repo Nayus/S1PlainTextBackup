@@ -3618,3 +3618,14 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 
 以及新的机炮机甲好像也是5穿60结构伤，约等于绑了两把安全磁轨枪在身上，不过直击伤害只有300，有150的爆炸伤害
 
+
+*****
+
+####  FLZB  
+##### 4767#       发表于 2024-5-24 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64983125&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-24 09:34</a>
+
+昨天本来想n7榴弹枪遨游虫海，结果误入n9被一堆牛撵得满街跑，打虫子真是离不开喷火器了 ...</blockquote>
+榴弹不带个EAT遨游不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6884,3 +6884,52 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 丸山彩，你什么时候来的？
 
+
+*****
+
+####  rikaren  
+##### 16894#       发表于 2024-5-24 12:08
+
+<img src="https://img.saraba1st.com/forum/202405/24/120824cm1i504xu1i6d6ih.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716522434735.jpg</strong> (179.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:08 上传
+
+<img src="https://img.saraba1st.com/forum/202405/24/120831zoham15mbu3371ui.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716522432421.jpg</strong> (158.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:08 上传
+
+草，这么能卖？甚至花前花后都是双人
+
+
+*****
+
+####  NODY  
+##### 16895#       发表于 2024-5-24 12:16
+
+ 本帖最后由 NODY 于 2024-5-24 12:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984917&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-24 12:08</a>
+
+草，这么能卖？甚至花前花后都是双人</blockquote>
+你邦巅峰期这种卡面有不少的，冰川双子和薰千圣也有，后面不怎么见了，问就是画两人份只能赚一张卡的钱wsd嫌亏本了，隔壁烤那边倒是还有这种cp卡商法，前几天才刚看到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 16896#       发表于 2024-5-24 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64982946&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 09:14</a>
+麻弥和伊芙解绑后，和薰哥哥急速贴近，估计她俩就是一对了。
+
+彩彩的话，最后可能还是三人行，不会让主唱单 ...</blockquote>
+可恶啊，麻弥和1V都好喜欢，还刚好对烤炉无感<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11193,3 +11193,26 @@ MGEX也没提呀
 所以，原定非凡飞升自由大概是这样？头要不要换呢？</blockquote>
 飞自脑袋就脸和强自不同……脑门开个炮口就行了吧
 
+
+*****
+
+####  KDConan  
+##### 922#       发表于 2024-5-24 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64982176&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-24 06:05</a>
+恋上HG的二人 大结局在种自剧场版公布遗憾没有上海自由立像，下期好像还有后日谈，给上海自由露个面吧
+
+ ...</blockquote>
+汉化很久没更了，到完结多少话？
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  X(iaolw)S  
+##### 923#       发表于 2024-5-24 11:04
+
+6月8网飞最速配信
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

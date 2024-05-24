@@ -11296,3 +11296,23 @@ MGEX也没提呀
 
 贴吧色佬说是上面在福田事后二审也开绿灯了，但华策软蛋一直在拖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 931#       发表于 2024-5-24 12:41
+
+还一直在奢望在大陆戏院看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 932#       发表于 2024-5-24 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985165&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-24 12:32</a>
+53话，但下个月好像还有个后日谈，单行本8卷，最后一卷8月底发售，含后日谈 ...</blockquote>
+这么多啊，那汉化估计是鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

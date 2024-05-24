@@ -6968,3 +6968,29 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 你邦巅峰期这种卡面有不少的，冰川双子和薰千圣也有，后面不怎么见了，问就是画两人份只能赚一张卡的钱wsd ...</blockquote>
 草，笑死，我玩烤的朋友之前还在和我吐槽过烤因为卖cp，角色单推人在吐黑泥，还有人拿邦的卡面出来说真正的双人花后是怎么样的（甚至还就是千圣那一张）
 
+
+*****
+
+####  NODY  
+##### 16899#       发表于 2024-5-24 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985073&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-5-24 12:23</a>
+
+官号这端水真的有点幽默这下两边得罪了</blockquote>
+答案是羊姐的唱歌飘忽不定不敢卖直播怕被喊欺骗消费者，mujica没这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16900#       发表于 2024-5-24 12:43
+
+<img src="https://img.saraba1st.com/forum/202405/24/124323b7pci73jfz3j3ej5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716525783857.jpg</strong> (196.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 12:43 上传
+
+不过说实话这张里面花音是不是脖子有点不太对？
+

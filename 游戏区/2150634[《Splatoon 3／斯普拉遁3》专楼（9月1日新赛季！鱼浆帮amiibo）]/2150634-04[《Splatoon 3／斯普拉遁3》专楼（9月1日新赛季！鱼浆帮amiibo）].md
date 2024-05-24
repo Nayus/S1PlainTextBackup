@@ -413,3 +413,46 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 4483#       发表于 2024-5-24 17:10
+
+<img src="https://img.saraba1st.com/forum/202405/24/170941i7st2xs2t1v7j31z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_9478.jpeg</strong> (598.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202405/24/170947mxftguxe7evxkk4e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_9479.jpeg</strong> (636.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 17:09 上传
+
+新赛季直接修两张图<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KBAC  
+##### 4484#       发表于 2024-5-24 17:12
+
+还有新熊武器
+
+<img src="https://img.saraba1st.com/forum/202405/24/171216l494kd0mr3ml9zbq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_9480.jpeg</strong> (431.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 17:12 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

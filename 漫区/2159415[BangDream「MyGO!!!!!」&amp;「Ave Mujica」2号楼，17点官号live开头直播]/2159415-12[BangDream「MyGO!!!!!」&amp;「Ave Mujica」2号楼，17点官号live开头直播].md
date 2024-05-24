@@ -6789,3 +6789,14 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 还有舞台剧之后阻止千圣给薰哥哥寄信，打断薰哥哥的大招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16888#         楼主| 发表于 2024-5-24 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64981388&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-23 23:55</a>
+
+花音：听说有其他片场的水母花音要和我比女同程度</blockquote>
+我们邦邦也要有自己的jelee酱
+

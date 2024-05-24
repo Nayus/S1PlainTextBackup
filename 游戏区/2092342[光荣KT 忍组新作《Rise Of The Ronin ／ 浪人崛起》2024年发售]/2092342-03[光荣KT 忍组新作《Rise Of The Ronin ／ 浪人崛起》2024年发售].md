@@ -206,3 +206,13 @@
 
 目前这版本如何开荒<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nerugigannte  
+##### 3188#       发表于 2024-5-24 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64983380&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-5-24 09:56</a>
+ 还有手里剑滑步取消，投技直接抓动摇状态敌人，武技取消紫电烈风</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切段切武器不就得紫电烈风，烈风是转半圈，紫电怎么也是，难道是我紫电没按出来吗
+

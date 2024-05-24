@@ -7315,3 +7315,29 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 
 mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年卡要卖肯定是都要卖，而且大概率对卡五星，这就两期活动了，祥子还直接拿了两张五星卡。
 
+
+*****
+
+####  基神的强袭自由  
+##### 16934#       发表于 2024-5-24 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64981465&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 00:06</a>
+ 花音本来就是攻，两个人相处的剧情一般就是花音用这张素食的脸把千圣玩得一愣一愣的。 那句“不是我的家， ...</blockquote>
+原来路痴只是一个陷阱，真正的猎人往往以猎物的形态出现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 16935#       发表于 2024-5-24 16:16
+
+比幼祥更可爱的生物根本不存在<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 16936#       发表于 2024-5-24 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64978544&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-23 19:22</a>
+ 漏油有来看手游国服五周年直播的吗？</blockquote>
+看完发现是录播<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

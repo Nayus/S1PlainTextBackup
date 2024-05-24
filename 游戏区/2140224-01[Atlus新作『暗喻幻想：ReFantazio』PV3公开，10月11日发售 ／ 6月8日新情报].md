@@ -5222,3 +5222,29 @@ ATLUS公开奇幻RPG新作《暗喻幻想：ReFantazio》大量新截图 ...</bl
 Atlus' Katsura Hashino and Shigenori Soejima will make a very special live stage appearance during SummerGameFest   to share new details with fans on their upcoming title Metaphor: ReFantazio 
 <img src="https://p.sda1.dev/17/03a54a2f85ecd5e27988e0b8da79846d/20240523_010907.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 409#         楼主| 发表于 2024-5-24 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64933116&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-5-19 23:06</a>
+
+活动特设页面：
+
+https://www.atlus.co.jp/fes2024/</blockquote>
+活动周边
+<img src="https://p.sda1.dev/17/c5cdf270b708477c8507fb52524495bb/20240524_232113.jpg" referrerpolicy="no-referrer">
+
+「原型 / 阿基态」全能型“探究型 / 探求旅人”
+
+シーカーの初公開イラストを使用したアクリルキーホルダー。
+
+どこに付けてもちょうど良いサイズ感です。
+<img src="https://p.sda1.dev/17/2e5221d07a771cb7ccaca6fb56370ee9/20240523_goods_04.jpg" referrerpolicy="no-referrer">
+
+PVでも登場していたモンスター「ホモ・テンタ」をあしらったTシャツ。
+
+背中にはモンスターの背面がプリントされていてカワイイ！袖にも注目です。
+<img src="https://p.sda1.dev/17/c0c3d036ec0208c08a3444ae0e0a49cd/20240523_goods_05.jpg" referrerpolicy="no-referrer">
+

@@ -181,3 +181,27 @@ Task failed successfully.
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  commcody  
+##### 56#         楼主| 发表于 2024-5-24 19:16
+
+FAA发布了印度洋落区NOTAM
+
+<img src="https://img.saraba1st.com/forum/202405/24/191556w5saqshkzm97jm5y.jpg" referrerpolicy="no-referrer">
+
+<strong>image (2).jpg</strong> (19.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202405/24/191556hb3hh1h7ndmhb1ho.jpg" referrerpolicy="no-referrer">
+
+<strong>image (1).jpg</strong> (30.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 19:15 上传
+

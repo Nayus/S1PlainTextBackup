@@ -327,3 +327,14 @@ ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">为什么我的日版没收到更新
 
+
+*****
+
+####  jacket  
+##### 1650#       发表于 2024-5-24 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64983412&amp;ptid=1978008" target="_blank">真空管 发表于 2024-5-24 09:59</a>
+
+ls是只看到了置顶吧。and后面其实就是下一条推，任务板大姐为你准备了个小礼物。 ...</blockquote>
+原来这个不明说的小礼物是未和谐版本的两件衣服的换色版
+

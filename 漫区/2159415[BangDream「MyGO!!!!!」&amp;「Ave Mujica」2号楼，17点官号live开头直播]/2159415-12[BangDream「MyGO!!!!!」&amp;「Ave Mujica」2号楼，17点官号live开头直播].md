@@ -6800,3 +6800,32 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 花音：听说有其他片场的水母花音要和我比女同程度</blockquote>
 我们邦邦也要有自己的jelee酱
 
+
+*****
+
+####  御幸一也  
+##### 16889#       发表于 2024-5-24 08:43
+
+<img src="https://img.saraba1st.com/forum/202405/24/084319huvqfq6uuyy6rm2o.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_冷房病(@reibouQ)_20240523-140134_1793643439474811213_photo.jpg</strong> (393.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 08:43 上传
+
+[https://x.com/reibouQ/status/1793643439474811213](https://x.com/reibouQ/status/1793643439474811213)
+
+*****
+
+####  nebulanoby  
+##### 16890#       发表于 2024-5-24 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64981465&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 00:06</a>
+花音本来就是攻，两个人相处的剧情一般就是花音用这张素食的脸把千圣玩得一愣一愣的。
+
+那句“不是我的家， ...</blockquote>
+花音这种平时和早期卡面里看着很受的人逐渐把强势的CST吃干抹净的发展看着真的很爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

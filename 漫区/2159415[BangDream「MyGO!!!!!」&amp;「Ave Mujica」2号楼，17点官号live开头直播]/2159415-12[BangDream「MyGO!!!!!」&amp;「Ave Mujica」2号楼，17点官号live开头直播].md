@@ -7091,3 +7091,79 @@ cskn这卡面<img src="https://static.saraba1st.com/image/smiley/face2017/002.pn
 
 你鸡不是六月一场七月一场吗，两场不会相差不到一个月吧
 
+
+*****
+
+####  御幸一也  
+##### 16912#       发表于 2024-5-24 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985459&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-5-24 13:06</a>
+
+你鸡不是六月一场七月一场吗，两场不会相差不到一个月吧</blockquote>
+但是7/7 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16913#       发表于 2024-5-24 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985459&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-5-24 13:06</a>
+
+你鸡不是六月一场七月一场吗，两场不会相差不到一个月吧</blockquote>
+七月那场日期特殊，B站大概率不会直播的
+
+*****
+
+####  utotqe  
+##### 16914#       发表于 2024-5-24 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64982946&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-5-24 09:14</a>
+麻弥和伊芙解绑后，和薰哥哥急速贴近，估计她俩就是一对了。
+
+彩彩的话，最后可能还是三人行，不会让主唱单 ...</blockquote>
+彩花音都出情人节对卡了然而没剧情<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+
+*****
+
+####  CyDiablo  
+##### 16915#       发表于 2024-5-24 13:11
+
+牢兰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/8e177728b362a28043a0780dfab1c7c1/1716527401825.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 16916#       发表于 2024-5-24 13:11
+
+ 本帖最后由 NODY 于 2024-5-24 13:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985331&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-24 12:54</a>
+
+圣诞蝶那期应该也能算伪双人花后，筑白两个人场景应该是连着的，然后筑花后捧的蜡烛灯还是筑花前卡面里的 ...</blockquote>
+cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降青梅或者初中同学就行了，再不行还有追星，再给鸡狗成员来几个老团厨设定搭上线<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 16917#       发表于 2024-5-24 13:11
+
+想到一个缺德的，你狗的mc一般都是对话，烤起来简单，所以卖录播。
+
+但是你鸡要搞舞台剧，烤起来麻烦，所以不如直接卖直播。<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 16918#       发表于 2024-5-24 13:12
+
+舞台剧不是更好烤吗，台本都是固定的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉唉等7月6th就行了
+
+*****
+
+####  御幸一也  
+##### 16919#       发表于 2024-5-24 13:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">舞台劇是事先錄好的，官方想烤只會更簡單，要個台本的事
+

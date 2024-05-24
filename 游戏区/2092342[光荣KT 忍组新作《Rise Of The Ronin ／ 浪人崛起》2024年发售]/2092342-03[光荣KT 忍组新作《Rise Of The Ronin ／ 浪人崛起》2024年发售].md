@@ -216,3 +216,16 @@
  还有手里剑滑步取消，投技直接抓动摇状态敌人，武技取消紫电烈风</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切段切武器不就得紫电烈风，烈风是转半圈，紫电怎么也是，难道是我紫电没按出来吗
 
+
+*****
+
+####  nagitoY  
+##### 3189#       发表于 2024-5-24 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987343&amp;ptid=2092342" target="_blank">nerugigannte 发表于 2024-5-24 16:19</a>
+
+切段切武器不就得紫电烈风，烈风是转半圈，紫电怎么也是，难道是我紫电没按出来吗 ...</blockquote>
+紫电和烈风的动作模组是一样的。
+
+现在武技可以随时取消紫电、烈风的动作，无论这个动作做出来没有，操作上限还是挺高的
+

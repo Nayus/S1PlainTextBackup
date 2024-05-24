@@ -47,3 +47,24 @@ ROG Ally X，799美元，1T硬盘，内存可能是24或32G？</blockquote>
 
 去年年初入手了初代Steamdeck，体验下来觉得除了对steam适配较好外，屏幕不是很好，模拟器还需**。目前想把steamdeck出了换台WIN掌机，目前看了下onexfly和handle5，想请问入手哪台比较推荐？或者是否有更好的推荐？预算的话6000以内吧
 
+
+*****
+
+####  bypass  
+##### 1207#         楼主| 发表于 2024-5-24 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 七月底发货，现在就要开启预售了
+
+<img src="https://imgur.ihainan.me/mFZPfQx.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 1208#         楼主| 发表于 2024-5-24 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64976756&amp;ptid=2086469" target="_blank">fxc731 发表于 2024-5-23 16:27</a>
+
+去年年初入手了初代Steamdeck，体验下来觉得除了对steam适配较好外，屏幕不是很好，模拟器还需**。目前想把 ...</blockquote>
+如果只是嫌弃屏幕不好，也可以考虑换 SD OLED
+

@@ -7185,3 +7185,29 @@ cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降
 cp不重复这个倒是简单，等鸡狗全实装以后再给老团来点天降青梅或者初中同学就行了，再不行还有追星，再给 ...</blockquote>
 高人气角色乱配小心炎上哦，chu²卡面是ykn这我都很好奇ccpr推，ras推那边居然没什么反应。
 
+
+*****
+
+####  御幸一也  
+##### 16922#       发表于 2024-5-24 13:25
+
+<img src="https://img.saraba1st.com/forum/202405/24/132537uooxummgvdun0uum.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_奏(@Kanade_3344)_20240522-141329_1793284050679136683_photo.jpg</strong> (155.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 13:25 上传
+
+[https://x.com/Kanade_3344/status/1793284050679136683](https://x.com/Kanade_3344/status/1793284050679136683)
+
+*****
+
+####  NODY  
+##### 16923#       发表于 2024-5-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64985635&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-24 13:22</a>
+
+高人气角色乱配小心炎上哦，chu²卡面是ykn这我都很好奇ccpr推，ras推那边居然没什么反应。 ...</blockquote>
+楚平方太像宠物了反而没什么影响吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

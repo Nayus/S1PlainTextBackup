@@ -11277,3 +11277,22 @@ MGEX也没提呀
 
 代便还是赶紧把自由高达拆了吧 太丢人了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 929#       发表于 2024-5-24 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984075&amp;ptid=2178694" target="_blank">KDConan 发表于 2024-5-24 11:03</a>
+汉化很久没更了，到完结多少话？
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+53话，但下个月好像还有个后日谈，单行本8卷，最后一卷8月底发售，含后日谈
+
+*****
+
+####  ShyCrazydog  
+##### 930#       发表于 2024-5-24 12:33
+
+贴吧色佬说是上面在福田事后二审也开绿灯了，但华策软蛋一直在拖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

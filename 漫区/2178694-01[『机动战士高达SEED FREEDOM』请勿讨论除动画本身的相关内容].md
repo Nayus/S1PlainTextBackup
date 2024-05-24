@@ -11216,3 +11216,48 @@ MGEX也没提呀
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  oi99o  
+##### 924#       发表于 2024-5-24 11:06
+
+网飞&amp;亚马逊6.8配信
+
+<img src="https://img.saraba1st.com/forum/202405/24/110643hzq2khh1ak1hdez1.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-05-24 110638.png</strong> (86.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 11:06 上传
+
+*****
+
+####  Piano-Forest  
+##### 925#         楼主| 发表于 2024-5-24 11:09
+
+╋━━━━━━━━━━━
+
+ 『機動戦士ガンダム #SEEDFREEDOM』
+
+　Netflix・Prime Videoにて見放題配信決定🎊
+
+　　　　　　　　 　━━━━━━━━━━━╋
+
+𝟔/𝟖(土)𝟎:𝟎𝟎より配信開始📣
+
+劇場に沢山足を運んでいただいた方も
+
+これからという方も…👀
+
+この機会にぜひご覧ください🌱✨
+<img src="https://p.sda1.dev/17/af7706c3c954a428f59b0dc0a12e5acc/20240524_110640.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  二阶堂真琉  
+##### 926#       发表于 2024-5-24 11:11
+
+我就说下了肯定立即上流媒体
+

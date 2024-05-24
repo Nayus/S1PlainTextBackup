@@ -3586,3 +3586,35 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 
 箭头终于舍得动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 4764#       发表于 2024-5-24 00:03
+
+<img src="https://p.sda1.dev/17/3bd590c010b79ae712192e79ecd50c29/CMP_20240524000212936.jpg" referrerpolicy="no-referrer">
+败了
+<img src="https://p.sda1.dev/17/2e3b603d0cbd1c3337aa29a38eeeb250/Image_1716480094901.jpg" referrerpolicy="no-referrer">
+新任务解锁机炮机甲
+
+*****
+
+####  rainknine  
+##### 4765#       发表于 2024-5-24 01:13
+
+箭头终于舍得动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 4766#       发表于 2024-5-24 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64974455&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-23 12:54</a>
+
+泰坦头部的装甲是5级750血，属于100%耐久部位，飞矛和筒子的耐久部位伤害100%，所以打中头造成的伤害是：
+
+ ...</blockquote>
+安全模式磁轨枪不是只有60结构伤害吗，刚好穿透再打折只剩30了
+
+以及新的机炮机甲好像也是5穿60结构伤，约等于绑了两把安全磁轨枪在身上，不过直击伤害只有300，有150的爆炸伤害
+

@@ -6306,3 +6306,21 @@ SC这个争议IF的内容再简单不过了，冻柚子和P约了去看电影，
 
 丸户当时应该还在a1打工，契约之吻好像第一集的脚本就改了一年，手游关服以后也不知道他去干嘛了，以后能请来丸户之后也能给丸户添一个嗨丝角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Achlys  
+##### 5037#       发表于 2024-5-24 21:00
+
+ 本帖最后由 Achlys 于 2024-5-24 21:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/24/205941nt55g1s5wgjix5wj.jpg" referrerpolicy="no-referrer">
+
+<strong>GOUmtqQasAAObxe.jpg</strong> (165.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 20:59 上传
+
+[维京恶霸](https://x.com/f2uk9u/status/1793935720865820741)
+

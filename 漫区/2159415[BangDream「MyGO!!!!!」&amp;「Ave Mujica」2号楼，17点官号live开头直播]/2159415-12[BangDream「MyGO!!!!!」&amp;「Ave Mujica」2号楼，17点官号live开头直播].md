@@ -7393,3 +7393,13 @@ mujica如果要出幼年卡感觉有点难以平衡，初祥和睦祥的幼年�
 还是他们觉得mujica真的洗脚婢到如此地步，原创曲只配拿去和狗的翻唱对标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 不过确实有可能，毕竟指出Ave Mujica也多次出现Memento Mori这句谚语，都有人敢说团名曲也是卖灯祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16942#       发表于 2024-5-24 17:30
+
+感觉鸡第一个箱活还是海喵箱活了，还是希望多端水，睦喵海睦什么的都端上来。
+
+我倒是希望第一个主线池子是五人五星池，感觉wsd没有那个胆子，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

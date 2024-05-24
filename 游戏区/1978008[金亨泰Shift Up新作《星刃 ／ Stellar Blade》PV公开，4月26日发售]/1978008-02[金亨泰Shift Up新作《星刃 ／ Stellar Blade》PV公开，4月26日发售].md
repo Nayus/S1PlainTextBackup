@@ -451,3 +451,13 @@ dns代理重启一条龙了，没有出来</blockquote>
 让我想起国产游戏为了过审各种和谐，拿到版号后就</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你是说引发了版号之冬的mhw是吧
 
+
+*****
+
+####  jacket  
+##### 1662#       发表于 2024-5-24 22:17
+
+尴尬了，一周目普通结局 --&gt; 覆盖存档 --&gt; 一周目真结局 --&gt; 二周目bad end结局，之前用这个顺序打的白金。
+
+准备打boss rush的时候才发现，用这个顺序白金的存档里没有解锁普通结局的老boss，要再通一遍三周目才能拿到boss rush衣服。
+

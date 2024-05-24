@@ -139,3 +139,13 @@
 
 气氛好不容易拉起来被骚操作一下又拉到底，既然要捧ho酱的运气让女主因为运气不好翻车也比这强啊，现在变成技术拉跨到运气都救不了观感也太差<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 340#       发表于 2024-5-25 03:03
+
+没比赛的集看美少女玩车观感好一倍不止，那阳痿解说实在败观感
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

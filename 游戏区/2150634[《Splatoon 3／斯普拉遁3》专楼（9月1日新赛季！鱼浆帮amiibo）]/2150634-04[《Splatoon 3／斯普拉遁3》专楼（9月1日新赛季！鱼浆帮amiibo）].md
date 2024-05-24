@@ -392,3 +392,14 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 这游戏到现在还藏着第二贴牌不出（如果有的话），也就是说如果你从开服就开始玩了，有很喜欢的武器但初始配置是水沟，那就只能等一年看出来的贴牌能不能抢救一下，如果不能，那么恭喜你，还可以在玩家都流失完的版本末期，等第二贴牌出来以后再看能不能拯救一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leyenda  
+##### 4481#       发表于 2024-5-24 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64986981&amp;ptid=2150634" target="_blank">hugosol 发表于 2024-5-24 15:48</a>
+
+我只是想在几个选项里自由搭配而已，倒不是说想要快进到完全开放自选配置，甚至脑洞一下如果对战中可以切换 ...</blockquote>
+现在已有的无印及贴牌所提供的两组副武器与大招有哪些是值得抉择而不是秒选其一的
+

@@ -68,3 +68,19 @@ ROG Ally X，799美元，1T硬盘，内存可能是24或32G？</blockquote>
 去年年初入手了初代Steamdeck，体验下来觉得除了对steam适配较好外，屏幕不是很好，模拟器还需**。目前想把 ...</blockquote>
 如果只是嫌弃屏幕不好，也可以考虑换 SD OLED
 
+
+*****
+
+####  bypass  
+##### 1209#         楼主| 发表于 2024-5-24 18:09
+
+ROG Ally X 的配置传言。
+
+<img src="https://img.saraba1st.com/forum/202405/24/180900nqctnym3pqhm5p1x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-24 18:09 上传
+

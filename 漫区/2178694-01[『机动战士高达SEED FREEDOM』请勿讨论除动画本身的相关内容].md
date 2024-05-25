@@ -11481,3 +11481,13 @@ MGEX也没提呀
 
 不说搞定的吗
 
+
+*****
+
+####  super_uni  
+##### 950#       发表于 2024-5-25 11:03
+
+不带魔蟹的无正一律认为就是返厂换皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

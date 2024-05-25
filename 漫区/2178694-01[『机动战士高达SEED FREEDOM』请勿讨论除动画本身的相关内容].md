@@ -11499,3 +11499,29 @@ MGEX也没提呀
 
 看到当中鸡和狼讲popteamepic同款台词的时候我就再也蚌埠住笑了，全程笑到看完电影出来
 
+
+*****
+
+####  novyDC  
+##### 952#       发表于 2024-5-25 12:06
+
+确实跟老强自不一样
+
+<img src="https://img.saraba1st.com/forum/202405/25/120639ssm3k9hwwww2ootk.jpg" referrerpolicy="no-referrer">
+
+<strong>825D008239510733360267620760F0DE.jpg</strong> (211.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-25 12:06 上传
+
+<img src="https://img.saraba1st.com/forum/202405/25/120639e1zives02frkni0x.jpg" referrerpolicy="no-referrer">
+
+<strong>51423CC40A7FCC3F1D2EF7DAEE2A9609.jpg</strong> (220.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-25 12:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -287,3 +287,51 @@
 
 刷了半天，现在武器基本是有什么用什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3195#       发表于 2024-5-25 12:11
+
+ 本帖最后由 nagitoY 于 2024-5-25 12:13 编辑 
+
+<img src="https://img.saraba1st.com/forum/202405/25/121324fvv7b5dm5g6gs7oe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1474.jpeg</strong> (30.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-25 12:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/25/121333vizrawyz38ygiyee.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1473.jpeg</strong> (30.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-25 12:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/25/121337mksne3g2ksk1dtrg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1472.jpeg</strong> (30.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-25 12:13 上传
+
+龙4虎2，差不多够用了
+
+
+*****
+
+####  垃圾网站上  
+##### 3196#       发表于 2024-5-25 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64995134&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-5-25 10:01</a>
+
+这游戏还是太冷门了，没人测套装三件后的“英勇+2”到底有多少提升。单看面板的话攻击力提升不到5%，也不 ...</blockquote>
+其实真要测，打开选项里头的浮动伤害文字比一比就行了
+

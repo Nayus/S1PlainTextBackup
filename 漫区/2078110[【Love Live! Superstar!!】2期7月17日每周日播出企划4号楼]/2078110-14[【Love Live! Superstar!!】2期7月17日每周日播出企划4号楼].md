@@ -461,3 +461,37 @@ nga有老哥一直统计你拉各种光碟制品stf credit的，去年和前年�
 
 隔壁不说新游，做的动画剧情和演出（特指2d）确实要比这边要强点，当然运营逆天程度俩边都不分伯仲的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20210#       发表于 2024-5-23 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64972184&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-5-23 10:14</a>
+
+大意了 什么氪金商法</blockquote>
+B站有UP上传过
+
+*****
+
+####  ads147147  
+##### 20211#       发表于 2024-5-23 13:55
+
+这两天狂肝隔壁，保送ssr出了隔壁金毛皮卡丘，品味一下就感觉到人的人物塑造已经爆了夏美了（更别说可动表情包一样的3d），都是金毛双马尾金金金，TMD花田怎么弄成这个鸟样子（甚至星2前几集还猜是不是kotone这种忍辱负重人设，一到个人回变成有咩人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">）
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  黒烨  
+##### 20212#       发表于 2024-5-24 10:35
+
+隔壁不说新游，做的动画剧情和演出（特指2d）确实要比这边要强点，当然运营逆天程度俩边都不分伯仲的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 20213#       发表于 2024-5-25 11:45
+
+说起来不是说五月出荷可可看板娘吗，这都25号了，又延期到猴年马月去了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

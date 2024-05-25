@@ -295,3 +295,13 @@
 
 ai那句kuso感觉凛后面要不少挨骂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这集给老年三人组一个意味深长的特写 看着又不像会后续继续拍的样子 
 
+
+*****
+
+####  6030sylar  
+##### 355#       发表于 2024-5-25 23:03
+
+这调车就突出个乱调，都不用车手跑，自己在那模拟
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -11563,3 +11563,20 @@ MGEX也没提呀
 板件图明显是完全新规呀，而且还留好了转水口开关，大概率会有HGCE强袭自由verSEEDアクションシステム<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 就不知正义有没有这待遇
 
+
+*****
+
+####  gundammarkⅡ  
+##### 955#       发表于 2024-5-25 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">原来这黑刀的刀身零件是一个零件上做出了刀刃光面和刀背暗面两种不同质感的呀
+
+Screenshot_20240525_203121_com.android.chrome_edit_5469410631266462.jpg
+(108.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-25 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202405/25/203240c53gu5555z3uuska.jpg" referrerpolicy="no-referrer">
+

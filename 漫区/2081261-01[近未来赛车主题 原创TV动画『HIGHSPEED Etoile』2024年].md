@@ -201,3 +201,14 @@
 
 动画都快播完才搞这个是不是太晚了，还是说这个其实半年番？
 
+
+*****
+
+####  Toby_dak  
+##### 346#       发表于 2024-5-25 13:41
+
+要换的不是车手而是AI<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+大饼换アスラーダ<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.37)
+

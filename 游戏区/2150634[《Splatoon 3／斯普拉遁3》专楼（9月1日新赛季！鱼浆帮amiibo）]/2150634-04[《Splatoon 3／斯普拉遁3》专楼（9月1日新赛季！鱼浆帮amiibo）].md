@@ -658,3 +658,16 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KBAC  
+##### 4504#       发表于 2024-5-25 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64989517&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-5-24 20:11</a>
+日服图是加特林，法推号说是刷，很疑惑（挠头.jpg）。
+或者一次来两个？总不会是加和刷的混合吧 ...</blockquote>
+熊武器的宣传图就是故意让人看不出来是什么类型的武器，上次熊双宣传图也有不少人猜是加特林
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

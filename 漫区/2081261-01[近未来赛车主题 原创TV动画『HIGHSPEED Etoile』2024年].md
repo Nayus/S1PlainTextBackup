@@ -230,3 +230,15 @@
 
 这下要成为凛皇了，不行的是你们AI吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 349#       发表于 2024-5-25 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">人都跑完了才
+
+第一集看完就被解说搞弃坑了，听说这集还行又看了一下中规中矩也不是不能看的程度
+
+所以是未来赛车不如匠人车神是吧，这带离合的mt怕不是倒退回90年代F1了
+

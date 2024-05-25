@@ -6361,3 +6361,11 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 不发神经的那还是晶么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 5042#       发表于 2024-5-25 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不能这么比，不少GAL写手是会想点子不擅长细节，要靠故事结局拉分的，轻小说写手多少懂得怎么一卷写活一个美少女。伏见司再怎么说在俺妹里还是创造出了桐乃、黑猫和绫濑这样的高人气角色的，相对的志瑞祐就不行了，当时看精灵使的剑舞的时候只记得黑白两把剑搁那侍寝了，角色根本没啥魅力，学另外一位的小说没读过。
+

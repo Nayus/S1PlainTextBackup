@@ -6324,3 +6324,22 @@ SC这个争议IF的内容再简单不过了，冻柚子和P约了去看电影，
 
 [维京恶霸](https://x.com/f2uk9u/status/1793935720865820741)
 
+
+*****
+
+####  花开安菲路  
+##### 5038#       发表于 2024-5-25 17:51
+
+隔壁pcr找gal作家王雀孙写的好朋友部，就是游戏内最有人气最有趣的剧情，顺便把角色人气也带起来了，
+完全碾压其它角色和活动，把主编日日日这种日轻小说家吊起来捶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+皮卡丘te还要求da1000啊，我无脑vi<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 5039#       发表于 2024-5-25 17:53
+
+gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属于是。但是gal编剧和轻小说作者很容易发癫
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

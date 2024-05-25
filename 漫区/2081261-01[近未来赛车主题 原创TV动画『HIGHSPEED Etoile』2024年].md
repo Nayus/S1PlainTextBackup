@@ -265,3 +265,17 @@
 
 不管怎样，这下终于给女主铺垫好了...希望下面好看点
 
+
+*****
+
+####  月夜凝雪  
+##### 352#       发表于 2024-5-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64993921&amp;ptid=2081261" target="_blank">6030sylar 发表于 2024-5-25 03:03</a>
+没比赛的集看美少女玩车观感好一倍不止，那阳痿解说实在败观感
+
+—— 来自 Realme RMX1851, Android 11上的 ...</blockquote>
+这片不好看解说占了90％的锅
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

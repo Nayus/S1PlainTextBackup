@@ -305,3 +305,15 @@ ai那句kuso感觉凛后面要不少挨骂<img src="https://static.saraba1st.com
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Totokei  
+##### 356#       发表于 2024-5-25 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65002295&amp;ptid=2081261" target="_blank">6030sylar 发表于 2024-5-25 23:03</a>
+这调车就突出个乱调，都不用车手跑，自己在那模拟
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听起来像是模拟里跑很好实际一坨的梅奔
+

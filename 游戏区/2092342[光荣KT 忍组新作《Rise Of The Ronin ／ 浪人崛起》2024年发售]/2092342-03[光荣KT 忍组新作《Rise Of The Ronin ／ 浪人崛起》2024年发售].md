@@ -272,3 +272,18 @@
 
 刚开始玩，捏脸居然没找到银他妈的捏脸，似乎都忘记了银时曾经也是维新志士<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3194#       发表于 2024-5-25 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987912&amp;ptid=2092342" target="_blank">黑修士 发表于 2024-5-24 17:09</a>
+
+太刀的话，可以用斋藤一的那把关孙六，剑圣+兵法家+战士（减伤那个）
+
+我配词条的优先级是堆精力伤害—— ...</blockquote>
+这游戏还是太冷门了，没人测套装三件后的“英勇+2”到底有多少提升。单看面板的话攻击力提升不到5%，也不知道实战中打出来的伤害差多少。
+
+刷了半天，现在武器基本是有什么用什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -7547,3 +7547,11 @@ GO物语——7月新番/物语系列/旧房昭之
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64997984&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-25 14:53</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">希望这次到时候别在那么难受了
 
+
+*****
+
+####  rikaren  
+##### 16958#       发表于 2024-5-25 17:28
+
+突然发现ykn好像没幼年卡对卡，lisa幼年卡出的那期时间太早了的缘故吗？毕竟当期ykn的赠送三星也不是幼年卡。
+

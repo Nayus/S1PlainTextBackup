@@ -3629,3 +3629,31 @@ WIKI上关于伤害计算部分的解释，经过解包验证
 昨天本来想n7榴弹枪遨游虫海，结果误入n9被一堆牛撵得满街跑，打虫子真是离不开喷火器了 ...</blockquote>
 榴弹不带个EAT遨游不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddwhzh  
+##### 4768#       发表于 2024-5-24 20:58
+
+CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太多，我觉得CEO救不了这个游戏，根本不玩自己的游戏
+
+*****
+
+####  FLZB  
+##### 4769#       发表于 2024-5-24 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64983125&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-24 09:34</a>
+
+昨天本来想n7榴弹枪遨游虫海，结果误入n9被一堆牛撵得满街跑，打虫子真是离不开喷火器了 ...</blockquote>
+榴弹不带个EAT遨游不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 4770#       发表于 2024-5-25 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64990508&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-24 21:52</a>
+
+榴弹不带个EAT遨游不了一点</blockquote>
+碰到胖子图就遨游，不是胖子图就坐牢
+

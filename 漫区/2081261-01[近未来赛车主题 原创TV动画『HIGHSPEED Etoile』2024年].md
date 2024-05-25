@@ -191,3 +191,13 @@
 
 该不会老一辈也是奶奶当车手吧
 
+
+*****
+
+####  arachnid  
+##### 345#       发表于 2024-5-25 13:00
+
+原来不是女主菜，是车和ai不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+动画都快播完才搞这个是不是太晚了，还是说这个其实半年番？
+

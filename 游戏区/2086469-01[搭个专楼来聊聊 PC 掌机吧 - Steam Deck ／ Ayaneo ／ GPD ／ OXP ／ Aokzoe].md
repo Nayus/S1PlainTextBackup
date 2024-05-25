@@ -111,3 +111,13 @@ ROG这7寸掌机真能塞下80WH的电池？天选4笔记本也才90
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">幻13才75wh，rog这80能量密度得多高
 
+
+*****
+
+####  clyde-wang  
+##### 1213#       发表于 2024-5-25 11:42
+
+Rog 新机的重量更重的话真的更难手持玩了…
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

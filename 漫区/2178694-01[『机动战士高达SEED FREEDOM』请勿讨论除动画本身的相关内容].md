@@ -11491,3 +11491,11 @@ MGEX也没提呀
 
 — from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+*****
+
+####  galgamesh  
+##### 951#       发表于 2024-5-25 11:39
+
+看到当中鸡和狼讲popteamepic同款台词的时候我就再也蚌埠住笑了，全程笑到看完电影出来
+

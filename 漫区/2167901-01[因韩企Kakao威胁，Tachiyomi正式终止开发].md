@@ -52,3 +52,24 @@
 
 mihon  是没有自带插件库吗，只能用第三方的吗
 
+
+*****
+
+####  pgain2004  
+##### 233#         楼主| 发表于 2024-5-25 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64999625&amp;ptid=2167901" target="_blank">smiths146 发表于 2024-5-25 18:08</a>
+mihon  是没有自带插件库吗，只能用第三方的吗</blockquote>
+所以你觉得为什么会有这个帖子嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smiths146  
+##### 234#       发表于 2024-5-25 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64999718&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-5-25 18:16</a>
+
+所以你觉得为什么会有这个帖子嘛……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">我错了，我以为是要特定地区
+

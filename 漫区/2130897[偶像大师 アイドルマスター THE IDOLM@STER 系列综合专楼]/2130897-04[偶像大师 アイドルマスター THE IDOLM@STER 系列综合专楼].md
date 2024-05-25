@@ -6343,3 +6343,13 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  伊布桑  
+##### 5040#       发表于 2024-5-25 18:19
+
+我觉得不是轻小说作者问题，是日日日有问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日日日瓜可多了，他给隔壁偶像梦幻祭写剧情，每隔一段时间都会爆出瓜来
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

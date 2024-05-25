@@ -74,3 +74,22 @@
 
 TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤害的本
 
+
+*****
+
+####  穿越护城河  
+##### 46391#       发表于 2024-5-25 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64999884&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-5-25 18:30</a>
+
+TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤害的本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">豹人这关太离谱了
+
+
+*****
+
+####  qixinno2  
+##### 46392#       发表于 2024-5-25 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好 瞎JB打一次过了 选个单体剑 前排上小黑美游 美游宝具回血还行
+

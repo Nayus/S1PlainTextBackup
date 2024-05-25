@@ -495,3 +495,19 @@ B站有UP上传过
 
 说起来不是说五月出荷可可看板娘吗，这都25号了，又延期到猴年马月去了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20214#       发表于 2024-5-25 21:07
+
+<img src="https://img.saraba1st.com/forum/202405/25/210738qm2r7ni2iy02j7a0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_8315.jpeg</strong> (422.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-25 21:07 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

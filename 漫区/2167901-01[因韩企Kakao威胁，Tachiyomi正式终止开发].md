@@ -44,3 +44,11 @@
 随便上Google搜了搜github kisslove extension……
 [https://github.com/keiyoushi/extensions-source/issues/3197](https://github.com/keiyoushi/extensions-source/issues/3197)
 
+
+*****
+
+####  smiths146  
+##### 232#       发表于 2024-5-25 18:08
+
+mihon  是没有自带插件库吗，只能用第三方的吗
+

@@ -11551,3 +11551,15 @@ MGEX也没提呀
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 954#       发表于 2024-5-25 13:16
+
+ 本帖最后由 gundammarkⅡ 于 2024-5-25 13:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64996508&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-5-25 12:06</a>
+确实跟老强自不一样</blockquote>
+板件图明显是完全新规呀，而且还留好了转水口开关，大概率会有HGCE强袭自由verSEEDアクションシステム<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就不知正义有没有这待遇
+

@@ -171,3 +171,11 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  上坂莲华  
+##### 343#       发表于 2024-5-25 11:30
+
+不是女主太弱了，是现在的车和AI不行，发挥不出女主的真实实力，什么阿姆罗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

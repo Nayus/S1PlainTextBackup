@@ -3677,3 +3677,22 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 
 又开始控进度，老外都这么能忍，rbq都该反抗一下吧。箭头这行为放国内至少微博热搜第一开发组连夜道歉整改
 
+
+*****
+
+####  FLZB  
+##### 4773#       发表于 2024-5-26 02:08
+
+喷了，据说偷偷调了机器人反攻值，进度还越打越少了，机甲恐怕是发不出来了，后果真让人期待呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ak123  
+##### 4774#       发表于 2024-5-26 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65002491&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-5-25 23:22</a>
+
+又开始控进度，老外都这么能忍，rbq都该反抗一下吧。箭头这行为放国内至少微博热搜第一开发组连夜道歉整改 ...</blockquote>
+家园那边制作组全程装死补丁都没更啥东西，官方社区的白皮都在那里自我yy这游戏要像无人深空和2077一样浴火重生<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 从最近几个游戏公司的烂活来看白皮的奴性和自我画饼能力是真的牛逼
+

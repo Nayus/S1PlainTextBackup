@@ -305,3 +305,14 @@
 
 明天终于到我大活跃的时候了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1511#       发表于 2024-5-25 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65002018&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-5-25 22:33</a>
+
+明天终于到我大活跃的时候了</blockquote>
+为了真由好吗，对犬组使用千变万花吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

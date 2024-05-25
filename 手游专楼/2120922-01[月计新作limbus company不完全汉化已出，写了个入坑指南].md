@@ -76,3 +76,15 @@
 
 在闲鱼逛了一下初始号好像都是steam平台的。我电脑是macbook玩不了这游戏，只能用爱疯，这游戏的平台是可以共通的吗？
 
+
+*****
+
+####  冰原狼  
+##### 703#       发表于 2024-5-25 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64994527&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-25 08:43</a>
+求助，想入坑。
+
+在闲鱼逛了一下初始号好像都是steam平台的。我电脑是macbook玩不了这游戏，只能用爱疯，这 ...</blockquote>
+全平台互通，记得绑好账号就行
+

@@ -179,3 +179,15 @@
 
 不是女主太弱了，是现在的车和AI不行，发挥不出女主的真实实力，什么阿姆罗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 344#       发表于 2024-5-25 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集观感还行
+
+结果女主奶奶果然也不是什么普通人
+
+该不会老一辈也是奶奶当车手吧
+

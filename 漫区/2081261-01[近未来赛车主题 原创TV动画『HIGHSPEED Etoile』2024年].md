@@ -242,3 +242,26 @@
 
 所以是未来赛车不如匠人车神是吧，这带离合的mt怕不是倒退回90年代F1了
 
+
+*****
+
+####  wingofsilver  
+##### 350#       发表于 2024-5-25 17:09
+
+看完8话，这部真是太太太慢热了，完全不是这个时代的版本竞技片版本<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+(不该是“我最讨厌开车了”，然后第一话开始**么
+
+不管怎样，这下终于给女主铺垫好了...希望下面好看点
+
+*****
+
+####  wingofsilver  
+##### 351#       发表于 2024-5-25 17:10
+
+看完8话，这部真是太太太慢热了，完全不是这个时代的版本竞技片版本<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+(不该是“我最讨厌开车了”，然后第一话开始爽么
+
+不管怎样，这下终于给女主铺垫好了...希望下面好看点
+

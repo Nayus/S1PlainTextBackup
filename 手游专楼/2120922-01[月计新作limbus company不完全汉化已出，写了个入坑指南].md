@@ -177,3 +177,28 @@ PC端不锁区，手机端无论是安卓还是苹果好像都要挂梯子。
 
 只要确认steam的账号苹果也能绑，应该就没问题
 
+
+*****
+
+####  Jamaisvu  
+##### 709#       发表于 2024-5-25 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64995639&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-25 10:53</a>
+
+让您费心了hhh
+
+我玩的时候是只用游客账号过了个新手教学，然后就去研究初始号了(。)
+
+只要确认steam的账号 ...</blockquote>
+是互通的，不过账号绑定后就不能在同平台覆盖（steam默认绑定，所以没法刷初始），解绑好像有六个月的冷却（无用的冷知识）。
+
+1.游客号登录，能合并的话就合并初始号，然后绑定APPLE ID；
+
+2.游客号登录，选择不了合并，先给自己绑定APPLE ID，再尝试合并。
+
+大概就这两种情况吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">祝你顺利。
+
+另外氪金的话氪通行证就行，需要付费狂气抽每天每卡池一折单抽的话，可以氪狂气一栏的大小月卡，礼包什么的性价比不是很高。
+
+（想省事的话直接氪双倍有偿狂气也行）
+

@@ -629,3 +629,13 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4501#       发表于 2024-5-25 11:12
+
+金工一堆弱智
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

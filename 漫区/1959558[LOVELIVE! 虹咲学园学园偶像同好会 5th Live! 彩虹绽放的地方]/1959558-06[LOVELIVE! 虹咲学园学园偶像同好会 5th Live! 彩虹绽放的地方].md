@@ -36,3 +36,11 @@
 <img src="https://p.sda1.dev/17/cca770a4cfc952c80de774484b879339/CMP_20240525090323668.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/9d21140ae47f16fe325f527e285a424f/CMP_20240525090323734.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7506#       发表于 2024-5-25 11:09
+
+说起来红莲剑姬才播到第八话，也就说距离本篇结局也就过去两个月的时间呢。。
+

@@ -647,3 +647,14 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 好工等两三小时等那些分不配位的sb都掉下去就好打了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝色的眷念  
+##### 4503#       发表于 2024-5-25 16:29
+
+<img src="https://p.sda1.dev/17/6ecd95519afc01022c8385f5ac71a5c6/CMP_20240525162855615.png" referrerpolicy="no-referrer">
+最顺利的一集
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

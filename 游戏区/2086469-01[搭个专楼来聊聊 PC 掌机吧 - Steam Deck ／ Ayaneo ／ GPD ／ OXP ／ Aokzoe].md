@@ -103,3 +103,11 @@ ROG Ally X 的配置传言。
 
 ROG这7寸掌机真能塞下80WH的电池？天选4笔记本也才90
 
+
+*****
+
+####  毒品  
+##### 1212#       发表于 2024-5-25 09:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">幻13才75wh，rog这80能量密度得多高
+

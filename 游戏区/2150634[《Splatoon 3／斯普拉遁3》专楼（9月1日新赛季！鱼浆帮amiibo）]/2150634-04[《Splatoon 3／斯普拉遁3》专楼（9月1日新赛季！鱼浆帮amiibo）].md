@@ -671,3 +671,19 @@ FF的主墨效率是个大问题，不强化一下没什么前途
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  carroy  
+##### 4505#       发表于 2024-5-26 00:35
+
+ 本帖最后由 carroy 于 2024-5-26 00:36 编辑 
+
+烤架满地的蛋都不知道提前拉到另一边让队友捡蛋吗
+
+w3烤架过不去真是<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+多打一场都觉得浪费生命<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+赶紧康完全图就不用受折磨了
+

@@ -84,3 +84,14 @@ ROG Ally X 的配置传言。
 
 2024-5-24 18:09 上传
 
+
+*****
+
+####  fxc731  
+##### 1210#       发表于 2024-5-25 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64987852&amp;ptid=2086469" target="_blank">bypass 发表于 2024-5-24 17:04</a>
+如果只是嫌弃屏幕不好，也可以考虑换 SD OLED</blockquote>
+谢谢。最终下单了ROG ALLY，相比飞行家便宜一些。主要诉求是想60帧玩冰原，然后把古墓丽影黯影补了，SD上总是莫名闪退。
+然后就是捣鼓一下模拟器补一些老游戏。也没有带出门玩的需求。
+

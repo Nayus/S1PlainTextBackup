@@ -7721,3 +7721,11 @@ https://ngabbs.com/read.php?tid=40306660
 
 喵梦和灯就像苹果和西红柿，哇喔 好像哦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 16975#       发表于 2024-5-26 19:29
+
+nga不是默认没有鸡团粉吗，总感觉看过这一集，都反派团了，肯定要被打到跪地忏悔，被主角收入后宫然后冷落<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

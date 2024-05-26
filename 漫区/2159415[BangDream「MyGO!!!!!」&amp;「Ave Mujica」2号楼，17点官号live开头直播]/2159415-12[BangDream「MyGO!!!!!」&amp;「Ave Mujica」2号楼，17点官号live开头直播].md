@@ -8034,3 +8034,31 @@ https://x.com/Shinota12/status/1794586058791018898<img src="https://p.sda1.dev/1
 https://x.com/Shinota12/status/1794586058791018898</blockquote>
 好好好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cindy355  
+##### 17003#       发表于 2024-5-26 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009085&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 18:23</a>
+
+我倒是因为骂战代餐论把号给封了，只能说很难想象当时和我吵起来的那几个号没给nuke。不过某些人好像就是不 ...</blockquote>
+在上次某个已经被锁的贴，那个贴里同担希推楼主哭诉立希为什么风评这么差的时候点了爱皇大名，被狂喷，我没憋住阴湿劲儿疯狂在楼里阴阳爱推，要不是贴被锁了我应该也已经被mute了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+很喜欢爱推的一句话：“立希为什么没有爱音这样的人气？是她不想吗？”
+
+*****
+
+####  zzhh0131  
+##### 17004#       发表于 2024-5-26 20:48
+
+那如果不是绫奈的剧本呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 17005#       发表于 2024-5-26 20:52
+
+不管最终系构和脚本到底是谁，角色关系性处理不好那就是有问题，看动画的看到剧本有问题及时止损去看点好的就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

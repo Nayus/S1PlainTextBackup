@@ -1054,3 +1054,16 @@ mbti和荣格八维是两码事，按荣格八维来讲infp可以提高ti和te�
 intj不是优秀打工人模板吗，即使心里对上司的sb指挥感到无语也会默默把工作糊弄到还行的状态，也懒 ...</blockquote>
 且不说轻小说为了戏剧性什么人设都能给你凹出来，比企谷真回头来看也更像个低阶intp小鬼
 
+
+*****
+
+####  Amami_Haruka_  
+##### 112#       发表于 2024-5-26 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009692&amp;ptid=2184863" target="_blank">最终兵器狂战 发表于 2024-5-26 19:27</a>
+
+那东西是mbti？？？？
+
+当年我做的时候确实是叫性格测试来着，但是内容无外乎量大管饱的“当社畜你赞不赞同 ...</blockquote>
+现在好多是类似三个里选一个最符合一个最不符合的了，看不出来。
+

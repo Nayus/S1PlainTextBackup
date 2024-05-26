@@ -690,3 +690,26 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 外企大公司很多都要做，比如宝洁
 
+
+*****
+
+####  KDConan  
+##### 75#       发表于 2024-5-26 13:09
+
+比按血型星座和属相八字还是要文明一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  傲慢的空想家X  
+##### 76#       发表于 2024-5-26 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65006838&amp;ptid=2184863" target="_blank">KDConan 发表于 2024-5-26 13:09</a>
+比按血型星座和属相八字还是要文明一点
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+还真别说，我上一家公司的领导就信这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

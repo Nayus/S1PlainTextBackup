@@ -623,3 +623,13 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 华为的性格测试，我朋友做了好几次才过
 
+
+*****
+
+####  qiaoyicc  
+##### 67#       发表于 2024-5-26 12:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">性格测试是有用的，有助于鉴别隐藏地雷，当然有提防的还是藏得过去的
+
+扯到mbti么又是什么小作文了
+

@@ -7714,3 +7714,62 @@ rui。。。
 
 以及“你们到底是什么心态来给我推荐这部片的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8860#         楼主| 发表于 2024-5-25 15:11
+
+昨天下午直播时说这周末两天应该播不了（今天没说具体什么事但是说晚上要播比较困难，明天下午是gamers的现场活动说是如果晚上回来不累的话考虑播）
+
+我这两天整理一下之前说要发的上星期的总结吧，问就是懒又拖了一星期，本来写了点东西结果没保存关网页没了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|好好好|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 8861#         楼主| 发表于 2024-5-26 10:31
+
+不会是被荧光棒的光面边缘反射了吧你
+
+发了一条带图的推删了又补发一条新的，一开始看前后两张图没什么区别但是感觉有点什么不对，打开大图一对比以下内容需要积分高于 40000 才可浏览
+
+<img src="https://img.saraba1st.com/forum/202405/26/102802ju6vp2385p2qpkjx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202405/26/102915m45l4544vzzwz4ua.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (244.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 10:29 上传
+
+亏能注意到这个一点点
+
+原图
+
+<img src="https://img.saraba1st.com/forum/202405/26/103048fxssn2oz34aarscu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 10:30 上传
+

@@ -765,3 +765,13 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
        intj不是优秀打工人模板吗，即使心里对上司的sb指挥感到无语也会默默把工作糊弄到还行的状态，也懒得争权夺利，缺点就是不太愿意搞表面功夫无用社交内耗罢了
        平冢静手底下坐拥比企谷八幡与雪之下雪乃两大intj，侍奉部无往不利，让你当平冢静大概不每天早晨笑醒。
 
+
+*****
+
+####  zyuco  
+##### 83#       发表于 2024-5-26 15:05
+
+我几年前就做过华为的这个性格测试，并不是MBTI，不过也是一些“你对这个事情怎么看”，“对于X，从【最不认同】到【最认同】之间选择一个”的问题。第一次我直接按照自己的性格习惯填了（因为已经有了别家的offer），然后不出意料地挂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后来hr还很好人地让我重新做了一次，然后才过了拿到offer。
+
+不过我最后还是把人家给拒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

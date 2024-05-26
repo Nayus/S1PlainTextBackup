@@ -615,3 +615,11 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 对va11就抄个皮毛
 
+
+*****
+
+####  AerysNan  
+##### 58#       发表于 2024-5-26 14:15
+
+在赛博酒保制作组还在整 project D 的当下，任何仿品抄得像就算成功（虽然感觉有点悬）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

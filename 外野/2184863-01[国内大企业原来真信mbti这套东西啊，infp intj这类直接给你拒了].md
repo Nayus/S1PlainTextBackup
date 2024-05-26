@@ -721,3 +721,20 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 不要infp我觉得可以理解，不要intj什么情况
 
+
+*****
+
+####  伊藤言叶  
+##### 78#       发表于 2024-5-26 13:39
+
+职业性格测试，我记得哪怕是前程无忧、智联招聘投简历，都有免费的给你做着玩。
+
+*****
+
+####  1a不解释  
+##### 79#       发表于 2024-5-26 13:40
+
+上次应聘哪个日企来着，做完了这个之后就没消息了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -647,3 +647,13 @@ LO原画と2原でお手伝いしました！
 
 眼镜存在意义的底裤感觉已经被小雪扒完了，前面他能起作用还是狗组太菜了外加不肯动手打，没方法打不过制服不了，像小雪打噶路噶路硬实力压着打完全用不上帮忙，但凡设定小麦彩羽加一块有小雪的实力都没眼镜的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1536#       发表于 2024-5-26 13:43
+
+卜要慌，还在新手保护期，等猫和mayu入队了该吃的瘪都会补回来的
+
+到时候还得眼镜暖男给一个兽医的女儿和一个宠物用品店主的女儿当智慧袋，哎呀你看这个嘎噜嘎噜是圆耳朵，可能是老虎的嘎噜嘎噜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

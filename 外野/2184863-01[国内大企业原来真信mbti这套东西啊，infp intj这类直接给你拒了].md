@@ -793,3 +793,19 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 这东西又不是mbti，大厂基本都有啊？我朋友甚至做这个有问题被重点标记hr直接跟他ld说注意这点这个人……他是没什么问题然后能力很强和ld关系也很好所以ld这么跟他说的
 
+
+*****
+
+####  紧那罗  
+##### 86#       发表于 2024-5-26 16:29
+
+这套东西但凡大厂都有，但是要说有多少用那倒也未必，那为什么要有呢，hr也要评绩效的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 87#       发表于 2024-5-26 16:34
+
+注意最后一句，小仙女一个，这种玩意滚出华为对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

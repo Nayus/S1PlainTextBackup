@@ -584,3 +584,25 @@ LO原画と2原でお手伝いしました！
 <img src="https://p.sda1.dev/17/8a7969e427805a09b353138bb63a5f9d/CMP_20240526124015419.jpg" referrerpolicy="no-referrer">
 [https://twitter.com/shotaro_kaneda/status/1794520685286756383?t=cqlp-Z64K1VxXuvar1sUYg&amp;s=19](https://twitter.com/shotaro_kaneda/status/1794520685286756383?t=cqlp-Z64K1VxXuvar1sUYg&amp;s=19)
 
+
+*****
+
+####  上坂莲华  
+##### 1531#       发表于 2024-5-26 13:02
+
+<img src="https://img.saraba1st.com/forum/202405/26/125843vle27m224249mb2o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240526125826.png</strong> (77.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 12:58 上传
+
+让我们来采访一下一直蹲树杈上视奸自己妹妹主人的猫猫同学，看见这一幕之后你是怎么做到忍住不下去抽这只狗一巴掌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猫这上来就被妈盖棺是姐姐了，看来平时没少替mayu操心，这个家没猫得散<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后猫还是个mayu全肯定民，mayu做的都是对的，一边无限溺爱妹妹一边严禁坏狗狗接近妹妹的严厉姐姐，磕到了磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+暖男能不能抠了啊，这几集有他没他有区别么，哪怕你跟拓海一样上去打两下也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

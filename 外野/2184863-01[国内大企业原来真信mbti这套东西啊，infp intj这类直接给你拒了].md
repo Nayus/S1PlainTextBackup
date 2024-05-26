@@ -809,3 +809,41 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 注意最后一句，小仙女一个，这种玩意滚出华为对大家都好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  海底铁锚  
+##### 88#       发表于 2024-5-26 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不都是先虚构一个公司需要的人的类型，然后再思考那个人遇到问题会怎么选择吗。
+
+
+*****
+
+####  星弥Hoshimi  
+##### 89#       发表于 2024-5-26 16:43
+
+编辑编辑编辑编辑编辑编辑
+
+*****
+
+####  坚果花生巧克力  
+##### 90#       发表于 2024-5-26 16:45
+
+2024年了还有果粉，不愧是小红书
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  量子大蛇  
+##### 91#       发表于 2024-5-26 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65004335&amp;ptid=2184863" target="_blank">4396777 发表于 2024-5-26 05:49</a>
+水免费，开瓶费100，别问，问就是我们真的付过这100
+
+—— 来自 Xiaomi 22101316C, Android 14上的 S1Nex ...</blockquote>
+谁卖高价水啦，我们这是捆绑经营，到那边的房子里，有歌舞表演攒劲的节目
+
+—— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

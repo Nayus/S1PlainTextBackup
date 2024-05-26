@@ -463,3 +463,29 @@ infp怎么拒了？怕阴暗面？按书面解释明明非常有利于团队<img
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  saintsimpler  
+##### 50#       发表于 2024-5-26 10:08
+
+首先这测试根本不是什么mbti这种玩意儿
+其次这种测试连GA都有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HBP-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Akakaka  
+##### 51#       发表于 2024-5-26 10:10
+
+我知道国内自媒体公司很多都是要做的
+
+尤其是b站百大团队、xhs/微博大V入职不少都要做
+
+跟我发小认识二十年了，原来内向安静不爱说话，我们两个相处模式是我说她听，上班一年不到现在异常外向变成她说我听，他们下班喜欢酒吧聚会现在也很能喝酒还一直妄图拉我去酒吧见世面，前一阶段跟我说他们入职一年又测了mbti变E人了balabala
+
+我妹入职xhs算命博主团队还要看星盘和八字
+
+不过这东西变赛博算命之前本来作用就是就业指导就是了……
+

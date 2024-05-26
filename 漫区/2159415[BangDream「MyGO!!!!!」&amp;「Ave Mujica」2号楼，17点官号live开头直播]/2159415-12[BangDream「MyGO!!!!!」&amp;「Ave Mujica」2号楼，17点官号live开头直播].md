@@ -8402,3 +8402,33 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 soyo对于祥子的地位可比nina在mmk心中的地位差太多了 所以关公战秦琼毫无意义 我爱说实话
 
+
+*****
+
+####  极速赛车手  
+##### 17026#       发表于 2024-5-26 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65011533&amp;ptid=2159415" target="_blank">须贺兰 发表于 2024-5-26 21:57</a>
+
+另外楼里出现一个1贴小号，大家有什么头绪吗？
+
+倒不是说一定和“rikaren”坛友有什么关系，只不过本楼看起 ...</blockquote>
+习惯潜水罢了，不要挂我<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17027#       发表于 2024-5-26 22:42
+
+soyo换nina有什么用，怎么也得初华和睦那个地位去跟祥子battle才有的讨论
+
+虽然这俩幼驯染目前都是坚定的站祥子，明年绝对有激烈感情戏，相信绫奈好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 17028#       发表于 2024-5-26 22:45
+
+【【Japan Jam 2024】砂寸奏-MyGO!!!!!】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1oD42137sN/?share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
+

@@ -7652,3 +7652,33 @@ https://ngabbs.com/read.php?tid=40306660
 草，漏油是号没了导致没法在nga回复了吗</blockquote>
 倒没有，只是失去了在泥潭说话的兴趣，阴湿地骂一下。
 
+
+*****
+
+####  rikaren  
+##### 16968#       发表于 2024-5-26 18:23
+
+我倒是因为骂战代餐论把号给封了，只能说很难想象当时和我吵起来的那几个号没给nuke。不过某些人好像就是不愿意承认代餐论能发展到mujica另外四个人身上是带着对祥子乃至mujica整个团的恶意的。
+
+*****
+
+####  御幸一也  
+##### 16969#       发表于 2024-5-26 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008564&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-5-26 17:26</a>
+
+同担能不能别在泥潭找补了，每次在泥潭找补都肉眼可见的自推风评继续下跌，发狂了。 ...</blockquote>
+什麼樂子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16970#       发表于 2024-5-26 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009085&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 18:23</a>
+
+我倒是因为骂战代餐论把号给封了，只能说很难想象当时和我吵起来的那几个号没给nuke。不过某些人好像就是不 ...</blockquote>
+某些智障不就是沒把ave當一個團看才這樣嗎，是真的把ave當“敵團”，甚至是go的附屬了捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+只能說罵這些人智障都是罵輕了。
+

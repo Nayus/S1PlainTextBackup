@@ -8553,3 +8553,40 @@ QQ图片20240526231120.jpg
 
 在哪罵的，我也要看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17039#       发表于 2024-5-27 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议查询一下这个人是不是觉得爽姐是世界上唯一一个对睦好的人，当然我刻板印象了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 17040#       发表于 2024-5-27 00:19
+
+大主播的洗腦包吃多了會這樣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 17041#       发表于 2024-5-27 00:19
+
+那家伙已经删了，我忘了截图，但我评论收到赞的记录还在
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

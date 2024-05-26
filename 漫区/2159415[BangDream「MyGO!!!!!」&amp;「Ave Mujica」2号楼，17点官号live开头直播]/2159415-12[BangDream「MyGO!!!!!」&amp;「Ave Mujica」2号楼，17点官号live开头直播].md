@@ -8112,3 +8112,56 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 我已经用nina和mmk代餐初祥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  豚厨二象性  
+##### 17011#       发表于 2024-5-26 21:07
+
+路过求个不OOC的海希同人
+
+*****
+
+####  rikaren  
+##### 17012#       发表于 2024-5-26 21:08
+
+<blockquote>skives 发表于 2024-5-26 21:03
+我已经用nina和mmk代餐初祥了</blockquote>
+别，真的别搞代餐这种会引起别人粉丝不满的事情。
+
+*****
+
+####  PDQ4  
+##### 17013#       发表于 2024-5-26 21:08
+
+真换成花田我也可以接受的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17014#       发表于 2024-5-26 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010861&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 21:08</a>
+
+别，真的别搞代餐这种会引起别人粉丝不满的事情。</blockquote>
+她應該只是在陰濕 你別當真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 17015#       发表于 2024-5-26 21:13
+
+我只是想看到初华对祥子强烈的情感爆发神回而已<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+对动画等待并心怀希望
+
+*****
+
+####  cindy355  
+##### 17016#       发表于 2024-5-26 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010713&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-26 20:58</a>
+
+還有這麼樂的貼嗎，想圍觀</blockquote>
+看不了了，整个被锁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

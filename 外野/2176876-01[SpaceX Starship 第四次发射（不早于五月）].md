@@ -276,3 +276,53 @@ https://www.spacex.com/updates/
 
 第四次发射实装了用于替代直接自生增压的热交换自生增压，不再采用燃气，而是用一部分燃料流经燃烧室和喷管，对发动机进行冷却的同时，将已经吸热气化的燃料回送燃料蓄箱提供增压（而不在直接使用燃气）
 
+
+*****
+
+####  commcody  
+##### 61#         楼主| 发表于 2024-5-26 21:09
+
+RGV Aerial Photography公布了本周的星舰基地航拍照
+
+制造厂区，左侧为Boca Chica小镇。中间巨大的白色建筑是即将建成的星舰工厂，它将用于制造Starship和Super Heavy的不锈钢分段。它的左上角是正在建设中的SpaceX办公楼。它的右侧从上至下分别是High Bay、Mega Bay 1和Mega Bay 2。星舰工厂的分段在此组装成整舰。最右侧的区域是Sanchez，目前用于制造和储存大型工装，星舰基地第二座发射塔的预制段目前也被储存在此。
+
+<img src="https://img.saraba1st.com/forum/202405/26/205759m0r3f377d6jx37sr.jpg" referrerpolicy="no-referrer">
+
+<strong>GOblTJ5W8AAYfud.jpg</strong> (426.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:57 上传
+
+S26目前正在梅西测试场测试新建的静点设施。梅西测试场今后将被用于Starship和Super Heavy的低温压力测试和Starship的静点测试。
+
+<img src="https://img.saraba1st.com/forum/202405/26/205759bdeniooaoekke8dt.jpg" referrerpolicy="no-referrer">
+
+<strong>GObscsOWoAANUlN.jpg</strong> (197.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:57 上传
+
+原本位于发射场左下角的亚轨道测试区已被夷为平地，发射场第二发射塔的地基已被打下。右上角，原先用于轨道发射场储存液氧、液态甲烷、液氮和水的垂直储罐也被拆除大半。储罐由发射场中间的水平储罐取代。S29正在发射塔后方进行隔热瓦的整备。
+
+<img src="https://img.saraba1st.com/forum/202405/26/205759flznhhhll2ypdh7o.jpg" referrerpolicy="no-referrer">
+
+<strong>GObm13eXgAAHNvw.jpg</strong> (623.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:57 上传
+
+*****
+
+####  commcody  
+##### 62#         楼主| 发表于 2024-5-26 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64995628&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-5-25 10:51</a>
+
+目前推测的氧气管道堵塞的原因，是因为自生增压，猛禽-星舰方案一开始就尝试自生增压，将发动机产生的富 ...</blockquote>
+本次更改了增压方式不知道信源在哪里？
+
+目前从外观上可以判断的是S29在返厂升级后增压了S30上的滚转喷口。
+

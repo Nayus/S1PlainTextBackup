@@ -3768,3 +3768,14 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 
 意料之中的玩具，跟爱国者一样的幽默射击角度限制，目测伤害跟机炮哨戒炮一样。另外疑似又暗改了什么东西，之前强袭破腿后能用榴弹手枪一发带走，刚才测试发现现在要三发。
 
+
+*****
+
+####  Mr.Hopp  
+##### 4783#       发表于 2024-5-26 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65012108&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-5-26 22:54</a>
+
+意料之中的玩具，跟爱国者一样的幽默射击角度限制，目测伤害跟机炮哨戒炮一样。另外疑似又暗改了什么东西， ...</blockquote>
+机炮和哨戒炮差了一个能打重甲好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 哨戒炮能打得坦克虫动不了，几轮射击能干掉泰坦。
+

@@ -568,3 +568,11 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
   -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">怎么突然如此感慨
 
+
+*****
+
+####  stygian  
+##### 20221#       发表于 2024-5-26 21:31
+
+雨宫天京吹那个声线我经常会幻听到可可<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

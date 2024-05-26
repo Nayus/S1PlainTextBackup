@@ -8175,3 +8175,23 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 证据就是泥潭专楼前段时间车立希的待遇和编剧把立希当工具人垫脚石的话题车了十几页都非常和平，唯一的争议只有立希未来待遇是“编剧良心发现在后续动画手游补塑造”和“臭底边不要指望了建议直接埋”这一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 17018#       发表于 2024-5-26 21:26
+
+代餐论？我的理论一直是祥子当初组C团一开始打算找的主唱就是初华，发现初华已经出道了才转去物色新主唱，这也是我为什么一直在贷款mujica的雏形是初祥两个人小时候一起设计出来的且两个人相约未来一起组团的假药<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+第二季我最大的诉求是希望初祥有了官方剧情后能多点纯血纯爱派，不要老是当苦主或者在all祥里面排队上车，这点我就挺羡慕爱素家大业大能和爱all明确分家的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17019#       发表于 2024-5-26 21:33
+
+ 本帖最后由 PDQ4 于 2024-5-26 21:35 编辑 
+
+渡濑竟然营业海睦了，还是d5j的场合，必大卖<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

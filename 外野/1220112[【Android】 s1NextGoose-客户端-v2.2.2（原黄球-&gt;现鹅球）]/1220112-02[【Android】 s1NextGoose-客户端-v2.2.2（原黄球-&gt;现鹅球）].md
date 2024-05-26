@@ -307,3 +307,17 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  嵐ステリ  
+##### 1597#       发表于 2024-5-26 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010373&amp;ptid=1220112" target="_blank">我就是阿X 发表于 2024-5-26 20:34</a>
+我没办法复制帖子里的文字了，是什么输入法设置的原因吗？
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 ...</blockquote>
+右上角勾选帖子可复制了么
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

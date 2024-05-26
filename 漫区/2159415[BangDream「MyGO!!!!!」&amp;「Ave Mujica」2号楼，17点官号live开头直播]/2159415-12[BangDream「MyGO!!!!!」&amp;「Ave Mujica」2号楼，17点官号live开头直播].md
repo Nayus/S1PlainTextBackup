@@ -7985,3 +7985,52 @@ https://x.com/Shinota12/status/1794586058791018898<img src="https://p.sda1.dev/1
 
 拉个小群，然后屏蔽其他公共论坛也许是最好的做法。
 
+
+*****
+
+####  cindy355  
+##### 16998#       发表于 2024-5-26 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010196&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-26 20:17</a>
+
+吃點好的 </blockquote>
+好好好好好
+
+*****
+
+####  cindy355  
+##### 16999#       发表于 2024-5-26 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010091&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 20:08</a>
+
+这块我觉得最恶心的还是贷款初华的歌声必定传达不到祥内心。拿着访谈提到的mygo和mujica的成员在设定上故 ...</blockquote>
+他们就是理解不了什么叫已经逝去的东西可以怀念但不能挽留。
+
+*****
+
+####  Kasroz  
+##### 17000#       发表于 2024-5-26 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010389&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 20:35</a>
+我估计不太可能，等到正式放送一天一次清算大战／cp大战可能都是少的了，初祥和睦祥必会卖个大的又不可能 ...</blockquote>
+隔壁汴此告白非彼告白，此love非彼love，这里只能汴此百合非彼百合了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 17001#       发表于 2024-5-26 20:44
+
+死了的白月光才是好白月光 对灯对祥都是
+不觉得独角兽的剧本会连这个都不懂
+不管钻石星辰还是crychic 都是要埋的
+
+*****
+
+####  凡人  
+##### 17002#       发表于 2024-5-26 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010223&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-5-26 20:20</a>
+https://x.com/Shinota12/status/1794586058791018898</blockquote>
+好好好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

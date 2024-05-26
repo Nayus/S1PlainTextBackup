@@ -438,3 +438,18 @@
 
 查看全部评分
 
+
+*****
+
+####  狮子咕  
+##### 1519#       发表于 2024-5-26 08:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这bank感觉狠狠滴吊打主角2人组，别老惦记着把变身时长里塞那个意义不明的321了
+
+*****
+
+####  6030sylar  
+##### 1520#       发表于 2024-5-26 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">你不许跟隔壁的狗玩
+

@@ -1102,3 +1102,14 @@ infp内心纤细容易想多而且不抗压力容易崩溃，情绪容易波动�
 
 华为有，富士康也有，怕受不了工作压力跳楼吧
 
+
+*****
+
+####  心远  
+##### 116#       发表于 2024-5-26 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65004446&amp;ptid=2184863" target="_blank">yudms1 发表于 2024-5-26 07:22</a>
+
+华为的叫综合测评，只要别精神分裂和过于极端还是比较容易过的，xhs姐姐们的话最多能信3成吧 ...</blockquote>
+你太天真了啦，居然信三成？信一成都是天真，XHS里面可信的东西，能有1%？
+

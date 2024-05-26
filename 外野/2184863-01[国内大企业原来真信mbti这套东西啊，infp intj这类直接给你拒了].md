@@ -738,3 +738,13 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无尽的牙刷  
+##### 80#       发表于 2024-5-26 13:59
+
+在日本找工作的时候有一半公司都要做性格测试
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

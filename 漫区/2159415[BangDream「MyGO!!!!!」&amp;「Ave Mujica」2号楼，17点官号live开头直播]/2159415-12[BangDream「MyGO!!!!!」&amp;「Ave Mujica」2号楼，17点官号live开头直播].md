@@ -7787,3 +7787,90 @@ nga不是默认没有鸡团粉吗，总感觉看过这一集，都反派团了�
 
 m团粉丝设定还不知道是不是天音和奏音关系的逆输入，在剧情安排上设置这个还是有点神秘了，排除被ban的hhw，老五团里mygo和ppp以及ag接触，mujica和pp以及r接触也是埋下了伏笔，对应校园学生团和职业学生团。但是m团和ras就，对应不上了，毕竟就我自己的感想动画里和m以及ras接触的都会是mujica，这个剧情安排感觉有点微妙的不平衡感。
 
+
+*****
+
+####  rikaren  
+##### 16981#       发表于 2024-5-26 20:08
+
+<blockquote>御幸一也 发表于 2024-5-26 19:44
+那麼 為什麼沒人敢說呢，是欺負初華推現在人少嗎</blockquote>
+这块我觉得最恶心的还是贷款初华的歌声必定传达不到祥内心。拿着访谈提到的mygo和mujica的成员在设定上故意有相反的安排，来贷款初华的歌声唱不出自己内心的呐喊，歌声没有感情，破防祥子的必会是灯，tmd有相反的设定居然不是想到“能唱出别人的心声”，何况设定上也提到了初华写的词能完美符合别人的要求。1st前贷款李子翻车的不明生物就更不用说了。
+
+另外，提到初华能写出完美符合别人要求的词，这不就是在暗示初华能把另外四个人的心声都唱出来吗？考虑到愚神上还有初睦互动，可以奶一口是睦请求初华写的，然后祥子情不自禁跟了“神さま,バカ”，这何尝不是心有灵犀的半身？
+
+*****
+
+####  CyDiablo  
+##### 16982#       发表于 2024-5-26 20:08
+
+有没有一种可能蝶和ras都不会和鸡狗在动画有过多的接触，鸡动画塞个pp和r顶天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 16983#       发表于 2024-5-26 20:11
+
+ 本帖最后由 PDQ4 于 2024-5-26 20:12 编辑 
+
+歌词这个解释我个人假药是初华导致的，初华看到灯笔记本也觉得是词，这俩在这点上又不通气，一个没说过懂作词的作曲担当看见笔记本眼冒金光，我会猜是初华教的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这倒不是什么代餐，单纯是幼驯染教给祥子的知识在长大一点后发挥了用处<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+至于和老团对接可能没想这么多吧，场外有明显提到的只有ppp和r。鸡会不会和蝶对接个人不看好，因为白祥现在看确实死了，祥子现在也不在月之森，可能只会放在游戏里有点小对话，甚至有可能已经是前偶像现在脱粉了。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16984#       发表于 2024-5-26 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010091&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 20:08</a>
+
+这块我觉得最恶心的还是贷款初华的歌声必定传达不到祥内心。拿着访谈提到的mygo和mujica的成员在设定上故 ...</blockquote>
+你說的言論我都見過，不過這些智障的噁心貸款那可太多了，如果有人做合訂本做一天都做不完那種<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是沒有關係，他們儘管貸，因為第二季破防的不會是我，而是這些期待在ave動畫裡一個別團主唱會大放異彩的人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+除非武士道真沒把avemujica當一個獨立的團，那麼我也會直接跑路，反正不會傷害到我 嘻嘻
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16985#       发表于 2024-5-26 20:13
+
+https://zi99512756.lofter.com/post/4c29060d_2bbce18ce<img src="https://p.sda1.dev/17/5e9527e7c2600ea0e9bf44dce7438a1b/lofter_1716725609426.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 16986#       发表于 2024-5-26 20:16
+
+你楼、nga和贴吧都看能很好中和我的大脑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+“每天告诫自己：为人处世低调不圆滑，言行不油腻、有边界感”
+
+*****
+
+####  rikaren  
+##### 16987#       发表于 2024-5-26 20:17
+
+<blockquote>PDQ4 发表于 2024-5-26 20:11
+歌词这个解释我个人假药是初华导致的，初华看到灯笔记本也觉得是词，这俩在这点上又不通气，一个没说过懂作 ...</blockquote>
+就mujica这中二内容手游不拉着小白亚子出一期暗黑中二天团不可能的吧，设定上是不可能废的（顺便还能让小白发出尖锐的爆鸣声）。无忧无虑从没有过失败和障碍的白祥想当然觉得不会失败，一定能行这个解释也是通的。（草了，怎么点上传图片没反应）
+
+*****
+
+####  御幸一也  
+##### 16988#       发表于 2024-5-26 20:17
+
+吃點好的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/26/201726y9tzqrvvv37e325r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_4／3(@sigangsan)_20240526-084507_1794650964705808465_photo.jpg</strong> (291.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:17 上传
+
+[https://x.com/sigangsan/status/1794650964705808465](https://x.com/sigangsan/status/1794650964705808465)
+

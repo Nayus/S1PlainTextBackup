@@ -3742,3 +3742,11 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 
 意思是Joel无形的大手被紧急干碎出了个没来得及翻译的公告，降低瓦拉瑞亚5难度是吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4780#       发表于 2024-5-26 20:15
+
+想笑，反攻值5%调到3.5%大半天进度直接从57%狂飙到92%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

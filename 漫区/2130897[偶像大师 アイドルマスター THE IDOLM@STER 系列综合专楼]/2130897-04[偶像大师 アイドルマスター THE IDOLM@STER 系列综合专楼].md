@@ -6486,3 +6486,11 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  rgauss  
+##### 5055#       发表于 2024-5-27 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sc动画后面还会回升的 后面都没啥剧情了都
+

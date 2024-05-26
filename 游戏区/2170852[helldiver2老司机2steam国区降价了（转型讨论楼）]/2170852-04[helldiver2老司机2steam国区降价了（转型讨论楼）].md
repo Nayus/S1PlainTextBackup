@@ -3715,3 +3715,30 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 箭头估计是想把下个任务拖到周二更新出来再发，预计到玩家会打的快，专门还发了个没奖励的天使投资任务分流人，结果天使投资一天就给打下来了
 <img src="https://p.sda1.dev/17/dc3950ea1d2d400a3c9e23f566dc4497/Image_1716662752410.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4777#       发表于 2024-5-26 02:29
+
+箭头可千万别发新战备啊
+
+*****
+
+####  xinfengj  
+##### 4778#       发表于 2024-5-26 02:50
+
+<img src="https://p.sda1.dev/17/4c0d362ab8d70365f9ab2886a3902fe3/Image_1716662755431.jpg" referrerpolicy="no-referrer">
+机器人强度提高不是公告了么？
+箭头估计是想把下个任务拖到周二更新出来再发，预计到玩家会打的快，专门还发了个没奖励的天使投资任务分流人，结果天使投资一天就给打下来了
+<img src="https://p.sda1.dev/17/dc3950ea1d2d400a3c9e23f566dc4497/Image_1716662752410.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 4779#       发表于 2024-5-26 12:10
+
+乐，我一上线看到一个没文本的bot regen decrease报告，再一查网站，机器人反攻值从-5调到-3.5了
+
+意思是Joel无形的大手被紧急干碎出了个没来得及翻译的公告，降低瓦拉瑞亚5难度是吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

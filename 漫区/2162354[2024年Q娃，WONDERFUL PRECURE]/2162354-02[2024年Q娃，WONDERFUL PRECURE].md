@@ -540,3 +540,37 @@
 
 猫猫小雪配这声线总感觉有点违和感<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1528#       发表于 2024-5-26 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65005120&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-5-26 09:54</a>
+
+小雪，你就这么喜欢真由吗</blockquote>
+我只是想保护她
+
+
+*****
+
+####  Piano-Forest  
+##### 1529#       发表于 2024-5-26 12:15
+
+[https://x.com/hanamaru_hnkc/status/1794520612830171217](https://x.com/hanamaru_hnkc/status/1794520612830171217)
+
+わんだふるぷりきゅあ！17話の演出やらせていただきました！関わってくださったスタッフの皆々様大感謝です！！ご視聴ありがとうございました！
+<img src="https://p.sda1.dev/17/b6f5241e0aac8fbe3e455fa5d3e77e81/20240526_121149.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/92982f7bc47139f2c8fa94b3f32cb722/20240526_121152.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/The_TanboK/status/1794521031069360212](https://x.com/The_TanboK/status/1794521031069360212)
+
+わんぷり17話
+
+LO原画と2原でお手伝いしました！
+
+ありがとうございました！
+
+上田さんの仕事の熱量がめちゃかっこよかったです
+<img src="https://p.sda1.dev/17/b7bae8882726f2e0f1b7513d7997971c/SaveTwitter.Net_GOdpD_Va4AEK1sI_gif_.gif" referrerpolicy="no-referrer">
+

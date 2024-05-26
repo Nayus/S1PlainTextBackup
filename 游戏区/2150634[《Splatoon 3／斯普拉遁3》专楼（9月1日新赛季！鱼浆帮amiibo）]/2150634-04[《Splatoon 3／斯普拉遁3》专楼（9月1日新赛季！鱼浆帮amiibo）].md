@@ -695,3 +695,11 @@ w3烤架过不去真是<img src="https://static.saraba1st.com/image/smiley/face2
 
 打到康出了第一个鼹鼠的金怪章<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">刚刚好一万只不多不少，下一个是塔还剩600来只接下来几期都努力打打，第三个差一千六百多个就不冲了
 
+
+*****
+
+####  xgazer  
+##### 4507#       发表于 2024-5-26 12:10
+
+这金工全来刷人头的吗，怎么800分段全是冲岸边打的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

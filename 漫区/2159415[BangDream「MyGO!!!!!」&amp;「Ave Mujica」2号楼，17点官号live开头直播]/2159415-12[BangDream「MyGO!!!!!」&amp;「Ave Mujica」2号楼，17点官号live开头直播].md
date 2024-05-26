@@ -7705,3 +7705,19 @@ https://ngabbs.com/read.php?tid=40306660
 
 灯喜欢昆虫星星这几个设定 从祥子视角看确实是初华代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 16973#         楼主| 发表于 2024-5-26 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64997984&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-25 14:53</a></blockquote>
+李子本人不出镜，那是staff来测试网络吗
+
+*****
+
+####  相坂君  
+##### 16974#       发表于 2024-5-26 19:24
+
+喵梦和灯就像苹果和西红柿，哇喔 好像哦！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -991,3 +991,14 @@ infp有啥问题
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  百响  
+##### 106#       发表于 2024-5-26 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009546&amp;ptid=2184863" target="_blank">百响 发表于 2024-5-26 19:13</a>
+大五人格最大的缺陷就是不好给人贴标签，甚至打不过上古理论九型人格，mbti四个字母就能给人贴上标签，太方 ...</blockquote>
+星座在mbti之前流行的重要原因也是好贴标签，人人都可以通过生日来确定星座。
+生肖虽然也可以，但在同龄人里区分度太小，一届学生最多就两三种生肖，没有区分度，可能古代更流行点。
+

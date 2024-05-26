@@ -76,3 +76,11 @@ ST BBA挺色的。话说这次ST的后缀似乎都是塔罗牌的样子啊</bloc
 
 我看不用担心，再给阿金5年，可能出得来22个角色卡。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1068#         楼主| 发表于 2024-5-26 11:33
+
+高难干掉D.MAX了。感觉还是变异蛤蟆难打，平面散弹+高空散弹+糊脸红弹配上爆炸球封路这套连招还是躲不好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -371,3 +371,45 @@
 
 2024-5-26 09:59 上传
 
+
+*****
+
+####  nagitoY  
+##### 3199#       发表于 2024-5-26 11:27
+
+刷了一天的“搭档们”，出了不少副产品。可以凑一套龙4虎4了。有两个饰品都是单猛虎套装，不想刷双套装饰品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/26/112355pxitayocojq3oj43.jpg" referrerpolicy="no-referrer">
+
+<strong>001.jpg</strong> (339.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202405/26/112400u94rgo4sdgztvofv.jpg" referrerpolicy="no-referrer">
+
+<strong>002.jpg</strong> (338.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 11:24 上传
+
+武器基本是有什么用什么，完全没有去挑面板高、词条好武器的余裕。
+
+<img src="https://img.saraba1st.com/forum/202405/26/112710mw0355cwwglo35no.jpg" referrerpolicy="no-referrer">
+
+<strong>004.jpg</strong> (341.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 11:27 上传
+
+<img src="https://img.saraba1st.com/forum/202405/26/112714k96of6he19o6e94o.jpg" referrerpolicy="no-referrer">
+
+<strong>005.jpg</strong> (342.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 11:27 上传
+

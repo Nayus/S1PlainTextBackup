@@ -1129,3 +1129,13 @@ infp内心纤细容易想多而且不抗压力容易崩溃，情绪容易波动�
 
 mbti在破测试你想要什么就可以是什么 成熟的测试都不用这个 
 
+
+*****
+
+####  Mitiru  
+##### 119#       发表于 2024-5-27 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009935&amp;ptid=2184863" target="_blank">笑颜百景 发表于 2024-5-26 19:52</a>
+且不说轻小说为了戏剧性什么人设都能给你凹出来，比企谷真回头来看也更像个低阶intp小鬼 ...</blockquote>
+渡航狗尾续貂全锅，台长吹前七卷无罪<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

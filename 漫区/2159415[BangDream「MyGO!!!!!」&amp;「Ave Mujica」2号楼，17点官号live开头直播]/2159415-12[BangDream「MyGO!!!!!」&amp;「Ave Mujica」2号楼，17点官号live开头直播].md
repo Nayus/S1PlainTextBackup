@@ -8062,3 +8062,53 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 不管最终系构和脚本到底是谁，角色关系性处理不好那就是有问题，看动画的看到剧本有问题及时止损去看点好的就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17006#       发表于 2024-5-26 20:57
+
+要不也看看貓貓吧<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer"> 快到喵夢生日了捏
+
+<img src="https://img.saraba1st.com/forum/202405/26/205640nu6e8a82cgo2fnau.jpg" referrerpolicy="no-referrer">
+
+<strong>008DyTjXgy1hq1whk6grmj31831qd7wh.jpg</strong> (298.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:56 上传
+
+[https://weibo.com/7913655569/OfWoqdenc](https://weibo.com/7913655569/OfWoqdenc)
+
+*****
+
+####  御幸一也  
+##### 17007#       发表于 2024-5-26 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010576&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-5-26 20:48</a>
+
+在上次某个已经被锁的贴，那个贴里同担希推楼主哭诉立希为什么风评这么差的时候点了爱皇大名，被狂喷，我 ...</blockquote>
+還有這麼樂的貼嗎，想圍觀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17008#       发表于 2024-5-26 20:58
+
+看到喵祥心里就暖暖的
+
+*****
+
+####  akirakira  
+##### 17009#       发表于 2024-5-26 20:58
+
+如果是花田的剧本，会有初睦祥的激烈情感碰撞吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 17010#       发表于 2024-5-26 21:03
+
+我已经用nina和mmk代餐初祥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

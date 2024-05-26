@@ -852,3 +852,16 @@ ABARA的6寸可动开始预售
 
 说到Abara，明明大小怪物都能超音速动作，打起来应该是冲击波四处乱飙打得周围尸横遍野瓦砾乱飞建筑像饼干一样支离破碎才对，结果表现出来好像是时停一样。一直很想吐糟这个。
 
+
+*****
+
+####  Archlich³  
+##### 88#       发表于 2024-5-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64984942&amp;ptid=2159012" target="_blank">北山玖公 发表于 2024-5-24 12:10</a>
+
+帅，但是不是有点太单调的黑了？虽然说是黑奇居子，作为手办目前看这个例图还是有些不得劲。
+
+要是真能和昆 ...</blockquote>
+得靠白色背景衬托才行咧。
+

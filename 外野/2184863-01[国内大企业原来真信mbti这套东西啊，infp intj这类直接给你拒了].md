@@ -775,3 +775,13 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 不过我最后还是把人家给拒了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  anapple  
+##### 84#       发表于 2024-5-26 15:19
+
+真正的INTJ会根据所需的情况变成需要的性格的
+
+比如华为这种测试装成天选牛马打工人ISTJ肯定是没错的
+

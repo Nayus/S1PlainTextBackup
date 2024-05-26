@@ -555,3 +555,16 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 比较考验音响监督的能力吧，至少唐可可我觉得配得很好，尤其是一期前三集
 
+
+*****
+
+####  csolfans  
+##### 20220#       发表于 2024-5-26 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010240&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-5-26 20:22</a>
+
+鱼不选声优路线是对的
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">怎么突然如此感慨
+

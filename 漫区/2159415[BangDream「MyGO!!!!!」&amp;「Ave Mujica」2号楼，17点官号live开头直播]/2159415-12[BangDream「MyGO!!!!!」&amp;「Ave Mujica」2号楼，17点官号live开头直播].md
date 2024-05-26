@@ -8165,3 +8165,13 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 還有這麼樂的貼嗎，想圍觀</blockquote>
 看不了了，整个被锁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 17017#       发表于 2024-5-26 21:20
+
+都说了立希厨最正确的打法是车编剧和制作组，车谁对不起谁谁做错了这些只会引起角色厨屁股大战，但编剧对不起立希这个大家都是看在眼里的不会引发什么争议<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+证据就是泥潭专楼前段时间车立希的待遇和编剧把立希当工具人垫脚石的话题车了十几页都非常和平，唯一的争议只有立希未来待遇是“编剧良心发现在后续动画手游补塑造”和“臭底边不要指望了建议直接埋”这一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

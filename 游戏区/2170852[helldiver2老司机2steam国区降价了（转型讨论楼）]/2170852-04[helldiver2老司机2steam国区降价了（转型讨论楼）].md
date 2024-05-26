@@ -3750,3 +3750,13 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 
 想笑，反攻值5%调到3.5%大半天进度直接从57%狂飙到92%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  扑克脸军曹  
+##### 4781#       发表于 2024-5-26 22:06
+
+每天就上去看看发机甲没，开一把的动力都没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

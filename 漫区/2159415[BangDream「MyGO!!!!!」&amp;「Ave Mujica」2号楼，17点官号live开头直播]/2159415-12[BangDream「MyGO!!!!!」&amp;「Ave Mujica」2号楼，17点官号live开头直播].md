@@ -8213,3 +8213,174 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 [https://x.com/Watase_Yuzuki/status/1794721058547019875](https://x.com/Watase_Yuzuki/status/1794721058547019875)
 
+
+*****
+
+####  须贺兰  
+##### 17021#       发表于 2024-5-26 21:54
+
+ 本帖最后由 须贺兰 于 2024-5-26 22:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008728&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 17:44</a>
+[https://ngabbs.com/read.php?tid=40306660](https://ngabbs.com/read.php?tid=40306660)
+
+这个，说真的，为什么不讨论下制作组在剧情和角色塑造上的失 ...</blockquote>
+这有啥不合理的？在视线良好的环境下把40个微微颤抖的玻璃球聚成圆，然后持续盯着其中一个看，别说闭眼了，就是眼睛睁着注意力稍微分散一下，都可能丢失目标
+
+更何况是LiveHouse这种昏暗的环境，如果你要那拿灯和soyo先后找到了祥子来反驳的话，就翻翻原片是什么情况
+
+10:51.109 祥睦进入
+
+<img src="https://img.saraba1st.com/forum/202405/26/212134uwzkpw3w5xmsqsg5.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-58-33.png</strong> (1.88 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:21 上传
+
+10:53.194 灯发现祥睦前一刻
+
+<img src="https://img.saraba1st.com/forum/202405/26/212133x67xhyyc6b7z7yky.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_21-20-57.png</strong> (1.71 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:21 上传
+
+10:53.236 接下来，祥子就映在灯眼中
+
+<img src="https://img.saraba1st.com/forum/202405/26/212257nuohgiadg5abfgg5.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_19-01-09.png</strong> (2.49 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:22 上传
+
+注意灯看到祥子的时候现场人本来就不多（爱音三次失误还走了几个），而且祥睦出现在了固定参考物出口门附近
+
+但是开始弹奏《春日影》后观众开始增加了
+
+16:35.828 开始自发拉人进场
+
+<img src="https://img.saraba1st.com/forum/202405/26/212628q9mrrkhpmrrgfkbj.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-43-49.png</strong> (381.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:26 上传
+
+17:09.320 观众数量已经很多了
+
+<img src="https://img.saraba1st.com/forum/202405/26/212907jhw9uug8oloxc0ub.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-46-19.png</strong> (1.54 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:29 上传
+
+17:26.128 祥子视角舞台，值得一提的是祥子此刻眼睛开始湿润，视线渐渐模糊
+
+<img src="https://img.saraba1st.com/forum/202405/26/212802fkih7l74o66sko7o.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-46-58.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:28 上传
+
+17:38.557-17:41.310 祥子离开过程，祥子本人是时隐时现的，gif压缩得有点狠，凑合看吧
+<img src="https://s2.loli.net/2024/05/26/BJMIrwXRo9f7TYx.gif" referrerpolicy="no-referrer">
+
+17:40.851 soyo视角发现祥子离开前一刻，也是在有固定参照物出口附近
+
+<img src="https://img.saraba1st.com/forum/202405/26/213031wasc0zvv8e8clls4.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-51-17.png</strong> (2.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:30 上传
+
+17:40.893 切换到soyo面部，她实现捕捉到了祥子
+
+<img src="https://img.saraba1st.com/forum/202405/26/213109fgm4u90a194d1gd9.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-53-35.png</strong> (2.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:31 上传
+
+17:41.852 soyo惊愕祥子离场，顺带一提祥子泪珠飞溅是在17:43.521
+
+<img src="https://img.saraba1st.com/forum/202405/26/213117sp12vs2yi4ttt411.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_18-54-39.png</strong> (2.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:31 上传
+
+17:47.149 祥子的头发都要消失在门外了，打开出门口的时候休息区域的光照进来，可以推测soyo认为祥子在哭是因为出口附近亮度提高，还可参考往上拉16:35.828观众进场的截图
+
+<img src="https://img.saraba1st.com/forum/202405/26/213252clx3td9clhvjg2va.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_19-08-09.png</strong> (2.19 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:32 上传
+
+18:47.543 睦望向祥子离开方向
+
+<img src="https://img.saraba1st.com/forum/202405/26/213937tz5u39eu33e4qxd5.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_21-38-50.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:39 上传
+
+18:51.297 很快睦也被人淹没
+
+<img src="https://img.saraba1st.com/forum/202405/26/214013svibc3nlqstpciqc.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_19-11-54.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:40 上传
+
+综上所述，不觉得灯在昏暗环境中闭眼后找不到人有什么不合理的，祥子本来目标也小（矮），灯的注意力大头还要留给Live，也就soyo这种被灯MC提醒以后目光不断找祥子，也才在<strong>有固定参考物且亮度较高的出口附近</strong>发现了她
+
+*****
+
+####  须贺兰  
+##### 17022#       发表于 2024-5-26 21:57
+
+ 本帖最后由 须贺兰 于 2024-5-26 21:58 编辑 
+
+另外楼里出现一个1贴小号，大家有什么头绪吗？
+
+<img src="https://img.saraba1st.com/forum/202405/26/215813cb9l6b9mjkxl1jb2.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-05-26_19-26-51.png</strong> (116.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 21:58 上传
+
+倒不是说一定和“rikaren”坛友有什么关系，只不过本楼看起来也被一些奇怪的人盯着吧
+
+
+*****
+
+####  御幸一也  
+##### 17023#       发表于 2024-5-26 22:02
+
+祥廚樓被盯很正常吧，說不定泥樓還是某些人的眼中釘呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

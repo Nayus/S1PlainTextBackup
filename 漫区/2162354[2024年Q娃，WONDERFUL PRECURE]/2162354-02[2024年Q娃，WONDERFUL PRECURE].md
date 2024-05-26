@@ -657,3 +657,15 @@ LO原画と2原でお手伝いしました！
 
 到时候还得眼镜暖男给一个兽医的女儿和一个宠物用品店主的女儿当智慧袋，哎呀你看这个嘎噜嘎噜是圆耳朵，可能是老虎的嘎噜嘎噜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天风绯炎  
+##### 1537#       发表于 2024-5-26 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">爽了爽了，小雪好飒啊，
+
+茉优不要觉得遗憾，当你和小雪从相遇那一刻起，往后都是坦途一片，
+
+正确的两人的相遇，是不分时间和场合的。
+

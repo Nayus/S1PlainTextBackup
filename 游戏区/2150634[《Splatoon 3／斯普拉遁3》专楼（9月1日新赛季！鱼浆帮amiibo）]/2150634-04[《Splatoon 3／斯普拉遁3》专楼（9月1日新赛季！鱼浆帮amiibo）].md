@@ -703,3 +703,11 @@ w3烤架过不去真是<img src="https://static.saraba1st.com/image/smiley/face2
 
 这金工全来刷人头的吗，怎么800分段全是冲岸边打的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一将宫成万股哭  
+##### 4508#       发表于 2024-5-26 14:39
+
+野工狠狠地卡900了，只能恨自己菜，MAX难度第三波总是差1个蛋，配置不好第一波又直接狠狠下分，从传说40开始都打了80多把了，牢底坐穿
+

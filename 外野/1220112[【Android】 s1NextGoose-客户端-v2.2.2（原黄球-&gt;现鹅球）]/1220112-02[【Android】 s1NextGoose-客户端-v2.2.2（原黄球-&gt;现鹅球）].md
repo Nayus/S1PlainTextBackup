@@ -286,3 +286,14 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 这种情况是从什么时候开始的啊？我的持续一个月了……没改过任何网络设置… ...</blockquote>
 我是一台手机能用，一台手机显示网络错误，太怪了，都更新到最新的alpha版本了，不知道显示网络错误的是什么原因
 
+
+*****
+
+####  StarCrusader  
+##### 1595#       发表于 2024-5-26 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65003872&amp;ptid=1220112" target="_blank">masonknight 发表于 2024-5-26 01:47</a>
+
+我是一台手机能用，一台手机显示网络错误，太怪了，都更新到最新的alpha版本了，不知道显示网络错误的是 ...</blockquote>
+是的，本以为泥潭维护好了也许就恢复了，但是到现在依然是显示网络错误<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+

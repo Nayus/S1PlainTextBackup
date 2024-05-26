@@ -530,3 +530,20 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 鲤鱼这个联动<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">真花心思要做鱼黎黎，不过直播次数太少了
 
+
+*****
+
+####  ruffian  
+##### 20217#       发表于 2024-5-26 20:22
+
+鱼不选声优路线是对的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  280041437  
+##### 20218#       发表于 2024-5-26 20:24
+
+不过我觉得她要是有心想练还是能练出来的，毕竟歌和舞都能练出来
+

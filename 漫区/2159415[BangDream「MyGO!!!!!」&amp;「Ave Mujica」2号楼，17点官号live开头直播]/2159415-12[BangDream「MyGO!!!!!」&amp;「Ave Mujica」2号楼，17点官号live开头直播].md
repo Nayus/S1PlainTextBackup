@@ -7874,3 +7874,71 @@ https://zi99512756.lofter.com/post/4c29060d_2bbce18ce<img src="https://p.sda1.de
 
 [https://x.com/sigangsan/status/1794650964705808465](https://x.com/sigangsan/status/1794650964705808465)
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 16989#       发表于 2024-5-26 20:20
+
+https://x.com/Shinota12/status/1794586058791018898<img src="https://p.sda1.dev/17/46dcbeb74cfb83684c68aeea957a236c/CMP_20240526202003682.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 16990#       发表于 2024-5-26 20:21
+
+<img src="https://img.saraba1st.com/forum/202405/26/202101chevaal1e4x9n5xe.jpg" referrerpolicy="no-referrer">
+
+<strong>8E2673A4A6FE008D192D5EB328B79ABC.jpg</strong> (73.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202405/26/202119corccgvmmk1t4tmc.jpg" referrerpolicy="no-referrer">
+
+<strong>F1A45A9B6812E7ACCD2AB777329C0BB7.jpg</strong> (97.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:21 上传
+
+有这个在，贷款下m&amp;ras和mujica的互动我觉得没问题。
+
+*****
+
+####  御幸一也  
+##### 16991#       发表于 2024-5-26 20:23
+
+順便吃點貓狗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/26/202300kqn93rmjrump9hpp.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240525-134810_1794364839252619739_photo-0.jpg</strong> (145.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202405/26/202258h21iz35agg59kuyi.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240525-134810_1794364839252619739_photo-1.jpg</strong> (141.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 20:22 上传
+
+[https://x.com/Rainy_NEGI/status/1794364839252619739](https://x.com/Rainy_NEGI/status/1794364839252619739)
+
+*****
+
+####  PDQ4  
+##### 16992#       发表于 2024-5-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010195&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 20:17</a>
+
+就mujica这中二内容手游不拉着小白亚子出一期暗黑中二天团不可能的吧，设定上是不可能废的（顺便还能让小 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这部分肯定就是手游里了吧，挺适合出一个混活的，比如真白亚子双五，祥子四。
+
+我说的是动画，不好说鸡明年动画会不会提蝶
+

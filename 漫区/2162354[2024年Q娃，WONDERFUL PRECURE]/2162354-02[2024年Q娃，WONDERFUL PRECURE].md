@@ -739,3 +739,18 @@ LO原画と2原でお手伝いしました！
 
 话说回来该不会19话换ED变成只有猫组跳ED舞吧（
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1544#       发表于 2024-5-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008772&amp;ptid=2162354" target="_blank">leleq 发表于 2024-5-26 17:48</a>
+
+开播来最Q娃的一集
+
+小雪这bank标准追加待遇，后面的独角兽该咋办啊
+
+盾击（Q娃传统技能）老虎后只有小雪自己 ...</blockquote>
+就是啊就是啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

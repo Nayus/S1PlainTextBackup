@@ -1067,3 +1067,22 @@ intj不是优秀打工人模板吗，即使心里对上司的sb指挥感到无�
 当年我做的时候确实是叫性格测试来着，但是内容无外乎量大管饱的“当社畜你赞不赞同 ...</blockquote>
 现在好多是类似三个里选一个最符合一个最不符合的了，看不出来。
 
+
+*****
+
+####  kooor555  
+##### 113#       发表于 2024-5-26 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008928&amp;ptid=2184863" target="_blank">野生qb 发表于 2024-5-26 18:04</a>
+
+infp内心纤细容易想多而且不抗压力容易崩溃，情绪容易波动。
+
+我有好多infp网友，哎，经常看到针对工作的 ...</blockquote>
+一般都是网上崩溃而已，感觉当代合格打工人挺契合infp的思维和做事方式。。
+
+楼下有人说艺术创作，实际生活中哪里有那么多艺术创作类的事情
+
+能让一个人循环内耗，更多的是团队领导问题，而不是一个人问题
+
+反而决定拒收infp这人更傻逼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -847,3 +847,13 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 —— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  s0534146  
+##### 92#       发表于 2024-5-26 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有一说一，华子内部论坛里也天天有打拳贴
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

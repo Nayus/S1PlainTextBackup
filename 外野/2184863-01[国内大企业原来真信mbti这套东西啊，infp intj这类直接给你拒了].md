@@ -881,3 +881,18 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 大学里的职业课程，老师确实让我们做mbti，还说可以附在简历上
 
+
+*****
+
+####  野生qb  
+##### 95#       发表于 2024-5-26 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65004957&amp;ptid=2184863" target="_blank">kooor555 发表于 2024-5-26 09:30</a>
+
+infp怎么拒了？怕阴暗面？按书面解释明明非常有利于团队</blockquote>
+infp内心纤细容易想多而且不抗压力容易崩溃，情绪容易波动。
+
+我有好多infp网友，哎，经常看到针对工作的内容吐槽和崩溃的
+
+反而现实世界不怎么看到，可能他们只在自己地盘崩溃吧
+

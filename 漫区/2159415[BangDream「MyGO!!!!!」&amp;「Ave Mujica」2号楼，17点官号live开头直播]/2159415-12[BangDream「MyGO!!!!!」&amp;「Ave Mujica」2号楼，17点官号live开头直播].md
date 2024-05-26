@@ -7598,3 +7598,31 @@ https://ngabbs.com/read.php?tid=40306660
 
 这个，说真的，为什么不讨论下制作组在剧情和角色塑造上的失误呢，尤其是独角兽老师的恶趣味。ps：第七话灯没看到祥跑出去，本来可以用第三话提到的灯进入状态会忘我来顺畅解释，但是分镜稿居然直接写的灯刚好闭上了眼睛，闭眼那下人跑了看不到很合理，后面睁开眼就没发觉少了个人吗，我建议大家适当降低下对制作组的期待。
 
+
+*****
+
+####  SakuraのOrigami  
+##### 16964#       发表于 2024-5-26 17:59
+
+R组新曲配信
+
+<img src="https://img.saraba1st.com/forum/202405/26/175920nxupupnuifp5l0fx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240526175759.png</strong> (145.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 17:59 上传
+
+*****
+
+####  极速赛车手  
+##### 16965#       发表于 2024-5-26 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008728&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 17:44</a>
+
+https://ngabbs.com/read.php?tid=40306660
+
+这个，说真的，为什么不讨论下制作组在剧情和角色塑造上的失 ...</blockquote>
+问就是给整体剧情让路<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

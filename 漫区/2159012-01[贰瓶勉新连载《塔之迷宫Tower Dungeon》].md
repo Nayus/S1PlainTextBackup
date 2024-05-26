@@ -821,3 +821,16 @@ ABARA的6寸可动开始预售
 真·力大飞砖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 休刊一个月有效信息就一枚东亚重工纹章，根本不够看啊
 
+
+*****
+
+####  哈扎马  
+##### 85#       发表于 2024-5-26 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65004074&amp;ptid=2159012" target="_blank">smdzh2 发表于 2024-5-26 02:44</a>
+
+真·力大飞砖
+
+休刊一个月有效信息就一枚东亚重工纹章，根本不够看啊</blockquote>
+稍微有点不连贯<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">如果在无辅助攀爬中腾出一只手垂直向上投掷重物就能平整的剐掉人脸，那接下来全身发力的蛮王冲刺应该在接触之始就让对方断成两截，而不是被扔进砖墙中砸死（只能解释为第一个弓手level2，被冲的敌兵level40，怎么组队的）
+

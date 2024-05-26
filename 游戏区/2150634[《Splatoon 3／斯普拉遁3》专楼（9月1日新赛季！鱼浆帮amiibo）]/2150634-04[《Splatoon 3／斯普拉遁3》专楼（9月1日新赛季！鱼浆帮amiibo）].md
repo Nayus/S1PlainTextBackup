@@ -737,3 +737,16 @@ w3烤架过不去真是<img src="https://static.saraba1st.com/image/smiley/face2
 
 SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围的不同之处，瓜还解释了世锦赛当时为什么让怪盗的raul拿的吸尘器长红而不是铅笔，蛮有意思的，懂日语的可以看看
 
+
+*****
+
+####  laosai13  
+##### 4512#       发表于 2024-5-26 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009246&amp;ptid=2150634" target="_blank">raii 发表于 2024-5-26 18:43</a>
+
+https://www.youtube.com/watch?v=lZDdLtvEZUo
+
+SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ...</blockquote>
+这个节目有点意思，一开始看标题以为采访jackpot问他们问题，结果真正看下来变成jackpot问melon他们问题比较多
+

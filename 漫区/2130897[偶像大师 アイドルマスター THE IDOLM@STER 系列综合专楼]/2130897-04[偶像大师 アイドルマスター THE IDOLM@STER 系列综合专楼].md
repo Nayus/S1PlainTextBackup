@@ -6476,3 +6476,13 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 不是有折盾打伤害的那种牌么.....难道叠盾不也是一种正常打法？
 
+
+*****
+
+####  Seeley  
+##### 5054#       发表于 2024-5-26 23:57
+
+大概是关注的要不昏过去了要不说不出话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

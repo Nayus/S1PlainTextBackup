@@ -1020,3 +1020,18 @@ infp有啥问题
 
 当年做完性格测试后华为外包把我拒了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  浅色轮回  
+##### 109#       发表于 2024-5-26 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009004&amp;ptid=2184863" target="_blank">野生qb 发表于 2024-5-26 18:11</a>
+
+从荣格八维的角度来说，从事企业工作绕不开团队协作
+
+那么，SI,SE,TI,TE是比较好用的功能，特别是SE,TE
+
+而 ...</blockquote>
+mbti和荣格八维是两码事，按荣格八维来讲infp可以提高ti和te的，相比较提高te 高ti的infp5w4不算少毕竟提高ti对infp来说不算难，5w4的infp在外更像intp就事论事 全程ti做事，毕竟天天fi爆炸内耗根本就做不了工作了
+

@@ -7729,3 +7729,33 @@ https://ngabbs.com/read.php?tid=40306660
 
 nga不是默认没有鸡团粉吗，总感觉看过这一集，都反派团了，肯定要被打到跪地忏悔，被主角收入后宫然后冷落<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16976#       发表于 2024-5-26 19:44
+
+<blockquote>PDQ4 发表于 2024-5-26 19:29
+nga不是默认没有鸡团粉吗，总感觉看过这一集，都反派团了，肯定要被打到跪地忏悔，被主角收入后宫然后冷落 ...</blockquote>
+其实还是有的，上次还有个过激祥推和别人吵起来被mute了，以及专楼经常见的一位茜推，比较微妙的是虽然有偏向于mujica的，但是基本看不到提到愚神是睦祥曲的。不过nga看这边恐怕也是觉得全是祥毒唯，根本想不到还有避难的立希推。
+
+*****
+
+####  御幸一也  
+##### 16977#       发表于 2024-5-26 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009566&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-26 19:15</a>
+
+灯喜欢昆虫星星这几个设定 从祥子视角看确实是初华代餐</blockquote>
+那麼 為什麼沒人敢說呢，是欺負初華推現在人少嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 16978#       发表于 2024-5-26 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009869&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 19:44</a>
+
+其实还是有的，上次还有个过激祥推和别人吵起来被mute了，以及专楼经常见的一位茜推，比较微妙的是虽然有 ...</blockquote>
+泥樓“祥廚樓”聲名遠揚，誰管你裡面具體誰是什麼成分，一律當祥廚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

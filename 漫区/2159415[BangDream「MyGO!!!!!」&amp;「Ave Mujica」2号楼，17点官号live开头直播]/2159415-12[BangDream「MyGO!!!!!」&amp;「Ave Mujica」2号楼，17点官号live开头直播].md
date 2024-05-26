@@ -8432,3 +8432,11 @@ soyo换nina有什么用，怎么也得初华和睦那个地位去跟祥子battle
 
 【【Japan Jam 2024】砂寸奏-MyGO!!!!!】 [https://www.bilibili.com/video/B ... 3d116a8c99d9ad274d6](https://www.bilibili.com/video/BV1oD42137sN/?share_source=copy_web&amp;vd_source=57a622f4e51063d116a8c99d9ad274d6)
 
+
+*****
+
+####  CyDiablo  
+##### 17029#       发表于 2024-5-26 22:54
+
+草，这段甚至没唱，砂寸奏就出来了个前奏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

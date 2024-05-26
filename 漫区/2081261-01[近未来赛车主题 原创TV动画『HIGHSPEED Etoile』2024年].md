@@ -333,3 +333,27 @@ ai那句kuso感觉凛后面要不少挨骂<img src="https://static.saraba1st.com
 
 后知后觉，粉毛奶奶的星马豪
 
+
+*****
+
+####  新HGCG  
+##### 359#       发表于 2024-5-27 07:29
+
+这两个人的声优是《霹雳游侠》初代和2008版的主角的日语配音声优 ​​​
+
+<img src="https://img.saraba1st.com/forum/202405/27/072946d8k130jqkzgsgoxq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-27 07:29 上传
+
+<img src="https://img.saraba1st.com/forum/202405/27/072953f1wn6w0opt7za66w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-27 07:29 上传
+

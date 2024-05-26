@@ -249,3 +249,26 @@ GPT全责，当时翻译麻的简介的时候就没翻译到位，我还以为�
 
 二男三女灵活 就主播不开窗
 
+
+*****
+
+####  Cushaw  
+##### 16469#       发表于 2024-5-27 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64978501&amp;ptid=2018830" target="_blank">rubinliu 发表于 2024-5-23 19:17</a>
+好几年没看你咩姐了
+
+最近听到了学马仕皮卡丘那首hw歌不知怎么就想到了你咩姐
+
+请问现在让过气主播唱一首歌要 ...</blockquote>
+明明saki那首味儿更对，一开口那个嗓子捏的我还以为是小麻<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  TiHaru  
+##### 16470#       发表于 2024-5-27 01:31
+
+大概是主播带クト交友
+

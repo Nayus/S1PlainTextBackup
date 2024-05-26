@@ -727,3 +727,13 @@ w3烤架过不去真是<img src="https://static.saraba1st.com/image/smiley/face2
 
 七十多场工了只掉了一个金的<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raii  
+##### 4511#       发表于 2024-5-26 18:43
+
+[https://www.youtube.com/watch?v=lZDdLtvEZUo](https://www.youtube.com/watch?v=lZDdLtvEZUo)
+
+SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围的不同之处，瓜还解释了世锦赛当时为什么让怪盗的raul拿的吸尘器长红而不是铅笔，蛮有意思的，懂日语的可以看看
+

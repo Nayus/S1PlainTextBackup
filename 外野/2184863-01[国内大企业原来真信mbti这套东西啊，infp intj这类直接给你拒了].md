@@ -974,3 +974,20 @@ infp有啥问题
 
 所以性格测试、类似公务员的行测题都是为了把人数筛到HR能面的动的程度。
 
+
+*****
+
+####  百响  
+##### 104#       发表于 2024-5-26 19:13
+
+大五人格最大的缺陷就是不好给人贴标签，甚至打不过上古理论九型人格，mbti四个字母就能给人贴上标签，太方便了。
+
+*****
+
+####  profklugstein  
+##### 105#       发表于 2024-5-26 19:14
+
+国内土博怎么你了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

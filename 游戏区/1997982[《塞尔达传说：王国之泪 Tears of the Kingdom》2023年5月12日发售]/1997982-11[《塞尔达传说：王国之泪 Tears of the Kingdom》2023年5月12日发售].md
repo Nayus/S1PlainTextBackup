@@ -66,3 +66,11 @@
 
 王国之泪第二次通关了，换游戏玩等新作了，老任快把新作跟NS2一起端出来吧！
 
+
+*****
+
+####  kuarwbwe  
+##### 15793#       发表于 2024-5-26 19:13
+
+天剑到收集完三段勇者之诗全收集正常来说应该多少血量？我现在18颗心，想确定一下差多少没收集全。<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+

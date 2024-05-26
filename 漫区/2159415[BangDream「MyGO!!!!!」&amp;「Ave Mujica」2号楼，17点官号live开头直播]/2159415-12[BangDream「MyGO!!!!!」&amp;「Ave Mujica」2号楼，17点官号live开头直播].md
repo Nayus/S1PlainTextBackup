@@ -7682,3 +7682,26 @@ https://ngabbs.com/read.php?tid=40306660
 
 只能說罵這些人智障都是罵輕了。
 
+
+*****
+
+####  御景  
+##### 16971#       发表于 2024-5-26 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009085&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 18:23</a>
+
+我倒是因为骂战代餐论把号给封了，只能说很难想象当时和我吵起来的那几个号没给nuke。不过某些人好像就是不 ...</blockquote>
+我都不知道代餐论怎么出来的，喵梦、初华和灯比较有什么明显相似吗？
+
+初华因为认识的比灯早，容易反向代餐，敢提的人少。
+
+喵梦都一说就是灯的代餐，实际性格、面相完全不一样。
+
+
+*****
+
+####  skives  
+##### 16972#       发表于 2024-5-26 19:15
+
+灯喜欢昆虫星星这几个设定 从祥子视角看确实是初华代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

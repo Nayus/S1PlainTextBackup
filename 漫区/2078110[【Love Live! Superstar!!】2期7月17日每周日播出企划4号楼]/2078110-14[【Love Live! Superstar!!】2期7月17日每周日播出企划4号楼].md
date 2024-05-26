@@ -576,3 +576,13 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 雨宫天京吹那个声线我经常会幻听到可可<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20222#       发表于 2024-5-27 07:41
+
+这个还真是看音监，唐可可虽说并不算多出彩但是也没啥毛病，1999的日版配音就属于是从上到下都不用心导致出品不行，这种时候纯靠鲤鱼自己发挥肯定是不行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

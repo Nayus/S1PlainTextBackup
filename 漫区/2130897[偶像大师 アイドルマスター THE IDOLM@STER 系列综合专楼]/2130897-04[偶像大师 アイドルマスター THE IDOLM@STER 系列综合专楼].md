@@ -6378,3 +6378,22 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 <img src="https://p.sda1.dev/17/df93685177a61ca51466b7ff353fab03/CMP_20240525232210021.jpg" referrerpolicy="no-referrer">
 最后一轮一个输出都不给是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  witchverr  
+##### 5044#       发表于 2024-5-26 09:26
+
+打牌游戏被发牌员折磨是不可避免的一环
+
+
+*****
+
+####  raimouse  
+##### 5045#       发表于 2024-5-26 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的sr莉莉娅和r皮卡丘被打爆了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前期根本抽不到强化卡,0强卡感觉完全没输出
+
+也叠不起好印象
+

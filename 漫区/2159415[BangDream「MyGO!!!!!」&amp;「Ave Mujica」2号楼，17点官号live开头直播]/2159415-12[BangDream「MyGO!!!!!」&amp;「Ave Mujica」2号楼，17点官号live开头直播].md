@@ -8598,3 +8598,19 @@ QQ图片20240526231120.jpg
 
 未看先猜，這個人喜歡鐵暗戀爛梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17043#       发表于 2024-5-27 00:37
+
+ 本帖最后由 PDQ4 于 2024-5-27 00:39 编辑 
+
+我最近几个月已经看到铁暗恋就想笑了
+
+因为所有非直球友爱相关的感情，无论正面还是负面，按照烂梗逻辑思考了下好像全都可以归纳为铁暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+比如我现在楼里回复，就可以说是因为漏油里有我铁暗恋对象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+世界是一个巨大的铁暗恋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -522,3 +522,11 @@ B站有UP上传过
 有无bv号</blockquote>
 BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">给个有中文翻译的，其余两P也在同UP主下
 
+
+*****
+
+####  cat1230  
+##### 20216#       发表于 2024-5-26 19:53
+
+鲤鱼这个联动<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">真花心思要做鱼黎黎，不过直播次数太少了
+

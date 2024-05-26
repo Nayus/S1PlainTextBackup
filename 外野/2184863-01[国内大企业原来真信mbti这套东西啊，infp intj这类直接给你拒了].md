@@ -1035,3 +1035,22 @@ infp有啥问题
 而 ...</blockquote>
 mbti和荣格八维是两码事，按荣格八维来讲infp可以提高ti和te的，相比较提高te 高ti的infp5w4不算少毕竟提高ti对infp来说不算难，5w4的infp在外更像intp就事论事 全程ti做事，毕竟天天fi爆炸内耗根本就做不了工作了
 
+
+*****
+
+####  eulereld  
+##### 110#       发表于 2024-5-26 19:48
+
+雖然4頁了但想問主樓3張圖哪張說會拒INFP和INTJ？
+
+
+*****
+
+####  笑颜百景  
+##### 111#       发表于 2024-5-26 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65007353&amp;ptid=2184863" target="_blank">Mitiru 发表于 2024-5-26 14:16</a>
+
+intj不是优秀打工人模板吗，即使心里对上司的sb指挥感到无语也会默默把工作糊弄到还行的状态，也懒 ...</blockquote>
+且不说轻小说为了戏剧性什么人设都能给你凹出来，比企谷真回头来看也更像个低阶intp小鬼
+

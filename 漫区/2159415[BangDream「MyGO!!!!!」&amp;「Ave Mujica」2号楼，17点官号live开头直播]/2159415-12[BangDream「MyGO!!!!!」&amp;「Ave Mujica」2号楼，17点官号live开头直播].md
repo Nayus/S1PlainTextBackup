@@ -7759,3 +7759,13 @@ nga不是默认没有鸡团粉吗，总感觉看过这一集，都反派团了�
 其实还是有的，上次还有个过激祥推和别人吵起来被mute了，以及专楼经常见的一位茜推，比较微妙的是虽然有 ...</blockquote>
 泥樓“祥廚樓”聲名遠揚，誰管你裡面具體誰是什麼成分，一律當祥廚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 16979#       发表于 2024-5-26 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65009870&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-26 19:44</a>
+那麼 為什麼沒人敢說呢，是欺負初華推現在人少嗎</blockquote>
+是啊 只能说先播出就是有福利 
+

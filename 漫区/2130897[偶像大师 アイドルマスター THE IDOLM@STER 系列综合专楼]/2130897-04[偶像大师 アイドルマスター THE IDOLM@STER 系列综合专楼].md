@@ -6414,3 +6414,13 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 皮卡丘基本稳定A+了，解了A+之后就不要抓手拍子以外的白卡了，尽量刷个开始带手拍子+的回忆，剩下全拿彩金，想刷的彩卡最好是直接借，刷出个本番前夜和带明星就稳定A+了
 感觉广和千奈也可以用这个思路
 
+
+*****
+
+####  raimouse  
+##### 5048#       发表于 2024-5-26 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是能稳定抓到有用的金彩谁会抓白卡呢
+
+叠毒整个干劲还不是一样污染卡组只能安慰自己可以给其他人用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

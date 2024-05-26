@@ -3791,3 +3791,16 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  FLZB  
+##### 4785#       发表于 2024-5-26 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65012159&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-26 23:01</a>
+
+机炮和哨戒炮差了一个能打重甲好吗 哨戒炮能打得坦克虫动不了，几轮射击能干掉泰坦。 ...</blockquote>
+我说的是机炮哨戒炮（忘了叫什么名字）不是机炮和哨戒炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说他伤害跟哨戒炮一样太看得起他了，强袭爆头大概14发，打歪了更多。泰坦要多少发我不知道，反正打了四十多发屁事没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

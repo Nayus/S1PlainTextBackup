@@ -1086,3 +1086,11 @@ infp内心纤细容易想多而且不抗压力容易崩溃，情绪容易波动�
 
 反而决定拒收infp这人更傻逼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  在这停顿  
+##### 114#       发表于 2024-5-26 20:33
+
+主楼看完也没看到和mbti啥关系啊
+

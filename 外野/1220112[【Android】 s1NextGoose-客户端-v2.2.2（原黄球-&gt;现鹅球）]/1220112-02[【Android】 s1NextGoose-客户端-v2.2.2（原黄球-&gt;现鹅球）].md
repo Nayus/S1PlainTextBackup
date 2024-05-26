@@ -297,3 +297,13 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 我是一台手机能用，一台手机显示网络错误，太怪了，都更新到最新的alpha版本了，不知道显示网络错误的是 ...</blockquote>
 是的，本以为泥潭维护好了也许就恢复了，但是到现在依然是显示网络错误<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  我就是阿X  
+##### 1596#       发表于 2024-5-26 20:34
+
+我没办法复制帖子里的文字了，是什么输入法设置的原因吗？
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

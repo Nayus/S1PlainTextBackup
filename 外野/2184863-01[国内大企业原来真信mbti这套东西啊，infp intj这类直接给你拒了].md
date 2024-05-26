@@ -713,3 +713,11 @@ MBTI最早不就是用于职业性格测评的吗，我入职时还做过，后�
 
 —— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pockem  
+##### 77#       发表于 2024-5-26 13:18
+
+不要infp我觉得可以理解，不要intj什么情况
+

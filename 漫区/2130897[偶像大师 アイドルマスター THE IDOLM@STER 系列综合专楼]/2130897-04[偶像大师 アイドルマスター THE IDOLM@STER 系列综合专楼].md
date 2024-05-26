@@ -6494,3 +6494,18 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sc动画后面还会回升的 后面都没啥剧情了都
 
+
+*****
+
+####  伊布桑  
+##### 5056#       发表于 2024-5-27 01:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一些学马士玩家开发的精简牌组刷高质量因子的玩法惊到我了。
+一开始是不上课，睡大觉和出门逛街都比上课强，因为有些上课事件强制塞卡，特别是期中考试前的课，期中前白卡概率高，白卡进因子概率很高。
+接着有人发现，如果训练不通过的话是不会塞牌的，于是这些人开始卡点不过关，这样既能拿到一定的属性又能不拿卡。据说最极端的情况可以把整局抓牌控制在4张。
+只能说非常抽象了，睡大觉和训练摸鱼的偶像反而变强了。
+
+只适合卡在某个评级上不去下不来的时候这么玩
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

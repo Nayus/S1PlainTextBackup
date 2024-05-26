@@ -3835,3 +3835,14 @@ CEO得出游戏不好玩的原因是ttk太长而不是控制和打断技能太�
 试了几把，东西线都勉强能用，前提是有送的使用次数，一局只能下来两次那感觉很逊
 爱国者和解放者不能一起上真的很幽默<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LT_Harry  
+##### 4789#       发表于 2024-5-27 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65013611&amp;ptid=2170852" target="_blank">rainknine 发表于 2024-5-27 01:23</a>
+试了几把，东西线都勉强能用，前提是有送的使用次数，一局只能下来两次那感觉很逊
+爱国者和解放者不能一起 ...</blockquote>
+机甲的高低射界不是很理想，站在一定坡度上就没法打下坡的敌人了，但是虚拟准心又会指向那个位置，而且两只手臂的高低射界有一点差异。基本上跟第一部一样，不管多好的火力也终究是拿来娱乐的玩具而已，除非在某些机制做出突破性的改变。
+

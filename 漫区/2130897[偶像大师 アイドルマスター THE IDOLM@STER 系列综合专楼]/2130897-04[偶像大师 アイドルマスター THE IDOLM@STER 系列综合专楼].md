@@ -6452,3 +6452,19 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">galgame写手写手游的还有雨野呢
 
+
+*****
+
+####  zeroed  
+##### 5052#       发表于 2024-5-26 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高山是不是应该给学马磕一个，毕竟都去玩学马，没人关心SC动画了
+
+<img src="https://img.saraba1st.com/forum/202405/26/173913gpnkvbdjjbdkv2jl.png" referrerpolicy="no-referrer">
+
+<strong>1716571997229528.png</strong> (91.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 17:39 上传
+

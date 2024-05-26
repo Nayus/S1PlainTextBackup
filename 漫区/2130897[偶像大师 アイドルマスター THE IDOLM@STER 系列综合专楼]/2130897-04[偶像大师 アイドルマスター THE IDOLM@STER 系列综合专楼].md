@@ -6444,3 +6444,11 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 减体力消耗，感觉有时候也有用?
 
+
+*****
+
+####  l⑨th_Knight  
+##### 5051#       发表于 2024-5-26 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">galgame写手写手游的还有雨野呢
+

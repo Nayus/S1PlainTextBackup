@@ -8384,3 +8384,13 @@ https://x.com/Shinota12/status/1794586058791018898</blockquote>
 
 祥廚樓被盯很正常吧，說不定泥樓還是某些人的眼中釘呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17024#       发表于 2024-5-26 22:21
+
+ 本帖最后由 rikaren 于 2024-5-26 22:22 编辑 
+
+我想说的是有更合理的解释理由，结果用了另外一个生草的。并且你图里那人和本楼有什么关系（哦，换了，那个我就真不知道了）……nga也一堆讨论soyo换nina能不能说服祥子的。
+

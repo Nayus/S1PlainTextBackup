@@ -7626,3 +7626,29 @@ https://ngabbs.com/read.php?tid=40306660
 这个，说真的，为什么不讨论下制作组在剧情和角色塑造上的失 ...</blockquote>
 问就是给整体剧情让路<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 16966#       发表于 2024-5-26 18:14
+
+<img src="https://img.saraba1st.com/forum/202405/26/181417x6qruwzan3nbzll5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716718449387.jpg</strong> (156.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-26 18:14 上传
+
+明年mujica应该会在海铃生日前实装，不然会把整个团的生日卡都往后拖一轮。
+
+*****
+
+####  cindy355  
+##### 16967#       发表于 2024-5-26 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65008635&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-26 17:36</a>
+
+草，漏油是号没了导致没法在nga回复了吗</blockquote>
+倒没有，只是失去了在泥潭说话的兴趣，阴湿地骂一下。
+

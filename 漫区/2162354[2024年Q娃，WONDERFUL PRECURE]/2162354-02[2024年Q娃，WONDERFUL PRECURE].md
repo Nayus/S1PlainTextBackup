@@ -574,3 +574,13 @@ LO原画と2原でお手伝いしました！
 上田さんの仕事の熱量がめちゃかっこよかったです
 <img src="https://p.sda1.dev/17/b7bae8882726f2e0f1b7513d7997971c/SaveTwitter.Net_GOdpD_Va4AEK1sI_gif_.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  帝下室の年糕  
+##### 1530#       发表于 2024-5-26 12:40
+
+太美味了
+<img src="https://p.sda1.dev/17/8a7969e427805a09b353138bb63a5f9d/CMP_20240526124015419.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/shotaro_kaneda/status/1794520685286756383?t=cqlp-Z64K1VxXuvar1sUYg&amp;s=19](https://twitter.com/shotaro_kaneda/status/1794520685286756383?t=cqlp-Z64K1VxXuvar1sUYg&amp;s=19)
+

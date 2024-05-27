@@ -82,3 +82,14 @@
 
 通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 15795#       发表于 2024-5-27 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65022921&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2024-5-27 19:42</a>
+
+通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊 ...</blockquote>
+虽然说塞尔达一直是轻剧情重玩法的游戏，但可以看得出塞尔达从时之笛之后，正作其实一直有在逐步加强剧情环节
+

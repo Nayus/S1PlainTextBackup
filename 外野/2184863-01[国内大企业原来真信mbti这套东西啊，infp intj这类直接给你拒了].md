@@ -1182,3 +1182,15 @@ mbti在破测试你想要什么就可以是什么 成熟的测试都不用这个
 
 尤其还是性格测试这些指向性极强的问题<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无爱二次元  
+##### 125#       发表于 2024-5-27 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65019688&amp;ptid=2184863" target="_blank">jumbleh 发表于 2024-5-27 14:57</a>
+有趣的不是这个么
+
+”我妈说找男朋友不能找国内土博，因为很多都是家里从小穷到大没有资源背最只能靠死读书 ...</blockquote>
+这句话是有问题，但说的这种人选择出国读博的倾向性确实比较低。
+

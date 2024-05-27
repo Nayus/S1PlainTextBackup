@@ -761,3 +761,25 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 这个节目有点意思，一开始看标题以为采访jackpot问他们问题，结果真正看下来变成jackpot问melon他们问题 ...</blockquote>
 分两集，下集就是你以为的那部分了
 
+
+*****
+
+####  shirolin  
+##### 4514#       发表于 2024-5-27 15:11
+
+官方最近发的四篇新人指南都翻译完了。
+
+第四篇没有下集预告，应该就是最后一篇了。
+
+[1].从头开始《斯普拉遁3》选择适合自己的武器 篇
+[https://splatoon.com.cn/page/51](https://splatoon.com.cn/page/51)
+
+[2].从头开始《斯普拉遁3》选择适合自己的装备 篇
+[https://splatoon.com.cn/page/52](https://splatoon.com.cn/page/52)
+
+[3].从头开始《斯普拉遁3》享受在线游玩 篇
+[https://splatoon.com.cn/page/53](https://splatoon.com.cn/page/53)
+
+[4].从头开始《斯普拉遁3》追求卓越的立回技巧 篇
+[https://splatoon.com.cn/page/54](https://splatoon.com.cn/page/54)
+

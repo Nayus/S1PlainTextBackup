@@ -149,3 +149,15 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 2024-5-27 15:27 上传
 
+
+*****
+
+####  xy1041  
+##### 46398#       发表于 2024-5-27 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65020158&amp;ptid=1712412" target="_blank">Urakawa 发表于 2024-5-27 15:30</a>
+高练陈宫就老实双C呆打吧，110往上还得加个充能服。还是妖兰刷90+更爽</blockquote>
+我昨天费尽心思摸了一个不用出c呆奥伯龙，出个孔明就可以打的陈宫队，结果因为有次c呆借的宝具太高了翻车<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

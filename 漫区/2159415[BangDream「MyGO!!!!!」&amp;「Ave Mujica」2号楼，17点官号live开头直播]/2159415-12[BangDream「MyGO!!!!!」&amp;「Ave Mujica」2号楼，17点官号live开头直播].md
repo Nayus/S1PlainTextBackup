@@ -8733,3 +8733,18 @@ https://x.com/GoGbla/status/1795011059113177533<img src="https://p.sda1.dev/17/e
 
 每逢4星便吃井
 
+
+*****
+
+####  御景  
+##### 17054#       发表于 2024-5-27 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024129&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-27 21:44</a>
+
+有些人估計是真不承認的 畢竟他們最愛嘴“飯圈”行為
+
+怎麼說呢，我建議他們讓武士道別開真人LIVE好吧，別 ...</blockquote>
+邦邦大部分还是认的吧，毕竟已经是运行多年的偶像企划，打上烙痕了。
+
+gbc有些粉不想承认，不想混到偶像圈去，而且动画还有些针对对偶像化的意思。
+

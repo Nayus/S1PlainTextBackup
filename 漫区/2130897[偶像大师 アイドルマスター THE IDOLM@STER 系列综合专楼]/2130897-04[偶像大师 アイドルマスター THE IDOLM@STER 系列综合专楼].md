@@ -6596,3 +6596,19 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 不上a就是少一条词条
 
+
+*****
+
+####  伊布桑  
+##### 5064#       发表于 2024-5-27 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65016238&amp;ptid=2130897" target="_blank">raimouse 发表于 2024-5-27 10:31</a>
+基础卡特殊状况下也是会进继承的来着
+
+反正怎么说呢，前期卡组弱的时候你不赌抓牌根本上不去a，伤害太低了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好意思回错了，我回的是你楼下那个问继承规律的楼友
+所以这个玩法只适合卡在某个档位暂时提不上去的人。打个比方说，A级已经随便打了，但是离A+怎么都差那么一小截，而在这期间又怎么都刷不出好因子没法提升。这时候就可以考虑用这个玩法，因为稍微降点分并不影响拿A，在保证A的前提下因子给的卡更重要。
+另外看了一下，这个玩法出来的因子好像更适合pvp，因为卡牌质量高，ai不容易xjb出到烂牌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

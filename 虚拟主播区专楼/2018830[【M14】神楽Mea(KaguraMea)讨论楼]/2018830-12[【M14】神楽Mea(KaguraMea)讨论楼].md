@@ -287,3 +287,28 @@ GPT全责，当时翻译麻的简介的时候就没翻译到位，我还以为�
 
 vspo的这位以前联动过吗？有点眼熟。
 
+
+*****
+
+####  TiHaru  
+##### 16473#       发表于 2024-5-27 21:54
+
+可能有吧，记不清了
+
+*****
+
+####  TiHaru  
+##### 16474#       发表于 2024-5-28 01:38
+
+<img src="https://img.saraba1st.com/forum/202405/28/013730gadzka7fz06nbtbd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5857.jpeg</strong> (262.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 01:37 上传
+
+看起来是第一次一起玩
+
+主播有点会说话
+

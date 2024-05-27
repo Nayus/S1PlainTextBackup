@@ -3921,3 +3921,11 @@ ac自动炮应该不是6穿，而是直击有100%的部位破坏
 ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
 确实没有，说错了，6穿就是半个筒子了没那么夸张
 
+
+*****
+
+####  kalavinka  
+##### 4798#         楼主| 发表于 2024-5-27 11:55
+
+牢能快端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

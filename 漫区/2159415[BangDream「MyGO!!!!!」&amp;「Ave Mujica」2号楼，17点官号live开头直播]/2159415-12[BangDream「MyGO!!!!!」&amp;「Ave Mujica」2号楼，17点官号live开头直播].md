@@ -8756,3 +8756,16 @@ gbc有些粉不想承认，不想混到偶像圈去，而且动画还有些针�
 
 问题倒不是gbc那边，我想骂的是隔壁版务貌似已经不止一次两次在煽风点火故意挑动对立了。
 
+
+*****
+
+####  御景  
+##### 17056#       发表于 2024-5-27 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024632&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-27 22:41</a>
+
+问题倒不是gbc那边，我想骂的是隔壁版务貌似已经不止一次两次在煽风点火故意挑动对立了。 ...</blockquote>
+本来还想着NGA总算消停会，mygo的热度下去，不车角色了。
+
+目前看是挑不起来，gbc内部先打出个结果吧。
+

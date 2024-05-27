@@ -817,3 +817,16 @@ LO原画と2原でお手伝いしました！
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 1550#       发表于 2024-5-27 13:17
+
+[https://x.com/if_224/status/1794642085515259944](https://x.com/if_224/status/1794642085515259944)
+
+わんぷり17話、アバン後半を原画で参加しました！！回想シーン描けて幸せでした✨
+
+ありがとうございました！！
+<img src="https://p.sda1.dev/17/66a51905284d620f84789b083aa6096d/20240527_131655.jpg" referrerpolicy="no-referrer">
+

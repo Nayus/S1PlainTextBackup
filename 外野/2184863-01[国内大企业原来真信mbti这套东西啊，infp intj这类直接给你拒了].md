@@ -1139,3 +1139,11 @@ mbti在破测试你想要什么就可以是什么 成熟的测试都不用这个
 且不说轻小说为了戏剧性什么人设都能给你凹出来，比企谷真回头来看也更像个低阶intp小鬼 ...</blockquote>
 渡航狗尾续貂全锅，台长吹前七卷无罪<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RioBone  
+##### 120#       发表于 2024-5-27 13:53
+
+就职过辉瑞，面试时要确定星座，入职后要做盖洛普测试，团建时要做性格分析~
+

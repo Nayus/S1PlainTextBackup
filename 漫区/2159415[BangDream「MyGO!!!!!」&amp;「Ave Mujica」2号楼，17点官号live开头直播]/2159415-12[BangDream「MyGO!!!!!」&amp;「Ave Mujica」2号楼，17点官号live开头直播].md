@@ -8711,3 +8711,17 @@ https://x.com/GoGbla/status/1795011059113177533<img src="https://p.sda1.dev/17/e
 
 2024-5-27 20:14 上传
 
+
+*****
+
+####  御幸一也  
+##### 17052#       发表于 2024-5-27 21:44
+
+ 本帖最后由 御幸一也 于 2024-5-27 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65023212&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-5-27 20:15</a>
+
+有点蚌埠住了，隔壁走廊因为gbc算不算二偶企划有一点争论，就有人开帖问mygo和mujica算不算二偶企划，帖子 ...</blockquote>
+有些人估計是真不承認的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 畢竟他們最愛嘴“飯圈”行為
+
+怎麼說呢，我建議他們讓武士道別開真人LIVE好吧，別武士道做著二偶的事賺著二偶的錢，然後讓粉絲別二偶
+

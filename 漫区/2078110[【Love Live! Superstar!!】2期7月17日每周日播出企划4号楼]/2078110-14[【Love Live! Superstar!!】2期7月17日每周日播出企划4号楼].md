@@ -586,3 +586,14 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ruffian  
+##### 20223#       发表于 2024-5-27 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65011117&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-05-26 21:25:07</a>
+怎么突然如此感慨</blockquote>喻黎黎和白菜的联动小动画，很可爱但出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过确实可能是因为没有音监，估计是鱼在家自己摸索着配的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

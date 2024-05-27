@@ -802,3 +802,18 @@ LO原画と2原でお手伝いしました！
 
 毕竟精灵族对感情比较淡薄(
 
+
+*****
+
+####  starring  
+##### 1549#       发表于 2024-5-27 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65012630&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-5-26 23:41</a>
+猫猫重力一点有什么错，猫好人坏
+
+你汪Q四个常驻Q娃唯一一个与重力无缘的是海王彩羽，也算是很有特色了（ ...</blockquote>
+莉可和茉优都是好孩子，猫好人好
+彩羽钝感小麦又没心没肺放不出重力，兔山同学加油吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

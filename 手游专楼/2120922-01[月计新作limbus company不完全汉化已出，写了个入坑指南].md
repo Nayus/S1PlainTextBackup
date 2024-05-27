@@ -262,3 +262,20 @@ ego饰品在数据那一栏，记得看一下合成列表，体系队合出IV级
 
 估计会像W箱和W宝那样，先发俩同系ego，然后一个体系核心一个被动挂件...
 
+
+*****
+
+####  kurihayn  
+##### 713#       发表于 2024-5-27 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65022390&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-5-27 18:42</a>
+
+ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不过部分有先置条件，比如共鸣时、击杀时、赋予deb ...</blockquote>
+好的好的谢谢
+
+我现在啥资源都缺，主线没打到第五章困难镜牢都开不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还好在普通镜牢随便打打也能过关，体系队那些只能慢慢再凑了
+
+看到有很多人都执着于收集全饰品，收集完是有什么好处吗？还是单纯收集癖
+

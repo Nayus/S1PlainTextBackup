@@ -6714,3 +6714,17 @@ PROJECT vα-liv #ヴイアラ
 一首而已
 搞不好是蹭的什么拼盘呢（
 
+
+*****
+
+####  馬斯特壺  
+##### 5072#       发表于 2024-5-27 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024881&amp;ptid=2130897" target="_blank">三度音 发表于 2024-5-27 23:06</a>
+借着台长的话，我也对学马士有些疑问了。
+
+这帮中专小偶像开学13周以来不是上课就是在外出逛街或者睡觉，
+
+是 ...</blockquote>
+莉波几段剧情都有各个地方的不同路演，各个结局的不同地方live也可以吸粉，从开始到te时间跨度挺大，中间肯定是有这样一些积累粉丝的过程的
+

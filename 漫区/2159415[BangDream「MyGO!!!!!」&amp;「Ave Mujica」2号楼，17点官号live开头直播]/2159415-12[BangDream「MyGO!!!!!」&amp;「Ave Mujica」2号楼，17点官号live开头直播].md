@@ -8687,3 +8687,27 @@ https://x.com/GoGbla/status/1795011059113177533<img src="https://p.sda1.dev/17/e
 
 2024-5-27 19:59 上传
 
+
+*****
+
+####  rikaren  
+##### 17051#       发表于 2024-5-27 20:15
+
+有点蚌埠住了，隔壁走廊因为gbc算不算二偶企划有一点争论，就有人开帖问mygo和mujica算不算二偶企划，帖子里没人打滚没人吵架，都承认是二偶企划突然就给锁帖，我是真的怀疑隔壁版务有故意挑对立煽风点火的，指不定今晚就有开岁mygo和mujica粉丝双标不承认自己是二偶企划，拉踩gbc是二偶的。
+
+<img src="https://img.saraba1st.com/forum/202405/27/201449mnlncyn6yrcb3nz8.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716811993094.jpg</strong> (22.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-27 20:14 上传
+
+<img src="https://img.saraba1st.com/forum/202405/27/201455oet2dtklnejnellk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1716811995168.jpg</strong> (48.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-27 20:14 上传
+

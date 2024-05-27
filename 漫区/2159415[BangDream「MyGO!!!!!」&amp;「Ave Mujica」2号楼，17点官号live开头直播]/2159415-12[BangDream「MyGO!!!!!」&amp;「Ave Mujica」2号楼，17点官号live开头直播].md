@@ -8665,3 +8665,11 @@ QQ图片20240526231120.jpg
 
 烂梗ky小鬼哪管你别的厨什么感受，自个爽就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17049#       发表于 2024-5-27 18:49
+
+https://x.com/GoGbla/status/1795011059113177533<img src="https://p.sda1.dev/17/e5a53e34e3d751b99e05ee5e4acd603a/CMP_20240527184856704.jpg" referrerpolicy="no-referrer">
+

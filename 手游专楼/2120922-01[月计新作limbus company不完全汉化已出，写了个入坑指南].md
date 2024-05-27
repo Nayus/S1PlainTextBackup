@@ -226,3 +226,39 @@ ego饰品在数据那一栏，记得看一下合成列表，体系队合出IV级
 
 （另外建议看一下Wiki里的机制介绍，比如攻击等级每高3级最终威力+1，镜牢里要是选多了给敌人加等级可能导致拼点不利...）
 
+
+*****
+
+####  Jamaisvu  
+##### 712#       发表于 2024-5-27 18:50
+
+新ego技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202405/27/184229maff7uzxceuxwi6c.jpg" referrerpolicy="no-referrer">
+
+<strong>E2ECA60CCE143CDA5536730F4B3EC18E.jpg</strong> (239.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-27 18:42 上传
+
+振动宝蟾。
+
+<img src="https://img.saraba1st.com/forum/202405/27/184229yk5l3959ggya27gy.jpg" referrerpolicy="no-referrer">
+
+<strong>086B81CAADD24FD74EDF22C8D3903A42.jpg</strong> (278.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-27 18:42 上传
+
+忧郁辛蛙。
+
+振动队目前有臼齿奥、悔恨浮、玫瑰罗、十一夫和臼齿箱、LCCB玛，如果鸿璐加一个三星振动人格也算是补强了。
+
+不过沉沦队目前六个三星差不多完全体了，辛克莱又新增了限定三星，短期内估计也就补一个沉沦二星吧...
+
+估计会像W箱和W宝那样，先发俩同系ego，然后一个体系核心一个被动挂件...
+

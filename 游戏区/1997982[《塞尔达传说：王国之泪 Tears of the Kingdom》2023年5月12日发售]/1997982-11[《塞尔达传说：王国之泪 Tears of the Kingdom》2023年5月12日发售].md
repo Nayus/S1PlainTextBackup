@@ -74,3 +74,11 @@
 
 天剑到收集完三段勇者之诗全收集正常来说应该多少血量？我现在18颗心，想确定一下差多少没收集全。<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 15794#       发表于 2024-5-27 19:42
+
+通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

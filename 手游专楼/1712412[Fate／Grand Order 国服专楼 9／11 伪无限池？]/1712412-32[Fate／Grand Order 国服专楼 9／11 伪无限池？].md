@@ -111,3 +111,25 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 二期90++难度有点低啊
 
+
+*****
+
+####  xy1041  
+##### 46395#       发表于 2024-5-27 14:52
+
+<img src="https://p.sda1.dev/17/e1e8134a5be65d06696ebc9563e773a0/CMP_20240527145056800.jpg" referrerpolicy="no-referrer">
+二期真的有点简单
+但是比较恐怖的是用陈宫的话要反复计算buff增减，保证底线能过上限也不会直接打死一定要打出oc回收，笑死了
+还好我有兽尼大象，这下c呆奥伯龙的羁绊都可以省咯
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  溯夜  
+##### 46396#       发表于 2024-5-27 14:54
+
+差不多200池了，可以走人了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -6737,3 +6737,13 @@ PROJECT vα-liv #ヴイアラ
 难绷，主vi副vo，给我出个da彩词条<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/58cb0c82f01773013d28e9e48918b3be/CMP_20240527235114424.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5074#       发表于 2024-5-28 00:21
+
+我怎么记得p完一轮或者打完竞技场都会加粉丝
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

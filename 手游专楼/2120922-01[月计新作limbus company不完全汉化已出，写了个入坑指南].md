@@ -279,3 +279,17 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 看到有很多人都执着于收集全饰品，收集完是有什么好处吗？还是单纯收集癖
 
+
+*****
+
+####  salic428  
+##### 714#       发表于 2024-5-28 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65022460&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-5-27 18:50</a>
+新ego技能前瞻：
+
+振动宝蟾。</blockquote>
+怪，明明英文翻译都叫Reverb了，蛙蛙也是蓝色系，怎么不搞个“苍蓝残响”作为新震颤的颜色……现在的这个荧光黄我感觉和普通震颤有点难区分啊
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

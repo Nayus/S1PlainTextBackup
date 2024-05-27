@@ -321,3 +321,11 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  zwc80000  
+##### 1598#       发表于 2024-5-27 07:57
+
+我点进投票会闪退，更新到最新版前没这个问题
+

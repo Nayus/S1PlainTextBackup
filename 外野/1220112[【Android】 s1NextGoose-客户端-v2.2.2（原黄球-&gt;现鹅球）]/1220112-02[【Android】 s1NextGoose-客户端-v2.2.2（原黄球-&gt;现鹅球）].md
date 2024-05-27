@@ -329,3 +329,13 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 我点进投票会闪退，更新到最新版前没这个问题
 
+
+*****
+
+####  主人ハム子  
+##### 1599#       发表于 2024-5-27 14:57
+
+鹅球能做个圆角图标版的吗？傻逼华为不会自动美化成圆角。之前有个主题做了旧鹅球的适配，新鹅球没适配了看着好难受。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
+

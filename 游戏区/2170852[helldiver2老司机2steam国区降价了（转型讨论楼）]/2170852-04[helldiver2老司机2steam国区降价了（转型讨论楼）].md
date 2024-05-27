@@ -3911,3 +3911,13 @@ AI对机甲的目标追踪貌似有故意削弱，强袭对机甲冲锋不会拐
 机炮4穿，机甲5穿，ac自动哨戒炮6穿，机甲伤害好像还高点？不过部位伤害只有20%，十来发一只强袭吧。 ...</blockquote>
 ac自动炮应该不是6穿，而是直击有100%的部位破坏
 
+
+*****
+
+####  Aeons  
+##### 4797#       发表于 2024-5-27 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65015595&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-27 09:41</a>
+ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
+确实没有，说错了，6穿就是半个筒子了没那么夸张
+

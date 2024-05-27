@@ -8622,3 +8622,17 @@ QQ图片20240526231120.jpg
 
 头一次没忍住抽生日池就吃井，麻了，这下就是非常后悔，千圣的 dfes 前被 soyo 魅惑了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  肛之练筋士  
+##### 17045#       发表于 2024-5-27 09:56
+
+[https://bbs.nga.cn/read.php?tid=40321403](https://bbs.nga.cn/read.php?tid=40321403)
+
+​Bushiroad本财年第三季度亏损3.35亿日元
+
+财报链接：[https://ssl4.eir-parts.net/doc/7803/tdnet/2439669/00.pdf](https://ssl4.eir-parts.net/doc/7803/tdnet/2439669/00.pdf)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">牢武，别似！
+

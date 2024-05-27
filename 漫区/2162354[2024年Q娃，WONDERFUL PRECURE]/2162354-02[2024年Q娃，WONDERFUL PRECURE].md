@@ -842,3 +842,16 @@ LO原画と2原でお手伝いしました！
 
 变身前那个场景，屁股对着镜头但是看不到皮炎太奇怪了
 
+
+*****
+
+####  pokemon最爱  
+##### 1552#       发表于 2024-5-27 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65020030&amp;ptid=2162354" target="_blank">32767 发表于 2024-5-27 15:20</a>
+
+小雪没有皮炎！
+
+变身前那个场景，屁股对着镜头但是看不到皮炎太奇怪了</blockquote>
+二次元美少女不需要排泄！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

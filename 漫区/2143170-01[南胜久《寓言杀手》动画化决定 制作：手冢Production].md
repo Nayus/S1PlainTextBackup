@@ -17,3 +17,20 @@
 动画化就为了看妹妹狩猎种马，居然找了kaji，美雪太太这段玩得太开心了吧</blockquote>
 这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶
 
+
+*****
+
+####  smdzh2  
+##### 93#       发表于 2024-5-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024640&amp;ptid=2143170" target="_blank">abcxiawei 发表于 2024-5-27 23:42</a>
+这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶</blockquote>
+特别喜欢整蛊男人来下酒，漫画后面把比自己厉害的同门杀手也整了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悲剧啊啊  
+##### 94#       发表于 2024-5-27 22:55
+
+妹妹专职情报收集，pua技能点满。后面有个中层干部暗示她的房事技能也是点满的
+

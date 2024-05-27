@@ -597,3 +597,11 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  伊卡石  
+##### 20224#       发表于 2024-5-27 11:12
+
+目前配音这块的业务少，事务所和本人应该也是没投入什么资源、精力去训练，非科班出身，除非很有天赋，不然没有系统性的学习，靠自己摸索或者靠片场老师的零散指导很难有能力提升，现在唐可可没啥问题，要能自由应对其他角色火候还差，按现在的发展路线暂时应该还是不会在配音这块去投入什么资源，这方面个人倒不是很乐观<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

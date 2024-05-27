@@ -6569,3 +6569,30 @@ gal编剧＞部分轻小说作这≥动画编剧＞＞＞＞游戏编剧了属�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 5062#       发表于 2024-5-27 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65014838&amp;ptid=2130897" target="_blank">卡塔利纳·宅魂 发表于 2024-5-27 08:17</a>
+
+记得之前20级刚出头的时候，想借朋友的“我是明星”回忆卡，结果开局不给选，解锁等级没到 ...</blockquote>
+可以选，但是拿不到
+
+
+*****
+
+####  raimouse  
+##### 5063#       发表于 2024-5-27 10:31
+
+<blockquote>伊布桑 发表于 2024-5-27 08:33
+是可以的，因子继承的规律基本上被摸得七七八八了。除了青汁加入的卡，所有进过你卡组的非基础卡角色卡。 ...</blockquote>
+基础卡特殊状况下也是会进继承的来着
+
+反正怎么说呢，前期卡组弱的时候你不赌抓牌根本上不去a，伤害太低了
+
+这游戏的照片除了卡，词条也是很重要的
+
+不上a就是少一条词条
+

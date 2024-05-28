@@ -9217,3 +9217,16 @@ gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
 怎么感觉像是外边爆发生化危机了</blockquote>
 你按鸡粉浓度来算，泥楼就是桃花源了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 17101#       发表于 2024-5-28 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030443&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-5-28 13:14</a>
+
+最近回了一次和mygo相关的推，算是回旋了一把，究竟什么情况还不好说</blockquote>
+“这是非常重要的作品”也挺微妙的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+c团对祥子、钻尘对mmk，也是“非常重要的团”呢
+

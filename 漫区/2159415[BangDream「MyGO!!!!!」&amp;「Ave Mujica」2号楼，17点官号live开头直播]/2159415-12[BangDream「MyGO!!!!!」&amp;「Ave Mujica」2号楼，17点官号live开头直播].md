@@ -9082,3 +9082,21 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 话说年初传的独角兽老师切割这事还有后续的猜测么</blockquote>
 最近回了一次和mygo相关的推，算是回旋了一把，究竟什么情况还不好说
 
+
+*****
+
+####  斯托雷加  
+##### 17088#       发表于 2024-5-28 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030443&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-5-28 13:14</a>
+
+最近回了一次和mygo相关的推，算是回旋了一把，究竟什么情况还不好说</blockquote>
+嗯嗯，只能等详细的staff名单了
+
+*****
+
+####  CyDiablo  
+##### 17089#       发表于 2024-5-28 13:24
+
+白祥拉nina玩音乐和白祥拉爱音组乐队是我近期看到不相上下的幽默假药<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

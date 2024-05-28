@@ -9128,3 +9128,44 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 那也不是新人，很久以前见过，大概是长时间没来没跟上泥楼版本吧，正常，外面都是这么叫的，泥楼才是异类 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉像是外边爆发生化危机了
 
+
+*****
+
+####  -LYRE-  
+##### 17093#       发表于 2024-5-28 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024462&amp;ptid=2159415" target="_blank">御景 发表于 2024-5-27 22:25</a>
+邦邦大部分还是认的吧，毕竟已经是运行多年的偶像企划，打上烙痕了。
+
+gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
+可太认了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga那帖就有说到邦以前也对偶像这词应激
+
+我当年发言也是各种叠加说只是运行模式“类偶像”
+没想到五六年后完全可以直接说是偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道是因为邦糊了所以失去了以前的心性，还是粉久了以后承认了本质
+<img src="https://p.sda1.dev/17/1bc8d30b8c2608503ddc78eb7a9139f6/CMP_20240528134513625.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 17094#       发表于 2024-5-28 13:47
+
+拿27“玩梗”的不就是自己想扇祥子巴掌硬拿27当皮套？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 17095#       发表于 2024-5-28 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030351&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-5-28 13:07</a>
+
+结界怎么又打开了，新漏油怎么一口一个黑称的隔壁门坏了吗</blockquote>
+互联网冲浪的每个地方都看一眼很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17096#       发表于 2024-5-28 13:47
+
+毕竟你邦这几年下来有了音宝和羊，硬要说自家是本格乐队企划也没什么底气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

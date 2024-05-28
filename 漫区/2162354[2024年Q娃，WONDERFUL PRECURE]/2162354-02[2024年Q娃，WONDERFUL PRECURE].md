@@ -863,3 +863,14 @@ LO原画と2原でお手伝いしました！
 
 现在真由会给猫猫小雪做衣服，之后会给人型小雪做衣服吗，做一件和自己是姐妹款(情侣装)的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 1554#       发表于 2024-5-28 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65022664&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-5-27 19:13</a>
+
+现在真由会给猫猫小雪做衣服，之后会给人型小雪做衣服吗，做一件和自己是姐妹款(情侣装)的 ...</blockquote>
+怕不是反过来，小雪给真由做衣服，真由做过多少件小雪做多少件，天天给她扒了欣赏
+

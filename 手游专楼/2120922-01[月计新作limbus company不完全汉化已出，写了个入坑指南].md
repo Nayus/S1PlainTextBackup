@@ -293,3 +293,28 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 715#       发表于 2024-5-28 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024310&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-27 22:07</a>
+
+好的好的谢谢
+
+我现在啥资源都缺，主线没打到第五章困难镜牢都开不了
+
+还好在普通镜牢随便打打也能过关，体 ...</blockquote>
+新人老老实实推主线就行，狗粮本最高等级的要通关6-34才能打，这游戏养成成本还是比较大的，很缺狗粮。
+
+纺锤/纽本要通关4-54开最高难度，不过这个有每日双倍后期也不怎么缺。
+
+普通镜牢全员满级，只看人格的突破程度。困难镜牢就和人格实际等级挂钩了，新人有需要的话可以养一个高练度强队（平均四破40级）打困难，其余时间打普镜就行。
+
+镜牢每周三次加成，可以一次性领完，但分三次打奖励经验更多，困难我记得依次是75、80、95。
+
+新人打不过困难的话，分三次加成打三遍普牢，好像比一次性加成打一遍困牢收益好...反正不要难为自己<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+全饰品收集就是单纯的图鉴党罢了，没啥用。比如我没兴趣玩N社队，新出的N社饰品看到也不会选...
+

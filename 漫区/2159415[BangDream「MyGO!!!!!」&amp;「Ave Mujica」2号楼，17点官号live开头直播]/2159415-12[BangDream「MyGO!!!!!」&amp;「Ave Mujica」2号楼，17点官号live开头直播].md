@@ -9169,3 +9169,18 @@ gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
 
 毕竟你邦这几年下来有了音宝和羊，硬要说自家是本格乐队企划也没什么底气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17097#       发表于 2024-5-28 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030593&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-5-28 13:29</a>
+
+那也不是新人，很久以前见过，大概是长时间没来没跟上泥楼版本吧，正常，外面都是这么叫的，泥楼才是异类 ...</blockquote>
+我之前加的祥单推Q群，都是一口一个大祥，还有人带到群昵称里面。
+
+后来借题发挥爆了次，算是打成了单推群不喊大祥的共识。
+
+后来退群了，不知道怎么样了。
+

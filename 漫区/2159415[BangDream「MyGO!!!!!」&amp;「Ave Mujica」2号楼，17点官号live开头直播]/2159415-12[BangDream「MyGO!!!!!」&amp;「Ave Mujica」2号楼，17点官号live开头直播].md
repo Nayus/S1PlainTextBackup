@@ -8951,3 +8951,47 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 
 真要说服祥子不如请绫奈上身，扔进不说服祥子不能出去的房间，保准通关<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 17074#       发表于 2024-5-28 12:44
+
+还不如展望mujica遇到重大灾变 祥子内心动摇时
+初华怎么用巨大感情让她变坚定
+
+*****
+
+####  友情的结晶  
+##### 17075#       发表于 2024-5-28 12:45
+
+我还觉得如果白祥拉着辍学前的nina去搞乐队的话nina还不至于高压下爆发成现在这性格呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  PDQ4  
+##### 17076#       发表于 2024-5-28 12:51
+
+直接贷款初祥夜空下对话好吧，夹杂着童年回忆杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 17077#       发表于 2024-5-28 12:52
+
+要是生活在邦多利，还会被霸凌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 17078#       发表于 2024-5-28 12:56
+
+不如说大祥老师最后现实和精神层面的问题最后怎么解决感觉写起来还挺有难度，还要考虑到go团在母鸡卡动画的定位
+
+毕竟C团在go团里的人都有三个，soyo的问题能有俩前队友和圣Anon帮忙解决
+
+而大祥的鸡团只有自己和睦头，感觉团内比较有机会开解大祥的还只有初华和睦头，关键解铃人总不能是喵梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -9184,3 +9184,26 @@ gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
 
 后来退群了，不知道怎么样了。
 
+
+*****
+
+####  九陌狂游  
+##### 17098#       发表于 2024-5-28 14:07
+
+最早知道邦邦还是你缪fl之后，同学叫我一起看邦邦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来邦邦是不是二偶还是需要讨论的事吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  御幸一也  
+##### 17099#       发表于 2024-5-28 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030945&amp;ptid=2159415" target="_blank">御景 发表于 2024-5-28 14:03</a>
+
+我之前加的祥单推Q群，都是一口一个大祥，还有人带到群昵称里面。
+
+后来借题发挥爆了次，算是打成了单推群 ...</blockquote>
+你做得好呀<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+

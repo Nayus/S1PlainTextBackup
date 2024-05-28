@@ -318,3 +318,16 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 全饰品收集就是单纯的图鉴党罢了，没啥用。比如我没兴趣玩N社队，新出的N社饰品看到也不会选...
 
+
+*****
+
+####  Jamaisvu  
+##### 716#       发表于 2024-5-28 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65025942&amp;ptid=2120922" target="_blank">salic428 发表于 2024-5-28 02:06</a>
+
+怪，明明英文翻译都叫Reverb了，蛙蛙也是蓝色系，怎么不搞个“苍蓝残响”作为新震颤的颜色……现在的这个 ...</blockquote>
+确实挺迷惑的，11夫的震颤崩坏和奥提斯拘束ego的震颤裂痕都和卡面色调一致，紫色和红色，结果到了宝蟾反倒和技能颜色一样了...可能是他们内部测试时已经安排好了蓝色震颤？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+估计最多也就是七种类型吧，和七宗罪颜色对应。不过按照镜牢饰品的顺序，原版震颤对应的其实是黄色...
+

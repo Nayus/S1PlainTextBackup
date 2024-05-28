@@ -9207,3 +9207,13 @@ gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
 后来借题发挥爆了次，算是打成了单推群 ...</blockquote>
 你做得好呀<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  蒜灵  
+##### 17100#       发表于 2024-5-28 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030694&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-5-28 13:39</a>
+怎么感觉像是外边爆发生化危机了</blockquote>
+你按鸡粉浓度来算，泥楼就是桃花源了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

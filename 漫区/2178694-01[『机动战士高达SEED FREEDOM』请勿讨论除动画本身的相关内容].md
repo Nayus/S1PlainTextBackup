@@ -11606,3 +11606,15 @@ Screenshot_20240525_203121_com.android.chrome_edit_5469410631266462.jpg
 
 不太明白为什么原定的修罗场会被删掉，这个东西明明最近几年特别的火，而且福田也是特别喜欢的
 
+
+*****
+
+####  qwemiku  
+##### 959#       发表于 2024-5-28 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65028625&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-5-28 11:08</a>
+不太明白为什么原定的修罗场会被删掉，这个东西明明最近几年特别的火，而且福田也是特别喜欢的 ...</blockquote>
+怎么，你现在开始喜欢绿茶婊了？
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8923,3 +8923,13 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 
 本质想看祥子吃瘪，对象是谁无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种跨作品毫无逻辑的有什么讨论必要，水平太低了也
 
+
+*****
+
+####  rikaren  
+##### 17072#       发表于 2024-5-28 12:24
+
+<blockquote>凡人 发表于 2024-5-28 12:00
+为什么你觉得八花祥子和十三花精神状况差别这么大？是因为爽世吗（</blockquote>
+第十三话后半段祥子一直给我一种拒绝沟通交流的感觉，上台前也是，如果说初华是带上面具的时候Doloris就从身体里苏醒了的话，祥子大概一开始就是Oblivionis的状态了。
+

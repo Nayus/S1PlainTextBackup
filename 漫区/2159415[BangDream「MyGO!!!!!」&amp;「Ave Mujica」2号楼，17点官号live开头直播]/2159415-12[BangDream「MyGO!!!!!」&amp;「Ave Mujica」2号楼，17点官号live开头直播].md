@@ -8885,3 +8885,41 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 还有人只是想看大反派丰川祥被人打罢了
 这么长时间还在恨也不容易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 17068#       发表于 2024-5-28 12:15
+
+不可能，要和祥子一起去打工，祥子只会破防然后跑的更远<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17069#       发表于 2024-5-28 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65029618&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-28 12:13</a>
+
+还有人只是想看大反派丰川祥被人打罢了
+
+这么长时间还在恨也不容易</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都2024了，看了感觉真可怜
+
+*****
+
+####  lhwang11  
+##### 17070#       发表于 2024-5-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65029577&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-28 12:10</a>
+
+不少这种帖子的论点是27能和祥子同甘共苦背负祥子人生一起打工玩乐队，灯素希做不到是因为她们是温室花朵 ...</blockquote>
+喜欢王道主角攻略“反派”罢了，前有爱音拯救母鸡卡，后有27巴掌扇过来
+
+
+*****
+
+####  akirakira  
+##### 17071#       发表于 2024-5-28 12:20
+
+本质想看祥子吃瘪，对象是谁无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种跨作品毫无逻辑的有什么讨论必要，水平太低了也
+

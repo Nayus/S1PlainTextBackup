@@ -50,3 +50,14 @@
 
 但妹妹没杀过人有点不可思议，明明钦定水平差不多的另一组的司机脏辫就是正常杀手。
 
+
+*****
+
+####  查克海耶斯  
+##### 97#       发表于 2024-5-28 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65026157&amp;ptid=2143170" target="_blank">千叶铁矢 发表于 2024-5-28 06:44</a>
+
+但妹妹没杀过人有点不可思议，明明钦定水平差不多的另一组的司机脏辫就是正常杀手。 ...</blockquote>
+只能说哥哥水平太高了
+

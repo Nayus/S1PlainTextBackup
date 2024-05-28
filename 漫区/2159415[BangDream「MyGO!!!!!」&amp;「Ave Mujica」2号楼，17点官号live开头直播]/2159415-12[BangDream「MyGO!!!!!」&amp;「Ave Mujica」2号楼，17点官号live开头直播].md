@@ -9238,3 +9238,34 @@ c团对祥子、钻尘对mmk，也是“非常重要的团”呢
 
 如果你说的祥群和我想的是同一个的话那不能喊任何角色为“大X老师”这条群规是我写上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17103#       发表于 2024-5-29 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65038865&amp;ptid=2159415" target="_blank">和睦呈现 发表于 2024-5-29 00:09</a>
+
+如果你说的祥群和我想的是同一个的话那不能喊任何角色为“大X老师”这条群规是我写上去的 ...</blockquote>
+就这个群，当时有位成员，昵称中还带🐘两个字，聊天也是一嘴一个，就数他说的最积极。
+
+后来我和他怼起来了，具体原因忘了，还吵大X的定义，再怎么解构，也不是什么好词。
+
+吵到最后说的是，其他群管不着，至少单推群不能喊🐘，这一点是达成共识了。
+
+*****
+
+####  御景  
+##### 17104#       发表于 2024-5-29 00:29
+
+丰川祥子单推群
+
+HK92$DQDYS`T7~POQQ`S)M5.png
+(9.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202405/29/002254kikegr8g9097h6kk.png" referrerpolicy="no-referrer">
+

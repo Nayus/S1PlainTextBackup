@@ -791,3 +791,13 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 仲夏夜特殊祭典，最终祭典估计最早也得六月直面会再宣布了
 
+
+*****
+
+####  秋月孝三  
+##### 4516#       发表于 2024-5-28 17:23
+
+快进到东西军对抗赛决赛，野上含泪宣布新消息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

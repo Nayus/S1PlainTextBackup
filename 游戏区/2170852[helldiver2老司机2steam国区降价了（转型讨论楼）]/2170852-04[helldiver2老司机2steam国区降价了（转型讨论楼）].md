@@ -3939,3 +3939,28 @@ ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kalavinka  
+##### 4800#         楼主| 发表于 2024-5-27 11:55
+
+牢能快端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风萧飒  
+##### 4801#       发表于 2024-5-27 23:06
+
+这机甲就免费一天啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xinfengj  
+##### 4802#       发表于 2024-5-28 09:11
+
+开始炸默里迪亚了，一阶段守路口三天
+

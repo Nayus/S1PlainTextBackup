@@ -9100,3 +9100,20 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 
 白祥拉nina玩音乐和白祥拉爱音组乐队是我近期看到不相上下的幽默假药<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17090#       发表于 2024-5-28 13:29
+
+感觉已经不是在造假药，这是喝了假酒吧，毫无逻辑随便口嗨了已经<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 17091#       发表于 2024-5-28 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030351&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-5-28 13:07</a>
+结界怎么又打开了，新漏油怎么一口一个黑称的隔壁门坏了吗</blockquote>
+那也不是新人，很久以前见过，大概是长时间没来没跟上泥楼版本吧，正常，外面都是这么叫的，泥楼才是异类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

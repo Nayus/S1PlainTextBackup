@@ -6747,3 +6747,17 @@ PROJECT vα-liv #ヴイアラ
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wfhtony  
+##### 5075#       发表于 2024-5-28 11:45
+
+<img src="https://tc3.wfhtony.space/images/2024/05/28/f1160da67dc41b152a6be6e1cb220bc7.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2024/05/28/9b7344c18cc5b381601c39c810a4c4d4.jpg" referrerpolicy="no-referrer">
+[961要來了。](https://idolmaster-official.jp/live_events/re)
+
+看樣子應該也是MR LIVE了。
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

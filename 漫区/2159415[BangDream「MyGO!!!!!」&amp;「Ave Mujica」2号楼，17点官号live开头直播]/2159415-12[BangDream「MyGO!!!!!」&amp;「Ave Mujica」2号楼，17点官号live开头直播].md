@@ -8782,3 +8782,39 @@ gbc有些粉不想承认，不想混到偶像圈去，而且动画还有些针�
 目前看是挑不起来，gbc内部先打出个结果吧。 ...</blockquote>
 现在的流行话题已经是灯素希三个废物，27来了拯救C团的版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17058#       发表于 2024-5-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65028884&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-28 11:25</a>
+
+现在的流行话题已经是灯素希三个废物，27来了拯救C团的版本了</blockquote>
+玩梗是这样的。
+
+正经讨论都不会认同。
+
+27现在一路顺，是因为她说的都是正论，而且听的人在乎她，又解决了问题。
+
+27代位灯，也就是关系好点的立希，但解决不了祥子的问题，吵起来只会决裂的更彻底。
+
+
+*****
+
+####  cherryjia12  
+##### 17059#       发表于 2024-5-28 11:41
+
+祥子是血淋淋的现实问题摆在面前，啥正论有钱重要？
+当然27要是给祥子一巴掌，那确实能解决问题。祥子直接笑嘻了往地上一躺打开安居客即刻搬离老破小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  skives  
+##### 17060#       发表于 2024-5-28 11:43
+
+c团这种注定要死的团怎么可能拯救
+我寻思27也拯救不了注定要死的mmk主唱版钻辰啊
+

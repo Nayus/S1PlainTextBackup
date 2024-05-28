@@ -339,3 +339,17 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
 
+
+*****
+
+####  我就是阿X  
+##### 1600#       发表于 2024-5-29 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65010433&amp;ptid=1220112" target="_blank">嵐ステリ 发表于 2024-5-26 20:40</a>
+右上角勾选帖子可复制了么
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next-鹅版 v2.5.3-play ...</blockquote>
+呱！真没有…
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

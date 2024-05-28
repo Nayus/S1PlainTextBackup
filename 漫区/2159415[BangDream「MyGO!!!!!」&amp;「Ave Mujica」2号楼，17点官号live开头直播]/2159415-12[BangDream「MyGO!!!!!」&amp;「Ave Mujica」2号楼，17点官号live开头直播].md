@@ -9117,3 +9117,14 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 结界怎么又打开了，新漏油怎么一口一个黑称的隔壁门坏了吗</blockquote>
 那也不是新人，很久以前见过，大概是长时间没来没跟上泥楼版本吧，正常，外面都是这么叫的，泥楼才是异类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 17092#       发表于 2024-5-28 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030593&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-5-28 13:29</a>
+
+那也不是新人，很久以前见过，大概是长时间没来没跟上泥楼版本吧，正常，外面都是这么叫的，泥楼才是异类 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉像是外边爆发生化危机了
+

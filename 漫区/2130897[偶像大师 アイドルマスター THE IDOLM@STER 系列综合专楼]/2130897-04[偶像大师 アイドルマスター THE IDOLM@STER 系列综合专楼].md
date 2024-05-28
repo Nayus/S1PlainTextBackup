@@ -6862,3 +6862,38 @@ J8SX[NEW]HV@@56M_@8Z4TU.jpg
 
 <img src="https://p.sda1.dev/17/c0f91d79ff3506a3d576e8a9231a6b65/409d7c73ed2d2cdb.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 5086#       发表于 2024-5-28 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">咲季看来是下一个卡池了，预告学SC了。
+
+看来是在8月live的时候先让信号灯有2首solo唱。
+
+毛毬两首歌都挺苍的，看咲季这首怎么样。如果延续giga这种风格加唱跳，感觉可以确定学mas的池面风格就是红蓝信号灯负责了，舞台下的模样就是别的说法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 5087#       发表于 2024-5-28 19:42
+
+<img src="https://img.saraba1st.com/forum/202405/28/194228lzp8dd07m71g28d7.jpg" referrerpolicy="no-referrer">
+
+<strong>【デレステ】「Stage for Cinderella Celebration Night」【アイドルマスター】.mkv_s.jpg</strong> (228.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 19:42 上传
+
+聖誕老人solo。
+
+*****
+
+####  a1370303  
+##### 5088#       发表于 2024-5-28 19:45
+
+灰灰这个3d live的公开时间是到今年11月27号，周年庆前一天。意思是今年没有周年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -862,3 +862,28 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实很有可能是地图改修
 
+
+*****
+
+####  DeltaStriker  
+##### 4522#       发表于 2024-5-28 18:47
+
+前面那个高台下的追加路线要是能保留到真格就好了
+哦原来不是高台下啊 目害了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  DeltaStriker  
+##### 4523#       发表于 2024-5-28 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65034237&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-5-28 17:46</a>
+这个B面具我看有成为新时代鱼奇奇的潜质
+
+论坛助手,iPhone</blockquote>
+带在脸上玩电锯 和异界卡农面具一样有种电锯杀人狂的感觉
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

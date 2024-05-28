@@ -9230,3 +9230,11 @@ gbc有些粉不想承认，不想混到偶像圈 ...</blockquote>
 
 c团对祥子、钻尘对mmk，也是“非常重要的团”呢
 
+
+*****
+
+####  和睦呈现  
+##### 17102#       发表于 2024-5-29 00:09
+
+如果你说的祥群和我想的是同一个的话那不能喊任何角色为“大X老师”这条群规是我写上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

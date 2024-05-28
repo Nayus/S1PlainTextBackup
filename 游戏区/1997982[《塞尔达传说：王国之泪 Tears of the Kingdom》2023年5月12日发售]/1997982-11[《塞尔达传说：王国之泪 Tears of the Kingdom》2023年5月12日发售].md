@@ -93,3 +93,35 @@
 通了。本来没觉得自己会有啥感触，但是到后面法伊和英帕道别的时候感觉眼泪刷的一下就下来了。天剑真不错啊 ...</blockquote>
 虽然说塞尔达一直是轻剧情重玩法的游戏，但可以看得出塞尔达从时之笛之后，正作其实一直有在逐步加强剧情环节
 
+
+*****
+
+####  liekong  
+##### 15796#       发表于 2024-5-28 22:14
+
+<img src="https://img.saraba1st.com/forum/202405/28/221347bc42czcqh954hoqh.jpg" referrerpolicy="no-referrer">
+
+<strong>9d6f91c1a9fa2d5a6d61f23b3f2f45b.jpg</strong> (144.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/28/221356v548ozd5jq28dozj.jpg" referrerpolicy="no-referrer">
+
+<strong>db8a5abd849edf6d718aadb51822d31.jpg</strong> (104.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:13 上传
+
+<img src="https://img.saraba1st.com/forum/202405/28/221405axc13p1e136cocnn.jpg" referrerpolicy="no-referrer">
+
+<strong>c059dacd9bc52cf6bb8132542fa8acb.jpg</strong> (59.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-28 22:14 上传
+
+乐高X塞尔达联动 德库树
+

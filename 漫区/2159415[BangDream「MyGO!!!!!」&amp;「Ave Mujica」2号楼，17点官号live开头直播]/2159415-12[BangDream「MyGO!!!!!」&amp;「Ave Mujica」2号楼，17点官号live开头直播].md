@@ -8846,3 +8846,42 @@ c团这种注定要死的团怎么可能拯救
 
 mmk是逃避现实，大祥那是被现实压过来啊
 
+
+*****
+
+####  akirakira  
+##### 17064#       发表于 2024-5-28 12:09
+
+c团姨姥闹麻了，救不回来的别想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17065#       发表于 2024-5-28 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65029499&amp;ptid=2159415" target="_blank">bindata 发表于 2024-5-28 12:05</a>
+
+27正论能就变出钱来？
+
+mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
+不少这种帖子的论点是27能和祥子同甘共苦背负祥子人生一起打工玩乐队，灯素希做不到是因为她们是温室花朵性格不坚定不能吃苦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17066#       发表于 2024-5-28 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+也别拯救crychic了，这个团在企划上的最大意义就是已逝
+
+*****
+
+####  skives  
+##### 17067#       发表于 2024-5-28 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65029577&amp;ptid=2159415" target="_blank">NODY 发表于 2024-5-28 12:10</a>
+不少这种帖子的论点是27能和祥子同甘共苦背负祥子人生一起打工玩乐队，灯素希做不到是因为她们是温室花朵 ...</blockquote>
+还有人只是想看大反派丰川祥被人打罢了
+这么长时间还在恨也不容易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

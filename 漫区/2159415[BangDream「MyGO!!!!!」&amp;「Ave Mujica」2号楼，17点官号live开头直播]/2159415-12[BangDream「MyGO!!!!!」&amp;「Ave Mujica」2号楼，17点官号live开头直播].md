@@ -9043,3 +9043,42 @@ mmk是逃避现实，大祥那是被现实压过来啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13集大祥拒绝了灯的笔记本说明鸡跟Go团的牵扯绝对没完，感觉怎么平衡好两团的关系很考验笔力，毕竟鸡团动画也不能大篇幅描写go了
 
+
+*****
+
+####  Aendst  
+##### 17084#       发表于 2024-5-28 13:07
+
+结界怎么又打开了，新漏油怎么一口一个黑称的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁门坏了吗
+
+
+*****
+
+####  斯托雷加  
+##### 17085#       发表于 2024-5-28 13:10
+
+话说年初传的独角兽老师切割这事还有后续的猜测么
+
+*****
+
+####  Aendst  
+##### 17086#       发表于 2024-5-28 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030235&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-28 12:57</a>
+
+可以参考本家阁下回
+
+最后拯救祥子的是白祥和幼年祥
+
+以及大家的羁绊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">绫奈也是爱马仕动画脚本系谱，可以梦一下吗
+
+*****
+
+####  紫吹兰  
+##### 17087#         楼主| 发表于 2024-5-28 13:14
+
+<blockquote>斯托雷加 发表于 2024-5-28 13:10
+话说年初传的独角兽老师切割这事还有后续的猜测么</blockquote>
+最近回了一次和mygo相关的推，算是回旋了一把，究竟什么情况还不好说
+

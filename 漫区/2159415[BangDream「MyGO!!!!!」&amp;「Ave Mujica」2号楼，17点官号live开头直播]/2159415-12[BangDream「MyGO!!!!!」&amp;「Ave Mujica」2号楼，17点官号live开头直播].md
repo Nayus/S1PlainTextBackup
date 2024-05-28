@@ -8769,3 +8769,16 @@ gbc有些粉不想承认，不想混到偶像圈去，而且动画还有些针�
 
 目前看是挑不起来，gbc内部先打出个结果吧。
 
+
+*****
+
+####  NODY  
+##### 17057#       发表于 2024-5-28 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65025037&amp;ptid=2159415" target="_blank">御景 发表于 2024-5-27 23:25</a>
+
+本来还想着NGA总算消停会，mygo的热度下去，不车角色了。
+
+目前看是挑不起来，gbc内部先打出个结果吧。 ...</blockquote>
+现在的流行话题已经是灯素希三个废物，27来了拯救C团的版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

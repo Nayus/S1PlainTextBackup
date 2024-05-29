@@ -9,3 +9,13 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  quanlix  
+##### 12782#       发表于 2024-5-29 20:29
+
+上巴泽特，3t直接扬了B叔（用了一画令咒开宝具）
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

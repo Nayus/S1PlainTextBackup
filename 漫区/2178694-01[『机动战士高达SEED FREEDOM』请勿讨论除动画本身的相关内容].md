@@ -11648,3 +11648,16 @@ Screenshot_20240525_203121_com.android.chrome_edit_5469410631266462.jpg
 
 我突然发现福田愿意把拉克丝搞成一个新的物种，然后还把有象征意义的戒指的给毁了，然后还加上基因硬生生把她和黄毛搞出一些关系，来给一些人喂屎，却把两泽原案在演基拉喜欢女孩类型的阿古尼斯头发颜色发型是结合了基拉喜好的芙蕾和拉克丝，对基拉而言至少更为合理的修罗场给舍弃了，这个操作还真的是诡异
 
+
+*****
+
+####  里村紅葉  
+##### 963#       发表于 2024-5-29 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64997196&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-5-25 13:16</a>
+板件图明显是完全新规呀，而且还留好了转水口开关，大概率会有HGCE强袭自由verSEEDアクションシステム
+就 ...</blockquote>
+老自由：我人气投票第一你看有没有这个机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

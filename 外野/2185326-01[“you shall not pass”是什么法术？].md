@@ -671,3 +671,21 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 我觉得好莱坞复刻经典的周期大约是30-50年，这么算来要再等20年技术/思维理念会发展到可以重制，至于那时候好莱坞是啥风格甚至是不是还有这个底力已经不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leviathan  
+##### 62#       发表于 2024-5-29 18:59
+
+甘道夫明明是好心提醒对方桥坏了，无奈对方不解风情
+
+*****
+
+####  jshtstong  
+##### 63#       发表于 2024-5-29 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65045147&amp;ptid=2185326" target="_blank">nukecole 发表于 2024-5-29 15:29</a>
+
+现在重置高低给你整几个黑皮精灵和跨跨半兽人出来</blockquote>
+新出的剧集，确实就是黑人精灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

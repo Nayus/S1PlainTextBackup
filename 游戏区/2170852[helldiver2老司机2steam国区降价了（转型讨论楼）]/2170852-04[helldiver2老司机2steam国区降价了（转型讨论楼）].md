@@ -4084,3 +4084,34 @@ ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
 
 昨天和朋友三人打东线n9，感觉机甲挺厉害的，基本上队友只要打泰坦和隐型虫，其他怪机甲都可以自己解，而且能吸引火力，不过需要随时有反泰坦人员在周围协同，不然跑不过泰坦会被捅爆
 
+
+*****
+
+####  Mr.Hopp  
+##### 4808#       发表于 2024-5-29 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65040724&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-29 09:44</a>
+
+昨天和朋友三人打东线n9，感觉机甲挺厉害的，基本上队友只要打泰坦和隐型虫，其他怪机甲都可以自己解，而且 ...</blockquote>
+机甲问题是弹药少，CD十几分钟还只能用两次，有更灵活好用的战备实在没理由用机甲。
+
+*****
+
+####  赤井稻妻  
+##### 4809#       发表于 2024-5-29 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65040826&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-29 09:53</a>
+
+机甲问题是弹药少，CD十几分钟还只能用两次，有更灵活好用的战备实在没理由用机甲。 ...</blockquote>
+能长时间站场清除大量中甲和牛的战备似乎不存在吧
+
+*****
+
+####  Mr.Hopp  
+##### 4810#       发表于 2024-5-29 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65040936&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-29 10:03</a>
+
+能长时间站场清除大量中甲和牛的战备似乎不存在吧</blockquote>
+能叫机甲的时候一不一定有怪杀，有怪杀的时候机甲又可能在CD或者只是普通的一次虫巢，两次机甲叫完这个战备就等于白板了，灵活性差其他战备太多了。
+

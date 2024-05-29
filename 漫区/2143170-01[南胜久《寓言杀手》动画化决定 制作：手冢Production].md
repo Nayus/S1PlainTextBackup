@@ -100,3 +100,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。
 
+
+*****
+
+####  arcard  
+##### 102#       发表于 2024-5-29 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049638&amp;ptid=2143170" target="_blank">SlashShou4 发表于 2024-5-29 22:12</a>
+
+第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。</blockquote>
+从接受难易度上来说漫画好点
+
+并且笑点方面还是漫画表现的更逗
+
+动画的优势主要还是cv，尤其是美雪太太那种贱兮兮的声线<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

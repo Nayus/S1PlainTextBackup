@@ -9608,3 +9608,13 @@ mujica第一次live居然没翻车？这不真实！
 各种盼着开翻银河战舰什么的 ...</blockquote>
 可能因為都是同一群人在嘴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17135#       发表于 2024-5-29 22:53
+
+[https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745](https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745)
+
+好猛，好詳細的去年那個解謎活動的repo<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+

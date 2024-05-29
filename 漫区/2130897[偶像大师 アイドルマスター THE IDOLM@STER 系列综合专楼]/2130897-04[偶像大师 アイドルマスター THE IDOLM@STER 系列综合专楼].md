@@ -7246,3 +7246,11 @@ VT9}(N89706YPAAKKZRNBX5.jpg
 
 土豆和 本家主机服装都挺土的
 
+
+*****
+
+####  野菜一日分  
+##### 5116#       发表于 2024-5-29 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是完美继承了本家特色吗，主机游戏里一些服装直接两眼一黑
+

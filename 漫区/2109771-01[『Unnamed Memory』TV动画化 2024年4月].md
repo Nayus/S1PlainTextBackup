@@ -42,3 +42,11 @@
 
 这是乙女向吧，我看乙女向本子也是这种男主毛手毛脚女主半推半就的剧情
 
+
+*****
+
+####  Boliva  
+##### 124#       发表于 2024-5-30 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这片真的就是靠华哥和女主的人设撑下去的，可惜了，这么好的OP,ED咳
+

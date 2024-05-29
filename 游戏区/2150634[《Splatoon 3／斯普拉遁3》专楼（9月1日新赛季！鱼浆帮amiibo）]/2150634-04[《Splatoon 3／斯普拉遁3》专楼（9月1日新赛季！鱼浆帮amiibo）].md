@@ -1059,3 +1059,15 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 还不如末期尝试下长线运营，反正新机也肯定一堆第三方疯狂长线运营的，趁机多卖几个DLC，或者打骨折免费送，多好，除非你喷4能让我自定义地图我就买！
 
+
+*****
+
+####  yanglian72  
+##### 4541#       发表于 2024-5-30 01:20
+
+ 本帖最后由 yanglian72 于 2024-5-30 01:21 编辑 
+
+猜测3代其实是准备上原本的加强机的，跟王泪、XB3一样，任天堂后来取消了加强机，但又需要强力作品去填充发售空档延长维持NS生命周期，所以3代就变成这样不上不下<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+说到4代，不知道还有没有人记得三代发售时的任天堂开发者访谈，里面有提到是三部曲的概念，如果真的会有4代，感觉可能会有大改<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

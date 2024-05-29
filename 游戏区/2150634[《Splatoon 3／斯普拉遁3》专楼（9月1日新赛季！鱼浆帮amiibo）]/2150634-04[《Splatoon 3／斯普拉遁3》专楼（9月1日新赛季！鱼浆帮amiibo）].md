@@ -1071,3 +1071,11 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 说到4代，不知道还有没有人记得三代发售时的任天堂开发者访谈，里面有提到是三部曲的概念，如果真的会有4代，感觉可能会有大改<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 4542#       发表于 2024-5-30 02:17
+
+感觉可能先整个3代dx，4代慢慢来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -459,3 +459,15 @@
 更新的多v多任务都是屎一样，尤其是永夜，感觉就是为了鼓励联机而做出来的一样。如果带了AI队友，那就请 ...</blockquote>
 带队友敌人的伤害和血量会增加吧？伤害我没测，但是血量是厚了不少的。永夜我暂时不想打，单人solo过了搭档们已经很不容易了，短期内不想再折磨自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  asakura20005  
+##### 3204#       发表于 2024-5-29 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65044244&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-5-29 14:18</a>
+带队友敌人的伤害和血量会增加吧？伤害我没测，但是血量是厚了不少的。永夜我暂时不想打，单人solo过了搭 ...</blockquote>
+是的，带队友敌人伤害会增加，但是不带队友的话第一波三个人有两个会远程，根本打不了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

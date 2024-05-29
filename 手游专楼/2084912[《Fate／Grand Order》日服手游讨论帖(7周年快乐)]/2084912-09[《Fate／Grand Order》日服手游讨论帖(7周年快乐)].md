@@ -19,3 +19,16 @@
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  alucardcz  
+##### 12783#       发表于 2024-5-29 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65048620&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2024-5-29 20:17</a>
+
+这次直接对策肃正防御了
+
+等一个强**叔12条命</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">并没有对策 卑呆贞打完了
+

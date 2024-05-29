@@ -1000,3 +1000,14 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 已经结束了！野上给我滚出来谢罪，心比天高命比纸薄，什么都想搞什么都搞不好
 
+
+*****
+
+####  晴岚  
+##### 4535#       发表于 2024-5-29 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65047433&amp;ptid=2150634" target="_blank">Teiume 发表于 2024-5-29 18:13</a>
+
+看pv目录100后面还藏了一页，有没有可能是什么大活……（做宝可梦.jpg）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">宣告随着最终更新之后三个月开最终祭典接着直接把SPLA3给停服
+

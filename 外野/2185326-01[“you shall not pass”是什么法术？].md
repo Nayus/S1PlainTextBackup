@@ -516,3 +516,16 @@
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  nukecole  
+##### 46#       发表于 2024-5-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65044831&amp;ptid=2185326" target="_blank">amanohanei 发表于 2024-5-29 15:06</a>
+
+指环王是真的牛逼啊,小时候第一次看盗版盘一晚上连着看完三部曲
+
+以后有可能重置吗 ...</blockquote>
+现在重置高低给你整几个黑皮精灵和跨跨半兽人出来
+

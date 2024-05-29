@@ -610,3 +610,16 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 干豆腐法术的实际名字难道是 “十万流明！”吗 
 
+
+*****
+
+####  jian酱  
+##### 56#       发表于 2024-5-29 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65044831&amp;ptid=2185326" target="_blank">amanohanei 发表于 2024-5-29 15:06</a>
+
+指环王是真的牛逼啊,小时候第一次看盗版盘一晚上连着看完三部曲
+
+以后有可能重置吗 ...</blockquote>
+来点脏辫尼哥甘道夫，小丑鱼尼哥女王，老墨精灵游侠，黄皮幽灵船骷髅，LGBT霍比特人
+

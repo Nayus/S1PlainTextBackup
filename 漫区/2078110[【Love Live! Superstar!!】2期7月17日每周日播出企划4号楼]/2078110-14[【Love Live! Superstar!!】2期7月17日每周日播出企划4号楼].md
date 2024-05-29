@@ -721,3 +721,13 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 网瘾少女喻黎黎<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">打游戏真开心
 
+
+*****
+
+####  ruffian  
+##### 20236#       发表于 2024-5-29 23:34
+
+<blockquote>we89623 发表于 2024-5-28 20:36
+问一下，3月份那个妄想小队投票到底哪一组赢了，怎么现在没啥消息了？</blockquote>
+绘里黛雅梢第一，鸟曜可第二
+

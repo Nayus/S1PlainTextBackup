@@ -9628,3 +9628,26 @@ mujica第一次live居然没翻车？这不真实！
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 17137#       发表于 2024-5-29 23:35
+
+这个我之前就奶过了，网红博主开箱骷髅头给mujica宣传热度的剧情逆输入给喵梦
+
+这也能解释为什么明明mujica全员蒙面，祥子却说需要喵梦的脸和数字，因为需要让喵梦以博主的身份来宣传神秘的假面乐队mujica，这样喵梦的主播身份也能吃到mujica的热度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  基神的强袭自由  
+##### 17138#       发表于 2024-5-29 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049996&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-29 22:53</a>
+
+https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
+
+好猛，好詳細的去年那個解謎活動的repo ...</blockquote>
+想去煤炉上买邀请函，但是今年朋友都比较忙，不会从日本回来......
+

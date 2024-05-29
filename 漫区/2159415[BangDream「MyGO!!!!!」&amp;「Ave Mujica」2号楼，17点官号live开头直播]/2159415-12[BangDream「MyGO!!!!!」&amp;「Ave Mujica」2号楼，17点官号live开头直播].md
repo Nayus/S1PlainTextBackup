@@ -9651,3 +9651,50 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 好猛，好詳細的去年那個解謎活動的repo ...</blockquote>
 想去煤炉上买邀请函，但是今年朋友都比较忙，不会从日本回来......
 
+
+*****
+
+####  凡人  
+##### 17139#       发表于 2024-5-29 23:51
+
+<img src="https://img.saraba1st.com/forum/202405/29/235129dxzqirkq8xw9rz62.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 23:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 17140#       发表于 2024-5-29 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050313&amp;ptid=2159415" target="_blank">NODY 发表于 2024-05-29 23:35:27</a>
+这个我之前就奶过了，网红博主开箱骷髅头给mujica宣传热度的剧情逆输入给喵梦
+
+这也能解释为什么明明mujica ...</blockquote>考验喵梦演技的时刻到了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 17141#       发表于 2024-5-29 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050390&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-29 23:43</a>
+
+想去煤炉上买邀请函，但是今年朋友都比较忙，不会从日本回来......</blockquote>
+
+雖然很有紀念意義，但收這個有點太盤子了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/29/235304w0lq4739t9391kqq.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (103.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 23:53 上传
+

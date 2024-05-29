@@ -76,3 +76,30 @@ vlt开始4+4+4+1+3太多了，而且虹男一军势头正盛体感女粉都引�
 
 以及很反直觉的，其实vlt的同接比英雄组糊，甚至比金凤花糊
 
+
+*****
+
+####  月临碧海  
+##### 243#       发表于 2024-5-29 23:48
+
+真是绷不住，这要怎么登场啊，和剧里的管人联动吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/29/234849wtqp5wlt6l5q94qz.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (54.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 23:48 上传
+
+*****
+
+####  poipanchao  
+##### 244#       发表于 2024-5-29 23:50
+
+烫男人毕业的少啊，就一个黛灰和半个三枝
+
+哪像虹女，19年top死的一片一片的
+
+还真跟声优有点像，top女声优结婚淡出，top男声优结不结婚都没啥影响，塌房也没啥影响
+

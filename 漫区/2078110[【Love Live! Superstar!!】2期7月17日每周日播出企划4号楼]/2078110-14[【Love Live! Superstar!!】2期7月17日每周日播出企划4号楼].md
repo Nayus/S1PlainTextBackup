@@ -731,3 +731,11 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 问一下，3月份那个妄想小队投票到底哪一组赢了，怎么现在没啥消息了？</blockquote>
 绘里黛雅梢第一，鸟曜可第二
 
+
+*****
+
+####  csolfans  
+##### 20237#       发表于 2024-5-29 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灰毛组败了还行
+

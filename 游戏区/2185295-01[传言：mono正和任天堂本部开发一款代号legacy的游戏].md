@@ -379,3 +379,16 @@ Monolith是任天堂旗下的工作室，异度是任天堂的IP，还能分母�
 
 legacy也可能是岩田聪的legacy<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">范围更大了
 
+
+*****
+
+####  贝雷特  
+##### 46#       发表于 2024-5-30 02:54
+
+<blockquote>holomoon 发表于 2024-5-29 21:00
+是延续XB3故事线的XB4吧，配合NS2首发护航
+
+上次访谈里抛出那么多设定，已经暗示很明显了 ...</blockquote>
+
+访谈里咋说的？有些感兴趣
+

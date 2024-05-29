@@ -9429,3 +9429,31 @@ gsc还没通知补款
 只提了3个名字，最后总结“最正确的5个人”</blockquote>
 立希：我没意见
 
+
+*****
+
+####  akirakira  
+##### 17118#       发表于 2024-5-29 17:36
+
+ 本帖最后由 akirakira 于 2024-5-29 17:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65046620&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-5-29 17:16</a>
+笑点解析：
+只提了3个名字，最后总结“最正确的5个人
+以及头像......既得利益者的嘴脸啊 ...</blockquote>
+牌子ylg很符合这段话的水准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nungesser  
+##### 17119#       发表于 2024-5-29 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65030251&amp;ptid=2159415" target="_blank">御景 发表于 2024-5-28 12:58</a>
+
+还有拿mmk和祥子对比，问为什么没人车mmk的，实际上还是阴湿的车祥子。
+
+因为mmk是主角团，而且编剧都给旧团 ...</blockquote>
+不过讲真我看GBC的时候确实按照MMK的套路启发脑洞过另一个AM组团的故事：祥子和Mygo那边毫无联络的渡过了高中生涯，进入大学料理了老爹的丧事后原本打算以后找份工作继续维生，结果在和依旧保有联系的睦同行时无意间看到了成队多年的Mygo演出，随后又偶遇辍学的Yotuber喵梦（改成年下版本），最后拉上了18岁出道的初华和从初华那边联系到的海玲，神秘乐队“Ave Mujica”的故事开始了。
+
+其实GBC的故事确实挺适合和鸡狗这边相对照的，不过我觉得起码得等GBC完结 、AM也播出后再去议论，否则拿着假药和脑补去聊简直是浪费时间。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

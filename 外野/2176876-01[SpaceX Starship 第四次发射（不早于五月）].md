@@ -326,3 +326,29 @@ S26目前正在梅西测试场测试新建的静点设施。梅西测试场今�
 
 目前从外观上可以判断的是S29在返厂升级后增压了S30上的滚转喷口。
 
+
+*****
+
+####  commcody  
+##### 63#         楼主| 发表于 2024-5-29 12:48
+
+5月26日，S29再度与B11合体。5月28日组合体进行了第二次湿彩排。
+
+FAA发表声明，第三飞中不涉及公共安全。因此SpaceX可以在事故调查未结束前重新飞行。但目前仍未颁发新许可证。
+
+<img src="https://img.saraba1st.com/forum/202405/29/124335hbkd6bkreuddm9eg.jpg" referrerpolicy="no-referrer">
+
+<strong>GOhdQjwbEAArgFu.jpg</strong> (509.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 12:43 上传
+
+<img src="https://img.saraba1st.com/forum/202405/29/124554qhpy0syrn24q22qh.jpg" referrerpolicy="no-referrer">
+
+<strong>44.jpg</strong> (223.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 12:45 上传
+

@@ -1011,3 +1011,11 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 看pv目录100后面还藏了一页，有没有可能是什么大活……（做宝可梦.jpg）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">宣告随着最终更新之后三个月开最终祭典接着直接把SPLA3给停服
 
+
+*****
+
+####  yanglian72  
+##### 4536#       发表于 2024-5-29 21:14
+
+最后一页估我猜计是感谢玩家支持之类的纪念图吧，可以贴在柜子上的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

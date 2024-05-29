@@ -40,3 +40,15 @@ ymen居然在新宿开了个中世纪百合主题咖啡店，在stgr当酒保上
 
 是idos救了虹女！七人团还能这么团结薄纱业界<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fastary  
+##### 240#       发表于 2024-5-29 21:08
+
+vlt开始4+4+4+1+3太多了，而且虹男一军势头正盛体感女粉都引流去看黑黑rfm那一块的了，新虹男踏踏实实直播也没整什么特大好活还能怎么样呢
+
+不过同接糊虽糊好像粉还挺稳定的，感觉每天都能刷到高质量fa<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+（其实英雄组8个人也很团结有爱的！虽然光看数字的话就是底边抱团取暖……
+

@@ -1019,3 +1019,13 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 最后一页估我猜计是感谢玩家支持之类的纪念图吧，可以贴在柜子上的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4537#       发表于 2024-5-29 22:33
+
+研究所官推评论区怎么全是僵尸号
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

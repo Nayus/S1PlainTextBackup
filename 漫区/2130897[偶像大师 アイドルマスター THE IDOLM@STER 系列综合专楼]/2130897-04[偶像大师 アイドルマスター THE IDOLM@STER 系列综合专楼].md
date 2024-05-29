@@ -7230,3 +7230,11 @@ VT9}(N89706YPAAKKZRNBX5.jpg
 
 在偶像企划的mv合集里划过去看到服装最土，最容易忘的，八成就是你百。
 
+
+*****
+
+####  花开安菲路  
+##### 5114#       发表于 2024-5-29 22:26
+
+土豆那是美术和审美有问题，中老年审美，再加上建模过于落后了，有些卡面还是挺好看的，但再好看的卡面建模出来就拉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

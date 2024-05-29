@@ -699,3 +699,16 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 引用自魔戒wiki</blockquote>
 从头看到尾全是光光光<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aghar  
+##### 65#       发表于 2024-5-30 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043508&amp;ptid=2185326" target="_blank">cyberalogo 发表于 2024-5-29 13:10</a>
+
+我以前看过炎魔的设定，说它们原来是堕落的迈雅。
+
+言下之意，甘道夫与炎魔还是同行？ ...</blockquote>
+索隆也是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

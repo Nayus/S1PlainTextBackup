@@ -360,3 +360,14 @@ xs之前不都合作过两波了么
 
 这不是世嘉的舅么，原来她还管得那么宽，连老任的料也有啊
 
+
+*****
+
+####  andychen  
+##### 44#       发表于 2024-5-29 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049000&amp;ptid=2185295" target="_blank">封面杀手 发表于 2024-5-29 20:59</a>
+
+你们认真的吗，我没见过子公司带领母公司人马做子公司自家IP的，更别说任天堂这种业界大头 ...</blockquote>
+Monolith是任天堂旗下的工作室，异度是任天堂的IP，还能分母公司子公司的？
+

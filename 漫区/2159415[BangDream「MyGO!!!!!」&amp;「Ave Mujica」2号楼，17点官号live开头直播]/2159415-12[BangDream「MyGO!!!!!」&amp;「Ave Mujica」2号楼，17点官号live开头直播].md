@@ -9513,3 +9513,20 @@ mujica第一次live居然没翻车？这不真实！
 
 邦邦比祥子不真实的角色多了去了，比如各种意义上都要超越人类的msk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 17126#       发表于 2024-5-29 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65046620&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-5-29 17:16</a>
+
+笑点解析：
+
+只提了3个名字，最后总结“最正确的5个人
+
+以及头像......既得利益者的嘴脸啊 ...</blockquote>
+草
+
+这title还有回答怎么这么欠打呢（）
+

@@ -651,3 +651,15 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 迈雅神灵砸个石头还用放魔法?
 
+
+*****
+
+####  冰风血羽  
+##### 60#       发表于 2024-5-29 18:41
+
+<img src="https://p.sda1.dev/17/90cb04ac290d018aa599c75a82a91d55/2133022459.jpg" referrerpolicy="no-referrer">
+
+这就不得不拿出这张传世梗图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
+

@@ -479,3 +479,11 @@
 
 销量似乎不咋地，DLC还有戏不
 
+
+*****
+
+####  nage560  
+##### 3206#       发表于 2024-5-29 22:00
+
+玩上了才发现开放世界还有魂like篝火，安田桑这是魂like入脑无救了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

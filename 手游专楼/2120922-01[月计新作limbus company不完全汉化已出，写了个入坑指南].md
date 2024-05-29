@@ -331,3 +331,11 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 估计最多也就是七种类型吧，和七宗罪颜色对应。不过按照镜牢饰品的顺序，原版震颤对应的其实是黄色...
 
+
+*****
+
+####  kurihayn  
+##### 717#       发表于 2024-5-29 23:18
+
+中指末兄打得我ipad都快冒烟了，然后进了白鲸胃里后彻底推图推不动一点了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

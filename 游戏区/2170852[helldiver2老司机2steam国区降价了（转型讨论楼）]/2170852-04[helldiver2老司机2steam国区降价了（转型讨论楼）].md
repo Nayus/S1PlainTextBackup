@@ -4115,3 +4115,34 @@ ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
 能长时间站场清除大量中甲和牛的战备似乎不存在吧</blockquote>
 能叫机甲的时候一不一定有怪杀，有怪杀的时候机甲又可能在CD或者只是普通的一次虫巢，两次机甲叫完这个战备就等于白板了，灵活性差其他战备太多了。
 
+
+*****
+
+####  赤井稻妻  
+##### 4811#       发表于 2024-5-29 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65041052&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-29 10:12</a>
+
+能叫机甲的时候一不一定有怪杀，有怪杀的时候机甲又可能在CD或者只是普通的一次虫巢，两次机甲叫完这个战 ...</blockquote>
+所以说是守任务点和撤退的时候丢，要我说这个战备类似激光，丢下来就是为了解场的，能保住队友的输出环境就行了
+
+*****
+
+####  Mr.Hopp  
+##### 4812#       发表于 2024-5-29 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65041105&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-5-29 10:16</a>
+
+所以说是守任务点和撤退的时候丢，要我说这个战备类似激光，丢下来就是为了解场的，能保住队友的输出环境 ...</blockquote>
+能用确实能用，但是再怎么说一次任务只能用两次，可替代的东西不少。
+
+*****
+
+####  赤井稻妻  
+##### 4813#       发表于 2024-5-29 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65041140&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-29 10:20</a>
+
+能用确实能用，但是再怎么说一次任务只能用两次，可替代的东西不少。</blockquote>
+现在战备功能上就这些东西了，绝大部分战备都是一锤子买卖，要么就是像机炮炮台这种对部署的时机和位置要求极高，机甲是个可选项，我觉得现在打虫子属于选什么都可以，你说你带个激光丢出去，正好钻出一个泰坦，这激光也就等于没啥作用，但是激光能不能带，一样能带
+

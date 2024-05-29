@@ -542,3 +542,30 @@
 所以甘道夫那一下应该是压了雷管</blockquote>
 看懂的得四张了。
 
+
+*****
+
+####  skywalker9307  
+##### 48#       发表于 2024-5-29 15:49
+
+问个问题。在电影里面有个问题一直没搞懂，就是甘道夫和炎魔打的时候，从桥上掉下去的时候，两个人一直掉掉进了地心，最后怎么又是在一个雪山顶上打，然后把炎魔打下山。
+
+
+*****
+
+####  avayazhg  
+##### 49#       发表于 2024-5-29 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65045400&amp;ptid=2185326" target="_blank">skywalker9307 发表于 2024-5-29 15:49</a>
+问个问题。在电影里面有个问题一直没搞懂，就是甘道夫和炎魔打的时候，从桥上掉下去的时候，两个人一直掉掉 ...</blockquote>
+掉下去后底下是个大水潭，没摔死而且炎魔的火灭了。然后沿着矮人的古道一路肉搏到世界之巅<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  gary76  
+##### 50#       发表于 2024-5-29 15:56
+
+消灭目标生物，且须为本回合中曾阻挡传奇生物或被传奇生物阻挡者。
+

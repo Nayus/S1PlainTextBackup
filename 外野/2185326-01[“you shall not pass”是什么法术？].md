@@ -529,3 +529,16 @@
 以后有可能重置吗 ...</blockquote>
 现在重置高低给你整几个黑皮精灵和跨跨半兽人出来
 
+
+*****
+
+####  lyt777  
+##### 47#       发表于 2024-5-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043490&amp;ptid=2185326" target="_blank">十六夜pad长 发表于 2024-5-29 13:09</a>
+
+可惜了，真是一座好桥啊……
+
+所以甘道夫那一下应该是压了雷管</blockquote>
+看懂的得四张了。
+

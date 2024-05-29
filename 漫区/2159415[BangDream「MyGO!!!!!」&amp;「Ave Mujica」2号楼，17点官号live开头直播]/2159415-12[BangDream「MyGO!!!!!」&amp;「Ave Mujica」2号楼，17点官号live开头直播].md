@@ -9410,3 +9410,22 @@ gsc还没通知补款
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  -LYRE-  
+##### 17116#       发表于 2024-5-29 17:16
+
+笑点解析：
+只提了3个名字，最后总结“最正确的5个人”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/17/fd0334981df024128334afd34f3e3190/CMP_20240529171454970.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17117#       发表于 2024-5-29 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65046620&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-5-29 17:16</a>
+笑点解析：
+只提了3个名字，最后总结“最正确的5个人”</blockquote>
+立希：我没意见
+

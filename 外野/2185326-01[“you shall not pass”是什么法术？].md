@@ -595,3 +595,18 @@
 
 Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的斯大林  
+##### 54#       发表于 2024-5-29 17:21
+
+平A砸地板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alexaeroes  
+##### 55#       发表于 2024-5-29 17:21
+
+干豆腐法术的实际名字难道是 “十万流明！”吗 
+

@@ -774,3 +774,13 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 我说的是前两年网飞拍的那部电视剧，搞了个尼格精灵主 ...</blockquote>
 我杀我自己不好吧 还是把老白男放对面？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  57042711  
+##### 72#       发表于 2024-5-30 06:09
+
+所以说甘道夫其实是DND里的牧师吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

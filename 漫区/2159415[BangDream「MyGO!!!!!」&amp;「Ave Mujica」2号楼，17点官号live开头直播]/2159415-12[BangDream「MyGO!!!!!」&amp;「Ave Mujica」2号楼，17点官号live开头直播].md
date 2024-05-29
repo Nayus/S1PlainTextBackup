@@ -9698,3 +9698,19 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 
 2024-5-29 23:53 上传
 
+
+*****
+
+####  PDQ4  
+##### 17142#       发表于 2024-5-30 00:03
+
+ 本帖最后由 PDQ4 于 2024-5-30 00:04 编辑 
+
+这个repo好详细，有好多以前不知道的细节，那个line发消息让人脊背发凉<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+难道明年真的可以看到恐怖片要素<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+去年这么热闹今年冷冷的，不知道还留下多少人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+场外看还是官方拱火这个最有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

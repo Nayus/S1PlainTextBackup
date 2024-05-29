@@ -9505,3 +9505,11 @@ mujica第一次live居然没翻车？这不真实！
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 17125#       发表于 2024-5-29 18:27
+
+邦邦比祥子不真实的角色多了去了，比如各种意义上都要超越人类的msk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

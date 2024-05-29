@@ -371,3 +371,11 @@ xs之前不都合作过两波了么
 你们认真的吗，我没见过子公司带领母公司人马做子公司自家IP的，更别说任天堂这种业界大头 ...</blockquote>
 Monolith是任天堂旗下的工作室，异度是任天堂的IP，还能分母公司子公司的？
 
+
+*****
+
+####  伊迪潘宫森  
+##### 45#       发表于 2024-5-29 22:13
+
+legacy也可能是岩田聪的legacy<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">范围更大了
+

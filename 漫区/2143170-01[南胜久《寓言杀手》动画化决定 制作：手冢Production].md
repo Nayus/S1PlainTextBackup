@@ -92,3 +92,11 @@
 
 看到第八话感觉挺满意了，虽然肉眼可见的贫穷但对于原作精髓的黑色幽默还原的还是挺到位的
 
+
+*****
+
+####  SlashShou4  
+##### 101#       发表于 2024-5-29 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。
+

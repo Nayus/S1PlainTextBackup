@@ -663,3 +663,11 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
 
+
+*****
+
+####  永远的访客  
+##### 61#       发表于 2024-5-29 18:52
+
+我觉得好莱坞复刻经典的周期大约是30-50年，这么算来要再等20年技术/思维理念会发展到可以重制，至于那时候好莱坞是啥风格甚至是不是还有这个底力已经不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

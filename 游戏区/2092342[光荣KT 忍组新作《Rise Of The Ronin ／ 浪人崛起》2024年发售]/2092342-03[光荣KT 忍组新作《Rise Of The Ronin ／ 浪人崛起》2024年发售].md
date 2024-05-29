@@ -471,3 +471,11 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  hkguty  
+##### 3205#       发表于 2024-5-29 20:54
+
+销量似乎不咋地，DLC还有戏不
+

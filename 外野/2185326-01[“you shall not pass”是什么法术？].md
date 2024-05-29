@@ -482,3 +482,37 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  四号舰美浓  
+##### 43#       发表于 2024-5-29 15:20
+
+<blockquote>橘猫929 发表于 2024-5-29 13:25
+近身发光打架是不是特别有优势？</blockquote>
+现实里有一个效果差不多的装备——频闪闪光灯防爆盾，可以在防护的同时闪瞎对面的狗眼。
+
+甚至可以诱发对面的光敏性癫痫。
+
+*****
+
+####  6030sylar  
+##### 44#       发表于 2024-5-29 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65044831&amp;ptid=2185326" target="_blank">amanohanei 发表于 2024-5-29 15:06</a>
+
+指环王是真的牛逼啊,小时候第一次看盗版盘一晚上连着看完三部曲
+
+以后有可能重置吗 ...</blockquote>
+这种经典只可一不可再了
+
+
+*****
+
+####  星㐅影  
+##### 45#       发表于 2024-5-29 15:23
+
+出口在背后的传送法术<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -9547,3 +9547,18 @@ yysy，少搬屎有益身心健康
 
 希望mujica别干出来牺牲喵梦和海玲的事情<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 17129#       发表于 2024-5-29 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65047348&amp;ptid=2159415" target="_blank">skives 发表于 2024-5-29 18:05</a>
+
+mujica第一次live居然没翻车？这不真实！
+
+祥子居然不熬夜作曲？这不真实！凤傲天！ ...</blockquote>
+神马？祥子作曲居然要熬夜？这也太OOC了吧？！<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
+
+编剧是不是换人了？
+

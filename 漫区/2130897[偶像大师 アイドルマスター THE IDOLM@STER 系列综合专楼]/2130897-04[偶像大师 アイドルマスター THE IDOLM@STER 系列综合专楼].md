@@ -7003,3 +7003,19 @@ s卡冠军那甚至够呛只有四个了吧<img src="https://static.saraba1st.co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  840266848  
+##### 5100#       发表于 2024-5-29 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">X看了sc和学的卡池预告阅览量，emmmm
+
+
+*****
+
+####  rgauss  
+##### 5101#       发表于 2024-5-29 19:25
+
+看来是土豆设计的了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">真的难看啊 
+

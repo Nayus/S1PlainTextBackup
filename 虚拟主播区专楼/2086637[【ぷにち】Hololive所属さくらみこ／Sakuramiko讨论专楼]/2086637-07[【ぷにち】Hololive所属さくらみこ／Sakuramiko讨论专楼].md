@@ -47,3 +47,45 @@
 
 垃圾棉花糖一大堆，不过算是完成了虽然有好几个重复计数的
 
+
+*****
+
+####  holoan  
+##### 8886#         楼主| 发表于 2024-5-29 19:09
+
+<img src="https://img.saraba1st.com/forum/202405/29/190914w6bed7a6q5v1yhmn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 19:09 上传
+
+*****
+
+####  holoan  
+##### 8887#         楼主| 发表于 2024-5-29 19:23
+
+草这歌
+
+行吧其实MV跟什么galgame没什么关系了纯nico老人会neta风了
+
+话说回来怎么都选这些什么没听过的底边作曲家的……
+
+你还不如赶紧搞一个真galgame出来
+
+*****
+
+####  holoan  
+##### 8888#         楼主| 发表于 2024-5-29 19:25
+
+笑死了今天的直播设置成了30秒标准延迟，这下指示厨要疯了
+
+<img src="https://img.saraba1st.com/forum/202405/29/192547xy4hqpywyp20pp33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 19:25 上传
+

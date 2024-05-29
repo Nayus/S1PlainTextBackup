@@ -487,3 +487,14 @@
 
 玩上了才发现开放世界还有魂like篝火，安田桑这是魂like入脑无救了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ckseng  
+##### 3207#       发表于 2024-5-29 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65048965&amp;ptid=2092342" target="_blank">hkguty 发表于 2024-5-29 20:54</a>
+
+销量似乎不咋地，DLC还有戏不</blockquote>
+光荣最近几年的dlc看起来像是直接从做好的本体阉割出来的，应该会有吧
+

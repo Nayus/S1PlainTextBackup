@@ -7238,3 +7238,11 @@ VT9}(N89706YPAAKKZRNBX5.jpg
 
 土豆那是美术和审美有问题，中老年审美，再加上建模过于落后了，有些卡面还是挺好看的，但再好看的卡面建模出来就拉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  皮卡丘跑快快  
+##### 5115#       发表于 2024-5-29 22:53
+
+土豆和 本家主机服装都挺土的
+

@@ -9457,3 +9457,40 @@ gsc还没通知补款
 
 其实GBC的故事确实挺适合和鸡狗这边相对照的，不过我觉得起码得等GBC完结 、AM也播出后再去议论，否则拿着假药和脑补去聊简直是浪费时间。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17120#       发表于 2024-5-29 17:58
+
+是错觉吗，怎么感觉睦祥两个脸盘比别人大，这么还原婴儿肥，太可爱了呀<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 17121#       发表于 2024-5-29 18:01
+
+ 本帖最后由 -LYRE- 于 2024-5-29 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65047056&amp;ptid=2159415" target="_blank">Nungesser 发表于 2024-5-29 17:44</a>
+不过讲真我看GBC的时候确实按照MMK的套路启发脑洞过另一个AM组团的故事：祥子和Mygo那边毫无联络的渡过了 ...</blockquote>
+看着gbc的节奏总时不时幻视
+好些感觉会在mujica播出时重现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+各种盼着开翻银河战舰什么的
+
+*****
+
+####  rikaren  
+##### 17122#       发表于 2024-5-29 18:01
+
+隔壁走廊又有手综哥搞事了，s1注册费最有用的一次。
+
+
+*****
+
+####  skives  
+##### 17123#       发表于 2024-5-29 18:05
+
+mujica第一次live居然没翻车？这不真实！
+祥子居然不熬夜作曲？这不真实！凤傲天！
+

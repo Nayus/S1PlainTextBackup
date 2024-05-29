@@ -712,3 +712,31 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 言下之意，甘道夫与炎魔还是同行？ ...</blockquote>
 索隆也是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克拉苏  
+##### 66#       发表于 2024-5-30 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050992&amp;ptid=2185326" target="_blank">aghar 发表于 2024-5-30 01:33</a>
+索隆也是</blockquote>
+就 别看索隆牛逼哄哄的样子 当年指不定还舔过阿拉贡没失去神眷的祖先的鞋子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 67#       发表于 2024-5-30 01:42
+
+魔戒近几年还是别授权搞啥游戏和影视剧了，之前的网飞剧就突出一个zzzq往里灌<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">托老这种典型的带英中心思想老白男如果现在看到一群尼格精灵估计得把导演编剧都打死
+
+—— 来自 Xiaomi Mi MIX 2, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  克拉苏  
+##### 68#       发表于 2024-5-30 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65051019&amp;ptid=2185326" target="_blank">a317216007 发表于 2024-5-30 01:42</a>
+魔戒近几年还是别授权搞啥游戏和影视剧了，之前的网飞剧就突出一个zzzq往里灌托老这种典型的带英中心思想老 ...</blockquote>
+呢个站索隆的吧 就象兵那群
+

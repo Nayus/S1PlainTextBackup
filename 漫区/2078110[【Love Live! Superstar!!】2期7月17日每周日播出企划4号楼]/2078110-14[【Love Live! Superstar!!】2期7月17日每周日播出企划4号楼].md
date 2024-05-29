@@ -763,3 +763,14 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 纯 欲 天 花 板 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  靡宜  
+##### 20241#       发表于 2024-5-30 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65014642&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-5-27 07:41</a>
+
+这个还真是看音监，唐可可虽说并不算多出彩但是也没啥毛病，1999的日版配音就属于是从上到下都不用心导致出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前鱼说1999后面新录的好点，不过也没有去看了
+

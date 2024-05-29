@@ -740,3 +740,37 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 魔戒近几年还是别授权搞啥游戏和影视剧了，之前的网飞剧就突出一个zzzq往里灌托老这种典型的带英中心思想老 ...</blockquote>
 呢个站索隆的吧 就象兵那群
 
+
+*****
+
+####  a317216007  
+##### 69#       发表于 2024-5-30 01:51
+
+魔戒其实不低魔，魔法设定渗透是方方面面的
+只不过通常表现为特殊能力或者某种神迹表现的一部分，托老当时是按照古典欧洲神话的形式写的带英本家风格神话，所以这方面的表现就不可能具备现代游戏或者网文的舍得体系
+干豆腐打炎魔本身就是双方的麦芽神力爆发，神力互撞，类似于什么<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">类似于什么芬里尔大战奥丁的古典风格
+
+—— 来自 Xiaomi Mi MIX 2, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  a317216007  
+##### 70#       发表于 2024-5-30 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65051024&amp;ptid=2185326" target="_blank">克拉苏 发表于 2024-5-30 01:44</a>
+呢个站索隆的吧 就象兵那群</blockquote>
+魔戒正片三部曲里尼格是“东方人类”，确实站索隆
+我说的是前两年网飞拍的那部电视剧，搞了个尼格精灵主要角色出来<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi MIX 2, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  克拉苏  
+##### 71#       发表于 2024-5-30 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65051051&amp;ptid=2185326" target="_blank">a317216007 发表于 2024-5-30 01:53</a>
+魔戒正片三部曲里尼格是“东方人类”，确实站索隆
+我说的是前两年网飞拍的那部电视剧，搞了个尼格精灵主 ...</blockquote>
+我杀我自己不好吧 还是把老白男放对面？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9279,3 +9279,27 @@ HK92$DQDYS`T7~POQQ`S)M5.png
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  mistalk  
+##### 17106#       发表于 2024-5-29 09:49
+
+<img src="https://img.saraba1st.com/forum/202405/29/094747c7wqkuyqu7ffm07d.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1531.JPG</strong> (1.38 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 09:47 上传
+
+<img src="https://img.saraba1st.com/forum/202405/29/094812l5rydri0zyywqqy5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1532.JPG</strong> (1.43 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-29 09:48 上传
+
+谁家键盘手，小脸红扑扑的，面具都挡不住
+

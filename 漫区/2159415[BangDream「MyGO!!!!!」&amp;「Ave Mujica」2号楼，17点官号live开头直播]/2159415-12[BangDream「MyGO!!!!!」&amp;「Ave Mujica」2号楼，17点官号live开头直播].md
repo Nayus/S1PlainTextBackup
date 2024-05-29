@@ -9593,3 +9593,18 @@ mujica第一次live居然没翻车？这不真实！
 
 猫猫那种戏份的估计不会有了，但是会不会再来一次立希复刻那真有点怕。
 
+
+*****
+
+####  御幸一也  
+##### 17134#       发表于 2024-5-29 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65047285&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-5-29 18:01</a>
+
+看着gbc的节奏总时不时幻视
+
+好些感觉会在mujica播出时重现
+
+各种盼着开翻银河战舰什么的 ...</blockquote>
+可能因為都是同一群人在嘴吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

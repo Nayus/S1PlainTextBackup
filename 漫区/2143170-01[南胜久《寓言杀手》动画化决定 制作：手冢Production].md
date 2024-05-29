@@ -69,3 +69,18 @@
 
 不愧是美雪太太<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arcard  
+##### 99#       发表于 2024-5-29 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65024640&amp;ptid=2143170" target="_blank">abcxiawei 发表于 2024-5-27 22:42</a>
+
+这个妹妹平时到底是干嘛的？第7集看的寒毛直竖，感觉是顶级绿茶</blockquote>
+绿茶只是妹妹的技能，本质是个乐子人
+
+组织内部属于哥哥的辅助专员，虽然与佐藤相比有着绝对的实力差距，经验和心态是短板。但在作品里也属于高手那一列的。
+
+美雪太太发挥的还是很到位了
+

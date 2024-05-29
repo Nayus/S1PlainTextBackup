@@ -964,3 +964,31 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 唉</blockquote>
 虽然有点感动但是把这玩意放头衔里干什么，不会变成嘲讽怪专用吗
 
+
+*****
+
+####  KBAC  
+##### 4531#       发表于 2024-5-29 18:05
+
+喷2和喷3还隔了5年呢，看鱿鱼研开发喷3这个费劲吧啦的样子我还是觉得出喷3DX都不会出喷4<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KBAC  
+##### 4532#       发表于 2024-5-29 18:08
+
+我觉得喷3只要不出第二贴牌那它就是连喷1都不如的残废，更别说祭典数量大幅落后于喷2了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+真就在下赛季停了我看野上这辈子别想在公共场合露面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Teiume  
+##### 4533#       发表于 2024-5-29 18:13
+
+看pv目录100后面还藏了一页，有没有可能是什么大活……（做宝可梦.jpg）
+

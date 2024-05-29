@@ -9494,3 +9494,14 @@ gsc还没通知补款
 mujica第一次live居然没翻车？这不真实！
 祥子居然不熬夜作曲？这不真实！凤傲天！
 
+
+*****
+
+####  鳥栖朝  
+##### 17124#       发表于 2024-5-29 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65046620&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-05-29 17:16:22</a>
+既得利益者的嘴脸啊</blockquote>各种要素叠加起来幽默程度超级加倍，有种 你推为什么戏份是这个样子，是因为不喜欢吗？ 的美
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

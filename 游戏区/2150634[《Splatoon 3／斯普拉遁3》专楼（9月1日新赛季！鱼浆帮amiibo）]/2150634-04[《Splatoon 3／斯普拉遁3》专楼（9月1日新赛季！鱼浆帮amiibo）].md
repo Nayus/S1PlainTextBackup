@@ -887,3 +887,11 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  laosai13  
+##### 4524#       发表于 2024-5-29 12:37
+
+看了眼melon视角的inkwave决赛，这涂地阵容也太抽象了，89短弓红牙刷贴牌弓，melon击杀能力那么强拿红牙刷饮料位全程就没怎么下过高台就纯涂地，关键这样还赢了。
+

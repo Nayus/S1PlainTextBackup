@@ -9714,3 +9714,21 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 
 场外看还是官方拱火这个最有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17143#       发表于 2024-5-30 00:04
+
+泰國人！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202405/30/000350i3ch3hcb6fcg6dtt.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ท่านหยิงน้องซากิโกด โก๊ะกิเกงโย๊ะ(@pcxwi.jpg</strong> (441.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 00:03 上传
+
+[https://x.com/pcxwise/status/1795847946464096401](https://x.com/pcxwise/status/1795847946464096401)
+

@@ -9732,3 +9732,21 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 
 [https://x.com/pcxwise/status/1795847946464096401](https://x.com/pcxwise/status/1795847946464096401)
 
+
+*****
+
+####  基神的强袭自由  
+##### 17144#       发表于 2024-5-30 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050477&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-5-29 23:53</a>
+
+雖然很有紀念意義，但收這個有點太盤子了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 17145#       发表于 2024-5-30 00:18
+
+说不定其实就是国人在拍
+

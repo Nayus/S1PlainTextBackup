@@ -7306,3 +7306,13 @@ sc页游p卡这是羽那？还是嘘...婚纱四连发还行
 
 去年の「ズラシ」
 
+
+*****
+
+####  天堂懵懂人  
+##### 5120#       发表于 2024-5-30 04:33
+
+之前没怎么关注，最近看啊B上看到有用[sos]动作的mmd，是有人手K的动作，还是有人提取出来了
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

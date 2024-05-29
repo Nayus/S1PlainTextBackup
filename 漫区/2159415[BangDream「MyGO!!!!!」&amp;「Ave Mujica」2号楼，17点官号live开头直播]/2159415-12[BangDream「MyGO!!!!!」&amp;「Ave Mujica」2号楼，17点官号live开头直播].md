@@ -9364,3 +9364,12 @@ gsc还没通知补款
 谁家键盘手，小脸红扑扑的，面具都挡不住</blockquote>
 好呆的寶寶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晋冠丘  
+##### 17112#       发表于 2024-5-29 14:59
+
+突然在想，仅讨论动画的话mygo五人之间相互亲密程度是不是这样：
+爱灯最亲密，其他人怎么感觉都差不多，立希虽然很喜欢灯，但是灯对立希就有点
+

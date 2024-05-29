@@ -448,3 +448,14 @@
 
 最好的记录是打到过几次第三波，但面对两个会用道具的阴逼，AI队友已经尽力了，撑不过几秒钟就退场，剩我一个被围殴。当我知道还有第四波的时候果断退出，再也不碰这傻逼任务了。
 
+
+*****
+
+####  nagitoY  
+##### 3203#       发表于 2024-5-29 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043241&amp;ptid=2092342" target="_blank">asakura20005 发表于 2024-5-29 12:48</a>
+
+更新的多v多任务都是屎一样，尤其是永夜，感觉就是为了鼓励联机而做出来的一样。如果带了AI队友，那就请 ...</blockquote>
+带队友敌人的伤害和血量会增加吧？伤害我没测，但是血量是厚了不少的。永夜我暂时不想打，单人solo过了搭档们已经很不容易了，短期内不想再折磨自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

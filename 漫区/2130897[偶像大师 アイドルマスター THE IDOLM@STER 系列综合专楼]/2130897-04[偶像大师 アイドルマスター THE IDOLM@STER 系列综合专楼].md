@@ -7019,3 +7019,13 @@ s卡冠军那甚至够呛只有四个了吧<img src="https://static.saraba1st.co
 
 看来是土豆设计的了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">真的难看啊 
 
+
+*****
+
+####  Swss  
+##### 5102#       发表于 2024-5-29 19:28
+
+四个，估摸着是 安 迷光 嘘 黑星 这四组一人分一个了。
+
+如果真这样某两支老牌劲旅又无缘了
+

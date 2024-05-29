@@ -691,3 +691,17 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 20233#       发表于 2024-5-29 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043836&amp;ptid=2078110" target="_blank">we89623 发表于 2024-5-29 13:42</a>
+隔壁学院爱马仕7天流水顶莲一年的，我只能说好似。你拉手游质量什么时候能上点心 ...</blockquote>
+莲的那个并不是传统意义的游戏。
+
+不过代便给拉拉端出来的游戏确实令人无语。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -784,3 +784,16 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  我就再氪一单  
+##### 73#       发表于 2024-5-30 07:33
+
+ 本帖最后由 我就再氪一单 于 2024-5-30 07:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65044831&amp;ptid=2185326" target="_blank">amanohanei 发表于 2024-5-29 15:06</a>
+指环王是真的牛逼啊,小时候第一次看盗版盘一晚上连着看完三部曲
+
+以后有可能重置吗 ...</blockquote>
+重置啥？4K修复版本不是早就有了吗。你看看现在zzzq风潮，我反而觉得重置翻拍肯定是一坨，你是想要看到一个黑美人鱼跨跨干豆腐，还是想要一个墨裔流体取向佛罗多？
+

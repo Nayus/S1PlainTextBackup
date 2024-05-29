@@ -1079,3 +1079,15 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 感觉可能先整个3代dx，4代慢慢来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4543#       发表于 2024-5-30 02:26
+
+赛季制和目录又不可能取消，下下赛季搞不好就把第二贴牌塞目录里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+二周年也在下下赛季，乐观点说就是还有点盼头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3代的这种营销风格是真的讨人厌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -549,3 +549,16 @@
 论坛助手,iPhone ...</blockquote>
 开局用扔炸弹试试？四个应该能炸掉两个人大半管血
 
+
+*****
+
+####  nagitoY  
+##### 3213#       发表于 2024-5-30 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65052490&amp;ptid=2092342" target="_blank">nerugigannte 发表于 2024-5-30 09:46</a>
+
+玩到第二章末了，编剧是日奸吧，白皮塑造一个比一个理智，相反倒幕派和一群野人一样，甚至倒幕派鹰派头头还 ...</blockquote>
+打完第三章会告诉你大英帝国领袖萨道义入侵日本的理由是对这个国家爱得深沉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+光荣是不是太怂了不敢得罪白皮，最后的锅全都给搭档来背了
+

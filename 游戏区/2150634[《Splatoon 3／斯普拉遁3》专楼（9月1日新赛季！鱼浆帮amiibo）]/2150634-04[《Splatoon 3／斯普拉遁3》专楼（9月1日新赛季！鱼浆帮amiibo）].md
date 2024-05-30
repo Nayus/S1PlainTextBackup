@@ -1119,3 +1119,35 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 新补丁居然要改这么多图
 
+
+*****
+
+####  秋月孝三  
+##### 4547#       发表于 2024-5-30 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LACT强化！？
+
+*****
+
+####  幽香  
+##### 4548#       发表于 2024-5-30 09:18
+
+有些人提持续付费，但是却好像忘了这游戏玩家群体大部分是日本中小学生？
+
+*****
+
+####  紫菜粉丝煲  
+##### 4549#       发表于 2024-5-30 09:18
+
+雨帘做错了什么
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4550#       发表于 2024-5-30 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然要改这么多图，研究所憋这么久来个这么大的是吧
+
+雨帘好惨啊，怎么都针对雨帘
+

@@ -352,3 +352,43 @@ FAA发表声明，第三飞中不涉及公共安全。因此SpaceX可以在事�
 
 2024-5-29 12:45 上传
 
+
+*****
+
+####  commcody  
+##### 64#         楼主| 发表于 2024-5-30 20:47
+
+SpaceX官推发布了第二次湿彩排的照片。表示在第二次湿彩排中加注了超过1000万磅推进剂。目前最早发射日期仍为6月5日，但仍在等待发射许可。
+
+<img src="https://img.saraba1st.com/forum/202405/30/204601m45rwn1n0b0zjptj.jpg" referrerpolicy="no-referrer">
+
+<strong>GOwbR-VaIAEeP4W.jpg</strong> (400.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/204601xb6zqacctcckaocv.jpg" referrerpolicy="no-referrer">
+
+<strong>GOwbSkpbAAA3PKO.jpg</strong> (331.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/204601zgh8ihqgh8oiivq8.jpg" referrerpolicy="no-referrer">
+
+<strong>GOwbTjrboAAKBdg.jpg</strong> (638.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/204601wv7skjx6z494smj7.jpg" referrerpolicy="no-referrer">
+
+<strong>GOwbU9jbsAEKpEt.jpg</strong> (402.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 20:46 上传
+

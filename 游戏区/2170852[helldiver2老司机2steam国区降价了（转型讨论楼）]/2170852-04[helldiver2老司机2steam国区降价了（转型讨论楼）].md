@@ -4306,3 +4306,12 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  LT_Harry  
+##### 4829#       发表于 2024-5-31 01:52
+
+https://b23.tv/vgCnnAC
+打着打着就不爆虫群了，怪<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

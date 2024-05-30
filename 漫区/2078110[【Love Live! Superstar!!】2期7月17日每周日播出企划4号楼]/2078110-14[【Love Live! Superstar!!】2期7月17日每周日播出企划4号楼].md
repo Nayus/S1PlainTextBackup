@@ -889,3 +889,15 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 —— 来自 Sony XQ-DQ72, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不是，本来想去收个现货的一查怎么那么贵，我记得这个系列之前不都是600多吗。
 
+
+*****
+
+####  starring  
+##### 20251#       发表于 2024-5-30 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059263&amp;ptid=2078110" target="_blank">we89623 发表于 2024-5-30 19:47</a>
+不是，本来想去收个现货的一查怎么那么贵，我记得这个系列之前不都是600多吗。 ...</blockquote>
+你说的是星光序曲那套？600那是跌价后
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

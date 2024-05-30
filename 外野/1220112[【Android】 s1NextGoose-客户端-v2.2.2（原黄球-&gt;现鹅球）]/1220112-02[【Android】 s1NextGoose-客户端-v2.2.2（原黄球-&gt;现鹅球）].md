@@ -439,3 +439,25 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 Xiaomi Mi 10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  河水  
+##### 1608#       发表于 2024-5-30 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059074&amp;ptid=1220112" target="_blank">afer 发表于 2024-5-30 19:23</a>
+密码在哪找，我这个2.54回帖不会自动挪，头像也没了
+
+—— 来自 Xiaomi Mi 10, Android 13上的 S1Next-鹅 ...</blockquote>
+密码是eo
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ork  
+##### 1609#       发表于 2024-5-30 19:31
+
+有没有加群之外的更新方式
+

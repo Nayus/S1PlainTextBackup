@@ -7977,3 +7977,13 @@ s6第一个王者 太有含金量了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062126&amp;ptid=2130897" target="_blank">oznark 发表于 2024-5-31 01:42</a></blockquote>
 看到这图联想到莉莉娅现在有喜欢机器人动画的设定，感觉之后追加菌宅属性也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  馬斯特壺  
+##### 5191#       发表于 2024-5-31 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061995&amp;ptid=2130897" target="_blank">patema 发表于 2024-5-31 01:11</a>
+现在偶的吉祥物除开sc的恶魔太郎现实世界形态外，其他都是鞋垫玩意吧</blockquote>
+除了百万的卓柏卡布拉，哈姆藏皮喵太青蛙王子都不算邪典吧，学马的好印象领域大神星星人目前也就有点鬼畜，话说百万动画里的卓柏卡布拉cv打了问号，有人听出是谁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

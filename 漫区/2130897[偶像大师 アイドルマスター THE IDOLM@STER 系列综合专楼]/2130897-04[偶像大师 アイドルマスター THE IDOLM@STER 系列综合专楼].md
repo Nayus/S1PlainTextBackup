@@ -7925,3 +7925,11 @@ s6第一个王者 太有含金量了
 
 酸菜薯片第一还是第二个活动打完我就撑不住了，今天为了羽那挖矿挖到现在，21发十连才出，还好叶月储备够用
 
+
+*****
+
+####  Alleyht  
+##### 5186#       发表于 2024-5-31 00:55
+
+经日本网友提醒有点绷不住了，冠军铃木卡面剧情里那个“会赢哦”的路人叫hanako，而amn的中之人叫honoka<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

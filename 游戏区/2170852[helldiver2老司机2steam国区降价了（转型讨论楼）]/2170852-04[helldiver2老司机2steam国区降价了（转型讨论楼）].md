@@ -4238,3 +4238,46 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 
 因为有些人觉得机甲弱，所以出一个只有机甲能玩的爽的任务。妈妈滴，遍地虫子直接刷保护对象脸上，暗流体飞多了会炸，撤离无限刷飞龙，不敢想象箭头招了多少神经病到组里。
 
+
+*****
+
+####  ravend233  
+##### 4824#       发表于 2024-5-31 00:56
+
+常规打法打不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  xinfengj  
+##### 4825#       发表于 2024-5-31 00:58
+
+暗流体任务也太难了，要插三个钻机把暗流体注入进地下... 开了钻机之后海量的虫子直扑钻机去拆，还有牛和泰坦...探矿任务打不完可以绕，可以扔战备，但是这逼任务往矿机上扔战备会把矿机炸了...
+
+过了一把N9是俩电磁迫击炮仨机甲一堆炮台才过去的
+
+打完之后更刺激，遍地刷尖啸虫无穷无尽的刷，地下也遍地刷虫子，等飞机来的这段时间四个人在机场大死特死，最后只有俩人上了飞机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LT_Harry  
+##### 4826#       发表于 2024-5-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061751&amp;ptid=2170852" target="_blank">ddwhzh 发表于 2024-5-31 00:39</a>
+
+因为有些人觉得机甲弱，所以出一个只有机甲能玩的爽的任务。妈妈滴，遍地虫子直接刷保护对象脸上，暗流体飞 ...</blockquote>
+刚才通了难度 9 的暗流体任务，打了无数波虫突然就不刷虫群了，这样才侥幸完成任务。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+临撤离的时候突然漫天尖啸虫，最后一刻只剩我勉强成功撤离。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+结算的时候还出现了经典未完成任务的 bug，不过经验还是给了，奖章界面也标记为完成。
+
+<img src="https://img.saraba1st.com/forum/202405/31/005915wlpqplpfwrrf4p3d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (272.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 00:59 上传
+

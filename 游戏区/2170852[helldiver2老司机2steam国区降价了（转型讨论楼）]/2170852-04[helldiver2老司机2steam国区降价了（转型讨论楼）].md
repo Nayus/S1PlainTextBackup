@@ -4292,3 +4292,17 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 他竟然说12天推14个补丁的magika和现在这个摆烂的HD2相似，HD2从上线到现在几个月累计推的补丁有超过14个 ...</blockquote>
 讲道理，不管更新质量怎样，数量绝对有，二月刚发售的时候最少有 10 次更新，几乎每天上线前都在下载东西。到现在的话按每个月三次算下来也有近 20 个 patch 了。
 
+
+*****
+
+####  ravend233  
+##### 4828#       发表于 2024-5-31 01:19
+
+ 本帖最后由 ravend233 于 2024-5-31 01:20 编辑 
+
+这刷怪点直接在钻机边上，真的能打吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不刷泰坦和坦克虫还好说，钻机边上直接刷出来三个泰坦直接傻了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

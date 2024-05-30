@@ -353,3 +353,12 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  三谷歩夢  
+##### 1601#       发表于 2024-5-30 18:48
+
+问一下经常看不到帖子图片，要在浏览器打开才能看的问题有什么办法解决吗，更新了最新的alpha版还是这样
+感觉这问题好多年了
+

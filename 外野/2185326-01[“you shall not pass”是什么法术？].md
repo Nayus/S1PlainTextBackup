@@ -827,3 +827,13 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 
 贝伦、胡林、图奥和努美诺尔诸王的故事版权小托到死都没放手，可预见的未来托尔金基金会也不会放出来了。
 
+
+*****
+
+####  starash  
+##### 76#       发表于 2024-5-30 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65045292&amp;ptid=2185326" target="_blank">lyt777 发表于 2024-5-29 15:41</a>
+ 看懂的得四张了。</blockquote>
+啊朋友再见～
+

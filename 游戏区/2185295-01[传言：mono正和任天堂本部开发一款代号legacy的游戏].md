@@ -400,3 +400,13 @@ legacy也可能是岩田聪的legacy<img src="https://static.saraba1st.com/image
 
 就不能学a社搞个xbx完全版吗？
 
+
+*****
+
+####  cxasuka  
+##### 48#       发表于 2024-5-30 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65045776&amp;ptid=2185295" target="_blank">ネコカイザー 发表于 2024-5-29 16:21</a>
+周五去做mono的笔试，祝我成功</blockquote>
+舅舅！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

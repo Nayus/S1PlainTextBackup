@@ -774,3 +774,45 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 这个还真是看音监，唐可可虽说并不算多出彩但是也没啥毛病，1999的日版配音就属于是从上到下都不用心导致出 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前鱼说1999后面新录的好点，不过也没有去看了
 
+
+*****
+
+####  ruffian  
+##### 20242#       发表于 2024-5-29 23:56
+
+灰毛的凝聚力，指四代灰毛全扎堆在第二第三了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  we89623  
+##### 20243#       发表于 2024-5-29 23:59
+
+纯 欲 天 花 板 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我感觉这词是鲤鱼自己加上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  靡宜  
+##### 20244#       发表于 2024-5-30 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65014642&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-5-27 07:41</a>
+
+这个还真是看音监，唐可可虽说并不算多出彩但是也没啥毛病，1999的日版配音就属于是从上到下都不用心导致出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前鱼说1999后面新录的好点，不过也没有去看了
+
+*****
+
+####  奥柏伦亲王  
+##### 20245#       发表于 2024-5-30 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050898&amp;ptid=2078110" target="_blank">靡宜 发表于 2024-5-30 01:06</a>
+之前鱼说1999后面新录的好点，不过也没有去看了</blockquote>
+9这个游戏中配日配都不用心，还是得听英配
+
+其实如果鱼配音水平很好的话直接中日英三语都可以配的，只配了日版说明大概也就是当个噱头吧...
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

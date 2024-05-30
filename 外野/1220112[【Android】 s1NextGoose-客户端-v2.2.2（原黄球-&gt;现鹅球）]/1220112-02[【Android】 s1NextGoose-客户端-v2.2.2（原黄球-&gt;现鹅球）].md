@@ -540,3 +540,24 @@ targetSdkVersion是34 (Android 14)
 
 —— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  河水  
+##### 1617#       发表于 2024-5-30 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65060939&amp;ptid=1220112" target="_blank">gstsg 发表于 2024-5-30 23:00</a>
+偶尔会有抽风看别人回复的帖子变这样
+
+—— 来自 OnePlus LE2120, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+旧版s1有个自动繁转简的功能，他们用脚本绕过机制发帖，现在s1取消转换就变成这样了
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Herreimu  
+##### 1618#       发表于 2024-5-30 23:10
+
+试试 乾隆 著作 憂鬱的臺灣烏龜
+

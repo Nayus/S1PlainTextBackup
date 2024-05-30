@@ -10153,3 +10153,26 @@ wsd衣品真的有问题，很多衣服不好评价
 
 看了一些团的调价，这能下得了口吗
 
+
+*****
+
+####  [皆神孝介]  
+##### 17187#       发表于 2024-5-30 23:11
+
+推荐一下S1第三方客户端“ S1Next-鹅版 v3.0.0.81-alpha”
+
+先放地址 [https://www.pgyer.com/xfPejhuq](https://www.pgyer.com/xfPejhuq) 密码eo    &lt;——这个链接应该会放后续的更新
+
+其他版块的推荐主题：
+
+强烈推荐鹅球升级到 3.0.0.81alpha
+[https://bbs.saraba1st.com/2b/thread-2185547-1-1.html](https://bbs.saraba1st.com/2b/thread-2185547-1-1.html) <blockquote>以下是我体感的更新：
+
+1，适配每页 40 楼（tp 支援不会走错路了）
+
+2，头像显示（战友们，隐身）
+
+3，个人回帖历史（10 分钟经济，我前期那么肥）
+
+4，可以查看小黑屋（这里的 doto 很纯粹）</blockquote>
+

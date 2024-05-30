@@ -376,3 +376,54 @@ day1うるかしゃるるあかいぬ
 
 颜色好厚的感觉，不过整体看上去比第一版3D强。
 
+
+*****
+
+####  sino__unnko3  
+##### 16483#       发表于 2024-5-30 23:01
+
+这次的新3D宣传封面就像是——
+
+<img src="https://img.saraba1st.com/forum/202405/30/230115gbm5d7b50b2d4m7m.png" referrerpolicy="no-referrer">
+
+<strong>Image_1717081140249.png</strong> (237.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-30 23:01 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/230121prr7vzrxcsx7xsel.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-30-22-58-28-389_com.miui.voiceassist-edit.jpg</strong> (182.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-30 23:01 上传
+
+（有端联想）
+
+*****
+
+####  yywzjsw  
+##### 16484#       发表于 2024-5-30 23:08
+
+新3d不换个衣服吗
+
+
+*****
+
+####  makourisu-2  
+##### 16485#       发表于 2024-5-30 23:11
+
+怎么突然弄个3d出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我先放个不安在这里<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 16486#       发表于 2024-5-30 23:11
+
+没看到军大衣。
+

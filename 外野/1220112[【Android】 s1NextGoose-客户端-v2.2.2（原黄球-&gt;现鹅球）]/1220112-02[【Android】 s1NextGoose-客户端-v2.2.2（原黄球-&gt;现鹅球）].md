@@ -492,3 +492,15 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 安卓6可以安装但无法使用，打开提示发生未知错误，猜测使用的第三方库版本不支持安卓6
 
+
+*****
+
+####  闻道沐心  
+##### 1613#       发表于 2024-5-30 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059916&amp;ptid=1220112" target="_blank">shinzero 发表于 2024-5-30 21:05</a>
+安卓6可以安装但无法使用，打开提示发生未知错误，猜测使用的第三方库版本不支持安卓6 ...</blockquote>
+API到30了，安卓6肯定不支持了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

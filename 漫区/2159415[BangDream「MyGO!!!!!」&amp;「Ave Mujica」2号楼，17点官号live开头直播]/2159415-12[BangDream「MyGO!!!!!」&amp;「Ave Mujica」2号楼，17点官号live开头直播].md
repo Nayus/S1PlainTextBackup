@@ -10050,3 +10050,28 @@ R组 Rosenchor 上海追加公演
 
 参考213期蝶全员和今天这期，6.13应该就是鸡全员了。
 
+
+*****
+
+####  rikaren  
+##### 17176#       发表于 2024-5-30 22:06
+
+<img src="https://img.saraba1st.com/forum/202405/30/220545ialqs8q40ckm2s04.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-05-30-22-05-20-98_149003a2d400f6adb210d7e357a3a646.jpg</strong> (360.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 22:05 上传
+
+好消息：不是海日
+
+坏消息：这是？
+
+*****
+
+####  NODY  
+##### 17177#       发表于 2024-5-30 22:11
+
+我服了，立希摆个ooc姿势卖肉也就算了，连泳衣都这么丑，官方真有内部黑吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

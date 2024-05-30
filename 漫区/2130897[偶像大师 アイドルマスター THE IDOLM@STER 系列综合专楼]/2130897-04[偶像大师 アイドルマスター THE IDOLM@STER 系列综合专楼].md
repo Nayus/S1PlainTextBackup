@@ -7436,3 +7436,11 @@ sc页游p卡这是羽那？还是嘘...婚纱四连发还行
 
 只有页游P卡才是正统宣称<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">，其他只是安慰奖
 
+
+*****
+
+####  Swss  
+##### 5134#       发表于 2024-5-30 11:38
+
+定制冠军没有含金量，批发冠军更没有含金量<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

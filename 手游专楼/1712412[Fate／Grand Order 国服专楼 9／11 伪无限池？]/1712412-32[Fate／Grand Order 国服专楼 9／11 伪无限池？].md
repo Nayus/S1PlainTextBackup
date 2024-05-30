@@ -195,3 +195,17 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 自回体还没10池呢，怎么一眨眼三期了
 
+
+*****
+
+####  xy1041  
+##### 46403#       发表于 2024-5-30 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65048961&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-5-29 20:54</a>
+自回体还没10池呢，怎么一眨眼三期了</blockquote>
+因为三期比一二期加起来都长
+这8天
+我都怕我苹果一半就吃完了后面手痒开始吃圣晶石<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

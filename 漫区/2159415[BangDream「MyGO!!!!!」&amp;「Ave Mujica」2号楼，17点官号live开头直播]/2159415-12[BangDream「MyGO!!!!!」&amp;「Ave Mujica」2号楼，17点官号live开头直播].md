@@ -10020,3 +10020,33 @@ R组 Rosenchor 上海追加公演
 
 希望场子大一点（）
 
+
+*****
+
+####  PDQ4  
+##### 17173#       发表于 2024-5-30 22:00
+
+继续奶6.13鸡五人，这个能不能也学一下萝<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 17174#       发表于 2024-5-30 22:01
+
+219
+
+<img src="https://img.saraba1st.com/forum/202405/30/220109bydlilc8l4o7ida4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240530215823.png</strong> (330.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 22:01 上传
+
+*****
+
+####  rikaren  
+##### 17175#       发表于 2024-5-30 22:03
+
+参考213期蝶全员和今天这期，6.13应该就是鸡全员了。
+

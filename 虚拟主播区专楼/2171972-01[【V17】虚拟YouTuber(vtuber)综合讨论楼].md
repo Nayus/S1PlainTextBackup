@@ -169,3 +169,11 @@ vlt开始4+4+4+1+3太多了，而且虹男一军势头正盛体感女粉都引�
 
 VTA变成了人力舍，吉本之类的搞笑艺人事务所并且专心搞漫才组合了？
 
+
+*****
+
+####  cckuku  
+##### 252#       发表于 2024-5-30 22:00
+
+但是石神不仅出谷频率低，而且画的都不好看，出道那么久我只收了两个亲妈谷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

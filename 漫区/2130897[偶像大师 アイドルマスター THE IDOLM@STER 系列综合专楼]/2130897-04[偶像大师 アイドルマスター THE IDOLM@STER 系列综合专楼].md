@@ -7955,3 +7955,25 @@ s6第一个王者 太有含金量了
 
 现在偶的吉祥物除开sc的恶魔太郎现实世界形态外，其他都是鞋垫玩意吧
 
+
+*****
+
+####  oznark  
+##### 5189#       发表于 2024-5-31 01:42
+
+<img src="https://img.saraba1st.com/forum/202405/30/104246c3uf1bxzholafb2c.png" referrerpolicy="no-referrer">
+
+<strong>%4]_@]]%0MU42OX0P0V57]6.png</strong> (255.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 01:42 上传
+
+*****
+
+####  Kasuga_Mirai  
+##### 5190#       发表于 2024-5-31 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062126&amp;ptid=2130897" target="_blank">oznark 发表于 2024-5-31 01:42</a></blockquote>
+看到这图联想到莉莉娅现在有喜欢机器人动画的设定，感觉之后追加菌宅属性也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

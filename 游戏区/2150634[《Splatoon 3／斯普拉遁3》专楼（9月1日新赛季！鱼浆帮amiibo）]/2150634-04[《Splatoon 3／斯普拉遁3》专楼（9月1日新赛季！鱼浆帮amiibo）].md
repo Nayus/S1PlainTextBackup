@@ -1319,3 +1319,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4570#       发表于 2024-5-30 16:33
+
+长热泡那个手感不是经常用的人根本习惯不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -525,3 +525,14 @@
 这个版本是最终的了吧，轮椅流派是什么</blockquote>
 第一轮椅太刀的影雾幻，经过了最难的极夜考验，全程1打3无石火
 
+
+*****
+
+####  黑修士  
+##### 3211#       发表于 2024-5-30 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65052331&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-5-30 09:30</a>
+
+这个版本是最终的了吧，轮椅流派是什么</blockquote>
+不好说，四件武器还没有双恩宠，龙虎之后说不定再来个天地<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

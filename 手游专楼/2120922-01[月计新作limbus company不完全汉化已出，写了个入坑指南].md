@@ -339,3 +339,24 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 中指末兄打得我ipad都快冒烟了，然后进了白鲸胃里后彻底推图推不动一点了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 718#       发表于 2024-5-30 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65050192&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-29 23:18</a>
+
+中指末兄打得我ipad都快冒烟了，然后进了白鲸胃里后彻底推图推不动一点了</blockquote>
+小镇赵子龙岂是徒有虚名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+第五章boss战的难度比之前有明显提升，三个异想体战：陆行珍珠在它想吃粘液时把粘液打爆、人皮先知把蜡烛点燃后再集火本体（简单来说就是不打有反击的单位），喰梦浊流把荧光灯打残后让它吃了减血量慢慢拼死。
+
+结尾大战机制有点复杂，打不动建议去B站查攻略。
+
+第六章如果能肝出通行证最后那个希斯克利夫的拘束ego会很好打，甚至最终boss可以靠ego侵蚀单刷。不过本章是在开了45级的基础上出的，前期杂兵战都比较吃配置...
+
+新人力所能及慢慢打就行，第六章我感觉演出和剧情是目前最赞的，可能是因为原著就比较癫...
+
+话说第五章通关后，万一三号线维护结束，可以试着进去打一下，每过一站都有奖励，买了门票后随时可以领。四号线开了后奖励就刷新没了。
+

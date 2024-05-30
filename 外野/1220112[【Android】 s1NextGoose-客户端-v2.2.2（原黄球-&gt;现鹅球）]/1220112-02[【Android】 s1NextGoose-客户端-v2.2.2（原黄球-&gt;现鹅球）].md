@@ -362,3 +362,52 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 问一下经常看不到帖子图片，要在浏览器打开才能看的问题有什么办法解决吗，更新了最新的alpha版还是这样
 感觉这问题好多年了
 
+
+*****
+
+####  芜湖挨宰  
+##### 1602#       发表于 2024-5-30 19:04
+
+我这个尾巴是最新版了吗？
+老是闪退是什么原因？
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  芜湖挨宰  
+##### 1603#       发表于 2024-5-30 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058919&amp;ptid=1220112" target="_blank">芜湖挨宰 发表于 2024-5-30 19:04</a>
+我这个尾巴是最新版了吗？
+老是闪退是什么原因？</blockquote>
+更新了，希望不要闪退了
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
+
+*****
+
+####  ykrank  
+##### 1604#         楼主| 发表于 2024-5-30 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058932&amp;ptid=1220112" target="_blank">芜湖挨宰 发表于 2024-5-30 19:06</a>
+更新了，希望不要闪退了
+
+—— 来自 Sony XQ-AS72, Android 12上的 S1Next-鹅版 v3.0.0.80-alpha ...</blockquote>
+最新的alpha是3.0.0.81吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://www.pgyer.com/xfPejhuq) v3.0.0.81-debug
+
+*****
+
+####  河水  
+##### 1605#       发表于 2024-5-30 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058932&amp;ptid=1220112" target="_blank">芜湖挨宰 发表于 2024-5-30 19:06</a>
+更新了，希望不要闪退了
+
+—— 来自 Sony XQ-AS72, Android 12上的 S1Next-鹅版 v3.0.0.80-alpha ...</blockquote>
+最新是81
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

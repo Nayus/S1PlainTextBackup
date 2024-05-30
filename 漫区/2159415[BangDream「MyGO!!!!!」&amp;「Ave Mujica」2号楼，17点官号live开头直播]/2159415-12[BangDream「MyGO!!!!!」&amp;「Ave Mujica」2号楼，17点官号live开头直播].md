@@ -9879,3 +9879,11 @@ wsd最好别把鸡玩没了，2nd后能不能再来一次<img src="https://stati
 
 <img src="https://p.sda1.dev/17/6cf365731e0f8cad3cc1a4544c518bdf/CMP_20240530174025823.jpg" referrerpolicy="no-referrer">https://x.com/sigangsan/status/1796008855585133005
 
+
+*****
+
+####  rikaren  
+##### 17161#       发表于 2024-5-30 18:56
+
+李子这直播…不会下次直播还测试不好吧
+

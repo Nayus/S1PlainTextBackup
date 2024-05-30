@@ -7767,3 +7767,23 @@ s6第一个王者 太有含金量了
 
 这就是我们绝对纯白领域的含金量
 
+
+*****
+
+####  Alleyht  
+##### 5171#       发表于 2024-5-30 20:25
+
+ 本帖最后由 Alleyht 于 2024-5-30 20:28 编辑 
+
+我输了，输给了铃木羽那，明知道后面马上就要有暮光池甚至是暮光婚纱等着我，却还是挥霍了400连在冠军铃木的池子里，只为了那块“结婚铃木”的牌子，我输了，输得一败涂地<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+现在手上只剩2次天井的羽石，也已经决定过不再给狗代氪金了，拜托了小高，不要重复haruki的悲剧，铃木连打，绝对，不行<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 5172#       发表于 2024-5-30 20:34
+
+小高真没活了吧，别死好嘛
+

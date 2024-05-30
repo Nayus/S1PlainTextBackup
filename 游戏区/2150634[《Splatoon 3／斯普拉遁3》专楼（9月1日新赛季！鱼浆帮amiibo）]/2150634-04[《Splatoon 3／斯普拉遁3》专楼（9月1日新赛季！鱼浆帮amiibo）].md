@@ -1291,3 +1291,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 斗技场大战金工400分野人，金工完了还给一期这么不错的普通配置
 
+
+*****
+
+####  NOSbeam  
+##### 4567#       发表于 2024-5-30 13:44
+
+连发手柄控制一下连发速度不也没啥影响么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

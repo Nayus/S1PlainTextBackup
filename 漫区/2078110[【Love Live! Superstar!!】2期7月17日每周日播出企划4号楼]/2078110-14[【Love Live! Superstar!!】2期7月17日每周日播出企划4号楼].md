@@ -857,3 +857,13 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  KirigawaMaki  
+##### 20248#       发表于 2024-5-30 12:04
+
+挂系列名应该不会只有单团来吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -410,3 +410,15 @@ legacy也可能是岩田聪的legacy<img src="https://static.saraba1st.com/image
 周五去做mono的笔试，祝我成功</blockquote>
 舅舅！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cxasuka  
+##### 49#       发表于 2024-5-30 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65048635&amp;ptid=2185295" target="_blank">血狂毘沙门 发表于 2024-5-29 20:18</a>
+反了 xg才最不可能吧
+
+xs之前不都合作过两波了么</blockquote>
+为了拯救股价暴跌的se，xg决定成为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

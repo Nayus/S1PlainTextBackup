@@ -20,3 +20,13 @@ mihon能双页显示吗</blockquote>
 
 —— 来自 Xiaomi 24031PN0DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  芜湖挨宰  
+##### 237#       发表于 2024-5-31 07:03
+
+mihon没有双页显示
+cdisplayex没有自动切分单页显示
+实在不明白开发者怎么想的
+

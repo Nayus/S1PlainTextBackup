@@ -10114,3 +10114,34 @@ R组 Rosenchor 上海追加公演
 
 抛开图丑以外，你邦出周边还都很保守，审美挺劳保的，能怎么办呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17183#       发表于 2024-5-30 22:48
+
+感觉今年以来衣服设计有点难评，今年2月初go团的wego衣服就……我只好奇为什么立希谷价居然没跌穿。翻前年几年的wego联动只能说上限和下限都远远比go那次的高。
+
+*****
+
+####  星空冻结  
+##### 17184#       发表于 2024-5-30 22:52
+
+wsd衣品真的有问题，很多衣服不好评价
+
+
+*****
+
+####  NODY  
+##### 17185#       发表于 2024-5-30 22:55
+
+还是老外够直球，丑逼暴露服装+ooc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202405/30/225523s12k031v10p3udpp.png" referrerpolicy="no-referrer">
+
+<strong>无标题4.png</strong> (133.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 22:55 上传
+

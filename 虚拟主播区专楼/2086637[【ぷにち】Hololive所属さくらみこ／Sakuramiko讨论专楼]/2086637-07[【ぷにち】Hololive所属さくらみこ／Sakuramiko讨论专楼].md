@@ -273,3 +273,21 @@
 
 压倒性
 
+
+*****
+
+####  holoan  
+##### 8904#         楼主| 发表于 2024-5-30 23:34
+
+<img src="https://img.saraba1st.com/forum/202405/30/233036idtievedhq1t4e3e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 23:30 上传
+
+我现在才发觉这个SC，简直太直白了，问题太大了，miko回应这个SC的难度太大了
+
+关键是粉丝里面竟然有这么SB的人，或者说这么没有情商的这种公司个人机密级的问题直接打个SC问得到的？
+

@@ -514,3 +514,14 @@
 
 玩到第二章末了，编剧是日奸吧，白皮塑造一个比一个理智，相反倒幕派和一群野人一样，甚至倒幕派鹰派头头还有倒戈倾向，极度怀疑就是故意在引导玩家
 
+
+*****
+
+####  focus  
+##### 3210#       发表于 2024-5-30 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65052331&amp;ptid=2092342" target="_blank">godless2020 发表于 2024-5-30 09:30</a>
+
+这个版本是最终的了吧，轮椅流派是什么</blockquote>
+第一轮椅太刀的影雾幻，经过了最难的极夜考验，全程1打3无石火
+

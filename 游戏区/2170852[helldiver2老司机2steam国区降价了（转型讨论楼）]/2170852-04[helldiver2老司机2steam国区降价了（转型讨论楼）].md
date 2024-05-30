@@ -4146,3 +4146,30 @@ ac自动炮应该不是6穿，而是直击有100%的部位破坏</blockquote>
 能用确实能用，但是再怎么说一次任务只能用两次，可替代的东西不少。</blockquote>
 现在战备功能上就这些东西了，绝大部分战备都是一锤子买卖，要么就是像机炮炮台这种对部署的时机和位置要求极高，机甲是个可选项，我觉得现在打虫子属于选什么都可以，你说你带个激光丢出去，正好钻出一个泰坦，这激光也就等于没啥作用，但是激光能不能带，一样能带
 
+
+*****
+
+####  xinfengj  
+##### 4814#       发表于 2024-5-29 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65041052&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-5-29 10:12</a>
+
+能叫机甲的时候一不一定有怪杀，有怪杀的时候机甲又可能在CD或者只是普通的一次虫巢，两次机甲叫完这个战 ...</blockquote>
+闪电战一个机甲换个重巢超值了
+
+*****
+
+####  FLZB  
+##### 4815#       发表于 2024-5-30 10:15
+
+byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源，让你们带多了会影响游戏性能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兰开夏  
+##### 4816#       发表于 2024-5-30 10:36
+
+这引擎绝了
+
+瑞典老乡坑老乡的典型。就看sony愿意为这个沉船额外投入多少资源来开发了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -1199,3 +1199,11 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 三岗是三倍鳞片，不知道会不会和大润的2倍叠加
 
+
+*****
+
+####  Variks  
+##### 4557#       发表于 2024-5-30 09:48
+
+削连发手柄了，话说香槟半自动模式是多少RPM来着？以前好像看到过是450RPM，感觉不是普通人能点出来的速度，我最多只能点300RPM左右<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

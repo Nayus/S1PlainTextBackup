@@ -115,3 +115,13 @@
 
 动画的优势主要还是cv，尤其是美雪太太那种贱兮兮的声线<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 103#       发表于 2024-5-30 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65049638&amp;ptid=2143170" target="_blank">SlashShou4 发表于 2024-5-29 23:12</a>
+第八集看到片段入坑了，我要从头开始补动画吗还是先从漫画开始比较好。</blockquote>
+强烈建议直接看漫画第一部，镜头语言和笑点值得一看
+

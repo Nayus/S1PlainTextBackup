@@ -373,3 +373,26 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 四号线大概什么时候开啊，我三号线打到血棉花就打不动了。查攻略说棉花弱斩击耐突刺，但是我一水的突刺人格orz
 
+
+*****
+
+####  Jamaisvu  
+##### 720#       发表于 2024-5-30 19:21
+
+<blockquote>kurihayn 发表于 2024-5-30 18:43
+四号线大概什么时候开啊，我三号线打到血棉花就打不动了。查攻略说棉花弱斩击耐突刺，但是我一水的突刺人 ...</blockquote>
+二号线是23年九月中旬开始、24年2月初关闭，为期4.5个月，以此估计四号线可能在六月中下旬开始吧。
+
+之前还要先出一个T社的间章：
+
+<img src="https://img.saraba1st.com/forum/202405/30/191856db1u63jupkek2k13.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>192542tb1h0h3hbln0bn2l.webp</strong> (109.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-30 19:18 上传
+
+话说第六章的赛季主角人格可能会在四号线开启一周后实装，第五章的船长玛丽就是2.8出的...
+

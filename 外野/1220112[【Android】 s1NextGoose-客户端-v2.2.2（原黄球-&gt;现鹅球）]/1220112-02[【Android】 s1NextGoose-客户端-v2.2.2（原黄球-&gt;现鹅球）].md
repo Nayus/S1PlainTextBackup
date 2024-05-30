@@ -411,3 +411,31 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 —— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  芜湖挨宰  
+##### 1606#       发表于 2024-5-30 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058939&amp;ptid=1220112" target="_blank">ykrank 发表于 2024-5-30 19:07</a>
+最新的alpha是3.0.0.81吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v3.0.0.81-debug ...</blockquote>
+我错了，这就加群<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
+
+
+*****
+
+####  afer  
+##### 1607#       发表于 2024-5-30 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058939&amp;ptid=1220112" target="_blank">ykrank 发表于 2024-5-30 19:07</a>
+最新的alpha是3.0.0.81吧
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v3.0.0.81-debug ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">密码在哪找，我这个2.54回帖不会自动挪，头像也没了
+
+—— 来自 Xiaomi Mi 10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1207,3 +1207,14 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 削连发手柄了，话说香槟半自动模式是多少RPM来着？以前好像看到过是450RPM，感觉不是普通人能点出来的速度，我最多只能点300RPM左右<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4558#       发表于 2024-5-30 09:59
+
+短弓蓄力和洗洁精一样了，大加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+温泉鳗鲶区大峡谷这老三样居然一次全改，早干嘛了非得一憋憋两年<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

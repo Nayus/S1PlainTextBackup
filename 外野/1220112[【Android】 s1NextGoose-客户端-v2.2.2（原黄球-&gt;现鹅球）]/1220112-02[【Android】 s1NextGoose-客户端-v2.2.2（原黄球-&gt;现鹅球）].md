@@ -461,3 +461,26 @@ https://mega.nz/file/ZFtFxKZC#yKWn1U4l8daToY5vu9HlmJJKa7QKA2dMOWPLcpYRKVQ</block
 
 有没有加群之外的更新方式
 
+
+*****
+
+####  蒜灵  
+##### 1610#       发表于 2024-5-30 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058805&amp;ptid=1220112" target="_blank">三谷歩夢 发表于 2024-5-30 18:48</a>
+问一下经常看不到帖子图片，要在浏览器打开才能看的问题有什么办法解决吗，更新了最新的alpha版还是这样
+感 ...</blockquote>
+因为很多图床只支持HTTPS，而鹅球强制图片使用HTTP
+
+
+*****
+
+####  闻道沐心  
+##### 1611#       发表于 2024-5-30 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059139&amp;ptid=1220112" target="_blank">ork 发表于 2024-5-30 19:31</a>
+有没有加群之外的更新方式</blockquote>
+后面更新放蒲公英了https://www.pgyer.com/xfPejhuq 密码eo
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

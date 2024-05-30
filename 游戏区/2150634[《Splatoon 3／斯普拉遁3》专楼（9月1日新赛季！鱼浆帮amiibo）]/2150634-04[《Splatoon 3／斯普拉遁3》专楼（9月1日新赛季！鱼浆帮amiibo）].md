@@ -1218,3 +1218,34 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 4559#       发表于 2024-5-30 10:16
+
+通行证/目录模式放喷里就是失败的
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  罗克萨斯  
+##### 4560#       发表于 2024-5-30 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65052512&amp;ptid=2150634" target="_blank">Variks 发表于 2024-5-30 09:48</a>
+
+削连发手柄了，话说香槟半自动模式是多少RPM来着？以前好像看到过是450RPM，感觉不是普通人能点出来的速度 ...</blockquote>
+我状态好时可以打满上限，玩两个小时没问题。不过只要搁一段时间不用，连打速度就会骤降，所以我放弃香槟了
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4561#       发表于 2024-5-30 10:20
+
+失败+1，包括那什么gacha，塞箱子的各种时尚小垃圾真的没有人关注
+地图改修更大的原因可能是新刀强度太超模了吧，要不然实在想不出来为什么不放在以前的赛季，一个赛季修2张图这样的模式
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

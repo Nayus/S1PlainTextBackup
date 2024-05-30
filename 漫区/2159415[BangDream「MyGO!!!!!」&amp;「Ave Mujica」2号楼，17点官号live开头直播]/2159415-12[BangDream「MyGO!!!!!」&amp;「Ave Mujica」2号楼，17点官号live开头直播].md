@@ -9820,3 +9820,13 @@ https://forum.gamer.com.tw/C.php?bsn=31877&amp;snA=6745
 
 仔细想来live上的小剧场虽然也很癫狂，但是跟解密活动比起来还是味淡了
 
+
+*****
+
+####  PDQ4  
+##### 17154#       发表于 2024-5-30 13:57
+
+感觉很能理解13集后破防的人了，我就冰山一撇解密活动都对纯商业出道有点小失望，不敢想沉迷解密活动的看到答案只是演出造势什么落差
+
+wsd最好别把鸡玩没了，2nd后能不能再来一次<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

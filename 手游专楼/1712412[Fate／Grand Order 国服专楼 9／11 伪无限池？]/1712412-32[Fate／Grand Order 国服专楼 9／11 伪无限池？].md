@@ -227,3 +227,11 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  shimotsuki14  
+##### 46406#       发表于 2024-5-30 21:13
+
+你们还能这么刷无限池啊，太牛逼了
+

@@ -3414,3 +3414,11 @@ GTAV
 
 -SIE宣布PS5为历史上最具盈利能力的一代，在PS5发布后的四年中，创造了16兆日元的收入，与PS4七年收入的差距缩小至约800亿日元。不过，由于疫情影响导致的成本增加，支出也创下了历史新高
 
+
+*****
+
+####  椎名mahuyo  
+##### 355#       发表于 2024-5-30 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">PS+老用户喜获铁血索狗待遇，没任何续费优惠一周年了
+

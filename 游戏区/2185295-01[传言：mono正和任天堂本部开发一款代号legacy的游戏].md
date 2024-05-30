@@ -422,3 +422,11 @@ legacy也可能是岩田聪的legacy<img src="https://static.saraba1st.com/image
 xs之前不都合作过两波了么</blockquote>
 为了拯救股价暴跌的se，xg决定成为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  woaimiyabi  
+##### 50#       发表于 2024-5-30 08:17
+
+xg别想了 se不会轻易授权的
+

@@ -1173,3 +1173,29 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">居然一点都没有长热炮的削弱
 
+
+*****
+
+####  罗克萨斯  
+##### 4554#       发表于 2024-5-30 09:39
+
+研究所内部热门武器大概有这些：4K、长热泡、小绿、52、电锯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KBAC  
+##### 4555#       发表于 2024-5-30 09:40
+
+三纲有徽章，看来是常驻了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  墨染白泉  
+##### 4556#       发表于 2024-5-30 09:42
+
+三岗是三倍鳞片，不知道会不会和大润的2倍叠加
+

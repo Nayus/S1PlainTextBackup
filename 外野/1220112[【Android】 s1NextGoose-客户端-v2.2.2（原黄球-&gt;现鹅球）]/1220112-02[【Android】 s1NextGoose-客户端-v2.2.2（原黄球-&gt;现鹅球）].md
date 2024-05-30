@@ -504,3 +504,27 @@ API到30了，安卓6肯定不支持了啊<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  shinzero  
+##### 1614#       发表于 2024-5-30 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65060137&amp;ptid=1220112" target="_blank">闻道沐心 发表于 2024-5-30 21:32</a>
+
+API到30了，安卓6肯定不支持了啊
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v3.0.0.81- ...</blockquote>
+targetSdkVersion是34 (Android 14)
+
+但是minSdkVersion还是23 (Android 6.0)，所以安卓6还能安装 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  螺纹  
+##### 1615#       发表于 2024-5-30 21:49
+
+试试，总算不会自动返回了
+
+—— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

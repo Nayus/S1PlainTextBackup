@@ -9946,3 +9946,77 @@ resize_image.jpg
 
 lock的可爱
 
+
+*****
+
+####  燐燐開花  
+##### 17165#       发表于 2024-5-30 21:49
+
+woc上海追加
+
+*****
+
+####  御幸一也  
+##### 17166#       发表于 2024-5-30 21:49
+
+哇
+
+<img src="https://img.saraba1st.com/forum/202405/30/214954ktxc1gtoxdtt2dtn.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #218 58-54 screenshot.png</strong> (2.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 21:49 上传
+
+
+*****
+
+####  PDQ4  
+##### 17167#       发表于 2024-5-30 21:50
+
+8月r组上海，漏油又要全变敌人了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 17168#       发表于 2024-5-30 21:51
+
+R组 Rosenchor 上海追加公演
+
+<img src="https://img.saraba1st.com/forum/202405/30/215055tua7wn0l575oa3w0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240530215038.png</strong> (377.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 21:50 上传
+
+*****
+
+####  rikaren  
+##### 17169#       发表于 2024-5-30 21:54
+
+小心**海日
+
+*****
+
+####  rikaren  
+##### 17170#       发表于 2024-5-30 21:54
+
+小 心 海 日
+
+*****
+
+####  PDQ4  
+##### 17171#       发表于 2024-5-30 21:55
+
+又是海日吗，别还是千人场吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 17172#       发表于 2024-5-30 21:55
+
+希望场子大一点（）
+

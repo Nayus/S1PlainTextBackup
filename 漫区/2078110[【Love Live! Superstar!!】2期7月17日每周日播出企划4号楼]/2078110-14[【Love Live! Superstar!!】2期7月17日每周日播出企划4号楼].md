@@ -816,3 +816,44 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  renkan119  
+##### 20246#       发表于 2024-5-30 11:49
+
+风纪委员长是这副模样的也难怪百合丘风纪没救了
+
+<img src="https://img.saraba1st.com/forum/202405/30/114913kr1ysbf173b17311.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7652.jpeg</strong> (492.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 11:49 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/114914kra1631ffubr67pa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7653.jpeg</strong> (455.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 11:49 上传
+
+<img src="https://img.saraba1st.com/forum/202405/30/114914o3960b03b76l7k47.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7651.jpeg</strong> (482.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 11:49 上传
+
+*****
+
+####  ruffian  
+##### 20247#       发表于 2024-5-30 11:53
+
+有没有可能是五个团分别出点人？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

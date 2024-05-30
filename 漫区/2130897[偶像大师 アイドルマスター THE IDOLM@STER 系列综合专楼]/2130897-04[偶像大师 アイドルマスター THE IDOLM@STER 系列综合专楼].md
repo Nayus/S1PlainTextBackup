@@ -7444,3 +7444,28 @@ sc页游p卡这是羽那？还是嘘...婚纱四连发还行
 
 定制冠军没有含金量，批发冠军更没有含金量<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anki16A  
+##### 5135#       发表于 2024-5-30 11:45
+
+甚至是手游，甚至是批发，甚至是S卡，甚至还有的不是限定<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+好玩吗小高，反正我是被创似了
+
+*****
+
+####  真实之影  
+##### 5136#       发表于 2024-5-30 11:49
+
+页游这边真是羽那了？
+
+
+*****
+
+####  微尘众  
+##### 5137#       发表于 2024-5-30 11:50
+
+就羽那啊，立绘和小人都出来了
+

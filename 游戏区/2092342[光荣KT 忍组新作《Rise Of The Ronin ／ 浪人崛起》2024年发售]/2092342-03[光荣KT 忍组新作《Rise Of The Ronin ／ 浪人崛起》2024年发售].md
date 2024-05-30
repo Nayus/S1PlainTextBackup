@@ -536,3 +536,16 @@
 这个版本是最终的了吧，轮椅流派是什么</blockquote>
 不好说，四件武器还没有双恩宠，龙虎之后说不定再来个天地<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nagitoY  
+##### 3212#       发表于 2024-5-30 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65046529&amp;ptid=2092342" target="_blank">asakura20005 发表于 2024-5-29 17:11</a>
+
+是的，带队友敌人伤害会增加，但是不带队友的话第一波三个人有两个会远程，根本打不了
+
+论坛助手,iPhone ...</blockquote>
+开局用扔炸弹试试？四个应该能炸掉两个人大半管血
+

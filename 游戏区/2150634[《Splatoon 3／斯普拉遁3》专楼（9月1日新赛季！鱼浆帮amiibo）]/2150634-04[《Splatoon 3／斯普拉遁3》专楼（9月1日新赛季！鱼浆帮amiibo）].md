@@ -1091,3 +1091,13 @@ SPIX与jackpot对谈，不止提到了一些日本和西方喷喷圈子氛围 ..
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星野航  
+##### 4544#       发表于 2024-5-30 07:48
+
+你就算是再不舒服他这个运营节奏，人任天堂一样坐着把钱挣了。
+
+splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上脑子糊涂也不是一天两天了，三年之内能看到splatoon新作消息我觉得就是胜利，其他不要想太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -797,3 +797,33 @@ Kingdom Rush里面是将敌人传送回出发点<img src="https://static.saraba1
 以后有可能重置吗 ...</blockquote>
 重置啥？4K修复版本不是早就有了吗。你看看现在zzzq风潮，我反而觉得重置翻拍肯定是一坨，你是想要看到一个黑美人鱼跨跨干豆腐，还是想要一个墨裔流体取向佛罗多？
 
+
+*****
+
+####  AraTurambar  
+##### 74#       发表于 2024-5-30 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043746&amp;ptid=2185326" target="_blank">smdzh2 发表于 2024-5-29 13:33</a>
+
+因为他压根不想摔下去啊
+
+后面在地底和炎魔大战三百回合，落得一个同归于尽的下场 ...</blockquote>
+这里就很怪。
+
+刚多林陷落的时候，金花把炎魔推下山自己也被拉下去，一个炎魔一个精灵当时就摔死了。
+
+怎么到了第三纪元退化了那么多，炎魔掉下去反而摔不死了。
+
+
+*****
+
+####  AraTurambar  
+##### 75#       发表于 2024-5-30 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65051019&amp;ptid=2185326" target="_blank">a317216007 发表于 2024-5-30 01:42</a>
+
+魔戒近几年还是别授权搞啥游戏和影视剧了，之前的网飞剧就突出一个zzzq往里灌托老这种典型的带英中心思想老 ...</blockquote>
+指环王和霍比特人版权很早就卖了，所以他也没法。
+
+贝伦、胡林、图奥和努美诺尔诸王的故事版权小托到死都没放手，可预见的未来托尔金基金会也不会放出来了。
+

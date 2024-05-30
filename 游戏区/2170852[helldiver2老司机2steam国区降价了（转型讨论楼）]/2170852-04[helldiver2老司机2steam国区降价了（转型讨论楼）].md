@@ -4173,3 +4173,37 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 
 瑞典老乡坑老乡的典型。就看sony愿意为这个沉船额外投入多少资源来开发了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4817#       发表于 2024-5-30 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是卡BUG带俩机甲战备也不卡啊
+
+*****
+
+####  赤井稻妻  
+##### 4818#       发表于 2024-5-30 11:29
+
+闪电战就是落地直接叫机甲，拆巢，撤退前cd转好再叫一个掩护撤退，正好10分钟cd
+
+*****
+
+####  xinfengj  
+##### 4819#       发表于 2024-5-30 11:55
+
+<img src="https://img.saraba1st.com/forum/202405/30/115157zbzl8nbngbg6jegq.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2024-05-30T03-51-25.120Z.png</strong> (181.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 11:51 上传
+
+机甲背上油箱都要做个单独部件是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不会是设计师自己机器配置好所以可劲造吧
+
+从数值上看好像是全身都是2级甲和0级甲然后外面套了个三级甲壳子
+

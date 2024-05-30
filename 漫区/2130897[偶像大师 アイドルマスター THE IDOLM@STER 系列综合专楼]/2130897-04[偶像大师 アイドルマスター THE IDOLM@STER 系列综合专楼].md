@@ -7372,3 +7372,36 @@ sc页游p卡这是羽那？还是嘘...婚纱四连发还行
 
 谁说批发冠军不是冠军
 
+
+*****
+
+####  koodooliz  
+##### 5127#       发表于 2024-5-30 11:16
+
+真的S6冠军下午揭晓呢，这些先给你看看的嘛，小高我懂你<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 5128#       发表于 2024-5-30 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的s6冠军我想不到羽那之外的任何可能性
+手游这个日花的脸怎么看起来这么崩，是因为这个打光吗
+
+
+*****
+
+####  Vacuolar  
+##### 5129#       发表于 2024-5-30 11:24
+
+卡跟卡是不一样的，页游里出的有live 2d就是高贵。
+
+手游里出的，总觉得哪里膈应。
+
+*****
+
+####  野菜一日分  
+##### 5130#       发表于 2024-5-30 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实说现阶段羽那出婚纱我只会觉得又是普普通通接了个工作水一张P卡剧情
+

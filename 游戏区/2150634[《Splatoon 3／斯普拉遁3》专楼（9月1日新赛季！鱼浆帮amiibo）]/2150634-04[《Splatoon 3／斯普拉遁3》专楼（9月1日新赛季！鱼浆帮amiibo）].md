@@ -1283,3 +1283,11 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4566#       发表于 2024-5-30 13:20
+
+斗技场大战金工400分野人，金工完了还给一期这么不错的普通配置
+

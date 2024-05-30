@@ -528,3 +528,15 @@ targetSdkVersion是34 (Android 14)
 
 —— 来自 HONOR PGT-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gstsg  
+##### 1616#       发表于 2024-5-30 23:00
+
+<img src="https://p.sda1.dev/17/203059ff101b17fc83ea93367d4cc995/CMP_20240530230018421.jpg" referrerpolicy="no-referrer">
+
+偶尔会有抽风看别人回复的帖子变这样
+
+—— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

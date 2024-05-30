@@ -243,3 +243,13 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 160池+11，第一次爆礼装这么快
 
+
+*****
+
+####  星尘的记忆  
+##### 46408#       发表于 2024-5-30 23:00
+
+现在都是用工具自动刷无限池吧，我用bbchannel
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1151,3 +1151,25 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 雨帘好惨啊，怎么都针对雨帘
 
+
+*****
+
+####  墨染白泉  
+##### 4551#       发表于 2024-5-30 09:28
+
+这么多武器对雨帘伤害增加，不如一步到位直接削雨帘hp（
+
+*****
+
+####  秋月孝三  
+##### 4552#       发表于 2024-5-30 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说明贴牌太刀的内测表现非常炸裂
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4553#       发表于 2024-5-30 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">居然一点都没有长热炮的削弱
+

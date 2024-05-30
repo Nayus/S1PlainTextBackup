@@ -7795,3 +7795,21 @@ s6第一个王者 太有含金量了
 
 04尽力，甘奈犯罪，小羊出卡太针对，忽悠在if把线对，美琴打法不团队，小高没有人情味。
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 5174#       发表于 2024-5-30 21:15
+
+万代预估一百万dl是一周年？
+
+有无比较了解的漏油可以说说一百万dl算是个什么水平
+
+<img src="https://img.saraba1st.com/forum/202405/30/211546rlggc36s66qgee33.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>64BDC3CC-0825-4CA3-9E17-F09CE77F7065.jpeg</strong> (161.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 21:15 上传
+

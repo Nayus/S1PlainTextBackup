@@ -4281,3 +4281,14 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 
 2024-5-31 00:59 上传
 
+
+*****
+
+####  LT_Harry  
+##### 4827#       发表于 2024-5-31 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061505&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-5-31 00:10</a>
+
+他竟然说12天推14个补丁的magika和现在这个摆烂的HD2相似，HD2从上线到现在几个月累计推的补丁有超过14个 ...</blockquote>
+讲道理，不管更新质量怎样，数量绝对有，二月刚发售的时候最少有 10 次更新，几乎每天上线前都在下载东西。到现在的话按每个月三次算下来也有近 20 个 patch 了。
+

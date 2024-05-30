@@ -7933,3 +7933,25 @@ s6第一个王者 太有含金量了
 
 经日本网友提醒有点绷不住了，冠军铃木卡面剧情里那个“会赢哦”的路人叫hanako，而amn的中之人叫honoka<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 5187#       发表于 2024-5-31 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061150&amp;ptid=2130897" target="_blank">a85982313 发表于 2024-5-30 23:25</a>
+
+官方放屁的水平，百百事前百万，一个月390万，scsp事前也是百万还是80万来着，学马仕这个百万说出来属于 ...</blockquote>
+百万和scsp毕竟是企划第二部游戏，多少有点先发优势？
+
+感觉拿来对比不是很合适，马娘也是有动画引大流
+
+不过拿第一部页游比好像也不是很合适...
+
+*****
+
+####  patema  
+##### 5188#       发表于 2024-5-31 01:11
+
+现在偶的吉祥物除开sc的恶魔太郎现实世界形态外，其他都是鞋垫玩意吧
+

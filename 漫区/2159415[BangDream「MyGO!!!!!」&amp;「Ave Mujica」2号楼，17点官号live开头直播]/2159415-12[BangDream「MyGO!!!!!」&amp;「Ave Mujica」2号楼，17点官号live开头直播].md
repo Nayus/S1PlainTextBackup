@@ -10075,3 +10075,19 @@ R组 Rosenchor 上海追加公演
 
 我服了，立希摆个ooc姿势卖肉也就算了，连泳衣都这么丑，官方真有内部黑吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17178#       发表于 2024-5-30 22:19
+
+再想一想未来的海铃和睦。
+
+
+*****
+
+####  zerorin  
+##### 17179#       发表于 2024-5-30 22:23
+
+这票务还不如海日
+

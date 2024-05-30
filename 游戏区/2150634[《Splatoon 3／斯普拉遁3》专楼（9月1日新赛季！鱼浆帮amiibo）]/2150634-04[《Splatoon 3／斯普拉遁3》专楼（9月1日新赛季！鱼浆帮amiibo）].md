@@ -1309,3 +1309,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 保护罩涂地范围，在太刀演示视频里展示过了，好像就是整个保护罩内。这下保护罩喜提大加强
 
+
+*****
+
+####  KBAC  
+##### 4569#       发表于 2024-5-30 15:50
+
+新赛季刚开始估计一局8个人不是太刀侠就是长热泡，缓几天再玩算了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

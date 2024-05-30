@@ -562,3 +562,18 @@
 
 光荣是不是太怂了不敢得罪白皮，最后的锅全都给搭档来背了
 
+
+*****
+
+####  垃圾网站上  
+##### 3214#       发表于 2024-5-30 15:55
+
+ 本帖最后由 垃圾网站上 于 2024-5-30 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65056827&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-5-30 15:41</a>
+打完第三章会告诉你大英帝国领袖萨道义入侵日本的理由是对这个国家爱得深沉
+
+光荣是不是太怂了不敢得罪白 ...</blockquote>
+萨道义就一个日语翻译而已，剧情里头暗杀将军属于独走，没杀他理由是当时不敢得罪英国，后来也成为卖武器给倒幕派的契机。英国领事是阿礼国
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

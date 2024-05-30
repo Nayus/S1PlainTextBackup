@@ -7997,3 +7997,13 @@ s6第一个王者 太有含金量了
 现在偶的吉祥物除开sc的恶魔太郎现实世界形态外，其他都是鞋垫玩意吧</blockquote>
 绿皮喵算可爱吧，黑的粉的可能有点怪
 
+
+*****
+
+####  Seeley  
+##### 5193#       发表于 2024-5-31 06:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得苹果郎也挺鞋垫的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

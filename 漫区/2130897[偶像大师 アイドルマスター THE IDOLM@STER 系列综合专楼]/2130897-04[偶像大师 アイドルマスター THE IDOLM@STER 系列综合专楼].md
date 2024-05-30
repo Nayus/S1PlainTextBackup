@@ -7643,3 +7643,32 @@ s6第一个王者 太有含金量了
 
 因为羽那把P拐跑了，事务所关门大吉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 5159#       发表于 2024-5-30 14:57
+
+页游出的挺正常的，手游是真的看着就难绷
+
+*****
+
+####  虚无缥缈的分身  
+##### 5160#       发表于 2024-5-30 14:57
+
+不会真的要跑路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+跑路前能不能分amn一张婚纱卡<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alleyht  
+##### 5161#       发表于 2024-5-30 15:00
+
+有没有闪闪页游还在打Fes的选手
+
+我现在米组缺一张新年限定儿力，也就是说没有da儿力可用
+
+把冠军铃木拉满的话算上暮光haruki能组da米打Fes吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

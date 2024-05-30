@@ -9839,3 +9839,11 @@ wsd最好别把鸡玩没了，2nd后能不能再来一次<img src="https://stati
 细细看完repo感觉吃挺好，很幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 不是很会么，之前预告有歌，端上来连ppt都没有给我急坏了。能在明年之前再复刻一次不
 
+
+*****
+
+####  cherryjia12  
+##### 17156#       发表于 2024-5-30 15:00
+
+虽然知道解谜活动和动画剧情不是一回事，但看完这份详尽的repo莫名对明年的动画充满了信心（？）
+

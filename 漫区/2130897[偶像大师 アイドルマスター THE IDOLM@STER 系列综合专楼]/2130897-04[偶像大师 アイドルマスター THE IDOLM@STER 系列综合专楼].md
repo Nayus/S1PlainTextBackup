@@ -7672,3 +7672,28 @@ s6第一个王者 太有含金量了
 
 把冠军铃木拉满的话算上暮光haruki能组da米打Fes吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 5162#       发表于 2024-5-30 15:07
+
+ 本帖最后由 Alleyht 于 2024-5-30 15:08 编辑 
+
+这下谁才是S6真正的冠军要打加时赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我觉得肯定是在铃木之后又定制了两个冠军，我铃木天下无敌
+
+参考前面haruki连打，我猜后面估计还得有一张暮光Vo铃木<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 5163#       发表于 2024-5-30 15:08
+
+3-4升降的养老选手没办法回答你这问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一看到这批发排期，我矿都不想挖了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.80-alpha
+

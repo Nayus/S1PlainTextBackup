@@ -909,3 +909,15 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 星光那个，叔叔前阵子塞抽赏池里 440收了一个新的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 20253#       发表于 2024-5-30 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059468&amp;ptid=2078110" target="_blank">starring 发表于 2024-5-30 20:14</a>
+你说的是星光序曲那套？600那是跌价后
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不是，我是说善子那个看板娘价格我记得就是650元左右
+

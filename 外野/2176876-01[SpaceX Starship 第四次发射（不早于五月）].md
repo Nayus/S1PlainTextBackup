@@ -392,3 +392,19 @@ SpaceX官推发布了第二次湿彩排的照片。表示在第二次湿彩排�
 
 2024-5-30 20:46 上传
 
+
+*****
+
+####  commcody  
+##### 65#         楼主| 发表于 2024-5-30 22:25
+
+B11和S29的自毁装药安装盖板都已被打开
+
+<img src="https://img.saraba1st.com/forum/202405/30/222501r2yyocjfad0cxaoo.jpg" referrerpolicy="no-referrer">
+
+<strong>2437.jpg</strong> (267.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-30 22:25 上传
+

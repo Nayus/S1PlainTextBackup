@@ -4207,3 +4207,26 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 
 从数值上看好像是全身都是2级甲和0级甲然后外面套了个三级甲壳子
 
+
+*****
+
+####  ykyin09  
+##### 4820#       发表于 2024-5-30 12:10
+
+明早ps发布会 能上点新东西吗来自: iPhone客户端
+
+*****
+
+####  DawnGuardian  
+##### 4821#       发表于 2024-5-30 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65054154&amp;ptid=2170852" target="_blank"> xinfengj 发表于 2024-5-30 11:55</a>  机甲背上油箱都要做个单独部件是怎么想的 不会是设计师自己机器配置好所以可劲造吧 从数值上看好像是全身都是2级甲和0级甲然后外面套了个三级甲壳子附件： </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说这个3级甲壳子有强袭虫同款bug来自: iPhone客户端
+
+*****
+
+####  Kojimaru  
+##### 4822#       发表于 2024-5-30 14:13
+
+机甲就闪电战用用，别处使总觉得占格子
+

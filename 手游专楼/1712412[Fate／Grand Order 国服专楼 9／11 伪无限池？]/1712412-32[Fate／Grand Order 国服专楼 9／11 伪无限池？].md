@@ -253,3 +253,14 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  xy1041  
+##### 46409#       发表于 2024-5-31 00:50
+
+这在你楼是能说的话题吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+我观察现在的玩家在这方面有的态度还挺微妙的
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

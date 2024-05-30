@@ -7827,3 +7827,18 @@ s6第一个王者 太有含金量了
  ...</blockquote>
 根据隔壁爱马仕专楼的回复，一般般的水平。马娘、MLTD、SCSP都有更好的成绩。更不要提当年的现象级作品CGSS了。搞不懂为什么官方会预期这么低，觉得要差不多一周年才能100wDL。
 
+
+*****
+
+####  a85982313  
+##### 5176#       发表于 2024-5-30 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059995&amp;ptid=2130897" target="_blank">Kasuga_Mirai 发表于 2024-5-30 21:15</a>
+
+万代预估一百万dl是一周年？
+
+有无比较了解的漏油可以说说一百万dl算是个什么水平
+
+ ...</blockquote>
+官方放屁的水平，百百事前百万，一个月390万，scsp事前也是百万还是80万来着，学马仕这个百万说出来属于没话找话说的那种吹法
+

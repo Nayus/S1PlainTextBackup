@@ -561,3 +561,14 @@ targetSdkVersion是34 (Android 14)
 
 试试 乾隆 著作 憂鬱的臺灣烏龜
 
+
+*****
+
+####  星㐅影  
+##### 1619#       发表于 2024-5-30 23:21
+
+闪退测试
+终于好了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

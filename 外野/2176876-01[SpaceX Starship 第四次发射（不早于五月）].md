@@ -499,3 +499,18 @@ I will explain the problem in more depth with @Erdayastronaut next week. This is
 不知道准备咋解决，之前不是说准备隔热瓦和箭体中间填类似聚氨酯这样的发泡隔热材料吗，已经取消了？ ...</blockquote>
 最早的打算是“出汗”式喷甲烷来散热，大概后来发现可行性不高吧
 
+
+*****
+
+####  commcody  
+##### 73#         楼主| 发表于 2024-5-31 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65067880&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-31 14:43</a>
+
+不知道准备咋解决，之前不是说准备隔热瓦和箭体中间填类似聚氨酯这样的发泡隔热材料吗，已经取消了？ ...</blockquote>
+目前已知S29上采用了一种新胶水用来固定隔热瓦。
+
+之前也有试验件上出现了小尺寸隔热瓦的。小尺寸可能能增加固定效果和减少丢失后的损失。
+
+总之也只有试飞才能显示出效果。航天飞机在实际任务中也不是丢一块就会挂。
+

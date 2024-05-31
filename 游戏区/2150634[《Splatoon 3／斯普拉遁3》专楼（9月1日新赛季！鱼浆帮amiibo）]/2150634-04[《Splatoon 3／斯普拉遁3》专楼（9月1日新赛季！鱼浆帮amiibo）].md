@@ -1561,3 +1561,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 贴牌长热炮正式进入无敌状态
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4594#       发表于 2024-5-31 17:10
+
+magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

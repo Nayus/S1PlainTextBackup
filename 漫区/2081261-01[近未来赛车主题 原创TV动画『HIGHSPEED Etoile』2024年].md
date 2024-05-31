@@ -407,3 +407,15 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 还不让女主好好跑一场啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 365#       发表于 2024-6-1 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65075504&amp;ptid=2081261" target="_blank">550616 发表于 2024-6-1 07:04</a>
+还不让女主好好跑一场啊。。。</blockquote>
+主角站上颁奖台估计要最后
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

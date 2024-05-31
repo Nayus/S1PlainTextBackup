@@ -8216,3 +8216,84 @@ solo给佐藤贵文的发注概念也是正统的正统，王道的王道
 
 怎么也是元气弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 5219#       发表于 2024-5-31 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是贵公子写王道曲并不出彩
+
+*****
+
+####  Vacuolar  
+##### 5220#       发表于 2024-5-31 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65070604&amp;ptid=2130897" target="_blank">野菜一日分 发表于 2024-5-31 18:35</a>
+
+虽然但是贵公子写王道曲并不出彩</blockquote>
+据说是电波曲
+
+*****
+
+####  BQlin  
+##### 5221#       发表于 2024-5-31 18:39
+
+生日相关 最害怕的一集
+
+
+*****
+
+####  秦谷美鈴  
+##### 5222#       发表于 2024-5-31 18:41
+
+来丶小苹果生日池震撼
+
+*****
+
+####  Porsche  
+##### 5223#       发表于 2024-5-31 18:41
+
+抽不出来原地转生<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+要不干脆等美铃出来一起算了
+
+*****
+
+####  Vacuolar  
+##### 5224#       发表于 2024-5-31 18:41
+
+制作人要被抢走了
+
+d20ec4b8b68e84023335bfb83cc6ce64_720.png
+(114.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202405/31/184129aadegb56yirab2ew.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 5225#       发表于 2024-5-31 18:42
+
+ 本帖最后由 Vacuolar 于 2024-5-31 18:43 编辑 
+
+woc，还有新曲，学马赢太多了
+
+<img src="https://img.saraba1st.com/forum/202405/31/184323stattwwrdl1zf7cw.png" referrerpolicy="no-referrer">
+
+<strong>b9d76a65092118d43599c9375fd8198f.png</strong> (146.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 18:43 上传
+
+*****
+
+####  BQlin  
+##### 5226#       发表于 2024-5-31 18:43
+
+开局就三首歌了
+

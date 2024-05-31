@@ -301,3 +301,16 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 用iPad mini 4玩的，可能要寄了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星尘的记忆  
+##### 46411#       发表于 2024-5-31 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061838&amp;ptid=1712412" target="_blank">xy1041 发表于 2024-5-31 00:50</a>
+这在你楼是能说的话题吗
+我观察现在的玩家在这方面有的态度还挺微妙的</blockquote>
+你楼应该不至于有这洁癖吧？ 我当初还是看你楼说入坑买石头号，才买石头号入坑的
+
+—— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

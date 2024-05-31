@@ -325,3 +325,36 @@ TMD最烦这种完全看脸的“高难”了，不如打那些可以硬灌伤�
 我观察现在的玩家在这方面有的态度还挺微妙的</blockquote>
 这楼前面有直接问的，不是nga，没事的
 
+
+*****
+
+####  xy1041  
+##### 46413#       发表于 2024-5-31 10:31
+
+哦，好吧，反正我是爽用
+fgo这游戏莫名其妙的重复劳动实在太多了
+搓丸子
+打无限池，抽无限池
+喂120
+抽友情池
+收邮件
+全是非常占时间的机械重复劳动
+没有bbc我肯定玩不下去
+回坑也是发现了还能这样
+乐趣集中在编高容错的队伍和抽卡和规划养成
+一下正反馈就起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  sandro  
+##### 46414#       发表于 2024-5-31 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061838&amp;ptid=1712412" target="_blank">xy1041 发表于 2024-5-31 00:50</a>
+这在你楼是能说的话题吗
+我观察现在的玩家在这方面有的态度还挺微妙的</blockquote>
+不是nga，无所谓的
+用bb就当这游戏开扫荡了，反正早该有了
+

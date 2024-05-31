@@ -42,3 +42,14 @@ cdisplayex没有自动切分单页显示
 实在不明白开发者怎么想的 ...</blockquote>
 你可以去issue或者discord上提啊，不用实在不知道
 
+
+*****
+
+####  芜湖挨宰  
+##### 239#       发表于 2024-5-31 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65064208&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-5-31 10:00</a>
+你可以去issue或者discord上提啊，不用实在不知道</blockquote>
+cdisplayex我提了啊，作者说没计划。
+然而我还是不知道作者怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

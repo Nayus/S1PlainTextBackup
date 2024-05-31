@@ -1491,3 +1491,11 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  maomaoying  
+##### 4587#       发表于 2024-5-31 14:10
+
+地图和这些装备更新还是在明天吗
+

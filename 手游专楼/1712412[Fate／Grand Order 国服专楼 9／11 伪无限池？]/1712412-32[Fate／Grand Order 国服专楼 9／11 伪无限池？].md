@@ -376,3 +376,13 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  xy1041  
+##### 46417#       发表于 2024-6-1 02:04
+
+不啊，大伙要想想，池子里还有铜苹果啊，抽完了又有一堆苹果力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

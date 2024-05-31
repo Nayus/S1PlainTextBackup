@@ -1461,3 +1461,23 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 熊刷要是纵拍能穿甲，那熊刀的蓄力斩相比之下就废了，熊刀蓄力时间不仅长还没有能够打远程的剑气
 
+
+*****
+
+####  KBAC  
+##### 4585#       发表于 2024-5-31 13:14
+
+<img src="https://img.saraba1st.com/forum/202405/31/131208dslnzo8llozzgfch.jpg" referrerpolicy="no-referrer">
+
+<strong>img_9546.jpg</strong> (48.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 13:12 上传
+
+海胆订购有掉线bug，解决方式是换一个广场，但是换广场需要买dlc
+
+解决方式是买dlc的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

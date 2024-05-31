@@ -366,3 +366,13 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 大号手打257池，差一张就+12了，可惜。还有50个金苹果，大号不打了，自回体了。
 
+
+*****
+
+####  Kon-El  
+##### 46416#       发表于 2024-5-31 22:42
+
+第三期90++把烟老板翻出来上班了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -40,3 +40,30 @@
 
 保险用的麻婆没触发战续<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还好已经十二回合了
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12785#       发表于 2024-5-31 18:03
+
+上次更新幕间是什么时候来着<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  風卷豹  
+##### 12786#       发表于 2024-5-31 18:05
+
+咸鱼了半个月想冲刺下活动，唤起了痛苦的回忆，前期本箱子掉落数也太少了，以前没掉落倍卡我是怎么坚持下来的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 12787#       发表于 2024-5-31 18:07
+
+这强化
+利好带满破宝石的五宝君11厨
+定语加的多就能当第一系列
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

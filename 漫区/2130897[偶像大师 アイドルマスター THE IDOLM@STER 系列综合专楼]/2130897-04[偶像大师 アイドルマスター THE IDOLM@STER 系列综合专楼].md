@@ -8037,3 +8037,11 @@ scsp在2024，作为一个偶像游戏最重要的MV部分做不好，宣传效�
 
 看到小红出道mv187万播放了，果然找名人作曲家就是有用吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  achilleus  
+##### 5197#       发表于 2024-5-31 12:43
+
+jjc要关到2号才开？我卡jjc12000分任务就只能这么卡着了？
+

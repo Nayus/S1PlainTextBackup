@@ -1542,3 +1542,14 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 穿金戴银打工仔还有个镭射炫光<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 新赛季新增的对战装备怎么还有二代三代的打工服帽子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到哪都是打工仔<img src="https://p.sda1.dev/17/9b6ce281878f16a3b6a57eedd92d27c4/1717142538854.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NOSbeam  
+##### 4592#       发表于 2024-5-31 16:05
+
+贴牌审查大招210p
+剩下所有新武器大招都是200p
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

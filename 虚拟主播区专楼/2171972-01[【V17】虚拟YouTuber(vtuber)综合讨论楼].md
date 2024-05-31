@@ -282,3 +282,14 @@ Screenshot_20240531_200119.jpg
 是什么岛国特有症状吗？ ...</blockquote>
 气压变化引起的头痛眩晕那种？
 
+
+*****
+
+####  poipanchao  
+##### 263#       发表于 2024-5-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65072610&amp;ptid=2171972" target="_blank">rBoots 发表于 2024-5-31 21:51</a>
+
+气压变化引起的头痛眩晕那种？</blockquote>
+经常看到管人用低气压为由休息，不能理解……
+

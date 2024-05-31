@@ -8680,3 +8680,43 @@ cd怎么这么大
 
 以为“神”指的是自己，“神”要降临来清算姐姐了。结果指的是饭团。
 
+
+*****
+
+####  Swss  
+##### 5268#       发表于 2024-5-31 23:20
+
+不愧是补考三人组之一，这pv傻劲都要溢出了<img src="https://static.saraba1st.com/image/smiley/carton2017/268.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koodooliz  
+##### 5269#       发表于 2024-5-31 23:23
+
+ 本帖最后由 koodooliz 于 2024-5-31 23:25 编辑 
+
+印象里贵公子这几年写的类似风格的歌，
+卓柏卡布拉、idol Berserker和otahen
+
+*****
+
+####  joshua1990  
+##### 5270#       发表于 2024-5-31 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">结合2dmv果然很对味
+
+<img src="https://img.saraba1st.com/forum/202405/31/232446u3npyf8emqftseat.gif" referrerpolicy="no-referrer">
+
+<strong>GIF 2024-5-31 23-19-00.gif</strong> (906.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 23:24 上传
+
+*****
+
+####  Seeley  
+##### 5271#       发表于 2024-5-31 23:25
+
+这pv我看了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

@@ -439,3 +439,16 @@ Right now, we are not resilient to loss of a single tile in most places, as the 
 
 I will explain the problem in more depth with @Erdayastronaut next week. This is a thorny issue indeed, given that vast resources have been applied to solve it, thus far to no avail.
 
+
+*****
+
+####  2017.05.04  
+##### 68#       发表于 2024-5-31 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65063594&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-31 09:16</a>
+
+马斯克说隔热瓦问题难解决，可问题是星舰不是设计上就是可以靠不锈钢硬抗嘛，不需要隔热瓦也可以安全再入的 ...</blockquote>
+绝无可能
+
+要是不锈钢就能硬抗再入热量那还要材料学干嘛
+

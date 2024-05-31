@@ -8029,3 +8029,11 @@ scsp在2024，作为一个偶像游戏最重要的MV部分做不好，宣传效�
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  cckuku  
+##### 5196#       发表于 2024-5-31 09:28
+
+看到小红出道mv187万播放了，果然找名人作曲家就是有用吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

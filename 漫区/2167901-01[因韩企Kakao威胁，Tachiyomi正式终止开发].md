@@ -30,3 +30,15 @@ mihon没有双页显示
 cdisplayex没有自动切分单页显示
 实在不明白开发者怎么想的
 
+
+*****
+
+####  pgain2004  
+##### 238#         楼主| 发表于 2024-5-31 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062609&amp;ptid=2167901" target="_blank">芜湖挨宰 发表于 2024-5-31 07:03</a>
+mihon没有双页显示
+cdisplayex没有自动切分单页显示
+实在不明白开发者怎么想的 ...</blockquote>
+你可以去issue或者discord上提啊，不用实在不知道
+

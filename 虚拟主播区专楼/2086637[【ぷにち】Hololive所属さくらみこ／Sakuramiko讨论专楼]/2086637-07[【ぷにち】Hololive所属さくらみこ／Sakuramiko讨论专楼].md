@@ -345,3 +345,20 @@
 
 就说刚才那个说什么是不是一个人住的事，miko一向是不忌讳讨论两性关系、家庭、结婚之类的现实话题，直播里最少聊过不下十次，所以本人都不在意的事到底是谁那么在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这点事到现在还能有无知anti被钓出来只能说确实一般化了
 
+
+*****
+
+####  holoan  
+##### 8909#         楼主| 发表于 2024-5-31 01:07
+
+说到最近的antiSC内容都非常低级，很明显就是平时不关注holo的不知道哪儿冒出来的anti想钓主播的鱼打SC结果就是理所当然地被主播反钓
+
+就说刚才那个说什么是不是一个人住的事，miko一向是不忌讳讨论两性关系、家庭、结婚之类的现实话题，直播里最少聊过不下十次，所以本人都不在意的事到底是谁那么在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这点事到现在还能有无知anti被钓出来只能说确实一般化了
+
+*****
+
+####  rs5621  
+##### 8910#       发表于 2024-5-31 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发这种sc没啥用，不会回应的
+

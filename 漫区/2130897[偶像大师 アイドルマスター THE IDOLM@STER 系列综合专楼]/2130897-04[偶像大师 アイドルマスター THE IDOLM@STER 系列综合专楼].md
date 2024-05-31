@@ -8576,3 +8576,22 @@ cd怎么这么大
 
 明天的livehouse的蓋繪有新寫一段免責聲明。
 
+
+*****
+
+####  何处分可  
+##### 5257#       发表于 2024-5-31 21:35
+
+三牛老师大破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Seeley  
+##### 5258#       发表于 2024-5-31 21:37
+
+这应该是看过三牛老师情绪波动最大的视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

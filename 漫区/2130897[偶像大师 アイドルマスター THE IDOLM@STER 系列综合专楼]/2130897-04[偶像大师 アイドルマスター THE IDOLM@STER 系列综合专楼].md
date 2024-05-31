@@ -8536,3 +8536,27 @@ cd怎么这么大
 
 看到蓝色玻璃加上283贴条再加上本话白色字体的标题时候我也笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  庸necro  
+##### 5254#       发表于 2024-5-31 20:58
+
+三牛老师绷不住冒四川话的样子太可爱了
+
+
+*****
+
+####  Kasuga_Mirai  
+##### 5255#       发表于 2024-5-31 21:05
+
+<img src="https://img.saraba1st.com/forum/202405/31/210514ex67acmpl6n0mk75.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 21:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

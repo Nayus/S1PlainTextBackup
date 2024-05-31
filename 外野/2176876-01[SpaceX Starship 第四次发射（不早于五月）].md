@@ -465,3 +465,26 @@ I will explain the problem in more depth with @Erdayastronaut next week. This is
 
 不锈钢只是相对其他材料耐热，但再入过程光靠不锈钢肯定是抵挡不住的。
 
+
+*****
+
+####  柴汪汪  
+##### 70#       发表于 2024-5-31 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65063775&amp;ptid=2176876" target="_blank">2017.05.04 发表于 2024-5-31 09:30</a>
+绝无可能
+
+要是不锈钢就能硬抗再入热量那还要材料学干嘛</blockquote>
+猛禽788最早说的，隔热瓦只是为了提高箭体的使用寿命.jpg
+
+*****
+
+####  柴汪汪  
+##### 71#       发表于 2024-5-31 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65067804&amp;ptid=2176876" target="_blank">commcody 发表于 2024-5-31 14:36</a>
+最早的设计是想用主动冷却，后来还是转向了隔热瓦设计。
+
+不锈钢只是相对其他材料耐热，但再入过程光靠不 ...</blockquote>
+不知道准备咋解决，之前不是说准备隔热瓦和箭体中间填类似聚氨酯这样的发泡隔热材料吗，已经取消了？
+

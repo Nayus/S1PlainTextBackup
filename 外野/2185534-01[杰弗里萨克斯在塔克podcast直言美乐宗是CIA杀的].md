@@ -488,3 +488,18 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 
 视频太长了还没看完，开头就追溯到170年前的大阴，不得不说作为老牌殖民帝国，在地缘政治和全球战略方面大阴确实是美国的老师。突然想到另一个问题，美国的deep state是什么时候开始拥有实际控制力的，美乐宗那时已经是无力改变了，那早到冷战之前？有没有从阴谋论角度的叙事看看
 
+
+*****
+
+####  Illidan  
+##### 50#       发表于 2024-5-31 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65067723&amp;ptid=2185534" target="_blank">太空堡垒 发表于 2024-5-31 14:28</a>
+
+视频太长了还没看完，开头就追溯到170年前的大阴，不得不说作为老牌殖民帝国，在地缘政治和全球战略方面大 ...</blockquote>
+艾森豪威尔，5星上将，北约欧洲盟军最高司令，第34任美国总统。他离职时说了：
+
+“你们要警惕军工复合体。”
+
+[https://www.bilibili.com/read/cv28249204/](https://www.bilibili.com/read/cv28249204/)
+

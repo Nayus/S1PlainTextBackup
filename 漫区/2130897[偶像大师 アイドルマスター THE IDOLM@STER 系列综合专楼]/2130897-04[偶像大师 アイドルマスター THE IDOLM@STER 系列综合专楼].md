@@ -8045,3 +8045,14 @@ scsp在2024，作为一个偶像游戏最重要的MV部分做不好，宣传效�
 
 jjc要关到2号才开？我卡jjc12000分任务就只能这么卡着了？
 
+
+*****
+
+####  patema  
+##### 5198#       发表于 2024-5-31 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062207&amp;ptid=2130897" target="_blank">馬斯特壺 发表于 2024-5-31 02:11</a>
+
+除了百万的卓柏卡布拉，哈姆藏皮喵太青蛙王子都不算邪典吧，学马的好印象领域大神星星人目前也就有点鬼畜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cg虽然皮喵原始皮肤正常，但是其他的像是芙芙花和苹果郎都是鞋垫吧
+

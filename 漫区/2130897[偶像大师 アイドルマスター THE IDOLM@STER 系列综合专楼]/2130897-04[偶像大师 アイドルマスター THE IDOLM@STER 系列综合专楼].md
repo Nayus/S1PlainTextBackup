@@ -8595,3 +8595,18 @@ cd怎么这么大
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  野菜一日分  
+##### 5259#       发表于 2024-5-31 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/416.png" referrerpolicy="no-referrer">今晚还有新的一集，wakuwaku
+
+*****
+
+####  l3r0nY@  
+##### 5260#       发表于 2024-5-31 21:50
+
+看完了，比sc动画有意思太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

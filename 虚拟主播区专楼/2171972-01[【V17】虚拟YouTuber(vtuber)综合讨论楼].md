@@ -267,3 +267,18 @@ Screenshot_20240531_200119.jpg
 
 是什么岛国特有症状吗？
 
+
+*****
+
+####  rBoots  
+##### 262#       发表于 2024-5-31 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65072296&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-5-31 21:22</a>
+
+困扰了我多年管人生涯的问题
+
+低气压到底是什么？
+
+是什么岛国特有症状吗？ ...</blockquote>
+气压变化引起的头痛眩晕那种？
+

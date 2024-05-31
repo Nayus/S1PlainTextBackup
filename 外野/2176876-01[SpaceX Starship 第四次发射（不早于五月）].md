@@ -488,3 +488,14 @@ I will explain the problem in more depth with @Erdayastronaut next week. This is
 不锈钢只是相对其他材料耐热，但再入过程光靠不 ...</blockquote>
 不知道准备咋解决，之前不是说准备隔热瓦和箭体中间填类似聚氨酯这样的发泡隔热材料吗，已经取消了？
 
+
+*****
+
+####  madbird023  
+##### 72#       发表于 2024-5-31 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65067880&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-31 14:43</a>
+
+不知道准备咋解决，之前不是说准备隔热瓦和箭体中间填类似聚氨酯这样的发泡隔热材料吗，已经取消了？ ...</blockquote>
+最早的打算是“出汗”式喷甲烷来散热，大概后来发现可行性不高吧
+

@@ -618,3 +618,18 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 我的镜牢队发在上面一条回帖了
 
+
+*****
+
+####  Yuzutea  
+##### 735#       发表于 2024-5-31 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65071246&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-31 19:30</a>
+
+我N社除了锁子哥都有了，就是等级不太够，星光也还没点满，还没进困难镜牢
+
+我的镜牢队和3号线队是下面这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先拉一队满的把主线打通然后拉一队45
+
+低级经验本和高级经验本差太多了
+

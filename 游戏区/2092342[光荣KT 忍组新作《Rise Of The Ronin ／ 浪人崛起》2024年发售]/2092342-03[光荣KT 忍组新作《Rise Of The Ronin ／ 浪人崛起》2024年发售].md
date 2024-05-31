@@ -600,3 +600,16 @@
 
 套装加成还挺多的，词条也有点提升。更新后新加的猛虎和巨龙套装改变游戏玩法。
 
+
+*****
+
+####  nage560  
+##### 3217#       发表于 2024-5-31 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65063786&amp;ptid=2092342" target="_blank">nagitoY 发表于 2024-5-31 09:30</a>
+
+一周目什么等级高用什么，通关后解锁红色极品装备再去刷。
+
+套装加成还挺多的，词条也有点提升。更新后新 ...</blockquote>
+谢谢，我看贴吧说的词条在2周目的作用也不大，还是等级高才有用，不过好像这次新更新的套装有点效果了。
+

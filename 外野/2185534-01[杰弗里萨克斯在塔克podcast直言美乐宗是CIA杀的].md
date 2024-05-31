@@ -448,3 +448,35 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 她和亨特公子有一腿不是众所周知的事吗</blockquote>
 想看实锤视频啊
 
+
+*****
+
+####  sanxgh571  
+##### 46#       发表于 2024-5-31 12:14
+
+这事连道场的小鬼都知道啊
+
+
+*****
+
+####  ppa11  
+##### 47#       发表于 2024-5-31 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059063&amp;ptid=2185534" target="_blank">克拉苏 发表于 2024-5-30 19:21</a>
+合法游说当然是自鱿人</blockquote>
+那蜥蜴人呢
+
+—— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  烈焰舞阳  
+##### 48#       发表于 2024-5-31 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65065396&amp;ptid=2185534" target="_blank">广州粉肠 发表于 2024-5-31 11:14</a>
+坏了, 他说我要带头做千禧年前最伟大的世界和解, 休克疗法真的有用你们怎么不批钱的时候, 好像不像是演的 ...</blockquote>
+因为最开始休克疗法在东欧几个国家确实效果不错，重点是有外来输血的情况下，所以苏联才会同意休克疗法，结果美国反悔不给输血，毛子差点从休克变猝死，还害得他名声也毁了，他自然对一些东西非常看不惯，观点有了很大的转变
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1345,3 +1345,20 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 看了看自己的扭蛋序列，1800多才金，关服都拿不到金名牌
 
+
+*****
+
+####  hisousihou  
+##### 4573#       发表于 2024-5-31 09:52
+
+新武器情报都出了
+
+*****
+
+####  KBAC  
+##### 4574#       发表于 2024-5-31 09:55
+
+好像解包出了二代万圣节和冬季广场<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

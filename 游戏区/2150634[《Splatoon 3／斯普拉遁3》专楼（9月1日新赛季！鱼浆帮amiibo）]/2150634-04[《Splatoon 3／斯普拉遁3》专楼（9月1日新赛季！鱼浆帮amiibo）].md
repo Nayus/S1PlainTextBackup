@@ -1370,3 +1370,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 脚环和木屐都回归了
 
+
+*****
+
+####  罗克萨斯  
+##### 4576#       发表于 2024-5-31 10:20
+
+短弓能跳蓄后变得好强，想捡起来了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

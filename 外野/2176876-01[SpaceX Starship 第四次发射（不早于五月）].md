@@ -425,3 +425,17 @@ B11和S29的自毁装药安装盖板都已被打开
 
 上炸药了，6月5号除非天气问题，基本可以发射了，希望那天天气好一点。
 
+
+*****
+
+####  柴汪汪  
+##### 67#       发表于 2024-5-31 09:16
+
+马斯克说隔热瓦问题难解决，可问题是星舰不是设计上就是可以靠不锈钢硬抗嘛，不需要隔热瓦也可以安全再入的
+
+This is a matter of execution, rather than ideas. Unless we make the heat shield relatively heavy, as is the case with our Dragon capsule, where reliability is paramount, we will only discover the weak points by flying. 
+
+Right now, we are not resilient to loss of a single tile in most places, as the secondary containment material will probably not survive.
+
+I will explain the problem in more depth with @Erdayastronaut next week. This is a thorny issue indeed, given that vast resources have been applied to solve it, thus far to no avail.
+

@@ -503,3 +503,11 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 
 [https://www.bilibili.com/read/cv28249204/](https://www.bilibili.com/read/cv28249204/)
 
+
+*****
+
+####  Evomenon  
+##### 51#       发表于 2024-5-31 22:04
+
+访谈结尾这段说的也很好。难得美国有这么个有点分量的正常人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

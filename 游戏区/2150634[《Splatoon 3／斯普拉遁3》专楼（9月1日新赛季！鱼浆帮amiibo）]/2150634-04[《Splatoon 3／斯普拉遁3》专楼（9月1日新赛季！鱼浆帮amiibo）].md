@@ -1589,3 +1589,13 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 看了下每张图的改法，都比想象的大。所以之前几个赛季怎么就憋不出来呢
 
+
+*****
+
+####  martinium  
+##### 4597#       发表于 2024-5-31 23:32
+
+说明研究所会做图，之前故意恶心玩家两年
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

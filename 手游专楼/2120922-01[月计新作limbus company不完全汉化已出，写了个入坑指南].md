@@ -431,3 +431,42 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 现在45级有等级压制应该能三号线全压过去，红树棉这东西三号线当时我印象就是白给的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姑且一问您这是初始号开局吗，不是的话当我没说
 
+
+*****
+
+####  Yuzutea  
+##### 724#       发表于 2024-5-31 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65059065&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-5-30 19:21</a>
+
+二号线是23年九月中旬开始、24年2月初关闭，为期4.5个月，以此估计四号线可能在六月中下旬开始吧。
+
+之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动限定我记得不是整个赛季能池子出和售货机换
+
+然后下赛季从池子和售货机移除
+
+下下赛季进池子和售货机吗
+
+
+*****
+
+####  kurihayn  
+##### 725#       发表于 2024-5-31 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65070791&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-5-31 18:51</a>
+
+把浮奥虫三个这赛季沉沦人格换了
+
+然后换个花箱（在第二赛季） 那两七协罗佳和宝子哥（在常驻）
+
+最好换个 ...</blockquote>
+好的谢谢！是初始号，虽然是便宜价格买的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了5万狂气以外没啥东西
+
+*****
+
+####  kurihayn  
+##### 726#       发表于 2024-5-31 19:03
+
+良秀先不提，罗佳和宝子哥还是比较靠谱的吧，虽然远远不及但丁提的那仨不过怎么都没人提以实玛丽呢，她难道不是靠谱标兵
+

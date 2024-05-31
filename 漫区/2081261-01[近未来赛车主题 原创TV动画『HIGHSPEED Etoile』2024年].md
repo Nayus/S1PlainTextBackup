@@ -399,3 +399,11 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  550616  
+##### 364#       发表于 2024-6-1 07:04
+
+还不让女主好好跑一场啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

@@ -4409,3 +4409,11 @@ https://b23.tv/vgCnnAC
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好久没玩了，晚上体验下新任务
 
+
+*****
+
+####  ykyin09  
+##### 4840#       发表于 2024-6-1 01:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟几个老外野队打暗流体N7硬是卡了一晚上，最后降到N4轻松给过了，N7直接往钻机脚下刷泰坦和强袭虫是真的绷不住
+

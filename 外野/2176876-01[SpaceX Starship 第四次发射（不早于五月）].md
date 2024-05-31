@@ -514,3 +514,16 @@ I will explain the problem in more depth with @Erdayastronaut next week. This is
 
 总之也只有试飞才能显示出效果。航天飞机在实际任务中也不是丢一块就会挂。
 
+
+*****
+
+####  FeliciaCWells  
+##### 74#       发表于 2024-6-1 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64995628&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-5-25 10:51</a>
+
+目前推测的氧气管道堵塞的原因，是因为自生增压，猛禽-星舰方案一开始就尝试自生增压，将发动机产生的富 ...</blockquote>
+冰和干冰，他放了冰和干冰…
+
+虽说是手搓铁皮罐子，但直接灌废气做regen还是有点离谱的工程智慧之美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -511,3 +511,20 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 
 访谈结尾这段说的也很好。难得美国有这么个有点分量的正常人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windfree81  
+##### 52#       发表于 2024-5-31 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65065587&amp;ptid=2185534" target="_blank">引路人形当下哥 发表于 2024-5-31 11:25</a>
+
+从后面的发展来看，美乐宗的死，是不是算西大利益集团的短视，因为美乐宗当时好像是已经想针对还在低调发育 ...</blockquote>
+但是他首先要针对美国国内的势力
+
+那些势力也想活着
+
+再说那是63年...
+
+又不是93年
+

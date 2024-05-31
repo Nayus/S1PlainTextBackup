@@ -929,3 +929,22 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 场小真难顶啊十张只中了昼场……
 
+
+*****
+
+####  lj205  
+##### 20255#       发表于 2024-5-31 15:30
+
+放弃KA组临时改成参加广播活动真是正确选择，ATMOS那边连续第二年落选真是可恶，看来只能集中8月冲鱼的发售活动，TO签不想了，能见到人就行
+
+*****
+
+####  csolfans  
+##### 20256#       发表于 2024-5-31 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65068124&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-5-31 15:06</a>
+场小真难顶啊十张只中了昼场……</blockquote>
+除了猫组感觉都不好中的样子
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

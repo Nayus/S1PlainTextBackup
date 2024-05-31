@@ -383,3 +383,19 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 啊女主和king被剧情杀送刘悠然上上海站领奖台
 
+
+*****
+
+####  KDConan  
+##### 363#       发表于 2024-6-1 06:29
+
+粉毛凛果然玩的是头文字D<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/3b048b59f4772b06167c661b0ed202ba/image.jpg" referrerpolicy="no-referrer">
+
+悠然那火箭车一串超几个我不是很确定听懂了凛的讲解，是别人都贴赛道走弯她冒险直线冲么？
+
+另外对比下前几集，这个路面解说如果少一些、多给车手侧的心理描写和维修区的解说是不是能改善一下观感<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

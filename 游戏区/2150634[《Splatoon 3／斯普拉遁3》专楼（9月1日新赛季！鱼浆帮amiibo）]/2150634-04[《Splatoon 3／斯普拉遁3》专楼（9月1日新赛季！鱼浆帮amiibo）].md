@@ -1599,3 +1599,11 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  laosai13  
+##### 4598#       发表于 2024-6-1 03:51
+
+说起来这次85的加强体感还挺好的，打架能力比原来强不少
+

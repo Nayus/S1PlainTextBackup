@@ -293,3 +293,13 @@ Screenshot_20240531_200119.jpg
 气压变化引起的头痛眩晕那种？</blockquote>
 经常看到管人用低气压为由休息，不能理解……
 
+
+*****
+
+####  karastar  
+##### 264#       发表于 2024-5-31 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65073323&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-5-31 23:21</a>
+经常看到管人用低气压为由休息，不能理解……</blockquote>
+中文类似气象病，气候变化导致的身体不适。管人用的话类似今天身体不适的说法。
+

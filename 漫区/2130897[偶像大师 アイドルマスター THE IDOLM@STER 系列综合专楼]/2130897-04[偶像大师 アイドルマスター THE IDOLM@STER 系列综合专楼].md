@@ -8720,3 +8720,19 @@ cd怎么这么大
 
 这pv我看了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  馬斯特壺  
+##### 5272#       发表于 2024-5-31 23:36
+
+感觉佑芽的solo有贵公子以往很多名曲的即视感，不过论同质化程度还是比不过honeyworks<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  840266848  
+##### 5273#       发表于 2024-5-31 23:43
+
+对比妹妹，怎么有种姐姐的曲都会找外援来写的预感。你solo2不会真的把八王子请过来吧，（个人斜眼看prsk的vbs作曲阵容
+

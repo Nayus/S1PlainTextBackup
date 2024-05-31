@@ -420,3 +420,31 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 
 牢美，你要反思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jimlee079  
+##### 43#       发表于 2024-5-31 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事儿，以后怼殖人的子弹又多了一发
+
+*****
+
+####  Alexmacau8  
+##### 44#       发表于 2024-5-31 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65065255&amp;ptid=2185534" target="_blank">myarms 发表于 2024-5-31 11:06</a>
+他应该还是能接触到很多人和事的，新冠这件事，他说得非常具体，哪个项目、哪个实验室、哪个人在推、谁在 ...</blockquote>
+杰弗里当过柳叶刀新冠委员会**，访谈里也说得很专业，很令人信服。我说不当真是他提到的一些政坛花边新闻。
+
+
+*****
+
+####  leviathan  
+##### 45#       发表于 2024-5-31 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65060157&amp;ptid=2185534" target="_blank">xiaoba329 发表于 2024-5-30 21:34</a>
+
+她和亨特公子有一腿不是众所周知的事吗</blockquote>
+想看实锤视频啊
+

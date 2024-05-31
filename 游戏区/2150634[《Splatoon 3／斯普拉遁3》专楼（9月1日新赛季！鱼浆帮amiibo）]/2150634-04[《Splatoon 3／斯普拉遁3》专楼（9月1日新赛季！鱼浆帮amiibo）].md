@@ -1438,3 +1438,26 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 不知道熊刷纵拍有没有破甲
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4583#       发表于 2024-5-31 11:57
+
+<img src="https://img.saraba1st.com/forum/202405/31/115739j3bmfje0lc8bw9j7.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (314.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 11:57 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Variks  
+##### 4584#       发表于 2024-5-31 12:01
+
+熊刷要是纵拍能穿甲，那熊刀的蓄力斩相比之下就废了，熊刀蓄力时间不仅长还没有能够打远程的剑气
+

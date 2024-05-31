@@ -1388,3 +1388,19 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 熊滚筒，看起来好轻快的手感，怎么还不到大型跑啊好想玩
 
+
+*****
+
+####  amuro_h  
+##### 4578#       发表于 2024-5-31 10:36
+
+下赛季目录多出来的一页
+
+<img src="https://img.saraba1st.com/forum/202405/31/103611j6yzohlhtoh644y6.jpg" referrerpolicy="no-referrer">
+
+<strong>20240531_103436.jpg</strong> (239.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-5-31 10:36 上传
+

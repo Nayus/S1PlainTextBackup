@@ -1481,3 +1481,13 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Linsdy  
+##### 4586#       发表于 2024-5-31 13:49
+
+今天玩了一下短弓，能跳蓄之后无时无刻不在跳蓄，感觉不管是强度还是有趣程度上都高了好多。
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

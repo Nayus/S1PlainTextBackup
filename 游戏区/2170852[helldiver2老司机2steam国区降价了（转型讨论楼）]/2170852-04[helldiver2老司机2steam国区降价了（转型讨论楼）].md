@@ -4351,3 +4351,35 @@ https://b23.tv/vgCnnAC
 
 暗流体任务才开？怎么前天就看到有人打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 4834#       发表于 2024-5-31 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062025&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-5-31 01:19</a>
+
+这刷怪点直接在钻机边上，真的能打吗</blockquote>
+人去勾引泰坦，有人在泰坦不打钻机
+
+拉了三只泰坦一发500和他们一起爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽说后面俩应该是被第一只尸体弹死的
+
+*****
+
+####  xinfengj  
+##### 4835#       发表于 2024-5-31 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062889&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-5-31 08:02</a>
+试了下难5新任务，他们的确自己不玩</blockquote>
+<img src="https://p.sda1.dev/17/ca7542e952c6cc90217bb05420f16d00/CMP_20240531111232417.jpg" referrerpolicy="no-referrer">
+他们真的通了难5，但是n7怎么也打不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4836#       发表于 2024-5-31 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烟刷钻机脸上还是太抽象了，虽然能解但是还是很抽象
+
+怀疑是不是刷烟的距离少打了个0（）
+

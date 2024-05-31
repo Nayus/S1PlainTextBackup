@@ -1404,3 +1404,21 @@ splatoon没有竞品，它这个用户群就是这样的。当然野上跟井上
 
 2024-5-31 10:36 上传
 
+
+*****
+
+####  Humpy  
+##### 4579#       发表于 2024-5-31 11:15
+
+熊刷不就是之前泥头车活动出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果熊刷泥头车和纵挥带贯穿，那就很好了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Variks  
+##### 4580#       发表于 2024-5-31 11:23
+
+太刀太强了，蓄力的纵斩剑气变成横斩剑气，也太容易打中人了吧，中射程一个蓄力横斩接一个轻斩能够轻松收人头
+

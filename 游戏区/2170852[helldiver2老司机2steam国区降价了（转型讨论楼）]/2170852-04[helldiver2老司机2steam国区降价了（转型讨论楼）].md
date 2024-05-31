@@ -4383,3 +4383,29 @@ https://b23.tv/vgCnnAC
 
 怀疑是不是刷烟的距离少打了个0（）
 
+
+*****
+
+####  jy000129  
+##### 4837#       发表于 2024-5-31 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65065383&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-31 11:13</a>
+他们真的通了难5，但是n7怎么也打不过去了</blockquote>
+难5还能0星的<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kalavinka  
+##### 4838#         楼主| 发表于 2024-5-31 14:35
+
+带回晕雷了 确实难顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Benighted  
+##### 4839#       发表于 2024-5-31 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好久没玩了，晚上体验下新任务
+

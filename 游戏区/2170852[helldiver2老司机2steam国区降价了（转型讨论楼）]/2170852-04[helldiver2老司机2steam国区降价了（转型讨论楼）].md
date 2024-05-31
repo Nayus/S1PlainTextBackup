@@ -4315,3 +4315,39 @@ byd箭÷说现在不准带多个机甲是因为机甲占用了太多系统资源
 https://b23.tv/vgCnnAC
 打着打着就不爆虫群了，怪<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4830#       发表于 2024-5-31 01:19
+
+ 本帖最后由 ravend233 于 2024-5-31 01:20 编辑 
+
+这刷怪点直接在钻机边上，真的能打吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不刷泰坦和坦克虫还好说，钻机边上直接刷出来三个泰坦直接傻了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  LT_Harry  
+##### 4831#       发表于 2024-5-31 01:52
+
+https://b23.tv/vgCnnAC
+打着打着就不爆虫群了，怪<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九十九忍  
+##### 4832#       发表于 2024-5-31 08:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了下难5新任务，他们的确自己不玩
+
+*****
+
+####  FLZB  
+##### 4833#       发表于 2024-5-31 08:06
+
+暗流体任务才开？怎么前天就看到有人打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

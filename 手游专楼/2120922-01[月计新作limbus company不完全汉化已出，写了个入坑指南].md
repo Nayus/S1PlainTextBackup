@@ -413,3 +413,21 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 这是否是一种新型的但丁大战维吉尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 723#       发表于 2024-5-31 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65058762&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-30 18:43</a>
+
+四号线大概什么时候开啊，我三号线打到血棉花就打不动了。查攻略说棉花弱斩击耐突刺，但是我一水的突刺人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把浮奥虫三个这赛季沉沦人格换了
+
+然后换个花箱（在第二赛季） 那两七协罗佳和宝子哥（在常驻）
+
+最好换个冰桥，不过现在沉沦在外面也能叠起来了
+
+现在45级有等级压制应该能三号线全压过去，红树棉这东西三号线当时我印象就是白给的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姑且一问您这是初始号开局吗，不是的话当我没说
+

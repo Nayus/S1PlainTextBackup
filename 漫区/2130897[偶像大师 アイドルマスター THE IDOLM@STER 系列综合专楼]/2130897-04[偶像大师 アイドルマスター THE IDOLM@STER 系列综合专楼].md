@@ -8297,3 +8297,75 @@ woc，还有新曲，学马赢太多了
 
 开局就三首歌了
 
+
+*****
+
+####  rgauss  
+##### 5227#       发表于 2024-5-31 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">小美野去哪学的商法
+
+*****
+
+####  BQlin  
+##### 5228#       发表于 2024-5-31 18:46
+
+生日只出实体周边那还好，歌也只是放出来听，暂时没出卡
+
+*****
+
+####  Laie  
+##### 5229#       发表于 2024-5-31 18:46
+
+对流媒体和sns热度的运用终于到了正常水平，又到了怒小高不争整那些抽象宣发企划白白浪费两三年窗口期的环节了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊布桑  
+##### 5230#       发表于 2024-5-31 18:48
+
+妹妹也是盾流啊，符合人设，上限最高的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  Vacuolar  
+##### 5231#       发表于 2024-5-31 18:48
+
+有歌，有mv，有剧情，有人物，有服装。我只能说氪的钱至少到了该去的地方。
+
+福利低就低了，抠抠索索的事情万代干太多，这种该有的东西好来多来。
+
+*****
+
+####  花开安菲路  
+##### 5232#       发表于 2024-5-31 18:48
+
+出妹妹真是太好了，虽然白嫖没钻抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+妹妹可是前第一主角人设啊，s卡的ssr有4张相关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  虚无缥缈的光阴  
+##### 5233#       发表于 2024-5-31 18:49
+
+美玲也快出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  patema  
+##### 5234#       发表于 2024-5-31 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以抽的出来吗各位
+
+
+*****
+
+####  野菜一日分  
+##### 5235#       发表于 2024-5-31 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话小高和男人都在关键时候撞到疫情期，还是有点特殊的
+

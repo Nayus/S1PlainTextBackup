@@ -572,3 +572,17 @@ targetSdkVersion是34 (Android 14)
 
 —— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gstsg  
+##### 1620#       发表于 2024-5-31 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061014&amp;ptid=1220112" target="_blank">河水 发表于 2024-5-30 23:09</a>
+旧版s1有个自动繁转简的功能，他们用脚本绕过机制发帖，现在s1取消转换就变成这样了
+
+—— 来自 Realme R ...</blockquote>
+好吧，谢谢。
+
+—— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

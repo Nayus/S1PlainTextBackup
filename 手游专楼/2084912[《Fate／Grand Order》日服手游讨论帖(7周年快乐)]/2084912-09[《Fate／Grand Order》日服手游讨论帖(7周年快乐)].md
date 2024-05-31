@@ -67,3 +67,15 @@
 定语加的多就能当第一系列
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12788#       发表于 2024-5-31 18:08
+
+ 本帖最后由 eilot 于 2024-5-31 18:09 编辑 
+
+幕間周突然吐了兩個角色?不過兩個都有技能強化，算好了，就當是送石
+
+不過原來官方還記得有幕間這回事，幫角色出新劇情
+

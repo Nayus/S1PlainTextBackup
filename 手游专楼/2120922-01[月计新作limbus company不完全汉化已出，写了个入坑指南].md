@@ -470,3 +470,71 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 良秀先不提，罗佳和宝子哥还是比较靠谱的吧，虽然远远不及但丁提的那仨不过怎么都没人提以实玛丽呢，她难道不是靠谱标兵
 
+
+*****
+
+####  Jamaisvu  
+##### 727#       发表于 2024-5-31 19:05
+
+<img src="https://img.saraba1st.com/forum/202405/31/185433tmwroomgm2m2mvow.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240531_185237.jpg</strong> (107.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-5-31 18:54 上传
+
+6.13开启时间杀人事件间章，助手组但丁想选浮士德、默尔索和李箱三个靠谱的，但是维吉尔让选罗佳、良秀和鸿璐。
+
+一般来说间章会出2—4个新人格或ego，良秀在3.5地狱鸡有三星人格，良秀+鸿璐在4.5夏活里出了ego，默尔索+浮士德在5.5肉斩骨断出了人格。
+
+（签到送的臼齿二人组先不考虑了）
+
+这么看的话罗佳和李箱有新形态的可能性最大，间章一般要联动一下前作，不过都杀人案肯定需要...摩西李箱和以斯拉罗佳如何？！
+
+*****
+
+####  Yuzutea  
+##### 728#       发表于 2024-5-31 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65070894&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-5-31 19:00</a>
+
+好的谢谢！是初始号，虽然是便宜价格买的除了5万狂气以外没啥东西</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种签到号没抽卡卷和经验书吗？
+
+你氪通行证的话我建议你等那个双ego的赛季活动池子抽到剩200抽补补人格
+
+之后除了瓦夜就别抽了，差不多每次瓦夜间隔能攒个200多小几十抽吧
+
+然后氪通行证的话每天买两次体力，箱子坐牢换卡的性价比相当于你抽每张新卡都是十连出
+
+*****
+
+####  Jamaisvu  
+##### 729#       发表于 2024-5-31 19:07
+
+<blockquote>Yuzutea 发表于 2024-5-31 18:55
+活动限定我记得不是整个赛季能池子出和售货机换
+
+然后下赛季从池子和售货机移除
+
+下下赛季进池子和售货机吗 ...</blockquote>
+谢谢指正，我售货机看到活动人格习惯性换空，没注意时效，这就去改。
+
+*****
+
+####  kurihayn  
+##### 730#       发表于 2024-5-31 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65070960&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-5-31 19:05</a>
+
+这种签到号没抽卡卷和经验书吗？
+
+你氪通行证的话我建议你等那个双ego的赛季活动池子抽到剩200抽补补人格
+
+ ...</blockquote>
+反正都玩了一个星期了，有也都被我用光了…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+因为看人说环箱强无敌所以我在练血雾队…(现在只有四个人格满40级)
+

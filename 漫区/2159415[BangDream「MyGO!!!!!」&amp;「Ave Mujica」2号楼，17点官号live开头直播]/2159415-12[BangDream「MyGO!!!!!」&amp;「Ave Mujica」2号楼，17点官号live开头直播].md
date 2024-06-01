@@ -10418,3 +10418,22 @@ https://weibo.com/7913655569/5040258784166304
 
 就该住一起公私不分<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 17211#       发表于 2024-6-1 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65081580&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-1 21:59</a>
+
+五个人同居好，高中就一起同居算了。祥子要离开小破屋，睦家里太空了，初华一个人在外打拼，喵给家人打电话 ...</blockquote>
+你是指员工宿舍吗？<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17212#       发表于 2024-6-1 22:27
+
+租个一户建、一楼录音室、二楼各人房间
+谁爽死了 我爽死了
+

@@ -1805,3 +1805,11 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 伞乙：还、还可以吧(心虚)
 
+
+*****
+
+####  罗克萨斯  
+##### 4618#       发表于 2024-6-1 22:19
+
+原来连Naegora也会开螃蟹时被龙卷风卷死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我今天开螃蟹时也这么被贴牌FF丢龙卷风卷死过，以至于觉得贴牌FF配置似乎还不错
+

@@ -9162,3 +9162,19 @@ SC这动画全篇弥漫着一种なんとなく的敷衍感...
 
 看着我身上的300盾气死我了
 
+
+*****
+
+####  花开安菲路  
+##### 5304#       发表于 2024-6-1 17:40
+
+妹妹的角色卡和支援卡直接活动最高加成，六字太懂骗氪了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+继承的垃圾照片怎么删除啊？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 5305#       发表于 2024-6-1 17:43
+
+大概是MAO太難請了，這次晝夜兩場的文香SOLO曲都安排了《銀河圖書館》這首。
+

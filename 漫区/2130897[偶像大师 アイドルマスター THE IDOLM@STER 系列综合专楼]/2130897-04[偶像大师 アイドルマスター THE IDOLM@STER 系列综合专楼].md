@@ -8821,3 +8821,81 @@ cd怎么这么大
 
 毛球池黑了，妹妹池10连出货，一天不骂万南<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rslika  
+##### 5284#       发表于 2024-6-1 10:56
+
+50抽只出了个手球 之前送的十连卷双黄反向垫刀了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  depthlee  
+##### 5285#       发表于 2024-6-1 11:02
+
+四十抽三彩全是辅助卡……我的胃好疼……已经一分钱也没有了……
+
+*****
+
+####  Porsche  
+##### 5286#       发表于 2024-6-1 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20连莉波+1老师+1
+骂骂咧咧转生去了
+
+*****
+
+####  Swss  
+##### 5287#       发表于 2024-6-1 11:08
+
+60抽5ssr歪了4个，就抽到s卡，嗦不出话了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  l3r0nY@  
+##### 5288#       发表于 2024-6-1 11:15
+
+送的单抽又出了一张luna say maybe，妹妹没出<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rslika  
+##### 5284#       发表于 2024-6-1 10:56
+
+50抽只出了个手球 之前送的十连卷双黄反向垫刀了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  depthlee  
+##### 5285#       发表于 2024-6-1 11:02
+
+四十抽三彩全是辅助卡……我的胃好疼……已经一分钱也没有了……
+
+*****
+
+####  Porsche  
+##### 5286#       发表于 2024-6-1 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20连莉波+1老师+1
+骂骂咧咧转生去了
+
+*****
+
+####  Swss  
+##### 5287#       发表于 2024-6-1 11:08
+
+60抽5ssr歪了4个，就抽到s卡，嗦不出话了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  l3r0nY@  
+##### 5288#       发表于 2024-6-1 11:15
+
+送的单抽又出了一张luna say maybe，妹妹没出<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

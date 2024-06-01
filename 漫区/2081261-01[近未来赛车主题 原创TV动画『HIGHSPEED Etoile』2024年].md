@@ -431,3 +431,11 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  6030sylar  
+##### 367#       发表于 2024-6-1 10:01
+
+还有托娃和彼方的高光回，先做闺蜜的再做女主
+

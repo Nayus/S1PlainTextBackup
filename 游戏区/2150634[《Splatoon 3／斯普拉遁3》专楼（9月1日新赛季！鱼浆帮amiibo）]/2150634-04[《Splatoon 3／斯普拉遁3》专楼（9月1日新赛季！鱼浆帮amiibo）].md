@@ -1706,3 +1706,11 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 开放被暴打，然后去打挑战，合计打了两个多小时，一看分才涨了50多，群魔乱舞的新赛季，我要不等一个月再打上S+10吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 4609#       发表于 2024-6-1 13:15
+
+单绿的保底武器给的好烂，看起来灵活杂鱼一堆起来完全没办法，绿问号还不一定能roll出好清杂的武器
+

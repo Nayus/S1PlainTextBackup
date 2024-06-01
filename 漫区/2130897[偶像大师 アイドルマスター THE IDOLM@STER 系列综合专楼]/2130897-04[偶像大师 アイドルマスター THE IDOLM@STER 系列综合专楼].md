@@ -8920,3 +8920,44 @@ cd怎么这么大
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经验来说还是等第一次限定之后再转生的好
 
+
+*****
+
+####  wfhtony  
+##### 5291#       发表于 2024-6-1 13:14
+
+<img src="https://img.saraba1st.com/forum/202406/01/131359spkbycm2bkzmmst2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-13h09m12s736.jpg</strong> (192.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 13:13 上传
+
+おかえり。
+
+然後就是UNCALL大合唱了。
+
+<img src="https://img.saraba1st.com/forum/202406/01/131359aehue6pwp77sjyie.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-13h10m58s640.jpg</strong> (183.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 13:13 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/131400pcyyhjtr9mtmcjrc.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-13h13m12s110.jpg</strong> (201.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 13:14 上传
+
+*****
+
+####  冰风血羽  
+##### 5292#       发表于 2024-6-1 13:17
+
+工伤报告看完了，向三牛老师投币致敬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太惨了
+

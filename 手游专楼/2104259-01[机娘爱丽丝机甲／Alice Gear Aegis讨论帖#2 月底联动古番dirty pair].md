@@ -53,3 +53,13 @@
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  披头破落户  
+##### 1074#       发表于 2024-6-1 14:24
+
+<img src="https://p.sda1.dev/17/f35a6fd95c8c9d32c6a3bd3a56693838/CMP_20240601142041599.jpg" referrerpolicy="no-referrer">发个长闲的寿屋模型特典码，用到的楼友帮忙加个鹅就行
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

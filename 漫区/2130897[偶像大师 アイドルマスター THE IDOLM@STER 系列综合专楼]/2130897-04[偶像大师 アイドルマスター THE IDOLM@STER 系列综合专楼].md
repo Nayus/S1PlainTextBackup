@@ -9213,3 +9213,27 @@ SC这动画全篇弥漫着一种なんとなく的敷衍感...
 大概是MAO太難請了，這次晝夜兩場的文香SOLO曲都安排了《銀河圖書館》這首。 ...</blockquote>
 更难请的还有个早见 唉我想看pretty liar现场啊
 
+
+*****
+
+####  wfhtony  
+##### 5309#       发表于 2024-6-1 18:30
+
+ 本帖最后由 wfhtony 于 2024-6-1 18:33 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/01/183123um8mqm31gq4mrd47.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-18h30m58s121.jpg</strong> (282.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 18:31 上传
+
+デレステ九週年確定有LIVE。
+
+演出名稱「STARLIGHT FANTASY」，場地爲：[K-arena橫浜](https://k-arena.com/)。
+
+時間爲9/14（週六）。
+
+只開一天？
+

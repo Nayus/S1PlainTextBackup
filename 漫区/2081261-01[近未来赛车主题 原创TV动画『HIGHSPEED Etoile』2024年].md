@@ -504,3 +504,13 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 —— 来自 asus ASUS_I002D, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  arachnid  
+##### 374#       发表于 2024-6-1 13:31
+
+以后这集女主要来装b了结果开局就被淘汰，这……？？？
+
+好像看到碧蓝航线的赞助了
+

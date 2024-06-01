@@ -959,3 +959,13 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 不是，本来想去收个现货的一查怎么那么贵，我记得这个系列之前不都是600多吗。 ...</blockquote>
 过阵子肯定有排跌
 
+
+*****
+
+####  csolfans  
+##### 20258#       发表于 2024-6-1 10:08
+
+卧槽，鱼巡开的上海静安体育中心
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

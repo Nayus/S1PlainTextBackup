@@ -1635,3 +1635,15 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  秋月孝三  
+##### 4602#       发表于 2024-6-1 10:07
+
+ 本帖最后由 秋月孝三 于 2024-6-1 10:08 编辑 
+
+这新刀果然只能活在PV，弱坡弱台阶，确实是正统猛汉太刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

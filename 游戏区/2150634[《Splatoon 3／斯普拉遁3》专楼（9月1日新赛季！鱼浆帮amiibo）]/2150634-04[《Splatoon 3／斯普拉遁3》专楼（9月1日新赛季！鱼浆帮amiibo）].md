@@ -1674,3 +1674,11 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 今天试着打了几把，遇到消防栓或者长热炮之类的武器被射程就很难受，有啥对策么
 
+
+*****
+
+####  stoiorz  
+##### 4606#       发表于 2024-6-1 11:59
+
+新弓强得离谱。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

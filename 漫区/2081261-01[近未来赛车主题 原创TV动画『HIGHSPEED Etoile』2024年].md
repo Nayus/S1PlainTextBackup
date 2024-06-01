@@ -439,3 +439,33 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 还有托娃和彼方的高光回，先做闺蜜的再做女主
 
+
+*****
+
+####  上坂莲华  
+##### 368#       发表于 2024-6-1 11:55
+
+真就人人有冠军拿是吧，下次怎么ban国王和女王，家里有事暂时来不了？差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 369#       发表于 2024-6-1 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这片演到现在,套路应该是在女主的帮助下
+
+前辈们各个赢一次解开心结的样子
+
+
+*****
+
+####  月夜凝雪  
+##### 370#       发表于 2024-6-1 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65076979&amp;ptid=2081261" target="_blank">raimouse 发表于 2024-6-1 11:57</a>
+
+这片演到现在,套路应该是在女主的帮助下
+
+前辈们各个赢一次解开心结的样子 ...</blockquote>
+剩下两个是同期了
+

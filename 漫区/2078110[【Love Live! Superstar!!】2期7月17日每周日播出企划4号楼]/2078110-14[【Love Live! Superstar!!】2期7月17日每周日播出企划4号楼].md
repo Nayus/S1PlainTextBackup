@@ -985,3 +985,11 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 那确实对人生挺重要的，至今为止solo最大的场了，能来的尽量来吧
 
+
+*****
+
+####  starring  
+##### 20260#       发表于 2024-6-1 11:55
+
+查了一下是4000多人的大场，真给力
+

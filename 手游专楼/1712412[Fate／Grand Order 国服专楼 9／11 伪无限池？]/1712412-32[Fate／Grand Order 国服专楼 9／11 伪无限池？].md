@@ -414,3 +414,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 大版本估计做不出来按照狗粮数量排序功能，清理箱子也坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46421#       发表于 2024-6-1 22:26
+
+小号也手打到250池了，自回体了。大号今天付费单抽抽到了伊利亚，2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -1813,3 +1813,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 原来连Naegora也会开螃蟹时被龙卷风卷死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我今天开螃蟹时也这么被贴牌FF丢龙卷风卷死过，以至于觉得贴牌FF配置似乎还不错
 
+
+*****
+
+####  KBAC  
+##### 4619#       发表于 2024-6-1 22:29
+
+大桥和鱼露遗迹那莫名其妙的断头路打通了之后感觉整个图都明亮了不少。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

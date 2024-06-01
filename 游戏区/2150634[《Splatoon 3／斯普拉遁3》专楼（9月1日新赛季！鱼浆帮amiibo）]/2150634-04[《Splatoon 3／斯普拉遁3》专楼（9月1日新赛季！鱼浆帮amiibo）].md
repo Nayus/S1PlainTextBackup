@@ -1625,3 +1625,13 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 新弓还挺有意思的
 
+
+*****
+
+####  Linsdy  
+##### 4601#       发表于 2024-6-1 09:49
+
+新刀没那么强，但是新弓是真恶心
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

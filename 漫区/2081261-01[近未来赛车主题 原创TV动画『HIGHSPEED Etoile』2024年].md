@@ -419,3 +419,15 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  月夜凝雪  
+##### 366#       发表于 2024-6-1 09:00
+
+一个太强了塞了个夜晚debuff，一个完全形态了再不行太难看直接来意外
+
+这动画真的除掉那烂透的解说各方面都还好
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1024,3 +1024,17 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 肯定坐不满啊，就是看看能坐多少，下次就会根据这个做调整，企划那边也可以作参考
 
+
+*****
+
+####  starring  
+##### 20265#       发表于 2024-6-1 22:38
+
+这下真的是儿童节礼物了
+
+整体做工还是可以，不过面相角度限定不然有点恐怖谷效应，招牌没有卡位单纯靠手掌扶着很容易掉<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/0cbfcf5ac34289d2c76f2a1820ff31d2/P6010379.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/17/44792c36ba151775044c8d5df3db2547/P6010382.jpg" referrerpolicy="no-referrer">
+

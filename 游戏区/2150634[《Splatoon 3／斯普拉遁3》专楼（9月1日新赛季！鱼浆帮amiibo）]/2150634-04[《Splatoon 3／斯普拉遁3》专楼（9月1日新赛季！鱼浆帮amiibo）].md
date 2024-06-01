@@ -1607,3 +1607,13 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 说起来这次85的加强体感还挺好的，打架能力比原来强不少
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4599#       发表于 2024-6-1 08:53
+
+新刀太强了吧，实战无论是对战还是打工简直无敌
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

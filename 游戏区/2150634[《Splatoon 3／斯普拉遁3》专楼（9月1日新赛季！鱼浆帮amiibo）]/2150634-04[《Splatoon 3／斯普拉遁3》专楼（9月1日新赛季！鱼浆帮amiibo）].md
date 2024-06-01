@@ -1696,3 +1696,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 4608#       发表于 2024-6-1 12:33
+
+新赛季开螃蟹被打烂N次，用刀的太多了，看配装似乎都是直接用的电锯的，那个前冲然后大幅度转向拔刀蛮强的（滑步时不一定要正对着对手，接近后再瞄准即可），感觉是比电锯更适合前线的刮水刀
+
+开放被暴打，然后去打挑战，合计打了两个多小时，一看分才涨了50多，群魔乱舞的新赛季，我要不等一个月再打上S+10吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

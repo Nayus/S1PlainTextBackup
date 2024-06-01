@@ -87,3 +87,13 @@
 
 这下牢青荣升第二了，第一是雷打不动的刑部姬。
 
+
+*****
+
+####  不垃圾屌丝  
+##### 12790#       发表于 2024-6-1 17:12
+
+该增加按特性筛选从者功能了，这一年里有戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

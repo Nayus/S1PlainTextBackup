@@ -9319,3 +9319,13 @@ k-arena是上年才开张的大场，是散伙饭了<img src="https://static.sar
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  萨文科夫  
+##### 5318#       发表于 2024-6-1 23:48
+
+白连衣裙，真该有大活吧
+
+—— 来自 OPPO PEEM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

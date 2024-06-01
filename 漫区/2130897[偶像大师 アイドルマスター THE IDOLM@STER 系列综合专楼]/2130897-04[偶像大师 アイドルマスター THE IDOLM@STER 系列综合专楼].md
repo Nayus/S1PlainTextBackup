@@ -8912,3 +8912,11 @@ cd怎么这么大
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  野菜一日分  
+##### 5290#       发表于 2024-6-1 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经验来说还是等第一次限定之后再转生的好
+

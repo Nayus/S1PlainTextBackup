@@ -571,3 +571,31 @@ Sachs从二十多岁哈佛拿到tenure的神童到今天的魔怔人，实属美
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  deadpig  
+##### 57#         楼主| 发表于 2024-6-1 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65075536&amp;ptid=2185534" target="_blank">电波系腑海林 发表于 2024-6-1 07:19</a>
+
+霹雳霹雳视频被下架了，up重新上架的删掉了关于新冠的部分。
+
+—— 来自 S1Fun ...</blockquote>
+这也是我有把covid那段翻白的原因。
+
+基于萨克斯的信息，
+
+这个病毒怎么到武汉的，解读起来还是比较暧昧的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">为了狗叔，不要多讨论…
+
+*****
+
+####  松云真人  
+##### 58#       发表于 2024-6-1 09:14
+
+<blockquote>ZetaGo 发表于 2024-5-30 19:12
+cia和鼬鲐人谁更吊</blockquote>
+各有千秋，至起码贩毒这方面cia遥遥领先
+

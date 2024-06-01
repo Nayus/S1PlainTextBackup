@@ -1647,3 +1647,11 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  墨染白泉  
+##### 4603#       发表于 2024-6-1 10:42
+
+新刀没电锯强，不过我拿新刀还拿了个四杀，太刀还是帅
+

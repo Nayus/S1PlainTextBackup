@@ -1050,3 +1050,14 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 整体做工还是可以，不过面相角度限定不然有点恐怖谷效应，招牌没有卡位单纯靠手掌 ...</blockquote>
 我个人觉得1300完全不值
 
+
+*****
+
+####  starring  
+##### 20267#       发表于 2024-6-1 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65082029&amp;ptid=2078110" target="_blank">we89623 发表于 2024-6-1 22:49</a>
+
+我个人觉得1300完全不值</blockquote>
+980，哪里预定是1300
+

@@ -9329,3 +9329,36 @@ k-arena是上年才开张的大场，是散伙饭了<img src="https://static.sar
 
 —— 来自 OPPO PEEM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黛冬优子  
+##### 5319#       发表于 2024-6-2 00:13
+
+<img src="https://img.saraba1st.com/forum/202406/02/001339cv0imqtgo0q22qrf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-2 00:13 上传
+
+但凡来个闪p编个剧情都比闪闪的好
+
+*****
+
+####  cckuku  
+##### 5320#       发表于 2024-6-2 00:15
+
+好像也没见人出来解释为什么sc动画没有新歌的问题。
+
+
+*****
+
+####  Swss  
+##### 5321#       发表于 2024-6-2 00:22
+
+别说新歌，他甚至连老歌都不愿意多放几首。
+
+ep9 结尾p说我们有一首新歌然后开始放stw的时候给我整笑了
+

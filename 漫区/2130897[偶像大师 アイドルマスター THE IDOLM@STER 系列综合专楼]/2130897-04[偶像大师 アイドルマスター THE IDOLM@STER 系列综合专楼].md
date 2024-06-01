@@ -9193,3 +9193,12 @@ SC这动画全篇弥漫着一种なんとなく的敷衍感...
  ...</blockquote>
 在memory菜单里可以卖，换抽周回卡池那个代笔
 
+
+*****
+
+####  Arirs  
+##### 5307#       发表于 2024-6-1 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65077789&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-6-1 13:45</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">美美美
+

@@ -362,3 +362,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发这种sc没啥用，不会回应的
 
+
+*****
+
+####  holoan  
+##### 8911#         楼主| 发表于 2024-5-31 10:50
+
+如果是真的读了肯定是不会直接回应的，但是关键是你要怎么委婉地拒绝还要照顾不伤害到粉丝心情还要面对着几万正在看直播的观众，这非常考验主播情商和即兴语言能力
+
+当然了没读到直接就没这事了，SB台湾人就是了
+
+*****
+
+####  holoan  
+##### 8912#         楼主| 发表于 2024-6-1 20:20
+
+<img src="https://img.saraba1st.com/forum/202406/01/202046j1zz8xwqtaqb45xa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 20:20 上传
+

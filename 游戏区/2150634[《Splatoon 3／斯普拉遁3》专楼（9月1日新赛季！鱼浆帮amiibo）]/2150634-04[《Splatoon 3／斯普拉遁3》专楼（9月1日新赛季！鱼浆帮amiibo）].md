@@ -1682,3 +1682,17 @@ magi终于更新视频了<img src="https://static.saraba1st.com/image/smiley/fac
 
 新弓强得离谱。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  DeltaStriker  
+##### 4607#       发表于 2024-6-1 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65076854&amp;ptid=2150634" target="_blank">Humpy 发表于 2024-6-1 11:37</a>
+新刀感觉威猛起来真帅，但是限制也很大，估计要好好练习才能发挥性能…
+
+今天试着打了几把，遇到消防栓或者 ...</blockquote>
+X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -8998,3 +8998,97 @@ cd怎么这么大
 
  <blockquote>08. 銀河図書館 // Ｍ・Ａ・Ｏ</blockquote>
 
+
+*****
+
+####  wfhtony  
+##### 5296#       发表于 2024-6-1 14:32
+
+ 本帖最后由 wfhtony 于 2024-6-1 14:34 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/01/143112pywpt2tyu1wtraay.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h28m24s455.jpg</strong> (497.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+CG TOUR 東京場業務聯絡環節：
+
+<img src="https://img.saraba1st.com/forum/202406/01/143113ionnd24wddf2ff4d.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h28m45s481.jpg</strong> (258.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143114aaf6bzaqd4ksfqqu.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h28m52s629.jpg</strong> (534.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143117u7k2z0z2oo88ee7i.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h29m04s430.jpg</strong> (533.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143119u3xzoo8goo6duuzg.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h29m16s227.jpg</strong> (468.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+りあむ結婚是開炎上記者會是吧(
+
+<img src="https://img.saraba1st.com/forum/202406/01/143120f8558n0nfi8zzpea.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h29m33s511.jpg</strong> (299.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143123rtstnvnzmwmw9n9v.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h30m54s486.jpg</strong> (367.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143237k0wqo0tploqb5pok.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h31m33s039.jpg</strong> (234.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143238er8brcztg5evedqe.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h31m50s369.jpg</strong> (198.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:32 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/143239in4vwwwsr7y94ysr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-01-14h32m22s800.jpg</strong> (205.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 14:32 上传
+
+以上爲晝場的業務聯絡環節，如無意外，夜場同環節的內容應該和晝場一致。
+

@@ -9178,3 +9178,18 @@ SC这动画全篇弥漫着一种なんとなく的敷衍感...
 
 大概是MAO太難請了，這次晝夜兩場的文香SOLO曲都安排了《銀河圖書館》這首。
 
+
+*****
+
+####  Swss  
+##### 5306#       发表于 2024-6-1 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65079427&amp;ptid=2130897" target="_blank">花开安菲路 发表于 2024-6-1 17:40</a>
+
+妹妹的角色卡和支援卡直接活动最高加成，六字太懂骗氪了
+
+继承的垃圾照片怎么删除啊？
+
+ ...</blockquote>
+在memory菜单里可以卖，换抽周回卡池那个代笔
+

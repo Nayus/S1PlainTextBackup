@@ -1769,3 +1769,15 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  KBAC  
+##### 4616#       发表于 2024-6-1 20:39
+
+ 本帖最后由 KBAC 于 2024-6-1 20:41 编辑 
+
+没怎么玩过刀，编辑了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

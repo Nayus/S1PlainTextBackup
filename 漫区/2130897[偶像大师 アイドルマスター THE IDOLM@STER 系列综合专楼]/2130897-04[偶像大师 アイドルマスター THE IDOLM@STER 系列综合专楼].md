@@ -9362,3 +9362,31 @@ k-arena是上年才开张的大场，是散伙饭了<img src="https://static.sar
 
 ep9 结尾p说我们有一首新歌然后开始放stw的时候给我整笑了
 
+
+*****
+
+####  黑翼死神  
+##### 5322#       发表于 2024-6-2 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65082903&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-6-2 00:15</a>
+
+好像也没见人出来解释为什么sc动画没有新歌的问题。</blockquote>
+記得訪談是說想營造頁遊第一年的氣氛，所以就只有第一年的歌
+
+
+*****
+
+####  Seeley  
+##### 5323#       发表于 2024-6-2 00:31
+
+这空气感是怎么就给闪彩动画组下了咒呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  八宫めぐる  
+##### 5324#       发表于 2024-6-2 00:32
+
+只要第二季円神登场，一切都会好起来的
+

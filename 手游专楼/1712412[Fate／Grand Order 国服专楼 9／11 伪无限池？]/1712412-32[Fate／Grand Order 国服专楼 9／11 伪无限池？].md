@@ -406,3 +406,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 每月两次搓圣杯要搓不出来了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  隰有苌楚  
+##### 46420#       发表于 2024-6-1 18:22
+
+大版本估计做不出来按照狗粮数量排序功能，清理箱子也坐牢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -1757,3 +1757,15 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 新弓这个一确在打工里会不会拉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 4615#       发表于 2024-6-1 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65075326&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-6-1 03:51</a>
+说起来这次85的加强体感还挺好的，打架能力比原来强不少</blockquote>
+确实 走射时间长点不会像以前一样有点尴尬
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

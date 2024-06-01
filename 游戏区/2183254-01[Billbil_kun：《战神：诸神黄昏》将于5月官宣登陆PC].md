@@ -362,3 +362,26 @@ GT7是索尼高层不让上，老壁灯自己有点想上的
 
 dlc战斗爽。
 
+
+*****
+
+####  usodakedo  
+##### 42#       发表于 2024-6-1 18:14
+
+ 本帖最后由 usodakedo 于 2024-6-1 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64875542&amp;ptid=2183254" target="_blank">天堂大法 发表于 2024-5-10 18:29</a>
+我主要是感觉PS5第一方本身新作就很少，这诸神黄昏上这么快索粉别再顶不住，以前就有哥们回复过我这个
+
+ ...</blockquote>
+反向思考，说明血源在索索那里是超一流游戏，真正的GOAT，所以迟迟不上pc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  性兽阿怪  
+##### 43#       发表于 2024-6-1 18:21
+
+有跳铁森林和儿子的mod才下单<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

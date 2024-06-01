@@ -9202,3 +9202,14 @@ SC这动画全篇弥漫着一种なんとなく的敷衍感...
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65077789&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-6-1 13:45</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">美美美
 
+
+*****
+
+####  wpcc  
+##### 5308#       发表于 2024-6-1 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65079447&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-6-1 17:43</a>
+
+大概是MAO太難請了，這次晝夜兩場的文香SOLO曲都安排了《銀河圖書館》這首。 ...</blockquote>
+更难请的还有个早见 唉我想看pretty liar现场啊
+

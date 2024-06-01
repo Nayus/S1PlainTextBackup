@@ -465,3 +465,18 @@ sf6可能是没有玩，但是云过？
 
 初次见面， ポピ様#115疑似是你咩lol小号 ,刚刚下播之后用rnea的号和uruca打了把竞技场之后，uruca那边接下来的下一场就是和这个号打的，而且英雄池对的上，粗略对了一下往上推一两个星期的直播时间也感觉挺合理的，楼里大佬们有空可以去查证一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thisisaspider  
+##### 16491#       发表于 2024-6-1 07:22
+
+波比人柱力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 16492#       发表于 2024-6-1 13:39
+
+初次见面，是新粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

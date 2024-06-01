@@ -97,3 +97,13 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  琴酒  
+##### 12791#       发表于 2024-6-1 21:48
+
+fgo街机破了 目前n卡限定 连服务器要代理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+b站有教学视频和群号
+

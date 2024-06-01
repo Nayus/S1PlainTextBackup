@@ -1038,3 +1038,15 @@ BV1nx4y11795<img src="https://static.saraba1st.com/image/smiley/face2017/035.png
 
 <img src="https://p.sda1.dev/17/44792c36ba151775044c8d5df3db2547/P6010382.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 20266#       发表于 2024-6-1 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65081939&amp;ptid=2078110" target="_blank">starring 发表于 2024-6-1 22:38</a>
+这下真的是儿童节礼物了
+
+整体做工还是可以，不过面相角度限定不然有点恐怖谷效应，招牌没有卡位单纯靠手掌 ...</blockquote>
+我个人觉得1300完全不值
+

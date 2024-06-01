@@ -1730,3 +1730,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 玩了这么久第一次出现真正的游戏软件错误的界面直接软件强行关闭了，重启之后直接罚我10分钟，这怪我！？
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4612#       发表于 2024-6-1 16:13
+
+爽玩到现在，太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究所你干得好啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

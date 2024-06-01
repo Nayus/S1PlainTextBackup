@@ -514,3 +514,34 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 好像看到碧蓝航线的赞助了
 
+
+*****
+
+####  poonhk  
+##### 375#       发表于 2024-6-2 01:17
+
+永远酱可爱，今集的分镜总算能把投入感速度感做出来了，有了看比赛的气氛，虽然看不懂，两个旁白还是少点说话最好
+
+*****
+
+####  poonhk  
+##### 376#       发表于 2024-6-2 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65075452&amp;ptid=2081261" target="_blank">KDConan 发表于 2024-6-1 06:29</a>
+
+粉毛凛果然玩的是头文字D</blockquote>
+那两个负责解说的在闲聊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poonhk  
+##### 377#       发表于 2024-6-2 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65075934&amp;ptid=2081261" target="_blank">月夜凝雪 发表于 2024-6-1 09:00</a>
+
+一个太强了塞了个夜晚debuff，一个完全形态了再不行太难看直接来意外
+
+这动画真的除掉那烂透的解说各方面都 ...</blockquote>
+中国人给得太多所以得给他们嬴一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

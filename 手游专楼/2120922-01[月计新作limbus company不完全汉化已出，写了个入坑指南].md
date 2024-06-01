@@ -685,3 +685,27 @@ ego饰品拿到后就会生效，所以说体系内的饰品越多越好。不�
 
 第四赛季那个付费牌子还挺不错的，打六章之前刚好看完原著，看见牌子直接买了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 740#       发表于 2024-6-1 23:38
+
+打3号线送的第三季度三星券出了船玛，我流血队要齐了！
+
+<img src="https://img.saraba1st.com/forum/202406/01/233740ap9ng36dvds9gyv6.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2987.png</strong> (557.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 23:37 上传
+
+<img src="https://img.saraba1st.com/forum/202406/01/233740j13fpzeh9ben1rda.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2988.png</strong> (763.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-1 23:37 上传
+

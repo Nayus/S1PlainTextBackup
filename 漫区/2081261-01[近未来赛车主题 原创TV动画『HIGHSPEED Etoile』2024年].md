@@ -477,3 +477,18 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 
 整这么多大龙凤居然跑不了，虽然这集还行
 
+
+*****
+
+####  raimouse  
+##### 372#       发表于 2024-6-1 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65077019&amp;ptid=2081261" target="_blank">月夜凝雪 发表于 2024-6-1 12:03</a>
+
+剩下两个是同期了</blockquote>
+集数就剩下3集
+
+国王铺垫了这么久肯定要解一次吧
+
+2个同期小妹应该是没戏份了
+

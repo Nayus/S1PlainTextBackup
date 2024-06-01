@@ -1740,3 +1740,20 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  藏獒·烨  
+##### 4613#       发表于 2024-6-1 16:43
+
+新弓的手感好有意思<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+审查者贴牌的配置个人不太喜欢，虽然塔楼可以扔垃圾了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  carroy  
+##### 4614#       发表于 2024-6-1 16:48
+
+新弓这个一确在打工里会不会拉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

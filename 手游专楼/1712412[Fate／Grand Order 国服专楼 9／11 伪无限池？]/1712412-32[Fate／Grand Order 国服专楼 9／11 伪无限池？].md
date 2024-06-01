@@ -386,3 +386,15 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  collincollin  
+##### 46418#       发表于 2024-6-1 13:19
+
+才50池
+
+看作业，我c全是要满配公主的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看好友，我c全是满配公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

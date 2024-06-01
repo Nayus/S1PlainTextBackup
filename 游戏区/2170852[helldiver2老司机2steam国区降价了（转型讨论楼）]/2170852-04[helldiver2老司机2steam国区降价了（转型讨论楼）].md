@@ -4417,3 +4417,72 @@ https://b23.tv/vgCnnAC
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟几个老外野队打暗流体N7硬是卡了一晚上，最后降到N4轻松给过了，N7直接往钻机脚下刷泰坦和强袭虫是真的绷不住
 
+
+*****
+
+####  赤井稻妻  
+##### 4841#       发表于 2024-5-31 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65061505&amp;ptid=2170852" target="_blank">yahuchi 发表于 2024-5-31 00:10</a>
+
+他竟然说12天推14个补丁的magika和现在这个摆烂的HD2相似，HD2从上线到现在几个月累计推的补丁有超过14个 ...</blockquote>
+PATCH 01.000.004 released 10 February 2024
+
+PATCH 01.000.005 released 12 February 2024
+
+PATCH 01.000.006 released 14 February 2024
+
+PATCH 01.000.007 released 15 February 2024
+
+PATCH 01.000.008 released 16 February 2024
+
+PATCH 01.000.009 released 17 February 2024
+
+PATCH 1.000.10 released 20 February 2024
+
+PATCH 1.000.11 released 22 February 2024
+
+PATCH 1.000.12 released 23 February 2024
+
+PATCH 1.000.13 released 28 February 2024
+
+PATCH 01.000.100 released 6 March 2024
+
+PATCH 1.000.102 released 12 March 2024
+
+PATCH 1.000.103 released 20 March 2024
+
+PATCH 1.000.104 released 26 March 2024
+
+PATCH 01.000.200 released 2 April 2024
+
+PATCH 01.000.201 released 3 April 2024
+
+PATCH 01.000.202 released 9 April 2024
+
+PATCH 01.000.203 released 16 April 2024
+
+PATCH 01.000.300 released 29 April 2024
+
+PATCH 01.000.301 released 2 May 2024
+
+PATCH 01.000.302 released 7 May 2024
+
+PATCH 01.000.303 released 8 May 2024
+
+PATCH 01.000.304 released 14 May 2024
+
+*****
+
+####  ykyin09  
+##### 4842#       发表于 2024-6-1 01:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟几个老外野队打暗流体N7硬是卡了一晚上，最后降到N4轻松给过了，N7直接往钻机脚下刷泰坦和强袭虫是真的绷不住
+
+*****
+
+####  ddwhzh  
+##### 4843#       发表于 2024-6-1 09:24
+
+当你早上爬起来玩了40分钟，有三个**在对着钻机喷火轰炸，然后钻机5m就反复刷泰坦，我就认定我是一生的箭头黑了。
+

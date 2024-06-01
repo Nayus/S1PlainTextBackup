@@ -50,3 +50,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这片真的就是靠华哥和女主的人设撑下去的，可惜了，这么好的OP,ED咳
 
+
+*****
+
+####  zayrq  
+##### 125#       发表于 2024-6-1 10:52
+
+这群强盗一边说弱肉强食的话，一边又说要决斗，要不要嚼一嚼自己在说啥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

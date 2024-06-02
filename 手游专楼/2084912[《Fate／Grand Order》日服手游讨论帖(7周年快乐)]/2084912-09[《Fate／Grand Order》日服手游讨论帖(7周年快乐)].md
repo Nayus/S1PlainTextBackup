@@ -121,3 +121,13 @@ b站有教学视频和群号</blockquote>
 
 —— 来自 Sony XQ-BE72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  森兰丸  
+##### 12793#       发表于 2024-6-2 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">草....才发现绿石头商店又加了新的礼装兑换
+
+我刚攒够差不多5000个绿石头就出新的....故意的吧
+

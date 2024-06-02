@@ -1422,10 +1422,10 @@
     "update": false
   },
   "1727410": {
-    "totalreply": 18466,
+    "totalreply": 18468,
     "title": "[TV2，堂堂复活！【中二电波台真爱楼】]",
     "newtitle": "[中二电波台真爱楼]",
-    "lastedit": 1717369569,
+    "lastedit": 1717370169,
     "category": "漫区",
     "active": true,
     "update": false
@@ -1827,12 +1827,12 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2353,
+    "totalreply": 2356,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1716785184,
+    "lastedit": 1717369932,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1904473": {
@@ -16587,10 +16587,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 5050,
+    "totalreply": 5052,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1717365970,
+    "lastedit": 1717370168,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -20088,10 +20088,10 @@
     "update": false
   },
   "2185771": {
-    "totalreply": 105,
+    "totalreply": 106,
     "title": "[发起个调查，看看经济景不景气]",
     "newtitle": "[发起个调查，看看经济景不景气]",
-    "lastedit": 1717361889,
+    "lastedit": 1717370296,
     "category": "外野",
     "active": true,
     "update": false
@@ -20439,19 +20439,19 @@
     "update": false
   },
   "2185886": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[老美关于航母被击中的澄清视频是假的。]",
     "newtitle": "[老美关于航母被击中的澄清视频是假的。]",
-    "lastedit": 1717369692,
+    "lastedit": 1717370296,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2185831": {
-    "totalreply": 57,
+    "totalreply": 58,
     "title": "[异世界转生那么多，有哪些值得一看？]",
     "newtitle": "[异世界转生那么多，有哪些值得一看？]",
-    "lastedit": 1717354930,
+    "lastedit": 1717369932,
     "category": "漫区",
     "active": true,
     "update": false
@@ -20547,19 +20547,19 @@
     "update": false
   },
   "2185874": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[你平时都用哪个AI大模型干啥？]",
     "newtitle": "[你平时都用哪个AI大模型干啥？]",
-    "lastedit": 1717343894,
+    "lastedit": 1717370296,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2185942": {
-    "totalreply": 49,
+    "totalreply": 51,
     "title": "[金桥国际偶遇垃圾人]",
     "newtitle": "[金桥国际偶遇垃圾人]",
-    "lastedit": 1717369692,
+    "lastedit": 1717370296,
     "category": "外野",
     "active": true,
     "update": false
@@ -20574,11 +20574,20 @@
     "update": false
   },
   "2185912": {
-    "totalreply": 41,
+    "totalreply": 42,
     "title": "[国内还有像怪物猎人一样因为系列作不一样互相咬的吗]",
     "newtitle": "[国内还有像怪物猎人一样因为系列作不一样互相咬的吗]",
-    "lastedit": 1717362849,
+    "lastedit": 1717370292,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2185887": {
+    "totalreply": 42,
+    "title": "[新船新技术造不来，老船老技术也造不来，还能干啥呢？]",
+    "newtitle": "[新船新技术造不来，老船老技术也造不来，还能干啥呢？]",
+    "lastedit": 1717370296,
+    "category": "外野",
     "active": true,
     "update": false
   }

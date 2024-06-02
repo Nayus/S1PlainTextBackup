@@ -9422,3 +9422,11 @@ ep9 结尾p说我们有一首新歌然后开始放stw的时候给我整笑了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而二期马上就要上映了，我实在是很难期待小高和池田意识到了1期动画有多么失败
 
+
+*****
+
+####  Laie  
+##### 5329#       发表于 2024-6-2 10:13
+
+看这工期，二期也不可能就一期的风评反馈做什么大的方向性调整了，跟scsp一样进入败战处理流程
+

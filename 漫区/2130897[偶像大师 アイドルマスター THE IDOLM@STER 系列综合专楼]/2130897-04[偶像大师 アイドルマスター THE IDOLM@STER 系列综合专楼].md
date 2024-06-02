@@ -9549,3 +9549,39 @@ cw还不一定有空做呢，cw现在只接imas的周年作品了吧，还是说
 
 六文字才是综合制作人，谁管你年功，没有后面的闹翻的话，肯定谁做PV谁就是学马动画的制作公司
 
+
+*****
+
+####  l3r0nY@  
+##### 5344#       发表于 2024-6-2 18:34
+
+<img src="https://img.saraba1st.com/forum/202406/02/183256qtxc4pfgxt8cwnz5.jpg" referrerpolicy="no-referrer">
+
+<strong>4F4A51C33598AB34123629DC09C59251.jpg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-2 18:32 上传
+
+国内animate miki立牌，刚上的旧活动
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 5345#       发表于 2024-6-2 18:41
+
+所以游戏那个确定是bnp做的了吗？
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 5345#       发表于 2024-6-2 18:41
+
+所以游戏那个确定是bnp做的了吗？
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

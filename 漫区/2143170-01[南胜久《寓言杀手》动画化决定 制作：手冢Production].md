@@ -22,3 +22,14 @@
 
 12话的话只能做到小道篇结束吧，话说漫画第2部结束之后作者有准备出新作么？还是继续出第3部？
 
+
+*****
+
+####  火红之眼  
+##### 107#       发表于 2024-6-2 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65091767&amp;ptid=2143170" target="_blank">Boliva 发表于 2024-6-2 23:10</a>
+
+12话的话只能做到小道篇结束吧，话说漫画第2部结束之后作者有准备出新作么？还是继续出第3部？ ...</blockquote>
+第三部吧，第二部结束时说是要出最终章，不过连载日期未定
+

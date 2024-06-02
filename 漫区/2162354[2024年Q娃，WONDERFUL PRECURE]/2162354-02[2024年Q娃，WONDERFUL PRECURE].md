@@ -1063,3 +1063,26 @@ q娃shf也打赢复活赛
 
 为什么不先把怪扬了……可能合体技前摇太长了有那个时间猫猫已经把对面打死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1570#       发表于 2024-6-2 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65086434&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-6-2 12:50</a>
+
+你不准和其他女生说话.gif，快进到隔壁某个被妹妹爆炒的姐姐
+
+这集mayu居然真的反思自己之前的变态行为了笑 ...</blockquote>
+茉优的行为哪里变态了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫屋敷ゆき  
+##### 1571#       发表于 2024-6-2 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65086495&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-6-2 12:57</a>
+
+不过从6月标题预告看下集猫组的问题没完全解决甚至可能随着真由变身被激化到顶点了，得再下集出猫组合体 ...</blockquote>
+什么叫血脉压制<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
+

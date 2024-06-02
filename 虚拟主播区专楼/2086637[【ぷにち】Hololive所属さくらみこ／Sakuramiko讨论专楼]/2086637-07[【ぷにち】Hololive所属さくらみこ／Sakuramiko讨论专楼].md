@@ -410,3 +410,28 @@
 
 哦想起来了好像是下周的联动有很多，可能就比较不好排时间吧
 
+
+*****
+
+####  holoan  
+##### 8915#         楼主| 发表于 2024-6-2 13:48
+
+今天也是17点开始，晚上虽然也有1期生的周年直播但是应该不属于不能撞的那类，大概不会再像昨天一样强制分窗了
+
+另外昨晚下播前特地提了一嘴这个结束了之后要播一个“一直想要玩的（一直在申请现在通过可以播了）”超长篇游戏，结合直播中漏出的PS5桌面的游戏列表……
+
+基本就是以前一直念想要玩的火影了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8916#         楼主| 发表于 2024-6-2 13:49
+
+<img src="https://img.saraba1st.com/forum/202406/02/134938rja7h689f0h70wy9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-2 13:49 上传
+

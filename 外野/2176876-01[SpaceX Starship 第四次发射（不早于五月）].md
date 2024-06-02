@@ -566,3 +566,19 @@ S29和B11再度合体。目前发射日期更改为不早于6月6日。
 
 材料就放那里 
 
+
+*****
+
+####  commcody  
+##### 78#         楼主| 发表于 2024-6-2 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65086684&amp;ptid=2176876" target="_blank">依然荏苒 发表于 2024-6-2 13:27</a>
+
+这两个凸起以前以为只是是放气罐和线缆，原来还有升力作用。
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 S ...</blockquote>
+2022年的采访中提到过这点
+[https://www.bilibili.com/video/BV1oY411c7uE/](https://www.bilibili.com/video/BV1oY411c7uE/)
+
+9分30秒
+

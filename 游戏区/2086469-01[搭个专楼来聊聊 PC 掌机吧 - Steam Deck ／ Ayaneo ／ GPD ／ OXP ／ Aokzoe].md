@@ -78,3 +78,17 @@ Ally X 还真的是 80wh，翻倍呀
 
 <img src="https://imgur.ihainan.me/LsmiuLT.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cc-2  
+##### 1222#       发表于 2024-6-2 17:10
+
+ROG唯一的短板没了
+
+索泰这电池容量，感觉等待他的就是ROG一代的鸡肋命运，我的ROG已经出了，续航实在受不了，SD OLED省事得多
+
+而且就我用过的WIN掌机，ROG的前端算是最好的了，虽然比SD OS差远了
+
+不知道AYA的前端如何
+

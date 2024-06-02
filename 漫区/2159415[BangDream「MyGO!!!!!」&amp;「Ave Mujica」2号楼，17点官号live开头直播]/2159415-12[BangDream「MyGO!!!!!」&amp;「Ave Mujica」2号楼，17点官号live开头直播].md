@@ -10437,3 +10437,51 @@ https://weibo.com/7913655569/5040258784166304
 租个一户建、一楼录音室、二楼各人房间
 谁爽死了 我爽死了
 
+
+*****
+
+####  鳥栖朝  
+##### 17213#       发表于 2024-6-1 21:39
+
+[https://m.weibo.cn/7360854409/5040503713694976](https://m.weibo.cn/7360854409/5040503713694976)
+
+喵祥游戏（
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 17214#       发表于 2024-6-1 21:59
+
+五个人同居好，高中就一起同居算了。祥子要离开小破屋，睦家里太空了，初华一个人在外打拼，喵给家人打电话当主播可能也是独居，海铃找归宿也疑似家里有隐情
+
+就该住一起公私不分<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 17215#       发表于 2024-6-1 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65081580&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-1 21:59</a>
+
+五个人同居好，高中就一起同居算了。祥子要离开小破屋，睦家里太空了，初华一个人在外打拼，喵给家人打电话 ...</blockquote>
+你是指员工宿舍吗？<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17216#       发表于 2024-6-1 22:27
+
+租个一户建、一楼录音室、二楼各人房间
+谁爽死了 我爽死了
+
+*****
+
+####  友情的结晶  
+##### 17217#       发表于 2024-6-2 09:59
+
+直接五人大通铺吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

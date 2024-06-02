@@ -139,3 +139,11 @@ b站有教学视频和群号</blockquote>
 
 不特意去刷绿方的话收获量和商店更新周期确实是差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千叶铁矢  
+##### 12795#       发表于 2024-6-2 18:20
+
+啊，原来十二试炼不用全打死的啊
+

@@ -124,3 +124,21 @@ APU没变的话，那其实还是没质变，但是带出去玩独立游戏可�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  navarra  
+##### 1226#       发表于 2024-6-2 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65087750&amp;ptid=2086469" target="_blank">bypass 发表于 2024-6-2 16:21</a>
+
+Ally X 还真的是 80wh，翻倍呀</blockquote>
+根据拆机能看出来，把那个抽象的两段式电池中间填满了，再微调了一下布局，当然能塞下80wh了...
+
+*****
+
+####  navarra  
+##### 1227#       发表于 2024-6-2 18:21
+
+不过还是有担忧，现在sd卡插槽倒是不会过热了，但是现在那俩usb口又被压到出风口一侧了...尤其其中一个usb还是usb4
+

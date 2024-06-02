@@ -970,3 +970,19 @@ q娃shf也打赢复活赛
 <img src="https://p.sda1.dev/17/ee972557efc025353587482806a6715b/003.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/670d106d0c38d9f2fe55d5b7071f6be2/004.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1560#       发表于 2024-6-2 08:06
+
+不愧是1000集纪念，脸基本没怎么崩
+
+
+*****
+
+####  犬飼いろは  
+##### 1561#       发表于 2024-6-2 08:09
+
+第 18 集的 TVer 源（含日字）：magnet:?xt=urn:btih:b22863bc519d8c3f4cd451ba7c02d48995af386d
+

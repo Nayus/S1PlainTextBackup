@@ -9541,3 +9541,11 @@ cw还不一定有空做呢，cw现在只接imas的周年作品了吧，还是说
 
 前辈和大前辈都是3d动画，你个刚生出来的就想用上2d了？祖传的年功序列在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 5343#       发表于 2024-6-2 18:32
+
+六文字才是综合制作人，谁管你年功，没有后面的闹翻的话，肯定谁做PV谁就是学马动画的制作公司
+

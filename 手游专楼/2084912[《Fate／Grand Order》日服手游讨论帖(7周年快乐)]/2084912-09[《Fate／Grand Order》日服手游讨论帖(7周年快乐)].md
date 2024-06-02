@@ -131,3 +131,11 @@ b站有教学视频和群号</blockquote>
 
 我刚攒够差不多5000个绿石头就出新的....故意的吧
 
+
+*****
+
+####  DARKGRAY  
+##### 12794#       发表于 2024-6-2 17:29
+
+不特意去刷绿方的话收获量和商店更新周期确实是差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

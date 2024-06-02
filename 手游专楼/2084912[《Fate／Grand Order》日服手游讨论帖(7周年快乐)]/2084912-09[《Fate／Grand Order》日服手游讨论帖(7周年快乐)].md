@@ -175,3 +175,16 @@ b站有教学视频和群号</blockquote>
 
 说起来你平常活动的银狗粮换绿方块了吗
 
+
+*****
+
+####  DARKGRAY  
+##### 12798#       发表于 2024-6-2 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65089442&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-2 19:22</a>
+
+不特意刷的话肯定不够的....之前几个月有那么几天我趁着日常减半天天都在刷白狗粮去卖
+
+现在开销大头主要 ...</blockquote>
+毕竟现在支出项多了，虽然银芙芙已经基本不用换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

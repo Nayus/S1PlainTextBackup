@@ -4526,3 +4526,15 @@ PATCH 01.000.304 released 14 May 2024
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是喜欢40分钟大地图任务
 
+
+*****
+
+####  rainknine  
+##### 4847#       发表于 2024-6-3 00:58
+
+今天才车队到齐上线打了一下新任务
+但已经充分地预习过了打法
+矿机丢石头上+暗流体喷气背包+电磁两件套+撤离点烟雾弹+肉身仇恨引泰坦走位
+公式化过点，n9不过如此嘛<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+前两天自己一个人打的时候什么情报都没有，那时的折磨现在看好像假的一样（
+

@@ -9632,3 +9632,21 @@ sunrise beyond的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MV公布一个月，开服半个月引流了，加油后辈。前辈冬优子的SOS是500多万呢
 
+
+*****
+
+####  kykawaiii  
+##### 5350#       发表于 2024-6-2 23:38
+
+毛球生日歌真好听
+
+*****
+
+####  comeshiper  
+##### 5351#       发表于 2024-6-2 23:40
+
+完了，男声翻唱溜了一天，带劲
+[www.bilibili.com/video/BV1tm42157ja](http://www.bilibili.com/video/BV1tm42157ja)
+
+果然都是honeyworks的问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

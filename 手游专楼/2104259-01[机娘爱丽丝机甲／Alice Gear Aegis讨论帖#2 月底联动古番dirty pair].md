@@ -63,3 +63,11 @@
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  江戸前ルナ  
+##### 1075#         楼主| 发表于 2024-6-2 10:43
+
+玩了试玩，这个新重装好玩啊，设计也好棒。就是很有德胖子的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

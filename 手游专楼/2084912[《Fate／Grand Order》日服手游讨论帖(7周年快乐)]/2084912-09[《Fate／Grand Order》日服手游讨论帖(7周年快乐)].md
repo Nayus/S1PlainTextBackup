@@ -107,3 +107,17 @@ fgo街机破了 目前n卡限定 连服务器要代理<img src="https://static.s
 
 b站有教学视频和群号
 
+
+*****
+
+####  gulant  
+##### 12792#       发表于 2024-6-2 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65081483&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-6-1 21:48</a>
+fgo街机破了 目前n卡限定 连服务器要代理
+
+b站有教学视频和群号</blockquote>
+是最新版还是旧版本的？
+
+—— 来自 Sony XQ-BE72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

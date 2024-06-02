@@ -445,3 +445,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  深渊骑士  
+##### 46424#       发表于 2024-6-3 06:52
+
+艹了，刷到现在还没掉礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道这活动结束了我都满破不了吗
+

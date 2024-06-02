@@ -553,3 +553,16 @@ S29和B11再度合体。目前发射日期更改为不早于6月6日。
 
 —— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  泪指环  
+##### 77#       发表于 2024-6-2 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65063594&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-31 09:16</a>
+
+马斯克说隔热瓦问题难解决，可问题是星舰不是设计上就是可以靠不锈钢硬抗嘛，不需要隔热瓦也可以安全再入的 ...</blockquote>
+怎么可能不锈钢硬抗。
+
+材料就放那里 
+

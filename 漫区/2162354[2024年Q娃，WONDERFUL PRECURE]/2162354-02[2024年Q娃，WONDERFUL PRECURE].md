@@ -1227,3 +1227,14 @@ q娃shf也打赢复活赛
 
 不能暴力镇压不代表面对伤害要束手就擒啊
 
+
+*****
+
+####  pokemon最爱  
+##### 1583#       发表于 2024-6-3 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65092430&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-6-3 00:22</a>
+
+犬组这话的问题在于她们并没有阻止嘎噜嘎噜的能力  猫组被攻击是因为她们连着两次放跑了嘎噜嘎噜  这种情 ...</blockquote>
+缺乏束缚技是这样的，建议去甜点组学习一下（
+

@@ -527,3 +527,19 @@ I will explain the problem in more depth with @Erdayastronaut next week. This is
 
 虽说是手搓铁皮罐子，但直接灌废气做regen还是有点离谱的工程智慧之美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  commcody  
+##### 75#         楼主| 发表于 2024-6-2 12:04
+
+S29和B11再度合体。目前发射日期更改为不早于6月6日。
+
+<img src="https://img.saraba1st.com/forum/202406/02/120421o2v9r29e8ovheq2z.jpg" referrerpolicy="no-referrer">
+
+<strong>GPAMZ8IboAAeETJ.jpg</strong> (223.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-2 12:04 上传
+

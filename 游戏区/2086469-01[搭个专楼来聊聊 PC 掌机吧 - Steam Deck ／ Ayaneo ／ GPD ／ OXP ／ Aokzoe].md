@@ -142,3 +142,13 @@ Ally X 还真的是 80wh，翻倍呀</blockquote>
 
 不过还是有担忧，现在sd卡插槽倒是不会过热了，但是现在那俩usb口又被压到出风口一侧了...尤其其中一个usb还是usb4
 
+
+*****
+
+####  navarra  
+##### 1228#       发表于 2024-6-2 22:17
+
+另外，根据研究，ally的sd卡问题实际不是因为过热导致的，是华硕用了一个有问题的ptc保险丝导致的
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

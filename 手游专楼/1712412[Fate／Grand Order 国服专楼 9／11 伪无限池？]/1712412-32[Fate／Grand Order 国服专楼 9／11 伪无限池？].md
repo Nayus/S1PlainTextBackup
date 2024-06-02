@@ -435,3 +435,13 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  溯夜  
+##### 46423#       发表于 2024-6-3 01:05
+
+才发现没预留主线通关后的商店兑换，还得去刷一点，掏出3五星究极豪华阵容轰炸90+了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

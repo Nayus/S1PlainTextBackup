@@ -556,3 +556,28 @@ sf6可能是没有玩，但是云过？
 
 应该是新3d的事，还是私联小男友啊
 
+
+*****
+
+####  ablast  
+##### 16500#       发表于 2024-6-2 22:08
+
+ 本帖最后由 ablast 于 2024-6-2 22:16 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/02/221643zsjf9t9vsf8kxs4z.jpg" referrerpolicy="no-referrer">
+
+<strong>1000004675.jpg</strong> (108.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-2 22:16 上传
+
+凌晨4点多好像开了推特空间 我5点多才看到手机通知 点进去已经结束了 也不确定到底有没有开<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 16501#       发表于 2024-6-3 01:39
+
+啥也没说，就是说最早四号开播，到时候讲这几天干了啥
+

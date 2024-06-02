@@ -33,3 +33,11 @@
 12话的话只能做到小道篇结束吧，话说漫画第2部结束之后作者有准备出新作么？还是继续出第3部？ ...</blockquote>
 第三部吧，第二部结束时说是要出最终章，不过连载日期未定
 
+
+*****
+
+####  pu  
+##### 108#       发表于 2024-6-3 02:35
+
+马德不够看 又要等一周<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+

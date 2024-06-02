@@ -453,3 +453,15 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 艹了，刷到现在还没掉礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道这活动结束了我都满破不了吗
 
+
+*****
+
+####  lcn  
+##### 46425#       发表于 2024-6-3 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65092594&amp;ptid=1712412" target="_blank">xy1041 发表于 2024-6-3 00:50</a>
+现在陷入一个两难境地
+90++的素材和池子都差不多了 想把已经打了的池子（200池没抽）里的铜苹果抽出来继续 ...</blockquote>
+狗粮这玩意不是纯溢出？唯一的作用就是卖了换绿方块了。
+或者搞120？
+

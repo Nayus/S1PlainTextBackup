@@ -60,3 +60,21 @@ strix出来前这些机变来变去都没意思<img src="https://static.saraba1s
 
 Ally X 还真的是 80wh，翻倍呀
 
+
+*****
+
+####  Ichihatsu  
+##### 1220#       发表于 2024-6-2 16:54
+
+这堆大厂就联想有个拆卸手柄，只有GPDAYA还在外形上搞点创新
+
+
+*****
+
+####  bypass  
+##### 1221#         楼主| 发表于 2024-6-2 17:04
+
+<img src="https://imgur.ihainan.me/tRjTAkR.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/LsmiuLT.png" referrerpolicy="no-referrer">
+

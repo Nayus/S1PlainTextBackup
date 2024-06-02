@@ -9604,3 +9604,15 @@ sunrise beyond的
 
 我要点名一部出过2d动画pv但最终是3d的动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 5348#       发表于 2024-6-2 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们真考虑过第二季就应该不会让安缇卡一轮游吧
+
+毕竟N组初期的比对对象可一直是安缇卡
+
+结果“你也一轮游啊”，算怎么回事
+

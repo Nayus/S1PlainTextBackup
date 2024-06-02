@@ -188,3 +188,18 @@ b站有教学视频和群号</blockquote>
 现在开销大头主要 ...</blockquote>
 毕竟现在支出项多了，虽然银芙芙已经基本不用换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12799#       发表于 2024-6-2 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65089826&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-2 20:02</a>
+
+说明豹豹太豹  礼装全换我还有30000多绿方块呢
+
+说起来你平常活动的银狗粮换绿方块了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹个妹妹....非洲人平常都不怎么抽卡一直在做仓鼠
+
+活动我4星金狗粮都换绿方块了......也就留了5星的
+

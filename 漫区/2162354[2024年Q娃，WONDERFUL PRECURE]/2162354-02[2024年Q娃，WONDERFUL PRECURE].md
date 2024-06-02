@@ -1048,3 +1048,18 @@ q娃shf也打赢复活赛
 
 不过这集彩狗组还是有点刻晴了，你们先指挥棒把怪扬了再训猫不就完了，非得来个双人轮流拦猫，这猫不翻脸才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1569#       发表于 2024-6-2 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65086434&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-6-2 12:50</a>
+
+你不准和其他女生说话.gif，快进到隔壁某个被妹妹爆炒的姐姐
+
+这集mayu居然真的反思自己之前的变态行为了笑 ...</blockquote>
+不过从6月标题预告看下集猫组的问题没完全解决甚至可能随着真由变身被激化到顶点了，得再下集出猫组合体技才能解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后猫组跟犬组正式合流可能要拖到22话了（22话标题是Wonderful Go~！）
+
+为什么不先把怪扬了……可能合体技前摇太长了有那个时间猫猫已经把对面打死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -203,3 +203,17 @@ b站有教学视频和群号</blockquote>
 
 活动我4星金狗粮都换绿方块了......也就留了5星的
 
+
+*****
+
+####  TheLoof  
+##### 12800#       发表于 2024-6-2 22:47
+
+ 本帖最后由 TheLoof 于 2024-6-2 22:50 编辑 
+
+绿方块一直都是刻意算好的啊
+以前抽的礼装都还要留一部分卖，不能直接搓礼装狗粮，现在倒是舒服多了，直接无脑搓
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只不过无氪还是很难崩就是了
+

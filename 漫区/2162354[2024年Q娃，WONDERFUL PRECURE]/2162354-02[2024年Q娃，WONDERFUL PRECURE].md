@@ -1136,3 +1136,16 @@ q娃shf也打赢复活赛
 
 小雪：没有那个必要！
 
+
+*****
+
+####  Piano-Forest  
+##### 1576#       发表于 2024-6-2 16:32
+
+[https://x.com/kamikitafutago/status/1797057176177086816](https://x.com/kamikitafutago/status/1797057176177086816)
+<img src="https://p.sda1.dev/17/919bcde0434d3ba408fcf45559fb45bd/20240602_163027.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/6d0d41970ea206f8c6a629672f9ed4ac/20240602_163014.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sc_ome/status/1797168598852714791](https://x.com/sc_ome/status/1797168598852714791)
+<img src="https://p.sda1.dev/17/f31fbaae89aa8704361b86f4ad5e37a9/20240602_163038.jpg" referrerpolicy="no-referrer">
+

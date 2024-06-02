@@ -160,3 +160,18 @@ b站有教学视频和群号</blockquote>
 
 现在开销大头主要是每个月都要买金芙芙....钥匙什么的能不买.....这东西不买是真不行
 
+
+*****
+
+####  alucardcz  
+##### 12797#       发表于 2024-6-2 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65089442&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-2 19:22</a>
+
+不特意刷的话肯定不够的....之前几个月有那么几天我趁着日常减半天天都在刷白狗粮去卖
+
+现在开销大头主要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明豹豹太豹  礼装全换我还有30000多绿方块呢
+
+说起来你平常活动的银狗粮换绿方块了吗
+

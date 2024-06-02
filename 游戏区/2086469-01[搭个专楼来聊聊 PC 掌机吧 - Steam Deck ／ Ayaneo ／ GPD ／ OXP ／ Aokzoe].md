@@ -106,3 +106,21 @@ APU没变的话，那其实还是没质变，但是带出去玩独立游戏可�
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  黄泉川此方  
+##### 1224#       发表于 2024-6-2 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不看前端在我心中已经超越deck了
+
+
+*****
+
+####  crosz1985  
+##### 1225#       发表于 2024-6-2 18:03
+
+国内得卖6000+了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4518,3 +4518,11 @@ PATCH 01.000.304 released 14 May 2024
 
 箭头这次送的飞鹰汽油弹真的不如前两天的电磁迫击炮 遇到个不会玩的往点里丢就别想过了
 
+
+*****
+
+####  Aeons  
+##### 4846#       发表于 2024-6-2 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是喜欢40分钟大地图任务
+

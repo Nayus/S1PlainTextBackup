@@ -9585,3 +9585,22 @@ cw还不一定有空做呢，cw现在只接imas的周年作品了吧，还是说
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  koodooliz  
+##### 5346#       发表于 2024-6-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65089063&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-6-2 18:41</a>
+所以游戏那个确定是bnp做的了吗？
+
+—— 来自 OnePlus PGKM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+sunrise beyond的
+
+*****
+
+####  馬斯特壺  
+##### 5347#       发表于 2024-6-2 18:59
+
+我要点名一部出过2d动画pv但最终是3d的动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

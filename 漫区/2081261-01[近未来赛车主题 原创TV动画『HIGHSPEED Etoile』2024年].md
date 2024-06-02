@@ -545,3 +545,11 @@ AMI酱高傲而且求嬴心很强，但是一直输受不了吧
 这动画真的除掉那烂透的解说各方面都 ...</blockquote>
 中国人给得太多所以得给他们嬴一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  达达葱2  
+##### 378#       发表于 2024-6-2 23:57
+
+二货粉主的声优是憧憬魔法少女的女主的那个？
+

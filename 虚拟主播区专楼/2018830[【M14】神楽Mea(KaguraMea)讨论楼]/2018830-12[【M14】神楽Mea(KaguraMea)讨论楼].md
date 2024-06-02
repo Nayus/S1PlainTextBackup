@@ -581,3 +581,29 @@ sf6可能是没有玩，但是云过？
 
 啥也没说，就是说最早四号开播，到时候讲这几天干了啥
 
+
+*****
+
+####  ablast  
+##### 16502#       发表于 2024-6-3 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65092804&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-6-3 01:39</a>
+
+啥也没说，就是说最早四号开播，到时候讲这几天干了啥</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ablast  
+##### 16503#       发表于 2024-6-3 07:22
+
+早  刚找到个能查战绩的软件 ios端的DailyVal下载之后登入一下自己的拳头账号就可以愉快的开查了 不过貌似只能查到三月份 楼友也赶紧去查查小麻吧<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/03/072209bn7vj6kwzfzvc4wv.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1529.png</strong> (341.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-3 07:22 上传
+

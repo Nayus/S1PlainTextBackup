@@ -9523,3 +9523,21 @@ OP都是日升做的，别家不太可能了
 
 现在还愿意做手绘live的也就cy和cw了吧，其他的印象中都是三转二了
 
+
+*****
+
+####  田所あずさ  
+##### 5341#       发表于 2024-6-2 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65087597&amp;ptid=2130897" target="_blank">flynnei 发表于 2024-6-2 16:06</a>
+
+和灰一样等1st live宣布？这次应该顺理成章给日升了吧……（A1卖完灰的碟，有没有兴趣再做一部 ...</blockquote>
+cw还不一定有空做呢，cw现在只接imas的周年作品了吧，还是说万代只有周年找cw做
+
+*****
+
+####  cckuku  
+##### 5342#       发表于 2024-6-2 18:12
+
+前辈和大前辈都是3d动画，你个刚生出来的就想用上2d了？祖传的年功序列在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

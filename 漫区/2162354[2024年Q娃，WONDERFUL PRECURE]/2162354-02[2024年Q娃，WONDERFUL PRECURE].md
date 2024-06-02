@@ -1032,3 +1032,19 @@ q娃shf也打赢复活赛
 
 令人感叹，当初还以为是新的猫狗贴贴，结果狗子都快成落单的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1568#       发表于 2024-6-2 12:50
+
+你不准和其他女生说话.gif，快进到隔壁某个被妹妹爆炒的姐姐
+
+这集mayu居然真的反思自己之前的变态行为了笑死，我嚼着后面肯定还有一集要讲吸猫，猫变成姐姐不能随便吸了导致mayu失去活力，最后抛下廉耻心狠狠吸了一顿啥的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+下集果然不出意料还是mayu反过来保护猫，这兜兜转转一大圈我还以为大妈要搞创新，最后还是不负众望的转回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老鼠是打不过猫的FLAG这个flag立得还是挺好的，下集哈姆太郎就掏出缩小光线把你们当老鼠打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这集彩狗组还是有点刻晴了，你们先指挥棒把怪扬了再训猫不就完了，非得来个双人轮流拦猫，这猫不翻脸才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

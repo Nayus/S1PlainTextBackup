@@ -130,3 +130,11 @@ Hooxi was the problem（？）
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TiiTiiLL  
+##### 4343#       发表于 2024-6-3 13:10
+
+呼吸真可以转型当教练去吧，尼指真有说法，又能指挥又能杀人跟其他队比不等于多了半个人？
+

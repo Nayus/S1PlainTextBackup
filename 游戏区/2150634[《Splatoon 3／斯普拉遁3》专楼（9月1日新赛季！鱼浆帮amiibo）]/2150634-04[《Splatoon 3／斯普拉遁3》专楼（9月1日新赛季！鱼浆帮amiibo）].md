@@ -1865,3 +1865,17 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 隐跳 0.1大跳 0.2安全鞋是不是就好？
 
+
+*****
+
+####  罗克萨斯  
+##### 4624#       发表于 2024-6-3 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65101745&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-6-3 19:56</a>
+加特林系安全鞋是带0.2还是0.3？
+
+隐跳和对物要怎么选？</blockquote>
+我配装基本学Naegora的，除了鹦鹉螺和无印圆珠笔格子紧张带0.2安全鞋，其它都是0.3起步，加特林不要在鞋子上吝啬。带不带超级跳也是看格子是否紧张，一般来说审查者和鹦鹉螺这类前线加特林最好带0.1或0.2
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

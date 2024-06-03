@@ -4760,3 +4760,11 @@ Windows update推送了bios 338，不知道改了啥
 
 —— 来自 samsung SM-X710, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  keytomylife  
+##### 469#       发表于 2024-6-3 20:42
+
+bios还没出关核 超线程功能？
+

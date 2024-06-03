@@ -1365,3 +1365,11 @@ q娃shf也打赢复活赛
 
 有没有可能，彩羽知道猫不让mayu跟自己玩之后直接挺好颜揭过去，不是因为她人美心善，是因为大妈没那个水平所以不敢写冲突<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1593#       发表于 2024-6-3 19:16
+
+真由上集差点被老虎嘎了，阻止她继续去前线没什么毛病吧，另外狗组也是心大，要不是小雪救场老虎就真把真由嘎了，她们还不稍微反思一下绝对不打合不合理，噶路嘎路被打了可是会疼了啊，真教会小友什么情况下都不能打动物那可就乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

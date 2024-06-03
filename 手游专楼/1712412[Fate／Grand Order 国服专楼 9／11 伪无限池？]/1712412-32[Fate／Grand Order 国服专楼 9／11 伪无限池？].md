@@ -477,3 +477,15 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 不过神奇的地方在于，这两个号体力是同步使用的，+11的号现在也就110多池，+8的号也105池了
 
+
+*****
+
+####  khxooo  
+##### 46427#       发表于 2024-6-3 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65094042&amp;ptid=1712412" target="_blank">hyhaha 发表于 2024-6-3 09:01</a>
+两个号一个已经满破4张了，再掉1张就+11了。另一个号还在+8 
+
+不过神奇的地方在于，这两个号体力是同步使用 ...</blockquote>
+有什么好奇怪的，同是60多池，大号满破两张，小号才掉第一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在都是250多，大号+12，小号还差两张才+12
+

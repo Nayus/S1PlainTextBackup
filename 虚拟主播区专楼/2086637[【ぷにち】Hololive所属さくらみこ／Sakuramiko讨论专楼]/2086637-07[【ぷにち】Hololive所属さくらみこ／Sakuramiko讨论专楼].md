@@ -511,3 +511,28 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">究极风暴系列好就好在剧情演出不错，正好给新进35p安利火影
 
+
+*****
+
+####  rs5621  
+##### 8925#       发表于 2024-6-3 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">究极风暴系列好就好在剧情演出不错，正好给新进35p安利火影
+
+*****
+
+####  holoan  
+##### 8926#         楼主| 发表于 2024-6-3 11:13
+
+说到这个问题刚刚就有人在待机间抱怨怎么不从1代游戏开始打，这样怎么给没看过的观众安利
+
+<img src="https://img.saraba1st.com/forum/202406/03/111152sqtg358offy2iwl0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-3 11:11 上传
+
+所以为什么要从2开始呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，玩过这系列游戏的人应该很清楚反正我没玩过也没看过火影不懂，miko也说游戏是初见，反正就是从2开始（其实有其他客观原因）
+

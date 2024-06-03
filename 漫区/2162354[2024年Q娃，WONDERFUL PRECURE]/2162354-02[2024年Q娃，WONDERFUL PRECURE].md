@@ -1315,3 +1315,13 @@ q娃shf也打赢复活赛
 ※商品の仕様、価格、発売日、巻数構成などは予告なく変更となる場合がございます。
 <img src="https://p.sda1.dev/17/aa156fbad7992db797724db3f04c5804/16719-1744-f70dd8a1c88e8eb06fa9f40788c441d6-829x530.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1588#       发表于 2024-6-3 17:04
+
+果然有人为狗组和猫之间的理念问题吵起来了
+还是根源问题士大夫们太菜
+反正就卖卖cp百合贴贴 什么问题就全部解决惹呗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

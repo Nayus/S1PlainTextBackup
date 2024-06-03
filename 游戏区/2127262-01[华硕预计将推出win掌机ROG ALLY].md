@@ -4666,3 +4666,55 @@ ROG ALLY X
 
 估计是因为保有量比较大吧
 
+
+*****
+
+####  恋妖壶  
+##### 461#       发表于 2024-6-3 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65099100&amp;ptid=2127262" target="_blank">trow233 发表于 2024-6-3 16:02</a>
+
+要出赶紧出，等X出来了价格又要掉估计
+
+我的刚出了，还算保值，但是ROG ALLY在一众WIN掌机里掉价算比较快 ...</blockquote>
+多钱，差不太多我也出了，置换个X，也不是不行
+
+*****
+
+####  trow233  
+##### 462#       发表于 2024-6-3 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65099122&amp;ptid=2127262" target="_blank">恋妖壶 发表于 2024-6-3 16:05</a>
+
+多钱，差不太多我也出了，置换个X，也不是不行</blockquote>
+我半年前咸鱼入的自改2T硬盘版本，4400
+
+两周前4000出了
+
+
+*****
+
+####  blueelf  
+##### 463#       发表于 2024-6-3 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65099100&amp;ptid=2127262" target="_blank">trow233 发表于 2024-6-3 16:02</a>
+
+要出赶紧出，等X出来了价格又要掉估计
+
+我的刚出了，还算保值，但是ROG ALLY在一众WIN掌机里掉价算比较快 ...</blockquote>
+去年下半年在京东4999抢这个的人太多，好多没有实际需求的人也去跟风抢了，结果没有饥渴销售正常供货之后就飞速下跌
+
+*****
+
+####  trow233  
+##### 464#       发表于 2024-6-3 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65099165&amp;ptid=2127262" target="_blank">blueelf 发表于 2024-6-3 16:10</a>
+
+去年下半年在京东4999抢这个的人太多，好多没有实际需求的人也去跟风抢了，结果没有饥渴销售正常供货之后 ...</blockquote>
+是啊，我记得发售初期还不好抢，耍猴什么的
+
+后来明显供大于求
+
+不知道X会是个什么情况
+

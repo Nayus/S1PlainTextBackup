@@ -1333,3 +1333,17 @@ q娃shf也打赢复活赛
 
 吵猫狗理念和吃猫组百合有什么冲突吗？犬q从开播到现在除了猫组的剧情还有什么亮点？
 
+
+*****
+
+####  leleq  
+##### 1590#       发表于 2024-6-3 18:23
+
+ 本帖最后由 leleq 于 2024-6-3 18:25 编辑 
+
+我不建议对现在的Q娃的三观有任何期待<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+希望观众们不要因为Q娃是给小友看的就对故事内涵思想思维擅自期待
+
+本着反正不是我女儿看的精神不带脑子的看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

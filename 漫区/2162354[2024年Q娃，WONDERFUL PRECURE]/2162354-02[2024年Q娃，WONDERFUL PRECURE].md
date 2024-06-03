@@ -1260,3 +1260,13 @@ q娃shf也打赢复活赛
 这集mayu居然真的反思自己之前的变态行为了笑 ...</blockquote>
 这部净化条件是安抚怪的情绪啊，不是打躺，小雪反而把怪打怕了
 
+
+*****
+
+####  不能摸的屁屁  
+##### 1586#       发表于 2024-6-3 08:08
+
+上集猫把茉优抱走后，都从中午独处到太阳下山了，咋跟狗组汇合后才想起各种羞耻play<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+不知道猫会不会像狗一样向家人暴露身份，喜欢喵喵喵还要茉优认姐姐的猫妈，母姉妹互动肯定很美妙<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">不过瞒着猫妈更有背德感，猫正板着脸教训茉优然后猫妈推门进来，为了遮掩把还在发脾气的猫抱到脸上猛吸
+

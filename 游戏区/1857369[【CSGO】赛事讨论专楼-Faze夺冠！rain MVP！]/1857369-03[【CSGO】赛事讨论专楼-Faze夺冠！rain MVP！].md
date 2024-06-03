@@ -120,3 +120,13 @@ Hooxi was the problem（？）
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  雨中曲  
+##### 4342#       发表于 2024-6-3 12:23
+
+卧槽里的，蕉！
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

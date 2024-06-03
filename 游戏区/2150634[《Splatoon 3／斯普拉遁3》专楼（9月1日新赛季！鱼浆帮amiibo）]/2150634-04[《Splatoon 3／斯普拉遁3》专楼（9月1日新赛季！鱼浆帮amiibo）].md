@@ -1889,3 +1889,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  NOSbeam  
+##### 4626#       发表于 2024-6-4 00:35
+
+重弓在塔楼模式怎么感觉比长热还逆天，不解决重弓，塔上相当于永久黏蛋。去解决重弓又要被黏脚黏到麻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

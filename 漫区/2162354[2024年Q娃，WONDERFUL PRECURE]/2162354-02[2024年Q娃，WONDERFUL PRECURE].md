@@ -1325,3 +1325,11 @@ q娃shf也打赢复活赛
 还是根源问题士大夫们太菜
 反正就卖卖cp百合贴贴 什么问题就全部解决惹呗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Parahure  
+##### 1589#       发表于 2024-6-3 18:08
+
+吵猫狗理念和吃猫组百合有什么冲突吗？犬q从开播到现在除了猫组的剧情还有什么亮点？
+

@@ -1899,3 +1899,16 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laosai13  
+##### 4627#       发表于 2024-6-4 03:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65104464&amp;ptid=2150634" target="_blank">NOSbeam 发表于 2024-6-4 00:35</a>
+
+重弓在塔楼模式怎么感觉比长热还逆天，不解决重弓，塔上相当于永久黏蛋。去解决重弓又要被黏脚黏到麻
+
+—— ...</blockquote>
+用最拿手的小绿杀了半天拼死拼活赢不了，摆烂从没用过弓箭拿贴牌重弓就往塔上打就能连胜，真离谱这个性能。
+

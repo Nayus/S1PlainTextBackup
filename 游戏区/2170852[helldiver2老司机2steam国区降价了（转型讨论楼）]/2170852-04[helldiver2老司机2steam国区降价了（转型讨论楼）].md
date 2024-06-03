@@ -4599,3 +4599,21 @@ dev说过是6月第二周才更新
 这周瑞典国庆放假，大概率下周了</blockquote>
 难说啊，这次调整难度不就是周末出补丁。
 
+
+*****
+
+####  nukecole  
+##### 4855#       发表于 2024-6-3 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65095922&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-6-3 11:20</a>
+
+难说啊，这次调整难度不就是周末出补丁。</blockquote>
+也没啥难度调整，就是紧急修了下钻机旁边不刷虫子了。。。
+
+*****
+
+####  ykyin09  
+##### 4856#       发表于 2024-6-3 11:37
+
+这暗流体还是从光能那抢的，指不定这东西就是光能族原本拿来建传送门用的来自: iPhone客户端
+

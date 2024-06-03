@@ -9701,3 +9701,19 @@ MV公布一个月，开服半个月引流了，加油后辈。前辈冬优子的
 
 感觉三牛老师和G老师拷打闪闪动画的视频比闪闪动画本身有意思（
 
+
+*****
+
+####  Laie  
+##### 5358#       发表于 2024-6-3 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">看着这宣传图恍惚间似乎进入了sc动画做得可圈可点不负期待的世界线
+
+<img src="https://img.saraba1st.com/forum/202406/03/224611ceyz48uwjtve4pue.jpg" referrerpolicy="no-referrer">
+
+<strong>1GPHTAa1a0AANBcF.jpg</strong> (85.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-3 22:46 上传
+

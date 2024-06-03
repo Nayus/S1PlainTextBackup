@@ -640,3 +640,18 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 疾风传开始的剧情啊
 
+
+*****
+
+####  holoan  
+##### 8939#         楼主| 发表于 2024-6-3 21:51
+
+这QTE系统就不让人看画面了是吧，十几年前的游戏啊
+
+*****
+
+####  rs5621  
+##### 8940#       发表于 2024-6-3 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这qte太快了吧，开的什么难度
+

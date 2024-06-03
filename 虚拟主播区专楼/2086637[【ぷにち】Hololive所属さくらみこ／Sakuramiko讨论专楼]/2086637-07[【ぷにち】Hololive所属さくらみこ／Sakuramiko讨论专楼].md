@@ -655,3 +655,33 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这qte太快了吧，开的什么难度
 
+
+*****
+
+####  holoan  
+##### 8941#         楼主| 发表于 2024-6-3 23:52
+
+一天一章的节奏
+
+以前miko打过不少游戏有这种QTE还好已经习惯了，看上去还行
+
+就是游戏操作还是那样烂，需要多练了
+
+*****
+
+####  holoan  
+##### 8942#         楼主| 发表于 2024-6-3 23:54
+
+然后不要跟我说打一章哭一次
+
+怕是你火影是你能哭得最多的一个游戏了
+
+*****
+
+####  holoan  
+##### 8943#         楼主| 发表于 2024-6-3 23:55
+
+3作4作都准备播
+
+就是1不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪谁呢
+

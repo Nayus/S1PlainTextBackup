@@ -10545,3 +10545,52 @@ soyo这个小动画的绝对不要，为什么如此难绷
 
 [https://x.com/KKNK_Ash/status/1797580257702339067](https://x.com/KKNK_Ash/status/1797580257702339067)
 
+
+*****
+
+####  鳥栖朝  
+##### 17223#       发表于 2024-6-3 17:17
+
+最想快进到周末的一集
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rikaren  
+##### 17224#       发表于 2024-6-3 17:57
+
+还有五天
+
+*****
+
+####  枫林不见  
+##### 17225#       发表于 2024-6-3 18:17
+
+soyo这个小动画的绝对不要，为什么如此难绷
+
+*****
+
+####  御幸一也  
+##### 17226#       发表于 2024-6-3 19:22
+
+<img src="https://img.saraba1st.com/forum/202406/03/192234ieplett76lnpe6al.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_🌅9️⃣(@KKNK_Ash)_20240603-104505_1797580257702339067_photo.jpg</strong> (249.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-3 19:22 上传
+
+[https://x.com/KKNK_Ash/status/1797580257702339067](https://x.com/KKNK_Ash/status/1797580257702339067)
+
+*****
+
+####  御幸一也  
+##### 17227#       发表于 2024-6-3 23:49
+
+声優事務所「響」新人声優オーディション2024開催決定
+[https://hibiki-cast.jp/20240603/](https://hibiki-cast.jp/20240603/)
+
+才看到響社招人了，上次甄選是2020年，然後2021年簽了合格的青木和立石凛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 
+

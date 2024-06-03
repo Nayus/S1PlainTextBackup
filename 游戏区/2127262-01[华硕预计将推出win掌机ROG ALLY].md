@@ -4612,3 +4612,24 @@ ROG ALLY X
 
 跟SD OLED一样，续航上去不用天天吊着一根线了
 
+
+*****
+
+####  医生狼多  
+##### 456#         楼主| 发表于 2024-6-3 15:29
+
+7月上市，strix都要出了，有点尴尬
+
+
+*****
+
+####  恋妖壶  
+##### 457#       发表于 2024-6-3 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65098154&amp;ptid=2127262" target="_blank">NameLess2501 发表于 2024-6-3 14:38</a>
+
+刚入了ROG ALLY，算49年如国军吗？
+
+不过它CPU和屏幕都没换，感觉对游戏实际影响应该不大。 ...</blockquote>
+算，CPU和屏幕都够了，原版最大痛点就是续航，实际影响最大的就是电池
+

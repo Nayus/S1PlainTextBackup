@@ -10485,3 +10485,21 @@ https://weibo.com/7913655569/5040258784166304
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  御幸一也  
+##### 17218#       发表于 2024-6-3 16:54
+
+都約好了一起今天宣傳是不是<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/03/165413r92bu9b9cy06bhy3.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240603-085229_1797551918853882157_photo.jpg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-3 16:54 上传
+
+[https://x.com/AkaneY_banu/status/1797551918853882157](https://x.com/AkaneY_banu/status/1797551918853882157)
+

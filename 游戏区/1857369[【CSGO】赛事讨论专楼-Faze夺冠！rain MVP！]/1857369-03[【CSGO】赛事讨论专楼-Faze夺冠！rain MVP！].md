@@ -138,3 +138,13 @@ Hooxi was the problem（？）
 
 呼吸真可以转型当教练去吧，尼指真有说法，又能指挥又能杀人跟其他队比不等于多了半个人？
 
+
+*****
+
+####  heseran  
+##### 4344#       发表于 2024-6-3 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65097267&amp;ptid=1857369" target="_blank">TiiTiiLL 发表于 2024-6-3 13:10</a>
+呼吸真可以转型当教练去吧，尼指真有说法，又能指挥又能杀人跟其他队比不等于多了半个人？ ...</blockquote>
+这才打一个赛事，没怎么被研究呢，除非可以给niko买来一个比他还强的明星步枪手，否则现在让他去当指挥有些早，这个赛事主要还是hunter终于做人了。
+

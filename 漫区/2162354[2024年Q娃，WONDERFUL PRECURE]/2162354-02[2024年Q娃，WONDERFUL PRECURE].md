@@ -1347,3 +1347,13 @@ q娃shf也打赢复活赛
 
 本着反正不是我女儿看的精神不带脑子的看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  披头破落户  
+##### 1591#       发表于 2024-6-3 18:43
+
+过几集就要包饺子了有啥好吵的
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
+

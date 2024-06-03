@@ -599,3 +599,25 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 从OP开始兴奋度就越出屏幕了
 
+
+*****
+
+####  rs5621  
+##### 8935#       发表于 2024-6-3 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这系列剧情演出可以当番剧看了，没了tv动画那种流水账，很爽
+
+*****
+
+####  holoan  
+##### 8936#         楼主| 发表于 2024-6-3 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65101897&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-6-3 20:10</a>
+
+快开，我要观摩</blockquote>
+说到这个，最近新闻媒体报道了之前隔壁2434有一个V就是被一个anti反复折磨了一年，被直接起诉了
+
+我只想说，今年开始miko的这帮anti群体已经远超这个新闻里报道的程度
+
+然而到目前为止miko本人和cover都还沉得住气不开示
+

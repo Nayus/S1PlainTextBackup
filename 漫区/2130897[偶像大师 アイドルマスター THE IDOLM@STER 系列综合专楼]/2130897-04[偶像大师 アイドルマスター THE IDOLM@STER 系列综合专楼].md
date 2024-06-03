@@ -9658,3 +9658,30 @@ sunrise beyond的
 
 毛球新曲绘挺好的，就是没法和毛球联系在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  comeshiper  
+##### 5353#       发表于 2024-6-2 23:40
+
+完了，男声翻唱溜了一天，带劲
+[www.bilibili.com/video/BV1tm42157ja](http://www.bilibili.com/video/BV1tm42157ja)
+
+果然都是honeyworks的问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 5354#       发表于 2024-6-3 00:31
+
+毛球新曲绘挺好的，就是没法和毛球联系在一起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 5355#       发表于 2024-6-3 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65090937&amp;ptid=2130897" target="_blank">840266848 发表于 2024-6-2 21:49</a>
+MV公布一个月，开服半个月引流了，加油后辈。前辈冬优子的SOS是500多万呢</blockquote>
+本末倒置了，视频播放是为了给游戏宣传引流，半月流水顶sc半年还多了，没必要在意播放量了。
+

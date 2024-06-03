@@ -4651,3 +4651,18 @@ ROG ALLY X
 
 去年底买了ally，除了过年回家爽玩八方旅人2，其他时间都在吃灰，已经在考虑要不要出掉了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  trow233  
+##### 460#       发表于 2024-6-3 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65098879&amp;ptid=2127262" target="_blank">flagwind33 发表于 2024-6-3 15:41</a>
+
+去年底买了ally，除了过年回家爽玩八方旅人2，其他时间都在吃灰，已经在考虑要不要出掉了 ...</blockquote>
+要出赶紧出，等X出来了价格又要掉估计
+
+我的刚出了，还算保值，但是ROG ALLY在一众WIN掌机里掉价算比较快的，明明口碑挺好
+
+估计是因为保有量比较大吧
+

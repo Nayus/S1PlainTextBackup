@@ -4738,3 +4738,15 @@ AMD Z1E (支持 AFMF)，7″ FHD 120Hz VRR 屏幕不变，<strong>699 -&gt; 799 
 算，CPU和屏幕都够了，原版最大痛点就是续航，实际影响最大的就是电池</blockquote>
 遗憾。原版的续航确实有点搞笑，完全不能带出门玩的那种。
 
+
+*****
+
+####  Lazward  
+##### 467#       发表于 2024-6-3 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">华硕商城入了个3999的官方99新ally
+
+反正没什么带出门玩的需求，就插家里串流或者躺着玩点小游戏，设想的场景还是挺好的。等到了看看实际体验怎么样
+
+现在改硬盘最大的问题是SSD价格上行周期都TMD好贵。。
+

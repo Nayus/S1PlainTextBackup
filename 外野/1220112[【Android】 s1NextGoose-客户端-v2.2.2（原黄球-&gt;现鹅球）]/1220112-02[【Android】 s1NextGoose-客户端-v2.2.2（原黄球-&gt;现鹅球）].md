@@ -586,3 +586,11 @@ targetSdkVersion是34 (Android 14)
 
 —— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  MkChang  
+##### 1621#       发表于 2024-6-3 10:58
+
+保存图片只能存一张是我的问题吗？下载的图片都会被命名成image
+

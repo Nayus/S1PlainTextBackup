@@ -4572,3 +4572,11 @@ PATCH 01.000.304 released 14 May 2024
 
 dev说过是6月第二周才更新
 
+
+*****
+
+####  FLZB  
+##### 4852#       发表于 2024-6-3 11:00
+
+这怕不是抽水马桶直接连到人家光能流放地或者平行宇宙，大量终结族孢子被抽进去对面受不了过来跟超级气球爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -582,3 +582,14 @@ S29和B11再度合体。目前发射日期更改为不早于6月6日。
 
 9分30秒
 
+
+*****
+
+####  2017.05.04  
+##### 79#       发表于 2024-6-3 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65067874&amp;ptid=2176876" target="_blank">柴汪汪 发表于 2024-5-31 14:42</a>
+
+猛禽788最早说的，隔热瓦只是为了提高箭体的使用寿命.jpg</blockquote>
+这人除了转发的消息还能看，他自己编的没有任何参考意义
+

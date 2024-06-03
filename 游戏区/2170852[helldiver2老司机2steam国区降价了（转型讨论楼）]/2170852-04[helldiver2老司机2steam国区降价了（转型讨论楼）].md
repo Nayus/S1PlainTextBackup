@@ -4588,3 +4588,14 @@ dev说过是6月第二周才更新
 
 光能这么大个更新感觉没有什么具体内容流出啊
 
+
+*****
+
+####  Mr.Hopp  
+##### 4854#       发表于 2024-6-3 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65094040&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-6-3 09:01</a>
+
+这周瑞典国庆放假，大概率下周了</blockquote>
+难说啊，这次调整难度不就是周末出补丁。
+

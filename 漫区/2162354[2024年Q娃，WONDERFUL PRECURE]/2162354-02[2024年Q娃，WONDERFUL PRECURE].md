@@ -1357,3 +1357,11 @@ q娃shf也打赢复活赛
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3-play
 
+
+*****
+
+####  上坂莲华  
+##### 1592#       发表于 2024-6-3 18:55
+
+有没有可能，彩羽知道猫不让mayu跟自己玩之后直接挺好颜揭过去，不是因为她人美心善，是因为大妈没那个水平所以不敢写冲突<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

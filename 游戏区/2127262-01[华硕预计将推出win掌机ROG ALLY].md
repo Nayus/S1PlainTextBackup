@@ -4633,3 +4633,21 @@ ROG ALLY X
 不过它CPU和屏幕都没换，感觉对游戏实际影响应该不大。 ...</blockquote>
 算，CPU和屏幕都够了，原版最大痛点就是续航，实际影响最大的就是电池
 
+
+*****
+
+####  normalli  
+##### 458#       发表于 2024-6-3 15:39
+
+用了大半年，最主要的用途是玩小黄油。
+可以跑得起用社区着色器的老滚5，老滚5这两年战斗系统强化了不少，全向移动，轻重攻击派生，速射弓，还有魔女时间，玩起来有点意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+能跑得起模拟人生4，就是操控别扭
+能完美运行米氏全家桶
+
+*****
+
+####  flagwind33  
+##### 459#       发表于 2024-6-3 15:41
+
+去年底买了ally，除了过年回家爽玩八方旅人2，其他时间都在吃灰，已经在考虑要不要出掉了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

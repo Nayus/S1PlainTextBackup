@@ -1879,3 +1879,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DeltaStriker  
+##### 4625#       发表于 2024-6-4 00:03
+
+我是这么配的<img src="https://p.sda1.dev/17/cb6ec5724cbbf2f098475af14c90afa4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

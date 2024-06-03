@@ -4750,3 +4750,13 @@ AMD Z1E (支持 AFMF)，7″ FHD 120Hz VRR 屏幕不变，<strong>699 -&gt; 799 
 
 现在改硬盘最大的问题是SSD价格上行周期都TMD好贵。。
 
+
+*****
+
+####  navarra  
+##### 468#       发表于 2024-6-3 19:27
+
+Windows update推送了bios 338，不知道改了啥
+
+—— 来自 samsung SM-X710, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

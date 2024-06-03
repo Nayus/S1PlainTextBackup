@@ -375,3 +375,11 @@ picnic不是小学生都会的词吗
 论坛助手,iPhone</blockquote>
 New speak!
 
+
+*****
+
+####  jchemphys  
+##### 43#       发表于 2024-6-4 02:31
+
+【上海特别行政区出入境管理局】感谢您申请陆家嘴签证。非常遗憾地通知您，由于您过去三个月没内有 City Walk，Gap Hour，wildeat 及 Camping 记录，我们在 Salomon, Lululemon, Tesla, Omakase 及 Apple Store 均未查询到您的消费记录并且查到您在闲鱼购买了一张二手 AMD 显卡（净值低于 2K），故您本次签证被拒。
+

@@ -851,3 +851,19 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 —— 来自 Xiaomi 23049PCD8G, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  mtbull  
+##### 95#       发表于 2024-6-4 14:34
+
+这不就是街溜子蹲路边吃脏摊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oreobama  
+##### 96#       发表于 2024-6-4 14:41
+
+以后给这种人起个nouninventer（名词发明家）的名字
+

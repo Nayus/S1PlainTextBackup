@@ -515,3 +515,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ayanamilin  
+##### 46431#       发表于 2024-6-4 08:51
+
+术马大，二十充，五十加攻，三项50特攻，减防，三十自充。奥伯龙人称小马大。
+

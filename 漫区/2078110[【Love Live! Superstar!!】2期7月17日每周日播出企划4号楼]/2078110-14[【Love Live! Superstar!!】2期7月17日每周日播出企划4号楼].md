@@ -1105,3 +1105,16 @@ Liyuu 5单「No Complete」试听完，不能说这歌多好，但比3,4单强
 
 <img src="https://p.sda1.dev/17/b69677c0e6d27e7a4254cb6b20921823/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20273#       发表于 2024-6-4 19:10
+
+ 本帖最后由 starring 于 2024-6-4 19:13 编辑 
+
+pay的1st live终于发售BD，连同二单的发售纪念活动一起
+<img src="https://p.sda1.dev/17/a3adb8187c89d29961f2ffd3d8638700/QQ图片20240604191111.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

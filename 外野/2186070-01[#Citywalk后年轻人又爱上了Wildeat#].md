@@ -621,3 +621,34 @@ Monster Hunter Wilds!
 【上海特别行政区出入境管理局】感谢您申请陆家嘴签证。非常遗憾地通知您，由于您过去三个月没内有 City Wa ...</blockquote>
 不是Camping，是Glamping（翻译过来是豪华露营，源于“Glamorous”与“Camping”两个单词，“豪华”和“露营”的结合）
 
+
+*****
+
+####  丶琉璃之歌  
+##### 71#       发表于 2024-6-4 09:27
+
+wildbreath
+
+任：？
+
+
+*****
+
+####  2474089352  
+##### 72#       发表于 2024-6-4 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65105866&amp;ptid=2186070" target="_blank">搞不好是洗衣粉 发表于 2024-6-4 09:20</a>
+楼上一群坐在电脑前面吹空调的在这不懂装懂指点江山，明明根本不懂Wildeat有多难好吗？
+
+路边野餐的时候，每 ...</blockquote>
+什么潜行者
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  航空母舰  
+##### 73#       发表于 2024-6-4 09:35
+
+能不能驱逐这些胡乱制造名词的语言污染
+

@@ -170,3 +170,13 @@ Ally X 还真的是 80wh，翻倍呀</blockquote>
 
 <img src="https://imgur.ihainan.me/JdV7J0N.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cc-2  
+##### 1230#       发表于 2024-6-4 22:32
+
+MSI Claw 是英特尔的核吧
+
+玩游戏是不是被AMD吊打？
+

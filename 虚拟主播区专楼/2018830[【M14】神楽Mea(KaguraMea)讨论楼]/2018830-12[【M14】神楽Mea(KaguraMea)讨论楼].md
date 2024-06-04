@@ -622,3 +622,18 @@ sf6可能是没有玩，但是云过？
 
 这确实没想到
 
+
+*****
+
+####  TiHaru  
+##### 16506#       发表于 2024-6-4 21:38
+
+rre是三月底去的（
+
+*****
+
+####  sino__unnko3  
+##### 16507#       发表于 2024-6-4 22:49
+
+跟朋友去的韩国，两天一晚（应该不是跟罗贝尔，3号他貌似出席了holostar的直播活动？source:[https://twitter.com/holostarstv/status/1797433267123024159](https://twitter.com/holostarstv/status/1797433267123024159)
+

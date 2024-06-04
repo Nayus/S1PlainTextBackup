@@ -65,3 +65,55 @@
 
 大家推荐用什么画面模式玩？感觉画质模式没有比帧数模式好多少？画质模式有40帧模式吗？
 
+
+*****
+
+####  黑修士  
+##### 3224#       发表于 2024-6-4 12:09
+
+昨天抽空也把永夜任务通了，龙6虎2，立身流石火+前翻
+
+剑圣3忍者3兵法家2武士2战士1，狂堆各种精力伤害
+
+优先干翻久坂和近藤这种，剩下的影分身配万骨压着打
+
+<img src="https://img.saraba1st.com/forum/202406/04/120930v2q22lz72k87mvp2.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (323.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 12:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/120930hrciwo5xijoiekbe.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (367.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 12:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/120930y8irwcqqi23iiuwc.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (330.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 12:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/120931pqmzdlbg994jbmlb.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (369.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 12:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/120931fhuf03093rsrldxu.jpg" referrerpolicy="no-referrer">
+
+<strong>05.jpg</strong> (352.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 12:09 上传
+

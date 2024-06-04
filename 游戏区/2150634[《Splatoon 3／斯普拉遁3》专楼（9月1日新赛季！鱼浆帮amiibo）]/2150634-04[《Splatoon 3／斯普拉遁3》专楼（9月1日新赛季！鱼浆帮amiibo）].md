@@ -1961,3 +1961,18 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 
 —— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 4633#       发表于 2024-6-4 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65101745&amp;ptid=2150634" target="_blank">清浦刹那 发表于 2024-6-3 19:56</a>
+
+加特林系安全鞋是带0.2还是0.3？
+
+隐跳和对物要怎么选？</blockquote>
+安全鞋0.2就足够了，类似无印中加审查者，打鱼模式或者区域模式可以带对物 爆鱼或者打打雨帘罩子，其余的用处真的不大，超级跳我觉得除了消防栓可以带个0.1，其他加特林可以不带，格子真的不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外我觉得除了鹦鹉螺圆珠笔，最好都带上至少0.2行动强化
+

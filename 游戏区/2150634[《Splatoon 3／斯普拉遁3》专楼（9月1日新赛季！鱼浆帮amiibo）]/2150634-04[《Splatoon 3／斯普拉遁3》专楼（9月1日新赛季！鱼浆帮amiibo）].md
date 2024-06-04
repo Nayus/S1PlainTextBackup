@@ -2088,3 +2088,16 @@ https://www.ikaclo.jp/
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  laosai13  
+##### 4641#       发表于 2024-6-5 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65109621&amp;ptid=2150634" target="_blank">hirro 发表于 2024-6-4 14:40</a>
+
+3代之前发售打了半个月到S+，然后上周开始复健，这周带着几个街霸队友一起，现在4人满组了，我S，另外几个B ...</blockquote>
+其它的我看坛友都有回答，武器数据隔壁nga有精华帖[https://bbs.nga.cn/read.php?tid=33217479](https://bbs.nga.cn/read.php?tid=33217479)
+
+小技能数据的话我好像没在中文社区看到，推荐个英文的有对应精确的带多少小技能有多少收益[https://splatoonwiki.org/wiki/Special_Charge_Up](https://splatoonwiki.org/wiki/Special_Charge_Up) 
+

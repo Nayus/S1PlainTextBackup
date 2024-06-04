@@ -9743,3 +9743,16 @@ pc用模拟器玩学马有什么解决方法了吗？这耗电真麻了，希望
 pc用模拟器玩学马有什么解决方法了吗？这耗电真麻了，希望来个解决方法</blockquote>
 现在模拟器没什么问题了吧，下载完就能直接玩
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5362#       发表于 2024-6-4 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65110686&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-6-4 16:24</a>
+pc用模拟器玩学马有什么解决方法了吗？这耗电真麻了，希望来个解决方法</blockquote>
+最新版本mumu可以一键，还自带加速
+记得装下谷歌环境就行
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

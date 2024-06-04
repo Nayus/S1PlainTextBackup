@@ -751,3 +751,13 @@ citywalk就够傻缺了的。我在网上见过有人说我这是citywalk，和�
 什么时候wildfuck呢</blockquote>
 这个一直很流行，所以不用说也知道
 
+
+*****
+
+####  Reinhold  
+##### 85#       发表于 2024-6-4 13:37
+
+为啥就玩游戏的不让放洋屁，必须本地化<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

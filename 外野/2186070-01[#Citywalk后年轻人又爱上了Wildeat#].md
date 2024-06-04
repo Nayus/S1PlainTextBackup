@@ -780,3 +780,45 @@ citywalk就够傻缺了的。我在网上见过有人说我这是citywalk，和�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  阿萨托斯  
+##### 88#       发表于 2024-6-4 14:15
+
+有种日本人给自有住宅取名myhome的美
+
+*****
+
+####  yichengyu  
+##### 89#       发表于 2024-6-4 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">今天看这个还觉得怪怪的，你们美国人是没有picnic这个词吗
+
+*****
+
+####  口四囧  
+##### 90#       发表于 2024-6-4 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65105465&amp;ptid=2186070" target="_blank">小妻水亚美 发表于 2024-6-4 08:37</a>
+
+不能被英国和米国卡脖子，我们中国人要有自己的英语。
+
+—— 来自 OPPO PGFM10, Android 14上的 S1Next- ...</blockquote>
+chinglish算不算<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  口四囧  
+##### 91#       发表于 2024-6-4 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65106103&amp;ptid=2186070" target="_blank">shkillone1 发表于 2024-6-4 09:44</a>
+
+割假中产年轻人韭菜，组织citywalk活动的都几千几千收费，还对着装有要求
+
+换个名词再割一波 ...</blockquote>
+citywalk一直理解为前面一个打旗的，后面一群戴帽的
+
+还要统一着装....这...学校的春游么
+

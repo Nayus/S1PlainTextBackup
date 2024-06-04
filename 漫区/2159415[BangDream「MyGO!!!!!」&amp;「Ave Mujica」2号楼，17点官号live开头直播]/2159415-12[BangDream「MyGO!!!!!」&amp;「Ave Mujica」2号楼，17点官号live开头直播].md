@@ -10594,3 +10594,17 @@ soyo这个小动画的绝对不要，为什么如此难绷
 
 才看到響社招人了，上次甄選是2020年，然後2021年簽了合格的青木和立石凛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  rikaren  
+##### 17228#       发表于 2024-6-4 23:19
+
+<img src="https://img.saraba1st.com/forum/202406/04/231953bclfrlrpyptfrdgg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1717472201270.jpg</strong> (252.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 23:19 上传
+

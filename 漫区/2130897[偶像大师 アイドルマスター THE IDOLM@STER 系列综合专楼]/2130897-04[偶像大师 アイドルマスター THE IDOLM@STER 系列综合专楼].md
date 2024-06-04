@@ -9756,3 +9756,14 @@ pc用模拟器玩学马有什么解决方法了吗？这耗电真麻了，希望
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tristanchien  
+##### 5363#       发表于 2024-6-4 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65103611&amp;ptid=2130897" target="_blank">Laie 发表于 2024-6-3 22:48</a>
+
+看着这宣传图恍惚间似乎进入了sc动画做得可圈可点不负期待的世界线</blockquote>
+真的吗，看到真乃莫名其妙的抬头闭眼甩秀发我已经要ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

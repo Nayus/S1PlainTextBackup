@@ -1437,3 +1437,13 @@ q娃shf也打赢复活赛
 
 我能有什么错，我只想保护好茉优<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 1601#       发表于 2024-6-4 10:07
+
+<blockquote>杂灰 发表于 2024-6-4 09:32
+本质还是打斗没了底层逻辑变了观众不适应➕staff太菜。以前出现这种桥段骂不合理就完事了，但这部战斗目标 ...</blockquote>
+上集就是打趴后直接净化的 没什么净化条件
+

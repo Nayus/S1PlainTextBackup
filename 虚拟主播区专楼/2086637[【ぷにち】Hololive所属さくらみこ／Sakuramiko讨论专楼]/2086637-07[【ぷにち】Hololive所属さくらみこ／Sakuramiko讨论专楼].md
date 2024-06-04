@@ -685,3 +685,20 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 就是1不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪谁呢
 
+
+*****
+
+####  rs5621  
+##### 8944#       发表于 2024-6-4 01:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2作是疾风传，带人入坑正正好好
+
+*****
+
+####  holoan  
+##### 8945#         楼主| 发表于 2024-6-4 10:52
+
+其实如果是看过原作知道点剧情的来看miko的直播观感就非常好，除了一起看各种剧情演出之外miko还会专门给游戏内说明不够的人物和砍掉的剧情部分做二次补足说明，甚至很多人都忘了的细节部分miko都全部记得，不愧是自己第一喜欢的作品
+
+然后今天也是晚上7点就开播，最近这种长篇剧情游戏都这么早开播的
+

@@ -684,3 +684,16 @@ wildbreath
 
 嗯？什么？野吹？
 
+
+*****
+
+####  joverkok  
+##### 78#       发表于 2024-6-4 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65105465&amp;ptid=2186070" target="_blank">小妻水亚美 发表于 2024-6-4 08:37</a>
+
+不能被英国和米国卡脖子，我们中国人要有自己的英语。
+
+—— 来自 OPPO PGFM10, Android 14上的 S1Next- ...</blockquote>
+日本领先业界100年！
+

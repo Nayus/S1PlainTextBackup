@@ -1457,3 +1457,15 @@ q娃shf也打赢复活赛
 
 汪Q这情况最专业对口的Q娃大概是哈酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  achilleus  
+##### 1603#       发表于 2024-6-4 11:54
+
+既然已经在剧情里表现了噶鲁嘎鲁对其他动物生命造成了足够威胁，那小雪的做法就没有问题。
+
+噶命贵是吧?这剧情我熟：
+
+狗组：小雪且慢动手，此乃微笑花园之圣兽，待我令他现出原形，回花园反省。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

@@ -601,3 +601,14 @@ S29和B11再度合体。目前发射日期更改为不早于6月6日。
 
 S29怎么又拆下来了？看样子日期要推迟了
 
+
+*****
+
+####  commcody  
+##### 81#         楼主| 发表于 2024-6-5 04:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65115600&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-6-5 01:09</a>
+
+S29怎么又拆下来了？看样子日期要推迟了</blockquote>
+之前还有三块隔热瓦没有安装
+

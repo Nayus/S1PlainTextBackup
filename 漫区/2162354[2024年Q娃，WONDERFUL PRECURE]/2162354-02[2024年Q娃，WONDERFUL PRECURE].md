@@ -1429,3 +1429,11 @@ q娃shf也打赢复活赛
 
 本质还是打斗没了底层逻辑变了观众不适应➕staff太菜。以前出现这种桥段骂不合理就完事了，但这部战斗目标改变后以往的逻辑不适用了，狗的行为放以前打趴净化的环境肯定不对，但这次拦小雪下重手反而是正确的判断，把怪用暴力打趴就不满足净化条件了，而安抚也得先让猫停手，整个逻辑都在证明使用传统解决手段的猫行为反而是有错那一方，老观众感觉被针对不爽了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再加上狗组塑造虚和演出上的问题场外就闹起来了
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1600#       发表于 2024-6-4 09:53
+
+我能有什么错，我只想保护好茉优<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

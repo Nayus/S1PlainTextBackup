@@ -660,3 +660,27 @@ wildbreath
 
 衣食住行，这么看将来要流行的应该是nudedress和openroom了吧？
 
+
+*****
+
+####  shkillone1  
+##### 75#       发表于 2024-6-4 09:44
+
+割假中产年轻人韭菜，组织citywalk活动的都几千几千收费，还对着装有要求<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+换个名词再割一波
+
+*****
+
+####  GMJ  
+##### 76#       发表于 2024-6-4 09:45
+
+啥时候轮到wild battele
+
+*****
+
+####  lonegone  
+##### 77#       发表于 2024-6-4 09:47
+
+嗯？什么？野吹？
+

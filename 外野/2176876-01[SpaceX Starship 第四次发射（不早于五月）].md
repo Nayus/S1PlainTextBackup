@@ -628,3 +628,14 @@ FAA发布了第四飞许可证。目前第四飞已无非技术障碍。
 
 SpaceX官推正式宣布计划6月6日第四飞，发射窗口当地时间早上7点（北京时间晚上8点）开始，发射窗口持续120分钟。
 
+
+*****
+
+####  madbird023  
+##### 84#       发表于 2024-6-5 05:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65115925&amp;ptid=2176876" target="_blank">commcody 发表于 2024-6-5 04:27</a>
+
+之前还有三块隔热瓦没有安装</blockquote>
+好吧，问题不大就好
+

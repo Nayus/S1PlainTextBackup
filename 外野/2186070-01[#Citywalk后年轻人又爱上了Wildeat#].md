@@ -705,3 +705,38 @@ wildbreath
 
 新冠过去了，超新星冠马上又要来了
 
+
+*****
+
+####  最后的要塞  
+##### 80#       发表于 2024-6-4 12:49
+
+citywalk就够傻缺了的。我在网上见过有人说我这是citywalk，和你们老土的遛弯不一样(
+
+
+*****
+
+####  不入流美术  
+##### 81#       发表于 2024-6-4 12:51
+
+这不就野食小哥吗
+
+
+*****
+
+####  弗里德里希大帝  
+##### 82#       发表于 2024-6-4 12:52
+
+看成了 wilddead
+
+*****
+
+####  背后捅刀擎天柱  
+##### 83#       发表于 2024-6-4 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65103609&amp;ptid=2186070" target="_blank">祥瑞御免小白兔 发表于 2024-6-3 22:48</a>
+匹克尼克来江边</blockquote>
+哈哈，一下子就想到这个了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

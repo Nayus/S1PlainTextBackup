@@ -1410,3 +1410,14 @@ q娃shf也打赢复活赛
 来混个脸熟，话说今年的女人好看么？去年的剧情过于白开水了看着看着就弃坑了 ...</blockquote>
 个人觉得目前为止还算好看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1598#       发表于 2024-6-4 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65104524&amp;ptid=2162354" target="_blank">兔兔暗黑无限破 发表于 2024-6-4 00:46</a>
+
+来混个脸熟，话说今年的女人好看么？去年的剧情过于白开水了看着看着就弃坑了 ...</blockquote>
+除了没有打斗都不错角色可爱，日常有趣，当成废萌动画的话还是不错的。
+

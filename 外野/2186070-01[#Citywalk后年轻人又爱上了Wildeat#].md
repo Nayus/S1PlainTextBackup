@@ -570,3 +570,54 @@ Monster Hunter Wilds!
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  量子大蛇  
+##### 65#       发表于 2024-6-4 09:14
+
+大凉山:什么?在想我的事?
+
+—— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  sharp_star  
+##### 66#       发表于 2024-6-4 09:15
+
+哈哈哈哈哈，好蠢好土
+
+*****
+
+####  搞不好是洗衣粉  
+##### 67#       发表于 2024-6-4 09:20
+
+楼上一群坐在电脑前面吹空调的在这不懂装懂指点江山<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，明明根本不懂Wildeat有多难好吗？
+
+路边野餐的时候，每走两步都要扔颗石头确认重力是否异常，要经常注意奇怪的声音，防护服又重又焖还要注意破损，子弹还老是搞不到需要的，我之前Citywalk的时候捡到一把AS-VAL，结果就没遇见多少9*39，简直不要太辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  尼福达手工坊  
+##### 68#       发表于 2024-6-4 09:21
+
+直接去原始森林吃不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AgentZiGZAG  
+##### 69#       发表于 2024-6-4 09:26
+
+小红书文盲闹麻了
+
+*****
+
+####  P.C.  
+##### 70#       发表于 2024-6-4 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65104884&amp;ptid=2186070" target="_blank">jchemphys 发表于 2024-6-4 02:31</a>
+
+【上海特别行政区出入境管理局】感谢您申请陆家嘴签证。非常遗憾地通知您，由于您过去三个月没内有 City Wa ...</blockquote>
+不是Camping，是Glamping（翻译过来是豪华露营，源于“Glamorous”与“Camping”两个单词，“豪华”和“露营”的结合）
+

@@ -4617,3 +4617,11 @@ dev说过是6月第二周才更新
 
 这暗流体还是从光能那抢的，指不定这东西就是光能族原本拿来建传送门用的来自: iPhone客户端
 
+
+*****
+
+####  xinfengj  
+##### 4857#       发表于 2024-6-5 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一百多兆更新我以为是啥，原来是解锁区了太君语音包
+

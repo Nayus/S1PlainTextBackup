@@ -2065,3 +2065,16 @@ https://www.ikaclo.jp/
 
 —— 来自 Google Pixel 7a, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  hirro  
+##### 4639#       发表于 2024-6-5 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65113182&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-6-4 19:48</a>
+
+负分不影响参加挑战，放心输(不是
+
+段位(官方译作技术)是根据你个人达到过的最高水平来重置的，具体如图 ...</blockquote>
+非常感谢！
+

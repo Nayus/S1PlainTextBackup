@@ -152,3 +152,21 @@ Ally X 还真的是 80wh，翻倍呀</blockquote>
 
 —— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  bypass  
+##### 1229#         楼主| 发表于 2024-6-4 18:37
+
+台北电脑展上的一些掌机情报。
+
+索泰的 Zone，有触摸板，竖屏，没有 VRR。
+
+<img src="https://imgur.ihainan.me/1tbnjzk.jpg" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/GaWx6sg.jpg" referrerpolicy="no-referrer">
+
+微星也要出 MSI Claw 的升级款，跟  ROG Ally X 一样的 80wh 电池，8 英寸原生横屏。
+
+<img src="https://imgur.ihainan.me/JdV7J0N.png" referrerpolicy="no-referrer">
+

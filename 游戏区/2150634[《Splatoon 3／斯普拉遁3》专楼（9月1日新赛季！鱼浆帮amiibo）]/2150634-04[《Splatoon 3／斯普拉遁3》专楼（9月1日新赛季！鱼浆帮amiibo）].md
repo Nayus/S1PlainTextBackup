@@ -2101,3 +2101,21 @@ https://www.ikaclo.jp/
 
 小技能数据的话我好像没在中文社区看到，推荐个英文的有对应精确的带多少小技能有多少收益[https://splatoonwiki.org/wiki/Special_Charge_Up](https://splatoonwiki.org/wiki/Special_Charge_Up) 
 
+
+*****
+
+####  罗克萨斯  
+##### 4642#       发表于 2024-6-5 06:51
+
+MAGIACE的区域贴牌审查者配装，截图记录一下
+
+<img src="https://img.saraba1st.com/forum/202406/05/065132lkxzlrzo2gxhiron.jpg" referrerpolicy="no-referrer">
+
+<strong>a98c981a-0f69-485f-966d-543f4ae3479f.jpg</strong> (102.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 06:51 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

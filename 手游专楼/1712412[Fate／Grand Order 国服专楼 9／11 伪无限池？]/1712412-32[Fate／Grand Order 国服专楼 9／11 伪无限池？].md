@@ -531,3 +531,13 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 还差300金材料有个结晶没换出来，高难也还没打，难不成要死亡冲锋？
 
+
+*****
+
+####  Blackson  
+##### 46433#       发表于 2024-6-4 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65108433&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-6-4 12:52</a>
+还差300金材料有个结晶没换出来，高难也还没打，难不成要死亡冲锋？</blockquote>
+高难其实不难打，就是要频繁SL和看脸。后天才结束活动，足够您冲锋
+

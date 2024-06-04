@@ -1941,3 +1941,13 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 <img src="https://p.sda1.dev/17/55411214e579e62a4d81fecad7eb9873/CMP_20240604104838376.jpg" referrerpolicy="no-referrer">
 低分段都什么妖魔鬼怪打的我心累。
 
+
+*****
+
+####  罗克萨斯  
+##### 4631#       发表于 2024-6-4 11:29
+
+等一个月再打，体验更好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

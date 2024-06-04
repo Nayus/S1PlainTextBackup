@@ -477,3 +477,59 @@ S1的大家都爱#BBStalking#
 
 最后还是回到了放洋屁
 
+
+*****
+
+####  小妻水亚美  
+##### 55#       发表于 2024-6-4 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65103461&amp;ptid=2186070" target="_blank">57042711 发表于 2024-6-3 22:33</a>
+文化的第一步就是搞一个新词出来是吧
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 S1Next-鹅版 v3.0.0.81- ...</blockquote>
+不能被英国和米国卡脖子，我们中国人要有自己的英语。
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  ufo0000  
+##### 56#       发表于 2024-6-4 08:39
+
+下一步岂不是要拉野屎？
+
+*****
+
+####  百猪夜行  
+##### 57#       发表于 2024-6-4 08:39
+
+露营野炊如果不是准备起来太麻烦的话其实还是挺有意思的。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  豪福  
+##### 58#       发表于 2024-6-4 08:41
+
+我喜欢wildfuck
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  nohope  
+##### 59#       发表于 2024-6-4 08:43
+
+Monster Hunter Wilds!
+
+*****
+
+####  SH002083  
+##### 60#       发表于 2024-6-4 08:47
+
+#笔记#
+
+是不是又是小红薯的用户们搞新四大发明了？
+

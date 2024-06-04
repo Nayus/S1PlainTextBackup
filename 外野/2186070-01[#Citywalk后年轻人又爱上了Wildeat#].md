@@ -440,3 +440,13 @@ S1的大家都爱#BBStalking#
 
 直接生食一词多用就好
 
+
+*****
+
+####  无攻不受鹿  
+##### 51#       发表于 2024-6-4 08:06
+
+一帮老坦儿<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

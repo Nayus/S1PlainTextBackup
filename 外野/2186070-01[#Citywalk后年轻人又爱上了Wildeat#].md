@@ -558,3 +558,15 @@ Monster Hunter Wilds!
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  dkswxd  
+##### 64#       发表于 2024-6-4 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65104884&amp;ptid=2186070" target="_blank">jchemphys 发表于 2024-6-4 02:31</a>
+【上海特别行政区出入境管理局】感谢您申请陆家嘴签证。非常遗憾地通知您，由于您过去三个月没内有 City Wa ...</blockquote>
+这个问题是 咸鱼 还是 二手 还是 a卡，本a卡用户用着感觉还成啊，关了windows自动更新驱动后一切正常
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

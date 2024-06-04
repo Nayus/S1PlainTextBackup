@@ -4768,3 +4768,13 @@ Windows update推送了bios 338，不知道改了啥
 
 bios还没出关核 超线程功能？
 
+
+*****
+
+####  navarra  
+##### 470#       发表于 2024-6-4 09:06
+
+bios更新明细出来了，调了风扇噪音和转速
+
+Modified the Ally’s fan curve from 35dBA to 30dBA in Turbo mode when plugged in, and from 30dBA to 25dBA in Turbo mode when using the battery. Changed the minimum fan speed in Manual mode when device hits a certain temperature.
+

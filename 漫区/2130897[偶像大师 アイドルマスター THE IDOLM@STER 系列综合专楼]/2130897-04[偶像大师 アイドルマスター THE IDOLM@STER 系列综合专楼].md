@@ -9767,3 +9767,46 @@ pc用模拟器玩学马有什么解决方法了吗？这耗电真麻了，希望
 看着这宣传图恍惚间似乎进入了sc动画做得可圈可点不负期待的世界线</blockquote>
 真的吗，看到真乃莫名其妙的抬头闭眼甩秀发我已经要ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ask_10A  
+##### 5364#       发表于 2024-6-4 20:47
+
+迷光这套不加布有点太色了
+
+~NCBL{V3YZ_1JA2][D4I(3D_tmb.jpg
+(140.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/204654n87o77issqm7g7ib.jpg" referrerpolicy="no-referrer">
+
+U5@)W)$_M7}731V5IAV~S}O_tmb.jpg
+(89.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/204654hc6w044442bp26p4.jpg" referrerpolicy="no-referrer">
+
+EM`5D6WM_G`YGR9X_GS88QE_tmb.jpg
+(187.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/204705a9n9b0g3zoegzgxx.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vacuolar  
+##### 5365#       发表于 2024-6-4 20:55
+
+迷光这套真要穿啊，狠狠期待现场了
+

@@ -702,3 +702,44 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 然后今天也是晚上7点就开播，最近这种长篇剧情游戏都这么早开播的
 
+
+*****
+
+####  holoan  
+##### 8946#         楼主| 发表于 2024-6-4 11:27
+
+<img src="https://img.saraba1st.com/forum/202406/04/112412vcghdzgdisqvggvt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 11:24 上传
+
+直播里说要做的调查，这选项是真的细
+
+<img src="https://img.saraba1st.com/forum/202406/04/112727ngkuvzfvzxflgkry.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 11:27 上传
+
+*****
+
+####  holoan  
+##### 8947#         楼主| 发表于 2024-6-4 11:56
+
+这个月的会限日记
+
+内容倒没什么特别的……
+
+<img src="https://img.saraba1st.com/forum/202406/04/115608ach8ck454ikrzm4d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 11:56 上传
+

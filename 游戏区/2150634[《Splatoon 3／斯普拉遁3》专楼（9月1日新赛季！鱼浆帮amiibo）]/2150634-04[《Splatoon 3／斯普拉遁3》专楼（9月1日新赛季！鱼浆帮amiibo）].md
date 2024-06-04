@@ -2078,3 +2078,13 @@ https://www.ikaclo.jp/
 段位(官方译作技术)是根据你个人达到过的最高水平来重置的，具体如图 ...</blockquote>
 非常感谢！
 
+
+*****
+
+####  martinium  
+##### 4640#       发表于 2024-6-5 00:32
+
+水泵武器性能挺强的，就是大招不行，要是有个饮料分分钟上天
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

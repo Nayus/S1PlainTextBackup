@@ -637,3 +637,58 @@ rre是三月底去的（
 
 跟朋友去的韩国，两天一晚（应该不是跟罗贝尔，3号他貌似出席了holostar的直播活动？source:[https://twitter.com/holostarstv/status/1797433267123024159](https://twitter.com/holostarstv/status/1797433267123024159)
 
+
+*****
+
+####  sino__unnko3  
+##### 16508#       发表于 2024-6-5 00:00
+
+ 本帖最后由 sino__unnko3 于 2024-6-5 00:05 编辑 
+
+正好赶上GPT全球服务器崩溃，查的人裂开<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">但是根据你麻说的天气信息：30摄氏度左右，无风或者风不大，不是很潮湿，copilot查到的地区为
+
+<img src="https://img.saraba1st.com/forum/202406/04/233514sei8wwiez1i8w4qo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (200 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/233605y2b9urj6wd9n3zni.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 23:36 上传
+
+供参考，单独地区的话，
+
+<img src="https://img.saraba1st.com/forum/202406/04/235904jivo6uy8foo63ox9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202406/04/235929udn0uo03oz0ntkmm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-4 23:59 上传
+
+|（虽然高度怀疑这人就首尔||济州岛转了圈，她刚才好像自己也说买买免税品，就旅游景点转转，没敢去不了解的地方。倒是奇怪这人害怕坐飞机，今年是坐了两个来回的飞机，或者是游轮玩的？|
+
+另：她今年上一次出国去了哪里有记录吗？看fafa佬的推限空间记录里就提了一嘴（当时还奇怪你麻小时候不是去过关岛，怎么旧事重提），看群友有说好像是来了国内？往前爬楼没找到更多信息
+
+*****
+
+####  秋游刃  
+##### 16509#       发表于 2024-6-5 00:32
+
+我还以为楼里的男友粉就剩我一个了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

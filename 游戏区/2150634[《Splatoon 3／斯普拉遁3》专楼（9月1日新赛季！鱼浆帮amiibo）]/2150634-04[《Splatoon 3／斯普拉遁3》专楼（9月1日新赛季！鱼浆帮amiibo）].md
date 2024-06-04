@@ -1912,3 +1912,15 @@ X匹配在中射程组 估计是对策不了了<img src="https://static.saraba1s
 —— ...</blockquote>
 用最拿手的小绿杀了半天拼死拼活赢不了，摆烂从没用过弓箭拿贴牌重弓就往塔上打就能连胜，真离谱这个性能。
 
+
+*****
+
+####  NOSbeam  
+##### 4628#       发表于 2024-6-4 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65104957&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-6-4 03:27</a>
+用最拿手的小绿杀了半天拼死拼活赢不了，摆烂从没用过弓箭拿贴牌重弓就往塔上打就能连胜，真离谱这个性能 ...</blockquote>
+现在所有解决不了重弓的前排都可以直接删了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

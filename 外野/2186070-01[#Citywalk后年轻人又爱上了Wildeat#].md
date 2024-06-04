@@ -383,3 +383,60 @@ New speak!
 
 【上海特别行政区出入境管理局】感谢您申请陆家嘴签证。非常遗憾地通知您，由于您过去三个月没内有 City Walk，Gap Hour，wildeat 及 Camping 记录，我们在 Salomon, Lululemon, Tesla, Omakase 及 Apple Store 均未查询到您的消费记录并且查到您在闲鱼购买了一张二手 AMD 显卡（净值低于 2K），故您本次签证被拒。
 
+
+*****
+
+####  MAGA2024  
+##### 44#       发表于 2024-6-4 07:26
+
+<blockquote>全世界失恋 发表于 2024-6-3 21:37
+picnic不是小学生都会的词吗
+
+论坛助手,iPhone</blockquote>
+“更喜你我都少年，匹克尼克来江边。”——胡适
+
+*****
+
+####  万花谷杂役  
+##### 45#       发表于 2024-6-4 07:27
+
+怎么能这么土。。。。。
+
+*****
+
+####  Edgefield  
+##### 46#       发表于 2024-6-4 07:31
+
+？？？不是，野餐就野餐，有必要造一个新词吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呼鲁鲁修  
+##### 47#       发表于 2024-6-4 07:32
+
+这些个词看着都尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龟霸  
+##### 48#       发表于 2024-6-4 07:46
+
+怎么净发明这种低能词
+是因为现有的词体现不出来大脑里波涛汹涌的美吗？
+
+—— 来自 Xiaomi 21091116C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  芜湖挨宰  
+##### 49#       发表于 2024-6-4 07:47
+
+S1的大家都爱#BBStalking#
+
+*****
+
+####  对羟基笨甲酸  
+##### 50#       发表于 2024-6-4 07:51
+
+直接生食一词多用就好
+

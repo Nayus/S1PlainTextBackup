@@ -1253,3 +1253,39 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  优妮可  
+##### 20290#       发表于 2024-6-5 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是pay很少发出去玩的照片，导致大伙觉得不像 E 。结那打死我也不信是i人
+
+*****
+
+####  csolfans  
+##### 20291#       发表于 2024-6-5 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125735&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-5 22:55</a>
+
+拉了朋友和同事一起，希望顺利成行，这场完我要休息一段时间，有点疲倦感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">WC,可以。BML去吗？
+
+*****
+
+####  ruffian  
+##### 20292#       发表于 2024-6-6 00:31
+
+我有点意外的是怎么那么多人觉得鱼i，好像每次鱼说自己e的时候又有人惊讶，我记得fmt上选鱼i的也压倒性的多。虽说鱼刚到日本那阵确实比较腼腆，人设也是怕生，熊田还是谁唐突给鱼一个熊抱把鱼吓一激灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候是有点符合对i人的刻板印象……但这都2024年了啊（本性已暴露x）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 20293#       发表于 2024-6-6 06:29
+
+结那是I人，那是镜像世界的结那吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

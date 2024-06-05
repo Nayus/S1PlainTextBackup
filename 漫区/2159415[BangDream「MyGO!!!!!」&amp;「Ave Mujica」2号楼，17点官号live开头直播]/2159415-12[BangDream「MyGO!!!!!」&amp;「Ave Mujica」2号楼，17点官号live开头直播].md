@@ -10642,3 +10642,19 @@ IMG_3619.jpeg
 利好爱灯民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 感觉是类似去年滚的talk+不插电唱个几首
 
+
+*****
+
+####  6030sylar  
+##### 17232#       发表于 2024-6-5 16:55
+
+羊凛，应该只是不插电唱一两首就算了，没意思
+
+
+*****
+
+####  skives  
+##### 17233#       发表于 2024-6-5 17:02
+
+羊的真名真叫羊吗
+

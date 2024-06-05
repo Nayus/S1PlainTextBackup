@@ -1243,3 +1243,13 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 拉了朋友和同事一起，希望顺利成行，这场完我要休息一段时间，有点疲倦感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">WC,可以。BML去吗？
 
+
+*****
+
+####  ruffian  
+##### 20289#       发表于 2024-6-6 00:31
+
+我有点意外的是怎么那么多人觉得鱼i，好像每次鱼说自己e的时候又有人惊讶，我记得fmt上选鱼i的也压倒性的多。虽说鱼刚到日本那阵确实比较腼腆，人设也是怕生，熊田还是谁唐突给鱼一个熊抱把鱼吓一激灵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候是有点符合对i人的刻板印象……但这都2024年了啊（本性已暴露x）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -4778,3 +4778,13 @@ bios更新明细出来了，调了风扇噪音和转速
 
 Modified the Ally’s fan curve from 35dBA to 30dBA in Turbo mode when plugged in, and from 30dBA to 25dBA in Turbo mode when using the battery. Changed the minimum fan speed in Manual mode when device hits a certain temperature.
 
+
+*****
+
+####  肥胖的道奇兔  
+##### 471#       发表于 2024-6-5 19:19
+
+这个可以用20000mah的充电宝充电吗，看它功率不低
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

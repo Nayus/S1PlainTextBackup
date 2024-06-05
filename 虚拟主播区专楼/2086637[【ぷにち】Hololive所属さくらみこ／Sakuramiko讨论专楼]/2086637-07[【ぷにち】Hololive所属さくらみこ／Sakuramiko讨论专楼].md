@@ -806,3 +806,32 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 现在好了一下子给你来个连续3天七字母联动的过死剂量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 8954#         楼主| 发表于 2024-6-5 17:49
+
+ 本帖最后由 holoan 于 2024-6-5 19:10 编辑 
+
+草，真开了个22点15开始的火影窗，晚也要播吗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  rs5621  
+##### 8955#       发表于 2024-6-5 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预感，今晚又要哭了
+

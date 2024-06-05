@@ -194,3 +194,29 @@ MSI Claw 是英特尔的核吧
 
 现在据说性能大幅提升，但是不知道实际跑起来怎样
 
+
+*****
+
+####  bypass  
+##### 1232#         楼主| 发表于 2024-6-5 16:03
+
+威刚在台北电玩展上展示了他们的原型机，嗯，看起来真的非常原型，外壳都是 3D 打印的。
+
+特点：
+
+1. 首款采用 LPCAMM2 内存的掌机，后续可更换内存。毕竟内存厂商。
+
+2. 配备前置摄像头。
+
+3. 屏幕可以展开呈一定的倾斜角度。
+
+4. 拥抱社区，会提供 3D 设计文件等方便用户创建外壳和配件。
+
+5. 主板可拆卸，掌机被淘汰之后可以拆下主板用作其他用途，比如家庭服务器。
+
+<img src="https://imgur.ihainan.me/Kj5zh15.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/dFoDsgu.png" referrerpolicy="no-referrer">
+
+<img src="https://imgur.ihainan.me/tCkzqHp.png" referrerpolicy="no-referrer">
+

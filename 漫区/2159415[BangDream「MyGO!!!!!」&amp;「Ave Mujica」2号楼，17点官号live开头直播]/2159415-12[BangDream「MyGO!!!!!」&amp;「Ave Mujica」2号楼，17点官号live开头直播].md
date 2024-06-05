@@ -10758,3 +10758,14 @@ hina八成也是写成阳菜，因为太大众改俩字
 估计是哪个高中同学说漏了</blockquote>
 好像是有人说奈良那里姓龟本的最多，所以就猜测羊可能姓龟本，结果这次直接实锤了
 
+
+*****
+
+####  梶原ひかり  
+##### 17244#       发表于 2024-6-5 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122647&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-6-5 17:29</a>
+
+不是，前面那帮人怎么盒出来的，本来以为是开玩笑的</blockquote>
+是以前5ch的人 似乎根据出身地推测采取名字最多 特别是关西奈良 所以之前一直就在喊
+

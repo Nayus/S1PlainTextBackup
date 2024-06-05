@@ -835,3 +835,33 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预感，今晚又要哭了
 
+
+*****
+
+####  holoan  
+##### 8956#         楼主| 发表于 2024-6-5 20:37
+
+七字母是真的绝配，我指学力方面
+
+*****
+
+####  holoan  
+##### 8957#         楼主| 发表于 2024-6-5 21:03
+
+<img src="https://img.saraba1st.com/forum/202406/05/210325y344ew4krdxpgxyp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 21:03 上传
+
+*****
+
+####  holoan  
+##### 8958#         楼主| 发表于 2024-6-5 21:06
+
+0分的卷子印在书里面公之于众
+
+你自己不觉得羞耻吗！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+

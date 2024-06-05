@@ -1224,3 +1224,11 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 拉了朋友和同事一起，希望顺利成行，这场完我要休息一段时间，有点疲倦感
 
+
+*****
+
+####  优妮可  
+##### 20287#       发表于 2024-6-5 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是pay很少发出去玩的照片，导致大伙觉得不像 E 。结那打死我也不信是i人
+

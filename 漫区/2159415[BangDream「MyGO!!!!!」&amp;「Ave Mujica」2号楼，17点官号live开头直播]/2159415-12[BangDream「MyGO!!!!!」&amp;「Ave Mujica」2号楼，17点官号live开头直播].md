@@ -10732,3 +10732,29 @@ hina八成也是写成阳菜，因为太大众改俩字
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  须贺兰  
+##### 17242#       发表于 2024-6-5 20:47
+
+难怪刚才在QQ群里看到这张图片
+
+<img src="https://img.saraba1st.com/forum/202406/05/204738tx457d4dqx4nxn0d.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240605204549.jpg</strong> (86.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 20:47 上传
+
+*****
+
+####  arachnid  
+##### 17243#       发表于 2024-6-5 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122697&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-5 17:32</a>
+
+估计是哪个高中同学说漏了</blockquote>
+好像是有人说奈良那里姓龟本的最多，所以就猜测羊可能姓龟本，结果这次直接实锤了
+

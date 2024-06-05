@@ -20,3 +20,13 @@
 
 现在国服版号一出，傻眼了，世界计划没了。
 
+
+*****
+
+####  依然荏苒  
+##### 779#       发表于 2024-6-5 18:20
+
+唉呀，居然过审了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2142,3 +2142,16 @@ jackpot的世锦赛冠军名牌发了
 
 但我很想说，长热泡我不会用就算了，怎么对面每把都会有审查者这种变态的东西啊
 
+
+*****
+
+####  hisousihou  
+##### 4645#       发表于 2024-6-5 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65117224&amp;ptid=2150634" target="_blank">hirro 发表于 2024-6-5 09:49</a>
+
+大致看了下，感谢分享。
+
+但我很想说，长热泡我不会用就算了，怎么对面每把都会有审查者这种变态的东西啊 ...</blockquote>
+审查者主武器还好，虽然射速快但是破绽也不小。主要是涂地快大招周转快。贴牌刚出还没砍，射两轮一个螃蟹压制力太强。
+

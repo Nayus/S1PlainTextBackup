@@ -220,3 +220,22 @@ MSI Claw 是英特尔的核吧
 
 <img src="https://imgur.ihainan.me/tCkzqHp.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酷乐  
+##### 1233#       发表于 2024-6-5 16:39
+
+据说ROG第四季发布新品？
+
+
+*****
+
+####  bypass  
+##### 1234#         楼主| 发表于 2024-6-5 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122256&amp;ptid=2086469" target="_blank">酷乐 发表于 2024-6-5 16:39</a>
+
+据说ROG第四季发布新品？</blockquote>
+蛤？是说今年还会有 Ally X 之外的新品？
+

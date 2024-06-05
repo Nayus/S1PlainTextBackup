@@ -2165,3 +2165,11 @@ jackpot的世锦赛冠军名牌发了
 
 太空枪和灭熄要是最后一次更新才端上来搞不好也能成为破坏环境的存在，实在太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 4647#       发表于 2024-6-5 15:50
+
+【【Splatoon3|地图攻略】龙宫车站中排立回全模式解说-初动-打开-压制】 [https://www.bilibili.com/video/B ... e696ea3d4c0bd2adb25](https://www.bilibili.com/video/BV1Mr421A7En/?share_source=copy_web&amp;vd_source=6dc01a9b710a4e696ea3d4c0bd2adb25)
+

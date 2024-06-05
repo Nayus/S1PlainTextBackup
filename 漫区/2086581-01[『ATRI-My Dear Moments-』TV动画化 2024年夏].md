@@ -791,3 +791,14 @@ CGディレクター：井口光隆
 
 TROYCA真是不错，光是这制作就有保底，加藤诚作为青木英的好徒弟，演出力完全不输给师傅。虽然对GAL改已经没有想法，原作也就那样，但这A爹自己的企划加上这制作，还是最容易的单线，起码是星之梦水平吧。
 
+
+*****
+
+####  稀罕稀罕  
+##### 66#       发表于 2024-6-5 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57624356&amp;ptid=2086581" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-9-24 12:46</a>
+
+原作游戏能打吗？推过的来说下</blockquote>
+勉强日常太催眠了
+

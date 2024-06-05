@@ -865,3 +865,26 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 你自己不觉得羞耻吗！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
 
+
+*****
+
+####  holoan  
+##### 8959#         楼主| 发表于 2024-6-5 21:24
+
+想想不太可思议，gakken第一次跟miko牵上线感觉也就今年，怎么一下子连书都出了，到底私下发生了什么
+
+*****
+
+####  rs5621  
+##### 8960#       发表于 2024-6-5 22:01
+
+<img src="https://img.saraba1st.com/forum/202406/05/220021cfwmgazhpumzmhuv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 22:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这表情就。。。，你丫不是看过了么
+

@@ -1196,3 +1196,11 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Pay是E人，结那是I人
 
+
+*****
+
+####  cat1230  
+##### 20284#       发表于 2024-6-5 22:27
+
+22前好东西难道是鸽子好久的耳塞？？
+

@@ -10658,3 +10658,31 @@ IMG_3619.jpeg
 
 羊的真名真叫羊吗
 
+
+*****
+
+####  CyDiablo  
+##### 17234#       发表于 2024-6-5 17:06
+
+是kamemoto<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 17235#       发表于 2024-6-5 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122408&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-5 17:02</a>
+
+羊的真名真叫羊吗</blockquote>
+KAMEMOTO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">龟本
+
+*****
+
+####  skives  
+##### 17236#       发表于 2024-6-5 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122438&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-6-5 17:06</a>
+是kamemoto</blockquote>
+不是
+真姓龟本啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

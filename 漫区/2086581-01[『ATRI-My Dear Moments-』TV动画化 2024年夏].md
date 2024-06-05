@@ -802,3 +802,11 @@ TROYCA真是不错，光是这制作就有保底，加藤诚作为青木英的�
 原作游戏能打吗？推过的来说下</blockquote>
 勉强日常太催眠了
 
+
+*****
+
+####  Jimlee079  
+##### 67#       发表于 2024-6-5 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单线10h的剧情作，这总不能给改翻车了吧，要是能像island动画一样修改一下结局就好了，原作青梅的结局有点过于工具人了
+

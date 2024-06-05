@@ -1188,3 +1188,11 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 7月bml前一天还在活动也太可怕了
 
+
+*****
+
+####  csolfans  
+##### 20283#       发表于 2024-6-5 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Pay是E人，结那是I人
+

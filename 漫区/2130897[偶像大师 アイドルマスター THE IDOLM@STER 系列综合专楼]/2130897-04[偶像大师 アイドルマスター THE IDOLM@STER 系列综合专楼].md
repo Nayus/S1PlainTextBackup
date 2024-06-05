@@ -9818,3 +9818,39 @@ EM`5D6WM_G`YGR9X_GS88QE_tmb.jpg
 
 有点土<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 5367#       发表于 2024-6-5 22:07
+
+ 本帖最后由 wfhtony 于 2024-6-5 22:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/05/220540gjglhrbyolz9rrlc.png" referrerpolicy="no-referrer">
+
+<strong>11.png</strong> (288.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202406/05/220546hmwmh221gh5mcwm1.png" referrerpolicy="no-referrer">
+
+<strong>(1)_好評配信中！シャイニーカラーズ新作「シャニソン」_-_YouTube_和其他_15_個頁面_.png</strong> (46.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 22:05 上传
+
+<img src="https://img.saraba1st.com/forum/202406/05/220546lqc18qqyid2q5oo3.png" referrerpolicy="no-referrer">
+
+<strong>(1)_好評配信中！シャイニーカラーズ新作「シャニソン」_-_YouTube_和其他_15_個頁面_.png</strong> (50.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 22:05 上传
+
+忽悠子的SOLO《SOS》的油 管播放量，這兩天被千代子的SOLO《チョコデート・サンデー》反超了。
+
+這就是[月曜日的魔力](https://twitter.com/ChocodateMonday)麼（不是
+

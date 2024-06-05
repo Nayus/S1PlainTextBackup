@@ -10616,3 +10616,29 @@ soyo这个小动画的绝对不要，为什么如此难绷
 
 https://www.pixiv.net/artworks/119344339<img src="https://p.sda1.dev/17/856cd5f218a6de6dc8c01d682de4ff8d/Image_1717545702979.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nomind96  
+##### 17230#       发表于 2024-6-5 16:48
+
+mygo要来两个
+
+IMG_3619.jpeg
+(529.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202406/05/164806sbksresr12es1gbe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 17231#       发表于 2024-6-5 16:52
+
+利好爱灯民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉是类似去年滚的talk+不插电唱个几首
+

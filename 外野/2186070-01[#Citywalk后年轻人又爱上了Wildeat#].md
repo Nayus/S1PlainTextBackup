@@ -895,3 +895,21 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  赛文欧德  
+##### 99#       发表于 2024-6-5 16:48
+
+什么洋泾浜英语，那有没WILDPEE和WILDSHIT啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我是侦查员  
+##### 100#       发表于 2024-6-5 16:49
+
+林老师这期的视频很好的解释了Wildeat
+[https://www.youtube.com/watch?v=nV-AHorOqsY](https://www.youtube.com/watch?v=nV-AHorOqsY)
+
+让给你们吃<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

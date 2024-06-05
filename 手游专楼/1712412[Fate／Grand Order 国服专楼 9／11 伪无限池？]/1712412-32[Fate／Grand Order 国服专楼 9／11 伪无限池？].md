@@ -549,3 +549,13 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 刷了79池就没动力了
 
+
+*****
+
+####  alex_chow  
+##### 46435#       发表于 2024-6-5 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65077785&amp;ptid=1712412" target="_blank">待宵 发表于 2024-6-1 13:45</a>
+每月两次搓圣杯要搓不出来了怎么办</blockquote>
+淘宝几块钱买一两亿py点可以用到关服了
+

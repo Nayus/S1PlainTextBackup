@@ -4633,3 +4633,11 @@ dev说过是6月第二周才更新
 
 该昭和潜兵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 4859#       发表于 2024-6-5 09:07
+
+好像只有pc能用，ps还是用不了日语语音？
+

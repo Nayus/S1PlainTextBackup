@@ -110,3 +110,15 @@
 
 剧情十分古早味，都亲亲抱抱过了，还要别人说夏小姐才意识到恋心吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是否有点离谱，包括这一点也很像古早言情小说
 
+
+*****
+
+####  oi99o  
+##### 131#       发表于 2024-6-5 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65120415&amp;ptid=2109771" target="_blank">fshzx 发表于 2024-6-5 13:33</a>
+所以中完毒，这两小口不追女仆就这么算了吗</blockquote>
+原作是部下去抓起来了，然后人神志不清就没下文了，所以动画就直接删了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

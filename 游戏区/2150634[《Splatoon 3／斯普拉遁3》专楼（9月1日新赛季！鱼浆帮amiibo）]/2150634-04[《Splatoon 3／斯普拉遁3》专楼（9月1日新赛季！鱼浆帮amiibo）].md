@@ -2173,3 +2173,22 @@ jackpot的世锦赛冠军名牌发了
 
 【【Splatoon3|地图攻略】龙宫车站中排立回全模式解说-初动-打开-压制】 [https://www.bilibili.com/video/B ... e696ea3d4c0bd2adb25](https://www.bilibili.com/video/BV1Mr421A7En/?share_source=copy_web&amp;vd_source=6dc01a9b710a4e696ea3d4c0bd2adb25)
 
+
+*****
+
+####  KBAC  
+##### 4648#       发表于 2024-6-5 23:12
+
+<img src="https://img.saraba1st.com/forum/202406/05/230323zzb419hv7p717161.png" referrerpolicy="no-referrer">
+
+<strong>img_9658.png</strong> (368.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 23:03 上传
+
+打开放连输输麻了，看了看回放发现自己好像被发配到不得了的水平的对局里去了，几乎每局的队友似乎都只是在毫无目的地瞎晃手柄假装自己很忙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+于是干脆换贴牌喇叭打算开始整活，然后这......啥啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

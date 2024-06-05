@@ -1232,3 +1232,14 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是pay很少发出去玩的照片，导致大伙觉得不像 E 。结那打死我也不信是i人
 
+
+*****
+
+####  csolfans  
+##### 20288#       发表于 2024-6-5 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125735&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-5 22:55</a>
+
+拉了朋友和同事一起，希望顺利成行，这场完我要休息一段时间，有点疲倦感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">WC,可以。BML去吗？
+

@@ -2127,3 +2127,18 @@ MAGIACE的区域贴牌审查者配装，截图记录一下
 
 jackpot的世锦赛冠军名牌发了
 
+
+*****
+
+####  hirro  
+##### 4644#       发表于 2024-6-5 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65115462&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-6-5 00:38</a>
+
+其它的我看坛友都有回答，武器数据隔壁nga有精华帖https://bbs.nga.cn/read.php?tid=33217479
+
+小技能数据 ...</blockquote>
+大致看了下，感谢分享。
+
+但我很想说，长热泡我不会用就算了，怎么对面每把都会有审查者这种变态的东西啊
+

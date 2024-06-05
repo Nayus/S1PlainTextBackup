@@ -10714,3 +10714,21 @@ KAMEMOTO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" re
 
 hina八成也是写成阳菜，因为太大众改俩字
 
+
+*****
+
+####  6030sylar  
+##### 17240#       发表于 2024-6-5 20:26
+
+也是只剩孤寡老柑独守神社
+
+
+*****
+
+####  椎名mahuyo  
+##### 17241#       发表于 2024-6-5 20:31
+
+这下龟凛膏了
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4625,3 +4625,11 @@ dev说过是6月第二周才更新
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一百多兆更新我以为是啥，原来是解锁区了太君语音包
 
+
+*****
+
+####  ravend233  
+##### 4858#       发表于 2024-6-5 08:50
+
+该昭和潜兵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

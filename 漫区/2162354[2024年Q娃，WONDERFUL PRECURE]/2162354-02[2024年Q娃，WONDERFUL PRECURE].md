@@ -1497,3 +1497,22 @@ q娃shf也打赢复活赛
 
 别说动物变的了，精神病人拿把刀乱砍都是要被清空弹夹的，小雪在没有净化手段的情况下先废了噶鲁噶路的战斗力保证群众安全一点问题没有
 
+
+*****
+
+####  犬飼いろは  
+##### 1607#       发表于 2024-6-5 23:59
+
+[https://m.weibo.cn/detail/5042009530435245](https://m.weibo.cn/detail/5042009530435245) <blockquote>旺Q6月预告
+
+20（香村纯子/小川孝治）猫组也一起去了花园，咩咩希望小雪帮忙救出他们的伙伴
+
+21（井上美绪/手塚江美）小雪也一起入学，上课教做手帕刺绣
+
+22（赤尾凸/顶真司）Wonderful Go
+
+23 愿望就是汪~~~~~（应该是七夕回，标题流露出一股小麦的味道[允悲]）</blockquote>
+<img src="https://p.sda1.dev/17/bca370a2273c3427691813ac2fd1c622/e7cbae74gy1hqerp488lvj21hc0zi7wh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/e11e3827a1bb40b17b84a2cf0dd4633a/e7cbae74gy1hqerpby4gxj21x20jl7qx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/17/376706e8a3d6296a57dc41bd09b2ccb9/e7cbae74gy1hqerpe4v4uj21xp0qbqu9.jpg" referrerpolicy="no-referrer">
+

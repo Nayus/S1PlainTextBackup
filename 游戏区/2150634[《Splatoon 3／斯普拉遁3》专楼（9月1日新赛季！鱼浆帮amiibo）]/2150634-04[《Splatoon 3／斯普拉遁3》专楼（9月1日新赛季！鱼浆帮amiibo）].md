@@ -2155,3 +2155,13 @@ jackpot的世锦赛冠军名牌发了
 但我很想说，长热泡我不会用就算了，怎么对面每把都会有审查者这种变态的东西啊 ...</blockquote>
 审查者主武器还好，虽然射速快但是破绽也不小。主要是涂地快大招周转快。贴牌刚出还没砍，射两轮一个螃蟹压制力太强。
 
+
+*****
+
+####  hugosol  
+##### 4646#       发表于 2024-6-5 14:32
+
+水泵弓墨水效率和对物性能都太离谱了，按照惯例新武器数值都会给得很保守，所以实装前根本没人看好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太空枪和灭熄要是最后一次更新才端上来搞不好也能成为破坏环境的存在，实在太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

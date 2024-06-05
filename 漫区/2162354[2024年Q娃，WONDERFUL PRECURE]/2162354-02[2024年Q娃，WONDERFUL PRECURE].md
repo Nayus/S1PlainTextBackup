@@ -1516,3 +1516,14 @@ q娃shf也打赢复活赛
 <img src="https://p.sda1.dev/17/e11e3827a1bb40b17b84a2cf0dd4633a/e7cbae74gy1hqerpby4gxj21x20jl7qx.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/376706e8a3d6296a57dc41bd09b2ccb9/e7cbae74gy1hqerpe4v4uj21xp0qbqu9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1608#       发表于 2024-6-6 02:22
+
+为了写同人把派q补完了，只能说还好我当年看一半就弃了，要是追着看高低得让结尾挡刀那段气晕过去
+不过哪怕是黑胡椒假面表现也比雅虎智慧袋强啊，智慧袋还是多盘盘你家兔子争取当个追加的主人吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -767,3 +767,21 @@ rre是三月底去的（
 
 [https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview](https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview) 这个网站能看  结合两个号的记录 四月那几天确实有可能
 
+
+*****
+
+####  sino__unnko3  
+##### 16516#       发表于 2024-6-5 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122940&amp;ptid=2018830" target="_blank">ablast 发表于 2024-6-5 17:55</a>
+
+https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview 这个网站能看  结合两 ...</blockquote>
+对，旅游时间点，往前的话第一反应直奔情人节那几天了，游戏数据吻合，但结合观测群存档数据反而那几天可能性没四月这几天高（这人整个4月的lol好像都比较摸
+
+*****
+
+####  秋游刃  
+##### 16517#       发表于 2024-6-5 23:20
+
+4月LOL玩得少，有可能是她开始玩OW了。
+

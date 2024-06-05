@@ -781,3 +781,28 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 今天的联动好像是大型联动企划，非常多人参加
 
+
+*****
+
+####  holoan  
+##### 8952#         楼主| 发表于 2024-6-5 11:30
+
+<img src="https://img.saraba1st.com/forum/202406/05/113021w2ds0znr8aid7i00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (257.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 11:30 上传
+
+那告知偷跑了已经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 8953#         楼主| 发表于 2024-6-5 12:48
+
+前一段时间还有人抱怨最近miko的solo直播太多导致七字母供给不足
+
+现在好了一下子给你来个连续3天七字母联动的过死剂量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

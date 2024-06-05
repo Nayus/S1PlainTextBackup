@@ -1134,3 +1134,11 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看直播能感受到鱼对开大场如果来不了人会焦虑（特别是sc很多都是说来不了的
 
+
+*****
+
+####  csolfans  
+##### 20276#       发表于 2024-6-5 21:33
+
+草，竟然去BML
+

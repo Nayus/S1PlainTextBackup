@@ -888,3 +888,20 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这表情就。。。，你丫不是看过了么
 
+
+*****
+
+####  holoan  
+##### 8961#         楼主| 发表于 2024-6-5 23:28
+
+这游戏最大的败笔就是QTE了太烦了也
+
+*****
+
+####  holoan  
+##### 8962#         楼主| 发表于 2024-6-5 23:49
+
+草，明天22点联动真的要之前再播一下火影
+
+就这么想玩忍不住
+

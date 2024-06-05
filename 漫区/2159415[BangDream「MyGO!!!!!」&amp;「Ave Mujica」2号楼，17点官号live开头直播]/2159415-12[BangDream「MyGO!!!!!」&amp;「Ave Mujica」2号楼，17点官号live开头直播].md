@@ -10769,3 +10769,16 @@ hina八成也是写成阳菜，因为太大众改俩字
 不是，前面那帮人怎么盒出来的，本来以为是开玩笑的</blockquote>
 是以前5ch的人 似乎根据出身地推测采取名字最多 特别是关西奈良 所以之前一直就在喊
 
+
+*****
+
+####  梶原ひかり  
+##### 17245#       发表于 2024-6-5 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65124326&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-6-5 20:15</a>
+
+没有羊宫这个姓必定是艺名，卡咩~咩~羊~U咩，估计是按这个逻辑走的
+
+hina八成也是写成阳菜，因为太大众改俩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">其实很大概率是 羊星座是白羊座 所以给自己取名羊宫
+

@@ -1118,3 +1118,11 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 20274#       发表于 2024-6-5 21:12
+
+今天这是纯正灰毛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

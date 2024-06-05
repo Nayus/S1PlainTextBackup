@@ -738,3 +738,32 @@ rre是三月底去的（
 
 不敢坐飞机那都是5年前的设定了
 
+
+*****
+
+####  秋游刃  
+##### 16514#       发表于 2024-6-5 12:49
+
+提印度菜是因为，上次出国旅游没吃到让人眼前一亮的食物，就聊了几种国际知名度比较高的菜，什么法国菜，意大利菜，说到印度菜时提了一嘴子对印度菜的印象。
+
+*****
+
+####  ablast  
+##### 16515#       发表于 2024-6-5 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65115834&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-6-5 02:54</a>
+
+睡不着，继续来推测。
+
+4月19号推限说今年上半年出国玩过了，看观测群的记录日期</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/05/175426yapfjapf2xo7op1r.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240605175303.png</strong> (25.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-5 17:54 上传
+
+[https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview](https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview) 这个网站能看  结合两个号的记录 四月那几天确实有可能
+

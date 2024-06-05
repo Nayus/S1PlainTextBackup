@@ -1204,3 +1204,15 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 22前好东西难道是鸽子好久的耳塞？？
 
+
+*****
+
+####  ruffian  
+##### 20285#       发表于 2024-6-5 22:36
+
+意外情中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+结那给我一种年轻人精力过于旺盛需要外部消耗的印象，什么哈士奇
+强行解释）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

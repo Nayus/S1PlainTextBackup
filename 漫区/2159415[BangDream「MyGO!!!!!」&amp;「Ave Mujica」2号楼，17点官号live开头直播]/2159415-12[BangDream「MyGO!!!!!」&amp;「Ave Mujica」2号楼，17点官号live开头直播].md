@@ -10686,3 +10686,21 @@ KAMEMOTO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" re
 不是
 真姓龟本啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 17237#       发表于 2024-6-5 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，前面那帮人怎么盒出来的，本来以为是开玩笑的
+
+
+*****
+
+####  skives  
+##### 17238#       发表于 2024-6-5 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65122647&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-6-5 17:29</a>
+不是，前面那帮人怎么盒出来的，本来以为是开玩笑的</blockquote>
+估计是哪个高中同学说漏了
+

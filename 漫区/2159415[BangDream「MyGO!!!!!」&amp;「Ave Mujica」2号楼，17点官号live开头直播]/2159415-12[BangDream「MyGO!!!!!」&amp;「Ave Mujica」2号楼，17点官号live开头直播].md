@@ -10704,3 +10704,13 @@ KAMEMOTO<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" re
 不是，前面那帮人怎么盒出来的，本来以为是开玩笑的</blockquote>
 估计是哪个高中同学说漏了
 
+
+*****
+
+####  DarthAka  
+##### 17239#       发表于 2024-6-5 20:15
+
+没有羊宫这个姓必定是艺名，卡咩~咩~羊~U咩，估计是按这个逻辑走的
+
+hina八成也是写成阳菜，因为太大众改俩字
+

@@ -122,3 +122,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  martinium  
+##### 132#       发表于 2024-6-5 15:09
+
+剧情也太老了，这敢剧情的速度感觉在看xx分钟讲完xx系列。唯一的看点就是华哥的少女音
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

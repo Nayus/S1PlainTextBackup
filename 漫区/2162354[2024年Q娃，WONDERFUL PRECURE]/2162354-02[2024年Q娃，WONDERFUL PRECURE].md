@@ -1681,3 +1681,11 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 合理，现实猫叫的可可爱爱也是在夹在卖萌<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1624#       发表于 2024-6-6 23:52
+
+毕竟人类从未驯化猫猫，而是猫猫驯化了人类<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

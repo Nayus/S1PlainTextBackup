@@ -1649,3 +1649,24 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 最终话汉化更新了吗？是一共48话吗？
 
+
+*****
+
+####  KDConan  
+##### 162#       发表于 2024-6-6 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65134298&amp;ptid=2144105" target="_blank">狂马王 发表于 2024-6-6 18:03</a>
+最终话汉化更新了吗？是一共48话吗？</blockquote>
+49话有了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  jolly  
+##### 163#       发表于 2024-6-6 23:53
+
+没想到看到正篇这个结局观感还行，之前看到简单概括的剧透说什么女猎人穿越，只感觉“这是在画什么了？！”
+虽然看到正片也还是有种“这是在画什么了？！”但体验好了一些，蛮意外啊，竟然真的拯救了世界
+

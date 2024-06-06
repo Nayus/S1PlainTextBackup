@@ -2248,3 +2248,16 @@ jackpot的世锦赛冠军名牌发了
 这游戏最近啥环境，还是单行道狭窄地图大招乱扔吗</blockquote>
 特别单行道的图改了不少，新加的图都不算特别单行道。感觉现在地图水平还算不错吧至少玩着还行，但是还是那种鼓励中场打架的主基调。
 
+
+*****
+
+####  shirolin  
+##### 4655#       发表于 2024-6-6 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136907&amp;ptid=2150634" target="_blank">藏獒·烨 发表于 2024-6-6 22:40</a>
+互掏大锤就像同时拔枪or拔刀一样，还挺搞笑</blockquote>
+一直想后手优势，但是憋太久又容易被先手带走…
+一晚上锤得七荤八素<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

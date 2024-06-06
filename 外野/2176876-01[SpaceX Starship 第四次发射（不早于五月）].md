@@ -2912,3 +2912,47 @@ PID：15033
 
 也就是半个小时内向全球任意地点倾泻100吨弹药的能力.......
 
+
+*****
+
+####  novem  
+##### 339#       发表于 2024-6-6 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137428&amp;ptid=2176876" target="_blank">hu14againagain 发表于 2024-6-6 23:40</a>
+
+太空军已经开始资助星舰的空投弹药能力计划，2025年末展示
+
+也就是半个小时内向全球任意地点倾泻100吨弹药 ...</blockquote>
+这个厉害，也不需要在轨加注，难道这才是星舰的真实目的
+
+
+*****
+
+####  PPB3008  
+##### 340#       发表于 2024-6-6 23:54
+
+隔壁Starliner在ISS 260米处保持 两台RCS在接近中失效，故障RCS试点火了4次 航天员报告只有一次听到了动静
+
+现在航天员手操剩下的RCS接近中
+
+太幽默了牢波，在这个鳖采样返回，马老板成功的一天，临门一脚要是寄了那真是给牢波幽默完了
+
+*****
+
+####  sgbq  
+##### 341#       发表于 2024-6-6 23:56
+
+Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030年，轨道运载能力可能是今天不能想象的。
+
+*****
+
+####  哈里-谢顿  
+##### 342#       发表于 2024-6-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137520&amp;ptid=2176876" target="_blank">PPB3008 发表于 2024-6-6 23:54</a>
+
+隔壁Starliner在ISS 260米处保持 两台RCS在接近中失效，故障RCS试点火了4次 航天员报告只有一次听到了动静
+
+ ...</blockquote>
+啊这，不会失败后返回吧
+

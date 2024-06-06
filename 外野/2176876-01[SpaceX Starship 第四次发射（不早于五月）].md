@@ -1222,3 +1222,11 @@ External camera comes online in 11 mins
 
 外置摄像头信号11分钟后恢复
 
+
+*****
+
+####  windtrack  
+##### 152#       发表于 2024-6-6 21:18
+
+还行，不影响看再入
+

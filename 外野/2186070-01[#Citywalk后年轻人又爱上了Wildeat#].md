@@ -1129,3 +1129,15 @@ wildshit在工地试过 月黑风高在路边草丛蹲着 时不时有泥头车�
 
 —— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gffdg  
+##### 122#       发表于 2024-6-6 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135583&amp;ptid=2186070" target="_blank">qooweds 发表于 2024-6-6 20:29</a>
+论wild武汉人可是边走边吃的</blockquote>
+walkingbrunch
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

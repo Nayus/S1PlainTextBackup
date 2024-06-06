@@ -11183,3 +11183,11 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 不知道武士道从哪儿捡漏的便宜画师，除了初华，其他的脸稍微能看的原因是，比较擅长画大头，但给初华加上手……
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">伟大的脸惨遭削弱，怎看怎样怪
 
+
+*****
+
+####  rikaren  
+##### 17287#       发表于 2024-6-6 21:24
+
+既然是666之日为什么不卡一下6点，怕宗教势力有意见吗
+

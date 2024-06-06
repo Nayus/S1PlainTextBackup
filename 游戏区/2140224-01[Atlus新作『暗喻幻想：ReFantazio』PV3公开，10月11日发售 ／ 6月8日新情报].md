@@ -126,3 +126,21 @@ PV里主角手中的这本小说
 <img src="https://p.sda1.dev/17/fd08f42baacb16777f922fd3f27aeb98/9016817176102202.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/17/3f744b41ded217d72a3ccc75ff5cc78d/8580317176098612.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  h122h  
+##### 416#       发表于 2024-6-6 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65130381&amp;ptid=2140224" target="_blank">ChengChung 发表于 2024-6-6 12:28</a>
+
+2000fun补了</blockquote>
+限定版？在淘宝还是他自己网店？
+
+*****
+
+####  bronzitro  
+##### 417#       发表于 2024-6-6 13:36
+
+明明p5这么潮，怎么突然转头搞了个这么高级审美的游戏
+

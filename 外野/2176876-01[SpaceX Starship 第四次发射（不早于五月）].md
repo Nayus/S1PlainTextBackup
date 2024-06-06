@@ -696,3 +696,19 @@ SpaceX官推正式宣布计划6月6日第四飞，发射窗口当地时间早上
 
 2024-6-6 18:50 上传
 
+
+*****
+
+####  commcody  
+##### 90#         楼主| 发表于 2024-6-6 19:09
+
+最新发射时间北京时间8点50分
+
+<img src="https://img.saraba1st.com/forum/202406/06/190837tsd4z7a48jrsu2jj.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240606190820.jpg</strong> (141.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 19:08 上传
+

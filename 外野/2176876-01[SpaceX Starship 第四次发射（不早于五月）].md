@@ -2999,3 +2999,31 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
 也就是半个小时内向全球任意地点倾泻100吨弹药 ...</blockquote>
 胡塞武装级别都能发射一批碎片云打掉防热瓦的。有单点故障的隔热瓦设计就不能军用。
 
+
+*****
+
+####  酆都月  
+##### 347#       发表于 2024-6-7 00:19
+
+又不会等到开战再部署，气氛紧张的时候开始部署，你这时候也不能直接打吧，你也不知道每一发星舰的载荷准备带些啥啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+
+*****
+
+####  afer  
+##### 348#       发表于 2024-6-7 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  longmarch5  
+##### 349#       发表于 2024-6-7 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137755&amp;ptid=2176876" target="_blank">酆都月 发表于 2024-6-7 00:19</a>
+
+又不会等到开战再部署，气氛紧张的时候开始部署，你这时候也不能直接打吧，你也不知道每一发星舰的载荷准备 ...</blockquote>
+但是这时候为什么不用运输机和船呢
+

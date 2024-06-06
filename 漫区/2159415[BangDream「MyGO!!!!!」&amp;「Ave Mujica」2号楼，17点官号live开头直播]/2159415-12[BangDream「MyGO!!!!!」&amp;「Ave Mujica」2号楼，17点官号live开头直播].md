@@ -11293,3 +11293,29 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 新圖</blockquote>
 是治愈画的吗
 
+
+*****
+
+####  相坂君  
+##### 17298#       发表于 2024-6-6 21:57
+
+是鸡的亲妈画的
+
+*****
+
+####  akirakira  
+##### 17299#       发表于 2024-6-6 21:57
+
+这不还是旧图复用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这套图出现多少次了，钱拿去约了张q版小人是吧
+
+*****
+
+####  PDQ4  
+##### 17300#       发表于 2024-6-6 22:02
+
+wsd他好省钱，我哭死，只有能卖钱的tcg才拉亲妈来。
+
+你这五首要出专吧，至少有一套图要好看吧，别来qj我眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+syl，下次也不是鸡<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+

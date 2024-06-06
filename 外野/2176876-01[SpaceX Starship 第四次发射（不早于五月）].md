@@ -1704,3 +1704,580 @@ External camera comes online in 11 mins
 
 头冲下了23333
 
+
+*****
+
+####  Alexmacau8  
+##### 211#       发表于 2024-6-6 21:54
+
+不锈钢真皮实啊
+
+*****
+
+####  依然荏苒  
+##### 212#       发表于 2024-6-6 21:54
+
+看见云了，🐂
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  依然荏苒  
+##### 213#       发表于 2024-6-6 21:54
+
+握草，这机翼还在动作。
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Alexmacau8  
+##### 214#       发表于 2024-6-6 21:54
+
+姿势不对 落地还是大烟花
+
+*****
+
+####  瓦格雷  
+##### 215#       发表于 2024-6-6 21:55
+
+机翼竟然还能操作
+
+*****
+
+####  xu5891166  
+##### 216#       发表于 2024-6-6 21:55
+
+姿态水平了
+
+*****
+
+####  蕾丝控  
+##### 217#       发表于 2024-6-6 21:55
+
+绿皮科技。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  死宅真恶心  
+##### 218#       发表于 2024-6-6 21:55
+
+这机翼还活着？
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  sennheiser  
+##### 219#       发表于 2024-6-6 21:55
+
+靠近筷子了没。。。。。。。。。。。。。。。
+
+*****
+
+####  madbird023  
+##### 220#       发表于 2024-6-6 21:55
+
+机翼的结构残骸还在动！
+
+*****
+
+####  liuguokobe  
+##### 221#       发表于 2024-6-6 21:55
+
+竟然还能机动
+
+绿皮科技震撼人心
+
+*****
+
+####  xu5891166  
+##### 222#       发表于 2024-6-6 21:56
+
+机翼结构大部分还在
+
+1.png
+(1.24 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/215559p1hj3jor7ci3dou7.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 223#       发表于 2024-6-6 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136432&amp;ptid=2176876" target="_blank">星の守 发表于 2024-6-6 21:52</a>
+
+这摄像头还是挺牛逼的，能不能共享一下技术</blockquote>
+马老板这摄像头是比鳖的好不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madbird023  
+##### 224#       发表于 2024-6-6 21:56
+
+机魂显圣啦！！！
+
+*****
+
+####  xu5891166  
+##### 225#       发表于 2024-6-6 21:56
+
+草 居然成了
+
+*****
+
+####  人別離苦  
+##### 226#       发表于 2024-6-6 21:56
+
+啊？成功了吗？？？？
+
+*****
+
+####  wly5556  
+##### 227#       发表于 2024-6-6 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  commcody  
+##### 228#         楼主| 发表于 2024-6-6 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是什么绿皮科技
+
+*****
+
+####  依然荏苒  
+##### 229#       发表于 2024-6-6 21:56
+
+ 本帖最后由 依然荏苒 于 2024-6-6 21:58 编辑 
+
+主持人说最后居然是点火了
+
+*****
+
+####  blckfyre  
+##### 230#       发表于 2024-6-6 21:57
+
+最后点火监测是挂了么
+
+*****
+
+####  bartholo4  
+##### 231#       发表于 2024-6-6 21:57
+
+艹<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  treexper  
+##### 232#       发表于 2024-6-6 21:57
+
+应该是成了，最后倒了。。
+
+*****
+
+####  死宅真恶心  
+##### 233#       发表于 2024-6-6 21:57
+
+没点火啊
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  tonyunreal  
+##### 234#       发表于 2024-6-6 21:57
+
+牛逼，垂直入水
+
+*****
+
+####  bartholo4  
+##### 235#       发表于 2024-6-6 21:57
+
+最后竟然站住了
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  瓦格雷  
+##### 236#       发表于 2024-6-6 21:57
+
+落海还有直播信号。。  
+
+*****
+
+####  四号舰美浓  
+##### 237#       发表于 2024-6-6 21:57
+
+成功。牛逼。
+
+*****
+
+####  遗迹永存  
+##### 238#       发表于 2024-6-6 21:57
+
+成功了，竟然没炸
+
+*****
+
+####  星の守  
+##### 239#       发表于 2024-6-6 21:57
+
+感觉还是战损版了吧，就算下来了
+
+*****
+
+####  fat  
+##### 240#       发表于 2024-6-6 21:57
+
+卧槽什么绿皮科技，这都能站起来
+
+
+*****
+
+####  依然荏苒  
+##### 241#       发表于 2024-6-6 21:58
+
+握草，点火了
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Alexmacau8  
+##### 242#       发表于 2024-6-6 21:58
+
+神奇 什么太空皮卡车 居然没炸
+
+*****
+
+####  瓦格雷  
+##### 243#       发表于 2024-6-6 21:58
+
+<blockquote>死宅真恶心 发表于 2024-6-6 21:57
+没点火啊
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+说点火了
+
+*****
+
+####  DJI  
+##### 244#       发表于 2024-6-6 21:58
+
+成功入水 而且入水前姿态直立了一下？
+
+*****
+
+####  Hatsune_miku  
+##### 245#       发表于 2024-6-6 21:58
+
+机翼废了一个还能成功的，牛逼
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tsukatsukieiko  
+##### 246#       发表于 2024-6-6 21:58
+
+减速到0，是成功了的样子。
+
+*****
+
+####  哈里-谢顿  
+##### 247#       发表于 2024-6-6 21:58
+
+太牛批了
+
+传奇耐烧王
+
+传奇飞控仙人
+
+直播过黑障
+
+*****
+
+####  windtrack  
+##### 248#       发表于 2024-6-6 21:58
+
+牛逼嗷，这破烂襟翼他没有散架！这破裂的镜头他坚持到了最后！
+
+有没有船去现场捞哇
+
+*****
+
+####  Vacuolar  
+##### 249#       发表于 2024-6-6 21:59
+
+这烧穿了但是还能用，传奇
+
+*****
+
+####  lDaive  
+##### 250#       发表于 2024-6-6 21:59
+
+不锈钢能占多少功劳？这个翼面外层都没了还能动确实牛逼
+
+*****
+
+####  bartholo4  
+##### 251#       发表于 2024-6-6 21:59
+
+最他妈神奇的是烧成那样最后还能动
+动了还能成功调姿
+还的是不锈钢
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  依然荏苒  
+##### 252#       发表于 2024-6-6 22:00
+
+今年最佳科幻电影
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  YoumuChan  
+##### 253#       发表于 2024-6-6 22:00
+
+真就是俺寻思能行啊
+
+*****
+
+####  WIZARDMK2  
+##### 254#       发表于 2024-6-6 22:00
+
+庆贺，烤棉花糖喽！
+
+
+*****
+
+####  灼眼的川川仔  
+##### 255#       发表于 2024-6-6 22:00
+
+完美黑障直播<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PPB3008  
+##### 256#       发表于 2024-6-6 22:00
+
+群里已经在发癫了，这襟翼已经烧烂到作动筒了，居然还能调整姿态，最后还调姿成功了
+
+*****
+
+####  cuiluzhu  
+##### 257#       发表于 2024-6-6 22:00
+
+下次是不是就要试试拿筷子接住了？
+
+*****
+
+####  phorcys02  
+##### 258#       发表于 2024-6-6 22:00
+
+太绿皮了，太结实 了，机翼烧的剩下2/3还能动
+
+*****
+
+####  jellyfis  
+##### 259#       发表于 2024-6-6 22:00
+
+最后居然撑住了，太牛逼了
+
+*****
+
+####  Edward_Winry  
+##### 260#       发表于 2024-6-6 22:01
+
+成了！！！！
+
+这个应该货运用途的吧，最后一分钟调整姿态太恐怖
+
+*****
+
+####  belichick  
+##### 261#       发表于 2024-6-6 22:01
+
+这次节目效果拉满了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  windrarara  
+##### 262#       发表于 2024-6-6 22:02
+
+nb啊，战损版还成功溅落了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  性兽阿怪  
+##### 263#       发表于 2024-6-6 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视频信号断了几次，都以为凉了，没想到反复复活，真的牛
+
+*****
+
+####  间宮夏生  
+##### 264#       发表于 2024-6-6 22:03
+
+牛啊，摄像头和机翼都是，破破烂烂还是撑到了最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  309465205  
+##### 265#       发表于 2024-6-6 22:03
+
+摄像头残存3%不到的画面直播了几分钟，翻身之后看着残废的翅膀又动了起来。
+
+直播节目效果满分
+
+*****
+
+####  stevenzero  
+##### 266#       发表于 2024-6-6 22:03
+
+这一级有发动机失灵，二级翅膀损毁，反而更体现出这玩意的可怕了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  长征5号  
+##### 267#       发表于 2024-6-6 22:03
+
+牛逼，有点厉害
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Tungsten  
+##### 268#       发表于 2024-6-6 22:03
+
+elonship居然成功着陆了
+
+*****
+
+####  haohaoh4  
+##### 269#       发表于 2024-6-6 22:04
+
+真的牛啊
+
+致敬传奇耐烧王s29
+
+*****
+
+####  nalanchen  
+##### 270#       发表于 2024-6-6 22:04
+
+居然成了。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  _47  
+##### 271#       发表于 2024-6-6 22:04
+
+太强了，长九立项吧。
+
+*****
+
+####  哈里-谢顿  
+##### 272#       发表于 2024-6-6 22:04
+
+MAN，what can i say
+
+中间复活几次，哪家的摄像机啊
+
+*****
+
+####  圣罗.希露温  
+##### 273#       发表于 2024-6-6 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer"> 绿皮科技NB
+
+*****
+
+####  bartholo4  
+##### 274#       发表于 2024-6-6 22:05
+
+这还不摸等啥呢
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tsukatsukieiko  
+##### 275#       发表于 2024-6-6 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136588&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-6 22:04</a>
+
+MAN，what can i say
+
+中间复活几次，哪家的摄像机啊</blockquote>
+貌似就是gopro
+
+*****
+
+####  哈里-谢顿  
+##### 276#       发表于 2024-6-6 22:05
+
+<blockquote>_47 发表于 2024-6-6 22:04
+太强了，长九立项吧。</blockquote>
+群里的大佬说上面不批
+
+蛮复杂的
+
+*****
+
+####  莫伊黑白  
+##### 277#       发表于 2024-6-6 22:05
+
+溅落反推确实是牛逼。
+
+*****
+
+####  asaforverity  
+##### 278#       发表于 2024-6-6 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136598&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-6 22:05</a>
+
+群里的大佬说上面不批
+
+蛮复杂的</blockquote>
+怎么个复杂法
+
+*****
+
+####  四号舰美浓  
+##### 279#       发表于 2024-6-6 22:06
+
+接下来是打捞船的工作了。获得一个大体完好的再入过的星舰，研究素材太珍贵了。
+
+*****
+
+####  novice  
+##### 280#       发表于 2024-6-6 22:06
+
+这材料太强了吧，国内可以跟前人过河
+

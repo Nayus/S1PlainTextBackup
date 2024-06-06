@@ -957,3 +957,20 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 中产小资特有的自造词汇
 
+
+*****
+
+####  内拉祖里  
+##### 105#       发表于 2024-6-6 16:02
+
+什么时候wildshit？
+
+*****
+
+####  blessinglouis  
+##### 106#       发表于 2024-6-6 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65132539&amp;ptid=2186070" target="_blank">canti 发表于 2024-6-6 15:37</a>
+不好评价</blockquote>
+吓我一跳
+

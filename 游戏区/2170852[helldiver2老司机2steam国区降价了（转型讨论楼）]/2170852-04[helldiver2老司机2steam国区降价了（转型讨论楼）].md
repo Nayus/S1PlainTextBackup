@@ -4641,3 +4641,25 @@ dev说过是6月第二周才更新
 
 好像只有pc能用，ps还是用不了日语语音？
 
+
+*****
+
+####  ravend233  
+##### 4860#       发表于 2024-6-5 08:50
+
+该昭和潜兵了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤井稻妻  
+##### 4861#       发表于 2024-6-5 09:07
+
+好像只有pc能用，ps还是用不了日语语音？
+
+*****
+
+####  FLZB  
+##### 4862#       发表于 2024-6-6 20:36
+
+新债卷护甲好活，但又做了一把解放者属实绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

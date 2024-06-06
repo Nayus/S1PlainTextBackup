@@ -11111,3 +11111,28 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 
 不过初华的画得比较怪，其他四人好看
 
+
+*****
+
+####  kivz  
+##### 17279#       发表于 2024-6-6 20:27
+
+画得很一般……狗比wsd哪怕多花点呢
+相比高质量的就喜欢约一堆鬼图是吧<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叁味线  
+##### 17280#       发表于 2024-6-6 20:31
+
+群友找到的，这次官方斥了7000*5日元巨资给约的图捏
+
+<img src="https://img.saraba1st.com/forum/202406/06/202937ygnb79heppvedn1s.png" referrerpolicy="no-referrer">
+
+<strong>Image_1717676929841.png</strong> (177.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 20:29 上传
+

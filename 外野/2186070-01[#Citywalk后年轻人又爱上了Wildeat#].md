@@ -1090,3 +1090,13 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  qooweds  
+##### 118#       发表于 2024-6-6 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65133601&amp;ptid=2186070" target="_blank">花江夏樹 发表于 2024-6-6 17:02</a>
+好像是说在城市里面路边坐着吃，类似武汉人吃早餐</blockquote>
+论wild武汉人可是边走边吃的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

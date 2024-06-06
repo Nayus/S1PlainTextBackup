@@ -3314,3 +3314,25 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 看nga</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精英阶层瓦解了NGA怎么办啊
 
+
+*****
+
+####  madbird023  
+##### 375#       发表于 2024-6-7 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138149&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-7 01:39</a>
+
+迭代也没用，星舰的基础设计就不是用来打深空的，就像猎鹰9现在迭代到这种程度了，深空能力还是很差 ...</blockquote>
+慢慢看，不要轻易下定义
+
+
+*****
+
+####  薄皮破船  
+##### 376#       发表于 2024-6-7 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138191&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-6-7 01:55</a>
+
+慢慢看，不要轻易下定义</blockquote>
+我就下定义了，这玩意从构型来说就不是打深空的，就和猎鹰9一样就是在近地轨道撒豆子用的，就像你造个坦克就是拿来在地上跑的不是拿来飞的
+

@@ -11101,3 +11101,13 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這臉也不可以！
 
+
+*****
+
+####  likeny  
+##### 17278#       发表于 2024-6-6 20:15
+
+感觉MV里面的大头照比曲绘好看，因为有滤镜？
+
+不过初华的画得比较怪，其他四人好看
+

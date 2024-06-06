@@ -746,3 +746,35 @@ SpaceX官推正式宣布计划6月6日第四飞，发射窗口当地时间早上
 
 2024-6-6 20:10 上传
 
+
+*****
+
+####  commcody  
+##### 93#         楼主| 发表于 2024-6-6 20:19
+
+SpaceX官方直播已上线
+
+<img src="https://img.saraba1st.com/forum/202406/06/201859gfntfktxxijok1jn.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240606201746.jpg</strong> (230.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 20:18 上传
+
+*****
+
+####  依然荏苒  
+##### 94#       发表于 2024-6-6 20:19
+
+8点50    
+
+*****
+
+####  死宅真恶心  
+##### 95#       发表于 2024-6-6 20:24
+
+【SpaceX星舰第四次发射-哔哩哔哩直播】 https://b23.tv/4jzcHkE
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

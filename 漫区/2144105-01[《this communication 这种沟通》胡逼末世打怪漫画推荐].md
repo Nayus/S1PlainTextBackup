@@ -1588,3 +1588,14 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 汉化终于出完，这套书太赞了，台版有计划要出么，想收
 
+
+*****
+
+####  某某某人  
+##### 155#       发表于 2024-6-6 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125681&amp;ptid=2144105" target="_blank">TiiTiiLL 发表于 2024-6-5 22:48</a>
+
+算是完满完结了吧，挺适合动画化的</blockquote>
+適合動畫化? 以男主的所作所為, 恐怕連里番都容納不了這部作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

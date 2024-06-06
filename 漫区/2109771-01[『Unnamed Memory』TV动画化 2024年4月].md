@@ -132,3 +132,11 @@
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  kongxian  
+##### 133#       发表于 2024-6-6 08:00
+
+少女音，有吗，我怎么听都觉得这几集声线显得都挺苍老的，莫非是要体现人设长生高龄少女感
+

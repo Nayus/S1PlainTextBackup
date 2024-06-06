@@ -400,3 +400,15 @@ jeff说预计两小时，30个游戏
 感觉都要被漏完了</blockquote>
 目前为止还没有大料漏出来
 
+
+*****
+
+####  zid99825  
+##### 44#       发表于 2024-6-6 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65128099&amp;ptid=2178699" target="_blank">フカミ 发表于 2024-6-6 09:40</a>
+感觉都要被漏完了</blockquote>
+jeff说最少5个未公布titile，这怎么也不能算漏完吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

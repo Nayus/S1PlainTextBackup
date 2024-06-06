@@ -524,3 +524,18 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 反而卡普空这种，街霸6弄个自定义黑人，生化一贯白皮男主，新怪猎又往阿三靠
 
+
+*****
+
+####  ultraseven  
+##### 54#       发表于 2024-6-7 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138161&amp;ptid=2186465" target="_blank">千千千千鸟 发表于 2024-6-7 01:43</a>
+
+如果能做到以下几点我相信他们是真的要多元化平等了：
+
+1、游戏里出现的亚裔不能刻意丑化。
+
+2、游戏里出现的 ...</blockquote>
+为啥没黑女，ebony不行吗？你这也不够多元化平等<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
+

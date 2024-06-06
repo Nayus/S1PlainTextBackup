@@ -786,3 +786,65 @@ SpaceX官方直播已上线
 
 为啥有两个直播频道，一个在直播星舰，另一个是老马给比特币带货 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jon_stewart  
+##### 97#       发表于 2024-6-6 20:49
+
+靠，全球几百万人看马总直播带货coin
+
+*****
+
+####  灼眼的川川仔  
+##### 98#       发表于 2024-6-6 20:49
+
+老马还带了孩子来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madbird023  
+##### 99#       发表于 2024-6-6 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135704&amp;ptid=2176876" target="_blank">tonyunreal 发表于 2024-6-6 20:41</a>
+
+为啥有两个直播频道，一个在直播星舰，另一个是老马给比特币带货</blockquote>
+以X上的直播信号为准，老马抱着儿子在控制中心里
+
+*****
+
+####  susan28  
+##### 100#       发表于 2024-6-6 20:49
+
+30.秒
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+*****
+
+####  madbird023  
+##### 101#       发表于 2024-6-6 20:49
+
+30秒，可以发射
+
+*****
+
+####  madbird023  
+##### 102#       发表于 2024-6-6 20:50
+
+最外圈一个灯没亮
+
+*****
+
+####  magicianxu  
+##### 103#       发表于 2024-6-6 20:53
+
+怎么感觉寄了
+
+*****
+
+####  madbird023  
+##### 104#       发表于 2024-6-6 20:53
+
+热分离后B11点火完美
+

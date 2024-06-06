@@ -2218,3 +2218,14 @@ jackpot的世锦赛冠军名牌发了
 
 这游戏最近啥环境，还是单行道狭窄地图大招乱扔吗
 
+
+*****
+
+####  carroy  
+##### 4652#       发表于 2024-6-6 18:15
+
+好久没打真格了  打就是陪着新手朋友玩
+结果这几天自己一个人玩邦普v打开放输成狗
+重置直接回到b+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+后排上分真难啊
+

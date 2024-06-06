@@ -639,3 +639,13 @@ SpaceX官推正式宣布计划6月6日第四飞，发射窗口当地时间早上
 之前还有三块隔热瓦没有安装</blockquote>
 好吧，问题不大就好
 
+
+*****
+
+####  tonyunreal  
+##### 85#       发表于 2024-6-6 18:13
+
+顶一下，今晚8点20分发射
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1289,3 +1289,42 @@ pay的1st live终于发售BD，连同二单的发售纪念活动一起
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20294#       发表于 2024-6-6 08:13
+
+i人其实很难干好偶像吧...
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ads147147  
+##### 20295#       发表于 2024-6-6 08:57
+
+结那是i确实挺怪的，可能没认真选吧，反正这玩意也就比星座占卜好一点，可能都有点精神内耗所以才拍抖音吧。
+
+（其实你说nagi也是i我也信，eii组合结果是两个i带着e飞多有趣（
+
+*****
+
+####  ruffian  
+##### 20296#       发表于 2024-6-6 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65127311&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-06-06 08:13:31</a>
+i人其实很难干好偶像吧...</blockquote>万一是isfp呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 20297#       发表于 2024-6-6 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125892&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-6-5 23:12</a>
+
+WC,可以。BML去吗？</blockquote>
+不去，这种活动又不缺观众，还是多支持演唱会
+

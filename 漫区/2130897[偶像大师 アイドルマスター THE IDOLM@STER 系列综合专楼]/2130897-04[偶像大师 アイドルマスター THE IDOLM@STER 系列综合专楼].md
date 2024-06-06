@@ -9888,3 +9888,11 @@ pyon老公玩星耀季节的切片蛮有意思的<img src="https://static.saraba
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Vacuolar  
+##### 5371#       发表于 2024-6-6 11:42
+
+怎么sc还要出卡啊，真想起了一些手游好吧
+

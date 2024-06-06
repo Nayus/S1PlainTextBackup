@@ -1344,3 +1344,21 @@ WC,可以。BML去吗？</blockquote>
 
 不用舰长都能买的到
 
+
+*****
+
+####  伊卡石  
+##### 20300#       发表于 2024-6-6 19:00
+
+开票前也没搞太多宣发，这段时间应该还会发些宣传物料什么的
+
+*****
+
+####  cat1230  
+##### 20301#       发表于 2024-6-6 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65134852&amp;ptid=2078110" target="_blank">伊卡石 发表于 2024-6-6 19:00</a>
+
+开票前也没搞太多宣发，这段时间应该还会发些宣传物料什么的</blockquote>
+鲤鱼这个完全粉丝向，宣发意义不大吧。该知道的都知道了
+

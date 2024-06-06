@@ -2956,3 +2956,25 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
  ...</blockquote>
 啊这，不会失败后返回吧
 
+
+*****
+
+####  longmarch5  
+##### 343#       发表于 2024-6-6 23:58
+
+重型火箭战略投送这个在去年长9的PPT大饼里也有
+
+现在看来上头可能对这个不感冒
+
+*****
+
+####  Lucario  
+##### 344#       发表于 2024-6-7 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137428&amp;ptid=2176876" target="_blank">hu14againagain 发表于 2024-6-6 23:40</a>
+
+太空军已经开始资助星舰的空投弹药能力计划，2025年末展示
+
+也就是半个小时内向全球任意地点倾泻100吨弹药 ...</blockquote>
+乐 就液氧甲烷这个准备时间，真拿去投射弹头，基本就是被摧毁在发射场的结局
+

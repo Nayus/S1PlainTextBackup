@@ -1586,3 +1586,14 @@ q娃shf也打赢复活赛
 对蓝神有阴影能理解，但coco和望郎才女貌有问题吗</blockquote>
 Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是挺丢人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 1615#       发表于 2024-6-6 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65131239&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-6-6 13:34</a>
+
+Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是挺丢人的</blockquote>
+至少比剧场版黑化强百倍家暴阿望强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -490,3 +490,41 @@ COD有啥值得单独开发布会介绍的么……大家对COD里会有啥已�
 
 难道还能有什么意料之外的内容？
 
+
+*****
+
+####  医生狼多  
+##### 55#         楼主| 发表于 2024-6-6 18:27
+
+ 本帖最后由 医生狼多 于 2024-6-6 18:30 编辑 
+
+jason好像出来说了下有丝之歌，不过我在推上看到相关的贴被删了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+lunatic也出来说是的，不过他置信度还不能确定
+Jason Schreier would bet that Silksong is going to be on Xbox Showcase (with release date later this year)
+
+https://www.reddit.com/r/GamingLeaksAndRumours/s/WdlNzz6zP4
+
+*****
+
+####  kaolimadepi  
+##### 56#       发表于 2024-6-6 18:32
+
+cod实机看的人很多的，单独拿出来顺便开预购不奇怪
+
+
+*****
+
+####  时空之旅  
+##### 57#       发表于 2024-6-6 18:33
+
+<blockquote>BadYanL 发表于 2024-4-6 14:29
+各路舅舅都说今年发布会将会非常炸裂，42个工作室的滚轮开始运转。</blockquote>
+如果有传闻中的掌机我觉得还比较炸裂
+
+*****
+
+####  zris  
+##### 58#       发表于 2024-6-6 18:35
+
+发布会开始数的48个小时是无敌的
+

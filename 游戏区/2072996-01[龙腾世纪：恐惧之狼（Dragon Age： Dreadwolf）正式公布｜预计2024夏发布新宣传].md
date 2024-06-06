@@ -1386,3 +1386,12 @@ EA财年是几月到几月来着
 
 知名记者Jason Schreier在ResetEra上表示，Grubb指的是游戏将以新名称亮相，而不是一款不同的游戏。
 
+
+*****
+
+####  噗呸破屁诚  
+##### 151#       发表于 2024-6-6 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247375&amp;ptid=2072996" target="_blank"> kaolimadepi 发表于 2023-12-7 03:13</a> baizhi 发表于 2023-12-6 20:29 杯赛起码还有个老滚兜底，生软如果连龙腾世纪都做砸了，还剩什么？ 你科幻砸了有奇幻，我奇幻砸了有科幻啊 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可你科幻（仙女座）不是先砸的那个吗来自: iPhone客户端
+

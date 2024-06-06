@@ -1230,3 +1230,114 @@ External camera comes online in 11 mins
 
 还行，不影响看再入
 
+
+*****
+
+####  人別離苦  
+##### 153#       发表于 2024-6-6 21:26
+
+我画面呢<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 154#       发表于 2024-6-6 21:27
+
+这不还是黑屏吗
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  xu5891166  
+##### 155#       发表于 2024-6-6 21:27
+
+啥情况，还没恢复
+
+*****
+
+####  windtrack  
+##### 156#       发表于 2024-6-6 21:27
+
+恢复了 恢复了
+
+*****
+
+####  死宅真恶心  
+##### 157#       发表于 2024-6-6 21:27
+
+画面来了
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  canti  
+##### 158#       发表于 2024-6-6 21:27
+
+好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  瓦格雷  
+##### 159#       发表于 2024-6-6 21:27
+
+画面回来了
+
+*****
+
+####  sennheiser  
+##### 160#       发表于 2024-6-6 21:28
+
+这是还在地球大气层外飘着呢。。。。。。。。。。。。。。。。
+
+
+*****
+
+####  madbird023  
+##### 161#       发表于 2024-6-6 21:28
+
+图像来了
+
+*****
+
+####  xu5891166  
+##### 162#       发表于 2024-6-6 21:30
+
+这块儿是破皮了？
+
+1.png
+(652.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/212954ak023ssmsvh5mp0s.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  依然荏苒  
+##### 163#       发表于 2024-6-6 21:32
+
+能不能成功再入呢
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  PPB3008  
+##### 164#       发表于 2024-6-6 21:32
+
+最后这一公里减速看着真刺激
+
+*****
+
+####  madbird023  
+##### 165#       发表于 2024-6-6 21:33
+
+上次的再入视角回来了
+

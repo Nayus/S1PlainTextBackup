@@ -544,3 +544,13 @@ steam登录xbox主机和掌机，炸裂
 
 开始有尿意了
 
+
+*****
+
+####  卡拉德利姆  
+##### 61#       发表于 2024-6-7 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65128147&amp;ptid=2178699" target="_blank">ultraseven 发表于 2024-6-6 09:44</a>
+《龙腾世纪4》就是《恐惧之狼》啊，Xbox App都能预载占位符了，还能改名？ ...</blockquote>
+副标题改成the veilguard了 
+

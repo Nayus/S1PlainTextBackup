@@ -4663,3 +4663,27 @@ dev说过是6月第二周才更新
 
 新债卷护甲好活，但又做了一把解放者属实绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4863#       发表于 2024-6-6 20:48
+
+就一把主武器吗
+
+*****
+
+####  LT_Harry  
+##### 4864#       发表于 2024-6-6 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135647&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-6 20:36</a>
+新债卷护甲好活，但又做了一把解放者属实绷不住了</blockquote>
+解放者卡宾枪，一代🈶类似的东西（名字应该是爱国者），不过一代随机匹配出场率最高的基本都是正义典范镰刀三叉戟这样的枪，比较常规的武器大都没份
+
+*****
+
+####  rainknine  
+##### 4865#       发表于 2024-6-6 21:04
+
+看这viper我还以为要出喷毒器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1117,3 +1117,15 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 感觉不如wildshit</blockquote>
 拉野史是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  萌二  
+##### 121#       发表于 2024-6-6 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65103158&amp;ptid=2186070" target="_blank">onion0201 发表于 2024-6-3 22:11</a>
+感觉不如wildshit</blockquote>
+wildshit在工地试过 月黑风高在路边草丛蹲着 时不时有泥头车经过投来一丝亮光 真的刺激
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

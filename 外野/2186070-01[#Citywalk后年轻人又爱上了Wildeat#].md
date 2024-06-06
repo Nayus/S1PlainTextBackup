@@ -1026,3 +1026,18 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 那俺们大县城已经一堆人天天wildeat起码40多年了，建议抓住这波流量，打造wildeat之都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  忘却旋律  
+##### 112#       发表于 2024-6-6 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65133601&amp;ptid=2186070" target="_blank">花江夏樹 发表于 2024-6-6 17:02</a>
+
+好像是说在城市里面路边坐着吃，类似武汉人吃早餐</blockquote>
+你说的哪个好像和这贴的主旨又有点不一样，武汉这我觉得很正常啊 
+
+店铺没那么大 街边起码还提供给你“桌椅方便你吃东西，
+
+那个路边吃东西的，外面还有一贴就是你说的哪个 做路边吃的 有图，突出一个瘪三 脑瘫 和戆卵特质，给武汉这个提鞋都不配
+

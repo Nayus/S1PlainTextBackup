@@ -1641,3 +1641,11 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 这要是最后主角手从雪里伸出来拿走了面包这就是标准恐怖片结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂马王  
+##### 161#       发表于 2024-6-6 18:03
+
+最终话汉化更新了吗？是一共48话吗？
+

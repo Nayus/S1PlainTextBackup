@@ -3301,3 +3301,16 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 马斯克第五发今年年中应该没啥问题</blockquote>
 明年？想得太好了······明年能打长10就牛逼上天了·······
 
+
+*****
+
+####  黄泉川此方  
+##### 374#       发表于 2024-6-7 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138104&amp;ptid=2176876" target="_blank">zeroboss1 发表于 2024-6-7 01:22</a>
+
+灭鳖还是
+
+看nga</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">精英阶层瓦解了NGA怎么办啊
+

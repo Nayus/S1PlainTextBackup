@@ -509,3 +509,18 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 4、游戏里出现多对黄男白女and黑男白女
 
+
+*****
+
+####  雪菜碧池  
+##### 53#       发表于 2024-6-7 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136995&amp;ptid=2186465" target="_blank">rainsheep 发表于 2024-6-6 22:51</a>
+
+亚裔男做主角，这几年日厂做的都不多，还指望白皮多做点想想就知道不现实。
+
+—— 来自 vivo V2241A, Andro ...</blockquote>
+也不少吧， 黄男大厂光荣，仁王2卧龙浪人，三国起源
+
+反而卡普空这种，街霸6弄个自定义黑人，生化一贯白皮男主，新怪猎又往阿三靠
+

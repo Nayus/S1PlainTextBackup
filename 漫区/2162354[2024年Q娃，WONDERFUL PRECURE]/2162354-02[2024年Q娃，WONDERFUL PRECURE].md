@@ -1527,3 +1527,13 @@ q娃shf也打赢复活赛
 
 —— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1609#       发表于 2024-6-6 10:48
+
+能和茉优一起上学了呢好开心<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+终于能看住那两个总把茉优往火坑里拉的家伙了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

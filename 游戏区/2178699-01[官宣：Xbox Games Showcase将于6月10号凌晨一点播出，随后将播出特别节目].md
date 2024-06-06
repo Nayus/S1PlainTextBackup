@@ -450,3 +450,18 @@ jeff说最少5个未公布titile，这怎么也不能算漏完吧<img src="https
 
 大的就是那个xbox掌机吗？
 
+
+*****
+
+####  tasuku  
+##### 50#       发表于 2024-6-6 15:49
+
+最后一个环节是宣布游戏移植ps的进度计划
+
+*****
+
+####  Eadric  
+##### 51#       发表于 2024-6-6 15:52
+
+软软有哪次发布会是不炸裂的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

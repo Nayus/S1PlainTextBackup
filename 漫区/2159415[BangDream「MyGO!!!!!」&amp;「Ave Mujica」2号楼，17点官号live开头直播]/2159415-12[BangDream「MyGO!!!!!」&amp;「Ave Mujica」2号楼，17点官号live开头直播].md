@@ -11057,3 +11057,39 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 由手机上传
 2024-6-6 19:44 上传
 
+
+*****
+
+####  滑稽Captain  
+##### 17272#       发表于 2024-6-6 19:46
+
+比shuzuku强点，但有限（
+
+*****
+
+####  御幸一也  
+##### 17273#       发表于 2024-6-6 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這有比較好嗎 沒有吧 還好看起來是只畫一張 別告訴我他還要繼續畫
+
+*****
+
+####  skives  
+##### 17274#       发表于 2024-6-6 19:48
+
+希望动画能大火<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 17275#       发表于 2024-6-6 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">粗糙的PV玩的就是一手神秘和反差，WSD一定以为他们的审美非常高雅罢。
+
+*****
+
+####  skives  
+##### 17276#       发表于 2024-6-6 19:49
+
+脸确实还可以 奈何经典脖子前倾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

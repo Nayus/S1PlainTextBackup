@@ -1395,3 +1395,16 @@ EA财年是几月到几月来着
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247375&amp;ptid=2072996" target="_blank"> kaolimadepi 发表于 2023-12-7 03:13</a> baizhi 发表于 2023-12-6 20:29 杯赛起码还有个老滚兜底，生软如果连龙腾世纪都做砸了，还剩什么？ 你科幻砸了有奇幻，我奇幻砸了有科幻啊 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可你科幻（仙女座）不是先砸的那个吗来自: iPhone客户端
 
+
+*****
+
+####  Piano-Forest  
+##### 152#       发表于 2024-6-6 23:03
+
+ 本帖最后由 Piano-Forest 于 2024-6-6 23:04 编辑 
+
+正式名 Dragon Age™: The Veilguard
+
+6月11日晚11点会公开15分钟实机演示
+<[img src="https://s2.loli.net/2024/06/06/7x8TMOLYa3nFWIE.jpg" referrerpolicy="no-referrer">
+

@@ -2724,3 +2724,23 @@ IMG_8865.jpeg
 
 等解决了弯弯问题在西太平洋和美帝摊牌了以后再打太空竞赛也不迟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xu5891166  
+##### 325#       发表于 2024-6-6 23:04
+
+技术成熟了当然要摸摸，就算用不上当技术储备也不亏
+
+*****
+
+####  nalanchen  
+##### 326#       发表于 2024-6-6 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136934&amp;ptid=2176876" target="_blank">星之卡比 发表于 2024-6-6 22:44</a>
+丑国又要故计重施搞星球大战，我们是不可能跟的。
+星舰火箭上天，街上的homeless和非法移民就会减少吗？ ...</blockquote>
+马骗骗余音犹如昨日
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

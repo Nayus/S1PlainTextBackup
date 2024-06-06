@@ -178,3 +178,14 @@ PV里主角手中的这本小说
 淘宝好像就没卖过限定来着</blockquote>
 看了下价格基本1000出头，还不算运费。看了下日版那边都没人抢啊，各种网上通贩店铺都能随便买，不算运费换算下来900不到。怕等个2年直接出个pro plus版。
 
+
+*****
+
+####  ChengChung  
+##### 421#       发表于 2024-6-6 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65133784&amp;ptid=2140224" target="_blank">h122h 发表于 2024-6-6 17:16</a>
+
+看了下价格基本1000出头，还不算运费。看了下日版那边都没人抢啊，各种网上通贩店铺都能随便买，不算运费 ...</blockquote>
+这不是日版没中文么
+

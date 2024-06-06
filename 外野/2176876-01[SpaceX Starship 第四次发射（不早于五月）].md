@@ -3035,3 +3035,13 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
 
 隔壁可是载人的啊，这要rcs不修好两航天员不知道要在天上呆多久，连回都麻烦
 
+
+*****
+
+####  lactone  
+##### 351#       发表于 2024-6-7 00:44
+
+各路评论区已经开始大范围咩鳖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from OnePlus PJE110, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

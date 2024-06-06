@@ -189,3 +189,14 @@ PV里主角手中的这本小说
 看了下价格基本1000出头，还不算运费。看了下日版那边都没人抢啊，各种网上通贩店铺都能随便买，不算运费 ...</blockquote>
 这不是日版没中文么
 
+
+*****
+
+####  h122h  
+##### 422#       发表于 2024-6-6 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65133977&amp;ptid=2140224" target="_blank">ChengChung 发表于 2024-6-6 17:29</a>
+
+这不是日版没中文么</blockquote>
+也是。虽然我都看得懂不会去考虑这些。2024了，号称全世界同步发售，sega自己本家的游戏都不去整这种锁区锁语言了，为啥altus还在搞这种啊。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -3194,3 +3194,65 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 —— 来自 Xiaomi 2304FPN6D ...</blockquote>
 星舰大头不是登月，是马老板自己的大卫星
 
+
+*****
+
+####  madbird023  
+##### 365#       发表于 2024-6-7 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138082&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-7 01:15</a>
+
+星舰大头不是登月，是马老板自己的大卫星</blockquote>
+错，最大的用途是往火星运物资
+
+*****
+
+####  zeroboss1  
+##### 366#       发表于 2024-6-7 01:22
+
+灭鳖还是
+
+<img src="https://img.saraba1st.com/forum/202406/07/012156tc948n11z914of82.jpg" referrerpolicy="no-referrer">
+
+<strong>1000062278.jpg</strong> (375.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 01:21 上传
+
+看nga
+
+*****
+
+####  薄皮破船  
+##### 367#       发表于 2024-6-7 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138102&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-6-7 01:21</a>
+
+错，最大的用途是往火星运物资</blockquote>
+错，星舰没法到火星，去个月球都要几十发接力加注燃料
+
+*****
+
+####  薄皮破船  
+##### 368#       发表于 2024-6-7 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138104&amp;ptid=2176876" target="_blank">zeroboss1 发表于 2024-6-7 01:22</a>
+
+灭鳖还是
+
+看nga</blockquote>
+发帖，3
+
+*****
+
+####  木水风铃  
+##### 369#       发表于 2024-6-7 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138104&amp;ptid=2176876" target="_blank">zeroboss1 发表于 2024-6-7 01:22</a>
+
+灭鳖还是
+
+看nga</blockquote>
+这是不是MD2小号
+

@@ -3045,3 +3045,40 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
 
 — from OnePlus PJE110, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  长征5号  
+##### 352#       发表于 2024-6-7 00:48
+
+要我说搞什么星舰，无工质才是未来！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Суслов  
+##### 353#       发表于 2024-6-7 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137913&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 00:44</a>
+各路评论区已经开始大范围咩鳖了
+
+— from OnePlus PJE110, Android 14 of S1 Next Goose v3.0.0.81-alpha ...</blockquote>
+现在看到有人说科技进步是为了全人类我都拿星舰咩鳖举例子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  yizi1  
+##### 354#       发表于 2024-6-7 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137913&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 00:44</a>
+各路评论区已经开始大范围咩鳖了
+
+— from OnePlus PJE110, Android 14 of S1 Next Goose v3.0.0.81-alpha ...</blockquote>
+星舰这个项目如果不能把成本降下来，登月以后估计也就是土星五号的结局吧。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

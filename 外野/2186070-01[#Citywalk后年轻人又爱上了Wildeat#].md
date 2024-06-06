@@ -1068,3 +1068,15 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  天青月白  
+##### 116#       发表于 2024-6-6 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65132539&amp;ptid=2186070" target="_blank">canti 发表于 2024-6-6 15:37</a>
+不好评价</blockquote>
+这个像是恐怖游戏里会出现的人物
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

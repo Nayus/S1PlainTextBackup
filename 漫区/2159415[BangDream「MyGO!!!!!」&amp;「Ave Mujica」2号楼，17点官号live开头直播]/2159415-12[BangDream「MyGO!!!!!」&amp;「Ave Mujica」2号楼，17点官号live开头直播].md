@@ -10981,3 +10981,79 @@ mujica这套服装和人设难道很难画吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">摳死武士道算了
 
+
+*****
+
+####  御幸一也  
+##### 17264#       发表于 2024-6-6 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135156&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-6 19:33</a>
+
+mujica这套服装和人设难道很难画吗
+
+感觉鬼图已经达到了80%的程度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這衣服確實挺麻煩的，但不至於鬼成這樣，還是武士道摳導致的
+
+*****
+
+####  NODY  
+##### 17265#       发表于 2024-6-6 19:36
+
+致敬传奇画师shuzuku，wsd的性癖是歪脖子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17266#       发表于 2024-6-6 19:38
+
+这次的画师粉丝只有两千<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17267#       发表于 2024-6-6 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">武士道真是好意思
+
+
+*****
+
+####  御景  
+##### 17268#       发表于 2024-6-6 19:40
+
+这画，如果不是各种特征太明显，我都不敢认
+
+*****
+
+####  海月くらげ  
+##### 17269#       发表于 2024-6-6 19:41
+
+自家tcg联动全是现成素材重复再利用 kv图画师没画成鬼图就算成功 这就是我们武士道的美术资产啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御幸一也  
+##### 17270#       发表于 2024-6-6 19:41
+
+ 本帖最后由 御幸一也 于 2024-6-6 19:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不想說的太失禮，但
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17271#       发表于 2024-6-6 19:44
+
+https://x.com/GirLover_Ureka/status/1797990462244139463
+
+<img src="https://img.saraba1st.com/forum/202406/06/194405fpt5du25ez5p2g1g.jpg" referrerpolicy="no-referrer">
+
+<strong>GPO-x_XbQAAswWH.jpg</strong> (518.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-6 19:44 上传
+

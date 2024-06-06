@@ -1416,3 +1416,11 @@ EA财年是几月到几月来着
 
 BioWare新作《龙腾世纪：恐惧之狼》正式更名为《龙腾世纪：影障守护者》（Dragon Age: The Veilguard），6月11日公布15分钟实机演示。游戏发售日待公布，支持中文。 ​​​
 
+
+*****
+
+####  DBMlover  
+##### 154#       发表于 2024-6-7 00:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等了这么久，感觉还是要雷。就算雷，也希望起码有个好点的终局。唉
+

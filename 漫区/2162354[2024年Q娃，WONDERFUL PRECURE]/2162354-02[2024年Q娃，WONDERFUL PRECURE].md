@@ -1553,3 +1553,14 @@ q娃shf也打赢复活赛
 
 追了一下，这次暖男不错，为啥还有这么多人喷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1612#       发表于 2024-6-6 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65129394&amp;ptid=2162354" target="_blank">cenhr 发表于 2024-6-6 11:21</a>
+
+追了一下，这次暖男不错，为啥还有这么多人喷</blockquote>
+可能是因为蓝神和希望之力的coco留下的心理阴影吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

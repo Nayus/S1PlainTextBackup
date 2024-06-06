@@ -1633,3 +1633,11 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 这算不算是第一个在结局死掉之后让所有人包括读者都觉得安心的男主<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓝雉  
+##### 160#       发表于 2024-6-6 17:06
+
+这要是最后主角手从雪里伸出来拿走了面包这就是标准恐怖片结尾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

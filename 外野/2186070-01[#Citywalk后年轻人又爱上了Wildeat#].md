@@ -1003,3 +1003,26 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 感觉不如wildshit</blockquote>
 拉野屎确实很快乐
 
+
+*****
+
+####  花江夏樹  
+##### 110#       发表于 2024-6-6 17:02
+
+好像是说在城市里面路边坐着吃，类似武汉人吃早餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/06/170145fe197vkyrzmru08l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (406.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 17:01 上传
+
+*****
+
+####  卡尔荣格  
+##### 111#       发表于 2024-6-6 17:03
+
+那俺们大县城已经一堆人天天wildeat起码40多年了，建议抓住这波流量，打造wildeat之都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

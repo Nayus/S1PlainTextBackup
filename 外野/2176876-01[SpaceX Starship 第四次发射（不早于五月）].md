@@ -3082,3 +3082,24 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nibugishi  
+##### 355#       发表于 2024-6-7 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137913&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 00:44</a>
+各路评论区已经开始大范围咩鳖了
+
+— from OnePlus PJE110, Android 14 of S1 Next Goose v3.0.0.81-alpha ...</blockquote>
+但马斯克不是支持一个中国，俄罗斯以及巴勒斯坦吗
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  星之卡比  
+##### 356#       发表于 2024-6-7 00:59
+
+让国外先探路果然还是比较经济实惠的做法
+

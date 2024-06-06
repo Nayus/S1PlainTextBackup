@@ -258,3 +258,11 @@ MSI Claw 是英特尔的核吧
 6月10日会发布Xbox掌机吗？</blockquote>
 舅舅信誓旦旦，我们等着看戏就好 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dtq1997  
+##### 1237#       发表于 2024-6-6 22:45
+
+年初抱着试试看的心态买了台Steam Deck，结果整整半年没有工作，吓得我现在丢给我朋友保管了
+

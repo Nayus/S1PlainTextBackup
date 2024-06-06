@@ -2229,3 +2229,11 @@ jackpot的世锦赛冠军名牌发了
 重置直接回到b+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 后排上分真难啊
 
+
+*****
+
+####  藏獒·烨  
+##### 4653#       发表于 2024-6-6 22:40
+
+互掏大锤就像同时拔枪or拔刀一样，还挺搞笑
+

@@ -410,3 +410,14 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 亚裔+男性主角。师傅好像也不算太久叭...哦，卖得太便宜也不算的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jokertx  
+##### 44#       发表于 2024-6-6 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136840&amp;ptid=2186465" target="_blank">陛下欲反邪 发表于 2024-6-6 22:31</a>
+
+哦~仅仅是亚裔+男性就嫌多了是么</blockquote>
+我猜你想说的是要以中国底层青年汉族男性为主角才正确吧
+

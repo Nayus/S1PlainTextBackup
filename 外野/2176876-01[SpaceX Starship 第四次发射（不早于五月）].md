@@ -3256,3 +3256,25 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 看nga</blockquote>
 这是不是MD2小号
 
+
+*****
+
+####  madbird023  
+##### 370#       发表于 2024-6-7 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138107&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-7 01:22</a>
+
+错，星舰没法到火星，去个月球都要几十发接力加注燃料</blockquote>
+靠以后迭代啊，现在的星舰只是F9B1到B4之间的阶段，离B5还早呢
+
+*****
+
+####  lactone  
+##### 371#       发表于 2024-6-7 01:33
+
+长9立项的话，最快也要到明年才能打
+
+马斯克第五发今年年中应该没啥问题
+
+— from OnePlus PJE110, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

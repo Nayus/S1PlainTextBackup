@@ -481,3 +481,15 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 游戏都被sweetbaby掌控了，爱说啥说啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keytomylife  
+##### 51#       发表于 2024-6-7 01:34
+
+这游戏几年前发CG的时候已经是压倒性的倒赞
+
+这次也不例外
+
+希望大家用行动证明
+

@@ -11207,3 +11207,39 @@ https://x.com/GirLover_Ureka/status/1797990462244139463
 
 祥子再没钱也是自己过日子省啊 乐队宣传它会和wsd一样弄不清吗
 
+
+*****
+
+####  yifan8848  
+##### 17290#       发表于 2024-6-6 21:41
+
+還不如拿素晴的圖來重複使用
+
+*****
+
+####  基神的强袭自由  
+##### 17291#       发表于 2024-6-6 21:42
+
+以前联动的时候也有出卡吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17292#       发表于 2024-6-6 21:43
+
+这是不是第一次联动复刻，看来新公司产能真的不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 17293#       发表于 2024-6-6 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135111&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-6 19:28</a>
+
+難繃
+
+好消息：5首歌都有新圖不用第一首的女鬼圖
+
+壞消息：還是鬼圖</blockquote>
+感觉能和隔壁妄想感伤代偿联盟五五开
+

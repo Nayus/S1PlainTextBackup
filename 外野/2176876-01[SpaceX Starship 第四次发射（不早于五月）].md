@@ -1341,3 +1341,97 @@ External camera comes online in 11 mins
 
 上次的再入视角回来了
 
+
+*****
+
+####  依然荏苒  
+##### 166#       发表于 2024-6-6 21:35
+
+ 本帖最后由 依然荏苒 于 2024-6-6 21:37 编辑 
+
+开始再入
+姿态稳定开始减速
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  瓦格雷  
+##### 167#       发表于 2024-6-6 21:35
+
+烧红了  哈哈  不知道什么时候信号丢失
+
+*****
+
+####  人別離苦  
+##### 168#       发表于 2024-6-6 21:37
+
+卡了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依然荏苒  
+##### 169#       发表于 2024-6-6 21:38
+
+没卡，机翼在动的，机头的等离子真漂亮。
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  遗迹永存  
+##### 170#       发表于 2024-6-6 21:39
+
+竟然还有信号
+
+*****
+
+####  madbird023  
+##### 171#       发表于 2024-6-6 21:39
+
+稳定减速中
+
+
+*****
+
+####  sennheiser  
+##### 172#       发表于 2024-6-6 21:40
+
+它要到了接近地面才重新点火退离地面的么？
+
+*****
+
+####  YoumuChan  
+##### 173#       发表于 2024-6-6 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136305&amp;ptid=2176876" target="_blank">sennheiser 发表于 2024-6-6 21:40</a>
+
+它要到了接近地面才重新点火退离地面的么？</blockquote>
+要跟2021年一样做一个翻转动作以后直立
+
+*****
+
+####  瓦格雷  
+##### 174#       发表于 2024-6-6 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136305&amp;ptid=2176876" target="_blank">sennheiser 发表于 2024-6-6 21:40</a>
+
+它要到了接近地面才重新点火退离地面的么？</blockquote>
+横着靠机翼减速  接近地面 垂直 点火  速度到0 落水  理论是上这样
+
+*****
+
+####  Alexmacau8  
+##### 175#       发表于 2024-6-6 21:42
+
+头一回见到这么漂亮的等离子态光晕
+
+*****
+
+####  bartholo4  
+##### 176#       发表于 2024-6-6 21:43
+
+不直立这次
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

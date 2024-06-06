@@ -1575,3 +1575,14 @@ q娃shf也打赢复活赛
 可能是因为蓝神和希望之力的coco留下的心理阴影吧</blockquote>
 对蓝神有阴影能理解，但coco和望郎才女貌有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1614#       发表于 2024-6-6 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65130943&amp;ptid=2162354" target="_blank">cenhr 发表于 2024-6-6 13:08</a>
+
+对蓝神有阴影能理解，但coco和望郎才女貌有问题吗</blockquote>
+Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是挺丢人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

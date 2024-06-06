@@ -1435,3 +1435,272 @@ External camera comes online in 11 mins
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DJI  
+##### 177#       发表于 2024-6-6 21:44
+
+太稳了这直播
+
+*****
+
+####  madbird023  
+##### 178#       发表于 2024-6-6 21:45
+
+这次的电离层视角比上次稳得多
+
+*****
+
+####  瓦格雷  
+##### 179#       发表于 2024-6-6 21:45
+
+绿色了 黄色了  
+
+*****
+
+####  madbird023  
+##### 180#       发表于 2024-6-6 21:46
+
+已经超过上次的距离了
+
+*****
+
+####  DJI  
+##### 181#       发表于 2024-6-6 21:47
+
+这是在翻滚吗
+
+*****
+
+####  依然荏苒  
+##### 182#       发表于 2024-6-6 21:47
+
+烧穿了
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  wly5556  
+##### 183#       发表于 2024-6-6 21:48
+
+掉渣了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xu5891166  
+##### 184#       发表于 2024-6-6 21:48
+
+小鸡翼有点烧红了
+
+1.png
+(655.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 21:48 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/214831ihco77ptcg5wrcld.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madbird023  
+##### 185#       发表于 2024-6-6 21:48
+
+尾翼开始瓦解了，放花开始！
+
+*****
+
+####  wly5556  
+##### 186#       发表于 2024-6-6 21:48
+
+哇烧融了
+
+*****
+
+####  tonyunreal  
+##### 187#       发表于 2024-6-6 21:48
+
+直播解体了 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xu5891166  
+##### 188#       发表于 2024-6-6 21:49
+
+机翼结构烧没了
+
+1.png
+(502.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/214907sph6okacovvyy0dv.png" referrerpolicy="no-referrer">
+
+*****
+
+####  engineer-ferret  
+##### 189#       发表于 2024-6-6 21:49
+
+紧急打码
+
+*****
+
+####  依然荏苒  
+##### 190#       发表于 2024-6-6 21:49
+
+已经过最高温度了，那不成能全尸着陆？摄像头裂开了
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  瓦格雷  
+##### 191#       发表于 2024-6-6 21:49
+
+^_^  第一次直播航天器烧爆吗
+
+*****
+
+####  sennheiser  
+##### 192#       发表于 2024-6-6 21:49
+
+摄像头挂了么。。。。。。。。。。。。。。。。。。。。
+
+*****
+
+####  牧瀬丨红莉栖  
+##### 193#       发表于 2024-6-6 21:49
+
+完了，这翅膀要G啊
+
+*****
+
+####  YoumuChan  
+##### 194#       发表于 2024-6-6 21:49
+
+镜头也碎了
+
+
+*****
+
+####  madbird023  
+##### 195#       发表于 2024-6-6 21:50
+
+机翼都碎了结构还没事，赞美不锈钢之神！
+
+*****
+
+####  blckfyre  
+##### 196#       发表于 2024-6-6 21:51
+
+节目效果太足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sennheiser  
+##### 197#       发表于 2024-6-6 21:51
+
+不愧是不锈钢。。。。。。。。。。。。。。
+
+*****
+
+####  bartholo4  
+##### 198#       发表于 2024-6-6 21:51
+
+绿皮科技啊
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  璇瑢子R  
+##### 199#       发表于 2024-6-6 21:51
+
+低于两倍音速了
+
+*****
+
+####  magicianxu  
+##### 200#       发表于 2024-6-6 21:51
+
+摄像头被糊一脸啊
+
+
+*****
+
+####  netcat  
+##### 201#       发表于 2024-6-6 21:52
+
+要叫八爷来唱打上花火了吗
+
+*****
+
+####  madbird023  
+##### 202#       发表于 2024-6-6 21:52
+
+反向进入MaxQ
+
+*****
+
+####  星の守  
+##### 203#       发表于 2024-6-6 21:52
+
+这摄像头还是挺牛逼的，能不能共享一下技术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  瓦格雷  
+##### 204#       发表于 2024-6-6 21:52
+
+再入全程直播 可怕
+
+*****
+
+####  madbird023  
+##### 205#       发表于 2024-6-6 21:52
+
+画面又回来了！
+
+*****
+
+####  璇瑢子R  
+##### 206#       发表于 2024-6-6 21:53
+
+亚音速。。。
+
+*****
+
+####  依然荏苒  
+##### 207#       发表于 2024-6-6 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136432&amp;ptid=2176876" target="_blank">星の守 发表于 2024-6-6 21:52</a>
+这摄像头还是挺牛逼的，能不能共享一下技术</blockquote>
+没撒谎的话就是gopro，牛的是星链
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  xu5891166  
+##### 208#       发表于 2024-6-6 21:53
+
+姿态好像不对啊
+
+*****
+
+####  Edward_Winry  
+##### 209#       发表于 2024-6-6 21:53
+
+感觉要成了！！
+
+*****
+
+####  madbird023  
+##### 210#       发表于 2024-6-6 21:54
+
+头冲下了23333
+

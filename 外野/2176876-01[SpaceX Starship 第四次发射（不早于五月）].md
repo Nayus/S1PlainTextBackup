@@ -3103,3 +3103,94 @@ Falcon 9几年前也是科幻，现在已经是日常无人在意了。到2030�
 
 让国外先探路果然还是比较经济实惠的做法
 
+
+*****
+
+####  星之卡比  
+##### 357#       发表于 2024-6-7 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137913&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 00:44</a>
+各路评论区已经开始大范围咩鳖了
+
+— from OnePlus PJE110, Android 14 of S1 Next Goose v3.0.0.81-alpha ...</blockquote>
+不能指望所有人都有战略眼光。这种言论就该封封该删删，绝大多数人不会有什么意见的
+
+
+*****
+
+####  薄皮破船  
+##### 358#       发表于 2024-6-7 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136703&amp;ptid=2176876" target="_blank">phorcys02 发表于 2024-6-6 22:15</a>
+
+给长光打点击鸡血
+
+磨个 6m的镜子，或者搞个靠谱的 7/18片 2米SiC拼接的  同步轨道凝视黑星</blockquote>
+然后给你来个大头长10，凑合用·····
+
+*****
+
+####  薄皮破船  
+##### 359#       发表于 2024-6-7 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136825&amp;ptid=2176876" target="_blank">novice 发表于 2024-6-6 22:29</a>
+
+国内没这么多载荷需求，国内有没有人投钱搞个中国版“星链”。</blockquote>
+中国版星链确实在搞，但是目前各家还是先想着寨个猎鹰9 出来
+
+*****
+
+####  madbird023  
+##### 360#       发表于 2024-6-7 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137428&amp;ptid=2176876" target="_blank">hu14againagain 发表于 2024-6-6 23:40</a>
+
+太空军已经开始资助星舰的空投弹药能力计划，2025年末展示
+
+也就是半个小时内向全球任意地点倾泻100吨弹药 ...</blockquote>
+美军现在也就是能梦想一下现在自己手里有100吨弹药了，一年都不一定造得出来
+
+
+*****
+
+####  madbird023  
+##### 361#       发表于 2024-6-7 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137913&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 00:44</a>
+
+各路评论区已经开始大范围咩鳖了
+
+— from OnePlus PJE110, Android 14 of S1 Next Goose v3.0.0.81-alpha ...</blockquote>
+这就跟直播时一直有人打什么炸了 GG之类的一样，就当是对冲了
+
+*****
+
+####  薄皮破船  
+##### 362#       发表于 2024-6-7 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136919&amp;ptid=2176876" target="_blank">liuguokobe 发表于 2024-6-6 22:42</a>
+
+不是有国网这个超级大饼么，估计还有超级大黑星这样的东西（真的会有么） ...</blockquote>
+盯着国网，G60这些的，是一堆商业可重复火箭（寨猎鹰9）
+
+*****
+
+####  依然荏苒  
+##### 363#       发表于 2024-6-7 01:13
+
+RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个航天员也是勇气可嘉
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  薄皮破船  
+##### 364#       发表于 2024-6-7 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137964&amp;ptid=2176876" target="_blank">yizi1 发表于 2024-6-7 00:53</a>
+
+星舰这个项目如果不能把成本降下来，登月以后估计也就是土星五号的结局吧。
+
+—— 来自 Xiaomi 2304FPN6D ...</blockquote>
+星舰大头不是登月，是马老板自己的大卫星
+

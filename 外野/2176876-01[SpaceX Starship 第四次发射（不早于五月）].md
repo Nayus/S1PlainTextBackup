@@ -3278,3 +3278,26 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 
 — from OnePlus PJE110, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  薄皮破船  
+##### 372#       发表于 2024-6-7 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138133&amp;ptid=2176876" target="_blank">madbird023 发表于 2024-6-7 01:31</a>
+
+靠以后迭代啊，现在的星舰只是F9B1到B4之间的阶段，离B5还早呢</blockquote>
+迭代也没用，星舰的基础设计就不是用来打深空的，就像猎鹰9现在迭代到这种程度了，深空能力还是很差
+
+*****
+
+####  薄皮破船  
+##### 373#       发表于 2024-6-7 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138139&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 01:33</a>
+
+长9立项的话，最快也要到明年才能打
+
+马斯克第五发今年年中应该没啥问题</blockquote>
+明年？想得太好了······明年能打长10就牛逼上天了·······
+

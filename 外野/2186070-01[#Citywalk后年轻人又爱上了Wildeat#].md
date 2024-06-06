@@ -1100,3 +1100,20 @@ citywalk一直理解为前面一个打旗的，后面一群戴帽的
 好像是说在城市里面路边坐着吃，类似武汉人吃早餐</blockquote>
 论wild武汉人可是边走边吃的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊藤言叶  
+##### 119#       发表于 2024-6-6 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">中国年轻人失业率25%应该是有的，因为这种街溜子自拍完发小红书、抖音之后就算新媒体从业者，不算失业人口了
+
+*****
+
+####  Letemece  
+##### 120#       发表于 2024-6-6 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65103158&amp;ptid=2186070" target="_blank">onion0201 发表于 2024-6-3 22:11</a>
+感觉不如wildshit</blockquote>
+拉野史是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

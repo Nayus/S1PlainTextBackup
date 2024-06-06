@@ -11327,3 +11327,18 @@ syl，下次也不是鸡<img src="https://static.saraba1st.com/image/smiley/face
 
 wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17302#       发表于 2024-6-6 22:46
+
+对我而言相较于之前这次的曲子明显接受度更高了，节奏感很强，能给人反复刷的欲望。但就这立绘头以下属实是惨不忍睹，做的不错的MV配上诡异的立绘高度怀疑wsd脑子里泡的是卤水豆腐
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17303#       发表于 2024-6-6 22:49
+
+不过这mv总给我一种母鸡卡全员午夜十分酒足饭饱后在大排档门口的桌子上打牌的错觉
+

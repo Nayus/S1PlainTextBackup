@@ -1651,3 +1651,14 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 小 ...</blockquote>
 哪里违和了，我本来就是姐姐<img src="https://static.saraba1st.com/image/smiley/animal2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  32767  
+##### 1621#       发表于 2024-6-6 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136647&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-6 22:09</a>
+哪里违和了，我本来就是姐姐</blockquote>
+主要是你猫叫的声音太夹了，人声又很成熟
+和大侦探皮卡丘差不多感觉了
+

@@ -421,3 +421,43 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 哦~仅仅是亚裔+男性就嫌多了是么</blockquote>
 我猜你想说的是要以中国底层青年汉族男性为主角才正确吧
 
+
+*****
+
+####  HazukiShion  
+##### 45#       发表于 2024-6-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136731&amp;ptid=2186465" target="_blank">陛下欲反邪 发表于 2024-6-6 22:17</a>
+你也知道那是20年
+fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边仅四年就能拿出一部以亚裔 ...</blockquote>
+全战三国？
+
+*****
+
+####  寂长无星夜  
+##### 46#       发表于 2024-6-6 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65135584&amp;ptid=2186465" target="_blank">陛下欲反邪 发表于 2024-6-6 20:29</a>
+别看他说什么，要看他做什么
+
+你可以自己想想，欧美制作的上一个以亚裔为主角的60刀游戏是哪款？上一个符 ...</blockquote>
+这种事不应该自己发声争取吗？摁塞黑妹不就是因为黑人声音够大。别人在为自己的族群发声争取平等，反对白人特权，然后像lz这样的亚洲人在那喊你们太魔怔啦，屁股天然就在白皮那边，那还有拉拢的需要吗
+
+*****
+
+####  rainsheep  
+##### 47#       发表于 2024-6-6 22:51
+
+亚裔男做主角，这几年日厂做的都不多，还指望白皮多做点想想就知道不现实。
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  哈罗  
+##### 48#       发表于 2024-6-6 22:53
+
+<blockquote>ˉ_ˉ↓↓↓ 发表于 2024-6-6 22:38
+亚裔+男性主角。师傅好像也不算太久叭...哦，卖得太便宜也不算的</blockquote>
+往前还有睡狗，镜之边缘，翡翠帝国，真人快打全套，但是还是不够限定词打
+

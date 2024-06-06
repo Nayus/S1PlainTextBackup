@@ -2663,3 +2663,64 @@ IMG_8865.jpeg
 
 除了在轨道上拉屎，现在这玩意还能有什么用处，大家都在准备摊牌，哪来的功夫跟马斯克一起浪费钱
 
+
+*****
+
+####  酆都月  
+##### 320#       发表于 2024-6-6 22:46
+
+所以我们的可复用都交给民营了么…国家不发展类星舰项目？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+
+
+*****
+
+####  longmarch5  
+##### 321#       发表于 2024-6-6 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136951&amp;ptid=2176876" target="_blank">酆都月 发表于 2024-6-6 22:46</a>
+
+所以我们的可复用都交给民营了么…国家不发展类星舰项目？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+国家队一堆类F9都重复建设了
+
+*****
+
+####  星街こうせい  
+##### 322#       发表于 2024-6-6 22:51
+
+本来就是个美宣项目，认真你就输了。
+
+
+*****
+
+####  longmarch5  
+##### 323#       发表于 2024-6-6 22:53
+
+目前已知的国家队类F9：
+
+航天一院
+
+长10A，5米煤油，15吨左右复用运力
+
+另一种5米直径火箭，估计是12台YF-209甲烷机，运力和10A差不多
+
+航天八院
+
+4米左右直径，7-9台甲烷机“龙云”
+
+航天科工
+
+快舟6号，9台鸣凤二号甲烷发动机
+
+*****
+
+####  Lucario  
+##### 324#       发表于 2024-6-6 22:55
+
+不支持国内短时间内上马starship类似项目，把现在猎鹰9类似物搞明白就行了，商业上搞出来猎鹰9就足够了。
+
+等解决了弯弯问题在西太平洋和美帝摊牌了以后再打太空竞赛也不迟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

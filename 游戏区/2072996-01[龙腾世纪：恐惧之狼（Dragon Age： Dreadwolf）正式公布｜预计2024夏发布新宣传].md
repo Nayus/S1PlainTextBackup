@@ -1408,3 +1408,11 @@ EA财年是几月到几月来着
 6月11日晚11点会公开15分钟实机演示
 <[img src="https://s2.loli.net/2024/06/06/7x8TMOLYa3nFWIE.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 153#         楼主| 发表于 2024-6-6 23:36
+
+BioWare新作《龙腾世纪：恐惧之狼》正式更名为《龙腾世纪：影障守护者》（Dragon Age: The Veilguard），6月11日公布15分钟实机演示。游戏发售日待公布，支持中文。 ​​​
+

@@ -2419,3 +2419,86 @@ MAN，what can i say
 星链星盾 激光武器</blockquote>
 想多了。
 
+
+*****
+
+####  Суслов  
+##### 295#       发表于 2024-6-6 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136686&amp;ptid=2176876" target="_blank">alixsander 发表于 2024-6-6 22:13</a>
+星链星盾 激光武器</blockquote>
+有也不是非长九不可
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  windtrack  
+##### 296#       发表于 2024-6-6 22:16
+
+我觉得主要短期目标还是月面永驻，用不到星舰这种吧，等什么时候开始搞火星采样返回才能用得上
+
+*****
+
+####  依然荏苒  
+##### 297#       发表于 2024-6-6 22:17
+
+印度洋都上热搜了，回收船去捞一级，二级好像没预案，残念，不然捞回来放门口多有意义。
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  tsukatsukieiko  
+##### 298#       发表于 2024-6-6 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136703&amp;ptid=2176876" target="_blank">phorcys02 发表于 2024-6-6 22:15</a>
+
+给长光打点击鸡血
+
+磨个 6m的镜子，或者搞个靠谱的 7/18片 2米SiC拼接的  同步轨道凝视黑星</blockquote>
+啥年头了，旗舰项目这种老航天搞法已经换版本了，现在核心是如何实现商业上平衡。
+
+*****
+
+####  windrarara  
+##### 299#       发表于 2024-6-6 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136727&amp;ptid=2176876" target="_blank">依然荏苒 发表于 2024-6-6 22:17</a>
+
+印度洋都上热搜了，回收船去捞一级，二级好像没预案，残念，不然捞回来放门口多有意义。
+
+—— 来自 HONOR  ...</blockquote>
+快点派条船去抢啊<img src="https://static.saraba1st.com/image/smiley/face2017/243.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bartholo4  
+##### 300#       发表于 2024-6-6 22:22
+
+此天外陨铁与老夫有缘是吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ひふみ  
+##### 301#       发表于 2024-6-6 22:23
+
+不用捞，应该跟个气球一样漂在海上
+
+*****
+
+####  DarthAka  
+##### 302#       发表于 2024-6-6 22:24
+
+主要是没需求，所以没经费
+
+*****
+
+####  璇瑢子R  
+##### 303#       发表于 2024-6-6 22:26
+
+这次没啥地面安全问题的话下一次发射可能都不需要找FAA再审批了
+

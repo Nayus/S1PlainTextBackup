@@ -1625,3 +1625,11 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 中后期有些分镜和剧情串联实在是有点跳跃 不过最后这两话收得很不错 回头重新看起更爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  tansapple  
+##### 159#       发表于 2024-6-6 15:28
+
+这算不算是第一个在结局死掉之后让所有人包括读者都觉得安心的男主<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -3364,3 +3364,50 @@ RCS失效拿脸接大气层返回么，合众国长子脸丢尽了。这两个�
 
 你得先让别人赚几年钱。如果出了猎鹰9后我们第二年就复刻出便宜大碗，马斯克不得气炸了。所以就让开拓者赚点钱，之后我们再接管。这是合作的智慧，反正我们也不急。
 
+
+*****
+
+####  dxxtiger  
+##### 380#       发表于 2024-6-7 02:51
+
+100吨倒是不多
+ <blockquote>More than 40 High Mobility Artillery Rocket Systems and ammunition;
+
+Ground-Launched Small Diameter Bomb launchers and guided rockets;
+
+198 155mm Howitzers and more than 3,000,000 155mm artillery rounds;
+
+More than 7,000 precision-guided 155mm artillery rounds;
+
+More than 50,000 155mm rounds of Remote Anti-Armor Mine (RAAM) Systems;
+
+72 105mm Howitzers and more than 800,000 105mm artillery rounds;
+
+10,000 203mm artillery rounds;
+
+More than 400,000 152mm artillery rounds;
+
+Approximately 40,000 130mm artillery rounds;
+
+40,000 122mm artillery rounds;
+
+60,000 122mm GRAD rockets;</blockquote>这里就应该不止100吨了，按一发1kg都有4000多吨了，最小的105mm也不止1kg了（下面是往上查到的105mm M1弹头配M67装药的数据，不一定对） <blockquote>Packing Type
+
+Wooden Box
+
+Quantity of each wooden box: 2 rounds
+
+Dimension (mm): 965 x 310 x 226
+
+Volume (m3): 0.067
+
+Gross weight (kg): 55
+
+Pallet
+
+Boxes: 24
+
+Dimensions, (mm): 1 200 x 100 x 950
+
+Weight, (kg): &lt; 1 000</blockquote>
+

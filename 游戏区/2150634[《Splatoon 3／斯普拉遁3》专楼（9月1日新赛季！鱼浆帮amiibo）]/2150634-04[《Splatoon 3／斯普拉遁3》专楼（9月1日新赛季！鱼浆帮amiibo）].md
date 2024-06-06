@@ -2237,3 +2237,14 @@ jackpot的世锦赛冠军名牌发了
 
 互掏大锤就像同时拔枪or拔刀一样，还挺搞笑
 
+
+*****
+
+####  laosai13  
+##### 4654#       发表于 2024-6-6 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65132905&amp;ptid=2150634" target="_blank">出轨的三头龙 发表于 2024-6-6 16:10</a>
+
+这游戏最近啥环境，还是单行道狭窄地图大招乱扔吗</blockquote>
+特别单行道的图改了不少，新加的图都不算特别单行道。感觉现在地图水平还算不错吧至少玩着还行，但是还是那种鼓励中场打架的主基调。
+

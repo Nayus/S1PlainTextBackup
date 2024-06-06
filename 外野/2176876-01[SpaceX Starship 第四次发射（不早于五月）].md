@@ -2744,3 +2744,93 @@ IMG_8865.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  laotoutou  
+##### 327#       发表于 2024-6-6 23:07
+
+国内主要是基建修路什么的把光纤都设好了，哪怕穷山僻壤。
+海外项目也是修路光纤一起搞。
+星链类的故事没法说啊。
+
+总不至于挖开了路，放着管道不铺光纤，走星链吧。
+
+*****
+
+####  多多天下  
+##### 328#       发表于 2024-6-6 23:08
+
+CZ9一堆客观问题，不说别的，现在海南发射的落区都头疼的很
+
+*****
+
+####  四号舰美浓  
+##### 329#       发表于 2024-6-6 23:11
+
+<img src="https://img.saraba1st.com/forum/202406/06/231125rt8add0titas81o1.png" referrerpolicy="no-referrer">
+
+<strong>119405625_p0.png</strong> (164.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/231125vd0kgthp3z54sd1k.png" referrerpolicy="no-referrer">
+
+<strong>119405625_p2.png</strong> (166.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:11 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/231126va3jc166na6dpfo1.png" referrerpolicy="no-referrer">
+
+<strong>119405625_p1.png</strong> (273.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:11 上传
+
+娘化。
+
+
+*****
+
+####  commcody  
+##### 330#         楼主| 发表于 2024-6-6 23:15
+
+SpaceX官推发布无人机视角发射照
+
+<img src="https://img.saraba1st.com/forum/202406/06/231511knpx9969l9552dd9.jpg" referrerpolicy="no-referrer">
+
+<strong>GPZhXlkawAAc0sJ.jpg</strong> (237.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/231511r7m9mdl2ralr2g69.jpg" referrerpolicy="no-referrer">
+
+<strong>GPZhYmiacAA6NAJ.jpg</strong> (108.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/231511bf2d3dgfqfzxs9td.jpg" referrerpolicy="no-referrer">
+
+<strong>GPZhaNjbEAAh6wx.jpg</strong> (463.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202406/06/231511r8c8ei8xaa8cqw8o.jpg" referrerpolicy="no-referrer">
+
+<strong>GPZhbZJbAAIBNvk.jpg</strong> (266.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:15 上传
+

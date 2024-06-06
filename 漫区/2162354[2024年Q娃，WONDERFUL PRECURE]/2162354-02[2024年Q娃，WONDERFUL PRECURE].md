@@ -1636,3 +1636,18 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 这段时间在推上刷到的汪q同人图感觉上猫组占了九成
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1620#       发表于 2024-6-6 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65132767&amp;ptid=2162354" target="_blank">青蛙佬 发表于 2024-6-6 15:57</a>
+
+话说你们对小雪猫形态还用御姐的声线不感觉很违和吗
+
+之前可以变人形的** 兽形态都用很夹的声线和口癖吧
+
+小 ...</blockquote>
+哪里违和了，我本来就是姐姐<img src="https://static.saraba1st.com/image/smiley/animal2017/019.png" referrerpolicy="no-referrer">
+

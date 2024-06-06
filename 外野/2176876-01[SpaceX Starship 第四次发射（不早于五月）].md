@@ -2281,3 +2281,141 @@ MAN，what can i say
 
 这材料太强了吧，国内可以跟前人过河
 
+
+*****
+
+####  哈里-谢顿  
+##### 281#       发表于 2024-6-6 22:07
+
+<blockquote>asaforverity 发表于 2024-6-6 22:05
+怎么个复杂法</blockquote>
+院所这边的真的再提，至于不批是综合判断
+
+*****
+
+####  windrarara  
+##### 282#       发表于 2024-6-6 22:08
+
+长9 ppt还改吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack  
+##### 283#       发表于 2024-6-6 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在压力来到了合众国长子这边
+
+*****
+
+####  哈里-谢顿  
+##### 284#       发表于 2024-6-6 22:09
+
+<blockquote>novice 发表于 2024-6-6 22:06
+这材料太强了吧，国内可以跟前人过河</blockquote>
+不是
+
+总体设计和设计耦合
+
+靠冗余等综合
+
+结构设计强
+
+最后一点，不锈钢真的可用
+
+马老板的整体设计真的不是差的
+
+*****
+
+####  Ursa  
+##### 285#       发表于 2024-6-6 22:09
+
+这下致敬传奇耐烧王哥伦比亚号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  长征5号  
+##### 286#       发表于 2024-6-6 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136598&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-6 22:05</a>
+群里的大佬说上面不批
+
+蛮复杂的</blockquote>
+时机不成熟吧
+
+—— 来自 realme RMX3560, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Linjiangzhu  
+##### 287#       发表于 2024-6-6 22:11
+
+看到后面以为又要看烟花了，没想到这么耐烧<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madbird023  
+##### 288#       发表于 2024-6-6 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136653&amp;ptid=2176876" target="_blank">Ursa 发表于 2024-6-6 22:09</a>
+
+这下致敬传奇耐烧王哥伦比亚号了</blockquote>
+那玩意隔热瓦里边就是纸糊的，一点都烧不得啊
+
+*****
+
+####  tsukatsukieiko  
+##### 289#       发表于 2024-6-6 22:12
+
+长九固然有一点场外因素，但主要是找不到应用。
+
+*****
+
+####  alixsander  
+##### 290#       发表于 2024-6-6 22:13
+
+<blockquote>tsukatsukieiko 发表于 2024-6-6 22:12
+长九固然有一点场外因素，但主要是找不到应用。</blockquote>
+星链星盾 激光武器
+
+*****
+
+####  madbird023  
+##### 291#       发表于 2024-6-6 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136626&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-6 22:07</a>
+
+院所这边的真的再提，至于不批是综合判断</blockquote>
+那只好期待龙院士后继有人了，就算现在不成也能沿着这条路走下去
+
+*****
+
+####  phorcys02  
+##### 292#       发表于 2024-6-6 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136680&amp;ptid=2176876" target="_blank">tsukatsukieiko 发表于 2024-6-6 22:12</a>
+
+长九固然有一点场外因素，但主要是找不到应用。</blockquote>
+给长光打点击鸡血
+
+磨个 6m的镜子，或者搞个靠谱的 7/18片 2米SiC拼接的  同步轨道凝视黑星
+
+*****
+
+####  andychen  
+##### 293#       发表于 2024-6-6 22:15
+
+这届不重视是老生常谈了
+
+我国的技术长项现在在高超那边，在投入总体受限的环境下想扬长避短吧。而且还能蹭军方的车，这边现在是受重视的
+
+*****
+
+####  tsukatsukieiko  
+##### 294#       发表于 2024-6-6 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136686&amp;ptid=2176876" target="_blank">alixsander 发表于 2024-6-6 22:13</a>
+
+星链星盾 激光武器</blockquote>
+想多了。
+

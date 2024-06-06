@@ -667,3 +667,14 @@ SpaceX官推正式宣布计划6月6日第四飞，发射窗口当地时间早上
 
 —— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tonyunreal  
+##### 88#       发表于 2024-6-6 18:35
+
+红迪老哥上次总结的成功和失败清单：
+[https://www.reddit.com/r/SpaceXL ... arious_problems_of/](https://www.reddit.com/r/SpaceXLounge/comments/1bft42s/the_status_of_various_problems_of/)
+
+只要发射阶段保持现有水平，后面那堆叉只要搞成一个也是进步了
+

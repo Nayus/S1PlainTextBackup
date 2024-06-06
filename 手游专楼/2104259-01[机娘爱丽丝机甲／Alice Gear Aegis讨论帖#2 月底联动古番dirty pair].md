@@ -89,3 +89,14 @@
 
 没注意大成功送贝壳只有10个人，浪费好几个
 
+
+*****
+
+####  Picavian  
+##### 1078#       发表于 2024-6-6 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125172&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-6-5 21:48</a>
+
+没注意大成功送贝壳只有10个人，浪费好几个，顺便做出来的车好像送谁都没加好感... ...</blockquote>
+这种活动的动作礼品都只是给你看动作的而已啦～
+

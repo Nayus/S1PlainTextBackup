@@ -10935,3 +10935,49 @@ hina八成也是写成阳菜，因为太大众改俩 ...</blockquote>
 
 感冒发烧了，2nd可能没法直播看了，漏油注意身体健康
 
+
+*****
+
+####  御幸一也  
+##### 17260#       发表于 2024-6-6 19:28
+
+ 本帖最后由 御幸一也 于 2024-6-6 19:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">難繃
+
+好消息：5首歌都有新圖不用第一首的女鬼圖
+
+壞消息：還是鬼圖
+
+[https://x.com/takinose_015/status/1798672802347974898](https://x.com/takinose_015/status/1798672802347974898)
+
+<img src="https://img.saraba1st.com/forum/202406/06/192808ob0b4zhichnhembs.jpg" referrerpolicy="no-referrer">
+
+<strong>GPYrYBdbsAAHa2W.jpg</strong> (398.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 19:28 上传
+
+*****
+
+####  ellisnadie  
+##### 17261#       发表于 2024-6-6 19:32
+
+该说不说鸡好几首曲绘都挺一言难尽的，都mv了约张好点的这么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 17262#       发表于 2024-6-6 19:33
+
+mujica这套服装和人设难道很难画吗
+感觉鬼图已经达到了80%的程度<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17263#       发表于 2024-6-6 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">摳死武士道算了
+

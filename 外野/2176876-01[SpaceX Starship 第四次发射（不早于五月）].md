@@ -2834,3 +2834,46 @@ SpaceX官推发布无人机视角发射照
 
 2024-6-6 23:15 上传
 
+
+*****
+
+####  commcody  
+##### 331#         楼主| 发表于 2024-6-6 23:19
+
+老马发推说下次就要用筷子抓助推器
+
+<img src="https://img.saraba1st.com/forum/202406/06/231928saf9pgps6pfaofpv.jpg" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240606231909.jpg</strong> (29.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-6 23:19 上传
+
+
+*****
+
+####  兰开夏  
+##### 332#       发表于 2024-6-6 23:23
+
+强<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈里-谢顿  
+##### 333#       发表于 2024-6-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137160&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-6 23:11</a>
+
+娘化。</blockquote>
+求的原作者
+
+*****
+
+####  newshadow  
+##### 334#       发表于 2024-6-6 23:26
+
+现在已经觉得很科幻了，能用筷子夹住真的不敢想象。
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -152,3 +152,16 @@ PV里主角手中的这本小说
 
 去转了一圈感觉这游戏欧美热度挺低的
 
+
+*****
+
+####  ChengChung  
+##### 419#       发表于 2024-6-6 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65131241&amp;ptid=2140224" target="_blank">h122h 发表于 2024-6-6 13:34</a>
+
+限定版？在淘宝还是他自己网店？</blockquote>
+限定版，他们自己的网店
+
+淘宝好像就没卖过限定来着
+

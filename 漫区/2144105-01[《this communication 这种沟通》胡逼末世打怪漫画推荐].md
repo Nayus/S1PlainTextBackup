@@ -1720,3 +1720,15 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 特别浪漫的作品，结局狂野而合理。上次看完后感到浪漫的作品还是《炎拳》。不知道作者后面的规划，如果有个好编辑也许能出个不输电锯人的作品。
 
+
+*****
+
+####  redsouris  
+##### 169#       发表于 2024-6-7 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142379&amp;ptid=2144105" target="_blank">从来不吃青菜 发表于 2024-6-7 13:43</a>
+挺好的完结，德鲁哈这种杀了太多人的不可能在和平来临还活着吧…感觉作者想的也挺清楚的，德鲁哈这种事情做 ...</blockquote>
+如果真是和平年代他也不用发疯了，毕竟他的愿望只有三餐吃饱到死而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

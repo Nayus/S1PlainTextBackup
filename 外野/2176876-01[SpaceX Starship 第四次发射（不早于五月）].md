@@ -3558,3 +3558,96 @@ nga还有国新对冲的，两边基本是一体两面
 
 —— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  KiraYoshikage  
+##### 394#       发表于 2024-6-7 08:37
+
+<blockquote>longmarch5 发表于 2024-6-6 23:58
+重型火箭战略投送这个在去年长9的PPT大饼里也有
+
+现在看来上头可能对这个不感冒 ...</blockquote>
+上头对太空军事化兴趣有限，很多带弹的项目停在确认技术可行，试验机都没搞的阶段。
+
+*****
+
+####  longmarch5  
+##### 395#       发表于 2024-6-7 08:40
+
+起码要明白一个道理，这东西美国人能做出来，那中国人也能做出来
+
+他真可行，真是未来方向，那把长9造出来不就行了
+
+喊灭鳖的，喊这东西垃圾的，都是没脑子的主儿，学他们干吗
+
+歼7E和YF22是同年首飞的，差了2代，伯克级开始服役的时候这边带防空导弹的军舰一只手数的过来，是不是鳖给灭了一万遍了？
+
+
+*****
+
+####  都谷捻柏  
+##### 396#       发表于 2024-6-7 08:43
+
+退一万步说，就算能实现，100吨炸药送上天都不给泽圣，这不得气死。牢美快救一救乌克兰呀，东北的可持续性发展还得靠乌克兰再给大毛上上压力呢。
+
+*****
+
+####  longmarch5  
+##### 397#       发表于 2024-6-7 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138820&amp;ptid=2176876" target="_blank">KiraYoshikage 发表于 2024-6-7 08:37</a>
+
+上头对太空军事化兴趣有限，很多带弹的项目停在确认技术可行，试验机都没搞的阶段。 ...</blockquote>
+对国内来说首先一个问题是得有大量海外驻军还打算在外面到处开片
+
+*****
+
+####  死宅真恶心  
+##### 398#       发表于 2024-6-7 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138754&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:29</a>
+那外面呢？看个linvo的隼鸟号科普视频都能冒出个瑶瑶落后的弹幕来，你也不知道他是真心实意还是串子搞事， ...</blockquote>
+可以用手上的键盘写十万三千字论文然后发视频到b站上，塔塔开！
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  longmarch5  
+##### 399#       发表于 2024-6-7 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138810&amp;ptid=2176876" target="_blank">lactone 发表于 2024-6-7 08:36</a>
+
+话说嫦娥六具体几号回来啊
+
+—— 来自 OnePlus PJD110, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+5月3号发射，任务过程53天
+
+*****
+
+####  yizi1  
+##### 400#       发表于 2024-6-7 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138844&amp;ptid=2176876" target="_blank">longmarch5 发表于 2024-6-7 08:40</a>
+起码要明白一个道理，这东西美国人能做出来，那中国人也能做出来
+
+他真可行，真是未来方向，那把长9造出来 ...</blockquote>
+所以先把猎鹰九号山寨出来是最重要的。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bankofsoul  
+##### 401#       发表于 2024-6-7 08:45
+
+<blockquote>longmarch5 发表于 2024-6-7 08:34
+这属于你觉得猪屎难吃你就要去主动拥抱牛粪
+
+</blockquote>
+老哥来了啊，就等你了。
+
+我记得你的一个论点是，登月阴谋论会损害公民的科学认知，会影响舆论导致国内航天计划受阻——那“空x阴谋论”有没有这些危害呢？
+

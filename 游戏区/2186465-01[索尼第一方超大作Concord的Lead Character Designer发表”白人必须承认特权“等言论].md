@@ -624,3 +624,32 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说得也没毛病啊
 难道你不承认，white privilege就能原地消失吗
 
+
+*****
+
+####  zris  
+##### 64#       发表于 2024-6-7 11:27
+
+<img src="https://img.saraba1st.com/forum/202406/07/112613lpdpu4tktaaaa4ss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 11:26 上传
+
+聊两页了还没人发图？我这发一张图，大火自行甄别
+
+其次这游戏挺娘心的，还专门标注角色的性别，比如这张图再右上角标注了she/her
+
+
+*****
+
+####  陛下欲反邪  
+##### 65#       发表于 2024-6-7 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136991&amp;ptid=2186465" target="_blank">寂长无星夜 发表于 2024-6-6 22:50</a>
+这种事不应该自己发声争取吗？摁塞黑妹不就是因为黑人声音够大。别人在为自己的族群发声争取平等，反对白 ...</blockquote>
+所以我这不就发声了么？
+我说白皮光说不练假把式，口上多元化结果压根不带你亚裔玩，不止游戏里不拿你亚裔做主角，影视圈你也想不到啥亚裔帅哥可以当正面男主的例子，结果呢？你看跳出来多少人在这应激反应
+

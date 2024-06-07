@@ -111,3 +111,24 @@
 
 罗佳大半年没新的三灯人格了，来点新的吧（
 
+
+*****
+
+####  Jamaisvu  
+##### 747#       发表于 2024-6-7 20:28
+
+<blockquote>久井路路 发表于 2024-6-7 19:56
+罗佳：我是不是不该站在这儿
+
+罗佳大半年没新的三灯人格了，来点新的吧（ ...</blockquote>
+下一个间章是W社的，正好可以回收W小唐初始卡面的W罗卫星：
+
+<img src="https://img.saraba1st.com/forum/202406/07/202838peq77or5l5doznqq.png" referrerpolicy="no-referrer">
+
+<strong>1500px-堂吉诃德W公司人格.png</strong> (253.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-7 20:28 上传
+

@@ -596,3 +596,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 卧槽里的邮箱爆了，这什么活动，送什么东西送的那么多
 
+
+*****
+
+####  GuDaZi  
+##### 46439#       发表于 2024-6-7 20:34
+
+点了一键领取，480个银芙芙堆一块了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

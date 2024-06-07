@@ -4283,3 +4283,17 @@ CZ10就是个深空版FH，未来用来登月的
 
 你这外野是不是从来不看的啊
 
+
+*****
+
+####  chenzl  
+##### 459#       发表于 2024-6-7 11:43
+
+ 本帖最后由 chenzl 于 2024-6-7 11:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140501&amp;ptid=2176876" target="_blank">xdescat01 发表于 2024-6-7 11:08</a>
+
+你这也是纯胡扯了，属于知道一个名词就乱用
+
+星舰如果军事化的话，发射场在美国，你得用洲际弹道导弹，而 ...</blockquote>
+好说 我等着看你所谓的军事化的星舰，等着啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 那个啥 你其实可以想象力更丰富一点的哟
+

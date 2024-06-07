@@ -4919,3 +4919,19 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 第三次的时候我B站首页被推送了无数个这种空X的视频 其中不乏一堆阴阳怪气 我用了半小时才屏蔽完 当时对 ...</blockquote>
 就是这样。道理都懂，架不住看到这些玩意就犯恶心。本来科普类视频配合着弹幕还挺有意思的……
 
+
+*****
+
+####  wszweill  
+##### 510#       发表于 2024-6-8 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148882&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-7 10:58</a>
+实际上是有单个子系统比反卫星导弹便宜的太空武器。智能卵石。
+
+基本就是动能拦截器的弹头KKV，加点可分 ...</blockquote>
+关键看你这个轨道周期怎么算吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就算是坦克都得定期维护呢。一个长期滞空的轨道武器，要还能长期不坏还比反卫星导弹便宜。。毕竟防御武器要长期部署的。
+我觉得大概率和ddg的电磁炮一个下场。都不如萨德<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+还是回归我说的，兔子对等扔一个实验室在美帝头上，比在古巴对等塞萨德简单多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真要搞不好说谁便宜<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 22041211AC, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

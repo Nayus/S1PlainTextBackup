@@ -11595,3 +11595,11 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 2024-6-7 22:03 上传
 
+
+*****
+
+####  御幸一也  
+##### 17324#       发表于 2024-6-7 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武士道能不能把治愈的圖拿去出別的，這個小卡片畫質差得要死，掃圖出來根本不能看
+

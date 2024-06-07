@@ -10012,3 +10012,24 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 —— 来自 OPPO PEEM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Anatoly  
+##### 5383#       发表于 2024-6-7 20:04
+
+速报，三牛老师出了第九集拷打，该上了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 5384#       发表于 2024-6-7 20:11
+
+【【拷打】偶像大师闪耀色彩第9集【就当成搞笑动画看吧】-哔哩哔哩】 https://b23.tv/MVpWZfQ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

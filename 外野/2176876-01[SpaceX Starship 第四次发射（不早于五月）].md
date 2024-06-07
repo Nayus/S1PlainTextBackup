@@ -3651,3 +3651,97 @@ nga还有国新对冲的，两边基本是一体两面
 
 我记得你的一个论点是，登月阴谋论会损害公民的科学认知，会影响舆论导致国内航天计划受阻——那“空x阴谋论”有没有这些危害呢？
 
+
+*****
+
+####  longmarch5  
+##### 402#       发表于 2024-6-7 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138881&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:45</a>
+
+老哥来了啊，就等你了。
+
+我记得你的一个论点是，登月阴谋论会损害公民的科学认知，会影响舆论导致国内航 ...</blockquote>
+什么叫空叉阴谋论？
+
+难道F9和星舰是假的吗
+
+*****
+
+####  白石  
+##### 403#       发表于 2024-6-7 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138902&amp;ptid=2176876" target="_blank">longmarch5 发表于 2024-6-7 08:47</a>
+
+什么叫空叉阴谋论？
+
+难道F9和星舰是假的吗</blockquote>
+应该叫空叉咩鳖论才对
+
+*****
+
+####  LM314V23/24  
+##### 404#       发表于 2024-6-7 08:51
+
+当年8架海鹞都能咩，不早就脱敏了，真无所谓吧，反正趋势是咩鳖神器越来越少了，之后的每一年都是差距最小的一年，别着急
+
+—— 来自 samsung SM-G7810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  laotoutou  
+##### 405#       发表于 2024-6-7 08:51
+
+如果有个登月x步走这样的规划。长九才有戏。
+
+比如2035年建设一期低轨太阳能发电站，运送构建xxx吨。。。。
+
+那么长九才会有条不紊的开始研制。
+
+现在明显画的饼不够。
+
+
+*****
+
+####  longmarch5  
+##### 406#       发表于 2024-6-7 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138928&amp;ptid=2176876" target="_blank">laotoutou 发表于 2024-6-7 08:51</a>
+
+如果有个登月x步走这样的规划。长九才有戏。
+
+比如2035年建设一期低轨太阳能发电站，运送构建xxx吨。。。。 ...</blockquote>
+龙院士PPT里就有GEO太阳能电站的饼
+
+*****
+
+####  lgyzero  
+##### 407#       发表于 2024-6-7 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138933&amp;ptid=2176876" target="_blank">longmarch5 发表于 2024-6-7 08:52</a>
+
+龙院士PPT里就有GEO太阳能电站的饼</blockquote>
+快进到00时间线是吧
+
+*****
+
+####  laotoutou  
+##### 408#       发表于 2024-6-7 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138933&amp;ptid=2176876" target="_blank">longmarch5 发表于 2024-6-7 08:52</a>
+龙院士PPT里就有GEO太阳能电站的饼</blockquote>
+造的小没意思，造的大变成国民命脉又太脆弱。
+星链卫星冲撞事件后，北溪二号后，基本不可能这样押宝了。
+
+*****
+
+####  longmarch5  
+##### 409#       发表于 2024-6-7 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138948&amp;ptid=2176876" target="_blank">laotoutou 发表于 2024-6-7 08:54</a>
+
+造的小没意思，造的大变成国民命脉又太脆弱。
+
+星链卫星冲撞事件后，北溪二号后，基本不可能这样押宝了。 ...</blockquote>
+如果没记错的话以前好像有文章讲是需要一百多发长9
+

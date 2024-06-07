@@ -26,3 +26,11 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  azbhg1  
+##### 1335#       发表于 2024-6-7 14:06
+
+败犬完就秒接盘有点爆笑
+

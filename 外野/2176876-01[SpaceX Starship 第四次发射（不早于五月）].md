@@ -4423,3 +4423,28 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 多来点，以后可以在近地轨道上造奇观了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  LM314V23/24  
+##### 472#       发表于 2024-6-7 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140501&amp;ptid=2176876" target="_blank">xdescat01 发表于 2024-6-7 11:08</a>
+你这也是纯胡扯了，属于知道一个名词就乱用
+
+星舰如果军事化的话，发射场在美国，你得用洲际弹道导弹，而 ...</blockquote>
+怎么就打不了了，没有变轨能力弹道能预测，中段反导成功率也不算低，各种高超走不规则弹道就是因为这个，不是不规则弹道突防能力低一截的。
+
+—— 来自 samsung SM-G7810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  LM314V23/24  
+##### 473#       发表于 2024-6-7 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142377&amp;ptid=2176876" target="_blank">我是大鲨鱼1453 发表于 2024-6-7 13:43</a>
+达利安造船厂同时舾装5条盾驱2条万吨巡，一张照片里拍到的产量就超过彼岸对手全国全军两年的计划数字。我 ...</blockquote>
+航天和航空这一块还是差一些的，不过话又说回来，要是美帝有055+鹰击xx而鳖的对标项目2032年才开造的话估计鳖已经赛博亡国了。
+
+—— 来自 samsung SM-G7810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

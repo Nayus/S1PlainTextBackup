@@ -4709,3 +4709,43 @@ dev说过是6月第二周才更新
 
 卡塔昌装扮可还行
 
+
+*****
+
+####  kalavinka  
+##### 4869#         楼主| 发表于 2024-6-7 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/07/115742tqg20kp0zxy2ulip.jpg" referrerpolicy="no-referrer">
+
+<strong>df2a8e33c895d143f80a8c1d35f082025aaf0719.jpg</strong> (165.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 11:57 上传
+
+*****
+
+####  kalavinka  
+##### 4870#         楼主| 发表于 2024-6-7 11:59
+
+ 本帖最后由 kalavinka 于 2024-6-7 12:01 编辑 
+
+不保真，贴吧有人和dev私聊说武器改装开发时确实存在，但是估计也见不到了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">">“关于武器自定义机制开放，内部认为改动风险太大，主要涉及很多服务器端的改动，暂时搁置。即使未来有短期也见不到。”
+
+<img src="https://img.saraba1st.com/forum/202406/07/115942kdo0f0a0bj0vu3l0.jpg" referrerpolicy="no-referrer">
+
+<strong>ff54a5d3572c11df39c3d51d252762d0f703c208-2.jpg</strong> (334.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 11:59 上传
+
+*****
+
+####  九十九忍  
+##### 4871#       发表于 2024-6-7 13:20
+
+这些新武器需要设计和平衡？
+

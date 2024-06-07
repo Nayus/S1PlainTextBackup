@@ -11418,3 +11418,51 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 2024-6-7 09:52 上传
 
+
+*****
+
+####  MZZK  
+##### 17309#       发表于 2024-6-7 10:55
+
+距离Mujica开播还有半年，wsd打算几月开始宣发呢？
+
+*****
+
+####  [皆神孝介]  
+##### 17310#       发表于 2024-6-7 11:01
+
+ 本帖最后由 [皆神孝介] 于 2024-6-7 11:50 编辑 
+
+在剧场动画的片尾播预告吗？<img src="https://static.saraba1st.com/image/smiley/face/15.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 17311#       发表于 2024-6-7 11:11
+
+剧场版最终章上映过后吧可能
+
+*****
+
+####  御幸一也  
+##### 17312#       发表于 2024-6-7 12:53
+
+我是米澤肉體廚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/07/125310lk1eeudi6dkpddet.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240607-045158_1798940943061786832_photo.jpg</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 12:53 上传
+
+[https://x.com/AkaneY_banu/status/1798940943061786832](https://x.com/AkaneY_banu/status/1798940943061786832)
+
+*****
+
+####  yujz  
+##### 17313#       发表于 2024-6-7 13:23
+
+推测2nd阿B直播票卖了5000+张，好像还行
+

@@ -10081,3 +10081,19 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  夜漫群星  
+##### 5390#       发表于 2024-6-7 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好想听saki的第二首solo……希望能早点出
+
+
+*****
+
+####  Vacuolar  
+##### 5391#       发表于 2024-6-7 21:33
+
+我觉得三牛老师不是看乐了，是看疯了
+

@@ -1008,3 +1008,24 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 全部新歌，这些全算起来今年已经出了多少曲子了
 
+
+*****
+
+####  holoan  
+##### 8973#         楼主| 发表于 2024-6-7 21:27
+
+<img src="https://img.saraba1st.com/forum/202406/07/212740b90wiz73j1a7at46.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 21:27 上传
+
+*****
+
+####  holoan  
+##### 8974#         楼主| 发表于 2024-6-7 21:28
+
+那这么说起来0期生先出张EP再说live的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还早呢这
+

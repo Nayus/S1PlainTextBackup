@@ -1603,3 +1603,11 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 要不要干脆改动作游戏得了
 
+
+*****
+
+####  Edvinno  
+##### 174#       发表于 2024-6-7 21:33
+
+标题设计的真丑，当年血龙喷血字的红白配就简约时髦到不行，怎么新作变这么土了，每次打开游戏都得看一遍这个标题有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -4381,3 +4381,37 @@ CZ10就是个深空版FH，未来用来登月的</blockquote>
 马斯克本人也许不愿意自己公司的产品被美国用来打仗，但白宫和五角大楼铁定会摁着他的头强迫他和军方合作。 ...</blockquote>
 starlink这东西目前为止最大的价值就是军用，未来也是
 
+
+*****
+
+####  科本学士  
+##### 468#       发表于 2024-6-7 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142244&amp;ptid=2176876" target="_blank">yizi1 发表于 2024-6-7 13:31</a>
+
+天兵一轮才能融12个亿，空x最大的优势在于融资能力，这个确实没法比，没钱就只能跟随，想持续创新还是没 ...</blockquote>
+天兵三号毕竟还没发射过啊，只射了个天兵2，这能融到40亿人民币不少了。太空叉前六轮融资总共也就融到2亿多美元，猎鹰9首次发射成功后，过了五年才开始下一轮股权融资，估计那段时间马斯克还是得自掏腰包垫一些。
+
+
+*****
+
+####  瓦格雷  
+##### 469#       发表于 2024-6-7 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142461&amp;ptid=2176876" target="_blank">xu5891166 发表于 2024-6-7 13:51</a>
+
+starlink这东西目前为止最大的价值就是军用，未来也是</blockquote>
+这个最大价值怎么衡量?  用户数 数据量数? 
+
+*****
+
+####  ninini212  
+##### 470#       发表于 2024-6-7 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142450&amp;ptid=2176876" target="_blank">我是大鲨鱼1453 发表于 2024-6-7 13:49</a>
+
+你还别说，你这句话还就是空X给全球航天业带来的最大理论创新</blockquote>
+你一说理论创新我就懂了，经典造牌
+
+我科技领先，当我科技不领先的时候我概念领先，当我概念都不领先的时候我融资领先
+

@@ -4297,3 +4297,15 @@ CZ10就是个深空版FH，未来用来登月的
 星舰如果军事化的话，发射场在美国，你得用洲际弹道导弹，而 ...</blockquote>
 好说 我等着看你所谓的军事化的星舰，等着啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 那个啥 你其实可以想象力更丰富一点的哟
 
+
+*****
+
+####  mingminlun  
+##### 460#       发表于 2024-6-7 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136993&amp;ptid=2176876" target="_blank">星街こうせい 发表于 2024-6-6 22:51</a>
+本来就是个美宣项目，认真你就输了。</blockquote>
+是的，进了太空竞赛就入套了
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -4776,3 +4776,31 @@ dev说过是6月第二周才更新
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142340&amp;ptid=2170852" target="_blank"> ravend233 发表于 2024-6-7 13:40</a>  本帖最后由 ravend233 于 2024-6-7 13:41 编辑   看降低投放速度后新武器的质量吧，保持现在一个债券三把主手大概率就是每个月出三个换皮垃圾了    至于武器自定义，我觉得就是箭头觉得开放了这玩意那换皮武器就不好出了  </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多整点好看的皮肤不就完了。我是不明白市面上那么多垃圾游戏靠还算说的过去的通行证续命的例子，箭头不去学，偏偏去搞什么劳什子变体武器，结果质量上不去，工作量一样不小，还惹得玩家还不高兴，都给它输完了来自: iPhone客户端
 
+
+*****
+
+####  赤井稻妻  
+##### 4875#       发表于 2024-6-7 14:35
+
+ar唯一翻身的机会就是光能者全家都没有坚固部位，并且整体血量较低，还爱跟人中远距离对枪，不然出什么变种ar都没用
+
+*****
+
+####  FLZB  
+##### 4876#       发表于 2024-6-7 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142896&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-6-7 14:25</a>
+
+多整点好看的皮肤不就完了。我是不明白市面上那么多垃圾游戏靠还算说的过去的通行证续命的例子，箭头不去 ...</blockquote>
+没经验是这样的，现在游戏业有个让人很难绷的问题就是很多开发者不会借鉴前人的经验，非要把别人以前趟过的坑都趟一遍才会做游戏，总是在重复同样的错误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Launce  
+##### 4877#       发表于 2024-6-7 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65143913&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-7 15:49</a>
+
+没经验是这样的，现在游戏业有个让人很难绷的问题就是很多开发者不会借鉴前人的经验，非要把别人以前趟过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">借鉴前人经验，指不约而同的喂玩家赤石
+

@@ -10002,3 +10002,13 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 红色羽那，你的冠军在哪里？
 
+
+*****
+
+####  萨文科夫  
+##### 5382#       发表于 2024-6-7 15:34
+
+十发出，雾子是爱我的
+
+—— 来自 OPPO PEEM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

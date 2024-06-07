@@ -4309,3 +4309,15 @@ CZ10就是个深空版FH，未来用来登月的
 
 —— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星之卡比  
+##### 461#       发表于 2024-6-7 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65141837&amp;ptid=2176876" target="_blank">mingminlun 发表于 2024-6-7 12:49</a>
+是的，进了太空竞赛就入套了
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+没错，我们有自己的计划和安排，那些整天不速胜就到处嚷嚷的不知道安的什么心
+

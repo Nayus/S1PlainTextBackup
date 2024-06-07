@@ -937,3 +937,28 @@ miko的anti群体越来越有意思了，甚至跑到wiki页面下往里面塞�
 
 怪，今晚除了现在已经公开的单行本和联动咖啡厅之外还有什么其他告知还是重大？总不能再发一首新歌吧
 
+
+*****
+
+####  holoan  
+##### 8967#         楼主| 发表于 2024-6-7 19:35
+
+<img src="https://img.saraba1st.com/forum/202406/07/193510e2vzydzwdvvsazzc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 19:35 上传
+
+？？？？？？？？？？？？？？？？
+
+几个意思，这是能问观众的吗
+
+*****
+
+####  holoan  
+##### 8968#         楼主| 发表于 2024-6-7 20:02
+
+kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4043,3 +4043,78 @@ nga还有国新对冲的，两边基本是一体两面
 不过这次不同的是没有第三次的时候那堆“金手指”“大国工匠”“火药雕刻师”的话术包了
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">说明实绩可以打烂某些人的嘴
 
+
+*****
+
+####  chenzl  
+##### 437#       发表于 2024-6-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136868&amp;ptid=2176876" target="_blank">alixsander 发表于 2024-6-6 22:34</a>
+
+有100吨级的可复用运载工具有太多之前不可能的想象空间了好吧
+
+完全可以重启星球大战，国家导弹防御，天对 ...</blockquote>
+能不能挡住一发高超？有个屁战术价值
+
+*****
+
+####  qty  
+##### 438#       发表于 2024-6-7 09:59
+
+<blockquote>yizi1 发表于 2024-6-7 09:47
+大概率就是发泄不满吧，1450还真没那个闲工夫，主要是国内舆论环境太压抑了。
+
+—— 来自 Xiaomi 2304FPN ...</blockquote>
+？你真傻还是装傻？这就是1450的本职工作，怎么成闲工夫了？况且就国内舆论平台这逆民殖人随便爬没人管的环境也能叫压抑的话，那老美那边动不动就给你物理消灭岂不是当代文字狱？
+
+*****
+
+####  星之卡比  
+##### 439#       发表于 2024-6-7 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139513&amp;ptid=2176876" target="_blank">iqbsh38 发表于 2024-6-7 09:51</a>
+也对 嫦娥六登录的时候也没一堆人蹦出来说自己紧张地手脚发抖
+
+不过这次不同的是没有第三次的时候那堆“金 ...</blockquote>
+本来就是航天主攻方向有所不同。有的人就是整天赢赢赢，速胜论惯了。对中国要求也太严苛了。我也不知道猎鹰9是达到了什么我们去不到的地方还是怎么了，不就是可回收降低了成本吗。就非的指望着tg第二年就出便宜大碗的复刻把空叉干破产，把人都得罪了就好了
+
+
+*****
+
+####  netcat  
+##### 440#       发表于 2024-6-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139268&amp;ptid=2176876" target="_blank">iqbsh38 发表于 2024-6-7 09:29</a>
+
+空X到底买了多少发帖员在B站 一早上看见一堆重复话术了</blockquote>
+搞不好是对岸的自干1450
+
+
+*****
+
+####  wpcc  
+##### 441#       发表于 2024-6-7 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139252&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-7 09:26</a>
+
+不轻松，主要还是速度和燃料等问题</blockquote>
+一节节打上去就是 把半个天宫当中继飞出去
+
+*****
+
+####  iqbsh38  
+##### 442#       发表于 2024-6-7 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139602&amp;ptid=2176876" target="_blank">星之卡比 发表于 2024-6-7 09:59</a>
+
+本来就是航天主攻方向有所不同。有的人就是整天赢赢赢，速胜论惯了。对中国要求也太严苛了。我也不知道猎 ...</blockquote>
+第三次的时候我B站首页被推送了无数个这种空X的视频 其中不乏一堆阴阳怪气 我用了半小时才屏蔽完 当时对空X的好感度瞬间低到头
+
+*****
+
+####  stevenzero  
+##### 443#       发表于 2024-6-7 10:04
+
+星舰发射就是为了打广告，马斯克的真正目的是为了卖这个打火机<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3754d5bd765fe040d5f518f5b00cf75d/CMP_20240607100438782.jpg" referrerpolicy="no-referrer">
+

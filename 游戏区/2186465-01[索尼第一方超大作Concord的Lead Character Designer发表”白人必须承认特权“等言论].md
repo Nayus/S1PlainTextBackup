@@ -668,3 +668,15 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 影视圈最近也很多，刚上的就有星战侍者，时空怪客，去年获奖无数的怒呛人生
 
+
+*****
+
+####  gstsg  
+##### 67#       发表于 2024-6-7 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136271&amp;ptid=2186465" target="_blank">SergeGlenn 发表于 2024-6-6 21:37</a>
+对马不就是亚裔主角？20年中发售，他们开发的这个Concord封面角色，CG里主角之一也是个亚裔女性啊</blockquote>
+Sony发布会那个“给大家介绍我们新的菁英团队”，结果拿出来的类银护故事板+类ow游戏模式的这么一坨。
+
+—— 来自 OnePlus LE2120, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

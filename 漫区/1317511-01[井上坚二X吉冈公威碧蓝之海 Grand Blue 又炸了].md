@@ -46,3 +46,11 @@
 
 现在那几个人均大奸大恶、仇视社会，全身上下没半点好的，只能说人见人厌
 
+
+*****
+
+####  xiongxingyu  
+##### 1337#       发表于 2024-6-7 15:26
+
+耕平这波操作我给10分，这货虽然平时沙雕了点，不过关键时刻是真不含糊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

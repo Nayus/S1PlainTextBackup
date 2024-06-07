@@ -3859,3 +3859,46 @@ nga还有国新对冲的，两边基本是一体两面
 重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？ ...</blockquote>
 能，但是运力下降比较大
 
+
+*****
+
+####  Суслов  
+##### 421#       发表于 2024-6-7 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139107&amp;ptid=2176876" target="_blank">狂河冰不烈 发表于 2024-6-7 09:12</a>
+其实我觉得现在最大的威胁是今后商业发射的订单会不会被空叉抢光。。。。。。 ...</blockquote>
+海外订单早被限制了，抢不抢光差别不大，这方面急的应该是欧洲日本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  哈里-谢顿  
+##### 422#       发表于 2024-6-7 09:18
+
+<blockquote>科本学士 发表于 2024-6-7 09:14
+重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？ ...</blockquote>
+需求太少了
+
+
+*****
+
+####  wpcc  
+##### 423#       发表于 2024-6-7 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138928&amp;ptid=2176876" target="_blank">laotoutou 发表于 2024-6-7 08:51</a>
+
+如果有个登月x步走这样的规划。长九才有戏。
+
+比如2035年建设一期低轨太阳能发电站，运送构建xxx吨。。。。 ...</blockquote>
+其实现在从天宫直接起飞到月球再回来很轻松吧 
+
+*****
+
+####  longmarch5  
+##### 424#       发表于 2024-6-7 09:25
+
+重猎打GTO，全抛的话26.7吨，芯级也回收的话就掉到8吨
+
+2019年发射Arabsat-6A（6465kg）时一级成功回收但是后来在船上运输时损失了
+

@@ -579,3 +579,21 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 老话说的好，不要看别人说什么，要看别人做什么
 
+
+*****
+
+####  举头望明月  
+##### 59#       发表于 2024-6-7 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65136731&amp;ptid=2186465" target="_blank">陛下欲反邪 发表于 2024-6-6 22:17</a>
+ 你也知道那是20年 fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边仅四年就能拿出一部以亚裔 ...</blockquote>
+波斯王子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  闭挂锁人  
+##### 60#       发表于 2024-6-7 09:24
+
+现在出了日本二次元或者棒子游戏外哪里还有好看的西式大洋马，出了生化危机我也想不出来了。生化危机的大洋马甚至也没多好看
+

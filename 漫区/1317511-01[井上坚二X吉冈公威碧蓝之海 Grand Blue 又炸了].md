@@ -70,3 +70,11 @@
 
 感觉还能拉扯个10话左右，差不多了
 
+
+*****
+
+####  saglork  
+##### 1340#       发表于 2024-6-7 20:57
+
+前边的喝酒耍宝有多有趣，后边的感情拉扯就有多无聊，本质还是井上坚二没活了，整不出新段子了只能拉扯凑篇幅，以后重看漫画只看到毒岛a上去那里就够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

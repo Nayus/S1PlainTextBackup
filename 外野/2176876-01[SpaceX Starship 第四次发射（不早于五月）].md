@@ -3902,3 +3902,72 @@ nga还有国新对冲的，两边基本是一体两面
 
 2019年发射Arabsat-6A（6465kg）时一级成功回收但是后来在船上运输时损失了
 
+
+*****
+
+####  tsukatsukieiko  
+##### 425#       发表于 2024-6-7 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139192&amp;ptid=2176876" target="_blank">wpcc 发表于 2024-6-7 09:21</a>
+
+其实现在从天宫直接起飞到月球再回来很轻松吧</blockquote>
+很麻烦。
+
+最简单的，轨道倾角怎么办？
+
+*****
+
+####  哈里-谢顿  
+##### 426#       发表于 2024-6-7 09:26
+
+<blockquote>wpcc 发表于 2024-6-7 09:21
+其实现在从天宫直接起飞到月球再回来很轻松吧</blockquote>
+不轻松，主要还是速度和燃料等问题
+
+*****
+
+####  iqbsh38  
+##### 427#       发表于 2024-6-7 09:29
+
+空X到底买了多少发帖员在B站 一早上看见一堆重复话术了
+
+
+*****
+
+####  xdescat01  
+##### 428#       发表于 2024-6-7 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139123&amp;ptid=2176876" target="_blank">科本学士 发表于 2024-6-7 09:14</a>
+重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？ ...</blockquote>
+猎鹰9太成功了，作为一枚重型火箭他能满足现阶段绝大部分的发射任务需求，而他的发射成本在愿意拼车的情况又能满足绝大部分的发射任务预算。在这个背景下和猎鹰9直接竞争的火箭都面临缺乏差异竞争力的问题。
+
+重猎的芯一级也是能回收的，但是问题不在回收上，不过可能把重猎当做星舰的预研比较好
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  commcody  
+##### 429#         楼主| 发表于 2024-6-7 09:33
+
+ 本帖最后由 commcody 于 2024-6-7 09:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139123&amp;ptid=2176876" target="_blank">科本学士 发表于 2024-6-7 09:14</a>
+
+重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？ ...</blockquote>
+重猎的高运力只是理论上的。要达到那么高的运力需要对二级适配器做额外增强处理。重猎的出现其实最主要是为了满足NRO打黑星的需求。满足了他们全部的运力指标要求才能同ULA竞争。
+
+绝大部分商单运力都用不到重猎。如果是打自己的星链，目前整流罩包络已经到上限。
+
+*****
+
+####  IIIIIlllllIIIII  
+##### 430#       发表于 2024-6-7 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137428&amp;ptid=2176876" target="_blank">hu14againagain 发表于 2024-6-6 23:40</a>
+太空军已经开始资助星舰的空投弹药能力计划，2025年末展示
+
+也就是半个小时内向全球任意地点倾泻100吨弹药 ...</blockquote>
+星舟前身就是冷战怪物啊 轨道预置核常兼备 
+
+— from OnePlus PJD110, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

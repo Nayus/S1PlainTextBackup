@@ -588,3 +588,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 亲爱的各位御主：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MINI4，实测，没寄，还好，否则要动脑筋换MINI6了
 
+
+*****
+
+####  kyonkoism  
+##### 46438#       发表于 2024-6-7 20:23
+
+卧槽里的邮箱爆了，这什么活动，送什么东西送的那么多
+

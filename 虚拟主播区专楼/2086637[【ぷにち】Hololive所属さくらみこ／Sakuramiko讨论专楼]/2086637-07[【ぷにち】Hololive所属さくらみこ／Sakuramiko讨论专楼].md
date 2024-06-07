@@ -985,3 +985,26 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 2024-6-7 20:52 上传
 
+
+*****
+
+####  holoan  
+##### 8971#         楼主| 发表于 2024-6-7 20:57
+
+<img src="https://img.saraba1st.com/forum/202406/07/205638byik6lw8elc5nnri.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 20:56 上传
+
+社歌是bonus track草
+
+*****
+
+####  holoan  
+##### 8972#         楼主| 发表于 2024-6-7 21:06
+
+全部新歌，这些全算起来今年已经出了多少曲子了
+

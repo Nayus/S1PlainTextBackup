@@ -157,3 +157,14 @@ Netflix：
 
 nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
+
+*****
+
+####  oi99o  
+##### 985#       发表于 2024-6-8 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65150013&amp;ptid=2178694" target="_blank">leonlink 发表于 2024-6-8 01:15</a>
+
+流媒体自带中文字幕吗？</blockquote>
+只有日字
+

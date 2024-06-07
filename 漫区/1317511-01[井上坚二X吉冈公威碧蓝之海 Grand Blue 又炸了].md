@@ -54,3 +54,11 @@
 
 耕平这波操作我给10分，这货虽然平时沙雕了点，不过关键时刻是真不含糊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  满月诗篇  
+##### 1338#       发表于 2024-6-7 15:56
+
+也该完结了，搞笑漫画画超过10年的没几个收尾能收好的
+

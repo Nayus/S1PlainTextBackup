@@ -4699,3 +4699,36 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 （1.北京航天长征科技信息研究所；2.中国航天科技集团有限公司）
 
+
+*****
+
+####  PPB3008  
+##### 495#       发表于 2024-6-7 21:43
+
+ 本帖最后由 PPB3008 于 2024-6-7 21:47 编辑 
+
+风怒
+
+*****
+
+####  PPB3008  
+##### 496#       发表于 2024-6-7 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65146800&amp;ptid=2176876" target="_blank">canti 发表于 2024-6-7 20:50</a>
+
+https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
+
+“超重-星舰”第四次综合飞行测试情况简析
+
+龙雪丹1   ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/07/214451twapwaafpw6wzcbc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240607214359.png</strong> (144.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 21:44 上传
+
+这点是第一个提的，飞行中自监测诊断和自我修改飞行律，自我故障重构能力。院内吵了这么久，但是后面长10是一定要上的了，下一代火箭不能飞起来还啥事都靠测控大厅解决或者干瞪眼。
+

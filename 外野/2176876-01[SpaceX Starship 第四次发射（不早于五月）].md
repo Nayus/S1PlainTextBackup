@@ -3773,3 +3773,89 @@ nga还有国新对冲的，两边基本是一体两面
 
 所以星链和星舰在军事上到底有多少价值，对天朝到底有多大威胁？
 
+
+*****
+
+####  longmarch5  
+##### 413#       发表于 2024-6-7 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138974&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:59</a>
+
+对，这说法更准确。这东西在危害性上有没有到登月阴谋论的程度？</blockquote>
+各种灭鳖论在过去多了去了
+
+有鹞式灭鳖的，有300战斧灭鳖的
+
+二三十年前美军武器装备无论地面海里还是天上能灭鳖的海了去了，现在倒是有不少领域中国反超了
+
+*****
+
+####  laotoutou  
+##### 414#       发表于 2024-6-7 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139010&amp;ptid=2176876" target="_blank">狂河冰不烈 发表于 2024-6-7 09:03</a>
+马斯克本人也许不愿意自己公司的产品被美国用来打仗，但白宫和五角大楼铁定会摁着他的头强迫他和军方合作。 ...</blockquote>
+最大的威胁是星链卫星平台，可以增加各种传感器，监视地面或者识别弹头之类的。
+但是这么一搞，马斯克星链出海会遇到很大阻力。
+
+
+*****
+
+####  瓦格雷  
+##### 415#       发表于 2024-6-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139000&amp;ptid=2176876" target="_blank">laotoutou 发表于 2024-6-7 09:01</a>
+
+而且真有大量低轨国家重点需求。
+
+说不定搞成青藏高原电磁加速弹射无一级。毕竟空气密度小了。周围什么水力 ...</blockquote>
+这个别想了  工程上是不可行的
+
+*****
+
+####  扎克远山  
+##### 416#       发表于 2024-6-7 09:11
+
+<blockquote>bankofsoul 发表于 2024-6-7 07:51
+对于我等跟风看个热闹的非航天领域爱好者而言，各种各样的空x一键灭鳖马圣万物起源论调着实太倒胃口，各色 ...</blockquote>
+不是，这种咩鳖的调调你这么多年还没看透啊？反正我打二十多年前刚开始上网就是看这套话术一路看过来的，以前我也会有点生气，现在我只想笑，那些家伙根本是些没脑子的傻逼，置气完全没必要，现实会狠狠抽它们嘴巴子的
+
+*****
+
+####  狂河冰不烈  
+##### 417#       发表于 2024-6-7 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139057&amp;ptid=2176876" target="_blank">laotoutou 发表于 2024-6-7 09:07</a>
+
+最大的威胁是星链卫星平台，可以增加各种传感器，监视地面或者识别弹头之类的。
+
+但是这么一搞，马斯克星 ...</blockquote>
+其实我觉得现在最大的威胁是今后商业发射的订单会不会被空叉抢光。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白石  
+##### 418#       发表于 2024-6-7 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138974&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:59</a>
+
+对，这说法更准确。这东西在危害性上有没有到登月阴谋论的程度？</blockquote>
+搞反了，是为了灭鳖才寻找证据，制造理论；所以这个不行也会有下一个，信的人永远会信，不信的人一直不信，这无关事实
+
+*****
+
+####  科本学士  
+##### 419#       发表于 2024-6-7 09:14
+
+重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？
+
+*****
+
+####  longmarch5  
+##### 420#       发表于 2024-6-7 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139123&amp;ptid=2176876" target="_blank">科本学士 发表于 2024-6-7 09:14</a>
+
+重型猎鹰的发射次数为什么远远少于猎鹰9号，它的芯一级能不能回收，还是只能回收两个助推器？ ...</blockquote>
+能，但是运力下降比较大
+

@@ -11708,3 +11708,51 @@ bml那个是真的假的？
 我已经入坑WS了，能玩的谷子不也挺好吗。</blockquote>
 那可以直接大手办
 
+
+*****
+
+####  cindy355  
+##### 17335#       发表于 2024-6-8 00:21
+
+我已经入坑WS了，能玩的谷子不也挺好吗。
+
+*****
+
+####  御景  
+##### 17336#       发表于 2024-6-8 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65149182&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-6-8 00:11</a>
+
+按理来说今年应该是狗，让鸡先上会比较奇怪</blockquote>
+如果是真的，那就是2nd后，开始宣传了
+
+*****
+
+####  [皆神孝介]  
+##### 17337#       发表于 2024-6-8 01:15
+
+<strong>MyGO!!!!!「迷星叫（Mayoiuta）」Chronicle Movie (Anime × Live)</strong>
+
+2024-06-08 00:58:55
+[https://www.bilibili.com/video/BV11n4y1974P/](https://www.bilibili.com/video/BV11n4y1974P/)
+
+*****
+
+####  紫吹兰  
+##### 17338#         楼主| 发表于 2024-6-8 02:06
+
+ 本帖最后由 紫吹兰 于 2024-6-8 02:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65149383&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-6-8 00:21</a>
+
+我已经入坑WS了，能玩的谷子不也挺好吗。</blockquote>
+那可以考虑大手办
+
+*****
+
+####  笋干爆炸碱  
+##### 17339#       发表于 2024-6-8 06:00
+
+<blockquote>NODY 发表于 2024-6-7 22:03
+</blockquote>
+这效果感觉可以啊，0级塞垫子4000攻，睦睦打人够痛的
+

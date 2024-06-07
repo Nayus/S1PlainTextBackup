@@ -4764,3 +4764,20 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 这点是第一个提的，飞行中自监测诊断和自我修改飞行律，自我故障重构能力。院内吵了这么久，但是后面 ...</blockquote>
 这个在2022年总师论文里面就有
 
+
+*****
+
+####  wszweill  
+##### 499#       发表于 2024-6-7 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65145829&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-7 06:01</a>
+
+不管是星舰直接军事化还是有这么个“大卡车”可以在太空中建造部署军事设施，都是个新赛道新课题。
+
+毛**说 ...</blockquote>
+。。日本--韩国-乃至撕破脸的4V都比近地轨道近多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+太空非武器化首先是一个国际政治问题，其次才是军事问题。毕竟反卫星武器本身比任何天基卫星基地都便宜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+除了和平时期站在对方头上恶心对方其实没啥意义。就算咱们目前火箭贵一点，挪个几百亿射一个小基地就在美国头上拉屎一样没问题。。毕竟真开战就是被导弹射落的命运<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

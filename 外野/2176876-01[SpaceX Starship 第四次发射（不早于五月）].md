@@ -4472,3 +4472,14 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  薄皮破船  
+##### 476#       发表于 2024-6-7 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138418&amp;ptid=2176876" target="_blank">commcody 发表于 2024-6-7 06:40</a>
+
+老马赌的就是靠低轨能力快速复用实现加油。只要实现，飞哪里都不是问题。 ...</blockquote>
+不如核推
+

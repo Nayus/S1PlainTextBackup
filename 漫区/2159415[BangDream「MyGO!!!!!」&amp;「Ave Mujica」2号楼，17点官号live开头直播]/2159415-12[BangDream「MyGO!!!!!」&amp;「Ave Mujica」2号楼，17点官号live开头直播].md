@@ -11603,3 +11603,13 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">武士道能不能把治愈的圖拿去出別的，這個小卡片畫質差得要死，掃圖出來根本不能看
 
+
+*****
+
+####  基神的强袭自由  
+##### 17325#       发表于 2024-6-7 22:18
+
+还是第一弹买的值啊（小声
+
+虽然买的时候太早了老登没到场<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

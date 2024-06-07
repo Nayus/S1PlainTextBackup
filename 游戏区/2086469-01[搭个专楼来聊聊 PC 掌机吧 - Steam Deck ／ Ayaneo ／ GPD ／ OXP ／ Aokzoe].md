@@ -276,3 +276,16 @@ rog ally X相对于rog ally的提升主要就在电池吗
 
 如果不带出门玩是不是买个rog ally二手也差不多
 
+
+*****
+
+####  bypass  
+##### 1239#         楼主| 发表于 2024-6-7 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65147459&amp;ptid=2086469" target="_blank">requiem116 发表于 2024-6-7 21:57</a>
+
+rog ally X相对于rog ally的提升主要就在电池吗
+
+如果不带出门玩是不是买个rog ally二手也差不多 ...</blockquote>
+电池和内存（会分给显存，16G 在部分游戏中不够用）。
+

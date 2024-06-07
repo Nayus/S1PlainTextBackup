@@ -37,3 +37,19 @@ https://x.com/Pikuseru_Hakka/status/1797962382679085378
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 1831#       发表于 2024-6-7 13:46
+
+<img src="https://img.saraba1st.com/forum/202406/07/134533h6ygzuf3r2us7fas.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1948.jpeg</strong> (319.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 13:45 上传
+
+来了来了
+

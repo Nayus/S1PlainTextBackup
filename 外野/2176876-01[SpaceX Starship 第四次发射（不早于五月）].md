@@ -4343,3 +4343,21 @@ CZ10就是个深空版FH，未来用来登月的</blockquote>
 
 笑死，一帮人在B站嫦娥6的视频里刷比不上星舰成功，感谢马院士开源的弹幕。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ninini212  
+##### 464#       发表于 2024-6-7 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">融资能力喷了，航天事业原来是有钱就能干的事情啊
+
+*****
+
+####  我是大鲨鱼1453  
+##### 465#       发表于 2024-6-7 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138926&amp;ptid=2176876" target="_blank">LM314V23/24 发表于 2024-6-7 08:51</a>
+
+当年8架海鹞都能咩，不早就脱敏了，真无所谓吧，反正趋势是咩鳖神器越来越少了，之后的每一年都是差距最小 ...</blockquote>
+达利安造船厂同时舾装5条盾驱2条万吨巡，一张照片里拍到的产量就超过彼岸对手全国全军两年的计划数字。我只怕这差距会越来越大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

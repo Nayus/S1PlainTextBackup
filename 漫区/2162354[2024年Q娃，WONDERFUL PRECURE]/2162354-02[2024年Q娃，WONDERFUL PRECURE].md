@@ -1697,3 +1697,13 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 不要乱说，我从小到大都是这个声音<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊魔魂  
+##### 1626#       发表于 2024-6-7 13:36
+
+被猫猫引来追完最新进度了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+妈妈兼姐姐兼宝宝兼宠物兼waifu，这就是小学
+

@@ -1702,3 +1702,13 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  从来不吃青菜  
+##### 167#       发表于 2024-6-7 13:43
+
+挺好的完结，德鲁哈这种杀了太多人的不可能在和平来临还活着吧…感觉作者想的也挺清楚的，德鲁哈这种事情做绝的合理性魔人本身就不适合和平的世界
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

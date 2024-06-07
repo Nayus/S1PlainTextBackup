@@ -1740,3 +1740,13 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 有没有下载版？
 
+
+*****
+
+####  kyonkoism  
+##### 171#       发表于 2024-6-7 18:39
+
+看完了，连最后结局握手都那么生草，完美的结局，真是好作品啊<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

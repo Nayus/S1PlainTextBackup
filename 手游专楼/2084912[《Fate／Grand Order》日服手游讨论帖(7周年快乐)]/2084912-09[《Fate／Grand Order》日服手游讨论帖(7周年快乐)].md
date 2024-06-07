@@ -16,3 +16,11 @@
 
 无氪玩家绿方块主要还是靠刷无限池，箱子里绿方块、狗粮卖了变绿方块、友情点拿去抽友情池入手绿方块。
 
+
+*****
+
+####  都谷捻柏  
+##### 12803#       发表于 2024-6-7 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">60抽一个C闪一个当期四星，就当填坑了。
+

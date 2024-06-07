@@ -629,3 +629,16 @@ jez说不会是串流机<img src="https://static.saraba1st.com/image/smiley/face
 
 两个小时时长还是可以的，还好10号端午
 
+
+*****
+
+####  overmindoyj  
+##### 70#       发表于 2024-6-7 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64501253&amp;ptid=2178699" target="_blank">噬谎者 发表于 2024-4-6 17:26</a>
+
+可惜xgp上的动暴游戏都要绑定战网，闲鱼上买的xgp玩不了
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+随便绑一个麽，是外网的战网，不需要国服的
+

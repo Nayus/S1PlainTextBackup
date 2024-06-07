@@ -4321,3 +4321,25 @@ CZ10就是个深空版FH，未来用来登月的
 —— 来自 Xiaomi 2206123SC, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 没错，我们有自己的计划和安排，那些整天不速胜就到处嚷嚷的不知道安的什么心
 
+
+*****
+
+####  yizi1  
+##### 462#       发表于 2024-6-7 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140599&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-7 11:15</a>
+大哥，昨天我都发康神的鳖F9进度了
+
+CZ10就是个深空版FH，未来用来登月的</blockquote>
+天兵一轮才能融12个亿，空x最大的优势在于融资能力，这个确实没法比，没钱就只能跟随，想持续创新还是没戏。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cyberalogo  
+##### 463#       发表于 2024-6-7 13:34
+
+笑死，一帮人在B站嫦娥6的视频里刷比不上星舰成功，感谢马院士开源的弹幕。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

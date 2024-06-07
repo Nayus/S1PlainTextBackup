@@ -51,3 +51,19 @@
 Netflix：
 [https://www.netflix.com/jp/title/81747912](https://www.netflix.com/jp/title/81747912)
 
+
+*****
+
+####  oi99o  
+##### 973#       发表于 2024-6-7 23:26
+
+蓝原在播：[https://web4.lovelivegundam.top/#/Gundam](https://web4.lovelivegundam.top/#/Gundam)
+
+
+*****
+
+####  wyhman  
+##### 974#       发表于 2024-6-7 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">再看斗剑这段，我鸡是真的憋屈
+

@@ -4798,3 +4798,26 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 比如美帝吹马院士融资也就是XX亿美刀。。想想加州一个厕所理论造价都上百万美刀，稀宗万亿打基建连个响都没有。。都是雷声大雨点小的赛道<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  薄皮破船  
+##### 501#       发表于 2024-6-7 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65145608&amp;ptid=2176876" target="_blank">alixsander 发表于 2024-6-7 18:30</a>
+
+核推污染太大，如果是盐水核推比冲也不咋滴
+
+正确的做法是近地轨道组装核电推，深空船靠谱的做法肯定是这 ...</blockquote>
+我的意思就是星舰上核推啊，上面那个才叫星舰，下面是超重助推
+
+*****
+
+####  薄皮破船  
+##### 502#       发表于 2024-6-7 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65144669&amp;ptid=2176876" target="_blank">commcody 发表于 2024-6-7 16:50</a>
+
+核推就算成熟了也不可能从地面自己蹦上天，依然需要星舰这种超重型化学火箭背上天。 ...</blockquote>
+但是星舰这结构就不适合打深空
+

@@ -351,3 +351,18 @@ XD
 
 律可主办了一个虹、杏、vspo、neo、rc、774、个人势到齐的团队赛。
 
+
+*****
+
+####  zealotaalbania  
+##### 269#       发表于 2024-6-7 23:25
+
+<img src="https://img.chkaja.com/9a4f2572ab716ea0.jpg" referrerpolicy="no-referrer">
+<img src="https://img.chkaja.com/5df2e94099558f87.jpg" referrerpolicy="no-referrer">
+
+自己办比赛终于可以大发奖金了
+
+21年办虹杯的时候虹运营打死不肯出奖金
+<img src="https://img.chkaja.com/0f2c31e603ae6fdd.png" referrerpolicy="no-referrer">
+<img src="https://img.chkaja.com/6f25a4602b2418eb.png" referrerpolicy="no-referrer">
+

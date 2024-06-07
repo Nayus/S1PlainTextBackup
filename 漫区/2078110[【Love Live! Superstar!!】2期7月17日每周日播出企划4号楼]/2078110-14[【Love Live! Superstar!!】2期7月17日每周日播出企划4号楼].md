@@ -1381,3 +1381,13 @@ WC,可以。BML去吗？</blockquote>
 
 鱼票滞销，帮帮我们！🤧
 
+
+*****
+
+####  ruffian  
+##### 20304#       发表于 2024-6-7 23:30
+
+k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写给我整不会了……这倒八眉是怎么想的呢？要说为了契合k组的苦情曲，那vn不是笑的挺灿烂的吗，可可为啥要画成笑不像笑哭不像哭的表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

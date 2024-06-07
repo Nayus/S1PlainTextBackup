@@ -561,3 +561,13 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Midnight.Coup  
+##### 57#       发表于 2024-6-7 09:06
+
+这游戏就是命运2的熔炉竞技场倒模复刻，做的人也是 Bungie 出来的，隔壁 Bungie ViDoc 里 LGBT 一堆
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

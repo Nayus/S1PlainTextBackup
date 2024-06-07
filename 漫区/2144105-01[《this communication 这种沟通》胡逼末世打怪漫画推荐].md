@@ -1670,3 +1670,16 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 没想到看到正篇这个结局观感还行，之前看到简单概括的剧透说什么女猎人穿越，只感觉“这是在画什么了？！”
 虽然看到正片也还是有种“这是在画什么了？！”但体验好了一些，蛮意外啊，竟然真的拯救了世界
 
+
+*****
+
+####  狂马王  
+##### 164#       发表于 2024-6-7 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137476&amp;ptid=2144105" target="_blank">KDConan 发表于 2024-6-6 23:48</a>
+
+49话有了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+好，今晚一口气补完，双子篇开始就没看了，还是等完结一口气看舒服
+

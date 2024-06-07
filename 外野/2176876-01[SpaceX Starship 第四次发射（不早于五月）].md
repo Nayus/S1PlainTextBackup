@@ -4448,3 +4448,27 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 —— 来自 samsung SM-G7810, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  bartholo4  
+##### 474#       发表于 2024-6-7 14:39
+
+ 本帖最后由 bartholo4 于 2024-6-7 14:40 编辑 
+
+其实现在国内需求不足的大环境下，就应该多撒比去这些可能产生需求的领域
+把航天领域补贴出来一条新赛道
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yizi1  
+##### 475#       发表于 2024-6-7 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142680&amp;ptid=2176876" target="_blank">科本学士 发表于 2024-6-7 14:08</a>
+天兵三号毕竟还没发射过啊，只射了个天兵2，这能融到40亿人民币不少了。太空叉前六轮融资总共也就融到2亿 ...</blockquote>
+按wiki上的说法2012年之前总共融了10个亿美刀，而且是2012年的十个亿，然后你得考虑空X做的是开创性工作，天兵在有前人开路的情况下只融到这么一点算挺少了。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

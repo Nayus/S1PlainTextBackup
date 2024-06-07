@@ -3516,3 +3516,45 @@ Weight, (kg): &lt; 1 000</blockquote>
 
 论八路军使用三八大盖学习铳剑术，还找了个日本老师是否属于汉奸行为←_←
 
+
+*****
+
+####  bankofsoul  
+##### 390#       发表于 2024-6-7 08:29
+
+那外面呢？看个linvo的隼鸟号科普视频都能冒出个瑶瑶落后的弹幕来，你也不知道他是真心实意还是串子搞事，关键词屏蔽都屏蔽不过来，最后只好关弹幕了事。
+
+
+*****
+
+####  longmarch5  
+##### 391#       发表于 2024-6-7 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138754&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:29</a>
+
+那外面呢？看个linvo的隼鸟号科普视频都能冒出个瑶瑶落后的弹幕来，你也不知道他是真心实意还是串子搞事， ...</blockquote>
+这属于你觉得猪屎难吃你就要去主动拥抱牛粪
+
+正常人：就不能不吃屎吗？
+
+*****
+
+####  satsuki1029  
+##### 392#       发表于 2024-6-7 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138104&amp;ptid=2176876" target="_blank">zeroboss1 发表于 2024-6-7 01:22</a>
+
+灭鳖还是
+
+看nga</blockquote>
+nga还有国新对冲的，两边基本是一体两面
+
+*****
+
+####  lactone  
+##### 393#       发表于 2024-6-7 08:36
+
+话说嫦娥六具体几号回来啊
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

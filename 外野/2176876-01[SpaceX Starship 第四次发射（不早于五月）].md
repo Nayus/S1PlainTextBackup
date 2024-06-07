@@ -4483,3 +4483,24 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 老马赌的就是靠低轨能力快速复用实现加油。只要实现，飞哪里都不是问题。 ...</blockquote>
 不如核推
 
+
+*****
+
+####  薄皮破船  
+##### 477#       发表于 2024-6-7 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138974&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:59</a>
+
+对，这说法更准确。这东西在危害性上有没有到登月阴谋论的程度？</blockquote>
+没有，因为这种东西某种程度上是夸张事实，比较符合居安思危的中国思想，比起让人变蠢的登月阴谋论来说没啥危害
+
+*****
+
+####  薄皮破船  
+##### 478#       发表于 2024-6-7 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139192&amp;ptid=2176876" target="_blank">wpcc 发表于 2024-6-7 09:21</a>
+
+其实现在从天宫直接起飞到月球再回来很轻松吧</blockquote>
+很难，2010年左右的登月PPT，飞船到近地轨道之后要接两个50吨的摆渡火箭去月球，这个摆渡火箭差不多两倍于长五的运力
+

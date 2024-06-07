@@ -800,3 +800,36 @@ https://mobalytics.gg/lol/profile/jp/%E3%83%9D%E3%83%94%E6%A7%98-115/overview �
 
 (д) ﾟﾟ现在不也是上半年？
 
+
+*****
+
+####  TiHaru  
+##### 16520#       发表于 2024-6-7 18:45
+
+🦖可能是クト
+
+
+*****
+
+####  ablast  
+##### 16521#       发表于 2024-6-8 05:37
+
+<img src="https://img.saraba1st.com/forum/202406/08/053619e08zbgfoz0otfb61.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202406/08/053619e08zbgfoz0otfb61.png">
+
+<strong>IMG_1545.png</strong> (523.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 05:36 上传
+
+草  昨晚上还打了把瓦
+
+IMG_1544.jpeg
+(174.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 05:36 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/053619f0v0o2oqaoivlhoo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

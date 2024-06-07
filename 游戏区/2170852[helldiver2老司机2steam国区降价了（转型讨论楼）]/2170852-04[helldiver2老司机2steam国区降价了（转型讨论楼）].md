@@ -4749,3 +4749,30 @@ dev说过是6月第二周才更新
 
 这些新武器需要设计和平衡？
 
+
+*****
+
+####  Aeons  
+##### 4872#       发表于 2024-6-7 13:39
+
+这不是贴吧著名孝子
+
+*****
+
+####  ravend233  
+##### 4873#       发表于 2024-6-7 13:40
+
+ 本帖最后由 ravend233 于 2024-6-7 13:41 编辑 
+
+看降低投放速度后新武器的质量吧，保持现在一个债券三把主手大概率就是每个月出三个换皮垃圾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于武器自定义，我觉得就是箭头觉得开放了这玩意那换皮武器就不好出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DawnGuardian  
+##### 4874#       发表于 2024-6-7 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65142340&amp;ptid=2170852" target="_blank"> ravend233 发表于 2024-6-7 13:40</a>  本帖最后由 ravend233 于 2024-6-7 13:41 编辑   看降低投放速度后新武器的质量吧，保持现在一个债券三把主手大概率就是每个月出三个换皮垃圾了    至于武器自定义，我觉得就是箭头觉得开放了这玩意那换皮武器就不好出了  </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多整点好看的皮肤不就完了。我是不明白市面上那么多垃圾游戏靠还算说的过去的通行证续命的例子，箭头不去学，偏偏去搞什么劳什子变体武器，结果质量上不去，工作量一样不小，还惹得玩家还不高兴，都给它输完了来自: iPhone客户端
+

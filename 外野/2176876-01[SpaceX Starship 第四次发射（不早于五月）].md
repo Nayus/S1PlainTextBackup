@@ -4415,3 +4415,11 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 我科技领先，当我科技不领先的时候我概念领先，当我概念都不领先的时候我融资领先
 
+
+*****
+
+####  木谷高明  
+##### 471#       发表于 2024-6-7 14:18
+
+多来点，以后可以在近地轨道上造奇观了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

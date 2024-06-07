@@ -11466,3 +11466,14 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 推测2nd阿B直播票卖了5000+张，好像还行
 
+
+*****
+
+####  鳥栖朝  
+##### 17314#       发表于 2024-6-7 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65146029&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-06-07 19:31:02</a>
+草了，二十分钟不到体温从38.3上升到38.8，现在退款还来得及吗？</blockquote>去医院看看
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

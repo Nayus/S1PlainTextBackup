@@ -575,3 +575,16 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 什么展？
 
+
+*****
+
+####  flyzzhj  
+##### 46437#       发表于 2024-6-7 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65062739&amp;ptid=1712412" target="_blank">lcn 发表于 2024-5-31 07:32</a>
+
+【重要】2.86.0版本更新后系统版本及机型配置变更说明
+
+亲爱的各位御主：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MINI4，实测，没寄，还好，否则要动脑筋换MINI6了
+

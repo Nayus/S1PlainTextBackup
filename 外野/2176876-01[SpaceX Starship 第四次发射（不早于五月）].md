@@ -4598,3 +4598,15 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 缺陷是有效可用翼面积减小，需要更大的实际翼面积，同时因为作动力矩增大，作动筒也要加大，会付出重量代价。
 
+
+*****
+
+####  alixsander  
+##### 487#       发表于 2024-6-7 18:22
+
+<blockquote>chenzl 发表于 2024-6-7 11:43
+好说 我等着看你所谓的军事化的星舰，等着啊 那个啥 你其实可以想象力更丰富一点的哟 ...</blockquote>
+星舰必然的军事化的，这还需要等？
+
+https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-more-firms-for-cargo-delivery-via-rocket/
+

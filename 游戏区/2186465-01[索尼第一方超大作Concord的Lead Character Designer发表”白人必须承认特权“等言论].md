@@ -539,3 +539,14 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 2、游戏里出现的 ...</blockquote>
 为啥没黑女，ebony不行吗？你这也不够多元化平等<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千千千千鸟  
+##### 55#       发表于 2024-6-7 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138239&amp;ptid=2186465" target="_blank">ultraseven 发表于 2024-6-7 02:29</a>
+
+为啥没黑女，ebony不行吗？你这也不够多元化平等</blockquote>
+只是说要出现这些内容啊，又没说这里没有提到的内容不能出现<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

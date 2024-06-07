@@ -286,3 +286,11 @@ Boss战模式：挑战中期的一个Boss
 7月6日 anime expo
 <img src="https://p.sda1.dev/18/3d1d4461cb28d737fe118e7f8a7a6f3c/IMG_20240608_005014.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 428#         楼主| 发表于 2024-6-8 05:46
+
+新PV“AWAKEN”：[https://youtu.be/GfgkVGFhN8A](https://youtu.be/GfgkVGFhN8A)
+

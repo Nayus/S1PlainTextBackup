@@ -4781,3 +4781,20 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 除了和平时期站在对方头上恶心对方其实没啥意义。就算咱们目前火箭贵一点，挪个几百亿射一个小基地就在美国头上拉屎一样没问题。。毕竟真开战就是被导弹射落的命运<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wszweill  
+##### 500#       发表于 2024-6-7 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65143051&amp;ptid=2176876" target="_blank">bartholo4 发表于 2024-6-7 01:39</a>
+
+其实现在国内需求不足的大环境下，就应该多撒比去这些可能产生需求的领域
+
+把航天领域补贴出来一条新赛道</blockquote>
+航天在可见的未来都不会成为赛道吧。
+
+毕竟光伏电车这种亚非拉真的能用到。航天。。除了自用不也就和中东土豪一起搞科研（赚面子）嘛。
+
+比如美帝吹马院士融资也就是XX亿美刀。。想想加州一个厕所理论造价都上百万美刀，稀宗万亿打基建连个响都没有。。都是雷声大雨点小的赛道<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

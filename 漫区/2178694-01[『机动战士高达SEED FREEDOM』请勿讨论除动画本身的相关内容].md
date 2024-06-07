@@ -30,3 +30,24 @@
 
 奈飞日区已经在播了，有号可以去看，再不行等个把钟头nyaa什么的肯定有人放源。
 
+
+*****
+
+####  we89623  
+##### 971#       发表于 2024-6-7 23:16
+
+网飞的带中文字幕吗？
+
+*****
+
+####  Piano-Forest  
+##### 972#         楼主| 发表于 2024-6-7 23:21
+
+流媒体现已上线
+
+亚马逊：
+[https://www.amazon.co.jp/機動戦士ガンダ ... 志総一朗/dp/B0CWDLCSR5/](https://www.amazon.co.jp/機動戦士ガンダムSEED-FREEDOM-保志総一朗/dp/B0CWDLCSR5/)
+
+Netflix：
+[https://www.netflix.com/jp/title/81747912](https://www.netflix.com/jp/title/81747912)
+

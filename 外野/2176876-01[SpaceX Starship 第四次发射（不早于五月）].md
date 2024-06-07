@@ -4540,3 +4540,12 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 不如核推</blockquote>
 核推就算成熟了也不可能从地面自己蹦上天，依然需要星舰这种超重型化学火箭背上天。
 
+
+*****
+
+####  右代宫嘉音  
+##### 482#       发表于 2024-6-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65144669&amp;ptid=2176876" target="_blank"> commcody 发表于 2024-6-7 16:50</a> 薄皮破船 发表于 2024-6-7 14:53 不如核推 核推就算成熟了也不可能从地面自己蹦上天，依然需要星舰这种超重型化学火箭背上天。 </blockquote>
+星舰把反应堆运到近地轨道组装核推飞船感觉挺有戏。其实大型电推应该也行。来自: iPhone客户端
+

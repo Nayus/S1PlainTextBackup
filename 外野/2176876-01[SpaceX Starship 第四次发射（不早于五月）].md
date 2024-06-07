@@ -4610,3 +4610,19 @@ starlink这东西目前为止最大的价值就是军用，未来也是</blockqu
 
 https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-more-firms-for-cargo-delivery-via-rocket/
 
+
+*****
+
+####  alixsander  
+##### 488#       发表于 2024-6-7 18:30
+
+<blockquote>薄皮破船 发表于 2024-6-7 14:53
+不如核推</blockquote>
+核推污染太大，如果是盐水核推比冲也不咋滴
+
+正确的做法是近地轨道组装核电推，深空船靠谱的做法肯定是这样
+
+也就星舰这种构形适合做大构件的低轨运输
+
+其他廉价的发射方式，比如电磁发射，spinlaunch，可能可以更便宜，但是大构件是不行的
+

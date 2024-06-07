@@ -4189,3 +4189,39 @@ nga还有国新对冲的，两边基本是一体两面
 发射频率别说和北京，低一点的新德里，比得过朝鲜平壤国际机场吗？</blockquote>
 2到3天已经比很多航线的航班频率高了   ;另外   航班  你和机场比?? 一个机场有多少个航班
 
+
+*****
+
+####  钚环  
+##### 451#       发表于 2024-6-7 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138844&amp;ptid=2176876" target="_blank">longmarch5 发表于 2024-6-7 08:40</a>
+
+起码要明白一个道理，这东西美国人能做出来，那中国人也能做出来
+
+他真可行，真是未来方向，那把长9造出来 ...</blockquote>
+但是现在的环境就是二极管啊，那帮支持登月阴谋论的人现在不就满脑子的反对他们=洋狗么
+
+*****
+
+####  钚环  
+##### 452#       发表于 2024-6-7 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138974&amp;ptid=2176876" target="_blank">bankofsoul 发表于 2024-6-7 08:59</a>
+
+对，这说法更准确。这东西在危害性上有没有到登月阴谋论的程度？</blockquote>
+登月阴谋论=速胜论，空X灭鳖论=速败论，两者危害都不小
+
+
+*****
+
+####  longmarch5  
+##### 453#       发表于 2024-6-7 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140346&amp;ptid=2176876" target="_blank">钚环 发表于 2024-6-7 10:57</a>
+
+但是现在的环境就是二极管啊，那帮支持登月阴谋论的人现在不就满脑子的反对他们=洋狗么 ...</blockquote>
+别人二极管你也要么二极管么
+
+你看见别人吃狗屎，正确做法是自己不吃，而不是自己捡牛粪吃
+

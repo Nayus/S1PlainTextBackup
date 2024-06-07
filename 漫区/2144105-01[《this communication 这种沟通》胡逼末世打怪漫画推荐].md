@@ -1683,3 +1683,22 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 —— 来自 Xiaomi 23013RK75C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
 好，今晚一口气补完，双子篇开始就没看了，还是等完结一口气看舒服
 
+
+*****
+
+####  没取名啊  
+##### 165#       发表于 2024-6-7 11:04
+
+能不能出个德鲁哈没死成，被女猎人们抓走监禁起来的if<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KDConan  
+##### 166#       发表于 2024-6-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140440&amp;ptid=2144105" target="_blank">没取名啊 发表于 2024-6-7 11:04</a>
+能不能出个德鲁哈没死成，被女猎人们抓走监禁起来的if</blockquote>
+那就有点跟前面失忆重复了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

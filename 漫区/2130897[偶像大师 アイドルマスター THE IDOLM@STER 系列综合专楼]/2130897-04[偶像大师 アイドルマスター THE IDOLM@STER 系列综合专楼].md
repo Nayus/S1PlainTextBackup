@@ -10049,3 +10049,25 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 已經對第二季死心了 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  野菜一日分  
+##### 5387#       发表于 2024-6-7 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我在BGM的单集评论下提到过两次catch the shiny tail这个组活，抛开后面一些有演出实验性的组活不谈，这开服一年内的第二个组活，写得那么王道但优秀的组活都不愿意稍作修改放到动画里去用，我在想第二期的时候真能看到能动的Straylight.run，天尘吗，动起来了真能拍好吗，很蓝的啦
+
+
+*****
+
+####  Anatoly  
+##### 5388#       发表于 2024-6-7 20:54
+
+以目前的情感描写我感觉水组反正是直接抬走了
+
+迷光……应该也差不多在太平间准备好位置了就是
+
+主要甚至都别说剧情了，现在个人特质都把握不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你把那堆意义不明非要多停的毫无内容的几秒拿出来说台词也不会比现在更差了
+

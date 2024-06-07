@@ -11491,3 +11491,15 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 2024-6-7 20:13 上传
 
+
+*****
+
+####  rikaren  
+##### 17316#       发表于 2024-6-7 20:44
+
+<blockquote>鳥栖朝 发表于 2024-6-7 19:49
+去医院看看
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+正在等检查结果，希望不会是感染了什么病毒。
+

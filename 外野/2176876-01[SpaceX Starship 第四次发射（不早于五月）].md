@@ -4685,3 +4685,17 @@ https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-mo ...</blockquote
 话说没人组织去捞2级吗，空X应该有位置数据吧</blockquote>
 S29落水后采集完数据就自毁了，B10是要捞回来的
 
+
+*****
+
+####  canti  
+##### 494#       发表于 2024-6-7 20:50
+
+https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
+
+“超重-星舰”第四次综合飞行测试情况简析
+
+龙雪丹1  杨开1  王林1  褚洪杰2
+
+（1.北京航天长征科技信息研究所；2.中国航天科技集团有限公司）
+

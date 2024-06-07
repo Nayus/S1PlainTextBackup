@@ -1136,3 +1136,11 @@ emmm，果然像是新团队会出来的作品，期待值一下降低了
 
 看价格，如果是大作价格就算了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 123#       发表于 2024-6-8 01:39
+
+附身对象应该不是平民而是变异体吧，不然太畜生了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

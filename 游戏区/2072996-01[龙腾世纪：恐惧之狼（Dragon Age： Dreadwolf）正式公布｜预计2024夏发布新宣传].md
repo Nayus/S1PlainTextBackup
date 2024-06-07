@@ -1567,3 +1567,16 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
  ...</blockquote>
 蚊帐守护者
 
+
+*****
+
+####  wlhlz  
+##### 170#       发表于 2024-6-7 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65143088&amp;ptid=2072996" target="_blank">zris 发表于 2024-6-7 14:43</a>
+
+是固定人物还是自建的·····
+
+如果固定我就不咋感兴趣了</blockquote>
+主角肯定还是自捏啊，不过DAO那种还能选出身的估计是不可能再有了
+

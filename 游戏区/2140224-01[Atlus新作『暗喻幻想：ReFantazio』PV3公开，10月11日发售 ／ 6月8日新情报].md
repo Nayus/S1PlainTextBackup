@@ -241,3 +241,11 @@ atlus自己不做翻译，由sega代理中文的话就是这个结局了
 <img src="https://p.sda1.dev/18/14c16d6e508557c75b4ad5a216f1394e/32.webp" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/83f9639a98b4618a5a36336031bd8c6a/20240608_000149.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 426#       发表于 2024-6-8 00:18
+
+急急急<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

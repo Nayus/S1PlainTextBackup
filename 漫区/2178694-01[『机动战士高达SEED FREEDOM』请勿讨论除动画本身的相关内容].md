@@ -77,3 +77,19 @@ Netflix：
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  死难者23er  
+##### 976#       发表于 2024-6-8 00:19
+
+<img src="https://img.saraba1st.com/forum/202406/08/001857qlkgbuek07oozubc.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2288.gif</strong> (1021.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 00:18 上传
+
+高达seed剧场版这一段花园的回忆真的好诡异，当时在花园里的只有黄毛和拉克丝而基拉在后面的阳台上，米娅的死基拉和拉克丝见过，但是芙蕾和基拉吵架只有他们两个人，总不可能是基拉和拉克丝说过这件事，而最后一个克队的画面只有芙蕾一个人见过，官方搞出这么一段奇怪的回忆画面完全没有逻辑
+

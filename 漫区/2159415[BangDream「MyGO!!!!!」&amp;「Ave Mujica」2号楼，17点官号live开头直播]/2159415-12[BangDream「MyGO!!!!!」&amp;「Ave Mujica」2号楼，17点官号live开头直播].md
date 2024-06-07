@@ -11658,3 +11658,31 @@ bml那个是真的假的？
   -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
 按理来说今年应该是狗，让鸡先上会比较奇怪
 
+
+*****
+
+####  基神的强袭自由  
+##### 17330#       发表于 2024-6-8 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65149182&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-6-8 00:11</a>
+
+按理来说今年应该是狗，让鸡先上会比较奇怪</blockquote>
+感觉是这样分配的：BW狗，BML鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 17331#       发表于 2024-6-8 00:21
+
+我已经入坑WS了，能玩的谷子不也挺好吗。
+
+*****
+
+####  御景  
+##### 17332#       发表于 2024-6-8 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65149182&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-6-8 00:11</a>
+
+按理来说今年应该是狗，让鸡先上会比较奇怪</blockquote>
+如果是真的，那就是2nd后，开始宣传了
+

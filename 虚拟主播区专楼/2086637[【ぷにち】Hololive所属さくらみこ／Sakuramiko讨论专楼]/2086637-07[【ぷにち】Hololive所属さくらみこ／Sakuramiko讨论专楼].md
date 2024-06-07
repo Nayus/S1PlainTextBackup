@@ -1029,3 +1029,20 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 那这么说起来0期生先出张EP再说live的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还早呢这
 
+
+*****
+
+####  holoan  
+##### 8975#         楼主| 发表于 2024-6-7 23:56
+
+草团长和七字母合唱的这首歌
+
+只能说星街要唱这种歌太难得了，然后这歌就非常适合团长和miko
+
+*****
+
+####  holoan  
+##### 8976#         楼主| 发表于 2024-6-8 00:09
+
+这官店的CD每次都发期货真的是，上次heart connect也是这样你想听附赠音轨的曲子非得等半年后，搞不好live上都能先听到了
+

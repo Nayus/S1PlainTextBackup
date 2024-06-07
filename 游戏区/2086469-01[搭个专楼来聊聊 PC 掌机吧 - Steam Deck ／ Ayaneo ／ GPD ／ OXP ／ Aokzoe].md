@@ -302,3 +302,16 @@ rog ally X相对于rog ally的提升主要就在电池吗
 
 大概啥规模的游戏会不够用？
 
+
+*****
+
+####  bypass  
+##### 1241#         楼主| 发表于 2024-6-8 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148717&amp;ptid=2086469" target="_blank">requiem116 发表于 2024-6-7 23:52</a>
+
+那感觉先观望一下新品吧
+
+大概啥规模的游戏会不够用？</blockquote>
+前两年的几个渣优化游戏，霍格沃茨，阿兰醒醒 2，龙之信条 2
+

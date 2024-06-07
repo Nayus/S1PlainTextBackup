@@ -67,3 +67,13 @@ Netflix：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">再看斗剑这段，我鸡是真的憋屈
 
+
+*****
+
+####  novyDC  
+##### 975#       发表于 2024-6-8 00:13
+
+高清版能看清很多细节了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

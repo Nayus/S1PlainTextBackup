@@ -10123,3 +10123,21 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 动漫游戏赤石视频一直就容易吸引流量的，我这种退休佬都忍不住先来围观了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 5394#       发表于 2024-6-8 00:13
+
+<img src="https://img.saraba1st.com/forum/202406/08/001333yqnncejx4ksqsksn.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 1101 - Twitter 上的 学園アイドルマスター【公式】：「◤￣￣￣￣.png</strong> (458.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 00:13 上传
+
+《Campus mode!!》的全體演唱版本將於6/10上線。
+
+＊CD中收錄的是SOLO版本。
+

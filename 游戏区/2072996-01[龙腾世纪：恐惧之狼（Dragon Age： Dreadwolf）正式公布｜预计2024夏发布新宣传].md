@@ -1444,3 +1444,12 @@ BioWare新作《龙腾世纪：恐惧之狼》正式更名为《龙腾世纪：�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  BK10  
+##### 157#       发表于 2024-6-7 10:22
+
+<img src="https://p.sda1.dev/18/bd0d1bb1f5da9ba19a0f4b1c05b2a61a/CMP_20240607102217042.jpg" referrerpolicy="no-referrer">
+感觉在微软发布会了，Xbox官推有互动
+

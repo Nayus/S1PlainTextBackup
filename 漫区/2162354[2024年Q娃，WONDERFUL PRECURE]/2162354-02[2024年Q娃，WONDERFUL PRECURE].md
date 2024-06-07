@@ -1689,3 +1689,11 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 毕竟人类从未驯化猫猫，而是猫猫驯化了人类<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1625#       发表于 2024-6-7 10:15
+
+不要乱说，我从小到大都是这个声音<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+

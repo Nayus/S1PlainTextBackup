@@ -598,3 +598,18 @@ jez说不会是串流机<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  drfarsight  
+##### 66#       发表于 2024-6-7 10:21
+
+这次最关心的是萎卵的掌机，希望能好好介绍一下，对索任已经有点失望了
+
+*****
+
+####  solora  
+##### 67#       发表于 2024-6-7 10:24
+
+巨硬掌机硬件比ND强，价格还更便宜才具备成功的基本盘<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+

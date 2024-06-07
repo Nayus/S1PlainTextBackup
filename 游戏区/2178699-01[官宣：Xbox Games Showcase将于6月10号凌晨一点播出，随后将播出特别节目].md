@@ -613,3 +613,19 @@ jez说不会是串流机<img src="https://static.saraba1st.com/image/smiley/face
 
 巨硬掌机硬件比ND强，价格还更便宜才具备成功的基本盘<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  thez  
+##### 68#       发表于 2024-6-7 10:26
+
+掌机真的会现在就公布么……
+
+
+*****
+
+####  尘落樱飞  
+##### 69#       发表于 2024-6-7 10:31
+
+两个小时时长还是可以的，还好10号端午
+

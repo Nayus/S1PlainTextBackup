@@ -11697,3 +11697,14 @@ bml那个是真的假的？
 2024-06-08 00:58:55
 [https://www.bilibili.com/video/BV11n4y1974P/](https://www.bilibili.com/video/BV11n4y1974P/)
 
+
+*****
+
+####  紫吹兰  
+##### 17334#         楼主| 发表于 2024-6-8 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65149383&amp;ptid=2159415" target="_blank">cindy355 发表于 2024-6-8 00:21</a>
+
+我已经入坑WS了，能玩的谷子不也挺好吗。</blockquote>
+那可以直接大手办
+

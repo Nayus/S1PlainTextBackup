@@ -605,3 +605,13 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主这沙卵怎么次次翻车啊，塞的脑袋出问题了？
 
+
+*****
+
+####  mj240608414  
+##### 62#       发表于 2024-6-7 10:07
+
+讲道理，黑女就黑女吧。但你们是不是忘了，哪怕游戏公司嗯塞黑妹但为了zzq也一定会把黑妹做得很tm丑，想想哪怕街霸6这种刻板印象拉满的游戏里我也不觉得有几个人会认为初版黑妹比阿鬼好看。。
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

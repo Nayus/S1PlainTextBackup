@@ -4118,3 +4118,23 @@ nga还有国新对冲的，两边基本是一体两面
 星舰发射就是为了打广告，马斯克的真正目的是为了卖这个打火机<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/3754d5bd765fe040d5f518f5b00cf75d/CMP_20240607100438782.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  iqbsh38  
+##### 444#       发表于 2024-6-7 10:13
+
+[https://www.bilibili.com/video/BV1ax4y1871L](https://www.bilibili.com/video/BV1ax4y1871L)
+
+我找到了一个我屏蔽的up发的稿子 可以鉴赏一下当时评论区是啥样子的
+
+*****
+
+####  tsukatsukieiko  
+##### 445#       发表于 2024-6-7 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139642&amp;ptid=2176876" target="_blank">wpcc 发表于 2024-6-7 10:02</a>
+
+一节节打上去就是 把半个天宫当中继飞出去</blockquote>
+阿波罗时代就论证过了，在发射复杂度限制下地球轨道交会对于深空任务是个很蠢的方案，所以才搞了土五/N1的指标。星舰纯粹是主打一个便宜量大暴力堆死你……
+

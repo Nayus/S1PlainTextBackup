@@ -4732,3 +4732,35 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 这点是第一个提的，飞行中自监测诊断和自我修改飞行律，自我故障重构能力。院内吵了这么久，但是后面长10是一定要上的了，下一代火箭不能飞起来还啥事都靠测控大厅解决或者干瞪眼。
 
+
+*****
+
+####  commcody  
+##### 497#         楼主| 发表于 2024-6-7 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65145152&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-7 17:33</a>
+
+新结构的襟翼出现在星舰工厂。
+
+实际上安装位置更靠近星舰二级背侧的设计一年以前就已经提出了，但是直到 ...</blockquote>
+现在的V1版都是“老将”了，S29完成堆叠正好是去年的6月6日。它的前部襟翼甚至是从S21上拆下来的。而S21本身变成了HLS的载人舱布置原型。
+
+<img src="https://img.saraba1st.com/forum/202406/07/224843udk4676xewuzx114.jpg" referrerpolicy="no-referrer">
+
+<strong>GESXC88W8AAFost.jpg</strong> (155.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 22:48 上传
+
+
+*****
+
+####  longmarch5  
+##### 498#       发表于 2024-6-7 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65147335&amp;ptid=2176876" target="_blank">PPB3008 发表于 2024-6-7 21:46</a>
+
+这点是第一个提的，飞行中自监测诊断和自我修改飞行律，自我故障重构能力。院内吵了这么久，但是后面 ...</blockquote>
+这个在2022年总师论文里面就有
+

@@ -554,3 +554,24 @@ steam登录xbox主机和掌机，炸裂
 《龙腾世纪4》就是《恐惧之狼》啊，Xbox App都能预载占位符了，还能改名？ ...</blockquote>
 副标题改成the veilguard了 
 
+
+*****
+
+####  zhuoqun  
+##### 62#       发表于 2024-6-7 08:23
+
+<blockquote>stoiorz 发表于 2024-6-6 15:45
+大的就是那个xbox掌机吗？</blockquote>
+还真挺期待xbox掌机的，但要是搞成索尼同款串流掌机就搞笑了
+
+*****
+
+####  陈乔恩  
+##### 63#       发表于 2024-6-7 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65134746&amp;ptid=2178699" target="_blank">精钢魔像 发表于 2024-6-6 18:49</a>
+steam登录xbox主机和掌机，炸裂</blockquote>
+真登录的话以后必买xbox
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

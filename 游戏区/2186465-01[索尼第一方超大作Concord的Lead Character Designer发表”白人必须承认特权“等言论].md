@@ -615,3 +615,12 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  格林达姆  
+##### 63#       发表于 2024-6-7 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说得也没毛病啊
+难道你不承认，white privilege就能原地消失吗
+

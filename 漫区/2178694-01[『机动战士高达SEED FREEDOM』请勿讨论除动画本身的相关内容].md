@@ -210,3 +210,11 @@ nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
 额。。。我怎么感觉画面有修正，我的错觉吗，去弄个枪版对比下看看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nintenxu  
+##### 991#       发表于 2024-6-8 07:04
+
+按说不是时间轴都有了，枪版也都做过字幕了，为啥还没中文字幕
+

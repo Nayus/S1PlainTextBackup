@@ -1112,3 +1112,19 @@ emmm，果然像是新团队会出来的作品，期待值一下降低了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  白昼梦  
+##### 120#       发表于 2024-6-8 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回头看了眼当时的预告，好像真的就是这么些东西
+
+
+*****
+
+####  clover293  
+##### 121#       发表于 2024-6-8 01:03
+
+外山要不整个团队搞重力眩晕精神续作得了，至少我会买。
+

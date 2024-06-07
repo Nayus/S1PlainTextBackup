@@ -1552,3 +1552,18 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 真不知道现在的生软实力如何，感觉根本摸不透，随时有可能暴种来个爆款或者给你拉个大的
 
+
+*****
+
+####  rzsxd  
+##### 169#       发表于 2024-6-7 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65144041&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-7 15:58</a>
+
+而且这个“影障”翻译的也太拗口又不直观了吧
+
+不知道国内圈子一直是咋翻译的，还不如翻成“帷幕”
+
+ ...</blockquote>
+蚊帐守护者
+

@@ -4935,3 +4935,13 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 — from Xiaomi 22041211AC, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  灼眼的川川仔  
+##### 511#       发表于 2024-6-8 06:12
+
+【【双语】马斯克如何评价星舰第四次发射，对最坚强的机翼是什么感觉？-哔哩哔哩】 [https://b23.tv/pY28Xym](https://b23.tv/pY28Xym)
+
+发射后第一时间采访，关键信息：星舰上有16路监控，大部分是内部画面；第一级落点很精确，第二级落点偏差6公里；因为第一级落点精确，下一次希望尝试筷子回收
+

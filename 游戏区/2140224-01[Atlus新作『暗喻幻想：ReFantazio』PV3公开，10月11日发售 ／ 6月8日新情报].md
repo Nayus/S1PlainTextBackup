@@ -294,3 +294,34 @@ Boss战模式：挑战中期的一个Boss
 
 新PV“AWAKEN”：[https://youtu.be/GfgkVGFhN8A](https://youtu.be/GfgkVGFhN8A)
 
+
+*****
+
+####  h122h  
+##### 429#       发表于 2024-6-8 06:05
+
+steam价格出了，普通版298，ATLUS品牌35周年数字纪念版468。
+[https://store.steampowered.com/app/2679460/ReFantazio/](https://store.steampowered.com/app/2679460/ReFantazio/)
+
+
+*****
+
+####  Piano-Forest  
+##### 430#         楼主| 发表于 2024-6-8 06:13
+
+预购已开
+
+Steam
+
+标准版：¥ 298
+
+ATLUS品牌35周年数字纪念版：¥ 468
+[https://store.steampowered.com/app/2679460/ReFantazio/](https://store.steampowered.com/app/2679460/ReFantazio/)
+
+PS港服
+
+标准版：HK$478
+
+ATLUS品牌35周年数字纪念版：HK$748
+[https://store.playstation.com/zh ... 0-METAPHORNA000001/](https://store.playstation.com/zh-hant-hk/product/UP0177-PPSA20800_00-METAPHORNA000001/)
+

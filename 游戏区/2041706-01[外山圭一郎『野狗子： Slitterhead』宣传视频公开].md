@@ -1144,3 +1144,23 @@ emmm，果然像是新团队会出来的作品，期待值一下降低了
 
 附身对象应该不是平民而是变异体吧，不然太畜生了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 124#         楼主| 发表于 2024-6-8 06:09
+
+实机PV：[https://youtu.be/2mAkn64FQDU](https://youtu.be/2mAkn64FQDU)
+
+Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steampowered.com/app/2631250/)
+
+<img src="https://p.sda1.dev/18/1b08492660c8dbdcc472dfd2f2922d97/20240608_060819.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杰尼龟2号机  
+##### 125#       发表于 2024-6-8 06:10
+
+这视频一脸褒姒啊
+

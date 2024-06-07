@@ -11569,3 +11569,29 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 38.8度还能保持意识清醒，这是在诱惑我去看直播吗<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 17322#       发表于 2024-6-7 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65147427&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-7 21:55</a>
+38.8度还能保持意识清醒，这是在诱惑我去看直播吗</blockquote>
+朋友，这身体状态还是早点休息吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  NODY  
+##### 17323#       发表于 2024-6-7 22:03
+
+<img src="https://img.saraba1st.com/forum/202406/07/220347e2nzbfbpf4fya7bw.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (101.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 22:03 上传
+

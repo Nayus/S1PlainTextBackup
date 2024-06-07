@@ -4961,3 +4961,19 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 我们如果有类星舰型低成本大火箭，也可以部署这种系统。
 
+
+*****
+
+####  wszweill  
+##### 513#       发表于 2024-6-8 07:06
+
+ 本帖最后由 wszweill 于 2024-6-7 18:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65150973&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-7 17:25</a>
+
+这类武器实际上不追求长期不坏。部署在超低近地轨道目的除了更接近作战高度，剩下就是一旦故障可以自销毁 ...</blockquote>
+和维护期显然是有关的，按你的说法，这个属于防御威慑类武器。类似萨德。那维护期间自然很重要，假设有效期1年，那每年都产生新的固定支出。相反，萨德直接扔地上维护成本低多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  
+
+再多的花里胡哨，还得面对和传统三位 一体核打击比较的问题，它和常规的路基弹道导弹的区别是。。？甚至和防区外战略轰炸机扔空射导弹的区别是。。？ 这种近地轨道的机动性和隐蔽性说不定还不如隐形轰炸机呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 
+
+更别说美帝还有核黑鱼呢<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+

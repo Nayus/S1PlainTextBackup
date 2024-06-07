@@ -11686,3 +11686,14 @@ bml那个是真的假的？
 按理来说今年应该是狗，让鸡先上会比较奇怪</blockquote>
 如果是真的，那就是2nd后，开始宣传了
 
+
+*****
+
+####  [皆神孝介]  
+##### 17333#       发表于 2024-6-8 01:15
+
+<strong>MyGO!!!!!「迷星叫（Mayoiuta）」Chronicle Movie (Anime × Live)</strong>
+
+2024-06-08 00:58:55
+[https://www.bilibili.com/video/BV11n4y1974P/](https://www.bilibili.com/video/BV11n4y1974P/)
+

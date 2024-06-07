@@ -249,3 +249,40 @@ atlus自己不做翻译，由sega代理中文的话就是这个结局了
 
 急急急<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 427#         楼主| 发表于 2024-6-8 01:15
+
+近期已公开的宣传活动
+
+6月8日
+
+·早5点 夏日游戏节新情报
+
+·早9点 专场直播二期
+[https://live.bilibili.com/2293539](https://live.bilibili.com/2293539)
+
+6月8日～9日东京秋叶原ATLUS FES
+
+两天都有官方直播
+
+6月8日：[https://youtube.com/live/ZoBy1GTjfzM](https://youtube.com/live/ZoBy1GTjfzM)
+
+6月9日：[https://youtube.com/live/znTbqmDpVEE](https://youtube.com/live/znTbqmDpVEE)
+
+现场的试玩活动时限约15分钟
+
+试玩版将提供剧情、迷宫、Boss战三种模式
+
+剧情模式：游戏开头、阿基态的觉醒
+
+迷宫模式：序章迷宫的内容
+
+Boss战模式：挑战中期的一个Boss
+<img src="https://p.sda1.dev/17/d1908321a7030ce39296200c928331a5/20240531_174901.jpg" referrerpolicy="no-referrer">
+
+7月6日 anime expo
+<img src="https://p.sda1.dev/18/3d1d4461cb28d737fe118e7f8a7a6f3c/IMG_20240608_005014.jpg" referrerpolicy="no-referrer">
+

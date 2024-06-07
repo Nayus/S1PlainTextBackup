@@ -93,3 +93,67 @@ Netflix：
 
 高达seed剧场版这一段花园的回忆真的好诡异，当时在花园里的只有黄毛和拉克丝而基拉在后面的阳台上，米娅的死基拉和拉克丝见过，但是芙蕾和基拉吵架只有他们两个人，总不可能是基拉和拉克丝说过这件事，而最后一个克队的画面只有芙蕾一个人见过，官方搞出这么一段奇怪的回忆画面完全没有逻辑
 
+
+*****
+
+####  Znesmoc  
+##### 977#       发表于 2024-6-8 01:06
+
+生肉看了
+
+真爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  露崎まひる  
+##### 978#       发表于 2024-6-8 01:06
+
+真几把给我看笑了
+
+*****
+
+####  鸣神  
+##### 979#       发表于 2024-6-8 01:11
+
+最终战给我看的一愣一愣的，不愧是新高父，能把萝卜打架做的这么羞耻的真是头一份
+
+
+*****
+
+####  镜hinata  
+##### 980#       发表于 2024-6-8 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">流媒体再看一遍真爽
+
+*****
+
+####  faxi  
+##### 981#       发表于 2024-6-8 01:13
+
+各种原因没机会去香港看的东西今晚还是看完了，真的太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+就是这剧情真的很傻<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比天使与龙都弱智。。
+
+这千禧年号看下来比非自还要黑科技啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Grahamlinks  
+##### 982#       发表于 2024-6-8 01:14
+
+看完了，好爽的片，非凡哥完全就是机体碾压吧，还有反叛那个蓝毛有点恋爱脑？干坏事意志不坚定不行啊，以及鸡和狼互殴，鸡那王八拳笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leonlink  
+##### 983#       发表于 2024-6-8 01:15
+
+流媒体自带中文字幕吗？
+
+*****
+
+####  线程召唤使  
+##### 984#       发表于 2024-6-8 01:16
+
+nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
+

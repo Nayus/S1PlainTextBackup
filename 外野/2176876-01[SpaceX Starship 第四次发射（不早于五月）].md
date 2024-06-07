@@ -4841,3 +4841,53 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 但是星舰这结构就不适合打深空</blockquote>
 核推的用法不就是把货物从LEO往深空拉？
 
+
+*****
+
+####  jamboo  
+##### 505#       发表于 2024-6-7 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65140371&amp;ptid=2176876" target="_blank">钚环 发表于 2024-6-7 10:59</a>
+登月阴谋论=速胜论，空X灭鳖论=速败论，两者危害都不小</blockquote>
+不能同意更多，建议去读
+
+《论持久战》<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  薄皮破船  
+##### 506#       发表于 2024-6-7 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148515&amp;ptid=2176876" target="_blank">hu14againagain 发表于 2024-6-7 23:40</a>
+
+核推的用法不就是把货物从LEO往深空拉？</blockquote>
+用法和现今的高性能上面级没有本质差别，核热推进也是要消耗工质的
+
+*****
+
+####  薄皮破船  
+##### 507#       发表于 2024-6-7 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148494&amp;ptid=2176876" target="_blank">alixsander 发表于 2024-6-7 23:39</a>
+
+除非SSTO，整个星舰上面级等同于载荷，直接被第一级superheavy送入轨。不然核电推才多少推力，怎么能爬进 ...</blockquote>
+为啥是核电？？？
+
+核热这个饼已经又开始画了
+
+<img src="https://img.saraba1st.com/forum/202406/07/235046kc0ocfr2qqu66cii.png" referrerpolicy="no-referrer">
+
+<strong>Captura-de-pantalla-96.png</strong> (701.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202406/07/235050ygdzsblegudfloet.jpg" referrerpolicy="no-referrer">
+
+<strong>ntp-overview.jpg</strong> (58.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 23:50 上传
+

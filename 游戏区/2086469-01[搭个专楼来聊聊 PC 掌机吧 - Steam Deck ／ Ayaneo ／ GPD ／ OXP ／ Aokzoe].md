@@ -289,3 +289,16 @@ rog ally X相对于rog ally的提升主要就在电池吗
 如果不带出门玩是不是买个rog ally二手也差不多 ...</blockquote>
 电池和内存（会分给显存，16G 在部分游戏中不够用）。
 
+
+*****
+
+####  requiem116  
+##### 1240#       发表于 2024-6-7 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65147689&amp;ptid=2086469" target="_blank">bypass 发表于 2024-6-7 22:20</a>
+
+电池和内存（会分给显存，16G 在部分游戏中不够用）。</blockquote>
+那感觉先观望一下新品吧
+
+大概啥规模的游戏会不够用？
+

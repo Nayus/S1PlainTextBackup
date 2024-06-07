@@ -11613,3 +11613,17 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 虽然买的时候太早了老登没到场<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17326#       发表于 2024-6-7 23:39
+
+治愈这么漂亮的图竟然是打牌限定
+
+你来点高清图也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+symbol I 4.7-5.2，symbol II 5.17-6.6，该猜第三首新曲会不会是明天LIVE首次披露了，所以才赶着在昨天发布<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这次小剧场如果也是系列曲相关，是不是要当断章狗了，符合你鸡吊胃口的一贯作风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

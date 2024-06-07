@@ -4821,3 +4821,23 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 核推就算成熟了也不可能从地面自己蹦上天，依然需要星舰这种超重型化学火箭背上天。 ...</blockquote>
 但是星舰这结构就不适合打深空
 
+
+*****
+
+####  alixsander  
+##### 503#       发表于 2024-6-7 23:39
+
+<blockquote>薄皮破船 发表于 2024-6-7 23:31
+我的意思就是星舰上核推啊，上面那个才叫星舰，下面是超重助推</blockquote>
+除非SSTO，整个星舰上面级等同于载荷，直接被第一级superheavy送入轨。不然核电推才多少推力，怎么能爬进轨道
+
+*****
+
+####  hu14againagain  
+##### 504#       发表于 2024-6-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148344&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-7 23:31</a>
+
+但是星舰这结构就不适合打深空</blockquote>
+核推的用法不就是把货物从LEO往深空拉？
+

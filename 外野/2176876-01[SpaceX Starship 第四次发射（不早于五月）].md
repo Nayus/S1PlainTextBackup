@@ -4674,3 +4674,14 @@ https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-mo ...</blockquote
 
 战术上要重视，廉价的天地运输手段必然导致以前由于规模成本等因素无法部署的军事设施，比如智能卵石，近地轨道监视卫星星座，天基核打击系统的部署，这些设施在被切断后勤但是还没有瘫痪的过程中，我们能否承受其打击乃至反制，是一个需要严肃对待的问题。
 
+
+*****
+
+####  madbird023  
+##### 493#       发表于 2024-6-7 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65145125&amp;ptid=2176876" target="_blank">windtrack 发表于 2024-6-7 17:30</a>
+
+话说没人组织去捞2级吗，空X应该有位置数据吧</blockquote>
+S29落水后采集完数据就自毁了，B10是要捞回来的
+

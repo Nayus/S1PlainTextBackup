@@ -325,3 +325,13 @@ PS港服
 ATLUS品牌35周年数字纪念版：HK$748
 [https://store.playstation.com/zh ... 0-METAPHORNA000001/](https://store.playstation.com/zh-hant-hk/product/UP0177-PPSA20800_00-METAPHORNA000001/)
 
+
+*****
+
+####  猫沢  
+##### 431#       发表于 2024-6-8 06:23
+
+看了眼美区70刀国区298，atlus你让我好陌生。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

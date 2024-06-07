@@ -4626,3 +4626,27 @@ https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-more-firms-for-car
 
 其他廉价的发射方式，比如电磁发射，spinlaunch，可能可以更便宜，但是大构件是不行的
 
+
+*****
+
+####  chenzl  
+##### 489#       发表于 2024-6-7 18:46
+
+ 本帖最后由 chenzl 于 2024-6-7 18:47 编辑 
+<blockquote>alixsander 发表于 2024-6-7 18:22
+星舰必然的军事化的，这还需要等？
+
+https://breakingdefense.com/2024/06/roc-stars-air-force-seeks-mo ...</blockquote>
+
+看我空X天兵天降，尔等化为齑粉！呵呵，你很怕怕吧！
+
+
+*****
+
+####  a317216007  
+##### 490#       发表于 2024-6-7 18:52
+
+把星x军事化是很正常的想法<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">其实对现在的老米来说，这种新概念性质的武器如何落地才是主要问题
+
+—— 来自 Xiaomi Mi MIX 2, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

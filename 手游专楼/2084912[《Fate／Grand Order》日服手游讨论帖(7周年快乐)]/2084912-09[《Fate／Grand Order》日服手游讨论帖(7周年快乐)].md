@@ -24,3 +24,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">60抽一个C闪一个当期四星，就当填坑了。
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 12804#       发表于 2024-6-7 18:50
+
+呼符出了蘑菇人，追加20连终于开了兽尼图鉴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以等周年了
+

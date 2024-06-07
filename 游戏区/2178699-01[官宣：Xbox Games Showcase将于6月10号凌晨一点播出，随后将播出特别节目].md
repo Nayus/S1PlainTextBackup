@@ -575,3 +575,14 @@ steam登录xbox主机和掌机，炸裂</blockquote>
 
 —— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+*****
+
+####  stoiorz  
+##### 64#       发表于 2024-6-7 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65138720&amp;ptid=2178699" target="_blank">zhuoqun 发表于 2024-6-7 08:23</a>
+
+还真挺期待xbox掌机的，但要是搞成索尼同款串流掌机就搞笑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我猜很大可能加入搞笑大集合。每次软开发布会都感觉快赢麻了，然后开完加入主机草台大合集。
+

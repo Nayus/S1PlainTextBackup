@@ -597,3 +597,11 @@ fabulous，欧美厂商占据这个行业六七成，一边强调多元化一边
 
 现在出了日本二次元或者棒子游戏外哪里还有好看的西式大洋马，出了生化危机我也想不出来了。生化危机的大洋马甚至也没多好看
 
+
+*****
+
+####  chivalry  
+##### 61#       发表于 2024-6-7 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼主这沙卵怎么次次翻车啊，塞的脑袋出问题了？
+

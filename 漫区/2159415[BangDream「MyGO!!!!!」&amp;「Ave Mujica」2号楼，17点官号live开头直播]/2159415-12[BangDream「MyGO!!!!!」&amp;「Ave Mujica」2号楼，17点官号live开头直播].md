@@ -11342,3 +11342,79 @@ wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face201
 
 不过这mv总给我一种母鸡卡全员午夜十分酒足饭饱后在大排档门口的桌子上打牌的错觉
 
+
+*****
+
+####  PDQ4  
+##### 17304#       发表于 2024-6-6 22:02
+
+wsd他好省钱，我哭死，只有能卖钱的tcg才拉亲妈来
+
+你这五首要出专吧，至少有一套图要好看吧，别来qj我眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+syl，下次也不是鸡<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17305#       发表于 2024-6-6 22:09
+
+wsd太爱蛋白棒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17306#       发表于 2024-6-6 22:46
+
+对我而言相较于之前这次的曲子明显接受度更高了，节奏感很强，能给人反复刷的欲望。但就这立绘头以下属实是惨不忍睹，做的不错的MV配上诡异的立绘高度怀疑wsd脑子里泡的是卤水豆腐
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17307#       发表于 2024-6-6 22:49
+
+ 本帖最后由 赫尔墨斯的权杖 于 2024-6-6 22:50 编辑 
+
+不过这mv总给我一种母鸡卡全员午夜十分在大排档门口的桌子上打牌的错觉
+
+*****
+
+####  御幸一也  
+##### 17308#       发表于 2024-6-7 09:52
+
+睦祥姐太有實力了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 畫得太好了一定要擁有
+
+[https://www.allcpp.cn/d/849860.do#tabType=0](https://www.allcpp.cn/d/849860.do#tabType=0)
+
+<img src="https://img.saraba1st.com/forum/202406/07/095206u3h9bzxx143bcq33.png" referrerpolicy="no-referrer">
+
+<strong>b5058b42-6b72-4679-b369-5e5570f47fb2.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 09:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/07/095154kb17htoh146z6hd8.png" referrerpolicy="no-referrer">
+
+<strong>868a35ae-838e-410c-85dd-cc17cb37e1c4.png</strong> (1.47 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 09:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/07/095200bz66i6bdfbl34l6g.png" referrerpolicy="no-referrer">
+
+<strong>ff3757df-961b-4ab7-b50b-36db990fba4c.png</strong> (1.51 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 09:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/07/095203ywpbahcwulvsw92n.png" referrerpolicy="no-referrer">
+
+<strong>7bab2d0d-931f-45e7-9b60-471b11f4d74a.png</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-7 09:52 上传
+

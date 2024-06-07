@@ -4687,3 +4687,25 @@ dev说过是6月第二周才更新
 
 看这viper我还以为要出喷毒器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4866#       发表于 2024-6-6 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主手看起来会是个幽默玩具，不过皮肤好看，COS卡塔昌了（
+
+*****
+
+####  BadYanL  
+##### 4867#       发表于 2024-6-6 22:37
+
+这护甲，这环境，就差一个铁血战士乱入了
+
+*****
+
+####  bakuza  
+##### 4868#       发表于 2024-6-7 09:43
+
+卡塔昌装扮可还行
+

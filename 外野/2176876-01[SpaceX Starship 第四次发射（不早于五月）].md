@@ -4018,3 +4018,28 @@ nga还有国新对冲的，两边基本是一体两面
 
 以后基本只会有双助推陆地回收，全抛弃两种模式的重猎。
 
+
+*****
+
+####  yizi1  
+##### 435#       发表于 2024-6-7 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139435&amp;ptid=2176876" target="_blank">qty 发表于 2024-6-7 09:43</a>
+空X应该不会闲的没事搞这个，这种大概率是对岸的1450</blockquote>
+大概率就是发泄不满吧，1450还真没那个闲工夫，主要是国内舆论环境太压抑了。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iqbsh38  
+##### 436#       发表于 2024-6-7 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65139435&amp;ptid=2176876" target="_blank">qty 发表于 2024-6-7 09:43</a>
+
+空X应该不会闲的没事搞这个，这种大概率是对岸的1450</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">也对 嫦娥六登录的时候也没一堆人蹦出来说自己紧张地手脚发抖
+
+不过这次不同的是没有第三次的时候那堆“金手指”“大国工匠”“火药雕刻师”的话术包了
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">说明实绩可以打烂某些人的嘴
+

@@ -11627,3 +11627,13 @@ symbol I 4.7-5.2，symbol II 5.17-6.6，该猜第三首新曲会不会是明天L
 
 这次小剧场如果也是系列曲相关，是不是要当断章狗了，符合你鸡吊胃口的一贯作风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 17327#       发表于 2024-6-8 00:00
+
+bml那个是真的假的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

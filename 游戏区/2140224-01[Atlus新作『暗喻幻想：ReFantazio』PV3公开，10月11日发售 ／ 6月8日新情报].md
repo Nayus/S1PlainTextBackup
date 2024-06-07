@@ -211,3 +211,33 @@ PV里主角手中的这本小说
 也是。虽然我都看得懂不会去考虑这些。2024了，号称全世界同步发售，sega自己本家的游戏都不去整这种锁区 ...</blockquote>
 atlus自己不做翻译，由sega代理中文的话就是这个结局了
 
+
+*****
+
+####  Piano-Forest  
+##### 424#         楼主| 发表于 2024-6-8 00:02
+
+6月8日到9日在东京秋叶原ATLUS FES上首次开展的试玩活动
+
+预览
+
+｢アトラスフェス｣ 内覧会レポート。『メタファー：リファンタジオ』を世界最速で遊べるアトラス初単独イベントが明日より開催へ
+[https://corriente.jp/atlusfes-preview-report/](https://corriente.jp/atlusfes-preview-report/)
+[https://www.gamer.ne.jp/news/202406070091/](https://www.gamer.ne.jp/news/202406070091/)
+
+*****
+
+####  Piano-Forest  
+##### 425#         楼主| 发表于 2024-6-8 00:06
+
+<img src="https://p.sda1.dev/18/9a579f09c0365d30b0f251d5e9171777/20240607_235523.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/7e32cd85bf2dc20f707e033ebf46743d/20240607_235324.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4ef19672ea8292d405e9000e1b7cc59e/20240607_235528.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3d774252a546a49872be04411cc26141/atlus-fes-2024-preview-photo4.webp" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/18/87ab9cbb8bdfb3899b93ead78c826b6b/20240608_000152.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f3580f1aeeab53ca2b7c046690b7cac0/18.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6cfdbabac7cac79272d7c93aa76aaf59/21.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/14c16d6e508557c75b4ad5a216f1394e/32.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/83f9639a98b4618a5a36336031bd8c6a/20240608_000149.jpg" referrerpolicy="no-referrer">
+

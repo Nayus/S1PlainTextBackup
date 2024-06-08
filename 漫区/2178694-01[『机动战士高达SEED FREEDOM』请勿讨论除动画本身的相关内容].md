@@ -1182,3 +1182,24 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 阿斯哈要是看到剧场版里拂晓这表现 ...</blockquote>
 这拂晓都能挡镇魂曲了，别说20台，100台都
 
+
+*****
+
+####  gary76  
+##### 1083#       发表于 2024-6-8 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157198&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 17:55</a>
+核弹头才炸死5万人，失踪10万人
+你说县城不…</blockquote>
+中亞大城差不多是這個大小了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 1084#       发表于 2024-6-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159251&amp;ptid=2178694" target="_blank">螺旋的小夜曲 发表于 2024-6-8 21:04</a>
+挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了 ...</blockquote>
+魅影宙斯射的是陽電子砲彈，正經的反物質武器
+射一炮就要換一根砲管，你可以看到曉卸裝備時砲管已經燒紅了
+

@@ -129,3 +129,16 @@
 
 田岛老爷子估计也不明白随手画的土著神怎么火成这样，不过能让老前辈连出两本同人志，武内社长估计很有成就感吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 12813#       发表于 2024-6-8 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158676&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-6-8 20:07</a>
+
+是这张吧，C104烟雾镜官本的亚克力立牌：
+
+（这上色不是很赞吗，螺旋社扫描机是什么毛病扫成那样...）</blockquote>
+老爷子在X上最新的发文都是在玩fgo<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -424,3 +424,11 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 
 试玩“剧情模式”：[https://youtu.be/JvV711RinGY](https://youtu.be/JvV711RinGY)
 
+
+*****
+
+####  Piano-Forest  
+##### 440#         楼主| 发表于 2024-6-8 12:24
+
+媒体发的试玩还挺多
+

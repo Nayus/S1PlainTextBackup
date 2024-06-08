@@ -431,3 +431,11 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 
 再展示一下自由在两人手上的战绩
 
+
+*****
+
+####  macos  
+##### 1011#       发表于 2024-6-8 12:20
+
+福田还是一如既往的省钱，稍远一点人脸就凑合了
+

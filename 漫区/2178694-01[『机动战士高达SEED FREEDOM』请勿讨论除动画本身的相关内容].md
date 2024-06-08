@@ -558,3 +558,27 @@ QQ图片20240608134519.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">剧场版之后seed干嘛还纠结设定，海虎高达别过脑乐呵下就行了
 
+
+*****
+
+####  tristanchien  
+##### 1024#       发表于 2024-6-8 15:33
+
+我现在看到命运拿着阿隆戴特嘴角就会上扬，这机子是真有点暴力美学的<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浅川雏羽  
+##### 1025#       发表于 2024-6-8 15:40
+
+只好用VR来弥补没上院线的遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/08/153950a2jayscyzocjsjyz.jpg" referrerpolicy="no-referrer">
+
+<strong>430.jpg</strong> (171.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 15:39 上传
+

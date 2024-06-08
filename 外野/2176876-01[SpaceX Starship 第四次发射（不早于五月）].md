@@ -5264,3 +5264,11 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 当然了，按照广泛定义Am-Be中子源也算反应堆，那RTG也算就是了……
 
+
+*****
+
+####  momol  
+##### 536#       发表于 2024-6-8 23:52
+
+星舰超重一级的溅落第三视角画面出来了https://m.weibo.cn/detail/5043130925323240#&amp;video
+

@@ -2466,3 +2466,11 @@ max三岗过了，仍旧没有金
 
 到康好歹是过了一次，而且那把居然没发狙，其他大部分情况都是打掉了辰龙，横岗有可能也击坠，而巨颚多半要剩半血
 
+
+*****
+
+####  Ryuuseigun  
+##### 4680#       发表于 2024-6-8 23:46
+
+这么多大润图还是下水道的平潮雾最难打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">随到基本过不了
+

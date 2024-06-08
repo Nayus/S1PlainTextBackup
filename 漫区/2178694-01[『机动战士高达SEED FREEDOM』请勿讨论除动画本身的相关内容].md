@@ -1408,3 +1408,38 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 这最后什么天顶星科技，这罩子放机战要碾压AT立场了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1105#       发表于 2024-6-8 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160648&amp;ptid=2178694" target="_blank">eilot 发表于 2024-6-8 23:18</a>
+看了新的HG版SF，沒有換背包換配件
+
+即是之後出的IG都是沒魔蟹裝甲吧</blockquote>
+HGCE非凡强自是完全新规的，而且板件已经规划好转水口开关（我前面的楼层里有圈出来）
+背包翅膀基本上都在独立板件上，强自贰式/非凡强自主体上与强自有差别的零件，可以一个不留地取消掉
+未来大概率会出个HGCE强自新生版，把翅膀换上HGCE非凡强自上就是HGCE强自贰式
+
+*****
+
+####  gundammarkⅡ  
+##### 1106#       发表于 2024-6-8 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160704&amp;ptid=2178694" target="_blank">露娜玛利亚 发表于 2024-6-8 23:25</a>
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前FT是不是在X上还是在放映会上说过，这段含义是小鸟自己搞砸了气氛，于是两人这晚尴尬地分开了
+
+
+*****
+
+####  混乱之雨  
+##### 1107#       发表于 2024-6-8 23:52
+
+本来73年顶配的固相光盾+相转移装甲，就已经把光防和物防两边都点到很高的程度了，除了大功率地图炮（联合的阳电子反射盾甚至可以挡阳电子炮），只能用光束剑和龙骑兵的刺钉破防
+
+75年黑骑士的ft装甲+光束披风，要光防不要物防，靠高出力的半实体刃（斩舰刀、光束战斧）和实体刀破防
+
+非凡强自的无敌领域（大概是观星者的升级版？）因为剧里就没破过防，除了地图炮没接，从导弹、胸炮、舰炮都吃了个遍，不知道近战和地图炮能不能破盾，这个没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

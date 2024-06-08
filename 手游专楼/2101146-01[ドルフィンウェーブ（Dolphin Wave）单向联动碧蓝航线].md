@@ -4222,3 +4222,11 @@ QQ图片20240210220843.jpg
 繁中服有消息了，但是还是之前代理闪乱凉掉的大宇，目前持观望态度</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">繁中服大多数代理游戏都是凉凉吧
 
+
+*****
+
+####  warerest1  
+##### 411#       发表于 2024-6-8 14:57
+
+繁中服还喜欢屏蔽大陆，真是喜欢自己玩死自己
+

@@ -1805,3 +1805,27 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 才发现居然没有我的麻将脸，这是区别对待！<img src="https://static.saraba1st.com/image/smiley/bundam2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gary76  
+##### 1136#       发表于 2024-6-9 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161364&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:21</a>
+阿斯兰也是胆子大的，敢让卡咖喱这水平远程遥控...
+
+这算两害取其轻（读心和卡咖喱的技术哪个更害真不好说 ...</blockquote>
+好像下頭前一大段都是咖哩在遙控操作的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  七七見奈波  
+##### 1137#       发表于 2024-6-9 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161819&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:50</a>
+
+粉毛双马尾不是同届么？粉毛说在学校排名比鸟高啊</blockquote>
+鸟是0基础后进生，一开始就差吊车尾了，是天才晚开工but努力就能飞速追上，比刚进军校的鸟排名高简直太容易了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">所以阿格妮斯看上过雷看上过基拉（眼看着现在又看上了月亮）就是没看上过鸟，因为她就没见过鸟很强的样子。排名估计是总成绩吧，月亮射击不行（种命最开始几话阿斯兰就说过她射击时有扭手腕的坏习惯所以射不准），但格斗是很厉害的，鸟的格斗还是月亮陪练的，理论知识和ms驾驶这块估计是雷给开的小灶。
+
+回头想想月光女武神这个册子表面上是补完阿格妮斯这人为啥那样（说一嘴强自被夺事件），但实际上讲的还是鸟，给种命鸟和月亮的关系、鸟和雷的关系打补丁
+

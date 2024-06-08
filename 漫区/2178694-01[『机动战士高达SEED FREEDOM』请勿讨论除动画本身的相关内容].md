@@ -2003,3 +2003,20 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 真的单纯就是作画不行
 
+
+*****
+
+####  Bani82  
+##### 1152#       发表于 2024-6-9 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162929&amp;ptid=2178694" target="_blank">ztgmeteor 发表于 2024-6-9 03:26</a>
+
+就这俩画风还算正常。
+
+你看前线的都是什么怪物，开领域硬吃舰队攻击顺便头炮切割的，宇宙女鬼硬抗读心开 ...</blockquote>
+所以才出戏啊，看看其他区域都是妖魔鬼怪！就这2个JK打架...
+
+顺便那船真的不是隔壁马库罗斯棚借来的天顶星科技么？单舰穿了人家一整个舰队
+
+最后就差福利蛋站在剑桥上来个shin shine spark
+

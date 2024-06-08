@@ -5045,3 +5045,22 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 不过其实可以用可变比冲磁等离子引擎加微波圈住（激光）远程输电，将发电装置和飞船分离，这样飞船就灵活多了。
 
+
+*****
+
+####  北朝论坛NorthDY  
+##### 519#       发表于 2024-6-8 09:26
+
+话说核动力推进是怎么进行的？就知道核电是高温烧水，核动力火箭怎样将热能转化为冲力？
+
+*****
+
+####  netcat  
+##### 520#       发表于 2024-6-8 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152019&amp;ptid=2176876" target="_blank">北朝论坛NorthDY 发表于 2024-6-8 09:26</a>
+话说核动力推进是怎么进行的？就知道核电是高温烧水，核动力火箭怎样将热能转化为冲力？ ...</blockquote>
+加热工质喷出去。你也可以把这个过程叫做烧开水<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

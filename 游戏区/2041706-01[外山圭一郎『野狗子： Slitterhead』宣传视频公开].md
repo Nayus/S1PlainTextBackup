@@ -1211,3 +1211,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 乳ps3了，虐杀原型动作都比这个强
 
+
+*****
+
+####  hootao  
+##### 132#       发表于 2024-6-8 09:33
+
+我觉得比起动作游戏，更像是款RPG，如龙8那种写实画风类型的
+

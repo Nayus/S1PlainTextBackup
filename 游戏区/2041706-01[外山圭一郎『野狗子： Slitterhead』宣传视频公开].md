@@ -1236,3 +1236,13 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 虽然可能两个游戏完全不相关，但pv给我的感觉这游戏像一个绯红结系超级劣化版
 
+
+*****
+
+####  PunkEgg  
+##### 135#       发表于 2024-6-8 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还能看到这种玩意
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

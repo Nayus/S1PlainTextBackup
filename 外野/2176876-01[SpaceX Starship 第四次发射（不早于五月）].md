@@ -5084,3 +5084,46 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 看到爱好者发现二级降落时澳大利亚有架私人飞机在落区盘旋，可能spacex雇佣的 不知道有没有啥精彩镜头，一路花火带闪电降落多科幻。
 
+
+*****
+
+####  右代宫嘉音  
+##### 523#       发表于 2024-6-8 11:17
+
+话说这次这么成功下次不会卡许可了吧？今年还能发几次？来自: iPhone客户端
+
+*****
+
+####  依然荏苒  
+##### 524#       发表于 2024-6-8 11:19
+
+色相头
+
+<img src="https://img.saraba1st.com/forum/202406/08/111931xf5lgitrftfr11fg.jpg" referrerpolicy="no-referrer">
+
+<strong>GPg60upWYAA5L1d.jpg</strong> (46.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 11:19 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/111931lcrq4ync77z0wtyt.jpg" referrerpolicy="no-referrer">
+
+<strong>GPg60XyXMAAUXSf.jpg</strong> (29.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 11:19 上传
+
+
+*****
+
+####  commcody  
+##### 525#         楼主| 发表于 2024-6-8 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152019&amp;ptid=2176876" target="_blank">北朝论坛NorthDY 发表于 2024-6-8 09:26</a>
+
+话说核动力推进是怎么进行的？就知道核电是高温烧水，核动力火箭怎样将热能转化为冲力？ ...</blockquote>
+发展最成熟的方案：加热液氢
+[https://www.bilibili.com/video/BV1Yi421U7ko](https://www.bilibili.com/video/BV1Yi421U7ko)
+

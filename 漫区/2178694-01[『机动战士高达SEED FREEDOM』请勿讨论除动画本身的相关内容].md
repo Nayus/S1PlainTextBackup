@@ -386,3 +386,11 @@ HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就�
 捍卫者为啥非要拉克丝最后亲自去送？阿斯兰第一次出击直接开出来不好吗？ ...</blockquote>
 这不就是为了男神女神最后一起战斗这碟醋呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1007#       发表于 2024-6-8 11:21
+
+虽然特典多但主打鸡X拉的好像只有animate，分的很明确
+

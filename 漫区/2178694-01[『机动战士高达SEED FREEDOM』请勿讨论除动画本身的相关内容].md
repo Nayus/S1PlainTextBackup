@@ -1443,3 +1443,59 @@ HGCE非凡强自是完全新规的，而且板件已经规划好转水口开关�
 
 非凡强自的无敌领域（大概是观星者的升级版？）因为剧里就没破过防，除了地图炮没接，从导弹、胸炮、舰炮都吃了个遍，不知道近战和地图炮能不能破盾，这个没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 1108#       发表于 2024-6-8 23:58
+
+人家分身也就是速度快有残影，鸟这分身是法术吧！
+
+*****
+
+####  blue321  
+##### 1109#       发表于 2024-6-8 23:59
+
+没太关注背景设定
+
+想请问一下剧场版时间点里的狼、卡嘉莉和美玲3人到底是啥关系？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  vuder  
+##### 1110#       发表于 2024-6-9 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161035&amp;ptid=2178694" target="_blank">blue321 发表于 2024-6-8 23:59</a>
+没太关注背景设定
+
+想请问一下剧场版时间点里的狼、卡嘉莉和美玲3人到底是啥关系？ ...</blockquote>
+没明说可能是正宫和小妾不是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  vuder  
+##### 1111#       发表于 2024-6-9 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160730&amp;ptid=2178694" target="_blank">Znesmoc 发表于 2024-6-8 23:27</a>
+命运，我的命运什么时候才给我开，这不朽正义真的是一秒都开不下去了</blockquote>
+命运才是真爱，露娜只是替代品<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  混乱之雨  
+##### 1112#       发表于 2024-6-9 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161035&amp;ptid=2178694" target="_blank">blue321 发表于 2024-6-8 23:59</a>
+
+没太关注背景设定
+
+想请问一下剧场版时间点里的狼、卡嘉莉和美玲3人到底是啥关系？ ...</blockquote>
+AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继续跟着狼做情报支援工作，就是纯洁的战友关系。旧seed几对，除了迪子和米莉分了，别的都锁死了，剩下的旧人里官方不存在舔狗或者三的关系了。
+
+剧版新人物里，黄毛是拉的舔狗，黄毛后面的妹子是黄毛的舔狗，阿格尼丝是绿茶biao
+

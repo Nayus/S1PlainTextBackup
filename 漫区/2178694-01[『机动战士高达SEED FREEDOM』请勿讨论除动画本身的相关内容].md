@@ -654,3 +654,33 @@ QQ图片20240608134519.jpg
 
 有没有小一点的资源，7g网盘下起来太费劲
 
+
+*****
+
+####  hcb77  
+##### 1033#       发表于 2024-6-8 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156479&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 16:44</a>
+
+开头打得这么激烈…结果平民损失还不如以色列轰炸
+
+甚至剧中整个蓝色波斯菊全球恐怖活动平民损失都还不如现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">调整者比较耐炸（心虚
+
+*****
+
+####  hcb77  
+##### 1034#       发表于 2024-6-8 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156593&amp;ptid=2178694" target="_blank">diyihaoshitu 发表于 2024-6-8 16:54</a>
+
+有没有小一点的资源，7g网盘下起来太费劲</blockquote>
+magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6
+
+*****
+
+####  we89623  
+##### 1035#       发表于 2024-6-8 17:10
+
+坐等非机翻字幕
+

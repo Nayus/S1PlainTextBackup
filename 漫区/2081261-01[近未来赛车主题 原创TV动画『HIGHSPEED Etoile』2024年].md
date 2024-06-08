@@ -82,3 +82,16 @@
 
 事后各种模拟后发现已经是最优解，其他选择大友只会更惨
 
+
+*****
+
+####  天剑流星  
+##### 386#       发表于 2024-6-8 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154042&amp;ptid=2081261" target="_blank">arachnid 发表于 2024-6-8 12:46</a>
+
+上半集ai接管跑预赛能跑第一，下半集又说不善长实战，要有人才行
+
+我：？？？ ...</blockquote>
+上半集那不是实战啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

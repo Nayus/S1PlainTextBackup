@@ -2334,3 +2334,13 @@ jackpot的世锦赛冠军名牌发了
 
 不过熊刷打光莹是真的爽，追着光莹跑
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4665#       发表于 2024-6-8 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么一直有人拿熊刷纵甩的，那么大的硬直还要甩，安安静静平推做好清杂的工作不好吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

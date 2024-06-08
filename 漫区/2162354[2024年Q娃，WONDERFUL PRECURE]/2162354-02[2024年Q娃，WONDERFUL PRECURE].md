@@ -1850,3 +1850,14 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 2024-6-9 00:09 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 1639#       发表于 2024-6-9 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160482&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-6-8 22:59</a>
+
+好A，感觉能把小雪扣爆，这下猫猫只有当0的份了</blockquote>
+本来猫主子发情也得是铲屎官用棉签去扣不是吗（错乱）
+

@@ -1686,3 +1686,33 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 所以修罗虽然被误导了但是还是顶住了正义一轮，但是重要的不是让卡卡代打搞定修罗，而是要修罗知道对面有 ...</blockquote>
 狼就没想过可能这一把之后就没然后了么
 
+
+*****
+
+####  novyDC  
+##### 1129#       发表于 2024-6-9 01:05
+
+才发现跟boss格斗的时候用了第二发头炮
+
+<img src="https://img.saraba1st.com/forum/202406/09/010436tajg1keo8wa3bgv3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-08-19-18-55-110_tv.danmaku.bili.jpg</strong> (611.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 01:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cxj649  
+##### 1130#       发表于 2024-6-9 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161826&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:51</a>
+
+至少从seed tv的感官来说是种子里的花园里吧，肯定到不了艾玛和塞拉的水平 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看外传花里胡哨牛鬼邪神们大部分的其实战斗力不及卡
+

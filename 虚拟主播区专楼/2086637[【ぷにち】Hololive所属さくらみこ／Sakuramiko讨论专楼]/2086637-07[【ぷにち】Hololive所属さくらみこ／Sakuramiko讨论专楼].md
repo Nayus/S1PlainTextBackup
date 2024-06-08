@@ -1063,3 +1063,26 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 今天SC6草，neta多得要爆炸了这2个月的直播
 
+
+*****
+
+####  rs5621  
+##### 8979#       发表于 2024-6-8 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被人吐槽胜利姿势了
+
+*****
+
+####  rs5621  
+##### 8980#       发表于 2024-6-8 20:43
+
+<img src="https://img.saraba1st.com/forum/202406/08/204325c5h8w55pyl3555g5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 20:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控血一丝反杀，真是被人小看了
+

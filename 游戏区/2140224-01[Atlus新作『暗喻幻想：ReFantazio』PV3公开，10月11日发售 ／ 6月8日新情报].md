@@ -499,3 +499,26 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 
 讲真展示的这些“极巨化persona”的设计真的够大够空够丑<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 446#         楼主| 发表于 2024-6-8 18:10
+
+【メタファー：リファンタジオ お知らせ✨】
+
+『メタファー：リファンタジオ』より、「ガリカ」、「ヒュルケンベルグ」が スケールフィギュア化決定！
+
+鋭意制作中です！続報をお待ちください！
+<img src="https://p.sda1.dev/18/a99e8fe10c618205f99014ab7868d83b/20240608_180951.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 447#         楼主| 发表于 2024-6-8 18:12
+
+今天的现场试玩卷好像到中午就切了
+<img src="https://p.sda1.dev/18/4dabf781413b5cd85de1bf718f20f810/IMG_20240608_125847.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/411cf158f17feadc9e3cc2d2eb08629f/IMG_20240608_180818.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/37dc1c1e8b333309abef0be7a45ef99f/65f7a633gy1hqhxzkkdt7j22tc240e81.jpg" referrerpolicy="no-referrer">
+

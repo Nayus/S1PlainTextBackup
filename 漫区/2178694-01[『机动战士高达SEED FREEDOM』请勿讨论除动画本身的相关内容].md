@@ -790,3 +790,20 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 
 打着克莱因旗号，拉克丝脸都没露啊
 
+
+*****
+
+####  blue321  
+##### 1046#       发表于 2024-6-8 18:05
+
+下头狼这段实际看到比想象中搞笑得多啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vuder  
+##### 1047#       发表于 2024-6-8 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157246&amp;ptid=2178694" target="_blank">mffx 发表于 2024-6-8 18:00</a>
+正因为威力小才随便放，这不是自洽了吗(笑)</blockquote>
+这核弹比日本挨的两发还要弱<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

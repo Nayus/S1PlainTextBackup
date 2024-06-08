@@ -5127,3 +5127,52 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 发展最成熟的方案：加热液氢
 [https://www.bilibili.com/video/BV1Yi421U7ko](https://www.bilibili.com/video/BV1Yi421U7ko)
 
+
+*****
+
+####  薄皮破船  
+##### 526#       发表于 2024-6-8 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65151361&amp;ptid=2176876" target="_blank">tsukatsukieiko 发表于 2024-6-8 07:57</a>
+
+关键是你氢气工质怎么办？
+
+能搞定的话那氢能源汽车肯定更好搞定。</blockquote>
+现在火箭上面级氢氧机用得多了，你说怎么办
+
+*****
+
+####  薄皮破船  
+##### 527#       发表于 2024-6-8 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152019&amp;ptid=2176876" target="_blank">北朝论坛NorthDY 发表于 2024-6-8 09:26</a>
+
+话说核动力推进是怎么进行的？就知道核电是高温烧水，核动力火箭怎样将热能转化为冲力？ ...</blockquote>
+要长久慢慢推，核电，要作为先进上面级，核热推，用核反应堆加热氢气
+
+没啥理论限制，就是工程和接收程度问题，美国人当年专门炸了一台反应堆来观察最糟结果
+
+*****
+
+####  netcat  
+##### 528#       发表于 2024-6-8 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153131&amp;ptid=2176876" target="_blank">依然荏苒 发表于 2024-6-8 11:19</a>
+色相头</blockquote>
+真的是GoPro吗？
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  依然荏苒  
+##### 529#       发表于 2024-6-8 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153552&amp;ptid=2176876" target="_blank">netcat 发表于 2024-6-8 11:58</a>
+
+真的是GoPro吗？
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+是吧 从猎鹰时代就是gopro了 之前太西洋捡到整流罩的渔民也是拆出来gopro5
+

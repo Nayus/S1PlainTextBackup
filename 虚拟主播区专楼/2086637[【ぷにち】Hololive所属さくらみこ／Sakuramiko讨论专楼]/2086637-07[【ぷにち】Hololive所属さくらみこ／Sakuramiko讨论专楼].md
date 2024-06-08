@@ -1107,3 +1107,32 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 这才是真正的neta升华懂吗特摄SB们
 
+
+*****
+
+####  holoan  
+##### 8983#         楼主| 发表于 2024-6-8 21:23
+
+<img src="https://img.saraba1st.com/forum/202406/08/212353x8v8uinlqyjipnp9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 21:23 上传
+
+*****
+
+####  holoan  
+##### 8984#         楼主| 发表于 2024-6-8 22:01
+
+<img src="https://img.saraba1st.com/forum/202406/08/220054ogvaxvofvhz7fgts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 22:00 上传
+
+已经有这么多了吗，果然联动曲占了大半
+

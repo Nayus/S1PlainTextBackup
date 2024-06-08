@@ -1822,3 +1822,14 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 ま~ゆ~
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷まゆ  
+##### 1637#       发表于 2024-6-8 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160594&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-8 23:12</a>
+
+ま~ゆ~</blockquote>
+<img src="https://p.sda1.dev/18/a45b1aeb9bc99be4d7c281924116e22e/35b17bdf.jpg" referrerpolicy="no-referrer">
+

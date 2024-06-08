@@ -1315,3 +1315,41 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 专门有镜头</blockquote>
 是延迟几分钟发射的第三发战术核弹炸掉的兵营那里吗。杂兵衣服都差不多真认不出谁是谁。那他们是事先就知道蓝色波斯菊在哪里扎营了
 
+
+*****
+
+####  魔天使  
+##### 1096#       发表于 2024-6-8 23:16
+
+看完，自由的新背包这么神棍吗，简则一下子跨越了2个代差
+
+*****
+
+####  eilot  
+##### 1097#       发表于 2024-6-8 23:18
+
+看了新的HG版SF，沒有換背包換配件
+
+即是之後出的IG都是沒魔蟹裝甲吧
+
+不知道RG版能否做出來
+
+
+*****
+
+####  aiplay1999  
+##### 1098#       发表于 2024-6-8 23:20
+
+阿湿狼的下头精神攻击我是真的没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vuder  
+##### 1099#       发表于 2024-6-8 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160487&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-8 23:00</a>
+千禧年的性能也是离谱，地表利用阳电子炮就能单舰突出大气层，超第一宇宙速度；宇宙中单舰突破黄毛舰队拦截 ...</blockquote>
+还有线控炮直接秒了ms
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -165,3 +165,13 @@ ami放开手脚跑暴打粉毛啊
 ami放开手脚跑暴打粉毛啊</blockquote>
 看成背后灵就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天剑流星  
+##### 393#       发表于 2024-6-8 17:36
+
+其实完全可以等价成游戏王zexal，虽然星光体可以暴打九十九游马，但是九十九游马不在星光体没办法跟那些高手竞技
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

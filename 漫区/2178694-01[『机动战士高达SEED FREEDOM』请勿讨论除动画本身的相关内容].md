@@ -730,3 +730,34 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 这个议长的比例</blockquote>
 远景所有人都是3d大头娃娃
 
+
+*****
+
+####  菲特妹  
+##### 1040#       发表于 2024-6-8 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没官方粤语字幕版的，那个翻译有点意思
+
+
+*****
+
+####  Helgarose  
+##### 1041#       发表于 2024-6-8 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156886&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 17:23</a>
+
+更加离谱的是核弹放在边境给人突袭，还是用对地低空导弹发射…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">一炮空爆把牛逼国的首都扬了。你的首都是拿硬纸板搭的么
+
+
+*****
+
+####  vuder  
+##### 1042#       发表于 2024-6-8 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157034&amp;ptid=2178694" target="_blank">Helgarose 发表于 2024-6-8 17:39</a>
+然后那个战术核弹(小说出处)一炮空爆把牛逼国的首都扬了。你的首都是拿硬纸板搭的么 ...</blockquote>
+中东小国首都小理解下，就一个县城<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+问题是谁把这种威力的核弹拖到前线不，还可以直接发射，不怕军头造反啊
+

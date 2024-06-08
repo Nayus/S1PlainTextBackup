@@ -272,3 +272,19 @@ nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
 GPT翻译的中文字幕，有需要自取，链接：[https://pan.baidu.com/s/1-YmS4j8CQSFkL_tcQ8-71Q](https://pan.baidu.com/s/1-YmS4j8CQSFkL_tcQ8-71Q) 提取码：75fm
 
+
+*****
+
+####  gundammarkⅡ  
+##### 997#       发表于 2024-6-8 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">MR魂这边是两台贰式，荣耀捍卫者与特效出个配件包
+
+<img src="https://img.saraba1st.com/forum/202406/08/092025i529hjptjtmkoo6z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240608_091653_com.twitter.android_edit_5821162907990912.jpg</strong> (639.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 09:20 上传
+

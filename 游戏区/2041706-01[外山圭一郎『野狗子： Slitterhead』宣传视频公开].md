@@ -1203,3 +1203,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 感觉这是又整了个幽灵线东京出来了，看pv动作好僵硬啊
 
+
+*****
+
+####  lucasxp  
+##### 131#       发表于 2024-6-8 09:24
+
+乳ps3了，虐杀原型动作都比这个强
+

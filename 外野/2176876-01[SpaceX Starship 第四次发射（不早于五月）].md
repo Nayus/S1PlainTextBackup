@@ -5235,3 +5235,17 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 丫说的压根不是你现在说的供电这些，丫以为核动力就是深空烧几个月火箭推进········
 
+
+*****
+
+####  tsukatsukieiko  
+##### 534#       发表于 2024-6-8 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154780&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-8 13:58</a>
+
+不是，你眼里的深空到底是啥？现在打深空的氢氧第三级全部被你开除了是不是？？？
+
+你为啥觉得非要保存几 ...</blockquote>
+你说的不就是EDS么……你看看我写的啥再说好吧？
+ <blockquote>最好最好，用于LEO到TLI的拖车，就这样还要搞在轨加注液氢。至于一次性EDS可以当做屁用没有了，就是用硝糖推进剂都更合适，至少不用三天两头打个气冷快堆上天。</blockquote>
+

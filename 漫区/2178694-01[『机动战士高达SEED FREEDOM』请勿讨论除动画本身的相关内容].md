@@ -1353,3 +1353,43 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  露娜玛利亚  
+##### 1100#       发表于 2024-6-8 23:25
+
+<img src="https://img.saraba1st.com/forum/202406/08/232422z1lwkhq03zalqrag.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240608232353.png</strong> (62.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 23:24 上传
+
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Znesmoc  
+##### 1101#       发表于 2024-6-8 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160704&amp;ptid=2178694" target="_blank">露娜玛利亚 发表于 2024-6-8 23:25</a>
+
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">命运，我的命运什么时候才给我开，这不朽正义真的是一秒都开不下去了
+
+有一说一鸟看露娜都没看到命运那么两眼放光过
+
+*****
+
+####  eilot  
+##### 1102#       发表于 2024-6-8 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160704&amp;ptid=2178694" target="_blank">露娜玛利亚 发表于 2024-6-8 23:25</a>
+
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
+因為他們都是軍人，更是高級的紅衣，所以每次都要忍下去吧...
+
+好吧那位種命之後變成白衣，之後搞出那麼多事情，但還是和拉克絲一次沒發生...之前看海也是分開睡
+

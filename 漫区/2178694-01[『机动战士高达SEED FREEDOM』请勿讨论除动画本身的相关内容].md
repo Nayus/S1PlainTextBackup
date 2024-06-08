@@ -1617,3 +1617,39 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 虽然这里鸟有戏弄女友， ...</blockquote>
 我还以为是MS的格斗战
 
+
+*****
+
+####  马桶3  
+##### 1123#       发表于 2024-6-9 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161364&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:21</a>
+
+阿斯兰也是胆子大的，敢让卡咖喱这水平远程遥控...
+
+这算两害取其轻（读心和卡咖喱的技术哪个更害真不好说 ...</blockquote>
+所以修罗虽然被误导了但是还是顶住了正义一轮，但是重要的不是让卡卡代打搞定修罗，而是要修罗知道对面有代打这一招，从而在读心预判对面动作时产生犹豫，升至干脆不读心技术硬刚，狼的目的其实是封了对面预读，然后靠实力阴死他<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 1124#       发表于 2024-6-9 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161364&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:21</a>
+
+阿斯兰也是胆子大的，敢让卡咖喱这水平远程遥控...
+
+这算两害取其轻（读心和卡咖喱的技术哪个更害真不好说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡咖喱真不弱，到外传也是前几名的
+
+
+*****
+
+####  cxj649  
+##### 1125#       发表于 2024-6-9 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161345&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:19</a>
+
+还有这设定！？真的从没看出来月亮格斗比鸟强的</blockquote>
+设定月亮是鸟雷那届红衣格斗NO1，换射击机器她自己说法想多联系短处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12193,3 +12193,73 @@ b站是有字幕的吗</blockquote>
 b站是有字幕的吗</blockquote>
 没有，所以说。。。
 
+
+*****
+
+####  cherryjia12  
+##### 17390#       发表于 2024-6-8 17:58
+
+ 本帖最后由 cherryjia12 于 2024-6-8 17:59 编辑 
+
+好像看错了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  yifan8848  
+##### 17391#       发表于 2024-6-8 18:03
+
+木頭人聲線怎麼變了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17392#       发表于 2024-6-8 18:04
+
+剛剛睦的聲線嚇到我了！
+
+*****
+
+####  rikaren  
+##### 17393#       发表于 2024-6-8 18:13
+
+双月和黑色生日连着演奏吗？wsd你最好记得鼓手还是血肉之躯
+
+*****
+
+####  NODY  
+##### 17394#       发表于 2024-6-8 18:16
+
+双月不愧是初祥曲，互动太多了
+
+*****
+
+####  yifan8848  
+##### 17395#       发表于 2024-6-8 18:17
+
+謝謝ob子，初祥吃得好飽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17396#       发表于 2024-6-8 18:18
+
+祥子你也太操喵夢了，天啊雙月接黑生這是人幹的事嗎<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 17397#       发表于 2024-6-8 18:18
+
+有点针对大喵了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 17398#       发表于 2024-6-8 18:19
+
+我草，双月和黑色生日连着演奏，wsd你是又想飞马了吗
+

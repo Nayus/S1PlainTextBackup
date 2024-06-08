@@ -807,3 +807,62 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 正因为威力小才随便放，这不是自洽了吗(笑)</blockquote>
 这核弹比日本挨的两发还要弱<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1048#       发表于 2024-6-8 18:17
+
+ 本帖最后由 gundammarkⅡ 于 2024-6-8 18:20 编辑 
+
+合着你们两家子用同一台车？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/08/181417g0xgooloujo59ouw.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1717841351440b4e309c1b69fbe8bf2eecdd3b8f90c35dee30acfa2e8e9ba84a259f36d6e5605.jpg</strong> (204.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:14 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/181419htqdqhxen0tdex4t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240608_180713_tv.danmaku.bilibilihd.jpg</strong> (212.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:14 上传
+
+车牌都是13B-MSP LA-SE3P
+
+<img src="https://img.saraba1st.com/forum/202406/08/181421fjouzs8hvp2px8r2.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17178414235034e99b2132b7b4642e38b20aa93ff2b54497cd8e6c24b7819bafcd9b09999094b.jpg</strong> (80.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:14 上传
+
+车型是高智能方程式里的GIO NEO G.S.X.，尾翼可升降（种命里阿斯兰载基拉时有升起），好像高智能方程式动画里没有收纳顶蓬
+
+
+*****
+
+####  oi99o  
+##### 1049#       发表于 2024-6-8 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156989&amp;ptid=2178694" target="_blank">菲特妹 发表于 2024-6-8 17:34</a>
+有没官方粤语字幕版的，那个翻译有点意思</blockquote>
+有官方粤字吗，香港上映的不是书面语字幕吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  novyMS  
+##### 1050#       发表于 2024-6-8 18:25
+
+不得不说 剧场版真的够乐的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

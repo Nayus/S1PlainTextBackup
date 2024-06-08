@@ -1854,3 +1854,34 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 这奥布应该统治全世界了,随便地下拉出来机台机体,谁打得过?
 
+
+*****
+
+####  hcb77  
+##### 1141#       发表于 2024-6-9 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156886&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 17:23</a>
+
+更加离谱的是核弹放在边境给人突袭，还是用对地低空导弹发射…</blockquote>
+那个是巡航导弹啊
+
+边境也没啥问题吧，本身f国就和欧亚是高压状态
+
+*****
+
+####  hcb77  
+##### 1142#       发表于 2024-6-9 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160791&amp;ptid=2178694" target="_blank">Mikumiku831 发表于 2024-6-8 23:34</a>
+
+还在想为什么狼开自由1V1的时候感觉还游刃有余 一看换机的时候直接把强自一半的电用没了  ...</blockquote>
+驾驶台右手边有三个仪表
+
+右上角的是电量
+
+左下角的是推进剂
+
+左上角的是冷却剂
+
+这些都是有字幕的
+

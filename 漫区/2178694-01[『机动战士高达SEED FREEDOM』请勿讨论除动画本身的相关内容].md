@@ -704,3 +704,29 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 调整者比较耐炸（心虚</blockquote>
 更加离谱的是核弹放在边境给人突袭，还是用对地低空导弹发射…
 
+
+*****
+
+####  KDConan  
+##### 1038#       发表于 2024-6-8 17:32
+
+这个议长的比例<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+1.jpg
+(58.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/173208wxx2yddf0ho020s0.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  vuder  
+##### 1039#       发表于 2024-6-8 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156965&amp;ptid=2178694" target="_blank">KDConan 发表于 2024-6-8 17:32</a>
+这个议长的比例</blockquote>
+远景所有人都是3d大头娃娃
+

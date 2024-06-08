@@ -469,3 +469,27 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 
 看了一下是机翻
 
+
+*****
+
+####  二阶堂真琉  
+##### 1015#       发表于 2024-6-8 13:45
+
+截了好多命运，大满足<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+QQ图片20240608134519.jpg
+(174.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 13:45 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/134533hynfppipznltldpx.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  枫雨  
+##### 1016#       发表于 2024-6-8 13:47
+
+这么久都没有非机翻字幕，种真成时泪了
+

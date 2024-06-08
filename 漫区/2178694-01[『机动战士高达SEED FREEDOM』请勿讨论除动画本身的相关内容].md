@@ -248,3 +248,11 @@ nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ameyoru  
+##### 995#       发表于 2024-6-8 08:43
+
+看了前面一点，纯纯的TV版的制作水平，除了机体用上了3D不容易走形之外，剩下的一崩再崩<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

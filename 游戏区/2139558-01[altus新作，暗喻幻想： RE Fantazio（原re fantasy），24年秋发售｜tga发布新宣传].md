@@ -90,3 +90,23 @@ ATLUS品牌35周年数字纪念版是本次推出的特别版，其中包含“�
 
 一个微软独不占，一个索尼独不占是吧
 
+
+*****
+
+####  ultraseven  
+##### 550#       发表于 2024-6-8 08:49
+
+舅妈发的35周年纪念版
+
+<img src="https://pbs.twimg.com/media/GPgoT8UWwAAKJNM?format=jpg&amp;name=large" height="600" id="aimg_xnszM" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+*****
+
+####  ultraseven  
+##### 551#       发表于 2024-6-8 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65151483&amp;ptid=2139558" target="_blank">风景很好 发表于 2024-6-8 08:17</a>
+
+一个微软独不占，一个索尼独不占是吧</blockquote>
+啥？目前只是NS独不占啊，未来会上NS2
+

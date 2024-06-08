@@ -1058,3 +1058,30 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 总裁舞会为啥要装嫩
 
+
+*****
+
+####  永恒的王牌  
+##### 1070#       发表于 2024-6-8 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159043&amp;ptid=2178694" target="_blank">macos 发表于 2024-6-8 20:44</a>
+总裁舞会为啥要装嫩</blockquote>
+有没有可能总裁也是二十代的青春少女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  macos  
+##### 1071#       发表于 2024-6-8 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159066&amp;ptid=2178694" target="_blank">永恒的王牌 发表于 2024-6-8 20:46</a>
+有没有可能总裁也是二十代的青春少女</blockquote>
+即使二十多梳双马尾也是要很大勇气啊，况且还要维持职位
+
+
+*****
+
+####  ttal  
+##### 1072#       发表于 2024-6-8 20:54
+
+在等两天等好一点的翻译，这几天端午节大组都休假了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

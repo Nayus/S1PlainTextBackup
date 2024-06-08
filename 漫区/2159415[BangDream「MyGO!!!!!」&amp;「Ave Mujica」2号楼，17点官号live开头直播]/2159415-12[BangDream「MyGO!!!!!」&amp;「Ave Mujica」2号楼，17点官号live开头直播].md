@@ -11817,3 +11817,85 @@ bml那个是真的假的？
 
 好nb的运营，小剧场不能播在演出开始前一小时才说
 
+
+*****
+
+####  PDQ4  
+##### 17346#       发表于 2024-6-8 16:17
+
+还有43分钟，eplus还没放人进去，我入场的小曲儿呢
+
+*****
+
+####  御幸一也  
+##### 17347#       发表于 2024-6-8 16:17
+
+早叫你們買eplus，有什麼理由買B站的嘛，這麼喜歡給這個語C智障營運送錢嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17348#       发表于 2024-6-8 16:18
+
+ 本帖最后由 PDQ4 于 2024-6-8 16:19 编辑 
+
+这是临时通知没有小剧场？这么牛逼吗B站<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+我是因为讨厌那个号运营才切了，这下血赚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17349#       发表于 2024-6-8 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这语C运营给大家伙整个活，实在是幽默儿
+
+*****
+
+####  akirakira  
+##### 17350#       发表于 2024-6-8 16:20
+
+这算不算欺诈消费者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我买的eplus
+
+*****
+
+####  rikaren  
+##### 17351#       发表于 2024-6-8 16:21
+
+ 本帖最后由 rikaren 于 2024-6-8 16:23 编辑 
+
+退款和举报总得拿下一个。B站不能退款那就研究下怎么举报让这逆天运营多长长记性，这么个操作是真不怕脱坑回踩。
+
+*****
+
+####  鳥栖朝  
+##### 17352#       发表于 2024-6-8 16:21
+
+幽默完了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PDQ4  
+##### 17353#       发表于 2024-6-8 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">B号运营怎么遇鸡总有笑话，占比是不是过高了
+
+这么八字不和要不吐回给老号吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 17354#       发表于 2024-6-8 16:24
+
+<img src="https://img.saraba1st.com/forum/202406/08/162328kk4z01ajj56vj2f8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2439.jpeg</strong> (830.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 16:23 上传
+
+现地待机，位置好偏
+

@@ -1929,3 +1929,39 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 厉害是在军校的成绩而已，阿格尼丝是靠家里关系在月面战役（镇魂曲战役）摆烂打了几台windam+宣传吹逼所 ...</blockquote>
 就实际表现看其实还好，如果老老实实摆正态度，未必会差露娜。
 
+
+*****
+
+####  hcb77  
+##### 1146#       发表于 2024-6-9 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162806&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-9 02:53</a>
+
+就实际表现看其实还好，如果老老实实摆正态度，未必会差露娜。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">开强人那边和40%电量的露娜打就鞭子拆了咖喱棒，然后反手两个烁刃直接同时废了鞭子和光束镰斧
+
+换光束薙刀被脉冲空装单剑拆了
+
+看不出有哪里强了。。
+
+强人比脉冲强毫无疑问吧
+
+*****
+
+####  Bani82  
+##### 1147#       发表于 2024-6-9 02:58
+
+这版强人和勇士的机设倒是不错
+
+*****
+
+####  Bani82  
+##### 1148#       发表于 2024-6-9 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162822&amp;ptid=2178694" target="_blank">hcb77 发表于 2024-6-9 02:57</a>
+
+开强人那边和40%电量的露娜打就鞭子拆了咖喱棒，然后反手两个烁刃直接同时废了鞭子和光束镰斧
+
+换光束薙刀 ...</blockquote>
+这2女人打架大概是整个战场最出戏的地方，边上都完全没人理她们
+

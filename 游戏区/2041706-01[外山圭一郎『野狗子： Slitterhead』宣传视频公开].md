@@ -1172,3 +1172,26 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 看起来没什么意思
 
+
+*****
+
+####  plok201  
+##### 127#       发表于 2024-6-8 08:09
+
+这宣传最让人好奇的不是游戏怎么玩，而是为啥想不开要做动作类......
+
+*****
+
+####  青色精灵の最期  
+##### 128#       发表于 2024-6-8 08:12
+
+看的我目瞪口呆，怎么会这么烂<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6x6z6w  
+##### 129#       发表于 2024-6-8 08:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看着像PS3时代的游戏，他们是怎么做到的
+

@@ -5249,3 +5249,18 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 你说的不就是EDS么……你看看我写的啥再说好吧？
  <blockquote>最好最好，用于LEO到TLI的拖车，就这样还要搞在轨加注液氢。至于一次性EDS可以当做屁用没有了，就是用硝糖推进剂都更合适，至少不用三天两头打个气冷快堆上天。</blockquote>
 
+
+*****
+
+####  tsukatsukieiko  
+##### 535#       发表于 2024-6-8 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153825&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-8 12:25</a>
+
+主要是深空探测不能用帆板，太阳能用在土木圈内已经是极限，超过了就要上堆
+
+另外就是太阳能面积太大 ...</blockquote>
+外行星探测老老实实上RTG+霍尔电推，别想什么反应堆这类需要动部件的~
+
+当然了，按照广泛定义Am-Be中子源也算反应堆，那RTG也算就是了……
+

@@ -256,3 +256,19 @@ nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
 看了前面一点，纯纯的TV版的制作水平，除了机体用上了3D不容易走形之外，剩下的一崩再崩<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwemiku  
+##### 996#       发表于 2024-6-8 09:00
+
+机动战士高达SEED FREEDOM  機動戦士ガンダムSEED FREEDOM (2024)  AMZN1080p生肉+外挂日字 
+
+夸克 [http://t.cn/A6Hdo1OK](http://t.cn/A6Hdo1OK)  
+
+度盘 [http://t.cn/A6Hdo1O9](http://t.cn/A6Hdo1O9)  
+
+提取码：6868
+
+GPT翻译的中文字幕，有需要自取，链接：[https://pan.baidu.com/s/1-YmS4j8CQSFkL_tcQ8-71Q](https://pan.baidu.com/s/1-YmS4j8CQSFkL_tcQ8-71Q) 提取码：75fm
+

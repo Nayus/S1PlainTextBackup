@@ -350,3 +350,11 @@ ATLUS品牌35周年数字纪念版：HK$748
 <img src="https://p.sda1.dev/18/877f5c932091b9ab2b6156f95fb60465/20240608_080339.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/4fa0bdf902377463bee359821cff158e/atlas_38.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fujin  
+##### 433#       发表于 2024-6-8 09:15
+
+这游戏定价比女神异闻录3r便宜不少啊，好奇怪的操作
+

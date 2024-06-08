@@ -366,3 +366,19 @@ XD
 <img src="https://img.chkaja.com/0f2c31e603ae6fdd.png" referrerpolicy="no-referrer">
 <img src="https://img.chkaja.com/6f25a4602b2418eb.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zjoi  
+##### 270#       发表于 2024-6-8 09:11
+
+石神万棒还不至于，平均同接大概8K多一点
+
+不过考虑到她仅仅18万的订阅，以及铁粉率高这点来看，未来稳定过万的概率挺大的
+
+其实本来新虹女代表感觉是选石神的，去年阿委拉抬过，没联动过的皇女也经常提起
+
+不过估计石神太懒散+根正苗红的琉璃横空出世
+
+不靠谱的石神宝宝就成废太子了😂
+

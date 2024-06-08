@@ -118,3 +118,11 @@ ATLUS品牌35周年数字纪念版是本次推出的特别版，其中包含“�
 
 啥，豪华版里有跟堀井雄二的对谈？
 
+
+*****
+
+####  kuarwbwe  
+##### 553#       发表于 2024-6-8 09:48
+
+普通版298可还行。这是日厂定价吗？虽然考虑到几年以后还会有完全版我肯定不买。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

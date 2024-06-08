@@ -608,3 +608,41 @@ QQ图片20240608134519.jpg
 
 都20年了，能出个合家欢喜剧做个结尾我已经很满足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑三连被干死的那两位：合着我俩不配合家欢是吧？
 
+
+*****
+
+####  vuder  
+##### 1029#       发表于 2024-6-8 16:44
+
+开头打得这么激烈…结果平民损失还不如以色列轰炸
+甚至剧中整个蓝色波斯菊全球恐怖活动平民损失都还不如现实以色列现在导致的巴勒斯坦伤亡…
+
+还是缺乏想象力啊
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  vuder  
+##### 1030#       发表于 2024-6-8 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65151672&amp;ptid=2178694" target="_blank">Ameyoru 发表于 2024-6-8 08:43</a>
+看了前面一点，纯纯的TV版的制作水平，除了机体用上了3D不容易走形之外，剩下的一崩再崩，当然，看是肯定要 ...</blockquote>
+一远景就一堆大头娃娃搞笑死了
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  vuder  
+##### 1031#       发表于 2024-6-8 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65155418&amp;ptid=2178694" target="_blank">妄想系同盟 发表于 2024-6-8 14:56</a>
+看到过繁中的枪版，但一半被遮住了
+
+这是996楼gpt翻译的字幕版本吗？</blockquote>
+这个版本字幕好点
+【【修正字幕版】机动战士高达SEED FREEDOM（2024） 4K超清无删减-哔哩哔哩】 https://b23.tv/pn9EMUh
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

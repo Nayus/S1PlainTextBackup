@@ -493,3 +493,24 @@ QQ图片20240608134519.jpg
 
 这么久都没有非机翻字幕，种真成时泪了
 
+
+*****
+
+####  940045933  
+##### 1017#       发表于 2024-6-8 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154657&amp;ptid=2178694" target="_blank">枫雨 发表于 2024-6-8 13:47</a>
+这么久都没有非机翻字幕，种真成时泪了</blockquote>
+这种2小时剧场版的字幕哪有这么快做出来
+
+—— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  oi99o  
+##### 1018#       发表于 2024-6-8 13:53
+
+之前枪版没人做外挂字幕吗，按道理微调一下就能匹配了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4842,3 +4842,26 @@ ar唯一翻身的机会就是光能者全家都没有坚固部位，并且整体
 
 以上三点不满，其实本来都有比较柔和的过渡或者处理方式（例如第一点其实游戏发售前也是这么写的，因为技术原因才没有强制要求），但是搭配时机或回复态度不合理的公关，导致玩家群体反弹有时非常剧烈，加上贴吧看到的所谓“私聊 dev 得到的回复”，感觉现在这个工作室内部管理挺混乱的。游戏还是好玩的，但现在也对未来内容的发展要打一个巨大的❓
 
+
+*****
+
+####  Aeons  
+##### 4881#       发表于 2024-6-8 09:22
+
+之前好像有人说夏游节有消息，是不是毛都没有
+
+*****
+
+####  DawnGuardian  
+##### 4882#       发表于 2024-6-8 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65151976&amp;ptid=2170852" target="_blank"> Aeons 发表于 2024-6-8 09:22</a> 之前好像有人说夏游节有消息，是不是毛都没有 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为之前的夏日节预热宣传片里有hd2片段，谁能想到正片里毫无hd2痕迹，真有你的呀贱头来自: iPhone客户端
+
+*****
+
+####  FLZB  
+##### 4883#       发表于 2024-6-8 11:34
+
+也没货了啊，债卷pv前天就放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

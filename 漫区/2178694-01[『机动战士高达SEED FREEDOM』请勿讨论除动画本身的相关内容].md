@@ -394,3 +394,11 @@ HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就�
 
 虽然特典多但主打鸡X拉的好像只有animate，分的很明确
 
+
+*****
+
+####  we89623  
+##### 1008#       发表于 2024-6-8 11:28
+
+非机翻的字幕还没吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

@@ -304,3 +304,22 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 数量少了照样露怯
 
+
+*****
+
+####  jbjack1215  
+##### 573#       发表于 2024-6-8 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154213&amp;ptid=2139558" target="_blank">医生狼多 发表于 2024-6-8 13:03</a>
+
+《暗喻幻想 ReFantazio》中文版实机试玩「迷宫篇」，其中的内容是游戏初期迷宫「被占领的大圣堂」。视频来 ...</blockquote>
+解锁羁绊就是解锁职业
+
+个体使用魔法是原形技，双人技能是综合技
+
+感觉像是异世界p，不是smt
+
+跑图可以直接清理杂鱼不用进战斗
+
+敌人也没有属性相克，这系统深度怎么保证阿，还有什么展示提到的其他内容吗
+

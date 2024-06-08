@@ -145,3 +145,41 @@ ATLUS品牌35周年数字纪念版是本次推出的特别版，其中包含“�
 《暗喻幻想 ReFantazio》23分钟实机试玩视频。今日在东京秋叶原举办的ATLUS FES活动里提供试玩，可以从剧情、迷宫、BOSS战三种模式中选择其一游玩，视频中游玩的是剧情部分。
 本作将于2024年10月11日发售，登陆PS5/4、XSX|S与PC。 http://t.cn/A6HdmJy3 ​​​
 
+
+*****
+
+####  jbjack1215  
+##### 556#       发表于 2024-6-8 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152681&amp;ptid=2139558" target="_blank">医生狼多 发表于 2024-6-8 10:35</a>
+
+《暗喻幻想 ReFantazio》23分钟实机试玩视频。今日在东京秋叶原举办的ATLUS FES活动里提供试玩，可以从剧情 ...</blockquote>
+有人搬试玩录像吗
+
+*****
+
+####  医生狼多  
+##### 557#         楼主| 发表于 2024-6-8 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152737&amp;ptid=2139558" target="_blank">jbjack1215 发表于 2024-6-8 10:40</a>
+有人搬试玩录像吗</blockquote>
+目前没看到，不过官方给的demo差不多就是这个链接里的内容吧
+
+*****
+
+####  医生狼多  
+##### 558#         楼主| 发表于 2024-6-8 10:42
+
+ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《暗喻幻想：ReFantazio》阿基态（职业系统）篇”。由总监桥野桂在节目中向大家介绍本作的魅力之处。
+
+要点整理：
+· 阿基态有14个系统，40种以上
+· 随着战斗阿基态可以升级获得各种技能，还可以进化为高阶阿基态
+· 各个阿基态都有专用的造型设计，装备角色也会随阿基态改变外观
+· 有阿基态组合技，根据队伍各成员的阿基态组合决定
+· 有继承技能系统
+· 阿基态还拥有各自的迷宫探索类技能
+· 游戏中并不存在需要特定阿基态组合才能攻略的迷宫
+· 游戏中可随时变更难度，另外战斗有重来功能
+· 攻略时可以参考其它玩家的组队，并可一键切换 http://t.cn/A6Hduer3
+

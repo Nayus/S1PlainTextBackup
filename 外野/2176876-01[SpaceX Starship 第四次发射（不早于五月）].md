@@ -5064,3 +5064,23 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  依然荏苒  
+##### 521#       发表于 2024-6-8 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65145152&amp;ptid=2176876" target="_blank">四号舰美浓 发表于 2024-6-7 17:33</a>
+
+新结构的襟翼出现在星舰工厂。
+
+实际上安装位置更靠近星舰二级背侧的设计一年以前就已经提出了，但是直到 ...</blockquote>
+因为s29的翅膀实际是s21的后者改成hls模拟机了 s29去年就完工了 当然新结构不会上。
+
+*****
+
+####  依然荏苒  
+##### 522#       发表于 2024-6-8 11:15
+
+看到爱好者发现二级降落时澳大利亚有架私人飞机在落区盘旋，可能spacex雇佣的 不知道有没有啥精彩镜头，一路花火带闪电降落多科幻。
+

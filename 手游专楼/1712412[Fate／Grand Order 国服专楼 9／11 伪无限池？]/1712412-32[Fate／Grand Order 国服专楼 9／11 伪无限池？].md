@@ -604,3 +604,11 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 点了一键领取，480个银芙芙堆一块了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lcn  
+##### 46440#       发表于 2024-6-8 11:12
+
+喷了，怎么几百个芙芙，只能卖了？
+

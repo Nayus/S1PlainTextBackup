@@ -365,3 +365,24 @@ HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就�
 
 硬要说的话狼是为了调虎离山救拉，sf2龙骑兵花样比较多好拖时间，捍卫者只有一招大杀器地图炮，用了对方可能就鱼死网破先把拉祭旗了，都怪ft取消了捍卫者的龙骑兵设定
 
+
+*****
+
+####  starring  
+##### 1005#       发表于 2024-6-8 11:11
+
+高清看到的细节更清楚了
+
+剑脉不到20%的电量打满状态的强人撑到没电，只损失了两把对舰刀和烁刃，强人这边鞭子斧头都毁了，盾牌也被划开一道口，阿格尼丝太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+命运用五连斩都是双手持刀，黑骑士单手架盾，最后时盾牌撑不住被劈开两半，这样看命运的出力确实比黑骑士低
+
+*****
+
+####  gundammarkⅡ  
+##### 1006#       发表于 2024-6-8 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152834&amp;ptid=2178694" target="_blank">RE㐅ia 发表于 2024-6-8 10:50</a>
+捍卫者为啥非要拉克丝最后亲自去送？阿斯兰第一次出击直接开出来不好吗？ ...</blockquote>
+这不就是为了男神女神最后一起战斗这碟醋呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

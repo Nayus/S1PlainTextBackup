@@ -386,3 +386,25 @@ ATLUS品牌35周年数字纪念版：HK$748
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  heseran  
+##### 436#       发表于 2024-6-8 11:14
+
+过几天先玩SMTVV，然后玩黑猴子，然后正好可以玩暗喻幻想<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 437#       发表于 2024-6-8 11:14
+
+怪设有点绯红结系那意思
+
+*****
+
+####  黄泉川此方  
+##### 438#       发表于 2024-6-8 11:15
+
+PV看着感觉普普通通<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -892,3 +892,32 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 
 有组做字幕了吗
 
+
+*****
+
+####  super_uni  
+##### 1054#       发表于 2024-6-8 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157430&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-8 18:17</a>
+合着你们两家子用同一台车？</blockquote>
+遥想当年姨丈还在的时候两人只敢缩在窝里看海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  欧金金  
+##### 1055#       发表于 2024-6-8 18:49
+
+这个版本跟BD差别大吗
+
+
+*****
+
+####  vuder  
+##### 1056#       发表于 2024-6-8 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157846&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-6-8 18:49</a>
+这个版本跟BD差别大吗</blockquote>
+哪来的bd<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+

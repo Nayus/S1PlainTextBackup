@@ -12464,3 +12464,58 @@ b站是有字幕的吗</blockquote>
 叔叔真是超级敏感啊</blockquote>
 这种事到底出在谁问题上应该都能清楚吧，叔叔反而也算受害者了。
 
+
+*****
+
+####  bindata  
+##### 17419#       发表于 2024-6-8 18:36
+
+曲目单
+
+*****
+
+####  bindata  
+##### 17420#       发表于 2024-6-8 18:38
+
+<blockquote>bindata 发表于 2024-6-8 18:36
+曲目单</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/08/183834xly4mvlx1l949lxp.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:38 上传
+
+*****
+
+####  rikaren  
+##### 17421#       发表于 2024-6-8 18:39
+
+<img src="https://img.saraba1st.com/forum/202406/08/183854bo66ivwecuigiihy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-08-18-38-05-29_149003a2d400f6adb210d7e357a3a646.jpg</strong> (152.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:38 上传
+
+就是water
+
+*****
+
+####  tuichu0425  
+##### 17422#       发表于 2024-6-8 18:42
+
+<blockquote>御景 发表于 2024-6-8 18:33
+</blockquote>
+应该只是预告片放个inst吧
+
+*****
+
+####  NODY  
+##### 17423#       发表于 2024-6-8 18:46
+
+10月就开到3rd了，到时候五首symbol的迷你专还要再抽一场，是要对标mygo当初的进度，动画前把4th开完，动画期间开到5th？
+

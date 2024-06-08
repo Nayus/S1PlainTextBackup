@@ -1266,3 +1266,40 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 他们这型调整者除了读心不是还能直接给旧型调整者放镜花水月吗，怎么后面就不用了只能读心看涩涩
 
+
+*****
+
+####  vuder  
+##### 1091#       发表于 2024-6-8 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160447&amp;ptid=2178694" target="_blank">梦诗歌雪 发表于 2024-6-8 22:56</a>
+从黄毛反水之后就蓝色波斯菊就完全消失了啊，还有那个ミケール大佐也没人去抓了，是不是已经提前被黄毛宰相 ...</blockquote>
+被核弹炸成灰了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+专门有镜头
+
+*****
+
+####  混乱之雨  
+##### 1092#       发表于 2024-6-8 23:00
+
+千禧年的性能也是离谱，地表利用阳电子炮就能单舰突出大气层，超第一宇宙速度；宇宙中单舰突破黄毛舰队拦截一闪而过，这表现超过剧里除了光翼机以外的所有机体了
+
+有4连阳电子炮，有无效对面12连阳电子炮的薄膜装甲，有幻象粒子系统，有格斗撞角，进游戏也是台怪物战舰。
+
+*****
+
+####  混乱之雨  
+##### 1093#       发表于 2024-6-8 23:02
+
+至于黄毛的战舰，就是ft装甲和12连阳电子炮堆出来的要塞级数值怪，和千禧年这种工业奇迹不是一个维度的东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  macos  
+##### 1094#       发表于 2024-6-8 23:06
+
+真飞鸟确实小孩子，独眼被摸了也没说
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

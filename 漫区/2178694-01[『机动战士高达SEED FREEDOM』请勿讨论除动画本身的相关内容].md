@@ -2107,3 +2107,14 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 狼用龙骑兵是什么水平，d里姨丈想把传说给狼加这次开sf2骗了黑骑士应该不弱吧
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1157#       发表于 2024-6-9 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162457&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 01:56</a>
+强自被抢了所以基一开始开的是低配版本？又是不看MSV没人权系列么</blockquote>
+目前种自的外传还未有呢
+所以强自强夺事件是怎么的都是大家猜的，包括之前的楼里还讨论过两台贰式是原来的强自无正改造的还是完全新造的机体
+

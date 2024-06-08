@@ -1086,3 +1086,24 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控血一丝反杀，真是被人小看了
 
+
+*****
+
+####  holoan  
+##### 8981#         楼主| 发表于 2024-6-8 21:00
+
+妈的智障特摄厨太多了全该杀了
+
+正常直播neta的角色都挤不进来
+
+*****
+
+####  holoan  
+##### 8982#         楼主| 发表于 2024-6-8 21:06
+
+今晚最佳来了
+
+兔女郎游戏原版角色退场之后接着进来的兔女郎西蒙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这才是真正的neta升华懂吗特摄SB们
+

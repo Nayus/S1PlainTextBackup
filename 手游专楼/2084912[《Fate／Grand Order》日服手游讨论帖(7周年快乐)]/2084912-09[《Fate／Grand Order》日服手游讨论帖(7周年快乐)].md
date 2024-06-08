@@ -60,3 +60,17 @@
 
 现在还有没有日服的q 群呀 求一个加加<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12808#       发表于 2024-6-8 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">收回之前对青子的评价....当拐还是可以的
+
+自己上个水妖兰带张50NP的倍卡和青子再借个好友的C呆就能快乐无脑冲浪了
+
+只要1面和2面别是阴间的只有1-2个怪就行了
+
+现在脑死也懒得老是换阵容了....这套泛用冲浪应该还能用好久....等到了90++本再换
+

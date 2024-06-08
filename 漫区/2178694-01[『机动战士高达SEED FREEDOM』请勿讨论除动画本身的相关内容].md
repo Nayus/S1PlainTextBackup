@@ -459,3 +459,13 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 
 才发现这次的脉冲是直接组合好出击的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出击台词里不是核心战机总有种违和感
 
+
+*****
+
+####  leonlink  
+##### 1014#       发表于 2024-6-8 13:29
+
+【机动战士高达SEED 剧场版/蓝光中字/2024-哔哩哔哩】 https://b23.tv/dlNjgk2
+
+看了一下是机翻
+

@@ -1085,3 +1085,16 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 在等两天等好一点的翻译，这几天端午节大组都休假了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  螺旋的小夜曲  
+##### 1073#       发表于 2024-6-8 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158915&amp;ptid=2178694" target="_blank">Znesmoc 发表于 2024-6-8 20:32</a>
+
+尤其是联想一下之前设定里说拂晓造价很高一台得20个M1异端就更是难绷
+
+阿斯哈要是看到剧场版里拂晓这表现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了
+

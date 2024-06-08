@@ -1098,3 +1098,39 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 阿斯哈要是看到剧场版里拂晓这表现 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了
 
+
+*****
+
+####  Znesmoc  
+##### 1074#       发表于 2024-6-8 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159251&amp;ptid=2178694" target="_blank">螺旋的小夜曲 发表于 2024-6-8 21:04</a>
+
+挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了 ...</blockquote>
+虽然画面上看上去拂晓就和被火燎了毛一样，但是下一个画面里穆的头盔的反光内的HUD也是一片红在那报警，你就当那波打完之后机体其实也重创过载用不了装备了就行了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凤舞夜月  
+##### 1075#       发表于 2024-6-8 21:22
+
+唉，最强最帅光环坠落，强自2型被暴打，基拉被暴打，结果最终战用的超科学的武器，唉，还想看看到拳拳到肉的战斗，可惜结尾太神棍，还不如小鸟
+
+*****
+
+####  pokemon最爱  
+##### 1076#       发表于 2024-6-8 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159251&amp;ptid=2178694" target="_blank">螺旋的小夜曲 发表于 2024-6-8 21:04</a>
+
+挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了 ...</blockquote>
+因为设定上宙斯剪影耗电大需要核能机才能完全发挥实力<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呀书吾人  
+##### 1077#       发表于 2024-6-8 21:23
+
+充满欢笑的两小时
+

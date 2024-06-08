@@ -1768,3 +1768,30 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Ameyoru  
+##### 1133#       发表于 2024-6-9 01:30
+
+ 本帖最后由 Ameyoru 于 2024-6-9 01:35 编辑 
+
+草，这特么是真的崩不住，还不是一闪而过，为什么不修一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/09/013507fm9xo10f75jf7fso.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0350.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 01:35 上传
+
+*****
+
+####  smdzh2  
+##### 1134#       发表于 2024-6-9 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160791&amp;ptid=2178694" target="_blank">Mikumiku831 发表于 2024-6-9 00:34</a>
+还在想为什么狼开自由1V1的时候感觉还游刃有余 一看换机的时候直接把强自一半的电用没了  ...</blockquote>
+放风筝放没的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

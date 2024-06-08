@@ -2474,3 +2474,20 @@ max三岗过了，仍旧没有金
 
 这么多大润图还是下水道的平潮雾最难打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">随到基本过不了
 
+
+*****
+
+####  苍蓝之枪  
+##### 4681#       发表于 2024-6-9 00:05
+
+这几张图一起随机打确实能有直观的比较，MAX随到下水道我真的就争取过W2保证不掉分
+
+金字塔也容易翻车，接下来顺序大概是游乐场，美术大学，街道，购物中心
+
+*****
+
+####  宅音  
+##### 4682#       发表于 2024-6-9 00:08
+
+游乐场平潮烤架位在哪啊停车太阴间了吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

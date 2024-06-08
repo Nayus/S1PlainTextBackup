@@ -1499,3 +1499,75 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 剧版新人物里，黄毛是拉的舔狗，黄毛后面的妹子是黄毛的舔狗，阿格尼丝是绿茶biao
 
+
+*****
+
+####  Bani82  
+##### 1113#       发表于 2024-6-9 00:07
+
+新粉毛双马尾不是要比鸟厉害么，怎么连露娜都打不过！
+
+顺便史黛拉这救场还要被黑一下！
+
+*****
+
+####  novyDC  
+##### 1114#       发表于 2024-6-9 00:10
+
+才发现无正有战损
+
+<img src="https://img.saraba1st.com/forum/202406/09/000958s6ohrroac7obifrz.jpg" referrerpolicy="no-referrer">
+
+<strong>1f58ae3e-3fc3-4bc0-98c0-33375981fdfe.jpg</strong> (143.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 00:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  混乱之雨  
+##### 1115#       发表于 2024-6-9 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161167&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:07</a>
+
+新粉毛双马尾不是要比鸟厉害么，怎么连露娜都打不过！
+
+顺便史黛拉这救场还要被黑一下！ ...</blockquote>
+露娜的格斗比鸟还厉害，因为枪法不行才故意选用炮击机体，笑s，有种比赛不选绝活，偏要练英雄的唐氏感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 1116#       发表于 2024-6-9 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160704&amp;ptid=2178694" target="_blank">露娜玛利亚 发表于 2024-6-8 23:25</a>
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
+之前露娜罵真是個小鬼，
+
+*****
+
+####  混乱之雨  
+##### 1117#       发表于 2024-6-9 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161213&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-6-9 00:10</a>
+
+才发现无正有战损</blockquote>
+上一回合被修罗切了小臂，然后爆种开头刀反杀。
+
+这里狼不爆种+落后一代的机体，和同样多刀的黑骑士毁灭拼五五开
+
+不过貌似有个作画失误，无正左下，掉在地上的手臂残骸能看到白色的肩甲零件，似乎画了一整条断手
+
+*****
+
+####  gary76  
+##### 1118#       发表于 2024-6-9 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160704&amp;ptid=2178694" target="_blank">露娜玛利亚 发表于 2024-6-8 23:25</a>
+这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
+露娜在劇場版沒忍啊，但是真這個小鬼沒硬起來嚇到跑出甲板曬月光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

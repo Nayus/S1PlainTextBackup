@@ -324,3 +324,15 @@ BD 圣诞节发售
 各家的不同特典太多了，直接看官网吧
 [https://www.gundam-seed.net/freedom/news/item.php?id=21545](https://www.gundam-seed.net/freedom/news/item.php?id=21545)
 
+
+*****
+
+####  萨尤克  
+##### 1001#       发表于 2024-6-8 10:33
+
+<img src="https://p.sda1.dev/18/d0abae7aacc100b918ee951814bccae2/CMP_20240608103259472.jpg" referrerpolicy="no-referrer">
+HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就算通贩也好不到哪去了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+而且万代这弱智练习生又把IJ2的头做成了和不正一样的大头…
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

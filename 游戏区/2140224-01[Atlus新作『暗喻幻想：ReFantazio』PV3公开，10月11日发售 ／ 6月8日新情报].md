@@ -472,3 +472,14 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 <img src="https://p.sda1.dev/18/dc776d99f9e1b5def05731251227b2eb/20240608_124409.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/beec77b44b69271f2d589f7209747921/20240608_124411.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AeonsTorn  
+##### 443#       发表于 2024-6-8 12:58
+
+ 本帖最后由 AeonsTorn 于 2024-6-8 12:59 编辑 
+
+真给主角每句台词加配音啊
+但是这种可有可无的对话选择，念出来感觉蛮生硬的
+

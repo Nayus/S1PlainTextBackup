@@ -225,3 +225,11 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 —— 来自 HUAWEI JER-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  医生狼多  
+##### 564#         楼主| 发表于 2024-6-8 13:03
+
+《暗喻幻想 ReFantazio》中文版实机试玩「迷宫篇」，其中的内容是游戏初期迷宫「被占领的大圣堂」。视频来自巴哈姆特。 http://t.cn/A6HdeKwY ​​​
+

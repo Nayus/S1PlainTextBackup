@@ -439,3 +439,15 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 
 福田还是一如既往的省钱，稍远一点人脸就凑合了
 
+
+*****
+
+####  gary76  
+##### 1012#       发表于 2024-6-8 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65150805&amp;ptid=2178694" target="_blank">ddsdsdsdf 发表于 2024-6-8 05:06</a>
+为啥感觉背景和人物不像是一个时代的，像是4k背景配上480p的人物，模糊缺乏细节还微妙的崩……
+
+看了会大概 ...</blockquote>
+畢竟連麻宮騎亞這種老登都出來了，體諒一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

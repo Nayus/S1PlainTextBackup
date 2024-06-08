@@ -4991,3 +4991,18 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 另外由于他在在轨运行的过程中就已经建立了速度优势。所以整个工作过程中加速度都可以很低，包括在打上轨道的过程中，其受到的最大过载，比地基的同类武器要低得多。这样一来就可以使用抗过载加固不那么好的生产工艺，单件武器的制造成本要低很多。
 
+
+*****
+
+####  tsukatsukieiko  
+##### 515#       发表于 2024-6-8 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65148682&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-7 23:51</a>
+
+为啥是核电？？？
+
+核热这个饼已经又开始画了</blockquote>
+关键是你氢气工质怎么办？
+
+能搞定的话那氢能源汽车肯定更好搞定。
+

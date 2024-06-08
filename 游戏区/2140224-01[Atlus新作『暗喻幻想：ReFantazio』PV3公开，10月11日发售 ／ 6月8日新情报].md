@@ -358,3 +358,13 @@ ATLUS品牌35周年数字纪念版：HK$748
 
 这游戏定价比女神异闻录3r便宜不少啊，好奇怪的操作
 
+
+*****
+
+####  CyborgIP  
+##### 434#       发表于 2024-6-8 09:39
+
+世嘉从relink吸取经验了吧，那个国区卖了50w了。300确实是大部分人的心理价位
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

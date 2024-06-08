@@ -74,3 +74,16 @@
 
 现在脑死也懒得老是换阵容了....这套泛用冲浪应该还能用好久....等到了90++本再换
 
+
+*****
+
+####  alucardcz  
+##### 12809#       发表于 2024-6-8 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154471&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-8 13:28</a>
+
+收回之前对青子的评价....当拐还是可以的
+
+自己上个水妖兰带张50NP的倍卡和青子再借个好友的C呆就能快乐无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">羡慕豹豹 你说的我一个都没有
+

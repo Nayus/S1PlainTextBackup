@@ -1399,3 +1399,13 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 抓的是歌唱时候甩高音阶的神态吧
 
+
+*****
+
+####  仟音一心  
+##### 20306#       发表于 2024-6-8 14:12
+
+新泻三美神
+<img src="https://p.sda1.dev/18/3a331d0f1b6843c36b789f76a4e58e2a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ffcba327560fa323a836774b5f605095/image.jpg" referrerpolicy="no-referrer">
+

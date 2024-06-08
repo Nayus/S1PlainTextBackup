@@ -483,3 +483,11 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 真给主角每句台词加配音啊
 但是这种可有可无的对话选择，念出来感觉蛮生硬的
 
+
+*****
+
+####  kalavinka  
+##### 444#       发表于 2024-6-8 14:14
+
+这觉醒也太土了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

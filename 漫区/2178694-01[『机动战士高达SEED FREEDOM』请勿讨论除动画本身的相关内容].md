@@ -2041,3 +2041,61 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 其实应该也和FT有关系，监督不就是要把控项目重点是放在机战还是人物等等。
 
+
+*****
+
+####  线程召唤使  
+##### 1154#       发表于 2024-6-9 04:07
+
+这次的爆种画面也挺细节的，虽然感觉搞成这样有点不知所谓
+
+機動戦士ガンダムSEED FREEDOM.mp4_20240609_040315.846.jpg
+(94.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 04:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/040710cozx4obb26sbitxz.jpg" referrerpolicy="no-referrer">
+
+機動戦士ガンダムSEED FREEDOM.mp4_20240609_040414.651.jpg
+(152.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 04:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/040715yo66pwvxj36v16ab.jpg" referrerpolicy="no-referrer">
+
+機動戦士ガンダムSEED FREEDOM.mp4_20240609_040426.361.jpg
+(271.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 04:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/040718p88rcb8s4ys8uxm8.jpg" referrerpolicy="no-referrer">
+
+機動戦士ガンダムSEED FREEDOM.mp4_20240609_040524.681.jpg
+(274.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 04:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/040720eomp3z2ttp2iq3ii.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hcb77  
+##### 1155#       发表于 2024-6-9 04:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162992&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 03:42</a>
+
+所以才出戏啊，看看其他区域都是妖魔鬼怪！就这2个JK打架...
+
+顺便那船真的不是隔壁马库罗斯棚借来的天顶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">F国的都是无人战舰，剩下的是扎夫特叛军的，基本上也都是CE71年的老战舰，换了点超高速导弹而已
+
+千禧年算是三家砸钱氪金的超级战舰，量产的哪来军费成批量换
+

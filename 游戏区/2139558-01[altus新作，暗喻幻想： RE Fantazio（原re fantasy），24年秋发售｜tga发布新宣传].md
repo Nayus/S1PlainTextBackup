@@ -323,3 +323,14 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 敌人也没有属性相克，这系统深度怎么保证阿，还有什么展示提到的其他内容吗
 
+
+*****
+
+####  黑修士  
+##### 574#       发表于 2024-6-8 17:56
+
+职业系统解说
+[https://www.bilibili.com/video/BV1pz421b7EG](https://www.bilibili.com/video/BV1pz421b7EG)
+
+7人小队感觉还是可以作出点东西的
+

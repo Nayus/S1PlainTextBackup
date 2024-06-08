@@ -12116,3 +12116,80 @@ B站这个好像确实大问题
 
 笑死，看着高能用户越来越少了。
 
+
+*****
+
+####  ellisnadie  
+##### 17381#       发表于 2024-6-8 17:44
+
+所以b站直播切掉的是什么。。
+
+*****
+
+####  基神的强袭自由  
+##### 17382#       发表于 2024-6-8 17:46
+
+孙哥，我着火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 17383#       发表于 2024-6-8 17:46
+
+独 裁 切了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下此地无银三百两了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  kosou  
+##### 17384#       发表于 2024-6-8 17:46
+
+确实是点敏感词 环境内是这样的
+
+*****
+
+####  rikaren  
+##### 17385#       发表于 2024-6-8 17:49
+
+是可以让论坛上天的敏感话题
+
+*****
+
+####  御幸一也  
+##### 17386#       发表于 2024-6-8 17:49
+
+米澤太帥了呀！！！
+
+*****
+
+####  紫吹兰  
+##### 17387#         楼主| 发表于 2024-6-8 17:51
+
+<blockquote>cherryjia12 发表于 2024-6-8 17:46
+独 裁 切了是吧这下此地无银三百两了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 S1Next-鹅版 v3.0. ...</blockquote>
+b站是有字幕的吗
+
+*****
+
+####  cherryjia12  
+##### 17388#       发表于 2024-6-8 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157173&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-6-8 17:51</a>
+b站是有字幕的吗</blockquote>
+我看的e+，不过b应该没字幕吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 17389#       发表于 2024-6-8 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157173&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-6-8 17:51</a>
+
+b站是有字幕的吗</blockquote>
+没有，所以说。。。
+

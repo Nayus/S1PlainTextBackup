@@ -1001,3 +1001,14 @@ bd年底才发，现在还不知道
 
 电影院看的有没有配音的？还是只是原音+字幕？
 
+
+*****
+
+####  黑暗之眼  
+##### 1064#       发表于 2024-6-8 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158632&amp;ptid=2178694" target="_blank">纯情小鸭鸭 发表于 2024-6-8 20:03</a>
+
+电影院看的有没有配音的？还是只是原音+字幕？</blockquote>
+香港是原音+字幕
+

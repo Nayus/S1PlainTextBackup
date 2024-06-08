@@ -383,3 +383,16 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 2024-6-8 19:27 上传
 
+
+*****
+
+####  jbjack1215  
+##### 578#       发表于 2024-6-8 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158252&amp;ptid=2139558" target="_blank">Lynn冰翎 发表于 2024-6-8 19:27</a>
+
+首先试玩的新手主线关很简单，难度也开得很低，对面没还手就全杀光了，看不出什么。
+
+今天稍早有一个解释 ...</blockquote>
+看了介绍，确实偏向smt多点，但不知道是不是翻译问题，可以上七人队伍？这有点意思了
+

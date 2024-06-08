@@ -12587,3 +12587,84 @@ b站是有字幕的吗</blockquote>
 太棒了吧</blockquote>
 睦是金发还是绿发？
 
+
+*****
+
+####  PDQ4  
+##### 17429#       发表于 2024-6-8 19:23
+
+eplus回放出了，开看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 17430#       发表于 2024-6-8 19:28
+
+卖的好大
+
+image.png
+(48.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202406/08/192800k73mawf53q2m20z9.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 17431#       发表于 2024-6-8 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157973&amp;ptid=2159415" target="_blank">bindata 发表于 2024-6-8 19:01</a>
+别说，还看到个残疾老哥，双腿都没了……</blockquote>
+看到个坐轮椅的，但他好像有腿啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 17432#       发表于 2024-6-8 19:39
+
+<blockquote>御景 发表于 2024-6-8 19:28
+卖的好大</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/08/193942eg81oxqp8box1pqq.jpg" referrerpolicy="no-referrer">
+
+<strong>0F651C87F4017B96C4BC7DF0A75EC2C0.jpg</strong> (92.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 19:39 上传
+
+*****
+
+####  6030sylar  
+##### 17433#       发表于 2024-6-8 20:05
+
+<img src="https://img.saraba1st.com/forum/202406/08/200457d8nf39g83o8uzs34.jpg" referrerpolicy="no-referrer">
+
+<strong>7b02d1a09774ed9217e7a1bc3d6c48dd.jpg</strong> (362.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 20:04 上传
+
+*****
+
+####  skives  
+##### 17434#       发表于 2024-6-8 20:07
+
+<img src="https://img.saraba1st.com/forum/202406/08/200619zr99y0o0pmos7xvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>e87d94b71a6f9207441d437bb385752e.jpeg</strong> (235.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 20:06 上传
+
+李子的歌力又变强了吧 
+
+现场听甚至觉得没什么需要修的地方
+

@@ -105,3 +105,27 @@
 羡慕豹豹 你说的我一个都没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">但是萌新有别的非洲人没有的啊.....今年都过去一半了非洲人也只抽了魔夜的2个联动角色
 
+
+*****
+
+####  Jamaisvu  
+##### 12812#       发表于 2024-6-8 20:07
+
+ 本帖最后由 Jamaisvu 于 2024-6-8 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158189&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-6-8 19:21</a>
+
+田岛老师在X上放了张画的烟雾镜，帅爆了**型月能不能做点人事</blockquote>
+是这张吧，C104烟雾镜官本的亚克力立牌：
+
+<img src="https://img.saraba1st.com/forum/202406/08/200439nyu8curdurk1fff8.jpg" referrerpolicy="no-referrer">
+
+<strong>3fdf182f83d957a2261d4887dac64316_e8e384632ebc53baab6c41b1a8d3d9f0160097.jpg</strong> (305.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 20:04 上传
+
+（这上色不是很赞吗，螺旋社扫描机是什么毛病扫成那样...）
+
+田岛老爷子估计也不明白随手画的土著神怎么火成这样，不过能让老前辈连出两本同人志，武内社长估计很有成就感吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

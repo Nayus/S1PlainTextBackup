@@ -1310,3 +1310,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这PV是真的一坨。。。
 
+
+*****
+
+####  凋零的缤纷  
+##### 142#       发表于 2024-6-8 14:26
+
+给我气笑了啊 期待了三年就搓成个这个玩意出来？别拿幽灵线比了他配吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">恐怖游戏终究都成了秋后的蚂蚱
+

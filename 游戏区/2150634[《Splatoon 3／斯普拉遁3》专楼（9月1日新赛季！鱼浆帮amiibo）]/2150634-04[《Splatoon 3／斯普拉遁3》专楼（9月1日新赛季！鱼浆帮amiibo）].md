@@ -2318,3 +2318,11 @@ jackpot的世锦赛冠军名牌发了
 
 打到710才过了一次头目联合，熊刷一旦有两把以上打头目联合就很难受。熊武里应该是熊狙最好打头目联合
 
+
+*****
+
+####  yanglian72  
+##### 4663#       发表于 2024-6-8 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没有熊狙很难能三岗全过。有一局发了两把熊狙，横岗和辰龙都搞定了，嘴岗还差一点点，可惜了。
+

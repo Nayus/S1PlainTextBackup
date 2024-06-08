@@ -491,3 +491,11 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 
 这觉醒也太土了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凋零的缤纷  
+##### 445#       发表于 2024-6-8 14:21
+
+讲真展示的这些“极巨化persona”的设计真的够大够空够丑<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

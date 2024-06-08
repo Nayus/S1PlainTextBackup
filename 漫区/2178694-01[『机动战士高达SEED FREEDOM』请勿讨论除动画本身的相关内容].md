@@ -1885,3 +1885,47 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 这些都是有字幕的
 
+
+*****
+
+####  hcb77  
+##### 1143#       发表于 2024-6-9 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161167&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:07</a>
+
+新粉毛双马尾不是要比鸟厉害么，怎么连露娜都打不过！
+
+顺便史黛拉这救场还要被黑一下！ ...</blockquote>
+厉害是在军校的成绩而已，阿格尼丝是靠家里关系在月面战役（镇魂曲战役）摆烂打了几台windam+宣传吹逼所以名气很大
+
+和露娜+真这种战火里滚出来的ace差得远
+
+不过整蛊的就是修罗那边读心读到阿格尼丝很自信+名气大所以也觉得阿格尼丝很强
+
+这就是普信女么真下头（
+
+*****
+
+####  hcb77  
+##### 1144#       发表于 2024-6-9 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161364&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:21</a>
+
+阿斯兰也是胆子大的，敢让卡咖喱这水平远程遥控...
+
+这算两害取其轻（读心和卡咖喱的技术哪个更害真不好说 ...</blockquote>
+约好了的，一旦开始念名字就右闪拿枪打背
+
+（小说桥段）
+
+
+*****
+
+####  线程召唤使  
+##### 1145#       发表于 2024-6-9 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162781&amp;ptid=2178694" target="_blank">hcb77 发表于 2024-6-9 02:48</a>
+
+厉害是在军校的成绩而已，阿格尼丝是靠家里关系在月面战役（镇魂曲战役）摆烂打了几台windam+宣传吹逼所 ...</blockquote>
+就实际表现看其实还好，如果老老实实摆正态度，未必会差露娜。
+

@@ -684,3 +684,23 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6
 
 坐等非机翻字幕
 
+
+*****
+
+####  diyihaoshitu  
+##### 1036#       发表于 2024-6-8 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156746&amp;ptid=2178694" target="_blank">hcb77 发表于 2024-6-8 17:09</a>
+
+magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
+多谢，还是种子好使
+
+*****
+
+####  vuder  
+##### 1037#       发表于 2024-6-8 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156741&amp;ptid=2178694" target="_blank">hcb77 发表于 2024-6-8 17:09</a>
+调整者比较耐炸（心虚</blockquote>
+更加离谱的是核弹放在边境给人突袭，还是用对地低空导弹发射…
+

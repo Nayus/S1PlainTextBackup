@@ -12073,3 +12073,46 @@ e+還沒有畫面也沒有聲音阿
 
 B站画质有点糊，e+怎么样？
 
+
+*****
+
+####  yifan8848  
+##### 17376#       发表于 2024-6-8 17:05
+
+看不到mic架，不會又是耳mic了吧...
+
+*****
+
+####  御幸一也  
+##### 17377#       发表于 2024-6-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156700&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-6-8 17:05</a>
+
+看不到mic架，不會又是耳mic了吧...</blockquote>
+李子特地改的方便她到處走動<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 17378#       发表于 2024-6-8 17:10
+
+这么幽默啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">，还好我是不到最后一分钟不买票的人
+
+*****
+
+####  星空冻结  
+##### 17379#       发表于 2024-6-8 17:17
+
+这个收音有问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17380#       发表于 2024-6-8 17:17
+
+ 本帖最后由 rikaren 于 2024-6-8 17:19 编辑 
+
+B站这个好像确实大问题
+
+笑死，看着高能用户越来越少了。
+

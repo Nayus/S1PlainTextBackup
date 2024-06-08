@@ -183,3 +183,17 @@ ami放开手脚跑暴打粉毛啊</blockquote>
 
 你们是不是忘记了整个季度一直都有个AI车手在
 
+
+*****
+
+####  上坂莲华  
+##### 395#       发表于 2024-6-9 02:15
+
+这明显是AMI吃透小粉毛了，编了个她喜欢听的故事哄她开心而已，按这集表现AMI过图灵跟玩一样，拿捏个游戏宅女小粉毛不是轻轻松松<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+整体思路就是AMI说我是AI得遵守阿西莫夫三定律，真上场了跑不过诡计多端的人，而你潜力十足，是没有极限的，我们俩一起才是最佳搭档，我看好你哦可恶的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刚好对应小粉毛之前的回忆，干啥啥不行，没人要自己，最后只能在家打游戏，现在突然有人说看好自己需要自己，那不是立刻被拿捏住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真跑起来AMI只要骗自己这是在打游戏不用遵守规则就好，其他人车上也有弱AI防撞的，AMI放开跑其他人都得被锁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

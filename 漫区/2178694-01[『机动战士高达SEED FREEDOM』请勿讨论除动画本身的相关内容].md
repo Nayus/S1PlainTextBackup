@@ -646,3 +646,11 @@ QQ图片20240608134519.jpg
 
 —— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  diyihaoshitu  
+##### 1032#       发表于 2024-6-8 16:54
+
+有没有小一点的资源，7g网盘下起来太费劲
+

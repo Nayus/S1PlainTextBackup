@@ -1318,3 +1318,14 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 给我气笑了啊 期待了三年就搓成个这个玩意出来？别拿幽灵线比了他配吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">恐怖游戏终究都成了秋后的蚂蚱
 
+
+*****
+
+####  土路生優里  
+##### 143#       发表于 2024-6-9 04:23
+
+明明设定和背景很期待的...
+这pv一放瞬间没兴趣了
+
+—— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

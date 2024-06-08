@@ -761,3 +761,32 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 
 问题是谁把这种威力的核弹拖到前线不，还可以直接发射，不怕军头造反啊
 
+
+*****
+
+####  vuder  
+##### 1043#       发表于 2024-6-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157034&amp;ptid=2178694" target="_blank">Helgarose 发表于 2024-6-8 17:39</a>
+然后那个战术核弹(小说出处)一炮空爆把牛逼国的首都扬了。你的首都是拿硬纸板搭的么 ...</blockquote>
+核弹头才炸死5万人，失踪10万人<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+你说县城不…
+
+*****
+
+####  mffx  
+##### 1044#       发表于 2024-6-8 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157198&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 17:55</a>
+核弹头才炸死5万人，失踪10万人
+你说县城不…</blockquote>
+正因为威力小才随便放，这不是自洽了吗(笑)
+
+
+*****
+
+####  vuder  
+##### 1045#       发表于 2024-6-8 18:01
+
+打着克莱因旗号，拉克丝脸都没露啊
+

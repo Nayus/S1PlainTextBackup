@@ -1161,3 +1161,24 @@ BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉�
 
 主角群画的不够成熟，明明舰长设计很好，其他人就不能改成熟一点
 
+
+*****
+
+####  vuder  
+##### 1081#       发表于 2024-6-8 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65159251&amp;ptid=2178694" target="_blank">螺旋的小夜曲 发表于 2024-6-8 21:04</a>
+挡完之后转身给镇魂曲来一炮不就行了吗，还要拆装备去送给命运，显得多此一举了 ...</blockquote>
+应该要cd的
+
+*****
+
+####  vuder  
+##### 1082#       发表于 2024-6-8 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158915&amp;ptid=2178694" target="_blank">Znesmoc 发表于 2024-6-8 20:32</a>
+尤其是联想一下之前设定里说拂晓造价很高一台得20个M1异端就更是难绷
+
+阿斯哈要是看到剧场版里拂晓这表现 ...</blockquote>
+这拂晓都能挡镇魂曲了，别说20台，100台都
+

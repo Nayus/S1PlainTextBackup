@@ -298,3 +298,29 @@ pb跟通贩在国内没啥区别
 
 讲个笑话今年初两款20周年版的发售就破发 一个春节过去了从1000出头跳到1500-1700
 
+
+*****
+
+####  t222  
+##### 999#       发表于 2024-6-8 10:18
+
+不知道还有没有字幕组做这个
+
+*****
+
+####  gundammarkⅡ  
+##### 1000#       发表于 2024-6-8 10:19
+
+<img src="https://img.saraba1st.com/forum/202406/08/101748p8j1j8j6sskcfiuk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240608_101350_com.twitter.android_edit_783808628427794.jpg</strong> (233.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 10:17 上传
+
+BD 圣诞节发售
+
+各家的不同特典太多了，直接看官网吧
+[https://www.gundam-seed.net/freedom/news/item.php?id=21545](https://www.gundam-seed.net/freedom/news/item.php?id=21545)
+

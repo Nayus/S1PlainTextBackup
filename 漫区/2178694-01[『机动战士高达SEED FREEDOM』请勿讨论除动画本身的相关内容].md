@@ -344,3 +344,11 @@ HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就�
 
 决战过年一样，没有一点紧张感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RE㐅ia  
+##### 1003#       发表于 2024-6-8 10:50
+
+捍卫者为啥非要拉克丝最后亲自去送？阿斯兰第一次出击直接开出来不好吗？
+

@@ -532,3 +532,13 @@ QQ图片20240608134519.jpg
 
 可以慢慢等popgo的字幕 原汤化原食
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1021#       发表于 2024-6-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65154343&amp;ptid=2178694" target="_blank">里村紅葉 发表于 2024-6-8 13:16</a>
+才发现这次的脉冲是直接组合好出击的出击台词里不是核心战机总有种违和感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

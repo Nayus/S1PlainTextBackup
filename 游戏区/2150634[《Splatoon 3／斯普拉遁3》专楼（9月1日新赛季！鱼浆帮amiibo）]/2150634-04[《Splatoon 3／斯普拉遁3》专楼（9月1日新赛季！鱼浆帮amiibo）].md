@@ -2326,3 +2326,11 @@ jackpot的世锦赛冠军名牌发了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没有熊狙很难能三岗全过。有一局发了两把熊狙，横岗和辰龙都搞定了，嘴岗还差一点点，可惜了。
 
+
+*****
+
+####  墨染白泉  
+##### 4664#       发表于 2024-6-8 14:36
+
+不过熊刷打光莹是真的爽，追着光莹跑
+

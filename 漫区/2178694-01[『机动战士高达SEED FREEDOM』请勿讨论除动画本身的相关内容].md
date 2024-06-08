@@ -1795,3 +1795,13 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 还在想为什么狼开自由1V1的时候感觉还游刃有余 一看换机的时候直接把强自一半的电用没了  ...</blockquote>
 放风筝放没的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  露娜玛利亚  
+##### 1135#       发表于 2024-6-9 01:38
+
+又在尬黑，我射击水平还是很好的，没看这次都打中飞弹了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+才发现居然没有我的麻将脸，这是区别对待！<img src="https://static.saraba1st.com/image/smiley/bundam2017/023.png" referrerpolicy="no-referrer">
+

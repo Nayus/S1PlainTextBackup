@@ -95,3 +95,11 @@
 我：？？？ ...</blockquote>
 上半集那不是实战啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  勇者仁杰  
+##### 387#       发表于 2024-6-8 15:25
+
+在中国大陆这个社会背景下，实在很难接受女赛车手这种设定，脑内一直有个声音跟我说：只要她们在路上别撞死人就行，开30就30吧。
+

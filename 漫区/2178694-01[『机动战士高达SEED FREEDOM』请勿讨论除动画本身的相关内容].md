@@ -550,3 +550,11 @@ QQ图片20240608134519.jpg
 
 看到过繁中的枪版，但一半被遮住了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Helgarose  
+##### 1023#       发表于 2024-6-8 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">剧场版之后seed干嘛还纠结设定，海虎高达别过脑乐呵下就行了
+

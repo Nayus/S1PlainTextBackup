@@ -283,3 +283,24 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 预购还是会预购的，剧情不拉大的就算成功
 
+
+*****
+
+####  Dreammask  
+##### 571#       发表于 2024-6-8 15:28
+
+灵魂骇客2的问题是你社被index收了后实际上失去了做个正常二线的能力/非要套经典旧作的皮来带销量结果把灵魂骇客1的名声也搞臭了/二线卖一线的价，不妨碍它就是个用来给新人做着练练手的二线，而且这种二线练手的模式放在大公司其实是没啥问题的（除了自废武功的SE），甚至ATLUS还卖大头贴机时二线普遍都有亮点
+
+所以我觉得判断rpg.jp会不会雷不应该找灵魂骇客2的事，考虑到桥野上一部新作已经是P5了，应该从目前已公开信息上进行抨击<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iou90  
+##### 572#       发表于 2024-6-8 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153021&amp;ptid=2139558" target="_blank">新世界的派蒙 发表于 2024-6-8 11:10</a>
+咋老是宣传这个阿基态战斗阿，给我感觉就是骷髅兵打架，大招还是特摄一样的摆pose，没啥卖相 ...</blockquote>
+关键还是设计能力不太行
+
+数量少了照样露怯
+

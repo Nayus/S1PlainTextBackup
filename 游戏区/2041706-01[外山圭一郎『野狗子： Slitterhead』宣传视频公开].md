@@ -1195,3 +1195,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看着像PS3时代的游戏，他们是怎么做到的
 
+
+*****
+
+####  astrayl  
+##### 130#       发表于 2024-6-8 08:20
+
+感觉这是又整了个幽灵线东京出来了，看pv动作好僵硬啊
+

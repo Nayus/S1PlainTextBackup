@@ -236,3 +236,15 @@ nyaa出源了，小水管看不了奈飞阿妈尊的可以去挂着了。
 
 瞅了一眼是个1080p的 影院也是普通16:9吗 要是影院21:9那我就再等等了<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 994#       发表于 2024-6-8 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65151486&amp;ptid=2178694" target="_blank">宮脇咲良 发表于 2024-6-8 08:17</a>
+瞅了一眼是个1080p的 影院也是普通16:9吗 要是影院21:9那我就再等等了</blockquote>
+都是16:9，现在日本动画电影直接做21:9的还是少数
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

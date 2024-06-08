@@ -335,3 +335,18 @@ ATLUS品牌35周年数字纪念版：HK$748
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 432#         楼主| 发表于 2024-6-8 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65112615&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-4 19:08</a>
+
+跟上次专场同样 B站简中同步
+
+《暗喻幻想：ReFantazio》特别节目！</blockquote>
+本次重点就放在介绍“阿基态”
+<img src="https://p.sda1.dev/18/877f5c932091b9ab2b6156f95fb60465/20240608_080339.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4fa0bdf902377463bee359821cff158e/atlas_38.jpeg" referrerpolicy="no-referrer">
+

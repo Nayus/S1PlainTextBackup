@@ -921,3 +921,51 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 这个版本跟BD差别大吗</blockquote>
 哪来的bd<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 1057#       发表于 2024-6-8 18:59
+
+<blockquote>vuder 发表于 2024-6-8 18:30
+剧场版反派比议长手段差多了，议长真的是优秀</blockquote>
+至少手下是被鸡狼鸟整新活打死的，不像姨丈两个打手被鸡狼平A不杀给速通了
+
+
+*****
+
+####  vuder  
+##### 1058#       发表于 2024-6-8 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157544&amp;ptid=2178694" target="_blank">novyMS 发表于 2024-6-8 18:25</a>
+不得不说 剧场版真的够乐的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+最后一幕基拉拉克丝衣服脱了说明终于上了。
+这说明啥，<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">只有脱处才能拜托不纠结。
+
+你看阿斯拉应该这段时间提前脱处了，全程没有吃瘪过。打架时还在意淫。
+小鸟因为不敢上晚上只敢躲在船外面。
+
+*****
+
+####  oi99o  
+##### 1059#       发表于 2024-6-8 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157846&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-6-8 18:49</a>
+这个版本跟BD差别大吗</blockquote>
+bd年底才发，现在还不知道
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  vuder  
+##### 1060#       发表于 2024-6-8 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157937&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-6-8 18:59</a>
+至少手下是被鸡狼鸟整新活打死的，不像姨丈两个打手被鸡狼平A不杀给速通了 ...</blockquote>
+人家议长好歹是枭雄真有政治抱负，想实现命运计划实现天下大同。
+
+这剧场版反派呢，其实根本不在意啥命运计划，只是觉得自己优秀应该统治世界。
+

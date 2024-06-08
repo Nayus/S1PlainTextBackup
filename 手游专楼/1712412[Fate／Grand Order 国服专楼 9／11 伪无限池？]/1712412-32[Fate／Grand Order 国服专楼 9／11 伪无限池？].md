@@ -622,3 +622,15 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Blackson  
+##### 46442#       发表于 2024-6-8 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153259&amp;ptid=1712412" target="_blank">溯夜 发表于 2024-6-8 11:30</a>
+想要道满了他好好用
+
+论坛助手,iPhone</blockquote>
+除了一手即死外还能拐混沌恶从者，能打能拐。
+

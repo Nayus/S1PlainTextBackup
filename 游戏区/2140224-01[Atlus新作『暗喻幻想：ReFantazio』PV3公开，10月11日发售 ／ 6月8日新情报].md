@@ -408,3 +408,19 @@ ATLUS品牌35周年数字纪念版：HK$748
 
 PV看着感觉普普通通<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 439#         楼主| 发表于 2024-6-8 11:39
+
+【《暗喻幻想：ReFantazio》SummerGameFest.预告片“Awaken”】
+[https://b23.tv/2uGZkLW](https://b23.tv/2uGZkLW)
+
+【ATLUS Exclusive《暗喻幻想：ReFantazio》阿基态（职业系统）篇】 
+[https://b23.tv/HkLa3IO](https://b23.tv/HkLa3IO)
+
+Fami通 物語冒頭「アーキタイプの覚醒」
+
+试玩“剧情模式”：[https://youtu.be/JvV711RinGY](https://youtu.be/JvV711RinGY)
+

@@ -402,3 +402,19 @@ HG的命运2&amp;宙斯套装从预订开始就坐地起价，MR的MSF和IJ2就�
 
 非机翻的字幕还没吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 1009#       发表于 2024-6-8 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152523&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-8 10:19</a>
+BD 圣诞节发售
+
+各家的不同特典太多了，直接看官网吧
+
+https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
+流媒体先行了bd就拖到年底是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

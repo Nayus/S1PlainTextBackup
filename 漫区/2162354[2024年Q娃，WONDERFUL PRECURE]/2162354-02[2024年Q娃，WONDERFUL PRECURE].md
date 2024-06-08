@@ -1808,3 +1808,17 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 好A，感觉能把小雪扣爆，这下猫猫只有当0的份了
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1636#       发表于 2024-6-8 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152971&amp;ptid=2162354" target="_blank">猫屋敷まゆ 发表于 2024-6-8 11:04</a>
+
+第19話　キュアリリアン、誕生！
+
+脚本：成田良美</blockquote>
+ま~ゆ~
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

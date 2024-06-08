@@ -153,3 +153,14 @@
 老爷子在X上最新的发文都是在玩fgo</blockquote>
 那个号好像是他助手在运营
 
+
+*****
+
+####  alucardcz  
+##### 12815#       发表于 2024-6-8 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158200&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-8 19:22</a>
+
+但是萌新有别的非洲人没有的啊.....今年都过去一半了非洲人也只抽了魔夜的2个联动角色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新刚刚allin 兽妮已经寄了  1年都抽不到一个想要的！
+

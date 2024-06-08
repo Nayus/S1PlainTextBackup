@@ -1571,3 +1571,36 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 这我看了我都忍不住，真他到底是怎么忍住的，我很好奇！</blockquote>
 露娜在劇場版沒忍啊，但是真這個小鬼沒硬起來嚇到跑出甲板曬月光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 1119#       发表于 2024-6-9 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161218&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-9 00:10</a>
+
+露娜的格斗比鸟还厉害，因为枪法不行才故意选用炮击机体，笑s，有种比赛不选绝活，偏要练英雄的唐氏感 ...</blockquote>
+还有这设定！？真的从没看出来月亮格斗比鸟强的
+
+*****
+
+####  Bani82  
+##### 1120#       发表于 2024-6-9 00:21
+
+阿斯兰也是胆子大的，敢让卡咖喱这水平远程遥控...
+
+这算两害取其轻（读心和卡咖喱的技术哪个更害真不好说
+
+
+*****
+
+####  混乱之雨  
+##### 1121#       发表于 2024-6-9 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161345&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 00:19</a>
+
+还有这设定！？真的从没看出来月亮格斗比鸟强的</blockquote>
+1小时17分，机师团强夺千禧年里，露娜直接把背后用枪顶自己的鸟一套连招秒了。
+
+虽然这里鸟有戏弄女友，一定放水的成分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

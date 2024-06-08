@@ -451,3 +451,11 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 看了会大概 ...</blockquote>
 畢竟連麻宮騎亞這種老登都出來了，體諒一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 1013#       发表于 2024-6-8 13:16
+
+才发现这次的脉冲是直接组合好出击的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出击台词里不是核心战机总有种违和感
+

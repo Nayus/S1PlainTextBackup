@@ -542,3 +542,11 @@ QQ图片20240608134519.jpg
 才发现这次的脉冲是直接组合好出击的出击台词里不是核心战机总有种违和感 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妄想系同盟  
+##### 1022#       发表于 2024-6-8 14:56
+
+看到过繁中的枪版，但一半被遮住了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

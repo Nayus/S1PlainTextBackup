@@ -60,3 +60,13 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  6030sylar  
+##### 384#       发表于 2024-6-8 14:48
+
+这样车手要做的就是油门焊死，把安全交给ai就是了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

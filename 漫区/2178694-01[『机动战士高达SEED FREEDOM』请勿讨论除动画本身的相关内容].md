@@ -1965,3 +1965,14 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 换光束薙刀 ...</blockquote>
 这2女人打架大概是整个战场最出戏的地方，边上都完全没人理她们
 
+
+*****
+
+####  novyDC  
+##### 1149#       发表于 2024-6-9 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162830&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-06-09 03:00:17</a>
+这2女人打架大概是整个战场最出戏的地方，边上都完全没人理她们</blockquote>仿佛两个女高中生因恋爱问题意见不同就开ms干架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

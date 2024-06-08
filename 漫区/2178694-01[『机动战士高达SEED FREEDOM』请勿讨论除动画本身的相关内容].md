@@ -1012,3 +1012,41 @@ bd年底才发，现在还不知道
 电影院看的有没有配音的？还是只是原音+字幕？</blockquote>
 香港是原音+字幕
 
+
+*****
+
+####  hkguty  
+##### 1065#       发表于 2024-6-8 20:27
+
+BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉很崩
+
+*****
+
+####  螺旋的小夜曲  
+##### 1066#       发表于 2024-6-8 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">别的我都能接受，拂晓单防镇魂曲有点太离谱了
+
+
+*****
+
+####  Znesmoc  
+##### 1067#       发表于 2024-6-8 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158885&amp;ptid=2178694" target="_blank">螺旋的小夜曲 发表于 2024-6-8 20:29</a>
+
+别的我都能接受，拂晓单防镇魂曲有点太离谱了</blockquote>
+尤其是联想一下之前设定里说拂晓造价很高一台得20个M1异端就更是难绷<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+阿斯哈要是看到剧场版里拂晓这表现估计能直接笑得从棺材板里蹦出来，这还造个锤子的M1<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汝者  
+##### 1068#       发表于 2024-6-8 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158856&amp;ptid=2178694" target="_blank">hkguty 发表于 2024-6-8 20:27</a>
+
+BD感觉会修正一些画面吧，自由最后太刀捅穿BOSS机那里感觉很崩</blockquote>
+剧场版一般不会修正的 不是tv
+

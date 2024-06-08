@@ -5176,3 +5176,18 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 —— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 是吧 从猎鹰时代就是gopro了 之前太西洋捡到整流罩的渔民也是拆出来gopro5
 
+
+*****
+
+####  tsukatsukieiko  
+##### 530#       发表于 2024-6-8 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153517&amp;ptid=2176876" target="_blank">薄皮破船 发表于 2024-6-8 11:55</a>
+
+现在火箭上面级氢氧机用得多了，你说怎么办</blockquote>
+保温几个小时是现有工程实现的；保温几天是有实验性项目验证的；保温几个星期甚至几个月是只有PPT的。
+
+也就是说，这玩意只能用作大质量载荷的地球出发级，完全无法用于深空应用。最好最好，用于LEO到TLI的拖车，就这样还要搞在轨加注液氢。至于一次性EDS可以当做屁用没有了，就是用硝糖推进剂都更合适，至少不用三天两头打个气冷快堆上天。
+
+另外使用现有堆芯结构核热发动机理论比冲上限大概是1200，实际上能有八九百就谢天谢地了。完全无法达到前面楼友说的3000+。至于核电，确实没有液氢的问题，但是第一氙气挺贵的，第二咋说呢同样的重量我上个太阳能电池板不行么？
+

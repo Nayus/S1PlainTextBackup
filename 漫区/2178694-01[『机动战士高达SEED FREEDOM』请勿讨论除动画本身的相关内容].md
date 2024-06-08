@@ -418,3 +418,16 @@ https://www.gundam-seed.net/freedom/news/item.php ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  keytomylife  
+##### 1010#       发表于 2024-6-8 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65152834&amp;ptid=2178694" target="_blank">RE㐅ia 发表于 2024-6-8 10:50</a>
+
+捍卫者为啥非要拉克丝最后亲自去送？阿斯兰第一次出击直接开出来不好吗？ ...</blockquote>
+经典藏招
+
+再展示一下自由在两人手上的战绩
+

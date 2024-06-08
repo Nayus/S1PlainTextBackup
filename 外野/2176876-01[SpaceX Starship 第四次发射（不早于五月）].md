@@ -5191,3 +5191,18 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 另外使用现有堆芯结构核热发动机理论比冲上限大概是1200，实际上能有八九百就谢天谢地了。完全无法达到前面楼友说的3000+。至于核电，确实没有液氢的问题，但是第一氙气挺贵的，第二咋说呢同样的重量我上个太阳能电池板不行么？
 
+
+*****
+
+####  哈里-谢顿  
+##### 531#       发表于 2024-6-8 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153676&amp;ptid=2176876" target="_blank">tsukatsukieiko 发表于 2024-6-8 12:10</a>
+
+保温几个小时是现有工程实现的；保温几天是有实验性项目验证的；保温几个星期甚至几个月是只有PPT的。
+
+也 ...</blockquote>
+主要是深空探测不能用帆板，太阳能用在土木圈内已经是极限，超过了就要上堆
+
+另外就是太阳能面积太大
+

@@ -432,3 +432,33 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 
 媒体发的试玩还挺多
 
+
+*****
+
+####  Piano-Forest  
+##### 441#         楼主| 发表于 2024-6-8 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153372&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-8 11:39</a>
+
+【《暗喻幻想：ReFantazio》SummerGameFest.预告片“Awaken”】
+[https://b23.tv/2uGZkLW](https://b23.tv/2uGZkLW)</blockquote>
+Fami通 物語冒頭「アーキタイプの覚醒」
+
+试玩“剧情模式”：
+[https://youtu.be/JvV711RinGY](https://youtu.be/JvV711RinGY)
+
+電ファミ公式チャンネル
+
+试玩“boss模式”：
+[https://youtu.be/qrJ_M2vz32M](https://youtu.be/qrJ_M2vz32M)
+
+4GamerSP
+
+试玩“迷宫模式”
+[https://youtu.be/jQatzmOOTZ0](https://youtu.be/jQatzmOOTZ0)
+
+巴哈姆特 中文版试玩“迷宫模式”：
+
+遊戲初期迷宮「被佔領的大聖堂」
+[https://youtu.be/0cgcBXH7Y4I](https://youtu.be/0cgcBXH7Y4I)
+

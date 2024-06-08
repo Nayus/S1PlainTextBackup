@@ -11756,3 +11756,64 @@ bml那个是真的假的？
 </blockquote>
 这效果感觉可以啊，0级塞垫子4000攻，睦睦打人够痛的
 
+
+*****
+
+####  PDQ4  
+##### 17340#       发表于 2024-6-8 11:27
+
+还有不到6h了
+
+*****
+
+####  御幸一也  
+##### 17341#       发表于 2024-6-8 11:43
+
+待機<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/08/114327cqcddedbfnowwlqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 11:43 上传
+
+*****
+
+####  CyDiablo  
+##### 17342#       发表于 2024-6-8 13:14
+
+转自nga，花篮图
+<img src="https://p.sda1.dev/18/28f6c340e6f7c4fab197a3a3388020f0/1510048051717823495726.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/22712517b8f0e517e32091201ba29faa/11443176101717823491869.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/bdee36181f6b14ea6046c870730210bd/15200327871717823503458.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0fbe2b0af7e9f6317dea00c593243c85/-11030249821717823499304.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1d1fdef6c4c1f4ba53d070b40f77df0e/-6288076951717823507656.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 17343#       发表于 2024-6-8 16:11
+
+不到一小时了，待机<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 17344#       发表于 2024-6-8 16:12
+
+ 本帖最后由 cherryjia12 于 2024-6-8 16:14 编辑 
+
+官号又开始整蛊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+开播前一个小时才提因版权原因小剧场不播，我看这次是真欠冲了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 17345#       发表于 2024-6-8 16:13
+
+好nb的运营，小剧场不能播在演出开始前一小时才说
+

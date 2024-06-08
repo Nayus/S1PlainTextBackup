@@ -358,3 +358,28 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 说实话看下来最难受的是这里，如果进入到异世界背景，台词就退化成这样的话，玩不玩都无所谓。
 
+
+*****
+
+####  Lynn冰翎  
+##### 577#       发表于 2024-6-8 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156417&amp;ptid=2139558" target="_blank">jbjack1215 发表于 2024-6-8 16:40</a>
+
+解锁羁绊就是解锁职业
+
+个体使用魔法是原形技，双人技能是综合技
+
+感觉像是异世界p，不是smt</blockquote>
+首先试玩的新手主线关很简单，难度也开得很低，对面没还手就全杀光了，看不出什么。
+
+今天稍早有一个解释战斗系统的20分钟专题，其实除了“面具”和“阿基态”的区别以外，差不多是未来的自己把手柄递过来就能接着玩的相似度。
+
+<img src="https://img.saraba1st.com/forum/202406/08/192711avzw538zg22722tw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (379.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 19:27 上传
+

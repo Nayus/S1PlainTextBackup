@@ -103,3 +103,16 @@
 
 在中国大陆这个社会背景下，实在很难接受女赛车手这种设定，脑内一直有个声音跟我说：只要她们在路上别撞死人就行，开30就30吧。
 
+
+*****
+
+####  arachnid  
+##### 388#       发表于 2024-6-8 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65155129&amp;ptid=2081261" target="_blank">X(iaolw)S 发表于 2024-6-8 14:29</a>
+
+@arachnid
+
+不是解释了ai因为有三原则限制，在有对手的实战要以人命优先安全第一，所以出不了全力吗</blockquote>
+道理都懂，但是给我的感觉就很别扭，从人开车ai辅助变成了人辅助ai开车，怪怪的，如果改成ai用全力开车，女主远程模拟仓同步辅助吗，这样是不是最优解呢，同时满足ai能用全力和没有人命安全问题?
+

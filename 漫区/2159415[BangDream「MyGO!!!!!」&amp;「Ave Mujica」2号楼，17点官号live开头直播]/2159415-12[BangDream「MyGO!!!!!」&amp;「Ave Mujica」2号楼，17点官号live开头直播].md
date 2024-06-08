@@ -12519,3 +12519,71 @@ b站是有字幕的吗</blockquote>
 
 10月就开到3rd了，到时候五首symbol的迷你专还要再抽一场，是要对标mygo当初的进度，动画前把4th开完，动画期间开到5th？
 
+
+*****
+
+####  近月  
+##### 17424#       发表于 2024-6-8 19:00
+
+散场后等公交碰到个韩国来的老哥，一只脚打石膏了还拄拐来看，我们母鸡卡太有魅力了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 大叶饺子| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  bindata  
+##### 17425#       发表于 2024-6-8 19:01
+
+<blockquote>近月 发表于 2024-6-8 19:00
+散场后等公交碰到个韩国来的老哥，一只脚打石膏了还拄拐来看，我们母鸡卡太有魅力了
+
+—— 来自 samsung SM ...</blockquote>
+别说，还看到个残疾老哥，双腿都没了……
+
+*****
+
+####  6030sylar  
+##### 17426#       发表于 2024-6-8 19:13
+
+<img src="https://img.saraba1st.com/forum/202406/08/191304qwcfmdfrdww0ryf7.png" referrerpolicy="no-referrer">
+
+<strong>Z`SVQDJL_HTZ8T$`UP_@${3.png</strong> (39.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 19:13 上传
+
+丰川祥子ntm.jpg
+
+*****
+
+####  russianbear  
+##### 17427#       发表于 2024-6-8 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65158114&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-6-8 19:13</a>
+
+丰川祥子ntm.jpg</blockquote>
+脸和数字（指鼓谱BPM）
+
+*****
+
+####  russianbear  
+##### 17428#       发表于 2024-6-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156453&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-8 16:43</a>
+
+太棒了吧</blockquote>
+睦是金发还是绿发？
+

@@ -2404,3 +2404,11 @@ jackpot的世锦赛冠军名牌发了
 
 —— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  墨染白泉  
+##### 4673#       发表于 2024-6-8 19:22
+
+出金概率多少啊，我打到max了还没出金
+

@@ -87,3 +87,21 @@
 自己上个水妖兰带张50NP的倍卡和青子再借个好友的C呆就能快乐无 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">羡慕豹豹 你说的我一个都没有
 
+
+*****
+
+####  希望之花  
+##### 12810#       发表于 2024-6-8 19:21
+
+田岛老师在X上放了张画的烟雾镜，帅爆了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">**型月能不能做点人事
+
+*****
+
+####  森兰丸  
+##### 12811#       发表于 2024-6-8 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65155263&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-8 14:41</a>
+
+羡慕豹豹 你说的我一个都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">但是萌新有别的非洲人没有的啊.....今年都过去一半了非洲人也只抽了魔夜的2个联动角色
+

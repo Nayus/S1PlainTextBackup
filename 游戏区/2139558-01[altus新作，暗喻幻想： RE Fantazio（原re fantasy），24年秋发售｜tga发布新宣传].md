@@ -342,3 +342,19 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自由转职难道是世界树胎动出东西了（不是
 
+
+*****
+
+####  Lynn冰翎  
+##### 576#       发表于 2024-6-8 19:16
+
+<img src="https://img.saraba1st.com/forum/202406/08/191555otw66sypykzbjw1q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (254.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 19:15 上传
+
+说实话看下来最难受的是这里，如果进入到异世界背景，台词就退化成这样的话，玩不玩都无所谓。
+

@@ -1764,3 +1764,13 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 <img src="https://p.sda1.dev/18/38deb713ffb6683e9e3020952ded22dd/image.jpg" referrerpolicy="no-referrer">
 [https://x.com/daihu9san/status/1799349371991105917?t=YBtToWhFWU5vOsrFkyz8mQ&amp;s=19](https://x.com/daihu9san/status/1799349371991105917?t=YBtToWhFWU5vOsrFkyz8mQ&amp;s=19)
 
+
+*****
+
+####  hisousihou  
+##### 1632#       发表于 2024-6-8 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再多来点猫猫镜头啊。小麦变人还是经常汪汪叫，小雪怎么不喵喵了
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -5206,3 +5206,32 @@ https://mp.weixin.qq.com/s/k4AkXkSFzNkH9W8C4PXJRQ
 
 另外就是太阳能面积太大
 
+
+*****
+
+####  薄皮破船  
+##### 532#       发表于 2024-6-8 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153676&amp;ptid=2176876" target="_blank">tsukatsukieiko 发表于 2024-6-8 12:10</a>
+
+保温几个小时是现有工程实现的；保温几天是有实验性项目验证的；保温几个星期甚至几个月是只有PPT的。
+
+也 ...</blockquote>
+不是，你眼里的深空到底是啥？现在打深空的氢氧第三级全部被你开除了是不是？？？
+
+你为啥觉得非要保存几个月？？？
+
+*****
+
+####  薄皮破船  
+##### 533#       发表于 2024-6-8 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153825&amp;ptid=2176876" target="_blank">哈里-谢顿 发表于 2024-6-8 12:25</a>
+
+主要是深空探测不能用帆板，太阳能用在土木圈内已经是极限，超过了就要上堆
+
+另外就是太阳能面积太大 ...</blockquote>
+不不不，这位是啥都不知道，一说核动力就以为是长时间远距离工作
+
+丫说的压根不是你现在说的供电这些，丫以为核动力就是深空烧几个月火箭推进········
+

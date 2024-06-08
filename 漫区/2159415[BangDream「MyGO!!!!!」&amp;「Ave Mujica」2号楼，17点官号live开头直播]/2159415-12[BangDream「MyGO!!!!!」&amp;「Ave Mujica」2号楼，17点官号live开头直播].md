@@ -11899,3 +11899,55 @@ bml那个是真的假的？
 
 现地待机，位置好偏
 
+
+*****
+
+####  相坂君  
+##### 17355#       发表于 2024-6-8 16:26
+
+我看人说不能退票，不会有人重新买e+的票吧？
+
+哎哟，好呀挣两份钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 17356#       发表于 2024-6-8 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65156220&amp;ptid=2159415" target="_blank">bindata 发表于 2024-6-8 16:24</a>
+
+现地待机，位置好偏</blockquote>
+本地的相册应该有旋转图片的功能吧？<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17357#       发表于 2024-6-8 16:29
+
+所以有无漏油来研究下怎么举报？
+
+*****
+
+####  笋干爆炸碱  
+##### 17358#       发表于 2024-6-8 16:30
+
+直接买eplus多好，还能看回放<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bindata  
+##### 17359#       发表于 2024-6-8 16:30
+
+<blockquote>[皆神孝介] 发表于 2024-6-8 16:28
+本地的相册应该有旋转图片的功能吧？</blockquote>
+想想还是删了，不惹麻烦
+
+手机看还是正的（）
+
+*****
+
+####  skives  
+##### 17360#       发表于 2024-6-8 16:33
+
+排队ing 希望今天多唱几首
+

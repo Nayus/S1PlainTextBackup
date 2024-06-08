@@ -866,3 +866,29 @@ magnet:?xt=urn:btih:C8FC4222F2DF7F8CF3C733AA27E6835685BFECD6</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  vuder  
+##### 1051#       发表于 2024-6-8 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157544&amp;ptid=2178694" target="_blank">novyMS 发表于 2024-6-8 18:25</a>
+不得不说 剧场版真的够乐的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+剧场版反派比议长手段差多了，议长真的是优秀
+
+*****
+
+####  螺旋的小夜曲  
+##### 1052#       发表于 2024-6-8 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">人体感觉太怪了，头身比都短，上半身太粗壮，腿又细成麻杆
+
+*****
+
+####  洛克萨斯  
+##### 1053#       发表于 2024-6-8 18:36
+
+有组做字幕了吗
+

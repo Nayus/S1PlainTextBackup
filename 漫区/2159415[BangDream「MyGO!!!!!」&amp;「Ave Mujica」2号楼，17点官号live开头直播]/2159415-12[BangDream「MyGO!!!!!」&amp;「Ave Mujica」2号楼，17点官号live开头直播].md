@@ -12263,3 +12263,204 @@ b站是有字幕的吗</blockquote>
 
 我草，双月和黑色生日连着演奏，wsd你是又想飞马了吗
 
+
+*****
+
+####  rikaren  
+##### 17399#       发表于 2024-6-8 18:25
+
+ 本帖最后由 rikaren 于 2024-6-8 18:27 编辑 
+
+月之森的可靠前辈友情出演
+
+艹，好像还有大提琴
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|這是ave mujica|
+
+查看全部评分
+
+*****
+
+####  cherryjia12  
+##### 17400#       发表于 2024-6-8 18:26
+
+这是结束了？
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17401#       发表于 2024-6-8 18:26
+
+是谁在拉琴——
+
+*****
+
+####  ellisnadie  
+##### 17402#       发表于 2024-6-8 18:28
+
+最后的钢琴和大提琴真好听啊
+
+*****
+
+####  rikaren  
+##### 17403#       发表于 2024-6-8 18:28
+
+<img src="https://img.saraba1st.com/forum/202406/08/182832sxavxuwc4z48ix4x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-08-18-27-52-82_149003a2d400f6adb210d7e357a3a646.jpg</strong> (152.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:28 上传
+
+3rd!
+
+等下，这就是ppp和m中间那一场吧。
+
+*****
+
+####  御景  
+##### 17404#       发表于 2024-6-8 18:29
+
+太爽了， 最后是新曲吗？
+
+*****
+
+####  滑稽Captain  
+##### 17405#       发表于 2024-6-8 18:29
+
+还真是3rd放河口湖三连剩的那天了
+
+*****
+
+####  ytttsuuuba  
+##### 17406#       发表于 2024-6-8 18:29
+
+水元素，下首歌的预告吧可能
+
+*****
+
+####  ellisnadie  
+##### 17407#       发表于 2024-6-8 18:29
+
+最后的钢琴和大提琴真好听啊
+
+*****
+
+####  cherryjia12  
+##### 17408#       发表于 2024-6-8 18:30
+
+所以b战版就删了那三秒吗，这下反转了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 17409#       发表于 2024-6-8 18:30
+
+应该是水元素，但是一开始那个画面以为是light了（这何尝不是一种初祥糖）
+
+
+*****
+
+####  cherryjia12  
+##### 17410#       发表于 2024-6-8 18:31
+
+10月3rd该宣动画pv了吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  御幸一也  
+##### 17411#       发表于 2024-6-8 18:32
+
+3rd還真是河口湖<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 17412#       发表于 2024-6-8 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157596&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-6-8 18:30</a>
+
+所以b战版就删了那三秒吗，这下反转了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 S1Next-鹅版 v3.0 ...</blockquote>
+叔叔真是超级敏感啊
+
+*****
+
+####  御景  
+##### 17413#       发表于 2024-6-8 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157596&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-6-8 18:30</a>
+
+所以b战版就删了那三秒吗，这下反转了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 S1Next-鹅版 v3.0 ...</blockquote>
+就删了那三秒，弄成突然的直播事故也比发公告好啊，
+
+*****
+
+####  PDQ4  
+##### 17414#       发表于 2024-6-8 18:33
+
+结束了，意犹未尽，两首新曲发挥意外不错，特别是symbol I，米泽全称敲下来了还游刃有余的样子
+
+这场初祥卖特别大，吃撑了真的
+
+渡濑那个小剧场真的太惊艳了，声线的变化，还有平淡里带点那种癫狂的味道，睦第二期怎么转变期待麻了
+
+梦以感觉配音进步好大，基本没有棒味了
+
+*****
+
+####  御景  
+##### 17415#       发表于 2024-6-8 18:33
+
+<img src="https://img.saraba1st.com/forum/202406/08/183355a688hk5464e6se8n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-8 18:33 上传
+
+*****
+
+####  kosou  
+##### 17416#       发表于 2024-6-8 18:34
+
+虽然说5首歌有一首inst很正常
+
+但你当初说的是每个月配信啊 你要流媒体配信纯inst吗 还是说刚好省pv钱了鬼图都不用约
+
+*****
+
+####  yifan8848  
+##### 17417#       发表于 2024-6-8 18:35
+
+河口湖賭對了，已經抽好PPP的票，就等Monica開獎，AM開抽了
+
+*****
+
+####  rikaren  
+##### 17418#       发表于 2024-6-8 18:35
+
+<blockquote>滑稽Captain 发表于 2024-6-8 18:32
+叔叔真是超级敏感啊</blockquote>
+这种事到底出在谁问题上应该都能清楚吧，叔叔反而也算受害者了。
+

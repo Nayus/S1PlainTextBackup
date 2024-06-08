@@ -142,3 +142,14 @@
 （这上色不是很赞吗，螺旋社扫描机是什么毛病扫成那样...）</blockquote>
 老爷子在X上最新的发文都是在玩fgo<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 12814#       发表于 2024-6-8 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160024&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-6-8 22:14</a>
+
+老爷子在X上最新的发文都是在玩fgo</blockquote>
+那个号好像是他助手在运营
+

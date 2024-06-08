@@ -1774,3 +1774,13 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  theory0  
+##### 174#       发表于 2024-6-9 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157234&amp;ptid=2144105" target="_blank">第贰个十年 发表于 2024-6-8 17:58</a>
+比起看三话就知道后面一百话展开的作品，还是这种邪道主角邪道作品更合我胃口，我想看到的就是这种无法预测 ...</blockquote>
+没有亦正亦邪，德鲁哈是守序邪恶吧，与正毫无关系
+

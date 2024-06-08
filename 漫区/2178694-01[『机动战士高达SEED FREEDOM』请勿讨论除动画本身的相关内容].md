@@ -1604,3 +1604,16 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 虽然这里鸟有戏弄女友，一定放水的成分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Bani82  
+##### 1122#       发表于 2024-6-9 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161400&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-9 00:23</a>
+
+1小时17分，机师团强夺千禧年里，露娜直接把背后用枪顶自己的鸟一套连招秒了。
+
+虽然这里鸟有戏弄女友， ...</blockquote>
+我还以为是MS的格斗战
+

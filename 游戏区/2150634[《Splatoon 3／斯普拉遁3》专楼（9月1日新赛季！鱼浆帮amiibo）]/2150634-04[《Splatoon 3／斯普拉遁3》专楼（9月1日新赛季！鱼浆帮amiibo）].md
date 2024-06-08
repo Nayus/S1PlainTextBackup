@@ -2392,3 +2392,15 @@ jackpot的世锦赛冠军名牌发了
 第一次用熊刷
 竖劈以为我卡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  erewrerwe  
+##### 4672#       发表于 2024-6-8 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65155685&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-6-8 15:28</a>
+最多击破两只还必须得发狙，不得不思考先集火辰龙的策略到底有没有问题</blockquote>
+不打龙是能把吐出来的元气弹打回去吗
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -462,3 +462,13 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 遊戲初期迷宮「被佔領的大聖堂」
 [https://youtu.be/0cgcBXH7Y4I](https://youtu.be/0cgcBXH7Y4I)
 
+
+*****
+
+####  Piano-Forest  
+##### 442#         楼主| 发表于 2024-6-8 12:45
+
+<img src="https://p.sda1.dev/18/9c9b6880f65d5aa7052d4bf36ec8cfa9/20240608_124407.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/dc776d99f9e1b5def05731251227b2eb/20240608_124409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/beec77b44b69271f2d589f7209747921/20240608_124411.jpg" referrerpolicy="no-referrer">
+

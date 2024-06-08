@@ -215,3 +215,13 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 看演示这个养成和合体技系统有点幻视DDSAT
 
+
+*****
+
+####  takayama  
+##### 563#       发表于 2024-6-8 12:41
+
+前后列+变身，真1真2真if和数码恶魔传说俩作<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JER-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

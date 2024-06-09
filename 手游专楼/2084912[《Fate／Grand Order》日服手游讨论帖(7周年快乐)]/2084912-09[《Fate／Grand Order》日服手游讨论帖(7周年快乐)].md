@@ -222,3 +222,29 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  johnkamsar  
+##### 12822#       发表于 2024-6-9 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65171574&amp;ptid=2084912" target="_blank">溯夜 发表于 2024-6-9 20:23</a>
+
+水c呆几宝好用啊，国服现在才200石头，感觉得跳伽梨了
+
+论坛助手,iPhone</blockquote>
+没啥特别必要，其实接下来所有池都可以说没必要抽。。。。。大不了开图鉴
+
+主要是目前现阶段有的角色够用了，把拐补全点就随便打了，打手一般整一两个够了
+
+
+*****
+
+####  alucardcz  
+##### 12823#       发表于 2024-6-9 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65171115&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-9 19:58</a>
+
+我也没啊 所以不如留着石头抽水C呆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧  留着就能抽到 这就是欧皇的自信
+

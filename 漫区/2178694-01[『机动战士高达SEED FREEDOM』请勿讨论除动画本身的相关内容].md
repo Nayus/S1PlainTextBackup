@@ -3039,3 +3039,24 @@ FT这是在故意虐美玲粉吗
 
 这他喵的是把作画经费贪污了吧
 
+
+*****
+
+####  alien  
+##### 1235#       发表于 2024-6-9 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172030&amp;ptid=2178694" target="_blank">lain2008 发表于 2024-6-9 20:51</a>
+
+好多场景的人物作画是flash水平，比如开头的跳舞那一段，然后狼和鸡互殴，鸡被打飞的一瞬间，阿斯兰除了头 ...</blockquote>
+大概是全3d的机战花太多钱了吧~~
+
+*****
+
+####  whiteweakbear  
+##### 1236#       发表于 2024-6-9 21:20
+
+骗钱太明显了。。。。。虽然机战场面比哈萨维多比哈萨维大，但哈萨维的场面明显有诚意得多，就连 NT 这些短片都有诚意的多，辣么多复制粘贴齐射机体有个 p 好看
+新几小强的机体，感觉就是：哦，哦，我只出来一话啊，我是反派啊，那随便画画就好了。。。。
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

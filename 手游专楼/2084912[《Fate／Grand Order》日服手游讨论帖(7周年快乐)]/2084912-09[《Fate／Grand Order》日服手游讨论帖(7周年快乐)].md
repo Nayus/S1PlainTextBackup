@@ -259,3 +259,13 @@
 欧  留着就能抽到 这就是欧皇的自信</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新
 
+
+*****
+
+####  khxooo  
+##### 12825#       发表于 2024-6-10 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170915&amp;ptid=2084912" target="_blank">上坂莲华 发表于 2024-6-9 19:45</a>
+豹跳了1宝兽尼，想了想国服刷90艹好像得2宝兽尼才舒服，只能掏出我的2宝水C呆了 ...</blockquote>
+欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

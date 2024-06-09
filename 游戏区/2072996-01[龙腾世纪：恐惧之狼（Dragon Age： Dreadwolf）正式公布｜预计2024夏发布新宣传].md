@@ -1728,3 +1728,13 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 我就知道
 
+
+*****
+
+####  zhenlune  
+##### 190#       发表于 2024-6-10 02:07
+
+尽管已经有心理准备，但还是突破底线的离谱，这游戏都不暴死的话视频游戏行业就没有存在的必要了。
+
+—— 来自 realme RMX2072, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

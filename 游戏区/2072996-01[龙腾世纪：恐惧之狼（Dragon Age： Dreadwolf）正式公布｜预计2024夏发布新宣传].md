@@ -1869,3 +1869,52 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哈哈，一眼寄完了
 
+
+*****
+
+####  Flechette  
+##### 205#       发表于 2024-6-10 03:15
+
+重看了预告才发现第一个出场的矮人妹是Harding，DAI里她也不长这么多雀斑啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。最该皮糙肉厚的Qunari龙猎手居然是最细皮嫩肉的，veil jumper是刻板印象东亚脸，也就三妹侦探好一点，说起来DAI里三妹外交官也是除去两位返场的1代女主外最好看的
+
+男队友的捏脸倒是好不少，这一点也算是继承DAI了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+美漫风格的五官和皮肤材质，超级英雄似的BGM，只能说生软对DA的玩家群体喜好可能有错误的认知
+
+*****
+
+####  hmfwsl  
+##### 206#       发表于 2024-6-10 03:18
+
+这微妙的画风到底发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+哪怕继续inquisition的风格呢
+这回真的靠编剧了。买是肯定会买的，毕竟仙女座都首发了
+只能说期待值到达新低
+
+
+*****
+
+####  Flechette  
+##### 207#       发表于 2024-6-10 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177343&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-10 03:18</a>
+
+这微妙的画风到底发生了什么
+
+哪怕继续inquisition的风格呢
+
+这回真的靠编剧了。买是肯定会买的，毕竟仙女座 ...</blockquote>
+但是老三部曲的lead writer David Gaider早就跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+生软现在的编剧实力实在是让人心里没底
+
+*****
+
+####  ak123  
+##### 208#       发表于 2024-6-10 03:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177333&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-6-10 03:15</a>
+
+重看了预告才发现第一个出场的矮人妹是Harding，DAI里她也不长这么多雀斑啊。最该皮糙肉厚的Qunari龙猎手居 ...</blockquote>
+很大概率ea和基软完全冲着dai带来的这波同人女去了，他这个画风都一脸白皮同人女烂俗奇幻风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

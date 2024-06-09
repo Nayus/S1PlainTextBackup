@@ -393,3 +393,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  xzzfft  
+##### 46#       发表于 2024-6-10 03:19
+
+看着就挺爽 期待玩起来的感觉
+

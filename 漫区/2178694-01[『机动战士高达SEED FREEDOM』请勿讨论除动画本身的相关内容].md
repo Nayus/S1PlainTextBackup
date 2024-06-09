@@ -2562,3 +2562,22 @@ FT这是在故意虐美玲粉吗
 
 2024-6-9 13:32 上传
 
+
+*****
+
+####  199april  
+##### 1196#       发表于 2024-6-9 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到 种系除了金毛妈妈有啥胸小的女角色吗
+
+感觉都很大很晃啊
+
+*****
+
+####  gundammarkⅡ  
+##### 1197#       发表于 2024-6-9 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166550&amp;ptid=2178694" target="_blank">-lilipeipei- 发表于 2024-6-9 13:33</a>
+话说之前看的时候就觉得卡嘉莉这套装备眼熟：</blockquote>
+其实seed系很多元素都致敬了机甲战记龙骑，这次剧场版升自和不正合体技打毁灭时，连分镜都致敬了机甲战记龙骑结局
+

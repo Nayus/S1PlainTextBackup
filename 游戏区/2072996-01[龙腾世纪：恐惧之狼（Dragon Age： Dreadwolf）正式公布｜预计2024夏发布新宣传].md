@@ -2021,3 +2021,15 @@ DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通�
 
 不是，我真以为自己看错游戏了，我觉得自己在看侠盗荣耀这种喜剧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">wtf生软？
 
+
+*****
+
+####  jf8350143  
+##### 219#       发表于 2024-6-10 05:30
+
+我要暴论了：美国佬（或者说白左开发商）现在已经做不来严肃的rpg了，博德之门3的大成功只会加剧这一点。
+
+以后就是人均堡垒之夜玩家“喜欢”的胡逼卡通游戏了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

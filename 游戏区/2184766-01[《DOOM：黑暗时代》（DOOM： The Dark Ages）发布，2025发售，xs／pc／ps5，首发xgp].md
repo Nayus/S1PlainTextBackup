@@ -483,3 +483,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 感觉是开放世界，有刷刷要素。
 
+
+*****
+
+####  半分宅  
+##### 56#       发表于 2024-6-10 07:13
+
+传说降临
+

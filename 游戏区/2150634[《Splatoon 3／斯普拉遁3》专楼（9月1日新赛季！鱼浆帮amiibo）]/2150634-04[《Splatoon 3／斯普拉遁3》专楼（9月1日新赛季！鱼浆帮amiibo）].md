@@ -2629,3 +2629,13 @@ max三岗过了，仍旧没有金
 
 在母校找不到蛋框急死我了，发现跑到了对面校舍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4698#       发表于 2024-6-9 22:28
+
+憋不住了必须说一下，三纲名字的中文本地化真的巨傻逼，“すりみ連合”翻译成鱼浆帮，“オカシラ連合”这种明显对标鱼浆帮的名字给翻译成“头目联合”这种翻译了一半的傻逼名字。中文里的“联合”根本没有对标日文里“連合”的含义（至少我翻了第七版现代汉语字典里面没有）。翻译成“头目联盟”我都当他们努力了。这明摆着应该翻译成“头目帮”的送分题答成负分也是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

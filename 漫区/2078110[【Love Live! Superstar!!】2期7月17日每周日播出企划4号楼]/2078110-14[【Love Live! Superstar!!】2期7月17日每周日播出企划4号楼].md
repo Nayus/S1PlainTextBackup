@@ -1409,3 +1409,36 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 <img src="https://p.sda1.dev/18/3a331d0f1b6843c36b789f76a4e58e2a/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/ffcba327560fa323a836774b5f605095/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20307#       发表于 2024-6-7 23:30
+
+k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写给我整不会了……这倒八眉是怎么想的呢？要说为了契合k组的苦情曲，那vn不是笑的挺灿烂的吗，可可为啥要画成笑不像笑哭不像哭的表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 20308#       发表于 2024-6-8 00:57
+
+抓的是歌唱时候甩高音阶的神态吧
+
+*****
+
+####  仟音一心  
+##### 20309#       发表于 2024-6-8 14:12
+
+新泻三美神
+<img src="https://p.sda1.dev/18/3a331d0f1b6843c36b789f76a4e58e2a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ffcba327560fa323a836774b5f605095/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 20310#       发表于 2024-6-9 08:52
+
+新泻这场的收音好烂
+

@@ -1329,3 +1329,13 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 —— 来自 OnePlus KB2005, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  hamartia  
+##### 144#       发表于 2024-6-9 08:54
+
+瞬间由纯金到镀金，还褪色了
+
+动作场面的这个力反馈严重不安
+

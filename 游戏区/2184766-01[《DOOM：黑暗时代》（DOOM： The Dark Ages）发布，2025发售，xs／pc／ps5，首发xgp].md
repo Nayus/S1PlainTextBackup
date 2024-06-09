@@ -491,3 +491,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 传说降临
 
+
+*****
+
+####  hisousihou  
+##### 57#       发表于 2024-6-10 07:20
+
+为什么不做Quake+1.这个ip上一次还是做了个多人对战来着，经营不善热度不涨，后来就关了。
+

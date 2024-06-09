@@ -1830,3 +1830,21 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  钱如命  
+##### 179#       发表于 2024-6-9 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163836&amp;ptid=2144105" target="_blank">ストック 发表于 2024-6-9 08:59</a>
+感觉如果定义德鲁哈的行为是“守序”，那他的行为就不能算“恶”，因为以他的秩序为基准只有利益关系，“ ...</blockquote>
+守序邪恶的人物在理论上会依循自己的标准，尽其可能地取得自己想要的东西，而不管是否伤害到他人；同时，他们认为规则与法律以及传统都是为了维护统治者及制定者的利益。
+
+在dnd的体系里，守序意味着有自己一套行事准则——德鲁哈相对来说是比较守约的，最后翻脸也是因为他判断所长“没有能力继续按照约定提供稳定三餐”；
+
+而邪恶意味着为了自身利益伤害他人的意愿——德鲁哈在这方面来说可以说是极强，在有更稳定且不伤害别人的方法时依然会选择最快捷的杀人来解决。
+
+所以，按照守序邪恶这个词的出处dnd来分类，德鲁哈是非常标准的守序邪恶<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

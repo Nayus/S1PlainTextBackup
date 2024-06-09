@@ -10409,3 +10409,41 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 ⛵不下去了
 
+
+*****
+
+####  joshua1990  
+##### 5422#       发表于 2024-6-9 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">ED的全体合唱版放出来了，还行吧，估计以后live会经常合唱这个了
+
+*****
+
+####  花开安菲路  
+##### 5423#       发表于 2024-6-9 23:11
+
+感觉就是拿卖单／主机游戏思维，去运营服务型游戏，
+单机游戏那基本是一锤子买卖，服务型游戏是你热度维持的越久越好，才能爆更多米，你上来就又扣又氪，玩家都吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alleyht  
+##### 5424#       发表于 2024-6-9 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65171692&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-6-9 20:31</a>
+
+我去，正脸天井努</blockquote>
+神崎这货是装都不装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能想像到他一边画一边爽的样子（
+
+*****
+
+####  Alleyht  
+##### 5425#       发表于 2024-6-9 23:18
+
+页游闪我猜接下来是美琴暮光婚纱，我们咪酱真是赢赢嬴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+手游闪那边从日花花手里偷了半个冠军，回到本家这边还有重量级冠军，不亏你闪第一重女，某不知名04真的是被爆中爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

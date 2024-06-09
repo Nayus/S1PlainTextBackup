@@ -490,3 +490,36 @@ mmr不许上厕所
 
 等着玩国服的请问要先学会这门外语吗
 
+
+*****
+
+####  kyonko15  
+##### 43#       发表于 2024-6-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174553&amp;ptid=2186915" target="_blank">第七月球 发表于 2024-6-9 23:01</a>
+
+等着玩国服的请问要先学会这门外语吗</blockquote>
+mmr不许玩国服
+
+
+*****
+
+####  kangkangsama  
+##### 44#       发表于 2024-6-9 23:15
+
+<img src="https://img.saraba1st.com/forum/202406/09/231519qevin4wngn0vnzsg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4143.jpeg</strong> (10.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/231519ibb4jz1j21r11a0g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4144.jpeg</strong> (56.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 23:15 上传
+

@@ -445,3 +445,11 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 
 —— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  takayama  
+##### 584#       发表于 2024-6-9 13:01
+
+哦，听出来了，之前PV里那个跟主角达成FOLLOWER的粉毛兔子CV是埃及人，而达成FOLLOWER的天之声应该就是日高法子
+

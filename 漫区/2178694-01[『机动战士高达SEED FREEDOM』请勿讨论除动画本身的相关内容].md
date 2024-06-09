@@ -2452,3 +2452,48 @@ FT这是在故意虐美玲粉吗
 还在等非机翻的中文字幕版本，有的话求一个</blockquote>
 [https://zimuku.org/detail/201275.html#subinfo](https://zimuku.org/detail/201275.html#subinfo)
 
+
+*****
+
+####  七七見奈波  
+##### 1188#       发表于 2024-6-9 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164426&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-9 10:17</a>
+
+FT这是在故意虐美玲粉吗
+
+种命后日谈的结尾里头都靠着狼的肩膀了，没想到20年后被FT强行把已经在胃里的狼给 ...</blockquote>
+看错了吧，后日谈里头靠肩膀的是拉克丝，美玲是走在阿斯兰身后的，而且奥布之夜的时候美玲显然已经开始对阿斯兰掉滤镜了，一些追星女对爱豆祛魅
+
+截屏2024-06-09 13.00.05.jpg
+(404.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:01 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/130105sattneeadpeaee2q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hac0101  
+##### 1189#       发表于 2024-6-9 13:05
+
+1187楼那个改了下字体和字号。
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+機動戦士ガンダムSEED FREEDOM.ass
+
+2024-6-9 13:04 上传
+点击文件名下载附件
+
+160.68 KB, 下载次数: 0
+
+*****
+
+####  混乱之雨  
+##### 1190#       发表于 2024-6-9 13:06
+
+头炮直接破坏原子的同时抑制可能产生的核反应，现象上就是引起物质的分解消灭，CE目前所有防御手段都无效，使用需要拉克丝认证，出力过高因此SF2单体无法使用，必须搭配荣耀捍卫者。实际使用时充能时间并不长，使用后也未发生类似PD这样的不良反应，但有纳米粒子减少的镜头（影响护盾量，可以说副作用相当小了）剧中也有零距离瞬发的镜头，可以说泛用性并不低，不像传统超级兵器那样，有充能过久影响连射，发射后出力降低，无法近战等缺点。太bug了难怪要认证。
+

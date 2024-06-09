@@ -1136,3 +1136,52 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 已经有这么多了吗，果然联动曲占了大半
 
+
+*****
+
+####  holoan  
+##### 8985#         楼主| 发表于 2024-6-9 12:30
+
+<img src="https://img.saraba1st.com/forum/202406/09/122449x854tm9lmw7wql27.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 12:24 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/122554nr54i4r9nr4lqlhx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 12:25 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/122809ika4ksslel69pj6z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 12:28 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/122938n63q0porhr390caa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 12:29 上传
+
+你们怎么回事买得也太快了吧，4个通贩站的库存已经被清空了，这才几天？
+
+吓得我，我本来还想说书不用着急下单，赶紧先保一本
+
+*****
+
+####  holoan  
+##### 8986#         楼主| 发表于 2024-6-9 12:59
+
+等一下想想不太对，她播火影前说的是超长篇，但是播完一部也才一星期，难不成她计划的是2 3 4连轴播！？
+

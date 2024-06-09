@@ -1966,3 +1966,11 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 变身后真的自信了很多啊，不过也不是没设想过变身后成为傲气角色的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1651#       发表于 2024-6-9 10:29
+
+猫组两人的变身bank好看，相比之下狗组不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

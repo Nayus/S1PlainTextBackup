@@ -2245,3 +2245,31 @@ FT这是在故意虐美玲粉吗
 
 总觉得千禧年这线控炮操作是舰长直操，不然真的很难解释干嘛把自己升上去的送人头行为，如果穆没开拂晓搞不好玛硫会把穆弹上去<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  马桶3  
+##### 1168#       发表于 2024-6-9 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164426&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-9 10:17</a>
+
+FT这是在故意虐美玲粉吗
+
+种命后日谈的结尾里头都靠着狼的肩膀了，没想到20年后被FT强行把已经在胃里的狼给 ...</blockquote>
+狼是名义上的MIA，不然也不会去搞情报组织，私底下搞一夫多妻也没什么法律负担的，就看他自己道德上过不过得去了
+
+这么说来如果鸡对着月面的喊话如果只有萝莉粑粑收到的话，他也是MIA，但是如果公屏喊话被其他组织也收到，那跟拉做完，还得出来收拾后续承担责任，不过种世界历来胜者为王，事情全推给打输的那一方是常态，打赢了基本就不用付追责了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 1169#       发表于 2024-6-9 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164514&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-9 10:25</a>
+
+狼是名义上的MIA，不然也不会去搞情报组织，私底下搞一夫多妻也没什么法律负担的，就看他自己道德上过不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狼可没MIA，正经有军衔和能公开亮相
+
+而且现在美玲对狼没爱慕之情
+

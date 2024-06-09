@@ -3162,3 +3162,33 @@ FT这是在故意虐美玲粉吗
 现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了 ...</blockquote>
 奥布科技是这样的，ce第一黑产大哥的实力。
 
+
+*****
+
+####  hac0101  
+##### 1248#       发表于 2024-6-9 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173225&amp;ptid=2178694" target="_blank">风朝北吹 发表于 2024-6-9 21:59</a>
+
+想看字幕组版,港版翻译能看吗</blockquote>
+能看，因为台词根本不重要。
+
+*****
+
+####  lain2008  
+##### 1249#       发表于 2024-6-9 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172900&amp;ptid=2178694" target="_blank">赤黑的假面 发表于 2024-6-9 21:44</a>
+
+是的，即使如此都成为高达票房第一了，你楼拿闪哈拉踩的真的应该反省一下把闪哈吹的那么牛，为啥才24E ...</blockquote>
+不算踩吧，单纯作画质量而言，闪哈的确好很多，甚至nt都好很多
+
+*****
+
+####  佐伯香織  
+##### 1250#       发表于 2024-6-9 22:26
+
+戏里戏外还真都是偶像剧尿性。
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

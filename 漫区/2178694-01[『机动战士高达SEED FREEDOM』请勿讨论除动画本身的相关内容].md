@@ -2804,3 +2804,23 @@ FT这是在故意虐美玲粉吗
 
 142.13 KB, 下载次数: 0
 
+
+*****
+
+####  whiteweakbear  
+##### 1215#       发表于 2024-6-9 17:44
+
+看了一半了，各种尬，而且制作不算有钱，白瞎这个 Ip
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑暗之眼  
+##### 1216#       发表于 2024-6-9 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167562&amp;ptid=2178694" target="_blank">培根芝士蛋堡XD 发表于 2024-6-9 15:08</a>
+
+前半段太难看了，先抑后扬也没必要这样整，除了ntr就是吃瘪，还是最憋屈的那种吃瘪；后半段靠各种搞笑和情 ...</blockquote>
+你问死鬼两泽千晶呗，前半截就她的遗本
+

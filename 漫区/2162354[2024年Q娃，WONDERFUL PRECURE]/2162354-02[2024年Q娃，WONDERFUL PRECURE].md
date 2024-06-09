@@ -1869,3 +1869,38 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 以后又不能打了吗？这老鼠刚才发缩小光线之前的表现明显是邪恶的本性暴露出来了啊，看得我好不爽，既然不能对高贵善良可怜的小动物下狠手，staff赶快让邪恶的敌人出来挨打吧，毕竟猫科动物的战斗本能被扼杀也很可怜
 
+
+*****
+
+####  jaewoongh_  
+##### 1641#       发表于 2024-6-9 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163483&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-6-9 08:04</a>
+
+以后又不能打了吗？这老鼠刚才发缩小光线之前的表现明显是邪恶的本性暴露出来了啊，看得我好不爽，既然不能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题是反派（疑似狼）还是没出场啊
+
+*****
+
+####  renkan119  
+##### 1642#       发表于 2024-6-9 08:10
+
+狗组这两集只做了放跑怪和拦住猫两件事…
+
+
+*****
+
+####  hisousihou  
+##### 1643#       发表于 2024-6-9 08:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我要看棉签本
+
+*****
+
+####  MagicGiraffe  
+##### 1644#       发表于 2024-6-9 08:16
+
+棉签本会不会有点太少儿不宜了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+猫猫哭哭太好味了，这集过后能娇下来吗<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

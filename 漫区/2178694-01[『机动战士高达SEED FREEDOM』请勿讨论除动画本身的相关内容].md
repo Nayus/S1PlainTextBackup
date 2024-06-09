@@ -2303,3 +2303,15 @@ FT这是在故意虐美玲粉吗
 
 不知道是不是正经精修 确实有点没看懂  
 
+
+*****
+
+####  mffx  
+##### 1173#       发表于 2024-6-9 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164426&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-9 10:17</a>
+FT这是在故意虐美玲粉吗
+
+种命后日谈的结尾里头都靠着狼的肩膀了，没想到20年后被FT强行把已经在胃里的狼给 ...</blockquote>
+美琳粉和数量和购买力都强得多的卡粉和cp粉，你是ft，你选谁(笑)
+

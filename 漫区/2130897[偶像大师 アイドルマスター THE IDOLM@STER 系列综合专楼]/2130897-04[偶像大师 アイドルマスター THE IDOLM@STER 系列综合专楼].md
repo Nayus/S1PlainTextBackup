@@ -10207,3 +10207,11 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">皮卡丘二单也挺热闹
 
+
+*****
+
+####  野菜一日分  
+##### 5401#       发表于 2024-6-9 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">经验来说国内柏油跑活动的比灰友多得多，我猜还是因为灰最火的一波是CGSS，而柏火的时候主要还是靠声优LIVE吧
+

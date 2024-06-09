@@ -172,3 +172,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">杀狐14绊正式退休，以后90*粉笔本就用借来的c呆配水c呆打了
 
+
+*****
+
+####  qixinno2  
+##### 12817#       发表于 2024-6-9 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65160605&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-8 23:13</a>
+
+萌新刚刚allin 兽妮已经寄了  1年都抽不到一个想要的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡兽尼不重要 不如水C呆一根
+

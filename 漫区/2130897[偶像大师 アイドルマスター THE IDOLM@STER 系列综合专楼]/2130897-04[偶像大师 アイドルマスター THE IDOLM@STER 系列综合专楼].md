@@ -10511,3 +10511,21 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 这是这次小黄的新曲？
 
+
+*****
+
+####  黛冬优子  
+##### 5432#       发表于 2024-6-9 23:50
+
+【初星学園 「Campus mode!!」Lyric Video (HATSUBOSHI GAKUEN - Campus mode!!) Short】 [https://www.bilibili.com/video/BV1Cs421u7DD](https://www.bilibili.com/video/BV1Cs421u7DD)
+
+全体曲，但是感觉还是差了点味道，和其他家比少点东西的感觉
+
+
+*****
+
+####  格雷殿下  
+##### 5433#       发表于 2024-6-9 23:52
+
+全体曲不行，都怪莉莉娅
+

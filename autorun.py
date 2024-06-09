@@ -30,6 +30,25 @@ def parse_title(title):
     titles = '['+titles+']'
     return titles
 
+def mkdir(path):
+    # 去除首位空格
+    path=path.strip()
+    # 去除尾部 \ 符号
+    path=path.rstrip("\\")
+    path=path.encode('utf-8')
+    # 判断路径是否存在
+    # 存在     True
+    # 不存在   False
+    isExists=os.path.exists(path)
+
+    # 判断结果
+    if not isExists:
+        os.makedirs(path)
+        return True
+    else:
+        # 如果目录存在则不创建，并提示目录已存在
+        return False
+
 def parse_html(html,threadict):
     # soup = BeautifulSoup(html,from_encoding="utf-8",features="lxml")
     soup = BeautifulSoup(html, 'html.parser')
@@ -82,6 +101,7 @@ if __name__ == '__main__':
     #     thdata[i]['update'] = False
     session = requests.session()
     for k in forumdict.keys():
+        mkdir(rootdir+k)
         threadict = {}
         # 仅查看第一页
         for i in range(1,2):

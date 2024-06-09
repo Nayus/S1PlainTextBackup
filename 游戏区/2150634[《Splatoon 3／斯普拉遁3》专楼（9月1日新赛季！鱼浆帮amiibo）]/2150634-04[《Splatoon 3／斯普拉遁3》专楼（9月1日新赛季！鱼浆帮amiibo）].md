@@ -2656,3 +2656,11 @@ max三岗过了，仍旧没有金
 
 熊刀打头目联合是真不知道干吗233
 
+
+*****
+
+####  墨染白泉  
+##### 4701#       发表于 2024-6-9 23:48
+
+好嫌弃以后普通工的刷子，已经变成熊刷的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

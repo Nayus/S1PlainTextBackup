@@ -1918,3 +1918,41 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 重看了预告才发现第一个出场的矮人妹是Harding，DAI里她也不长这么多雀斑啊。最该皮糙肉厚的Qunari龙猎手居 ...</blockquote>
 很大概率ea和基软完全冲着dai带来的这波同人女去了，他这个画风都一脸白皮同人女烂俗奇幻风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hmfwsl  
+##### 209#       发表于 2024-6-10 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177318&amp;ptid=2072996" target="_blank">ak123 发表于 2024-6-10 03:10</a>
+预告看完笑了，这就是做成儿童向游戏了，直接连骷髅都是卡通风格的，血腥成份也没了
+
+整个一战锤变成迪士尼 ...</blockquote>
+该说不说，darkspawn卡通化从2就开始了，现在是变本加厉了
+一直也不懂生软放弃起源的美术风格是为了什么
+到现在连最新的inquisition都要推倒重来
+
+*****
+
+####  Flechette  
+##### 210#       发表于 2024-6-10 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177360&amp;ptid=2072996" target="_blank">ak123 发表于 2024-6-10 03:23</a>
+
+很大概率ea和基软完全冲着dai带来的这波同人女去了，他这个画风都一脸白皮同人女烂俗奇幻风格 ...</blockquote>
+DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通画风蛋头，同人女肯定比我急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hmfwsl  
+##### 211#       发表于 2024-6-10 03:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177358&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-6-10 03:23</a>
+但是老三部曲的lead writer David Gaider早就跑路了
+
+生软现在的编剧实力实在是让人心里没底 ...</blockquote>
+害反正大概率最后一部了
+大学时偶然发现DAO每个暑假都至少通一遍
+到现在也十多年了
+最不济就当是给生软上供了
+

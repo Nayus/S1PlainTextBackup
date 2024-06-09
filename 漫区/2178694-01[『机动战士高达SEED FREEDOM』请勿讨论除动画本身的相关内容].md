@@ -2993,3 +2993,49 @@ FT这是在故意虐美玲粉吗
 1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
 肯定不是
 
+
+*****
+
+####  lain2008  
+##### 1232#       发表于 2024-6-9 20:49
+
+ 本帖最后由 lain2008 于 2024-6-9 20:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65171936&amp;ptid=2178694" target="_blank">alien 发表于 2024-6-9 20:46</a>
+
+感觉开篇很多人物表情动作崩坏~
+
+印象中tv都没那么多……也许是记忆美化？还是近年的动画画师画不来平井脸了 ...</blockquote>
+不只是表情崩坏，好多场景人物就是flash等级
+
+比如狼和鸡互殴的那一段，鸡被打飞的那一瞬间狼直接变flash作画了，质量比猫和老鼠那个新版都不如
+
+*****
+
+####  seedees3  
+##### 1233#       发表于 2024-6-9 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170977&amp;ptid=2178694" target="_blank">SorroFrost 发表于 2024-6-9 19:49</a>
+
+当时剧场版宣布换声优大家不就觉着整这出大概率场外导致的，换完声优两边角色直接一步到位了。
+
+至于美玲在 ...</blockquote>
+可以的FT，真就一工具人定位的女配因为场外因素被两泽拉狼配，如雏田那般地位火箭飞窜到主角CP的高度，还蹭到了后日谈和主角团一起同台论鸡汤，甚至在ED响起时的最终幕还是她陪着狼的
+
+结果这TV版结局都效仿鸡妖鸟月一起同框杀青了，现在说没感情就没感情，搞了半天一直以来都只是狼的跟班，现在回归纯工具人定位，怎么感觉待遇更惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lain2008  
+##### 1234#       发表于 2024-6-9 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163029&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-9 03:55</a>
+
+人物差一档，场景和机战都是一流，机战其实还有一部分手绘有点崩，
+
+闪哈虽好但是你要考虑这作机战场景比 ...</blockquote>
+好多场景的人物作画是flash水平，比如开头的跳舞那一段，然后狼和鸡互殴，鸡被大飞的一瞬间，阿斯兰除了头部分，剩下的全部变flahs作画了，质量比猫和老鼠的新版都差得远。。。
+
+福田把钱花到哪去了？这都不是作画崩溃了把？
+
+这他喵的是把作画经费贪污了吧
+

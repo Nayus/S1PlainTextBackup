@@ -212,3 +212,13 @@
 欧 羡慕 你看非萌是像有水c呆的人吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没啊 所以不如留着石头抽水C呆
 
+
+*****
+
+####  溯夜  
+##### 12821#       发表于 2024-6-9 20:23
+
+水c呆几宝好用啊，国服现在才200石头，感觉得跳伽梨了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

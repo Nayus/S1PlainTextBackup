@@ -2336,3 +2336,13 @@ FT这是在故意虐美玲粉吗
 —— 来自 vivo V2303A, Android 14上的 S1Next- ...</blockquote>
 给阿斯兰当小妾没脸回娘家了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 1176#       发表于 2024-6-9 12:23
+
+ 本帖最后由 natmk 于 2024-6-9 12:25 编辑 
+
+看完剧场版细节不能多想 讲了这么多打了这么久自然人和调整者的问题跟以前一样没一点进展 另外头炮这个黑科技已经超越00了不用蓄力还能连发
+

@@ -1802,3 +1802,70 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 —— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  2014720  
+##### 199#       发表于 2024-6-10 03:04
+
+我当年闻着龙腾大佬的味摸进s1的，如今生软这鬼样子真是几把都笑爆了
+
+*****
+
+####  roydimus  
+##### 200#       发表于 2024-6-10 03:07
+
+现在看仙女座都觉得眉清目秀…
+
+—— 来自 nubia NX679S, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  xzzfft  
+##### 201#       发表于 2024-6-10 03:10
+
+这tm和第一支预告不是一个风格了吧，感觉是推倒重来好几次实在不行赶鸭子上架的产物
+
+*****
+
+####  ak123  
+##### 202#       发表于 2024-6-10 03:10
+
+预告看完笑了，这就是做成儿童向游戏了，直接连骷髅都是卡通风格的，血腥成份也没了
+
+整个一战锤变成ow的感觉
+
+<img src="https://img.saraba1st.com/forum/202406/10/031031mcej15niihmlj0e1.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240610022415.png</strong> (10.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 03:10 上传
+
+<img src="https://img.saraba1st.com/forum/202406/10/031031wpi3kifg79festaf.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240610022404.png</strong> (17.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 03:10 上传
+
+*****
+
+####  ak123  
+##### 203#       发表于 2024-6-10 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177122&amp;ptid=2072996" target="_blank">ace8848 发表于 2024-6-10 02:22</a>
+
+真的烂，实机画面还以为是什么魔奇幻题材gaas呢</blockquote>
+你这么认为是因为他就是白左奇幻gaas改成单机的
+
+*****
+
+####  HATENA  
+##### 204#       发表于 2024-6-10 03:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哈哈，一眼寄完了
+

@@ -373,3 +373,23 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 今天唯一期待的新游戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 44#       发表于 2024-6-10 03:08
+
+期待！
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  游蜓  
+##### 45#       发表于 2024-6-10 03:11
+
+帅
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

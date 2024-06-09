@@ -2288,3 +2288,14 @@ q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列�
 艾尔从一开始变身器就被扒出来要变身的 结果她的专武步步高点读机占强化大招位
 q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1681#       发表于 2024-6-10 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168140&amp;ptid=2162354" target="_blank">麻辣仙人 发表于 2024-6-9 16:06</a>
+我看到有眼镜男和他的宠物兔子 之前不是也有男q娃吗</blockquote>
+就从去年看万代对男q娃态度很差 q娃好好的给女孩家长爆金币就可以了 男孩家长有的是其他ip玩具可以慢慢爆 您们别操心男孩子的心了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+有成田大妈在嘛 眼镜男当然是用来谈恋爱的 但怎么谈现在正片里还没有拍到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

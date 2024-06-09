@@ -10563,3 +10563,13 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 笑死了这隐身白线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 5438#       发表于 2024-6-10 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168516&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-6-9 16:40</a>
+今天开始整理闪耀色彩下一个CD系列《ECHOES》的信息（「02」下周发售，「01」绝赞延期中），看到了这次比较 ...</blockquote>
+所以说现在ECHOES 01是什么情况
+

@@ -550,3 +550,11 @@ https://b23.tv/HkLa3IO</blockquote>
 
 ·有不少熟悉的敌人重新设计成了本作的风格；不存在只能用特定阿基态才能攻略的迷宫；战斗中也可以随时换难度、重新开始；攻略迷宫时甚至能联网一键抄作业
 
+
+*****
+
+####  Piano-Forest  
+##### 449#         楼主| 发表于 2024-6-9 07:47
+
+<img src="https://p.sda1.dev/18/69bf39841223153c4b3a4827cc9caf6c/40FFD5053198E1C6D229E169007629D0.jpg" referrerpolicy="no-referrer">
+

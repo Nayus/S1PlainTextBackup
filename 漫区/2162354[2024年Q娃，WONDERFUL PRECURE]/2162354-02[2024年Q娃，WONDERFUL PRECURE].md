@@ -2055,3 +2055,26 @@ q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总共20来秒的bank，狗组的“3、2、汪”就占了差不多10秒……会有救吗
 
+
+*****
+
+####  pokemon最爱  
+##### 1660#       发表于 2024-6-9 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167629&amp;ptid=2162354" target="_blank">麻辣仙人 发表于 2024-6-9 15:16</a>
+
+q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列有在没有宣传的情况下后期加人的先例吗
+
+另外刚看了 ...</blockquote>
+追加战士算是系列惯例了，纯空降的倒是不多，不过目前汪Q这情况是可能没有追加的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻辣仙人  
+##### 1661#       发表于 2024-6-9 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168111&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-6-9 16:03</a>
+
+追加战士算是系列惯例了，纯空降的倒是不多，不过目前汪Q这情况是可能没有追加的 ...</blockquote>
+我看到有眼镜男和他的宠物兔子 之前不是也有男q娃吗
+

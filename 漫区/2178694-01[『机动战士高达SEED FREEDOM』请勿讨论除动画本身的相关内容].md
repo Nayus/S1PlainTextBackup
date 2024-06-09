@@ -2964,3 +2964,32 @@ FT这是在故意虐美玲粉吗
 
 <img src="https://img.saraba1st.com/forum/202406/09/202245x0dwz05bbb8ii6r0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lain2008  
+##### 1229#       发表于 2024-6-9 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65169195&amp;ptid=2178694" target="_blank">黑暗之眼 发表于 2024-6-9 17:47</a>
+
+你问死鬼两泽千晶呗，前半截就她的遗本</blockquote>
+现在可以喷两泽了？我记得上一个楼我喷两泽被追着骂了几十楼
+
+*****
+
+####  alien  
+##### 1230#       发表于 2024-6-9 20:46
+
+感觉开篇很多人物表情动作崩坏~
+
+印象中tv都没那么多……也许是记忆美化？还是近年的动画画师画不来平井脸了？都那么多年前的古早画风了
+
+*****
+
+####  gary76  
+##### 1231#       发表于 2024-6-9 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168209&amp;ptid=2178694" target="_blank">liekong 发表于 2024-6-9 16:12</a>
+1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
+肯定不是
+

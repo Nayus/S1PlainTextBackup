@@ -2605,3 +2605,11 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4695#       发表于 2024-6-9 20:37
+
+砸地不就图他能快速开出来清一下堆积的怪<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">结果暴风全部台阶挡了，落下来和鱼大眼瞪小眼一平底锅扇死，鲨鱼也是半斤八两的久不久就要发生自信开车结果被台阶拦住的惨案
+

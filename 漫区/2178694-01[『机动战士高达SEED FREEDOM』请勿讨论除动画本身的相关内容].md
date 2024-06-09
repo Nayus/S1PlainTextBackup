@@ -3356,3 +3356,23 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 字幕基本没什么影响 文戏水平确实不怎么样
 后面打的挺爽的
 
+
+*****
+
+####  a8336869  
+##### 1265#       发表于 2024-6-10 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168209&amp;ptid=2178694" target="_blank">liekong 发表于 2024-6-9 16:12</a>
+
+1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
+是的，孩子，我打赢复活赛了，给你一份我自用的
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+[Ioroid] Kidou Senshi Gundam SEED Freedom [AMZN WEB-DL 1080p AVC E-AC3].ass
+(160.68 KB, 下载次数: 0)
+
+2024-6-10 00:20 上传
+
+点击文件名下载附件
+

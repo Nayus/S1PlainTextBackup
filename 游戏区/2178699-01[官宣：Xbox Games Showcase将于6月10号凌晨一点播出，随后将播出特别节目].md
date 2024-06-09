@@ -709,3 +709,13 @@ B站到时候有转播的不（
 B站到时候有转播的不（</blockquote>
 一堆UP主，XboxB站官号也会波
 
+
+*****
+
+####  医生狼多  
+##### 79#         楼主| 发表于 2024-6-10 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65175550&amp;ptid=2178699" target="_blank">madcow 发表于 2024-6-10 00:05</a>
+B站到时候有转播的不（</blockquote>
+直接看xbox盒子君【Xbox盒子君的个人空间-哔哩哔哩】 https://b23.tv/ElPXPCB
+

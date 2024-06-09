@@ -248,3 +248,14 @@
 我也没啊 所以不如留着石头抽水C呆</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧  留着就能抽到 这就是欧皇的自信
 
+
+*****
+
+####  qixinno2  
+##### 12824#       发表于 2024-6-10 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172482&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-9 21:24</a>
+
+欧  留着就能抽到 这就是欧皇的自信</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如狗萌新
+

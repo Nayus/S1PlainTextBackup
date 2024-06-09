@@ -73,7 +73,7 @@ if __name__ == '__main__':
         cookies[key] = value
     # 设置请求头
     headers = {'User-agent':'Mozilla/5.0 (Windows NT 6.1; WOW64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/60.0.3112.113 Safari/537.36'}
-    forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6','手游专楼':'135'}
+    forumdict = {'外野': '75','虚拟主播区专楼':'151','游戏区':'4','漫区':'6','手游专楼':'135','手游战斗':'156'}
     # forumdict = {'外野': '75','游戏区':'4','漫区':'6'}
     rootdir = "./"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8-sig') as f:

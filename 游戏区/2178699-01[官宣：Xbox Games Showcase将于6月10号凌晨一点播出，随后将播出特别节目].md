@@ -658,3 +658,12 @@ A new State of Decay 3 trailer will appear at Xbox Game Showcase 2024 tomorrow, 
 
 话说腐烂国度好玩吗，印象中没看到有讨论的
 
+
+*****
+
+####  Piano-Forest  
+##### 73#       发表于 2024-6-9 22:54
+
+时长可能没那么长
+<img src="https://p.sda1.dev/18/4b17d186b344d99c03c007bc3002fc00/IMG_20240609_225246.jpg" referrerpolicy="no-referrer">
+

@@ -394,3 +394,13 @@ XD
 
 兴起看了眼同接记录，最近本间桑靠着街霸再创辉煌，大福同接也还是很高，ssk怎么这么颓了
 
+
+*****
+
+####  格林卡罗尔  
+##### 272#       发表于 2024-6-9 22:51
+
+这律可街霸杯看起来还挺有意思的，还有下克上这种赛制<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+成员也是非常的虹杏友好（
+

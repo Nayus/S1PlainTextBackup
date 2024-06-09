@@ -290,7 +290,7 @@ if __name__ == '__main__':
     #     f.write('\n')
     asyncio.run(main())
 
-    for dir_prefix in ["外野/","手游专楼/","游戏区/","漫区/","虚拟主播区专楼/"]:
+    for dir_prefix in ["外野/","手游专楼/","游戏区/","漫区/","虚拟主播区专楼/","手游战斗/"]:
         subdir = rootdir + dir_prefix
         for item in os.listdir(subdir):
             if not str(item).endswith(".md"):

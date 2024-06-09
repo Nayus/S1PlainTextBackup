@@ -1992,3 +1992,28 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  上坂莲华  
+##### 1654#       发表于 2024-6-9 12:48
+
+我说什么来着，大妈的感情冲突就这水平，3分钟一碗水就端平了，漏油别想太多，老实当幼女片不带脑子看吧
+
+这集狗组三度拦猫还不是最难绷的，最难绷的是mayu跑去跟老鼠共情那段，你不是老鼠怎么知道老鼠咋想的，太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下集又是强行猫不行然后mayu仗着自己还在新手保护期飒爽救场，看来猫不行这页是揭不过去了，以后乖乖当强气受吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HANDAIYV  
+##### 1655#       发表于 2024-6-9 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166054&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-6-9 12:48</a>
+
+我说什么来着，大妈的感情冲突就这水平，3分钟一碗水就端平了，漏油别想太多，老实当幼女片不带脑子看吧
+
+这 ...</blockquote>
+真由：嘎鲁嘎鲁被q娃打会害怕，我被嘎鲁嘎鲁袭击了这么多次，我也会害怕，怎么不能共情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

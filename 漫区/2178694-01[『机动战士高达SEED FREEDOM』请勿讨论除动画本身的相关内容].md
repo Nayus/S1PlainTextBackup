@@ -2885,3 +2885,32 @@ FT这是在故意虐美玲粉吗
 
 整部片现在看起来 太谐了 不过我很喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hac0101  
+##### 1223#       发表于 2024-6-9 19:41
+
+主要是敌方太丢人了
+
+故事简单到就是个救公主的故事：
+
+敌方：库巴
+
+拉克丝：公主
+
+基拉：马里奥
+
+阿斯兰：路易
+
+飞鸟：小蓝
+
+*****
+
+####  司空怜  
+##### 1224#       发表于 2024-6-9 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170554&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-9 19:24</a>
+我发一句爆论，现在这个时间点白嫖完还来喷不好看的观众本来也不是这电影的目标受众，爱看看不看滚，这片光 ...</blockquote>
+可惜国内不上映，只在hk看了一次
+

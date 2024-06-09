@@ -183,3 +183,11 @@
 萌新刚刚allin 兽妮已经寄了  1年都抽不到一个想要的！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡兽尼不重要 不如水C呆一根
 
+
+*****
+
+####  上坂莲华  
+##### 12818#       发表于 2024-6-9 19:45
+
+豹跳了1宝兽尼，想了想国服刷90艹好像得2宝兽尼才舒服，只能掏出我的2宝水C呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

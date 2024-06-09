@@ -608,3 +608,16 @@ A9有说会发录制视频（简中版）
 
 女一号感觉起了个很男性化的名字，试玩版分那么细估计迟早开放下载吧
 
+
+*****
+
+####  Piano-Forest  
+##### 455#         楼主| 发表于 2024-6-10 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170383&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-6-9 19:13</a>
+
+女一号感觉起了个很男性化的名字，试玩版分那么细估计迟早开放下载吧</blockquote>
+看下次7月初会不会开放吧或是会有新的试玩版本？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+7月初应该会放出新角色的信息
+

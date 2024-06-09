@@ -3336,3 +3336,23 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了 ...</blockquote>
 鸟爹妈都是搞科研的，看他和妹妹的回忆里俩孩子生活无忧无虑，没有任何被鸡娃的迹象，这爹妈估计对孩子的前途并没有啥要求，感觉鸟不太像是父母一般会有点野心的一代调整者？更像是纯粹的二代调整者基因彩票
 
+
+*****
+
+####  starring  
+##### 1263#       发表于 2024-6-9 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65175125&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-6-9 23:35</a>
+鸟爹妈都是搞科研的，看他和妹妹的回忆里俩孩子生活无忧无虑，没有任何被鸡娃的迹象，这爹妈估计对孩子的 ...</blockquote>
+鸟父母还有搞科研的设定吗？只知道鸟一家都是在奥布生活的平民，鸟则纯粹是父母抽中的UR，说不定妹妹也是一样UR，保底SSR<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  vincenttc  
+##### 1264#       发表于 2024-6-9 23:59
+
+字幕基本没什么影响 文戏水平确实不怎么样
+后面打的挺爽的
+

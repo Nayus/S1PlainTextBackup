@@ -197,3 +197,13 @@ ami放开手脚跑暴打粉毛啊</blockquote>
 
 真跑起来AMI只要骗自己这是在打游戏不用遵守规则就好，其他人车上也有弱AI防撞的，AMI放开跑其他人都得被锁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 396#       发表于 2024-6-9 09:08
+
+还剩两集了还有时间补坑ami特殊性的来源么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">GPX可是一开始就明说了
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

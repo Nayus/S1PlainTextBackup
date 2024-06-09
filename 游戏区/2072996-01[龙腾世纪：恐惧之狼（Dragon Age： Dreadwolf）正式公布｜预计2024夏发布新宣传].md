@@ -1783,3 +1783,22 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">第一眼我还以为是黑曜石端出来的东西
 
+
+*****
+
+####  baizhi  
+##### 197#       发表于 2024-6-10 02:59
+
+真不是我说，这预告看得人倒胃口。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+从《龙腾世纪：审判》到《仙女座》，从《仙女座》刀《圣歌》，从《圣歌》到这逼《影障守护者》，bioware最近十年真是烂得流汤了。
+
+*****
+
+####  blue321  
+##### 198#       发表于 2024-6-10 03:01
+
+这预告片，是一点让人玩的欲望都没有啊…
+
+—— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

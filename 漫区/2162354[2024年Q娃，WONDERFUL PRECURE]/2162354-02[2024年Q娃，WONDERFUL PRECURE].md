@@ -2273,3 +2273,18 @@ mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗
 如果猫组不是一开始就放出信息的话，这个时间段入队就是追加战士</blockquote>
 去年翼同学 扬羽和猫组一个情况就是追加战士配置 不知道就是为了多卖点周边和初始一起公布了
 
+
+*****
+
+####  粉儿alice  
+##### 1680#       发表于 2024-6-10 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167629&amp;ptid=2162354" target="_blank">麻辣仙人 发表于 2024-6-9 15:16</a>
+q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列有在没有宣传的情况下后期加人的先例吗
+
+另外刚看了 ...</blockquote>
+知道一点加人就是万代用来卖玩具
+秋季玩具主力是强化大招 后期加人现在就三位 百合亚子属于剧情原因无法变身入队 百合的武器现在还没有商品化 亚子直接拿变身器当武器
+艾尔从一开始变身器就被扒出来要变身的 结果她的专武步步高点读机占强化大招位
+q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

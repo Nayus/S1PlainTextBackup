@@ -1760,3 +1760,14 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
 场景, 运镜, 人物动作, 全都1:1复刻, 甚至连snake身上的迷彩都是剧情进展刚好拿到的
 
+
+*****
+
+####  社友者  
+##### 174#       发表于 2024-6-10 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177153&amp;ptid=2135452" target="_blank">minysun 发表于 2024-6-10 02:24</a>
+
+听英配好像有点大卫海特的意思？</blockquote>
+游戏里全是原配，很早就说了
+

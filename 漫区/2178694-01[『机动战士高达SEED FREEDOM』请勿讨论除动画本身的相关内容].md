@@ -3299,3 +3299,40 @@ FT这是在故意虐美玲粉吗
 
 虽然拉克丝驾驶舱卖肉加大分，但最后的最后致敬tv片头裸飘的沙滩2人的全身裸背……太tm火柴人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 碟片版好歹修一修吧
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1260#       发表于 2024-6-9 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173382&amp;ptid=2178694" target="_blank">macos 发表于 2024-6-9 22:07</a>
+想起个问题，sf龙骑兵之前有用过三角罩吗，好像种命期间只拿来攻击</blockquote>
+没有，以前的强自好像设定上也没有超级龙骑生成光盾，不知是不是强自贰追加的功能
+
+*****
+
+####  X(iaolw)S  
+##### 1261#       发表于 2024-6-9 23:35
+
+ 本帖最后由 X(iaolw)S 于 2024-6-9 23:36 编辑 
+<blockquote>引用第1232楼seedees3于2024-06-09 20:49发表的  :
+
+SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉着整这出大概......</blockquote>
+@seedees3
+
+微博那舅舅传八卦说近藤当年得罪的其实是财团的大人，这次本来要求让她当背景板的，所以就嫣红没有做3d模型，是ft这边硬杠最后以替换声优完事
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  七七見奈波  
+##### 1262#       发表于 2024-6-9 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172579&amp;ptid=2178694" target="_blank">plok201 发表于 2024-6-9 21:29</a>
+
+看了正片才发现鸟也是有空认特效的.....
+
+现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了 ...</blockquote>
+鸟爹妈都是搞科研的，看他和妹妹的回忆里俩孩子生活无忧无虑，没有任何被鸡娃的迹象，这爹妈估计对孩子的前途并没有啥要求，感觉鸟不太像是父母一般会有点野心的一代调整者？更像是纯粹的二代调整者基因彩票
+

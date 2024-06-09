@@ -10475,3 +10475,29 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
  ...</blockquote>
 真正懂代孙的就不会开服玩了，我直接等几年后运营晚期强推新组合再入，要福利有福利要强度有强度要地位有地位，就像闪闪的米组一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  l3r0nY@  
+##### 5428#       发表于 2024-6-9 23:28
+
+等到要死的时候福利会好起来的，100連ガシャが無料还在等着我喵！
+
+
+*****
+
+####  patema  
+##### 5429#       发表于 2024-6-9 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉现在这个人气完全是代哥的意料外吧
+
+*****
+
+####  Anatoly  
+##### 5430#       发表于 2024-6-9 23:35
+
+起码CA的财报当时是很看好的（确实是独一档的大小）
+不过好成这样估计确实意料之外
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

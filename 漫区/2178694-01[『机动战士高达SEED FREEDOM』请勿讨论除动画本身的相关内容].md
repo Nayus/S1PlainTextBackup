@@ -3386,3 +3386,31 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 这玩意我就当同人看的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GN-XⅣ  
+##### 1267#       发表于 2024-6-10 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164023&amp;ptid=2178694" target="_blank">BlackRock 发表于 2024-6-9 09:25</a>
+
+美玲和露娜这对姐妹，不但没有互动，甚至连照面都没打上
+
+—— 来自 vivo V2303A, Android 14上的 S1Next- ...</blockquote>
+美玲和露娜在千年号出港的时候都在驾驶员休息室，应该是有见面，不过没同框……
+
+最后去炸镇魂曲炮口的时候也是一起。
+
+话说美玲在种命时期还是在后方干通信管制，两年之后直接变成和他姐一样的前线战士了。
+
+美玲种自里面先开着那个“蟹壳”和狼一起救鸡，然后和鸡一起潜入foundation的卫星要塞救拉克丝，还顺手炸掉要塞，将拉克丝送回千年号之后又和狼一起出击去打修罗，最后和狼，鸟，露娜一起去炸镇魂曲炮口。按军功算搞不好不比她姐低。
+
+很怀疑美玲的造型变化那么大是不是某种程度再说他这人确实变化很大。
+
+*****
+
+####  Ameyoru  
+##### 1268#       发表于 2024-6-10 01:10
+
+生肉啃完了，只能说就看个乐呵吧，然后海边牵手居然就真特么没后续了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

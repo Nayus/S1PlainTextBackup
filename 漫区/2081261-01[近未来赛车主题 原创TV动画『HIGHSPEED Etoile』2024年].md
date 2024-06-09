@@ -207,3 +207,15 @@ ami放开手脚跑暴打粉毛啊</blockquote>
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  raimouse  
+##### 397#       发表于 2024-6-9 11:33
+
+<blockquote>月夜凝雪 发表于 2024-6-8 19:28
+你们是不是忘记了整个季度一直都有个AI车手在</blockquote>
+比起那些ai车手，有个有名有姓但是没一丝戏份的妹子车手呢
+
+把把垫底好像
+

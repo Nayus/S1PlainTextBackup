@@ -2228,3 +2228,13 @@ mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗<img src="
 
 小雪：这一次我不会让你喜欢上（除了我）任何人<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1676#       发表于 2024-6-10 01:02
+
+除非兔子就是独角兽，不然这俩当追加有点太怪了，而且眼镜兔子跟彩羽小麦还有真由小雪一比，只能说是一起出场太少，根本感觉不到关系有特别好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+比起追加还是反派干部啥的快点来吧，不然又要看不到打戏了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -3376,3 +3376,13 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 点击文件名下载附件
 
+
+*****
+
+####  LOLITA  
+##### 1266#       发表于 2024-6-10 01:04
+
+还奇怪怎么又讨论上了，原来是上流媒体了啊？
+
+这玩意我就当同人看的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

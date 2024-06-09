@@ -1856,3 +1856,23 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 结局还挺有味道的，蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  footmanpon  
+##### 181#       发表于 2024-6-9 16:25
+
+ 本帖最后由 footmanpon 于 2024-6-9 16:28 编辑 
+
+还想着所长死前为什么没有用之前某个类似“当下这一瞬真是太好了”这样的场景作为临终回忆，来更加强烈的回应由德鲁哈说出的对浮士德经典的引用
+
+翻了翻发现之前的分镜和台词都有点模棱两可，没法很好的用上真是太可惜了
+
+<img src="https://img.saraba1st.com/forum/202406/09/162423bojodn8py6t2tuon.png" referrerpolicy="no-referrer">
+
+<strong>0bc514b955b3c3970722a247349ab0ac.png</strong> (325.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 16:24 上传
+

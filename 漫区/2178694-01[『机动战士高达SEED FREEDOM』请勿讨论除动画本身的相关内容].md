@@ -2739,3 +2739,24 @@ FT这是在故意虐美玲粉吗
 1187楼那个改了下字体和字号。</blockquote>
 1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？
 
+
+*****
+
+####  七七見奈波  
+##### 1210#       发表于 2024-6-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166486&amp;ptid=2178694" target="_blank">sephal 发表于 2024-6-9 13:28</a>
+
+我对美玲的脑补是类似于久宇舞弥那种的，毕竟好色的阿斯兰跟正宫卡嘉莉一年到头也碰不上几次，跟美玲又是朝 ...</blockquote>
+怀疑阿斯兰不喜欢红头发的女人，跟拉克丝也算半个青梅竹马吧，拉克丝摸他一下都躲，月亮姐妹对他眉来眼去他装憨。而且发现自己爱豆是个生活废柴台上台下反差过大怒而脱粉（误）的美玲也很可能不乐意啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oi99o  
+##### 1211#       发表于 2024-6-9 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168209&amp;ptid=2178694" target="_blank">liekong 发表于 2024-6-9 16:12</a>
+
+1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
+是的：[https://zimuku.org/detail/201275.html#subinfo](https://zimuku.org/detail/201275.html#subinfo)
+

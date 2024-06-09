@@ -3192,3 +3192,31 @@ FT这是在故意虐美玲粉吗
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  线程召唤使  
+##### 1251#       发表于 2024-6-9 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173828&amp;ptid=2178694" target="_blank">lain2008 发表于 2024-6-9 22:26</a>
+
+不算踩吧，单纯作画质量而言，闪哈的确好很多，甚至nt都好很多</blockquote>
+其实很简单的，说到底大家爱看的还是打架，第一标准还是哪部打架多。
+
+*****
+
+####  SorroFrost  
+##### 1252#       发表于 2024-6-9 22:37
+
+这电影还是很适合去电影院看的，大荧幕效果没得说，当时我看到基拉新机体出来我都傻了，电脑看多少差了些意思。
+
+*****
+
+####  赤黑的假面  
+##### 1253#       发表于 2024-6-9 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173828&amp;ptid=2178694" target="_blank">lain2008 发表于 2024-6-9 22:26</a>
+
+不算踩吧，单纯作画质量而言，闪哈的确好很多，甚至nt都好很多</blockquote>
+啊，这还不算踩的话，那钢弹能少多少内斗
+

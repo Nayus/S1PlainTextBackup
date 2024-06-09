@@ -2025,3 +2025,25 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 雪飘这写了三屏小作文是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还放在q娃初次变身后，离大谱
 
+
+*****
+
+####  麻辣仙人  
+##### 1657#       发表于 2024-6-9 15:16
+
+q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列有在没有宣传的情况下后期加人的先例吗
+
+另外刚看了2话，这变身后的“战斗”也太抽象了，后面也是这样一路嘴炮没有实际战斗的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  菈姆  
+##### 1658#       发表于 2024-6-9 15:22
+
+[https://b23.tv/rQegBwt](https://b23.tv/rQegBwt)
+
+下面已经进入蹦蹦跳跳变身程序了，上面321还没喊完
+
+这比处刑阿光还过分
+

@@ -2315,3 +2315,24 @@ FT这是在故意虐美玲粉吗
 种命后日谈的结尾里头都靠着狼的肩膀了，没想到20年后被FT强行把已经在胃里的狼给 ...</blockquote>
 美琳粉和数量和购买力都强得多的卡粉和cp粉，你是ft，你选谁(笑)
 
+
+*****
+
+####  vuder  
+##### 1174#       发表于 2024-6-9 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162830&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 03:00</a>
+这2女人打架大概是整个战场最出戏的地方，边上都完全没人理她们</blockquote>
+没觉得最后露娜把人给掰弯了么…
+
+*****
+
+####  vuder  
+##### 1175#       发表于 2024-6-9 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164023&amp;ptid=2178694" target="_blank">BlackRock 发表于 2024-6-9 09:25</a>
+美玲和露娜这对姐妹，不但没有互动，甚至连照面都没打上
+
+—— 来自 vivo V2303A, Android 14上的 S1Next- ...</blockquote>
+给阿斯兰当小妾没脸回娘家了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+

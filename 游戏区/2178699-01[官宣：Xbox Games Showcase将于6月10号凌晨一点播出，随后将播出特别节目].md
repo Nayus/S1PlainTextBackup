@@ -642,3 +642,11 @@ jez说不会是串流机<img src="https://static.saraba1st.com/image/smiley/face
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 随便绑一个麽，是外网的战网，不需要国服的
 
+
+*****
+
+####  医生狼多  
+##### 71#         楼主| 发表于 2024-6-9 12:16
+
+A new State of Decay 3 trailer will appear at Xbox Game Showcase 2024 tomorrow, the studio is also rebranding with new logo
+

@@ -1982,3 +1982,13 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 三次啊三次，狗组阻止小雪这剧情这么多次是真不想再看了，幸好之后应该不会再有了
 
+
+*****
+
+####  Kreis  
+##### 1653#       发表于 2024-6-9 12:13
+
+下次抱完能别先变猫吗，学学麦狗直接人形态撒娇<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

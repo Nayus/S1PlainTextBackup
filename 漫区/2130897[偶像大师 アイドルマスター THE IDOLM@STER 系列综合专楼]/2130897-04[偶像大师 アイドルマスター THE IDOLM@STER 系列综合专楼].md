@@ -10349,3 +10349,31 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学目前这个阵容，能端上来一首正常的全体曲吗，不会真就全solo没有大合唱吧
 
+
+*****
+
+####  acacaclove  
+##### 5415#       发表于 2024-6-9 22:11
+
+不是，你们真的对万代的运营有期望？
+
+学马能维持现在这个热度半年我都得算万代超常发挥了
+
+*****
+
+####  patema  
+##### 5416#       发表于 2024-6-9 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是闪闪的同卡需求远超学吧，大家差不多烂啦
+
+*****
+
+####  raimouse  
+##### 5417#       发表于 2024-6-9 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么看都是复刻A25吧
+
+因为实在太抠出卡太勤快
+
+然后每个月都在走下坡路
+

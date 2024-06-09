@@ -1771,3 +1771,13 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 听英配好像有点大卫海特的意思？</blockquote>
 游戏里全是原配，很早就说了
 
+
+*****
+
+####  حماس  
+##### 175#       发表于 2024-6-10 04:13
+
+[https://www.bilibili.com/video/av1755666037/](https://www.bilibili.com/video/av1755666037/)
+
+转了个日版PV
+

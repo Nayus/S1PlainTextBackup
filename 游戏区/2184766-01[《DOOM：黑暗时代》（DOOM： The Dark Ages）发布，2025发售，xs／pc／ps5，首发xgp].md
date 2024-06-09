@@ -413,3 +413,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 很急，只希望这次他们不要再按头强制性让玩家玩某个武器，再多点自由度<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  siebten  
+##### 48#       发表于 2024-6-10 04:09
+
+有绿光弹反无所谓 但千万别再有掠夺者那种强制让你qte的怪了……
+

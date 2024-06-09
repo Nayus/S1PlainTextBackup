@@ -1750,3 +1750,13 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  MRhythm  
+##### 173#       发表于 2024-6-10 02:51
+
+看完pv铁杆老粉心情复杂, ps2版我太熟了, 这pv完全是ps2原版1:1复刻
+
+场景, 运镜, 人物动作, 全都1:1复刻, 甚至连snake身上的迷彩都是剧情进展刚好拿到的
+

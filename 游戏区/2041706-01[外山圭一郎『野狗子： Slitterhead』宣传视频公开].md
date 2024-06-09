@@ -1429,3 +1429,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 街机的复仇精灵
 
+
+*****
+
+####  Piano-Forest  
+##### 154#         楼主| 发表于 2024-6-9 15:31
+
+<img src="https://p.sda1.dev/18/8840f11eaf23b002be2bb72413c5c5ea/Slitterhead_2024_06-07-24_024.jpg" referrerpolicy="no-referrer">
+

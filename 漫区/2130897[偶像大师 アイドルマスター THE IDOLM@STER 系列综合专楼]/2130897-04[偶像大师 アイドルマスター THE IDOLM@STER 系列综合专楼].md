@@ -10501,3 +10501,13 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 5431#       发表于 2024-6-9 23:38
+
+【【学园偶像大师】琴音「Yellow Big Bang!」试听-哔哩哔哩】 https://b23.tv/kxxLFml
+
+这是这次小黄的新曲？
+

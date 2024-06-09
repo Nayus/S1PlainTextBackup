@@ -164,3 +164,11 @@
 但是萌新有别的非洲人没有的啊.....今年都过去一半了非洲人也只抽了魔夜的2个联动角色 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新刚刚allin 兽妮已经寄了  1年都抽不到一个想要的！
 
+
+*****
+
+####  乾理央  
+##### 12816#       发表于 2024-6-9 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">杀狐14绊正式退休，以后90*粉笔本就用借来的c呆配水c呆打了
+

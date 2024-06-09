@@ -1801,3 +1801,11 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
 — from meizu MEIZU 20 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  SergeGlenn  
+##### 178#       发表于 2024-6-10 06:35
+
+这玩意儿就是原汁原味玩法画面换皮，别有多余的期待，想改玩法Konami根本没人能做
+

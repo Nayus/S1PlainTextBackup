@@ -10215,3 +10215,20 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png">经验来说国内柏油跑活动的比灰友多得多，我猜还是因为灰最火的一波是CGSS，而柏火的时候主要还是靠声优LIVE吧
 
+
+*****
+
+####  Alicest  
+##### 5402#       发表于 2024-6-9 20:31
+
+我去，正脸天井努
+<img src="https://p.sda1.dev/18/d628d41eabe74cbc503b481c48bceba8/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 5403#       发表于 2024-6-9 20:34
+
+<img src="https://a5.mzstatic.com/us/r1000/0/Music211/v4/43/de/df/43dedf23-aea4-8b4f-0294-5963a0fc9645/PA00155502_0_193626_jacket.jpg" referrerpolicy="no-referrer">
+

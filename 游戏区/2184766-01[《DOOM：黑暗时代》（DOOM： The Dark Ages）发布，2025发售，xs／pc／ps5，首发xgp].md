@@ -431,3 +431,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 顺便我也更喜欢2016的风格，中世纪风无感
 
+
+*****
+
+####  FLZB  
+##### 50#       发表于 2024-6-10 05:03
+
+这美术来真的啊，恶魔越来越像人了，搞什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

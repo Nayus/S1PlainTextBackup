@@ -3512,3 +3512,13 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 如果狼一开始就在鸡身边，战斗导向还是能指向拉克丝带来非凡哥翻盘，演出效果会完全不一样
 
+
+*****
+
+####  ztgmeteor  
+##### 1277#       发表于 2024-6-10 04:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174315&amp;ptid=2178694" target="_blank">wyhman 发表于 2024-6-9 22:48</a>
+不要因为种自这部作品因为有了高达电影史上最佳票房的光环而高看他一眼，实际上对于seed来说，这个成绩只 ...</blockquote>
+种命都是20年前的作品了，hd重制版也是10年前的了，这么久了能出个剧场版就知足了，让熟悉的角色上来说几句话露个脸，然后叮叮咣咣打完收工happy ending多好，当春晚看了。
+

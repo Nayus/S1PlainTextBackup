@@ -2579,3 +2579,11 @@ max三岗过了，仍旧没有金
 
 砸地在大润里比鲨鱼还废，碰上图高高低低台阶太多看着位置开结果被台阶挡住暴风砸不干净
 
+
+*****
+
+####  秋月孝三  
+##### 4692#       发表于 2024-6-9 16:29
+
+砸地在对战和普通鲑跑也比不过鲨鱼啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

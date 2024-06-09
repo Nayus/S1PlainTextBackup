@@ -2760,3 +2760,14 @@ FT这是在故意虐美玲粉吗
 1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
 是的：[https://zimuku.org/detail/201275.html#subinfo](https://zimuku.org/detail/201275.html#subinfo)
 
+
+*****
+
+####  执信校友  
+##### 1212#       发表于 2024-6-9 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168209&amp;ptid=2178694" target="_blank">liekong 发表于 2024-6-9 16:12</a>
+
+1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
+好像不完全是，应该是按枪版改的，但是枪版有好些台词看不到字幕
+

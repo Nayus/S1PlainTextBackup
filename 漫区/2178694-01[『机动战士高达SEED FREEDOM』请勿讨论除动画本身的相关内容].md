@@ -3414,3 +3414,18 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 生肉啃完了，只能说就看个乐呵吧，然后海边牵手居然就真特么没后续了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  联邦军炊事班  
+##### 1269#       发表于 2024-6-10 01:20
+
+看钢弹本来就图看个机器人打架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ameyoru  
+##### 1270#       发表于 2024-6-10 01:20
+
+还有，最后决战那波，玛琉从舰内升到那个算是直接暴露目标的位置指挥是什么思路，当靶子吗，剩下的人物动机，行为逻辑也是真的槽多无口<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

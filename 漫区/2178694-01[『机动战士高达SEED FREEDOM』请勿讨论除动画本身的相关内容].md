@@ -3102,3 +3102,21 @@ FT这是在故意虐美玲粉吗
 现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了 ...</blockquote>
 我覺得那個純粹是nt能力浮現<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  液体力学  
+##### 1241#       发表于 2024-6-9 21:42
+
+当初没跑香港看果然是正解，做得什么狗屁玩意，吃屎去吧福田
+
+*****
+
+####  赤黑的假面  
+##### 1242#       发表于 2024-6-9 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172563&amp;ptid=2178694" target="_blank">老ID忘了 发表于 2024-6-9 21:28</a>
+
+这片确实赶工啊  好多错误地方，比如湿婆被砍断的手 前后有出入  还有最终战鸡爆种眼神一下有一下没有  等B ...</blockquote>
+是的，即使如此都成为高达票房第一了，你楼拿闪哈拉踩的真的应该反省一下把闪哈吹的那么牛，为啥才24E
+

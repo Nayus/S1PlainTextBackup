@@ -1202,3 +1202,28 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 看起来要读档重来了吗，但是这个部分战斗又特别难
 
+
+*****
+
+####  rs5621  
+##### 8989#       发表于 2024-6-9 19:16
+
+ 本帖最后由 rs5621 于 2024-6-9 19:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/09/191546dgcyhmtmo9cvlu9d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 19:15 上传
+
+看着被轮殴，这关恶意太大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 8990#       发表于 2024-6-9 21:39
+
+卡大关咯，佩恩确实难
+

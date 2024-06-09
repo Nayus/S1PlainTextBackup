@@ -10286,3 +10286,16 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 『3人で一緒に暮らす』ことを提案する</blockquote>(via [Twitter](https://x.com/gkmas_official/status/1799796088377163927))
 
+
+*****
+
+####  三郷雫  
+##### 5409#       发表于 2024-6-9 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172566&amp;ptid=2130897" target="_blank">ViviR 发表于 2024-6-9 21:28</a>
+
+学马这企划挺怪的。手游外的内容看上去像是跟上了时代，又是2dmv又是dc国际频道啥的。然后手游的福利依托答 ...</blockquote>
+说了，万代的蓝色协议搞砸了，赔了个底儿掉
+
+估计一大阵子其他游戏的福利不会太好了
+

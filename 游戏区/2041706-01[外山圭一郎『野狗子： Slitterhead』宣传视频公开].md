@@ -1399,3 +1399,15 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 这游戏难产这么多年一点游戏画面都没放出来，也能猜到是个什么玩意了，毫不意外。
 
+
+*****
+
+####  zzy516232108  
+##### 151#       发表于 2024-6-9 14:11
+
+ 本帖最后由 zzy516232108 于 2024-6-9 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65165969&amp;ptid=2041706" target="_blank">GDIHARVESTER 发表于 2024-6-9 12:41</a>
+
+第三次生日还好，本身就是意识穿越时空。那些士兵本来就是要死的</blockquote>
+穿越到过去是为了改变现在吧我记得，我剧情没看懂毕竟日文游戏，我理解下来就是让aya（eve）精神潜入到过去然后改变现在。但是最后发现出问题了怎么怎么
+

@@ -573,3 +573,13 @@ Fami通 物語冒頭「アーキタイプの覚醒」
 IGN live Demo现场演示（英文版）
 [https://youtu.be/56LcX9pLcUQ](https://youtu.be/56LcX9pLcUQ)
 
+
+*****
+
+####  Piano-Forest  
+##### 451#         楼主| 发表于 2024-6-9 14:09
+
+看国内媒体A9、篝火、机核有去这次Atlus Fes现场试玩
+
+A9有说会发录制视频（简中版）
+

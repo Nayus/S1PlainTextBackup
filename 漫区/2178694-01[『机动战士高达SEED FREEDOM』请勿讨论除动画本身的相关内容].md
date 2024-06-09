@@ -2645,3 +2645,16 @@ FT这是在故意虐美玲粉吗
 
 那现在看来这段也很迷惑了，其他人都是一对对的，你狼带着美玲干嘛呢
 
+
+*****
+
+####  wyhman  
+##### 1201#       发表于 2024-6-9 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166900&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-9 14:04</a>
+
+果然记忆不靠谱，我印象里一直以为是美玲靠的肩
+
+那现在看来这段也很迷惑了，其他人都是一对对的，你狼带 ...</blockquote>
+种系后宫王只有狼，lks、卡嘉莉、米娅、月亮、空调
+

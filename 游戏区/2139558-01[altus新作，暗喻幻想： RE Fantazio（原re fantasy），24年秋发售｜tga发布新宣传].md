@@ -435,3 +435,13 @@ ATLUS新作《暗喻幻想：ReFantazio》的特别节目“ATLUS Exclusive《�
 由手机上传
 2024-6-9 07:10 上传
 
+
+*****
+
+####  guiminan  
+##### 583#       发表于 2024-6-9 12:32
+
+战斗系统大头可能在合体技，演示里舞者加其他职业能给对面上不同弱点，三个剑士能放一个超特大斩击单体攻击，配合战斗中可以4+3换人，如果技能做出差异性的话潜力还是不小的
+
+—— 来自 vivo V2329A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

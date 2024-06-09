@@ -2118,3 +2118,15 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 目前种自的外传还未有呢
 所以强自强夺事件是怎么的都是大家猜的，包括之前的楼里还讨论过两台贰式是原来的强自无正改造的还是完全新造的机体
 
+
+*****
+
+####  macos  
+##### 1158#       发表于 2024-6-9 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163052&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-9 04:07</a>
+这次的爆种画面也挺细节的，虽然感觉搞成这样有点不知所谓</blockquote>
+这个演出有点像鸡鸭死了，但鲁鲁修没配关键角色
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

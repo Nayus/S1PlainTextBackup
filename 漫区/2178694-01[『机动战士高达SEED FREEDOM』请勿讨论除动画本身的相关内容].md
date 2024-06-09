@@ -2832,3 +2832,16 @@ FT这是在故意虐美玲粉吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">还好有些关键的东西没被剧透到，这宇宙女鬼还真是女鬼啊，笑死
 
+
+*****
+
+####  cxj649  
+##### 1218#       发表于 2024-6-9 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65169169&amp;ptid=2178694" target="_blank">whiteweakbear 发表于 2024-6-9 17:44</a>
+
+看了一半了，各种尬，而且制作不算有钱，白瞎这个 Ip
+
+—— 来自 realme RMX3708, Android 14上的 S1Next- ...</blockquote>
+但是，这影片是最赚钱的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

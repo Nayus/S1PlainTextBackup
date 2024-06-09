@@ -2167,3 +2167,14 @@ mayu拿到变身器的时候，突然觉得悟君想的是：我哪做错了，�
 
 今年是ED不加人了还是还没到时候？
 
+
+*****
+
+####  pokemon最爱  
+##### 1670#       发表于 2024-6-9 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172524&amp;ptid=2162354" target="_blank">noneoneone 发表于 2024-6-9 21:26</a>
+
+今年是ED不加人了还是还没到时候？</blockquote>
+猫组武器有后期ED的伴舞玩法，所以应该是前期ED不加人了直接换ED2再把猫组加进来。（也就是实际猫组完全享受追加待遇）
+

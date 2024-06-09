@@ -644,3 +644,23 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 白纸的高难看得一头雾水先不打了。
 
+
+*****
+
+####  史艳文  
+##### 46444#       发表于 2024-6-9 21:49
+
+一口气领的芙芙和金芙芙，有没有办法处理，太离谱了
+
+*****
+
+####  johnkamsar  
+##### 46445#       发表于 2024-6-9 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153259&amp;ptid=1712412" target="_blank">溯夜 发表于 2024-6-8 11:30</a>
+
+想要道满了他好好用
+
+论坛助手,iPhone</blockquote>
+抽，反正有福袋
+

@@ -2207,3 +2207,24 @@ mayu拿到变身器的时候，突然觉得悟君想的是：我哪做错了，�
 
 还在兔子，兔子掉线多少集了，上一部有BG的，追加掉线好几集没出场过的Q娃风评怎么样漏油忘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1674#       发表于 2024-6-9 23:22
+
+ 本帖最后由 leleq 于 2024-6-9 23:24 编辑 
+
+风怒编辑一下
+
+*****
+
+####  leleq  
+##### 1675#       发表于 2024-6-9 23:22
+
+ 本帖最后由 leleq 于 2024-6-9 23:24 编辑 
+
+mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
+
+小雪：这一次我不会让你喜欢上（除了我）任何人<img src="https://static.saraba1st.com/image/smiley/carton2017/092.gif" referrerpolicy="no-referrer">
+

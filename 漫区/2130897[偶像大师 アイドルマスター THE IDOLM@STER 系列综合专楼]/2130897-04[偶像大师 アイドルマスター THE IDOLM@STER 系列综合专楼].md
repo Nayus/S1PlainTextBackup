@@ -10447,3 +10447,31 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 手游闪那边从日花花手里偷了半个冠军，回到本家这边还有重量级冠军，不亏你闪第一重女，某不知名04真的是被爆中爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格雷殿下  
+##### 5426#       发表于 2024-6-9 23:23
+
+代孙这个高级拿强卡的系统，直接杜绝了新号转生哥
+
+进来了就别想转生，而不转生还想有好体验，那就得充值了
+
+留存率smddx,真是闹麻了，是坐牢哥们充值的一根毛了吗
+
+没有人，比我，更懂，代孙
+
+*****
+
+####  Alleyht  
+##### 5427#       发表于 2024-6-9 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174916&amp;ptid=2130897" target="_blank">格雷殿下 发表于 2024-6-9 23:23</a>
+
+代孙这个高级拿强卡的系统，直接杜绝了新号转生哥
+
+进来了就别想转生，而不转生还想有好体验，那就得充值了
+
+ ...</blockquote>
+真正懂代孙的就不会开服玩了，我直接等几年后运营晚期强推新组合再入，要福利有福利要强度有强度要地位有地位，就像闪闪的米组一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

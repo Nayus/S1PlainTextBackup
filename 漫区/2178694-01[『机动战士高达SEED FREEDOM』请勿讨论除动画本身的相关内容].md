@@ -2604,3 +2604,44 @@ FT这是在故意虐美玲粉吗
 
 只有翅膀、躯干、上臂、大腿、脚踝外甲、脚掌是完全一样的（除却设定稿的比例有微调）
 
+
+*****
+
+####  -lilipeipei-  
+##### 1199#       发表于 2024-6-9 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166684&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-9 13:44</a>
+
+其实seed系很多元素都致敬了机甲战记龙骑，这次剧场版升自和不正合体技打毁灭时，连分镜都致敬了机甲战记 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/09/135618v46r5m4ede6v4hd8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-06-09 155449.png</strong> (1.75 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:56 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/135621p9nkp66uupi66kzd.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-06-09 155517.png</strong> (1.82 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:56 上传
+
+这段分镜是真的像，福田真会玩
+
+
+*****
+
+####  seedees3  
+##### 1200#       发表于 2024-6-9 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166212&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-6-9 13:02</a>
+
+看错了吧，后日谈里头靠肩膀的是拉克丝，美玲是走在阿斯兰身后的，而且奥布之夜的时候美玲显然已经开始对 ...</blockquote>
+果然记忆不靠谱，我印象里一直以为是美玲靠的肩
+
+那现在看来这段也很迷惑了，其他人都是一对对的，你狼带着美玲干嘛呢
+

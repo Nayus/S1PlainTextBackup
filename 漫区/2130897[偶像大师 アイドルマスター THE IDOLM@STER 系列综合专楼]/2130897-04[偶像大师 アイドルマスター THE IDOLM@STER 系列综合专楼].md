@@ -10157,3 +10157,29 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 可能是大伙都直接不看动画了来看三牛老师的视频了
 
+
+*****
+
+####  wfhtony  
+##### 5397#       发表于 2024-6-9 16:40
+
+今天开始整理闪耀色彩下一个CD系列《ECHOES》的信息（「02」下周发售，「01」绝赞延期中），看到了这次比较有趣的一个地方：
+
+这次各组的Tr.3《Migratory Echoes》，看上去像是共通曲，但从曲目表上看更像是制作组给定了一个相同的旋律和歌词大纲（由 松井洋平 作词、ヤナガワタカオ 作曲），然后让负责各组音乐的作曲阵进行加工再创作，并不单纯是传统意义上的小组演唱版本。
+
+<img src="https://img.saraba1st.com/forum/202406/09/163904pr1yw1m9moq8son8.png" referrerpolicy="no-referrer">
+
+<strong>THE_IDOLM@STER_SHINY_COLORS_ECHOES_02_和其他_22_個頁面_-_2024-06-09_16-32-23.png</strong> (285.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 16:39 上传
+
+<img src="https://img.saraba1st.com/forum/202406/09/163904vfrfi2vqipvpg0z0.png" referrerpolicy="no-referrer">
+
+<strong>THE_IDOLM@STER_SHINY_COLORS_ECHOES_03_和其他_22_個頁面_-_2024-06-09_16-32-29.png</strong> (257.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 16:39 上传
+

@@ -2771,3 +2771,13 @@ FT这是在故意虐美玲粉吗
 1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？</blockquote>
 好像不完全是，应该是按枪版改的，但是枪版有好些台词看不到字幕
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1213#       发表于 2024-6-9 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168339&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-6-9 16:24</a>
+怀疑阿斯兰不喜欢红头发的女人，跟拉克丝也算半个青梅竹马吧，拉克丝摸他一下都躲，月亮姐妹对他眉来眼去 ...</blockquote>
+阿斯兰不是生活废柴吧，只是啰啰嗦嗦的婆妈性格<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

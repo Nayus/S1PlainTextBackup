@@ -1,0 +1,17 @@
+﻿
+*****
+
+####  fhdelibird  
+##### 111#       发表于 2024-6-9 11:59
+
+官網寫的25話 (一挙配信那節)
+[https://www.vap.co.jp/the-fable-anime/onair/](https://www.vap.co.jp/the-fable-anime/onair/)
+
+看了第10集,味道開始來了
+
+最後專業專業的連續說著,開始有滑稽的感覺了
+
+D+在這片上的翻譯還可以
+
+找原作看看好了
+

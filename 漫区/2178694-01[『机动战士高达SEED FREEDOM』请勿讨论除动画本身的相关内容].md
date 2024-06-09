@@ -2581,3 +2581,26 @@ FT这是在故意虐美玲粉吗
 话说之前看的时候就觉得卡嘉莉这套装备眼熟：</blockquote>
 其实seed系很多元素都致敬了机甲战记龙骑，这次剧场版升自和不正合体技打毁灭时，连分镜都致敬了机甲战记龙骑结局
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1198#       发表于 2024-6-9 13:52
+
+ 本帖最后由 gundammarkⅡ 于 2024-6-9 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65165924&amp;ptid=2178694" target="_blank">ghost97 发表于 2024-6-9 12:37</a>
+
+所以sf2型和原版sf有啥区别？就多了一个头炮？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/09/134939mp337nqsefayx1kz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240609_134853_com.android.gallery3d_edit_5865154725405554.jpg</strong> (549.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:49 上传
+
+上图更快看出区别
+
+只有翅膀、躯干、上臂、大腿、脚踝外甲、脚掌是完全一样的（除却设定稿的比例有微调）
+

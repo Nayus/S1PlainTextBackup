@@ -558,3 +558,18 @@ https://b23.tv/HkLa3IO</blockquote>
 
 <img src="https://p.sda1.dev/18/69bf39841223153c4b3a4827cc9caf6c/40FFD5053198E1C6D229E169007629D0.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 450#         楼主| 发表于 2024-6-9 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65153854&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-8 12:28</a>
+
+Fami通 物語冒頭「アーキタイプの覚醒」
+
+试玩“剧情模式”（最后有一段觉醒动画）
+[https://youtu.be/JvV71](https://youtu.be/JvV71) ...</blockquote>
+IGN live Demo现场演示（英文版）
+[https://youtu.be/56LcX9pLcUQ](https://youtu.be/56LcX9pLcUQ)
+

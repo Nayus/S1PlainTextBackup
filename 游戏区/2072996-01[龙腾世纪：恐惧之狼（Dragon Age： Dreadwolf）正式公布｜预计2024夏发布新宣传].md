@@ -1696,3 +1696,27 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 感觉把apex那股土味都学过来了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bad_alloc  
+##### 186#       发表于 2024-6-10 01:47
+
+这也太土了吧，呕
+生软可以埋了
+
+*****
+
+####  UnknownRei  
+##### 187#       发表于 2024-6-10 01:50
+
+从西幻史诗变味成后现代群星赏了哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  某雷  
+##### 188#       发表于 2024-6-10 01:50
+
+尿完了，你lore这么丰富连个熟面孔都找不出来吗
+

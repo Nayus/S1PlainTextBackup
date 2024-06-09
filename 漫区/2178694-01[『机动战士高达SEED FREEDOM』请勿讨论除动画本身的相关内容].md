@@ -3128,3 +3128,18 @@ FT这是在故意虐美玲粉吗
 
 哈哈  笑看白嫖党的鬼叫
 
+
+*****
+
+####  anehon  
+##### 1244#       发表于 2024-6-9 21:57
+
+整体剧情好俗，反派的人物塑造完全立不起来，人设难崩，作画稀烂，各种逆天设定真的多，但打得是真好看，看得很爽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  风朝北吹  
+##### 1245#       发表于 2024-6-9 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">想看字幕组版,港版翻译能看吗
+

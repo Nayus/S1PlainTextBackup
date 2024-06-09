@@ -2845,3 +2845,35 @@ FT这是在故意虐美玲粉吗
 —— 来自 realme RMX3708, Android 14上的 S1Next- ...</blockquote>
 但是，这影片是最赚钱的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  线程召唤使  
+##### 1219#       发表于 2024-6-9 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65169169&amp;ptid=2178694" target="_blank">whiteweakbear 发表于 2024-6-9 17:44</a>
+
+看了一半了，各种尬，而且制作不算有钱，白瞎这个 Ip
+
+—— 来自 realme RMX3708, Android 14上的 S1Next- ...</blockquote>
+后面决战质量还是对的起的，文戏的部分人物这块确实比哈萨维差很多。
+
+
+*****
+
+####  线程召唤使  
+##### 1220#       发表于 2024-6-9 19:22
+
+捉到一个BUG，拉妖初次和黄毛见面那里，后面一起下机的鸡，制服衔制画错了，变成和码流一样的上校服，过一秒又变回准将服了。
+
+这段崩的厉害我都不想截图了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，人物有些地方确实画得太糟糕了。
+
+*****
+
+####  马桶3  
+##### 1221#       发表于 2024-6-9 19:24
+
+我发一句爆论，现在这个时间点白嫖完还来喷不好看的观众本来也不是这电影的目标受众，爱看看不看滚，这片光速上流媒体原因就是为了再吸引一波潜在受众去爆米买模型<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

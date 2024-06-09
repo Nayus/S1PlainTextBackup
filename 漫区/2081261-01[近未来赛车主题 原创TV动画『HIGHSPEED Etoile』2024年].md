@@ -242,3 +242,17 @@ ami放开手脚跑暴打粉毛啊</blockquote>
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  月夜凝雪  
+##### 400#       发表于 2024-6-9 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167424&amp;ptid=2081261" target="_blank">6030sylar 发表于 2024-6-9 14:56</a>
+要是没有保护人类安全限制，ami把自己装轮子上不比带人快？！
+
+—— 来自 Realme RMX1851, Android 11上的  ...</blockquote>
+其实主要问题ami已经提过了，缺乏观赏性才是最大的问题，只是快的比赛不行观众和赞助商会不买账
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

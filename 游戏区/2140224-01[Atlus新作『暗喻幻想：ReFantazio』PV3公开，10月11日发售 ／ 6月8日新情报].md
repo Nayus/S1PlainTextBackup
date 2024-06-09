@@ -600,3 +600,11 @@ A9有说会发录制视频（简中版）
 
 还是看不惯简中对archetype的翻译，本来就是照着现有的概念做的结果自己去翻个半音半意的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 454#       发表于 2024-6-9 19:13
+
+女一号感觉起了个很男性化的名字，试玩版分那么细估计迟早开放下载吧
+

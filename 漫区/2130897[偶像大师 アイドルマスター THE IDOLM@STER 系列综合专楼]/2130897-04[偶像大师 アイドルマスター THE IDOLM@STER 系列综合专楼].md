@@ -10191,3 +10191,11 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 哭了，人生中第一次live第一排就是昨天的hego上海场，全场没几个灰友甚至柏油都比灰友多，甚至staff都是穿的土豆四周年的T恤<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 5399#       发表于 2024-6-9 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">明天up皮卡丘的二单了，代哥节奏真快
+

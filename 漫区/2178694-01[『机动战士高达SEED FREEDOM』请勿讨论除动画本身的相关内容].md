@@ -3439,3 +3439,18 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kharisyuri  
+##### 1272#       发表于 2024-6-10 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65175115&amp;ptid=2178694" target="_blank">X(iaolw)S 发表于 2024-6-9 23:35</a>
+
+@seedees3
+
+舅舅传八卦说近藤当年得罪的其实是财团的大人，这次本来要求让她当背景板的，所以就嫣红没有做3 ...</blockquote>
+真得罪财团b大人物，还能继续配日升的角色？
+
+种命之后高达系列配过AGE和THE ORIGIN，
+

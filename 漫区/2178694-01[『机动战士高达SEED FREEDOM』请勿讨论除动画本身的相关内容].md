@@ -2273,3 +2273,13 @@ FT这是在故意虐美玲粉吗
 
 而且现在美玲对狼没爱慕之情
 
+
+*****
+
+####  妄想系同盟  
+##### 1170#       发表于 2024-6-9 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65164017&amp;ptid=2178694" target="_blank">jimmytong 发表于 2024-6-9 09:25</a>
+有熟肉或者外挂字幕了吗？</blockquote>
+前几页有gpt翻译字幕，看个七八成问题不大
+

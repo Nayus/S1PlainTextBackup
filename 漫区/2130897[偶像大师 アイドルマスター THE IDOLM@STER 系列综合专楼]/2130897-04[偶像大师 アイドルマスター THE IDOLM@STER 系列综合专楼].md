@@ -10545,3 +10545,13 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 我们机战厨开个光学迷彩怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liyropen  
+##### 5436#       发表于 2024-6-10 00:53
+
+歌都放 YouTube 上了为啥 mv 还放 short ver 啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，全曲的话我感觉挺好的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

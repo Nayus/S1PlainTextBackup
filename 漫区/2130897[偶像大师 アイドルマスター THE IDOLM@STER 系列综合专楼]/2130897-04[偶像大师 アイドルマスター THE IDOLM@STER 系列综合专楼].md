@@ -10183,3 +10183,11 @@ s卡04难绷 手游陪跑页游接着陪跑</blockquote>
 
 2024-6-9 16:39 上传
 
+
+*****
+
+####  田所あずさ  
+##### 5398#       发表于 2024-6-9 17:59
+
+哭了，人生中第一次live第一排就是昨天的hego上海场，全场没几个灰友甚至柏油都比灰友多，甚至staff都是穿的土豆四周年的T恤<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2293,3 +2293,13 @@ FT这是在故意虐美玲粉吗
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  宝儿  
+##### 1172#       发表于 2024-6-9 11:13
+
+【【精修熟肉】机动战士高达SEED FREEDOM（2024） 4K超清无删减】 [https://www.bilibili.com/video/B ... f6d92cc76c5b773e7b9](https://www.bilibili.com/video/BV1Hb421H7jQ/?p=2&amp;share_source=copy_web&amp;vd_source=548bada0dbbcaf6d92cc76c5b773e7b9)
+
+不知道是不是正经精修 确实有点没看懂  
+

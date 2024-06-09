@@ -1807,3 +1807,13 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 刚把漫画彻底看完了，真浪漫啊。我个人而言是总归希望在一个作品里大家都活下来、或者的无原则无逻辑大团圆派，但这部的结局确实算得上无可指摘的浪漫，带着一点圆满和酸涩，精彩！过程的精彩就更不提了这种神经病的感觉太好看了，德鲁哈prpr<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 真希望能引进台版我也想买实体书+1
 
+
+*****
+
+####  Ogus  
+##### 177#       发表于 2024-6-9 11:04
+
+完美的展开，完美的故事性，完美的句号
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

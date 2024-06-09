@@ -3060,3 +3060,45 @@ FT这是在故意虐美玲粉吗
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  无糖百事可乐  
+##### 1237#       发表于 2024-6-9 21:26
+
+ 本帖最后由 无糖百事可乐 于 2024-6-9 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65162830&amp;ptid=2178694" target="_blank">Bani82 发表于 2024-6-9 03:00</a>
+
+这2女人打架大概是整个战场最出戏的地方，边上都完全没人理她们</blockquote>
+没有男人敢跟女人打，打赢了是欺负女人，打输了是连女人都打不过。
+
+黑骑士里那个疯批妹也是眼罩大姐干掉的。
+
+*****
+
+####  老ID忘了  
+##### 1238#       发表于 2024-6-9 21:28
+
+这片确实赶工啊  好多错误地方，比如湿婆被砍断的手 前后有出入  还有最终战鸡爆种眼神一下有一下没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">  等BD才能修正好吧
+
+*****
+
+####  plok201  
+##### 1239#       发表于 2024-6-9 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了正片才发现鸟也是有空认特效的.....
+
+现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了
+
+
+*****
+
+####  gary76  
+##### 1240#       发表于 2024-6-9 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172579&amp;ptid=2178694" target="_blank">plok201 发表于 2024-6-9 21:29</a>
+看了正片才发现鸟也是有空认特效的.....
+
+现在我就特别好奇当年给鸟调整的那个师傅是什么神棍了 ...</blockquote>
+我覺得那個純粹是nt能力浮現<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

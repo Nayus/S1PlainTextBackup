@@ -2152,3 +2152,18 @@ Lillian变身bank好看
 
 我只想永远保护她，永远和她在一起<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  noneoneone  
+##### 1668#       发表于 2024-6-9 21:25
+
+mayu拿到变身器的时候，突然觉得悟君想的是：我哪做错了，为啥跳过我了啊？
+
+*****
+
+####  noneoneone  
+##### 1669#       发表于 2024-6-9 21:26
+
+今年是ED不加人了还是还没到时候？
+

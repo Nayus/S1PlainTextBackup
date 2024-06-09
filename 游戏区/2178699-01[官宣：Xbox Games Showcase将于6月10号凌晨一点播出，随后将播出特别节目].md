@@ -650,3 +650,11 @@ jez说不会是串流机<img src="https://static.saraba1st.com/image/smiley/face
 
 A new State of Decay 3 trailer will appear at Xbox Game Showcase 2024 tomorrow, the studio is also rebranding with new logo
 
+
+*****
+
+####  精钢魔像  
+##### 72#       发表于 2024-6-9 14:58
+
+话说腐烂国度好玩吗，印象中没看到有讨论的
+

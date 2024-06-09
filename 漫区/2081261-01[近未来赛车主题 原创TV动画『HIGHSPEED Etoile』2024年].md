@@ -219,3 +219,26 @@ ami放开手脚跑暴打粉毛啊</blockquote>
 
 把把垫底好像
 
+
+*****
+
+####  6030sylar  
+##### 398#       发表于 2024-6-9 14:56
+
+要是没有保护人类安全限制，ami把自己装轮子上不比带人快？！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  6030sylar  
+##### 399#       发表于 2024-6-9 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65165211&amp;ptid=2081261" target="_blank">raimouse 发表于 2024-6-9 11:33</a>
+比起那些ai车手，有个有名有姓但是没一丝戏份的妹子车手呢
+
+把把垫底好像 ...</blockquote>
+彼方：啊对对对
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

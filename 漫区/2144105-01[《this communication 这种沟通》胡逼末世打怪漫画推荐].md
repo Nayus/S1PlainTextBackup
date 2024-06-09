@@ -1848,3 +1848,11 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  鬼谷ask  
+##### 180#       发表于 2024-6-9 14:57
+
+结局还挺有味道的，蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

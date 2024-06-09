@@ -2114,3 +2114,18 @@ Lillian变身bank好看
 
 最后和（告）解（白）小麦：先来个左勾拳，再来个连环巴掌对打服了就听你的了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1665#       发表于 2024-6-9 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167159&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-6-9 14:28</a>
+
+雪飘这写了三屏小作文是什么意思还放在q娃初次变身后，离大谱</blockquote>
+不想直接把“Cure Lillian”翻译成“Q娃百合”呗
+
+想拽文写的文青点……翻成“丽莲”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+也可能想玩梗
+

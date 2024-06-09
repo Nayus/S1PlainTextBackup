@@ -583,3 +583,12 @@ IGN live Demo现场演示（英文版）
 
 A9有说会发录制视频（简中版）
 
+
+*****
+
+####  Piano-Forest  
+##### 452#         楼主| 发表于 2024-6-9 16:07
+
+【《暗喻幻想 ReFantazio》简体中文版试玩——「BOSS挑战篇」】
+[https://b23.tv/4ReZHLX](https://b23.tv/4ReZHLX)
+

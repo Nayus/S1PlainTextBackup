@@ -2720,3 +2720,22 @@ FT这是在故意虐美玲粉吗
 
 我反正感觉种命中期无脑杀杀杀的时候比最后满脑子问题的状态明显是要强的
 
+
+*****
+
+####  Bani82  
+##### 1208#       发表于 2024-6-9 16:08
+
+鸟为什么变强？鸟都说了，是正义不行！！！
+
+
+*****
+
+####  liekong  
+##### 1209#       发表于 2024-6-9 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166245&amp;ptid=2178694" target="_blank">hac0101 发表于 2024-6-9 13:05</a>
+
+1187楼那个改了下字体和字号。</blockquote>
+1187楼被口球了，没看到内容，请问这个字幕是HK公映字幕吗？
+

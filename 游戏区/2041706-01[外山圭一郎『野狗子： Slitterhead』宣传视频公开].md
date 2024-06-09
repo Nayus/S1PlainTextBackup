@@ -1437,3 +1437,11 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 <img src="https://p.sda1.dev/18/8840f11eaf23b002be2bb72413c5c5ea/Slitterhead_2024_06-07-24_024.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kcalb  
+##### 155#       发表于 2024-6-9 16:08
+
+想法有，但最终选择以一种廉价的方式端了上来
+

@@ -2078,3 +2078,15 @@ q娃就看过一部魔法使，目前旺q的战士就4位吧，问一下系列�
 追加战士算是系列惯例了，纯空降的倒是不多，不过目前汪Q这情况是可能没有追加的 ...</blockquote>
 我看到有眼镜男和他的宠物兔子 之前不是也有男q娃吗
 
+
+*****
+
+####  modedd  
+##### 1662#       发表于 2024-6-9 16:09
+
+ 本帖最后由 modedd 于 2024-6-9 16:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168140&amp;ptid=2162354" target="_blank">麻辣仙人 发表于 2024-6-9 16:06</a>
+
+我看到有眼镜男和他的宠物兔子 之前不是也有男q娃吗</blockquote>
+无法确定男q以后会成为惯例，而且兔子的戏份和鸟没法比，这十几集下来比路人还路人
+

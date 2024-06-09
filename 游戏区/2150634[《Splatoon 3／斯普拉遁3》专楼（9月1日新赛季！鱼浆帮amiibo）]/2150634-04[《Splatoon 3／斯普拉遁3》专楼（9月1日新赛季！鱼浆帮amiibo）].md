@@ -2571,3 +2571,11 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Ryuuseigun  
+##### 4691#       发表于 2024-6-9 15:46
+
+砸地在大润里比鲨鱼还废，碰上图高高低低台阶太多看着位置开结果被台阶挡住暴风砸不干净
+

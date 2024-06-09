@@ -2708,3 +2708,15 @@ FT这是在故意虐美玲粉吗
 
 仔细想想小鸟真是少数“洗白”强三倍的角色，这剧场版小鸟简直好像是机战片场逛了好几圈出来的
 
+
+*****
+
+####  冷泡茶  
+##### 1207#       发表于 2024-6-9 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65167885&amp;ptid=2178694" target="_blank">培根芝士蛋堡XD 发表于 2024-6-9 15:43</a>
+仔细想想小鸟真是少数“洗白”强三倍的角色，这剧场版小鸟简直好像是机战片场逛了好几圈出来的 ...</blockquote>
+鸟主要是不动脑筋就能强三倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我反正感觉种命中期无脑杀杀杀的时候比最后满脑子问题的状态明显是要强的
+

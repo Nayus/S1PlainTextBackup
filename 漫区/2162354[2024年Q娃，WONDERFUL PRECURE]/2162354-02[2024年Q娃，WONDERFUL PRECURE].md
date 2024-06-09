@@ -2253,3 +2253,23 @@ mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗
 
 今天在推特看到说猫组家里是平成+令和的晓美焰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1678#       发表于 2024-6-10 01:58
+
+真由变身也没有问题 追加战士变身待遇比初始战士好 也算情理之中
+后面6月份还是猫组主场新手保护期 花了这么长时间写猫组 接下来好好写狗组和主线了吧
+现在狗组两位各方面观感都挺差
+
+
+*****
+
+####  粉儿alice  
+##### 1679#       发表于 2024-6-10 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174343&amp;ptid=2162354" target="_blank">待宵 发表于 2024-6-9 22:50</a>
+如果猫组不是一开始就放出信息的话，这个时间段入队就是追加战士</blockquote>
+去年翼同学 扬羽和猫组一个情况就是追加战士配置 不知道就是为了多卖点周边和初始一起公布了
+

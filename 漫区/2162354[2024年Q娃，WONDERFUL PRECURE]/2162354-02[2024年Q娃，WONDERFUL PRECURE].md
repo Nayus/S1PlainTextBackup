@@ -2186,3 +2186,24 @@ mayu拿到变身器的时候，突然觉得悟君想的是：我哪做错了，�
 
 如果猫组不是一开始就放出信息的话，这个时间段入队就是追加战士
 
+
+*****
+
+####  modedd  
+##### 1672#       发表于 2024-6-9 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172505&amp;ptid=2162354" target="_blank">noneoneone 发表于 2024-6-9 21:25</a>
+
+mayu拿到变身器的时候，突然觉得悟君想的是：我哪做错了，为啥跳过我了啊？ ...</blockquote>
+放过萨托鲁君吧，str累了，他也不想大半夜正睡着觉呢被成田大妈一个电话叫起来用两条腿赶场当解说，他只想没事牵着兔子陪华哥遛遛狗
+
+其实兔子才是最莫名奇妙的那个吧，str君还能当当智囊混个脸熟，兔子直接查无此人了，狗组猫组都是宠先变身，现在压力全在大福一只兔的肩上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 1673#       发表于 2024-6-9 23:03
+
+还在兔子，兔子掉线多少集了，上一部有BG的，追加掉线好几集没出场过的Q娃风评怎么样漏油忘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

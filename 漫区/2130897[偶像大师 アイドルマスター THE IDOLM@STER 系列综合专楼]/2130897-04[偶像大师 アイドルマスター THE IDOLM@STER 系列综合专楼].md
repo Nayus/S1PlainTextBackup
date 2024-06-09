@@ -10377,3 +10377,35 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 然后每个月都在走下坡路
 
+
+*****
+
+####  馬斯特壺  
+##### 5418#       发表于 2024-6-9 22:56
+
+《初》不就是全体曲吗，原神这次的曲子意外很偶像很抓耳还去除了抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  patema  
+##### 5419#       发表于 2024-6-9 22:56
+
+每个月2-3E应该也超过sc两个加一起了，万代就是这样没有志向的啦
+
+*****
+
+####  cckuku  
+##### 5420#       发表于 2024-6-9 23:01
+
+学马开服之前我不知道在哪看到一位p说，如果学马出了之后能让所有爱马仕手游加起来打**jsk就算成功。按这样来看已经超额完成目标了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 5421#       发表于 2024-6-9 23:04
+
+每天换4-6个碎片，除9，算是每天0.5个碎片，一个角色100碎片，只要200天就能拼出来辣，我们学马仕福利实在是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+⛵不下去了
+

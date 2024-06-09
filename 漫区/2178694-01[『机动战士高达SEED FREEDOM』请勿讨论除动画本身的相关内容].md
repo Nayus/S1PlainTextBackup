@@ -2505,3 +2505,11 @@ FT这是在故意虐美玲粉吗
 
 感叹，seed也在整个高达世界观中赶上了伊甸王剑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">级别的武器了。。不愧是新高父
 
+
+*****
+
+####  hkguty  
+##### 1192#       发表于 2024-6-9 13:17
+
+这是香港的公映字幕？感觉奇怪的翻译也不少
+

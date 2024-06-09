@@ -2525,3 +2525,13 @@ max三岗过了，仍旧没有金
 
 平时不打工的活动一开都来了，三队鱿加起来死二十多次真是遭不住...
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4687#       发表于 2024-6-9 13:17
+
+终于过了一次联合，可以下班了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

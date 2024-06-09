@@ -1768,3 +1768,18 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 这特么和首曝的画饼预告片是同一个物种？？？
 
+
+*****
+
+####  三谷歩夢  
+##### 195#       发表于 2024-6-10 02:33
+
+一股发售1年后就会80off的粪作气息，和丑女座如出一辙
+
+*****
+
+####  duraa  
+##### 196#       发表于 2024-6-10 02:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">第一眼我还以为是黑曜石端出来的东西
+

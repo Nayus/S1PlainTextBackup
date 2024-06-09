@@ -691,3 +691,21 @@ A new State of Decay 3 trailer will appear at Xbox Game Showcase 2024 tomorrow, 
 
 byd怎么那么长啊
 
+
+*****
+
+####  madcow  
+##### 77#       发表于 2024-6-10 00:05
+
+B站到时候有转播的不（
+
+*****
+
+####  BK10  
+##### 78#       发表于 2024-6-10 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65175550&amp;ptid=2178699" target="_blank">madcow 发表于 2024-6-10 00:05</a>
+
+B站到时候有转播的不（</blockquote>
+一堆UP主，XboxB站官号也会波
+

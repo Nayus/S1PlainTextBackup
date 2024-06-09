@@ -191,3 +191,24 @@
 
 豹跳了1宝兽尼，想了想国服刷90艹好像得2宝兽尼才舒服，只能掏出我的2宝水C呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 12819#       发表于 2024-6-9 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170693&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-9 19:31</a>
+
+辣鸡兽尼不重要 不如水C呆一根</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 你看非萌是像有水c呆的人吗
+
+*****
+
+####  qixinno2  
+##### 12820#       发表于 2024-6-9 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65171047&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-9 19:53</a>
+
+欧 羡慕 你看非萌是像有水c呆的人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没啊 所以不如留着石头抽水C呆
+

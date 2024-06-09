@@ -2238,3 +2238,18 @@ mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗<img src="
 
 比起追加还是反派干部啥的快点来吧，不然又要看不到打戏了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  unnilennium  
+##### 1677#       发表于 2024-6-10 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174914&amp;ptid=2162354" target="_blank">leleq 发表于 2024-6-9 23:22</a>
+
+mayu：拜托你了，小雪能救救被直女彩羽所欺骗的我吗
+
+小雪：这一次我不会让你喜欢上（除了我）任何人 ...</blockquote>
+真的按声优梗来说mayu的妈妈（CV.斋藤千和）才是焰啊
+
+今天在推特看到说猫组家里是平成+令和的晓美焰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

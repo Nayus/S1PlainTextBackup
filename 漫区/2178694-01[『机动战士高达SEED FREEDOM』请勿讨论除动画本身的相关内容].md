@@ -3429,3 +3429,13 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 还有，最后决战那波，玛琉从舰内升到那个算是直接暴露目标的位置指挥是什么思路，当靶子吗，剩下的人物动机，行为逻辑也是真的槽多无口<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwemiku  
+##### 1271#       发表于 2024-6-10 01:26
+
+这部剧场版，预算少，制作周期还被万代强行要求提早好多个月做完，能够做成现在这个水准已经很不容易了
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

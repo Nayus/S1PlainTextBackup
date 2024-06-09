@@ -2687,3 +2687,11 @@ max三岗过了，仍旧没有金
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">熊刷好解压
 
+
+*****
+
+####  raii  
+##### 4705#       发表于 2024-6-10 01:31
+
+难得一次打了将近8万P，出了30多个金，熊刷+3倍掉落确实把我钓上来了
+

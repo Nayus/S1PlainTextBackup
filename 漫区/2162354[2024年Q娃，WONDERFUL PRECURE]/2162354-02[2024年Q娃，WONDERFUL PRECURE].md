@@ -1948,3 +1948,21 @@ Y5和5gogo的coco没问题，但是希望之力里coco的前面的表现可是�
 
 说起来猫组bank开头两边都有只发光的猫猫，看上去两边bank的运动轨迹似乎是可以连起来的，可能猫组bank到时候衔接的剪辑会从这里下手（即发光的猫猫从Nyammy的bank跳起来然后从左往右跳出Nyammy的bank切到发光猫猫从左往右出现在Lillian的bank的镜头最后跳入Lillian的变身器里）
 
+
+*****
+
+####  未熟串烧  
+##### 1650#       发表于 2024-6-9 10:09
+
+爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/09/100649ta6s15y1wpph0dwm.gif" referrerpolicy="no-referrer">
+
+<strong>1.gif</strong> (3.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 10:06 上传
+
+变身后真的自信了很多啊，不过也不是没设想过变身后成为傲气角色的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

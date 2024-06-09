@@ -1791,3 +1791,13 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
 现在终于可以玩了
 
+
+*****
+
+####  aritionkb  
+##### 177#       发表于 2024-6-10 06:20
+
+这画面看起来像ps4时代的游戏
+
+— from meizu MEIZU 20 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

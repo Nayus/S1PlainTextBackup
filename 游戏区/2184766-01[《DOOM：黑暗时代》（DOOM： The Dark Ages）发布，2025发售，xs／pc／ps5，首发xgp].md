@@ -447,3 +447,23 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 就怕对标永恒那DLC来设计关卡和怪物了，我玩到后面真的感受不到乐趣了，操作都能和ACT比不说，还要瞄准
 
+
+*****
+
+####  PPB3008  
+##### 52#       发表于 2024-6-10 06:19
+
+来了来了，id yyds
+
+*****
+
+####  PPB3008  
+##### 53#       发表于 2024-6-10 06:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177539&amp;ptid=2184766" target="_blank">belmen 发表于 2024-6-10 04:51</a>
+
+看演示好像不怎么强调垂直移动了，希望能对手残友好点，永恒打得太折磨了完全感受不到乐趣
+
+顺便我也更喜欢2 ...</blockquote>
+我觉得这个可以放心，肯定会有垂直移动的。永恒第一个用手柄的演示看着也有点慢和平面，换了键鼠直接起飞了
+

@@ -2154,3 +2154,28 @@ AC牢不可破，美玲释怀了，靠着高超的骇客和情报处理能力继
 
 2024-6-9 08:55 上传
 
+
+*****
+
+####  jimmytong  
+##### 1160#       发表于 2024-6-9 09:25
+
+有熟肉或者外挂字幕了吗？
+
+
+*****
+
+####  BlackRock  
+##### 1161#       发表于 2024-6-9 09:25
+
+美玲和露娜这对姐妹，不但没有互动，甚至连照面都没打上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  罗本  
+##### 1162#       发表于 2024-6-9 09:28
+
+还在等非机翻的中文字幕版本，有的话求一个
+

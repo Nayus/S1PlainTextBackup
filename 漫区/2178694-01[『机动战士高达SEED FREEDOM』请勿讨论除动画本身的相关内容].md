@@ -2781,3 +2781,26 @@ FT这是在故意虐美玲粉吗
 怀疑阿斯兰不喜欢红头发的女人，跟拉克丝也算半个青梅竹马吧，拉克丝摸他一下都躲，月亮姐妹对他眉来眼去 ...</blockquote>
 阿斯兰不是生活废柴吧，只是啰啰嗦嗦的婆妈性格<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hac0101  
+##### 1214#       发表于 2024-6-9 16:53
+
+为了看着舒服又简单改了一版：删掉了给听障人士用的辅助语，歌词放到了左上角。
+
+字体是微软雅黑，电脑里应该都有。
+
+不过看了一遍发现还是有很多地方翻译不对或是轴不对，但这破玩意懒着改了。
+
+能理解为什么到现在还没字幕组熟肉。做这玩意的字幕，脾气得相当好。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+機動戦士ガンダムSEED FREEDOM.ass
+
+2024-6-9 16:50 上传
+点击文件名下载附件
+
+142.13 KB, 下载次数: 0
+

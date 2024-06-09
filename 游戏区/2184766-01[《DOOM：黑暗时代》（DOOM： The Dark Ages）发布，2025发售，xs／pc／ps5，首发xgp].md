@@ -439,3 +439,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 这美术来真的啊，恶魔越来越像人了，搞什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 51#       发表于 2024-6-10 05:17
+
+就怕对标永恒那DLC来设计关卡和怪物了，我玩到后面真的感受不到乐趣了，操作都能和ACT比不说，还要瞄准
+

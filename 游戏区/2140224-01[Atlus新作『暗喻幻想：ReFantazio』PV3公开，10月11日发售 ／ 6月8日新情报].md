@@ -592,3 +592,11 @@ A9有说会发录制视频（简中版）
 【《暗喻幻想 ReFantazio》简体中文版试玩——「BOSS挑战篇」】
 [https://b23.tv/4ReZHLX](https://b23.tv/4ReZHLX)
 
+
+*****
+
+####  Dreammask  
+##### 453#       发表于 2024-6-9 19:01
+
+还是看不惯简中对archetype的翻译，本来就是照着现有的概念做的结果自己去翻个半音半意的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

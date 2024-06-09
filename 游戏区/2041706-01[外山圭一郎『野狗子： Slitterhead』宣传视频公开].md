@@ -1349,3 +1349,25 @@ Steam地址：[https://store.steampowered.com/app/2631250/](https://store.steamp
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Shu-Stella  
+##### 146#       发表于 2024-6-9 11:42
+
+最早看宣传图和概念还挺感兴趣。
+
+然后看了新的播片土到我了，直接兴趣清零当不存在处理。
+
+
+*****
+
+####  zzy516232108  
+##### 147#       发表于 2024-6-9 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预告片里操作普通人跳楼然后空中更换宿主，原来的普通人就死了？
+
+还有各种把手拔下来里面的血做成武器，附体的时候还能接回去，不附体的时候就断了？
+
+给我的冲击和畜生感不亚于PSP上那个第三次生日，可以潜入过去然后借用别人的身体，里面第二章有一关就是跑步逃命，结果怎么打都是死，查了攻略才知道在最后时刻要上身隔壁在爬楼梯的士兵
+

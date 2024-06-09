@@ -1722,3 +1722,31 @@ UE5这画面
 
 PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
+
+*****
+
+####  minysun  
+##### 170#       发表于 2024-6-10 02:24
+
+听英配好像有点大卫海特的意思？
+
+*****
+
+####  liuguokobe  
+##### 171#       发表于 2024-6-10 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177153&amp;ptid=2135452" target="_blank">minysun 发表于 2024-6-10 02:24</a>
+
+听英配好像有点大卫海特的意思？</blockquote>
+这英配感觉比大卫海特还棒读啊
+
+
+*****
+
+####  clyde-wang  
+##### 172#       发表于 2024-6-10 02:32
+
+没有档期，默认2025年或者更之后了…
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

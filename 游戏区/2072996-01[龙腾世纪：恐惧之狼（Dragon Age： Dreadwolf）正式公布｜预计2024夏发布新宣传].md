@@ -1956,3 +1956,37 @@ DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通�
 到现在也十多年了
 最不济就当是给生软上供了
 
+
+*****
+
+####  ak123  
+##### 212#       发表于 2024-6-10 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177373&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-6-10 03:26</a>
+
+DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通画风蛋头，同人女肯定比我急 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先蛋头不会给整太丑，其次你太小瞧这批人的审美下限了
+
+*****
+
+####  时空之旅  
+##### 213#       发表于 2024-6-10 03:43
+
+<blockquote>安瓦尔阿明 发表于 2024-6-7 07:30
+新LOGO似乎更像一些不太正经的游戏了……</blockquote>
+回头看了看logo确实很难和什么奇幻大作联系到一起
+
+*****
+
+####  ak123  
+##### 214#       发表于 2024-6-10 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177365&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-10 03:24</a>
+
+该说不说，darkspawn卡通化从2就开始了，现在是变本加厉了
+
+一直也不懂生软放弃起源的美术风格是为了什么
+
+ ...</blockquote>
+进基软的woke太多了，瞧不上老登的硬派奇幻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

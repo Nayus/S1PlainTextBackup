@@ -664,3 +664,27 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 论坛助手,iPhone</blockquote>
 抽，反正有福袋
 
+
+*****
+
+####  肥到终点  
+##### 46446#       发表于 2024-6-10 03:38
+
+<blockquote>啪嗒啪嗒嘭 发表于 2024-6-9 20:49
+从种草期点三下大奥然后种树变成了三下白纸本然后种树，我树苗快不够用了啊！！！！
+
+白纸的高难看得一头雾 ...</blockquote>
+高难都挺简单的，鱼人和兽圈都能高爆发3t，残骸用太岁爆杀
+
+
+*****
+
+####  xy1041  
+##### 46447#       发表于 2024-6-10 03:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173000&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-6-9 21:49</a>
+一口气领的芙芙和金芙芙，有没有办法处理，太离谱了</blockquote>
+用的时候去友情池抽满背包，卖掉你要用的芙芙的数量的格子数量的友情池产物，然后领那个几百个一格的芙芙，会自动在领满背包之后停下，你就可以按照自己的需求领想要的数量了
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

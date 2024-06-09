@@ -2283,3 +2283,13 @@ FT这是在故意虐美玲粉吗
 有熟肉或者外挂字幕了吗？</blockquote>
 前几页有gpt翻译字幕，看个七八成问题不大
 
+
+*****
+
+####  KDConan  
+##### 1171#       发表于 2024-6-9 10:55
+
+有一点怪怪的观感，就前半段文戏的时候，反派每说一句话，拉克丝或者基拉就“啊”“嗯”“噢”这样的惊讶一下，哪怕半句也得惊讶一下，就一点没有CE这几年过来人的沉稳感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

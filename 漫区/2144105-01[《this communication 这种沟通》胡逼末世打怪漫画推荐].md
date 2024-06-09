@@ -1817,3 +1817,16 @@ P.S.：感觉最后女猎人们握住德鲁哈的手的部分应该是有意识�
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  第贰个十年  
+##### 178#         楼主| 发表于 2024-6-9 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65161598&amp;ptid=2144105" target="_blank">theory0 发表于 2024-6-9 00:33</a>
+没有亦正亦邪，德鲁哈是守序邪恶吧，与正毫无关系</blockquote>
+嘛，主要是说的约翰嘛。毕竟这种主角不到盖棺定论的时候都不好说会往哪个方面塑造，就像我说的那种俗套一点的感化德鲁哈的展开，真这样搞了不就正了。
+当然现在这种贯彻出生人设到底的展开也很有趣。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

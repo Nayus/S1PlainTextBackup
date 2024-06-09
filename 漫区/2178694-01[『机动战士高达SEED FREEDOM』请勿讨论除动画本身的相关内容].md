@@ -2513,3 +2513,52 @@ FT这是在故意虐美玲粉吗
 
 这是香港的公映字幕？感觉奇怪的翻译也不少
 
+
+*****
+
+####  布拉德莱恩  
+##### 1193#       发表于 2024-6-9 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65163261&amp;ptid=2178694" target="_blank">400姨妈 发表于 2024-6-9 06:05</a>
+狼用龙骑兵是什么水平，d里姨丈想把传说给狼加这次开sf2骗了黑骑士应该不弱吧 ...</blockquote>
+狼超级buff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+二代龙骑兵不需要高空认也能用
+
+超级龙骑兵需要特异空认才能用（穆、劳、基拉、雷这种）
+
+本来阿斯兰没有任何用龙骑兵的经验也没空认水平的设定，剧场版能开攻击自由2用超级龙骑兵等于贴了好大一块金<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sephal  
+##### 1194#       发表于 2024-6-9 13:28
+
+我对美玲的脑补是类似于久宇舞弥那种的，毕竟好色的阿斯兰跟正宫卡嘉莉一年到头也碰不上几次，跟美玲又是朝夕相处，不搞点啥反倒是奇怪
+
+
+*****
+
+####  -lilipeipei-  
+##### 1195#       发表于 2024-6-9 13:33
+
+话说之前看的时候就觉得卡嘉莉这套装备眼熟：
+
+<img src="https://img.saraba1st.com/forum/202406/09/133049eb56l07s7bhs16ht.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-06-09 152951.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:30 上传
+
+今天对比了下绝对是致敬的机甲战记这套把：
+
+<img src="https://img.saraba1st.com/forum/202406/09/133202kspwph5sw5fz4dtp.jpg" referrerpolicy="no-referrer">
+
+<strong>417bXHBBtJL._AC_UF894,1000_QL80_.jpg</strong> (54.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-9 13:32 上传
+

@@ -1738,3 +1738,18 @@ DAO是DA0，DA2是DA2，DAI是DA1，DAV是DA5，太几把乱了<img src="https:/
 
 —— 来自 realme RMX2072, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  九十九忍  
+##### 191#       发表于 2024-6-10 02:20
+
+很有前几天索尼守望那味道，生软彻底完蛋
+
+*****
+
+####  ace8848  
+##### 192#       发表于 2024-6-10 02:22
+
+真的烂，实机画面还以为是什么魔奇幻题材gaas呢
+

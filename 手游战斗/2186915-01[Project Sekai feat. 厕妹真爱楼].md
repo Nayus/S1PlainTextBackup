@@ -1537,3 +1537,13 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 为啥时不时就有几条韭混进来，难道标题其实不是《Project Sekai feat.（的）厕妹真爱楼》而是《Project Sek ...</blockquote>
 本质厕妹真爱楼
 
+
+*****
+
+####  入间人  
+##### 134#       发表于 2024-6-11 00:02
+
+看得半懂不懂的，还挺乐的，不过如果真看懂了估计就没那么乐了，致敬搬运<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

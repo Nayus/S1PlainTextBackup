@@ -2137,3 +2137,13 @@ DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这下可以埋了
 
+
+*****
+
+####  mimighost  
+##### 233#       发表于 2024-6-10 09:38
+
+这啥玩意儿
+
+zzzq都可以放一边，以为自己是中世纪守望先锋么
+

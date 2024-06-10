@@ -2432,3 +2432,28 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 风怒编辑
 
+
+*****
+
+####  粉儿alice  
+##### 1694#       发表于 2024-6-11 00:08
+
+去年高桥麻树访谈爆典打脸可不亚于某编剧
+这次访谈她甚至还提到月光姐和音符<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+现在小雪后期标准化谐星反而是好事 不然的话被整出什么幺蛾子了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1695#       发表于 2024-6-11 00:11
+
+[https://x.com/sc_ome/status/1799593070130049136](https://x.com/sc_ome/status/1799593070130049136)
+
+リリアン変身回でした。お疲れ様でした！
+<img src="https://p.sda1.dev/18/557dd004298b31bb3117b7f0fe409c61/20240611_000858.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/HanyuXv/status/1799592801862303919](https://x.com/HanyuXv/status/1799592801862303919)
+
+わんぷり19話お疲れ様でした。実は参加しておりました。ちょうどニャミー変身後からCMまでのパート担当しました。プリキュアに参加できてめちゃ嬉しいです！
+<img src="https://p.sda1.dev/18/4530a056f9ba430a19ad6c6ae8c6115e/20240611_000922.jpg" referrerpolicy="no-referrer">
+

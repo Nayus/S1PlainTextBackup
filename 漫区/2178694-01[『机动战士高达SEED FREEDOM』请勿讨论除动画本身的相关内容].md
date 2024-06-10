@@ -4399,3 +4399,23 @@ W的防火者....
 重看原来除了8766战术，还有尼高尔战术，以及奥布的老舰长都在台词里，雨露均沾上做到极致了</blockquote>
 百发百不中的奥布船体描边导弹发射法
 
+
+*****
+
+####  七七見奈波  
+##### 1356#       发表于 2024-6-11 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65184914&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-10 19:50</a>
+
+神舵手太强了，一次急刹车一次漂移</blockquote>
+诺伊曼聚聚在地表一次躲安魂曲一次压水花，看得我目瞪口呆的
+
+*****
+
+####  马桶3  
+##### 1357#       发表于 2024-6-11 00:14
+
+ 本帖最后由 马桶3 于 2024-6-11 00:15 编辑 
+
+有没有巨巨知道开阳电子炮上宇宙是个什么技术路线，这事儿困扰我20年了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

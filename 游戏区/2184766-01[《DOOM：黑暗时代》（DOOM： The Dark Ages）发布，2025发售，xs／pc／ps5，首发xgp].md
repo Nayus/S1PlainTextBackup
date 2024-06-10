@@ -558,3 +558,32 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 上代永恒我在一个低补给的状态遇到一个需要处理包含大盾哥在内的复杂场景处卡关扔掉了，希望这代不要这样
 
+
+*****
+
+####  希望之异热同心  
+##### 64#       发表于 2024-6-10 10:24
+
+像是doom16的next plus版，演示里钩爪应该是没了，冲刺还要举盾，没得像永恒那样飞天了
+不过也行吧，降低机动性和增加互动方式（盾牌）可以更好的设计boss战和站点的环境，永恒离谱机动性的结局就是大师关把玩家堵在厕所里，这次总不能给面盾就把我堵厕所了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  坂本健一  
+##### 65#       发表于 2024-6-10 10:25
+
+既然肯给ps5 那ns2肯定也有一份了 安心了安心了
+
+*****
+
+####  希望之异热同心  
+##### 66#       发表于 2024-6-10 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178103&amp;ptid=2184766" target="_blank">雪菜碧池 发表于 2024-6-10 08:54</a>
+高达应该就是永恒里躺者那个吧，锻造符文剑那关</blockquote>
+毁灭堡垒里面就有台损坏的
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

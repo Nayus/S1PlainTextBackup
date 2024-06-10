@@ -3664,3 +3664,15 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  死难者23er  
+##### 1291#       发表于 2024-6-10 10:18
+
+<blockquote>黑暗之眼 发表于 2024-6-10 09:54
+啊不然咧不服你43E？
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+这一次可以大获成功主要还是情怀加成，对于吸收新的粉丝来说，剧场版应该是没什么帮助的
+

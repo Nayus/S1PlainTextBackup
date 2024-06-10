@@ -10871,3 +10871,13 @@ Written by:
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  zoomegg  
+##### 5455#       发表于 2024-6-10 19:22
+
+没玩游戏只看了live视频，一直以为学马是考虑到见习偶像的设定专门录了唱得很烂的版本，结果那就是正式版？？
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4216,3 +4216,28 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 这罗盘真tm草台，一点后备梯队都没有的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hcb77  
+##### 1337#       发表于 2024-6-10 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183843&amp;ptid=2178694" target="_blank">gary76 发表于 2024-6-10 18:01</a>
+
+蟹殼有幾門光束炮的的，雖然不多但還是有的</blockquote>
+有无正的小飞机
+
+2根外置红白夹心，2根绿水管，左右手两个导弹巢，背上一个导弹巢
+
+除了绿水管比SF2少一点，以及没有流星大之外已经是所有机体里火力最高的了
+
+*****
+
+####  novyDC  
+##### 1338#       发表于 2024-6-10 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183843&amp;ptid=2178694" target="_blank">gary76 发表于 2024-06-10 18:01:46</a>
+蟹殼有幾門光束炮的的，雖然不多但還是有的</blockquote>壳顶还有导弹发射器
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -10790,3 +10790,11 @@ Written by:
 
 新活动如果直接拿母猪石换抽的话，好像有15抽普池+2000以上的钻
 
+
+*****
+
+####  l3r0nY@  
+##### 5447#       发表于 2024-6-10 12:58
+
+皮卡丘这live是挺可爱的，就是唱的真一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

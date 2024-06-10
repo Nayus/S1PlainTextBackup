@@ -2340,3 +2340,15 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 <img src="https://p.sda1.dev/18/c43e02d68cec9f1a0a34ae5a4903c0b0/Animedia-202407-090.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/a33a63a3786b988079f05480a14cc894/Animedia-202407-091.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1685#       发表于 2024-6-10 12:56
+
+迄今为止的cure nyammy，对小麦他们的态度格外尖锐呢。
+
+——在小雪的世界里，除了茉优以外没有别的东西。茉优是能够接触一直独自生活的小雪的唯一存在，所以（对于小雪来说）茉优是特别的。而且，小雪除了茉优以外没有其他的祈求。所以，要把茉优身边肉体和精神上的坏影响全部排除掉。从某种意义上，小雪是舍身忘我的。像这样的小雪，知晓了接触外界的手段……除了自己和茉优之外的世界实际上更加广阔，这是小雪之后的主题。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">二把刀日语翻了一点，怎么感觉这么不对劲呢
+

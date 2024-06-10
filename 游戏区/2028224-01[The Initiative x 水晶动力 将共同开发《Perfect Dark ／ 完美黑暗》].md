@@ -395,3 +395,14 @@ https://weibo.com/1622008051/4917194914267397
 女主建模一股惊奇队长味</blockquote>
 更像west world女主
 
+
+*****
+
+####  ultraseven  
+##### 44#       发表于 2024-6-10 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180123&amp;ptid=2028224" target="_blank">苦瓜师傅 发表于 2024-6-10 12:17</a>
+
+更像west world女主</blockquote>
+看了下，下巴不够方
+

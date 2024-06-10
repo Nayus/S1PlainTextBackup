@@ -678,3 +678,16 @@ PV里这个应该是有剧情的
 这代估计是推荐用盾来抗攻击和弹反，而不是永恒的跑带打（经常就变成仓皇逃 ...</blockquote>
 能开高达打最终BOSS就可以了，永恒无论本体打巨像还是打黑魔王都不咋地
 
+
+*****
+
+####  猫出没注意  
+##### 76#       发表于 2024-6-10 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180491&amp;ptid=2184766" target="_blank">雪菜碧池 发表于 2024-6-10 12:48</a>
+
+能开高达打最终BOSS就可以了，永恒无论本体打巨像还是打黑魔王都不咋地</blockquote>
+能开高达打个惊天动地的最终战也不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+罪恶巨像能疯狂倾泻弹药还算爽快，其他仨boss 天使长、天父和黑魔王是真不行，尤其是黑魔王，逼格吹到天上去，剧情反转再反转，结果就是一个大号的掠夺者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虎头蛇尾。
+

@@ -14175,3 +14175,16 @@ mujica必然是一个温暖人心的故事
 
 2024-6-10 08:46 上传
 
+
+*****
+
+####  御景  
+##### 17459#       发表于 2024-6-10 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65175127&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-9 23:35</a>
+
+這是我和朋友一起搞的
+
+這幾個小章魚也是我執意要放上去的，其實不放好像更適合這個帥帥的氛圍 ...</blockquote>
+帅气再加点可爱的点缀，更有魅力，还更有另一面的惊喜感。
+

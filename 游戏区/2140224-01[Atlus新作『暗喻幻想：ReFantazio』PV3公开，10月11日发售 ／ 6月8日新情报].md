@@ -646,3 +646,17 @@ A9有说会发录制视频（简中版）
 展台位置：2.1H 2A16
 <img src="https://p.sda1.dev/18/49e7a54057d2ea7668c3efdc91b16925/1718017235853.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 458#         楼主| 发表于 2024-6-10 21:09
+
+国内的首场线下试玩应该在BW上了（虽然还没说具体参展内容）
+
+之后不知道还会不会去ChinaJoy（7月26日至29日）
+
+现仍在SGF展出提供线下试玩
+<img src="https://p.sda1.dev/18/2457044e2a5f061ee7372c98e95a3d70/20240610_205650.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/242d65016a0260306786cd4b3c6ec474/20240610_205649.jpg" referrerpolicy="no-referrer">
+

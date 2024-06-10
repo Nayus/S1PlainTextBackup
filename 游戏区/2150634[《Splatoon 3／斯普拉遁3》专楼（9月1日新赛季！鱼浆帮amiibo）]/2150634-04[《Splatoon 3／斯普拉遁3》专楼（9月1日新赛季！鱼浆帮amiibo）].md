@@ -2695,3 +2695,29 @@ max三岗过了，仍旧没有金
 
 难得一次打了将近8万P，出了30多个金，熊刷+3倍掉落确实把我钓上来了
 
+
+*****
+
+####  KBAC  
+##### 4706#       发表于 2024-6-10 15:55
+
+明天开始发布涂鸦就不用绑FB和X了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  晴岚  
+##### 4707#       发表于 2024-6-10 16:01
+
+<img src="https://img.saraba1st.com/forum/202406/10/160031dst5m1ym5c5azsu5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3432.jpeg</strong> (191.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 16:00 上传
+
+虽然觉得对不起对友，但对面消防栓往上面一站是真觉得能靠北斋的蜘蛛侠创造奇迹吗？这还不如赶紧放弃下一局
+

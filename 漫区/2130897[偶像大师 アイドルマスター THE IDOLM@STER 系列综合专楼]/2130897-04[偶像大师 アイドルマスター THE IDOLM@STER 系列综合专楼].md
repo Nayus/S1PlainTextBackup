@@ -10808,3 +10808,13 @@ Written by:
 
 不得不说儿力中间笑那一下还挺可爱的，有一种营业的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 5449#       发表于 2024-6-10 16:04
+
+学新主线争c位真乐。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

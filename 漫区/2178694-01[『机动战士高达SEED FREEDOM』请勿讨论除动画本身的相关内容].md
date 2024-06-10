@@ -3980,3 +3980,18 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 Accord收手吧，宇宙里全是桑岛
 
+
+*****
+
+####  gary76  
+##### 1318#       发表于 2024-6-10 15:24
+
+<blockquote>引用第1313楼發發于2024-06-10 14:56发表的  :
+
+半夜一堆人唐突又给了鸟和露娜两个镜头那段，是鸟白天击剑输了晚上硬不起来吗</blockquote>
+@發發
+
+是啊，鳥自己搞錯意思尷尬到爆炸就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

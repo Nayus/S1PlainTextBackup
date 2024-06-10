@@ -341,3 +341,18 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  johnkamsar  
+##### 12833#       发表于 2024-6-10 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65184792&amp;ptid=2084912" target="_blank">溯夜 发表于 2024-6-10 19:35</a>
+
+我没有金石，大公1宝，兽尼2宝，单体box太弱了点还是得抽一下
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那你要的是多宝而不是抽不抽问题了。
+
+实在不行上克制单体也行，不一定要强制一个泛用解。
+

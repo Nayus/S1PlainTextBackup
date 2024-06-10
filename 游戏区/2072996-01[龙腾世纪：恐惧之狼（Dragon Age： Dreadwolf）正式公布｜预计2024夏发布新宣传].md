@@ -2747,3 +2747,20 @@ L妹还不错. 虽然确实严格说不算队友.
 
 现在欧美的极端woke已经发展到不让你选2元性别的程度了，只能按照体型a/b来区分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当然生软自己是这个风潮的始作俑者，算是好似。
 
+
+*****
+
+####  mimighost  
+##### 284#       发表于 2024-6-10 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177358&amp;ptid=2072996" target="_blank">Flechette 发表于 2024-6-10 03:23</a>
+
+但是老三部曲的lead writer David Gaider早就跑路了
+
+生软现在的编剧实力实在是让人心里没底</blockquote>
+但是龙腾剧本就是david gaider的亲娃，没他其实难讲
+
+发现他在twitter上面也在玩儿阴阳<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，各种interesting满天飞
+
+[https://x.com/davidgaider/status/1799965308213743818](https://x.com/davidgaider/status/1799965308213743818)
+

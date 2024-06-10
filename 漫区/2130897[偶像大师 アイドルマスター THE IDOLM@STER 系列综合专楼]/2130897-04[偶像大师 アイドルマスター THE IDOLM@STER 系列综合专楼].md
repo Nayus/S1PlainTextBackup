@@ -10861,3 +10861,13 @@ Written by:
 
 之前百万动画的时候还在推上看到柏友带着孩子一起早上看，时代变了，灰百男人本家都在养老，只剩中年危机的闪以及刚出生的学了，令人感叹
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5454#       发表于 2024-6-10 18:32
+
+大帅活得到将来新企划女声优小时候闪入坑吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

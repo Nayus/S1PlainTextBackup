@@ -2453,3 +2453,31 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  roydimus  
+##### 263#       发表于 2024-6-10 15:01
+
+ 本帖最后由 roydimus 于 2024-6-10 15:02 编辑 
+
+风怒风怒
+
+*****
+
+####  roydimus  
+##### 264#       发表于 2024-6-10 15:01
+
+ 本帖最后由 roydimus 于 2024-6-10 15:02 编辑 
+
+风怒风怒
+
+*****
+
+####  roydimus  
+##### 265#       发表于 2024-6-10 15:01
+
+官方预告评论区里Is this what Duncan died for看得真的难受，绷不住
+
+傻逼生软，cnm
+

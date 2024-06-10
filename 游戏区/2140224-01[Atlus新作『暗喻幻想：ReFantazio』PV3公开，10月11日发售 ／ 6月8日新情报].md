@@ -660,3 +660,11 @@ A9有说会发录制视频（简中版）
 <img src="https://p.sda1.dev/18/2457044e2a5f061ee7372c98e95a3d70/20240610_205650.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/242d65016a0260306786cd4b3c6ec474/20240610_205649.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Khellendros  
+##### 459#       发表于 2024-6-10 22:29
+
+菜单和战斗结算ui挺不错，但是其他的太喧宾夺主了，尤其是各种转场都搞个全屏特效狗眼都闪瞎了，素材库限时免费还是怎么的……这游戏转场还很频繁，过剧情疯狂切镜头，战斗放个技能也乱切镜头
+

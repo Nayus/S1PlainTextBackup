@@ -4317,3 +4317,13 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 刚看完，笑疯了，怎么能从头抽象到尾啊
 
+
+*****
+
+####  kyonkoism  
+##### 1348#       发表于 2024-6-10 22:04
+
+和群友15人连麦 全程爆笑的看完了
+
+看命运干架，真的爽过打胶，真物理分身笑死我了，这官方目前有任何解释么，那可是真物理分身啊卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1932,3 +1932,33 @@ the boss这脸，实在绷不住，咋捏成这样了<img src="https://static.sa
 
 严格来讲的话PS3高清版（大师合集版）和PS2原版还是有些区别 主要是附带模式这块
 
+
+*****
+
+####  苦瓜师傅  
+##### 191#       发表于 2024-6-10 11:24
+
+目前trailer观感比沉默之丘2的大肿脸强
+
+*****
+
+####  社友者  
+##### 192#       发表于 2024-6-10 11:25
+
+[https://files.catbox.moe/68ur5e.mp4](https://files.catbox.moe/68ur5e.mp4)
+[https://up2sha.re/file?f=GEFeT7](https://up2sha.re/file?f=GEFeT7)
+
+1:1过场对比
+
+*****
+
+####  Amami_Haruka_  
+##### 193#       发表于 2024-6-10 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179369&amp;ptid=2135452" target="_blank">760194962 发表于 2024-6-10 11:15</a>
+
+不是杠 想补充信息
+
+严格来讲的话PS3高清版（大师合集版）和PS2原版还是有些区别 主要是附带模式这块 ...</blockquote>
+对比重制版随口说的了，确实
+

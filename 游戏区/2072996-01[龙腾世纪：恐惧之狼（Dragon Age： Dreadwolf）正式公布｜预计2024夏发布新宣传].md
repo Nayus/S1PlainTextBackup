@@ -2331,3 +2331,23 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Piano-Forest  
+##### 250#       发表于 2024-6-10 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65137079&amp;ptid=2072996" target="_blank">Piano-Forest 发表于 2024-6-6 23:03</a>
+
+正式名 Dragon Age™: The Veilguard
+
+6月11日晚11点会公开15分钟实机演示</blockquote>
+届时地址：[https://youtu.be/CTNwHShylIg](https://youtu.be/CTNwHShylIg)
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 251#       发表于 2024-6-10 11:28
+
+丑，有sweetbaby不玩
+

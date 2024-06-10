@@ -3740,3 +3740,32 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ALUD.  
+##### 1297#       发表于 2024-6-10 11:20
+
+<blockquote>查查沙拉 发表于 2024-6-10 03:28
+晚上拉片看战斗，仔细想想决战的战斗编排还是有问题
+
+主要是出在狼的出击timing排的不合理，基拉劫完拉克丝 ...</blockquote>
+
+然而击落了龙骑
+
+<img src="https://img.saraba1st.com/forum/202406/10/111945jzj43liuha63r514.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1717989479826.jpg</strong> (320.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 11:19 上传
+
+<img src="https://img.saraba1st.com/forum/202406/10/111903zt55dyh15krgthto.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1717989481293.jpg</strong> (344.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 11:19 上传
+

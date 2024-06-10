@@ -2778,3 +2778,16 @@ dai好歹男的都是帅的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  zzy516232108  
+##### 286#       发表于 2024-6-10 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183796&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-6-10 17:56</a>
+
+dai的队友一个比一个丑好吧，应该叫写实不能叫美型
+
+—— 来自 realme RMX2072, Android 12上的 S1Next- ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dai自己可以捏出特别好看的女人啊我记得……
+

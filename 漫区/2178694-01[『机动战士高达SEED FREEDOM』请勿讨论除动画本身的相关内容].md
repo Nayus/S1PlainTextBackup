@@ -3908,3 +3908,53 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 那婆娘跑到舰外来指挥，必定是想用那两坨肉迷惑我们兄弟几人呀！
 
+
+*****
+
+####  發發  
+##### 1311#       发表于 2024-6-10 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">文戏部分确实跟之前上映的时候口碑一样难蚌啊
+
+*****
+
+####  忧郁的杰哥  
+##### 1312#       发表于 2024-6-10 14:50
+
+有没有人注意到舰长统御千禧年上宇宙后首战是不是用了代号为巴基露露的战术？
+
+如果我没听错的话
+
+真是令人怀念和感动
+
+*****
+
+####  神鹰黑手哥  
+##### 1313#       发表于 2024-6-10 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178539&amp;ptid=2178694" target="_blank">黑暗之眼 发表于 2024-6-10 09:54</a>
+啊不然咧不服你43E？
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+种自47亿票房没啥好吹的
+水魔播放让财报从1000亿涨到着1300亿
+水魔第二季+种自让财报从1300亿涨到1400亿
+种自带来的增幅估计也就是五分之一个水魔的样子，要靠销量无脑承认种自这种装疯卖傻，先要承认比种自更赚钱的水魔是佳作才行
+
+—— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  發發  
+##### 1314#       发表于 2024-6-10 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">半夜一堆人唐突又给了鸟和露娜两个镜头那段，是鸟白天击剑输了晚上硬不起来吗
+
+*****
+
+####  aptx8285144  
+##### 1315#       发表于 2024-6-10 14:56
+
+我现在看到的翻译版本都感觉很难绷住，比如飞鸟自称明日香出击，问一下是不是字幕组都还没动？
+

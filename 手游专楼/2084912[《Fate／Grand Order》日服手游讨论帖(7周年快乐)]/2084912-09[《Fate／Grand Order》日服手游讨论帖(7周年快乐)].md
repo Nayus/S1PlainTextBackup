@@ -356,3 +356,17 @@
 
 实在不行上克制单体也行，不一定要强制一个泛用解。
 
+
+*****
+
+####  溯夜  
+##### 12834#       发表于 2024-6-10 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65185579&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-6-10 20:47</a>
+那你要的是多宝而不是抽不抽问题了。
+
+实在不行上克制单体也行，不一定要强制一个泛用解。 ...</blockquote>
+所以说现在就是提前挖矿+存石头抽高宝，日服到现在六加成要几宝才好用呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

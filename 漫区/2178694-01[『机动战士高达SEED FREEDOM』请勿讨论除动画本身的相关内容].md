@@ -4456,3 +4456,19 @@ W的防火者....
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  马桶3  
+##### 1361#       发表于 2024-6-11 00:34
+
+大半夜搜了下，还真有提过这个设定<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/11/003116jsd2b50zx2cddx60.jpg" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 010 - 5ef22bfdb9a48c42a2ee02df434b185b98d93cf0.jpg@1256w_680h_!.jpg</strong> (185.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 00:31 上传
+

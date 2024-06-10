@@ -749,3 +749,20 @@ PV里这个应该是有剧情的
 
 俗套点就来个多段BOSS战，开高达把敌人座机打趴，跳上飞龙继续殴打，最后再面对面单挑。
 
+
+*****
+
+####  rzsxd  
+##### 82#       发表于 2024-6-10 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65182192&amp;ptid=2184766" target="_blank">noneoneone 发表于 2024-6-10 15:20</a>
+
+俗套点就来个多段BOSS战，开高达把敌人座机打趴，跳上飞龙继续殴打，最后再面对面单挑。 ...</blockquote>
+先来个飞龙骑脸输出 
+
+再来个高达打爆胸口
+
+最后跳下来大战核心魔
+
+完美
+

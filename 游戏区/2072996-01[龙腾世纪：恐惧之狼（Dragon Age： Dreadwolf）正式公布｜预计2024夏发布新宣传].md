@@ -2534,3 +2534,23 @@ playersexual的意思就是不管你主角是什么，NPC都会和你恋爱。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ybfelix  
+##### 270#       发表于 2024-6-10 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180879&amp;ptid=2072996" target="_blank">林无德 发表于 2024-6-10 13:19</a>
+
+又拉了坨大的啊，生软
+
+别家起起落落，龙腾是起落落落，稀烂</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/10/164457mkqizkqclhq8khi8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8C2C3EB9-F559-490E-9281-673D1C9E810B.jpeg</strong> (29.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 16:44 上传
+

@@ -4092,3 +4092,16 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 话说还没有网飞版的下载吗
 
+
+*****
+
+####  卢武铉  
+##### 1327#       发表于 2024-6-10 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180559&amp;ptid=2178694" target="_blank">whiteweakbear 发表于 2024-6-10 12:55</a>
+
+反派的 b 格突破了天龙舞的下限
+
+—— 来自 realme RMX3708, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+胚芽好歹还把人扒光了，这个黄毛甚至连扒衣服的胆子都没有
+

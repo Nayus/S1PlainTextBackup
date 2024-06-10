@@ -2245,3 +2245,45 @@ what about倪亲爱的大爷呢！！
 现在这个，第一眼感觉除了zzzq，就是“谐”
 对于我来说，严肃性的缺失是比woke还致命一击的东西
 
+
+*****
+
+####  ybfelix  
+##### 244#       发表于 2024-6-10 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179152&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-10 10:57</a>
+
+我又仔细想了下为什么这个画风令人反感
+
+先不说woke政确这些明显的问题
+
+最重要的是，缺少严肃性</blockquote>
+看复联电影长大的一代成了编剧了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rzsxd  
+##### 245#       发表于 2024-6-10 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177307&amp;ptid=2072996" target="_blank">roydimus 发表于 2024-6-10 03:07</a>
+
+现在看仙女座都觉得眉清目秀…
+
+—— 来自 nubia NX679S, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+MD我也是这么想的。
+
+仙女座再丑，人家也知道最低标准维持系列风格。
+
+TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共斗拓展包。看的我心都碎了
+
+*****
+
+####  bad_alloc  
+##### 246#       发表于 2024-6-10 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179152&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-10 10:57</a>
+我又仔细想了下为什么这个画风令人反感
+先不说woke政确这些明显的问题
+最重要的是，缺少严肃性</blockquote>
+电影看漫威，游戏打fortnight/apex/ow，做出来的东西不就是同样的一股味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

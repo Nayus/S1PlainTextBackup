@@ -2351,3 +2351,24 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 丑，有sweetbaby不玩
 
+
+*****
+
+####  ak123  
+##### 252#       发表于 2024-6-10 11:54
+
+ 本帖最后由 ak123 于 2024-6-10 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179323&amp;ptid=2072996" target="_blank">aruruu 发表于 2024-6-10 11:12</a>
+
+为什么两个预告片之间风格会差这么多
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+因为这傻逼游戏的开发灾难程度是丧歌级别的,开发那么多年从服务型网游砍成单机22年初才有第一个很早期的开发演示，那时候连ui都没做好，期间主创又各种跑路，甚至临发售改名字，以至于让世人看到的时候已经风格变态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 253#       发表于 2024-6-10 11:58
+
+顺道又看了下前面楼里的偷跑，这玩意儿从23年就彻底定下woke美漫的五头身了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -507,3 +507,24 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 没想到还能出新作
 
+
+*****
+
+####  novyDC  
+##### 59#       发表于 2024-6-10 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65176649&amp;ptid=2184766" target="_blank">imba419 发表于 2024-06-10 01:43:44</a>
+这盾牌不会取代电锯吧
+
+—— 来自 Xiaomi 22041211AC, Android 14上的  v3.0.0.81-alpha</blockquote>感觉是取代了永恒的肩炮和腕刀
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  魔法酪饼  
+##### 60#       发表于 2024-6-10 08:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 好耶，6月最好的预告
+

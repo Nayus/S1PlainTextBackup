@@ -2352,3 +2352,16 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">二把刀日语翻了一点，怎么感觉这么不对劲呢
 
+
+*****
+
+####  modedd  
+##### 1686#       发表于 2024-6-10 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180584&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-6-10 12:56</a>
+
+迄今为止的cure nyammy，对小麦他们的态度格外尖锐呢。
+
+——小雪是“守护笨拙的妹妹的过度保护的姐姐”这种 ...</blockquote>
+意料之中吧，猫猫连动手打怪都得被训，对mayu的强占有欲加入主角团之后会被修正就更是板上钉钉的事了
+

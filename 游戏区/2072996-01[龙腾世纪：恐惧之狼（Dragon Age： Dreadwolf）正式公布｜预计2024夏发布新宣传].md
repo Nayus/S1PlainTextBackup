@@ -2594,3 +2594,23 @@ playersexual的意思就是不管你主角是什么，NPC都会和你恋爱。
 
 一想到gayware手上还捏着质量效应4，虽然我已经0期待了，但我还是想喷
 
+
+*****
+
+####  pgain2004  
+##### 273#       发表于 2024-6-10 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183384&amp;ptid=2072996" target="_blank">汪达 发表于 2024-6-10 17:15</a>
+我说怎么有种熟悉的感觉，这不是小缇娜的奇幻之地吗，抄袭！
+
+连主题色都一样是紫色！</blockquote>
+宣誓那边也挺紫的呢
+诶？
+
+*****
+
+####  Edvinno  
+##### 274#       发表于 2024-6-10 17:40
+
+谁TM要跟一群三流美漫角色在一起玩crpg，还配着hero的音乐，草
+

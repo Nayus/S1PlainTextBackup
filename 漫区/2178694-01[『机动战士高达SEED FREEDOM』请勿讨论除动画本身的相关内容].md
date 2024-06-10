@@ -4173,3 +4173,18 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 这一点这部电影上完的上映完的时候，日本有一个福田都经常转发的对于高达seed解读的推主，就这么分析过， ...</blockquote>
 高看我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我这半桶水都不够的日语可没法天天盯着推看。
 
+
+*****
+
+####  线程召唤使  
+##### 1334#       发表于 2024-6-10 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177383&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-6-10 03:28</a>
+
+晚上拉片看战斗，仔细想想决战的战斗编排还是有问题
+
+主要是出在狼的出击timing排的不合理，基拉劫完拉克丝 ...</blockquote>
+那个管制蟹壳自己又没战斗力，千禧年作战中呢，光蟹壳冲进战斗怕是回不了母舰。
+
+要说战斗有什么问题，千禧年的舰载机都死哪去了，担任援护的只有大魔姐，一看那么大个还以为多哥斯基亚呢
+

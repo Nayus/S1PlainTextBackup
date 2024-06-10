@@ -2147,3 +2147,42 @@ DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通�
 
 zzzq都可以放一边，以为自己是中世纪守望先锋么
 
+
+*****
+
+####  CyborgIP  
+##### 234#       发表于 2024-6-10 09:50
+
+看预告就能判死刑的游戏不多了，这预告片一股堡垒之夜/守望先锋的不正经感
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Rary  
+##### 235#       发表于 2024-6-10 09:51
+
+如果真是喜剧，反而挺好的，这些年黑暗奇幻已经品鉴太多了
+
+
+*****
+
+####  LFPart  
+##### 236#       发表于 2024-6-10 09:53
+
+bro以为自己是堡垒之夜<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">不敢看实机了，感觉更是寄中寄
+
+*****
+
+####  星花  
+##### 237#       发表于 2024-6-10 09:55
+
+本来就预计雷的游戏，符合预期，何必失望。
+
+*****
+
+####  青色精灵の最期  
+##### 238#       发表于 2024-6-10 09:57
+
+龙屎世纪还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

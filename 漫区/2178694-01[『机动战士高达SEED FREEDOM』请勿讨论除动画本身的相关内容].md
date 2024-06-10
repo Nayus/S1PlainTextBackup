@@ -3621,3 +3621,34 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  -lilipeipei-  
+##### 1287#       发表于 2024-6-10 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178125&amp;ptid=2178694" target="_blank">outel 发表于 2024-6-10 08:57</a>
+
+这片就得大银幕看  非自+meteor一响直接炸场了
+
+20年种白彻底满足</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">确实，我这看的本地首映，每个段子出来都全场爆笑，阿斯兰登场也是全场欢呼，这种氛围一个人看根本体会不到
+
+*****
+
+####  节艾司  
+##### 1288#       发表于 2024-6-10 09:47
+
+<blockquote>-lilipeipei- 发表于 2024-6-10 09:45
+确实，我这看的本地首映，每个段子出来都全场爆笑，阿斯兰登场也是全场欢呼，这种氛围一个人看根本体会不 ...</blockquote>
+一个人在家可以看弹幕刷屏前格
+
+*****
+
+####  Ironman_mk5  
+##### 1289#       发表于 2024-6-10 09:50
+
+<blockquote>节艾司 发表于 2024-6-10 09:01
+没想到20年过去以后姨丈成了种形象最高大的反派</blockquote>
+最高的还是面具男吧，姨丈作为福田声称对应副标题的最终boss不会开机实在是硬伤
+

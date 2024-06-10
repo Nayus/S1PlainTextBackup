@@ -10598,3 +10598,26 @@ emmmm，信号灯新卡新歌我不担心毕竟8月的live肯定信号灯三人�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这歌给我感觉是不太田淵智也，应该是编曲直接把个人风格给压过去了
 
+
+*****
+
+####  Ask_10A  
+##### 5442#       发表于 2024-6-10 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178283&amp;ptid=2130897" target="_blank">幽灵部长助理 发表于 2024-6-10 09:21</a>
+
+这歌应该慢个20%
+
+live上能原速唱下来吗……</blockquote>
+曲速快了，然后声音都低了，没有高音
+
+*****
+
+####  Seeley  
+##### 5443#       发表于 2024-6-10 09:47
+
+1st全员大合唱这歌应该会挺混沌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+唱齐？很难的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

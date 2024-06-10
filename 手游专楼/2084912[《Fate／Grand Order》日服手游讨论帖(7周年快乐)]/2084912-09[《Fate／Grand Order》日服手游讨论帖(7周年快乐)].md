@@ -327,3 +327,17 @@
 懂了 欧皇能出33个5星</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梦里全都有
 
+
+*****
+
+####  溯夜  
+##### 12832#       发表于 2024-6-10 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172419&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-6-9 21:21</a>
+没啥特别必要，其实接下来所有池都可以说没必要抽。。。。。大不了开图鉴
+
+主要是目前现阶段有的角色够用了 ...</blockquote>
+我没有金石，大公1宝，兽尼2宝，单体box太弱了点还是得抽一下
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

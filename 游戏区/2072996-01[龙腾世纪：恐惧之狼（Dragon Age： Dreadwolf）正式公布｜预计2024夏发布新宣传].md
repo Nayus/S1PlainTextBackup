@@ -2665,3 +2665,72 @@ Bioware nmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmsl
 
 2024-6-10 18:05 上传
 
+
+*****
+
+####  jf8350143  
+##### 278#       发表于 2024-6-10 18:06
+
+ 本帖最后由 jf8350143 于 2024-6-10 18:08 编辑 
+
+DA:I 虽然不好看，但是女人一眼看上去就知道是女人。
+
+唯一一个长得像女人但是实际上是男人的是铁牛的副手，但是她是个trans。
+
+这代这个库纳瑞人是女人，但是一眼看上去根本看不出来，完全就是男人的脸。（当然如果游戏出来了发现她也是个trans那当我没说）
+
+*****
+
+####  假布偶是臭猪  
+##### 279#       发表于 2024-6-10 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看完预告竟然同情起了尼格精灵哥
+
+他竟然最正常
+
+*****
+
+####  hhgjf  
+##### 280#       发表于 2024-6-10 18:09
+
+尼玛的恨不得每个高赞踩评都赞tm一百遍.
+
+<img src="https://img.saraba1st.com/forum/202406/10/180914o2zjlfee1ltnvsle.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (293.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 18:09 上传
+
+
+*****
+
+####  hhgjf  
+##### 281#       发表于 2024-6-10 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183796&amp;ptid=2072996" target="_blank">zhenlune 发表于 2024-6-10 17:56</a>
+
+dai的队友一个比一个丑好吧，应该叫写实不能叫美型
+
+—— 来自 realme RMX2072, Android 12上的 S1Next- ...</blockquote>
+L妹还不错. 虽然确实严格说不算队友.
+
+
+*****
+
+####  jf8350143  
+##### 282#       发表于 2024-6-10 18:13
+
+ 本帖最后由 jf8350143 于 2024-6-10 18:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我越想越觉得生软其实早就已经不想做RPG了。
+
+最后一批想做RPG的人应该是做仙女座的那一群，做完了就被解散工作室了。仙女座作为一个RPG框架挺好的就是文本水平比较菜+没时间打磨过场之类的东西。
+
+之后是圣歌，然后是这个从GAAS改成单人RPG的龙腾4，不想做RPG 就别拿老IP出来啊。
+
+你再做个圣歌2或者哀歌啥的，爆死了就解散了挺好
+
+而且作为政治正确的急先锋，现在在政治正确方面都已经沦落到泯然众人了，拿出你的气势来啊，拉瑞安能日熊，你就不能日点啥，要死也炸个大烟花啊，就现在这个破游戏死都显得太平庸了掀不起半点波兰
+

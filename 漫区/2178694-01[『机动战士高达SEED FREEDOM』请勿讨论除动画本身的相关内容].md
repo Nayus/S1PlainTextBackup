@@ -4045,3 +4045,42 @@ gary76 发表于 2024-6-10 12:35你看跟她一起上飆車艦橋的還有諾曼
 
 ----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Ameyoru  
+##### 1323#       发表于 2024-6-10 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65182894&amp;ptid=2178694" target="_blank">gary76 发表于 2024-6-10 16:23</a>
+
+@Ameyoru
+
+過癮就夠了，不是嗎</blockquote>
+其实除了基拉和拉克丝说出了肉麻话之外，我还想看的是两人的日常，结果没有，或者说所有人的日常才是我最想看的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gary76  
+##### 1324#       发表于 2024-6-10 16:32
+
+<blockquote>引用第1322楼Ameyoru于2024-06-10 16:27发表的  :
+
+gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了基拉和......</blockquote>
+@Ameyoru
+
+劇情時間連一個星期都沒有，還怎樣日常<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我是挺喜歡前半段讓基拉拉克絲壓力大得快崩潰的鋪墊的<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Tehebe  
+##### 1325#       发表于 2024-6-10 16:35
+
+土是真的土，好看也是真的好看<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

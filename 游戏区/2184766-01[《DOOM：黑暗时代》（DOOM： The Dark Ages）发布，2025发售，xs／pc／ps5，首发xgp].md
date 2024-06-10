@@ -857,3 +857,15 @@ PV里这个应该是有剧情的
 最后骑飞龙还不忘**恶魔，doom guy真的超喜欢**</blockquote>
 口。  爆都发不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  神之飞雪  
+##### 93#       发表于 2024-6-11 01:54
+
+【【1080P】《DOOM：永恒》毁灭战士宇宙 地球迎战地狱之王！-15分钟完整实机演示预告-哔哩哔哩】 https://b23.tv/u6dEqqV
+
+id真有过预告后缩水的前科的，预告不能全信
+
+不过这崩舍利子的霰弹枪确实够劲
+

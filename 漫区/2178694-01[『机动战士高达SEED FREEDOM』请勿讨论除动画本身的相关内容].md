@@ -3958,3 +3958,25 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 我现在看到的翻译版本都感觉很难绷住，比如飞鸟自称明日香出击，问一下是不是字幕组都还没动？
 
+
+*****
+
+####  yxydd88  
+##### 1316#       发表于 2024-6-10 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65181894&amp;ptid=2178694" target="_blank">忧郁的杰哥 发表于 2024-6-10 14:50</a>
+有没有人注意到舰长统御千禧年上宇宙后首战是不是用了代号为巴基露露的战术？
+
+如果我没听错的话</blockquote>
+是的，用的就是巴基露露发明的延时导弹战法
+
+—— 来自 Xiaomi 24040RA98R, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  节艾司  
+##### 1317#       发表于 2024-6-10 15:12
+
+Accord收手吧，宇宙里全是桑岛
+

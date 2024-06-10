@@ -2481,3 +2481,14 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 傻逼生软，cnm
 
+
+*****
+
+####  洛亚替身  
+##### 266#       发表于 2024-6-10 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179839&amp;ptid=2072996" target="_blank">ak123 发表于 2024-6-10 11:54</a>
+
+因为这傻逼游戏的开发灾难程度是丧歌级别的,开发那么多年从服务型网游砍成单机22年初才有第一个很早期的开 ...</blockquote>
+卡通画风，网游改单机，大头娃娃小头爸爸......原来DA4是红霞岛精神续作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

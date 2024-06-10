@@ -427,3 +427,15 @@ slm 露露 gbr 真能算一系的吗
 
 那能给我们废太子出点谷吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不是我说莉光捆绑出谷捆了好久了吧？这对真的很有人气吗？
 
+
+*****
+
+####  Devi_Lito  
+##### 276#       发表于 2024-6-10 13:40
+
+莉光人气一直挺高的吧，反正感觉在推上看到的最多的虹bgcp图就是莉光了
+
+另外みたらし団出道半年以来的官方谷子也只有出道纪念谷和出道半周年纪念谷。。
+
+syl，slm反正不太像露露gbr，也说不出来她是哪个类型，总之人气很高就是了。另外最近老是脑死复古游戏的石神反而有点露露味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

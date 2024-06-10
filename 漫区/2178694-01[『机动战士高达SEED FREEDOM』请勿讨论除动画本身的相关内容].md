@@ -4419,3 +4419,40 @@ W的防火者....
 
 有没有巨巨知道开阳电子炮上宇宙是个什么技术路线，这事儿困扰我20年了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫溺泉君  
+##### 1358#       发表于 2024-6-11 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65176354&amp;ptid=2178694" target="_blank">Ameyoru 发表于 2024-6-10 01:20</a>
+还有，最后决战那波，玛琉从舰内升到那个算是直接暴露目标的位置指挥是什么思路，当靶子吗，剩下的人物动机 ...</blockquote>
+是目力雷达，平时应该没少吃猪肝
+
+—— 来自 samsung SM-F9460, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  gary76  
+##### 1359#       发表于 2024-6-11 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188388&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 00:14</a>
+有没有巨巨知道开阳电子炮上宇宙是个什么技术路线，这事儿困扰我20年了
+
+ ...</blockquote>
+好像是用反物質煙滅效應製造一段真空通道來減少大氣阻力
+
+*****
+
+####  oi99o  
+##### 1360#       发表于 2024-6-11 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188388&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 00:14</a>
+有没有巨巨知道开阳电子炮上宇宙是个什么技术路线，这事儿困扰我20年了
+
+ ...</blockquote>
+大概是制造真空减少空气阻力吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

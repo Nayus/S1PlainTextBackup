@@ -10915,3 +10915,14 @@ cgss是比較現象級的遊戲吧，估計不少新世代都有玩過cgss
 
 学这全体曲不就是亲密10走马灯ed的那首吗，还以为都听过了
 
+
+*****
+
+####  Alleyht  
+##### 5460#       发表于 2024-6-11 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183077&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2024-6-10 16:41</a>
+
+今天这首也是老曲子啊</blockquote>
+对啊，所以我说米组地位不一样，老曲子的MV也上心做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

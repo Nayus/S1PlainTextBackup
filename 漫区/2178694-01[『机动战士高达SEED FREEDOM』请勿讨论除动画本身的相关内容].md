@@ -3676,3 +3676,16 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 —— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 这一次可以大获成功主要还是情怀加成，对于吸收新的粉丝来说，剧场版应该是没什么帮助的
 
+
+*****
+
+####  macos  
+##### 1292#       发表于 2024-6-10 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178125&amp;ptid=2178694" target="_blank">outel 发表于 2024-6-10 08:57</a>
+这片就得大银幕看  非自+meteor一响直接炸场了
+20年种白彻底满足</blockquote>
+然后镜头给了飞鸟
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

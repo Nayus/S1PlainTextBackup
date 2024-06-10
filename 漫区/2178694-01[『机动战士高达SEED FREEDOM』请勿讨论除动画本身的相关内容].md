@@ -3803,3 +3803,21 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gary76  
+##### 1301#       发表于 2024-6-10 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65176354&amp;ptid=2178694" target="_blank">Ameyoru 发表于 2024-6-10 01:20</a>
+还有，最后决战那波，玛琉从舰内升到那个算是直接暴露目标的位置指挥是什么思路，当靶子吗，剩下的人物动机 ...</blockquote>
+你看跟她一起上飆車艦橋的還有諾曼，那其實就是專門飆車用的駕駛座，她要及時給諾曼調整指示怎樣開
+
+
+*****
+
+####  安和昴  
+##### 1302#       发表于 2024-6-10 12:40
+
+满分10分，剧情-15，打斗+10，搞笑+10，音乐+5，没有玛硫乳摇-5，有拉克丝乳摇+5，鸡狼鸟表现+10，阿格尼丝-10
+

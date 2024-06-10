@@ -2407,3 +2407,14 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 什么是playersexual？</blockquote>
 就是不管玩家主角是男是女，都能泡所有可泡角色（不过在如今woke裁判体系里，“男女”性别本身就是犯忌字眼，说不定根本就不让你选主角性别。那除了playersexual好像也没有别的处理方式了不是<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 258#       发表于 2024-6-10 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180187&amp;ptid=2072996" target="_blank">ybfelix 发表于 2024-6-10 12:23</a>
+
+就是不管玩家主角是男是女，都能泡所有可泡角色（不过在如今woke裁判体系里，“男女”性别本身就是犯忌字 ...</blockquote>
+我还是奇怪为啥白皮同人女能喜欢6头身，不觉得比正常人比例还短的大头娃滚床单很怪么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

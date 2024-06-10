@@ -277,3 +277,20 @@
 
 还以为有珠池暴死得那么厉害兽尼可以否极泰来一下，结果狠狠地歪了大公，你也是蓝单！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">投降投降
 
+
+*****
+
+####  里村紅葉  
+##### 12827#       发表于 2024-6-10 12:44
+
+原来这个绑定邮箱引继的时候要去邮箱收一个6位验证码<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  克苏鲁系青骑士  
+##### 12828#       发表于 2024-6-10 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">去年梭哈才有了一宝提妈所以完全没碰兽尼池，这次梭哈算是开了蘑菇兽尼图鉴了，希望周年和泳装都别是超大杯…
+

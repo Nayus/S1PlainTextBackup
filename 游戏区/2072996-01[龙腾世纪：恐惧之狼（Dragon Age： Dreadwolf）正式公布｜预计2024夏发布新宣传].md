@@ -2861,3 +2861,13 @@ This game is gonna sell a lot of copies of Dragon Age: Origins
 
 yt评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 294#       发表于 2024-6-10 22:18
+
+杯赛是有B数的，知道自己要做什么游戏，做出来好不好那是能力问题。而且星空还能在老滚5和辐射4的基础上往回加RPG元素说明他们也不是对游戏的问题完全没概念。
+
+生软现在是态度和能力都有问题，而且态度问题更严重。
+

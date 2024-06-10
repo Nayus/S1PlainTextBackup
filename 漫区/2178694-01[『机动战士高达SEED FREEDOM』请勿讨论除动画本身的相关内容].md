@@ -4162,3 +4162,14 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 不过这招最早应该是致敬机动战舰的，百合香（桑岛）用过同样的招式
 
+
+*****
+
+####  线程召唤使  
+##### 1333#       发表于 2024-6-10 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178127&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-10 08:57</a>
+
+这一点这部电影上完的上映完的时候，日本有一个福田都经常转发的对于高达seed解读的推主，就这么分析过， ...</blockquote>
+高看我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我这半桶水都不够的日语可没法天天盯着推看。
+

@@ -2971,3 +2971,11 @@ DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下D
 【生软抢救行动：《龙腾世纪：影帐守卫》实机预告的预告】 https://www.bilibili.com/video/BV1tT421e7Uw/? ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">评论区的人是茧房了么，这个实机不更证明了这代都是6头身大头娃娃
 
+
+*****
+
+####  isa2456  
+##### 304#       发表于 2024-6-11 06:24
+
+用预告的预告来救还行，看社群好像是开始透露些fan service的东西来打定心针<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

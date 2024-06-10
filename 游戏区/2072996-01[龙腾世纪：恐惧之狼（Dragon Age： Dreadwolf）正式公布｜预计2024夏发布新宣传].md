@@ -2999,3 +2999,11 @@ DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下D
 用预告的预告来救还行，看社群好像是开始透露些fan service的东西来打定心针 ...</blockquote>
 保预购的手段罢了，ea的预告烂活&gt;定心丸&gt;发售还还是预告风格又不是第一次了，战爹5玩家应该很熟悉，任何玩家都应该明白美术资产是最早定调的之一,而且工作量巨大，临发售怎么可能还给你推倒重来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DBMlover  
+##### 307#       发表于 2024-6-11 07:32
+
+这预告的预告是什么霍格沃茨之遗吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不出来是一部新的da来自: iPhone客户端
+

@@ -792,3 +792,11 @@ PV里这个应该是有剧情的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  BRAVADO  
+##### 86#       发表于 2024-6-10 19:50
+
+这trailer怎么一股子painkiller味。
+

@@ -10798,3 +10798,13 @@ Written by:
 
 皮卡丘这live是挺可爱的，就是唱的真一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 5448#       发表于 2024-6-10 14:27
+
+音游闪给我的印象就是原创曲的MV认真弄，页游闪拿来的曲子就糊弄糊弄，然而今天新实装的米组的くだらないや倒是还不错，这就是强推组合的地位吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不得不说儿力中间笑那一下还挺可爱的，有一种营业的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

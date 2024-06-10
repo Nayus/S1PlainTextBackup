@@ -2443,3 +2443,13 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 龙腾炸了那你软可就剩个质量饼了，祝好运<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyborgIP  
+##### 262#       发表于 2024-6-10 14:34
+
+404上2.7万赞，11万踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

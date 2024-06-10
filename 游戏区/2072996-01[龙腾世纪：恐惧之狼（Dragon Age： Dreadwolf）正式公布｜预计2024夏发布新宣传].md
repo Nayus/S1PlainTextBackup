@@ -2734,3 +2734,16 @@ L妹还不错. 虽然确实严格说不算队友.
 
 而且作为政治正确的急先锋，现在在政治正确方面都已经沦落到泯然众人了，拿出你的气势来啊，拉瑞安能日熊，你就不能日点啥，要死也炸个大烟花啊，就现在这个破游戏死都显得太平庸了掀不起半点波兰
 
+
+*****
+
+####  mimighost  
+##### 283#       发表于 2024-6-10 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180059&amp;ptid=2072996" target="_blank">针刺骑士 发表于 2024-6-10 12:11</a>
+
+什么是playersexual？</blockquote>
+基本就是所有角色都是双的意思
+
+现在欧美的极端woke已经发展到不让你选2元性别的程度了，只能按照体型a/b来区分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。当然生软自己是这个风潮的始作俑者，算是好似。
+

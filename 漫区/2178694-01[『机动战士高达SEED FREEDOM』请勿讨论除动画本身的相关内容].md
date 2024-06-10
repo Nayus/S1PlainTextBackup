@@ -4200,3 +4200,19 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 要说战斗有什么问题，千 ...</blockquote>
 蟹殼有幾門光束炮的的，雖然不多但還是有的
 
+
+*****
+
+####  X(iaolw)S  
+##### 1336#       发表于 2024-6-10 18:19
+
+ 本帖最后由 X(iaolw)S 于 2024-6-10 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183650&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-10 17:42</a>
+
+那个管制蟹壳自己又没战斗力，千禧年作战中呢，光蟹壳冲进战斗怕是回不了母舰。
+
+要说战斗有什么问题，千 ...</blockquote>
+千禧年标配两个小队+鸡神啊，三连星被咩了俩男的，阿古妮丝叛逃，这不就剩下四人了嘛，
+
+这罗盘真tm草台，一点后备梯队都没有的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

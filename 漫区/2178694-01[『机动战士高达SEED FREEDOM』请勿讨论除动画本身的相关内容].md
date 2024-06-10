@@ -4011,3 +4011,14 @@ Accord收手吧，宇宙里全是桑岛
 
 2024-6-10 15:44 上传
 
+
+*****
+
+####  Ameyoru  
+##### 1320#       发表于 2024-6-10 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180334&amp;ptid=2178694" target="_blank">gary76 发表于 2024-6-10 12:35</a>
+
+你看跟她一起上飆車艦橋的還有諾曼，那其實就是專門飆車用的駕駛座，她要及時給諾曼調整指示怎樣開 ...</blockquote>
+这种补丁太蠢了，你说我里面弄个全周天的驾驶舱我都觉得合理一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

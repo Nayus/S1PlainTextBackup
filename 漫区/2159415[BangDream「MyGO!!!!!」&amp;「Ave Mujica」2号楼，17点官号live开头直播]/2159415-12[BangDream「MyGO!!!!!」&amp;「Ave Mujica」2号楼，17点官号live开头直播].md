@@ -14196,3 +14196,19 @@ mujica必然是一个温暖人心的故事
 
 仔细一看能看到蓝色的右眼（）
 
+
+*****
+
+####  krowbullet  
+##### 17461#       发表于 2024-6-10 16:08
+
+说到章鱼小祥，我竟然在南美的中型超市里看到了，大为震撼
+
+<img src="https://img.saraba1st.com/forum/202406/10/160759n43mwg6s0usuxr6l.jpg" referrerpolicy="no-referrer">
+
+<strong>A45DACCFC62446CBB0A54EB7AC7C3D92.jpg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 16:07 上传
+

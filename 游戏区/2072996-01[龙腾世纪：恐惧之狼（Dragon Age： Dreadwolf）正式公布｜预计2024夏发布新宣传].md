@@ -2112,3 +2112,28 @@ DAI至少人物建模还是写实的，我觉得DA4要是端出来一个卡通�
 
 呃呃呃，我对DAO的美好回忆……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  copy  
+##### 230#       发表于 2024-6-10 09:09
+
+老玩家已经麻了，只能再看看实机演示是什么情况了 。蛋头还是把世界毁灭了吧
+
+*****
+
+####  Hidewhite  
+##### 231#       发表于 2024-6-10 09:11
+
+这欢快的傻逼喜剧味真是太牛逼了，这风格这名字是什么新的超级英雄片子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  波子汽水  
+##### 232#       发表于 2024-6-10 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这下可以埋了
+

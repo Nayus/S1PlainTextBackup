@@ -4105,3 +4105,16 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 —— 来自 realme RMX3708, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 胚芽好歹还把人扒光了，这个黄毛甚至连扒衣服的胆子都没有
 
+
+*****
+
+####  GUNDAMmkII  
+##### 1328#       发表于 2024-6-10 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178539&amp;ptid=2178694" target="_blank">黑暗之眼 发表于 2024-6-10 09:54</a>
+
+啊不然咧不服你43E？
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+43E又如何，灌篮高手剧场版100多亿票房不也一样是烂片一部...
+

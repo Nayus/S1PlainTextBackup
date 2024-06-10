@@ -3591,3 +3591,33 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 没想到20年过去以后姨丈成了种形象最高大的反派
 
+
+*****
+
+####  死难者23er  
+##### 1285#       发表于 2024-6-10 09:24
+
+基拉的邮箱里面有两封阿古尼斯的邮件，看来最初修罗场剧情的原案还是留了点下来的，
+
+<img src="https://img.saraba1st.com/forum/202406/10/092429s0lq2qo0dlsialil.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2304.jpeg</strong> (144.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 09:24 上传
+
+人设是美女在演基拉喜欢的女孩。头发颜色是他喜好的芙蕾和拉克丝的合体，可是基拉却对她非常冷淡，来看来应该是修罗场剧情被删掉所造成的影响，不知道前传能不能补充一下
+
+
+*****
+
+####  shiko  
+##### 1286#       发表于 2024-6-10 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172030&amp;ptid=2178694" target="_blank">lain2008 发表于 2024-6-9 20:51</a>
+好多场景的人物作画是flash水平，比如开头的跳舞那一段，然后狼和鸡互殴，鸡被打飞的一瞬间，阿斯兰除了头 ...</blockquote>
+这剧场版本来就没钱啊，当初刚开始做的时候就有一堆消息说没经费了，连福田自己都推特吐槽过
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

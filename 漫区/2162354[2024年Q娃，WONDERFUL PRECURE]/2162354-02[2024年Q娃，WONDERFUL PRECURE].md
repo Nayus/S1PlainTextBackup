@@ -2310,3 +2310,33 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 就从去年看万代对男q娃态度很差 q娃好好的给女孩家长爆金币就可以了 男孩家长有的是其他ip玩具可以慢慢爆 ...</blockquote>
 去年的情况感觉像是东映想要搞个噱头出男Q但是财团B这边不感冒吧……
 
+
+*****
+
+####  leleq  
+##### 1683#       发表于 2024-6-10 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65176494&amp;ptid=2162354" target="_blank">unnilennium 发表于 2024-6-10 01:30</a>
+
+真的按声优梗来说mayu的妈妈（CV.斋藤千和）才是焰啊
+
+今天在推特看到说猫组家里是平成+令和的晓美焰 ...</blockquote>
+前面主要还是小雪独占欲和保护欲mayu胆小旁观比较像吧
+
+不过这集一变身mayu立即变得有自信了有反攻的架势了
+
+后面是说mayu是麻花辫吼姆拉也有可能
+
+*****
+
+####  犬飼いろは  
+##### 1684#       发表于 2024-6-10 09:27
+
+前 2 张：月刊アニメージュ 2024年7月号
+
+后 2 张：アニメディア 2024年7月号
+<img src="https://p.sda1.dev/18/cdb5f0d0df37af3022e3766656c732b9/Animage-202407-080.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/69d8ae912e3e596df740a4fdcd3f9378/Animage-202407-081.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c43e02d68cec9f1a0a34ae5a4903c0b0/Animedia-202407-090.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a33a63a3786b988079f05480a14cc894/Animedia-202407-091.jpg" referrerpolicy="no-referrer">
+

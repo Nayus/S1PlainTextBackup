@@ -1833,3 +1833,21 @@ PV1：[https://youtu.be/VTVaEPHa9Bc](https://youtu.be/VTVaEPHa9Bc)
 
 起码有新动作了
 
+
+*****
+
+####  nage560  
+##### 182#       发表于 2024-6-10 09:58
+
+PV卖相比预期的好很多，1比1复刻是最正确的选择，维塔士这么牛了吗？不过没有发售日，看来明年都不一定能出。
+
+
+*****
+
+####  强尼高达  
+##### 183#       发表于 2024-6-10 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177653&amp;ptid=2135452" target="_blank">SergeGlenn 发表于 2024-6-10 06:35</a>
+这玩意儿就是原汁原味玩法画面换皮，别有多余的期待，想改玩法Konami根本没人能做 ...</blockquote>
+这目测都变MGSV玩法了
+

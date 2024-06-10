@@ -3652,3 +3652,15 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 没想到20年过去以后姨丈成了种形象最高大的反派</blockquote>
 最高的还是面具男吧，姨丈作为福田声称对应副标题的最终boss不会开机实在是硬伤
 
+
+*****
+
+####  黑暗之眼  
+##### 1290#       发表于 2024-6-10 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177572&amp;ptid=2178694" target="_blank">GUNDAMmkII 发表于 2024-6-10 05:21</a>
+你这调调就让我想起刚毕业进的那家公司的老板，他的口头禅就是“票房是判定一部电影好坏的唯一标准” ...</blockquote>
+啊不然咧不服你43E？
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

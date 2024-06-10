@@ -633,3 +633,15 @@ id心中永远的Quake梦是吧
 
 nb，看起来还有弹反和近战相关的内容，好啊！
 
+
+*****
+
+####  猫出没注意  
+##### 72#       发表于 2024-6-10 12:20
+
+太期待啦<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">忍不住又想打永恒了。
+
+这代估计是推荐用盾来抗攻击和弹反，而不是永恒的跑带打（经常就变成仓皇逃窜），对普通玩家会更友好，不过看起来一些怪比如蜘蛛的火力也猛了好多。
+
+开高达估计只是短暂的注重演出的环节，不过也好过只让看不让开了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">。
+

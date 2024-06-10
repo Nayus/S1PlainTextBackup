@@ -2372,3 +2372,20 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 顺道又看了下前面楼里的偷跑，这玩意儿从23年就彻底定下woke美漫的五头身了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Nosgoth  
+##### 254#       发表于 2024-6-10 12:02
+
+一直在说Dragon Age系列我认为就不是系列，只有1和资料片是Dragon Age。但是看到这次这个还是要说一句这是什么g8玩意？
+
+*****
+
+####  jf8350143  
+##### 255#       发表于 2024-6-10 12:02
+
+看了下报道，这代和DA2 一样是playersexual
+
+生软你踏马是越活越回去了
+

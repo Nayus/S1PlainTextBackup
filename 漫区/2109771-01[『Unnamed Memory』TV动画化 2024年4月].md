@@ -18,3 +18,15 @@
 
 这作品让我久违的想起了18年的皇帝圣印战记，也是水平不错的原作惨遭动画化，强行半年番做完年番的剧情量
 
+
+*****
+
+####  martinium  
+##### 137#       发表于 2024-6-10 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65127244&amp;ptid=2109771" target="_blank">kongxian 发表于 2024-6-6 08:00</a>
+少女音，有吗，我怎么听都觉得这几集声线显得都挺苍老的，莫非是要体现人设长生高龄少女感 ...</blockquote>
+大概隔两集能有一两句撒娇的台词。与大部分时候相比，有一种反差萌。比如8话最后被霸总强吻后
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

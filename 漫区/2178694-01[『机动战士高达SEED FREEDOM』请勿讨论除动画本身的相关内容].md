@@ -3864,3 +3864,16 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  GN-XⅣ  
+##### 1307#       发表于 2024-6-10 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180535&amp;ptid=2178694" target="_blank">cxj649 发表于 2024-6-10 12:52</a>
+
+小说里狼开自由的时候，魔蟹是卡咖喱遥控的
+
+另一个“蟹盖”是米莉亚在开</blockquote>
+这点没小说补充还真看不出来……话说小说有中文翻译了吗？
+

@@ -2418,3 +2418,20 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 就是不管玩家主角是男是女，都能泡所有可泡角色（不过在如今woke裁判体系里，“男女”性别本身就是犯忌字 ...</blockquote>
 我还是奇怪为啥白皮同人女能喜欢6头身，不觉得比正常人比例还短的大头娃滚床单很怪么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aaronluray  
+##### 259#       发表于 2024-6-10 13:15
+
+我要是生软的工作人员，现在应该在加急重剪接下来那个15分钟的实机。太可笑了，怎么搞出这么个预告，我看粉丝基本都在生气，搞得官方他们还拉上粉丝圈里那几个kol给实机洗地，其实实机不是预告那样的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林无德  
+##### 260#       发表于 2024-6-10 13:19
+
+又拉了坨大的啊，生软<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别家起起落落，龙腾是起落落落，稀烂
+

@@ -691,3 +691,13 @@ PV里这个应该是有剧情的
 
 罪恶巨像能疯狂倾泻弹药还算爽快，其他仨boss 天使长、天父和黑魔王是真不行，尤其是黑魔王，逼格吹到天上去，剧情反转再反转，结果就是一个大号的掠夺者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虎头蛇尾。
 
+
+*****
+
+####  Senni  
+##### 77#       发表于 2024-6-10 13:17
+
+画风回到doom2016的感觉了，非常舒服
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

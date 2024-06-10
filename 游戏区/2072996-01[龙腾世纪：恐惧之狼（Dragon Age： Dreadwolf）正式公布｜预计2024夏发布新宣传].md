@@ -2791,3 +2791,24 @@ dai的队友一个比一个丑好吧，应该叫写实不能叫美型
 —— 来自 realme RMX2072, Android 12上的 S1Next- ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dai自己可以捏出特别好看的女人啊我记得……
 
+
+*****
+
+####  supersssbc  
+##### 287#       发表于 2024-6-10 19:38
+
+<blockquote>zzy516232108 发表于 2024-6-10 19:10
+dai自己可以捏出特别好看的女人啊我记得……</blockquote>
+那你可能把装了mod的游戏和原版搞混了，原版只能捏出看起来勉强顺眼的女角色而且我记得是精灵限定
+
+
+*****
+
+####  洛亚替身  
+##### 288#       发表于 2024-6-10 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65184812&amp;ptid=2072996" target="_blank">supersssbc 发表于 2024-6-10 19:38</a>
+
+那你可能把装了mod的游戏和原版搞混了，原版只能捏出看起来勉强顺眼的女角色而且我记得是精灵限定 ...</blockquote>
+而且只有那一张模板脸
+

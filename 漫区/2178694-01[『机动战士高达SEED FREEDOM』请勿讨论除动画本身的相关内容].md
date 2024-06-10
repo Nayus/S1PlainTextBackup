@@ -3782,3 +3782,14 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 主要是出在狼的出击timing排的不合理，基拉劫完拉克丝 ...</blockquote>
 是共同出击 但两部里都是分开打boss的
 
+
+*****
+
+####  GN-XⅣ  
+##### 1299#       发表于 2024-6-10 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65166550&amp;ptid=2178694" target="_blank">-lilipeipei- 发表于 2024-6-9 13:33</a>
+
+话说之前看的时候就觉得卡嘉莉这套装备眼熟：</blockquote>
+这个“蟹盖”有没有具体的资料和介绍？很好奇美玲作为“蟹盖”的驾驶员到底有多大权限，是不是狼不管的时候就是他在开正义了？
+

@@ -302,3 +302,28 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在只有100多一点的石头 出什么池子梭哈都是打水漂
 
+
+*****
+
+####  alucardcz  
+##### 12830#       发表于 2024-6-10 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180512&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-10 12:50</a>
+
+现在只有100多一点的石头 出什么池子梭哈都是打水漂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100/3=33.3333333333333
+
+懂了 欧皇能出33个5星
+
+*****
+
+####  qixinno2  
+##### 12831#       发表于 2024-6-10 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65184331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-10 18:49</a>
+
+100/3=33.3333333333333
+
+懂了 欧皇能出33个5星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梦里全都有
+

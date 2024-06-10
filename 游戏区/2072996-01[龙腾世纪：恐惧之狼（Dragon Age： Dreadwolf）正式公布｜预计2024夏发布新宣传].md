@@ -2554,3 +2554,43 @@ playersexual的意思就是不管你主角是什么，NPC都会和你恋爱。
 
 2024-6-10 16:44 上传
 
+
+*****
+
+####  汪达  
+##### 271#       发表于 2024-6-10 17:15
+
+ 本帖最后由 汪达 于 2024-6-10 17:19 编辑 
+
+我说怎么有种熟悉的感觉，这不是小缇娜的奇幻之地吗，抄袭！<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+连主题色都一样是紫色！<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/10/171925na7v9rqijr5ivewe.png" referrerpolicy="no-referrer">
+
+<strong>eo3mzatr3gs.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 17:19 上传
+
+
+*****
+
+####  zzy516232108  
+##### 272#       发表于 2024-6-10 17:20
+
+今天清醒了又看一遍
+
+麻子脸女人 x
+
+天花脸女人 o
+
+六头身美漫造型
+
+毫无严肃感
+
+就算是DAI至少人物也美型呢
+
+一想到gayware手上还捏着质量效应4，虽然我已经0期待了，但我还是想喷
+

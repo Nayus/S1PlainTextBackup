@@ -31,10 +31,11 @@ if __name__ == '__main__':
     replydict = {
         '外野':{},
         '游戏区':{},
-        '漫区':{}
+        '漫区':{},
+        '手游战斗区':{}
     }
     for file in p.rglob('*.md'):
-        if(('虚拟主播区专楼' not in str(file) ) and ('手游专楼' not in str(file))):
+        if(('虚拟主播区专楼' not in str(file)) and ('手游专楼' not in str(file))):
             print(str(file))
             with open (file, 'r',encoding='utf-8-sig') as f:
                 lines = f.readlines()
@@ -72,10 +73,10 @@ if __name__ == '__main__':
                     board = '漫区'
                 elif('游戏区' in str(file)):
                     board = '游戏区'
-                # elif('手游' in str(file)):
-                #     board = '手游区'
-                # elif('虚拟主播区' in str(file)):
-                #     board = '管人区'
+                # elif('虚拟主播区专楼' in str(file)):
+                #     board = 'VTB区'
+                elif('手游战斗' in str(file)):
+                    board = '手游战斗区'
                 if today in temptimedict.keys():
                     if today not in replydict[board].keys():
                         replydict[board][today] = {}

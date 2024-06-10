@@ -2435,3 +2435,11 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 
 别家起起落落，龙腾是起落落落，稀烂
 
+
+*****
+
+####  洛亚替身  
+##### 261#       发表于 2024-6-10 13:28
+
+龙腾炸了那你软可就剩个质量饼了，祝好运<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

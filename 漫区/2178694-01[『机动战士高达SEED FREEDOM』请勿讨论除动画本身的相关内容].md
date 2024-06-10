@@ -3877,3 +3877,16 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 另一个“蟹盖”是米莉亚在开</blockquote>
 这点没小说补充还真看不出来……话说小说有中文翻译了吗？
 
+
+*****
+
+####  outel  
+##### 1308#       发表于 2024-6-10 13:34
+
+<blockquote>引用第1301楼安和昴于2024-06-09 21:40发表的  :
+
+满分10分，剧情-15，打斗+10，搞笑+10，音乐+5，没有玛硫乳摇-5，有拉克丝乳摇+5，鸡狼鸟......</blockquote>
+舰长有大破状态<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
+

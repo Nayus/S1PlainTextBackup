@@ -2960,3 +2960,14 @@ DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下D
 
 新作看起来让人惊讶，你还能更烂的？
 
+
+*****
+
+####  ak123  
+##### 303#       发表于 2024-6-11 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188603&amp;ptid=2072996" target="_blank">Ferb2012 发表于 2024-6-11 00:39</a>
+
+【生软抢救行动：《龙腾世纪：影帐守卫》实机预告的预告】 https://www.bilibili.com/video/BV1tT421e7Uw/? ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">评论区的人是茧房了么，这个实机不更证明了这代都是6头身大头娃娃
+

@@ -4583,3 +4583,23 @@ AC无论场贩谷子还是后续都是官配，FT也认证了
 
 我猜分身仍然是假的，然后命运动作很快让人以为分身也在攻击。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1370#       发表于 2024-6-11 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188554&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 00:34</a>
+
+大半夜搜了下，还真有提过这个设定</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/11/071048x6frpif1zsk5x6bq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240611_071008_com.android.gallery3d_edit_5916915000540364.jpg</strong> (793.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 07:10 上传
+
+Gundam Fact File里详细一点，靠阳电子破城炮引发的阳电子干涉效果，同时也排除空气，做到无视空气阻力加速
+

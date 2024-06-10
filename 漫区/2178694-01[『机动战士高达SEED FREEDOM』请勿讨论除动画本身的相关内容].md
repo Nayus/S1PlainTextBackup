@@ -3769,3 +3769,16 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 2024-6-10 11:19 上传
 
+
+*****
+
+####  MR.McGillis  
+##### 1298#       发表于 2024-6-10 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177383&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-6-10 03:28</a>
+
+晚上拉片看战斗，仔细想想决战的战斗编排还是有问题
+
+主要是出在狼的出击timing排的不合理，基拉劫完拉克丝 ...</blockquote>
+是共同出击 但两部里都是分开打boss的
+

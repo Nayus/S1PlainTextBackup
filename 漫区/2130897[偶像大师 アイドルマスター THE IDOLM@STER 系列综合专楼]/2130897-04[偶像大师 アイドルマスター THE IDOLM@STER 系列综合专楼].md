@@ -10834,3 +10834,14 @@ Written by:
 
 2024-6-10 16:13 上传
 
+
+*****
+
+####  Ask_10A  
+##### 5451#       发表于 2024-6-10 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65181639&amp;ptid=2130897" target="_blank">Alleyht 发表于 2024-6-10 14:27</a>
+
+音游闪给我的印象就是原创曲的MV认真弄，页游闪拿来的曲子就糊弄糊弄，然而今天新实装的米组的くだらないや ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天这首也是老曲子啊
+

@@ -1879,3 +1879,56 @@ CQC的演出强化了，但机制还是3代原版（例如勒住后前投推倒�
 
 最近十年估计都是重制版游戏话题大 对对比研究来说资源丰富
 
+
+*****
+
+####  有钱多买小人  
+##### 187#       发表于 2024-6-10 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177485&amp;ptid=2135452" target="_blank">حماس 发表于 2024-6-10 04:13</a>
+https://www.bilibili.com/video/av1755666037/
+
+转了个日版PV</blockquote>
+「鏡のように磨き上げられたグラフィック、新エンジンだ。」
+「更にフレームとの噛み合わせをタイトにして、リフレッシュレートを上げている。」
+「サイトシ ステムもオリジナル、肩越し視点もエイムを合わせ易く、変更してある。」
+「BGMやSEも原作のものを使用したオリジナルタイプだ。」
+「大塚明夫に・・・音声もハイクオリティになった原作再現」
+「それだけじ ゃない、ほぼ全てのシーンが入念に吟味され、カスタム化されている」
+
+*****
+
+####  Amami_Haruka_  
+##### 188#       发表于 2024-6-10 11:10
+
+ 本帖最后由 Amami_Haruka_ 于 2024-6-10 11:11 编辑 
+<blockquote>夜魔侠 发表于 2023-5-23 09:06
+很悲哀，我们的第一反应都是封不封禁，乳不乳了</blockquote>
+
+你要是说konami
+
+我买的食蛇者（大师合集里的原版，用cdkey换的），锁区就算了，连下载都没啥速度
+
+
+*****
+
+####  萨尤克  
+##### 189#       发表于 2024-6-10 11:15
+
+the boss这脸，实在绷不住，咋捏成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  760194962  
+##### 190#       发表于 2024-6-10 11:15
+
+<blockquote>Amami_Haruka_ 发表于 2024-6-10 11:10
+你要是说konami
+
+我买的食蛇者（大师合集里的原版，用cdkey换的），锁区就算了，连下载都没啥速度 ...</blockquote>
+不是杠 想补充信息
+
+严格来讲的话PS3高清版（大师合集版）和PS2原版还是有些区别 主要是附带模式这块
+

@@ -609,3 +609,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 可惜这次音乐换人了，不知道到时候成色如何。
 
+
+*****
+
+####  丹德里恩  
+##### 69#       发表于 2024-6-10 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希望别像永恒那么高速了，打得脑壳痛
+

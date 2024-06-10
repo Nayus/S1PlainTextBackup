@@ -3728,3 +3728,15 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 飞鸟：前格！前格！
 
+
+*****
+
+####  940045933  
+##### 1296#       发表于 2024-6-10 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65172410&amp;ptid=2178694" target="_blank">alien 发表于 2024-6-9 21:20</a>
+大概是全3d的机战花太多钱了吧~~</blockquote>
+工期太赶了吧，上映前情报师好像有提过
+
+—— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

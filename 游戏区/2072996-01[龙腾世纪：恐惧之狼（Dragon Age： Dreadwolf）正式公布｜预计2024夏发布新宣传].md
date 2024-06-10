@@ -2287,3 +2287,47 @@ TMD这搞了个什么东西。史诗感全无，看着像是什么手游的共�
 最重要的是，缺少严肃性</blockquote>
 电影看漫威，游戏打fortnight/apex/ow，做出来的东西不就是同样的一股味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybfelix  
+##### 247#       发表于 2024-6-10 11:10
+
+去reddit看了下果然洋人也在疑惑这难道不是手游spin off
+
+<img src="https://img.saraba1st.com/forum/202406/10/110937e1vqc4pvuqhbv1v3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2535.jpeg</strong> (894.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 11:09 上传
+
+*****
+
+####  rzsxd  
+##### 248#       发表于 2024-6-10 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179152&amp;ptid=2072996" target="_blank">hmfwsl 发表于 2024-6-10 10:57</a>
+
+我又仔细想了下为什么这个画风令人反感
+
+先不说woke政确这些明显的问题
+
+最重要的是，缺少严肃性</blockquote>
+就是这个问题
+
+当那句“what about darkspawn"蹦出来的时候 我TM整个人都怒了
+
+用这种轻佻的语气谈暗裔。就是对这个系列最大的侮辱，也是对老玩家的侮辱。
+
+
+*****
+
+####  aruruu  
+##### 249#       发表于 2024-6-10 11:12
+
+为什么两个预告片之间风格会差这么多
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

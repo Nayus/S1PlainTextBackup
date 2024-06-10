@@ -4022,3 +4022,26 @@ Accord收手吧，宇宙里全是桑岛
 你看跟她一起上飆車艦橋的還有諾曼，那其實就是專門飆車用的駕駛座，她要及時給諾曼調整指示怎樣開 ...</blockquote>
 这种补丁太蠢了，你说我里面弄个全周天的驾驶舱我都觉得合理一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ameyoru  
+##### 1321#       发表于 2024-6-10 16:17
+
+昨天看完之后顺便翻了小说下集，一开始还以为基拉这边会加点笔墨补足一下，结果百分百还原海边牵手就完了，就多了阿斯兰卡嘉莉去扫墓<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gary76  
+##### 1322#       发表于 2024-6-10 16:23
+
+<blockquote>引用第1319楼Ameyoru于2024-06-10 16:11发表的  :
+
+gary76 发表于 2024-6-10 12:35你看跟她一起上飆車艦橋的還有諾曼，那其實就是專門......</blockquote>
+@Ameyoru
+
+過癮就夠了，不是嗎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

@@ -10818,3 +10818,19 @@ Written by:
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Laie  
+##### 5450#       发表于 2024-6-10 16:14
+
+草确实受伤了，一代人终将老去，但总有人正年轻
+
+<img src="https://img.saraba1st.com/forum/202406/10/161340pftk5wgkkrxg8tgg.png" referrerpolicy="no-referrer">
+
+<strong>msedge_j44w0NHfNN.png</strong> (123.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 16:13 上传
+

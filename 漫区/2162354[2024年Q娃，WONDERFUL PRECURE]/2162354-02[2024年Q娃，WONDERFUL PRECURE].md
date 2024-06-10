@@ -2299,3 +2299,14 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 就从去年看万代对男q娃态度很差 q娃好好的给女孩家长爆金币就可以了 男孩家长有的是其他ip玩具可以慢慢爆 您们别操心男孩子的心了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 有成田大妈在嘛 眼镜男当然是用来谈恋爱的 但怎么谈现在正片里还没有拍到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1682#       发表于 2024-6-10 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177311&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-6-10 03:09</a>
+
+就从去年看万代对男q娃态度很差 q娃好好的给女孩家长爆金币就可以了 男孩家长有的是其他ip玩具可以慢慢爆 ...</blockquote>
+去年的情况感觉像是东映想要搞个噱头出男Q但是财团B这边不感冒吧……
+

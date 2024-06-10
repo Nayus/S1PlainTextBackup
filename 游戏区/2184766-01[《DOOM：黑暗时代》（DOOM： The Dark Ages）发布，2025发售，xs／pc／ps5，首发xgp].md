@@ -645,3 +645,11 @@ nb，看起来还有弹反和近战相关的内容，好啊！
 
 开高达估计只是短暂的注重演出的环节，不过也好过只让看不让开了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  Emmerich  
+##### 73#       发表于 2024-6-10 12:29
+
+希望对mod社区的支持力度能大一点
+

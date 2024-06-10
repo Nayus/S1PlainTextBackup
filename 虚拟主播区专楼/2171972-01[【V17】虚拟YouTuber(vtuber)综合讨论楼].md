@@ -439,3 +439,26 @@ slm 露露 gbr 真能算一系的吗
 
 syl，slm反正不太像露露gbr，也说不出来她是哪个类型，总之人气很高就是了。另外最近老是脑死复古游戏的石神反而有点露露味了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 277#       发表于 2024-6-10 14:02
+
+别的BG死光了吧，总不能画社西吧
+
+*****
+
+####  aritaatsu222  
+##### 278#       发表于 2024-6-10 14:03
+
+虹出谷從來和人氣無關
+
+<img src="https://img.saraba1st.com/forum/202406/10/140317revf2aywdfzzdrie.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>223b04c03ae1ed2f55f7fe1a8158776d.jpeg</strong> (129.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 14:03 上传
+

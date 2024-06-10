@@ -939,3 +939,13 @@ GPsCB4saIAEDIlR.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/10/131850qnjmm1yok16oetmo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鼠式飞机  
+##### 83#       发表于 2024-6-10 14:01
+
+这是什么楼，味儿太大了
+
+—— 来自 HUAWEI JAD-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-alpha
+

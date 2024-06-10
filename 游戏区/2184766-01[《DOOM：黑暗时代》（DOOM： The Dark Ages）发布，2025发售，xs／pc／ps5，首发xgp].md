@@ -701,3 +701,27 @@ PV里这个应该是有剧情的
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  JOJO42  
+##### 78#       发表于 2024-6-10 13:57
+
+<img src="https://img.saraba1st.com/forum/202406/10/135701t2pbb8axkk3zvak1.jpg" referrerpolicy="no-referrer">
+
+<strong>GPpuSAIbMAAck16.jpg</strong> (617.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 13:57 上传
+
+<img src="https://img.saraba1st.com/forum/202406/10/135701ljlgyjg2q21jjojz.jpg" referrerpolicy="no-referrer">
+
+<strong>GPpuSALaUAAvtEM.jpg</strong> (491.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 13:57 上传
+
+这次重金属和魔幻结合的质感还是很不错的
+

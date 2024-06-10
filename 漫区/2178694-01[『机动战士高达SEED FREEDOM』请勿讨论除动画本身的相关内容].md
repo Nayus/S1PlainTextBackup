@@ -3890,3 +3890,13 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 ----发送自 [asus ASUS_AI2205_E,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  细菌爆炸  
+##### 1309#       发表于 2024-6-10 14:05
+
+感觉这部更适合在弹幕网站一起看，有些破梗实在太抽象了，一时半会想不起来还得靠弹幕提醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

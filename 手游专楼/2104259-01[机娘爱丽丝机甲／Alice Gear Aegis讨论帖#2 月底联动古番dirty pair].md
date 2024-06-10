@@ -118,3 +118,14 @@
 
 这四驱车活动绝了，上午才看到正太被一群大姐姐轮番问候的漫画，下午就跟你说真的有个结局是正太长大后想成为队长那样的人被一群大姐姐围住…………
 
+
+*****
+
+####  regular  
+##### 1081#       发表于 2024-6-11 07:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65125172&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-6-5 21:48</a>
+
+没注意大成功送贝壳只有10个人，浪费好几个，顺便做出来的车好像送谁都没加好感... ...</blockquote>
+彩贝10个人之后也是有的。
+

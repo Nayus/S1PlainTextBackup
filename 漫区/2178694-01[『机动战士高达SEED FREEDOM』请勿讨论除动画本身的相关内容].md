@@ -4327,3 +4327,22 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 看命运干架，真的爽过打胶，真物理分身笑死我了，这官方目前有任何解释么，那可是真物理分身啊卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sephal  
+##### 1349#       发表于 2024-6-10 22:09
+
+这个剧情想想颇有一股00味，罗盘保护和平的方式是武力介入，反派自称是人类的引导者<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 1350#       发表于 2024-6-10 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186869&amp;ptid=2178694" target="_blank">sephal 发表于 2024-6-10 22:09</a>
+这个剧情想想颇有一股00味，罗盘保护和平的方式是武力介入，反派自称是人类的引导者 ...</blockquote>
+不如说种命大天使号就是天人的先辈吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

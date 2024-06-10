@@ -766,3 +766,11 @@ PV里这个应该是有剧情的
 
 完美
 
+
+*****
+
+####  铁火辉夜  
+##### 83#       发表于 2024-6-10 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">把永恒那套战斗逻辑换了吧，高频率切枪取消后摇手都酸了
+

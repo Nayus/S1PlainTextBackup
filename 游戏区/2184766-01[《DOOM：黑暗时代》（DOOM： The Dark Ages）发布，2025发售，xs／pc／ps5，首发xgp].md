@@ -625,3 +625,11 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 id心中永远的Quake梦是吧
 
+
+*****
+
+####  Greirat  
+##### 71#       发表于 2024-6-10 12:13
+
+nb，看起来还有弹反和近战相关的内容，好啊！
+

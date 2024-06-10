@@ -378,3 +378,20 @@ https://weibo.com/1622008051/4917194914267397
 
 女主的头发为啥从红色变成了黄色
 
+
+*****
+
+####  bluebirdy.  
+##### 42#       发表于 2024-6-10 12:15
+
+这播片怎么看着像是做的假实机
+
+*****
+
+####  苦瓜师傅  
+##### 43#       发表于 2024-6-10 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177463&amp;ptid=2028224" target="_blank">ultraseven 发表于 2024-6-10 03:59</a>
+女主建模一股惊奇队长味</blockquote>
+更像west world女主
+

@@ -2812,3 +2812,13 @@ dai自己可以捏出特别好看的女人啊我记得……</blockquote>
 那你可能把装了mod的游戏和原版搞混了，原版只能捏出看起来勉强顺眼的女角色而且我记得是精灵限定 ...</blockquote>
 而且只有那一张模板脸
 
+
+*****
+
+####  PROCAINUM  
+##### 289#       发表于 2024-6-10 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">生软没救了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

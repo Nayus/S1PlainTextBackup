@@ -819,3 +819,16 @@ PV里这个应该是有剧情的
 
 画风感觉介于 2016 和永恒之间，偏永恒，2016 版太对胃口了
 
+
+*****
+
+####  JOJO42  
+##### 89#       发表于 2024-6-10 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65185189&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-10 20:16</a>
+
+之前和朋友开玩笑说永恒这套战斗如果还要做拓展就只能加符卡决斗规则了，下一作果然是做减法
+
+但看演示其实 ...</blockquote>
+还真是，别到时候真能射击飞出的盾牌，来衍生出新派生
+

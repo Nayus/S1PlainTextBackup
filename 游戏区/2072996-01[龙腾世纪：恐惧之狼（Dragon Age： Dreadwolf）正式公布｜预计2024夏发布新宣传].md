@@ -2918,3 +2918,18 @@ DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下D
  ...</blockquote>
 整顿？这次死了就没基软了吧
 
+
+*****
+
+####  mimighost  
+##### 299#       发表于 2024-6-10 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186944&amp;ptid=2072996" target="_blank">晓渔 发表于 2024-6-10 22:14</a>
+
+虽然星空出来后大家都在笑陶德，但同为旧时代B姓RPG巨头公司之一，我觉得生软的堕落得比贝赛还彻底
+
+这款龙 ...</blockquote>
+生软和bethesda比你太瞧得起它了
+
+现在的生软已经和原来的生软几乎毫无关系了，最开始的老害被挤走了，然后挤走老害的冒牌货被新的冒牌货挤走了，然后这个过程还来了几遍
+

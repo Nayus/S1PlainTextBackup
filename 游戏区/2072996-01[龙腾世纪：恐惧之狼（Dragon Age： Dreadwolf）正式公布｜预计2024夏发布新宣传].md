@@ -2880,3 +2880,13 @@ yt评论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 早腾笼换鸟了，说不好听的，连塞的lgbt私货都跟以前不一个味，这波yt上那个评论说的好，not bioware，just ea 
 DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下DA4旧基调全部掀翻，对粉丝来说最好的结局就是临期被砍，还能有点念想，万万分之一的可能性十年二十年后偷鸡重启。但是以ea的ip开发八成要榨干最后一个铜板<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2014720  
+##### 296#       发表于 2024-6-10 22:39
+
+有一说一最早两个预告片虽然毛都没给但逼格还在
+
+新版这个标题字体和预告直接等于枪毙通知
+

@@ -14223,3 +14223,19 @@ mujica必然是一个温暖人心的故事
 说到章鱼小祥，我竟然在南美的中型超市里看到了，大为震撼</blockquote>
 本来就是网红章鱼玩具，mygo火了后才有人把它和大祥老师联系起来
 
+
+*****
+
+####  NODY  
+##### 17463#       发表于 2024-6-10 22:44
+
+永山第二次画mujica了（之前画过一次祥子），wsd能不能多用点这些自发电的官方画师，别老找那些画得难看的了
+
+<img src="https://img.saraba1st.com/forum/202406/10/224409h18tt9vyq8rdvvqv.jpg" referrerpolicy="no-referrer">
+
+<strong>GPtJLeMaEAAL1k6.jpg</strong> (601.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 22:44 上传
+

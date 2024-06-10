@@ -688,3 +688,14 @@ fgo这游戏莫名其妙的重复劳动实在太多了
 
 —— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  lcn  
+##### 46448#       发表于 2024-6-10 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65146196&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2024-6-7 19:49</a>
+MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
+现在情况是一个宝具放一百年，算了，老老实实换设备吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

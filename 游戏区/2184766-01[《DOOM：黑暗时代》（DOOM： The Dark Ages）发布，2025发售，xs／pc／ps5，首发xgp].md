@@ -528,3 +528,17 @@ XboxGamePass + Xbox Series X|S + PC + PlayStation 5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 好耶，6月最好的预告
 
+
+*****
+
+####  hugosol  
+##### 61#       发表于 2024-6-10 08:35
+
+这作手柄应该有体感瞄准了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+中世纪就是套个皮而已吧，还是拿霰弹枪屠杀那些老朋友
+
+当年玩永恒的时候到了王城那关就觉得特别惊喜，前面几章都是赛博朋克脏乱差的美术风格，突然就穿越到了黑魂片场<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+前作真的是满足了我最中二时期的幻想，第一人称从据点俯视地球那种的感觉至今没有游戏可以替代
+

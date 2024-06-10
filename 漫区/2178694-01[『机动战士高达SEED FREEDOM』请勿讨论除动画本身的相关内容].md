@@ -4346,3 +4346,16 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  ナルバレック  
+##### 1351#       发表于 2024-6-10 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186901&amp;ptid=2178694" target="_blank">里村紅葉 发表于 2024-6-10 22:11</a>
+
+不如说种命大天使号就是天人的先辈吧
+
+—— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+W的防火者....
+

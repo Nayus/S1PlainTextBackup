@@ -2890,3 +2890,31 @@ DA系列这些年搞些衍生漫画动画小说都是按ea的路子走，这下D
 
 新版这个标题字体和预告直接等于枪毙通知
 
+
+*****
+
+####  asika  
+##### 297#       发表于 2024-6-10 22:52
+
+<img src="https://img.saraba1st.com/forum/202406/10/225127m2tbbbst47h2w7b4.png" referrerpolicy="no-referrer">
+
+<strong>origin_202406102203459566.png</strong> (557.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 22:51 上传
+
+这赞踩数还能说什么呢 只希望生软这波褒姒后可以内部整顿让正常人来做游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ak123  
+##### 298#       发表于 2024-6-10 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65187444&amp;ptid=2072996" target="_blank">asika 发表于 2024-6-10 22:52</a>
+
+这赞踩数还能说什么呢 只希望生软这波褒姒后可以内部整顿让正常人来做游戏
+
+ ...</blockquote>
+整顿？这次死了就没基软了吧
+

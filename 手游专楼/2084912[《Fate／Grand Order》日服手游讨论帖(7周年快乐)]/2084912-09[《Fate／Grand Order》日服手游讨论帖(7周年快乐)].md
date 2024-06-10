@@ -370,3 +370,18 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  johnkamsar  
+##### 12835#       发表于 2024-6-11 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186428&amp;ptid=2084912" target="_blank">溯夜 发表于 2024-6-10 21:43</a>
+所以说现在就是提前挖矿+存石头抽高宝，日服到现在六加成要几宝才好用呢
+
+论坛助手,iPhone ...</blockquote>
+要么顶配要么和解….没有严格中间线说法，就例如街机联动，最好起码3宝百级，那还是有活动加成情况下。
+如果没有，就例如伊利亚祭那样，上百级满宝烟雾镜，拐拉满打。
+所以建议随缘，和自己和解，反正你拿不出顶配，那不如和自己和解5加成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+日服我大部分都是和解打发，没钱去怼宝具<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

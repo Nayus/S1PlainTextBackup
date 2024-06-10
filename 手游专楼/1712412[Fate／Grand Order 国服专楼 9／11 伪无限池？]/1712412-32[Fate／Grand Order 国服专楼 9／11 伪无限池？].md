@@ -699,3 +699,13 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 现在情况是一个宝具放一百年，算了，老老实实换设备吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 46449#       发表于 2024-6-11 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65173000&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-6-9 21:49</a>
+一口气领的芙芙和金芙芙，有没有办法处理，太离谱了</blockquote>
+金的喂给泛用输出就行，银的现阶段确实存在溢出<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

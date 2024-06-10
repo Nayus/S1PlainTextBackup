@@ -14212,3 +14212,14 @@ mujica必然是一个温暖人心的故事
 
 2024-6-10 16:07 上传
 
+
+*****
+
+####  russianbear  
+##### 17462#       发表于 2024-6-10 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65182739&amp;ptid=2159415" target="_blank">krowbullet 发表于 2024-6-10 16:08</a>
+
+说到章鱼小祥，我竟然在南美的中型超市里看到了，大为震撼</blockquote>
+本来就是网红章鱼玩具，mygo火了后才有人把它和大祥老师联系起来
+

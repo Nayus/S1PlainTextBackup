@@ -4379,3 +4379,23 @@ W的防火者....
 
 其实这片非常适合挖彩蛋对吧，没有UP趁热出一期专题视频么
 
+
+*****
+
+####  二阶堂真琉  
+##### 1354#       发表于 2024-6-10 23:48
+
+事到如今我才发现毫无观星者要素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  wyhman  
+##### 1355#       发表于 2024-6-10 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188026&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-6-10 23:36</a>
+
+重看原来除了8766战术，还有尼高尔战术，以及奥布的老舰长都在台词里，雨露均沾上做到极致了</blockquote>
+百发百不中的奥布船体描边导弹发射法
+

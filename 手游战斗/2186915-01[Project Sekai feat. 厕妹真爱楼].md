@@ -1526,3 +1526,14 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 太变态了
 
+
+*****
+
+####  東雲絵名  
+##### 133#         楼主| 发表于 2024-6-10 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65187566&amp;ptid=2186915" target="_blank">modedd 发表于 2024-6-10 23:00</a>
+
+为啥时不时就有几条韭混进来，难道标题其实不是《Project Sekai feat.（的）厕妹真爱楼》而是《Project Sek ...</blockquote>
+本质厕妹真爱楼
+

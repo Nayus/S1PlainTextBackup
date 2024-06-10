@@ -811,3 +811,11 @@ PV里这个应该是有剧情的
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Midnight.Coup  
+##### 88#       发表于 2024-6-10 20:24
+
+画风感觉介于 2016 和永恒之间，偏永恒，2016 版太对胃口了
+

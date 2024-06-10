@@ -4292,3 +4292,28 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 
 啥时候有正经字幕
 
+
+*****
+
+####  shiko  
+##### 1345#       发表于 2024-6-10 21:19
+
+话说总觉得最近以种自为首的一部分机战片，证明了以杀，姦，爽和南通笑话为主题的港漫化抽象巨制才是机战片的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  anehon  
+##### 1346#       发表于 2024-6-10 21:22
+
+尽管距离看完才过去一天，但看着这难崩的香肠嘴，仍然久久意难平，沟槽的福田，沟槽的平井，还我童年女神！还我童年女神！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  超阳电子炮  
+##### 1347#       发表于 2024-6-10 21:24
+
+刚看完，笑疯了，怎么能从头抽象到尾啊
+

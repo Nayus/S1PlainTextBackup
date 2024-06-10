@@ -4528,3 +4528,14 @@ ms队长是个准将，2个战舰舰长是上校，国防部长是个中效，�
 
 5，这片前面还是机战片，后面已经是魔法大战了，嘴角的笑一直没停过
 
+
+*****
+
+####  cxj649  
+##### 1364#       发表于 2024-6-11 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189281&amp;ptid=2178694" target="_blank">diectt 发表于 2024-6-11 03:24</a>
+
+不行，看的我笑死了，真应该放春节档，一边看一边做了点笔记，大部分顺着剧情时间来的，比较零散</blockquote>
+AC无论场贩谷子还是后续都是官配，FT也认证了
+

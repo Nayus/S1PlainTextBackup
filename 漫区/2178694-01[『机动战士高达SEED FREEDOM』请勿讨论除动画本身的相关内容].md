@@ -3821,3 +3821,46 @@ SorroFrost 发表于 2024-6-9 19:49当时剧场版宣布换声优大家不就觉
 
 满分10分，剧情-15，打斗+10，搞笑+10，音乐+5，没有玛硫乳摇-5，有拉克丝乳摇+5，鸡狼鸟表现+10，阿格尼丝-10
 
+
+*****
+
+####  gary76  
+##### 1303#       发表于 2024-6-10 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179708&amp;ptid=2178694" target="_blank">GN-XⅣ 发表于 2024-6-10 11:43</a>
+这个“蟹盖”有没有具体的资料和介绍？很好奇美玲作为“蟹盖”的驾驶员到底有多大权限，是不是狼不管的时 ...</blockquote>
+這套騎兵系統是奧布的移動戰略指揮部，算是機密裝備，直屬於奧布首長
+所以在地球上登陸千禧年時，都照樣開著海市蜃樓系統
+目前來看就是咖哩一台，阿斯蘭一台，兩者之間應該是有專門的量子通訊通道，能做到地月同步通訊
+
+美玲是屬於前線特工吧，權限應該不小
+
+
+*****
+
+####  cxj649  
+##### 1304#       发表于 2024-6-10 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65179708&amp;ptid=2178694" target="_blank">GN-XⅣ 发表于 2024-6-10 11:43</a>
+
+这个“蟹盖”有没有具体的资料和介绍？很好奇美玲作为“蟹盖”的驾驶员到底有多大权限，是不是狼不管的时 ...</blockquote>
+小说里狼开自由的时候，魔蟹是卡咖喱遥控的
+
+*****
+
+####  whiteweakbear  
+##### 1305#       发表于 2024-6-10 12:53
+
+打赢靠的小鸟剧情杀，黄大和阿斯兰的装备杀。。。。剧情太屎了，人物也太屎了
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  whiteweakbear  
+##### 1306#       发表于 2024-6-10 12:55
+
+反派的 b 格突破了天龙舞的下限
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

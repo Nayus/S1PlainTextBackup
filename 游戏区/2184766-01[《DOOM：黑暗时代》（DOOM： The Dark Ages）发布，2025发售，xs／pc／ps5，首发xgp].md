@@ -653,3 +653,28 @@ nb，看起来还有弹反和近战相关的内容，好啊！
 
 希望对mod社区的支持力度能大一点
 
+
+*****
+
+####  雪菜碧池  
+##### 74#       发表于 2024-6-10 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178829&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-10 10:27</a>
+
+毁灭堡垒里面就有台损坏的
+
+—— 来自 nubia NX712J, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+PV里这个应该是有剧情的
+
+*****
+
+####  雪菜碧池  
+##### 75#       发表于 2024-6-10 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65180151&amp;ptid=2184766" target="_blank">猫出没注意 发表于 2024-6-10 12:20</a>
+
+太期待啦忍不住又想打永恒了。
+
+这代估计是推荐用盾来抗攻击和弹反，而不是永恒的跑带打（经常就变成仓皇逃 ...</blockquote>
+能开高达打最终BOSS就可以了，永恒无论本体打巨像还是打黑魔王都不咋地
+

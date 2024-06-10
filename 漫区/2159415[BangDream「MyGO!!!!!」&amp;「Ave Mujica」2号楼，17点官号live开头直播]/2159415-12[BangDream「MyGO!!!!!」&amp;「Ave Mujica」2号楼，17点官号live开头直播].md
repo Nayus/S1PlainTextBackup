@@ -14157,3 +14157,21 @@ mujica必然是一个温暖人心的故事
 
 没看到楼友的ID，我以为楼友也是全网同ID选手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17458#       发表于 2024-6-10 08:47
+
+仔細想了想我應該是全網不同ID<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+順便海鈴寶寶長這樣，因為太黑了，發光效果也是為了她加上去的，不然根本看不清()
+
+<img src="https://img.saraba1st.com/forum/202406/10/084652lnkxm44cnfrhcf3h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 08:46 上传
+

@@ -2614,3 +2614,54 @@ playersexual的意思就是不管你主角是什么，NPC都会和你恋爱。
 
 谁TM要跟一群三流美漫角色在一起玩crpg，还配着hero的音乐，草
 
+
+*****
+
+####  zhenlune  
+##### 275#       发表于 2024-6-10 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183442&amp;ptid=2072996" target="_blank">zzy516232108 发表于 2024-6-10 17:20</a>
+今天清醒了又看一遍
+
+麻子脸女人 x
+
+天花脸女人 o</blockquote>
+dai的队友一个比一个丑好吧，应该叫写实不能叫美型
+
+—— 来自 realme RMX2072, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  坂本健一  
+##### 276#       发表于 2024-6-10 18:04
+
+<blockquote>roydimus 发表于 2024-6-10 15:01
+官方预告评论区里Is this what Duncan died for看得真的难受，绷不住
+
+傻逼生软，cnm ...</blockquote>
+想当年意气风发的爬山点灯，然后看到摄政王泥给陆大有了，眼睁睁的看着国王和邓肯被潮水一般的暗裔吞没。当年给了我极大的震撼。
+
+现在搞成这个样子 吃屎都无法表达我的感觉，更像是被强行健康了
+
+cao
+
+*****
+
+####  hhgjf  
+##### 277#       发表于 2024-6-10 18:05
+
+凌晨看完震惊到了姥姥家,整个白天神思恍惚无心工作欲哭无泪,现在才稍微缓过神来发帖骂:
+
+Bioware nmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmslnmsl. What the fxck are you doing to yourself?! You used to be king! AAAAAAAAAAAAAArh.
+
+泥马逼的我现在就打开DAO洗眼睛,艹!
+
+<img src="https://img.saraba1st.com/forum/202406/10/180510r3c2ic7czuj6vc7a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-10 18:05 上传
+

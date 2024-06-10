@@ -168,3 +168,44 @@
 
 怎么登不上去了啊，一直显示网络故障<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 751#       发表于 2024-6-10 18:01
+
+ 本帖最后由 Jamaisvu 于 2024-6-10 18:02 编辑 
+
+新人格、EGO前瞻：
+
+<img src="https://img.saraba1st.com/forum/202406/10/175430bik6qhiq1132q851.jpg" referrerpolicy="no-referrer">
+
+<strong>1718013178490.jpg</strong> (394.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-10 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202406/10/175430brzfcxzyfxzecpkv.jpg" referrerpolicy="no-referrer">
+
+<strong>1718013171867.jpg</strong> (345.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-10 17:54 上传
+
+<img src="https://img.saraba1st.com/forum/202406/10/175431zcpv99tepo1zjn39.jpg" referrerpolicy="no-referrer">
+
+<strong>1718013167020.jpg</strong> (348.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-10 17:54 上传
+
+三张新卡全是振动体系的，新机制振幅络连可以在振动属性变化时从替换类型改为复制强度层数，多色并存。
+
+永续ego可以连续四次震颤爆发，目前振动类型有紫红黄白四种，一并满足，振动队大强化。
+

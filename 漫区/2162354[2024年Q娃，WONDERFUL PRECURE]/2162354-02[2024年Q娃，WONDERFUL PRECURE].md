@@ -2389,3 +2389,14 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 修正的话，小雪修正成猫姐那样比较好吧，再往后力度感觉就有点大了
 
+
+*****
+
+####  modedd  
+##### 1690#       发表于 2024-6-10 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65187450&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-6-10 22:52</a>
+
+修正的话，小雪修正成猫姐那样比较好吧，再往后力度感觉就有点大了</blockquote>
+小雪现在的修正路线应该还是往磨平棱角的方向走吧，马卡龙难道不是在往另一个方向锐化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4359,3 +4359,13 @@ gary76 发表于 2024-6-10 16:23@Ameyoru過癮就夠了，不是嗎其实除了�
 —— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 W的防火者....
 
+
+*****
+
+####  白玫瑰之夜  
+##### 1352#       发表于 2024-6-10 23:04
+
+笑疯了，建议提名个年度最佳喜剧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

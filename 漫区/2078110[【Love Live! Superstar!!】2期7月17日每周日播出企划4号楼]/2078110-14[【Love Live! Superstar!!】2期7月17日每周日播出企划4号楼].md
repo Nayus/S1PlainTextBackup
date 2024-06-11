@@ -1506,3 +1506,13 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 冬薇已经腻了，现在可以薇堇吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊卡石  
+##### 20318#       发表于 2024-6-11 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65196190&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-6-11 16:26</a>
+那时候找鲤鱼唱才神奇，唱歌名气比他大的up不少<[/blockquote>
+那个时候鲤鱼是B站（超电）旗下艺人
+

@@ -1715,3 +1715,39 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 有这么个镇厕神石，就算那堆男女不犯病，也不怕沤不出味来。
 
+
+*****
+
+####  喧嚣的风酱  
+##### 153#       发表于 2024-6-11 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65174792&amp;ptid=2186915" target="_blank">kangkangsama 发表于 2024-6-9 23:15</a></blockquote>
+我最爱的4i伪百合落泪<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhwang11  
+##### 154#       发表于 2024-6-11 10:59
+
+什么时候去搬美术测，顺便把图一起搬过来
+
+*****
+
+####  DET  
+##### 155#       发表于 2024-6-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191708&amp;ptid=2186915" target="_blank">lhwang11 发表于 2024-6-11 10:59</a>
+什么时候去搬美术测，顺便把图一起搬过来</blockquote>
+美术测那么萌的测都不放过啊，味没有楼主搬运的那么冲
+
+
+*****
+
+####  喧嚣的风酱  
+##### 156#       发表于 2024-6-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65187646&amp;ptid=2186915" target="_blank">東雲絵名 发表于 2024-6-10 23:05</a>
+
+高柱大胆预言。目前的全女乐队或偶像番主要还是展现角色的萌和互动的好磕，基调都比较明快。就好像魔法少女 ...</blockquote>
+为什么不在现实中组一个集中展现女性议题的全女乐队呢？是因为不想吗？
+

@@ -458,3 +458,21 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 试了下 回np用宝具也能触发  属于很不错的强化了
 
+
+*****
+
+####  保罗赫伯特  
+##### 12844#       发表于 2024-6-11 17:43
+
+50抽啥都无，算了算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 12845#       发表于 2024-6-11 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197495&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-11 17:34</a>
+
+试了下 回np用宝具也能触发  属于很不错的强化了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 我也想要枪阶紫发老太婆
+

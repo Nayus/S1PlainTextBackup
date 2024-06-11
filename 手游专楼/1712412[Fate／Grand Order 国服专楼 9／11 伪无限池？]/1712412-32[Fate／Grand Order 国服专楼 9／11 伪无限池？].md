@@ -766,3 +766,11 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  qixinno2  
+##### 46456#       发表于 2024-6-11 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">补二宝宇蛇神失败 GG
+

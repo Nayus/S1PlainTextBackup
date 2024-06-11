@@ -3078,3 +3078,11 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 我更担心会不会像dai拿霍克垫判官一样，这作拉判官回来是为了垫新主角，毕竟这群人搞出霍克喂蜘蛛这种操作后还敢不要脸地说 都是粉丝要求前作主角出现我们才写的。
 
+
+*****
+
+####  sosgame67  
+##### 315#       发表于 2024-6-11 10:12
+
+垫脚石是大概率的，反正warden、霍克都垫了，你判官也垫才是系列传统嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

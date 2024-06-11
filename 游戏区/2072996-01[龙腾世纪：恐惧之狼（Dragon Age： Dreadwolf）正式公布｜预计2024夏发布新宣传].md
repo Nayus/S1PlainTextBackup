@@ -3278,3 +3278,11 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 — from Sony XQ-AT52, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  aaronluray  
+##### 334#       发表于 2024-6-11 23:18
+
+材质还是好卡通，头身比也没好到哪去啊，还有主角这动作也太僵硬了。三姐配音好糟糕，说难听点，一股男变女的变性人那个太监味。。。以及开头那个纯女路人都比所有女队员好看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，牛啊生软。另外果然队员只是辅助没法切换操作了，但是ai令人着急，不知道还有没有队友ai配置
+

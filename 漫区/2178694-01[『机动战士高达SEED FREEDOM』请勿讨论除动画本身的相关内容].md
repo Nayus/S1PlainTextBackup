@@ -4934,3 +4934,13 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 所以说芙蕾才是最后的loser</blockquote>
 给她量身定做了个桑岛新角色，还要怎样<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  康哥是我  
+##### 1400#       发表于 2024-6-11 17:11
+
+挺好看，不用动脑子打的也漂亮。可能闪哈三部叠起来都难破种自的票房。就闪哈那吃屎的剧本我都怀疑光头是报复代哥写的。哪怕拉出全盛期的光头都拍不好看。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

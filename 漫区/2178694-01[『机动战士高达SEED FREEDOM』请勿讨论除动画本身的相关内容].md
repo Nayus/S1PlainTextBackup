@@ -5235,3 +5235,17 @@ gundammarkⅡ 发表于 2024-6-11 19:02那个画面艾利卡主任说的是阿�
 
 种命是工期问题吧，大野木宽说脚本完成到放送时间很短
 
+
+*****
+
+####  notqiao  
+##### 1428#       发表于 2024-6-11 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65200725&amp;ptid=2178694" target="_blank">we89623 发表于 2024-6-11 22:13</a>
+今天B站所有片源都被干掉的。
+不知道是B站自己准备买了..
+还是被万代版权炮了。 ...</blockquote>
+都是华策举报下架的 看来代便充值了不少啊
+
+比较期待宣发硬刚二次元政审人和白虎贩子
+

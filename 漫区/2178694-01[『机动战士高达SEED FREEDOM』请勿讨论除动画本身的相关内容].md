@@ -4673,3 +4673,25 @@ Gundam Fact File里详细一点，靠阳电子破城炮引发的阳电子干涉�
 
 —— 来自 realme RMX3888, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  AraTurambar  
+##### 1376#       发表于 2024-6-11 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189281&amp;ptid=2178694" target="_blank">diectt 发表于 2024-6-11 03:24</a>
+
+不行，看的我笑死了，真应该放春节档，一边看一边做了点笔记，大部分顺着剧情时间来的，比较零散</blockquote>
+我在中国的二手摊收谷子，新剧场版吧唧，别人25月亮20。
+
+*****
+
+####  macos  
+##### 1377#       发表于 2024-6-11 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189401&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-11 06:17</a>
+阿古斯应该是冲着基拉设计的，基拉是一个颜控，而她是一个美女，另外无论是福田还是两泽都提到了她在演基 ...</blockquote>
+但改了之后更像蕾柯亚了
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

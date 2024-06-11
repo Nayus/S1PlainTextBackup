@@ -3065,3 +3065,16 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 然后好 ...</blockquote>
 我就怕又是拥王者那种“只有和水妖精谈恋爱才能杀灯王”的套路，整个前作是女精审判官才能撕蛋头
 
+
+*****
+
+####  aaronluray  
+##### 314#       发表于 2024-6-11 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65190504&amp;ptid=2072996" target="_blank">假布偶是臭猪 发表于 2024-6-11 09:35</a>
+
+我就怕又是拥王者那种“只有和水妖精谈恋爱才能杀灯王”的套路，整个前作是女精审判官才能撕蛋头 ...</blockquote>
+生软应该不至于这么蠢，撕蛋头应该是主线，搞个女精限定是不想活了吧。但是谈恋爱的女精判官高概率有特殊对话，同人女肯定要高潮<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">。
+
+我更担心会不会像dai拿霍克垫判官一样，这作拉判官回来是为了垫新主角，毕竟这群人搞出霍克喂蜘蛛这种操作后还敢不要脸地说 都是粉丝要求前作主角出现我们才写的。
+

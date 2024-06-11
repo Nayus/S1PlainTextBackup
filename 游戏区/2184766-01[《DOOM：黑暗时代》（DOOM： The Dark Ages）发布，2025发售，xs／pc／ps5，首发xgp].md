@@ -893,3 +893,17 @@ id真有过预告后缩水的前科的，预告不能全信
 
 2024-6-11 19:42 上传
 
+
+*****
+
+####  希望之异热同心  
+##### 96#       发表于 2024-6-11 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65199172&amp;ptid=2184766" target="_blank">PPB3008 发表于 2024-6-11 19:46</a>
+今天再看一遍，才发现这一幕好像是2016的火星场景吧，映像里2016的火星uac基地建筑就长这样子
+
+ ...</blockquote>
+可能是永恒里那个被bfg10000来了一炮透透气的地底城赫贝尔吧，那个城的传送门是通往守卫主域的
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

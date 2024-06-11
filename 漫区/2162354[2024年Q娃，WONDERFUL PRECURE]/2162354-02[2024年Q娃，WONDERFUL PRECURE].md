@@ -2493,3 +2493,14 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 我只想永远保护茉优啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1700#       发表于 2024-6-11 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65190283&amp;ptid=2162354" target="_blank">舞野咲 发表于 2024-6-11 09:17</a>
+
+以前有过追加Q娃战斗力和初始Q娃拉不开差距的情况么？感觉追加设定上都强一档 ...</blockquote>
+拥抱吧，因为追加的露露爱美瑠是二人Q娃而且是因为单纯的队友们没空来打怪所以追加的因此战斗力并不比初始三人强很多<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

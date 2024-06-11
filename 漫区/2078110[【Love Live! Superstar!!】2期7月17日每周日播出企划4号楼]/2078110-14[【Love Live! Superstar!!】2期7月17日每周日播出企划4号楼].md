@@ -1467,3 +1467,14 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 真稀奇啊，这搭配。
 
+
+*****
+
+####  starring  
+##### 20314#       发表于 2024-6-11 16:11
+
+论干饭还得是你鲤鱼姐<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/bb742e9b4e0ba8e0f6586c658f6bff87/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

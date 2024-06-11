@@ -148,3 +148,16 @@
 
 有新的女演员出现了…或许并不是新的？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1084#         楼主| 发表于 2024-6-11 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65194621&amp;ptid=2104259" target="_blank">Picavian 发表于 2024-6-11 14:24</a>
+
+有新的女演员出现了…或许并不是新的？</blockquote>
+推特上根据瞳孔对比已经猜测是卸妆的社长了<img src="https://static.saraba1st.com/image/smiley/face/150.gif" referrerpolicy="no-referrer">
+
+（就是不知道会不会有另一套语音
+

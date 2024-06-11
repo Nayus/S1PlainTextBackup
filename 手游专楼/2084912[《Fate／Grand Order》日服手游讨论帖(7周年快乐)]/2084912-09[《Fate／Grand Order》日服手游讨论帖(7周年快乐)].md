@@ -385,3 +385,20 @@
 所以建议随缘，和自己和解，反正你拿不出顶配，那不如和自己和解5加成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 日服我大部分都是和解打发，没钱去怼宝具<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12836#       发表于 2024-6-11 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186428&amp;ptid=2084912" target="_blank">溯夜 发表于 2024-6-10 21:43</a>
+
+所以说现在就是提前挖矿+存石头抽高宝，日服到现在六加成要几宝才好用呢
+
+论坛助手,iPhone ...</blockquote>
+考慮遊戲送石速度及4/5星出貨機率，提前挖矿+刷11絆以上來存石用途不大，營運給新的略高的刷絆禮裝還要限種族，而且也只是去到絆15就沒了，白紙化又不能刷，壺子功能經常開放但又不給壺子，想刷絆也非常慢
+
+那個保底更是搞笑用，高寶還是乖乖課金吧，那些超級歐洲人神之超級歐洲人(進化)只是傳說來
+
+無課微課還是一早隨緣及對自己和解
+

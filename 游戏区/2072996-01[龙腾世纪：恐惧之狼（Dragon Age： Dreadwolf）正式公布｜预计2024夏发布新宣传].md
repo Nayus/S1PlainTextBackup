@@ -3725,3 +3725,11 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这实机真好意思放出来啊
 
+
+*****
+
+####  ak123  
+##### 382#       发表于 2024-6-12 05:38
+
+实机出来了果然还是那个逼样啊，而且没想到队友全没了，变成了技能树，再加上那个卡通六头身和一滴血不流的战斗，为啥有人觉得预告和游戏风格不一致的？ea和基软就是要做个低龄化轻度游戏。就因为用了游戏里打光最暗的一类场景么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

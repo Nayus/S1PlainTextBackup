@@ -3717,3 +3717,11 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 —— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  saevey  
+##### 381#       发表于 2024-6-12 04:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这实机真好意思放出来啊
+

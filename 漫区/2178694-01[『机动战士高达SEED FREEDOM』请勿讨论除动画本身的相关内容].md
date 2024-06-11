@@ -4944,3 +4944,13 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1401#       发表于 2024-6-11 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65196067&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 16:17</a>
+是的，强自被夺黑骑士上来砍爆，把残骸拖回去逆向升级出了迦楼罗（BOSS机），所以你看迦楼罗配装和机型会 ...</blockquote>
+小说明确了原来的强自被夺去，强自贰式是新造？
+

@@ -3205,3 +3205,13 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 别忘了还有新质量效应呢，好日子还在后头呢
 
+
+*****
+
+####  糖然君  
+##### 328#       发表于 2024-6-11 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65194846&amp;ptid=2072996" target="_blank">西洛克 发表于 2024-6-11 14:42</a>
+据说是tor网游还能赚钱？</blockquote>
+去年确定转给别的组了
+

@@ -728,3 +728,11 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 现在情况是一个宝具放一百年，算了，老老实实换设备吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想等新的mini，今年不出新的就买台mini6吧，反正自己12也可以玩
 
+
+*****
+
+####  艾尔特翔  
+##### 46452#       发表于 2024-6-11 11:48
+
+职阶刻痕升级，我Berserker所有带锁升级要求全部满足，那有推荐的优先点击顺序吗，还是说XJB乱点就可以了。
+

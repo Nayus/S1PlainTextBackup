@@ -717,3 +717,14 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 
 狗粮、金芙芙全喂了，以后的事情以后再说，现在先爽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  flyzzhj  
+##### 46451#       发表于 2024-6-11 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65187301&amp;ptid=1712412" target="_blank">lcn 发表于 2024-6-10 22:42</a>
+
+现在情况是一个宝具放一百年，算了，老老实实换设备吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想等新的mini，今年不出新的就买台mini6吧，反正自己12也可以玩
+

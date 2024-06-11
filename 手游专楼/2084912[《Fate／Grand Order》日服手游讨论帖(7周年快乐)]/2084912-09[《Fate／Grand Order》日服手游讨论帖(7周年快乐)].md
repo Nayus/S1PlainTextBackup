@@ -487,3 +487,24 @@ bba这强化和她徒弟一样幽默</blockquote>
 欧羡慕 我也想要枪阶紫发老太婆</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉我并没有都是云的
 
+
+*****
+
+####  qixinno2  
+##### 12847#       发表于 2024-6-11 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197851&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-11 17:56</a>
+
+都是幻觉我并没有都是云的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要骗我了 我记得你说个自己有的
+
+*****
+
+####  alucardcz  
+##### 12848#       发表于 2024-6-11 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198194&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-11 18:21</a>
+
+不要骗我了 我记得你说个自己有的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉
+

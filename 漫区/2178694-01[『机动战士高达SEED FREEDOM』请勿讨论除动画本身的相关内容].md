@@ -4923,3 +4923,14 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 话说前期有段是自由被竖斩的是什么情况，是半年前自由被夺事件的场景？</blockquote>
 是的，强自被夺黑骑士上来砍爆，把残骸拖回去逆向升级出了迦楼罗（BOSS机），所以你看迦楼罗配装和机型会有很强的强自即视感，而且黄毛看到黄大和竟然又开强自出来打自己笑的合不拢嘴
 
+
+*****
+
+####  kcalb  
+##### 1399#       发表于 2024-6-11 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191266&amp;ptid=2178694" target="_blank">ztgmeteor 发表于 2024-6-11 10:32</a>
+
+所以说芙蕾才是最后的loser</blockquote>
+给她量身定做了个桑岛新角色，还要怎样<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

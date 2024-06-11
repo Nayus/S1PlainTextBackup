@@ -756,3 +756,13 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 优先宝威，其他的随便点，反正都是要点满的，</blockquote>
 了解了，十分感谢
 
+
+*****
+
+####  6030sylar  
+##### 46455#       发表于 2024-6-11 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我点了术阶的了没点狂阶
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

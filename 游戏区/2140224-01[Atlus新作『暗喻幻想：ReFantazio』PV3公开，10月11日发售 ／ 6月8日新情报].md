@@ -780,3 +780,21 @@ UI花哨倒是还好，就是这满屏白色噪点和飘絮一样的东西让眼
 阿特拉斯估计是为了博流量这样打宣传，吸引一波路人去买他的游戏毕竟他配的角色是谁我都不知道，这种角色换 ...</blockquote>
 古谷彻这种大物价格不低吧，不至于用这招来营销
 
+
+*****
+
+####  shinra-01  
+##### 471#       发表于 2024-6-11 12:16
+
+最介意的是有黑屏读盘时间。。。为什么不用最炫的画面来过渡加载画面。。。atlus不可能做不到啊
+
+
+*****
+
+####  yevvet  
+##### 472#       发表于 2024-6-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192829&amp;ptid=2140224" target="_blank">嘘月姫 发表于 2024-6-11 12:11</a>
+古谷彻这种大物价格不低吧，不至于用这招来营销</blockquote>
+声优的价格跟销量比就是几滴水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且阿特拉斯有两作游戏的主角都是出轨男团组合的。
+

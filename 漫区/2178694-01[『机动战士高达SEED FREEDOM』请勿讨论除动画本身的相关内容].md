@@ -4715,3 +4715,14 @@ W的防火者....</blockquote>
 
 POPGO的熟肉还没出吗
 
+
+*****
+
+####  ztgmeteor  
+##### 1380#       发表于 2024-6-11 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188026&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-6-10 23:36</a>
+
+重看原来除了8766战术，还有尼高尔战术，以及奥布的老舰长都在台词里，雨露均沾上做到极致了</blockquote>
+所以说芙蕾才是最后的loser<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

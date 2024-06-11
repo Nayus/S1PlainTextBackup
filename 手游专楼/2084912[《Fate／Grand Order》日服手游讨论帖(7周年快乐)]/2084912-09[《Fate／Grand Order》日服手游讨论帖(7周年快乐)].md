@@ -476,3 +476,14 @@ bba这强化和她徒弟一样幽默</blockquote>
 试了下 回np用宝具也能触发  属于很不错的强化了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 我也想要枪阶紫发老太婆
 
+
+*****
+
+####  alucardcz  
+##### 12846#       发表于 2024-6-11 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197671&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-11 17:45</a>
+
+欧羡慕 我也想要枪阶紫发老太婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉我并没有都是云的
+

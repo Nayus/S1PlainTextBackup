@@ -5288,3 +5288,16 @@ gundammarkⅡ 发表于 2024-6-11 19:02那个画面艾利卡主任说的是阿�
 前面的部分在现在的剧场版里有点唐突而且相当快进， ...</blockquote>
 按福田最近说的，种命原来作为剧场版，鸟黑化不变
 
+
+*****
+
+####  kos_mos  
+##### 1432#       发表于 2024-6-12 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65201755&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-11 23:49</a>
+
+刚看完，第一感想是这个才是Destiny后面原来的剧本吧，
+
+前面的部分在现在的剧场版里有点唐突而且相当快进， ...</blockquote>
+脉冲背包不带电源的所以要另外充电。
+

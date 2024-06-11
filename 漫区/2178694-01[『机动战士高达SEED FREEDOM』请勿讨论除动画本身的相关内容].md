@@ -4802,3 +4802,28 @@ POPGO的熟肉还没出吗
 不太能，虽然看没看tv都会觉得电影是什么抽象玩意，但是很多笑点是一定需要看完tv、甚至是经历过论坛搏斗才能get到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 可以先溜溜剧场版战斗爽一爽，然后再回去补tv，最后再看剧场版
 
+
+*****
+
+####  罐子  
+##### 1388#       发表于 2024-6-11 13:25
+
+这剧情这对白什么傻逼玩意<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+看看战斗场面经费燃烧可还行<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  seedees3  
+##### 1389#       发表于 2024-6-11 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189590&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-11 07:49</a>
+
+已确认会有一个OVA，时间线剧场版半年前。
+
+至于真正意义的后续，现在谁也说不清万代到底怎么想的，只能 ...</blockquote>
+挺好的，我觉得SEED值得续下去，万代也别搞什么内涵深度了，像SEED这样狗血剧八点档一直拍下去起码欢乐不断看的人绝对不少
+

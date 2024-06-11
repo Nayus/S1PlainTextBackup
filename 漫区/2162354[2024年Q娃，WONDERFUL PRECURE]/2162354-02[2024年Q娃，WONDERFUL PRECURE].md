@@ -2563,3 +2563,26 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 猫猫，失职
 
+
+*****
+
+####  HANDAIYV  
+##### 1706#       发表于 2024-6-11 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191520&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-11 10:49</a>
+
+不能说的力量要对我做什么啊
+
+我只想永远保护茉优啊</blockquote>
+你的前辈美鬼在当魔法少女时收到过关于这的建议，可以考虑把真由的手脚都弄残废，让真由的身体变成离开你就什么都做不到，这样一来真由就属于你了，可以永远保护她了（
+
+*****
+
+####  lydia5989  
+##### 1707#       发表于 2024-6-11 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193959&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-6-11 13:30</a>
+
+你的前辈美鬼在当魔法少女时收到过关于这的建议，可以考虑把真由的手脚都弄残废，让真由的身体变成离开你 ...</blockquote>
+可以先把对面一人一狗的打断，让真由失去朋友，刚刚升起的希望断绝，这样就彻底离不开猫猫了
+

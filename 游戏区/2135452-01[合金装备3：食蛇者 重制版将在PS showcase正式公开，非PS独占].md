@@ -1974,3 +1974,19 @@ the boss这脸，实在绷不住，咋捏成这样了<img src="https://static.sa
 
 如果下半年就能玩到的话发布会为何不给日期，所以存疑<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有钱多买小人  
+##### 195#       发表于 2024-6-11 13:29
+
+ 本帖最后由 有钱多买小人 于 2024-6-11 13:31 编辑 
+
+KONAMI找大卫做了个介绍，提到视角可以选择ps2原版或者新的tps视角。
+受伤系统也重做了，破衣淤青枪伤会实时反映，并且伤疤会一直保留。
+关于配音则说是尽可能还原。美版Zero配音说有新录的。
+<img src="https://p.sda1.dev/18/f2cb9e62f93a6b865673ab7a613affa3/image.jpg" referrerpolicy="no-referrer">
+
+还公布了美洲限定的限定版
+<img src="https://p.sda1.dev/18/6ef37c2c252e2cb8ed703bd740b22d73/image.jpg" referrerpolicy="no-referrer">
+

@@ -798,3 +798,22 @@ UI花哨倒是还好，就是这满屏白色噪点和飘絮一样的东西让眼
 古谷彻这种大物价格不低吧，不至于用这招来营销</blockquote>
 声优的价格跟销量比就是几滴水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且阿特拉斯有两作游戏的主角都是出轨男团组合的。
 
+
+*****
+
+####  酷乐  
+##### 473#       发表于 2024-6-11 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192214&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-6-11 11:29</a>
+
+有毛病 柯南都不一定换就他积极</blockquote>
+柯南早就有动作了
+
+<img src="https://img.saraba1st.com/forum/202406/11/132957i33y6au7000y0sih.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6871.jpeg</strong> (146.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 13:29 上传
+

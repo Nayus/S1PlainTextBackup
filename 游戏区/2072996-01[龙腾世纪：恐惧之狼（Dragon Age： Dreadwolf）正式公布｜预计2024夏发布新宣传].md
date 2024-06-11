@@ -3231,3 +3231,33 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 透着一股子Bioware大限将至就想骗最后一笔然后事先财务自由解散跑路的诈骗味儿。
 
+
+*****
+
+####  xjtxp  
+##### 331#       发表于 2024-6-11 19:08
+
+ 本帖最后由 xjtxp 于 2024-6-11 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192753&amp;ptid=2072996" target="_blank">initium 发表于 2024-6-11 12:05</a>
+
+说起来生软已经混了十年没有正经的作品了，这十年里每一坨都是屎，ea居然能忍它们这么久。ea有体育游戏可以 ...</blockquote>
+去年就是这个月生软把TOR转手时，TOR的注册用户大概是1200万，当月日均在线玩家22万+
+
+如果没有TOR十多年来带来的十几亿美元收入——这个是我大概推算的，2019年11月初EA的首席财务官兼首席运营官Blake jorgensen，乐呵呵的宣布TOR已经为EA带来近十亿美元收入时，TOR的注册人数只有大概570万——EA早把生软拆了：
+
+<img src="https://img.saraba1st.com/forum/202406/11/190728dolcgkcgplgnoyg7.jpg" referrerpolicy="no-referrer">
+
+<strong>31.jpg</strong> (98.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 19:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/11/190728via313zavrdxjogv.jpg" referrerpolicy="no-referrer">
+
+<strong>32.jpg</strong> (36.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 19:07 上传
+

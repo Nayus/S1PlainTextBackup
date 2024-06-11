@@ -5055,3 +5055,32 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 这个地方</blockquote>
 这个明显是脉冲、命运和SF啊，而且那个SF能从裙甲看出来是SF改
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1411#       发表于 2024-6-11 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198682&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 19:03</a>
+她说阿斯哈交给她的，肯定偷造的。奥布一天不偷图纸浑身难受。</blockquote>
+我理解是把旧的翻新，因为后面艾丽卡还说了驱动器和武器还是原来的一样，但控制系统更新到最新
+
+*****
+
+####  -lilipeipei-  
+##### 1412#       发表于 2024-6-11 19:09
+
+看了讨论自由被抢事件再倒回去拉片才注意到这个镜头：
+
+<img src="https://img.saraba1st.com/forum/202406/11/190719tjmkqmsvmlimq6vv.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2024-06-11 210613.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 19:07 上传
+
+之前估计过于不解脑子自动过滤了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+关于这个事件正片内容也太少了，不出个OVA解释下说不过去了
+

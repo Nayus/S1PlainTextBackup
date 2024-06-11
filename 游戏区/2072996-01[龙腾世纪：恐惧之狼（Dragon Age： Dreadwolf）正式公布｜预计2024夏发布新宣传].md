@@ -3733,3 +3733,12 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 实机出来了果然还是那个逼样啊，而且没想到队友全没了，变成了技能树，再加上那个卡通六头身和一滴血不流的战斗，为啥有人觉得预告和游戏风格不一致的？ea和基软就是要做个低龄化轻度游戏。就因为用了游戏里打光最暗的一类场景么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  isa2456  
+##### 383#       发表于 2024-6-12 07:09
+
+草，我感觉这个演示还行，是我对生软期待太低了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过只能控一个加主动技能还变少，为了吸引新人就闭着眼睛做简化呗，me起码还能打combo打的爽啊，这战斗我看着真的昏昏欲睡.
+瓦叔上去嘴炮我也是没绷住，前面你才说蛋头是精灵神不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不过至少没在这领便当，就看打蛋头的这个流程卖多少fan service了，当年上次keep的存档捏的还挺好看的其实，我可不想判官像霍克那样可以随随便便就死在影界（
+

@@ -3684,3 +3684,13 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 由手机上传
 2024-6-12 03:07 上传
 
+
+*****
+
+####  mimighost  
+##### 378#       发表于 2024-6-12 03:24
+
+可能是之前那个预告把我的期待降得太低
+
+看了gameplay我咋觉得还行，至少solas是正常头身比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5316,3 +5316,13 @@ gundammarkⅡ 发表于 2024-6-11 19:02那个画面艾利卡主任说的是阿�
 
 其实这次倒是实锤了种命核能机一样会没电，当年命运大概解释成高强度作战+光翼全开+吃了SF几发磁轨造成没电吧，这次没到那个强度+鸟成长了，所以还有余力反向充电
 
+
+*****
+
+####  妒客  
+##### 1434#       发表于 2024-6-12 01:11
+
+Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">管他什么物理分身啥理论，够热闹好看就行了~
+
+话说语速超快那位技术开发人员是不是福山润配的，我听他说话总感觉眼前浮现出三角仔<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

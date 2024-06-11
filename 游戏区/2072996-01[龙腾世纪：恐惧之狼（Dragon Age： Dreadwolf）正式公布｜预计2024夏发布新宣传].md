@@ -3454,3 +3454,11 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 
 实机也就是比PV好一点点而已，完全没有购买欲望
 
+
+*****
+
+####  HATENA  
+##### 354#       发表于 2024-6-12 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了演示，毫无疑问的垃圾，无法想象任何一个从dao玩过来的老粉会对这坨东西产生还行及以上的评价
+

@@ -3546,3 +3546,18 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 
 战斗实在是太光污染了拉近的时候跟闪屏一样<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这都他么啥啊，就一动作版火炬之光，还霍格沃茨，别糟践人霍格沃茨了。
 
+
+*****
+
+####  逸一死吾亦死  
+##### 364#       发表于 2024-6-12 01:40
+
+还真是龙与地下城黑暗联盟啊笑了
+
+*****
+
+####  FLZB  
+##### 365#       发表于 2024-6-12 01:44
+
+梦回2010<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

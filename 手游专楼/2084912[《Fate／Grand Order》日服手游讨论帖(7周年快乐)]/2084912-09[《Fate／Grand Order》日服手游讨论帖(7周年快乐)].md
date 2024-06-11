@@ -418,3 +418,43 @@
 
 bba这强化和她徒弟一样幽默
 
+
+*****
+
+####  都谷捻柏  
+##### 12839#       发表于 2024-6-11 17:31
+
+她就20自充，本来绿卡整体都处于缺np状态……
+
+*****
+
+####  alucardcz  
+##### 12840#       发表于 2024-6-11 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65196986&amp;ptid=2084912" target="_blank">高木なつめ 发表于 2024-6-11 17:11</a>
+
+bba这强化和她徒弟一样幽默</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么幽默了 就算没有新效果  1t变3t也质变了 
+
+
+*****
+
+####  alucardcz  
+##### 12841#       发表于 2024-6-11 17:33
+
+使了下 回np用宝具也能触发  属于很不错的强化了
+
+*****
+
+####  cenhr  
+##### 12842#       发表于 2024-6-11 17:33
+
+当作是圣晶石的赠送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12843#       发表于 2024-6-11 17:34
+
+试了下 回np用宝具也能触发  属于很不错的强化了
+

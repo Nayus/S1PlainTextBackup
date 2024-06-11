@@ -4726,3 +4726,27 @@ POPGO的熟肉还没出吗
 重看原来除了8766战术，还有尼高尔战术，以及奥布的老舰长都在台词里，雨露均沾上做到极致了</blockquote>
 所以说芙蕾才是最后的loser<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kyonkoism  
+##### 1381#       发表于 2024-6-11 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189443&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 06:53</a>
+
+我猜分身仍然是假的，然后命运动作很快让人以为分身也在攻击。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行，说不通的，因为给了个镜头，三个黑骑士是一起炸的，一个前格一个飞刀一个掌中炮
+
+打完了分身还合一，根本没法解释啊！
+
+*****
+
+####  节艾司  
+##### 1382#       发表于 2024-6-11 10:42
+
+<blockquote>kyonkoism 发表于 2024-6-11 10:41
+不行，说不通的，因为给了个镜头，三个黑骑士是一起炸的，一个前格一个飞刀一个掌中炮
+
+打完了分身还合一 ...</blockquote>
+精神力！精神幻象胶粒！
+

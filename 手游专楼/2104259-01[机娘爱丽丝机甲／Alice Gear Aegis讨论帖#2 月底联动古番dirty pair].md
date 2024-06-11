@@ -129,3 +129,14 @@
 没注意大成功送贝壳只有10个人，浪费好几个，顺便做出来的车好像送谁都没加好感... ...</blockquote>
 彩贝10个人之后也是有的。
 
+
+*****
+
+####  冰风血羽  
+##### 1082#       发表于 2024-6-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189496&amp;ptid=2104259" target="_blank">regular 发表于 2024-6-11 07:18</a>
+
+彩贝10个人之后也是有的。</blockquote>
+原来有的吗，我还以为10/10就没了所以没有换人做<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

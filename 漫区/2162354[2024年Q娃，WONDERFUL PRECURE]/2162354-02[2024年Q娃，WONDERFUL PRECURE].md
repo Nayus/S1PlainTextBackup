@@ -2631,3 +2631,14 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 可以先把对面一人一狗的打断，让真由失去朋友，刚刚升起的希望断绝，这样就彻底离不开猫猫了 ...</blockquote>
 是该让这两个把茉优拉进火坑的人付出代价了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 1712#       发表于 2024-6-11 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65194529&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-11 14:17</a>
+
+是该让这两个把茉优拉进火坑的人付出代价了</blockquote>
+对的，没错的，正确的，先给这俩一人一狗把真由拉进火坑的一人俩爪子打断腿，再给上个学校霸凌的几爪子连手也打断
+

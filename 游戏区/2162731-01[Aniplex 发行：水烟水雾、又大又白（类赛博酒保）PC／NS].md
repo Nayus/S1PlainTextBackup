@@ -626,3 +626,11 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 男主第一眼看不出来是个男人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sgssk  
+##### 61#       发表于 2024-6-11 17:20
+
+主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了
+

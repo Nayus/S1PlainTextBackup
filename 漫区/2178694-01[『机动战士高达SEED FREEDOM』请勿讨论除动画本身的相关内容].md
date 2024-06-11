@@ -5206,3 +5206,24 @@ gundammarkⅡ 发表于 2024-6-11 19:02那个画面艾利卡主任说的是阿�
 不知道是B站自己准备买了..
 还是被万代版权炮了。
 
+
+*****
+
+####  CQTK  
+##### 1425#       发表于 2024-6-11 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65200597&amp;ptid=2178694" target="_blank">sfv 发表于 2024-6-11 22:01</a>
+剧场版这次赚这么多钱了，OVA不会再搞这么垃圾的作画了吧</blockquote>
+赚了大钱后种命的作画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤黑的假面  
+##### 1426#       发表于 2024-6-11 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65200864&amp;ptid=2178694" target="_blank">CQTK 发表于 2024-6-11 22:26</a>
+
+赚了大钱后种命的作画</blockquote>
+绷，种系列终究是领养的是吧
+

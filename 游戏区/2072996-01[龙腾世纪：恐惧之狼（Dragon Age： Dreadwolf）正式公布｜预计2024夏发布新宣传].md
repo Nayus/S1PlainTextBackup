@@ -3126,3 +3126,22 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  洛亚替身  
+##### 320#       发表于 2024-6-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192753&amp;ptid=2072996" target="_blank">initium 发表于 2024-6-11 12:05</a>
+
+说起来生软已经混了十年没有正经的作品了，这十年里每一坨都是屎，ea居然能忍它们这么久。ea有体育游戏可以 ...</blockquote>
+产品线多样性，不能光弄枪车球啊（但生软这水平真不如拉新组）
+
+
+*****
+
+####  Pipcat  
+##### 321#       发表于 2024-6-11 12:11
+
+明天看看演示。这作再不行就是神仙都救不了了。
+

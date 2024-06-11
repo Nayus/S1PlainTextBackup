@@ -1865,3 +1865,15 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  依然荏苒  
+##### 169#       发表于 2024-6-11 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191990&amp;ptid=2186915" target="_blank">純田まな 发表于 2024-6-11 11:15</a>
+高柱大胆预言。目前的全女乐队或偶像番主要还是展现角色的萌和互动的好磕，基调都比较明快。就好像魔法少女 ...</blockquote>
+nana？
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

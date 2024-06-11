@@ -762,3 +762,21 @@ ATLUS Exclusive『メタファー：リファンタジオ』ストーリー編�
 
 阿特拉斯估计是为了博流量这样打宣传，吸引一波路人去买他的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟他配的角色是谁我都不知道，这种角色换不换都一样
 
+
+*****
+
+####  Pipcat  
+##### 469#       发表于 2024-6-11 12:07
+
+UI花哨倒是还好，就是这满屏白色噪点和飘絮一样的东西让眼睛有点受不了，也显得画面很脏，不知道能不能关掉。
+
+
+*****
+
+####  嘘月姫  
+##### 470#       发表于 2024-6-11 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192687&amp;ptid=2140224" target="_blank">yevvet 发表于 2024-6-11 12:01</a>
+阿特拉斯估计是为了博流量这样打宣传，吸引一波路人去买他的游戏毕竟他配的角色是谁我都不知道，这种角色换 ...</blockquote>
+古谷彻这种大物价格不低吧，不至于用这招来营销
+

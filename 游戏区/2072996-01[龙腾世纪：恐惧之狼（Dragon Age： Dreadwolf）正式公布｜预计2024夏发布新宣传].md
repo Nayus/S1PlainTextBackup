@@ -3596,3 +3596,29 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 我等了很久有人提贪婪之秋，贪婪之秋除了画面垃圾和动作僵硬之外......时停，战术暂停耍花活，打枪，战斗 ...</blockquote>
 哦说起来,贪婪之秋这游戏,1代模仿龙腾世纪3,2代变成龙腾世纪1了
 
+
+*****
+
+####  Flechette  
+##### 370#       发表于 2024-6-12 01:57
+
+<img src="https://img.saraba1st.com/forum/202406/12/015611j22uyyyoxu1f2r92.png" referrerpolicy="no-referrer">
+
+<strong>4E70A5D16D3C44A910F47D759A5296CC.png</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 01:56 上传
+
+别的不说，它这个头上顶个环的蛋头雕像是真的把我整乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 371#       发表于 2024-6-12 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202391&amp;ptid=2072996" target="_blank">蓝雉 发表于 2024-6-12 01:55</a>
+
+哦说起来,贪婪之秋这游戏,1代模仿龙腾世纪3,2代变成龙腾世纪1了</blockquote>
+md我还以为他们会在一代上请几个动捕优化一下战斗，没想到直接改成半即时了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

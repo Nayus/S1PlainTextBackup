@@ -3694,3 +3694,11 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 看了gameplay我咋觉得还行，至少solas是正常头身比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真实之影  
+##### 379#       发表于 2024-6-12 03:44
+
+这整一个中世纪奇幻版的自杀小队嘛
+

@@ -4642,3 +4642,34 @@ Gundam Fact File里详细一点，靠阳电子破城炮引发的阳电子干涉�
 至于真正意义的后续，现在谁也说不清万代到底怎么想的，只能 ...</blockquote>
 多来点，孩子爱看，爆米花属性拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hac0101  
+##### 1374#       发表于 2024-6-11 08:30
+
+ 本帖最后由 hac0101 于 2024-6-11 08:32 编辑 
+
+不管怎么说，阿斯兰他像一个战神。
+
+阿斯兰救基拉那场戏，当阿斯兰的机体摆出东方不败流姿势的时候，已经停不下笑声了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/11/083244vw2omww0r2o1mlmm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240611083225.png</strong> (228.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-11 08:32 上传
+
+*****
+
+####  qwjhb  
+##### 1375#       发表于 2024-6-11 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65182825&amp;ptid=2178694" target="_blank">Ameyoru 发表于 2024-6-10 16:17</a>
+昨天看完之后顺便翻了小说下集，一开始还以为基拉这边会加点笔墨补足一下，结果百分百还原海边牵手就完了， ...</blockquote>
+应该大笔墨描写下沙滩上的手掌印怎么来的
+
+—— 来自 realme RMX3888, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

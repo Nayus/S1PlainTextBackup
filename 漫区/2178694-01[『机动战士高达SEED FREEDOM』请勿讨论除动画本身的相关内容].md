@@ -4977,3 +4977,35 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  浅川雏羽  
+##### 1404#       发表于 2024-6-11 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198463&amp;ptid=2178694" target="_blank">macos 发表于 2024-6-11 18:43</a>
+
+那无证为啥改了，小飞机都变了，还套壳这么久
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+阿斯兰当特务去了，平常不能太高调
+
+*****
+
+####  gundammarkⅡ  
+##### 1405#       发表于 2024-6-11 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198422&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 18:39</a>
+没记错的话二式是新造的，其实和强袭嫣红一样只要有足够的备用零件自然可以再拼一台出来，之后再改修成二式 ...</blockquote>
+道理是这么个道理
+有明确新造的出处吗？但现在见到的设定都写是改修
+云的小说版说是强自被黑骑士打爆后，黑骑士回收时趁机盗的数据，大破的强自是还回去的
+
+
+*****
+
+####  节艾司  
+##### 1406#       发表于 2024-6-11 18:55
+
+电影里不是打开个仓库里面放着自正命，然后还解说这是我们奥布造的吗
+

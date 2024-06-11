@@ -3462,3 +3462,41 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了演示，毫无疑问的垃圾，无法想象任何一个从dao玩过来的老粉会对这坨东西产生还行及以上的评价
 
+
+*****
+
+####  桥洞底下盖小被  
+##### 355#       发表于 2024-6-12 01:18
+
+实机演示我也没看出来哪里还行了，不看标题我以为是哪里蹦出来的二流arpg
+
+
+*****
+
+####  siebten  
+##### 356#       发表于 2024-6-12 01:20
+
+战斗像是个劣质版猪猪侠 甚至还有蜘蛛感应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 搞不懂为啥要arpg化 除了暂停放个技能没有点像crpg的样子 还就那一个技能 评价是不如贪婪之秋
+
+*****
+
+####  洛亚替身  
+##### 357#       发表于 2024-6-12 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202298&amp;ptid=2072996" target="_blank">siebten 发表于 2024-6-12 01:20</a>
+
+战斗像是个劣质版猪猪侠 甚至还有蜘蛛感应 搞不懂为啥要arpg化 除了暂停放个技能没有点像crpg的样子 还就那 ...</blockquote>
+我等了很久有人提贪婪之秋，贪婪之秋除了画面垃圾和动作僵硬之外......时停耍花活真的太酷了，龙腾这实机就是一个不入流的arpg猴子跳来跳去，丢个没什么特效的技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 358#       发表于 2024-6-12 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65201413&amp;ptid=2072996" target="_blank">roydimus 发表于 2024-6-11 23:13</a>
+
+这实机好像ff16啊…
+
+看完又感觉就是照着新战神抄的</blockquote>
+有一说一，辱ff16了
+

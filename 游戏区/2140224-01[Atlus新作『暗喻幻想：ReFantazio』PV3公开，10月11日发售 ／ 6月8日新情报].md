@@ -685,3 +685,11 @@ A9有说会发录制视频（简中版）
 今後ともメタファーをよろしくお願いいたします。
 <img src="https://p.sda1.dev/18/4bc974bbdccd146cce39d758a69eaada/20240611_111116.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  walfeds  
+##### 461#       发表于 2024-6-11 11:24
+
+草，古谷彻果然还是换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

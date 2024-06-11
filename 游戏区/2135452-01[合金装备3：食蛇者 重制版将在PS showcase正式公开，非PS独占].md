@@ -1962,3 +1962,15 @@ the boss这脸，实在绷不住，咋捏成这样了<img src="https://static.sa
 严格来讲的话PS3高清版（大师合集版）和PS2原版还是有些区别 主要是附带模式这块 ...</blockquote>
 对比重制版随口说的了，确实
 
+
+*****
+
+####  社友者  
+##### 194#       发表于 2024-6-11 13:23
+
+<img src="https://p.sda1.dev/18/d1551599e60d4886bd5bfec2710aab44/msedge_GSVak2dEE9.png" referrerpolicy="no-referrer">
+
+泄露称今年11月17日发售，刚好是原版发售20周年，扣纳米官方已经开启预售+宣发环节了
+
+如果下半年就能玩到的话发布会为何不给日期，所以存疑<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

@@ -2548,3 +2548,18 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  lydia5989  
+##### 1705#       发表于 2024-6-11 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191520&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-11 10:49</a>
+
+不能说的力量要对我做什么啊
+
+我只想永远保护茉优啊</blockquote>
+但猫猫连着两集吃瘪了
+
+猫猫，失职
+

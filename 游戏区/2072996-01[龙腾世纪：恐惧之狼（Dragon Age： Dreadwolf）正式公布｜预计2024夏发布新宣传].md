@@ -3561,3 +3561,38 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 
 梦回2010<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  逸一死吾亦死  
+##### 366#       发表于 2024-6-12 01:47
+
+【【IGN】4分，《龙与地下城 黑暗联盟》评测：枯燥且乏味】 [https://www.bilibili.com/video/B ... 305bad49e84a9fa13bd](https://www.bilibili.com/video/BV1hy4y1M7Ej/?share_source=copy_web&amp;vd_source=6846220b06ccb305bad49e84a9fa13bd)
+
+像啊，很像啊
+
+*****
+
+####  洛亚替身  
+##### 367#       发表于 2024-6-12 01:48
+
+真尼玛就三个技能？法师跳楼吧，至少审判能让你放技能放个爽（虽然我玩的是弓贼）
+
+
+*****
+
+####  蓝雉  
+##### 368#       发表于 2024-6-12 01:51
+
+不伦不类的射箭手动瞄准,不伦不类的放技能时停,你要做ARPG就好好做,现在搞得战斗节奏稀烂,观赏性远远不如霍格沃茨,生软直接进有毒有害垃圾堆放处吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝雉  
+##### 369#       发表于 2024-6-12 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202311&amp;ptid=2072996" target="_blank">洛亚替身 发表于 2024-6-12 01:24</a>
+
+我等了很久有人提贪婪之秋，贪婪之秋除了画面垃圾和动作僵硬之外......时停，战术暂停耍花活，打枪，战斗 ...</blockquote>
+哦说起来,贪婪之秋这游戏,1代模仿龙腾世纪3,2代变成龙腾世纪1了
+

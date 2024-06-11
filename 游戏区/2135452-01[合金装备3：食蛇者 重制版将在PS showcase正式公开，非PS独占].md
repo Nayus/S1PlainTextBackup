@@ -1998,3 +1998,15 @@ KONAMI找大卫做了个介绍，提到视角可以选择ps2原版或者新的tp
 
 原作还有个痛点是换迷彩，这个不优化一下也不行，不知道会怎么处理
 
+
+*****
+
+####  医生狼多  
+##### 197#       发表于 2024-6-11 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193887&amp;ptid=2135452" target="_blank">社友者 发表于 2024-6-11 13:23</a>
+泄露称今年11月17日发售，刚好是原版发售20周年，扣纳米官方已经开启预售+宣发环节了
+
+如果下半年就能玩到 ...</blockquote>
+1117是周日，基本不可能
+

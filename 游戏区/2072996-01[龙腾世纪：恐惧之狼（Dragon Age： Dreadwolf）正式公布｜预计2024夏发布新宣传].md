@@ -3052,3 +3052,16 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 然后好像是确定判官回归，审判让我最恶心的 “因为女精灵可以和光头谈恋爱有额外信息所以判官官设是女精”的这群sb同人女又又又跳起来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，不是所有玩家都觉得你这个光头是个宝的好吗
 
+
+*****
+
+####  假布偶是臭猪  
+##### 313#       发表于 2024-6-11 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65190254&amp;ptid=2072996" target="_blank">aaronluray 发表于 2024-6-11 09:15</a>
+
+看到了那几张队友新图，特别是那张7个队友都在的，不还是一群丑八怪，你说丑就嘴你就是想要网红脸。
+
+然后好 ...</blockquote>
+我就怕又是拥王者那种“只有和水妖精谈恋爱才能杀灯王”的套路，整个前作是女精审判官才能撕蛋头
+

@@ -1631,3 +1631,37 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  iriyano  
+##### 144#       发表于 2024-6-11 09:28
+
+惊了pjsk刚出的时候我还真tm以为是初音音游还玩了一段时间
+
+结果不明生物角色越出越多就没玩的真的明智好吧
+
+*****
+
+####  SuNR1sE364  
+##### 145#       发表于 2024-6-11 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65190009&amp;ptid=2186915" target="_blank">依然荏苒 发表于 2024-6-11 08:54</a>
+好奇这游戏怎么和厕妹文化挂钩，
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+首先是初音未来，然后这游戏某些人物的人设和剧情很合厕妹口味，再然后就是pjsk的受众可能比你想象的要低龄很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kangkangsama  
+##### 146#       发表于 2024-6-11 09:30
+
+<blockquote>依然荏苒 发表于 2024-6-11 08:54
+好奇这游戏怎么和厕妹文化挂钩，
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+每个游戏都有
+
+但是烤这么严重主要还是低龄+es人入侵
+

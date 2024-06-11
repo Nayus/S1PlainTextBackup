@@ -4843,3 +4843,13 @@ POPGO的熟肉还没出吗
 
 比闪哈好看多了，可惜seed热度起来后又要被最闪哈三部曲里最沉默的第二部泼冷水了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1392#       发表于 2024-6-11 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193025&amp;ptid=2178694" target="_blank">kuarwbwe 发表于 2024-6-11 12:23</a>
+没看过种和种命能直接看这个吗？</blockquote>
+不想补TV的话，可以补总集篇，种三部+种命四部，去年也出了HD版的BD
+

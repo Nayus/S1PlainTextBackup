@@ -5186,3 +5186,11 @@ gundammarkⅡ 发表于 2024-6-11 19:02那个画面艾利卡主任说的是阿�
 
 这是高达吗 我以为在看NTR里番<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sfv  
+##### 1423#       发表于 2024-6-11 22:01
+
+剧场版这次赚这么多钱了，OVA不会再搞这么垃圾的作画了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

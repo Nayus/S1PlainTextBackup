@@ -3323,3 +3323,28 @@ https://www.ign.com/articles/dragon-age-the-veilguard-the-first-preview
 
 IGN preview
 
+
+*****
+
+####  zzy516232108  
+##### 339#       发表于 2024-6-11 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉好像这个20分钟的片还可以？
+
+或者是我的期待已经跌入谷底了，什么东西在我眼里都是“还可以”
+
+*****
+
+####  猫将军  
+##### 340#       发表于 2024-6-12 00:00
+
+pv肯定是哪个实习搞的吧，实机出乎意料的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ultraseven  
+##### 341#       发表于 2024-6-12 00:02
+
+实机看起来比宣誓强多了吧
+

@@ -1450,3 +1450,20 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 说起中文歌，刚刷到李发卡b站BDF的一些视频，鲤鱼以后如果有机会和B站合作唱唱这种活动主题曲之类的就挺好的，19年原唱的BW主题曲see the world在b站的传唱度还是挺广泛，不过那时鲤鱼本人还是非常小透明，现在好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20312#       发表于 2024-6-11 12:44
+
+<img src="https://p.sda1.dev/18/fdbeac7c6254481d62d13326acfbd92b/CMP_20240611124423394.jpg" referrerpolicy="no-referrer">Liella Club新一年特典歌曲
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ViyViy  
+##### 20313#       发表于 2024-6-11 12:47
+
+真稀奇啊，这搭配。
+

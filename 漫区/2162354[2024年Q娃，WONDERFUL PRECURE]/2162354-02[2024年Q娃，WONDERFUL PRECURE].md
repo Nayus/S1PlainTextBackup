@@ -2523,3 +2523,28 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 满心小光法Q哈酱治愈阿斯属于设定上肯定战力要更高的，都不是正常人类<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1703#       发表于 2024-6-11 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193123&amp;ptid=2162354" target="_blank">待宵 发表于 2024-6-11 12:29</a>
+
+追加战士看设定，水果组刹那就不算高于初始三人， 组曲的亚子也就在响奏刚入门时当过助拳人等正式入队她专 ...</blockquote>
+小光设定上是女王的生命但是实际表现上是没有任何战斗力全点了防御和辅助啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leleq  
+##### 1704#       发表于 2024-6-11 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191520&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-11 10:49</a>
+不能说的力量要对我做什么啊
+
+我只想永远保护茉优啊</blockquote>
+你的智商马上就要变得跟那只傻狗差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+建议趁着现在还有智商赶快说两句话留下来给未来的自己.
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

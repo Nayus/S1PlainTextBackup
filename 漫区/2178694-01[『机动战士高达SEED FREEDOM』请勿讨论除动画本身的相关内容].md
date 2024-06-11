@@ -4954,3 +4954,26 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 是的，强自被夺黑骑士上来砍爆，把残骸拖回去逆向升级出了迦楼罗（BOSS机），所以你看迦楼罗配装和机型会 ...</blockquote>
 小说明确了原来的强自被夺去，强自贰式是新造？
 
+
+*****
+
+####  马桶3  
+##### 1402#       发表于 2024-6-11 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197876&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-06-11 17:57:33</a>
+小说明确了原来的强自被夺去，强自贰式是新造？</blockquote>没记错的话二式是新造的，其实和强袭嫣红一样只要有足够的备用零件自然可以再拼一台出来，之后再改修成二式，强袭自由抢夺事件里的强自肯定是被砍爆了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  macos  
+##### 1403#       发表于 2024-6-11 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198422&amp;ptid=2178694" target="_blank">马桶3 发表于 2024-6-11 18:39</a>
+没记错的话二式是新造的，其实和强袭嫣红一样只要有足够的备用零件自然可以再拼一台出来，之后再改修成二式 ...</blockquote>
+那无证为啥改了，小飞机都变了，还套壳这么久
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

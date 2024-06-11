@@ -5326,3 +5326,15 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 
 话说语速超快那位技术开发人员是不是福山润配的，我听他说话总感觉眼前浮现出三角仔<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gary76  
+##### 1435#       发表于 2024-6-12 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202268&amp;ptid=2178694" target="_blank">妒客 发表于 2024-6-12 01:11</a>
+Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更搞笑管他什么物理分身啥理论，够热闹好看就行了~
+
+ ...</blockquote>
+就是福山啊，但基本是老馬修聲線啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">還是有點可惜
+

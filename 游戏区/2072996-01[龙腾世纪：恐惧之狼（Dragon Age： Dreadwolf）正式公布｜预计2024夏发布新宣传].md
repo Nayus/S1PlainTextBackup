@@ -3400,3 +3400,30 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  BK10  
+##### 348#       发表于 2024-6-12 00:47
+
+<img src="https://p.sda1.dev/18/c88e490d28ae7e3820567bb8b90c8d91/CMP_20240612004716144.png" referrerpolicy="no-referrer">
+生软的美术发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛亚替身  
+##### 349#       发表于 2024-6-12 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202165&amp;ptid=2072996" target="_blank">BK10 发表于 2024-6-12 00:47</a>
+
+生软的美术发生了什么</blockquote>
+审判怪能看的也就龙吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  myron_cloud  
+##### 350#       发表于 2024-6-12 00:54
+
+感觉像ea做的那个星战游戏……
+

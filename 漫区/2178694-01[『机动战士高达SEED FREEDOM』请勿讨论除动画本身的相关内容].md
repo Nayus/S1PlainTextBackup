@@ -4853,3 +4853,33 @@ POPGO的熟肉还没出吗
 没看过种和种命能直接看这个吗？</blockquote>
 不想补TV的话，可以补总集篇，种三部+种命四部，去年也出了HD版的BD
 
+
+*****
+
+####  tsoulgain  
+##### 1393#       发表于 2024-6-11 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189281&amp;ptid=2178694" target="_blank">diectt 发表于 2024-6-11 03:24</a>
+不行，看的我笑死了，真应该放春节档，一边看一边做了点笔记，大部分顺着剧情时间来的，比较零散</blockquote>
+你应该说福田大监督肯让诗和露脸嗯一声已经是天大的恩惠了。福田大监督一向是不承认外传里的所有角色除了诗和稍微松了一下。这就是福田大监督堪比夏亚桑的气量呀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S918U1, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  plok201  
+##### 1394#       发表于 2024-6-11 15:22
+
+这次敌人全员是实体加光刃那种对舰刀，所以能互格吧
+
+毕竟村雨和短剑打架那里是不敢互格的，互格主要是剑脉和强人斧头，无正腿刀对砍那种，这些都算有实体部分
+
+SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没互格，无正那边因为打架太快了，两把光剑碰到也可以说没有互格
+
+关于命运分身的话，解释成当年和无正对砍也是有分身的，只不过狼太牛逼了，分身一样砍爆，我们观众没有忍者动态视力看不出来可以么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+想起超时空要塞那设定了，其实种命是罗盘弄的宣传片，改编的时候因为命运高达名字的原因被削了
+
+你看这次反派对命运看不起，粉毛也看不起真，怀疑当年影像和文字资料全是命运战绩是假的，和无正决战是秒的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

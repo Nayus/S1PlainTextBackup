@@ -827,3 +827,13 @@ UI花哨倒是还好，就是这满屏白色噪点和飘絮一样的东西让眼
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  黑上シグマ  
+##### 475#       发表于 2024-6-11 15:24
+
+换人正常，毕竟ATLUS上面现在是SEGAY，审判之眼换人不也换得贼起劲
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+

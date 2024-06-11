@@ -4616,3 +4616,16 @@ Gundam Fact File里详细一点，靠阳电子破城炮引发的阳电子干涉�
 
 话说seed还有后续企划吗？
 
+
+*****
+
+####  线程召唤使  
+##### 1372#       发表于 2024-6-11 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189519&amp;ptid=2178694" target="_blank">diectt 发表于 2024-6-11 07:29</a>
+
+是的，至少和黄毛宰相一样，加两段和基拉的亲密镜头，还要被拉妖看见，后面她告白失败和拉妖听到他们说话 ...</blockquote>
+已确认会有一个OVA，时间线剧场版半年前。
+
+至于真正意义的后续，现在谁也说不清万代到底怎么想的，只能说目前差不多50亿这个结果，确实是给了个狗尾再续一次貂的理由。
+

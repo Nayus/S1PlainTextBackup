@@ -169,3 +169,14 @@
 
 st和fa现在算是什么规律来着，st是换属性没新语音，fa是新语音是吧
 
+
+*****
+
+####  江戸前ルナ  
+##### 1086#         楼主| 发表于 2024-6-11 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65195569&amp;ptid=2104259" target="_blank">madcow 发表于 2024-6-11 15:37</a>
+
+st和fa现在算是什么规律来着，st是换属性没新语音，fa是新语音是吧</blockquote>
+是的。但是有特殊的也不好说哦，比如ANYOYO就有新语音，这辣妹社长卸妆了没新语音就会很怪啊（
+

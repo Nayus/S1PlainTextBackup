@@ -3096,3 +3096,16 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 我比较关注的是预告片所表现的氛围风格太过于轻松甚至胡闹了.和以前特别是3代完全两回事..
 
+
+*****
+
+####  ak123  
+##### 317#       发表于 2024-6-11 11:35
+
+|<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191049&amp;ptid=2072996" target="_blank">|胡说| 发表于 2024-6-11 10:19</a>|
+
+龙腾这个预告片,丑不丑其实也无所谓,毕竟gayware的建模技术一直都不强,看得过去也就罢了.
+
+我比较关注的是预 ...</blockquote>
+明显就是冲着吸引低龄woke群体去的，da系列一直都在走这条路，不是第一次了
+

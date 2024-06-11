@@ -1832,3 +1832,14 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 术力口就是吸引年轻人 至于神神叨叨的歌 要我说从八爷就开始了 在jin时代达到巅峰 后面虽然衰退 但是吸引的人不变 这时候又来个pjsk 嗯味道就很对了
 
+
+*****
+
+####  abfk  
+##### 166#       发表于 2024-6-11 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65191970&amp;ptid=2186915" target="_blank">DET 发表于 2024-6-11 11:14</a>
+
+说的就是恐龙王头像那个，那个确实是萌萌入侵，没有楼主十分之一史味的 ...</blockquote>
+萌萌厕妹不是厕妹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

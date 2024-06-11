@@ -5084,3 +5084,33 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 
 关于这个事件正片内容也太少了，不出个OVA解释下说不过去了
 
+
+*****
+
+####  节艾司  
+##### 1413#       发表于 2024-6-11 19:27
+
+<blockquote>-lilipeipei- 发表于 2024-6-11 19:05
+这个明显是脉冲、命运和SF啊，而且那个SF能从裙甲看出来是SF改</blockquote>
+正义……提前开走了？可能代表早和阿斯兰沟通好了提前就去准备了……
+
+*****
+
+####  oi99o  
+##### 1414#       发表于 2024-6-11 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198941&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 19:27</a>
+
+正义……提前开走了？可能代表早和阿斯兰沟通好了提前就去准备了……</blockquote>
+无正不是在魔蟹里吗，一直都在外面开着呢
+
+*****
+
+####  -lilipeipei-  
+##### 1415#       发表于 2024-6-11 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198941&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 19:27</a>
+
+正义……提前开走了？可能代表早和阿斯兰沟通好了提前就去准备了……</blockquote>
+正义不是塞到魔蟹里了吗（
+

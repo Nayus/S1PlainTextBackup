@@ -754,3 +754,11 @@ ATLUS Exclusive『メタファー：リファンタジオ』ストーリー編�
 
 井上和彦：还好我出事早
 
+
+*****
+
+####  yevvet  
+##### 468#       发表于 2024-6-11 12:01
+
+阿特拉斯估计是为了博流量这样打宣传，吸引一波路人去买他的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟他配的角色是谁我都不知道，这种角色换不换都一样
+

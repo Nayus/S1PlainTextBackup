@@ -1853,3 +1853,15 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  库德里尔  
+##### 168#       发表于 2024-6-11 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192111&amp;ptid=2186915" target="_blank">你谁 发表于 2024-6-11 11:22</a>
+有没有画师 看看</blockquote>
+这是卡图
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

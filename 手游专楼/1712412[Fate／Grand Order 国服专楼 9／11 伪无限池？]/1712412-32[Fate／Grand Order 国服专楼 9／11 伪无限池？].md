@@ -736,3 +736,23 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 
 职阶刻痕升级，我Berserker所有带锁升级要求全部满足，那有推荐的优先点击顺序吗，还是说XJB乱点就可以了。
 
+
+*****
+
+####  khxooo  
+##### 46453#       发表于 2024-6-11 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192491&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2024-6-11 11:48</a>
+职阶刻痕升级，我Berserker所有带锁升级要求全部满足，那有推荐的优先点击顺序吗，还是说XJB乱点就可以了。 ...</blockquote>
+优先宝威，其他的随便点，反正都是要点满的，
+
+*****
+
+####  艾尔特翔  
+##### 46454#       发表于 2024-6-11 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192652&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-6-11 11:59</a>
+
+优先宝威，其他的随便点，反正都是要点满的，</blockquote>
+了解了，十分感谢
+

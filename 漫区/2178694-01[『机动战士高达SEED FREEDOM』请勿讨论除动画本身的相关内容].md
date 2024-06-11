@@ -5009,3 +5009,49 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 
 电影里不是打开个仓库里面放着自正命，然后还解说这是我们奥布造的吗
 
+
+*****
+
+####  节艾司  
+##### 1407#       发表于 2024-6-11 19:00
+
+<img src="https://img.saraba1st.com/forum/202406/11/190013jo4r4jigr4779ar4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240611_185926.jpg</strong> (259.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-11 19:00 上传
+
+这个地方
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1408#       发表于 2024-6-11 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198579&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 18:55</a>
+电影里不是打开个仓库里面放着自正命，然后还解说这是我们奥布造的吗</blockquote>
+那个画面艾利卡主任说的是阿斯哈代表代为保管，用于新炉和新装备实验麼，没有说我们奥布制造吧
+
+*****
+
+####  节艾司  
+##### 1409#       发表于 2024-6-11 19:03
+
+<blockquote>gundammarkⅡ 发表于 2024-6-11 19:02
+那个画面艾利卡主任说的是阿斯哈代表代为保管，用于新炉和新装备实验麼 ...</blockquote>
+她说阿斯哈交给她的，肯定偷造的。奥布一天不偷图纸浑身难受。
+
+*****
+
+####  -lilipeipei-  
+##### 1410#       发表于 2024-6-11 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65198639&amp;ptid=2178694" target="_blank">节艾司 发表于 2024-6-11 19:00</a>
+
+这个地方</blockquote>
+这个明显是脉冲、命运和SF啊，而且那个SF能从裙甲看出来是SF改
+

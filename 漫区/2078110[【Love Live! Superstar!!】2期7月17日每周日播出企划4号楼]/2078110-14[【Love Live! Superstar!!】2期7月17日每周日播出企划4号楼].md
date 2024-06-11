@@ -1516,3 +1516,13 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 那时候找鲤鱼唱才神奇，唱歌名气比他大的up不少<[/blockquote>
 那个时候鲤鱼是B站（超电）旗下艺人
 
+
+*****
+
+####  ruffian  
+##### 20319#       发表于 2024-6-11 19:03
+
+是错觉吗，pay配咧垃圾剧场和唱歌的声线好像都比以前夹了很多，我都没听出来是她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -508,3 +508,13 @@ bba这强化和她徒弟一样幽默</blockquote>
 不要骗我了 我记得你说个自己有的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是幻觉
 
+
+*****
+
+####  里村紅葉  
+##### 12849#       发表于 2024-6-11 19:02
+
+不是，师匠你跟狗哥哪个是老师啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

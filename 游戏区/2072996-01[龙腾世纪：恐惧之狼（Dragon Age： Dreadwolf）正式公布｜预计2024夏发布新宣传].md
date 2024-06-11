@@ -3646,3 +3646,24 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 这印度女不会是跨跨吧，声音听着好怪
 
+
+*****
+
+####  aaronluray  
+##### 375#       发表于 2024-6-12 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202461&amp;ptid=2072996" target="_blank">Rary 发表于 2024-6-12 02:25</a>
+
+这印度女不会是跨跨吧，声音听着好怪</blockquote>
+感动，终于不止我一个人觉得三姐声音像变性人的太监音了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aaronluray  
+##### 376#       发表于 2024-6-12 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202424&amp;ptid=2072996" target="_blank">蓝雉 发表于 2024-6-12 02:12</a>
+
+看了眼龙腾吧,居然在开香槟,是饿坏了吗</blockquote>
+看了下贴吧，三代的哈丁到了四代这脸明明是劣化了吧，那边好多人觉得更美了，我果然是跟不上现在的审美了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

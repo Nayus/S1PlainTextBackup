@@ -1588,3 +1588,15 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 不搬美工厕?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  依然荏苒  
+##### 140#       发表于 2024-6-11 08:54
+
+ 本帖最后由 依然荏苒 于 2024-6-11 08:58 编辑 
+
+好奇这游戏怎么和厕妹文化挂钩，
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

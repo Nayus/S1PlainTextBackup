@@ -3667,3 +3667,20 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 看了眼龙腾吧,居然在开香槟,是饿坏了吗</blockquote>
 看了下贴吧，三代的哈丁到了四代这脸明明是劣化了吧，那边好多人觉得更美了，我果然是跟不上现在的审美了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lastimempty  
+##### 377#       发表于 2024-6-12 03:07
+
+上推看了一些官方的图，感觉演示里打得单调有一部分原因是早期技能都没解锁吧....
+
+<img src="https://img.saraba1st.com/forum/202406/12/030722cclaan0squusumla.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GPzg5bSa0AASTDy.jpeg</strong> (139.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-12 03:07 上传
+

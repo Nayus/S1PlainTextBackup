@@ -3042,3 +3042,13 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 怎么还是干Solas的……
 
+
+*****
+
+####  aaronluray  
+##### 312#       发表于 2024-6-11 09:15
+
+看到了那几张队友新图，特别是那张7个队友都在的，不还是一群丑八怪，你说丑就嘴你就是想要网红脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+然后好像是确定判官回归，审判让我最恶心的 “因为女精灵可以和光头谈恋爱有额外信息所以判官官设是女精”的这群sb同人女又又又跳起来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，不是所有玩家都觉得你这个光头是个宝的好吗
+

@@ -1600,3 +1600,23 @@ zng可能确实是bg豚生的，学了他们爹那股味，崆峒反同以至于
 
 —— 来自 HONOR ELZ-AN10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  DET  
+##### 141#       发表于 2024-6-11 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65190009&amp;ptid=2186915" target="_blank">依然荏苒 发表于 2024-6-11 08:54</a>
+好奇这游戏怎么和厕妹文化挂钩，
+
+—— 来自 HONOR ELZ-AN10, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+其实每个二游都有，只不过是用的人多和少的区别<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  純田まな  
+##### 142#       发表于 2024-6-11 09:13
+
+肾烂现在开始出双女六卖姛，但是还是惦记他的媚zng。你问韭妹们恨吗？爱吗？  可是恨不绝对， 爱不纯粹。  于是她摇头摇头再摇头。
+

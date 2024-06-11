@@ -3622,3 +3622,19 @@ BioWare新作《龙腾世纪：影障守护者》20分钟中文实机演示公�
 哦说起来,贪婪之秋这游戏,1代模仿龙腾世纪3,2代变成龙腾世纪1了</blockquote>
 md我还以为他们会在一代上请几个动捕优化一下战斗，没想到直接改成半即时了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 372#       发表于 2024-6-12 02:06
+
+不是，怎么连队友血量都没有。
+
+
+*****
+
+####  蓝雉  
+##### 373#       发表于 2024-6-12 02:12
+
+看了眼龙腾吧,居然在开香槟,是饿坏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

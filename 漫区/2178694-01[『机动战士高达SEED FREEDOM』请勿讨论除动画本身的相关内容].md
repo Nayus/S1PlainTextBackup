@@ -4827,3 +4827,11 @@ POPGO的熟肉还没出吗
 至于真正意义的后续，现在谁也说不清万代到底怎么想的，只能 ...</blockquote>
 挺好的，我觉得SEED值得续下去，万代也别搞什么内涵深度了，像SEED这样狗血剧八点档一直拍下去起码欢乐不断看的人绝对不少
 
+
+*****
+
+####  洛克萨斯  
+##### 1390#       发表于 2024-6-11 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这次光刀互格有解释了么
+

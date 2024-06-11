@@ -5114,3 +5114,13 @@ SF基拉全靠盾来挡光剑，空脉和强人后来换纯光剑的时候也没
 正义……提前开走了？可能代表早和阿斯兰沟通好了提前就去准备了……</blockquote>
 正义不是塞到魔蟹里了吗（
 
+
+*****
+
+####  oi99o  
+##### 1416#       发表于 2024-6-11 19:37
+
+[https://bbs.acgrip.com/forum.php ... mp;page=2#pid108187](https://bbs.acgrip.com/forum.php?mod=viewthread&amp;tid=11769&amp;page=2#pid108187)
+
+这个字幕版本还不错，中日双语，歌词和屏幕字都有了
+

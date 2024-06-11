@@ -2586,3 +2586,48 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 你的前辈美鬼在当魔法少女时收到过关于这的建议，可以考虑把真由的手脚都弄残废，让真由的身体变成离开你 ...</blockquote>
 可以先把对面一人一狗的打断，让真由失去朋友，刚刚升起的希望断绝，这样就彻底离不开猫猫了
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1708#       发表于 2024-6-11 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193418&amp;ptid=2162354" target="_blank">leleq 发表于 2024-6-11 12:47</a>
+
+你的智商马上就要变得跟那只傻狗差不多了
+
+建议趁着现在还有智商赶快说两句话留下来给未来的自己.</blockquote>
+怎么可能，猫猫才不会变笨<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 1709#       发表于 2024-6-11 14:11
+
+期待牢雪狗堕的那一天
+
+
+*****
+
+####  猫屋敷ゆき  
+##### 1710#       发表于 2024-6-11 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193816&amp;ptid=2162354" target="_blank">lydia5989 发表于 2024-6-11 13:17</a>
+
+但猫猫连着两集吃瘪了
+
+猫猫，失职</blockquote>
+这也是不能说的力量的一环么
+
+太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫屋敷ゆき  
+##### 1711#       发表于 2024-6-11 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193989&amp;ptid=2162354" target="_blank">lydia5989 发表于 2024-6-11 13:32</a>
+
+可以先把对面一人一狗的打断，让真由失去朋友，刚刚升起的希望断绝，这样就彻底离不开猫猫了 ...</blockquote>
+是该让这两个把茉优拉进火坑的人付出代价了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

@@ -3313,3 +3313,13 @@ bioware早离那个能创作出博得 龙腾起源 的时候很远了
 
 二代的性格系统看上去也回归了，算是个好消息吧
 
+
+*****
+
+####  针刺骑士  
+##### 338#       发表于 2024-6-11 23:54
+
+https://www.ign.com/articles/dragon-age-the-veilguard-the-first-preview
+
+IGN preview
+

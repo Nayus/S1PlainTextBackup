@@ -2483,3 +2483,13 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 以前有过追加Q娃战斗力和初始Q娃拉不开差距的情况么？感觉追加设定上都强一档
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1699#       发表于 2024-6-11 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不能说的力量要对我做什么啊
+
+我只想永远保护茉优啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

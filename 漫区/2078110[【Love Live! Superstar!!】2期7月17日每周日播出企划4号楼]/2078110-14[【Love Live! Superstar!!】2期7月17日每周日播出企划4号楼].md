@@ -1488,3 +1488,21 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  cat1230  
+##### 20316#       发表于 2024-6-11 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188753&amp;ptid=2078110" target="_blank">伊卡石 发表于 2024-6-11 01:06</a>
+
+说起中文歌，刚刷到李发卡b站BDF的一些视频，鲤鱼以后如果有机会和B站合作唱唱这种活动主题曲之类的就挺好 ...</blockquote>
+那时候找鲤鱼唱才神奇，唱歌名气比他大的up不少<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20317#       发表于 2024-6-11 16:30
+
+冬薇已经腻了，现在可以薇堇吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2504,3 +2504,22 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 以前有过追加Q娃战斗力和初始Q娃拉不开差距的情况么？感觉追加设定上都强一档 ...</blockquote>
 拥抱吧，因为追加的露露爱美瑠是二人Q娃而且是因为单纯的队友们没空来打怪所以追加的因此战斗力并不比初始三人强很多<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊魔魂  
+##### 1701#       发表于 2024-6-11 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65188565&amp;ptid=2162354" target="_blank">不能摸的屁屁 发表于 2024-6-11 00:35</a>
+茉优的屁股体感比珍柔还大</blockquote>
+珍柔的的屁股能来个参考图吗
+
+*****
+
+####  待宵  
+##### 1702#       发表于 2024-6-11 12:29
+
+追加战士看设定，水果组刹那就不算高于初始三人， 组曲的亚子也就在响奏刚入门时当过助拳人等正式入队她专属玩具都没有，她才是初始(
+
+满心小光法Q哈酱治愈阿斯属于设定上肯定战力要更高的，都不是正常人类<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

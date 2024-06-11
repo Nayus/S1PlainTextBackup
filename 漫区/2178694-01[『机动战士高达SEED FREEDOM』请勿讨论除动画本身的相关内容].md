@@ -4791,3 +4791,14 @@ POPGO的熟肉还没出吗
 
 发重了，编辑
 
+
+*****
+
+####  酒石酸唑吡坦  
+##### 1387#       发表于 2024-6-11 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65193025&amp;ptid=2178694" target="_blank">kuarwbwe 发表于 2024-6-11 12:23</a>
+没看过种和种命能直接看这个吗？</blockquote>
+不太能，虽然看没看tv都会觉得电影是什么抽象玩意，但是很多笑点是一定需要看完tv、甚至是经历过论坛搏斗才能get到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+可以先溜溜剧场版战斗爽一爽，然后再回去补tv，最后再看剧场版
+

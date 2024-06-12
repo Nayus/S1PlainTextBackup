@@ -5556,3 +5556,24 @@ sp2然后追加了影分身机能吧。。。
 
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1453#       发表于 2024-6-12 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207208&amp;ptid=2178694" target="_blank">布拉德莱恩 发表于 2024-6-12 13:13</a>
+
+醒醒，命运身上从来就不是白色而是灰色，目的是和传统主人公机的白色区别开来，毕竟是恶役 ...</blockquote>
+命运也就是偏灰色的灰白而已，和传说的灰色不是一个档次
+
+<img src="https://img.saraba1st.com/forum/202406/12/133225szcis2wsxllz42ui.jpg" referrerpolicy="no-referrer">
+
+<strong>d112_30.jpg</strong> (87.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 13:32 上传
+
+现在命运specII就差不多是传说的灰了
+

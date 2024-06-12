@@ -2657,3 +2657,13 @@ bg和纯豚，看到吞服一体机，自动输入：你磕gl就是为bl战术�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  qz66618  
+##### 222#       发表于 2024-6-12 09:21
+
+为什么半夜唐突排泄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

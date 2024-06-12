@@ -496,3 +496,14 @@ hima同接转好应该是从作为shaka弟子出场crcup开始，格ゲーおじ
 
 接受shaka指导的时候倒是久违地看到了本间桑的雌
 
+
+*****
+
+####  渡鸦骑士  
+##### 282#       发表于 2024-6-12 16:13
+
+……
+75亿回购股票……
+cover一个棚子才20多亿<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">。
+而且你虹最近还在限制交易阶段，这75亿是给哪家股东交的赎身税啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

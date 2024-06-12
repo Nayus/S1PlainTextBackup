@@ -1034,3 +1034,14 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 真的有索尼版吗 片里没写啊</blockquote>
 索尼版取消了，因为电子垃圾5在欧美断崖下跌69%，没必要上了
 
+
+*****
+
+####  makece  
+##### 111#       发表于 2024-6-12 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208403&amp;ptid=2184766" target="_blank">魔法酪饼 发表于 2024-6-12 14:48</a>
+
+永恒怎么卡关啊？还有啥是大盾哥？</blockquote>
+子弹血量都不够过不去场景了
+

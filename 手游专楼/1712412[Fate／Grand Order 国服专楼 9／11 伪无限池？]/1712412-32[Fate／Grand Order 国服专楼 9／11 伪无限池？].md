@@ -803,3 +803,13 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 高难都挺简单的，鱼人和兽圈都能高爆发3t，残骸用太岁爆杀</blockquote>
 退坑太久回来，好多人都没有<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer"> 反正也不会过期慢慢来吧
 
+
+*****
+
+####  hyhaha  
+##### 46460#       发表于 2024-6-13 01:25
+
+问一下，解锁特殊节点的红星、蓝星、黄星这三种道具要怎么获得？只有打高难给？
+
+我想去开狂的宝具威力上升，路上有个需要蓝星的节点开不了
+

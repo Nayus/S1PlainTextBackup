@@ -919,3 +919,20 @@ id真有过预告后缩水的前科的，预告不能全信
 
 <img src="https://p.sda1.dev/18/e271502dc5f0b28bcd41c8dabf4ae21e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 98#       发表于 2024-6-12 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">永恒的高速移动我挺爱的，不过关卡设计明显也把握不住了，而且能玩明白的人也少，降速就降速吧商业游戏还是得以市场为主的
+
+*****
+
+####  BRAVADO  
+##### 99#       发表于 2024-6-12 13:44
+
+<blockquote>Existinghomes 发表于 2024-6-12 13:21
+感觉这代应该不会是永恒那种超高机动性风格了，有点小失望，不过高机动打枪独游这两年也不少，doom本家能探 ...</blockquote>
+箱庭探索，慢速投掷物，同屏巨量敌人，那感觉不如回去玩doom屠戮wad，技术限制，用现代画面肯定没办法做到和wad里那样同屏几千个敌人
+

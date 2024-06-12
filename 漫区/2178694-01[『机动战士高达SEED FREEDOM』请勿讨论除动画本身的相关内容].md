@@ -5577,3 +5577,29 @@ sp2然后追加了影分身机能吧。。。
 
 现在命运specII就差不多是传说的灰了
 
+
+*****
+
+####  洛克萨斯  
+##### 1454#       发表于 2024-6-12 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207297&amp;ptid=2178694" target="_blank">bartholo4 发表于 2024-6-12 13:21</a>
+
+其实光剑互格挺好解释的
+
+光剑的光束受立场约束成型
+
+那对面砍过来的光剑的光束也可以被自己的立场约束格挡</blockquote>
+不是，ce纪元的光剑和其他的不一样，原理一直都是打火机，其他纪元的光剑是气球
+
+*****
+
+####  gundammarkⅡ  
+##### 1455#       发表于 2024-6-12 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207297&amp;ptid=2178694" target="_blank">bartholo4 发表于 2024-6-12 13:21</a>
+其实光剑互格挺好解释的
+光剑的光束受立场约束成型
+那对面砍过来的光剑的光束也可以被自己的立场约束格挡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是UC系光剑原理，CE系光剑不是这个原理，所以整部种，大部分种命都没有光剑格挡
+

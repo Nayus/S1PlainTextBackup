@@ -792,3 +792,14 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 
 大幽灵太过恶心令咒复活了
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46459#       发表于 2024-6-12 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65177413&amp;ptid=1712412" target="_blank">肥到终点 发表于 2024-6-10 03:38</a>
+
+高难都挺简单的，鱼人和兽圈都能高爆发3t，残骸用太岁爆杀</blockquote>
+退坑太久回来，好多人都没有<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer"> 反正也不会过期慢慢来吧
+

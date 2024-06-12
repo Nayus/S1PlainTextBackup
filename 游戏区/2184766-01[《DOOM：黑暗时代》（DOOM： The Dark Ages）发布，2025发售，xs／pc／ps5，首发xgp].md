@@ -983,3 +983,24 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 另外2016和永恒我都只首发玩过本体，请问这两代之间的空白剧情后面补上了么？
 
+
+*****
+
+####  魔法酪饼  
+##### 106#       发表于 2024-6-12 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65178418&amp;ptid=2184766" target="_blank">makece 发表于 2024-6-10 09:40</a>
+
+上代永恒我在一个低补给的状态遇到一个需要处理包含大盾哥在内的复杂场景处卡关扔掉了，希望这代不要这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer"> 永恒怎么卡关啊？还有啥是大盾哥？
+
+
+*****
+
+####  九十九忍  
+##### 107#       发表于 2024-6-12 14:52
+
+永恒是超高速战斗中要你看好几个资源回没回，这作是连盾反都加上了？
+
+只能祝越办越好吧
+

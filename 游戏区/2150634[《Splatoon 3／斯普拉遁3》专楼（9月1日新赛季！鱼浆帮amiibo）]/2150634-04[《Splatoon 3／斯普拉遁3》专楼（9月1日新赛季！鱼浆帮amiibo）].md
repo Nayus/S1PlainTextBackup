@@ -2815,3 +2815,24 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 4718#       发表于 2024-6-12 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65209792&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-6-12 16:33</a>
+马老师一天到晚挂章鱼族，明明鱿鱼族战犯更多，偏要带有色眼镜。还有直播期间就搞举报拉黑那一套，实在太小 ...</blockquote>
+这人是小学老师
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  DeltaStriker  
+##### 4719#       发表于 2024-6-12 19:21
+
+只能说有实力就有天狗一直看的
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

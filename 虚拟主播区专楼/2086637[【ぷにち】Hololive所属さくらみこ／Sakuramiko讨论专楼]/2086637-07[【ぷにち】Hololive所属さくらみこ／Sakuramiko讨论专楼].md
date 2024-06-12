@@ -1286,3 +1286,34 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 不过歪打正着我昨天急着下单的就是A店的……
 
+
+*****
+
+####  holoan  
+##### 8997#         楼主| 发表于 2024-6-12 18:55
+
+今晚正常直播也太拼了吧还有内心太坚强了，真的为了V活动全心注力一刻也不多休，相比之下遇到相同的情况同社的人有的休一个月以上，只能说NB了
+
+*****
+
+####  holoan  
+##### 8998#         楼主| 发表于 2024-6-12 19:24
+
+ 本帖最后由 holoan 于 2024-6-12 19:25 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/12/192404blctk8pp0s1s80pb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/192543sbzpggpbprs6b8s2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 19:25 上传
+

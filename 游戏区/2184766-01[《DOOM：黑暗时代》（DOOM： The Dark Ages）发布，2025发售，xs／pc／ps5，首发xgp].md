@@ -1012,3 +1012,14 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 看采访更像回归原点打枪游戏，永恒我感觉是一个第一人称FTG，打立回打康打连招，还要注意自己大招资源
 
+
+*****
+
+####  johnkamsar  
+##### 109#       发表于 2024-6-12 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207949&amp;ptid=2184766" target="_blank">luffy0085 发表于 2024-6-12 14:14</a>
+另外2016和永恒我都只首发玩过本体，请问这两代之间的空白剧情后面补上了么？ ...</blockquote>
+16结束后海登作死拿裁决剑走人，试图想办法弄死地狱的恶魔，然后又开了地狱门，结果就是作死大了不仅让地球被入侵自己也被弄到半死<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+然后slayer从火星逃出去到空间站这段我忘记了，反正整套故事记得是有个作品专门说的
+

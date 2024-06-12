@@ -2773,3 +2773,17 @@ max三岗过了，仍旧没有金
 
 我才刚用上他们的牌子没几天啊，这倒得有点快
 
+
+*****
+
+####  martinium  
+##### 4714#       发表于 2024-6-12 15:39
+
+ 本帖最后由 martinium 于 2024-6-12 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208010&amp;ptid=2150634" target="_blank">幽香 发表于 2024-6-12 14:18</a>
+喷了jackpot成员被挖了对前成员种族言论黑历史在欧美那边被炎上，因为这事已经确定要解散了…目前leafi发了 ...</blockquote>
+鬼佬这个圈子里的人真没比日本小学生强多少。大型比赛互喷垃圾话是常态，还有人觉得这是战术，就该喷垃圾话瓦解对手精神
+2代最搞笑的我记得还有预选赛被老妈拔线，导致3v4输掉然后队内矛盾
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

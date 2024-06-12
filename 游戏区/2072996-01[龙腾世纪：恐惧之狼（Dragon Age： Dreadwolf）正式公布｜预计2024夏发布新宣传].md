@@ -4498,3 +4498,11 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 如果能加到6个或者8个的话仙女座的战斗挺好的。
 
+
+*****
+
+####  沉墨1st  
+##### 453#       发表于 2024-6-12 17:10
+
+3个主动技能也太少了吧，我玩rpg都是希望技能越多越好，但是现在游戏不知道为啥好像都倾向于减少主动技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

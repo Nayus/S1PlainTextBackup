@@ -4540,3 +4540,14 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 话说碧昂卡没了这次瓦叔不会锁武器了吧。
 
+
+*****
+
+####  jf8350143  
+##### 457#       发表于 2024-6-12 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210754&amp;ptid=2072996" target="_blank">wgoenitz 发表于 2024-6-12 17:48</a>
+
+我看有人说不止3个，是3个一组，可以翻页</blockquote>
+如果可以翻页的话那还好，就当质量效应那个系统的话也不是不行。
+

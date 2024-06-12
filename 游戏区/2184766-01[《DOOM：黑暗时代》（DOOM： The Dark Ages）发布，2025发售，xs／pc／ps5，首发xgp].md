@@ -1090,3 +1090,15 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 我草 可以开机器人 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Existinghomes  
+##### 116#       发表于 2024-6-12 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207535&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-12 13:41</a>
+永恒的高速移动我挺爱的，不过关卡设计明显也把握不住了，而且能玩明白的人也少，降速就降速吧商业游戏还是 ...</blockquote>
+感觉从dlc2降难度甚至回砍一刀dlc1就有这个趋势了，我自己也很喜欢超高机动性的打法
+
+不过可能超高速战斗下的boss设计不那么好做（ultrakill有不少正面例子但不适合商业游戏参考），降速后可能更方便做交互立回，希望id能把boss战整明白点吧
+

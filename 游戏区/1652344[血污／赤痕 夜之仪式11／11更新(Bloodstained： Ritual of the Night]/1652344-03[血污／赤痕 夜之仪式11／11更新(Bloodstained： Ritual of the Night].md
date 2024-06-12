@@ -199,3 +199,16 @@ steam什么时候能把DLC的成就和本体分开算。有种逼人买DLC的感
 
 当年给众筹充钱的人怕不是都后悔了，充出来一堆附加模式，续作都冲没了。
 
+
+*****
+
+####  wizardasd  
+##### 3911#       发表于 2024-6-12 17:44
+
+classic感觉有点打不动
+
+这都好几年了还在更新……
+还是想玩新作啊
+
+—— 来自 Sony XQ-CQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

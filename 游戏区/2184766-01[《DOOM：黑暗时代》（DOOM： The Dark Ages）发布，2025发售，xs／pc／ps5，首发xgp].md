@@ -1258,3 +1258,17 @@ Quake我看来不需要单人，留着仅有的平移跳让老玩家氪金就行
 
 有做单人内容那点精力真不如做个新的中世界刷枪游戏
 
+
+*****
+
+####  希望之异热同心  
+##### 129#       发表于 2024-6-12 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65211092&amp;ptid=2184766" target="_blank">Existinghomes 发表于 2024-6-12 18:20</a>
+感觉从dlc2降难度甚至回砍一刀dlc1就有这个趋势了，我自己也很喜欢超高机动性的打法
+
+不过可能超高速战斗 ...</blockquote>
+dlc1降难度是不是就改了第三关的健身房，我只知道这个健身房有3个版本，一个幽灵斧子哥打完之后会再出一个斧子哥，一个巨简单就2个血梅克，还有就现在版本，不知道前2个版本哪个是一开始设计的
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

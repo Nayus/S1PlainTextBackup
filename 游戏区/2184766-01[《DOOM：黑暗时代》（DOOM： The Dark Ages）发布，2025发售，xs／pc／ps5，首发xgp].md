@@ -1056,3 +1056,16 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 真的有索尼版吗 片里没写啊</blockquote>
 他们官推上写了会登陆ps5
 
+
+*****
+
+####  希望之异热同心  
+##### 113#       发表于 2024-6-12 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65209447&amp;ptid=2184766" target="_blank">makece 发表于 2024-6-12 16:07</a>
+子弹血量都不够过不去场景了</blockquote>
+子弹不是直接锯么。。。就算是大师关的血巢毒池双斧子哥也是会生成僵尸让你回复弹药的
+会把僵尸打光不生成新的场景我只记得本篇里有一处，但那里没斧子哥
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

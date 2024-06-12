@@ -14709,3 +14709,18 @@ IMG_3844.jpeg
 
 顺便求直播弹幕
 
+
+*****
+
+####  kivz  
+##### 17497#       发表于 2024-6-12 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65214087&amp;ptid=2159415" target="_blank">dssq 发表于 2024-6-12 22:29</a>
+
+https://nyaa.si/view/1832395
+
+1h21min58s
+
+顺便求直播弹幕</blockquote>
+直播弹幕来回就那些东西，脑补下一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -5826,3 +5826,22 @@ F91设定实体盾无敌是什么？</blockquote>
 
 岂不是和奥米加兽一样强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  你妈的为什么  
+##### 1475#       发表于 2024-6-12 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看完了  最后30分钟梗实在是太密集了 嘴巴笑的合不上，虽然前面看过剧透了，看到实际场面还是喷了
+
+*****
+
+####  starring  
+##### 1476#       发表于 2024-6-12 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205639&amp;ptid=2178694" target="_blank">zanber 发表于 2024-6-12 11:30</a>
+其实主要是更换了黄大河重写的OS和鲁鲁修魔改的骨架吧</blockquote>
+鸡重写命运OS究竟是哪里传出来的谣言，从正片到小说到场刊设定再到福田口嗨，都没有提过命运改了OS
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

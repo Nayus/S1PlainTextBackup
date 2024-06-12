@@ -4602,3 +4602,13 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 贪婪之秋2的评论区：战斗系统劣化了，好好地动作向的战斗，干嘛要改成带暂停的即时制</blockquote>
 贪婪之秋2的确，改成半即时是没想到的.....一代那个战斗优化加动作捕捉，射击反馈感，时停，魔法再加强一波能成个新流派，真就49年入国军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哈曼的YY  
+##### 463#       发表于 2024-6-12 20:35
+
+原来贪婪之秋还要出续作了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

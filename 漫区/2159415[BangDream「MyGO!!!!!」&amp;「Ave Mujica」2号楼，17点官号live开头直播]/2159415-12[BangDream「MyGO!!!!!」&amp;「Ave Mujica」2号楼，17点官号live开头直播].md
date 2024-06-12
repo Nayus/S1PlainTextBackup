@@ -14456,3 +14456,28 @@ mujica必然是一个温暖人心的故事
 
 初华的经历肯定也有输入的地方吧
 
+
+*****
+
+####  御幸一也  
+##### 17473#       发表于 2024-6-12 12:10
+
+看了眼名單一言難盡<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  燐燐開花  
+##### 17474#       发表于 2024-6-12 12:12
+
+虹馆+这名单<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 17475#       发表于 2024-6-12 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64991704&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-5-24 23:42</a>
+
+唉，就算是隔壁某个虚拟女团最火的时候我都没去BML，估计今年要去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

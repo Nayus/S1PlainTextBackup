@@ -14669,3 +14669,13 @@ IMG_3844.jpeg
 唉，这下不插电的可能性基本没有了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 总不能让lsl唱毫无干净蜜柑唱剪切线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ikozhneg  
+##### 17493#       发表于 2024-6-12 21:36
+
+嚯嚯，真大牌了
+
+—— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

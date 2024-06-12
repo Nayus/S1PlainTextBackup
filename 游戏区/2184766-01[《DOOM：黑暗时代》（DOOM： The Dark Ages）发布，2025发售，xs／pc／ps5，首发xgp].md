@@ -1114,3 +1114,50 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 子弹血量都不够过不去场景了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 不可能，你玩的是哪门子的doom永恒，机制决定了这游戏绝不会出现这种死档，玩过doom永恒的也绝不会说这种话，你是水军？
 
+
+*****
+
+####  makece  
+##### 118#       发表于 2024-6-12 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213465&amp;ptid=2184766" target="_blank">魔法酪饼 发表于 2024-6-12 21:32</a>
+
+不可能，你玩的是哪门子的doom永恒，机制决定了这游戏绝不会出现这种死档，玩过doom永恒的也绝不会说这种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">场上怪是有但是不是小怪是比较高级的怪火力不够打不死，又被大盾追很容易就死了，这有啥难理解吗？卡关又不一定是绝对无解，我打不过就是卡了
+
+还水军，你脑子没毛病吧
+
+*****
+
+####  FLZB  
+##### 119#       发表于 2024-6-12 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207949&amp;ptid=2184766" target="_blank">luffy0085 发表于 2024-6-12 14:14</a>
+
+另外2016和永恒我都只首发玩过本体，请问这两代之间的空白剧情后面补上了么？ ...</blockquote>
+没补，永恒跟它的剧情一样神秘，好像是平行宇宙穿越来的续作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔法酪饼  
+##### 120#       发表于 2024-6-12 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213523&amp;ptid=2184766" target="_blank">makece 发表于 2024-6-12 21:37</a>
+
+场上怪是有但是不是小怪是比较高级的怪火力不够打不死，又被大盾追很容易就死了，这有啥难理解吗？卡关又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 但你刚才说的是子弹血量都不够啊，这句话和毁灭战士永恒的体验是矛盾的，你现在说的火力不够和这游戏的表现也是矛盾的，换句话说就是你根本没玩过。
+
+没玩过又要发言表示自己对前作有负面体验还有鼻子有眼，除了水军还能是啥，闲得慌？
+
+
+*****
+
+####  makece  
+##### 121#       发表于 2024-6-12 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213596&amp;ptid=2184766" target="_blank">魔法酪饼 发表于 2024-6-12 21:43</a>
+
+但你刚才说的是子弹血量都不够啊，这句话和毁灭战士永恒的体验是矛盾的，你现在说的火力不够和这游戏的 ...</blockquote>
+我菜逼打不准行不行？我卡不好盾哥的输出窗口行不行？
+

@@ -14679,3 +14679,13 @@ IMG_3844.jpeg
 
 —— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  DarthAka  
+##### 17494#       发表于 2024-6-12 22:07
+
+和青二又不是艺人约，管不了那么宽的
+
+要么是时间排不开，要么护照寄了
+

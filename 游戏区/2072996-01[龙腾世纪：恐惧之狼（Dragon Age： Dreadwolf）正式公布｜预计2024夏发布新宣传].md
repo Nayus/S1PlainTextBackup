@@ -3800,3 +3800,14 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 这代据说是第一次有官中吧。我就当给前面三作补票忍了
 
+
+*****
+
+####  jag0713_plus  
+##### 390#       发表于 2024-6-12 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202424&amp;ptid=2072996" target="_blank">蓝雉 发表于 2024-6-12 02:12</a>
+
+看了眼龙腾吧,居然在开香槟,是饿坏了吗</blockquote>
+自干社管罢了 之前质量效应那个新吧主和龙腾吧的吧务就在商讨怎么维护社区环境
+

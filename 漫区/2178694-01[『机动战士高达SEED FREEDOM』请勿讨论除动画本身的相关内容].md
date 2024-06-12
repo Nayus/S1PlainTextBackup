@@ -5845,3 +5845,38 @@ F91设定实体盾无敌是什么？</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kinga  
+##### 1477#       发表于 2024-6-12 23:36
+
+<blockquote>Znesmoc 发表于 2024-6-12 20:24
+无正的盾是实体+光束双层防护，CE73时候最强配置吧
+
+至于对舰刀给光束军刀砍了这种，这不就是吃了光剑不能 ...</blockquote>
+所以阿隆戴特居然都没用全刀身抗光束涂层？
+
+zaft缺那点钱么…
+
+*****
+
+####  月夜凝雪  
+##### 1478#       发表于 2024-6-12 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65214580&amp;ptid=2178694" target="_blank">starring 发表于 2024-6-12 23:26</a>
+
+鸡重写命运OS究竟是哪里传出来的谣言，从正片到小说到场刊设定再到福田口嗨，都没有提过命运改了OS
+
+—— ...</blockquote>
+
+命运改过OS应该是说这里，曙光社把这三台的系统都升级过了，而曙光社的系统源自于当初基拉写的那套作为基础吧
+
+<img src="https://img.saraba1st.com/forum/202406/12/233742yjxvxnz9p2rcfn0z.png" referrerpolicy="no-referrer">
+
+<strong>d8da7546-e5da-4acf-a172-3187cc658b8c.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 23:37 上传
+

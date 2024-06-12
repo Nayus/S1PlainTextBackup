@@ -1199,3 +1199,31 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 下次接单之后把调研先做好，别再闹这种笑话了。
 
+
+*****
+
+####  FuckSCUT  
+##### 125#       发表于 2024-6-12 22:28
+
+斧子哥不是能强杀吗，虽然我都是放弃思考老老实实走流程的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makece  
+##### 126#       发表于 2024-6-12 22:33
+
+ 本帖最后由 makece 于 2024-6-12 22:34 编辑 
+
+不知道你为什么这么热衷扣水军帽子，我说个我遇到的问题你技术好觉得不会发生就算了，一直不承认别人会遇到是什么心态？
+
+不如给个邮箱我把存档发你看看？这是2020年生成存档的截图
+
+<img src="https://img.saraba1st.com/forum/202406/12/223335f8b0ccw89xwc5w8z.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612223309.png</strong> (128.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 22:33 上传
+

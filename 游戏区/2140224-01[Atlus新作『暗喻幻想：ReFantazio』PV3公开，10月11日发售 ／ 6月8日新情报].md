@@ -837,3 +837,17 @@ UI花哨倒是还好，就是这满屏白色噪点和飘絮一样的东西让眼
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  Piano-Forest  
+##### 476#         楼主| 发表于 2024-6-12 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65168144&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-9 16:07</a>
+
+【《暗喻幻想 ReFantazio》简体中文版试玩——「BOSS挑战篇」】
+
+https://b23.tv/4ReZHLX ...</blockquote>
+【《暗喻幻想 ReFantazio》简体中文试玩——初期迷宫战斗展示】 
+[https://b23.tv/uUvw8os](https://b23.tv/uUvw8os)
+

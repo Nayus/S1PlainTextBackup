@@ -659,3 +659,13 @@ holo去年八月就回归了吧，都快一年了有装扮很正常吧，更何�
 
 队友全胜赢4分，奈罗花一个人输了5分
 
+
+*****
+
+####  格林卡罗尔  
+##### 297#       发表于 2024-6-12 22:27
+
+律可杯 奈罗花战绩
+
+全败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

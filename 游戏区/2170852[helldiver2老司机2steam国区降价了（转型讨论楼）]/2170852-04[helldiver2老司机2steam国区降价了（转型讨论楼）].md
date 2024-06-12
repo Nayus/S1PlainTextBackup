@@ -34,3 +34,14 @@
 
 绝地战兵拿到了新战备，却牺牲了无辜的人民，这一切值得吗（看着和空爆火箭筒同级别的玩具战备扪心自问
 
+
+*****
+
+####  6x6z6w  
+##### 4888#       发表于 2024-6-12 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207705&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-6-12 13:54</a>
+
+绝地战兵拿到了新战备，却牺牲了无辜的人民，这一切值得吗（看着和空爆火箭筒同级别的玩具战备扪心自问 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不过现在大部分人都在救小孩，要么是故意巨魔想拿地雷的人，要么就是想看箭头能整啥新活的
+

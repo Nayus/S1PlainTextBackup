@@ -5681,3 +5681,38 @@ CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，
 黑骑士湿婆的那个实体剑，一刀就劈了飞自得盾，那玩意属于顶级实体剑了吧？ ...</blockquote>
 确实，强自和飞自看起来盾，武器，腰间炮，特别是强自胸口说金色PS强化的炮口，都是被黑骑士像砍西瓜一样随便切。
 
+
+*****
+
+####  シャル  
+##### 1464#       发表于 2024-6-12 17:58
+
+最强剑和最强枪
+
+74DA8284-ACA4-414A-928D-F0F670E0877E.jpeg
+(118.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/175838rkwh3aawwtch3cdv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+7A874B97-0D68-4948-AAD2-F604DF98666F.jpeg
+(101.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/175839tkuxhlkldl7pd87e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gundammarkⅡ  
+##### 1465#       发表于 2024-6-12 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208279&amp;ptid=2178694" target="_blank">hsyg 发表于 2024-6-12 14:38</a>
+反正开场杂鱼105一个祖传盾挡住了强人的斧头，直接砍不下去。还不如学F91设定实体盾无敌了，光束废掉大家开 ...</blockquote>
+F91设定实体盾无敌是什么？
+

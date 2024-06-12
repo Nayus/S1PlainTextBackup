@@ -212,3 +212,18 @@ classic感觉有点打不动
 
 —— 来自 Sony XQ-CQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  scikirbypoke  
+##### 3912#       发表于 2024-6-12 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65209531&amp;ptid=1652344" target="_blank">mai6696 发表于 2024-6-12 16:13</a>
+
+再更新对我也没任何价值。
+
+当年给众筹充钱的人怕不是都后悔了，充出来一堆附加模式，续作都冲没了。 ...</blockquote>
+当初这些杂七杂八的是更高众筹金额的高等级奖励，没想到挤占了大量开发时间
+
+希望IGA能有管理经验了，这都5年了
+

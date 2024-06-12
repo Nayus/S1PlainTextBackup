@@ -4519,3 +4519,14 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 但是一次性能带的技能很少（我记得 ...</blockquote>
 我看有人说不止3个，是3个一组，可以翻页
 
+
+*****
+
+####  ybfelix  
+##### 455#       发表于 2024-6-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210244&amp;ptid=2072996" target="_blank">沉墨1st 发表于 2024-6-12 17:10</a>
+
+3个主动技能也太少了吧，我玩rpg都是希望技能越多越好，但是现在游戏不知道为啥好像都倾向于减少主动技能 ...</blockquote>
+这方面印象特别深的是当年玩无主之地1，一个主动技能，惊了，看宣发我以为是打枪版暗黑呢，怎么就一招
+

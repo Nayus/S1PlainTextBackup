@@ -5356,3 +5356,19 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 
 —— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  shiko  
+##### 1438#       发表于 2024-6-12 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65195397&amp;ptid=2178694" target="_blank">plok201 发表于 2024-6-11 15:22</a>
+这次敌人全员是实体加光刃那种对舰刀，所以能互格吧
+
+毕竟村雨和短剑打架那里是不敢互格的，互格主要是剑脉 ...</blockquote>
+按照之前的设定哪怕有实体部分也不应该能互格
+
+按照剧场，出现了好几次纯光剑互格，已经没有圆的余地了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

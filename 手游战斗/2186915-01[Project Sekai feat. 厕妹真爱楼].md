@@ -2740,3 +2740,44 @@ bg和纯豚，看到吞服一体机，自动输入：你磕gl就是为bl战术�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">豪赤，不用专门去wb吃，这就是我们爱撕一的privilege
 
+
+*****
+
+####  qz66618  
+##### 232#       发表于 2024-6-12 10:26
+
+这最新的两个是哪个厕所的投稿，有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DET  
+##### 233#       发表于 2024-6-12 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204502&amp;ptid=2186915" target="_blank">qz66618 发表于 2024-6-12 10:26</a>
+这最新的两个是哪个厕所的投稿，有点意思
+
+—— 来自 S1Fun</blockquote>
+上面一个应该是学校厕，下一个分不出来
+
+
+*****
+
+####  虚无缥缈的分身  
+##### 234#       发表于 2024-6-12 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204502&amp;ptid=2186915" target="_blank">qz66618 发表于 2024-6-12 10:26</a>
+
+这最新的两个是哪个厕所的投稿，有点意思
+
+—— 来自 S1Fun</blockquote>
+丢人厕。zsbd
+
+*****
+
+####  虚无缥缈的分身  
+##### 235#       发表于 2024-6-12 10:37
+
+1969【】和1967高柱有异曲同工之妙，看母女百合凰文被爸爸发现，被警告“不准对你妈有心思”[嘻嘻][泪] 
+

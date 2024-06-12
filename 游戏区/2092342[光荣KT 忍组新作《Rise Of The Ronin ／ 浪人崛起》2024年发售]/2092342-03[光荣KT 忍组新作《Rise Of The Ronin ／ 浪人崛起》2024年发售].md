@@ -16,3 +16,11 @@
 【制作人称《浪人崛起》是光荣特库摩目前销量最好的作品】光荣特库摩在4月末公布的财报文件中表示，《浪人 ...</blockquote>
 应该是指同期销量吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  duraa  
+##### 3227#       发表于 2024-6-12 10:26
+
+已知仁王1销量至少有400w，浪人销量要超仁王1那确实快500w了，但是我怎么那么不信呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

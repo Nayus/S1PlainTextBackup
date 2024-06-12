@@ -98,3 +98,22 @@
 
 不知道还有没有热情做2
 
+
+*****
+
+####  lain2008  
+##### 3901#       发表于 2024-6-12 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65206694&amp;ptid=1652344" target="_blank">chdhdhd 发表于 2024-6-12 12:35</a>
+
+中途反应过来了，原回复也编辑了
+
+夜之仪式1实在是实诚，众筹承诺给内容宁可更新几年都愿意兑现</blockquote>
+是，说错了，夜之仪式2
+
+1那个简直是太良心了。众筹游戏没有比他更良心的了把
+
+这几年更新了多少内容了
+
+完全可以出dlc在卖一次，但是全免费
+

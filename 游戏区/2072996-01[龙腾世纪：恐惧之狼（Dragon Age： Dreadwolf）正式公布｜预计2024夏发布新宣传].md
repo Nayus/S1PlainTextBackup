@@ -4024,3 +4024,46 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 就是选了游戏的开场做演示，这没啥好说的（估计主要是为了把蛋头放出来让大家看一眼，后面他再出现估计要很后面了），很正常。
 
+
+*****
+
+####  aaronluray  
+##### 412#       发表于 2024-6-12 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203317&amp;ptid=2072996" target="_blank">zzy516232108 发表于 2024-6-12 08:56</a>
+
+要我说老粉早该死了，影响gayware赚钱呢，爱玩玩不玩滚。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hidewhite  
+##### 413#       发表于 2024-6-12 09:59
+
+流程就是个砸钱搞演出的一 本 道，但这种思路和效果只能说中规中矩。人物对话什么的至少还相对正常吧， 只能证明创作者还没疯。
+
+战斗部分没技能基本平砍，没啥能看的。
+
+其他能看的东西不多。目前展示出来的内容平庸作品也能具备，说FF16的辱FF16了，人战斗可没这样。顶多对话水平应该是比FF16强。
+
+*****
+
+####  jag0713_plus  
+##### 414#       发表于 2024-6-12 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203347&amp;ptid=2072996" target="_blank">wlhlz 发表于 2024-6-12 08:58</a>
+
+十年没去过那个贴吧了，这两天去看了一眼，这不是已经结晶了吗</blockquote>
+龙腾吧14年已经很那啥了 质量效应吧以前蛋疼帝的时候还是旧版本包容 现在也是被政确人占了 遇到这事也跟着结晶
+
+
+*****
+
+####  jag0713_plus  
+##### 415#       发表于 2024-6-12 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204105&amp;ptid=2072996" target="_blank">aaronluray 发表于 2024-6-12 09:59</a>
+
+我看反驳队员丑的最爱装老粉说 生软一直以来都是这样/生软的女角色基本不能看，搞得我还以为莫姐莱妹二代 ...</blockquote>
+博得一二女角色就挺丑的（增强版加的角色全面碾压旧角色） 龙腾12和质量效应到3那阵是做美女能力还没完全失能 但如果觉得那时候没问题的话 变成现在这样也是必然结果
+

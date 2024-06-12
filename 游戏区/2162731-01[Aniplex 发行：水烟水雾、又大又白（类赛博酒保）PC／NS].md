@@ -634,3 +634,13 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了
 
+
+*****
+
+####  M乔梦  
+##### 62#       发表于 2024-6-12 09:57
+
+这男主居然是男的？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

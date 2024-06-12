@@ -5726,3 +5726,13 @@ F91设定实体盾无敌是什么？
 最强剑和最强枪</blockquote>
 正义独角剑！田中脊髓剑<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hsyg  
+##### 1467#       发表于 2024-6-12 18:58
+
+<blockquote>gundammarkⅡ 发表于 2024-6-12 18:01
+F91设定实体盾无敌是什么？</blockquote>
+学f91（光盾改变战场)设定（seed的)实体盾无敌了
+

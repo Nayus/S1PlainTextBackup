@@ -507,3 +507,25 @@ hima同接转好应该是从作为shaka弟子出场crcup开始，格ゲーおじ
 cover一个棚子才20多亿<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">。
 而且你虹最近还在限制交易阶段，这75亿是给哪家股东交的赎身税啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PureIllusion  
+##### 283#       发表于 2024-6-12 16:26
+
+年初那波已经回购20多亿了，加起来4个studio打水漂
+
+*****
+
+####  karastar  
+##### 284#       发表于 2024-6-12 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65209537&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-6-12 16:13</a>
+
+……
+
+75亿回购股票……
+
+cover一个棚子才20多亿。</blockquote>
+bilibili卖出了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

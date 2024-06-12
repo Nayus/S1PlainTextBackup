@@ -5534,3 +5534,25 @@ sp2然后追加了影分身机能吧。。。
 
 里面就换炉换驾驶舱和换了在高出力时还会变红的骨架等等总之就是变得更强了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  布拉德莱恩  
+##### 1451#       发表于 2024-6-12 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207100&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-12 13:05</a>
+就外观来说，相对于两台贰式外观有变化，两台spec II只有整体的颜色都变得更深，命运spec II天线换主 ...</blockquote>
+醒醒，命运身上从来就不是白色而是灰色，目的是和传统主人公机的白色区别开来，毕竟是恶役<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bartholo4  
+##### 1452#       发表于 2024-6-12 13:21
+
+其实光剑互格挺好解释的
+光剑的光束受立场约束成型
+那对面砍过来的光剑的光束也可以被自己的立场约束格挡
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

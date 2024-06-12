@@ -2735,3 +2735,16 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 你们不要尬黑彩羽只是想把小麦“永远留在身边而已”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lydia5989  
+##### 1721#       发表于 2024-6-12 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204314&amp;ptid=2162354" target="_blank">leleq 发表于 2024-6-12 10:13</a>
+
+你们不要尬黑彩羽只是想把小麦“永远留在身边而已”</blockquote>
+大人q娃时俩人一人掏把琴出来，“走，小雪/小麦，变身了”
+
+小雪小麦的灵魂就从琴里跳出来了
+

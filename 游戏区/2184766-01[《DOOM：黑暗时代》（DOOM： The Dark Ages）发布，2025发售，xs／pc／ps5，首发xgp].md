@@ -907,3 +907,15 @@ id真有过预告后缩水的前科的，预告不能全信
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Existinghomes  
+##### 97#       发表于 2024-6-12 13:21
+
+感觉这代应该不会是永恒那种超高机动性风格了，有点小失望，不过高机动打枪独游这两年也不少，doom本家能探索新方向也挺好
+
+这几年复古打枪游戏大爆发，很期待这作能拿出什么新东西，特别是boss设计上
+
+<img src="https://p.sda1.dev/18/e271502dc5f0b28bcd41c8dabf4ae21e/image.jpg" referrerpolicy="no-referrer">
+

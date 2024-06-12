@@ -5346,3 +5346,13 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 
 到现在还没有正经汉化组做的字幕吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白玫瑰之夜  
+##### 1437#       发表于 2024-6-12 10:19
+
+女角色的烈焰红唇实在是无法释怀，太tmd的丑了，为什么2024年了会有丑成这样的设计啊越想越气了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">志保一出来发现没被祸祸看的顺眼多了
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

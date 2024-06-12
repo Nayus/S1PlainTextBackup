@@ -1069,3 +1069,16 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  makece  
+##### 114#       发表于 2024-6-12 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210315&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-12 17:15</a>
+
+子弹不是直接锯么。。。就算是大师关的血巢毒池双斧子哥也是会生成僵尸让你回复弹药的
+
+会把僵尸打光不生 ...</blockquote>
+我就是卡了 说这些有什么用 
+

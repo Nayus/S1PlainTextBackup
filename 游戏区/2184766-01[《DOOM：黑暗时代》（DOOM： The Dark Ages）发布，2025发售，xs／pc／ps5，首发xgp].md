@@ -1186,3 +1186,16 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 但你刚才说的是子弹血量都不够啊，这句话和毁灭战士永恒的体验是矛盾的，你现在说的火力不够和这游戏的 ...</blockquote>
 子弹血量不够是进场景的自动存档点不够，不是说整个游戏不够。打的很烦躁懒得重开那关了，直接整个游戏扔掉了，就这么简单
 
+
+*****
+
+####  魔法酪饼  
+##### 124#       发表于 2024-6-12 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213700&amp;ptid=2184766" target="_blank">makece 发表于 2024-6-12 21:52</a>
+
+子弹血量不够是进场景的自动存档点不够，不是说整个游戏不够。打的很烦躁懒得重开那关了，直接整个游戏扔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer"> 乐了，别挣扎了，真的去玩玩吧，都说了，不存在这种情况。
+
+下次接单之后把调研先做好，别再闹这种笑话了。
+

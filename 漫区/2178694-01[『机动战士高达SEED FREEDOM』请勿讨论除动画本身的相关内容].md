@@ -5750,3 +5750,24 @@ F91设定实体盾无敌是什么？</blockquote>
 
 这么一想正义的阿隆戴特简直是贪污经费啊，砍不断无正的盾也就罢了，居然还能被无正用光束剑给砍断了
 
+
+*****
+
+####  Znesmoc  
+##### 1469#       发表于 2024-6-12 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65211570&amp;ptid=2178694" target="_blank">kinga 发表于 2024-6-12 19:07</a>
+
+你这么一说的确，ps装甲也随便切啊
+
+这玩意还不会被光剑砍断，真顶级了</blockquote>
+无正的盾是实体+光束双层防护，CE73时候最强配置吧
+
+至于对舰刀给光束军刀砍了这种，这不就是吃了光剑不能对砍结果无正直接越过抗光束涂层直接把剑砍了的亏<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+实体剑还是得看材料了，像PG强袭的卖胶广告里整的那把实体剑就虽然拉风但是就很菜，或者说在预想范围内
+
+外传就能给你整一堆神秘材料，都吹上天了
+
+至于剧场版里这种。。估计就得等设定集给你说道说道了
+

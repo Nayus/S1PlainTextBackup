@@ -4576,3 +4576,29 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 龙腾世纪吧不是标准带风向说多元化好话么，反正出来后即使再拉跨也有同人和蛋头梦女吹嘘，一般玩家老实观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jf8350143  
+##### 461#       发表于 2024-6-12 20:26
+
+笑死了
+
+贪婪之秋2的评论区：战斗系统劣化了，好好地动作向的战斗，干嘛要改成带暂停的即时制
+
+龙腾4的评论区：为什么要把带暂停的即时制改成动作向
+
+
+*****
+
+####  洛亚替身  
+##### 462#       发表于 2024-6-12 20:31
+
+ 本帖最后由 洛亚替身 于 2024-6-12 20:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65212553&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-6-12 20:26</a>
+
+笑死了
+
+贪婪之秋2的评论区：战斗系统劣化了，好好地动作向的战斗，干嘛要改成带暂停的即时制</blockquote>
+贪婪之秋2的确，改成半即时是没想到的.....一代那个战斗优化加动作捕捉，射击反馈感，时停，魔法再加强一波能成个新流派，真就49年入国军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

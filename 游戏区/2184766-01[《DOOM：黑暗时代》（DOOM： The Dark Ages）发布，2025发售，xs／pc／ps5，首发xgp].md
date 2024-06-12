@@ -1102,3 +1102,15 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 
 不过可能超高速战斗下的boss设计不那么好做（ultrakill有不少正面例子但不适合商业游戏参考），降速后可能更方便做交互立回，希望id能把boss战整明白点吧
 
+
+*****
+
+####  魔法酪饼  
+##### 117#       发表于 2024-6-12 21:32
+
+ 本帖最后由 魔法酪饼 于 2024-6-12 21:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65209447&amp;ptid=2184766" target="_blank">makece 发表于 2024-6-12 16:07</a>
+
+子弹血量都不够过不去场景了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 不可能，你玩的是哪门子的doom永恒，机制决定了这游戏绝不会出现这种死档，玩过doom永恒的也绝不会说这种话，你是水军？
+

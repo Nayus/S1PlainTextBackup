@@ -5813,3 +5813,16 @@ F91设定实体盾无敌是什么？</blockquote>
 
 目前看了半个多小时，这脸实在有点过于苍老，作画也难绷，但是从基神夫妇骑摩托车，在飞鸟面前露娜被年长士官吃豆腐，随便找个人妥协（我怀疑这里翻译也有故意的成分）等梗脸都快笑烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 1474#       发表于 2024-6-12 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210958&amp;ptid=2178694" target="_blank">妄想系同盟 发表于 2024-6-12 18:09</a>
+
+正义独角剑！田中脊髓剑</blockquote>
+高达左右手分别换无正头和强自头<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+岂不是和奥米加兽一样强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

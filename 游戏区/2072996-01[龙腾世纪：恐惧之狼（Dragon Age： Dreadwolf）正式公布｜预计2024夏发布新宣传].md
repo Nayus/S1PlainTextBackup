@@ -3934,3 +3934,43 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 看这作本来就很粉丝向，粉丝喜欢也正常，毕竟十年没有游戏正作，靠漫画动画这种衍生维护社群。
 一般有野心的ip都要保持正作独立，对于周边漫画小说这种衍生产品该吃书的吃书，该当不存在的当不存在，不可能让周边运营干涉正作，但DA4新队友大搞周边漫画角色转正，这基本是失去活力的老ip固化社群的路线了。
 
+
+*****
+
+####  Pipcat  
+##### 403#       发表于 2024-6-12 09:28
+
+好无聊的战斗演示，怎么全程就只放一个技能呢？这是开头的部分？
+
+队友指令呢？战场策略呢？技能树呢？
+
+*****
+
+####  Pipcat  
+##### 404#       发表于 2024-6-12 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202542&amp;ptid=2072996" target="_blank">lastimempty 发表于 2024-6-12 03:07</a>
+
+上推看了一些官方的图，感觉演示里打得单调有一部分原因是早期技能都没解锁吧....
+
+ ...</blockquote>
+这个图看上去比演示的好多了，干嘛不放点后期的
+
+
+*****
+
+####  林无德  
+##### 405#       发表于 2024-6-12 09:33
+
+这是梦回龙腾2了吗，问题是干架时这神秘小滑步和软绵绵的感觉，还他妈不如龙腾2呐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁甲钢弹  
+##### 406#       发表于 2024-6-12 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203685&amp;ptid=2072996" target="_blank">Pipcat 发表于 2024-6-12 09:29</a>
+
+这个图看上去比演示的好多了，干嘛不放点后期的</blockquote>
+可能是现在的完成度只能放初期这么一小段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

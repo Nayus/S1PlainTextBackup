@@ -649,3 +649,13 @@ holo去年八月就回归了吧，都快一年了有装扮很正常吧，更何�
 
 之后要是再输葛叶就有点可怜了
 
+
+*****
+
+####  格林卡罗尔  
+##### 296#       发表于 2024-6-12 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+队友全胜赢4分，奈罗花一个人输了5分
+

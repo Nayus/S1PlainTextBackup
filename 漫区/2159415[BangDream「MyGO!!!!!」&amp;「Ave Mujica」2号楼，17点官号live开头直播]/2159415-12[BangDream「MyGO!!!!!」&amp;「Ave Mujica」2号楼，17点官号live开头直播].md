@@ -14530,3 +14530,48 @@ B站现在这么落魄了？怎么不是梅奔，虹馆我记得风评</blockquo
 看了一眼评论，梅奔好像已经被别的场子占了</blockquote>
 梅奔今年刘德华要了
 
+
+*****
+
+####  PDQ4  
+##### 17481#       发表于 2024-6-12 12:34
+
+名单感觉比以前也落魄了，好久没关注了，一个组合唱几首<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+就两三首感觉不是很想去凑B的场子，什么时候开专场演唱会
+
+你B扔花篮真的是流传千古<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 17482#       发表于 2024-6-12 12:35
+
+办不起纯海外的sp以后拼盘就只能这样了
+
+*****
+
+####  基神的强袭自由  
+##### 17483#       发表于 2024-6-12 12:38
+
+希望二次元们给点力把刘德华冲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 17484#       发表于 2024-6-12 12:38
+
+摸摸狗狗
+
+<img src="https://img.saraba1st.com/forum/202406/12/123808sdbzeynkheu7cbwu.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_🌅9️⃣(@KKNK_Ash)_20240612-024939_1800722100778660056_photo.jpg</strong> (293.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 12:38 上传
+
+[https://x.com/KKNK_Ash/status/1800722100778660056](https://x.com/KKNK_Ash/status/1800722100778660056)
+

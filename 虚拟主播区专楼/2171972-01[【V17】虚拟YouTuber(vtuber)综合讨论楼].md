@@ -539,3 +539,14 @@ bilibili卖出了<img src="https://static.saraba1st.com/image/smiley/face2017/00
 bilibili卖出了</blockquote>
 bilibili还剩的那部分能卖这么多吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 286#       发表于 2024-6-12 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210010&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-6-12 16:51</a>
+
+bilibili还剩的那部分能卖这么多吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大概4%吧
+

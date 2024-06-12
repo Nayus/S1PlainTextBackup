@@ -14575,3 +14575,11 @@ B站现在这么落魄了？怎么不是梅奔，虹馆我记得风评</blockquo
 
 [https://x.com/KKNK_Ash/status/1800722100778660056](https://x.com/KKNK_Ash/status/1800722100778660056)
 
+
+*****
+
+####  rslika  
+##### 17485#       发表于 2024-6-12 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">没有sp还有什么必要吗这种up主和海外艺人混一起的抽象活动
+

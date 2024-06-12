@@ -5620,3 +5620,15 @@ sp2然后追加了影分身机能吧。。。
 不是，ce纪元的光剑和其他的不一样，原理一直都是打火机，其他纪元的光剑是气球 ...</blockquote>
 CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，对舰刀这种两端发射口的基本上是激光（镭射/laser），除了命运的阿隆戴特和老虎烈焰的暴风雨只写了光束（beam），大概也是这时起不太计较是否能格挡
 
+
+*****
+
+####  月夜凝雪  
+##### 1458#       发表于 2024-6-12 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207694&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-12 13:53</a>
+CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，对舰刀这种两端发射口的基本上是激光（镭射/las ...</blockquote>
+剧场版明显有新技术，敌方那些机体的光束兵刃很多是固定形状的
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

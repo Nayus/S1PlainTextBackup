@@ -3906,3 +3906,22 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 十年没去过那个贴吧了，这两天去看了一眼，这不是已经结晶了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ak123  
+##### 400#       发表于 2024-6-12 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203317&amp;ptid=2072996" target="_blank">zzy516232108 发表于 2024-6-12 08:56</a>
+
+要我说老粉早该死了，影响gayware赚钱呢，爱玩玩不玩滚。</blockquote>
+你以为基软不想让老粉滚么，但是它做的woke游戏就没一个真的卖座的啊，那自然不敢惹基本盘，骂玩家滚会变成什么样老dice不是通过爹5给它展示过了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 401#       发表于 2024-6-12 09:11
+
+变成arpg了？
+

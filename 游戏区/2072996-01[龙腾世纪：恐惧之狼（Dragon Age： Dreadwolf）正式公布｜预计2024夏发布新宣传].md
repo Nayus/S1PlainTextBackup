@@ -3811,3 +3811,50 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 看了眼龙腾吧,居然在开香槟,是饿坏了吗</blockquote>
 自干社管罢了 之前质量效应那个新吧主和龙腾吧的吧务就在商讨怎么维护社区环境
 
+
+*****
+
+####  風卷豹  
+##### 391#       发表于 2024-6-12 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202987&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-6-12 08:18</a>
+
+有职业（传统的战法贼），有六个背景和四个种族（和审判一样）
+
+—— 来自 S1Fun ...</blockquote>
+能选还好，看演示上来剑、弓箭、魔法都能用我还以为整合了
+
+*****
+
+####  卡拉德利姆  
+##### 392#       发表于 2024-6-12 08:36
+
+你要想想在一个十年没有新作的游戏社区一直混下来的人，已经是结晶人中的结晶人了
+
+*****
+
+####  刻路希  
+##### 393#       发表于 2024-6-12 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65194846&amp;ptid=2072996" target="_blank">西洛克 发表于 2024-6-11 14:42</a>
+
+据说是tor网游还能赚钱？</blockquote>
+那也是奥斯丁分部的事啊，与总部无关，而且当年EA也因命令与征服叛逆者的失利直接拆了westwood的总部保留了分部，是一次机会都没给westwood，只能说EA变温和了，正常情况下生软总部早就坟头草三丈高了，和牛蛙西木头作伴了
+
+
+*****
+
+####  zzy516232108  
+##### 394#       发表于 2024-6-12 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203066&amp;ptid=2072996" target="_blank">jag0713_plus 发表于 2024-6-12 08:29</a>
+自干社管罢了 之前质量效应那个新吧主和龙腾吧的吧务就在商讨怎么维护社区环境 ...</blockquote>
+啊？单机游戏也能社管的吗，不喜欢不看不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  骨于野  
+##### 395#       发表于 2024-6-12 08:44
+
+生软能不能搞个类似星空、cod直面会的形式，这信息量也太少了
+

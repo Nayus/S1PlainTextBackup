@@ -4282,3 +4282,106 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 基本就是ME 2（还要略缩水一些，因为ME 2队友虽然只有三个技能，斜坡是可以有5个的）
 
+
+*****
+
+####  DBMlover  
+##### 437#       发表于 2024-6-12 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">竟然有人认为预告不行能靠演示翻盘，最关键是前期宣传片生软也好意思自夸。屎，但拿ff16来说话不代表ff16就不是一摊了。
+
+*****
+
+####  DawnGuardian  
+##### 438#       发表于 2024-6-12 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205232&amp;ptid=2072996" target="_blank"> jf8350143 发表于 2024-6-12 11:09</a> Pipcat 发表于 2024-6-12 10:49 根据Shinobi602的爆料，这系统越看越像ME 3人小队，无法直接操控队友，更多动作要素，而且能携带的技能很有 ... 看演示是3人小队2个队友，队友无法直接控制，每个人可以带3个技能  基本就是ME 2（还要略缩水一些，因为ME 2队友虽然只有三个技能，斜坡是可以有5个的） </blockquote>
+那不就是仙女座吗，为了照顾主机把技能栏大砍一刀。来自: iPhone客户端
+
+
+*****
+
+####  ak123  
+##### 439#       发表于 2024-6-12 11:23
+
+ 本帖最后由 ak123 于 2024-6-12 11:26 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/12/112157c924ytr9z90oy1d8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612112036.png</strong> (397.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/112157gw7op6yy0i7po5op.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612112101.png</strong> (304.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/112157l6ul0dwcfui6902t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612112026.png</strong> (408.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/112157dsatdggyihhbhffi.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612112121.png</strong> (318.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:21 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/112157rcf4hp6hhhogod7b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612112135.png</strong> (319.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:21 上传
+
+卡通角色，塑料武器，迪士尼建筑，微笑骷髅,就和第一个预告一模一样
+
+还自我驯化预告误导的人眼睛和脑子肯定有一个是出问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺道c位的大概率是默认的男女主角？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jf8350143  
+##### 440#       发表于 2024-6-12 11:25
+
+讲道理，龙腾系列的武器一直都是这个尿性，做的又不好看又不实用
+
+
+*****
+
+####  zzf111  
+##### 441#       发表于 2024-6-12 11:27
+
+<strong>《龙腾世纪：影障守护者》捏人时将有更好的头发 捏人有代词、非二元角色</strong>
+
+生软（BioWare）在角色头发设计方面历来为人诟病。玩家们在创建自己版本的薛帕德 (Shepard) 或霍克 (Hawke) 时通常会因为发型数量少且质量差而感到头疼。
+
+几年前，一位质量效应玩家在Reddit上抱怨道“头发根本不像头发，看起来更像是头上的一个乱糟糟的团块”，其他人则批评头发看起来“假”、“可怕”和“灾难”。
+
+好消息是，龙腾世纪粉丝们，你们的噩梦终于结束了。《龙腾世纪：影障守护者 (Dragon Age: The Veilguard) 》将于今年晚些时候发售，届时将带来大量采用最新物理特效的头发选项。
+
+总监Corinne Busche说：“我们当然知道，每当我们与粉丝互动时，每个人首先问到的都是头发。因此，在发型方面，我们特别关注了提供具有代表性的选项，让每个人都能看到符合他们审美的发型，甚至是渲染方式。”
+
+据Busche，《龙腾世纪：影障守护者》采用了部分源自EA体育游戏的“发丝”技术。头发“完全受物理控制”，因此“动起来比静止时更好看”。
+
+甚至在《龙腾世纪：影障守护者》本周二正式公布前，粉丝们就很快注意到了更新后的发型。在首支预告片的批评声中，一些粉丝注意到了预告中改进后的发型，并对它看起来好了很多表示欣慰，包括注意到它采用了更多的黑人发型，而不是现在老生常谈的Killmonger发型。
+
+<strong>Busche表示，除了发型之外，《龙腾世纪：影障守护者》的角色创建器还提供了大量选项，其中包括一个身体变形器选项，允许玩家根据自己的意愿选择不同的身体尺寸，而且所有选项都是非性别化的。此外，《龙腾世纪：影障守护者》》还包括他们/她们代词选项，以及扮演非二元角色的功能。</strong>
+
+角色创建器是玩家启动《龙腾世纪：影障守护者》后看到的第一批功能之一。除了外观之外，游戏还允许玩家在人类、精灵、矮人 和昆达利 (Qunari) 角色之间进行选择，并提供血统、职业、派系和玩法等附加选项。
+
+Busche说：“对我们来说，非常重要的一点是，每个人都能够在游戏中看到自己，他们理想化的自己或类似的人，而角色创建器确实实现了这一点。”
+

@@ -5410,3 +5410,25 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 
 一听就是LLX
 
+
+*****
+
+####  月夜凝雪  
+##### 1442#       发表于 2024-6-12 11:18
+
+说起来命运二和命运到底有什么区别？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  混乱之雨  
+##### 1443#       发表于 2024-6-12 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205430&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-12 11:18</a>
+
+说起来命运二和命运到底有什么区别？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v3.0.0.8 ...</blockquote>
+更换全周天驾驶舱，优化供能系统，高出力时关节会变红，机体外观细节有部分调整
+

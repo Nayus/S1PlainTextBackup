@@ -59,3 +59,13 @@
 
 还是没有销量数字吗?
 
+
+*****
+
+####  CrazyLain  
+##### 3232#       发表于 2024-6-12 11:25
+
+一直没理解仁王2口碑这么好的游戏为啥销量还比不过后来的卧龙
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

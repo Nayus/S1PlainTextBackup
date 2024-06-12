@@ -3858,3 +3858,34 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 生软能不能搞个类似星空、cod直面会的形式，这信息量也太少了
 
+
+*****
+
+####  jag0713_plus  
+##### 396#       发表于 2024-6-12 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203181&amp;ptid=2072996" target="_blank">zzy516232108 发表于 2024-6-12 08:44</a>
+
+啊？单机游戏也能社管的吗，不喜欢不看不就行了</blockquote>
+主要是龙腾吧的成分也比以前更少数群体化了（出这节奏之前） 老粉们一归来批判政确 这帮人就急了 不把社区维护住 这地盘就要丢了
+
+*****
+
+####  mimighost  
+##### 397#       发表于 2024-6-12 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202592&amp;ptid=2072996" target="_blank">灼眼的蔬菜达人 发表于 2024-6-12 03:53</a>
+
+预告片icu
+
+实机演示转入普通病房
+
+演示开局技能少打起来无聊单调</blockquote>
+嗯，普通病房
+
+预告属于我根本不会去买的类型
+
+实机拉回来一点儿，如果能把solas的事情交代清楚，首发还是可以入一个的
+
+战斗我其实不关心了，能把剧情讲通顺差不多了，这系列也不是可以继续做大的类型了，没新人
+

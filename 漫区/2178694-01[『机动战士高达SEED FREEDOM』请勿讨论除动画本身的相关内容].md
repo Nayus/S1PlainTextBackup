@@ -5372,3 +5372,41 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 
 —— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wuwo2  
+##### 1439#       发表于 2024-6-12 10:41
+
+昨天在B站找的资源看完，感想就是鸟拿了命运后，一点瘪都没吃，一直前格前格前格，有进无退，最后分身大波浪在我看来比飞升自由神棍还爽。
+
+
+*****
+
+####  hcb77  
+##### 1440#       发表于 2024-6-12 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65201755&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-11 23:49</a>
+
+刚看完，第一感想是这个才是Destiny后面原来的剧本吧，
+
+前面的部分在现在的剧场版里有点唐突而且相当快进， ...</blockquote>
+带电池的是强袭的背包
+
+destiny印度洋死斗那边被大螃蟹抓包了换背包就没有回电，是靠脑门充电的
+
+
+*****
+
+####  hcb77  
+##### 1441#       发表于 2024-6-12 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202268&amp;ptid=2178694" target="_blank">妒客 发表于 2024-6-12 01:11</a>
+
+Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更搞笑管他什么物理分身啥理论，够热闹好看就行了~
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">显然大脑可以玩浮游炮台但是开不来人形兵器.JPG
+
+一听就是LLX
+

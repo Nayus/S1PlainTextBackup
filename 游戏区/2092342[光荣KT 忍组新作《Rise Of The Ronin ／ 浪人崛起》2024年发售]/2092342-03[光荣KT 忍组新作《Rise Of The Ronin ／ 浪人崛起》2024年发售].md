@@ -24,3 +24,11 @@
 
 已知仁王1销量至少有400w，浪人销量要超仁王1那确实快500w了，但是我怎么那么不信呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SergeGlenn  
+##### 3228#       发表于 2024-6-12 10:44
+
+这话只能理解成同期最佳，肯定不能理解成累计最多
+

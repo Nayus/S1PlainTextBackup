@@ -1082,3 +1082,11 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 会把僵尸打光不生 ...</blockquote>
 我就是卡了 说这些有什么用 
 
+
+*****
+
+####  mono  
+##### 115#       发表于 2024-6-12 17:52
+
+我草 可以开机器人 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

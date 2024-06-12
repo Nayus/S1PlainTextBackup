@@ -550,3 +550,41 @@ bilibili还剩的那部分能卖这么多吗？<img src="https://static.saraba1s
 bilibili还剩的那部分能卖这么多吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大概4%吧
 
+
+*****
+
+####  渡鸦骑士  
+##### 287#       发表于 2024-6-12 17:47
+
+ 本帖最后由 渡鸦骑士 于 2024-6-12 17:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210093&amp;ptid=2171972" target="_blank">karastar 发表于 2024-6-12 16:57</a>
+大概4%吧</blockquote>
+等一下也就说你b在选择讨好holo迎接holo回来的同时卖掉了ANYCOLOR的全部股份。你虹为了维持股价还自己出钱回购。
+好家伙，搞不好和解费还是虹出的钱是吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 288#       发表于 2024-6-12 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210732&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-6-12 17:47</a>
+
+等一下也就说你b在选择讨好holo迎接holo回来的同时卖掉了ANYCOLOR的全部股份。
+
+好家伙，搞不好和解费还是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">应该就是普通的投资行为，没那么多想法
+
+*****
+
+####  渡鸦骑士  
+##### 289#       发表于 2024-6-12 17:51
+
+ 本帖最后由 渡鸦骑士 于 2024-6-12 17:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210753&amp;ptid=2171972" target="_blank">karastar 发表于 2024-6-12 17:48</a>
+应该就是普通的投资行为，没那么多想法</blockquote>
+你b最近的资金状况又不是什么难猜的事情。
+这不就是典型的换注行为，你虹的股价没有上涨的空间了，不如直接卖了止损换一个还能赚的下注<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+也就是人家不接受注资分股罢了。
+再者，你b难道没想多卖你虹相关的装扮之类的嘛。
+为什么holo一回来就有的东西.png
+

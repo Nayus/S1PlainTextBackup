@@ -4506,3 +4506,16 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 3个主动技能也太少了吧，我玩rpg都是希望技能越多越好，但是现在游戏不知道为啥好像都倾向于减少主动技能<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wgoenitz  
+##### 454#       发表于 2024-6-12 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208288&amp;ptid=2072996" target="_blank">jf8350143 发表于 2024-6-12 14:39</a>
+
+仙女座技能数量其实是变多了，把前作的被动技能全部整合进profile了。
+
+但是一次性能带的技能很少（我记得 ...</blockquote>
+我看有人说不止3个，是3个一组，可以翻页
+

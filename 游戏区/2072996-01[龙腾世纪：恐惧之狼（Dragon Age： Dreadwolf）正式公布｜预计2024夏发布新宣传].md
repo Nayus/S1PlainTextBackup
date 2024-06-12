@@ -4465,3 +4465,36 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 这代就是延续的仙女座的思路，3技能 不再能控制队友放技能。不过仙女座至少还有武器mod 技能自由组合来让 ...</blockquote>
 可以控制队友放技能的，放出来的图里面有，队友各自有3个技能可以选，还可以指示队友攻击某个敌人
 
+
+*****
+
+####  DawnGuardian  
+##### 450#       发表于 2024-6-12 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208193&amp;ptid=2072996" target="_blank"> jf8350143 发表于 2024-6-12 14:30</a> DawnGuardian 发表于 2024-6-12 14:07 这代就是延续的仙女座的思路，3技能 不再能控制队友放技能。不过仙女座至少还有武器mod 技能自由组合来让 ... 可以控制队友放技能的，放出来的图里面有，队友各自有3个技能可以选，还可以指示队友攻击某个敌人 </blockquote>
+没看泄漏图，那样的话还算有点救来自: iPhone客户端
+
+*****
+
+####  真实之影  
+##### 451#       发表于 2024-6-12 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207869&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-6-12 14:07</a>
+
+这代就是延续的仙女座的思路，3技能 不再能控制队友放技能。不过仙女座至少还有武器mod 技能自由组合来让 ...</blockquote>
+仙女座不是扩展了么？职业砍掉一个人能学全部，combo也更多样了
+
+*****
+
+####  jf8350143  
+##### 452#       发表于 2024-6-12 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65208263&amp;ptid=2072996" target="_blank">真实之影 发表于 2024-6-12 14:37</a>
+
+仙女座不是扩展了么？职业砍掉一个人能学全部，combo也更多样了</blockquote>
+仙女座技能数量其实是变多了，把前作的被动技能全部整合进profile了。
+
+但是一次性能带的技能很少（我记得好像是3个还是4个）。
+
+如果能加到6个或者8个的话仙女座的战斗挺好的。
+

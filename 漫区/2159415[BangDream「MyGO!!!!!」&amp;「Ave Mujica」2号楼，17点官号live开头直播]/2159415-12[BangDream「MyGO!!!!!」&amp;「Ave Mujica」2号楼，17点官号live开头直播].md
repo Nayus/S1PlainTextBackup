@@ -14481,3 +14481,30 @@ mujica必然是一个温暖人心的故事
 唉，就算是隔壁某个虚拟女团最火的时候我都没去BML，估计今年要去了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 17476#       发表于 2024-6-12 12:15
+
+真有mujica<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  PDQ4  
+##### 17477#       发表于 2024-6-12 12:22
+
+B站现在这么落魄了？怎么不是梅奔，虹馆我记得风评<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 17478#       发表于 2024-6-12 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">看了眼除了鸡都没兴趣...还是不折腾了，来回机酒太贵了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

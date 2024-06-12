@@ -4415,3 +4415,14 @@ Busche说：“对我们来说，非常重要的一点是，每个人都能够�
 
 算了，这方面我就当你软弃疗了
 
+
+*****
+
+####  ybfelix  
+##### 445#       发表于 2024-6-12 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205482&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-6-12 11:21</a>
+
+那不就是仙女座吗，为了照顾主机把技能栏大砍一刀。</blockquote>
+ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制作方强调动作化吧
+

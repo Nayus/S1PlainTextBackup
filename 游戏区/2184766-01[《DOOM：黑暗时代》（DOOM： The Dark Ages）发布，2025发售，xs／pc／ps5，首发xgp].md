@@ -1161,3 +1161,28 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 但你刚才说的是子弹血量都不够啊，这句话和毁灭战士永恒的体验是矛盾的，你现在说的火力不够和这游戏的 ...</blockquote>
 我菜逼打不准行不行？我卡不好盾哥的输出窗口行不行？
 
+
+*****
+
+####  makece  
+##### 122#       发表于 2024-6-12 21:46
+
+<img src="https://img.saraba1st.com/forum/202406/12/214634k0zzba4dledp0e2z.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240612214615.png</strong> (34.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 21:46 上传
+
+
+*****
+
+####  makece  
+##### 123#       发表于 2024-6-12 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213596&amp;ptid=2184766" target="_blank">魔法酪饼 发表于 2024-6-12 21:43</a>
+
+但你刚才说的是子弹血量都不够啊，这句话和毁灭战士永恒的体验是矛盾的，你现在说的火力不够和这游戏的 ...</blockquote>
+子弹血量不够是进场景的自动存档点不够，不是说整个游戏不够。打的很烦躁懒得重开那关了，直接整个游戏扔掉了，就这么简单
+

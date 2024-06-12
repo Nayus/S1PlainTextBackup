@@ -2844,3 +2844,21 @@ max三岗过了，仍旧没有金
 
 跟舔不舔狗没关系吧，至少游戏水平是真的强，教学视频也是有认真在做的，蜘蛛侠的解说我是觉得挺好的...  
 
+
+*****
+
+####  laosai13  
+##### 4721#       发表于 2024-6-12 21:07
+
+日本那群最强中小学生好像还挺和善的？经常看的奶啤chocopero灭龙哥感觉还行，有时候都感叹他们队友坑成那样输了他们还能怪自己
+
+
+*****
+
+####  Linsdy  
+##### 4722#       发表于 2024-6-12 21:11
+
+<img src="https://p.sda1.dev/18/00ade887ce53e3ba0b61db3b2abafabd/IMG_CMP_89748403.jpeg" referrerpolicy="no-referrer">我也画一个
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

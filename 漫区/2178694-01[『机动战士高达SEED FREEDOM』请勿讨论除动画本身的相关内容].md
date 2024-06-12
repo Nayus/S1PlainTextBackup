@@ -5788,3 +5788,20 @@ F91设定实体盾无敌是什么？</blockquote>
 黑骑士湿婆的那个实体剑，一刀就劈了飞自得盾，那玩意属于顶级实体剑了吧？ ...</blockquote>
 机设说是近距离单挑专用所以武器都是对单体输出高的，但感觉没奥布专属稀有矿石的强自刀吹得厉害
 
+
+*****
+
+####  oi99o  
+##### 1472#       发表于 2024-6-12 21:05
+
+以我昨天转发的那个中日双语字幕（[1416L](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2178694&amp;page=36#pid65199064)）为基础，做了些简单的校对和润色，修正了一些时间轴，添加了《望乡》和《Meteor》两首插曲的字幕（oped字幕已有），应该算是一个比较能看的版本了。时间轴对应亚马逊版本片源
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+[Ioroid] Kidou Senshi Gundam SEED Freedom [AMZN WEB-DL 1080p AVC E-AC3].JPSC.ass
+(459.86 KB, 下载次数: 0)
+
+2024-6-12 21:00 上传
+
+点击文件名下载附件
+

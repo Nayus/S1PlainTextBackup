@@ -4169,3 +4169,68 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 老博得头像我见过是拿员工和家属照片直接改的说法
 
+
+*****
+
+####  Pipcat  
+##### 427#       发表于 2024-6-12 10:49
+
+ 本帖最后由 Pipcat 于 2024-6-12 10:50 编辑 
+
+根据Shinobi602的爆料，这系统越看越像ME
+
+3人小队，无法直接操控队友，更多动作要素，而且能携带的技能很有限？
+
+<img src="https://img.saraba1st.com/forum/202406/12/105008vq9n80ikoan8i24a.png" referrerpolicy="no-referrer">
+
+<strong>GP0Mzo6W4AAcNZU.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 10:50 上传
+
+*****
+
+####  ybfelix  
+##### 428#       发表于 2024-6-12 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204396&amp;ptid=2072996" target="_blank">Hidewhite 发表于 2024-6-12 10:18</a>
+
+博得12的女角色丑大概率不是故意而是绘图风格和能力问题，我记得这里有人发过威世智设定图，博得里的女角色 ...</blockquote>
+我现在是在政确和高饱和度五颜六色撞色间建立强关联。不知道为什么这代欧美玩家就是特别精神“全球南方”，粉的紫的荧光绿的粉末到处撒，感觉个个都是印度那啥彩色节的皈依者，当我是个无趣的黑白纳粹吧，还是十几年前的低饱和grimdark时代好…
+
+*****
+
+####  2014720  
+##### 429#       发表于 2024-6-12 10:50
+
+你们居然觉得这个演示还行?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  假布偶是臭猪  
+##### 430#       发表于 2024-6-12 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65202424&amp;ptid=2072996" target="_blank">蓝雉 发表于 2024-6-12 02:12</a>
+
+看了眼龙腾吧,居然在开香槟,是饿坏了吗</blockquote>
+俺们等3的汉化都等了10年了，都饿死多少次了
+
+*****
+
+####  假布偶是臭猪  
+##### 431#       发表于 2024-6-12 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204617&amp;ptid=2072996" target="_blank">蓝雉 发表于 2024-6-12 10:32</a>
+
+说起来我始终觉得龙腾2的战斗是爽快度和策略性之间的平衡做得非常好的一个思路,可惜没能延续下去 ...</blockquote>
+龙腾2确实蛮好，就是地图太糊弄了，那几个地方来回跑
+
+*****
+
+####  库玛吉  
+##### 432#       发表于 2024-6-12 10:57
+
+看完演示视频，感觉粉丝们这都能预购的话，得是饿成什么样了……
+

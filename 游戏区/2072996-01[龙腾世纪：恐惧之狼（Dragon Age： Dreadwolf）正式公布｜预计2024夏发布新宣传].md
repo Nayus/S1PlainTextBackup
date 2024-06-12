@@ -4454,3 +4454,14 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 角色动作、表情，还有镜头、演出非常丝滑，好多年没看到这样的RPG了
 
+
+*****
+
+####  jf8350143  
+##### 449#       发表于 2024-6-12 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207869&amp;ptid=2072996" target="_blank">DawnGuardian 发表于 2024-6-12 14:07</a>
+
+这代就是延续的仙女座的思路，3技能 不再能控制队友放技能。不过仙女座至少还有武器mod 技能自由组合来让 ...</blockquote>
+可以控制队友放技能的，放出来的图里面有，队友各自有3个技能可以选，还可以指示队友攻击某个敌人
+

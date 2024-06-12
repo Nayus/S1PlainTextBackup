@@ -5632,3 +5632,15 @@ CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1459#       发表于 2024-6-12 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207914&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-12 14:11</a>
+剧场版明显有新技术，敌方那些机体的光束兵刃很多是固定形状的
+
+—— 来自 Xiaomi 23049RAD8C, Android 1 ...</blockquote>
+等详细设定出来才知道，目前模型说明书上都只是简单地写beam
+

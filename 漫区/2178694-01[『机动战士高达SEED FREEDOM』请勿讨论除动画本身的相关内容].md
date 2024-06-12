@@ -5603,3 +5603,20 @@ sp2然后追加了影分身机能吧。。。
 那对面砍过来的光剑的光束也可以被自己的立场约束格挡</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是UC系光剑原理，CE系光剑不是这个原理，所以整部种，大部分种命都没有光剑格挡
 
+
+*****
+
+####  酒石酸唑吡坦  
+##### 1456#       发表于 2024-6-12 13:48
+
+种系光剑看着像互格的其实格的都是武器后的实体刃部分（除非作画失误
+
+*****
+
+####  gundammarkⅡ  
+##### 1457#       发表于 2024-6-12 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207567&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-12 13:44</a>
+不是，ce纪元的光剑和其他的不一样，原理一直都是打火机，其他纪元的光剑是气球 ...</blockquote>
+CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，对舰刀这种两端发射口的基本上是激光（镭射/laser），除了命运的阿隆戴特和老虎烈焰的暴风雨只写了光束（beam），大概也是这时起不太计较是否能格挡
+

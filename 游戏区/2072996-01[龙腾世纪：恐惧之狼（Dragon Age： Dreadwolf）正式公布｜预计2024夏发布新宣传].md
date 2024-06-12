@@ -3889,3 +3889,20 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 战斗我其实不关心了，能把剧情讲通顺差不多了，这系列也不是可以继续做大的类型了，没新人
 
+
+*****
+
+####  zzy516232108  
+##### 398#       发表于 2024-6-12 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203292&amp;ptid=2072996" target="_blank">jag0713_plus 发表于 2024-6-12 08:54</a>
+主要是龙腾吧的成分也比以前更少数群体化了（出这节奏之前） 老粉们一归来批判政确 这帮人就急了 不把社 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说老粉早该死了，影响gayware赚钱呢，爱玩玩不玩滚。
+
+*****
+
+####  wlhlz  
+##### 399#       发表于 2024-6-12 08:58
+
+十年没去过那个贴吧了，这两天去看了一眼，这不是已经结晶了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

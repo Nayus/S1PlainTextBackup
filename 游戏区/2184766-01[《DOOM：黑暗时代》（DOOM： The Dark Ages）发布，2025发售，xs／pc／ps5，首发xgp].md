@@ -1023,3 +1023,14 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 16结束后海登作死拿裁决剑走人，试图想办法弄死地狱的恶魔，然后又开了地狱门，结果就是作死大了不仅让地球被入侵自己也被弄到半死<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 然后slayer从火星逃出去到空间站这段我忘记了，反正整套故事记得是有个作品专门说的
 
+
+*****
+
+####  jumpingchild  
+##### 110#       发表于 2024-6-12 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207608&amp;ptid=2184766" target="_blank">mjzs07 发表于 2024-6-12 13:46</a>
+
+真的有索尼版吗 片里没写啊</blockquote>
+索尼版取消了，因为电子垃圾5在欧美断崖下跌69%，没必要上了
+

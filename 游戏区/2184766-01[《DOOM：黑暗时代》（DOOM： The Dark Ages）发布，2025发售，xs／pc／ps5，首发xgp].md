@@ -1045,3 +1045,14 @@ DOOM好像mod也不多，要是这代能有永恒mod就好了…
 永恒怎么卡关啊？还有啥是大盾哥？</blockquote>
 子弹血量都不够过不去场景了
 
+
+*****
+
+####  JOJO42  
+##### 112#       发表于 2024-6-12 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207608&amp;ptid=2184766" target="_blank">mjzs07 发表于 2024-6-12 13:46</a>
+
+真的有索尼版吗 片里没写啊</blockquote>
+他们官推上写了会登陆ps5
+

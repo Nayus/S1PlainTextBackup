@@ -14737,3 +14737,11 @@ https://nyaa.si/view/1832395
 —— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
 确实，这名单专门去看鸡感觉划不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 17499#       发表于 2024-6-13 07:41
+
+拼盘live本身就没有任何看的价值了
+

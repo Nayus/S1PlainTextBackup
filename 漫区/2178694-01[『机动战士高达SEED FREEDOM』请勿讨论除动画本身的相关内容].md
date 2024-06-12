@@ -5508,3 +5508,29 @@ sp2然后追加了影分身机能吧。。。
 
 网飞版听说比亚马逊版多0.5秒前黑，不过我也不知道哪里有网飞版的资源
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1450#       发表于 2024-6-12 13:05
+
+ 本帖最后由 gundammarkⅡ 于 2024-6-12 13:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205430&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-12 11:18</a>
+
+说起来命运二和命运到底有什么区别？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v3.0.0.8 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/12/125936v6aq8bygnq68q6jb.png" referrerpolicy="no-referrer">
+
+<strong>Destiny_Spec_II_Comparison.png</strong> (614.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 12:59 上传
+
+就外观来说，相对于两台贰式外观有变化，两台spec II只有颜色变得更深，天线换主体的灰色，胸部蓝边和大刀换更浅的浅蓝，但整体形状都是一样的（方便换色出胶<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">）
+有人说命运spec II由白换成灰色是在致敬雷的传说
+
+里面就换炉换驾驶舱和换了在高出力时还会变红的骨架等等总之就是变得更强了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

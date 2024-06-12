@@ -1317,3 +1317,20 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 2024-6-12 19:25 上传
 
+
+*****
+
+####  holoan  
+##### 8999#         楼主| 发表于 2024-6-12 23:44
+
+<blockquote>技をコピーするピンク頭ってこれもうカービィだろ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9000#         楼主| 发表于 2024-6-12 23:59
+
+下个月告知，各种的告知
+
+最直接的暗示了基本就是明示了
+

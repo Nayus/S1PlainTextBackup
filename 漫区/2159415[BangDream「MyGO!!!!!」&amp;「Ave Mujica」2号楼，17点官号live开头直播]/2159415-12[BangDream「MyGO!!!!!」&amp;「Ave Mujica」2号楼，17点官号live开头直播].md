@@ -14724,3 +14724,16 @@ https://nyaa.si/view/1832395
 顺便求直播弹幕</blockquote>
 直播弹幕来回就那些东西，脑补下一样的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PPB3008  
+##### 17498#       发表于 2024-6-13 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65206504&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-6-12 12:24</a>
+
+看了眼除了鸡都没兴趣...还是不折腾了，来回机酒太贵了
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+确实，这名单专门去看鸡感觉划不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

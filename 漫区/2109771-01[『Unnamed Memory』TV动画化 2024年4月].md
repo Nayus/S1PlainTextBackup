@@ -86,3 +86,15 @@
 
 不肯结婚理由是怕出人命，但危险性行为就没问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 143#       发表于 2024-6-12 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65214825&amp;ptid=2109771" target="_blank">花達香奈 发表于 2024-6-12 23:53</a>
+不肯结婚理由是怕出人命，但危险性行为就没问题</blockquote>
+设定上是魔法可以避孕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -5432,3 +5432,14 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v3.0.0.8 ...</blockquote>
 更换全周天驾驶舱，优化供能系统，高出力时关节会变红，机体外观细节有部分调整
 
+
+*****
+
+####  zanber  
+##### 1444#       发表于 2024-6-12 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205498&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-12 11:22</a>
+
+更换全周天驾驶舱，优化供能系统，高出力时关节会变红，机体外观细节有部分调整 ...</blockquote>
+其实主要是更换了黄大河重写的OS和鲁鲁修魔改的骨架吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

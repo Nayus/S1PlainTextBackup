@@ -5716,3 +5716,13 @@ CE系应该说普通单发射口（姑且这么称呼）的光剑是打火机，
 反正开场杂鱼105一个祖传盾挡住了强人的斧头，直接砍不下去。还不如学F91设定实体盾无敌了，光束废掉大家开 ...</blockquote>
 F91设定实体盾无敌是什么？
 
+
+*****
+
+####  妄想系同盟  
+##### 1466#       发表于 2024-6-12 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210857&amp;ptid=2178694" target="_blank">シャル 发表于 2024-6-12 17:58</a>
+最强剑和最强枪</blockquote>
+正义独角剑！田中脊髓剑<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+

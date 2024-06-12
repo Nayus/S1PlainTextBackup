@@ -588,3 +588,16 @@ bilibili还剩的那部分能卖这么多吗？</blockquote>
 再者，你b难道没想多卖你虹相关的装扮之类的嘛。
 为什么holo一回来就有的东西.png
 
+
+*****
+
+####  karastar  
+##### 290#       发表于 2024-6-12 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65210785&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-6-12 17:51</a>
+
+你b最近的资金状况又不是什么难猜的事情。
+
+这不就是典型的换注行为，你虹的股价没有上涨的空间了，不如直 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">holo去年八月就回归了吧，都快一年了有装扮很正常吧，更何况那个装扮也不怎么样。虽然虹增长不如预期但也不算差吧，上市的时候bili就卖出一部分了，感觉就是获利套现了。
+

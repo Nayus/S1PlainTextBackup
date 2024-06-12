@@ -4612,3 +4612,13 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  地方就是咖啡好  
+##### 464#       发表于 2024-6-13 02:52
+
+看坛友讨论动心了，明天去看看贪婪之秋<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BLA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5338,3 +5338,11 @@ Stella的戏份差点笑岔气，想不到后面阿斯兰破读心术那段更�
  ...</blockquote>
 就是福山啊，但基本是老馬修聲線啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">還是有點可惜
 
+
+*****
+
+####  微尘众  
+##### 1436#       发表于 2024-6-12 09:37
+
+到现在还没有正经汉化组做的字幕吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

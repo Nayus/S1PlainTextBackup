@@ -3974,3 +3974,43 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 这个图看上去比演示的好多了，干嘛不放点后期的</blockquote>
 可能是现在的完成度只能放初期这么一小段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  含恨未了切莫死  
+##### 407#       发表于 2024-6-12 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203763&amp;ptid=2072996" target="_blank">铁甲钢弹 发表于 2024-6-12 09:35</a>
+
+可能是现在的完成度只能放初期这么一小段</blockquote>
+生软魔法，启动<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pipcat  
+##### 408#       发表于 2024-6-12 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203763&amp;ptid=2072996" target="_blank">铁甲钢弹 发表于 2024-6-12 09:35</a>
+
+可能是现在的完成度只能放初期这么一小段</blockquote>
+所以，又要搞“BioWare魔法”了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuglv  
+##### 409#       发表于 2024-6-12 09:40
+
+现在批站开始有人吹像FF16，神作<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+不知道该怎么吐槽
+
+
+*****
+
+####  ak123  
+##### 410#       发表于 2024-6-12 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65203763&amp;ptid=2072996" target="_blank">铁甲钢弹 发表于 2024-6-12 09:35</a>
+
+可能是现在的完成度只能放初期这么一小段</blockquote>
+年内就发售的东西怎么还初期?
+

@@ -1272,3 +1272,32 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  77BBC  
+##### 130#       发表于 2024-6-13 00:06
+
+要回归旧式线性探索关卡吗，太好了。我还是不喜欢竞技场堆砌跳跳乐调节，地图探索和遭遇战更有魅力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  PPB3008  
+##### 131#       发表于 2024-6-13 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65214275&amp;ptid=2184766" target="_blank">恶梦再来 发表于 2024-6-12 22:46</a>
+
+永恒本篇打的很爽，但是DLC有点过了，高难度实在打不过骰子BOSS，高机动的同时还要精确瞄准用手柄太痛苦了 ...</blockquote>
+手柄打dlc纯坐牢吧... 
+
+*****
+
+####  novyDC  
+##### 132#       发表于 2024-6-13 00:07
+
+后期是不是会换2016那个盔甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

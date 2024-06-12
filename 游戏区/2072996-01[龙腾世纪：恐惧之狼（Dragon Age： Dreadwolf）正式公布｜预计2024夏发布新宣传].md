@@ -4385,3 +4385,33 @@ md我还以为他们会在一代上请几个动捕优化一下战斗，没想到
 
 Busche说：“对我们来说，非常重要的一点是，每个人都能够在游戏中看到自己，他们理想化的自己或类似的人，而角色创建器确实实现了这一点。”
 
+
+*****
+
+####  Rary  
+##### 442#       发表于 2024-6-12 11:37
+
+很正常，这个总监Busche就是个跨性别者，之前还是个糙汉子，现在已经变成女人了
+
+*****
+
+####  zzf111  
+##### 443#       发表于 2024-6-12 11:40
+
+这个亚裔女精灵捏得像千禧年亚裔女的群体刻板印象那样丑<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛亚替身  
+##### 444#       发表于 2024-6-12 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65204850&amp;ptid=2072996" target="_blank">Pipcat 发表于 2024-6-12 10:49</a>
+
+根据Shinobi602的爆料，这系统越看越像ME
+
+3人小队，无法直接操控队友，更多动作要素，而且能携带的技能很有 ...</blockquote>
+真就三个技能和技能工具人队友
+
+算了，这方面我就当你软弃疗了
+

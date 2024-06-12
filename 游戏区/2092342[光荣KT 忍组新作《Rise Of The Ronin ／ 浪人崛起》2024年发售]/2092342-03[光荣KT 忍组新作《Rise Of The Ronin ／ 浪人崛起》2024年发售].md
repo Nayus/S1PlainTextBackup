@@ -77,3 +77,29 @@
 
 还差一个称号没有，就是那个浪人杀手的首领，要击败玩家获得的那个，现在更新后地图红点也不刷了，有什么办法比较有效率的获得？
 
+
+*****
+
+####  彩虹肥宅  
+##### 3234#       发表于 2024-6-12 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205695&amp;ptid=2092342" target="_blank">Kyo.C 发表于 2024-6-12 11:33</a>
+还差一个称号没有，就是那个浪人杀手的首领，要击败玩家获得的那个，现在更新后地图红点也不刷了，有什么办 ...</blockquote>
+切地图不是能刷新？路上遇到的随机浪人也能鲨
+
+—— 来自 OPPO PGJM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  病態極端  
+##### 3235#       发表于 2024-6-12 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65205545&amp;ptid=2092342" target="_blank">CrazyLain 发表于 2024-6-12 11:25</a>
+
+一直没理解仁王2口碑这么好的游戏为啥销量还比不过后来的卧龙
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 1 ...</blockquote>
+仁王2賣了三百萬份啊，臥龍目前只知道首月賣了一百萬份。
+
+不過臥龍比仁王2賣相更好難度又更低，還有免費demo試玩，如果真超過也不奇怪。
+

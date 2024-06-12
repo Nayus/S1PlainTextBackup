@@ -14321,3 +14321,130 @@ mujica必然是一个温暖人心的故事
 
 [https://x.com/xucinada/status/1800526551857143864](https://x.com/xucinada/status/1800526551857143864)
 
+
+*****
+
+####  御幸一也  
+##### 17471#       发表于 2024-6-12 11:37
+
+[https://www.bilibili.com/video/BV1j7421d72M/](https://www.bilibili.com/video/BV1j7421d72M/)
+
+[https://www.youtube.com/watch?v=Q7HJjrX8wvg](https://www.youtube.com/watch?v=Q7HJjrX8wvg)
+
+李子的考古，小時候的安妮甄選記錄
+
+<img src="https://img.saraba1st.com/forum/202406/12/113004z8uumugm62gi2uui.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 6-10 screenshot.png</strong> (197.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+11歲差不多是最後一年了，再大就不適合參加安妮的甄選了，
+
+但李子就是在最後一次機會裡被選上
+
+<img src="https://img.saraba1st.com/forum/202406/12/113007yk2eeuimjvq9j28k.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 12-26 screenshot.png</strong> (132.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/113008cg9zxx5t1rgz9xka.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 13-18 screenshot.png</strong> (134.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+自由選曲唱的環節李子選了木偶奇遇記的主題曲《當你向星星許願》
+
+因為李子有個小她5歲的妹妹，因為小時候的高燒導致身體不能動也無法說話，
+
+所以李子就把自己許願的心情唱到了這首歌裡
+ <blockquote>當你向星星許願時
+
+星星會一視同仁
+
+心中任何的願望
+
+都將實現
+
+若是你的心在夢境中
+
+沒有要求會太極端
+
+當你向星星許願
+
+就如同夢想家
+
+命運是仁慈的
+
+她將這些帶給她所愛的人
+
+這些他們心底渴望的甜美果實
+
+出乎意料的是
+
+命運走了進來且幫助你渡過難關
+
+當你向星星許願
+
+你的夢想將成真</blockquote>
+
+歌詞非常的……<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+所以李子才會喜歡看星星嗎<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/12/113011w52bbzza5z5acwt8.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 25-54 screenshot.png</strong> (168.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/113013zx8p63466608hebv.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 25-56 screenshot.png</strong> (181.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+和媽媽還有妹妹3個人，從秋田來到東京，在這間屋子裡住了半年
+
+<img src="https://img.saraba1st.com/forum/202406/12/113016rdrz2kdbb414rq20.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 26-15 screenshot.png</strong> (175.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+媽媽好漂亮
+
+<img src="https://img.saraba1st.com/forum/202406/12/113014x4u4768akmxi8408.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 26-7 screenshot.png</strong> (233.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+<img src="https://img.saraba1st.com/forum/202406/12/113020qx7zfrri6x2pl72z.png" referrerpolicy="no-referrer">
+
+<strong>2009年特番 26-42 screenshot.png</strong> (199.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-12 11:30 上传
+
+李子小時候真的好陽角，合照是在正中央，到東京之後家鄉的朋友也會給她加油
+
+總之，考古一下也不錯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+

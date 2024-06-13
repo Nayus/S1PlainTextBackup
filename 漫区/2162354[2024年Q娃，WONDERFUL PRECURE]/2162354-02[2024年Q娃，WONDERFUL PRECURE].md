@@ -2748,3 +2748,20 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 小雪小麦的灵魂就从琴里跳出来了
 
+
+*****
+
+####  石狮鬼  
+##### 1722#       发表于 2024-6-14 01:15
+
+在盯帧的时候发现一个细节
+小麦变身的时候是把画面外框里的蝴蝶结装饰逐一“穿”到身上的
+从头到胸口到脚
+<img src="https://p.sda1.dev/18/7c4fbed35b6a4a80be543fa69d75bfc8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9a107b08d99c61eaa257b92fc6242db4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/83942a4ab8a71e6315f71f09fe6f6f6e/image.jpg" referrerpolicy="no-referrer">
+但是彩羽就没这个待遇，只有胸口爱心吸入外框这一卡
+<img src="https://p.sda1.dev/18/5a53ddd3b9195ac31dc0b557e65c265d/image.jpg" referrerpolicy="no-referrer">
+
+用闪猫粉盒的两位共用的元素不只是白猫，其实还有丝带<img src="https://p.sda1.dev/18/3808bea4ac1d737d4904958794e09cb6/image.jpg" referrerpolicy="no-referrer">
+

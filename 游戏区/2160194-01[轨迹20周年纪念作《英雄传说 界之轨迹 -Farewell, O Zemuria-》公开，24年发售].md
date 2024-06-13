@@ -3709,3 +3709,21 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然可能性几乎没有 但我还是要奶一口比黎2更拉
 
+
+*****
+
+####  we89623  
+##### 389#       发表于 2024-6-13 23:49
+
+中文版什么时候开始预约啊 
+查了下淘宝没找到 都是日版
+
+*****
+
+####  fhegfisg  
+##### 390#       发表于 2024-6-13 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222830&amp;ptid=2160194" target="_blank">唧唧歪歪八卦阵 发表于 2024-6-13 17:32</a>
+ 云豹这张图上的话就让不少人看不太懂了，翻译质量还是稳定输出中</blockquote>
+这汉化质量看得我两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

@@ -1322,3 +1322,21 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 永恒卡关不挺正常的，探索不全子弹乱用不小心进了关卡，在场地里四处逃窜找补给没时间输出，然后输出不行导 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 又来一个，还在场地里四处逃窜找补给，你搞笑呢？
 
+
+*****
+
+####  萩原组土狼p  
+##### 135#       发表于 2024-6-13 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65215161&amp;ptid=2184766" target="_blank">plok201 发表于 2024-6-13 00:35</a>
+
+永恒卡关不挺正常的，探索不全子弹乱用不小心进了关卡，在场地里四处逃窜找补给没时间输出，然后输出不行导 ...</blockquote>
+永恒的锯子在你不满1格的时候会缓慢补充，你就算补给不全进战斗，你也起码有一格的锯子，随便锯个小怪是必定能补满的
+
+*****
+
+####  Emmerich  
+##### 136#       发表于 2024-6-13 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+

@@ -216,3 +216,80 @@
 
 命运本人<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">：自由杀手&amp;之前开正义才会输的
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1501#       发表于 2024-6-13 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65219510&amp;ptid=2178694" target="_blank">sdeplee 发表于 2024-6-13 13:01</a>
+
+我记得好像是TV结束后设定里面找补的？不管怎样他这个军衔上前线倒也没多大问题 中校总参才是最乐的 ...</blockquote>
+并不是TV结束后找补，本身TV画面里基拉所穿的奥布国防军军服就有军衔的变化
+
+<img src="https://img.saraba1st.com/forum/202406/13/133155azkhh8t081huok1v.jpg" referrerpolicy="no-referrer">
+
+<strong>Collage_20240613_132658.jpg</strong> (359.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 13:31 上传
+
+特意找重制版和原版对比视频
+
+<img src="https://img.saraba1st.com/forum/202406/13/133200nxuwpey2uc8ozccl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240613_132142_tv.danmaku.bilibilihd_edit_5995023762405529.jpg</strong> (258.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 13:32 上传
+
+基拉自种命登场以来，穿军服的造型里，军衔是一般MS驾驶员一样的三尉（少尉）
+
+<img src="https://img.saraba1st.com/forum/202406/13/133205mpdxnd6uxiaruvcx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240613_132007_tv.danmaku.bilibilihd_edit_5995028962229486.jpg</strong> (205.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 13:32 上传
+
+到卡嘉莉夺回政权，弥赛亚战役前夕，军服上的军衔则是将军（阿斯兰则是三佐）
+
+<img src="https://img.saraba1st.com/forum/202406/13/133152x4go1rq893gvyerc.jpg" referrerpolicy="no-referrer">
+
+<strong>OMNI_Enforcer_and_Orb_Union_Uniforms_and_Ranks_File_02_(Gundam_Perfect_Files_132.jpg</strong> (139.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 13:31 上传
+
+奥布国防军军衔基本上自卫队那套，基拉在种命最后几话里，相当于卡嘉莉在种三只同盟时一样，作为奥布国防军统帅，军服上的军衔都是将军（但实际上是准将）
+
+*****
+
+####  Piano-Forest  
+##### 1502#         楼主| 发表于 2024-6-13 13:53
+
+[漫游字幕组] Mobile Suit Gundam Seed Freedom 机动战士高达Seed 自由 Webrip 1080p MKV 简繁外挂
+
+magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f
+
+Blu-ray&amp;4K UHD-BD&amp;DVD 𝟏𝟐月𝟐𝟓日发售
+
+*****
+
+####  gundammarkⅡ  
+##### 1503#       发表于 2024-6-13 13:55
+
+ 本帖最后由 gundammarkⅡ 于 2024-6-13 13:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220157&amp;ptid=2178694" target="_blank">cxj649 发表于 2024-6-13 13:45</a>
+拉克丝种命最后是紫衣，那一身紫色裙装好像是紫衣国防委员服的魔改
+
+卡咖喱种命一直是将军衔
+
+基拉种命最后 ...</blockquote>
+对，但奥布的将军似乎是五大家族独享
+基拉在种命最后的军服上军衔是将军（有所区别的是衣领不是将军的金边），但设定仍是准将
+

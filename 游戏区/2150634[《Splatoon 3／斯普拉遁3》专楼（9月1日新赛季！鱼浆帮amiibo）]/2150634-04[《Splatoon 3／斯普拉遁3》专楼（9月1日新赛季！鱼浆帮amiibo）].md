@@ -2862,3 +2862,21 @@ max三岗过了，仍旧没有金
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  墨染白泉  
+##### 4723#       发表于 2024-6-13 11:31
+
+后天就是预选赛赛了啊
+
+<img src="https://img.saraba1st.com/forum/202406/13/113052gdk3bag3bzcc1wdp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-13-11-27-16-33_439a3fec0400f8974d35eed09a31f914.jpg</strong> (491.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 11:30 上传
+
+这比的真格吗
+

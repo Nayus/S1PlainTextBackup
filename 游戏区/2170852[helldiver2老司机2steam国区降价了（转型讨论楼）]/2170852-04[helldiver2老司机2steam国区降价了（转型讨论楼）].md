@@ -104,3 +104,34 @@
 
 还有几十分钟就知道是来个大的还是拉坨大的了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mokou1207  
+##### 4894#       发表于 2024-6-13 17:08
+
+更新了2个G
+
+
+*****
+
+####  kalavinka  
+##### 4895#         楼主| 发表于 2024-6-13 17:14
+
+补丁公告
+
+<img src="https://img.saraba1st.com/forum/202406/13/171435pk8lk99l0dl8wl0z.jpg" referrerpolicy="no-referrer">
+
+<strong>312279dda3cc7cd92b4c9be77f01213fb80e913d.jpg</strong> (1.72 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 17:14 上传
+
+*****
+
+####  kalavinka  
+##### 4896#         楼主| 发表于 2024-6-13 17:16
+
+感觉还行，就是这个爆裂铳 大概如活吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

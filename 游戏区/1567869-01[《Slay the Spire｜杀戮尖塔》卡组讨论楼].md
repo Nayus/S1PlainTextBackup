@@ -62,3 +62,34 @@
 
 2024-6-13 14:47 上传
 
+
+*****
+
+####  玩玩而已  
+##### 475#       发表于 2024-6-13 15:06
+
+ 本帖最后由 玩玩而已 于 2024-6-13 15:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220863&amp;ptid=1567869" target="_blank">杨千fa单推人 发表于 2024-6-13 14:47</a>
+还有救吗，第三层刚开始boss是觉醒者，600血玻璃刀肯定不够砍</blockquote>
+你再删两张不就无限了吗，虽然好像是中和无限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+贼一般是删光五张打击，玻璃刀这种牌拿一张一二层过度就行没必要拿两张，闪亮登场包扎秘密武器这种无色牌基本没用的也不用拿
+
+
+*****
+
+####  举头望明月  
+##### 476#       发表于 2024-6-13 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220863&amp;ptid=1567869" target="_blank">杨千fa单推人 发表于 2024-6-13 14:47</a>
+还有救吗，第三层刚开始boss是觉醒者，600血玻璃刀肯定不够砍</blockquote>
+玻璃刀刃精巧刺击闪亮登场我基本最多就抓一张，没有成长性还影响过牌，本能反应也不如战术大师，不过你别的牌还不错，抓张毒雾和一两张催化就行了，涂毒和残暴天性没有小刀不太堆得动，华丽收场这牌组有点卡手，要没有那几张攻击牌这卡组很舒服的
+
+*****
+
+####  举头望明月  
+##### 477#       发表于 2024-6-13 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220863&amp;ptid=1567869" target="_blank">杨千fa单推人 发表于 2024-6-13 14:47</a>
+还有救吗，第三层刚开始boss是觉醒者，600血玻璃刀肯定不够砍</blockquote>
+刚看漏了计划妥当，那可以拿华丽，虽然我觉得稳定性不如毒
+

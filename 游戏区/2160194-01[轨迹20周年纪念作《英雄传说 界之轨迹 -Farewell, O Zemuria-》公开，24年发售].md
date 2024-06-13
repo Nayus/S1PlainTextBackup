@@ -3302,3 +3302,20 @@ PS5版和pc有什么区别吗，以前都是steam上买的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">剧情我就怕打完给你咚一下，那是真的难受
 
+
+*****
+
+####  byisme001  
+##### 343#       发表于 2024-6-13 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65219046&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-6-13 12:22</a>
+剧情我就怕打完给你咚一下，那是真的难受</blockquote>
+最有可能咚的场景独行月球直接在pv1结尾放出来了，就不太可能咚了
+
+*****
+
+####  卢迪克  
+##### 344#       发表于 2024-6-13 12:35
+
+看有没有支线呗
+

@@ -1404,3 +1404,26 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  希望之异热同心  
+##### 143#       发表于 2024-6-13 12:29
+
+别太妖魔化永恒的切枪，切枪只是增加输出效率又不是不切枪打不死怪，B站还有大佬不切枪通全超狂噩梦大师关的视频呢。
+
+倒是如果连永恒切枪都玩不明白，那黑暗时代这个有盾有链锤明摆着有更多需要连招触发的设计搞不好更难玩懂了
+
+
+*****
+
+####  魔法酪饼  
+##### 144#       发表于 2024-6-13 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65219060&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-13 12:24</a>
+
+火神炮血巢给的，uac基地见到斧子哥的时候已经武器全齐了，真手残可以ssg切bfg秒233
+
+—— 来自 nubia NX ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 啊这，感谢指正，惭愧。。。可能是我前几个月复健的时候没解锁架**式，记错了
+

@@ -123,3 +123,18 @@
 
 还有这催生有点子<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  X(iaolw)S  
+##### 146#       发表于 2024-6-13 12:34
+
+<blockquote>引用第144楼kwin_于2024-06-13 12:24发表的  :
+
+记得之前不是说女主守贞是为了魔力吗，这开幕？我漏了什么还有这催生有点子</blockquote>
+@kwin_
+
+女主活着的唯一目的就是干白毛解放魔法湖里亡国人民的灵魂，为此才需要保存最大实力，达成夙愿后就无所谓了其实，而且失贞后虽然对她有影响但依然是T0级别的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

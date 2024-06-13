@@ -759,3 +759,14 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 难绷，炎热星球还要给类星体再加2.5秒CD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 4914#       发表于 2024-6-13 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222962&amp;ptid=2170852" target="_blank">lzw1990 发表于 2024-6-13 17:44</a>
+
+• 重做了FAF-14飞矛的目标锁定系统，应该会有更出色的性能表现。不过，该系统现在无法瞄准机器人出生点， ...</blockquote>
+飞矛现在各种爽快秒杀
+

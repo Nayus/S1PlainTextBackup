@@ -75,3 +75,24 @@
 
 我总感觉这个ip没什么发展空间啊，原作就是一个蛮荒时代的主机fps，甚至被黄金眼抢了历史地位，玩过360上的续作也看不出有什么特点
 
+
+*****
+
+####  ultraseven  
+##### 53#       发表于 2024-6-14 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226454&amp;ptid=2028224" target="_blank">嘉术2015 发表于 2024-6-13 23:54</a>
+
+我总感觉这个ip没什么发展空间啊，原作就是一个蛮荒时代的主机fps，甚至被黄金眼抢了历史地位，玩过360上的 ...</blockquote>
+什么叫被黄金眼抢了历史地位<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">黄金眼出得更早啊
+
+*****
+
+####  嘉术2015  
+##### 54#       发表于 2024-6-14 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226526&amp;ptid=2028224" target="_blank">ultraseven 发表于 2024-6-14 00:03</a>
+
+什么叫被黄金眼抢了历史地位黄金眼出得更早啊</blockquote>
+因为黄金眼出得更早，所以它在主机fps上的历史地位不如黄金眼
+

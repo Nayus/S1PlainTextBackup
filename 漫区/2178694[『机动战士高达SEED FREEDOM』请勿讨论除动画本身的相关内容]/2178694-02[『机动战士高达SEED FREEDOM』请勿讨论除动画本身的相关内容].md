@@ -323,3 +323,26 @@ Blu-ray&amp;4K UHD-BD&amp;DVD 𝟏𝟐月𝟐𝟓日发售
 高达片里准将已经是很多大佬的军衔了，提坦斯的贾米托夫，奥古的布雷克斯2位领导者都是准将，鸭子到死是个 ...</blockquote>
 一年战争里联邦军可是一堆堆的少将中将大将，提坦斯和奥古只能算联邦军内的军阀派系，鸭子讲话之前只是小打小闹，准将也不算离谱。至于到了CCA的时候，新囧其实组织度都在ZZ打没了，基本上就是一小撮残党了，军衔这东西已经无所谓了
 
+
+*****
+
+####  魔天使  
+##### 1507#       发表于 2024-6-13 14:58
+
+漫游的熟肉出来了
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1508#       发表于 2024-6-13 15:05
+
+ 本帖最后由 gundammarkⅡ 于 2024-6-13 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220579&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-13 14:24</a>
+高达片里准将已经是很多大佬的军衔了，提坦斯的贾米托夫，奥古的布雷克斯2位领导者都是准将，鸭子到死是个 ...</blockquote>
+UC的军衔普遍偏低也经被吐槽很久了，不过贾米托夫后来好像改成上将了（0083准将，0087上将），奥古一开始就那么丁点人起家，倒是像准将的军头只带得动愿造反的手下出走，至于夏亚这军衔，真的不是参考卡扎菲<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+福皇年纪资历在，倒是当指挥官了还要指挥到基层，实在有种机枪位置左移五米的美<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+基拉这个，倒是像代卡嘉莉出阵，也不管军衔只能升到准将，弄个将军的样子做统帅面子上好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

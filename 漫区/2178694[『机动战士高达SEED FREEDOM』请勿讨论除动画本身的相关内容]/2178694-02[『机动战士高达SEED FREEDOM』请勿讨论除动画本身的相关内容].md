@@ -677,3 +677,15 @@ Seed剧场版可以拍得烂，但是绝对不能没有笑点
 
 不过SF2的炉子是什么炉子其实没明说，剧中说这几台机体是用来测试新的核融合炉以及新装备的，但是SF2一身装备全部换新了而命运2的装备全都是旧武器没变，后者还有给其他机体充能的镜头，所以也存在命运2是测试新炉子而SF2用的还是旧的HD炉的可能，这样的话SF2吃瘪就更合理了（同时也能解释命运2那离谱的表现，虽然装备没变但炉子更给力了所以实际性能并不吃亏）
 
+
+*****
+
+####  月夜凝雪  
+##### 1536#       发表于 2024-6-14 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226923&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 00:52</a>
+主要对面的FT装甲不耗电而PS装甲真的是电老虎所以哪怕双方炉子相同这边也要吃一个PS装甲耗电的亏。（**装 ...</blockquote>
+穆拿去用的那把是命运的新装备吧
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

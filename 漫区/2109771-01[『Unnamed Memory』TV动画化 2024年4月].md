@@ -138,3 +138,16 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  kwin_  
+##### 147#       发表于 2024-6-13 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65219205&amp;ptid=2109771" target="_blank">X(iaolw)S 发表于 2024-6-13 12:34</a>
+
+@kwin_
+
+女主活着的唯一目的就是干白毛解放魔法湖里亡国人民的灵魂，为此才需要保存最大实力，失贞会影响魔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">果然，还是因为本身就很强
+

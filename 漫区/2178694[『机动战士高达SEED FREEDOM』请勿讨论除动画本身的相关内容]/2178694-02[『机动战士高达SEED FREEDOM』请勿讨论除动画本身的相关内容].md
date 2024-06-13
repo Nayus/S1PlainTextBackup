@@ -652,3 +652,28 @@ Seed剧场版可以拍得烂，但是绝对不能没有笑点
 
 后半打戏是真的看爽了，目前高达片里看最爽的打戏，又长又多细看也有点东西
 
+
+*****
+
+####  pokemon最爱  
+##### 1534#       发表于 2024-6-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226323&amp;ptid=2178694" target="_blank">sagajytc 发表于 2024-6-13 23:41</a>
+
+看情况就是出力问题，哪怕大家都是无限能源，SF的功率远不如对手，打着打着能源维持不住PS装甲了 ...</blockquote>
+主要对面的FT装甲不耗电而PS装甲真的是电老虎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以哪怕双方炉子相同这边也要吃一个PS装甲耗电的亏。（**装甲虽然省了点电但终究还是常开常耗电的，地联的TPS倒是常态不耗电）
+
+不过SF2的炉子是什么炉子其实没明说，剧中说这几台机体是用来测试新的核融合炉以及新装备的，但是SF2一身装备全部换新了而命运2的装备全都是旧武器没变，后者还有给其他机体充能的镜头，所以也存在命运2是测试新炉子而SF2用的还是旧的HD炉的可能，这样的话SF2吃瘪就更合理了（同时也能解释命运2那离谱的表现，虽然装备没变但炉子更给力了所以实际性能并不吃亏）
+
+*****
+
+####  pokemon最爱  
+##### 1535#       发表于 2024-6-14 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226323&amp;ptid=2178694" target="_blank">sagajytc 发表于 2024-6-13 23:41</a>
+
+看情况就是出力问题，哪怕大家都是无限能源，SF的功率远不如对手，打着打着能源维持不住PS装甲了 ...</blockquote>
+主要对面的FT装甲不耗电而PS装甲真的是电老虎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以哪怕双方炉子相同这边也要吃一个PS装甲耗电的亏。（VP装甲虽然省了点电但终究还是常开常耗电的，地联的TPS倒是常态不耗电）
+
+不过SF2的炉子是什么炉子其实没明说，剧中说这几台机体是用来测试新的核融合炉以及新装备的，但是SF2一身装备全部换新了而命运2的装备全都是旧武器没变，后者还有给其他机体充能的镜头，所以也存在命运2是测试新炉子而SF2用的还是旧的HD炉的可能，这样的话SF2吃瘪就更合理了（同时也能解释命运2那离谱的表现，虽然装备没变但炉子更给力了所以实际性能并不吃亏）
+

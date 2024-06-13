@@ -3727,3 +3727,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
  云豹这张图上的话就让不少人看不太懂了，翻译质量还是稳定输出中</blockquote>
 这汉化质量看得我两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 391#       发表于 2024-6-14 00:32
+
+好经典的云豹式不知所云 没关系 剩下的就靠大脑补充<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

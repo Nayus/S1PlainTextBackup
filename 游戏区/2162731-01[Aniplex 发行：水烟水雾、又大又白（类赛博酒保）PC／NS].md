@@ -644,3 +644,14 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  游蜓  
+##### 63#       发表于 2024-6-14 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65197202&amp;ptid=2162731" target="_blank">sgssk 发表于 2024-6-11 17:20</a>
+
+主题曲出了，很意外地看到了藍月なくる的名字。但看到deco27又觉得心里没底了 ...</blockquote>
+还行吧这个，但是官方放的视频很糊，不会是录屏上来的吧
+

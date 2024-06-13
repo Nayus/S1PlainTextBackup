@@ -743,3 +743,19 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 那套盔甲还挺想要的</blockquote>
 十点更新
 
+
+*****
+
+####  FLZB  
+##### 4913#       发表于 2024-6-13 19:26
+
+难绷，炎热星球还要给类星体再加2.5秒CD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FLZB  
+##### 4913#       发表于 2024-6-13 19:26
+
+难绷，炎热星球还要给类星体再加2.5秒CD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3655,3 +3655,13 @@ WGO
 
 A路线范带队，B路线黎带队，C路线神秘人帽子带队.....
 
+
+*****
+
+####  dio999  
+##### 383#       发表于 2024-6-13 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65224046&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-6-13 19:20</a>
+A路线范带队，B路线黎带队，C路线神秘人帽子带队.....</blockquote>
+城管:那我走？
+

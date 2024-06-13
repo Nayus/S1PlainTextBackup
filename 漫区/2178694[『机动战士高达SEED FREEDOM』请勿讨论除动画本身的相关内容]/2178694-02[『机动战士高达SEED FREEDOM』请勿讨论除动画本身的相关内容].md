@@ -12,3 +12,14 @@
 
 还是说仍然遵守格的不是光束是实体部分的设定？
 
+
+*****
+
+####  oi99o  
+##### 1482#       发表于 2024-6-13 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65213137&amp;ptid=2178694" target="_blank">oi99o 发表于 2024-6-12 21:05</a>
+
+以我昨天转发的那个中日双语字幕（1416L）为基础，做了些简单的校对和润色，修正了一些时间轴，添加了《望 ...</blockquote>
+更新v2，修正歌词的振假名，没有强迫症的也可以不用重下了
+

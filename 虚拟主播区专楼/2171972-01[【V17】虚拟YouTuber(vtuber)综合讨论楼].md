@@ -743,3 +743,12 @@ holo去年八月就回归了吧，都快一年了有装扮很正常吧，更何�
 
 听叶星介绍的意思是要拉不少gta小白来<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  烯丝短尾猫  
+##### 305#       发表于 2024-6-13 21:01
+
+不拉人，就靠vcrgta和stgr的经验者，根本撑不起这个城市的事件运转。
+不如说即便拉了，感觉能填时间的全勤新人也不会很多。
+

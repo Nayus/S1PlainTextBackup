@@ -162,3 +162,14 @@
 
 以前命運的光線充電裝置根本都沒用過，也只得其他人用命脈有用光線裝置叫戰艦幫自己充電，
 
+
+*****
+
+####  sdeplee  
+##### 1497#       发表于 2024-6-13 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216562&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-13 09:11</a>
+
+准将是煌大和在奥布的军衔吧......种命就有了</blockquote>
+我记得好像是TV结束后设定里面找补的？不管怎样他这个军衔上前线倒也没多大问题 中校总参才是最乐的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

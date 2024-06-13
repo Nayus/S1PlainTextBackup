@@ -14745,3 +14745,14 @@ https://nyaa.si/view/1832395
 
 拼盘live本身就没有任何看的价值了
 
+
+*****
+
+####  NODY  
+##### 17500#       发表于 2024-6-13 13:02
+
+【BML2024】Ave mujica 问候视频
+[https://www.bilibili.com/video/BV1sm421L7sC/](https://www.bilibili.com/video/BV1sm421L7sC/)
+
+直接脱面具宣传？
+

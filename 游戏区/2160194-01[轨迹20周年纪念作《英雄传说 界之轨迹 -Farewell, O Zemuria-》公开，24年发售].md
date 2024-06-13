@@ -3336,3 +3336,13 @@ PS5版和pc有什么区别吗，以前都是steam上买的
 
 同步很合理，云豹现在没有接到其他公司的中型作品了，不同步能干嘛又没其他活。过几年估计也倒闭了
 
+
+*****
+
+####  酷乐  
+##### 347#       发表于 2024-6-13 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218913&amp;ptid=2160194" target="_blank">simon~ 发表于 2024-6-13 12:13</a>
+老帖子为啥被BAN了？</blockquote>
+修改进入审核了而已
+

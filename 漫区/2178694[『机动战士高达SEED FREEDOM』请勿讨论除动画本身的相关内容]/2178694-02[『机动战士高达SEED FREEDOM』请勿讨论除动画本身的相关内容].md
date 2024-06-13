@@ -44,3 +44,41 @@
 
 看完了 不愧是大型团建现场 剧情有点过于幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 1485#       发表于 2024-6-13 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65189281&amp;ptid=2178694" target="_blank">diectt 发表于 2024-6-11 03:24</a>
+
+不行，看的我笑死了，真应该放春节档，一边看一边做了点笔记，大部分顺着剧情时间来的，比较零散</blockquote>
+吐槽到位 基本上都是我想说的哈哈哈 后面小鸟喊斯黛拉出来女鬼精神攻击和阿斯兰放卡嘉莉涩图干扰对方这两段把我笑惨了 FT这油腻的老SB真能整活
+ <blockquote>ms队长是个准将，2个战舰舰长是上校，国防部长是个中效，你们这军衔是怎么回事</blockquote>
+
+国防“委员”一看是个中校确实也没绷住，您都中央junwei了才这个军衔，怪不得要搞苦迭塔<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 不过想想现实里卡大佐也就是个大佐。。。
+
+战舰舰长都是上校倒也合理，符合海军定位，基本上航妈级别主力舰舰长也只能是上校。基拉准将也代表着是现场舰载机部队最高指挥官了，OF-5Group Captain 师级干部大队长, 加上拉妖的关系给再加一级当个将军没毛病。
+
+*****
+
+####  洛克萨斯  
+##### 1486#       发表于 2024-6-13 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216541&amp;ptid=2178694" target="_blank">sdeplee 发表于 2024-6-13 09:09</a>
+
+吐槽到位 基本上都是我想说的哈哈哈 后面小鸟喊斯黛拉出来女鬼精神攻击和阿斯兰放卡嘉莉涩图干扰对方这两 ...</blockquote>
+准将是煌大和在奥布的军衔吧......种命就有了
+
+*****
+
+####  洛克萨斯  
+##### 1487#       发表于 2024-6-13 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65215930&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-6-13 07:41</a>
+
+说是全都推给幻象粒子了？
+
+还是说仍然遵守格的不是光束是实体部分的设定？ ...</blockquote>
+看森田繁怎么圆回去
+

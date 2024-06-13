@@ -346,3 +346,11 @@ UC的军衔普遍偏低也经被吐槽很久了，不过贾米托夫后来好像
 
 基拉这个，倒是像代卡嘉莉出阵，也不管军衔只能升到准将，弄个将军的样子做统帅面子上好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 1509#       发表于 2024-6-13 15:28
+
+shin娘都已经自叹老了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">漫游的高达字幕也差不多快到头了吧
+

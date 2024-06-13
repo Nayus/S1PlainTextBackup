@@ -180,3 +180,19 @@ st和fa现在算是什么规律来着，st是换属性没新语音，fa是新语
 st和fa现在算是什么规律来着，st是换属性没新语音，fa是新语音是吧</blockquote>
 是的。但是有特殊的也不好说哦，比如ANYOYO就有新语音，这辣妹社长卸妆了没新语音就会很怪啊（
 
+
+*****
+
+####  江戸前ルナ  
+##### 1087#         楼主| 发表于 2024-6-13 21:34
+
+现在像ST的BBA、社长等腿不是攻击技能的，就穿逆属的原属性专属，直接变硬好多吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 1088#       发表于 2024-6-13 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ST骗钱感太强了，说起来之前小鸟游ST也是明明变化最多，结果语音跟原来一样的（
+

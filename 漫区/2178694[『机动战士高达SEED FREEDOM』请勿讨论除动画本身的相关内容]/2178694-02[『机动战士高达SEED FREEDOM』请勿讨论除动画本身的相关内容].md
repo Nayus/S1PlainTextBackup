@@ -557,3 +557,20 @@ S01E01.mp4_20240613_184802.878.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/13/184836za78mnnn3amslus7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 1526#       发表于 2024-6-13 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223769&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-13 18:50</a>
+
+这还不是一闪而过，持续了大约2秒，</blockquote>
+其实这里比光剑互格更扯，如果不是角度问题或者比例出错的话，发光的位置不是光剑那里
+
+IJ右手抓的是连接光剑的中间，符合狼的习惯，然后左手抓的一端，这里发光的位置是剑柄另一端滑了一点过去那个位置，狼用的是剑柄去顶<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+反正最简单的解法是黑骑士新技术能格了，杂兵那边是真没有格，露娜那边每次和强人相碰都是用的盾，但是这样又和SF做了大量盾挡黑骑士光剑有点对不上
+
+看BD有没有什么说法了，毕竟福田也说这作很赶
+

@@ -14756,3 +14756,21 @@ https://nyaa.si/view/1832395
 
 直接脱面具宣传？
 
+
+*****
+
+####  御幸一也  
+##### 17501#       发表于 2024-6-13 13:12
+
+<img src="https://img.saraba1st.com/forum/202406/13/131045q3fmqymyy4ttt6c2.jpg" referrerpolicy="no-referrer">
+
+<strong>v8RJ9W20240613014623.jpg</strong> (50.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 13:10 上传
+
+[https://quiz-maker.site/quiz/play/v8RJ9W20240613014623](https://quiz-maker.site/quiz/play/v8RJ9W20240613014623)
+
+這quiz笑死了
+

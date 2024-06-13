@@ -428,3 +428,47 @@ UC的军衔普遍偏低也经被吐槽很久了，不过贾米托夫后来好像
 黑骑士说自由正义命运都是旧时代的机体了，那我倒想问问新时代的机体新在什么地方？还能新的过无限能源的核 ...</blockquote>
 装甲，装备，机体性能都是比四天王为代表的3rd系列机体强的
 
+
+*****
+
+####  aptx8285144  
+##### 1517#       发表于 2024-6-13 17:37
+
+穆这一击绝了，这是不是高达历史上第一次一台机体直接把卫星炮干掉?以前是挡卫星炮……
+
+*****
+
+####  洛克萨斯  
+##### 1518#       发表于 2024-6-13 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222882&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-13 17:37</a>
+
+穆这一击绝了，这是不是高达历史上第一次一台机体直接把卫星炮干掉?以前是挡卫星炮…… ...</blockquote>
+只是打烂了中转点
+
+
+*****
+
+####  洛克萨斯  
+##### 1519#       发表于 2024-6-13 17:41
+
+贴吧老哥有才啊<img src="https://static.saraba1st.com/image/smiley/bundam2017/037.png" referrerpolicy="no-referrer">
+
+VJPXSURQD2T61(B}VGB]CQN_tmb.jpg
+(43.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202406/13/174031hiz1fuiufyi5gc9q.jpg" referrerpolicy="no-referrer">
+
+AF@{705Y(2DRXH8KPY4U2]I_tmb.jpg
+(33.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202406/13/174038yd3ytacmjczemy7a.jpg" referrerpolicy="no-referrer">
+

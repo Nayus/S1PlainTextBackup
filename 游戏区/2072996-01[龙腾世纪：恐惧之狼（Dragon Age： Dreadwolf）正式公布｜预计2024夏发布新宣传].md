@@ -4860,3 +4860,11 @@ FF7到FF7RE那种程度是还能叫转型，要是变成FF15了，那其实没�
 
 不过取消romance性别限制补丁也是DAO就有的东西了，只能说真有一批人宁愿写作质量降级也要走那点恋爱线吧
 
+
+*****
+
+####  PROCAINUM  
+##### 489#       发表于 2024-6-13 17:44
+
+PC GAMER究竟有多讨厌DA4，就目前这么一点料，就可以喷那么多，而且每次都是拿博得3对比<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -3002,3 +3002,21 @@ dl，听说国服最近要上了都不敢想象mzk到时候被一堆小鬼追着
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">二次元音乐相关的为啥会有这么多的厕妹啊，神椿也是一堆磕cp的厕妹天天在网易云评论区宝宝你是一个宝宝啊啊啊啊啊
 
+
+*****
+
+####  Herreimu  
+##### 258#       发表于 2024-6-13 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223787&amp;ptid=2186915" target="_blank">Jimlee079 发表于 2024-6-13 18:52</a>
+二次元音乐相关的为啥会有这么多的厕妹啊，神椿也是一堆磕cp的厕妹天天在网易云评论区宝宝你是一个宝宝啊啊 ...</blockquote>
+音游真的有女性玩家；音游受众年龄比想象中低得多；女性玩家社交声音巨tm大
+=&gt;音游成了最适合混厕的发酵罐
+
+*****
+
+####  Herreimu  
+##### 259#       发表于 2024-6-13 19:24
+
+顺便谢谢姐给的量过于致死，本来想着开服号沉没成本有点高，每天还手打三首歌混混月卡分，现在已经恶心到三天没开游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

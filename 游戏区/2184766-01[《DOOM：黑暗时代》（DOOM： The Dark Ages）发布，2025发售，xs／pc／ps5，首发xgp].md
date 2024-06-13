@@ -1427,3 +1427,13 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 —— 来自 nubia NX ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 啊这，感谢指正，惭愧。。。可能是我前几个月复健的时候没解锁架**式，记错了
 
+
+*****
+
+####  zzy516232108  
+##### 145#       发表于 2024-6-13 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切枪要每个武器绑定快捷键，各种按键测了半天实在是有点走出我的舒适区了
+
+我只会q和长按q切
+

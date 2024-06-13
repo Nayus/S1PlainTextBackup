@@ -2974,3 +2974,40 @@ ui字体看上去其实就是黎三换名
 
 —— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仲可怀  
+##### 308#       发表于 2024-6-13 10:26
+
+莫名其妙就发了个中文版发售信息就被审核 游戏发售信息也要审核？ 
+
+*****
+
+####  医生狼多  
+##### 309#         楼主| 发表于 2024-6-13 10:29
+
+草我说怎么这楼突然浮上来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星海坊主  
+##### 310#       发表于 2024-6-13 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星海坊主  
+##### 311#       发表于 2024-6-13 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 312#         楼主| 发表于 2024-6-13 10:34
+
+云豹娱乐宣布，系列最新作《英雄传说 界之轨迹 -告别塞姆利亚-》 中文版将于9月26日与日版同步发售，登陆PS5/PS4平台。 http://t.cn/A6Q7PbiJ ​​​
+

@@ -1351,3 +1351,11 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 把永恒那套战斗逻辑换了吧，高频率切枪取消后摇手都酸了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你可以选择不取消
 
+
+*****
+
+####  Greirat  
+##### 138#       发表于 2024-6-13 10:26
+
+虽然手残坛友甚至无法通关游戏，但他们对这个游戏非常有见解，你必须得听听他的意见
+

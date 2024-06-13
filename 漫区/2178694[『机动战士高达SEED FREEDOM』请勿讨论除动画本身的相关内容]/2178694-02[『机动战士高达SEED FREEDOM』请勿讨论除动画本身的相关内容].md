@@ -305,3 +305,21 @@ Blu-ray&amp;4K UHD-BD&amp;DVD 𝟏𝟐月𝟐𝟓日发售
 
 将官这一级别的军事动作大都是战略层面，这是本子的传统弱项。
 
+
+*****
+
+####  洛克萨斯  
+##### 1505#       发表于 2024-6-13 14:42
+
+目前高达主角最高还是福皇（弗利特·明日野）的中将军衔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zanber  
+##### 1506#       发表于 2024-6-13 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220579&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-13 14:24</a>
+
+高达片里准将已经是很多大佬的军衔了，提坦斯的贾米托夫，奥古的布雷克斯2位领导者都是准将，鸭子到死是个 ...</blockquote>
+一年战争里联邦军可是一堆堆的少将中将大将，提坦斯和奥古只能算联邦军内的军阀派系，鸭子讲话之前只是小打小闹，准将也不算离谱。至于到了CCA的时候，新囧其实组织度都在ZZ打没了，基本上就是一小撮残党了，军衔这东西已经无所谓了
+

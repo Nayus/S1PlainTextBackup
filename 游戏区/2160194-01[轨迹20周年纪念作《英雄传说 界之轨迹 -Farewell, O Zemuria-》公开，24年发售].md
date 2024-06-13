@@ -3499,3 +3499,41 @@ PS5版和pc有什么区别吗，以前都是steam上买的
 
 界之轨迹应该不可能完结的吧，应该又是像闪那样还有一作终结之作的吧
 
+
+*****
+
+####  ravend233  
+##### 366#       发表于 2024-6-13 16:49
+
+<img src="https://img.saraba1st.com/forum/202406/13/164917jordtdzr5damx52o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 16:49 上传
+
+WGO
+
+
+*****
+
+####  Aeons  
+##### 367#       发表于 2024-6-13 16:54
+
+还剩什么特典
+
+*****
+
+####  ravend233  
+##### 368#       发表于 2024-6-13 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些不知道是不是立绘的挂画/海报特典，还有个电击的20周年那个特典吧
+
+*****
+
+####  卢迪克  
+##### 369#       发表于 2024-6-13 16:56
+
+下次别画了
+

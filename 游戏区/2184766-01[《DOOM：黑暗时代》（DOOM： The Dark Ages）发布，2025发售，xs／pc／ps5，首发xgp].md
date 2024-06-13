@@ -1494,3 +1494,15 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 这个是看个人按键习惯吧，我asdf放四指的，反而是把原本shift键改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之异热同心  
+##### 151#       发表于 2024-6-13 16:53
+
+【DOOM永恒废案—未被正式加入的大师关】 [https://www.bilibili.com/video/B ... f2610f35b7fe305f5e2](https://www.bilibili.com/video/BV1q5VMekEgV/?share_source=copy_web&amp;vd_source=3e9acfd81de88f2610f35b7fe305f5e2)
+
+刚B站看到的视频，原来设计的大师关难度和ARC/邪教徒差不多，估计还是设计完发现玩家开发的切枪已经让设计师原本以为的关卡难度报废了，于是后续大师关全是厕所品粪大师了
+
+黑暗时代不知道会不会又整出这种超乎设计师意料之外的玩法呢
+

@@ -36,3 +36,11 @@
 運命を裁く正義の使者</blockquote>
 吃饭，睡觉，打豆豆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sdeplee  
+##### 1484#       发表于 2024-6-13 08:45
+
+看完了 不愧是大型团建现场 剧情有点过于幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

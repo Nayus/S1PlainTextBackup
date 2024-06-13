@@ -1311,3 +1311,14 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 永恒讲究一个以战养战，遇到麻烦的敌人配置就哑火了呗，很容易理解吧
 
+
+*****
+
+####  魔法酪饼  
+##### 134#       发表于 2024-6-13 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65215161&amp;ptid=2184766" target="_blank">plok201 发表于 2024-6-13 00:35</a>
+
+永恒卡关不挺正常的，探索不全子弹乱用不小心进了关卡，在场地里四处逃窜找补给没时间输出，然后输出不行导 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 又来一个，还在场地里四处逃窜找补给，你搞笑呢？
+

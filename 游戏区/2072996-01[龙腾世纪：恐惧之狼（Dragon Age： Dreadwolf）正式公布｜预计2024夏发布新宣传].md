@@ -4657,3 +4657,15 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 BG3才是去年的游戏，那时候已经不可能改方向了
 
+
+*****
+
+####  aruruu  
+##### 469#       发表于 2024-6-13 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216745&amp;ptid=2072996" target="_blank">PROCAINUM 发表于 2024-6-13 09:28</a>
+其实为啥生软就那么想把DA系列变成ARPG，原本还以为BG3的成功能打醒生软，想不到这次更离谱，连队友都不能 ...</blockquote>
+龙腾要是改成回合制一样有人骂的
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

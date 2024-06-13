@@ -1359,3 +1359,22 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 虽然手残坛友甚至无法通关游戏，但他们对这个游戏非常有见解，你必须得听听他的意见
 
+
+*****
+
+####  DawnGuardian  
+##### 139#       发表于 2024-6-13 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217232&amp;ptid=2184766" target="_blank"> barry.allen 发表于 2024-6-13 10:13</a> 铁火辉夜 发表于 2024-6-10 17:10 把永恒那套战斗逻辑换了吧，高频率切枪取消后摇手都酸了 你可以选择不取消 </blockquote>
+不玩切枪取消后摇打个永恒本体应该还凑活，dlc那是打不了一点吧来自: iPhone客户端
+
+
+*****
+
+####  astrayveller  
+##### 140#       发表于 2024-6-13 11:20
+
+2016里切枪还是进阶技巧 永恒直接做进了教程里 肯定是鼓励使用的
+
+— from Xiaomi M2007J1SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

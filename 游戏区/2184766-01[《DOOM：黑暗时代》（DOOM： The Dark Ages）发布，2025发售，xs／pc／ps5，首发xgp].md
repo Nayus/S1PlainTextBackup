@@ -1392,3 +1392,15 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 唯一对切枪有着强烈需求的怪是本体第一次见斧子哥，那时候还没有机枪，打出受创动作之后不切枪取消射击冷却时间输出空间短但也不是打不过，后面有机枪了也没这回事了
 
+
+*****
+
+####  希望之异热同心  
+##### 142#       发表于 2024-6-13 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218416&amp;ptid=2184766" target="_blank">魔法酪饼 发表于 2024-6-13 11:36</a>
+不至于不至于，先不说不切枪的DPS在DLC里也是顶够用的（这游戏怪血少，SSG一枪1600，暴君也就10000血）， ...</blockquote>
+火神炮血巢给的，uac基地见到斧子哥的时候已经武器全齐了，真手残可以ssg切bfg秒233
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

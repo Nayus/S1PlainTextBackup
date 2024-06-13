@@ -3275,3 +3275,30 @@ PS5版和pc有什么区别吗，以前都是steam上买的
 
 老帖子为啥被BAN了？
 
+
+*****
+
+####  光之阶梯  
+##### 340#       发表于 2024-6-13 12:17
+
+竟然同步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RAMDA  
+##### 341#       发表于 2024-6-13 12:19
+
+<blockquote>lost-star 发表于 2024-6-13 11:07
+哈哈，是不是用了ai翻译，然后再二次精修，所以来得及</blockquote>
+考虑到云豹历代的翻译水平，真这么做的话我们大概能玩到汉化水平最高的一代轨迹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  椎名mahuyo  
+##### 342#       发表于 2024-6-13 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">剧情我就怕打完给你咚一下，那是真的难受
+

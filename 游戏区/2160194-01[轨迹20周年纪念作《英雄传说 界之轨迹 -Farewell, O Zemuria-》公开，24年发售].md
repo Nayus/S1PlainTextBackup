@@ -3699,3 +3699,13 @@ A路线范带队，B路线黎带队，C路线神秘人帽子带队.....</blockqu
 
 ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬被喷退网才买的
 
+
+*****
+
+####  alucardcz  
+##### 388#       发表于 2024-6-13 23:38
+
+ 本帖最后由 alucardcz 于 2024-6-13 23:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然可能性几乎没有 但我还是要奶一口比黎2更拉
+

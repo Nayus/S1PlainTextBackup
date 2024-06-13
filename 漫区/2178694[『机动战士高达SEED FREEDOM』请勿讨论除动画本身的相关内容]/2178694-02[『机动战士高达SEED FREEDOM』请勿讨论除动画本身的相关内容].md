@@ -595,3 +595,33 @@ IJ右手抓的是连接光剑的中间，符合狼的习惯，然后左手抓的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  chronicle  
+##### 1529#       发表于 2024-6-13 23:35
+
+大半夜笑出💩来了
+
+Seed剧场版可以拍得烂，但是绝对不能没有笑点
+
+福田选择了一种弹幕最多的打法，我是服气的
+
+*****
+
+####  sagajytc  
+##### 1530#       发表于 2024-6-13 23:39
+
+只能说太欢乐，史黛拉这个我笑出声
+
+
+*****
+
+####  sagajytc  
+##### 1531#       发表于 2024-6-13 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222437&amp;ptid=2178694" target="_blank">Kyo.C 发表于 2024-6-13 16:57</a>
+
+所以只是基础性能上升了，我还以为有什么理念上的变化。</blockquote>
+看情况就是出力问题，哪怕大家都是无限能源，SF的功率远不如对手，打着打着能源维持不住PS装甲了
+

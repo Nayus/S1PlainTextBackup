@@ -3149,3 +3149,82 @@ DLC服装「剑圣黎恩‧舒华泽专用教官服」：将「剑圣」黎恩�
 
 [https://bbs.saraba1st.com/2b/thread-2164203-1-1.html](https://bbs.saraba1st.com/2b/thread-2164203-1-1.html)
 
+
+*****
+
+####  卢迪克  
+##### 326#       发表于 2024-6-13 11:04
+
+你法居然舍得用16g卡带，之前几作都是压在8g以内
+
+<img src="https://img.saraba1st.com/forum/202406/13/110410hew6vdtuv3ws3sfz.png" referrerpolicy="no-referrer">
+
+<strong>2225689.png</strong> (22.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 11:04 上传
+
+*****
+
+####  lost-star  
+##### 327#       发表于 2024-6-13 11:07
+
+哈哈，是不是用了ai翻译，然后再二次精修<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，所以来得及
+
+*****
+
+####  无动于衷  
+##### 328#       发表于 2024-6-13 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217675&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-6-13 10:46</a>
+
+最好的体验其实是ps5玩PS4版，因为ps5版会掉帧</blockquote>
+然而PS4版不会有PS5的读盘优化
+
+*****
+
+####  TheOccuria  
+##### 329#       发表于 2024-6-13 11:07
+
+同..同步
+
+这下不能让懂日文的兄弟们先品了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 330#       发表于 2024-6-13 11:08
+
+怎么中文同步消息把那个高楼炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 331#       发表于 2024-6-13 11:08
+
+还好，PS5版掉帧基本不影响游戏
+
+
+*****
+
+####  新世界的派蒙  
+##### 332#       发表于 2024-6-13 11:12
+
+5版掉帧也就是偶尔5帧浮动这样，完全可以无视，黎轨2的次时代版还比黎1好多了，黎1师姐放S技直接卡成十几帧
+
+而且黎轨这4K貌似还是真4K，如果有大电视可以放大数毛那种，放在今天的PS5日厂游戏里非常难得
+
+*****
+
+####  卢迪克  
+##### 333#       发表于 2024-6-13 11:12
+
+ 本帖最后由 卢迪克 于 2024-6-13 11:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217983&amp;ptid=2160194" target="_blank">lost-star 发表于 2024-6-13 11:07</a>
+
+哈哈，是不是用了ai翻译，然后再二次精修，所以来得及</blockquote>
+陈云云说他们没使用ai工具
+
+承认用ai的是近藤，以前用人工检查剧本，现在用ai检查，十分钟就行了。纯粹法老控用了ai所以交剧本的时间缩短了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

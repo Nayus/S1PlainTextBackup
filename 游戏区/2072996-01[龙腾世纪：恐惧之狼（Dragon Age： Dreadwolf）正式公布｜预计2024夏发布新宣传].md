@@ -4729,3 +4729,11 @@ DAI其实是个很割裂的游戏，主线和队友剧情偏线性，强演出�
 
 当年是开辟多元化的先锋吧，现在不是纯粹的样板戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HATENA  
+##### 476#       发表于 2024-6-13 11:08
+
+什么贪婪之秋2丢掉了那坨又僵硬又无聊的战斗了改投dao那种经典半即时制了？
+

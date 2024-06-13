@@ -45,3 +45,12 @@
 绝地战兵拿到了新战备，却牺牲了无辜的人民，这一切值得吗（看着和空爆火箭筒同级别的玩具战备扪心自问 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不过现在大部分人都在救小孩，要么是故意巨魔想拿地雷的人，要么就是想看箭头能整啥新活的
 
+
+*****
+
+####  xinfengj  
+##### 4889#       发表于 2024-6-13 08:00
+
+<img src="https://p.sda1.dev/18/8298b136584fe7b26c115472f0fff7cb/CMP_20240613075938945.jpg" referrerpolicy="no-referrer">
+啊？这么有信心吗？
+

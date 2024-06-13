@@ -354,3 +354,13 @@ UC的军衔普遍偏低也经被吐槽很久了，不过贾米托夫后来好像
 
 shin娘都已经自叹老了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">漫游的高达字幕也差不多快到头了吧
 
+
+*****
+
+####  notqiao  
+##### 1510#       发表于 2024-6-13 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65221372&amp;ptid=2178694" target="_blank">KDConan 发表于 2024-6-13 15:28</a>
+shin娘都已经自叹老了漫游的高达字幕也差不多快到头了吧</blockquote>
+流水的字幕组 铁打的shinjico 能从头坚持到尾的人非常稀有
+

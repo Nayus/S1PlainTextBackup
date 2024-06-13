@@ -1378,3 +1378,17 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 — from Xiaomi M2007J1SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  魔法酪饼  
+##### 141#       发表于 2024-6-13 11:36
+
+ 本帖最后由 魔法酪饼 于 2024-6-13 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218141&amp;ptid=2184766" target="_blank">DawnGuardian 发表于 2024-6-13 11:18</a>
+
+不玩切枪取消后摇打个永恒本体应该还凑活，dlc那是打不了一点吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 不至于不至于，先不说不切枪的DPS在DLC里也是顶够用的（这游戏怪血少，SSG一枪1600，暴君也就不到20000血），这游戏也还是有难度选择的
+
+唯一对切枪有着强烈需求的怪是本体第一次见斧子哥，那时候还没有机枪，打出受创动作之后不切枪取消射击冷却时间输出空间短但也不是打不过，后面有机枪了也没这回事了
+

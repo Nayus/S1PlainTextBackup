@@ -493,3 +493,28 @@ AF@{705Y(2DRXH8KPY4U2]I_tmb.jpg
  ...</blockquote>
 明显变老的是西蒙兹主任的声音哎
 
+
+*****
+
+####  月夜凝雪  
+##### 1522#       发表于 2024-6-13 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222882&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-13 17:37</a>
+穆这一击绝了，这是不是高达历史上第一次一台机体直接把卫星炮干掉?以前是挡卫星炮…… ...</blockquote>
+DX那个不算吗？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  plok201  
+##### 1523#       发表于 2024-6-13 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216568&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-13 09:12</a>
+
+看森田繁怎么圆回去</blockquote>
+话说重新看了一次，整部片光剑互格的就3个，剑脉和强人斧头，IJ和黑骑士腿刀，命运和黑骑士两把对舰刀
+
+所以挺容易圆的，还是打火机，实体部分互格呗
+

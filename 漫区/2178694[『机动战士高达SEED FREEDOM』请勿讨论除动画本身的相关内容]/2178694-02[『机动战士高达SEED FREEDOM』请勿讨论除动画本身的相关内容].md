@@ -518,3 +518,25 @@ DX那个不算吗？
 
 所以挺容易圆的，还是打火机，实体部分互格呗
 
+
+*****
+
+####  线程召唤使  
+##### 1524#       发表于 2024-6-13 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223419&amp;ptid=2178694" target="_blank">plok201 发表于 2024-6-13 18:23</a>
+
+话说重新看了一次，整部片光剑互格的就3个，剑脉和强人斧头，IJ和黑骑士腿刀，命运和黑骑士两把对舰刀
+
+ ...</blockquote>
+没啥好圆的，随便了
+
+S01E01.mp4_20240613_182811.897.jpg
+(335.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202406/13/182911ut78ibshhgub581h.jpg" referrerpolicy="no-referrer">
+

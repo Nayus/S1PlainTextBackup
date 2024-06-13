@@ -3228,3 +3228,18 @@ DLC服装「剑圣黎恩‧舒华泽专用教官服」：将「剑圣」黎恩�
 
 承认用ai的是近藤，以前用人工检查剧本，现在用ai检查，十分钟就行了。纯粹法老控用了ai所以交剧本的时间缩短了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 334#       发表于 2024-6-13 12:02
+
+持续悲观态度，同步是好事，但是同步就说明文本量不大，那要么就是暴力填坑要么就是还有界2，哦还有一种可能是把打招呼水字数的废话全删了，剧情非常精简，但那可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 335#       发表于 2024-6-13 12:04
+
+我只能说，同步=大概率剧本没大改，大概率依旧是照着一部分两部来，大概率咚，但是这个“咚”也许会有点新意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

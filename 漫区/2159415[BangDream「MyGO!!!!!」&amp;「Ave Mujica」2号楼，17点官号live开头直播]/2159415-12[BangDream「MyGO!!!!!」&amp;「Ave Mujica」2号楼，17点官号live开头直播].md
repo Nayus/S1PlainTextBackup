@@ -14774,3 +14774,27 @@ https://nyaa.si/view/1832395
 
 這quiz笑死了
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17502#       发表于 2024-6-13 16:37
+
+<img src="https://p.sda1.dev/18/79cc803c23c85ba8cd078aedb53260d0/CMP_20240613163737296.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 17503#       发表于 2024-6-13 16:42
+
+<img src="https://img.saraba1st.com/forum/202406/13/164143s21pp6aii3ca06az.jpg" referrerpolicy="no-referrer">
+
+<strong>MHULPZOI`E[XV$N@2AS$J8U.jpg</strong> (78.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 16:41 上传
+
+应该确定龟龟不来了
+

@@ -374,3 +374,24 @@ shin娘都已经自叹老了漫游的高达字幕也差不多快到头了吧</bl
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当年在贪婪在线等popgo发片，然后用10m小水管下种和种命的rmvb档，实际大概100-200k速度，一晃这就20年过去了
 
+
+*****
+
+####  Kyo.C  
+##### 1512#       发表于 2024-6-13 16:34
+
+黑骑士说自由正义命运都是旧时代的机体了，那我倒想问问新时代的机体新在什么地方？还能新的过无限能源的核动力？
+
+
+*****
+
+####  plok201  
+##### 1513#       发表于 2024-6-13 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222167&amp;ptid=2178694" target="_blank">Kyo.C 发表于 2024-6-13 16:34</a>
+
+黑骑士说自由正义命运都是旧时代的机体了，那我倒想问问新时代的机体新在什么地方？还能新的过无限能源的核 ...</blockquote>
+慢放的话很明显了，黑骑士一系基础性能非常高
+
+阿隆戴特砍了N刀才破的防，BOSS那台龙骑兵完胜SF
+

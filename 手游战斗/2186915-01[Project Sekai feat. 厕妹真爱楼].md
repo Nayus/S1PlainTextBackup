@@ -2943,3 +2943,13 @@ bg和纯豚，看到吞服一体机，自动输入：你磕gl就是为bl战术�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  GAdoru  
+##### 253#       发表于 2024-6-13 10:41
+
+我觉得25时整个团都会...[石化R]懂得都懂，[失望R]我真的...想象得到大街上那些人会说“我觉得我有点像mfy/knd/mzk/ena，我抑郁了（或者什么别人也不理解我，或者我爸妈也打击我）什么什么的”[石化R][石化R][石化R]我真的好不希望pjsk出国服[哭惹R][哭惹R][哭惹R]
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

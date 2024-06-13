@@ -364,3 +364,13 @@ shin娘都已经自叹老了<img src="https://static.saraba1st.com/image/smiley/
 shin娘都已经自叹老了漫游的高达字幕也差不多快到头了吧</blockquote>
 流水的字幕组 铁打的shinjico 能从头坚持到尾的人非常稀有
 
+
+*****
+
+####  混乱之雨  
+##### 1511#       发表于 2024-6-13 16:03
+
+ 本帖最后由 混乱之雨 于 2024-6-13 16:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当年在贪婪在线等popgo发片，然后用10m小水管下种和种命的rmvb档，实际大概100-200k速度，一晃这就20年过去了
+

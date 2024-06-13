@@ -3453,3 +3453,31 @@ PS5版和pc有什么区别吗，以前都是steam上买的
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  lain2008  
+##### 361#       发表于 2024-6-13 16:01
+
+这是不是手游那个？打包家用机化么？
+
+
+*****
+
+####  byisme001  
+##### 362#       发表于 2024-6-13 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65221772&amp;ptid=2160194" target="_blank">lain2008 发表于 2024-6-13 16:01</a>
+这是不是手游那个？打包家用机化么？</blockquote>
+是的，就是手游版上主机
+
+*****
+
+####  lain2008  
+##### 363#       发表于 2024-6-13 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65221820&amp;ptid=2160194" target="_blank">byisme001 发表于 2024-6-13 16:05</a>
+
+是的，就是手游版上主机</blockquote>
+法老控算是各个机种移植的最勤快的厂商了，没有之一
+

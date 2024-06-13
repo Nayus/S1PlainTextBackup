@@ -96,3 +96,14 @@
 什么叫被黄金眼抢了历史地位黄金眼出得更早啊</blockquote>
 因为黄金眼出得更早，所以它在主机fps上的历史地位不如黄金眼
 
+
+*****
+
+####  ultraseven  
+##### 55#       发表于 2024-6-14 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226561&amp;ptid=2028224" target="_blank">嘉术2015 发表于 2024-6-14 00:07</a>
+
+因为黄金眼出得更早，所以它在主机fps上的历史地位不如黄金眼</blockquote>
+只有后来的抢先来的历史地位，没有先来的抢后来的历史地位
+

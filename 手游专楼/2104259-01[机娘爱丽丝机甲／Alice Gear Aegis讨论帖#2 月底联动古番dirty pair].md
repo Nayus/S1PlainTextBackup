@@ -196,3 +196,15 @@ st和fa现在算是什么规律来着，st是换属性没新语音，fa是新语
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">ST骗钱感太强了，说起来之前小鸟游ST也是明明变化最多，结果语音跟原来一样的（
 
+
+*****
+
+####  江戸前ルナ  
+##### 1089#         楼主| 发表于 2024-6-13 22:41
+
+ 本帖最后由 江戸前ルナ 于 2024-6-13 22:44 编辑 
+
+新女演员现在不会出得快了，AN快出齐了，ST就是顶AN的位。我猜原本ST可能也要顶FA位的，不过估计之前就换属性和一件衣服没新语音被一堆人喷了阿金可能不敢双UP了。
+
+话说究竟11区找配音成本高不高啊，阿金请的绝大部分都不是一线的还一堆新人，做点新语音就这么难啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（虽然我觉得FA新语音绝大部分都不如原来的
+

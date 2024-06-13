@@ -36,3 +36,18 @@
 
 本来新三部曲按9那样ybd闯关,节奏够紧凑够刺激,一路奇观炸炸炸塌塌塌爽爽爽的强化下去就行了,一路走到底也总比瞻前顾后强.结果没钱还想学顽皮狗玩半开放世界的套路,自曝其短,自取其辱.
 
+
+*****
+
+####  ybfelix  
+##### 50#       发表于 2024-6-13 22:37
+
+|<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65225620&amp;ptid=2028224" target="_blank">|胡说| 发表于 2024-6-13 22:28</a>|
+
+新三部曲一代不如一代.
+
+当初以为9拉开了新古墓的序曲.结果没成想,出道就是巅峰,然后一路下山.
+
+崛起搞半开 ...</blockquote>
+我还记得崛起的所谓开放地图，有块地图区域完成主线后有些收集元素要拿，但出这块区域的路是单向的剧情还给弄塌了，找半天没找到回去的路，上网一查，还真就只能篝火传送点进去，做完支线再坐篝火传出来<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer"> 开放世界有你弄得这么糙的吗 这也太敷衍了
+

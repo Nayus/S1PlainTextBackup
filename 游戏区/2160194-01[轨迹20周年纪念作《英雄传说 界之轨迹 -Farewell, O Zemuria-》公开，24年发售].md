@@ -3691,3 +3691,11 @@ A路线范带队，B路线黎带队，C路线神秘人帽子带队.....</blockqu
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  aimbot  
+##### 387#       发表于 2024-6-13 22:36
+
+ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬被喷退网才买的
+

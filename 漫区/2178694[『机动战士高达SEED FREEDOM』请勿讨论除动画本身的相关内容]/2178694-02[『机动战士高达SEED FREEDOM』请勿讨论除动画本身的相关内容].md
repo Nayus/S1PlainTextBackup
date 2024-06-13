@@ -472,3 +472,11 @@ AF@{705Y(2DRXH8KPY4U2]I_tmb.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/13/174038yd3ytacmjczemy7a.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 1520#       发表于 2024-6-13 17:53
+
+折笠的声线保持得真不错，美玲的声音和当年没啥变化，拉妖的声音感觉都已经有点点苍老的味道（
+

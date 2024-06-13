@@ -3620,3 +3620,22 @@ WGO
 
 本来采访就说可以理解为黎之轨迹3+创之轨迹2
 
+
+*****
+
+####  江口夕  
+##### 379#       发表于 2024-6-13 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222504&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-13 17:03</a>
+这张是挺敷衍的，构图也没啥意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说明这两同个定位，剑女赢
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  Aeons  
+##### 380#       发表于 2024-6-13 18:00
+
+真按阶段a阶段b那就不是一个形式，创轨是交错并行
+

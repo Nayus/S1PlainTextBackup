@@ -1340,3 +1340,14 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  barry.allen  
+##### 137#       发表于 2024-6-13 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65183326&amp;ptid=2184766" target="_blank">铁火辉夜 发表于 2024-6-10 17:10</a>
+
+把永恒那套战斗逻辑换了吧，高频率切枪取消后摇手都酸了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你可以选择不取消
+

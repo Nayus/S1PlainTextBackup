@@ -701,3 +701,32 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 —— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Ashice  
+##### 4909#       发表于 2024-6-13 18:37
+
+可惜没啥新东西
+
+等多更新点新玩具再回坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  發發  
+##### 4910#       发表于 2024-6-13 18:37
+
+看补丁感觉难度上拟人多了，秒杀减少了，但是玩家武装选择上看不出有多少影响
+
+
+*****
+
+####  烈焰舞阳  
+##### 4911#       发表于 2024-6-13 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223605&amp;ptid=2170852" target="_blank">發發 发表于 2024-6-13 18:37</a>
+看补丁感觉难度上拟人多了，秒杀减少了，但是玩家武装选择上看不出有多少影响 ...</blockquote>
+目前来看评论，肉锤据说手感非常好，就是弹药略少缺一些续航，然后肥猫现在说是非常能锁
+
+—— 来自 Xiaomi Redmi K30, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

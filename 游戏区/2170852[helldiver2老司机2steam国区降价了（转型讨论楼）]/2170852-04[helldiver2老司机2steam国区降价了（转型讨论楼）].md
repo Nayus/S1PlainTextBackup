@@ -812,3 +812,14 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 新债券强化剂还不错 飞刀4下一只普通牛
 
+
+*****
+
+####  6x6z6w  
+##### 4920#       发表于 2024-6-14 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226302&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-6-13 23:39</a>
+
+新债券强化剂还不错 飞刀4下一只普通牛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">飞刀这种对单玩具就应该设计成无限弹药+转CD的，结果还只能带8把，开什么玩笑
+

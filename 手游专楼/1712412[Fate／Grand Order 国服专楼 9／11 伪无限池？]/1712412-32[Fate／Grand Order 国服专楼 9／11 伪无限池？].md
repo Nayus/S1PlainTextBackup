@@ -813,3 +813,15 @@ MINI4，实测，没寄，还好，否则要动脑筋换MINI6了</blockquote>
 
 我想去开狂的宝具威力上升，路上有个需要蓝星的节点开不了
 
+
+*****
+
+####  Blackson  
+##### 46461#       发表于 2024-6-13 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65215397&amp;ptid=1712412" target="_blank">hyhaha 发表于 2024-6-13 01:25</a>
+问一下，解锁特殊节点的红星、蓝星、黄星这三种道具要怎么获得？只有打高难给？
+
+我想去开狂的宝具威力上升 ...</blockquote>
+只有打高难和完成任务才给
+

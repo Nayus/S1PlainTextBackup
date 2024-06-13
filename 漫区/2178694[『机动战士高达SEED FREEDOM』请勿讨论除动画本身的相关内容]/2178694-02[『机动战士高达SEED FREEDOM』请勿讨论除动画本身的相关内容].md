@@ -173,3 +173,46 @@
 准将是煌大和在奥布的军衔吧......种命就有了</blockquote>
 我记得好像是TV结束后设定里面找补的？不管怎样他这个军衔上前线倒也没多大问题 中校总参才是最乐的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 1498#       发表于 2024-6-13 13:39
+
+<blockquote>gundammarkⅡ 发表于 2024-6-13 07:20
+運命に抗う自由の翼が
+
+運命を裁く正義の使者
+</blockquote>
+之前卖命运大炮套装的宣传图就给了什么“撕裂命运之力”的中二台词
+
+
+*****
+
+####  cxj649  
+##### 1499#       发表于 2024-6-13 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217289&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-13 10:17</a>
+
+说起来，扎夫特实施军衔以来，除了基拉在奥布时就已经是准将，还有其他将军吗？
+
+另外，卡嘉莉好像在seed ...</blockquote>
+拉克丝种命最后是紫衣，那一身紫色裙装好像是紫衣国防委员服的魔改
+
+卡咖喱种命一直是将军衔
+
+基拉种命最后其实穿戴的是金黄色 将军 衔  而不是绿色的准将 衔
+
+奥布将级只有准将和将军2级
+
+*****
+
+####  酒石酸唑吡坦  
+##### 1500#       发表于 2024-6-13 13:48
+
+裁决命运的正义使者
+
+抵抗命运的自由之翼
+
+命运本人<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">：自由杀手&amp;之前开正义才会输的
+

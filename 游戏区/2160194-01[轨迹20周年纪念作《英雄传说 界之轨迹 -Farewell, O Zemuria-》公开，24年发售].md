@@ -3134,3 +3134,18 @@ DLC服装「剑圣黎恩‧舒华泽专用教官服」：将「剑圣」黎恩�
 在考虑要不然整个ps5玩这个，好像黎2的时候4和5画质差别不算特别大？</blockquote>
 1080和4K的差别还是挺大的，这引擎狗牙优化得不是很好，帧数倒是差别不大
 
+
+*****
+
+####  酷乐  
+##### 325#       发表于 2024-6-13 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217412&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-6-13 10:26</a>
+
+莫名其妙就发了个中文版发售信息就被审核 游戏发售信息也要审核？</blockquote>
+不要随便编辑主楼不懂吗
+
+把链接PM版主求过审吧
+
+[https://bbs.saraba1st.com/2b/thread-2164203-1-1.html](https://bbs.saraba1st.com/2b/thread-2164203-1-1.html)
+

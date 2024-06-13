@@ -4630,3 +4630,30 @@ ME一代甚至是xbox独占了半年啊… 一开始就在主机上。还是制�
 
 贪婪之秋2不知道，1除了那个战斗之外，其余部分可以说是相当的。。。。无聊。。。。，这个评价看上去有点像龙信1，但其实比起龙信1也远不如。
 
+
+*****
+
+####  PROCAINUM  
+##### 466#       发表于 2024-6-13 09:28
+
+其实为啥生软就那么想把DA系列变成ARPG，原本还以为BG3的成功能打醒生软，想不到这次更离谱，连队友都不能控制<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ybfelix  
+##### 467#       发表于 2024-6-13 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65215634&amp;ptid=2072996" target="_blank">地方就是咖啡好 发表于 2024-6-13 02:52</a>
+看坛友讨论动心了，明天去看看贪婪之秋
+
+—— 来自 HUAWEI BLA-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我觉得期待可以放低点。1代战斗手感非常奇怪的… 感觉是需要对上xp才容易欣赏
+
+
+*****
+
+####  卡拉德利姆  
+##### 468#       发表于 2024-6-13 09:37
+
+BG3才是去年的游戏，那时候已经不可能改方向了
+

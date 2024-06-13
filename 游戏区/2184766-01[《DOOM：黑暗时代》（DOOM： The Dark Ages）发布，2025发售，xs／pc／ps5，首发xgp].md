@@ -1460,3 +1460,16 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">永恒改键让我养成了按tab近战的习惯，从此玩其他FPS近战刀人的时候总是快人一步（大部分fps近战按v），这就是毁灭战士给我的自信233
 
+
+*****
+
+####  zzy516232108  
+##### 148#       发表于 2024-6-13 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65220974&amp;ptid=2184766" target="_blank">希望之异热同心 发表于 2024-6-13 14:56</a>
+
+永恒改键让我养成了按tab近战的习惯，从此玩其他FPS近战刀人的时候总是快人一步（大部分fps近战按v），这 ...</blockquote>
+我都是侧键近战的，以前V键从来想不到要按，改成侧键就是一梭打完上去一枪托，枪拳雷三合一
+
+-
+

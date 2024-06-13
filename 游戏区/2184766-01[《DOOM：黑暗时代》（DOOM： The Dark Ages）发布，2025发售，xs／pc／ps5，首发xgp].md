@@ -1473,3 +1473,16 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 -
 
+
+*****
+
+####  希望之异热同心  
+##### 149#       发表于 2024-6-13 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65221878&amp;ptid=2184766" target="_blank">zzy516232108 发表于 2024-6-13 16:10</a>
+
+我都是侧键近战的，以前V键从来想不到要按，改成侧键就是一梭打完上去一枪托，枪拳雷三合一
+
+- ...</blockquote>
+对，V键近战真的一点都不舒服，按麻烦而且还容易按错
+

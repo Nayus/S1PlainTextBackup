@@ -3020,3 +3020,17 @@ dl，听说国服最近要上了都不敢想象mzk到时候被一堆小鬼追着
 
 顺便谢谢姐给的量过于致死，本来想着开服号沉没成本有点高，每天还手打三首歌混混月卡分，现在已经恶心到三天没开游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 260#       发表于 2024-6-13 20:20
+
+💫💿Connect Live 『RESONANCE BEATS!!』
+演出倒计时登陆活动开启🎉
+
+北京时间6月12日23时起，3天内每天登陆可获得「虚拟硬币×100」🎁 
+
+#世界计划 多彩舞台#
+<img src="https://p.sda1.dev/18/9387d966fda2f7fca8abff748711fce9/image.jpg" referrerpolicy="no-referrer">
+

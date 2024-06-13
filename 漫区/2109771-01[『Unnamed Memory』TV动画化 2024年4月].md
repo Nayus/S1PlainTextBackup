@@ -98,3 +98,18 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  X(iaolw)S  
+##### 144#       发表于 2024-6-13 08:55
+
+<blockquote>引用第141楼花達香奈于2024-06-12 23:53发表的  :
+
+不肯结婚理由是怕出人命，但危险性行为就没问题</blockquote>
+@花達香奈
+
+王族结婚就是为了留后，女主的王权思想比男主更根深蒂固的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

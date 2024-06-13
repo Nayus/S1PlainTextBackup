@@ -3107,3 +3107,30 @@ DLC服装「剑圣黎恩‧舒华泽专用教官服」：将「剑圣」黎恩�
 
 在考虑要不然整个ps5玩这个，好像黎2的时候4和5画质差别不算特别大？
 
+
+*****
+
+####  卢迪克  
+##### 322#       发表于 2024-6-13 10:46
+
+都是基于ps4开发，没什么区别
+
+*****
+
+####  Squall25  
+##### 323#       发表于 2024-6-13 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217611&amp;ptid=2160194" target="_blank">Ditfran 发表于 2024-6-13 10:42</a>
+在考虑要不然整个ps5玩这个，好像黎2的时候4和5画质差别不算特别大？</blockquote>
+最好的体验其实是ps5玩PS4版，因为ps5版会掉帧
+
+*****
+
+####  新世界的派蒙  
+##### 324#       发表于 2024-6-13 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65217611&amp;ptid=2160194" target="_blank">Ditfran 发表于 2024-6-13 10:42</a>
+
+在考虑要不然整个ps5玩这个，好像黎2的时候4和5画质差别不算特别大？</blockquote>
+1080和4K的差别还是挺大的，这引擎狗牙优化得不是很好，帧数倒是差别不大
+

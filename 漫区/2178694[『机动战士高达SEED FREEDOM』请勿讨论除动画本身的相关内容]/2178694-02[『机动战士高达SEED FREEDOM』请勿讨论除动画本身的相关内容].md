@@ -395,3 +395,36 @@ shin娘都已经自叹老了漫游的高达字幕也差不多快到头了吧</bl
 
 阿隆戴特砍了N刀才破的防，BOSS那台龙骑兵完胜SF
 
+
+*****
+
+####  洛克萨斯  
+##### 1514#       发表于 2024-6-13 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65221078&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-13 15:05</a>
+
+UC的军衔普遍偏低也经被吐槽很久了，不过贾米托夫后来好像改成上将了（0083准将，0087上将），奥古一开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能说是亲王吧，不过好像一直没说过有多少人知道煌大和是卡嘉莉弟弟
+
+*****
+
+####  Kyo.C  
+##### 1515#       发表于 2024-6-13 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222232&amp;ptid=2178694" target="_blank">plok201 发表于 2024-6-13 16:40</a>
+
+慢放的话很明显了，黑骑士一系基础性能非常高
+
+阿隆戴特砍了N刀才破的防，BOSS那台龙骑兵完胜SF ...</blockquote>
+所以只是基础性能上升了，我还以为有什么理念上的变化。
+
+*****
+
+####  洛克萨斯  
+##### 1516#       发表于 2024-6-13 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222167&amp;ptid=2178694" target="_blank">Kyo.C 发表于 2024-6-13 16:34</a>
+
+黑骑士说自由正义命运都是旧时代的机体了，那我倒想问问新时代的机体新在什么地方？还能新的过无限能源的核 ...</blockquote>
+装甲，装备，机体性能都是比四天王为代表的3rd系列机体强的
+

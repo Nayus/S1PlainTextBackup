@@ -1526,3 +1526,13 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 20320#       发表于 2024-6-13 18:08
+
+马斯克真是个大聪明啊，直接lock掉账户对外的点赞信息，解开设置都没有？？
+
+现在图bot的点赞都看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

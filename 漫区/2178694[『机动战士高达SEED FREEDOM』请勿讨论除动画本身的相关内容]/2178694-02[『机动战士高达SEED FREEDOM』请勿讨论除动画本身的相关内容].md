@@ -480,3 +480,16 @@ AF@{705Y(2DRXH8KPY4U2]I_tmb.jpg
 
 折笠的声线保持得真不错，美玲的声音和当年没啥变化，拉妖的声音感觉都已经有点点苍老的味道（
 
+
+*****
+
+####  线程召唤使  
+##### 1521#       发表于 2024-6-13 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223058&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-13 17:53</a>
+
+折笠的声线保持得真不错，美玲的声音和当年没啥变化，拉妖的声音感觉都已经有点点苍老的味道（
+
+ ...</blockquote>
+明显变老的是西蒙兹主任的声音哎
+

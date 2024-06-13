@@ -3744,3 +3744,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">黎二被人诟病的其中一点是不推进主线，没什么新内容。
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">界就不会。也许有点失礼，但事实上就是只要搬出什么至宝，结社计划，女神，狂讲设定有一部分玩家就会满意的，这种完结作只要不是剧情恶心人到出圈那种，哪怕烂风评也会比中间作强。
 
+
+*****
+
+####  nerugigannte  
+##### 393#       发表于 2024-6-14 07:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同步不同步无所谓反正玩日文版，同步了是不是日版还能便宜点
+

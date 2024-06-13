@@ -839,3 +839,37 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 梦回雌鬼刚去世的日子，喷火器又站起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 4923#       发表于 2024-6-14 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226302&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-6-13 23:39</a>
+
+新债券强化剂还不错 飞刀4下一只普通牛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">飞刀这种对单玩具就应该设计成无限弹药+转CD的，结果还只能带8把，开什么玩笑
+
+*****
+
+####  蓝色的眷念  
+##### 4924#       发表于 2024-6-14 03:11
+
+巨兽牛多了后打起来好烦，拿类星体遛牛压力一下大起来了
+
+*****
+
+####  FLZB  
+##### 4925#       发表于 2024-6-14 03:17
+
+梦回雌鬼刚去世的日子，喷火器又站起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  normalli  
+##### 4926#       发表于 2024-6-14 07:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222962&amp;ptid=2170852" target="_blank">lzw1990 发表于 2024-6-13 17:44</a>
+• 重做了FAF-14飞矛的目标锁定系统，应该会有更出色的性能表现。不过，该系统现在无法瞄准机器人出生点， ...</blockquote>
+史诗级增强，现在飞矛能稳定锁了，可以很好的远距离处理重型敌人，兵营处理办法多的是，都不会动的玩意。
+

@@ -4748,3 +4748,14 @@ DAI其实是个很割裂的游戏，主线和队友剧情偏线性，强演出�
 主要是不知道为啥，以前的龙腾世纪追求的美感，很明显是想尽量接近指环王电影那种质感，史诗、厚重、大气磅 ...</blockquote>
 当然是玩堡垒之夜、apex、瓦罗兰特的那一代人长大啦
 
+
+*****
+
+####  地方就是咖啡好  
+##### 478#       发表于 2024-6-13 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216770&amp;ptid=2072996" target="_blank">ybfelix 发表于 2024-6-13 09:31</a>
+
+我觉得期待可以放低点。1代战斗手感非常奇怪的… 感觉是需要对上xp才容易欣赏 ...</blockquote>
+云了一下，感觉还行找时间试试<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+

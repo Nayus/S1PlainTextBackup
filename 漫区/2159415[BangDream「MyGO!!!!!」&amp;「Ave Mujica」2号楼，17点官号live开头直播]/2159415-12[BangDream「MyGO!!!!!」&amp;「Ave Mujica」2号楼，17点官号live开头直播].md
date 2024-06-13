@@ -14819,3 +14819,40 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 没查到鸡的批文，可能不是B站申报的？
 
+
+*****
+
+####  御幸一也  
+##### 17506#       发表于 2024-6-13 21:58
+
+下期ras全員
+
+<img src="https://img.saraba1st.com/forum/202406/13/215815e3xxpx47mmg74x43.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #220 1-4-32 screenshot.jpg</strong> (369.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 21:58 上传
+
+*****
+
+####  PDQ4  
+##### 17507#       发表于 2024-6-13 21:58
+
+下周邦TV RAS集合，好羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17508#       发表于 2024-6-13 22:00
+
+草，吉田不知道是不认识还是不会读Timoris，i83外语水平最高的一集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 17509#       发表于 2024-6-13 22:03
+
+不会要七月份那场演完才一起上吧
+

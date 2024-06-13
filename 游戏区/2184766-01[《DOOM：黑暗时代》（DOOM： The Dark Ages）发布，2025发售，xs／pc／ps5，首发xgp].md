@@ -1486,3 +1486,11 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 - ...</blockquote>
 对，V键近战真的一点都不舒服，按麻烦而且还容易按错
 
+
+*****
+
+####  FuckSCUT  
+##### 150#       发表于 2024-6-13 16:28
+
+这个是看个人按键习惯吧，我asdf放四指的，反而是把原本shift键改了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

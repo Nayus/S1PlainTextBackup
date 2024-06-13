@@ -4805,3 +4805,20 @@ DAI其实是个很割裂的游戏，主线和队友剧情偏线性，强演出�
 
 其实DA2的动作化我觉得还行，尤其是玩大剑的话，但是4这个实机演示的战斗反正我是完全没看出有什么吸引人的点
 
+
+*****
+
+####  initium  
+##### 483#       发表于 2024-6-13 16:32
+
+<img src="https://p.sda1.dev/18/41826144984b052db7a9853941621e2d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  jf8350143  
+##### 484#       发表于 2024-6-13 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了踩龙腾世纪，连博德3那一坨屎的playersexual也要拉出来吹是提供多样性没有抹杀异性恋吗
+

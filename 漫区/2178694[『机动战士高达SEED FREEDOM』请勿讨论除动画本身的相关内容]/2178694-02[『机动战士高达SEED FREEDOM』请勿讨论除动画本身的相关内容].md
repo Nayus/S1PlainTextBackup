@@ -574,3 +574,14 @@ IJ右手抓的是连接光剑的中间，符合狼的习惯，然后左手抓的
 
 看BD有没有什么说法了，毕竟福田也说这作很赶
 
+
+*****
+
+####  七七見奈波  
+##### 1527#       发表于 2024-6-13 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222426&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-13 16:56</a>
+
+总不能说是亲王吧，不过好像一直没说过有多少人知道煌大和是卡嘉莉弟弟 ...</blockquote>
+紫菜头都知道，这事起码大家族之间瞒不住
+

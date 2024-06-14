@@ -2890,3 +2890,16 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  laosai13  
+##### 4725#       发表于 2024-6-14 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218350&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-6-13 11:31</a>
+
+后天就是预选赛赛了啊
+
+这比的真格吗</blockquote>
+这个感觉还挺经常，会有直播吗
+

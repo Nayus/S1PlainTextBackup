@@ -261,3 +261,18 @@
 
 活动剧情看完了，下一章是东方快车谋杀案？要怎么把唐吉诃德融进去呢
 
+
+*****
+
+####  Jamaisvu  
+##### 756#       发表于 2024-6-14 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65227013&amp;ptid=2120922" target="_blank">kurihayn 发表于 2024-6-14 01:06</a>
+
+活动剧情看完了，下一章是东方快车谋杀案？要怎么把唐吉诃德融进去呢</blockquote>
+四号线后的W列车谋杀案和这次一样属于6.5间章，小唐是第七个大章节“梦之终结”的主角。
+
+不过3.5之后的间章（去海边、圣诞节）都会让下章主角出场并给张新卡，而且小唐第一个三星人格就是W列车清理员，估计会有不少剧情吧。
+
+东方快车谋杀案是一个死者一车凶手，要我设计的话就让小唐等车的时候淘气把W列车上的现状还原装置弄坏了，到站之后就是一个凶手一车死者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

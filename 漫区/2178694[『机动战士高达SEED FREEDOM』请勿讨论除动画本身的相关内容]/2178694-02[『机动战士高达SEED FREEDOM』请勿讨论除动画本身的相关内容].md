@@ -1205,3 +1205,22 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 
 铁血 X 倒A这种有战后元素的作品，攀科技一半得靠挖文物，就不太好量化了。
 
+
+*****
+
+####  aptx8285144  
+##### 1582#       发表于 2024-6-14 16:38
+
+<blockquote>香雨香香 发表于 2024-6-14 00:29
+之前专楼说这片是喜剧，我还想着真有这么好笑吗，刚才看完了只能说确实好好笑，人物、台词以及剧情怎么能这 ...</blockquote>
+也不完全只是评论拉克丝出击，潜入的时候美玲搞黑客时自言自语说要赶快搞定还挺可爱的（
+
+*****
+
+####  gundammarkⅡ  
+##### 1583#       发表于 2024-6-14 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65233295&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-14 16:29</a>
+种子最bug的地方还是科技攀的实在太快了，CE75-CE71，战争期间1年2代，和平期间2年1代的军备竞赛速度，非凡 ...</blockquote>
+其实种命开始时已经是CE73年的10月2日，破碎世界事件后就没给出具体时间，结束时是CE74年，鉴于对毁灭时都柏林是冬季，到剧场版的CE75年其实一年都不到，可能种命结束就马上自由强夺事件了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15113,3 +15113,19 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 我已經等不及7/7要看初祥放閃了，拜託一定要有配信阿
 
+
+*****
+
+####  御幸一也  
+##### 17537#       发表于 2024-6-14 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">夭壽 完全忘了還沒說會有配信這回事
+
+
+*****
+
+####  kivz  
+##### 17538#       发表于 2024-6-14 23:42
+
+怎么还没到2025，急急急<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -1492,3 +1492,21 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 
 之後廿年地球軍才能量產出一批能戰的雜兵，這前提還要自己做了軍部高層，最後更以槍和血殺到最高點(PSP版有年青福皇從軍的部份內容)，再廿年後3代時，福皇退下，而當年的AGE2也是他上位前後才能量產及編隊完成，基本上是AGE2打完後但未到AGE3，雙方的雜兵戰才算打到有來有往
 
+
+*****
+
+####  zxtree  
+##### 1604#       发表于 2024-6-14 23:38
+
+人画的不如天使龙，大头娃娃，只有几张能看的
+
+
+*****
+
+####  恩莱科  
+##### 1605#       发表于 2024-6-14 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65237999&amp;ptid=2178694" target="_blank">zxtree 发表于 2024-6-14 23:38</a>
+人画的不如天使龙，大头娃娃，只有几张能看的</blockquote>
+不是说赶工么，这样也不足为奇了。而且平井脸要的就是这味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

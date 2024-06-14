@@ -1156,3 +1156,18 @@ ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不�
 种系必秒铁血（错乱）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ft装甲基本已经免疫射击武器了（同样能被实弹影响，免疫光束），除了部分无法防御的大杀器，对应纳米涂层和钢钉的关系
 
+
+*****
+
+####  X(iaolw)S  
+##### 1578#       发表于 2024-6-14 14:55
+
+<blockquote>引用第1569楼洛克萨斯于2024-06-14 13:42发表的  :
+
+pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能还是很充足的......</blockquote>
+@洛克萨斯
+
+荣耀背包应该不防实弹的，一开始站桩让对面大小光束随便biubiubiu，到小飞艇导弹雨时就赶紧全屏锁定开大打下来了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

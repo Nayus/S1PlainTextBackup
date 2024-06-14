@@ -4879,3 +4879,19 @@ PC GAMER究竟有多讨厌DA4，就目前这么一点料，就可以喷那么多
 其实DA2的动作化我觉得还行，尤其是玩大剑的话，但是4这个实机演示的战斗反正我是完全没看出有什么吸引人的 ...</blockquote>
 DA2就是最好的处理方法了，保持基础系统不变大幅强化动作演出，完美解决1代痛点
 
+
+*****
+
+####  某雷  
+##### 491#       发表于 2024-6-14 14:54
+
+<img src="https://img.saraba1st.com/forum/202406/14/145411jku5xskxp5t5bpxn.png" referrerpolicy="no-referrer">
+
+<strong>FCC02A64A1BCE455352BED2FCC10B843.png</strong> (88.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 14:54 上传
+
+你们生软写手玩过DA吗？
+

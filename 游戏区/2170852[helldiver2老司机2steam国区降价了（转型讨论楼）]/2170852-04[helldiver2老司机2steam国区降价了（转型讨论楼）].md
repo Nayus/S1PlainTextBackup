@@ -939,3 +939,34 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 但是8把属实不太够用，我42亿飞刀呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 4935#       发表于 2024-6-14 14:08
+
+什么飞刀杀牛？飞矛变毒刺？难道真的好起来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 4936#       发表于 2024-6-14 14:22
+
+新护甲还是有bug，虽然说了提高瞄准速度，但第一人称下瞄准完全没变化<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真是箭头传统艺能
+
+*****
+
+####  Znesmoc  
+##### 4937#       发表于 2024-6-14 15:09
+
+无限手雷bug还是能卡出来，找个能打断自己动画的玩意在扔出最后一个手雷的时候给自己来一下就行。。
+
+感觉是底层代码上修不好这bug了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山风短  
+##### 4938#       发表于 2024-6-14 15:26
+
+一个多月没玩了，来点东西线一键配装，晚上爽爽去<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

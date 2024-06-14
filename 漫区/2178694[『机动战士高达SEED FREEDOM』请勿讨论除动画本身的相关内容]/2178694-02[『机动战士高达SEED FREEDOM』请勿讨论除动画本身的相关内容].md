@@ -1299,3 +1299,29 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  香雨香香  
+##### 1590#       发表于 2024-6-14 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228213&amp;ptid=2178694" target="_blank">qwemiku 发表于 2024-6-14 09:36</a>
+
+拉克丝被真牛？万代都不敢想这种剧情出现
+
+—— 来自 samsung SM-S9080, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+天使龙里面是不是有真牛来着，不过不重要，反正乐子都这么大了，干脆再整点劲爆点的啊，弄点ntr文学最后再苦主基拉暴打黄毛，多爽的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  香雨香香  
+##### 1591#       发表于 2024-6-14 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65233404&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 16:38</a>
+
+也不完全只是评论拉克丝出击，潜入的时候美玲搞黑客时自言自语说要赶快搞定还挺可爱的（ ...</blockquote>
+我是看完全凭印象说得，记错记漏也可能，见谅见谅
+
+我也觉得美玲挺可爱的，露娜美玲这对姐妹花真是各有各的好，阿斯兰虽然又渣又下头，但真要弄个阿斯兰后宫把姐妹花都收了我也挺喜闻乐见的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

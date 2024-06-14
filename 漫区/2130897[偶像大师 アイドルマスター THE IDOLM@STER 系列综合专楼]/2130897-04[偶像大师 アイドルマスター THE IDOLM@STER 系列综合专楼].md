@@ -10992,3 +10992,16 @@ cgss是比較現象級的遊戲吧，估計不少新世代都有玩過cgss
 
 惊！对sc动画低分不满，高山指使黑客攻击niconico
 
+
+*****
+
+####  游蜓  
+##### 5466#       发表于 2024-6-14 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231962&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-6-14 14:39</a>
+
+你百的周年服，真是神秘的叠加态，衣服设计感有的，单又觉得跟时髦不沾边。
+
+还是那么纯正百万味。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">本次过膝袜肉腿好顶赞
+

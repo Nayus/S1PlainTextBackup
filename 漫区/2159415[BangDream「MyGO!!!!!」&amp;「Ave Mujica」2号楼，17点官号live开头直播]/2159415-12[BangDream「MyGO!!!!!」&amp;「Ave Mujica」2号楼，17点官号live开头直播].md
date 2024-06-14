@@ -15008,3 +15008,20 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 这次不能约个巨美的曲绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 17526#       发表于 2024-6-14 21:46
+
+除了黑色生日还有那首乱码外没一个曲绘是我喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17527#       发表于 2024-6-14 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">我有預感這又是初祥曲，誰贊成誰反對
+
+感覺整首歌都二人世界了，比angles還要那個……
+

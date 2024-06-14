@@ -3869,3 +3869,26 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  宛若青空  
+##### 406#       发表于 2024-6-14 21:46
+
+オリジナルDLC衣装 (ルーファス&amp;ラピス専用)
+「黒の仮面&amp;ローゼンベルクドレス」
+
+オリジナルDLC衣装 (アルティナ専用)
+「閃の軌跡Ⅳ」ver.旅装束
+
+这都是以前的服装设计再利用啊，我怀疑大少拉碧丝这两套就是创轨那两套改改就拿出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（话说为什么你们两个绑定在一起
+
+*****
+
+####  ravend233  
+##### 407#       发表于 2024-6-14 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会大少和拉比斯算一个可控角色吧，直接连体人了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

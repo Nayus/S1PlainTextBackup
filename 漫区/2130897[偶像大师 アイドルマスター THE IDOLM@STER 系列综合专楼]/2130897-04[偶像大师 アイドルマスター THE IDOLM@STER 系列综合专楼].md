@@ -11118,3 +11118,13 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 谢谢玻璃钢的监控室镜头，让我回想起传奇宿管臭作安装摄像头的峥嵘岁月，小时候最喜欢的一集
 
+
+*****
+
+####  Ask_10A  
+##### 5478#       发表于 2024-6-15 03:27
+
+<img src="https://p.sda1.dev/18/8f818f5aab971dda3d61fde10dfcae1c/CMP_20240615032635875.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/fd4466c16f1f4c136354b06399303c09/Image_1718393129079.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -839,3 +839,18 @@ ffta2还是挺好玩的。
 #曝最终幻想战略版复刻开发中# 业界知名记者 Jason Schreier 在Reddit的游戏泄密板块中表示，《最终幻想战 ...</blockquote>
 吉田直树就算了，别把FFT续作也坑成粪作了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  戏言学者  
+##### 86#       发表于 2024-6-14 12:13
+
+卧槽吉田，不会是3d重制吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫将军  
+##### 87#       发表于 2024-6-14 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3d素材在ff14里已经用了。要是真的是ff14那种3d模型可以直接死刑了
+

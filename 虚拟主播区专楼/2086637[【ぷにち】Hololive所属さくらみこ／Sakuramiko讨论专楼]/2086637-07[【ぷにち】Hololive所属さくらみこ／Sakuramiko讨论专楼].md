@@ -1374,3 +1374,18 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 可以出香水，香薰之类的吧
 
+
+*****
+
+####  holoan  
+##### 9005#         楼主| 发表于 2024-6-14 12:00
+
+B那个收藏包的音声，听完了才知道，原来如此，难怪她们本人自己都不知道自己被卖到B了，cover这一手搞的
+
+*****
+
+####  karastar  
+##### 9006#       发表于 2024-6-14 12:10
+
+怎么说，是用以前录制的音声吗，还有不知道吗，我以为通知过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

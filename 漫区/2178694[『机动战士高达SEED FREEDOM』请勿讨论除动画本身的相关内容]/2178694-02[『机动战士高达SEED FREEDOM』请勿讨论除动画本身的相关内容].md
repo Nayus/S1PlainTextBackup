@@ -970,3 +970,16 @@ ft装甲还有一定实弹抗性，太扯淡了</blockquote>
 以FT装甲直接控制飞米领域这么个水滴设定考虑才这点实弹抗性已 ...</blockquote>
 ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不动，尺寸够大电力拉满是最强的防护装甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 1563#       发表于 2024-6-14 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65229849&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 11:49</a>
+
+ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不动，尺寸够大电力拉满是最强的防护装甲 ...</blockquote>
+PS装甲當年設定就給了耗電嚴重問題，所以之後才衍生TPS或V(這也是禁語?)這類東補西拆的新裝甲
+
+另外還有隱性的金屬疲勞問題，正常用可能不明顯，但如果想進一步抗光束再加抗BEAM塗層(種時代實體盾牌那些)，一星期就已經玩完
+

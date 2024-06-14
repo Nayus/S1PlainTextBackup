@@ -3034,3 +3034,23 @@ dl，听说国服最近要上了都不敢想象mzk到时候被一堆小鬼追着
 #世界计划 多彩舞台#
 <img src="https://p.sda1.dev/18/9387d966fda2f7fca8abff748711fce9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Limpidity  
+##### 261#       发表于 2024-6-14 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">太久没玩烤 有些已经看不懂了 太冲了
+
+
+*****
+
+####  JetBrains  
+##### 262#       发表于 2024-6-14 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223787&amp;ptid=2186915" target="_blank">Jimlee079 发表于 2024-6-13 18:52</a>
+二次元音乐相关的为啥会有这么多的厕妹啊，神椿也是一堆磕cp的厕妹天天在网易云评论区宝宝你是一个宝宝啊啊 ...</blockquote>
+神椿真有这么多厕妹吗，相比这个小巫见大巫吧，我真没怎么看到，别的 IP 却看到很多
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

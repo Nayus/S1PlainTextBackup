@@ -755,3 +755,31 @@ Seed剧场版可以拍得烂，但是绝对不能没有笑点
 主要对面的FT装甲不耗电而PS装甲真的是电老虎所以哪怕双方炉子相同这边也要吃一个PS装甲耗电的亏。（VP装 ...</blockquote>
 ft装甲还有一定实弹抗性，太扯淡了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凤舞夜月  
+##### 1543#       发表于 2024-6-14 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228226&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 09:37</a>
+
+ft装甲还有一定实弹抗性，太扯淡了</blockquote>
+毕竟收集了四大天王机子，再加上搞到点SF的资料，算是三代机打二代机吧。
+
+同为三代机的飞升自由因为偷袭+团队克制+不是核能，吃瘪。
+
+SF2因为还是二代机也一样吃瘪了，要不是靠开挂背包，结局还真不好说。
+
+
+*****
+
+####  洛克萨斯  
+##### 1544#       发表于 2024-6-14 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228249&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-6-14 09:40</a>
+
+毕竟收集了四大天王机子，再加上搞到点SF的资料，算是三代机打二代机吧。
+
+同为三代机的飞升自由因为偷袭+ ...</blockquote>
+对面机体优势+读心本身就很难打
+

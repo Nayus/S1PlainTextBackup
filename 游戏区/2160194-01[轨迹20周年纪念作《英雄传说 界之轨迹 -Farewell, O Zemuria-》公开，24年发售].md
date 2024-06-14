@@ -3771,3 +3771,13 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">黎2那是你不看这段剧情直接从黎1到界也没啥问题，完全不影响时间线那种，还是比闪2更离谱的
 
+
+*****
+
+####  ravend233  
+##### 396#       发表于 2024-6-14 09:41
+
+除非谜底是个超级大烂活而且人物塑造完全走偏逻辑全炸，这种解密篇怎么都有抖设定包袱兜底的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

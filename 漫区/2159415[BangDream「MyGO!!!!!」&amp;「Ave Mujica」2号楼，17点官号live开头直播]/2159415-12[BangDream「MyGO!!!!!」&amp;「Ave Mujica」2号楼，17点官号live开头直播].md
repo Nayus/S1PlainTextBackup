@@ -15142,3 +15142,15 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 感覺整首歌都二人世界了，比angles還要那個…… ...</blockquote>
 务必给李子上个好麦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hitori酱  
+##### 17540#       发表于 2024-6-15 00:02
+
+完全是钢琴和人声的抒情曲，少量弦乐
+
+钢琴含量突破，nonnon要发力了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 大喵表示终于可以歇会儿了
+
+（但是wsd的混音制作有点粗糙啊感觉。。。）
+

@@ -2773,3 +2773,14 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 
 会有人宠身份互换的剧情吗？人形yuki吸猫猫mayu什么的
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1724#       发表于 2024-6-14 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65227669&amp;ptid=2162354" target="_blank">66367749 发表于 2024-6-14 08:31</a>
+
+会有人宠身份互换的剧情吗？人形yuki吸猫猫mayu什么的</blockquote>
+我认为可以有<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+

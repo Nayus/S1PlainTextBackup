@@ -3087,3 +3087,14 @@ dl，听说国服最近要上了都不敢想象mzk到时候被一堆小鬼追着
 
 理解不能，，，这都是啥啊卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朋奇俱乐部  
+##### 266#       发表于 2024-6-14 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228375&amp;ptid=2186915" target="_blank">Jimlee079 发表于 2024-6-14 09:51</a>
+
+是这种打榜音乐特有的么，印象中osu，sdvx这种音游没这类破事儿，反而deemo，邦邦pjsk这类的味儿就特别的 ...</blockquote>
+门槛高低的问题吧大概，osustd和4k入门都有点困难，sdvx等等这种手台类街机类都需要自己爆米和建立新映射，但是移动端音游下了就直接玩还能搞同人，虽然我只能fc24级的谱但是我天天互联网发大巅宝宝你是一个宝宝，你怎么能说我不是一个pjsk玩家呢？
+

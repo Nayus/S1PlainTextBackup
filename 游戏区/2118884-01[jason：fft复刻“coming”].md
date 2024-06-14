@@ -828,3 +828,14 @@ ffta2还是挺好玩的。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  flyzzhj  
+##### 85#       发表于 2024-6-14 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65229290&amp;ptid=2118884" target="_blank">医生狼多 发表于 2024-6-14 11:07</a>
+
+#曝最终幻想战略版复刻开发中# 业界知名记者 Jason Schreier 在Reddit的游戏泄密板块中表示，《最终幻想战 ...</blockquote>
+吉田直树就算了，别把FFT续作也坑成粪作了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

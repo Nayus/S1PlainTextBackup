@@ -1402,3 +1402,62 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 故事简单到就是个救公主的故事：</blockquote>
 整个敌方就那蓝毛可能还有点点良心，其他的不是弱化版就是强化版的胚芽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者超级强化人头脑
 
+
+*****
+
+####  novyDC  
+##### 1599#       发表于 2024-6-14 22:15
+
+ 本帖最后由 novyDC 于 2024-6-14 22:19 编辑 
+
+[attachimg]1645682
+
+bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
+(48.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 22:15 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/221511vvnib9ibivk8zbjs.jpg" referrerpolicy="no-referrer">
+
+1718374217622.jpg
+(547.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/221615njadddw8pjda7hfp.jpg" referrerpolicy="no-referrer">
+
+1718374217622.jpg
+(547.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/221639ozntekqq1vqtxu1q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 1600#       发表于 2024-6-14 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65157983&amp;ptid=2178694" target="_blank">vuder 发表于 2024-6-8 19:03</a>
+
+人家议长好歹是枭雄真有政治抱负，想实现命运计划实现天下大同。
+
+这剧场版反派呢，其实根本不在意啥命运 ...</blockquote>
+其实之前有一快三亩地的“成功”（当然明显还有游击队反抗）给了反派们膨胀的资本
+
+
+*****
+
+####  gundammarkⅡ  
+##### 1601#       发表于 2024-6-14 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236988&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-6-14 22:15</a>
+[attachimg]1645682</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想不明白，为什么主角最终座机还要PB，明明电影都大卖到这程度了
+

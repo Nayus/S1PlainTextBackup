@@ -15068,3 +15068,22 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">已經等不及七夕大吃一口初祥了
 
+
+*****
+
+####  rikaren  
+##### 17533#       发表于 2024-6-14 22:17
+
+双月，angels，water，结尾再放aether/light的预告，吃的太好了
+
+*****
+
+####  PDQ4  
+##### 17534#       发表于 2024-6-14 22:17
+
+有看到歌词了
+
+私は ‘最初に降り立った者’，这句感觉对应1st了，最先提出不想结束的也是doloris。
+
+开始拥抱接受自我了
+

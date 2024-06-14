@@ -11069,3 +11069,13 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  6030sylar  
+##### 5473#       发表于 2024-6-15 01:53
+
+什么监控室系动画，我以为我在看摄像头轮播
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

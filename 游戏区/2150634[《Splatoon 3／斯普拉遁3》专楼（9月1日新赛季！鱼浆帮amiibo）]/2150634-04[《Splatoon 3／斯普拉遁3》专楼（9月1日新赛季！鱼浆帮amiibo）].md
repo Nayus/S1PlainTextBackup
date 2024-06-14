@@ -2928,3 +2928,11 @@ max三岗过了，仍旧没有金
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  水花一朵朵  
+##### 4728#       发表于 2024-6-15 07:10
+
+预选赛是真格区域，后面东西代表决定战就是全规则了。
+

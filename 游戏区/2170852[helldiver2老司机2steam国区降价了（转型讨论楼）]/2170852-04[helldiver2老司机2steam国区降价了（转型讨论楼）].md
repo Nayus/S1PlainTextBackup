@@ -987,3 +987,13 @@ QQ图片20240614223029.png
 
 <img src="https://img.saraba1st.com/forum/202406/14/223449aggmafx1mmmakzfj.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 4940#       发表于 2024-6-14 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65234350&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-14 17:54</a>
+这波减少重型单位在东线是更加显得武器压制力的不足了，被漫山遍野的追猎和武斗虫撵着跑几百米都清不完，东 ...</blockquote>
+把西线的腰射反器材拿来在东线打爽的飞起，小虫哨戒塔，中虫反器材，牛用飞刀，泰坦500。补给背包吃一口飞刀补满<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

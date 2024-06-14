@@ -1287,3 +1287,15 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 其他先不论，我觉得福田要是有良心的话应该先把美玲的军衔升个两级，美玲从出走之夜到剧场版真是把命豁出 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她姐也就中尉，她少尉升2级就她姐夫和黑皮一样的上尉了
 
+
+*****
+
+####  月夜凝雪  
+##### 1589#       发表于 2024-6-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65234397&amp;ptid=2178694" target="_blank">cxj649 发表于 2024-6-14 17:58</a>
+她姐也就中尉，她少尉升2级就她姐夫和黑皮一样的上尉了</blockquote>
+她现在算特务部队吧，军阶高点也很正常啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

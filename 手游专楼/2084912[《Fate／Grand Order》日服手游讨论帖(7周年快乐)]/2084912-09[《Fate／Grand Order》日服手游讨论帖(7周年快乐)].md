@@ -560,3 +560,11 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是想看有多少外国人在玩这吊游戏吧
 
+
+*****
+
+####  alucardcz  
+##### 12855#       发表于 2024-6-14 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">为什么能看出多少外国人？  不过我为4个5星还是绑了
+

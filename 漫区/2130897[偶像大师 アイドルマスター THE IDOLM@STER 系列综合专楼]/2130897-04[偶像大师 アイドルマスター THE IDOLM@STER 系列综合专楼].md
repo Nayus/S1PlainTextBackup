@@ -11079,3 +11079,26 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  Vacuolar  
+##### 5474#       发表于 2024-6-15 02:01
+
+哇，本来以为9、10集已经烂到观众睡着，导致一切。最后最不需要艺术发挥，只要堆料按固有live画面做就能提高分数的live回，这么拉血压。看完直接睡不着。
+
+战犯是谁！滚出来！
+
+*****
+
+####  Ask_10A  
+##### 5475#       发表于 2024-6-15 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65239777&amp;ptid=2130897" target="_blank">游蜓 发表于 2024-6-15 01:15</a>
+坛友都看到精神失常了
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+这集确实一种吃了菌子的美
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

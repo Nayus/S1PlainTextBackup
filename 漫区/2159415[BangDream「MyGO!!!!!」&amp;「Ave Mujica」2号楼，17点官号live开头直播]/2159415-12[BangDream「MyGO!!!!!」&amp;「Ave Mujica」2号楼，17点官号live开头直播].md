@@ -14973,3 +14973,38 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 明年OP我想要蔷薇少女那个味的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17522#       发表于 2024-6-14 21:39
+
+圣少女领域风格还是禁忌游戏还是蔷薇狱乙女和风格的？私心想要看到mujica翻唱蔷薇狱乙女和彼方的镇魂曲
+
+*****
+
+####  御幸一也  
+##### 17523#       发表于 2024-6-14 21:39
+
+被偷襲了啦！！！怎麼突然偷跑完全沒蹲，原來6/8那個就算預告了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+好溫柔的一首歌
+
+*****
+
+####  SakuraのOrigami  
+##### 17524#       发表于 2024-6-14 21:41
+
+编曲满分
+
+作曲（）
+
+有点像是电视剧会出现的那种（）
+
+*****
+
+####  skives10  
+##### 17525#       发表于 2024-6-14 21:42
+
+这次不能约个巨美的曲绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

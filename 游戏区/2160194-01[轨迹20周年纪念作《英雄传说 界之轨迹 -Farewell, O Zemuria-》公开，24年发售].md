@@ -3859,3 +3859,13 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 好险，6.3订的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 405#       发表于 2024-6-14 21:44
+
+亚马逊和geo的dlc是大少拉比斯和黑兔
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

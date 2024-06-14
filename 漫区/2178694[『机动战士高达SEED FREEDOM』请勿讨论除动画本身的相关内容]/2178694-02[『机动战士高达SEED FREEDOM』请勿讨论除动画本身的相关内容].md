@@ -877,3 +877,28 @@ SF2因为还是二代机也一样吃瘪了，要不是靠开挂背包，结局�
 又烂又土又乐，乐是能乐一乐好看就算了吧，主要是机设太丑人设太丑除了3D打戏还不错找不到亮点，没有种 ...</blockquote>
 光污染感觉太严重了，脸都感觉快被亮瞎了
 
+
+*****
+
+####  leleq  
+##### 1555#       发表于 2024-6-14 10:52
+
+ 本帖最后由 leleq 于 2024-6-14 10:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228880&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 10:36</a>
+
+虽然猜到福田不会有什么“解决方案”，但总有一种你们老是谈论爱爱爱，你说得这个谁懂JPG ...</blockquote>
+确实ft一开始直接说2人退隐了擦屁股交给卡嘉莉和鸟了……后来改口说2人爽几个月还会回来收拾烂摊子的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+公开情报是基拉 拉克丝两人mia了以后不会在公开露面了（基神只能带面具了）阿斯兰我忘了说没说，2人能力都太危险了一暴漏又要打出狗脑子了。
+
+*****
+
+####  aptx8285144  
+##### 1556#       发表于 2024-6-14 10:57
+
+<blockquote>qwemiku 发表于 2024-6-14 09:36
+拉克丝被真牛？万代都不敢想这种剧情出现
+
+—— 来自 samsung SM-S9080, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+拉妖被按在床上时，福田终于想起自己并不是打算收到一堆刀片恐吓发展成真的时刻JPG
+

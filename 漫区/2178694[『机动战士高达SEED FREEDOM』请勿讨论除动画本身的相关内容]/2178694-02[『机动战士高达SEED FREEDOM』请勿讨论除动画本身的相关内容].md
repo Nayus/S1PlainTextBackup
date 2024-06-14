@@ -1090,3 +1090,38 @@ ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不�
 
 第二张图不如改一下：世界名画：卡嘉莉元首在发表演说：主题为：光荣与梦想之奥布，奥布是真正心胸宽广，无所不包的国家，包容得下自然人，调整者，调整者官二代，调整者的电脑天才 我的情敌（划去，连仇人（米莉亚和阿斯兰)也能在此一笑泯恩仇，所以奥布才是大融合之典范jpg
 
+
+*****
+
+####  死难者23er  
+##### 1572#       发表于 2024-6-14 13:51
+
+<blockquote>aptx8285144 发表于 2024-6-14 10:01
+这，史黛拉都跑出来了，还搞了个鬼片里张牙舞爪的形象（而不是温和女鬼形象)，福田是不是玩得太过火了? ...</blockquote>
+这是小说作者的主意和福田没关系
+
+
+*****
+
+####  pokemon最爱  
+##### 1573#       发表于 2024-6-14 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231331&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 13:42</a>
+
+感觉不如常驻荣光背包那个盾。。。。。</blockquote>
+罩子要有，防御力场也要有，这才算健全<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以CE这个科技树发展速度77年顶级机体应该就是月光蝶+光子鱼雷+内置AGE系统的配置了（
+
+*****
+
+####  洛克萨斯  
+##### 1574#       发表于 2024-6-14 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231481&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 13:56</a>
+
+罩子要有，防御力场也要有，这才算健全
+
+以CE这个科技树发展速度77年顶级机体应该就是月光蝶+光子鱼雷+内 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样叠下去不就变成pd纪元那种科技树么，远程武器破不了防或者打不中大家近战糊脸，然后boss机突然掏出全屏aoe无差别大杀器
+

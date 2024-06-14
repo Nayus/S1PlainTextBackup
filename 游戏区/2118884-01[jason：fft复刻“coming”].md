@@ -854,3 +854,11 @@ ffta2还是挺好玩的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3d素材在ff14里已经用了。要是真的是ff14那种3d模型可以直接死刑了
 
+
+*****
+
+####  医生狼多  
+##### 88#         楼主| 发表于 2024-6-14 13:53
+
+吉田是3cs老大，这个肯定不是他直接做的项目
+

@@ -3806,3 +3806,13 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 坏消息  上一次同步的是闪2跟创轨</blockquote>
 看来回廊刷刷刷必不可少
 
+
+*****
+
+####  酷乐  
+##### 399#       发表于 2024-6-14 16:05
+
+[https://news.yahoo.co.jp/article ... 4ccfa363ea/comments](https://news.yahoo.co.jp/articles/4208dc8676fdbce7cc005d67f21a754ccfa363ea/comments)
+
+晓轨关服还能上Yahoo新闻，并且还有十几个评论。
+

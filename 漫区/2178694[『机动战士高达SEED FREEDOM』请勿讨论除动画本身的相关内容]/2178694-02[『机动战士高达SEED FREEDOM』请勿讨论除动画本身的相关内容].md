@@ -1171,3 +1171,16 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  混乱之雨  
+##### 1579#       发表于 2024-6-14 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65232169&amp;ptid=2178694" target="_blank">X(iaolw)S 发表于 2024-6-14 14:55</a>
+
+@洛克萨斯
+
+荣耀背包应该不防实弹的，一开始站桩让对面大小光束随便biubiubiu，到小飞艇导弹雨时就赶紧全屏 ...</blockquote>
+第一轮有导弹的，本作敌方武器超高速导弹的尾迹是类似拟太阳炉的橙色效果，开盾一并防住了
+

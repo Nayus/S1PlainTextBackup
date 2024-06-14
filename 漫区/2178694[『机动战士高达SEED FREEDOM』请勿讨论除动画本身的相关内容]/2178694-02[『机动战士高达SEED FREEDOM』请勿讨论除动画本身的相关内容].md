@@ -934,3 +934,16 @@ SF2因为还是二代机也一样吃瘪了，要不是靠开挂背包，结局�
 这几个从原理上都是镭射吧……
 虽然有些挂了beam的名字
 
+
+*****
+
+####  pokemon最爱  
+##### 1560#       发表于 2024-6-14 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228226&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 09:37</a>
+
+ft装甲还有一定实弹抗性，太扯淡了</blockquote>
+设定上PS装甲也有优于普通装甲的光束耐性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以FT装甲直接控制飞米领域这么个水滴设定考虑才这点实弹抗性已经算丢人了（
+

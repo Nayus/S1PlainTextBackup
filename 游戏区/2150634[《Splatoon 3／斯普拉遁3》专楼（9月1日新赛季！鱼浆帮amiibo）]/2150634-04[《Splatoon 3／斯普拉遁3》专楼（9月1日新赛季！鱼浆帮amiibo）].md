@@ -2880,3 +2880,13 @@ max三岗过了，仍旧没有金
 
 这比的真格吗
 
+
+*****
+
+####  KBAC  
+##### 4724#       发表于 2024-6-14 22:27
+
+现在的港服广场上不但没有一个非玩家NPC，甚至没有一个韩国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -15087,3 +15087,21 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 开始拥抱接受自我了
 
+
+*****
+
+####  rikaren  
+##### 17535#       发表于 2024-6-14 22:25
+
+ 本帖最后由 rikaren 于 2024-6-14 22:29 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/14/222509o7lo2r7tgkglzcmz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-14-22-24-54-36_149003a2d400f6adb210d7e357a3a646.jpg</strong> (120.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 22:25 上传
+
+你俩舞台剧能不能表演下这个，命中注定的牛郎织女，我好急啊
+

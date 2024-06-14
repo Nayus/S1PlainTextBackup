@@ -14961,3 +14961,15 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 远去的初华和祥子在海岛的记忆
 
+
+*****
+
+####  PDQ4  
+##### 17521#       发表于 2024-6-14 21:26
+
+火是激燃战斗片OP，风是爵士味公路片OP，水是抒情ED
+
+鸡以及有了三首适合用在动画的曲子了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+明年OP我想要蔷薇少女那个味的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

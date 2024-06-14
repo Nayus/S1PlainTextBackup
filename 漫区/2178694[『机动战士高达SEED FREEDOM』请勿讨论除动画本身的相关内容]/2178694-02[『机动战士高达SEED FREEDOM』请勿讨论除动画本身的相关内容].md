@@ -1546,3 +1546,29 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 
 就我觉得黑色三连星两个男的不该死吗，虽然不是人气角色，但死本方队友不符合这部欢乐剧场版的基调
 
+
+*****
+
+####  novyDC  
+##### 1610#       发表于 2024-6-15 00:18
+
+都是致敬
+
+<img src="https://img.saraba1st.com/forum/202406/15/001808klqzeuzlhq7le9dr.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1718381878489.jpg</strong> (122.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 00:18 上传
+
+<img src="https://img.saraba1st.com/forum/202406/15/001808wbz6qbwcilr6i6f2.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1718381881048.jpg</strong> (204.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 00:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

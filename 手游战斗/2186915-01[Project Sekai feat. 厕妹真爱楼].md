@@ -3054,3 +3054,28 @@ dl，听说国服最近要上了都不敢想象mzk到时候被一堆小鬼追着
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Jimlee079  
+##### 263#       发表于 2024-6-14 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228283&amp;ptid=2186915" target="_blank">JetBrains 发表于 2024-6-14 09:43</a>
+
+神椿真有这么多厕妹吗，相比这个小巫见大巫吧，我真没怎么看到，别的 IP 却看到很多
+
+—— 来自 鹅球 v3. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">个人印象，特别是异世界情绪和存流，明透这三位的评论区味儿有点大。不过神椿本来国内粉丝就不多，声音传不出来，和其他比起来肯定是小巫见大巫了
+
+*****
+
+####  Jimlee079  
+##### 264#       发表于 2024-6-14 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65224053&amp;ptid=2186915" target="_blank">Herreimu 发表于 2024-6-13 19:21</a>
+
+音游真的有女性玩家；音游受众年龄比想象中低得多；女性玩家社交声音巨tm大
+
+=&gt;音游成了最适合混厕的发酵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是这种打榜音乐特有的么，印象中osu，sdvx这种音游没这类破事儿
+

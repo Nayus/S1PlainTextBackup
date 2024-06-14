@@ -163,3 +163,26 @@
 那这样算貌似也还差两个啊，难道最后3个主线里还有新流派？</blockquote>
 看看每个人的因缘是不是给流派，好像是有道场打一次才解锁流派的。
 
+
+*****
+
+####  Kyo.C  
+##### 3242#       发表于 2024-6-14 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228039&amp;ptid=2092342" target="_blank">WhiteGlint 发表于 2024-6-14 09:19</a>
+
+太刀有个流派分歧是第一章杀不杀井伊直弼，还有个我就不清楚了</blockquote>
+是不杀拿还是杀拿？我是没杀
+
+*****
+
+####  WhiteGlint  
+##### 3243#       发表于 2024-6-14 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228320&amp;ptid=2092342" target="_blank">Kyo.C 发表于 2024-6-14 09:46</a>
+
+是不杀拿还是杀拿？我是没杀</blockquote>
+没杀可以从青鬼那里学 应该是。
+
+剩下可能要检查一下道场是不是给流派 
+

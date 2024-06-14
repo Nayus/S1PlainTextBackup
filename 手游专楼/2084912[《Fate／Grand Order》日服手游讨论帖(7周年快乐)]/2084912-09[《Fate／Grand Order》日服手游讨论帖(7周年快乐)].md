@@ -542,3 +542,13 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 草，这2宝汇呆打90++伤害差的有点远啊，这下只能借好友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12853#       发表于 2024-6-14 17:27
+
+问卷调查强制要求绑定aniplex账号才能填写，太刻意了吧。
+
+不过给四个护符，勉为其难绑一下吧，反正不想用了也可以解绑...
+

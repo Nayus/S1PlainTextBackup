@@ -997,3 +997,11 @@ QQ图片20240614223029.png
 这波减少重型单位在东线是更加显得武器压制力的不足了，被漫山遍野的追猎和武斗虫撵着跑几百米都清不完，东 ...</blockquote>
 把西线的腰射反器材拿来在东线打爽的飞起，小虫哨戒塔，中虫反器材，牛用飞刀，泰坦500。补给背包吃一口飞刀补满<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 4941#       发表于 2024-6-15 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉全世界都想看这b地雷能卡几个任务
+

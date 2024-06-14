@@ -11030,3 +11030,32 @@ cgss是比較現象級的遊戲吧，估計不少新世代都有玩過cgss
 
 <img src="https://img.saraba1st.com/forum/202406/14/231357n3ho5vff5dov3ddd.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ask_10A  
+##### 5469#       发表于 2024-6-15 01:11
+
+如果有人一定要看闪耀色彩动画，我一定推荐这第十一集，如果说前面十集无聊到想睡觉，这集就是变态到爆笑，无厘头的变态剪辑融合到一起产生了搞笑动画的反应
+太变态了 太变态了 太变态了
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ask_10A  
+##### 5470#       发表于 2024-6-15 01:12
+
+不syl  十分推荐漏油特别观赏这集，真的太变态了
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  游蜓  
+##### 5471#       发表于 2024-6-15 01:15
+
+坛友都看到精神失常了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

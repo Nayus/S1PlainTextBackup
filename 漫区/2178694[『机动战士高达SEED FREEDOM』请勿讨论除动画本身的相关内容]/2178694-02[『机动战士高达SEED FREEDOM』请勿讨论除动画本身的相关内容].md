@@ -1135,3 +1135,24 @@ ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不�
 而且最后战场上伊扎克和迪亚哥也只是让政变的扎夫特士兵回原部队报道。不是国防部长死脑筋，小伊甚至不想杀 ...</blockquote>
 伊扎克自己当年就是“站队天才”，肯定不好苛责下面不知所措的士兵们（
 
+
+*****
+
+####  pokemon最爱  
+##### 1576#       发表于 2024-6-14 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231506&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 13:58</a>
+
+这样叠下去不就变成pd纪元那种科技树么，远程武器破不了防或者打不中大家近战糊脸，然后boss机突然掏出全 ...</blockquote>
+种系必秒铁血（错乱）
+
+*****
+
+####  洛克萨斯  
+##### 1577#       发表于 2024-6-14 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231812&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 14:25</a>
+
+种系必秒铁血（错乱）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ft装甲基本已经免疫射击武器了（同样能被实弹影响，免疫光束），除了部分无法防御的大杀器，对应纳米涂层和钢钉的关系
+

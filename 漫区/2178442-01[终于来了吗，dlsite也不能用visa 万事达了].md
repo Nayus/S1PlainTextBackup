@@ -1363,3 +1363,11 @@ DMM也不行喽
 fanza同人暂时停止visa付款
 <img src="https://p.sda1.dev/18/73bef8ded4fd016ce26a31512d519359/PixPin_2024-06-14_13-28-02.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zerona  
+##### 139#       发表于 2024-6-14 13:39
+
+jcb 测试的2日元没事, 买点的时候就不成了. 有意思.
+

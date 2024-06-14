@@ -534,3 +534,11 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 差点买了这Google Play Pass，还以为是月卡。仔细一看折扣卷只能当月用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 12852#       发表于 2024-6-14 13:43
+
+草，这2宝汇呆打90++伤害差的有点远啊，这下只能借好友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

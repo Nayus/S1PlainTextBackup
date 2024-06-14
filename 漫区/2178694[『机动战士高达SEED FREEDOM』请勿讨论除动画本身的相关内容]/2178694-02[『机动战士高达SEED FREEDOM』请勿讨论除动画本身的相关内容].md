@@ -1054,3 +1054,39 @@ PS装甲當年設定就給了耗電嚴重問題，所以之後才衍生TPS或V(�
 
 SEED那差距就不是能比出来的，观星几个屁孩能开金恩打的哭爹喊妈，SD就已经和扎乌特（唯一指定炮灰）坐一桌了。
 
+
+*****
+
+####  pokemon最爱  
+##### 1569#       发表于 2024-6-14 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65229849&amp;ptid=2178694" target="_blank">洛克萨斯 发表于 2024-6-14 11:49</a>
+
+ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不动，尺寸够大电力拉满是最强的防护装甲 ...</blockquote>
+用在MS上主要是耗电，本身性能还是很充足的不然也不至于四天王直接用PS装甲材质做骨架<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然等剧场版后种系就有更可怕的VFTP装甲（指用地联的TP装甲技术把FT装甲和**装甲做成外层FT内层**的构造，平常**不启动遭遇攻击时启动）用了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 1570#       发表于 2024-6-14 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231279&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 13:37</a>
+
+用在MS上主要是耗电，本身性能还是很充足的不然也不至于四天王直接用PS装甲材质做骨架
+
+当然等剧场版后种 ...</blockquote>
+感觉不如常驻荣光背包那个盾。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 1571#       发表于 2024-6-14 13:42
+
+ 本帖最后由 aptx8285144 于 2024-6-14 13:44 编辑 
+<blockquote>Piano-Forest 发表于 2024-5-13 12:57
+第17弹最终观影特典为描绘剧场版结局之后的明信片(A6大小，全3种随机)，正面是福井构图平井久司绘新图、背 ...</blockquote>
+
+第二张图不如改一下：世界名画：卡嘉莉元首在发表演说：主题为：光荣与梦想之奥布，奥布是真正心胸宽广，无所不包的国家，包容得下自然人，调整者，调整者官二代，调整者的电脑天才 我的情敌（划去，连仇人（米莉亚和阿斯兰)也能在此一笑泯恩仇，所以奥布才是大融合之典范jpg
+

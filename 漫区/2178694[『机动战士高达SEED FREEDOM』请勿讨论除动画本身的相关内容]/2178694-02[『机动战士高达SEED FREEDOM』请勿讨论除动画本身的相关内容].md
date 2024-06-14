@@ -702,3 +702,26 @@ Seed剧场版可以拍得烂，但是绝对不能没有笑点
 —— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 S1Next-鹅版 v3.0. ...</blockquote>
 宙斯剪影？是，不过其实是种命就设计好没来得及造出来的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1538#       发表于 2024-6-14 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65227140&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-14 01:53</a>
+穆拿去用的那把是命运的新装备吧
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 S1Next-鹅版 v3.0. ...</blockquote>
+不新了，起码半年前的自由强袭事件回闪画面里已经有炮管等残骸了
+
+*****
+
+####  qwemiku  
+##### 1539#       发表于 2024-6-14 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65195321&amp;ptid=2178694" target="_blank">tsoulgain 发表于 2024-6-11 15:17</a>
+你应该说福田大监督肯让诗和露脸嗯一声已经是天大的恩惠了。福田大监督一向是不承认外传里的所有角色除了 ...</blockquote>
+为什么要承认狗屁外传？
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

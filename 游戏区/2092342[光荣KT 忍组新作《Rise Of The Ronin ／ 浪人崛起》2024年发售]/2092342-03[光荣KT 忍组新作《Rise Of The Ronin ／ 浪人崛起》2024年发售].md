@@ -113,3 +113,32 @@
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kyo.C  
+##### 3237#       发表于 2024-6-14 09:09
+
+再补一个问题，一共48个流派到快通关了也只有42个？隐藏boss都打了，还有3个任务就通了，剩下的是在道场里吗
+
+
+*****
+
+####  WhiteGlint  
+##### 3238#       发表于 2024-6-14 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65227924&amp;ptid=2092342" target="_blank">Kyo.C 发表于 2024-6-14 09:09</a>
+
+再补一个问题，一共48个流派到快通关了也只有42个？隐藏boss都打了，还有3个任务就通了，剩下的是在道场里 ...</blockquote>
+通关会再给4个无名开新流
+
+*****
+
+####  Kyo.C  
+##### 3239#       发表于 2024-6-14 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65227984&amp;ptid=2092342" target="_blank">WhiteGlint 发表于 2024-6-14 09:15</a>
+
+通关会再给4个无名开新流</blockquote>
+那这样算貌似也还差两个啊，难道最后3个主线里还有新流派？
+

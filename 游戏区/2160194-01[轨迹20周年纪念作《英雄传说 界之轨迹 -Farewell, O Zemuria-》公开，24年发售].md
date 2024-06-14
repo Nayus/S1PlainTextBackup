@@ -3752,3 +3752,14 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同步不同步无所谓反正玩日文版，同步了是不是日版还能便宜点
 
+
+*****
+
+####  无动于衷  
+##### 394#       发表于 2024-6-14 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226296&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-6-13 23:38</a>
+
+虽然可能性几乎没有 但我还是要奶一口比黎2更拉</blockquote>
+比黎轨2的盛世欢腾剧本还烂还真有一定的难度，我反正想象不出来还能怎么烂
+

@@ -3844,3 +3844,18 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 我是在日亚订的电击版应该没事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 403#       发表于 2024-6-14 21:25
+
+七号之前订没事，电击会看到，七号之后订单邮件都被黑客劫持了，拿去勒索了
+
+*****
+
+####  宛若青空  
+##### 404#       发表于 2024-6-14 21:27
+
+好险，6.3订的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

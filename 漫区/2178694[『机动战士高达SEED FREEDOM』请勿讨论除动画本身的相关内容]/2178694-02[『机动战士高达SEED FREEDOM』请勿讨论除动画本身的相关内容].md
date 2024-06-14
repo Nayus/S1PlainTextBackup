@@ -1357,3 +1357,13 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 
 2024-6-14 20:54 上传
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1595#       发表于 2024-6-14 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65234733&amp;ptid=2178694" target="_blank">香雨香香 发表于 2024-6-14 18:37</a>
+天使龙里面是不是有真牛来着，不过不重要，反正乐子都这么大了，干脆再整点劲爆点的啊，弄点ntr文学最后 ...</blockquote>
+天龙舞也没有真牛（看光了算不算？），黄毛占上风时就在装逼，仅仅玩了提高敏感度的放置play，后来恼羞成怒才想强上，又掰不开人家的腿就援兵杀到
+

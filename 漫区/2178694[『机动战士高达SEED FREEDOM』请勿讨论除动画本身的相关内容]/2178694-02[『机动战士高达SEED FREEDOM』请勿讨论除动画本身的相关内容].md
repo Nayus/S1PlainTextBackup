@@ -947,3 +947,26 @@ ft装甲还有一定实弹抗性，太扯淡了</blockquote>
 
 以FT装甲直接控制飞米领域这么个水滴设定考虑才这点实弹抗性已经算丢人了（
 
+
+*****
+
+####  无糖百事可乐  
+##### 1561#       发表于 2024-6-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228481&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 10:01</a>
+
+这，史黛拉都跑出来了，还搞了个鬼片里张牙舞爪的形象（而不是温和女鬼形象)，福田是不是玩得太过火了? ...</blockquote>
+那个牙齿 已经是兽化二号机的牙齿了
+
+*****
+
+####  洛克萨斯  
+##### 1562#       发表于 2024-6-14 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65229575&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 11:28</a>
+
+设定上PS装甲也有优于普通装甲的光束耐性
+
+以FT装甲直接控制飞米领域这么个水滴设定考虑才这点实弹抗性已 ...</blockquote>
+ps甲的问题是用在ms上面太菜了，你看创世纪那个尺寸就打不动，尺寸够大电力拉满是最强的防护装甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

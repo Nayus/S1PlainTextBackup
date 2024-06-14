@@ -1404,3 +1404,38 @@ B那个收藏包的音声，听完了才知道，原来如此，难怪她们本�
 
 这ホロウィッチ的音调一辈子也改不过来草，连录官方番组都能念错
 
+
+*****
+
+####  holoan  
+##### 9009#         楼主| 发表于 2024-6-14 17:17
+
+ 本帖最后由 holoan 于 2024-6-14 17:18 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/14/171318wbp1z0317whbb61z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (204.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 17:13 上传
+
+据返图，towerrecords店铺的立绘板是直签的，等会这板不会是当时EXPO直接搬过来的那块吧
+
+另一边abema的后夜祭活动现场的好像没有看到签名
+
+*****
+
+####  holoan  
+##### 9010#         楼主| 发表于 2024-6-14 17:19
+
+<img src="https://img.saraba1st.com/forum/202406/14/171925cv3u3pr3q3vznn30.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 17:19 上传
+
+下次……
+

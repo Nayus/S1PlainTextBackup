@@ -3836,3 +3836,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  宛若青空  
+##### 402#       发表于 2024-6-14 21:10
+
+我是在日亚订的电击版应该没事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

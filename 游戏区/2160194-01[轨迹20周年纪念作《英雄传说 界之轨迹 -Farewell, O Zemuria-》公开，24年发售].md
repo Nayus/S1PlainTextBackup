@@ -3826,3 +3826,13 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 包括NICONICO和电击
 
+
+*****
+
+####  炒面  
+##### 401#       发表于 2024-6-14 20:56
+
+我还挺喜欢轨迹的刷刷刷环节，3rd和创轨各种爽刷<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

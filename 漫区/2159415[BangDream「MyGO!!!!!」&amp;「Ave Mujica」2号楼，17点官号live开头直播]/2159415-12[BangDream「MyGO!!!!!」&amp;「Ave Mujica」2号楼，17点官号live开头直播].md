@@ -15060,3 +15060,11 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 日本人确实很喜欢过七夕吧，开场就情歌对唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17532#       发表于 2024-6-14 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">已經等不及七夕大吃一口初祥了
+

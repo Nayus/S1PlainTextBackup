@@ -1378,3 +1378,27 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 天龙舞也没有真牛（看光了算不算？），黄毛占上风时就在装逼，仅仅玩了提高敏感度的放置play，后来恼羞成 ...</blockquote>
 房间那段其实已经有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....个人感觉黄毛对拉克丝还是有那么一点点不知道是敬畏还是尊重在，所以房间里恼羞成怒了也还没直彻底撕破脸
 
+
+*****
+
+####  aptx8285144  
+##### 1597#       发表于 2024-6-14 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65186037&amp;ptid=2178694" target="_blank">anehon 发表于 2024-6-10 21:22</a>
+
+尽管距离看完才过去一天，但看着这难崩的香肠嘴，仍然久久意难平，沟槽的福田，沟槽的平井，还我童年女神！ ...</blockquote>
+说起来不知道是角度不同还是刻画的问题，露娜，卡嘉莉等人的口红似乎就没那么难看，米莉出来时更是几乎看不出来有口红，美玲动起来以后也感觉没有原来设定里那么难看了，全篇感觉真得是拉克丝被画的最老的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 1598#       发表于 2024-6-14 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65170848&amp;ptid=2178694" target="_blank">hac0101 发表于 2024-6-9 19:41</a>
+
+主要是敌方太丢人了
+
+故事简单到就是个救公主的故事：</blockquote>
+整个敌方就那蓝毛可能还有点点良心，其他的不是弱化版就是强化版的胚芽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者超级强化人头脑
+

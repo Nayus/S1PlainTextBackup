@@ -906,3 +906,36 @@ AA傻卵效果去了，和难6超级样本整挺好，超级大炮那些本来�
 
 改版的加特林火力网可以打重甲单位，虽然伤害好像不高，但可以把牛一直打出硬直，也算很实用了，CD还超短
 
+
+*****
+
+####  jy000129  
+##### 4931#       发表于 2024-6-14 11:26
+
+飞矛很好用了，另外爆裂铳和弩打机器人还可以
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  kalavinka  
+##### 4932#         楼主| 发表于 2024-6-14 11:32
+
+之前爆料的火箭巢坦克和光能高模已经进包了 要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 4933#       发表于 2024-6-14 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赛博TOS1是打曲射还是直射呢（）
+
+*****
+
+####  Znesmoc  
+##### 4934#       发表于 2024-6-14 12:41
+
+飞刀真重甲穿透啊，惊了
+
+但是8把属实不太够用，我42亿飞刀呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -3907,3 +3907,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 真连体那还挺有意思的
 
+
+*****
+
+####  smdzh2  
+##### 410#       发表于 2024-6-14 22:50
+
+无所谓，等pc版直接改模型，把大少换成拉碧丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

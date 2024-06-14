@@ -1334,3 +1334,26 @@ kaela每次都是全社第一个把miko相关的indie游戏拿出来播的<img s
 
 最直接的暗示了基本就是明示了
 
+
+*****
+
+####  holoan  
+##### 9001#         楼主| 发表于 2024-6-13 23:11
+
+<img src="https://img.saraba1st.com/forum/202406/13/231130tymhh4oxsjh2xt33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-13 23:11 上传
+
+？？？？？？？？？？？？？
+
+*****
+
+####  holoan  
+##### 9002#         楼主| 发表于 2024-6-14 10:45
+
+昨天不是去露营吗？还有难道怎么就一个fbk，其他人呢不是有4个人吗
+

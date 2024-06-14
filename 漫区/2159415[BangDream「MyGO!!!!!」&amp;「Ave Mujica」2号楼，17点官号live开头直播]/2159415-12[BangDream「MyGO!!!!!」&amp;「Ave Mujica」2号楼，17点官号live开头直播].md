@@ -15025,3 +15025,38 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 感覺整首歌都二人世界了，比angles還要那個……
 
+
+*****
+
+####  rikaren  
+##### 17528#       发表于 2024-6-14 21:54
+
+还有aether／light等着呢，期待
+
+*****
+
+####  skives  
+##### 17529#       发表于 2024-6-14 21:56
+
+还有对应睦和对应祥子的两首<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">期待
+
+*****
+
+####  NODY  
+##### 17530#       发表于 2024-6-14 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236719&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-14 21:47</a>
+
+我有預感這又是初祥曲，誰贊成誰反對
+
+感覺整首歌都二人世界了，比angles還要那個…… ...</blockquote>
+难怪water首次live的day2要选7.7开，原来是牛郎织女一年一次的七夕相会啊，我完全明白了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17531#       发表于 2024-6-14 22:02
+
+日本人确实很喜欢过七夕吧，开场就情歌对唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

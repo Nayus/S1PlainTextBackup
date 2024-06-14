@@ -2913,3 +2913,18 @@ max三岗过了，仍旧没有金
 这个感觉还挺经常，会有直播吗</blockquote>
 预选赛是活动比赛，估计没有官方直播，只有那些队伍自己的直播吧
 
+
+*****
+
+####  martinium  
+##### 4727#       发表于 2024-6-15 04:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218350&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-6-13 11:31</a>
+后天就是预选赛赛了啊
+
+这比的真格吗</blockquote>
+区域
+日本几乎就没有除了涂地和区域之外规则的大赛。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

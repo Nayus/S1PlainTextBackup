@@ -1461,3 +1461,15 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 [attachimg]1645682</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想不明白，为什么主角最终座机还要PB，明明电影都大卖到这程度了
 
+
+*****
+
+####  940045933  
+##### 1602#       发表于 2024-6-14 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236873&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 22:03</a>
+说起来不知道是角度不同还是刻画的问题，露娜，卡嘉莉等人的口红似乎就没那么难看，米莉出来时更是几乎看 ...</blockquote>
+这厚嘴唇到底是谁的审美，第一次见给动画主要女角色弄个厚嘴唇的，不够我觉得最大的问题不只是厚嘴唇，整个人设就画的不好看，去掉估计也好不了多少
+
+—— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

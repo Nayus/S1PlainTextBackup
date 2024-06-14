@@ -733,3 +733,25 @@ Seed剧场版可以拍得烂，但是绝对不能没有笑点
 
 无正和黑骑士拼刀那几帧操作，个人觉得画成剑柄互格是比较合逻辑的，但这个操作容错比较低，毕竟实战里光盾档剑才是正常的应对
 
+
+*****
+
+####  qwemiku  
+##### 1541#       发表于 2024-6-14 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226760&amp;ptid=2178694" target="_blank">香雨香香 发表于 2024-6-14 00:29</a>
+之前专楼说这片是喜剧，我还想着真有这么好笑吗，刚才看完了只能说确实好好笑，人物、台词以及剧情怎么能这 ...</blockquote>
+拉克丝被真牛？万代都不敢想这种剧情出现
+
+—— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  洛克萨斯  
+##### 1542#       发表于 2024-6-14 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65226926&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-14 00:52</a>
+
+主要对面的FT装甲不耗电而PS装甲真的是电老虎所以哪怕双方炉子相同这边也要吃一个PS装甲耗电的亏。（VP装 ...</blockquote>
+ft装甲还有一定实弹抗性，太扯淡了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

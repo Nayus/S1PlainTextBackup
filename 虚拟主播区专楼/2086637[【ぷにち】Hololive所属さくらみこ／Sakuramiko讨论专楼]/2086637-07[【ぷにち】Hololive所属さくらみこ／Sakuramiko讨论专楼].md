@@ -1460,3 +1460,38 @@ B那个收藏包的音声，听完了才知道，原来如此，难怪她们本�
 
 明天还行，嗯，就两人么？
 
+
+*****
+
+####  holoan  
+##### 9013#         楼主| 发表于 2024-6-14 18:19
+
+这是羊自己搞的系列外景企划，在这之前已经请了其他好几个人参加过了
+
+*****
+
+####  holoan  
+##### 9014#         楼主| 发表于 2024-6-14 20:03
+
+ 本帖最后由 holoan 于 2024-6-14 20:06 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/14/200319tfldfm4k77osbljj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 20:03 上传
+
+今晚
+
+<img src="https://img.saraba1st.com/forum/202406/14/200554nvemmymoxzzxjnga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 20:05 上传
+
+然后hashtag写错了，实际上没有星街……
+

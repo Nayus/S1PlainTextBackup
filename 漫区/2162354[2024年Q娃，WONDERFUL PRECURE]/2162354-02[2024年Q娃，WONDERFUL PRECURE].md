@@ -2784,3 +2784,15 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 会有人宠身份互换的剧情吗？人形yuki吸猫猫mayu什么的</blockquote>
 我认为可以有<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 1725#       发表于 2024-6-14 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65207265&amp;ptid=2162354" target="_blank">lydia5989 发表于 2024-6-12 13:18</a>
+大人q娃时俩人一人掏把琴出来，“走，小雪/小麦，变身了”
+
+小雪小麦的灵魂就从琴里跳出来了 ...</blockquote>
+多年之后，彩羽的曾曾孙女在家中仓库发现了一把三味线，拿起后脑海里传来了一道声音。。。
+

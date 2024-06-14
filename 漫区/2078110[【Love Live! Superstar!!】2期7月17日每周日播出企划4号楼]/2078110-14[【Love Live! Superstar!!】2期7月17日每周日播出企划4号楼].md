@@ -1536,3 +1536,45 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 现在图bot的点赞都看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊卡石  
+##### 20321#       发表于 2024-6-11 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65196190&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-6-11 16:26</a>
+那时候找鲤鱼唱才神奇，唱歌名气比他大的up不少<[/blockquote>
+那个时候鲤鱼是B站（超电）旗下艺人
+
+*****
+
+####  ruffian  
+##### 20322#       发表于 2024-6-11 19:03
+
+是错觉吗，pay配咧垃圾剧场和唱歌的声线好像都比以前夹了很多，我都没听出来是她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 20323#       发表于 2024-6-13 18:08
+
+马斯克真是个大聪明啊，直接lock掉账户对外的点赞信息，解开设置都没有？？
+
+现在图bot的点赞都看不到了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20324#       发表于 2024-6-14 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223232&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-6-13 18:08</a>
+
+马斯克真是个大聪明啊，直接lock掉账户对外的点赞信息，解开设置都没有？？
+
+现在图bot的点赞都看不到了 ...</blockquote>
+泥潭和隔壁泥潭的那句话，私人论坛，不爽不要玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+其实还挺利好霓虹金的？
+

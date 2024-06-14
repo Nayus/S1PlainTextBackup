@@ -1354,3 +1354,12 @@ DMM也不行喽
 
 —— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  screeper  
+##### 138#       发表于 2024-6-14 13:28
+
+fanza同人暂时停止visa付款
+<img src="https://p.sda1.dev/18/73bef8ded4fd016ce26a31512d519359/PixPin_2024-06-14_13-28-02.jpg" referrerpolicy="no-referrer">
+

@@ -552,3 +552,11 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 不过给四个护符，勉为其难绑一下吧，反正不想用了也可以解绑...
 
+
+*****
+
+####  乾理央  
+##### 12854#       发表于 2024-6-14 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是想看有多少外国人在玩这吊游戏吧
+

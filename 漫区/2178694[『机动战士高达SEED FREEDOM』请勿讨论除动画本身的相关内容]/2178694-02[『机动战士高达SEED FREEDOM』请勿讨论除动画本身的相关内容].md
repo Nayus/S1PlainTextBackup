@@ -1276,3 +1276,14 @@ pokemon最爱 发表于 2024-6-14 13:37用在MS上主要是耗电，本身性能
 更准确点，是暖床的通房丫鬟味</blockquote>
 福田版的蕾姆（错乱
 
+
+*****
+
+####  cxj649  
+##### 1588#       发表于 2024-6-14 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65233851&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 17:15</a>
+
+其他先不论，我觉得福田要是有良心的话应该先把美玲的军衔升个两级，美玲从出走之夜到剧场版真是把命豁出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她姐也就中尉，她少尉升2级就她姐夫和黑皮一样的上尉了
+

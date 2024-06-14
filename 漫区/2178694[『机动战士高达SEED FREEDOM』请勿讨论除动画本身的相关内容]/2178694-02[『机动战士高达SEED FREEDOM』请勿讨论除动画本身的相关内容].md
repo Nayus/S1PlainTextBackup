@@ -1510,3 +1510,21 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 人画的不如天使龙，大头娃娃，只有几张能看的</blockquote>
 不是说赶工么，这样也不足为奇了。而且平井脸要的就是这味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qwemiku  
+##### 1606#       发表于 2024-6-14 23:45
+
+厚嘴唇是败笔
+
+*****
+
+####  aptx8285144  
+##### 1607#       发表于 2024-6-14 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65223268&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-13 18:11</a>
+
+明显变老的是西蒙兹主任的声音哎</blockquote>
+可能是因为三黑星的大姐头台词增多，密涅瓦的金发cic的声优改为户松遥，种命时候都是根谷美智子，至此遥老板（00的米蕾娜）应该是继丰口惠（种子，0096的美寻）之后又一个在两部高达系列里成为cic的人
+

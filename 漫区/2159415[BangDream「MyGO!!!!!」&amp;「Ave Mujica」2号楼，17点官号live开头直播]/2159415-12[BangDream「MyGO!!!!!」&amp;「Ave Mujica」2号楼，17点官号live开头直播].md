@@ -15129,3 +15129,16 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 怎么还没到2025，急急急<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 17539#       发表于 2024-6-14 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236719&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-14 21:47</a>
+
+我有預感這又是初祥曲，誰贊成誰反對
+
+感覺整首歌都二人世界了，比angles還要那個…… ...</blockquote>
+务必给李子上个好麦<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

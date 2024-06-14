@@ -1005,3 +1005,14 @@ QQ图片20240614223029.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉全世界都想看这b地雷能卡几个任务
 
+
+*****
+
+####  FLZB  
+##### 4942#       发表于 2024-6-15 02:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65237844&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-6-14 23:29</a>
+
+把西线的腰射反器材拿来在东线打爽的飞起，小虫哨戒塔，中虫反器材，牛用飞刀，泰坦500。补给背包吃一口 ...</blockquote>
+更新后我基本一直是火喷榴弹晕雷背包500kg加特林或集束，就这都经常压不住，实在不懂箭头为什么这么喜欢这种overwhelming的游戏体验，打起来太累了，哪怕是赢了挫败感也极强。
+

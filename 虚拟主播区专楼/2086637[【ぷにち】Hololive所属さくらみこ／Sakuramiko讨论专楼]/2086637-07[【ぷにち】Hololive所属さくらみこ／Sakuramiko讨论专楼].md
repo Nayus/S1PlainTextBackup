@@ -1495,3 +1495,26 @@ B那个收藏包的音声，听完了才知道，原来如此，难怪她们本�
 
 然后hashtag写错了，实际上没有星街……
 
+
+*****
+
+####  holoan  
+##### 9015#         楼主| 发表于 2024-6-14 20:15
+
+<img src="https://img.saraba1st.com/forum/202406/14/201306p92mmg0i1imzigov.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 20:13 上传
+
+笑死了，大家以为刚回来累了就随便聊聊游玩的事算了，竟然联动恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><blockquote>キャンプ行って夜まで遊んだあと配信する体力あるフブみこが異常だわ</blockquote>
+
+*****
+
+####  holoan  
+##### 9016#         楼主| 发表于 2024-6-14 22:38
+
+什么即兴合唱，你们对对方的曲子也太熟了吧
+

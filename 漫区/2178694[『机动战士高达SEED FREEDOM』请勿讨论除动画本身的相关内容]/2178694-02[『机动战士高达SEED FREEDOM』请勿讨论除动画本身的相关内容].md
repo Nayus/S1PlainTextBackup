@@ -983,3 +983,30 @@ PS装甲當年設定就給了耗電嚴重問題，所以之後才衍生TPS或V(�
 
 另外還有隱性的金屬疲勞問題，正常用可能不明顯，但如果想進一步抗光束再加抗BEAM塗層(種時代實體盾牌那些)，一星期就已經玩完
 
+
+*****
+
+####  月夜凝雪  
+##### 1564#       发表于 2024-6-14 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65228696&amp;ptid=2178694" target="_blank">aptx8285144 发表于 2024-6-14 10:21</a>
+等等，这就结束了?真是剧场版模式，一点战后重建，和平画面之类的都不给呀，看完有一种就是收拾狐狸的余孽 ...</blockquote>
+所以才说感觉这个才是DESTINY团本的后期剧本，即使主要是Freedom的事情但说鸟是主角完全没问题，
+
+把logos部分全部删掉，然后把现在剧场版的剧情改一改前面然后扩写一下，然后议长直接把这帮人拉出来做敢于执行命运计划的底牌，
+
+瞬间就觉得故事顺畅多了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  aptx8285144  
+##### 1565#       发表于 2024-6-14 12:24
+
+<blockquote>starring 发表于 2024-5-13 14:49
+鸡和拉海滩do完回家，狼和卡准备回家do，月被阿格尼斯缠着鸟do不了
+
+—— 来自 Sony XQ-DQ72, Android 14上 ...</blockquote>
+这第二张图一脸欢喜的美玲真是过于喜感，阿斯兰后宫太和谐了233
+

@@ -1046,3 +1046,46 @@ QQ图片20240614223029.png
 可以试试机枪了，现在普通机枪杀牛只要对着屁股射35发子弹就行</blockquote>
 现在火喷和榴弹杀牛也很快，强袭反倒不是问题了，恶心的是大量中型单位。再刷个绿胖模板，混着护卫和指挥官一堆妖魔鬼怪压上来真是享受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6x6z6w  
+##### 4946#       发表于 2024-6-15 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65240386&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-15 02:53</a>
+
+更新后我基本一直是火喷榴弹晕雷背包500kg加特林或集束，就这都经常压不住，实在不懂箭头为什么这么喜欢 ...</blockquote>
+可以试试机枪了，现在普通机枪杀牛只要对着屁股射35发子弹就行
+
+*****
+
+####  Aeons  
+##### 4947#       发表于 2024-6-15 03:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好久没玩玩了几把，虽然有手生的问题但感觉机器人加了炮艇巡逻队变难了不少
+
+*****
+
+####  FLZB  
+##### 4948#       发表于 2024-6-15 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65240437&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-6-15 03:08</a>
+
+可以试试机枪了，现在普通机枪杀牛只要对着屁股射35发子弹就行</blockquote>
+现在火喷和榴弹杀牛也很快，强袭反倒不是问题了，恶心的是大量中型单位。再刷个绿胖模板，混着护卫和指挥官一堆妖魔鬼怪压上来真是享受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 4949#       发表于 2024-6-15 07:35
+
+<img src="https://img.saraba1st.com/forum/202406/15/073303fwwwq7hvqgywcyzs.jpg" referrerpolicy="no-referrer">
+
+<strong>f10cd70a19d8bc3e7d439bf4c48ba61ea9d345d7.jpg</strong> (147.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 07:33 上传
+
+更新快两天了这逼说自己还没玩过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

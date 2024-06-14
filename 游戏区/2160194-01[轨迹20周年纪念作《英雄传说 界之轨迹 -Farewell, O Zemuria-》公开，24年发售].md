@@ -3793,3 +3793,16 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 那只能靠不停扩充设定分散玩家注意力了，达成虽然谜底烂大街了，但我们设定很杂很多所以逼格高的效果。
 
+
+*****
+
+####  tmmd  
+##### 398#       发表于 2024-6-14 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222873&amp;ptid=2160194" target="_blank">cyvery 发表于 2024-6-13 17:36</a>
+
+好消息  中文同步发售
+
+坏消息  上一次同步的是闪2跟创轨</blockquote>
+看来回廊刷刷刷必不可少
+

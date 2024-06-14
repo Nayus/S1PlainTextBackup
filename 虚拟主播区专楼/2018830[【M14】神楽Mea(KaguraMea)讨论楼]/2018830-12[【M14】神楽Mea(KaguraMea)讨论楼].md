@@ -1171,3 +1171,21 @@ mea平时的歌回直播能超过1000人在看就不错了，今天已经是今�
 
  瓦也有玩
 
+
+*****
+
+####  Cortana  
+##### 16560#       发表于 2024-6-14 09:34
+
+沟槽的天狗，还在记经期<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  sino__unnko3  
+##### 16561#       发表于 2024-6-14 16:34
+
+回看昨天的存档，唱错歌那里麻酱下意识吸了下舌头，好涩（）
+

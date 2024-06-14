@@ -10964,3 +10964,13 @@ cgss是比較現象級的遊戲吧，估計不少新世代都有玩過cgss
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">万南一个月已经卖了四次学马谷子了
 
+
+*****
+
+####  Vacuolar  
+##### 5463#       发表于 2024-6-14 14:39
+
+你百的周年服，真是神秘的叠加态，衣服设计感有的，单又觉得跟时髦不沾边。
+
+还是那么纯正百万味。
+

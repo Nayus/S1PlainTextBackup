@@ -14887,3 +14887,14 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 换人的话应该会有更换演员的批文
 
+
+*****
+
+####  紫吹兰  
+##### 17514#         楼主| 发表于 2024-6-14 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65231041&amp;ptid=2159415" target="_blank">stygian 发表于 2024-6-14 13:14</a>
+
+换人的话应该会有更换演员的批文</blockquote>
+然而现在猫琴排期据说已经到明年了
+

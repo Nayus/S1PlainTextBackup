@@ -3523,3 +3523,193 @@ gbc的唯一优点是有话会好好说，别的全被mygo薄纱，蹭狗吸血�
 
 【下载】了啤酒烧烤进入游戏，我成为了烤oc骨解，测妹你们呢？
 
+
+*****
+
+####  東雲絵名  
+##### 314#         楼主| 发表于 2024-6-14 12:56
+
+<img src="https://img.saraba1st.com/forum/202406/14/125621g32gwxctll27j27c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 12:56 上传
+
+*****
+
+####  東雲絵名  
+##### 315#         楼主| 发表于 2024-6-14 12:56
+
+【烤批人人喊打不是没有理由的】
+
+<img src="https://img.saraba1st.com/forum/202406/14/125631py9y9y88z3nqmvqq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 12:56 上传
+
+*****
+
+####  東雲絵名  
+##### 316#         楼主| 发表于 2024-6-14 12:57
+
+（臭臭爹和箱爹）
+
+同人制品群闲聊到了箱，高柱希望箱爹戏份少并发出如下疑问：为什么全女番要给主角按个爹，非要给父亲一个重要地位？惹来一群男，可能有女（都已拉黑）大惊失色，纷纷表示不理解，并指出高柱极端，什么叫非要，让苯人看看臭臭爹，臭臭爸是其乐队的主线任务，所以这是正常的，不要贷款说箱爹。
+
+没完整看过臭臭队的剧情，只知道确实受了她爹的影响，加上其他乐队的主角也有个好爸爸。不清楚是否自己是异类。
+
+想问问，臭臭队是否以臭臭爸作为主线？
+
+很爱我cp双方，但接受不了以男作为内动力（厌所有男），有点懦弱想跑路。
+
+跑路舍不得没到的谷没出的稿没写的文。
+
+*****
+
+####  東雲絵名  
+##### 317#         楼主| 发表于 2024-6-14 12:57
+
+2020年前的百合:某对基佬的爱好者想看性转了，把他两性转说是百合 ​​​
+
+*****
+
+####  東雲絵名  
+##### 318#         楼主| 发表于 2024-6-14 12:59
+
+<img src="https://img.saraba1st.com/forum/202406/14/125910oxukhphwlp9gppnn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/125923ki13sb8t36pktlfp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 12:59 上传
+
+
+*****
+
+####  東雲絵名  
+##### 319#         楼主| 发表于 2024-6-14 13:00
+
+磊磊不卖批和屁股因为没有，只能卖卖手指和25cm的坚硬巨，一开张烤男就坐了上来
+
+*****
+
+####  東雲絵名  
+##### 320#         楼主| 发表于 2024-6-14 13:01
+
+啊啊啊女神你也看偶像大师本家[悲伤][悲伤][悲伤]啊啊啊啊最喜欢千早了[泪][泪][泪]
+
+
+*****
+
+####  東雲絵名  
+##### 321#         楼主| 发表于 2024-6-14 13:03
+
+整理了一下卡面里画画穿过的常服 ​​​
+
+<img src="https://img.saraba1st.com/forum/202406/14/130249vrxnrzxsby7r2ysc.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202406/14/130249vrxnrzxsby7r2ysc.png">
+
+<strong>image.png</strong> (81.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130253rg923a92cgeu0gay.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130258kj0m7bgj9esgpbpe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130303a7r7rajjsagj7lqr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130307osktcydqewjwkgcs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130312c2um812ip9uw985u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130317j5cw6v3fqfve1w0g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130322fz4m6ld1h6sh44d2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/14/130327suexunkd3uz2denx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-14 13:03 上传
+
+*****
+
+####  東雲絵名  
+##### 322#         楼主| 发表于 2024-6-14 13:04
+
+【sl】运营怎么好像恨女恨百合似的[疑问]之前在大超发全女爽被删，现在贴吧里统计女同cp，几百回复几百点赞可以申精了的直接全楼都被删了，而之前bgcp的帖子只删了引战的几层楼，一边卖姛一边捂嘴这是在干什么[疑问][疑问]不让磕直说好吗我早点跑路
+
+*****
+
+####  東雲絵名  
+##### 323#         楼主| 发表于 2024-6-14 13:05
+
+平时女角色可没少被骂 怎么换成男宝 “全员厨”就轻轻地崩溃了[阴险][阴险][阴险]
+
+*****
+
+####  東雲絵名  
+##### 324#         楼主| 发表于 2024-6-14 13:05
+
+经营姐到处ky拉史的福报就是免费的官图没有😆只有付费的周边[给力]活该当官方的提款机[偷笑][偷笑]
+

@@ -276,3 +276,16 @@
 
 东方快车谋杀案是一个死者一车凶手，要我设计的话就让小唐等车的时候淘气把W列车上的现状还原装置弄坏了，到站之后就是一个凶手一车死者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kurihayn  
+##### 757#       发表于 2024-6-14 13:03
+
+<blockquote>Jamaisvu 发表于 2024-6-14 08:55
+四号线后的W列车谋杀案和这次一样属于6.5间章，小唐是第七个大章节“梦之终结”的主角。
+
+不过3.5之后的间 ...</blockquote>
+
+起猛了，原来还有一个间章
+

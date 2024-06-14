@@ -890,3 +890,14 @@ ffta2还是挺好玩的。
 
 两个皇骑2重置各有各的不如意，FFT有个PSP/手机版也不是特别需要重置，不如把TA TA2重置一下。
 
+
+*****
+
+####  flyzzhj  
+##### 92#       发表于 2024-6-14 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65232230&amp;ptid=2118884" target="_blank">夜之光 发表于 2024-6-14 15:00</a>
+
+两个皇骑2重置各有各的不如意，FFT有个PSP/手机版也不是特别需要重置，不如把TA TA2重置一下。 ...</blockquote>
+我全都要.jpg
+

@@ -1726,3 +1726,15 @@ CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  永恒的王牌  
+##### 1625#       发表于 2024-6-15 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65242681&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-15 11:30</a>
+CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号称更强，但实质科研能力也不比自然人强很多
+
+比如 ...</blockquote>
+加入plant的调整者我记得只占调整者总数很小的一部分吧
+

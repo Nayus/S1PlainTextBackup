@@ -15186,3 +15186,11 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 这小白和亚子吧
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17544#       发表于 2024-6-15 20:49
+
+https://x.com/MLtoia/status/1801283398029480282<img src="https://p.sda1.dev/18/29c32ba9566bdc1de74ad77f1fc3732d/CMP_20240615204940782.jpg" referrerpolicy="no-referrer">
+

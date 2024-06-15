@@ -15154,3 +15154,11 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 （但是wsd的混音制作有点粗糙啊感觉。。。）
 
+
+*****
+
+####  rikaren  
+##### 17541#       发表于 2024-6-15 08:15
+
+这么个cp曲待遇我可以擅自期待初祥的kfes都是彼此吗
+

@@ -3933,3 +3933,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 笑死dlc全是旧衣服再利用，那师姐dlc我觉得就是丽霞衣服换色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 413#       发表于 2024-6-15 10:12
+
+现在如果师姐店特只是丽霞换色都算好的了，我最担心的是不会师姐本体直接没新衣服换了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

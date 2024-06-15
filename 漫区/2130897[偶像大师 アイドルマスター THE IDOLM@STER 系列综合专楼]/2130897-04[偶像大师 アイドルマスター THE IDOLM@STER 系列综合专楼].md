@@ -11285,3 +11285,11 @@ Image_1718463243343.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/15/225413vyadhtcl88hn1h8d.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  センコウ  
+##### 5495#       发表于 2024-6-16 00:17
+
+NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画新标杆封神的那一刻了
+

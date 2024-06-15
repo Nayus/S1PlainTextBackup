@@ -1648,3 +1648,16 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 破廉耻</blockquote>
 好可爱<img src="https://static.saraba1st.com/image/smiley/carton2017/350.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  seedees3  
+##### 1618#       发表于 2024-6-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65238422&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-6-14 23:55</a>
+
+阿比换的没什么道理，我挺喜欢阿比原来的声音，和希尔达还是做到了区别，其实没有换的必要。 ...</blockquote>
+虽然换了声优，但阿比能在剧场版继续出场担任CIC还是挺让人高兴，SD里唯一的存在感是“BOSS音乐起，命运传奇出击”时的CIC语音，但这段配合阿比的声音莫名带感
+
+同样换了声优的卡嘉莉的声线，乍一听还以为没换，特别是下头狼那段卡嘉莉说话时我都忘了已经不是近藤尚美在配了
+

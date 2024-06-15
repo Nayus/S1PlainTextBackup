@@ -211,3 +211,16 @@
 
 别的没有任何影响。
 
+
+*****
+
+####  operatbig  
+##### 3246#       发表于 2024-6-15 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65246668&amp;ptid=2092342" target="_blank">cmnewfan 发表于 2024-6-15 18:00</a>
+
+任务选倒幕还是佐幕对后续的任务有大影响吗？选了佐幕就不能选做倒幕的任务了？
+
+—— 来自 vivo V2303A, A ...</blockquote>
+没什么影响，因为主线就一条，也就其中几个任务你能选站哪边，大部分时间都是当龙马打手跟他反复横跳。所以经常出现你在主线佐幕，到了支线里又跟倒幕派称兄道弟的奇妙场景。
+

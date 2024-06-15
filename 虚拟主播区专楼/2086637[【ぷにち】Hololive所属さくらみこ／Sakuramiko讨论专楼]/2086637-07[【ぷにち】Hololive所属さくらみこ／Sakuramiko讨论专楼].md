@@ -1537,3 +1537,52 @@ B那个收藏包的音声，听完了才知道，原来如此，难怪她们本�
 
 后日有没有联动的杂谈还不确定，4个人要凑一起日程有点难了
 
+
+*****
+
+####  holoan  
+##### 9019#         楼主| 发表于 2024-6-15 10:54
+
+刚才oha48在讲上星期486为了解压自己一个人跑出去吃烤肉miko还很担心486心理状态特地问要不要陪着一起，把486感动的
+
+*****
+
+####  holoan  
+##### 9020#         楼主| 发表于 2024-6-15 11:15
+
+<img src="https://img.saraba1st.com/forum/202406/15/111353v48u4f18g00440me.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (672.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202406/15/111409aqoj4vjj87qjo7sb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (665.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202406/15/111422j1vv6iic03amvcid.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (619.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202406/15/111432qtyst3odz3yuztrr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (619.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 11:14 上传
+
+[https://x.com/CM83849201/status/1801797147261866326](https://x.com/CM83849201/status/1801797147261866326)
+
+草，这要是看过直播的不就全知道答案了吗
+

@@ -1671,3 +1671,14 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 这厚嘴唇到底是谁的审美，第一次见给动画主要女角色弄个厚嘴唇的，不够我觉得最大的问题不只是厚嘴唇，整 ...</blockquote>
 一贯的，年龄比较大的舰长就一直有口红，但这回年龄都增加了全都涂
 
+
+*****
+
+####  aptx8285144  
+##### 1620#       发表于 2024-6-15 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65242159&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-15 10:44</a>
+
+虽然换了声优，但阿比能在剧场版继续出场担任CIC还是挺让人高兴，SD里唯一的存在感是“BOSS音乐起，命运 ...</blockquote>
+新声优的声线明显比近藤要软很多，进藤哪怕不生气的时的声线都比现在粗犷（
+

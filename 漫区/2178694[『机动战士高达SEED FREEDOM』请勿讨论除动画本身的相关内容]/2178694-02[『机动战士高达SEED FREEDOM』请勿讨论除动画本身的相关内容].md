@@ -1812,3 +1812,33 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果孟德尔出事时被未完成的药剂泼了一身返老还童 ...</blockquote>
 那药居然不是只抑制克隆人老化？这么有用还玩啥阴谋诡计啊，直接统一地球了，拉克丝都得跪舔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 1632#       发表于 2024-6-15 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65244857&amp;ptid=2178694" target="_blank">macos 发表于 2024-6-15 15:11</a>
+这只能是巧合或第四面墙，弗雷没多少人知道，学拉克丝也学的太不像了</blockquote>
+基拉上学时就在暗恋芙蕾又不是什么秘密，那种年纪的孩子是明眼人都看得出来的吧，这种情报的获取太简单的
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  死难者23er  
+##### 1633#       发表于 2024-6-15 15:24
+
+<blockquote>macos 发表于 2024-6-15 15:11
+这只能是巧合或第四面墙，弗雷没多少人知道，学拉克丝也学的太不像了</blockquote>
+但是这个不是第四面墙，根据小说作者的说法，她的头发颜色真的是为了去追基拉之后去染的，以前不是这个颜色的，就看前传会不会去解释一下为什么她会知道这些事情？
+
+*****
+
+####  macos  
+##### 1634#       发表于 2024-6-15 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65244992&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-15 15:23</a>
+基拉上学时就在暗恋芙蕾又不是什么秘密，那种年纪的孩子是明眼人都看得出来的吧，这种情报的获取太简单的 ...</blockquote>
+那只有八卦传了很久才行，他们同期的人死差不多了，没死的不太像会一直在军队传，甚至公众也没有知道的迹象
+

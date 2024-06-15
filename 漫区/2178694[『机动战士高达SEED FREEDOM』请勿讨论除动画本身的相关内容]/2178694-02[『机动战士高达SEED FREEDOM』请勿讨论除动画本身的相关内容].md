@@ -1704,3 +1704,25 @@ CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号
 
 比如SEED1初始的五机让PLANT评议会震惊，月亮女神的屏障和能量偏移装甲，SD里的毁灭和镇魂曲等等这些，基本和ZAFT那边处于一个水准线上，特别是镇魂曲设计巧妙，牌面也大到20年后的剧场版还能拖出来继续当地图炮BOSS毫不落伍，搞得观众看了三次镇魂曲攻略战把新创世纪反衬得一点面子都没
 
+
+*****
+
+####  seedees3  
+##### 1623#       发表于 2024-6-15 11:36
+
+还有就是若有后续的话不想再看到第四次镇魂曲攻略战了
+
+
+*****
+
+####  月夜凝雪  
+##### 1624#       发表于 2024-6-15 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65242681&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-15 11:30</a>
+CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号称更强，但实质科研能力也不比自然人强很多
+
+比如 ...</blockquote>
+奥布的调整者可不少
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

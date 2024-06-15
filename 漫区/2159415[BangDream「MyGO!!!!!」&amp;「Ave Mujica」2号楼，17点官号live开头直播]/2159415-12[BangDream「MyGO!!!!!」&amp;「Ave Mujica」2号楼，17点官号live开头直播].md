@@ -15210,3 +15210,14 @@ https://x.com/MLtoia/status/1801283398029480282<img src="https://p.sda1.dev/18/2
 
 信则收又画鬼图了
 
+
+*****
+
+####  ddy2811  
+##### 17546#       发表于 2024-6-16 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65250785&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-16 00:02</a>
+
+信则收又画鬼图了</blockquote>
+什么反派<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

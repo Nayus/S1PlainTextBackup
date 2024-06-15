@@ -1792,3 +1792,23 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 </blockquote>
 阿古斯应该是冲着基拉设计的，基拉是一个颜控，而她是一个美女，另外无论是福田还是两泽都提到了她在演基拉喜欢的女孩，然后包括发型在内都是基拉喜欢的类型，头发颜色是基拉喜好的芙蕾和拉克丝，声优还是桑岛法子，剧场版的游戏宣传卡牌也是和基拉相关的，估计是原案修罗场剧情被删掉所造成的影响，而且如果真的是一开始基拉先接受了她，然后想通之后又把她甩了，然后阿古尼斯又发觉自己是被当成替代品，一怒之下想杀了基拉也比电影合理多了，不知道前传能不能补充一下
 
+
+*****
+
+####  macos  
+##### 1630#       发表于 2024-6-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65244736&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-15 15:00</a>
+阿古斯应该是冲着基拉设计的，基拉是一个颜控，而她是一个美女，另外无论是福田还是两泽都提到了她在演基 ...</blockquote>
+这只能是巧合或第四面墙，弗雷没多少人知道，学拉克丝也学的太不像了
+
+*****
+
+####  yixiaqqq  
+##### 1631#       发表于 2024-6-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65244277&amp;ptid=2178694" target="_blank">pokemon最爱 发表于 2024-6-15 14:15</a>
+
+loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果孟德尔出事时被未完成的药剂泼了一身返老还童 ...</blockquote>
+那药居然不是只抑制克隆人老化？这么有用还玩啥阴谋诡计啊，直接统一地球了，拉克丝都得跪舔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

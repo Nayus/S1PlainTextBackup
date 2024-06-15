@@ -11242,3 +11242,11 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 之前就有第7话掉落到23.6好评了，28.3好评更多是乐子人控评，不过nico爆破后就看不到啦
 
+
+*****
+
+####  Laie  
+##### 5491#       发表于 2024-6-15 15:10
+
+昨晚好歹上趋势了，不过大多是就着太陽キッス忆苦思甜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

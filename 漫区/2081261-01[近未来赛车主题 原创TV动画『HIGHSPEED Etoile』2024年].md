@@ -34,3 +34,15 @@ ED里凛终于不摔跤啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 还有那个理查德一进维修站就死机弃权有点假啊，真不是有人背后做了什么手脚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 405#       发表于 2024-6-15 15:54
+
+好我想好12集怎么圆了，比赛当天有日全食，理查车瘫了是因为日全食前的地磁场影响
+
+然后国王因为不擅长跑夜路抓瞎了，一脚刹车把女王也给带走了
+
+凛顺理成章的拿第一，俩不知道设定来干啥的小伙伴蹭到第二第三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

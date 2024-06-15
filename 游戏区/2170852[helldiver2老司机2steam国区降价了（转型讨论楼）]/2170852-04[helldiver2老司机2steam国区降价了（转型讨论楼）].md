@@ -1112,3 +1112,14 @@ QQ图片20240614223029.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  FLZB  
+##### 4952#       发表于 2024-6-15 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241906&amp;ptid=2170852" target="_blank">洛拉斯 发表于 2024-6-15 10:16</a>
+
+哨戒炮cd2分钟，和警报时间正好重合，用来处理小虫子很爽</blockquote>
+出只强袭就无了，对群怪的压制力也一般，跟加强后的轨道加特林差不多，只能作为辅助输出使用。
+

@@ -196,3 +196,18 @@
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nagitoY  
+##### 3245#       发表于 2024-6-15 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65246668&amp;ptid=2092342" target="_blank">cmnewfan 发表于 2024-6-15 18:00</a>
+
+任务选倒幕还是佐幕对后续的任务有大影响吗？选了佐幕就不能选做倒幕的任务了？
+
+—— 来自 vivo V2303A, A ...</blockquote>
+第三章开头选佐幕才能做冲田总司的因缘任务，否则他主线里会病死。不过二周目后随便改写历史了。
+
+别的没有任何影响。
+

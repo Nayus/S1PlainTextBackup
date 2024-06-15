@@ -1752,3 +1752,14 @@ CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号
 
 鸟稳定的发挥了自己杂鱼精英杀手的实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zdlx  
+##### 1627#       发表于 2024-6-15 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65222437&amp;ptid=2178694" target="_blank">Kyo.C 发表于 2024-6-13 16:57</a>
+
+所以只是基础性能上升了，我还以为有什么理念上的变化。</blockquote>
+以现实来说，都是核动力航母，但是企业级肯定不如尼米兹级，尼米兹不如福特级
+

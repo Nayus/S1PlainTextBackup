@@ -1517,3 +1517,11 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 再次推荐这个视频
 【不会快速切枪的菜鸡也能玩doom永恒的dlc-哔哩哔哩】 https://b23.tv/1NP8JnT
 
+
+*****
+
+####  古代人皮克  
+##### 153#       发表于 2024-6-15 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打不过可以换宝宝难度啊，还可以开作弊模式无限飞行一拳一个小朋友，有没有可能这游戏大家都说好就你觉得吃屎呢
+

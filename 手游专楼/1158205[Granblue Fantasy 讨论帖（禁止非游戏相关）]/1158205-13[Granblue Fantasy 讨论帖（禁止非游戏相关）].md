@@ -18,3 +18,17 @@
 
 反正我也不需要暗猎金，2刀摆着吧先
 
+
+*****
+
+####  syndrome2032  
+##### 17938#       发表于 2024-6-15 22:08
+
+ 本帖最后由 syndrome2032 于 2024-6-15 22:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65247041&amp;ptid=1158205" target="_blank">usoda 发表于 2024-6-15 18:36</a>
+4202年了我们仍未知道暗使徒是谁
+
+话说暗限定的全女别肘算打破了吗</blockquote>
+一件切换。怎么能算gay
+你会认为吉他算gay吗。
+

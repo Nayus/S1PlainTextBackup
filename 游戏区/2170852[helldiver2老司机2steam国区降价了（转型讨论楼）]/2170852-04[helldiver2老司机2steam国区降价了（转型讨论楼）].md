@@ -1150,3 +1150,13 @@ QQ图片20240614223029.png
 
 地雷又没发出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  柠檬渣  
+##### 4956#       发表于 2024-6-15 23:34
+
+我看大家脾气都上来了   就不做那个任务看你个b地雷什么时候发
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

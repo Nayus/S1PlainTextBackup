@@ -791,3 +791,14 @@ A社游戏性顶流，但是真的不是很实用啊，至少对我来说<img sr
 
 我反正还是那句话，挺看不起全年龄擦边的，上不去下不来
 
+
+*****
+
+####  kqwert  
+##### 50#       发表于 2024-6-15 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241635&amp;ptid=2153947" target="_blank">grox133 发表于 2024-6-15 09:45</a>
+
+我反正还是那句话，挺看不起全年龄擦边的，上不去下不来</blockquote>
+再劣化一下加上手游氪金，就上去了
+

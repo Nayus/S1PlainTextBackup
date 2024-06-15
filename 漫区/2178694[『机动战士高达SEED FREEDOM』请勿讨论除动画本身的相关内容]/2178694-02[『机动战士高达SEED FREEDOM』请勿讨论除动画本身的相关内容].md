@@ -2005,3 +2005,14 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 前面翻楼时注意到有人好像疑惑美玲从cic变成完全前线人员（cic其实也算前线了），一时间找不到留言，其实吗这个身份转变在种命里就有，米娅事件时就先是陪拉克丝他们出去玩，接到米娅的信后拉克丝马上决定应对，那自然全部化身警卫出发了，想起那个巨搞笑的枪战就是阿斯兰干掉百分之99，美玲干掉1个手雷，基拉0人头的那场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤黑的假面  
+##### 1646#       发表于 2024-6-15 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65247111&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-6-15 18:42</a>
+
+种自后续急什么呢，本质玩具片，这次这么成功先卖十年塑料不成问题，等种自十周年再看看有什么新企划吧 ...</blockquote>
+种又不是亲儿子，就是日升的赚米工具人，赚完米还要被OLD MONEY们嫌弃的不行
+

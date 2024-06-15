@@ -1637,3 +1637,14 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 
 顺便武力介入的话至少全金比断空我还早点（？
 
+
+*****
+
+####  KDConan  
+##### 1617#       发表于 2024-6-15 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241111&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-6-15 08:33</a>
+
+破廉耻</blockquote>
+好可爱<img src="https://static.saraba1st.com/image/smiley/carton2017/350.png" referrerpolicy="no-referrer">
+

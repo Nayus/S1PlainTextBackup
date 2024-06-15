@@ -11128,3 +11128,38 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 —— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  wolf1997  
+##### 5479#       发表于 2024-6-15 03:19
+
+谢谢玻璃钢的监控室镜头，让我回想起传奇宿管臭作安装摄像头的峥嵘岁月，小时候最喜欢的一集
+
+*****
+
+####  Ask_10A  
+##### 5480#       发表于 2024-6-15 03:27
+
+<img src="https://p.sda1.dev/18/8f818f5aab971dda3d61fde10dfcae1c/CMP_20240615032635875.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/fd4466c16f1f4c136354b06399303c09/Image_1718393129079.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  00Q  
+##### 5481#       发表于 2024-6-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65240487&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2024-6-15 03:27</a>
+
+—— 来自 vivo V2121A, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+希望三牛老师知道这样的动画还要再来一季，而百友的第二季还遥遥无期的时候不会彻底碎掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 5482#       发表于 2024-6-15 10:24
+
+就小高要不你把档期贡献出来给别家吧，别折磨观众了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

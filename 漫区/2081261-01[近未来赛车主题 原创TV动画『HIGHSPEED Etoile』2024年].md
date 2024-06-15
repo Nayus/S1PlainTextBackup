@@ -66,3 +66,15 @@ ED里凛终于不摔跤啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  raimouse  
+##### 408#       发表于 2024-6-15 17:20
+
+氮气加速不是很明显有储存量的说法么
+
+前面几集有明确演出的我记得
+
+量用完了就没加速了
+

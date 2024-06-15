@@ -1738,3 +1738,17 @@ CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号
 比如 ...</blockquote>
 加入plant的调整者我记得只占调整者总数很小的一部分吧
 
+
+*****
+
+####  yixiaqqq  
+##### 1626#       发表于 2024-6-15 13:20
+
+ 本帖最后由 yixiaqqq 于 2024-6-15 13:23 编辑 
+
+阿格尼丝要是真人版那绝对是带资进组的，删了戏份一点影响没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+金毛老太太为什么变萝莉也没解释啊
+
+鸟稳定的发挥了自己杂鱼精英杀手的实力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

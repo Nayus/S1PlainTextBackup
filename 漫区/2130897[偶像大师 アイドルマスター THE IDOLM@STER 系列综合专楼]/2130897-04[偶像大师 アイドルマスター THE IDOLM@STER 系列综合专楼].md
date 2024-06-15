@@ -11258,3 +11258,13 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 感觉ep11没有ep10爆笑 ep10那个16人轮流闭眼太变态了
 
+
+*****
+
+####  安广多惠子  
+##### 5493#       发表于 2024-6-15 17:01
+
+太诡异了这集，一开头悬疑片一般的bgm配上鸽子暖乎乎的笑脸已经不知道怎么形容，ed用的是1st的暖场音乐吗，最后听到那个彻底绷不住了，一想到这样的片还有一季我充满了期待，还有什么想不到的烂活全拿上来去罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

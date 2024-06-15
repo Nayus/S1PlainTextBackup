@@ -1860,3 +1860,15 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 所以鸡对阿格尼丝根本没体现出一丝一毫的意思，只能说阿格尼丝选错了方向，扮成拉克丝MK2或许胜算还有一点 ...</blockquote>
 确实按照福田对于照片的说明，或许基拉从头到尾都清楚，阿古尼斯不是芙蕾，说不定前传就会讲讲基拉是怎么想明白这件事情
 
+
+*****
+
+####  月夜凝雪  
+##### 1637#       发表于 2024-6-15 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65245025&amp;ptid=2178694" target="_blank">macos 发表于 2024-6-15 15:27</a>
+那只有八卦传了很久才行，他们同期的人死差不多了，没死的不太像会一直在军队传，甚至公众也没有知道的迹 ...</blockquote>
+学生很多都存活着吧，殖民星大部分脱出仓都没事
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

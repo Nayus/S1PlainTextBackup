@@ -46,3 +46,23 @@ ED里凛终于不摔跤啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 凛顺理成章的拿第一，俩不知道设定来干啥的小伙伴蹭到第二第三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 406#       发表于 2024-6-15 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">致敬绿色车队换胎笑喷
+
+
+*****
+
+####  月夜凝雪  
+##### 407#       发表于 2024-6-15 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65245250&amp;ptid=2081261" target="_blank">arachnid 发表于 2024-6-15 15:46</a>
+这集凛已经把爆发交了，国王手里还捏着爆发，下集跟国王继续对线真能赢吗，总不能又出什么事故导致国王弃权 ...</blockquote>
+那东西没说是一次性吧，应该只是需要冷却
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

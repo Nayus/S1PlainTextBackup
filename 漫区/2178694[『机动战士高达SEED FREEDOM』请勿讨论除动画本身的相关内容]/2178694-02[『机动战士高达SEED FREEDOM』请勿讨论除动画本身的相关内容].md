@@ -1609,3 +1609,14 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 
 —— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  oi99o  
+##### 1614#       发表于 2024-6-15 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241337&amp;ptid=2178694" target="_blank">sql710 发表于 2024-6-15 09:06</a>
+
+昨晚看了，一肚子的槽想吐。。。今早起来就只剩全员嘟嘟嘴、遗憾为什么不用闪哈的规格来做呢、开头感觉在co ...</blockquote>
+机战cg已经比闪哈的规格高了，其他人设、分镜那些就是监督的风格差别了，不可能照搬的
+

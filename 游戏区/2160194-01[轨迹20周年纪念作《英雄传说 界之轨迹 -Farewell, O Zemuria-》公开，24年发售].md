@@ -3925,3 +3925,11 @@ ps4缝缝补补又一年，当年还是因为pc上汉化欧美版闪三的大佬
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  一步成诗  
+##### 412#       发表于 2024-6-15 09:15
+
+笑死dlc全是旧衣服再利用，那师姐dlc我觉得就是丽霞衣服换色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

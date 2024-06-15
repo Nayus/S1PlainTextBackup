@@ -1589,3 +1589,23 @@ bee956f5-e7b9-4976-b196-a5e0d8bf4ef7.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/15/082047pdiovkuwaubutajn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sql710  
+##### 1612#       发表于 2024-6-15 09:06
+
+昨晚看了，一肚子的槽想吐。。。今早起来就只剩全员嘟嘟嘴、遗憾为什么不用闪哈的规格来做呢、开头感觉在cos 00，也不知道谁更先提这种干涉型组织。其他的已经无力吐槽了，剧情和逻辑简直是灾难，放空大脑看打戏还行。就是有点怀疑在电影院看这种闪光多的，真的不会触发光敏癫痫么？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜凝雪  
+##### 1613#       发表于 2024-6-15 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241337&amp;ptid=2178694" target="_blank">sql710 发表于 2024-6-15 09:06</a>
+昨晚看了，一肚子的槽想吐。。。今早起来就只剩全员嘟嘟嘴、遗憾为什么不用闪哈的规格来做呢、开头感觉在co ...</blockquote>
+断空我nova都比00早两年
+
+—— 来自 ALLDOCUBE Zhangwanmini, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

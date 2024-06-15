@@ -24,3 +24,13 @@ ED里凛终于不摔跤啦<img src="https://static.saraba1st.com/image/smiley/fa
 
 按他这开法，四五十圈的比赛不是应该场均套其他人四五圈甚至七八圈，也别说什么隐藏实力了，开了就是开了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arachnid  
+##### 404#       发表于 2024-6-15 15:46
+
+这集凛已经把爆发交了，国王手里还捏着爆发，下集跟国王继续对线真能赢吗，总不能又出什么事故导致国王弃权给凛拿第一吧……
+
+还有那个理查德一进维修站就死机弃权有点假啊，真不是有人背后做了什么手脚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

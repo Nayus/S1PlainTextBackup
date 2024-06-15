@@ -32,3 +32,14 @@
 一件切换。怎么能算gay
 你会认为吉他算gay吗。
 
+
+*****
+
+####  Sylpheed  
+##### 17939#       发表于 2024-6-15 22:25
+
+角色除了对着jf做这点外，fa还是可圈可点的，自己超级兵+大杯驱散+完全回复，200肯定能上班。
+武器我倒是一直不太喜欢袭刃e追来源比较多不说，暗现乱击，技伤选手也比较多，天司伤比较泛用，不过给都给了，还能离咋滴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

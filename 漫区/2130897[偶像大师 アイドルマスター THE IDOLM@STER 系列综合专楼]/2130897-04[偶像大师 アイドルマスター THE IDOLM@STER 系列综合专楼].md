@@ -11163,3 +11163,28 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 就小高要不你把档期贡献出来给别家吧，别折磨观众了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  00Q  
+##### 5483#       发表于 2024-6-15 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65185192&amp;ptid=2130897" target="_blank">Ask_10A 发表于 2024-6-10 20:16</a>
+
+不如先猜猜是enza先死还是sfp先死</blockquote>
+那我猜前者，前者第二季一出就可以宣布关服了，后者还可以跟偶像荣耀一样，嗯出米组的新卡爆太君大米<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 5484#       发表于 2024-6-15 10:29
+
+第二季给页游俩支柱全拆了，enza基本就没戏了，大概率行男人旧事了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 5485#       发表于 2024-6-15 11:00
+
+我是shhis p，现在的心情很复杂…
+

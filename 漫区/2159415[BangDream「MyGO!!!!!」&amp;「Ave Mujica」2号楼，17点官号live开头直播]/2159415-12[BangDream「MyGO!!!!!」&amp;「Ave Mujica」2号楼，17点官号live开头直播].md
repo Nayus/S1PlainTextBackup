@@ -15194,3 +15194,19 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 https://x.com/MLtoia/status/1801283398029480282<img src="https://p.sda1.dev/18/29c32ba9566bdc1de74ad77f1fc3732d/CMP_20240615204940782.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17545#       发表于 2024-6-16 00:02
+
+<img src="https://img.saraba1st.com/forum/202406/16/000241a080h0amp07lp8m6.jpg" referrerpolicy="no-referrer">
+
+<strong>1718464174870.jpg</strong> (410.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 00:02 上传
+
+信则收又画鬼图了
+

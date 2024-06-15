@@ -15170,3 +15170,19 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 初祥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 等不及要看这首的live了
 
+
+*****
+
+####  rikaren  
+##### 17543#       发表于 2024-6-15 13:12
+
+<img src="https://img.saraba1st.com/forum/202406/15/131208qt9pogopo9oooutz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-15-13-10-47-17_149003a2d400f6adb210d7e357a3a646.jpg</strong> (326.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 13:12 上传
+
+这小白和亚子吧
+

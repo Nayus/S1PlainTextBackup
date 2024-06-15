@@ -1763,3 +1763,18 @@ CE世界科技确实攀太快了，不过最让人奇怪的是调整者明明号
 所以只是基础性能上升了，我还以为有什么理念上的变化。</blockquote>
 以现实来说，都是核动力航母，但是企业级肯定不如尼米兹级，尼米兹不如福特级
 
+
+*****
+
+####  pokemon最爱  
+##### 1628#       发表于 2024-6-15 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65243784&amp;ptid=2178694" target="_blank">yixiaqqq 发表于 2024-6-15 13:20</a>
+
+阿格尼丝要是真人版那绝对是带资进组的，删了戏份一点影响没有
+
+金毛老太太为什么变萝莉也没解释啊</blockquote>
+loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果孟德尔出事时被未完成的药剂泼了一身返老还童了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+克队和雷用的药疑似就是这个药的后续研究成果。
+

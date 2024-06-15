@@ -1089,3 +1089,26 @@ QQ图片20240614223029.png
 
 更新快两天了这逼说自己还没玩过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 4950#       发表于 2024-6-15 11:20
+
+自动哨戒炮和火箭哨戒炮最大的问题是一被近身就哑火，被牛牛一冲就散了。被打烂了只能等CD。
+
+*****
+
+####  ws4222  
+##### 4951#       发表于 2024-6-15 11:23
+
+<img src="https://img.saraba1st.com/forum/202406/15/112338vxuzykbu3my1cx2b.png" referrerpolicy="no-referrer">
+
+<strong>4255de5e92f10d0ac4504c0aec93eee0_720.png</strong> (168.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-15 11:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

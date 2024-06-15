@@ -15162,3 +15162,11 @@ https://www.bilibili.com/video/BV1sm421L7sC/</blockquote>
 
 这么个cp曲待遇我可以擅自期待初祥的kfes都是彼此吗
 
+
+*****
+
+####  ellisnadie  
+##### 17542#       发表于 2024-6-15 08:43
+
+初祥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 等不及要看这首的live了
+

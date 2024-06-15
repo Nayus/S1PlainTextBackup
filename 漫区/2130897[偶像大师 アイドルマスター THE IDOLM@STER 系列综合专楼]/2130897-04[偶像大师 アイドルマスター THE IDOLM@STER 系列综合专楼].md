@@ -11188,3 +11188,17 @@ op中所有镜头演出手法就是正片的总集篇是吧<img src="https://sta
 
 我是shhis p，现在的心情很复杂…
 
+
+*****
+
+####  raimouse  
+##### 5486#       发表于 2024-6-15 12:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来,莉莉娅的高达粉人设
+
+我好像都没在个人好感剧情看到过
+
+除了过场一格漫画看到过相关的
+
+还有什么地方的剧情提到过么
+

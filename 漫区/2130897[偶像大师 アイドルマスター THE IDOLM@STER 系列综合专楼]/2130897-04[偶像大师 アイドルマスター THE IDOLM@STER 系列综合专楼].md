@@ -11392,3 +11392,11 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 ˇ_ˇ×16<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  screeper  
+##### 5505#       发表于 2024-6-16 23:28
+
+大胆预言，全员大头x16在ep12还要再来一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

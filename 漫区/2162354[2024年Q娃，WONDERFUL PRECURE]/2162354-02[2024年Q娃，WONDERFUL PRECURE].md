@@ -3062,3 +3062,20 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 学校是学习的地方，所以小雪和真由这是在学什么，回家里会复习吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1750#       发表于 2024-6-16 23:28
+
+猫组棉签百合本gkd<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MagicGiraffe  
+##### 1751#       发表于 2024-6-16 23:33
+
+嘟嘴让小雪擦脸也太可爱太娇滴滴了吧
+拿棉签给猫猫解决生理需求时岂不是要脸红得流眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

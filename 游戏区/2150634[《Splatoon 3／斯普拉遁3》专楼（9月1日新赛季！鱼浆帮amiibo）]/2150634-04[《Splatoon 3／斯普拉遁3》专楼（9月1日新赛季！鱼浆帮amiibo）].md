@@ -3003,3 +3003,13 @@ max三岗过了，仍旧没有金
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  holoan  
+##### 4737#       发表于 2024-6-16 17:22
+
+又一次是开始对战瞬间整个游戏软件出错强行关闭
+
+到底这游戏还有多少bug
+

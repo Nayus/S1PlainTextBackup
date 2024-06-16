@@ -1227,3 +1227,14 @@ QQ图片20240614223029.png
 
 贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ykyin09  
+##### 4963#       发表于 2024-6-16 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65258001&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-6-16 15:16</a>
+
+贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联盟地球，这位真康米？
+

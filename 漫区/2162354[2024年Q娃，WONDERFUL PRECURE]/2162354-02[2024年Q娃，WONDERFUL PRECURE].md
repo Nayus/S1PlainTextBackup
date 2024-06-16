@@ -2938,3 +2938,34 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 狗组这几集除了拦猫讲道理和最后收怪就没参与，把猫组单独切出来也不影响剧情，不过后面应该就是四人合力打怪了
 
+
+*****
+
+####  上坂莲华  
+##### 1740#       发表于 2024-6-16 12:15
+
+彩狗组这几集除了变身水时长跟摇铃水时长是一点作用都没有，不过对比某个明显可以删掉的暖男来说还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我说什么来着，根本不能指望大妈的文戏，这集甚至不是mayu讲大道理搞定猫，是猫直接脑内自我PUA了
+
+还有开头那段迷惑剧情，mayu你又不是第一次去花园还搞的这么扭捏跟没去过一样，嗯编个借口拖猫下水是吧
+
+最后我觉得还是mayu说得对，就应该扔下彩狗组，去找菜乃叶和命运两个人学点真正的魔法回来，西瓜回路遮断器可比噗哩Q娃好用多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/16/121444u75xkrv2rnoodnx2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240616121306.png</strong> (85.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 12:14 上传
+
+*****
+
+####  noneoneone  
+##### 1741#       发表于 2024-6-16 12:15
+
+下集预告yuki画画全是mayu，和mayu毫无距离感把同学都看到脸红。
+
+所以mayu台词里说那是自己的位置，不会是yuki想坐她腿上吧？
+

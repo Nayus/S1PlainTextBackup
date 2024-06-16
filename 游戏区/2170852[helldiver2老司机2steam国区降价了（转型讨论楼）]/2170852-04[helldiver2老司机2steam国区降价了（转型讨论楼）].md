@@ -1267,3 +1267,19 @@ QQ图片20240614223029.png
 各种配装试了一圈得出结论，现在东线还是避免solo和单走吧，太享受了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在东线单走的下场要么被虫子淹没，要么死于自己呼叫的飞鹰集束
 
+
+*****
+
+####  FLZB  
+##### 4967#       发表于 2024-6-16 21:41
+
+<img src="https://img.saraba1st.com/forum/202406/16/213721qtpepvrr4fu0afyq.jpg" referrerpolicy="no-referrer">
+
+<strong>helldivers2.exe Screenshot 2024.06.16 - 21.14.50.66_cr.jpg</strong> (78.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 21:37 上传
+
+现在单刷一把n7洲际导弹，以前撑死一把300多杀，另外电疗套装是东线一个不错的答案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

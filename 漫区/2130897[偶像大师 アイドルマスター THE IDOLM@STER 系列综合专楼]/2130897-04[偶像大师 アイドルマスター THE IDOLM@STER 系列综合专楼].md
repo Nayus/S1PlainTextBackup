@@ -11334,3 +11334,18 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 三牛老师的拷打还没出，不会是第十一集看得急火攻心拿去紧急返工了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 5498#       发表于 2024-6-16 21:34
+
+视频出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 5499#       发表于 2024-6-16 21:39
+
+看来真是看了11集紧急加了内容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

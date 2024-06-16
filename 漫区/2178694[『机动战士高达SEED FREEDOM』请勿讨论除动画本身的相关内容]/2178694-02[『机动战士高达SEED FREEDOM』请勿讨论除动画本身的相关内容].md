@@ -2113,3 +2113,33 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 这个图的阿古尼斯真的对得起美女设定，这个样子去钩引基拉或许真有机会
 
+
+*****
+
+####  novyMS  
+##### 1657#       发表于 2024-6-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65262226&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-06-16 21:41:20</a>
+如果阿姑尼斯当初是这个样子结合芙蕾和拉克丝特征
+
+用这个样子去钩引基拉或许真有机会 ...</blockquote>散发比双马尾好看多了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyMS  
+##### 1658#       发表于 2024-6-16 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/16/231244luiu23i546sqqp4s.jpg" referrerpolicy="no-referrer">
+
+<strong>E2493BD8055C8EC0BBB64B2F4FE52121.jpg</strong> (454.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 23:12 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

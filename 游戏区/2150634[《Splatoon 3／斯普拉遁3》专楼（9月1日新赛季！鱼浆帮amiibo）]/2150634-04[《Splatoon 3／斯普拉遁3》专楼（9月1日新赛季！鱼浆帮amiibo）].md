@@ -2968,3 +2968,20 @@ max三岗过了，仍旧没有金
 
 推上又有喷喷瓜吃，怎么又是上位势交往未成年女友还对其性暴力…
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4733#       发表于 2024-6-16 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是谁是谁，你游圈子比游戏本身好玩多了
+
+
+*****
+
+####  秋月孝三  
+##### 4734#       发表于 2024-6-16 11:14
+
+[https://x.com/Pcoronet_Spla/status/1802129740591247478](https://x.com/Pcoronet_Spla/status/1802129740591247478)
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -1545,3 +1545,24 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 永恒我菜鸡玩的正常难度  全程下来别说子弹不够用了 感觉还多了不少子弹 
 
+
+*****
+
+####  white1dance  
+##### 156#       发表于 2024-6-16 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65218141&amp;ptid=2184766" target="_blank">DawnGuardian 发表于 2024-6-13 11:18</a>
+
+不玩切枪取消后摇打个永恒本体应该还凑活，dlc那是打不了一点吧</blockquote>
+正常难度可以打，高难度不知道了，我正常难度全打下来还是不会切枪，老年人切法
+
+
+*****
+
+####  zxtree  
+##### 157#       发表于 2024-6-16 09:31
+
+DoomE枪有点多了呀，手指不够用，按不过来
+
+少两个刚好，打的很爽，全用上就全乱套了
+

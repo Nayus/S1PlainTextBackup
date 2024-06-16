@@ -1525,3 +1525,23 @@ dlc1降难度是不是就改了第三关的健身房，我只知道这个健身�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打不过可以换宝宝难度啊，还可以开作弊模式无限飞行一拳一个小朋友，有没有可能这游戏大家都说好就你觉得吃屎呢
 
+
+*****
+
+####  white1dance  
+##### 154#       发表于 2024-6-16 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65214915&amp;ptid=2184766" target="_blank">77BBC 发表于 2024-6-13 00:06</a>
+
+要回归旧式线性探索关卡吗，太好了。我还是不喜欢竞技场堆砌跳跳乐调节，地图探索和遭遇战更有魅力
+
+——  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">真的能回归吗 感觉还会是竞技场一个接一个战点
+
+*****
+
+####  white1dance  
+##### 155#       发表于 2024-6-16 09:23
+
+永恒我菜鸡玩的正常难度  全程下来别说子弹不够用了 感觉还多了不少子弹 
+

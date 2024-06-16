@@ -15493,3 +15493,11 @@ Ataraxia（內心的寧靜）
 
 朋友還發現了一個很有意思的點，幕間1的時候dolo還是自稱 “僕”，而到了幕間2和幕間3，就變成 “私” 了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 17549#       发表于 2024-6-17 01:16
+
+Doloris自稱"私"不會破壞世界觀嗎<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

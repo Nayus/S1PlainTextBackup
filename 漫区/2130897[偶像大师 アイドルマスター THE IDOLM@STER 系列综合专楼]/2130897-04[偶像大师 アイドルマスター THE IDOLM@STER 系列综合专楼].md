@@ -11359,3 +11359,13 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  伊布桑  
+##### 5501#       发表于 2024-6-16 22:13
+
+看到三牛老师的精神状态这么美丽，太欣慰了（
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

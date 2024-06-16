@@ -1655,3 +1655,42 @@ fbk现在在杂谈直播里说4人旅行的事，有一个令人震惊的事件�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关于迟到的事，开始圆话
 
+
+*****
+
+####  rs5621  
+##### 9027#       发表于 2024-6-16 20:31
+
+<img src="https://img.saraba1st.com/forum/202406/16/203106o9990cccx5f55599.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 20:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才发觉4代是35最爱的金发
+
+*****
+
+####  holoan  
+##### 9028#         楼主| 发表于 2024-6-16 22:10
+
+<img src="https://img.saraba1st.com/forum/202406/16/221050eggbukof1fwmucgq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 22:10 上传
+
+*****
+
+####  holoan  
+##### 9029#         楼主| 发表于 2024-6-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65261620&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-6-16 20:31</a>
+
+才发觉4代是35最爱的金发</blockquote>
+……鸣人就不是金发了吗
+

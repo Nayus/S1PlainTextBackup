@@ -1900,3 +1900,11 @@ kmr还在拉扯</blockquote>
 
 幽默延一年<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">继承比预想还要差，只有赛博骨灰盒
 
+
+*****
+
+####  kria  
+##### 56#       发表于 2024-6-16 21:17
+
+你们骂木村可不可以用日文字<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 遊戲王壓住他
+

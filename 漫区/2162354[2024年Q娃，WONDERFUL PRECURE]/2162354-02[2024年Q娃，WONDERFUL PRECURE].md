@@ -2902,3 +2902,14 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  pokemon最爱  
+##### 1736#       发表于 2024-6-16 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65253663&amp;ptid=2162354" target="_blank">renkan119 发表于 2024-6-16 08:14</a>
+
+狗组这也太惨了吧 一般就算要让新人出点风头 也没这么踩老人的吧</blockquote>
+追加战士强化期间之前的Q娃战斗力丢人不是正常情况吗，再怎么说也不如抓心日光入队时战斗力一个人顶汁波密玛琳两个、月光姐入队时战斗力按着三小只暴打夸张吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

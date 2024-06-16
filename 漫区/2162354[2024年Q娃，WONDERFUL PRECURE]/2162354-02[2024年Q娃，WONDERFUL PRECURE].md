@@ -3079,3 +3079,19 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 嘟嘴让小雪擦脸也太可爱太娇滴滴了吧
 拿棉签给猫猫解决生理需求时岂不是要脸红得流眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  2287217595  
+##### 1752#       发表于 2024-6-17 00:27
+
+<img src="https://img.saraba1st.com/forum/202406/17/002649gxfymyfvzrmx8zme.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 00:26 上传
+
+心都化了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

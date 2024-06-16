@@ -1256,3 +1256,14 @@ QQ图片20240614223029.png
 贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球</blockquote>
 我估计是pvp要素，具体怎么实现还不好说
 
+
+*****
+
+####  ykyin09  
+##### 4966#       发表于 2024-6-16 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65258583&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-16 16:04</a>
+
+各种配装试了一圈得出结论，现在东线还是避免solo和单走吧，太享受了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在东线单走的下场要么被虫子淹没，要么死于自己呼叫的飞鹰集束
+

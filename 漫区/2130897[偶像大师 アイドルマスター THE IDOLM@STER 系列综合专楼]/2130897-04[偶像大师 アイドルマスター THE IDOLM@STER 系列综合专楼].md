@@ -11326,3 +11326,11 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 以上爲晝場的業務聯絡環節，如無意外，夜場的同一環節也會和晝場一致。
 
+
+*****
+
+####  Kasuga_Mirai  
+##### 5497#       发表于 2024-6-16 19:46
+
+三牛老师的拷打还没出，不会是第十一集看得急火攻心拿去紧急返工了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

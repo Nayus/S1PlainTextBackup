@@ -2989,3 +2989,11 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 国内q娃谷子开团眼镜仔因为有大福带都比狗组好推，狗组完全滞销
 有什么头绪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么低人气的主角组是不是也太失败了点
 
+
+*****
+
+####  粉儿alice  
+##### 1744#       发表于 2024-6-16 13:50
+
+原本以为猫组的剧情结束了 就可以安心写狗组剧情了 可现在狗组已经是弃子两枚了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

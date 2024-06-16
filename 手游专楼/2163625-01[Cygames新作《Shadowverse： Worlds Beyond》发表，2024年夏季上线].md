@@ -1969,3 +1969,11 @@ Shadowverse营运团队 敬上
 
 这把szb提前按死了跟我们说byd来不了是不是太幽默了
 
+
+*****
+
+####  SorakadoAo  
+##### 61#       发表于 2024-6-16 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

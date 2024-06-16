@@ -11369,3 +11369,18 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  野菜一日分  
+##### 5502#       发表于 2024-6-16 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说之前看他动态提到11-12话是LIVE构成，但11集不都唱得差不多了吗，12集的时间怎么填满？有没有看过先行的勇士说一说
+
+*****
+
+####  格雷殿下  
+##### 5503#       发表于 2024-6-16 22:42
+
+刚来，是要给主播喊救护车了吗
+

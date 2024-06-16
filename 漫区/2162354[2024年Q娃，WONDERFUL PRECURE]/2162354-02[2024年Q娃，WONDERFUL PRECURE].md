@@ -3015,3 +3015,35 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 猫猫犹豫就会败北啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MLP_102  
+##### 1747#       发表于 2024-6-16 22:36
+
+<img src="https://img.saraba1st.com/forum/202406/16/223119hwnqnymqzqmdynqb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 22:31 上传
+
+黑板上的两首诗都是杜甫描写春景的诗啊。
+
+ <blockquote>绝句
+
+江碧鸟逾白，山青花欲燃。
+
+今春看又过，何日是归年。
+
+春望
+
+国破山河在，城春草木深。
+
+感时花溅泪，恨别鸟惊心。
+
+烽火连三月，家书抵万金。
+
+白头搔更短，浑欲不胜簪。</blockquote>
+

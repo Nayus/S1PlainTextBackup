@@ -1160,3 +1160,15 @@ QQ图片20240614223029.png
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  jy000129  
+##### 4957#       发表于 2024-6-16 08:13
+
+ 本帖最后由 jy000129 于 2024-6-16 08:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65240837&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-15 07:35</a>
+
+更新快两天了这逼说自己还没玩过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉这傻逼游戏敌方增援是看场上怪数量来的，减少到一定程度怪就会开始叫增援，然后就会发现一波接一波根本杀不完，清的越快越难受，增援之间根本没有CD或者增援CD特别短，包括110的刷新频率也是
+

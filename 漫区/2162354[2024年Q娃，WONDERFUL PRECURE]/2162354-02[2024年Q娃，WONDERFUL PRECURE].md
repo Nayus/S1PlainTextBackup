@@ -2831,3 +2831,18 @@ q娃一般不搞天降加人 两天降系亚久里和明日美人气低到可怜
 <img src="https://p.sda1.dev/18/39fdcbdd5cc036ac192f151905772b7a/003_4_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/757146a5f13e0cbcdc9afbb653974de6/004_4_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1728#       发表于 2024-6-16 08:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">小朋友真的会喜欢这一集吗，秉持非暴力方针的三个人被遛成傻子……
+
+*****
+
+####  himfsz  
+##### 1729#       发表于 2024-6-16 08:04
+
+熊是不是被打怕了甚至不敢单独去搭话，仓鼠倒是可能是怕被报复
+

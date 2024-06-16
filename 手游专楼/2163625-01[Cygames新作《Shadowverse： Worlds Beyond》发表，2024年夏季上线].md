@@ -1947,3 +1947,17 @@ szb这续作年初报的年中，我还想说应该稳的
 
 Shadowverse营运团队 敬上
 
+
+*****
+
+####  岸浪白野  
+##### 59#         楼主| 发表于 2024-6-16 21:53
+
+<img src="https://img.saraba1st.com/forum/202406/16/215322fw9nekii0nrjz4ir.jpg" referrerpolicy="no-referrer">
+
+<strong>`_0SC[SI_J}I31YT)S3TJYQ_tmb.jpg</strong> (65.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 21:53 上传
+

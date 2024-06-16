@@ -11349,3 +11349,13 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 看来真是看了11集紧急加了内容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Seeley  
+##### 5500#       发表于 2024-6-16 21:50
+
+第一声我就绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

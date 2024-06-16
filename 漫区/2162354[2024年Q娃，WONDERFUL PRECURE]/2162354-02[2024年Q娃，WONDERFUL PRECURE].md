@@ -3005,3 +3005,13 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 居然是杜甫的诗
 
+
+*****
+
+####  leleq  
+##### 1746#       发表于 2024-6-16 17:55
+
+猫组作画舒服不少感觉staff私心有点重了这待遇真比狗组好不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+猫猫犹豫就会败北啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

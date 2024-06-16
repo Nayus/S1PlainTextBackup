@@ -1238,3 +1238,11 @@ QQ图片20240614223029.png
 贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联盟地球，这位真康米？
 
+
+*****
+
+####  FLZB  
+##### 4964#       发表于 2024-6-16 16:04
+
+各种配装试了一圈得出结论，现在东线还是避免solo和单走吧，太享受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

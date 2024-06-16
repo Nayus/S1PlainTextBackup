@@ -1246,3 +1246,13 @@ QQ图片20240614223029.png
 
 各种配装试了一圈得出结论，现在东线还是避免solo和单走吧，太享受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  normalli  
+##### 4965#       发表于 2024-6-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65258001&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-6-16 15:16</a>
+贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球</blockquote>
+我估计是pvp要素，具体怎么实现还不好说
+

@@ -43,3 +43,14 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  syndrome2032  
+##### 17940#       发表于 2024-6-16 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65249620&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-6-15 22:25</a>
+角色除了对着jf做这点外，fa还是可圈可点的，自己超级兵+大杯驱散+完全回复，200肯定能上班。
+武器我倒是一 ...</blockquote>
+猎金格局吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

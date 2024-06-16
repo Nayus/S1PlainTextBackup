@@ -2997,3 +2997,11 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 原本以为猫组的剧情结束了 就可以安心写狗组剧情了 可现在狗组已经是弃子两枚了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 1745#         楼主| 发表于 2024-6-16 17:36
+
+居然是杜甫的诗
+

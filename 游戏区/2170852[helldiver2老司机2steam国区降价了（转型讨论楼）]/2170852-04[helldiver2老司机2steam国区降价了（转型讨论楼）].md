@@ -1211,3 +1211,19 @@ QQ图片20240614223029.png
 感觉这傻逼游戏敌方增援是看场上怪数量来的，减少到一定程度怪就会开始叫增援，然后就会发现一波接一波根 ...</blockquote>
 警报cd好像有时会出问题，我solo和联机都碰到过，东线特别明显，一波警报打一半又拉一波
 
+
+*****
+
+####  ravend233  
+##### 4962#       发表于 2024-6-16 15:16
+
+<img src="https://img.saraba1st.com/forum/202406/16/151536au8resqhj68r8jh4.png" referrerpolicy="no-referrer">
+
+<strong>)0K%XKN2C]NRE2BM72N4[XJ.png</strong> (95.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-16 15:15 上传
+
+贴吧看到的，好像是新拆包出来的，平行超级气球叫联盟地球<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

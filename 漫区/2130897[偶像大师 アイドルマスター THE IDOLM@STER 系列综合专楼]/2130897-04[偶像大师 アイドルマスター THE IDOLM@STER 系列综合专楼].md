@@ -11293,3 +11293,36 @@ Image_1718463243343.jpg
 
 NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画新标杆封神的那一刻了
 
+
+*****
+
+####  wfhtony  
+##### 5496#       发表于 2024-6-16 14:34
+
+<img src="https://tc1.wfhtony.space/images/2024/06/16/cd9ab714310ce9486cbca291315306ec.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/06/16/4ad9edbbf8fb279c9120e14e367b3974.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/06/16/e3c87d269939ce5457aa91806e23b672.jpg" referrerpolicy="no-referrer">
+
+業務聯絡環節（石川晝場）：
+<img src="https://tc1.wfhtony.space/images/2024/06/16/5b5ae04e59831255b110775144362c1a.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc1.wfhtony.space/images/2024/06/16/6d49883b0c6a563e9073cffc6241a264.jpg" referrerpolicy="no-referrer">
+
+新曲今晚實裝（2D ONLY）
+
+<img src="https://tc1.wfhtony.space/images/2024/06/16/2d96b7023a17d9449e2231798ff887be.jpg" referrerpolicy="no-referrer">
+
+新曲確定收錄於《HEART TICKER! 09 神様！絶対だよ》中（C/W），明天先行販賣。
+
+<img src="https://tc1.wfhtony.space/images/2024/06/16/0a5262fc005796d754c2211e24fd1931.jpg" referrerpolicy="no-referrer">
+
+週日禮物的remix（收錄於《THE IDOLM@STER CINDERELLA GIRLS TO D@NCE TO TOO!》）今晚實裝。
+
+接下來的卡池和壽司路。
+<img src="https://tc1.wfhtony.space/images/2024/06/16/f0db83525d54b300d318baa104dec176.jpg" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2024/06/16/4d3eec045791dcbba2671fccd760d9e6.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc1.wfhtony.space/images/2024/06/16/11a93a70620489de3573fa389042e260.jpg" referrerpolicy="no-referrer">
+
+以上爲晝場的業務聯絡環節，如無意外，夜場的同一環節也會和晝場一致。
+

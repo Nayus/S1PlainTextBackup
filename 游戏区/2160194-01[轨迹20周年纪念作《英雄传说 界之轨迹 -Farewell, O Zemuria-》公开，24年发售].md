@@ -4001,3 +4001,53 @@ pc一般比主机版晚多久？
 哪来的考据</blockquote>
 托娃已经来了不说，黎2支线任务里说库洛要来，安吉莉卡和乔治是雾香对话里提到他俩要来共和国。
 
+
+*****
+
+####  sc1997  
+##### 421#       发表于 2024-6-15 15:03
+
+pc一般比主机版晚多久？
+
+*****
+
+####  大厨麦当牛  
+##### 422#       发表于 2024-6-15 15:13
+
+晚半年吧
+
+*****
+
+####  we89623  
+##### 423#       发表于 2024-6-16 23:11
+
+预定了港中，但我没ps5，到时候去淘宝租一个月。
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+另外据多方面考据，托娃，库洛，安吉莉卡，乔治这四人组大概率可能在新作又要组团登场了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 424#       发表于 2024-6-16 23:12
+
+哪来的考据
+
+*****
+
+####  we89623  
+##### 425#       发表于 2024-6-16 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65263365&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-6-16 23:12</a>
+哪来的考据</blockquote>
+托娃已经来了不说，黎2支线任务里说库洛要来，安吉莉卡和乔治是雾香对话里提到他俩要来共和国。
+
+*****
+
+####  ravend233  
+##### 426#       发表于 2024-6-17 07:07
+
+这种台词图一乐就完事了，而且你法社明显在黎2后对企划进行了一次较大的调整，原本的计划估计已经改得面目全非了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

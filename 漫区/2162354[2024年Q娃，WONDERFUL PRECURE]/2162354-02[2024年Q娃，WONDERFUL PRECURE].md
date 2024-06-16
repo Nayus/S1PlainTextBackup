@@ -3047,3 +3047,18 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 白头搔更短，浑欲不胜簪。</blockquote>
 
+
+*****
+
+####  Kreis  
+##### 1748#       发表于 2024-6-16 23:13
+
+公共场合都这么大胆，回家会干什么我都不敢想，肯定是狠狠吸猫了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HANDAIYV  
+##### 1749#       发表于 2024-6-16 23:19
+
+学校是学习的地方，所以小雪和真由这是在学什么，回家里会复习吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

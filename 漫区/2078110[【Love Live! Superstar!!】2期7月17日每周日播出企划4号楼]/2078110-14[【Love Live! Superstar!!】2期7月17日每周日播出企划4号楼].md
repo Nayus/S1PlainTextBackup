@@ -1586,3 +1586,14 @@ k组的打歌服立绘之前没认真看，这pv放出来可可的脸部特写�
 
 可能一巡的时候听惯了nagi唱的Primary，小花唱得差距还是挺大
 
+
+*****
+
+####  starring  
+##### 20326#       发表于 2024-6-16 20:16
+
+nagi明天发新曲
+<img src="https://p.sda1.dev/18/65a7fb77934b6adde0db9d4ff1c2b13d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2969,3 +2969,23 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 所以mayu台词里说那是自己的位置，不会是yuki想坐她腿上吧？
 
+
+*****
+
+####  pokemon最爱  
+##### 1742#       发表于 2024-6-16 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65256039&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-6-16 12:15</a>
+
+彩狗组这几集除了变身水时长跟摇铃水时长是一点作用都没有，不过对比某个明显可以删掉的暖男来说还是可以的 ...</blockquote>
+时空管理局不好去，我觉得直接剧场版去找魔法组学点魔法比较合适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  糖尔  
+##### 1743#       发表于 2024-6-16 12:53
+
+国内q娃谷子开团眼镜仔因为有大福带都比狗组好推，狗组完全滞销
+有什么头绪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么低人气的主角组是不是也太失败了点
+

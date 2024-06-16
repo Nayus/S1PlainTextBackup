@@ -2993,3 +2993,13 @@ max三岗过了，仍旧没有金
 
 这活动真是<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋月孝三  
+##### 4736#       发表于 2024-6-16 13:02
+
+本质龙卷风活动
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

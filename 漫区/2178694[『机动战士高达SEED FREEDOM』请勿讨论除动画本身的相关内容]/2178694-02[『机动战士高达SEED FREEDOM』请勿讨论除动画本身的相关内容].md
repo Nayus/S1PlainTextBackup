@@ -2073,3 +2073,11 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 还有飞鸟在门外那幕没有事先说还还真才不出来是sex失败了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiaoan2003  
+##### 1653#       发表于 2024-6-16 18:18
+
+露娜要是被阿古攻陷甩了真飞鸟就不好笑了。虽然真飞鸟确实sb
+

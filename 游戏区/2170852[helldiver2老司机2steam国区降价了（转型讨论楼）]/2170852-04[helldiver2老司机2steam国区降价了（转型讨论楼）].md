@@ -1172,3 +1172,14 @@ QQ图片20240614223029.png
 更新快两天了这逼说自己还没玩过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉这傻逼游戏敌方增援是看场上怪数量来的，减少到一定程度怪就会开始叫增援，然后就会发现一波接一波根本杀不完，清的越快越难受，增援之间根本没有CD或者增援CD特别短，包括110的刷新频率也是
 
+
+*****
+
+####  Mr.Hopp  
+##### 4958#       发表于 2024-6-16 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65253660&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-6-16 08:13</a>
+
+感觉这傻逼游戏敌方增援是看场上怪数量来的，减少到一定程度怪就会开始叫增援，然后就会发现一波接一波根 ...</blockquote>
+没这夸张，大部分时间只会叫一次增援。
+

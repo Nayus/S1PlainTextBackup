@@ -2462,3 +2462,30 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 人家还真是“正统”啊
 
+
+*****
+
+####  gary76  
+##### 1684#       发表于 2024-6-17 23:24
+
+<blockquote>引用第1673楼seedees3于2024-06-17 19:04发表的  :
+
+去补了下克莱因派的具体设定，发现拉妖有点无法无天了，这是在影射共产国际吗？不但有自己庞大规模的私人武......</blockquote>
+@seedees3
+
+plant的體制不是早就說了是影射蘇聯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cxj649  
+##### 1685#       发表于 2024-6-17 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65276454&amp;ptid=2178694" target="_blank">gary76 发表于 2024-6-17 23:24</a>
+
+@seedees3
+
+plant的體制不是早就說了是影射蘇聯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">种特有的观众的代入混乱
+

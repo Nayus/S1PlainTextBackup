@@ -1667,3 +1667,12 @@ nagi明天发新曲
 
 可能怕国v节奏比日v多？（）
 
+
+*****
+
+####  starring  
+##### 20335#       发表于 2024-6-17 23:25
+
+pay下周的生日event夜场有线上
+<img src="https://p.sda1.dev/18/66c4e68718dcad96f0fb204bad270d0f/QQ截图20240617211903.jpg" referrerpolicy="no-referrer">
+

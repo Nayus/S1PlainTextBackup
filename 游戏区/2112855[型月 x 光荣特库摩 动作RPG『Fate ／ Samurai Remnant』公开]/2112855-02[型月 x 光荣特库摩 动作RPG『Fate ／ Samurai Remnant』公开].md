@@ -132,3 +132,18 @@
 
 ----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  Jamaisvu  
+##### 1774#       发表于 2024-6-17 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65267200&amp;ptid=2112855" target="_blank">シャル 发表于 2024-6-17 10:36</a>
+
+就不能灵基再临吗</blockquote>
+如果进了FGO灵基三破变成银甲银枪黑发高马尾我就接受了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+红发容易让人想到性格刚烈易怒豪爽，张飞这个造型还差不多，赵云比较适合周瑜同款那种儒将形象...
+
+（黑历史：我以前私设的Lancer赵云是看起来文质彬彬西装眼睛管家造型，御主是时钟塔大小姐，管他叫克劳德，战斗时会像FZ呆毛那样变身...）
+

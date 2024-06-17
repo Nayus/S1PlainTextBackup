@@ -15501,3 +15501,11 @@ Ataraxia（內心的寧靜）
 
 Doloris自稱"私"不會破壞世界觀嗎<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 17550#       发表于 2024-6-17 11:43
+
+日本那边猜幕间到后面是角色独白，论据是海铃幕间3开始出现敬语了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

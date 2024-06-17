@@ -3059,3 +3059,16 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4743#       发表于 2024-6-17 18:49
+
+<blockquote>KBAC 发表于 2024-6-17 17:00
+6月在2019世锦赛上宣的，7月开的
+
+论坛助手,iPhone</blockquote>
+
+那直面会应该只有普通祭典了，后面再自己发最终祭典pv
+

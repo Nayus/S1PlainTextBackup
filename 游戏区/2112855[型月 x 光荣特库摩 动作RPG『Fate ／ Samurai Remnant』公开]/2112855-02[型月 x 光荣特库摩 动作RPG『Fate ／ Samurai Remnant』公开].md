@@ -197,3 +197,43 @@
 
 这人设像吕布和李书文的混合
 
+
+*****
+
+####  シャル  
+##### 1781#       发表于 2024-6-17 14:23
+
+ 本帖最后由 シャル 于 2024-6-17 14:24 编辑 
+
+姑获鸟混鬼子母神没错了
+
+DE916523-F19B-4F85-AEB2-2E4710707657.jpeg
+(176.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202406/17/142339fo8oyi449wql1w4w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+E27ED1DB-57D1-48A2-9ED2-BC5A3B5C383A.jpeg
+(188.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202406/17/142340e02nkiae6n6naiis.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 1782#       发表于 2024-6-17 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65270122&amp;ptid=2112855" target="_blank">シャル 发表于 2024-6-17 14:23</a>
+
+姑获鸟混鬼子母神没错了</blockquote>
+天帝少女去了日本成了妖怪真是充滿了日式特有的胡說八道（
+
+雖然姑獲鳥在中原已經是跟織女、七仙女全混搭在一起的情況<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

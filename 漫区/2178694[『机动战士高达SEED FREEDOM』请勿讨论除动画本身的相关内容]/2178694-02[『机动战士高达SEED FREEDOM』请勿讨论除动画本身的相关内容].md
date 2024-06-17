@@ -2412,3 +2412,13 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 还是不能理解为什么只换背包，你模型都新规了说明和这关系不大，不干脆出个新机更好？
 
+
+*****
+
+####  司空怜  
+##### 1680#       发表于 2024-6-17 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65275367&amp;ptid=2178694" target="_blank">zoe2 发表于 2024-6-17 21:43</a>
+还是不能理解为什么只换背包，你模型都新规了说明和这关系不大，不干脆出个新机更好？ ...</blockquote>
+福田和两泽的恶趣味，反传统而行
+

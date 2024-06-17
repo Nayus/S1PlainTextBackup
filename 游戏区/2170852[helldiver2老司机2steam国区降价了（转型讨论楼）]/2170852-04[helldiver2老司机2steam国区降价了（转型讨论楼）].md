@@ -1470,3 +1470,13 @@ QQ图片20240614223029.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打机器人有时候喜欢带机枪狗，这东西有时候能枪枪头，就是要吃补给回子弹有点麻烦
 
+
+*****
+
+####  6x6z6w  
+##### 4986#       发表于 2024-6-17 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271864&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-6-17 16:41</a>
+所以小勤勉只要边往前走边开枪，就能一枪头秒了蹂躏者？</blockquote>
+走路不行，但飞扑开枪可以秒杀，有人测过
+

@@ -15517,3 +15517,13 @@ Doloris自稱"私"不會破壞世界觀嗎<img src="https://static.saraba1st.com
 
 7.7是什么活动？
 
+
+*****
+
+####  MZZK  
+##### 17552#       发表于 2024-6-17 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65270249&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-17 14:34</a>
+7.7是什么活动？</blockquote>
+mujica 2nd第二场同时也是日本那边的七夕吧
+

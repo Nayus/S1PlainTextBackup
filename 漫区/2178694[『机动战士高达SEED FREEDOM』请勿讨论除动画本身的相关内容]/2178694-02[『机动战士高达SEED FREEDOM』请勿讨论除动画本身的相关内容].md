@@ -2343,3 +2343,14 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1673#       发表于 2024-6-17 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65273186&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-6-17 18:18</a>
+无正2初稿</blockquote>
+感觉第二稿好看点，起码相对主体较大的推进器能表达出小型化流星的感觉
+决定稿就觉得是立体化妥协的产物了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

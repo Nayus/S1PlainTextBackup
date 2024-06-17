@@ -1623,3 +1623,23 @@ nagi明天发新曲
 
 风怒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 20330#       发表于 2024-6-17 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65274370&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-17 20:09</a>
+鱼你这个骗人不太好
+
+不懂v，白菜是哪位？</blockquote>
+一个长期直播看B站的日本萝莉，汉语已经学会了不少。
+我没关注这人，就是时不时刷到她的切片。
+
+*****
+
+####  cat1230  
+##### 20331#       发表于 2024-6-17 20:23
+
+中文直播太勉强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，白菜不如中日混着说好
+

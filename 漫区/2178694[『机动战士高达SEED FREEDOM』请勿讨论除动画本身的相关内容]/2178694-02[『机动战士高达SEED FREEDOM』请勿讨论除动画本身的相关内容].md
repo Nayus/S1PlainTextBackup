@@ -2396,3 +2396,11 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 —— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  六次方  
+##### 1678#       发表于 2024-6-17 20:24
+
+大战结束两人交换一个眼神直接脱离战场飞回地球打炮还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -24,3 +24,21 @@
 
 大概是现在对V之类的没什么兴趣了吧
 
+
+*****
+
+####  zpy393  
+##### 9785#       发表于 2024-6-17 11:21
+
+虽然新衣服和发型都不是我的审美，但是脸太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9786#       发表于 2024-6-17 11:24
+
+新衣服感觉配色不太行，只能勉强当个换色装
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

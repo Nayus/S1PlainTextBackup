@@ -11417,3 +11417,21 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 半夜看voyager，透和fyk都有solo镜头，但是sc动画第二季要来了啊
 为什么sc到了这个田地，我是边看voyager边哭
 
+
+*****
+
+####  Anatoly  
+##### 5508#       发表于 2024-6-17 14:27
+
+<img src="https://img.saraba1st.com/forum/202406/17/142621rwewnaumnmev2nmi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 14:26 上传
+
+草，下的时候还没注意
+
+谁看sc动画不疯，硬撑而已（负面意味）
+

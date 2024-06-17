@@ -1382,3 +1382,14 @@ QQ图片20240614223029.png
 
 现在跳虫和指挥官也太多了，三把火喷都压不住没牛的虫潮，感觉没激光狗/机枪不行了。
 
+
+*****
+
+####  梦回星海  
+##### 4978#       发表于 2024-6-17 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65270047&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-6-17 14:16</a>
+
+现在跳虫和指挥官也太多了，三把火喷都压不住没牛的虫潮，感觉没激光狗/机枪不行了。 ...</blockquote>
+有轨道加特林还好。机枪这东西原地装填，俺寻思注定跟不上东线的节奏。
+

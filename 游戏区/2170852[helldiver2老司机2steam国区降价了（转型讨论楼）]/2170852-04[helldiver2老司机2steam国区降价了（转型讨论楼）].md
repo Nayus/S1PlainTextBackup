@@ -1403,3 +1403,25 @@ QQ图片20240614223029.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  kalavinka  
+##### 4980#         楼主| 发表于 2024-6-17 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65269931&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-17 14:03</a>
+
+太搞了，筒子系650点伤害，巨兽强袭前腿650点血，那为什么筒子不能一发破甲前腿？原因跟小勤勉没法一发爆 ...</blockquote>
+类星体部分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+另外这里还有一个很搞的点，按理说类星体是能量武器，不应该受到衰减影响，但显然实战中类星体也是没法1发破腿的。reddit有老外科研出类星体不能1发破腿的原因是：游戏中存在另一个很神秘的机制(bug)，就是如果武器的后座力过高，那么高后座力会略微降低武器的初速，从而降低一点点伤害，因此类星体也躺枪没法1发破腿。
+
+解决方法：蓄力类星体时趴下并且开镜，这样会让类星体的后座力降低为站立时的40%，不是高后坐力就不会触发这个降低初速效果，从而可以一发破腿
+
+*****
+
+####  DawnGuardian  
+##### 4981#       发表于 2024-6-17 16:41
+
+所以小勤勉只要边往前走边开枪，就能一枪头秒了蹂躏者？来自: iPhone客户端
+

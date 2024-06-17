@@ -3029,3 +3029,13 @@ max三岗过了，仍旧没有金
 
 龙卷风在四个模式都很有效果，小绿本身主武器强度高，贴牌副武器还是三角雷，再加上sp比较低流转很快，一局扔个七八个龙卷风很正常
 
+
+*****
+
+####  KBAC  
+##### 4740#       发表于 2024-6-17 16:45
+
+直面会盲猜就只宣布一个普通祭典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

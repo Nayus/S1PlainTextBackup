@@ -610,3 +610,14 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 这个毫无特色的红毛是你月的云妹？？？
 
+
+*****
+
+####  miro112233  
+##### 12860#       发表于 2024-6-17 16:58
+
+fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">周瑜赵云打包落地，不然真等不知道猴年马月的fsr二期联动了
+孔明的技能组放现在也多少该给个强化了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

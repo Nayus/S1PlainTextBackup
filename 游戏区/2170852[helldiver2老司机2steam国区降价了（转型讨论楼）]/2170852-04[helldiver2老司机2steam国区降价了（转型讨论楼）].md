@@ -1358,3 +1358,19 @@ QQ图片20240614223029.png
 
 看评论450直伤+150爆炸·穿甲6溅射3 对比EAT是650+150，冷却105秒，感觉还行
 
+
+*****
+
+####  FLZB  
+##### 4976#       发表于 2024-6-17 14:03
+
+<img src="https://img.saraba1st.com/forum/202406/17/140228vh4jggc3se24eofi.jpg" referrerpolicy="no-referrer">
+
+<strong>111.jpg</strong> (123.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 14:02 上传
+
+太搞了，筒子系650点伤害，巨兽强袭前腿650点血，那为什么筒子不能一发破甲前腿？原因跟小勤勉没法一发爆头蹂躏者一样，距离衰减机制导致子弹出膛时就立即损失1点伤害。那么如何抵消这个衰减实现一发破甲呢？只要在开火时往前移动就行了……我尼玛已经无法用语言形容了……箭头！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

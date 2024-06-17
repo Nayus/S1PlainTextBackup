@@ -2277,3 +2277,14 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 第一战之后瞬间睡着，一堆不知道是谁的人物名字和国家，不是粉丝，但记忆里没提到过
 
+
+*****
+
+####  Znesmoc  
+##### 1668#       发表于 2024-6-17 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271188&amp;ptid=2178694" target="_blank">razielzyc 发表于 2024-6-17 15:57</a>
+7/10吧。纯粹粉丝向大杂烩作品，跟同为粉丝向的灌篮剧场版比差了不少。起码灌篮有拿得出手的40分钟比赛，se ...</blockquote>
+决斗暴风都换核能了，台词里也说了
+不要看着是86就以为它真是86啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

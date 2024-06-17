@@ -2198,3 +2198,15 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 只是好奇那只LOLI女王官方有说是本尊的 ...</blockquote>
 柯南了，她是给那个抗衰老的药给浇了一遍
 
+
+*****
+
+####  月夜凝雪  
+##### 1663#       发表于 2024-6-17 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65260008&amp;ptid=2178694" target="_blank">xiaoan2003 发表于 2024-6-16 18:18</a>
+露娜要是被阿古攻陷甩了真飞鸟就不好笑了。虽然真飞鸟确实sb</blockquote>
+明明是露娜两面通吃
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

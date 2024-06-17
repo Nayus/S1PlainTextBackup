@@ -237,3 +237,17 @@ E27ED1DB-57D1-48A2-9ED2-BC5A3B5C383A.jpeg
 
 雖然姑獲鳥在中原已經是跟織女、七仙女全混搭在一起的情況<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 1783#       发表于 2024-6-17 14:37
+
+ 本帖最后由 シャル 于 2024-6-17 14:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65270161&amp;ptid=2112855" target="_blank">gary76 发表于 2024-6-17 14:27</a>
+
+天帝少女去了日本成了妖怪真是充滿了日式特有的胡說八道（
+
+雖然姑獲鳥在中原已經是跟織女、七仙女全混搭 ...</blockquote>
+不是九头鸟吗，日本那边的混了鬼车和产女吧
+

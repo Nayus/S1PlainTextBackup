@@ -147,3 +147,11 @@
 
 （黑历史：我以前私设的Lancer赵云是看起来文质彬彬西装眼睛管家造型，御主是时钟塔大小姐，管他叫克劳德，战斗时会像FZ呆毛那样变身...）
 
+
+*****
+
+####  廖化  
+##### 1775#       发表于 2024-6-17 11:14
+
+哈哈哈哈哈红毛赵云！哈哈哈哈哈！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

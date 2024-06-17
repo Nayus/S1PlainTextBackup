@@ -1659,3 +1659,11 @@ nagi明天发新曲
 
 全程都是说中文，那为啥特意找个日V<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  280041437  
+##### 20334#       发表于 2024-6-17 22:40
+
+可能怕国v节奏比日v多？（）
+

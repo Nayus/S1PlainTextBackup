@@ -101,3 +101,13 @@
 
 红毛碧眼，其实是我孙权哒！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 1771#       发表于 2024-6-17 10:31
+
+起码还是男人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

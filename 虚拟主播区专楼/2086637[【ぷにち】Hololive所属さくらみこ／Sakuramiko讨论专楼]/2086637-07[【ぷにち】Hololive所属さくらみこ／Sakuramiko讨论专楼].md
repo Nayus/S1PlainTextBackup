@@ -1694,3 +1694,31 @@ fbk现在在杂谈直播里说4人旅行的事，有一个令人震惊的事件�
 才发觉4代是35最爱的金发</blockquote>
 ……鸣人就不是金发了吗
 
+
+*****
+
+####  rs5621  
+##### 9030#       发表于 2024-6-17 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65262641&amp;ptid=2086637" target="_blank">holoan 发表于 2024-6-16 22:11</a>
+
+……鸣人就不是金发了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她讲起鸣人和四代的语气都不一样
+
+*****
+
+####  holoan  
+##### 9031#         楼主| 发表于 2024-6-17 12:45
+
+<img src="https://img.saraba1st.com/forum/202406/17/124419gu6jkuag71ak4uzl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 12:44 上传
+
+今晚如果有就是联动，没有就火影
+
+但是MC无聊确实比较想看火影
+

@@ -2446,3 +2446,19 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 福田和两泽的恶趣味，反传统而行</blockquote>
 这几年机战原创主角也大多是这种加背包加翅膀模式，吐了···
 
+
+*****
+
+####  cxj649  
+##### 1683#       发表于 2024-6-17 23:21
+
+ 本帖最后由 cxj649 于 2024-6-17 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65273700&amp;ptid=2178694" target="_blank">seedees3 发表于 2024-6-17 19:04</a>
+
+去补了下克莱因派的具体设定，发现拉妖有点无法无天了，这是在影射共产国际吗？
+
+不但有自己庞大规模的私人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">自由设计师是克莱因派的，拉爸是一开始是议长，狐狸也是自称克莱因派
+
+人家还真是“正统”啊
+

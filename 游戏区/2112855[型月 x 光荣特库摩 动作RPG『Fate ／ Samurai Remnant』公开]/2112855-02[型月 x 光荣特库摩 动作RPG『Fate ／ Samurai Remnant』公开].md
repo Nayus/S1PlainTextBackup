@@ -155,3 +155,13 @@
 
 哈哈哈哈哈红毛赵云！哈哈哈哈哈！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  miro112233  
+##### 1776#       发表于 2024-6-17 11:30
+
+这个尖刺肩甲真的有点捞，整体也不是很中国风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

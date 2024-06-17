@@ -1741,3 +1741,46 @@ fbk现在在杂谈直播里说4人旅行的事，有一个令人震惊的事件�
 
 今天联动取消了，但是看上去今晚可能不会早回来所以不知道会不会补播火影
 
+
+*****
+
+####  holoan  
+##### 9034#         楼主| 发表于 2024-6-17 19:48
+
+前两天会限档没了
+
+看来还是觉得不好意思吧
+
+*****
+
+####  holoan  
+##### 9035#         楼主| 发表于 2024-6-17 22:59
+
+ 本帖最后由 holoan 于 2024-6-17 23:00 编辑 
+
+精华节选
+
+<img src="https://img.saraba1st.com/forum/202406/17/230032d6667ea7xn168nax.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 23:00 上传
+
+<img src="https://img.saraba1st.com/forum/202406/17/225605u7m4pg2t3cny2mzg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202406/17/225822vrgek70puuprksak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 22:58 上传
+

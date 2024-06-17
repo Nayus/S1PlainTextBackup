@@ -111,3 +111,24 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  シャル  
+##### 1772#       发表于 2024-6-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65266869&amp;ptid=2112855" target="_blank">Jamaisvu 发表于 2024-6-17 10:15</a>
+
+赵云怎么着也该是银甲银枪玉树临风的形象，怎么弄了个红色海藻头？！难不成是要对位珀尔修斯？还不如把真三 ...</blockquote>
+就不能灵基再临吗
+
+
+*****
+
+####  gary76  
+##### 1773#       发表于 2024-6-17 10:41
+
+這他媽該不會是趙雲縫公孫纘吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
+

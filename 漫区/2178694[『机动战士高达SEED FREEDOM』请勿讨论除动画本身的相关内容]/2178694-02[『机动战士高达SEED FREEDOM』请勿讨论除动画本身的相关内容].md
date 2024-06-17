@@ -2300,3 +2300,14 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  novyDC  
+##### 1670#       发表于 2024-6-17 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271188&amp;ptid=2178694" target="_blank">razielzyc 发表于 2024-06-17 15:57:25</a>
+7/10吧。纯粹粉丝向大杂烩作品，跟同为粉丝向的灌篮剧场版比差了不少。起码灌篮有拿得出手的40分钟比赛，se ...</blockquote>基神那是几十台群殴一台吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

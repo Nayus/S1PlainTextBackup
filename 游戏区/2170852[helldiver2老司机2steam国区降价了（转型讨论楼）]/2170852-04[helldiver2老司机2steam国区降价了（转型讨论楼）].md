@@ -1425,3 +1425,26 @@ QQ图片20240614223029.png
 
 所以小勤勉只要边往前走边开枪，就能一枪头秒了蹂躏者？来自: iPhone客户端
 
+
+*****
+
+####  FLZB  
+##### 4982#       发表于 2024-6-17 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271787&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-6-17 16:36</a>
+
+类星体部分
+
+另外这里还有一个很搞的点，按理说类星体是能量武器，不应该受到衰减影响，但显然实战中类星 ...</blockquote>
+鬼一样的屎山代码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FLZB  
+##### 4983#       发表于 2024-6-17 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271864&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-6-17 16:41</a>
+
+所以小勤勉只要边往前走边开枪，就能一枪头秒了蹂躏者？</blockquote>
+很遗憾不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -78,3 +78,26 @@
 
 （虽说本体的灰贞也涉嫌溜粉）
 
+
+*****
+
+####  Jamaisvu  
+##### 1768#       发表于 2024-6-17 10:19
+
+话说正雪liliy该不会在剧情里做刘禅役吧...
+
+*****
+
+####  南猫猫猫猫  
+##### 1769#       发表于 2024-6-17 10:22
+
+这个云哥怎么一张dio脸<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 1770#       发表于 2024-6-17 10:25
+
+红毛碧眼，其实是我孙权哒！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

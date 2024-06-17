@@ -2323,3 +2323,23 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 </blockquote>
 这是初版初代正义？
 
+
+*****
+
+####  novyDC  
+##### 1672#       发表于 2024-6-17 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65273018&amp;ptid=2178694" target="_blank">lain2008 发表于 2024-6-17 18:06</a>
+这是初版初代正义？</blockquote>
+无正2初稿
+
+<img src="https://img.saraba1st.com/forum/202406/17/181756azuh6hs5qhzfanu2.jpg" referrerpolicy="no-referrer">
+
+<strong>031901809A1FC1989937165DB93C2E3B.jpg</strong> (890.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 18:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2386,3 +2386,13 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 看完感觉就像看了个换皮复活的鲁路修<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  940045933  
+##### 1677#       发表于 2024-6-17 20:02
+
+整个剧场版最让我不能理解的是拉克丝不仅答应和黄毛跳舞，跳舞前还往基拉那边看，这是在干嘛，是故意刺激基拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2186A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

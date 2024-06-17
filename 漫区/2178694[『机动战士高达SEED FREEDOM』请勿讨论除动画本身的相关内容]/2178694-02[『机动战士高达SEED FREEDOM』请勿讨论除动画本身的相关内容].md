@@ -2288,3 +2288,15 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 决斗暴风都换核能了，台词里也说了
 不要看着是86就以为它真是86啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 1669#       发表于 2024-6-17 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65271188&amp;ptid=2178694" target="_blank">razielzyc 发表于 2024-6-17 15:57</a>
+7/10吧。纯粹粉丝向大杂烩作品，跟同为粉丝向的灌篮剧场版比差了不少。起码灌篮有拿得出手的40分钟比赛，se ...</blockquote>
+这决斗和暴风大部分时间都是靠流星在打啊，什么机体重要么
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

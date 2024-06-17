@@ -635,3 +635,13 @@ fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/im
 
 2、发饰是石榴造型，还缝合了鬼子母神
 
+
+*****
+
+####  清河子  
+##### 12862#       发表于 2024-6-17 19:36
+
+拿了新的签到30石和问卷呼符，再度梭哈
+毛都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意料之中，只能说歪常驻也是出五星，水位归零就是如此全麻
+

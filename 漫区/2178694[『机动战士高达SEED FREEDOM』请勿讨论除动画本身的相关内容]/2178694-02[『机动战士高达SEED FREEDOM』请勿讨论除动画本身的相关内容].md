@@ -2422,3 +2422,27 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 还是不能理解为什么只换背包，你模型都新规了说明和这关系不大，不干脆出个新机更好？ ...</blockquote>
 福田和两泽的恶趣味，反传统而行
 
+
+*****
+
+####  super_uni  
+##### 1681#       发表于 2024-6-17 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65262226&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-16 21:41</a>
+如果阿姑尼斯当初是这个样子结合芙蕾和拉克丝特征
+
+用这个样子去钩引基拉或许真有机会 ...</blockquote>
+不如指望基拉造出时光机回到seed最后集，开飞自飞盾挡枪然后暴揍神意，哎嘿电池机就是这么自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  zoe2  
+##### 1682#       发表于 2024-6-17 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65275481&amp;ptid=2178694" target="_blank">司空怜 发表于 2024-6-17 21:54</a>
+
+福田和两泽的恶趣味，反传统而行</blockquote>
+这几年机战原创主角也大多是这种加背包加翅膀模式，吐了···
+

@@ -2354,3 +2354,27 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 感觉第二稿好看点，起码相对主体较大的推进器能表达出小型化流星的感觉
 决定稿就觉得是立体化妥协的产物了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  seedees3  
+##### 1674#       发表于 2024-6-17 19:04
+
+去补了下克莱因派的具体设定，发现拉妖有点无法无天了，这是在影射共产国际吗？
+
+不但有自己庞大规模的私人武装还喜欢在各国搞渗透和策反，各种间谍偷技术偷机体甚至有自己的私密兵工厂，放现实中妥妥的祸害人人得而诛之
+
+
+*****
+
+####  seedees3  
+##### 1675#       发表于 2024-6-17 19:11
+
+ 本帖最后由 seedees3 于 2024-6-17 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65262226&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-16 21:41</a>
+
+如果阿姑尼斯当初是这个样子结合芙蕾和拉克丝特征
+
+用这个样子去钩引基拉或许真有机会 ...</blockquote>
+这个不错，有种清纯的妖艳J货的美感，婊里婊气的纯粹妖艳J货只有骡子会喜欢
+

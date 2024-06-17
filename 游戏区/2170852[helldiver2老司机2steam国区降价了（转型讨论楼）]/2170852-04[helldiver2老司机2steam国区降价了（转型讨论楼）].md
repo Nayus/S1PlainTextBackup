@@ -1448,3 +1448,25 @@ QQ图片20240614223029.png
 所以小勤勉只要边往前走边开枪，就能一枪头秒了蹂躏者？</blockquote>
 很遗憾不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绚烂航迹云  
+##### 4984#       发表于 2024-6-17 19:13
+
+前阵子有个更新，全加强了？
+有没有老司机讲讲，现在有啥轮椅配装
+
+开服打了一会儿就afk了，才20级，刚刚氪金解锁了肉锤，好像还行
+战备用的还是最早的万金油，飞鹰空袭、一次性筒子、激光护卫犬、哨戒加特林，装备是轻型医疗甲
+随机匹配打难6好像还行
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.38)
+
+*****
+
+####  ykyin09  
+##### 4985#       发表于 2024-6-17 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打机器人有时候喜欢带机枪狗，这东西有时候能枪枪头，就是要吃补给回子弹有点麻烦
+

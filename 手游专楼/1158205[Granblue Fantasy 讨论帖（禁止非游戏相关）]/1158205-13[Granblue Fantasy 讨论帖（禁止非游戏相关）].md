@@ -78,3 +78,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单面现在没天司要3把，但最终我觉得还是会回归2把。
 
+
+*****
+
+####  Sylpheed  
+##### 17944#       发表于 2024-6-17 15:06
+
+其实现在2把也没那么难受，同样没有后排加护我3把辉夜短结果天元jf都是双面最多2把就够了，猎金场也是查无此人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+暗猎金要用280插件也完全可以双面，多那么几w射程完全没有质变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除了打团没法单面280确实会难受一点，但是现在150fa也在双面3t射程内，我是觉得没啥必要3把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

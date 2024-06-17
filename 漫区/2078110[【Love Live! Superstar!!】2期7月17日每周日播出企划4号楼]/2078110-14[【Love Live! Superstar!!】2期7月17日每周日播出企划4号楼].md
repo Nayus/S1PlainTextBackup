@@ -1597,3 +1597,29 @@ nagi明天发新曲
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Kfly  
+##### 20327#       发表于 2024-6-17 20:07
+
+“老司机带带我”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20328#       发表于 2024-6-17 20:09
+
+鱼你这个骗人不太好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不懂v，白菜是哪位？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 20329#       发表于 2024-6-17 20:11
+
+风怒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

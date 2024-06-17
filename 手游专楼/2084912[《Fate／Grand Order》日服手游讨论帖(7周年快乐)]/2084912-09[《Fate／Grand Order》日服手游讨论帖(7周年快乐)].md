@@ -584,3 +584,21 @@ bba这强化和她徒弟一样幽默</blockquote>
 
 这活动主线是真的麻烦啊。
 
+
+*****
+
+####  琴酒  
+##### 12858#       发表于 2024-6-17 15:35
+
+ 本帖最后由 琴酒 于 2024-6-17 15:36 编辑 
+
+新dlc赵云来了  什么时候进fgo
+
+<img src="https://img.saraba1st.com/forum/202406/17/153649rzxn265z5xf3xjdx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1425.PNG</strong> (466.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-17 15:36 上传
+

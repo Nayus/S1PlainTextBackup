@@ -2311,3 +2311,15 @@ loliBBA变萝莉在小说里设定是给PLANT研究抑制老化的药物结果�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lain2008  
+##### 1671#       发表于 2024-6-17 18:06
+
+<blockquote>novyMS 发表于 2024-6-16 23:13
+这才叫后继机吧
+
+</blockquote>
+这是初版初代正义？
+

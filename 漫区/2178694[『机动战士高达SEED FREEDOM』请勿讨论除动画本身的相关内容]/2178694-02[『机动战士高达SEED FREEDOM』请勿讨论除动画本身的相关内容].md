@@ -2489,3 +2489,15 @@ plant的體制不是早就說了是影射蘇聯<img src="https://static.saraba1s
 plant的體制不是早就說了是影射蘇聯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">种特有的观众的代入混乱
 
+
+*****
+
+####  司空怜  
+##### 1686#       发表于 2024-6-18 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65275769&amp;ptid=2178694" target="_blank">zoe2 发表于 2024-6-17 22:17</a>
+
+这几年机战原创主角也大多是这种加背包加翅膀模式，吐了···</blockquote>
+
+原本全新设计的飞升自由和不朽正义才是终战用机，强自和无正才是前期被击毁的，后来福田夫妇觉得太传统，就把新机弱化放前面，旧机换背包放后面
+

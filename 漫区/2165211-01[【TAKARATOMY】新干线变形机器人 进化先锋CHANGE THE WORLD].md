@@ -14,3 +14,15 @@
 
 其实我有一点不爽的是主角们一变形就直接合体了，毫无仪式感
 
+
+*****
+
+####  fengzijiang  
+##### 60#       发表于 2024-6-17 21:14
+
+其实我一直想吐槽，黑暗新干线出现在回忆之地真不是因为你们姐弟俩个逛遍了全日本铁路相关的地方吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我信姐姐不是恶人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

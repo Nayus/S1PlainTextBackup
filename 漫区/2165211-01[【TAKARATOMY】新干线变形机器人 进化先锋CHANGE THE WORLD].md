@@ -26,3 +26,11 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  王九的哥哥  
+##### 61#       发表于 2024-6-17 21:36
+
+希望是我错了，我是觉得所有的基础变形都是一套动作只有颜色的不同……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

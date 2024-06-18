@@ -15696,3 +15696,14 @@ NGA日常爆典</blockquote>
   -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
 懂的都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 17568#       发表于 2024-6-18 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65286976&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-06-18 19:35:34</a>
+哪怕我说了“仅仅只是家道中落/畜生行为/**”你也不能反驳哦，反驳就是“极端/看二创看的”，总之“祥厨闹 ...</blockquote>你祥就是这样的，我已经连续几天在不同平台看到被车，都到了产生 你们又在车祥哦，休息一下好不好 这种程度的想法了，感觉一三五车爽希，二四六车祥，周日车灯这种循环，都快要变成月月火水木金金，每日都是车祥日了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

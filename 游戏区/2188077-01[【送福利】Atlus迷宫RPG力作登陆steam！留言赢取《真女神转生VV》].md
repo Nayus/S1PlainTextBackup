@@ -676,3 +676,20 @@ ATLUS可恶的完全版商法！……凑合过吧，还能离咋地
 
 看看运气
 
+
+*****
+
+####  天行者999  
+##### 55#       发表于 2024-6-18 20:26
+
+画风很对胃口,女神异闻录也是这个ip衍生出来的.很想体验下
+
+—— 来自 Xiaomi M2006C3LC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 56#       发表于 2024-6-18 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">真女5v已经买了，爽玩中
+

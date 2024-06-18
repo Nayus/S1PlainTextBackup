@@ -15550,3 +15550,25 @@ mujica 2nd第二场同时也是日本那边的七夕吧
 
 真要有aether也是第五个了，不过aether的symbol和四大元素没什么直接关系，不是三角系的
 
+
+*****
+
+####  rikaren  
+##### 17555#       发表于 2024-6-18 14:16
+
+<img src="https://img.saraba1st.com/forum/202406/18/141641vm5559ej52bhbzle.jpg" referrerpolicy="no-referrer">
+
+<strong>1718691378302.jpg</strong> (236.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 14:16 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/141648eh0q3zazejzai07u.jpg" referrerpolicy="no-referrer">
+
+<strong>EE1C7E6D82951C16B841EFB619F5707C.jpg</strong> (38.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 14:16 上传
+

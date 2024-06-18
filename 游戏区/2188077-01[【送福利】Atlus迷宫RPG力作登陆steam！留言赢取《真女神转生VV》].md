@@ -1081,3 +1081,15 @@ vv兄弟买了入了家庭库这两天看他疯狂在肝，应该挺好玩的，
 
 楼层数显著反应游戏质量了
 
+
+*****
+
+####  ˉ_ˉ↓↓↓  
+##### 104#       发表于 2024-6-19 03:56
+
+ 本帖最后由 ˉ_ˉ↓↓↓ 于 2024-6-19 04:00 编辑 
+
+之前想买无印，不过考虑到完全版商法就放弃了，从来没有中过奖，既然有送就来抽个真女<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

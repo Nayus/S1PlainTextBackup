@@ -852,3 +852,34 @@ altus凯子 vv
 
 — from Xiaomi M2012K10C, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  艾斯翼  
+##### 77#       发表于 2024-6-18 21:57
+
+对VV版本觉得好处就是登录全平台了，终于能更高帧数游玩了，Switch的原版真的玩着难受，就看看自己的运气能不能抽到一个了
+
+*****
+
+####  欧派爱欧派  
+##### 78#       发表于 2024-6-18 21:58
+
+试试
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  BK10  
+##### 79#       发表于 2024-6-18 21:59
+
+真女神转生vv挺好，话说杉果居然到s1发帖了都<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koketani  
+##### 80#       发表于 2024-6-18 21:59
+
+参与一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

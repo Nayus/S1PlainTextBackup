@@ -2654,3 +2654,16 @@ T：我不是，我没有，别乱说</blockquote>
 看了一下，在流媒体上映之后的中国评价，还有豆瓣评分，我怎么感觉如果在中国上映的话，可能票房可能也就在 ...</blockquote>
 一億也很強了，港澳上映了足足一個月，有1200萬票房已經破了紀錄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lain2008  
+##### 1698#       发表于 2024-6-18 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65262226&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-16 21:41</a>
+
+如果阿姑尼斯当初是这个样子结合芙蕾和拉克丝特征
+
+用这个样子去钩引基拉或许真有机会 ...</blockquote>
+这个也太有爱了吧，真是这个我就peropero了
+

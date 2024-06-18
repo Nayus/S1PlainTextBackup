@@ -1253,3 +1253,40 @@ https://www.bilibili.com/video/BV1a1421r7qg</blockquote>
 
 另外楼上几位，按文字版的说法是PV不让出巷战，不是内容不让出巷战
 
+
+*****
+
+####  chenke  
+##### 116#       发表于 2024-6-18 13:36
+
+希望三代能Remastered下
+
+
+*****
+
+####  酷乐  
+##### 117#       发表于 2024-6-18 13:42
+
+ 本帖最后由 酷乐 于 2024-6-18 13:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65281863&amp;ptid=2065685" target="_blank">maninhole 发表于 2024-6-18 12:50</a>
+
+被删了
+
+这是啥内容啊？</blockquote>
+
+这是钢岚6月16日线下交流会里，几个策划和氪佬们吹水的内容，UP主是用AR眼镜偷录的，估计是被紫龙要求删除了吧。
+
+[https://bbs.nga.cn/read.php?tid=40559482](https://bbs.nga.cn/read.php?tid=40559482)
+
+<img src="https://img.saraba1st.com/forum/202406/18/134235jm8zr0gcrg30ij1w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6940.jpeg</strong> (165 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 13:42 上传
+
+中间那个就是制作人午夜屠猪男
+
+虽然缓存了，不过视频没了后就无法直接保存到相册，不知道能不能插电脑导出，不然只能录屏了……
+

@@ -970,3 +970,19 @@ smt5无印受害者 完全版确实全方位加强
 
 都当凯子了，中了就送朋友吧
 
+
+*****
+
+####  xisailuo  
+##### 91#       发表于 2024-6-19 00:06
+
+sd玩真的很爽，ns玩过无印，卡的不行，玩的头痛
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  中途半端  
+##### 92#       发表于 2024-6-19 00:07
+
+真女神转生VV  想试试
+

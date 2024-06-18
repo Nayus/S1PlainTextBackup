@@ -2725,3 +2725,15 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 这接口</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说起来，无正贰裸机的背面机设图是不是还没有？
 
+
+*****
+
+####  司空怜  
+##### 1704#       发表于 2024-6-19 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65279982&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-18 10:36</a>
+难道不是因为机体人气？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+强自人气和自由差太远
+

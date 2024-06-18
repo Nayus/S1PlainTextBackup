@@ -15588,3 +15588,20 @@ mujica 2nd第二场同时也是日本那边的七夕吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">vgdz的ed上季是蝶团，这季变成mygo了，第三季不会是母鸡卡了吧
 
+
+*****
+
+####  rikaren  
+##### 17557#       发表于 2024-6-18 15:33
+
+<blockquote>UNISONIA 发表于 2024-6-18 11:03
+彼方からの鎮魂歌是myu作曲霜月唱的那首汞灯印象曲吧，这首版权现在在lantis，但是应该不在卖版权给邦的 ...</blockquote>
+那可惜了
+
+*****
+
+####  安瓦尔阿明  
+##### 17558#       发表于 2024-6-18 15:34
+
+不是不行，总之先整点新歌给大家听听看。
+

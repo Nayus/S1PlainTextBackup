@@ -417,3 +417,11 @@ STEAM OS更新会掉WIN的引导
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> V 社答应的双系统引导丫的鸽到现在还没给出。
 
+
+*****
+
+####  霖岚_  
+##### 46#       发表于 2024-6-18 16:51
+
+说实话我512g的led都已经吃灰大半年了，尤其现在有了体积更小更便携的gpd mini之后连tf卡装win当生产力工具的意义也消失了，最近也各种忙根本没时间折腾steam os，虽然想卖但二手价格又低感觉不值+自己仓鼠症舍不得……
+

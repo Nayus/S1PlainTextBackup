@@ -1814,3 +1814,28 @@ pay下周的生日event夜场有线上
 
 官绘一定要画这种瞬时动态是有什么考量吗，不理解啊，其它几个团也没一直这个方向吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20341#       发表于 2024-6-18 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65282107&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-6-18 13:12</a>
+
+冬毬这个表情总觉得眼熟，好像在别的谁脸上用过？？？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+可能是黛雅吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+隔壁民警好雄伟的楼已经好多楼了。
+
+*****
+
+####  starring  
+##### 20342#       发表于 2024-6-18 16:46
+
+这套绘柄是谁画的，真难看<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+线条和头发的处理都不太像斋藤的手笔
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

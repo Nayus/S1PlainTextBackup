@@ -1290,3 +1290,28 @@ https://www.bilibili.com/video/BV1a1421r7qg</blockquote>
 
 虽然缓存了，不过视频没了后就无法直接保存到相册，不知道能不能插电脑导出，不然只能录屏了……
 
+
+*****
+
+####  maninhole  
+##### 118#       发表于 2024-6-18 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65282420&amp;ptid=2065685" target="_blank">酷乐 发表于 2024-6-18 13:42</a>
+
+这是钢岚6月16日线下交流会里，几个策划和氪佬们吹水的内容，UP主是用AR眼镜偷录的，估计是被紫龙要求删 ...</blockquote>
+插电脑肯定是可以的，缓存以前我换手机找到以前的导过去有的好像都不用转换
+
+*****
+
+####  piigzyq  
+##### 119#       发表于 2024-6-18 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65282301&amp;ptid=2065685" target="_blank">放大镜 发表于 2024-6-18 13:31</a>
+
+来源是？没记错的话紫龙有至少两次被日厂鸽掉的经历，两次都遇人不淑这是不是也太倒霉了
+
+另外楼上几位，按 ...</blockquote>
+因为都是热脸贴冷屁股，拿老IP做新游戏，所有内容还是要过版权方监修，没有一点自主权，对于开发讲究效率，宣发讲究时机的国内环境来说是非常被动的了。能做成的反而可以说是凤毛麟角了。
+
+梦幻模拟战当时能做起来主要也有现在的版权方本来就是做收购合并，IP授权，外包之类的，可能监管上不会像大厂那样严苛。
+

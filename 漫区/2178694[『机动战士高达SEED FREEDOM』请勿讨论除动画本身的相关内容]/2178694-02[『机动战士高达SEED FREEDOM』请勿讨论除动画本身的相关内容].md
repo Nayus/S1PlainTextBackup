@@ -2667,3 +2667,25 @@ T：我不是，我没有，别乱说</blockquote>
 用这个样子去钩引基拉或许真有机会 ...</blockquote>
 这个也太有爱了吧，真是这个我就peropero了
 
+
+*****
+
+####  chaoliu  
+##### 1699#       发表于 2024-6-18 22:52
+
+新剧场版的强人好对胃口<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">；而且表现也太独角兽了，有些接受不了。
+
+*****
+
+####  kcalb  
+##### 1700#       发表于 2024-6-18 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65264409&amp;ptid=2178694" target="_blank">gary76 发表于 2024-6-17 01:08</a>
+
+@kcalb
+
+是沒有提，應該是場刊或者訪談裡透露她被老化延緩藥的實驗藥劑淋了一身，導致萎縮了</blockquote>
+克队要素+1
+
+不过典型的后附设定了，之前是针对克队这一支的基因缺陷开发的抑制剂，现在说这神药其实能在不影响思维和寿命的前提下返老还童？那PLANT那边高层应该没有老头老太才对<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

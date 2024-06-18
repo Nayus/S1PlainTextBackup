@@ -3110,3 +3110,31 @@ max三岗过了，仍旧没有金
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 4747#       发表于 2024-6-18 22:52
+
+直面会没有你喷，这下寄中寄了
+
+*****
+
+####  绿冰  
+##### 4748#         楼主| 发表于 2024-6-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290072&amp;ptid=2150634" target="_blank">oi99o 发表于 2024-6-18 22:52</a>
+
+直面会没有你喷，这下寄中寄了</blockquote>
+没有是好事，有的话几乎必定是最终祭典
+
+*****
+
+####  oi99o  
+##### 4749#       发表于 2024-6-18 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290087&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-6-18 22:52</a>
+
+没有是好事，有的话几乎必定是最终祭典</blockquote>
+没有延长更新，祭不祭典也无所谓了
+

@@ -1393,3 +1393,14 @@ https://al-gest.com/batenkaitos/baten-change/
 按移植开发的话，是logicalbeat(NS版及PC版）</blockquote>
 我还以为这游戏版权在任天堂呢
 
+
+*****
+
+####  lang5201000  
+##### 151#       发表于 2024-6-18 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278938&amp;ptid=2115429" target="_blank">卡普空 发表于 2024-6-18 09:19</a>
+
+我还以为这游戏版权在任天堂呢</blockquote>
+版权肯定是万南啊...
+

@@ -118,3 +118,11 @@
 
 婚戒作为不可再生的限量道具还是比ffj和沙漏强的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17948#       发表于 2024-6-18 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但婚戒真不如JGJ有用
+

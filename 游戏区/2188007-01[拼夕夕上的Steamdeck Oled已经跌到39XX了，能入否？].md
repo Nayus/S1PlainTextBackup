@@ -451,3 +451,23 @@ STEAM OS更新会掉WIN的引导
 借楼问一下SD打法环怎么设置比较好，我打下来帧数不是很稳定啊</blockquote>
 lcd版，540p锁45帧。oled版功耗效率高，大概能开得更高。
 
+
+*****
+
+####  一杯悠茗  
+##### 50#       发表于 2024-6-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65285324&amp;ptid=2188007" target="_blank">busuji 发表于 2024-6-18 17:26</a>
+lcd版，540p锁45帧。oled版功耗效率高，大概能开得更高。</blockquote>
+540p开了fsr感觉也好糊啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 51#       发表于 2024-6-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65285196&amp;ptid=2188007" target="_blank">一杯悠茗 发表于 2024-6-18 17:18</a>
+
+借楼问一下SD打法环怎么设置比较好，我打下来帧数不是很稳定啊</blockquote>
+我是720P,帖图高，反锯齿高，其他全低，锁40
+

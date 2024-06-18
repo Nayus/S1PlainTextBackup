@@ -2590,3 +2590,18 @@ T：我不是，我没有，别乱说</blockquote>
 
 万代和脸盆厂也就磨具不同罢了.jpg
 
+
+*****
+
+####  jedipiggy  
+##### 1694#       发表于 2024-6-18 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65241337&amp;ptid=2178694" target="_blank">sql710 发表于 2024-6-15 09:06</a>
+
+昨晚看了，一肚子的槽想吐。。。今早起来就只剩全员嘟嘟嘴、遗憾为什么不用闪哈的规格来做呢、开头感觉在co ...</blockquote>
+这个战斗体量用闪哈规格来做经费就不够了，可能
+
+或者
+
+万代认为看种系的本来就不存在大脑这种东西，爽就行了
+

@@ -1626,3 +1626,14 @@ QQ图片20240614223029.png
 这么说来的话重机枪炮台作为战备确实比较实惠，可以点飞龙巢 ...</blockquote>
 自己下炮台丢个晕雷+喷火器也能打牛，小牛甚至晕雷绕屁股用火喷都点死了，要说带重机枪支架的缺点是少一个红战备不好打泰坦
 
+
+*****
+
+####  6x6z6w  
+##### 4999#       发表于 2024-6-19 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278546&amp;ptid=2170852" target="_blank">真红眼教授 发表于 2024-6-18 08:51</a>
+
+那现在拆龙巢最好的其实是用重机枪系武器吧，筒子效率也很低</blockquote>
+十发机炮能拆掉一个飞龙巢，也就是1/5弹药水平，很划算的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">重机枪拆要用掉整整一个弹夹
+

@@ -504,3 +504,16 @@ lcd版，540p锁45帧。oled版功耗效率高，大概能开得更高。</block
 
 但糊这就一点办法没有了，deck机能有限
 
+
+*****
+
+####  busuji  
+##### 55#       发表于 2024-6-18 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65285970&amp;ptid=2188007" target="_blank">慕容断月 发表于 2024-6-18 18:19</a>
+
+各人对糊的定义也不一样，这个没办法
+
+我1124*720P用fsr缩放感觉也没太模糊，但这个你肯定会觉得模糊</blockquote>
+前面问的法环。法环锁30帧弹反会困难很多。别的游戏掉到30帧以下也都没太大关系。
+

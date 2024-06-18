@@ -740,3 +740,28 @@ ATLUS可恶的完全版商法！……凑合过吧，还能离咋地
 
 玩过NDS和3DS的真女神，想试试最新作品
 
+
+*****
+
+####  cppaaliu  
+##### 63#       发表于 2024-6-18 21:05
+
+几年前买了NS版 想玩但是没钱买加强版了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  siebten  
+##### 64#       发表于 2024-6-18 21:12
+
+想玩 但不想买NS版
+
+*****
+
+####  lovepenny  
+##### 65#       发表于 2024-6-18 21:13
+
+阿特拉斯快把P6交出来。。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

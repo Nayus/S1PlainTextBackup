@@ -1803,3 +1803,26 @@ fbk现在在杂谈直播里说4人旅行的事，有一个令人震惊的事件�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 9038#         楼主| 发表于 2024-6-18 20:52
+
+她自己火影还在播都把自己出演的部分撞了
+
+不过这作的游戏原创剧情确实做得神了，miko哭得不成样
+
+*****
+
+####  holoan  
+##### 9039#         楼主| 发表于 2024-6-18 21:15
+
+<img src="https://img.saraba1st.com/forum/202406/18/211517vb3osmx3b38s1lrx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 21:15 上传
+

@@ -2543,3 +2543,18 @@ T：我不是，我没有，别乱说
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  zoe2  
+##### 1690#       发表于 2024-6-18 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65280006&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-18 10:38</a>
+
+V：我不是，我没有，别乱说
+
+X：我不是，我没有，别乱说
+
+T：我不是，我没有，别乱说</blockquote>
+机战x确实，我连翅膀都不加····
+

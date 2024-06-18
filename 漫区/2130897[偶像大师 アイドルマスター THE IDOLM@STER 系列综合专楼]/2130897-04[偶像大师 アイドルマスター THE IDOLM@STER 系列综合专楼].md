@@ -11480,3 +11480,29 @@ mora上面卖的hires版也是混得一坨，有种电音部混多了不会混�
 体育生新曲groovy是挺groovy的，但是te提取版听着像三首曲子拼接到了一起，不知道流媒体版会不会听感不一样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 开口第一句激似日花，有种世界线于此交汇的错觉
 
+
+*****
+
+####  screeper  
+##### 5513#       发表于 2024-6-19 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291740&amp;ptid=2130897" target="_blank">840266848 发表于 2024-6-19 01:12</a>
+
+学mas所有在流媒体的歌混音是不是有点问题啊，我更喜欢游戏里的TE版本</blockquote>
+mora上面卖的hires版也是混得一坨，有种电音部混多了不会混正常jpop的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Laie  
+##### 5514#       发表于 2024-6-19 04:23
+
+体育生新曲groovy是挺groovy的，但是te提取版听着像三首曲子拼接到了一起，不知道流媒体版会不会听感不一样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+开口第一句激似日花，有种世界线于此交汇的错觉
+
+*****
+
+####  倉本千奈  
+##### 5515#       发表于 2024-6-19 07:28
+
+活动是今天更新还是明天？
+

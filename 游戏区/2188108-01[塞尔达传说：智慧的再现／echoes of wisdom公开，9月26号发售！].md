@@ -1111,3 +1111,13 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  sprongs  
+##### 118#       发表于 2024-6-19 07:30
+
+这不是野炊fc 2d版地图，套上织梦岛引擎了吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

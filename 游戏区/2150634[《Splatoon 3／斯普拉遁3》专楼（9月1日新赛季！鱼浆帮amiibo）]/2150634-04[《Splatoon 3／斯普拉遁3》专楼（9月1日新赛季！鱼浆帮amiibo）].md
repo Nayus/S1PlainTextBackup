@@ -3092,3 +3092,21 @@ max三岗过了，仍旧没有金
 
 最近怎么涂地高PING怪那么多啊
 
+
+*****
+
+####  罗克萨斯  
+##### 4746#       发表于 2024-6-18 19:21
+
+用贴牌轻加打到第一，可怕的人间性能！
+
+<img src="https://img.saraba1st.com/forum/202406/18/192059z8efav5acpe5665f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-18-19-12-15-675_com.nintendo.znca-edit.jpg</strong> (306.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 19:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

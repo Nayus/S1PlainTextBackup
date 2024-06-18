@@ -396,3 +396,24 @@ STEAM OS更新会掉WIN的引导
 
 我的上次彻底崩了直接格式化了。
 
+
+*****
+
+####  Megum1N  
+##### 44#       发表于 2024-6-18 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65284486&amp;ptid=2188007" target="_blank">硫黄 发表于 2024-6-18 16:24</a>
+STEAM OS更新会掉WIN的引导
+
+如果要搞双系统硬盘互通，更是BUG高发
+
+顺便OLED版的WIN蓝牙驱动还是没出 ...</blockquote>
+懂了 那还是考虑收一台oled单系统或者百亿补贴lcd纯原吧，感谢
+
+*****
+
+####  bypass  
+##### 45#       发表于 2024-6-18 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> V 社答应的双系统引导丫的鸽到现在还没给出。
+

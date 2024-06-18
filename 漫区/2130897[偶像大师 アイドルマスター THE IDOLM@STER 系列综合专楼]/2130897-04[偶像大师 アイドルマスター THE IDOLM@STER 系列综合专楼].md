@@ -11452,3 +11452,11 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 <img src="https://tc2.wfhtony.space/images/2024/06/19/078bbf8bafc59605572dfd4afccb1967.png" referrerpolicy="no-referrer">
 <img src="https://tc2.wfhtony.space/images/2024/06/19/aaf07b556537c6e1593f58d79677319c.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  840266848  
+##### 5510#       发表于 2024-6-19 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学mas所有在流媒体的歌混音是不是有点问题啊，我更喜欢游戏里的TE版本
+

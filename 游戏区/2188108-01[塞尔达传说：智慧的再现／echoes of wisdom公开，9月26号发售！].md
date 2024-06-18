@@ -728,3 +728,23 @@ PV的玩法看上去很有意思
 
 这个梦见岛的引擎我记得帧数非常不乐观把
 
+
+*****
+
+####  heseran  
+##### 81#       发表于 2024-6-19 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291430&amp;ptid=2188108" target="_blank">ArowRocher 发表于 2024-6-19 00:33</a>
+这个梦见岛的引擎我记得帧数非常不乐观把</blockquote>
+大多数时间锁60，水多的场景、切换新场景需要加载的时候锁30，加载完毕回到60，游戏放在机身内置存储里性能表现会更好，应该和王泪一个毛病。
+
+*****
+
+####  yuusuke  
+##### 82#       发表于 2024-6-19 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291430&amp;ptid=2188108" target="_blank">ArowRocher 发表于 2024-6-19 00:33</a>
+
+这个梦见岛的引擎我记得帧数非常不乐观把</blockquote>
+主要是切场景后掉帧 等一会帧数就恢复。然后就是有几个场景帧数低点.体验没啥影响怎么也是个60帧游戏.又不是平均帧30不到.
+

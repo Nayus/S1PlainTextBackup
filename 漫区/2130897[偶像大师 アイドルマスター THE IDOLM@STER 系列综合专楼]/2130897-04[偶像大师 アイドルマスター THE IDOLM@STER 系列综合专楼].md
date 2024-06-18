@@ -11435,3 +11435,20 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 谁看sc动画不疯，硬撑而已（负面意味）
 
+
+*****
+
+####  wfhtony  
+##### 5509#       发表于 2024-6-19 00:37
+
+又到了学马仕靠解包看下个卡池/乐曲贩卖的时间...这下御三家都来两轮SSR+新曲了。
+
+不出意外的话，还是10点更新卡池、11点官推+discord推送信息（时区都是UTC+8）。
+
+这次因为没有广播节目，所以AM那边和其他渠道一样，为20日0点（根据账户所在时区）开放贩卖+试听。以下内容需要积分高于 200 才可浏览
+<img src="https://tc2.wfhtony.space/images/2024/06/19/e45415a4292df7e0a6cdb848e384d6aa.png" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2024/06/19/79d1f28b494f2fba526281943867735b.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/06/19/078bbf8bafc59605572dfd4afccb1967.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2024/06/19/aaf07b556537c6e1593f58d79677319c.png" referrerpolicy="no-referrer">
+

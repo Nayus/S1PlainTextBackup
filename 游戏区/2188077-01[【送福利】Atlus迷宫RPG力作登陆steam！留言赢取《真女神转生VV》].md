@@ -1002,3 +1002,20 @@ sd玩真的很爽，ns玩过无印，卡的不行，玩的头痛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 买了无印的大冤种路过 
 
+
+*****
+
+####  华发夜眼[CN]  
+##### 95#       发表于 2024-6-19 00:43
+
+大冤种+1
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DJYDJYD  
+##### 96#       发表于 2024-6-19 00:44
+
+已经入了但是重在参与<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

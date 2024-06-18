@@ -1121,3 +1121,11 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  sgssk  
+##### 119#       发表于 2024-6-19 07:36
+
+echo、复制，和着它这个かりもの可能是玩了个双关，“仮”的もの
+

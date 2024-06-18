@@ -1358,3 +1358,25 @@ https://al-gest.com/batenkaitos/baten-change/
 
 [https://store.steampowered.com/app/2146170](https://store.steampowered.com/app/2146170)
 
+
+*****
+
+####  qiyu1234  
+##### 149#       发表于 2024-6-18 08:55
+
+按原作算是
+
+按移植开发的话，是logicalbeat(NS版及PC版）
+
+販売
+
+株式会社バンダイナムコエンターテインメント様
+
+開発
+
+株式会社ロジカルビート
+
+担当
+
+リマスター対応全般
+

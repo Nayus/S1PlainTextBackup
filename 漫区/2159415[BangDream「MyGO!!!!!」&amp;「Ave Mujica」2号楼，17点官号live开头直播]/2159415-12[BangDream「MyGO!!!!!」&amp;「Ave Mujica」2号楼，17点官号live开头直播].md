@@ -15625,3 +15625,18 @@ mujica 2nd第二场同时也是日本那边的七夕吧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  MZZK  
+##### 17561#       发表于 2024-6-18 19:31
+
+NGA日常爆典<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/20d0672a0c80f2a348d5cd2efa2e5db1/CMP_20240618193030484.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 17562#       发表于 2024-6-18 19:35
+
+哪怕我说了“仅仅只是家道中落/畜生行为/**”你也不能反驳哦，反驳就是“极端/看二创看的”，总之“祥厨闹麻了”，无敌了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

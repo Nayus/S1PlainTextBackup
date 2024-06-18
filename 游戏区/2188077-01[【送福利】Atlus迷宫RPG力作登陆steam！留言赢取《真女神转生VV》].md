@@ -1,0 +1,575 @@
+﻿
+*****
+
+####  杉果娘Sonkwo  
+##### 1#       楼主       发表于 2024-6-18 17:56
+
+今年 618 不知道各位都买了什么东西呢？杉果商城照例给出了很多超值折扣，下面果娘就为大家介绍几款值得推荐的作品，其中《祇：女神之路》预售折扣和《孤岛惊魂6》史低价都非常实惠！
+
+如果有尚未入库的游戏，这次绝对不要错过！关注果娘，轻松获取每周游戏的发售和打折情况~
+
+<img src="https://img.saraba1st.com/forum/202406/18/175502ajsoedj1ahl81erw.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (96.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《真·女神转生Ⅴ Vengeance》</strong>
+<strong>Shin Megami Tensei V: Vengeance</strong>
+
+|杉果券后价￥289.52 | Steam 现价￥329 | 折扣截止：6 月 30 日|
+
+在原版基础上进行大量扩充的《真·女神转生Ⅴ Vengeance》将于今日正式解锁，“创世女神篇”和“复仇女神篇”两条剧情路线将为玩家提供超过 100 小时的游玩体验，而改进后的操作系统也变得更易上手。
+
+现在在杉果商城购买，搭配新品 88 折券券后￥289.52 即可入手，对于喜欢《女神》系列叙事方式和剧情冲突的玩家，可以考虑出手了。
+
+<img src="https://img.saraba1st.com/forum/202406/18/175500gllhu1uqkhhf77z4.jpg" referrerpolicy="no-referrer">
+
+<strong>0.jpg</strong> (58.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175501epx66nxx2k2r6224.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (58.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《祇：女神之路》</strong>
+<strong>Kunitsu-Gami: Path of the Goddess</strong>
+
+|杉果券后价￥223（需用券减 10%） | Steam 现价￥248 | 发售日期：7 月 19 日|
+
+《祇：女神之路》杉果预购九折优惠仅需 223 元，比在 Steam 买立省 25 元。这款卡普空神秘新作的美术风格给人留下了深刻印象，日式美学、东方神话和幻想元素融合出一种说不清道不明的神秘感。
+
+玩法上，我们要安排 NPC 的站位、职业和装备，以便应对入夜后的百鬼夜行。当然，玩家也要亲历战场并引导圣女前进，角色动作打击感颇具“怪猎味儿”。如果你好奇出彩的画风建模会搭配一段什么故事，或者想要试试动作冒险+策略塔防融合起来好不好玩，那么趁着杉果九折预购《祇：女神之路》绝对不亏~
+
+<img src="https://img.saraba1st.com/forum/202406/18/175503p9ss1aws9r34vaiu.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (117.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175503jog7o11v1y1gun67.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (114.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《幽灵行者2 残暴版》</strong>
+<strong>Ghostrunner 2 Brutal Edition</strong>
+
+|杉果折扣价￥49 | Steam 史低￥49 | 截止时间：6 月 28 日|
+
+《幽灵行者2 残暴版》包含游戏本体、大量皮肤装备以及季票内容，真·一站式购齐，杉果史低折扣仅需 49 元即可入库。
+
+本作延续了深受喜爱的动作元素和一击必杀设定，并新增了非线性摩托关卡。除此之外还加入了肉鸽系统和重新设计的升级界面，并增加了多个全新环境互动要素。更凭借紧张刺激的动作快感，在TGA2023年度游戏评选中获得“最佳动作游戏”提名。喜欢赛博朋克风，跑酷要素和一击必杀机制的玩家，杉果史低折扣可以考虑一下。
+
+<img src="https://img.saraba1st.com/forum/202406/18/175504dxc6f3qxxqasqxkk.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (66.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175505abjcnnv7jm6dd6b6.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (58.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《孤岛惊魂6 标准版》</strong>
+<strong>Far Cry 6</strong>
+
+|杉果券后价￥66（需用券减 10%） | Steam 史低￥74 | 截止时间：6 月 23 日|
+
+《孤岛惊魂6》杉果券后仅需 66 元，击破 Steam 史低！虽然没有逃离育碧公式化罐头的命运，但本作绝对称得上量大管饱的作品！
+
+好莱坞演员“炸鸡叔”倾力出演，大量无厘头的野路子武器，搭配浓郁的加勒比海风情，还有全系列最大最广袤的开放世界地图，喜欢开放世界+FPS 的小伙伴们可以入手了！
+
+注：育碧 Ubisoft Connect 平台激活
+
+<img src="https://img.saraba1st.com/forum/202406/18/175505rukmumamijji2m2u.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (76.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175506omufmy3qf3xvq4jx.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (72.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《百英雄传》</strong>
+<strong>Eiyuden Chronicle: Hundred Heroes</strong>
+
+|杉果券后价￥130（需用券减 10%） | Steam 史低￥148 | 截止时间：6 月 28 日|
+
+《百英雄传》是童年回忆《幻想水浒传》系列精神续作，杉果券后优惠仅需 130 元，考虑到刚刚发售没多久，这价格已经非常实惠啦！
+
+流程中我们会跟随主人公结识不同国度的上百名同伴，游戏采用暗雷设计，遇敌后是按照角色速度依次行动的传统战斗；大战场则是挥斥方遒的类战棋玩法，控制大量部队和特殊攻城单位策略性拉满！无论从玩法、剧情还是价格方面考虑，JRPG 爱好者都没有任何理由错过杉果 130 元的折扣~    
+
+<img src="https://img.saraba1st.com/forum/202406/18/175510xqcqt1ripq2rdtao.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (73.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175513w2rvlzmzqacaebhv.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (63.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《幽灵诡计：幻影侦探》</strong>
+<strong>Ghost Trick: Phantom Detective</strong>
+
+|杉果券后价￥93（需用券减 10%） | Steam 史低￥104 | 截止时间：6 月 22 日|
+
+逆转裁判之父巧舟最强名作《幽灵诡计》复刻版，杉果券后击破 Steam 史低仅需 93 元。玩家将扮演一位失去记忆的鬼魂，进入他人死去前的四分钟，通过“闹鬼”改写他人命运，推进故事的发展。
+
+巧舟给玩家抛出疑问随着游戏的进展逐一解答，将一场跨越十年的旅途像电话线路般错综复杂的串流在一起。如果你是一个文字 AVG 玩家或者解谜爱好者，这是你绝对不容错过的作品！
+
+<img src="https://img.saraba1st.com/forum/202406/18/175515gul3borm573rmd3l.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (72.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175517u1f2ffa1maaikjjz.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (70.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《梅尔沃放置》</strong>
+<strong>Melvor Idle</strong>
+
+|杉果折扣价￥21 | Steam 史低￥21 | 截止时间：6 月 20 日|
+
+《梅尔沃放置》最近刚推出了 DLC“步入深渊”，于是这款摸鱼神器又一次被大家捡了起来~如果你还没拥有本体，杉果史低折扣 21 元不容错过！
+
+本作提取了冒险类游戏让人欲罢不能的精华本质，并将之转化成最纯净的形式——只需要点击即可！！！流程中充斥着极具深度的游戏内容，伐木，锻造，烹饪、农务和战斗一应俱全，所有技能都具备实际用途，而且技能之间还存在着错综复杂的有趣影响，每位玩家都能根据自己的独特偏好体验游戏。上班必备神器！
+
+<img src="https://img.saraba1st.com/forum/202406/18/175520uc2u6uokeaeqyk9x.jpg" referrerpolicy="no-referrer">
+
+<strong>12.jpg</strong> (70.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175523yjb4bfciiij49jwi.jpg" referrerpolicy="no-referrer">
+
+<strong>13.jpg</strong> (51.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《无人之地》</strong>
+<strong>No Man's Sky</strong>
+
+|杉果券后价￥78（需用券减 10%） | Steam 史低￥78 | 截止时间：6 月 30 日|
+
+太空探索开放世界游戏《无人深空》，杉果券后仅需 78 元，这价格已经是 Steam 永涨后的史低啦。经常长时间的更新优化，目前内容丰富度和 PC 优化已经称得上优质~
+
+游戏中将为玩家呈现一个个充满独特行星和生命形式的星系，体验在无穷无尽的星际间穿梭，感受时间流逝的游戏过程。如果你喜欢太空科幻题材，或者对于探索宇宙感兴趣，那么趁着史低入手绝对不亏。
+
+<img src="https://img.saraba1st.com/forum/202406/18/175526nzazsd1k6c7kdzfj.jpg" referrerpolicy="no-referrer">
+
+<strong>14.jpg</strong> (88.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175529jeux3z7ff1dwwfjw.jpg" referrerpolicy="no-referrer">
+
+<strong>15.jpg</strong> (100.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<strong>《看门狗2 标准版》</strong>
+<strong>Watch Dogs 2</strong>
+
+|杉果折扣价￥44 | Steam 史低￥44 | 截止时间：6 月 23 日|
+
+《看门狗2 标准版》杉果史低折扣1.5折仅需 44 元，本作方方面面都努力营造出一种轻松的氛围，无论街头涂鸦还是电子赛车等项目全都透露着属于一群年轻黑客的胡闹气息。
+
+游戏流程类似《GTA》，玩家能够升级自己的黑客工具，培养不同技能，并以此来探索这个动态的开放世界。大部分任务都可以通过非暴力的潜行玩法完成，非传统的“猫捉老鼠”的多人模式玩法也非常有趣。史低价可以冲！
+
+注：育碧 Ubisoft Connect 平台激活
+
+<img src="https://img.saraba1st.com/forum/202406/18/175531dps8rrn9kv5ziro8.jpg" referrerpolicy="no-referrer">
+
+<strong>16.jpg</strong> (105.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/18/175534z3iiprerrba3e03l.jpg" referrerpolicy="no-referrer">
+
+<strong>17.jpg</strong> (122.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+以上就是本期杉果商城折扣推荐的全部内容啦，如果各位还有想要的折扣游戏，不妨发在评论区，大家互相交流一下，下周我们准时再见~
+
+杉果商城：[https://www.sonkwo.cn/?rcode=ry4row](https://www.sonkwo.cn/?rcode=ry4row)
+
+另外现在留言分享你对《真女神转生VV》的看法，果娘还将在6月25日选出2名小伙伴获得《真女神转生VV》激活码一枚~
+
+【活动规则】
+
+1. 留言分享你对《真女神转生VV》的看法即可参与本次送福利活动；
+
+2. 本次活动记第一次回复为有效参与，重复回复楼层无效；
+
+3. 获奖者将通过“在线随机数生成器”产生；
+
+4. 如中选玩家未按规则参与活动，中奖资格将顺延至下一楼层，直到出现符合规则的回复者为止。  
+
+【活动时间】即日起 - 6月25日中午12:00
+
+<img src="https://img.saraba1st.com/forum/202406/18/175535ezssdbbbt8xubs29.png" referrerpolicy="no-referrer">
+
+<strong>lQLPJw4X0DraNBnNAlbNA2CwmIzFCYh3NvMGVwu72dVHAA_864_598.png</strong> (841.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 17:55 上传
+
+*****
+
+####  zzy516232108  
+##### 2#       发表于 2024-6-18 18:01
+
+vv是好游戏<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+但是加强版商法不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以我在当年解包出登录pc的传闻以后就一直在等， 有人好几次差点真买了，还好忍住了
+
+*****
+
+####  Tring  
+##### 3#       发表于 2024-6-18 18:03
+
+刀剑神域湖南江西
+
+*****
+
+####  古代人皮克  
+##### 4#       发表于 2024-6-18 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ns买了无印pc实在不想掏了钱还从头开始打一遍了
+
+*****
+
+####  朔方原的星  
+##### 5#       发表于 2024-6-18 18:04
+
+久仰大名的名作 来个试试
+
+*****
+
+####  h122h  
+##### 6#       发表于 2024-6-18 18:04
+
+初版实体豪华版付费测试员在此。这读取明明能修好，但就是要卖个加强版。真的屎。
+
+*****
+
+####  Dreammask  
+##### 7#       发表于 2024-6-18 18:08
+
+迷宫设计实在太凑数了点，加强版万古神殿的怪等级巨幅降低，从一个靠在烂地图上设等级墙硬撑上去的普通迷宫变成了只有烂地图的迷宫
+
+不过全方位降难度也算是迫不得已的事，而且难度上也可以升到相当变态的水平，隐藏boss的强度在最低难度也挺可观的，综合来看还是满意的
+
+*****
+
+####  幻想风靡_  
+##### 8#       发表于 2024-6-18 18:09
+
+初版数字豪华版买了到现在都没通关，准备在pc上整一份玩高清了
+
+听说读盘速度加快了不少，ns是真不行啊
+
+*****
+
+####  佑叶  
+##### 9#       发表于 2024-6-18 18:11
+
+初版我也买了豪华版，还把实体直接出了玩的数字版，VV也订了，把豪华版盒子的空格补上
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ストック  
+##### 10#       发表于 2024-6-18 18:18
+
+新增的随时存档俯瞰视图等机制好评
+新增的恶魔后院，还有丰富的恶魔对话好评
+我是自愿当阿特拉斯凯子的.jpg
+
+—— 来自 Xiaomi M2002J9E, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  慕容断月  
+##### 11#       发表于 2024-6-18 18:22
+
+久仰大名+1
+
+*****
+
+####  小明神  
+##### 12#       发表于 2024-6-18 18:22
+
+这个好，我来做个分母。
+
+可惜OL版没了。还挺喜欢的。
+
+*****
+
+####  王一唯不傲娇  
+##### 13#       发表于 2024-6-18 18:28
+
+虽然但是我已经买了
+
+*****
+
+####  ParadiseMartyr  
+##### 14#       发表于 2024-6-18 18:28
+
+能当年轻人的第一部真女神转生吗
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  蓮華  
+##### 15#       发表于 2024-6-18 18:30
+
+东京，天台，女人！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 16#       发表于 2024-6-18 18:33
+
+长发男主hso
+
+*****
+
+####  Demi.Albertini  
+##### 17#       发表于 2024-6-18 18:41
+
+本作没有玩，送我我就玩~~~
+
+*****
+
+####  nage560  
+##### 18#       发表于 2024-6-18 18:43
+
+一年3作，阿特拉斯还真是高产。
+
+*****
+
+####  吃汤圆的猫  
+##### 19#       发表于 2024-6-18 18:43
+
+sd玩真的很爽，ns玩过无印，卡的不行，玩的头痛
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  bobsaint  
+##### 20#       发表于 2024-6-18 18:46
+
+画风很独特，有点东西
+
+—— 来自 realme RMX3700, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  时空之旅  
+##### 21#       发表于 2024-6-18 18:47
+
+真女5加强版还行，我觉得还有很多人包括我自己都没玩原版是个很好的选择
+
+*****
+
+####  umbasa  
+##### 22#       发表于 2024-6-18 18:48
+
+阿特拉斯真有你的啊，很难想象一个加强版憋了两年半
+
+*****
+
+####  はちたや  
+##### 23#       发表于 2024-6-18 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">抽到就转送
+
+*****
+
+####  谢枫华  
+##### 24#       发表于 2024-6-18 18:52
+
+NS版的V无印三路线通关。迷宫实在转吐了。但是真女战斗系统从来不会让人失望。
+
+*****
+
+####  凤凰院天豪  
+##### 25#       发表于 2024-6-18 18:52
+
+需要一份，谢谢茄子
+
+*****
+
+####  shyso  
+##### 26#       发表于 2024-6-18 18:56
+
+球球你抽到我，我想打人修罗
+
+*****
+
+####  フカミ  
+##### 27#       发表于 2024-6-18 19:02
+
+atlus业界独一份<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arians  
+##### 28#       发表于 2024-6-18 19:10
+
+没玩过真女系列，抽到我就玩<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wtf317  
+##### 29#       发表于 2024-6-18 19:12
+
+《真女神转生VV》已经买啦！
+
+*****
+
+####  格林卡罗尔  
+##### 30#       发表于 2024-6-18 19:16
+
+抽抽，打完smt3正好接5
+
+*****
+
+####  Sutrid  
+##### 31#       发表于 2024-6-18 19:16
+
+试试加强版
+
+*****
+
+####  casle  
+##### 32#       发表于 2024-6-18 19:18
+
+抽到送对象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  西林  
+##### 33#       发表于 2024-6-18 19:20
+
+初版测试员表示你送我就要<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  乔西  
+##### 34#       发表于 2024-6-18 19:24
+
+做个分母参与一下
+
+*****
+
+####  museqsou  
+##### 35#       发表于 2024-6-18 19:28
+
+真女神转生基本没有平替
+
+*****
+
+####  HARVESTASYA  
+##### 36#       发表于 2024-6-18 19:31
+
+5v做得有多好，阿特拉斯在5上的吃相就有多难看
+
+*****
+
+####  抹茶瓜  
+##### 37#       发表于 2024-6-18 19:31
+
+初版有料测试员日常想辱骂atlus<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 38#       发表于 2024-6-18 19:32
+
+抽到送朋友<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mashav  
+##### 39#       发表于 2024-6-18 19:32
+
+即时存档真好啊
+
+*****
+
+####  东京打工妹  
+##### 40#       发表于 2024-6-18 19:33
+
+没玩过，看看
+
+
+*****
+
+####  hentianwuya  
+##### 41#       发表于 2024-6-18 19:36
+
+玩过无印了，不过你要送我复仇，我可以再玩一遍。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

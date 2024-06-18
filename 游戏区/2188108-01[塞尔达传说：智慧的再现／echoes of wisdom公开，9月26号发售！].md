@@ -967,3 +967,11 @@ PV的玩法看上去很有意思
 公主随手拿起大石头砸怪 林克可做不到 其实就是在演 我看力量三角应该给公主 ...</blockquote>
 虽然但是，三角力量从来都是公主的，就算分裂也有公主一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  macongju1  
+##### 105#       发表于 2024-6-19 01:43
+
+这下2d塞尔达也往高自由度发展了，怎么有一点创世小玩家即视感
+

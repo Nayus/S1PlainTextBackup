@@ -748,3 +748,72 @@ PV的玩法看上去很有意思
 这个梦见岛的引擎我记得帧数非常不乐观把</blockquote>
 主要是切场景后掉帧 等一会帧数就恢复。然后就是有几个场景帧数低点.体验没啥影响怎么也是个60帧游戏.又不是平均帧30不到.
 
+
+*****
+
+####  KBAC  
+##### 83#       发表于 2024-6-19 00:49
+
+这作的时间线目前来看比较符合旧时间线的战败线，官网还没更新本作信息，不知道会不会把这作塞进官网的旧时间线里<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  sslink  
+##### 84#       发表于 2024-6-19 00:50
+
+地图上的裂缝应该是各种神庙了，定位为2d野炊没毛病
+
+*****
+
+####  zzyyyyppy2  
+##### 85#       发表于 2024-6-19 00:52
+
+林克：举起巨石需要力量手镯
+
+塞尔达：只用空手
+
+之前被抓都是装的吧
+
+*****
+
+####  Junakr  
+##### 86#       发表于 2024-6-19 00:52
+
+<img src="https://img.saraba1st.com/forum/202406/19/005133ln7tfjks7w6a1wn7.jpg" referrerpolicy="no-referrer">
+
+<strong>photo.jpg</strong> (52.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 00:51 上传
+
+随手做了张梗图……大概会期待游戏中出现这么一幕（牢克，你来辣（不。
+
+*****
+
+####  masonknight  
+##### 87#       发表于 2024-6-19 00:53
+
+感觉地图是用野炊或者王泪的地形分布改的2d
+
+
+*****
+
+####  KBAC  
+##### 88#       发表于 2024-6-19 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291617&amp;ptid=2188108" target="_blank">masonknight 发表于 2024-6-19 00:53</a>
+感觉地图是用野炊或者王泪的地形分布改的2d</blockquote>
+是野炊王泪继承了过去2D塞尔达的地形分布，而不是反过来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  hkguty  
+##### 89#       发表于 2024-6-19 00:58
+
+这是接的梦幻岛时间线吗，不是很喜欢梦幻岛重制的这个3D风格
+

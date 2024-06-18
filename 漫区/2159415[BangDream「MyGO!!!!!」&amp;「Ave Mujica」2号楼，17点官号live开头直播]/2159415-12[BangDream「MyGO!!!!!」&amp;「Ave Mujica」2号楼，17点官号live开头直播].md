@@ -15527,3 +15527,26 @@ Doloris自稱"私"不會破壞世界觀嗎<img src="https://static.saraba1st.com
 7.7是什么活动？</blockquote>
 mujica 2nd第二场同时也是日本那边的七夕吧
 
+
+*****
+
+####  UNISONIA  
+##### 17553#       发表于 2024-6-18 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236628&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-14 21:39</a>
+
+圣少女领域风格还是禁忌游戏还是蔷薇狱乙女和风格的？私心想要看到mujica翻唱蔷薇狱乙女和彼方的镇魂曲 ...</blockquote>
+彼方からの鎮魂歌是myu作曲霜月唱的那首汞灯印象曲吧，这首版权现在在lantis，但是应该不在卖版权给邦的大包里
+
+*****
+
+####  UNISONIA  
+##### 17554#       发表于 2024-6-18 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65236787&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-14 21:54</a>
+
+还有aether／light等着呢，期待</blockquote>
+四大元素第四个是earth（地），symbol是和air反过来的那个（逆三角中间一横线）
+
+真要有aether也是第五个了，不过aether的symbol和四大元素没什么直接关系，不是三角系的
+

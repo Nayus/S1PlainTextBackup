@@ -33,3 +33,16 @@ mind over magnet的demo实在是太休闲了点，10分钟就打完了，我估�
 
 想买一个午休玩， bean and nothingness和can of wormholes哪个比较推荐哇
 
+
+*****
+
+####  卡拉德利姆  
+##### 207#       发表于 2024-6-18 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65268884&amp;ptid=2017380" target="_blank">苦瓜师傅 发表于 2024-6-17 12:25</a>
+
+搭车问talos 1  2 区别大么？
+
+1买了一直没玩 2试了试开头和1差不多</blockquote>
+2的机制和花样更多，但总体而言难度比1简单；故事和主题是1的直接延续；2有大量的奇观巨构可以欣赏，丰富的文本配音阐述故事和核心立案。总而言之2是个比1更倾向主流受众的游戏，我的建议是感兴趣就两个都玩。
+

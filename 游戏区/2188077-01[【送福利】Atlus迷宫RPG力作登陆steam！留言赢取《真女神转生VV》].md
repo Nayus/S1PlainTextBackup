@@ -937,3 +937,13 @@ smt5无印受害者 完全版确实全方位加强
 
 等等党大胜利
 
+
+*****
+
+####  lifugui  
+##### 87#       发表于 2024-6-18 23:30
+
+只想问以后还会不会有新版本<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -501,3 +501,87 @@ Let's see who is real ZELDA
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  yamato gun  
+##### 58#       发表于 2024-6-18 23:27
+
+说实话，不太喜欢这种玩法，看起来就像普通的独立游戏
+
+真有里世界传统模式我可以给好评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  downnote  
+##### 59#       发表于 2024-6-18 23:27
+
+2D里面有出现过右边这个种族么？
+
+<img src="https://img.saraba1st.com/forum/202406/18/232708hgp3ht3fi0yh04rf.png" referrerpolicy="no-referrer">
+
+<strong>z.png</strong> (633.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 23:27 上传
+
+
+*****
+
+####  秦南心  
+##### 60#       发表于 2024-6-18 23:33
+
+床太万能了
+
+*****
+
+####  电磁炮233  
+##### 61#       发表于 2024-6-18 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290655&amp;ptid=2188108" target="_blank">downnote 发表于 2024-6-18 23:27</a>
+2D里面有出现过右边这个种族么？</blockquote>
+这就是左拉吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lypylf  
+##### 62#       发表于 2024-6-18 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290655&amp;ptid=2188108" target="_blank">downnote 发表于 2024-6-18 23:27</a>
+2D里面有出现过右边这个种族么？</blockquote>
+没有
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Schwftyyyyy  
+##### 63#       发表于 2024-6-18 23:34
+
+地图和众神三角系列的布局差不多，算是众神3吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，之前节奏海拉鲁的布局也和众神很像，众神的地图怕不是被任天堂当成母版在用
+
+这次的能力还真的和青沼之前访谈说的放下传统塞尔达对的上<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zerocount  
+##### 64#       发表于 2024-6-18 23:35
+
+林克传说<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Waldeinsamkeit  
+##### 65#       发表于 2024-6-18 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290740&amp;ptid=2188108" target="_blank">电磁炮233 发表于 2024-6-18 23:33</a>
+这就是左拉吧
+
+—— 来自 S1Fun</blockquote>
+左边的才是2D塞传统卓拉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

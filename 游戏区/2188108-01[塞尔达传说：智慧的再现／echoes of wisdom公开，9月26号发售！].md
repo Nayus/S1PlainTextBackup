@@ -1028,3 +1028,13 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 能配合限定机发售证明还是挺重视这作的，像是正统2d新作，不知道能不能复制去年2d马荣光
 
+
+*****
+
+####  岸波  
+##### 111#       发表于 2024-6-19 04:43
+
+织梦岛引擎宁可做公主新作都不出果实hd,我猜卡普空肯定在果实的版权上不做人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -573,3 +573,60 @@ atlus业界独一份<img src="https://static.saraba1st.com/image/smiley/animal20
 
 玩过无印了，不过你要送我复仇，我可以再玩一遍。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a11225lwq  
+##### 42#       发表于 2024-6-18 19:39
+
+以前玩过真女系列的老作品，对难度深有体会
+
+*****
+
+####  黑上シグマ  
+##### 43#       发表于 2024-6-18 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日亚绝赞炎上中，评价都在喷完全版商法
+
+*****
+
+####  starwarszjm  
+##### 44#       发表于 2024-6-18 19:41
+
+已经买了，哈哈atlus凯子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wowheyyy  
+##### 45#       发表于 2024-6-18 19:42
+
+买早了 还没空玩呢
+
+—— 来自 Xiaomi 23054RA19C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  极速再生  
+##### 46#       发表于 2024-6-18 19:44
+
+这次真不想买vv，以后也不会再给阿特拉斯的原版游戏送一分钱的
+
+*****
+
+####  RainbowSealife  
+##### 47#       发表于 2024-6-18 19:44
+
+仲魔设计有点意思
+
+*****
+
+####  猫沢  
+##### 48#       发表于 2024-6-18 19:44
+
+跑图挺舒服，找回了一点玩野炊时候的感觉。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

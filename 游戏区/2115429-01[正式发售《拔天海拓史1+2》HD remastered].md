@@ -1380,3 +1380,16 @@ https://al-gest.com/batenkaitos/baten-change/
 
 リマスター対応全般
 
+
+*****
+
+####  卡普空  
+##### 150#       发表于 2024-6-18 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278585&amp;ptid=2115429" target="_blank">qiyu1234 发表于 2024-6-18 08:55</a>
+
+按原作算是
+
+按移植开发的话，是logicalbeat(NS版及PC版）</blockquote>
+我还以为这游戏版权在任天堂呢
+

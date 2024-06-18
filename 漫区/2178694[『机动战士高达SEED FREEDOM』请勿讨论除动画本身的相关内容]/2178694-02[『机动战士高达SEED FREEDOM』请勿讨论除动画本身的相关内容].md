@@ -2605,3 +2605,16 @@ T：我不是，我没有，别乱说</blockquote>
 
 万代认为看种系的本来就不存在大脑这种东西，爽就行了
 
+
+*****
+
+####  pokemon最爱  
+##### 1695#       发表于 2024-6-18 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65275752&amp;ptid=2178694" target="_blank">super_uni 发表于 2024-6-17 22:16</a>
+
+不如指望基拉造出时光机回到seed最后集，开飞自飞盾挡枪然后暴揍神意，哎嘿电池机就是这么自信
+
+— from  ...</blockquote>
+都造时光机了肯定是直接带着中子干扰器阻止血染情人节啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

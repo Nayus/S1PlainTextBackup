@@ -3133,3 +3133,16 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 邪恶的人类想对猫猫做什么</blockquote>
 只是想让你给真由添几个真由的小奶猫罢了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1757#       发表于 2024-6-18 12:09
+
+[https://x.com/sugimoto_mi_ho_/status/1802140660109390039](https://x.com/sugimoto_mi_ho_/status/1802140660109390039)
+
+OPが…♡♡♡
+
+(河川敷とラストカットのユキまゆちゃんの原画描きました😊)
+<img src="https://p.sda1.dev/18/36f3c99c915a748a859334eabffb07d3/20240618_120851.jpg" referrerpolicy="no-referrer">
+

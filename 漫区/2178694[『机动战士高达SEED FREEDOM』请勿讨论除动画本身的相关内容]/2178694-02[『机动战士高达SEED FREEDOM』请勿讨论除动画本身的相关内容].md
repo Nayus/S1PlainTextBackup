@@ -2644,3 +2644,13 @@ T：我不是，我没有，别乱说</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gary76  
+##### 1697#       发表于 2024-6-18 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65284287&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-18 16:09</a>
+看了一下，在流媒体上映之后的中国评价，还有豆瓣评分，我怎么感觉如果在中国上映的话，可能票房可能也就在 ...</blockquote>
+一億也很強了，港澳上映了足足一個月，有1200萬票房已經破了紀錄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

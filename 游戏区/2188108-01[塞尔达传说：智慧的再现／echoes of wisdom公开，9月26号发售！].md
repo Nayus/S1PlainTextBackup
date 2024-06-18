@@ -400,3 +400,104 @@ Let's see who is real ZELDA
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  貓血発動機  
+##### 48#       发表于 2024-6-18 23:16
+
+当初就觉得织梦岛那套美术只做一作太可惜了，原来还憋了个大的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Waldeinsamkeit  
+##### 49#       发表于 2024-6-18 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290486&amp;ptid=2188108" target="_blank">KBAC 发表于 2024-6-18 23:15</a>
+可复制物品上的特效是倒三角，难道还会有双世界设定或者洛拉鲁相关的剧情？
+
+论坛助手,iPhone ...</blockquote>
+我也觉得还会有双世界设定，可惜今年你任不去科隆<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  厚乳果珍爽  
+##### 50#       发表于 2024-6-18 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塞尔达是河南人？
+
+*****
+
+####  moudianzi  
+##### 51#       发表于 2024-6-18 23:20
+
+之后如果有异世界区域，甚至能重新操控林克感觉也不奇怪（不然开头这段让人操作林克挥剑的流程就有点割裂了，又或者公主之后也能拿剑？亦或者这段是纯过场？）
+
+话说，《塞尔达传说》如果不能使用林克算不算一种宣传诈骗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tachikoma27  
+##### 52#       发表于 2024-6-18 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290048&amp;ptid=2188108" target="_blank">黑茶子 发表于 2024-6-18 22:51</a>
+
+看了演示后说实话有点失望，这复制物品的机制也不新鲜吧，甚至都没必要做成塞尔达传说
+
+—— 来自 S1Fun ...</blockquote>
+哈哈牛的，玩一辈子弓箭铁钩子才是塞尔达传说是吧
+
+*****
+
+####  5353  
+##### 53#       发表于 2024-6-18 23:21
+
+可能是双世界。
+
+一般塞尔达里穿过黑缝都会进入反转/黑暗世界。
+
+看着像走的众神2的模式。
+
+
+*****
+
+####  ace8848  
+##### 54#       发表于 2024-6-18 23:22
+
+塞尔达传说不能操控萨尔达都不算诈骗，不能操控林克怎么能算呢
+
+*****
+
+####  redsouris  
+##### 55#       发表于 2024-6-18 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290561&amp;ptid=2188108" target="_blank">moudianzi 发表于 2024-6-18 23:20</a>
+之后如果有异世界区域，甚至能重新操控林克感觉也不奇怪（不然开头这段让人操作林克挥剑的流程就有点割裂了 ...</blockquote>
+没事，后面估计可以复制一堆林克砍BOSS
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  糖然君  
+##### 56#       发表于 2024-6-18 23:23
+
+林克传说笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Linsdy  
+##### 57#       发表于 2024-6-18 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290048&amp;ptid=2188108" target="_blank">黑茶子 发表于 2024-6-18 22:51</a>
+看了演示后说实话有点失望，这复制物品的机制也不新鲜吧，甚至都没必要做成塞尔达传说
+
+—— 来自 S1Fun ...</blockquote>
+硬要这么说的话野炊王泪都没什么有意思的机制吧？主要还是期待能力与关卡设计水平交互如何，复制能力就是把2d塞的道具用另一种形式呈现出来而已
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

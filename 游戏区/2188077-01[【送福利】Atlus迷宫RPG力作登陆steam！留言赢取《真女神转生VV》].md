@@ -796,3 +796,18 @@ altus凯子 vv
 
 你送我我就不玩3了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  walfeds  
+##### 70#       发表于 2024-6-18 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯子就是我
+
+*****
+
+####  zero33333  
+##### 71#       发表于 2024-6-18 21:38
+
+游戏很好，但是贵了点
+

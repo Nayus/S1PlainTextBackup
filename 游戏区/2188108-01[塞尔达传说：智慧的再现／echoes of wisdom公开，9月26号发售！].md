@@ -1099,3 +1099,15 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 —— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  redsouris  
+##### 117#       发表于 2024-6-19 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291992&amp;ptid=2188108" target="_blank">vincent000011 发表于 2024-6-19 01:59</a>
+Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有没有什么伏笔</blockquote>
+因为大师剑还插在公主头上没修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

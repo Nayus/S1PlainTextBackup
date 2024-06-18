@@ -3103,3 +3103,11 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 
 棉签？直接人形态上手！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1754#       发表于 2024-6-18 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">邪恶的人类想对猫猫做什么
+

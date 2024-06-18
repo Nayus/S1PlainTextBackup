@@ -1075,3 +1075,15 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 —— 来自 vivo V2118A, An ...</blockquote>
 不至于我我看是藤林不想做
 
+
+*****
+
+####  岸波  
+##### 115#       发表于 2024-6-19 06:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292377&amp;ptid=2188108" target="_blank">_cvb_tassdar 发表于 2024-6-19 05:47</a>
+不至于我我看是藤林不想做</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

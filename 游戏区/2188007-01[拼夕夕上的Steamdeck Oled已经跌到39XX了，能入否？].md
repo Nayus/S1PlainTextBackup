@@ -440,3 +440,14 @@ STEAM OS更新会掉WIN的引导
 
 厕所最佳伴侣，买吧。
 
+
+*****
+
+####  busuji  
+##### 49#       发表于 2024-6-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65285196&amp;ptid=2188007" target="_blank">一杯悠茗 发表于 2024-6-18 17:18</a>
+
+借楼问一下SD打法环怎么设置比较好，我打下来帧数不是很稳定啊</blockquote>
+lcd版，540p锁45帧。oled版功耗效率高，大概能开得更高。
+

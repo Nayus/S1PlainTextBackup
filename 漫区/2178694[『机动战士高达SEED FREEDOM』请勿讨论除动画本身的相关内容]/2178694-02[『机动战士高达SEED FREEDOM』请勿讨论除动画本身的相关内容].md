@@ -2578,3 +2578,15 @@ T：我不是，我没有，别乱说</blockquote>
 — from  ...</blockquote>
 用什么飞自。非凡强袭自由可以在本体周围形成一个保球体，而且可以让对方的龙骑兵无效，你跟我说基拉在设计这个背包的时候没有被种大结局的时侯的那一件事影响我才不相信呢
 
+
+*****
+
+####  jedipiggy  
+##### 1693#       发表于 2024-6-18 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65247111&amp;ptid=2178694" target="_blank">查查沙拉 发表于 2024-6-15 18:42</a>
+
+种自后续急什么呢，本质玩具片，这次这么成功先卖十年塑料不成问题，等种自十周年再看看有什么新企划吧 ...</blockquote>
+
+万代和脸盆厂也就磨具不同罢了.jpg
+

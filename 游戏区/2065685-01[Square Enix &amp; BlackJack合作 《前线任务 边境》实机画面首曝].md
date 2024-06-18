@@ -1211,3 +1211,27 @@ se你个**。
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  abzoon  
+##### 112#       发表于 2024-6-18 12:49
+
+视频已经无了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  maninhole  
+##### 113#       发表于 2024-6-18 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65281667&amp;ptid=2065685" target="_blank">酷乐 发表于 2024-6-18 12:33</a>
+
+原来这个合作是这么黄的啊：
+
+https://www.bilibili.com/video/BV1a1421r7qg</blockquote>
+被删了
+
+这是啥内容啊？
+

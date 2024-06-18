@@ -18,3 +18,15 @@
 
 顺便，我另外3个职业加起来都没有20<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alann  
+##### 481#       发表于 2024-6-18 15:10
+
+<blockquote>杨千fa单推人 发表于 2024-6-18 14:57
+第一次进阶20撒花 
+
+顺便，我另外3个职业加起来都没有20</blockquote>
+看你前面两次摸牌好像特别喜欢白卡，不知道是在商店买的还是特殊事件拿的，如果买的真没必要。
+

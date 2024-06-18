@@ -126,3 +126,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">但婚戒真不如JGJ有用
 
+
+*****
+
+####  はちたや  
+##### 17949#       发表于 2024-6-18 15:02
+
+戒指都能拿来卖了，哎，看好夏天整大活
+

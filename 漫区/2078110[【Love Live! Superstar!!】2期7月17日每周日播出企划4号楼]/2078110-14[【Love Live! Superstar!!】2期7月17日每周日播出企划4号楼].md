@@ -1802,3 +1802,15 @@ pay下周的生日event夜场有线上
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 20340#       发表于 2024-6-18 16:06
+
+画香音啥时候可以把这个表情ban掉，实在难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可可可算是有张稍微能看的非纯商品绘了
+
+官绘一定要画这种瞬时动态是有什么考量吗，不理解啊，其它几个团也没一直这个方向吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

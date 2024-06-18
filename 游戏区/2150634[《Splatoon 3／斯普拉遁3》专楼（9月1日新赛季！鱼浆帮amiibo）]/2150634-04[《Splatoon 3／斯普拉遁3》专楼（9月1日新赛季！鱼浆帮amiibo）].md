@@ -3138,3 +3138,24 @@ max三岗过了，仍旧没有金
 没有是好事，有的话几乎必定是最终祭典</blockquote>
 没有延长更新，祭不祭典也无所谓了
 
+
+*****
+
+####  绿冰  
+##### 4750#         楼主| 发表于 2024-6-18 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290133&amp;ptid=2150634" target="_blank">oi99o 发表于 2024-6-18 22:54</a>
+
+没有延长更新，祭不祭典也无所谓了</blockquote>
+新赛季才半个多月，延长更新也不会这时候提啊233
+
+*****
+
+####  oi99o  
+##### 4751#       发表于 2024-6-18 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290228&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-6-18 23:01</a>
+
+新赛季才半个多月，延长更新也不会这时候提啊233</blockquote>
+这不是刚好能给人信心的时候吗，难道你要八月直接丢pv？
+

@@ -693,3 +693,28 @@ ATLUS可恶的完全版商法！……凑合过吧，还能离咋地
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">真女5v已经买了，爽玩中
 
+
+*****
+
+####  cuchulain2021  
+##### 57#       发表于 2024-6-18 20:37
+
+完全版商法确实难看
+
+—— 来自 OnePlus KB2000, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  还没到时候  
+##### 58#       发表于 2024-6-18 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">错译都是和公众号一样的
+
+*****
+
+####  kyoto2016  
+##### 59#       发表于 2024-6-18 20:43
+
+真女神转生VV？这名字取的...
+

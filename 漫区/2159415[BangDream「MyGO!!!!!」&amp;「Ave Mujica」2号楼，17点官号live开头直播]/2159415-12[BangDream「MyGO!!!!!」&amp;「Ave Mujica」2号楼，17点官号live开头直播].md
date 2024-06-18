@@ -15707,3 +15707,13 @@ NGA日常爆典</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  rikaren  
+##### 17569#       发表于 2024-6-18 20:36
+
+<blockquote>紫吹兰 发表于 2024-6-18 17:53
+这恶魔是真想不到是六花</blockquote>
+虽然觉得ako的话颜色个子不对，但是这个中二手势……太有迷惑性了
+

@@ -773,3 +773,26 @@ ATLUS可恶的完全版商法！……凑合过吧，还能离咋地
 
 altus凯子 vv
 
+
+*****
+
+####  DARKGRAY  
+##### 67#       发表于 2024-6-18 21:26
+
+还在观望，送就不用犹豫了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幻之妖精  
+##### 68#       发表于 2024-6-18 21:29
+
+好想玩真女神转生
+
+
+*****
+
+####  戏言学者  
+##### 69#       发表于 2024-6-18 21:32
+
+你送我我就不玩3了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

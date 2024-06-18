@@ -3072,3 +3072,15 @@ max三岗过了，仍旧没有金
 
 那直面会应该只有普通祭典了，后面再自己发最终祭典pv
 
+
+*****
+
+####  Linsdy  
+##### 4744#       发表于 2024-6-18 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65266054&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-6-17 09:20</a>
+现在啥情况感觉环境里多了不少贴牌针管和贴牌小绿，为啥龙卷风火起来了我看melon还把龙卷风排的好高 ...</blockquote>
+本质是丢雷怪想换个武器玩了，好雷好大招，完美契合后排小枪的所有欲望，刚匹到一个后排贴牌针管，还在气头上呢
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

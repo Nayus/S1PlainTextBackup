@@ -2501,3 +2501,45 @@ plant的體制不是早就說了是影射蘇聯</blockquote>
 
 原本全新设计的飞升自由和不朽正义才是终战用机，强自和无正才是前期被击毁的，后来福田夫妇觉得太传统，就把新机弱化放前面，旧机换背包放后面
 
+
+*****
+
+####  死难者23er  
+##### 1687#       发表于 2024-6-18 10:33
+
+在基拉堕入黑暗的时候，居然出现了一个只有芙蕾见过的克鲁泽的画面，说不定当时她真的尝试阻止了，但是失败了
+
+<img src="https://img.saraba1st.com/forum/202406/18/103301ntfnu5zgftgdcrfu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2353.jpeg</strong> (89.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 10:33 上传
+
+*****
+
+####  月夜凝雪  
+##### 1688#       发表于 2024-6-18 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65276814&amp;ptid=2178694" target="_blank">司空怜 发表于 2024-6-18 00:02</a>
+原本全新设计的飞升自由和不朽正义才是终战用机，强自和无正才是前期被击毁的，后来福田夫妇觉得太传统， ...</blockquote>
+难道不是因为机体人气？
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  月夜凝雪  
+##### 1689#       发表于 2024-6-18 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65275769&amp;ptid=2178694" target="_blank">zoe2 发表于 2024-6-17 22:17</a>
+这几年机战原创主角也大多是这种加背包加翅膀模式，吐了···</blockquote>
+V：我不是，我没有，别乱说
+X：我不是，我没有，别乱说
+T：我不是，我没有，别乱说
+
+30：......
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

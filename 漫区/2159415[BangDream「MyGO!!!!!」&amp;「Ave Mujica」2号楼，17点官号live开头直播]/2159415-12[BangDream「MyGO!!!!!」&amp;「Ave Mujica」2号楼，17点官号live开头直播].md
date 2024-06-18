@@ -15651,3 +15651,28 @@ NGA日常爆典<img src="https://static.saraba1st.com/image/smiley/face2017/004.
 NGA日常爆典</blockquote>
 说法确实很过分，但既然选择了这样的方式就不要再要求什么同情、不要强求别人的认可我倒是同意的
 
+
+*****
+
+####  御幸一也  
+##### 17564#       发表于 2024-6-18 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65286911&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-6-18 19:31</a>
+
+NGA日常爆典</blockquote>
+有點太典中典了兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看太多這類型智障我感覺我都免疫了
+
+*****
+
+####  鳥栖朝  
+##### 17565#       发表于 2024-6-18 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65287360&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-06-18 20:05:27</a>
+有點太典中典了兄弟
+
+看太多這類型智障我感覺我都免疫了</blockquote>联系ta推就更典了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

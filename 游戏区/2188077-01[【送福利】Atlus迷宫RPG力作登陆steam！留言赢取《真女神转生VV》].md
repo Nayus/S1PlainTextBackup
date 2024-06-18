@@ -811,3 +811,44 @@ altus凯子 vv
 
 游戏很好，但是贵了点
 
+
+*****
+
+####  烛火z  
+##### 72#       发表于 2024-6-18 21:48
+
+年轻人的第一款smt，沟槽的阿特拉斯，早知道有完全版之前就不买了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈尼马甲  
+##### 73#       发表于 2024-6-18 21:48
+
+排一个呢
+
+—— 来自 OnePlus PJF110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Quelaan  
+##### 74#       发表于 2024-6-18 21:51
+
+虽然我无印版只打了一半，真抽到了还是要玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  busuji  
+##### 75#       发表于 2024-6-18 21:51
+
+还真是VV，我以为多打了字<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angela5d30  
+##### 76#       发表于 2024-6-18 21:56
+
+聽過這遊戲(好像還有衍生動畫片來著?)，可沒玩過，中獎就玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Xiaomi M2012K10C, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

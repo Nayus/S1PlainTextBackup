@@ -883,3 +883,13 @@ altus凯子 vv
 
 参与一下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 81#       发表于 2024-6-18 22:38
+
+有一说一，这次SMTVV的威力加强版隔了这么久才出，新加的复仇女神线也没比创世女神线高到哪去，到底还是个玩法为中心的游戏
+
+而这玩法也没变化啊，不知道为啥突然有人开始吹了，不懂啊不懂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

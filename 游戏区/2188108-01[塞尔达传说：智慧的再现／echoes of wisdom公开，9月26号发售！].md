@@ -585,3 +585,95 @@ Let's see who is real ZELDA
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  beer  
+##### 66#       发表于 2024-6-18 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290655&amp;ptid=2188108" target="_blank">downnote 发表于 2024-6-18 23:27</a>
+2D里面有出现过右边这个种族么？</blockquote>
+这一堆都是佐拉，丑的是淡水佐拉，好看的是咸水佐拉
+
+*****
+
+####  redsouris  
+##### 67#       发表于 2024-6-18 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290655&amp;ptid=2188108" target="_blank">downnote 发表于 2024-6-18 23:27</a>
+2D里面有出现过右边这个种族么？</blockquote>
+大概也是卓拉族的分支吧，鱼和鱼差别很大的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KBAC  
+##### 68#       发表于 2024-6-18 23:37
+
+开局拿复制法杖的时候公主在监狱里，而且公主全程戴斗篷，盲猜一个城堡被假公主占了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  760194962  
+##### 69#       发表于 2024-6-18 23:37
+
+屁股是不喜歡TotK
+
+但好在它是塞爾達，下一部永遠值得期待
+
+*****
+
+####  a317216007  
+##### 70#       发表于 2024-6-18 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290798&amp;ptid=2188108" target="_blank">KBAC 发表于 2024-6-18 23:37</a>
+
+开局拿复制法杖的时候公主在监狱里，而且公主全程戴斗篷，盲猜一个城堡被假公主占了
+
+论坛助手,iPhone ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖农，你又变身成公主是嘛？
+
+*****
+
+####  Sherlock08  
+##### 71#       发表于 2024-6-18 23:39
+
+终于把林克这个偷戏小子踹下去了，正统塞尔达传说，降临！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sza  
+##### 72#       发表于 2024-6-18 23:41
+
+PV的玩法看上去很有意思
+
+*****
+
+####  KBAC  
+##### 73#       发表于 2024-6-18 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290655&amp;ptid=2188108" target="_blank">downnote 发表于 2024-6-18 23:27</a>
+2D里面有出现过右边这个种族么？</blockquote>
+两种卓拉对线倒是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  downnote  
+##### 74#       发表于 2024-6-18 23:42
+
+ 本帖最后由 downnote 于 2024-6-18 23:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290780&amp;ptid=2188108" target="_blank">beer 发表于 2024-6-18 23:36</a>
+
+这一堆都是佐拉，丑的是淡水佐拉，好看的是咸水佐拉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">居然有这种咸淡的分法么
+
+刚我又去看了一下历代佐拉视频，2D一开始就是左边的绿色丑八怪，不过时空大地的时候是右边这种（应该是随着时之笛的大流改的），后来三角力量2又变回去了。
+
+不过时空大地因为看着比较正常反而没有记忆点，所以印象里面都被绿色怪物占据，一下子都想不起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+

@@ -947,3 +947,18 @@ smt5无印受害者 完全版确实全方位加强
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  近月  
+##### 88#       发表于 2024-6-18 23:40
+
+还好没买原版<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 89#       发表于 2024-6-18 23:43
+
+当个分母，但是就算中了也没空玩。
+

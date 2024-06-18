@@ -677,3 +677,39 @@ PV的玩法看上去很有意思
 
 不过时空大地因为看着比较正常反而没有记忆点，所以印象里面都被绿色怪物占据，一下子都想不起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  COLEETE  
+##### 75#       发表于 2024-6-18 23:47
+
+右边是佐拉的话 左边当然是佑拉
+
+
+*****
+
+####  TKD53  
+##### 76#       发表于 2024-6-18 23:51
+
+这种系统的谜题，做得好会和好玩，做的不好就会很拉...
+
+*****
+
+####  Hyst3r1a  
+##### 77#       发表于 2024-6-18 23:51
+
+塞尔达: 让我看看救个人要多久
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  鹅大人  
+##### 78#       发表于 2024-6-18 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65289956&amp;ptid=2188108" target="_blank">king520kyo 发表于 2024-6-18 22:47</a>
+公主随手拿起大石头砸怪 林克可做不到 其实就是在演 我看力量三角应该给公主 ...</blockquote>
+不都是得靠力量手镯吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

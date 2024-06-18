@@ -381,3 +381,18 @@ STEAM OS更新会掉WIN的引导
 
 顺便OLED版的WIN蓝牙驱动还是没出
 
+
+*****
+
+####  5353  
+##### 43#       发表于 2024-6-18 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65284242&amp;ptid=2188007" target="_blank">Megum1N 发表于 2024-6-18 16:06</a>
+
+好奇问一下为什么装win半残，想在海鲜市场入一台改好双系统的省的自己折腾
+
+改装硬盘和系统会和纯原有什么 ...</blockquote>
+别搞双系统，真的不稳定。
+
+我的上次彻底崩了直接格式化了。
+

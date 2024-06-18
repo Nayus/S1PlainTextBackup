@@ -11460,3 +11460,14 @@ NICO这时候死了太可惜了，看不到SC超越星团2期成为偶像动画�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学mas所有在流媒体的歌混音是不是有点问题啊，我更喜欢游戏里的TE版本
 
+
+*****
+
+####  screeper  
+##### 5511#       发表于 2024-6-19 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291740&amp;ptid=2130897" target="_blank">840266848 发表于 2024-6-19 01:12</a>
+
+学mas所有在流媒体的歌混音是不是有点问题啊，我更喜欢游戏里的TE版本</blockquote>
+mora上面卖的hires版也是混得一坨，有种电音部混多了不会混正常jpop的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

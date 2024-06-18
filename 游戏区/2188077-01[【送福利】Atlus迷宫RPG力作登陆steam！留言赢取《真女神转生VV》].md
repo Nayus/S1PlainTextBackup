@@ -630,3 +630,19 @@ atlus业界独一份<img src="https://static.saraba1st.com/image/smiley/animal20
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  希克苏鲁伯  
+##### 49#       发表于 2024-6-18 19:51
+
+看法就是刚出的时候就感觉会有完全版，这下可算等到了
+
+
+*****
+
+####  hsyg  
+##### 50#       发表于 2024-6-18 19:56
+
+只是想吐槽迷宫RPG……
+

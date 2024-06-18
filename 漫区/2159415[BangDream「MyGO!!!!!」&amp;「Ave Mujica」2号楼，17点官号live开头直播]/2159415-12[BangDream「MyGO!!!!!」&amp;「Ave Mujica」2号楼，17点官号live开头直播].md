@@ -15640,3 +15640,14 @@ NGA日常爆典<img src="https://static.saraba1st.com/image/smiley/face2017/004.
 
 哪怕我说了“仅仅只是家道中落/畜生行为/**”你也不能反驳哦，反驳就是“极端/看二创看的”，总之“祥厨闹麻了”，无敌了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 17563#       发表于 2024-6-18 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65286911&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-6-18 19:31</a>
+
+NGA日常爆典</blockquote>
+说法确实很过分，但既然选择了这样的方式就不要再要求什么同情、不要强求别人的认可我倒是同意的
+

@@ -1045,3 +1045,13 @@ vv兄弟买了入了家庭库这两天看他疯狂在肝，应该挺好玩的，
 
 —— 来自 HONOR MAG-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  魂斗罗  
+##### 100#       发表于 2024-6-19 01:55
+
+游戏好，atlus坏
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

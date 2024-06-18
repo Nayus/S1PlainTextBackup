@@ -3122,3 +3122,14 @@ OP里猫组的画面多了几处，基本可以认为小雪态度软化（=没�
 邪恶的人类想对猫猫做什么</blockquote>
 这明明是想让你和真由的关系更好啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1756#       发表于 2024-6-18 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65278792&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-6-18 09:10</a>
+
+邪恶的人类想对猫猫做什么</blockquote>
+只是想让你给真由添几个真由的小奶猫罢了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

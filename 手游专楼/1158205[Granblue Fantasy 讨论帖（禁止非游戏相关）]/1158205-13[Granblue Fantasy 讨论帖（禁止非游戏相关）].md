@@ -110,3 +110,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必得送婚戒.................感觉不如蓝纸沙漏ffj
 
+
+*****
+
+####  アンリエット  
+##### 17947#       发表于 2024-6-18 11:44
+
+婚戒作为不可再生的限量道具还是比ffj和沙漏强的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

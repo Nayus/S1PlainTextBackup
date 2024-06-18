@@ -2689,3 +2689,39 @@ T：我不是，我没有，别乱说</blockquote>
 
 不过典型的后附设定了，之前是针对克队这一支的基因缺陷开发的抑制剂，现在说这神药其实能在不影响思维和寿命的前提下返老还童？那PLANT那边高层应该没有老头老太才对<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1701#       发表于 2024-6-18 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290146&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-6-18 22:56</a>
+
+克队要素+1
+
+不过典型的后附设定了，之前是针对克队这一支的基因缺陷开发的抑制剂，现在说这神药其实能在 ...</blockquote>
+loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开发的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+但是实际开发未完成，loliBBA被药泼了一身后痛苦了几个月变回的小孩而且从此之后不再长大了，而且从剧场版那个歇斯底里的表现看也很难说是不是不影响思维（
+
+*****
+
+####  cxj649  
+##### 1702#       发表于 2024-6-18 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290146&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-6-18 22:56</a>
+
+克队要素+1
+
+不过典型的后附设定了，之前是针对克队这一支的基因缺陷开发的抑制剂，现在说这神药其实能在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真别说，伊妈外貌和声音比TV版年轻点
+
+*****
+
+####  gundammarkⅡ  
+##### 1703#       发表于 2024-6-18 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65286860&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-6-18 19:26</a>
+这接口</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说起来，无正贰裸机的背面机设图是不是还没有？
+

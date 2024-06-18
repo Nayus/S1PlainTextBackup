@@ -3159,3 +3159,14 @@ max三岗过了，仍旧没有金
 新赛季才半个多月，延长更新也不会这时候提啊233</blockquote>
 这不是刚好能给人信心的时候吗，难道你要八月直接丢pv？
 
+
+*****
+
+####  绿冰  
+##### 4752#         楼主| 发表于 2024-6-18 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290285&amp;ptid=2150634" target="_blank">oi99o 发表于 2024-6-18 23:04</a>
+
+这不是刚好能给人信心的时候吗，难道你要八月直接丢pv？</blockquote>
+那是叫人这赛季别玩了等下赛季啊233
+

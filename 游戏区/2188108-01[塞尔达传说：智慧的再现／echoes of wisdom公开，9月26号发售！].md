@@ -1,0 +1,402 @@
+﻿
+*****
+
+####  医生狼多  
+##### 1#       楼主       发表于 2024-6-18 22:30
+
+ 本帖最后由 医生狼多 于 2024-6-18 23:09 编辑 
+
+塞尔达主控，这下真塞尔达传说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/a392243429703a8db74904fe3765613d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 2#       发表于 2024-6-18 22:31
+
+ 本帖最后由 Piano-Forest 于 2024-6-18 22:50 编辑 
+
+PV：[https://youtu.be/wYe-Otw2VBM](https://youtu.be/wYe-Otw2VBM)
+
+9月26日发售
+<img src="https://p.sda1.dev/18/809dcf6ba259498bdcf665e99358b4c5/20240618_224621.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  makiRicardo  
+##### 3#       发表于 2024-6-18 22:31
+
+急急急急急急怎么还有3个月
+
+*****
+
+####  woui003woui  
+##### 4#       发表于 2024-6-18 22:32
+
+正版塞尔达传说来了<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买爆
+
+*****
+
+####  医生狼多  
+##### 5#         楼主| 发表于 2024-6-18 22:32
+
+限定版nsl926发售<img src="https://p.sda1.dev/18/b1d1cfaa2ec0079aceab07c196310990/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  电磁炮233  
+##### 6#       发表于 2024-6-18 22:32
+
+把火纹的回声偷了是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  我在干什么啊  
+##### 7#       发表于 2024-6-18 22:33
+
+牢林能打赢复活赛吗
+
+*****
+
+####  topia  
+##### 8#       发表于 2024-6-18 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/218.png" referrerpolicy="no-referrer">：终于轮到我当公主了
+
+*****
+
+####  口袋子  
+##### 9#       发表于 2024-6-18 22:34
+
+这下林克传说了<img src="https://static.saraba1st.com/image/smiley/carton2017/218.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR ELZ-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  八宫めぐる  
+##### 10#       发表于 2024-6-18 22:34
+
+我早就觉得林可菜了
+
+*****
+
+####  plok201  
+##### 11#       发表于 2024-6-18 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">塞尔达传说的主角一定是塞尔达吧，还真是
+
+这游戏的召唤系统看着好有趣啊
+
+*****
+
+####  moudianzi  
+##### 12#       发表于 2024-6-18 22:40
+
+演示里公主（似乎）不会用剑，但是能举起石头砸怪<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thez  
+##### 13#       发表于 2024-6-18 22:44
+
+王泪+宝可梦+动森的感觉
+
+*****
+
+####  holomoon  
+##### 14#       发表于 2024-6-18 22:44
+
+林克，看好了，拯救世界应该是这个姿势
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 15#       发表于 2024-6-18 22:45
+
+林克：我觉得老婆性能比我强，她怕不是一直在演我<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  敏感词好多  
+##### 16#       发表于 2024-6-18 22:46
+
+ns最后还真给了个2d塞啊，原谅古川了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冷泉夜月  
+##### 17#       发表于 2024-6-18 22:46
+
+选菜单用品那里一股王泪感哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  一个陆仁贾  
+##### 18#       发表于 2024-6-18 22:46
+
+看起来解谜会有多种解法，这方面跟野炊王泪一样
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  aiyouo  
+##### 19#       发表于 2024-6-18 22:46
+
+真的有新的2d，爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  king520kyo  
+##### 20#       发表于 2024-6-18 22:47
+
+公主随手拿起大石头砸怪 林克可做不到 其实就是在演 我看力量三角应该给公主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dxx9665  
+##### 21#       发表于 2024-6-18 22:47
+
+还能招小怪帮忙打
+
+*****
+
+####  VVhaleVoice  
+##### 22#       发表于 2024-6-18 22:47
+
+太牛拉！！！！！！
+
+*****
+
+####  黑茶子  
+##### 23#       发表于 2024-6-18 22:48
+
+看了演示后说实话有点失望，这复制物品的机制也不新鲜吧，甚至都没必要做成塞尔达传说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuarwbwe  
+##### 24#       发表于 2024-6-18 22:49
+
+我急了，现在新2d塞和老头环dlc是我今年最期待的俩游戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hhgjf  
+##### 25#       发表于 2024-6-18 22:49
+
+一坨ND里的唯一亮点 (论重要性MP4更高,但过于中规中矩缺乏令人眼前一亮的东西)
+
+*****
+
+####  a317216007  
+##### 26#       发表于 2024-6-18 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实就是蓝图+制冰+究极手
+
+*****
+
+####  SuNR1sE364  
+##### 27#       发表于 2024-6-18 22:50
+
+没有用的林克已经被优化了<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 28#       发表于 2024-6-18 22:50
+
+我开始怀疑这游戏是amiibo 地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑茶子  
+##### 29#       发表于 2024-6-18 22:51
+
+看了演示后说实话有点失望，这复制物品的机制也不新鲜吧，甚至都没必要做成塞尔达传说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  redfea  
+##### 30#       发表于 2024-6-18 22:51
+
+塞尔达：是时候让你们看看我和加农大战一百年的实力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Racyjackman  
+##### 31#       发表于 2024-6-18 22:54
+
+<img src="https://img.saraba1st.com/forum/202406/18/225354a5onuunljn25z7em.jpg" referrerpolicy="no-referrer">
+
+<strong>N%F{Q1IJ3S5XIFJ0LGJ)~6I.jpg</strong> (7.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-18 22:53 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 彬噜| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  杜微  
+##### 32#       发表于 2024-6-18 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们别这样，林克还在宣传里摆pose呢
+
+*****
+
+####  seki_m  
+##### 33#       发表于 2024-6-18 23:00
+
+Let's see who is real ZELDA
+
+*****
+
+####  Junakr  
+##### 34#       发表于 2024-6-18 23:00
+
+查了下以前 CD-i 上不被承认的以塞尔达当主角的两个黑历史作，Zelda: The Wand of Gamelon、Zelda's Adventure。
+
+新作日语副标题是「知恵のかりもの」，有种借东西的小人感（青沼又薅宫崎骏（不是。
+
+*****
+
+####  nunotenn  
+##### 35#       发表于 2024-6-18 23:01
+
+不知道中文翻成啥
+我先来贡献一个标题翻译
+塞尔达传说：集智姬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛罗伦萨  
+##### 36#       发表于 2024-6-18 23:05
+
+等港任确定中文标题了 
+
+这游戏一下子实现了三个愿望：操控塞尔达，2D塞时隔11年新作，织梦岛画风再用
+
+*****
+
+####  nancygreenlife  
+##### 37#       发表于 2024-6-18 23:06
+
+直接开始度日如年了
+
+*****
+
+####  heseran  
+##### 38#       发表于 2024-6-18 23:07
+
+有些人要求真高。。。。这还不行啊
+
+*****
+
+####  医生狼多  
+##### 39#         楼主| 发表于 2024-6-18 23:09
+
+《薩爾達傳說 智慧的再現》的最新資訊公開！本作預定於2024年9月26日（四）發售。
+由薩爾達公主擔任主角的「薩爾達傳說」系列最新作品《薩爾達傳說 智慧的再現》，預定於9月26日（四）發售。
+
+廣大的海拉魯各地出現了不明裂縫，並且引發將人與物體吞沒的「神隱」現象。劍士林克也因遭到神隱而失去蹤跡。
+
+倖存的薩爾達公主遇見了妖精「托力」，並從他那裡得到不可思議的魔杖「托力之杖」。為了拯救人民與林克，薩爾達公主與托力攜手踏上了海拉魯巡迴之旅。
+
+薩爾達公主可藉由托力之杖的力量使出「複製」之力，以此複製海拉魯中各式各樣的物品。例如桌子、木箱、床等等。
+
+任何東西只要複製過一次，隨時隨地都能再現。舉例來說，只要做出一張桌子來製造高低差，就能跳過擋住去路的懸崖。
+
+與海拉魯中的怪物戰鬥時，也能活用複製的力量。不僅可以複製出石頭之類的東西扔向敵人進行攻擊，還能複製出怪物，讓他們代替薩爾達公主戰鬥。由於必須依照狀況與屬性選擇適合的怪物，在戰鬥中如何活用智慧制定戰略就成了關鍵所在。
+
+除了戰鬥之外，還可以借助飛行怪物的力量進行空中滑翔、使用炎系怪物燃燒草木等等，為薩爾達公主的冒險提供各式各樣的支援。
+
+複製品的種類繁多，面對阻擋前路的謎題和魔物，要使用哪種複製品以及如何使用，全都交由玩家作主。不同的選擇與判斷會產生不一樣的攻略方式，這就是《智慧的再現》要呈現給大家的冒險。
+
+失去林克的海拉魯世界，命運全掌握在薩爾達公主手中。《薩爾達傳說 智慧的再現》預定於2024年9月26日（四）發售。
+
+*****
+
+####  chizuru  
+##### 40#       发表于 2024-6-18 23:09
+
+还有人觉得不牛逼吗？织梦岛拦路的树现在都可以搭东西越过去了。这就是王泪自由解题思路的延续。看来新机上的作品也是这思路了 
+
+
+*****
+
+####  leonlink  
+##### 41#       发表于 2024-6-18 23:10
+
+好像神驱化剑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lilod  
+##### 42#       发表于 2024-6-18 23:11
+
+是林克传说
+
+*****
+
+####  凉良  
+##### 43#       发表于 2024-6-18 23:12
+
+为什么不叫林克传说
+
+*****
+
+####  Tachikoma88  
+##### 44#       发表于 2024-6-18 23:14
+
+发售日期定在9月可能是想在新机发布会前再赚一笔限定lite的钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junakr  
+##### 45#       发表于 2024-6-18 23:15
+
+知道老任有多看重王泪的复制 Bug 了（不是。
+
+借东西的小人中拿走别人的东西用的也是借り物（かりもの）。
+
+借东西的塞尔达就挺好（不。
+
+*****
+
+####  tsubasa9  
+##### 46#       发表于 2024-6-18 23:15
+
+织梦岛引擎重制2d塞多来几个，爱玩
+
+*****
+
+####  KBAC  
+##### 47#       发表于 2024-6-18 23:15
+
+可复制物品上的特效是倒三角，难道还会有双世界？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

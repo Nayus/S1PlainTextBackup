@@ -15605,3 +15605,12 @@ mujica 2nd第二场同时也是日本那边的七夕吧
 
 不是不行，总之先整点新歌给大家听听看。
 
+
+*****
+
+####  紫吹兰  
+##### 17559#         楼主| 发表于 2024-6-18 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65282805&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-18 14:16</a></blockquote>
+这恶魔是真想不到是六花<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+

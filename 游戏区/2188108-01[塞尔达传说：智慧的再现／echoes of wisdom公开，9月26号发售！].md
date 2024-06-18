@@ -1049,3 +1049,16 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  _cvb_tassdar  
+##### 113#       发表于 2024-6-19 05:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291608&amp;ptid=2188108" target="_blank">Junakr 发表于 2024-6-19 00:52</a>
+
+随手做了张梗图……大概会期待游戏中出现这么一幕（牢克，你来辣（不。
+
+ ...</blockquote>
+我感觉后期真会有啊
+

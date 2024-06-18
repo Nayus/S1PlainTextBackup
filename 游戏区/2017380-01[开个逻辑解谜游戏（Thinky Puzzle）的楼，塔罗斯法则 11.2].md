@@ -74,3 +74,11 @@ beans 难度高点，后面复杂的谜题想一中午都不一定能过一关�
 
 leap year 小而精的知识锁神作，1个半小时左右的游戏时长，建议都去玩玩
 
+
+*****
+
+####  Junakr  
+##### 211#       发表于 2024-6-18 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">才发现 14 种扫雷变体 2 不支持 Mac，别啊一代都支持的呀。
+

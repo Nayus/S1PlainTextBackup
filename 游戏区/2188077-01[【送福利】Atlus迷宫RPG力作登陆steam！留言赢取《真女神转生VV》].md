@@ -1035,3 +1035,13 @@ sd玩真的很爽，ns玩过无印，卡的不行，玩的头痛
 
 只是想看看阿特拉斯能拉到什么地步罢了
 
+
+*****
+
+####  焚舟  
+##### 99#       发表于 2024-6-19 01:32
+
+vv兄弟买了入了家庭库这两天看他疯狂在肝，应该挺好玩的，杉果娘抽我呀<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR MAG-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

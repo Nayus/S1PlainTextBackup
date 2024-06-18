@@ -924,3 +924,46 @@ PV的玩法看上去很有意思
 
 最主要的还是希望务必做难一点，既然没重置果实，至少难度向果实2作看齐
 
+
+*****
+
+####  chdhdhd  
+##### 102#       发表于 2024-6-19 01:34
+
+ 本帖最后由 chdhdhd 于 2024-6-19 01:37 编辑 
+<blockquote>downnote 发表于 2024-6-18 23:27
+2D里面有出现过右边这个种族么？</blockquote>
+有的，不可思议果实时空之章有时之笛式佐拉，并且传统2d佐拉也有登场，确定两种都是佐拉族
+
+而且如前面回复所说，本作设定是海洋族和湖泊河流的不同亚种，海洋佐拉还会说自己更温和知性之类的，和河流佐拉差不多是怪物不同
+
+<img src="https://img.saraba1st.com/forum/202406/19/013116c4u44hav4h472wkk.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1718731842644.jpg</strong> (331.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 01:31 上传
+
+*****
+
+####  努斯万克  
+##### 103#       发表于 2024-6-19 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291794&amp;ptid=2188108" target="_blank">KBAC 发表于 2024-6-19 01:21</a>
+
+似乎不可思议的果实里也出现过两种卓拉，那这次就不是两种卓拉第一次同时出现。
+
+论坛助手,iPhone ...</blockquote>
+时空之章的海水卓拉和河水卓拉（怪物）
+
+*****
+
+####  Linkwjj  
+##### 104#       发表于 2024-6-19 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65289956&amp;ptid=2188108" target="_blank">king520kyo 发表于 2024-6-18 22:47</a>
+
+公主随手拿起大石头砸怪 林克可做不到 其实就是在演 我看力量三角应该给公主 ...</blockquote>
+虽然但是，三角力量从来都是公主的，就算分裂也有公主一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1062,3 +1062,16 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
  ...</blockquote>
 我感觉后期真会有啊
 
+
+*****
+
+####  _cvb_tassdar  
+##### 114#       发表于 2024-6-19 05:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292319&amp;ptid=2188108" target="_blank">岸波 发表于 2024-6-19 04:43</a>
+
+织梦岛引擎宁可做公主新作都不出果实hd,我猜卡普空肯定在果实的版权上不做人了
+
+—— 来自 vivo V2118A, An ...</blockquote>
+不至于我我看是藤林不想做
+

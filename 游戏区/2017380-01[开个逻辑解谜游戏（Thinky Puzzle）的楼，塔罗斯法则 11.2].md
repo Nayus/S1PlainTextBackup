@@ -25,3 +25,11 @@ mind over magnet的demo实在是太休闲了点，10分钟就打完了，我估�
 搭车问talos 1  2 区别大么？
 1买了一直没玩 2试了试开头和1差不多
 
+
+*****
+
+####  dustyy  
+##### 206#       发表于 2024-6-18 10:03
+
+想买一个午休玩， bean and nothingness和can of wormholes哪个比较推荐哇
+

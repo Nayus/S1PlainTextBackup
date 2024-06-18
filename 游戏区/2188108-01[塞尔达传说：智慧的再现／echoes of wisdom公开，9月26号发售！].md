@@ -1009,3 +1009,14 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有没有什么伏笔</blockquote>
 不会是后面剧情里有公主给林克送大师剑吧
 
+
+*****
+
+####  灰狼  
+##### 109#       发表于 2024-6-19 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291911&amp;ptid=2188108" target="_blank">macongju1 发表于 2024-6-19 01:43</a>
+
+这下2d塞尔达也往高自由度发展了，怎么有一点创世小玩家即视感</blockquote>
+我也觉得
+

@@ -3084,3 +3084,11 @@ max三岗过了，仍旧没有金
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  绝望队长  
+##### 4745#       发表于 2024-6-18 11:13
+
+最近怎么涂地高PING怪那么多啊
+

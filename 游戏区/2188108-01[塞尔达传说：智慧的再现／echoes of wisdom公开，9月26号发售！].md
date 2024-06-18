@@ -1087,3 +1087,15 @@ Pv开头林克带了海利亚盾，但是没拿大师剑，不知道剧情上有
 
 —— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  岸波  
+##### 116#       发表于 2024-6-19 06:07
+
+ 本帖最后由 岸波 于 2024-6-19 06:09 编辑 
+
+能复制怪物的话，总觉得游戏末期说不定连盖农都能复制（怎么有点奥德赛最终关那意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

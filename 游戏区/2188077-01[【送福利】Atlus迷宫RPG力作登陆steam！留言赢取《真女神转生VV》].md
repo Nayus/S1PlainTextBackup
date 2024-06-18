@@ -1055,3 +1055,13 @@ vv兄弟买了入了家庭库这两天看他疯狂在肝，应该挺好玩的，
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yuyi00  
+##### 101#       发表于 2024-6-19 02:37
+
+100，吉利
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

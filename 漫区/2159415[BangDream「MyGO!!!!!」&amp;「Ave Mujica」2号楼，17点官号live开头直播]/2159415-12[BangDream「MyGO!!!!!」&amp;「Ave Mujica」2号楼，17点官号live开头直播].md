@@ -16249,3 +16249,71 @@ go吧更是随机刷新各路高手，上个月就看到个骂赛博小祥写的
 nga专楼环境还不错，走廊就别想了，随机刷新梗小鬼和引战的（上次有个莫名其妙拉踩gbc和水母的楼，楼主查成 ...</blockquote>
 群猩闪耀之时
 
+
+*****
+
+####  rikaren  
+##### 17623#       发表于 2024-6-20 00:30
+
+赛博小祥我是听说有乐队成员fd/xd类似行为的时候就感觉不对劲，这玩意要写哪怕你套个赛博世界观也很不对，尤其和原人设比起来，哪怕是小白，除了烂梗小鬼也没人会觉得小白会做出这种事吧。
+
+*****
+
+####  PDQ4  
+##### 17624#       发表于 2024-6-20 00:30
+
+其实想看祥子破防捶地哭甚至永世不得翻身可以直说的，没必要叠和解的甲，真品鉴够多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+明年不知道是小鬼互骂还是倒批官方冲绫奈，这口流量wsd可要接好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17625#       发表于 2024-6-20 00:30
+
+nga专楼和你楼唯一的共同点就是日常在骂go吧那些整天想着复辟然后踩一脚狗团/鸡团感情不好的c团姨姥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 17626#       发表于 2024-6-20 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304976&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-20 00:17</a>
+讲道理赛博祥子那文前期祥子把mygo成员整死整残的时候叫好的还是很多的，后面祥子人设开始朝唐三看齐了才大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪杀爱音那章随便拉个没看过文的路人都难蚌，逻辑一塌糊涂，上一章刚跑路下一章抽了风突然杀爱音，活该被炎上。不过后面作者不发病了，读者发病了，soyo刚出来就喊要被当垫脚石了，看得出来是比作者还想让狗团当垫脚石，起码我是没看出soyo哪里被当垫脚石了，连对线的机会都没有，自己搞了事还得让睦头拉一把呢
+
+*****
+
+####  skives10  
+##### 17627#       发表于 2024-6-20 00:32
+
+上了b站正版可能还要喜提小鬼刷低分待遇呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 17628#       发表于 2024-6-20 00:34
+
+说个假的，假设wsd真让c团复活，剩下5个重新组团，然后圣青木担任键盘位，那新团的三次颜值真可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17629#       发表于 2024-6-20 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我还处在劝良家放下自尊下海，圣**/白月光救风尘的版本
+
+现在版本已经到10年前韩剧的剧情，都有受伤了，那车祸癌症有没有啊
+
+*****
+
+####  rikaren  
+##### 17630#       发表于 2024-6-20 00:37
+
+<blockquote>相坂君 发表于 2024-6-20 00:35
+我还处在劝良家放下自尊下海，圣**/白月光救风尘的版本
+
+现在版本已经到10年前韩剧的剧情，都有受伤了，那车 ...</blockquote>
+nga走廊之前盛产的“劲”二创不是死人都一大堆吗？
+

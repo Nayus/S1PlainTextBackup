@@ -1313,3 +1313,29 @@ QQ图片20240619090804.jpg
 
 希望这次转场景的时候别再掉帧了，时隔许久的2D作品我很期待的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 138#       发表于 2024-6-19 09:55
+
+众神1的地图啊，那兔子林克是不是能登场了
+
+*****
+
+####  kuarwbwe  
+##### 139#       发表于 2024-6-19 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293263&amp;ptid=2188108" target="_blank">ParukiaMKII 发表于 2024-6-19 09:08</a>
+
+地图好像和众神的地图都对应的上</blockquote>
+不会是把众神的地图重制一下放上来吧。那估计又要被人说是dlc了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bird-lay  
+##### 140#       发表于 2024-6-19 10:01
+
+虽然知道织梦岛素材肯定不会只用一次，但是没想到是新作啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

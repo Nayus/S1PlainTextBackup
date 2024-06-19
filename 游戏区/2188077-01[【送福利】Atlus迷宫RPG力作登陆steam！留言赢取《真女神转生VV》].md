@@ -1212,3 +1212,11 @@ VV是个好游戏，我朋友在NS上买了的都对游戏性评价很高，当�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">之前还想蹭朋友的，结果一直都还没玩。
 
+
+*****
+
+####  ShiratoriMiziha  
+##### 119#       发表于 2024-6-19 10:03
+
+有即时存档太好了，不过还想要个自动存档功能
+

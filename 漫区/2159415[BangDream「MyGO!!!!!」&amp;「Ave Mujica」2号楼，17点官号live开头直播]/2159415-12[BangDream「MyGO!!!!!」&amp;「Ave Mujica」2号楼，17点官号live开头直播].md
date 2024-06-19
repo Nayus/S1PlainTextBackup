@@ -15753,3 +15753,16 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 只能说滚车轱辘话或许就是这么开心吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 17574#       发表于 2024-6-19 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65287144&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-6-18 19:47</a>
+
+说法确实很过分，但既然选择了这样的方式就不要再要求什么同情、不要强求别人的认可我倒是同意的 ...</blockquote>
+祥子目前的表现也没想让剧中角色同情，倒不如说她压根不想要。剧外观众带着上帝视角，有同情的、能理解的，当然还有就这点事闹麻了和更加恨的
+
+“不要再要求什么同情、不要强求别人的认可”，挺想知道这个别人是谁啊？
+

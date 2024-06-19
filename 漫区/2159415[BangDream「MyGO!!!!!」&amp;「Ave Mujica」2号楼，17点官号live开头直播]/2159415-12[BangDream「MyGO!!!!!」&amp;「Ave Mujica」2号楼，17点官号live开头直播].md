@@ -15895,3 +15895,14 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 硬要说喵梦可以拿卡莲浅代一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 17588#       发表于 2024-6-19 15:36
+
+[喵萌Production&amp;VCB-Studio] BanG Dream! It’s MyGO!!!!! 10-bit 1080p HEVC BDRip [Fin] [14.1GB] <blockquote>这个项目与 喵萌Production 合作，感谢他们精心制作的字幕。
+
+武士道祖传 x264 原盘，其中正片和 NCOP 还附带众所周知的错误 range 导致画面整体颜色出错的问题。修了 range，做了 806p 的 Bilinear 的重新拉伸，以及常规的去色带、抗锯齿、去振铃操作。考虑到原盘暗场效果不理想，加之噪点对邦邦三渲二的画风观感影响极小，采取了力度稍强的降噪手段。</blockquote>
+[https://share.dmhy.org/topics/vi ... HEVC_BDRip_Fin.html](https://share.dmhy.org/topics/view/672414_Production_VCB-Studio_BanG_Dream%21_It_s_MyGO%21%21%21%21%21_10-bit_1080p_HEVC_BDRip_Fin.html)
+

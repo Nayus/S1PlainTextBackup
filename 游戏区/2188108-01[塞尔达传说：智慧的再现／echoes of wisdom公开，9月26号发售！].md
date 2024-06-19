@@ -2009,3 +2009,11 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 虽然和塞尔达不能比，但是借东西的话这游戏也挺有意思的
 [https://store.steampowered.com/a ... rld_is_Your_Weapon/](https://store.steampowered.com/app/1056490/The_World_is_Your_Weapon/)
 
+
+*****
+
+####  LurenStr  
+##### 209#       发表于 2024-6-19 15:45
+
+天剑塞，野炊塞，回响塞，都是两个字挺对称的
+

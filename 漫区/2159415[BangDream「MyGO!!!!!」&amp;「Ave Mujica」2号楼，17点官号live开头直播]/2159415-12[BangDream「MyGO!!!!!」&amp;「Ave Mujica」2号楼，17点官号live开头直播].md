@@ -16348,3 +16348,12 @@ nga走廊之前盛产的“劲”二创不是死人都一大堆吗？</blockquot
 nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
 前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/c24c8549495492948550aa7694058c4b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 17634#       发表于 2024-6-20 01:32
+
+看到mujica翻车至少还能理解 乐队嘛 总要出问题的
+看到mujica被狗团吊打翻车 这个真的是哄堂大笑了 忍不住怜悯对方的智商<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

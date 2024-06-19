@@ -1896,3 +1896,44 @@ miko：好
 
 都这么猴急的吗你们火影迷
 
+
+*****
+
+####  holoan  
+##### 9046#         楼主| 发表于 2024-6-19 18:02
+
+<img src="https://img.saraba1st.com/forum/202406/19/180108rm1zsmaud33be9rm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 18:01 上传
+
+该推荐新的游戏了
+
+之前大空翼就是会限被观众推荐出来的，有成功的例子应该这次推荐游戏的人会更多
+
+*****
+
+####  rs5621  
+##### 9047#       发表于 2024-6-20 01:32
+
+<img src="https://img.saraba1st.com/forum/202406/20/013230typ0zy0r0hrtczrh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 01:32 上传
+
+<img src="https://img.saraba1st.com/forum/202406/20/013235yqxqsgcg2c2t7h76.png" referrerpolicy="no-referrer">
+
+<strong>HRDS{QUZL1OK2QXQNWJJW.png</strong> (10.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 01:32 上传
+
+才发现发型会动
+

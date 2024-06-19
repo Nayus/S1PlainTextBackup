@@ -16121,3 +16121,73 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 
 看好梗小鬼明年破大防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 17610#       发表于 2024-6-20 00:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没看过那些知名同人文，倒是听了不少吐槽
+
+老是看到让某某角色救风尘一样的拯救祥子，或者道心破碎，银河战舰翻了之类的说法
+
+原来真有把鸡当boss，敌团就得给王道主角团垫子的人啊……
+
+还以为开玩笑呢，结果这么认真，某种意义上挺厉害的
+
+*****
+
+####  星天观测  
+##### 17611#       发表于 2024-6-20 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304805&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-6-19 23:53</a>
+
+十人春日影过于抽象了，鸡团那风格虽然初华能唱，但是让这帮戴着难蚌假面的和mygo同台唱春日影，还不如指 ...</blockquote>
+我说实话，除了c团5个人，猫猫和阿农最多说是猫猫干了阿农被迫跟着也干了，但是初华海铃喵梦是真的跟春日影一点关系都没有啊，然后就被贷款十人春日影，我推初华我宁愿初华最后被真奈gank强行拖去sumimi，也不想她待在这种大型赤石现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17612#       发表于 2024-6-20 00:11
+
+因为梗小鬼的目的就是想让正常人吃屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ellisnadie  
+##### 17613#       发表于 2024-6-20 00:14
+
+说白了一些神奇言论都是看完第一季潜意识把狗当系列主角团、鸡当系列衍生团导致的
+
+再加上母鸡卡主场又是明年才播出，看完第一季动画的自然习惯把鸡当配角团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17614#       发表于 2024-6-20 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304964&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-6-20 00:14</a>
+
+说白了一些神奇言论都是看完第一季潜意识把狗当系列主角团、鸡当系列衍生团导致的
+
+再加上母鸡卡主场又是明 ...</blockquote>
+bangdream ave mujica？
+
+bangdream its mygo season2！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 17615#       发表于 2024-6-20 00:17
+
+讲道理赛博祥子那文前期祥子把mygo成员整死整残的时候叫好的还是很多的，后面祥子人设开始朝唐三看齐了才大规模炎上的，好歹也是个付费小说，很多人是来看祥子的不是来看唐三的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17616#       发表于 2024-6-20 00:17
+
+<blockquote>mygo第二季13集动画，6集c团+1鸡爆炸+6集狗收尾救人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不错了，还留了一集给鸡演爆炸，我还以为得抠半集还给mygo做live，毕竟13集占了人家半集呢
+

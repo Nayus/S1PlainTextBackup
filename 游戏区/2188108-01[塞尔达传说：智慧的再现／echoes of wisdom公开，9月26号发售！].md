@@ -1627,3 +1627,21 @@ trailer 里一开始是 3 个，中途变成了 4 个，不知道最终是多少
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刷林克是不是可以开局就复制林克砍猪
 
+
+*****
+
+####  渺小小  
+##### 170#       发表于 2024-6-19 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65295462&amp;ptid=2188108" target="_blank">a317216007 发表于 2024-6-19 11:18</a>
+
+刷林克是不是可以开局就复制林克砍猪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不能是刷各种林克猪就会各种主题变装呢？
+
+*****
+
+####  nma  
+##### 171#       发表于 2024-6-19 11:28
+
+从野炊以来的思路，肯定要照顾大部分用床通关的人了
+

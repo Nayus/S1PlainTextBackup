@@ -857,3 +857,31 @@ ios没有版本更新？
 
 2024-6-19 18:28 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 12882#       发表于 2024-6-19 18:58
+
+<img src="https://img.saraba1st.com/forum/202406/19/185639dyivmemnmjjmieun.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240619_185557.jpg</strong> (243.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-19 18:56 上传
+
+水杀生院的因缘角色里提到过乙姬，无心善举毁了年轻人的一生，有点天热黑的感觉？该不会活动剧情会把咕哒变成老姑吧？！
+
+
+*****
+
+####  DARKGRAY  
+##### 12883#       发表于 2024-6-19 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65301630&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-19 18:27</a>
+
+今天这是大更新？ 把我缓存全清了</blockquote>
+引擎升级那肯定大啦
+

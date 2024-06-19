@@ -1493,3 +1493,44 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  tachikoma27  
+##### 157#       发表于 2024-6-19 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294423&amp;ptid=2188108" target="_blank">绿冰 发表于 2024-6-19 10:23</a>
+放松都算不上，他只出镜宣传，基本不参与制作的</blockquote>
+只负责出镜，官方跟你说过吗
+
+*****
+
+####  karastar  
+##### 158#       发表于 2024-6-19 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294671&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-19 10:38</a>
+
+注意看精灵托力的辫子或者说尾巴由4个三角组成，每个三角代表一次复制能力，说明有一定时间内的数额上限， ...</blockquote>
+突然和三角力量联系起来了，妙啊，仔细看复制物品消耗一个三角，召唤怪物要两个三角
+
+
+*****
+
+####  lilod  
+##### 159#       发表于 2024-6-19 10:42
+
+不同的道具/召唤所使用的三角数量不同，trailer 里最后召唤僵尸控全场一次就用了三个三角
+
+我猜这次升级能力就是增加三角数量 =&gt; 增加召唤物品的数量
+
+迷宫我觉得这次是可以做到部分回归传统的，因为只需要保证迷宫中有符合机制的，可以复制的特殊方块就行（比如 trailer 里的水方块）。第一次进迷宫的时候进行第一次复制获得特殊的方块，打完迷宫之后带出来（类似王泪里去神庙里把特殊物品通过蓝图带出来）
+
+*****
+
+####  tachikoma27  
+##### 160#       发表于 2024-6-19 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293607&amp;ptid=2188108" target="_blank">busuji 发表于 2024-6-19 09:34</a>
+谨慎期待，别又是表演时刻（虽然表演时刻也并不差就是了）</blockquote>
+这是系列正统作，表演时刻起码差两个级别吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

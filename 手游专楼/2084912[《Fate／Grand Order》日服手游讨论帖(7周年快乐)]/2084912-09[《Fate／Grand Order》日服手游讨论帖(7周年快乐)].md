@@ -946,3 +946,16 @@ ios没有版本更新？
 
 今天早上还好好的清体力了，怎么现在就上不了了？<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴酒  
+##### 12890#       发表于 2024-6-20 03:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305172&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-6-20 00:49</a>
+
+今天早上还好好的清体力了，怎么现在就上不了了？</blockquote>
+是不是更新apk后进游戏黑屏
+
+手机系统设置通知设置打开通知就好了
+

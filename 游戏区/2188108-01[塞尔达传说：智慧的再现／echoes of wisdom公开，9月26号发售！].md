@@ -1747,3 +1747,32 @@ Totk不一样
 
 织梦岛重制之后终于来新的来2d赛。这次存档之类的应该会改吧
 
+
+*****
+
+####  downnote  
+##### 183#       发表于 2024-6-19 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293510&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-19 09:26</a>
+
+大家想好新作的简称叫什么了吗，野炊林，王泪林，天剑林，借物塞或者再现塞这种
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+既然是复制能力，就叫复塞吧
+
+*****
+
+####  ArowRocher  
+##### 184#       发表于 2024-6-19 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291522&amp;ptid=2188108" target="_blank">yuusuke 发表于 2024-6-19 00:43</a>
+主要是切场景后掉帧 等一会帧数就恢复。然后就是有几个场景帧数低点.体验没啥影响怎么也是个60帧游戏.又 ...</blockquote>
+原来如此
+
+*****
+
+####  塔奇克马  
+##### 185#       发表于 2024-6-19 12:39
+
+话说救到林可的时候时候把林可杀了，复制五个林可出来是不是可以无敌强了啊？
+

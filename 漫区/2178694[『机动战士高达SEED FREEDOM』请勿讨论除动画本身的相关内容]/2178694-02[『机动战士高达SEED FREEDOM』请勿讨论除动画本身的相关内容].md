@@ -2820,3 +2820,13 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 
 看完了，活儿是真的密，爬完楼准备今晚再溜一次<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bonnwang  
+##### 1712#       发表于 2024-6-19 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65286860&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-6-18 19:26</a>
+这接口</blockquote>
+新无证细节少了很多
+

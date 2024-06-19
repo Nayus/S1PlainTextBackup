@@ -16008,3 +16008,35 @@ earth应该会在7.7之前公开吧
 
 乐，什么公式化写作
 
+
+*****
+
+####  极速赛车手  
+##### 17598#       发表于 2024-6-19 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">收费的流量炒作文就算了吧，有可比性么
+
+
+*****
+
+####  akiomn  
+##### 17599#       发表于 2024-6-19 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304587&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-19 23:30</a>
+乐，什么公式化写作</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">这立希对自己部分有点难蚌了，有种舔狗的感觉……
+
+*****
+
+####  星天观测  
+##### 17600#       发表于 2024-6-19 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304380&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-6-19 23:00</a>
+
+隔壁不就那样吗？很多话题我都不想参与，比如讨论同人。明明是两个极端的逆向和赛博小祥，后者在同人区那个 ...</blockquote>
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团和解然后十人春日影
+
+鸡哥那句mygo第二季13集动画，6集c团+1鸡爆炸+6集狗收尾救人，估计部分人心底里还真这么期待着的
+
+可怜了我们初华海铃喵梦啊，明明是邦邦正规军乐队成员，已经被贷款成三个最后上台完成十人春日影就行的路人咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1826,3 +1826,18 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 
 本作副标题读音可作借物、猎物、猎人、假的
 
+
+*****
+
+####  beer  
+##### 191#       发表于 2024-6-19 13:49
+
+知任CHS
+
+1小时前
+
+来自 微博网页版
+
+《塞尔达传说 智慧的再现》官网首页图片要更宽一些，能看到最右侧露出了半张塞尔达的画像[笑cry]
+<img src="https://wx1.sinaimg.cn/large/006BjBn1ly1hqujouvq1pj302q05xwex.jpg" referrerpolicy="no-referrer">
+

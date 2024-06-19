@@ -11602,3 +11602,18 @@ saki这新衣服也不好看啊。
 <img src="https://p.sda1.dev/18/8d89ffdc682785a5886a4662e37b4a36/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/ca1c3a5ba0a58575902cfe58540b142c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 5526#         楼主| 发表于 2024-6-19 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65298258&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-6-19 14:27</a>
+
+姐姐amn和无敌amn都有冠军了，怎么amn不仅没冠军未来还是在拉扯</blockquote><blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65043546&amp;ptid=2130897" target="_blank">Anatoly 发表于 2024-5-29 13:13</a>
+
+人甘奈也有理由说的，虽然是伴娘礼服那去年也是套礼服，反观（</blockquote>
+你把甘奈奶死了.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人家简凛世也有理由说的，人家SCSP+S卡双料冠军，你什么冠军？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

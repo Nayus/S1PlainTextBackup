@@ -1497,3 +1497,20 @@ p系列开始玩阿特拉斯的，准备从复仇开始试试真女神
 
 玩过原版的据说能即时存档了，看看
 
+
+*****
+
+####  ninini212  
+##### 154#       发表于 2024-6-19 20:34
+
+这个好，我来做个分母。
+
+*****
+
+####  leesf1996  
+##### 155#       发表于 2024-6-19 20:35
+
+初版玩家不想再做凯子了，试试运气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -15782,3 +15782,24 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 没想到24年都过了一半了还有这么弱智的人
 看mujica不得活活气死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 17577#       发表于 2024-6-19 10:32
+
+ 本帖最后由 ddy2811 于 2024-6-19 10:33 编辑 
+<blockquote>相坂君 发表于 2024-6-19 09:59
+祥子目前的表现也没想让剧中角色同情，倒不如说她压根不想要。剧外观众带着上帝视角，有同情的、能理解的 ...</blockquote>
+
+强迫别人理解，不理解就觉得是对方有问题、没社会经验、MyGO看哪里去了那些人，这样的我还是见过挺多的
+
+另外，总觉得要谁来救人的也算
+
+*****
+
+####  ellisnadie  
+##### 17578#       发表于 2024-6-19 10:34
+
+按祥子人设性格，剧中角色真去同情祥子的时候才会让祥子感觉到侮辱吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

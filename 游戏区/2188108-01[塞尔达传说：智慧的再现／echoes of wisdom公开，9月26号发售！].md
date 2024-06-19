@@ -1438,3 +1438,58 @@ QQ图片20240619090804.jpg
 
 我还是等新机出了在新机玩吧，也不差这几个月
 
+
+*****
+
+####  yohyoh4966  
+##### 151#       发表于 2024-6-19 10:29
+
+塞尔达：笑死，这回老娘倒要自己看看救个人到底要多久<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 152#       发表于 2024-6-19 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294393&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-19 10:21</a>
+
+我记得之前有人分析过，王泪的工作人员名单里少了几个epd3的人，当时就猜测这些人去做另一个项目了。
+
+所以 ...</blockquote>
+Grezzo也给任天堂做了不少游戏，没有考虑收购吗
+
+
+*****
+
+####  户川清春  
+##### 153#       发表于 2024-6-19 10:34
+
+会出amiibo的吧……现在就去买个织梦岛的林克到时候凑对……
+
+*****
+
+####  lilod  
+##### 154#       发表于 2024-6-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294423&amp;ptid=2188108" target="_blank">绿冰 发表于 2024-6-19 10:23</a>
+
+放松都算不上，他只出镜宣传，基本不参与制作的</blockquote>
+不会的，青沼是塞尔达的总负责，肯定会 overview 的
+
+*****
+
+####  thez  
+##### 155#       发表于 2024-6-19 10:36
+
+好奇迷宫和BOSS战会怎么设计，迷宫已经没法用墙拦路了，BOSS战总不能就是召唤小怪攻击
+
+*****
+
+####  冷泉夜月  
+##### 156#       发表于 2024-6-19 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294642&amp;ptid=2188108" target="_blank">thez 发表于 2024-06-19 10:36:29</a>
+好奇迷宫和BOSS战会怎么设计，迷宫已经没法用墙拦路了，BOSS战总不能就是召唤小怪攻击 ...</blockquote>注意看精灵托力的辫子或者说尾巴由4个三角组成，每个三角代表一次复制能力，说明有一定时间内的数额上限，所以要限制还是能限制的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

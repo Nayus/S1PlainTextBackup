@@ -11506,3 +11506,30 @@ mora上面卖的hires版也是混得一坨，有种电音部混多了不会混�
 
 活动是今天更新还是明天？
 
+
+*****
+
+####  wfhtony  
+##### 5516#       发表于 2024-6-19 07:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292567&amp;ptid=2130897" target="_blank">倉本千奈 发表于 2024-6-19 07:28</a>
+
+活动是今天更新还是明天？</blockquote>
+今天。
+
+目前的卡池和第二章前五话的任务都是今天上午10点前结束。
+
+*****
+
+####  wfhtony  
+##### 5517#       发表于 2024-6-19 07:40
+
+风怒，编辑。
+
+*****
+
+####  cckuku  
+##### 5518#       发表于 2024-6-19 10:29
+
+saki这新衣服也不好看啊。
+

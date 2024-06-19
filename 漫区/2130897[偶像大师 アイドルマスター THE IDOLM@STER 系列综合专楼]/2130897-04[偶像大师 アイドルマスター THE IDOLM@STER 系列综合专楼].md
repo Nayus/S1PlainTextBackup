@@ -11575,3 +11575,30 @@ saki这新衣服也不好看啊。
 —— 来自 OnePlus PJE110, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 有的偶像S赛冠军，有的偶像季后亚运双料冠军，还有的偶像没有冠军
 
+
+*****
+
+####  Anatoly  
+##### 5523#       发表于 2024-6-19 14:25
+
+批发完25人已经15冠了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 5524#       发表于 2024-6-19 14:27
+
+姐姐amn和无敌amn都有冠军了，怎么amn不仅没冠军未来还是在拉扯<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 5525#       发表于 2024-6-19 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65298123&amp;ptid=2130897" target="_blank">Alicest 发表于 2024-6-19 14:17</a></blockquote>
+真实取材
+虽然是美琴p，但是每次live的时候都会被紫月的腿晃到眼…
+<img src="https://p.sda1.dev/18/8d89ffdc682785a5886a4662e37b4a36/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ca1c3a5ba0a58575902cfe58540b142c/image.jpg" referrerpolicy="no-referrer">
+

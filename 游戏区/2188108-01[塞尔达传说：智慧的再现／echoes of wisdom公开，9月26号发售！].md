@@ -1339,3 +1339,55 @@ QQ图片20240619090804.jpg
 
 虽然知道织梦岛素材肯定不会只用一次，但是没想到是新作啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilod  
+##### 141#       发表于 2024-6-19 10:04
+
+2D 塞尔达都是给青沼放松的，不用担心他
+
+
+*****
+
+####  redsouris  
+##### 142#       发表于 2024-6-19 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293931&amp;ptid=2188108" target="_blank">蓮華 发表于 2024-6-19 09:53</a>
+希望这次转场景的时候别再掉帧了，时隔许久的2D作品我很期待的</blockquote>
+不用期待
+演示中就掉帧了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名居守  
+##### 143#       发表于 2024-6-19 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293510&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-19 09:26</a>
+大家想好新作的简称叫什么了吗，野炊林，王泪林，天剑林，借物塞或者再现塞这种
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+林克传<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ubiquity  
+##### 144#       发表于 2024-6-19 10:14
+
+<blockquote>kuarwbwe 发表于 2024-6-19 09:56
+不会是把众神的地图重制一下放上来吧。那估计又要被人说是dlc了。</blockquote>
+那不会，因为就国内嚷嚷dlc的并且玩过众神的真的多吗
+
+*****
+
+####  _cvb_tassdar  
+##### 145#       发表于 2024-6-19 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294099&amp;ptid=2188108" target="_blank">lilod 发表于 2024-6-19 10:04</a>
+
+2D 塞尔达都是给青沼放松的，不用担心他</blockquote>
+应该是马里奥一样2d和3D分两个不同组
+

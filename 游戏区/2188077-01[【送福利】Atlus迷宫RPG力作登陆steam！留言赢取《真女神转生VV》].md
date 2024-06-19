@@ -1220,3 +1220,19 @@ VV是个好游戏，我朋友在NS上买了的都对游戏性评价很高，当�
 
 有即时存档太好了，不过还想要个自动存档功能
 
+
+*****
+
+####  莫夜戎  
+##### 120#       发表于 2024-6-19 10:05
+
+最大的看法就是以后再也不敢预购豪华版了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mr_NaHCO3  
+##### 121#       发表于 2024-6-19 10:10
+
+支持atlus，支持完全版商法<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

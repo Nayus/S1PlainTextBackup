@@ -15766,3 +15766,19 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 “不要再要求什么同情、不要强求别人的认可”，挺想知道这个别人是谁啊？
 
+
+*****
+
+####  NODY  
+##### 17575#       发表于 2024-6-19 10:14
+
+以后各种循环话题一律回答编剧逼的就行了，不用那么麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17576#       发表于 2024-6-19 10:15
+
+没想到24年都过了一半了还有这么弱智的人
+看mujica不得活活气死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

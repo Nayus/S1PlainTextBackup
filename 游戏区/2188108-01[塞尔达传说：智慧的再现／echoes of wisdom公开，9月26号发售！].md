@@ -2056,3 +2056,13 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 
 织梦岛卡带半天狂涨12元，感觉短期内都下不了200了
 
+
+*****
+
+####  perfaceNext  
+##### 214#       发表于 2024-6-19 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65299940&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-19 16:23</a>
+织梦岛卡带半天狂涨12元，感觉短期内都下不了200了</blockquote>
+想想当年拿织梦岛换ff12亏死了，虽然当时价格差不多，现在ff12根本出不掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

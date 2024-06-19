@@ -1299,3 +1299,20 @@ VV是个好游戏，我朋友在NS上买了的都对游戏性评价很高，当�
 
 游戏很好玩，就是不要再搞完全版战法了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  周bp  
+##### 130#       发表于 2024-6-19 13:43
+
+久仰大名，期待抽中一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  六道仙鱼  
+##### 131#       发表于 2024-6-19 13:45
+
+没玩过，尝试一哈
+

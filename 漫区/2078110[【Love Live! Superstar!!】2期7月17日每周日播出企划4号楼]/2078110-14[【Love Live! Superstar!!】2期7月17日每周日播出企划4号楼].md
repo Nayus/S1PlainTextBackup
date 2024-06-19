@@ -1956,3 +1956,14 @@ this way~
 
 按理说她不这样做，大家也是会包容她的，到底这图啥啊？
 
+
+*****
+
+####  starring  
+##### 20356#       发表于 2024-6-19 18:19
+
+这MV挺不错，运营终于做了件人事
+期待另外两组
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -15733,3 +15733,13 @@ NGA日常爆典</blockquote>
 
 怎么说，我觉得有些人对亲近关系的理解就像手游痴，别说这么好听，直说想要舔狗不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 17572#       发表于 2024-6-19 09:22
+
+很难评都一年了还在分锅的人是什么思维…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

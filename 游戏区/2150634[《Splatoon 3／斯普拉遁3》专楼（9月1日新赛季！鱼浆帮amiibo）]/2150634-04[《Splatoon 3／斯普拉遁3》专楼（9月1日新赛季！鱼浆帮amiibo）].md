@@ -3178,3 +3178,15 @@ max三岗过了，仍旧没有金
 
 上周末用狙打DLC一直到30层才挂，我以为我行了，就拿狙去打涂地，结果整整一小时都没赢过......
 
+
+*****
+
+####  晴岚  
+##### 4754#       发表于 2024-6-19 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291129&amp;ptid=2150634" target="_blank">Junchoon 发表于 2024-6-19 00:03</a>
+上周末用狙打DLC一直到30层才挂，我以为我行了，就拿狙去打涂地，结果整整一小时都没赢过...... ...</blockquote>
+练狙打真格，毕竟敌人在真格相对来说有目的性强很多，就是你的队友会受苦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

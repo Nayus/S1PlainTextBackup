@@ -1841,3 +1841,31 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 《塞尔达传说 智慧的再现》官网首页图片要更宽一些，能看到最右侧露出了半张塞尔达的画像[笑cry]
 <img src="https://wx1.sinaimg.cn/large/006BjBn1ly1hqujouvq1pj302q05xwex.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bird-lay  
+##### 192#       发表于 2024-6-19 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65297725&amp;ptid=2188108" target="_blank">beer 发表于 2024-6-19 13:49</a>
+
+知任CHS
+
+1小时前</blockquote>
+看起来有点像悬赏令
+
+可能城堡被占领了要把公主抓回去
+
+
+*****
+
+####  beer  
+##### 193#       发表于 2024-6-19 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65297843&amp;ptid=2188108" target="_blank">bird-lay 发表于 2024-6-19 13:58</a>
+
+看起来有点像悬赏令
+
+可能城堡被占领了要把公主抓回去</blockquote>
+我有点想不通，PV里出现的士兵有三次，一次是眺望地图时候上来两个士兵鞠躬，看着像等命令，一个是和老人（疑似英帕）对峙，还有一处是塞尔达戴着兜帽走到城堡门口，有两个守门的士兵。不会眺望的那个塞尔达是假货，里面是女装癖加农吧
+

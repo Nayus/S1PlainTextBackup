@@ -1332,3 +1332,11 @@ VV是个好游戏，我朋友在NS上买了的都对游戏性评价很高，当�
 
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">初版当时还买了全DLC，加起来都快两份游戏的钱了，虽然成了冤大头，不过VV的质量我还是很满意的
 
+
+*****
+
+####  astrayl  
+##### 134#       发表于 2024-6-19 13:59
+
+凑合分母，原版我还在烂尾，结果完全版都出来了
+

@@ -1907,3 +1907,36 @@ pay下周的生日event夜场有线上
 
 this way~
 
+
+*****
+
+####  starring  
+##### 20350#       发表于 2024-6-19 09:31
+
+原来某人在FMT上又哭了，不去当演员真是太可惜
+
+*****
+
+####  黒烨  
+##### 20351#       发表于 2024-6-19 10:48
+
+虽然也不是很喜欢收尾的时候哭的很频繁，这次哭的理由也不是不能理解，大阪表现确实还可以……
+
+*****
+
+####  ads147147  
+##### 20352#       发表于 2024-6-19 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这个团还要开起码五年呢，还能怎么着，理解接受咯。
+
+*****
+
+####  starring  
+##### 20353#       发表于 2024-6-19 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294861&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-6-19 10:48</a>
+虽然也不是很喜欢收尾的时候哭的很频繁，这次哭的理由也不是不能理解，大阪表现确实还可以…… ...</blockquote>
+听了她说什么才觉得更烦人，同组成员很厉害为了追上她们而做了很多努力没问题值得喜悦值得鼓掌没问题，可是又动不动掉小珍珠装委屈自己还不够努力，真抽象<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

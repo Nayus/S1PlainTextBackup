@@ -15830,3 +15830,43 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 能不能真和llx那样去写祥子<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 17581#       发表于 2024-6-19 11:10
+
+初华和睦是CC和娜娜莉吗，谁是朱雀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17582#       发表于 2024-6-19 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294960&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-6-19 10:53</a>
+
+找了下原帖，这是一个昨天凌晨6时才看完动画的新观众
+
+这状态至少不是从去年持续下来的 ...</blockquote>
+每天都会有刚看完动画的人，但是只要车角色那肯定会有那几个老面孔出来发力
+
+不如说这才是比较搞笑的地方<img src="https://static.saraba1st.com/image/smiley/face2017/271.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akirakira  
+##### 17583#       发表于 2024-6-19 11:13
+
+现在还这样只能顺从了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 17584#       发表于 2024-6-19 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65295281&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-19 11:10</a>
+
+初华和睦是CC和娜娜莉吗，谁是朱雀</blockquote>
+等哪天新活像hhw一样空降一个站在对立面的青梅竹马吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

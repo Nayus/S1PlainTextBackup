@@ -16338,3 +16338,13 @@ nga走廊之前盛产的“劲”二创不是死人都一大堆吗？
 nga走廊之前盛产的“劲”二创不是死人都一大堆吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那时候的“死”偏向于为了死而死，之后真搞韩剧向狗血，颇有种嘲讽小时代，成为小时代，超越小时代的美！
 
+
+*****
+
+####  -LYRE-  
+##### 17633#       发表于 2024-6-20 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304723&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-19 23:43</a>
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
+前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/c24c8549495492948550aa7694058c4b/image.jpg" referrerpolicy="no-referrer">
+

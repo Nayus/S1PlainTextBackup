@@ -16381,3 +16381,16 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
 懂不懂一些人眼裡的“go團附屬品ave mujica”含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17637#       发表于 2024-6-20 05:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305090&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-20 00:30</a>
+
+nga专楼和你楼唯一的共同点就是日常在骂go吧那些整天想着复辟然后踩一脚狗团/鸡团感情不好的c团姨姥 ...</blockquote>
+哇哦 終於有go粉不爽C團遺老了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是喜事 
+

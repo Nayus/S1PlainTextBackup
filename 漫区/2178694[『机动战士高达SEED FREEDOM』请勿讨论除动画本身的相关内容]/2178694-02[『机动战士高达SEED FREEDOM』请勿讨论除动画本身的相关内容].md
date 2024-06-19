@@ -2872,3 +2872,28 @@ T：我不是，我没有，别乱说</blockquote>
 FT装甲不是防光束的吗？为什么大姐头能砍了一个黑骑士？</blockquote>
 FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌炮都能击坠一个
 
+
+*****
+
+####  月夜凝雪  
+##### 1717#       发表于 2024-6-19 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65301260&amp;ptid=2178694" target="_blank">光焰天下第一 发表于 2024-6-19 17:54</a>
+机战为啥不出新作了啊，不会完蛋了吧....悲伤...</blockquote>
+版权费贵，手游更好赚，机器人的辉煌已经过去，4P不干了得有靠谱的人接手才行，
+30销量虽然不错但质量也就那样
+而且Banpresto都不存在了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  pokemon最爱  
+##### 1718#       发表于 2024-6-19 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65301280&amp;ptid=2178694" target="_blank">永恒的王牌 发表于 2024-6-19 17:55</a>
+
+FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌炮都能击坠一个 ...</blockquote>
+掌炮设定上贴近射击时好像有高热破防这么一步在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

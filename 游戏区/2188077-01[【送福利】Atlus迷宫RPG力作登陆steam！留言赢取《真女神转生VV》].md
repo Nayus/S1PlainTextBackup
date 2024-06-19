@@ -1479,3 +1479,13 @@ p系列开始玩阿特拉斯的，准备从复仇开始试试真女神
 
 算是经典游戏了.
 
+
+*****
+
+####  Narrative  
+##### 152#       发表于 2024-6-19 18:25
+
+抽一下
+
+—— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

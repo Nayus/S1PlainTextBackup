@@ -15818,3 +15818,15 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 这状态至少不是从去年持续下来的<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17580#       发表于 2024-6-19 11:01
+
+只能说很符合我对nga的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正都这么刻画了，黑子不会少，我希望明年能更大胆一些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+能不能真和llx那样去写祥子<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

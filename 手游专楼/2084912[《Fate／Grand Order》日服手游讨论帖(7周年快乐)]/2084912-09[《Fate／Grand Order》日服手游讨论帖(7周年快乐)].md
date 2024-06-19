@@ -680,3 +680,14 @@ fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/im
 白纸冰块本道满到底能不能即死一面的？我看节奏榜那个网写80%即死率，但是组队推荐，也没见放别的技能（2面 ...</blockquote>
 王哈+仇尼托+路人道满，1面道满充电之后直接宝具，2面仇尼托充电+王哈敲钟，没出过即死miss的情况，带仇尼托主要是想刷刷羁绊
 
+
+*****
+
+####  poor  
+##### 12867#       发表于 2024-6-19 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294517&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-6-19 10:28</a>
+
+王哈+仇尼托+路人道满，1面道满充电之后直接宝具，2面仇尼托充电+王哈敲钟，没出过即死miss的情况，带仇 ...</blockquote>
+谢谢，那先用着吧，带个即死服保险
+

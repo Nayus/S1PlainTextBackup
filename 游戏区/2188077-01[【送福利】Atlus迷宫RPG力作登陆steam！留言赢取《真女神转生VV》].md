@@ -1283,3 +1283,19 @@ VV是个好游戏，我朋友在NS上买了的都对游戏性评价很高，当�
 
 风怒                        
 
+
+*****
+
+####  moshizhe  
+##### 128#       发表于 2024-6-19 11:01
+
+看到完全版功能更有好了
+
+
+*****
+
+####  lighttt  
+##### 129#       发表于 2024-6-19 11:05
+
+游戏很好玩，就是不要再搞完全版战法了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+

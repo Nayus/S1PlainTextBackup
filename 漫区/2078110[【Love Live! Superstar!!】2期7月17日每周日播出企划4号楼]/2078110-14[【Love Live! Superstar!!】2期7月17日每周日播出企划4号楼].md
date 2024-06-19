@@ -1940,3 +1940,11 @@ this way~
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黒烨  
+##### 20354#       发表于 2024-6-19 17:25
+
+算是头一次吧，做的还行.就是不知道后面俩组质量如何了
+

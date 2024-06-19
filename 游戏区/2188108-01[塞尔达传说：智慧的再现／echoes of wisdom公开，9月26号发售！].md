@@ -1184,3 +1184,36 @@ echo、复制，和着它这个かりもの可能是玩了个双关，“仮”�
 刚我又去看了一下历代佐拉视频，2D一开始就是左边的绿色丑八怪，不过时空大地的时 ...</blockquote>
 咸淡水是设定上的，实际上游戏里分布没有很遵循这个，时之笛的佐拉坐在水源里，淡水得不能再淡了
 
+
+*****
+
+####  ParukiaMKII  
+##### 126#       发表于 2024-6-19 09:08
+
+地图好像和众神的地图都对应的上<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+QQ图片20240619090801.jpg
+(127.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 09:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/090837gfb1b2sif22v2cvf.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240619090804.jpg
+(81.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 09:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/090840e584iibivknzphiw.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  soranoguiji  
+##### 127#       发表于 2024-6-19 09:14
+
+塞尔达传说新作，又可以和林克一起冒险啦，等等主角不是林克？？
+

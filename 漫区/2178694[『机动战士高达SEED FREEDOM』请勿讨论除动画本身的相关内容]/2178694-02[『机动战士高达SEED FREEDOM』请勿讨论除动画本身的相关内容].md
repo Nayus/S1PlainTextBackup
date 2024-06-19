@@ -2748,3 +2748,15 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  月夜凝雪  
+##### 1706#       发表于 2024-6-19 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291227&amp;ptid=2178694" target="_blank">司空怜 发表于 2024-6-19 00:13</a>
+强自人气和自由差太远</blockquote>
+但这是和新机比啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

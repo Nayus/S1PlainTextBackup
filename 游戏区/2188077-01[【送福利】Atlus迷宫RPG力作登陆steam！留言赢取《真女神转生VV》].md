@@ -1125,3 +1125,18 @@ Switch 新机出来前不打算玩 VV 了，虽然游戏是好游戏但 30 帧�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">带DLC一起买了，快给我报销（ bushi
 
+
+*****
+
+####  夜之光  
+##### 109#       发表于 2024-6-19 09:09
+
+阿拖拉斯不做人系列
+
+*****
+
+####  斯托雷加  
+##### 110#       发表于 2024-6-19 09:12
+
+支持一下atlus
+

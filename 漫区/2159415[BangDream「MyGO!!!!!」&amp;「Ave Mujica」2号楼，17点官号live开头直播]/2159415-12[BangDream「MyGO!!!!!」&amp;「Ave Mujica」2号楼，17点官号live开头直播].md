@@ -15870,3 +15870,18 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 初华和睦是CC和娜娜莉吗，谁是朱雀</blockquote>
 等哪天新活像hhw一样空降一个站在对立面的青梅竹马吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cayon  
+##### 17585#       发表于 2024-6-19 11:53
+
+喵梦像cc，初华才比较像朱雀吧，都是一开始被蒙在鼓里的青梅
+
+*****
+
+####  skives10  
+##### 17586#       发表于 2024-6-19 11:54
+
+睦是绿毛 睦才是cc<img src="https://static.saraba1st.com/image/smiley/carton2017/064.png" referrerpolicy="no-referrer">
+

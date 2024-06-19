@@ -1682,3 +1682,26 @@ trailer 里一开始是 3 个，中途变成了 4 个，不知道最终是多少
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  tachikoma27  
+##### 176#       发表于 2024-6-19 11:46
+
+请问众神三角2，织梦岛的迷宫又难在哪，哪个不是一路平推<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  760194962  
+##### 177#       发表于 2024-6-19 11:48
+
+<blockquote>a317216007 发表于 2024-6-19 11:42
+那个菜单不就是野炊王泪经典菜单，找素材找一万年
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅 ...</blockquote>
+青沼还刻意强调素材之多⋯⋯
+
+Botw不知为什么就还好，没感觉过很麻烦
+
+Totk不一样
+

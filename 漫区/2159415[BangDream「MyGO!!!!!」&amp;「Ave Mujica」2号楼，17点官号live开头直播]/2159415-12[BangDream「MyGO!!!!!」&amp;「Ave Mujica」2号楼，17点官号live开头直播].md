@@ -15992,3 +15992,19 @@ earth应该会在7.7之前公开吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">隔壁不就那样吗？很多话题我都不想参与，比如讨论同人。明明是两个极端的逆向和赛博小祥，后者在同人区那个专楼里一天到晚烤白。为什么逆行没人车？因为爱音是主角啊，鸡团都被拆没了，祥子都成垫脚石了。赛博小祥为啥被车？因为狗团当垫子了，狗粉看不下去了。实际上真有问题的就枪杀爱音那部分，作者后面也光速滑轨了。属于是双标到了极致，狗团不可以当垫子，但是鸡团行！
 
+
+*****
+
+####  rikaren  
+##### 17597#       发表于 2024-6-19 23:30
+
+<img src="https://img.saraba1st.com/forum/202406/19/233019rwroqzww6w06r626.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1718810975243.jpg</strong> (107.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 23:30 上传
+
+乐，什么公式化写作
+

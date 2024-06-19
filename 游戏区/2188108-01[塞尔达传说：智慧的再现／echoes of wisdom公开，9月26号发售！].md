@@ -1715,3 +1715,35 @@ Totk不一样
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  我在干什么啊  
+##### 179#       发表于 2024-6-19 12:20
+
+能期待牢林说句台词吗
+
+*****
+
+####  绿冰  
+##### 180#       发表于 2024-6-19 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294630&amp;ptid=2188108" target="_blank">lilod 发表于 2024-6-19 10:35</a>
+
+不会的，青沼是塞尔达的总负责，肯定会 overview 的</blockquote>
+那肯定是会的，但具体制作和主导制作人基本不可能是他
+
+*****
+
+####  hujingjing  
+##### 181#       发表于 2024-6-19 12:21
+
+塞：林克你看好了，老娘这回自救<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，不过我也是很期待这种小品式的2d塞，三枪手以后就没出新的了吧，三枪手我甚至没玩着，因为一个人配两ai怎么玩都难受，希望多实践点新创意和玩法，好的就拓展放大制作的3d塞去
+
+*****
+
+####  GuDaZi  
+##### 182#       发表于 2024-6-19 12:24
+
+织梦岛重制之后终于来新的来2d赛。这次存档之类的应该会改吧
+

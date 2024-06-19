@@ -1101,3 +1101,11 @@ vv兄弟买了入了家庭库这两天看他疯狂在肝，应该挺好玩的，
 
 单纯当个分母吧
 
+
+*****
+
+####  翼宿一  
+##### 106#       发表于 2024-6-19 08:34
+
+Switch 新机出来前不打算玩 VV 了，虽然游戏是好游戏但 30 帧都跑不满实在太伤了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

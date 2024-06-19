@@ -15725,3 +15725,11 @@ NGA日常爆典</blockquote>
 
 明年还有得某些人急呢，梦寐以求的mujica被创碎，祥子只能跪求原谅，初华睦全被go团人俘虏能实现一个不？不过某些人也只能暗戳戳cue祥睦和喵梦了，贷款初华歌声没感情的在angles和water后也不敢说话了。
 
+
+*****
+
+####  PDQ4  
+##### 17571#       发表于 2024-6-19 08:32
+
+怎么说，我觉得有些人对亲近关系的理解就像手游痴，别说这么好听，直说想要舔狗不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2066,3 +2066,17 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 织梦岛卡带半天狂涨12元，感觉短期内都下不了200了</blockquote>
 想想当年拿织梦岛换ff12亏死了，虽然当时价格差不多，现在ff12根本出不掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gniyehz  
+##### 215#       发表于 2024-6-19 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65299660&amp;ptid=2188108" target="_blank">帝蓝 发表于 2024-6-19 16:03</a>
+虚幻引擎的问题 无解
+
+你看无主之地3换地图也一样</blockquote>
+不是虚幻引擎，织梦岛的版权信息页面根本没有虚幻或者unity等第三方商业引擎的信息。
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

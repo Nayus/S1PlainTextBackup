@@ -1282,3 +1282,34 @@ QQ图片20240619090804.jpg
 
 林克传说：俺拾嘞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 136#       发表于 2024-6-19 09:51
+
+能轻松搬起林克也很吃力的大石头，不如我们管她叫塞林克（不是。
+
+感觉最后会变成复制塞、塞亚人之类玩坏的代称。
+
+中日英三个副标题的缩写都不够帅气也没有梗。
+
+顺便打开推特果然是 meme 创作时间（。
+
+<img src="https://img.saraba1st.com/forum/202406/19/095125r8shc9p5xpkyhh9f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GQYrF_vbMAA8cvy.jpeg</strong> (82.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 09:51 上传
+
+[https://twitter.com/MikeLuckas/status/1803176173582889176](https://twitter.com/MikeLuckas/status/1803176173582889176)
+
+*****
+
+####  蓮華  
+##### 137#       发表于 2024-6-19 09:53
+
+希望这次转场景的时候别再掉帧了，时隔许久的2D作品我很期待的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

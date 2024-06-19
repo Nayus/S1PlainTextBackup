@@ -2737,3 +2737,14 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 强自人气和自由差太远
 
+
+*****
+
+####  novyDC  
+##### 1705#       发表于 2024-6-19 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65290488&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-06-18 23:16:01</a>
+说起来，无正贰裸机的背面机设图是不是还没有？</blockquote>确实没有
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

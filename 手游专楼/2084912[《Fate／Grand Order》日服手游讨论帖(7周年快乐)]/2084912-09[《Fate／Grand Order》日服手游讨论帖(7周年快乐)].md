@@ -927,3 +927,14 @@ ios没有版本更新？
 
 鲨鱼/鳄鱼也是龙
 
+
+*****
+
+####  khxooo  
+##### 12888#       发表于 2024-6-19 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65302549&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-19 20:00</a>
+
+都说了是踊るドラゴン那第一反应不就是龙娘么....清姬是蛇啊</blockquote>
+在那边，蛇=龙，看看清姬的属性，有龙属性的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

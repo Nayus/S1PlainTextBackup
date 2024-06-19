@@ -3237,3 +3237,24 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  laosai13  
+##### 4759#       发表于 2024-6-19 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300891&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-6-19 17:24</a>
+
+塞尔达新作PV林克射箭那段有人刷邦普V，乍一看还真像
+
+论坛助手,iPhone</blockquote>
+我看到那段第一反应以为水晶没破，就想说用邦普一下子就破了<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Junakr  
+##### 4760#       发表于 2024-6-19 22:05
+
+我还想说邦普第一眼幻视左纳乌弓呢，套起来了。
+

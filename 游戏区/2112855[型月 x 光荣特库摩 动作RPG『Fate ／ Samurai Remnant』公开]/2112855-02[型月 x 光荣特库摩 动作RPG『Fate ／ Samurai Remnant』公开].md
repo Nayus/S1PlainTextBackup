@@ -281,3 +281,14 @@ E27ED1DB-57D1-48A2-9ED2-BC5A3B5C383A.jpeg
 接连遭到神隐的幼童、谜团重重的“鸟形妖魔”，以及以不曾存在的幼年容貌现身的由井正雪。盈月的竞逐者们与自称“赵云”的无主Rider一起，携手对抗这场令江户上下陷入混沌深渊的异变。
 <img src="https://p.sda1.dev/18/0902857acc6c9b1bbd161e8032658942/20240618_003828.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1786#         楼主| 发表于 2024-6-19 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65277113&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2024-6-18 00:39</a>
+
+由奈须蘑菇老师担任总监修、Fate系列全新动作RPG《Fate/Samurai Remnant》第3部DLC《断章・白龙红鬼演义》 ...</blockquote>
+PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
+

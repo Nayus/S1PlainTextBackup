@@ -16040,3 +16040,50 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 
 可怜了我们初华海铃喵梦啊，明明是邦邦正规军乐队成员，已经被贷款成三个最后上台完成十人春日影就行的路人咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17601#       发表于 2024-6-19 23:50
+
+5人/10人春日影/成为人类歌太见鬼了，仿佛是完全没想过这么个场景观感有多么奇怪就说出了这样的发言。
+
+一个团演奏一首新歌另外一个团在下面听又会占用不少时间。
+
+我自己心目中最好的场景是十人演奏纯音乐，可惜有个人不会乐器。动画如果真要做类似场景应该就是十人演奏新歌（主唱带歌词）的这种了。
+
+
+*****
+
+####  NODY  
+##### 17602#       发表于 2024-6-19 23:53
+
+现在知道为什么立希厨对明年动画那么悲观了吧，官方定位就这样，明年不出来当垫子就是成功，当然，不出场就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 17603#       发表于 2024-6-19 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304723&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-19 23:43</a>
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十人春日影过于抽象了，鸡团那风格虽然初华能唱，但是让这帮戴着难蚌假面的和mygo同台唱春日影，还不如指望新歌呢
+三次元十人对邦，大概率动物朋友被李子现场处决
+
+*****
+
+####  ellisnadie  
+##### 17604#       发表于 2024-6-19 23:54
+
+真这么想的明年母鸡卡播出有得破防的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+说白了在一些人里狗就是主角，鸡是配角呗，鸡就是要被修正最后一起包饺子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17605#       发表于 2024-6-19 23:54
+
+<blockquote>akiomn 发表于 2024-6-19 23:43
+这立希对自己部分有点难蚌了，有种舔狗的感觉……</blockquote>
+立希对爱音和soyo的语音简直笑死，写这个的脑子里到底怎么想的，就算是一年前就实装了的废案也不至于写出这种鬼东西吧，邦前面七个团也没有这种情况。
+

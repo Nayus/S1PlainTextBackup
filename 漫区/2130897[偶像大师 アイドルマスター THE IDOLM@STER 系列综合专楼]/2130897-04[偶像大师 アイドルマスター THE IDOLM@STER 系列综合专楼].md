@@ -11544,3 +11544,34 @@ saki这新衣服也不好看啊。
 
 另，查询斑鸠女士心理状态
 
+
+*****
+
+####  超法拉  
+##### 5520#       发表于 2024-6-19 14:15
+
+怎么有人批发冠军都拿不到的
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  Alicest  
+##### 5521#       发表于 2024-6-19 14:17
+
+<img src="https://p.sda1.dev/18/295bdc8fea2e6840124d603f8cf26ed4/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c919446c797c6b4f0dab5cf5dd6e3b9c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Unlight  
+##### 5522#         楼主| 发表于 2024-6-19 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65298089&amp;ptid=2130897" target="_blank">超法拉 发表于 2024-6-19 14:15</a>
+
+怎么有人批发冠军都拿不到的
+
+—— 来自 OnePlus PJE110, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+有的偶像S赛冠军，有的偶像季后亚运双料冠军，还有的偶像没有冠军
+

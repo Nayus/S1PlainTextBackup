@@ -1979,3 +1979,13 @@ this way~
 this way~</blockquote>
 thanks
 
+
+*****
+
+####  csolfans  
+##### 20358#       发表于 2024-6-19 19:58
+
+Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

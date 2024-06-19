@@ -904,3 +904,26 @@ ios没有版本更新？
 尼禄好赤裸裸的内部爱啊！</blockquote>
 同是丹下樱，只能说真的有偏爱<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12886#       发表于 2024-6-19 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300878&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-6-19 17:23</a>
+
+乙姬，怎么想都是浦岛太郎那个乙姬，怎么会想到龙娘的呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">都说了是踊るドラゴン那第一反应不就是龙娘么....清姬是蛇啊
+
+*****
+
+####  シャル  
+##### 12887#       发表于 2024-6-19 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65302549&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-19 20:00</a>
+
+都说了是踊るドラゴン那第一反应不就是龙娘么....清姬是蛇啊</blockquote>
+乙姫也是龙种不行吗
+
+鲨鱼/鳄鱼也是龙
+

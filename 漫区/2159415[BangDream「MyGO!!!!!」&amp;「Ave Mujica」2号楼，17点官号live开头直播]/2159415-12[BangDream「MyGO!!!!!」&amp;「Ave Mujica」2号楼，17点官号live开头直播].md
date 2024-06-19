@@ -16357,3 +16357,16 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 看到mujica翻车至少还能理解 乐队嘛 总要出问题的
 看到mujica被狗团吊打翻车 这个真的是哄堂大笑了 忍不住怜悯对方的智商<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17635#       发表于 2024-6-20 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305324&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-6-20 01:20</a>
+
+前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言</blockquote>
+只能说我原本不支持鸡狗对邦的，因为我还得听杨姐唱歌，个人感觉有点难受
+
+现在只能狠狠支持了，毕竟已经贷款被吊打了，那不得现场围观一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

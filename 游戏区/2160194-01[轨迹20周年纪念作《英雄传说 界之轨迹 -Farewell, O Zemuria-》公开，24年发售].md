@@ -4107,3 +4107,31 @@ pc一般比主机版晚多久？
 这周是黎轨2专场，eshop预购开启，nd播片，周六日大阪提供试玩。</blockquote>
 不出所料，买了nd就没买法米通了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjd  
+##### 432#       发表于 2024-6-19 17:21
+
+唉，现在的日本业界，这 ND 的片去掉第一方没一个赶得上界轨 pv 的吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 433#       发表于 2024-6-19 17:26
+
+现在也没几个和法社一样还靠纸媒宣发啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 434#       发表于 2024-6-19 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294444&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-6-19 10:24</a>
+
+为了一碟醋接了个商单：
+
+[https://b23.tv/P8KQqGk](https://b23.tv/P8KQqGk)</blockquote>
+草，你先说明是泛式啊，点进去污染我推荐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

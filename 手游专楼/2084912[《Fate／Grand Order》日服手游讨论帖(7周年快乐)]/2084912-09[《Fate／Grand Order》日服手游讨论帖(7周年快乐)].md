@@ -715,3 +715,31 @@ fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/im
 
 ios没有版本更新？
 
+
+*****
+
+####  森兰丸  
+##### 12871#       发表于 2024-6-19 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这新活动预告难道不是龙娘么....怎么龙娘的那么多马甲一个加成角色都没有
+
+
+*****
+
+####  都谷捻柏  
+##### 12872#       发表于 2024-6-19 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300792&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-19 17:17</a>
+
+这新活动预告难道不是龙娘么....怎么龙娘的那么多马甲一个加成角色都没有</blockquote>
+剪影可能是清姬
+
+*****
+
+####  khxooo  
+##### 12873#       发表于 2024-6-19 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300792&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-6-19 17:17</a>
+这新活动预告难道不是龙娘么....怎么龙娘的那么多马甲一个加成角色都没有</blockquote>
+乙姬，怎么想都是浦岛太郎那个乙姬，怎么会想到龙娘的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

@@ -2897,3 +2897,30 @@ FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌
 FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌炮都能击坠一个 ...</blockquote>
 掌炮设定上贴近射击时好像有高热破防这么一步在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 1719#       发表于 2024-6-19 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65276421&amp;ptid=2178694" target="_blank">cxj649 发表于 2024-6-17 23:21</a>
+
+自由设计师是克莱因派的，拉爸是一开始是议长，狐狸也是自称克莱因派
+
+人家还真是“正统”啊</blockquote>
+议长是野心家，他对拉克丝老爸那套根本不敢兴趣，混进派阀唯一目的就是实现命运计划
+
+*****
+
+####  シャル  
+##### 1720#       发表于 2024-6-19 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65301280&amp;ptid=2178694" target="_blank">永恒的王牌 发表于 2024-6-19 17:55</a>
+
+FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌炮都能击坠一个 ...</blockquote>
+和UC那些抗beam涂层一样吧
+
+没有铁血镜面装甲这样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+按机战说是，Beam减伤1500？
+

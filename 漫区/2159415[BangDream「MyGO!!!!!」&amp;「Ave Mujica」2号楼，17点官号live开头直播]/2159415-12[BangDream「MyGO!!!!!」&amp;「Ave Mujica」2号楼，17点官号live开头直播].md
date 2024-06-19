@@ -15803,3 +15803,18 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 
 按祥子人设性格，剧中角色真去同情祥子的时候才会让祥子感觉到侮辱吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  [皆神孝介]  
+##### 17579#       发表于 2024-6-19 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294271&amp;ptid=2159415" target="_blank">skives10 发表于 2024-6-19 10:15</a>
+
+没想到24年都过了一半了还有这么弱智的人
+
+看mujica不得活活气死</blockquote>
+找了下原帖，这是一个昨天凌晨6时才看完动画的新观众
+
+这状态至少不是从去年持续下来的<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">
+

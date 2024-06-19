@@ -2760,3 +2760,29 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  novyDC  
+##### 1707#       发表于 2024-6-19 10:45
+
+亲儿子阿斯兰
+
+<img src="https://img.saraba1st.com/forum/202406/19/104505adz17ipahihsi4zz.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1718764715087.jpg</strong> (204.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/104505izsmncme5dem90z2.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1718764705027.jpg</strong> (64.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 10:45 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1534,3 +1534,43 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗
 谨慎期待，别又是表演时刻（虽然表演时刻也并不差就是了）</blockquote>
 这是系列正统作，表演时刻起码差两个级别吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 161#       发表于 2024-6-19 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294771&amp;ptid=2188108" target="_blank">lilod 发表于 2024-6-19 10:42</a>
+
+不同的道具/召唤所使用的三角数量不同，trailer 里最后召唤僵尸控全场一次就用了三个三角
+
+我猜这次升级能 ...</blockquote>
+我觉得初期可能一个智慧三角，然后流程中收集三角力量，上限就4个
+
+*****
+
+####  lilod  
+##### 162#       发表于 2024-6-19 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294954&amp;ptid=2188108" target="_blank">karastar 发表于 2024-6-19 10:53</a>
+
+我觉得初期可能一个智慧三角，然后流程中收集三角力量，上限就4个</blockquote>
+trailer 里一开始是 3 个，中途变成了 4 个，不知道最终是多少（不过如果太多的话，tri 后面的尾巴会特别长，谨慎猜测不会太多
+
+*****
+
+####  Junakr  
+##### 163#       发表于 2024-6-19 10:57
+
+妖精初次登场给复制杖就带三个角的，总不能还缩回去不给用。
+
+*****
+
+####  karastar  
+##### 164#       发表于 2024-6-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65295002&amp;ptid=2188108" target="_blank">lilod 发表于 2024-6-19 10:56</a>
+
+trailer 里一开始是 3 个，中途变成了 4 个，不知道最终是多少（不过如果太多的话，tri 后面的尾巴会特别 ...</blockquote>
+我也是猜测，毕竟三角力量的图案就是四个三角
+

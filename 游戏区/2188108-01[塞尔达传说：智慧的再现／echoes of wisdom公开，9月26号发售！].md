@@ -2160,3 +2160,48 @@ zeltik 的解析视频出了，感兴趣的可以瞅瞅
 还是青沼监督？这人这么大年纪哪来的这么多精力。</blockquote>
 青沼只是IP负责人出来卖脸把，应该不会管
 
+
+*****
+
+####  Linkwjj  
+##### 222#       发表于 2024-6-19 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293510&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-19 09:26</a>
+
+大家想好新作的简称叫什么了吗，野炊林，王泪林，天剑林，借物塞或者再现塞这种
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+智杖塞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Linkwjj  
+##### 223#       发表于 2024-6-19 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294551&amp;ptid=2188108" target="_blank">karastar 发表于 2024-6-19 10:30</a>
+
+Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
+财务良好的时候给订单就好了，财务不良了在考虑收购，或者直接让破产了然后把人塞进mono打工（参见阿尔法梦）<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJOROY  
+##### 224#       发表于 2024-6-19 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292319&amp;ptid=2188108" target="_blank">岸波 发表于 2024-6-19 04:43</a>
+
+织梦岛引擎宁可做公主新作都不出果实hd,我猜卡普空肯定在果实的版权上不做人了
+
+—— 来自 vivo V2118A, An ...</blockquote>
+卡普空那几作就是单纯的外包代工， 压根就没有版权
+
+*****
+
+####  karastar  
+##### 225#       发表于 2024-6-19 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65303939&amp;ptid=2188108" target="_blank">Linkwjj 发表于 2024-6-19 22:19</a>
+
+财务良好的时候给订单就好了，财务不良了在考虑收购，或者直接让破产了然后把人塞进mono打工（参见阿尔法 ...</blockquote>
+任天堂说应对开发规模扩大要增加开发团队，建议早收购<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

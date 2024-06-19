@@ -16394,3 +16394,137 @@ nga专楼和你楼唯一的共同点就是日常在骂go吧那些整天想着复
 
 是喜事 
 
+
+*****
+
+####  rikaren  
+##### 17638#       发表于 2024-6-20 00:37
+
+<blockquote>相坂君 发表于 2024-6-20 00:35
+我还处在劝良家放下自尊下海，圣**/白月光救风尘的版本
+
+现在版本已经到10年前韩剧的剧情，都有受伤了，那车 ...</blockquote>
+nga走廊之前盛产的“劲”二创不是死人都一大堆吗？
+
+*****
+
+####  PDQ4  
+##### 17639#       发表于 2024-6-20 00:55
+
+以前韩剧兴那套车祸癌症失忆，一方面是不需要理由可以增加“虐点”和矛盾，再一个是为了物理虐主角，精神虐一下对象，增进感情卖卖cp，属于不需要思考的路径依赖。
+
+鸡狗的这些感觉要么噱头，要么就是真纯恨，感觉真不如韩剧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17640#       发表于 2024-6-20 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305121&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 00:37</a>
+
+nga走廊之前盛产的“劲”二创不是死人都一大堆吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那时候的“死”偏向于为了死而死，之后真搞韩剧向狗血，颇有种嘲讽小时代，成为小时代，超越小时代的美！
+
+
+*****
+
+####  -LYRE-  
+##### 17641#       发表于 2024-6-20 01:20
+
+ 本帖最后由 -LYRE- 于 2024-6-20 01:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304723&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-19 23:43</a>
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
+前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/c24c8549495492948550aa7694058c4b/image.jpg" referrerpolicy="no-referrer">
+
+以及某些狗批日常拿狗动画播完的销量踩头鸡动画还没出的销量，嘲你鸡糊、“票卖不出去”、“mygo下位替代”等等，也没少拉老团数据对比嘚瑟
+现在各项数据被gbc反超了轮到狗批被人用数据踩头了就急了，又开始扯邦大旗要“一致对外”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  skives10  
+##### 17642#       发表于 2024-6-20 01:32
+
+看到mujica翻车至少还能理解 乐队嘛 总要出问题的
+看到mujica被狗团吊打翻车 这个真的是哄堂大笑了 忍不住怜悯对方的智商<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 17643#       发表于 2024-6-20 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305324&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-6-20 01:20</a>
+
+前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言</blockquote>
+只能说我原本不支持鸡狗对邦的，因为我还得听杨姐唱歌，个人感觉有点难受
+
+现在只能狠狠支持了，毕竟已经贷款被吊打了，那不得现场围观一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17644#       发表于 2024-6-20 05:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304723&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-19 23:43</a>
+
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
+懂不懂一些人眼裡的“go團附屬品ave mujica”含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17645#       发表于 2024-6-20 05:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305090&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-20 00:30</a>
+
+nga专楼和你楼唯一的共同点就是日常在骂go吧那些整天想着复辟然后踩一脚狗团/鸡团感情不好的c团姨姥 ...</blockquote>
+哇哦 終於有go粉不爽C團遺老了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是喜事 
+
+*****
+
+####  PDQ4  
+##### 17646#       发表于 2024-6-20 06:51
+
+ 本帖最后由 PDQ4 于 2024-6-20 06:54 编辑 
+
+老糖新吃，官方没东西只能反刍了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+联系一下幕间海铃希望被看到，睦说我看到了
+
+唉夸人眼睛漂亮真的是，可以逆输入一下吗，睦海赶紧抬上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/20/064843wfufpm5hbggvy1o1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 06:48 上传
+
+syl，和朋友讨论了一下，渡濑在D5J推日高さおり，动画播出期间寥寥无几针对角色的反应里提到两次喵梦，渡濑是喵厨可能性存疑，睦喵也抬上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

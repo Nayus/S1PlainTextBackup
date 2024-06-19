@@ -1967,3 +1967,15 @@ this way~
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 20357#       发表于 2024-6-19 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292801&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-19 08:21</a>
+[https://bbs.nga.cn/read.php?tid=40579305&amp;_fp=9](https://bbs.nga.cn/read.php?tid=40579305&amp;_fp=9)
+
+this way~</blockquote>
+thanks
+

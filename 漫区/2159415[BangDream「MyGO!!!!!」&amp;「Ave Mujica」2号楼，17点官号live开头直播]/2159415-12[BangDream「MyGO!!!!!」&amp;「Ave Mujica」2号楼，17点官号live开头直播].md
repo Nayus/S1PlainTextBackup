@@ -16087,3 +16087,37 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 这立希对自己部分有点难蚌了，有种舔狗的感觉……</blockquote>
 立希对爱音和soyo的语音简直笑死，写这个的脑子里到底怎么想的，就算是一年前就实装了的废案也不至于写出这种鬼东西吧，邦前面七个团也没有这种情况。
 
+
+*****
+
+####  极速赛车手  
+##### 17606#       发表于 2024-6-19 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17607#       发表于 2024-6-20 00:00
+
+<blockquote>极速赛车手 发表于 2024-6-19 23:59
+你们真觉得对春日影念念不忘的是团粉吗，哪家的团粉天天悼念一个死掉的背景团 ...</blockquote>
+惦记春日影归属的那好像还真有。
+
+不过梗小鬼占比也不低就是了。
+
+
+*****
+
+####  PDQ4  
+##### 17608#       发表于 2024-6-20 00:02
+
+这语音看了好难蚌，怎么有3个人这么工整<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17609#       发表于 2024-6-20 00:03
+
+看好梗小鬼明年破大防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4710,3 +4710,21 @@ zng最爱男娘
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kangkangsama  
+##### 413#       发表于 2024-6-19 14:16
+
+<img src="https://img.saraba1st.com/forum/202406/19/141525uyrzehtkeezt9ehr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4363.jpeg</strong> (216 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 14:15 上传
+
+有的队友已经两张幼年卡/幼年箱活了
+
+楼主怎么连个幼年立绘都没有啊
+

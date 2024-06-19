@@ -1950,3 +1950,37 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 
 希望后期能换装，兜帽还是太违和了
 
+
+*****
+
+####  蕾丝控  
+##### 203#       发表于 2024-6-19 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293510&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-19 09:26</a>
+
+大家想好新作的简称叫什么了吗，野炊林，王泪林，天剑林，借物塞或者再现塞这种
+
+  -- 来自 能搜索的 Stage ...</blockquote>
+林克传说
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小姜不辣  
+##### 204#       发表于 2024-6-19 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65298459&amp;ptid=2188108" target="_blank">星花 发表于 2024-6-19 14:41</a>
+|加隆要毁灭世界是因为无法成为女性?-_-||</blockquote>|
+加农一直想成为女性，于是转世时许愿成为格鲁德人，结果成了一百年才有一个的格鲁德男性，换我我也想毁灭世界<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KBAC  
+##### 205#       发表于 2024-6-19 14:56
+
+倒三角是另一个世界的三角力量，希尔达公主和拉维欧登场可能性up。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -11617,3 +11617,52 @@ saki这新衣服也不好看啊。
 
 人家简凛世也有理由说的，人家SCSP+S卡双料冠军，你什么冠军？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ask_10A  
+##### 5527#       发表于 2024-6-19 14:48
+
+太无敌了美琴这张卡，无敌的卡面，无敌的暮光婚纱池
+
+0WYCWDG5[KDRYVPZUDD1.jpg
+(70.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 14:47 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/144721fr9ikpp5c95g98gz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黛冬优子  
+##### 5528#       发表于 2024-6-19 14:52
+
+笑她
+
+<img src="https://img.saraba1st.com/forum/202406/19/145202lddygrltpzcjdjjf.png" referrerpolicy="no-referrer">
+
+<strong>TOCQ7EO0XQU_{LJ)BD5$ONB.png</strong> (24.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/145202g4kutnu3no0fo3un.png" referrerpolicy="no-referrer">
+
+<strong>)NPC157XW9_]Q8E]O4NNS0L.png</strong> (258.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/19/145202nxw1r98wpopraeli.png" referrerpolicy="no-referrer">
+
+<strong>ZP2Y{113H~YIL9}SPPS]S8R.png</strong> (247.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 14:52 上传
+

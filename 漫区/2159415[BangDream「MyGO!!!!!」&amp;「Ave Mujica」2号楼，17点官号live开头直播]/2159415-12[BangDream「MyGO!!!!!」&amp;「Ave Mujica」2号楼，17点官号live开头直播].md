@@ -15968,3 +15968,19 @@ earth应该会在7.7之前公开吧
 
 这个放流了
 
+
+*****
+
+####  芜湖挨宰  
+##### 17595#       发表于 2024-6-19 21:42
+
+所以现在手头三个版本了：
+
+[Nekomoe kissaten&amp;VCB-Studio] BanG Dream! It’s MyGO!!!!! [Ma10p_1080p]\
+
+[AI-Raws&amp;ANK-Raws][BanG Dream! It's MyGO!!!!!]\
+
+[LPSub&amp;LP-Raws] BanG Dream! It's MyGO!!!!! [Ma10p_1080p][REV]\
+
+字幕推荐哪家的？
+

@@ -1514,3 +1514,11 @@ p系列开始玩阿特拉斯的，准备从复仇开始试试真女神
 
 —— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ftfkjb  
+##### 156#       发表于 2024-6-19 21:36
+
+这个系列每次都能被吸引，但玩不深入，vv不知有什么门槛。
+

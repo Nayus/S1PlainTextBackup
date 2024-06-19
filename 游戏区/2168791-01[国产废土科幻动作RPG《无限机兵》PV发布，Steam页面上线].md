@@ -490,3 +490,13 @@
 采访《无限机兵》制作人：线上DEMO准备中
 [https://weibo.com/ttarticle/x/m/show#/id=2309405046989401489668](https://weibo.com/ttarticle/x/m/show#/id=2309405046989401489668)
 
+
+*****
+
+####  kyonkoism  
+##### 52#         楼主| 发表于 2024-6-19 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">好耶 要有demo玩了 手感能达到噬血代码同级别砍纸片就算成功
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

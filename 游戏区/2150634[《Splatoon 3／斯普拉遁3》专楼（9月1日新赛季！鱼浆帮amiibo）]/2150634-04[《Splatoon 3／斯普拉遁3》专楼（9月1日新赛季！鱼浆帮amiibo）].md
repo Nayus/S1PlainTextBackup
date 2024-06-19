@@ -3216,3 +3216,14 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  藏獒·烨  
+##### 4757#       发表于 2024-6-19 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65291129&amp;ptid=2150634" target="_blank">Junchoon 发表于 2024-6-19 00:03</a>
+
+上周末用狙打DLC一直到30层才挂，我以为我行了，就拿狙去打涂地，结果整整一小时都没赢过...... ...</blockquote>
+我玩狙手感好的时候也还是输，后来就想通了，自己狙爽了就行
+

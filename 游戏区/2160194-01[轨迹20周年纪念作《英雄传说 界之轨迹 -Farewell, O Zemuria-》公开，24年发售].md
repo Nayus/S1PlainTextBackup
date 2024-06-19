@@ -4096,3 +4096,14 @@ pc一般比主机版晚多久？
 
 [https://b23.tv/P8KQqGk](https://b23.tv/P8KQqGk)
 
+
+*****
+
+####  卢迪克  
+##### 431#       发表于 2024-6-19 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292838&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-19 08:25</a>
+
+这周是黎轨2专场，eshop预购开启，nd播片，周六日大阪提供试玩。</blockquote>
+不出所料，买了nd就没买法米通了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

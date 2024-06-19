@@ -292,3 +292,11 @@ E27ED1DB-57D1-48A2-9ED2-BC5A3B5C383A.jpeg
 由奈须蘑菇老师担任总监修、Fate系列全新动作RPG《Fate/Samurai Remnant》第3部DLC《断章・白龙红鬼演义》 ...</blockquote>
 PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
+
+*****
+
+####  长谷川红叶  
+##### 1787#       发表于 2024-6-20 02:38
+
+<img src="https://p.sda1.dev/18/025cbf948394b8e6ee45eb9b5f116b83/image.jpg" referrerpolicy="no-referrer">东出实在不行问菌皇要个宝具名吧，不丢人的。
+

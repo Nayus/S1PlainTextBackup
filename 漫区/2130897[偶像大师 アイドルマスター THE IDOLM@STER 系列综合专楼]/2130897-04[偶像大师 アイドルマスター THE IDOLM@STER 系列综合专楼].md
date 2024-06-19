@@ -11753,3 +11753,13 @@ saki这新卡剧情也太直球了吧
 
 卧槽美琴暮光婚纱，卧槽卧槽
 
+
+*****
+
+####  Alleyht  
+##### 5537#       发表于 2024-6-19 18:54
+
+唉，小高nmsl，抽完美琴才反应过来没有Vi日花能用，只能赌一手后面平行日花是Vi了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全体札也要满星才有，小高还是吃的太饱了
+
+而且这技能里有个带米组的是明示掺儿力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

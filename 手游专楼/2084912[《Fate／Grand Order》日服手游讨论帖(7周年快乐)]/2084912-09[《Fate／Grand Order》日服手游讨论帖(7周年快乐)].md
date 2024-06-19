@@ -707,3 +707,11 @@ fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/im
 
 我是道满+杀阶李大师，都是不用buff直接宝具即死的
 
+
+*****
+
+####  alucardcz  
+##### 12870#       发表于 2024-6-19 17:03
+
+ios没有版本更新？
+

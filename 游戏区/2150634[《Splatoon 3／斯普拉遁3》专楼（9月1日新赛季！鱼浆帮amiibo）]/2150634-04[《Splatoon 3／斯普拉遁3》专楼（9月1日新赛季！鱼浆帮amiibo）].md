@@ -3190,3 +3190,29 @@ max三岗过了，仍旧没有金
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  shirolin  
+##### 4755#       发表于 2024-6-19 16:59
+
+<img src="https://img.saraba1st.com/forum/202406/19/165933ybngr8trx3zgmzb7.jpg" referrerpolicy="no-referrer">
+
+<strong>20240619_082115.jpg</strong> (121.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-19 16:59 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4756#       发表于 2024-6-19 17:03
+
+这代就这样了吧，epd5内部大概就把这代当成一个过渡作品
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

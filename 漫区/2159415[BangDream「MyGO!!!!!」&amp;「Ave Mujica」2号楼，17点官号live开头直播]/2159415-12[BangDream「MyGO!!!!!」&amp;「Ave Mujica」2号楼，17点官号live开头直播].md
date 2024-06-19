@@ -15906,3 +15906,11 @@ nga没活了，车这个车那个永远在轮回，车的内容也基本差不�
 武士道祖传 x264 原盘，其中正片和 NCOP 还附带众所周知的错误 range 导致画面整体颜色出错的问题。修了 range，做了 806p 的 Bilinear 的重新拉伸，以及常规的去色带、抗锯齿、去振铃操作。考虑到原盘暗场效果不理想，加之噪点对邦邦三渲二的画风观感影响极小，采取了力度稍强的降噪手段。</blockquote>
 [https://share.dmhy.org/topics/vi ... HEVC_BDRip_Fin.html](https://share.dmhy.org/topics/view/672414_Production_VCB-Studio_BanG_Dream%21_It_s_MyGO%21%21%21%21%21_10-bit_1080p_HEVC_BDRip_Fin.html)
 
+
+*****
+
+####  rikaren  
+##### 17589#       发表于 2024-6-19 17:01
+
+earth应该会在7.7之前公开吧
+

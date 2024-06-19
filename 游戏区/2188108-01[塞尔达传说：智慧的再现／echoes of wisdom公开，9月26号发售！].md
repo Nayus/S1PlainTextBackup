@@ -2133,3 +2133,30 @@ zeltik 的解析视频出了，感兴趣的可以瞅瞅
 
 无双转正（
 
+
+*****
+
+####  Linkwjj  
+##### 220#       发表于 2024-6-19 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292319&amp;ptid=2188108" target="_blank">岸波 发表于 2024-6-19 04:43</a>
+
+织梦岛引擎宁可做公主新作都不出果实hd,我猜卡普空肯定在果实的版权上不做人了
+
+—— 来自 vivo V2118A, An ...</blockquote>
+我觉得是末期新作拉一点销量，复刻留给下一代机器填档期。
+
+卡表关系这么好，应该不会卡，连藤林都给过去了藤林的作品何必卡着呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+另外果实的著作权可能卡表都没有的，我记得Copyright只写了任天堂
+
+*****
+
+####  Linkwjj  
+##### 221#       发表于 2024-6-19 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293487&amp;ptid=2188108" target="_blank">back57992 发表于 2024-6-19 09:25</a>
+
+还是青沼监督？这人这么大年纪哪来的这么多精力。</blockquote>
+青沼只是IP负责人出来卖脸把，应该不会管
+

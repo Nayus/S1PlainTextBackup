@@ -2231,3 +2231,18 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 一直感觉织梦岛才出不久，查了一下居然已经过了5年
 
+
+*****
+
+####  Linkwjj  
+##### 228#       发表于 2024-6-20 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305001&amp;ptid=2188108" target="_blank">holomoon 发表于 2024-6-20 00:20</a>
+
+代工的有没有版权，一切要看当初的合同，有没有给够钱
+
+代工不可避免会有大量内容是代工厂商出的设定，这部 ...</blockquote>
+以果实的内容来说分开卖不会被骂，确实是2作的内容量，一张任亏券刚好非常合适
+
+只要宣发不要拉跨导致理解错误就行
+

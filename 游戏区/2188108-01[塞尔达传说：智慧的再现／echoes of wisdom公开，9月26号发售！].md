@@ -2080,3 +2080,11 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  thez  
+##### 216#       发表于 2024-6-19 18:13
+
+放新机玩总不能掉帧吧
+

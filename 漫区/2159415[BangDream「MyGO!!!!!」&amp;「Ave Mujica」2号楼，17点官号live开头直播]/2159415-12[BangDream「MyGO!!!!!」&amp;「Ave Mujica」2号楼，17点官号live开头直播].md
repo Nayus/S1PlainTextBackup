@@ -15924,3 +15924,16 @@ earth应该会在7.7之前公开吧
 
 而且别画成鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17591#       发表于 2024-6-19 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293444&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-6-19 09:22</a>
+
+很难评都一年了还在分锅的人是什么思维…
+
+论坛助手,iPhone</blockquote>
+別分鍋了，CCC解散是好事，應該分功才對<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

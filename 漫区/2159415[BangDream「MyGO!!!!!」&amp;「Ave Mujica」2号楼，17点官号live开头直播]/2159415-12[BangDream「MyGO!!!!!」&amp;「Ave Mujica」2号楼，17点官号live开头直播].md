@@ -16370,3 +16370,14 @@ nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷�
 
 现在只能狠狠支持了，毕竟已经贷款被吊打了，那不得现场围观一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17636#       发表于 2024-6-20 05:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304723&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-19 23:43</a>
+
+nga部分人眼里的鸡不就是爆炸了给狗和c团当垫子的，早就贷款鸡动画大爆特爆然后狗进场开始救人，最后c团 ...</blockquote>
+懂不懂一些人眼裡的“go團附屬品ave mujica”含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

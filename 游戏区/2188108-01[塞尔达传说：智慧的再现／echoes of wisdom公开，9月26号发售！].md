@@ -2275,3 +2275,13 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 类似刚公布的逆转检察官复刻，也是2部作品，你觉得卡表为啥不分开卖，卡表又不傻
 
+
+*****
+
+####  岸波  
+##### 231#       发表于 2024-6-20 05:09
+
+既然本作大地图框架用的是众神，那是不是可以期待一下表里双地图<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -15743,3 +15743,13 @@ NGA日常爆典</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星天观测  
+##### 17573#       发表于 2024-6-19 09:35
+
+nga没活了，车这个车那个永远在轮回，车的内容也基本差不多，每个角色车一边然后再见缝插针鸡必定爆炸要靠狗救，最后来个十人春日影
+
+只能说滚车轱辘话或许就是这么开心吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

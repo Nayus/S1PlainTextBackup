@@ -1166,3 +1166,26 @@ a8c52c9cab5a9863b88cc9a898ee5b38.png
 
 没玩过真女，看看
 
+
+*****
+
+####  d79bd7b34f39d3c  
+##### 113#       发表于 2024-6-19 09:25
+
+atlus，启动
+
+
+*****
+
+####  林漠俪  
+##### 114#       发表于 2024-6-19 09:30
+
+只玩过p系列，想试试smt，没玩过<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xlent  
+##### 115#       发表于 2024-6-19 09:33
+
+这代ns无印性能上有点问题，新的版本看着好多了
+

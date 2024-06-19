@@ -645,3 +645,19 @@ fgo未来有三国活动应该稳了吧<img src="https://static.saraba1st.com/im
 毛都没有
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意料之中，只能说歪常驻也是出五星，水位归零就是如此全麻
 
+
+*****
+
+####  poor  
+##### 12863#       发表于 2024-6-19 09:27
+
+白纸冰块本道满到底能不能即死一面的？我看节奏榜那个网写80%即死率，但是组队推荐，也没见放别的技能（2面50%即死率加了个王哈技能），被克制也不像能物理即死的样子，还是默认你们都会用即死服？
+
+
+*****
+
+####  cenhr  
+##### 12864#       发表于 2024-6-19 09:31
+
+丑爆了的常山赵子龙，光荣的三国志11代虽然问题不少，但至少云哥年轻时英气焕发，或者老年时的老当益壮都比这红发渣二脸像话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

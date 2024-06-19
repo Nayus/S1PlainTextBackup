@@ -743,3 +743,48 @@ ios没有版本更新？
 这新活动预告难道不是龙娘么....怎么龙娘的那么多马甲一个加成角色都没有</blockquote>
 乙姬，怎么想都是浦岛太郎那个乙姬，怎么会想到龙娘的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 12874#       发表于 2024-6-19 17:39
+
+ 本帖最后由 Jamaisvu 于 2024-6-19 17:40 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/19/173534bzvb2rhbvzt666vt.png" referrerpolicy="no-referrer">
+
+<strong>1718789724164.png</strong> (83.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-19 17:35 上传
+
+深海公主和宝玉，活动角色有金时、清少纳言、紫式部、铃鹿、喵玉这些日系从者，应该是浦岛太郎的故事。
+
+不过想整活的话也许可以缝一些克系的东西？
+
+
+*****
+
+####  シャル  
+##### 12875#       发表于 2024-6-19 17:43
+
+深海公主当然是乙姫啊，本体是龟的那个
+
+*****
+
+####  Jamaisvu  
+##### 12876#       发表于 2024-6-19 17:47
+
+<img src="https://img.saraba1st.com/forum/202406/19/174613ocvoww9cxvpbq11o.png" referrerpolicy="no-referrer">
+
+<strong>1718790335807.png</strong> (169.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-19 17:46 上传
+
+怎么才五个6啊，哦对了，战续回600血。这强化厉害了，666。
+

@@ -1581,3 +1581,13 @@ vv是真的不错就是ns太卡 等一个中奖
 关注挺久了，但ns看着画质不行就没买，现在上pc该入手了。
 老实说我还是最喜欢恶魔幸存者，这个系列还有机会重启吗
 
+
+*****
+
+####  red2077  
+##### 164#       发表于 2024-6-20 05:45
+
+vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

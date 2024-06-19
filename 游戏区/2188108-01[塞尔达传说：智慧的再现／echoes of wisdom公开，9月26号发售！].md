@@ -2028,3 +2028,23 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 我也是猜测，毕竟三角力量的图案就是四个三角</blockquote>
 标题logo那根杖上面是四个大三角三个小三角
 
+
+*****
+
+####  帝蓝  
+##### 211#       发表于 2024-6-19 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65293931&amp;ptid=2188108" target="_blank">蓮華 发表于 2024-6-19 09:53</a>
+
+希望这次转场景的时候别再掉帧了，时隔许久的2D作品我很期待的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">虚幻引擎的问题 无解
+
+你看无主之地3换地图也一样 
+
+*****
+
+####  佛罗伦萨  
+##### 212#       发表于 2024-6-19 16:05
+
+感觉最终boss应该是林塞合作打的
+

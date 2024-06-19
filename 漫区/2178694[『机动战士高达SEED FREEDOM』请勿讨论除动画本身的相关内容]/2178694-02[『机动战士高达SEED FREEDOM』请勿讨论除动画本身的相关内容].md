@@ -2838,3 +2838,37 @@ loliBBA的药本来就是为了延缓PLANT人的衰老延缓人口减少而开�
 
 FT装甲不是防光束的吗？为什么大姐头能砍了一个黑骑士？
 
+
+*****
+
+####  pokemon最爱  
+##### 1714#       发表于 2024-6-19 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300947&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-6-19 17:29</a>
+
+FT装甲不是防光束的吗？为什么大姐头能砍了一个黑骑士？</blockquote>
+防光枪光炮不防光剑<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光焰天下第一  
+##### 1715#       发表于 2024-6-19 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65280006&amp;ptid=2178694" target="_blank">月夜凝雪 发表于 2024-6-18 10:38</a>
+
+V：我不是，我没有，别乱说
+
+X：我不是，我没有，别乱说
+
+T：我不是，我没有，别乱说</blockquote>
+机战为啥不出新作了啊，不会完蛋了吧....悲伤...
+
+*****
+
+####  永恒的王牌  
+##### 1716#       发表于 2024-6-19 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65300947&amp;ptid=2178694" target="_blank">欧金金 发表于 2024-6-19 17:29</a>
+FT装甲不是防光束的吗？为什么大姐头能砍了一个黑骑士？</blockquote>
+FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌炮都能击坠一个
+

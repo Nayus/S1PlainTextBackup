@@ -788,3 +788,14 @@ ios没有版本更新？
 
 怎么才五个6啊，哦对了，战续回600血。这强化厉害了，666。
 
+
+*****
+
+####  シャル  
+##### 12877#       发表于 2024-6-19 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65301072&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-6-19 17:39</a>
+
+深海公主和宝玉，活动角色有金时、清少纳言、紫式部、铃鹿、清姬、喵玉这些日系从者，应该是浦岛太郎的故 ...</blockquote>
+按传说她本身就是神兽啊，不用缝
+

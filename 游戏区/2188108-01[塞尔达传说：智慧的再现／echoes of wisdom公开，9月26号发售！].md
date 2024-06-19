@@ -2017,3 +2017,14 @@ PV来看，精灵头上的辫子由三个或者四个到三角组成，复制能
 
 天剑塞，野炊塞，回响塞，都是两个字挺对称的
 
+
+*****
+
+####  Lisylfn  
+##### 210#       发表于 2024-6-19 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65295034&amp;ptid=2188108" target="_blank">karastar 发表于 2024-6-19 10:58</a>
+
+我也是猜测，毕竟三角力量的图案就是四个三角</blockquote>
+标题logo那根杖上面是四个大三角三个小三角
+

@@ -11771,3 +11771,17 @@ saki这新卡剧情也太直球了吧
 
 皮卡丘这新衣服太生草了，你要去干嘛
 
+
+*****
+
+####  wfhtony  
+##### 5539#       发表于 2024-6-19 20:23
+
+<img src="https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/PA00156478.jpg" referrerpolicy="no-referrer">
+
+　作詞・編曲：KENTZ
+
+　作曲：KENTZ, ERECA
+
+　歌：花海咲季 (CV. 長月あおい)</blockquote>
+

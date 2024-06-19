@@ -16191,3 +16191,61 @@ bangdream its mygo season2！<img src="https://static.saraba1st.com/image/smiley
 <blockquote>mygo第二季13集动画，6集c团+1鸡爆炸+6集狗收尾救人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不错了，还留了一集给鸡演爆炸，我还以为得抠半集还给mygo做live，毕竟13集占了人家半集呢
 
+
+*****
+
+####  Aendst  
+##### 17617#       发表于 2024-6-20 00:19
+
+已知祥子不想听春日影，睦听春日影基本没有反应，初华海铃喵梦无人知道春日影，立希是作曲担当而且积极认真负责，猫和爱音对春日影也并不很熟，爽姐春日影过敏
+
+为什么会有人贷款十人春日影呢
+
+*****
+
+####  星天观测  
+##### 17618#       发表于 2024-6-20 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304982&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-6-20 00:17</a>
+
+不错了，还留了一集给鸡演爆炸，我还以为得抠半集还给mygo做live，毕竟13集占了人家半集呢 ...</blockquote>
+这不是占了半集还了6集嘛，鸡杂知道错咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17619#       发表于 2024-6-20 00:19
+
+mygo才一集c团 mujica六集c团 鉴定为脑子坏了
+
+*****
+
+####  鳥栖朝  
+##### 17620#       发表于 2024-6-20 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65304982&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-06-20 00:17:57</a>
+不错了，还留了一集给鸡演爆炸，我还以为得抠半集还给mygo做live，毕竟13集占了人家半集呢 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rikaren  
+##### 17621#       发表于 2024-6-20 00:23
+
+nga专楼环境还不错，走廊就别想了，随机刷新梗小鬼和引战的（上次有个莫名其妙拉踩gbc和水母的楼，楼主查成分就是爆典祥子压力不如立希熬夜作曲的）。
+
+go吧更是随机刷新各路高手，上个月就看到个骂赛博小祥写的好像蝶团才是mujica的姐妹团，转身另外一个帖子里就在推逆行和修罗场的神奇生物。
+
+更不用提猫猫中之人会钢琴，那么剧情有没有可能祥子手伤，海铃找立希求助最后猫猫顶替了祥子，祥子只能场下看着自己被顶替的屎了，紫吧这种厕所恐怕都想不出来这种屎。
+
+
+*****
+
+####  Aendst  
+##### 17622#       发表于 2024-6-20 00:26
+
+<blockquote>rikaren 发表于 2024-6-20 00:23
+nga专楼环境还不错，走廊就别想了，随机刷新梗小鬼和引战的（上次有个莫名其妙拉踩gbc和水母的楼，楼主查成 ...</blockquote>
+群猩闪耀之时
+

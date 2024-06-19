@@ -1645,3 +1645,40 @@ trailer 里一开始是 3 个，中途变成了 4 个，不知道最终是多少
 
 从野炊以来的思路，肯定要照顾大部分用床通关的人了
 
+
+*****
+
+####  760194962  
+##### 172#       发表于 2024-6-19 11:40
+
+整个PV看起来最糟糕的就是那个选素材的菜单，看得我浑身冒汗
+
+*****
+
+####  foggyflower  
+##### 173#       发表于 2024-6-19 11:41
+
+这系统肯定好玩啊。
+
+以前是一个一个解锁能力，这个本质上就替换成新的可复制物品/怪物成了解锁/升级能力，可拓展性更强了
+
+*****
+
+####  Cres  
+##### 174#       发表于 2024-6-19 11:41
+
+看播片时稍微兴奋了一下，看演示顿时觉得没意思。有复制能力关卡设计难度就起不来，可复制物多了后选择时操作麻烦，最后就是常驻一套通用性强的组合无脑偷鸡。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  a317216007  
+##### 175#       发表于 2024-6-19 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65295889&amp;ptid=2188108" target="_blank">760194962 发表于 2024-6-19 11:40</a>
+整个PV看起来最糟糕的就是那个选素材的菜单，看得我浑身冒汗</blockquote>
+那个菜单不就是野炊王泪经典菜单，找素材找一万年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

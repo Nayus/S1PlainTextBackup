@@ -1391,3 +1391,50 @@ QQ图片20240619090804.jpg
 2D 塞尔达都是给青沼放松的，不用担心他</blockquote>
 应该是马里奥一样2d和3D分两个不同组
 
+
+*****
+
+####  航母掉头  
+##### 146#       发表于 2024-6-19 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292986&amp;ptid=2188108" target="_blank">beer 发表于 2024-6-19 08:46</a>
+
+王泪已经让我觉得加农是异装癖了</blockquote>
+主人（海利亚女神）的任务罢了
+
+*****
+
+####  佛罗伦萨  
+##### 147#       发表于 2024-6-19 10:21
+
+我记得之前有人分析过，王泪的工作人员名单里少了几个epd3的人，当时就猜测这些人去做另一个项目了。
+
+所以初步猜测是这几个人带着Grezzo做的
+
+
+*****
+
+####  绿冰  
+##### 148#       发表于 2024-6-19 10:23
+
+<blockquote>lilod 发表于 2024-6-19 10:04
+2D 塞尔达都是给青沼放松的，不用担心他</blockquote>
+放松都算不上，他只出镜宣传，基本不参与制作的
+
+*****
+
+####  kuarwbwe  
+##### 149#       发表于 2024-6-19 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294262&amp;ptid=2188108" target="_blank">ubiquity 发表于 2024-6-19 10:14</a>
+
+那不会，因为就国内嚷嚷dlc的并且玩过众神的真的多吗</blockquote>
+那肯定不多。国内不少新鲜血液，尤其是小仙女，估计只玩过野炊、王泪。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thez  
+##### 150#       发表于 2024-6-19 10:26
+
+我还是等新机出了在新机玩吧，也不差这几个月
+

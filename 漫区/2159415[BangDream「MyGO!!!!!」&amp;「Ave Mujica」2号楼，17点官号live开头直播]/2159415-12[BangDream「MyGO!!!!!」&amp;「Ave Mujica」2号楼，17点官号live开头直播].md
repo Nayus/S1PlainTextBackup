@@ -16327,3 +16327,14 @@ nga走廊之前盛产的“劲”二创不是死人都一大堆吗？
 
 鸡狗的这些感觉要么噱头，要么就是真纯恨，感觉真不如韩剧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 17632#       发表于 2024-6-20 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305121&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 00:37</a>
+
+nga走廊之前盛产的“劲”二创不是死人都一大堆吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那时候的“死”偏向于为了死而死，之后真搞韩剧向狗血，颇有种嘲讽小时代，成为小时代，超越小时代的美！
+

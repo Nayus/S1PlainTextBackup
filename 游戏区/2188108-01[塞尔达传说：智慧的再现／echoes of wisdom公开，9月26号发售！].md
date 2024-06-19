@@ -2285,3 +2285,16 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 —— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  _cvb_tassdar  
+##### 232#       发表于 2024-6-20 07:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305001&amp;ptid=2188108" target="_blank">holomoon 发表于 2024-6-20 00:20</a>
+
+代工的有没有版权，一切要看当初的合同，有没有给够钱
+
+代工不可避免会有大量内容是代工厂商出的设定，这部 ...</blockquote>
+大地企划早期其实是仨部曲，目前版本已经是砍了，真要重制应该改回三部曲。
+

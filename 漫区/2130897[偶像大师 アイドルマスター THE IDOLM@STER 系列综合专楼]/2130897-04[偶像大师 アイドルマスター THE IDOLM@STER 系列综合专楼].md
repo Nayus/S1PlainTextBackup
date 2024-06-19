@@ -11533,3 +11533,14 @@ mora上面卖的hires版也是混得一坨，有种电音部混多了不会混�
 
 saki这新衣服也不好看啊。
 
+
+*****
+
+####  Unlight  
+##### 5519#         楼主| 发表于 2024-6-19 13:00
+
+伟大的绯田美琴终于夺回了被高嗨亏欠的冠军！
+<img src="https://p.sda1.dev/18/0e9a684cc2a3c14e75dc9bb4e2a013d3/mvQn09g-6uazK21T1kSe2-t3.jpg" referrerpolicy="no-referrer">
+
+另，查询斑鸠女士心理状态
+

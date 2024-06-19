@@ -11763,3 +11763,11 @@ saki这新卡剧情也太直球了吧
 
 而且这技能里有个带米组的是明示掺儿力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 5538#       发表于 2024-6-19 19:50
+
+皮卡丘这新衣服太生草了，你要去干嘛
+

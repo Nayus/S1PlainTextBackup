@@ -2924,3 +2924,16 @@ FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌
 
 按机战说是，Beam减伤1500？
 
+
+*****
+
+####  cxj649  
+##### 1721#       发表于 2024-6-19 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65302155&amp;ptid=2178694" target="_blank">シャル 发表于 2024-6-19 19:19</a>
+
+议长是野心家，他对拉克丝老爸那套根本不敢兴趣，混进派阀唯一目的就是实现命运计划 ...</blockquote>
+我知道，我是说部分人以为“克莱因派”是独立外部组织似的
+
+认为狐狸是“正统”
+

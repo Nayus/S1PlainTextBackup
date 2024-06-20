@@ -1689,3 +1689,11 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 真能抽到吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闽明  
+##### 176#       发表于 2024-6-20 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">原版没玩，可让我等到了
+

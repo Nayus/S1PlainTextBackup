@@ -718,3 +718,98 @@ mijica这个25年1月确实有点太长了，等的很难受
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  NODY  
+##### 17828#       发表于 2024-6-20 18:46
+
+DJ刚被wsd送出去就安排武道馆了，还是wsd能力不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/20/184632o44gzg2mggggzmo9.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQn4h0-fojhK1xT3cSsg-el.jpg</strong> (68.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 18:46 上传
+
+*****
+
+####  PDQ4  
+##### 17829#       发表于 2024-6-20 18:47
+
+什么颠倒黑白，合着外面打架都是泥漏梦出来的，有没有可能wsd自己抽象完了就必定会打架
+
+wsd前科累累，抽象操作的发生概率就和鬼图爆诞概率一样，避无可避<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17830#       发表于 2024-6-20 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313857&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 18:37</a>
+你楼着了相了，巴不得打得越狠越好越爆越好，被投射的恶意越多就能切得越干净是吧 ...</blockquote>
+抱怨几句银河战舰翻船，鸡爆炸等一些踩头发言在你口中变成着相，顺便扣几个帽子
+还是你们会替人大度，被骂不能还嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17831#       发表于 2024-6-20 18:48
+
+看乐子就看乐子，还巴不得被投射恶意，鸡一点物料没有是事实，鸡杂声讨这一点说明不满没有物料，能被拐成巴不得鸡没物料了好爆个大的实属有点搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17832#       发表于 2024-6-20 18:50
+
+<blockquote>NODY 发表于 2024-6-20 18:46
+DJ刚被wsd送出去就安排武道馆了，还是wsd能力不行啊</blockquote>
+md，有希望坐满人吗，看到有玩d4dj的朋友在那里吐槽了。
+
+*****
+
+####  灵椿  
+##### 17833#       发表于 2024-6-20 18:50
+
+难道前面几楼很期待爆一下的发言是我臆想出来的吗
+
+*****
+
+####  御幸一也  
+##### 17834#       发表于 2024-6-20 18:52
+
+堵嘴理中客雖遲但到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17835#       发表于 2024-6-20 18:52
+
+鸡粉乐观会有料结果是被wsd干碎，悲观没有料会被嘲糊逼底边，转向骂wsd不端水会导致骂战，会被骂你们就是想看打架
+
+唉，洗脚婢
+
+直说鸡粉不配说话不就行了，没有物料没有广播没有小动画没有mv，现在底边团粉丝连话都不给说了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 17836#       发表于 2024-6-20 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313857&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 18:37</a>
+你楼着了相了，巴不得打得越狠越好越爆越好，被投射的恶意越多就能切得越干净是吧 ...</blockquote>
+点开主页好几位在隔壁跟gbc打得热火朝天的，
+怎么不普度众生劝劝他们不要“着相”呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+唯独逮着鸡粉传教是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17837#       发表于 2024-6-20 18:53
+
+首先是你楼起手，然后再是拿几楼举例，最后干干净净，真是臆臆又想想啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

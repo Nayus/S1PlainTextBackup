@@ -2298,3 +2298,13 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 代工不可避免会有大量内容是代工厂商出的设定，这部 ...</blockquote>
 大地企划早期其实是仨部曲，目前版本已经是砍了，真要重制应该改回三部曲。
 
+
+*****
+
+####  不见不散  
+##### 233#       发表于 2024-6-20 08:09
+
+谁再ky塞尔达传说主角不叫塞尔达就拿这个糊他脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

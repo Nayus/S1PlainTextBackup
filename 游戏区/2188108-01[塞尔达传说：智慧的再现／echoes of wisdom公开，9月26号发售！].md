@@ -2588,3 +2588,33 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 旷野之息和王国之泪更是约等于直接告诉你别纠结时间线了233，这次智慧的再现也是大混搭
 
+
+*****
+
+####  秦南心  
+##### 259#       发表于 2024-6-21 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65316283&amp;ptid=2188108" target="_blank">kinga 发表于 2024-6-20 21:50</a>
+
+这是梦幻岛的引擎继续用啊？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/21/012942uqlerlk2sdytasbe.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240621012945.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 01:29 上传
+
+感觉像织梦岛的渲染模块地图编辑器+之前野炊的2D原型demo
+
+
+*****
+
+####  M乔梦  
+##### 260#       发表于 2024-6-21 01:33
+
+我织梦岛的卡带不知道被我放哪去了，现在看到空壳子更加空虚了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

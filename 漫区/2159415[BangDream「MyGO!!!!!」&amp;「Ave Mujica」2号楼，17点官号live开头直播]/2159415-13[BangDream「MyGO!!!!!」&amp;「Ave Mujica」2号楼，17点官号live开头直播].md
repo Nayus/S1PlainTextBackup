@@ -1711,3 +1711,34 @@ water的氛围就像夏天的银河
 
 RAS的生放一如既往的好吵()<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17924#       发表于 2024-6-20 21:58
+
+下期
+
+<img src="https://img.saraba1st.com/forum/202406/20/215832gazaqq8csqc8nqx8.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #221 1-6-32 screenshot.jpg</strong> (289.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 21:58 上传
+
+
+*****
+
+####  星天观测  
+##### 17925#       发表于 2024-6-20 22:02
+
+好鸡贼啊，拉面活结束应该不是狗活就是萝活，然后给你把狗和萝的人都叫来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  肛之练筋士  
+##### 17926#       发表于 2024-6-20 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一反应以为要萝和狗对邦了（x
+

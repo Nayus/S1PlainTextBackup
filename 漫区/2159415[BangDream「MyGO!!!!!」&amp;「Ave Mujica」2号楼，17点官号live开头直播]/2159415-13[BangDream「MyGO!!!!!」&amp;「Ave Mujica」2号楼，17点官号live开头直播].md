@@ -1750,3 +1750,26 @@ RAS的生放一如既往的好吵()<img src="https://static.saraba1st.com/image/
 
 鼓子昨天才去了b站kdhr的生放，没几天又去和i83生放了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17928#       发表于 2024-6-20 22:53
+
+<img src="https://img.saraba1st.com/forum/202406/20/225322tcffuc9ceduzeutt.jpg" referrerpolicy="no-referrer">
+
+<strong>ED1C3CFBA254977DDE713748B914303F.jpg</strong> (121.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 22:53 上传
+
+kkr这身配色是不是有点问题
+
+*****
+
+####  NODY  
+##### 17929#       发表于 2024-6-20 22:55
+
+只觉得wsd的衣品越来越烂了，这图看着像一群大妈出来买菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

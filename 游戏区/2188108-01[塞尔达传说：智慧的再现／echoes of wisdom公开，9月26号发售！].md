@@ -2403,3 +2403,17 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 时间线实际上挺影响编剧情的吧，本来就要顺应玩法
 
+
+*****
+
+####  Junakr  
+##### 243#       发表于 2024-6-20 18:59
+
+经过野炊 / 王泪我寻思也该和塞尔达系列的时间线和解了。
+
+青沼都说了时间线这东西你们不用搞得太清楚。
+
+青沼：“ ……就我个人而言，我不喜欢过多考虑「塞尔达」系列的时间线。因为从设计角度来讲，如果太过在意时间线，以后我们开发新作的时候就会受到束缚和限制。”
+
+[https://www.ign.com.cn/the-legen ... -xian-he-wang-guo-z](https://www.ign.com.cn/the-legend-of-zelda-tears-of-the-kingdom/47463/news/qing-zhao-ying-er-he-teng-lin-xiu-ma-chang-tan-sai-er-da-pei-fang-xi-lie-shi-jian-xian-he-wang-guo-z)
+

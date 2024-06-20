@@ -813,3 +813,60 @@ md，有希望坐满人吗，看到有玩d4dj的朋友在那里吐槽了。
 
 首先是你楼起手，然后再是拿几楼举例，最后干干净净，真是臆臆又想想啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 17838#       发表于 2024-6-20 18:56
+
+他自己说的没很多话想聊结果反而在这赖着没完没了，就这水平漏油还是让让他罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唉，都让你努力分楼了你这是在？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 17839#       发表于 2024-6-20 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想爆个大的也不是不行啊，先让wsd给点资源呗。资源都不给点还不准让粉丝想着哪天爆个大的。好事全给你占了是吧
+
+*****
+
+####  -LYRE-  
+##### 17840#       发表于 2024-6-20 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314003&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 18:50</a>
+难道前面几楼很期待爆一下的发言是我臆想出来的吗</blockquote>
+不是都有前提条件是鸡没物料吗？
+要么你去让wsd多吐点东西出来让鸡粉有东西聊专注自家，要么你让某些狗批别整天跳提醒鸡粉新账旧账
+鸡物料很多的话鸡粉就没现在这么闲得慌了，狗批不跳脸不爆典也就没这么多💩能搬来“打固定靶”了
+你两个根本原因都全然无视，专门跑来这里单独规训鸡粉，解决不了问题所以想堵提出问题的人的嘴是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你勾吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  灵椿  
+##### 17841#       发表于 2024-6-20 19:05
+
+有没有可能我真正想说的就是这楼好歹是鸡狗楼，楼里迫切想要切割的鸡粉只需要搬大家都认同的go屎来车制造高压氛围把专楼打造成单推人小团体QQ群就行了，而缩卵的go粉考虑的就要多了
+所以为什么这楼就基本只剩下鸡粉了？NGA专楼那边就两边的人都有呢，是S1的go粉太识相了心中有愧吗
+
+*****
+
+####  Aendst  
+##### 17842#       发表于 2024-6-20 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不是已经自己得出结论了吗
+
+理亏还说不过导致的
+
+*****
+
+####  九陌狂游  
+##### 17843#       发表于 2024-6-20 19:07
+
+nga专楼天天要容忍有鸡不看哥等几个漏油狗叫，你猜我为什么不看nga专楼了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

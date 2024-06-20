@@ -1715,3 +1715,13 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 —— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  马上结束  
+##### 179#       发表于 2024-6-20 23:29
+
+在看原作，抽个试试
+
+—— 来自 vivo V2055A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

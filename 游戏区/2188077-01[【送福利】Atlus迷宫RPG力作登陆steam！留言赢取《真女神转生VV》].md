@@ -1654,3 +1654,20 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 作为买了无印数字版的受害者，我来碰碰运气<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sword混沌  
+##### 172#       发表于 2024-6-20 11:06
+
+试试VV吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JEF-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RStocking  
+##### 173#       发表于 2024-6-20 11:08
+
+说不定呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

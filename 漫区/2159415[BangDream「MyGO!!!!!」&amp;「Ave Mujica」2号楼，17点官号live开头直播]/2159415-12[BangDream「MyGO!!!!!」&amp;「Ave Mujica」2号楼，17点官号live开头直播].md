@@ -16798,3 +16798,57 @@ wsd飞马，早该有的配置，一样没有，2nd结束了，还不推，真�
 
 顺带一提，老团的广播剧不是一开始也都关了，只有r的好像被粉丝冲回来了吧
 
+
+*****
+
+####  星天观测  
+##### 17669#       发表于 2024-6-20 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307686&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 10:58</a>
+
+这次的语音节奏纯良go粉可能还得祈祷下这位爷别再爆典了，编剧没活瞎整活他主楼直接拉踩角色了，鬼知道拉 ...</blockquote>
+我只作为roselia推发表一下个人的攻击性言论好吧
+
+go没经纪人没商业化困扰是因为水平就是那个水平，二次三次都是，欢呼！鼓掌！
+
+*****
+
+####  PDQ4  
+##### 17670#       发表于 2024-6-20 11:09
+
+真的要提吗，老团广播全关了以后就开了狗的广播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真按照wsd资源有限来提那得出的结论不就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+r的也是期间限定，真的算回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋干爆炸碱  
+##### 17671#       发表于 2024-6-20 11:15
+
+个么去年Farbe暖场时候就看到老萝推骂抢资源了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+骂是一起挨的，资源是一点没分到鸡头上的
+
+*****
+
+####  UNISONIA  
+##### 17672#       发表于 2024-6-20 11:16
+
+2nd演出内容也是有点微妙，只能说不知道武士道在想什么
+
+李子这边cover选曲的方向从1st开始就很奇怪，正常人应该不会认为宝野妈（ALI PRO）和atsuko（angela）这俩跟李子是一个声部的吧（虽然暗黑天国不算宝野妈飘高音的曲子），2nd也没新的cover曲加进来
+
+高尾那边的keyboard编曲是老问题了，主供曲长谷川和SUPA LOVE那几位的写法还是偏p-rock，那必然不会有多突出kb。上松的作编曲更注重kb一些，但是他到现在为止就供了同名一首（大概率续篇动画也不会加了）。Symbol水的Ballad编曲已经是相对给人眼前一亮的感觉了
+
+整场给人的感觉就是茜姨那边压力巨大，但是现场的低音收音又不太好，麻了
+
+*****
+
+####  rikaren  
+##### 17673#       发表于 2024-6-20 11:16
+
+只能说没上次那个公司go去cue了下ppp和m的资源去捂鸡的嘴，可能还没那么多人意识到老团这边资源也被削减的很严重
+

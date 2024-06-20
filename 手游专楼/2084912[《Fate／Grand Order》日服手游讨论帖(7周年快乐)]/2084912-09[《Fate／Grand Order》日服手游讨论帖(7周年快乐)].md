@@ -1014,3 +1014,11 @@ ios没有版本更新？
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  johnkamsar  
+##### 12895#       发表于 2024-6-20 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">啊~日服国服都有德拉科了
+

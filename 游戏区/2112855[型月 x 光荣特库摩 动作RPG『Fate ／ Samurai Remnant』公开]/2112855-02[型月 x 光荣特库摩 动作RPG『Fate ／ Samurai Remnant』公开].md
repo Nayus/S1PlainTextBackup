@@ -400,3 +400,25 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 放宝具就是无敌，不吃任何伤害</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧已经在论战子龙锁头青龙一闪，闪大王人头落地了
 
+
+*****
+
+####  シャル  
+##### 1798#       发表于 2024-6-20 14:06
+
+<blockquote>洛克萨斯 发表于 2024-6-20 13:41
+贴吧已经在论战子龙锁头青龙一闪，闪大王人头落地了</blockquote>
+闪能被士郎砍手那么被子龙砍头也没啥问题吧
+
+*****
+
+####  洛克萨斯  
+##### 1799#       发表于 2024-6-20 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310185&amp;ptid=2112855" target="_blank">シャル 发表于 2024-6-20 14:06</a>
+
+闪能被士郎砍手那么被子龙砍头也没啥问题吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这宝具描述和剧情演出来看，近战不行，防御不行的top可能都会被这招初见杀
+
+而且最大人数是2，就是这玩意考虑到阿斗，理论上你可以用这个带别的从者突进到敌阵的，很好用
+

@@ -294,3 +294,113 @@
 确实很抽象
 先记下来，等明年狗批因为期待的“mygo第二季”没能看到、只看到mujica主场、天天贷款的狗团吊打mujica也没成真，而破防踩动画时，上去说你这套言论，会得到狗批什么样的回复呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 17786#       发表于 2024-6-20 17:46
+
+onp，真车一天go和gop了，挺好挺好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+丢个今年bw邦展台安排，好像还没人转过，有tymm热水凛蜜柑
+<img src="https://p.sda1.dev/18/da4dbe8b5cab02fe8afe3dbd980bc5ca/1718876508140.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17787#       发表于 2024-6-20 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313111&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:38</a>
+
+你前面那句“这集我在别的地方看过 大家都是看是看狗动画入坑的，所以肯定喜欢狗” ，最后改成狗动画就和 ...</blockquote>
+我理解一下，你这个打架是gbc和狗动画打架是吧那我劝你还是别说了
+
+我前面楼也说过，gbc和狗打架无论是动画还是live，二次还是三次，我都不关心，小鬼打架随便，说实话我真心在乎的只有鸡
+
+你的行为恰巧符合我之前说的，“在把鸡当枪使”
+
+鸡团明年有自己的动画，鸡粉都在等这个，为什么要因为狗和gbc的矛盾下场？更何况可能也有喜欢鸡同时喜欢刺团的，你怎么敢假定他们就一定更喜欢狗动画
+
+有没有可能“支持”哪部动画这件事本来就和纯血鸡粉没有关系，你们打你们的，鸡动画离预产期还有半年呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17788#       发表于 2024-6-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313111&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:38</a>
+
+你前面那句“这集我在别的地方看过 大家都是看是看狗动画入坑的，所以肯定喜欢狗” ，最后改成狗动画就和 ...</blockquote>
+
+怎麼了，一個迷惑發言你也要爭版權嗎，說這種話的迷惑人不要太多好吧。
+
+甚至在泥樓半年前就有人說過，你要是想翻自己翻翻看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+說來說去不就是底邊團不配有粉絲嗎 唉 動畫沒播的底邊團<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  滑稽Captain  
+##### 17789#       发表于 2024-6-20 17:49
+
+天音和热水给拆成两个单人是没想到的，可能是行程有影响？
+
+*****
+
+####  lhwang11  
+##### 17790#       发表于 2024-6-20 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313240&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-20 17:47</a>
+
+怎麼了，一個迷惑發言你也要爭版權嗎，說這種話的迷惑人不要太多好吧。
+
+甚至在泥樓半年前就有人說過，你 ...</blockquote>
+因为是昨天刚说，百综还汴了好几页印象比较深刻，如果是过去一周就自己都忘了
+
+
+*****
+
+####  灵椿  
+##### 17791#       发表于 2024-6-20 17:53
+
+所以你楼啥时候真的分楼，感觉搬“敌团”粉丝的屎增强凝聚力的部分比聊自推的都多了，nga专楼好歹物种多样性还多一点，更像两个企划的专楼，你楼比QQ群还QQ群<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lhwang11  
+##### 17792#       发表于 2024-6-20 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313225&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 17:46</a>
+
+我理解一下，你这个打架是gbc和狗动画打架是吧那我劝你还是别说了
+
+我前面楼也说过，gbc和狗打架无论是动 ...</blockquote>
+你说的对，可能是战吧ttk看多入脑了，两边吵架互喷很容易aoe到鸡角色怎么怎么样，不小心去站边了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17793#       发表于 2024-6-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313278&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:50</a>
+
+因为是昨天刚说，百综还汴了好几页印象比较深刻，如果是过去一周就自己都忘了 ...</blockquote>
+那不就說明你和這些人完美共振了 尊重 祝福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 17794#       发表于 2024-6-20 17:54
+
+感觉就是图方便，1+2+1三天<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+已经在期待现场的邦友在别的场馆逮到这几个人逛展了
+
+*****
+
+####  御幸一也  
+##### 17795#       发表于 2024-6-20 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313323&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 17:53</a>
+
+所以你楼啥时候真的分楼，感觉搬“敌团”粉丝的屎增强凝聚力的部分比聊自推的都多了，nga专楼好歹物种多样 ...</blockquote>
+呃呃 ave有情報的時候泥樓哪時沒聊了，你也要有東西給人聊，現在聊空氣？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

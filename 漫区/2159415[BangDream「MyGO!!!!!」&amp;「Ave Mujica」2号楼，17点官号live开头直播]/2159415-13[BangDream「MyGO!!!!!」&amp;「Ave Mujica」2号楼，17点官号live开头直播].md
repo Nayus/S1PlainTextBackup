@@ -266,3 +266,31 @@
 
 即使是近期也依旧有一些奇怪mygo粉在车祥子，有说就算她全家死了也不能退团不能拒绝的，有贷款mujica动画是mygo拯救mujica的，有希望mujica翻车的……等等，各具特色，这几页漏油们应该都多多少少提到了一部分
 
+
+*****
+
+####  lhwang11  
+##### 17784#       发表于 2024-6-20 17:38
+
+ 本帖最后由 lhwang11 于 2024-6-20 17:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313003&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 17:29</a>
+
+朋友有没有可能我根本不知道你为什么要维护狗动画，感觉驴唇不对马嘴的
+
+部分狗粉暴言没有鸡粉都喜欢狗， ...</blockquote>
+你前面那句“这集我在别的地方看过 大家都是看是看狗动画入坑的，所以肯定喜欢狗” ，最后改成狗动画就和我昨天说的差不多了。
+
+一开始是有人引战鸡狗哭，我回了这句表示鸡粉在两边还是会支持狗动画一些，如果不是对我说的那抱歉打扰了
+
+汴是因为前面几个漏油好像都觉得因为喜欢上鸡角色所以会维护狗动画很抽象，我很惊讶所以多说了几句。
+
+*****
+
+####  -LYRE-  
+##### 17785#       发表于 2024-6-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312880&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:18</a>
+没有人和我共振吧，我的意思是鸡角色在狗动画里我才维护狗动画，除此以外无关心，这也算是很抽象的意识吗 ...</blockquote>
+确实很抽象
+先记下来，等明年狗批因为期待的“mygo第二季”没能看到、只看到mujica主场、天天贷款的狗团吊打mujica也没成真，而破防踩动画时，上去说你这套言论，会得到狗批什么样的回复呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

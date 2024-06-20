@@ -16657,3 +16657,49 @@ https://www.pixiv.net/artworks/119789696<img src="https://p.sda1.dev/18/75c68bd8
 我们gop ...</blockquote>
 我觉得这集我看漏油说过，这是有鸡不看哥？nga还没封吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17656#       发表于 2024-6-20 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307382&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 10:35</a>
+
+我觉得这集我看漏油说过，这是有鸡不看哥？nga还没封吗</blockquote>
+看ip不是鸡哥，鸡哥应该是封了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+谁能想到嘲讽鸡是湖笔这种事还能成为gop的赛博奶嘴没事嘬一口啊
+
+*****
+
+####  akiomn  
+##### 17657#       发表于 2024-6-20 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无事臭底边，有事好姐妹
+gop之前和ppp对邦那事还历历在目呢，出了事立马把鸡拉上了
+
+
+*****
+
+####  御幸一也  
+##### 17658#       发表于 2024-6-20 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307450&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 10:40</a>
+
+看ip不是鸡哥，鸡哥应该是封了
+
+谁能想到嘲讽鸡是湖笔这种事还能成为gop的赛博奶嘴没事嘬一口啊 ...</blockquote>
+賽博奶嘴草 樓友好幽默<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17659#       发表于 2024-6-20 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307450&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 10:40</a>
+
+看ip不是鸡哥，鸡哥应该是封了
+
+谁能想到嘲讽鸡是湖笔这种事还能成为gop的赛博奶嘴没事嘬一口啊 ...</blockquote>
+什么无穷尽也，这下还真是外战不行，只能没事天天打鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

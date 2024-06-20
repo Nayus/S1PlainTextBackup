@@ -2417,3 +2417,13 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 [https://www.ign.com.cn/the-legen ... -xian-he-wang-guo-z](https://www.ign.com.cn/the-legend-of-zelda-tears-of-the-kingdom/47463/news/qing-zhao-ying-er-he-teng-lin-xiu-ma-chang-tan-sai-er-da-pei-fang-xi-lie-shi-jian-xian-he-wang-guo-z)
 
+
+*****
+
+####  otakun  
+##### 244#       发表于 2024-6-20 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313863&amp;ptid=2188108" target="_blank">beer 发表于 2024-6-20 18:37</a>
+时间线实际上挺影响编剧情的吧，本来就要顺应玩法</blockquote>
+不影响，玩家在乎而已，塞尔达都是先设计玩法再套剧情而已
+

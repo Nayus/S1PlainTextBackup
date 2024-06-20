@@ -3286,3 +3286,13 @@ max三岗过了，仍旧没有金
 喷3按惯例会抢上ns2吗？现在入坑算不算49面入国军？</blockquote>
 买个二手吧，应该会上ns2就当提前为喷4练技术了
 
+
+*****
+
+####  KBAC  
+##### 4764#       发表于 2024-6-20 19:23
+
+没有跳点配砸地的武器，不然和红牙刷一配合就可以玩如来神掌了<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

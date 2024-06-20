@@ -1104,3 +1104,36 @@ nga不是刚车完立希语音相关的事么，这不是狗吗，你怎么不�
 nga的鸡狗楼绝大部分都是狗相关是可以的，s1的鸡狗楼鸡粉多是犯罪的</blockquote>
 唉 底邊團粉絲做什麼都是錯的，早就叫你們乖乖洗腳別亂叫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17868#       发表于 2024-6-20 19:31
+
+<img src="https://img.saraba1st.com/forum/202406/20/193027nk2q52ikzd9thiik.png" referrerpolicy="no-referrer">
+
+<strong>图片 2024-6-20 1928.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 19:30 上传
+
+普通版本的有一方被过继的姐妹论想得到一些应该算高效的镜头处理，但是两方都是被收养的姐妹论难度有点太高而且太容易出事了。
+
+
+*****
+
+####  PDQ4  
+##### 17869#       发表于 2024-6-20 19:35
+
+我重新思考了下，这位漏油不满的点概括一下，是不是可以总结为“你们怎么敢不聊狗不喜欢狗？”
+
+我只喜欢鸡真的很对不起哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17870#       发表于 2024-6-20 19:36
+
+怎麼又是這種味的啊 品鑑得夠多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

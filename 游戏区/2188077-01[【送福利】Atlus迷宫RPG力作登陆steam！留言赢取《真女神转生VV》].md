@@ -1591,3 +1591,13 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  牙狼GARO  
+##### 165#       发表于 2024-6-20 10:00
+
+抽我一个vv，抽了我就不买了，不然蹲到月底打完手上游戏再去买<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

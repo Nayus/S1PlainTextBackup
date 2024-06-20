@@ -2317,3 +2317,11 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 塞尔达最新作公开，绝对是史上最特别的。
 [https://www.bilibili.com/video/BV1nJ4m1T7hw/](https://www.bilibili.com/video/BV1nJ4m1T7hw/)
 
+
+*****
+
+####  sis_clover  
+##### 235#       发表于 2024-6-20 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">太期待了！!
+

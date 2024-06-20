@@ -1988,3 +1988,20 @@ miko：好
 
 笑死我了你哪来的自信
 
+
+*****
+
+####  karastar  
+##### 9053#       发表于 2024-6-20 19:58
+
+486就这么不堪吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9054#         楼主| 发表于 2024-6-20 20:09
+
+8*3=21分
+
+惩罚游戏不是稳了
+

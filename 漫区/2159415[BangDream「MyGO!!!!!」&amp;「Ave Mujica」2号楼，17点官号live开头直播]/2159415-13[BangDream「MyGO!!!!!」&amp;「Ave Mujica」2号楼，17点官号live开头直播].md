@@ -1416,3 +1416,42 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 
 再加上动画组参与度疑似较高，所以我觉得大部分内容还是会在动画里讲清的，手游更多的是一种“拓展”
 
+
+*****
+
+####  NODY  
+##### 17898#       发表于 2024-6-20 20:09
+
+ 本帖最后由 NODY 于 2024-6-20 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315055&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 20:05</a>
+
+初华相关比较值得猜测的，还有就是mana到底是怎样的身份，假使2nd小剧场真的是对应角色本身的暗示，那可以 ...</blockquote>
+隔壁倒是看到过第三种猜测，sumimi原本是三个人，有一个被公司优化了，对应那个广播里出现的第三个名字，初华因此不满
+
+这样就不至于出现初华和甜甜圈争咖位导致角色招黑的问题，当然把甜甜圈写成争咖位的恶人确实会让剧情更有戏剧性，但考虑到你邦手游把pp经纪人、月之森理事长都给洗白了，真搞出来个恶人可能性不大
+
+*****
+
+####  御幸一也  
+##### 17899#       发表于 2024-6-20 20:12
+
+說到這個，2nd LIVE的幕間我做了字幕
+
+翻譯和發在泥樓的版本相比改了不少，一些地方打軸的時候有重新審視了一下翻譯。
+
+[https://drive.google.com/file/d/ ... OU/view?usp=sharing](https://drive.google.com/file/d/1DXA9aT-TmhJWKgv7VP1AE9olbKKgluOU/view?usp=sharing)
+
+（翻譯/時間軸都是我，壓制是朋友幫我壓的）
+
+沒有bilibili帳號，總之感興趣的可以DL看看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 17900#       发表于 2024-6-20 20:16
+
+如果要符合邦世界观的话，我个人的猜测是，初华自身的问题在于双开对身心的负担，比如以前的千圣，最开始的时候甚至没考虑过两立电影和pp的状况而是考虑放弃一方
+
+所以或许mana是类似于pp其他成员那样的定位，鼓励初华支持她两立的角色，至于幕间初华的念白，或许是练习生时期的背景故事吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

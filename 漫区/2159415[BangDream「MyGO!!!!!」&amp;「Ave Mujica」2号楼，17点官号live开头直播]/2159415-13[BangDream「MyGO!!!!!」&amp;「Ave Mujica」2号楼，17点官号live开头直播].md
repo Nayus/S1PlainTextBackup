@@ -1487,3 +1487,13 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 
 过好久都忘了，特典刚才到了，就是17747L的坛友发的第二、三张图片，居然是圆通来送的<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17904#       发表于 2024-6-20 20:37
+
+【【BanG Dream！】活动剧情【中字】Battle of R】 [https://www.bilibili.com/video/B ... dfcd9b78924c5908c6a](https://www.bilibili.com/video/BV1xs421M7Ng/?share_source=copy_web&amp;vd_source=fa7d512922707dfcd9b78924c5908c6a)
+
+这期活动剧情还蛮好玩的
+

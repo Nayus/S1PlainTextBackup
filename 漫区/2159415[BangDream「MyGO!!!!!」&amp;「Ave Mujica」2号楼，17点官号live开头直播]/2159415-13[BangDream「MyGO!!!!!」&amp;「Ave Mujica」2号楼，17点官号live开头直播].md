@@ -562,3 +562,75 @@ onp，真车一天go和gop了，挺好挺好<img src="https://static.saraba1st.c
 
 syl 希望活动能有直播看
 
+
+*****
+
+####  Aendst  
+##### 17812#       发表于 2024-6-20 18:17
+
+ 本帖最后由 Aendst 于 2024-6-20 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313488&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-20 18:06</a>
+
+原来是这么回事，说起来早上还看到立希关于生日语音的解包，也是一大波节奏。其实我也带我的朋友们看了my ...</blockquote>
+是的，一部分是由于很多莫名其妙的发言引起冲突进而不断累积导致的积怨
+
+另一部分是武士道包括资源和动画放送时间在内的一系列决策确实有问题，加大了粉群对立的空间
+
+至于mujica的动画我个人是有点不安的，从一些迹象上来说或许制作组真的打算挑战更深刻一些的话题，但越是这样就越容易出问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且眼下这个状况，或许不管怎么写都会是评价两极风化的，这恐怕也会进一步加剧两边的对立，只看动画或者只和朋友一起分享大概是最明智的选择了
+
+*****
+
+####  滑稽Captain  
+##### 17813#       发表于 2024-6-20 18:18
+
+感觉200%能看到勾踢踢歪节目后跑去逛展，毕竟她去年就干了
+
+*****
+
+####  斯托雷加  
+##### 17814#       发表于 2024-6-20 18:20
+
+<blockquote>Aendst 发表于 2024-6-20 18:17
+是的，一部分是由于很多莫名其妙的发言引起冲突进而不断累积导致的积怨
+
+另一部分是武士道包括资源和动画放 ...</blockquote>
+mujica动画我看说很有可能独角兽被换来着，虽说这个消息也不保真，但是换系列构成却还是个不小的问题，希望别发生这种事。
+
+
+*****
+
+####  Aendst  
+##### 17815#       发表于 2024-6-20 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313667&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-20 18:20</a>
+
+mujica动画我看说很有可能独角兽被换来着，虽说这个消息也不保真，但是换系列构成却还是个不小的问题，希 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个消息大概就是从泥漏传出去的
+
+绫奈的动向确实相当不明朗，但我觉得目前不用太担心这个
+
+*****
+
+####  灵椿  
+##### 17816#       发表于 2024-6-20 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313509&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-6-20 18:07</a>
+分楼也没什么用，你楼现在也就搬搬情报，该吵分楼还是会吵起来的</blockquote>
+你楼分流后吵过啥了，除了这次水的楼数多了好像有人进来唱反调，其他时候不都是其乐融融打固定靶吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17817#       发表于 2024-6-20 18:23
+
+上个月还有访谈，李子和奏音表示录音全都完成了，想改剧本可能也没那么多时间去修改。
+
+*****
+
+####  PDQ4  
+##### 17818#       发表于 2024-6-20 18:24
+
+7.14bml有鲤鱼，tymm除非被勒令当晚回日本，不然她不去发癫我要怀疑是不是冒名顶替了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

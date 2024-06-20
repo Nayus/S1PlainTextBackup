@@ -4238,3 +4238,20 @@ pc一般比主机版晚多久？
 
 界轨新情报肯定有，但是内容估计也就是常规的介绍几个角色然后地图和新系统完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈我寻思除了空轨remake或者新作外应该没啥东西
 
+
+*****
+
+####  Squall25  
+##### 445#       发表于 2024-6-20 10:13
+
+说实话我一直都不相信有空轨remake这东西存在，除非界轨2和京迷不做了，否则后面两年怎么也轮不到其他游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">感觉就是近藤在放屁，如果能打我脸也不介意。很想看法老控倔强的去搞这玩意后的下场。
+
+*****
+
+####  ravend233  
+##### 446#       发表于 2024-6-20 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">主要你近藤年初又说今年要公布一个新项目，看是反悔了还是真给端个东西出来
+
+空rm那就看乐子，新作也可能是乐子
+

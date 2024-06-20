@@ -2325,3 +2325,11 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">太期待了！!
 
+
+*****
+
+####  thez  
+##### 236#       发表于 2024-6-20 10:14
+
+希望游戏后期可以操纵林克和塞尔达合作
+

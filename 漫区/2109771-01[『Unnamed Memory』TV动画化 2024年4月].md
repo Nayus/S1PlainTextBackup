@@ -44,3 +44,11 @@
 
 等一部和桐谷华育儿的动画<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Boliva  
+##### 155#       发表于 2024-6-20 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 这片真就靠华哥和缇娜莎的人设撑着，剧情太跳脱了~如果有2期的话是不是就要开始虐了，直到最终话2个人才可以真正的白头到老……
+

@@ -17665,3 +17665,98 @@ bd特典到了
 
 换了楼人也不会变，可以预计，明年肯定有人每集造新假药贷款祥子或者鸡团下一集如何吃瘪破防<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17750#       发表于 2024-6-20 16:48
+
+一批粉丝，然后指望一队被另一队爆锤捶地痛哭吗，那确实是一批粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以我鸡的动画和游戏在哪里，我怎么不知道有，谁偷跑了我鸡的动画手游<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17751#       发表于 2024-6-20 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312419&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-20 16:45</a>
+
+第一次能知道两边还能有这种粉丝冲撞，我一直以为mujica和mygo是一批粉丝，都是看动画玩游戏，哪来那么多清 ...</blockquote>
+大雄的消息真是不灵通
+
+都互相看不顺眼大半年了居然才知道，是不是天翼3G太快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17752#       发表于 2024-6-20 16:49
+
+好幽默，風格差異那麼大的兩個團，“同一批粉絲”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 17753#       发表于 2024-6-20 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312454&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 16:48</a>
+
+一批粉丝，然后指望一队被另一队爆锤捶地痛哭吗，那确实是一批粉丝
+
+所以我鸡的动画和游戏在哪里，我怎么不 ...</blockquote>
+大胆，乖乖洗脚吧，要给mygo让位的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然哪来的剧场版
+
+*****
+
+####  PDQ4  
+##### 17754#       发表于 2024-6-20 16:54
+
+这集我在别的地方看过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大家都是看是看狗动画入坑的，所以肯定喜欢狗
+
+喜欢小剧场解谜的早就破防退坑了，不可能还推鸡
+
+因为喜欢脸去检索到鸡0th相关慢慢鸡堕了真是对不起啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|笑得想死|
+
+查看全部评分
+
+*****
+
+####  skives10  
+##### 17755#       发表于 2024-6-20 16:55
+
+狗内部可能都有五六批粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯托雷加  
+##### 17756#       发表于 2024-6-20 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312466&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 16:49</a>
+
+大雄的消息真是不灵通
+
+都互相看不顺眼大半年了居然才知道，是不是天翼3G太快了
+
+我这人心善，你不知道我多 ...</blockquote>
+确实，不是很懂这个圈子
+
+*****
+
+####  lhwang11  
+##### 17757#       发表于 2024-6-20 16:56
+
+翻了几页感觉赛博小祥不用继续看了。。。一月那会追平了想养一养，前几天一看进度只有62%了
+

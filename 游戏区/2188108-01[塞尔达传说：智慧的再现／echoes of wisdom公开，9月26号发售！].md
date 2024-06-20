@@ -2505,3 +2505,16 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 不影响，玩家在乎而已，塞尔达都是先设计玩法再套剧情而已</blockquote>
 是说如果严格遵守时间线设定会限制了编剧情的空间
 
+
+*****
+
+####  Junakr  
+##### 252#       发表于 2024-6-20 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315667&amp;ptid=2188108" target="_blank">JustW 发表于 2024-6-20 20:52</a>
+
+结合两版介绍pv的旁白，这里的かりもの就是指塞尔达在游戏里用法杖借走的各种物品（和小怪），日版说“借 ...</blockquote>
+我对自己日语水平有数献个丑主要还是梳理一下思路（PV 听不懂一点，等到官推宣发才确认对应汉字）。
+
+不知道英语副标题是不是想要对仗 Tears of the Kingdom 才弄了个 Echoes of Wisdom，还把中文翻译带歪了。
+

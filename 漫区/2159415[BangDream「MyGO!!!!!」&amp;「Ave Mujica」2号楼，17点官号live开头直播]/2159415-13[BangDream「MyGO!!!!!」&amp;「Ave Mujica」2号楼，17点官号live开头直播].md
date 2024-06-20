@@ -1868,3 +1868,11 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 我上个真情实感追的2.5企划还是缪斯，那时候哪遇到过鸡这待遇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 17941#       发表于 2024-6-21 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起以前看水团的时候期刊也有个画的很难绷的画师，忘了叫啥了
+

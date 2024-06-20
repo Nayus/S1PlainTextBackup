@@ -1603,3 +1603,32 @@ mygo开篇其实某种程度有一些“悬疑"色彩，实际上当初开播后
 
 在声优们已经配完音且舞台上有意识的表演角色关系性的前提下，真的挺想看water在live上会怎么演
 
+
+*****
+
+####  rikaren  
+##### 17915#       发表于 2024-6-20 21:19
+
+不仅仅是还要先出第一期箱活的问题，贝斯组海铃的卡怎么出？活动赠送还是卡池四星／五星？同时间出几张卡也很怪。
+
+*****
+
+####  星天观测  
+##### 17916#       发表于 2024-6-20 21:22
+
+有种要在半周年才会看到初华上主唱封面的悲伤预感了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17917#       发表于 2024-6-20 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315936&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-6-20 21:17</a>
+
+看采访live的一些互动是她们有意为之，live里李子和奏音的互动交流，感觉初祥的一些发展还是可以贷的。
+
+my ...</blockquote>
+我大胆贷款一个爱知场water起手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是七夕呢
+
+就是不知道会不会有配信
+

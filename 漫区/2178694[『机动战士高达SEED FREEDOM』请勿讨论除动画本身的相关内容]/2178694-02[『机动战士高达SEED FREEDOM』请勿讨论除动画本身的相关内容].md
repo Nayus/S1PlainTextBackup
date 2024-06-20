@@ -2993,3 +2993,16 @@ FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮打中过毁
 
 FT装甲能防光枪，夹心炮和普通的光束剑，针对只装备光剑光枪的量产机，和自由这种炮击机的效果确实是好
 
+
+*****
+
+####  pokemon最爱  
+##### 1725#       发表于 2024-6-20 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307494&amp;ptid=2178694" target="_blank">混乱之雨 发表于 2024-6-20 10:43</a>
+
+夹心炮打的是光束回旋镖的豁口，但掌心炮是实打实破防了
+
+FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockquote>
+掌心炮部分设定里是有光束剑属性的，部分设定里这东西甚至可以无效化光束（包括光剑）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

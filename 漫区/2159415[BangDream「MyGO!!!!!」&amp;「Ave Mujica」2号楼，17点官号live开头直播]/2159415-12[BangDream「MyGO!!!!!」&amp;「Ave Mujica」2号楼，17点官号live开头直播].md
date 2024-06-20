@@ -16941,3 +16941,45 @@ EG问题是有，但是起码有古典功底优秀的和key出身的，mujica在
 那现在就是集邦邦之物力，供狗团读大学，然后先富带后富</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只吸邦邦老粉和wsd粉丝，根本没破圈，再加上中华炮都不能稳赢萝，真的先富了吗
 
+
+*****
+
+####  御景  
+##### 17682#       发表于 2024-6-20 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308047&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 11:25</a>
+
+先看看7月场后面有没有东西吧，没有再骂的话会不会有人堵嘴等10月场？10月就一个动画定档的话会不会堵嘴还 ...</blockquote>
+等吧，等吧，放完动画就解放了
+
+*****
+
+####  御幸一也  
+##### 17683#       发表于 2024-6-20 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307846&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 11:09</a>
+
+真的要提吗，老团广播全关了以后就开了狗的广播
+
+真按照wsd资源有限来提那得出的结论不就是</blockquote>
+啊這 有點那個了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17684#       发表于 2024-6-20 11:30
+
+我担心的就是这个，现在我还能等626初华生日和7.7爱知，7.7要是没新东西就要熬到十月中旬，要不是入坑以后加推了萝那是真的前途一片黑暗啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 17685#       发表于 2024-6-20 11:35
+
+<blockquote>-LYRE- 发表于 2024-6-20 11:21
+说“重力型美竹兰”而不是说“力量型高松灯”就偷着乐吧
+
+顺带一提之前隔壁有帖楼主又在恶心人张口闭口“ ...</blockquote>
+隔壁走廊哪栋楼？我去看一下。
+

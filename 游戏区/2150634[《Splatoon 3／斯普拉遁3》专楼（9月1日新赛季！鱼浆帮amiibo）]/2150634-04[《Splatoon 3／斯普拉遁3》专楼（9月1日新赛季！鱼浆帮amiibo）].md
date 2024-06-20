@@ -3296,3 +3296,11 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 4765#       发表于 2024-6-20 21:39
+
+现在塔楼排到4k还没有排到弓安心，特别是邦普V那个范围...
+

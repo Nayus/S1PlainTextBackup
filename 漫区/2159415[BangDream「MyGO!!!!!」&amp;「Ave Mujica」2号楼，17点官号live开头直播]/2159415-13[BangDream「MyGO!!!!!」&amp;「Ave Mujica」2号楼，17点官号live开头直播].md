@@ -1668,3 +1668,38 @@ my ...</blockquote>
 就是不知道会不会有配信</blockquote>
 七夕，牛郎织女，星星。很搭初祥的意象<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17920#       发表于 2024-6-20 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65316064&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-6-20 21:29</a>
+
+七夕，牛郎织女，星星。很搭初祥的意象</blockquote>
+water的氛围就像夏天的银河
+
+夏天周而复始
+
+台上的两人终于相遇<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 17921#       发表于 2024-6-20 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65316058&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-20 21:29</a>
+
+居然有ave（的聲優參加）</blockquote>
+我的lisa 我的初华
+
+你们什么时候正式认识一下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 17922#       发表于 2024-6-20 21:39
+
+双胞胎同时被领养……咋不说祥和睦的父母是基佬形婚呢，其实祥爹睦爹/祥妈睦妈才是正确CP
+

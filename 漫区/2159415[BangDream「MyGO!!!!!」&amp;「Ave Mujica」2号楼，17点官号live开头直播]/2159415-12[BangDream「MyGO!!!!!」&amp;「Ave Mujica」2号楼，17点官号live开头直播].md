@@ -17092,3 +17092,49 @@ syl，还有说🐔糊的，就wsd这半年的操作下来，🐔不糊要么是
 
 说到二次元人设，ras这边算顶级倒霉蛋了吧，照着三次元中之人捏二次元形象捏出事了
 
+
+*****
+
+####  skives10  
+##### 17696#       发表于 2024-6-20 12:11
+
+我主页的鸡粉都去拥抱gbc了 起码周边是真好看真有消费欲
+
+*****
+
+####  御景  
+##### 17697#       发表于 2024-6-20 12:17
+
+周边这种一本万利的生意，wsd都接不住，还有什么好说的。
+
+周边好看点，还可以当时尚单品，圈外人也会买，买着买着不就成粉丝了。
+
+*****
+
+####  -LYRE-  
+##### 17698#       发表于 2024-6-20 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308218&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 11:35</a>
+隔壁走廊哪栋楼？我去看一下。</blockquote>
+[https://ngabbs.com/read.php?tid=40524971](https://ngabbs.com/read.php?tid=40524971)
+最搞笑的是这个举例觉得能反驳的
+有没有可能这些玩意本来就都很恶心人呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好意思扯
+尤其怀孕论，至今我都记得某些灯箱➗追着踩姐妹论同时吹捧怀孕论、玩代餐论玩得不亦乐乎、直言cp肯定要垫所以抢先用初祥睦祥垫灯箱的嘴脸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/5b601abf3c3fe9f0267ce76ff65547eb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 17699#       发表于 2024-6-20 12:18
+
+都脱面具宣传来bml了，还有人要用世界观来洗啊，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ellisnadie  
+##### 17700#       发表于 2024-6-20 12:18
+
+最近这些live图，曲绘，真的看的很没消费欲望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+下得了手都是看在角色份上
+

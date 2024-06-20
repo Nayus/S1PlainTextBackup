@@ -17300,3 +17300,20 @@ Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就
 “你们这些群体我已经都记住了，明年的时候被回旋镖打到了也别怪我们下手太狠了”复制粘贴的这句不错，完美适用
 你们这些当初跳脸的、前倨后恭的狗批我也都记住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17715#       发表于 2024-6-20 14:28
+
+经典扯到三次元实力就开始扯双r和鸡，双r还能有点对前辈团的忌惮，鸡可真是洗脚婢啊，光是占了半集的live已经被gop催了半年还债了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  晋冠丘  
+##### 17716#       发表于 2024-6-20 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307935&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 11:16</a>
+ 只能说没上次那个公司go去cue了下ppp和m的资源去捂鸡的嘴，可能还没那么多人意识到老团这边资源也被削减的 ...</blockquote>
+这是什么时候的事儿啊
+

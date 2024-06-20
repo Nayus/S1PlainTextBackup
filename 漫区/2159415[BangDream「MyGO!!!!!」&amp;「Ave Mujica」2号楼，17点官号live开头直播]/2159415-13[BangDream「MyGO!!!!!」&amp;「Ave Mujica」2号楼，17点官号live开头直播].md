@@ -1819,3 +1819,37 @@ ksm那个款式不做收腰太草了，而且感觉不止ksm的衣服没做收�
 
 坏消息，air的立绘已经是鬼图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17935#       发表于 2024-6-20 23:59
+
+水会赢的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+会赢的吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 17936#       发表于 2024-6-21 00:05
+
+好消息，wsd或许为5首symbol约了5套立绘
+
+坏消息，fire或许是平均水平最高的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 17937#       发表于 2024-6-21 00:06
+
+air的立繪雖然鬼，在水管上撥放量還挺高的
+
+*****
+
+####  星天观测  
+##### 17938#       发表于 2024-6-21 00:07
+
+air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -17029,3 +17029,16 @@ EG问题是有，但是起码有古典功底优秀的和key出身的，mujica在
 
 总之鸡杂别生气，这是你们自己的世界观和客服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 17690#       发表于 2024-6-20 11:50
+
+gbc的官x建立才一年 已经比mygo两年关注数高了
+说明颜值不行根本不是问题
+你邦最大的问题是美术
+给鸡团约个曲绘花300人民币
+go团主美粉丝不到8000
+这还想大火 是不是有点小瞧观众了
+

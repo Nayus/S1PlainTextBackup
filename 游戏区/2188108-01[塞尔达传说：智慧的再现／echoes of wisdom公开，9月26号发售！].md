@@ -2357,3 +2357,13 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 兜帽，女神像，希卡族的灯和伞（斗笠？）都有野炊的影子，风扇啥的又有左纳乌装置的感觉～
 
+
+*****
+
+####  a317216007  
+##### 238#       发表于 2024-6-20 11:44
+
+毕竟塞尔达的新作一直是会吸收各种前作的风格要素设计进来，让玩家有种你不是你，但你还是你的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

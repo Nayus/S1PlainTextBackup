@@ -634,3 +634,54 @@ mujica动画我看说很有可能独角兽被换来着，虽说这个消息也�
 
 7.14bml有鲤鱼，tymm除非被勒令当晚回日本，不然她不去发癫我要怀疑是不是冒名顶替了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 17819#       发表于 2024-6-20 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在下半年是最危险的时期了，鸡要翻唱mv没有，要迷子集会之类的东西也没有，就差一个炸弹引爆矛盾了，我看好这两个月时间炸个大的
+
+*****
+
+####  NODY  
+##### 17820#       发表于 2024-6-20 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313667&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-20 18:20</a>
+
+mujica动画我看说很有可能独角兽被换来着，虽说这个消息也不保真，但是换系列构成却还是个不小的问题，希 ...</blockquote>
+前段时间可能是wsd和解成功，独角兽又肯聊邦邦了，目前看来是没什么问题
+
+*****
+
+####  星空冻结  
+##### 17821#       发表于 2024-6-20 18:28
+
+那就看猫视角的那动画会不会引发大战吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17822#       发表于 2024-6-20 18:28
+
+动画开播之后才是世界大战开打的时候
+
+*****
+
+####  御幸一也  
+##### 17823#       发表于 2024-6-20 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313700&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 18:23</a>
+
+上个月还有访谈，李子和奏音表示录音全都完成了，想改剧本可能也没那么多时间去修改。 ...</blockquote>
+
+其實應該，至少1月底就全部錄完了。
+
+[https://www.animatetimes.com/news/details.php?id=1711341102](https://www.animatetimes.com/news/details.php?id=1711341102)
+
+這個初祥奏音和李子的訪談，雖然是4/1發的，但採訪的時間應該就是2/1生放當天，因為衣服是一樣的。
+
+而且你看奏音的美甲，也是她特別提過的為了1st LIVE弄的樣式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+她美甲換得特別快，反正基本可以確定就是那段時間。
+

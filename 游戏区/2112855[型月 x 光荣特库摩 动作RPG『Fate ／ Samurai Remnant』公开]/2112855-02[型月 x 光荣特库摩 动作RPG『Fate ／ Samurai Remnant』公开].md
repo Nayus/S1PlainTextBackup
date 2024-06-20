@@ -435,3 +435,16 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 哪怕说光荣，三国志系列基本也是白衣银甲，只在无双系列有其他配色
 
+
+*****
+
+####  saintsun7799  
+##### 1801#       发表于 2024-6-20 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65270161&amp;ptid=2112855" target="_blank">gary76 发表于 2024-6-17 14:27</a>
+
+天帝少女去了日本成了妖怪真是充滿了日式特有的胡說八道（
+
+雖然姑獲鳥在中原已經是跟織女、七仙女全混搭 ...</blockquote>
+唐朝段成式的《酉陽雜俎》也有記載：夜行遊女，一曰天帝女，一名釣星，夜飛晝隱，如鬼神。衣毛為飛鳥，脫毛為婦人，無子，喜取人子，胸前有乳。凡人飴小兒，不可露，小兒衣亦不可露曬，毛落衣中，當為鳥祟，或以血點其衣為志，或言產死者所化。
+

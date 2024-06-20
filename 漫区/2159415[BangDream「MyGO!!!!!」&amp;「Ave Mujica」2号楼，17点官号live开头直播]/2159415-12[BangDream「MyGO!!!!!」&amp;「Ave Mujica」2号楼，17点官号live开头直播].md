@@ -17337,3 +17337,49 @@ Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gop不就这样，打gbc发现中之人除了颜值不太行，论实力能把go吊起来打。这下只能把鸡团拉过来，但是要我选清算gbc还是清算go，我选后者，谁和你姐妹团啊
 双r好歹是前辈，人气和实力比不过真没办法，但是狗团就笑哈哈了，还记得爱知被李子一打二的惨状呢
 
+
+*****
+
+####  紫吹兰  
+##### 17719#         楼主| 发表于 2024-6-20 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308630&amp;ptid=2159415" target="_blank">skives10 发表于 2024-6-20 12:11</a>
+
+我主页的鸡粉都去拥抱gbc了 起码周边是真好看真有消费欲</blockquote>
+
+想了想，我也买了GBC的周边.....
+
+<img src="https://img.saraba1st.com/forum/202406/20/145554s3dyymu3zudiuunm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240620145535.png</strong> (505.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 14:55 上传
+
+*****
+
+####  日野下花帆  
+##### 17720#       发表于 2024-6-20 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">画的图这几次确实都没什么消费欲望了……明年支持一下mujica的动画bd吧
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  相坂君  
+##### 17721#       发表于 2024-6-20 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚上是不是就能看到泥楼被阴阳鸡杂楼了，反正有些缩隔壁豚楼阴阳泥楼都不过来，就是因为泥楼孝祥！
+
+*****
+
+####  星天观测  
+##### 17722#       发表于 2024-6-20 15:01
+
+为啥清算gcb呢，人家人气高因为动画运营周边确实到位啊，要是人气还低那不成了东映的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd的进步我都惊了，但是现在鸡是底边湖笔打不到我们这儿啊
+

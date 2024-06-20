@@ -17452,3 +17452,14 @@ gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd�
 都说奶头乐，有鸡不看2.0们时刻关注着母鸡卡，用“鸡糊比”安慰填满ta们的生活、转移其注意力和不满情绪，沉浸在鸡卖不出票的“快乐”中，不知不觉丧失思考能力
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这赛博奶嘴的威力还挺大的，嘬一口就陷入一种虚拟的狂欢
 
+
+*****
+
+####  雪川_  
+##### 17730#       发表于 2024-6-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65311035&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 15:08</a>
+
+这又和gbc有什么关系？很明确是有小鬼先去gbc那边ky和拉踩的啊？和鸡粉乃至其他团粉有什么关系？搞帮亲不帮 ...</blockquote>
+亲眼看到了你哭第八集第二天的go群里好几个踩着go吹牛逼的
+

@@ -16528,3 +16528,36 @@ nga专楼和你楼唯一的共同点就是日常在骂go吧那些整天想着复
 
 syl，和朋友讨论了一下，渡濑在D5J推日高さおり，动画播出期间寥寥无几针对角色的反应里提到两次喵梦，渡濑是喵厨可能性存疑，睦喵也抬上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17647#       发表于 2024-6-20 09:21
+
+天天说mujica欠go一场live，那欠mujica的广播，小动画，剧场版什么时候还，不都是武士道安排的吗？
+
+只记的自己还差什么就算了，mujica粉有意见还不让提，完美阐释了既得利益者的嘴脸。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Суслов  
+##### 17648#       发表于 2024-6-20 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305098&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-6-20 00:31</a>
+枪杀爱音那章随便拉个没看过文的路人都难蚌，逻辑一塌糊涂，上一章刚跑路下一章抽了风突然杀爱音，活该被 ...</blockquote>
+能整出枪杀爱音这种逆天大活就不要怪读者发病了，说到底就是不相信老白能写好狗团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

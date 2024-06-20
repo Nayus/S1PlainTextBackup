@@ -308,3 +308,22 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">马会飞，枪能放波，开大是面板超增幅+魔免，乖乖，好猛
 
+
+*****
+
+####  シャル  
+##### 1789#       发表于 2024-6-20 09:24
+
+和想的一样啊
+
+放宝具就是无敌，不吃任何伤害
+
+这个可以无伤过王军吧
+
+*****
+
+####  saber6146  
+##### 1790#       发表于 2024-6-20 09:25
+
+年轻该溜子赵云，打扮丑一点也是合理的，有了编制才能白马银甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

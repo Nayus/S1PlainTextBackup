@@ -82,3 +82,14 @@ leap year 小而精的知识锁神作，1个半小时左右的游戏时长，建
 
 <img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">才发现 14 种扫雷变体 2 不支持 Mac，别啊一代都支持的呀。
 
+
+*****
+
+####  BRAVADO  
+##### 212#       发表于 2024-6-20 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65279582&amp;ptid=2017380" target="_blank">dustyy 发表于 2024-6-18 10:03</a>
+
+想买一个午休玩， bean and nothingness和can of wormholes哪个比较推荐哇</blockquote>
+我觉得bean好玩些，但是bean和虫洞不太能算一类的，bean和baba，drod这些算是一卦的，这类里还是最近出的leaf's odyssey平易近人；虫洞和烤肠怪兽远征篝火这些是一类的。还是看你喜欢哪一类。
+

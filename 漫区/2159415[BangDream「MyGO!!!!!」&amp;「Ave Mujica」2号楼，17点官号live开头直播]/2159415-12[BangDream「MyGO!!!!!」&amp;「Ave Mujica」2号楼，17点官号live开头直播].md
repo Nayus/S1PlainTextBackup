@@ -17317,3 +17317,23 @@ Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就
  只能说没上次那个公司go去cue了下ppp和m的资源去捂鸡的嘴，可能还没那么多人意识到老团这边资源也被削减的 ...</blockquote>
 这是什么时候的事儿啊
 
+
+*****
+
+####  星天观测  
+##### 17717#       发表于 2024-6-20 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310529&amp;ptid=2159415" target="_blank">晋冠丘 发表于 2024-6-20 14:30</a>
+
+这是什么时候的事儿啊</blockquote>
+大概是火出来的时候，刚开始鸡杂觉得怎么没有mv，gop的说法是他们也有一首没有，后来补上了鸡杂开始集体破大防，公司狗就出来捂嘴了，经典言论：ppp他们资源更少怎么没见他们出来要资源，底边湖笔闹麻了<img src="https://static.saraba1st.com/image/smiley/face/109.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 17718#       发表于 2024-6-20 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">gop不就这样，打gbc发现中之人除了颜值不太行，论实力能把go吊起来打。这下只能把鸡团拉过来，但是要我选清算gbc还是清算go，我选后者，谁和你姐妹团啊
+双r好歹是前辈，人气和实力比不过真没办法，但是狗团就笑哈哈了，还记得爱知被李子一打二的惨状呢
+

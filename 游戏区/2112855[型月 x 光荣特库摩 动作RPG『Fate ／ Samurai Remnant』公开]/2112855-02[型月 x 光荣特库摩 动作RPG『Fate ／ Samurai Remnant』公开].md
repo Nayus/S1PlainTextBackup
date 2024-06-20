@@ -422,3 +422,16 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 而且最大人数是2，就是这玩意考虑到阿斗，理论上你可以用这个带别的从者突进到敌阵的，很好用
 
+
+*****
+
+####  刑部姬真可爱  
+##### 1800#       发表于 2024-6-20 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65309039&amp;ptid=2112855" target="_blank">uponutopia 发表于 2024-6-20 12:45</a>
+
+说到赵云就是白衣银甲是什么奇怪的印象，论经典造型白衣银甲不是公孙瓒就是马超怎么也轮不到赵云吧，就算是 ...</blockquote>
+影视剧赵云基本都是白衣银甲
+
+哪怕说光荣，三国志系列基本也是白衣银甲，只在无双系列有其他配色
+

@@ -1036,3 +1036,21 @@ ios没有版本更新？
 
 看來連5星飼料都能全賣了，雖然才農，反正每周任務都可能要你刷飼料關
 
+
+*****
+
+####  シャル  
+##### 12897#       发表于 2024-6-21 07:30
+
+ 本帖最后由 シャル 于 2024-6-21 07:32 编辑 
+
+又多了一个妈
+
+<img src="https://img.saraba1st.com/forum/202406/21/073224wezeztsrwtkkkvah.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6DE7C1F8-4AF4-493B-82B4-027CF5CE7CE0.jpeg</strong> (477.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 07:32 上传
+

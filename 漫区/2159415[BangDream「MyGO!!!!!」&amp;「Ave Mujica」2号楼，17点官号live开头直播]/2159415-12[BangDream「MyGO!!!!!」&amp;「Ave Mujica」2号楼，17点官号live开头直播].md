@@ -17628,3 +17628,40 @@ mujica这个哥特风格惯用拉丁语还有舞台剧/暧昧小剧场解密要�
 
 明年nga那边总要分楼了吧，不会还要在狗企划楼讨论洗脚婢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17746#       发表于 2024-6-20 16:39
+
+明年，NGA、S1都要开新楼，S1这边肯定是新换旧。
+
+NGA那边不知道是新换旧，还是两拨人互相阴湿。
+
+
+*****
+
+####  downforce  
+##### 17747#       发表于 2024-6-20 16:42
+
+bd特典到了
+<img src="https://p.sda1.dev/18/91f3caa2230a65167c56e71d29ac5197/CMP_20240620164152607.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/d71b30668dc50497df86b8886521a4c4/CMP_20240620164152762.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5252b4df96fc14775b3b777c0530a52e/CMP_20240620164152880.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  斯托雷加  
+##### 17748#       发表于 2024-6-20 16:45
+
+第一次能知道两边还能有这种粉丝冲撞，我一直以为mujica和mygo是一批粉丝，都是看动画玩游戏，哪来那么多清算和对立
+
+*****
+
+####  PDQ4  
+##### 17749#       发表于 2024-6-20 16:46
+
+换了楼人也不会变，可以预计，明年肯定有人每集造新假药贷款祥子或者鸡团下一集如何吃瘪破防<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

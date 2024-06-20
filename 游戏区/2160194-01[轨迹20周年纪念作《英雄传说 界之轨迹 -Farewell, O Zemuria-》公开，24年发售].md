@@ -4196,3 +4196,37 @@ pc一般比主机版晚多久？
 
 2024-6-20 08:23 上传
 
+
+*****
+
+####  仲可怀  
+##### 441#       发表于 2024-6-20 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306651&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-6-20 09:31</a>
+
+看来老楼捞不回来了，版主都说他看不到那个帖子，即使一年半载后突然放了出来，也没什么意义了……
+
+我记得 ...</blockquote>
+主楼加了微博的链接？很莫名其妙 现在还提升主题被审核 
+
+*****
+
+####  医生狼多  
+##### 442#         楼主| 发表于 2024-6-20 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306704&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-6-20 09:35</a>
+主楼加了微博的链接？很莫名其妙 现在还提升主题被审核</blockquote>
+找狗叔看看？
+
+
+*****
+
+####  Squall25  
+##### 443#       发表于 2024-6-20 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306096&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-20 08:39</a>
+估计都是没有价值的废话复读，看会不会有新作的消息吧
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+上面说了会有新情报的，而且26号也要发新视频。
+

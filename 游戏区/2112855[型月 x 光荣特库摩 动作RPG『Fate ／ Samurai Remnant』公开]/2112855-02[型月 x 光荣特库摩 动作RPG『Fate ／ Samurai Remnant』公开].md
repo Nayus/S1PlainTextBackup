@@ -458,3 +458,33 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 —— 来自 Xiaomi 24053PY09C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 1803#         楼主| 发表于 2024-6-20 16:16
+
+[https://x.com/hagitcho/status/1803635044663304591](https://x.com/hagitcho/status/1803635044663304591)
+
+#FateSR DLC第3弾「断章・白龍紅鬼演義」にて登場の「趙雲」キャラクターデザイン原案を担当致しました。皆様思い入れの深い偉大な英傑を描く大役を任せて頂き光栄の至りです。楽しんでください！
+<img src="https://p.sda1.dev/18/3738c9df8e0ad7394819dc52f08d1a94/20240620_122035.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hotosoka/status/1803699311370232264](https://x.com/hotosoka/status/1803699311370232264)
+
+ご無沙汰しております。
+
+Fate/Samurai RemnantのDLC第3弾「断章・白龍紅鬼演義」にて「逸れのバーサーカー」のキャラクター原案を担当させていただきました。
+
+どうぞよろしくお願いいたします。
+<img src="https://p.sda1.dev/18/8e9fe6078099d2d4a3d145092bb306da/20240620_161446.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gary76  
+##### 1804#       发表于 2024-6-20 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310882&amp;ptid=2112855" target="_blank">saintsun7799 发表于 2024-6-20 14:57</a>
+
+唐朝段成式的《酉陽雜俎》也有記載：夜行遊女，一曰天帝女，一名釣星，夜飛晝隱，如鬼神。衣毛為飛鳥，脫 ...</blockquote>
+最早的姑獲鳥奪子傳說是東晉玄中記裡面寫，但天女下凡被留在凡間生子的故事在先秦兩漢肯定已經有了
+

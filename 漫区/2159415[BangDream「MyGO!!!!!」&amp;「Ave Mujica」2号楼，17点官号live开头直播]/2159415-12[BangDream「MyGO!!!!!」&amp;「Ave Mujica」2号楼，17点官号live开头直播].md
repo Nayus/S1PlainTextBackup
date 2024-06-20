@@ -17429,3 +17429,26 @@ gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd�
 把鸡湖笔卖不出票当赛博奶嘴是合理的，只讨论鸡不讨论狗 ...</blockquote>
 這下樓友都共犯了 非常符合世界觀呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17728#       发表于 2024-6-20 15:16
+
+另外漏油请提前做好进手游后的切割准备，不稳定的卡面（甚至鬼图），交接工作不知道怎么做的手游文案，随机挑选水平高低的剧情编剧。
+
+反正主创团队完全可以只认动画组，手游那边挑点发糖卡面和剧情就行了。
+
+*****
+
+####  相坂君  
+##### 17729#       发表于 2024-6-20 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310991&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 15:06</a>
+
+不是早阴阳过了，【鸡杂楼说狗消息都没人理的】
+
+把鸡湖笔卖不出票当赛博奶嘴是合理的，只讨论鸡不讨论狗 ...</blockquote>
+都说奶头乐，有鸡不看2.0们时刻关注着母鸡卡，用“鸡糊比”安慰填满ta们的生活、转移其注意力和不满情绪，沉浸在鸡卖不出票的“快乐”中，不知不觉丧失思考能力
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这赛博奶嘴的威力还挺大的，嘬一口就陷入一种虚拟的狂欢
+

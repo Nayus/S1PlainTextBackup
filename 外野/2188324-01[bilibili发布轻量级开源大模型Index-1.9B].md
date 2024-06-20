@@ -453,3 +453,14 @@ prompt: 你是蒙古上单
 
 —— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  カドモン  
+##### 48#       发表于 2024-6-20 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314834&amp;ptid=2188324" target="_blank">carolawyer 发表于 2024-6-20 19:49</a>
+
+好像不太行，问个 2023 年百大名单都列举不好</blockquote>
+1.9b  也就这样了
+

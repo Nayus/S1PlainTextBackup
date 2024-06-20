@@ -1551,3 +1551,34 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 彼女たちの運命
 想看魔幻元素了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17909#       发表于 2024-6-20 20:58
+
+明年周年还是贝斯组，rimi，hmr，千圣，lisa，hgm，nnm，chu²，soyo，海铃。九张卡wsd有想好怎么出了吗，明年可能俩dfes都是贝斯组的人或者基础概率上调至3.5％后多出一张五星卡。
+
+*****
+
+####  NODY  
+##### 17910#       发表于 2024-6-20 20:58
+
+命运是吧，我真的要奶组mujica其实是初祥小时候的约定了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17911#       发表于 2024-6-20 20:59
+
+贝斯组……lisa……我的钱包……
+
+*****
+
+####  NODY  
+##### 17912#       发表于 2024-6-20 20:59
+
+ 本帖最后由 NODY 于 2024-6-20 21:01 编辑 
+
+如果和狗一样提前三集连播的话，3月13号可以播完，是有机会赶在周年前实装
+

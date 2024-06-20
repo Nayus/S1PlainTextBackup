@@ -2427,3 +2427,16 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 时间线实际上挺影响编剧情的吧，本来就要顺应玩法</blockquote>
 不影响，玩家在乎而已，塞尔达都是先设计玩法再套剧情而已
 
+
+*****
+
+####  JustW  
+##### 245#       发表于 2024-6-20 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313027&amp;ptid=2188108" target="_blank">Junakr 发表于 2024-6-20 17:31</a>
+
+官推宣发确认かりもの就是指借り物了。
+
+かりものの姫也可以是もののけ姫（和王泪林克对称上了（没有。 ...</blockquote>
+似乎与英文版的“echoes”、中文版的“再现”有些区别
+

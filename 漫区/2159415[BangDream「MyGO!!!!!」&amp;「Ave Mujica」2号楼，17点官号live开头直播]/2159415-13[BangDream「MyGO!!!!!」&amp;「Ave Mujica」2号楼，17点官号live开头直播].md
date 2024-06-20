@@ -1274,3 +1274,70 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 
 睦那边是真的不太好猜，现有的猜想一个比一个狗血而且不邦，当同人脑洞消化了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives10  
+##### 17884#       发表于 2024-6-20 19:48
+
+还是觉得初华是侦探役 睦是维护秘密的人
+
+*****
+
+####  Aendst  
+##### 17885#       发表于 2024-6-20 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mujica真的在刻意藏信息是最难受的，想要推测都根本没地方着手
+
+*****
+
+####  MZZK  
+##### 17886#       发表于 2024-6-20 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">高尾大小姐和梦以约会的图好像没人发？
+
+*****
+
+####  rikaren  
+##### 17887#       发表于 2024-6-20 19:52
+
+<blockquote>NODY 发表于 2024-6-20 19:46
+双胞胎分别被丰川若叶领养论其实是最讨巧的写法，能一次性解决祥子主动和爹走/睦的负罪感/邦邦世界家长不能 ...</blockquote>
+问题出在动画剧情篇幅上，c团遗事，立希劣等感，AM五个人的心理健康问题，祥睦身上的谜团，初海喵的角色塑造与展开，最后和解的共同live（可能没有），中间还要插鸡的live和舞台剧（舞台剧也会是剧情展开的手段），不整点取巧的感觉很难13话压缩完毕。
+
+*****
+
+####  滑稽Captain  
+##### 17888#       发表于 2024-6-20 19:52
+
+这两天仓鼠画的那套MyGO BD大陆限定特典开始到货了，但是我当时买的是wsd官店，与我无关了（
+
+
+*****
+
+####  rikaren  
+##### 17889#       发表于 2024-6-20 19:56
+
+<blockquote>skives10 发表于 2024-6-20 19:48
+还是觉得初华是侦探役 睦是维护秘密的人</blockquote>
+十三话初华表示自己想要和祥子一起做电车回去的时候，睦有个突然看向初祥的动作，这个估计只有睦考虑到初华会去盒祥子的可能性了，同时祥子那边在对初华说完“没有名人的自觉”后她自己好像也没有防初华尾随开盒的自觉。
+
+*****
+
+####  NODY  
+##### 17890#       发表于 2024-6-20 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314876&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 19:52</a>
+
+问题出在动画剧情篇幅上，c团遗事，立希劣等感，AM五个人的心理健康问题，祥睦身上的谜团，初海喵的角色 ...</blockquote>
+和解live这种东西根本没必要，c团遗留的问题也没多少篇幅（五个人都认了c团回不去了真的还有遗留问题需要解决吗），至于立希的塑造更是和明年动画没关系，经过昨天的事情很多立希推已经准备好如果在动画手游又垫脚就出周边跑路了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17891#       发表于 2024-6-20 19:57
+
+藏得太多了啊，李弄也好茜梦节也好，访谈都一副“真的很爆但是我们不能说”，急死
+
+动画只有13集，感觉会留一部分问题给手游解决，希望不要留那种手游编剧很难写好的问题<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

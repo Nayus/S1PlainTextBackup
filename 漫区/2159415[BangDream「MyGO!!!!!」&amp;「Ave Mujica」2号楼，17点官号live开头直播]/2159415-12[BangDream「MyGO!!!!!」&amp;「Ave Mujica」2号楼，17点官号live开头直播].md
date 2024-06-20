@@ -17138,3 +17138,68 @@ syl，还有说🐔糊的，就wsd这半年的操作下来，🐔不糊要么是
 最近这些live图，曲绘，真的看的很没消费欲望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 下得了手都是看在角色份上
 
+
+*****
+
+####  御景  
+##### 17701#       发表于 2024-6-20 12:19
+
+<blockquote>星空冻结 发表于 2024-6-20 12:04
+其实2.5的颜值没那么重要，只要2次元好看就行，关键就是你wsd的图画的和鬼一样，而且一张👻图卖半年
+
+syl， ...</blockquote>
+确实，真在乎三次，mygo和mujica角色人气就不是现在这样了。
+
+很多人反而是爱屋及乌。
+
+
+*****
+
+####  zzhh0131  
+##### 17702#       发表于 2024-6-20 12:22
+
+没绫奈对你邦这种根不正的企划确实提不起一点兴趣
+
+*****
+
+####  御幸一也  
+##### 17703#       发表于 2024-6-20 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308545&amp;ptid=2159415" target="_blank">星空冻结 发表于 2024-6-20 12:04</a>
+
+其实2.5的颜值没那么重要，只要2次元好看就行，关键就是你wsd的图画的和鬼一样，而且一张👻图卖半年
+
+syl， ...</blockquote>
+唉 泥樓的ave粉看來都腦子有病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 17704#       发表于 2024-6-20 12:23
+
+说到gbc，最典的不就是被go粉被刺团粉踩中之人性能，然后go粉没辙了就拿双R和Mujica出来挡枪，乐的不行<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17705#       发表于 2024-6-20 12:26
+
+<img src="https://img.saraba1st.com/forum/202406/20/122347oh5wfwrmwmec8swo.png" referrerpolicy="no-referrer">
+
+<strong>Image_1718857138070.png</strong> (224.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 12:23 上传
+
+无视资源卡面柄图歌曲质量以及运营操作就在那说鸡糊活该吃不到资源，怎么有个高人气团实装半年后周年活动的活跃人数就对半砍了捏。当初20年-21年天音出道逆天发挥+疫情+鬼图连发都没做到对半砍这种程度。
+
+*****
+
+####  ellisnadie  
+##### 17706#       发表于 2024-6-20 12:27
+
+其实就人设来说鸡团人设还是有优势了，五个人人设包括角色设定还是挺时髦的（反面例子就是ras，二次元人设真不太行）
+
+然后现在官方全是鬼图，不和狗比和自己比质量甚至也不如go动画开播前
+

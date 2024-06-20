@@ -377,3 +377,26 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 你说这是孙策我还觉得有点像。
 
+
+*****
+
+####  洛克萨斯  
+##### 1796#       发表于 2024-6-20 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308795&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2024-6-20 12:26</a>
+
+为什么该溜子时期的赵云宝具会是长坂坡召唤还绑定了阿斗</blockquote>
+精神状态，肉体状态，事迹升华的技能和宝具是可以穿插拼一起的，没有固定
+
+*****
+
+####  洛克萨斯  
+##### 1797#       发表于 2024-6-20 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306567&amp;ptid=2112855" target="_blank">シャル 发表于 2024-6-20 09:24</a>
+
+和想的一样啊
+
+放宝具就是无敌，不吃任何伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧已经在论战子龙锁头青龙一闪，闪大王人头落地了
+

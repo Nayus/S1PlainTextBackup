@@ -17277,3 +17277,11 @@ mini album初回的包装让人联想到当时Asriel的同人碟，Mujica前期�
 
 Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就是枪姬（也是CV演唱的印象碟）和终兽了。少歌那事儿主要是少歌的音乐发行就是在Revo现在的唱片公司Pony Canyon的，这波只能说是中村彼方追星追的有问题了（应该还是价格没谈拢概率大）
 
+
+*****
+
+####  NODY  
+##### 17713#       发表于 2024-6-20 13:32
+
+少歌音乐质量高的代价就是一年出不了几首新歌，穷酸wsd是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -361,3 +361,11 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 为什么该溜子时期的赵云宝具会是长坂坡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">召唤还绑定了阿斗
 
+
+*****
+
+####  uponutopia  
+##### 1794#       发表于 2024-6-20 12:45
+
+说到赵云就是白衣银甲是什么奇怪的印象，论经典造型白衣银甲不是公孙瓒就是马超怎么也轮不到赵云吧，就算是光荣的刻板印象也是一身蓝绿
+

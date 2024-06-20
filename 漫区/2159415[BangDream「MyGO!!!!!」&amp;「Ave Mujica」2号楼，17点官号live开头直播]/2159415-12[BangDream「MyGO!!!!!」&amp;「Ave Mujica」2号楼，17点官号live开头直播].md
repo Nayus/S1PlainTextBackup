@@ -17238,3 +17238,29 @@ mini album初回的包装让人联想到当时Asriel的同人碟，Mujica前期�
 
 结果被wsd憋的被别人拿来嘲讽了，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 17710#       发表于 2024-6-20 12:55
+
+<blockquote>UNISONIA 发表于 2024-6-20 12:32
+说起来您头像是ELFENSJóN的六出花那个角色吧，那我有个猜测就可以直接说了
+
+我猜武士道一开始是想弄Asri ...</blockquote>
+武士道真肯下功夫的话让黑濑（或者ELFENSJóN名义）供曲甚至连曲绘也涵盖在内也是有可能的，毕竟连墨镜都个人名义单供曲过
+
+武士道自己又有唱片公司，如果真的特地找人的话我觉得大抵是武士道这边给的东西不太行……对方对内容没兴趣或者价格没谈拢
+
+这个猜测确实很有意思，虽然金属哥特并不少见，但是近年活跃的确实不多了，不管怎么样我确实还是想梦一下黑濑供曲
+
+*****
+
+####  鳥栖朝  
+##### 17711#       发表于 2024-6-20 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65309044&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-06-20 12:45:59</a>
+我一直觉得世界观是方便演员替换身份很巧妙的方法，换曲风什么的都很合适，访谈也锤了现阶段是人偶世界观罢 ...</blockquote>是这样的，本来具有很强的兼容性，结果被wsd的操作搞成这样
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

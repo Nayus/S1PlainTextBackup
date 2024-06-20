@@ -1773,3 +1773,21 @@ kkr这身配色是不是有点问题
 
 只觉得wsd的衣品越来越烂了，这图看着像一群大妈出来买菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 17930#       发表于 2024-6-20 23:00
+
+谁没问题？哪个单拿出来不是两眼一黑
+
+
+*****
+
+####  星天观测  
+##### 17931#       发表于 2024-6-20 23:06
+
+ksm这腰身我有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ykn不知道是不是因为初始的白色衬衣紫色裙子就很成熟，好像稍微好一点
+

@@ -17475,3 +17475,70 @@ gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd�
 
 到底谁先把鸡团当枪使我觉得不瞎的都有数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17732#       发表于 2024-6-20 15:54
+
+<blockquote>雪川_ 发表于 2024-6-20 15:36
+亲眼看到了你哭第八集第二天的go群里好几个踩着go吹牛逼的</blockquote>
+不知道你想说什么，但是如果你是想说是gbc那边粉丝先动的手的话，那我只能查询下gbc前几话有多少刷mygo以及强行把gbc和go动画对比的了，gbc楼都不知道骂过几次了。
+
+*****
+
+####  星天观测  
+##### 17733#       发表于 2024-6-20 15:54
+
+狗和gbc打我没任何感受，又不是wsd孝子，现在邦里真心推的只剩萝和鸡了，小鬼互殴本来就和萝鸡没关系，老东西和底边糊糊团有人care吗
+
+到底谁先把萝鸡当枪使我觉得不瞎的都有数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17734#       发表于 2024-6-20 15:55
+
+需要挡箭牌和吸血包了就突然凭空生出了姐妹团亲缘，需要拿来拉踩吹mygo的时候就是一脚踢开的底边反派只配洗脚，有些人脑袋里这血缘还挺智能的
+
+*****
+
+####  空无阿冰  
+##### 17735#       发表于 2024-6-20 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鸡动画复刻一遍现在gbc在战吧的路程也不是不无可能
+
+比如凭什么祥子事业能这么顺利，为什么母鸡卡不吃瘪，练习没有失误等贴子
+
+
+*****
+
+####  好想看Mujica啊  
+##### 17736#       发表于 2024-6-20 16:00
+
+毕竟天不生狗,3D偶像万古如长夜。
+
+狗粉觉得自己在中国市场是开拓者，你们这些后来者是搭了我的车，要感恩，亲姐妹也要明算账<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17737#       发表于 2024-6-20 16:02
+
+练习没有大失误倒是有可能？不演这块就行不重要，事业顺利和mujica不吃瘪，我不是很信
+
+绫奈那个样，不对祥子动刀我觉得对不起她的恶趣味，存疑点无非是她多狠心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 17738#       发表于 2024-6-20 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65311759&amp;ptid=2159415" target="_blank">空无阿冰 发表于 2024-6-20 15:58</a>
+鸡动画复刻一遍现在gbc在战吧的路程也不是不无可能
+
+比如凭什么祥子事业能这么顺利，为什么母鸡卡不吃瘪，练 ...</blockquote>
+这难道不是历史吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如踩mujica的live和歌没有感情不如mygo的
+尤其那个关于live的在贴吧还是同一楼主同样的风味
+有一部分其实是gbc复刻的第13集mujica舆论氛围<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

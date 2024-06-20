@@ -1619,3 +1619,23 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 以后再也不买atlus的初版rpg。
 
+
+*****
+
+####  BTM  
+##### 168#       发表于 2024-6-20 10:28
+
+久仰大名+1
+
+真女神转生这么快出到5 我是想不到的
+
+外传persona也是5，第六部还没公开。
+
+
+*****
+
+####  Kyou99  
+##### 169#       发表于 2024-6-20 10:34
+
+希望atlus以后别整这种商法了
+

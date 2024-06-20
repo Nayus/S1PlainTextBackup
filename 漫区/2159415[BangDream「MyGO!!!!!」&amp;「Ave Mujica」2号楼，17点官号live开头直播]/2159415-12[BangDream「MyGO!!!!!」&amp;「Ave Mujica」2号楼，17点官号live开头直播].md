@@ -16630,3 +16630,30 @@ go吧的史，你还真不知道是不是当真。
 
 https://www.pixiv.net/artworks/119789696<img src="https://p.sda1.dev/18/75c68bd84ca6f1bf13331c83ea9cddcc/CMP_20240620095328684.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17654#       发表于 2024-6-20 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305324&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-6-20 01:20</a>
+
+前几天在隔壁看了下天天氵的投票贴，一下就看到楼主发言
+
+以及某些狗批日常拿狗动画播完的销量踩头鸡动画 ...</blockquote>
+笑点解析：嘲鸡卖不出票的发言，近期基本都是同一个人发的，除了嘲讽鸡live没人去不做其他发言
+
+我们gop真是太会定点打靶啦，鸡真是底底又边边啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17655#       发表于 2024-6-20 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307344&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 10:32</a>
+
+笑点解析：嘲鸡卖不出票的发言，近期基本都是同一个人发的，除了嘲讽鸡live没人去不做其他发言
+
+我们gop ...</blockquote>
+我觉得这集我看漏油说过，这是有鸡不看哥？nga还没封吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

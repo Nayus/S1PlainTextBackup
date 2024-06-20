@@ -1853,3 +1853,18 @@ air的立繪雖然鬼，在水管上撥放量還挺高的
 
 air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 17939#       发表于 2024-6-21 00:12
+
+拖太久了容易把热情拖没了，我这种只关注动画的好多了，wsd这样子2.5次元鸡推有得受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17940#       发表于 2024-6-21 00:17
+
+我上个真情实感追的2.5企划还是缪斯，那时候哪遇到过鸡这待遇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

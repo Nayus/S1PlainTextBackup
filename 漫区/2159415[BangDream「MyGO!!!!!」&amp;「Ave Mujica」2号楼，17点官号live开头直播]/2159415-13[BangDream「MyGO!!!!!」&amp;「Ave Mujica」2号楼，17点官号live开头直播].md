@@ -1809,3 +1809,13 @@ ksm那个款式不做收腰太草了，而且感觉不止ksm的衣服没做收�
 
 坏消息，明年就有了
 
+
+*****
+
+####  星天观测  
+##### 17934#       发表于 2024-6-20 23:49
+
+好消息，初华还没进这种鬼图
+
+坏消息，air的立绘已经是鬼图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

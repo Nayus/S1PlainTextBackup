@@ -3258,3 +3258,21 @@ max三岗过了，仍旧没有金
 
 我还想说邦普第一眼幻视左纳乌弓呢，套起来了。
 
+
+*****
+
+####  KBAC  
+##### 4761#       发表于 2024-6-20 11:54
+
+7月中开卖捆绑dlc的实体版。
+这下完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  VVhaleVoice  
+##### 4762#       发表于 2024-6-20 11:57
+
+喷3按惯例会抢上ns2吗？现在入坑算不算49面入国军？
+

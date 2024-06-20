@@ -16983,3 +16983,49 @@ EG问题是有，但是起码有古典功底优秀的和key出身的，mujica在
 顺带一提之前隔壁有帖楼主又在恶心人张口闭口“ ...</blockquote>
 隔壁走廊哪栋楼？我去看一下。
 
+
+*****
+
+####  御幸一也  
+##### 17686#       发表于 2024-6-20 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308136&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 11:30</a>
+
+我担心的就是这个，现在我还能等626初华生日和7.7爱知，7.7要是没新东西就要熬到十月中旬，要不是入坑以后 ...</blockquote>
+照理來說是差不多要給個廣播了的。
+
+因為他go是2022/12/21開的廣播，動畫開播的半年前。
+
+如果沒有就是不公平哦，不過還是讓我期待一下到時誰會用“世界觀”牌來堵嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 17687#       发表于 2024-6-20 11:42
+
+维护世界观那要不要也维护下aono tokyo品味很土的设定，天天出奇葩衣服还做成柄图和游戏服装，这种人只有烧到自己身上才会有反应。
+
+*****
+
+####  DarthAka  
+##### 17688#       发表于 2024-6-20 11:43
+
+这俩新团还是脸差点意思，青木+梦姨+茜姨来个三重奏搞不好都比鸡狗卖得多……隔壁GBC那几个也是，看隔壁的隔壁排舞台那几个还不错，既然配音棒读无所谓、乐器是现练也行，那挑人不应该优先看脸的吗？
+
+*****
+
+####  星天观测  
+##### 17689#       发表于 2024-6-20 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308243&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-20 11:38</a>
+
+照理來說是差不多要給個廣播了的。
+
+因為他go是2022/12/21開的廣播，動畫開播的半年前。
+
+如果沒有就是不公 ...</blockquote>
+那可太多了，现在鸡有什么问题不都是一票的“世界观”“客服小祥”糊到脸上
+
+总之鸡杂别生气，这是你们自己的世界观和客服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

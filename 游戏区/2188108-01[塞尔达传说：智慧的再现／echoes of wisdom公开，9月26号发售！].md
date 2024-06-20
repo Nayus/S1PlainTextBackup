@@ -2450,3 +2450,28 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Junakr  
+##### 247#       发表于 2024-6-20 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314835&amp;ptid=2188108" target="_blank">JustW 发表于 2024-6-20 19:49</a>
+
+似乎与英文版的“echoes”、中文版的“再现”有些区别</blockquote>
+借り物就是借走东西，像是吉卜力「借东西的小人阿莉埃蒂」，小人拿走人类的物品就是「物を借り」，再比如二次元运动会经典项目之借物赛跑（借り物競走），推上还看到了相关梗图创作。
+
+中文标题的再现根据 Echoes 翻的，大概取的是原单词复读的含义，引申了一个复现，应该也觉得回声或回响不太准确吧。
+
+三种语言三种不同的意味，暴论一句取得都挺烂的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  JustW  
+##### 248#       发表于 2024-6-20 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315524&amp;ptid=2188108" target="_blank">Junakr 发表于 2024-6-20 20:38</a>
+
+借り物就是借走东西，像是吉卜力「借东西的小人阿莉埃蒂」，小人拿走人类的物品就是「物を借り」，再比如 ...</blockquote>
+我就是想说中英差不多可以归到一个路数，但都和日文原版的意思差别挺大的（
+

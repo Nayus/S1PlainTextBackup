@@ -1497,3 +1497,30 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 
 这期活动剧情还蛮好玩的
 
+
+*****
+
+####  Aendst  
+##### 17905#       发表于 2024-6-20 20:45
+
+ 本帖最后由 Aendst 于 2024-6-20 20:48 编辑 
+
+邦多利官网这部分似乎是六月之后追加的新内容
+
+<img src="https://img.saraba1st.com/forum/202406/20/204813v8qnro08o07fioqh.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-06-20 214752.png</strong> (342.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 20:48 上传
+
+20240620214402.jpg
+(34.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 20:45 上传
+
+<img src="https://img.saraba1st.com/forum/202406/20/204507iywkpwz3kmtgmezu.jpg" referrerpolicy="no-referrer">
+

@@ -870,3 +870,124 @@ nga专楼天天要容忍有鸡不看哥等几个漏油狗叫，你猜我为什�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  灵椿  
+##### 17844#       发表于 2024-6-20 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314021&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-6-20 18:52</a>
+点开主页好几位在隔壁跟gbc打得热火朝天的，
+怎么不普度众生劝劝他们不要“着相”呢
+唯独逮着鸡粉传教是 ...</blockquote>
+我都没看gbc啊，在那个台长楼里我也就维护了一下go动画和回了一两个比较容易回的扣帽子发言
+
+*****
+
+####  Aendst  
+##### 17845#       发表于 2024-6-20 19:09
+
+ 本帖最后由 Aendst 于 2024-6-20 19:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都吹nga了，顺从吧还能怎么办呢，可能这就是有鸡不看哥真爱粉
+
+*****
+
+####  星天观测  
+##### 17846#       发表于 2024-6-20 19:11
+
+nga专楼里有鸡不看跳脸跳了多久时间你知道么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以及现在的啥都不说只会时不时蹦出来说鸡底边湖笔卖不出票的那位刷了多少回复你知道么，还有鸡从必爆炸等狗救到十人春日影被贷款了多少屎你知道么
+
+nga是不看的，军训鸡粉是要拿nga说事的
+
+*****
+
+####  相坂君  
+##### 17847#       发表于 2024-6-20 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314168&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 19:05</a>
+有没有可能我真正想说的就是这楼好歹是鸡狗楼，楼里迫切想要切割的鸡粉只需要搬大家都认同的go屎来车制造高 ...</blockquote>
+我也不懂，为什么楼里有些鸡粉说是从受不了nga过来的，可能是那边鸡粉浓度太高了，他们受不了
+不过我听说你们nga车语音车了20页，这是不是真的呀？
+都说呼吁分楼了，你支持吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 17848#       发表于 2024-6-20 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭那个专楼，四月份对邦完，大半夜舌战群儒还把老团拉进来的逆天还在呢
+还有我对狗团不感兴趣，感兴趣的只有青木和鼓子，这种情况干嘛要去那个专楼？
+
+
+*****
+
+####  NODY  
+##### 17849#       发表于 2024-6-20 19:13
+
+不是，觉得nga更好聊天就去nga聊啊，在这里叫有什么用，总不能还有什么占地盘指标吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17850#       发表于 2024-6-20 19:13
+
+nga的鸡狗楼绝大部分都是狗相关是可以的，s1的鸡狗楼鸡粉多是犯罪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 17851#       发表于 2024-6-20 19:14
+
+ 本帖最后由 星空冻结 于 2024-6-20 19:16 编辑 
+
+怎么还有吹nga专楼的，就nga之前一周把c团五个人轮一遍的环境，能吹nga的我不好说是不是串子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 17852#       发表于 2024-6-20 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314180&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 19:06</a>
+你自己都说了是缩卵了这不是已经自己得出结论了吗
+
+理亏还说不过导致的</blockquote>
+不是，你不会真觉得把鸡狗专楼改造成这样很自豪吧
+
+*****
+
+####  九陌狂游  
+##### 17853#       发表于 2024-6-20 19:16
+
+有一说一啊，相比nga，还是s1更尊重小羊吧，毕竟都不怎么聊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星天观测  
+##### 17854#       发表于 2024-6-20 19:17
+
+全体鸡粉，出列！
+
+立刻陈述你们为什么要把鸡狗专楼改造成这样！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 17855#       发表于 2024-6-20 19:17
+
+都没看nga专楼都听了这么多有鸡不看哥发言，且是句句经典
+不得不说还是nga有容乃大，这么久才封
+
+*****
+
+####  Aendst  
+##### 17856#       发表于 2024-6-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314291&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 19:16</a>
+
+不是，你不会真觉得把鸡狗专楼改造成这样很自豪吧</blockquote>
+不服你分个楼我看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

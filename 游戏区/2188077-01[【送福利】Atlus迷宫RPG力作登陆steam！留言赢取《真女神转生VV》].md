@@ -1611,3 +1611,11 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 看看自己的运气
 
+
+*****
+
+####  前田利家  
+##### 167#       发表于 2024-6-20 10:21
+
+以后再也不买atlus的初版rpg。
+

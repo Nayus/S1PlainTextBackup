@@ -2950,3 +2950,14 @@ FT甲只是能挡常规光束攻击，还没到光束免疫的程度，命运掌
 </blockquote>
 命运的红心跑接距射击也直接打烂了，离免疫光束还差的远
 
+
+*****
+
+####  pokemon最爱  
+##### 1723#       发表于 2024-6-20 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65303452&amp;ptid=2178694" target="_blank">kinga 发表于 2024-6-19 21:28</a>
+
+命运的红心跑接距射击也直接打烂了，离免疫光束还差的远</blockquote>
+无名炮攻击前对面已经被命运2的光束回旋镖破防了，所以也可以认为对面被无名炮攻击时FT装甲已经失效了所以才打烂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

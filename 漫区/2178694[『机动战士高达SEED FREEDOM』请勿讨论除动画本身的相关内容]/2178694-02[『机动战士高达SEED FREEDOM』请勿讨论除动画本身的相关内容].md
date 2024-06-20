@@ -3006,3 +3006,11 @@ FT装甲能防光枪，夹心炮和普通的光束剑，针对只装备光剑光
 FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockquote>
 掌心炮部分设定里是有光束剑属性的，部分设定里这东西甚至可以无效化光束（包括光剑）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kinga  
+##### 1726#       发表于 2024-6-20 22:29
+
+掌心炮接ij的光束剑那段，如果命运不握拳的话，是不是能顶住
+

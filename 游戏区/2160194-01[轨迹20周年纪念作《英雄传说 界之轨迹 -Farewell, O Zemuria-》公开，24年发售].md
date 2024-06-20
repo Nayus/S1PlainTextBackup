@@ -4135,3 +4135,64 @@ pc一般比主机版晚多久？
 [https://b23.tv/P8KQqGk](https://b23.tv/P8KQqGk)</blockquote>
 草，你先说明是泛式啊，点进去污染我推荐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酷乐  
+##### 435#       发表于 2024-6-19 10:24
+
+为了一碟醋接了个商单：
+
+[https://b23.tv/P8KQqGk](https://b23.tv/P8KQqGk)
+
+*****
+
+####  卢迪克  
+##### 436#       发表于 2024-6-19 17:16
+
+ 本帖最后由 卢迪克 于 2024-6-19 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292838&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-19 08:25</a>
+
+这周是黎轨2专场，eshop预购开启，nd播片，周六日大阪提供试玩。</blockquote>不出所料，买了nd就没买法米通了，本来还以为会和去年ys一样赶在试玩展前更新官网<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 437#       发表于 2024-6-19 17:21
+
+唉，现在的日本业界，这 ND 的片去掉第一方没一个赶得上界轨 pv 的吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 438#       发表于 2024-6-19 17:26
+
+现在也没几个和法社一样还靠纸媒宣发啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 439#       发表于 2024-6-19 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65294444&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-6-19 10:24</a>
+
+为了一碟醋接了个商单：
+
+[https://b23.tv/P8KQqGk](https://b23.tv/P8KQqGk)</blockquote>
+草，你先说明是泛式啊，点进去污染我推荐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhuhh  
+##### 440#       发表于 2024-6-20 08:23
+
+下周大的要来了
+
+<img src="https://img.saraba1st.com/forum/202406/20/082309wp1qamgd8zaund5s.jpg" referrerpolicy="no-referrer">
+
+<strong>1000051792.jpg</strong> (90.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 08:23 上传
+

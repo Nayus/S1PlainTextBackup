@@ -106,3 +106,89 @@
 你是说隔壁百综楼？那没有针对你，别担心，最近我也没去隔壁看。因为类似的话我不止看到一次了才印象深刻 ...</blockquote>
 昨天有人引战以后刚好讲到类似话题，我和楼下一个人的发言基本能把你几个点套进去了，我讲了类似的话但专指动画，场外两边随便去撕吧不关心
 
+
+*****
+
+####  PDQ4  
+##### 17771#       发表于 2024-6-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312827&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:14</a>
+
+昨天有人引战以后刚好讲到类似话题，我和楼下一个人的发言基本能把你几个点套进去了，我讲了类似的话但专 ...</blockquote>
+那你们共振的还挺厉害的，这观点基本上是某些抽象群体共识。所以你是觉得自己可以对号入座想让我也一起骂一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17772#       发表于 2024-6-20 17:18
+
+<blockquote>-LYRE- 发表于 2024-6-20 16:03
+这难道不是历史吗比如踩mujica的live和歌没有感情不如mygo的
+
+尤其那个关于live的在贴吧还是同一楼主同样 ...</blockquote>
+草，原来还是同一个人吗
+
+*****
+
+####  lhwang11  
+##### 17773#       发表于 2024-6-20 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312850&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-6-20 17:17</a>
+
+那你们共振的还挺厉害的，这观点基本上是某些抽象群体共识。所以你是觉得自己可以对号入座想让我也一起骂 ...</blockquote>
+没有人和我共振吧，我的意思是鸡角色在狗动画里我才维护狗动画，除此以外无关心，这也算是很抽象的意识吗？
+
+*****
+
+####  御幸一也  
+##### 17774#       发表于 2024-6-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312880&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:18</a>
+
+没有人和我共振吧，我的意思是鸡角色在狗动画里我才维护狗动画，除此以外无关心，这也算是很抽象的意识吗 ...</blockquote>
+好抽象哦（秒答）。
+
+*****
+
+####  斯托雷加  
+##### 17775#       发表于 2024-6-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312708&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 17:06</a>
+
+没有针对啊，我是在说一些奇形怪状的mygo粉丝，你真不了解的话我觉得快逃，不然没几天就要被迫看到迷惑行 ...</blockquote>
+就咋说呢，我是去年11月一刷的mygo，今年4月2刷后喜欢mujica的，我过去在nga啊贴吧之类的有看到过一些节奏，诸如烤羊之类的，但是点进去我不太明白前因后果，今天点进来这个帖子我也是意外发现有这么多事，所以就是比较意外。真没恶意，要是有耐心还请解答一些这种矛盾起因咋回事？
+
+*****
+
+####  Aendst  
+##### 17776#       发表于 2024-6-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312880&amp;ptid=2159415" target="_blank">lhwang11 发表于 2024-6-20 17:18</a>
+
+没有人和我共振吧，我的意思是鸡角色在狗动画里我才维护狗动画，除此以外无关心，这也算是很抽象的意识吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那想必你也会因为喜欢小智而吹捧宝可梦旅途吧
+
+
+*****
+
+####  斯托雷加  
+##### 17777#       发表于 2024-6-20 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65312891&amp;ptid=2159415" target="_blank">斯托雷加 发表于 2024-6-20 17:20</a>
+
+就咋说呢，我是去年11月一刷的mygo，今年4月2刷后喜欢mujica的，我过去在nga啊贴吧之类的有看到过一些节 ...</blockquote>
+看到那一楼了，所以主要是粉丝的一些行为招致不满了么
+
+*****
+
+####  收纳袋  
+##### 17778#       发表于 2024-6-20 17:22
+
+<img src="https://img.saraba1st.com/forum/202406/20/172129e2akxszlizb7i2zi.jpg" referrerpolicy="no-referrer">
+
+<strong>7A65904C68C727EBD069E5B8B1C0BCC1.jpg</strong> (98.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 17:21 上传
+

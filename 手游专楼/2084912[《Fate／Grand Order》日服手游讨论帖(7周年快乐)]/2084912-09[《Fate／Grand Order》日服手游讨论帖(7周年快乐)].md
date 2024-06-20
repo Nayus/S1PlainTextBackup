@@ -983,3 +983,24 @@ ios没有版本更新？
 
 如up所言，很极限，需要在水边或都市地形触发一技能的蓝卡20up，再加上C呆羁绊礼装的10攻击10NP率，这样的话一个宝具勉强能回60—70NP，想冲浪的话最好有蓝卡up或50NP礼装。
 
+
+*****
+
+####  TheLoof  
+##### 12893#       发表于 2024-6-20 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306126&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-6-20 08:42</a>
+
+据说现在日服尼禄1hit直接打满np？</blockquote>
+答：做不到
+
+不整那些花里胡哨的，500攻礼装，双C呆，QP本触发都市强化
+
+<img src="https://img.saraba1st.com/forum/202406/20/092843wkw3t82cz333wgc2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 09:28 上传
+

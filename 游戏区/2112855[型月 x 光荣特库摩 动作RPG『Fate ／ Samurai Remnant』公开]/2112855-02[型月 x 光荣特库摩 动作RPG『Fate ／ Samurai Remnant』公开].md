@@ -327,3 +327,13 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 年轻该溜子赵云，打扮丑一点也是合理的，有了编制才能白马银甲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  miro112233  
+##### 1791#       发表于 2024-6-20 10:58
+
+赵云设计是近卫那就不奇怪为啥这么土了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说飞嫂是他超长发挥了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

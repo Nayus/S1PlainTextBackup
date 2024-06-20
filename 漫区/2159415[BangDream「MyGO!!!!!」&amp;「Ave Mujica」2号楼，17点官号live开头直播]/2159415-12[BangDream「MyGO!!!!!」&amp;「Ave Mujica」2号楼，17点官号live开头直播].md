@@ -17542,3 +17542,45 @@ gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd�
 尤其那个关于live的在贴吧还是同一楼主同样的风味
 有一部分其实是gbc复刻的第13集mujica舆论氛围<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akirakira  
+##### 17739#       发表于 2024-6-20 16:04
+
+到时候怕不是天天问我狗在哪，我要看的是go第二季怎么端出来了mujica<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 17740#       发表于 2024-6-20 16:07
+
+<blockquote>UNISONIA 发表于 2024-6-20 13:05
+难了，ELFENSJóN现在常驻花碳和Annabel俩老牌实力歌姬，我觉得他已经看不上李子这个穷人版上木了
+
+Revo上 ...</blockquote>
+MOON PRIDE大概是最有商业味的一首了
+
+mujica这个哥特风格惯用拉丁语还有舞台剧/暧昧小剧场解密要素的设置，只能说如果不生在武士道手里的话没准真能梦一下，可惜
+
+*****
+
+####  相坂君  
+##### 17741#       发表于 2024-6-20 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不是说了吗，6集c团，0.5集鸡爆炸，0.5集狗live，6集王道主角团收尾救人
+
+到时候就能看到ave mujica抢戏的帖子
+

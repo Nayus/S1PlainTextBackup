@@ -17383,3 +17383,49 @@ Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就
 
 gcb真打到鸡这儿来了我又不慌，我们鸡实力在这儿，1st到2nd的进步我都惊了，但是现在鸡是底边湖笔打不到我们这儿啊
 
+
+*****
+
+####  御幸一也  
+##### 17723#       发表于 2024-6-20 15:05
+
+泥樓都什麼成分不是大家都心知肚明了嗎　事到如今<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17724#       发表于 2024-6-20 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310918&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-6-20 15:00</a>
+
+今晚上是不是就能看到泥楼被阴阳鸡杂楼了，反正有些缩隔壁豚楼阴阳泥楼都不过来，就是因为泥楼孝祥！ ...</blockquote>
+不是早阴阳过了，【鸡杂楼说狗消息都没人理的】<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+把鸡湖笔卖不出票当赛博奶嘴是合理的，只讨论鸡不讨论狗是在犯罪的
+
+*****
+
+####  rikaren  
+##### 17725#       发表于 2024-6-20 15:08
+
+这又和gbc有什么关系？很明确是有小鬼先去gbc那边ky和拉踩的啊？和鸡粉乃至其他团粉有什么关系？搞帮亲不帮理这套先不说行为正不正确，某些群体真的把鸡团和鸡团粉当过“亲”吗？
+
+*****
+
+####  肛之练筋士  
+##### 17726#       发表于 2024-6-20 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没事，gbc粉丝都在骂东映的幽默宣传
+
+*****
+
+####  御幸一也  
+##### 17727#       发表于 2024-6-20 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65310991&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 15:06</a>
+
+不是早阴阳过了，【鸡杂楼说狗消息都没人理的】
+
+把鸡湖笔卖不出票当赛博奶嘴是合理的，只讨论鸡不讨论狗 ...</blockquote>
+這下樓友都共犯了 非常符合世界觀呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

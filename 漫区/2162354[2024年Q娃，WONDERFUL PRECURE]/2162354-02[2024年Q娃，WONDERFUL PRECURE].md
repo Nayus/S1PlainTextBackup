@@ -3165,3 +3165,14 @@ OPが…♡♡♡
 该用和睦光辉净化这些人类了</blockquote>
 又不是初代的黑白闪，Q娃的净化技能是没有杀伤力的啊猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1760#       发表于 2024-6-20 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305079&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-6-20 00:29</a>
+
+又不是初代的黑白闪，Q娃的净化技能是没有杀伤力的啊猫猫</blockquote>
+该净化你们的心灵了<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+

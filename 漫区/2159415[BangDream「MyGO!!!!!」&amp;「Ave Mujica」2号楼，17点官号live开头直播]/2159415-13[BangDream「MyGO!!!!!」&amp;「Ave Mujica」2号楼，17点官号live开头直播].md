@@ -1524,3 +1524,30 @@ ps：本人最担心的还是初华的塑造，如果她真变成那种没有脑
 
 <img src="https://img.saraba1st.com/forum/202406/20/204507iywkpwz3kmtgmezu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17906#       发表于 2024-6-20 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315586&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 20:45</a>
+
+邦多利官网这部分似乎是六月之后追加的新内容</blockquote>
+這個banner，把人偶們往上拉高了好多，看起來像祥子把人偶們都抱在了胸上一樣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17907#       发表于 2024-6-20 20:54
+
+能不能提前播放啊，我好想鸡能在明年周年前进游戏好让初华她们赶上周年混活和前辈团联动一下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives10  
+##### 17908#       发表于 2024-6-20 20:57
+
+彼女たちの運命
+想看魔幻元素了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -439,3 +439,17 @@ prompt: 你是蒙古上单
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如叫幻想御手
 
+
+*****
+
+####  小妻水亚美  
+##### 47#       发表于 2024-6-20 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314987&amp;ptid=2188324" target="_blank">moeblack 发表于 2024-6-20 20:01</a>
+这模型里面有B站评论区数据的
+
+而且都是上周的事情了</blockquote>
+看样子这个ai是个会抖包袱的梗小鬼
+
+—— 来自 OPPO PGFM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

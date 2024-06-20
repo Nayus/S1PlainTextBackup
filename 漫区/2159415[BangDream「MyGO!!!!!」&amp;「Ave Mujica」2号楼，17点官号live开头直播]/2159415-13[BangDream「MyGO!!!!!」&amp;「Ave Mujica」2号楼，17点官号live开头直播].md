@@ -1632,3 +1632,39 @@ my ...</blockquote>
 
 就是不知道会不会有配信
 
+
+*****
+
+####  御幸一也  
+##### 17918#       发表于 2024-6-20 21:29
+
+居然有ave（的聲優參加）
+
+<img src="https://img.saraba1st.com/forum/202406/20/212853an02b0b0flx0lh8b.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #221 37-30 screenshot.jpg</strong> (150.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202406/20/212912q8a5ukz4akkaaj5d.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #221 37-52 screenshot.jpg</strong> (194.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 21:29 上传
+
+*****
+
+####  ellisnadie  
+##### 17919#       发表于 2024-6-20 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65316008&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 21:23</a>
+
+我大胆贷款一个爱知场water起手毕竟是七夕呢
+
+就是不知道会不会有配信</blockquote>
+七夕，牛郎织女，星星。很搭初祥的意象<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

@@ -959,3 +959,11 @@ ios没有版本更新？
 
 手机系统设置通知设置打开通知就好了
 
+
+*****
+
+####  johnkamsar  
+##### 12891#       发表于 2024-6-20 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">据说现在日服尼禄1hit直接打满np？
+

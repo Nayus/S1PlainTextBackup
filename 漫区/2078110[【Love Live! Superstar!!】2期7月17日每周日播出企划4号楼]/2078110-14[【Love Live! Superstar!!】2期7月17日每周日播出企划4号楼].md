@@ -2000,3 +2000,42 @@ Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  csolfans  
+##### 20360#       发表于 2024-6-19 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65292801&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-19 08:21</a>
+[https://bbs.nga.cn/read.php?tid=40579305&amp;_fp=9](https://bbs.nga.cn/read.php?tid=40579305&amp;_fp=9)
+
+this way~</blockquote>
+thanks
+
+
+*****
+
+####  csolfans  
+##### 20361#       发表于 2024-6-19 19:58
+
+Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ruffian  
+##### 20362#       发表于 2024-6-20 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65284250&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-06-18 16:06:34</a>
+画香音啥时候可以把这个表情ban掉，实在难绷</blockquote>老版立绘的动作和表情都很活泼可爱，现在动不动就意义不明的吴京手加迷之微笑<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 20363#       发表于 2024-6-20 08:40
+
+有一说一，初公开的五人星图也是一言难尽的动态绘图，五角星一样的香音，傻站着但是头发和现在民警一样狂飘的恋。。
+

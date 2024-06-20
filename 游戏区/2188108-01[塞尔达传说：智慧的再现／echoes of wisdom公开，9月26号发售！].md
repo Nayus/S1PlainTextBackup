@@ -2440,3 +2440,13 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 かりものの姫也可以是もののけ姫（和王泪林克对称上了（没有。 ...</blockquote>
 似乎与英文版的“echoes”、中文版的“再现”有些区别
 
+
+*****
+
+####  冷泉夜月  
+##### 246#       发表于 2024-6-20 20:00
+
+目前已知美版和港版海拉鲁限定ns lite都会送一年ns会员，不知道纯粹是补偿不带游戏本体还是说有联机要素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

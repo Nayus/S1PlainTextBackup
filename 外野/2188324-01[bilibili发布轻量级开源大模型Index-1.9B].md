@@ -409,3 +409,25 @@ prompt: 你是蒙古上单
 
 好像不太行，问个 2023 年百大名单都列举不好
 
+
+*****
+
+####  moeblack  
+##### 44#       发表于 2024-6-20 20:01
+
+这模型里面有B站评论区数据的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且都是上周的事情了
+
+【B站把评论区老哥炼成了AI？-哔哩哔哩】 https://b23.tv/nI6X9Lk
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  海豹墨鱼卷  
+##### 45#       发表于 2024-6-20 20:04
+
+会不会练出蒙古上单
+

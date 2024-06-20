@@ -17264,3 +17264,16 @@ mini album初回的包装让人联想到当时Asriel的同人碟，Mujica前期�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  UNISONIA  
+##### 17712#       发表于 2024-6-20 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65309166&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 12:55</a>
+
+武士道真肯下功夫的话让黑濑（或者ELFENSJóN名义）供曲甚至连曲绘也涵盖在内也是有可能的，毕竟连墨镜都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难了，ELFENSJóN现在常驻花碳和Annabel俩老牌实力歌姬，我觉得他已经看不上李子这个穷人版上木了
+
+Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就是枪姬（也是CV演唱的印象碟）和终兽了。少歌那事儿主要是少歌的音乐发行就是在Revo现在的唱片公司Pony Canyon的，这波只能说是中村彼方追星追的有问题了（应该还是价格没谈拢概率大）
+

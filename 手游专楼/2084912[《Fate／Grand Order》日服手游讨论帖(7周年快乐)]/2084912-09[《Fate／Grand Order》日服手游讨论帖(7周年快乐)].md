@@ -1004,3 +1004,13 @@ ios没有版本更新？
 
 2024-6-20 09:28 上传
 
+
+*****
+
+####  quanlix  
+##### 12894#       发表于 2024-6-20 10:45
+
+乐，这赵云每次放宝具都能变个阿斗出来
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

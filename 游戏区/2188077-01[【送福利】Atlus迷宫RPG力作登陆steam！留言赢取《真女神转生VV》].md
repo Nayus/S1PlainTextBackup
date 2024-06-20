@@ -1639,3 +1639,18 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 希望atlus以后别整这种商法了
 
+
+*****
+
+####  alann  
+##### 170#       发表于 2024-6-20 10:47
+
+就喜欢这种风格，看看能不能抽到一个
+
+*****
+
+####  汤圆です  
+##### 171#       发表于 2024-6-20 10:50
+
+作为买了无印数字版的受害者，我来碰碰运气<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -4255,3 +4255,13 @@ pc一般比主机版晚多久？
 
 空rm那就看乐子，新作也可能是乐子
 
+
+*****
+
+####  光之阶梯  
+##### 447#       发表于 2024-6-20 10:51
+
+又来大的了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

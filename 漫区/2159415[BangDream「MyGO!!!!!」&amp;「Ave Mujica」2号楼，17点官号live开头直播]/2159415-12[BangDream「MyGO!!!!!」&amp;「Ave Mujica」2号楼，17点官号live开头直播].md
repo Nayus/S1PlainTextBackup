@@ -16703,3 +16703,65 @@ gop之前和ppp对邦那事还历历在目呢，出了事立马把鸡拉上了
 谁能想到嘲讽鸡是湖笔这种事还能成为gop的赛博奶嘴没事嘬一口啊 ...</blockquote>
 什么无穷尽也，这下还真是外战不行，只能没事天天打鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 17660#       发表于 2024-6-20 10:47
+
+鸡这人气从1st到2nd可以感受到明显下滑，不给物料确实是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+拉新的动画硬拖到明年，行吧鸡粉自己忍，那固粉的广播之类的呢，五首新曲吃大半年，wsd真是天才，本来明年就要盯着续作debuff拉人难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17661#       发表于 2024-6-20 10:50
+
+夭壽了，武士道賣女兒了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/20/104711o6pzvpjrck5zz9yc.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (54.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 10:47 上传
+
+[https://x.com/d4dj_pj/status/1803608709811282092](https://x.com/d4dj_pj/status/1803608709811282092)
+
+*****
+
+####  御景  
+##### 17662#       发表于 2024-6-20 10:50
+
+wsd飞马，早该有的配置，一样没有，2nd结束了，还不推，真要等到九月份go的剧场版播完吗？
+
+*****
+
+####  PDQ4  
+##### 17663#       发表于 2024-6-20 10:52
+
+把D5J游戏全扔出去是否是一种拆东墙补西墙，不会把D5J的人调到邦来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ellisnadie  
+##### 17664#       发表于 2024-6-20 10:53
+
+不得不说新动画拖一年真的是一步臭棋。
+
+就算是只看动画的观众拖了一年热情也磨没了，就不要谈入坑。已经入坑的鸡粉这一年没什么物料又会不会流失呢，我不好说
+
+*****
+
+####  星天观测  
+##### 17665#       发表于 2024-6-20 10:53
+
+很简单啊，gop的解析：现在不给资源是因为要集中推一个团，鸡没物料是因为资源不够/企划本身就设定了没那么多东西
+
+总结：鸡的宣传期总会来的！
+
+反正就是这个月没有就下个月，上半年没有就下半年，今年没有就明年，总之鸡的宣传期会来的，鸡杂别天天拐go，嘴给你捂咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16585,3 +16585,48 @@ syl，和朋友讨论了一下，渡濑在D5J推日高さおり，动画播出�
 
 赛博小祥的剧情可以简单概括为鸡天天被老团按着打，然后没事把狗打一顿，爽文受众也不想看主角天天被前辈揍啊，还收钱，被骂不冤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 17651#       发表于 2024-6-20 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65305024&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 00:23</a>
+
+nga专楼环境还不错，走廊就别想了，随机刷新梗小鬼和引战的（上次有个莫名其妙拉踩gbc和水母的楼，楼主查成 ...</blockquote>
+紫吧米线还挺高的。
+
+紫吧主要是关注中之人，目前除了烤羊，对其它中之人都比较友好，也没看到相互攻击，各路gachi集中地。
+
+紫吧恶心的是发癫，但很明显的知道是发癫，吧务也不会管，经常看到有人发癔症文。
+
+go吧的史，你还真不知道是不是当真。
+
+*****
+
+####  Aendst  
+##### 17652#       发表于 2024-6-20 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方都写不好同人作者能写好也是一种本事
+
+其实漏油也有一个误区
+
+我记得访谈提到过avemujica是mygo故事上的续篇，主角确定更换
+
+官网写明了 <blockquote>そんな彼女たちにスポットを当てたTVアニメ「BanG Dream! Ave Mujica」が2025年1月より放送予定。完全新作のオリジナルアニメーションで繰り広げる、彼女たちの"運命"のお話をお楽しみに。</blockquote>
+所以“第一季”“第二季”这个说法是不妥的，实际上应该和官方说法统一一下
+
+1.前篇 续篇
+
+2.アニメｍygo アニメmujica
+
+用下面这两种说法会更妥当一些
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 17653#       发表于 2024-6-20 09:53
+
+https://www.pixiv.net/artworks/119789696<img src="https://p.sda1.dev/18/75c68bd84ca6f1bf13331c83ea9cddcc/CMP_20240620095328684.jpg" referrerpolicy="no-referrer">
+

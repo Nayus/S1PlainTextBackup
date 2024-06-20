@@ -4230,3 +4230,11 @@ pc一般比主机版晚多久？
 —— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
 上面说了会有新情报的，而且26号也要发新视频。
 
+
+*****
+
+####  ravend233  
+##### 444#       发表于 2024-6-20 09:51
+
+界轨新情报肯定有，但是内容估计也就是常规的介绍几个角色然后地图和新系统完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈我寻思除了空轨remake或者新作外应该没啥东西
+

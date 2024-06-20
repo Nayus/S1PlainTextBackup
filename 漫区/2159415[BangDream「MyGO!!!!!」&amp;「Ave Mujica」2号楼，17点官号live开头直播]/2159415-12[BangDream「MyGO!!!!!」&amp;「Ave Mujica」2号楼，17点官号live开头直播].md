@@ -17285,3 +17285,18 @@ Revo上次仅供曲还是在2011年宝塚星组的兰斯洛特吧，再往前就
 
 少歌音乐质量高的代价就是一年出不了几首新歌，穷酸wsd是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 17714#       发表于 2024-6-20 13:43
+
+ 本帖最后由 -LYRE- 于 2024-6-20 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308762&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-6-20 12:23</a>
+说到gbc，最典的不就是被go粉被刺团粉踩中之人性能，然后go粉没辙了就拿双R和Mujica出来挡枪，乐的不行 ...</blockquote>
+乐，刚刚一点开贴吧就被推送z8车gbc
+进去一看，之前跳得厉害的、嘲鸡糊比活该没资源、骂鸡杂闹麻了的某狗批在那复制粘贴玩梗“等明年mujica出来了回旋镖清算gbc”
+被踩头了想起来拉洗脚婢当枪使了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+“你们这些群体我已经都记住了，明年的时候被回旋镖打到了也别怪我们下手太狠了”复制粘贴的这句不错，完美适用
+你们这些当初跳脸的、前倨后恭的狗批我也都记住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

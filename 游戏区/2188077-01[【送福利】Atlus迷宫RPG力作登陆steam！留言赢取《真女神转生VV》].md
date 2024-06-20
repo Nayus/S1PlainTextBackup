@@ -1697,3 +1697,11 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">原版没玩，可让我等到了
 
+
+*****
+
+####  bluebirdy.  
+##### 177#       发表于 2024-6-20 13:17
+
+原版没打通，送我加强版吧！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

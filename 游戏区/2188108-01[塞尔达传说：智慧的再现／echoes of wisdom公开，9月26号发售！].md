@@ -2518,3 +2518,49 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 不知道英语副标题是不是想要对仗 Tears of the Kingdom 才弄了个 Echoes of Wisdom，还把中文翻译带歪了。
 
+
+*****
+
+####  Linkwjj  
+##### 253#       发表于 2024-6-20 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314109&amp;ptid=2188108" target="_blank">Junakr 发表于 2024-6-20 18:59</a>
+
+经过野炊 / 王泪我寻思也该和塞尔达系列的时间线和解了。
+
+青沼都说了时间线这东西你们不用搞得太清楚。</blockquote>
+时间线这个东西，始终应该记住那是营销天剑的产物，为了塑造“大师剑起源”“最初的传说”等等概念，结合同人和本身的一些单独作品间的设定连续性，硬生生造出来的一个产物。
+
+所以有设定连续的时之笛-黄昏和时之笛-风杖塞在两条线，但两条线实际很单薄，基本一个故事就没后续了。其他解释不过去的全部扔在所谓“败北”的if线。
+
+茶余饭后研究研究还行，真当回事就没啥意思了，该撒手就要撒手，野炊王泪直接“时间线关我屁事”
+
+*****
+
+####  Linkwjj  
+##### 254#       发表于 2024-6-20 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65315835&amp;ptid=2188108" target="_blank">Junakr 发表于 2024-6-20 21:09</a>
+
+我对自己日语水平有数献个丑主要还是梳理一下思路（PV 听不懂一点，等到官推宣发才确认对应汉字）。
+
+不知 ...</blockquote>
+只是常规表达，时之笛还是Occarina of Time，不用想太多。
+
+*****
+
+####  kinga  
+##### 255#       发表于 2024-6-20 21:50
+
+这是梦幻岛的引擎继续用啊？
+
+
+*****
+
+####  冷泉夜月  
+##### 256#       发表于 2024-6-20 21:50
+
+感觉时间线属于是天剑那会系列处于一个岔路口，纯粹是寻找方向时用来增色的调剂品，一旦系列本身热度销量上去找对路了，就成了完全不重要的东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

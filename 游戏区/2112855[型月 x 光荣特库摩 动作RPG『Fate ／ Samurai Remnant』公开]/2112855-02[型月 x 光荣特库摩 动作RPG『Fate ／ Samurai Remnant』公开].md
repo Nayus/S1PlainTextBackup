@@ -300,3 +300,11 @@ PV：[https://youtu.be/Lt1DiHaqtMY](https://youtu.be/Lt1DiHaqtMY)
 
 <img src="https://p.sda1.dev/18/025cbf948394b8e6ee45eb9b5f116b83/image.jpg" referrerpolicy="no-referrer">东出实在不行问菌皇要个宝具名吧，不丢人的。
 
+
+*****
+
+####  洛克萨斯  
+##### 1788#       发表于 2024-6-20 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">马会飞，枪能放波，开大是面板超增幅+魔免，乖乖，好猛
+

@@ -2308,3 +2308,12 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  撒撒  
+##### 234#       发表于 2024-6-20 09:10
+
+塞尔达最新作公开，绝对是史上最特别的。
+[https://www.bilibili.com/video/BV1nJ4m1T7hw/](https://www.bilibili.com/video/BV1nJ4m1T7hw/)
+

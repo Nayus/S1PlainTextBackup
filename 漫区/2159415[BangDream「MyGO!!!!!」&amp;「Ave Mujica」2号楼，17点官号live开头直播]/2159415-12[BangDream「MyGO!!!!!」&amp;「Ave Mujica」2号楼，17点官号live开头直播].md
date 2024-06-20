@@ -16852,3 +16852,92 @@ r的也是期间限定，真的算回来了吗<img src="https://static.saraba1st
 
 只能说没上次那个公司go去cue了下ppp和m的资源去捂鸡的嘴，可能还没那么多人意识到老团这边资源也被削减的很严重
 
+
+*****
+
+####  -LYRE-  
+##### 17674#       发表于 2024-6-20 11:21
+
+ 本帖最后由 -LYRE- 于 2024-6-20 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307686&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-20 10:58</a>
+这次的语音节奏纯良go粉可能还得祈祷下这位爷别再爆典了，编剧没活瞎整活他主楼直接拉踩角色了，鬼知道拉 ...</blockquote>
+说“重力型美竹兰”而不是说“力量型高松灯”就偷着乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺带一提之前隔壁有帖楼主又在恶心人张口闭口“代餐”，某日常爆典的狗批难得说句人话“代餐论对两个角色都不尊重”，结果这难得的人话反而被围攻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+问就“别到处出警搞得跟饭圈一样”“喵梦人气底边有梗带点讨论度是大好事”，还得谢谢它们呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可是以前难得有人反向代餐论，说灯皇对爱音来说是喵梦的代餐，对祥子来说是初华的代餐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17675#       发表于 2024-6-20 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307636&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 10:53</a>
+
+很简单啊，gop的解析：现在不给资源是因为要集中推一个团，鸡没物料是因为资源不够/企划本身就设定了没那么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那缺的东西他们能补上吗，说的比唱的好听
+
+*****
+
+####  御景  
+##### 17676#       发表于 2024-6-20 11:23
+
+那现在就是集邦邦之物力，供狗团读大学，然后先富带后富
+
+*****
+
+####  御幸一也  
+##### 17677#       发表于 2024-6-20 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307636&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 10:53</a>
+
+很简单啊，gop的解析：现在不给资源是因为要集中推一个团，鸡没物料是因为资源不够/企划本身就设定了没那么 ...</blockquote>
+看到這些話術我ptsd就快犯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 17678#       发表于 2024-6-20 11:25
+
+先看看7月场后面有没有东西吧，没有再骂的话会不会有人堵嘴等10月场？10月就一个动画定档的话会不会堵嘴还有三个月就有动画了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这都半年过去了，真没想到自己能熬下来不跑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17679#       发表于 2024-6-20 11:25
+
+ 本帖最后由 Aendst 于 2024-6-20 11:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307934&amp;ptid=2159415" target="_blank">UNISONIA 发表于 2024-6-20 11:16</a>
+
+2nd演出内容也是有点微妙，只能说不知道武士道在想什么
+
+李子这边cover选曲的方向从1st开始就很奇怪，正常 ...</blockquote>
+supalove没几个key出身的人，大部分真的都写不来key
+
+EG问题是有，但是起码有古典功底优秀的和key出身的，mujica在key上有想法就真的不适合让supalove负责
+
+翻唱只能说这几首选曲我觉得不合适，0th可以溺爱一下，堕天姑且有亮点但是都三次live了……耳朵起茧
+
+*****
+
+####  鳥栖朝  
+##### 17680#       发表于 2024-6-20 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65307935&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-06-20 11:16:15</a>
+只能说没上次那个公司go去cue了下ppp和m的资源去捂鸡的嘴，可能还没那么多人意识到老团这边资源也被削减的 ...</blockquote>那个公司go可太乐了，用的话术也很典
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  PDQ4  
+##### 17681#       发表于 2024-6-20 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65308022&amp;ptid=2159415" target="_blank">御景 发表于 2024-6-20 11:23</a>
+
+那现在就是集邦邦之物力，供狗团读大学，然后先富带后富</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只吸邦邦老粉和wsd粉丝，根本没破圈，再加上中华炮都不能稳赢萝，真的先富了吗
+

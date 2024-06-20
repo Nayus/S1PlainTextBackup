@@ -2333,3 +2333,27 @@ Grezzo也给任天堂做了不少游戏，没有考虑收购吗</blockquote>
 
 希望游戏后期可以操纵林克和塞尔达合作
 
+
+*****
+
+####  冷泉夜月  
+##### 237#       发表于 2024-6-20 11:19
+
+<img src="https://img.saraba1st.com/forum/202406/20/111712aj9oo64y6a8unonh.jpg" referrerpolicy="no-referrer">
+
+<strong>20240620_111333.jpg</strong> (61.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202406/20/111708vq0b0q0jbbbt60fb.jpg" referrerpolicy="no-referrer">
+
+<strong>20240620_111327.jpg</strong> (77.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-20 11:17 上传
+
+兜帽，女神像，希卡族的灯和伞（斗笠？）都有野炊的影子，风扇啥的又有左纳乌装置的感觉～
+

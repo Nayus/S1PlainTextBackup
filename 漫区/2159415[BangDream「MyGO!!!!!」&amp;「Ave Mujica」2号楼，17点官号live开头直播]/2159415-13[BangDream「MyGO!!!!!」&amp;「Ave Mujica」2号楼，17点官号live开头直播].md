@@ -404,3 +404,113 @@ onp，真车一天go和gop了，挺好挺好<img src="https://static.saraba1st.c
 所以你楼啥时候真的分楼，感觉搬“敌团”粉丝的屎增强凝聚力的部分比聊自推的都多了，nga专楼好歹物种多样 ...</blockquote>
 呃呃 ave有情報的時候泥樓哪時沒聊了，你也要有東西給人聊，現在聊空氣？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 17796#       发表于 2024-6-20 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">早就要求分楼了一直都没有回应啊，半年了都
+
+这位漏油在泥漏出没频度不如在隔壁百综五分之一，这时候说这话是因为自己是有分楼神力的天降神兵吗，那你加油分一下楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笋干爆炸碱  
+##### 17797#       发表于 2024-6-20 17:57
+
+叫了半年分楼了，有人理么
+
+唉底边诉求<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 17798#       发表于 2024-6-20 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313351&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-20 17:55</a>
+呃呃 ave有情報的時候泥樓哪時沒聊了，你也要有東西給人聊，現在聊空氣？ ...</blockquote>
+楼u能别曲解我说的话吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 17799#       发表于 2024-6-20 17:58
+
+在b站官号分开的时候你楼就会分开了，我的建议是跟我一起去b站提议分号<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 17800#       发表于 2024-6-20 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313359&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-6-20 17:56</a>
+早就要求分楼了一直都没有回应啊，半年了都
+
+这位漏油在泥漏出没频度不如在隔壁百综五分之一，这时候说这话 ...</blockquote>
+我说要现在分楼比较好≠我自己有很多话想聊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17801#       发表于 2024-6-20 18:00
+
+三回啊三回，是三回还是四回？分楼其实喊过很多次了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 17802#       发表于 2024-6-20 18:00
+
+ 本帖最后由 -LYRE- 于 2024-6-20 18:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313323&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 17:53</a>
+所以你楼啥时候真的分楼，感觉搬“敌团”粉丝的屎增强凝聚力的部分比聊自推的都多了，nga专楼好歹物种多样 ...</blockquote>
+我倒想多聊聊自推，所以我鸡团物料在哪呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+你能去让wsd多吐点东西出来吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 17803#       发表于 2024-6-20 18:00
+
+都是被逼的 当年我还是灯祥党呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+人家都不尊重你 天天迫害你 你还给对方好脸色 那不是抖M吗
+
+
+*****
+
+####  相坂君  
+##### 17804#       发表于 2024-6-20 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">老早就在楼里说过只关注鸡，其它真无关心
+
+狗和刺在外面打到大道磨灭都不关鸡的事
+
+然后有些人时不时把鸡粉带上，连体对抗刺团，你们打你们的，何必拉上这个没有动画的乐队呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有事拉出来当盾牌，没事当洗脚婢
+
+看来在有些人眼里，不存在的鸡粉是不会有意见的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17805#       发表于 2024-6-20 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65313416&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 18:00</a>
+
+我说要现在分楼比较好≠我自己有很多话想聊</blockquote>
+你说得对，所以你可以等楼分了以后再来说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯托雷加  
+##### 17806#       发表于 2024-6-20 18:06
+
+<blockquote>Aendst 发表于 2024-6-20 17:34
+刚才如果有冒犯到的地方不好意思是我的问题，我只能凭个人印象概述一下
+
+风向已经变了很多次了，早期动画 ...</blockquote>
+原来是这么回事，说起来早上还看到立希关于生日语音的解包，也是一大波节奏。其实我也带我的朋友们看了mygo大家都挺喜欢的，不管是对于里面角色的一些争议行为其实都表示可以理解。青春期么都做过一些外人看来有些过激的行为。只是实在没想到能上升到那么大程度的对立。
+

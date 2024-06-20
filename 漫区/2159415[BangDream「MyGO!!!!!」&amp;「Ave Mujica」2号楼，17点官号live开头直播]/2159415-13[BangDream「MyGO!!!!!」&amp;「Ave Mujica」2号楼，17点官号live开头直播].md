@@ -991,3 +991,116 @@ nga的鸡狗楼绝大部分都是狗相关是可以的，s1的鸡狗楼鸡粉多
 不是，你不会真觉得把鸡狗专楼改造成这样很自豪吧</blockquote>
 不服你分个楼我看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akirakira  
+##### 17857#       发表于 2024-6-20 19:18
+
+这都是论坛了，只要不违反专楼规定人家爱怎么聊怎么聊，你也有在这聊狗的自由，怎么还有教别人做事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有吹尼姑庵的，真不是串子吗
+
+*****
+
+####  -LYRE-  
+##### 17858#       发表于 2024-6-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314168&amp;ptid=2159415" target="_blank">灵椿 发表于 2024-6-20 19:05</a>
+有没有可能我真正想说的就是这楼好歹是鸡狗楼，楼里迫切想要切割的鸡粉只需要搬大家都认同的go屎来车制造高 ...</blockquote>
+你自己不都已经说完了？自己缩卵了怪谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+怎么，这楼难道还有什么只准鸡粉进的物理限制不成？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+nga氛围可太好了，在mygo自己的专楼里都能被鸡粉占上风的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+在s1怪鸡粉把楼打造成了qq群害狗粉缩卵，那在你喜欢的nga又要怪谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+唉，鸡粉的大手<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17859#       发表于 2024-6-20 19:19
+
+没有任何人说不许聊狗，你想说狗你就说，怎么这里要变成只允许狗粉说话底边湖笔粉丝立马闭嘴的地方吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 17860#       发表于 2024-6-20 19:22
+
+？合着这位是从nga来的？
+
+nga车鸡角色我顺从，s1车极端狗粉我不能接受
+
+你想把s1也圈成nga那样一周轮回车角色的环境？合着是角色黑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灵椿  
+##### 17861#       发表于 2024-6-20 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314348&amp;ptid=2159415" target="_blank">akirakira 发表于 2024-6-20 19:18</a>
+这都是论坛了，只要不违反专楼规定人家爱怎么聊怎么聊，你也有在这聊狗的自由，怎么还有教别人做事的还有吹 ...</blockquote>
+真不是串子，你可以理解成我只是看鸡狗楼变成没人聊go的地方不爽罢了
+
+*****
+
+####  NODY  
+##### 17862#       发表于 2024-6-20 19:22
+
+想聊狗直接聊啊，有人想聊自然会和你聊，没人聊就换地方呗，多大点事，是只有s1的号还是别的地方被骂了只能在s1说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空无阿冰  
+##### 17863#       发表于 2024-6-20 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314021&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-6-20 18:52</a>
+
+点开主页好几位在隔壁跟gbc打得热火朝天的，
+
+怎么不普度众生劝劝他们不要“着相”呢
+
+唯独逮着鸡粉传教是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">为什么这时候想起来联合鸡粉不联合其他邦团了，我们不是邦邦大家庭吗
+
+*****
+
+####  星空冻结  
+##### 17864#       发表于 2024-6-20 19:24
+
+不是，狗的情报又不是没人发，也没有人说不让聊狗，你搞得像聊狗会被漏油怎么样一样
+
+*****
+
+####  星天观测  
+##### 17865#       发表于 2024-6-20 19:24
+
+你不爽你就大力聊狗啊，谁不允许你发言了吗，你不爽就正义感爆发要教人说话，复制漏油那句，你够吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17866#       发表于 2024-6-20 19:25
+
+nga不是刚车完立希语音相关的事么，这不是狗吗，你怎么不参加呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 17867#       发表于 2024-6-20 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314268&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-20 19:13</a>
+
+nga的鸡狗楼绝大部分都是狗相关是可以的，s1的鸡狗楼鸡粉多是犯罪的</blockquote>
+唉 底邊團粉絲做什麼都是錯的，早就叫你們乖乖洗腳別亂叫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

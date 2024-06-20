@@ -1705,3 +1705,13 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 原版没打通，送我加强版吧！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调喵  
+##### 178#       发表于 2024-6-20 23:17
+
+就拿这作入坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

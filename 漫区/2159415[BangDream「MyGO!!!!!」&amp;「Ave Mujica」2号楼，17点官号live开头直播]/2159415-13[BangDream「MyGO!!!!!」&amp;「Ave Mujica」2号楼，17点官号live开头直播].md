@@ -2007,3 +2007,11 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 那確實公佈得有點晚哦</blockquote>
 是的，7月10号就发售了，但是到现在都没公布特典。限定版塞的是鸡狗给萝团热场的live，加起来都才六首，不是很想为此买限定版…都忘了翻唱专里狗是哪三首翻唱了
 
+
+*****
+
+####  PDQ4  
+##### 17956#       发表于 2024-6-21 13:21
+
+mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什么样<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

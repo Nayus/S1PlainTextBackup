@@ -1946,3 +1946,22 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 那个封面挺难评的，我记得初华的手指缝隙大到不太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 17950#       发表于 2024-6-21 11:35
+
+封面画师我记得是一个蓝鸟千粉的不知名小画家
+
+热度还没air那个鬼图画师的高<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+武士道在找画师这件事上耗费了心思开辟了一种难以名状的全新道路
+
+*****
+
+####  相坂君  
+##### 17951#       发表于 2024-6-21 11:38
+
+一直觉得目前鸡的砖封面挺好的，简单，还没有丑图
+

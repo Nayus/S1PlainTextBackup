@@ -2770,3 +2770,15 @@ PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的
 
 但总的来说游戏性是最重要的，剧情世界观是为服务游戏性本身往上套的
 
+
+*****
+
+####  撒撒  
+##### 277#       发表于 2024-6-21 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65306389&amp;ptid=2188108" target="_blank">撒撒 发表于 2024-6-20 09:10</a>
+
+塞尔达最新作公开，绝对是史上最特别的。
+[https://www.bilibili.com/video/BV1nJ4m1T7hw/](https://www.bilibili.com/video/BV1nJ4m1T7hw/)</blockquote>【Zeltik中字】《塞尔达传说：智慧的再现》首支预告片分析
+[https://www.bilibili.com/video/BV1hTg1ewESp/](https://www.bilibili.com/video/BV1hTg1ewESp/)
+

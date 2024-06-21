@@ -2366,3 +2366,78 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 這個別人嘴裡天天說的“宣傳期”到底什麼時候才來啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 17993#       发表于 2024-6-21 22:16
+
+说起来，“主唱是星星”这点，ksm是星之鼓动，ykn是topstar，kkr是流星，layer是polaris北极星，tmr是“迷星”，彩彩和兰没有印象有提到过是指向什么星星，剩下msr明牌蝴蝶意向，初华也是月亮意向来着。
+
+*****
+
+####  rikaren  
+##### 17994#       发表于 2024-6-21 22:19
+
+再参考下m团那边全员都有用过蝴蝶作为意向，AM这边估计全员到时候都会有月亮作为意向也是和队标相呼应（但是齿轮元素还是难理解）
+
+
+*****
+
+####  星天观测  
+##### 17995#       发表于 2024-6-21 22:22
+
+初华的话夏季大三角的意向也挺强烈，但是大三角并不是只出现在初华这里，只能说不确定再看看
+
+齿轮的话，结合她们老提到命运，命运的齿轮？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17996#       发表于 2024-6-21 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328681&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 22:12</a>
+
+想看原话就去b站号water那条倒着看，不远
+
+只能说初华真惨吧唱的都是别人的曲 ...</blockquote>
+特地趕去圍觀看到了，和說那個大提琴是()拉的差不多尷尬，
+
+可能這就是go粉眼裡的“附屬團”含金量吧，真是KK又YY啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17997#       发表于 2024-6-21 22:25
+
+<blockquote>星天观测 发表于 2024-6-21 22:22
+初华的话夏季大三角的意向也挺强烈，但是大三角并不是只出现在初华这里，只能说不确定再看看
+
+齿轮的话，结 ...</blockquote>
+那个算是neta初祥是牛郎织女吧
+
+*****
+
+####  相坂君  
+##### 17998#       发表于 2024-6-21 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328681&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 22:12</a>
+
+想看原话就去b站号water那条倒着看，不远
+
+只能说初华真惨吧唱的都是别人的曲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很想看B站的评论，不过刚朋友发了一个qq音乐里的评论：“两个灵魂共鸣，祥子是可以联系起crythic的海洋，灯是天空中孤独的月亮，越听越像祥子写给灯的歌。”
+
+虽然不是很懂一些cp厨，但设定上歌词不是初华写的吗？
+
+而且高尾也说了：歌声とピアノが想いを語り合っているような曲。李子的推文是：一音でも取りこぼしたら歌えなくなります。
+
+你们可真会卖啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17999#       发表于 2024-6-21 22:26
+
+齿轮那边，睦在c团时期吉他上就有齿轮logo的。但要说齿轮月logo的齿轮logo和这个有关也是非常牵强。
+

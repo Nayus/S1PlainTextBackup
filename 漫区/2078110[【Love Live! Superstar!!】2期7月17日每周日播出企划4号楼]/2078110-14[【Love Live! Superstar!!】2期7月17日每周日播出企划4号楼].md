@@ -2077,3 +2077,16 @@ Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.
 
 买断了花田还有京极啊。这两人都跑不掉的。反正我真的希望gbc卖爆。花田去写gbc不碰ll了对大家都好
 
+
+*****
+
+####  肛之练筋士  
+##### 20367#       发表于 2024-6-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65327330&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-21 19:43</a>
+
+说不定东大妈真给他买断了捏，毕竟现在星3staff都还没发呢，如果换人接手那可笑疯了。
+
+不过说到底，gbc ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说，下面那个其实多少算是很多人的正常想法了，比如隔壁鸡团的很多粉丝看着狗团的各种资源倾斜羡慕得要死
+

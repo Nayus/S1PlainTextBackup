@@ -2931,3 +2931,17 @@ zelda.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/21/212926vw1llwjlrerkdwc9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  陈乔恩  
+##### 289#       发表于 2024-6-22 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65319970&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-21 09:20</a>
+织梦岛的一些相关数据，将来做对比
+
+首周fami销量 14万1375本</blockquote>
+这销量赚翻了吧，毕竟只是个副科
+
+—— 来自 HUAWEI TAH-AN00m, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+

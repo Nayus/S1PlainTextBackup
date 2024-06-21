@@ -2871,3 +2871,34 @@ Wii U：野炊塞明明应该是我的<img src="https://static.saraba1st.com/ima
 
 塞学家整合的杂七杂八的PV细节探索，确实是把历代各种美术设计和梗都揉进去了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Linkwjj  
+##### 286#       发表于 2024-6-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65318073&amp;ptid=2188108" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-6-21 01:01</a>
+
+塞的时间线真的有定论吗？按官方时间线也有很多解释不清的地方吧？所谓的时间线我感觉都像是先有答案再编问 ...</blockquote>
+营销天剑的产物呀<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Junakr  
+##### 287#       发表于 2024-6-21 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326321&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-21 17:58</a></blockquote>
+补个来源好了：
+[https://twitter.com/pyrofennec_/status/1803868445060272615](https://twitter.com/pyrofennec_/status/1803868445060272615)
+
+原作者注释版：
+
+<img src="https://img.saraba1st.com/forum/202406/21/211531olt7jgqq7z4uqggm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GQigy7BakAMqTHv.jpeg</strong> (374.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 21:15 上传
+

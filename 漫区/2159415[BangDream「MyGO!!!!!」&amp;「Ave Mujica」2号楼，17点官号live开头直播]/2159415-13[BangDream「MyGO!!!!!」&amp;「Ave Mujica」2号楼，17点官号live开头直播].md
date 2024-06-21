@@ -2592,3 +2592,45 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 [https://x.com/DDDDD_DIE/status/1803963920149098963](https://x.com/DDDDD_DIE/status/1803963920149098963)
 
+
+*****
+
+####  星天观测  
+##### 18013#       发表于 2024-6-21 23:28
+
+看到睦头就会想起想看点海睦但是大脑又有点被海希卡住的悲伤心情
+
+母鸡卡不播纯爱战士好难活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18014#       发表于 2024-6-21 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">睦祥的类似共犯关系很有意思，不知道会怎么处理初祥关系性这个关键内容
+
+相信制作组能做好做有趣祥子的队内关系<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18015#       发表于 2024-6-21 23:29
+
+初祥 睦祥 喵祥 没有一个不美味的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18016#       发表于 2024-6-21 23:31
+
+那我说个个人小贷款吧
+
+共犯是指
+
+祥子：我有大狗（金毛），我干了
+
+睦：我也有大狗（狼狗），我也干了
+
+鸡藏太深了祥子和睦的关系性我看不明白不敢贷款啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

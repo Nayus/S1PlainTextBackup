@@ -12023,3 +12023,13 @@ live中间为什么要插︶_︶ ︶_︶
 
 恐怖动画
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5562#       发表于 2024-6-22 01:50
+
+可能真觉得16连安详做得很好吧，再放一遍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

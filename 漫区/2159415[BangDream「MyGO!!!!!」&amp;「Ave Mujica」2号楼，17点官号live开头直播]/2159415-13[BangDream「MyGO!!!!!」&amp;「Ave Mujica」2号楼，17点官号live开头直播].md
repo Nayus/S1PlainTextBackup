@@ -2234,3 +2234,42 @@ ok，那就先等初华生日吧，相信李子和各位初华厨<img src="https
 
 可能要等現場票賣得差不多才會開吧，之前對邦也是4/29的演出，4/25才開配信
 
+
+*****
+
+####  御幸一也  
+##### 17979#       发表于 2024-6-21 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328544&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-21 21:56</a>
+
+那么会是7.4出water的mv，7.5出earth的网络配信吗，这时间卡的有点紧张</blockquote>
+如果是同樣的配方的話，就是7/7愛知預告earth，然後7/14 release了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  rikaren  
+##### 17980#       发表于 2024-6-21 22:00
+
+说起来“灯祥平行线”是出自谁的访谈？羊宫的还是谁的？之前有段时间天天见这个说法。
+
+*****
+
+####  御幸一也  
+##### 17981#       发表于 2024-6-21 22:00
+
+ 本帖最后由 御幸一也 于 2024-6-21 22:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328545&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-6-21 21:56</a>
+
+可能要等現場票賣得差不多才會開吧，之前對邦也是4/29的演出，4/25才開配信 ...</blockquote>
+那場這麼晚才賣配信？好吧<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 那可能也要等到7月出頭才知道愛知場有沒有配信了
+
+*****
+
+####  御幸一也  
+##### 17982#       发表于 2024-6-21 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328584&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-21 22:00</a>
+
+说起来“灯祥平行线”是出自谁的访谈？羊宫的还是谁的？之前有段时间天天见这个说法。 ...</blockquote>
+他go的BanG Dream! 12th LIVE幕間 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

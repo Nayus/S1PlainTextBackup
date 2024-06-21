@@ -2015,3 +2015,11 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什么样<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17957#       发表于 2024-6-21 13:54
+
+这种翻唱拼盘不知道会不会有一方粉丝找另一方的拼着买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

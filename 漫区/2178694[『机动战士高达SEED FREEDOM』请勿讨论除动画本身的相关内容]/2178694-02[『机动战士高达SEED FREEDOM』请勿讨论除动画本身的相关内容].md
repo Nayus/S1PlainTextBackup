@@ -3014,3 +3014,14 @@ FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockq
 
 掌心炮接ij的光束剑那段，如果命运不握拳的话，是不是能顶住
 
+
+*****
+
+####  混乱之雨  
+##### 1727#       发表于 2024-6-21 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65316680&amp;ptid=2178694" target="_blank">kinga 发表于 2024-6-20 22:29</a>
+
+掌心炮接ij的光束剑那段，如果命运不握拳的话，是不是能顶住</blockquote>
+不好说，掌心炮虽然出力高，但没有持续输出的画面，长久拼下去还是不太看好能和光束剑持续互格
+

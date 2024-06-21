@@ -1912,3 +1912,14 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 啥b wsd
 
+
+*****
+
+####  御幸一也  
+##### 17946#       发表于 2024-6-21 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65321108&amp;ptid=2159415" target="_blank">vigada 发表于 2024-6-21 10:38</a>
+
+那个鸡狗翻唱混专还有十几天就发售了来着，是不是到现在都没有详情特典图？明明还塞了鸡的单独live抽选… ...</blockquote>
+今天或者下禮拜一公佈，都是提前一個月的
+

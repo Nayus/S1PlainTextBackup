@@ -1923,3 +1923,18 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 那个鸡狗翻唱混专还有十几天就发售了来着，是不是到现在都没有详情特典图？明明还塞了鸡的单独live抽选… ...</blockquote>
 今天或者下禮拜一公佈，都是提前一個月的
 
+
+*****
+
+####  御幸一也  
+##### 17947#       发表于 2024-6-21 11:15
+
+反正那張鬼東西的特典應該是封面一圖流了，沒什麼蹲情報的必要<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 17948#       发表于 2024-6-21 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种迷惑操作做出来硬塞抽选应付差事的东西原来真的还有人在意啊
+

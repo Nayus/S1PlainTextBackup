@@ -2148,3 +2148,40 @@ KY到這頭上了？有點好笑了哦<img src="https://static.saraba1st.com/ima
 
 反正我摳糖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17970#       发表于 2024-6-21 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328244&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-6-21 21:26</a>
+
+2nd幕間就有海睦
+海鈴 timoris：想被看見
+睦 mortis：我能看見</blockquote>
+爱知和3rd来点明显的吧，感觉海睦真的可以<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 17971#       发表于 2024-6-21 21:41
+
+比較不安的還是愛知場配信票還沒說要賣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+隨便看了眼之前RAS的其實也賣得挺晚的，6/15・16的con配信6/6才開賣，可能下週就能知道有沒有配信了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 17972#       发表于 2024-6-21 21:42
+
+明天是不是应该要有水的mv了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17973#       发表于 2024-6-21 21:44
+
+md，这次是B站的屎吗
+

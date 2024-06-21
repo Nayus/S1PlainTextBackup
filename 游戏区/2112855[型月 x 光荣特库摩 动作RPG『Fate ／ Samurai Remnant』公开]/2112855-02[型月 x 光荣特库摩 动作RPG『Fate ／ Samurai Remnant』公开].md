@@ -534,3 +534,14 @@ FGO的無敵?肃正防御???
 </blockquote>
 又解不了方块
 
+
+*****
+
+####  ナルバレック  
+##### 1809#       发表于 2024-6-21 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65323472&amp;ptid=2112855" target="_blank">蓮華 发表于 2024-6-21 13:43</a>
+
+真受不了近卫个臭傻逼，真尼玛土鳖</blockquote>
+近卫的品味确实土，最近几年就克姐设计还行，不过比服装品味还停留再九十年代RPG风格的武内苍月两位元老还是强点的，那俩应该是任何时装设计节目都不看的那种
+

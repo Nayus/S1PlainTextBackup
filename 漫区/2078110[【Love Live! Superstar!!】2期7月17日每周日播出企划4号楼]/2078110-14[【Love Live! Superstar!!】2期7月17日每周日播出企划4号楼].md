@@ -2069,3 +2069,11 @@ Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  离心  
+##### 20366#       发表于 2024-6-21 20:10
+
+买断了花田还有京极啊。这两人都跑不掉的。反正我真的希望gbc卖爆。花田去写gbc不碰ll了对大家都好
+

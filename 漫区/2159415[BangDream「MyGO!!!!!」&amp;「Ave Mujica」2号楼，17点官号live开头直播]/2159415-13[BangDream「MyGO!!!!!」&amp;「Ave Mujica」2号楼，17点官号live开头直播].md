@@ -2065,3 +2065,11 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 谁没问题？哪个单拿出来不是两眼一黑</blockquote>
 ykn和彩彩还行
 
+
+*****
+
+####  星天观测  
+##### 17963#       发表于 2024-6-21 20:08
+
+7.7赶紧来吧，不然water要被贷款成灯祥曲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

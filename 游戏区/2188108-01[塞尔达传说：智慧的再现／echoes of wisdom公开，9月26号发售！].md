@@ -2832,3 +2832,15 @@ https://www.bilibili.com/video/BV1hTg1ewESp/ ...</blockquote>
 
 2024-6-21 17:58 上传
 
+
+*****
+
+####  渺小小  
+##### 282#       发表于 2024-6-21 18:08
+
+ 本帖最后由 渺小小 于 2024-6-21 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326321&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-21 17:58</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图挺好，但还是不够细。
+
+有偏门的飞利浦CDI塞尔达冒险但是唯独少了CDI第一作那个塞尔达形象。
+

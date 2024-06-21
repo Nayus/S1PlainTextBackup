@@ -28,3 +28,15 @@
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  orangee  
+##### 46467#       发表于 2024-6-21 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65320801&amp;ptid=1712412" target="_blank">天天那个啥 发表于 2024-6-21 10:16</a>
+现在bgo也就不咸不淡的玩着，突然想起一年没清好友了，感觉刷都刷不到什么给力的助战，来来去去就是眼熟的 ...</blockquote>
+申请了~也是腿毛级
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

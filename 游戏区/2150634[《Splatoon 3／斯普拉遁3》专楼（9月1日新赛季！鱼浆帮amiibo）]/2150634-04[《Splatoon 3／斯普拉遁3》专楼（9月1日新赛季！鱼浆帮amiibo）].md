@@ -3327,3 +3327,19 @@ max三岗过了，仍旧没有金
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 4768#       发表于 2024-6-21 18:06
+
+<img src="https://img.saraba1st.com/forum/202406/21/180633pcy5et7ylk5tvcrl.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2024062117_0519_3500.jpg</strong> (731.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 18:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

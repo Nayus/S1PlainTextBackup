@@ -4301,3 +4301,11 @@ pc一般比主机版晚多久？
 而且这封面还是老图</blockquote>
 comic market
 
+
+*****
+
+####  一步成诗  
+##### 451#       发表于 2024-6-21 18:04
+
+推发了明天会场的立牌图，葱头和剑女都露出小半边，剑女这身搭配我看了真是要报警了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

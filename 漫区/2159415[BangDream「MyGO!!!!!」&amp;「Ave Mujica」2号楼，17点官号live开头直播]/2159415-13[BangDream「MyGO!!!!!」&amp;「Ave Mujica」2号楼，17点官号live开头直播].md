@@ -1887,3 +1887,11 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 我上个真情实感追的2.5企划还是缪斯，那时候哪遇到过鸡这待遇啊</blockquote>
 好巧 我也是 現在來追ave就感覺，沒追過這麼憋屈的企劃要什麼沒什麼，突出一個讓粉絲拿空氣發電<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 17943#       发表于 2024-6-21 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡狗团好像能凑出7个弹钢琴的，在b站上刷到个李子弹寒蝉op的视频
+

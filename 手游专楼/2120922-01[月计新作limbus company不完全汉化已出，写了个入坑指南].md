@@ -71,3 +71,11 @@
 
 看起来都是打击系人格，T唐果然是动力装甲模式，根据演示估计有充电效果，到一定层数会带上头盔。
 
+
+*****
+
+####  erratic璃月  
+##### 760#       发表于 2024-6-21 18:33
+
+T唐是怎么做到又帅又可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

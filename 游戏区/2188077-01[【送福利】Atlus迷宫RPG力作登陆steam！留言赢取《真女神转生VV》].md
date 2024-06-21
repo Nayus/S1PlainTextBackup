@@ -1749,3 +1749,20 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 给点给点
 
+
+*****
+
+####  s3080722703  
+##### 183#       发表于 2024-6-21 08:47
+
+试一下运气
+
+*****
+
+####  love08kk  
+##### 184#       发表于 2024-6-21 08:48
+
+来了来了
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2497,3 +2497,34 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 假药一点就是齿轮月是幼初身上衣服的月亮logo和睦吉他上的齿轮logo合并而成，但是一样是非常神经病的想法
 
+
+*****
+
+####  -LYRE-  
+##### 18005#       发表于 2024-6-21 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328657&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-6-21 22:09</a>
+water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从翻唱到两个乐队的原创全是灯祥曲 ...</blockquote>
+哪来的两个乐队的原创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只有你鸡的原创曲才会被抢去贷款成灯箱曲美名其曰假药无罪，认清洗脚婢身份<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 18006#       发表于 2024-6-21 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328837&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 22:26</a>
+
+我超，这不就是b站那条评论，一个人写的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虽然不知道是不是同一个，但看起来很爱输出意见到处粘贴，也很爱拿别人的东西代餐
+
+*****
+
+####  -LYRE-  
+##### 18007#       发表于 2024-6-21 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328837&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 22:26</a>
+我超，这不就是b站那条评论，一个人写的？</blockquote>
+顺带去网易云看了眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/c591042af0c178f08046944a593a9c0e/image.jpg" referrerpolicy="no-referrer">
+

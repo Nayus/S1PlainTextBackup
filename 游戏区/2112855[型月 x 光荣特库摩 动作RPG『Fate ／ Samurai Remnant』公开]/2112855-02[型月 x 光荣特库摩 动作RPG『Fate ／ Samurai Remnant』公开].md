@@ -554,3 +554,14 @@ FGO的無敵?肃正防御???
 <img src="https://p.sda1.dev/18/877526bb4ef311bc30d56ea1004cdb70/image.jpg" referrerpolicy="no-referrer">
 两眼一黑的人已经在想怎么让步和解了
 
+
+*****
+
+####  蓮華  
+##### 1811#       发表于 2024-6-21 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65327585&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2024-6-21 20:13</a>
+近卫的品味确实土，最近几年就克姐设计还行，不过比服装品味还停留在九十年代RPG风格的武内苍月两位元老还 ...</blockquote>
+你要么看看阿喀琉斯和狂塔兰忒那几把破铠再说品味
+苍月起码没这弔人那么多资源，拿那么多五星个个画成屎<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

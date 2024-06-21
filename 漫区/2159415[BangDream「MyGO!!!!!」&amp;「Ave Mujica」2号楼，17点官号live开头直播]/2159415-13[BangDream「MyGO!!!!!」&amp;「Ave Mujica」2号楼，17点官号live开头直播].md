@@ -2646,3 +2646,11 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 例如小時候的睦寶如果也是這樣不愛說話，那帶著她到處玩的想必會是小白祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18018#       发表于 2024-6-22 00:07
+
+没办法，我太尊重原著害怕翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

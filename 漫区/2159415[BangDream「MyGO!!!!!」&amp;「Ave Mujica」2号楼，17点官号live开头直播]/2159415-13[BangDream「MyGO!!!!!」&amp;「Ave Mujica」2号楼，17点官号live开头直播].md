@@ -1938,3 +1938,11 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种迷惑操作做出来硬塞抽选应付差事的东西原来真的还有人在意啊
 
+
+*****
+
+####  星天观测  
+##### 17949#       发表于 2024-6-21 11:29
+
+那个封面挺难评的，我记得初华的手指缝隙大到不太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

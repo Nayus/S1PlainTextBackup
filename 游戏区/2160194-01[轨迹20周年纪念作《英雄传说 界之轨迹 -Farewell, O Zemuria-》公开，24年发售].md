@@ -4279,3 +4279,25 @@ pc一般比主机版晚多久？
 
 2024-6-21 15:04 上传
 
+
+*****
+
+####  ravend233  
+##### 449#       发表于 2024-6-21 15:28
+
+这事什么杂志
+
+而且这封面还是老图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  酷乐  
+##### 450#       发表于 2024-6-21 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65324526&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-21 15:28</a>
+这事什么杂志
+
+而且这封面还是老图</blockquote>
+comic market
+

@@ -3070,3 +3070,23 @@ FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockq
 还有命运的这个分身系 ...</blockquote>
 命运2在种自也没分身系统，福田自认没想过鸟是怎么开挂的
 
+
+*****
+
+####  pokemon最爱  
+##### 1732#       发表于 2024-6-21 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65321282&amp;ptid=2178694" target="_blank">三郷雫 发表于 2024-6-21 10:49</a>
+
+看完了
+
+感觉战斗这一块给我的感觉是精细到不像种系高达，没有兼用卡看起来好不习惯啊
+
+还有命运的这个分身系 ...</blockquote>
+原本的话命运的分身是跟迅雷的隐身一样，是应用幻象化粒子造成的光学残像，但这很明显解释不了剧场版命运2的表现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+种自小说加了个分身用了DUPE粒子的设定但是也没说这东西是啥怎么来的有什么效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正高达系列都要被TA黑历史掉就当鸟觉醒了G高达系的能力了吧
+
+非自的罩子是傲慢之翼的纳米粒子防护罩，跟观星者科技无关（
+

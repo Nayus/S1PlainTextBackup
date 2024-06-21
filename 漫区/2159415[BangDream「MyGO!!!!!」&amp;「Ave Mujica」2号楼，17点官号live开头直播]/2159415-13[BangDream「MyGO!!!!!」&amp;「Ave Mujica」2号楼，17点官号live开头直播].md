@@ -2047,3 +2047,11 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 
 應該就一張吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17961#       发表于 2024-6-21 15:31
+
+我的，可能因为之前看到谁说想找狗粉一起买受到影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2658,3 +2658,33 @@ MC87分，fami35分，ign9.4分
 
 容量5.8G，分级6+，发售日前一个月开启预购，E3展公布Amiibo
 
+
+*****
+
+####  beer  
+##### 265#       发表于 2024-6-21 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314971&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-20 20:00</a>
+
+目前已知美版和港版海拉鲁限定ns lite都会送一年ns会员，不知道纯粹是补偿不带游戏本体还是说有联机要素
+
+  ...</blockquote>
+答案是终盘之后可以玩双人成行
+
+
+*****
+
+####  航母掉头  
+##### 266#       发表于 2024-6-21 09:40
+
+塞尔达研究毛的时间线，只要记住是女神和小男友玩角色扮演就成
+
+*****
+
+####  tachikoma27  
+##### 267#       发表于 2024-6-21 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65318839&amp;ptid=2188108" target="_blank">西多士 发表于 2024-6-21 03:51</a>
+现在最担心的是不能用武器直接战斗，而是借助复制和召唤这些间接打法。希望不要因为过于注重女性角色“不擅 ...</blockquote>
+说得好像以前的2d塞有啥战斗系统可言一样<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

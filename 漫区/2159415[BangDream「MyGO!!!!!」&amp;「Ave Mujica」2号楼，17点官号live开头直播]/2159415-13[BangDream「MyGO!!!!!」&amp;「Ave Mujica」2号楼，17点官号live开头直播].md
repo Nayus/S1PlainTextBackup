@@ -1975,3 +1975,23 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 今天或者下禮拜一公佈，都是提前一個月的</blockquote>
 我知道一般提前一个月公布，之前一单差不多就是发售前二十来天就公开了，但是这次离发售只有十来天了啊orz，而且鸡的翻唱连一图流都没有
 
+
+*****
+
+####  御幸一也  
+##### 17953#       发表于 2024-6-21 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65322814&amp;ptid=2159415" target="_blank">vigada 发表于 2024-6-21 12:43</a>
+
+我知道一般提前一个月公布，之前一单差不多就是发售前二十来天就公开了，但是这次离发售只有十来天了啊or ...</blockquote>
+草 我記成了7/20發售。
+
+那確實公佈得有點晚哦
+
+*****
+
+####  狂热飞鸟  
+##### 17954#       发表于 2024-6-21 12:49
+
+刚又发现一个祥子的厉害二创，话说祥子的二创真是一山更比一山强【【填词/Mygo】我还年轻 我还年轻】 [https://www.bilibili.com/video/B ... 351598c734057c5b3b4](https://www.bilibili.com/video/BV15i421i7af/?share_source=copy_web&amp;vd_source=8683c39795425351598c734057c5b3b4)
+

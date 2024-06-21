@@ -4265,3 +4265,17 @@ pc一般比主机版晚多久？
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  卢迪克  
+##### 448#       发表于 2024-6-21 15:04
+
+<img src="https://img.saraba1st.com/forum/202406/21/150401ra9s52kgjj05o1tx.png" referrerpolicy="no-referrer">
+
+<strong>55589.png</strong> (184.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 15:04 上传
+

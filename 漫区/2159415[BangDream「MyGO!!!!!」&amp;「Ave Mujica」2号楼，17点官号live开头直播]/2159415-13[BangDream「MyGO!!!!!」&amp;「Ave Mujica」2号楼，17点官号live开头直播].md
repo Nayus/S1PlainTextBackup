@@ -2039,3 +2039,11 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 
 不是两张光盘吗，我记错了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17960#       发表于 2024-6-21 15:02
+
+應該就一張吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

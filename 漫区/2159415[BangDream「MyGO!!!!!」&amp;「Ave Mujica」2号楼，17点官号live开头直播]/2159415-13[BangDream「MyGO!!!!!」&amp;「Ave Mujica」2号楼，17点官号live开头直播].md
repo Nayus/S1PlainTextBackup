@@ -2132,3 +2132,19 @@ KY到這頭上了？有點好笑了哦<img src="https://static.saraba1st.com/ima
 
 唉 过去的女人把自己当成唯一了 真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17969#       发表于 2024-6-21 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328165&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 21:17</a>
+
+海睦，有没有海睦，真的很在意为什么睦看live出来是海在等她</blockquote>
+
+2nd幕間就有海睦<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+海鈴 timoris：想被看見
+睦 mortis：我能看見
+
+反正我摳糖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

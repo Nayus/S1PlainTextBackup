@@ -2902,3 +2902,32 @@ Wii U：野炊塞明明应该是我的<img src="https://static.saraba1st.com/ima
 
 2024-6-21 21:15 上传
 
+
+*****
+
+####  渺小小  
+##### 288#       发表于 2024-6-21 21:32
+
+ 本帖最后由 渺小小 于 2024-6-21 21:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">和塞尔达冒险的造型一比，确实不像。
+
+        
+
+       我还以为女装绿林克就代指三剑客了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+      
+
+       看来作者是不认飞利浦的这俩只是塞尔达了。
+
+        此作前几年还有粉丝拿织梦岛的素材搞了个GB版呢·····    
+
+zelda.jpg
+(66.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202406/21/212926vw1llwjlrerkdwc9.jpg" referrerpolicy="no-referrer">
+

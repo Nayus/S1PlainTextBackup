@@ -3106,3 +3106,17 @@ FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockq
 
 L（捧着布鲁）：不是出于别人的意志，我是自愿的
 
+
+*****
+
+####  vuder  
+##### 1735#       发表于 2024-6-22 07:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65330534&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-22 00:27</a>
+我刚才想到一件事，福田在这个剧场版当中增加了一个拉克丝是被逼的去当和平女神的，这样的话就是基拉和拉克 ...</blockquote>
+如果把seed剧场版的人物换成w剧场版的<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">，会有多欢乐。
+
+谁来画一个。😂
+
+—— 来自 Xiaomi 22081212C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

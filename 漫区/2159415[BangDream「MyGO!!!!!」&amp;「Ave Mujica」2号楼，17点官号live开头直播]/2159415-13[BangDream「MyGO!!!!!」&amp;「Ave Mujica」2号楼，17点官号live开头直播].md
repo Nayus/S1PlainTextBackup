@@ -2552,3 +2552,43 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 2024-6-21 23:07 上传
 
+
+*****
+
+####  星天观测  
+##### 18010#       发表于 2024-6-21 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65329178&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-21 23:07</a></blockquote>
+说的没问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凡人  
+##### 18011#       发表于 2024-6-21 23:20
+
+<img src="https://img.saraba1st.com/forum/202406/21/232021djn99js8btacjp7p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (475.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 23:20 上传
+
+*****
+
+####  御幸一也  
+##### 18012#       发表于 2024-6-21 23:23
+
+那還是吃點睦祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/21/232328zdg56jd1lli5d40g.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_DIE(@DDDDD_DIE)_20240621-013129_1803963920149098963_photo.jpg</strong> (414.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 23:23 上传
+
+[https://x.com/DDDDD_DIE/status/1803963920149098963](https://x.com/DDDDD_DIE/status/1803963920149098963)
+

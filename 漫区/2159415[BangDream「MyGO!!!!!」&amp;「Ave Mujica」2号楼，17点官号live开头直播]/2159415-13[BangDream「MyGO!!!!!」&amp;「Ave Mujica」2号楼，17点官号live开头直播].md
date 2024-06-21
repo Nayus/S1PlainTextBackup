@@ -2031,3 +2031,11 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 
 這怎麼拼啊 掰開一人一半嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17959#       发表于 2024-6-21 14:52
+
+不是两张光盘吗，我记错了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

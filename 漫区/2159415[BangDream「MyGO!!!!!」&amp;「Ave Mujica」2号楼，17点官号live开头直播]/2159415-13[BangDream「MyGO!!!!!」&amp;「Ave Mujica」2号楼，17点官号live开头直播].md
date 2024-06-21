@@ -1876,3 +1876,14 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起以前看水团的时候期刊也有个画的很难绷的画师，忘了叫啥了
 
+
+*****
+
+####  御幸一也  
+##### 17942#       发表于 2024-6-21 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65317621&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 00:17</a>
+
+我上个真情实感追的2.5企划还是缪斯，那时候哪遇到过鸡这待遇啊</blockquote>
+好巧 我也是 現在來追ave就感覺，沒追過這麼憋屈的企劃要什麼沒什麼，突出一個讓粉絲拿空氣發電<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

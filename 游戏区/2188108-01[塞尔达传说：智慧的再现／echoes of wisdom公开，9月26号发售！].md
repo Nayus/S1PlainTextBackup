@@ -2853,3 +2853,21 @@ https://www.bilibili.com/video/BV1hTg1ewESp/ ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326321&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-21 17:58</a></blockquote>
 还有马琳<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Linkwjj  
+##### 284#       发表于 2024-6-21 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326321&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-21 17:58</a></blockquote>
+Wii U：野炊塞明明应该是我的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 285#       发表于 2024-6-21 21:05
+
+[https://www.youtube.com/watch?v=OAHvKekYRs8](https://www.youtube.com/watch?v=OAHvKekYRs8)
+
+塞学家整合的杂七杂八的PV细节探索，确实是把历代各种美术设计和梗都揉进去了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

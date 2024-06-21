@@ -82,3 +82,30 @@
 50w</blockquote>
 🥦🥦🥦
 
+
+*****
+
+####  Piano-Forest  
+##### 1841#         楼主| 发表于 2024-6-21 20:59
+
+✧┈┈
+
+　リコリス・リコイル展 
+
+　  ～seize the day～
+
+     フィナーレ開催決定
+
+　　　　　　　　　 ┈┈✦
+
+#リコリコ展 浅草会場の開催決定👏
+
+フィナーレ用の新規描きおろしイラストも解禁✨
+
+📅7/24(水)～8/19(月)
+
+📌松屋浅草3階 催事場
+<img src="https://p.sda1.dev/18/25382094aee21d1d34112fd11785ea2b/top_kv2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/723ecd4460c726229efaaf81a47545b7/20240621_205852.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1a28691d82e61b522e0fbc896bdc6d12/20240621_205904.jpg" referrerpolicy="no-referrer">
+

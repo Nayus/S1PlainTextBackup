@@ -2083,3 +2083,29 @@ ykn和彩彩还行
 
 KY到這頭上了？有點好笑了哦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17965#       发表于 2024-6-21 21:00
+
+<img src="https://img.saraba1st.com/forum/202406/21/210010j6vpkk266kpgzc2k.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_wigfire(@xiang030815)_20240620-174428_1803846392743628818_photo.jpg</strong> (227.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 21:00 上传
+
+[https://x.com/xiang030815/status/1803846392743628818](https://x.com/xiang030815/status/1803846392743628818)
+
+<img src="https://img.saraba1st.com/forum/202406/21/210037uvvtecmpiexs8xiz.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ak(@akni105)_20240619-154755_1803454675624272120_photo.jpg</strong> (113.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 21:00 上传
+
+[https://x.com/akni105/status/1803454675624272120](https://x.com/akni105/status/1803454675624272120)
+

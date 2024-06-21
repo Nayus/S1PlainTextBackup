@@ -1895,3 +1895,20 @@ air真挺好听的，或许黑听的多吧所以立绘影响不大吧<img src="h
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡狗团好像能凑出7个弹钢琴的，在b站上刷到个李子弹寒蝉op的视频
 
+
+*****
+
+####  vigada  
+##### 17944#       发表于 2024-6-21 10:38
+
+那个鸡狗翻唱混专还有十几天就发售了来着，是不是到现在都没有详情特典图？明明还塞了鸡的单独live抽选…
+
+*****
+
+####  星天观测  
+##### 17945#       发表于 2024-6-21 10:43
+
+每次想起混专塞专场抽选就觉得真腿毛抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+啥b wsd
+

@@ -3045,3 +3045,14 @@ FT装甲还是能抗住夹心炮的，阿斯兰开强自时候副炮 ...</blockq
 
 —— 来自 samsung SM-S9080, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  三郷雫  
+##### 1730#       发表于 2024-6-21 10:49
+
+看完了
+感觉战斗这一块给我的感觉是精细到不像种系高达<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，没有兼用卡看起来好不习惯啊
+还有命运的这个分身系统以前在tv 版里面真用过么?对这个的印象只有机战里面命运有分身，在tv里面好像都没看到过...
+最后强袭自由那个光球系统是沿用的观星者科技吗?
+

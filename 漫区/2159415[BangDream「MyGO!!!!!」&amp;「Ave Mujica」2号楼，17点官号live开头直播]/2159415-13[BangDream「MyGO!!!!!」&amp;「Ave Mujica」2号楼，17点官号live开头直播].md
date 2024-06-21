@@ -2538,3 +2538,17 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 我虽然推初祥但是我想看的是这两个人互相信任依靠并肩前行，或者一起坠入地狱，祥子是不能自己独立吗为什么一定要觉得祥子需要哪一个人来救她呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18009#       发表于 2024-6-21 23:07
+
+<img src="https://img.saraba1st.com/forum/202406/21/230729qrwg7s7qrccobb7a.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1718982410016.jpg</strong> (56.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 23:07 上传
+

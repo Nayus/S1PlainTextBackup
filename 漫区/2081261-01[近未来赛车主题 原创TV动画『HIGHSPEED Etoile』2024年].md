@@ -40,3 +40,35 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UnrealApartheid  
+##### 414#       发表于 2024-6-22 02:51
+
+ 本帖最后由 UnrealApartheid 于 2024-6-22 02:52 编辑 
+
+哦对了，这个作品将推出一个Switch独占的GAL
+
+惊不惊喜？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2024-06-22-02-32-36-03_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(327.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 02:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/025213pg1zee8qn8qxwujc.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(137.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 02:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/025215f5nvz2fe9zu3n3e4.jpg" referrerpolicy="no-referrer">
+

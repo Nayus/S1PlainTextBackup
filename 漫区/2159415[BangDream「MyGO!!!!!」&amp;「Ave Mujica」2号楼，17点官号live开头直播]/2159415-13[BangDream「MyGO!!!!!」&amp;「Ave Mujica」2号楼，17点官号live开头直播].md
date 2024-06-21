@@ -2681,3 +2681,99 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  星天观测  
+##### 18021#       发表于 2024-6-21 23:28
+
+看到睦头就会想起想看点海睦但是大脑又有点被海希卡住的悲伤心情
+
+母鸡卡不播纯爱战士好难活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18022#       发表于 2024-6-21 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">睦祥的类似共犯关系很有意思，不知道会怎么处理初祥关系性这个关键内容
+
+相信制作组能做好做有趣祥子的队内关系<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18023#       发表于 2024-6-21 23:29
+
+初祥 睦祥 喵祥 没有一个不美味的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18024#       发表于 2024-6-21 23:31
+
+那我说个个人小贷款吧
+
+共犯是指
+
+祥子：我有大狗（金毛），我干了
+
+睦：我也有大狗（狼狗），我也干了
+
+鸡藏太深了祥子和睦的关系性我看不明白不敢贷款啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18025#       发表于 2024-6-21 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">幼馴染.jpg
+
+有什麼不敢貸的，兩個幼馴染我都貸，貸過去也是貸<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+例如小時候的睦寶如果也是這樣不愛說話，那帶著她到處玩的想必會是小白祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18026#       发表于 2024-6-22 00:07
+
+没办法，我太尊重原著害怕翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18027#       发表于 2024-6-22 01:04
+
+ 本帖最后由 御幸一也 于 2024-6-22 01:15 编辑 
+
+吃一下海睦<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/22/010357kx0ce4icmfcxft4l.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_末影龙眼球Logan(@Cracy_Logan)_20240621-025638_1803985351813534200_photo.jpg</strong> (144.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 01:03 上传
+
+[https://x.com/Cracy_Logan/status/1803985351813534200](https://x.com/Cracy_Logan/status/1803985351813534200)
+
+*****
+
+####  九陌狂游  
+##### 18028#       发表于 2024-6-22 01:05
+
+动画能把憨憨的小祥还给我我就心满意足了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿萨德飞过去  
+##### 18029#       发表于 2024-6-22 06:35
+
+好久没看s1几百回复还以为有什么舅舅大的来了，没想到只是在点草。不过也比萌萌人轮回好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+许愿能像个人回一样来点幼年专场，<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">等不及看幼祥如何与青梅相处了。海铃倒是能猜测下，喵梦亲有点难以想象
+

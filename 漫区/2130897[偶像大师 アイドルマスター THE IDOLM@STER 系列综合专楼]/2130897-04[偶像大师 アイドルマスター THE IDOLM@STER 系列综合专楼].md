@@ -12057,3 +12057,20 @@ live中间为什么要插︶_︶ ︶_︶
 
 哦草，到现在都让我睡不着，这sc第12集可太牛了
 
+
+*****
+
+####  wolf1997  
+##### 5566#       发表于 2024-6-22 03:07
+
+别尼玛嗨在LIVE里加你那个大头闭眼了，结果结尾再给我来一遍全员逐一抬头？？无敌了
+
+*****
+
+####  xmcp  
+##### 5567#       发表于 2024-6-22 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65263552&amp;ptid=2130897" target="_blank">screeper 发表于 2024-6-16 23:28</a>
+大胆预言，全员大头x16在ep12还要再来一次</blockquote>
+太对了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

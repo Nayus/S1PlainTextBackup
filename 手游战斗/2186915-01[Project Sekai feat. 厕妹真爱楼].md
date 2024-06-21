@@ -4961,3 +4961,13 @@ zng最爱男娘
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/423.png" referrerpolicy="no-referrer">这标题搞得好像MIKU是厕妹似的
 
+
+*****
+
+####  GAdoru  
+##### 429#       发表于 2024-6-21 20:39
+
+生气，没抢到未来有你门票，我要化身厕妹了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

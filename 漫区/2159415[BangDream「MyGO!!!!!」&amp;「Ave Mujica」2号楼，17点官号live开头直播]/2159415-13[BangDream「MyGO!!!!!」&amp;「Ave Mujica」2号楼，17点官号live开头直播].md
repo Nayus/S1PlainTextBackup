@@ -2055,3 +2055,13 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 
 我的，可能因为之前看到谁说想找狗粉一起买受到影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 17962#         楼主| 发表于 2024-6-21 15:49
+
+<blockquote>DarthAka 发表于 2024-6-20 23:00
+谁没问题？哪个单拿出来不是两眼一黑</blockquote>
+ykn和彩彩还行
+

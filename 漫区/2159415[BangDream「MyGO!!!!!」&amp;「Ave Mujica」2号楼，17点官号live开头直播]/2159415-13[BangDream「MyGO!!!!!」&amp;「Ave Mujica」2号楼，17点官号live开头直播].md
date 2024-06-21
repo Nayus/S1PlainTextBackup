@@ -2441,3 +2441,59 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 齿轮那边，睦在c团时期吉他上就有齿轮logo的。但要说齿轮月logo的齿轮logo和这个有关也是非常牵强。
 
+
+*****
+
+####  星天观测  
+##### 18000#       发表于 2024-6-21 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328822&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-6-21 22:25</a>
+
+不是很想看B站的评论，不过刚朋友发了一个qq音乐里的评论：“两个灵魂共鸣，祥子是可以联系起crythic的海 ...</blockquote>
+我超，这不就是b站那条评论，一个人写的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18001#       发表于 2024-6-21 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328817&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-21 22:25</a>
+
+那个算是neta初祥是牛郎织女吧</blockquote>
+说道牛郎织女
+
+我记得以前nga那边还汴过初华和灯到底谁是鹊桥
+
+哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 18002#       发表于 2024-6-21 22:29
+
+齒輪可能是對應玩偶吧，人造生命之類的
+
+
+*****
+
+####  御幸一也  
+##### 18003#       发表于 2024-6-21 22:34
+
+<img src="https://img.saraba1st.com/forum/202406/21/223417edlvcvqu0ozvsspp.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_タロ(@mkm22111)_20240621-140255_1804153024534974737_photo.jpg</strong> (98.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 22:34 上传
+
+[https://x.com/mkm22111/status/1804153024534974737](https://x.com/mkm22111/status/1804153024534974737)
+
+*****
+
+####  rikaren  
+##### 18004#       发表于 2024-6-21 22:35
+
+假药一点就是齿轮月是幼初身上衣服的月亮logo和睦吉他上的齿轮logo合并而成，但是一样是非常神经病的想法
+

@@ -2273,3 +2273,96 @@ ok，那就先等初华生日吧，相信李子和各位初华厨<img src="https
 说起来“灯祥平行线”是出自谁的访谈？羊宫的还是谁的？之前有段时间天天见这个说法。 ...</blockquote>
 他go的BanG Dream! 12th LIVE幕間 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 17983#       发表于 2024-6-21 22:06
+
+先期待6.26再期待7.7再期待2nd结束的访谈
+
+我到底为什么推鸡啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17984#       发表于 2024-6-21 22:07
+
+只是cv的话这个平行线理解还是很奇怪，后续剧情两人彻底切割干净了？
+
+*****
+
+####  rikaren  
+##### 17985#       发表于 2024-6-21 22:08
+
+如果要进手游的话就很难说会符合“平行线”这么个描述，不过这也只是cv的访谈。
+
+*****
+
+####  相坂君  
+##### 17986#       发表于 2024-6-21 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从翻唱到两个乐队的原创全是灯祥曲
+
+*****
+
+####  御幸一也  
+##### 17987#       发表于 2024-6-21 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328642&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-21 22:07</a>
+
+只是cv的话这个平行线理解还是很奇怪，后续剧情两人彻底切割干净了？</blockquote>
+是LIVE幕間裡燈唸的獨白，其實也沒說是寫給誰的，只是大家都覺得是寫給祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且這個泥樓撕逼過，撕的點還特別奇怪，你要是感興趣就翻11/5那幾天的樓。
+
+*****
+
+####  星天观测  
+##### 17988#       发表于 2024-6-21 22:09
+
+能怎么切割的，一个学校一个年级隔壁班，平行线大概就是说开了以后各自和各自的乐队前行，碰面了也可以和平的打招呼，混活里也会正常对话
+
+真弄成老死不相往来估计大概率被解读成心里还没放下都是装的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 17989#       发表于 2024-6-21 22:10
+
+谁还没几个前女友了 各自向前关系正常化挺好的 就别幻想走回头路了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17990#       发表于 2024-6-21 22:11
+
+来点怪力乱神，初华向神明（愚神）许愿让祥子真的忘记了一切（bushi）
+
+*****
+
+####  星天观测  
+##### 17991#       发表于 2024-6-21 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328657&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-6-21 22:09</a>
+
+water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从翻唱到两个乐队的原创全是灯祥曲 ...</blockquote>
+想看原话就去b站号water那条倒着看，不远
+
+只能说初华真惨吧唱的都是别人的曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 17992#       发表于 2024-6-21 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328639&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 22:06</a>
+
+先期待6.26再期待7.7再期待2nd结束的访谈
+
+我到底为什么推鸡啊</blockquote>
+有一說一，8月有ASL還算是有ave能量補充，該擔心的是再往後的除了個河口湖現在什麼都沒有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+這個別人嘴裡天天說的“宣傳期”到底什麼時候才來啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

@@ -2185,3 +2185,52 @@ KY到這頭上了？有點好笑了哦<img src="https://static.saraba1st.com/ima
 
 md，这次是B站的屎吗
 
+
+*****
+
+####  rikaren  
+##### 17974#       发表于 2024-6-21 21:48
+
+fire4.7配信，5.2出mv，air5.18配信，6.6出mv，请谨慎看好六月份没有water的mv（理论上应该会在earth公布前，可能会是七月初）
+
+
+*****
+
+####  御幸一也  
+##### 17975#       发表于 2024-6-21 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328444&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-21 21:42</a>
+
+明天是不是应该要有水的mv了</blockquote>
+
+要找規律的話，我賭7/4出，因為是5/2、6/6都是每個月的第一個禮拜四<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/21/214959ky9isn8qjd9mdded.png" referrerpolicy="no-referrer">
+
+<strong>image (2).png</strong> (14.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 21:49 上传
+
+*****
+
+####  星天观测  
+##### 17976#       发表于 2024-6-21 21:55
+
+ok，那就先等初华生日吧，相信李子和各位初华厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 17977#       发表于 2024-6-21 21:56
+
+那么会是7.4出water的mv，7.5出earth的网络配信吗，这时间卡的有点紧张
+
+*****
+
+####  yifan8848  
+##### 17978#       发表于 2024-6-21 21:56
+
+可能要等現場票賣得差不多才會開吧，之前對邦也是4/29的演出，4/25才開配信
+

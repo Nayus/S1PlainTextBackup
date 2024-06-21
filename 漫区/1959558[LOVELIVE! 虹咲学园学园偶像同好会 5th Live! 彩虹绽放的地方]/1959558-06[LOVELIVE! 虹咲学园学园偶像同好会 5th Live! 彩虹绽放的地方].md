@@ -28,3 +28,19 @@
 <img src="https://p.sda1.dev/18/679ab70050d480fa5434a935b19518dc/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/6752d132d525502c35cdb66021297041/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7513#       发表于 2024-6-21 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328206&amp;ptid=1959558" target="_blank">Piano-Forest 发表于 2024-6-21 21:21</a>
+【特報】
+
+「叛逆のニジガサキ」</blockquote>
+这玩意太整蛊了。
+
+记得之前是哪个偶像团体和鲁路修手游联动来着
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

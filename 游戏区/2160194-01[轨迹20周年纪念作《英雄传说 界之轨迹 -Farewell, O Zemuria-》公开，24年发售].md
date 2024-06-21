@@ -4367,3 +4367,47 @@ U1S1 她那个束腰 我莫名想起一个叫505神功元气袋的东西……
 
 完了，真有空轨re<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Archer长羽  
+##### 458#       发表于 2024-6-22 01:37
+
+<blockquote>Squall25 发表于 2024-6-21 23:10
+完了，真有空轨re</blockquote>
+今天公开消息？
+
+
+*****
+
+####  酷乐  
+##### 459#       发表于 2024-6-22 01:42
+
+ 本帖最后由 酷乐 于 2024-6-22 01:44 编辑 
+
+[https://trakev210.wixsite.com/ha ... pecial-illustration](https://trakev210.wixsite.com/haohansuke21/post/comiket-vol-21-features-nihon-falcom-of-its-history-special-illustration)
+
+<strong>Comiket Plus Vol. 21 Features Nihon Falcom of its History, Special Illustration</strong>
+
+A sizable Japanese doujinshi (independent fan works) convention called Comic Market (also known as Comiket) is held twice a year in the summer and winter. Comiket 104 is the next event, which is scheduled for August 11th–12th, 2024.
+
+The Comic Market Preparation Committee's official magazine, "Comiket Plus," is created to promote the event and offer information to help people—usually first-time attendees—enjoy it. Even seasoned Comiket attendees will find the magazine's coverage of a wide range of comics and otaku culture subjects interesting.
+
+Comiket Plus Volume 21 will focused around Nihon Falcom.
+
+<img src="https://img.saraba1st.com/forum/202406/22/014351quqji1uiuq1jnq2s.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>c08ec3_a3947a2c10d64c19acbad6f96132c160~mv2.webp</strong> (385.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 01:43 上传
+
+Featuring Nihon Falcom, which the company has been producing popular games in the "Ys series," "Dragon Slayer series," and "Kiseki series" since its establishment in 1981, and is scheduled to release their upcoming title in the Kiseki series "The Legend of Heroes: Kai No Kiseki -Farewell, O Zemuria-" which it will be releasing on September 26th, 2024 in Japan and Asia.
+
+In Comiket Plus Vol. 21, the overall history of Nihon Falcom will be introduced. Which it also features special illustrations that are rarely shown, including rare illustrations that is used for related merchadise goods in the past.
+
+The magazine is available for preorder on the Builtruns website(soon) and other related websites. Comiket Plus Vol. 21 will be released on July 9th, 2024.
+
+It will be updated on the Builtruns store soon.
+

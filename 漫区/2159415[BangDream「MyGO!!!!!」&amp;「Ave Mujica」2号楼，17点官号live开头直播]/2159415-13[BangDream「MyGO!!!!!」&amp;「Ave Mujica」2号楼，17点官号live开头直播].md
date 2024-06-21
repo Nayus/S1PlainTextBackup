@@ -2023,3 +2023,11 @@ mujica目前的专辑封面我都挺喜欢的，不知道下一专封面是什�
 
 这种翻唱拼盘不知道会不会有一方粉丝找另一方的拼着买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 17958#       发表于 2024-6-21 14:44
+
+這怎麼拼啊 掰開一人一半嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

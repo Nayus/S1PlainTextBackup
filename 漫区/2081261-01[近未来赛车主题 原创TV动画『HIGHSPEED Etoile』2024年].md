@@ -30,3 +30,13 @@
 
 真的是一点不能细想的剧情，最后一堆坑也没填，纯自嗨片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天剑流星  
+##### 413#       发表于 2024-6-22 02:26
+
+所以爆发其实是想开就开的嘛，女主好像在一圈内开了两次吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

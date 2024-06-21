@@ -2705,3 +2705,50 @@ PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的
 PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的名号会不会从林克易主（加农：等等，我好像才是 ...</blockquote>
 还有rpg啊😯
 
+
+*****
+
+####  克里斯邓恩  
+##### 270#       发表于 2024-6-21 10:16
+
+时间线最简单的，在梦见岛后就行了
+
+
+*****
+
+####  woui003woui  
+##### 271#       发表于 2024-6-21 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65320779&amp;ptid=2188108" target="_blank">maomaoying 发表于 2024-6-21 10:14</a>
+还有rpg啊😯</blockquote>
+那个扔烟花炸弹的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windhawind2  
+##### 272#       发表于 2024-6-21 10:21
+
+我寻思pv里扔石头、招换小猪、上发条轰炸不都是战斗画面么。。
+
+*****
+
+####  发呆的龙虾  
+##### 273#       发表于 2024-6-21 10:23
+
+左上角十字键不只有法杖么，还有三格是空的呢。
+另外举发条让我梦回3ds的三只剑，我玩过的最好玩的2d塞，希望这次可以三人联机。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  tsubasa9  
+##### 274#       发表于 2024-6-21 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65318073&amp;ptid=2188108" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-6-21 01:01</a>
+
+塞的时间线真的有定论吗？按官方时间线也有很多解释不清的地方吧？所谓的时间线我感觉都像是先有答案再编问 ...</blockquote>
+没有，任地狱从始至终根本不care这个
+
+那个官方timeline也就是看大家热情这么高硬凑的而已
+

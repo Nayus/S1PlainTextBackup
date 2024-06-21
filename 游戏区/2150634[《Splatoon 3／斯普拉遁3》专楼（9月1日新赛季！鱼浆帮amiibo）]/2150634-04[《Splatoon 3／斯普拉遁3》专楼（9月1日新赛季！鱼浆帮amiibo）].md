@@ -3312,3 +3312,18 @@ max三岗过了，仍旧没有金
 
 打了3次终于上了s+，唉
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4767#       发表于 2024-6-21 17:08
+
+特別なフェス「Summer Nights」のお題が「1日貸し切るなら？ 宮殿 vs 遊園地 vs ビーチ」に決定した！
+期間は7月13日(土)午前9時～7月15日(月・祝)午前9時の48時間だ。
+約束されたデラックスな1日、みなさんならどこでどう過ごす？
+ヨビ祭は7月5日(金)午後5時に始まるぞ。
+
+什么烂选题<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

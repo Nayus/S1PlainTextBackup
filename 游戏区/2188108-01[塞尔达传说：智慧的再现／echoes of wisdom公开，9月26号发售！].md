@@ -2818,3 +2818,17 @@ PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的
 https://www.bilibili.com/video/BV1hTg1ewESp/ ...</blockquote>
 好细，发现了Tri背后的三角数量决定了能够同时复制出的物品数量
 
+
+*****
+
+####  佛罗伦萨  
+##### 281#       发表于 2024-6-21 17:58
+
+<img src="https://img.saraba1st.com/forum/202406/21/175810b8h0zdxhdt8unnn8.jpg" referrerpolicy="no-referrer">
+
+<strong>20240621_124052.jpg</strong> (319.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 17:58 上传
+

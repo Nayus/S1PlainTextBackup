@@ -1766,3 +1766,13 @@ vme<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referre
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  哼，杂鱼  
+##### 185#       发表于 2024-6-21 08:57
+
+NS买了原版的数字豪华版...真不想再花一次钱来一次了
+
+早该预料到atlus这吃相的<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
+

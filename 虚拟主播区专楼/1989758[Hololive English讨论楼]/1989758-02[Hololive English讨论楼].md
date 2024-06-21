@@ -96,3 +96,27 @@ gigi生日改了
 
 2024-6-20 21:57 上传
 
+
+*****
+
+####  shimmy1996  
+##### 1974#       发表于 2024-6-21 14:15
+
+<img src="https://img.saraba1st.com/forum/202406/21/141149rbem6zgng8gczzb2.jpg" referrerpolicy="no-referrer">
+
+<strong>[twitter] hololive_En—2024.06.21—1804031501505564847—GQj_V60akAAv6WN.jpg</strong> (250.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-21 14:11 上传
+
+官方透露时区？？？
+
+Elizabeth: 英国
+
+Cecilia: 德国
+
+Raora: 日本
+
+Gigi: 美国西海岸
+

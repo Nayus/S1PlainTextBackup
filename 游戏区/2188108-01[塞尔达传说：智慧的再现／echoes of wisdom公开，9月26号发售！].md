@@ -2782,3 +2782,13 @@ PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的
 [https://www.bilibili.com/video/BV1nJ4m1T7hw/](https://www.bilibili.com/video/BV1nJ4m1T7hw/)</blockquote>【Zeltik中字】《塞尔达传说：智慧的再现》首支预告片分析
 [https://www.bilibili.com/video/BV1hTg1ewESp/](https://www.bilibili.com/video/BV1hTg1ewESp/)
 
+
+*****
+
+####  shigure_ee  
+##### 278#       发表于 2024-6-21 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65318073&amp;ptid=2188108" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-6-21 01:01</a>
+塞的时间线真的有定论吗？按官方时间线也有很多解释不清的地方吧？所谓的时间线我感觉都像是先有答案再编问 ...</blockquote>
+任天堂：自有大儒为我辩经
+

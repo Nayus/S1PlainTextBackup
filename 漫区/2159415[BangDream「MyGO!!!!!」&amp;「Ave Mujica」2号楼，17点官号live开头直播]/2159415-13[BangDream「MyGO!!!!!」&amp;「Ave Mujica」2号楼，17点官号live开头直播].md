@@ -2528,3 +2528,13 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 我超，这不就是b站那条评论，一个人写的？</blockquote>
 顺带去网易云看了眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/c591042af0c178f08046944a593a9c0e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18008#       发表于 2024-6-21 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么一定要拯救祥子啊
+
+我虽然推初祥但是我想看的是这两个人互相信任依靠并肩前行，或者一起坠入地狱，祥子是不能自己独立吗为什么一定要觉得祥子需要哪一个人来救她呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

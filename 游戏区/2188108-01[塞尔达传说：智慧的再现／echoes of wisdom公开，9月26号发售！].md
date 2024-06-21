@@ -2805,3 +2805,16 @@ PV 都直接搬巨石砸怪、举 RPG 乱轰，不如担心一下人形灾厄的
 本作的CERO评级为A（全年龄），《织梦岛》评级为B（12+）。
 #塞尔达传说智慧的再现# ​​​
 
+
+*****
+
+####  JustW  
+##### 280#       发表于 2024-6-21 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65321962&amp;ptid=2188108" target="_blank">撒撒 发表于 2024-6-21 11:35</a>
+
+【Zeltik中字】《塞尔达传说：智慧的再现》首支预告片分析
+
+https://www.bilibili.com/video/BV1hTg1ewESp/ ...</blockquote>
+好细，发现了Tri背后的三角数量决定了能够同时复制出的物品数量
+

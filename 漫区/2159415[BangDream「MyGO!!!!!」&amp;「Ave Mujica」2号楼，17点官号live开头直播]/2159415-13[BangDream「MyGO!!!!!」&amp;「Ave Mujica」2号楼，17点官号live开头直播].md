@@ -2634,3 +2634,15 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 鸡藏太深了祥子和睦的关系性我看不明白不敢贷款啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18017#       发表于 2024-6-21 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">幼馴染.jpg
+
+有什麼不敢貸的，兩個幼馴染我都貸，貸過去也是貸<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+例如小時候的睦寶如果也是這樣不愛說話，那帶著她到處玩的想必會是小白祥吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

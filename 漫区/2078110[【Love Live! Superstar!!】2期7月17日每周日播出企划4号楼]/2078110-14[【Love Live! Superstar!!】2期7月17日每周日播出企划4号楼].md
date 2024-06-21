@@ -2051,3 +2051,21 @@ Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.
 
 算是明白有些东西值得恨一辈子的感觉是什么了<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20365#       发表于 2024-6-21 19:43
+
+ 本帖最后由 ads147147 于 2024-6-21 19:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326812&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-6-21 18:43</a>
+某位粪田老头在SNS放屁乞讨前能不能想想他上一作负责的动画和企划是什么属性和什么战略方式
+
+东大妈是给你付 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+说不定东大妈真给他买断了捏，毕竟现在星3staff都还没发呢，如果换人接手那可笑疯了。
+
+不过说到底，gbc粉丝开香槟的时候根本也不会考虑到其他企划粉丝的难受之处，甚至还带点幸灾乐祸，我只能祝愿他们不会遭到拉拉一样的背叛。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

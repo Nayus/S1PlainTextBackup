@@ -134,3 +134,11 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 最后几集还行吧，要是前面几集不那么水不把女主角的水平设定的这么低的话就好了，太劝退了。
 
+
+*****
+
+####  arachnid  
+##### 421#       发表于 2024-6-22 13:42
+
+最后一集事故有点多啊，观感上完全没爽起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

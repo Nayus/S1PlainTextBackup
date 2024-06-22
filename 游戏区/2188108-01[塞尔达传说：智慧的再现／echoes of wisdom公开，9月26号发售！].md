@@ -3004,3 +3004,11 @@ zelda.jpg
 野吹之后林赛发糖真的越来越多了，这一部直接逆主角，香疯了</blockquote>
 藤林是纯纯的林塞cp头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  afer  
+##### 296#       发表于 2024-6-22 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得本作是颠覆性的，首次以塞尔达为主角的塞尔达正统游戏
+

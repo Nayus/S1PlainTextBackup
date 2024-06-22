@@ -2777,3 +2777,11 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 许愿能像个人回一样来点幼年专场，<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">等不及看幼祥如何与青梅相处了。海铃倒是能猜测下，喵梦亲有点难以想象
 
+
+*****
+
+####  星天观测  
+##### 18030#       发表于 2024-6-22 15:09
+
+新的排练照片吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

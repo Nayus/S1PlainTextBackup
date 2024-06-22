@@ -2163,3 +2163,32 @@ fbk你每次选的这些地图……
 
 问题是，以前的miko那是使用了switch的保存功能才通关的啊，又不是一条命打到底……
 
+
+*****
+
+####  holoan  
+##### 9067#         楼主| 发表于 2024-6-22 16:57
+
+周末两天直接通关火影4的架势了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过4的剧情加战斗部分合起来好像也不短
+
+不过说起来这火影直播到3为止是真的每场都哭，你是投入多少感情在里面
+
+*****
+
+####  holoan  
+##### 9068#         楼主| 发表于 2024-6-22 17:50
+
+<img src="https://img.saraba1st.com/forum/202406/22/174939degepee9lzkp099o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 17:49 上传
+
+净给我推送些什么狗屁……
+
+等会，七字母约会用私服都4套了！？是不是有点
+

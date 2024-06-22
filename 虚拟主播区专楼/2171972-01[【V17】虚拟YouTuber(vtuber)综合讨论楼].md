@@ -318,3 +318,23 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 ルンルン同接直接腰斩，非人太惨了……
 
+
+*****
+
+####  Devi_Lito  
+##### 344#       发表于 2024-6-22 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338370&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-6-22 20:24</a>
+
+ルンルン同接直接腰斩，非人太惨了……</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/22/202734zj3vnxnpxdnjvenv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1.jpeg</strong> (123.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 20:27 上传
+
+应该是油 管同接bug
+

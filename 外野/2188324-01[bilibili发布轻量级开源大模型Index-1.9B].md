@@ -474,3 +474,16 @@ prompt: 你是蒙古上单
 
 [https://huggingface.co/spaces/IndexTeam/Index-1.9B](https://huggingface.co/spaces/IndexTeam/Index-1.9B)是这个吧？
 
+
+*****
+
+####  Herreimu  
+##### 50#       发表于 2024-6-22 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65337508&amp;ptid=2188324" target="_blank">红炉灰 发表于 2024-6-22 18:57</a>
+怎么打不开
+
+https://huggingface.co/spaces/IndexTeam/Index-1.9B是这个吧？</blockquote>
+huggingface被墙很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+镜像站 https://hf-mirror.com/IndexTeam/Index-1.9B
+

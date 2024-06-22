@@ -3218,3 +3218,27 @@ fengzhouyi 发表于 2024-6-22 04:57L（捧着布鲁）：不是出于别人的�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  fengzhouyi  
+##### 1745#       发表于 2024-6-22 19:24
+
+罗盘总裁是卡嘉莉拜托基拉帮忙参与，拉克丝跟着基拉去任职总裁。小说原文里没有任何“都是你们逼的”的字眼
+
+<img src="https://img.saraba1st.com/forum/202406/22/192233muudxjywjjuld4tw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240530_210128.jpg</strong> (968.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/192332n2qqsuvlltnvd9us.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240530_211756.jpg</strong> (676.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 19:23 上传
+

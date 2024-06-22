@@ -514,3 +514,15 @@ Index是茵蒂克丝的英文谐音，茵蒂克丝的名字来源于日本轻小
 
 这么看 APP 孤岛化还挺有用的？每家都能用独家数据冒头一波？
 
+
+*****
+
+####  Lucario  
+##### 54#       发表于 2024-6-22 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65337814&amp;ptid=2188324" target="_blank">Van夫膜开 发表于 2024-6-22 19:30</a>
+1.9b四张4090就能训练了吧。
+
+好一点的话一张H100也可以训练了吧</blockquote>
+你说的是推理，训练不行。就算是1.3b的模型，从头训练也需要千卡集群数周时间
+

@@ -250,3 +250,11 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 只看游戏内容根本感受不到哪里有节奏<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 顺便连星川也被卷进去了，导致弹幕也被锁了。。不少拿叶师踩星川的，同为神却没尽到职责。还好这种言论前几日也有萌芽，品鉴得够多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 337#       发表于 2024-6-22 17:16
+
+不过体感这次评论栏的地狱程度不管是跟vcr比还是跟以前的箱活比，都要克制很多
+

@@ -44,3 +44,15 @@
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 7514#       发表于 2024-6-22 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65328510&amp;ptid=1959558" target="_blank">ads147147 发表于 2024-6-21 21:51</a>
+这玩意太整蛊了。
+
+记得之前是哪个偶像团体和鲁路修手游联动来着</blockquote>
+这个标题其实更像EVA而非鲁路修。
+

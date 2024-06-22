@@ -2193,3 +2193,11 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 今天第一排，爽到。广州场离我家还特别近，希望能抢到票
 
+
+*****
+
+####  starring  
+##### 20379#       发表于 2024-6-22 23:51
+
+广州场在工作日啊，再加上3号才从日本回来，更加去不了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+

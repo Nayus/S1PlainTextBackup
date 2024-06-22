@@ -1871,3 +1871,11 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 HONOR NTH-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  30906  
+##### 197#       发表于 2024-6-22 23:53
+
+没玩过，等他的pc版打折，试试手气当个分母
+

@@ -4563,3 +4563,12 @@ QQ图片20240622095048.jpg
 但他自己写在官网那么久，也不提前说，有种骗人去的美</blockquote>
 因为从伊苏x那里复制的吧，NIPPONBASHI GAME SHOW期間中、イベント会場にて「イースⅩ-NORDICS-」の最新映像を上映！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 473#       发表于 2024-6-22 11:10
+
+<img src="https://p.sda1.dev/18/7432263bb89b12bbfe4cd1adce7f9a52/image.jpg" referrerpolicy="no-referrer">
+这凤爪……莫非E圣向武内取经了？
+

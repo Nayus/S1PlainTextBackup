@@ -175,3 +175,18 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 箱活的世纪难题，怎么在跟人气top互动的时候被不被信者攻击
 
+
+*****
+
+####  zjoi  
+##### 331#       发表于 2024-6-22 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334440&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-6-22 12:27</a>
+
+剧不剧本不重要，阻止不了小鬼觉得尊妈搞乱游戏啊
+
+箱活的世纪难题，怎么在跟人气top互动的时候被不被信者 ...</blockquote>
+太恶臭了
+
+难怪昨天的录像，尊的留言栏看不了了
+

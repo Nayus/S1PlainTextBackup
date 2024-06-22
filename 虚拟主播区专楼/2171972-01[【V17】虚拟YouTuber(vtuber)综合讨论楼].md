@@ -136,3 +136,14 @@
 （这要没跟king真在一起感觉亏大发了） ...</blockquote>
 什么情况
 
+
+*****
+
+####  poipanchao  
+##### 328#       发表于 2024-6-22 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65332965&amp;ptid=2171972" target="_blank">zjoi 发表于 2024-6-22 09:54</a>
+
+什么情况</blockquote>
+导致条子虾堕黑，被评论狂骂
+

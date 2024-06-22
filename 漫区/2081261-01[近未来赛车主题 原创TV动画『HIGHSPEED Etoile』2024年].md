@@ -103,3 +103,26 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  KDConan  
+##### 418#       发表于 2024-6-22 10:19
+
+出GALGA这不是挺明白作品定位的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  月夜凝雪  
+##### 419#       发表于 2024-6-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65331617&amp;ptid=2081261" target="_blank">天剑流星 发表于 2024-6-22 02:26</a>
+所以爆发其实是想开就开的嘛，女主好像在一圈内开了两次吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的  ...</blockquote>
+应该只是有CD，所以前几话限制了可以使用的时间段，如果是一次性的就没必要有限定时间的规则
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

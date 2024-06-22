@@ -2113,3 +2113,32 @@ fbk你每次选的这些地图……
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  holoan  
+##### 9063#         楼主| 发表于 2024-6-22 10:12
+
+<img src="https://img.saraba1st.com/forum/202406/22/101048cuyy1yf1ff15z12f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 10:10 上传
+
+怎么又七字母同时发表了
+
+看看最后成品效果吧
+
+*****
+
+####  rs5621  
+##### 9064#       发表于 2024-6-22 10:25
+
+35这个比xjhx的好一点，雷点只有斜切手肘。xjhx那个真是坨中坨,斜切手肘加断腰式胸腔看笑了。
+
+等上色版出来，看看效果
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

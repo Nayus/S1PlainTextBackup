@@ -196,3 +196,14 @@ BGM响起然后落雷太生草了
 
 阿姆罗被op和小学生降板了，所以这部就真的成了遗作？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poonhk  
+##### 427#       发表于 2024-6-22 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65337141&amp;ptid=2081261" target="_blank">X(iaolw)S 发表于 2024-6-22 18:21</a>
+
+阿姆罗被op和小学生降板了，所以这部就真的成了遗作？</blockquote>
+又没说不当阿姆罗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

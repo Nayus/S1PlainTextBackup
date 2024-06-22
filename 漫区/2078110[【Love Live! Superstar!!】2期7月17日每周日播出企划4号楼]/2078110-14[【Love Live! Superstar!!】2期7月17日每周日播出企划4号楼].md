@@ -2226,3 +2226,16 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  仟音一心  
+##### 20382#       发表于 2024-6-23 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65340647&amp;ptid=2078110" target="_blank">グレーシア 发表于 2024-6-23 00:15</a>
+
+你这个视角感觉内场不如看台
+
+我矮，前面的人都站起来，我什么也看不见</blockquote>
+对，看台全程坐着看完全没问题。
+

@@ -142,3 +142,15 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 最后一集事故有点多啊，观感上完全没爽起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 422#       发表于 2024-6-22 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">解说不说话观感就好了好几个等级
+
+还是感觉做动画这帮人都没怎么了解赛车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也可能参考的SF应该也是F2这样的低效率换胎
+

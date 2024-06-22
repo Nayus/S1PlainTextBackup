@@ -3164,3 +3164,18 @@ fengzhouyi 发表于 2024-6-22 04:57L（捧着布鲁）：不是出于别人的�
 
 ----发送自 [Sony XQ-DQ72,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  オルガピピック  
+##### 1740#       发表于 2024-6-22 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65321282&amp;ptid=2178694" target="_blank">三郷雫 发表于 2024-6-21 10:49</a>
+
+看完了
+
+感觉战斗这一块给我的感觉是精细到不像种系高达，没有兼用卡看起来好不习惯啊
+
+还有命运的这个分身系 ...</blockquote>
+那是因为你看的是3d版的兼用卡 剧场版战斗除了连续的几个镜头好多都是包浆20年的兼用卡分镜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

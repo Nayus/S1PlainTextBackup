@@ -207,3 +207,11 @@ BGM响起然后落雷太生草了
 阿姆罗被op和小学生降板了，所以这部就真的成了遗作？</blockquote>
 又没说不当阿姆罗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wolf1997  
+##### 428#       发表于 2024-6-22 21:03
+
+这片子还是能看的，3d水平足够撑起片子，要是改成2d的话以a-cat来说肯定妹子与赛车戏一样都保不住。之后要出的gal好像要聚焦在两个赛车女郎上，感觉没啥东西啊，藤真真的能撑得起gal的工作量吗？
+

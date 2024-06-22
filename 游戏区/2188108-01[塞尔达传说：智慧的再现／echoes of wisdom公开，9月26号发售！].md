@@ -3012,3 +3012,13 @@ zelda.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得本作是颠覆性的，首次以塞尔达为主角的塞尔达正统游戏
 
+
+*****
+
+####  JOJOROY  
+##### 297#       发表于 2024-6-23 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334743&amp;ptid=2188108" target="_blank">Tachikoma88 发表于 2024-6-22 12:57</a>
+藤林是纯纯的林塞cp头子</blockquote>
+这作大部分开发时间都和王泪重叠，藤林应该是没参与这作
+

@@ -1879,3 +1879,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 没玩过，等他的pc版打折，试试手气当个分母
 
+
+*****
+
+####  rvunholy  
+##### 198#       发表于 2024-6-23 00:12
+
+这VV吧。。。我之前买了V 你还不让我通过dlc获取 和光荣学会了是吧
+
+—— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

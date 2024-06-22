@@ -2201,3 +2201,16 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 广州场在工作日啊，再加上3号才从日本回来，更加去不了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  グレーシア  
+##### 20380#       发表于 2024-6-23 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65339057&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-6-22 21:49</a>
+
+天居然晴了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">你这个视角感觉内场不如看台
+
+我矮，前面的人都站起来，我什么也看不见
+

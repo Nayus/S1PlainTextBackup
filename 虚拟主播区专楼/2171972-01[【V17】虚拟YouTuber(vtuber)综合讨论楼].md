@@ -420,3 +420,17 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 最近管人真的是看谁谁休息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 351#       发表于 2024-6-23 02:40
+
+查了下被anti的理由
+
+被运营狂喂资源 VS 同期2人路边杂草
+
+lize，下巴，king一系列top主动提供关联neta
+
+小姑娘吃不消攻击，精神受不了只能逃避了吧
+

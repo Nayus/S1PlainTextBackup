@@ -1861,3 +1861,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  紫锦衾  
+##### 196#       发表于 2024-6-22 19:32
+
+玩过无印，试试运气<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR NTH-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

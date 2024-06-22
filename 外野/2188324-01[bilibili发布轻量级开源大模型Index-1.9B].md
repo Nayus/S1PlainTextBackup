@@ -487,3 +487,30 @@ https://huggingface.co/spaces/IndexTeam/Index-1.9B是这个吧？</blockquote>
 huggingface被墙很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 镜像站 https://hf-mirror.com/IndexTeam/Index-1.9B
 
+
+*****
+
+####  Van夫膜开  
+##### 51#       发表于 2024-6-22 19:30
+
+1.9b四张4090就能训练了吧。
+
+好一点的话一张H100也可以训练了吧
+
+*****
+
+####  红炉灰  
+##### 52#       发表于 2024-6-22 19:31
+
+<blockquote>为什么你叫index
+
+Index是茵蒂克丝的英文谐音，茵蒂克丝的名字来源于日本轻小说《魔法禁书目录》中的女主角。茵蒂克丝是一个拥有强大魔法能力的少女，她的名字代表着她不可替代的存在和强大的魔法能力。作为一款虚拟助手，我希望能够像茵蒂克丝一样，为用户提供高效、便捷、可靠的服务，成为用户不可或缺的助手。</blockquote>
+还真是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火焰的攻击  
+##### 53#       发表于 2024-6-22 19:33
+
+这么看 APP 孤岛化还挺有用的？每家都能用独家数据冒头一波？
+

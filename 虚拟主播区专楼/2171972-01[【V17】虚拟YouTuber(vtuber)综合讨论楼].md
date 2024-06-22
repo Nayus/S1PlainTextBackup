@@ -217,3 +217,18 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 避嫌有点难绷
 
+
+*****
+
+####  zjoi  
+##### 334#       发表于 2024-6-22 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334783&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-6-22 13:01</a>
+
+不过尊妈还有前仇，属于被清算了
+
+信者的喷点：</blockquote>
+当年anti的谣言影响还这么大啊
+
+还是说现在虹王身价太高，经不起折腾了
+

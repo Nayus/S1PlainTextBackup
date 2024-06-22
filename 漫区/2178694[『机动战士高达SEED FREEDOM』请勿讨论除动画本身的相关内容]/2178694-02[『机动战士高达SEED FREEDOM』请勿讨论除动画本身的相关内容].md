@@ -3179,3 +3179,11 @@ fengzhouyi 发表于 2024-6-22 04:57L（捧着布鲁）：不是出于别人的�
 还有命运的这个分身系 ...</blockquote>
 那是因为你看的是3d版的兼用卡 剧场版战斗除了连续的几个镜头好多都是包浆20年的兼用卡分镜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1741#       发表于 2024-6-22 17:16
+
+五彩大炮少了个曲型屏幕逐一锁定的画面啊
+

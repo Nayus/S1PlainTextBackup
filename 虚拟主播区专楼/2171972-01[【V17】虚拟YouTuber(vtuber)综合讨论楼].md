@@ -232,3 +232,21 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 还是说现在虹王身价太高，经不起折腾了
 
+
+*****
+
+####  _Ra1nMaker  
+##### 335#       发表于 2024-6-22 17:07
+
+啊，是谣言吗，我以为到现在还要避嫌怎么想都是真的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hzt523600  
+##### 336#       发表于 2024-6-22 17:12
+
+这会确实是信者大战了。
+只看游戏内容根本感受不到哪里有节奏<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+顺便连星川也被卷进去了，导致弹幕也被锁了。。不少拿叶师踩星川的，同为神却没尽到职责。还好这种言论前几日也有萌芽，品鉴得够多<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

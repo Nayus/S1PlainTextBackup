@@ -5037,3 +5037,15 @@ zng最爱男娘
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 434#       发表于 2024-6-22 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65257763&amp;ptid=2186915" target="_blank">社美胡 发表于 2024-6-16 14:53</a>
+
+我想和大家谈一谈bg在同人圈摇摇欲坠的地位。这很让人揪心和着急。我还是希望大家能多爱女，宣扬爱女，把同 ...</blockquote><blockquote>上桌吃饭</blockquote>
+
+昨天看到一位up主剖析这四个字，说实际上就是争夺话语权，觉得挺有意思的。虽然我们权利义务平等，我们都是公民，但我可以上桌吃饭，你不行
+

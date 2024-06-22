@@ -147,3 +147,16 @@
 什么情况</blockquote>
 导致条子虾堕黑，被评论狂骂
 
+
+*****
+
+####  zjoi  
+##### 329#       发表于 2024-6-22 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334207&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-6-22 12:07</a>
+
+导致条子虾堕黑，被评论狂骂</blockquote>
+这不是剧本吗
+
+GTA黑白势力太不平衡，这样加强下黑帮正好
+

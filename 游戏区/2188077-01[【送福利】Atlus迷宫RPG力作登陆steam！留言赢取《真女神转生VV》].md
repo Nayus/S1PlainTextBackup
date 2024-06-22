@@ -1889,3 +1889,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 nubia NX721J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  武井咲  
+##### 199#       发表于 2024-6-23 00:27
+
+做个分母
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

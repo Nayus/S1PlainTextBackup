@@ -2214,3 +2214,15 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 我矮，前面的人都站起来，我什么也看不见
 
+
+*****
+
+####  csolfans  
+##### 20381#       发表于 2024-6-23 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65340094&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-22 23:40</a>
+今天第一排，爽到。广州场离我家还特别近，希望能抢到票</blockquote>
+羡慕近……下班过去感觉会塞车，回去我看附近也没有地铁
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

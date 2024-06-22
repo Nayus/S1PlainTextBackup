@@ -4552,3 +4552,14 @@ QQ图片20240622095048.jpg
 其实我早就说没有了，因为没说初公开</blockquote>
 但他自己写在官网那么久，也不提前说，有种骗人去的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 472#       发表于 2024-6-22 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65333293&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-22 10:42</a>
+
+但他自己写在官网那么久，也不提前说，有种骗人去的美</blockquote>
+因为从伊苏x那里复制的吧，NIPPONBASHI GAME SHOW期間中、イベント会場にて「イースⅩ-NORDICS-」の最新映像を上映！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

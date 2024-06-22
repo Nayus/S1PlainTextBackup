@@ -1744,3 +1744,13 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 
 手上拿着盾牌能突然把自己撞死，这代码水平还做什么游戏，回尼玛乡下种田吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hyst3r1a  
+##### 5013#       发表于 2024-6-22 23:27
+
+有一段时间没关注了，这游戏还没烂完啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1844,3 +1844,20 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  panyijunpyy  
+##### 194#       发表于 2024-6-22 18:45
+
+值得排队抽一波
+
+*****
+
+####  allenz3  
+##### 195#       发表于 2024-6-22 18:48
+
+试试运气
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

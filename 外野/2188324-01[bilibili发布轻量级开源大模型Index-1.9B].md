@@ -559,3 +559,35 @@ MPT1.3B在440张a100 40g上只练了半天，当然也只练了300b token，但�
 
 我没干过预训练，但两台八卡a100，练不到2B的模型，不到1T的token这种练手还是干过的，也就两三周而已……这点参数的模型，哪怕用a100 40G，全量训练也是别说megatron了，deepspeed 都不用，直接torch了……
 
+
+*****
+
+####  venusvsvirus  
+##### 58#       发表于 2024-6-23 01:15
+
+ 本帖最后由 venusvsvirus 于 2024-6-23 01:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338497&amp;ptid=2188324" target="_blank">诚司 发表于 2024-6-22 20:37</a>
+
+MPT1.3B在440张a100 40g上只练了半天，当然也只练了300b token，但是就算再翻十倍也就5天……
+
+我没干过预 ...</blockquote>MPT-1b-RedPajama-200b is a 1.3 billion parameter decoder-only transformer trained on the RedPajama dataset. The model was trained for 200B tokens by sampling from the subsets of the RedPajama dataset in the same proportions as were used by the Llama series of models. This model was trained by MosaicML and follows a modified decoder-only transformer architecture.  This model was trained on 440 A100-40GBs for about half a day using the MosaicML Platform. The model was trained with sharded data parallelism using FSDP.复制代码
+我们基于自研训练框架，4K 上下文长度， bfloat16 精度，2.8T 数据在 128 张华为昇腾 910B 卡上训练约 28 天。使用 packing 策略将样本拼接在 一起，并重置 attention-mask 和 position-id;selective-checkpoint 节省显存;通信、计算和数据重叠;分钟级断点重启任务。 复制代码
+换算一下 单卡A100  200*1.3/(440*0.5)=1.18181818182
+
+单卡910b 2800*1.9/(128*28)=1.484375
+
+算下来B站用华为训练的单卡效率还要更高一点
+
+1张A100确实能训练但是按照，MPT1.3B的算法一天只能训练0.9B数据做个预训练得训练个10年
+
+16卡训练1.3B模型半个月也就是200B而已
+
+*****
+
+####  fuochai  
+##### 59#       发表于 2024-6-23 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65311412&amp;ptid=2188324" target="_blank">zhuoqiu 发表于 2024-6-20 15:35</a>
+茵蒂克丝都来了啊。陈睿叔叔自己是不是当麻</blockquote>
+四姐：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

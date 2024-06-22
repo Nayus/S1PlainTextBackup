@@ -188,3 +188,11 @@ BGM响起然后落雷太生草了
 
 2024-6-22 18:13 上传
 
+
+*****
+
+####  X(iaolw)S  
+##### 426#       发表于 2024-6-22 18:21
+
+阿姆罗被op和小学生降板了，所以这部就真的成了遗作？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

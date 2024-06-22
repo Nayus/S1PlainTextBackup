@@ -1754,3 +1754,15 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 
 —— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  LT_Harry  
+##### 5014#       发表于 2024-6-23 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65339993&amp;ptid=2170852" target="_blank">Hyst3r1a 发表于 2024-6-22 23:27</a>
+有一段时间没关注了，这游戏还没烂完啊
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+再烂人数也是上一代不知道多少倍，现在只是回落到它应该有的热度而已。根据一代经验，不管是跟风随便玩玩还是长期玩下去，到某个时间基本都会长期 afk
+

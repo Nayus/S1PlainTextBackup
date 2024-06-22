@@ -300,3 +300,21 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 一个病娇gachi营业，润姨既视感
 
+
+*****
+
+####  Devi_Lito  
+##### 342#       发表于 2024-6-22 20:19
+
+这个ルンルン播了10分钟感觉嗓子就憋不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看にじアン特出来的前世感觉也是ハズレ
+
+
+*****
+
+####  poipanchao  
+##### 343#       发表于 2024-6-22 20:24
+
+ルンルン同接直接腰斩，非人太惨了……
+

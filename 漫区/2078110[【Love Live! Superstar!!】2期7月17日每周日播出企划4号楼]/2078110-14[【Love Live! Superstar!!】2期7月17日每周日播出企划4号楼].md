@@ -2090,3 +2090,49 @@ Nako的手机套竟然藏着鱼小卡和花花的贴纸<img src="https://static.
 不过说到底，gbc ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说，下面那个其实多少算是很多人的正常想法了，比如隔壁鸡团的很多粉丝看着狗团的各种资源倾斜羡慕得要死
 
+
+*****
+
+####  ads147147  
+##### 20368#       发表于 2024-6-21 19:43
+
+ 本帖最后由 ads147147 于 2024-6-21 19:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65326812&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-6-21 18:43</a>
+某位粪田老头在SNS放屁乞讨前能不能想想他上一作负责的动画和企划是什么属性和什么战略方式
+
+东大妈是给你付 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+说不定东大妈真给他买断了捏，毕竟现在星3staff都还没发呢，如果换人接手那可笑疯了。
+
+不过说到底，gbc粉丝开香槟的时候根本也不会考虑到其他企划粉丝的难受之处，甚至还带点幸灾乐祸，我只能祝愿他们不会遭到拉拉一样的背叛。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  离心  
+##### 20369#       发表于 2024-6-21 20:10
+
+买断了花田还有京极啊。这两人都跑不掉的。反正我真的希望gbc卖爆。花田去写gbc不碰ll了对大家都好
+
+*****
+
+####  肛之练筋士  
+##### 20370#       发表于 2024-6-21 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65327330&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-21 19:43</a>
+
+说不定东大妈真给他买断了捏，毕竟现在星3staff都还没发呢，如果换人接手那可笑疯了。
+
+不过说到底，gbc ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说，下面那个其实多少算是很多人的正常想法了，比如隔壁鸡团的很多粉丝看着狗团的各种资源倾斜羡慕得要死
+
+*****
+
+####  ruffian  
+##### 20371#       发表于 2024-6-22 10:02
+
+非要护着花田也就算了，但有些人洗的也太搞笑了，京吹3都能吹了？连星2是花田挂名的都来了，难道星1很好吗？恋回那么明显的照搬小南极，星1也是挂名是吧？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

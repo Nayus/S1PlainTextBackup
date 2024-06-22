@@ -25,3 +25,23 @@
 
 7月6日新情报的第二场直播，官方届时会在B站同步播出（目前具体时间还未确定）
 
+
+*****
+
+####  酷乐  
+##### 481#       发表于 2024-6-22 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192214&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-6-11 11:29</a>
+
+有毛病 柯南都不一定换就他积极</blockquote>
+
+柯南、海贼都换掉啰
+
+<img src="https://img.saraba1st.com/forum/202406/22/194357o3dv5b6vvuimbvf3.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7042.webp</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 19:43 上传
+

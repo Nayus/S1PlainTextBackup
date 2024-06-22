@@ -3176,3 +3176,13 @@ OPが…♡♡♡
 又不是初代的黑白闪，Q娃的净化技能是没有杀伤力的啊猫猫</blockquote>
 该净化你们的心灵了<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1761#       发表于 2024-6-22 19:43
+
+这楼卡页了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+编辑：emmmmm也没有啊……
+

@@ -82,3 +82,24 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 无论说致敬还是经典重现
 
+
+*****
+
+####  BlueThree  
+##### 416#       发表于 2024-6-22 10:11
+
+最后一场能出的状况全出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  月夜凝雪  
+##### 417#       发表于 2024-6-22 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65331716&amp;ptid=2081261" target="_blank">UnrealApartheid 发表于 2024-6-22 02:51</a>
+哦对了，这个作品将推出一个Switch独占的GAL
+
+惊不惊喜？</blockquote>
+居然是GAL而不是赛车游戏
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

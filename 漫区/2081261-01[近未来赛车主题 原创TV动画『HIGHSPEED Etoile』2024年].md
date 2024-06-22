@@ -162,3 +162,13 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 galgame<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月夜凝雪  
+##### 424#       发表于 2024-6-22 15:33
+
+BGM响起然后落雷太生草了
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

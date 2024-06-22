@@ -338,3 +338,23 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 应该是油 管同接bug
 
+
+*****
+
+####  poipanchao  
+##### 345#       发表于 2024-6-22 20:37
+
+ 本帖最后由 poipanchao 于 2024-6-22 20:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338404&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2024-6-22 20:27</a>
+
+应该是油 管同接bug</blockquote>
+查了下订阅倒是最高的，不过首播就它一个抽中bug也是够惨的了
+
+司賀りこ，抽中下签皮
+
+綺沙良、梢桃音，bba雷达+养gachi雷达
+
+ルンルン，非人死路一条，前面还有一座叫debi的大山
+
+珠乃井ナナ，感觉有王者之姿，而且是虹稀缺的可爱型歌势，跟狗麻走啥的不是一个路线（前世6W粉，一群人已经在推上哭了）
+

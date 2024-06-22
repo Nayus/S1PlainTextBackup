@@ -545,3 +545,17 @@ Index是茵蒂克丝的英文谐音，茵蒂克丝的名字来源于日本轻小
 茵蒂克丝都来了啊。陈睿叔叔自己是不是当麻</blockquote>
 是痛奶<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  诚司  
+##### 57#       发表于 2024-6-22 20:37
+
+ 本帖最后由 诚司 于 2024-6-22 20:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338030&amp;ptid=2188324" target="_blank">Lucario 发表于 2024-6-22 19:49</a>
+
+你说的是推理，训练不行。就算是1.3b的模型，从头训练也需要千卡集群数周时间 ...</blockquote>
+MPT1.3B在440张a100 40g上只练了半天，当然也只练了300b token，但是就算再翻十倍也就5天……
+
+我没干过预训练，但两台八卡a100，练不到2B的模型，不到1T的token这种练手还是干过的，也就两三周而已……这点参数的模型，哪怕用a100 40G，全量训练也是别说megatron了，deepspeed 都不用，直接torch了……
+

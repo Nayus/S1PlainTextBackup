@@ -1899,3 +1899,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  vviosonia  
+##### 200#       发表于 2024-6-23 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">SMT5买了日限，这次复仇买了x盒豪华
+
+—— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -591,3 +591,23 @@ MPT1.3B在440张a100 40g上只练了半天，当然也只练了300b token，但�
 茵蒂克丝都来了啊。陈睿叔叔自己是不是当麻</blockquote>
 四姐：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  诚司  
+##### 60#       发表于 2024-6-23 02:10
+
+ 本帖最后由 诚司 于 2024-6-23 02:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65341662&amp;ptid=2188324" target="_blank">venusvsvirus 发表于 2024-6-23 01:15</a>
+
+换算一下 单卡A100  200*1.3/(440*0.5)=1.18181818182
+
+单卡910b 2800*1.9/(128*28)=1.484375
+
+算下来B站 ...</blockquote>
+我说的单卡能练说的是单卡能装下模型，激活函数状态，梯度和优化器状态，所以练起来不需要流水线并行和张量并行
+
+tiny llama都练了四千多gpu卡时，谁会单卡练……
+
+大模型是这样的，单卡能装下的模型只需要考虑数据并行就可以了，大模型考虑张量并行、流水线并行，各种分布式通信考虑的就多了……
+

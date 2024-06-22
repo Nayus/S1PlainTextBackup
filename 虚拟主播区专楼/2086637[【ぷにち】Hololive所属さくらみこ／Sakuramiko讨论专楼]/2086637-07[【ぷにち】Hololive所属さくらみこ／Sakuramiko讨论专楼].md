@@ -2192,3 +2192,37 @@ fbk你每次选的这些地图……
 
 等会，七字母约会用私服都4套了！？是不是有点
 
+
+*****
+
+####  holoan  
+##### 9069#         楼主| 发表于 2024-6-22 20:07
+
+<img src="https://img.saraba1st.com/forum/202406/22/200722pxvjvztdtlyjrdvp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 20:07 上传
+
+怎么每次都有奇怪的raid
+
+*****
+
+####  holoan  
+##### 9070#         楼主| 发表于 2024-6-22 21:46
+
+4小时的​​イザナミ咒术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+开始播4前先做了4小时的最难战斗热身我是没想到的，这热身也有点太长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9071#         楼主| 发表于 2024-6-22 21:51
+
+？这么重要的剧情放在断章，制作组怎么想的
+
+关键是里boss竟然这么难
+

@@ -2785,3 +2785,11 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 新的排练照片吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 18031#       发表于 2024-6-22 15:52
+
+🐑，你是一个0（指三轮游戏下来0分）
+

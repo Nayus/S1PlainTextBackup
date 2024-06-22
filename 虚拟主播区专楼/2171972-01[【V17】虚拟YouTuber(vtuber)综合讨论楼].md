@@ -160,3 +160,18 @@
 
 GTA黑白势力太不平衡，这样加强下黑帮正好
 
+
+*****
+
+####  poipanchao  
+##### 330#       发表于 2024-6-22 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334321&amp;ptid=2171972" target="_blank">zjoi 发表于 2024-6-22 12:16</a>
+
+这不是剧本吗
+
+GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
+剧不剧本不重要，阻止不了小鬼觉得尊妈搞乱游戏啊
+
+箱活的世纪难题，怎么在跟人气top互动的时候被不被信者攻击
+

@@ -3128,3 +3128,13 @@ L（捧着布鲁）：不是出于别人的意志，我是自愿的
 
 说设定里姨丈搞命运计划的动机就是艹不到螃蟹头这样么
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1737#       发表于 2024-6-22 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334055&amp;ptid=2178694" target="_blank">伊头鬼作 发表于 2024-6-22 11:57</a>
+说设定里姨丈搞命运计划的动机就是艹不到螃蟹头这样么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">艹到，但生不出孩子
+

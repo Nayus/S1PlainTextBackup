@@ -126,3 +126,11 @@ Screenshot_2024-06-22-02-33-23-25_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  alien  
+##### 420#       发表于 2024-6-22 12:25
+
+最后几集还行吧，要是前面几集不那么水不把女主角的水平设定的这么低的话就好了，太劝退了。
+

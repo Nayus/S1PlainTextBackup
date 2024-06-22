@@ -4411,3 +4411,61 @@ The magazine is available for preorder on the Builtruns website(soon) and other 
 
 It will be updated on the Builtruns store soon.
 
+
+*****
+
+####  卢迪克  
+##### 460#       发表于 2024-6-22 09:43
+
+ 本帖最后由 卢迪克 于 2024-6-22 09:45 编辑 
+
+今年就两台机器，不如去年四台
+
+a7c99efbe6cd7b89098fe5bd492442a7d8330e79.jpg
+(75.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 09:43 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/094332ssmo7wqsnxeeplzc.jpg" referrerpolicy="no-referrer">
+
+FzcA36yagAETxsI(1).jpg
+(504.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 09:43 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/094336ucyc0ekyii2ng39c.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 461#       发表于 2024-6-22 09:43
+
+<img src="https://img.saraba1st.com/forum/202406/22/094349shax06ved401lf04.jpg" referrerpolicy="no-referrer">
+
+<strong>79c076fp62szrqbkusb0a3nn2.jpg</strong> (211.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 09:43 上传
+
+
+*****
+
+####  zhuhh  
+##### 462#       发表于 2024-6-22 09:51
+
+看起来凯文立绘还不错
+
+QQ图片20240622095048.jpg
+(173.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 09:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/22/095106pksdhdhh1it99dki.jpg" referrerpolicy="no-referrer">
+

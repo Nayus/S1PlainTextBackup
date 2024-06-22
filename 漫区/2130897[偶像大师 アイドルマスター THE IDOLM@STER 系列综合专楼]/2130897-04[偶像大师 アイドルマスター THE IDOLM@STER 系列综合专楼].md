@@ -12119,3 +12119,26 @@ live中间为什么要插︶_︶ ︶_︶
 <img src="https://p.sda1.dev/18/9efe57345e0bbd8ea5c08dae554e2428/IMG_CMP_116874857.png" referrerpolicy="no-referrer">
 八雲なみ 悄悄在漫画里颜出了。妈妈，我喜欢你呀！<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ヒトニナル  
+##### 5573#       发表于 2024-6-22 09:09
+
+不愧是儿力的妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 5574#       发表于 2024-6-22 09:09
+
+什么真实live，这他妈更像拿游戏引擎跑了一段然后录屏放出来的效果
+2024年还能看到这种水平的3D特别是与同期大热的其他作品对比是真的震撼我妈
+
+*****
+
+####  l3r0nY@  
+##### 5575#       发表于 2024-6-22 09:49
+
+感觉不如...星耀季节
+

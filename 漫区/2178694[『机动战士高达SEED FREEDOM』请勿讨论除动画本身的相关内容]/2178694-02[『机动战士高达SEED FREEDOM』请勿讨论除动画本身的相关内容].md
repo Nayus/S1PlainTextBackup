@@ -3187,3 +3187,34 @@ fengzhouyi 发表于 2024-6-22 04:57L（捧着布鲁）：不是出于别人的�
 
 五彩大炮少了个曲型屏幕逐一锁定的画面啊
 
+
+*****
+
+####  司空怜  
+##### 1742#       发表于 2024-6-22 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65335004&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-6-22 13:24</a>
+我记得福田采访拉克丝，是因为基拉才当总裁，然后小说里都出现了拉克丝心理描写就是我根本就不想做，是你 ...</blockquote>
+到底是总裁还是统帅，两种翻译
+
+
+*****
+
+####  洛克萨斯  
+##### 1743#       发表于 2024-6-22 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334055&amp;ptid=2178694" target="_blank">伊头鬼作 发表于 2024-6-22 11:57</a>
+
+说设定里姨丈搞命运计划的动机就是艹不到螃蟹头这样么</blockquote>
+是生不出，但是舰长想要娃，所以只能走plant匹配方案嫁给了能生娃的丈夫，议长就整了命运计划报复社会了
+
+*****
+
+####  马桶3  
+##### 1744#       发表于 2024-6-22 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65336765&amp;ptid=2178694" target="_blank">司空怜 发表于 2024-06-22 17:40:41</a>
+到底是总裁还是统帅，两种翻译</blockquote>你自己不会听吗，总裁发音都糊耳朵上了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

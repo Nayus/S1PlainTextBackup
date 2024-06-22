@@ -4523,3 +4523,32 @@ QQ图片20240622095048.jpg
 这葱头面相太年轻了点，都快三十了，比旁边的阿姨还大呢（死）</blockquote>
 你想看大叔脸？范恩立绘就因为大叔脸被多少人吐槽了
 
+
+*****
+
+####  一步成诗  
+##### 469#       发表于 2024-6-22 10:35
+
+是不是忘了大少也三十多啊，怎么没人说面相年轻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 470#       发表于 2024-6-22 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65333084&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-22 10:12</a>
+
+乐死，都入场了才说，故意的吧</blockquote>
+其实我早就说没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，因为没说初公开
+
+
+*****
+
+####  一步成诗  
+##### 471#       发表于 2024-6-22 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65333276&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-22 10:39</a>
+
+其实我早就说没有了，因为没说初公开</blockquote>
+但他自己写在官网那么久，也不提前说，有种骗人去的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -464,3 +464,13 @@ prompt: 你是蒙古上单
 好像不太行，问个 2023 年百大名单都列举不好</blockquote>
 1.9b  也就这样了
 
+
+*****
+
+####  红炉灰  
+##### 49#       发表于 2024-6-22 18:57
+
+怎么打不开<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+[https://huggingface.co/spaces/IndexTeam/Index-1.9B](https://huggingface.co/spaces/IndexTeam/Index-1.9B)是这个吧？
+

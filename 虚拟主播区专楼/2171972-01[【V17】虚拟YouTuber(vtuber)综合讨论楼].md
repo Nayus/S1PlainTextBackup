@@ -190,3 +190,22 @@ GTA黑白势力太不平衡，这样加强下黑帮正好</blockquote>
 
 难怪昨天的录像，尊的留言栏看不了了
 
+
+*****
+
+####  poipanchao  
+##### 332#       发表于 2024-6-22 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334586&amp;ptid=2171972" target="_blank">zjoi 发表于 2024-6-22 12:40</a>
+
+太恶臭了
+
+难怪昨天的录像，尊的留言栏看不了了</blockquote>
+不过尊妈还有前仇，属于被清算了
+
+身为黑帮不务正业，浪费人力拖慢黑帮进度
+
+（作为黑帮boss导致king避嫌不能参与黑帮）
+
+我其实还挺喜欢这种整活的，但是很多gta观众就是想看大型警匪
+

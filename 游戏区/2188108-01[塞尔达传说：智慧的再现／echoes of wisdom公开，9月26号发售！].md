@@ -2993,3 +2993,14 @@ zelda.jpg
 
 野吹之后林赛发糖真的越来越多了，这一部直接逆主角，香疯了
 
+
+*****
+
+####  Tachikoma88  
+##### 295#       发表于 2024-6-22 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65334672&amp;ptid=2188108" target="_blank">funkyfrog 发表于 2024-6-22 12:49</a>
+
+野吹之后林赛发糖真的越来越多了，这一部直接逆主角，香疯了</blockquote>
+藤林是纯纯的林塞cp头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3253,3 +3253,16 @@ OPが…♡♡♡
 
 第 21 集的 TVer 源（含日字）：magnet:?xt=urn:btih:c5d2caf110a7b3a763eb4a74b5c7a60ba637951d
 
+
+*****
+
+####  modedd  
+##### 1768#       发表于 2024-6-23 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65339242&amp;ptid=2162354" target="_blank">Epsilonhomu 发表于 2024-6-22 22:09</a>
+
+猫组刚优雅完一集，这就开始谐了？</blockquote>
+高冷的追加战士不就是用来谐星化的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你说名字里有很多ooooo的那个大姐姐？她不一样，她是Batman<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

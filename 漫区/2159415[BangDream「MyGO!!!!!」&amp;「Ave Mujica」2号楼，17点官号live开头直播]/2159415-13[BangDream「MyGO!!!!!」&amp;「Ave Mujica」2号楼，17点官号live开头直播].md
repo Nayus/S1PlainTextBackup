@@ -2819,3 +2819,104 @@ water怎么又灯祥曲了？神笨是灯祥曲，少女灵灯祥曲，合着从
 
 [https://x.com/I_nonfiction_I/status/1804350340210528539](https://x.com/I_nonfiction_I/status/1804350340210528539)
 
+
+*****
+
+####  滑稽Captain  
+##### 18034#       发表于 2024-6-22 14:36
+
+线下mygo center开场还有朗读剧，还以为会和常见的广播线下活动一样直接变成talk event
+
+*****
+
+####  NODY  
+##### 18035#       发表于 2024-6-22 14:43
+
+wsd这边的线下有朗读剧还挺常见的，老团也有
+
+*****
+
+####  6030sylar  
+##### 18036#       发表于 2024-6-22 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">乐奈一直在有趣的女孩按不停
+
+*****
+
+####  御幸一也  
+##### 18037#       发表于 2024-6-22 14:55
+
+米澤這個身材<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/22/145527daq26616c1nvckbl.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240622-065413_1804407529289744849_photo.jpg</strong> (226.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-22 14:55 上传
+
+[https://x.com/AkaneY_banu/status/1804407529289744849](https://x.com/AkaneY_banu/status/1804407529289744849)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木谷高明| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 18038#       发表于 2024-6-22 15:09
+
+新的排练照片吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18039#       发表于 2024-6-22 15:52
+
+ 本帖最后由 滑稽Captain 于 2024-6-22 18:31 编辑 
+
+🐑，你是一个0（指三轮游戏下来0分）
+
+现在是六轮全0了
+
+*****
+
+####  星天观测  
+##### 18040#       发表于 2024-6-22 23:04
+
+偶然发现b站母鸡卡原来的号黑生日已经99.4w了，路人发的here the world都52.6w，更别说现在官号220w+的团名曲
+
+到底都是谁在溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 18041#       发表于 2024-6-23 02:29
+
+<img src="https://img.saraba1st.com/forum/202406/23/022946tpv85aph61jg6bmg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_長日(@I_nonfiction_I)_20240622-030658_1804350340210528539_photo.jpg</strong> (610.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 02:29 上传
+
+[https://x.com/I_nonfiction_I/status/1804350340210528539](https://x.com/I_nonfiction_I/status/1804350340210528539)
+
+*****
+
+####  枫林不见  
+##### 18042#       发表于 2024-6-23 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小象的性癖就是小时候接触了初华养成的
+

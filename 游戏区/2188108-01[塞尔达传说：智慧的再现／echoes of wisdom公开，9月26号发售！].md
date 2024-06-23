@@ -3052,3 +3052,26 @@ zelda.jpg
 
 2024-6-23 12:44 上传
 
+
+*****
+
+####  Waldeinsamkeit  
+##### 300#       发表于 2024-6-23 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65314971&amp;ptid=2188108" target="_blank">冷泉夜月 发表于 2024-6-20 20:00</a>
+目前已知美版和港版海拉鲁限定ns lite都会送一年ns会员，不知道纯粹是补偿不带游戏本体还是说有联机要素
+
+  ...</blockquote>
+欧版也送一年，还是一年高级会员
+我能选不要然后给我折价40欧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  otakun  
+##### 301#       发表于 2024-6-23 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345080&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-23 12:44</a></blockquote>
+就这四个困水晶里吗，印象中应该还有？
+

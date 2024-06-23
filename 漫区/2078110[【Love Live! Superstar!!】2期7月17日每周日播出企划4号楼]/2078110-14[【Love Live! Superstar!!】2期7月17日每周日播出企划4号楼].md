@@ -2342,3 +2342,44 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  lj205  
+##### 20392#       发表于 2024-6-23 13:54
+
+<blockquote>梶原ひかり 发表于 2024-6-23 10:58
+昨天内场是20*30*3一共设了1800座，内场的上座率还是可以的，C区关系者席空的比较多，算他1400人入场
+
+看 ...</blockquote>
+你这是直接复制lga那个懂哥的话？还是那个人就是你？
+
+*****
+
+####  グレーシア  
+##### 20393#       发表于 2024-6-23 14:14
+
+你们谁有昨天Liyuu的歌单吗，她最后唱的3首中文歌是什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一首也不知道
+
+*****
+
+####  csolfans  
+##### 20394#       发表于 2024-6-23 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345964&amp;ptid=2078110" target="_blank">グレーシア 发表于 2024-6-23 14:14</a>
+你们谁有昨天Liyuu的歌单吗，她最后唱的3首中文歌是什么一首也不知道</blockquote>
+南拳妈妈的下雨天，王心凌的大眠，柠檬气泡结尾
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  梶原ひかり  
+##### 20395#       发表于 2024-6-23 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345775&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-23 13:54</a>
+你这是直接复制lga那个懂哥的话？还是那个人就是你？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">抄的
+
+—— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

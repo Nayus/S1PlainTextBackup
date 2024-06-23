@@ -1945,3 +1945,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 据说在原有基础上进行了很大的改动，略心动
 
+
+*****
+
+####  gawain039  
+##### 205#       发表于 2024-6-23 16:46
+
+有点心动
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

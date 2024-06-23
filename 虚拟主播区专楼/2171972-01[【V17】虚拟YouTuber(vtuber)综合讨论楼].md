@@ -577,3 +577,11 @@ lize，下巴，king一系列top主动提供关联neta
 
 hsrb有点neta枠的味道，游戏力不够是当不了top的，上限柴卡社长（下巴例外）
 
+
+*****
+
+####  aritaatsu222  
+##### 357#       发表于 2024-6-24 00:52
+
+hsrb又是恐游又是噴3的，好多同担跑去双担，气死我了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

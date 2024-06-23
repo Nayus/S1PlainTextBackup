@@ -4624,3 +4624,13 @@ enami画男人问题确实不大，女人嘛
 
 虽然但是这个奇异的耳朵画法是什么enami专利吗……
 
+
+*****
+
+####  nozomitech  
+##### 479#       发表于 2024-6-23 20:34
+
+本作的人设真是一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

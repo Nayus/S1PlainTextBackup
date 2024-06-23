@@ -1927,3 +1927,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 看了下淘宝记录，21-10首发入的原版。好像最后掌机模式就打了3-4个小时，可能是因为太😉了把…
 
+
+*****
+
+####  寒枫  
+##### 203#       发表于 2024-6-23 09:25
+
+真女神必须做个分母
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1803,3 +1803,11 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Mr.Hopp  
+##### 5019#       发表于 2024-6-23 22:46
+
+这次指令打完应该是光能了吧
+

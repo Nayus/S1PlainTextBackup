@@ -12312,3 +12312,12 @@ PS：目前《迷你偶像》仍在连载中。
 
 via [官网](https://idolmaster-official.jp/va-liv/comic)
 
+
+*****
+
+####  花开安菲路  
+##### 5589#       发表于 2024-6-23 19:48
+
+管马仕这是正式入编了，但动作还是太慢了，之前那套私服还搞会员限定直播，简直无语<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+真不如转学加入学马仕大家庭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

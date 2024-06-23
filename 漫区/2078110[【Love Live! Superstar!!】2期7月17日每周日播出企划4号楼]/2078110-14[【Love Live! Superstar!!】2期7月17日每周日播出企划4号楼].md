@@ -2293,3 +2293,52 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 
 我过去也就半小时，爽
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20388#       发表于 2024-6-23 09:57
+
+昨天现场上座率如何
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  グレーシア  
+##### 20389#       发表于 2024-6-23 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343482&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-6-23 09:57</a>
+
+昨天现场上座率如何
+
+论坛助手,iPhone</blockquote>
+内场最后两排没满，看台大概7成吧
+
+*****
+
+####  梶原ひかり  
+##### 20390#       发表于 2024-6-23 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343482&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2024-6-23 09:57</a>
+
+昨天现场上座率如何
+
+论坛助手,iPhone</blockquote>
+昨天内场是20*30*3一共设了1800座，内场的上座率还是可以的，C区关系者席空的比较多，算他1400人入场
+
+看台...一个完整的块是可以算100~120人，看台估算也就坐了个800人，不会超过1000人
+
+*****
+
+####  奥柏伦亲王  
+##### 20391#       发表于 2024-6-23 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343963&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2024-6-23 10:58</a>
+昨天内场是20*30*3一共设了1800座，内场的上座率还是可以的，C区关系者席空的比较多，算他1400人入场
+
+看 ...</blockquote>
+2000来人感觉挺不错了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

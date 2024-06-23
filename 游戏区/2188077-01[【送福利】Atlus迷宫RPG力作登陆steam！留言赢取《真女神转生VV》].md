@@ -1937,3 +1937,11 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  anikom  
+##### 204#       发表于 2024-6-23 10:12
+
+据说在原有基础上进行了很大的改动，略心动
+

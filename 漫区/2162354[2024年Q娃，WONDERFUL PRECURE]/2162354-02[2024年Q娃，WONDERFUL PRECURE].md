@@ -3278,3 +3278,11 @@ OPが…♡♡♡
 你说名字里有很多ooooo的那个大姐姐？她不一样，她是Batman ...</blockquote>
 月光是光太郎（又名旧版黑日）那个级别的惨。
 
+
+*****
+
+####  pokemon最爱  
+##### 1770#       发表于 2024-6-23 10:11
+
+这集的猫组，大友狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1054,3 +1054,13 @@ ios没有版本更新？
 
 2024-6-21 07:32 上传
 
+
+*****
+
+####  乾理央  
+##### 12898#       发表于 2024-6-23 22:10
+
+偶尔点点抽卡池发现更新了山翁池，为了忍住不抽卡点开你楼
+
+好，忍住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

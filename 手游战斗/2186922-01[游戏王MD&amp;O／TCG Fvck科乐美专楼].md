@@ -87,3 +87,19 @@ No.40 机关傀儡-天堂弦乐手（3→1）
 
 凯撒斗技场这个4000+玩意终于死了好评
 
+
+*****
+
+####  Uqing  
+##### 77#       发表于 2024-6-23 21:05
+
+<img src="https://img.saraba1st.com/forum/202406/23/210439bactihzyriouwzvb.jpg" referrerpolicy="no-referrer">
+
+<strong>-51bbf434ddda03cb.jpg</strong> (229.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 21:04 上传
+
+把贴纸杀光了算了，反正这个游戏只有追主流暴展才配玩呗
+

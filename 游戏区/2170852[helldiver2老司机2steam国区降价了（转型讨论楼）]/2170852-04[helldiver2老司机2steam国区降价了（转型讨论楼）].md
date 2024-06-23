@@ -1811,3 +1811,13 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 
 这次指令打完应该是光能了吧
 
+
+*****
+
+####  WGTCorp  
+##### 5020#       发表于 2024-6-24 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65351946&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-6-23 22:46</a>
+这次指令打完应该是光能了吧</blockquote>
+我觉得箭头还能再把光能者拖一段时间，下一个有点意义的指令大概是解锁四联装的突击队火箭发射器。
+

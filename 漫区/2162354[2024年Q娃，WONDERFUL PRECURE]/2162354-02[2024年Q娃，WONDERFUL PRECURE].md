@@ -3436,3 +3436,11 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 这集搞笑点子多，可以啊
 
+
+*****
+
+####  MagicGiraffe  
+##### 1784#       发表于 2024-6-23 23:42
+
+对的对的，猫猫就应该这样子不顾旁人眼神，全身心献给麻油<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

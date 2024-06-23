@@ -233,3 +233,11 @@ BGM响起然后落雷太生草了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  大高坂山城  
+##### 431#       发表于 2024-6-23 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/393.gif" referrerpolicy="no-referrer">其实我一直猜女主是普利麻那个粉毛的中之人，毕竟平时和绿毛关系很要好，两粉毛在最终回之前也很刻意地几乎没同屏过，就算同屏也可以用录播啊AI啊什么的去解释毕竟管人偶像，以为最终回会把这个包袱抖出来，结果永元大师把这个戏码安排给了绿毛...
+

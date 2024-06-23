@@ -455,3 +455,115 @@ lize，下巴，king一系列top主动提供关联neta
 那个NANA被挖出来是铃花ステラ……
 没想到啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devi_Lito  
+##### 354#       发表于 2024-6-23 19:01
+
+反正にじアン目前对2个有前世的评价都挺好的，ナナ就是前世一直在歌回，其他直播内容不太好评价。反正今天杂谈听下来就是纯歌势的杂谈水平，没啥实质内容不过节奏掌握得还行（但后面还是忍不住跑去看力一的广播回了）。各方面都挺pro的但就是找不到追直播的兴趣
+
+綺沙良真的超级看走眼了，明明昨晚首播挺好的，但今天杂谈回就完全是非常刻板印象的“声音好听但是其他方面都很虚无的BBA”水平，杂谈节奏稀烂并且基本没啥内容，都没撑到1小时就跑去栞叶那边待机了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+司賀りこ目前看来已经寄了，首播风评最差，然后次播又是唯一一个选择晚上来直接撞GTA的，底边预定
+
+ルンルン倒是已经成为にじアン的新玩具了，但看她前世直播的切片感觉没啥亮点，目前的直播也没啥兴趣
+
+这一期目前综合来看对于杂谈民来说基本是ハズレ
+
+
+*****
+
+####  qesto  
+##### 355#       发表于 2024-6-23 19:04
+
+司賀りこ…露嵜つゆ(VTA2期) 
+
+<img src="https://img.saraba1st.com/forum/202406/23/190111ju3w4c4wcsu1w4wx.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ev5e1aj.webp</strong> (21.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190401mgnhgdgl6l6n6z69.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>bgk77rt.webp</strong> (22.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+珠乃井ナナ…鈴花ステラ(めがらいと) 
+
+<img src="https://img.saraba1st.com/forum/202406/23/190236za6ruyh6iiah88vt.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>cu2wkok.webp</strong> (35.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190420kppud3bu2b77ip2d.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>69kqv66.webp</strong> (27.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+綺沙良…苗代千和(VTA3期) 
+
+<img src="https://img.saraba1st.com/forum/202406/23/190300ridld39v4bupilll.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>df9pb9m.webp</strong> (20.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190435oqyua1an96gmmriu.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5jngdbm.webp</strong> (22.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+梢桃音…喜納ことは(VTA4期) 
+
+<img src="https://img.saraba1st.com/forum/202406/23/190328tea0a0jeazrxplq7.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5d5uyu8.webp</strong> (14.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190445zpjrfjlrnj24nrex.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>76i4kou.webp</strong> (23.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+ルンルン…猫間たま(個人勢) 
+
+<img src="https://img.saraba1st.com/forum/202406/23/190349y66q7ou7725tdztd.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>bovsqpw.webp</strong> (22.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190453nfkne3v29lrtni2r.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7i9wlrf.webp</strong> (14.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+

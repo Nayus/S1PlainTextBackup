@@ -12280,3 +12280,35 @@ PS：目前《迷你偶像》仍在连载中。
 
 — from OnePlus CPH2419, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  wfhtony  
+##### 5588#       发表于 2024-6-23 19:05
+
+<img src="https://img.saraba1st.com/forum/202406/23/190442at1s9m3kmktp311m.png" referrerpolicy="no-referrer">
+
+<strong>kv.png</strong> (402.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190441bddmmmzy33ylmf72.jpg" referrerpolicy="no-referrer">
+
+<strong>comic_01.jpg</strong> (357.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+<img src="https://img.saraba1st.com/forum/202406/23/190441hqjgpvljqnqachln.jpg" referrerpolicy="no-referrer">
+
+<strong>comic_02.jpg</strong> (356.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 19:04 上传
+
+via [官网](https://idolmaster-official.jp/va-liv/comic)
+

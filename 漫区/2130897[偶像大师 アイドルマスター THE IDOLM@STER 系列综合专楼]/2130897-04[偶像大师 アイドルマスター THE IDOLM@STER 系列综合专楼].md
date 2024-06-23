@@ -12242,3 +12242,11 @@ luca妈这发型，这衣品，还有这手在前的自我保护动作，不是�
 
 管马仕的新KV。
 
+
+*****
+
+####  rgauss  
+##### 5585#       发表于 2024-6-23 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">终于把闪彩动画有关的东西遗忘得差不多了 不用受精神污染了
+

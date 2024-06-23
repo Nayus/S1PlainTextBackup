@@ -1972,3 +1972,20 @@ PS4真女神玩了一半，就搁置了。。。试试加强版
 
 —— 来自 OPPO CPH2357, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  nukacolamania  
+##### 208#       发表于 2024-6-23 17:28
+
+ 本帖最后由 nukacolamania 于 2024-6-23 17:30 编辑 
+
+风怒图腾
+
+*****
+
+####  nukacolamania  
+##### 209#       发表于 2024-6-23 17:29
+
+好好好，Altus其他作品也赶紧上PC吧别藏着掖着了
+

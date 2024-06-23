@@ -627,3 +627,14 @@ tiny llama都练了四千多gpu卡时，谁会单卡练……
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">每个人都会先问蒙古上单
 
+
+*****
+
+####  月咏  
+##### 63#       发表于 2024-6-23 17:31
+
+里面真有10万本禁书？
+这能通过AI备案？
+
+—— 来自 realme RMX3366, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -638,3 +638,11 @@ tiny llama都练了四千多gpu卡时，谁会单卡练……
 
 —— 来自 realme RMX3366, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  不思者嗷呜  
+##### 64#       发表于 2024-6-23 17:59
+
+最近b站机器人评论和水军有概率稍微合理化一点了，但是很多还是直接搬运类似tag视频下方评论和模板评论
+

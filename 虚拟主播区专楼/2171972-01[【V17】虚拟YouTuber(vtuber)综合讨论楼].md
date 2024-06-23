@@ -444,3 +444,14 @@ lize，下巴，king一系列top主动提供关联neta
 
 小柳在英雄服前不是在疯狂打枪吗，看虹服结束后怎样吧，靠打枪是成不了top男的，hsrb看上去比较有希望，当然他俩都比vlt的强
 
+
+*****
+
+####  渡鸦骑士  
+##### 353#       发表于 2024-6-23 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338726&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2024-6-22 21:13</a>
+司賀りこ：倒也不能算下签皮，毕竟她亲妈是学马仕的人设，只能说这一类的中华风不一定对我们中国人的胃口 ...</blockquote>
+那个NANA被挖出来是铃花ステラ……
+没想到啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

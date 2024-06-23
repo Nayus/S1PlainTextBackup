@@ -3371,3 +3371,21 @@ max三岗过了，仍旧没有金
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  晴岚  
+##### 4772#       发表于 2024-6-24 01:42
+
+<img src="https://img.saraba1st.com/forum/202406/24/014113kb6gyll1zkgocy1h.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_3505.JPG</strong> (1.42 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 01:41 上传
+
+我想对面的各位一定很疑惑为什么会输，因为我也很疑惑怎么赢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

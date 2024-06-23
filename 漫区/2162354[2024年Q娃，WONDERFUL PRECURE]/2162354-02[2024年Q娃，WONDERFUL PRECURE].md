@@ -3216,3 +3216,23 @@ OPが…♡♡♡
 
 猫组刚优雅完一集，这就开始谐了？
 
+
+*****
+
+####  himfsz  
+##### 1764#       发表于 2024-6-23 07:58
+
+奔奔者的追加战士，bun wonderful
+
+
+*****
+
+####  jaewoongh_  
+##### 1765#       发表于 2024-6-23 08:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这集卖得甚至比前几集更大，被女同性恋吓晕
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">猫组二人的问题儿童属性越来越明显了，桀桀，直女彩叶必将让你们大败而归口牙！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下集预告是敏捷赛设施，希望暑假回能有活
+

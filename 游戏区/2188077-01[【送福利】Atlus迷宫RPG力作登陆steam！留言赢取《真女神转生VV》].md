@@ -1909,3 +1909,13 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 LENOVO TB371FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  投影机  
+##### 201#       发表于 2024-6-23 07:57
+
+仅此一家 不得不品尝
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

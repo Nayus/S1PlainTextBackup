@@ -3266,3 +3266,15 @@ OPが…♡♡♡
 
 你说名字里有很多ooooo的那个大姐姐？她不一样，她是Batman<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cmyk1234  
+##### 1769#       发表于 2024-6-23 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65342982&amp;ptid=2162354" target="_blank">modedd 发表于 2024-6-23 08:30</a>
+高冷的追加战士不就是用来谐星化的吗
+
+你说名字里有很多ooooo的那个大姐姐？她不一样，她是Batman ...</blockquote>
+月光是光太郎（又名旧版黑日）那个级别的惨。
+

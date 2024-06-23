@@ -2251,3 +2251,45 @@ G店看板娘这次可可立绘据然有微调的拆分绘作商品绘
 —— 来自 Xiaomi 22041211AC, Android 12上的  ...</blockquote>
 地铁就坐到沙园站下啊，然后还得走一段距离到江边，可以吃饱了再去会馆，一路上很多店，乐峰里面还有萨利亚
 
+
+*****
+
+####  csolfans  
+##### 20384#       发表于 2024-6-23 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65340094&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-22 23:40</a>
+今天第一排，爽到。广州场离我家还特别近，希望能抢到票</blockquote>
+羡慕近……下班过去感觉会塞车，回去我看附近也没有地铁
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  仟音一心  
+##### 20385#       发表于 2024-6-23 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65340647&amp;ptid=2078110" target="_blank">グレーシア 发表于 2024-6-23 00:15</a>
+
+你这个视角感觉内场不如看台
+
+我矮，前面的人都站起来，我什么也看不见</blockquote>
+对，看台全程坐着看完全没问题。
+
+*****
+
+####  lj205  
+##### 20386#       发表于 2024-6-23 01:08
+
+<blockquote>csolfans 发表于 2024-6-23 00:35
+羡慕近……下班过去感觉会塞车，回去我看附近也没有地铁
+
+—— 来自 Xiaomi 22041211AC, Android 12上的  ...</blockquote>
+地铁就坐到沙园站下啊，然后还得走一段距离到江边，可以吃饱了再去会馆，一路上很多店，乐峰里面还有萨利亚
+
+*****
+
+####  优妮可  
+##### 20387#       发表于 2024-6-23 09:48
+
+我过去也就半小时，爽
+

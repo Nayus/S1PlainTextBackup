@@ -14,3 +14,27 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sd实在是太大太重了，举着玩手确实容易酸
 
+
+*****
+
+####  远野乙姬  
+##### 58#       发表于 2024-6-23 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65280156&amp;ptid=2188007" target="_blank">土狼菌 发表于 2024-6-18 10:48</a>
+你有ns吗？带ns外出的场景多吗？这个比ns还大还重续航还低，可以接受吗？</blockquote>
+续航比ns顶，我打神之天平实打实9小时
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  远野乙姬  
+##### 59#       发表于 2024-6-23 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343498&amp;ptid=2188007" target="_blank">a7765131 发表于 2024-6-23 09:59</a>
+SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各种串流方案；带出去玩要考虑重量和续航；更轻更便 ...</blockquote>
+能不能推荐个最好的串流方案
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

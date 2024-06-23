@@ -241,3 +241,14 @@ BGM响起然后落雷太生草了
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/393.gif" referrerpolicy="no-referrer">其实我一直猜女主是普利麻那个粉毛的中之人，毕竟平时和绿毛关系很要好，两粉毛在最终回之前也很刻意地几乎没同屏过，就算同屏也可以用录播啊AI啊什么的去解释毕竟管人偶像，以为最终回会把这个包袱抖出来，结果永元大师把这个戏码安排给了绿毛...
 
+
+*****
+
+####  UnrealApartheid  
+##### 432#       发表于 2024-6-23 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65338680&amp;ptid=2081261" target="_blank">wolf1997 发表于 2024-06-22 21:03:59</a>
+这片子还是能看的，3d水平足够撑起片子，要是改成2d的话以a-cat来说肯定妹子与赛车戏一样都保不住。之后要 ...</blockquote>聚焦的是一大堆赛车手的剧情（补足和扩展）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

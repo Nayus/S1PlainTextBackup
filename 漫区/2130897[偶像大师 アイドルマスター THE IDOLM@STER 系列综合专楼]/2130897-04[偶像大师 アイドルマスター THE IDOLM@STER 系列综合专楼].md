@@ -12250,3 +12250,33 @@ luca妈这发型，这衣品，还有这手在前的自我保护动作，不是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">终于把闪彩动画有关的东西遗忘得差不多了 不用受精神污染了
 
+
+*****
+
+####  wfhtony  
+##### 5586#       发表于 2024-6-23 18:38
+
+ 本帖最后由 wfhtony 于 2024-6-23 18:39 编辑 
+
+这下管马仕也有四格漫画了，而且作者是画《迷你偶像》的那位。
+
+<img src="https://img.saraba1st.com/forum/202406/23/183756ss67ptj5jldspvps.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-06-23-18h37m01s513.jpg</strong> (255.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-23 18:37 上传
+
+PS：目前《迷你偶像》仍在连载中。
+
+
+*****
+
+####  oznark  
+##### 5587#       发表于 2024-6-23 18:45
+
+<img src="https://p.sda1.dev/18/cc6ba3d3b30dace049022da81e7b9a42/image.jpg" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2419, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

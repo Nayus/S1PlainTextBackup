@@ -3320,3 +3320,11 @@ OPが…♡♡♡
 
 mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我们睡觉的时候偷偷暴饮暴食吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  未熟串烧  
+##### 1774#       发表于 2024-6-23 14:43
+
+小麦原来是干劲特性的被哈欠了也不会瞌睡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

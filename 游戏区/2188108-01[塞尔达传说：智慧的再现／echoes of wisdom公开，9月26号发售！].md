@@ -3075,3 +3075,11 @@ zelda.jpg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345080&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-23 12:44</a></blockquote>
 就这四个困水晶里吗，印象中应该还有？
 
+
+*****
+
+####  没取名啊  
+##### 302#       发表于 2024-6-23 14:17
+
+新作能不能给个公主的房间然后能用借来的东西自己布置
+

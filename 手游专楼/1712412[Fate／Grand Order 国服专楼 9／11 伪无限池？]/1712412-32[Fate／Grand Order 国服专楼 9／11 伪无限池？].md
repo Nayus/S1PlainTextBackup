@@ -89,3 +89,11 @@
 一宝伽摩以后有什么上班空间吗</blockquote>
 基本没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，90++用不上
 
+
+*****
+
+####  深渊骑士  
+##### 46473#       发表于 2024-6-23 19:26
+
+现在的环境除非宝具有特殊的机制，不然一宝除了周长就没啥用了。百层塔另说
+

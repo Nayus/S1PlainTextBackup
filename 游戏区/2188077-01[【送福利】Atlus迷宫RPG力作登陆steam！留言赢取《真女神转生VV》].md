@@ -1955,3 +1955,20 @@ ns限定版全dlc+ps5普通版vv全dlc
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  娃哈哈123  
+##### 206#       发表于 2024-6-23 16:55
+
+PS4真女神玩了一半，就搁置了。。。试试加强版
+
+*****
+
+####  dswdz  
+##### 207#       发表于 2024-6-23 16:56
+
+原版在ns上通的，vv想在pc上玩了但是还没买
+
+—— 来自 OPPO CPH2357, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

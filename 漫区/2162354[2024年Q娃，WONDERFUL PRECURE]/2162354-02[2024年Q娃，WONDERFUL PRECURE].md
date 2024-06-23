@@ -3302,3 +3302,21 @@ OPが…♡♡♡
 
 猫组这卖的，大友狂喜，给小友的坏影响不可估计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1773#       发表于 2024-6-23 13:06
+
+彩狗组的彩羽这集团战真的0作用了，全场暴睡不带醒的，狗子被猫卖了还算有点余热
+
+麻猫组这边属于是，猫还把自己当猫跟mayu的姐姐，但mayu把猫当人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猫：问题是我人也演的挺好的，不像某些菜狗便乘人了还把自己当狗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+掐脸那段其实也不算谐，毕竟还有个倒头就睡的对照组，上个mayu经常捏猫脸的滤镜也就是正常玩而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卖大了的还是吃饭那段，mayu只要张嘴必被猫投喂，过来蹭饭的路人都惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我们睡觉的时候偷偷暴饮暴食吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

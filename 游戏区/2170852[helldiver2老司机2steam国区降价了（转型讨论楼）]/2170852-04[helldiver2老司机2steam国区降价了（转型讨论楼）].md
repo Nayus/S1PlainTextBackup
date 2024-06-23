@@ -1766,3 +1766,40 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 —— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 再烂人数也是上一代不知道多少倍，现在只是回落到它应该有的热度而已。根据一代经验，不管是跟风随便玩玩还是长期玩下去，到某个时间基本都会长期 afk
 
+
+*****
+
+####  FLZB  
+##### 5015#       发表于 2024-6-22 22:55
+
+手上拿着盾牌能突然把自己撞死，这代码水平还做什么游戏，回尼玛乡下种田吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hyst3r1a  
+##### 5016#       发表于 2024-6-22 23:27
+
+有一段时间没关注了，这游戏还没烂完啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  LT_Harry  
+##### 5017#       发表于 2024-6-23 03:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65339993&amp;ptid=2170852" target="_blank">Hyst3r1a 发表于 2024-6-22 23:27</a>
+有一段时间没关注了，这游戏还没烂完啊
+
+—— 来自 OPPO PGEM10, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+再烂人数也是上一代不知道多少倍，现在只是回落到它应该有的热度而已。根据一代经验，不管是跟风随便玩玩还是长期玩下去，到某个时间基本都会长期 afk
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 5018#       发表于 2024-6-23 13:54
+
+树还能挡轨道精准<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

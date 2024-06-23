@@ -50,3 +50,11 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  时空之旅  
+##### 61#       发表于 2024-6-23 12:37
+
+算了，现在sd的性能真的不太行，宁愿买rog
+

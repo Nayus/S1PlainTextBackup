@@ -252,3 +252,20 @@ BGM响起然后落雷太生草了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  上坂莲华  
+##### 433#       发表于 2024-6-23 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65339148&amp;ptid=2081261" target="_blank">X(iaolw)S 发表于 2024-6-22 22:00</a>
+
+所以绿毛是偷偷在打皮套人的工，车队里其他人都看不出来？
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+女的看到绿毛衣服后说【这是……】，然后哎了一声啊啊了两声，真不知道应该是哎哎哎三声才对
+
+可能是绿毛比赛期间原则上不让回来，所以看到绿毛赛中冒出来吃惊了一下，然后就反应过来了
+
+对比就是老头全程没任何表情反应，如果真瞒着车队他也应该稍微震惊一下才对
+

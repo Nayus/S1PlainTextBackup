@@ -3386,3 +3386,11 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 这集观感不错，日常和战斗都算有趣，转场设计有点惊喜。猫组好卖<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hqtkkb  
+##### 1779#       发表于 2024-6-23 17:15
+
+这集浓度也太高了，对小孩子的影响不可估量啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

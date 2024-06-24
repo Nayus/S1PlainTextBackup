@@ -2425,3 +2425,26 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
+
+*****
+
+####  lj205  
+##### 20401#       发表于 2024-6-24 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">就算星单团来广州我也没啥看的欲望………………鲤鱼又没C，团曲分到的歌词少的可怜，只能等K组表演部分，到时干脆买个山顶位算求
+
+*****
+
+####  DARK_HGCG  
+##### 20402#       发表于 2024-6-24 09:08
+
+3开头的身份证号尤其显眼
+
+<img src="https://img.saraba1st.com/forum/202406/24/090724l5tl74tr742td926.jpg" referrerpolicy="no-referrer">
+
+<strong>61c35f2182c4f76a.jpg</strong> (115.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 09:07 上传
+

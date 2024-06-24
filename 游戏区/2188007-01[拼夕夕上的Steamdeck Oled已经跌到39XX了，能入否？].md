@@ -84,3 +84,29 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 
 <img src="https://imgur.ihainan.me/NGZ5eKk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blueelf  
+##### 64#       发表于 2024-6-24 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65282372&amp;ptid=2188007" target="_blank">慕容断月 发表于 2024-6-18 13:38</a>
+
+就不要想用deck玩xgp，这机器装win半残，基本等于自废武功，主要是想玩xgp那就别碰deck ...</blockquote>
+不见得，装WIN也就是按普通WIN掌机的用法用，性能也没差，我在XGP上打通了匹诺曹，效果非常好
+
+装WIN玩GAL也方便得多了，几乎没有兼容性问题
+
+碰上最麻烦的是每次WIN11更新，需要重新刷引导，在STEAMOS的桌面模式下点两下的事，其实也还好
+
+
+*****
+
+####  blueelf  
+##### 65#       发表于 2024-6-24 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65285947&amp;ptid=2188007" target="_blank">慕容断月 发表于 2024-6-18 18:17</a>
+
+他们说的那些都是其次，deck很多特性都是基于Linux深度改造才实现了的，换了win非常多的独有特性直接就没 ...</blockquote>
+装了WIN并不会妨碍原先的steamos使用，steamos该怎么用还是怎么用了，唯一的问题是steamos下某些游戏装到WIN的盘里去会有BUG，这个是极少数，相对于装WIN提升的兼容性，我觉得可以接受
+

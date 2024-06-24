@@ -5038,3 +5038,29 @@ falcomshop卡支付方式吗，用非日本地区的visa或者mastercard可以�
 
 2024-6-24 11:14 上传
 
+
+*****
+
+####  ravend233  
+##### 516#       发表于 2024-6-24 11:18
+
+糊糊IP是这样的
+
+*****
+
+####  一步成诗  
+##### 517#       发表于 2024-6-24 11:21
+
+有新图就不错了管他是不是端水呢，q版那个谷就没有剑女<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 518#       发表于 2024-6-24 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65356530&amp;ptid=2160194" target="_blank">ky怪 发表于 2024-6-24 11:12</a>
+无所谓，纪念图赢也是赢
+
+falcomshop卡支付方式吗，用非日本地区的visa或者mastercard可以成功支付吗 ...</blockquote>
+支持海外信用卡，有些东西甚至支持直邮到国内
+

@@ -2390,3 +2390,18 @@ miko：我最喜欢兄弟吵架的作品了！
 
 本周还有新游戏要播
 
+
+*****
+
+####  rs5621  
+##### 9090#       发表于 2024-6-24 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">环dlc要玩么
+
+*****
+
+####  holoan  
+##### 9091#         楼主| 发表于 2024-6-24 21:52
+
+不存在可能性，不要多想了
+

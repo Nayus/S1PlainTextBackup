@@ -788,3 +788,13 @@ gta想要高同接还是得把观众带入角色剧情的套路里面，像👮�
 
 星川“想让黛灰也看到这个景色”
 
+
+*****
+
+####  格林卡罗尔  
+##### 374#       发表于 2024-6-25 01:25
+
+虹gta这样的活动，我几年前就已经断念，认为已经不可能再有了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">感谢星川和叶
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -524,3 +524,15 @@ gpt4o权威意见
 
 我上传的时候图片顺序有问题，三十秒那里出现大高峰的那张图是第一段，三十秒那出现小高峰的是第二段
 
+
+*****
+
+####  setree  
+##### 53#       发表于 2024-6-25 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65366738&amp;ptid=2188733" target="_blank">loneyuki 发表于 2024-6-25 01:21</a>
+GPT评的怎么是TM小号手
+
+我上传的时候图片顺序有问题，三十秒那里出现大高峰的那张图是第一段，三十秒那出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">脑抽写错问题了，已更新，但gpt还是选的二号
+

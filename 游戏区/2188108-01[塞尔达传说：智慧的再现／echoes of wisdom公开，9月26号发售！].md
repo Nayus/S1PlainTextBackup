@@ -3130,3 +3130,14 @@ zelda.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 307#       发表于 2024-6-24 11:39
+
+其实到现在了旧时间线已经没啥意思了，只要写传统的塞尔达林克加侬三个人的故事就只能放战败线，成人线和童年线把加侬多夫本人写死了，成人线更是整个海拉鲁都无了，四之剑+因为林克帽子上没有黄带子给放到了黄昏公主之后，然后因为黄昏公主写死了加侬，于是设定集给四之剑+的加侬补充了个加侬多夫二世的设定。
+除非续写风之杖线新海拉鲁的故事，不然这旧时间线我看也没有现在接着用的必要。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

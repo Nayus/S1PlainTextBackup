@@ -3479,3 +3479,13 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 这前女友估计还会有戏份吧</blockquote>
 怎么会有前女友！茉优眼里只有我一个就好了<img src="https://static.saraba1st.com/image/smiley/animal2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1789#       发表于 2024-6-24 12:20
+
+别的不说前女友长得挺有做1的相好看的，mayu又明显是不用跪下求都会主动原谅的好人
+
+万一真半道杀出来猫怕是得炸毛炸到死，等一个前女友和mayu在屋里DOI猫在外面默默流泪的本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

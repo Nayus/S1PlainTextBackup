@@ -4675,3 +4675,66 @@ enami画男人问题确实不大，女人嘛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年那个20周年的日历图变着花样出谷，太寒酸了
 
+
+*****
+
+####  stlover  
+##### 484#       发表于 2024-6-24 10:06
+
+<img src="https://img.saraba1st.com/forum/202406/24/100620v8zer92p87zy9rya.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17191947520215048728366876329.jpg</strong> (859.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 10:06 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  宛若青空  
+##### 485#       发表于 2024-6-24 10:07
+
+<blockquote>୨୧‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥୨୧
+
+　　　おかげさまで
+
+🎂軌跡シリーズ20周年🎂
+
+୨୧‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥୨୧
+
+軌跡シリーズ20周年記念サイトオープン！
+
+アニバーサリーグッズ多数登場！
+
+ご自身とシリーズの軌跡を辿れるコーナーも♪
+
+falcom.co.jp/kiseki20th/ #軌跡20th</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/24/100737yc3cq833gjcqcz3g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>461CFA5A-6C2B-4CD7-B190-638963D86025.jpeg</strong> (592.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 10:07 上传
+
+*****
+
+####  ravend233  
+##### 486#       发表于 2024-6-24 10:07
+
+图来力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+I@{{AMXA[9EUN_35]Q}9[JM.jpg
+(397.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 10:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/24/100713fiyv99ghff99uyyk.jpg" referrerpolicy="no-referrer">
+

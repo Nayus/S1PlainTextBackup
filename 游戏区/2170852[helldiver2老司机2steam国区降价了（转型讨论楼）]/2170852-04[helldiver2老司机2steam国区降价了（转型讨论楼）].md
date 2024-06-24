@@ -1821,3 +1821,40 @@ solo一把难7杀了将近600只虫，绿胖混追猎海模板同时还刷强袭
 这次指令打完应该是光能了吧</blockquote>
 我觉得箭头还能再把光能者拖一段时间，下一个有点意义的指令大概是解锁四联装的突击队火箭发射器。
 
+
+*****
+
+####  WGTCorp  
+##### 5021#       发表于 2024-6-23 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345769&amp;ptid=2170852" target="_blank">小绿瓜拉苟莱斯 发表于 2024-6-23 13:54</a>
+树还能挡轨道精准
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+今天扔了个500，炸弹挂身后的树上把我炸死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mr.Hopp  
+##### 5022#       发表于 2024-6-23 22:46
+
+这次指令打完应该是光能了吧
+
+*****
+
+####  WGTCorp  
+##### 5023#       发表于 2024-6-24 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65351946&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-6-23 22:46</a>
+这次指令打完应该是光能了吧</blockquote>
+我觉得箭头还能再把光能者拖一段时间，下一个有点意义的指令大概是解锁四联装的突击队火箭发射器。
+
+*****
+
+####  normalli  
+##### 5024#       发表于 2024-6-24 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65351946&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-6-23 22:46</a>
+这次指令打完应该是光能了吧</blockquote>
+光能不会那么快的，真上之前肯定得媒体预热一波
+

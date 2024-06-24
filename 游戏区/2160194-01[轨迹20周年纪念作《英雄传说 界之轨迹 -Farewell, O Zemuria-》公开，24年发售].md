@@ -5331,3 +5331,13 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  smdzh2  
+##### 546#       发表于 2024-6-24 19:06
+
+<img src="https://p.sda1.dev/18/408a718855ca45c7c921862da14cbeac/image.jpg" referrerpolicy="no-referrer">
+虾饺的笑容逐渐消失
+桃花剑：君子报仇，六年不晚
+

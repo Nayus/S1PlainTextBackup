@@ -5064,3 +5064,61 @@ falcomshop卡支付方式吗，用非日本地区的visa或者mastercard可以�
 falcomshop卡支付方式吗，用非日本地区的visa或者mastercard可以成功支付吗 ...</blockquote>
 支持海外信用卡，有些东西甚至支持直邮到国内
 
+
+*****
+
+####  hkguty  
+##### 519#       发表于 2024-6-24 11:30
+
+强行端水，我怀疑学妹剑女这部的戏份是8/2分
+
+*****
+
+####  ravend233  
+##### 520#       发表于 2024-6-24 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多老角色还要推主线，戏份就别指望了
+
+
+*****
+
+####  卢迪克  
+##### 521#       发表于 2024-6-24 11:31
+
+<blockquote>卡博雷z 发表于 2024-6-24 11:15
+昨天去了你轨20周年场，人稀稀疏疏的</blockquote>
+上次闪轨十周年出现了不良品拿出来卖，事后还要掏邮费寄回去换，很多人不想去了
+
+*****
+
+####  一步成诗  
+##### 522#       发表于 2024-6-24 11:32
+
+剑女本来就是18线配角，就算宣传抬到主角位戏份也是配角，黎2不是说得很清楚了吗，新图就是为了卖谷而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 523#       发表于 2024-6-24 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65356647&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-6-24 11:21</a>
+
+支持海外信用卡，有些东西甚至支持直邮到国内</blockquote>
+ok我看看，不行邮到朋友家
+
+*****
+
+####  ky怪  
+##### 524#       发表于 2024-6-24 11:35
+
+我支持金毛当大女主，戏份都给你也无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+但不能既要又要
+
+*****
+
+####  一步成诗  
+##### 525#       发表于 2024-6-24 11:36
+
+有点人气就想和轨迹最强女主平起平坐还是太难了点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

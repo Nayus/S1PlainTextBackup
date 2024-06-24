@@ -544,3 +544,18 @@ GPT评的怎么是TM小号手
 
 响度战争是有道理的，动画里就觉得久美子吹的更响，好像也连贯一些，可能这脱离了职业的学术的审美
 
+
+*****
+
+####  戏言卿  
+##### 55#       发表于 2024-6-25 04:12
+
+NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真感觉没啥区别....是软件问题还是录制问题<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sxcluck  
+##### 56#       发表于 2024-6-25 04:12
+
+要评价管乐队门槛太高了，一般谭友真没法评，只能说听导演的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

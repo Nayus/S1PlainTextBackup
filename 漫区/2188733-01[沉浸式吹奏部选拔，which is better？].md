@@ -437,3 +437,13 @@ LZ亮牌吧,到底第一个是谁吹的?
 
 我听下来1要明显好一些，可能和音箱设置有点关系
 
+
+*****
+
+####  Atamaitai  
+##### 44#       发表于 2024-6-24 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65358627&amp;ptid=2188733" target="_blank">hourousha 发表于 2024-6-24 13:57</a>
+
+记得一个是大一女生，一个是得奖的男教授。</blockquote>暗示高小姐去了美国变成lgbt变性了（攻击性是不是有点强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -559,3 +559,19 @@ NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真
 
 要评价管乐队门槛太高了，一般谭友真没法评，只能说听导演的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hitori酱  
+##### 57#       发表于 2024-6-25 05:48
+
+<img src="https://img.saraba1st.com/forum/202406/25/054427g2cr85d5ju5qafu2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2590.png</strong> (404.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 05:44 上传
+
+洗足弦乐副首的评价，足够权威了吧，我完全赞同。b站上好几个单纯谈论音乐的up都表示这次评比无法足够令人信服，我个人觉得演出的锅比脚本也小不到哪里去。刻板地执行“实力至上”而忽视这种实力差距其实很小完全可以通过练习改进，这就是把日式青春成长的内核完全否定掉了，既不真实也不真诚。
+

@@ -202,3 +202,23 @@
 肯定是说隔壁那个黑猫桑</blockquote>
 屎黄色论坛说的就是你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  osore  
+##### 1849#       发表于 2024-6-24 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微博和它lga有什么关系呢
+再说lga也没实锤是我看你get不get得到
+
+*****
+
+####  帝下室の年糕  
+##### 1850#       发表于 2024-6-24 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65365677&amp;ptid=2152053" target="_blank">osore 发表于 2024-6-24 23:15</a>
+微博和它lga有什么关系呢
+再说lga也没实锤是我看你get不get得到</blockquote>
+都截图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://ngabbs.com/read.php?tid=40643034](https://ngabbs.com/read.php?tid=40643034)
+

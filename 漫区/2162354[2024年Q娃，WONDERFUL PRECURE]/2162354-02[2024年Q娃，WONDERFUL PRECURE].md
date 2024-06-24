@@ -3519,3 +3519,25 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 不过缺德狗大友先把知览女士打成菱川女士的继承人先<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1793#       发表于 2024-6-24 16:59
+
+<img src="https://p.sda1.dev/18/9dba97684d5cd97021b26b9d4c754f87/IMG_CMP_43285488.jpeg" referrerpolicy="no-referrer">吾：每天告诫自己：为人处世低调不圆滑，言行不油腻、有边界感 ​​​
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  maoyou  
+##### 1794#       发表于 2024-6-24 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65354331&amp;ptid=2162354" target="_blank">舞野咲 发表于 2024-6-24 06:43</a>
+这个前[del]女友[/del]好友的断交也太怪了。。。不过假设这个真的发生过的话小雪的逻辑也是自洽的，以猫猫 ...</blockquote>
+女人因为一点鸡毛蒜皮的小事发癫不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -5381,3 +5381,25 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ravend233  
+##### 551#       发表于 2024-6-24 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然当年的新人编剧还没离职（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 552#       发表于 2024-6-24 21:32
+
+Q：罗伊德的台词是谁写的？有时候真是语出惊人（特指：如果我赢了，你就是我的人了。）
+
+那是空轨时就参与的编剧写的，不过他也说现在已经不会再写那样的故事和对话了，太羞耻。（笑）
+
+不过正是因为克州的复杂社会环境不应该仅凭理性行事，罗伊德的感性很有角色特性。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

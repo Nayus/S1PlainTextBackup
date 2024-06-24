@@ -509,3 +509,18 @@ LZ亮牌吧,到底第一个是谁吹的?
 gpt4o权威意见<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 哦对了 由于上传文件顺序问题，gpt口中的图二对应的是第一段音频
 
+
+*****
+
+####  loneyuki  
+##### 52#       发表于 2024-6-25 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65366658&amp;ptid=2188733" target="_blank">setree 发表于 2024-6-25 01:08</a>
+
+gpt4o权威意见
+
+哦对了 由于上传文件顺序问题，gpt口中的图二对应的是第一段音频 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">GPT评的怎么是TM小号手
+
+我上传的时候图片顺序有问题，三十秒那里出现大高峰的那张图是第一段，三十秒那出现小高峰的是第二段
+

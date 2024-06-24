@@ -4884,3 +4884,78 @@ I@{{AMXA[9EUN_35]Q}9[JM.jpg
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Hominidae  
+##### 505#       发表于 2024-6-24 10:57
+
+哎呀，党争逗逗你的呀
+
+—— 来自 Xiaomi M2012K10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  卢迪克  
+##### 506#       发表于 2024-6-24 11:00
+
+法老控亏你敢放出来，全身图都没有
+
+<img src="https://img.saraba1st.com/forum/202406/24/110040h1kexeqxxyr4xks4.jpg" referrerpolicy="no-referrer">
+
+<strong>756D58EE7787944C92E854B8C54EDAA1.jpg</strong> (124.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-24 11:00 上传
+
+*****
+
+####  Squall25  
+##### 507#       发表于 2024-6-24 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65356357&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-24 11:00</a>
+法老控亏你敢放出来，全身图都没有</blockquote>
+全身图是有的，周边都是全身图。官网这个毕竟是拼凑用的。
+
+*****
+
+####  仲可怀  
+##### 508#       发表于 2024-6-24 11:01
+
+剑女大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 509#       发表于 2024-6-24 11:01
+
+你法怎么可能给你钦定结果，都是左右护法而已
+
+<img src="https://img.saraba1st.com/forum/202406/24/110117vox9330x9vx43iho.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240624110038.jpg</strong> (44.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 11:01 上传
+
+
+*****
+
+####  ravend233  
+##### 510#       发表于 2024-6-24 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65356357&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-24 11:00</a>
+
+法老控亏你敢放出来，全身图都没有</blockquote>
+这个只是官网用的图层
+
+*****
+
+####  ravend233  
+##### 511#       发表于 2024-6-24 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法社有胆子钦定能混成现在这样？不就是不上不下卡中间天天搞小聪明吗
+

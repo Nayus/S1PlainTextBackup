@@ -121,3 +121,16 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 算了，现在sd的性能真的不太行，宁愿买rog</blockquote>
 电器城把SD和ROG放一起，同时试玩过之后感觉都差点意思，SD的画面实在是糊，性能明显不如ROG，但ROG的手感明显要比SD差一截，从整机到按键，山寨感十足，要是有结合了SD的工业质感加ROG的性能的掌机就好了（估计价格四位数打不住）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leesf1996  
+##### 67#       发表于 2024-6-24 14:46
+
+主要还是太重了，除了霍格沃兹这种ns体验实在太差的，其他有ns版本还是优先用ns玩，便携就是掌机最核心竞争力
+（实际上霍格沃兹在sd上也玩不下去，糊得跑几步路就自觉启动电脑去了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+GAL是PC掌机的终极归宿
+
+—— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

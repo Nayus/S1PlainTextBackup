@@ -110,3 +110,14 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 他们说的那些都是其次，deck很多特性都是基于Linux深度改造才实现了的，换了win非常多的独有特性直接就没 ...</blockquote>
 装了WIN并不会妨碍原先的steamos使用，steamos该怎么用还是怎么用了，唯一的问题是steamos下某些游戏装到WIN的盘里去会有BUG，这个是极少数，相对于装WIN提升的兼容性，我觉得可以接受
 
+
+*****
+
+####  sakuranosibe  
+##### 66#       发表于 2024-6-24 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65345023&amp;ptid=2188007" target="_blank">时空之旅 发表于 2024-6-23 12:37</a>
+
+算了，现在sd的性能真的不太行，宁愿买rog</blockquote>
+电器城把SD和ROG放一起，同时试玩过之后感觉都差点意思，SD的画面实在是糊，性能明显不如ROG，但ROG的手感明显要比SD差一截，从整机到按键，山寨感十足，要是有结合了SD的工业质感加ROG的性能的掌机就好了（估计价格四位数打不住）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

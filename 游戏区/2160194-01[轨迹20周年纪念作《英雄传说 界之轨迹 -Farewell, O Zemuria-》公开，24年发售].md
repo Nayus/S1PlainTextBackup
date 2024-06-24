@@ -5262,3 +5262,11 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 
 那10是完结篇吗
 
+
+*****
+
+####  ravend233  
+##### 540#       发表于 2024-6-24 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前看起来应该是下一个就是完结了，正好凑个10（）
+

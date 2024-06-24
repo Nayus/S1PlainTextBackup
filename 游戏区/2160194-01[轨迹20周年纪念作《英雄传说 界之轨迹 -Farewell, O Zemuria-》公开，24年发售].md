@@ -5403,3 +5403,13 @@ Q：罗伊德的台词是谁写的？有时候真是语出惊人（特指：如�
 
 不过正是因为克州的复杂社会环境不应该仅凭理性行事，罗伊德的感性很有角色特性。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CQTK  
+##### 553#       发表于 2024-6-24 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65356107&amp;ptid=2160194" target="_blank">bill910 发表于 2024-6-24 10:42</a>
+2000FUN有界轨的港版的豪华版，就是带轨迹20周年周边那个版本，实际付了639RMB，到时运过来国内还要不要交 ...</blockquote>
+我问了下客服，需要交13%的税
+

@@ -2935,3 +2935,23 @@ wsd这边的线下有朗读剧还挺常见的，老团也有
 
 但是没事，也可能完全不实装，毕竟还没到你鸡宣传期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yicihanshu  
+##### 18045#       发表于 2024-6-25 00:08
+
+大胆点，国服bml后抢先实装。
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  祐天寺若麦  
+##### 18046#       发表于 2024-6-25 00:13
+
+ 本帖最后由 祐天寺若麦 于 2024-6-25 00:16 编辑 
+
+不会是黑色生日，🐔最先上的歌会是「AveMujica」这首才是mujica真正意义上的代表歌
+

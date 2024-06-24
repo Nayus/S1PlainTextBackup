@@ -3099,3 +3099,21 @@ zelda.jpg
 
 自问自答：还有2015年的马造1，有各种塞尔达系列形态。2012年有个叫涂鸦小子：无限的游戏，能使用风棍里的人物，暂时不知道具体怎么回事
 
+
+*****
+
+####  sprongs  
+##### 305#       发表于 2024-6-24 09:03
+
+<img src="https://img.saraba1st.com/forum/202406/24/090334gkvwb2vbgw7sswrv.gif" referrerpolicy="no-referrer">
+
+<strong>img_8870.gif</strong> (567.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-24 09:03 上传
+
+一直觉得是那这个原型地图改出来的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

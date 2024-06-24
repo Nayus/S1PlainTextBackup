@@ -5313,3 +5313,11 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 大少和学妹站一起还蛮般配的，未曾设想的一家三口，和桃花剑一家三口相映成趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/ec6081714adb00f968cd0e1e1c01c71f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 544#       发表于 2024-6-24 16:16
+
+我一直觉得艾蕾因就是性转大少+二少，经历长相导力器技能等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

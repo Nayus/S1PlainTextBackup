@@ -4787,3 +4787,25 @@ I@{{AMXA[9EUN_35]Q}9[JM.jpg
 
 你最好真的把剑女当女主角
 
+
+*****
+
+####  natmk  
+##### 493#       发表于 2024-6-24 10:31
+
+想什么呢法老控最不可能的就是钦定<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 都是宣传啦
+
+*****
+
+####  ravend233  
+##### 494#       发表于 2024-6-24 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">端水宣传罢了，终章给你选项正史开放结局
+
+*****
+
+####  SuNR1sE364  
+##### 495#       发表于 2024-6-24 10:37
+
+有种钦定的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

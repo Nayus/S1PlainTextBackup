@@ -71,3 +71,16 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 S1Next-鹅版 v3.0.0.81-alph ...</blockquote>
 个人最喜欢的方案是安卓平板，床上放一个懒人支架。sunshine+moonlight来串
 
+
+*****
+
+####  bypass  
+##### 63#       发表于 2024-6-24 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65354746&amp;ptid=2188007" target="_blank">a7765131 发表于 2024-6-24 08:33</a>
+
+个人最喜欢的方案是安卓平板，床上放一个懒人支架。sunshine+moonlight来串</blockquote>
+我也最喜欢这种串流方案。搭配静音点的传统手柄（DualSense 或者 NS Pro），相比直接夹手机夹平板或者掌机串流，体感要舒服太多。
+
+<img src="https://imgur.ihainan.me/NGZ5eKk.jpg" referrerpolicy="no-referrer">
+

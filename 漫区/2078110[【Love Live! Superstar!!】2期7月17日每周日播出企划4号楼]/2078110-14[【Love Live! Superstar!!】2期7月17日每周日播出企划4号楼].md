@@ -2448,3 +2448,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 2024-6-24 09:07 上传
 
+
+*****
+
+####  starring  
+##### 20403#       发表于 2024-6-24 09:47
+
+广州场只有11人可能真是星单独一个团，希望别到时候嘴上说没意思然后又把票抢光，票价好的话就买个内场<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

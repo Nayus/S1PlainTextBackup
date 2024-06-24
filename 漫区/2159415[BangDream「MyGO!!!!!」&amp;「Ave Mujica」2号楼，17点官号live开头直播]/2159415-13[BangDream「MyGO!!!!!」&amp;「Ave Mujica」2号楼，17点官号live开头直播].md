@@ -2920,3 +2920,18 @@ wsd这边的线下有朗读剧还挺常见的，老团也有
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小象的性癖就是小时候接触了初华养成的
 
+
+*****
+
+####  星天观测  
+##### 18043#       发表于 2024-6-24 19:38
+
+10月，好遥远啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18044#       发表于 2024-6-24 19:39
+
+但是没事，也可能完全不实装，毕竟还没到你鸡宣传期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

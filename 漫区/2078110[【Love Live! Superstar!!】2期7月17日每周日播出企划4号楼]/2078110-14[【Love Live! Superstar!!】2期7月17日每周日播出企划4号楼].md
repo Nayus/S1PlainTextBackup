@@ -2513,3 +2513,14 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 3开头的身份证号尤其显眼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼这个3太有笑点了。
 
+
+*****
+
+####  csolfans  
+##### 20410#       发表于 2024-6-24 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65357987&amp;ptid=2078110" target="_blank">靡宜 发表于 2024-6-24 12:59</a>
+
+太厉害了，280才是最难的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">280买的时候非常流畅，他告诉我订单错误，但是有支付宝付款界面，我想都没想直接给钱了。回去再看订单，依然存在。现在该烦怎么过去哈哈哈（虽然不远，但是开车也得1小时，主要怕塞车
+

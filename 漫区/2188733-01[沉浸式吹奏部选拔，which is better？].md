@@ -447,3 +447,11 @@ LZ亮牌吧,到底第一个是谁吹的?
 
 记得一个是大一女生，一个是得奖的男教授。</blockquote>暗示高小姐去了美国变成lgbt变性了（攻击性是不是有点强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  takitaki  
+##### 45#       发表于 2024-6-24 21:55
+
+没带耳机外放拉了几遍感觉第一个的开头更好点
+

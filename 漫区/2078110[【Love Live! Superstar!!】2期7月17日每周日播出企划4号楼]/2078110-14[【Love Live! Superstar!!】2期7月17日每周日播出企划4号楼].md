@@ -2502,3 +2502,14 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ads147147  
+##### 20409#       发表于 2024-6-24 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65355050&amp;ptid=2078110" target="_blank">DARK_HGCG 发表于 2024-6-24 09:08</a>
+
+3开头的身份证号尤其显眼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鱼这个3太有笑点了。
+

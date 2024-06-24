@@ -5321,3 +5321,13 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 
 我一直觉得艾蕾因就是性转大少+二少，经历长相导力器技能等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光之阶梯  
+##### 545#       发表于 2024-6-24 17:53
+
+太辣眼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

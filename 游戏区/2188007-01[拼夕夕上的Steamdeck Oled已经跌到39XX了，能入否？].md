@@ -58,3 +58,16 @@ SD属于你有很特殊需求的时候买会很香：在家想躺玩现在有各
 
 算了，现在sd的性能真的不太行，宁愿买rog
 
+
+*****
+
+####  a7765131  
+##### 62#       发表于 2024-6-24 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65344716&amp;ptid=2188007" target="_blank">远野乙姬 发表于 2024-6-23 12:03</a>
+
+能不能推荐个最好的串流方案
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 S1Next-鹅版 v3.0.0.81-alph ...</blockquote>
+个人最喜欢的方案是安卓平板，床上放一个懒人支架。sunshine+moonlight来串
+

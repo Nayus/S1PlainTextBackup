@@ -4738,3 +4738,52 @@ I@{{AMXA[9EUN_35]Q}9[JM.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/24/100713fiyv99ghff99uyyk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 487#       发表于 2024-6-24 10:17
+
+[https://www.falcom.co.jp/kiseki20th/](https://www.falcom.co.jp/kiseki20th/)
+
+20周年官网
+
+*****
+
+####  夜月紫耀  
+##### 488#       发表于 2024-6-24 10:18
+
+一个男人可以带两个女人
+但是只有一个男人可以多带一个男人
+
+*****
+
+####  医生狼多  
+##### 489#         楼主| 发表于 2024-6-24 10:19
+
+苍之圣女大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全场就你最特殊
+
+
+*****
+
+####  冷泉夜月  
+##### 490#       发表于 2024-6-24 10:25
+
+里爷的刀柄是不是长过头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TheOccuria  
+##### 491#       发表于 2024-6-24 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">零闪黎这是来了官方钦定的党争团吗
+
+*****
+
+####  椎名mahuyo  
+##### 492#       发表于 2024-6-24 10:27
+
+你最好真的把剑女当女主角
+

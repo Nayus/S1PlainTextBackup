@@ -134,3 +134,20 @@ GAL是PC掌机的终极归宿
 
 —— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  时空之旅  
+##### 68#       发表于 2024-6-24 21:12
+
+<blockquote>sakuranosibe 发表于 2024-6-24 14:04
+电器城把SD和ROG放一起，同时试玩过之后感觉都差点意思，SD的画面实在是糊，性能明显不如ROG，但ROG的手 ...</blockquote>
+感觉传闻中微软的掌机靠谱的话应该能办到。。。
+
+*****
+
+####  硫黄  
+##### 69#       发表于 2024-6-24 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微软从手机surface到手柄，出过什么靠谱的移动端硬件吗
+

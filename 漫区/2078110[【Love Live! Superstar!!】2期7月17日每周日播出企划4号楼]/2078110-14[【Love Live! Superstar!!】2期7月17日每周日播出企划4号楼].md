@@ -2492,3 +2492,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 冲580了，
 
+
+*****
+
+####  cqc1021  
+##### 20408#       发表于 2024-6-24 14:20
+
+580没亲签或者2shot，性价比确实不如280，一般livehouse里二楼才是真的VIP
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

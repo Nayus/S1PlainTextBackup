@@ -5371,3 +5371,13 @@ p5的明智代号也是克洛，也是死了又活，充分证明叫克洛的都
 
 所以共和国导力技术飞升是捡到了UFO
 
+
+*****
+
+####  ghostdio  
+##### 550#       发表于 2024-6-24 20:58
+
+新员工刚进来就写出星门15，有点有点厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

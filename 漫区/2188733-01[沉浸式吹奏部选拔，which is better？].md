@@ -497,3 +497,15 @@ LZ亮牌吧,到底第一个是谁吹的?
 
 听不出区别
 
+
+*****
+
+####  setree  
+##### 51#       发表于 2024-6-25 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65362666&amp;ptid=2188733" target="_blank">loneyuki 发表于 2024-6-24 19:13</a>
+没想过波形差距还挺明显的</blockquote>
+<img src="https://p.sda1.dev/18/a1b1ae8e636b7f175aeac6c3aff46f29/CMP_20240625010805865.jpg" referrerpolicy="no-referrer">
+gpt4o权威意见<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+哦对了 由于上传文件顺序问题，gpt口中的图二对应的是第一段音频
+

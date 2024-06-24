@@ -769,3 +769,14 @@ gta想要高同接还是得把观众带入角色剧情的套路里面，像👮�
 我倒觉得警的资源其实还好，主要是放在虹服这种短期服务器里面，在警的经验者比黑帮的经验者多这个前提下 ...</blockquote>
 打个比方，给两个势均力敌的人，比如劳伦和二哥，同样的战斗条件，那叫平衡。让两个本身有实力差距的人，最终打得棋逢敌手，那肯定要对弱的一方提供支援，这叫帮扶。后期他们往这个方向调整之后效果就好很多了
 
+
+*****
+
+####  OldGlory  
+##### 372#       发表于 2024-6-24 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65216307&amp;ptid=2171972" target="_blank">OldGlory 发表于 2024-6-13 08:46</a>
+
+100%会回来，郡道千皇两个人把路都铺好了</blockquote>
+比我想象的还要快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

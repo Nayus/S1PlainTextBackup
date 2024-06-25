@@ -3582,3 +3582,14 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 所以魔法使组到时候人间体是初中还是大学。虽然万能的哈酱也可以变回去啦。
 
+
+*****
+
+####  pokemon最爱  
+##### 1798#       发表于 2024-6-25 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65368255&amp;ptid=2162354" target="_blank">离心 发表于 2024-6-25 09:26</a>
+
+所以魔法使组到时候人间体是初中还是大学。虽然万能的哈酱也可以变回去啦。 ...</blockquote>
+我个人是偏向于剧场版魔法组有法Q2的内容先行公开，不过看情况感觉不会有变身前的内容两组前辈直接战斗时以变身后的姿态出来帮忙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

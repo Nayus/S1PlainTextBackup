@@ -3676,3 +3676,21 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 是新游戏！打游戏我超勇的！</blockquote>
 你家电视修好了么，拿啥打电动？
 
+
+*****
+
+####  pokemon最爱  
+##### 1807#       发表于 2024-6-25 11:27
+
+法Q毕竟是Staff带头厨的作品，法Q2很明显就是东大妈和财团B开拓Q娃大友市场的尖兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望之力？NHK的便宜套皮企划而已，加进大人Q娃系列里恐怕纯粹就是来凑数的，你看财团B都没卖新玩具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 1808#       发表于 2024-6-25 11:37
+
+就派对这一作独立剧场版没有任何系列前作角色客串。就天空组独立剧场版碰上周年纪念顺带客串。 只能说太“独立”了
+

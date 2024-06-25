@@ -3304,3 +3304,13 @@ fengzhouyi 发表于 2024-6-22 04:57L（捧着布鲁）：不是出于别人的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer"> 情怀？
 
+
+*****
+
+####  shiko  
+##### 1752#       发表于 2024-6-25 19:59
+
+我觉得是作品的质量，首先机战硬实力很棒，其次这种抽象春晚不是谁都写的出来，也不是谁都舍得这么糟蹋自己作品的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2232A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

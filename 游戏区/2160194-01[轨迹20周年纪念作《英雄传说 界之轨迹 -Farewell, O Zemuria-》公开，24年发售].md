@@ -5431,3 +5431,18 @@ Q：罗伊德的台词是谁写的？有时候真是语出惊人（特指：如�
 
 难蚌啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 555#       发表于 2024-6-25 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65367812&amp;ptid=2160194" target="_blank">kazra 发表于 2024-6-25 08:44</a>
+
+初中入坑30代大叔表示有得玩的就可以，
+
+轨迹已经是身体的一部分。
+
+不过音乐给点力吧，</blockquote>
+股东大会说管音乐的是加藤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

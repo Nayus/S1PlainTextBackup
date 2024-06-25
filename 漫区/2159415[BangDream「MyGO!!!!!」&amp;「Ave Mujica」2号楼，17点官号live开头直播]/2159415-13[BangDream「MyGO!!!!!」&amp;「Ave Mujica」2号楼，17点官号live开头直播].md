@@ -2965,3 +2965,15 @@ wsd这边的线下有朗读剧还挺常见的，老团也有
 MyGO第一首歌迷星叫实装进游戏是2023.4.9，和4th一起的，AM这边应该就是3rd的2024.10.13实装第一首歌黑色生 ...</blockquote>
 不会是黑色生日，🐔最先上的歌会是「AveMujica」，这首才是mujica真正意义上的代表歌
 
+
+*****
+
+####  Drawrain  
+##### 18048#       发表于 2024-6-25 10:18
+
+发现个倒计时网站，试着玩的怎么真有啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+https://www.oblivionis.com/
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

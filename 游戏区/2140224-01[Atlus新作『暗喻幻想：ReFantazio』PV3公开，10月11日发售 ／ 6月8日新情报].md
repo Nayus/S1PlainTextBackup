@@ -45,3 +45,27 @@
 
 2024-6-22 19:43 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 482#         楼主| 发表于 2024-6-25 13:49
+
+GI《暗喻幻想：ReFantazio》前瞻：崭新的奇幻世界
+[https://weibo.com/ttarticle/x/m/show#/id=2309405048836061267247](https://weibo.com/ttarticle/x/m/show#/id=2309405048836061267247)
+
+*****
+
+####  Piano-Forest  
+##### 483#         楼主| 发表于 2024-6-25 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65192253&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-11 11:32</a>
+
+7月6日新情报将聚焦游戏剧情、世界观以及角色
+
+•7月6日凌晨1:30开始的anime expo届时会有现场直播，时长约 ...</blockquote>
+anime expo
+[https://atlus.com/atlus-returns-to-anime-expo-2024/](https://atlus.com/atlus-returns-to-anime-expo-2024/)
+
+<img src="https://p.sda1.dev/18/b6b2ea7dbabb2634fa5fe695447de129/20240625_012340.jpg" referrerpolicy="no-referrer">
+

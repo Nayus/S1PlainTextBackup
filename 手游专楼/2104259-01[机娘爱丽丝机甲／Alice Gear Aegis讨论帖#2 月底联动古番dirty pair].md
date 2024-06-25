@@ -14,3 +14,11 @@
 
 这直播一直就是两个老男人在聊胶和机设，旁边两声优一脸懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1098#         楼主| 发表于 2024-6-25 20:16
+
+喷了，直接把胶都摆上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

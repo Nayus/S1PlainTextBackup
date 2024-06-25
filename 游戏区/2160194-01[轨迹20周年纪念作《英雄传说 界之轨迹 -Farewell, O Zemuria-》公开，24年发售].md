@@ -6228,3 +6228,18 @@ s技特供吧
 
 —— 来自 vivo V2243A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  hkguty  
+##### 632#       发表于 2024-6-25 20:24
+
+梵跟剑女的手套真的是一对的啊，艹，这会不会是村上的私货<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火焰的攻击  
+##### 633#       发表于 2024-6-25 20:25
+
+我觉得吸引力竟然比暗喻幻想强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3052,3 +3052,27 @@ R组的几首曲子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">只能说这样分开看更难堪……wsd真该死啊
 
+
+*****
+
+####  NODY  
+##### 18055#       发表于 2024-6-25 20:22
+
+青木这下半年差不多有三个月都在跑舞台剧啊，wsd都不调整一下多企划同步时候的日程的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/25/202200a3x3e83zntn4f0te.jpg" referrerpolicy="no-referrer">
+
+<strong>007pH4D1gy1hr1pvlwsqqj31hc0u07ja.jpg</strong> (261.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 20:22 上传
+
+<img src="https://img.saraba1st.com/forum/202406/25/202155za2oackr0z4rweoc.jpg" referrerpolicy="no-referrer">
+
+<strong>GQ1O34uaYAAbV_v.jpg</strong> (151.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 20:21 上传
+

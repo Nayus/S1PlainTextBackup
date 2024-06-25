@@ -6018,3 +6018,25 @@ s技特供吧
 
 赞美法老控<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 612#       发表于 2024-6-25 19:22
+
+是曹李和克洛，我不要看这个口牙
+
+*****
+
+####  dio999  
+##### 613#       发表于 2024-6-25 19:24
+
+艹李加渣男，祝好似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  simon~  
+##### 614#       发表于 2024-6-25 19:27
+
+这次剧本近藤准备致敬前社员高桥哲哉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

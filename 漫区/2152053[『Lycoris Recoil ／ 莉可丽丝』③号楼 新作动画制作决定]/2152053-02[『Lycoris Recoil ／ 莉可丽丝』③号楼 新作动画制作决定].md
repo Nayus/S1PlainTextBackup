@@ -396,3 +396,46 @@ ID都给你截出来了，跑不了的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Saber琪  
+##### 1869#       发表于 2024-6-25 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376789&amp;ptid=2152053" target="_blank">蒜灵 发表于 2024-6-25 19:18</a>
+合着还是没有新消息吗？a1在搞什么</blockquote>
+一批企划排着队呢，最近好像收购了什么制作组开始多开产能恢复
+
+
+*****
+
+####  蒜灵  
+##### 1870#       发表于 2024-6-25 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376829&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-6-25 19:20</a>
+一批企划排着队呢，最近好像收购了什么制作组开始多开产能恢复</blockquote>
+唉辣鸡a1，人家滚后出的，剧场版都已经上映了
+
+*****
+
+####  有骨气的百合  
+##### 1871#       发表于 2024-6-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376909&amp;ptid=2152053" target="_blank">蒜灵 发表于 2024-6-25 19:24</a>
+唉辣鸡a1，人家滚后出的，剧场版都已经上映了</blockquote>
+滚是总篇集，蒜是新作，没办法这么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yenvy  
+##### 1872#       发表于 2024-6-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376762&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-6-25 19:16</a>
+那情报是乌龙，那个人也不是制片人，日语机翻英文搞出的乌龙，不知道为啥翻译成new film
+而且这情报不都 ...</blockquote>
+想起来了，那条我好像还搬过
+
+看推上也没个有来源的消息，搞不好真是反刍
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -3126,3 +3126,44 @@ R组的几首曲子
 
 坏了，我第一反应是6.25除了是初华生日前一天以外还有什么特殊性
 
+
+*****
+
+####  凡人  
+##### 18061#       发表于 2024-6-25 22:04
+
+<img src="https://img.saraba1st.com/forum/202406/25/220443jrrgg1au3rkvgzgb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (910.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 22:04 上传
+
+*****
+
+####  Aendst  
+##### 18062#       发表于 2024-6-25 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好会营业
+
+
+*****
+
+####  akirakira  
+##### 18063#       发表于 2024-6-25 22:10
+
+专门提了ob和mo还有蓝绿心，好用心啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18064#       发表于 2024-6-25 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377272&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-6-25 19:50</a>
+
+R组的Sage der Rosen
+
+怎么听着有点SH的味道()</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">德语数字正数那里确实有点，其他地方没有吧，还是EG味更重
+

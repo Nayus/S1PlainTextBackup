@@ -3175,3 +3175,18 @@ zelda.jpg
 突然想到能操作塞尔达的游戏，是不是全部都在ns了。新作、两个无双、节奏海拉鲁、大乱斗，除了前代的大乱斗 ...</blockquote>
 小火车也能操纵塞尔达
 
+
+*****
+
+####  ParukiaMKII  
+##### 311#       发表于 2024-6-25 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望下一作3D作品能带着塞尔达一起冒险，像小火车那种，又不孤单又欢乐
+
+*****
+
+####  otakun  
+##### 312#       发表于 2024-6-25 15:03
+
+通关后来个林克模式吧
+

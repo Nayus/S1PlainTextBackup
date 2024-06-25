@@ -6243,3 +6243,28 @@ s技特供吧
 
 我觉得吸引力竟然比暗喻幻想强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 634#       发表于 2024-6-25 20:31
+
+ 本帖最后由 卢迪克 于 2024-6-25 20:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377243&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:48</a>
+
+考虑到其中一个背景有疑似创世的台子，是第九个创世或者仿制创世？（）</blockquote>
+pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
+
+并不是世界要毁灭而是这个世界将清零重新开始。总统准备冲出塞姆利亚，出去了就不会被影响，而创世能阻止再次轮回。但出现复制人夺走了创世的剧情吧
+
+*****
+
+####  洛克萨斯  
+##### 635#       发表于 2024-6-25 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑圣三徒弟就老卡是《剑圣》，不合群啊
+
+这作能八叶团建么，理查德风剑萌主出场啊
+
+阿龙难道能换武器？有拳套双拐双剑了
+

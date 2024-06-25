@@ -6340,3 +6340,52 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是写的扭曲也欢迎）
 
+
+*****
+
+####  洛克萨斯  
+##### 645#       发表于 2024-6-25 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378201&amp;ptid=2160194" target="_blank">夜漫群星 发表于 2024-6-25 21:03</a>
+
+我只是想能不能在界轨把cp给定了（但是必不可能）……人家两个都是好姑娘你法也不要吊着霍霍了行不行（要是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">条子还没在未来的克州州长和招牌女明星之间做决定呢，更别说隔壁帝国桃花剑
+
+*****
+
+####  卢迪克  
+##### 646#       发表于 2024-6-25 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377730&amp;ptid=2160194" target="_blank">火焰的攻击 发表于 2024-6-25 20:25</a>
+
+我觉得吸引力竟然比暗喻幻想强</blockquote>
+暗喻幻想线下宣传拉满了，界轨线下基本零宣发，甚至法社推特背景还是伊苏x没换上界轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 647#       发表于 2024-6-25 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378282&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 21:11</a>
+
+暗喻幻想线下宣传拉满了，界轨线下基本零宣发，甚至法社推特背景还是伊苏x没换上界轨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不服！界轨这pv多香啊
+
+
+*****
+
+####  Oshino  
+##### 648#       发表于 2024-6-25 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">搞了半天是灰之剑圣，有什么好藏的
+
+*****
+
+####  卢迪克  
+##### 649#       发表于 2024-6-25 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378309&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-25 21:14</a>
+
+我不服！界轨这pv多香啊</blockquote>
+宣传投入少啊，就指着老粉买单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

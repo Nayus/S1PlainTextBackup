@@ -145,3 +145,12 @@
 
 正雪有点可惜，如果和武尊一个池子就能稳抽，结果硬是和奶光组，而且作为限定四星，至少需要2宝，如果到时候富裕量大的话再考虑
 
+
+*****
+
+####  lcn  
+##### 46479#       发表于 2024-6-26 07:32
+
+阿三王子六宝，没有杜。鉴定为寄。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

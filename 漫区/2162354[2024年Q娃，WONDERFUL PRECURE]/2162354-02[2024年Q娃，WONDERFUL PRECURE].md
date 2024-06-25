@@ -3593,3 +3593,39 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 所以魔法使组到时候人间体是初中还是大学。虽然万能的哈酱也可以变回去啦。 ...</blockquote>
 我个人是偏向于剧场版魔法组有法Q2的内容先行公开，不过看情况感觉不会有变身前的内容两组前辈直接战斗时以变身后的姿态出来帮忙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  粉儿alice  
+##### 1799#       发表于 2024-6-25 10:03
+
+现在这不是把秋季单部剧场版当春季全明星来拍是不是 看来派对地位是属于不待见一类的呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+士大夫拉两个爱活过来的 而且加藤阳一水平属于好坏看队友 宫谷里沙直接就设计了出戴面具雾矢葵<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 现在就看看宫原直树是什么水平了呗
+
+当然现在剧场版的最大问题是时长
+
+*****
+
+####  renkan119  
+##### 1800#       发表于 2024-6-25 10:05
+
+感觉天Q访谈看到最多的就是“因为xx原因 所以xx剧情我们不写” 也难怪最后这么水了 毕竟啥都不写…
+
+<img src="https://img.saraba1st.com/forum/202406/25/100527bihbiump9bfphexm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8038.jpeg</strong> (239.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 10:05 上传
+
+
+*****
+
+####  披头破落户  
+##### 1801#       发表于 2024-6-25 10:07
+
+这次电影是全3d的吗？为什么是和魔法使一起，战队组只是你们搞女同的垫脚石吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

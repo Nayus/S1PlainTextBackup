@@ -3248,3 +3248,11 @@ R组的Sage der Rosen
 一个弹13集的钢琴，一个唱13集的歌是吧，可以可以</blockquote>
 李和弄不会是商量过的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 18070#       发表于 2024-6-25 23:21
+
+还刻意多录了一段视频，太有心了
+

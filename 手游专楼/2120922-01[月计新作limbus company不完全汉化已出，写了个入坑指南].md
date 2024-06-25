@@ -258,3 +258,20 @@ T社二人组技能一览，貌似要手动防御进入时间借贷状态，然�
 
 T唐估计要借贷后才会带头盔吧，第一赛季的液袋终于有用武之地了。
 
+
+*****
+
+####  salic428  
+##### 770#       发表于 2024-6-25 16:02
+
+<img src="https://img.saraba1st.com/forum/202406/25/160211li76jyvs4jx1lxju.png" referrerpolicy="no-referrer">
+
+<strong>1dnc5wm 99% Faith, Just one more! (中).png</strong> (215.5 KB, 下载次数: 0)
+
+下载附件
+
+Seven Tremor Souls
+2024-6-25 16:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我去，原来这赛季到现在补的震颤刚好是七彩色啊
+

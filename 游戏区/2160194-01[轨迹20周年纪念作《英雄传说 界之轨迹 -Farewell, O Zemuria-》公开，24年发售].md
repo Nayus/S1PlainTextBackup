@@ -5504,3 +5504,14 @@ Q：罗伊德的台词是谁写的？有时候真是语出惊人（特指：如�
 
 指不定哪天加藤脑袋一拍给你换AI了
 
+
+*****
+
+####  bill910  
+##### 562#       发表于 2024-6-25 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65364946&amp;ptid=2160194" target="_blank">CQTK 发表于 2024-6-24 22:12</a>
+
+我问了下客服，需要交13%的税</blockquote>
+OK，那差不多应该是700左右，应该比淘宝那些760便宜一点<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

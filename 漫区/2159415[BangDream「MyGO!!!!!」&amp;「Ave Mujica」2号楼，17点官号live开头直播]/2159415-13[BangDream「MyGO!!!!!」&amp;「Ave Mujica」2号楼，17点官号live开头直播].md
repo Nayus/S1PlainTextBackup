@@ -3214,3 +3214,37 @@ R组的Sage der Rosen
 
 [https://x.com/mkm22111/status/1805617223278698700](https://x.com/mkm22111/status/1805617223278698700)
 
+
+*****
+
+####  星天观测  
+##### 18067#       发表于 2024-6-25 23:07
+
+李子伟大，无需多言
+
+*****
+
+####  NODY  
+##### 18068#       发表于 2024-6-25 23:08
+
+一个弹13集的钢琴，一个唱13集的歌是吧，可以可以
+
+<img src="https://img.saraba1st.com/forum/202406/25/230816if2wjbjy2wccwob6.png" referrerpolicy="no-referrer">
+
+<strong>无标题4.png</strong> (46.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:08 上传
+
+
+*****
+
+####  星天观测  
+##### 18069#       发表于 2024-6-25 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65379643&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-25 23:08</a>
+
+一个弹13集的钢琴，一个唱13集的歌是吧，可以可以</blockquote>
+李和弄不会是商量过的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

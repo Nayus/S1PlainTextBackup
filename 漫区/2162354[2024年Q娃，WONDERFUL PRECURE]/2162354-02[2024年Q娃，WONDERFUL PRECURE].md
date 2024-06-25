@@ -3773,3 +3773,19 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 派对最惨的不是心音和兰甚至都没在全明星f出场吗？我觉得这个是最过分的
 
+
+*****
+
+####  Piano-Forest  
+##### 1817#       发表于 2024-6-26 00:57
+
+[https://x.com/hanamaru_hnkc/status/1805519331939566059](https://x.com/hanamaru_hnkc/status/1805519331939566059)
+
+最新話で公開された猫組の名乗り部分の絵コンテとレイアウトやらせていただきました！別作業が詰まってたので演出と原画作業それぞれ他の方にやっていただきました…！良き映像に仕上がっていてとても感激しました！！携わってくださった方々ありがとうございました！ 
+<img src="https://p.sda1.dev/18/c3f94c4ddd95b78060a2aa5f71d0070d/20240626_005627.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sugimoto_mi_ho_/status/1805141396841734549](https://x.com/sugimoto_mi_ho_/status/1805141396841734549)
+
+暑かった…
+<img src="https://p.sda1.dev/18/b169659e93d01d092909e41f76fedb39/20240626_005622.jpg" referrerpolicy="no-referrer">
+

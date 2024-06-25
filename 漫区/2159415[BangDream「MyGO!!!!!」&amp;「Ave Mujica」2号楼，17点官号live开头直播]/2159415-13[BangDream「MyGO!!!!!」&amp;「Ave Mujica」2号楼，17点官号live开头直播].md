@@ -3167,3 +3167,50 @@ R组的Sage der Rosen
 怎么听着有点SH的味道()</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">德语数字正数那里确实有点，其他地方没有吧，还是EG味更重
 
+
+*****
+
+####  御幸一也  
+##### 18065#       发表于 2024-6-25 23:02
+
+掐點丟唱歌的影片 她好愛！
+
+<img src="https://img.saraba1st.com/forum/202406/25/230235clyyjyklzm9z96yj.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (2).jpg</strong> (76.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:02 上传
+
+[https://x.com/sasakirico/status/1805617245693133248](https://x.com/sasakirico/status/1805617245693133248)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rikaren| + 1||
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 18066#       发表于 2024-6-25 23:04
+
+窩們的主唱今天生日捏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  生日快樂
+
+<img src="https://img.saraba1st.com/forum/202406/25/230419mgr6ircb7pdipiip.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_タロ(@mkm22111)_20240625-150107_1805617223278698700_photo.jpg</strong> (63 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:04 上传
+
+[https://x.com/mkm22111/status/1805617223278698700](https://x.com/mkm22111/status/1805617223278698700)
+

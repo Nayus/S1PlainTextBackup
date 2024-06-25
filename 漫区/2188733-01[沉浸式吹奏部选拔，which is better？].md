@@ -752,3 +752,11 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 没学过器乐，选的1
 
+
+*****
+
+####  消防  
+##### 75#       发表于 2024-6-25 20:16
+
+感觉2的音准更强些吧，1音有点晃。虽然1好像是想强调情感去演奏，但2显然和伴奏配合得更好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

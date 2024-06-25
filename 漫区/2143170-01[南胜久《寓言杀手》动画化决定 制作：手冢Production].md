@@ -32,3 +32,14 @@
 忍不住追了原作，第二部汉化居然烂尾了</blockquote>
 贴吧有机翻，去年就翻译完了
 
+
+*****
+
+####  07579394  
+##### 118#       发表于 2024-6-25 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65372036&amp;ptid=2143170" target="_blank">smdzh2 发表于 2024-6-25 13:35</a>
+
+贴吧有机翻，去年就翻译完了</blockquote>
+机翻那个质量...不过还好台版单行本应该会继续出
+

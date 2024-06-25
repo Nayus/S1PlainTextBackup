@@ -6642,3 +6642,12 @@ logo的女人大概率是学妹了吧，最后会牺牲自己成全剑女（当�
 
 他法又在骗剑女党买游戏了
 
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 672#       发表于 2024-6-26 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376637&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:09</a></blockquote>
+又是轨迹经典敌人太少，队友来凑吧，省钱省时间省设计，用XX黑科技模拟队友生成的机器人什么的
+

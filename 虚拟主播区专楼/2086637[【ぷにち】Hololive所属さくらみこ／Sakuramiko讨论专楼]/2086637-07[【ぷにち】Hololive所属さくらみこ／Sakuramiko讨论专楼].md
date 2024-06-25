@@ -2543,3 +2543,30 @@ miko：我最喜欢兄弟吵架的作品了！
 
 那基本确定miko也来了，昨天会限提到过48miko有联动近期，加上上周说的这周的苦行game联动
 
+
+*****
+
+####  holoan  
+##### 9104#         楼主| 发表于 2024-6-25 20:46
+
+ 本帖最后由 holoan 于 2024-6-25 20:50 编辑 
+
+今天怎么没人开幕杀miko了，后辈顾虑了吗，结果后辈全死了
+
+<img src="https://img.saraba1st.com/forum/202406/25/204933aacfcnfdrryxrzen.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 20:49 上传
+
+这个特殊角色也是需要死的时候才能发挥啊，浪费了
+
+*****
+
+####  holoan  
+##### 9105#         楼主| 发表于 2024-6-25 20:56
+
+总算死了！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -760,3 +760,13 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 感觉2的音准更强些吧，1音有点晃。虽然1好像是想强调情感去演奏，但2显然和伴奏配合得更好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 76#       发表于 2024-6-25 20:48
+
+第三季上低音号对决需要频谱来对比才能确认哪段是谁吹的，第一季小号对决一听就高下立见，这不说明不分伯仲这点做得挺到位嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

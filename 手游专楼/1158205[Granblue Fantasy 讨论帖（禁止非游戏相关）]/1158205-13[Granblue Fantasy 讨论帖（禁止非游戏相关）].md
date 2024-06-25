@@ -26,3 +26,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法几回合秒掉boss就折磨上双子老鼠队，这玩意数值刚好卡死你的dps，算检测了，过了检测就几回合打死，过不了就耗过去
 
+
+*****
+
+####  kmr927  
+##### 17954#       发表于 2024-6-25 16:43
+
+没抽メイガス没抽时龙，感觉明天说不定真要被打回150了
+

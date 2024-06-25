@@ -786,3 +786,13 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 凑热闹 选的2
 
+
+*****
+
+####  takitaki  
+##### 79#       发表于 2024-6-26 01:52
+
+挺好，黄部长当投票金牌，真由当硬实力金牌。
+
+真由：久美子？我和她solo竞选，没输过<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

@@ -5554,3 +5554,29 @@ OK，那差不多应该是700左右，应该比淘宝那些760便宜一点<img s
 
 那个戴面具的不会又是大少吧
 
+
+*****
+
+####  hkguty  
+##### 567#       发表于 2024-6-25 18:00
+
+我靠，这个新神气帅炸了，果然金眼是观之眼的新设，不过平A感觉有点捞不如师姐
+
+*****
+
+####  Cloudslin  
+##### 568#       发表于 2024-6-25 18:02
+
+最后的女声是莉丝吧，期待新模型
+
+*****
+
+####  smdzh2  
+##### 569#       发表于 2024-6-25 18:03
+
+黑兔老婆的原野攻击方式<img src="https://p.sda1.dev/18/c15afb280c08d9788a5f57c1a038dad3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/da142b68d0ee49c147feffe26b5e2356/image.jpg" referrerpolicy="no-referrer">
+
+封面图是妮娜？
+<img src="https://p.sda1.dev/18/4c7398a2cf06e1272960b293a32ade5e/image.jpg" referrerpolicy="no-referrer">
+

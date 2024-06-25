@@ -3003,3 +3003,11 @@ https://www.oblivionis.com/
 
 lofter那边也有接力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18051#       发表于 2024-6-25 17:59
+
+今晚蹲下李子对初华的生贺
+

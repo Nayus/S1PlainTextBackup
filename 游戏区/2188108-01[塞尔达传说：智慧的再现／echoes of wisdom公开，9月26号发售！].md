@@ -3235,3 +3235,22 @@ zelda.jpg
 
 借物塞失忆说，请（？。
 
+
+*****
+
+####  KBAC  
+##### 318#       发表于 2024-6-25 18:04
+
+草原来藤林在王泪访谈里说过海拉鲁王国可能是灭亡后再建的这种话啊。虽然话没说死，但是那我一直持有的猜测观点就好说了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：王泪劳鲁的海拉鲁王国是旧时间线海拉鲁王国无了很久很久之后再建的，加侬多夫也不是时之笛那个而是新转生的。而且“再建海拉鲁王国”和“加侬多夫死后又转世”是旧时间线作品里就有过的设定。
+那把野炊王泪放到旧时间线末尾就又合理了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/25/180301zqkfkmqi5q8i8nf5.png" referrerpolicy="no-referrer">
+
+<strong>img_9833.png</strong> (362.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 18:03 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

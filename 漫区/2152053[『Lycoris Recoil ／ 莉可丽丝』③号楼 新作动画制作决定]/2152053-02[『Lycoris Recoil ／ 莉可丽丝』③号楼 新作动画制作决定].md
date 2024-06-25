@@ -249,3 +249,15 @@ ID都给你截出来了，跑不了的
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343548&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2024-6-23 10:07</a></blockquote>
 居然有长发千束，难以想象
 
+
+*****
+
+####  yenvy  
+##### 1854#       发表于 2024-6-25 18:07
+
+围脖说a1透露剧场版在做了？
+
+之前有说是剧场还是tv还是都有吗，记不清了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

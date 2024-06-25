@@ -334,3 +334,65 @@ ID都给你截出来了，跑不了的
 
 支持tkn狠狠拷打千佛
 
+
+*****
+
+####  雷攻姛人  
+##### 1863#       发表于 2024-6-25 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376464&amp;ptid=2152053" target="_blank">qz66618 发表于 2024-6-25 18:59</a>
+真的假的为啥没看到百综楼谈这事
+
+—— 来自 S1Fun</blockquote>
+要不你去谈谈试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  osore  
+##### 1864#       发表于 2024-6-25 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水母楼谈过了
+
+*****
+
+####  skives  
+##### 1865#       发表于 2024-6-25 19:11
+
+千束第一集没心没肺是因为她觉得自己活不长
+第二季生命体征稳定下来了 该思考为什么而活了 也该成长了
+
+
+*****
+
+####  Saber琪  
+##### 1866#       发表于 2024-6-25 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375761&amp;ptid=2152053" target="_blank">yenvy 发表于 2024-6-25 18:07</a>
+围脖说a1透露剧场版在做了？
+
+之前有说是剧场还是tv还是都有吗，记不清了</blockquote>
+那情报是乌龙，那个人也不是制片人，日语机翻英文搞出的乌龙，不知道为啥翻译成new film
+而且这情报不都半年前了嘛，咋又拿出来水
+
+*****
+
+####  蒜灵  
+##### 1867#       发表于 2024-6-25 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376762&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-6-25 19:16</a>
+那情报是乌龙，那个人也不是制片人，日语机翻英文搞出的乌龙，不知道为啥翻译成new film
+而且这情报不都 ...</blockquote>
+合着还是没有新消息吗？a1在搞什么
+
+*****
+
+####  qz66618  
+##### 1868#       发表于 2024-6-25 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376684&amp;ptid=2152053" target="_blank">skives 发表于 2024-6-25 19:11</a>
+千束第一集没心没肺是因为她觉得自己活不长
+第二季生命体征稳定下来了 该思考为什么而活了 也该成长了 ...</blockquote>
+真的能这么演吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

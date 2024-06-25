@@ -2463,3 +2463,38 @@ miko：我最喜欢兄弟吵架的作品了！
 
 说完计划就变更了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko自己倒是什么都没说
 
+
+*****
+
+####  holoan  
+##### 9098#         楼主| 发表于 2024-6-25 15:12
+
+ 本帖最后由 holoan 于 2024-6-25 15:20 编辑 
+
+<img src="https://img.saraba1st.com/forum/202406/25/151135zg6gc48lws99gs6c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 15:11 上传
+
+果然今天有七字母联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/25/152023mwshilouiimg0x0u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 15:20 上传
+
+*****
+
+####  holoan  
+##### 9099#         楼主| 发表于 2024-6-25 15:42
+
+昨天晚上那个莫名其妙跑过来贴一个销量数据的人怎么死了？
+
+我还想说查半天根本没查到那个数量级的来源，想了一下原来是你用AI查的啊，难怪觉得语言组织很奇怪因为博人传是DLC，AI不知道
+

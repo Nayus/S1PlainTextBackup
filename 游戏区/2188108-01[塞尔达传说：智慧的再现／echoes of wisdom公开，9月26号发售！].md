@@ -3198,3 +3198,22 @@ zelda.jpg
 
 说不定这作就有塞尔达和林克的合作内容
 
+
+*****
+
+####  牛奶笛  
+##### 314#       发表于 2024-6-25 15:39
+
+在封面上仔细看会发现林克也被紫色的光包围，像是被控制了
+
+我猜中后期会有打林克的战斗，结束后出现塞尔达举起林克的经典场面。最终boss两人一起打。
+
+*****
+
+####  渺小小  
+##### 315#       发表于 2024-6-25 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">反正模型都是现成的，来个扭蛋系统吧。
+
+随便做点SSR豆豆眼历代角色····这肝度直接拉满<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

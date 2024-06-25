@@ -6651,3 +6651,80 @@ logo的女人大概率是学妹了吧，最后会牺牲自己成全剑女（当�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376637&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:09</a></blockquote>
 又是轨迹经典敌人太少，队友来凑吧，省钱省时间省设计，用XX黑科技模拟队友生成的机器人什么的
 
+
+*****
+
+####  红魔馆的糖  
+##### 673#       发表于 2024-6-26 00:22
+
+只希望李恩和克洛一起死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 674#       发表于 2024-6-26 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">克洛复活太败笔了，就应该死在闪2或者闪4，这货最应该不是什么继续读书而是蹲大牢
+
+*****
+
+####  we89623  
+##### 675#       发表于 2024-6-26 03:01
+
+哈哈哈哈哈 越来越有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 676#       发表于 2024-6-26 03:49
+
+他法又在骗剑女党买游戏了
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 677#       发表于 2024-6-26 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376637&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:09</a></blockquote>
+又是轨迹经典敌人太少，队友来凑吧，省钱省时间省设计，用XX黑科技模拟队友生成的机器人什么的
+
+*****
+
+####  酷乐  
+##### 678#       发表于 2024-6-26 07:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377730&amp;ptid=2160194" target="_blank">火焰的攻击 发表于 2024-6-25 20:25</a>
+我觉得吸引力竟然比暗喻幻想强</blockquote>
+那边急着把古谷彻换了，这边没换樱井孝宏。
+
+*****
+
+####  酷乐  
+##### 679#       发表于 2024-6-26 07:08
+
+为什么新版黎2把crisimon sin的副标题去掉了？
+
+<img src="https://img.saraba1st.com/forum/202406/26/070827zok7noa86n9nfknj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7065.jpeg</strong> (350.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 07:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/070827z5x68fb37fgd6eeg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7066.jpeg</strong> (325.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 07:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/070827a6p6b2rqqcbo6e9c.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7067.png</strong> (64.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 07:08 上传
+

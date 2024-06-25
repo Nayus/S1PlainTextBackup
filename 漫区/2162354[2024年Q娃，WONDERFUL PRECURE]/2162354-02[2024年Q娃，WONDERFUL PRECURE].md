@@ -3663,3 +3663,16 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 派对这有点惨啊，汪q剧场版碰上法q2要给造势，天q是全明星直接把所有人拉上了，四舍五入就是一部剧场版联动都没有，看人气感觉后续也不会再有夸代客串了
 
+
+*****
+
+####  lydia5989  
+##### 1806#       发表于 2024-6-25 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65368920&amp;ptid=2162354" target="_blank">CureMiracle 发表于 2024-6-25 10:17</a>
+
+该魔法使的登场了！
+
+是新游戏！打游戏我超勇的！</blockquote>
+你家电视修好了么，拿啥打电动？
+

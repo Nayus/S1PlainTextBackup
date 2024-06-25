@@ -3256,3 +3256,13 @@ R组的Sage der Rosen
 
 还刻意多录了一段视频，太有心了
 
+
+*****
+
+####  星天观测  
+##### 18071#       发表于 2024-6-25 23:34
+
+推上的大佬们好会画啊
+
+所以wsd从哪个角落找来的fire和air<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

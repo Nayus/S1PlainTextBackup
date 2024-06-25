@@ -5694,3 +5694,62 @@ crow和曹李<img src="https://static.saraba1st.com/image/smiley/face2017/001.pn
 
 没有莉丝啊，剑女建模很不错啊
 
+
+*****
+
+####  卢迪克  
+##### 585#       发表于 2024-6-25 18:33
+
+黑铁
+
+<img src="https://img.saraba1st.com/forum/202406/25/183306gospasn7n7mso2ap.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240625_183007.jpg</strong> (94.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-25 18:33 上传
+
+*****
+
+####  宛若青空  
+##### 586#       发表于 2024-6-25 18:35
+
+ 本帖最后由 宛若青空 于 2024-6-25 18:37 编辑 
+
+黎老师新神气合一帅炸了，这下是黎老师Vs云老师了？
+
+黑兔这把萝卜当盾牌用了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 克洛像是在什么驾驶舱里面
+
+阿龙江东小霸王，小丑怎么魅惑卡特尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑铁好像摘头盔了
+
+然后感觉学妹不管是角色介绍的个人语还是CM的话都在提艾蕾因和Van<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+艾蕾因新战技动画好帅！
+
+*****
+
+####  卢迪克  
+##### 587#       发表于 2024-6-25 18:36
+
+阿龙换武器了，阿龙是白虎，剑仙是中国龙
+
+<img src="https://img.saraba1st.com/forum/202406/25/183517q5b74zhe6h75pyqb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240625_182916.jpg</strong> (161.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-25 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202406/25/183524rnkoniac7rcmjkqg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240625_182227.jpg</strong> (109.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-25 18:35 上传
+

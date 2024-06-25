@@ -18,3 +18,11 @@
 是，这还是改进过的，以前你得收到包里才能回收，现在好歹拉到底有个shortcut
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这游戏还有新人阿原来
 
+
+*****
+
+####  洛克萨斯  
+##### 17953#       发表于 2024-6-25 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法几回合秒掉boss就折磨上双子老鼠队，这玩意数值刚好卡死你的dps，算检测了，过了检测就几回合打死，过不了就耗过去
+

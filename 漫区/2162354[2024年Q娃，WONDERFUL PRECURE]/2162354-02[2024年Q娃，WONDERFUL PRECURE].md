@@ -3728,3 +3728,14 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 2024-6-25 12:58 上传
 
+
+*****
+
+####  Blackson  
+##### 1812#       发表于 2024-6-25 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65371100&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-6-25 12:30</a>
+拥抱的独立剧场版也是碰上周年纪念变成全明星了啊</blockquote>
+从治愈开始的跨代客串到了派对这一作断了，除了周年纪念的天空变成全明星外，到汪Q又再次恢复。
+非周年纪念的作品唯独派对没跨代客串，所以才说派对“独立”
+

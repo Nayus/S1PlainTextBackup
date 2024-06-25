@@ -5580,3 +5580,34 @@ OK，那差不多应该是700左右，应该比淘宝那些760便宜一点<img s
 封面图是妮娜？
 <img src="https://p.sda1.dev/18/4c7398a2cf06e1272960b293a32ade5e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 570#       发表于 2024-6-25 18:12
+
+妮娜和logo不是一套衣服
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 571#       发表于 2024-6-25 18:16
+
+logo就剪影怎么看得出来是不是啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 572#       发表于 2024-6-25 18:17
+
+crow和曹李<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 573#       发表于 2024-6-25 18:17
+
+隔夜饭都吐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/1278e42c0744caf2df0233ae37460385/CMP_20240625181727377.jpg" referrerpolicy="no-referrer">
+

@@ -105,3 +105,11 @@
 
 240石出杜尔伽+难敌，难敌甚至是转战怖军池子才出的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  深渊骑士  
+##### 46475#       发表于 2024-6-25 18:13
+
+6哥十连杜尔佳到手 难敌甚至满宝了，接下来可以安心等泳装池了。
+

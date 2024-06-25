@@ -2567,3 +2567,14 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 反正用这个当网名的脑子不正常。
 
+
+*****
+
+####  ruffian  
+##### 20415#       发表于 2024-6-25 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65372260&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-06-25 13:52:21</a>
+不是那个青叶真司到底什么时候死啊，看见他在评论区就烦</blockquote>这人我已经屏蔽了，但还是经常看见其他人回复他的尬到抠脚的小作文……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

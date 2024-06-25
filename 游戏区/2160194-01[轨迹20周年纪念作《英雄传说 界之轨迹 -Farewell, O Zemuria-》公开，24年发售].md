@@ -6145,3 +6145,25 @@ s技特供吧
 
 日本Falcom公开《英雄传说 界之轨迹 -告别塞姆利亚-》WebCM 第二弹，游戏中文版将于9月26日与日版同步发售，登陆PS5/PS4平台。 http://t.cn/A6QiF6rY ​​​<img src="https://p.sda1.dev/18/1d434f4f869c0fcd841beb32beceafec/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 624#       发表于 2024-6-25 19:48
+
+ 本帖最后由 ravend233 于 2024-6-25 19:50 编辑 
+
+考虑到其中一个背景有疑似创世的台子，是第九个创世或者仿制创世？（）
+
+不要再回头找表了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 625#       发表于 2024-6-25 19:54
+
+台子是封印大君那个创世的
+

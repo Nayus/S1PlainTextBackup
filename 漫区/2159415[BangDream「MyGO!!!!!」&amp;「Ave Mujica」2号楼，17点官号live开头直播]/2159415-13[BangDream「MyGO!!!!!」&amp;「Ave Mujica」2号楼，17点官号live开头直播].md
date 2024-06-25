@@ -3011,3 +3011,20 @@ lofter那边也有接力<img src="https://static.saraba1st.com/image/smiley/face
 
 今晚蹲下李子对初华的生贺
 
+
+*****
+
+####  SakuraのOrigami  
+##### 18052#       发表于 2024-6-25 19:50
+
+R组的几首曲子
+
+怎么听着有点SH的味道()
+
+*****
+
+####  PDQ4  
+##### 18053#       发表于 2024-6-25 19:51
+
+看到萝MV，我果然还是好这口中二的味道<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

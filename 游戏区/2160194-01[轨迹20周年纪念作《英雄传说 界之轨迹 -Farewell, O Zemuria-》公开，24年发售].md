@@ -6268,3 +6268,67 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 
 阿龙难道能换武器？有拳套双拐双剑了
 
+
+*****
+
+####  Aeons  
+##### 636#       发表于 2024-6-25 20:36
+
+这就要提起一个老说法了，fcsc期间老卡就是唯一剑圣，八叶也只是亚妮拉斯技能名一部分，3rd才联系起来。
+
+*****
+
+####  ravend233  
+##### 637#       发表于 2024-6-25 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377709&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-6-25 20:24</a>
+梵跟剑女的手套真的是一对的啊，艹，这会不会是村上的私货</blockquote>
+一边是手环一边是手套，答案是端水
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 638#       发表于 2024-6-25 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我范恩不是女人的玩物
+
+*****
+
+####  Aeons  
+##### 639#       发表于 2024-6-25 20:39
+
+再夺走创世那太司马了吧
+
+*****
+
+####  ravend233  
+##### 640#       发表于 2024-6-25 20:39
+
+学妹这几个台词倒是一股子自己要跑路赶紧让van和剑女复合的感觉（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  洛克萨斯  
+##### 641#       发表于 2024-6-25 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学妹牺牲成全剑女？不是吧，还是说学妹+创世是盟主或者啥玩意的人柱力？
+
+*****
+
+####  Aeons  
+##### 642#       发表于 2024-6-25 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">必不可能
+
+*****
+
+####  Squall25  
+##### 643#       发表于 2024-6-25 20:45
+
+手套，手环都是你法设计的堆叠要素而已，跟皮带靴子一个道理。菲莉这次的设计也是单个手套，总不能说菲莉和艾蕾因或者菲莉和范恩是一对吧
+

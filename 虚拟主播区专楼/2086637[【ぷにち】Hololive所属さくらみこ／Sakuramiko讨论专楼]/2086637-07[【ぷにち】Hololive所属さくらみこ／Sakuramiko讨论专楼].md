@@ -2518,3 +2518,28 @@ miko：我最喜欢兄弟吵架的作品了！
 
 之前是知道这个业内的视频制作导演是个资深35P也参与了多个miko的曲子MV制作，没想到也是个八字母头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和redalice一起
 
+
+*****
+
+####  holoan  
+##### 9102#         楼主| 发表于 2024-6-25 19:56
+
+<img src="https://img.saraba1st.com/forum/202406/25/195543d323wtirbgsta22f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 19:55 上传
+
+嗯……考虑到今天的联动是regloss后辈主动邀请的，封面大概是这5人里面某个小天才作的
+
+*****
+
+####  holoan  
+##### 9103#         楼主| 发表于 2024-6-25 20:38
+
+486明天联动昨天很多人玩得那个chainedtogether
+
+那基本确定miko也来了，昨天会限提到过48miko有联动近期，加上上周说的这周的苦行game联动
+

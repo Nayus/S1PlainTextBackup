@@ -6602,3 +6602,11 @@ logo的女人大概率是学妹了吧，最后会牺牲自己成全剑女（当�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 667#       发表于 2024-6-26 00:04
+
+我是看出来了 就算大伙骂了四部闪轨 还是爱黎恩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

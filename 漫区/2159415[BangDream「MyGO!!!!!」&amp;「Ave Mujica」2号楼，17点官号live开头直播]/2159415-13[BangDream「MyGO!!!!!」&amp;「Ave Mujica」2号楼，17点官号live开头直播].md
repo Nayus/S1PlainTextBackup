@@ -3284,3 +3284,13 @@ R组的Sage der Rosen
 
 [https://x.com/Kanon_Takao/status/1805625616613655135](https://x.com/Kanon_Takao/status/1805625616613655135)
 
+
+*****
+
+####  PDQ4  
+##### 18073#       发表于 2024-6-26 00:00
+
+祝我们ave mujica最伟大的主唱生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+攒了一小时该去推上淘图了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

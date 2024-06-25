@@ -2498,3 +2498,23 @@ miko：我最喜欢兄弟吵架的作品了！
 
 我还想说查半天根本没查到那个数量级的来源，想了一下原来是你用AI查的啊，难怪觉得语言组织很奇怪因为博人传是DLC，AI不知道
 
+
+*****
+
+####  rs5621  
+##### 9100#       发表于 2024-6-25 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑啦，喜欢乱说话是这样的
+
+*****
+
+####  holoan  
+##### 9101#         楼主| 发表于 2024-6-25 19:43
+
+【VTuber】AdoのMVも作ったさくらみこオタクの映像監督に裏話聞いてみた（？）【超筋肉】
+[https://www.youtube.com/watch?v=SU4Uji-BYlI](https://www.youtube.com/watch?v=SU4Uji-BYlI)
+
+13:14 一番思い入れのある映像作品について（ぺこみこ大戦争）
+
+之前是知道这个业内的视频制作导演是个资深35P也参与了多个miko的曲子MV制作，没想到也是个八字母头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和redalice一起
+

@@ -1072,3 +1072,13 @@ ios没有版本更新？
 
 水着活动要通关2.7才能参加，我日服小号寄了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 12900#       发表于 2024-6-25 09:47
+
+今年泳装要进奏章好像年初就在说了吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

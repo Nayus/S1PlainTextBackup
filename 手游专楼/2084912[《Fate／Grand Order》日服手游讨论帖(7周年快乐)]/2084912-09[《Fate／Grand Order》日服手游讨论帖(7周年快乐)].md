@@ -1106,3 +1106,11 @@ ios没有版本更新？
 
 不過都沒石去抽泳裝池，300石連20張符全部都丟去獸尼，但也只是出了毒婦，保底機制是否有出4星也會重置?
 
+
+*****
+
+####  清河子  
+##### 12903#       发表于 2024-6-26 00:45
+
+好多蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/5155e01c838e258b902069aba365721c/CMP_20240626004450431.jpg" referrerpolicy="no-referrer">
+

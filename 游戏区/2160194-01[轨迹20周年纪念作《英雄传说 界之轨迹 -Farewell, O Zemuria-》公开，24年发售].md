@@ -6450,3 +6450,54 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 看着好像就是阿龙同款的双剑</blockquote>
 不就是中国剑而已吗，中国剑不都绑着剑恵，象征身份高贵
 
+
+*****
+
+####  ravend233  
+##### 656#       发表于 2024-6-25 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378669&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 21:44</a>
+不就是中国剑而已吗，中国剑不都绑着剑恵，象征身份高贵</blockquote>
+应该不是完全同款，毕竟看不清楚，不过感觉是个和阿龙有点关系的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  simon~  
+##### 657#       发表于 2024-6-25 21:49
+
+<img src="https://img.saraba1st.com/forum/202406/25/214908i9po1ivkd1q19fv1.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1454.GIF</strong> (129.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202406/25/214908x3osartspnuatza6.jpg" referrerpolicy="no-referrer">
+
+<strong>FD1204B1-528B-4B65-A559-F67DF1C941C0.jpg</strong> (58.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 21:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  洛克萨斯  
+##### 658#       发表于 2024-6-25 21:52
+
+<img src="https://img.saraba1st.com/forum/202406/25/215244iyrqq3brk3130u1j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 21:52 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新角色？还是盖乌斯
+

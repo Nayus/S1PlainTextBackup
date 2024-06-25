@@ -5531,3 +5531,26 @@ OK，那差不多应该是700左右，应该比淘宝那些760便宜一点<img s
 
 估计黎轨销量对他打击不小，界轨宣发投入也是烂
 
+
+*****
+
+####  Piano-Forest  
+##### 564#       发表于 2024-6-25 17:51
+
+「英雄伝説 界の軌跡 -Farewell, O Zemuria-」WebCM 第2弾
+[https://youtu.be/6P8vitrIGAk](https://youtu.be/6P8vitrIGAk)
+
+*****
+
+####  ssobsb  
+##### 565#       发表于 2024-6-25 17:54
+
+唉，克洛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 566#       发表于 2024-6-25 17:55
+
+那个戴面具的不会又是大少吧
+

@@ -3094,3 +3094,13 @@ R组的几首曲子
 
 [https://x.com/Kanon_Takao/status ... th7uDsytQQ&amp;s=33](https://x.com/Kanon_Takao/status/1805589802534027551?t=Q8iF6idJDcfBth7uDsytQQ&amp;s=33)
 
+
+*****
+
+####  星天观测  
+##### 18057#       发表于 2024-6-25 21:23
+
+萝的新立绘也有点难评啊
+
+不过还是比air好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

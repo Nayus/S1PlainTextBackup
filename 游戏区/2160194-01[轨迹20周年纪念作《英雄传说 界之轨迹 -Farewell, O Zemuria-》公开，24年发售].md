@@ -6430,3 +6430,13 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 最后神秘男说的 後ろの正面だあれ，是不是创轨那个ep名</blockquote>
 就是那个
 
+
+*****
+
+####  哆哆鸡  
+##### 654#       发表于 2024-6-25 21:32
+
+吐槽gay的怎么现在才吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+闪2的时候就已经大卖特卖了吧 后面还出过这2人的抱枕呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+闪2还有一首著名gay曲  布鲁 戴斯特泥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

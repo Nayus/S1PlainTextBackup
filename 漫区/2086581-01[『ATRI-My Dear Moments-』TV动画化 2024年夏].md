@@ -819,3 +819,13 @@ TROYCA真是不错，光是这制作就有保底，加藤诚作为青木英的�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  JetBrains  
+##### 69#       发表于 2024-6-25 21:25
+
+说真本作魔改可能还真好看些<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

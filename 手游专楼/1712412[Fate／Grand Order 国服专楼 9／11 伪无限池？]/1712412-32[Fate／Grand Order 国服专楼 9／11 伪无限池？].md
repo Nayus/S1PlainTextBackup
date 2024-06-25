@@ -97,3 +97,11 @@
 
 现在的环境除非宝具有特殊的机制，不然一宝除了周长就没啥用了。百层塔另说
 
+
+*****
+
+####  khxooo  
+##### 46474#       发表于 2024-6-25 17:19
+
+240石出杜尔伽+难敌，难敌甚至是转战怖军池子才出的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

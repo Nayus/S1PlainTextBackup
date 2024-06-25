@@ -3030,7 +3030,7 @@
     "lastedit": 1719339900,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2101293": {
     "totalreply": 1383,
@@ -22302,10 +22302,10 @@
     "update": false
   },
   "2188783": {
-    "totalreply": 103,
+    "totalreply": 105,
     "title": "[宫崎英高是怎么火起来的]",
     "newtitle": "[宫崎英高是怎么火起来的]",
-    "lastedit": 1719342261,
+    "lastedit": 1719346811,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -23018,6 +23018,15 @@
     "newtitle": "[比5G速率快 10倍 的5G-A已经来了]",
     "lastedit": 1719342740,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2188975": {
+    "totalreply": 42,
+    "title": "[黄金树幽影里你最讨厌的小怪]",
+    "newtitle": "[黄金树幽影里你最讨厌的小怪]",
+    "lastedit": 1719346811,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

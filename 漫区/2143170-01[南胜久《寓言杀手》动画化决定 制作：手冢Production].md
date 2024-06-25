@@ -14,3 +14,11 @@
 
 忍不住追了原作，第二部汉化居然烂尾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 116#       发表于 2024-6-25 11:46
+
+原作第二部挺烂的，属于没活狗尾续貂
+

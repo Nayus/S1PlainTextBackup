@@ -3164,3 +3164,14 @@ zelda.jpg
 自问自答：还有2015年的马造1，有各种塞尔达系列形态。2012年有个叫涂鸦小子：无限的游戏，能使用风棍里的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实楼里提到过的CDi上的塞尔达是最早能操作塞尔达的塞尔达，只不过因为是授权出去做的，做的又烂，直接黑历史了
 
+
+*****
+
+####  Zeno_5  
+##### 310#       发表于 2024-6-25 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65347421&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-6-23 17:00</a>
+
+突然想到能操作塞尔达的游戏，是不是全部都在ns了。新作、两个无双、节奏海拉鲁、大乱斗，除了前代的大乱斗 ...</blockquote>
+小火车也能操纵塞尔达
+

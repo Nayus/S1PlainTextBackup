@@ -3336,3 +3336,20 @@ xhs上传8月底引进？真嘟假嘟
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  notqiao  
+##### 1755#       发表于 2024-6-25 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378390&amp;ptid=2178694" target="_blank">battleship64 发表于 2024-6-25 21:21</a>
+
+xhs上传8月底引进？真嘟假嘟
+
+论坛助手,iPhone</blockquote>
+万南公众号开始推送高达内容 掐指一算差不多接近三个月不提高达 算是过了冷却期
+
+更多情况估计下个月BW展上会透露更多吧
+
+谜语人暗示这次公关代价不小 其实上不上票房也就那样了 更像是展示实力
+

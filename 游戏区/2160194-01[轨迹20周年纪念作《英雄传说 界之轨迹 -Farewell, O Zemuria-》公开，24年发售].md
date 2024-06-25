@@ -6501,3 +6501,32 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新角色？还是盖乌斯
 
+
+*****
+
+####  Aeons  
+##### 659#       发表于 2024-6-25 21:58
+
+<img src="https://img.saraba1st.com/forum/202406/25/215828yorxuxutughurzrr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D63FBE83-E553-41D3-8704-5422CADE11B3.jpeg</strong> (232.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 21:58 上传
+
+笑这b样不是一眼伊克斯，镜像反的。
+
+
+*****
+
+####  卢迪克  
+##### 660#       发表于 2024-6-25 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378702&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 21:47</a>
+
+应该不是完全同款，毕竟看不清楚，不过感觉是个和阿龙有点关系的东西
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+全红剑和全蓝剑，只是和阿龙一样都绑着剑惠而已吧
+

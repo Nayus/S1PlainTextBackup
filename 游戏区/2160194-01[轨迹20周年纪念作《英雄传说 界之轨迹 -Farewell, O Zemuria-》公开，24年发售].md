@@ -6538,3 +6538,49 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 
 眼睛会发光的人略多……
 
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 662#       发表于 2024-6-25 22:47
+
+ 本帖最后由 唧唧歪歪八卦阵 于 2024-6-25 22:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376149&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 18:36</a>
+
+阿龙换武器了，阿龙是白虎，剑仙是中国龙。
+
+朱雀和玄武不知道有没有</blockquote>
+阿龙还有一个拳套武器
+
+<img src="https://img.saraba1st.com/forum/202406/25/224724ks0xpw48du88pxv8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240625224401.png</strong> (436.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 22:47 上传
+
+翻译
+搜索复制
+
+*****
+
+####  smdzh2  
+##### 663#       发表于 2024-6-25 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378528&amp;ptid=2160194" target="_blank">哆哆鸡 发表于 2024-6-25 22:32</a>
+吐槽gay的怎么现在才吐槽
+闪2的时候就已经大卖特卖了吧 后面还出过这2人的抱枕呢
+闪2还有一首著名gay曲  布 ...</blockquote>
+I will remember you更基好吧，ed画面上来就是50米拉雄伟の背影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 664#       发表于 2024-6-25 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376996&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-6-25 19:30</a>
+
+面具符号感觉有点眼熟，但想不太起来</blockquote>
+符号是盟主脖子下面挂饰式样？
+

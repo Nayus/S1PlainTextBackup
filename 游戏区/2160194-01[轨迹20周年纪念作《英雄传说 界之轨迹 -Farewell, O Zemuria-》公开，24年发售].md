@@ -6389,3 +6389,44 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 我不服！界轨这pv多香啊</blockquote>
 宣传投入少啊，就指着老粉买单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 650#       发表于 2024-6-25 21:18
+
+最后神秘男说的 後ろの正面だあれ，是不是创轨那个ep名
+
+*****
+
+####  ravend233  
+##### 651#       发表于 2024-6-25 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378282&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 21:11</a>
+暗喻幻想线下宣传拉满了，界轨线下基本零宣发，甚至法社推特背景还是伊苏x没换上界轨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/48a96e370e7944338e57f0e3cb238684/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 652#       发表于 2024-6-25 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378368&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 21:19</a>
+
+今天刚刚换了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+早上看还没有，终于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 653#       发表于 2024-6-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65378361&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-6-25 21:18</a>
+最后神秘男说的 後ろの正面だあれ，是不是创轨那个ep名</blockquote>
+就是那个
+

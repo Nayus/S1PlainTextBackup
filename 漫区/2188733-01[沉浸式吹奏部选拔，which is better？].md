@@ -690,3 +690,20 @@ NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ddy2811  
+##### 69#       发表于 2024-6-25 18:17
+
+b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过我感觉好像动画里面对谁是谁、谁的风格怎么样表现得更明显一些
+
+*****
+
+####  MagicGiraffe  
+##### 70#       发表于 2024-6-25 18:20
+
+理性讨论，参照场外盲选结果，大伙觉得你京配音用心思了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -5611,3 +5611,86 @@ crow和曹李<img src="https://static.saraba1st.com/image/smiley/face2017/001.pn
 
 隔夜饭都吐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/1278e42c0744caf2df0233ae37460385/CMP_20240625181727377.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 574#       发表于 2024-6-25 18:19
+
+怎么还有曹李？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火焰的攻击  
+##### 575#       发表于 2024-6-25 18:20
+
+这滑板真不是伊苏X的？
+
+运输屋到底入不入队啊
+
+
+*****
+
+####  keiyoku  
+##### 576#       发表于 2024-6-25 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375709&amp;ptid=2160194" target="_blank">Cloudslin 发表于 2024-6-25 18:02</a>
+最后的女声是莉丝吧，期待新模型</blockquote>
+明显是女演员妮娜啊
+
+*****
+
+####  酷乐  
+##### 577#       发表于 2024-6-25 18:23
+
+秒变私享
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 578#       发表于 2024-6-25 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沃日，大的要来了
+
+*****
+
+####  alucardcz  
+##### 579#       发表于 2024-6-25 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要曹 不要黑月！
+
+*****
+
+####  新世界的派蒙  
+##### 580#       发表于 2024-6-25 18:24
+
+这....这是第二s技么，好起来了嗷
+
+*****
+
+####  smdzh2  
+##### 581#       发表于 2024-6-25 18:25
+
+曹李+克洛，双倍的惊吓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkz9821  
+##### 582#       发表于 2024-6-25 18:25
+
+挑染妹子好像也是Lynn?
+
+*****
+
+####  fshzx  
+##### 583#       发表于 2024-6-25 18:25
+
+卧槽最后是鸟海浩辅哇
+
+*****
+
+####  酷乐  
+##### 584#       发表于 2024-6-25 18:26
+
+没有莉丝啊，剑女建模很不错啊
+

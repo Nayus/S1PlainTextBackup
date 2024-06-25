@@ -230,3 +230,22 @@
 
 疣体批的头像，不会被误伤<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 1852#       发表于 2024-6-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65365677&amp;ptid=2152053" target="_blank">osore 发表于 2024-6-24 23:15</a>
+微博和它lga有什么关系呢
+再说lga也没实锤是我看你get不get得到</blockquote>
+ID都给你截出来了，跑不了的
+
+*****
+
+####  蒜灵  
+##### 1853#       发表于 2024-6-25 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65343548&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2024-6-23 10:07</a></blockquote>
+居然有长发千束，难以想象
+

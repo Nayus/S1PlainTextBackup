@@ -3694,3 +3694,21 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 就派对这一作独立剧场版没有任何系列前作角色客串。就天空组独立剧场版碰上周年纪念顺带客串。 只能说太“独立”了
 
+
+*****
+
+####  杂灰  
+##### 1809#       发表于 2024-6-25 12:29
+
+狗q的路人人设存在感好强，戏份就几个镜头的路人都能上个挑染<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1810#       发表于 2024-6-25 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65370203&amp;ptid=2162354" target="_blank">Blackson 发表于 2024-6-25 11:37</a>
+
+就派对这一作独立剧场版没有任何系列前作角色客串。就天空组独立剧场版碰上周年纪念顺带客串。 只能说太“ ...</blockquote>
+拥抱的独立剧场版也是碰上周年纪念变成全明星了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

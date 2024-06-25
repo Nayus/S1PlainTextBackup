@@ -6440,3 +6440,13 @@ pv台词已经说了塞姆利亚在不久后就会结束然后再次开始。
 闪2的时候就已经大卖特卖了吧 后面还出过这2人的抱枕呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 闪2还有一首著名gay曲  布鲁 戴斯特泥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 655#       发表于 2024-6-25 21:44
+
+<blockquote>ravend233 发表于 2024-6-25 19:11
+看着好像就是阿龙同款的双剑</blockquote>
+不就是中国剑而已吗，中国剑不都绑着剑恵，象征身份高贵
+

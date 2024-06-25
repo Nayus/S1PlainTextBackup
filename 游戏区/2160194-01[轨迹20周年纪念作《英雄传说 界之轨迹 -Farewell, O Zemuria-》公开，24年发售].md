@@ -6040,3 +6040,70 @@ s技特供吧
 
 这次剧本近藤准备致敬前社员高桥哲哉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 615#       发表于 2024-6-25 19:28
+
+<img src="https://img.saraba1st.com/forum/202406/25/192832g3ugtvcq28gq8gq1.png" referrerpolicy="no-referrer">
+
+<strong></strong> (89.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 19:28 上传
+
+<img src="https://img.saraba1st.com/forum/202406/25/192835jykma1azz1qcw8o2.png" referrerpolicy="no-referrer">
+
+<strong>OQ542VOCJ~MUC~)KLL~P)TJ.png</strong> (28.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 19:28 上传
+
+*****
+
+####  Aeons  
+##### 616#       发表于 2024-6-25 19:30
+
+面具符号感觉有点眼熟，但想不太起来
+
+
+*****
+
+####  hkguty  
+##### 617#       发表于 2024-6-25 19:33
+
+这个看着像是AI、机器人之类的东西，上面一个像阿龙，这个则不像，应该是量产货？
+
+*****
+
+####  ravend233  
+##### 618#       发表于 2024-6-25 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像没啥能拿来造假药的信息了（）
+
+*****
+
+####  ravend233  
+##### 619#       发表于 2024-6-25 19:38
+
+<img src="https://img.saraba1st.com/forum/202406/25/193744jtqcrajzx711nqax.png" referrerpolicy="no-referrer">
+
+<strong>R{KTDKGPZK5SE6LV9Z@T@HB.png</strong> (278.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 19:37 上传
+
+<img src="https://img.saraba1st.com/forum/202406/25/193746xgvv1dg93llkxzol.png" referrerpolicy="no-referrer">
+
+<strong>WU(Z1~ALA@`HX@]75W(3}}6.png</strong> (102.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 19:37 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮娜应该可以排除了
+

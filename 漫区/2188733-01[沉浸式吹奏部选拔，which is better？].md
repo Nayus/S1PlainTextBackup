@@ -744,3 +744,11 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 顺便一说我没看过原作，看到处都在讨论说魔改了，有坛友说说改了啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  congnian  
+##### 74#       发表于 2024-6-25 19:33
+
+没学过器乐，选的1
+

@@ -3294,3 +3294,34 @@ R组的Sage der Rosen
 
 攒了一小时该去推上淘图了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  K·os  
+##### 18074#       发表于 2024-6-26 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377687&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-25 20:22</a>
+
+青木这下半年差不多有三个月都在跑舞台剧啊，wsd都不调整一下多企划同步时候的日程的吗
+
+ ...</blockquote>
+武士道身兼多职的人大把大把的，它这么排只能表明它觉得这样没问题，中之人累一点嘛，没事的
+
+话虽如此，企划忠臣其实也不少就是了
+
+
+*****
+
+####  NODY  
+##### 18075#       发表于 2024-6-26 00:14
+
+你俩是掐表了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/26/001410njj5zppqsq75wmza.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (31.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 00:14 上传
+

@@ -707,3 +707,40 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 理性讨论，参照场外盲选结果，大伙觉得你京配音用心思了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾ACC  
+##### 71#       发表于 2024-6-25 18:42
+
+坏了，这下我成叶月了
+
+*****
+
+####  lmclmc2  
+##### 72#       发表于 2024-6-25 18:42
+
+ 本帖最后由 lmclmc2 于 2024-6-25 18:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375932&amp;ptid=2188733" target="_blank">MagicGiraffe 发表于 2024-6-25 18:20</a>
+
+理性讨论，参照场外盲选结果，大伙觉得你京配音用心思了吗</blockquote>
+这种东西场外评选本来就是图个乐
+
+再者说，差距不大的时候，公选本身就不是真的靠技术选人，是要靠公选来推动某种不好推动的东西
+
+不然你看这些评论的音乐UP主或者之类的专业人士也要加一句自己不是专精，难免判断失误。何况作品内
+
+所以除非设定就是差距很大，不然这段的目的，某种意义上本就不是要靠公选选出更好的一个
+
+其实高坂的这一票理应设定为至少10票的价值，就是为了她这一票（包括后面那一大段）搞得这个戏剧场面
+
+
+*****
+
+####  何でやねん  
+##### 73#       发表于 2024-6-25 18:46
+
+我选二号，看动画时选的是一号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便一说我没看过原作，看到处都在讨论说魔改了，有坛友说说改了啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

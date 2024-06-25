@@ -261,3 +261,37 @@ ID都给你截出来了，跑不了的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  有骨气的百合  
+##### 1855#       发表于 2024-6-25 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375761&amp;ptid=2152053" target="_blank">yenvy 发表于 2024-6-25 18:07</a>
+围脖说a1透露剧场版在做了？
+
+之前有说是剧场还是tv还是都有吗，记不清了</blockquote>
+先剧场版后第二季，剧场版可能在25年年初
+
+*****
+
+####  skives  
+##### 1856#       发表于 2024-6-25 18:41
+
+等一个千束痛哭回箭头
+
+
+*****
+
+####  osore  
+##### 1857#       发表于 2024-6-25 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火车人特有的幻觉
+
+*****
+
+####  帝下室の年糕  
+##### 1858#       发表于 2024-6-25 18:46
+
+回箭头前能看到牢泷拷打千佛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

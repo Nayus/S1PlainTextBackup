@@ -5753,3 +5753,31 @@ crow和曹李<img src="https://static.saraba1st.com/image/smiley/face2017/001.pn
 由手机上传
 2024-6-25 18:35 上传
 
+
+*****
+
+####  真飞鸟i  
+##### 588#       发表于 2024-6-25 18:42
+
+新神气先灰再白再变黑不知道有没有什么特殊含义
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红魔馆的糖  
+##### 589#       发表于 2024-6-25 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376149&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 18:36</a>
+阿龙换武器了，阿龙是白虎，剑仙是中国龙。
+
+朱雀和玄武不知道有没有</blockquote>
+s技特供吧
+
+*****
+
+####  克里斯蒂娜  
+##### 590#       发表于 2024-6-25 18:46
+
+阿龙是不是偷学了克州拐圣技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2554,3 +2554,16 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 屏蔽就好了
 
+
+*****
+
+####  ads147147  
+##### 20414#       发表于 2024-6-25 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65372260&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-6-25 13:52</a>
+
+不是那个青叶真司到底什么时候死啊，看见他在评论区就烦</blockquote>
+屏蔽他就好了，个人之前对这个名字没啥敏感度，现在在后悔之前有回复过他。
+
+反正用这个当网名的脑子不正常。
+

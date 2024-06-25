@@ -3266,3 +3266,21 @@ R组的Sage der Rosen
 
 所以wsd从哪个角落找来的fire和air<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18072#       发表于 2024-6-25 23:46
+
+哎呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/25/234621p9qd8u4oqurqy4qi.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (100.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:46 上传
+
+[https://x.com/Kanon_Takao/status/1805625616613655135](https://x.com/Kanon_Takao/status/1805625616613655135)
+

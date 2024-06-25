@@ -616,3 +616,24 @@ NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真
 
 （如果猜错了当我没说，毕竟我不是吹铜管的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  艾ACC  
+##### 62#       发表于 2024-6-25 13:38
+
+谁好我说不明白，但一听就感觉是黄部长，不知道对不对。
+
+
+*****
+
+####  CosimoZi  
+##### 63#       发表于 2024-6-25 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65369141&amp;ptid=2188733" target="_blank">幽灵部长助理 发表于 2024-6-25 10:32</a>
+
+我吹oboe的，没有看动画，以下瞎说的。
+
+1音色更华丽，但气息没有2稳。2看似平淡，但对乐器的控制更游刃有余 ...</blockquote>
+同感, 我也是双簧管(不过是业余), 不知道铜管是怎样, 但1高音有点挤上去, 2是更举重若轻点的
+

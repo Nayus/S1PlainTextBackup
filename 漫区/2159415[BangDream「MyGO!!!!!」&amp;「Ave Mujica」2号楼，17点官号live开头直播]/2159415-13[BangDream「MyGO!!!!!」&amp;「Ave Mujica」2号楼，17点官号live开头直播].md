@@ -2995,3 +2995,11 @@ https://www.oblivionis.com/
 
 2024-6-25 12:41 上传
 
+
+*****
+
+####  星天观测  
+##### 18050#       发表于 2024-6-25 13:39
+
+lofter那边也有接力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

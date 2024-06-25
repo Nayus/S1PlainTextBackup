@@ -22,3 +22,13 @@
 
 原作第二部挺烂的，属于没活狗尾续貂
 
+
+*****
+
+####  smdzh2  
+##### 117#       发表于 2024-6-25 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65369755&amp;ptid=2143170" target="_blank">07579394 发表于 2024-6-25 12:09</a>
+忍不住追了原作，第二部汉化居然烂尾了</blockquote>
+贴吧有机翻，去年就翻译完了
+

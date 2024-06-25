@@ -656,3 +656,14 @@ NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真
 不懂，凭感觉选1吧
 2听到33秒那里感觉断得有点突兀
 
+
+*****
+
+####  BarryAllen  
+##### 66#       发表于 2024-6-25 15:16
+
+ 本帖最后由 BarryAllen 于 2024-6-25 15:20 编辑 
+
+对比了一下，答案揭晓 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/16c4a49538b7961e87a3af27d9a2f85b/output.png" referrerpolicy="no-referrer">
+

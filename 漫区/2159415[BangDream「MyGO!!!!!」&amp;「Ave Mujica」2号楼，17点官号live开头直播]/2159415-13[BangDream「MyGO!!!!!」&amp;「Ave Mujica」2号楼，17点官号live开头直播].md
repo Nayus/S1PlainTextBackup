@@ -3325,3 +3325,122 @@ R组的Sage der Rosen
 
 2024-6-26 00:14 上传
 
+
+*****
+
+####  NODY  
+##### 18076#       发表于 2024-6-25 23:08
+
+一个弹13集的钢琴，一个唱13集的歌是吧，可以可以
+
+<img src="https://img.saraba1st.com/forum/202406/25/230816if2wjbjy2wccwob6.png" referrerpolicy="no-referrer">
+
+<strong>无标题4.png</strong> (46.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:08 上传
+
+*****
+
+####  星天观测  
+##### 18077#       发表于 2024-6-25 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65379643&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-25 23:08</a>
+
+一个弹13集的钢琴，一个唱13集的歌是吧，可以可以</blockquote>
+李和弄不会是商量过的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18078#       发表于 2024-6-25 23:21
+
+还刻意多录了一段视频，太有心了
+
+*****
+
+####  星天观测  
+##### 18079#       发表于 2024-6-25 23:34
+
+推上的大佬们好会画啊
+
+所以wsd从哪个角落找来的fire和air<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18080#       发表于 2024-6-25 23:46
+
+哎呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/25/234621p9qd8u4oqurqy4qi.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (100.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 23:46 上传
+
+[https://x.com/Kanon_Takao/status/1805625616613655135](https://x.com/Kanon_Takao/status/1805625616613655135)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| [皆神孝介]| + 2|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  PDQ4  
+##### 18081#       发表于 2024-6-26 00:00
+
+祝我们ave mujica最伟大的主唱生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+攒了一小时该去推上淘图了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 18082#       发表于 2024-6-26 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377687&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-25 20:22</a>
+
+青木这下半年差不多有三个月都在跑舞台剧啊，wsd都不调整一下多企划同步时候的日程的吗
+
+ ...</blockquote>
+武士道身兼多职的人大把大把的，它这么排只能表明它觉得这样没问题，中之人累一点嘛，没事的
+
+话虽如此，企划忠臣其实也不少就是了
+
+*****
+
+####  NODY  
+##### 18083#       发表于 2024-6-26 00:14
+
+你俩是掐表了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/26/001410njj5zppqsq75wmza.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (31.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 00:14 上传
+
+*****
+
+####  大叶饺子  
+##### 18084#       发表于 2024-6-26 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65380261&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-26 00:14</a>
+你俩是掐表了？</blockquote>
+鼻鼓李铁三角小团体的含金量
+

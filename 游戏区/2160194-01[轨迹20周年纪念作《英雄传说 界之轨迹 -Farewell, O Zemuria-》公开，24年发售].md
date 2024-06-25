@@ -5823,3 +5823,78 @@ s技特供吧
 
 有cv懂哥听下最后cv吗感觉很耳熟
 
+
+*****
+
+####  卢迪克  
+##### 596#       发表于 2024-6-25 18:58
+
+<blockquote>Aeons 发表于 2024-6-25 18:58
+有cv懂哥听下最后cv吗感觉很耳熟</blockquote>
+鸟海浩辅
+
+*****
+
+####  ravend233  
+##### 597#       发表于 2024-6-25 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩面具人武器不一样，而且看着背景有个创世，其中一个还是阿龙的双刀同款，很神秘
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  宛若青空  
+##### 598#       发表于 2024-6-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376337&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-25 18:50</a>
+白虎代表月亮-阿龙前世的大君所属月曜众
+
+龙-木 -斑鸠应该九曜众的木曜众了
+
+不过是黑龙也不好说</blockquote>
+怀疑这里云老师用的是黑神流
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 599#       发表于 2024-6-25 19:00
+
+神气合一的瞬间白底黑描边冲击特效，终于融入了些2D动画的表现手法，让我想起了火影究极风暴。
+
+*****
+
+####  卢迪克  
+##### 600#       发表于 2024-6-25 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376481&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:00</a>
+
+俩面具人武器不一样，而且看着背景有个创世，其中一个还是阿龙的双刀同款，很神秘
+
+—— 来自 鹅球 v3.0.0. ...</blockquote>
+第一眼就是ace的建模复用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 601#       发表于 2024-6-25 19:04
+
+看见crow背后的坐席，看来在开机甲，骑神战要回归吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 602#       发表于 2024-6-25 19:04
+
+两个面具人面具不一样，武器不一样，背景疑似创世台子，可以做好心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+「我去年买了套表」
+
+*****
+
+####  ravend233  
+##### 603#       发表于 2024-6-25 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">创世又丢拉
+

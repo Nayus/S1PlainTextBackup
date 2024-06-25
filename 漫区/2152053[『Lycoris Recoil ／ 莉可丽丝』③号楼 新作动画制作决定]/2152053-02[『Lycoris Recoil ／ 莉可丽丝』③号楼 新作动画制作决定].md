@@ -295,3 +295,42 @@ ID都给你截出来了，跑不了的
 
 回箭头前能看到牢泷拷打千佛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 1859#       发表于 2024-6-25 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376200&amp;ptid=2152053" target="_blank">有骨气的百合 发表于 2024-6-25 18:40</a>
+先剧场版后第二季，剧场版可能在25年年初</blockquote>
+真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qz66618  
+##### 1860#       发表于 2024-6-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376285&amp;ptid=2152053" target="_blank">帝下室の年糕 发表于 2024-6-25 18:46</a>
+回箭头前能看到牢泷拷打千佛吗</blockquote>
+绿毛死没死才是最重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  osore  
+##### 1861#       发表于 2024-6-25 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我之前说能比魔圆剧场版先出就算胜利
+现在压力给到沙发套了
+
+
+*****
+
+####  蒜灵  
+##### 1862#       发表于 2024-6-25 19:07
+
+支持tkn狠狠拷打千佛
+

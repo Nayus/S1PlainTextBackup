@@ -667,3 +667,16 @@ NGA那两个我听的出不同，动画也分得清。但LZ这两文件我是真
 对比了一下，答案揭晓 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/16c4a49538b7961e87a3af27d9a2f85b/output.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 67#       发表于 2024-6-25 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65369141&amp;ptid=2188733" target="_blank">幽灵部长助理 发表于 2024-6-25 10:32</a>
+
+我吹oboe的，没有看动画，以下瞎说的。
+
+1音色更华丽，但气息没有2稳。2看似平淡，但对乐器的控制更游刃有余 ...</blockquote>
+很对，初一听，我也更喜欢1的华丽，但是你说得很有道理
+

@@ -889,3 +889,15 @@ u社又搞砸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 我记得母公司应该算是有点人脉关系来着？相查应该查的出
 
+
+*****
+
+####  长谷川红叶  
+##### 383#       发表于 2024-6-26 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65365087&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2024-6-24 23:25</a>
+反正感觉这一期目前看来就是暴露的缺点有点多，能期待的亮点有点少：
+
+司賀りこ没啥说头</blockquote>
+把原当第一周直播的重心的策略居然多少有点用，还能混上近千同接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

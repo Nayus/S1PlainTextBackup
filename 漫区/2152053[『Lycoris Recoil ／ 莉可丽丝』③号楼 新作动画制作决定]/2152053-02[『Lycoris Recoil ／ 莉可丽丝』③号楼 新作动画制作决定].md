@@ -222,3 +222,11 @@
 都截图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 [https://ngabbs.com/read.php?tid=40643034](https://ngabbs.com/read.php?tid=40643034)
 
+
+*****
+
+####  Saber琪  
+##### 1851#       发表于 2024-6-25 12:19
+
+疣体批的头像，不会被误伤<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

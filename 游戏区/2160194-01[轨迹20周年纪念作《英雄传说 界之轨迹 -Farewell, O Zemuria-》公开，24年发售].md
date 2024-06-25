@@ -5781,3 +5781,45 @@ s技特供吧
 
 阿龙是不是偷学了克州拐圣技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 591#       发表于 2024-6-25 18:48
+
+学妹这语音不会真要牺牲了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 592#       发表于 2024-6-25 18:50
+
+白虎代表月亮-阿龙前世的大君所属月曜众
+
+龙-木 -斑鸠应该九曜众的木曜众了
+
+
+*****
+
+####  Aeons  
+##### 593#       发表于 2024-6-25 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能不能转点好的图，曹李，还有克洛这张看着好gay，都不想点进去看了
+
+*****
+
+####  血腥莓果  
+##### 594#       发表于 2024-6-25 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65376019&amp;ptid=2160194" target="_blank">hkz9821 发表于 2024-6-25 18:25</a>
+
+挑染妹子好像也是Lynn?</blockquote>
+我印象中送货员cv是小见川千明，也就是破音姬。
+
+*****
+
+####  Aeons  
+##### 595#       发表于 2024-6-25 18:58
+
+有cv懂哥听下最后cv吗感觉很耳熟
+

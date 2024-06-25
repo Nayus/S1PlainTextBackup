@@ -121,3 +121,13 @@
 
 难绷，杜尔迦之后看卡面只有剑美杜莎和仇蛋糕比较喜欢，但这俩强度上是不是都没什么说法
 
+
+*****
+
+####  khxooo  
+##### 46477#       发表于 2024-6-25 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375966&amp;ptid=1712412" target="_blank">sandro 发表于 2024-6-25 18:21</a>
+难绷，杜尔迦之后看卡面只有剑美杜莎和仇蛋糕比较喜欢，但这俩强度上是不是都没什么说法 ...</blockquote>
+是的，直至青子为止，除了水摩根、两个泳装五星、老头有点强度外，其他可以说都是花瓶。
+

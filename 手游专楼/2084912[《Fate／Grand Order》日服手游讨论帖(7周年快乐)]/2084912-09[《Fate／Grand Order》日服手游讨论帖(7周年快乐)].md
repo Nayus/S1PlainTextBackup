@@ -1064,3 +1064,11 @@ ios没有版本更新？
 
 好，忍住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 12899#       发表于 2024-6-25 09:04
+
+水着活动要通关2.7才能参加，我日服小号寄了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

@@ -7908,3 +7908,35 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 游戏的剧本从不是特定的某一个人全权负责，制作人，主文案，其他文案各有各的分工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gxc521  
+##### 781#       发表于 2024-6-26 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65388779&amp;ptid=2160194" target="_blank">yanglian72 发表于 2024-6-26 16:29</a>
+
+笑得不行了</blockquote>
+轨迹侠智障这么多年  又不是一天两天了
+
+还碰瓷黑神话  被腾讯封号
+
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/26/163826tykztw96yi6zrkgx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240626163738.jpeg</strong> (114.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 16:38 上传
+
+*****
+
+####  龙之峰  
+##### 782#       发表于 2024-6-26 16:39
+
+我觉得闪12分割一大半都是技术问题，反倒跟剧本关系没那么大。
+
+闪1的psv版随便打个小怪都要加载十几秒，虽然到闪2缩短到了几秒，但这技术能力根本就不可能一部完结闪12这么个大框架的故事。到闪34就是积重难返，倒是能在剧本上删改。
+

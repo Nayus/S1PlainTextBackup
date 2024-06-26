@@ -3448,3 +3448,40 @@ https://www.bilibili.com/video/BV1Nx4y1t7N6/?spm_id_from=333.999.0.0&amp;vd_sour
 
 平井不是退步 他是一直没有进步
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1762#       发表于 2024-6-26 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65385866&amp;ptid=2178694" target="_blank">oh_my_god 发表于 2024-6-26 13:03</a>
+
+平井是真的退步太多了
+
+这一幕的三人，对比种子时期这一集，真的丑太多了</blockquote>
+这段里，02年初版基拉和阿斯兰就已经画得这么帅了，卡嘉莉除了搂着他们俩时的画面外，其他都在重制版里修了
+
+<img src="https://img.saraba1st.com/forum/202406/26/135234hd7hz1lbkszbb8m7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240626_134908_tv.danmaku.bilibilihd.jpg</strong> (235.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/135239fji3e4mel939brr3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240626_134928_tv.danmaku.bilibilihd.jpg</strong> (235.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:52 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/135243wa66frgqu60fro9a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240626_135014_tv.danmaku.bilibilihd.jpg</strong> (340.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:52 上传
+

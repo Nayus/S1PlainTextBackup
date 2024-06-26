@@ -7880,3 +7880,31 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 捏成两部就得少渲染点帝国的矛盾全力推主线，主角团大概也没必要搞那么齐全的出身阶层和对照组，贵族/平民、大贵/改革派之类的冲突扔给npc同学去表现
 
+
+*****
+
+####  洛克萨斯  
+##### 778#       发表于 2024-6-26 16:26
+
+零碧轨是某些剧情是新人写的吧，不是全部啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanglian72  
+##### 779#       发表于 2024-6-26 16:29
+
+<blockquote>gxc521 发表于 2024-6-26 16:22
+中年人的崩溃！
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+笑得不行了
+
+*****
+
+####  ravend233  
+##### 780#       发表于 2024-6-26 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">访谈意思也只是零碧这个点子最开始是新人突发奇想搞的，最后肯定还是整个编剧组加上近藤一起搞的
+
+游戏的剧本从不是特定的某一个人全权负责，制作人，主文案，其他文案各有各的分工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

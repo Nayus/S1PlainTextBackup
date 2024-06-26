@@ -7765,3 +7765,20 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 说起来大统领赶紧搞个《暴力团对策法》吧，黑月曹李这坨东西早该死死了<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 768#       发表于 2024-6-26 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑月这玩意现在写出来已经是个位于共和国的地下帝国了，搞不了一点吧（）
+
+*****
+
+####  卢迪克  
+##### 769#       发表于 2024-6-26 15:48
+
+<blockquote>古畑任三郎2015 发表于 2024-6-26 15:40
+说起来大统领赶紧搞个《暴力团对策法》吧，黑月曹李这坨东西早该死死了</blockquote>
+共和国不就靠东方人才革命成功的，黑月是他们亲爹
+

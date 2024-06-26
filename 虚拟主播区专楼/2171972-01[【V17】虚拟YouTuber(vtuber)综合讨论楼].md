@@ -968,3 +968,11 @@ u社又搞砸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 四人一匹结果只有吉祥物有热度，虹女没落了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 389#       发表于 2024-6-27 00:05
+
+被打脸了，结果人外才是王吗
+

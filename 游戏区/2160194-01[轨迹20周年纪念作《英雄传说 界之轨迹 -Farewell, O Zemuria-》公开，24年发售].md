@@ -8389,3 +8389,21 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以还会有以结社成员为主角的轨迹么 我还蛮期待这种设定的
 
+
+*****
+
+####  卢迪克  
+##### 825#       发表于 2024-6-26 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65392212&amp;ptid=2160194" target="_blank">jinxi42 发表于 2024-6-26 21:16</a>
+
+所以还会有以结社成员为主角的轨迹么 我还蛮期待这种设定的</blockquote>
+近藤意思说轨迹有台面上和台面下，结社主角缺少和台面上的人打交道的机会。不能随便逛街做支线之类的。
+
+*****
+
+####  ravend233  
+##### 826#       发表于 2024-6-26 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不会有结社主角了，不过最终章还没确定下来，不是没可能（）
+

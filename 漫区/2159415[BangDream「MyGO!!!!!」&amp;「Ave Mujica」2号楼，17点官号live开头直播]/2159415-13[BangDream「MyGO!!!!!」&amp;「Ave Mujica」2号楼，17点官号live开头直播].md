@@ -3507,3 +3507,11 @@ R组的Sage der Rosen
 
 —— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星天观测  
+##### 18092#       发表于 2024-6-26 21:12
+
+那能不能直接ykls+双子啊，只要lisa能赢我什么都会做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6738,3 +6738,51 @@ logo的女人大概率是学妹了吧，最后会牺牲自己成全剑女（当�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近原创番屎吃得多了，黎2吃起来也没那么屎了，我还买的日版WGO限定版再买了个PC
 
+
+*****
+
+####  aimujie  
+##### 681#       发表于 2024-6-26 09:33
+
+知道是屎也要吃首发<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 682#       发表于 2024-6-26 09:33
+
+我之前都在考虑要不要买ps5了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aimujie  
+##### 683#       发表于 2024-6-26 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65382807&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-6-26 09:33</a>
+
+我之前都在考虑要不要买ps5了你楼赶紧多黑黑让我不买立省
+
+—— 来自 S1Fun</blockquote>
+不买，直接ps4版
+
+*****
+
+####  ravend233  
+##### 684#       发表于 2024-6-26 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">登场大量前作角色分戏份，PV大量展示闪轨角色，这事要行种命基神故事换主角口牙（）
+
+
+*****
+
+####  古畑任三郎2015  
+##### 685#       发表于 2024-6-26 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65382890&amp;ptid=2160194" target="_blank">aimujie 发表于 2024-6-26 09:39</a>
+不买，直接ps4版</blockquote>
+ps4已经卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

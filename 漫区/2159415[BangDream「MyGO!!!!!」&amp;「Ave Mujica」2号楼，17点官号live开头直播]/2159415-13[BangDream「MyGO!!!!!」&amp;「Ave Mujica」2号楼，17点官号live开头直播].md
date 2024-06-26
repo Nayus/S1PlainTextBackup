@@ -3479,3 +3479,21 @@ R组的Sage der Rosen
 
 去萌百上看了下三个服的投票，应该不是完全按人气投的，第四回总选举，日服投票的队伍是layer，sayo，saya，msk，rui。繁中服msr，lock，lisa，kanon，pareo。简中服ykn，薰，nnm，ako，eve。
 
+
+*****
+
+####  星天观测  
+##### 18089#       发表于 2024-6-26 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65391682&amp;ptid=2159415" target="_blank">祐天寺若麦 发表于 2024-6-26 20:23</a>
+
+已经可以开始制作ykn那组的卡面了</blockquote>
+哎，遗老<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 18090#       发表于 2024-6-26 20:48
+
+日服那边可能有主题或者梗的因素（比如上面的魔王队），国内估计还是比较看人气投，老角色就是ykn优势最大，要是队伍里再带个爱音或者素世基本上可以确定第一了
+

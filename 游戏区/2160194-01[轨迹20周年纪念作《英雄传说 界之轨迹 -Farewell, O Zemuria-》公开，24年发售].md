@@ -7837,3 +7837,46 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  龙之峰  
+##### 773#       发表于 2024-6-26 16:16
+
+内战就是在解决贵族矛盾啊，主线脉络不会变的。
+
+*****
+
+####  ravend233  
+##### 774#       发表于 2024-6-26 16:18
+
+不过也不重要了，总不能马上宣布闪轨remake 然后重写剧情两部完结（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  洛克萨斯  
+##### 775#       发表于 2024-6-26 16:18
+
+入学——实习——拿到骑神资格把c的组织干掉——去帝都接受表彰的时候内战就地被卷进去——逃离帝都前往各地的灵窟积蓄力量——煌魔城大战完成第一相克——桃花剑升官灰之骑士，第一部完结
+
+删掉闪2找同学那些水剧情的，差不多就这样了
+
+
+*****
+
+####  gxc521  
+##### 776#       发表于 2024-6-26 16:22
+
+中年人的崩溃！<img src="https://p.sda1.dev/18/80e3932ed228fb1e890c327316d78f82/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  aimujie  
+##### 777#       发表于 2024-6-26 16:22
+
+捏成两部就得少渲染点帝国的矛盾全力推主线，主角团大概也没必要搞那么齐全的出身阶层和对照组，贵族/平民、大贵/改革派之类的冲突扔给npc同学去表现
+

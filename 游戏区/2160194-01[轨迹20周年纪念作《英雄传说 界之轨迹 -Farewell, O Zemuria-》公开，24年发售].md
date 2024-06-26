@@ -8062,3 +8062,42 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 我说制度没问题了？
 闪12之前法老控基本能做到一年一作还能保证剧本完整性，闪轨开始3d化，技术的要求提上来了，才开始出现分割成四部的情况，你说和技术完全没关系才是纯纯的搞笑。来自: iPhone客户端
 
+
+*****
+
+####  暗之谋者  
+##### 794#       发表于 2024-6-26 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389574&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-6-26 17:26</a>
+
+不岁月史书的说，当年零碧也没少骂，我印象很清楚玛利亚贝尔那张变成使徒的cg一出来泥潭就彻底炎上了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">是的，零轨那个时期全在喷人物塑造烂，碧轨最后的尊严论也没少吵……也不知怎么现在好像都拿零碧当起标杆了233
+
+*****
+
+####  gxc521  
+##### 795#       发表于 2024-6-26 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389687&amp;ptid=2160194" target="_blank">暗之谋者 发表于 2024-6-26 17:35</a>
+是的，零轨那个时期全在喷人物塑造烂，碧轨最后的尊严论也没少吵……也不知怎么现在好像都拿零碧当起标杆 ...</blockquote>
+因为尼谭大巨魔和他的孝子贤孙吹呗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 796#       发表于 2024-6-26 17:41
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+活到现在还没想明白轨迹最劝退的其实是分割商法和超长的系列长度
+
+*****
+
+####  椎名mahuyo  
+##### 797#       发表于 2024-6-26 17:46
+
+技术力要求提高，以前60人就能一年做一个游戏的制度就出问题了1
+

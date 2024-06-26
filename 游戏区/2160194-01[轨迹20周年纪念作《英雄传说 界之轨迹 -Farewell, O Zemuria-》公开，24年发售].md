@@ -6728,3 +6728,13 @@ logo的女人大概率是学妹了吧，最后会牺牲自己成全剑女（当�
 
 2024-6-26 07:08 上传
 
+
+*****
+
+####  ravend233  
+##### 680#       发表于 2024-6-26 09:28
+
+ 本帖最后由 ravend233 于 2024-6-26 09:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近原创番屎吃得多了，黎2吃起来也没那么屎了，我还买的日版WGO限定版再买了个PC
+

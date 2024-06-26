@@ -8240,3 +8240,34 @@ ys8和ysx都做两作男女双主角了，轨迹怎么比
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剑女真赢了我多买几份
 
+
+*****
+
+####  一步成诗  
+##### 811#       发表于 2024-6-26 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65390304&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-26 18:22</a>
+
+ys8和ysx都做两作男女双主角了，轨迹怎么比</blockquote>
+那轨迹为什么不可以也这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 812#       发表于 2024-6-26 18:29
+
+ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当主人公塑造，篇幅全堆女主头上，只要你法社编剧正常发挥肯定塑造比你轨一堆人分猪肉好<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 813#       发表于 2024-6-26 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65390373&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-26 18:28</a>
+那轨迹为什么不可以也这样呢</blockquote>
+可能你法社觉得二人的物语不好卖角色吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

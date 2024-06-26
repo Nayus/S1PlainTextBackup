@@ -8148,3 +8148,35 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
 YS也是这样，疯狂给红毛找前面几年的空档。所以他真是这么认为的。
 
+
+*****
+
+####  洛克萨斯  
+##### 802#       发表于 2024-6-26 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389862&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 17:50</a>
+
+零碧你把支援科作为一个整体去参与克州的剧情在剧本完成度上是还行的，但是人物塑造只能说，四人主角团都能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她和后继角色亚里沙都不行，就顾着贴标签了
+
+*****
+
+####  ravend233  
+##### 803#       发表于 2024-6-26 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389937&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 17:56</a>
+她和后继角色亚里沙都不行，就顾着贴标签了</blockquote>
+主要这俩角色的设定可以展开的点上都是你法社写不好的偏政治的内容，不写这块自然就没戏份了
+
+亚莉莎应该也是发现了这个问题，加了地精王之女的设定以方便参与主线，至于为什么人又被写成路人了我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  smdzh2  
+##### 804#       发表于 2024-6-26 18:02
+
+把皮相很美、仕途一片光明的女主角写成阿卡林，说明编剧就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

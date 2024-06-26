@@ -121,3 +121,27 @@
 
 其实是为了扩散伤害刀死你们
 
+
+*****
+
+####  肉搏光头  
+##### 167#       发表于 2024-6-26 17:55
+
+漫画版也好看，比如女主漫画就是日系角色少有的画得非常漂亮的类型；我们看一个人的相貌为什么会觉得好看呢，这就跟五官和脸型的精致度有关，比如我们看一个欧美的娃娃脸模特Barbara Palvin（pal圣骑士/朋友，VinVincent胜利，比如家人侠Vin Diesel，胜利之友），她就是大眼睛+小脸+很精致的五官，女主这种二次元画风重点就是眼睛要画得好看，然后跟嘴唇的线搭配得好就能有一种美感，像这样！
+
+<img src="https://img.saraba1st.com/forum/202406/26/175528fs1jnn5s3shl0l5d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5.jpeg.jpeg</strong> (60.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/175530dcfcfocchofoyxxo.jpg" referrerpolicy="no-referrer">
+
+<strong>snip_20240522042849.jpg</strong> (102.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 17:55 上传
+

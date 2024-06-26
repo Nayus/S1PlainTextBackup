@@ -901,3 +901,16 @@ u社又搞砸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/
 司賀りこ没啥说头</blockquote>
 把原当第一周直播的重心的策略居然多少有点用，还能混上近千同接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devi_Lito  
+##### 384#       发表于 2024-6-26 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65381356&amp;ptid=2171972" target="_blank">长谷川红叶 发表于 2024-6-26 03:01</a>
+
+把原当第一周直播的重心的策略居然多少有点用，还能混上近千同接</blockquote>
+初见原才近千同接这不是已经底边数据了嘛
+
+反正现在能看的人太多了（昨晚石神杂谈repo，栞叶和しば联动，名前のない組还有个KTV回），目前这批新人我已经当不存在了，等以后有人爆火了再说
+

@@ -12452,3 +12452,46 @@ P吉大着肚子来吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://p.sda1.dev/18/ffb28fa02a6325cf7ca4bf8da5aa1731/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奶鸭子  
+##### 5604#       发表于 2024-6-26 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65388148&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-6-26 15:43</a>
+
+每年唯一顶着本家头衔的活动，来5个你就嫌多了？</blockquote>
+最近几年都是5家各两位 事出反常
+
+*****
+
+####  Piano-Forest  
+##### 5605#       发表于 2024-6-26 18:02
+
+アイドルマスター特別生配信
+
+＼19th→20th Special Party!!!!!!／
+
+　𓊯〰❦〰𓊯〰❦𓊯〰❦〰𓊯〰❦
+
+🎉2024年7月26日(金)19:00～(予定)✨
+
+[https://youtube.com/live/rf3pUPr8jTE](https://youtube.com/live/rf3pUPr8jTE)
+
+19周年のお祝いと
+
+20周年に向けてスタートを切るための
+
+最新情報をお届けします❢
+
+*****
+
+####  鳄鱼头  
+##### 5606#       发表于 2024-6-26 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387851&amp;ptid=2130897" target="_blank">奶鸭子 发表于 2024-6-26 15:21</a>
+5个AS？代子这是在干什么，总不能准备做散伙饭吧
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+你大概忘了8.24有啥
+

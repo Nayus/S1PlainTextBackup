@@ -8180,3 +8180,20 @@ YS也是这样，疯狂给红毛找前面几年的空档。所以他真是这么
 
 把皮相很美、仕途一片光明的女主角写成阿卡林，说明编剧就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 805#       发表于 2024-6-26 18:08
+
+ 本帖最后由 ravend233 于 2024-6-26 18:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65390031&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-6-26 18:02</a>
+把皮相很美、仕途一片光明的女主角写成阿卡林，说明编剧就好这口</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+零碧没关注宣传暂且不说，闪轨我印象里从没官方承认过亚莉莎是女主角
+
+你法社从闪轨算起，对外宣传明确过女主角位置的就明日香，丹娜，学妹，兄弟这四个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

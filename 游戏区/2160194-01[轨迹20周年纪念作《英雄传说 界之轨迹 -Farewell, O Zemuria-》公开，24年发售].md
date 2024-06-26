@@ -7050,3 +7050,18 @@ TGGB46EBV09UXLQV2%$]8BC_tmb.jpg
 
 <img src="https://img.saraba1st.com/forum/202406/26/130711edkszbfdeo6tspw7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  theti  
+##### 707#       发表于 2024-6-26 13:18
+
+为什么一定要有曹李，他人气很高吗？还是近藤觉得他写的很好？
+
+*****
+
+####  smdzh2  
+##### 708#       发表于 2024-6-26 13:21
+
+平川大辅宇宙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

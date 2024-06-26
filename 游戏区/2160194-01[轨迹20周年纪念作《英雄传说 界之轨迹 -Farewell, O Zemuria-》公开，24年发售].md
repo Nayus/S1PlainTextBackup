@@ -8271,3 +8271,25 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  瞬间少年JUMP  
+##### 814#       发表于 2024-6-26 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389747&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-6-26 17:41</a>
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗
+
+活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
+然而黎轨既没有分割，长度也就2部，那么有没有可能黎轨自身其实问题不少呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 815#       发表于 2024-6-26 18:39
+
+黎轨的问题就是普，没有任何足以出圈的要素爆销量，画面不行，2d立绘不行，剧情平平稳稳，人设不够吸引人，加上前作完结的debuff和宣发乏力，以及同期还有个破晓传说，卖得好那真是天照大神显灵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

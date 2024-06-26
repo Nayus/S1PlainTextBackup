@@ -151,3 +151,14 @@ GAL是PC掌机的终极归宿
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微软从手机surface到手柄，出过什么靠谱的移动端硬件吗
 
+
+*****
+
+####  a7765131  
+##### 70#       发表于 2024-6-26 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65355542&amp;ptid=2188007" target="_blank">bypass 发表于 2024-6-24 09:54</a>
+
+我也最喜欢这种串流方案。搭配静音点的传统手柄（DualSense 或者 NS Pro），相比直接夹手机夹平板或者掌 ...</blockquote>
+你用的是哪一款的支架？我试了下绿联的，感觉要收起来的时候会觉得不方便
+

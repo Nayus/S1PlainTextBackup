@@ -58,3 +58,20 @@ ig这是怎么了，被哪个op夺舍了？
 
 vspo搞了个大活，7000+应聘者的真名住址活动名声音采样泄漏，vspo的主播今晚的直播全停了
 
+
+*****
+
+####  秋游刃  
+##### 16575#       发表于 2024-6-26 01:09
+
+有名单吗？
+
+*****
+
+####  ablast  
+##### 16576#       发表于 2024-6-26 17:01
+
+支持你麻加vspo箱<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -8368,3 +8368,16 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  无动于衷  
+##### 823#       发表于 2024-6-26 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389687&amp;ptid=2160194" target="_blank">暗之谋者 发表于 2024-6-26 17:35</a>
+
+是的，零轨那个时期全在喷人物塑造烂，碧轨最后的尊严论也没少吵……也不知怎么现在好像都拿零碧当起标杆 ...</blockquote>
+比烂论
+
+原本以为克州篇是低谷了，没想到帝国篇还能给你挖个坑
+

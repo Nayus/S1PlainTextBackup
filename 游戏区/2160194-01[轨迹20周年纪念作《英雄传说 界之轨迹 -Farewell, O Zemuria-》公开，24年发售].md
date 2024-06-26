@@ -7509,3 +7509,63 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 我记得很久以前就看过，竹入交闪1的剧本时进度就是到皇魔城的，结果做着发现做不完，只能硬生生砍成了两 ...</blockquote>
 那我觉得要快进到直接闪1完成第一相克干掉克洛，闪2开始节点就是当灰之骑士全帝国跑最后解决巨硕黄昏，新7要么人设和旧7融合要么在这个阶段当跟班或者直接删掉，但不能再走一次学院线了，太拖
 
+
+*****
+
+####  ravend233  
+##### 745#       发表于 2024-6-26 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387249&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 14:42</a>
+
+那我觉得要快进到直接闪1完成第一相克干掉克洛，闪2开始节点就是当灰之骑士全帝国跑最后解决巨硕黄昏，新 ...</blockquote>
+闪要4合2那新7基本只需要保留个黑兔（那也没必要再搞个新7上学了)
+
+旧7都得把一些没啥必要的角色和相对更重要的角色缝合起来
+
+*****
+
+####  暗之谋者  
+##### 746#       发表于 2024-6-26 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387249&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 14:42</a>
+
+那我觉得要快进到直接闪1完成第一相克干掉克洛，闪2开始节点就是当灰之骑士全帝国跑最后解决巨硕黄昏，新 ...</blockquote>
+本身新7的设定就是后面现加的。在一开始的剧本里肯定没有，你就直接删掉没问题的。
+
+反而是黑兔这个闪2就登场的应该不会没，但是会不会定位是现在的贴身小棉袄就不好说了……
+
+*****
+
+####  洛克萨斯  
+##### 747#       发表于 2024-6-26 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387307&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:46</a>
+
+闪要4合2那新7基本只需要保留个黑兔（那也没必要再搞个新7上学了)</blockquote>
+地精代表，魔女代表，军方代表，贵族代表，平民代表，差不多了，盖乌斯倒是可以保留，作为衔接教会和高原那边的纽带
+
+
+*****
+
+####  暗之谋者  
+##### 748#       发表于 2024-6-26 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387132&amp;ptid=2160194" target="_blank">diectt 发表于 2024-6-26 14:35</a>
+
+创本质fandisk后日谈，没必要合，大概创轨对主线最大的影响就是把大少洗白了+拉碧丝的出现
+
+闪1234合2部 ...</blockquote>
+马奇亚斯的重要性其实比艾略特高，这个角色实际上是作为纯粹的平民派和二少做对照组的。也是闪1里面平民和贵族两派对抗的一半缩影。艾略特我记得一开始的设定好像是黎恩的青梅竹马来着，后来这个设定删了，但是人物保留了吧……但闪轨前期里艾略特和黎恩的关系也是最好的，毕竟性格和善好说话。
+
+但你要说，艾略特和马奇亚斯能不能合二为一，我觉得是可以的2333
+
+*****
+
+####  ravend233  
+##### 749#       发表于 2024-6-26 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387358&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 14:49</a>
+
+地精代表，魔女代表，军方代表，贵族代表，平民代表，差不多了，盖乌斯倒是可以保留，作为衔接教会和高原 ...</blockquote>
+盖乌斯感觉可以和艾略特缝合一下？（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

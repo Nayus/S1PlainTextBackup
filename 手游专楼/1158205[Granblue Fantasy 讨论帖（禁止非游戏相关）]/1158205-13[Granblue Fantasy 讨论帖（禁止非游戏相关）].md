@@ -42,3 +42,11 @@
 
 一档估计22亿就搞定了，还好
 
+
+*****
+
+####  Geyorkias  
+##### 17956#       发表于 2024-6-26 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">新职业铳枪挺好用的，全程接近满血，就是有点慢，但上班FA也无所谓速度了，能打就行
+

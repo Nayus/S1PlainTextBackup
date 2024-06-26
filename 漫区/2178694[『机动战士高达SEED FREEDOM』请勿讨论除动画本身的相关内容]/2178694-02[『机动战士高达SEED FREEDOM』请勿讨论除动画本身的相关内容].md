@@ -3398,3 +3398,45 @@ https://www.bilibili.com/video/BV1Nx4y1t7N6/?spm_id_from=333.999.0.0&amp;vd_sour
 『#ガンダムSEED』のイラストが解禁✨
 <img src="https://p.sda1.dev/18/1b9b8a00bf4a1efadacf4f7dc6dd8621/20240626_115152.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gcw  
+##### 1759#       发表于 2024-6-26 13:01
+
+有点对味<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oh_my_god  
+##### 1760#       发表于 2024-6-26 13:03
+
+平井是真的退步太多了
+
+这一幕的三人，对比种子时期这一集，真的丑太多了
+
+<img src="https://img.saraba1st.com/forum/202406/26/130231m0xeenn7y9x991ke.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240223_180643_tv.danmaku.bili.jpg</strong> (150.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/130231m94966yimkkp9mk6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240223_180601_tv.danmaku.bili.jpg</strong> (197.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/130231b71u7i1c77twj244.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240223_180632_tv.danmaku.bili.jpg</strong> (150.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:02 上传
+

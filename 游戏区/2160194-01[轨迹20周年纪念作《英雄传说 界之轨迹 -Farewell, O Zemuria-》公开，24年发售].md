@@ -8497,3 +8497,43 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  zhuhh  
+##### 835#       发表于 2024-6-26 23:17
+
+<img src="https://img.saraba1st.com/forum/202406/26/231654vre8vs802773kl57.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240626231637.png</strong> (86.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 23:16 上传
+
+卢法斯和拉碧丝立绘看起来还行
+
+QQ截图20240626231448.jpg
+(55.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 23:16 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/231654tzta6z2jbpiisjab.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 836#       发表于 2024-6-26 23:19
+
+拉碧丝脸挺怪，这就是enami的风格吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 837#       发表于 2024-6-26 23:23
+
+拉酱～～～长大了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -7419,3 +7419,66 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 闪1234创能压成两部？
 
+
+*****
+
+####  ravend233  
+##### 737#       发表于 2024-6-26 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386941&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 14:21</a>
+
+闪1234创能压成两部？</blockquote>
+创轨毕竟是额外添加的故事，肯定压不进去。
+
+紧凑点第一部把闪1+2写完，第二部把闪3+4的核心主线写完应该还是做得到
+
+
+*****
+
+####  卢迪克  
+##### 738#       发表于 2024-6-26 14:34
+
+空轨的设想都在界轨完成了
+
+完结篇 主演未定剧本暂无，当场现编，要烂尾了
+
+*****
+
+####  ravend233  
+##### 739#       发表于 2024-6-26 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386933&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-26 14:20</a>
+
+看到ff7三部曲大暴死，不敢出了，不过走格子转3d本来就是大工程，GF宁愿去做宝可梦ZA也不愿意做黑白重制 ...</blockquote>
+空轨哪怕用黎轨的技术重制，大量用小人实现的演出还有各种城市地图的3D化，工程量小不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FC+SC怕不是都要给你搞成三部曲
+
+惦记remake真不如赶紧出终章或者拿边检料糊弄一个新世界观的IP等你轨完结了接上
+
+*****
+
+####  diectt  
+##### 740#       发表于 2024-6-26 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386941&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 14:21</a>
+
+闪1234创能压成两部？</blockquote>
+创本质fandisk后日谈，没必要合，大概创轨对主线最大的影响就是把大少洗白了+拉碧丝的出现
+
+闪1234合2部问题不大，3部可能观感更好点，但人员要调，比如马奇亚斯、艾略特大概就没出场的必要了
+
+*****
+
+####  暗之谋者  
+##### 741#       发表于 2024-6-26 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387064&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:29</a>
+
+创轨毕竟是额外添加的故事，肯定压不进去。
+
+紧凑点第一部把闪1+2写完，第二部把闪3+4的核心主线写完应该 ...</blockquote>
+我记得很久以前就看过，竹入交闪1的剧本时进度就是到皇魔城的，结果做着发现做不完，只能硬生生砍成了两部，第二部剧本量不够就只能疯狂注水导致评价暴跌。
+
+其实你把新七砍了，闪3和4合成一部主人公还是旧7，再挤挤水分，其实闪轨的剧情并不差的……
+
+还是傻逼一年一作体制害得。当然也有闪轨时突然改成3d制作，falcom不适应工期延误了的关系。
+

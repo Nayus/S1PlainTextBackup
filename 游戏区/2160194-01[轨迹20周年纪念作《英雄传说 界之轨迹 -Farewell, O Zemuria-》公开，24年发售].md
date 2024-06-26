@@ -6839,3 +6839,11 @@ ps5也没几个钱，这么喜欢轨迹就买呗，现在每年新出的jrpg其�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不急其实可以等明年NS2吧，除了FF传说这些应该绝大多数JRPG的IP都能在NS2上玩到，还有火纹异度这些老任第二方
 
+
+*****
+
+####  Squall25  
+##### 691#       发表于 2024-6-26 10:04
+
+界轨2继续只上ps。恐怕得京迷才能保证ns同步首发
+

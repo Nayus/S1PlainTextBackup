@@ -8349,3 +8349,22 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 我们黎✌️直接就是三个，不解释
 
+
+*****
+
+####  洛克萨斯  
+##### 821#       发表于 2024-6-26 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一黎轨党争还是比闪轨有意思的，闪轨最大的梗黎恩笑容渐渐消失吧
+
+*****
+
+####  ravend233  
+##### 822#       发表于 2024-6-26 19:57
+
+黎2后我寻思也没啥意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续吊着真不如赶紧结束好好推主线
+
+闪的问题是那堆女角色都是给里爷（玩家）选妃的，加上结局开放结局，完全没有争的价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -7679,3 +7679,18 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 范恩方这边预告给的剧情远多，但是特别散，像四处逛街一样看不出比较明确的核心内容 ...</blockquote>
 不同章节的情节吧
 
+
+*****
+
+####  洛克萨斯  
+##### 759#       发表于 2024-6-26 15:07
+
+桃花剑，亚里沙，班长，马奇亚斯，二少，盖乌斯，劳拉，加上闪2入队的黑兔，刚好四男四女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，艾略特军方身份可以直接和劳拉缝一起，给光剑军职就行了
+
+*****
+
+####  ravend233  
+##### 760#       发表于 2024-6-26 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪把过多的角色缝合一下两部真能讲完吧，最要紧的主线确实就那么点东西
+

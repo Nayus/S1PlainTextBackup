@@ -3805,3 +3805,16 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">为什么3D了都不能四足步行，不要站起来啊
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1820#       发表于 2024-6-26 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65368920&amp;ptid=2162354" target="_blank">CureMiracle 发表于 2024-6-25 10:17</a>
+
+该魔法使的登场了！
+
+是新游戏！打游戏我超勇的！</blockquote>
+前辈，电视修不好是打不了游戏的
+

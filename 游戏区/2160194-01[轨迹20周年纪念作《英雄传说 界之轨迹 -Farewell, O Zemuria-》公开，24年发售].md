@@ -6968,3 +6968,14 @@ ysx是基于ns开发的，然后移植给ps版所以才能同步，界轨依旧�
 
 头盔姐可能是重要角色吧，毕竟是太空高达驾驶员，她爸也是个坑
 
+
+*****
+
+####  a2042312  
+##### 702#       发表于 2024-6-26 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65384004&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-26 10:49</a>
+
+轨迹学家恐怖如厮</blockquote>
+图二是谁
+

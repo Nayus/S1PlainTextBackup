@@ -22,3 +22,11 @@
 
 喷了，直接把胶都摆上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Picavian  
+##### 1099#       发表于 2024-6-26 10:59
+
+创彩本体＋无限邂逅服装＋六角机牙装备，甚至加了少量fag的件，这俩新人物可谓是寿屋大合体的典例了
+

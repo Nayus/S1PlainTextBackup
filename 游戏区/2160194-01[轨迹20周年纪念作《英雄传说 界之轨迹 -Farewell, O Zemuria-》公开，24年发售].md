@@ -7818,3 +7818,22 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 大贵族-二少、中小贵族-劳拉、底层平民（魔女）-班长/副班、新兴资产阶级（地精）-亚丽莎，再加个黎恩。教会白兔这些就当外援吧，毕竟主要矛盾是平民与贵族的矛盾。
 
+
+*****
+
+####  ravend233  
+##### 771#       发表于 2024-6-26 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果要两部写完，贵族和平民矛盾估计是淡化处理的，第一部就直接快进到结束内战
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  sprongs  
+##### 772#       发表于 2024-6-26 16:12
+
+里轨3？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

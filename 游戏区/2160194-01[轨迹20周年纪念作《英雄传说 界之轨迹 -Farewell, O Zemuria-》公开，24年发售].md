@@ -8595,3 +8595,13 @@ E圣，E圣你带我走吧<img src="https://static.saraba1st.com/image/smiley/fa
 
 2024-6-26 23:40 上传
 
+
+*****
+
+####  冷泉夜月  
+##### 844#       发表于 2024-6-26 23:49
+
+等等，凯文怎么换cv了。。。换成了兴津和幸，中尾良平也才40多啊完全配得动<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

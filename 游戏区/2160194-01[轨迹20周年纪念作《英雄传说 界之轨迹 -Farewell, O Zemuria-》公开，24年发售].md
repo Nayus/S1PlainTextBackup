@@ -8682,3 +8682,22 @@ e圣这拉碧丝的脸也太扭曲了吧，这好像是个人脸吗
 
 你法用模型跑 AI 图再让自己人描一边都比用 E 圣的反响强，E 圣能力是有的，但这个画风实在不适合这个时候绑上轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 854#       发表于 2024-6-27 00:21
+
+下次做个纯动作游戏，结社人士当主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  simon~  
+##### 855#       发表于 2024-6-27 00:26
+
+敏特居然还能出场
+
+牢莎你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

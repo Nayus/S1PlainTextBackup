@@ -8293,3 +8293,41 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  keiyoku  
+##### 816#       发表于 2024-6-26 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65390323&amp;ptid=2160194" target="_blank">waaaagh 发表于 2024-6-26 18:24</a>
+剑女真赢了我多买几份</blockquote>
+黎2被钓得还不够啊剑女凯子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ミズタ  
+##### 817#       发表于 2024-6-26 19:00
+
+闪1到创的五作剧情，被碧轨最后两三句话直接贯穿了
+
+两三句话框架框住了整个帝国篇，帝国内战到克州解放还用了五作，玩家不觉得剧情灌水才是奇怪吧
+
+反正我觉得写出碧轨最后几句话的，杀死了闪轨
+
+要么当个谜语人，要么什么都别写
+
+
+*****
+
+####  妄想中毒  
+##### 818#       发表于 2024-6-26 19:00
+
+已经有搞基的噱头了，你法天天惦记着50米拉前辈，界轨也不忘他和黎爷一起出场，不知道有多少女玩家买账<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁火辉夜  
+##### 819#       发表于 2024-6-26 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

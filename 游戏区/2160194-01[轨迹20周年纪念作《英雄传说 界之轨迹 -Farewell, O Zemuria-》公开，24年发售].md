@@ -8445,3 +8445,13 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 闪1 3这种过分了点 但像黎1基本没留悬念给后面的我反而觉得味太淡了 所以黎2也没首发
 
+
+*****
+
+####  smdzh2  
+##### 830#       发表于 2024-6-26 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65391335&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 20:55</a>
+有一说一黎轨党争还是比闪轨有意思的，闪轨最大的梗黎恩笑容渐渐消失吧</blockquote>
+现在轮到近藤笑容逐渐消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

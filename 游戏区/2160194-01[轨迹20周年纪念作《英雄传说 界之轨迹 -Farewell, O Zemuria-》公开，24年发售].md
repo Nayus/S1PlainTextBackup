@@ -8101,3 +8101,50 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 技术力要求提高，以前60人就能一年做一个游戏的制度就出问题了1
 
+
+*****
+
+####  暗之谋者  
+##### 798#       发表于 2024-6-26 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389747&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-6-26 17:41</a>
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗
+
+活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">因为这两点是真正的祖宗之法不可变。所以只能找些鸡毛蒜皮的拿来当事儿说了……
+
+*****
+
+####  ravend233  
+##### 799#       发表于 2024-6-26 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389747&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-6-26 17:41</a>
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗
+
+活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪怕知道也不可能直说是我们方向和底层思路错了，只能找个无关痛痒的借口回答销量低了
+
+只不过恰好YS9和黎轨销量不行但是YSX卖得又还行，这个扯淡的理论被莫名其妙证实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 800#       发表于 2024-6-26 17:50
+
+零碧你把支援科作为一个整体去参与克州的剧情在剧本完成度上是还行的，但是人物塑造只能说，四人主角团都能把大小姐人给写成空气，是有水平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hikari520  
+##### 801#       发表于 2024-6-26 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389747&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-6-26 17:41</a>
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗
+
+活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
+YS也是这样，疯狂给红毛找前面几年的空档。所以他真是这么认为的。
+

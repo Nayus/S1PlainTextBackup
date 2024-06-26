@@ -8455,3 +8455,23 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 有一说一黎轨党争还是比闪轨有意思的，闪轨最大的梗黎恩笑容渐渐消失吧</blockquote>
 现在轮到近藤笑容逐渐消失了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 831#       发表于 2024-6-26 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65392455&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-6-26 21:40</a>
+
+最大梗明明是没有那个必要</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的，把这个忘了，剑戟怒涛.mp3
+
+*****
+
+####  无动于衷  
+##### 832#       发表于 2024-6-26 22:01
+
+非揪着分割商法不放，你法的第一个分割商法那可是伊苏
+
+还不如说点实际的，就比如长系列多部曲一定会面临的两个问题：解构和同窗会（借用某KT名宿的话），这两项你法但凡有一个解决的好，那么即使是分割商法也不至于出大乱子
+

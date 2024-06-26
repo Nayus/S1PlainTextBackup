@@ -170,3 +170,37 @@ GAL是PC掌机的终极归宿
 
 出门刷下手机就完事了，没出门玩游戏的需求只会买来吃灰
 
+
+*****
+
+####  bypass  
+##### 72#       发表于 2024-6-26 10:51
+
+ 本帖最后由 bypass 于 2024-6-26 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65383724&amp;ptid=2188007" target="_blank">a7765131 发表于 2024-6-26 10:32</a>
+
+你用的是哪一款的支架？我试了下绿联的，感觉要收起来的时候会觉得不方便 ...</blockquote>
+我是床边支架，用的这款：
+
+<img src="https://img.saraba1st.com/forum/202406/26/104858p23awy2wlyzdp6o0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 10:48 上传
+
+优点是可以折叠收纳，能夹得住 12.9 寸的 iPad Pro 12.9 2022，平板可以 360° 无级旋转。
+
+缺点是横向长度还是略微短了一些，俯仰角只能特定几个角度，不能无级调节，大平板触摸会晃（不过串流的时候不会摸平板就是了）。
+
+*****
+
+####  a7765131  
+##### 73#       发表于 2024-6-26 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65384022&amp;ptid=2188007" target="_blank">bypass 发表于 2024-6-26 10:51</a>
+
+我是床边支架，用的这款：</blockquote>
+感谢感谢，我用了几款都不太满意，试下你的这个
+

@@ -6909,3 +6909,62 @@ ysx是基于ns开发的，然后移植给ps版所以才能同步，界轨依旧�
 
 本来想观望观望，但搞个中文同步首发那只能买了
 
+
+*****
+
+####  卢迪克  
+##### 698#       发表于 2024-6-26 10:49
+
+轨迹学家恐怖如厮
+
+<img src="https://img.saraba1st.com/forum/202406/26/104911kyh3rr6bf3rxlrlf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240626_093106.jpg</strong> (18.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-26 10:49 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/104919qi3deagdaejfgnzf.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719365407527.jpg</strong> (7.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-26 10:49 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/104924bwzjgxxg10vj20qz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240626_104816.jpg</strong> (104.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-26 10:49 上传
+
+*****
+
+####  卢迪克  
+##### 699#       发表于 2024-6-26 10:50
+
+这么说妮娜这身原来不是教会的
+
+
+*****
+
+####  ravend233  
+##### 700#       发表于 2024-6-26 10:54
+
+设计上还算比较有教会的感觉，但是符号上是东方元素吧
+
+估计和那啥皇国有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 701#       发表于 2024-6-26 10:56
+
+头盔姐可能是重要角色吧，毕竟是太空高达驾驶员，她爸也是个坑
+

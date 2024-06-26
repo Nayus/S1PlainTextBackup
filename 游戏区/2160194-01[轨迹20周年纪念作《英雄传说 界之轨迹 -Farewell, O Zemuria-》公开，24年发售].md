@@ -7065,3 +7065,91 @@ TGGB46EBV09UXLQV2%$]8BC_tmb.jpg
 
 平川大辅宇宙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 709#       发表于 2024-6-26 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386093&amp;ptid=2160194" target="_blank">theti 发表于 2024-6-26 13:18</a>
+
+为什么一定要有曹李，他人气很高吗？还是近藤觉得他写的很好？</blockquote>
+可能你法社对他有社内爱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 710#       发表于 2024-6-26 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑月来咯
+
+`P93QQIM)XH@QNN[STUAEX2.jpg
+(180.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:28 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/132823rr5jtwhhlxa1lawr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 711#       发表于 2024-6-26 13:29
+
+エレイン・オークレール
+
+反移民系組織の調査に。
+
+めっちゃ目つきが悪くなった。
+
+今回は夏用の私服(これが！(笑))
+
+黎２とのヴァンとのやり取りを比較してみてほしい
+
+ルネ・キンケイド
+
+バトルでも光る目ガネができる男を演出
+
+国外勢力に接触
+
+彼の口から出る情報に注目
+
+ケビン・グラハム
+
+何らからの任務でルーファスとの接触を図る
+
+これには本作にとって大きな意味がある
+
+武器クロスボウがスパロボっぽくなった
+
+スウィン・アーベル
+
+ルーファスを通じある任務に。
+
+ケビン神父と出会う
+
+ナーディアが困るほどナーディアに対しての微笑ましい場面も
+
+ナーディア・レイン
+
+前作以上に表情豊かに。
+
+ケビンを警戒しつつもいじり倒す
+
+ルーファス・アルバレア
+
+水面下で活動中
+
+ラピスとともに才能を活かしていく
+
+逃走中のハンター
+
+ラピス・ローゼンベルク
+
+新型ボディAIを移す
+
+ちょっと艶っぽくなった
+
+感受性はさらに豊かに、食欲も相変わらず。
+

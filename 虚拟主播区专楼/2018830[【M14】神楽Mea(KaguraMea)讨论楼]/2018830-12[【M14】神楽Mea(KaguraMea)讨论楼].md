@@ -75,3 +75,18 @@ vspo搞了个大活，7000+应聘者的真名住址活动名声音采样泄漏�
 
 —— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Cortana  
+##### 16577#       发表于 2024-6-26 20:19
+
+我去，爆中爆啊，土下座还有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 16578#       发表于 2024-6-26 20:31
+
+因为手机没开免打扰被某人骚扰彻夜没睡
+

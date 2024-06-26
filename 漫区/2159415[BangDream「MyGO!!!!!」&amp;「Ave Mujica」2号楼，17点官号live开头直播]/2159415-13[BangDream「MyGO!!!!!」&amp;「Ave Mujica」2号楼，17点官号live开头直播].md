@@ -3471,3 +3471,11 @@ R组的Sage der Rosen
 忘了这个活动什么规则了，只能说国服人气就直接拿狗做文章呗，现在只说人气肯定狗第一了 ...</blockquote>
 已经可以开始制作ykn那组的卡面了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18088#       发表于 2024-6-26 20:30
+
+去萌百上看了下三个服的投票，应该不是完全按人气投的，第四回总选举，日服投票的队伍是layer，sayo，saya，msk，rui。繁中服msr，lock，lisa，kanon，pareo。简中服ykn，薰，nnm，ako，eve。
+

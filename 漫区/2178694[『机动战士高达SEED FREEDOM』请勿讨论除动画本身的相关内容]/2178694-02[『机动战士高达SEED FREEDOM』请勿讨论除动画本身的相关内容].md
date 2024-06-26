@@ -3375,3 +3375,26 @@ https://www.bilibili.com/video/BV1Nx4y1t7N6/?spm_id_from=333.999.0.0&amp;vd_sour
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 1758#         楼主| 发表于 2024-6-26 12:20
+
+╋━━━━━━━━━━
+
+  ガンダム45周年記念イラスト第二弾
+
+ 　    『機動戦士ガンダムSEED』
+
+　　　　　　　━━━━━━━━━╋
+
+ガンダムシリーズの名シーンを再構築し
+
+新たに書き下ろす記念イラストの第二弾として
+
+#平井久司 さん描き下ろし
+
+『#ガンダムSEED』のイラストが解禁✨
+<img src="https://p.sda1.dev/18/1b9b8a00bf4a1efadacf4f7dc6dd8621/20240626_115152.jpg" referrerpolicy="no-referrer">
+

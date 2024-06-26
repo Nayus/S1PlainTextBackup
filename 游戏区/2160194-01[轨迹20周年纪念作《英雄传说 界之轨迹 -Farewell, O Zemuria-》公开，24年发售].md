@@ -6995,3 +6995,15 @@ ysx是基于ns开发的，然后移植给ps版所以才能同步，界轨依旧�
 
 莉霞的黎轨人设废案？
 
+
+*****
+
+####  卢迪克  
+##### 704#       发表于 2024-6-26 12:22
+
+ 本帖最后由 卢迪克 于 2024-6-26 12:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65377243&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-25 19:48</a>
+
+考虑到其中一个背景有疑似创世的台子，是第九个创世或者仿制创世？（）</blockquote>
+纹路是X.和之前八个不一样，应该是对应120X
+

@@ -7569,3 +7569,113 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 地精代表，魔女代表，军方代表，贵族代表，平民代表，差不多了，盖乌斯倒是可以保留，作为衔接教会和高原 ...</blockquote>
 盖乌斯感觉可以和艾略特缝合一下？（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 750#       发表于 2024-6-26 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387214&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-6-26 14:40</a>
+其实目前可以看出，三方人在目前透露情报中是非常独立的。
+黎恩克洛菲在斑鸠那边，这边说了卢法斯一批和凯 ...</blockquote>
+范恩方这边预告给的剧情远多，但是特别散，像四处逛街一样看不出比较明确的核心内容
+
+*****
+
+####  byisme001  
+##### 751#       发表于 2024-6-26 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386093&amp;ptid=2160194" target="_blank">theti 发表于 2024-6-26 13:18</a>
+为什么一定要有曹李，他人气很高吗？还是近藤觉得他写的很好？</blockquote>
+因为大少所以声优在，建模也有，不用就浪费了
+
+*****
+
+####  无动于衷  
+##### 752#       发表于 2024-6-26 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387153&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-6-26 14:36</a>
+
+就FF7重制那样子，还是别重制了，再说你怎么重制也重制不到FF7那样</blockquote>
+利贝尔做成超大3D地图，然后SC再跑两圈，想想就生草 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  暗之谋者  
+##### 753#       发表于 2024-6-26 14:58
+
+盖乌斯：教会+高原民族势力
+
+艾略特和马奇亚斯融合：平民势力
+
+二少：贵族势力
+
+亚莉莎:财阀+地精
+
+艾玛：魔女势力
+
+菲+劳拉：军方势力
+
+再加个黎恩
+
+其实也就省两个位置……
+
+*****
+
+####  ravend233  
+##### 754#       发表于 2024-6-26 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387477&amp;ptid=2160194" target="_blank">暗之谋者 发表于 2024-6-26 14:58</a>
+
+盖乌斯：教会+高原民族势力
+
+艾略特和马奇亚斯融合：平民势力
+
+二少：贵族势力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">把亚莉莎和艾玛缝起来（×
+
+*****
+
+####  洛克萨斯  
+##### 755#       发表于 2024-6-26 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387401&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:53</a>
+
+盖乌斯感觉可以和艾略特缝合一下？（）</blockquote>
+两个对照组，再加高原和军方，算上桃花剑自己刚好七个，然后闪2黑兔入队刚好常驻八个，前后排满人
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗之谋者  
+##### 756#       发表于 2024-6-26 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387495&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:59</a>
+
+把亚莉莎和艾玛缝起来（×</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">那一个角色同时占了地精+魔女两个重要势力，再加上表面还有财阀之女的身份，我觉得其他女角色拍马都赶不上好吧233
+
+不符合新轨迹时代多女主的潮流啊2333
+
+*****
+
+####  ravend233  
+##### 757#       发表于 2024-6-26 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387531&amp;ptid=2160194" target="_blank">暗之谋者 发表于 2024-6-26 15:00</a>
+
+那一个角色同时占了地精+魔女两个重要势力，再加上表面还有财阀之女的身份，我觉得其他女角色拍马都赶不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这俩缝起来确实直接定死女主位了（）
+
+*****
+
+####  ravend233  
+##### 758#       发表于 2024-6-26 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387426&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-6-26 14:55</a>
+
+范恩方这边预告给的剧情远多，但是特别散，像四处逛街一样看不出比较明确的核心内容 ...</blockquote>
+不同章节的情节吧
+

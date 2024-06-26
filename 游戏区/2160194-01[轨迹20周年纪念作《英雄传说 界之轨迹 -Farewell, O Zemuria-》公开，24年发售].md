@@ -7363,3 +7363,59 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 能就这样3部完结都算烧高香了，想拖中间还能再拖个1,2部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 732#       发表于 2024-6-26 14:17
+
+<img src="https://img.saraba1st.com/forum/202406/26/141730v63sg4y3zeczg6vz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 14:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这意思应该还是有空轨remake的计划，但是估计内部还在讨论
+
+*****
+
+####  diectt  
+##### 733#       发表于 2024-6-26 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386778&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-6-26 14:07</a>
+
+除非大少又挖出来了什么外之理（挂），否则有这个必要吗
+
+一定要带随从骑士这事从黎轨2就不成立了吧，那俩 ...</blockquote>
+大概可能是相同的目的半道组队吧，和创轨一样
+
+野餐队就4个人，轨迹可控人又那么多，正好塞几个人过去做可替换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙之峰  
+##### 734#       发表于 2024-6-26 14:19
+
+曹李肯定会出来的。虽然黎2写的不怎么样，但阿龙的归宿以及黑月后续的内部问题都得从曹李这边走，除非完全不讲煌都和东方人。
+
+前作角色我还是倾向于主要是过来平衡战力，如果存在分线，多半是采用老带新的模式——新反派或者新角色。比如黎恩过来和云老师对对位，重点会在云老师身上，毕竟前代角色故事线差不多了，反复横跳也没意思。
+
+*****
+
+####  卢迪克  
+##### 735#       发表于 2024-6-26 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386899&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:17</a>
+
+这意思应该还是有空轨remake的计划，但是估计内部还在讨论</blockquote>
+看到ff7三部曲大暴死，不敢出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 736#       发表于 2024-6-26 14:21
+
+闪1234创能压成两部？
+

@@ -3460,3 +3460,14 @@ R组的Sage der Rosen
 
 打乱队伍投乐队，基本就看爱素这两个人气最高的在哪个队伍了，像立希那队就是一眼凉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祐天寺若麦  
+##### 18087#       发表于 2024-6-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65391449&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-26 20:04</a>
+
+忘了这个活动什么规则了，只能说国服人气就直接拿狗做文章呗，现在只说人气肯定狗第一了 ...</blockquote>
+已经可以开始制作ykn那组的卡面了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

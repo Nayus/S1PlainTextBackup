@@ -8197,3 +8197,46 @@ YS也是这样，疯狂给红毛找前面几年的空档。所以他真是这么
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  izayoi39  
+##### 806#       发表于 2024-6-26 18:17
+
+分割商法在轨迹都算是祖宗之法了，fc和sc当年就是因为做不完财报没法写强行分割，导致sc刚开始的口碑相当烂，不是后来的3rd足够优秀当时轨迹都要直接没了，3rd的成功也让你法认为如果有问题就堆人物，只要人物够多总能有人会粉的，到了闪轨是更加剧了这种状况罢了
+
+*****
+
+####  smdzh2  
+##### 807#       发表于 2024-6-26 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65390099&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 19:08</a>
+你法社：说什么呢，我没有说过这俩是女主角啊，是你们玩家擅自定义的
+
+零碧没关注宣传暂且不说，闪轨我印 ...</blockquote>
+没想到封面c位居然是欺诈，是我年轻了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 808#       发表于 2024-6-26 18:20
+
+但是近年伊苏女主写出来不知道比轨好多少个度，虽然不是所有但整体也比轨强，我是不是可以认为竹入全责<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 809#       发表于 2024-6-26 18:22
+
+<blockquote>一步成诗 发表于 2024-6-26 18:20
+但是近年伊苏女主写出来不知道比轨好多少个度，虽然不是所有但整体也比轨强，我是不是可以认为竹入全责 ...</blockquote>
+ys8和ysx都做两作男女双主角了，轨迹怎么比
+
+*****
+
+####  waaaagh  
+##### 810#       发表于 2024-6-26 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剑女真赢了我多买几份
+

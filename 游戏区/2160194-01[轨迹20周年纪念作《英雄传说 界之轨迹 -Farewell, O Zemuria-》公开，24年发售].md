@@ -8002,3 +8002,47 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 肯定因为ysx啊，21年三月还说自己不会去开发ns游戏保持授权移植的方式。22年招聘页面才写上ns的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来黎1卖得不好让你法社整个乱套了
 
+
+*****
+
+####  卢迪克  
+##### 789#       发表于 2024-6-26 17:07
+
+<blockquote>ravend233 发表于 2024-6-26 17:03
+看起来黎1卖得不好让你法社整个乱套了</blockquote>
+
+还说那由多轨迹想交给他社移植ns。最后自己做了
+
+<img src="https://img.saraba1st.com/forum/202406/26/170707fdvmzkzaa7mpmfgu.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240626_170659.jpg</strong> (249.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-26 17:07 上传
+
+*****
+
+####  洛克萨斯  
+##### 790#       发表于 2024-6-26 17:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根源就是闪2闪3啊，口碑坏掉了
+
+*****
+
+####  diectt  
+##### 791#       发表于 2024-6-26 17:10
+
+ 本帖最后由 diectt 于 2024-6-26 17:11 编辑 
+
+把闪合成2部的话要从整体看，也就是把新7旧7都算上一起合
+
+首先按法老控这包饺子写法，贵族大部分（露脸的）也是好人，所以其实不用太突出贵族和平民矛盾，马奇亚斯的戏份可以随便找个npc或者挪给其他人就可以了，平民本来就有班长、亚莉莎、菲、阿修了
+
+其次军方那盖乌斯和库尔特都有关系，盖乌斯还另有高原和教会的关系，库尔特另有皇子和范德尔家的关系，艾略特就可以忽略了
+
+第三要删的其实是尤大锤，尤大锤作为串联帝国与克州，零轨和闪轨主角团的作用，实在可以忽略不计
+
+第四如果不考虑二少的cp问题的话，黑白兔其实可以合二为一，但姐妹俩互动还是挺有趣的，算了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

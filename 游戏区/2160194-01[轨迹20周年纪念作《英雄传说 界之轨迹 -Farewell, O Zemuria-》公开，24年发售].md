@@ -6786,3 +6786,56 @@ ps4已经卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  aimujie  
+##### 686#       发表于 2024-6-26 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65382949&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-6-26 09:43</a>
+
+ps4已经卖了
+
+—— 来自 S1Fun</blockquote>
+要不再等等明年猛汉荒野的时候再说<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 687#       发表于 2024-6-26 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65382949&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-6-26 09:43</a>
+
+ps4已经卖了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果确定你法社以后出什么京都迷城伊苏新作都要买来玩玩就买个PS5吧，只玩轨的话是有点亏了
+
+*****
+
+####  无动于衷  
+##### 688#       发表于 2024-6-26 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65382807&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-6-26 09:33</a>
+
+我之前都在考虑要不要买ps5了你楼赶紧多黑黑让我不买立省
+
+—— 来自 S1Fun</blockquote>
+我就怕出现黎轨1那种更新几版才算把该弄完的弄完的情况
+
+比如把CG都画完我日版二周目都差不多了
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 689#       发表于 2024-6-26 09:46
+
+ps5也没几个钱，这么喜欢轨迹就买呗，现在每年新出的jrpg其实也不多了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，今年买来还能玩玩ff7r2
+
+*****
+
+####  ravend233  
+##### 690#       发表于 2024-6-26 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不急其实可以等明年NS2吧，除了FF传说这些应该绝大多数JRPG的IP都能在NS2上玩到，还有火纹异度这些老任第二方
+

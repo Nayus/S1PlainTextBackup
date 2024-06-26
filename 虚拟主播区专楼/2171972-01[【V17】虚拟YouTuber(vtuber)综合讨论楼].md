@@ -952,3 +952,11 @@ u社又搞砸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 要看这1万多人里有多少个写了具体地址的，搬家一次的费用可不低
 
+
+*****
+
+####  星街こうせい  
+##### 387#       发表于 2024-6-26 15:32
+
+然后再泄露一遍新电话号码新地址和用来打钱的银行卡号码是8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

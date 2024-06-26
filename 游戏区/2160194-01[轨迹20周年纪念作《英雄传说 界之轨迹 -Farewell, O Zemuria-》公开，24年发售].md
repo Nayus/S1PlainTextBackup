@@ -8537,3 +8537,43 @@ QQ截图20240626231448.jpg
 
 拉酱～～～长大了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 838#       发表于 2024-6-26 23:24
+
+我算看出来了，enami画男人远比女人正常
+
+*****
+
+####  ravend233  
+##### 839#       发表于 2024-6-26 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从黎1就看得出来吧，他的画风画男人或者老女人还行，年轻女人完全不行
+
+*****
+
+####  无动于衷  
+##### 840#       发表于 2024-6-26 23:28
+
+<blockquote>ravend233 发表于 2024-6-26 23:26
+从黎1就看得出来吧，他的画风画男人或者老女人还行，年轻女人完全不行</blockquote>
+服化道这次也有问题，为什么一定要给整个神功元气袋啊，拉碧斯是这样剑女也是
+
+
+*****
+
+####  新世界的派蒙  
+##### 841#       发表于 2024-6-26 23:29
+
+大少你这剑这么显眼，不是古代遗物吧....然后凯文找麻烦上门，顺便组队
+
+
+*****
+
+####  whzfjk  
+##### 842#       发表于 2024-6-26 23:32
+
+E圣，E圣你带我走吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

@@ -3515,3 +3515,22 @@ R组的Sage der Rosen
 
 那能不能直接ykls+双子啊，只要lisa能赢我什么都会做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 18093#       发表于 2024-6-26 21:20
+
+发个解密版，明天估计是彩和ykn领队，让我们看看ykn有没有三连冠的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/223f5ef168b61b5bb5b0e29da505397e/Image_1719402050361.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a663b27519b909aeb88710e455406682/Image_1719402053315.jpg" referrerpolicy="no-referrer">
+这种活动大热队伍和大热cp估计都会拆的，可以先放低期待
+
+
+*****
+
+####  NODY  
+##### 18094#       发表于 2024-6-26 21:23
+
+虽然二胡队这阵容一眼褒姒，但看在立希追星成功的份上还是感谢一下国服运营
+

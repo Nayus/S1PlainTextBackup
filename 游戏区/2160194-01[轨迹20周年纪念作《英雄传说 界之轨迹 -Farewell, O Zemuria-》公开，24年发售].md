@@ -8381,3 +8381,11 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 原本以为克州篇是低谷了，没想到帝国篇还能给你挖个坑
 
+
+*****
+
+####  jinxi42  
+##### 824#       发表于 2024-6-26 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以还会有以结社成员为主角的轨迹么 我还蛮期待这种设定的
+

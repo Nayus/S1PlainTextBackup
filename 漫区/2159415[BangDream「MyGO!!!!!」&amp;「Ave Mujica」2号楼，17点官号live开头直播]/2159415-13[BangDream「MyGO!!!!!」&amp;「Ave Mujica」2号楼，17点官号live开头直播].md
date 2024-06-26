@@ -3534,3 +3534,16 @@ R组的Sage der Rosen
 
 虽然二胡队这阵容一眼褒姒，但看在立希追星成功的份上还是感谢一下国服运营
 
+
+*****
+
+####  yicihanshu  
+##### 18095#       发表于 2024-6-26 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65392181&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-26 21:12</a>
+那能不能直接ykls+双子啊，只要lisa能赢我什么都会做的</blockquote>
+这个真不能，双子甚至前两组就都分出去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，要不然我也要选配双子了（
+所以还是选爱素装吧，ykls加爱素，第五位带个hgm都赢了，第二第三绑一块不一定比得过
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

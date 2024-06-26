@@ -8407,3 +8407,41 @@ ys8和ysx没有一堆角色分猪肉的情况的嘛，主次明确，女主当�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该不会有结社主角了，不过最终章还没确定下来，不是没可能（）
 
+
+*****
+
+####  keiyoku  
+##### 827#       发表于 2024-6-26 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65391335&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 19:55</a>
+有一说一黎轨党争还是比闪轨有意思的，闪轨最大的梗黎恩笑容渐渐消失吧</blockquote>
+最大梗明明是没有那个必要<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 828#       发表于 2024-6-26 21:40
+
+另外结社已经两次竞争主角失败了。
+
+在考虑『3rd』主角时好像也有人给出「『噬身之蛇』也不错吧」的提案？
+
+近藤：有的呢。虽然在描绘更细致的世界观上，执行者有着被允许自由而行动方便的理由，可是「在大街上光明正大地散步真的好吗？」之类的，最终还是从主角候补里排除了。
+
+
+*****
+
+####  倪哥干你  
+##### 829#       发表于 2024-6-26 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389747&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-6-26 17:41</a>
+
+社长最幽默的还是觉得黎轨卖的不行是因为主角年龄太大，题材太黑暗
+
+活到现在还没想明白轨迹最劝退的其实是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">我倒是觉得分割商法才是轨迹的灵魂
+
+像机战z 传颂2这种分割我都挺喜欢的
+
+闪1 3这种过分了点 但像黎1基本没留悬念给后面的我反而觉得味太淡了 所以黎2也没首发
+

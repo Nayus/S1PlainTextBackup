@@ -2589,3 +2589,34 @@ miko：我最喜欢兄弟吵架的作品了！
 
 好话都让你抢先说了，后面的人怎么办
 
+
+*****
+
+####  holoan  
+##### 9108#         楼主| 发表于 2024-6-25 22:10
+
+<img src="https://img.saraba1st.com/forum/202406/25/221042jel200ea49d7d0aa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-25 22:10 上传
+
+*****
+
+####  holoan  
+##### 9109#         楼主| 发表于 2024-6-26 13:15
+
+我又猜中了
+
+真地狱来了
+
+<img src="https://img.saraba1st.com/forum/202406/26/131558og2roogmra2rsvgr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:15 上传
+

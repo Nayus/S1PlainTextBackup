@@ -7015,3 +7015,38 @@ ysx是基于ns开发的，然后移植给ps版所以才能同步，界轨依旧�
 
 不买ps5，打算淘宝租一个月，游戏预定的实体碟，通关后直接出了回血，感觉这样最经济。
 
+
+*****
+
+####  ravend233  
+##### 706#       发表于 2024-6-26 13:07
+
+没啥意思的预览图
+
+)S65X~3ZEBXJ8%@5TX%{`56_tmb.jpg
+(77.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/130711fokf9b4fifriyokl.jpg" referrerpolicy="no-referrer">
+
+TGGB46EBV09UXLQV2%$]8BC_tmb.jpg
+(51.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/130711c0cwttpqugpzzge0.jpg" referrerpolicy="no-referrer">
+
+51O`B5ZQ@2[{97W~C2XTP~B_tmb.jpg
+(88.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/26/130711edkszbfdeo6tspw7.jpg" referrerpolicy="no-referrer">
+

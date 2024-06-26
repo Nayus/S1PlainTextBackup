@@ -204,3 +204,17 @@ GAL是PC掌机的终极归宿
 我是床边支架，用的这款：</blockquote>
 感谢感谢，我用了几款都不太满意，试下你的这个
 
+
+*****
+
+####  张叔夜  
+##### 74#       发表于 2024-6-26 11:34
+
+强推mhr，可以说是steamdeck上体验最好的动作游戏，没有之一
+
+锁10瓦稳60，续航4小时，掌机高清化猛汉，有着psp一样的无缝唤醒即开即玩，手感完爆ns，玩久了甚至觉得1440p分辨率下的mhr没有sd 800p看起来舒服，找不到任何缺点。
+
+越玩越觉得以前在psp上幻想的次世代mh成真了（gu不行）<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

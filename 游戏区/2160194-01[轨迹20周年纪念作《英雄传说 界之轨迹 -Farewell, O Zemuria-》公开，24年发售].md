@@ -7313,3 +7313,53 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 真有界二那条子和约艾来不来大伙齐上阵有60+人了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又多了一部的工期，那又可以做十多个可控了，当然能来的都来，大伙一起，包饺砸
 
+
+*****
+
+####  抽烟的猴  
+##### 727#       发表于 2024-6-26 14:06
+
+葱头是加入野餐队了吗，可怜的修女被忘了
+
+*****
+
+####  无动于衷  
+##### 728#       发表于 2024-6-26 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386763&amp;ptid=2160194" target="_blank">抽烟的猴 发表于 2024-6-26 14:06</a>
+
+葱头是加入野餐队了吗，可怜的修女被忘了</blockquote>
+除非大少又挖出来了什么外之理（挂），否则有这个必要吗
+
+一定要带随从骑士这事从黎轨2就不成立了吧，那俩卧龙凤雏就没带
+
+*****
+
+####  Squall25  
+##### 729#       发表于 2024-6-26 14:07
+
+界2不知道，就界1罗伊德还是得来的，艾约感觉没啥可能。
+
+
+*****
+
+####  卢迪克  
+##### 730#       发表于 2024-6-26 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386672&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:00</a>
+
+懂了，空轨remake工期炸了赶不上2026，加上剧本组强烈要求再给一部的篇幅，所以决定2026先出界2 ...</blockquote>
+估计本来就没有
+
+*****
+
+####  diectt  
+##### 731#       发表于 2024-6-26 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386672&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 14:00</a>
+
+懂了，空轨remake工期炸了赶不上2026，加上剧本组强烈要求再给一部的篇幅，所以决定2026先出界2 ...</blockquote>
+楼友太乐观了，界1能把整个世界观谜底揭开来就算成功，界2集合全大陆之力解决，界3（或者换个名字）类似于3rd或者创轨那样的后日谈
+
+能就这样3部完结都算烧高香了，想拖中间还能再拖个1,2部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

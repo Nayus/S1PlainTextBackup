@@ -3452,3 +3452,11 @@ R组的Sage der Rosen
 
 忘了这个活动什么规则了，只能说国服人气就直接拿狗做文章呗，现在只说人气肯定狗第一了
 
+
+*****
+
+####  NODY  
+##### 18086#       发表于 2024-6-26 20:12
+
+打乱队伍投乐队，基本就看爱素这两个人气最高的在哪个队伍了，像立希那队就是一眼凉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

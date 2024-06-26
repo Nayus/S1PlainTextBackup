@@ -810,3 +810,11 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 （我只看过京吹的前两季TV动画+青鸟，第三季目前一集都还没看过，这次还是我第一次听到第三季剧集中的音乐。）
 
+
+*****
+
+####  乙酸乙酯  
+##### 81#       发表于 2024-6-26 16:50
+
+没看过原作的因为小号选了一，现在才反应过来比的是低音部分<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

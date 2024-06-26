@@ -3547,3 +3547,32 @@ R组的Sage der Rosen
 
 —— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  rikaren  
+##### 18096#       发表于 2024-6-26 22:57
+
+<img src="https://img.saraba1st.com/forum/202406/26/225750sb8ji69nd9dg5p9l.jpg" referrerpolicy="no-referrer">
+
+<strong>71EFD2F2C47EC338CC5DB6133696F165.jpg</strong> (80.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-26 22:57 上传
+
+
+*****
+
+####  rikaren  
+##### 18097#       发表于 2024-6-26 23:03
+
+如果要炒热度玩家拉票的话ykn，彩彩反而不可能和go团人一起吧，毕竟只要不是和猫希一队基本稳第一了
+
+*****
+
+####  枫林不见  
+##### 18098#       发表于 2024-6-26 23:05
+
+立希最爽的一集
+

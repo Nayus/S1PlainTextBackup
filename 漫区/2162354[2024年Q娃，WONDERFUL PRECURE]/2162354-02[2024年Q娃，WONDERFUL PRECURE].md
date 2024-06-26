@@ -3818,3 +3818,14 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 是新游戏！打游戏我超勇的！</blockquote>
 前辈，电视修不好是打不了游戏的
 
+
+*****
+
+####  lydia5989  
+##### 1821#       发表于 2024-6-26 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65379775&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-6-25 23:22</a>
+
+派对最惨的不是心音和兰甚至都没在全明星f出场吗？我觉得这个是最过分的</blockquote>
+咋没出场，做蛋糕的时候派对组排排站跟甜点在一起
+

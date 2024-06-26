@@ -88,3 +88,14 @@
 
 总之，虽然这季动画做的挺粗糙的挺过山车的挺草率的挺抽象的挺让人看不懂一些情节在讲什么玩意，但是，反正都抺除故事重头再来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就，还是想看第二季的
 
+
+*****
+
+####  oi99o  
+##### 164#       发表于 2024-6-26 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65386103&amp;ptid=2109771" target="_blank">愚钝兔子 发表于 2024-6-26 13:19</a>
+
+12话男主在宝库找到蓝球以后是怎么意识到自己回不去的（</blockquote>
+小说也没讲得很清楚，主要就是想起来之前听过的剑士救母的故事吧。另外根据后面的设定，没有强烈的改变过去的意志是发动不了这个球的，而且它本身也没有前往未来的功能，所以那里白光一闪的结果很可能就是无事发生。
+

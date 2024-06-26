@@ -7730,3 +7730,38 @@ FC（初代作品）受到两极的评价，有些严厉的意见，但SC（续�
 
 请比较她与《黎之轨迹II》中的范恩的互动。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  風卷豹  
+##### 764#       发表于 2024-6-26 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65387624&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-26 15:07</a>
+
+桃花剑，亚里沙，班长，马奇亚斯，二少，盖乌斯，劳拉，加上闪2入队的黑兔，刚好四男四女，艾略特军方身份 ...</blockquote>
+有二少就要有白兔。我觉得在确定大少是剧情核心的前提下，二少、副班长、艾略特、白兔都可以直接删掉，或者二少+副班融合变成一个同级NPC同学。再把新7的缪婕、黑兔加进来就差不多了，这两人存在感比其他新7旧7成员高多了。库尔特可以融进劳拉。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 765#       发表于 2024-6-26 15:37
+
+倒退了也可以比较<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 766#       发表于 2024-6-26 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65388068&amp;ptid=2160194" target="_blank">風卷豹 发表于 2024-6-26 15:36</a>
+
+有二少就要有白兔。我觉得在确定大少是剧情核心的前提下，二少、副班长、艾略特、白兔都可以直接删掉，或 ...</blockquote>
+白兔不入队变成敌人女干部就行了，还能和我方黑兔打对手戏
+
+*****
+
+####  古畑任三郎2015  
+##### 767#       发表于 2024-6-26 15:40
+
+说起来大统领赶紧搞个《暴力团对策法》吧，黑月曹李这坨东西早该死死了<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+

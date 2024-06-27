@@ -38,3 +38,11 @@
 
 50抽木有小石川，好帅好想要，还是火狙<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1101#       发表于 2024-6-27 21:46
+
+50发都出了，前两天已经溢出到要抽st社长活动都不敢打，现在一下清空又可以开始攒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

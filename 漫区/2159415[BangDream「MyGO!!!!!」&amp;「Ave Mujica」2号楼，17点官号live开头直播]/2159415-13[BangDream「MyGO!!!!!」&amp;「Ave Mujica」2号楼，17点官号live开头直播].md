@@ -3681,3 +3681,20 @@ lisa出来了没
 
 硬凑剩下位置的高人气角色的话，小白/kkr+摩卡+soyo+lisa姐+花音+乐器配唢呐，应该也有一战之力，唢呐应该会跟kkr
 
+
+*****
+
+####  nebulanoby  
+##### 18107#       发表于 2024-6-27 19:04
+
+是不是有种硬点的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  星天观测  
+##### 18108#       发表于 2024-6-27 19:07
+
+哎，为什么不能成全我的ykls<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

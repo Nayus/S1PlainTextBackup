@@ -3698,3 +3698,15 @@ lisa出来了没
 
 哎，为什么不能成全我的ykls<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18109#       发表于 2024-6-27 21:00
+
+<blockquote>nebulanoby 发表于 2024-6-27 19:04
+是不是有种硬点的感觉
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+如果其他编队都不是刚好五个位置的话那估计真的是硬点了
+

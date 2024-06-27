@@ -9870,3 +9870,46 @@ CS1：9450
 CS2：10418</blockquote>
 这是啥？
 
+
+*****
+
+####  宛若青空  
+##### 967#       发表于 2024-6-27 15:49
+
+官网背景
+
+<img src="https://img.saraba1st.com/forum/202406/27/154946sld2dvpdmmbvoz3g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3396A916-7BF5-4675-BD4D-E97C6E394CCC.jpeg</strong> (284.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202406/27/154947m22ax22uuxqlqaax.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0C411E81-1624-451B-B0EC-94B3B73DC5FE.jpeg</strong> (273.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 15:49 上传
+
+*****
+
+####  卢迪克  
+##### 968#       发表于 2024-6-27 15:50
+
+<blockquote>洛克萨斯 发表于 2024-6-27 15:46
+这是啥？</blockquote>
+语音数       
+
+
+*****
+
+####  悠悠你心  
+##### 969#       发表于 2024-6-27 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按理说电击应该这两天会有直播吧？
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

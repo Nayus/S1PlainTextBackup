@@ -4326,3 +4326,20 @@ https://ngabbs.com/read.php?tid=40691675
 
 邦主吧+nga走廊，真的是让我今晚笑的停不下来
 
+
+*****
+
+####  rikaren  
+##### 18164#       发表于 2024-6-28 03:11
+
+直到现在11层评论点赞数还没过10(最高达到了7，现在是6)，太理中客了，NGA，其他评论还能稍微嘴硬“祥推也很激进”，那个评论除了我前面发的那个想法我是真的不理解为什么还能去踩。
+
+*****
+
+####  影伴光生  
+##### 18165#       发表于 2024-6-28 03:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二创还得看孕吧，活多劲大，人人都能提笔自由发挥，不存在ooc出警，就是容易卡文太监
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

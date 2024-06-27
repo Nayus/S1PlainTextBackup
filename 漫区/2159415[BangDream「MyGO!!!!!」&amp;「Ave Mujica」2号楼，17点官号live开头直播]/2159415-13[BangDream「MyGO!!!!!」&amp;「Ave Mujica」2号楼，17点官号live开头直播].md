@@ -4033,3 +4033,25 @@ syl，感觉夏大发表会可能是邦数字场，真的有鸡什么事吗，�
 
 能不能大胆一点，年底5团对邦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18136#       发表于 2024-6-27 22:58
+
+比较大的可能性就是13th其中一天有mujica，不然也没必要让李子来了，大姐头就没来
+
+
+*****
+
+####  PDQ4  
+##### 18137#       发表于 2024-6-27 23:01
+
+ 本帖最后由 PDQ4 于 2024-6-27 23:03 编辑 
+
+河口湖三团都打包3000人场了，而且鸡没动画，基本没可能13th
+
+现在看可能就开两天是萝和狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等着看看萝新专抽选是啥，我和朋友讨论完这边是觉得萝专、狗新单可以塞13th，其他团根本没碟塞<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

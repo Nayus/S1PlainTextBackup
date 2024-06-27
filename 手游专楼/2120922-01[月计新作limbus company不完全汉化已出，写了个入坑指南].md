@@ -275,3 +275,29 @@ Seven Tremor Souls
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我去，原来这赛季到现在补的震颤刚好是七彩色啊
 
+
+*****
+
+####  Yuzutea  
+##### 771#       发表于 2024-6-27 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65361245&amp;ptid=2120922" target="_blank">drm1202 发表于 2024-6-24 17:19</a>
+
+顺带说一下我打镜牢用的队伍。
+
+我的目的是打普通镜牢刷箱子，最好全p，时间越短越好。以这个视角来评判。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沉沦你全四破打困镜还是无脑p的
+
+乐章是没用但是美感强啊
+
+*****
+
+####  Yuzutea  
+##### 772#       发表于 2024-6-27 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">间章之后就没怎么玩
+
+现在这震撼队是哪些人？
+
+EGO有啥必带的吗
+

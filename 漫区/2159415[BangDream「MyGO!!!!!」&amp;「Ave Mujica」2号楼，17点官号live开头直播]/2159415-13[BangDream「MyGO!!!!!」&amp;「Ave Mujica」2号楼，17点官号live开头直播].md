@@ -3623,3 +3623,21 @@ R组的Sage der Rosen
 
 我超，ykn和爱音这组，剩下什么组才能和这组拼人气？
 
+
+*****
+
+####  紫吹兰  
+##### 18102#         楼主| 发表于 2024-6-27 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65402727&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-27 18:08</a>
+
+我超，ykn和爱音这组，剩下什么组才能和这组拼人气？</blockquote>
+老团人气冠军+新团人气冠军，就问你怎么输
+
+*****
+
+####  星天观测  
+##### 18103#       发表于 2024-6-27 18:25
+
+lisa出来了没
+

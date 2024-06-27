@@ -818,3 +818,11 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 没看过原作的因为小号选了一，现在才反应过来比的是低音部分<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 82#       发表于 2024-6-27 16:04
+
+音痴+不看京吹，选的1。可能是1音量大让我觉得有厚度吧。所以京吹那么多帖在吵什么
+

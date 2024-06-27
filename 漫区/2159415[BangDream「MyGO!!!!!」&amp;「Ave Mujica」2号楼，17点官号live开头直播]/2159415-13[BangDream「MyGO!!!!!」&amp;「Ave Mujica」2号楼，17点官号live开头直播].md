@@ -3710,3 +3710,42 @@ lisa出来了没
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 如果其他编队都不是刚好五个位置的话那估计真的是硬点了
 
+
+*****
+
+####  rikaren  
+##### 18110#       发表于 2024-6-27 21:15
+
+<img src="https://img.saraba1st.com/forum/202406/27/211532nj0e77ppb44j7wo0.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719494107789.jpg</strong> (132.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:15 上传
+
+惠惠这什么发型
+
+
+*****
+
+####  rikaren  
+##### 18111#       发表于 2024-6-27 21:24
+
+<img src="https://img.saraba1st.com/forum/202406/27/212427iq4s6nfr60z8ig9z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-27-21-23-34-93_149003a2d400f6adb210d7e357a3a646.jpg</strong> (285.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:24 上传
+
+这人体是不是不对？
+
+*****
+
+####  rikaren  
+##### 18112#       发表于 2024-6-27 21:25
+
+沃日，2nd第二场不卖e+
+

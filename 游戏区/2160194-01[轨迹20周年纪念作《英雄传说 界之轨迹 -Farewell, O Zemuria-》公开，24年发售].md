@@ -9803,3 +9803,37 @@ GIJC~P[6CFRO{1T2B$F1]LS_tmb.jpg
 
 说明又在中途改剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 961#       发表于 2024-6-27 15:26
+
+贴吧复制的
+
+CS1：9450
+
+CS2：10418
+
+CS3：14588
+
+CS4：16063
+
+Hajimari：18402
+
+Kuro1：16087
+
+*****
+
+####  ravend233  
+##### 962#       发表于 2024-6-27 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先排除语音量大的可能性，说明在一边改剧本一边配音
+
+*****
+
+####  宛若青空  
+##### 963#       发表于 2024-6-27 15:27
+
+原来拉碧丝的新身体是约鲁古和MK社合作制作的，这么说来确实黎1的ED就看到了约鲁古在MK社了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

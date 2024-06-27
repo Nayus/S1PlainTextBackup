@@ -4089,3 +4089,44 @@ syl，感觉夏大发表会可能是邦数字场，真的有鸡什么事吗，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我不好说是不是因为动画延期导致整个mujica的企划规划都乱套了，所以mujica各方面的相关决策才如此的离奇
 
+
+*****
+
+####  星天观测  
+##### 18142#       发表于 2024-6-27 23:15
+
+挺奇怪的，7.7没配信之前说过吗，完全没印象啊
+
+本来好好的从626等到77，然后熬到10，现在77直接没有了
+
+我有点绷不住了
+
+*****
+
+####  鳥栖朝  
+##### 18143#       发表于 2024-6-27 23:16
+
+看不懂wsd的传奇商法
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星天观测  
+##### 18144#       发表于 2024-6-27 23:17
+
+神奈川就说了一个3rd，其他什么都没有，爱知如果也是什么都没有那就是要靠两首歌活到10月？
+
+是不是有点搞笑了啊？
+
+*****
+
+####  nebulanoby  
+##### 18145#       发表于 2024-6-27 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65405223&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-27 21:25</a>
+沃日，2nd第二场不卖e+</blockquote>
+第二场卖了以后就没得卖了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

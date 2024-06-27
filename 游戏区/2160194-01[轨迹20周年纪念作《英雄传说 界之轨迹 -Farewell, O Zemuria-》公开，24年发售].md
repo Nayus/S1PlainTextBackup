@@ -10175,3 +10175,14 @@ CS2：10418</blockquote>
 
 就不能做个没有球形关节的身体吗，还穿的露肩装，这也太显眼了吧
 
+
+*****
+
+####  plok201  
+##### 998#       发表于 2024-6-27 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65403143&amp;ptid=2160194" target="_blank">正田崇 发表于 2024-6-27 18:42</a>
+
+就不能做个没有球形关节的身体吗，还穿的露肩装，这也太显眼了吧</blockquote>
+没球关的依旧是放在衣服那里吧
+

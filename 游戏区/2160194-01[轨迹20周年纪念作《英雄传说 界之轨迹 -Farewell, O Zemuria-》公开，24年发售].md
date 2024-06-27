@@ -10046,3 +10046,38 @@ CS2：10418</blockquote>
 
 话说金凯德这截图对面不就是克洛和黎恩么，共和国居然对他国的军人和前kb分子这么宽容，只有大少是被盯紧的
 
+
+*****
+
+####  ravend233  
+##### 984#       发表于 2024-6-27 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经没人关心克洛的前身份了吧（）
+
+*****
+
+####  izayoi39  
+##### 985#       发表于 2024-6-27 16:41
+
+电击明天晚上8点有直播，大概率是复读消息然后再放出来点儿实机内容
+
+*****
+
+####  ravend233  
+##### 986#       发表于 2024-6-27 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401649&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-6-27 16:23</a>
+
+回去看了下，和创轨的泳装不同也和别的角色的不同，应该是新的（小娜还一直彰显自己长大想变得成熟性感结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着怎么像只换了贴图（）
+
+
+*****
+
+####  宛若青空  
+##### 987#       发表于 2024-6-27 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401849&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-27 16:41</a>
+看着怎么像只换了贴图（）</blockquote>
+只能说款式是差不多的，身体都换了这些应该是重做的，但这类免费泳装感觉都设计得好一般（
+

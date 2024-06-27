@@ -9837,3 +9837,36 @@ Kuro1：16087
 
 原来拉碧丝的新身体是约鲁古和MK社合作制作的，这么说来确实黎1的ED就看到了约鲁古在MK社了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 964#       发表于 2024-6-27 15:41
+
+“如果新玩家能从《黎轨》或者《界轨》入坑很好”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 965#       发表于 2024-6-27 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401116&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-6-27 15:41</a>
+
+“如果新玩家能从《黎轨》或者《界轨》入坑很好”</blockquote>
+很好，指界轨看一堆不认识的老角色表演
+
+
+*****
+
+####  洛克萨斯  
+##### 966#       发表于 2024-6-27 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65400946&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-27 15:26</a>
+
+贴吧复制的
+
+CS1：9450
+
+CS2：10418</blockquote>
+这是啥？
+

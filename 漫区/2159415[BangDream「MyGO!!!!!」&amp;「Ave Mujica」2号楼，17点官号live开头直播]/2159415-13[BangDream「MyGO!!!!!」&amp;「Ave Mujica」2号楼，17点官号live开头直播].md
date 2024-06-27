@@ -3864,3 +3864,75 @@ lisa出来了没
 
 真人团主唱只差一个ray
 
+
+*****
+
+####  rikaren  
+##### 18119#       发表于 2024-6-27 21:59
+
+<img src="https://img.saraba1st.com/forum/202406/27/215831lo60w4d6oxwb53ox.png" referrerpolicy="no-referrer">
+
+<strong>Image_1719496312456.png</strong> (247.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202406/27/215837dznza5fb6xaq2cbt.png" referrerpolicy="no-referrer">
+
+<strong>Image_1719496424921.png</strong> (262.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202406/27/215846wh2tketmitzj9jj2.png" referrerpolicy="no-referrer">
+
+<strong>Image_1719496428168.png</strong> (298.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:58 上传
+
+<img src="https://img.saraba1st.com/forum/202406/27/215909rmafqkbv8sstahxq.jpg" referrerpolicy="no-referrer">
+
+<strong>1719494997683.jpg</strong> (324.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:59 上传
+
+三人行变双人行了，ako和小白都找得到三人行花前，但是花前双人行暂时还没找到
+
+
+*****
+
+####  NODY  
+##### 18120#       发表于 2024-6-27 22:02
+
+7.7不配信不会也是顾忌中华炮吧
+
+
+*****
+
+####  御幸一也  
+##### 18121#       发表于 2024-6-27 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">先看有沒有新東西吧，如果和神奈川完全一致，說明……
+
+*****
+
+####  yifan8848  
+##### 18122#       发表于 2024-6-27 22:05
+
+因為河口湖3rd上次已經公布過就不配信ˋ了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18123#       发表于 2024-6-27 22:05
+
+都开live了，讲什么顾忌
+
+真顾忌也可以eplus不开海外场，抠比wsd还能宁愿不赚钱也要拉日本人陪着干瞪眼不成<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

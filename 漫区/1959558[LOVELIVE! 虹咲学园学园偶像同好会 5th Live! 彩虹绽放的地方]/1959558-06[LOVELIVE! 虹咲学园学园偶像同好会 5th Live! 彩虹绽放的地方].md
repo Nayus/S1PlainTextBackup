@@ -22,3 +22,13 @@ PV基本上都修正了
 漫画连载
 <img src="https://p.sda1.dev/18/bbda99887ced65b2b54decf22bae8a0f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7517#       发表于 2024-6-27 22:00
+
+横田又给他改回去了，看来之前还是比较试探的用新画风。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

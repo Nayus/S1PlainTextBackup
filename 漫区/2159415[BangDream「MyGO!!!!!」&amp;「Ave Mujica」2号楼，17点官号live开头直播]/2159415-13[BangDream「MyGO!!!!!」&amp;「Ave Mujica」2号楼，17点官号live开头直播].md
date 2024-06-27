@@ -3590,3 +3590,12 @@ R组的Sage der Rosen
 
 2024-6-27 11:45 上传
 
+
+*****
+
+####  550616  
+##### 18100#       发表于 2024-6-27 12:16
+
+这几天感受，5v5不要再搞了.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

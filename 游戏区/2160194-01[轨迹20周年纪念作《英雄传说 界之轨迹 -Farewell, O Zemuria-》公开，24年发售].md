@@ -9778,3 +9778,11 @@ GIJC~P[6CFRO{1T2B$F1]LS_tmb.jpg
 
 地位高讲了两部也没讲清楚，找来干嘛，有什么用，从哪来的，之前还说表的作用要贯穿轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 958#       发表于 2024-6-27 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨的剧本是这样的，直到最终BOSS开始讲故事唠嗑之前谜底都藏得严严实实的，一点铺垫都不想告诉观众
+

@@ -4343,3 +4343,11 @@ https://ngabbs.com/read.php?tid=40691675
 
 —— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  NODY  
+##### 18166#       发表于 2024-6-28 03:32
+
+不是很懂有什么好贷款破防的，就算祥子真是借丰川资源组队也没什么好破防的啊，致敬独角兽恩师大河内罢了，建议一步到位致敬到结局婚戒
+

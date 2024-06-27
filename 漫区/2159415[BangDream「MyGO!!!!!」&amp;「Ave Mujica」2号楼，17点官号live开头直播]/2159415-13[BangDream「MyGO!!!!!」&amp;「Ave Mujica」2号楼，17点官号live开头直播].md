@@ -3992,3 +3992,44 @@ lisa出来了没
 沟槽的wsd<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 感觉原先奶的下下周鸡全员邦tv都不好说了，不会也要等到3rd场吧
 
+
+*****
+
+####  rikaren  
+##### 18131#       发表于 2024-6-27 22:47
+
+往坏里想，可能3rd也没
+
+*****
+
+####  星天观测  
+##### 18132#       发表于 2024-6-27 22:48
+
+没配信，感觉要寄了啊家人们
+
+*****
+
+####  星天观测  
+##### 18133#       发表于 2024-6-27 22:49
+
+能不能指望下周邦tv公布点活动带鸡玩<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不然真要寄了啊
+
+
+*****
+
+####  PDQ4  
+##### 18134#       发表于 2024-6-27 22:50
+
+ 本帖最后由 PDQ4 于 2024-6-27 22:52 编辑 
+
+7.11应该还是会有的吧，总不能2nd开完了一次回顾都没有<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl，感觉夏大发表会可能是邦数字场，真的有鸡什么事吗，手游轮不上，3rd也宣了，感觉唯一有盼头的可能是不一定有的广播？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18135#       发表于 2024-6-27 22:52
+
+能不能大胆一点，年底5团对邦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

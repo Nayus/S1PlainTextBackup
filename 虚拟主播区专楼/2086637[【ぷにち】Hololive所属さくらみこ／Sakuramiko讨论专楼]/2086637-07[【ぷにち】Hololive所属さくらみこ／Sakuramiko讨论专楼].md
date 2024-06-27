@@ -2680,3 +2680,35 @@ miko：我最喜欢兄弟吵架的作品了！
 
 就放这点量怕不是最后又让黄牛抢到了
 
+
+*****
+
+####  holoan  
+##### 9115#         楼主| 发表于 2024-6-27 15:18
+
+今天好像是单独外景，虽然同日其他人也有外景应该不在一起的
+
+按时间来看的话应该是周年纪念之类的准备
+
+*****
+
+####  holoan  
+##### 9116#         楼主| 发表于 2024-6-27 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65391700&amp;ptid=2086637" target="_blank">holoan 发表于 2024-6-26 20:26</a>
+
+昨天4个人玩的时候难度更大
+
+还好今天只是2个人</blockquote>
+我收回前言，有人发对比图发现实际上4人参加的时候反而系统降低了整体难度<blockquote>樽がでかい
+[https://i.imgur.com/U2GAfZl.jpeg](https://i.imgur.com/U2GAfZl.jpeg)
+[https://i.imgur.com/N5mvXQR.jpeg](https://i.imgur.com/N5mvXQR.jpeg)
+
+ビームが一本
+[https://i.imgur.com/54MrRJr.jpeg](https://i.imgur.com/54MrRJr.jpeg)
+[https://i.imgur.com/Rbgp1xv.jpeg](https://i.imgur.com/Rbgp1xv.jpeg)
+
+ビームなし
+[https://i.imgur.com/nqnIMzI.jpeg](https://i.imgur.com/nqnIMzI.jpeg)
+[https://i.imgur.com/eLnN78o.jpeg](https://i.imgur.com/eLnN78o.jpeg)</blockquote>
+

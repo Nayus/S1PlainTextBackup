@@ -10194,3 +10194,14 @@ CS2：10418</blockquote>
 
 你法有搞过但是xxx在哭或者他的眼神好悲伤这种活吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 1000#       发表于 2024-6-27 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65405241&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-6-27 21:27</a>
+
+你法有搞过但是xxx在哭或者他的眼神好悲伤这种活吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">克洛一场空感觉比较接近你这个语境
+

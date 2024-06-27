@@ -329,3 +329,18 @@ EGO有啥必带的吗</blockquote>
 
 我现在都不知道玫罗能放在哪个队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">辅助被动没有T罗的拼点强化好，进充能的话早晚被W罗挤下来...估计以后坐冷板凳的老卡会越来越多吧...
 
+
+*****
+
+####  Yuzutea  
+##### 774#       发表于 2024-6-27 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65404530&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-6-27 20:22</a>
+
+我的震颤队是这样的，把唐和罗换成新增的T社二人组应该就算完全体了吧，顺序大概是臼齿奥、悔恨浮、T唐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下T唐坐牢硬锁两回合也太蠢了
+
+还是把T唐换圣愚良了
+
+感觉打困镜第六人还是开局500刷个震撼碎片四五层虫直接砸过去完事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

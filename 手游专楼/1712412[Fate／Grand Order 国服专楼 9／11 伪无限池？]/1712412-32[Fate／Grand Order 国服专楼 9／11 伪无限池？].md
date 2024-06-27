@@ -154,3 +154,18 @@
 阿三王子六宝，没有杜。鉴定为寄。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史艳文  
+##### 46480#       发表于 2024-6-27 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65375030&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-6-25 17:19</a>
+
+240石出杜尔伽+难敌，难敌甚至是转战怖军池子才出的</blockquote>
+我好像是抽了330还是360才出的，为的就是大奶奶
+
+然后发现3破的小人真的惊悚，这应该是我第一次不主动用三破的小人
+
+最好看应该是原始那个
+

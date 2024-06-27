@@ -169,3 +169,15 @@
 
 最好看应该是原始那个
 
+
+*****
+
+####  khxooo  
+##### 46481#       发表于 2024-6-27 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65396145&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-6-27 09:18</a>
+我好像是抽了330还是360才出的，为的就是大奶奶
+
+然后发现3破的小人真的惊悚，这应该是我第一次不主动用三 ...</blockquote>
+同样为了大奶，日服随机的时候看多了3破的蓝皮也是别有风味的<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+

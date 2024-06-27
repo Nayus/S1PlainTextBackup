@@ -9085,3 +9085,43 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1983920&amp;extra=
 
 不过我估计内部还在讨论到底做不做
 
+
+*****
+
+####  一步成诗  
+##### 896#       发表于 2024-6-27 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397116&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-27 10:28</a>
+
+京都迷城和伊苏11之间必须有一个填档期的，我不觉得你法社现在有连续出两部ACT的能力，这个填档期的要么 ...</blockquote>
+下一部叫天【填】之轨迹得了还能和空轨呼应下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 897#       发表于 2024-6-27 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空轨用黎轨的系统重做还是可以的，黎轨的系统我觉得改的好，挺好玩
+
+*****
+
+####  椎名mahuyo  
+##### 898#       发表于 2024-6-27 10:42
+
+大少创轨最后本来也不想活了，硬救下来了罢了，这种洗比较让人接受
+
+
+*****
+
+####  椎名mahuyo  
+##### 899#       发表于 2024-6-27 10:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该出新IP了，等一个双星3（那轨）精神续作。
+
+*****
+
+####  ravend233  
+##### 900#       发表于 2024-6-27 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法整新IP估计也是类似轨的回合制，加上准备系列化的迷城已经有两个ACT的IP了，这回合制的开发经验和人员总得找个东西续上
+

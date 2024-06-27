@@ -9645,3 +9645,41 @@ GIJC~P[6CFRO{1T2B$F1]LS_tmb.jpg
 
 讲道理，大少能不能向欧豆豆讨要点野餐费<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 943#       发表于 2024-6-27 14:29
+
+看到微博上有更新信息，没想到刚刚已经搬了
+
+这39还以为走了呢，这次还来啊
+
+*****
+
+####  ravend233  
+##### 944#       发表于 2024-6-27 14:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大少登场了39怎么都要来吧
+
+这俩讲讲相声得了，别搁哪演苦情戏了
+
+*****
+
+####  diectt  
+##### 945#       发表于 2024-6-27 14:31
+
+<blockquote>卢法斯目前还是通缉犯，而且各地隐藏的财产也被冻结了，无法像以前一样挥霍。</blockquote>
+
+我觉着这是让野餐队抓猫修路灯赚钱找的由头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 946#       发表于 2024-6-27 14:35
+
+<blockquote>ravend233 发表于 2024-6-27 14:17
+鬼故事，背景里石柱上有表</blockquote>
+不是那八个，是X，
+

@@ -1114,3 +1114,12 @@ ios没有版本更新？
 
 好多蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/5155e01c838e258b902069aba365721c/CMP_20240626004450431.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayanamilin  
+##### 12904#       发表于 2024-6-27 14:33
+
+等明天下午的情报放送了，放个直播间在这里：
+[YT直播间](https://www.youtube.com/live/3r_ej3ufys0?si=Vn53zP9etA5OVgm1)
+

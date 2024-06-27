@@ -1123,3 +1123,11 @@ ios没有版本更新？
 等明天下午的情报放送了，放个直播间在这里：
 [YT直播间](https://www.youtube.com/live/3r_ej3ufys0?si=Vn53zP9etA5OVgm1)
 
+
+*****
+
+####  khxooo  
+##### 12905#       发表于 2024-6-28 00:01
+
+好像是2个星期的活动，要么是百重塔，要么是无限池，估计百重塔的机会多一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9518,3 +9518,26 @@ syl，创轨c线为什么写的好，就是因为这是法老控的舒适区，�
 
 提了两次到界轨，轨迹最初的规划已经全部完成了，但还有要描绘的地方，结局就在眼前。
 
+
+*****
+
+####  卢迪克  
+##### 935#       发表于 2024-6-27 13:57
+
+玩了界轨会更喜欢卢法斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 936#       发表于 2024-6-27 13:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有黎2之前说斯温是里主角内味了
+
+
+*****
+
+####  卢迪克  
+##### 937#       发表于 2024-6-27 14:06
+
+凯文登场是因为有和白面一样需要杀掉的人物
+

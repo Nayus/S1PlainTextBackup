@@ -2658,3 +2658,18 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 10　*2,826　花澤香菜 「追憶と指先」
 
+
+*****
+
+####  csolfans  
+##### 20418#       发表于 2024-6-27 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401616&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2024-6-27 16:21</a>
+
+2024年上半年声优CD销量榜
+
+单曲
+
+*1　12,336　水樹奈々 「ADRENALIZED」</blockquote>
+这样看，成绩可以哟
+

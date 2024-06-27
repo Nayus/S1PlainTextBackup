@@ -10096,3 +10096,42 @@ CS2：10418</blockquote>
 
 这次这个泳装穿上人偶关节倒是还在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，看来剧情获得的还是不能乱来
 
+
+*****
+
+####  卢迪克  
+##### 990#       发表于 2024-6-27 16:58
+
+ 本帖最后由 卢迪克 于 2024-6-27 17:00 编辑 
+<blockquote>izayoi39 发表于 2024-6-27 16:41
+电击明天晚上8点有直播，大概率是复读消息然后再放出来点儿实机内容</blockquote>
+
+社长二十周年太极，没界轨视频，有的话基本会写初公开映像，没写大概没有
+
+<img src="https://img.saraba1st.com/forum/202406/27/165839frx4akpzqkz3axoc.jpg" referrerpolicy="no-referrer">
+
+<strong>1719478638063.jpg</strong> (334.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-27 16:58 上传
+
+*****
+
+####  whzfjk  
+##### 991#       发表于 2024-6-27 16:58
+
+学妹：只要我成为范艾cp的推子，三人行就可以有我的一席之地
+
+*****
+
+####  宛若青空  
+##### 992#       发表于 2024-6-27 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65402029&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-27 16:58</a>
+社长二十周年太极，没界轨视频，有的话基本会写初公开映像，没写大概没有
+
+ ...</blockquote>
+别急，可以晚点看看电击的新闻和推，上次也是那边才写了初公开映像
+

@@ -9325,3 +9325,25 @@ GUST ...</blockquote>
 哎，角色多模组多技能组可玩性能高好多的，我觉得黎轨的系统底子真不错的 ...</blockquote>
 底子确实有很大发展空间吧，但是数值和过多的角色数量把上限封死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 920#       发表于 2024-6-27 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397869&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-27 11:17</a>
+
+你法喜欢的是在一个框架上一直做加法增加新的子系统直到换新系列，数值从来都是开摆 ...</blockquote>
+全是数值游戏容易打得淌口水，以前用即死料理逃课通缉魔兽，提前拿高级珠子，就很有味道
+
+
+*****
+
+####  洛克萨斯  
+##### 921#       发表于 2024-6-27 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397970&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-27 11:23</a>
+
+拉碧丝连武器都没有，真就和大少算一个战斗单位了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双人模组也不错啊，也是一个新的尝试
+

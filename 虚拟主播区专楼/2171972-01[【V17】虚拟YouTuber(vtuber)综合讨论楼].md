@@ -994,3 +994,18 @@ u社又搞砸了啊<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 但是看直播内容完全没找到很惊艳的地方。。感觉就是那种随处可见的走可爱风路线的V，可能真就是人外皮加成？不懂，有种当年看小护士破最速银盾记录的感觉了
 
+
+*****
+
+####  上天院丿花  
+##### 392#       发表于 2024-6-27 17:08
+
+19年到现在了，怎么还没有爆炸。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 393#       发表于 2024-6-27 17:11
+
+vspo停播三天，要戒断了
+

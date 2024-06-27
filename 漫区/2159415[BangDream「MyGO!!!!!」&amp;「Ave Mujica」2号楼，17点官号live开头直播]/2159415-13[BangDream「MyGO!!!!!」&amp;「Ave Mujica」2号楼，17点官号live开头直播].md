@@ -4285,3 +4285,19 @@ https://ngabbs.com/read.php?tid=40691675
 
 隔壁走廊过于幽默了，踩那个发言是看不到期望中“只看二创，脑子完全没有，跟个巨婴一样的“祥厨”的表现所以破防了吗？
 
+
+*****
+
+####  rikaren  
+##### 18160#       发表于 2024-6-28 02:25
+
+<img src="https://img.saraba1st.com/forum/202406/28/022534q6i2oj7wa62s6iij.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-28-02-25-05-72_3583b5560b9060cb28008c20a0fd6fa9.jpg</strong> (260.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 02:25 上传
+
+跟进，又从4赞被踩成了2赞
+

@@ -9786,3 +9786,20 @@ GIJC~P[6CFRO{1T2B$F1]LS_tmb.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨的剧本是这样的，直到最终BOSS开始讲故事唠嗑之前谜底都藏得严严实实的，一点铺垫都不想告诉观众
 
+
+*****
+
+####  卢迪克  
+##### 959#       发表于 2024-6-27 15:12
+
+闪4配音收录两个月，界轨配音收录了三个月还没配完。
+
+创轨没说
+
+*****
+
+####  一步成诗  
+##### 960#       发表于 2024-6-27 15:13
+
+说明又在中途改剧本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

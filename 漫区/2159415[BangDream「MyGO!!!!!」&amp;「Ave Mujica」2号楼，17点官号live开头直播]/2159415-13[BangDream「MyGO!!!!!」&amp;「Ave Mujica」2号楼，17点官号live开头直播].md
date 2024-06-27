@@ -4234,3 +4234,21 @@ water，earth放2nd第二场，预告aether/light可能性更高吧，不是wate
 water，earth放2nd第二场，预告aether/light可能性更高吧，不是water开场，aether/light预告结尾那也没必要 ...</blockquote>
 预告是7天后就会出歌，以太是8月份的，7.14是 earth
 
+
+*****
+
+####  rikaren  
+##### 18156#       发表于 2024-6-28 01:50
+
+https://ngabbs.com/read.php?tid=40691675
+
+<img src="https://img.saraba1st.com/forum/202406/28/014929tgddzgxw5cnh3uxu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-28-01-48-06-86_3583b5560b9060cb28008c20a0fd6fa9.jpg</strong> (230.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 01:49 上传
+
+有无隔壁号还活着的漏油去试下点赞这个评论，毕竟亲眼看到了这个评论从2赞变成了0
+

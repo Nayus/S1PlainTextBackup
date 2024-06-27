@@ -10216,3 +10216,11 @@ CS2：10418</blockquote>
 你法有搞过但是xxx在哭或者他的眼神好悲伤这种活吗</blockquote>
 记不清了，桃花剑月下撩冰女是不是说过类似的<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Esoterica  
+##### 1002#       发表于 2024-6-27 23:44
+
+话说现在轨迹哪个贴吧流量比较大？一部游戏一个吧感觉好混乱
+

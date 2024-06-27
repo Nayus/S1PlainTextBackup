@@ -3936,3 +3936,27 @@ lisa出来了没
 
 真顾忌也可以eplus不开海外场，抠比wsd还能宁愿不赚钱也要拉日本人陪着干瞪眼不成<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 18124#       发表于 2024-6-27 22:07
+
+本来还觉得7月场撑死就初披露土，系列曲没结束，live小剧场不知道怎么收尾
+
+这下明白了，只要2nd两场相同演出都是断章狗就不用担心，想知道结局请等3rd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18125#       发表于 2024-6-27 22:08
+
+鸡不会7-10月什么东西都没有，就那两首新曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18126#       发表于 2024-6-27 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有一种半路突然被拉出来凑数所以什么都赶不上的观感
+

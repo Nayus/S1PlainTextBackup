@@ -32,3 +32,15 @@ PV基本上都修正了
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 7518#       发表于 2024-6-27 22:13
+
+剧场动画『ラブライブ！虹ヶ咲 学園
+
+スクールアイドル同好会 完結編 第1章』
+
+正式PV：[https://youtu.be/U2bo9zt6nY4](https://youtu.be/U2bo9zt6nY4)
+

@@ -9347,3 +9347,49 @@ GUST ...</blockquote>
 拉碧丝连武器都没有，真就和大少算一个战斗单位了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双人模组也不错啊，也是一个新的尝试
 
+
+*****
+
+####  Squall25  
+##### 922#       发表于 2024-6-27 11:36
+
+但是莱莎的上进是靠1软色情赚了大钱，确实没啥参考性<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我法现在根本没有这样的机遇，而且闪轨和伊苏8卖的好，后续作品的开发待遇又如何呢
+
+*****
+
+####  洛克萨斯  
+##### 923#       发表于 2024-6-27 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65398206&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-6-27 11:36</a>
+
+但是莱莎的上进是靠1软色情赚了大钱，确实没啥参考性我法现在根本没有这样的机遇，而且闪轨和伊苏8卖的好， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得法老控肯卖的话也不是不行，建模虽然不算精细但捏的挺好看的
+
+*****
+
+####  間桐櫻  
+##### 924#       发表于 2024-6-27 11:38
+
+說到洗白問題就想起當年城管被說虛偽的話題。大哥死了就死了，但城管還是繼續在這個輪迴活著好了。
+
+
+*****
+
+####  ravend233  
+##### 925#       发表于 2024-6-27 11:40
+
+靠热水器爆火这个赛道很难复制，有非常大的运气因素，特别是这年头热水器手游越来越多，这块的消费需求基本都被手游吃走了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不如搞百合
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Squall25  
+##### 926#       发表于 2024-6-27 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65398224&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-27 11:38</a>
+我觉得法老控肯卖的话也不是不行，建模虽然不算精细但捏的挺好看的</blockquote>
+横尾做不出第二个2b，xb出不了第二个光焰，gust也没法再做第二个莱莎，不是针对你法，这种火出圈的女角色的成功带点机缘。你法现在就算美术再次拉满也不一定运气好能有出圈的。
+

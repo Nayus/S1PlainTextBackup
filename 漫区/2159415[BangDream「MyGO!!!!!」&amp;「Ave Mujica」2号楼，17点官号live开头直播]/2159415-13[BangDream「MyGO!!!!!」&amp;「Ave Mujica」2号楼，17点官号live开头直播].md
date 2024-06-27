@@ -4204,3 +4204,33 @@ Roselia的新專塞了一張2024冬，PPP的新單塞了一張2025春
 按出歌的时间来算的话，7.7单独water，剩下两首10月比较有可能</blockquote>
 不会，剧情是两个两个出的，如果上半场火风的幕间，下半场只有水，那有一段是什么剧情？数量上不平衡
 
+
+*****
+
+####  NODY  
+##### 18153#       发表于 2024-6-28 00:46
+
+【佐佐木李子】《Greensleeves》——三角初华生日快乐
+[https://www.bilibili.com/video/BV1Fm42157Ea](https://www.bilibili.com/video/BV1Fm42157Ea)
+
+居然还录了两个版本
+
+*****
+
+####  rikaren  
+##### 18154#       发表于 2024-6-28 00:47
+
+water，earth放2nd第二场，预告aether/light可能性更高吧，不是water开场，aether/light预告结尾那也没必要安排在日本七夕了
+
+
+*****
+
+####  祐天寺若麦  
+##### 18155#       发表于 2024-6-28 00:51
+
+ 本帖最后由 祐天寺若麦 于 2024-6-28 00:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65407009&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-28 00:47</a>
+
+water，earth放2nd第二场，预告aether/light可能性更高吧，不是water开场，aether/light预告结尾那也没必要 ...</blockquote>
+预告是7天后就会出歌，以太是8月份的，7.14是 earth
+

@@ -10242,3 +10242,24 @@ CS2：10418</blockquote>
 
 事不过三信不了一点，我这次肯定不预购了，等一手偷跑剧透
 
+
+*****
+
+####  ravend233  
+##### 1005#       发表于 2024-6-28 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65406603&amp;ptid=2160194" target="_blank">Esoterica 发表于 2024-6-27 23:44</a>
+话说现在轨迹哪个贴吧流量比较大？一部游戏一个吧感觉好混乱</blockquote>
+现在就是界轨吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 1006#       发表于 2024-6-28 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奔着cp来的那你法社几乎是没有信用的（）还是看看主线剧情到底藏的什么活吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

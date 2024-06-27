@@ -9222,3 +9222,106 @@ XB和FF12等即时制、莱莎和FF13分类不明、圣兽之王和十三机兵�
 
 参考隔壁莱莎，我可以说莱莎1到3战斗系统简直天翻地覆，特别是莱莎1到2，这简直不像一个游戏，好不好另说，新鲜感是拉满了
 
+
+*****
+
+####  无动于衷  
+##### 910#       发表于 2024-6-27 11:15
+
+ 本帖最后由 无动于衷 于 2024-6-27 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397789&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-6-27 11:12</a>
+
+感觉阿法出个新系列没必要搞新系统，黎轨系统的成功感觉就是个偶发事件，和伊苏8剧本一样，黎1这系统定下来 ...</blockquote>
+你觉得天翻地覆只是因为你GUST游戏玩的少，但凡玩过蓝反帝都应该知道莱莎3的战斗系统是怎么变出来的
+
+GUST游戏粉丝最喜欢做的一件事情，恰恰就是看新作的元素究竟有多少是旧作变过来的
+
+*****
+
+####  ravend233  
+##### 911#       发表于 2024-6-27 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397789&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-6-27 11:12</a>
+
+感觉阿法出个新系列没必要搞新系统，黎轨系统的成功感觉就是个偶发事件，和伊苏8剧本一样，黎1这系统定下来 ...</blockquote>
+你法喜欢的是在一个框架上一直做加法增加新的子系统直到换新系列，数值从来都是开摆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 912#       发表于 2024-6-27 11:17
+
+莱莎2比起1系统进步确实很大，以至于3倒也是只能缝缝补补。
+黎轨的问题在于这代导力器系统看似大有可为，但如今法老控的工期完全不允许他们有功夫打磨的足够好玩，也就是他们根本驾驭不住，尤其是如今法爱堆可用角色的情况下，肯定不如闪创那个系统容易量产化角色。黎轨系统量产的角色基本都是垃圾。而且法在黎轨也有点走火入魔，原野战斗本身伟大在于无缝进出回合制，但法因为没能力打磨回合制，选择原野疯狂加东西表现得自己努力过，分散本就没有多少的精力。
+
+*****
+
+####  洛克萨斯  
+##### 913#       发表于 2024-6-27 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所长啥时候可以两套模组，一套砍王一套王八拳，我觉得黎轨这群人的武器设计应该一开始是有多模式的想法的
+
+
+*****
+
+####  ravend233  
+##### 914#       发表于 2024-6-27 11:21
+
+ 本帖最后由 ravend233 于 2024-6-27 11:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397900&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-27 11:19</a>
+
+所长啥时候可以两套模组，一套砍王一套王八拳，我觉得黎轨这群人的武器设计应该一开始是有多模式的想法的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非限制可控角色数量，这玩意大概是不会做了，你法社只要还在没活了就堆角色数量这条路上狂奔，角色深度和可玩性上限就这样了，工期不够
+
+黎轨这系统给原野战斗加机制不是不能做，但是先把回合制的数值和角色养成深度做起来有闲工夫再做，但是目前很大概率是真就只在原野战斗上做加法其他开摆
+
+黎轨系统最有价值的就是无缝进出战斗和可以自己控制是否交战，很大程度加快了回合制游戏过图的效率和游戏节奏
+
+*****
+
+####  洛克萨斯  
+##### 915#       发表于 2024-6-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397938&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-27 11:21</a>
+
+除非限制可控角色数量，这玩意大概是不会做了，你法社只要还在没活了就堆角色数量这条路上狂奔，角色深度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎，角色多模组多技能组可玩性能高好多的，我觉得黎轨的系统底子真不错的
+
+*****
+
+####  一步成诗  
+##### 916#       发表于 2024-6-27 11:23
+
+拉碧丝连武器都没有，真就和大少算一个战斗单位了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新世界的派蒙  
+##### 917#       发表于 2024-6-27 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397828&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-6-27 11:15</a>
+
+你觉得天翻地覆只是因为你GUST游戏玩的少，但凡玩过蓝反帝都应该知道莱莎3的战斗系统是怎么变出来的
+
+GUST ...</blockquote>
+人家还抽空搞了个像模像样的开放世界呢，我真的觉得人家挺上进的（手游除外<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">）
+
+*****
+
+####  aimujie  
+##### 918#       发表于 2024-6-27 11:24
+
+你法不一年一作也搞不出7rb这种水平的重置，还不如给老玩家留个美好的回忆
+
+快点把轨迹完结出新title，玩法参考轨迹都可以
+
+*****
+
+####  ravend233  
+##### 919#       发表于 2024-6-27 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397965&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-27 11:22</a>
+
+哎，角色多模组多技能组可玩性能高好多的，我觉得黎轨的系统底子真不错的 ...</blockquote>
+底子确实有很大发展空间吧，但是数值和过多的角色数量把上限封死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

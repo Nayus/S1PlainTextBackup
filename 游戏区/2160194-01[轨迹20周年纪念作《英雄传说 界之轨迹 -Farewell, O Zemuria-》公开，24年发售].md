@@ -9026,3 +9026,62 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1983920&amp;extra=
 
 可能你法自己也没想清楚，但是文案又有了一大堆点子，所以决定干脆再做一部得了，反正估计你法社自己都觉得卖不掉爱咋咋地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 889#       发表于 2024-6-27 10:28
+
+大少目前塑造来看是自认坏人，新作台词感觉也是这个倾向
+
+*****
+
+####  卢迪克  
+##### 890#       发表于 2024-6-27 10:30
+
+应该需要连续发布三作的，重制是没有了
+
+*****
+
+####  ravend233  
+##### 891#       发表于 2024-6-27 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计就是2025京都迷城，2026界2，2027伊苏11，然后轨终章三部
+
+空轨remake怕是看到FF7RB的暴死吓到了（）
+
+*****
+
+####  diectt  
+##### 892#       发表于 2024-6-27 10:34
+
+图啥，拖呗，都知道轨迹是鸡肋，但新的做啥又不知道，1年1作指标在那儿不做又不行，素材有那么多可以复用，还是继续轨迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有轨迹都玩了这么多部了，还真有人信近藤的鬼话界轨1部搞定啊？就算下一部不叫界轨2了，也不过是换个名字接着该怎么来还是怎么来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 893#       发表于 2024-6-27 10:35
+
+天天说7RB暴死，再暴死你法有一作能达到那个销量都能开好几次香槟了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+空Re目前反正只知道是新建文件夹，砍没砍就看20周年内公不公布了
+
+*****
+
+####  酷乐  
+##### 894#       发表于 2024-6-27 10:37
+
+空轨re根本不必参照FF7re，后者只是因为人工太多开发时间太长导致成本过高才显得亏罢了，而Falcom人工成本固定制作周期固定受众群体固定，是办公室的公务员和世界杯选手的区别。
+
+*****
+
+####  ravend233  
+##### 895#       发表于 2024-6-27 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IP体量不是一个等级啊，但是FF7RB这种规格的重制版卖得销量也完全对不起IP体量，那换到你法社的空轨怕不是更难看了
+
+不过我估计内部还在讨论到底做不做
+

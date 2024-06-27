@@ -3983,3 +3983,12 @@ lisa出来了没
 
 不会到3rd前还什么东西都没吧
 
+
+*****
+
+####  KirigawaMaki  
+##### 18130#       发表于 2024-6-27 22:35
+
+沟槽的wsd<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+感觉原先奶的下下周鸡全员邦tv都不好说了，不会也要等到3rd场吧
+

@@ -44,3 +44,14 @@ PV基本上都修正了
 
 正式PV：[https://youtu.be/U2bo9zt6nY4](https://youtu.be/U2bo9zt6nY4)
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 7519#       发表于 2024-6-27 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65405431&amp;ptid=1959558" target="_blank">仟音一心 发表于 2024-6-27 21:45</a>
+PV基本上都修正了
+动画首次登场：虹咲学园理事长/钟岚珠的妈CV野上由加奈</blockquote>
+岚珠妈的造型一看就是有战败CG的
+

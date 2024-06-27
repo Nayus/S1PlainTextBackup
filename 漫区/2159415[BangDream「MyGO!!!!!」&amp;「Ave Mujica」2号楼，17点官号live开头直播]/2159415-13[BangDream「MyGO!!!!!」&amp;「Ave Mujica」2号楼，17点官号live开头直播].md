@@ -4252,3 +4252,19 @@ https://ngabbs.com/read.php?tid=40691675
 
 有无隔壁号还活着的漏油去试下点赞这个评论，毕竟亲眼看到了这个评论从2赞变成了0
 
+
+*****
+
+####  rikaren  
+##### 18157#       发表于 2024-6-28 02:03
+
+<img src="https://img.saraba1st.com/forum/202406/28/020348mo2xyxoz1x4wbxvv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-06-28-02-03-22-01_3583b5560b9060cb28008c20a0fd6fa9.jpg</strong> (258.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 02:03 上传
+
+蚌埠住了
+

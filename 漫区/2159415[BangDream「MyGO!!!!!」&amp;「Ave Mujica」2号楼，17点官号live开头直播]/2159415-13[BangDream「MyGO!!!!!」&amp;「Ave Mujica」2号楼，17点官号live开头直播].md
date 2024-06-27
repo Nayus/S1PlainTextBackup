@@ -4268,3 +4268,20 @@ https://ngabbs.com/read.php?tid=40691675
 
 蚌埠住了
 
+
+*****
+
+####  影伴光生  
+##### 18158#       发表于 2024-6-28 02:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初说要连载到第二季开播的赛博小祥昨天已经宣了要进最终卷，并且承认写得收不住了——进一步催生滑坡讨论
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 18159#       发表于 2024-6-28 02:10
+
+隔壁走廊过于幽默了，踩那个发言是看不到期望中“只看二创，脑子完全没有，跟个巨婴一样的“祥厨”的表现所以破防了吗？
+

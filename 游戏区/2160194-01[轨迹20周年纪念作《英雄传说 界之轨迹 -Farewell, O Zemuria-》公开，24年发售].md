@@ -10017,3 +10017,32 @@ CS2：10418</blockquote>
 
 剑女这个简介写的都能直接判女学生股死刑了，倒要看看界轨是不是还要钓
 
+
+*****
+
+####  keiyoku  
+##### 981#       发表于 2024-6-27 16:30
+
+谢谢轨迹学家们<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+坏了，不会就黎2那几个这辈子只配穿换色皮了吧<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">真不觉得懒狗法老控会重新给几个人做套新的
+
+*****
+
+####  宛若青空  
+##### 982#       发表于 2024-6-27 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401489&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-6-27 16:14</a>
+我怎么突然就有了一种之前的Oz计划还能接着续的错觉</blockquote>
+地精的Originator Zero系列的人造人目的是为了既是人的状态也能化作兵器，现时点用于相克的需求已经没了也就没存在的理由了，MK社的人造素体技术应该也有区别于地精。
+
+难道说卢法斯&amp;拉碧丝同一个战斗机体，进战斗拉碧丝就变武器吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 983#       发表于 2024-6-27 16:36
+
+话说金凯德这截图对面不就是克洛和黎恩么，共和国居然对他国的军人和前kb分子这么宽容，只有大少是被盯紧的
+

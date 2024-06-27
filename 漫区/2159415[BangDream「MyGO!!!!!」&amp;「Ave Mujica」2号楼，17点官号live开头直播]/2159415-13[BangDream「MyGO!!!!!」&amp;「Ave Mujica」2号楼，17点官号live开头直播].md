@@ -3641,3 +3641,31 @@ R组的Sage der Rosen
 
 lisa出来了没
 
+
+*****
+
+####  紫吹兰  
+##### 18104#         楼主| 发表于 2024-6-27 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65392260&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-6-26 21:20</a>
+
+发个解密版，明天估计是彩和ykn领队，让我们看看ykn有没有三连冠的可能性</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/27/182647wzxc626j0ywtr682.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719402050361.jpg</strong> (186.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 18:26 上传
+
+不是，你们三个吉他没贝斯啊，那ray那组两个贝斯？
+
+
+*****
+
+####  CyDiablo  
+##### 18105#       发表于 2024-6-27 18:33
+
+我超，定制冠军都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高估国服策划了
+

@@ -826,3 +826,17 @@ b站、s1、NGA选了3次，2次久美子1次真由<img src="https://static.sara
 
 音痴+不看京吹，选的1。可能是1音量大让我觉得有厚度吧。所以京吹那么多帖在吵什么
 
+
+*****
+
+####  ddy2811  
+##### 83#       发表于 2024-6-27 18:30
+
+ 本帖最后由 ddy2811 于 2024-6-27 18:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401340&amp;ptid=2188733" target="_blank">beer 发表于 2024-6-27 16:04</a>
+
+音痴+不看京吹，选的1。可能是1音量大让我觉得有厚度吧。所以京吹那么多帖在吵什么 ...</blockquote>
+结果选的1，但更多人选的2，而2在投票时还明里暗里告诉你是靠人情拉平的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外选的是低音部分，当然小号的效果也是参考因素之一
+

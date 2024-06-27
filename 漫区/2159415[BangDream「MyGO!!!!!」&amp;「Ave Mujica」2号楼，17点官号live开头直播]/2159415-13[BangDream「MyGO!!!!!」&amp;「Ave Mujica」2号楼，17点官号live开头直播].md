@@ -3669,3 +3669,15 @@ lisa出来了没
 
 我超，定制冠军都来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高估国服策划了
 
+
+*****
+
+####  rikaren  
+##### 18106#       发表于 2024-6-27 18:40
+
+ 本帖最后由 rikaren 于 2024-6-27 18:45 编辑 
+<blockquote>紫吹兰 发表于 2024-6-27 18:24
+老团人气冠军+新团人气冠军，就问你怎么输</blockquote>
+
+硬凑剩下位置的高人气角色的话，小白/kkr+摩卡+soyo+lisa姐+花音+乐器配唢呐，应该也有一战之力，唢呐应该会跟kkr
+

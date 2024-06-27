@@ -30,3 +30,11 @@
 
 创彩本体＋无限邂逅服装＋六角机牙装备，甚至加了少量fag的件，这俩新人物可谓是寿屋大合体的典例了
 
+
+*****
+
+####  冰风血羽  
+##### 1100#       发表于 2024-6-27 14:43
+
+50抽木有小石川，好帅好想要，还是火狙<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

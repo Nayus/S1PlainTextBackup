@@ -9683,3 +9683,44 @@ GIJC~P[6CFRO{1T2B$F1]LS_tmb.jpg
 鬼故事，背景里石柱上有表</blockquote>
 不是那八个，是X，
 
+
+*****
+
+####  一步成诗  
+##### 947#       发表于 2024-6-27 14:39
+
+在理解彼此立场的同时，也逐步建立起准备好与对方更加接近的关系
+
+遛接着遛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信你算我输
+
+*****
+
+####  ravend233  
+##### 948#       发表于 2024-6-27 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来的那么多表
+
+*****
+
+####  Aeons  
+##### 949#       发表于 2024-6-27 14:40
+
+本篇据我所知没有这样的光和X字表的
+
+*****
+
+####  aimujie  
+##### 950#       发表于 2024-6-27 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65400448&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-27 14:40</a>
+
+哪来的那么多表</blockquote>
+去年买的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 951#       发表于 2024-6-27 14:44
+
+连续找三作表我看到这玩意儿也快有ptsd了
+

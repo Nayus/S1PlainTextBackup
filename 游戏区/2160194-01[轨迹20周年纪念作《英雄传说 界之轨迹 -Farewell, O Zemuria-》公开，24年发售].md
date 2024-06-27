@@ -8981,3 +8981,48 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1983920&amp;extra=
 
 都别大少宰相洗白了，结社都从黑的洗成灰的了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 885#       发表于 2024-6-27 10:18
+
+教团：原来只有我一个真的在干坏事吗？
+白面：你法我笑
+
+
+*****
+
+####  一步成诗  
+##### 886#       发表于 2024-6-27 10:25
+
+比起这些，目前情报透露出来的气息感觉有界2板上钉钉了，你法真是好有本事，闪做4部是因为能卖，共和国做四部到底是图什么我看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 887#       发表于 2024-6-27 10:26
+
+空轨相关
+
+<img src="https://img.saraba1st.com/forum/202406/27/102525ob9rkgkomb1dk1kz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719454998004.jpg</strong> (47.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-27 10:25 上传
+
+*****
+
+####  ravend233  
+##### 888#       发表于 2024-6-27 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65397078&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-27 10:25</a>
+
+比起这些，目前情报透露出来的气息感觉有界2板上钉钉了，你法真是好有本事，闪做4部是因为能卖，共和国做四 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">京都迷城和伊苏11之间必须有一个填档期的，我不觉得你法社现在有连续出两部ACT的能力，这个填档期的要么是共和国篇后日谈要么是界2咯
+
+可能你法自己也没想清楚，但是文案又有了一大堆点子，所以决定干脆再做一部得了，反正估计你法社自己都觉得卖不掉爱咋咋地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

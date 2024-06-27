@@ -3968,3 +3968,18 @@ lisa出来了没
 
 沃日，真没新东西那就要炎上了吧
 
+
+*****
+
+####  御幸一也  
+##### 18128#       发表于 2024-6-27 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">本來這樣開LIVE就很少見，又不是巡演，還開分開兩地的2場
+
+*****
+
+####  akiomn  
+##### 18129#       发表于 2024-6-27 22:31
+
+不会到3rd前还什么东西都没吧
+

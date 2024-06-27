@@ -301,3 +301,31 @@ Seven Tremor Souls
 
 EGO有啥必带的吗
 
+
+*****
+
+####  Jamaisvu  
+##### 773#       发表于 2024-6-27 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65402851&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-6-27 18:19</a>
+
+间章之后就没怎么玩
+
+现在这震撼队是哪些人？
+
+EGO有啥必带的吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/27/200524dp3f3z3izqyqlyhl.jpg" referrerpolicy="no-referrer">
+
+<strong>20240627200233_1.jpg</strong> (733.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 20:05 上传
+
+我的震颤队是这样的，把唐和罗换成新增的T社二人组应该就算完全体了吧，顺序大概是臼齿奥、悔恨浮、T唐、圣愚宝、十一夫、玫瑰罗/T罗。
+
+玫罗这卡有点落后了，拼点能力、生存能力还没T罗强（输出能力可能玫罗稍强？二三技能都可以震颤爆发）。
+
+我现在都不知道玫罗能放在哪个队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">辅助被动没有T罗的拼点强化好，进充能的话早晚被W罗挤下来...估计以后坐冷板凳的老卡会越来越多吧...
+

@@ -4055,3 +4055,37 @@ syl，感觉夏大发表会可能是邦数字场，真的有鸡什么事吗，�
 
 等着看看萝新专抽选是啥，我和朋友讨论完这边是觉得萝专、狗新单可以塞13th，其他团根本没碟塞<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18138#       发表于 2024-6-27 23:04
+
+那叫李子去是干嘛呢，捧哏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18139#       发表于 2024-6-27 23:08
+
+宣一下7.10的碟片吧，至少有一半相关呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正这个2nd搞的我不敢信鸡有新东西了，都是2nd没有才是正常的，这下擅自期待擅自失望了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18140#       发表于 2024-6-27 23:11
+
+710有啥鸡碟吗
+
+真是奇了怪了ras和萝两天live都有配信，鸡两场2nd只配信一场，搞毛啊
+
+*****
+
+####  Aendst  
+##### 18141#       发表于 2024-6-27 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我不好说是不是因为动画延期导致整个mujica的企划规划都乱套了，所以mujica各方面的相关决策才如此的离奇
+

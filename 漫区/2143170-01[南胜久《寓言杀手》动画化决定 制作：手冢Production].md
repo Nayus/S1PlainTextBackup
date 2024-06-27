@@ -43,3 +43,14 @@
 贴吧有机翻，去年就翻译完了</blockquote>
 机翻那个质量...不过还好台版单行本应该会继续出
 
+
+*****
+
+####  琴音  
+##### 119#       发表于 2024-6-27 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65370348&amp;ptid=2143170" target="_blank">卡拉德利姆 发表于 2024-6-25 11:46</a>
+
+原作第二部挺烂的，属于没活狗尾续貂</blockquote>
+还好吧，主要是第一部过于优秀，第二部看起来有点平庸
+

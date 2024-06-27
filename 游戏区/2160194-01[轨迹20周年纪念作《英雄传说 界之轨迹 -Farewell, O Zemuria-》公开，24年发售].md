@@ -9976,3 +9976,44 @@ CS2：10418</blockquote>
 有没有轨迹学家看出小拉这套泳装是新的还是创轨别的角色泳装换色皮
 <img src="https://p.sda1.dev/18/8aea2b204c73ac84d69a422f43d05853/CMP_20240627161606534.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 977#       发表于 2024-6-27 16:19
+
+看着好像就是创轨的泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 978#       发表于 2024-6-27 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65401563&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-6-27 16:18</a>
+有没有轨迹学家看出小拉这套泳装是新的还是创轨别的角色泳装换色皮</blockquote>
+回去看了下，和创轨的泳装不同也和别的角色的不同，应该是新的（小拉还一直彰显自己长大想变得成熟性感结果还是这么孩子气的泳装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 979#       发表于 2024-6-27 16:25
+
+新的，也就和托娃比较像
+
+<img src="https://img.saraba1st.com/forum/202406/27/162504wbh4bqh6i1ee2ri0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240627_162231.jpg</strong> (79.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-27 16:25 上传
+
+*****
+
+####  风祭果凛  
+##### 980#       发表于 2024-6-27 16:25
+
+剑女这个简介写的都能直接判女学生股死刑了，倒要看看界轨是不是还要钓
+

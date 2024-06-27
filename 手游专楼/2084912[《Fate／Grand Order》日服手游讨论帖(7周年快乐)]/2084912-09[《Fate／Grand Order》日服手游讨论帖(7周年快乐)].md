@@ -1131,3 +1131,11 @@ ios没有版本更新？
 
 好像是2个星期的活动，要么是百重塔，要么是无限池，估计百重塔的机会多一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 12906#       发表于 2024-6-28 03:59
+
+来点掉齿轮的活动罢，养完尼莫+随手点了几下想点的天赋树，库存齿轮清零了直接<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

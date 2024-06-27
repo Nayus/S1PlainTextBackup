@@ -9125,3 +9125,11 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1983920&amp;extra=
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法整新IP估计也是类似轨的回合制，加上准备系列化的迷城已经有两个ACT的IP了，这回合制的开发经验和人员总得找个东西续上
 
+
+*****
+
+####  diectt  
+##### 901#       发表于 2024-6-27 10:49
+
+其实只要法老控1年1作的模式不改，出什么最后都是这么一回事，切勿2个擅自<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

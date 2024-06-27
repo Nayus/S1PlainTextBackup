@@ -4193,3 +4193,14 @@ Roselia的新專塞了一張2024冬，PPP的新單塞了一張2025春
 
 按出歌的时间来算的话，7.7单独water，剩下两首10月比较有可能
 
+
+*****
+
+####  祐天寺若麦  
+##### 18152#       发表于 2024-6-28 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65406838&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-28 00:18</a>
+
+按出歌的时间来算的话，7.7单独water，剩下两首10月比较有可能</blockquote>
+不会，剧情是两个两个出的，如果上半场火风的幕间，下半场只有水，那有一段是什么剧情？数量上不平衡
+

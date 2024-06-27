@@ -3599,3 +3599,27 @@ R组的Sage der Rosen
 这几天感受，5v5不要再搞了.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18101#       发表于 2024-6-27 18:08
+
+<img src="https://img.saraba1st.com/forum/202406/27/180724e7v5oupeoh5c5s0g.jpg" referrerpolicy="no-referrer">
+
+<strong>1719482809890.jpg</strong> (169.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 18:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/27/180753f8ovc9ek96by0scl.jpg" referrerpolicy="no-referrer">
+
+<strong>1719482814779.jpg</strong> (206.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 18:07 上传
+
+我超，ykn和爱音这组，剩下什么组才能和这组拼人气？
+

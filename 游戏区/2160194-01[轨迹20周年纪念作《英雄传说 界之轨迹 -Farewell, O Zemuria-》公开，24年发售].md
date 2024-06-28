@@ -10560,3 +10560,22 @@ psn中文站，轨迹的攻略向来是又快又全又好
 帝国已经被这群官二代富二代霍霍完了，该霍霍共和国了</blockquote>
 全员圣母我是没想到的，这帮虫豸怎么能搞好帝国 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 1038#       发表于 2024-6-28 12:31
+
+帝国七班这群虫豸看一次头大一次
+
+
+*****
+
+####  diectt  
+##### 1039#       发表于 2024-6-28 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65410566&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-6-28 12:05</a>
+
+全员圣母我是没想到的，这帮虫豸怎么能搞好帝国</blockquote>
+曲线救国，既然帝国搞不好了，把共和国也霍霍就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

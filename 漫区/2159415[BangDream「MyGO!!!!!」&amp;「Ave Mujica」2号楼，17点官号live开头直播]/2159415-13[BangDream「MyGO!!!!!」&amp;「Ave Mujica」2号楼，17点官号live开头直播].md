@@ -4760,3 +4760,18 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 
 主要商战还是有点太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的是邦多利的世界观吗
 
+
+*****
+
+####  rikaren  
+##### 18208#       发表于 2024-6-28 17:16
+
+想看初祥能不能开创你邦第一次双剧情核心
+
+*****
+
+####  枫林不见  
+##### 18209#       发表于 2024-6-28 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 我感觉前半段卖初祥后半段卖灯祥
+

@@ -2712,3 +2712,54 @@ miko：我最喜欢兄弟吵架的作品了！
 [https://i.imgur.com/nqnIMzI.jpeg](https://i.imgur.com/nqnIMzI.jpeg)
 [https://i.imgur.com/eLnN78o.jpeg](https://i.imgur.com/eLnN78o.jpeg)</blockquote>
 
+
+*****
+
+####  holoan  
+##### 9117#         楼主| 发表于 2024-6-27 21:44
+
+拉米动不动就在直播里夸miko
+
+另一边 不开直播爱看别人直播
+
+<img src="https://img.saraba1st.com/forum/202406/27/214420qd435c5yy55da54g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-27 21:44 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|笑了|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 9118#         楼主| 发表于 2024-6-28 17:11
+
+<img src="https://img.saraba1st.com/forum/202406/28/171037bqudlkdo0fqzfw1o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/171112k81b148f410ylyv1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 17:11 上传
+

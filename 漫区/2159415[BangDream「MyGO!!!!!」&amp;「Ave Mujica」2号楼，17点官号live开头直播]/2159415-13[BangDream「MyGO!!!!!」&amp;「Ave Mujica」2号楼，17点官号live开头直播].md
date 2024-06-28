@@ -4449,3 +4449,11 @@ https://ngabbs.com/read.php?tid=40691675
 
 看了一下，主吧环境还是可以的，说动画卡进度的就一个还没人回，剩下都是吐槽ylgo没见识，老团更长时间没活动的都有的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 18175#       发表于 2024-6-28 09:37
+
+那贴太弱智了我要死了
+

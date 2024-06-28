@@ -10292,3 +10292,16 @@ CS2：10418</blockquote>
 黎轨2现在有比较全的中文攻略了吗，打算界轨出来前开个二周目复习下剧情热热手 ...</blockquote>
 psn中文站，轨迹的攻略向来是又快又全又好
 
+
+*****
+
+####  卢迪克  
+##### 1010#       发表于 2024-6-28 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65407008&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-28 00:47</a>
+
+现在就是界轨吧
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+来来去去还是那些老面孔在分析剧情
+

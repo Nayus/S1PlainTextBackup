@@ -71,3 +71,17 @@
 你们不会都是玩系统的吧</blockquote>
 你问的是强推p3f，烂尾p5去重新定义JRPG的桥野桂吗？
 
+
+*****
+
+####  town009  
+##### 489#       发表于 2024-6-28 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65415041&amp;ptid=2140224" target="_blank">otaku21126 发表于 2024-6-28 19:55</a>
+没人关心他这个日式奇幻版高堡奇人的剧情嘛
+
+你们不会都是玩系统的吧</blockquote>
+中世纪 争王 种族jrpg 上一个写这个题材的是破晓传说，你想想日本人的笔里写这个，还不如期待系统呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

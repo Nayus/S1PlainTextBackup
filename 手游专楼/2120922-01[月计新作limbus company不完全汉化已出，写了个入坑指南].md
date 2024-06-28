@@ -437,3 +437,27 @@ T社的防御技能确实挺陷阱的，角色强度有一部分在于借贷后�
 
 PV里还疑似出现了对战罪人人格的画面，不知道是不是镜像对决什么的...
 
+
+*****
+
+####  久井路路  
+##### 777#       发表于 2024-6-28 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414353&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-6-28 17:40</a>
+
+四号线假面舞会，2024.7.4开启。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202406/28/175901ima5n6r12kn41xra.png" referrerpolicy="no-referrer">
+
+<strong>01683baf92c42cc1ff195a5ecc9661fc.png</strong> (271.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 17:59 上传
+
+中间有这么一句
+
+“等一下……大罪那玩意儿应该是长得更像怪物一点的吧。比如说那堆肉块或者长了牙的植物什么的……但是那个……和我们一模一样。”
+
+是大罪生物长成了罪人的样子。
+

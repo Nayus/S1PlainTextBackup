@@ -10881,3 +10881,36 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 你法这患得患失的毛病简直堪比手游厂商，不如说手游还知道要卖当期卡池角色突出戏份，你法也不知道在怕什么，怕这个没戏份怕那个台词少了，转了一圈脸是都露了，但愣是没一个角色好看的，也是绝了。
 
+
+*****
+
+####  hikari520  
+##### 1070#       发表于 2024-6-28 17:56
+
+结局火箭把魔鬼装打上月球，Van看着故乡，周围出现一些奇怪的生物，然后咚结束也不差。
+
+闪3不讨喜还是因为刚刚把白兔整挂了，黎恩吃瘪ing，你来个咚，要玩家等一年再报仇。太不爽了。
+
+
+*****
+
+####  byisme001  
+##### 1071#       发表于 2024-6-28 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414497&amp;ptid=2160194" target="_blank">hikari520 发表于 2024-6-28 17:56</a>
+结局火箭把魔鬼装打上月球，Van看着故乡，周围出现一些奇怪的生物，然后咚结束也不差。
+
+闪3不讨喜还是因为 ...</blockquote>
+独行月球的画面在预告片里的出现了，就不太可能是结尾画面了
+
+*****
+
+####  ravend233  
+##### 1072#       发表于 2024-6-28 18:02
+
+闪3的问题还是一个事不过三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过界轨咚的话我觉得还是会被骂死的，大伙真的不想陪你法社这帮低能烂活耗时间了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

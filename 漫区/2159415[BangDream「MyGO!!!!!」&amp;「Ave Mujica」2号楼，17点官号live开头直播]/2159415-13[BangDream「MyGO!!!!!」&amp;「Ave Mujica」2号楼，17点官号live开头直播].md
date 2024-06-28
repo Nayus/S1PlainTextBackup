@@ -4823,3 +4823,27 @@ NGA二创入脑的挺多的
 初祥王道双向救赎</blockquote>
 点了，祥子和狗肯定会和解，但是比和解更多的感觉等手游说不定更靠谱
 
+
+*****
+
+####  rikaren  
+##### 18214#       发表于 2024-6-28 18:07
+
+<img src="https://img.saraba1st.com/forum/202406/28/180609pr7grggq5zn7ev57.jpg" referrerpolicy="no-referrer">
+
+<strong>1719569043089.jpg</strong> (160.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/180618xxrfuy93vy6gjv9t.jpg" referrerpolicy="no-referrer">
+
+<strong>1719569038225.jpg</strong> (185.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 18:06 上传
+
+小白那组msr，soyo，maya，cst，ars，应该和ykn那组有点一战之力，lisa和燐燐会在tmr那组吗？
+

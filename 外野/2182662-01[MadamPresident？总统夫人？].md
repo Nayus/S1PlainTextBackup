@@ -583,3 +583,30 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 今天结束突然概率变大了
 
+
+*****
+
+####  洛拉斯  
+##### 69#       发表于 2024-6-28 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825727&amp;ptid=2182662" target="_blank">龙星丸 发表于 2024-5-6 12:24</a>
+民主党不如狠一点，直接内部弄死拜登，然后吹风是**支持者下手的，推现在的女副总统上位坐完剩下的时间再直 ...</blockquote>
+这剧本我好像看过，总统是不是叫underwood
+
+*****
+
+####  星花  
+##### 70#       发表于 2024-6-28 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409675&amp;ptid=2182662" target="_blank">qrgarry 发表于 2024-6-28 11:01</a>
+
+今天结束突然概率变大了</blockquote>
+登登怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Illidan  
+##### 71#       发表于 2024-6-28 11:12
+
+ykw的命门是没有政治继承人。
+

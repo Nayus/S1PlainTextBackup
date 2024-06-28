@@ -10406,3 +10406,67 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 执行者战斗力差距有点大
 
+
+*****
+
+####  一步成诗  
+##### 1021#       发表于 2024-6-28 11:07
+
+如果还有界2，界1客串的这批人还在吗还是换一批来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1022#       发表于 2024-6-28 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409755&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-28 11:07</a>
+
+如果还有界2，界1客串的这批人还在吗还是换一批来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是继续来，然后把这次没来的人补上
+
+*****
+
+####  ravend233  
+##### 1023#       发表于 2024-6-28 11:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都世界危机了，反派当然是空降个什么神之类的玩意呗
+
+
+*****
+
+####  无动于衷  
+##### 1024#       发表于 2024-6-28 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65407067&amp;ptid=2160194" target="_blank">winggg 发表于 2024-6-28 01:02</a>
+
+我是轨迹拆cp党。
+
+感情戏方面，我就是想看例如卢法斯在娜狄雅的目前调戏斯温，或是阿加特爱上了缇妲妈妈之 ...</blockquote>
+这种事情你法搞过 就是稻草人和利贝尔王女 
+
+然而这种事情就跟你法写死个人气角色一样 可能会有偶然 但不会有意外
+
+*****
+
+####  一步成诗  
+##### 1025#       发表于 2024-6-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409767&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-28 11:08</a>
+
+当然是继续来，然后把这次没来的人补上</blockquote>
+超级包饺子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1026#       发表于 2024-6-28 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法：我觉得玩家就爱这口超级大饺砸
+
+*****
+
+####  洛克萨斯  
+##### 1027#       发表于 2024-6-28 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">肯定少不了历代主角坐一起啊，克州组和利贝尔组还没来呢
+

@@ -81,3 +81,14 @@
 还好吧，主要是第一部过于优秀，第二部看起来有点平庸</blockquote>
 第二部好像是受疫情影响，整个大纲都推倒重来了，没有第一部三个故事那么连贯
 
+
+*****
+
+####  琴音  
+##### 123#       发表于 2024-6-28 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409437&amp;ptid=2143170" target="_blank">smdzh2 发表于 2024-6-28 10:43</a>
+
+第二部好像是受疫情影响，整个大纲都推倒重来了，没有第一部三个故事那么连贯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我要求也不高，有得看就行了，希望第三部顺利收尾
+

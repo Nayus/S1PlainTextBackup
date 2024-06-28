@@ -60,3 +60,11 @@
 
 上次光团实在是给人打伤了。
 
+
+*****
+
+####  洛克萨斯  
+##### 17958#       发表于 2024-6-28 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次最恶心就是各种莫名其妙翻车，200挂机收菜时不时给你全灭吃复活打，体验很差
+

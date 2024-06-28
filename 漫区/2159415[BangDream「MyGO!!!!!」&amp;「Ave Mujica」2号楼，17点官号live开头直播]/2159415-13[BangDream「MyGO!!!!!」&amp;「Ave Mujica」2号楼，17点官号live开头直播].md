@@ -4422,3 +4422,22 @@ https://ngabbs.com/read.php?tid=40691675
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  星天观测  
+##### 18173#       发表于 2024-6-28 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408283&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-6-28 09:05</a>
+
+乐死了，才在主吧看到个嫌🐶箱活少，然后评论说mujica卡进度的
+
+  -- 来自 能看大图的 Stage1官方 Android ...</blockquote>
+母鸡卡播吧，又会影响二创环境
+
+母鸡卡不播吧，又会影响狗手游剧情
+
+综上所述，建议母鸡卡内容写成6集c团+0.5集鸡爆炸+6集狗圣出手拯救鸡+0.5集狗live
+
+这样还真最能满足狗u需求<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

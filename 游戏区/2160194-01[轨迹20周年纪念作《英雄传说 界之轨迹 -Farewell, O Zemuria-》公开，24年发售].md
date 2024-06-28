@@ -11261,3 +11261,17 @@ e大师与光生大师，两位大能出手连大道都磨灭了
 
 这首确实非常不轨迹，到底会放在哪里啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winggg  
+##### 1102#       发表于 2024-6-29 01:11
+
+ 本帖最后由 winggg 于 2024-6-29 01:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65418363&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-29 00:48</a>
+
+闪3除了序章被暴打，拿到大锤和小太刀阵之后游戏体验直线上升，缪捷入队之后对面就没有然后了，算闪创五 ...</blockquote>
+是了，闪3战斗数值做得也很不平衡，当年我也吐槽过 [https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1795208](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1795208)，
+
+刚才回帖时只顾回忆剧情，居然记不起这点了
+

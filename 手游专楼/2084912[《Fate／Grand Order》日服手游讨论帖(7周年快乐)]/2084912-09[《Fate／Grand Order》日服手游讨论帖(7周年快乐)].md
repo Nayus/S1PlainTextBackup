@@ -1415,3 +1415,19 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 四发十连只有两张五星礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 不羡慕
 
+
+*****
+
+####  Jamaisvu  
+##### 12926#       发表于 2024-6-28 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65415902&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-6-28 21:28</a>
+
+单纯是2.6跟2.7人气高而已，你不看pv里还塞了个格雷
+
+而且这是cm，不是活动pv，cm是可以重复利用的，每次不 ...</blockquote>
+谢谢提醒，这两段放完之后确实出的是FGO第二部标题而不是活动标题：
+[https://www.bilibili.com/video/BV1qM4m1m7Br](https://www.bilibili.com/video/BV1qM4m1m7Br)
+
+我说BGM怎么是逆光呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（这个倒有可能）
+

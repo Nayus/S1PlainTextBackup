@@ -4493,3 +4493,21 @@ z87也挺会攻击的<img src="https://static.saraba1st.com/image/smiley/face201
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个贴不是串子吗？我看到标题耳边就响起“哑巴里”了
 
+
+*****
+
+####  PDQ4  
+##### 18180#       发表于 2024-6-28 10:18
+
+nga没活到这种程度了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18181#       发表于 2024-6-28 10:23
+
+我只能说有时候真分不清到底是真心还是串子，如果是真心那就太色了
+
+因为有些狗u实在太幽默了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

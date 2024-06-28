@@ -10579,3 +10579,16 @@ psn中文站，轨迹的攻略向来是又快又全又好
 全员圣母我是没想到的，这帮虫豸怎么能搞好帝国</blockquote>
 曲线救国，既然帝国搞不好了，把共和国也霍霍就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1040#       发表于 2024-6-28 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65410347&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-28 11:49</a>
+
+没准ne是所长一个人干掉boss在月球和其他人离别，学妹发动创世读档逆天改命实现ge，复刻闪4 ...</blockquote>
+继续加笔，学妹逆天改命必须成神，成神待遇就和死人差不多了，众所周知感情戏中死人是赢不过的。
+
+于是三人进展就此搁置，这下不用想最后是谁赢了，等到轨迹第99作才有办法把学妹从神座拉下来。
+

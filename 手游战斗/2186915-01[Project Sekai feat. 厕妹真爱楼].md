@@ -6626,3 +6626,25 @@ NTXL-T 18岁
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  東雲絵名  
+##### 570#         楼主| 发表于 2024-6-28 20:20
+
+『エンパープル』Full ver.
+
+25時、ナイトコードで。 × 鏡音リン
+
+北京时间6月28日21:15首播公开💽
+
+#世界计划 多彩舞台#
+
+<img src="https://img.saraba1st.com/forum/202406/28/201956th3ii7hikv3jf7lh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (222.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 20:19 上传
+

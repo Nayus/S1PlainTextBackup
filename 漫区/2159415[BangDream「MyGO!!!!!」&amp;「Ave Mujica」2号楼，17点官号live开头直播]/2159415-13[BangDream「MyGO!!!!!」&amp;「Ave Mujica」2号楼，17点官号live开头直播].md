@@ -4855,3 +4855,28 @@ NGA二创入脑的挺多的
 
 还有两个主唱，lisa和rinko应该是分开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 18216#       发表于 2024-6-28 20:14
+
+没有海祥么 事业心+超级打手的组合也不错吧
+
+*****
+
+####  rikaren  
+##### 18217#       发表于 2024-6-28 20:16
+
+如果要内定ykn那组冠军lisa姐和燐燐应该就不会和灯一组了，不内定那应该会和tmr一组，ykn，msr，tmr三组厮杀。
+
+
+*****
+
+####  Aendst  
+##### 18218#       发表于 2024-6-28 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有些人是真的把自己的需求当预测，箭射到洗脚圣地臭水沟里还要画个靶
+
+不然真的没法解释为什么会贷款有独立官网独立标题视觉图摆在那官方白纸黑字明说聚焦mujica五个人的动画要mujica给mygo洗脚一整部动画
+

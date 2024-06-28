@@ -1061,3 +1061,13 @@ vspo停播三天，要戒断了
 
 她这几年不一直都这样吗，直播是不播的谷和音声是要卖的
 
+
+*****
+
+####  Devi_Lito  
+##### 399#       发表于 2024-6-28 12:02
+
+昨晚柴卡生日会凸待也尝试给ルンルン喂饭了，但本人并没出来吃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，ナナ歌力真还行吧，但也就还行的水平
+

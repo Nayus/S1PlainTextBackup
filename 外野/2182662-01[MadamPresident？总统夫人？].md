@@ -667,3 +667,13 @@ ykw的命门是没有政治继承人。
 
 按照第22号修正案，以后也不会有（说不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qrgarry  
+##### 76#       发表于 2024-6-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409790&amp;ptid=2182662" target="_blank">星花 发表于 2024-6-28 11:10</a>
+登登怎么了？</blockquote>
+辩论结束基本明牌要被换了
+

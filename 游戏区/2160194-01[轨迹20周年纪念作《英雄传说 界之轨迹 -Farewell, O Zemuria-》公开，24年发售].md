@@ -10526,3 +10526,37 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 没准ne是所长一个人干掉boss在月球和其他人离别，学妹发动创世读档逆天改命实现ge，复刻闪4
 
+
+*****
+
+####  江口夕  
+##### 1035#       发表于 2024-6-28 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389714&amp;ptid=2160194" target="_blank">gxc521 发表于 2024-6-26 17:38</a>
+因为尼谭大巨魔和他的孝子贤孙吹呗
+
+—— 来自 Xiaomi 2211133C, Android 14上的 S1Next-鹅版 v3.0.0.81- ...</blockquote>
+挑毛病sc毛病更多，別大哥笑二哥
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+*****
+
+####  悠悠你心  
+##### 1036#       发表于 2024-6-28 12:00
+
+又要分线又要分组攻略，梦幻回廊有多少人我都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  无动于衷  
+##### 1037#       发表于 2024-6-28 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65410146&amp;ptid=2160194" target="_blank">diectt 发表于 2024-6-28 11:35</a>
+
+帝国已经被这群官二代富二代霍霍完了，该霍霍共和国了</blockquote>
+全员圣母我是没想到的，这帮虫豸怎么能搞好帝国 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

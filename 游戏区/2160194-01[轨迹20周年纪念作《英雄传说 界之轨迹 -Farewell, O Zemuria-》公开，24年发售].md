@@ -10723,3 +10723,40 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 再次吐槽下这次的電撃限定版也太一般太敷衍了
 
+
+*****
+
+####  ravend233  
+##### 1055#       发表于 2024-6-28 16:28
+
+敷衍就算了，还卖3w日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  宛若青空  
+##### 1056#       发表于 2024-6-28 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65413508&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-28 16:28</a>
+敷衍就算了，还卖3w日
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+我还是买了，我有罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1057#       发表于 2024-6-28 16:36
+
+<img src="https://img.saraba1st.com/forum/202406/28/163632m1z728vygmgdmmwd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 16:36 上传
+
+空零闪黎，四大男主
+

@@ -11090,3 +11090,59 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 真我光生多少得跟加藤有点远房亲戚关系
 
+
+*****
+
+####  Aeons  
+##### 1091#       发表于 2024-6-29 00:01
+
+<img src="https://img.saraba1st.com/forum/202406/28/235157s29fadyyxnexzo22.png" referrerpolicy="no-referrer">
+
+<strong>0.png</strong> (11.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/235157dkjj0jh3c5vk0kj5.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (36.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/235157m8yyvzwyns0hhgh8.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (18.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/235158vzypay7rexcy3yap.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (9.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/235158e3vzbrye6p773ov6.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (11.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:51 上传
+
+我说老角色来正常但帝国角色来的多，跳出来跟我解释说叫说帝国人多所以来的多。
+
+我反驳说帝国人多按比例那利贝尔克州怎么目前没消息？按人头数怎么也该分点？
+
+然后说我争名额？
+
+我说不公平你跳出来说公平，我举例说公平应该补上克州利贝尔。
+
+这叫阴阳怪气，这叫给空零碧争头花？
+

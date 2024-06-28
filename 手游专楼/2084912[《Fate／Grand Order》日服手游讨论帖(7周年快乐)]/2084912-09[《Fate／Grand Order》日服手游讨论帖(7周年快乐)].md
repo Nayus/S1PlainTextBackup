@@ -1139,3 +1139,14 @@ ios没有版本更新？
 
 来点掉齿轮的活动罢，养完尼莫+随手点了几下想点的天赋树，库存齿轮清零了直接<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 12907#       发表于 2024-6-28 15:26
+
+【【FGO彩蛋】街机联动结束，最后的关灯闭幕-哔哩哔哩】 https://b23.tv/PzJxQkX
+关活动居然有演出了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

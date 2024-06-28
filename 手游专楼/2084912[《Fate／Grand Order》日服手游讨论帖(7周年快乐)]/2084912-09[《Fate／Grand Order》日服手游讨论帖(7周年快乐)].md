@@ -1431,3 +1431,11 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 我说BGM怎么是逆光呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（这个倒有可能）
 
+
+*****
+
+####  森兰丸  
+##### 12927#       发表于 2024-6-28 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这乙姬缝了层清姬的皮内在还是清姬啊
+

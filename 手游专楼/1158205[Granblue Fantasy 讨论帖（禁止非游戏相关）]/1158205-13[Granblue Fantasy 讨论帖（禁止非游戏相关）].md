@@ -50,3 +50,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">新职业铳枪挺好用的，全程接近满血，就是有点慢，但上班FA也无所谓速度了，能打就行
 
+
+*****
+
+####  Geyorkias  
+##### 17957#       发表于 2024-6-28 08:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一档最终只有20.6E，舒服多了。
+
+上次光团实在是给人打伤了。
+

@@ -55,3 +55,16 @@ PV基本上都修正了
 动画首次登场：虹咲学园理事长/钟岚珠的妈CV野上由加奈</blockquote>
 岚珠妈的造型一看就是有战败CG的
 
+
+*****
+
+####  仟音一心  
+##### 7520#       发表于 2024-6-28 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65406540&amp;ptid=1959558" target="_blank">蒸汽投石BuBu車 发表于 2024-6-27 23:35</a>
+
+岚珠妈的造型一看就是有战败CG的</blockquote>
+现在好像不流行这句话了：
+
+“太太我喜欢你啊！”<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+

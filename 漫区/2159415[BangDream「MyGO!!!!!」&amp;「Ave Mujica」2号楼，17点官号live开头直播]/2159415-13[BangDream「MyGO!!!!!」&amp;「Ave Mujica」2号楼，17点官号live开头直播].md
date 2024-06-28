@@ -4351,3 +4351,11 @@ https://ngabbs.com/read.php?tid=40691675
 
 不是很懂有什么好贷款破防的，就算祥子真是借丰川资源组队也没什么好破防的啊，致敬独角兽恩师大河内罢了，建议一步到位致敬到结局婚戒
 
+
+*****
+
+####  星天观测  
+##### 18167#       发表于 2024-6-28 08:34
+
+有时候也不好说等着看鸡动画里祥子破大防泪奔躲在角落等人救的人到底是黑子还是乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

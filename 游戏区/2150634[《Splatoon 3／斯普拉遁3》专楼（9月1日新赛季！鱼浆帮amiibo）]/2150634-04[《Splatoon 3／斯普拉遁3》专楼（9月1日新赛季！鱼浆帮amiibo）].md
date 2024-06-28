@@ -36,3 +36,11 @@ inkipedia快一个月了也没更新完8.0.0改动，发生啥了。
 
 可以带上嘲讽面具了
 
+
+*****
+
+####  Ryuuseigun  
+##### 4776#       发表于 2024-6-28 22:17
+
+给任天堂一直发死亡威胁的那人审出来作案动机是输太多输破防了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">粪游戏害人不浅
+

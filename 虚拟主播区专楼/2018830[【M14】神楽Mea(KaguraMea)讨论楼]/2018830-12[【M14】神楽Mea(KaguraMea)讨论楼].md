@@ -183,3 +183,36 @@ vspo搞了个大活，7000+应聘者的真名住址活动名声音采样泄漏�
 
 变成普通生活多好
 
+
+*****
+
+####  古战场亡魂  
+##### 16587#       发表于 2024-6-28 21:53
+
+ 本帖最后由 古战场亡魂 于 2024-6-28 21:57 编辑 
+
+这mv的立绘真适合出现在手游里啊，双形态，live2d
+
+<img src="https://img.saraba1st.com/forum/202406/28/215743bn7t7ppakeyktw7z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/215712hj66wgurcizshnst.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (894.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 21:57 上传
+
+*****
+
+####  thisisaspider  
+##### 16588#       发表于 2024-6-28 22:11
+
+mea给我附加无敌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

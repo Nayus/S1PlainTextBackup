@@ -1404,3 +1404,14 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 而且这是cm，不是活动pv，cm是可以重复利用的，每次不同活动就塞不同的活动从者在最后几秒，这样又是一个广告了
 
+
+*****
+
+####  alucardcz  
+##### 12925#       发表于 2024-6-28 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65415140&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-6-28 20:06</a>
+
+四发十连只有两张五星礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 不羡慕
+

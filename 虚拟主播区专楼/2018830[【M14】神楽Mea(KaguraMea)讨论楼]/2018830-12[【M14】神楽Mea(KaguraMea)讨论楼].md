@@ -166,3 +166,20 @@ vspo搞了个大活，7000+应聘者的真名住址活动名声音采样泄漏�
 
 新3d还是以前那家冬寂搞的
 
+
+*****
+
+####  SNOWIMEA  
+##### 16585#       发表于 2024-6-28 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">6年了
+
+—— 来自 vivo V2339A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aisakahammer  
+##### 16586#       发表于 2024-6-28 21:35
+
+变成普通生活多好
+

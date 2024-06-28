@@ -10938,3 +10938,40 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 点开直播就错过了，阿法你咋放那么早
 
+
+*****
+
+####  宛若青空  
+##### 1076#       发表于 2024-6-28 21:18
+
+开头拉碧丝在看书打瞌睡那一幕不知道是什么，什么都没说明；
+
+艾蕾因的战技重制动画演出分镜真是史诗级进化，大少凯文的也很帅。
+
+但是大少看起来是一个人战斗，没有和拉碧丝双人机体一样….不会拉碧丝真的就只存在于大少S技了吧…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（主持人还开玩笑说说不定是大少召唤出来草
+
+*****
+
+####  卢迪克  
+##### 1077#       发表于 2024-6-28 21:19
+
+创之轨迹2
+
+<img src="https://img.saraba1st.com/forum/202406/28/211857xggm9rrsm09wm5lp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_211615.jpg</strong> (132.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/211901owe1vs92vld14rrt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_211715.jpg</strong> (133.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 21:19 上传
+

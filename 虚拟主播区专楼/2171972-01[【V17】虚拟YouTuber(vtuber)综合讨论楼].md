@@ -1053,3 +1053,11 @@ vspo停播三天，要戒断了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">只要卖谷就能躺着赚钱我为什么要站起来直播
 
+
+*****
+
+####  Harunoharu  
+##### 398#       发表于 2024-6-28 10:48
+
+她这几年不一直都这样吗，直播是不播的谷和音声是要卖的
+

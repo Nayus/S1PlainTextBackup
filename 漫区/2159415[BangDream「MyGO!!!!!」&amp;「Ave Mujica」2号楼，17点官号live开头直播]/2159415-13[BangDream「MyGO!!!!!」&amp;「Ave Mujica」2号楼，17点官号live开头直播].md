@@ -4562,3 +4562,18 @@ nga没活到这种程度了？<img src="https://static.saraba1st.com/image/smile
  ...</blockquote>
 那个楼主只是单纯没过脑子就发出来了，被十一层回复的那个“世纪末养鸡场主”也没算多逆天，但是在那疯狂踩11楼的可太好笑了，不是第二遍看到好不容易出来的1赞又归0，我都没明白踩这评论干什么以为之前的2→0是自己眼花了。
 
+
+*****
+
+####  星天观测  
+##### 18186#       发表于 2024-6-28 10:45
+
+很简单，那边多少人等着祥子大失败痛哭流涕跪地求饶啊，想看祥子为乐队努力和队员一起前进？梦里！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 18187#       发表于 2024-6-28 10:49
+
+nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

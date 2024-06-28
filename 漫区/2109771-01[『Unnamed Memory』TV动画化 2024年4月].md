@@ -202,3 +202,11 @@ yysy,这集给我有一种石头门的感觉
 
 我是说为啥11集搞婚礼，原来留了个坑给第二季啊，那就2季攒一起看吧。
 
+
+*****
+
+####  [皆神孝介]  
+##### 174#       发表于 2024-6-28 11:03
+
+不知道是不是动画改编的问题，男主给我印象不是很出色，没有喜欢上他<img src="https://static.saraba1st.com/image/smiley/face/117.gif" referrerpolicy="no-referrer">
+

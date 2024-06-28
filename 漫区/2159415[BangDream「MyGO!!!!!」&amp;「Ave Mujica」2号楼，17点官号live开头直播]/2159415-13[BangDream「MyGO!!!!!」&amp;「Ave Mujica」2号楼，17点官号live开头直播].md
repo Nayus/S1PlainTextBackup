@@ -4577,3 +4577,20 @@ nga没活到这种程度了？<img src="https://static.saraba1st.com/image/smile
 
 nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18188#       发表于 2024-6-28 10:57
+
+我们狗圣是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画内一己之力救下母鸡卡五个废拉不堪的失足少女，动画外逆天改命救下日薄西山的糊邦
+
+鸡杂和遗老，给我跪下！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18189#       发表于 2024-6-28 11:02
+
+贴吧那个贴最搞的是主楼就直接开除了混活，虽然只有一次混活出了一张卡数量也不够，但是按这个算法实装一周年只有三个箱活的团那还真有，主楼还有个“翻翻历史”彷佛go直接就是历史最惨了一样。除此之外就是那个”新进入游戏十一个月“，用的什么历法啊就十一个月了。
+

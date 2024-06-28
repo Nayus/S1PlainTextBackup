@@ -10381,3 +10381,28 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 纳尼太子几年过去也该成长一点了……吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1018#       发表于 2024-6-28 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409466&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-6-28 10:46</a>
+
+纳尼太子几年过去也该成长一点了……吧</blockquote>
+跟着谢莉吃软饭呢，黎2对话有说战鬼和小少爷一起行动
+
+*****
+
+####  龙之峰  
+##### 1019#       发表于 2024-6-28 10:57
+
+界轨的反派会是谁？大总统不太可能，总不能打个机甲大总统；云老师也不太好，轨迹系列的最终boss都要不做人的；结社新柱有可能，但结社好像有好几部都没当反派了。或者是mk社的某人，要不就是类似马帮主的外星魔人？总不能打月亮吧。
+
+*****
+
+####  aimujie  
+##### 1020#       发表于 2024-6-28 10:57
+
+执行者战斗力差距有点大
+

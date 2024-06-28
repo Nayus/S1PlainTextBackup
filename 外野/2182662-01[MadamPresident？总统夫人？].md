@@ -610,3 +610,24 @@ https://www.nzz.ch/international/geruechte-um-michelle-obama-ld.1782351
 
 ykw的命门是没有政治继承人。
 
+
+*****
+
+####  lexi  
+##### 72#       发表于 2024-6-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825240&amp;ptid=2182662" target="_blank">nexus1 发表于 2024-5-6 11:46</a>
+
+总统夫人上来竞选一直是各种通辽宇宙的第三世界故事,现在这版本更新得也太快了 ...</blockquote>
+希拉里：美国是第三世界国家<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lexi  
+##### 73#       发表于 2024-6-28 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64825397&amp;ptid=2182662" target="_blank">双面人 发表于 2024-5-6 12:00</a>
+
+奥黑八年两期霍霍满了吧，至于拉链，他要真有声望资源也不至于下去…</blockquote>
+？？？拉链顿不是从1992年干到2000年离职？
+

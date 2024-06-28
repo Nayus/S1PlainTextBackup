@@ -4602,3 +4602,30 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 
 混活有什么不好，我还巴不得立希天天去混活和前辈玩呢，明年动画全程下线都行，反正动画出场也只会变编剧的垫子工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18191#       发表于 2024-6-28 11:26
+
+ 本帖最后由 rikaren 于 2024-6-28 11:27 编辑 
+
+帖子没人骂人就锁了，我看什么时候岁月史书是祥推鸡推先动的手
+
+*****
+
+####  星天观测  
+##### 18192#       发表于 2024-6-28 11:28
+
+居然还有人不爱混活，我巴不得初华进游戏了多和前辈玩玩，玩多了总会碰到lisa的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18193#       发表于 2024-6-28 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409834&amp;ptid=2159415" target="_blank">NODY 发表于 2024-6-28 11:13</a>
+
+混活有什么不好，我还巴不得立希天天去混活和前辈玩呢，明年动画全程下线都行，反正动画出场也只会变编剧的 ...</blockquote>
+能贴ag前辈，能找saya玩，(还能被ksm贴），这次拉面混活没给立希安排一张还是有点怪的
+

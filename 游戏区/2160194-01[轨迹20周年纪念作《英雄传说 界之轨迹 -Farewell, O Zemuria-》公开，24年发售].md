@@ -10488,3 +10488,25 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 完结篇当然要各种老角色救场报菜名啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 1030#       发表于 2024-6-28 11:32
+
+帝国处境艰难（指帝国人都跑来共和国砸场子）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1031#       发表于 2024-6-28 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12个老角色，闪+创合计8个人
+
+*****
+
+####  diectt  
+##### 1032#       发表于 2024-6-28 11:35
+
+帝国已经被这群官二代富二代霍霍完了，该霍霍共和国了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

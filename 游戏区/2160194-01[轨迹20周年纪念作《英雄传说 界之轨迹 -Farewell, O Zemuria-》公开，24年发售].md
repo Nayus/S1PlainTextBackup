@@ -11236,3 +11236,28 @@ e大师与光生大师，两位大能出手连大道都磨灭了
 
 这个立绘和bgm<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1099#       发表于 2024-6-29 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轨批的福报是这样的
+
+
+*****
+
+####  Aeons  
+##### 1100#       发表于 2024-6-29 01:02
+
+ 本帖最后由 Aeons 于 2024-6-29 01:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">之前其实还没看，刚去看了下回放，说实话光生我觉得还是有不少能听的曲的，但是这首真能叫歌吗，或者说真能放在游戏里吗
+
+*****
+
+####  宛若青空  
+##### 1101#       发表于 2024-6-29 01:04
+
+这首确实非常不轨迹，到底会放在哪里啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

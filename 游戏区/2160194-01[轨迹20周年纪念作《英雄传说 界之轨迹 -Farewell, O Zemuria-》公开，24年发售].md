@@ -10922,3 +10922,11 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还是赶紧完结吧
 
+
+*****
+
+####  宛若青空  
+##### 1074#       发表于 2024-6-28 21:02
+
+艾蕾因新战技动画也太帅太优雅了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

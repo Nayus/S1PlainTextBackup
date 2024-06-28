@@ -10316,3 +10316,13 @@ psn中文站，轨迹的攻略向来是又快又全又好
 来来去去还是那些老面孔在分析剧情</blockquote>
 老登IP是这样的，没几个新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 1012#       发表于 2024-6-28 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408525&amp;ptid=2160194" target="_blank">mrm4B 发表于 2024-6-28 09:25</a>
+黎轨2现在有比较全的中文攻略了吗，打算界轨出来前开个二周目复习下剧情热热手 ...</blockquote>
+最好的轨迹咖啡，trails-game.com
+

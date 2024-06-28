@@ -4692,3 +4692,30 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 有一说一这期拉面混活我觉得就还可以，不是什么大事但还算有趣，最后还能绕到乐队层面解释以及灯希能出个场还挺合适的，就是 ars ykn 这俩倒是换谁都算可以。
 还是因为这个抱怨团活的，作为 pp 推看到别人数据才知道 s3 后最惨的是 pp，虽然 pp 确实是主线里定位和进度最尴尬的，倒是能说得通
 
+
+*****
+
+####  MZZK  
+##### 18200#       发表于 2024-6-28 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65410007&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-28 11:26</a>
+帖子没人骂人就锁了，我看什么时候岁月史书是祥推鸡推先动的手</blockquote>
+还用等吗？专楼已经开始一转祥厨闹麻了。
+都开始拿星二星三开始比mujica了，你们有没有这么客观公正的姐妹团/企划厨啊我想问<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18201#       发表于 2024-6-28 13:40
+
+萝活直接把约束写在标题里了，就算没介绍也差不多算明示ykls了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 18202#       发表于 2024-6-28 13:43
+
+比星二星三不是对那些整天贷款mujica写烂翻车风评变烂的人说的吗，事实就是在二偶赛道这边已经有永远的垫底在，这些想看风评翻车的要失望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

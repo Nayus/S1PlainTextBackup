@@ -10855,3 +10855,19 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是没有能力写好角色，问题是你法社一写你轨就各种给自己设限，能好好增强角色塑造但是可能有一定争议性的展开全都不敢写，生怕得罪到谁了，最后只会写一堆非常无聊的展开
 
+
+*****
+
+####  Aeons  
+##### 1067#       发表于 2024-6-28 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">目前界轨情报内容还是太散了，按以前的单部体量感觉要完结不太行。
+
+
+*****
+
+####  ravend233  
+##### 1068#       发表于 2024-6-28 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">已经做好结局咚然后2026界2再见的准备了
+

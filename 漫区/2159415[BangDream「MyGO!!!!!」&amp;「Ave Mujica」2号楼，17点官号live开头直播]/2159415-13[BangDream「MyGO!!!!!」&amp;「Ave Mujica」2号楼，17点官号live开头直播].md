@@ -4775,3 +4775,24 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 我感觉前半段卖初祥后半段卖灯祥
 
+
+*****
+
+####  枫林不见  
+##### 18210#       发表于 2024-6-28 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408078&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-6-28 08:44</a>
+
+去看了下，我艹，标题就起得这么牛吗</blockquote>
+NGA二创入脑的挺多的
+
+
+*****
+
+####  星天观测  
+##### 18211#       发表于 2024-6-28 17:24
+
+初华戏份应该多的，毕竟是阿贝母鸡卡的主唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不会自己团标题的动画主唱还隐身吧
+

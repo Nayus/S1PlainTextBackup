@@ -77,3 +77,13 @@ darktide上线到现在bug都还没修好<img src="https://static.saraba1st.com/
 
 fs感觉也差不多也受不了这个鸟引擎了
 
+
+*****
+
+####  风萧飒  
+##### 5032#       发表于 2024-6-29 01:38
+
+好像说箭头不会放暑假的样子。北欧爷的假期是真的离谱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

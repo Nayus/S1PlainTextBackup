@@ -68,3 +68,13 @@ PV基本上都修正了
 
 “太太我喜欢你啊！”<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 7521#       发表于 2024-6-28 08:39
+
+现在更喜欢曹操表情包，和海虎表情包。
+
+原来是cc，就没听出来过。
+

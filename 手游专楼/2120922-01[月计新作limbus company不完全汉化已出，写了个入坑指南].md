@@ -360,3 +360,80 @@ T社的防御技能确实挺陷阱的，角色强度有一部分在于借贷后�
 
 圣愚良能给震颤队补暴食资源还是挺有用的，不过支援被动能帮队友叠层数，上场可惜了（误）。
 
+
+*****
+
+####  Jamaisvu  
+##### 776#       发表于 2024-6-28 17:40
+
+四号线假面舞会，2024.7.4开启。
+
+<img src="https://img.saraba1st.com/forum/202406/28/173717fo3ie3ye8cghe8ys.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173215.jpg</strong> (181.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:37 上传
+
+本次加入了新的后补机制，可能是场上有人退场直接补上？
+
+<img src="https://img.saraba1st.com/forum/202406/28/173751sk3ys3hn6zvi65ki.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173245.jpg</strong> (256.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:37 上传
+
+新增异想体，战令三人组——无头像、电子羊、被缚王：
+
+<img src="https://img.saraba1st.com/forum/202406/28/173914f2a3azahibfbqafq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173303.jpg</strong> (202.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/173915mq1wo0414rzzr1p1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173350.jpg</strong> (132.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/173917p38s9n4afe9e993a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173317.jpg</strong> (254.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/173918u1ygygp55pp5ff18.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173331.jpg</strong> (164.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:39 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/173920ywjv7myjajovviyt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_173552.jpg</strong> (176.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 17:39 上传
+
+PV里还疑似出现了对战罪人人格的画面，不知道是不是镜像对决什么的...
+

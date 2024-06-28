@@ -4719,3 +4719,13 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 
 比星二星三不是对那些整天贷款mujica写烂翻车风评变烂的人说的吗，事实就是在二偶赛道这边已经有永远的垫底在，这些想看风评翻车的要失望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18203#       发表于 2024-6-28 13:48
+
+不要觉得和烂的比有啥，因为有时候被比较并不是因为觉得你烂，是因为你只是个杆子而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前几天我还在拿jkl和leave比
+

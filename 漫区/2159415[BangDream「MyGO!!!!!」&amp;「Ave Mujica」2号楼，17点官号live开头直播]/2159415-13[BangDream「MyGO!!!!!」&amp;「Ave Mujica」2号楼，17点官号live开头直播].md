@@ -4796,3 +4796,30 @@ NGA二创入脑的挺多的
 
 不会自己团标题的动画主唱还隐身吧
 
+
+*****
+
+####  skives  
+##### 18212#       发表于 2024-6-28 17:31
+
+喵祥恋爱喜剧缓解气氛
+睦祥回忆神回
+初祥王道双向救赎
+灯祥关系正常化祥子彻底从过去毕业
+素祥和解
+大概就是这种方向 没道理偏太多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18213#       发表于 2024-6-28 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414247&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-28 17:31</a>
+
+喵祥恋爱喜剧缓解气氛
+
+睦祥回忆神回
+
+初祥王道双向救赎</blockquote>
+点了，祥子和狗肯定会和解，但是比和解更多的感觉等手游说不定更靠谱
+

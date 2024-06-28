@@ -10305,3 +10305,14 @@ psn中文站，轨迹的攻略向来是又快又全又好
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 来来去去还是那些老面孔在分析剧情
 
+
+*****
+
+####  ravend233  
+##### 1011#       发表于 2024-6-28 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408664&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-6-28 09:39</a>
+
+来来去去还是那些老面孔在分析剧情</blockquote>
+老登IP是这样的，没几个新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

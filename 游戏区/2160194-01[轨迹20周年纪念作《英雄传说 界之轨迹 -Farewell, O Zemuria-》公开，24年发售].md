@@ -11072,3 +11072,11 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 村上又过劳死了呗，闪4那会儿又要画新立绘又要画特典，班长特典也是六根手指头特写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1089#       发表于 2024-6-28 23:27
+
+近藤视频又在太极空re，看来26年稳了
+

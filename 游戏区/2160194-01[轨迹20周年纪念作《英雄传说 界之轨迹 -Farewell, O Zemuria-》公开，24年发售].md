@@ -10470,3 +10470,21 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">肯定少不了历代主角坐一起啊，克州组和利贝尔组还没来呢
 
+
+*****
+
+####  ravend233  
+##### 1028#       发表于 2024-6-28 11:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法：什么共和国篇的新角色比客座角色都少了，不认识呢
+
+昨天数了下，算上黎12做好了可控的以及目前公布的老角色，没数漏的话，共和国篇全新角色14个，老角色12个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是我们轨迹共和国篇完结篇呢
+
+
+*****
+
+####  aimujie  
+##### 1029#       发表于 2024-6-28 11:23
+
+完结篇当然要各种老角色救场报菜名啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

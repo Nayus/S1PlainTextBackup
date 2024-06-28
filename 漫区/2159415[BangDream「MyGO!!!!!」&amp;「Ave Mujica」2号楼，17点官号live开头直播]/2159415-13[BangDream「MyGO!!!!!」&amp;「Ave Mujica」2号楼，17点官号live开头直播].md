@@ -4752,3 +4752,11 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 
 能把祥子写成llx也行 大女主爽文也不是不能接受
 
+
+*****
+
+####  星天观测  
+##### 18207#       发表于 2024-6-28 17:00
+
+主要商战还是有点太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的是邦多利的世界观吗
+

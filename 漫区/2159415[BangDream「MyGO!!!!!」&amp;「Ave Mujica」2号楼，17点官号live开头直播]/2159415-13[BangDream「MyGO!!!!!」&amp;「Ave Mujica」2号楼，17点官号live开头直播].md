@@ -4375,3 +4375,23 @@ https://ngabbs.com/read.php?tid=40691675
 
 2024-6-28 08:44 上传
 
+
+*****
+
+####  星天观测  
+##### 18169#       发表于 2024-6-28 08:51
+
+为了狗的二创环境，鸡动画要不就不播了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有小鬼问为什么这么多鸡粉想和狗切割，明明是姐妹团
+
+这就是原因啊
+
+
+*****
+
+####  相坂君  
+##### 18170#       发表于 2024-6-28 08:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">憋嗦了，还敢说，一会着相帽子就给们戴上
+

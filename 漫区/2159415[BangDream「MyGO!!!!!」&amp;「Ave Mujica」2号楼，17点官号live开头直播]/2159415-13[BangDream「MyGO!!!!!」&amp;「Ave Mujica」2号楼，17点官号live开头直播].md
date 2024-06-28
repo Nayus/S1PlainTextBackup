@@ -4847,3 +4847,11 @@ NGA二创入脑的挺多的
 
 小白那组msr，soyo，maya，cst，ars，应该和ykn那组有点一战之力，lisa和燐燐会在tmr那组吗？
 
+
+*****
+
+####  星天观测  
+##### 18215#       发表于 2024-6-28 19:44
+
+还有两个主唱，lisa和rinko应该是分开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

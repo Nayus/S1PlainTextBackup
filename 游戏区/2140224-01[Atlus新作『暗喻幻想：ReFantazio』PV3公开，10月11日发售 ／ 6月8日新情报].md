@@ -41,3 +41,13 @@
 
 <img src="https://p.sda1.dev/18/b4ed2fafa6fdd688716fb77dcc6e9c6f/IMG_20240628_194144.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otaku21126  
+##### 486#       发表于 2024-6-28 19:55
+
+没人关心他这个日式奇幻版高堡奇人的剧情嘛<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+你们不会都是玩系统的吧
+

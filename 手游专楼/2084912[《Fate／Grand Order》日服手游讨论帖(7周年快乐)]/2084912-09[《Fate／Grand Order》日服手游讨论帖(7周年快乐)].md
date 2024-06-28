@@ -1306,3 +1306,22 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 魔法使之箱的角色啊
 
+
+*****
+
+####  里村紅葉  
+##### 12920#       发表于 2024-6-28 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414896&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-6-28 19:41</a>
+
+欧 羡慕 你越来越不对劲了（</blockquote>
+羡慕吗，原神池子垫的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">护士长0+1大保底定轨吃满
+
+
+*****
+
+####  onemoment  
+##### 12921#       发表于 2024-6-28 19:55
+
+10连无事发生，结束<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

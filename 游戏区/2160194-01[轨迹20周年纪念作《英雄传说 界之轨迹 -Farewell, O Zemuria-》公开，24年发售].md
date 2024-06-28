@@ -10273,3 +10273,22 @@ CS2：10418</blockquote>
 
 我是拆cp党，我想看卢法斯在娜狄雅的目前调戏斯温（误）
 
+
+*****
+
+####  mrm4B  
+##### 1008#       发表于 2024-6-28 09:25
+
+黎轨2现在有比较全的中文攻略了吗，打算界轨出来前开个二周目复习下剧情热热手<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Depose  
+##### 1009#       发表于 2024-6-28 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408525&amp;ptid=2160194" target="_blank">mrm4B 发表于 2024-6-28 09:25</a>
+
+黎轨2现在有比较全的中文攻略了吗，打算界轨出来前开个二周目复习下剧情热热手 ...</blockquote>
+psn中文站，轨迹的攻略向来是又快又全又好
+

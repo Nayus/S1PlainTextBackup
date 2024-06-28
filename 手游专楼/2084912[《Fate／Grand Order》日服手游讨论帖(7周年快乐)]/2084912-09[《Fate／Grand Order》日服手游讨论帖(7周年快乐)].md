@@ -1225,3 +1225,84 @@ Anmi老师的贺图，很有个人特色，也就是说没啥角色特点...：
 由手机上传
 2024-6-28 19:33 上传
 
+
+*****
+
+####  alucardcz  
+##### 12911#       发表于 2024-6-28 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这 3石都不想丢
+
+*****
+
+####  angelooo  
+##### 12912#       发表于 2024-6-28 19:37
+
+顺便前面直播，他们果然把三色的角神拿来卖了……这钱我不要也罢
+
+*****
+
+####  angelooo  
+##### 12913#       发表于 2024-6-28 19:38
+
+<blockquote>alucardcz 发表于 2024-6-28 19:36
+就这 3石都不想丢</blockquote>
+叶哥哥帮你在周年前省钱，还不快说谢谢叶哥哥
+
+（呕
+
+*****
+
+####  白金口袋  
+##### 12914#       发表于 2024-6-28 19:39
+
+1呼符+十连就来了，完美备战泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 12915#       发表于 2024-6-28 19:40
+
+怎么还锁三破不让突破了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 12916#       发表于 2024-6-28 19:40
+
+<img src="https://img.saraba1st.com/forum/202406/28/194017oujzzchwjvgbmllb.png" referrerpolicy="no-referrer">
+
+<strong>1719574798317.png</strong> (385.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 19:40 上传
+
+清姬的新衣服是真好看，这要是出个新从者我就抽了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12917#       发表于 2024-6-28 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414881&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-6-28 19:40</a>
+
+怎么还锁三破不让突破了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 你越来越不对劲了（
+
+*****
+
+####  khxooo  
+##### 12918#       发表于 2024-6-28 19:42
+
+FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 12919#       发表于 2024-6-28 19:46
+
+魔法使之箱的角色啊
+

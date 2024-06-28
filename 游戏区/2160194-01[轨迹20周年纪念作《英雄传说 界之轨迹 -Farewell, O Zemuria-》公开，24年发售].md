@@ -11056,3 +11056,19 @@ psn中文站，轨迹的攻略向来是又快又全又好
 
 你说是就是吧。
 
+
+*****
+
+####  Piano-Forest  
+##### 1087#       发表于 2024-6-28 23:16
+
+战技演示 Part.3：
+[https://b23.tv/bwTZ8Ht](https://b23.tv/bwTZ8Ht)
+
+*****
+
+####  smdzh2  
+##### 1088#       发表于 2024-6-28 23:18
+
+村上又过劳死了呗，闪4那会儿又要画新立绘又要画特典，班长特典也是六根手指头特写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1447,3 +1447,15 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nmd螺旋社还我烟雾镜立绘
 
+
+*****
+
+####  eilot  
+##### 12929#       发表于 2024-6-29 00:30
+
+只得3星版清姬有技能強化
+
+不過還是沒寶具強化
+
+不知道之後會否再有老人給強化本，如孔明，或者孔明，又可能是孔明
+

@@ -1333,3 +1333,62 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四发十连只有两张五星礼装
 
+
+*****
+
+####  Jamaisvu  
+##### 12923#       发表于 2024-6-28 20:43
+
+ 本帖最后由 Jamaisvu 于 2024-6-28 20:45 编辑 
+
+本次活动的PV里出现了2.7的烟雾镜兄妹和2.6的摩根母女，剧情可能有大活：
+
+<img src="https://img.saraba1st.com/forum/202406/28/204137p4llkk0xg94hx9kg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_203930.jpg</strong> (155.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/204137iek999z7e0exi692.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_204043.jpg</strong> (147.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/204137vzxffflxmfammpje.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_204056.jpg</strong> (96.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 20:41 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/204138uey4rbc2beypb4yc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240628_204120.jpg</strong> (174 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 20:41 上传
+
+另外田岛昭宇最近又是办原画展又是卖烟雾镜同人志2，烟迷们可真幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+话说烟雾镜新图好清秀啊，跟娘化拉达冈似的...：
+
+<img src="https://img.saraba1st.com/forum/202406/28/204335adodqoqd6vcjvacd.jpg" referrerpolicy="no-referrer">
+
+<strong>1719578218750.jpg</strong> (205.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 20:43 上传
+

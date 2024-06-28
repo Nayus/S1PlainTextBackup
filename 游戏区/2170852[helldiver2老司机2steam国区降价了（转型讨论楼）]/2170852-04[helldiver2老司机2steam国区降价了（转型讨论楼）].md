@@ -64,3 +64,16 @@ BV15y411q7vw
 
  这几天的日常怎么都这么离谱2333
 
+
+*****
+
+####  兰开夏  
+##### 5031#       发表于 2024-6-29 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65402448&amp;ptid=2170852" target="_blank">FLZB 发表于 2024-6-27 17:41</a>
+
+这游戏的问题跟引擎关系不大吧，箭头自己水平太差，隔壁同引擎的肥鲨游戏也没这么多基础功能都不工作的低级 ...</blockquote>
+darktide上线到现在bug都还没修好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+fs感觉也差不多也受不了这个鸟引擎了
+

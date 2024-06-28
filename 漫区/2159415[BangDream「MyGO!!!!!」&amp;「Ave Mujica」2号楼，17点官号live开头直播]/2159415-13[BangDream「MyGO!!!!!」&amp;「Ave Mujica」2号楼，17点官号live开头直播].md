@@ -4629,3 +4629,13 @@ nga很多人认为mujica篇就是🐔爆炸的时候🐶天神下凡一救五<im
 混活有什么不好，我还巴不得立希天天去混活和前辈玩呢，明年动画全程下线都行，反正动画出场也只会变编剧的 ...</blockquote>
 能贴ag前辈，能找saya玩，(还能被ksm贴），这次拉面混活没给立希安排一张还是有点怪的
 
+
+*****
+
+####  星天观测  
+##### 18194#       发表于 2024-6-28 11:54
+
+这个拉面活动安排一张ykn还挺谐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下下期萝感觉ykn要出一张五星了吧（坐等i83天井）
+

@@ -1325,3 +1325,11 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 10连无事发生，结束<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 12922#       发表于 2024-6-28 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四发十连只有两张五星礼装
+

@@ -10357,3 +10357,19 @@ psn中文站，轨迹的攻略向来是又快又全又好
 感情戏方面，我就是想看例如卢法斯在娜狄雅的目前调戏斯温，或是阿加特爱上了缇妲妈妈之 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">好像很有看头 hhh
 
+
+*****
+
+####  洛克萨斯  
+##### 1015#       发表于 2024-6-28 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结社的执行者也就那样吧........
+
+
+*****
+
+####  byisme001  
+##### 1016#       发表于 2024-6-28 10:30
+
+马克邦是执行者，双子小皇子也是执行者
+

@@ -4511,3 +4511,42 @@ nga没活到这种程度了？<img src="https://static.saraba1st.com/image/smile
 
 因为有些狗u实在太幽默了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18182#       发表于 2024-6-28 10:28
+
+查了一下成分，似乎真不是串子，但好像也不是纯go粉，鸡和老团的内容也有发，大概是二创入脑典型吧
+
+<img src="https://img.saraba1st.com/forum/202406/28/102812dh85cxxxxxxm5sbz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240628102753.png</strong> (32.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 10:28 上传
+
+*****
+
+####  星天观测  
+##### 18183#       发表于 2024-6-28 10:30
+
+窝巢，色！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 18184#       发表于 2024-6-28 10:31
+
+看邦主吧统计的
+
+1000016606.jpg
+(56.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 10:31 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/103109vcg2ll5gucq485fu.jpg" referrerpolicy="no-referrer">
+

@@ -181,3 +181,11 @@
 然后发现3破的小人真的惊悚，这应该是我第一次不主动用三 ...</blockquote>
 同样为了大奶，日服随机的时候看多了3破的蓝皮也是别有风味的<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46482#       发表于 2024-6-29 00:21
+
+啧啧啧，竟然收到了生日祝福，如果早年有这个态度，BGO就不会有那么大的节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -461,3 +461,13 @@ PV里还疑似出现了对战罪人人格的画面，不知道是不是镜像对
 
 是大罪生物长成了罪人的样子。
 
+
+*****
+
+####  erratic璃月  
+##### 778#       发表于 2024-6-28 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414353&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-6-28 17:40</a>
+四号线假面舞会，2024.7.4开启。</blockquote>
+看样子像嫉妒大罪，而且pv里对手疑似有n辛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

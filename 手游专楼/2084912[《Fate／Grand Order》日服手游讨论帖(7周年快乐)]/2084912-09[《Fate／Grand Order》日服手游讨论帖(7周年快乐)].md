@@ -1150,3 +1150,78 @@ ios没有版本更新？
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  angelooo  
+##### 12908#       发表于 2024-6-28 19:29
+
+这新角色出来我还以为我跑错直播间了囧
+
+
+*****
+
+####  Jamaisvu  
+##### 12909#       发表于 2024-6-28 19:31
+
+ 本帖最后由 Jamaisvu 于 2024-6-28 19:35 编辑 
+
+五星50充混沌特攻绿光炮AE阿昙矶良，三破四破锁卡面中：
+
+<img src="https://img.saraba1st.com/forum/202406/28/192529na2768bgy6vy7aza.png" referrerpolicy="no-referrer">
+
+<strong>1719573811239.png</strong> (121.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 19:25 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/192529gcmqvzgdvmxcdgg3.png" referrerpolicy="no-referrer">
+
+<strong>1719573814935.png</strong> (154.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 19:25 上传
+
+转载：
+
+本次活动实装的是五星限定AE阶从者阿昙矶良，双人组是型月的广播局《魔法使之箱》中的桂木千键和日比乃响，缝入的阿昙矶良是日本神话中的海神，据说是安昙族的祖神，是丰玉姬和山幸彦的孩子。
+
+画师是anmi，代表作是明日方舟的艾雅法拉和少女前线的索米。这次供稿还不错，至少发色区分开来，没有画得跟双胞胎似的...
+
+技能解包：
+
+<img src="https://img.saraba1st.com/forum/202406/28/192529usbucbzscu0ksvzb.jpg" referrerpolicy="no-referrer">
+
+<strong>1719573919789.jpg</strong> (329.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 19:25 上传
+
+看起来还可以，30绿卡20宝威，还有群充，技能和宝具前置有黄金律，NP回收应该不成问题。
+
+不过画风不太戳我，老实等新夏活和周年庆吧...
+
+*****
+
+####  Jamaisvu  
+##### 12910#       发表于 2024-6-28 19:33
+
+ 本帖最后由 Jamaisvu 于 2024-6-28 19:35 编辑 
+
+Anmi老师的贺图，很有个人特色，也就是说没啥角色特点...：
+
+<img src="https://img.saraba1st.com/forum/202406/28/193331kioo77kee1o6abh1.png" referrerpolicy="no-referrer">
+
+<strong>1719574322717.png</strong> (290.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 19:33 上传
+

@@ -4550,3 +4550,15 @@ nga没活到这种程度了？<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://img.saraba1st.com/forum/202406/28/103109vcg2ll5gucq485fu.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18185#       发表于 2024-6-28 10:36
+
+<blockquote>NODY 发表于 2024-6-28 10:28
+查了一下成分，似乎真不是串子，但好像也不是纯go粉，鸡和老团的内容也有发，大概是二创入脑典型吧
+
+ ...</blockquote>
+那个楼主只是单纯没过脑子就发出来了，被十一层回复的那个“世纪末养鸡场主”也没算多逆天，但是在那疯狂踩11楼的可太好笑了，不是第二遍看到好不容易出来的1赞又归0，我都没明白踩这评论干什么以为之前的2→0是自己眼花了。
+

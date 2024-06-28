@@ -54,3 +54,30 @@
 原作第二部挺烂的，属于没活狗尾续貂</blockquote>
 还好吧，主要是第一部过于优秀，第二部看起来有点平庸
 
+
+*****
+
+####  fsfs_freeze  
+##### 120#       发表于 2024-6-28 10:35
+
+只有12集吗
+
+
+*****
+
+####  smdzh2  
+##### 121#       发表于 2024-6-28 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65409328&amp;ptid=2143170" target="_blank">fsfs_freeze 发表于 2024-6-28 11:35</a>
+只有12集吗</blockquote>
+半年番，还有一个故事没讲
+
+*****
+
+####  smdzh2  
+##### 122#       发表于 2024-6-28 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65406248&amp;ptid=2143170" target="_blank">琴音 发表于 2024-6-28 00:08</a>
+还好吧，主要是第一部过于优秀，第二部看起来有点平庸</blockquote>
+第二部好像是受疫情影响，整个大纲都推倒重来了，没有第一部三个故事那么连贯
+

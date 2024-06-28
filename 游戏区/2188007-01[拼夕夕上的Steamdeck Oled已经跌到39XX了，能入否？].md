@@ -218,3 +218,12 @@ GAL是PC掌机的终极归宿
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  roxassix  
+##### 75#       发表于 2024-6-28 09:15
+
+sd就是这样，你有需求就香的很<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+哎可惜现在没啥日厂做这种了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">，子弹少女都多久没出新的了
+

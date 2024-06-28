@@ -4395,3 +4395,30 @@ https://ngabbs.com/read.php?tid=40691675
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">憋嗦了，还敢说，一会着相帽子就给们戴上
 
+
+*****
+
+####  星天观测  
+##### 18171#       发表于 2024-6-28 09:00
+
+狗u的进场时机是真的完美啊
+
+公司狗趁着鸡没mv进场，现在趁着大部分人发现7.7没配信，要靠两首歌活到10月进场
+
+这不比电视剧里的321开团厉害多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 18172#       发表于 2024-6-28 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408130&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-06-28 08:51:16</a>
+为了狗的二创环境，鸡动画要不就不播了吧
+
+还有小鬼问为什么这么多鸡粉想和狗切割，明明是姐妹团
+
+这就是原因 ...</blockquote>乐死了，才在主吧看到个嫌🐶箱活少，然后评论说mujica卡进度的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

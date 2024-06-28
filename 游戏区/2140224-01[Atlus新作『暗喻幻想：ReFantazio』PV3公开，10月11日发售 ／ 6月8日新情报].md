@@ -59,3 +59,15 @@
 
 只要给皆杀线一切都会好起来的
 
+
+*****
+
+####  nabana  
+##### 488#       发表于 2024-6-28 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65415041&amp;ptid=2140224" target="_blank">otaku21126 发表于 2024-6-28 19:55</a>
+没人关心他这个日式奇幻版高堡奇人的剧情嘛
+
+你们不会都是玩系统的吧</blockquote>
+你问的是强推p3f，烂尾p5去重新定义JRPG的桥野桂吗？
+

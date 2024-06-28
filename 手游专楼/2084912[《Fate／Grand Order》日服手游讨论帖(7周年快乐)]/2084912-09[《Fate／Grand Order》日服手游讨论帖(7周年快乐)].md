@@ -1392,3 +1392,15 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 由手机上传
 2024-6-28 20:43 上传
 
+
+*****
+
+####  乾理央  
+##### 12924#       发表于 2024-6-28 21:28
+
+ 本帖最后由 乾理央 于 2024-6-28 21:29 编辑 
+
+单纯是2.6跟2.7人气高而已，你不看pv里还塞了个格雷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且这是cm，不是活动pv，cm是可以重复利用的，每次不同活动就塞不同的活动从者在最后几秒，这样又是一个广告了
+

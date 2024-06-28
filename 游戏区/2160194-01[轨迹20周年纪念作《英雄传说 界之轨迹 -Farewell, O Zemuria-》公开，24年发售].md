@@ -10326,3 +10326,34 @@ psn中文站，轨迹的攻略向来是又快又全又好
 黎轨2现在有比较全的中文攻略了吗，打算界轨出来前开个二周目复习下剧情热热手 ...</blockquote>
 最好的轨迹咖啡，trails-game.com
 
+
+*****
+
+####  卢迪克  
+##### 1013#       发表于 2024-6-28 10:08
+
+ 本帖最后由 卢迪克 于 2024-6-28 10:12 编辑 
+
+结社又被垫了
+
+<img src="https://img.saraba1st.com/forum/202406/28/100756uycxfava2w7l4xfi.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719540445878.jpg</strong> (165.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-28 10:07 上传
+
+*****
+
+####  alseabd  
+##### 1014#       发表于 2024-6-28 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65407067&amp;ptid=2160194" target="_blank">winggg 发表于 2024-6-28 01:02</a>
+
+我是轨迹拆cp党。
+
+感情戏方面，我就是想看例如卢法斯在娜狄雅的目前调戏斯温，或是阿加特爱上了缇妲妈妈之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">好像很有看头 hhh
+

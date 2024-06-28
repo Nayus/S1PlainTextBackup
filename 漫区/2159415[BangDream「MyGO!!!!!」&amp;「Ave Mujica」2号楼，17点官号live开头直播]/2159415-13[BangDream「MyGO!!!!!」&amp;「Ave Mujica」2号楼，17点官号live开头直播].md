@@ -4475,3 +4475,21 @@ https://ngabbs.com/read.php?tid=40691675
 
 隔壁太变态了，怎么能有人这种逻辑还好意思发帖的
 
+
+*****
+
+####  星天观测  
+##### 18178#       发表于 2024-6-28 10:08
+
+难绷，z8也有关于那个贴的讨论
+
+z87也挺会攻击的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狮子咕  
+##### 18179#       发表于 2024-6-28 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个贴不是串子吗？我看到标题耳边就响起“哑巴里”了
+

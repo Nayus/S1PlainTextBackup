@@ -68,3 +68,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次最恶心就是各种莫名其妙翻车，200挂机收菜时不时给你全灭吃复活打，体验很差
 
+
+*****
+
+####  Sylpheed  
+##### 17959#       发表于 2024-6-29 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65408321&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-6-28 09:09</a>
+这次最恶心就是各种莫名其妙翻车，200挂机收菜时不时给你全灭吃复活打，体验很差 ...</blockquote>
+骑兵很稳啊，之前那些最速才都是拿命换速度，这次时龙骑兵刷援护的组合，盘子缺一点我看都能捅完。属于是又快又稳惊的天才轴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

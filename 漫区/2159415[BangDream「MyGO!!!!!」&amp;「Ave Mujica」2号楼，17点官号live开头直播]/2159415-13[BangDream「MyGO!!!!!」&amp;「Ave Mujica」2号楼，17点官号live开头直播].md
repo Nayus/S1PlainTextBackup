@@ -5014,3 +5014,20 @@ NGA二创入脑的挺多的
 有些人真的不想說了，這麼看不起初祥啊？真覺得一個別團主唱就要給你墊？
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">沒關係，你加油幻想，初祥大賣的時候希望你別破防得太厲害
 
+
+*****
+
+####  星天观测  
+##### 18229#       发表于 2024-6-29 14:55
+
+老团的主唱cp基本都是很明确的，到了狗（鸡动画手游都没有先不说）好像主唱cp不是那么明确了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18230#       发表于 2024-6-29 14:59
+
+爱灯的含金量还需要质疑吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+第一集经典gmg
+最后一集mujica主场都要给爱灯水族馆戏升华收束感情线
+

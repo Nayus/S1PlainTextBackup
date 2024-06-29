@@ -5086,3 +5086,11 @@ NGA二创入脑的挺多的
 
 有可能重演彩千圣那种主唱单方面锁死，但对方还有好几个官推的情况，薰有幼驯染buff彩有主唱buff都绑不住千圣和花音同居<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18237#       发表于 2024-6-29 15:51
+
+可以可以，ave團內怎麼來都支持捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

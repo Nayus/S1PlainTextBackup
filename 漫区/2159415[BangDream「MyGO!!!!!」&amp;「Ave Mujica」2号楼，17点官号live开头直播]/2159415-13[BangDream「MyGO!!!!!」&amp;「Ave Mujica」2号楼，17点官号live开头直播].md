@@ -5449,3 +5449,11 @@ ksar的奇迹，ykls的约束，pachu的命运真是重量级啊<img src="https:
 
 明年十周年了，wsd得憋坨大的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18265#       发表于 2024-6-29 17:31
+
+ksar，akorin，彩千，摩卡兰，mstk，laytae，巴绯，mskk，mas6，ccpr，ykls，透瑠，mave，saya*rimi（有谁知道这俩cp有啥简称吗），1734。
+

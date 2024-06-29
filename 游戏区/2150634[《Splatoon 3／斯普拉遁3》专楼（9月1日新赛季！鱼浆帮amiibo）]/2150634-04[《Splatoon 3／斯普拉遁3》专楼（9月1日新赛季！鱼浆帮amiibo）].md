@@ -54,3 +54,20 @@ inkipedia快一个月了也没更新完8.0.0改动，发生啥了。
 
 [https://www.youtube.com/watch?v=5QniLMSK0Y0](https://www.youtube.com/watch?v=5QniLMSK0Y0)
 
+
+*****
+
+####  秋月孝三  
+##### 4778#       发表于 2024-6-29 17:26
+
+🍈香槟，太强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  墨染白泉  
+##### 4779#       发表于 2024-6-29 17:28
+
+泡也好强
+

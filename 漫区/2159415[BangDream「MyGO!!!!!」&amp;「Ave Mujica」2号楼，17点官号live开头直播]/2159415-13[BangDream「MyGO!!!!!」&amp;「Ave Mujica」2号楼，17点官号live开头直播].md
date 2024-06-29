@@ -5509,3 +5509,32 @@ layer hgm toko eve masking
 汇总见下图，选择你的捍卫者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/9b63ab60af7ed2eb696c8a8a42ff9726/IMG_20240629_182149.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yicihanshu  
+##### 18270#       发表于 2024-6-29 18:40
+
+总之我还是建议国服运营最后把投票数据列出来让大家看看他们组团的数值设计是多么合理，那简直了，raychell这组出来我真笑了，感觉会是被第一十倍杀的水平
+
+当然众所周知，国服一直主张团结，不利于团结的投票数据一直是不公布的。
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  星天观测  
+##### 18271#       发表于 2024-6-29 18:41
+
+挺搞笑的这分组
+
+
+*****
+
+####  rikaren  
+##### 18272#       发表于 2024-6-29 18:45
+
+<blockquote>yicihanshu 发表于 2024-6-29 18:40
+总之我还是建议国服运营最后把投票数据列出来让大家看看他们组团的数值设计是多么合理，那简直了，raychell ...</blockquote>
+只会是10倍吗，layer，masking，toko，eve，hgm人气加起来有没有前排那三队一个高人气角色的人气都不好说（把go团的扣了还有ykn/ars/lisa）
+

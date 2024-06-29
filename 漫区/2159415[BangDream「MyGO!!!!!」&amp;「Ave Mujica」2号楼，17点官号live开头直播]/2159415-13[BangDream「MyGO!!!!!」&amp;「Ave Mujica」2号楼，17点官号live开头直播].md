@@ -5771,3 +5771,20 @@ live半个月之后动画开播<img src="https://static.saraba1st.com/image/smil
 
 萝应该会带着鸡拍角色不可崩吧，我们来猜猜是哪位高尾奏音小姐帮i83垫底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18301#       发表于 2024-6-29 19:28
+
+<blockquote>yicihanshu 发表于 2024-6-29 18:40
+总之我还是建议国服运营最后把投票数据列出来让大家看看他们组团的数值设计是多么合理，那简直了，raychell ...</blockquote>
+看了下贴吧八组投票，一个小时，ykn组71票，msr组52票，tmr组45票，layer组4票，只能说这编组是多少带点恶意的。
+
+*****
+
+####  yifan8848  
+##### 18302#       发表于 2024-6-29 19:29
+
+過年了!兩個愛團!!!
+

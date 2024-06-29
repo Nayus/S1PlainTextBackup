@@ -6211,3 +6211,66 @@ pp概率大点吧，给彩彩刷个脸
 
 万一萝拉pp都有呢，不确定再看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  祐天寺若麦  
+##### 18344#       发表于 2024-6-29 20:31
+
+ 本帖最后由 祐天寺若麦 于 2024-6-29 20:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65426273&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-6-29 20:22</a>
+
+睦在ktv唱pp的歌，喵梦蹭流量的时候也是说pp和r的录音室，应该是pp了。而且go那边ppp和ag都是老五团的校园 ...</blockquote>
+睦唱的pp的歌叫再一次发光(luminas)，鸡2nd叫quaerere lumina，ave mujica是光
+
+*****
+
+####  PDQ4  
+##### 18345#       发表于 2024-6-29 20:33
+
+其实我有做梦过，鸡演出pp萝ras凑一桌都有看，然后瑞平<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18346#       发表于 2024-6-29 20:35
+
+再贷一点其实蝶和ras都能和鸡接触，蝶那边有祥蝶推设定和奏音&amp;天音的关系，nnm和筑紫在小地图对话和剧情里也有照顾过学校的绿植和睦能搭点关系。至于ras，到时候am肯定要和r&amp;ras顶峰相见的，海铃也很好贷和layer有关系，而且chu²说的不低概率就是am。
+
+<img src="https://img.saraba1st.com/forum/202406/29/203028v8l5nn95gynbvy9z.jpg" referrerpolicy="no-referrer">
+
+<strong>8388D7FAA2B973392E61EBAB9E55F644.jpg</strong> (140.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/203049bruvhvmrkuym3yqk.jpg" referrerpolicy="no-referrer">
+
+<strong>1C5F6024E0D4761E17EB889A2D7709E0.jpg</strong> (68.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/203236biiyz8vvj9nvhif8.jpg" referrerpolicy="no-referrer">
+
+<strong>8E2673A4A6FE008D192D5EB328B79ABC.jpg</strong> (73.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 20:32 上传
+
+*****
+
+####  星天观测  
+##### 18347#       发表于 2024-6-29 20:35
+
+那我有画面了啊
+
+日菜：这个主唱挺厉害的嘛，是高一生？彩彩今年大一了吧
+
+彩：哈？
+
+（无恶意）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

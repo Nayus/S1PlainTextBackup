@@ -12569,3 +12569,74 @@ P吉大着肚子来吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 明明一秒钟之前还在感慨弥生怎么不是豆芽菜。。。
 
+
+*****
+
+####  ads147147  
+##### 5612#       发表于 2024-6-27 19:49
+
+没砖抽莉波，随缘了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  zoomegg  
+##### 5613#       发表于 2024-6-28 23:25
+
+<img src="https://img.saraba1st.com/forum/202406/28/232228nlgykr61jr0j200l.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240628231901.png</strong> (80.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 23:22 上传
+
+对不起实在是没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+明明一秒钟之前还在感慨弥生怎么不是豆芽菜。。。
+
+*****
+
+####  Alicest  
+##### 5614#       发表于 2024-6-29 14:29
+
+<img src="https://img.saraba1st.com/forum/202406/29/142932c24a77n7rv4zani7.jpg" referrerpolicy="no-referrer">
+
+<strong>62f77c3b80059406c53cd36e565c5bee669141028.jpg</strong> (326.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/142931jses009x30y4v4b0.png" referrerpolicy="no-referrer">
+
+<strong>05f06bfc8b517f259470f51b24aee416669141028.png</strong> (2.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 14:29 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/142930dn16k4l4rl4izbl4.png" referrerpolicy="no-referrer">
+
+<strong>0ba51abc98df5556a2ffe91e860c9e4b669141028.png</strong> (1.53 MB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 14:29 上传
+
+*****
+
+####  Alicest  
+##### 5615#       发表于 2024-6-29 14:32
+
+这卢卡居然是双马尾<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/29/143254jc1jyfrczf811x8h.jpg" referrerpolicy="no-referrer">
+
+<strong>L48W5XHKF~~(7Z[E(4[5{%W.jpg</strong> (127.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 14:32 上传
+

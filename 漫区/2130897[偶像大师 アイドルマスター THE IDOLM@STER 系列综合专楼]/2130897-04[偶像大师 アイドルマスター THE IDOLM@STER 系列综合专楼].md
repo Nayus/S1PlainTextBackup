@@ -12658,3 +12658,31 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 歌可以，但是那MV动作真一言难尽，有些地方的眼球motion太出戏了，真觉得是不是随便找的新人来糊弄的。。
 
+
+*****
+
+####  Alleyht  
+##### 5618#       发表于 2024-6-29 23:31
+
+ 本帖最后由 Alleyht 于 2024-6-29 23:57 编辑 
+
+SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心有点微妙，相较米组刚出的「くだらないや」，这边给我一种僵硬的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+只能说起码歌保持了一贯水准，而且有にち砲听，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了眼日推，日本的シーズP们对新组活和新曲MV都是一如既往的好评如潮，难道是我的问题，需要更换新款滤镜了吗<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  はらみー  
+##### 5619#       发表于 2024-6-30 00:50
+
+歌可以，但是那MV动作真一言难尽，有些地方的眼球motion太出戏了，真觉得是不是随便找的新人来糊弄的。。
+
+*****
+
+####  もも的洞洞鞋  
+##### 5620#       发表于 2024-6-30 05:30
+
+今年楼里有柏油冲彩么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

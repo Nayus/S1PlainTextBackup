@@ -11628,3 +11628,15 @@ kuso作中间总得留下些有趣的剧情切片吧，不能这么一场空吧<
 
 看总结才想起来，黎2贡献了帕蒂尔玛蒂尔的回归也算大功一件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，当年坠机整得我还挺意难平的
 
+
+*****
+
+####  椎名mahuyo  
+##### 1139#       发表于 2024-6-30 01:58
+
+ 本帖最后由 椎名mahuyo 于 2024-6-30 02:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">建议去看看学园祭所有角色的最终羁绊事件，信息量不少，信息量少的也很欢乐
+
+主角8人只有卡特尔一个人的坑算是填干净了
+

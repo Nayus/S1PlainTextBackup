@@ -1713,3 +1713,11 @@ pv完全就是斧乃木主角 undead是指她了？
 作品への想いを詰め込んだ情報量たっぷりの楽曲、お楽しみに✌️✌️
 <img src="https://p.sda1.dev/18/df900b668e2f31de01054078ae0f3771/20240629_110650.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 187#       发表于 2024-6-29 12:27
+
+还附有原作小说，所以这歌真是为斧乃木写的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

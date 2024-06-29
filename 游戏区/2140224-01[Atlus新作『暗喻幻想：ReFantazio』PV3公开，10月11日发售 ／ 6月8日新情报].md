@@ -85,3 +85,39 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 490#         楼主| 发表于 2024-6-29 12:05
+
+IGN访谈：
+[https://www.ign.com/articles/met ... st-hands-on-preview](https://www.ign.com/articles/metaphor-refantazio-the-first-hands-on-preview)
+
+*****
+
+####  Piano-Forest  
+##### 491#         楼主| 发表于 2024-6-29 12:05
+
+[https://m.weibo.cn/detail/5050556639609383](https://m.weibo.cn/detail/5050556639609383)
+
+Bilibili World暗喻幻想主创见面会问答环节【问题征集】！
+
+【关注+转发】即有机会赢PowerA战龙系列神秘新品手柄！
+
+《暗喻幻想：ReFantazio》将于7月12日至14日出展Bilibili World！
+
+游戏总监桥野桂及角色设计师副岛成记也将亲临活动现场，见面会环节中主创们还将回答玩家们的提问！请通过本问卷提交你的问题和用户名，有可能在舞台活动中被选中回答哦~
+[https://wj.qq.com/s2/14885174/aa12/](https://wj.qq.com/s2/14885174/aa12/) 
+
+本作的创作契机是什么？创作中遇到的难题有哪些？角色设计时有没有比较讲究的地方？欢迎大家踊跃提问哦~
+
+问题征集截止时间：6月30日 23:59
+
+※抽奖将于7月5日由脚本抽出，结果将在本账号的动态中另行公开，届时会通过私信的方式联系中奖者。
+
+※世嘉可在法律规定范围内对活动规则进行变更与调整，相关变动或调整将提前以公告的方式及时通知。
+
+※本次抽奖活动为世嘉所有。
+<img src="https://p.sda1.dev/18/73ad4b117246ff2955d31f06f0300da5/1719633623518.png" referrerpolicy="no-referrer">
+

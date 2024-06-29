@@ -11485,3 +11485,27 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 
 在我看来也是很尴尬的演出之一了
 
+
+*****
+
+####  frosta  
+##### 1128#       发表于 2024-6-29 20:45
+
+话说，黎2我到现在都没玩，有没有做的好的3分钟看完黎2的剧情总结
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  ravend233  
+##### 1129#       发表于 2024-6-29 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65426592&amp;ptid=2160194" target="_blank">frosta 发表于 2024-6-29 20:45</a>
+话说，黎2我到现在都没玩，有没有做的好的3分钟看完黎2的剧情总结
+
+— from S1 Next Goose v3.0.0.82-alpha ...</blockquote>
+一句话总结：找到了第八个表
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

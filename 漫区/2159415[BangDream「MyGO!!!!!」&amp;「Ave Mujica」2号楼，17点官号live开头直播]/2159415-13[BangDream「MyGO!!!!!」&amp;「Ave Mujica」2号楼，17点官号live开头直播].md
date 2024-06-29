@@ -6299,3 +6299,15 @@ pp概率大点吧，给彩彩刷个脸
 
 如果对标前面的动画格式，那就是中间部分和萝还有pp开拼盘live，最后一集的结局live让除了hhw以外的几个老团来围观
 
+
+*****
+
+####  PDQ4  
+##### 18351#       发表于 2024-6-29 20:54
+
+都最后了hhw怎么不能来围观，动画就和老团拉上线，那鸡进手游就不用担心和老团怎么认识了
+
+不过动画拼盘Live我觉得应该难有，虽然我也很想看，支持鸡摇滚节一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+世界观反正已经演过怎么维持了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

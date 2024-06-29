@@ -5538,3 +5538,11 @@ layer hgm toko eve masking
 总之我还是建议国服运营最后把投票数据列出来让大家看看他们组团的数值设计是多么合理，那简直了，raychell ...</blockquote>
 只会是10倍吗，layer，masking，toko，eve，hgm人气加起来有没有前排那三队一个高人气角色的人气都不好说（把go团的扣了还有ykn/ars/lisa）
 
+
+*****
+
+####  星天观测  
+##### 18273#       发表于 2024-6-29 18:50
+
+哎，人气投票是一定要存在的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

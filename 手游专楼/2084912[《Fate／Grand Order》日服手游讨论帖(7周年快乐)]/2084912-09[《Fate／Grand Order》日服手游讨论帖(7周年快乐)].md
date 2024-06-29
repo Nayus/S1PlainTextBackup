@@ -1562,3 +1562,20 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 刪了重裝就900MB，打了數關活動後才重上1.06GB水平，活動殘留數據實在太多了...
 
+
+*****
+
+####  シャル  
+##### 12940#       发表于 2024-6-29 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65424247&amp;ptid=2084912" target="_blank">eilot 发表于 2024-6-29 16:24</a>
+
+看來是否要定期刪了FGO重裝...
+
+在沒有使用預先下載資料情況下，見到FGO用到20GB以上
+
+刪了重裝就900MB，打了 ...</blockquote>
+是的，大更新后就需要重新清空内存再下
+
+不用删，请了内存就1G多，内容一括下载20G
+

@@ -5788,3 +5788,62 @@ live半个月之后动画开播<img src="https://static.saraba1st.com/image/smil
 
 過年了!兩個愛團!!!
 
+
+*****
+
+####  KLHgg  
+##### 18303#       发表于 2024-6-29 19:35
+
+好好好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18304#       发表于 2024-6-29 19:37
+
+我要贷款有演出，都互相当嘉宾了，开奶<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18305#       发表于 2024-6-29 19:39
+
+包有的好吧，不然互相当嘉宾难道是上去讲相声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 18306#       发表于 2024-6-29 19:41
+
+第一天被拉入roselia的世界观角色不可崩
+
+第二天给roselia安排小剧场
+
+真有特别演出就期间限定当wsd孝子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+想看yknsayo和祥子互动很久了，睦和lisa的互动也想看<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18307#       发表于 2024-6-29 19:42
+
+真要给萝安排小剧场吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就不怕那五个人尤其是i83和kdhr直接笑出声来
+
+*****
+
+####  御景  
+##### 18308#       发表于 2024-6-29 19:43
+
+好起来了
+
+*****
+
+####  星天观测  
+##### 18309#       发表于 2024-6-29 19:44
+
+初华和lisa好好认识一下吧，至少一个是人气偶像一个是辣妹，时尚这边的话题不会少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

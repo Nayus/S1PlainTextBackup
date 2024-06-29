@@ -5457,3 +5457,11 @@ ksar的奇迹，ykls的约束，pachu的命运真是重量级啊<img src="https:
 
 ksar，akorin，彩千，摩卡兰，mstk，laytae，巴绯，mskk，mas6，ccpr，ykls，透瑠，mave，saya*rimi（有谁知道这俩cp有啥简称吗），1734。
 
+
+*****
+
+####  rikaren  
+##### 18266#       发表于 2024-6-29 17:58
+
+另外日本那边已经固定下来初祥罗马音简写是uisk了
+

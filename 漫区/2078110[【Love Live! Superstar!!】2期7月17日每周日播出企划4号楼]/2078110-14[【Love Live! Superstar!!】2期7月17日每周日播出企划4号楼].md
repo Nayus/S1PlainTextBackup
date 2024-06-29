@@ -2851,3 +2851,42 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  lj205  
+##### 20430#       发表于 2024-6-29 20:52
+
+说到送礼，我刚好这次送了件unisex的T，还是挺宽松的，以为她说的是收到的衣服尺码过大是指这个，结果后面又说是那种可爱风的，反而大码T可以，那就还好。
+
+*****
+
+####  ruffian  
+##### 20431#       发表于 2024-6-29 21:02
+
+听见鱼念完喝假酒之后说了句“真的……（没有）”，下意识以为她要说喝的真酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 20432#       发表于 2024-6-29 22:10
+
+看了花田发的gbc完结感想更让我确信库粟米那勾八塑造就是花田自己的恶趣味根本没有谁拿枪逼他那么做，他真觉得“都是xx的错”这种玩笑很幽默
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 20433#       发表于 2024-6-30 06:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65427772&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-6-29 22:10</a>
+看了花田发的gbc完结感想更让我确信库粟米那勾八塑造就是花田自己的恶趣味根本没有谁拿枪逼他那么做，他真 ...</blockquote>
+还需要通过昨天来验证么，从他中二病开始就喜欢森凸开的，就知道这是他好球区，他就要这样写。
+
+事实上不也收了一群超级死忠结晶？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -80,3 +80,11 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  Geyorkias  
+##### 17960#       发表于 2024-6-29 16:42
+
+20亿左右的一档线算是比较正常的古战场吧，要是某一天一档突然跌到十三四亿，那肯定不是因为你游不卷了，只会是虫哥想你了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

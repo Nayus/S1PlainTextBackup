@@ -5161,3 +5161,20 @@ wsd有没有想法推一下sumimi啊<img src="https://static.saraba1st.com/image
 
 只要活好加推一下初真也ok
 
+
+*****
+
+####  御幸一也  
+##### 18246#       发表于 2024-6-29 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">sumimi？不需要了。
+
+
+*****
+
+####  木谷高明  
+##### 18247#       发表于 2024-6-29 16:41
+
+<img src="https://p.sda1.dev/18/fb6d1fc0e9dcfaced2b534d0ca329f13/1000200102.jpg" referrerpolicy="no-referrer">
+🐔团线下隔几天都有互动，逆输入过去也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

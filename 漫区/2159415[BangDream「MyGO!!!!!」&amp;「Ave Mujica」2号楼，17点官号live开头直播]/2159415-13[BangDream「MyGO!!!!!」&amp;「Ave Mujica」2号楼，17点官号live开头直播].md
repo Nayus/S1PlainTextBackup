@@ -5561,3 +5561,119 @@ kkr那组比hhw还电波，一个正常人都没有了
 
 毛力除了说话慢点怎么不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18276#       发表于 2024-6-29 19:07
+
+一眼保送ykn三连冠，ykn和爱音的人气太高了，说得缺德一点，带三个hgm都能赢
+
+*****
+
+####  星天观测  
+##### 18277#       发表于 2024-6-29 19:12
+
+nga给出ykn组必赢的理由：赢了是要唱歌的，偷摸零不是一眼寄了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18278#       发表于 2024-6-29 19:13
+
+woc!鸡萝！
+
+*****
+
+####  6030sylar  
+##### 18279#       发表于 2024-6-29 19:13
+
+<img src="https://img.saraba1st.com/forum/202406/29/191336yi8bbi8ppwu8uhpz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 19:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">四舍五入就是对邦
+
+*****
+
+####  星天观测  
+##### 18280#       发表于 2024-6-29 19:14
+
+卧槽卧槽卧槽！起立！
+
+
+*****
+
+####  滑稽Captain  
+##### 18281#       发表于 2024-6-29 19:15
+
+萝鸡合同，这个牛逼了
+
+*****
+
+####  skives  
+##### 18282#       发表于 2024-6-29 19:15
+
+好好好好好好
+
+*****
+
+####  skives  
+##### 18283#       发表于 2024-6-29 19:16
+
+live半个月之后动画开播<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18284#       发表于 2024-6-29 19:16
+
+我超，过年了
+
+*****
+
+####  akirakira  
+##### 18285#       发表于 2024-6-29 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好好好
+
+*****
+
+####  御幸一也  
+##### 18286#       发表于 2024-6-29 19:17
+
+我操！！！！！
+
+<img src="https://img.saraba1st.com/forum/202406/29/191701g6paoodgepp6vt99.png" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20240629-111526_1807009980.png</strong> (164.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 19:17 上传
+
+[https://x.com/bang_dream_info/status/1807009980601766007](https://x.com/bang_dream_info/status/1807009980601766007)
+
+*****
+
+####  极速赛车手  
+##### 18287#       发表于 2024-6-29 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65423520&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-29 14:55</a>
+
+老团的主唱cp基本都是很明确的，到了狗（鸡动画手游都没有先不说）好像主唱cp不是那么明确了 ...</blockquote>
+小白和layer也不是很明确吧，没怎么见到提及的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18288#       发表于 2024-6-29 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好起来了吗
+

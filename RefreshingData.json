@@ -3168,10 +3168,10 @@
     "update": false
   },
   "2008011": {
-    "totalreply": 7932,
+    "totalreply": 7933,
     "title": "[真女神转生五，11.11中文同步发售；4.18销量破100万！]",
     "newtitle": "[真女神转生五，21.11.11ns版发售／真女神转生5复仇，提前一周24.6.14登录全平台]",
-    "lastedit": 1719678501,
+    "lastedit": 1719699847,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -20507,7 +20507,7 @@
     "newtitle": "[忍组游戏的口碑真的是很好玩]",
     "lastedit": 1719440529,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2188762": {
@@ -22734,10 +22734,10 @@
     "update": false
   },
   "2189434": {
-    "totalreply": 109,
+    "totalreply": 110,
     "title": "[手都没牵过，已经开始见家长了]",
     "newtitle": "[手都没牵过，已经开始见家长了]",
-    "lastedit": 1719680656,
+    "lastedit": 1719699729,
     "category": "外野",
     "active": true,
     "update": false
@@ -22887,10 +22887,10 @@
     "update": false
   },
   "2189480": {
-    "totalreply": 46,
+    "totalreply": 47,
     "title": "[丰田意欲谈判赴沪建设全资雷克萨斯工厂]",
     "newtitle": "[丰田意欲谈判赴沪建设全资雷克萨斯工厂]",
-    "lastedit": 1719698887,
+    "lastedit": 1719699728,
     "category": "外野",
     "active": true,
     "update": false
@@ -22901,6 +22901,15 @@
     "newtitle": "[Fate／strange Fake TV动画化 特别篇23年7月2日放送]",
     "lastedit": 1719690023,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2189484": {
+    "totalreply": 41,
+    "title": "[if you want it，then you have to take it]",
+    "newtitle": "[if you want it，then you have to take it]",
+    "lastedit": 1719700087,
+    "category": "外野",
     "active": true,
     "update": false
   }

@@ -550,3 +550,11 @@ feel.社跟小林智树监督，感觉制作水平会跟我们的重制人生差
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">主要 sp 有 umi，umi 这个在其他个人线存在感都特别稀薄，总不能像 cl 一样其他线都带着白羽 umi高强度刷脸吧，好怪啊
 
+
+*****
+
+####  wolf1997  
+##### 49#       发表于 2024-6-29 13:47
+
+避开了大家心心念念的BIBURY，最后迎来的居然还是GAL改老朋友FEEL，所以GAL改不靠A爹就彻底走不出去旧圈子是吧。感觉这次FEEL是要拿出全力的，就是这个大塚舞人设给我很不好的预感，最后人设非常有可能会是YUNO那种大饼脸，跟游戏差距会很大，做好心理准备。
+

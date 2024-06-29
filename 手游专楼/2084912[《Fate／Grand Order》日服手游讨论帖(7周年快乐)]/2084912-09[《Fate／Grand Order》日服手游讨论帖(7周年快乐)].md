@@ -1510,3 +1510,11 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 为什么萌新的兽妮快400石没出这种辣鸡3石就出了</blockquote>
 欧 羡慕 狗萌新又跳了
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12935#       发表于 2024-6-29 11:16
+
+三十群比二十群是质变，怎么可能轮得到你绿卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11555,3 +11555,29 @@ kuso作中间总得留下些有趣的剧情切片吧，不能这么一场空吧<
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 还有昆西社不再属于奥克雷尔家族，百年家产易主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1134#       发表于 2024-6-29 21:57
+
+ 本帖最后由 卢迪克 于 2024-6-29 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65426592&amp;ptid=2160194" target="_blank">frosta 发表于 2024-6-29 20:45</a>
+
+话说，黎2我到现在都没玩，有没有做的好的3分钟看完黎2的剧情总结
+
+— from S1 Next Goose v3.0.0.82-alpha ...</blockquote>
+没啥有用的，就给找了第8个表，ed图不错，玲和结社对话说新七柱鸽了盟主两年半，宇宙军发表，东大陆从130年前皇国崩坏之后就开始沙漠化
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1135#       发表于 2024-6-29 22:03
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-6-29 22:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65427379&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-6-29 21:38</a>
+
+kuso作中间总得留下些有趣的剧情切片吧，不能这么一场空吧</blockquote>
+那就学妹最后宣言要发动攻势，老实说时机不是很好，铺垫不足。
+

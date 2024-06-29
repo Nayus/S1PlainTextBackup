@@ -1599,3 +1599,18 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 也就欺负去的是两个文学系,不然随便来个能打了就把他砍了吧？
 
+
+*****
+
+####  シャル  
+##### 12943#       发表于 2024-6-30 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65428446&amp;ptid=2084912" target="_blank">v22325 发表于 2024-6-29 23:15</a>
+
+这海幸彦看出身那段不是小物中的小物么？就日本那八百万神蹭一下也能写的好像是个大敌一样？
+
+也就欺负去的 ...</blockquote>
+其实是受害者
+
+被山辛彦拿走法宝鱼钩不还简直了
+

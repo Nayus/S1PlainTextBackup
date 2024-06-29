@@ -5677,3 +5677,97 @@ live半个月之后动画开播<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好起来了吗
 
+
+*****
+
+####  星天观测  
+##### 18289#       发表于 2024-6-29 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65425583&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-6-29 19:17</a>
+
+小白和layer也不是很明确吧，没怎么见到提及的</blockquote>
+没看过蝶，layer太明确了啊，和otae牵着手日剧跑
+
+*****
+
+####  rikaren  
+##### 18290#       发表于 2024-6-29 19:20
+
+<blockquote>极速赛车手 发表于 2024-6-29 19:17
+小白和layer也不是很明确吧，没怎么见到提及的</blockquote>
+小白虽然cp有点混沌，但是官推是筑紫是毫无疑问的，layer官推otae也是毫无疑问的，虽然磕的可能没maslay多就是了。
+
+*****
+
+####  NODY  
+##### 18291#       发表于 2024-6-29 19:21
+
+动画前就和萝联合live，我猜动画里面萝真的要和ppp戏份地位类似了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18292#       发表于 2024-6-29 19:22
+
+总之应该又能看到动画lisa了，还是大学生版，过年了
+
+宛如超诗绊的和解，谢谢你wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  K·os  
+##### 18293#       发表于 2024-6-29 19:23
+
+动员飞升，武士道看看你的卖票实力的时候到了
+
+
+*****
+
+####  K·os  
+##### 18294#       发表于 2024-6-29 19:24
+
+当然一个对于ave厨而言的好消息，这场卖票压力大，武士道肯定会在之前放不少料，可以不用像现在这样饥渴了
+
+*****
+
+####  滑稽Captain  
+##### 18295#       发表于 2024-6-29 19:25
+
+还是很符合预期的，设计上分别就是第二代的ppp和roselia
+
+*****
+
+####  PDQ4  
+##### 18296#       发表于 2024-6-29 19:25
+
+卧槽过年了过年了，感觉像做梦一样，冲冲冲冲冲
+
+*****
+
+####  skives  
+##### 18297#       发表于 2024-6-29 19:25
+
+10月有动画先导pv
+12月初应该就有动画正式pv了吧
+
+*****
+
+####  PDQ4  
+##### 18298#       发表于 2024-6-29 19:25
+
+和萝一个场子意味着大量宣发了吧，好好好
+
+*****
+
+####  PDQ4  
+##### 18299#       发表于 2024-6-29 19:25
+
+终于熬出头了
+
+*****
+
+####  星天观测  
+##### 18300#       发表于 2024-6-29 19:26
+
+萝应该会带着鸡拍角色不可崩吧，我们来猜猜是哪位高尾奏音小姐帮i83垫底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

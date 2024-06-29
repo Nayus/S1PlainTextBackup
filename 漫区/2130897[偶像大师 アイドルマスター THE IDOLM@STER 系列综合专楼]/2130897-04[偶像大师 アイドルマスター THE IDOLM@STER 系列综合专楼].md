@@ -12650,3 +12650,11 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 只能说起码歌保持了一贯水准，而且有にち砲听，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はらみー  
+##### 5617#       发表于 2024-6-30 00:50
+
+歌可以，但是那MV动作真一言难尽，有些地方的眼球motion太出戏了，真觉得是不是随便找的新人来糊弄的。。
+

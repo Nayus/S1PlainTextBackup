@@ -11410,3 +11410,11 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 
 快7月了店特一堆图都还不出，这下真的双向奔赴了我不想买你不想卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1119#       发表于 2024-6-29 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是都是立绘图，放太早怕丢人
+

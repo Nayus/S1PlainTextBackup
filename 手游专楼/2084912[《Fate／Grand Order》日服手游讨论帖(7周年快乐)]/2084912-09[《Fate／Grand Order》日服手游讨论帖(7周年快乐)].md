@@ -1493,3 +1493,20 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">为什么萌新的兽妮快400石没出这种辣鸡3石就出了
 
+
+*****
+
+####  隰有苌楚  
+##### 12933#       发表于 2024-6-29 10:35
+
+给自充去掉改4星还对付
+
+*****
+
+####  qixinno2  
+##### 12934#       发表于 2024-6-29 10:39
+
+<blockquote>alucardcz 发表于 2024-6-29 09:51
+为什么萌新的兽妮快400石没出这种辣鸡3石就出了</blockquote>
+欧 羡慕 狗萌新又跳了
+

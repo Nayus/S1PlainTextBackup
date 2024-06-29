@@ -1721,3 +1721,11 @@ pv完全就是斧乃木主角 undead是指她了？
 
 还附有原作小说，所以这歌真是为斧乃木写的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 188#       发表于 2024-6-29 16:06
+
+颤抖吧，夜游终将回到他忠诚的二次元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

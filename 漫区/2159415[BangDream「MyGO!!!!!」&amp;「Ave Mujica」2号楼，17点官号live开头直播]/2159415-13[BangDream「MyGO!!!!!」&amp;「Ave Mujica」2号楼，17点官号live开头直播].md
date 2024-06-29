@@ -6135,3 +6135,79 @@ wsd孝子我会默认是老登gachi，也不知道mggm给了多少这么洗，�
 
 那合唱air吧，萝唱应该也挺有意思的
 
+
+*****
+
+####  yifan8848  
+##### 18334#       发表于 2024-6-29 20:16
+
+AM太雞團專屬了，Symbol I可能比較適合，歌詞裡也有玫瑰剛好對應
+
+*****
+
+####  rikaren  
+##### 18335#       发表于 2024-6-29 20:18
+
+可以贷款AM动画里pp和r客串了。
+
+*****
+
+####  鳥栖朝  
+##### 18336#       发表于 2024-6-29 20:18
+
+好好好好起来了
+
+*****
+
+####  星天观测  
+##### 18337#       发表于 2024-6-29 20:20
+
+萝应该是定了，不确定另一个会是pp还是ras，pp的话希望能有一点双子镜头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18338#       发表于 2024-6-29 20:20
+
+不是对邦大概比较难合唱，能开场白介绍一下就足够爽飞了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  池袋西柚  
+##### 18339#       发表于 2024-6-29 20:21
+
+派ras是不是有点太欺负小羊了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18340#       发表于 2024-6-29 20:22
+
+睦在ktv唱pp的歌，喵梦蹭流量的时候也是说pp和r的录音室，应该是pp了。而且go那边ppp和ag都是老五团的校园团，对称处理的话am这边也会是老五团的职业团r和pp。
+
+
+*****
+
+####  NODY  
+##### 18341#       发表于 2024-6-29 20:22
+
+pp概率大点，mygo当时是和ppp还有ag拼盘live，那mujica作为职业乐队要有类似剧情那就是和同是职业的萝和pp开拼盘
+
+*****
+
+####  PDQ4  
+##### 18342#       发表于 2024-6-29 20:24
+
+pp概率大点吧，给彩彩刷个脸
+
+但是我希望都出现，怎么就不能职业队凑一桌呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18343#       发表于 2024-6-29 20:24
+
+主要萝基本确定的话感觉ras出来也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（楚平方：凑友希那，没想到你也来看这个乐队的live了）
+
+万一萝拉pp都有呢，不确定再看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

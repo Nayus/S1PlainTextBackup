@@ -5193,3 +5193,37 @@ wsd有没有想法推一下sumimi啊<img src="https://static.saraba1st.com/image
 
 灯目前颇有要输给爱素美帝之力的趋势，不过官方姑且还是会推一下爱灯灯素灯希的，只是不像几个老牌cp那样作为主推cp和其他副推有明显格差了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18250#       发表于 2024-6-29 16:57
+
+wsd之前不是搞过bangdream with系列，每个主唱（还有大热cp）都带着自己的官推有了关键词，ksar/ykls/毛力兰/彩千圣/mskk/laytae（蝶不记得了），pachu和冰川双子好像也有
+
+不知道以后会不会更新
+
+ksar的奇迹，ykls的约束，pachu的命运真是重量级啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 18251#       发表于 2024-6-29 17:01
+
+其实是13对官推，3个三人行都有关键词
+
+*****
+
+####  Aendst  
+##### 18252#       发表于 2024-6-29 17:03
+
+？原来邦多利老早就官推三个人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18253#       发表于 2024-6-29 17:04
+
+那个系列我不太记得了，三人行是哪些
+

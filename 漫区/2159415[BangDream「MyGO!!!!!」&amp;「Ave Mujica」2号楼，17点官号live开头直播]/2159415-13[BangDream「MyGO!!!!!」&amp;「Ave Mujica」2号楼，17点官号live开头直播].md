@@ -5902,3 +5902,190 @@ live半个月之后动画开播<img src="https://static.saraba1st.com/image/smil
 
 光速购入萝专<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18315#       发表于 2024-6-29 19:56
+
+<img src="https://img.saraba1st.com/forum/202406/29/195605v9pue744wa37aq51.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 19:56 上传
+
+可以買蘿專抽2DAYS PASS<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  滑稽Captain  
+##### 18316#       发表于 2024-6-29 19:56
+
+有一说一，这场的规模确实有卖票压力，看wsd发挥了
+
+*****
+
+####  星天观测  
+##### 18317#       发表于 2024-6-29 19:57
+
+压力肯定有，但是没关系，反正到了傻逼嘴里就是鸡屁用没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18318#       发表于 2024-6-29 19:58
+
+不是說這個場子很爛，很便宜嗎，你雞這天至少不會虧吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+賣不完就賣不完吧，畢竟是動畫沒播的糊比團<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 18319#       发表于 2024-6-29 19:58
+
+下半年有新曲吗，希望李子多练练<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">几首翻唱倒是感觉很熟了
+
+*****
+
+####  滑稽Captain  
+##### 18320#       发表于 2024-6-29 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65425870&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-29 19:50</a>
+
+讲个笑话，nga有个经常带节奏的问：感觉隔壁专楼对邦这边尤其是MyGO怨气很大啊
+
+下一楼就是：快进到鸡团票 ...</blockquote>
+对邦只卖了三成是gbc的剧情来着，我就解释一下梗（
+
+
+*****
+
+####  PDQ4  
+##### 18321#       发表于 2024-6-29 19:59
+
+压力给到鸡和wsd，没有压力怎么进步<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 18322#       发表于 2024-6-29 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65425870&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-6-29 19:50</a>
+
+讲个笑话，nga有个经常带节奏的问：感觉隔壁专楼对邦这边尤其是MyGO怨气很大啊
+
+下一楼就是：快进到鸡团票 ...</blockquote>
+看下面的回复，也有可能说的是GBC专楼。
+
+不过我看说话的人，说的就是我们吧。
+
+那人经常带节奏，上次拉老团挡枪的就是他。
+
+
+*****
+
+####  yifan8848  
+##### 18323#       发表于 2024-6-29 20:01
+
+翻唱專輯塞了兩張抽選，現在覺得買了沒這麼虧了
+
+*****
+
+####  御幸一也  
+##### 18324#       发表于 2024-6-29 20:02
+
+有一說一這不是對邦，互相掛的名字是GUEST
+
+查過了你邦的LIVE，最近的掛GUEST名的是這場
+
+RAISE A SUILEN LIVE 2023「EXCLAMATION HIGHLAND」
+[https://bang-dream.com/events/ras_2023](https://bang-dream.com/events/ras_2023)
+
+<img src="https://img.saraba1st.com/forum/202406/29/200111wpcqpaaac66r3e9l.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (33.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 20:01 上传
+
+然後看setlist是只唱了5首
+ <blockquote>◆セットリスト
+
+ゲストアクト：Roselia
+
+M1熱色スターマイン
+
+M2 Dear Gleam
+
+M3 PASSIONATE ANTHEM
+
+M4 BLACK SHOUT
+
+M5 FIRE BIRD
+
+RAISE A SUILEN
+
+M1 Invincible Fighter
+
+M2 DEAD HEAT BEAT
+
+M3 ゴーカ！ごーかい！？ファントムシーフ！
+
+M4 UNSTOPPABLE
+
+M5 OUTSIDER RODEO
+
+M6 劣等上等
+
+M7 Keep the Heat and Fire Yourself Up
+
+M8 Repaint
+
+M9 !NVADE SHOW!
+
+M10 狂乱 Hey Kids!!
+
+M11 灼熱 Bonfire!
+
+M12 EXPOSE ‘Burn out!!!’
+
+M13 -N-E-M-E-S-I-S-
+
+M14 THE WAY OF LIFE
+
+M15 HELL! or HELL?
+
+M16 DRIVE US CRAZY</blockquote>
+
+*****
+
+####  星天观测  
+##### 18325#       发表于 2024-6-29 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65425947&amp;ptid=2159415" target="_blank">御景 发表于 2024-6-29 19:59</a>
+
+看下面的回复，也有可能说的是GBC专楼。
+
+不过我看说话的人，说的就是我们吧。
+
+那人经常带节奏，上次拉老 ...</blockquote>
+谁知道呢，反正祝狗外战开心，对内别虐鸡的泉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18326#       发表于 2024-6-29 20:03
+
+那大概就是实质开场暖场嘉宾，不过更正式一点，可能歌多几首
+
+*****
+
+####  NODY  
+##### 18327#       发表于 2024-6-29 20:04
+
+带节奏那个人应该是个wsd孝子，经常在包括但不限于，鸡团粉丝不满待遇、狗团粉丝烤羊或者吐槽立希待遇等等情况时候出来列出各种论据表示wsd做的就是对的，是你们不理解wsd的策划
+

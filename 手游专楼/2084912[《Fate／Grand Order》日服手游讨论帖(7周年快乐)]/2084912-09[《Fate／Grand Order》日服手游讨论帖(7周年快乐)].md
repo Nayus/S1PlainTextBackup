@@ -1469,3 +1469,27 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 这新角我只能说绿卡真是WYS的眼中钉，30群充不给（硬要太公同款），还是混沌特攻。
 差不多快周年了，就怕周年点到名的从者给的都是“手打指令卡”式强化，那可真是太可怕了
 
+
+*****
+
+####  壳壳牛  
+##### 12931#       发表于 2024-6-29 09:44
+
+这新卡什么待遇...不仅锁卡面再临也锁了...
+
+
+*****
+
+####  alucardcz  
+##### 12932#       发表于 2024-6-29 09:51
+
+<img src="https://img.saraba1st.com/forum/202406/29/095106kvp9u9n9bu4rqfrc.png" referrerpolicy="no-referrer">
+
+<strong>555555555555.png</strong> (931.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 09:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">为什么萌新的兽妮快400石没出这种辣鸡3石就出了
+

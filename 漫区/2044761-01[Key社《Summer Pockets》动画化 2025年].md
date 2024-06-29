@@ -566,3 +566,19 @@ feel.社跟小林智树监督，感觉制作水平会跟我们的重制人生差
 
 原作：<strong>腾讯</strong><strong></strong>／VISUAL ARTS / Key / Summer Pockets<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 51#       发表于 2024-6-29 21:55
+
+key visual都能画崩，你在开玩笑吧
+
+<img src="https://img.saraba1st.com/forum/202406/29/215538giqbieqqo01qpi9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 21:55 上传
+

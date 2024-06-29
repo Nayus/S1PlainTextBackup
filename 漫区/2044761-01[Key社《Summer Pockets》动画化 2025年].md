@@ -535,3 +535,18 @@ feel.社跟小林智树监督，感觉制作水平会跟我们的重制人生差
 
 呃 感觉不行（）
 
+
+*****
+
+####  Earendil_C  
+##### 47#       发表于 2024-6-29 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">配置比想象得好，但不看好能改好
+
+*****
+
+####  Earendil_C  
+##### 48#       发表于 2024-6-29 12:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">主要 sp 有 umi，umi 这个在其他个人线存在感都特别稀薄，总不能像 cl 一样其他线都带着白羽 umi高强度刷脸吧，好怪啊
+

@@ -5227,3 +5227,182 @@ ksar的奇迹，ykls的约束，pachu的命运真是重量级啊<img src="https:
 
 那个系列我不太记得了，三人行是哪些
 
+
+*****
+
+####  rikaren  
+##### 18254#       发表于 2024-6-29 17:10
+
+<img src="https://img.saraba1st.com/forum/202406/29/170434c3n7ofxln8i7oro8.jpg" referrerpolicy="no-referrer">
+
+<strong>B558369E0BB9A634B5BD98619238D074.jpg</strong> (204.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:04 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170635nvar7h6vr0f4vytx.jpg" referrerpolicy="no-referrer">
+
+<strong>74D28AFF75B545797C0E481BBDDC0C38.jpg</strong> (288.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170651nqxf2xa2eqqxxrbu.jpg" referrerpolicy="no-referrer">
+
+<strong>DB25347965F15F676C555F130BFB3462.jpg</strong> (279.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170716ls55tvpz3t3dp3qg.jpg" referrerpolicy="no-referrer">
+
+<strong>17551ACB838425492E0A6F0693F091A3.jpg</strong> (383.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170740ncjykr3pyz888kck.jpg" referrerpolicy="no-referrer">
+
+<strong>30CC6CD0EB24CAD301B07C75185C82FE.jpg</strong> (313.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:07 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170810pppfj0wf88e9e6r5.jpg" referrerpolicy="no-referrer">
+
+<strong>CFEE28FC7A81AD25E5D6BCF7D128C61E.jpg</strong> (352.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170827haaxzzt5ye9yx21l.jpg" referrerpolicy="no-referrer">
+
+<strong>030982C22CADCAE9E6D67A73C27EC94E.jpg</strong> (254.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170843m769e49v94988e7w.jpg" referrerpolicy="no-referrer">
+
+<strong>D9047594B8C5B874F809D5684B38429C.jpg</strong> (245.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170859hkxn39y412uy16xp.jpg" referrerpolicy="no-referrer">
+
+<strong>8F266952EF7E47A1168C65C6F95AE3E3.jpg</strong> (297.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170911u36m3vtfr3zt6epf.jpg" referrerpolicy="no-referrer">
+
+<strong>EDA6EC7032368190BA41B3D2F3ED1F5A.jpg</strong> (339.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170922nmk6bah9oayhmd92.jpg" referrerpolicy="no-referrer">
+
+<strong>02E6E85360DA8A1B070AAF65AB3021B1.jpg</strong> (330.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170935i03ye7mdyy3me3m3.jpg" referrerpolicy="no-referrer">
+
+<strong>5F8B9B73F0B7287D587E2BF1F95C3E2F.jpg</strong> (330.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/170951rnn4b6nu4bw8la3u.jpg" referrerpolicy="no-referrer">
+
+<strong>99777600F5FD558E53A24894A4C884B1.jpg</strong> (377.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/171004sensanlvn2be1naa.jpg" referrerpolicy="no-referrer">
+
+<strong>C998583D3B07C00673638C2D9337999D.jpg</strong> (336.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/171018oht6h62ph04pt221.jpg" referrerpolicy="no-referrer">
+
+<strong>8C8A15C1BB25FA6F2B21E4A9B5BBEFFF.jpg</strong> (353.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/171028qyskz7ggt33v407f.jpg" referrerpolicy="no-referrer">
+
+<strong>BCC3BDAFD4BB5C79D0D020C367A15592.jpg</strong> (479.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 17:10 上传
+
+*****
+
+####  rikaren  
+##### 18255#       发表于 2024-6-29 17:12
+
+<blockquote>Aendst 发表于 2024-6-29 17:03
+？原来邦多利老早就官推三个人了吗</blockquote>
+蝶和ag的三人行大概算一对官推加一个落单的，透瑠+nnm，巴绯+茨菇，hhw的三人行
+
+薰，花音，hgm大概就是千圣全责了。
+
+*****
+
+####  NODY  
+##### 18256#       发表于 2024-6-29 17:13
+
+没有，那几个三人行都是为了不让那几位cp已经配出去的人单着所以配剩下的队内，hhw的花音薰hgm、ag的巴绯茨菇、蝶的透子七深瑠唯
+
+不过你邦确实也会推三角，比如冰川三明治
+
+*****
+
+####  星天观测  
+##### 18257#       发表于 2024-6-29 17:13
+
+三人行感觉就是队员之间的友情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真美味啊ykls冰川双子，舞台上的约束和伞层叠选的真好
+
+正在直播的萝live好劲，我滴贵贵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18258#       发表于 2024-6-29 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这落单的是不是有点太惨了，热闹是他们的，我什么也没有
+
+*****
+
+####  rikaren  
+##### 18259#       发表于 2024-6-29 17:14
+
+【〖全网首发中字〗CiRCLE THANKS MUSiC♪ BanG Dream五周年大合唱-哔哩哔哩】 https://b23.tv/at0Mpp8
+

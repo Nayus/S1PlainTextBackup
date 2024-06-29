@@ -44,3 +44,13 @@ inkipedia快一个月了也没更新完8.0.0改动，发生啥了。
 
 给任天堂一直发死亡威胁的那人审出来作案动机是输太多输破防了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">粪游戏害人不浅
 
+
+*****
+
+####  shirolin  
+##### 4777#       发表于 2024-6-29 17:10
+
+【东日本决胜赛】开始哩：
+
+[https://www.youtube.com/watch?v=5QniLMSK0Y0](https://www.youtube.com/watch?v=5QniLMSK0Y0)
+

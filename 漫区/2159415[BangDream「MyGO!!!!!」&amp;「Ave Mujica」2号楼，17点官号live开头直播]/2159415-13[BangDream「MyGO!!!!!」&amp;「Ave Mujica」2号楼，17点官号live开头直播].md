@@ -5074,3 +5074,15 @@ NGA二创入脑的挺多的
 
 我不理解.jpg
 
+
+*****
+
+####  NODY  
+##### 18236#       发表于 2024-6-29 15:43
+
+ 本帖最后由 NODY 于 2024-6-29 15:44 编辑 
+
+祥子这边还有睦，动画没准还有喵梦和海铃，初祥要像ykls摩卡兰那样双方锁死是有点困难
+
+有可能重演彩千圣那种主唱单方面锁死，但对方还有好几个官推的情况，薰有幼驯染buff彩有主唱buff都绑不住千圣和花音同居<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

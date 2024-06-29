@@ -558,3 +558,11 @@ feel.社跟小林智树监督，感觉制作水平会跟我们的重制人生差
 
 避开了大家心心念念的BIBURY，最后迎来的居然还是GAL改老朋友FEEL，所以GAL改不靠A爹就彻底走不出去旧圈子是吧。感觉这次FEEL是要拿出全力的，就是这个大塚舞人设给我很不好的预感，最后人设非常有可能会是YUNO那种大饼脸，跟游戏差距会很大，做好心理准备。
 
+
+*****
+
+####  花开安菲路  
+##### 50#       发表于 2024-6-29 14:17
+
+原作：<strong>腾讯</strong><strong></strong>／VISUAL ARTS / Key / Summer Pockets<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+

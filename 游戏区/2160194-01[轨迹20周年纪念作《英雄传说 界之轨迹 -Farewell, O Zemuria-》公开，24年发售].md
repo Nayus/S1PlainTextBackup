@@ -11534,3 +11534,24 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 — from S1 Next Goose v3.0.0.82-alpha ...</blockquote>
 总结 无视发生 去搜ed看一眼就没了
 
+
+*****
+
+####  whzfjk  
+##### 1132#       发表于 2024-6-29 21:38
+
+kuso作中间总得留下些有趣的剧情切片吧，不能这么一场空吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 1133#       发表于 2024-6-29 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65426666&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-29 20:51</a>
+
+一句话总结：找到了第八个表
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+还有昆西社不再属于奥克雷尔家族，百年家产易主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6319,3 +6319,11 @@ pp概率大点吧，给彩彩刷个脸
 
 都快10周年了，怎么还拿出五周年其乐融融的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18353#       发表于 2024-6-29 21:39
+
+母鸡卡正片搞拼盘估计难，不如期待pico4或者circle十周年感谢ova吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6089,3 +6089,49 @@ M16 DRIVE US CRAZY</blockquote>
 
 带节奏那个人应该是个wsd孝子，经常在包括但不限于，鸡团粉丝不满待遇、狗团粉丝烤羊或者吐槽立希待遇等等情况时候出来列出各种论据表示wsd做的就是对的，是你们不理解wsd的策划
 
+
+*****
+
+####  PDQ4  
+##### 18328#       发表于 2024-6-29 20:07
+
+wsd孝子我会默认是老登gachi，也不知道mggm给了多少这么洗，不会20年也在洗吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 18329#       发表于 2024-6-29 20:08
+
+什么精神股东<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18330#       发表于 2024-6-29 20:10
+
+如果能一起唱一首歌就好了
+
+比如第一天合唱ds第二天合唱am<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 18331#       发表于 2024-6-29 20:13
+
+带团名的歌应该不太好合唱，要合唱的话黑色生日或者假面舞会更合适
+
+*****
+
+####  rikaren  
+##### 18332#       发表于 2024-6-29 20:15
+
+那人我查到过邦吧历史发言，给当时开五星洗过地
+
+*****
+
+####  星天观测  
+##### 18333#       发表于 2024-6-29 20:15
+
+那合唱air吧，萝唱应该也挺有意思的
+

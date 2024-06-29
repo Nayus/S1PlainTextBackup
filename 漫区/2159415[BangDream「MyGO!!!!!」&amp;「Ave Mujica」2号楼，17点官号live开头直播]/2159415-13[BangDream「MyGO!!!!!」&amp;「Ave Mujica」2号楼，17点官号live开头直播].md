@@ -4890,3 +4890,127 @@ NGA二创入脑的挺多的
 
 不过二赖子的当年的生存环境可比你鸡好一万倍
 
+
+*****
+
+####  skives  
+##### 18220#       发表于 2024-6-28 17:31
+
+喵祥恋爱喜剧缓解气氛
+睦祥回忆神回
+初祥王道双向救赎
+灯祥关系正常化祥子彻底从过去毕业
+素祥和解
+大概就是这种方向 没道理偏太多<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1||
+| dofuweiguodi| + 1|好评加鹅|
+| 御景| + 1|好评加鹅|
+| 木谷高明| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 18221#       发表于 2024-6-28 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65414247&amp;ptid=2159415" target="_blank">skives 发表于 2024-6-28 17:31</a>
+
+喵祥恋爱喜剧缓解气氛
+
+睦祥回忆神回
+
+初祥王道双向救赎</blockquote>
+点了，祥子和狗肯定会和解，但是比和解更多的感觉等手游说不定更靠谱
+
+*****
+
+####  rikaren  
+##### 18222#       发表于 2024-6-28 18:07
+
+<img src="https://img.saraba1st.com/forum/202406/28/180609pr7grggq5zn7ev57.jpg" referrerpolicy="no-referrer">
+
+<strong>1719569043089.jpg</strong> (160.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202406/28/180618xxrfuy93vy6gjv9t.jpg" referrerpolicy="no-referrer">
+
+<strong>1719569038225.jpg</strong> (185.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-28 18:06 上传
+
+小白那组msr，soyo，maya，cst，ars，应该和ykn那组有点一战之力，lisa和燐燐会在tmr那组吗？
+
+*****
+
+####  星天观测  
+##### 18223#       发表于 2024-6-28 19:44
+
+还有两个主唱，lisa和rinko应该是分开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 18224#       发表于 2024-6-28 20:14
+
+没有海祥么 事业心+超级打手的组合也不错吧
+
+*****
+
+####  rikaren  
+##### 18225#       发表于 2024-6-28 20:16
+
+如果要内定ykn那组冠军lisa姐和燐燐应该就不会和灯一组了，不内定那应该会和tmr一组，ykn，msr，tmr三组厮杀。
+
+*****
+
+####  Aendst  
+##### 18226#       发表于 2024-6-28 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有些人是真的把自己的需求当预测，箭射到洗脚圣地臭水沟里还要画个靶
+
+不然真的没法解释为什么会贷款有独立官网独立标题视觉图摆在那官方白纸黑字明说聚焦mujica五个人的动画要mujica给mygo洗脚一整部动画
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|.我就没不见过自称姐妹的组合不因为某一方.|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 18227#       发表于 2024-6-28 22:15
+
+毕竟在他们心里母鸡卡就相当于ll一二部里的二赖子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过二赖子的当年的生存环境可比你鸡好一万倍
+
+*****
+
+####  御幸一也  
+##### 18228#       发表于 2024-6-29 11:23
+
+有些人真的不想說了，這麼看不起初祥啊？真覺得一個別團主唱就要給你墊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">沒關係，你加油幻想，初祥大賣的時候希望你別破防得太厲害
+

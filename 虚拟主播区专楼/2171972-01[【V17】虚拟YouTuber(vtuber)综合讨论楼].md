@@ -1172,3 +1172,13 @@ syl，ナナ歌力真还行吧，但也就还行的水平
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  aritaatsu222  
+##### 409#       发表于 2024-6-29 21:02
+
+不破湊≈3bk
+
+三枝明那≈3bk←new
+

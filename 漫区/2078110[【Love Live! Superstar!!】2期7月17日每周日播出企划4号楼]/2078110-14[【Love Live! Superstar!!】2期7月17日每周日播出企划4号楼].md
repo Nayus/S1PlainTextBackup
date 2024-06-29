@@ -2831,3 +2831,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 说到送礼，我刚好这次送了件unisex的T，还是挺宽松的，以为她说的是收到的衣服尺码过大是指这个，结果后面又说是那种可爱风的，反而大码T可以，那就还好。
 
+
+*****
+
+####  ruffian  
+##### 20428#       发表于 2024-6-29 21:02
+
+听见鱼念完喝假酒之后说了句“真的……（没有）”，下意识以为她要说喝的真酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

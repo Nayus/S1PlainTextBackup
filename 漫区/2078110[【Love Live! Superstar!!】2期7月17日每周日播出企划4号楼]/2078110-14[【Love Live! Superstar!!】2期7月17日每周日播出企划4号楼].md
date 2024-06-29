@@ -2803,3 +2803,23 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 居然唱雨爱，可以说是双厨狂喜了，看来票房啥的都可以，看她也不关心票的事
 
+
+*****
+
+####  csolfans  
+##### 20425#       发表于 2024-6-29 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65426400&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-29 20:31</a>
+
+发了几条SC没念就念了问她想吃啥，然后说了一堆，居然还早起喝早茶，好吧😂
+
+居然唱雨爱，可以说是双厨狂喜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国庆好像有个活
+
+*****
+
+####  csolfans  
+##### 20426#       发表于 2024-6-29 20:42
+
+今天总感觉酒喝多了，唱了很多Kpop 可惜真不了解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6274,3 +6274,28 @@ pp概率大点吧，给彩彩刷个脸
 
 （无恶意）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18348#       发表于 2024-6-29 20:38
+
+分享Pastel＊Palettes的单曲《もういちど ルミナス (再一次 绽放光芒)》: https://y.music.163.com/m/song?id=1299550359&amp;userid=410459287&amp;dlt=0846 (来自@网易云音乐)
+
+睦唱的歌
+
+*****
+
+####  PDQ4  
+##### 18349#       发表于 2024-6-29 20:40
+
+蝶和睦搭上关系不要太简单，可以让tymm逆输入小白“黄瓜的孩子”<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 18350#       发表于 2024-6-29 20:43
+
+如果对标前面的动画格式，那就是中间部分和萝还有pp开拼盘live，最后一集的结局live让除了hhw以外的几个老团来围观
+

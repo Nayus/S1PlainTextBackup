@@ -1116,3 +1116,17 @@ syl，ナナ歌力真还行吧，但也就还行的水平
 
 宇宙服新衣那是ロハ不是ロア<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  freakystar  
+##### 405#       发表于 2024-6-29 15:22
+
+<blockquote>Ketestrait 发表于 2024-6-29 11:17
+宇宙服新衣那是ロハ不是ロア</blockquote>
+大草，原来是路过眼花看错了
+
+当时刚看完官司新闻，我还感慨官司刚有结果就回来了？
+
+你不说是roha我脑海中的记忆都给自动加工成异色瞳了
+

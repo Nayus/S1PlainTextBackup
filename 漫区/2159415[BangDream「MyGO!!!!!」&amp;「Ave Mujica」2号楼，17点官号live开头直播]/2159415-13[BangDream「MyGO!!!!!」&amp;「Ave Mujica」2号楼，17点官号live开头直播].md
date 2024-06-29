@@ -5048,3 +5048,19 @@ NGA二创入脑的挺多的
 
 所有人最后都会意识到mygo一期是灯素动画的
 
+
+*****
+
+####  NODY  
+##### 18233#       发表于 2024-6-29 15:16
+
+早期设定有点灯希+爱素的味道，动画主推爱灯爱素灯素三角，手游目前倒是有点回归早期灯希+爱素的样子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18234#       发表于 2024-6-29 15:23
+
+这下要产生初祥估计不会像ykls毛力兰那样成为主唱明确cp的悲伤预感了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

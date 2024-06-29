@@ -1526,3 +1526,27 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歪出个月神，吐了
 
+
+*****
+
+####  シャル  
+##### 12937#       发表于 2024-6-29 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65422808&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-6-29 13:30</a>
+
+歪出个月神，吐了</blockquote>
+你也歪了？
+
+我也出了个月神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 12938#       发表于 2024-6-29 13:41
+
+「放課後は家に押し掛けたりしたのかもな……ま、別に今からでもそういうのはできるか。おい、冷蔵庫の飲み物もらうぞ？」
+
+「私はお部屋を探索しちゃったりして！ベッドの下に……えーと、どちら様ですか……？」
+
+妈耶，咕哒床底下真有人<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

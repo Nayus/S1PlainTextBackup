@@ -11449,3 +11449,11 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 
 编辑     
 
+
+*****
+
+####  ravend233  
+##### 1124#       发表于 2024-6-29 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是这样吧，前天看PMM直播黎1就有这种感觉了，老玩家不觉得，看新玩家玩确实有一股子抛一堆名词轰炸的迷惑感
+

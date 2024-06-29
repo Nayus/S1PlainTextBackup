@@ -5102,3 +5102,13 @@ NGA二创入脑的挺多的
 
 所以如果不是双锁死我就跑路了，初华单推挺好的，cp吃ykls冰川双子毛力兰也不担心会饿死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18239#       发表于 2024-6-29 16:25
+
+初祥这开局三首CP曲的待遇是有点早期彩千圣的味道，就不知道谁是薰和花音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过初华同时有彩的主唱buff和薰的幼驯染天降buff，比起彩更有优势一点，我还是坚持mujica就是初祥幼时约定的假说
+

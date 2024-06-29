@@ -1550,3 +1550,15 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 妈耶，咕哒床底下真有人<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 12939#       发表于 2024-6-29 16:24
+
+看來是否要定期刪了FGO重裝...
+
+在沒有使用預先下載資料情況下，見到FGO用到20GB以上
+
+刪了重裝就900MB，打了數關活動後才重上1.06GB水平，活動殘留數據實在太多了...
+

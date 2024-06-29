@@ -87,3 +87,27 @@ inkipedia快一个月了也没更新完8.0.0改动，发生啥了。
 
 mvp吸墨机
 
+
+*****
+
+####  秋月孝三  
+##### 4782#       发表于 2024-6-29 19:49
+
+过于暴力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  墨染白泉  
+##### 4783#       发表于 2024-6-29 19:49
+
+蛤蜊吊打
+
+*****
+
+####  carroy  
+##### 4784#       发表于 2024-6-29 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这蛤蜊打的
+

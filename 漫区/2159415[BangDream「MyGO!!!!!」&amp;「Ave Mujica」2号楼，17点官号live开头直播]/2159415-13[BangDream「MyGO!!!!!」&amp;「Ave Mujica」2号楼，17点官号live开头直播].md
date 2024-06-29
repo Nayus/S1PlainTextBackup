@@ -5847,3 +5847,58 @@ live半个月之后动画开播<img src="https://static.saraba1st.com/image/smil
 
 初华和lisa好好认识一下吧，至少一个是人气偶像一个是辣妹，时尚这边的话题不会少吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18310#       发表于 2024-6-29 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">快和前輩打好關係
+
+
+*****
+
+####  星天观测  
+##### 18311#       发表于 2024-6-29 19:50
+
+讲个笑话，nga有个经常带节奏的问：感觉隔壁专楼对邦这边尤其是MyGO怨气很大啊
+
+下一楼就是：快进到鸡团票只卖掉三成
+
+有时候真不知道这傻逼是不识字啊还是没脑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  yifan8848  
+##### 18312#       发表于 2024-6-29 19:51
+
+這次有兩天通票可以買，加上互為客座，不可能賣的差吧
+
+*****
+
+####  rikaren  
+##### 18313#       发表于 2024-6-29 19:53
+
+<blockquote>星天观测 发表于 2024-6-29 19:44
+初华和lisa好好认识一下吧，至少一个是人气偶像一个是辣妹，时尚这边的话题不会少吧 ...</blockquote>
+时尚话题应该可以初华喵梦lisa，toko，hmr一起来个混活，正好美妆博主+三辣妹都齐了。
+
+*****
+
+####  PDQ4  
+##### 18314#       发表于 2024-6-29 19:56
+
+光速购入萝专<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

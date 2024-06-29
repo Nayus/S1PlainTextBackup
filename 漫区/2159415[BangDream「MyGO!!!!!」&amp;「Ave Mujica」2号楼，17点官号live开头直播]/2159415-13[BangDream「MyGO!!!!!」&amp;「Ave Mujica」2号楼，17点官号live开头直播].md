@@ -5178,3 +5178,18 @@ wsd有没有想法推一下sumimi啊<img src="https://static.saraba1st.com/image
 <img src="https://p.sda1.dev/18/fb6d1fc0e9dcfaced2b534d0ca329f13/1000200102.jpg" referrerpolicy="no-referrer">
 🐔团线下隔几天都有互动，逆输入过去也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 18248#       发表于 2024-6-29 16:46
+
+中之人过于频繁约会，一周两人约一次，一个月五个人团建一场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（保守估计）
+
+*****
+
+####  NODY  
+##### 18249#       发表于 2024-6-29 16:49
+
+灯目前颇有要输给爱素美帝之力的趋势，不过官方姑且还是会推一下爱灯灯素灯希的，只是不像几个老牌cp那样作为主推cp和其他副推有明显格差了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

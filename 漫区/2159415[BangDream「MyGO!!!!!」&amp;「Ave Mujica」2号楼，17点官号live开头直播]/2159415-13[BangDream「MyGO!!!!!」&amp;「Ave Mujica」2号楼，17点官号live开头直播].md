@@ -5112,3 +5112,52 @@ NGA二创入脑的挺多的
 
 不过初华同时有彩的主唱buff和薰的幼驯染天降buff，比起彩更有优势一点，我还是坚持mujica就是初祥幼时约定的假说
 
+
+*****
+
+####  好想看Mujica啊  
+##### 18240#       发表于 2024-6-29 16:27
+
+邦又不是限定单官推，有些人有了第一官推还有第二官推，还有人有第三官推什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kivz  
+##### 18241#       发表于 2024-6-29 16:29
+
+mujica只有mana能担忧下吧，想不到外人(不是)怎么处理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18242#       发表于 2024-6-29 16:32
+
+然而除了千圣其它角色的第一官推好像都比其它大力多了
+
+彩千圣真不知道是不是因为amt身体不好吃了亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 18243#       发表于 2024-6-29 16:32
+
+灯和初华想不到怎么输，彩彩只是运气不好
+
+*****
+
+####  Aendst  
+##### 18244#       发表于 2024-6-29 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">支持mujica内部三个人在一起甚至五个人租房同居
+
+*****
+
+####  星天观测  
+##### 18245#       发表于 2024-6-29 16:35
+
+wsd有没有想法推一下sumimi啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要活好加推一下初真也ok
+

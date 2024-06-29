@@ -1729,3 +1729,16 @@ pv完全就是斧乃木主角 undead是指她了？
 
 颤抖吧，夜游终将回到他忠诚的二次元<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仙那度  
+##### 189#       发表于 2024-6-29 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65421490&amp;ptid=2168085" target="_blank">Piano-Forest 发表于 2024-6-29 11:08</a>
+
+🆕YOASOBI「UNDEAD」7/1(月)0時配信決定🤛
+
+#物語シリーズ オフ＆モンスターシーズン主題歌となる今作、西 ...</blockquote>
+看样子op是早见的了，我还想看你鱼香姐能不能再出个神曲燃爆今夏<img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">
+

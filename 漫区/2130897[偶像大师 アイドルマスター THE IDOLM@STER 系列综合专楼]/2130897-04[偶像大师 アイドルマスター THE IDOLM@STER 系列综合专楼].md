@@ -12640,3 +12640,13 @@ P吉大着肚子来吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 2024-6-29 14:32 上传
 
+
+*****
+
+####  Alleyht  
+##### 5616#       发表于 2024-6-29 23:31
+
+SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心有点微妙，相较米组刚出的「くだらないや」，这边给我一种僵硬的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+只能说起码歌保持了一贯水准，而且有にち砲听，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

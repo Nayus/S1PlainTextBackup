@@ -5406,3 +5406,46 @@ ksar的奇迹，ykls的约束，pachu的命运真是重量级啊<img src="https:
 
 【〖全网首发中字〗CiRCLE THANKS MUSiC♪ BanG Dream五周年大合唱-哔哩哔哩】 https://b23.tv/at0Mpp8
 
+
+*****
+
+####  rikaren  
+##### 18260#       发表于 2024-6-29 17:17
+
+这mv里双子和摩卡兰的互动真好
+
+*****
+
+####  星天观测  
+##### 18261#       发表于 2024-6-29 17:20
+
+这mv差不多就是wsd盖章的官推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我永远喜欢ykls冰川双子毛力兰
+
+不知道什么时候能带鸡狗玩啊
+
+*****
+
+####  NODY  
+##### 18262#       发表于 2024-6-29 17:21
+
+这个没办法，薰花音茨菇的主推都在队外而且已经配完了，只能和队内三人行了，彩彩作为主唱在这种配平场合还是有优先权的
+
+不过你邦后面也没搞这样明显的官推倒计时了，都是直接按乐队来
+
+
+*****
+
+####  rikaren  
+##### 18263#       发表于 2024-6-29 17:24
+
+六周年是全员一人三张图，七周年八个团一团一张，只能说落魄的不是一点两点。
+
+*****
+
+####  星天观测  
+##### 18264#       发表于 2024-6-29 17:24
+
+明年十周年了，wsd得憋坨大的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

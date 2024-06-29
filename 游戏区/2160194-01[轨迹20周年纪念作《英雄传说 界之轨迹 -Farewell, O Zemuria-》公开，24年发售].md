@@ -11457,3 +11457,21 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实是这样吧，前天看PMM直播黎1就有这种感觉了，老玩家不觉得，看新玩家玩确实有一股子抛一堆名词轰炸的迷惑感
 
+
+*****
+
+####  一步成诗  
+##### 1125#       发表于 2024-6-29 17:18
+
+老玩家真的不觉吗，天天在那x年前，xx事件，那个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家记性这么好吗
+
+
+*****
+
+####  SuNR1sE364  
+##### 1126#       发表于 2024-6-29 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65424618&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-6-29 17:18</a>
+老玩家真的不觉吗，天天在那x年前，xx事件，那个人大家记性这么好吗</blockquote>
+像我这种一次性补完的就没啥关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

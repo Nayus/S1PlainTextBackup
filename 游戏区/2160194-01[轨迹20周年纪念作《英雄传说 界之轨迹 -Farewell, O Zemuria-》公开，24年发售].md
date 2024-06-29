@@ -11418,3 +11418,11 @@ PS：之前公布立绘就想说了，剑女这鞋子谁设计的，是真的丑
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是都是立绘图，放太早怕丢人
 
+
+*****
+
+####  hkguty  
+##### 1120#       发表于 2024-6-29 15:04
+
+美版的这个画师感觉挺不错
+

@@ -1589,3 +1589,13 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 没意思<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 12942#       发表于 2024-6-29 23:15
+
+这海幸彦看出身那段不是小物中的小物么？就日本那八百万神蹭一下也能写的好像是个大敌一样？
+
+也就欺负去的是两个文学系,不然随便来个能打了就把他砍了吧？
+

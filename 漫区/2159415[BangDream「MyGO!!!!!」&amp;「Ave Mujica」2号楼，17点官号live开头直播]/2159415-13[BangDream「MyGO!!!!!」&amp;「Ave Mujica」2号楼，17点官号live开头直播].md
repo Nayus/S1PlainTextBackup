@@ -5465,3 +5465,47 @@ ksar，akorin，彩千，摩卡兰，mstk，laytae，巴绯，mskk，mas6，ccpr
 
 另外日本那边已经固定下来初祥罗马音简写是uisk了
 
+
+*****
+
+####  CyDiablo  
+##### 18267#       发表于 2024-6-29 18:17
+
+tmr lisa otae kanon rinrin
+layer hgm toko eve masking
+最后还是给牢灯凑了个还行的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想不明白国服运营的思路，不过我还是觉得ykn队赢面大
+<img src="https://p.sda1.dev/18/6e68f43f0829a575af27ee58e2bad215/1719655433933.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ffc0cbd85e691589995c48f08c6b2c8e/1719656114018.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18268#       发表于 2024-6-29 18:21
+
+<img src="https://img.saraba1st.com/forum/202406/29/182109innkzrhlikvs7rpl.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719656448151.jpg</strong> (62.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 18:21 上传
+
+<img src="https://img.saraba1st.com/forum/202406/29/182117utt59k47q6dppyfp.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719656451218.jpg</strong> (99.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-29 18:21 上传
+
+怎么说，小白+soyo，tmr+otae+lisa+kanon+rinrin奶的明明白白
+
+
+*****
+
+####  CyDiablo  
+##### 18269#       发表于 2024-6-29 18:23
+
+汇总见下图，选择你的捍卫者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9b63ab60af7ed2eb696c8a8a42ff9726/IMG_20240629_182149.jpg" referrerpolicy="no-referrer">
+

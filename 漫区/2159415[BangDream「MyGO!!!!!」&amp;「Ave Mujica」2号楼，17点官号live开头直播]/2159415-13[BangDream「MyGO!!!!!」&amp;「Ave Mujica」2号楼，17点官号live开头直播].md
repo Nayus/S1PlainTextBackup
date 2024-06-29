@@ -5546,3 +5546,18 @@ layer hgm toko eve masking
 
 哎，人气投票是一定要存在的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 18274#         楼主| 发表于 2024-6-29 19:01
+
+kkr那组比hhw还电波，一个正常人都没有了
+
+*****
+
+####  星天观测  
+##### 18275#       发表于 2024-6-29 19:03
+
+毛力除了说话慢点怎么不正常了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

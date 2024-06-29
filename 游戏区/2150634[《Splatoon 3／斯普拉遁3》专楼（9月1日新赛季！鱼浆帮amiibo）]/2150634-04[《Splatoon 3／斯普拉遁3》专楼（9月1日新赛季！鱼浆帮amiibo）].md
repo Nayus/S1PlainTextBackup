@@ -135,3 +135,13 @@ mvp吸墨机
 
 2024-6-30 00:48 上传
 
+
+*****
+
+####  martinium  
+##### 4787#       发表于 2024-6-30 03:07
+
+老任终于搞真格官方大赛了。这是反思涂地队被吊打的结果么
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

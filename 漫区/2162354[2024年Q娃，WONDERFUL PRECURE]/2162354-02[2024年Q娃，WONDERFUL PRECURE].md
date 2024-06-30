@@ -4020,3 +4020,13 @@ bank2组分开的真正目的是为了水时长吧<img src="https://static.sarab
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  HANDAIYV  
+##### 1838#       发表于 2024-6-30 23:16
+
+好水啊，收服嘎路嘎路时跳上去把松鼠拉下去和小麦彩羽特训的关联有点太强行了
+
+另外小雪从猫变人已经有三个bank了吧
+

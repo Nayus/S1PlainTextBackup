@@ -1929,3 +1929,13 @@ Ed和往期风格差异也太大了…<img src="https://static.saraba1st.com/ima
 神谷是不会唱还是什么事务所的原因？明明在绝望先生里唱过ed和一些抽象的歌，虽然确实谈不上好听 ...</blockquote>
 我也不清楚，其实绝望先生那首ed我还挺喜欢的，偶尔还会拿出来听，结果物语这边就不唱了，我只能期待结物语的角色曲是神谷来唱了
 
+
+*****
+
+####  言酱啊啊啊  
+##### 209#       发表于 2024-6-30 23:16
+
+除了神谷没唱以外其实坂本真绫也没唱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+坂本真绫那几年一直不肯唱有自己角色的动画曲和角色歌
+最近这几年倒是偶尔有在唱了，姑且期待一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

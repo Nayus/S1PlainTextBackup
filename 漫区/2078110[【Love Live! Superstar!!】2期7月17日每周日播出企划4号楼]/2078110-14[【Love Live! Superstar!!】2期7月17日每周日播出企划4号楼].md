@@ -3105,3 +3105,25 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 某些人眼里你星出真人mv出动画mv在涩谷打广告就是觉得代孙在捧呢，反正就是觉得你星怎么样都是错😅 ...</blockquote>
 真就觉得现在星好欺负，人人都能踩一脚是吧
 
+
+*****
+
+####  ads147147  
+##### 20455#       发表于 2024-6-30 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65438445&amp;ptid=2078110" target="_blank">280041437 发表于 2024-6-30 22:48</a>
+真就觉得现在星好欺负，人人都能踩一脚是吧</blockquote>
+星团的舆论环境甚至不如花田十辉本人。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  离心  
+##### 20456#       发表于 2024-6-30 23:21
+
+<blockquote>280041437 发表于 2024-6-30 22:48
+真就觉得现在星好欺负，人人都能踩一脚是吧</blockquote>
+主要是星粉现在也佛了，你踩任你踩我看我自己的。现在明确看到星粉破防只有gbc粉瞎洗花田
+

@@ -6361,3 +6361,11 @@ pp概率大点吧，给彩彩刷个脸
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">non李鼓三角是最強der
 
+
+*****
+
+####  rikaren  
+##### 18357#       发表于 2024-6-30 09:12
+
+看了下贴吧八组模拟投票，ykn组已经开始倍杀第二了，其他组赢不了一点。
+

@@ -4010,3 +4010,13 @@ bank2组分开的真正目的是为了水时长吧<img src="https://static.sarab
 
 虽然水但是小麦可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1837#       发表于 2024-6-30 21:05
+
+这集确实太烂了，但小麦一直在笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

@@ -3074,3 +3074,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  黒烨  
+##### 20452#       发表于 2024-6-30 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65437663&amp;ptid=2078110" target="_blank">lj205 发表于 2024-6-30 21:39</a>
+关星屌事？现在企划资源都给莲了吧？</blockquote>
+某些人眼里你星出真人mv出动画mv在涩谷打广告就是觉得代孙在捧呢，反正就是觉得你星怎么样都是错😅
+

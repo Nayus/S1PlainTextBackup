@@ -1734,3 +1734,12 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 马上就夏活了有多少人会去抽这个完全没有任何知名度的东西</blockquote>
 为了枪清姬清空呼符了，也抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 12954#       发表于 2024-7-1 02:45
+
+除了小玉以外对任何日本神话系毫无感觉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">立省百分百
+（不过兽尼坠完本来也没几颗石了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12711,3 +12711,13 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 嘘组还得看live，happier都救回来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 5624#       发表于 2024-7-1 00:25
+
+我觉得不是唱的部分能感受到了，而是吉他足够强所以感受到了。
+
+如果我来能左右现场的话，一定会每次现场都对这首歌remix。
+

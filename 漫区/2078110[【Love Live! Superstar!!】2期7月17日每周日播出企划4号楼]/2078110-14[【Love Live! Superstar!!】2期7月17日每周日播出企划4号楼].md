@@ -2890,3 +2890,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ViyViy  
+##### 20434#       发表于 2024-6-30 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转念一想，也许我们这次真的能看到被狠狠管束的LL动画是什么样子的了，而不是这些编剧和监督搞信息差一面之词。
+
+代哥，拿出卖特摄道具的魄力罢
+

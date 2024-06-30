@@ -1667,3 +1667,16 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  xiongxingyu  
+##### 12948#       发表于 2024-6-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435564&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-6-30 18:32</a>
+
+剧情怎么还能断在开打之前的
+
+后面肯定还有黑幕的吧</blockquote>
+铁定的，剧情还不到三分之一呢，而且这海幸彦一看就不像是坏人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

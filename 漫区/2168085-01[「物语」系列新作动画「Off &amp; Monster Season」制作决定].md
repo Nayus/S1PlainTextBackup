@@ -1939,3 +1939,26 @@ Ed和往期风格差异也太大了…<img src="https://static.saraba1st.com/ima
 坂本真绫那几年一直不肯唱有自己角色的动画曲和角色歌
 最近这几年倒是偶尔有在唱了，姑且期待一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 210#       发表于 2024-7-1 00:30
+
+┏━━━━━━━━━━━━┓
+  #西尾維新 書き下ろし短々編
+┗━━━━━━━━━━━━┛
+
+主題歌 #YOASOBI 
+「UNDEAD」原作小説
+
+▸なでこパスト
+▸しのぶフューチャー
+
+∇公式サイトに公開
+https://www.monogatari-series.com/oms/special/novel/
+
+夜游还记得你这小说改编歌曲的设定啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

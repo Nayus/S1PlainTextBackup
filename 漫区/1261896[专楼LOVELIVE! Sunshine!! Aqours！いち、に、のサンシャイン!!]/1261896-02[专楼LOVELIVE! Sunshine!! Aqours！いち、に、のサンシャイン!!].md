@@ -6834,3 +6834,21 @@ fl
 
 最后fl必须要去，风风光光的送一程<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 1793#       发表于 2024-7-1 00:31
+
+<img src="https://p.sda1.dev/18/24e50c1b82ed57e6cc82959beb4b4d21/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 1794#       发表于 2024-7-1 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65439453&amp;ptid=1261896" target="_blank">仟音一心 发表于 2024-7-1 00:31</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">过份了啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

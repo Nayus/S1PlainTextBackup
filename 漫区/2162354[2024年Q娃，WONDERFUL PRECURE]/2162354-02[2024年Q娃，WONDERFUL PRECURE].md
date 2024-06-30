@@ -4002,3 +4002,11 @@ bank2组分开的真正目的是为了水时长吧<img src="https://static.sarab
 
 水就水吧，再水还能比去年水吗……这两年q娃单元回的水平实在低得可怕，除了插科打诨的搞笑回我甚至想不到哪集写的比较好？
 
+
+*****
+
+####  pokemon最爱  
+##### 1836#       发表于 2024-6-30 19:48
+
+虽然水但是小麦可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

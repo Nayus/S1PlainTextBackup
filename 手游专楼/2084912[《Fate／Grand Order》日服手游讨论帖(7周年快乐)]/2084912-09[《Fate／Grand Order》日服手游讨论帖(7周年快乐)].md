@@ -1680,3 +1680,16 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 后面肯定还有黑幕的吧</blockquote>
 铁定的，剧情还不到三分之一呢，而且这海幸彦一看就不像是坏人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  白金口袋  
+##### 12949#       发表于 2024-6-30 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65429811&amp;ptid=2084912" target="_blank">シャル 发表于 2024-6-30 02:27</a>
+
+不是小物啊，天孙之子，天照的直系孙子，母亲是国津神的木开花耶（真女神转生5DLC的那位），真正的神灵， ...</blockquote>
+这什么狗屎弟弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过有点意外，我还以为作为岛国的神话会偏向海洋崇拜，也就是海幸彦，结果是山幸彦占据鳌头
+

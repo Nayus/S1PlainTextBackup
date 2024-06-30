@@ -1641,3 +1641,18 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 你可以品品
 
+
+*****
+
+####  eilot  
+##### 12946#       发表于 2024-6-30 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65431714&amp;ptid=2084912" target="_blank">シャル 发表于 2024-6-30 11:42</a>
+
+还有一点没提，这山辛彦的孙子是神话里的神武天皇
+
+而海辛彦的孙子只是个渔夫</blockquote>
+山辛的外家更說要整他，叫他現在故意還給一個已有詛咒的爛魚钩給他，更說會看他想在那麼弄田地，你就不要去其附近，我會改了河流，令他窮死餓死報不到仇，等對方求你放個他...
+
+明明都是弟弟先搞出事，其後更和外父不停要整殘哥哥，最後逼到哥哥投降歸降，這樣表情只是騎職而不是仇職，也太奇怪了
+

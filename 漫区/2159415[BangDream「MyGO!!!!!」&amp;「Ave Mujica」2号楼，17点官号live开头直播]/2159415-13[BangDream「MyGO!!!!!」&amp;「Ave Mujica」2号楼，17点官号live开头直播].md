@@ -6453,3 +6453,39 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 眼睛版高尾真可爱吧
 
+
+*****
+
+####  御幸一也  
+##### 18363#       发表于 2024-6-30 12:42
+
+不過終於知道，這天睦祥奏音和結月雙子穿搭拍的照片，
+
+說的ob色和mo色在哪了，原來這衣服是藍綠的啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+調色調得太誇張了都看不出了
+
+<img src="https://img.saraba1st.com/forum/202406/30/123347u040omssmpglmb0p.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (203.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:33 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/124248tg69ir6n9d5i7gzt.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240630-042042_1807267996739735828_photo-2.jpg</strong> (255.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:42 上传
+
+
+*****
+
+####  yifan8848  
+##### 18364#       发表于 2024-6-30 12:44
+
+李子這張<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

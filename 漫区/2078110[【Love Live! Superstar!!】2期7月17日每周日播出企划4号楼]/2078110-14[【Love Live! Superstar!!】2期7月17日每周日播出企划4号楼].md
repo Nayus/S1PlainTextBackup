@@ -3064,3 +3064,13 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 关星屌事？现在企划资源都给莲了吧？
 
+
+*****
+
+####  ruffian  
+##### 20451#       发表于 2024-6-30 21:51
+
+明年一期生不会毕业吧？虽然仔细想想刚分组应该不会这么快缺掉一半人，但运营不值得信任<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

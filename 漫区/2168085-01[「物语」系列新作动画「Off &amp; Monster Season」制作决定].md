@@ -1770,3 +1770,11 @@ pv完全就是斧乃木主角 undead是指她了？
 抚物语的op居然是千石和斧乃木合唱，真就cp是吧</blockquote>
 不然抚子这种真正的大女主要跟谁去过日子？除了斧乃木没人顶的住吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  歪镜  
+##### 193#       发表于 2024-6-30 12:48
+
+这pv，这op，太清新了，一扫阴霾的感觉
+

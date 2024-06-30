@@ -1908,3 +1908,24 @@ Ed和往期风格差异也太大了…<img src="https://static.saraba1st.com/ima
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉难听炸了啊，yoasobi在搞什么鬼
 
+
+*****
+
+####  Sliurus  
+##### 207#       发表于 2024-6-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65437515&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-6-30 21:28</a>
+
+物语里我最不喜欢的是续终的op，与其说难听不如说敷衍，作为电音一般，作为垃圾君唯一的角色曲更是敷衍 ...</blockquote>
+神谷是不会唱还是什么事务所的原因？明明在绝望先生里唱过ed和一些抽象的歌，虽然确实谈不上好听
+
+*****
+
+####  Tachikoma88  
+##### 208#       发表于 2024-6-30 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65438663&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-6-30 23:08</a>
+
+神谷是不会唱还是什么事务所的原因？明明在绝望先生里唱过ed和一些抽象的歌，虽然确实谈不上好听 ...</blockquote>
+我也不清楚，其实绝望先生那首ed我还挺喜欢的，偶尔还会拿出来听，结果物语这边就不唱了，我只能期待结物语的角色曲是神谷来唱了
+

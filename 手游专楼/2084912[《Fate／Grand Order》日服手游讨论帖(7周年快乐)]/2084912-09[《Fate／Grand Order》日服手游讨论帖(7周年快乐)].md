@@ -1656,3 +1656,14 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 明明都是弟弟先搞出事，其後更和外父不停要整殘哥哥，最後逼到哥哥投降歸降，這樣表情只是騎職而不是仇職，也太奇怪了
 
+
+*****
+
+####  jackyhuang  
+##### 12947#       发表于 2024-6-30 18:32
+
+剧情怎么还能断在开打之前的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+后面肯定还有黑幕的吧
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

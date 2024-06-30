@@ -2953,3 +2953,17 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 星3有可能被管吗？代便高层要是真有这个精力，也不会幻日星2二连炸。幻日还能说是实力不足，星2明显愉快 ...</blockquote>
 至少就缩小到星这个层面，监督之上的人多盯着应该是肯定有的，再来一次难看的可不只是动画了，是财报，除非星三往后全卖真人商品。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20440#       发表于 2024-6-30 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435356&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-6-30 18:15</a>
+至少就缩小到星这个层面，监督之上的人多盯着应该是肯定有的，再来一次难看的可不只是动画了，是财报，除 ...</blockquote>
+星live动员没啥大下滑，之前查bd跌5k，结果看看虹也少了5k，感觉就是企划本身总量没变化，但是团太多了分流也多。
+
+团多也意味着，或许真的有上层巴不得星完蛋。。。你的上层不是我的上层，说多了也阴谋论了，说不定花田奉旨发疯呢。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

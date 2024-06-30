@@ -11750,3 +11750,20 @@ The Games Machine - 8/10
 
 Nintendo Life - 8/10
 
+
+*****
+
+####  卢迪克  
+##### 1149#       发表于 2024-6-30 16:15
+
+原来法老控还记得黎2至今没有日文pc版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202406/30/161542mwg0vsrjjiacsap6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240630_161458.jpg</strong> (422.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-6-30 16:15 上传
+

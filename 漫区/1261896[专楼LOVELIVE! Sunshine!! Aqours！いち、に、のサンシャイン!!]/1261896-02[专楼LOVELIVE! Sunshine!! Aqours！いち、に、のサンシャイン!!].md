@@ -6774,3 +6774,35 @@ fl
 
 一直认为水可以坚持到十周年<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿姆罗二世  
+##### 1786#       发表于 2024-6-30 20:17
+
+真的就要这样结束了吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">不甘心，不甘心啊
+
+*****
+
+####  wsdbyh  
+##### 1787#       发表于 2024-6-30 20:19
+
+<blockquote>HANDAIYV 发表于 2024-6-30 20:09
+一直认为水可以坚持到十周年</blockquote>
+明年下半年FL，也算是十周年了
+
+
+*****
+
+####  阿姆罗二世  
+##### 1788#       发表于 2024-6-30 20:21
+
+第一部从头追到尾的二偶，真要结束的时候反而无语凝噎<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1789#       发表于 2024-6-30 20:21
+
+<img src="https://p.sda1.dev/18/52a223c87a2d4806b4c289f00b7affcd/image.jpg" referrerpolicy="no-referrer">
+

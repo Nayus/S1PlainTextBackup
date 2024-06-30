@@ -3921,3 +3921,19 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 —— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  上坂莲华  
+##### 1829#       发表于 2024-6-30 13:47
+
+这集日常简直一坨狗屎，比空Q的校园回还水，大妈你还是别写日常了
+
+狗前几集还能人模狗样的上课交朋友，这集连学其他狗都不会学了，为了凑戏份强行降智是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+麻猫组倒是发挥稳定，mayu也一如既往的在吸猫，连凑数的变人都只剩猫了，不过变身还是2分半，祖宗之法不可违<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打怪更是直接变弱智，为了呼应前面意味不明的训练搞出来个生硬的不行的叠盾跳，结果还安排麻猫组救场跟K头，这么不喜欢菜狗组建议删了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+下集又到了大妈最喜欢的暖男地步，然后大妈在猫组全蓝色的基础上居然安排智慧袋也穿蓝色，鉴定为没活了嗯卖，但凡拍一下脑袋也不至于一下脑袋都不拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

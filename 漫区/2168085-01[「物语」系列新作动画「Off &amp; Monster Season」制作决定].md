@@ -1812,3 +1812,20 @@ ED：『UNDEAD』 YOASOBI
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Sliurus  
+##### 197#       发表于 2024-6-30 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65432734&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-6-30 13:28</a>
+
+终于舍得放新pv了啊
+
+这季就只做抚物语和愚的月火篇吗？
+
+完全没其他新内容</blockquote>
+都off &amp; monster了，肯定不止这么点，不然直接叫off season就好了
+
+最坏的打算就是分割放送
+

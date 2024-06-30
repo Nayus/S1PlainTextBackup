@@ -3162,3 +3162,47 @@ pay宝21岁生日
 
 以前人多的时候被踩没反抗，现在人少了，背负就完事了。反正别人也不会原谅你的，爱怎么说就怎么说
 
+
+*****
+
+####  仟音一心  
+##### 20461#       发表于 2024-7-1 00:22
+
+ 本帖最后由 仟音一心 于 2024-7-1 00:36 编辑 
+
+pay宝21岁生日
+<img src="https://p.sda1.dev/18/b5fed054d5ac5d00bcace565b3d5b4ba/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/7b52d963fd8a4b269bb3fad83e1d48af/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 20462#       发表于 2024-7-1 00:29
+
+丢，星团莲团舆论环境再差还能差到哪里去，这企划早就没有当初缪水大战的环境了，少往厕所探头对自己好点<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  优妮可  
+##### 20463#       发表于 2024-7-1 00:41
+
+以前人多的时候被踩没反抗，现在人少了，背负就完事了。反正别人也不会原谅你的，爱怎么说就怎么说
+
+*****
+
+####  starring  
+##### 20464#       发表于 2024-7-1 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65439341&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-7-1 00:22</a>
+pay宝21岁生日</blockquote>
+生日会上的三首翻唱
+【【中字】罗密欧与灰姑娘-payton尚未-哔哩哔哩】 https://b23.tv/q3nDOjC
+【【中字】オレンジ（Orange）-《四月是你的谎言》的第二首片尾曲-payton尚未-哔哩哔哩】 https://b23.tv/LUnbn49
+【【中字】ファンサ（Fans）《告白实行委员会》-payton尚未-哔哩哔哩】 https://b23.tv/2JokEQj
+
+线上直播的收音不是很好，人声变薄了，不过Pay宝唱得还是很厉害
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

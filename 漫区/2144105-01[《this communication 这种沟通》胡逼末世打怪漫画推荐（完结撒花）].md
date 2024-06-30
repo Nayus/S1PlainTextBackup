@@ -1856,3 +1856,13 @@ http://m.weibo.cn/status/5050982306418937?
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  第贰个十年  
+##### 184#         楼主| 发表于 2024-6-30 22:42
+
+好，学到了，下次就这么做（确信）
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

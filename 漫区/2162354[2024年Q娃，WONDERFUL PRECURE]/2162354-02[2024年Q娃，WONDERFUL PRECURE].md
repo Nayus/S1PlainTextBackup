@@ -3945,3 +3945,15 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">赤尾老师怎么来写Q娃了，这不是我们美妙旋律1和2的系构吗。
 
+
+*****
+
+####  粉儿alice  
+##### 1831#       发表于 2024-6-30 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65433284&amp;ptid=2162354" target="_blank">本间日阳 发表于 2024-6-30 14:45</a>
+赤尾老师怎么来写Q娃了，这不是我们美妙旋律1和2的系构吗。</blockquote>
+叫她三重野瞳认识的人比较多 就从这几年作为编剧接活水平 我很难评价她好
+
+还有q娃这几年的系列构成编剧真的没人会写q娃吗
+

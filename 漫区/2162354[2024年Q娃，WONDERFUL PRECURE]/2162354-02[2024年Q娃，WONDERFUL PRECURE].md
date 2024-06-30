@@ -3871,3 +3871,41 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 <img src="https://p.sda1.dev/18/fb6884f8d1aa7bba1dc83ba6d33718d2/003_6_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/84b834430006ed6248dd72ff2104a7e0/004_6_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1825#       发表于 2024-6-29 17:08
+
+第22話　わんだふるご～！
+
+脚本：赤尾でこ
+
+演出：岩井隆央
+
+絵コンテ：頂真司
+
+作画監督：山本径子、HAN SEUNG HUI、蕭宇庭、杜林桂、小西亜美、那須野文
+
+美術：東美紀
+
+いろは（CV.種﨑敦美）の家の動物病院で、知り合いのドッグトレーナーである犬束とボーダー・コリーのウィットと出会ったこむぎ（CV.長縄まりあ）たちは、犬束にさそわれて「アジリティ」というドッグスポーツに参加する。息のあったコンビネーションで次々と障害物をクリアしていく犬束とウィット。ユキ（CV.松田颯水）とまゆ（CV.上田麗奈）に加え、途中からやってきた悟と大福も見守る中、こむぎも挑戦するが、ハードルをくぐり抜け、トンネルはジャンプ、スラロームも通らずに横を全力でダッシュしてしまう。しかし、「しっかりといろはの声に耳をかたむけているこむぎには素質がある」という犬束は、ウィットがかつてはわがまま放題だったことを明かしつつ、いろはにアドバイスを送る。犬束が帰ったあと、もう一度コースに挑もうとするこむぎといろはだったが、そのとき、近くの草むらの中からガルガルがあらわれる。
+<img src="https://p.sda1.dev/18/c9f12bcb6c2ecb267bd2929f7570ee5c/001_5_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/05cadce251053b4633973997e332d138/002_6_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/fb6884f8d1aa7bba1dc83ba6d33718d2/003_6_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/84b834430006ed6248dd72ff2104a7e0/004_6_.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 1826#       发表于 2024-6-30 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">七夕回终于要卖BG了，虽然一眼浅卖，但今年BG写得越好越能避免烂活的可能性，加油啊成田
+
+*****
+
+####  himfsz  
+##### 1827#       发表于 2024-6-30 08:03
+
+到了狗组回，犬饲家父母还是不出场啊，我是很在意得不得了想看看她们家里的变化的，但是staff好像根本忘记了这回事？还是说不会写就暂时搁置？
+

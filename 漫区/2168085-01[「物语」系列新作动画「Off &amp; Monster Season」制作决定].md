@@ -1837,3 +1837,11 @@ ED：『UNDEAD』 YOASOBI
 
 物语动画的顺序自然是想怎么来怎么来，我觉得不大可能有哪个篇章不做的
 
+
+*****
+
+####  Diana010  
+##### 199#       发表于 2024-6-30 20:04
+
+【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 [https://b23.tv/jqrVyi1](https://b23.tv/jqrVyi1)
+

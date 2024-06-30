@@ -12686,3 +12686,28 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 今年楼里有柏油冲彩么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花开安菲路  
+##### 5621#       发表于 2024-6-30 09:35
+
+ 本帖最后由 花开安菲路 于 2024-6-30 09:37 编辑 
+
+肯定有几位老p会冲的。
+土豆冲周年彩牌过于苦力了，空闲时间没法干别的了，动画制作优秀，播放后日本老p们又激情复燃了，肉眼可见的更难打，还是摸鱼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 5622#       发表于 2024-6-30 09:46
+
+冲金的来楼里聊聊估计有，冲彩的八成直接赛博消失
+
+*****
+
+####  lunaticfool  
+##### 5623#       发表于 2024-6-30 12:22
+
+嘘组还得看live，happier都救回来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

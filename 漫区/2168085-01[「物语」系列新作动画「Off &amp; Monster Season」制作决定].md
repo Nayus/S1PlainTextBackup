@@ -1742,3 +1742,31 @@ pv完全就是斧乃木主角 undead是指她了？
 #物語シリーズ オフ＆モンスターシーズン主題歌となる今作、西 ...</blockquote>
 看样子op是早见的了，我还想看你鱼香姐能不能再出个神曲燃爆今夏<img src="https://static.saraba1st.com/image/smiley/carton2017/182.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 190#       发表于 2024-6-30 12:20
+
+ 本帖最后由 Tachikoma88 于 2024-6-30 12:21 编辑 
+
+抚物语的op居然是千石和斧乃木合唱，真就cp是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 191#       发表于 2024-6-30 12:23
+
+而且居然跟我之前想的差不多，结物语看来是要被调到后面做了
+
+*****
+
+####  糖皮质激素  
+##### 192#       发表于 2024-6-30 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65432063&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-6-30 12:20</a>
+
+抚物语的op居然是千石和斧乃木合唱，真就cp是吧</blockquote>
+不然抚子这种真正的大女主要跟谁去过日子？除了斧乃木没人顶的住吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

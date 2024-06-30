@@ -6386,3 +6386,55 @@ pp概率大点吧，给彩彩刷个脸
 
 投票这种东西就很容易成烂活，下次搞投票不如弄点搞笑类的
 
+
+*****
+
+####  御幸一也  
+##### 18360#       发表于 2024-6-30 12:25
+
+吃一口團愛，一星期後就是2nd LIVE愛知了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/30/122438mei7nin9e5z4efn2.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (37.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:24 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/122342wqqx8cbg6xfcfqbb.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240630-042042_1807267996739735828_photo-0.jpg</strong> (306.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/122348i0e1xzgjdd0cxgdx.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240630-042042_1807267996739735828_photo-1.jpg</strong> (485.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/122351cuq0w82j2uqkqkva.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240630-042042_1807267996739735828_photo-2.jpg</strong> (255.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:23 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/122357fmc48x8zke22k4k5.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240630-042042_1807267996739735828_photo-3.jpg</strong> (629.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 12:23 上传
+
+[https://x.com/Kanon_Takao/status/1807267996739735828](https://x.com/Kanon_Takao/status/1807267996739735828)
+

@@ -1723,3 +1723,14 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上就夏活了有多少人会去抽这个完全没有任何知名度的东西
 
+
+*****
+
+####  khxooo  
+##### 12953#       发表于 2024-7-1 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65439807&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-1 01:16</a>
+
+马上就夏活了有多少人会去抽这个完全没有任何知名度的东西</blockquote>
+为了枪清姬清空呼符了，也抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

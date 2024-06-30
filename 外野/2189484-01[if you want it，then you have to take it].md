@@ -423,3 +423,14 @@ NASA可以去微博抽奖啊
 
 他配叫太空野狼吗？
 
+
+*****
+
+####  偶卖糕的  
+##### 42#       发表于 2024-6-30 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65430166&amp;ptid=2189484" target="_blank">蒋公卖萌 发表于 2024-6-30 06:23</a>
+
+他配叫太空野狼吗？</blockquote>
+八力野郎也是野狼
+

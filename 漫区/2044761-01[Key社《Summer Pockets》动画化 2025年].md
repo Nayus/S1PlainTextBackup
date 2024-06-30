@@ -590,3 +590,13 @@ key visual都能画崩，你在开玩笑吧
 
 等了这么长的时间，还一幅新建文件夹的状态<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泥鳅化石  
+##### 53#       发表于 2024-6-30 09:43
+
+至少传颂2久远小时候的OVA做的不错，各方面水平在线。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

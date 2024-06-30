@@ -1614,3 +1614,14 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 被山辛彦拿走法宝鱼钩不还简直了
 
+
+*****
+
+####  v22325  
+##### 12944#       发表于 2024-6-30 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65429811&amp;ptid=2084912" target="_blank">シャル 发表于 2024-6-30 02:27</a>
+
+不是小物啊，天孙之子，天照的直系孙子，母亲是国津神的木开花耶（真女神转生5DLC的那位），真正的神灵， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草,游戏里那段把海幸彦写的蛮不讲理一样……肯定是山幸彦写的！
+

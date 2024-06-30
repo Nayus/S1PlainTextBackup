@@ -11710,3 +11710,43 @@ FAMI，2022年榜各公司销量年度外泄，falcom年度销量8万五套实�
 
 怪不得股东大会说未来五年内要将移植作品从一年两部增加到一年3-5部。不包含廉价版。冷饭销量已经快达到主力作品的一半销量。
 
+
+*****
+
+####  酷乐  
+##### 1148#       发表于 2024-6-30 13:47
+
+The Legend of Heroes: Trails Through Daybreak Reviews:
+
+TouchArcade - 10/10
+
+OuterHaven - 10/10
+
+Siliconera - 10/10
+
+NintendoWorldReport - 9/10
+
+RPGamer - 9/10
+
+PSX Brasil - 9/10
+
+GameGrin - 9/10
+
+Inverse - 9/10
+
+Hardcore Gamer - 9/10
+
+NoisyPixel - 8.5/10
+
+ComingSoon - 8.5/10
+
+IGN - 8/10
+
+Hey Poor Player - 8/10
+
+Destructoid - 8/10
+
+The Games Machine - 8/10
+
+Nintendo Life - 8/10
+

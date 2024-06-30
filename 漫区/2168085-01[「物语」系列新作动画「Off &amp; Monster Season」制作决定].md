@@ -1855,3 +1855,11 @@ ED：『UNDEAD』 YOASOBI
 【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 https://b23.tv/jqrVyi1 ...</blockquote>
 还行
 
+
+*****
+
+####  Tachikoma88  
+##### 201#       发表于 2024-6-30 21:28
+
+物语里我最不喜欢的是续终的op，与其说难听不如说敷衍，作为电音一般，作为垃圾君唯一的角色曲更是敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

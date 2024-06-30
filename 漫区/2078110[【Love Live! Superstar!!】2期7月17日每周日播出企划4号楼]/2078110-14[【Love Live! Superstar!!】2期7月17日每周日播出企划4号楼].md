@@ -3037,3 +3037,22 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我等着星的异世界呢，很明显主宣都是G看板，来吧，看看贵企划的镍币实力芽衣主Call堂堂宣布
 
+
+*****
+
+####  starring  
+##### 20448#       发表于 2024-6-30 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65437258&amp;ptid=2078110" target="_blank">引路人形当下哥 发表于 2024-6-30 21:07</a>
+以后负责担拉拉这面旗帜的就是星了吧</blockquote>
+还是别了，这旗其他三团谁来扛都只会挨骂
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  黒烨  
+##### 20449#       发表于 2024-6-30 21:33
+
+别扛了……你星已经又开始挨骂了。
+

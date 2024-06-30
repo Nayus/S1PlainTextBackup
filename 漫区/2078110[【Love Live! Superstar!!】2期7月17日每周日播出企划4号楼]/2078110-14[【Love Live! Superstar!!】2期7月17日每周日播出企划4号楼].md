@@ -2900,3 +2900,45 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 代哥，拿出卖特摄道具的魄力罢
 
+
+*****
+
+####  离心  
+##### 20435#       发表于 2024-6-30 17:47
+
+希望歌能好听吧，剧情真的不期待了。live也有新歌听了
+
+
+*****
+
+####  ads147147  
+##### 20436#       发表于 2024-6-30 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435015&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-6-30 17:43</a>
+转念一想，也许我们这次真的能看到被狠狠管束的LL动画是什么样子的了，而不是这些编剧和监督搞信息差一面之 ...</blockquote>
+星3有可能被管吗？代便高层要是真有这个精力，也不会幻日星2二连炸。幻日还能说是实力不足，星2明显愉快犯了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 20437#       发表于 2024-6-30 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435082&amp;ptid=2078110" target="_blank">离心 发表于 2024-6-30 17:47</a>
+希望歌能好听吧，剧情真的不期待了。live也有新歌听了</blockquote>
+星1星2的live做的，分镜水平狂退，选的歌曲主题星2更是一团糟，搞不懂为什么选那些主题，预选赛大道抬棺舞真的看无语，真是文化差异？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  太阳寺太守  
+##### 20438#       发表于 2024-6-30 17:56
+
+星 2 动画出之前宣布加人时我就对星不抱期待了，就算动画做好又能如何呢？我最喜欢的是老 5 人这个整体，并没有特别喜欢其中的谁，当宣布➕人时我是想要接受的，但是最后发现还是没办法。
+当然三期动画还是会继续看的，毕竟老 5 人还在。
+
+— from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

@@ -1715,3 +1715,11 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹啊 怎么没人豹!
 
+
+*****
+
+####  森兰丸  
+##### 12952#       发表于 2024-7-1 01:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马上就夏活了有多少人会去抽这个完全没有任何知名度的东西
+

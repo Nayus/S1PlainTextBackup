@@ -1874,3 +1874,20 @@ ED：『UNDEAD』 YOASOBI
 【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 https://b23.tv/jqrVyi1 ...</blockquote>
 太术了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 203#       发表于 2024-6-30 22:21
+
+另外试映会第一集的演出是宫本，也就是说回天快做完了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  57042711  
+##### 204#       发表于 2024-6-30 22:25
+
+Ed和往期风格差异也太大了…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

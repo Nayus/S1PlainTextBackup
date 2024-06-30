@@ -6505,3 +6505,11 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 是绿色，不过挺淡的
 
+
+*****
+
+####  星天观测  
+##### 18367#       发表于 2024-6-30 14:39
+
+李和弄那张有点太太开心了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

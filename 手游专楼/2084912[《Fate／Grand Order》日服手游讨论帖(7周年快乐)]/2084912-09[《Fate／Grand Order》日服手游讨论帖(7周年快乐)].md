@@ -1625,3 +1625,19 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 不是小物啊，天孙之子，天照的直系孙子，母亲是国津神的木开花耶（真女神转生5DLC的那位），真正的神灵， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草,游戏里那段把海幸彦写的蛮不讲理一样……肯定是山幸彦写的！
 
+
+*****
+
+####  シャル  
+##### 12945#       发表于 2024-6-30 11:42
+
+ 本帖最后由 シャル 于 2024-6-30 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65430753&amp;ptid=2084912" target="_blank">v22325 发表于 2024-6-30 09:44</a>
+
+草,游戏里那段把海幸彦写的蛮不讲理一样……肯定是山幸彦写的！</blockquote>
+还有一点没提，这山辛彦的孙子是神话里的神武天皇<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+而海辛彦的孙子只是个渔夫<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+你可以品品
+

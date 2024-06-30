@@ -57,3 +57,13 @@
 
 用鸡煲把999格挡成就做了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  SkavenYesYes  
+##### 487#       发表于 2024-6-30 18:37
+
+怎么都是鸡煲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

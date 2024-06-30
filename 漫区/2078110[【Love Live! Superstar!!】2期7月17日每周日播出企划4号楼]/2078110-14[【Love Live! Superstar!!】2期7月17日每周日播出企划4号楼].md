@@ -2967,3 +2967,14 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ruffian  
+##### 20441#       发表于 2024-6-30 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435356&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-06-30 18:15:01</a>
+至少就缩小到星这个层面，监督之上的人多盯着应该是肯定有的，再来一次难看的可不只是动画了，是财报，除 ...</blockquote>星团真人的活也整的一点都不用心这是可以说的吗？况且以后中之人都有各自的发展，彼此之间也有联动，无论是单推还是想看贴贴又何必追你星呢？哦我忘了星团一半都是自家人，肥水不流外人田啊那没事了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

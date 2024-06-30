@@ -6521,3 +6521,64 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 这滤镜都把蓝弄成紫了，那天思考了好久睦祥要素在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18369#       发表于 2024-6-30 17:10
+
+米澤 茜@AkaneY_banu
+
+·
+
+去了奏音和我剛認識的時候第一次去的咖啡店，坐到了同一個位置，然後到同一條路上散步了💭好懷念啊☺︎
+
+會冒出各種各樣很棒的想法的奏音，我一直都，最喜歡她了🥹💙愛
+
+——————
+不是，你們這……真的沒在交往嗎
+
+這像是情侶間才會做的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202406/30/170849koq9q4tovtsxtpq8.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (161.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/170855kjho4jqf1jh7ujwh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240630-085838_1807337939564921003_photo-1.jpg</strong> (378.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/170900vdnnl79200o90vit.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240630-085838_1807337939564921003_photo-0.jpg</strong> (323.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/170906t7pdcbxyips68tiy.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240630-085838_1807337939564921003_photo-3.jpg</strong> (229.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202406/30/170912sz3rr3tk3cbblr0e.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240630-085838_1807337939564921003_photo-2.jpg</strong> (355.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-6-30 17:09 上传
+
+[https://x.com/AkaneY_banu/status/1807337939564921003](https://x.com/AkaneY_banu/status/1807337939564921003)
+

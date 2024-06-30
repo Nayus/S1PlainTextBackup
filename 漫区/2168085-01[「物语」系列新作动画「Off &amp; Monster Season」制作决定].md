@@ -1786,3 +1786,17 @@ pv完全就是斧乃木主角 undead是指她了？
 
 所以现在网上有试映会的感想吗，好急
 
+
+*****
+
+####  Piano-Forest  
+##### 195#         楼主| 发表于 2024-6-30 13:27
+
+抚物语新PV：[https://youtu.be/o7nneWWYtC4](https://youtu.be/o7nneWWYtC4)
+
+OP：『caramel ribbon cursetard』
+
+千石撫子(花澤香菜)/斧乃木余接(早見沙織)
+
+ED：『UNDEAD』 YOASOBI
+

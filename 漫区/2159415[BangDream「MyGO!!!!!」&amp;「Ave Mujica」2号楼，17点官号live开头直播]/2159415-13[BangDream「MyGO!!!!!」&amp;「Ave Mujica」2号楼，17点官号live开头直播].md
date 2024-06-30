@@ -6497,3 +6497,11 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 这tm是蓝绿？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18366#       发表于 2024-6-30 13:22
+
+是绿色，不过挺淡的
+

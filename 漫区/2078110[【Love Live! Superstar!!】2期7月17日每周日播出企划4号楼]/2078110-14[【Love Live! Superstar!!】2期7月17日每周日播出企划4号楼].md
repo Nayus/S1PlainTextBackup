@@ -2978,3 +2978,14 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ViyViy  
+##### 20442#       发表于 2024-6-30 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65435595&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-6-30 18:34</a>
+
+星live动员没啥大下滑，之前查bd跌5k，结果看看虹也少了5k，感觉就是企划本身总量没变化，但是团太多了分 ...</blockquote>
+我觉得隔壁走的人至少大部分，是不会再流去其它三个团的，反之亦然，现在这情况，期待别人死的时候你也离死不远了，因为代哥似乎玩腻了（或者说有大师就够了）明年我们也半程了，除非财务压力完全没分摊到我们身上或者代哥真的不想要这个IP了，不然后半程不体面点尽量多挽回多赚点肯定是不合理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更别说代哥能拍胸脯预知未来说全押莲身上能复刻全盛水么。
+

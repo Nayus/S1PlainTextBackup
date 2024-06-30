@@ -6806,3 +6806,13 @@ fl
 
 <img src="https://p.sda1.dev/18/52a223c87a2d4806b4c289f00b7affcd/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 1790#       发表于 2024-6-30 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">每次这种消息传过来都感觉自己老登了
+
+当年缪没去成fl的遗憾这一次就补上吧，当年看了1st转播和国内活动都跑了，fl也算是有始有终吧
+

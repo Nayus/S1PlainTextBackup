@@ -1845,3 +1845,13 @@ ED：『UNDEAD』 YOASOBI
 
 【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 [https://b23.tv/jqrVyi1](https://b23.tv/jqrVyi1)
 
+
+*****
+
+####  Tachikoma88  
+##### 200#       发表于 2024-6-30 20:29
+
+<blockquote>Diana010 发表于 2024-6-30 20:04
+【愚物语＆抚物语 主题曲「UNDEAD」完整版 By YOASOBI-哔哩哔哩】 https://b23.tv/jqrVyi1 ...</blockquote>
+还行
+

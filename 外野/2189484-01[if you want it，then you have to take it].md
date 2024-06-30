@@ -434,3 +434,17 @@ NASA可以去微博抽奖啊
 他配叫太空野狼吗？</blockquote>
 八力野郎也是野狼
 
+
+*****
+
+####  jshtstong  
+##### 43#       发表于 2024-6-30 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65427862&amp;ptid=2189484" target="_blank">心远 发表于 2024-6-29 22:19</a>
+那给四德子也比给正白旗的靠谱吧？四德子在之前对兔子还是凑合的，正白旗就...难以理解... ...</blockquote>
+髮兰溪现在多多少少还剩一根半根反骨，又有点大国的熊心和气势。
+四德子现在纯**，谈经济谈商业可以谈谈。谈国际大势，他自己放弃了。
+看看这些天来东大的几个高管，说的都是什么胡话
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

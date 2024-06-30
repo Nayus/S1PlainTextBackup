@@ -3909,3 +3909,15 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 到了狗组回，犬饲家父母还是不出场啊，我是很在意得不得了想看看她们家里的变化的，但是staff好像根本忘记了这回事？还是说不会写就暂时搁置？
 
+
+*****
+
+####  modedd  
+##### 1828#       发表于 2024-6-30 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65430313&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-6-30 08:03</a>
+七夕回终于要卖BG了，虽然一眼浅卖，但今年BG写得越好越能避免烂活的可能性，加油啊成田 ...</blockquote>
+自诚司和拓海后又一位代表邻家男孩向q娃bg发起挑战的勇者诞生了！悟君，会赢吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

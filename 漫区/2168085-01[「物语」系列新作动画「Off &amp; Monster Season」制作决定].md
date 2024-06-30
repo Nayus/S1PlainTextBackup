@@ -1800,3 +1800,15 @@ OP：『caramel ribbon cursetard』
 
 ED：『UNDEAD』 YOASOBI
 
+
+*****
+
+####  零壹贰叁  
+##### 196#       发表于 2024-6-30 13:28
+
+终于舍得放新pv了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这季就只做抚物语和愚的月火篇吗？
+完全没其他新内容
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -3007,3 +3007,33 @@ md，20人你开个大点场子啊，偏偏选辣鸡大平层虹馆
 以后负责担拉拉这面旗帜的就是星了吧</blockquote>
 虹还没fl呢，不过这么看都迟早的就是了。
 
+
+*****
+
+####  ads147147  
+##### 20445#       发表于 2024-6-30 21:17
+
+星来肩负，想想都有点恐惧的未来，然而造成这一点的元凶还在给我们准备一锅“大菜”，这锅菜还得跟着巡演播个十几二十轮，隔壁sc再坑感觉也没这么可怕。
+
+代便，要不今年公布新企划吧，我怕了，您直接宣布九人组吧？
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 20446#       发表于 2024-6-30 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65437309&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-6-30 21:12</a>
+虹还没fl呢，不过这么看都迟早的就是了。</blockquote>
+看代便的意思大概是虹和水一样不明确fl，丢个异世界企划苟延残喘赚点。快的话，星应该也要同步出点异世界xxx了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 20447#       发表于 2024-6-30 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我等着星的异世界呢，很明显主宣都是G看板，来吧，看看贵企划的镍币实力芽衣主Call堂堂宣布
+

@@ -6438,3 +6438,18 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 [https://x.com/Kanon_Takao/status/1807267996739735828](https://x.com/Kanon_Takao/status/1807267996739735828)
 
+
+*****
+
+####  睡过头的水龙头  
+##### 18361#       发表于 2024-6-30 12:35
+
+4千张<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18362#       发表于 2024-6-30 12:35
+
+眼睛版高尾真可爱吧
+

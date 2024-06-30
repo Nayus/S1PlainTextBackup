@@ -3972,3 +3972,13 @@ mayu妈：最近冰箱里的食材怎么少了这么多，该不会是mayu趁我
 
 某种意义上天Q是最惨的，没有独立剧场版，F里的戏份也不够多。同是周年的拥抱，SuperStar里作为剧情的主角，秋季剧场也是双主角之一，毕竟篇名是“拥抱X无印”。
 
+
+*****
+
+####  Cloudslin  
+##### 1833#       发表于 2024-6-30 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65433284&amp;ptid=2162354" target="_blank">本间日阳 发表于 2024-6-30 14:45</a>
+赤尾老师怎么来写Q娃了，这不是我们美妙旋律1和2的系构吗。</blockquote>
+赤尾，战队就参加过很多集数，和成田应该是老相识了。
+

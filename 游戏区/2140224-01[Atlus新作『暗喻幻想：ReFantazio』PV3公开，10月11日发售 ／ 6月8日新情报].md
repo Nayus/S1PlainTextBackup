@@ -121,3 +121,19 @@ Bilibili World暗喻幻想主创见面会问答环节【问题征集】！
 ※本次抽奖活动为世嘉所有。
 <img src="https://p.sda1.dev/18/73ad4b117246ff2955d31f06f0300da5/1719633623518.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 492#         楼主| 发表于 2024-7-1 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65327938&amp;ptid=2140224" target="_blank">Piano-Forest 发表于 2024-6-21 20:51</a>
+
+📺特别节目情报！📺
+
+ “ATLUS Exclusive《暗喻幻想：ReFantazio》剧情片篇”将于7月6日（周六）播出！ 本 ...</blockquote>
+7月6日早11点播出：
+[https://youtube.com/live/o7F7KSbOpMw](https://youtube.com/live/o7F7KSbOpMw)
+
+<img src="https://p.sda1.dev/18/1a217f26c20293a52aae185687e6a28e/hq720_live.webp" referrerpolicy="no-referrer">
+

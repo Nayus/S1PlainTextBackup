@@ -212,3 +212,14 @@
 
 风老王现在低于1猫1辉夜1团长1觉醒军神其实都不太建议玩，低于4lm摆盘比较难有强度了，不如回去玩3.0星醒+约定
 
+
+*****
+
+####  江戸前ルナ  
+##### 17971#       发表于 2024-7-1 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65448805&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-7-1 19:38</a>
+
+不知道你具体配盘，我凑着玩的2.0风方差不多是这个造型，9buff过了有80W左右</blockquote>
+谢谢。2把4IN1的匕首（李霞和BBA短）1把毛刀（毛刀已经不摆了），没凸的猫和小团长各一把，辉夜没有，我还是回去农星醒吧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

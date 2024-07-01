@@ -26,3 +26,14 @@
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kcalb  
+##### 1766#       发表于 2024-7-1 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65421538&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-6-29 11:13</a>
+
+福田那个鸟加命运能召唤平行世界的残像形成分身是什么脑洞，这是高达作品也不会轻易采取的设定吧 ...</blockquote>
+脑洞参考夺权者的麒麟极，只不过这次是正义的“就你丫想挑起战争？”版
+

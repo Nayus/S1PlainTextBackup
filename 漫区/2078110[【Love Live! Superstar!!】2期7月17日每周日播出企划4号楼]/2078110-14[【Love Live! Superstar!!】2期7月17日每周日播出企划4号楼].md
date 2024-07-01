@@ -3206,3 +3206,14 @@ pay宝21岁生日</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ruffian  
+##### 20465#       发表于 2024-7-1 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449455&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-07-01 20:44:33</a>
+看了官网写的 全员都有……只求可可只是个裁判或者是别的了。代孙每次都擦边有够恶心 ...</blockquote>那就不可能了，曲棍球一个队正好11个人，麻了……给可可穿日本国家队队服是怎么想的呢？太膈应了卧槽
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

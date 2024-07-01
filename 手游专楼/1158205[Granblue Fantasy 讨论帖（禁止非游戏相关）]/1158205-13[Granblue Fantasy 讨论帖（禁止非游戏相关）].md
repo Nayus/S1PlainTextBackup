@@ -262,3 +262,16 @@
 
 双面了。差一把贤者武和一个贤者召唤还有一个世界琴，风天司是满凸的，头发的斧头有点浑身但不用黑猫带龙武扛不住，但还是差太远了，算了，安心农方阵吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17974#       发表于 2024-7-1 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449326&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-1 20:28</a>
+
+双面了。差一把贤者武和一个贤者召唤还有一个世界琴，风天司是满凸的，头发的斧头有点浑身但不用黑猫带 ...</blockquote>
+主要3.0也不会多太多的防御面，但你双面还带两个防御7斧指定是不行的。
+
+早点把猫琴做出来解放龙武，把法武极星器世界琴啥的带上，应该要容易得多。然后换单面基路，不管预测还是回复量都比你现在双面要强得多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

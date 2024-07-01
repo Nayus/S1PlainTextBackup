@@ -1962,3 +1962,17 @@ https://www.monogatari-series.com/oms/special/novel/
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  martinium  
+##### 211#       发表于 2024-7-1 07:53
+
+ 本帖最后由 martinium 于 2024-7-1 07:59 编辑 
+
+老仓这新发型<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+夜游这新歌一般，配合pv还行，单独拿出来就感觉毫无特色。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

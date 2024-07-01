@@ -1976,3 +1976,14 @@ https://www.monogatari-series.com/oms/special/novel/
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  牙狼GARO  
+##### 212#       发表于 2024-7-1 16:04
+
+谁能给个物语系列阅读和动画顺序，我是动画化物语入坑的，小说追着看到出恋物语，后面就断了，现在根本弄不清一大堆到底什么顺序甚至还有多少生僻字给西尾用都不知道了
+动画更是如此，已经忘了看到哪里了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

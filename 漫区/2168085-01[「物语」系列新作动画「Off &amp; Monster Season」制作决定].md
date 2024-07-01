@@ -1987,3 +1987,17 @@ https://www.monogatari-series.com/oms/special/novel/
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Tachikoma88  
+##### 213#       发表于 2024-7-1 16:10
+
+，
+
+ 本帖最后由 Tachikoma88 于 2024-7-1 16:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65446483&amp;ptid=2168085" target="_blank">牙狼GARO 发表于 2024-7-1 16:04</a>
+
+谁能给个物语系列阅读和动画顺序，我是动画化物语入坑的，小说追着看到出恋物语，后面就断了，现在根本弄不 ...</blockquote>
+动画里恋物语之后应该是凭物语、终物语上、历物语、终物语下、续终物语的顺序，另外历物语大多都是小番外，跟主线有关的只有最后两集
+

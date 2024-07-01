@@ -12102,3 +12102,18 @@ van一行人在首都大剧堂看发布会，出现第四代之前的同型号�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么多串场的老角色要分开发资源和剧本戏份，新角色当然是往后稍稍，反派不够用就复制人，己方跳反，己方内部对打凑合凑合
 
+
+*****
+
+####  Aeons  
+##### 1177#       发表于 2024-7-1 16:07
+
+新反派比较有意义，俩结社的
+
+*****
+
+####  卢迪克  
+##### 1178#       发表于 2024-7-1 16:09
+
+复制人建模还是用奥古斯特改的，看起来法社是没给什么资源的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

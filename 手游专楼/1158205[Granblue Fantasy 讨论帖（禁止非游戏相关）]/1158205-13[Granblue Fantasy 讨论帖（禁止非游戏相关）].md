@@ -154,3 +154,16 @@
 
 看你手头资源吧，你要是手头就一井的土土人我觉得还是等加护飞哥比较靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17967#       发表于 2024-7-1 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65445769&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-7-1 15:06</a>
+
+那就是金月书必抽？水柱可以等歪？</blockquote>
+精土我觉得没理由不拿，主要现在也没总池了，过了就只能靠傻必和小美卡
+
+就混混团战那就怎么都好了，我都土剑豪混两年了也没怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -289,3 +289,15 @@
 早点把猫琴做出来解放龙武，把法 ...</blockquote>
 所以这堆高难280限定的武器原来这么菜的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我只是火队FA老7最容易当刷开职业极致的材料和沙漏顺路弄了一堆武器于是就试了试
 
+
+*****
+
+####  Sylpheed  
+##### 17976#       发表于 2024-7-1 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449579&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-1 20:59</a>
+所以这堆高难280限定的武器原来这么菜的吗我只是火队FA老7最容易当刷开职业极致的材料和沙漏顺路弄了一堆 ...</blockquote>
+双面用说不上菜，但是你盘子里u剑1技能角色吃不到，沙盒蓝短和巴短亏攻刃，还有2把防御斧。5个格子只有120的ex，自然就没伤害了。简单说这批武器你想发挥出来发挥其他位置不能带白板，而且需要攻击真化补攻刃，20的攻击觉醒提升是最大的
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

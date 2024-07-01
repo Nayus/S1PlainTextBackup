@@ -11912,3 +11912,15 @@ Nintendo Life - 8/10
 
 不过最要命的是那个小人，还停留在疫情前spine木偶的水平……
 
+
+*****
+
+####  酷乐  
+##### 1164#       发表于 2024-7-1 13:54
+
+ 本帖最后由 酷乐 于 2024-7-1 13:56 编辑 
+
+[https://www.metacritic.com/game/ ... s-through-daybreak/](https://www.metacritic.com/game/the-legend-of-heroes-trails-through-daybreak/)
+
+黎1英文版mc媒体评分83
+

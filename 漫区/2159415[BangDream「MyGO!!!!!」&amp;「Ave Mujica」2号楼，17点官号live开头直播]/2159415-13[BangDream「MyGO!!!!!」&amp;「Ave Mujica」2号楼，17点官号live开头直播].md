@@ -6790,3 +6790,14 @@ Arthur.c @CARTHUR_X
 
 我反正是非常担心初华走上彩彩的苦路的
 
+
+*****
+
+####  抽搐一下  
+##### 18388#       发表于 2024-7-2 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65450047&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-7-1 21:56</a>
+
+突然想到动画里祥子和初华交谈小时候抓独角戏的记忆误差了，该不会是初华想提起这个幼时情窦未开的吻，而 ...</blockquote>
+记忆误差一个学说是互换论，祥子和睦有过交换，初华在小岛上先后遇到了两人，初华和睦都是7弦吉他是童年时影响的结果。
+

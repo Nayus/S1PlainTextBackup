@@ -87,3 +87,13 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台�
 
 atri的立绘就是无敌的，笑颜第一可爱，眼睛也有魔力，偶尔会盯着红眸发愣<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ghostdio  
+##### 80#       发表于 2024-7-2 02:24
+
+最近总能见到atri和鸡煲的梗图，总是绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

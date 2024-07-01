@@ -460,3 +460,13 @@ B漫这还分境外版的？有啥区别吗？</blockquote>
 
 重大発表 週刊少年チャンピオン32号で発表予定
 
+
+*****
+
+####  与天争锋_L  
+##### 54#       发表于 2024-7-1 20:00
+
+极少看到情报讨论，巴留还需磨炼啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

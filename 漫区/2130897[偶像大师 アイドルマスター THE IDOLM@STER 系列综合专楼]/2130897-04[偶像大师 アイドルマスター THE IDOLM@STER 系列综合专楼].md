@@ -12807,3 +12807,13 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 td的幽默阴影还在修复，太有技术力了
 
+
+*****
+
+####  Laie  
+##### 5635#       发表于 2024-7-1 20:02
+
+草当年土豆刚出就桃两年内能不能有アイル活动
+
+还有after run这次惯例的日花炮总觉得修音有点过了有明显的不自然，等看live表现翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

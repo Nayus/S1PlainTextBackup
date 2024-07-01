@@ -223,3 +223,22 @@
 不知道你具体配盘，我凑着玩的2.0风方差不多是这个造型，9buff过了有80W左右</blockquote>
 谢谢。2把4IN1的匕首（李霞和BBA短）1把毛刀（毛刀已经不摆了），没凸的猫和小团长各一把，辉夜没有，我还是回去农星醒吧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 17972#       发表于 2024-7-1 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65448975&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-1 19:53</a>
+
+谢谢。2把4IN1的匕首（李霞和BBA短）1把毛刀（毛刀已经不摆了），没凸的猫和小团长各一把，辉夜没有，我还 ...</blockquote>
+用这几把lm打了下，单纯打飞哥还是可以的，没那么难受，桑岛A90W左右，紫苑60w，你可以试试。单面还是不要用7斧了，亏不少攻刃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/01/200402g8jwmmhmjah3miha.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.99 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 20:04 上传
+

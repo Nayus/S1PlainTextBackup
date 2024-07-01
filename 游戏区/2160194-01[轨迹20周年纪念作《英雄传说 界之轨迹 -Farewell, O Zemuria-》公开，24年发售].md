@@ -12009,3 +12009,81 @@ van一行人在安卡维尔看发布会。煌都仓库打复制人
 但是顾左右而言他，说什么设定帝国人多，回归不一定是好事。
 不觉得可笑？
 
+
+*****
+
+####  Aeons  
+##### 1170#       发表于 2024-7-1 15:45
+
+ 本帖最后由 Aeons 于 2024-7-1 15:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/01/154403b8aa4esaz4x9asfs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>35C4889A-998C-4C1D-87FC-1ED6835BCF91.jpeg</strong> (262.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 15:44 上传
+
+<img src="https://img.saraba1st.com/forum/202407/01/154404y54nd4ox3u3zdtyz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0060D19-1544-4596-9F8E-B46FFB80B14F.jpeg</strong> (293.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 15:44 上传
+
+<img src="https://img.saraba1st.com/forum/202407/01/154806cwgaggidkilmm8zi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6120DA75-EC1E-4703-BAB3-DE5388517040.jpeg</strong> (155.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 15:48 上传
+
+都轨迹楼了，聊天讲究一个文本行不行？
+
+一个16:45 一个17:00
+
+在我说出扯头花之前，是谁就已经开始说“争客串名额了”，已经开始报艾约城管菜名？
+
+现在变成从我的扯头花看出我在给空零碧招魂了？
+
+*****
+
+####  hkguty  
+##### 1171#       发表于 2024-7-1 15:47
+
+<blockquote>卢迪克 发表于 2024-7-1 15:21
+目前剧情就是
+
+van一行人在首都大剧堂看发布会，出现第四代之前的同型号导力器，安卡维尔。煌都仓库打复制 ...</blockquote>
+主要是那边属于共和国的秘密基地，克洛开着高达来闹事感觉说不通，除非克洛是在谍报然后被头盔姐截糊，但是这种情况就解释不了金凯德对二人的开放态度，剧情大概是改了不少，按照创原定的计划昆仑明显是梵过来杀上山，结果就跟师姐打了个照面就没有了，如果黎恩克洛是共和国这边邀请过来的高达驾驶员顾问的话好像倒也可以顺便解释他为啥会在斑鸠的场景那边，因为斑鸠也是负责把守的雇佣兵。
+
+
+*****
+
+####  hkguty  
+##### 1172#       发表于 2024-7-1 15:51
+
+说起来日本人也提到了头盔姐语调的变化，感觉跟前作不太一样，不知有没有什么玄机……例如这个其实是头盔姐的双胞胎妹妹什么的
+
+*****
+
+####  卢迪克  
+##### 1173#       发表于 2024-7-1 15:51
+
+ 本帖最后由 卢迪克 于 2024-7-1 15:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65446265&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-7-1 15:47</a>
+
+主要是那边属于共和国的秘密基地，克洛开着高达来闹事感觉说不通，除非克洛是在谍报然后被头盔姐截糊，但 ...</blockquote>
+黎2就改了吧，师姐不想和van成为敌人，虽然不能绝对保证。van说你给我发委托请求，我会马上赶过来。这俩人不可能敌对了
+
+*****
+
+####  Aeons  
+##### 1174#       发表于 2024-7-1 15:54
+
+这个玄机就像黎一前说狮子可能是真狮子双胞胎。
+这种没什么意义的，如果我没记错的话年初台北录播里近藤说了挑染姐是个老角色。
+

@@ -12817,3 +12817,25 @@ td的幽默阴影还在修复，太有技术力了
 
 还有after run这次惯例的日花炮总觉得修音有点过了有明显的不自然，等看live表现翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 5636#       发表于 2024-7-1 20:37
+
+アイル都放出来了，土豆要关服了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 5637#       发表于 2024-7-1 20:38
+
+百万：我死不了
+
+*****
+
+####  acacaclove  
+##### 5638#       发表于 2024-7-1 20:38
+
+有预感今晚周年档线要紧急刹车了
+

@@ -12745,3 +12745,40 @@ SCSP的嘘组新曲「After Run」MV，说实话和歌曲比起来动作真心�
 
 泥漏楼主怎么死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zeroed  
+##### 5628#       发表于 2024-7-1 19:14
+
+<img src="https://img.saraba1st.com/forum/202407/01/191325wqrtgqj2vqqrdrxg.jpg" referrerpolicy="no-referrer">
+
+<strong>GRZZyAHaEAAK3t0.jpg</strong> (259.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 19:13 上传
+
+*****
+
+####  patema  
+##### 5629#       发表于 2024-7-1 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内玩家玩海外手游在提纯完毕前都是恶评居多吧
+
+*****
+
+####  Seeley  
+##### 5630#       发表于 2024-7-1 19:16
+
+土豆这是要把街机给集成了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之异热同心  
+##### 5631#       发表于 2024-7-1 19:17
+
+土豆是不是准备关服最后捞一把了，活着等到アイル出活动了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

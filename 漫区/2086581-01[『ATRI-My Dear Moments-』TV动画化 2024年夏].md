@@ -77,3 +77,13 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  FanFun  
+##### 79#       发表于 2024-7-2 01:19
+
+乘着开播前把游戏通了
+
+atri的立绘就是无敌的，笑颜第一可爱，眼睛也有魔力，偶尔会盯着红眸发愣<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
+

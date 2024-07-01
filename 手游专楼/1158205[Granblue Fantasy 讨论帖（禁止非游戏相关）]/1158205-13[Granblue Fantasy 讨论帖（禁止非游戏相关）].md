@@ -191,3 +191,24 @@
 
 求教下，为啥我见一些FA硬化飞哥的作业，主角平A都是70+往上甚至方阵也能100+的，我也有蹭出3把老7斧了二防御一攻击觉醒配一猫短加上些垃圾老王老武器，也就40出头，差距也太大了。话说是不是高难武器因为觉醒是普刃所以LOW王根本没啥用对吧？我在想我那垃圾风LOW王是不是干脆转回风方了，是不是会有比较大的提升？
 
+
+*****
+
+####  Sylpheed  
+##### 17970#       发表于 2024-7-1 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65447673&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-1 17:53</a>
+
+求教下，为啥我见一些FA硬化飞哥的作业，主角平A都是70+往上甚至方阵也能100+的，我也有蹭出3把老7斧了二防 ...</blockquote>
+不知道你具体配盘，我凑着玩的2.0风方差不多是这个造型，9buff过了有80W左右
+
+<img src="https://img.saraba1st.com/forum/202407/01/192701ygo8fi4ftw3zbt8t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.89 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 19:27 上传
+
+风老王现在低于1猫1辉夜1团长1觉醒军神其实都不太建议玩，低于4lm摆盘比较难有强度了，不如回去玩3.0星醒+约定
+

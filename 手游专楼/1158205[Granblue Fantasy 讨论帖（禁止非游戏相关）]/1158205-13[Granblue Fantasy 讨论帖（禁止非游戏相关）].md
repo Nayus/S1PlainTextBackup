@@ -111,3 +111,28 @@
 簡直就是在對手動勢說不抽就別打土古戰場了。</blockquote>
 水柱呢？这俩都要抽？这么强么
 
+
+*****
+
+####  Sylpheed  
+##### 17963#       发表于 2024-7-1 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65445528&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-7-1 14:44</a>
+水柱呢？这俩都要抽？这么强么</blockquote>
+水九柱蹲逼机制始终会少个人，除了让水铳也爽跑jf以外就没太大提升了。
+拉洁儿不光是手操厉害，fa短期也是少键必备了，长线还能切一手驱散人。卡3技能到是限制了猎金场发挥，评分应该9.9打底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  洛克萨斯  
+##### 17964#       发表于 2024-7-1 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65445736&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-7-1 15:02</a>
+
+水九柱蹲逼机制始终会少个人，除了让水铳也爽跑jf以外就没太大提升了。
+
+拉洁儿不光是手操厉害，fa短期也 ...</blockquote>
+那就是金月书必抽？水柱可以等歪？
+

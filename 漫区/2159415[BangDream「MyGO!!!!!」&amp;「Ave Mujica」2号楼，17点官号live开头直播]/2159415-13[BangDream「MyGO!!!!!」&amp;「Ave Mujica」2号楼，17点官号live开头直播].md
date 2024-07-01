@@ -6780,3 +6780,13 @@ Arthur.c @CARTHUR_X
 
 直译放大器这里应该是吉他音箱
 
+
+*****
+
+####  星天观测  
+##### 18387#       发表于 2024-7-1 23:53
+
+不好说，反正初华现在在国内社区的印象只剩舔狗重女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我反正是非常担心初华走上彩彩的苦路的
+

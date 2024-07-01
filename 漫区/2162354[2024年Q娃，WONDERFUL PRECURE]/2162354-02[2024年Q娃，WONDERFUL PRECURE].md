@@ -4057,3 +4057,21 @@ bank2组分开的真正目的是为了水时长吧<img src="https://static.sarab
 混进我这样聪明的猫猫一定不会被识破</blockquote>
 可猫的智商比狗低很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞不好你成绩还没小麦好
 
+
+*****
+
+####  有骨气的百合  
+##### 1842#       发表于 2024-7-1 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65448380&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-7-1 19:02</a>
+可猫的智商比狗低很多搞不好你成绩还没小麦好</blockquote>
+yuki妥妥学霸吧，应付初中还是没问题的
+
+
+*****
+
+####  犬飼いろは  
+##### 1843#       发表于 2024-7-1 19:13
+
+第 22 集的 TVer 源（含日字）：magnet:?xt=urn:btih:7262aa7198e6ef2797223bdb9e20c50be9ab0ce6
+

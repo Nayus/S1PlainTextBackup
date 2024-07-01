@@ -98,3 +98,16 @@
 
 簡直就是在對手動勢說不抽就別打土古戰場了。
 
+
+*****
+
+####  洛克萨斯  
+##### 17962#       发表于 2024-7-1 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65445071&amp;ptid=1158205" target="_blank">Niu 发表于 2024-7-1 14:07</a>
+
+泳裝書天司這OTK火力。
+
+簡直就是在對手動勢說不抽就別打土古戰場了。</blockquote>
+水柱呢？这俩都要抽？这么强么
+

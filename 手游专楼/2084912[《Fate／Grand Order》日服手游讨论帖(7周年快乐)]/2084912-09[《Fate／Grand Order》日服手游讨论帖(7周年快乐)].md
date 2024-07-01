@@ -1756,3 +1756,20 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 不知道运营在想啥
 
+
+*****
+
+####  eilot  
+##### 12956#       发表于 2024-7-1 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65444425&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-1 13:06</a>
+
+讲真就算出个缝清姬的5星乙姬也好啊而不是做成灵衣.....清姬这人气和这么多年了也该有这个待遇了吧
+
+不知 ...</blockquote>
+以FGO出新卡的速度，舊角有靈衣已經算好了
+
+應該說活動能出新角色卡也算好了
+
+學妹才應該不停出靈衣換裝才對
+

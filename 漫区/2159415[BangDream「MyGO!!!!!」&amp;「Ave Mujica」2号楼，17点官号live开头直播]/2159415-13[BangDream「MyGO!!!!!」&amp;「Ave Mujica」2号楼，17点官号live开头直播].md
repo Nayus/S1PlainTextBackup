@@ -6707,3 +6707,13 @@ Arthur.c @CARTHUR_X
 从此以后祥子的xp就是短发假小子了</blockquote>
 丰川大小姐这辈子就是被玩泥巴/石头的tomboy给毁了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18382#       发表于 2024-7-1 21:38
+
+<blockquote>第七軍伐戎処 发表于 2024-7-1 21:33
+丰川大小姐这辈子就是被玩泥巴/石头的tomboy给毁了</blockquote>
+不是抓独角仙吗
+

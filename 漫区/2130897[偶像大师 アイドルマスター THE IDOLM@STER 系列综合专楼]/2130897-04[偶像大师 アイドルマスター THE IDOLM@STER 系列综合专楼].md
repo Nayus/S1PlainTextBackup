@@ -12839,3 +12839,15 @@ td的幽默阴影还在修复，太有技术力了
 
 有预感今晚周年档线要紧急刹车了
 
+
+*****
+
+####  Vacuolar  
+##### 5639#       发表于 2024-7-1 21:35
+
+【新游戏模式 北沢志保 剧情PV iDOL GRAND-PRIX【偶像大师百万现场MLTD】】 [https://www.bilibili.com/video/B ... 3afaa822d2f12516262](https://www.bilibili.com/video/BV1am421V71k/?share_source=copy_web&amp;vd_source=10262ea2b983d3afaa822d2f12516262)
+
+td还在努力做这个养成模式，泪目，虽然程序员没能力，但就是不摆烂。
+
+精神可敬。
+

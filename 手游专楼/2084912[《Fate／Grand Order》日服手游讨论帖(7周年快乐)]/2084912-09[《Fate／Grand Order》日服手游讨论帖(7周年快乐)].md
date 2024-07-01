@@ -1743,3 +1743,16 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 除了小玉以外对任何日本神话系毫无感觉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">立省百分百
 （不过兽尼坠完本来也没几颗石了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 12955#       发表于 2024-7-1 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65440152&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-7-1 02:01</a>
+
+为了枪清姬清空呼符了，也抽到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真就算出个缝清姬的5星乙姬也好啊而不是做成灵衣.....清姬这人气和这么多年了也该有这个待遇了吧
+
+不知道运营在想啥
+

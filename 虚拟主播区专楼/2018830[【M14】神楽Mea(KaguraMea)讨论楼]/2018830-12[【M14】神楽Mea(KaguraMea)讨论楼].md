@@ -231,3 +231,21 @@ mea给我附加无敌<img src="https://static.saraba1st.com/image/smiley/face201
 
 在北小路的杂谈窗出现了一下
 
+
+*****
+
+####  Cortana  
+##### 16591#       发表于 2024-6-30 15:33
+
+今天这么早开？
+话说主播六周年要搞什么活动吗？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  sino__unnko3  
+##### 16592#       发表于 2024-7-1 13:15
+
+推限结尾的时候提了嘴在吃CoQ10改善自律神经？没听清这句话，谷歌字幕给翻译成了core gold
+

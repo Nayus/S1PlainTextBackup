@@ -6717,3 +6717,14 @@ Arthur.c @CARTHUR_X
 丰川大小姐这辈子就是被玩泥巴/石头的tomboy给毁了</blockquote>
 不是抓独角仙吗
 
+
+*****
+
+####  枫林不见  
+##### 18383#       发表于 2024-7-1 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449893&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-1 21:33</a>
+
+丰川大小姐这辈子就是被玩泥巴/石头的tomboy给毁了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">突然想到动画里祥子和初华交谈小时候抓独角戏的记忆误差了，该不会是初华想提起这个幼时情窦未开的吻，而祥子竭力想逃避这个话题吧。
+

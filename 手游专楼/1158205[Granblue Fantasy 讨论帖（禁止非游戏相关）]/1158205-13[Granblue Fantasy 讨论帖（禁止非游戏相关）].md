@@ -88,3 +88,13 @@
 
 20亿左右的一档线算是比较正常的古战场吧，要是某一天一档突然跌到十三四亿，那肯定不是因为你游不卷了，只会是虫哥想你了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Niu  
+##### 17961#       发表于 2024-7-1 14:07
+
+泳裝書天司這OTK火力。
+
+簡直就是在對手動勢說不抽就別打土古戰場了。
+

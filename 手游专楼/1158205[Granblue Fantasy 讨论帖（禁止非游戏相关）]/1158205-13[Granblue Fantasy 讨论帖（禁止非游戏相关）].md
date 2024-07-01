@@ -242,3 +242,23 @@
 
 2024-7-1 20:04 上传
 
+
+*****
+
+####  江戸前ルナ  
+##### 17973#       发表于 2024-7-1 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449114&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-7-1 20:06</a>
+
+用这几把lm打了下，单纯打飞哥还是可以的，没那么难受，桑岛A90W左右，紫苑60w，你可以试试。单面还是不 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/01/202627ph1rrwbxjg04gbgr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240701202554.png</strong> (713.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-1 20:26 上传
+
+双面了。差一把贤者武和一个贤者召唤还有一个世界琴，风天司是满凸的，头发的斧头有点浑身但不用黑猫带龙武扛不住，但还是差太远了，算了，安心农方阵吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -72,3 +72,15 @@
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  天邪鬼  
+##### 1770#       发表于 2024-7-1 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65447405&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-7-1 17:28</a>
+感觉原计划就是穆躲起来打节点，打完赶紧跑，只是没估计镇魂曲充能这么快，来不及撤离？就只好硬吃一发？ ...</blockquote>
+也有可能。主要是穆的反应太快，直接丢装备然后拉盾。我还以为他预料到了，毕竟开的机体也是专门反射光束的
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

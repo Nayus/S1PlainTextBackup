@@ -1773,3 +1773,18 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 學妹才應該不停出靈衣換裝才對
 
+
+*****
+
+####  シャル  
+##### 12957#       发表于 2024-7-1 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65440319&amp;ptid=2084912" target="_blank">清河子 发表于 2024-7-1 02:45</a>
+
+除了小玉以外对任何日本神话系毫无感觉立省百分百
+
+（不过兽尼坠完本来也没几颗石了 ...</blockquote>
+日本神话如果换个角度看，就是渡来人征服土著啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+山海易幸这故事换个角度就是山幸彦娶了新的渡来势力的女性，把哥哥赶走成为部落首领的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

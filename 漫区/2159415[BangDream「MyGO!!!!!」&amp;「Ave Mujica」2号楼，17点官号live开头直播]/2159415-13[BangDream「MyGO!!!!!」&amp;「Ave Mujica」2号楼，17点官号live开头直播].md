@@ -6672,3 +6672,14 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 我们狗u在逆天这方面是真不让人失望啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 18379#       发表于 2024-7-1 21:15
+
+<img src="https://p.sda1.dev/18/46e167cf37d73c7302d31625b1089511/image.png" referrerpolicy="no-referrer">
+[ Arthur.c @CARTHUR_X](https://x.com/CARTHUR_X/status/1807730882574442630)
+
+初祥
+

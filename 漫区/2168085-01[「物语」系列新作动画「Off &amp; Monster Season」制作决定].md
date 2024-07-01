@@ -2001,3 +2001,15 @@ https://www.monogatari-series.com/oms/special/novel/
 谁能给个物语系列阅读和动画顺序，我是动画化物语入坑的，小说追着看到出恋物语，后面就断了，现在根本弄不 ...</blockquote>
 动画里恋物语之后应该是凭物语、终物语上、历物语、终物语下、续终物语的顺序，另外历物语大多都是小番外，跟主线有关的只有最后两集
 
+
+*****
+
+####  牙狼GARO  
+##### 214#       发表于 2024-7-1 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65446546&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-1 16:10</a>
+动画里恋物语之后应该是花物语、凭物语、终物语上、历物语、终物语下、续终物语的顺序，另外历物语大多都 ...</blockquote>
+感谢，这么一看自己小说也没落下来多少，至少生死三四郎的故事和结局有看到，动画缺的就多一些了
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

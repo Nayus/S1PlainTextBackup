@@ -6683,3 +6683,27 @@ ave mujica的照片超過4000張<img src="https://static.saraba1st.com/image/smi
 
 初祥
 
+
+*****
+
+####  枫林不见  
+##### 18380#       发表于 2024-7-1 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449711&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-1 21:15</a>
+
+Arthur.c @CARTHUR_X
+
+初祥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">从此以后祥子的xp就是短发假小子了
+
+
+*****
+
+####  第七軍伐戎処  
+##### 18381#       发表于 2024-7-1 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449836&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-7-1 21:26</a>
+
+从此以后祥子的xp就是短发假小子了</blockquote>
+丰川大小姐这辈子就是被玩泥巴/石头的tomboy给毁了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+

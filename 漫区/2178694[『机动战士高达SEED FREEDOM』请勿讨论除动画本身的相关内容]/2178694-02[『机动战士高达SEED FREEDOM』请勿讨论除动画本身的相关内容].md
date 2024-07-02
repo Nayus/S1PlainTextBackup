@@ -224,3 +224,11 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 
 出啥事了，那个VR高达银灰幻影不是还没公布日期吗，怎么网易推了个中川翔子的主题曲[https://music.163.com/#/song?id=2600243335](https://music.163.com/#/song?id=2600243335)
 
+
+*****
+
+####  L.L  
+##### 1784#       发表于 2024-7-3 02:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">之前在想孔帕斯这玩意好歹是地球联合 plant弄出来的高达上没有科技压制 除了最后荣耀守卫外.后半段还是二代机打三代机 机体劣势.但回想了下 这千禧号离谱的过头了点.这科技领先程度也不比荣耀守卫低到哪里去。
+

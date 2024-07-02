@@ -4113,3 +4113,13 @@ yuki妥妥学霸吧，应付初中还是没问题的
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  猫睛石  
+##### 1848#       发表于 2024-7-2 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459508&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-7-2 19:45</a>
+已经播到差不多换ed了，稍微说两句也没什么吧？结局要来个大的话，只能想到彩羽甩了已经在交往的四眼仔， ...</blockquote>
+听着像百合熊岚但人变成狗真是有点掉san值
+

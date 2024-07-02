@@ -180,3 +180,12 @@ https://x.com/imigimuru/status/1808106134261453145
 
 这么恨还是先把自己蒜人籍开了，免得难受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1892#         楼主| 发表于 2024-7-3 00:33
+
+[https://x.com/ryugusankomachi/status/1807738704502690292](https://x.com/ryugusankomachi/status/1807738704502690292)
+<img src="https://p.sda1.dev/18/86e39d95b920aa7e0dea6f8080b82d90/20240702_235823.jpg" referrerpolicy="no-referrer">
+

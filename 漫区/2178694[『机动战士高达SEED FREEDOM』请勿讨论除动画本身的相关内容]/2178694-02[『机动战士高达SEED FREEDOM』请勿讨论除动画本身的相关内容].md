@@ -197,3 +197,14 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 不止10年了，HD的金边白衣基拉的画面是2007年种命第四个总集篇新增画面里的 ...</blockquote>
 自由的代价只是实锤鸡去扎夫特，正式确定鸟是鸡厨是在种命HD的BD带的广播剧第三集里
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1781#       发表于 2024-7-3 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461971&amp;ptid=2178694" target="_blank">浅川雏羽 发表于 2024-7-3 00:24</a>
+自由的代价只是实锤鸡去扎夫特，正式确定鸟是鸡厨是在种命HD的BD带的广播剧第三集里 ...</blockquote>
+嗯，算实锤基拉迷弟的话是HD广播剧
+但自由的代价的金边白衣基拉出来后，就有吐槽空降的阿斯兰走了又来空降的基拉当了真的上级（虽然还未说是直属），算混一起了吧
+

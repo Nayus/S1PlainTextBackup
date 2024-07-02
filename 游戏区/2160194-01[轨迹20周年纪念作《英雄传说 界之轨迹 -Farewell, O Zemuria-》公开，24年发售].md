@@ -12238,3 +12238,29 @@ PV的神必人我觉得倒不一定是柱子，但是我估计是和结社有关
 
 一天天道理道理说不出来，阴阳怪气人身攻击倒是有一手，因为几句论坛上的争吵就诅咒别人，不会以为自己素质很高吧？和你为伍真是我的耻辱。
 
+
+*****
+
+####  酷乐  
+##### 1191#       发表于 2024-7-2 12:14
+
+虾饺跑去北美了
+
+Join us on July 5th from 3:00 - 3:30pm at AX Lite Broadcast Stage in Entertainment Hall: 
+
+NIS America Presents Trails and Ys Discussion with Toshihiro Kondo!
+
+If you're unable to attend #AX2024, stream on Twitch / YouTube!
+
+For links to stream online👇
+
+anime-expo.org/ax-lite/
+
+<img src="https://img.saraba1st.com/forum/202407/02/121439lpuhs265y17hkpky.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7159.jpeg</strong> (215.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-2 12:14 上传
+

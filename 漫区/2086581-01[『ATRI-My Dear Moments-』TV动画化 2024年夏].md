@@ -107,3 +107,23 @@ atri的立绘就是无敌的，笑颜第一可爱，眼睛也有魔力，偶尔�
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  bgmilk  
+##### 82#       发表于 2024-7-2 20:36
+
+这第一集很强啊，为什么讨论度这么低
+
+*****
+
+####  某化某  
+##### 83#       发表于 2024-7-2 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65444995&amp;ptid=2086581" target="_blank">实津二三 发表于 2024-7-1 14:01</a>
+
+也不算偷跑吧，是docomo anime搞了先行放映会。
+
+ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 ...</blockquote>
+这个先行放映会是在线、公开而且没有回放的吗？不然没法流出片源吧
+

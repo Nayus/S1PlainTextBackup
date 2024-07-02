@@ -12863,3 +12863,42 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 希望我是乌鸦嘴
 
+
+*****
+
+####  Vacuolar  
+##### 5641#       发表于 2024-7-1 21:35
+
+【新游戏模式 北沢志保 剧情PV iDOL GRAND-PRIX【偶像大师百万现场MLTD】】 [https://www.bilibili.com/video/B ... 3afaa822d2f12516262](https://www.bilibili.com/video/BV1am421V71k/?share_source=copy_web&amp;vd_source=10262ea2b983d3afaa822d2f12516262)
+
+td还在努力做这个养成模式，泪目，虽然程序员没能力，但就是不摆烂。
+
+精神可敬。
+
+*****
+
+####  白水潭的饿鬼  
+##### 5642#       发表于 2024-7-1 22:10
+
+アイル出来了不一定代表要关服
+
+但一定代表没有第二季
+
+希望我是乌鸦嘴
+
+*****
+
+####  Vacuolar  
+##### 5643#       发表于 2024-7-2 20:43
+
+【【终极拷打】偶像大师闪耀色彩第一季【闪耀色彩的头号功臣是……】】 [https://www.bilibili.com/video/B ... 3afaa822d2f12516262](https://www.bilibili.com/video/BV1vZ421T7jo/?share_source=copy_web&amp;vd_source=10262ea2b983d3afaa822d2f12516262)
+
+三牛老师最后还是疯了
+
+*****
+
+####  cckuku  
+##### 5644#       发表于 2024-7-2 20:54
+
+说是不出，还是出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

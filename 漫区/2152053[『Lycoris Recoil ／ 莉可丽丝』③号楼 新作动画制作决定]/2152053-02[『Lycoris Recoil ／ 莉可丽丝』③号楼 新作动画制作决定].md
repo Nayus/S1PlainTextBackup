@@ -84,3 +84,51 @@
 
 安济知佳都配真百了怎么还追着别人不放<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1881#         楼主| 发表于 2024-7-2 20:04
+
+[https://x.com/imigimuru/status/1808106134261453145](https://x.com/imigimuru/status/1808106134261453145)
+
+祝リコリコ2周年🎂
+
+これからも応援よろしくお願いします！
+<img src="https://p.sda1.dev/18/cacbc87dea2f15078e4d701827575f1a/20240702_200235.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 1882#       发表于 2024-7-2 20:06
+
+这脸 伊右群也开始走火入魔了吗
+
+*****
+
+####  IWS2000  
+##### 1883#       发表于 2024-7-2 20:07
+
+伊右群喜欢上朱元璋了
+
+*****
+
+####  蒜灵  
+##### 1884#       发表于 2024-7-2 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459707&amp;ptid=2152053" target="_blank">Piano-Forest 发表于 2024-7-2 20:04</a>
+
+https://x.com/imigimuru/status/1808106134261453145
+
+祝リコリコ2周年🎂
+
+これからも応援よろしくお願いし ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">伊右群你在搞什么
+
+*****
+
+####  蒜灵  
+##### 1885#       发表于 2024-7-2 20:46
+
+我发现现在伊右群的图远不如同人好看，第二季能不能给这丫的开了，让他回去画美术部去
+

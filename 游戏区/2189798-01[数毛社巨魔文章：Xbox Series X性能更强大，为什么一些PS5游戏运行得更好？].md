@@ -443,3 +443,13 @@ Xbox家的手柄不如ps家的，这个得骂，我反正只用xss玩玩西瓜�
 你要比这个 隔壁ps的ps star已经一个多月不能用了</blockquote>
 现在好像能了
 
+
+*****
+
+####  糖然君  
+##### 45#       发表于 2024-7-2 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460125&amp;ptid=2189798" target="_blank">csolfans 发表于 2024-7-2 20:53</a>
+现在好像能了</blockquote>
+港服能 美服还打不开，也不知道修这玩意儿怎么还能按时区来的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

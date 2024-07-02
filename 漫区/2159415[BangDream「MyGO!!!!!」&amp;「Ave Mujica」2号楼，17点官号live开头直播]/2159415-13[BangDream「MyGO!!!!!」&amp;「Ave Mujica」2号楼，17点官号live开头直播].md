@@ -7029,3 +7029,149 @@ z8投票“gop和哭批谁更原一点”结果：这俩不是一帮人么
 然后经典祥黑</blockquote>
 你还要小心那帮经典打着“人格修正”旗号在那yy自己成nina去扇祥巴掌的，只能说非常可笑
 
+
+*****
+
+####  九陌狂游  
+##### 18413#       发表于 2024-7-2 17:00
+
+我直接做梦提前半年七月份开始放送<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星天观测  
+##### 18414#       发表于 2024-7-2 17:01
+
+鸡身上发生过太多次擅自期待然后被狠狠打脸最后破防了，漏油们还是平常心一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 18415#       发表于 2024-7-2 17:07
+
+被gop恶心到了然后要来清算mujica<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+然后经典祥黑
+
+<img src="https://img.saraba1st.com/forum/202407/02/170651cgb2drn5r171d5d1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240702_170218.jpg</strong> (327.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-2 17:06 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|樂|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 18416#       发表于 2024-7-2 17:12
+
+ 本帖最后由 PDQ4 于 2024-7-2 17:25 编辑 
+
+只能说狗批到处拿鸡当枪使的时候就能预料到这一天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18417#       发表于 2024-7-2 17:13
+
+z8投票“gop和哭批谁更原一点”结果：这俩不是一帮人么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 18418#       发表于 2024-7-2 17:31
+
+7.4水MV应该稳的，不知道大发表会上会不会播，真的鬼图我尴尬癌又要犯了，争点气可以吗wsd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18419#       发表于 2024-7-2 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">漏油是不是已经把mujica所有的情报预测完了
+
+大发表会热闹非凡，但mujica只有一个鬼图mv和一张一柄多卖卖半年的视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18420#       发表于 2024-7-2 17:57
+
+<blockquote>ydsbbt 发表于 2024-7-2 17:07
+被gop恶心到了然后要来清算mujica
+
+然后经典祥黑</blockquote>
+你还要小心那帮经典打着“人格修正”旗号在那yy自己成nina去扇祥巴掌的，只能说非常可笑
+
+*****
+
+####  御幸一也  
+##### 18421#       发表于 2024-7-2 19:45
+
+ 本帖最后由 御幸一也 于 2024-7-2 19:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那張視覺圖都看一年了，大發表會公開個KV2，感覺還是很有可能的
+
+PV感覺不可能，甚至河口湖公開都感覺不可能……
+
+年底還有動畫的製作發表會，應該就是這個秋冬開的talk event，PV還是會在這個上面公佈吧
+
+<img src="https://img.saraba1st.com/forum/202407/02/194206ixhl5zs5ew3le5dd.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (54.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-2 19:42 上传
+
+話說12/15這個單獨LIVE的抽選，還是加塞去翻唱專的呢。
+
+這張連體碟 1碟3抽真是牛逼壞了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NODY  
+##### 18422#       发表于 2024-7-2 20:55
+
+贴吧销量楼猜的是明年年初趁着动画热度+十周年纪念，邦邦全团打包上武道馆，所以年底直接让鸡萝打包再拉一波观众
+
+还有个依据是近期这段时间蝶和萝都在live或者生放上提了想去武道馆
+
+*****
+
+####  星天观测  
+##### 18423#       发表于 2024-7-2 20:56
+
+挺好的，谁不喜欢和谐一家人呢
+
+想听大合唱版kizuna music
+

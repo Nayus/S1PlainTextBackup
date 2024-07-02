@@ -7256,3 +7256,98 @@ PV感覺不可能，甚至河口湖公開都感覺不可能……
 
 当然我还是比较想看五周年那样的9团大合唱就是了，声优三团主唱当嘉宾，三个声优团这两年都有线下感觉也是为了这方面做准备
 
+
+*****
+
+####  星天观测  
+##### 18433#       发表于 2024-7-2 22:06
+
+大合唱真得来吧，但是希望那时候鸡已经放弃那个老八面具了，不然真的难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 18434#       发表于 2024-7-2 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">对场馆没概念，武道馆要整个企划一起上才撑得起吗
+
+*****
+
+####  rikaren  
+##### 18435#       发表于 2024-7-2 22:10
+
+可以猜一下到时候会有几组三人行了
+
+*****
+
+####  星天观测  
+##### 18436#       发表于 2024-7-2 22:12
+
+只能说你邦就是这么糊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老七团三人行不变，如果鸡狗能全配平的话大概就是爱灯素睦猫希初祥海喵
+
+配不平的话……小心初华成为第一个三人行主唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|？|
+
+查看全部评分
+
+*****
+
+####  凡人  
+##### 18437#       发表于 2024-7-2 22:15
+
+梦团8月不是有live吗，我感觉今年年底就要露脸了。
+
+*****
+
+####  Aendst  
+##### 18438#       发表于 2024-7-2 22:20
+
+制作组对关系性这么上心，不至于去搞配平这种鄙视链底端的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然就算要配平也要优先考虑美帝，喜欢爱爽可能有福了
+
+*****
+
+####  rikaren  
+##### 18439#       发表于 2024-7-2 22:21
+
+老团那边hhw三人行要拆了吧，但是不拆又不知道hgm能往哪儿塞
+
+*****
+
+####  御幸一也  
+##### 18440#       发表于 2024-7-2 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460851&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-7-2 22:07</a>
+
+对场馆没概念，武道馆要整个企划一起上才撑得起吗</blockquote>
+武道館最大收容人數14471，蘿肯定撐的起來，其他團嘛…。
+
+
+*****
+
+####  星天观测  
+##### 18441#       发表于 2024-7-2 22:22
+
+hhw包不拆的啊，就是hgm熏花音
+
+不然你让彩彩怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18442#       发表于 2024-7-2 22:22
+
+配平不就是殘飯處理，不喜歡就別他媽在那配了，當動物配種呢。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

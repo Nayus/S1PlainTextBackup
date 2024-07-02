@@ -1806,3 +1806,54 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这啥，帅到发光？
 
+
+*****
+
+####  シャル  
+##### 12960#       发表于 2024-7-2 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65458071&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-7-2 16:17</a>
+
+这活动莫名其妙程度大概就比旺吉娜好点，好歹套了个皮
+
+哪怕纯血月厨要抽也得下狠心吧
+
+ ...</blockquote>
+老月厨才会抽吧
+
+废狗入门的根本不认识连个JC
+
+
+*****
+
+####  森兰丸  
+##### 12961#       发表于 2024-7-2 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1天活动剧情就更新这么1小节？过分了啊
+
+*****
+
+####  シャル  
+##### 12962#       发表于 2024-7-2 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459598&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-2 19:53</a>
+
+1天活动剧情就更新这么1小节？过分了啊</blockquote>
+不得拖到周三周四出新卡池<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beer  
+##### 12963#       发表于 2024-7-2 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459847&amp;ptid=2084912" target="_blank">シャル 发表于 2024-7-2 20:19</a>
+不得拖到周三周四出新卡池</blockquote>
+这么短的活动还能有二期卡池？
+
+*****
+
+####  DARKGRAY  
+##### 12964#       发表于 2024-7-2 22:04
+
+至少能UP一下几个加成的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

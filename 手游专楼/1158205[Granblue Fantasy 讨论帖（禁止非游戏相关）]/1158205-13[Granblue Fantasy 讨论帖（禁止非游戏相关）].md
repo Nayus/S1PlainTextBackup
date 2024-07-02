@@ -301,3 +301,11 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  はちたや  
+##### 17977#       发表于 2024-7-2 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看到19.9没忍住去拆了下，顺利拿下
+

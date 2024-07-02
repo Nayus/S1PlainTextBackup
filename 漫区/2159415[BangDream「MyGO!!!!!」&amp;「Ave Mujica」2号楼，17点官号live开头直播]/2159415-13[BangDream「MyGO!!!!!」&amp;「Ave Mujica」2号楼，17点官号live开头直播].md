@@ -6812,3 +6812,19 @@ Arthur.c @CARTHUR_X
 
 初嬷画师还在画，感觉能坚持到母鸡卡开播
 
+
+*****
+
+####  rikaren  
+##### 18390#       发表于 2024-7-2 12:09
+
+<img src="https://img.saraba1st.com/forum/202407/02/120905e4br3yc0q4rje3d0.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1719893264107.jpg</strong> (115.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-2 12:09 上传
+
+应该会有鸡动画情报的吧
+

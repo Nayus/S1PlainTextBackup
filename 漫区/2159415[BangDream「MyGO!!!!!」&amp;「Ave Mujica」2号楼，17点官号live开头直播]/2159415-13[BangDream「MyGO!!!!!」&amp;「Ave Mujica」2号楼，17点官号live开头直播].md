@@ -6907,3 +6907,19 @@ Arthur.c @CARTHUR_X
 
 视觉图就视觉图吧，鸡杂苦了半年了总要有点新东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 18400#       发表于 2024-7-2 16:07
+
+新图不是鬼图就是胜利，水MV也马上出了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18401#       发表于 2024-7-2 16:14
+
+鬼故事一则：按wsd的打法说不定5首歌出完立绘质量最好的是fire<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（希望不是）
+

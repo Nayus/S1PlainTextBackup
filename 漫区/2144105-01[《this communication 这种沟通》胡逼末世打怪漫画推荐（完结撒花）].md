@@ -1884,3 +1884,22 @@ http://m.weibo.cn/status/5050982306418937?
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">原来完结了吗，该去补完了，我都快忘了讲了啥了。
 
+
+*****
+
+####  Alice.Andvari  
+##### 187#       发表于 2024-7-2 10:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">坏得很纯粹的家伙。最后的几个人复活，也许也只是主角弥留之际的幻想罢了。
+
+*****
+
+####  redsouris  
+##### 188#       发表于 2024-7-2 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65454095&amp;ptid=2144105" target="_blank">Alice.Andvari 发表于 2024-7-2 10:50</a>
+坏得很纯粹的家伙。最后的几个人复活，也许也只是主角弥留之际的幻想罢了。 ...</blockquote>
+主角是不会幻想她们复活的，纯碍事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

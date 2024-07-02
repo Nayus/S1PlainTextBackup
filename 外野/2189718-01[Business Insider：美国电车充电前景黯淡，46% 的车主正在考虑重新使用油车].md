@@ -643,3 +643,23 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 我觉得美国这种人人大house的地方，自家车库弄个充电桩第二辆车弄个电车很不错啊 ...</blockquote>
 我现在住的公寓年龄比我父母还大，车库里还想加充电桩，怕是1960年代的旧电路哪天机魂不悦、把整幢公寓给点了。
 
+
+*****
+
+####  基本农田  
+##### 61#       发表于 2024-7-3 06:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65462785&amp;ptid=2189718" target="_blank">半分宅 发表于 2024-7-3 05:57</a>
+我现在住的公寓年龄比我父母还大，车库里还想加充电桩，怕是1960年代的旧电路哪天机魂不悦、把整幢公寓给 ...</blockquote>
+2024年了还有人对美帝抱有各种幻想也是挺神奇的
+
+
+*****
+
+####  熊边上  
+##### 62#       发表于 2024-7-3 06:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65456356&amp;ptid=2189718" target="_blank">HOIHOISAN 发表于 2024-7-2 00:52</a>
+美国确实人人大豪斯啊，但是人口只有四千万，市场体量就非常小啊</blockquote>
+你是不是把美国和加拿大搞混了？美国是3亿多人，单一国家新车销量全球第二
+

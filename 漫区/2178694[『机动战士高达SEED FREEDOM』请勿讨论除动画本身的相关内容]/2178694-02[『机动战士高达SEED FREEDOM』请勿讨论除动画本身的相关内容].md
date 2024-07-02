@@ -186,3 +186,14 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.acgtracker.com:1096/an ...</blockquote>
 谢谢欧金金
 
+
+*****
+
+####  浅川雏羽  
+##### 1780#       发表于 2024-7-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461953&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-7-3 00:22</a>
+
+不止10年了，HD的金边白衣基拉的画面是2007年种命第四个总集篇新增画面里的 ...</blockquote>
+自由的代价只是实锤鸡去扎夫特，正式确定鸟是鸡厨是在种命HD的BD带的广播剧第三集里
+

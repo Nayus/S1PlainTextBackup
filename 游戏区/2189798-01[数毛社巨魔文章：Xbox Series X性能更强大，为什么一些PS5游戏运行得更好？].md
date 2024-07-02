@@ -422,3 +422,13 @@ PS5的API好像由上一代的高低层级统一成一种这个我知道，不�
 
 Xbox家的手柄不如ps家的，这个得骂，我反正只用xss玩玩西瓜皮，真玩游戏还是去p s 5
 
+
+*****
+
+####  糖然君  
+##### 43#       发表于 2024-7-2 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65457872&amp;ptid=2189798" target="_blank">stoiorz 发表于 2024-7-2 16:06</a>
+我是只是想骂xbox reward策略完全搞不明白，现在任务完成领不了，也不知道怎么解决。 ...</blockquote>
+你要比这个 隔壁ps的ps star已经一个多月不能用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

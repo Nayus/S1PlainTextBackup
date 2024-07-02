@@ -6836,3 +6836,11 @@ Arthur.c @CARTHUR_X
 
 期待主视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">先导pv
 
+
+*****
+
+####  rikaren  
+##### 18392#       发表于 2024-7-2 12:36
+
+北京时间周四晚上八点半，到时候就蹲hs直播间了。
+

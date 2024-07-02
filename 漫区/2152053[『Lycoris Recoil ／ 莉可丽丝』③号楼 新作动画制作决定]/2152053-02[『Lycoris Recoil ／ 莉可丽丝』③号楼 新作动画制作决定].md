@@ -164,3 +164,19 @@ https://x.com/imigimuru/status/1808106134261453145
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么喜欢开人干嘛不把足神先开了
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1890#       发表于 2024-7-2 23:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">                     
+
+
+*****
+
+####  Delicatus545  
+##### 1891#       发表于 2024-7-2 23:44
+
+这么恨还是先把自己蒜人籍开了，免得难受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

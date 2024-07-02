@@ -4090,3 +4090,26 @@ yuki妥妥学霸吧，应付初中还是没问题的
 
 又看了一遍这周的动画，我还是觉得，作为和大前辈一起在千回片头报幕的正统q娃女一号，小麦你不能和库露伦一样，只当一只宠物啊！想借用地狱乐园男主对他儿子说的话“你可是人类啊”。无论staff如何粉饰狗组之间的友情，只要彩羽仍然把小麦看作是狗，那么这终究还是一段绝对不平等的关系，越谈友情只会越来越荒诞滑稽。还是说你们staff是想说不能扼杀狗的本性吗？那么为什么又要以人的道德去约束她们不让她们野性解放捕杀小动物呢？处处都是自相矛盾。当时在小新回过后，只要随便做个犬饲家一起吃早餐然后目送彩羽小麦上学的桥段，我都认可了，但是至今没有再出现过犬饲家的日常的片段，真是特别诡异。人家猫家的妈妈在不知情的情况下都会说小雪是姐姐的。当然如果从一开始就设定女一号是彩羽的话，那这些都不算事了
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1846#       发表于 2024-7-2 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65448380&amp;ptid=2162354" target="_blank">杂灰 发表于 2024-7-1 19:02</a>
+
+可猫的智商比狗低很多搞不好你成绩还没小麦好</blockquote>
+明眼人都看得出来我是学霸<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maoyou  
+##### 1847#       发表于 2024-7-2 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65456577&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-7-2 14:17</a>
+又看了一遍这周的动画，我还是觉得，作为和大前辈一起在千回片头报幕的正统q娃女一号，小麦你不能和库露伦 ...</blockquote>
+就现在的故事框架来看，小麦想支棱起来只有后期开始或者是结局的时候来个大的了。
+只能说别急，等结局了还是这幅狗样再喷吧
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

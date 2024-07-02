@@ -481,3 +481,13 @@ DF硬件就是伪技术流民科，你这一说20年的场景仿佛历历在目�
 
 ps5超频冒烟，液金漏液，xsx独占rnda2，风向一边倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青色精灵の最期  
+##### 48#       发表于 2024-7-2 23:28
+
+<blockquote>精钢魔像 发表于 2024-7-2 13:46
+所以大买特买。手上有那么多ip，就是作个死宣布下一代主机用龙芯和摩尔线程，也不会马上就扑 ...</blockquote>
+ip需要运营的，只要别走光环机器肥波的老路问题就不大，xgs的管理很迷
+

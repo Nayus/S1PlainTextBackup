@@ -156,3 +156,11 @@ https://x.com/imigimuru/status/1808106134261453145
 
 把伊开了，让他去画美术社，美术社能多更新粉丝开心，蒜能换一个画的更好看的画师粉丝也开心，两全其美了
 
+
+*****
+
+####  osore  
+##### 1889#       发表于 2024-7-2 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么喜欢开人干嘛不把足神先开了
+

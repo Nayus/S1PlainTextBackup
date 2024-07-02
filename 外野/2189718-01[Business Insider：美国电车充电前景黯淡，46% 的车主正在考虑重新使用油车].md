@@ -494,3 +494,22 @@ NGA车版懂有的加油站有充电桩的都很少，今天有个小米su7在�
 
 另外插混比油混的提升，拜托插混可以充电啊！可以充电啊！这不比从纯油到油混提升还大？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bigapple555  
+##### 48#       发表于 2024-7-2 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65455264&amp;ptid=2189718" target="_blank">塔奇克马酱 发表于 2024-7-2 12:10</a>
+
+我家前前后后买过5个车，我体验过hev，油耗体验和动力响应比机械变速箱车型好太多了，所以我宁愿加钱买混 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">原来买的哈弗，我说为啥不点火开空调睡是骗人，我经常用电开空调睡觉啊
+
+
+*****
+
+####  HOIHOISAN  
+##### 49#       发表于 2024-7-2 13:52
+
+美国确实人人大豪斯啊，但是人口只有四千万，市场体量就非常小啊
+

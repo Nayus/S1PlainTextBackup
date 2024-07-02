@@ -481,3 +481,16 @@ NGA车版懂有的加油站有充电桩的都很少，今天有个小米su7在�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  若闲  
+##### 47#       发表于 2024-7-2 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65455264&amp;ptid=2189718" target="_blank">塔奇克马酱 发表于 2024-7-2 12:10</a>
+我家前前后后买过5个车，我体验过hev，油耗体验和动力响应比机械变速箱车型好太多了，所以我宁愿加钱买混 ...</blockquote>
+同时在出油车和电车的，为了油的销量，电会主动提价。但问题是你为什么要看这几个虫豸？？
+宋两兄弟、银河、深蓝、零跑、甚至枭龙等等这一堆车都在这个价位段，哪个比同价位油车贵了？
+
+另外插混比油混的提升，拜托插混可以充电啊！可以充电啊！这不比从纯油到油混提升还大？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

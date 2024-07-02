@@ -7351,3 +7351,116 @@ hhw包不拆的啊，就是hgm熏花音
 
 配平不就是殘飯處理，不喜歡就別他媽在那配了，當動物配種呢。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18443#       发表于 2024-7-2 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460931&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-2 22:20</a>
+
+制作组对关系性这么上心，不至于去搞配平这种鄙视链底端的东西吧
+
+当然就算要配平也要优先考虑美帝，喜欢爱 ...</blockquote>
+包是爱灯的，动画爱灯不要太明显了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18444#       发表于 2024-7-2 22:26
+
+ 本帖最后由 Aendst 于 2024-7-2 22:27 编辑 
+
+不太清楚具体动员，但是如果场馆是武道馆，就是要么一起上，要么对邦/上三队
+
+通常来说武道馆连开两天也确实更常见一点，如果定在土日祝那可以开个三天，这个比较可能的是明年的2.22-2.24
+
+十周年了我觉得会有声优团出演，不过具体形式就不知道了
+
+*****
+
+####  NODY  
+##### 18445#       发表于 2024-7-2 22:26
+
+ 本帖最后由 NODY 于 2024-7-2 22:27 编辑 
+
+不想因为cp战争搞得太麻烦那就是学之前的主唱官配+三人行的2+3，爱灯+素希猫+初祥+睦海喵完事
+
+*****
+
+####  Aendst  
+##### 18446#       发表于 2024-7-2 22:28
+
+ 本帖最后由 Aendst 于 2024-7-2 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460963&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-2 22:24</a>
+
+包是爱灯的，动画爱灯不要太明显了</blockquote>
+那惨了，按照这个思路只能说明如果热度冷门的话官推没什么意义，后续也会转向其他有热度的cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18447#       发表于 2024-7-2 22:30
+
+2月那個3連休拿不下的話，就要等5月GW才有連休了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18448#       发表于 2024-7-2 22:34
+
+笑死，2月三連休開武道館已無可能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+FREDERHYTHM ARENA 2025
+
+・2025年2月24日（月・休）東京 日本武道館     
+[https://frederic-official.com/news/detail/3125](https://frederic-official.com/news/detail/3125)
+
+*****
+
+####  星天观测  
+##### 18449#       发表于 2024-7-2 22:35
+
+狗那边不好说，动画和手游推的cp不太一样，挺怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18450#       发表于 2024-7-2 22:36
+
+ 本帖最后由 Aendst 于 2024-7-2 22:39 编辑 
+
+GW开倒是也挺合理，刚好动画播完，手游周年也过了
+
+*****
+
+####  rikaren  
+##### 18451#       发表于 2024-7-2 22:37
+
+<blockquote>星天观测 发表于 2024-7-2 22:22
+hhw包不拆的啊，就是hgm熏花音
+
+不然你让彩彩怎么办</blockquote>
+拆了最大问题不是hgm去哪儿吗，她别说官推，cp都不能算有的。
+
+*****
+
+####  NODY  
+##### 18452#       发表于 2024-7-2 22:37
+
+制作组配平的时候姑且还是会考虑主唱优先度的，比如千圣三个官配，五周年还是得优先彩彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这也有花音薰本来就在一队，直接把hhw分成2+3也没有违和感的因素在，花千或者薰千的话总不能配个彩薰彩花音出来
+
+*****
+
+####  星天观测  
+##### 18453#       发表于 2024-7-2 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461067&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-2 22:37</a>
+
+拆了最大问题不是hgm去哪儿吗，她别说官推，cp都不能算有的。</blockquote>
+我的意思是，在mskk确定的情况下，剩下三个如果拆按现在的情况那就是花千（不是很了解熏不知道有没有熏千之外的cp）
+
+那如果花千组了，彩彩怎么办，难道拆冰川双子凑彩日菜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

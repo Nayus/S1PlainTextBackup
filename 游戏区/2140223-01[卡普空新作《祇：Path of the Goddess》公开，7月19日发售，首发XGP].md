@@ -514,3 +514,11 @@ demo感觉还挺不错，画面舒服手感也在线
 
 有种东京奥运会的美
 
+
+*****
+
+####  Leona_Akari  
+##### 56#       发表于 2024-7-2 21:42
+
+这个塔防还挺好玩的，既不会主角在那开无双也不至于毫无存在感，怪物设计非常日式，有种乱泼涂料但是却又成画的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

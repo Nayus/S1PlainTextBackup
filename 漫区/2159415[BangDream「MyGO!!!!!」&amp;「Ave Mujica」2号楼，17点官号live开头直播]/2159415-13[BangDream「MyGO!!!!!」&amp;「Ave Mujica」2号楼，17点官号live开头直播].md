@@ -7538,3 +7538,82 @@ mygo是动画推爱灯爽三人，手游有点打包猫灯希的意思吧<img sr
 
 我宁愿mana加进来组sumimi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18463#       发表于 2024-7-2 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">難評。
+
+*****
+
+####  NODY  
+##### 18464#       发表于 2024-7-2 23:07
+
+确实你邦现在主唱也不一定有双锁死cp了，看开点，毕竟确实有彩千和laytae这种主唱前期官配到后期被冷落的情况，隔壁nga也整天看爱灯党在担心官方因为热度转推美帝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且万一初华在动画会有初睦初海初喵的黑马cp呢，别忘了mygo10集前根本没人想到美帝会一夜崛起
+
+*****
+
+####  星天观测  
+##### 18465#       发表于 2024-7-2 23:10
+
+问题不大，我是初华单推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要别整烂活跟谁cp都ok
+
+*****
+
+####  极速赛车手  
+##### 18466#       发表于 2024-7-2 23:11
+
+卖最多的感觉是灯all，目前剧情中心都是围绕tmr发展
+
+至于美帝，虽然也有卖但总有股怪味糖的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 18467#       发表于 2024-7-2 23:13
+
+ppp單曲是2025年春"単独ライブイベント"，應該不會是打包上武道館
+
+*****
+
+####  NODY  
+##### 18468#       发表于 2024-7-2 23:15
+
+打包武道馆的话理论上应该是单独会出一张9团精选专来抽，顺便冲一波销量
+
+*****
+
+####  NODY  
+##### 18469#       发表于 2024-7-2 23:17
+
+在目前睦祥已经是断层热度的情况下，我还真挺期待到时候动画在初海喵里面搞出一个爱素那样的黑马cp的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18470#       发表于 2024-7-2 23:17
+
+PPP肯定要参加十周年，所以要么是周年在那之后，要么就是确定PPP单独+其他团的构成
+
+*****
+
+####  Aendst  
+##### 18471#       发表于 2024-7-2 23:19
+
+mujica所有相关在日本人那边目前都没有什么热度吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+都在等动画
+
+*****
+
+####  星天观测  
+##### 18472#       发表于 2024-7-2 23:20
+
+睦祥火有一部分原因是因为这俩的塑造比较多，其他三个基本等于漏了个面，初华甚至除了伟大的脸只剩重女舔狗
+
+初华推难受哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

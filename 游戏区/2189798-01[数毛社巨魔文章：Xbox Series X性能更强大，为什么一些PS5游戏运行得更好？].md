@@ -466,3 +466,18 @@ rhi外包其实不止b社啦，这个你去欧美一些3a级工作室干过就�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  青色精灵の最期  
+##### 47#       发表于 2024-7-2 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65456107&amp;ptid=2189798" target="_blank">槐聚 发表于 2024-7-2 13:24</a>
+
+马克塞尔尼演讲后，DF对塞尔尼的采访也不客气
+
+很咄咄逼人地要塞尔尼承认PS5的电源管理设计不能同时满足CPU ...</blockquote>
+DF硬件就是伪技术流民科，你这一说20年的场景仿佛历历在目，当年真热闹啊
+
+ps5超频冒烟，液金漏液，xsx独占rnda2，风向一边倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

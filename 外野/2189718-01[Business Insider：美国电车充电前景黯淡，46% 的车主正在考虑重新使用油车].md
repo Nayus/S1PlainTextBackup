@@ -632,3 +632,14 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  半分宅  
+##### 60#       发表于 2024-7-3 05:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65452727&amp;ptid=2189718" target="_blank">lgyzero 发表于 2024-7-1 20:51</a>
+
+我觉得美国这种人人大house的地方，自家车库弄个充电桩第二辆车弄个电车很不错啊 ...</blockquote>
+我现在住的公寓年龄比我父母还大，车库里还想加充电桩，怕是1960年代的旧电路哪天机魂不悦、把整幢公寓给点了。
+

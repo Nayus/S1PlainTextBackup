@@ -6844,3 +6844,11 @@ Arthur.c @CARTHUR_X
 
 北京时间周四晚上八点半，到时候就蹲hs直播间了。
 
+
+*****
+
+####  星天观测  
+##### 18393#       发表于 2024-7-2 13:28
+
+有没有你鸡感觉还不好说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先放低期待
+

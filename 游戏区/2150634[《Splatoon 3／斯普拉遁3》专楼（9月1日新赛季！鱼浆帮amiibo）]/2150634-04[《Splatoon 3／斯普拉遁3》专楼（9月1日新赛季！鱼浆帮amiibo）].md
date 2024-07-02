@@ -153,3 +153,14 @@ mvp吸墨机
 
 思考要不要为了玩头目联合打工续一年会员
 
+
+*****
+
+####  真马甲传说  
+##### 4789#       发表于 2024-7-2 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65327784&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-6-21 20:35</a>
+
+所以最终祭典是8月还是9月</blockquote>
+8月吧，9月断更了
+

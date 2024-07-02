@@ -7464,3 +7464,77 @@ hhw包不拆的啊，就是hgm熏花音
 
 那如果花千组了，彩彩怎么办，难道拆冰川双子凑彩日菜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 18454#       发表于 2024-7-2 22:43
+
+mygo是动画推爱灯爽三人，手游有点打包猫灯希的意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱爽贯彻始终，可能这就是官推+美帝的含金量
+
+*****
+
+####  NODY  
+##### 18455#       发表于 2024-7-2 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461090&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-2 22:40</a>
+
+我的意思是，在mskk确定的情况下，剩下三个如果拆按现在的情况那就是花千（不是很了解熏不知道有没有熏千 ...</blockquote>
+薰maya现在推的力度挺大的，体感大学篇以后发糖可能比mayaeve都要多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过要到上周年pv的级别可能还是不够，而且如果薰和花音都去和团外的话hgm就真没位置了，还是继续保留mskk+花薰hgm可能性大一点
+
+*****
+
+####  星天观测  
+##### 18456#       发表于 2024-7-2 22:44
+
+还是按优先主唱其他有就凑没有就三人来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年还是和谐一点
+
+*****
+
+####  NODY  
+##### 18457#       发表于 2024-7-2 22:45
+
+如果鸡狗真搞出主唱三人行分组，灯希猫+爱素+初睦祥+海喵好像也不是不行，刚好满足美帝
+
+*****
+
+####  星天观测  
+##### 18458#       发表于 2024-7-2 22:48
+
+主唱三人行真的怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真这么搞我就润回去老老实实嗑ykls摩卡兰这种了
+
+*****
+
+####  NODY  
+##### 18459#       发表于 2024-7-2 22:52
+
+那就要看看你邦是不是打算把初睦祥搞成第一个主唱三角了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18460#       发表于 2024-7-2 22:52
+
+主唱三人行，但是本质都是主唱官推的翅膀（x）
+
+*****
+
+####  NODY  
+##### 18461#       发表于 2024-7-2 22:53
+
+这楼的层数是不是又和外面不一样了，刚刚点进去还是461<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18462#       发表于 2024-7-2 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461237&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-2 22:52</a>
+
+那就要看看你邦是不是打算把初睦祥搞成第一个主唱三角了</blockquote>
+这就是我之前楼说的小心初华成为第一个三人行主唱
+
+我宁愿mana加进来组sumimi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

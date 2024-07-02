@@ -97,3 +97,13 @@ atri的立绘就是无敌的，笑颜第一可爱，眼睛也有魔力，偶尔�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  57042711  
+##### 81#       发表于 2024-7-2 10:04
+
+阿托莉可爱嗷…难道花田老师要赢了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

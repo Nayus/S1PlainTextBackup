@@ -7007,3 +7007,13 @@ z8投票“gop和哭批谁更原一点”结果：这俩不是一帮人么
 
 7.4水MV应该稳的，不知道大发表会上会不会播，真的鬼图我尴尬癌又要犯了，争点气可以吗wsd<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 18411#       发表于 2024-7-2 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">漏油是不是已经把mujica所有的情报预测完了
+
+大发表会热闹非凡，但mujica只有一个鬼图mv和一张一柄多卖卖半年的视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+

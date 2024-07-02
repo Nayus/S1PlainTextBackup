@@ -126,3 +126,16 @@
 
 所以，算回光返照
 
+
+*****
+
+####  欧金金  
+##### 1775#       发表于 2024-7-2 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65457626&amp;ptid=2178694" target="_blank">祸灵梦 发表于 2024-7-2 15:49</a>
+
+不想爬楼了，请问这次的剧场版有字幕好一点的版本吗？求下载链接</blockquote>
+magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.acgtracker.com:1096/announce
+
+漫游的
+

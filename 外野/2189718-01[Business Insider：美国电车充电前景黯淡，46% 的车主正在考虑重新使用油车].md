@@ -570,3 +570,11 @@ phev在省油上是不如电池更轻的hev的。
 phev的优点当然是日常市区可以全电使用，在电费比油费便宜很多的国家 ...</blockquote>
 我来翻译翻译：在能便宜搞到东大电池板（哪怕是二手）但是燃料油贵的地方爽
 
+
+*****
+
+####  JOY_GoGo  
+##### 55#       发表于 2024-7-2 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这说的不是美国吗……美国人确实没啥必要换电动车啊……
+

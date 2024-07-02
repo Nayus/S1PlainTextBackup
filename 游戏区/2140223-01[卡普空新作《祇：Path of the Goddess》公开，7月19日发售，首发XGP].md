@@ -484,3 +484,11 @@ Demo还挺长的，连隐藏关在内大概一个半小时。
 
 跟百龙夜行不是一回事，更接近兽人必须死，玩家输出占大头，村民肉盾+辅助。
 
+
+*****
+
+####  weiduopla  
+##### 53#       发表于 2024-7-2 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没在家也没法试玩，不过看了试玩全程视频观感不错。
+

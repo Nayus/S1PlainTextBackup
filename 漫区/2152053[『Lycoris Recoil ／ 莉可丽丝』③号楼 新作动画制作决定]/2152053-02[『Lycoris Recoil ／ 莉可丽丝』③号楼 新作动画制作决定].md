@@ -44,3 +44,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚被爆杀的膏肓人要PTSD了
 
+
+*****
+
+####  阿姆罗二世  
+##### 1876#       发表于 2024-7-2 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 1877#       发表于 2024-7-2 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65454079&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2024-7-2 10:48</a></blockquote>
+这身高都不对吧，小黄明明要比tkn要高的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

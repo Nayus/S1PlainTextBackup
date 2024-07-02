@@ -208,3 +208,11 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 嗯，算实锤基拉迷弟的话是HD广播剧
 但自由的代价的金边白衣基拉出来后，就有吐槽空降的阿斯兰走了又来空降的基拉当了真的上级（虽然还未说是直属），算混一起了吧
 
+
+*****
+
+####  L.L  
+##### 1782#       发表于 2024-7-3 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">一直拖延着才开始看，开场才几分钟就感觉槽点贼多.最后大决战的时候槽点就没断过 过于欢乐多.
+

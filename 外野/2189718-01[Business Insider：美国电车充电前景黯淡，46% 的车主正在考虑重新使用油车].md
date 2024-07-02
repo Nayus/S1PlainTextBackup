@@ -600,3 +600,19 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  若闲  
+##### 58#       发表于 2024-7-2 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65457685&amp;ptid=2189718" target="_blank">塔奇克马酱 发表于 2024-7-2 15:53</a>
+你知道以前的宋pro 宋plus纯油版本多少钱嘛？宋plus在停产前的2020年自动挡起步价是11万，21年的宋plus d ...</blockquote>
+不是，你往前比干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这两年都天翻地复了，都恨不得一月一个价了，你拿几年前比来比去什么用？
+
+现在的情况就是，宋pro卖10万，宋plus卖12万，银河l7卖12万，深蓝s7也卖12万，甚至哈弗枭龙也卖12万。这些车都不小，配置也不低，还都有差不多10度电吧。
+
+然后哈弗h6纯油也卖12万。
+
+所以到底是谁的问题？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你成本压不下来怪别人喽？
+

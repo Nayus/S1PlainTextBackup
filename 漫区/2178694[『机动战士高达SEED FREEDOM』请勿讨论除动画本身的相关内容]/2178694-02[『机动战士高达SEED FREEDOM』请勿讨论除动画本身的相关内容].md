@@ -100,3 +100,14 @@
 
 跟全金属狂潮第四季一样，相见不如怀念，虽然是想看后续的剧情，但是这剧场版真的一言难尽
 
+
+*****
+
+####  凤舞夜月  
+##### 1773#       发表于 2024-7-2 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65457626&amp;ptid=2178694" target="_blank">祸灵梦 发表于 2024-7-2 15:49</a>
+
+不想爬楼了，请问这次的剧场版有字幕好一点的版本吗？求下载链接</blockquote>
+漫游字幕组有出货，我也是楼里找的，你倒着翻几页就有了、
+

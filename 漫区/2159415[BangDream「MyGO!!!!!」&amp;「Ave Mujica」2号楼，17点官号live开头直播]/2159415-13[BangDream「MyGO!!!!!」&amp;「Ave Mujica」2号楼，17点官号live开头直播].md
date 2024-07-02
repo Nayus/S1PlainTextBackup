@@ -6923,3 +6923,11 @@ Arthur.c @CARTHUR_X
 
 鬼故事一则：按wsd的打法说不定5首歌出完立绘质量最好的是fire<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（希望不是）
 
+
+*****
+
+####  rikaren  
+##### 18402#       发表于 2024-7-2 16:19
+
+上次有漏油预测的时间就是7.4吧
+

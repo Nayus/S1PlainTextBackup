@@ -1788,3 +1788,13 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 山海易幸这故事换个角度就是山幸彦娶了新的渡来势力的女性，把哥哥赶走成为部落首领的故事啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 12958#       发表于 2024-7-2 16:17
+
+这活动莫名其妙程度大概就比旺吉娜好点，好歹套了个皮
+哪怕纯血月厨要抽也得下狠心吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

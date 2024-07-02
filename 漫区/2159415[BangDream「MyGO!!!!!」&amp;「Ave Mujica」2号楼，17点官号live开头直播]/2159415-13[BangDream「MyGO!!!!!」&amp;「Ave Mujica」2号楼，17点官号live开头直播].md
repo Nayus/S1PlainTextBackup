@@ -6899,3 +6899,11 @@ Arthur.c @CARTHUR_X
 
 动画情报有看人说可能是新视觉图，因为C104要开了，又可以一图流卖周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18399#       发表于 2024-7-2 15:35
+
+视觉图就视觉图吧，鸡杂苦了半年了总要有点新东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

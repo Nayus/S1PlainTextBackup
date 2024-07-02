@@ -7017,3 +7017,15 @@ z8投票“gop和哭批谁更原一点”结果：这俩不是一帮人么
 
 大发表会热闹非凡，但mujica只有一个鬼图mv和一张一柄多卖卖半年的视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18412#       发表于 2024-7-2 17:57
+
+<blockquote>ydsbbt 发表于 2024-7-2 17:07
+被gop恶心到了然后要来清算mujica
+
+然后经典祥黑</blockquote>
+你还要小心那帮经典打着“人格修正”旗号在那yy自己成nina去扇祥巴掌的，只能说非常可笑
+

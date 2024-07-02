@@ -6947,3 +6947,20 @@ Arthur.c @CARTHUR_X
 
 wsd给动画买的档期也是周四吧，那可能梦一个动画正式放送前的周四还有新歌mc吗？
 
+
+*****
+
+####  九陌狂游  
+##### 18405#       发表于 2024-7-2 17:00
+
+我直接做梦提前半年七月份开始放送<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星天观测  
+##### 18406#       发表于 2024-7-2 17:01
+
+鸡身上发生过太多次擅自期待然后被狠狠打脸最后破防了，漏油们还是平常心一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

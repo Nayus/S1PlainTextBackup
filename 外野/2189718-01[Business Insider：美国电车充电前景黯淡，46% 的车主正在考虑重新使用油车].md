@@ -578,3 +578,11 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这说的不是美国吗……美国人确实没啥必要换电动车啊……
 
+
+*****
+
+####  尼曼兔  
+##### 56#       发表于 2024-7-2 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">不知道现在实际家用太阳能+储能什么行情了，我现在遇到的都是投资建光伏电站企业运营赚钱的，光看投资金额也可能是为了融资好搞钱都挺贵的
+

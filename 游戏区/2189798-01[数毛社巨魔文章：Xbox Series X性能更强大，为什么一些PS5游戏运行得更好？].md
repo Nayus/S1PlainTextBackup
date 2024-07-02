@@ -432,3 +432,14 @@ Xbox家的手柄不如ps家的，这个得骂，我反正只用xss玩玩西瓜�
 我是只是想骂xbox reward策略完全搞不明白，现在任务完成领不了，也不知道怎么解决。 ...</blockquote>
 你要比这个 隔壁ps的ps star已经一个多月不能用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 44#       发表于 2024-7-2 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459861&amp;ptid=2189798" target="_blank">糖然君 发表于 2024-7-2 20:20</a>
+
+你要比这个 隔壁ps的ps star已经一个多月不能用了</blockquote>
+现在好像能了
+

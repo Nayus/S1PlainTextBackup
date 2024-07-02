@@ -111,3 +111,18 @@
 不想爬楼了，请问这次的剧场版有字幕好一点的版本吗？求下载链接</blockquote>
 漫游字幕组有出货，我也是楼里找的，你倒着翻几页就有了、
 
+
+*****
+
+####  LuciferMustDie  
+##### 1774#       发表于 2024-7-2 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65385866&amp;ptid=2178694" target="_blank">oh_my_god 发表于 2024-6-26 13:03</a>
+
+平井是真的退步太多了
+
+这一幕的三人，对比种子时期这一集，真的丑太多了</blockquote>
+角色脸上没有心电图状的秽物
+
+所以，算回光返照
+

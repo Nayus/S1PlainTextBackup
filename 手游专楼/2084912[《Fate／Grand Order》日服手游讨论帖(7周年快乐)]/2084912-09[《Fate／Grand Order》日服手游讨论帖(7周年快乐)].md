@@ -1798,3 +1798,11 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 哪怕纯血月厨要抽也得下狠心吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 12959#       发表于 2024-7-2 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这啥，帅到发光？
+

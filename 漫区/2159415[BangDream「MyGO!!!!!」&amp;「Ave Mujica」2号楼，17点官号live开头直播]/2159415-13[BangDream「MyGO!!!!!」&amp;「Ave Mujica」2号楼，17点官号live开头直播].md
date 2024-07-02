@@ -6964,3 +6964,38 @@ wsd给动画买的档期也是周四吧，那可能梦一个动画正式放送�
 
 鸡身上发生过太多次擅自期待然后被狠狠打脸最后破防了，漏油们还是平常心一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 18407#       发表于 2024-7-2 17:07
+
+被gop恶心到了然后要来清算mujica<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+然后经典祥黑
+
+<img src="https://img.saraba1st.com/forum/202407/02/170651cgb2drn5r171d5d1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240702_170218.jpg</strong> (327.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-2 17:06 上传
+
+
+*****
+
+####  PDQ4  
+##### 18408#       发表于 2024-7-2 17:12
+
+只能狗批到处拿鸡当枪使的时候就能预料到这一天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18409#       发表于 2024-7-2 17:13
+
+z8投票“gop和哭批谁更原一点”结果：这俩不是一帮人么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -492,3 +492,11 @@ Demo还挺长的，连隐藏关在内大概一个半小时。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没在家也没法试玩，不过看了试玩全程视频观感不错。
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 54#       发表于 2024-7-2 12:25
+
+demo感觉还挺不错，画面舒服手感也在线
+

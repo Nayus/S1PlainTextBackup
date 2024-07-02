@@ -453,3 +453,16 @@ Xbox家的手柄不如ps家的，这个得骂，我反正只用xss玩玩西瓜�
 现在好像能了</blockquote>
 港服能 美服还打不开，也不知道修这玩意儿怎么还能按时区来的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuardHei  
+##### 46#       发表于 2024-7-2 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65456587&amp;ptid=2189798" target="_blank">csolfans 发表于 2024-7-2 14:18</a>
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+rhi外包其实不止b社啦，这个你去欧美一些3a级工作室干过就会发现没那么少见，毕竟每个工作室养一堆做引擎的也养不起了
+这也是为啥都在转ue5
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

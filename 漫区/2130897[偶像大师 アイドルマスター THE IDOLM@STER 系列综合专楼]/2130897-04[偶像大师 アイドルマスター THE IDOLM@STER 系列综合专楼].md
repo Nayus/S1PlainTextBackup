@@ -12902,3 +12902,30 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 说是不出，还是出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 5645#       发表于 2024-7-2 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460130&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-7-2 20:54</a>
+
+说是不出，还是出了</blockquote>
+三牛老师还是很有风度的，视频主体是通过讲解原作剧情分析这动画哪里做得有问题。
+
+*****
+
+####  庸necro  
+##### 5646#       发表于 2024-7-2 21:18
+
+53分钟，好看爱看
+
+*****
+
+####  liyropen  
+##### 5647#       发表于 2024-7-2 21:26
+
+是降压药<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

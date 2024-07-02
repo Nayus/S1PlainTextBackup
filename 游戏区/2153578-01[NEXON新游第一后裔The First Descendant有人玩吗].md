@@ -402,3 +402,23 @@ warframe退坑几年了，命运2没有固定队打raid，一测时试了这个�
 
 剑星出来之前觉得屁股还可以可以玩玩，打过剑星再来玩打了一晚上感觉不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  绚烂航迹云  
+##### 45#       发表于 2024-7-2 23:04
+
+邦尼屁股还是可以的，其他就一般吧，不够色
+
+系统也太像命运了吧
+
+
+*****
+
+####  陈词与芍药  
+##### 46#       发表于 2024-7-2 23:11
+
+PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都想卸载了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

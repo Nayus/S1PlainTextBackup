@@ -4123,3 +4123,29 @@ yuki妥妥学霸吧，应付初中还是没问题的
 已经播到差不多换ed了，稍微说两句也没什么吧？结局要来个大的话，只能想到彩羽甩了已经在交往的四眼仔， ...</blockquote>
 听着像百合熊岚但人变成狗真是有点掉san值
 
+
+*****
+
+####  猫睛石  
+##### 1849#       发表于 2024-7-2 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65459508&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-7-2 19:45</a>
+已经播到差不多换ed了，稍微说两句也没什么吧？结局要来个大的话，只能想到彩羽甩了已经在交往的四眼仔， ...</blockquote>
+听着像百合熊岚但人变成狗真是有点掉san值
+
+*****
+
+####  犬飼いろは  
+##### 1850#       发表于 2024-7-2 23:08
+
+<blockquote>https://m.weibo.cn/detail/5051826473011399
+
+Q娃7月标题，上北漫画
+
+24 超级不可思议的蛋
+
+25 夏天 大海 作业
+
+26 热死啦</blockquote>
+<img src="https://p.sda1.dev/18/4bfe97cd14d2cb306ae0fb8916ce3e08/e7cbae74gy1hra3asbv8aj20c8056405.jpg" referrerpolicy="no-referrer">
+

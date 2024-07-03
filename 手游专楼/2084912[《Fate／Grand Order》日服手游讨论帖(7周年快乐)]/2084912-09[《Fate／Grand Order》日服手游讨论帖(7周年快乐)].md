@@ -2147,3 +2147,45 @@ https://www.bilibili.com/video/BV1wshreoE26
 
 大姐姐+烟雾镜双核，勉强可以打过。
 
+
+*****
+
+####  qixinno2  
+##### 12992#       发表于 2024-7-3 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470644&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 19:19</a>
+
+又到了羡慕的时候了 萌新练试的资格都没有！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然而狗萌新根本不需要去试 随便都能组队 我是只有几个能用的还全是1宝
+
+*****
+
+####  alucardcz  
+##### 12993#       发表于 2024-7-3 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470752&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-3 19:31</a>
+
+然而狗萌新根本不需要去试 随便都能组队 我是只有几个能用的还全是1宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新也全是1宝 不要尬黑
+
+
+*****
+
+####  qixinno2  
+##### 12994#       发表于 2024-7-3 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470754&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 19:32</a>
+
+萌新也全是1宝 不要尬黑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先你就有三宝的狂那
+
+*****
+
+####  alucardcz  
+##### 12995#       发表于 2024-7-3 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470775&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-3 19:35</a>
+
+首先你就有三宝的狂那</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看这本能上把撒卡吗
+

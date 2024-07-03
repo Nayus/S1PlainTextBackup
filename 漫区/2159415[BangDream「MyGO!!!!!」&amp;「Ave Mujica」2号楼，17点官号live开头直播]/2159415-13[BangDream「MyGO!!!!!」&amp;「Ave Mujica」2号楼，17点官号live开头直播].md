@@ -7718,3 +7718,15 @@ pico4感觉会在周年live或者周年邦tv上公布吧<img src="https://static
 应该是本楼到的最晚的bd了
 <img src="https://p.sda1.dev/18/db2209eef58ff1153044ddbd96a73498/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 18484#       发表于 2024-7-3 19:33
+
+[https://www.lisani.jp/0000260575/](https://www.lisani.jp/0000260575/)
+
+lisani的6.8live repo
+
+没什么东西，但是很会夸，学习一下怎么吹彩虹屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

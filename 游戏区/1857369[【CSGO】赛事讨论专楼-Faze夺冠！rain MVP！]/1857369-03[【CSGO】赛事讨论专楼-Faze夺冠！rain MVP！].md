@@ -55,3 +55,11 @@ snax记得rmr打得挺好的，不知道现在面对一线队伍怎么样
 
 怎么g2总喜欢找些究极老登呢？
 
+
+*****
+
+####  朔方原的星  
+##### 4354#         楼主| 发表于 2024-7-4 00:49
+
+g2要买新指挥我是有点希望glave能有个机会的，指挥个强力阵容结果不会差，但一想G2肯定是狠狠补强要组满配战舰的，glave近年没啥成绩估计看不上，结果到最后买snax......真比glave强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

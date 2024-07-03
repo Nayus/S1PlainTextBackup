@@ -301,3 +301,14 @@ Fafnar Mk. Destiney!
 之前在想孔帕斯这玩意好歹是地球联合 plant弄出来的高达上没有科技压制 除了最后荣耀守卫外.后半段还是二代 ...</blockquote>
 融了两代主角舰技能条不说，似乎还有大量以往MA的特性<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gary76  
+##### 1791#       发表于 2024-7-3 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468476&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-7-3 16:21</a>
+
+融了两代主角舰技能条不说，似乎还有大量以往MA的特性</blockquote>
+感覺這才是真正意義上的強襲型戰艦，沒個撞角，你好意思說你能強襲嗎<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

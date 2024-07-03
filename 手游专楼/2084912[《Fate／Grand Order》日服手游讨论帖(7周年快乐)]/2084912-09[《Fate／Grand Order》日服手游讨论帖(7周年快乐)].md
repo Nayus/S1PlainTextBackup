@@ -1857,3 +1857,23 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 至少能UP一下几个加成的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 12965#       发表于 2024-7-3 13:32
+
+<blockquote>TheLoof 发表于 2024-7-2 16:17
+这活动莫名其妙程度大概就比旺吉娜好点，好歹套了个皮
+
+哪怕纯血月厨要抽也得下狠心吧
+
+ ...</blockquote>
+只有真正的月厨才知道这俩谁
+
+隔壁有人1月就根据剪影猜测这俩要实装
+
+可惜就算是当时我也完全不知道他在说什么
+
+这活动也完全提不起兴致打，希望是为了周年在憋个大
+

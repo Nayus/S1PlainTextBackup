@@ -1990,3 +1990,43 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 笑死，这90++喂饭怎么还给提妈和库库一人送了半碗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">大佬的大姐姐能打掉第1面？
 
+
+*****
+
+####  TheLoof  
+##### 12979#       发表于 2024-7-3 18:28
+
+ 本帖最后由 TheLoof 于 2024-7-3 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470143&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 18:26</a>
+
+大佬的大姐姐能打掉第1面？</blockquote>
+所以说是半碗啊，开门30w的实在不行等1t咯
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 12980#       发表于 2024-7-3 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470163&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-7-3 18:28</a>
+
+所以说是半碗啊，开门30w的实在不行等1t咯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">试了下1宝黑杯大姐姐可以 第1回合必须有2张卡 打个ex
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">本来想用狂娜强上的 发现第3面必须宝红红 放弃了
+
+*****
+
+####  森兰丸  
+##### 12981#       发表于 2024-7-3 18:37
+
+<img src="https://img.saraba1st.com/forum/202407/03/183728cgb5rmsga9pexg0r.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (866.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 18:37 上传
+
+羁绊是啥好吃吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

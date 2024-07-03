@@ -7699,3 +7699,13 @@ pico4感觉会在周年live或者周年邦tv上公布吧<img src="https://static
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Drawrain  
+##### 18482#       发表于 2024-7-3 18:27
+
+好熟悉阿，是不是线下集会的切片阿
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

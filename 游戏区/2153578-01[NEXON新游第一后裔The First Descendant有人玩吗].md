@@ -473,3 +473,13 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 滋水枪加氪命，我为什么不去摘棉花<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  刹海之绊  
+##### 53#       发表于 2024-7-3 08:50
+
+升满一个mod300w钱 看别人测试视频高难防御7波打完才10w出头，这我玩鸡毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+直接润了，不恶心自己，朋友拉我去玩命运2了
+

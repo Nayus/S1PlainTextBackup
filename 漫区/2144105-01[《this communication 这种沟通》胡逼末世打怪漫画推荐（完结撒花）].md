@@ -1912,3 +1912,11 @@ http://m.weibo.cn/status/5050982306418937?
 通宵看完，完整的故事、舒服的节奏、鲜明的人物形象<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 小七小八太萌萌哒了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狂马王  
+##### 190#       发表于 2024-7-3 09:08
+
+男主第一次觉醒的时候，除了把6个女主都无力化，还把新所长给嘎了是吗？那就是发现了新所长研究失败了吧，为什么不恢复旧所长的地位呢？
+

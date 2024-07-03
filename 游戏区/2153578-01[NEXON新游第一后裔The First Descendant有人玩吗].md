@@ -596,3 +596,13 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 妈的越想越气，怎么没人用这套模式学全境封锁，我做梦都想玩到美少女版的全境<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NANA1Komatsu  
+##### 65#       发表于 2024-7-3 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466103&amp;ptid=2153578" target="_blank">Yeelolo 发表于 2024-7-3 12:48</a>
+妈的越想越气，怎么没人用这套模式学全境封锁，我做梦都想玩到美少女版的全境 ...</blockquote>
+司马运营现在改成暗黑那种赛季制了，直接弃坑
+

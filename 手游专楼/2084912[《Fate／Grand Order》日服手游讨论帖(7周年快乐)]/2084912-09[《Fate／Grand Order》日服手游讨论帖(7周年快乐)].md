@@ -2117,3 +2117,33 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 瞎说....非洲人库库才3宝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">欧 为什么萌新从来没欧过
 
+
+*****
+
+####  qixinno2  
+##### 12989#       发表于 2024-7-3 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470374&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 18:51</a>
+
+https://www.bilibili.com/video/BV1wshreoE26
+
+录了个1宝大姐姐单核 你可以看看  做好思想准备 钢琴弹错了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这俩都试了才说的不如一宝宇蛇神啊
+
+*****
+
+####  alucardcz  
+##### 12990#       发表于 2024-7-3 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470629&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-3 19:18</a>
+
+我这俩都试了才说的不如一宝宇蛇神啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又到了羡慕的时候了 萌新练试的资格都没有！
+
+*****
+
+####  khxooo  
+##### 12991#       发表于 2024-7-3 19:20
+
+大姐姐+烟雾镜双核，勉强可以打过。
+

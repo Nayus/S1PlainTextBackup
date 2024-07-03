@@ -2189,3 +2189,31 @@ https://www.bilibili.com/video/BV1wshreoE26
 首先你就有三宝的狂那</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看这本能上把撒卡吗
 
+
+*****
+
+####  qixinno2  
+##### 12996#       发表于 2024-7-3 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470795&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 19:36</a>
+
+你看这本能上把撒卡吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你有 我除了棉被靠着送的是4 剩下基本都是1
+
+*****
+
+####  都谷捻柏  
+##### 12997#       发表于 2024-7-3 19:40
+
+草，隔壁提供了个牢青的思路，高配居然可以打6加成，虽然废拐，但是这可是牢青啊！
+
+*****
+
+####  qixinno2  
+##### 12998#       发表于 2024-7-3 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470821&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-7-3 19:40</a>
+
+草，隔壁提供了个牢青的思路，高配居然可以打6加成，虽然废拐，但是这可是牢青啊！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而没啥意义吧 太费拐了 还不能去嫖好友的5宝牢青
+

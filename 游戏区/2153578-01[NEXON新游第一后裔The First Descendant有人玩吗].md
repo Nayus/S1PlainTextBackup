@@ -618,3 +618,13 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 失落方舟就算了，打起来人都看不见
 
+
+*****
+
+####  X9999  
+##### 67#       发表于 2024-7-3 14:14
+
+蝗了一波，打到后面有个主线任务竟然搞跳跳乐还有时间限制<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+到处都是骗钱的玩意儿，搞个化妆都能收费。。。
+

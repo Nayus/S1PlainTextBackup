@@ -12342,3 +12342,14 @@ AX之前说的时间好像不是这个来着，不过也无所谓。
 
 2024-7-3 11:33 上传
 
+
+*****
+
+####  酷乐  
+##### 1195#       发表于 2024-7-3 14:16
+
+我去，居然活了，但是日服已经三周年<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">紫龙代理的国际服都快2周年了
+[https://space.bilibili.com/1444838704/dynamic](https://space.bilibili.com/1444838704/dynamic)
+
+这下你发的财报又要好看了
+

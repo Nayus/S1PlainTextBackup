@@ -232,3 +232,14 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">之前在想孔帕斯这玩意好歹是地球联合 plant弄出来的高达上没有科技压制 除了最后荣耀守卫外.后半段还是二代机打三代机 机体劣势.但回想了下 这千禧号离谱的过头了点.这科技领先程度也不比荣耀守卫低到哪里去。
 
+
+*****
+
+####  太极八爪鱼  
+##### 1785#       发表于 2024-7-3 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65421538&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-6-28 19:13</a>
+
+福田那个鸟加命运能召唤平行世界的残像形成分身是什么脑洞，这是高达作品也不会轻易采取的设定吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">高达NT
+

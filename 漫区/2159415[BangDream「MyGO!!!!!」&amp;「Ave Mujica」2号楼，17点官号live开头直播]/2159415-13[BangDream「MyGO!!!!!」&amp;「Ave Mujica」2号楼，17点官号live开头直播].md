@@ -7647,3 +7647,11 @@ mujica所有相关在日本人那边目前都没有什么热度吧<img src="http
 
 官推怎么还能有第三官推说法，不过彩花音确实是彩cp里tag数第三的。
 
+
+*****
+
+####  星天观测  
+##### 18476#       发表于 2024-7-3 09:35
+
+反正周年活动搞主唱三人行真的坏吧，除非所有主唱都是三人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

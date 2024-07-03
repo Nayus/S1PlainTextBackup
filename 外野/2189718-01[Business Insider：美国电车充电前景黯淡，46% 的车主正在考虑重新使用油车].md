@@ -764,3 +764,13 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 让人走出石油舒适区，为电车发展贡献力量，阿美这消费习惯和人文环境，难
 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HOIHOISAN  
+##### 71#       发表于 2024-7-3 09:44
+
+<blockquote>熊边上 发表于 2024-7-3 06:32
+你是不是把美国和加拿大搞混了？美国是3亿多人，单一国家新车销量全球第二 ...</blockquote>
+住不起大豪斯的也配有人权？
+

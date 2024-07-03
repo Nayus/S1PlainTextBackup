@@ -4149,3 +4149,11 @@ Q娃7月标题，上北漫画
 26 热死啦</blockquote>
 <img src="https://p.sda1.dev/18/4bfe97cd14d2cb306ae0fb8916ce3e08/e7cbae74gy1hra3asbv8aj20c8056405.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1851#       发表于 2024-7-3 11:21
+
+好消息：今年没有暑期合宿
+

@@ -2048,3 +2048,22 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 羁绊是啥好吃吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你满宝！ 萌新1宝！
 
+
+*****
+
+####  qixinno2  
+##### 12984#       发表于 2024-7-3 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">青子二宝也能黑杯五加成 然而我只有一宝 最后一T剩15W 还不如用一宝的宇蛇神
+
+*****
+
+####  alucardcz  
+##### 12985#       发表于 2024-7-3 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470346&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-3 18:49</a>
+
+青子二宝也能黑杯五加成 然而我只有一宝 最后一T剩15W 还不如用一宝的宇蛇神 ...</blockquote>
+[https://www.bilibili.com/video/BV1wshreoE26](https://www.bilibili.com/video/BV1wshreoE26)
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">录了个1宝大姐姐单核 你可以看看  做好思想准备 钢琴弹错了先不说  1面还得有2张卡
+

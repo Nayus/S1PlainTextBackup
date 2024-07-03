@@ -552,3 +552,28 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 简单玩玩没啥问题，能不能长期刷不好说，看后续运营水平吧
 
+
+*****
+
+####  emmerMK2  
+##### 61#       发表于 2024-7-3 10:53
+
+ 本帖最后由 emmerMK2 于 2024-7-3 10:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65464570&amp;ptid=2153578" target="_blank">zzy516232108 发表于 2024-7-3 10:37</a>
+
+草，昨晚我在打xdf，本来想今天下载的</blockquote>
+白嫖蝗一蝗得了
+
+感觉这游戏活不了多久
+
+内容空洞单调，数值离谱，氪金吃相难看，又没有软色情，玩个啥
+
+*****
+
+####  绯想天の天子  
+##### 62#       发表于 2024-7-3 10:54
+
+ 本帖最后由 绯想天の天子 于 2024-7-3 10:58 编辑 
+
+上两测都参加了。上次测试砍数值就感觉策划很不妙了。这次数值没砍，结果开核桃的虚空boss血量给你加倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，更别提离谱的氪金项目。棒子的脑子确实有坑
+

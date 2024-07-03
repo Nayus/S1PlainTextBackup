@@ -7673,3 +7673,11 @@ mujica所有相关在日本人那边目前都没有什么热度吧<img src="http
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  rikaren  
+##### 18479#       发表于 2024-7-3 12:42
+
+来点pico4和am消息，顺便再通知pico5也开始预备了
+

@@ -577,3 +577,14 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 上两测都参加了。上次测试砍数值就感觉策划很不妙了。这次数值没砍，结果开核桃的虚空boss血量给你加倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，更别提离谱的氪金项目。棒子的脑子确实有坑
 
+
+*****
+
+####  绚烂航迹云  
+##### 63#       发表于 2024-7-3 12:42
+
+低情商：暴死预定
+高情商：底子有，学尘白能火
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.38)
+

@@ -7663,3 +7663,13 @@ mujica所有相关在日本人那边目前都没有什么热度吧<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 会是母鸡卡往前跳票到十月吗？相信，并且满怀期待
 
+
+*****
+
+####  MASKA-1  
+##### 18478#       发表于 2024-7-3 12:34
+
+别太乐观，pv里都还是1月放送予定，别往后跳就行。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

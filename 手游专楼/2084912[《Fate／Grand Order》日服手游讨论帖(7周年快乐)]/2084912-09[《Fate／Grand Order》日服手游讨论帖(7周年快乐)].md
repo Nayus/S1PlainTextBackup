@@ -1964,3 +1964,29 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 这种宝具动画都多少个人了。。。
 
+
+*****
+
+####  alucardcz  
+##### 12976#       发表于 2024-7-3 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">狂娜强上黑杯全buff才打了30几万。。。只能用大姐姐了
+
+*****
+
+####  TheLoof  
+##### 12977#       发表于 2024-7-3 18:23
+
+笑死，这90++喂饭怎么还给提妈和库库一人送了半碗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12978#       发表于 2024-7-3 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470106&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-7-3 18:23</a>
+
+笑死，这90++喂饭怎么还给提妈和库库一人送了半碗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">大佬的大姐姐能打掉第1面？
+

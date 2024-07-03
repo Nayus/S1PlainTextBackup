@@ -323,3 +323,21 @@ Fafnar Mk. Destiney!
 融了两代主角舰技能条不说，似乎还有大量以往MA的特性</blockquote>
 反派12连已经够力大非砖了，但科技点差距太大了. 隔壁高达2代跟3代还是属性上差距为主 给观众代差感没那么大.这母舰 科技点差的不是1代起步了..盾能强过矛 还是一个数值怪矛.
 
+
+*****
+
+####  novyDC  
+##### 1793#       发表于 2024-7-4 04:37
+
+这下真超级系了
+
+<img src="https://img.saraba1st.com/forum/202407/04/043719hg3toqqodzo34tod.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1720038992274.jpg</strong> (788.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 04:37 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

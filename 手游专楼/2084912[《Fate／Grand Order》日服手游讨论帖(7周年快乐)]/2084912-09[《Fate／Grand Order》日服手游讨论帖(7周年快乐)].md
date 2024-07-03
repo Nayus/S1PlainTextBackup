@@ -1885,3 +1885,21 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 村夫池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 12967#       发表于 2024-7-3 17:19
+
+三破还不错，其他没了
+
+*****
+
+####  alucardcz  
+##### 12968#       发表于 2024-7-3 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65469228&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-3 17:11</a>
+
+村夫池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该豹了 5宝孔明走起
+

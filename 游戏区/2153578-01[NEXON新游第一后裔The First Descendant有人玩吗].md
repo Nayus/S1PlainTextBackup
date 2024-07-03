@@ -588,3 +588,11 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  Yeelolo  
+##### 64#       发表于 2024-7-3 12:48
+
+妈的越想越气，怎么没人用这套模式学全境封锁，我做梦都想玩到美少女版的全境<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

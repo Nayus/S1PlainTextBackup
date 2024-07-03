@@ -1991,3 +1991,14 @@ http://m.weibo.cn/status/5050982306418937?
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  没取名啊  
+##### 198#       发表于 2024-7-3 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65465927&amp;ptid=2144105" target="_blank">redsouris 发表于 2024-7-3 12:32</a>
+你没看仔细，第一次觉醒后他是故意喝药的
+或者说他有计划的想通过失忆让女猎人认为他恢复到“坏掉”之前 ...</blockquote>
+44话德鲁哈发现了所长伪造的杯子并质问是不是他下了药，看所长的表现就是他干的。德鲁哈推测觉醒后的自己本来打算喝药，但是转念一想可以靠伪装来让别人以为他恢复了就没喝，最后还是所长下的药让他失忆
+

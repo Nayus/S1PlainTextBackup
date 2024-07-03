@@ -279,3 +279,14 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 
 没有 美玲2年下来对狼却魅了，现在的关系挺好的同事，狼和卡 这对要死要活的还差一次吗
 
+
+*****
+
+####  gary76  
+##### 1789#       发表于 2024-7-3 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65421538&amp;ptid=2178694" target="_blank">Ironman_mk5 发表于 2024-6-29 11:13</a>
+
+福田那个鸟加命运能召唤平行世界的残像形成分身是什么脑洞，这是高达作品也不会轻易采取的设定吧 ...</blockquote>
+Fafnar Mk. Destiney!
+

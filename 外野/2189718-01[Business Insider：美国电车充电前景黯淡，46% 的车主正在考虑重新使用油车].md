@@ -814,3 +814,11 @@ phev的优点当然是日常市区可以全电使用，在电费比油费便宜�
 
 —— 来自 Lenovo TB-9707F, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  pawn爹的全家桶  
+##### 76#       发表于 2024-7-3 15:02
+
+美式大v8，国6去他妈
+

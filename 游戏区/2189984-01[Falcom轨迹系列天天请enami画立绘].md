@@ -576,3 +576,19 @@ p站上一堆画师比e圣好
 话说有人炼过村上的ai吗</blockquote>
 我看falcom自己已经在炼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 62#       发表于 2024-7-3 17:56
+
+看来离村上跑路的日子不远了，且玩且珍惜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tau_cross  
+##### 63#       发表于 2024-7-3 18:04
+
+还好黎轨能替换立绘 要不真玩不下去
+

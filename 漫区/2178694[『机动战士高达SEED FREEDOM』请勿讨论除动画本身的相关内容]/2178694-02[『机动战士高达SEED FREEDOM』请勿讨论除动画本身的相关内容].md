@@ -243,3 +243,31 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 福田那个鸟加命运能召唤平行世界的残像形成分身是什么脑洞，这是高达作品也不会轻易采取的设定吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">高达NT
 
+
+*****
+
+####  oi99o  
+##### 1786#       发表于 2024-7-3 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65462440&amp;ptid=2178694" target="_blank">线程召唤使 发表于 2024-7-3 01:42</a>
+出啥事了，那个VR高达银灰幻影不是还没公布日期吗，怎么网易推了个中川翔子的主题曲https://music.163.com/ ...</blockquote>
+主题曲先行咯
+
+<img src="https://img.saraba1st.com/forum/202407/03/075658jr3rrvddfccwcjjr.png" referrerpolicy="no-referrer">
+
+<strong>img_3468.png</strong> (747.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 07:56 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  dio999  
+##### 1787#       发表于 2024-7-3 08:04
+
+所以最后狼是开了后宫？种命不是和卡家莉分了然后和美玲一起，现在又搞回去了？
+

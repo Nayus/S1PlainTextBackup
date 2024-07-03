@@ -1963,3 +1963,11 @@ http://m.weibo.cn/status/5050982306418937?
 
 居然还有DLC，一转料理漫画<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鬼眼见证人  
+##### 195#       发表于 2024-7-3 11:48
+
+感觉还蛮有趣的，唯一的缺点是女队友不够萌，杀起来感觉那么可怜。
+

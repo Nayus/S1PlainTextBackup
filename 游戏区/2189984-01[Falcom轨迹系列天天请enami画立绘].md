@@ -675,3 +675,31 @@ p站上的e圣也比e圣好
 
 按泥潭的口味大概找saitom来画才满意吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 72#       发表于 2024-7-3 19:47
+
+ 本帖最后由 卢迪克 于 2024-7-3 19:53 编辑 
+
+20年从你法跑路画师的最新作品，
+
+<img src="https://img.saraba1st.com/forum/202407/03/194748x57zhr5cbm8wbowm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240703_194721.jpg</strong> (36.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-3 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202407/03/194753a07f1eumpfddff1e.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240703_194656.jpg</strong> (71.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-3 19:47 上传
+

@@ -2217,3 +2217,23 @@ https://www.bilibili.com/video/BV1wshreoE26
 草，隔壁提供了个牢青的思路，高配居然可以打6加成，虽然废拐，但是这可是牢青啊！ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而没啥意义吧 太费拐了 还不能去嫖好友的5宝牢青
 
+
+*****
+
+####  都谷捻柏  
+##### 12999#       发表于 2024-7-3 19:48
+
+<blockquote>qixinno2 发表于 2024-7-3 19:42
+然而没啥意义吧 太费拐了 还不能去嫖好友的5宝牢青</blockquote>
+纯厨力队伍，推荐人就是金时+提妈+暗狐+奥伯龙。当时魔夜联动厨力抽了4宝牢青，已经对她放弃希望了，没想到还能用，那必须掏出来用用，果断掏出封存了快两年的c呆（13.5绊，还能挣扎一下）。
+
+*****
+
+####  qixinno2  
+##### 13000#       发表于 2024-7-3 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470885&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-7-3 19:48</a>
+
+纯厨力队伍，推荐人就是金时+提妈+暗狐+奥伯龙。当时魔夜联动厨力抽了4宝牢青，已经对她放弃希望了，没想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬
+

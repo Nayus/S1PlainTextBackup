@@ -491,3 +491,15 @@ ps5超频冒烟，液金漏液，xsx独占rnda2，风向一边倒<img src="https
 所以大买特买。手上有那么多ip，就是作个死宣布下一代主机用龙芯和摩尔线程，也不会马上就扑 ...</blockquote>
 ip需要运营的，只要别走光环机器肥波的老路问题就不大，xgs的管理很迷
 
+
+*****
+
+####  csolfans  
+##### 49#       发表于 2024-7-3 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65460574&amp;ptid=2189798" target="_blank">GuardHei 发表于 2024-7-2 21:35</a>
+rhi外包其实不止b社啦，这个你去欧美一些3a级工作室干过就会发现没那么少见，毕竟每个工作室养一堆做引擎 ...</blockquote>
+一开始我也是这么想的，但是想到他们可是有id software 突然觉得又说不通
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

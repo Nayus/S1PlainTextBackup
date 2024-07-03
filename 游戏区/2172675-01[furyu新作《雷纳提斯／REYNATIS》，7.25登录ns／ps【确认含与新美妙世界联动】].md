@@ -76,3 +76,14 @@ PSN日服试玩版2.39分
 
 只能说Furyu真敢接发行，真实冤大头
 
+
+*****
+
+####  66367749  
+##### 71#       发表于 2024-7-3 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65451140&amp;ptid=2172675" target="_blank">cowboyshao 发表于 2024-7-2 00:09</a>
+PSN日服试玩版2.39分</blockquote>
+玩了试玩，夜晚日本城市比较喜欢，但操作太便秘了。
+不过“喜欢ps2的可会觉得还行”的评价还有点道理。
+

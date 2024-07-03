@@ -584,3 +584,23 @@ demo感觉还挺不错，画面舒服手感也在线
 
 美术怪异又脏，对获取战场信息完全是负体验，demo展现的塔性能太差 ，没有存在感，全靠主角小短腿救火。但是我爱塔防游戏，所以我等xgp<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 64#       发表于 2024-7-3 10:20
+
+这游戏展现的日本传统艺术还是太传统了，和隔壁浪人崛起的脏乱差一样问题。当年大神好就好在做了一堆现代梗进去强化娱乐性。
+主角的战斗系统还不如天照的主副武器灵活，c技真不适合这种战局，后期看起来可以换模组但也没啥本质改变。
+角色全是哑巴，但这巫女服侧开和前开其实挺过激的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 65#       发表于 2024-7-3 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65462080&amp;ptid=2140223" target="_blank">寇马可 发表于 2024-7-3 00:38</a>
+没有看到主角有经验提升的要素，应该是比较纯正的act，但是主角的性能实在是一言难尽，攻击是简单的c技派生 ...</blockquote>
+c2不能接空中攻击白送大硬直+1，回避派生轻攻击也算第一下这个细节倒是好评，也可以连续取消回避硬直，但没有后续offset，还是太浅了。
+

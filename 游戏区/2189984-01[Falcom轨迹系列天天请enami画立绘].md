@@ -531,3 +531,16 @@ p站上一堆画师比e圣好
 
 难道他们开价会比e圣高吗
 
+
+*****
+
+####  whzfjk  
+##### 58#       发表于 2024-7-3 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65469006&amp;ptid=2189984" target="_blank">倪哥干你 发表于 2024-7-3 16:58</a>
+
+p站上一堆画师比e圣好
+
+难道他们开价会比e圣高吗</blockquote>
+因素挺多的，适不适合轨迹系列，愿不愿意接单，交付效率如何，抗压能力如何
+

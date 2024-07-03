@@ -576,3 +576,11 @@ demo感觉还挺不错，画面舒服手感也在线
 
 玩了下demo感觉是个试验气氛很浓的作品，丢愿望单等骨折价好了233
 
+
+*****
+
+####  conanoysq  
+##### 63#       发表于 2024-7-3 10:03
+
+美术怪异又脏，对获取战场信息完全是负体验，demo展现的塔性能太差 ，没有存在感，全靠主角小短腿救火。但是我爱塔防游戏，所以我等xgp<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

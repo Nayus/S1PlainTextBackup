@@ -1955,3 +1955,11 @@ http://m.weibo.cn/status/5050982306418937?
 男主第一次觉醒的时候，除了把6个女主都无力化，还把新所长给嘎了是吗？那就是发现了新所长研究失败了吧， ...</blockquote>
 顺序应该是德鲁哈刚觉醒完就给老所长背刺了吧，估摸着老所长怂了这么久，这次也立刻搞清楚了不马上给他洗回初始状态那一切全完了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">一切只剩三餐了属于是
 
+
+*****
+
+####  godvim  
+##### 194#       发表于 2024-7-3 11:00
+
+居然还有DLC，一转料理漫画<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

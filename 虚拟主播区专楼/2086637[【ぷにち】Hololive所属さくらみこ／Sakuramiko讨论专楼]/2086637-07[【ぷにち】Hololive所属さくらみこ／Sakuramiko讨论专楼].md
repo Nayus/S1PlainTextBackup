@@ -2956,3 +2956,28 @@ F}S3WZ4M6VQ}G6Y%[N`4P}L.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/02/204348bl7m7mjlsm7sjn7n.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9137#         楼主| 发表于 2024-7-3 19:04
+
+今天两个人要锁上了吗
+
+直播效果拉满
+
+*****
+
+####  holoan  
+##### 9138#         楼主| 发表于 2024-7-3 20:06
+
+<img src="https://img.saraba1st.com/forum/202407/03/200534d6wg70f1i1yy1wql.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 20:05 上传
+
+今天3人吃饭了，另外说不定mio会在直播里出现
+

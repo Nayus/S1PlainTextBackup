@@ -12983,3 +12983,28 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  cckuku  
+##### 5654#       发表于 2024-7-3 09:18
+
+摸着拉拉过河了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 5655#       发表于 2024-7-3 09:41
+
+一定是大学吗，不能是黛专?
+
+*****
+
+####  粘土火星  
+##### 5656#       发表于 2024-7-3 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449900&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-7-1 21:35</a>
+
+【新游戏模式 北沢志保 剧情PV iDOL GRAND-PRIX【偶像大师百万现场MLTD】】 https://www.bilibili.com/vide ...</blockquote>
+土豆程序员今年怎么大奋发了，总之是好事
+

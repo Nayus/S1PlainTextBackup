@@ -493,3 +493,52 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  火之魂  
+##### 55#       发表于 2024-7-3 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">几个女角色氪金皮怎么姿势体型都一样的
+
+*****
+
+####  zzy516232108  
+##### 56#       发表于 2024-7-3 10:32
+
+漏油评价下
+
+我看别人说 这游戏是色版warframe，那不是几个男人也要用？
+
+
+*****
+
+####  emmerMK2  
+##### 57#       发表于 2024-7-3 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65464496&amp;ptid=2153578" target="_blank">zzy516232108 发表于 2024-7-3 10:32</a>
+
+漏油评价下
+
+我看别人说 这游戏是色版warframe，那不是几个男人也要用？</blockquote>
+根本不涩，别浪费时间了
+
+*****
+
+####  zzy516232108  
+##### 58#       发表于 2024-7-3 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65464561&amp;ptid=2153578" target="_blank">emmerMK2 发表于 2024-7-3 10:36</a>
+
+根本不涩，别浪费时间了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，昨晚我在打xdf，本来想今天下载的
+
+*****
+
+####  亚瑟摩根  
+##### 59#       发表于 2024-7-3 10:38
+
+太傻逼了，好看的皮都要氪金，而且还不便宜
+
+结果通行证看完一圈都只有枪皮，瑟瑟的皮想要只能氪。这🐕巴吃香太难看。好歹参加了几次beta，就送一个面罩，死🐎
+

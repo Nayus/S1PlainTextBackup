@@ -502,3 +502,22 @@ enami主要是画人脸越来越包子了吧，给星海4的立绘我还挺喜�
 
 要说enami帮近藤挡过子弹，不如说近藤帮法老控凯子挡过子弹。
 
+
+*****
+
+####  plok201  
+##### 55#       发表于 2024-7-3 16:45
+
+E大神最厉害是真的画了个剑大妈出来，搞得每次阿龙吐槽都感觉不是轻松搞笑剧情而是实话实说被抓<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KevinGraham  
+##### 56#       发表于 2024-7-3 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468581&amp;ptid=2189984" target="_blank">塔尔洛斯 发表于 2024-7-3 16:30</a>
+比黎轨2那堆新CG的画师好，法老控现在新歌手和新画师比以前都退步了。
+
+而且不是有说法，enami原案之后falc ...</blockquote>
+人设原案都是falcom出的，这你还真就搞反了
+

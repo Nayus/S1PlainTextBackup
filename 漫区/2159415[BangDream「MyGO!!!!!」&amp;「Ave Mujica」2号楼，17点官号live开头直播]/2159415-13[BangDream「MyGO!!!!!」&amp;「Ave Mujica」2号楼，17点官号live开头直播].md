@@ -7744,3 +7744,19 @@ lisani的6.8live repo
 
 嘿嘿嘿还挺会写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18486#       发表于 2024-7-3 21:00
+
+<img src="https://img.saraba1st.com/forum/202407/03/205556sh2339oo2p7po7jj.png" referrerpolicy="no-referrer">
+
+<strong>Image_1720011266053.png</strong> (43.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 20:55 上传
+
+日语苦手，这里的“耽美”就是单纯取美丽的意思吗？还在想是不是和耽美主义有没有什么关系。
+

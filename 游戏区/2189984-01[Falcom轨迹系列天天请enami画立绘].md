@@ -720,3 +720,16 @@ p站上的e圣也比e圣好
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  nozomitech  
+##### 75#       发表于 2024-7-3 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470684&amp;ptid=2189984" target="_blank">塔尔洛斯 发表于 2024-7-3 12:23</a>
+
+找画师一般游戏都是应征，再审查，直接请上门还挺少见的。
+
+而且如果人设真的是出自社内的话，找社外画个图 ...</blockquote>
+外面找主要时间不好把控吧？你法的人设没记错就是自己定的，而且现在3d建模根本不需要立绘，完全可以等定稿在画，但时间就不好把控。
+

@@ -435,3 +435,13 @@ enami主要是画人脸越来越包子了吧，给星海4的立绘我还挺喜�
 黎1村上，黎2新人画师</blockquote>
 那直接用他俩不就行了
 
+
+*****
+
+####  KevinGraham  
+##### 49#       发表于 2024-7-3 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468027&amp;ptid=2189984" target="_blank">苏斯赫查 发表于 2024-7-3 15:46</a>
+那直接用他俩不就行了</blockquote>
+村上爆肝画京都迷城去了，黎2新人画的非常菜，楼上也有人说过了，估计培养两年就上了
+

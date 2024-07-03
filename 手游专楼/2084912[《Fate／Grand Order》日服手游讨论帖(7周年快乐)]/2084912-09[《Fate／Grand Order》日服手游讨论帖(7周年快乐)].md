@@ -2269,3 +2269,19 @@ https://www.bilibili.com/video/BV1wshreoE26
 
 这三破宝具有种旺吉娜异父异母的姐妹的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">但是满破还挺可爱的。
 
+
+*****
+
+####  eilot  
+##### 13004#       发表于 2024-7-4 01:15
+
+90+
+
+全是哈姆大炮+兩隻術呆，自己是50充活動禮裝，5人禮裝自由不用換人，
+
+不過用技能方面要小心，因為對面敵人實在太少了
+
+10張符
+
+一張活動禮裝都沒有
+

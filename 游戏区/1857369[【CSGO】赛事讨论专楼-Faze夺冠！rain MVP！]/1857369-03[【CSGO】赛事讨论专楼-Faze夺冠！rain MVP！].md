@@ -73,3 +73,18 @@ g2要买新指挥我是有点希望glave能有个机会的，指挥个强力阵�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  heseran  
+##### 4356#       发表于 2024-7-4 01:10
+
+ 本帖最后由 heseran 于 2024-7-4 01:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65473412&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2024-7-4 00:59</a>
+
+至少比诸葛能杀，g2 肯定问过 kyxsan 这种新生代指挥，没买到只能说和当时 siuy 一样，不愿意去
+
+—— 来自 ...</blockquote>
+
+还是看看snax变成呼吸这个位置还能不能杀再说吧，他在gl很多时候进攻都是走后面的，呼吸拉枪线更多一些。要我说换呼吸估计还不如换hunter，hunter占着这个位置不做人的次数有点太多了，进攻补枪补不上怎么玩啊，不过这下可能hunter要换位置了吧。
+

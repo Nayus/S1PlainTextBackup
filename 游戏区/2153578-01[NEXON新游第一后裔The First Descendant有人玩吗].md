@@ -628,3 +628,28 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 到处都是骗钱的玩意儿，搞个化妆都能收费。。。
 
+
+*****
+
+####  kuglv  
+##### 68#       发表于 2024-7-3 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466808&amp;ptid=2153578" target="_blank">哆哆鸡 发表于 2024-7-3 14:03</a>
+
+那么还有什么steam上可以玩到，带中文的韩游吗，
+
+棒子本土搞了手机验证以后就基本没有玩过棒游了，以前不搞 ...</blockquote>
+神佑释放、救世之树、KurtzPel这种<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">质量都挺一言难尽的
+
+*****
+
+####  哆哆鸡  
+##### 69#       发表于 2024-7-3 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466966&amp;ptid=2153578" target="_blank">kuglv 发表于 2024-7-3 14:18</a>
+
+神佑释放、救世之树、KurtzPel这种质量都挺一言难尽的</blockquote>
+不管质量了，有没有和兔子屁股差不多等级的。
+
+神佑释放我去看过，还挺正经的
+

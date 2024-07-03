@@ -7681,3 +7681,11 @@ mujica所有相关在日本人那边目前都没有什么热度吧<img src="http
 
 来点pico4和am消息，顺便再通知pico5也开始预备了
 
+
+*****
+
+####  星天观测  
+##### 18480#       发表于 2024-7-3 14:22
+
+pico4感觉会在周年live或者周年邦tv上公布吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候鸡也播完了，顺理成章
+

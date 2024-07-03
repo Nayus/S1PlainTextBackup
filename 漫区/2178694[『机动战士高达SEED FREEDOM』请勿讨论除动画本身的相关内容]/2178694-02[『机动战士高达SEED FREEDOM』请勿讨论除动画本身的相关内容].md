@@ -312,3 +312,14 @@ Fafnar Mk. Destiney!
 融了两代主角舰技能条不说，似乎还有大量以往MA的特性</blockquote>
 感覺這才是真正意義上的強襲型戰艦，沒個撞角，你好意思說你能強襲嗎<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  L.L  
+##### 1792#       发表于 2024-7-4 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468476&amp;ptid=2178694" target="_blank">kcalb 发表于 2024-7-3 16:21</a>
+
+融了两代主角舰技能条不说，似乎还有大量以往MA的特性</blockquote>
+反派12连已经够力大非砖了，但科技点差距太大了. 隔壁高达2代跟3代还是属性上差距为主 给观众代差感没那么大.这母舰 科技点差的不是1代起步了..盾能强过矛 还是一个数值怪矛.
+

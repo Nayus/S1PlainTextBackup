@@ -445,3 +445,48 @@ enami主要是画人脸越来越包子了吧，给星海4的立绘我还挺喜�
 那直接用他俩不就行了</blockquote>
 村上爆肝画京都迷城去了，黎2新人画的非常菜，楼上也有人说过了，估计培养两年就上了
 
+
+*****
+
+####  Squall25  
+##### 50#       发表于 2024-7-3 15:55
+
+ 本帖最后由 Squall25 于 2024-7-3 16:00 编辑 
+
+黎1有几张不是村上，可能是树海画师或者新画师搞的。树海画师主要忙其他工作，所以美术产出少。村上在黎1那会只有空忙插图，还忙那由多新图。后来忙ps5版黎1和黎2的特典，现在忙京迷。
+村上当初是画周边的，然后画编年史新立绘，接着当了伊苏vs空之轨迹这种不太重要的衍生作品的主美，最后才给闪轨做主美。
+现在新人就差先当一部不太重要作品的主美了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">可惜这三年的档期不允许啊，没有一部合适，还真不如自暴自弃把界轨给新人算了。
+
+*****
+
+####  mxdmfml  
+##### 51#       发表于 2024-7-3 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466825&amp;ptid=2189984" target="_blank">晴岚 发表于 2024-7-3 14:05</a>
+如果楼主在零轨的时候就潜心学习画画，现在说不定就能替代enami了。
+
+—— 来自 S1Fun ...</blockquote>
+不要零轨，伊苏x的时候努力学ai现在也差不多可以替代了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KevinGraham  
+##### 52#       发表于 2024-7-3 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468136&amp;ptid=2189984" target="_blank">Squall25 发表于 2024-7-3 15:55</a>
+黎1有几张不是村上，可能是树海画师或者新画师搞的。树海画师主要忙其他工作，所以美术产出少。村上在黎1那 ...</blockquote>
+反正压榨就完了，黑心作坊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 53#       发表于 2024-7-3 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468136&amp;ptid=2189984" target="_blank">Squall25 发表于 2024-7-3 15:55</a>
+
+黎1有几张不是村上，可能是树海画师或者新画师搞的。树海画师主要忙其他工作，所以美术产出少。村上在黎1那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是新轨迹直接上主美位（
+

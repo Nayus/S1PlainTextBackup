@@ -1932,3 +1932,15 @@ http://m.weibo.cn/status/5050982306418937?
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  没取名啊  
+##### 192#       发表于 2024-7-3 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65463765&amp;ptid=2144105" target="_blank">redsouris 发表于 2024-7-3 09:30</a>
+没有那个时间吧，需要赶紧喝药“失忆”
+需要女猎人打虫子所以不能一直让她们无力化，基地里还有拟态虫子
+ ...</blockquote>
+他是被下药失忆的啊，老所长替换了他的杯子
+

@@ -483,3 +483,13 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 直接润了，不恶心自己，朋友拉我去玩命运2了
 
+
+*****
+
+####  Yeelolo  
+##### 54#       发表于 2024-7-3 10:12
+
+这氪金价格怎么敢的啊，一个大包卖700多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩不起告辞，而且优化一坨屎啊，比内测还烂
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

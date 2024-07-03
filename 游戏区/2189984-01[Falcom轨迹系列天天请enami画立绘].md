@@ -566,3 +566,13 @@ p站上一堆画师比e圣好
 
 话说有人炼过村上的ai吗
 
+
+*****
+
+####  KevinGraham  
+##### 61#       发表于 2024-7-3 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65469468&amp;ptid=2189984" target="_blank">医生狼多 发表于 2024-7-3 17:30</a>
+话说有人炼过村上的ai吗</blockquote>
+我看falcom自己已经在炼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

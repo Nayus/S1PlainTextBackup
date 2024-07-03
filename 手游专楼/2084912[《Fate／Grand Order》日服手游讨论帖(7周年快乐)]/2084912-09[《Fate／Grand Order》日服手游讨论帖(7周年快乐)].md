@@ -2030,3 +2030,21 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 羁绊是啥好吃吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴酒  
+##### 12982#       发表于 2024-7-3 18:43
+
+清十郎一面 库库尔坎二三面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 12983#       发表于 2024-7-3 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470249&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-3 18:37</a>
+
+羁绊是啥好吃吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你满宝！ 萌新1宝！
+

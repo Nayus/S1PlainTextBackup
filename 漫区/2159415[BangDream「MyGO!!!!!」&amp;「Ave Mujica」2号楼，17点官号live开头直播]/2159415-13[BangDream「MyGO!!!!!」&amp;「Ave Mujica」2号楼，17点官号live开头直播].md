@@ -7709,3 +7709,12 @@ pico4感觉会在周年live或者周年邦tv上公布吧<img src="https://static
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Alicest  
+##### 18483#       发表于 2024-7-3 18:36
+
+应该是本楼到的最晚的bd了
+<img src="https://p.sda1.dev/18/db2209eef58ff1153044ddbd96a73498/image.jpg" referrerpolicy="no-referrer">
+

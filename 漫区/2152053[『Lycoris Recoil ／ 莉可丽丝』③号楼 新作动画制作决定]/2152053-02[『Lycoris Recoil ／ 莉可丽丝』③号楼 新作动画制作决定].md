@@ -189,3 +189,13 @@ https://x.com/imigimuru/status/1808106134261453145
 [https://x.com/ryugusankomachi/status/1807738704502690292](https://x.com/ryugusankomachi/status/1807738704502690292)
 <img src="https://p.sda1.dev/18/86e39d95b920aa7e0dea6f8080b82d90/20240702_235823.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1893#       发表于 2024-7-3 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461544&amp;ptid=2152053" target="_blank">HANDAIYV 发表于 2024-7-2 23:23</a>
+把伊开了，让他去画美术社，美术社能多更新粉丝开心，蒜能换一个画的更好看的画师粉丝也开心，两全其美了 ...</blockquote>
+我推荐浮足
+

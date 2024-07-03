@@ -7730,3 +7730,17 @@ lisani的6.8live repo
 
 没什么东西，但是很会夸，学习一下怎么吹彩虹屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18485#       发表于 2024-7-3 20:03
+
+お互いの意志を確かめるようにしっかり目を合わせる
+
+さらに2番では、その2人がお互い離れた場所で求めあうように手を差し伸べ、動きをシンクロさせる場面もあり、彼女たちの関係性を暗示するようなステージが展開される
+
+命の脈動のように力強いそれは、絶望に満ちた“世界”を淡く照らす希望の“光”のようだ
+
+嘿嘿嘿还挺会写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

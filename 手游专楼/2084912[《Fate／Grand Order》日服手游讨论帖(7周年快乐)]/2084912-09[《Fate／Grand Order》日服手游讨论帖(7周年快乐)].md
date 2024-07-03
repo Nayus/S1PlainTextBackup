@@ -1949,3 +1949,18 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 这期90++也太难打了，滚去打90+算了。
 
+
+*****
+
+####  希望之花  
+##### 12974#       发表于 2024-7-3 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">**又是这种宝具动画
+
+*****
+
+####  alucardcz  
+##### 12975#       发表于 2024-7-3 18:14
+
+这种宝具动画都多少个人了。。。
+

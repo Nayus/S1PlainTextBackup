@@ -592,3 +592,37 @@ p站上一堆画师比e圣好
 
 还好黎轨能替换立绘 要不真玩不下去
 
+
+*****
+
+####  Sayuki1025  
+##### 64#       发表于 2024-7-3 18:08
+
+闪之轨迹2那个のワの封面是谁画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 65#       发表于 2024-7-3 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65469006&amp;ptid=2189984" target="_blank">倪哥干你 发表于 2024-7-3 16:58</a>
+p站上一堆画师比e圣好
+
+难道他们开价会比e圣高吗</blockquote>
+p站上的e圣也比e圣好
+你法找谁都会画成一坨的，说得好像换掉e圣就会有好转一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JRPG  
+##### 66#       发表于 2024-7-3 18:14
+
+<blockquote>无动于衷 发表于 2024-7-3 15:03
+有些大咖真花不了多少钱，比如岩垂德行，我认为就是和你法曲风最贴合的那波的
+
+把他挖来，兴许还能附送一 ...</blockquote>
+好一个强行请回
+

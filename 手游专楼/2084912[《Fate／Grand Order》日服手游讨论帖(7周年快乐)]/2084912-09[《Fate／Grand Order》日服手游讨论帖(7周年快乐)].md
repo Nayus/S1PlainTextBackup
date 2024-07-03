@@ -1914,3 +1914,30 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 该豹了 5宝孔明走起</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新给我的小卡片充值就抽
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 12970#       发表于 2024-7-3 17:49
+
+太会做活动了叶狗 泡茶和收菜两个好评模式能合出这个一坨狗屎的机制
+
+泡茶还能互换平衡数量 破活动换都不给换
+
+
+*****
+
+####  alucardcz  
+##### 12971#       发表于 2024-7-3 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">90++小王子。。 我把撒卡大队亡了
+
+*****
+
+####  シャル  
+##### 12972#       发表于 2024-7-3 17:57
+
+阿曇磯良真身是天狼星
+
+竟然用这个说法
+

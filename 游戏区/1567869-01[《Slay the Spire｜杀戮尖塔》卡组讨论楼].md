@@ -67,3 +67,21 @@
 
 —— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  杨千fa单推人  
+##### 488#       发表于 2024-7-3 13:50
+
+弄了个整蛊的<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">单黑球递归
+
+但是没防牌，估计通不了
+
+<img src="https://img.saraba1st.com/forum/202407/03/135016daaw6a3avk3ynww5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240703134702.png</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 13:50 上传
+

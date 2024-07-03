@@ -653,3 +653,16 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 神佑释放我去看过，还挺正经的
 
+
+*****
+
+####  kuglv  
+##### 70#       发表于 2024-7-3 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466984&amp;ptid=2153578" target="_blank">哆哆鸡 发表于 2024-7-3 14:20</a>
+
+不管质量了，有没有和兔子屁股差不多等级的。
+
+神佑释放我去看过，还挺正经的 ...</blockquote>
+就我知道的真没有，顶多有几个二次元风格的比如KurtzPel和soulworker（锁区），但是画面都比较跟不上时代了
+

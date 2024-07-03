@@ -2067,3 +2067,53 @@ FGO是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 [https://www.bilibili.com/video/BV1wshreoE26](https://www.bilibili.com/video/BV1wshreoE26)
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">录了个1宝大姐姐单核 你可以看看  做好思想准备 钢琴弹错了先不说  1面还得有2张卡
 
+
+*****
+
+####  TheLoof  
+##### 12986#       发表于 2024-7-3 18:57
+
+ 本帖最后由 TheLoof 于 2024-7-3 19:02 编辑 
+
+打了个抽象的力大砖飞多核队
+
+<img src="https://img.saraba1st.com/forum/202407/03/185715q7e2jh28v27j1vll.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (980.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-3 18:57 上传
+
+好处是可以带阿比玩，换库库也行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1t 暗狐狸1+金时宝具
+
+2t 光狐狸上来，暗狐狸技能全交了，光狐狸NP扔自己，buff扔阿比
+
+3t 暗狐狸宝具+阿比/库库砸宝具
+
+非常抽象，但是不重复，主要是这次90++掉黑曜石刀和鬼灯，可以一刷
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 12987#       发表于 2024-7-3 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470310&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-3 18:46</a>
+
+你满宝！ 萌新1宝！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞎说....非洲人库库才3宝
+
+*****
+
+####  alucardcz  
+##### 12988#       发表于 2024-7-3 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65470469&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-3 19:00</a>
+
+瞎说....非洲人库库才3宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">欧 为什么萌新从来没欧过
+

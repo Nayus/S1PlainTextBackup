@@ -634,3 +634,13 @@ p站上的e圣也比e圣好
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 黎轨男主2D视图的面相就是一个韩男
 
+
+*****
+
+####  Dreammask  
+##### 68#       发表于 2024-7-3 19:00
+
+讲真toi8给井FE画得还是挺好的，鉴于ATLUS那个时候都差点没了，应该是is那边找的人吧，不过不妨碍确实比ys10的设计强出不少
+
+所以我感觉ys10的事要么是你法钱给得太少要么是近藤的审美也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

@@ -290,3 +290,14 @@ magnet:?xt=urn:btih:3cbeaaa4381209ff084d9b807f353fd71ff81f2f&amp;tr=http://open.
 福田那个鸟加命运能召唤平行世界的残像形成分身是什么脑洞，这是高达作品也不会轻易采取的设定吧 ...</blockquote>
 Fafnar Mk. Destiney!
 
+
+*****
+
+####  kcalb  
+##### 1790#       发表于 2024-7-3 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65462598&amp;ptid=2178694" target="_blank">L.L 发表于 2024-7-3 02:48</a>
+
+之前在想孔帕斯这玩意好歹是地球联合 plant弄出来的高达上没有科技压制 除了最后荣耀守卫外.后半段还是二代 ...</blockquote>
+融了两代主角舰技能条不说，似乎还有大量以往MA的特性<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

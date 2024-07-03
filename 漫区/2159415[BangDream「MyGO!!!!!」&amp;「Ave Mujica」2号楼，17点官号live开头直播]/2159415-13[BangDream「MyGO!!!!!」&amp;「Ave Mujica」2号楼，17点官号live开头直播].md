@@ -7639,3 +7639,11 @@ mujica所有相关在日本人那边目前都没有什么热度吧<img src="http
 
 其实彩彩和花音互为她们的第三官推，搞不好真的三人行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18475#       发表于 2024-7-3 09:27
+
+官推怎么还能有第三官推说法，不过彩花音确实是彩cp里tag数第三的。
+

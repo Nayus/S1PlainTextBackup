@@ -547,3 +547,13 @@ ebike 这么贵真是疯了
 这玩意的玩法大概是：开着电 ...</blockquote>
 确实，我问了一下，他们说就是吃的这块蛋糕而且价格很有诚意了
 
+
+*****
+
+####  SuperAlucard  
+##### 55#       发表于 2024-7-4 10:30
+
+富哥玩具，普通人就别去尝试了，烧不起<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7855,3 +7855,11 @@ lisani的6.8live repo
 不过这次新了一点，车 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">匿名＋一击脱离，想对线都没得对，估计是不知道哪里跑来的帆船吧
 
+
+*****
+
+####  星天观测  
+##### 18497#       发表于 2024-7-4 16:39
+
+他要不一击脱离估计那边还能讲点新东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在又回到了车立希的阶段，有一楼说得好啊，那边真的是打击感太好了同样的东西只要隔几天说那必然能开起车来
+

@@ -9184,3 +9184,224 @@ syl, 这pv让人看得害怕<img src="https://static.saraba1st.com/image/smiley/
 
 2024-7-4 22:08 上传
 
+
+*****
+
+####  initium  
+##### 18639#       发表于 2024-7-4 22:08
+
+<img src="https://img.saraba1st.com/forum/202407/04/220459s3752i56sa3z3hwz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240704220453.png</strong> (479.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:04 上传
+
+左边动物玩偶从到上下是熊猫，鼹鼠，绿色独眼熊，猫，粉色兔子，右边动物玩偶从上到下是倒吊鸡，绿企鹅，紫蝴蝶，全盲黄猫，蓝猫
+
+左边mygo立希，灯，素世，乐奈，爱音，右边海玲，睦，喵梦，初华，祥子
+
+*****
+
+####  鳥栖朝  
+##### 18640#       发表于 2024-7-4 22:08
+
+有一说一mujica里会不会有少女歌剧要素/彩蛋
+
+
+*****
+
+####  Licheus  
+##### 18641#       发表于 2024-7-4 22:09
+
+我特么再生产，就得这样不这样不行呀！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  第十六度  
+##### 18642#       发表于 2024-7-4 22:10
+
+这段可能是木头开了发泄
+
+0UY_CB5SZ%`[@ZD%T]T05S8_tmb.jpg
+(64.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/220955k1ka712ihi9jkja4.jpg" referrerpolicy="no-referrer">
+
+Z$ONQZOS]]LPNCHV3NVTFHN_tmb.jpg
+(34.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/220955jekh01jehhvektzk.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  septer  
+##### 18643#       发表于 2024-7-4 22:10
+
+好好好，动了动了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 18644#       发表于 2024-7-4 22:11
+
+对邦一转revue？
+这氛围不像少女歌剧，像魔女之夜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18645#       发表于 2024-7-4 22:11
+
+先哭再拆：队友不是你的垃圾桶
+
+先拆再哭：活该
+
+那边这就开始车了，比我想的要快
+
+*****
+
+####  NODY  
+##### 18646#       发表于 2024-7-4 22:11
+
+没想到会把前三季的mortin拿出来用，估计mujica里面有人是她粉丝，这样和多惠也拉上关系了
+
+*****
+
+####  枫林不见  
+##### 18647#       发表于 2024-7-4 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483162&amp;ptid=2159415" target="_blank">第十六度 发表于 2024-7-4 22:10</a>
+
+这段可能是木头开了发泄</blockquote>
+ 还真是，该不会是木头开嗜血了吧
+
+
+*****
+
+####  zzhh0131  
+##### 18648#       发表于 2024-7-4 22:13
+
+mujica就是令和轻拍！！！
+
+*****
+
+####  rikaren  
+##### 18649#       发表于 2024-7-4 22:14
+
+<blockquote>NODY 发表于 2024-7-4 22:11
+没想到会把前三季的mortin拿出来用，估计mujica里面有人是她粉丝，这样和多惠也拉上关系了 ...</blockquote>
+猜一个睦睦？
+
+*****
+
+####  PDQ4  
+##### 18650#       发表于 2024-7-4 22:14
+
+睦爆了，最想看的一集
+
+*****
+
+####  rollingusagi  
+##### 18651#       发表于 2024-7-4 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你邦动画组确实很会用超自然的形式来表现角色的心理活动，蝶团ova直接导致小白二创里变成了磕药妹，mujica这动画看样子药量是加倍了，到时候祥子的风评会变成什么样啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 18652#       发表于 2024-7-4 22:15
+
+睦和森美奈美爆了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 18653#       发表于 2024-7-4 22:15
+
+<img src="https://img.saraba1st.com/forum/202407/04/221521vv64eeg7l5gc3306.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (246.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:15 上传
+
+各个都是重量级啊
+
+*****
+
+####  my707776310  
+##### 18654#       发表于 2024-7-4 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">酗酒那条,祥爹不会真嘎了吧
+
+*****
+
+####  skives  
+##### 18655#       发表于 2024-7-4 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483239&amp;ptid=2159415" target="_blank">椎名mahuyo 发表于 2024-7-4 22:15</a>
+各个都是重量级啊</blockquote>
+一眼同人文 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  initium  
+##### 18656#       发表于 2024-7-4 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以赛博小祥才是正统平行世界吗
+
+*****
+
+####  [皆神孝介]  
+##### 18657#       发表于 2024-7-4 22:17
+
+做了个gif
+
+<img src="https://img.saraba1st.com/forum/202407/04/221740y24w2euwfomeaxvu.gif" referrerpolicy="no-referrer">
+
+<strong>7月4日[00h00m00s-00h00m01s].gif</strong> (2.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:17 上传
+
+*****
+
+####  Drawrain  
+##### 18658#       发表于 2024-7-4 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483239&amp;ptid=2159415" target="_blank">椎名mahuyo 发表于 2024-7-4 22:15</a>
+各个都是重量级啊</blockquote>
+兄弟，同人的图就别拿出来了，误导人的。万一有人真信了
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  my707776310  
+##### 18659#       发表于 2024-7-4 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">擦,居然是钓鱼的
+
+*****
+
+####  枫林不见  
+##### 18660#       发表于 2024-7-4 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">  来个苏坡麻药让我一觉睡到明年一月吧
+

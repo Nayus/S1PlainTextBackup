@@ -865,3 +865,17 @@ dji这车和specialized，trek同价位的除电机外配置基本相同(车架�
 跟啥玩意儿比有性价比</blockquote>
 裤子的Heckler，闪电的Turbo Levo SL比啊
 
+
+*****
+
+####  cen  
+##### 83#       发表于 2024-7-4 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478117&amp;ptid=2190017" target="_blank">ryanghj 发表于 2024-7-4 14:51</a>
+这个是真正的电动自行车，欧美市场接受度很高，国内倒是没几个人玩，属于小众市场
+
+国内的所谓电自实际上都 ...</blockquote>
+玩的人实际上不少，但是中老年人居多。
+每次出去骑小长途，但凡是有大段山路的行程，都有中老年人的电助力队伍。
+山地我参与的少，倒是没见过有用电助力的。
+

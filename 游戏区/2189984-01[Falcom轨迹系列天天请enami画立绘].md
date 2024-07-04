@@ -782,3 +782,34 @@ p站上的e圣也比e圣好
 
 —— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  tbone  
+##### 81#       发表于 2024-7-4 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65476608&amp;ptid=2189984" target="_blank">我tm吃吃吃吃吃 发表于 2024-7-4 12:07</a>
+
+那个黄脸大饼脸真的没问题吗？参考3rd通关后在0里见到玲的立绘差距。对我幼小的心灵造成了巨大的伤害
+
+— ...</blockquote>
+游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下
+
+59c547a46b895f7b7f3e6f9c.jpg
+(78.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 15:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/152630vposib7jxei2vboi.jpg" referrerpolicy="no-referrer">
+
+188c7a98f983bd837709d752.jpg
+(303.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 15:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/152630tf888i8yiynzzd88.jpg" referrerpolicy="no-referrer">
+

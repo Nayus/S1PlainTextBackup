@@ -7964,3 +7964,31 @@ hamaguchi naoya 滨口直也 r团的P
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  御幸一也  
+##### 18508#       发表于 2024-7-4 20:40
+
+<img src="https://img.saraba1st.com/forum/202407/04/204014o399m7pmz69n18r9.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！　夏の大発表会2024 19-18 screenshot.png</strong> (2.47 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 20:40 上传
+
+*****
+
+####  PDQ4  
+##### 18509#       发表于 2024-7-4 20:41
+
+场子还行，应该没那么难抢吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18510#       发表于 2024-7-4 20:42
+
+感觉抢票难度应该低于RAS（
+

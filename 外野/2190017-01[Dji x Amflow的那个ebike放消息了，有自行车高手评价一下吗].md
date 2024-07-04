@@ -619,3 +619,18 @@ https://www.trekbikes.com/us/en_US/bikes/electric-bikes/c/B507/
 
 trek崔克能算传统自行车厂吗？他们ebike的价格从3k刀到1w4刀不等，要不你打个电话给崔克提醒下这价格卖贵了算奢侈品了？
 
+
+*****
+
+####  doki  
+##### 61#         楼主| 发表于 2024-7-4 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477413&amp;ptid=2190017" target="_blank">catxing 发表于 2024-7-4 13:34</a>
+
+https://www.trekbikes.com/us/en_US/bikes/electric-bikes/c/B507/
+
+trek崔克能算传统自行车厂吗？他们e ...</blockquote>
+崔克现在不就是网红奢侈品？另外你也知道是3K刀起啊
+
+不是说dji不配贵，只是第一款产品就5万起那胆量气魄挺足的，毕竟他之前的产品都是和竞品价格差不多但是配置更好一点的
+

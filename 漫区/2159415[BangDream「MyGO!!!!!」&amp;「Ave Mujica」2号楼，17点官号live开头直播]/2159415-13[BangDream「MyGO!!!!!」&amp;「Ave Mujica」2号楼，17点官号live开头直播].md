@@ -7795,3 +7795,12 @@ lisani的6.8live repo
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁又在车立希了
 等等今晚直播看有没有好活，相信wsd在让人失望这方面从不会让人失望吧
 
+
+*****
+
+####  KirigawaMaki  
+##### 18491#       发表于 2024-7-4 14:00
+
+灯竟然出了粘土人<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">希望之后鸡也有份
+<img src="https://p.sda1.dev/18/766e581509687bf92bff00968f760a2a/image.jpg" referrerpolicy="no-referrer">
+

@@ -2335,3 +2335,13 @@ appmedia八千人投票 百分之四十多都去90+了
 
 继续水伊吹冲浪，途中用了一划令咒给C呆充能加两次肃正防御。
 
+
+*****
+
+####  jackyhuang  
+##### 13011#       发表于 2024-7-4 20:49
+
+真正的高难，虚假的高难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

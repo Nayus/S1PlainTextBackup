@@ -7992,3 +7992,19 @@ hamaguchi naoya 滨口直也 r团的P
 
 感觉抢票难度应该低于RAS（
 
+
+*****
+
+####  星天观测  
+##### 18511#       发表于 2024-7-4 20:47
+
+ras那个座位太少了，只能评价为x日初生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 18512#       发表于 2024-7-4 20:52
+
+中间卡了一段时间，不会还没有新情报吧
+

@@ -10181,3 +10181,139 @@ seto神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 
 —— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  穗波殊  
+##### 18733#       发表于 2024-7-4 23:50
+
+这次新PV睦头有没有什么新假药
+
+*****
+
+####  KirigawaMaki  
+##### 18734#       发表于 2024-7-4 23:50
+
+旁边握拳的会是睦还是祥呢？
+
+<img src="https://img.saraba1st.com/forum/202407/04/234822epckhpnloon758u0.png" referrerpolicy="no-referrer">
+
+<strong>tvanime-bang-dream-ave-mujica-teisaying-xiang-1080-ytshorts.savetube.me.mp4_2024.png</strong> (689.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:48 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/234829rq4t2r92hukuq5qe.png" referrerpolicy="no-referrer">
+
+<strong>tvanime-bang-dream-ave-mujica-teisaying-xiang-1080-ytshorts.savetube.me.mp4_2024.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:48 上传
+
+*****
+
+####  穗波殊  
+##### 18735#       发表于 2024-7-4 23:51
+
+这次有点像化妆镜 黄金之梦 的过场，感觉AM必定是一部伟大的作品
+
+*****
+
+####  dqtql  
+##### 18736#       发表于 2024-7-4 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483927&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-4 23:14</a>
+独角兽的推目前还没转发鸡的pv，到时候宣staff如果系构不是独角兽就好玩了</blockquote>
+目前柿本也没转，那暂时扯平
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  Aloereed  
+##### 18737#       发表于 2024-7-4 23:52
+
+<img src="https://img.saraba1st.com/forum/202407/04/235142p9nc92knek9f2ffk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:51 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/235150gc4c3noz44sj3mp4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:51 上传
+
+广大老师在剧场版变成脚本1号位了啊<img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqtql  
+##### 18738#       发表于 2024-7-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484222&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-7-4 23:52</a>
+广大老师在剧场版变成脚本1号位了啊</blockquote>
+剧场版新内容估计都是柿本写了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  NODY  
+##### 18739#       发表于 2024-7-4 23:55
+
+原来你还有追星的心思呀睦睦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/04/235525dulvyo9pboeho4vz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240704234320.png</strong> (7.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:55 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/235528abtfxecaxceexmp3.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQk92-hhdzKrT3cSsx-bg.png</strong> (22.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:55 上传
+
+*****
+
+####  akiomn  
+##### 18740#       发表于 2024-7-4 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起来之前不知道在哪看到的，说是鸡团5人里有人是整活役，高尾反而变成吐槽担当了来着
+正好下周四鸡团5人都上邦tv，看看哪个是之前传的整活役，梦以还是大喵呢？
+
+*****
+
+####  林云少校  
+##### 18741#       发表于 2024-7-4 23:56
+
+这pv太爽了
+
+*****
+
+####  PDQ4  
+##### 18742#       发表于 2024-7-4 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484243&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-4 23:55</a>
+
+想起来之前不知道在哪看到的，说是鸡团5人里有人是整活役，高尾反而变成吐槽担当了来着
+
+正好下周四鸡团5人 ...</blockquote>
+是高尾在和大西节目里说的
+
+就是因为这个我才一直惦记鸡五人邦TV<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

@@ -9405,3 +9405,124 @@ mujica就是令和轻拍！！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">  来个苏坡麻药让我一觉睡到明年一月吧
 
+
+*****
+
+####  rikaren  
+##### 18661#       发表于 2024-7-4 22:18
+
+ 本帖最后由 rikaren 于 2024-7-4 22:20 编辑 
+<blockquote>rollingusagi 发表于 2024-7-4 22:15
+你邦动画组确实很会用超自然的形式来表现角色的心理活动，蝶团ova直接导致小白二创里变成了磕药妹，mujica ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/04/221758fb1vfn0tawnhvzrr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-22-16-45-57_149003a2d400f6adb210d7e357a3a646.jpg</strong> (252.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:17 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/221807fnoa7rirdtzoast7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-22-16-56-37_149003a2d400f6adb210d7e357a3a646.jpg</strong> (260.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/221813kj9xakxait590a89.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-22-17-00-48_149003a2d400f6adb210d7e357a3a646.jpg</strong> (253.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:18 上传
+
+aiai看mujica动画会不会怕我不知道，但是先迫害个小白
+
+*****
+
+####  MagicGiraffe  
+##### 18662#       发表于 2024-7-4 22:21
+
+太tm炫酷了
+
+*****
+
+####  幻想菩薩  
+##### 18663#       发表于 2024-7-4 22:21
+
+bgm太到位了
+
+*****
+
+####  幻想菩薩  
+##### 18664#       发表于 2024-7-4 22:22
+
+bgm太到位了
+
+
+*****
+
+####  鳥栖朝  
+##### 18665#       发表于 2024-7-4 22:23
+
+<blockquote>第十六度 发表于 2024-7-4 22:10
+这段可能是木头开了发泄</blockquote>
+有可能诶，太细了，那么有个睦人偶和两把绿色的伞就说得通了，睦表面是乖乖小狗，其实却是一只狂犬，如果说初华是一上舞台就会变成名为doloris的怪物的话，那么睦就是只有在舞台上才会变成自己，其余时间全是mortis
+
+*****
+
+####  Devola  
+##### 18666#       发表于 2024-7-4 22:24
+
+希望老爹是真的喝似了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18667#       发表于 2024-7-4 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483239&amp;ptid=2159415" target="_blank">椎名mahuyo 发表于 2024-7-4 22:15</a>
+
+啊 我还以为是真图 那不搬了</blockquote>
+假圖刪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 難繃
+
+*****
+
+####  PDQ4  
+##### 18668#       发表于 2024-7-4 22:24
+
+感觉所有人精神状态堪忧，就是这个味，得劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18669#       发表于 2024-7-4 22:25
+
+睦家里这么多人偶 是不是箱子带过去的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 18670#       发表于 2024-7-4 22:26
+
+讲道理狗前期浓郁的悬疑氛围跟wsd和绫奈一直在放料也分不开，希望鸡播的时候也有类似的台词合集
+
+*****
+
+####  枫林不见  
+##### 18671#       发表于 2024-7-4 22:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">该不会真的和我前几个月说的那样，五个带有精神疾病的人的轮舞曲吧
+
+*****
+
+####  鳥栖朝  
+##### 18672#       发表于 2024-7-4 22:26
+
+<blockquote>skives 发表于 2024-7-4 22:25
+睦家里这么多人偶 是不是箱子带过去的</blockquote>
+也有一种可能，祥子的人偶是睦送的，然后祥子天天抱着带着
+

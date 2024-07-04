@@ -772,3 +772,13 @@ p站上的e圣也比e圣好
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  零食杀手  
+##### 80#       发表于 2024-7-4 14:19
+
+也就不是典型二游脸画风而已，换成其他非典型二游脸画风的一样会被骂
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

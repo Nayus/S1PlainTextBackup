@@ -690,3 +690,29 @@ Trek占据了美国自行车市场的22.5%，市占率第一。
 原来美国人民不喜欢买普通自行车就专门买网红奢侈品啊 ...</blockquote>
 中置电机从通勤到ecargo到emtb都有对应产品到你这里就成高端玩具了，不懂就别回了，真的
 
+
+*****
+
+####  蓳白  
+##### 67#       发表于 2024-7-4 14:18
+
+国内价格如果做到5-6万那都是相当有性价比得了
+
+*****
+
+####  cen  
+##### 68#       发表于 2024-7-4 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477747&amp;ptid=2190017" target="_blank">catxing 发表于 2024-7-4 14:16</a>
+现在winspace之类厦门碳牌子的公路车老外那里接受度很高，但是他们看着ebike热潮只能干着急，因为这些牌 ...</blockquote>
+但是挑战跟对标是两码事
+
+*****
+
+####  obulis  
+##### 69#       发表于 2024-7-4 14:22
+
+挺有意思的
+
+一个帖子有人说太贵卖不出去，有人说性价比高有诚意<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+

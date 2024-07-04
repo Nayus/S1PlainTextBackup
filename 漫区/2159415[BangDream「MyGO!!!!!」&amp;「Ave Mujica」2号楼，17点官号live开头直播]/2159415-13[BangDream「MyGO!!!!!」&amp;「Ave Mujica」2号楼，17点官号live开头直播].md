@@ -10635,3 +10635,61 @@ md，这下睡不着了
 
 在假设她确实在隔空回复mujica相关话题的前提下，那最大影响就是成品没让她看，所以她就“别问，我也不知道”
 
+
+*****
+
+####  穗波殊  
+##### 18777#       发表于 2024-7-5 01:09
+
+不会最后要在wsd的垃圾桶捡初祥kiss的分镜吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 18778#       发表于 2024-7-5 01:10
+
+監督や現場次第ですね
+莫名让我想到
+よかったですね
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 18779#       发表于 2024-7-5 01:10
+
+-1 为什么不是睦祥的kiss分镜
+
+*****
+
+####  NODY  
+##### 18780#       发表于 2024-7-5 01:12
+
+改分镜确实是有可能的吧，我记得第七集不就是分镜上有睦那句“不属于c团的春日影”，但正片删掉了
+
+
+*****
+
+####  PDQ4  
+##### 18781#       发表于 2024-7-5 01:13
+
+为什么不是鸡五人从同居小屋的大床上一起醒来<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 18782#       发表于 2024-7-5 01:16
+
+要是真拍成大祥传还拍得好看狗粉会破防吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 18783#       发表于 2024-7-5 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484867&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 01:12</a>
+分镜后再删改内容确实是有可能的吧，我记得第七集不就是分镜上有睦那句“不属于c团的春日影”，但正片删掉 ...</blockquote>
+这倒是好删
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

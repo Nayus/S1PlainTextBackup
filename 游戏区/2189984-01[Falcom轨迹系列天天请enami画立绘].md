@@ -733,3 +733,17 @@ p站上的e圣也比e圣好
 而且如果人设真的是出自社内的话，找社外画个图 ...</blockquote>
 外面找主要时间不好把控吧？你法的人设没记错就是自己定的，而且现在3d建模根本不需要立绘，完全可以等定稿在画，但时间就不好把控。
 
+
+*****
+
+####  我tm吃吃吃吃吃  
+##### 76#         楼主| 发表于 2024-7-4 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65471000&amp;ptid=2189984" target="_blank">tbone 发表于 2024-7-3 20:05</a>
+估计法老控给钱少破事多，看零碧就知道enami原画风其实还行，被社内画师搞坏了。
+
+ ...</blockquote>
+那个黄脸大饼脸真的没问题吗？参考3rd通关后在0里见到玲的立绘差距。对我幼小的心灵造成了巨大的伤害<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

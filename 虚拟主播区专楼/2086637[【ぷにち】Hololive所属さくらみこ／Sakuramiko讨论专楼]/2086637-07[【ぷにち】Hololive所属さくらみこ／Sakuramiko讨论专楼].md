@@ -2998,3 +2998,26 @@ F}S3WZ4M6VQ}G6Y%[N`4P}L.jpg
 
 忍牙风火建漫画笑死了
 
+
+*****
+
+####  holoan  
+##### 9141#         楼主| 发表于 2024-7-4 19:34
+
+<img src="https://img.saraba1st.com/forum/202407/04/193345iozzegrpoogycgkj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.27 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 19:33 上传
+
+纸版和电子版都要买啊这，上下两部视频，这完全是粉丝专供特典了
+
+*****
+
+####  holoan  
+##### 9142#         楼主| 发表于 2024-7-4 20:31
+
+一年以上没播了每次这么多人是哪里冒出来的！而且是一小时前才公布的直播内容啊
+

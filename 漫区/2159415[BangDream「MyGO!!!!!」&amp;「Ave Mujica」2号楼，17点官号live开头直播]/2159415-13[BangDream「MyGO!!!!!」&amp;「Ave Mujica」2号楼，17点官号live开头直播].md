@@ -7939,3 +7939,28 @@ hamaguchi naoya 滨口直也 r团的P
 
 全开是5k吧，萝应该不会全开，按4k算好了，会赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18506#       发表于 2024-7-4 20:33
+
+音寶太可愛了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/04/203344h0bnpxmd0tk5xfxf.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！　夏の大発表会2024 13-20 screenshot.png</strong> (1.79 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 20:33 上传
+
+*****
+
+####  1a不解释  
+##### 18507#       发表于 2024-7-4 20:34
+
+圆形看台没法全开吧，都是把舞台摆一边，上面开2/3，下面再摆点椅子当VIP席
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -30,3 +30,13 @@
 
 活动期间开日常任务，额外耗AP感觉好不爽，现在每天打白纸本更是如此，虽然天赋树我是一点没碰
 
+
+*****
+
+####  一个陆仁贾  
+##### 46487#       发表于 2024-7-4 20:29
+
+渡边纲，飞哥，兰陵王，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

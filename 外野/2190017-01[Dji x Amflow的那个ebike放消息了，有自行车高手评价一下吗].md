@@ -394,3 +394,40 @@ ebike主要卖欧美吧，对于当地来说优点就是不要上牌，而电驴
 
 不是说了吗，按摩托车和国内自行车出海的标准，欧元=5万rmb，国内就是2万5……2万5和传统自行车厂的电助力 ...</blockquote>所以说你急啊。大疆在国外能卖到这个价是它的本事，什么叫“国内就是2万5”？又没叫你买，你反对什么？损害你利益了？还是你替欧洲人急？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">
 
+
+*****
+
+####  ada_ovo  
+##### 42#       发表于 2024-7-4 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474315&amp;ptid=2190017" target="_blank">agsva 发表于 2024-7-4 08:51</a>
+
+他这个也不光是有钱，主要是的确是可以作为汽车的平替，欧洲是因为本来在推绿能，有政策和公共设置支持（ ...</blockquote>
+一个可能是楼下说的法规问题，还有就是新国标看似能骑，实际基本不能骑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 当地消费者不一定习惯
+
+*****
+
+####  doki  
+##### 43#         楼主| 发表于 2024-7-4 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474519&amp;ptid=2190017" target="_blank">lexi 发表于 2024-7-4 09:17</a>
+
+所以说你急啊。大疆在国外能卖到这个价是它的本事，什么叫“国内就是2万5”？又没叫你买，你反对什么？损害 ...</blockquote>
+又一下转进了，楼里不是都是替大疆卖不出去急，只有你是为了价格急吧
+
+拜托5000欧起步卖够1万辆了你再吹能卖到这个价是本事好吗
+
+欢迎收藏了一年后狠狠的打脸
+
+
+*****
+
+####  Cypher_96  
+##### 44#       发表于 2024-7-4 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474407&amp;ptid=2190017" target="_blank">kissmatrix 发表于 2024-7-4 09:06</a>
+ebike主要卖欧美吧，对于当地来说优点就是不要上牌，而电驴要当电摩托管，但是国内理论上需要和电驴一样上 ...</blockquote>
+25是不是慢了点。。。纯人力也不止这个速度啊
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

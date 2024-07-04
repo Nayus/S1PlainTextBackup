@@ -716,3 +716,57 @@ Trek占据了美国自行车市场的22.5%，市占率第一。
 
 一个帖子有人说太贵卖不出去，有人说性价比高有诚意<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  real_zyf  
+##### 70#       发表于 2024-7-4 14:29
+
+说太贵卖不出去的，以为它是小牛九号那种东西
+
+说性价比高的，知道这是电阻力山地车，就是给富哥周末骑进山里冲下来用的
+
+
+*****
+
+####  real_zyf  
+##### 71#       发表于 2024-7-4 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477726&amp;ptid=2190017" target="_blank">口四囧 发表于 2024-7-4 14:12</a>
+
+这玩意是山地？能冲山吗？普通XC就行</blockquote>
+前后都是fox避震呢
+
+*****
+
+####  catxing  
+##### 72#       发表于 2024-7-4 14:33
+
+<blockquote>cen 发表于 2024-7-4 14:19
+但是挑战跟对标是两码事</blockquote>
+ebike还太新，博士这样相对早入场的玩家在电机上的实力没什么好质疑的，但是控制软件我相信打不过dji。dji高调入场上手从高端做起，我觉得是个大胆的尝试。自行车还是一个相对open的市场，你哪怕用不出名的车架品牌，只要车架不是太拉胯，只要攒上一堆高端品牌的前叉避震轮组牙盘飞轮轮组组成整车，涂装搞骚一点，市场接受起来没想象中困难。而厦门碳车架不仅不拉夸，事实上就是no.1。
+
+*****
+
+####  caohhh  
+##### 73#       发表于 2024-7-4 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477808&amp;ptid=2190017" target="_blank">obulis 发表于 2024-7-4 14:22</a>
+
+挺有意思的
+
+一个帖子有人说太贵卖不出去，有人说性价比高有诚意</blockquote>
+dji这车和specialized，trek同价位的除电机外配置基本相同(车架完全没给重量、碳纤维参数不好评价)。你把大疆当作西方品牌那他比这些西方品牌参数更高的电机就是高性价比。不过你把他当中国品牌的话，在如今国产品牌对比西方品牌的价格以及接受程度下就是贵
+
+*****
+
+####  real_zyf  
+##### 74#       发表于 2024-7-4 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65468736&amp;ptid=2190017" target="_blank">doki 发表于 2024-7-3 16:40</a>
+
+那告辞，二手准新成色电自轻蜂能买2-4辆换着骑，还不用蹬呢
+
+就算白皮佬价格翻倍，人民币2.5万起那也相当 ...</blockquote>
+你先看看没有电助力的，车架材料避震系统变速系统都差不多配置的山地车卖多少钱先，这东西和你认知里面的国标电动自行车就不是一个赛道的
+

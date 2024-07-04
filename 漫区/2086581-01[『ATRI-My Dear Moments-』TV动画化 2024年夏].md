@@ -135,3 +135,15 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 没玩过原作，亚托莉应该不是要走塑料内存条那种路子吧？
 
+
+*****
+
+####  JetBrains  
+##### 85#       发表于 2024-7-4 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474077&amp;ptid=2086581" target="_blank">terminator1990 发表于 2024-7-4 08:18</a>
+没玩过原作，亚托莉应该不是要走塑料内存条那种路子吧？</blockquote>
+还真是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

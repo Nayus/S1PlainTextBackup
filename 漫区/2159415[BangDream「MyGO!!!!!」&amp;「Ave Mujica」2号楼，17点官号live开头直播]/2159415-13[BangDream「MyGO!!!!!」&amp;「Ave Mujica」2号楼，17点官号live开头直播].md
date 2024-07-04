@@ -10383,3 +10383,33 @@ x:pati_nyaaaaaaa
 
 首先就算是动画那个“弱气”的样子，说话从来不用敬语“没礼貌”的样子，找祥子直接堵门，以及明示的渡濑饰演的mortis，到底谁觉得她任人拿捏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 18749#       发表于 2024-7-5 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 18750#       发表于 2024-7-5 00:27
+
+可能只有手和部分观众觉得她是吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 18751#       发表于 2024-7-5 00:27
+
+这不是一眼定型文吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 18752#       发表于 2024-7-5 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是微博那个惠嬷圣经吧，我看一次笑一次
+

@@ -10842,3 +10842,16 @@ md，这下睡不着了
 双重人格是吧
 小时候和祥子是异父异母的姐妹，是姐姐又同时是妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 18799#       发表于 2024-7-5 05:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484906&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-5 01:16</a>
+
+要是真拍成大祥传还拍得好看狗粉会破防吗</blockquote>
+更好看的GBC那种感觉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那感觉是会的，不过比起派系斗争，更多应该是因为剧情编排的方式变了吧
+

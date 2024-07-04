@@ -533,3 +533,16 @@ rhi外包其实不止b社啦，这个你去欧美一些3a级工作室干过就�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  泰坦失足  
+##### 53#       发表于 2024-7-5 05:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65481892&amp;ptid=2189798" target="_blank">csolfans 发表于 2024-7-4 20:25</a>
+
+12.5GB
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+好吧，和PS5更弱一点的性能也对应的上。不过PS5 Pro不加任何内存吗。X1X/PS4 Pro/Ps5 Pro 只有X1X的内存有升级
+

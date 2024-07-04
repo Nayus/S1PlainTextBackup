@@ -607,3 +607,15 @@ ebikes-more.png
 
 看了一眼，没标整车重量？
 
+
+*****
+
+####  catxing  
+##### 60#       发表于 2024-7-4 13:34
+
+<blockquote>doki 发表于 2024-7-4 09:08
+不是说了吗，按摩托车和国内自行车出海的标准，欧元=5万rmb，国内就是2万5……2万5和传统自行车厂的电助力 ...</blockquote>
+https://www.trekbikes.com/us/en_US/bikes/electric-bikes/c/B507/
+
+trek崔克能算传统自行车厂吗？他们ebike的价格从3k刀到1w4刀不等，要不你打个电话给崔克提醒下这价格卖贵了算奢侈品了？
+

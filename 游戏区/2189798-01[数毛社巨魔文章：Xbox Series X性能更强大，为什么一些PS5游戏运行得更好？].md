@@ -521,3 +521,15 @@ rhi外包其实不止b社啦，这个你去欧美一些3a级工作室干过就�
 
 搜了下，xsx有13.5g内存开放给游戏，xss 8g，好像看过ns说是有3g，ps5没说过，猜一个也是13.5g吧。
 
+
+*****
+
+####  csolfans  
+##### 52#       发表于 2024-7-4 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466292&amp;ptid=2189798" target="_blank">泰坦失足 发表于 2024-7-3 13:05</a>
+搜了下，xsx有13.5g内存开放给游戏，xss 8g，好像看过ns说是有3g，ps5没说过，猜一个也是13.5g吧。 ...</blockquote>
+<img src="https://p.sda1.dev/18/71cc9f7f6c2260202b39a668fd682062/CMP_20240704202540187.jpg" referrerpolicy="no-referrer">12.5GB
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

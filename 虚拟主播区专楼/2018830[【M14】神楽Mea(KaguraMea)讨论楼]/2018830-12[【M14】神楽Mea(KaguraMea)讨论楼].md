@@ -317,3 +317,18 @@ mea给我附加无敌<img src="https://static.saraba1st.com/image/smiley/face201
 
 可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  clvan_  
+##### 16601#       发表于 2024-7-3 21:29
+
+还略带一点雌小鬼的感觉
+
+*****
+
+####  sino__unnko3  
+##### 16602#       发表于 2024-7-4 20:21
+
+你咩是藏了个大肉猪吗，记忆有点错乱，这是已经搬家过了还是还在考虑搬家？现在换了大金空调，还有之前说的5厅大house，之前说的啥时候考虑搬家来着？这么大个肉猪没详细说个半天不符合这人性格（
+

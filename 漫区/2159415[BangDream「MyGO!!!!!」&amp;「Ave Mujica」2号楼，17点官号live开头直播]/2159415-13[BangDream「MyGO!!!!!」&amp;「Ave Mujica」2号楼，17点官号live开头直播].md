@@ -7924,3 +7924,18 @@ hamaguchi naoya 滨口直也 r团的P
 
 5k……会赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18504#       发表于 2024-7-4 20:19
+
+5k？我查同样场馆的liyuu演出，拉吧那边说是4k，其他同场馆的暂且没查到门票数。
+
+*****
+
+####  星天观测  
+##### 18505#       发表于 2024-7-4 20:23
+
+全开是5k吧，萝应该不会全开，按4k算好了，会赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

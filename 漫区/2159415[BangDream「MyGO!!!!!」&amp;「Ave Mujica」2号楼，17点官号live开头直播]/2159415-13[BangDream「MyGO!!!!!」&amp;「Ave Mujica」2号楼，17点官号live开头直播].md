@@ -8038,3 +8038,173 @@ r团的承办是之前lisa那个，那场确实有点一般
 
 鸡就这……难蚌
 
+
+*****
+
+####  rikaren  
+##### 18517#       发表于 2024-7-4 21:04
+
+目前为止都好水
+
+*****
+
+####  NODY  
+##### 18518#       发表于 2024-7-4 21:05
+
+打牌羊姐自己不懂主动点宣传周边，还好李子反应快帮忙拿了不少，这里要换鼓或者青木早就主动给拿起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18519#       发表于 2024-7-4 21:06
+
+小垃圾还得讲好一会，动画相关不会这么快的
+
+*****
+
+####  星天观测  
+##### 18520#       发表于 2024-7-4 21:06
+
+我目前的想法：wsd你把李子叫来就是为干这个？五彩石你懂吗
+
+
+*****
+
+####  rikaren  
+##### 18521#       发表于 2024-7-4 21:07
+
+<img src="https://img.saraba1st.com/forum/202407/04/210715mnaazhu7blpjupkw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-06-52-46_149003a2d400f6adb210d7e357a3a646.jpg</strong> (217.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:07 上传
+
+疑似第一个新消息？
+
+*****
+
+####  Alicest  
+##### 18522#       发表于 2024-7-4 21:08
+
+你柄不能好看点嘛
+
+<img src="https://img.saraba1st.com/forum/202407/04/210755v86p4w4mz7mg4aew.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (299.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:07 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/210802b0r8c06iqi6iccqr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (268.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:08 上传
+
+*****
+
+####  rikaren  
+##### 18523#       发表于 2024-7-4 21:08
+
+我怀疑九点半再来也不会错过什么消息
+
+*****
+
+####  Alicest  
+##### 18524#       发表于 2024-7-4 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65482302&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-4 21:05</a>
+
+打牌羊姐自己不懂主动点宣传周边，还好李子反应快帮忙拿了不少，这里要换鼓或者青木早就主动给拿起来了 ...</blockquote>
+我真的服了，自己角色的gsc粘土人都是李子拿起来的，真的呃呃了
+
+*****
+
+####  Aloereed  
+##### 18525#       发表于 2024-7-4 21:09
+
+还有一半啊，有点东西
+
+
+*****
+
+####  rikaren  
+##### 18526#       发表于 2024-7-4 21:10
+
+手游20分钟，剧场版10分钟，感觉其实也不一定有多少东西
+
+*****
+
+####  6030sylar  
+##### 18527#       发表于 2024-7-4 21:11
+
+<img src="https://img.saraba1st.com/forum/202407/04/211053wg0e4ef245fczqyq.jpg" referrerpolicy="no-referrer">
+
+<strong>V6})P5}W5C`AX9SC_K%YVHR_tmb.jpg</strong> (44.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/211100d8jjhzaucayjjdxd.jpg" referrerpolicy="no-referrer">
+
+<strong>KS78@$AUJ~}%6])JD)C3@RP.jpg</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:11 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/211106qux5bbwbrnxgf5ce.jpg" referrerpolicy="no-referrer">
+
+<strong>C31_0B@262HCZP8Z{2FT63R.jpg</strong> (42.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:11 上传
+
+敬爱素
+
+*****
+
+####  rikaren  
+##### 18528#       发表于 2024-7-4 21:12
+
+<img src="https://img.saraba1st.com/forum/202407/04/211230hnwithzhtwz2ggi2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-11-53-62_149003a2d400f6adb210d7e357a3a646.jpg</strong> (301.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:12 上传
+
+什么玩意？？？
+
+*****
+
+####  PDQ4  
+##### 18529#       发表于 2024-7-4 21:13
+
+到手游了，wsd你叫李子来就宣传一个新周边是吗，还全是老图复读<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不会一个新图都没有吧
+
+*****
+
+####  rikaren  
+##### 18530#       发表于 2024-7-4 21:13
+
+<img src="https://img.saraba1st.com/forum/202407/04/211343q19q8zdm8z43gu9z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-13-16-95_149003a2d400f6adb210d7e357a3a646.jpg</strong> (248.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:13 上传
+
+120帧
+

@@ -12380,3 +12380,18 @@ aksys宣布东京迷城ns英文7.25发售。
 
 虽然不知道明年京迷是不是还是日本一负责翻译
 
+
+*****
+
+####  酷乐  
+##### 1199#       发表于 2024-7-4 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65476119&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-4 11:23</a>
+aksys宣布东京迷城ns英文7.25发售。
+
+和数年前发行的ps版的翻译版本不同。
+
+是进行了重新翻译的本地化版本。</blockquote>
+咋一看还以为是Arc system，再一看这家确实代理了GG系列，再一查两者名字相似只是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<blockquote>Aksys Gamesとアークシステムワークスは偶然にも社名が似ているが、資本関係はない。</blockquote>
+

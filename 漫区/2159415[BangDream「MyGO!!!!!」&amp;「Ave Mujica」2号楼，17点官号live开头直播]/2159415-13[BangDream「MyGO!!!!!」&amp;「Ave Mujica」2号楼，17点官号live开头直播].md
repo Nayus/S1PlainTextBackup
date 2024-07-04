@@ -10459,3 +10459,73 @@ x:pati_nyaaaaaaa
 
 初祥的kiss和睦祥的过激行为只能存在于脚本里了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dqtql  
+##### 18758#       发表于 2024-7-5 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484589&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-7-5 00:40</a>
+不评价</blockquote>
+开滑！直通地心！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  御幸一也  
+##### 18759#       发表于 2024-7-5 00:50
+
+綾奈：
+
+我可以肯定地說和自己有關的部分（劇本）是有趣的，但這個作品，
+
+分鏡之後的部分沒有讓我check，所以我沒法說什麼。因為我也不知道會變成怎樣的動畫…
+
+<img src="https://img.saraba1st.com/forum/202407/05/005028zgcssgkuutgnl158.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (36.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 00:50 上传
+
+
+*****
+
+####  滑稽Captain  
+##### 18760#       发表于 2024-7-5 00:53
+
+机翻的语气有点太重了，往好了想就是普通的大实话，我对自己的剧本有自信，但分镜定完以后就没有再让我参与了，我没法评价
+
+
+*****
+
+####  第七軍伐戎処  
+##### 18761#       发表于 2024-7-5 00:54
+
+换句话说一直到定分镜都是跟着的，按说分镜定了之后改动不可能会大，这是好事啊
+
+*****
+
+####  cherryjia12  
+##### 18762#       发表于 2024-7-5 00:55
+
+按nga这个说法确实很像是在回复那个中国粉丝，这下不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过分镜之后不给系构插手是什么情况？系构地位这么低吗？
+<img src="https://p.sda1.dev/18/283a6f750c6fea73e09a3a3540afa40b/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18763#       发表于 2024-7-5 00:56
+
+分镜是画好了
+演出加个哟西 不就样衰了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  T@L  
+##### 18764#       发表于 2024-7-5 00:58
+
+如果劇本有啵嘴難道演出還能不給拍嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

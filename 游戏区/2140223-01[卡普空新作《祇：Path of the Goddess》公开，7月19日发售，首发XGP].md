@@ -622,3 +622,12 @@ c2不能接空中攻击白送大硬直+1，回避派生轻攻击也算第一下�
 回避是按下摇杆也太难受了，动作系统太糙了</blockquote>
 pc版能改按键，主机版如果不能的话，是挺傻逼的
 
+
+*****
+
+####  Piano-Forest  
+##### 68#         楼主| 发表于 2024-7-4 21:24
+
+《祇：Path of the Goddess》制作人访谈：塔防与动作元素的新结合
+[https://gouhuo.qq.com/mainpage/d ... 620145603_TbStsVwD3](https://gouhuo.qq.com/mainpage/detail?storyid=0_20240620145603_TbStsVwD3)
+

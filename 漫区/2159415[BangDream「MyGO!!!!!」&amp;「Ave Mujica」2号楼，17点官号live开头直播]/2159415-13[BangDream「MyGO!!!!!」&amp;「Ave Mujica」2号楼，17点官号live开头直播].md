@@ -8208,3 +8208,171 @@ r团的承办是之前lisa那个，那场确实有点一般
 
 120帧
 
+
+*****
+
+####  御幸一也  
+##### 18531#       发表于 2024-7-4 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">這有必要叫李子過去？
+
+*****
+
+####  rikaren  
+##### 18532#       发表于 2024-7-4 21:14
+
+<img src="https://img.saraba1st.com/forum/202407/04/211425vcz1qcczwu44jjl5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-14-08-98_149003a2d400f6adb210d7e357a3a646.jpg</strong> (273.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:14 上传
+
+自带上隐，可能是目前最好的消息
+
+*****
+
+####  NODY  
+##### 18533#       发表于 2024-7-4 21:15
+
+广告抽卡，落魄了啊邦多利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  my707776310  
+##### 18534#       发表于 2024-7-4 21:16
+
+广告抽卡日本农药怪物弹珠也干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 18535#       发表于 2024-7-4 21:17
+
+笑了，立希在mygo轮不上唱歌，和前辈一起倒是有机会了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18536#       发表于 2024-7-4 21:18
+
+神必组合
+
+<img src="https://img.saraba1st.com/forum/202407/04/211847zkn1s9wkn6o2s5s9.jpg" referrerpolicy="no-referrer">
+
+<strong>A01C514D3A60F2D9A957CC2EDFD931A3.jpg</strong> (216.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/211854t7n2y24btnawb2fx.jpg" referrerpolicy="no-referrer">
+
+<strong>086991542959CBE5781E9ABBBB40E463.jpg</strong> (203.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:18 上传
+
+*****
+
+####  rikaren  
+##### 18537#       发表于 2024-7-4 21:19
+
+<img src="https://img.saraba1st.com/forum/202407/04/211910wwuhwwlhu33uzkbu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-15-59-56_149003a2d400f6adb210d7e357a3a646.jpg</strong> (235.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/211921w0yoyuuhuy1yuyo0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-17-35-93_149003a2d400f6adb210d7e357a3a646.jpg</strong> (236.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:19 上传
+
+神必组队还只有两个队
+
+*****
+
+####  PDQ4  
+##### 18538#       发表于 2024-7-4 21:19
+
+哇，鸡情报！
+
+1月动画，好新鲜呢！
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 18539#       发表于 2024-7-4 21:20
+
+1月份手游有mujica动画活动？难道是提前实装主线？还是先实装歌？
+
+*****
+
+####  Alicest  
+##### 18540#       发表于 2024-7-4 21:21
+
+不是，不是…
+
+<img src="https://img.saraba1st.com/forum/202407/04/212050ldzslbcgq8esglbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:20 上传
+
+*****
+
+####  rikaren  
+##### 18541#       发表于 2024-7-4 21:21
+
+<img src="https://img.saraba1st.com/forum/202407/04/212121ftzoourtbn79565w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-19-45-35_149003a2d400f6adb210d7e357a3a646.jpg</strong> (279.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:21 上传
+
+就这？
+
+*****
+
+####  my707776310  
+##### 18542#       发表于 2024-7-4 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是说有新PV吗,之前隔哪儿看人提的
+
+*****
+
+####  hitori酱  
+##### 18543#       发表于 2024-7-4 21:23
+
+剧场版呢？
+
+*****
+
+####  滑稽Captain  
+##### 18544#       发表于 2024-7-4 21:23
+
+原来mygo的个活真的要等mujica动画（
+
+2025春以后才会开始有mygo活
+
+*****
+
+####  rikaren  
+##### 18545#       发表于 2024-7-4 21:24
+
+走神了，刚刚是说蝶，ag，mygo会有混活吗
+

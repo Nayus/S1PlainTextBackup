@@ -838,3 +838,15 @@ enami的玲爱约我黑一辈子
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  苏斯赫查  
+##### 84#       发表于 2024-7-4 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478505&amp;ptid=2189984" target="_blank">tbone 发表于 2024-7-4 15:27</a>
+游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下</blockquote>
+都不咋样，看看闪轨的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

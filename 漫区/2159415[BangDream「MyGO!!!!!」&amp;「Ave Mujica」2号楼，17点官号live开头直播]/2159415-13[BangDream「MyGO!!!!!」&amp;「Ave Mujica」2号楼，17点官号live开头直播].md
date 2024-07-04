@@ -10105,3 +10105,79 @@ seto神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  skives  
+##### 18727#       发表于 2024-7-4 23:39
+
+睦可能有一个死去的双胞胎妹妹吗
+
+*****
+
+####  cherryjia12  
+##### 18728#       发表于 2024-7-4 23:40
+
+顺便吐槽一下这热度差...虽然之前感受就很明显了但真看到数字对比还是有点难绷
+
+<img src="https://img.saraba1st.com/forum/202407/04/233953t3xx8xfw8uepax8h.png" referrerpolicy="no-referrer">
+
+<strong>L(`{[$S_0Y{P5BSMZDB7CHL.png</strong> (34.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/233958jw67nc7o2mk1wnwn.png" referrerpolicy="no-referrer">
+
+<strong>K(POB[O9@1640Z7Y]}`TC}D.png</strong> (50.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:39 上传
+
+
+*****
+
+####  PDQ4  
+##### 18729#       发表于 2024-7-4 23:43
+
+<img src="https://img.saraba1st.com/forum/202407/04/234201pnodr9yomr9om1sz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:42 上传
+
+也不知道为什么要审核，难道太狗血了论坛看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+之后要连吐三楼复读了<img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 18730#       发表于 2024-7-4 23:44
+
+ 本帖最后由 鳥栖朝 于 2024-7-4 23:48 编辑 
+
+魔法少女小圆+少女歌剧+Ave Mujica，今晚要睡不着了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 18731#       发表于 2024-7-4 23:44
+
+至少Mujica真来大陆演出吃中华炮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TTAA  
+##### 18732#       发表于 2024-7-4 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483365&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-7-4 22:26</a>
+该不会真的和我前几个月说的那样，五个带有精神疾病的人的轮舞曲吧</blockquote>
+就怕反转之反转，到头来发现表现最明显的木头是病得最轻的那个<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

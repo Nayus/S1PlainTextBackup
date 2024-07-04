@@ -10353,3 +10353,33 @@ x:pati_nyaaaaaaa
 
 录音是最便宜的部分，重录有啥稀奇
 
+
+*****
+
+####  穗波殊  
+##### 18746#       发表于 2024-7-5 00:15
+
+睦头有暴力倾向还真是让我有点意外。本来还以为睦头“是顺从，是担忧，是献身，是毁灭，是内心深处的自轻自贱,他是紫姬,是洛丽塔，是爱丽丝。”这样的人物。很期待之后的展开。
+
+*****
+
+####  斑驳的阴影  
+##### 18747#       发表于 2024-7-5 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484129&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-7-4 23:40</a>
+
+顺便吐槽一下这热度差...虽然之前感受就很明显了但真看到数字对比还是有点难绷
+
+ ...</blockquote>
+草，太离谱了这也<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 18748#       发表于 2024-7-5 00:23
+
+睦怎么可能是纯粹的顺从
+
+首先就算是动画那个“弱气”的样子，说话从来不用敬语“没礼貌”的样子，找祥子直接堵门，以及明示的渡濑饰演的mortis，到底谁觉得她任人拿捏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

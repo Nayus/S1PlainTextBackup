@@ -164,3 +164,13 @@ mvp吸墨机
 所以最终祭典是8月还是9月</blockquote>
 8月吧，9月断更了
 
+
+*****
+
+####  DeltaStriker  
+##### 4790#       发表于 2024-7-4 08:40
+
+有上赛季美服鱼模式各排名档次分数线吗
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

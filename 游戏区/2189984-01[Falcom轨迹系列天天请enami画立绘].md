@@ -850,3 +850,14 @@ enami的玲爱约我黑一辈子
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  瞬间少年JUMP  
+##### 85#       发表于 2024-7-5 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478505&amp;ptid=2189984" target="_blank">tbone 发表于 2024-7-4 15:27</a>
+
+游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下</blockquote>
+当年零轨这几个立绘看得我后背发凉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

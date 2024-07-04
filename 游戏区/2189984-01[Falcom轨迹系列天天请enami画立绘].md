@@ -813,3 +813,16 @@ p站上的e圣也比e圣好
 
 <img src="https://img.saraba1st.com/forum/202407/04/152630tf888i8yiynzzd88.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zfz4869  
+##### 82#       发表于 2024-7-4 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478505&amp;ptid=2189984" target="_blank">tbone 发表于 2024-7-4 15:27</a>
+
+游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下</blockquote>
+半斤八两，游戏里可能还强点
+
+enami的玲爱约我黑一辈子
+

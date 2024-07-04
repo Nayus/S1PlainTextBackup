@@ -174,3 +174,16 @@ mvp吸墨机
 
 —— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  laosai13  
+##### 4791#       发表于 2024-7-4 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474232&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-7-4 08:40</a>
+
+有上赛季美服鱼模式各排名档次分数线吗
+
+—— 来自 samsung SM-S9010, Android 14上的 S1Next-鹅版 v3.0.0. ...</blockquote>
+美服的话前3000差不多2200， 前500差不多2600比较稳
+

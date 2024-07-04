@@ -351,3 +351,11 @@ Fafnar Mk. Destiney!
 日本有个人统计了一下所有角色的出场画面，按照他的统计的话，那芙蕾是死掉的女性角色里出场最多的，再加 ...</blockquote>
 阿格妮丝什么设定？
 
+
+*****
+
+####  風卷豹  
+##### 1795#       发表于 2024-7-4 09:14
+
+这母舰最离谱的是还有线控炮...到底是谁在用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

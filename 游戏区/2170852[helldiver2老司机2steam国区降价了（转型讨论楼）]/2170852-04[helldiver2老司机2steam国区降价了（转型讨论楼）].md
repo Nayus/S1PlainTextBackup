@@ -88,3 +88,14 @@
 
 有没有更新后碰到gameguard更新下载不了的，得全局开梯子吗
 
+
+*****
+
+####  xinfengj  
+##### 5037#       发表于 2024-7-4 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483223&amp;ptid=2170852" target="_blank">Benighted 发表于 2024-7-4 22:14</a>
+
+有没有更新后碰到gameguard更新下载不了的，得全局开梯子吗</blockquote>
+lmao病，开加速器让反作弊更新完就行了
+

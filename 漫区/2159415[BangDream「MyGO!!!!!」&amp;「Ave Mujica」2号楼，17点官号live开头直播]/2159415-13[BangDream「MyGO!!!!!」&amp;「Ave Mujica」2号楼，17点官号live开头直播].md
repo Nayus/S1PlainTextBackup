@@ -9526,3 +9526,147 @@ bgm太到位了
 睦家里这么多人偶 是不是箱子带过去的</blockquote>
 也有一种可能，祥子的人偶是睦送的，然后祥子天天抱着带着
 
+
+*****
+
+####  kivz  
+##### 18673#       发表于 2024-7-4 22:28
+
+哇，什么时候上主菜，这牙缝都不够塞的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18674#       发表于 2024-7-4 22:29
+
+<img src="https://img.saraba1st.com/forum/202407/04/222921fl7mxnzn11kjryxx.png" referrerpolicy="no-referrer">
+
+<strong>212950nnz1d8fufxdo7qtp.png</strong> (101.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:29 上传
+
+可以确定“被火焚烧”的应该是timoris了吧
+
+*****
+
+####  kivz  
+##### 18675#       发表于 2024-7-4 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483269&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-7-4 22:17</a>
+做了个gif</blockquote>
+才反应过来祥子哭哭是新画面<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Chenlh  
+##### 18676#       发表于 2024-7-4 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483365&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-7-4 22:26</a>
+该不会真的和我前几个月说的那样，五个带有精神疾病的人的轮舞曲吧</blockquote>
+5个？我要看3个团11个精神疾病口牙<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 18677#       发表于 2024-7-4 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483428&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-4 22:29</a>
+
+可以确定“被火焚烧”的应该是timoris了吧</blockquote>
+不 倒吊人应该就是初华
+
+
+*****
+
+####  skives  
+##### 18678#       发表于 2024-7-4 22:32
+
+mygo剧场版系构意料之中还是绫奈 
+
+*****
+
+####  MASKA-1  
+##### 18679#       发表于 2024-7-4 22:33
+
+回天也是今年冬天啊，要碰一碰吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 18680#       发表于 2024-7-4 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483476&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-7-4 22:33</a>
+
+回天也是今年冬天啊，要碰一碰吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你猜回天已经多久没有动静了，我合理怀疑要跳票了。
+
+
+*****
+
+####  枫林不见  
+##### 18681#       发表于 2024-7-4 22:34
+
+哦 换句话是，avemujica要在国内要迎战是就是   双城之战二
+
+*****
+
+####  YESIARE  
+##### 18682#       发表于 2024-7-4 22:35
+
+少歌精神续作是吧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18683#       发表于 2024-7-4 22:35
+
+不跳也可能是shaft在魔寄二期操作复刻，2024.12.31上映
+
+*****
+
+####  skives  
+##### 18684#       发表于 2024-7-4 22:35
+
+<img src="https://img.saraba1st.com/forum/202407/04/223533qt7lj5rzuj5w1e7h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8995.jpeg</strong> (121.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-4 22:35 上传
+
+*****
+
+####  第七軍伐戎処  
+##### 18685#       发表于 2024-7-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483488&amp;ptid=2159415" target="_blank">枫林不见 发表于 2024-7-4 22:34</a>
+哦 换句话是，avemujica要在国内要迎战是就是   双城之战二</blockquote>
+吓死了，还以为要打回天
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  鳥栖朝  
+##### 18686#       发表于 2024-7-4 22:37
+
+还有上面这个邦邦tv动画新系列，看了就跟大热天喝了一罐冰可乐一样舒服，以后再有gop说什么mygo第二季……
+
+*****
+
+####  枫林不见  
+##### 18687#       发表于 2024-7-4 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483500&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-4 22:35</a>
+
+吓死了，还以为要打回天
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+会赢吗？
+
+会赢的
+

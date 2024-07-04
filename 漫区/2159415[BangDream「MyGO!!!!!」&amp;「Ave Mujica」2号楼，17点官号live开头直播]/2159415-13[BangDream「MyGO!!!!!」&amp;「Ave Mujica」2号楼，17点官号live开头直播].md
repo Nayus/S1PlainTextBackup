@@ -9693,3 +9693,71 @@ shaft现在什么水平真不好说
 
 什么叫憋了将近两年，回天消息2021.4.25公开的，都三年半了
 
+
+*****
+
+####  rikaren  
+##### 18691#       发表于 2024-7-4 22:49
+
+Amoris不会最后是五个人偶里最正常的吧（
+
+
+*****
+
+####  星天观测  
+##### 18692#       发表于 2024-7-4 22:53
+
+ 本帖最后由 星天观测 于 2024-7-4 22:55 编辑 
+
+emmmm网卡了
+
+*****
+
+####  星天观测  
+##### 18693#       发表于 2024-7-4 22:54
+
+还真不一定
+
+个人看法，在视觉图里，初华祥子海铃的姿势都是“自主动作”，就是会靠自己的意志摆出这样的pose
+
+喵梦和睦的姿势则是非常像被线操控的人偶
+
+在2nd的台词中，睦或许是处于压抑，被周围的人指指点点，无法表达自己的情绪的情况，跟人偶很类似
+
+那可能喵梦也是被什么东西牵引压制着的状态，加上之前访谈透露喵梦有大活，说不定也挺疯的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  hitori酱  
+##### 18694#       发表于 2024-7-4 22:54
+
+<img src="https://img.saraba1st.com/forum/202407/04/225422ajcr7g44cdbzwbdd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GRpdjPsaUAA8vds.jpeg</strong> (345.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:54 上传
+
+*****
+
+####  YESIARE  
+##### 18695#       发表于 2024-7-4 22:55
+
+21魔寄22rwby，23开始摸到现在，估计就那时候开始憋的
+
+*****
+
+####  rikaren  
+##### 18696#       发表于 2024-7-4 22:55
+
+<img src="https://img.saraba1st.com/forum/202407/04/225511ii9qy57qzwr5jg6y.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720104902014.jpg</strong> (267.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:55 上传
+
+有机会在动画正片里看到这样子的“被火焚烧”吗
+

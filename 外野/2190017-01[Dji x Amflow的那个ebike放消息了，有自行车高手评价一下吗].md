@@ -770,3 +770,62 @@ dji这车和specialized，trek同价位的除电机外配置基本相同(车架�
 就算白皮佬价格翻倍，人民币2.5万起那也相当 ...</blockquote>
 你先看看没有电助力的，车架材料避震系统变速系统都差不多配置的山地车卖多少钱先，这东西和你认知里面的国标电动自行车就不是一个赛道的
 
+
+*****
+
+####  catxing  
+##### 75#       发表于 2024-7-4 14:39
+
+ 本帖最后由 catxing 于 2024-7-4 14:41 编辑 
+<blockquote>caohhh 发表于 2024-7-4 14:17
+中置电机从通勤到ecargo到emtb都有对应产品到你这里就成高端玩具了，不懂就别回了，真的 ...</blockquote>
+
+算了删掉
+
+
+*****
+
+####  讨逆修会  
+##### 76#       发表于 2024-7-4 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477770&amp;ptid=2190017" target="_blank">蓳白 发表于 2024-7-4 14:18</a>
+国内价格如果做到5-6万那都是相当有性价比得了</blockquote>
+跟啥玩意儿比有性价比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doki  
+##### 77#         楼主| 发表于 2024-7-4 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477757&amp;ptid=2190017" target="_blank">caohhh 发表于 2024-7-4 14:17</a>
+
+中置电机从通勤到ecargo到emtb都有对应产品到你这里就成高端玩具了，不懂就别回了，真的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">我的错，是我先乱bb崔克奢侈品的
+
+*****
+
+####  real_zyf  
+##### 78#       发表于 2024-7-4 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478022&amp;ptid=2190017" target="_blank">讨逆修会 发表于 2024-7-4 14:42</a>
+
+跟啥玩意儿比有性价比</blockquote>
+作为参考，迪卡侬这玩意卖两万五，在普通人眼中大概是一模一样的东西？
+[https://www.decathlon.com.cn/pro ... %3A%22PRICE_DESC%22](https://www.decathlon.com.cn/product-detail?dsm_code=X8876138&amp;model_code=8876138&amp;category_id=644a1c540c5c730001d1e01b&amp;product_name=%E5%85%A8%E5%9C%B0%E5%BD%A2%E7%94%B5%E5%8A%A9%E5%8A%9B%E5%B1%B1%E5%9C%B0%E8%BD%A6%20E-AM100S&amp;listFilter=%7B%22sort%22%3A%22PRICE_DESC%22),%22selectFilter%22%3A%7B%7D,%22expandData%22%3A%5B%5D,%22category_id%22%3A%22644a1c540c5c730001d1e01b%22%7D
+
+*****
+
+####  doki  
+##### 79#         楼主| 发表于 2024-7-4 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477955&amp;ptid=2190017" target="_blank">real_zyf 发表于 2024-7-4 14:37</a>
+
+你先看看没有电助力的，车架材料避震系统变速系统都差不多配置的山地车卖多少钱先，这东西和你认知里面的 ...</blockquote>
+说这话的时候没看，现在看了
+
+这个就是更偏极限自行车运动加高级电助力
+
+轻蜂那个就是越野摩托车轻量版
+
+确实本来一定程度上自行车就是比摩托车“贵”的
+

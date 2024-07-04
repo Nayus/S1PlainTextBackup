@@ -7812,3 +7812,11 @@ lisani的6.8live repo
 
 看了一眼，你邦的黏土人好像只出过PPP全员、还有老五团主唱全员、高贵的吉他组全员，其他乐器没有，蝶和ras一个都没出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18493#       发表于 2024-7-4 14:44
+
+什么时候启动老团粘土人补全计划啊
+

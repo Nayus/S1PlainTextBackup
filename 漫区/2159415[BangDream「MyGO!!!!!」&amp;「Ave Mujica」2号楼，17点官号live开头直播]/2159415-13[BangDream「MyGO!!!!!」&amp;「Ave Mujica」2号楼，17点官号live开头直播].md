@@ -10693,3 +10693,63 @@ md，这下睡不着了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  shinraki  
+##### 18784#       发表于 2024-7-5 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484906&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-5 01:16</a>
+要是真拍成大祥传还拍得好看狗粉会破防吗</blockquote>
+会吧，以前就听人说邦邦历代都是主唱为第一主角，换成键盘手肯定不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  Aloereed  
+##### 18785#       发表于 2024-7-5 01:19
+
+<img src="https://img.saraba1st.com/forum/202407/05/011917ktq7xty7sx00jtth.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 01:19 上传
+
+还不睡啊独角兽<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  帝下室の年糕  
+##### 18786#       发表于 2024-7-5 01:19
+
+鸡就是要打破传统的，这很摇滚
+
+
+*****
+
+####  bindata  
+##### 18787#       发表于 2024-7-5 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 18788#       发表于 2024-7-5 01:25
+
+这下动画如果做好了肯定算独角兽的功劳，做差了就是演出背锅<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这下不粘锅了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  帝下室の年糕  
+##### 18789#       发表于 2024-7-5 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484931&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-7-5 01:19</a>
+还不睡啊独角兽</blockquote>
+唯独没有提大家最关心的狗菜鸡<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

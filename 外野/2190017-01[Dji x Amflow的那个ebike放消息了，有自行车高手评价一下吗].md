@@ -829,3 +829,39 @@ dji这车和specialized，trek同价位的除电机外配置基本相同(车架�
 
 确实本来一定程度上自行车就是比摩托车“贵”的
 
+
+*****
+
+####  real_zyf  
+##### 80#       发表于 2024-7-4 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478059&amp;ptid=2190017" target="_blank">doki 发表于 2024-7-4 14:46</a>
+
+说这话的时候没看，现在看了
+
+这个就是更偏极限自行车运动加高级电助力
+
+轻蜂那个就是越野摩托车轻量版</blockquote>
+其实如果国内有厂商干的话，把自行车部分的配置全部降下来选用更加亲民的配置，整台电助力城市自行车的话，应该五六千的水平就行了，然而国内这个生态位已经被新国标电动自行车占据了
+
+
+*****
+
+####  ryanghj  
+##### 81#       发表于 2024-7-4 14:51
+
+这个是真正的电动自行车，欧美市场接受度很高
+
+国内的所谓电自实际上都是电摩，在欧美都是算成摩托车的
+
+
+*****
+
+####  蓳白  
+##### 82#       发表于 2024-7-4 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478022&amp;ptid=2190017" target="_blank">讨逆修会 发表于 2024-7-4 14:42</a>
+
+跟啥玩意儿比有性价比</blockquote>
+裤子的Heckler，闪电的Turbo Levo SL比啊
+

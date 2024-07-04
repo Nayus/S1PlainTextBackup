@@ -10753,3 +10753,37 @@ md，这下睡不着了
 还不睡啊独角兽</blockquote>
 唯独没有提大家最关心的狗菜鸡<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 18790#       发表于 2024-7-5 01:28
+
+独角兽估计也是看完pv想起那些写mujica时的不眠之夜了<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  T@L  
+##### 18791#       发表于 2024-7-5 01:36
+
+柿本：不能寫兩份劇情給監督選的腳本，不需要了
+
+*****
+
+####  基神的强袭自由  
+##### 18792#       发表于 2024-7-5 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484881&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-5 01:13</a>
+为什么不是鸡五人从同居小屋的大床上一起醒来</blockquote>
+有这么大的床吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿姆罗二世  
+##### 18793#       发表于 2024-7-5 01:36
+
+那楚平方就不服了，祥子好歹还是乐队成员呢
+

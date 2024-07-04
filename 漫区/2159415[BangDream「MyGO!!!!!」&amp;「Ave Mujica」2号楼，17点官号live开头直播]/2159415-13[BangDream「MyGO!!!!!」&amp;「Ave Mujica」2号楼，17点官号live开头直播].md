@@ -7890,3 +7890,21 @@ lisani的6.8live repo
 
 而且一想到这段时间车立希的起源是因为立希难得客串活动有个圆梦剧情，却被人翻解包清算，倒也不是不能理解厨子不满
 
+
+*****
+
+####  滑稽Captain  
+##### 18501#       发表于 2024-7-4 19:23
+
+插播一条消息，根据文旅局审批公告，8.3 roselia 静安体育中心
+
+<img src="https://img.saraba1st.com/forum/202407/04/192301x6p9p1w6mmp4fwp6.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-07-04 19.22.53.png</strong> (121.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 19:23 上传
+
+hamaguchi naoya 滨口直也 r团的P
+

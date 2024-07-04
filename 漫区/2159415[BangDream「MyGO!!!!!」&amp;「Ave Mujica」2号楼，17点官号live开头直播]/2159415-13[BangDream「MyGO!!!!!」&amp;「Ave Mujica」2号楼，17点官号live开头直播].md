@@ -9075,3 +9075,112 @@ syl, 这pv让人看得害怕<img src="https://static.saraba1st.com/image/smiley/
 
 哪位漏油先来点假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 18627#       发表于 2024-7-4 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还是happyworld的邦多利片场吗？怎么给我干到恐怖片来了
+
+*****
+
+####  skives  
+##### 18628#       发表于 2024-7-4 22:01
+
+访谈其实提了很多次mujica有心灵恐怖的元素了吧 到底是超自然还是箱子心理压力导致的
+
+
+*****
+
+####  rikaren  
+##### 18629#       发表于 2024-7-4 22:03
+
+<blockquote>skives 发表于 2024-7-4 22:01
+访谈其实提了很多次mujica有心灵恐怖的元素了吧 到底是超自然还是箱子心理压力导致的 ...</blockquote>
+心理压力用超自然风格演出表现出来
+
+*****
+
+####  IWS2000  
+##### 18630#       发表于 2024-7-4 22:03
+
+退出哭团那天，祥子在雨中哭泣啊！
+
+*****
+
+####  [皆神孝介]  
+##### 18631#       发表于 2024-7-4 22:03
+
+刚才还觉得想睡，就看到这个PV
+
+垂死病中惊坐起
+
+完全精神了<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18632#       发表于 2024-7-4 22:04
+
+居然还有半年才开播<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18633#       发表于 2024-7-4 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这个倒吊的鸡玩偶（？）动作姿势和塔罗牌的倒吊人是一样的
+
+*****
+
+####  holmors  
+##### 18634#       发表于 2024-7-4 22:05
+
+这下不是超神就是超鬼了
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 18635#       发表于 2024-7-4 22:06
+
+期待了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 18636#       发表于 2024-7-4 22:06
+
+好久没来楼里了，一来就有大的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18637#       发表于 2024-7-4 22:07
+
+聯想一下
+
+<img src="https://img.saraba1st.com/forum/202407/04/220715n2hs69vqvgxpqusz.jpg" referrerpolicy="no-referrer">
+
+<strong>y2mate.com - TVアニメBanG Dream Ave Mujicaティザー映像_1080p.mp4_20240704_225716.837.jpg</strong> (354.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:07 上传
+
+*****
+
+####  NODY  
+##### 18638#       发表于 2024-7-4 22:08
+
+我超，发型发色。眼睛，吉他款式，项圈，手环，全都一模一样，这个人是多惠偶像mortin
+
+<img src="https://img.saraba1st.com/forum/202407/04/220810zqyslp8y0sp0h8jp.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (94.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 22:08 上传
+

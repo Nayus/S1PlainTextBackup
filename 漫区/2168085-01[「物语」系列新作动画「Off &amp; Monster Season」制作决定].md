@@ -1,0 +1,22 @@
+﻿
+*****
+
+####  Piano-Forest  
+##### 215#         楼主| 发表于 2024-7-4 18:08
+
+第1話「つきひアンドゥ」
+
+阿良々木月火を監視するため、阿良々木家に潜入している斧乃木余接。月火が学校に行っている間、のびのびと過ごしている余接だったが、突然帰ってきた月火に動いている姿を目撃されてしまった。
+
+脚本：大嶋実句
+
+絵コンテ：吉澤翠、安食圭
+
+演出：宮本幸裕
+
+作画監督：杉山延寛、山村洋貴、潮月一也、伊藤良明、髙野晃久、宮嶋仁志、浅井昭人、高橋みき、宮井加奈
+<img src="https://p.sda1.dev/18/8768e1438669b443c5193f2dbf210aa4/20240704_180723.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/47630e5ff59fd6ec01c3dcdfcebd67d8/20240704_180724 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ef5bb46faa7a9eefae8d0fc96de87f08/20240704_180724.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/51a7ba6c01c7612bd21cf139faf62c58/20240704_180725.jpg" referrerpolicy="no-referrer">
+

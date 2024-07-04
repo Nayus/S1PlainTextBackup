@@ -577,3 +577,33 @@ ebike 这么贵真是疯了
 
 所以我才纳闷是不是有什么硬件方面的限制（除了自行车零件之外），才导致了没有人拿新国标当class 2 ebike卖。
 
+
+*****
+
+####  doki  
+##### 58#         楼主| 发表于 2024-7-4 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65475702&amp;ptid=2190017" target="_blank">agsva 发表于 2024-7-4 10:50</a>
+
+美国的定义很模糊，ebike class 2 是限速20mph，有油门可以直接推油门发车，也就是能直接电力输出。而mop ...</blockquote>
+确实查不到详细规定，判定应该是外观和覆盖件吧，首先你得长的像自行车，马上国内新国标也要限制塑料件重量了……
+
+纽约政府给的参考图还挺好玩，mopad c示例图还是小牛，单纯按这个表，国内的小包新国标过去就是mopad c
+
+ebikes-more.png
+(150.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 11:06 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/110610gduegw0jwkswyvsv.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cen  
+##### 59#       发表于 2024-7-4 11:13
+
+看了一眼，没标整车重量？
+

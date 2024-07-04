@@ -7804,3 +7804,11 @@ lisani的6.8live repo
 灯竟然出了粘土人<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">希望之后鸡也有份
 <img src="https://p.sda1.dev/18/766e581509687bf92bff00968f760a2a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18492#       发表于 2024-7-4 14:08
+
+看了一眼，你邦的黏土人好像只出过PPP全员、还有老五团主唱全员、高贵的吉他组全员，其他乐器没有，蝶和ras一个都没出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

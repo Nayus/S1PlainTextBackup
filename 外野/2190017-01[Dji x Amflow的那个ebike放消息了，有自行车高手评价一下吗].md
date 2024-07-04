@@ -634,3 +634,59 @@ trek崔克能算传统自行车厂吗？他们e ...</blockquote>
 
 不是说dji不配贵，只是第一款产品就5万起那胆量气魄挺足的，毕竟他之前的产品都是和竞品价格差不多但是配置更好一点的
 
+
+*****
+
+####  catxing  
+##### 62#       发表于 2024-7-4 14:10
+
+<blockquote>doki 发表于 2024-7-4 14:00
+崔克现在不就是网红奢侈品？另外你也知道是3K刀起啊
+
+不是说dji不配贵，只是第一款产品就5万起那胆量气魄 ...</blockquote>
+Trek占据了美国自行车市场的22.5%，市占率第一。
+
+原来美国人民不喜欢买普通自行车就专门买网红奢侈品啊。
+
+你这样玩电二轮的就折腾你的轻蜂去呗，自行车你玩不来也不一定玩得起，中置电机ebike是自行车佬的高端玩具，和电二轮的区别大概类似于java和javascript，别蹭流量了，真的。
+
+*****
+
+####  cen  
+##### 63#       发表于 2024-7-4 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477413&amp;ptid=2190017" target="_blank">catxing 发表于 2024-7-4 13:34</a>
+https://www.trekbikes.com/us/en_US/bikes/electric-bikes/c/B507/
+
+trek崔克能算传统自行车厂吗？他们e ...</blockquote>
+你要对标崔克，那也得这个品牌的车队或者赞助的车手拿出成绩来再说，自行车市场就是这样的。
+
+*****
+
+####  口四囧  
+##### 64#       发表于 2024-7-4 14:12
+
+这玩意是山地？能冲山吗？普通XC就行<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  catxing  
+##### 65#       发表于 2024-7-4 14:16
+
+<blockquote>cen 发表于 2024-7-4 14:10
+你要对标崔克，那也得这个品牌的车队或者赞助的车手拿出成绩来再说，自行车市场就是这样的。 ...</blockquote>
+现在winspace之类厦门碳牌子的公路车老外那里接受度很高，但是他们看着ebike热潮只能干着急，因为这些牌子得不到博士之类大厂的帮助，自己研发中置电机难度太高。dji这套玩意儿相当于ebike时代的套件，为车厂提供整套方案。蓝图挑战sram shimano的公路车电变套件，轮峰挑战公路车电变，dji挑战ebike套件，我觉得这竞争思路非常清晰。
+
+*****
+
+####  caohhh  
+##### 66#       发表于 2024-7-4 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477713&amp;ptid=2190017" target="_blank">catxing 发表于 2024-7-4 14:10</a>
+
+Trek占据了美国自行车市场的22.5%，市占率第一。
+
+原来美国人民不喜欢买普通自行车就专门买网红奢侈品啊 ...</blockquote>
+中置电机从通勤到ecargo到emtb都有对应产品到你这里就成高端玩具了，不懂就别回了，真的
+

@@ -534,3 +534,16 @@ ebike 这么贵真是疯了
 
 赚点老外的钱挺好
 
+
+*****
+
+####  电波系腑海林  
+##### 54#       发表于 2024-7-4 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65475103&amp;ptid=2190017" target="_blank">Jinyp 发表于 2024-7-4 10:05</a>
+
+这东西就是富哥玩具，它是个软尾山地ebike，和通勤用电助力车完全不是一类产品
+
+这玩意的玩法大概是：开着电 ...</blockquote>
+确实，我问了一下，他们说就是吃的这块蛋糕而且价格很有诚意了
+

@@ -431,3 +431,25 @@ ebike主要卖欧美吧，对于当地来说优点就是不要上牌，而电驴
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  lexi  
+##### 45#       发表于 2024-7-4 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474637&amp;ptid=2190017" target="_blank">doki 发表于 2024-7-4 09:27</a>
+
+又一下转进了，楼里不是都是替大疆卖不出去急，只有你是为了价格急吧
+
+拜托5000欧起步卖够1万辆了你再吹能 ...</blockquote>
+哈哈哈，是谁在急？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jkl  
+##### 46#       发表于 2024-7-4 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65473914&amp;ptid=2190017" target="_blank">奶香花卷 发表于 2024-7-4 07:29</a>
+ 不错，期待小米</blockquote>
+小米8年前就在做了，骑记（现在不做自行车了，给小米代工充气泵）、云马（已倒闭）、himo、baicycle都是米家生态链，以前还有贴自己标的电助力自行车
+

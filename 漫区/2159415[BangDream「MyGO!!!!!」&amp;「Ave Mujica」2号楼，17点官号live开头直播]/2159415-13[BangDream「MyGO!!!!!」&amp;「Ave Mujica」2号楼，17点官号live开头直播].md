@@ -9911,3 +9911,71 @@ emmmm网卡了
 
 挺奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 18708#       发表于 2024-7-4 23:19
+
+开始滑坡独角兽了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  NODY  
+##### 18709#       发表于 2024-7-4 23:22
+
+两把绿伞都是睦的话海铃不是没伞了吗，黑色那把才是多出来的吧
+
+*****
+
+####  cherryjia12  
+##### 18710#       发表于 2024-7-4 23:22
+
+是我第二喜欢的短道速滑环节
+
+*****
+
+####  Суслов  
+##### 18711#       发表于 2024-7-4 23:23
+
+五个神经病必不可能，邦邦是有大智慧的，爆爆爆最后还怎么krkr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 18712#       发表于 2024-7-4 23:24
+
+<blockquote>星天观测 发表于 2024-7-4 23:14
+仔细看了下线，睦海喵的线都是直的，会有一种在受力感，祥子身上有没有线不确定，大概没有
+
+初华的线下垂 ...</blockquote>
+oblivionis身上没线很正常，doloris身上的线为什么会是反的得好好思考
+
+*****
+
+####  skives  
+##### 18713#       发表于 2024-7-4 23:26
+
+伞的颜色挺清楚吧
+黄色初华 蓝色祥子 粉色喵梦 黑色海铃
+但很神奇的有两个绿色的睦
+
+*****
+
+####  贰臣  
+##### 18714#       发表于 2024-7-4 23:27
+
+之前在哪里看到甜甜圈女士的名字也是绿色字体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18715#       发表于 2024-7-4 23:28
+
+那个伞相比黑色更像深蓝，确实是海铃的颜色，两把绿伞还是挺好假药的
+

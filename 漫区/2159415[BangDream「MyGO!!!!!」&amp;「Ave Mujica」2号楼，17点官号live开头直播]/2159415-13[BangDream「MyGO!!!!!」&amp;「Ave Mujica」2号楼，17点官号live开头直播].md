@@ -7916,3 +7916,11 @@ hamaguchi naoya 滨口直也 r团的P
 
 静安座位是5k？还行吧，比之前1k好多了
 
+
+*****
+
+####  星天观测  
+##### 18503#       发表于 2024-7-4 20:06
+
+5k……会赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

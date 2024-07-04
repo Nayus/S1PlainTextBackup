@@ -12405,3 +12405,14 @@ aksys宣布东京迷城ns英文7.25发售。
 刀剑和dq123都没有ps4版了，明年你法还出4版吗</blockquote>
 明年如果界2肯定出，如果是京迷我倾向也会出。因为京迷与其纠结会不会出ps4版，倒不如说任天堂那边怎么办。新机哪怕明年出了，法肯定也要出ns版，ns都伺候也不在乎多伺候一个ps4了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1201#       发表于 2024-7-4 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65480359&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-7-4 17:48</a>
+
+明年如果界2肯定出，如果是京迷我倾向也会出。因为京迷与其纠结会不会出ps4版，倒不如说任天堂那边怎么办 ...</blockquote>
+希望别再基于ns开发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

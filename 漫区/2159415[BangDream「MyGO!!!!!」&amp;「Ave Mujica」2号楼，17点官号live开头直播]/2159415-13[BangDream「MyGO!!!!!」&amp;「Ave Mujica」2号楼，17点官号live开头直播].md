@@ -10317,3 +10317,39 @@ seto神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 
 就是因为这个我才一直惦记鸡五人邦TV<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YESIARE  
+##### 18743#       发表于 2024-7-4 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483724&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-4 22:54</a>
+
+还真不一定
+
+个人看法，在视觉图里，初华祥子海铃的姿势都是“自主动作”，就是会靠自己的意志摆出这样的pos ...</blockquote>
+喵梦哭着对睦头说：你能去拯救那个还没被祥子欺骗的我吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 18744#       发表于 2024-7-5 00:01
+
+<img src="https://img.saraba1st.com/forum/202407/05/000047z2k153udo8o8dl58.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (704.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 00:00 上传
+
+x:pati_nyaaaaaaa
+
+
+*****
+
+####  DarthAka  
+##### 18745#       发表于 2024-7-5 00:05
+
+录音是最便宜的部分，重录有啥稀奇
+

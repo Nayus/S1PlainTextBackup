@@ -557,3 +557,23 @@ ebike 这么贵真是疯了
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  razielzyc  
+##### 56#       发表于 2024-7-4 10:48
+
+不要用通勤的角度看这车，高端ebike是玩乐属性的。解决了xc，软尾上坡的痛点。毕竟不是哪都有崇礼那种速降环境。
+
+*****
+
+####  agsva  
+##### 57#       发表于 2024-7-4 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474410&amp;ptid=2190017" target="_blank">doki 发表于 2024-7-4 09:06</a>
+
+因为咱们的新国标除了强制加脚蹬，基本等于台湾的电动两轮车标准，比日本的原付一等更宽松点，都属于限速 ...</blockquote>
+美国的定义很模糊，ebike class 2 是限速20mph，有油门可以直接推油门发车，也就是能直接电力输出。而moped class c也是限速20mph。简要的区别说明只是说能走的道不一样以及moped需要上牌及驾照。但是找不到具体对车子硬件的限制。
+
+所以我才纳闷是不是有什么硬件方面的限制（除了自行车零件之外），才导致了没有人拿新国标当class 2 ebike卖。
+

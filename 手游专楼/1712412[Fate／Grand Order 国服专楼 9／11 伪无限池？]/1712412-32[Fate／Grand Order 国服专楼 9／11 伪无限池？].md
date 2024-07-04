@@ -14,3 +14,11 @@
 
 不是有个三国手游（不是二游）吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46485#       发表于 2024-7-4 10:50
+
+除了闪闪第一次up抽到，有三四年他每次up每次都抽（虽然也就几十抽）但每次都抽不到还是很无语……金先生你差不多得了！！！
+

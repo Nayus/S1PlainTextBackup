@@ -10529,3 +10529,109 @@ x:pati_nyaaaaaaa
 
 如果劇本有啵嘴難道演出還能不給拍嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 18765#       发表于 2024-7-5 00:58
+
+开香槟咯，至少剧本肯定还是深度参与的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18766#       发表于 2024-7-5 00:58
+
+啊？还有情况？
+
+*****
+
+####  dqtql  
+##### 18767#       发表于 2024-7-5 00:59
+
+md，这下睡不着了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 18768#       发表于 2024-7-5 00:59
+
+难道不是可能是甩锅宣言吗，分镜以后得东西都和她没关系了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 18769#       发表于 2024-7-5 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我觉得只要剧本层没变问题不大，在演出上还是要相信广大老师
+
+
+*****
+
+####  skives  
+##### 18770#       发表于 2024-7-5 01:02
+
+独角兽的邦多利遗作
+承载着数万人的悲愿
+必将成神
+如果成不了神 那和她也没关系了
+期待她的下一部女女作品
+
+*****
+
+####  hitori酱  
+##### 18771#       发表于 2024-7-5 01:03
+
+开滑了……
+
+之前mygo的时候，独角兽说过有些集数是配合演出计划来创作脚本的，如果mujica是写完脚本不再参与后续演出的情况……
+
+*****
+
+####  IWS2000  
+##### 18772#       发表于 2024-7-5 01:04
+
+独角兽：我剧本里没有那句哟西
+
+*****
+
+####  穗波殊  
+##### 18773#       发表于 2024-7-5 01:05
+
+往好处想，也许是交了个对演出要求高的剧本，对最后呈现的效果不自信 这样子吧
+
+*****
+
+####  Aloereed  
+##### 18774#       发表于 2024-7-5 01:06
+
+<img src="https://img.saraba1st.com/forum/202407/05/010609qvauuu436t8zuutz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 01:06 上传
+
+独角兽内心os：沟槽的监督不让我看分镜（不是
+
+*****
+
+####  星天观测  
+##### 18775#       发表于 2024-7-5 01:07
+
+也不一定说的就是鸡
+
+还是看看下周四的首次全员邦tv上鸡的团魂吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18776#       发表于 2024-7-5 01:08
+
+我觉得在动画制作当中，分镜以后的具体动画制作部分没有脚本的参与完全是正常流程吧（
+
+在假设她确实在隔空回复mujica相关话题的前提下，那最大影响就是成品没让她看，所以她就“别问，我也不知道”
+

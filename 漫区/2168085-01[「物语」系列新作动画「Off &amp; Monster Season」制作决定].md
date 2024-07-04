@@ -20,3 +20,11 @@
 <img src="https://p.sda1.dev/18/ef5bb46faa7a9eefae8d0fc96de87f08/20240704_180724.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/51a7ba6c01c7612bd21cf139faf62c58/20240704_180725.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 216#       发表于 2024-7-4 18:18
+
+老仓育真就惨败了，别真不做吧
+

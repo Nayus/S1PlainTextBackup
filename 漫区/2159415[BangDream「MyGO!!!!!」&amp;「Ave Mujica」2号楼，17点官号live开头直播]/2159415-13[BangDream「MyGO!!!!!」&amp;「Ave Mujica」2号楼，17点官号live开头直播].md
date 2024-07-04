@@ -9761,3 +9761,33 @@ emmmm网卡了
 
 有机会在动画正片里看到这样子的“被火焚烧”吗
 
+
+*****
+
+####  rikaren  
+##### 18697#       发表于 2024-7-4 23:02
+
+ 本帖最后由 rikaren 于 2024-7-4 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483732&amp;ptid=2159415" target="_blank">YESIARE 发表于 2024-7-4 22:55</a>
+
+21魔寄22rwby，23开始摸到现在，估计就那时候开始憋的</blockquote>
+如果那时候没分人手去做回天的话那就要好好想想魔寄二期那两个part作画是怎么这么多大幅度崩坏的，音轨丢失都有了（，顺带一提，手游变身动画也是非常震撼（
+
+*****
+
+####  Redimercia  
+##### 18698#       发表于 2024-7-4 23:04
+
+我在看魔圆？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  -LYRE-  
+##### 18699#       发表于 2024-7-4 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483517&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-7-4 22:37</a>
+还有上面这个邦邦tv动画新系列，看了就跟大热天喝了一罐冰可乐一样舒服，以后再有gop说什么mygo第二季…… ...</blockquote>
+乐，昨天看到有人汴京mygo续篇前缀不可分割，今天就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

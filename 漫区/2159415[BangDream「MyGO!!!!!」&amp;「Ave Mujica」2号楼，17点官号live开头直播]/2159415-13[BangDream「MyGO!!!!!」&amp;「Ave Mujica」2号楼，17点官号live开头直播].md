@@ -9979,3 +9979,129 @@ oblivionis身上没线很正常，doloris身上的线为什么会是反的得好
 
 那个伞相比黑色更像深蓝，确实是海铃的颜色，两把绿伞还是挺好假药的
 
+
+*****
+
+####  IWS2000  
+##### 18716#       发表于 2024-7-4 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483927&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-4 23:14</a>
+独角兽的推目前还没转发鸡的pv，到时候宣staff如果系构不是独角兽就好玩了</blockquote>
+不是独角兽对go反而是好事吧，烂了切割好了认
+
+*****
+
+####  skives  
+##### 18717#       发表于 2024-7-4 23:29
+
+音都录完了 哪有时间改剧本  每个月都要滑坡吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18718#       发表于 2024-7-4 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484013&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-4 23:24</a>
+
+oblivionis身上没线很正常，doloris身上的线为什么会是反的得好好思考</blockquote>
+或许不是反的，是线不受力所以自然下垂
+
+试着稍微列举一下
+
+装置不操控dolo的情况：1，操控者放弃了dolo  2，操控者不想操控dolo  3，操控者忘记dolo
+
+dolo装置坏掉的情况：1，操控者方的某种原因无法再操控dolo 2，dolo通过某种办法自主破坏了操控关系
+
+感觉不管是哪种，搭配dolo自己做出的自闭动作，好像都挺奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 18719#       发表于 2024-7-4 23:31
+
+伞的颜色跟mygo一样吧，不好说到底是啥
+
+<img src="https://img.saraba1st.com/forum/202407/04/233121i2fx857bbvg4glv8.png" referrerpolicy="no-referrer">
+
+<strong>%X)AH6FN7P_9$C220{HOS9P.png</strong> (282.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/04/233124hgk7rghvk50kghoh.png" referrerpolicy="no-referrer">
+
+<strong>2}]Z_[7B)CR0OO@`G(]8}1I.png</strong> (143.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:31 上传
+
+*****
+
+####  YESIARE  
+##### 18720#       发表于 2024-7-4 23:32
+
+海铃没想到有什么能爆的，太成熟沉稳了
+
+
+*****
+
+####  IWS2000  
+##### 18721#       发表于 2024-7-4 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65484078&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-7-4 23:31</a>
+伞的颜色跟mygo一样吧，不好说到底是啥</blockquote>
+mygo上天了，母鸡卡还是底边<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18722#       发表于 2024-7-4 23:33
+
+这图对比下来伞确实不一样
+
+狗那个是透明的，鸡这边明显是不透的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 18723#       发表于 2024-7-4 23:33
+
+六把伞是mygo+甜甜圈总共六个人，飞起来暗示第二季mujica要和这六个人绝交<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18724#       发表于 2024-7-4 23:33
+
+seto神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+吃大金毛狗狗醋的大金毛好可愛
+
+<img src="https://img.saraba1st.com/forum/202407/04/232939txh05hfgkogbhp8g.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240704-142405_1808869395936260439_photo.jpg</strong> (276.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:29 上传
+
+[https://x.com/bpdne/status/1808869395936260439](https://x.com/bpdne/status/1808869395936260439)
+
+*****
+
+####  PorkSoda  
+##### 18725#       发表于 2024-7-4 23:35
+
+怎么样才能把海铃倒吊起来
+
+*****
+
+####  MASKA-1  
+##### 18726#       发表于 2024-7-4 23:36
+
+“我要把🐶团一个个都送上天”
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -7820,3 +7820,26 @@ lisani的6.8live repo
 
 什么时候启动老团粘土人补全计划啊
 
+
+*****
+
+####  斯托雷加  
+##### 18494#       发表于 2024-7-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65477246&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-4 13:10</a>
+
+隔壁又在车立希了
+
+等等今晚直播看有没有好活，相信wsd在让人失望这方面从不会让人失望吧 ...</blockquote>
+啊，有没有链接我想去瞅瞅
+
+
+*****
+
+####  星天观测  
+##### 18495#       发表于 2024-7-4 16:13
+
+如果你以前看过一次隔壁车立希的内容那就没啥好看的，因为都是说了几百遍的车轱辘话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这次新了一点，车了两句独角兽是二流编剧
+

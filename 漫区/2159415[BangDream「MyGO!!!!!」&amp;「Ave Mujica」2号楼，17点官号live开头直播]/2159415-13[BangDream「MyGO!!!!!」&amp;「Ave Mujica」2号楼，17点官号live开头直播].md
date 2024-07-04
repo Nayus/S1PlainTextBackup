@@ -8904,3 +8904,77 @@ malice mizer感真重
 
 有多急
 
+
+*****
+
+####  10th_Mystery  
+##### 18607#       发表于 2024-7-4 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 18608#       发表于 2024-7-4 21:40
+
+情报哥发了啥，你们能看见吗？
+
+*****
+
+####  第七軍伐戎処  
+##### 18609#       发表于 2024-7-4 21:41
+
+没有母鸡卡看要死了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  影伴光生  
+##### 18610#       发表于 2024-7-4 21:42
+
+怎么感觉新画面多了很多晦涩的内容——还是说只是幻觉，灌了真白的蘑菇汤而已
+
+*****
+
+####  NODY  
+##### 18611#       发表于 2024-7-4 21:42
+
+好家伙情报哥出没？看过正片了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 18612#       发表于 2024-7-4 21:44
+
+情报哥没发晚的话，明天还有新东西吗
+
+*****
+
+####  rikaren  
+##### 18613#       发表于 2024-7-4 21:44
+
+live画面是新的，bgm应该也是新歌的旋律／伴奏？
+
+*****
+
+####  IWS2000  
+##### 18614#       发表于 2024-7-4 21:47
+
+情报哥这魔性头像<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  もも的洞洞鞋  
+##### 18615#       发表于 2024-7-4 21:47
+
+还有半年，什么时候出pv2啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+syl, 这pv让人看得害怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18616#       发表于 2024-7-4 21:48
+
+该开始按帧分析时间了
+

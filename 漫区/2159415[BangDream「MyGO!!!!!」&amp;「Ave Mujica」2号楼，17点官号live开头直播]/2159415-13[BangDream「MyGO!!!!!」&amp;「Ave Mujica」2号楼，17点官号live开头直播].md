@@ -9791,3 +9791,123 @@ emmmm网卡了
 还有上面这个邦邦tv动画新系列，看了就跟大热天喝了一罐冰可乐一样舒服，以后再有gop说什么mygo第二季…… ...</blockquote>
 乐，昨天看到有人汴京mygo续篇前缀不可分割，今天就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18700#       发表于 2024-7-4 23:09
+
+<blockquote>星天观测 发表于 2024-7-4 22:54
+还真不一定
+
+个人看法，在视觉图里，初华祥子海铃的姿势都是“自主动作”，就是会靠自己的意志摆出这样的pos ...</blockquote>
+仔细看了下线，除了ob子另外四个身上应该都有明显连着的（方向不一定是向上，doloris身上的就有感觉是向下的），不过amoris的右手，mortis的左手应该是最明显的。
+
+*****
+
+####  PDQ4  
+##### 18701#       发表于 2024-7-4 23:09
+
+ 本帖最后由 PDQ4 于 2024-7-4 23:11 编辑 
+
+重新顶针了一下
+
+两把绿伞
+
+<img src="https://img.saraba1st.com/forum/202407/04/230630ji4xfl3lzk4n3xl3.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (95.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:06 上传
+
+视觉图一个大睦一个睦人偶
+
+<img src="https://img.saraba1st.com/forum/202407/04/230707kvjfqdizfvgu6iub.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (386.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:07 上传
+
+有个人偶在看live，可能是鸡live
+
+<img src="https://img.saraba1st.com/forum/202407/04/230734j1z90n1r0b3r9vrr.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (94.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 23:07 上传
+
+睦不会多重人格吧，一个若叶睦一个mortis，上舞台就换人格
+
+小时候是mortis的人格，发生了什么后变成现在这个人格了，而且还可以关联负罪感，如果和祥子相关就是因为祥子问题导致双重人格了
+
+这下夹心了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18702#       发表于 2024-7-4 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483517&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-7-4 22:37</a>
+
+还有上面这个邦邦tv动画新系列，看了就跟大热天喝了一罐冰可乐一样舒服，以后再有gop说什么mygo第二季…… ...</blockquote>
+
+嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18703#       发表于 2024-7-4 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">双重人格可太适合写悬疑惊悚剧本了
+
+*****
+
+####  skives  
+##### 18704#       发表于 2024-7-4 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483877&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-4 23:09</a>
+重新顶针了一下
+
+两把绿伞</blockquote>
+太好了 就是这个味
+
+*****
+
+####  御幸一也  
+##### 18705#       发表于 2024-7-4 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483877&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-4 23:09</a>
+
+重新顶针了一下
+
+两把绿伞</blockquote>
+這裡的<strong>兩把</strong>綠傘確實很耐人尋味<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqtql  
+##### 18706#       发表于 2024-7-4 23:14
+
+独角兽的推目前还没转发鸡的pv，到时候宣staff如果系构不是独角兽就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18707#       发表于 2024-7-4 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65483876&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-4 23:09</a>
+
+仔细看了下线，除了ob子另外四个身上应该都有明显连着的（方向不一定是向上，doloris身上的就有感觉是向 ...</blockquote>
+仔细看了下线，睦海喵的线都是直的，会有一种在受力感，祥子身上有没有线不确定，大概没有
+
+初华的线下垂就像是，上面操控线的装置没有施力或者装置已经坏掉，然后初华自己做出了类似于自闭的pose
+
+挺奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

@@ -10413,3 +10413,49 @@ x:pati_nyaaaaaaa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是微博那个惠嬷圣经吧，我看一次笑一次
 
+
+*****
+
+####  穗波殊  
+##### 18753#       发表于 2024-7-5 00:37
+
+其实我的意思只是睦头很好嬷而已<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">东亚女性千百年来被视作美的事物被安排在一个睦头身上，美艳得不可方物
+
+
+*****
+
+####  MASKA-1  
+##### 18754#       发表于 2024-7-5 00:40
+
+不评价<img src="https://p.sda1.dev/18/c1f6ae886acfee12734d8219de8e58a7/IMG_CMP_203888767.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cherryjia12  
+##### 18755#       发表于 2024-7-5 00:45
+
+ 本帖最后由 cherryjia12 于 2024-7-5 00:46 编辑 
+
+该开滑了吗
+不过怎么感觉说的是菜花？作为系构的话没道理说这种话吧？
+难道这就是和柿本决裂的原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 18756#       发表于 2024-7-5 00:47
+
+<blockquote>PDQ4 发表于 2024-7-5 00:23
+睦怎么可能是纯粹的顺从
+
+首先就算是动画那个“弱气”的样子，说话从来不用敬语“没礼貌”的样子，找祥子直 ...</blockquote>
+铁暗恋爱好者（即答）
+
+*****
+
+####  skives  
+##### 18757#       发表于 2024-7-5 00:47
+
+初祥的kiss和睦祥的过激行为只能存在于脚本里了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

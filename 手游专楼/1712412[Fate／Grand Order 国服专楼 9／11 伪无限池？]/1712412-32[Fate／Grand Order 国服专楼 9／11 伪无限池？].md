@@ -57,3 +57,13 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 怎么是百层塔 吐了
 
+
+*****
+
+####  khxooo  
+##### 46490#       发表于 2024-7-5 00:45
+
+ 本帖最后由 khxooo 于 2024-7-5 00:46 编辑 
+
+100层+高难过了，等明天打完剩下的100层就可以跟这垃圾活动Say good bye了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

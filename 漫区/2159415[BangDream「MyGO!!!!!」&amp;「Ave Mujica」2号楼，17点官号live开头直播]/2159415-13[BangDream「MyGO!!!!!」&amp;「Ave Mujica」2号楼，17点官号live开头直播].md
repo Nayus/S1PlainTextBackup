@@ -8376,3 +8376,531 @@ r团的承办是之前lisa那个，那场确实有点一般
 
 走神了，刚刚是说蝶，ag，mygo会有混活吗
 
+
+*****
+
+####  rikaren  
+##### 18546#       发表于 2024-7-4 21:24
+
+终于来动画情报了
+
+*****
+
+####  御幸一也  
+##### 18547#       发表于 2024-7-4 21:24
+
+這感覺更加錘ave是延期的了。
+
+*****
+
+####  rikaren  
+##### 18548#       发表于 2024-7-4 21:25
+
+草，这什么bgm
+
+*****
+
+####  PDQ4  
+##### 18549#       发表于 2024-7-4 21:26
+
+卧槽，情报，好阴间
+
+*****
+
+####  Alicest  
+##### 18550#       发表于 2024-7-4 21:26
+
+<img src="https://img.saraba1st.com/forum/202407/04/212559zldtuplltirwwciw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (354.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:25 上传
+
+*****
+
+####  滑稽Captain  
+##### 18551#       发表于 2024-7-4 21:26
+
+我去 还真有新PV
+
+<img src="https://img.saraba1st.com/forum/202407/04/212557jlyw9cvw449mchnl.jpg" referrerpolicy="no-referrer">
+
+<strong>534857241CED58C9EA1CF904252D4379.jpg</strong> (214.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:25 上传
+
+*****
+
+####  PDQ4  
+##### 18552#       发表于 2024-7-4 21:26
+
+明年动画可以这个风格吗
+
+*****
+
+####  御幸一也  
+##### 18553#       发表于 2024-7-4 21:26
+
+新KV！
+
+<img src="https://img.saraba1st.com/forum/202407/04/212610knhuu0ylu4ahkzu4.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！　夏の大発表会2024 1-5-44 screenshot.png</strong> (2.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:26 上传
+
+*****
+
+####  rikaren  
+##### 18554#       发表于 2024-7-4 21:26
+
+<img src="https://img.saraba1st.com/forum/202407/04/212636znntq5bty5nt5ttq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-25-52-21_149003a2d400f6adb210d7e357a3a646.jpg</strong> (259.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:26 上传
+
+*****
+
+####  Alicest  
+##### 18555#       发表于 2024-7-4 21:26
+
+新增了祥子退团之后哭的新画面吧
+
+*****
+
+####  skives  
+##### 18556#       发表于 2024-7-4 21:26
+
+噢噢噢噢噢噢哦哦
+
+*****
+
+####  PDQ4  
+##### 18557#       发表于 2024-7-4 21:26
+
+ob子笑得好瘆人啊，比预想好多新东西，原谅wsd一晚上
+
+*****
+
+####  6030sylar  
+##### 18558#       发表于 2024-7-4 21:26
+
+祥子疯掉了吧
+
+*****
+
+####  Alicest  
+##### 18559#       发表于 2024-7-4 21:27
+
+<img src="https://img.saraba1st.com/forum/202407/04/212701xmccqlqug7yxtq24.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:27 上传
+
+*****
+
+####  星天观测  
+##### 18560#       发表于 2024-7-4 21:27
+
+有点哈人了
+
+
+*****
+
+####  KirigawaMaki  
+##### 18561#       发表于 2024-7-4 21:27
+
+新pv好有感觉，视觉图ob这个脸味太对了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 18562#       发表于 2024-7-4 21:28
+
+祥子笑的好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hitori酱  
+##### 18563#       发表于 2024-7-4 21:29
+
+好像看到小章鱼玩偶了
+
+*****
+
+####  月光的道标  
+##### 18564#       发表于 2024-7-4 21:29
+
+祥子这个坏掉的笑容，美味！
+
+*****
+
+####  枫林不见  
+##### 18565#       发表于 2024-7-4 21:29
+
+果然和我几个月前说的一模一样，Mygo的有明确进展的团活要是要等avemujica解决了才有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cindy355  
+##### 18566#       发表于 2024-7-4 21:29
+
+新物料也太少了吧……
+
+*****
+
+####  滑稽Captain  
+##### 18567#       发表于 2024-7-4 21:29
+
+怎么还是早秋晚秋，我日期呢
+
+*****
+
+####  IWS2000  
+##### 18568#       发表于 2024-7-4 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/622514a1c060b54bc05ce11b4995d969/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  luffy800  
+##### 18569#       发表于 2024-7-4 21:30
+
+<img src="https://img.saraba1st.com/forum/202407/04/213004dfbyfkkz78bkkbkm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:30 上传
+
+*****
+
+####  御幸一也  
+##### 18570#       发表于 2024-7-4 21:30
+
+你們這個動畫好嚇人啊（
+
+
+*****
+
+####  cherryjia12  
+##### 18571#       发表于 2024-7-4 21:30
+
+致敬传奇2024冬动画回天
+
+*****
+
+####  hitori酱  
+##### 18572#       发表于 2024-7-4 21:30
+
+黏土人出全员必买
+
+*****
+
+####  阿萨德飞过去  
+##### 18573#       发表于 2024-7-4 21:30
+
+这下是真要成魔女了
+
+*****
+
+####  IWS2000  
+##### 18574#       发表于 2024-7-4 21:31
+
+真的有章鱼啊
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 18575#       发表于 2024-7-4 21:31
+
+真正的魔女是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18576#       发表于 2024-7-4 21:31
+
+为什么是六把伞
+
+*****
+
+####  skives  
+##### 18577#       发表于 2024-7-4 21:31
+
+mujica篇长颈鹿是不是要来了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 18578#       发表于 2024-7-4 21:32
+
+「BanG Dream! Ave Mujica」先导PV：
+[https://youtu.be/BvzsvY3aSvg](https://youtu.be/BvzsvY3aSvg)
+
+*****
+
+####  枫林不见  
+##### 18579#       发表于 2024-7-4 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来是avemujica啊 我还以为是魔女之夜的回天呢
+
+*****
+
+####  rikaren  
+##### 18580#       发表于 2024-7-4 21:33
+
+<blockquote>御幸一也 发表于 2024-7-4 21:30
+你們這個動畫好嚇人啊（</blockquote>
+第三张是“被火焚烧”？
+
+*****
+
+####  滑稽Captain  
+##### 18581#       发表于 2024-7-4 21:33
+
+应该是水母吧（
+
+*****
+
+####  御幸一也  
+##### 18582#       发表于 2024-7-4 21:34
+
+TVアニメ「BanG Dream! Ave Mujica」ティザー映像
+[https://www.youtube.com/watch?v=BvzsvY3aSvg](https://www.youtube.com/watch?v=BvzsvY3aSvg)
+
+*****
+
+####  skives  
+##### 18583#       发表于 2024-7-4 21:34
+
+李子“从来没看过这种动画”<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 18584#       发表于 2024-7-4 21:35
+
+水母：还在追我
+
+*****
+
+####  Alicest  
+##### 18585#       发表于 2024-7-4 21:35
+
+不知道母鸡卡能有少歌几成
+
+<img src="https://img.saraba1st.com/forum/202407/04/213510j3iqm3tcii99cam8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:35 上传
+
+*****
+
+####  rikaren  
+##### 18586#       发表于 2024-7-4 21:35
+
+柿本监督能不能多来点超自然演出，就像圆，回转企鹅罐那样，就好这口
+
+*****
+
+####  hitori酱  
+##### 18587#       发表于 2024-7-4 21:35
+
+[Mujica先导PV B站更新](https://www.bilibili.com/video/BV1WE421P7pD/?spm_id_from=333.1007.top_right_bar_window_dynamic.content.click&amp;vd_source=09ad809909bd6481d00dfcf0eb92dc34)
+
+*****
+
+####  枫林不见  
+##### 18588#       发表于 2024-7-4 21:36
+
+李子说的有点哈人  <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18589#       发表于 2024-7-4 21:36
+
+总感觉祥子那张图是欺骗场景，等明天看看有多少翘嘴被钓起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 18590#       发表于 2024-7-4 21:36
+
+下周大的要来了？
+
+<img src="https://img.saraba1st.com/forum/202407/04/213606bcz7uqnw770swn3n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (322.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:36 上传
+
+*****
+
+####  PDQ4  
+##### 18591#       发表于 2024-7-4 21:36
+
+鸡团建！终于等到了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 18592#       发表于 2024-7-4 21:36
+
+那一声滴——少歌感瞬间上来了
+
+*****
+
+####  hitori酱  
+##### 18593#       发表于 2024-7-4 21:36
+
+[Mygo剧场版后篇pv B站更新](https://www.bilibili.com/video/BV1gW421R76R/?spm_id_from=333.788.top_right_bar_window_dynamic.content.click)
+
+*****
+
+####  6030sylar  
+##### 18594#       发表于 2024-7-4 21:36
+
+<img src="https://img.saraba1st.com/forum/202407/04/213625qe0l0zdpsn5esulp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:36 上传
+
+来了
+
+*****
+
+####  星天观测  
+##### 18595#       发表于 2024-7-4 21:36
+
+好好好，全员鸡
+
+*****
+
+####  rikaren  
+##### 18596#       发表于 2024-7-4 21:36
+
+<img src="https://img.saraba1st.com/forum/202407/04/213629w49psn9oni4nstki.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-04-21-36-02-14_149003a2d400f6adb210d7e357a3a646.jpg</strong> (336.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:36 上传
+
+过年了！！！！！！
+
+*****
+
+####  御幸一也  
+##### 18597#       发表于 2024-7-4 21:36
+
+我的全員回！！！！！！！！！！！！！！！！！！！！
+
+<img src="https://img.saraba1st.com/forum/202407/04/213622n1j38zwuycidroyr.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！　夏の大発表会2024 1-15-53 screenshot.png</strong> (2.5 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:36 上传
+
+*****
+
+####  睡过头的水龙头  
+##### 18598#       发表于 2024-7-4 21:36
+
+鸡回团建了
+
+*****
+
+####  滑稽Captain  
+##### 18599#       发表于 2024-7-4 21:36
+
+下周2nd结束呀，全员回顾live+聊聊动画正好
+
+*****
+
+####  KirigawaMaki  
+##### 18600#       发表于 2024-7-4 21:36
+
+全员邦tv！
+
+
+*****
+
+####  泥潭办证先锋  
+##### 18601#       发表于 2024-7-4 21:36
+
+有月亮，有电视，还有面具。
+
+懂了，这是船新的女神异闻录<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cindy355  
+##### 18602#       发表于 2024-7-4 21:37
+
+最好下期有大的
+
+*****
+
+####  stygian  
+##### 18603#       发表于 2024-7-4 21:37
+
+malice mizer感真重
+
+*****
+
+####  PDQ4  
+##### 18604#       发表于 2024-7-4 21:37
+
+能不能搭配解密活动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 18605#       发表于 2024-7-4 21:38
+
+看了祥子哭的边上建筑，我合理怀疑就是元和二年祥子拆团之后的后续<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">PV诈骗
+
+*****
+
+####  6030sylar  
+##### 18606#       发表于 2024-7-4 21:38
+
+<img src="https://img.saraba1st.com/forum/202407/04/213811bgp5bk0b74mb4z05.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-4 21:38 上传
+
+有多急
+

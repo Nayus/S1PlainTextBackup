@@ -3021,3 +3021,18 @@ F}S3WZ4M6VQ}G6Y%[N`4P}L.jpg
 
 一年以上没播了每次这么多人是哪里冒出来的！而且是一小时前才公布的直播内容啊
 
+
+*****
+
+####  holoan  
+##### 9143#         楼主| 发表于 2024-7-4 21:19
+
+每次GTA企划的选曲都如此完美，就是平时常规歌回不唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明唱得又不差
+
+*****
+
+####  holoan  
+##### 9144#         楼主| 发表于 2024-7-4 21:29
+
+玩个GTA把这孩子开心的，那为什么一年都没播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

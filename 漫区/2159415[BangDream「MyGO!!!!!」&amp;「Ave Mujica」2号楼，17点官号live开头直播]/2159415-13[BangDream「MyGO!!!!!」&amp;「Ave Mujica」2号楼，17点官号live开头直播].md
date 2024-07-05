@@ -12815,3 +12815,19 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 图里似乎没有jellyfish？</blockquote>
 推上的图，不过好像没有
 
+
+*****
+
+####  downforce  
+##### 19012#       发表于 2024-7-5 23:14
+
+ 本帖最后由 downforce 于 2024-7-5 23:16 编辑 
+
+<img src="https://p.sda1.dev/18/de55462f094e99aa1af35b1929bd44eb/CMP_20240705231255267.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/18/7803c21ab6071205a930ef1dbe55c944/CMP_20240705231553696.jpg" referrerpolicy="no-referrer">
+
+是GSAS出的啊，我记得该分公司刚成立时出的粘土人评价不太好。不知道现在产品质量如何了？
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

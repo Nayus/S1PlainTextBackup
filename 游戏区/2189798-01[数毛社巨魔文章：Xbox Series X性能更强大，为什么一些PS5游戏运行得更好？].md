@@ -593,3 +593,14 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么<img src="http
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  fantuanxiaoyi  
+##### 59#       发表于 2024-7-5 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65456315&amp;ptid=2189798" target="_blank">泰坦失足 发表于 2024-7-2 13:48</a>
+
+只要Xbox掌机发售，并无缝运行面向XSS开发的游戏，一切都会好起来的，到时候XSS就算神之一手了，前能低价推 ...</blockquote>
+一个surface都没做明白的公司，做掌机？
+

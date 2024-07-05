@@ -12626,3 +12626,15 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 京迷相比界轨画面上能进化多少
 
+
+*****
+
+####  ravend233  
+##### 1222#       发表于 2024-7-5 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65494961&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-7-5 20:52</a>
+京迷相比界轨画面上能进化多少</blockquote>
+如果是基于ns 1开发，那就是不倒车就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多人物建模和演出更好，然后支持一些高级特性，但是建模和场景要迁就ns1
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

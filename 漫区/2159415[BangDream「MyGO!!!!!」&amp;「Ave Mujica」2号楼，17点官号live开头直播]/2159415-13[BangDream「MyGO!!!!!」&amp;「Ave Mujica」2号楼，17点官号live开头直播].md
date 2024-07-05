@@ -12283,3 +12283,73 @@ b站不会让三次元搓一个大陆特供版吧
 
 我先盲猜一个下周邦tv的boke役是梦以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 18957#       发表于 2024-7-5 16:19
+
+我覺得是米澤好吧，然後吐槽役是高尾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 18958#       发表于 2024-7-5 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁楼上午时候不就这样，看到go箱活今年没有立马骂wsd，还贷款有重大剧情
+给mygo来个复刻初华剧情还不满意了，怎么还想让狗团来解决鸡团的事是吧
+
+*****
+
+####  rikaren  
+##### 18959#       发表于 2024-7-5 16:23
+
+srds，初华拉了一把灯避免灯直接栽在台阶上的，就看nga专楼那几个不知道有没有意识到这点
+
+*****
+
+####  星天观测  
+##### 18960#       发表于 2024-7-5 16:23
+
+那边不是一直信奉狗拯救鸡么，这点真是一直没变啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+邦tv还很在意李子的表现，之前都有其他团的成员在感觉还是比较靠谱的主唱形象，不知道下周全员来了会不会直接开始mujica化
+
+（高尾：你们这么搞显得我讲冷笑话都没那么好笑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  御幸一也  
+##### 18961#       发表于 2024-7-5 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492166&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-5 16:19</a>
+
+隔壁楼上午时候不就这样，看到go箱活今年没有立马骂wsd，还贷款有重大剧情
+
+给mygo来个复刻初华剧情还不满意 ...</blockquote>
+畢竟人家把你ave當作是go的附屬團捏 那當然就是這樣的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18962#       发表于 2024-7-5 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492214&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-5 16:23</a>
+
+那边不是一直信奉狗拯救鸡么，这点真是一直没变啊
+
+邦tv还很在意李子的表现，之前都有其他团的成员在感觉还 ...</blockquote>
+ave mujica 五個人那麼熟，已經可以想像會有多樂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 18963#       发表于 2024-7-5 16:27
+
+没有狗活哪有那么理由，八成就是因为加塞剧场版，鸡动画延期导致狗其他箱活时间线接不上了，懒狗wsd又不愿意重新加塞一个新箱活，手游剧情基本上提前半年多准备算正常
+
+那可是wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为wsd犯蠢觉得鸡明年会给狗垫了在想什么，缺东西不敢骂wsd只敢从鸡身上抢太好笑了，真把老登当亲爹了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12475,3 +12475,38 @@ aksys宣布东京迷城ns英文7.25发售。
 
 美版YS10 10.25
 
+
+*****
+
+####  无动于衷  
+##### 1208#       发表于 2024-7-5 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492185&amp;ptid=2160194" target="_blank">minus13 发表于 2024-7-5 16:21</a>
+
+我感觉PS4版法老控会出到索尼彻底放弃他那天
+
+轨迹肯定是基于PS开发的，但东迷2感觉真不好说，如果是和伊苏1 ...</blockquote>
+我还是要质疑 就伊苏10那个画面 
+
+真当年轻人都没吃过没见过？
+
+*****
+
+####  ravend233  
+##### 1209#       发表于 2024-7-5 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是以你法社标准YSX卖得确实算好的，说明画面对于你法社的受众群体价值没那么大
+
+可能更精美的人物建模更有意义
+
+*****
+
+####  KevinGraham  
+##### 1210#       发表于 2024-7-5 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492238&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-5 16:25</a>
+但是以你法社标准YSX卖得确实算好的，说明画面对于你法社的受众群体价值没那么大
+
+可能更精美的人物建模更 ...</blockquote>
+伊苏x的男女主建模是还凑合，主要场景特别是远景的建模太惨绝人寰了。。。
+

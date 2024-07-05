@@ -11258,3 +11258,175 @@ gbc没看下去，只看了牢台视频
 
 烤羊，最后一只
 
+
+*****
+
+####  car123  
+##### 18847#       发表于 2024-7-5 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">对邦颜值赢有什么用，一张嘴就见分晓了
+
+*****
+
+####  DarthAka  
+##### 18848#       发表于 2024-7-5 11:17
+
+不是，这不直接武道馆？
+
+*****
+
+####  skives  
+##### 18849#       发表于 2024-7-5 11:17
+
+3000人的场 一票难求<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  努斯万克  
+##### 18850#       发表于 2024-7-5 11:17
+
+刺团都是土妹子啊
+
+
+*****
+
+####  九陌狂游  
+##### 18851#       发表于 2024-7-5 11:20
+
+不是几几开啊，我一集gbc都没看啊，谁给我讲讲啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  枫林不见  
+##### 18852#       发表于 2024-7-5 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488261&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-5 11:20</a>
+
+不是几几开啊，我一集gbc都没看啊，谁给我讲讲啊
+
+论坛助手,iPhone</blockquote>
+91开吧，理名9，我在屏幕前笑着1.
+
+*****
+
+####  御幸一也  
+##### 18853#       发表于 2024-7-5 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488261&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-5 11:20</a>
+
+不是几几开啊，我一集gbc都没看啊，谁给我讲讲啊
+
+论坛助手,iPhone</blockquote>
+你說刺團的話，歌好聽、樂手實力強勁！然後主唱唱功強，而且吶喊都有喊出來，還是現役JK。
+
+動畫劇情的話，嗯 包餃子 沒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18854#       发表于 2024-7-5 11:22
+
+还有半年好吧，只要好好练习一定会赢的
+
+别质疑，先相信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18855#       发表于 2024-7-5 11:22
+
+主唱唱功十零开，换青木上去主唱还有机会
+
+*****
+
+####  IWS2000  
+##### 18856#       发表于 2024-7-5 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488261&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-5 11:20</a>
+不是几几开啊，我一集gbc都没看啊，谁给我讲讲啊
+
+论坛助手,iPhone</blockquote>
+【【舞台纯享中字】16岁主唱的超神现场... Girls Band Cry 闺泣OP「熙熙攘攘 我们的城市」「雑踏、僕らの街」-哔哩哔哩】 https://b23.tv/bkkjFKr
+听下这个就可以了
+
+*****
+
+####  skives  
+##### 18857#       发表于 2024-7-5 11:23
+
+该给羊姐安排上魔鬼训练了
+
+*****
+
+####  nebulanoby  
+##### 18858#       发表于 2024-7-5 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65487897&amp;ptid=2159415" target="_blank">蒜灵 发表于 2024-7-5 11:05</a>
+难绷，我在其他地方看到还以为是p图</blockquote>
+我也以为是P的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  SakuraのOrigami  
+##### 18859#       发表于 2024-7-5 11:23
+
+真的能赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+10人合唱的话唱GBC的曲子怎么办（）
+
+GBC的曲子转音特别多（）
+
+*****
+
+####  3353764798  
+##### 18860#       发表于 2024-7-5 11:24
+
+是唱对方的歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  枫林不见  
+##### 18861#       发表于 2024-7-5 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488350&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-7-5 11:23</a>
+
+真的能赢吗
+
+10人合唱的话唱GBC的曲子怎么办（）
+
+GBC的曲子转音特别多（）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">GBC的曲子制作初衷“听上去难，唱起来难、弹起来难、敲起来难”  合唱还是唱空之箱和春日影吧
+
+*****
+
+####  DarthAka  
+##### 18862#       发表于 2024-7-5 11:25
+
+<blockquote>九陌狂游 发表于 2024-7-5 11:20
+不是几几开啊，我一集gbc都没看啊，谁给我讲讲啊
+
+论坛助手,iPhone</blockquote>
+虽然在烤羊，大概羊欺负对面岁数小有一丝过关的可能
+
+然后bass没人在意，小日向说五五开了，大伙没意见
+
+剩下三个如果对面是所谓职业转的，那寄得干干净净
+
+*****
+
+####  御幸一也  
+##### 18863#       发表于 2024-7-5 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488372&amp;ptid=2159415" target="_blank">3353764798 发表于 2024-7-5 11:24</a>
+
+是唱对方的歌吗
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+還是你惡毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -570,3 +570,26 @@ xss比xsx少内存是硬伤。。。少别的都不是什么大问题
 
 讲道理这代主机都第四年了，ns甚至都7年了，按惯例早就应该发布下一代机器了吧
 
+
+*****
+
+####  zid99825  
+##### 57#       发表于 2024-7-5 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65486327&amp;ptid=2189798" target="_blank">overmindoyj 发表于 2024-7-5 09:05</a>
+讲道理这代主机都第四年了，ns甚至都7年了，按惯例早就应该发布下一代机器了吧 ...</blockquote>
+哪有4年就换代的，7-8年算正常周期，老任那边基本上就明年了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zid99825  
+##### 58#       发表于 2024-7-5 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65485515&amp;ptid=2189798" target="_blank">泰坦失足 发表于 2024-7-5 05:02</a>
+好吧，和PS5更弱一点的性能也对应的上。不过PS5 Pro不加任何内存吗。X1X/PS4 Pro/Ps5 Pro 只有X1X的内存 ...</blockquote>
+ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -10925,3 +10925,59 @@ ras：啊？很明显ras剧情核心是chu²啊。</blockquote>
 
 正式开播的主视觉图应该还是mygo那种 初华c位吧
 
+
+*****
+
+####  rikaren  
+##### 18807#       发表于 2024-7-5 09:39
+
+转了下其他论坛，似乎没看到反应过来绿企鹅玩偶应该是睦的，被火焚烧的倒吊鸡是timoris也没看到有人提。
+
+*****
+
+####  PDQ4  
+##### 18808#       发表于 2024-7-5 09:39
+
+初华肯定很c，跑不掉的，主唱是乐队的门面，在你邦就是星星
+
+我感觉上是早期更多是睦祥相关，是明面上的谜题，从去年开始就把异常和谜面反复抛到观众面前，初华相关倒是反复在藏
+
+明年动画我猜前期就会揭秘睦祥相关的问题，同时铺初华的暗线，后面顺理成章变成主唱开C<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18809#       发表于 2024-7-5 09:42
+
+其实这次的视觉图更类似于那种海报，其他四人身上都有线，再结合上一个pv里ob什么什么小姐那句“新鲜（？）的人偶已经为大家准备好了”
+
+或许不是母鸡卡的视觉而是母鸡卡的表演的视觉吧，那么作为舞台负责人的祥子在中间也有道理
+
+
+*****
+
+####  NODY  
+##### 18810#       发表于 2024-7-5 09:44
+
+最后告诉你那些是祥子的真白同款幻觉滤镜也是有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18811#       发表于 2024-7-5 09:45
+
+上一个阴间特效都是女主幻觉的动画是<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 18812#       发表于 2024-7-5 09:46
+
+<img src="https://img.saraba1st.com/forum/202407/05/094648j5ppq55n6qqv6i6h.jpg" referrerpolicy="no-referrer">
+
+<strong>bcbc87a740a9944476d33ea409e6e5496101576.jpg</strong> (64.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 09:46 上传
+

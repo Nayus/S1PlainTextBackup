@@ -12730,3 +12730,20 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以禮拜天真的要純看推特蹲情報了
 
+
+*****
+
+####  星天观测  
+##### 19004#       发表于 2024-7-5 19:09
+
+说起来昨天的pv，有月亮有电视有面具，可惜你鸡出的太晚了，不然联动一下女神异闻录还挺合适的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（p4g从氛围来说或许是最合适的，能不能等一波p4g重置的联动）
+
+*****
+
+####  rikaren  
+##### 19005#       发表于 2024-7-5 19:10
+
+如果还是星期四的话那可能7.11了
+

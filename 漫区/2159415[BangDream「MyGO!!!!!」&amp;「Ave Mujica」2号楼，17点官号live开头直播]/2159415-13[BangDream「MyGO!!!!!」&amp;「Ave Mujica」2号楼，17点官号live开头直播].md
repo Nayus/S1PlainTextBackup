@@ -12192,3 +12192,47 @@ pv里那个房间是祥子精神崩溃后的房间
 
 不知道，或许他的意思是鸡太深黑残了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  椎名mahuyo  
+##### 18947#       发表于 2024-7-5 15:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说有重大剧情还不如说进动画多卖两首新歌
+
+*****
+
+####  紫吹兰  
+##### 18948#         楼主| 发表于 2024-7-5 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65491882&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-5 15:53</a>
+
+过审 过什么审</blockquote>
+最好有什么过不了审的剧情
+
+*****
+
+####  MASKA-1  
+##### 18949#       发表于 2024-7-5 16:04
+
+b站不会让三次元搓一个大陆特供版吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  星天观测  
+##### 18950#       发表于 2024-7-5 16:05
+
+怎么可能，真别假药入脑吧，前缀是邦多利别忘了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 18951#       发表于 2024-7-5 16:05
+
+唉，才周五我就已经在等下周四的邦tv了，我真的好急<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

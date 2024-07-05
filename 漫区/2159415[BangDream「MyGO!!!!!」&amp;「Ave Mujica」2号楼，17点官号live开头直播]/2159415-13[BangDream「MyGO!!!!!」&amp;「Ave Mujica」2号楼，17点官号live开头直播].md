@@ -11537,3 +11537,154 @@ mygo剧本强，gbc制作好，winwin
 
 刺团人均龅牙加上不会打扮，这颜值能看才有鬼了
 
+
+*****
+
+####  NODY  
+##### 18877#       发表于 2024-7-5 11:37
+
+这俩宣传图放一起也是公开处刑了，泥邦怎么好意思拿shuzuku的图去和人比的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 18878#       发表于 2024-7-5 11:37
+
+领域展开！！
+<img src="https://p.sda1.dev/18/6cb4470426af3be05ba70fad308c045f/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 18879#         楼主| 发表于 2024-7-5 11:37
+
+现在这个标题我只是为了保持2好喽漫区唯一没分类的楼而一直没改，哪知道最近公布了这么多对邦<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18880#       发表于 2024-7-5 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有些人積點口德，天天批判別人長得如何
+
+
+*****
+
+####  シナモンロール  
+##### 18881#       发表于 2024-7-5 11:39
+
+羊宫非那唱空之箱把自己唱断气了，李明小人得志之时青木接过话筒开始唱一那空，李明当场被圣青木的实力活活吓死了。就在此时，旁边传来一声“很简单，我成hina不就是了”，风野灯织参战！一首slow motion将青木阳菜打的道心破碎转世重修。一刻也没有为青木阳菜的战死感到悲伤，立刻赶到战场的是，青木志贵。
+
+
+*****
+
+####  akiomn  
+##### 18882#       发表于 2024-7-5 11:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐，要不咱们去请mujica来助战吧
+
+*****
+
+####  DarthAka  
+##### 18883#       发表于 2024-7-5 11:41
+
+妮狗没键盘，节奏吉它和鼓只论live部分也是混子，主唱破音漏气忘词还是个胖子，主音经常弹疵，几乎邦不过任何人，给东映面子当个垫子
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 18884#       发表于 2024-7-5 11:42
+
+mygo和刺团争选live谁和祥子演奏春日影，评委拿不定主意让全体观众盲听两边主唱和祥子对唱春日影投票，结果竟然是500:500！这时角落里传来一个声音，大祥老师说：“我还没投票呢”。在和库来西库的回忆闪回与祥子纠结的表情过后，大祥老师投给了刺团，原来是从灯的歌声中听出了迷茫<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 18885#       发表于 2024-7-5 11:42
+
+上青木猪咪来段solo空之箱就够薄纱了
+
+*****
+
+####  蒜灵  
+##### 18886#       发表于 2024-7-5 11:43
+
+TMD我要被你们笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 18887#       发表于 2024-7-5 11:43
+
+不行了 太乐了 这才叫节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18888#       发表于 2024-7-5 11:43
+
+狗刺对邦不管母鸡卡的事好吧
+
+别在这种时候想起我们底边乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 18889#       发表于 2024-7-5 11:43
+
+说起来对面中之人好像有几个是go团粉丝？
+
+*****
+
+####  NODY  
+##### 18890#       发表于 2024-7-5 11:44
+
+与其说是go粉不如说是儿邦梦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18891#       发表于 2024-7-5 11:44
+
+突然意识到一个盲点，今年手游联动还以为是给go安排惯例的箱活联动，然后go箱活今年没了，不会又是那啥联动吧
+
+*****
+
+####  大户爱  
+##### 18892#       发表于 2024-7-5 11:44
+
+哪怕各个位置实力相当，听了刺团的歌之后我就发现了。
+一个乐队还是要有键盘，狗团能去鸡团那边把高尾租借回来嘛。
+
+*****
+
+####  akiomn  
+##### 18893#       发表于 2024-7-5 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488777&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-7-5 11:42</a>
+mygo和刺团争选live谁和祥子演奏春日影，评委拿不定主意让全体观众盲听两边主唱和祥子对唱春日影投票，结果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tmd京吹3还在追我！
+
+*****
+
+####  御幸一也  
+##### 18894#       发表于 2024-7-5 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488852&amp;ptid=2159415" target="_blank">大户爱 发表于 2024-7-5 11:44</a>
+
+哪怕各个位置实力相当，听了刺团的歌之后我就发现了。
+
+一个乐队还是要有键盘，狗团能去鸡团那边把高尾租借 ...</blockquote>
+不借哦 你們沒有鍵盤關我ave mujica什麼事？
+
+*****
+
+####  紫吹兰  
+##### 18895#         楼主| 发表于 2024-7-5 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488777&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-7-5 11:42</a>
+
+mygo和刺团争选live谁和祥子演奏春日影，评委拿不定主意让全体观众盲听两边主唱和祥子对唱春日影投票，结果 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">你们键盘都没有，还演奏什么春日影
+

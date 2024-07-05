@@ -616,3 +616,14 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
 论坛助手,iPhone</blockquote>
 到时候打算卖599还是499，我看那350刀的xsx也是风韵犹存啊
 
+
+*****
+
+####  zid99825  
+##### 61#       发表于 2024-7-5 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65487445&amp;ptid=2189798" target="_blank">泰坦失足 发表于 2024-7-5 10:35</a>
+
+到时候打算卖599还是499，我看那350刀的xsx也是风韵犹存啊</blockquote>
+加强机这东西本来也就死忠会换啊，ps5之前涨到549，这玩意卖649没问题吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

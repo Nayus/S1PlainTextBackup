@@ -13106,3 +13106,26 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 隔壁对海外市场好上心，然而cgSF连海外配信都不卖了
 
+
+*****
+
+####  yuuuuuuuu  
+##### 5663#       发表于 2024-7-5 13:33
+
+从今天的live抽选情况看，就知道cg这一年的操作都已经赶走不少人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 5664#       发表于 2024-7-5 13:33
+
+高情商迷光p
+<img src="https://p.sda1.dev/18/fb147aba5852e62fb3b080934de68215/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 5665#       发表于 2024-7-5 13:36
+
+话说第一幕的n组呢？啥安排啊。
+

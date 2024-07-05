@@ -12015,3 +12015,14 @@ pv里那个房间是祥子精神崩溃后的房间
 
 立希会死在mujica然后由真希（cv：林鼓子）替补mygo鼓手是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 18929#         楼主| 发表于 2024-7-5 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65490385&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 13:22</a>
+
+立希会死在mujica然后由真希（cv：林鼓子）替补mygo鼓手是吧，mygo只有立希待遇不好的原因找到了 ...</blockquote>
+没事，带不了货的鼓手待遇都不行，只有花音因为在游戏团，全团都带不了货的情况下待遇还行，所以换成真希待遇也不会有改变
+

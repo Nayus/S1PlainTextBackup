@@ -12142,3 +12142,26 @@ pv里那个房间是祥子精神崩溃后的房间
 
 但是萝8.3就有上海单独live，感觉翻唱萝的可能性不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18942#       发表于 2024-7-5 15:35
+
+怎么还真有人把似人的情节当真啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有时候真不能理解扭曲厨
+
+*****
+
+####  御景  
+##### 18943#       发表于 2024-7-5 15:36
+
+风水轮流转，打到自己身上才知道疼。
+
+当初WSD逆天操作，mujica动画遥遥无期，什么料都没有，mujica粉骂，各种堵嘴，贷款宣传期没到。
+
+现在WSD逆天操作，停了mygo手游活动，go粉骂，又开始贷mujica动画里，mygo有重大剧情。
+
+说不定，WSD单纯逆天呢
+

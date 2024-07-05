@@ -11031,3 +11031,29 @@ hhw被ban的世界观，不happy smile也是很正常的吧<img src="https://sta
 
 那么这个pv可能就只展示了祥子和睦的一部分情况，初海喵还在藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aloereed  
+##### 18819#       发表于 2024-7-5 10:39
+
+感觉正片应该也还是比较奇特的，李子说之前没见过这种动画
+
+
+*****
+
+####  第七軍伐戎処  
+##### 18820#       发表于 2024-7-5 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65487496&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-7-5 10:39</a>
+
+感觉正片应该也还是比较奇特的，李子说之前没见过这种动画</blockquote>
+世不二出<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 18821#       发表于 2024-7-5 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正看多了以后声优的话我是不敢多信一点了
+

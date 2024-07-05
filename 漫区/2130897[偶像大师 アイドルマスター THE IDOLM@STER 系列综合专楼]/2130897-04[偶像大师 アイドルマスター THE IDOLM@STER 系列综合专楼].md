@@ -13080,3 +13080,13 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 <img src="https://img.saraba1st.com/forum/202407/05/102111o4t4840w00e4zvzq.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 5660#       发表于 2024-7-5 10:36
+
+这就是直接弃疗加直球祸害活动了是吧（
+
+希望天尘最后那会儿还能截个图
+

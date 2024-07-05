@@ -10873,3 +10873,11 @@ md，这下睡不着了
 
 这一年内太多假药弄得跟风的都以为某某角色是这样的
 
+
+*****
+
+####  星天观测  
+##### 18802#       发表于 2024-7-5 08:33
+
+想了想这个先导pv的滤镜和bgm更像是想把话题度拉起来所以来了点大的，或许下一个pv不会像这个一样惊悚<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

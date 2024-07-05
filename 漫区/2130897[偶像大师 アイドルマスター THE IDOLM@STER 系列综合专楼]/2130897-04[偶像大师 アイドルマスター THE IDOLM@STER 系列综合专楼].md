@@ -13160,3 +13160,13 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 之前第一幕预告里水没有出来，估计得第二幕了</blockquote>
 如果是一般动画，这真是天才安排，粉丝必闹，不过这是闪二片场。
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5669#       发表于 2024-7-5 18:38
+
+说的是邦也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

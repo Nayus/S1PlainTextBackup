@@ -148,3 +148,15 @@
 
 （不知道是不是暗示忧郁属性？）
 
+
+*****
+
+####  Yuzutea  
+##### 787#       发表于 2024-7-5 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我良时隔一年终于有新卡池EGO了吗
+
+syl 超级震撼队65t通了
+
+感觉水温不如二号线
+

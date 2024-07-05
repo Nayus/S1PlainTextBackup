@@ -3525,3 +3525,13 @@ pay宝21岁生日</blockquote>
 
 不过这个立绘比猫组更精细一点
 
+
+*****
+
+####  csolfans  
+##### 20501#       发表于 2024-7-6 00:32
+
+鱼live广州场归来，280才是真正的神席！<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

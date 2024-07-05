@@ -12551,3 +12551,50 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 哎呀 不管怎麼說看這KV2，幼馴染3個都是穩的，不懂<strong>睦祥</strong>和初祥的都有難咯 嘿嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 18984#       发表于 2024-7-5 17:07
+
+<blockquote>NODY 发表于 2024-7-5 16:43
+隔壁主要是爱音厨不满手游戏份，开始贷款mujica有重要戏份当大C，然后被吐槽了（虽然戏份更惨的猫希都没贷 ...</blockquote>
+大祥传不行×
+
+大爱传行✓ 
+
+太乐了，不管剧情分配怎么样，这里是新系列Ave Mujica，想看Mygo2请上书至wsd本社
+
+*****
+
+####  滑稽Captain  
+##### 18985#       发表于 2024-7-5 17:07
+
+隔壁真是大惊小怪，要当wsd孝子就当到底嘛，一下子就滑坡到剧情参与程度也是莫名其妙，单纯就是个时间线问题，手游箱活的当前时间节点受到动画时间线推进限制又不是什么不可接受的事
+
+
+*****
+
+####  御幸一也  
+##### 18986#       发表于 2024-7-5 17:10
+
+那我也要說了，之前每次說一堆的時候總有人和我說武士道就是草台別不信<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+那麼為什麼這次沒有“就是草台沒準備下半年活動所以隨便找了個藉口”這種可能性呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18987#       发表于 2024-7-5 17:11
+
+狗没手游剧情和鸡真没关系啊
+是剧场版插入导致鸡延期的连锁反应
+这么简单的事实都看不出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18988#       发表于 2024-7-5 17:12
+
+可以再緊張一點的，畢竟我看現在宣傳都不說是“續篇”了哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

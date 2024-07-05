@@ -12573,3 +12573,15 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 昨年、シリーズ35周年を記念して9月28日に発売されたア ...</blockquote>
 你法不也暗示过原本认为上ns会吸引新玩家，实际效果不是很明显😂
 
+
+*****
+
+####  卢迪克  
+##### 1217#       发表于 2024-7-5 17:08
+
+ 本帖最后由 卢迪克 于 2024-7-5 17:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492757&amp;ptid=2160194" target="_blank">jajajzz 发表于 2024-7-5 17:04</a>
+
+你法不也暗示过原本认为上ns会吸引新玩家，实际效果不是很明显😂</blockquote>
+第一作还行了，他最近也说过空轨刚上psp也卖得很差。主要他们除了ns也没其他选择，日本一去年出的日版pc版黎轨在线就二千人，矮子里面拔高个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

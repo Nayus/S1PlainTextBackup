@@ -669,3 +669,18 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  csolfans  
+##### 65#       发表于 2024-7-6 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65496260&amp;ptid=2189798" target="_blank">ultraseven 发表于 2024-7-5 22:49</a>
+硬件VRS和mesh shading PS5初版就没有啊，何来不能删</blockquote>
+有没有一种可能，我指出得删掉的特性不是Hardware VRS和Mesh Shading，而是Sampler Feedback Streaming？
+能实现Hardware VRS肯定是因为直接拿现成的Render Backend+，Render Backend+节省面积和晶体管，没必要单独把Hardware VRS拎出来删了，然后再翻倍Z/Stencil ROPs？浪费钱。
+在TMU的Sampler Feedback Streaming涉及到专利问题(重点)，而且PS5这边对TMU定制程度很高+PS5为了达到同样的目的使用了有别的方法，PS5Pro的TMU必定跟PC RDNA不一样。
+Mesh Shading就不说了，当初闹了这么久，本来在RDNA架构就是通过映射在Primitive Shader去实现DX12U的Mesh Shading，PS5开发文档直接称呼自家的NGG为Mesh Shader。而且去年RDNA2的架构师David Wang已经在4gamer的采访盖棺定论此事，2024年这事说实话真的应该翻篇，突然想起了就数毛社在Weekly讨论Alan Wake2关于Mesh Shading这事，我才意识到他们最多就是比普通玩家懂更一点知识。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

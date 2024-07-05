@@ -3420,3 +3420,13 @@ pay宝21岁生日</blockquote>
 
 上海这边我已经决定黄牛卖多少我都买了。
 
+
+*****
+
+####  csolfans  
+##### 20490#       发表于 2024-7-5 13:18
+
+星团独享广州对我来说简直爽炸。上海四世同堂+虹馆+国庆，有点头疼
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

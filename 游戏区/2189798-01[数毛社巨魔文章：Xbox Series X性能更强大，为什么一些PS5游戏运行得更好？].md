@@ -641,3 +641,17 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ultraseven  
+##### 63#       发表于 2024-7-5 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65491387&amp;ptid=2189798" target="_blank">csolfans 发表于 2024-7-5 14:58</a>
+
+那几个DirectX12U特性？怕不是半定制把能删都删了，像VRS这种估计删不了就留下
+
+—— 来自 Xiaomi 220412 ...</blockquote><blockquote>Elsewhere, the PlayStation 5 Pro's GPU evolves to include DirectX12 Ultimate features that were omitted from the original console - so, hardware support for variable rate shading is included, along with extra features for hybrid MSAA. The primitive shader features found in RDNA 1 and the vanilla PS5 are augmented with full support for mesh shaders, which should hopefully see more widespread adoption of a very useful feature. Sony points out how the stricter requirements of this feature up against PC APIs are no longer an issue.</blockquote>
+
+硬件VRS和mesh shading PS5初版就没有啊，何来不能删
+

@@ -3402,3 +3402,13 @@ pay宝21岁生日</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  离心  
+##### 20488#       发表于 2024-7-5 12:06
+
+ 本帖最后由 离心 于 2024-7-5 12:07 编辑 
+
+看看能不能努努力去广州了希望不要难抢。嘛反正正好只有星团，那么多人要pass
+

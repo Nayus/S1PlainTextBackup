@@ -769,3 +769,11 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 感觉甚至还不如一测<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 81#       发表于 2024-7-5 11:55
+
+新手教程之后大厅糊的要死，还很卡，但我帧数90多，我还是4070ti s，难绷
+

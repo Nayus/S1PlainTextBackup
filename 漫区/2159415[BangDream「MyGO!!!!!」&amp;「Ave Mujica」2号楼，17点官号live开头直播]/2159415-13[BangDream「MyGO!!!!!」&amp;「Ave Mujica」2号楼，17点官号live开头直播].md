@@ -11775,3 +11775,71 @@ live的时候正好鸡在播，肮脏的大人<img src="https://static.saraba1st
 “2024”</blockquote>
 什么草台班子
 
+
+*****
+
+####  Nanachi  
+##### 18906#       发表于 2024-7-5 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489073&amp;ptid=2159415" target="_blank">仟音一心 发表于 2024-7-5 11:54</a>
+感觉突然来到了紫吧。</blockquote>
+<img src="https://prayhand13013.top/phone/202407/05115950.PNG" id="aimg_D2Crr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蒜灵  
+##### 18907#       发表于 2024-7-5 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489096&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-7-5 11:55</a>
+“2024”</blockquote>
+草台，符合我对大企业的认知
+前几天搞个报销单据，包括我在内好几个都没看出来年份填成2023了，正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 18908#       发表于 2024-7-5 12:01
+
+有没有线上直播啊
+
+*****
+
+####  御幸一也  
+##### 18909#       发表于 2024-7-5 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489124&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 11:56</a>
+
+我讨厌“乐队没键盘的歌都不好听/乐队果然必须有键盘”这个话术主要是因为这个发言很像暗暗在踩一脚立希作 ...</blockquote>
+這話術本來就很噁心，真的C團遺老差不多得了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大户爱  
+##### 18910#       发表于 2024-7-5 12:05
+
+不玩梗的话
+圣青木，不，圣hina的空之箱和爆裂绽放，相必不少人都看过了。
+可以看下，刺团键盘凪都版本的迷星叫，我就觉得立希写的曲子，加上键盘应该很好听<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大户爱  
+##### 18911#       发表于 2024-7-5 12:07
+
+对，凪都还弹过ppp的歌，但应该不算儿邦梦。
+
+刺团贝斯朱李是真的从小儿邦梦，美竹兰推。这次联动公布后，就在推特上发癫了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 18912#       发表于 2024-7-5 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489178&amp;ptid=2159415" target="_blank">Nanachi 发表于 2024-7-5 12:00</a>
+
+论坛助手,iPhone</blockquote>
+紫吧下限都比这里高。
+

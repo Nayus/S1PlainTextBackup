@@ -3535,3 +3535,11 @@ pay宝21岁生日</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  lj205  
+##### 20502#       发表于 2024-7-6 00:58
+
+我太感动了，只能说280真是比我上海980的位置还好，好久没把嗓子喊到哑，下一次巡演开始之前我整个人都活不过来了
+

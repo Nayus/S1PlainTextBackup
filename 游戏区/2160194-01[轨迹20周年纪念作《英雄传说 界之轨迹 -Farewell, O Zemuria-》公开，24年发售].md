@@ -12659,3 +12659,17 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 主要问题在美术上吧，隔壁回合制版东轨5因为美术吊炸天没见几个喷画面的
 
+
+*****
+
+####  ravend233  
+##### 1225#       发表于 2024-7-6 00:57
+
+ 本帖最后由 ravend233 于 2024-7-6 00:59 编辑 
+
+你法美术搁今天已经是没救了，想靠美术掩盖技术问题很难的辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能开摆了
+
+在最舒服的一段时期逮着一批人薅，现在卖不动了结果没人能干事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

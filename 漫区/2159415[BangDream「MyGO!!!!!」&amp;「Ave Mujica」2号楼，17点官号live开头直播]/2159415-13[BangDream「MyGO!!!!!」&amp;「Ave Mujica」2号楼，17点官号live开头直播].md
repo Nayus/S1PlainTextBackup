@@ -12057,3 +12057,26 @@ pv里那个房间是祥子精神崩溃后的房间
 
 坏消息：但这是wsd，又不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 18933#       发表于 2024-7-5 14:20
+
+真要在bml唱water的话我有点后悔没抢到票了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18934#       发表于 2024-7-5 14:23
+
+但是前三首都是劲的，结合bml那种拼盘气氛，还是fire和air可能性更高吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 18935#       发表于 2024-7-5 14:27
+
+大胆点，是earth<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

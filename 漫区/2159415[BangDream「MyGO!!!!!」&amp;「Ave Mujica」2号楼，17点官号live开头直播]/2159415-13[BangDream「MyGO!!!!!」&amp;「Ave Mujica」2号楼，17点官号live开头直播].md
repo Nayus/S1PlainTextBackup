@@ -12165,3 +12165,30 @@ pv里那个房间是祥子精神崩溃后的房间
 
 说不定，WSD单纯逆天呢
 
+
+*****
+
+####  星天观测  
+##### 18944#       发表于 2024-7-5 15:51
+
+依稀记得上半年，某狗u说鸡占了半集动画，并开始计算鸡团成员的登场时间，要求鸡动画里狗成员至少也要出场这么多时间
+
+昨天邦tv后，这位狗u说原本以为鸡动画没狗什么事了，这么一看狗还是要来打关键团，不然鸡这一群神经病的还怎么过审
+
+面对这位狗u有时候不知道人是会变的还是不容易改变的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18945#       发表于 2024-7-5 15:53
+
+过审 过什么审<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18946#       发表于 2024-7-5 15:55
+
+不知道，或许他的意思是鸡太深黑残了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

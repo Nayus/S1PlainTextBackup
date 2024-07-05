@@ -12690,3 +12690,13 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 既得利益者总是摆出一份高高在上的家长式态度，但一旦被现实打落在地那破防的样子是要比谁都可笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pipaopo  
+##### 18999#       发表于 2024-7-5 18:13
+
+现在确定到程度已经不算滑坡了，不过不让看分镜，不让提意见这种对成片有多大影响也不好说
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

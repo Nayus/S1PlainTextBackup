@@ -11904,3 +11904,22 @@ z8那个是套格式，别当真了<img src="https://static.saraba1st.com/image/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">龟龟hina不行还有猪咪hina
 
+
+*****
+
+####  nebulanoby  
+##### 18919#       发表于 2024-7-5 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489096&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-7-5 11:55</a>
+“2024”</blockquote>
+其实对邦已经结束了，羊姐薄纱理名，只是WSD为了给东映面子不得不让Oblivious加班一年打催 /棉电话把观众的记忆洗掉所以才导致母鸡卡延迟到25年<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  septer  
+##### 18920#       发表于 2024-7-5 12:47
+
+这就是2.5的乐子<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+

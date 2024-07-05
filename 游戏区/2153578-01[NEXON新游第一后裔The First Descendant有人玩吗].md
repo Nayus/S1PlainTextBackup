@@ -746,3 +746,26 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 看看有没有康复的风险吧
 
+
+*****
+
+####  穿越护城河  
+##### 79#       发表于 2024-7-5 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466401&amp;ptid=2153578" target="_blank">NANA1Komatsu 发表于 2024-7-3 13:19</a>
+
+司马运营现在改成暗黑那种赛季制了，直接弃坑</blockquote>
+赛季还是未来的事情
+
+眼下制作台秒修，打枪没声音就一直拖着就很一言难尽的
+
+只能说基纳活了，ssive组又死了
+
+
+*****
+
+####  wiig  
+##### 80#         楼主| 发表于 2024-7-5 10:53
+
+感觉甚至还不如一测<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

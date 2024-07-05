@@ -12708,3 +12708,25 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 往好了想，可能只是一些独角兽喜欢的迫害桥段被改了，毕竟比较重要的主线也不太能改吧
 
+
+*****
+
+####  星天观测  
+##### 19001#       发表于 2024-7-5 19:00
+
+没必要担心啊，都到这个时候了就算动画没做完基本也都是后期工作了，担心这种无法改变的事不如聚焦于下周母鸡卡全员邦tv吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vigada  
+##### 19002#       发表于 2024-7-5 19:05
+
+所以…water的MV何时能有呢
+
+*****
+
+####  御幸一也  
+##### 19003#       发表于 2024-7-5 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">所以禮拜天真的要純看推特蹲情報了
+

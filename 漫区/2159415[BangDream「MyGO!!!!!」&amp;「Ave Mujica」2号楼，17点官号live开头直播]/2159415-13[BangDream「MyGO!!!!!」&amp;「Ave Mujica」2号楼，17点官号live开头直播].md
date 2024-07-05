@@ -11957,3 +11957,16 @@ z8那个是套格式，别当真了<img src="https://static.saraba1st.com/image/
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  紫吹兰  
+##### 18924#         楼主| 发表于 2024-7-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488932&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 11:48</a>
+
+出现了，c团姨姥经典话术：“乐队不能没有键盘”
+
+给我去和那些没键盘的乐队道歉啊 ...</blockquote>
+没事，原版空之箱就没有键盘，可以互相换家
+

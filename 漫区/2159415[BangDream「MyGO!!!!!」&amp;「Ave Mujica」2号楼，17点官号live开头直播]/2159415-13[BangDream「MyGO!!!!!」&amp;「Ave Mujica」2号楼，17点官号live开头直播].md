@@ -11136,3 +11136,125 @@ GBC、MyGO对邦决定！
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 我的羊姐啊
 
+
+*****
+
+####  kivz  
+##### 18831#       发表于 2024-7-5 11:06
+
+gbc没看下去，只看了牢台视频
+所以还是个2.5企划咯？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18832#       发表于 2024-7-5 11:06
+
+可以让手岛哥哥画一套mygo不
+
+*****
+
+####  纯田まな  
+##### 18833#       发表于 2024-7-5 11:06
+
+两三千人的小场子对得起这么好的节目效果吗
+
+*****
+
+####  akiomn  
+##### 18834#       发表于 2024-7-5 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐，会赢吗？
+
+*****
+
+####  星天观测  
+##### 18835#       发表于 2024-7-5 11:08
+
+这下转移注意力了，不用担心wsd停狗活的稀烂打法导致鸡狗大战n.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帕林马哲理  
+##### 18836#       发表于 2024-7-5 11:10
+
+想必会有巨大的烤羊，嘻嘻，好美味啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+想要压过理名恐怕得苦练诗朗诵了。
+
+*****
+
+####  久井路路  
+##### 18837#       发表于 2024-7-5 11:11
+
+这下Mygo反而站在动画刺团的立场上了（No
+
+你才是挑战者（No
+
+*****
+
+####  丹德里恩  
+##### 18838#       发表于 2024-7-5 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">nina大战hina，为什么我会做这样的梦
+
+*****
+
+####  swessia  
+##### 18839#       发表于 2024-7-5 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国内粉丝有福了，可以花一场live的票连看两场live
+
+
+*****
+
+####  枫林不见  
+##### 18840#       发表于 2024-7-5 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488044&amp;ptid=2159415" target="_blank">swessia 发表于 2024-7-5 11:11</a>
+
+国内粉丝有福了，可以花一场live的票连看两场live</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我现在已经爽到了，坐等睿站收费了。
+
+
+*****
+
+####  Kfly  
+##### 18841#       发表于 2024-7-5 11:12
+
+对国内来说这节目效果有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  纯田まな  
+##### 18842#       发表于 2024-7-5 11:12
+
+抛开现场实力不谈，羊姐颜值赢了
+
+*****
+
+####  御幸一也  
+##### 18843#       发表于 2024-7-5 11:14
+
+什麼公開處刑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 18844#       发表于 2024-7-5 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐队live还抛开现场实力
+
+*****
+
+####  SakuraのOrigami  
+##### 18845#       发表于 2024-7-5 11:15
+
+真对邦啊（）
+
+*****
+
+####  ltycomputer  
+##### 18846#       发表于 2024-7-5 11:15
+
+烤羊，最后一只
+

@@ -11057,3 +11057,82 @@ hhw被ban的世界观，不happy smile也是很正常的吧<img src="https://sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正看多了以后声优的话我是不敢多信一点了
 
+
+*****
+
+####  Aloereed  
+##### 18822#       发表于 2024-7-5 11:02
+
+GBC、MyGO对邦决定！
+
+*****
+
+####  6030sylar  
+##### 18823#       发表于 2024-7-5 11:03
+
+<img src="https://img.saraba1st.com/forum/202407/05/110258c1x3t9hhhl2izfp1.png" referrerpolicy="no-referrer">
+
+<strong>FZD4BF7VGG63D1617TXR$CR.png</strong> (88.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 11:02 上传
+
+卧槽
+
+*****
+
+####  星天观测  
+##### 18824#       发表于 2024-7-5 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会赢吗
+
+*****
+
+####  枫林不见  
+##### 18825#       发表于 2024-7-5 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">小羊：我打理名？真的假的？
+
+*****
+
+####  qigepomingzhenn  
+##### 18826#       发表于 2024-7-5 11:04
+
+又可以烤羊了（
+
+*****
+
+####  6030sylar  
+##### 18827#       发表于 2024-7-5 11:04
+
+<img src="https://img.saraba1st.com/forum/202407/05/110433ms0bi5xr3si30l83.png" referrerpolicy="no-referrer">
+
+<strong>%L5P39FYU)L)B{$KXH)Q60S.png</strong> (82.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 11:04 上传
+
+*****
+
+####  dqtql  
+##### 18828#       发表于 2024-7-5 11:05
+
+羊宫这波能赢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜灵  
+##### 18829#       发表于 2024-7-5 11:05
+
+难绷，我在其他地方看到还以为是p图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18830#       发表于 2024-7-5 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+我的羊姐啊
+

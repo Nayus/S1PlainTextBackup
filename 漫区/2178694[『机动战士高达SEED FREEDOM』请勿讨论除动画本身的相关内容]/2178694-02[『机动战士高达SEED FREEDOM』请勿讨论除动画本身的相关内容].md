@@ -409,3 +409,56 @@ Fafnar Mk. Destiney!
 
 就差没来一段咏叹调了。
 
+
+*****
+
+####  小小黄  
+##### 1801#       发表于 2024-7-5 10:41
+
+没有弹幕感觉没那味啊，弹弹TV没几条弹幕，我想请问想看弹幕该怎么做呢？去什么网站比较好？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  外挂全家脚气  
+##### 1802#       发表于 2024-7-5 11:41
+
+ 本帖最后由 外挂全家脚气 于 2024-7-5 11:46 编辑 
+
+看没看完，不过这人画得也太丑了吧...还有各种变形，怎么看都感觉连TV都不如
+
+瓦日，这狗血剧情，给我看喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LeonsCat  
+##### 1803#       发表于 2024-7-5 12:13
+
+港真，你确定不是把舞台剧剧本直接拿来拍剧场版了？
+
+就差没来一段咏叹调了。
+
+*****
+
+####  cailw8989  
+##### 1804#       发表于 2024-7-6 05:46
+
+ 本帖最后由 cailw8989 于 2024-7-6 05:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">后知后觉，原来片子有了，刚看完...
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">破读心那段实在没绷住，打仗呢，你们是来讲段子的啊
+
+一个笨比放空大脑+宇宙女鬼，一个渣男脑内开车+远程操控，还有一个老实人默默挨揍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+另外鸡狼鸟你们仨我是越来越看不懂了，小鸟都开始能远程感应鸡有危险了，鸡都能学调停者远程通话了。
+
+重新看了眼SEED的设定“前往人类的下一个阶段的进化因子”，敢情你们5个能爆豆子的其实是赛亚人？卡嘉莉能跟上狼跟肉村的节奏玩远程操控是因为以前被灭的多了，战斗力翻了好几个倍？是我以前误会你们了吗？下个版本是不是你们5个脑控对面啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+甚至按楼上给的设定，妈耶，不同时间线的命运一起来砍人都出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">福田你要不要听听你在说什么？？？
+
+种命之后我难道漏了什么重大剧情了吗，这都什么跟什么啊
+
+不过这剧场版图一乐是真的很乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

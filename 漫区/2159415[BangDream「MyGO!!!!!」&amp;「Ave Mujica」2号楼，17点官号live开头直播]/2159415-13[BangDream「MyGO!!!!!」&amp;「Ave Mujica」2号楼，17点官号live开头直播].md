@@ -12236,3 +12236,50 @@ b站不会让三次元搓一个大陆特供版吧
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  NODY  
+##### 18952#       发表于 2024-7-5 16:09
+
+四月番两部B站过审的美少女音乐番都翻车了，不过审某种意义上是好事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18953#       发表于 2024-7-5 16:09
+
+菜花也过审了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 18954#       发表于 2024-7-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65491795&amp;ptid=2159415" target="_blank">御景 发表于 2024-7-5 15:36</a>
+
+风水轮流转，打到自己身上才知道疼。
+
+当初WSD逆天操作，mujica动画遥遥无期，什么料都没有，mujica粉骂，各 ...</blockquote>
+公司go的好日子還在後頭呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18955#       发表于 2024-7-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492013&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-5 16:05</a>
+
+唉，才周五我就已经在等下周四的邦tv了，我真的好急
+
+论坛助手,iPhone</blockquote>
+好急 已經確定會是永久保存版邦TV了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18956#       发表于 2024-7-5 16:17
+
+我先盲猜一个下周邦tv的boke役是梦以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

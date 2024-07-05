@@ -12543,3 +12543,33 @@ YSX的场景实在太空旷了，远景效果又烂
 
 阿法需要的是玩O长大的年轻人市场，起码建模不要太落后O<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1214#       发表于 2024-7-5 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492312&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-5 16:30</a>
+
+YSX这画面差就算了，美术设计也完全没有设计，都不能靠设计扬长避短的，除了人物建模和演出在视觉上确实就 ...</blockquote>
+之前ns版东迷特典是男主剪影是穿校服的，校园风估计比ysx好一些
+
+*****
+
+####  ravend233  
+##### 1215#       发表于 2024-7-5 17:01
+
+京都迷城应该和东迷一样场景主要在城市，主角看起来都是学生，有大量建筑物遮挡效果应该是比YSX这种空旷海岛好些的，哪怕有俯瞰的场景，大城市应该也比空无一物的海岛看着像样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jajajzz  
+##### 1216#       发表于 2024-7-5 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492304&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-5 16:30</a>
+毕竟你法还吹过ysx，我觉得他还真敢继续基于ns开发
+
+昨年、シリーズ35周年を記念して9月28日に発売されたア ...</blockquote>
+你法不也暗示过原本认为上ns会吸引新玩家，实际效果不是很明显😂
+

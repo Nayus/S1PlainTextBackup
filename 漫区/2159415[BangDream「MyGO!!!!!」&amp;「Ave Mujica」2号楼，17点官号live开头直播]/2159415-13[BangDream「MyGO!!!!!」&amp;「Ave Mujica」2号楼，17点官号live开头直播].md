@@ -12480,3 +12480,74 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 结果现在说go剧情也要等明年以后这些人也绷不住了，倒是立希厨觉得去混活和前辈玩到明年也挺好的，双标毒唯的属性一遇到前辈全没了
 
+
+*****
+
+####  御幸一也  
+##### 18976#       发表于 2024-7-5 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492592&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-5 16:52</a>
+
+看了一下，又有拐鸡为什么这么糊的了</blockquote>
+這不他媽廢話嗎，動畫沒播當然糊，說的好像他go動畫之前就red boom sky了一樣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18977#       发表于 2024-7-5 16:56
+
+先担心跟刺对邦的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明着写对邦的live不可能没有互唱对方歌的环节，对狗u来说比起关心杨姐，拐鸡就更重要吗？没吃饭饿了所以来嘬奶嘴了？
+
+*****
+
+####  御幸一也  
+##### 18978#       发表于 2024-7-5 16:59
+
+刺刺的歌真不是人唱的，歌曲製作感覺就沒管過主唱死活的感覺，完全是把主唱當初音未來在用……
+
+要是真有互唱對方的歌……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18979#       发表于 2024-7-5 17:00
+
+<img src="https://img.saraba1st.com/forum/202407/05/165958d3hjzo2xa0dcj29r.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (32.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 16:59 上传
+
+還是這個比較樂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+
+*****
+
+####  凡人  
+##### 18980#       发表于 2024-7-5 17:02
+
+狗停活动等鸡说明两团关系深厚，利好姐妹团爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 18981#       发表于 2024-7-5 17:03
+
+这个可能是真的，wsd就是把每年大发表会的场地借出去换联动了
+
+*****
+
+####  御幸一也  
+##### 18982#       发表于 2024-7-5 17:03
+
+說得好 喜歡我アニメ新シリーズ嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18983#       发表于 2024-7-5 17:05
+
+哎呀 不管怎麼說看這KV2，幼馴染3個都是穩的，不懂<strong>睦祥</strong>和初祥的都有難咯 嘿嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+

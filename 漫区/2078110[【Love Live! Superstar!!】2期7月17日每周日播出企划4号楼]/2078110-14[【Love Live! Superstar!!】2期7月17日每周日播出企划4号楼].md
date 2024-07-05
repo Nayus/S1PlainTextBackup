@@ -3467,3 +3467,23 @@ pay宝21岁生日</blockquote>
 莲团在b站有官号了，真的终于想起开辟海外市场了吗？</blockquote>
 不是，是配合这次bw吧<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">本土都没运营好怎么会想着来这边
 
+
+*****
+
+####  csolfans  
+##### 20495#       发表于 2024-7-5 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492556&amp;ptid=2078110" target="_blank">日野下花帆 发表于 2024-7-5 16:49</a>
+不是，是配合这次bw吧本土都没运营好怎么会想着来这边</blockquote>
+最近不是挺好的吗？卡的数值做崩了？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  stygian  
+##### 20496#       发表于 2024-7-5 17:02
+
+广州应该去不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

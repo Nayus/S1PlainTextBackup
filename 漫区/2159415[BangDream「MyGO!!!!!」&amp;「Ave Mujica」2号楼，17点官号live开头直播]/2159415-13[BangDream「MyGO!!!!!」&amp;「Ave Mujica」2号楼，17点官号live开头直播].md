@@ -12034,3 +12034,26 @@ pv里那个房间是祥子精神崩溃后的房间
 
 是吗，没看到熟肉<img src="https://p.sda1.dev/18/6bbf737e4cdab6ffb89aa6795a4f1e18/IMG_CMP_166684811.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 18931#       发表于 2024-7-5 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65488478&amp;ptid=2159415" target="_blank">yevvet 发表于 2024-7-5 11:29</a>
+
+会有人烤刺团颜值吗</blockquote>
+有些地方禁发GBC中之人的理由就是需要对网友精神负责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18932#       发表于 2024-7-5 14:15
+
+好消息：bml上鸡有四首歌
+
+更好消息：最后一首甚至暂时保密，说不定是新活
+
+坏消息：但这是wsd，又不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

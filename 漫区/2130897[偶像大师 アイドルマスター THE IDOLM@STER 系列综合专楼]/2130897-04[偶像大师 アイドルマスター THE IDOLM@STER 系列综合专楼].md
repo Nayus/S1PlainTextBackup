@@ -13140,3 +13140,13 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Swss  
+##### 5667#       发表于 2024-7-5 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65490506&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-7-5 13:36</a>
+话说第一幕的n组呢？啥安排啊。</blockquote>
+之前第一幕预告里水没有出来，估计得第二幕了
+

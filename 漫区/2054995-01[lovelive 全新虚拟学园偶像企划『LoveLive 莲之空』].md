@@ -2383,3 +2383,11 @@ https://m.bilibili.com/space/3546712157194527</blockquote>
 官方YouTube上也更了第103期活动记录视频第1-3话简繁英字幕
 [https://youtube.com/playlist?lis ... vRpmj2HnA3w7xEjGQH5](https://youtube.com/playlist?list=PLu7E7HFun3xBqivRpmj2HnA3w7xEjGQH5)
 
+
+*****
+
+####  鳄鱼头  
+##### 210#       发表于 2024-7-5 23:34
+
+这个月底终于久违3个月的fes live，104加入后真是肉眼可见的垃，看看月底表现吧
+

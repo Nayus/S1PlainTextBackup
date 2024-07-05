@@ -12353,3 +12353,36 @@ ave mujica 五個人那麼熟，已經可以想像會有多樂了<img src="https
 
 因为wsd犯蠢觉得鸡明年会给狗垫了在想什么，缺东西不敢骂wsd只敢从鸡身上抢太好笑了，真把老登当亲爹了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18964#       发表于 2024-7-5 16:29
+
+应该会像双r邦tv那样吵吵闹闹开开心心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+快把我的boke解禁李子梦以节约米泽和蚌埠住的弄弄端上来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（但是好像录完邦tv就要来上海了？不知道行程会不会有点赶）
+
+*****
+
+####  御幸一也  
+##### 18965#       发表于 2024-7-5 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492267&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-5 16:27</a>
+
+没有狗活哪有那么理由，八成就是因为加塞剧场版，鸡动画延期导致狗其他箱活时间线接不上了，懒狗wsd又不愿 ...</blockquote>
+從洗腳的你身上搶點東西怎麼了 big膽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 18966#       发表于 2024-7-5 16:36
+
+狗箱活被切我也觉得很sb，但是明明是狗剧场版先上，没有新内容纯是老东西肯定不可能，说不定也有这个影响呢
+
+怎么就全怪到鸡身上了
+
+我真不能理解啊
+

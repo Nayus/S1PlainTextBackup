@@ -12416,3 +12416,62 @@ aksys宣布东京迷城ns英文7.25发售。
 明年如果界2肯定出，如果是京迷我倾向也会出。因为京迷与其纠结会不会出ps4版，倒不如说任天堂那边怎么办 ...</blockquote>
 希望别再基于ns开发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1202#       发表于 2024-7-4 11:23
+
+aksys宣布东京迷城ns英文7.25发售。
+
+和数年前发行的ps版的翻译版本不同。
+
+是进行了重新翻译的本地化版本。
+
+*****
+
+####  卢迪克  
+##### 1203#       发表于 2024-7-4 11:25
+
+虽然不知道明年京迷是不是还是日本一负责翻译
+
+*****
+
+####  酷乐  
+##### 1204#       发表于 2024-7-4 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65476119&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-4 11:23</a>
+aksys宣布东京迷城ns英文7.25发售。
+
+和数年前发行的ps版的翻译版本不同。
+
+是进行了重新翻译的本地化版本。</blockquote>
+咋一看还以为是Arc system，再一看这家确实代理了GG系列，再一查两者名字相似只是巧合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<blockquote>Aksys Gamesとアークシステムワークスは偶然にも社名が似ているが、資本関係はない。</blockquote>
+
+*****
+
+####  Squall25  
+##### 1205#       发表于 2024-7-4 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65467265&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-3 14:42</a>
+刀剑和dq123都没有ps4版了，明年你法还出4版吗</blockquote>
+明年如果界2肯定出，如果是京迷我倾向也会出。因为京迷与其纠结会不会出ps4版，倒不如说任天堂那边怎么办。新机哪怕明年出了，法肯定也要出ns版，ns都伺候也不在乎多伺候一个ps4了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1206#       发表于 2024-7-4 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65480359&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-7-4 17:48</a>
+
+明年如果界2肯定出，如果是京迷我倾向也会出。因为京迷与其纠结会不会出ps4版，倒不如说任天堂那边怎么办 ...</blockquote>
+希望别再基于ns开发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1207#       发表于 2024-7-5 09:55
+
+美版YS10 10.25
+

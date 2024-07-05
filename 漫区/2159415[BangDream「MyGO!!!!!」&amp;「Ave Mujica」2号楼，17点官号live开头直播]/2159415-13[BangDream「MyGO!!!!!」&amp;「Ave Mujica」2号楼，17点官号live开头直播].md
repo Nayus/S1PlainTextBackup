@@ -12106,3 +12106,23 @@ pv里那个房间是祥子精神崩溃后的房间
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  木谷高明  
+##### 18938#       发表于 2024-7-5 14:52
+
+搁置争议，共同烤羊
+
+*****
+
+####  紫吹兰  
+##### 18939#         楼主| 发表于 2024-7-5 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65491100&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-5 14:32</a>
+
+翻唱现在不是已经有三首定番吗
+
+难道要老钟特供翻唱中文歌</blockquote>
+李子练一首中文歌还行，反正直播还能唱，乐器组为了中国LIVE专门练曲子成本有点高了
+

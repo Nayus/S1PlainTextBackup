@@ -12080,3 +12080,29 @@ pv里那个房间是祥子精神崩溃后的房间
 
 大胆点，是earth<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18936#       发表于 2024-7-5 14:32
+
+翻唱现在不是已经有三首定番吗
+
+难道要老钟特供翻唱中文歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  基神的强袭自由  
+##### 18937#       发表于 2024-7-5 14:36
+
+<img src="https://img.saraba1st.com/forum/202407/05/143626ovwymnsk5qbmekh2.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3430.PNG</strong> (610.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 14:36 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

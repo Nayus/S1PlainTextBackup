@@ -11843,3 +11843,46 @@ live的时候正好鸡在播，肮脏的大人<img src="https://static.saraba1st
 论坛助手,iPhone</blockquote>
 紫吧下限都比这里高。
 
+
+*****
+
+####  第七軍伐戎処  
+##### 18913#       发表于 2024-7-5 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489178&amp;ptid=2159415" target="_blank">Nanachi 发表于 2024-7-5 12:00</a>
+论坛助手,iPhone</blockquote>
+草，什么战时体制
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  rikaren  
+##### 18914#       发表于 2024-7-5 12:10
+
+抗吧才对，只能说引了这种群体真是有大福了（
+
+*****
+
+####  NODY  
+##### 18915#       发表于 2024-7-5 12:10
+
+z8那个是套格式，别当真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qigepomingzhenn  
+##### 18916#       发表于 2024-7-5 12:12
+
+抗吧那种打不赢被俘虏就召唤东风的就算了吧（
+
+
+*****
+
+####  九陌狂游  
+##### 18917#       发表于 2024-7-5 12:16
+
+这个抗吧的免责声明不就跟h网问你是否满十八岁一样？<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">说着玩而已，该骂还是得骂，每次世界赛也没见骂的人少啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

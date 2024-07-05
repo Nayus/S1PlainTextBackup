@@ -2064,3 +2064,17 @@ http://m.weibo.cn/status/5050982306418937?
 由手机上传
 2024-7-5 23:13 上传
 
+
+*****
+
+####  第贰个十年  
+##### 203#         楼主| 发表于 2024-7-6 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65496536&amp;ptid=2144105" target="_blank">Brucy 发表于 2024-7-5 23:15</a>
+一口气看完了，这故事真不错啊，结局也很好，能从头到尾塑造好这么一个有魅力的恶人主角真的很难得。
+
+不过 ...</blockquote>
+毕竟喜欢这漫画的大都是想看德鲁哈能整出个什么花活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

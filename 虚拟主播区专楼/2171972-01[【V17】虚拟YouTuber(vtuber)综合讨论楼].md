@@ -24,3 +24,16 @@
 
 感觉apex也就是20赛季大改有一拨人回坑回暖了些，最近也没见什么热度，也许这届就是最后一届apex最协了吧
 
+
+*****
+
+####  poipanchao  
+##### 421#       发表于 2024-7-6 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65497105&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-7-6 00:12</a>
+
+这回V最协感觉是近年最摸的一届了，到现在队长还有两三个没公布，组齐人的队伍也没有，大多数参赛人员更是 ...</blockquote>
+那倒也不是，往年最早也是阵容公布以后，king那队当场开播开卷，一个月左右
+
+不过这届确实没啥热度就是了
+

@@ -11430,3 +11430,110 @@ GBC的曲子转音特别多（）</blockquote>
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 還是你惡毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  car123  
+##### 18864#       发表于 2024-7-5 11:27
+
+突然就能go楼聊gbc，gbc楼聊go了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 18865#       发表于 2024-7-5 11:27
+
+羊宮唱刺团歌？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可能要变成流传数年的名场面了
+
+*****
+
+####  NODY  
+##### 18866#       发表于 2024-7-5 11:27
+
+wsd这是给人家东映面子，泥邦上任意一个乐队过去都会显得欺负小孩，只能派个最菜的过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 18867#       发表于 2024-7-5 11:27
+
+但凡你看過理名現場都說不出能欺負她歲數小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 18868#       发表于 2024-7-5 11:28
+
+鼓手真十零开，换个说法任何一个能正经上台的鼓手都暴杀林小姐
+
+*****
+
+####  好想看Mujica啊  
+##### 18869#       发表于 2024-7-5 11:28
+
+羊：我打理名，真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 18870#       发表于 2024-7-5 11:29
+
+会有人烤刺团颜值吗
+
+
+*****
+
+####  shinna  
+##### 18871#       发表于 2024-7-5 11:30
+
+刺团颜值早就烤过无数次了
+
+*****
+
+####  3353764798  
+##### 18872#       发表于 2024-7-5 11:31
+
+不张嘴其实还好，主要是牙齿有点幽默
+
+*****
+
+####  cherryjia12  
+##### 18873#       发表于 2024-7-5 11:32
+
+mygo颜值高，刺团实力强，winwin
+mygo剧本强，gbc制作好，winwin
+最会端水的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  car123  
+##### 18874#       发表于 2024-7-5 11:33
+
+如果作为偶像企划颜值的确不高，但gbc看下来真心觉得东映是按实力选人的
+
+*****
+
+####  my707776310  
+##### 18875#       发表于 2024-7-5 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢羊下半年真能专心练歌伺候你go吗,那么多动画场子要赶
+
+*****
+
+####  阿姆罗二世  
+##### 18876#       发表于 2024-7-5 11:34
+
+刺团人均龅牙加上不会打扮，这颜值能看才有鬼了
+

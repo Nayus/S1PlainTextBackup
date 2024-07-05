@@ -309,3 +309,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看到19.9没忍住去拆了下，顺利拿下
 
+
+*****
+
+####  windhawind2  
+##### 17978#       发表于 2024-7-5 11:27
+
+ 本帖最后由 windhawind2 于 2024-7-5 11:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65449579&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-1 20:59</a>
+
+所以这堆高难280限定的武器原来这么菜的吗我只是火队FA老7最容易当刷开职业极致的材料和沙漏顺路弄了一堆 ...</blockquote>
+280免费限定比起真正的280少破限伤害啊。。攻击面差很多的 除非你全肝到真化攻击20补上
+
+而且限定的双面 对风龙刀、极星剑、星星武这种基本加成没用 还不如250路单面安心
+

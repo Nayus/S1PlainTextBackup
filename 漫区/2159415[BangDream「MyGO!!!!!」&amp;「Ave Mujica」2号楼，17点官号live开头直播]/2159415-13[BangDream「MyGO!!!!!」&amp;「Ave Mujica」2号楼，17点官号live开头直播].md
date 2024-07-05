@@ -10893,3 +10893,35 @@ md，这下睡不着了
 —— 来自 vivo V2183A, Andro ...</blockquote>
 ras：啊？很明显ras剧情核心是chu²啊。
 
+
+*****
+
+####  shinraki  
+##### 18804#       发表于 2024-7-5 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65486287&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-5 09:02</a>
+ras：啊？很明显ras剧情核心是chu²啊。</blockquote>
+但是视觉图还是主唱C位
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  PDQ4  
+##### 18805#       发表于 2024-7-5 09:35
+
+正片应该不会这么阴间，要考虑受众的
+
+但是制作组自己搞的先导pv基调，梦一下也很正常吧
+
+主要是太对胃口了，去年那个解谜repo也有oblivionis在看着你的感觉
+
+制作组是要让鸡粉感受纵使三度迎来背刺吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 18806#       发表于 2024-7-5 09:37
+
+正式开播的主视觉图应该还是mygo那种 初华c位吧
+

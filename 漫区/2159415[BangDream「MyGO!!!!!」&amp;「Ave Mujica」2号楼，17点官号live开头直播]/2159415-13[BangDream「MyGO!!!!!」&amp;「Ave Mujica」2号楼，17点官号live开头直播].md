@@ -12853,3 +12853,13 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 <img src="https://p.sda1.dev/18/aa32b0edcabfa984af3cbdfafd5d5bd4/image.png" referrerpolicy="no-referrer">
 [ 퓨 @puni42909975821](https://x.com/puni42909975821/status/1809196567376904291)
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19015#       发表于 2024-7-5 23:43
+
+<img src="https://p.sda1.dev/18/4edef28c86cbf663b98a935af8b2bb28/image.png" referrerpolicy="no-referrer">
+
+洛阳铲
+

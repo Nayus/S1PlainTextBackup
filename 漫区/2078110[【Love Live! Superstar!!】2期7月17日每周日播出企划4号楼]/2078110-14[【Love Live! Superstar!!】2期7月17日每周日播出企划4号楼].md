@@ -3456,3 +3456,14 @@ pay宝21岁生日</blockquote>
 
 莲团在b站有官号了，真的终于想起开辟海外市场了吗？
 
+
+*****
+
+####  日野下花帆  
+##### 20494#       发表于 2024-7-5 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492445&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-7-5 16:41</a>
+
+莲团在b站有官号了，真的终于想起开辟海外市场了吗？</blockquote>
+不是，是配合这次bw吧<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">本土都没运营好怎么会想着来这边
+

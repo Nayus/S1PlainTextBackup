@@ -12407,3 +12407,76 @@ ave mujica 五個人那麼熟，已經可以想像會有多樂了<img src="https
 
 2024-7-5 16:43 上传
 
+
+*****
+
+####  星天观测  
+##### 18969#       发表于 2024-7-5 16:46
+
+啊？手游没戏份找手游啊，母鸡卡又不是做手游的？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 18970#       发表于 2024-7-5 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492466&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 16:43</a>
+
+隔壁主要是爱音厨不满手游戏份，开始贷款mujica有重要戏份当大C，然后被吐槽了（虽然戏份更惨的猫希都没贷 ...</blockquote>
+ nga的车轱辘话转的太快了，隔三差五就是老话题，有点腻。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 18971#       发表于 2024-7-5 16:48
+
+這先導PV真是越看越感覺賣睦祥，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+不懂睦祥的有難了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/05/164809qxpeexfeex3awemx.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Arthur.c(@CARTHUR_X)_20240629-050000_1806915500603326831_photo.jpg</strong> (500.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 16:48 上传
+
+[https://x.com/CARTHUR_X/status/1806915500603326831](https://x.com/CARTHUR_X/status/1806915500603326831)
+
+*****
+
+####  极速赛车手  
+##### 18972#       发表于 2024-7-5 16:49
+
+反正所有争论明年今日就见分晓了，一起当章北海增援未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 18973#       发表于 2024-7-5 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492466&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 16:43</a>
+
+隔壁主要是爱音厨不满手游戏份，开始贷款mujica有重要戏份当大C，然后被吐槽了（虽然戏份更惨的猫希都没贷 ...</blockquote>
+乐队霸凌都喊出来了，先实装已经够让mujica粉羡慕了。
+
+
+*****
+
+####  rikaren  
+##### 18974#       发表于 2024-7-5 16:52
+
+看了一下，又有拐鸡为什么这么糊的了
+
+*****
+
+####  NODY  
+##### 18975#       发表于 2024-7-5 16:54
+
+nga经常一车立希就是几十页，最后结论立希厨不要传播负能量等明年就好
+
+结果现在说go剧情也要等明年以后这些人也绷不住了，倒是立希厨觉得去混活和前辈玩到明年也挺好的，双标毒唯的属性一遇到前辈全没了
+

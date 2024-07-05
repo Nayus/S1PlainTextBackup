@@ -12535,3 +12535,11 @@ aksys宣布东京迷城ns英文7.25发售。
 
 YSX的场景实在太空旷了，远景效果又烂
 
+
+*****
+
+####  新世界的派蒙  
+##### 1213#       发表于 2024-7-5 16:42
+
+阿法需要的是玩O长大的年轻人市场，起码建模不要太落后O<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
+

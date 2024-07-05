@@ -2369,3 +2369,17 @@ B站账号开通
 3rd Live Tour TRY TRI UNITY!!! with みらくらぱーく！公演のチケット最速先行抽選申込券が封入✨
 <img src="https://p.sda1.dev/18/0021f8befc243250e59797f1331df9f9/20240705_172611.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 209#         楼主| 发表于 2024-7-5 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492438&amp;ptid=2054995" target="_blank">Piano-Forest 发表于 2024-7-5 16:41</a>
+
+B站账号开通
+
+https://m.bilibili.com/space/3546712157194527</blockquote>
+官方YouTube上也更了第103期活动记录视频第1-3话简繁英字幕
+[https://youtube.com/playlist?lis ... vRpmj2HnA3w7xEjGQH5](https://youtube.com/playlist?list=PLu7E7HFun3xBqivRpmj2HnA3w7xEjGQH5)
+

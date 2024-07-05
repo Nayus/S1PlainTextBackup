@@ -627,3 +627,17 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
 到时候打算卖599还是499，我看那350刀的xsx也是风韵犹存啊</blockquote>
 加强机这东西本来也就死忠会换啊，ps5之前涨到549，这玩意卖649没问题吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 62#       发表于 2024-7-5 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65486473&amp;ptid=2189798" target="_blank">zid99825 发表于 2024-7-5 09:18</a>
+ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
+
+论坛助手,iPhone</blockquote>
+那几个DirectX12U特性？怕不是半定制把能删都删了，像VRS这种估计删不了就留下
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

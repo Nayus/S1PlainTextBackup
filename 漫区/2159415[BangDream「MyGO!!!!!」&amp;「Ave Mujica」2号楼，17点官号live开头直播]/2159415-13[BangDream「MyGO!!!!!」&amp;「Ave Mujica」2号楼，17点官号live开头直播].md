@@ -12126,3 +12126,11 @@ pv里那个房间是祥子精神崩溃后的房间
 难道要老钟特供翻唱中文歌</blockquote>
 李子练一首中文歌还行，反正直播还能唱，乐器组为了中国LIVE专门练曲子成本有点高了
 
+
+*****
+
+####  NODY  
+##### 18940#       发表于 2024-7-5 15:01
+
+其实是翻唱之前那两首以外的萝曲，刚好给年底联合live做准备<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

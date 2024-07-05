@@ -12134,3 +12134,11 @@ pv里那个房间是祥子精神崩溃后的房间
 
 其实是翻唱之前那两首以外的萝曲，刚好给年底联合live做准备<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18941#       发表于 2024-7-5 15:09
+
+但是萝8.3就有上海单独live，感觉翻唱萝的可能性不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10981,3 +10981,27 @@ ras：啊？很明显ras剧情核心是chu²啊。</blockquote>
 
 2024-7-5 09:46 上传
 
+
+*****
+
+####  PDQ4  
+##### 18813#       发表于 2024-7-5 09:53
+
+kkr在说什么，视觉图上oblivionis这不是在笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虽然是那种感觉要跟hhw世界观中门对狙的阴间笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18814#       发表于 2024-7-5 09:56
+
+考虑到几乎所有玩偶有关场景都可以认为和睦有关，也可以认为在睦的视角里都是将其他人当做玩偶看待的，蓝色水母玩偶那个镜头就有个驱逐左侧疑似甲虫造型玩偶的动作。
+
+*****
+
+####  木谷高明  
+##### 18815#       发表于 2024-7-5 09:57
+
+hhw被ban的世界观，不happy smile也是很正常的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

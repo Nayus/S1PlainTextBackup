@@ -655,3 +655,17 @@ ps5 pro最大的升级不是补上了那堆rdna2的硬件特性么
 
 硬件VRS和mesh shading PS5初版就没有啊，何来不能删
 
+
+*****
+
+####  zid99825  
+##### 64#       发表于 2024-7-6 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65491387&amp;ptid=2189798" target="_blank">csolfans 发表于 2024-7-5 14:58</a>
+那几个DirectX12U特性？怕不是半定制把能删都删了，像VRS这种估计删不了就留下
+
+—— 来自 Xiaomi 220412 ...</blockquote>
+微软等rdna2的硬件特性定版soc量产晚了大半年，ps5那块soc量产的时候都不存在的东西你从哪删？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

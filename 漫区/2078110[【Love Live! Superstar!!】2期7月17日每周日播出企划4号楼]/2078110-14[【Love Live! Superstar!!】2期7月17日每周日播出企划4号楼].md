@@ -3392,3 +3392,13 @@ pay宝21岁生日</blockquote>
 —— 来自  ...</blockquote>
 五巡结束总结生放 小组单发售 就没有了……
 
+
+*****
+
+####  starring  
+##### 20487#       发表于 2024-7-5 11:56
+
+广州真是星专场，这下要去看了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

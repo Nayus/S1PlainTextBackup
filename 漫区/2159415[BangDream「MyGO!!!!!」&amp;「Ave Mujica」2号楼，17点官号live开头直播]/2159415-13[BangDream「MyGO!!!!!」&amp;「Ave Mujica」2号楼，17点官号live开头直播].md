@@ -11688,3 +11688,90 @@ mygo和刺团争选live谁和祥子演奏春日影，评委拿不定主意让全
 mygo和刺团争选live谁和祥子演奏春日影，评委拿不定主意让全体观众盲听两边主唱和祥子对唱春日影投票，结果 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">你们键盘都没有，还演奏什么春日影
 
+
+*****
+
+####  NODY  
+##### 18896#       发表于 2024-7-5 11:48
+
+出现了，c团姨姥经典话术：“乐队不能没有键盘”
+
+给我去和那些没键盘的乐队道歉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18897#       发表于 2024-7-5 11:48
+
+c团起源monica不也没键盘
+
+*****
+
+####  PDQ4  
+##### 18898#       发表于 2024-7-5 11:50
+
+底边鸡可配不上两天万人场的狗，杨姐加油唱刺团歌别又断气了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸡明年安心演动画去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  3353764798  
+##### 18899#       发表于 2024-7-5 11:52
+
+可是借了键盘你要优化掉谁呢？团魂呢？<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 18900#       发表于 2024-7-5 11:52
+
+live的时候正好鸡在播，肮脏的大人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 18901#       发表于 2024-7-5 11:53
+
+为什么不开万人场。3000人的场抽选也抽不到啊，真能吸引人买啊bd？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 18902#       发表于 2024-7-5 11:54
+
+感觉突然来到了紫吧。
+
+*****
+
+####  SakuraのOrigami  
+##### 18903#       发表于 2024-7-5 11:55
+
+<img src="https://img.saraba1st.com/forum/202407/05/115524puuyvr6u6r8defz6.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240705115518.png</strong> (68.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-5 11:55 上传
+
+“2024”
+
+*****
+
+####  NODY  
+##### 18904#       发表于 2024-7-5 11:56
+
+我讨厌“乐队没键盘的歌都不好听/乐队果然必须有键盘”这个话术主要是因为这个发言很像暗暗在踩一脚立希作曲没水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 18905#       发表于 2024-7-5 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65489096&amp;ptid=2159415" target="_blank">SakuraのOrigami 发表于 2024-7-5 11:55</a>
+
+“2024”</blockquote>
+什么草台班子
+

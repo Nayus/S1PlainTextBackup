@@ -3495,3 +3495,13 @@ pay宝21岁生日</blockquote>
 
 <img src="https://p.sda1.dev/18/c52ad0e8ecc38dbb0d6d0c2f0cb09b26/QQ图片20240705152523.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20498#       发表于 2024-7-5 17:34
+
+<blockquote>日野下花帆 发表于 2024-7-5 16:49
+不是，是配合这次bw吧本土都没运营好怎么会想着来这边</blockquote>
+不会吧？我看都有官方烤肉了，感觉是打算长期更下去的
+

@@ -2344,3 +2344,28 @@ cb三次元像是加了个妈进去（
 B站账号开通
 [https://m.bilibili.com/space/3546712157194527](https://m.bilibili.com/space/3546712157194527)
 
+
+*****
+
+####  Piano-Forest  
+##### 208#         楼主| 发表于 2024-7-5 17:43
+
+6月20日
+
+ 「Bloom the smile, Bloom the dream!」 歌词MV：
+[https://youtu.be/huZSM7Mu0a0](https://youtu.be/huZSM7Mu0a0)
+
+插图：深崎暮人
+
+作词·作曲·编曲：塚田耕平
+<img src="https://p.sda1.dev/18/9327fc6340fef983a5093f2f37cf0d99/20240705_172717.jpg" referrerpolicy="no-referrer">
+
+加藤アカツキ 绘
+
+7/17(水)発売、蓮ノ空女学院スクールアイドルクラブ 3rdシングル「Bloom the smile, Bloom the dream!」のジャケット、店舗特典デザインを初公開💿
+
+初回生産特典には…
+
+3rd Live Tour TRY TRI UNITY!!! with みらくらぱーく！公演のチケット最速先行抽選申込券が封入✨
+<img src="https://p.sda1.dev/18/0021f8befc243250e59797f1331df9f9/20240705_172611.jpg" referrerpolicy="no-referrer">
+

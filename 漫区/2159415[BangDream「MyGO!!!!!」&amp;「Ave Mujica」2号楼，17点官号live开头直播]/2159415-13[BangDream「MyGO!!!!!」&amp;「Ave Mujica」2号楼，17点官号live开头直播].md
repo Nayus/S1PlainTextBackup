@@ -12598,3 +12598,72 @@ nga经常一车立希就是几十页，最后结论立希厨不要传播负能�
 
 可以再緊張一點的，畢竟我看現在宣傳都不說是“續篇”了哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 18989#       发表于 2024-7-5 17:24
+
+那边最新笑话一则：“母鸡卡我最想要看的还是爱音炸了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 18990#       发表于 2024-7-5 17:25
+
+准确来说两部动画应该算是“前篇”和“后篇”的关系吧，没有谁是谁的第一季第二季之类的，就是平行地位的各自属于自己乐队主视角的全新系列TV动画，但在故事线上是一个整体故事的内容（说法来自动画播出期间的监督脚本采访）；
+
+假设天国的力儿八2存在一个大title来表示邦动画123季以后的这个系列动画，其中前13集是mygo篇，后13集是ave mujica篇，这种说法算不算是合理的
+
+*****
+
+####  rikaren  
+##### 18991#       发表于 2024-7-5 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65493012&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-5 17:24</a>
+
+那边最新笑话一则：“母鸡卡我最想要看的还是爱音炸了”</blockquote>
+那个就是个想当gbc粉头的，眼看宣布拼盘live可能粉丝没法打起来了又想带节奏了
+
+*****
+
+####  ddy2811  
+##### 18992#       发表于 2024-7-5 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65492615&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-5 16:54</a>
+
+nga经常一车立希就是几十页，最后结论立希厨不要传播负能量等明年就好
+
+结果现在说go剧情也要等明年以后这些 ...</blockquote>
+不得不说刻板印象写作是真的烂，还不如没活免得形象或者待遇进一步恶化了
+
+*****
+
+####  御幸一也  
+##### 18993#       发表于 2024-7-5 17:27
+
+ 本帖最后由 御幸一也 于 2024-7-5 17:28 编辑 
+
+你能這樣想都算正常人了
+
+多的是把ave mujica篇當mygo第二季的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 18994#       发表于 2024-7-5 17:32
+
+就是两个平行的乐队故事，内容上有一定的联系性
+
+怎么有些人就是不明白呢
+
+*****
+
+####  NODY  
+##### 18995#       发表于 2024-7-5 17:33
+
+<blockquote>ddy2811 发表于 2024-7-5 17:27
+不得不说刻板印象写作是真的烂，还不如没活免得形象或者待遇进一步恶化了 ...</blockquote>
+立希厨很多是真的怕编剧怕到宁愿手游没活动+mujica不出场都行，还在期待手游活动和mujica有戏份的只能说确实是之前有福利戏份才这么有信心
+

@@ -10881,3 +10881,15 @@ md，这下睡不着了
 
 想了想这个先导pv的滤镜和bgm更像是想把话题度拉起来所以来了点大的，或许下一个pv不会像这个一样惊悚<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 18803#       发表于 2024-7-5 09:02
+
+<blockquote>shinraki 发表于 2024-7-5 01:18
+会吧，以前就听人说邦邦历代都是主唱为第一主角，换成键盘手肯定不能接受
+
+—— 来自 vivo V2183A, Andro ...</blockquote>
+ras：啊？很明显ras剧情核心是chu²啊。
+

@@ -13268,3 +13268,18 @@ PV都這樣了，還不 ...</blockquote>
 
 包机翻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 19053#       发表于 2024-7-6 14:41
+
+过去的白祥已经预定要死了，再也回不去了。现在的黑祥也终究是要和解的，到游戏里的大概就是融合而成的灰祥了。
+
+*****
+
+####  akiomn  
+##### 19054#       发表于 2024-7-6 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初海喵到现在都在藏，这个pv展现的更多的是睦和祥，动画肯定是初睦祥，青梅组不可能不卖的
+

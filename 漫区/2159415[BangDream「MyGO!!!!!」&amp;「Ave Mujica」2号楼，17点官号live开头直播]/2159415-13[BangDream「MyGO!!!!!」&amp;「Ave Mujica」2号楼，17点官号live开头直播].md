@@ -13195,3 +13195,31 @@ PV都這樣了，還不 ...</blockquote>
 
 或许那时候的祥子会是一个温柔但不憨憨，聪明冷静但会为队友着想的好队长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19046#       发表于 2024-7-6 14:10
+
+贴吧那个楼其实是初祥党看到初华被删掉+pv睦的要素很多，担心初祥动画剧情要像灯希输爱灯那样输给睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19047#       发表于 2024-7-6 14:15
+
+不是，怎麼對自己家的主唱這麼沒自信啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+我就不擔心，戲裡戲外都感覺初祥穩中穩。
+
+反正幼馴染這3個都會佔很重的戲份，不管初祥還是睦祥都吃到飽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+反過來說，如果你雷其中一對，我只會建議你儘早跑路，肉眼可見兩對都會大賣哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19048#       发表于 2024-7-6 14:18
+
+初华的场外牌太多了 而且行动力也极强 不可能失去主角力
+

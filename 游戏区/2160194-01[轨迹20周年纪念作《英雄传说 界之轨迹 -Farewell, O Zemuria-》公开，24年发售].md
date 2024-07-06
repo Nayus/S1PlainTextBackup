@@ -12851,3 +12851,13 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Squall25  
+##### 1242#       发表于 2024-7-6 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500924&amp;ptid=2160194" target="_blank">clyde-wang 发表于 2024-7-6 12:57</a>
+其实应该是PS5在日本市场反响度不达预期吧，他们估计本来觉得PS5来了原来很大一部分死忠都会换机器，然鹅 ...</blockquote>
+黎12那会PS4游戏销量还是主导地位，跟ps5关系不大，一直到刚好去年初日本那边解决供货问题，ps5也开始变成主导地位了。所以去年伊苏x的ps5版销量远大于4版。今年界轨销量才是挑战。
+

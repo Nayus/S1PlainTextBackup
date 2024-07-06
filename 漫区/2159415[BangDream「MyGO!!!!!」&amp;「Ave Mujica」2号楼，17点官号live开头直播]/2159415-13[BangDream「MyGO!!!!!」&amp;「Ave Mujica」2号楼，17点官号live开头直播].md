@@ -13005,3 +13005,11 @@ GBC风soyo演出服
 
 這部分人設的重要性可能並沒有那個高……那忘掉怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19028#       发表于 2024-7-6 09:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">因为这一点然后发散出祥子有健忘症或者间歇性失忆这种事比较无语
+

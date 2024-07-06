@@ -57,3 +57,13 @@ V最协这种性质的比赛一个个都要请教练不是让比赛的性质都�
 
 反过来说能看主播玩命卷的也只剩最协了，像是组队上分挑战，rage之类的属于可遇不可求，至于cr cup那根本不卷
 
+
+*****
+
+####  布莱士·西伯利  
+##### 424#       发表于 2024-7-6 21:51
+
+诗子姐，我爱你。
+
+但你也太快了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

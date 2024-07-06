@@ -873,3 +873,26 @@ enami的玲爱约我黑一辈子
 — ...</blockquote>
 然后黎轨的玲是二次伤害<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜守望者  
+##### 87#       发表于 2024-7-7 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65478505&amp;ptid=2189984" target="_blank">tbone 发表于 2024-7-4 15:27</a>
+游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下</blockquote>
+左上确实还行，空轨原版和漫画还是小萝莉，vs 就是小美女了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 88#       发表于 2024-7-7 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65482424&amp;ptid=2189984" target="_blank">yuyi00 发表于 2024-7-4 21:16</a>
+
+我记得之前贴吧和nga都有看到过推荐一位微博画师，画的剑女的确完成度很高，但我现在记不得是谁了。
+
+顺便 ...</blockquote>
+你法自从闪3以来不论任何美术素材几乎就没有几张完成度高的
+

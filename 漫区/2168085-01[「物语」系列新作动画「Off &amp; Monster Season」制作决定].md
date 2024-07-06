@@ -428,3 +428,15 @@ anx制作人石川达也访谈
 
 正片对味，ED狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 256#       发表于 2024-7-7 03:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506557&amp;ptid=2168085" target="_blank">KDConan 发表于 2024-7-7 00:33</a>
+早见辛苦了这集
+
+话说我小说好久没补了，贝木挨一棍子以后咋样了？在哪部里是这个的后续？</blockquote>
+恋物语后续没交代，花物语贝木在小镇外面埋伏猴子请她吃烤肉，死物语下篇贝木和抚子斧乃木一起接受委托去南国小岛上打boss
+

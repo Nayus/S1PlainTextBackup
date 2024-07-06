@@ -13531,3 +13531,17 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 [https://x.com/okada_mei0519/status/1809578265880982002](https://x.com/okada_mei0519/status/1809578265880982002)
 
+
+*****
+
+####  oznark  
+##### 19077#       发表于 2024-7-6 23:32
+
+<img src="https://img.saraba1st.com/forum/202407/06/082957ehadhhd3vwzjdmua.png" referrerpolicy="no-referrer">
+
+<strong>NYWL]VV@S5F9Z[RH4AR8JDK.png</strong> (225.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 23:29 上传
+

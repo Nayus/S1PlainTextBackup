@@ -101,3 +101,26 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 感想是没有充能拐太难启动了
 
+
+*****
+
+####  khxooo  
+##### 46495#       发表于 2024-7-6 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65496997&amp;ptid=1712412" target="_blank">lcn 发表于 2024-7-6 00:01</a>
+
+话说美杜莎不是之前改名叫果歌了吗？这是悄悄又改回来了？</blockquote>
+一直以来改名的都是本体，你看幼R的名字就没改了。
+
+
+*****
+
+####  lcn  
+##### 46496#       发表于 2024-7-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506493&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-7-6 23:26</a>
+一直以来改名的都是本体，你看幼R的名字就没改了。</blockquote>
+但这次剧情里本体名字没改啊……
+
+顺便发现bbc更新了自动爬塔，无敌！
+

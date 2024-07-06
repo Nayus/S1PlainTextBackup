@@ -196,3 +196,26 @@ anx制作人石川达也访谈
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一集大段独白配上这BGM，真有点昏昏欲睡吧，音乐真的是神前晓负责吗
 
+
+*****
+
+####  KDConan  
+##### 232#       发表于 2024-7-6 23:33
+
+早见辛苦了这集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说我小说好久没补了，贝木挨一棍子以后咋样了？在哪部里是这个的后续？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Tachikoma88  
+##### 233#       发表于 2024-7-6 23:35
+
+<blockquote>KDConan 发表于 2024-7-6 23:33
+早见辛苦了这集
+
+话说我小说好久没补了，贝木挨一棍子以后咋样了？在哪部里是这个的后续？</blockquote>
+花物语就交代没事了
+

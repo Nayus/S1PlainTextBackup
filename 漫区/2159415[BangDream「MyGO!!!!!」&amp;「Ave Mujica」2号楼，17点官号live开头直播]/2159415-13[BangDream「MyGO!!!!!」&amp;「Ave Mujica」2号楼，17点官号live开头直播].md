@@ -13160,3 +13160,16 @@ PV都這樣了，還不 ...</blockquote>
 
 访谈提到的内容从来都是“mygo和mujica是相反的”这类内容，具体例就是正在完成的非专业的mygo，已完成的主流出道的mujica
 
+
+*****
+
+####  御幸一也  
+##### 19043#       发表于 2024-7-6 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500303&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-6 11:41</a>
+
+我倾向于把团内的饺子包好就算平稳落地，狗那边只能说不确定母鸡卡内部情况所以不知道有没有足够的空间来 ...</blockquote>
+你說包餃子我還以為()呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我也是最低期望講好雞內部的事就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

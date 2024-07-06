@@ -12795,3 +12795,13 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 近藤今天在洛杉矶打了两个小时太极，本来我还期待今天的big reveal是啥，结果是美版黑历史绝赞发售[捂脸]
 
+
+*****
+
+####  ravend233  
+##### 1236#       发表于 2024-7-6 13:25
+
+你给一群昨天才玩上黎1的说有大的，那肯定是没有大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

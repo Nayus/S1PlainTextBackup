@@ -603,3 +603,13 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 又是枫又是川又是翔又是梓，一看就是铁串子
 
+
+*****
+
+####  可爱的洋甘菊  
+##### 58#       发表于 2024-7-7 04:21
+
+投票选项越多，祥子优势越大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

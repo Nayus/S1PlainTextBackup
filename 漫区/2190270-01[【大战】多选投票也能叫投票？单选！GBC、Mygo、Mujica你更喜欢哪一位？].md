@@ -570,3 +570,28 @@ nina和大祥老师果然是天生一对</blockquote>
 
 mmk人气比想象中低很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 54#       发表于 2024-7-6 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506054&amp;ptid=2190270" target="_blank">GYSS_ 发表于 2024-7-6 22:44</a>
+mmk人气比想象中低很多啊</blockquote>
+桃仁粉会把票投给27<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 55#       发表于 2024-7-6 23:19
+
+27和祥子只能选一个我无法做出决定，还是不投了
+
+
+*****
+
+####  Siran_China  
+##### 56#       发表于 2024-7-6 23:25
+
+Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

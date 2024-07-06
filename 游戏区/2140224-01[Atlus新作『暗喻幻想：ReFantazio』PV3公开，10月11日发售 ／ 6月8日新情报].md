@@ -314,3 +314,13 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 又是MAG又是技能栏里的タルカジャ,MEGATEN本篇kana?
 
+
+*****
+
+####  曼彻斯特联  
+##### 525#       发表于 2024-7-6 23:21
+
+别人出导剪版都知道加钱升级，就atlus搞加强版同平台都要重买
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

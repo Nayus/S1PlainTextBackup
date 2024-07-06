@@ -128,3 +128,13 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 这些年，jrpg模型最好的感觉是异度啊。另外，不做世界树给我去倒闭🔪。
 
+
+*****
+
+####  猫沢  
+##### 506#       发表于 2024-7-6 11:02
+
+这是换子安配了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

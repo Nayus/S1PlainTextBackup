@@ -463,3 +463,14 @@ nina和大祥老师果然是天生一对</blockquote>
 
 只有素世是个有趣的角色， 其他都是无聊的角色。。。包括小孩
 
+
+*****
+
+####  Vitiate  
+##### 44#       发表于 2024-7-6 10:30
+
+想来想去还是选了睦头人，
+抱歉了soyo，mmk<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

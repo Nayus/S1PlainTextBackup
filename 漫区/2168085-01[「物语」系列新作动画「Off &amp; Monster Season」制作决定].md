@@ -456,3 +456,21 @@ anx制作人石川达也访谈
 
 这动画有点享受了
 
+
+*****
+
+####  もも的洞洞鞋  
+##### 259#       发表于 2024-7-7 06:01
+
+好好好，有內味儿了，回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+只是ed里物语的画风配上yoasobi的歌，太让我出戏了
+
+<img src="https://img.saraba1st.com/forum/202407/07/060036s3sybkebip49yeti.png" referrerpolicy="no-referrer">
+
+<strong>Weixin Screenshot_20240706235111.png</strong> (128.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 06:00 上传
+

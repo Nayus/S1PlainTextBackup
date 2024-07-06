@@ -462,3 +462,16 @@ Fafnar Mk. Destiney!
 
 不过这剧场版图一乐是真的很乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王元姬无惨  
+##### 1805#       发表于 2024-7-6 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65498976&amp;ptid=2178694" target="_blank">AraTurambar 发表于 2024-7-6 07:32</a>
+要是运气不好就要报复社会大家都跟我一样这人也太有病了，天生反社会啊。
+
+至少得有个害他的来源才能报复 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的全对 我们神经病就是这样的
+“你说这个谁懂啊！”
+

@@ -12673,3 +12673,68 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  whzfjk  
+##### 1226#       发表于 2024-7-5 20:52
+
+京迷相比界轨画面上能进化多少
+
+*****
+
+####  ravend233  
+##### 1227#       发表于 2024-7-5 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65494961&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-7-5 20:52</a>
+京迷相比界轨画面上能进化多少</blockquote>
+如果是基于ns 1开发，那就是不倒车就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多人物建模和演出更好，然后支持一些高级特性，但是建模和场景要迁就ns1
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 1228#       发表于 2024-7-5 22:40
+
+ 本帖最后由 卢迪克 于 2024-7-5 22:49 编辑 
+
+按加藤小作坊心态，巴不得基于ns开发，这样就有借口压下成本。
+
+2021 黎轨+那由多投入5.6亿
+
+2023 伊苏x+东迷+伊苏f 投入5.3亿，还多了ps5和ns两个平台
+
+今年财报一直在那复读今年研发投入会涨了
+
+宣发都一直抠抠搜搜的
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1229#       发表于 2024-7-5 22:41
+
+主要问题在美术上吧，隔壁回合制版东轨5因为美术吊炸天没见几个喷画面的
+
+*****
+
+####  ravend233  
+##### 1230#       发表于 2024-7-6 00:57
+
+ 本帖最后由 ravend233 于 2024-7-6 00:59 编辑 
+
+你法美术搁今天已经是没救了，想靠美术掩盖技术问题很难的辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能开摆了
+
+在最舒服的一段时期逮着一批人薅，现在卖不动了结果没人能干事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 1231#       发表于 2024-7-6 08:34
+
+美国佬明年终于能赤石了<img src="https://p.sda1.dev/18/2775738b2cc7bd1875c27f531c9f23e3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

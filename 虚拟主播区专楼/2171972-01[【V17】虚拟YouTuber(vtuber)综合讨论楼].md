@@ -37,3 +37,13 @@
 
 不过这届确实没啥热度就是了
 
+
+*****
+
+####  バーチャルS1er  
+##### 422#       发表于 2024-7-6 13:54
+
+towa表示v最协队伍上次公开的太早导致都在开练没时间、太卷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+V最协这种性质的比赛一个个都要请教练不是让比赛的性质都变了、活该卷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

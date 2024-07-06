@@ -13447,3 +13447,24 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  rikaren  
+##### 19071#       发表于 2024-7-6 20:27
+
+7.8应该还能买票吧
+
+
+*****
+
+####  NODY  
+##### 19072#       发表于 2024-7-6 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65504301&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-6 20:03</a>
+
+这是刚刚公布明天有e+吗
+
+论坛助手,iPhone</blockquote>
+一直都是e+卖票啊，只是明天要开了再宣传一下而已，你往前翻一下，官推发过好几次了
+

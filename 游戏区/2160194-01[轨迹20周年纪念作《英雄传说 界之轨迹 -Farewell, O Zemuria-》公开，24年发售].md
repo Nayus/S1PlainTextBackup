@@ -12869,3 +12869,31 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 每次看到英译都很佩服润色那帮人，把轨迹系列奇奇怪怪的标题本土化又不失醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1244#       发表于 2024-7-6 19:54
+
+<blockquote>clyde-wang 发表于 2024-7-6 12:57
+其实应该是PS5在日本市场反响度不达预期吧，他们估计本来觉得PS5来了原来很大一部分死忠都会换机器，然鹅 ...</blockquote>
+ps市场规模下降所以销量跟着跌而已，
+
+<img src="https://img.saraba1st.com/forum/202407/06/195339egmzcppcqdh006hl.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720266770103.jpg</strong> (51.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-6 19:53 上传
+
+<img src="https://img.saraba1st.com/forum/202407/06/195345t7gmh55uuz7979m9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720266773110.jpg</strong> (68.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-6 19:53 上传
+

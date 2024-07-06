@@ -684,3 +684,25 @@ Mesh Shading就不说了，当初闹了这么久，本来在RDNA架构就是通�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  P02  
+##### 66#         楼主| 发表于 2024-7-7 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65497019&amp;ptid=2189798" target="_blank">zid99825 发表于 2024-7-6 00:04</a>
+
+微软等rdna2的硬件特性定版soc量产晚了大半年，ps5那块soc量产的时候都不存在的东西你从哪删？
+
+论坛助手 ...</blockquote>
+菲尔斯宾塞那句话你看看就得，三台游戏机的SoC几乎相差没多久时间完成设计
+
+Image_1720281807675.png
+(867.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/000517bfkqqd9qwy73r4r8.png" referrerpolicy="no-referrer">
+

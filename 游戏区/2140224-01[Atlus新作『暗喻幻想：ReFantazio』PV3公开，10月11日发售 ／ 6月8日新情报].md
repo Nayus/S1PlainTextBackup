@@ -154,3 +154,14 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 我感觉这作还是有恋爱要素的==
 
+
+*****
+
+####  ouyang菌  
+##### 508#       发表于 2024-7-6 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500305&amp;ptid=2140224" target="_blank">bobosnader 发表于 2024-7-6 11:41</a>
+
+我感觉这作还是有恋爱要素的==</blockquote>
+这段看起来就不像在谈恋爱的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

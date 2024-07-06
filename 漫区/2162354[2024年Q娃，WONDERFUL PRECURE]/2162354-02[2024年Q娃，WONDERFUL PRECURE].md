@@ -4189,3 +4189,13 @@ Q娃7月标题，上北漫画
 <img src="https://p.sda1.dev/18/fc4d76877698ab6976c0d5ecddc79049/003.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/53f8a124b0b7a14cb312da111505ceb9/004.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1854#       发表于 2024-7-6 11:50
+
+猫组也太亲女儿了，这就七夕特效变身了？
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

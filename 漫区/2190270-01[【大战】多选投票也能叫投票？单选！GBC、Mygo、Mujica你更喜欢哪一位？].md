@@ -485,3 +485,19 @@ nina和大祥老师果然是天生一对</blockquote>
 还是比不了祥子在鸡团统治力的</blockquote>
 祥子和仁菜贴贴，我一直是祥仁党啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  虹虹人lanzhu  
+##### 46#       发表于 2024-7-6 11:55
+
+内部投票给了mmk和智，单选就投486吧
+
+<img src="https://img.saraba1st.com/forum/202407/06/115514yegn4vk7385l3km2.jpg" referrerpolicy="no-referrer">
+
+<strong>20240705_114625.jpg</strong> (114.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 11:55 上传
+

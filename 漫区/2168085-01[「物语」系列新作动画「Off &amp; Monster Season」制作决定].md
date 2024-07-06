@@ -327,3 +327,51 @@ anx制作人石川达也访谈
 
 抚子画得太好了
 
+
+*****
+
+####  猫兔同笼  
+##### 245#       发表于 2024-7-7 00:17
+
+所以前两话去哪儿了？该不会塞BD里了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 246#       发表于 2024-7-7 00:21
+
+宣布是yoasobi的时候就知道肯定是最差没有之一了
+
+
+*****
+
+####  oi99o  
+##### 247#       发表于 2024-7-7 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506862&amp;ptid=2168085" target="_blank">狼王卢比奥 发表于 2024-7-7 00:07</a>
+比起终物语变了挺多的，感觉换了一些血之后还是有锐意的。套这次表基本社内的人都上了（除了川田），回天那 ...</blockquote>
+宫本都来这边演出了，你真的很难说回天那边现在怎样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  零壹贰叁  
+##### 248#       发表于 2024-7-7 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来斧乃木头发卷卷和高光效果变多是做的被油泼到之后的效果吗
+我还以为是本季人设新风格
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  Tachikoma88  
+##### 249#       发表于 2024-7-7 00:24
+
+<blockquote>oi99o 发表于 2024-7-7 00:22
+宫本都来这边演出了，你真的很难说回天那边现在怎样了
+
+论坛助手,iPhone</blockquote>
+吉泽翠是宫本徒弟，过来帮帮场子怎么了（）
+

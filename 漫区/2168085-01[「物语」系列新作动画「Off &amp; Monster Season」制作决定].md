@@ -440,3 +440,11 @@ anx制作人石川达也访谈
 话说我小说好久没补了，贝木挨一棍子以后咋样了？在哪部里是这个的后续？</blockquote>
 恋物语后续没交代，花物语贝木在小镇外面埋伏猴子请她吃烤肉，死物语下篇贝木和抚子斧乃木一起接受委托去南国小岛上打boss
 
+
+*****
+
+####  cobymar  
+##### 257#       发表于 2024-7-7 03:56
+
+还是那个熟悉的味儿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

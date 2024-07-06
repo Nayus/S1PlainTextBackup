@@ -532,3 +532,11 @@ nina和大祥老师果然是天生一对</blockquote>
 
 比小孩儿高五分之一左右，算不上一骑绝尘<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是谁的书画  
+##### 50#       发表于 2024-7-6 19:10
+
+亚纶昴居然第三，超乎想象
+

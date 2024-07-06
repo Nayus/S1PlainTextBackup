@@ -13013,3 +13013,11 @@ GBC风soyo演出服
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">因为这一点然后发散出祥子有健忘症或者间歇性失忆这种事比较无语
 
+
+*****
+
+####  PDQ4  
+##### 19029#       发表于 2024-7-6 10:19
+
+还不如说删掉初华是为了暗示有人在祥子手机上安了窃听器导致不止一个人听到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

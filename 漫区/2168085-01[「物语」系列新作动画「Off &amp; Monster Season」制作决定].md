@@ -76,3 +76,11 @@ anx制作人石川达也访谈
 因为选择了网络配信，所以长度限制不会那么死，第一话《月火Undo》长度有35分钟</blockquote>
 看pv的文字卡写的是愚物语第三话感觉不会砍了<img src="https://p.sda1.dev/18/2076f67a9dad54bac2db2eb24077754a/IMG_CMP_103345651.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AlfredXC  
+##### 220#       发表于 2024-7-6 19:36
+
+新房说希望能有符合当今时代的ed，所以石川选了yoasobi。其实选yoasobi也没问题，就是这次写的歌实在太难听了
+

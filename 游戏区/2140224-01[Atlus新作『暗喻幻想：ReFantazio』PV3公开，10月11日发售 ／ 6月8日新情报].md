@@ -244,3 +244,15 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 以你社的技术力还是不要在乎模型还原不还原为好，别搞出比目鱼二号就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 517#       发表于 2024-7-6 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65501934&amp;ptid=2140224" target="_blank">Dreammask 发表于 2024-7-6 15:28</a>
+以你社的技术力还是不要在乎模型还原不还原为好，别搞出比目鱼二号就谢天谢地了 ...</blockquote>
+从P3R来看应该不用担心
+
+—— 来自 HUAWEI WGRR-W19, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

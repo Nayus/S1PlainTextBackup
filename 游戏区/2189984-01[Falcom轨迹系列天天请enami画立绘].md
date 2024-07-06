@@ -861,3 +861,15 @@ enami的玲爱约我黑一辈子
 游戏里劣化了，我也看不惯。ENAMI本身画得我觉得还行，可以对比一下</blockquote>
 当年零轨这几个立绘看得我后背发凉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜守望者  
+##### 86#       发表于 2024-7-7 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65476608&amp;ptid=2189984" target="_blank">我tm吃吃吃吃吃 发表于 2024-7-4 12:07</a>
+那个黄脸大饼脸真的没问题吗？参考3rd通关后在0里见到玲的立绘差距。对我幼小的心灵造成了巨大的伤害
+
+— ...</blockquote>
+然后黎轨的玲是二次伤害<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+

@@ -509,3 +509,18 @@ nina和大祥老师果然是天生一对</blockquote>
 
 大祥老师一骑绝尘啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑猫桑  
+##### 48#       发表于 2024-7-6 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65499191&amp;ptid=2190270" target="_blank">3353764798 发表于 2024-7-6 08:42</a>
+黑祥的选人标准不是{高颜值，高流量，实力强，会讨观众喜欢}这些能卖座的要素吗。
+
+至于亲不亲信，能不能 ...</blockquote>
+自愿的，真要退出也管不到你，一开始就要选好人
+没亲信团拉不起来
+戴面具了高颜值看不到
+高流量，不准喵梦乱拍搞宣传
+

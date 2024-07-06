@@ -112,3 +112,11 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 人设还行，不过依旧祝贺褒姒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lbb3313725  
+##### 504#       发表于 2024-7-6 10:11
+
+红发精灵设定稿挺不错的，就是交由其他人画的头像和动画画风有点难看气质都变了，特别是鼻子直着画很怪异。
+

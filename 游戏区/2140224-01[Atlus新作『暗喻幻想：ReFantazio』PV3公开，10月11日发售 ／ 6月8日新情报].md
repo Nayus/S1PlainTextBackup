@@ -256,3 +256,20 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 —— 来自 HUAWEI WGRR-W19, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  RStocking  
+##### 518#       发表于 2024-7-6 17:30
+
+比目鱼二号倒是不至于吧，不过这pv剧情和建模看了感觉都土的要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塔奇克马  
+##### 519#       发表于 2024-7-6 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">野外地图有可能赶上vv🐴，看上去好像那么回事
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -13325,3 +13325,16 @@ PV都這樣了，還不 ...</blockquote>
 
 不管什么理由不开反正前些天就知道没有了，x蹲repo还很容易被广告刷屏，难蚌
 
+
+*****
+
+####  CyDiablo  
+##### 19060#       发表于 2024-7-6 16:32
+
+新单试听<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">轮符雨后过了好久终于有新歌了，爱信等全曲
+【【试听】MyGO!!!!! 5th Single「端程山」（2024.7.24 发售）-哔哩哔哩】 [https://b23.tv/MXuegyt](https://b23.tv/MXuegyt)
+简介：
+主打曲「端程山」是2024年7月起播出的TV动画「卡片战斗先导者 Divinez Season2」的深情摇滚风片尾曲。
+C／W曲则收录了在手游「バンドリ！ ガールズバンドパーティ！」可以游玩的乐曲「轮符雨」，
+以及电子漫画版「ゴールド・ボーイ(GOLD BOY)」的主题曲「孤壊牢」。
+

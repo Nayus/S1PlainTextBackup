@@ -219,3 +219,47 @@ anx制作人石川达也访谈
 话说我小说好久没补了，贝木挨一棍子以后咋样了？在哪部里是这个的后续？</blockquote>
 花物语就交代没事了
 
+
+*****
+
+####  鬼谷ask  
+##### 234#       发表于 2024-7-6 23:36
+
+还挺好吧，没觉得太闷，个人还接受得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 235#       发表于 2024-7-6 23:37
+
+蛞蝓妖怪这么明显且大段的出现感觉怪怪的，跟以往的风格略有差别
+
+*****
+
+####  Tachikoma88  
+##### 236#       发表于 2024-7-6 23:41
+
+<blockquote>沼蝇 发表于 2024-7-6 23:37
+蛞蝓妖怪这么明显且大段的出现感觉怪怪的，跟以往的风格略有差别</blockquote>
+因为它是抚子“画”出来的，是抚子作为漫画家的风格
+
+
+*****
+
+####  天气天气天气  
+##### 237#       发表于 2024-7-6 23:42
+
+分镜花里胡哨的元素很多，变得活泼搞笑
+摄影变化也大，整体风格跟以往物语很直观就能感觉到完全不同<img src="https://p.sda1.dev/18/04757d1673734e3b0b95eb6093f58747/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  KDConan  
+##### 238#       发表于 2024-7-6 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506585&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-6 23:35</a>
+花物语就交代没事了</blockquote>
+噢我大概捋顺了，贝木挨棍子是阿拉垃圾毕业典礼前，花物语是大学期间<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不过具体的没讲是吧
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

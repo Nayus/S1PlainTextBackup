@@ -13387,3 +13387,27 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 李子伟大，无需多言
 
+
+*****
+
+####  rikaren  
+##### 19067#       发表于 2024-7-6 17:46
+
+<img src="https://img.saraba1st.com/forum/202407/06/174623gw6q9nqt6tbs9kwt.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720259153251.jpg</strong> (111.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 17:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/06/174629fmhh6xj5zto6zqe2.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720259155457.jpg</strong> (162.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 17:46 上传
+
+关于机翻能离谱到什么程度这件事上（）
+

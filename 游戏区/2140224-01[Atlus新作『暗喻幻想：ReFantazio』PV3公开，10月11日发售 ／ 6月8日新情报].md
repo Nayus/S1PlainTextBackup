@@ -324,3 +324,12 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Piano-Forest  
+##### 526#         楼主| 发表于 2024-7-7 02:25
+
+昨天anime expo现场直播上一开始放出的一段游戏开篇剧情动画（英配 / 路易刺杀国王）
+[https://youtu.be/kcW9bDBO0n8](https://youtu.be/kcW9bDBO0n8)
+

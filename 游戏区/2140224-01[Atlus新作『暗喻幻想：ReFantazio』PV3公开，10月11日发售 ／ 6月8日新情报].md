@@ -104,3 +104,11 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 鬼太郎，岳羽，真田，美鹤的异世界冒险<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星花  
+##### 503#       发表于 2024-7-6 08:06
+
+人设还行，不过依旧祝贺褒姒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -193,3 +193,14 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 那是因为还没播，要蹭要宣传也要正式播放再说
 
+
+*****
+
+####  cs0111  
+##### 91#       发表于 2024-7-7 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506990&amp;ptid=2086581" target="_blank">王俊凯 发表于 2024-7-7 00:25</a>
+
+那是因为还没播，要蹭要宣传也要正式播放再说</blockquote>
+7月的天穗和那个妖狐刚出PV就转了，ATRI是今年1月到现在一篇推文都没有，好歹出了好几个PV，就很让人遐想了
+

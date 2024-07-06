@@ -813,3 +813,11 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 棒子本土搞了手机验证以后就基本没有玩过棒游了，以前不搞 ...</blockquote>
 黑沙呗
 
+
+*****
+
+####  殿珣  
+##### 85#       发表于 2024-7-6 22:39
+
+有s1群吗！<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

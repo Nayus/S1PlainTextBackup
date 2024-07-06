@@ -184,3 +184,29 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 ぜひご覧ください。
 
+
+*****
+
+####  nancygreenlife  
+##### 510#       发表于 2024-7-6 12:24
+
+等一个『暗喻幻想：ReFantazio：成王版』，在原版的基础上加入成王后的第一学年，啊不是，第一任期的内容<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  抽烟的猴  
+##### 511#       发表于 2024-7-6 12:30
+
+感觉游戏越发售越没讨论度是怎么回事，全网也就泥潭还在讨论
+
+*****
+
+####  Piano-Forest  
+##### 512#         楼主| 发表于 2024-7-6 12:33
+
+专场直播第三弹
+
+【ATLUS Exclusive《暗喻幻想：ReFantazio》剧情预告片篇】 
+[https://b23.tv/2XK2pVr](https://b23.tv/2XK2pVr)
+

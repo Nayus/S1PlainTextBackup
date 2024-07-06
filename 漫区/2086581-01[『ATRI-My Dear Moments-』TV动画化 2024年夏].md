@@ -159,3 +159,11 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  k1no  
+##### 87#       发表于 2024-7-6 12:02
+
+小女孩真不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

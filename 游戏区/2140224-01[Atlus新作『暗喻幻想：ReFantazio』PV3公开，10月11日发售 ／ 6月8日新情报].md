@@ -165,3 +165,22 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 我感觉这作还是有恋爱要素的==</blockquote>
 这段看起来就不像在谈恋爱的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 509#         楼主| 发表于 2024-7-6 12:01
+
+世界各地线下试玩开展规划详情页面（会不断更新）：
+[https://rpg.jp/worldtour/](https://rpg.jp/worldtour/)
+
+【メタファー：デイリージャーナル】
+
+明日7月7日から発売日の10月11日までの間、
+
+ほぼ毎日メタファーの世界の情報を発信する『メタファー：デイリージャーナル』がスタート！
+
+案内人は、本日発表となりましたアカデメイアの主「モア More（CV:子安武人）」です。
+
+ぜひご覧ください。
+

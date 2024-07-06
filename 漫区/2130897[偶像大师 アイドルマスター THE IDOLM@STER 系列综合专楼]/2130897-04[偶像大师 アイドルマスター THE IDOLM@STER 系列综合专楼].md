@@ -13264,3 +13264,31 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 <img src="https://img.saraba1st.com/forum/202407/06/171723ojtzsksi6izziduo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Acerola  
+##### 5679#       发表于 2024-7-6 20:05
+
+765难道是黑心事务所吗，为啥星耀季节里都已经经历过向着光辉的彼岸成了大明星了，弥生还要吃豆芽菜，花光零花钱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  はらみー  
+##### 5680#       发表于 2024-7-6 20:54
+
+看的1720带舞台挨拶的那场，我现在严重怀疑是先把第二季想好然后迫于无奈再塞个第一季的
+
+
+*****
+
+####  游蜓  
+##### 5681#       发表于 2024-7-6 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65504324&amp;ptid=2130897" target="_blank">Acerola 发表于 2024-7-6 20:05</a>
+
+765难道是黑心事务所吗，为啥星耀季节里都已经经历过向着光辉的彼岸成了大明星了，弥生还要吃豆芽菜，花光 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">初代好像p到退役都没买上手机
+

@@ -3577,3 +3577,11 @@ pay宝21岁生日</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cat1230  
+##### 20507#       发表于 2024-7-6 13:46
+
+5单MV的妆造是我感觉mv里最好看的，不过这歌嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前中川翔子是不是发过这样的碟来着，我在动感新势力里听到的，感觉真不错
+

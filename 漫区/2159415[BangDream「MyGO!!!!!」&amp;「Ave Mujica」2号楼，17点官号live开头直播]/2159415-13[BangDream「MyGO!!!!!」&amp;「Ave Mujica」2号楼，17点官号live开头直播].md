@@ -13105,3 +13105,23 @@ PV都這樣了，還不如貫徹瘋癲到底，這樣還比較好看<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  星天观测  
+##### 19038#       发表于 2024-7-6 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500180&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-6 11:27</a>
+
+基本上ave這路線，如果要在餃子宇宙包餃子就不太能“平穩落地”，搞到最後就是鬧麻了。
+
+PV都這樣了，還不 ...</blockquote>
+我倾向于把团内的饺子包好就算平稳落地，狗那边只能说不确定母鸡卡内部情况所以不知道有没有足够的空间来包，没有就放手游出混活嘛，把鸡内部和成员的故事讲好就算胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 19039#       发表于 2024-7-6 11:42
+
+为什么小孩哥都在爆气，这是什么梗
+

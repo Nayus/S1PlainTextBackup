@@ -13545,3 +13545,14 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 2024-7-6 23:29 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 19078#       发表于 2024-7-7 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500317&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-6 11:42</a>
+
+为什么小孩哥都在爆气，这是什么梗</blockquote>
+好像动画里就这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

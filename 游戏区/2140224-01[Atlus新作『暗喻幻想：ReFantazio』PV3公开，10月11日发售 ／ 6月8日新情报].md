@@ -225,3 +225,14 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 达哉，你也来了啊
 
+
+*****
+
+####  UnrealApartheid  
+##### 515#       发表于 2024-7-6 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500656&amp;ptid=2140224" target="_blank">nancygreenlife 发表于 2024-07-06 12:24:56</a>
+等一个『暗喻幻想：ReFantazio：成王版』，在原版的基础上加入成王后的第一学年，啊不是，第一任期的内容 ...</blockquote>如果能接上主线剧情并且玩法更充实那我也能接受，就是希望别再搞“沉睡与梦境”那一套了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

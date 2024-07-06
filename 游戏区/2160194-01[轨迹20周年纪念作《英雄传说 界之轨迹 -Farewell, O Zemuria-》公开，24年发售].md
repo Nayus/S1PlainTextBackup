@@ -12738,3 +12738,13 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ravend233  
+##### 1232#       发表于 2024-7-6 11:17
+
+近藤的话除非明确定性，基本当废话就行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

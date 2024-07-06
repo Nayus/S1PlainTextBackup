@@ -13054,3 +13054,21 @@ GBC风soyo演出服
 
 精神世界可能有一点但应该不多，毕竟前缀还是邦多利，希望鸡动画能平稳落地吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19034#       发表于 2024-7-6 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/06/112223ymu191fj3jmopjqp.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ushio(@ushio0104)_20240706-005815_1809391374862782598_photo.jpg</strong> (840.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 11:22 上传
+
+[https://x.com/ushio0104/status/1809391374862782598](https://x.com/ushio0104/status/1809391374862782598)
+

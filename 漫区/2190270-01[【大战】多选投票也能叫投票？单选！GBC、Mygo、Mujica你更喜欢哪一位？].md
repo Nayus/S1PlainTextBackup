@@ -474,3 +474,14 @@ nina和大祥老师果然是天生一对</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 45#       发表于 2024-7-6 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65497541&amp;ptid=2190270" target="_blank">IWS2000 发表于 2024-7-6 00:57</a>
+
+还是比不了祥子在鸡团统治力的</blockquote>
+祥子和仁菜贴贴，我一直是祥仁党啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

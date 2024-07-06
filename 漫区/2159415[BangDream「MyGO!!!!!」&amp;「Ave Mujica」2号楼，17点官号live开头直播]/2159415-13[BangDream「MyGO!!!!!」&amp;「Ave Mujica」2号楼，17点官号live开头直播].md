@@ -13038,3 +13038,19 @@ GBC风soyo演出服
 
 我倒觉得会像flfl一样，搞个抽象的精神世界
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 19032#       发表于 2024-7-6 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 19033#       发表于 2024-7-6 11:13
+
+精神世界可能有一点但应该不多，毕竟前缀还是邦多利，希望鸡动画能平稳落地吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

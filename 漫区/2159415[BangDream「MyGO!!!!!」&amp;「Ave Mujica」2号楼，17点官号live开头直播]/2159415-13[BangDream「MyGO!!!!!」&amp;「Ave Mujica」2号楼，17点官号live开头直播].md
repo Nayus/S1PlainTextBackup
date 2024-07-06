@@ -12897,3 +12897,111 @@ GBC风soyo演出服
 
 这pv，忘记一切那里把初华去掉了，现在什么祥子有健忘症，忘记一切是对所有人说的，祥子限时大量批发忘记一切都来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downforce  
+##### 19019#       发表于 2024-7-5 23:14
+
+ 本帖最后由 downforce 于 2024-7-5 23:16 编辑 
+
+<img src="https://p.sda1.dev/18/de55462f094e99aa1af35b1929bd44eb/CMP_20240705231255267.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/18/7803c21ab6071205a930ef1dbe55c944/CMP_20240705231553696.jpg" referrerpolicy="no-referrer">
+
+是GSAS出的啊，我记得该分公司刚成立时出的粘土人评价不太好。不知道现在产品质量如何了？
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  第七軍伐戎処  
+##### 19020#       发表于 2024-7-5 23:22
+
+<img src="https://p.sda1.dev/18/3acad7fc91e7db63470c179c063dfeb5/image.png" referrerpolicy="no-referrer">
+[ ジェミニ²² @Gemini_mujou](https://x.com/Gemini_mujou/status/1809212967487254576)
+
+大少女乐队时代
+
+*****
+
+####  第七軍伐戎処  
+##### 19021#       发表于 2024-7-5 23:28
+
+<img src="https://p.sda1.dev/18/125edce2409c4abeb8cb3e5fe99457d3/image.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/18/aa32b0edcabfa984af3cbdfafd5d5bd4/image.png" referrerpolicy="no-referrer">
+[ 퓨 @puni42909975821](https://x.com/puni42909975821/status/1809196567376904291)
+
+*****
+
+####  第七軍伐戎処  
+##### 19022#       发表于 2024-7-5 23:43
+
+ 本帖最后由 第七軍伐戎処 于 2024-7-5 23:54 编辑 
+
+<img src="https://p.sda1.dev/18/4edef28c86cbf663b98a935af8b2bb28/image.png" referrerpolicy="no-referrer">
+[ れ/rei @reii_nemui](https://x.com/reii_nemui/status/1796159829536370901)
+
+洛阳铲
+
+*****
+
+####  第七軍伐戎処  
+##### 19023#       发表于 2024-7-5 23:59
+
+<img src="https://p.sda1.dev/18/e29c067fcff1d978f317ac76915205d2/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9bf57c00ae155a04001e370979d781f2/image.png" referrerpolicy="no-referrer">
+[ しぃたけたぃし✨ @siitake77777](https://x.com/siitake77777/status/1809196565594292483)
+
+GBC风soyo演出服
+
+*****
+
+####  initium  
+##### 19024#       发表于 2024-7-6 00:14
+
+<img src="https://img.saraba1st.com/forum/202407/06/001452ihbk3h1zh707qv3m.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240706001417.jpg</strong> (412.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 00:14 上传
+
+*****
+
+####  星天观测  
+##### 19025#       发表于 2024-7-6 08:43
+
+这pv，忘记一切那里把初华去掉了，现在什么祥子有健忘症，忘记一切是对所有人说的，祥子限时大量批发忘记一切都来了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19026#       发表于 2024-7-6 08:51
+
+<img src="https://img.saraba1st.com/forum/202407/06/085121zrgn4oq1wdxdd4d6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7317.jpeg</strong> (296.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 08:51 上传
+
+[https://twitter.com/_lriyz/status/1809194169342320957](https://twitter.com/_lriyz/status/1809194169342320957)
+
+*****
+
+####  御幸一也  
+##### 19027#       发表于 2024-7-6 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65499200&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-6 08:43</a>
+
+这pv，忘记一切那里把初华去掉了，现在什么祥子有健忘症，忘记一切是对所有人说的，祥子限时大量批发忘记一 ...</blockquote>
+
+反正過去的她已經死了，就高尾配音前甚至不知道有白祥存在這點來看，
+
+這部分人設的重要性可能並沒有那個高……那忘掉怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

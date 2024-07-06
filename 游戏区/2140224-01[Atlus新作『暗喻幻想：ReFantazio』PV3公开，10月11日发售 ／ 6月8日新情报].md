@@ -289,3 +289,11 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 这游戏看之前的pv迷宫战斗第一眼没啥亮点，美术和建模搞得这么脏也有点影响胃口，剧情涉及权谋更不能指望日本人能写好，还是等加强版再说吧
 
+
+*****
+
+####  寂长无星夜  
+##### 522#       发表于 2024-7-6 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">阿特拉斯说一句没有加强版我马上预购
+

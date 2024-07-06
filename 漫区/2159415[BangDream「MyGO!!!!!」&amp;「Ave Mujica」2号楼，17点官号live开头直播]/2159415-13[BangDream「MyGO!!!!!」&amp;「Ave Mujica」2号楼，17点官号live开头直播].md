@@ -13421,3 +13421,11 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 我先贷款一下明天live上李弄贴贴大于等于两次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MZZK  
+##### 19069#       发表于 2024-7-6 19:14
+
+明天的live是连eplus都没有吗？
+

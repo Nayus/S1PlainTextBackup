@@ -801,3 +801,15 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 转头我搞了几把100级的武器进去试试尼玛刮痧感极强，不玩了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寂长无星夜  
+##### 84#       发表于 2024-7-6 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65466808&amp;ptid=2153578" target="_blank">哆哆鸡 发表于 2024-7-3 14:03</a>
+那么还有什么steam上可以玩到，带中文的韩游吗，
+
+棒子本土搞了手机验证以后就基本没有玩过棒游了，以前不搞 ...</blockquote>
+黑沙呗
+

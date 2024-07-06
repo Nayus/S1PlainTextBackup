@@ -13364,3 +13364,11 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 李子一直很努力，希望以后有好的结果<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 19064#       发表于 2024-7-6 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总要给别人卖的空间，美帝爽了其他人不痛吗
+

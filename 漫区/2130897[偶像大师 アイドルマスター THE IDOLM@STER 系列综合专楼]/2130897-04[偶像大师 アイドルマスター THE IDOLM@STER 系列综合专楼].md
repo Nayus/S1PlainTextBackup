@@ -13224,3 +13224,43 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 
 2024-7-6 07:28 上传
 
+
+*****
+
+####  鳄鱼头  
+##### 5676#       发表于 2024-7-6 07:53
+
+我就说一句，第一季第一幕看完很多人也是赞不绝口的，泥潭就有。所以暂时保持观望态度
+
+*****
+
+####  花海佑芽  
+##### 5677#       发表于 2024-7-6 09:52
+
+二期还会继续看的都是死忠粉了，评价自然会上升不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 5678#       发表于 2024-7-6 17:17
+
+补个翻译版
+
+3E0EB13E001D9CC3FA40CA2A0F0944F4.jpg
+(516.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 17:17 上传
+
+<img src="https://img.saraba1st.com/forum/202407/06/171720hs664zpdi261csbl.jpg" referrerpolicy="no-referrer">
+
+6E4F5C0C957C4943672C4B16CB3F12F4.jpg
+(242.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 17:17 上传
+
+<img src="https://img.saraba1st.com/forum/202407/06/171723ojtzsksi6izziduo.jpg" referrerpolicy="no-referrer">
+

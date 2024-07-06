@@ -84,3 +84,27 @@ anx制作人石川达也访谈
 
 新房说希望能有符合当今时代的ed，所以石川选了yoasobi。其实选yoasobi也没问题，就是这次写的歌实在太难听了
 
+
+*****
+
+####  oi99o  
+##### 221#       发表于 2024-7-6 21:07
+
+<img src="https://img.saraba1st.com/forum/202407/06/210731xnn355jyfa4af5a8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 21:07 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 222#       发表于 2024-7-6 21:11
+
+我感觉shaft又要干把没做完的角色曲塞碟里的操作
+

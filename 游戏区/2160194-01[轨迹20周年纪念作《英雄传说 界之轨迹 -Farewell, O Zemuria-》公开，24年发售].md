@@ -12839,3 +12839,15 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白皮对剧情并没多在意的，黎2MC分应该不会拉多少
 
+
+*****
+
+####  ravend233  
+##### 1241#       发表于 2024-7-6 18:11
+
+黎2问题是哪怕丢掉脑子第三章也很坐牢
+
+不过白皮连闪2的流程设计也觉得没问题，大概或许真不在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

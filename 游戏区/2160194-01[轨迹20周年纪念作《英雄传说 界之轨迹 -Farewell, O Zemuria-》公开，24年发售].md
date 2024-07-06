@@ -12771,3 +12771,27 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 其实应该是PS5在日本市场反响度不达预期吧，他们估计本来觉得PS5来了原来很大一部分死忠都会换机器，然鹅 ...</blockquote>
 你法又没有砍了 PS4 版
 
+
+*****
+
+####  暗影吉他手  
+##### 1235#       发表于 2024-7-6 13:15
+
+<img src="https://img.saraba1st.com/forum/202407/06/131122a8sas2e5kyztyqqs.jpg" referrerpolicy="no-referrer">
+
+<strong>1000000144.jpg</strong> (918.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 13:11 上传
+
+<img src="https://img.saraba1st.com/forum/202407/06/131155hozfxebmffafmy2f.jpg" referrerpolicy="no-referrer">
+
+<strong>1000000192.jpg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 13:11 上传
+
+近藤今天在洛杉矶打了两个小时太极，本来我还期待今天的big reveal是啥，结果是美版黑历史绝赞发售[捂脸]
+

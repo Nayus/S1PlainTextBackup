@@ -13021,3 +13021,20 @@ GBC风soyo演出服
 
 还不如说删掉初华是为了暗示有人在祥子手机上安了窃听器导致不止一个人听到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19030#       发表于 2024-7-6 10:53
+
+回顾了一下1st访谈，“Ave Mujica则是超现实的，让你体验到平常无法体验到的故事。这是一个不同于平常的艺术体验，这个乐队在某种意义上是没有人情味的，但我认为Ave Mujica的强大之处在于其压倒性的世界观。不是普通的演出，而是像在看一场舞台剧，它包含了戏剧性的元素，能够在视觉和听觉上让人享受。”
+
+所以会动的人偶燃烧的火鸡以及一堆电视里疑似播放的萝的fire bird现场也是一种超现实舞台表演吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 19031#       发表于 2024-7-6 10:55
+
+我倒觉得会像flfl一样，搞个抽象的精神世界
+

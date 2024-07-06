@@ -13072,3 +13072,36 @@ GBC风soyo演出服
 
 [https://x.com/ushio0104/status/1809391374862782598](https://x.com/ushio0104/status/1809391374862782598)
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19035#       发表于 2024-7-6 11:26
+
+<img src="https://p.sda1.dev/18/21711894f0518cd79ea5316da443d24c/image.jpg" referrerpolicy="no-referrer">
+[hibioes](https://x.com/hibioes/status/1809377217044181179?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  御幸一也  
+##### 19036#       发表于 2024-7-6 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500092&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-6 11:13</a>
+
+精神世界可能有一点但应该不多，毕竟前缀还是邦多利，希望鸡动画能平稳落地吧 ...</blockquote>
+基本上ave這路線，如果要在餃子宇宙包餃子就不太能“平穩落地”，搞到最後就是鬧麻了。
+
+PV都這樣了，還不如貫徹瘋癲到底，這樣還比較好看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 19037#       发表于 2024-7-6 11:31
+
+<img src="https://p.sda1.dev/18/59040f8de2a9ee294a6711824e052a72/image.jpg" referrerpolicy="no-referrer">
+[munechii6363](https://x.com/munechii6363/status/1809129646124060838?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

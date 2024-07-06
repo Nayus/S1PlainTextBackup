@@ -375,3 +375,22 @@ anx制作人石川达也访谈
 论坛助手,iPhone</blockquote>
 吉泽翠是宫本徒弟，过来帮帮场子怎么了（）
 
+
+*****
+
+####  oshinoshinobu  
+##### 250#       发表于 2024-7-7 00:39
+
+太爽了味太对了
+
+*****
+
+####  狼王卢比奥  
+##### 251#       发表于 2024-7-7 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506971&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-7-7 00:22</a>
+宫本都来这边演出了，你真的很难说回天那边现在怎样了
+
+论坛助手,iPhone</blockquote>
+宫本是这样的，沙发套都是当驴用的
+

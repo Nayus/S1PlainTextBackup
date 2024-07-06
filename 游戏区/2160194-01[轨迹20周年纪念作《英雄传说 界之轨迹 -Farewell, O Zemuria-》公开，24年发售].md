@@ -12748,3 +12748,26 @@ YSX这画面差就算了，美术设计也完全没有设计，都不能靠设�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  clyde-wang  
+##### 1233#       发表于 2024-7-6 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65389256&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-6-26 17:03</a>
+看起来黎1卖得不好让你法社整个乱套了</blockquote>
+其实应该是PS5在日本市场反响度不达预期吧，他们估计本来觉得PS5来了原来很大一部分死忠都会换机器，然鹅其实并没有，同样的问题出在FF7 rb上
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  whzfjk  
+##### 1234#       发表于 2024-7-6 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500924&amp;ptid=2160194" target="_blank">clyde-wang 发表于 2024-7-6 12:57</a>
+
+其实应该是PS5在日本市场反响度不达预期吧，他们估计本来觉得PS5来了原来很大一部分死忠都会换机器，然鹅 ...</blockquote>
+你法又没有砍了 PS4 版
+

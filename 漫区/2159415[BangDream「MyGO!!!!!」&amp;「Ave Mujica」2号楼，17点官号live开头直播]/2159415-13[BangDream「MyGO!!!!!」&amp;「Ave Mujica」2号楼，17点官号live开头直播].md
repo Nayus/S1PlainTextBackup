@@ -13503,3 +13503,31 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19076#       发表于 2024-7-6 21:29
+
+就是明天了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/06/212907ue8gcgpzggqj82ps.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240706-131107_1809575809231052863_photo.jpg</strong> (408.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 21:29 上传
+
+[https://x.com/Kanon_Takao/status/1809575809231052863](https://x.com/Kanon_Takao/status/1809575809231052863)
+
+<img src="https://img.saraba1st.com/forum/202407/06/212920ntks7bl7x57t1ks1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240706-132053_1809578265880982002_photo.jpg</strong> (318.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 21:29 上传
+
+[https://x.com/okada_mei0519/status/1809578265880982002](https://x.com/okada_mei0519/status/1809578265880982002)
+

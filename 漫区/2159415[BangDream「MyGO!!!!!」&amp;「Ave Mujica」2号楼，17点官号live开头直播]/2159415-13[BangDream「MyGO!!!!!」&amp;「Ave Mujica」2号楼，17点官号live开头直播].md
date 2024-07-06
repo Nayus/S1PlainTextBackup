@@ -13283,3 +13283,13 @@ PV都這樣了，還不 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初海喵到现在都在藏，这个pv展现的更多的是睦和祥，动画肯定是初睦祥，青梅组不可能不卖的
 
+
+*****
+
+####  星天观测  
+##### 19055#       发表于 2024-7-6 14:55
+
+想想明天的live，虽然应该和神奈川场不会有曲目上的区别但是这可是七夕
+
+哎，没有转播<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

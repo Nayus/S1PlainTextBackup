@@ -210,3 +210,18 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 【ATLUS Exclusive《暗喻幻想：ReFantazio》剧情预告片篇】 
 [https://b23.tv/2XK2pVr](https://b23.tv/2XK2pVr)
 
+
+*****
+
+####  rainsheep  
+##### 513#       发表于 2024-7-6 14:53
+
+男二建模看着总感觉像个驼背，红发女精灵是真的不如原设，为什么非要把耳朵画那么长，看设定也把他们一族设定成了武夫
+
+*****
+
+####  陆久舟  
+##### 514#       发表于 2024-7-6 14:54
+
+达哉，你也来了啊
+

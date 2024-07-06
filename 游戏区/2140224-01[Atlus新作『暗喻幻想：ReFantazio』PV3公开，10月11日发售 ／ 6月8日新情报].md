@@ -297,3 +297,12 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">阿特拉斯说一句没有加强版我马上预购
 
+
+*****
+
+####  u2deack  
+##### 523#       发表于 2024-7-6 22:27
+
+到时候发售前肯定很多人都要问这个的，不过当时p3r是不是也说没dlc最后还是dlc了，看看这次他们准备怎么说
+其实他们搞dlc真没那么多人骂，毕竟大家都这么搞了，但是这次都全平台首发了再来个全平台加强版那是真要被人喷烂
+

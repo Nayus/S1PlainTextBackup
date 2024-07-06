@@ -13429,3 +13429,21 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 明天的live是连eplus都没有吗？
 
+
+*****
+
+####  九陌狂游  
+##### 19070#       发表于 2024-7-6 20:03
+
+<img src="https://img.saraba1st.com/forum/202407/06/200259vffzll62bxfk50vb.png" referrerpolicy="no-referrer">
+
+<strong>14c9529cf0bf5f0e4e76768185f44fee.png</strong> (344.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 20:02 上传
+
+这是刚刚公布明天有e+吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

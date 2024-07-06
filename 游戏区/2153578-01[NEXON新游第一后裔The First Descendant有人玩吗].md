@@ -791,3 +791,13 @@ PS5优化不行，充值系统还有bug，要不是ps plus的包还没发我都�
 
 ----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  X9999  
+##### 83#       发表于 2024-7-6 15:25
+
+闲得无聊我把主线打完，来到困难模式，随便找了个副本看着界面只能私人挑战陷入了沉思<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+转头我搞了几把100级的武器进去试试尼玛刮痧感极强，不玩了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

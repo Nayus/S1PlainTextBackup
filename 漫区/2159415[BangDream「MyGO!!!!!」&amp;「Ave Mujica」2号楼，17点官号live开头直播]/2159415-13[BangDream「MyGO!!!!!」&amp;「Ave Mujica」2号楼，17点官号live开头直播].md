@@ -15243,3 +15243,122 @@ IMG_5311.PNG
 有没有可能……是动画也不会怎么卖</blockquote>
 同校就会有对手戏的，只要有对手戏别人就能磕到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19228#       发表于 2024-7-8 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515297&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-8 00:36</a>
+
+同校就会有对手戏的，只要有对手戏别人就能磕到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同校都能捡……是因为没有正餐吃吗
+
+*****
+
+####  相坂君  
+##### 19229#       发表于 2024-7-8 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些姨姥为什么人人喊打没点逼数吗，一点也不尊重现在两个团的成员，要么代餐要么直接偷
+
+沾过C就要赛博守寡，是首歌就是灯箱曲，韩国人都自愧不如
+
+*****
+
+####  PDQ4  
+##### 19230#       发表于 2024-7-8 00:39
+
+草怎么是抗吧，漏油真是粪坑蝶泳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 19231#       发表于 2024-7-8 00:40
+
+剪切线也是灯箱曲 
+
+太好磕辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19232#       发表于 2024-7-8 00:42
+
+祥子写什么都是忘不了c团的，water里主唱和键盘互诉衷肠的主唱不仅是初华也是灯的，air是怀念c团欢乐时光的，总之只要是祥子写的歌一定都是跟灯和c团有密切关联的
+
+你鸡动画播了遗老能gc到什么程度我不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19233#       发表于 2024-7-8 00:42
+
+除了素睦和爱祥没啥不能磕的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+灯祥原作还是有关系性的，不用攻击力那么大<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 19234#       发表于 2024-7-8 00:42
+
+有的人就是爱用不知道哪根神经搭错毫无逻辑只有情绪的射箭画靶式脑回路来进行莫名其妙的攻击和赛博诊脉，我觉得如何现实就肯定得这样，不然就是背叛和坏人。可怕的是在网络回音墙里他们能找到不少同伙，而类似现象在vtb，电竞，明星圈子也是屡见不鲜，导致看一些吐槽有很重的既视感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19235#       发表于 2024-7-8 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515333&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-8 00:39</a>
+
+草怎么是抗吧，漏油真是粪坑蝶泳</blockquote>
+没办法，很想攻击又怕封号只能丢大粪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小萱菜  
+##### 19236#       发表于 2024-7-8 00:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">听说麦很大还在烦这场咋没线上直播，结果正主自己就发了，幸福
+
+*****
+
+####  滑稽Captain  
+##### 19237#       发表于 2024-7-8 00:43
+
+音一会我记得有访谈明确说过ありがとう的对象是粉丝的吧
+
+*****
+
+####  skives  
+##### 19238#       发表于 2024-7-8 00:44
+
+问题是有些人就是不明白过去的女朋友只是人生中的一个过客而已 
+箱子很明显是那种会经历很多段感情的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19239#       发表于 2024-7-8 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515364&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-8 00:42</a>
+
+除了素睦和爱祥没啥不能磕的
+
+灯祥原作还是有关系性的，不用攻击力那么大</blockquote>
+你都這樣說了，給尊重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19240#       发表于 2024-7-8 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515364&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-8 00:42</a>
+
+除了素睦和爱祥没啥不能磕的
+
+灯祥原作还是有关系性的，不用攻击力那么大</blockquote>
+只能说我平时对灯祥没意见爱嗑嗑爱卖卖
+
+但是为了嗑cp偷别人的情歌是不是有点过于老坛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

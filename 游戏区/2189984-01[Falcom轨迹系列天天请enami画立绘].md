@@ -924,3 +924,13 @@ enami的玲爱约我黑一辈子
 
 2024-7-7 09:19 上传
 
+
+*****
+
+####  张叔夜  
+##### 91#       发表于 2024-7-7 12:45
+
+伊苏vs空轨的画风是新千年以来我个人最喜欢的，当时psp塞满了VS壁纸
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

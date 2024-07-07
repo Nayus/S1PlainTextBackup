@@ -514,3 +514,11 @@ anx制作人石川达也访谈
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  鸣神  
+##### 264#       发表于 2024-7-7 12:49
+
+ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎么样也无所谓了，但是ED响起的那一刻还是蚌埠住
+

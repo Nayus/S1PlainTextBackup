@@ -13556,3 +13556,138 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 为什么小孩哥都在爆气，这是什么梗</blockquote>
 好像动画里就这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19079#       发表于 2024-7-6 20:27
+
+7.8应该还能买票吧
+
+*****
+
+####  NODY  
+##### 19080#       发表于 2024-7-6 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65504301&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-6 20:03</a>
+
+这是刚刚公布明天有e+吗
+
+论坛助手,iPhone</blockquote>
+一直都是e+卖票啊，只是明天要开了再宣传一下而已，你往前翻一下，官推发过好几次了
+
+
+*****
+
+####  祐天寺若麦  
+##### 19081#       发表于 2024-7-6 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65504301&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-6 20:03</a>
+
+这是刚刚公布明天有e+吗
+
+论坛助手,iPhone</blockquote>
+热知识，这是在卖e+线下票
+
+*****
+
+####  九陌狂游  
+##### 19082#       发表于 2024-7-6 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65504645&amp;ptid=2159415" target="_blank">祐天寺若麦 发表于 2024-7-6 20:37</a>
+
+热知识，这是在卖e+线下票</blockquote>
+这样，我确实不懂
+
+*****
+
+####  NODY  
+##### 19083#       发表于 2024-7-6 20:53
+
+柿本导演提出希望邀请后藤绿和绫奈由仁子担任编剧。导演介绍说这两位编剧是他在其他作品中长期合作的搭档。虽然我个人是第一次与这两位合作，但一开始他们三人奇妙的关系让我困惑。很难分辨导演是在给两人下指示还是在向两人学习，是在坚持自己的意见还是在向两人道歉，但三人看起来很开心。
+[https://g.nga.cn/read.php?tid=40788362](https://g.nga.cn/read.php?tid=40788362)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19084#       发表于 2024-7-6 21:29
+
+就是明天了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/06/212907ue8gcgpzggqj82ps.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240706-131107_1809575809231052863_photo.jpg</strong> (408.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 21:29 上传
+
+[https://x.com/Kanon_Takao/status/1809575809231052863](https://x.com/Kanon_Takao/status/1809575809231052863)
+
+<img src="https://img.saraba1st.com/forum/202407/06/212920ntks7bl7x57t1ks1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240706-132053_1809578265880982002_photo.jpg</strong> (318.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 21:29 上传
+
+[https://x.com/okada_mei0519/status/1809578265880982002](https://x.com/okada_mei0519/status/1809578265880982002)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yifan8848| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  oznark  
+##### 19085#       发表于 2024-7-6 23:32
+
+<img src="https://img.saraba1st.com/forum/202407/06/082957ehadhhd3vwzjdmua.png" referrerpolicy="no-referrer">
+
+<strong>NYWL]VV@S5F9Z[RH4AR8JDK.png</strong> (225.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-6 23:29 上传
+
+*****
+
+####  基神的强袭自由  
+##### 19086#       发表于 2024-7-7 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65500317&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-6 11:42</a>
+
+为什么小孩哥都在爆气，这是什么梗</blockquote>
+好像动画里就这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19087#       发表于 2024-7-7 09:44
+
+<img src="https://img.saraba1st.com/forum/202407/07/094415uk211u9jm7kj22kc.png" referrerpolicy="no-referrer">
+
+<strong>$[08%V75(JH)UFGW3~0G`N7.png</strong> (136.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 09:44 上传
+
+*****
+
+####  星天观测  
+##### 19088#       发表于 2024-7-7 09:45
+
+如果把鸡成员加进去大概会是海铃驾驶喵梦拍照睦睡觉初华管零食以及祥子没去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

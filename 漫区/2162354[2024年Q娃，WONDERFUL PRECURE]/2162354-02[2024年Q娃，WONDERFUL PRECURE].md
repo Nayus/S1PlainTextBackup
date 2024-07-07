@@ -4439,3 +4439,19 @@ Q娃7月标题，上北漫画
 
 麦狗的真CP是敌方的狼妹（姐），一定是这样的吧是吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 1876#       发表于 2024-7-7 15:57
+
+太太这么镇静平时也嘴里喵喵喵的该不会也是猫猫变得吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+后半的还挺文艺的我还以为有什么小麦愿望有点进化呢结果似乎还是傻狗？
+
+从暗示来看boss是日本狼的怨念？如果是怨念我很怀疑现在的Q娃要怎么收局<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过我觉得可以对小麦主角的塑造再等等如果是boss是狼对塑造小麦是有用的。
+
+新ed好看
+

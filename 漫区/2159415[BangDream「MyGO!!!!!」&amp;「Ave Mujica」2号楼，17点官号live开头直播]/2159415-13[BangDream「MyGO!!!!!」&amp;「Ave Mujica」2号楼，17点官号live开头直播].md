@@ -13822,3 +13822,81 @@ ob/dolo出现表演了水是吧
 <img src="https://pbs.twimg.com/media/GR4A5k6acAA-sqj?format=png&amp;name=900x900" id="aimg_tqb9f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://x.com/gumoyu/status/1809885151067050280](https://x.com/gumoyu/status/1809885151067050280)
 
+
+*****
+
+####  御幸一也  
+##### 19102#       发表于 2024-7-7 18:39
+
+ヴェリタス、ベリタス (Veritas) は、ラテン語で「真理」を意味する単語で、ローマ神話の女神、ウェーリタース（英語版）の英語読み。
+
+3rd LIVE 真理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19103#       发表于 2024-7-7 18:42
+
+有一說一這個logo設計得真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/07/184227thcrrl1hh0sukkli.png" referrerpolicy="no-referrer">
+
+<strong>e7aa3d70-8cb6-443a-a1bd-ec723950f86b.png</strong> (77.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:42 上传
+
+*****
+
+####  yifan8848  
+##### 19104#       发表于 2024-7-7 18:44
+
+唱了水<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+不如wsd把愛知場的現場剪一剪當MV算了，不要再惦記你那便宜的鬼圖了
+
+*****
+
+####  星天观测  
+##### 19105#       发表于 2024-7-7 18:44
+
+今晚一定会有大触画一下唱water的情景的吧……
+
+*****
+
+####  御幸一也  
+##### 19106#       发表于 2024-7-7 18:44
+
+10.2 迷你專
+
+<img src="https://img.saraba1st.com/forum/202407/07/184442cutqduk2lun21bxi.jpg" referrerpolicy="no-referrer">
+
+<strong>GR4PU1jaoAA-Zex.jpg</strong> (236.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:44 上传
+
+*****
+
+####  星天观测  
+##### 19107#       发表于 2024-7-7 18:46
+
+他莱莱的，我看这下谁还寄吧贷款唱water的时候xx要跑出来拉琴所以water是大团圆后的三人曲
+
+*****
+
+####  rikaren  
+##### 19108#       发表于 2024-7-7 18:47
+
+earth会是在7.14出全曲吗？
+
+*****
+
+####  御幸一也  
+##### 19109#       发表于 2024-7-7 18:48
+
+群友說愛知公演沒看到錄像的器材<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

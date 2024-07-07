@@ -816,3 +816,13 @@ ed其实还好吧，本来以为是勇者那种水平的东西，但结合ed画�
 
 除了ED 味道都对了
 
+
+*****
+
+####  6030sylar  
+##### 291#       发表于 2024-7-7 18:00
+
+洗胃废话真多
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

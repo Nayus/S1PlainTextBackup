@@ -358,3 +358,18 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蓮華  
+##### 530#       发表于 2024-7-7 18:00
+
+刚打完P3R，看到这UI真是笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Swss  
+##### 531#       发表于 2024-7-7 18:03
+
+看了下新pv,古谷彻被换子安了
+

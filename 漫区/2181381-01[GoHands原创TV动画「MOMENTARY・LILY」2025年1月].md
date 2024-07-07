@@ -437,3 +437,19 @@ Gohands也来双女主原创<img src="https://static.saraba1st.com/image/smiley/
 
 这么说结合pv的宣传语感觉会有大刀，表面搞日常有点学孤味道了。比较好奇的就是れんげ为什么会排在cv表第四这么个中间位置。
 
+
+*****
+
+####  有骨气的百合  
+##### 45#       发表于 2024-7-7 12:09
+
+可能cv表顺序是除了金毛之外的便当顺序，莲华排第四躲过一劫
+
+
+*****
+
+####  堆雪若叶  
+##### 46#       发表于 2024-7-7 12:12
+
+往后播前面角色都领便当cv表排名就能升到女二了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

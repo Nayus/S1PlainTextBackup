@@ -503,3 +503,14 @@ anx制作人石川达也访谈
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  martinium  
+##### 263#       发表于 2024-7-7 12:14
+
+上个季度我慢慢把物语系列全部重看一遍。感觉这次比伪物语和凭物语还是强的，和第二季的平均水平差不多。
+但是我突然想到之前pv的镜头在第一集都播完了，让我有点担心制作进度会不会有问题。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

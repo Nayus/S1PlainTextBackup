@@ -3176,3 +3176,21 @@ GTA的档又没了？哦直播里说是有内容需要确认，可能是某首�
 
 笔记本那个小破屏幕上4K分辨率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9160#         楼主| 发表于 2024-7-7 17:29
+
+3050wwwwww自己都忍不住吐槽
+
+HP这就是你们的25年诚意
+
+
+*****
+
+####  holoan  
+##### 9161#         楼主| 发表于 2024-7-7 17:33
+
+HP好像很懂的样子，整了这么多茶番
+

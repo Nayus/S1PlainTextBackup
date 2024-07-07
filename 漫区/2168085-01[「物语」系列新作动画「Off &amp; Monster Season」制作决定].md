@@ -683,3 +683,41 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  零壹贰叁  
+##### 280#       发表于 2024-7-7 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511462&amp;ptid=2168085" target="_blank">名津流 发表于 2024-7-7 17:20</a>
+这排列的顺序算是官方推荐顺序吗？
+
+我记得当年动画我是差7历物语、8终物语下、9续 终物语 没看
+
+如果按图 ...</blockquote>
+这图动画少了花物语，不过花也是外传性质
+按这顺序看没问题的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Tachikoma88  
+##### 281#       发表于 2024-7-7 17:31
+
+希望这次能再出现好的新人演出家，当初三狮时新房也培养了好几个不错的演出家的，结果shaft留不住人都跑了
+
+
+*****
+
+####  oi99o  
+##### 282#       发表于 2024-7-7 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511516&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-7-7 17:28</a>
+这图动画少了花物语，不过花也是外传性质
+按这顺序看没问题的</blockquote>
+花当然是算进第二季里了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

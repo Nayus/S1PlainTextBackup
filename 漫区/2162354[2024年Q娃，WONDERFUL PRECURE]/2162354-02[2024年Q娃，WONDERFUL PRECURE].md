@@ -4431,3 +4431,11 @@ Q娃7月标题，上北漫画
 感觉汪q的大问题除了没打戏之外。最大问题是小麦这个主角20多集了有多少塑造。天q问题也大，但索拉这个主角 ...</blockquote>
 虽然这么说听起来很奇怪，但小麦好像真的就是按一条狗来塑造的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1875#       发表于 2024-7-7 15:37
+
+麦狗的真CP是敌方的狼妹（姐），一定是这样的吧是吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

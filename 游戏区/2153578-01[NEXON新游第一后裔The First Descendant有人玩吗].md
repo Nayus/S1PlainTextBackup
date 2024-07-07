@@ -863,3 +863,16 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 毕竟玩这类刷宝游戏只不过是看东西听东西时，手边有个能折腾 ...</blockquote>
 我也是在白夜峡谷被打得满头包，兔子带着血防盾卡还是各种秒，对面全是锁头挂
 
+
+*****
+
+####  三郷雫  
+##### 89#       发表于 2024-7-7 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65501904&amp;ptid=2153578" target="_blank">X9999 发表于 2024-7-6 15:25</a>
+
+闲得无聊我把主线打完，来到困难模式，随便找了个副本看着界面只能私人挑战陷入了沉思。（我还盯着界面看了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">呃，独狼又要死路一条了？
+
+还说没事儿上去再看看呢，这下死心了
+

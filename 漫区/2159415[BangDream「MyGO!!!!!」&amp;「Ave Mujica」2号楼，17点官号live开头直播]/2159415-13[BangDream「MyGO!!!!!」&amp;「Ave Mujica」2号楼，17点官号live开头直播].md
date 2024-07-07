@@ -13691,3 +13691,11 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 如果把鸡成员加进去大概会是海铃驾驶喵梦拍照睦睡觉初华管零食以及祥子没去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19089#       发表于 2024-7-7 16:57
+
+今天爱知那边应该很热，居然还有人穿鸡的黑袍，过于噶吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

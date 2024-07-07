@@ -13718,3 +13718,24 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 樓友兩次都送，太有心了</blockquote>
 雖然不仔細看就看不出來，但這次的差分是大家都變生氣臉了 包括小章魚們<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19092#       发表于 2024-7-7 18:22
+
+<img src="https://img.saraba1st.com/forum/202407/07/182248hwh0ng1hzhojf6i1.png" referrerpolicy="no-referrer">
+
+<strong>3dd4ecc3-9291-420a-b4a5-9d7e86a4c57e.png</strong> (128.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:22 上传
+
+*****
+
+####  星天观测  
+##### 19093#       发表于 2024-7-7 18:24
+
+哎，我只能活在没有水mv也没有土预告的世界线里吗
+

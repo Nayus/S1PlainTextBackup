@@ -3311,3 +3311,24 @@ mio虾<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 
 前一阵说中耳炎就休播了，但是今天本人出现在团长的直播窗评论区
 
+
+*****
+
+####  holoan  
+##### 9174#         楼主| 发表于 2024-7-7 22:02
+
+<img src="https://img.saraba1st.com/forum/202407/07/220241bcqjcowe0owvsyzz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (270 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:02 上传
+
+*****
+
+####  holoan  
+##### 9175#         楼主| 发表于 2024-7-7 22:06
+
+竟然还有MV能看，不错
+

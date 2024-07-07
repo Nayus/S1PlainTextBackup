@@ -14528,3 +14528,28 @@ earth感觉还不错，但是好像没有前三首那么抓我<img src="https://
 
 假设8月10号左右出最后一首，那么9月份要靠什么度过呢，最后一首的mv吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19168#       发表于 2024-7-7 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">五首歌都有自己风格挺好的
+
+*****
+
+####  PDQ4  
+##### 19169#       发表于 2024-7-7 21:59
+
+本来以为今天会宣广播的来着，没有的话
+
+9月可能真就又放养了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 19170#       发表于 2024-7-7 22:00
+
+地后半段有一小段火的变奏，要不是角色歌说已经没了，还真能造点cp假药来玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

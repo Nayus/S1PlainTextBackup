@@ -14767,3 +14767,54 @@ mujica动画能不能快点来，想听初华声线了<img src="https://static.s
 
 我的假药就是初祥是彼此的光。
 
+
+*****
+
+####  星天观测  
+##### 19191#       发表于 2024-7-7 22:35
+
+要说假药的话，我的假药是岛民初华从小受到家庭感染很喜欢音乐和唱歌，这一点在遇见祥子后也影响到了其实并不爱练琴的小祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19192#       发表于 2024-7-7 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513635&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-7 22:21</a>
+
+比较详细的星之意向可能不会有了，别说小白，彩彩和兰好像也没明确的星之意向。 ...</blockquote>
+彩彩明星，ag长庚星，真白倒是没有
+
+<img src="https://img.saraba1st.com/forum/202407/07/223532ahna5nn33cafr75a.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (192.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/223538jnh3zhh834jd3clr.png" referrerpolicy="no-referrer">
+
+<strong>无标题4.png</strong> (128.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:35 上传
+
+
+*****
+
+####  rikaren  
+##### 19193#       发表于 2024-7-7 22:41
+
+<blockquote>NODY 发表于 2024-7-7 22:35
+彩彩明星，ag长庚星，真白倒是没有</blockquote>
+草，彩彩的星之意向是明星这件事怎么感觉是中文梗。
+
+*****
+
+####  kosou  
+##### 19194#       发表于 2024-7-7 22:43
+
+earth这首有点潮核 越写越现代了
+

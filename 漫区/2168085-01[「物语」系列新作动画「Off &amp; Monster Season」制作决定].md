@@ -899,3 +899,24 @@ ed其实还好吧，本来以为是勇者那种水平的东西，但结合ed画�
 退治月火首先得揭露她的真身，让她作为人类的社会关系先破裂掉吧，也就是揭穿谎言。
 然而连第一步都做不到，扇说过她有一个即使知道自己的真面目也会保护她的哥哥存在。
 
+
+*****
+
+####  JetBrains  
+##### 300#       发表于 2024-7-7 23:39
+
+第一集太超出我预期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这味道才正宗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  smdzh2  
+##### 301#       发表于 2024-7-7 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513495&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-7 23:07</a>
+感觉从找抚子那段开始烈度变低了，果然不可能一直高强度切分镜
+
+沙发套还是想保住物语这个金字招牌，动用了 ...</blockquote>
+蛞蝓豆腐是基于「蛞蝓克蛇」伪造出来的怪异，本身无法封印蛇神。最后靠贝木嘴炮让抚子接受现实才生效的。临别前贝木跟垃圾君说“如果效果没消失的话撒盐就好了”，蛞蝓留在抚子体内大概是忘了撒盐的关系罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

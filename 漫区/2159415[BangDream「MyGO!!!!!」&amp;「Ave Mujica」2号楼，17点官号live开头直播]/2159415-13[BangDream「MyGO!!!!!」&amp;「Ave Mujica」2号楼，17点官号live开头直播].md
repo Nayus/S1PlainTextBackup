@@ -14506,3 +14506,25 @@ earth聽起來曲風好流行啊<img src="https://static.saraba1st.com/image/smi
 
 第五首来点死金（bushi），不过aether／light／spirit应该会是偏轻松明快的风格吧。
 
+
+*****
+
+####  星天观测  
+##### 19165#       发表于 2024-7-7 21:54
+
+earth感觉还不错，但是好像没有前三首那么抓我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这种风格也能表演是件好事
+
+*****
+
+####  鳥栖朝  
+##### 19166#       发表于 2024-7-7 21:54
+
+开始期待最后一首了
+
+*****
+
+####  星天观测  
+##### 19167#       发表于 2024-7-7 21:55
+
+假设8月10号左右出最后一首，那么9月份要靠什么度过呢，最后一首的mv吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

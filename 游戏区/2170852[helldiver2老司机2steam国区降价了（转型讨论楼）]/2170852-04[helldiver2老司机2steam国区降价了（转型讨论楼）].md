@@ -169,3 +169,14 @@ lmao病，开加速器让反作弊更新完就行了
 机器人工厂对通风口一发，巨型者运气好也可以一发。</blockquote>
 看贴吧说打任何构筑位置都一发打掉。
 
+
+*****
+
+####  xinfengj  
+##### 5045#       发表于 2024-7-7 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513705&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-7-7 22:30</a>
+机器人工厂对通风口一发，巨型者运气好也可以一发。</blockquote>
+不需要，打构筑特攻，随便打中就能爆。西线可以配飞矛打闪电战，需要打构筑直接叫下来拆就行，省飞矛弹药。
+引导激光可以小范围跟踪，打运兵船引擎两发一个，坦克和炮台正面四发背面两发
+

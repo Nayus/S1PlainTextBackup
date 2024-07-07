@@ -937,3 +937,28 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://img.saraba1st.com/forum/202407/07/234912qos1lqi5zs4zxvdr.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 303#       发表于 2024-7-7 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514781&amp;ptid=2168085" target="_blank">smdzh2 发表于 2024-7-7 23:42</a>
+
+蛞蝓豆腐是基于「蛞蝓克蛇」伪造出来的怪异，本身无法封印蛇神。最后靠贝木嘴炮让抚子接受现实才生效的。 ...</blockquote>
+所以蛞蝓是因为被养大成了真怪异？感觉捏新怪异的前提条件就是先在身体里养一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  糖皮质激素  
+##### 304#       发表于 2024-7-8 00:01
+
+ 本帖最后由 糖皮质激素 于 2024-7-8 00:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513495&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-7 22:07</a>
+
+感觉从找抚子那段开始烈度变低了，果然不可能一直高强度切分镜
+
+沙发套还是想保住物语这个金字招牌，动用了 ...</blockquote>
+贝木是假的欺诈师，真正的专家，他手里的东西基本都是真的，小说里斧乃木甚至还猜测这个蛞蝓就是贝木为了对付她特意留了一手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过能搞定神抚子主要是因为抚子自己被说服了并不是这个蛞蝓有多厉害
+

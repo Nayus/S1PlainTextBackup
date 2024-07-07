@@ -435,3 +435,11 @@ ATLUS跟着世嘉走全平台化应该是2022年开始的，后面的新作（�
 
 <img src="https://img.saraba1st.com/forum/202407/07/225515aa3pzv5211tf1v20.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 538#       发表于 2024-7-7 23:53
+
+建模不行，其他要素也没有让人眼前一亮的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

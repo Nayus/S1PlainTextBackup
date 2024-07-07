@@ -14202,3 +14202,37 @@ tour一般只卖一场吧
 
 这mv的图设定上难道是祥子在羽丘的电脑教室自己画的吗
 
+
+*****
+
+####  PDQ4  
+##### 19138#       发表于 2024-7-7 20:10
+
+ 本帖最后由 PDQ4 于 2024-7-7 20:11 编辑 
+
+我真的很好奇wsd从哪挖到这些底边推特画师的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+虽然这张祥子有点鬼图了，但是睦挺好看的，我竟然觉得还挺不错<img src="https://static.saraba1st.com/image/smiley/face/181.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  枫林不见  
+##### 19139#       发表于 2024-7-7 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd你干脆来微博上随便喊一嗓子，无数大手子乐意免费给你画
+
+
+*****
+
+####  御幸一也  
+##### 19140#       发表于 2024-7-7 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">警惕武士道的醜圖pua
+
+*****
+
+####  星天观测  
+##### 19141#       发表于 2024-7-7 20:16
+
+……至少这个初华看着比air的正常一点
+

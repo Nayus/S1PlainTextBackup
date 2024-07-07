@@ -682,3 +682,13 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 比较意外的 ...</blockquote>
 天性凉薄有时候可不是加分项，人气投票时有人就提出说hina在面对霸凌明哲保身，面对资本妥协当偶像，是庸俗普通人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arthurmizuki  
+##### 65#       发表于 2024-7-7 15:08
+
+<blockquote>aptx8285144 发表于 2024-7-7 14:47
+天性凉薄有时候可不是加分项，人气投票时有人就提出说hina在面对霸凌明哲保身，面对资本妥协当偶像，是庸 ...</blockquote>
+hina这种更像世俗精英，普通人妥协纯挨打，她妥协能换来想要的
+

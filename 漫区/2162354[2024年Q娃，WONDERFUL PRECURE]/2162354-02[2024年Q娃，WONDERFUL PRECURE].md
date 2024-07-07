@@ -4410,3 +4410,13 @@ Q娃7月标题，上北漫画
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Epsilonhomu  
+##### 1873#       发表于 2024-7-7 15:14
+
+这集小雪说话句尾带喵喵喵的，有种事到如今才来装猫的幽默感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为这集猫组要穿浴衣，本来就有预感该见家长了，但还是没想到小雪来得这么光明正大，猫主子不愧是猫主子
+

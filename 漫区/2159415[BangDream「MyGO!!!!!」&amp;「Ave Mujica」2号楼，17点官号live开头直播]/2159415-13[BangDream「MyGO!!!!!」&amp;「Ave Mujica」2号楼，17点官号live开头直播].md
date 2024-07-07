@@ -15070,3 +15070,128 @@ water ...</blockquote>
 
 草，怎么又是经典少女灵和神明大人是灯祥曲。
 
+
+*****
+
+####  星天观测  
+##### 19215#       发表于 2024-7-8 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515081&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-8 00:10</a>
+
+还有说音一会是灯祥曲的呢，只能说那边骂姨姥是恋尸癖真不冤</blockquote>
+你知道这次water是灯祥曲的理由是啥不，因为这是“主唱和键盘手的深情告白”，所以这个主唱也可以是灯
+
+如果可以发表ctrl发言的话我的发言可能就要非常难听了
+
+真就是偷得大言不惭还觉得自己真nb
+
+*****
+
+####  rikaren  
+##### 19216#       发表于 2024-7-8 00:17
+
+<blockquote>星天观测 发表于 2024-7-8 00:15
+你知道这次water是灯祥曲的理由是啥不，因为这是“主唱和键盘手的深情告白”，所以这个主唱也可以是灯
+
+如 ...</blockquote>
+艹，什么极品玩意
+
+*****
+
+####  Aendst  
+##### 19217#       发表于 2024-7-8 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+
+看得出来灯箱确实完全没有官粮了
+
+*****
+
+####  星天观测  
+##### 19218#       发表于 2024-7-8 00:18
+
+弄这个图很危险啊，下垂的似贴没贴的手先不说，另一只摸头发的手怎么回事
+
+知道手游里那张黄毛靠在蓝毛身上蓝毛摸黄毛头发的立绘被誉为女铜石锤么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19219#       发表于 2024-7-8 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515134&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-8 00:17</a>
+……
+
+看得出来灯箱确实完全没有官粮了</blockquote>
+不是动画怎么卖？总不能鸡狗同台吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19220#       发表于 2024-7-8 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515123&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-8 00:15</a>
+
+你知道这次water是灯祥曲的理由是啥不，因为这是“主唱和键盘手的深情告白”，所以这个主唱也可以是灯
+
+如 ...</blockquote>
+怎麼說呢，這些人好可憐。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19221#       发表于 2024-7-8 00:20
+
+？
+
+又是鸡live又是鸡曲的，到底什么样的脑构造能做到天天发散到别人
+
+请不要到处偷偷
+
+那我要说的难听了，自己家团其他四个人哄着主唱还不满意，天天拿别人家主唱垫，真当自己是皇帝了，别委屈自己搞邦了，后宫漫更合适<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 19222#       发表于 2024-7-8 00:22
+
+那边今天还出现了音一会和回层浮都是灯祥曲的暴言呢，也难怪隔壁经常直球辱骂姨姥了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19223#       发表于 2024-7-8 00:23
+
+aaaaaaaa你們好會賣啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/08/002306mqth75t5fjth07f4.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (25.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 00:23 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/002303fll166uxiks1vv1s.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240707-161959_1809985723535425885_photo.jpg</strong> (806.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 00:23 上传
+
+[https://x.com/sasakirico/status/1809985723535425885](https://x.com/sasakirico/status/1809985723535425885)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|有点吓人了|
+
+查看全部评分
+

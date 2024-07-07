@@ -649,3 +649,13 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 投投Hina，关注Hina谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王留美  
+##### 62#       发表于 2024-7-7 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65509807&amp;ptid=2190270" target="_blank">3353764798 发表于 2024-7-7 12:32</a>
+ 隔壁搬过去的投票走势也差不多啊。失去了连体之力以后，桃睦灯大幅下跌，老牌强者还是那几个。 比较意外的 ...</blockquote>
+主唱不是死鱼脸，主唱只是忘记戴眼镜
+

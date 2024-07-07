@@ -920,3 +920,20 @@ ed其实还好吧，本来以为是勇者那种水平的东西，但结合ed画�
 沙发套还是想保住物语这个金字招牌，动用了 ...</blockquote>
 蛞蝓豆腐是基于「蛞蝓克蛇」伪造出来的怪异，本身无法封印蛇神。最后靠贝木嘴炮让抚子接受现实才生效的。临别前贝木跟垃圾君说“如果效果没消失的话撒盐就好了”，蛞蝓留在抚子体内大概是忘了撒盐的关系罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BismarcKloseL.C  
+##### 302#       发表于 2024-7-7 23:50
+
+I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[ANi] 物語系列 第外季＆第怪季 - 01 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_20240.jpg
+(231.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/234912qos1lqi5zs4zxvdr.jpg" referrerpolicy="no-referrer">
+

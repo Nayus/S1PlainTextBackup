@@ -782,3 +782,37 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 
 可以可以 希望能坚持
 
+
+*****
+
+####  jaewoongh_  
+##### 288#       发表于 2024-7-7 17:50
+
+味道真正啊，期待
+
+ed其实还好吧，本来以为是勇者那种水平的东西，但结合ed画面还不错？
+
+
+*****
+
+####  MedCoter  
+##### 289#       发表于 2024-7-7 17:55
+
+与小圆的联动图
+<img src="https://p.sda1.dev/18/6bd7f11e062c9f626c8a752f42568586/CMP_20240707174950462.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a90afeb9b56a94f2c68f86e478b6abfd/CMP_20240707174950539.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/7c6b97c735a71cc18bd9fb8a0450884e/CMP_20240707175018745.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c4235a5ad0dbcac6feee62d539146cfa/CMP_20240707175018821.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/bcfba36578359b9de1c758762271d752/CMP_20240707175058786.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9b475401acc9e3a3657fd50bf7335c8a/CMP_20240707175058860.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c277cf0c4106a6e5f1392ab5d3e8f128/CMP_20240707175448188.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/7fa1d36df11c7f0e6d6a7eb74237f3a7/CMP_20240707175448263.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e18ca481962c75327bc6bb99225783ea/CMP_20240707175508449.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 290#       发表于 2024-7-7 17:57
+
+除了ED 味道都对了
+

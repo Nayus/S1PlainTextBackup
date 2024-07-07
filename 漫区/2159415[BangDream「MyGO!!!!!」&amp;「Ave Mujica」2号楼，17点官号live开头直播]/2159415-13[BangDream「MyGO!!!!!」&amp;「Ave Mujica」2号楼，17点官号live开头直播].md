@@ -13707,3 +13707,14 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 这次的海铃没有因为反光而消失不见了（）
 
+
+*****
+
+####  御幸一也  
+##### 19091#       发表于 2024-7-7 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511257&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-7-7 16:50</a>
+
+樓友兩次都送，太有心了</blockquote>
+雖然不仔細看就看不出來，但這次的差分是大家都變生氣臉了 包括小章魚們<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

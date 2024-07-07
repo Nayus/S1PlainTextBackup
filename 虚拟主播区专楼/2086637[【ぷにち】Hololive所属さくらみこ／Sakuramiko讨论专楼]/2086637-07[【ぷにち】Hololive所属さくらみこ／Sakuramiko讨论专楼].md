@@ -3210,3 +3210,23 @@ HP好像很懂的样子，整了这么多茶番
 
 单纯清库存呢特别介绍的这3个产品，另外最搞笑的是网上有人挖出来几年前同样是HP找2434做的工商同样配置的机子当时价格比现在还便宜
 
+
+*****
+
+####  holoan  
+##### 9164#         楼主| 发表于 2024-7-7 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511472&amp;ptid=2086637" target="_blank">holoan 发表于 2024-7-7 17:21</a>
+
+什么工商，你就是想趁机学电视购物的主持人的说话风格过把瘾吗</blockquote>
+还在学呢
+
+*****
+
+####  holoan  
+##### 9165#         楼主| 发表于 2024-7-7 17:51
+
+数量限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">价格有点诚意了
+
+什么茶番，促销海报改改改，
+

@@ -4420,3 +4420,14 @@ Q娃7月标题，上北漫画
 
 因为这集猫组要穿浴衣，本来就有预感该见家长了，但还是没想到小雪来得这么光明正大，猫主子不愧是猫主子
 
+
+*****
+
+####  Arson=desu  
+##### 1874#       发表于 2024-7-7 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65510317&amp;ptid=2162354" target="_blank">离心 发表于 2024-7-7 13:51</a>
+
+感觉汪q的大问题除了没打戏之外。最大问题是小麦这个主角20多集了有多少塑造。天q问题也大，但索拉这个主角 ...</blockquote>
+虽然这么说听起来很奇怪，但小麦好像真的就是按一条狗来塑造的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

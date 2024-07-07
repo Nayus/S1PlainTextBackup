@@ -344,3 +344,11 @@ water的时候说大部分人不这样
 
 她還有好多未公開的舊圖存貨，期待她之後全部公開，她簡直是幼馴染組的神<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 19274#       发表于 2024-7-8 05:02
+
+想想觉得长谷川也行吧，键盘用得少，这样奏音就可以走下来饭撒了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

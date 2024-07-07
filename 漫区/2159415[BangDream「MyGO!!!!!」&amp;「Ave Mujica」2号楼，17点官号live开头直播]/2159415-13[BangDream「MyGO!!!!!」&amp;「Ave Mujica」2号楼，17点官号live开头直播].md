@@ -14903,3 +14903,65 @@ earth这首有点潮核 越写越现代了
 
 什么鬼故事，鸡率先袭来的惊悚感就是长谷川的追逐战吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19203#       发表于 2024-7-7 23:14
+
+一张票4w4是不是有点太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/07/231425gxh44rhrhdxb1lwb.jpg" referrerpolicy="no-referrer">
+
+<strong>GR43aOjasAA1llv.jpg</strong> (115.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:14 上传
+
+
+*****
+
+####  PDQ4  
+##### 19204#       发表于 2024-7-7 23:22
+
+ 本帖最后由 PDQ4 于 2024-7-7 23:23 编辑 
+
+因为河口湖那个S席就100来个座，还超级近<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+蝶和ppp也是一个价位，gachi必争之地
+
+*****
+
+####  rikaren  
+##### 19205#       发表于 2024-7-7 23:23
+
+<blockquote>NODY 发表于 2024-7-7 23:02
+彩彩那个原文就是star，还是挺明显的，天文部的日菜喜欢彩彩应该也有这方面的暗示 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/07/232133p895m8qrwece0qxh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-07-23-14-33-51_080202d21636839aa811fe0eaddff67c.jpg</strong> (163.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:21 上传
+
+上游戏看了眼原文，彩彩意向就是偶像明星（idol star）没跑了。另外真白那边，除了蝴蝶和角色曲里的旋转木马还用过的意向有花蕾和（不知道为什么总是让我发笑的）蓝天。
+
+<img src="https://img.saraba1st.com/forum/202407/07/232248c1wceuehqmox81l1.jpg" referrerpolicy="no-referrer">
+
+<strong>3117822c09fd6979fbefa79e334c04653e48469e_raw.jpg</strong> (187.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/232257f93gc4998nthp9hn.jpg" referrerpolicy="no-referrer">
+
+<strong>6C0CC492743744DAB742596E7E492E07.jpg</strong> (76.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:22 上传
+

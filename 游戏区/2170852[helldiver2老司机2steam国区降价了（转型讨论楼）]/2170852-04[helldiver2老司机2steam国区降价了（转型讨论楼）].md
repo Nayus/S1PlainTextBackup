@@ -145,3 +145,16 @@ lmao病，开加速器让反作弊更新完就行了
 
 泰坦3发头黑白牛2发头，感觉没debuff的情况下比类星体好用。驱逐舰升级减15cd的话90秒就能叫下来
 
+
+*****
+
+####  LT_Harry  
+##### 5043#       发表于 2024-7-7 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511480&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-7-7 17:22</a>
+
+等晚上洗完澡就打，看贴吧说突击兵能打构筑
+
+泰坦3发头黑白牛2发头，感觉没debuff的情况下比类星体好用。驱 ...</blockquote>
+机器人工厂对通风口一发，巨型者运气好也可以一发。
+

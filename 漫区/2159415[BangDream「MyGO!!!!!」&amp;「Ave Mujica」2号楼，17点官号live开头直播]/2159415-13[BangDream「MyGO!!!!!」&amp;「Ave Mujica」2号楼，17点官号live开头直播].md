@@ -14714,3 +14714,56 @@ you are my reason
 
 从白鹭佬那儿偷的。
 
+
+*****
+
+####  akiomn  
+##### 19184#       发表于 2024-7-7 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉不拉纯粹看作曲，比如长谷川，除了Angles外，其他两首鸡团的歌都是拉跨的
+
+*****
+
+####  PDQ4  
+##### 19185#       发表于 2024-7-7 22:26
+
+我看有人说这首可能也是长谷川，等开奖了一会<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19186#       发表于 2024-7-7 22:28
+
+主要初华和星星的关系还挺明确的，或许以后会有dolo意向是月而初华有星星意向这样的双设定吧
+
+*****
+
+####  PDQ4  
+##### 19187#       发表于 2024-7-7 22:30
+
+初华星星的意向大概会有吧，我很自信会有初祥幼年观星或者畅谈相关的内容
+
+不过和漏油不一样，我认为初华是祥子的星星，她自己就是夜空中最耀眼的那一颗，小时候就是在大草原夜空里闪闪发光把幼祥给蛊惑了。不过她不自知，动画现在给出的可以说是初华角度看祥子，祥子角度怎么看初华可没说呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 19188#       发表于 2024-7-7 22:30
+
+初华除了喜欢看星星和neta牛郎织女的那个牛郎星以外也没和星星相关了吧。不过总比小白，彩彩，兰这三个明显。
+
+*****
+
+####  kivz  
+##### 19189#       发表于 2024-7-7 22:30
+
+mujica动画能不能快点来，想听初华声线了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">现在听李子唱多了，感觉需要校正下
+
+*****
+
+####  rikaren  
+##### 19190#       发表于 2024-7-7 22:30
+
+我的假药就是初祥是彼此的光。
+

@@ -669,3 +669,16 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 隔壁投爱音的也挺多。
 
+
+*****
+
+####  aptx8285144  
+##### 64#       发表于 2024-7-7 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65509807&amp;ptid=2190270" target="_blank">3353764798 发表于 2024-7-7 12:32</a>
+
+隔壁搬过去的投票走势也差不多啊。失去了连体之力以后，桃睦灯大幅下跌，老牌强者还是那几个。
+
+比较意外的 ...</blockquote>
+天性凉薄有时候可不是加分项，人气投票时有人就提出说hina在面对霸凌明哲保身，面对资本妥协当偶像，是庸俗普通人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

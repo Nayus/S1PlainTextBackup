@@ -14381,3 +14381,11 @@ wsd：便宜产量大的鬼图亲妈和贵得只能偶尔画一张的亲妈，�
 
 3rd肯定是新主题了，不知道新小剧场怎么续写，有连贯性感觉以后都是小川包了
 
+
+*****
+
+####  IWS2000  
+##### 19157#       发表于 2024-7-7 20:42
+
+有没有可能这些丑图花的钱不少，被吃回扣了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

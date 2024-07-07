@@ -13739,3 +13739,86 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 哎，我只能活在没有水mv也没有土预告的世界线里吗
 
+
+*****
+
+####  御幸一也  
+##### 19094#       发表于 2024-7-7 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">愛知唱了水 我恨武士道
+
+*****
+
+####  星天观测  
+##### 19095#       发表于 2024-7-7 18:31
+
+ob/dolo出现表演了水是吧
+
+气死我了
+
+*****
+
+####  御幸一也  
+##### 19096#       发表于 2024-7-7 18:31
+
+愛知歌單
+
+<img src="https://img.saraba1st.com/forum/202407/07/183044cf4i04m4rtrt4fn4.jpg" referrerpolicy="no-referrer">
+
+<strong>GR4MNCaa0AAOlnB.jpg</strong> (144.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:30 上传
+
+
+*****
+
+####  御幸一也  
+##### 19097#       发表于 2024-7-7 18:33
+
+歌單和神奈川一樣，只是多了最後一首的水三角
+
+群友說小劇場也都一樣，就最後一個幕間有不同<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19098#       发表于 2024-7-7 18:34
+
+我猜对了，爱知wtaer，3rd最后两首
+
+*****
+
+####  御幸一也  
+##### 19099#       发表于 2024-7-7 18:35
+
+<img src="https://img.saraba1st.com/forum/202407/07/183504aocesi4bbhohb3bj.jpg" referrerpolicy="no-referrer">
+
+<strong>GR4NHZyboAAen57.jpg</strong> (396.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:35 上传
+
+*****
+
+####  rikaren  
+##### 19100#       发表于 2024-7-7 18:36
+
+<img src="https://img.saraba1st.com/forum/202407/07/183646iby48jyz4x4i4i5x.jpg" referrerpolicy="no-referrer">
+
+<strong>1720348576246.jpg</strong> (24.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:36 上传
+
+*****
+
+####  T@L  
+##### 19101#       发表于 2024-7-7 18:36
+
+<img src="https://pbs.twimg.com/media/GR4A5k6acAA-sqj?format=png&amp;name=900x900" id="aimg_tqb9f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+[https://x.com/gumoyu/status/1809885151067050280](https://x.com/gumoyu/status/1809885151067050280)
+

@@ -14481,3 +14481,28 @@ nyaa上earth放流了
 earth聽起來曲風好流行啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 這下不用擔心ave唱不了動畫OP了
 
+
+*****
+
+####  御幸一也  
+##### 19163#       发表于 2024-7-7 21:39
+
+水三角的小畫家發了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/07/213914hrynn8s9n838r923.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_lama(@lama_064)_20240707-123020_1809927930476437968_photo.jpg</strong> (368.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 21:39 上传
+
+[https://x.com/lama_064/status/1809927930476437968](https://x.com/lama_064/status/1809927930476437968)
+
+*****
+
+####  rikaren  
+##### 19164#       发表于 2024-7-7 21:42
+
+第五首来点死金（bushi），不过aether／light／spirit应该会是偏轻松明快的风格吧。
+

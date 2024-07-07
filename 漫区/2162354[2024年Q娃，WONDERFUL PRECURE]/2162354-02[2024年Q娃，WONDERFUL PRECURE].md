@@ -4304,3 +4304,64 @@ Q娃7月标题，上北漫画
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">彩叶无论是外貌还是声线都显得越来越成熟了，是可以成为我母亲的女人
 
+
+*****
+
+####  上坂莲华  
+##### 1867#       发表于 2024-7-7 13:46
+
+恋爱线写的比日常像人得多，小心思藏不住了，建议下部直接搞成男女Q娃搭配得了
+
+前面骂彩狗组不写家庭，这边一个小场景就把麻猫组一家写活了，鉴定为还是不想写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+石像数了下光画面出现的就有12个，而且闪亮动物已经有拉比琳了，暖男兔子再算进去就重复了，大概是别的什么伏线？
+
+*****
+
+####  jaewoongh_  
+##### 1868#       发表于 2024-7-7 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> ed2无论是歌还是pv都直中我的好球区，无论前一天多么艹蛋睡眠质量多么差，看到这个ed都能不由自主地笑出来
+
+彩叶x小麦ver. 有点微妙，也就是说将来还会有猫版？
+
+<img src="https://img.saraba1st.com/forum/202407/07/134605w32ojyj12goertbs.jpg" referrerpolicy="no-referrer">
+
+<strong>[Up to 21°C] Wonderful Precure! - 23 (CR 1920x1080 AVC AAC MKV) [4A9BB1CF].mkv_.jpg</strong> (357.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 13:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/134602wwo0zhyvhwnvw0nw.jpg" referrerpolicy="no-referrer">
+
+<strong>[Up to 21°C] Wonderful Precure! - 23 (CR 1920x1080 AVC AAC MKV) [4A9BB1CF].mkv_.jpg</strong> (252.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 13:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/134603ng6yoyonx2knysoo.jpg" referrerpolicy="no-referrer">
+
+<strong>[Up to 21°C] Wonderful Precure! - 23 (CR 1920x1080 AVC AAC MKV) [4A9BB1CF].mkv_.jpg</strong> (299.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 13:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/134604f9g22apm9u1amjd9.jpg" referrerpolicy="no-referrer">
+
+<strong>[Up to 21°C] Wonderful Precure! - 23 (CR 1920x1080 AVC AAC MKV) [4A9BB1CF].mkv_.jpg</strong> (331.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 13:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/134601yip6ybrbuinpqbpp.jpg" referrerpolicy="no-referrer">
+
+<strong>[Up to 21°C] Wonderful Precure! - 23 (CR 1920x1080 AVC AAC MKV) [4A9BB1CF].mkv_.jpg</strong> (357.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 13:46 上传
+

@@ -934,3 +934,20 @@ enami的玲爱约我黑一辈子
 
 —— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Sylpheed  
+##### 92#       发表于 2024-7-7 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65469910&amp;ptid=2189984" target="_blank">Sayuki1025 发表于 2024-7-3 18:08</a>
+
+闪之轨迹2那个のワの封面是谁画的</blockquote>
+HACCAN，尼法的单子还画过3dr封面，晓轨主角人设
+
+当主美的重启mana系列，外包的FEH的女王近期风格都挺好看
+
+早期风格就3rd，虫姬那样也不错
+
+唯独闪2晓轨一股异味，除了钱没给够也找不到别的原因了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

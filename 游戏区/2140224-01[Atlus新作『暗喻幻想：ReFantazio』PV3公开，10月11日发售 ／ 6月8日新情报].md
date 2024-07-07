@@ -373,3 +373,20 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 
 看了下新pv,古谷彻被换子安了
 
+
+*****
+
+####  SuNR1sE364  
+##### 532#       发表于 2024-7-7 18:06
+
+怎么这美术越来越脏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 533#       发表于 2024-7-7 18:08
+
+P5、DQ11、FF15...这几年日厂的皇家版商法感觉数不过来
+
+越来越令人反感，等完整版再买吧
+

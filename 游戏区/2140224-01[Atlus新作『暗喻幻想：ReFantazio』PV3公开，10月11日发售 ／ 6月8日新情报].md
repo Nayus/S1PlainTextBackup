@@ -418,3 +418,20 @@ ATLUS跟着世嘉走全平台化应该是2022年开始的，后面的新作（�
 
 另外桥野在新P搞LNC、凯瑟琳搞LNC、rpg.jp又搞LNC，不得不怀疑怀疑他其实是SMT的高级黑粉啊，都到了做啥都有SMT的思想钢印的地步了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 537#       发表于 2024-7-7 22:55
+
+这个比目鱼怎么感觉比p5还厉害
+
+6ED9C330A76741E22FC0C3058CA9A9ED_edit_29199442288772.jpg
+(99.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:55 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/225515aa3pzv5211tf1v20.jpg" referrerpolicy="no-referrer">
+

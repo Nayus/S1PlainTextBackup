@@ -158,3 +158,14 @@ lmao病，开加速器让反作弊更新完就行了
 泰坦3发头黑白牛2发头，感觉没debuff的情况下比类星体好用。驱 ...</blockquote>
 机器人工厂对通风口一发，巨型者运气好也可以一发。
 
+
+*****
+
+####  Mr.Hopp  
+##### 5044#       发表于 2024-7-7 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513705&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-7-7 22:30</a>
+
+机器人工厂对通风口一发，巨型者运气好也可以一发。</blockquote>
+看贴吧说打任何构筑位置都一发打掉。
+

@@ -13900,3 +13900,29 @@ earth会是在7.14出全曲吗？
 
 群友說愛知公演沒看到錄像的器材<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19110#       发表于 2024-7-7 18:50
+
+不是，这都不卖录像的吗？
+
+*****
+
+####  祐天寺若麦  
+##### 19111#       发表于 2024-7-7 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511988&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-7 18:48</a>
+
+群友說愛知公演沒看到錄像的器材</blockquote>
+情报里bd只有神奈川场
+
+
+*****
+
+####  skives  
+##### 19112#       发表于 2024-7-7 18:52
+
+去爱知场的观众爽了 七夕限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

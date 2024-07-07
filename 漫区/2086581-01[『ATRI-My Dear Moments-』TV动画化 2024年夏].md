@@ -204,3 +204,11 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 那是因为还没播，要蹭要宣传也要正式播放再说</blockquote>
 7月的天穗和那个妖狐刚出PV就转了，ATRI是今年1月到现在一篇推文都没有，好歹出了好几个PV，就很让人遐想了
 
+
+*****
+
+####  zayrq  
+##### 92#       发表于 2024-7-7 19:55
+
+红毛好标准的吃瘪青梅啊，已经能想象到以后的惨状了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

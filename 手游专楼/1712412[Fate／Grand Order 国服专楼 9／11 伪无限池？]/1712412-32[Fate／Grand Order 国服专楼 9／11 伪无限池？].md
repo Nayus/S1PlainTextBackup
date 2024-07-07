@@ -124,3 +124,11 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 顺便发现bbc更新了自动爬塔，无敌！
 
+
+*****
+
+####  荡寇将军张嶷  
+##### 46497#       发表于 2024-7-7 19:54
+
+别的改名我还能理解点，美杜莎叫歌果这个改名有点懵。是哪个版本的正式翻译么。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

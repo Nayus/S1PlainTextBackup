@@ -613,3 +613,15 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ashice  
+##### 59#       发表于 2024-7-7 08:13
+
+只能选一个，小孩姐的票一下子就超过了486
+
+再一次验证了gbc=nina传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

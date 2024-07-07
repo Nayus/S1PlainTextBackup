@@ -15195,3 +15195,51 @@ aaaaaaaa你們好會賣啊<img src="https://static.saraba1st.com/image/smiley/fa
 
 查看全部评分
 
+
+*****
+
+####  Aendst  
+##### 19224#       发表于 2024-7-8 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515157&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-8 00:19</a>
+
+不是动画怎么卖？总不能鸡狗同台吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能……是动画也不会怎么卖
+
+*****
+
+####  御幸一也  
+##### 19225#       发表于 2024-7-8 00:26
+
+一個說想一直在你身邊彈琴
+
+一個給回應說想一直在你身邊唱歌
+
+你們初祥奏李真是……好會賣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 19226#       发表于 2024-7-8 00:33
+
+因为本人不想直接发出攻击导致封号，所以让ctrl来表达一下差不多的意思吧
+
+IMG_5311.PNG
+(429.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 00:33 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/003311gvb8pbdxgf2p0zgc.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19227#       发表于 2024-7-8 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515211&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-8 00:26</a>
+有没有可能……是动画也不会怎么卖</blockquote>
+同校就会有对手戏的，只要有对手戏别人就能磕到<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

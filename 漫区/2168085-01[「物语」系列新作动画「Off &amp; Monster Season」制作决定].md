@@ -962,3 +962,15 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 沙发套还是想保住物语这个金字招牌，动用了 ...</blockquote>
 贝木是假的欺诈师，真正的专家，他手里的东西基本都是真的，小说里斧乃木甚至还猜测这个蛞蝓就是贝木为了对付她特意留了一手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过能搞定神抚子主要是因为抚子自己被说服了并不是这个蛞蝓有多厉害
 
+
+*****
+
+####  Asukalangley33  
+##### 305#       发表于 2024-7-8 00:30
+
+突然发现之前剧情忘光光了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+物语里面最近记得的剧情就是老仓育的章节了
+
+后面全失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

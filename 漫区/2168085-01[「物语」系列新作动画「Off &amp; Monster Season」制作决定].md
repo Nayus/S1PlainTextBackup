@@ -483,3 +483,13 @@ anx制作人石川达也访谈
 <img src="https://p.sda1.dev/18/4d2725fe79b33d47dc8d96e3ff0e5171/CMP_20240707072427194.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/ee92bc22e8933b30994c1003a29c7a60/CMP_20240707072439396.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沼蝇  
+##### 261#       发表于 2024-7-7 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65506637&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-6 23:41</a>
+因为它是抚子“画”出来的，是抚子作为漫画家的风格</blockquote>
+是演出风格上的感觉，以往的妖怪要么是根本没画出来，一直在侧面描写，要么是很快的出现又很快的消失，就是物语那种闪现的画面的感觉，这回蛞蝓又大出现的时间又长，画面很多。
+

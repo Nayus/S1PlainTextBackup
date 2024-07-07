@@ -14553,3 +14553,62 @@ earth感觉还不错，但是好像没有前三首那么抓我<img src="https://
 
 地后半段有一小段火的变奏，要不是角色歌说已经没了，还真能造点cp假药来玩玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19171#       发表于 2024-7-7 22:05
+
+<img src="https://img.saraba1st.com/forum/202407/07/220530x9f7v2ufhu42nczh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720361090875.jpg</strong> (45.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:05 上传
+
+啊？
+
+*****
+
+####  祐天寺若麦  
+##### 19172#       发表于 2024-7-7 22:07
+
+还真有啊
+
+<img src="https://img.saraba1st.com/forum/202407/07/220723d66s065wy8ltawwa.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240707220703.png</strong> (5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 22:07 上传
+
+*****
+
+####  PDQ4  
+##### 19173#       发表于 2024-7-7 22:08
+
+虽然不是角色歌但是该捡当然还是要捡，这个元素的顺序wsd都这样了
+
+造假药要什么章法，又不是真的
+
+主要还是，这么绿的植物封面就是真的很贴睦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19174#       发表于 2024-7-7 22:08
+
+mujica不会真是参考了初设ppp的剧情吧，本身祥子的部分就有大部分参考初设saya了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19175#       发表于 2024-7-7 22:12
+
+别传人了，ppp和r又没入土，打过来我第一个跑
+
+缪水大战不愿再看<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

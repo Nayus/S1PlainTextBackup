@@ -14141,3 +14141,64 @@ tour一般只卖一场吧
 
 有没有今天的repo
 
+
+*****
+
+####  PDQ4  
+##### 19133#       发表于 2024-7-7 20:00
+
+水MV出了！
+
+*****
+
+####  御幸一也  
+##### 19134#       发表于 2024-7-7 20:00
+
+水MV
+
+[https://www.youtube.com/watch?v=NB3PxWLn9v4](https://www.youtube.com/watch?v=NB3PxWLn9v4)
+
+*****
+
+####  御幸一也  
+##### 19135#       发表于 2024-7-7 20:03
+
+好吧。
+
+<img src="https://img.saraba1st.com/forum/202407/07/200300tkj11luiaikbfyzj.png" referrerpolicy="no-referrer">
+
+<strong>Ave Mujica - Symbol III _ ▽ (Official Music Video) 1-22 screenshot.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 20:03 上传
+
+<img src="https://img.saraba1st.com/forum/202407/07/200301oppg77ijijjij00e.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (52.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 20:03 上传
+
+
+*****
+
+####  rikaren  
+##### 19136#       发表于 2024-7-7 20:06
+
+<img src="https://img.saraba1st.com/forum/202407/07/200626fcivf2fboke5xos4.jpg" referrerpolicy="no-referrer">
+
+<strong>1720353961367.jpg</strong> (100.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 20:06 上传
+
+*****
+
+####  skives  
+##### 19137#       发表于 2024-7-7 20:07
+
+这mv的图设定上难道是祥子在羽丘的电脑教室自己画的吗
+

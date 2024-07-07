@@ -721,3 +721,64 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  名津流  
+##### 283#       发表于 2024-7-7 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511516&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-7-7 17:28</a>
+
+这图动画少了花物语，不过花也是外传性质
+
+按这顺序看没问题的</blockquote>
+花物语在终物语之前了，这个当然也是看了的
+
+
+*****
+
+####  名津流  
+##### 284#       发表于 2024-7-7 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511505&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-7-7 17:27</a>
+
+不是还有终和续终吗，你是怎么看出来只用看历物语的
+
+论坛助手,iPhone</blockquote>
+从左到右从上到下的顺序，所以这季是在终下和续终之前呗<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+原来这图的意思是左下角这个排在其他之后吗
+
+*****
+
+####  零壹贰叁  
+##### 285#       发表于 2024-7-7 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511600&amp;ptid=2168085" target="_blank">名津流 发表于 2024-7-7 17:42</a>
+从左到右从上到下的顺序，所以这季是在终下和续终之前呗
+
+原来这图的意思是左下角这个排在其他之后吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是这个气泡里看完再接new啊，跟着编号来
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  oi99o  
+##### 286#       发表于 2024-7-7 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511600&amp;ptid=2168085" target="_blank">名津流 发表于 2024-7-7 17:42</a>
+从左到右从上到下的顺序，所以这季是在终下和续终之前呗
+
+原来这图的意思是左下角这个排在其他之后吗 ...</blockquote>
+当然是数字标识优先吧，左下角是单独分块的而且都写了new了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  你谁  
+##### 287#       发表于 2024-7-7 17:47
+
+可以可以 希望能坚持
+

@@ -4463,3 +4463,18 @@ Q娃7月标题，上北漫画
 
 等一个加油把自己加进去 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arson=desu  
+##### 1878#       发表于 2024-7-7 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65510972&amp;ptid=2162354" target="_blank">leleq 发表于 2024-7-7 15:57</a>
+
+太太这么镇静平时也嘴里喵喵喵的该不会也是猫猫变得吧
+
+后半的还挺文艺的我还以为有什么小麦愿望有点进化呢 ...</blockquote>
+收尾很简单啊
+
+“现在动物和人类已经都是wonderful的好朋友！应该忘记过去的怨念一起携手走向未来了！”然后接全员大净化呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13699,3 +13699,11 @@ C／W曲则收录了在手游「バンドリ！ ガールズバンドパーテ�
 
 今天爱知那边应该很热，居然还有人穿鸡的黑袍，过于噶吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19090#       发表于 2024-7-7 17:45
+
+这次的海铃没有因为反光而消失不见了（）
+

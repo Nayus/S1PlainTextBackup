@@ -14818,3 +14818,58 @@ mujica动画能不能快点来，想听初华声线了<img src="https://static.s
 
 earth这首有点潮核 越写越现代了
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19195#       发表于 2024-7-7 22:59
+
+<img src="https://p.sda1.dev/18/bcb5c1a58bb03a7efbea43574156d200/image.jpg" referrerpolicy="no-referrer">
+[coffee87119](https://x.com/coffee87119/status/1809864461110636883?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  御幸一也  
+##### 19196#       发表于 2024-7-7 23:00
+
+真是長谷川 笑死
+
+<img src="https://img.saraba1st.com/forum/202407/07/230043ylqhwm6gyhbttg3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 23:00 上传
+
+*****
+
+####  SakuraのOrigami  
+##### 19197#       发表于 2024-7-7 23:01
+
+ 本帖最后由 SakuraのOrigami 于 2024-7-7 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513678&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-7 22:26</a>
+
+我看有人说这首可能也是长谷川，等开奖了一会</blockquote>
+看了
+
+『Symbol IV : Earth』
+
+作詞：Diggy-MO’
+
+作曲：長谷川大介(SUPA LOVE)、Diggy-MO'
+
+編曲：長谷川大介(SUPA LOVE)
+
+*****
+
+####  NODY  
+##### 19198#       发表于 2024-7-7 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513847&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-7 22:41</a>
+
+草，彩彩的星之意向是明星这件事真的不是中文梗吗？而且兰是“一番星”这回事好像除了茨菇很轻松就能找到 ...</blockquote>
+彩彩那个原文就是star，还是挺明显的，天文部的日菜喜欢彩彩应该也有这方面的暗示
+

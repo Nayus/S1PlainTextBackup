@@ -905,3 +905,22 @@ enami的玲爱约我黑一辈子
 伊苏8主美走了后，社内已经没有能看的2D美术了吧
 岩崎美奈子还画么要不要下次让她试试
 
+
+*****
+
+####  酷乐  
+##### 90#       发表于 2024-7-7 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65507660&amp;ptid=2189984" target="_blank">黑夜守望者 发表于 2024-7-7 02:06</a>
+
+左上确实还行，空轨原版和漫画还是小萝莉，vs 就是小美女了</blockquote>
+还有个联动玲
+
+<img src="https://img.saraba1st.com/forum/202407/07/091957ad0hm0w00upktkzm.jpg" referrerpolicy="no-referrer">
+
+<strong>玲 (2).jpg</strong> (326.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 09:19 上传
+

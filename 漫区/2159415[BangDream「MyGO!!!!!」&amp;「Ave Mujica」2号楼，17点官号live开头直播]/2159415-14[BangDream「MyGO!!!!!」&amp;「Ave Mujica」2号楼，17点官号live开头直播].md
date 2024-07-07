@@ -277,3 +277,57 @@ water的时候说大部分人不这样
 
 看了一下菜花第一集就有女女kiss，mujica能不能安排上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19268#       发表于 2024-7-8 01:28
+
+ 本帖最后由 Aendst 于 2024-7-8 01:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还是觉得她们能把fire好好完成下来就已经证明进步了
+
+多加油以后就有希望演出更难的曲目
+
+只是supalove可能不太能把每个配器的部分都写到有一定难度又优秀的水平<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+风格不拘泥于金属是大好事，但问题又回到了……supalove供曲
+
+*****
+
+####  PDQ4  
+##### 19269#       发表于 2024-7-8 01:29
+
+还没看，女女Kiss不敢贷款
+
+但是人偶剧，大量隐喻，整几个小玩偶大被同眠叠一起很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19270#       发表于 2024-7-8 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">想起神奈川之前，我還天真地擔心過火三角的LIVE可能會翻車……
+
+米澤 神。
+
+而且現在演出結束之後的關機時間也越來越短了，看來米澤和渡瀨的體力是真的有進步的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19271#       发表于 2024-7-8 01:31
+
+幼驯染小时候亲个脸很正常吧
+
+
+*****
+
+####  和睦呈现  
+##### 19272#       发表于 2024-7-8 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515429&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-8 00:50</a>
+
+亞瑟大佬太會畫了 </blockquote>
+这位老师产能和质量都好高
+

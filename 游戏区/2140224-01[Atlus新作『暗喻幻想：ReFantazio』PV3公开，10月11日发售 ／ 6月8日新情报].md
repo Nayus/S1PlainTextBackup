@@ -333,3 +333,20 @@ https://www.youtube.com/live/lC1ozzoo-mo</blockquote>
 昨天anime expo现场直播上一开始放出的一段游戏开篇剧情动画（英配 / 路易刺杀国王）
 [https://youtu.be/kcW9bDBO0n8](https://youtu.be/kcW9bDBO0n8)
 
+
+*****
+
+####  Piano-Forest  
+##### 527#         楼主| 发表于 2024-7-7 16:39
+
+原来是这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5f068af9098175d6eef7487dfa3817d7/20240707_163746.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e9d15d81b87a3d15e0a319b8c330e72c/20240707_163637.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  双刀少女  
+##### 528#       发表于 2024-7-7 16:43
+
+土的要死，动画质量也差，没救了
+

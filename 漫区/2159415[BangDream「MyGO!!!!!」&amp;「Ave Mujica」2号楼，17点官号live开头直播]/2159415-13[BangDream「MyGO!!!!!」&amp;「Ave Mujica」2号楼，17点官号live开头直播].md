@@ -13984,3 +13984,63 @@ earth会是在7.14出全曲吗？
 要有ave的應援棒了？還是能官方控場的</blockquote>
 以前好像沒出過官方控場的，本來還想帶R團的去參加，這下不得不買了
 
+
+*****
+
+####  御幸一也  
+##### 19118#       发表于 2024-7-7 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512120&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-7-7 19:05</a>
+
+以前好像沒出過官方控場的，本來還想帶R團的去參加，這下不得不買了</blockquote>
+二次元很少搞這種的吧，倒是三次元偶像很愛玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19119#       发表于 2024-7-7 19:11
+
+水live不给看，听说小剧场最后也变动了一点
+
+wsd真的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19120#       发表于 2024-7-7 19:11
+
+能被控制的荧光棒吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+听起来更酷更有邪典气息了
+
+
+*****
+
+####  御幸一也  
+##### 19121#       发表于 2024-7-7 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512166&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-7 19:11</a>
+
+能被控制的荧光棒吗
+
+听起来更酷更有邪典气息了</blockquote>
+<blockquote>つきましては、本リストバンドライト以外のサイリウム・ペンライト等は、
+
+演出の都合上、ご使用をお控えいただきますようお願い申し上げます。</blockquote>
+
+甚至還來一句，不建議使用除了這個的其他應援棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+不虔誠的教徒給我出去
+
+*****
+
+####  九陌狂游  
+##### 19122#       发表于 2024-7-7 19:17
+
+扣1演唱会现场被小祥脑控是吧
+
+*****
+
+####  滑稽Captain  
+##### 19123#       发表于 2024-7-7 19:17
+
+大概就是有些曲子的演出要搞特殊效果吧，到时看看要整什么世界观（
+

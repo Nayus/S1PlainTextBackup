@@ -635,3 +635,17 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  3353764798  
+##### 61#         楼主| 发表于 2024-7-7 12:32
+
+隔壁搬过去的投票走势也差不多啊。失去了连体之力以后，桃睦灯大幅下跌，老牌强者还是那几个。
+
+比较意外的是Nina居然会高于486，看来老婆是工作小孩是生活。
+
+大祥第一，看来带伙还是吃美强惨这一套，要是双投我也投大祥了。
+
+投投Hina，关注Hina谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

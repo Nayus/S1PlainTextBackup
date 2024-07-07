@@ -14044,3 +14044,31 @@ wsd真的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 
 大概就是有些曲子的演出要搞特殊效果吧，到时看看要整什么世界观（
 
+
+*****
+
+####  御幸一也  
+##### 19124#       发表于 2024-7-7 19:20
+
+準確說不是應援棒，而是應援手環吧，可被官方控制顏色的
+
+<img src="https://img.saraba1st.com/forum/202407/07/192027x21r1w7zuvbwlui3.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>S6b2b005f8cca43878a0ba95e9cce6c801.jpg_640x640q90.webp</strong> (41.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 19:20 上传
+
+*****
+
+####  祐天寺若麦  
+##### 19125#       发表于 2024-7-7 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511891&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-7 18:33</a>
+
+歌單和神奈川一樣，只是多了最後一首的水三角
+
+群友說小劇場也都一樣，就最後一個幕間有不同 ...</blockquote>
+最后一个幕间是一样的
+

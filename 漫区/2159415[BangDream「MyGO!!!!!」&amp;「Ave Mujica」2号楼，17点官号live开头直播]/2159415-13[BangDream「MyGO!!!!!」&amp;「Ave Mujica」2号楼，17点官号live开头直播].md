@@ -14873,3 +14873,33 @@ earth这首有点潮核 越写越现代了
 草，彩彩的星之意向是明星这件事真的不是中文梗吗？而且兰是“一番星”这回事好像除了茨菇很轻松就能找到 ...</blockquote>
 彩彩那个原文就是star，还是挺明显的，天文部的日菜喜欢彩彩应该也有这方面的暗示
 
+
+*****
+
+####  星天观测  
+##### 19199#       发表于 2024-7-7 23:04
+
+长谷川算不算成长了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 19200#       发表于 2024-7-7 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长谷川还在追我！
+
+
+*****
+
+####  PPB3008  
+##### 19201#       发表于 2024-7-7 23:11
+
+这首不是还不错嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19202#       发表于 2024-7-7 23:14
+
+什么鬼故事，鸡率先袭来的惊悚感就是长谷川的追逐战吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

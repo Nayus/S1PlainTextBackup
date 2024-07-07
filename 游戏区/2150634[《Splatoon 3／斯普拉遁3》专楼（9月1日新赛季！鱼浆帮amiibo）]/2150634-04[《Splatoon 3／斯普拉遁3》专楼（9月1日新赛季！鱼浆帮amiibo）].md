@@ -242,3 +242,11 @@ mvp吸墨机
 看了一下chocopero最新的比赛スリュー杯没认出来对面红双是谁，跟choco香槟单挑成功率差不多有70%太强了 ...</blockquote>
 巧打不过一些爆种的神经刀，但是水平一直稳定的可怕，尤其是aim，几乎不存在手感差一说，单挑赢巧可能只是当时状态比较好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maomaoying  
+##### 4797#       发表于 2024-7-7 10:20
+
+小笔刷滚出打工😡
+

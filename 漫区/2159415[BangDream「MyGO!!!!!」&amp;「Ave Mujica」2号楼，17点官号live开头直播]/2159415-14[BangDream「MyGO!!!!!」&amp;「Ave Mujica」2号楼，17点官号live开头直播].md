@@ -331,3 +331,16 @@ water的时候说大部分人不这样
 亞瑟大佬太會畫了 </blockquote>
 这位老师产能和质量都好高
 
+
+*****
+
+####  御幸一也  
+##### 19273#       发表于 2024-7-8 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515722&amp;ptid=2159415" target="_blank">和睦呈现 发表于 2024-7-8 01:32</a>
+
+这位老师产能和质量都好高</blockquote>
+其實有幾張是舊圖，只是之前沒公開<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+她還有好多未公開的舊圖存貨，期待她之後全部公開，她簡直是幼馴染組的神<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

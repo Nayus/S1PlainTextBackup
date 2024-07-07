@@ -14236,3 +14236,108 @@ tour一般只卖一场吧
 
 ……至少这个初华看着比air的正常一点
 
+
+*****
+
+####  御幸一也  
+##### 19142#       发表于 2024-7-7 20:19
+
+決戰！avemujica醜圖之巔！
+
+1. 神笨
+
+2. 火三角
+
+3. 風三角
+
+恐怖的是水三角確實看起來算還好了
+
+*****
+
+####  rikaren  
+##### 19143#       发表于 2024-7-7 20:22
+
+愚神和fire那个画风真的不是同一个人画的吗
+
+*****
+
+####  Aendst  
+##### 19144#       发表于 2024-7-7 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+一旦接受到处都是丑图的事实水这几张立绘看起来竟然有些眉清目秀
+
+*****
+
+####  祐天寺若麦  
+##### 19145#       发表于 2024-7-7 20:22
+
+没找到光
+
+<img src="https://img.saraba1st.com/forum/202407/07/202235u0up0v1uzt1svp6u.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240707202203.png</strong> (125.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 20:22 上传
+
+*****
+
+####  星天观测  
+##### 19146#       发表于 2024-7-7 20:23
+
+很多同人立绘的质量简直要把wsd约的这些吊起来抽
+
+*****
+
+####  基神的强袭自由  
+##### 19147#       发表于 2024-7-7 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512065&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-7 18:58</a>
+要有ave的應援棒了？還是能官方控場的</blockquote>
+光棒猴不都是用大闪光的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  rikaren  
+##### 19148#       发表于 2024-7-7 20:26
+
+B站号这次应该是24：00发了，希望能直接上带中文字幕而不是跟之前一样后面补。
+
+*****
+
+####  鳥栖朝  
+##### 19149#       发表于 2024-7-7 20:26
+
+<blockquote>御幸一也 发表于 2024-7-7 20:19
+決戰！avemujica醜圖之巔！
+
+1. 神笨
+
+2. 火三角
+</blockquote>
+可以多选吗？
+
+*****
+
+####  PDQ4  
+##### 19150#       发表于 2024-7-7 20:27
+
+想起来梦以一直用狼塑海铃，考虑配音结束了，感觉真动物塑的话海铃就是灰狼了
+
+等pico可以来个鸡特供动物玩偶塑<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 19151#       发表于 2024-7-7 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏消息：这次mv立绘还是很便宜
+好消息：比上次mv立绘强一点了
+byd武士道多请几次黑生日的画师来画立绘会死是吧
+

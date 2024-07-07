@@ -132,3 +132,13 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 别的改名我还能理解点，美杜莎叫歌果这个改名有点懵。是哪个版本的正式翻译么。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46498#       发表于 2024-7-8 04:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512468&amp;ptid=1712412" target="_blank">荡寇将军张嶷 发表于 2024-7-7 19:54</a>
+别的改名我还能理解点，美杜莎叫歌果这个改名有点懵。是哪个版本的正式翻译么。 ...</blockquote>
+好像是戈尔贡的音译<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

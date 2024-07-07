@@ -2391,3 +2391,16 @@ https://m.bilibili.com/space/3546712157194527</blockquote>
 
 这个月底终于久违3个月的fes live，104加入后真是肉眼可见的垃，看看月底表现吧
 
+
+*****
+
+####  Piano-Forest  
+##### 211#         楼主| 发表于 2024-7-7 11:07
+
+LA LIVE『TUBEOUT!』现场（今年BW上也由TUBEOUT负责）
+
+[https://x.com/ObscuraSoup/status/1809767705635090781](https://x.com/ObscuraSoup/status/1809767705635090781)
+
+夏色えがおで1, 2, Jump!
+<img src="https://p.sda1.dev/18/6f4dc27d829c478fcdf3b4e3fe5f798c/20240707_110341.jpg" referrerpolicy="no-referrer">
+

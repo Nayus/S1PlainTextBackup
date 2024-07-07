@@ -135,3 +135,13 @@ lmao病，开加速器让反作弊更新完就行了
 
 意思是前段时间疯狂长草放鸽子是因为要准备内容过暑假是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mr.Hopp  
+##### 5042#       发表于 2024-7-7 17:22
+
+等晚上洗完澡就打，看贴吧说突击兵能打构筑
+
+泰坦3发头黑白牛2发头，感觉没debuff的情况下比类星体好用。驱逐舰升级减15cd的话90秒就能叫下来
+

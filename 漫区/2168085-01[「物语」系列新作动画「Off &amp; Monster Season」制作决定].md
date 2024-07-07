@@ -639,3 +639,47 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
  有点忘了之前的剧情了，这集看不死鸟这个属性有点棘手啊，之前是余弦过来退治不死鸟的吧，她是想用啥方法来 ...</blockquote>
 虽然余弦是治退不死的专家，但好像拿垃圾君和月火都没辙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  名津流  
+##### 277#       发表于 2024-7-7 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65508243&amp;ptid=2168085" target="_blank">MedCoter 发表于 2024-7-7 07:25</a></blockquote>
+这排列的顺序算是官方推荐顺序吗？
+
+我记得当年动画我是差7历物语、8终物语下、9续 终物语 没看
+
+如果按图上的意思，我应该是再补一下历物语就可以接着看本季了？
+
+
+*****
+
+####  kyon312  
+##### 278#       发表于 2024-7-7 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511462&amp;ptid=2168085" target="_blank">名津流 发表于 2024-7-7 17:20</a>
+这排列的顺序算是官方推荐顺序吗？
+
+我记得当年动画我是差7历物语、8终物语下、9续 终物语 没看
+
+如果按图 ...</blockquote>
+历物语只看最后一集就行 不看都无所谓
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  oi99o  
+##### 279#       发表于 2024-7-7 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511462&amp;ptid=2168085" target="_blank">名津流 发表于 2024-7-7 17:20</a>
+这排列的顺序算是官方推荐顺序吗？
+
+我记得当年动画我是差7历物语、8终物语下、9续 终物语 没看
+
+如果按图 ...</blockquote>
+不是还有终和续终吗，你是怎么看出来只用看历物语的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

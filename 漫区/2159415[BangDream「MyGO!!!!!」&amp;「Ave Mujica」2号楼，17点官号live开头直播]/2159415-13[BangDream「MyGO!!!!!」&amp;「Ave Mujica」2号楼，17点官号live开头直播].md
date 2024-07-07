@@ -15010,3 +15010,63 @@ mygo吧？
 
 有没有可能打码曲是earth（
 
+
+*****
+
+####  PDQ4  
+##### 19211#       发表于 2024-7-8 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514856&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-7 23:47</a>
+
+现在都在猜bml那首打码曲是不是water，中华炮福利</blockquote>
+很难吧，水这首基调这么悲
+
+鸡要是大轴还好说，不然后面演出的还搞不搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种难忘今宵中间唱的美感
+
+考虑氛围估计一天fire一天air
+
+*****
+
+####  御幸一也  
+##### 19212#       发表于 2024-7-8 00:08
+
+初祥真的賣很大，已經快說膩了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/08/000922h9v5vcuxzvas89g9.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (23.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 00:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/000757itfqohzd1hdvqtbg.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240707-160418_1809981777471238336_photo.jpg</strong> (560.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 00:07 上传
+
+[https://x.com/Kanon_Takao/status/1809981777471238336](https://x.com/Kanon_Takao/status/1809981777471238336)
+
+
+*****
+
+####  NODY  
+##### 19213#       发表于 2024-7-8 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514877&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-7 23:50</a>
+
+那边是真逆天啊，symbol也跟c团扯上关系了，鸡也好狗也好，只要动了那必然跟我c团有切不开的联系，sb
+
+water ...</blockquote>
+还有说音一会是灯祥曲的呢，只能说那边骂姨姥是恋尸癖真不冤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 19214#       发表于 2024-7-8 00:11
+
+草，怎么又是经典少女灵和神明大人是灯祥曲。
+

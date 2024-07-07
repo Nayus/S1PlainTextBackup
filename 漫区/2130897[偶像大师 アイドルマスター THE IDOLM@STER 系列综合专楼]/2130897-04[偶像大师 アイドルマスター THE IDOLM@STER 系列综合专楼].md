@@ -13292,3 +13292,15 @@ td还在努力做这个养成模式，泪目，虽然程序员没能力，但就
 765难道是黑心事务所吗，为啥星耀季节里都已经经历过向着光辉的彼岸成了大明星了，弥生还要吃豆芽菜，花光 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">初代好像p到退役都没买上手机
 
+
+*****
+
+####  wfhtony  
+##### 5682#       发表于 2024-7-7 19:40
+
+ 本帖最后由 wfhtony 于 2024-7-7 19:41 编辑 
+
+抛砖引玉
+<img src="https://tc2.wfhtony.space/images/2024/07/07/89524ca1515b2ef62eacd20a80c3bfe0.png" referrerpolicy="no-referrer">
+因为咱贯彻「互联网（基本）0社交」原则，没能bingo（
+

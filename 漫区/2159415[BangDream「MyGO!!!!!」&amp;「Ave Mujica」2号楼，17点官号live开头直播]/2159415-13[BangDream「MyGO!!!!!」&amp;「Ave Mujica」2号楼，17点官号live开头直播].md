@@ -14093,3 +14093,35 @@ wsd真的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 不是，这都不卖录像的吗？</blockquote>
 tour一般只卖一场吧
 
+
+*****
+
+####  傘木希美  
+##### 19128#       发表于 2024-7-7 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我好酸啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19129#       发表于 2024-7-7 19:41
+
+明明都是2nd，有一场却不能拥有姓名<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+如果按照漏油说的爱知找到光了不给线上看，那是否证明爱知是if线的cut end，毕竟只剩下oblivionis和doloris了
+
+鸡还没找到光才是正史
+
+
+*****
+
+####  祐天寺若麦  
+##### 19130#       发表于 2024-7-7 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512317&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-7 19:34</a>
+
+我看日本人repo是有不一樣的，神奈川沒找到光，愛知找到光了</blockquote>
+没有的，你看她们发的推，台词跟上一场一样的
+

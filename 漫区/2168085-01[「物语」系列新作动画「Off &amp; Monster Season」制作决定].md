@@ -560,3 +560,13 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 
 多说点挺好的，不然新观众要一头雾水的吧··为啥火怜能复活什么的<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雨宿绘空事  
+##### 269#       发表于 2024-7-7 14:31
+
+好好好小号妹妹的新造型太可爱
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

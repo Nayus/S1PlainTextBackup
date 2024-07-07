@@ -13926,3 +13926,61 @@ earth会是在7.14出全曲吗？
 
 去爱知场的观众爽了 七夕限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19113#       发表于 2024-7-7 18:58
+
+要有ave的應援棒了？還是能官方控場的<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/07/185801uitniy7efrepl4lf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:58 上传
+
+*****
+
+####  yifan8848  
+##### 19114#       发表于 2024-7-7 19:01
+
+沒有掛單獨，要對邦了嗎
+
+<img src="https://img.saraba1st.com/forum/202407/07/190011mj2q7ijm7o12anqy.png" referrerpolicy="no-referrer">
+
+<strong>CD.png</strong> (34.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 19:00 上传
+
+
+*****
+
+####  NODY  
+##### 19115#       发表于 2024-7-7 19:04
+
+大概率是之前猜的十周年全企划13th，ppp新单和狗剧场版总集篇估计也会塞
+
+*****
+
+####  御幸一也  
+##### 19116#       发表于 2024-7-7 19:05
+
+如果按照之前的猜測，5月應該會有企劃10週年紀念的LIVE，連開3天對邦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+但是PPP那邊就是單獨……不太懂
+
+*****
+
+####  yifan8848  
+##### 19117#       发表于 2024-7-7 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512065&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-7 18:58</a>
+
+要有ave的應援棒了？還是能官方控場的</blockquote>
+以前好像沒出過官方控場的，本來還想帶R團的去參加，這下不得不買了
+

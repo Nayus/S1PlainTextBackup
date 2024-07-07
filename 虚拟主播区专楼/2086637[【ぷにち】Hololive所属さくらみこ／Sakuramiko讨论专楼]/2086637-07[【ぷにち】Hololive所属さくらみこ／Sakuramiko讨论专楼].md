@@ -3249,3 +3249,21 @@ HP好像很懂的样子，整了这么多茶番
 
 没有联动限定周边，没有联动限定机型，真的就单纯的带货直播而已啊
 
+
+*****
+
+####  holoan  
+##### 9168#         楼主| 发表于 2024-7-7 18:58
+
+<img src="https://img.saraba1st.com/forum/202407/07/185726zl6oxjfwcxxjpppw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-7 18:57 上传
+
+限定5台的卖光了可以理解
+
+这种明摆着清库存品都能卖100件是真的观众都是傻子钱多吗
+

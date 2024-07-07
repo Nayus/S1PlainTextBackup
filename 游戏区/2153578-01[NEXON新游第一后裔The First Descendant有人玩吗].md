@@ -850,3 +850,16 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  emmerMK2  
+##### 88#       发表于 2024-7-7 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65510561&amp;ptid=2153578" target="_blank">Zurlg 发表于 2024-7-7 14:38</a>
+
+玩了38小时了，肝啊，内容重复啊，这都不算事
+
+毕竟玩这类刷宝游戏只不过是看东西听东西时，手边有个能折腾 ...</blockquote>
+我也是在白夜峡谷被打得满头包，兔子带着血防盾卡还是各种秒，对面全是锁头挂
+

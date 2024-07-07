@@ -4391,3 +4391,22 @@ Q娃7月标题，上北漫画
 
 还得是我<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1872#       发表于 2024-7-7 15:05
+
+ 本帖最后由 maoyou 于 2024-7-7 15:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65510479&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-7-7 14:22</a>
+战斗指望不了笨狗一点
+
+还得是我</blockquote>
+入队前一个“恁瞅啥”打得噶路噶路们整个动物镇乱窜，无限扩大mayu家的地盘，充分体现能动手不逼逼的形象。
+
+从身世上来讲还是被麻油从雪地里捡的，可以说是纯正的东百血统了。
+                                                《我的动物镇带哥》
+                                                         某匿名闪亮动物注
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

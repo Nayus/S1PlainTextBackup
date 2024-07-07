@@ -234,3 +234,46 @@ water的时候说大部分人不这样
 
 有点想不到最后一首会走什么路线
 
+
+*****
+
+####  PDQ4  
+##### 19263#       发表于 2024-7-8 01:16
+
+还有4天等一手7.11
+
+会赢的.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19264#       发表于 2024-7-8 01:18
+
+是不同的风格我就可以接受，好不好听看个人偏好
+
+鸡这5个人肯练又能一直进步，就该多出点不同的风格多做尝试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19265#       发表于 2024-7-8 01:24
+
+还没到正式宣传期呢，就该使劲上压力，趁着年轻多练<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19266#       发表于 2024-7-8 01:24
+
+說真的如果5首全是金屬那才是絕望，現在4首每首都不一樣的風格，這點上來說我覺得可以誇誇武士道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是連續3個醜圖MV武士道你還是該死啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19267#       发表于 2024-7-8 01:25
+
+看了一下菜花第一集就有女女kiss，mujica能不能安排上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

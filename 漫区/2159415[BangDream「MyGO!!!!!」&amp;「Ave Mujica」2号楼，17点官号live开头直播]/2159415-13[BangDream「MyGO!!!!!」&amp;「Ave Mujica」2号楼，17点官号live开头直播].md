@@ -14072,3 +14072,24 @@ wsd真的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" r
 群友說小劇場也都一樣，就最後一個幕間有不同 ...</blockquote>
 最后一个幕间是一样的
 
+
+*****
+
+####  御幸一也  
+##### 19126#       发表于 2024-7-7 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512239&amp;ptid=2159415" target="_blank">祐天寺若麦 发表于 2024-7-7 19:23</a>
+
+最后一个幕间是一样的</blockquote>
+我看日本人repo是有不一樣的，神奈川沒找到光，愛知找到光了
+
+*****
+
+####  紫吹兰  
+##### 19127#         楼主| 发表于 2024-7-7 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511995&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-7 18:50</a>
+
+不是，这都不卖录像的吗？</blockquote>
+tour一般只卖一场吧
+

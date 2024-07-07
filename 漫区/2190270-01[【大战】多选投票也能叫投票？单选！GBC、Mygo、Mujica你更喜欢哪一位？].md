@@ -625,3 +625,13 @@ Stage1st 2024 General Election<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  CCauchy  
+##### 60#       发表于 2024-7-7 11:37
+
+草了，还想着只能投一个那当然是颜值巅峰木头人了，看回帖才想起还有486<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

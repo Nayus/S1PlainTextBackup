@@ -125,3 +125,13 @@ lmao病，开加速器让反作弊更新完就行了
 
 现在这巡逻队机制根本不给2个人清完的机会，感觉只有4人能推回去。
 
+
+*****
+
+####  rainknine  
+##### 5041#       发表于 2024-7-7 17:10
+
+突击队四连发筒子能用了
+
+意思是前段时间疯狂长草放鸽子是因为要准备内容过暑假是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

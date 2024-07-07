@@ -14341,3 +14341,43 @@ B站号这次应该是24：00发了，希望能直接上带中文字幕而不是
 好消息：比上次mv立绘强一点了
 byd武士道多请几次黑生日的画师来画立绘会死是吧
 
+
+*****
+
+####  九陌狂游  
+##### 19152#       发表于 2024-7-7 20:30
+
+审美已经被上次的弓形虫和端成山的朱元璋qj过了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 19153#       发表于 2024-7-7 20:30
+
+为什么3rd的logo不太一样，是什么分歧路线吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19154#       发表于 2024-7-7 20:33
+
+wsd：便宜产量大的鬼图亲妈和贵得只能偶尔画一张的亲妈，自己选吧
+
+*****
+
+####  祐天寺若麦  
+##### 19155#       发表于 2024-7-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65512744&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-7-7 20:30</a>
+
+为什么3rd的logo不太一样，是什么分歧路线吗</blockquote>
+星光，贤者之石
+
+
+*****
+
+####  PDQ4  
+##### 19156#       发表于 2024-7-7 20:34
+
+3rd肯定是新主题了，不知道新小剧场怎么续写，有连贯性感觉以后都是小川包了
+

@@ -3267,3 +3267,16 @@ HP好像很懂的样子，整了这么多茶番
 
 这种明摆着清库存品都能卖100件是真的观众都是傻子钱多吗
 
+
+*****
+
+####  rs5621  
+##### 9169#       发表于 2024-7-7 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511646&amp;ptid=2086637" target="_blank">holoan 发表于 2024-7-7 17:51</a>
+
+数量限定价格有点诚意了
+
+什么茶番，促销海报改改改，</blockquote>
+贴牌清库存
+

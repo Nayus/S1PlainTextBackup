@@ -974,3 +974,13 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 后面全失忆了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰空的花束  
+##### 306#       发表于 2024-7-8 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514962&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-7 23:58</a>
+所以蛞蝓是因为被养大成了真怪异？感觉捏新怪异的前提条件就是先在身体里养一个 ...</blockquote>
+这个故事里的怪异的本质，都是唯心的，比如蛞蝓豆腐其实是“圆滑处事的人生观”，退治蛇神不是简单的靠豆腐本身重要的是让抚子接受这种圆滑的生活方式。愚物语这个蛞蝓真的跑出来搞破坏，更重要的原因是抚子有创造怪异的天赋，类似阴阳师创造式神。至于说大部分怪异都没有实体，明明斧乃木就有啊（
+

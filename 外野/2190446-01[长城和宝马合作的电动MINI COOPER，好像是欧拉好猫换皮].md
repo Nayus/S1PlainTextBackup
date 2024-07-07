@@ -430,3 +430,14 @@ smart这俩上市比极氪x早了一年不止<img src="https://static.saraba1st.
 
 那么这个电动的有敞篷版嘛》？
 
+
+*****
+
+####  宅男的爱  
+##### 44#       发表于 2024-7-8 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515312&amp;ptid=2190446" target="_blank">树洞用的小号 发表于 2024-7-8 00:37</a>
+
+那么这个电动的有敞篷版嘛》？</blockquote>
+首批没有
+

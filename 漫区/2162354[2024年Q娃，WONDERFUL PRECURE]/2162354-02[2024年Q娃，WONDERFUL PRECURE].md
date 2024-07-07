@@ -4537,3 +4537,18 @@ Q娃7月标题，上北漫画
 
 我有点小公主ptsd，可别中间来个三角关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 1883#       发表于 2024-7-8 00:22
+
+我有点小公主ptsd，可别中间来个三角关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  舞野咲  
+##### 1884#       发表于 2024-7-8 07:41
+
+今年这立意要怎么写啊。。。日本狼和人类是有真正的核心利益冲突的，说句物竞天择你死我活不过分，前面的抱抱让动物把坏心情丢走就完成净化的逻辑根本行不通吧，跟狼说原谅人类？说人类错了应该和谐共处？都会很雷人
+

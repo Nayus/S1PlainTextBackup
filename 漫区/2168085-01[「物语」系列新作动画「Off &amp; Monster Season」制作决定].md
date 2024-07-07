@@ -540,3 +540,23 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Sliurus  
+##### 267#       发表于 2024-7-7 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65507521&amp;ptid=2168085" target="_blank">cabbagenova 发表于 2024-7-7 01:37</a>
+
+我现在唯一的问题就是，怎么一开始就是三？
+
+质量没得说啊，是那个味。</blockquote>
+因为月火·复原是愚物语第三个故事
+
+*****
+
+####  57042711  
+##### 268#       发表于 2024-7-7 14:24
+
+多说点挺好的，不然新观众要一头雾水的吧··为啥火怜能复活什么的<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

@@ -4381,3 +4381,13 @@ Q娃7月标题，上北漫画
 
 怎么每次战斗都是猫狗其中一组活跃，另一组全程看戏啊，前面还可以说是因为猫组刚出场，所以要让猫组多表现表现，但是现在出场好几集而且已经联手了也还是这样。另外猫组目前都是小雪玩玩具借力量吧，什么时候让真由玩玩啊
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1871#       发表于 2024-7-7 14:22
+
+战斗指望不了笨狗一点<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+还得是我<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

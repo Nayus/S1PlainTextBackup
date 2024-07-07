@@ -619,3 +619,13 @@ ED实在不太行，本来看正片的时候想着这质量就算yoasobi再怎�
 有点忘了之前的剧情了，这集看不死鸟这个属性有点棘手啊，之前是余弦过来退治不死鸟的吧，她是想用啥方法来 ...</blockquote>
 原作好像一直没详细说过要怎么才能退治不死鸟
 
+
+*****
+
+####  remedios010000  
+##### 275#       发表于 2024-7-7 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511070&amp;ptid=2168085" target="_blank">鸣神 发表于 2024-7-7 16:14</a>
+有点忘了之前的剧情了，这集看不死鸟这个属性有点棘手啊，之前是余弦过来退治不死鸟的吧，她是想用啥方法来 ...</blockquote>
+不管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

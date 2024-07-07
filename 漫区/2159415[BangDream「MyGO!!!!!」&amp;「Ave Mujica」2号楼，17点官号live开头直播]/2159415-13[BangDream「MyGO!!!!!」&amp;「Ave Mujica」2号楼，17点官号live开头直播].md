@@ -14463,3 +14463,21 @@ nyaa上earth放流了
 
 卧槽土出了，wsd腹泻了？
 
+
+*****
+
+####  PDQ4  
+##### 19161#       发表于 2024-7-7 21:32
+
+不懂音乐，这是什么风格，总之四首换了四个风格是确定的，期待第五首<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这下op什么样难以预料了
+
+*****
+
+####  御幸一也  
+##### 19162#       发表于 2024-7-7 21:34
+
+earth聽起來曲風好流行啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+這下不用擔心ave唱不了動畫OP了
+

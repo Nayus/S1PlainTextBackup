@@ -3332,3 +3332,33 @@ mio虾<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 
 竟然还有MV能看，不错
 
+
+*****
+
+####  rs5621  
+##### 9176#       发表于 2024-7-7 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可视漫画怎么还是35专用bgm
+
+*****
+
+####  rs5621  
+##### 9177#       发表于 2024-7-7 22:20
+
+有一说一，观感还可以
+
+
+*****
+
+####  渡鸦骑士  
+##### 9178#       发表于 2024-7-7 22:24
+
+因为原梗就是35主场吧，只是被用到了火建上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 9179#       发表于 2024-7-7 22:25
+
+被加湿器梗尬到。。。。。。
+

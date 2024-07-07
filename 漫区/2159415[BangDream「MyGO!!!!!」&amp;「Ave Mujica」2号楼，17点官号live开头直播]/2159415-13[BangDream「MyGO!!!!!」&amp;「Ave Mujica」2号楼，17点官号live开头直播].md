@@ -14612,3 +14612,105 @@ mujica不会真是参考了初设ppp的剧情吧，本身祥子的部分就有�
 
 缪水大战不愿再看<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kivz  
+##### 19176#       发表于 2024-7-7 22:14
+
+同听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+多换换风格是挺好的只要wsd老登们最后别选个拉的方向走下去<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 19177#       发表于 2024-7-7 22:16
+
+这来一个“星之鼓动”开始扑朔迷离了起来
+
+*****
+
+####  PDQ4  
+##### 19178#       发表于 2024-7-7 22:17
+
+拉不拉纯粹看作曲吧，wsd这个资源实在是难以恭维，能不能多拉点外援<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19179#       发表于 2024-7-7 22:17
+
+属于初华的星星以后也会来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 19180#       发表于 2024-7-7 22:18
+
+初华的星星不就是祥吗
+
+*****
+
+####  星天观测  
+##### 19181#       发表于 2024-7-7 22:19
+
+我是说类似于layer的北极星那样的星之意向<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于祥子，虽然我推初祥但是再看看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 19182#       发表于 2024-7-7 22:21
+
+比较详细的星之意向可能不会有了，别说小白，彩彩和兰好像也没明确的星之意向。
+
+*****
+
+####  rikaren  
+##### 19183#       发表于 2024-7-7 22:23
+
+紡いでゆくの
+
+かつて この地が幾多の文化を慈しんだように
+
+捧げているの
+
+紅い花が咲くとき入り口は開かれるわ 
+
+come into me 次の人生をああ嗚呼 形どるの 
+
+そうよ いつか飛び立つときを知るでしょう
+
+差し出されたサフラン色の翼
+
+ いまはそこに光を纏って
+
+you are.. you are.. you are my reason to be
+
+you're my only 自由になって
+
+還ってゆくの
+
+下腹部に耳を当て 星の鼓動を数えながら
+
+come into me and again さあ 礎をもてば描けるわ
+
+そうよ そのときのため
+
+追憶に蘇る アイリスの恵み 雨
+
+広がる緑 赤土の丘に青い弓が張り 大地に美しいスカー フが架かる
+
+差し出されたサフラン色の翼
+
+いまはそこに光を纏って
+
+you are.. you are.. you are my reason to be you're my only.. you're my only.. you are my reason
+
+you are my reason
+
+从白鹭佬那儿偷的。
+

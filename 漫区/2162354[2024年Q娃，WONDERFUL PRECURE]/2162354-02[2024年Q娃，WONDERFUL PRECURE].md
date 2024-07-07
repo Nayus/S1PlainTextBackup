@@ -4237,3 +4237,23 @@ Q娃7月标题，上北漫画
 
 这恋爱线写的真有模有样吧
 
+
+*****
+
+####  jaewoongh_  
+##### 1860#       发表于 2024-7-7 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65508497&amp;ptid=2162354" target="_blank">石狮鬼 发表于 2024-7-7 08:48</a>
+
+这恋爱线写的真有模有样吧</blockquote>
+折腾了半年才第一次付诸了实际行动，道阻且长
+
+*****
+
+####  Arson=desu  
+##### 1861#       发表于 2024-7-7 09:03
+
+ 本帖最后由 Arson=desu 于 2024-7-7 09:05 编辑 
+
+我还是有点搞不懂兔子是来干嘛的，这话让小雪专门提了一句，可他要真是追加犯得着都演了小一半了连个跟悟君一起混个脸熟的机会都不给吗，抱只兔子又不影响嘴上解说，而且站在剧外角度我也不觉得系列第二正编男q会到现在一点情报都没有<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

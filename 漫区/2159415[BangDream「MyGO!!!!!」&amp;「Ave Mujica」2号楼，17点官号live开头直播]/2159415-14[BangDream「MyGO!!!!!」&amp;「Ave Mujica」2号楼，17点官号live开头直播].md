@@ -142,3 +142,95 @@
 
 泥楼都是骂粉丝行为，从没上升到正主，这么有意见别是其中一员啊
 
+
+*****
+
+####  Aendst  
+##### 19255#       发表于 2024-7-8 01:07
+
+不说别的，mygo和mujica的原创曲就算难听那也是耗费心血的劳动成果
+
+声优作为最需要理解角色的人也倾注了自己的感情
+
+胡言乱语的擅自曲解连最基本的对人尊重都没做到，还一个比一个讲话大声，有事没事明里暗里踩其他角色一脚，完美诠释一粉顶十黑
+
+如果真的喜欢角色喜欢这个企划，那应该先去抵制这些人才对
+
+*****
+
+####  御幸一也  
+##### 19256#       发表于 2024-7-8 01:08
+
+樓友是不是在趁機diss長谷川啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 19257#       发表于 2024-7-8 01:08
+
+不如來猜大金毛在歌詞裡塞了多少私貨
+
+"躺在肚子上聽星之鼓動"，這感覺就是小時候在海島上的回憶<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19258#       发表于 2024-7-8 01:09
+
+铁暗恋的时候说二创自由
+
+怀孕论的时候说只是假药
+
+败犬代餐论的时候说图一乐
+
+神蠢拉灯箱的时候说萌萌人
+
+鸡没东西的时候说未来可期
+
+water的时候说大部分人不这样
+
+（仅涉及部分鸡被拉踩）
+
+还有更多什么对邦失败捶地痛哭之类的数不胜数
+
+鸡粉已经看够多，什么路人没恶意早就不会被骗了，面对抽象行为骂就骂，堵嘴一两次忍了，一直闭嘴别人真以为你没意见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19259#       发表于 2024-7-8 01:09
+
+怎麼不是快進到這個月的滑坡罵武士道呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+媽的我的ave mujica小廣播呢？憑什麼沒有<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  相坂君  
+##### 19260#       发表于 2024-7-8 01:10
+
+无奖竞猜，长谷川会不会再带着一首袭来<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19261#       发表于 2024-7-8 01:10
+
+因为周四还有邦tv所以我还在期待能不能公布点新东西不然第五首出完就要饿死了
+
+*****
+
+####  Aendst  
+##### 19262#       发表于 2024-7-8 01:12
+
+ 本帖最后由 Aendst 于 2024-7-8 01:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五首公开是八月，九月肉眼可见的没任何新东西，还是做好心理准备比较好
+
+长谷川都写四首了，肯定会继续写下去吧
+
+说实话偏流行一点的他确实还可以，不愧是擅长的领域，所以还是要看最后一首是什么风格
+
+有点想不到最后一首会走什么路线
+

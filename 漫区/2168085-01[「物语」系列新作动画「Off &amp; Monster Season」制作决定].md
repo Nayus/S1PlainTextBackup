@@ -1011,3 +1011,18 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 感觉分镜上少了很多水平机位 终物语之类的就很爱用来着
 
+
+*****
+
+####  Vneeto  
+##### 310#       发表于 2024-7-8 11:37
+
+垃圾君（神谷）不在了，说废话（解说兼旁白）的任务就传递到斧乃木（早见）身上了，毕竟吃了冰淇凌的恩惠的（笑）
+
+*****
+
+####  ylssb10438  
+##### 311#       发表于 2024-7-8 11:39
+
+除了伤物语的剧情，全忘光了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

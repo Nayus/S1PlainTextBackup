@@ -2451,3 +2451,14 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 豹豹想什么呢  你拿混合礼装和纯攻击礼装比？  3oc也就多20%攻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是一个是卡池礼装一个是活动送你的满破礼装啊
 
+
+*****
+
+####  alucardcz  
+##### 13021#       发表于 2024-7-8 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519779&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-8 13:45</a>
+
+可是一个是卡池礼装一个是活动送你的满破礼装啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相扑全攻 15%攻 魔性混合 20%攻 你自己算算被
+

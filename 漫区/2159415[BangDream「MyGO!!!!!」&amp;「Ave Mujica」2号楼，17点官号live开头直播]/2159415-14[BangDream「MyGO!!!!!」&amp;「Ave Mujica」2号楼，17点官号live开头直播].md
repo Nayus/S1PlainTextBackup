@@ -697,3 +697,179 @@ Earth是小睦头的主题曲吗？
 
 Earth这吉他riff让我一秒钟耳熟到蘑菇帝国的退屈しのぎ，还以为曲风要走盯鞋把我高兴的，后面怎么又前卫金属核起来了
 
+
+*****
+
+####  御幸一也  
+##### 19304#       发表于 2024-7-8 12:41
+
+李子這幾張好會拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/08/124140l42l5l4ded48l3lp.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (21.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/124118ibd3tii3djf2fdff.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240708-043941_1810171876771348843_photo-0.jpg</strong> (146.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/124120p8s0uq4rlzsqq4zs.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240708-043941_1810171876771348843_photo-1.jpg</strong> (362.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/124121tq8c88nuzh1iq1zn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240708-043941_1810171876771348843_photo-2.jpg</strong> (194.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/124123nzjw7t8f7jkhu187.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240708-043941_1810171876771348843_photo-3.jpg</strong> (714.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 12:41 上传
+
+[https://x.com/sasakirico/status/1810171876771348843](https://x.com/sasakirico/status/1810171876771348843)
+
+*****
+
+####  rikaren  
+##### 19305#       发表于 2024-7-8 12:43
+
+aether／light／spirit会有可能走空灵的赞美诗风格吗？先期待一下。
+
+*****
+
+####  御幸一也  
+##### 19306#       发表于 2024-7-8 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519153&amp;ptid=2159415" target="_blank">hitori酱 发表于 2024-7-8 12:33</a>
+
+Earth是小睦头的主题曲吗？</blockquote>
+第二首一出來，角色曲說就已經破產了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 所以不是
+
+*****
+
+####  -LYRE-  
+##### 19307#       发表于 2024-7-8 13:07
+
+ 本帖最后由 -LYRE- 于 2024-7-8 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65516406&amp;ptid=2159415" target="_blank">好想看Mujica啊 发表于 2024-7-8 08:11</a>
+如果只是磕灯祥，其他灯的cp不碰，一心想着灯祥复合，我对这种人可以理解祝福。
+
+但有些人不好说，只是想用 ...</blockquote>
+不用这么委婉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有一堆支持灯all吹着怀孕论代餐论踩着姐妹论，惦记着把初祥睦祥喵祥都垫给灯箱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vigada  
+##### 19308#       发表于 2024-7-8 13:14
+
+新的元素迷你专怎么还有数量限定生产盘啊，这个有没有以前邦邦类似的版本做参考啊？
+
+<img src="https://img.saraba1st.com/forum/202407/08/131408waon8uzolazlo0qu.jpg" referrerpolicy="no-referrer">
+
+<strong>image_editor_1720370616236.jpg</strong> (142.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 13:14 上传
+
+*****
+
+####  笋干爆炸碱  
+##### 19309#       发表于 2024-7-8 13:27
+
+关于视觉图中倒位的两个意向：鼹鼠和鸡。稍微有点想法。
+
+<img src="https://img.saraba1st.com/forum/202407/08/132223rp067ssn6poyexx7.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240708132200.png</strong> (39.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 13:22 上传
+
+查到了太陽を射るモグラ这个故事，属于射日神话的变体，鼹鼠把箭射向太阳，结果被过于明亮的光刺瞎了双眼，从此只能生活在地下。
+
+鸡，倒吊人的意向前面漏油有提过了，但为什么是鸡，提个猜想，鸡的异名-時告げ鳥，提示了早上的到来，象征白天。逆位的鸡是不是可以说是永夜的象征。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+这里有射日神话，提示时间的逆位鸡（暂定），月亮，星星，蝙蝠。
+
+那么羽毛会和伊卡洛斯的坠落有关吗？过于靠近太阳翅膀被融化的伊卡洛斯，他在希腊神话是跟着他的父亲一起出逃克里特岛的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 19310#       发表于 2024-7-8 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519621&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-7-8 13:27</a>
+
+关于视觉图中倒位的两个意向：鼹鼠和鸡。稍微有点想法。
+
+查到了太陽を射るモグラ这个故事，属于射日神话的 ...</blockquote>
+樓友好會<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 19311#       发表于 2024-7-8 13:56
+
+虽然tv把ccc的权重给的很高，但终究是个剧情背景团，想凌驾到整个企划头上是不是太那啥了，企划又不是只有tv剧情<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+当然wsd执意要拿c团恰米搞多头恰那我也没话说<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19312#       发表于 2024-7-8 14:04
+
+米澤已開機<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/08/140429rsljrjw3xw237xrl.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (29.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 14:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/140412umwly1e1knny2nn6.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240708-060226_1810192700668534998_photo.jpg</strong> (263.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 14:04 上传
+
+[https://x.com/AkaneY_banu/status/1810192700668534998](https://x.com/AkaneY_banu/status/1810192700668534998)
+

@@ -8,3 +8,24 @@
 
 —— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  liliguo1  
+##### 86#       发表于 2024-7-8 13:26
+
+这牌效怎么看都是要把黑魔女送进去，还是看看剧情吧
+
+这部分好像还是白森的后续？还在回忆杀
+
+
+*****
+
+####  战术核辣条  
+##### 87#         楼主| 发表于 2024-7-8 13:33
+
+很难从蛇眼倒开，强归强还是有点业
+明天必有更大的
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

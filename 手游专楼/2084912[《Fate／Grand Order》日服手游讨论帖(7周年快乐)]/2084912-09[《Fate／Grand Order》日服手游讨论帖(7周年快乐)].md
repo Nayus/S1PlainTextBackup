@@ -2429,3 +2429,14 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草十郎用魔性菩薩的宝具伤害竟然比相扑要低....怎么回事
 
+
+*****
+
+####  alucardcz  
+##### 13019#       发表于 2024-7-8 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519530&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-8 13:15</a>
+
+草十郎用魔性菩薩的宝具伤害竟然比相扑要低....怎么回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹豹想什么呢  你拿混合礼装和纯攻击礼装比？  3oc也就多20%攻
+

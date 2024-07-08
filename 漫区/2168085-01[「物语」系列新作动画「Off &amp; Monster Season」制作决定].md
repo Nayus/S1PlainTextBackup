@@ -1026,3 +1026,11 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 除了伤物语的剧情，全忘光了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  千叶铁矢  
+##### 312#       发表于 2024-7-8 11:50
+
+我都忘了斧乃木最后放垃圾家里，这时垃圾在上大学吗？
+

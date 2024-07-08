@@ -580,3 +580,120 @@ water的时候说大部分人不这样
 
 有时候觉得漏油如果是考古类工作者一定能为祖国发展做出巨大贡献<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19294#       发表于 2024-7-8 10:21
+
+整理一下新视觉图从上到下可能存在的背景内容
+
+上部
+
+1.疑似天琴座的六颗星
+
+2.新月
+
+下部
+
+1.疑似光秃的树枝树干
+
+2.五把红色座椅
+
+3.三根羽毛
+
+4.疑似旋转木马和睦的小型人偶
+
+5.疑似11个蜡笔画风格的玩偶
+
+全体
+
+1.mujica五人
+
+2.五只蝙蝠
+
+*****
+
+####  rikaren  
+##### 19295#       发表于 2024-7-8 10:26
+
+<img src="https://img.saraba1st.com/forum/202407/08/102607cw50sskzimrskhk0.png" referrerpolicy="no-referrer">
+
+<strong>1720367620984.png</strong> (196.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 10:26 上传
+
+英文歌词好像有点过于重了
+
+*****
+
+####  御幸一也  
+##### 19296#       发表于 2024-7-8 11:04
+
+這翻譯槽點有點太多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  [皆神孝介]  
+##### 19297#       发表于 2024-7-8 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515682&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-8 01:25</a>
+
+看了一下菜花第一集就有女女kiss，mujica能不能安排上啊</blockquote>
+正式动画，手能多握几秒就算成功<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19298#       发表于 2024-7-8 11:32
+
+其实我个人感觉吧，earth的歌词对大地的描写带了一点孕育的味道，所以甚至还有人觉得歌词有点颜色<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过孕育本身是一个正面的词，结合上歌词里不同颜色的物体描写，确实有了一些生机的感觉
+
+套个某mmo的类似情况来说“汇集了许多元素的空无大地不再是白茫茫一片，开始生机盎然”
+
+*****
+
+####  PDQ4  
+##### 19299#       发表于 2024-7-8 12:06
+
+鸡的歌词是这样的，从黑生开始就搞颜色
+
+*****
+
+####  第七軍伐戎処  
+##### 19300#       发表于 2024-7-8 12:20
+
+<img src="https://p.sda1.dev/18/b118aa845d724949e71f2a90036d4162/image.jpg" referrerpolicy="no-referrer">
+[shibainu_illust](https://x.com/shibainu_illust/status/1809910571887927386?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  第七軍伐戎処  
+##### 19301#       发表于 2024-7-8 12:22
+
+<img src="https://p.sda1.dev/18/6621a074fd77d6ffcd1ac6e13213aad8/image.jpg" referrerpolicy="no-referrer">
+[ASKELADD6713](https://x.com/ASKELADD6713/status/1809936267528052987?s=19)
+暗黑木箱
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  hitori酱  
+##### 19302#       发表于 2024-7-8 12:33
+
+Earth是小睦头的主题曲吗？
+
+*****
+
+####  hitori酱  
+##### 19303#       发表于 2024-7-8 12:35
+
+Earth这吉他riff让我一秒钟耳熟到蘑菇帝国的退屈しのぎ，还以为曲风要走盯鞋把我高兴的，后面怎么又前卫金属核起来了
+

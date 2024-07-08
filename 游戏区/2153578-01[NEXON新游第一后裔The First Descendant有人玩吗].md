@@ -958,3 +958,16 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
 杀怪回护盾的mod有入手途径了吗？资料里居然是空的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  genki  
+##### 99#       发表于 2024-7-8 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65515848&amp;ptid=2153578" target="_blank">机翻猫 发表于 2024-7-8 02:09</a>
+
+这游戏怪讲究的，居然给杰里米这傻逼做了老长一段打斗播片，还挺好看
+
+反而是开局的那段拉跨得一比 ...</blockquote>
+没有明确演出的死掉（比如切掉脑袋）加从高出丢下水，这是用烂了的以后还会回来的梗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

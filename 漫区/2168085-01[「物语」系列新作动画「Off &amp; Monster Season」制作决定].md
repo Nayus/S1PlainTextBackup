@@ -1184,3 +1184,16 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 
 这要命的谐音梗！
 
+
+*****
+
+####  BigDaddyN0tail  
+##### 326#       发表于 2024-7-9 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519943&amp;ptid=2168085" target="_blank">fshzx 发表于 2024-7-8 14:04</a>
+
+十分精彩的第一话，埋了太多梗了，配合弹幕看更佳
+
+后面有短片一段月火酱跳白金disco 画面，太皮了 ...</blockquote>
+求教哪个平台有弹幕版的可以看
+

@@ -951,3 +951,15 @@ HACCAN，尼法的单子还画过3dr封面，晓轨主角人设
 
 唯独闪2晓轨一股异味，除了钱没给够也找不到别的原因了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  断翼  
+##### 93#       发表于 2024-7-8 09:05
+
+<blockquote>Sylpheed 发表于 2024-7-7 13:46
+HACCAN，尼法的单子还画过3dr封面，晓轨主角人设
+
+当主美的重启mana系列，外包的FEH的女王近期风格都挺好 ...</blockquote>
+应该是交草图了，闪2那上色完全不是他当时的风格
+

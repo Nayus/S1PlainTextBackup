@@ -1260,3 +1260,48 @@ tymm当初就给我整无语了，羊洁可以努努力稳定有现在音宝的�
 
 4个吗，谁在尽力，大鼓队员吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 19354#       发表于 2024-7-9 00:58
+
+狗那五个人只能说八字对不上，二偶企划那么多整不仲营业的都没狗团这么僵硬，除非换人否则没救
+
+*****
+
+####  DarthAka  
+##### 19355#       发表于 2024-7-9 01:01
+
+<blockquote>星天观测 发表于 2024-7-9 00:57
+4个吗，谁在尽力，大鼓队员吗</blockquote>
+林小姐现在鼓还在打简谱，配音水平和高中的时候五五开
+
+爱音本人——把从英伦逃兵换成艾回退货
+
+
+*****
+
+####  星天观测  
+##### 19356#       发表于 2024-7-9 01:02
+
+提个假设
+
+假设平行世界里新一代邦企划并不是现在的鸡狗，而是c团和另一个if团
+
+三次元c团的氛围会比现在的狗好么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（纯好奇非引战，有问题我就编辑）
+
+*****
+
+####  星天观测  
+##### 19357#       发表于 2024-7-9 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65525685&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-7-9 01:01</a>
+
+林小姐现在鼓还在打简谱，配音水平和高中的时候五五开
+
+爱音本人——把从英伦逃兵换成艾回退货 ...</blockquote>
+所以尽力的原来是蜜柑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

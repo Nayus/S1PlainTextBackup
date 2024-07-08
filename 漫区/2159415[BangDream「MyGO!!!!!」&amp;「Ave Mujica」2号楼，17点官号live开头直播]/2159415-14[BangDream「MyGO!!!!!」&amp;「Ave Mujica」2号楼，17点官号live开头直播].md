@@ -1305,3 +1305,15 @@ tymm当初就给我整无语了，羊洁可以努努力稳定有现在音宝的�
 爱音本人——把从英伦逃兵换成艾回退货 ...</blockquote>
 所以尽力的原来是蜜柑吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 19358#       发表于 2024-7-9 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd当初组mygo时候没想过塞个职业哥进去，顶多就想着青木带一下，没想到青木现在也拉跨看（但是猪咪真的可爱，所以不计较，别长期爽食又肥了就行）
+鼓子还有拉拉片场要跑，本身也不是米泽茜那样的职业出身，也没太大办法，起码人够敬业
+凛嘛……有这人？属于是赛后分锅第一时间想不起来的
+羊姐不忘词就算成功
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁都没有想到最稳定的是蜜柑，草
+

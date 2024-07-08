@@ -754,3 +754,13 @@ PV哭哭的大祥老师太加分了
 486没想象中高啊，倒是后几集感觉智真的有点可爱，这票数也太惨了</blockquote>
 目前投给GBC的百分之32比例的票数里，仁菜和安加在一起占据百分之20以上，然后两人又分列总票数的榜眼和探花，这么一看已经很可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuruki  
+##### 73#       发表于 2024-7-8 19:57
+
+ 本帖最后由 yuruki 于 2024-7-8 19:59 编辑 
+
+不管加多少偶像/乐队角色都单投mmk，这么多年了，只有这位媚到我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

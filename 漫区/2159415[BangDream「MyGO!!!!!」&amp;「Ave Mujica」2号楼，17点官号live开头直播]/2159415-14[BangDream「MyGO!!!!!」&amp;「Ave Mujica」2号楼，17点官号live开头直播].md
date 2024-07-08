@@ -1045,3 +1045,11 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 大概是因为在心里和南条emtn有对比所以不想听杨姐唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 19329#       发表于 2024-7-8 22:06
+
+羊最大的问题还是气不够，在舞台上拼命的样子让人不忍去看
+

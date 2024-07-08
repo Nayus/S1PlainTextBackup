@@ -1099,3 +1099,32 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 十分精彩的第一话，埋了太多梗了，配合弹幕看更佳
 后面有短片一段月火酱跳白金disco 画面，太皮了
 
+
+*****
+
+####  sanxgh571  
+##### 319#       发表于 2024-7-8 22:13
+
+太能整活了月火
+
+<img src="https://img.saraba1st.com/forum/202407/08/221248b9tkzdez4ccvdtbn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 22:12 上传
+
+很好，继续监视小丑
+
+*****
+
+####  sanxgh571  
+##### 320#       发表于 2024-7-8 22:14
+
+如果是一般向R18作品，斧乃木这个局面就要被ooxx了吧。看第一幕时想，要是月火是男的这个剧就一转R18了。
+
+下一分钟——月火开始泼色拉油。
+
+对哦，这个逼比一般向R18作品里的男人恶劣多了。
+

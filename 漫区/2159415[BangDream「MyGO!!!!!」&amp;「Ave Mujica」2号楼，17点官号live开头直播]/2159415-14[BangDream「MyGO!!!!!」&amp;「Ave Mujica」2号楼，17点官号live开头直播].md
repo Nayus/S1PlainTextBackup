@@ -1164,3 +1164,13 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 你羊应该是去年就想明白了，帮邦这活儿超出能力了，摆了就是最优解
 
+
+*****
+
+####  星天观测  
+##### 19343#       发表于 2024-7-8 23:41
+
+我个人还是希望狗好好发展的，五个人都多努力点多进步一点，毕竟还是同一个企划，一荣俱荣
+
+反观鸡，本来我以为0th到1st进步已经很让人满意了，谁能想到2nd又进化了一波，鸡这孩子真上进，家里少操好多心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

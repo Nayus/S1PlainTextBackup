@@ -1033,3 +1033,15 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 只能说go拿着个挺好的中华炮优势结果打得不上不下，和羊姐这摆烂唱功脱不开关系，体感国人对唱功的要求还是比日本人高得多的
 
+
+*****
+
+####  星天观测  
+##### 19328#       发表于 2024-7-8 21:57
+
+主要立本2.5企划也不少，国人跑live的人也多
+
+我以前跑缪斯的live，再到南条和fripside和emtn，不敢吹唱功有多牛但是至少值得票价，营业也用心
+
+大概是因为在心里和南条emtn有对比所以不想听杨姐唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

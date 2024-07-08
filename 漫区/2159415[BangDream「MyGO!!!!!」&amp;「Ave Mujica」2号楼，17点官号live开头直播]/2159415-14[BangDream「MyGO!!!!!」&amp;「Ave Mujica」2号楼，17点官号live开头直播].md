@@ -1144,3 +1144,15 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 二偶企划一般来说营业水平和业务能力占一个观众就会宽容点，另外四个起码有一个是合格的，就羊姐两边都不太合格，广播生放自己的剧情记不得猜歌也猜不到真有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 19341#       发表于 2024-7-8 23:13
+
+ 本帖最后由 akiomn 于 2024-7-8 23:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大规模烤羊开始还是zepp那场，有点离谱了，连新歌都能忘词，前四句不唱，第五句唱错，这下不烤不行了
+
+之后反正都在谷底了，怎么都是上升了
+

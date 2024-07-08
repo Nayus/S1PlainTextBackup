@@ -1153,3 +1153,13 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 
 —— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  赫芙斗  
+##### 323#       发表于 2024-7-8 22:27
+
+对和吉泽翠一起摆在lo职位的那位没啥印象，之前有出现在套的staff里过吗？
+
+—— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

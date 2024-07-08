@@ -441,3 +441,142 @@ water的时候说大部分人不这样
 
 但有些人不好说，只是想用祥子的深情来垫灯皇的魅力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19284#       发表于 2024-7-8 08:19
+
+<img src="https://p.sda1.dev/18/34b9d081239be501829b305d006bcca6/image.jpg" referrerpolicy="no-referrer">
+[mizukitoko](https://x.com/mizukitoko/status/1809963413235446221?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御景| + 1|好评加鹅|
+| ddy2811| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 19285#       发表于 2024-7-8 09:20
+
+反正我对明年鸡动画播了以后遗老会怎么上来死乞白赖的贷款鸡团魂不如c团持悲观态度
+
+*****
+
+####  NODY  
+##### 19286#       发表于 2024-7-8 09:46
+
+隔壁吐槽有些人磕cp的时候像是在把立希和初华当成没有脑子的自动作曲/作词软件，还挺精准的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19287#       发表于 2024-7-8 09:53
+
+ 本帖最后由 Aendst 于 2024-7-8 09:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么大灯传爱好者
+
+把立希初华当成作曲作词软件的，把祥子直接拿去做纯恶役的，还有把mygo和mujica都垫了也要实现重组crychic的
+
+某两个cp有些受众不踩一脚其他角色不舒服，有意思的是这俩通常也是同一批人在嗑吧
+
+*****
+
+####  笋干爆炸碱  
+##### 19288#       发表于 2024-7-8 09:55
+
+ 本帖最后由 笋干爆炸碱 于 2024-7-8 09:59 编辑 
+
+新视觉图的六颗星，高度怀疑是暗示了天琴座，图见下：
+
+<img src="https://img.saraba1st.com/forum/202407/08/094601rm5aaaokho1wwbzc.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240708094527.png</strong> (219.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/094619hheuqohnfuc9pctc.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20240708094538.png</strong> (20.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 09:46 上传
+
+星座图片网站来源：[https://www.study-style.com/seiza/Lyr.html](https://www.study-style.com/seiza/Lyr.html)
+
+关于天琴座的理由：
+
+1.四星的平行四边形结构
+
+2.最亮星织女一（Vega，织女星）和视觉图最大星位置对应。
+
+另：不知有无联系的部分，天琴座有双双星结构，天琴座ε是两对双星系统组成的多重星。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+| Aendst| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 19289#       发表于 2024-7-8 10:00
+
+体感喜欢搞重组c团这套的其实是另一批知名二设流派就是了，主要目的不是重组c团而是让除了c团外的另外五个人组队再让c团火葬场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19290#       发表于 2024-7-8 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65517313&amp;ptid=2159415" target="_blank">笋干爆炸碱 发表于 2024-7-8 09:55</a>
+
+新视觉图的六颗星，高度怀疑是暗示了天琴座，图见下：
+
+星座图片网站来源：https://www.study-style.com/se ...</blockquote>
+夏季大三角的織女星，不像假的，這個星星的位置感覺真的是這個意義<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19291#       发表于 2024-7-8 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">感觉是目前看到的唯一能合理解释这六颗星星的说法了
+
+*****
+
+####  NODY  
+##### 19292#       发表于 2024-7-8 10:08
+
+越来越觉得会有初祥以前的七夕回忆了，就是首次live的时间点已经7.24了有点可惜，不然多少得来个七夕回<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19293#       发表于 2024-7-8 10:10
+
+有时候觉得漏油如果是考古类工作者一定能为祖国发展做出巨大贡献<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

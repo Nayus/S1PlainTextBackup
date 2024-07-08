@@ -2421,3 +2421,11 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 
 缺砂糖和海参就六加成 Lv 60，缺面粉和金平糖就 Lv 70，缺黄油和珍珠就 Lv 80，都缺就 Lv 90+，效率刚好比五加成 Lv 90++ 高。
 
+
+*****
+
+####  森兰丸  
+##### 13018#       发表于 2024-7-8 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草十郎用魔性菩薩的宝具伤害竟然比相扑要低....怎么回事
+

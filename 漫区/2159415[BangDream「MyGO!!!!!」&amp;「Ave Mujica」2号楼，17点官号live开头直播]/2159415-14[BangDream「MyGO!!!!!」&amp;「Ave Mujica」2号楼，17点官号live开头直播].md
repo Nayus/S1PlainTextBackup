@@ -873,3 +873,118 @@ Earth是小睦头的主题曲吗？</blockquote>
 
 [https://x.com/AkaneY_banu/status/1810192700668534998](https://x.com/AkaneY_banu/status/1810192700668534998)
 
+
+*****
+
+####  星天观测  
+##### 19313#       发表于 2024-7-8 14:31
+
+漏油的考据比那些啥b二创好多了，没有新东西的9月漏油能不能弄点新考据养我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19314#       发表于 2024-7-8 14:35
+
+ 本帖最后由 Aendst 于 2024-7-8 14:45 编辑 
+
+伊卡洛斯的神话之前fire的时候好像就有人提到过，但是air和water姑且没有这类征兆所以这个猜想也搁置了
+
+*来源pv中出现的有翼人形剪影和「太陽」「手を伸ばす」「翼」这几个歌词中出现的字句
+
+日/夜&amp;光/黑暗确实是mujica各个叙述性内容（歌词、台本、暗示镜头、视觉图）里的常见意象，而且通常否定前者而保留或者强调后者
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">记得很久之前和漏油聊过希腊神话里三相女神·月神相关的内容
+
+虽然目前没有任何实际证据，但是考虑到天琴座/月这些可能可考察的要素，或许mujica真的有一些东西参考了希腊神话的元素
+
+*****
+
+####  星天观测  
+##### 19315#       发表于 2024-7-8 14:43
+
+李子这个抱拳，我好像听到一句恭喜发财<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19316#       发表于 2024-7-8 14:50
+
+結月已艱難開機<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/08/144954j22hrhr7v1b2rrxz.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (20.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 14:49 上传
+
+*****
+
+####  星天观测  
+##### 19317#       发表于 2024-7-8 15:09
+
+看了下微博大佬发的live repo
+
+李弄这些卖点到底是谁想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会是已经了解剧情了的她们自己吧
+
+*****
+
+####  461757753  
+##### 19318#       发表于 2024-7-8 15:30
+
+二偶看得少，像mygo这样给其他新番唱oped算常见吗
+
+*****
+
+####  MASKA-1  
+##### 19319#       发表于 2024-7-8 15:34
+
+这动画也是wsd自己家的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  rikaren  
+##### 19320#       发表于 2024-7-8 15:36
+
+这动画也是wsd的啊，之前突击莉莉op还是ras唱的。
+
+
+*****
+
+####  NODY  
+##### 19321#       发表于 2024-7-8 15:52
+
+<blockquote>461757753 发表于 2024-7-8 15:30
+二偶看得少，像mygo这样给其他新番唱oped算常见吗</blockquote>
+wsd给自家员工喂饭而已，你邦之前所有的真人团都给wsd旗下作品唱过op或者ed，手游出现率最高的exist就是给别的作品唱的歌
+
+详见这个
+
+【BanGDream】邦邦乐队为其他番唱的OP与ED-哔哩哔哩】 https://b23.tv/BHTRRQz
+
+*****
+
+####  御幸一也  
+##### 19322#       发表于 2024-7-8 15:56
+
+<img src="https://img.saraba1st.com/forum/202407/08/155618pvq4qouquzo4kw4p.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_奏(@Kanade_3344)_20240708-031905_1810151594694250719_photo-0.jpg</strong> (421.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 15:56 上传
+
+<img src="https://img.saraba1st.com/forum/202407/08/155623cha9ghhb5ap7545t.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_奏(@Kanade_3344)_20240708-031905_1810151594694250719_photo-1.jpg</strong> (350.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-8 15:56 上传
+
+[https://x.com/Kanade_3344/status/1810151594694250719](https://x.com/Kanade_3344/status/1810151594694250719)
+

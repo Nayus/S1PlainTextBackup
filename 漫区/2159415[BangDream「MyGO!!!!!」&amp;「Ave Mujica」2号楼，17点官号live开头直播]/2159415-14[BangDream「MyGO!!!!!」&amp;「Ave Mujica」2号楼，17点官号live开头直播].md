@@ -1111,3 +1111,26 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 顺便狗除了实力原因之外，整体都比较拘谨这点也比较要命，当然如果有人要说为了 rp 也行吧。台风这块整团加一起哪怕就是有 amt 一半的水平也不会让拷打你团水平这个话题变成时尚单品<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19337#       发表于 2024-7-8 22:48
+
+假装耳返有问题也只能掩盖音准问题而不能掩盖体能问题吧。
+
+
+*****
+
+####  K·os  
+##### 19338#       发表于 2024-7-8 22:52
+
+重点又不在掩盖而是在转移矛盾，让粉丝去冲武士道就是了，武士道：我没意见
+
+*****
+
+####  星天观测  
+##### 19339#       发表于 2024-7-8 22:56
+
+现在好像学会了也有点迟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

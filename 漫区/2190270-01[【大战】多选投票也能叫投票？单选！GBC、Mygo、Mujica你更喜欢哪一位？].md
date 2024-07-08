@@ -743,3 +743,14 @@ PV哭哭的大祥老师太加分了
 
 486没想象中高啊，倒是后几集感觉智真的有点可爱，这票数也太惨了
 
+
+*****
+
+####  aptx8285144  
+##### 72#       发表于 2024-7-8 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65521731&amp;ptid=2190270" target="_blank">新人马甲2 发表于 2024-7-8 17:01</a>
+
+486没想象中高啊，倒是后几集感觉智真的有点可爱，这票数也太惨了</blockquote>
+目前投给GBC的百分之32比例的票数里，仁菜和安加在一起占据百分之20以上，然后两人又分列总票数的榜眼和探花，这么一看已经很可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

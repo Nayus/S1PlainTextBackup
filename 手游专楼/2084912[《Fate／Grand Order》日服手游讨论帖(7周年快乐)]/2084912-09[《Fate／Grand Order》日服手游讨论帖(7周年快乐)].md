@@ -2470,3 +2470,11 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">今天刷本没集中注意力  直接刷掉了3令咒  有一说一大姐姐这2技能设计成只能给自己才是为了玩家好（
 
+
+*****
+
+####  qixinno2  
+##### 13023#       发表于 2024-7-8 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能给别人当50充插件
+

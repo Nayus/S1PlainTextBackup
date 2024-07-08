@@ -1134,3 +1134,13 @@ monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 现在好像学会了也有点迟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19340#       发表于 2024-7-8 23:05
+
+ 本帖最后由 NODY 于 2024-7-8 23:06 编辑 
+
+二偶企划一般来说营业水平和业务能力占一个观众就会宽容点，另外四个起码有一个是合格的，就羊姐两边都不太合格，广播生放自己的剧情记不得猜歌也猜不到真有点离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

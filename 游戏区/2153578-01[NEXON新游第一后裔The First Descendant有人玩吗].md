@@ -950,3 +950,11 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 </blockquote>
 击杀回血真的强，拉满两秒触发一次，困难横着走了
 
+
+*****
+
+####  盾墙  
+##### 98#       发表于 2024-7-8 22:58
+
+杀怪回护盾的mod有入手途径了吗？资料里居然是空的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -988,3 +988,15 @@ wsd给自家员工喂饭而已，你邦之前所有的真人团都给wsd旗下�
 
 [https://x.com/Kanade_3344/status/1810151594694250719](https://x.com/Kanade_3344/status/1810151594694250719)
 
+
+*****
+
+####  星天观测  
+##### 19323#       发表于 2024-7-8 20:57
+
+不是说猜是鸡狗不合理
+
+之前看过狗ppp的live，只能说我也不是很想听杨姐唱歌
+
+萝鸡和ras鸡我会非常愿意买票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1128,3 +1128,28 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 对哦，这个逼比一般向R18作品里的男人恶劣多了。
 
+
+*****
+
+####  赫芙斗  
+##### 321#       发表于 2024-7-8 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65505275&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-6 21:41</a>
+打斗那里有些瑕疵，没办法，长田大概率在忙回天，帮不了忙
+
+看了眼staff表，长田居然在啊，真就血汗工厂呗 ...</blockquote>
+火特效+斧乃木回头那卡不一眼长田（）
+
+—— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  赫芙斗  
+##### 322#       发表于 2024-7-8 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514876&amp;ptid=2168085" target="_blank">BismarcKloseL.C 发表于 2024-7-7 23:50</a>
+I SCREAM，懂了，致敬冰菓</blockquote>
+确实是月火在尖叫就是（）
+
+—— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

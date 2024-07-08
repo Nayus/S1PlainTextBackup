@@ -1345,3 +1345,15 @@ tymm当初就给我整无语了，羊洁可以努努力稳定有现在音宝的�
 
 越看羊姐操作越觉得隔壁虹团鬼头真的难能可贵<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 19362#       发表于 2024-7-9 07:15
+
+mygo企划是不是失败了，这帮人这么摆，不像是想认真玩band的姿态啊，果然还是让乐手转声优才玩得来这种模式么，比如RAS，live太强了
+
+【RAISE A SUILEN「狂乱 Hey Kids!!」野良神 ARAGOTO OP-哔哩哔哩】 https://b23.tv/o4QJwbL
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

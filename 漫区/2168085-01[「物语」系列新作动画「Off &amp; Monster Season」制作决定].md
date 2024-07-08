@@ -1034,3 +1034,28 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 我都忘了斧乃木最后放垃圾家里，这时垃圾在上大学吗？
 
+
+*****
+
+####  feliznavidad  
+##### 313#       发表于 2024-7-8 12:37
+
+想问下为什么894还是小孩形态啊？她不是成神之后变成大姐姐了吗，还是说大人小孩模式可以随意切换的
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  浅川雏羽  
+##### 314#       发表于 2024-7-8 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65518673&amp;ptid=2168085" target="_blank">千叶铁矢 发表于 2024-7-8 11:50</a>
+
+我都忘了斧乃木最后放垃圾家里，这时垃圾在上大学吗？</blockquote>
+对
+
+开场送冰淇淋时开甲壳虫，发型是黑长直，衣服是花物语动画版同款
+
+是典型的大学垃圾君形象
+

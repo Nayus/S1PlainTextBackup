@@ -1221,3 +1221,42 @@ tymm当初就给我整无语了，羊洁可以努努力稳定有现在音宝的�
 
 漏油b站搜ave mujica，有好东西<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19349#       发表于 2024-7-9 00:50
+
+最好的方法就是学学前辈团，让其他人也多唱点，明明前辈团也不是没有乐器组唱得比主唱好的，还不是**方方就唱了
+
+但不知道为啥go就是主唱唱得不行还不让其他人唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19350#       发表于 2024-7-9 00:50
+
+重复了，编辑
+
+
+*****
+
+####  星天观测  
+##### 19351#       发表于 2024-7-9 00:53
+
+很简单，因为狗的歌词是灯内心的呐喊，总不能让其他人代喊吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 19352#       发表于 2024-7-9 00:55
+
+狗至少4个人在狗上面挺摆……那真有点上班上得很痛苦的味道
+
+*****
+
+####  星天观测  
+##### 19353#       发表于 2024-7-9 00:57
+
+4个吗，谁在尽力，大鼓队员吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

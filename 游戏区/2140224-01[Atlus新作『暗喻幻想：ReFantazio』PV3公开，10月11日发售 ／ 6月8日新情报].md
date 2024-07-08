@@ -443,3 +443,11 @@ ATLUS跟着世嘉走全平台化应该是2022年开始的，后面的新作（�
 
 建模不行，其他要素也没有让人眼前一亮的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  futamn  
+##### 539#       发表于 2024-7-8 09:43
+
+剧情预告感觉正剧得很啊，看红毛那个正经样估计到时候不会谈恋爱吧，倒不如说感觉还有点gaygay的？是男人太多带给我的错觉吗？
+

@@ -992,3 +992,14 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 我听早见念台词都累<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这动画绝对不是新人声优能驾驭的，还好都是配这个的都是老油条了。
 
+
+*****
+
+####  Azako  
+##### 308#       发表于 2024-7-8 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65514962&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-07-07 23:58:00</a>
+所以蛞蝓是因为被养大成了真怪异？感觉捏新怪异的前提条件就是先在身体里养一个 ...</blockquote>蛞蝓豆腐一开始就是真的，但贝木给的蛞蝓和后来抚子画出来的蛞蝓严格意义上是不太一样的，斧乃木低估了抚子作为专家的潜力，抚子画出来的东西是在“蛞蝓”这个原典的基础上延伸出来的怪异<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

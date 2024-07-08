@@ -1059,3 +1059,34 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 是典型的大学垃圾君形象
 
+
+*****
+
+####  downnote  
+##### 315#       发表于 2024-7-8 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65518673&amp;ptid=2168085" target="_blank">千叶铁矢 发表于 2024-7-8 11:50</a>
+
+我都忘了斧乃木最后放垃圾家里，这时垃圾在上大学吗？</blockquote>
+上大学的，最开始那个黄色甲壳虫车就是他的。这车花物语时还被吐槽过
+
+*****
+
+####  oi99o  
+##### 316#       发表于 2024-7-8 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65519190&amp;ptid=2168085" target="_blank">feliznavidad 发表于 2024-7-8 12:37</a>
+想问下为什么894还是小孩形态啊？她不是成神之后变成大姐姐了吗，还是说大人小孩模式可以随意切换的
+
+——  ...</blockquote>
+主世界没有大姐姐形态，大姐姐的要么是倾物语的平行世界要么是续终的镜中世界
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Tachikoma88  
+##### 317#       发表于 2024-7-8 12:51
+
+我还是希望垃圾君大学的形象能改下，花物语那个造型太奇怪了
+

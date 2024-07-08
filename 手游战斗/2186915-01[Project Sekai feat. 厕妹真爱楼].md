@@ -7673,3 +7673,22 @@ LZ快行动啊
 
 6192【】发现xxj是疯狂农手姐一枚 但缟纻本人大号高强度辱骂农手 被发现了会被拉黑吗 
 
+
+*****
+
+####  GAdoru  
+##### 664#       发表于 2024-7-8 20:41
+
+mtf真别蹭了，mzk一不吃药二不自残划手只是喜欢偏女性的服饰的男生看不到一点trans的要素好吗[微笑R][汗颜R][汗颜R]
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  GAdoru  
+##### 665#       发表于 2024-7-8 20:42
+
+有些mtf是不是强行把mzk当做自己的一份子了呢……mzk从来没有不认同自己的性别，mzk只是喜欢可爱的东西去追求它们罢了，别强行把mzk捆绑到性别认同里啊魂淡
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

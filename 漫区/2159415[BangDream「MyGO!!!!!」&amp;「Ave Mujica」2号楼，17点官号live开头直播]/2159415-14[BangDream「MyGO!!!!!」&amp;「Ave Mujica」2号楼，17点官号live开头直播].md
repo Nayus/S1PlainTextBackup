@@ -1317,3 +1317,23 @@ tymm当初就给我整无语了，羊洁可以努努力稳定有现在音宝的�
 羊姐不忘词就算成功
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁都没有想到最稳定的是蜜柑，草
 
+
+*****
+
+####  NODY  
+##### 19359#       发表于 2024-7-9 01:21
+
+蜜柑没工作可以天天练习保持乐器水平，鼓和青木太忙了没时间练乐器但至少营业做得很好（尤其是对比猫希剧情里垫脚的待遇），凛本来任务就不重起码算得上分内活干好了，羊姐要是营业做得好我相信大部分人也会对她宽容点的，问题是...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上次z8发了伊藤美来给hhw新专的访谈，好家伙对kkr和hhw那个剧情和人设长篇大论分析得头头是道的，人声优团的主唱都对你邦角色这么上心，再看看连广播问答都记不住、猜前奏都猜不出来的羊姐，难怪连歌词都记不住
+
+*****
+
+####  NODY  
+##### 19360#       发表于 2024-7-9 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65525650&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-9 00:53</a>
+
+很简单，因为狗的歌词是灯内心的呐喊，总不能让其他人代喊吧</blockquote>
+为什么不行，立希钦定ag的歌也是内心呐喊，ag就一大堆全员轮流唱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5805,10 +5805,10 @@
     "update": false
   },
   "2024428": {
-    "totalreply": 21202,
+    "totalreply": 21203,
     "title": "[西山居二次元+TPS+PvE《尘白禁区》5.25 三测。]",
     "newtitle": "[西山居二次元+TPS+PvE《尘白禁区》7.20 全球同步公测]",
-    "lastedit": 1720454769,
+    "lastedit": 1720460656,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -6966,10 +6966,10 @@
     "update": false
   },
   "2163917": {
-    "totalreply": 15882,
+    "totalreply": 15883,
     "title": "[【A39】A-SOUL综合讨论楼（12.29广州线下）]",
     "newtitle": "[【A39】A-SOUL综合讨论楼]",
-    "lastedit": 1720457537,
+    "lastedit": 1720460656,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -7452,10 +7452,10 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 12534,
+    "totalreply": 12535,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1720458853,
+    "lastedit": 1720460408,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12533,7 +12533,7 @@
     "newtitle": "[【失忆投捕／忘却バッテリー 】漫画／动画专楼 原作：みかわ絵子 MAPPA 2024年4月]",
     "lastedit": 1720201334,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2176121": {
@@ -12897,10 +12897,10 @@
     "update": false
   },
   "2181621": {
-    "totalreply": 114,
+    "totalreply": 115,
     "title": "[无锡被诬陷侵害女童蛋糕店老板胜诉]",
     "newtitle": "[无锡被诬陷侵害女童蛋糕店老板胜诉]",
-    "lastedit": 1720457411,
+    "lastedit": 1720460409,
     "category": "外野",
     "active": true,
     "update": false
@@ -14130,10 +14130,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 25722,
+    "totalreply": 25724,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1720460296,
+    "lastedit": 1720460656,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14247,10 +14247,10 @@
     "update": false
   },
   "2185177": {
-    "totalreply": 38943,
+    "totalreply": 38964,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
-    "lastedit": 1720460291,
+    "lastedit": 1720460888,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15039,10 +15039,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 7480,
+    "totalreply": 7482,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1720460295,
+    "lastedit": 1720460653,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -22680,10 +22680,10 @@
     "update": false
   },
   "2115666": {
-    "totalreply": 68,
+    "totalreply": 69,
     "title": "[身为VTuber的我因为忘记关台而成了传说 TV动画化 ​​​2024年7月]",
     "newtitle": "[身为VTuber的我因为忘记关台而成了传说 TV动画化 ​​​2024年7月]",
-    "lastedit": 1720457537,
+    "lastedit": 1720460656,
     "category": "漫区",
     "active": true,
     "update": false
@@ -23225,6 +23225,15 @@
     "newtitle": "[东百那个是可以说的吗？]",
     "lastedit": 1720459208,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "1146248": {
+    "totalreply": 229,
+    "title": "[10月番骇客娃娃#13 ハッカドールにコミケもおまかせですっ]",
+    "newtitle": "[10月番骇客娃娃#13 ハッカドールにコミケもおまかせですっ]",
+    "lastedit": 1720460665,
+    "category": "漫区",
     "active": true,
     "update": false
   }

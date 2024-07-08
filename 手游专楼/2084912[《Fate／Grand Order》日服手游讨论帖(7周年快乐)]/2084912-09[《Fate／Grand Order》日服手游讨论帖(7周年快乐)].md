@@ -2462,3 +2462,11 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 可是一个是卡池礼装一个是活动送你的满破礼装啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相扑全攻 15%攻 魔性混合 20%攻 你自己算算被
 
+
+*****
+
+####  alucardcz  
+##### 13022#       发表于 2024-7-8 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">今天刷本没集中注意力  直接刷掉了3令咒  有一说一大姐姐这2技能设计成只能给自己才是为了玩家好（
+

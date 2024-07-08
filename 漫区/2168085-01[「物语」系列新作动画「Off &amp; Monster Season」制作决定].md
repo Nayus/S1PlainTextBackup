@@ -1163,3 +1163,24 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 
 —— 来自 vivo V2199A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  八雲みたま  
+##### 324#       发表于 2024-7-8 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65524537&amp;ptid=2168085" target="_blank">赫芙斗 发表于 2024-7-8 22:27</a>
+对和吉泽翠一起摆在lo职位的那位没啥印象，之前有出现在套的staff里过吗？
+
+—— 来自 vivo V2199A, Androi ...</blockquote>
+美团、rwby、五等分这些最近的都有他
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  商博良  
+##### 325#       发表于 2024-7-8 23:27
+
+这要命的谐音梗！
+

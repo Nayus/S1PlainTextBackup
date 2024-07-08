@@ -1003,3 +1003,11 @@ I SCREAM，懂了，致敬冰菓<img src="https://static.saraba1st.com/image/smi
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  绞首浪漫派丶  
+##### 309#       发表于 2024-7-8 11:22
+
+感觉分镜上少了很多水平机位 终物语之类的就很爱用来着
+

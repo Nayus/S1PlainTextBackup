@@ -1008,3 +1008,28 @@ wsd给自家员工喂饭而已，你邦之前所有的真人团都给wsd旗下�
 
 monica也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟go合演那真的要找个搭子平摊了
 
+
+*****
+
+####  星天观测  
+##### 19325#       发表于 2024-7-8 21:46
+
+好像不找狗u平摊也行，就两个鸡粉平摊
+
+我当你想看杨姐，你当我想看杨姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19326#       发表于 2024-7-8 21:48
+
+挺喜欢羊的 但看她唱歌总是会很害怕 所以从来不去mygo的演唱会<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 19327#       发表于 2024-7-8 21:53
+
+只能说go拿着个挺好的中华炮优势结果打得不上不下，和羊姐这摆烂唱功脱不开关系，体感国人对唱功的要求还是比日本人高得多的
+

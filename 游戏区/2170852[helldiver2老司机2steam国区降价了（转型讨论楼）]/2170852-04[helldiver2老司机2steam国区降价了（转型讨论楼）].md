@@ -180,3 +180,43 @@ lmao病，开加速器让反作弊更新完就行了
 不需要，打构筑特攻，随便打中就能爆。西线可以配飞矛打闪电战，需要打构筑直接叫下来拆就行，省飞矛弹药。
 引导激光可以小范围跟踪，打运兵船引擎两发一个，坦克和炮台正面四发背面两发
 
+
+*****
+
+####  LT_Harry  
+##### 5046#       发表于 2024-7-7 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65511480&amp;ptid=2170852" target="_blank">Mr.Hopp 发表于 2024-7-7 17:22</a>
+
+等晚上洗完澡就打，看贴吧说突击兵能打构筑
+
+泰坦3发头黑白牛2发头，感觉没debuff的情况下比类星体好用。驱 ...</blockquote>
+机器人工厂对通风口一发，巨型者运气好也可以一发。
+
+*****
+
+####  Mr.Hopp  
+##### 5047#       发表于 2024-7-7 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513705&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-7-7 22:30</a>
+
+机器人工厂对通风口一发，巨型者运气好也可以一发。</blockquote>
+看贴吧说打任何构筑位置都一发打掉。
+
+*****
+
+####  xinfengj  
+##### 5048#       发表于 2024-7-7 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513705&amp;ptid=2170852" target="_blank">LT_Harry 发表于 2024-7-7 22:30</a>
+机器人工厂对通风口一发，巨型者运气好也可以一发。</blockquote>
+不需要，打构筑特攻，随便打中就能爆。西线可以配飞矛打闪电战，需要打构筑直接叫下来拆就行，省飞矛弹药。
+引导激光可以小范围跟踪，打运兵船引擎两发一个，坦克和炮台正面四发背面两发
+
+*****
+
+####  范坚强  
+##### 5049#       发表于 2024-7-8 10:20
+
+这四联筒子是恶搞施瓦辛格同名电影(魔鬼司令Commando)吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

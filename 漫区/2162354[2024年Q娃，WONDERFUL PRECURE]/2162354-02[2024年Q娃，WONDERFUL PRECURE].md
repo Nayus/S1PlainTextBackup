@@ -4552,3 +4552,14 @@ Q娃7月标题，上北漫画
 
 今年这立意要怎么写啊。。。日本狼和人类是有真正的核心利益冲突的，说句物竞天择你死我活不过分，前面的抱抱让动物把坏心情丢走就完成净化的逻辑根本行不通吧，跟狼说原谅人类？说人类错了应该和谐共处？都会很雷人
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1885#       发表于 2024-7-8 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65510692&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-7-7 15:05</a>
+
+入队前一个“恁瞅啥”打得噶路噶路们整个动物镇乱窜，无限扩大mayu家的地盘，充分体现能动手不逼逼的形象 ...</blockquote>
+这都是给我妹妹打下来的江山<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+

@@ -13237,3 +13237,18 @@ gamespot的采访，机翻摘选
 
 近藤肯定很羡慕别人卖1kw套吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1277#       发表于 2024-7-9 16:42
+
+近藤：50W，我的50W<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1278#       发表于 2024-7-9 16:42
+
+桥野桂肯定玩过黎轨，近藤真要和桥野桂对谈，桥野桂不该屁颠屁颠地滚过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

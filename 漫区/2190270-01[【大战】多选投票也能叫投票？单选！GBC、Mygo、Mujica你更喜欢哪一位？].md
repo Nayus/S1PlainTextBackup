@@ -780,3 +780,15 @@ PV哭哭的大祥老师太加分了
 
 祥子当一季配角人气就这么高了，明年火成啥样都不敢想
 
+
+*****
+
+####  shinraki  
+##### 76#       发表于 2024-7-9 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65531257&amp;ptid=2190270" target="_blank">Tienx 发表于 2024-7-9 15:34</a>
+祥子当一季配角人气就这么高了，明年火成啥样都不敢想</blockquote>
+日本本土祥反而人气不高，不知道明年会不会有改善<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

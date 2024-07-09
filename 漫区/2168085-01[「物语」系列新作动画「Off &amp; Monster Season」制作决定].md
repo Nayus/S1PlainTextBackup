@@ -1218,3 +1218,13 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 动画疯，阿b有用户上传的分割版</blockquote>
 感谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  歪镜  
+##### 329#       发表于 2024-7-9 10:44
+
+<blockquote>smdzh2 发表于 2024-7-7 23:42
+蛞蝓豆腐是基于「蛞蝓克蛇」伪造出来的怪异，本身无法封印蛇神。最后靠贝木嘴炮让抚子接受现实才生效的。 ...</blockquote>
+都仨月了撒盐这点事没干成，阿良良木你有什么用（）
+

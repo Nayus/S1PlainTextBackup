@@ -13272,3 +13272,15 @@ gamespot的采访，机翻摘选
 
 东迷2才是你们真正应该期待的
 
+
+*****
+
+####  宛若青空  
+##### 1281#       发表于 2024-7-9 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65533506&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-9 19:17</a>
+立绘图特典来咯
+
+电击的其他特典也有预览了</blockquote>
+电击这个杯子图案到底是啥…
+

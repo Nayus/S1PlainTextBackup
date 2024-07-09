@@ -2124,3 +2124,14 @@ ykls卖这么大（）
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Ne0Paru  
+##### 19431#       发表于 2024-7-9 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65533837&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-9 19:52</a>
+
+怎么只剩300+了，跑了这么多人吗</blockquote>
+单曲CD+鬼图+国内抽选没意义，很难有人买吧，不如选择等专辑
+

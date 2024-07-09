@@ -1849,3 +1849,20 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 作为一个cp洁癖党 祥子是唯一的例外<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 19409#       发表于 2024-7-9 14:01
+
+水友还是不给力，从忘词开始集体推特轰炸，没准已经决定9月换人了，结果对邦一出来彻底没戏了
+
+*****
+
+####  星天观测  
+##### 19410#       发表于 2024-7-9 14:03
+
+之前楚平方也只是上门提亲，现在ykls快进到结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下一对会是什么样我不敢想
+

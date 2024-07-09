@@ -13284,3 +13284,36 @@ gamespot的采访，机翻摘选
 电击的其他特典也有预览了</blockquote>
 电击这个杯子图案到底是啥…
 
+
+*****
+
+####  ravend233  
+##### 1282#       发表于 2024-7-9 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65534129&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-9 20:23</a>
+电击这个杯子图案到底是啥…</blockquote>
+3d模型，我估计是什么游戏内小游戏用的素材<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  宛若青空  
+##### 1283#       发表于 2024-7-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65534184&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-9 20:28</a>
+3d模型，我估计是什么游戏内小游戏用的素材
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+小游戏之前也预料到了，就是没预料到它会直接放3D模型上来…还以为会是2D图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1284#       发表于 2024-7-9 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只能说幽默特典，目前最值的是sofmap，还便宜
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

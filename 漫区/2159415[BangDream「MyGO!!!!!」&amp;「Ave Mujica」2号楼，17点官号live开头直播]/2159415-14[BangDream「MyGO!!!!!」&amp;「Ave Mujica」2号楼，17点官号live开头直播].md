@@ -2135,3 +2135,44 @@ ykls卖这么大（）
 怎么只剩300+了，跑了这么多人吗</blockquote>
 单曲CD+鬼图+国内抽选没意义，很难有人买吧，不如选择等专辑
 
+
+*****
+
+####  御幸一也  
+##### 19432#       发表于 2024-7-9 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65533941&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-7-9 20:04</a>
+
+听说go团手游团活停了，要等明年mujica，是真的吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+是真的，不過手遊活動，隨便水都能水幾個出來，是真的做不出還是懶得做找了個藉口，我覺得可以打問號……<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+之前猜測ave動畫最晚今年7月都該播了，如果武士道真的是延期，那不就更加說明了他毫無準備。
+
+反正就是時間線被卡死了，ave的動畫沒播，go這邊也跑不動。
+
+不過你要說他go人設會在ave播完有什麼劇變，我覺得應該是不太可能。
+
+*****
+
+####  Aendst  
+##### 19433#       发表于 2024-7-9 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65534065&amp;ptid=2159415" target="_blank">Ne0Paru 发表于 2024-7-9 20:17</a>
+
+单曲CD+鬼图+国内抽选没意义，很难有人买吧，不如选择等专辑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那国内跟日本人是反着来的，通常情况下专销量普遍不如单
+
+*****
+
+####  Aendst  
+##### 19434#       发表于 2024-7-9 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65534189&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-9 20:29</a>
+
+是真的，不過手遊活動，隨便水都能水幾個出來，是真的做不出還是懶得做找了個藉口，我覺得可以打問號……
+
+ ...</blockquote>
+根本p有提剧场版的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果说要照顾动画，自然是包含剧场版和mujica的tv动画两者在内
+

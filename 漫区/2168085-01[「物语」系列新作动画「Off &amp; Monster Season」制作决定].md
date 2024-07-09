@@ -1197,3 +1197,24 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 后面有短片一段月火酱跳白金disco 画面，太皮了 ...</blockquote>
 求教哪个平台有弹幕版的可以看
 
+
+*****
+
+####  Sliurus  
+##### 327#       发表于 2024-7-9 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65525798&amp;ptid=2168085" target="_blank">BigDaddyN0tail 发表于 2024-7-9 01:31</a>
+ 求教哪个平台有弹幕版的可以看</blockquote>
+动画疯，阿b有用户上传的分割版
+
+
+*****
+
+####  BigDaddyN0tail  
+##### 328#       发表于 2024-7-9 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65526545&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-9 08:19</a>
+
+动画疯，阿b有用户上传的分割版</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

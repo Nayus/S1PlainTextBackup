@@ -1357,3 +1357,13 @@ mygo企划是不是失败了，这帮人这么摆，不像是想认真玩band的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星天观测  
+##### 19363#       发表于 2024-7-9 08:20
+
+你要是从销量人气方面来讲应该不算失败的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他方面嘛，如果你一定要狗也跟其他团那样有技术台风团魂营业，那可能就有一点内个了
+

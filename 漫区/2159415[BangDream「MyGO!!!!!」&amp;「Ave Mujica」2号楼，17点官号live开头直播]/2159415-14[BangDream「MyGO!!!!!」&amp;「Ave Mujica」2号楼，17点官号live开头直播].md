@@ -2322,3 +2322,26 @@ wsd的后勤不是传统狗柿吗<img src="https://static.saraba1st.com/image/sm
 
 cd版神明大人怎么比原版还差，连修音师都救不回来了，wsd不会真打算摆到合约到期吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19447#       发表于 2024-7-9 23:49
+
+很差吗，我看那边也有人拷打了几楼
+
+*****
+
+####  skives  
+##### 19448#       发表于 2024-7-9 23:52
+
+比原来那版差太多了
+
+
+*****
+
+####  星天观测  
+##### 19449#       发表于 2024-7-9 23:56
+
+合同一般多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

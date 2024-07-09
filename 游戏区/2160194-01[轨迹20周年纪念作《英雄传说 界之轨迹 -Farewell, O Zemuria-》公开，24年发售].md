@@ -13335,3 +13335,11 @@ gamespot的采访，机翻摘选
 
 而且欧美本地化普遍都要两年后了，自己都不重视的市场，也就别眼馋隔壁P5了
 
+
+*****
+
+####  smdzh2  
+##### 1287#       发表于 2024-7-9 23:51
+
+别p5了，人家segay现在有能力首发全平台，你法这副孤寒样除了继续和云豹NIS凑一桌外还能咋办呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

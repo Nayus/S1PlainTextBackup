@@ -13175,3 +13175,11 @@ gamespot的采访，机翻摘选
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是重制近藤心心念念的双星物语（）
 
+
+*****
+
+####  mrm4B  
+##### 1270#       发表于 2024-7-9 14:26
+
+女朋友云了一下之后表示对黎老师人设兴趣很大想入坑，是该让她从1开始4+1全玩一遍吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

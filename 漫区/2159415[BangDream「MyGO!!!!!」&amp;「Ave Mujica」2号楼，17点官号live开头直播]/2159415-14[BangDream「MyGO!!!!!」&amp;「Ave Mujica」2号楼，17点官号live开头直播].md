@@ -1889,3 +1889,51 @@ lisa：我想让ykn唱我写的歌词，所以这次不会逃跑
 
 ykls只会赢和赢麻
 
+
+*****
+
+####  NODY  
+##### 19413#       发表于 2024-7-9 14:19
+
+友希那: 大家，早上好
+
+リサ: 早上好～……
+
+あこ: 早上好……你们两个怎么都有好大的黑眼圈！？
+
+リサ: 啊哈哈……其实昨天我们两个熬夜了……
+
+事后都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 19414#         楼主| 发表于 2024-7-9 14:23
+
+<img src="https://img.saraba1st.com/forum/202407/09/142220i3byfrjfl7sb370r.jpg" referrerpolicy="no-referrer">
+
+<strong>lisa.jpg</strong> (230.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 14:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/142226oku7y27tz75lymhm.jpg" referrerpolicy="no-referrer">
+
+<strong>ykn.jpg</strong> (212.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 14:22 上传
+
+完全婚后<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19415#       发表于 2024-7-9 14:23
+
+我觉得顶的还有ykn去跟rinko说谢谢你陪着lisa
+
+只有小情侣才能这么说好不好，一股彰显所有权的味<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

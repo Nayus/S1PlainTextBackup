@@ -2176,3 +2176,37 @@ ykls卖这么大（）
  ...</blockquote>
 根本p有提剧场版的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果说要照顾动画，自然是包含剧场版和mujica的tv动画两者在内
 
+
+*****
+
+####  PDQ4  
+##### 19435#       发表于 2024-7-9 20:36
+
+ 本帖最后由 PDQ4 于 2024-7-9 20:38 编辑 
+
+我去年还说wsd要是能国内留住几千死忠就真盘活了，这下有没有留住几百人都不好说，这还是没考虑碟片有人会复数
+
+果然大头还是本土，国内就是不赚白不赚的添头
+
+日本人是真佛啊，还是说企划粉更多，手游因为动画半年没剧情这话放国内早就给冲的马没了，真有那么多人看主线吗，随便水水发点cp糖就行的事。结果没看到什么大波动，倒是看到一些c姨姥挺对这事挺乐呵的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19436#       发表于 2024-7-9 20:39
+
+C團遺老以為這樣是實錘了在ave動畫會有大動作，
+
+也不想想開LIVE的又不是他CCC，是go和ave，怎麼可能給你大賣一個死了的團<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19437#       发表于 2024-7-9 20:40
+
+所以根本p也说了会出混活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实既然mygo的event受动画影响都没办法放出来但却能做混活，就说明整个手游的包饺子氛围可能跟动画关系不大
+
+主线和混两部分脚本互相影响比较小，新老角色能不过于ooc有互动应该就会给放出来
+

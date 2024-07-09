@@ -1981,3 +1981,11 @@ ykls只会赢和赢麻
 
 但是lisa的夏常服能不能换一下啊，愁<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19420#       发表于 2024-7-9 17:11
+
+这应该是五星时代第三对伪花后双人五星了（第一对tm是摩卡兰）
+

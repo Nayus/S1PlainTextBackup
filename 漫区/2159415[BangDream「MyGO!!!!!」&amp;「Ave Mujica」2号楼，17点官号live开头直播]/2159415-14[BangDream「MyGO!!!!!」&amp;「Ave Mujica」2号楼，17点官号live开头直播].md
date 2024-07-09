@@ -2360,3 +2360,13 @@ cd版神明大人怎么比原版还差，连修音师都救不回来了，wsd不
 
 emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的还是之后呢，如果之前就决定的话杨姐好像有点糊弄工作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 19452#       发表于 2024-7-10 00:07
+
+ 本帖最后由 yifan8848 于 2024-7-10 00:13 编辑 
+
+錄音版的墮天好狂阿，跟live的感覺又不一樣(兩種版本都suki)
+

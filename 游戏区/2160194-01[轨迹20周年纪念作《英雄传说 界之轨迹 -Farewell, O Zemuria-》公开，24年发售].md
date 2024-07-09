@@ -13343,3 +13343,13 @@ gamespot的采访，机翻摘选
 
 别p5了，人家segay现在有能力首发全平台，你法这副孤寒样除了继续和云豹NIS凑一桌外还能咋办呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1288#       发表于 2024-7-10 00:12
+
+不想扩大规模只能这样，加上你法社一年一作的高强度推新品，想同步每一部的翻译时间最多也就半年多点，能做到多语种同步才是难事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

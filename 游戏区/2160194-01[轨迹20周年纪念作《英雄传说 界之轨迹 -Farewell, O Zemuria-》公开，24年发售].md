@@ -13138,3 +13138,11 @@ gamespot的采访，机翻摘选
 阿法年轻一代开发者是创轨开始发力的吧，记得创的战斗动画分镜是年轻人的点子，下一个提到的年轻人的点子是 ...</blockquote>
 黎2剧情属于强行给自己把脚绑了摁写加上工期不够，整个流程全程东凑西凑拿一些不要紧的支线摁塞填充内容不推进主线，换谁来写大概都是一坨屎，黎2烂穿也不是因为丁格飞这个点子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 1266#       发表于 2024-7-9 12:22
+
+京轨什么时候有新情报<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

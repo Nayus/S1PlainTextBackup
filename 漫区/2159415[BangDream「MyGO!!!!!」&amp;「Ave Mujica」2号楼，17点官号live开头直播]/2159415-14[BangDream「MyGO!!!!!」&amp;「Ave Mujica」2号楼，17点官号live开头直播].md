@@ -1669,3 +1669,54 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 编辑：啧，怎么突然编辑了，原来说的是爱音第一灯素第二猫第四，所以才提出疑问
 
+
+*****
+
+####  NODY  
+##### 19394#       发表于 2024-7-9 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528894&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-9 12:03</a>
+
+你蹲一下煤炉就知道了
+
+店铺可以随时补货，而且少不代表进货少，也有可能是买走的多还没补货，所以没办法用 ...</blockquote>
+真的假的，我看首页整天都是所有人卖空留立希一个人在滞销，还没看过其他人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真的素希争垫底会只有一个立希摆两排吗
+
+*****
+
+####  Aendst  
+##### 19395#       发表于 2024-7-9 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528968&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 12:09</a>
+
+真的假的，我看首页整天都是所有人卖空留立希一个人在滞销，还没看过其他人的
+
+真的素希争垫底会只有一个 ...</blockquote>
+立希看柄，有个别谷我记得还不错，但是均下来确实基本都在垫底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19396#       发表于 2024-7-9 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528928&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-7-9 12:05</a>
+
+按你这图难道不是爱音＝爽世＞灯＞猫＞立希吗
+
+爱音和爽世都是6列，灯5列，猫4列，立希2列</blockquote>
+反光没注意到素世还有一排，编辑了一下
+
+反正总集篇卖猫给我感觉就是wsd发现主唱扶不起的同时又发现猫这个没啥戏份的剧居然人气还可以，就赶紧给补了点戏份，刚好还是自家人青木
+
+
+*****
+
+####  Aendst  
+##### 19397#       发表于 2024-7-9 12:16
+
+<img src="https://pbs.twimg.com/media/GCLxx-2awAAuUdt?format=jpg&amp;name=4096x4096" id="aimg_UzPta" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+或者直接看kbook买取情报也比较准，像这个就很明显
+

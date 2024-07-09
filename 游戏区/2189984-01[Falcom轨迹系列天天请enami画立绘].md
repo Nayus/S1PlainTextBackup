@@ -1015,3 +1015,24 @@ e大师真的丑麻了 从零轨开始就是丑的xnml ...</blockquote>
 这都能接受那以后让toi8来画轨迹吧</blockquote>
 Toi8同期给废狗交的武田信玄都没这么离谱
 
+
+*****
+
+####  maojiashu  
+##### 98#       发表于 2024-7-9 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65529852&amp;ptid=2189984" target="_blank">法拉 发表于 2024-7-9 13:23</a>
+
+这都能接受那以后让toi8来画轨迹吧</blockquote>
+这很烂 但还是比e大师好百倍
+
+*****
+
+####  法拉  
+##### 99#       发表于 2024-7-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65530748&amp;ptid=2189984" target="_blank">maojiashu 发表于 2024-7-9 14:44</a>
+
+这很烂 但还是比e大师好百倍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那祝法老控以后的立绘都是这个b样吧，e大师好歹完成度有个六七成，toi8画的这几个不知道有三成没有
+

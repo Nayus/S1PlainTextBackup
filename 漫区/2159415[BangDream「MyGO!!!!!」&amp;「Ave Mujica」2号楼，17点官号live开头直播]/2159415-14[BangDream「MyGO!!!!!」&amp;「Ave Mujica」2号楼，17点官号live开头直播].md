@@ -1989,3 +1989,70 @@ ykls只会赢和赢麻
 
 这应该是五星时代第三对伪花后双人五星了（第一对tm是摩卡兰）
 
+
+*****
+
+####  rikaren  
+##### 19421#       发表于 2024-7-9 17:25
+
+<img src="https://img.saraba1st.com/forum/202407/09/172400jwaacbbh205wzlxl.png" referrerpolicy="no-referrer">
+
+<strong>1720515645006.png</strong> (300.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/172411bt5wmfpmmompffct.png" referrerpolicy="no-referrer">
+
+<strong>1720515654729.png</strong> (247.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/172434h4ureau1qqnm1ra0.png" referrerpolicy="no-referrer">
+
+<strong>1720515764848.png</strong> (255.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/172443knv2a6zzoawa22aw.png" referrerpolicy="no-referrer">
+
+<strong>1720515772568.png</strong> (246.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/172451m7v9yihlpi9hiiwj.png" referrerpolicy="no-referrer">
+
+<strong>1720515776504.png</strong> (146.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 17:24 上传
+
+两对新人和一个花童
+
+
+*****
+
+####  星天观测  
+##### 19422#       发表于 2024-7-9 17:31
+
+sayo手上这个握花的姿势换成棒球棍也不违和吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 19423#       发表于 2024-7-9 17:35
+
+ykls卖这么大（）
+
+这次新歌写的律动也很强（）
+
+龙哥NB
+

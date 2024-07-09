@@ -1527,3 +1527,21 @@ Roselia不是挺成功的。
 
 动画写剧本的时候羊还没开始摆，所以按邦多利传统给灯安排了不少重要戏份，wsd看着羊摆烂成这样估计都有点后悔为什么不给其他人多点剧情了，其他人至少愿意营业来带带人气不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19381#       发表于 2024-7-9 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528454&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 11:27</a>
+
+动画写剧本的时候羊还没开始摆，所以按邦多利传统给灯安排了不少重要戏份，wsd看着羊摆烂成这样估计都有点 ...</blockquote>
+你说的该不会是那个动画广播啥都没有的母鸡卡吧（开玩笑）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 19382#       发表于 2024-7-9 11:35
+
+李子从小学选秀红发安妮，中学歌手
+

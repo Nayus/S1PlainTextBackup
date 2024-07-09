@@ -2101,3 +2101,26 @@ ykls卖这么大（）
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Ne0Paru  
+##### 19429#       发表于 2024-7-9 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65533941&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-7-9 20:04</a>
+
+听说go团手游团活停了，要等明年mujica，是真的吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+真，根本直播出面说的
+
+*****
+
+####  MASKA-1  
+##### 19430#       发表于 2024-7-9 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65533994&amp;ptid=2159415" target="_blank">Ne0Paru 发表于 2024-07-09 20:10:06</a>
+真，根本直播出面说的</blockquote>有点期待了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

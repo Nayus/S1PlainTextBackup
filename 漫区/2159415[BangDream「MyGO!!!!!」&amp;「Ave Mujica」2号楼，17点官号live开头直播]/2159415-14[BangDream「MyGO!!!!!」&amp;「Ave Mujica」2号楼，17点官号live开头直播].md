@@ -1866,3 +1866,26 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 下一对会是什么样我不敢想
 
+
+*****
+
+####  NODY  
+##### 19411#       发表于 2024-7-9 14:09
+
+ 本帖最后由 NODY 于 2024-7-9 14:13 编辑 
+
+ykn：我喜欢lisa的歌词，请让留在你身边，让我唱你写给我的歌
+
+lisa：我想让ykn唱我写的歌词，所以这次不会逃跑
+
+太会卖了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19412#       发表于 2024-7-9 14:12
+
+什么叫前辈的老夫老妻感啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ykls只会赢和赢麻
+

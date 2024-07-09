@@ -1305,3 +1305,25 @@ Jpop 口水歌逆流 Anisong 的这个趋势也不知道是好是坏<img src="ht
 正经（迫真）
 恋物语里因为满口peace peace差点被贝木揍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 338#         楼主| 发表于 2024-7-9 14:10
+
+[https://x.com/navy3_/status/1810348327017615769](https://x.com/navy3_/status/1810348327017615769)
+
+#物語シリーズ     オフ&amp;モンスターシーズン
+
+ #愚物語 第1話
+
+二原で参加させていただきました…！！
+
+昔から大好きな作品に関われて感慨深い…
+<img src="https://p.sda1.dev/18/c21aa0b4c954591ac38e100fe1765417/20240709_140226.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/u_ka/status/1810146796070641941](https://x.com/u_ka/status/1810146796070641941)
+
+#物語シリーズ     1話 #愚物語「つきひアンドゥ」 の第二原画で参加していました！（今回名義が「田中ゆうか」になっています）　物語シリーズは傷物語の動画のときぶりなので、また仕事で巡ってきて嬉しかったです！ありがとうございました！！
+<img src="https://p.sda1.dev/18/fb378a92bcccb67c184a4688498df698/20240709_140229.jpg" referrerpolicy="no-referrer">
+

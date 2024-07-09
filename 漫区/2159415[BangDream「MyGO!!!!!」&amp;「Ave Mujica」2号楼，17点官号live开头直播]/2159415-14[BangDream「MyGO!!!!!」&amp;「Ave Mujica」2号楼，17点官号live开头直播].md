@@ -1367,3 +1367,27 @@ mygo企划是不是失败了，这帮人这么摆，不像是想认真玩band的
 
 其他方面嘛，如果你一定要狗也跟其他团那样有技术台风团魂营业，那可能就有一点内个了
 
+
+*****
+
+####  downforce  
+##### 19364#       发表于 2024-7-9 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65526328&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-7-9 07:15</a>
+mygo企划是不是失败了，这帮人这么摆，不像是想认真玩band的姿态啊，果然还是让乐手转声优才玩得来这种模式 ...</blockquote>
+Roselia不是挺成功的。
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  罗克萨斯  
+##### 19365#       发表于 2024-7-9 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65527018&amp;ptid=2159415" target="_blank">downforce 发表于 2024-7-9 09:22</a>
+
+Roselia不是挺成功的。
+
+—— 来自 Xiaomi 22061218C, Android 14上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+还没看过她们的live，有空补下
+

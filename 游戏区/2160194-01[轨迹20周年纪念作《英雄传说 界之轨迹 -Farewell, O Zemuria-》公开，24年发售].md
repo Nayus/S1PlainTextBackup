@@ -13156,3 +13156,22 @@ gamespot的采访，机翻摘选
 
 近藤：我最想重制的作品是《伊苏V 失落的砂之都》。（我对重制空轨并没多大兴趣)<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 1268#       发表于 2024-7-9 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65529303&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-9 12:37</a>
+
+近藤：我最想重制的作品是《伊苏V 失落的砂之都》。（我对重制空轨并没多大兴趣) ...</blockquote>
+这代是该重制了
+
+
+*****
+
+####  ravend233  
+##### 1269#       发表于 2024-7-9 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是重制近藤心心念念的双星物语（）
+

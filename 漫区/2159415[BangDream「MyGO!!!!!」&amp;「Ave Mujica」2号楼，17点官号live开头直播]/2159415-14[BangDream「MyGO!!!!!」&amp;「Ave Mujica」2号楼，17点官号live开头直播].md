@@ -1587,3 +1587,27 @@ ras就是把重点戏份给了楚平方和pareo导致主唱戏份边缘人气不
 
 比起拖后腿，还不如边缘化减小损失呢，起码看剧场总集篇给猫主场就很像是wsd开始后悔要重新推一下自家人青木了，甚至go下半年手游没主线可能都是因为要重新修一下大纲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19388#       发表于 2024-7-9 11:56
+
+talk塞的动画制作发表会吧
+
+mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五爽姐和立希随机二选一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只能说，日本人的企划，日本人气参考意义最大
+
+*****
+
+####  pipaopo  
+##### 19389#       发表于 2024-7-9 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528717&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 11:47</a>
+
+比起拖后腿，还不如边缘化减小损失呢，起码看剧场总集篇给猫主场就很像是wsd开始后悔要重新推一下自家人青 ...</blockquote>
+之前访谈说过是tv时间限得死，把猫猫故事省去了。剧场版会提到猫猫为什么开团春日影。
+
+看剧场版staff表大概加的部分脚本是柿本写。
+

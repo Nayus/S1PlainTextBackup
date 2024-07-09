@@ -13127,3 +13127,14 @@ gamespot的采访，机翻摘选
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看好东迷2，至少我玩伊苏10观感比裹脚布黎2好太多辣
 
+
+*****
+
+####  ravend233  
+##### 1265#       发表于 2024-7-9 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528650&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-7-9 11:42</a>
+
+阿法年轻一代开发者是创轨开始发力的吧，记得创的战斗动画分镜是年轻人的点子，下一个提到的年轻人的点子是 ...</blockquote>
+黎2剧情属于强行给自己把脚绑了摁写加上工期不够，整个流程全程东凑西凑拿一些不要紧的支线摁塞填充内容不推进主线，换谁来写大概都是一坨屎，黎2烂穿也不是因为丁格飞这个点子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -800,3 +800,24 @@ PV哭哭的大祥老师太加分了
 
 草486好高人气，好吧咱也投的486
 
+
+*****
+
+####  kyon_2  
+##### 78#       发表于 2024-7-9 18:06
+
+原来这么多人喜欢小孩姐
+
+
+*****
+
+####  aptx8285144  
+##### 79#       发表于 2024-7-9 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65532075&amp;ptid=2190270" target="_blank">恶魔娘阿洛 发表于 2024-7-9 16:56</a>
+
+草486好高人气，好吧咱也投的486</blockquote>
+[https://bbs.saraba1st.com/2b/thr ... d_for_share=80217_2](https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2)
+
+安的人气看这贴更清晰，是仁菜和桃香票数之和都还有结余<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -12993,3 +12993,11 @@ Developing a game series like Trails over this great period of time is kind of l
 
 So, in the background, we allow them to create and work on these new IPs--to talk about the things that they want to do. I believe that that will make them even stronger developers and they'll have even better ideas that contribute even more to our games.
 
+
+*****
+
+####  仲可怀  
+##### 1253#       发表于 2024-7-9 10:01
+
+如果RE是指把原来三头身变成现在的黎轨那种模式的话 我觉得还是有戏的 原来那种Q版人物高清化早就有了 PS4steam上早就有1080P 甚至插值4K 重制高清又能高清到哪里去。近藤一直在提这个重制 如果仅仅是这种根本不是重制了 只能叫再移植了。而且说实话这些高清版都是外包的 法老控自己做的话 不会是所谓Q版高清
+

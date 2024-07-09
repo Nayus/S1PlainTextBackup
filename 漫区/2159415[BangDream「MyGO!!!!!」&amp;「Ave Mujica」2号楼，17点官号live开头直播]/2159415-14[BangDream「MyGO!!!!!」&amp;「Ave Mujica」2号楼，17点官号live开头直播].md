@@ -1391,3 +1391,11 @@ Roselia不是挺成功的。
 —— 来自 Xiaomi 22061218C, Android 14上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 还没看过她们的live，有空补下
 
+
+*****
+
+####  NODY  
+##### 19366#       发表于 2024-7-9 10:06
+
+直接把另外四个人打成和羊一个程度会让我感觉是羊噶在拖人下水连坐，另外四个自己负责的部分只能说没玩高难度演奏但也没什么大问题和翻车，角色营业mc也合格还帮你羊圆场，和你羊这种台上翻车台下连角色营业都不做的差多了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1947,3 +1947,18 @@ ykls只会赢和赢麻
 
 抽抽抽抽抽<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19417#       发表于 2024-7-9 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65530450&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 14:19</a>
+
+友希那: 大家，早上好
+
+リサ: 早上好～……
+
+あこ: 早上好……你们两个怎么都有好大的黑眼圈！？</blockquote>
+一晚没睡<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

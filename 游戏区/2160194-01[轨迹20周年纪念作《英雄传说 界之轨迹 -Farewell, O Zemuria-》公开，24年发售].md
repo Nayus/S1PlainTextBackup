@@ -13001,3 +13001,21 @@ So, in the background, we allow them to create and work on these new IPs--to tal
 
 如果RE是指把原来三头身变成现在的黎轨那种模式的话 我觉得还是有戏的 原来那种Q版人物高清化早就有了 PS4steam上早就有1080P 甚至插值4K 重制高清又能高清到哪里去。近藤一直在提这个重制 如果仅仅是这种根本不是重制了 只能叫再移植了。而且说实话这些高清版都是外包的 法老控自己做的话 不会是所谓Q版高清
 
+
+*****
+
+####  卢迪克  
+##### 1254#       发表于 2024-7-9 10:28
+
+ 本帖最后由 卢迪克 于 2024-7-9 10:31 编辑 
+
+呵呵。90变成80-90了，估计界轨完成就85，剩下的那个篇章没有闪轨那样长。基本三部曲。说好的卡尔瓦德系列第二大篇章呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  diectt  
+##### 1255#       发表于 2024-7-9 10:34
+
+对于法老控的任何讨论，牢记它只有60人，牢记它要1年1作，很多事自然就释怀了，切勿两个擅自<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -142,3 +142,13 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 别的改名我还能理解点，美杜莎叫歌果这个改名有点懵。是哪个版本的正式翻译么。 ...</blockquote>
 好像是戈尔贡的音译<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46499#       发表于 2024-7-9 10:34
+
+六加成抠羁绊好累<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 不过上下班路上无聊爬一爬感觉还行，反正也不费体力。
+
+进阶关卡不能找助战真的是坏文明……找遍了攻略还有翻车风险，还不能三令咒又是一条好汉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

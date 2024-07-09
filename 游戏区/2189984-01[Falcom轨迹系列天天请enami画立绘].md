@@ -1036,3 +1036,14 @@ Toi8同期给废狗交的武田信玄都没这么离谱
 这很烂 但还是比e大师好百倍</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那祝法老控以后的立绘都是这个b样吧，e大师好歹完成度有个六七成，toi8画的这几个不知道有三成没有
 
+
+*****
+
+####  maojiashu  
+##### 100#       发表于 2024-7-9 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65530784&amp;ptid=2189984" target="_blank">法拉 发表于 2024-7-9 14:48</a>
+
+那祝法老控以后的立绘都是这个b样吧，e大师的完成度要是有个六七成，那toi8画的这几个不知道有三成没有， ...</blockquote>
+感谢祝福 那我祝福你以后玩的游戏都是e大师玩的那个b样
+

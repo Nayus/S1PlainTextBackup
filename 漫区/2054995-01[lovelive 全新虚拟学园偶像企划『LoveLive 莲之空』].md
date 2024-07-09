@@ -2404,3 +2404,12 @@ LA LIVE『TUBEOUT!』现场（今年BW上也由TUBEOUT负责）
 夏色えがおで1, 2, Jump!
 <img src="https://p.sda1.dev/18/6f4dc27d829c478fcdf3b4e3fe5f798c/20240707_110341.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 212#         楼主| 发表于 2024-7-9 15:09
+
+莲之空 Fanart（画师推荐）
+[https://x.com/Kaleid417/](https://x.com/Kaleid417/)
+

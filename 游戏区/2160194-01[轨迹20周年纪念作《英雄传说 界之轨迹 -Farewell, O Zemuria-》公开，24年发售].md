@@ -13146,3 +13146,13 @@ gamespot的采访，机翻摘选
 
 京轨什么时候有新情报<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1267#       发表于 2024-7-9 12:37
+
+ 本帖最后由 卢迪克 于 2024-7-9 12:38 编辑 
+
+近藤：我最想重制的作品是《伊苏V 失落的砂之都》。（我对重制空轨并没多大兴趣)<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

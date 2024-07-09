@@ -833,3 +833,14 @@ https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
 安的人气看这贴更清晰， ...</blockquote>
 要是有4票mmk不会那么低的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParadiseMartyr  
+##### 81#       发表于 2024-7-10 01:30
+
+祥子人气这么高？第一季里面除了当客服的喜剧塑造，其他时候基本上都是反派的感觉吧？
+长期素食很健康女士和圣爱音不应该人气是最高的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是说我的口味问题…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

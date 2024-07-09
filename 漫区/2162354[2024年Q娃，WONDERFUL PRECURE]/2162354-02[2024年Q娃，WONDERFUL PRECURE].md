@@ -4623,3 +4623,15 @@ Q娃片场这么多年来没有也不可能深入触及争议话题，既然选�
 这集是换ed也可以是把后期重要内容区别概括完了
 主线反派怕是最后小麦连变身都不变身对着狼boss一顿嘴炮巴拉巴拉结束了 别到时候再整zz阴屁就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1892#       发表于 2024-7-9 18:56
+
+看到一个说法是微笑花园搞不好是动物死后到达的天堂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说是汪Q故事本身跟一个叫彩虹桥（虹の橋，Rainbow Bridge）的在爱宠人士里很有名的散文诗设定能对上，而且也能解释乌丸所在的神社里祭祀死去的动物似乎跟闪亮动物对得上以及微笑动物当中有已经灭绝的动物的事了。（而且动物镇和微笑花园有地点对应关系）
+
+我个人是觉得这个脑洞挺有意思的，就是不知道东映有没有这个胆用这个设定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要是真采用这个设定我觉得可以直接把剧情冲突转移到别的问题上，比如虐待动物抛弃宠物乃至人类自身的斗争的影响导致微笑花园这个死后天国崩了，花园里的动物全灭，残存下来的敌BOSS于是借助garugaru的形式复活又死了一遍的动物们顺便报复人类的行为。
+

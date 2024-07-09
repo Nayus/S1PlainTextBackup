@@ -1545,3 +1545,45 @@ Roselia不是挺成功的。
 
 李子从小学选秀红发安妮，中学歌手
 
+
+*****
+
+####  NODY  
+##### 19383#       发表于 2024-7-9 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528527&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-9 11:33</a>
+
+你说的该不会是那个动画广播啥都没有的母鸡卡吧（开玩笑）</blockquote>
+ras就是把重点戏份给了楚平方和pareo导致主唱戏份边缘人气不太行，可惜了大姐头的唱功，wsd要早知道羊这么拖后腿估计就把go也写成主唱边缘模式了
+
+*****
+
+####  DarthAka  
+##### 19384#       发表于 2024-7-9 11:42
+
+对ras的门槛就是楚平方，无论真人还是动画，删了楚平方改成4个人就好了
+
+*****
+
+####  星天观测  
+##### 19385#       发表于 2024-7-9 11:43
+
+不确定ras那么搞是不是因为动画决定要找萝对邦还短暂的垫了萝，所以不想把这种引战戏份安排给主唱
+
+狗如果也边缘主唱的话那鸡狗的核心都不是主唱了，新一代的团还是不能这么搞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  すぴぱら  
+##### 19386#       发表于 2024-7-9 11:47
+
+都说了线下live是声优event，噶女声优用的，别真当演唱会
+
+*****
+
+####  NODY  
+##### 19387#       发表于 2024-7-9 11:47
+
+比起拖后腿，还不如边缘化减小损失呢，起码看剧场总集篇给猫主场就很像是wsd开始后悔要重新推一下自家人青木了，甚至go下半年手游没主线可能都是因为要重新修一下大纲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

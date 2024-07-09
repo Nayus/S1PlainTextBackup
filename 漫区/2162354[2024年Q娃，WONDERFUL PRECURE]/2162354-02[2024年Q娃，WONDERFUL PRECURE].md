@@ -4635,3 +4635,21 @@ Q娃片场这么多年来没有也不可能深入触及争议话题，既然选�
 
 要是真采用这个设定我觉得可以直接把剧情冲突转移到别的问题上，比如虐待动物抛弃宠物乃至人类自身的斗争的影响导致微笑花园这个死后天国崩了，花园里的动物全灭，残存下来的敌BOSS于是借助garugaru的形式复活又死了一遍的动物们顺便报复人类的行为。
 
+
+*****
+
+####  犬飼いろは  
+##### 1893#       发表于 2024-7-10 01:04
+
+前 6 张：月刊アニメージュ 2024年8月号
+
+后 2 张：アニメディア 2024年8月号
+<img src="https://p.sda1.dev/18/80a8b730c32d8d32c57e5d8754f70e36/088.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4507ad1c140a4b9ea45fac3e54fc3c10/089.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/54fa8c0b48c5898548d3847b2f5b7524/090.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a059d4cfc895fc16e7ea11dd92c32d20/091.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c85094a7b653f133eb8881b96265e8f2/092.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/92edf87d848857967e4d98ecf26bdaeb/093.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b04266c42db98bbc47eed5de40e03425/068.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4250c8fe1a3fb12b3abd2f5b2c06fc1d/069.jpg" referrerpolicy="no-referrer">
+

@@ -1780,3 +1780,38 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 一想怎么调整优度就会发现，立希怎么调都是老五甚至老十，考虑到真人也不是响社的，唯一指定垫子 ...</blockquote>
 所以现在狗这边策略就是角色卖猫，cp卖美帝，灯暂时配给立希了，刚好补偿一下每次活动和mc鼓帮羊姐救场的苦劳<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19404#       发表于 2024-7-9 13:41
+
+好家伙，搁这卖婚纱呢，真正的花嫁活是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/09/134058o8kis2hs22ssyizx.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19k-1fj7XeZ3vT3cS112-ru.jpg</strong> (300.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/134059q2nl55x42xo59nk4.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19k-e490Z1aT3cS112-ru.jpg</strong> (247.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 13:40 上传
+
+*****
+
+####  PDQ4  
+##### 19405#       发表于 2024-7-9 13:43
+
+如果单纯考虑立希，就她目前的塑造，只能往灯希上走
+
+毕竟劣等感的角色问题在，现在全靠吸灯缓解，拆了灯希基本上早期角色基础设定吃完了
+
+虽然wsd不是第一次吃书
+

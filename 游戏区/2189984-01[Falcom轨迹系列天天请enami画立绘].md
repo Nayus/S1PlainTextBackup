@@ -983,3 +983,25 @@ e大师真的丑麻了 从零轨开始就是丑的xnmlgb一样 画完界轨赶�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  法拉  
+##### 96#       发表于 2024-7-9 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65518065&amp;ptid=2189984" target="_blank">maojiashu 发表于 2024-7-8 11:01</a>
+我包括轨迹和伊苏两个系列 除了e大师 其他所有画师的立绘都能接受
+
+e大师真的丑麻了 从零轨开始就是丑的xnml ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都能接受那以后让toi8来画轨迹吧
+
+<img src="https://img.saraba1st.com/forum/202407/09/132334ym9or7mn9erx4bsf.png" referrerpolicy="no-referrer">
+
+<strong>the-main-illustrator-for-ys-x-is-toi8-who-previously-worked-v0-l0e7ji5e6oma1.png</strong> (227.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 13:23 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

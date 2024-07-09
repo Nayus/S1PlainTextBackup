@@ -13252,3 +13252,15 @@ gamespot的采访，机翻摘选
 
 桥野桂肯定玩过黎轨，近藤真要和桥野桂对谈，桥野桂不该屁颠屁颠地滚过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1279#       发表于 2024-7-9 19:17
+
+<img src="https://p.sda1.dev/18/0a9cbb14923d5b091305b6d3a4f7adfb/image.jpg" referrerpolicy="no-referrer">
+
+立绘图特典来咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

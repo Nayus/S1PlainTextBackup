@@ -2210,3 +2210,14 @@ C團遺老以為這樣是實錘了在ave動畫會有大動作，
 
 主线和混两部分脚本互相影响比较小，新老角色能不过于ooc有互动应该就会给放出来
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19438#       发表于 2024-7-9 20:47
+
+<img src="https://p.sda1.dev/18/8ace8c0afa8e077f166c218a11f639e9/image.png" referrerpolicy="no-referrer">
+[ Quan🍀 @Qiaoquanquanww](https://x.com/Qiaoquanquanww/status/1810297589251592600)
+
+祥
+

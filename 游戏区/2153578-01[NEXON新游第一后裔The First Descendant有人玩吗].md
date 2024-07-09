@@ -1026,3 +1026,14 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 瑟吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想色得课金
 
+
+*****
+
+####  emmerMK2  
+##### 105#       发表于 2024-7-9 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65530226&amp;ptid=2153578" target="_blank">套路设计师 发表于 2024-7-9 13:56</a>
+
+瑟吗</blockquote>
+一点点，不怎么色
+

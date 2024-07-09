@@ -1973,3 +1973,11 @@ ykls只会赢和赢麻
 一晚没睡</blockquote>
 之前ksm和ars好像也有这方面的暗示，“都怪香澄晚上太兴奋了”什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19419#       发表于 2024-7-9 16:33
+
+但是lisa的夏常服能不能换一下啊，愁<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

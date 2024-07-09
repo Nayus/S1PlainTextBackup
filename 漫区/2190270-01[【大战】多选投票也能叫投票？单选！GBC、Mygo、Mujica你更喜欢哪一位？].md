@@ -821,3 +821,15 @@ PV哭哭的大祥老师太加分了
 
 安的人气看这贴更清晰，是仁菜和桃香票数之和都还有结余<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 80#       发表于 2024-7-9 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65532934&amp;ptid=2190270" target="_blank">aptx8285144 发表于 2024-7-9 18:12</a>
+https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
+
+安的人气看这贴更清晰， ...</blockquote>
+要是有4票mmk不会那么低的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

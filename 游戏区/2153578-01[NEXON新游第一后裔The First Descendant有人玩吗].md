@@ -981,3 +981,19 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 杀怪回护盾的mod有入手途径了吗？资料里居然是空的</blockquote>
 没有获取途径的可以通过合成获取，野外的怪应该也不爆
 
+
+*****
+
+####  魂淡融  
+##### 101#       发表于 2024-7-9 13:15
+
+<img src="https://img.saraba1st.com/forum/202407/09/131455omd7wuxlf78r3wug.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720499771496.jpg</strong> (145.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 13:14 上传
+
+ 不能野排真的蠢
+

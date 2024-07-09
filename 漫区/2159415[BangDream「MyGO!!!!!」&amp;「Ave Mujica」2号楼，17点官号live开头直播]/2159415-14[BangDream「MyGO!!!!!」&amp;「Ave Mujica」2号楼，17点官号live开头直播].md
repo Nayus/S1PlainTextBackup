@@ -1768,3 +1768,15 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 狗现在就是在消耗动画带来的人气，要是主唱努力点其实是有机会再刷一波热度的，但主唱不行的话只能看有多少 ...</blockquote>
 一想怎么调整优度就会发现，立希怎么调都是老五甚至老十，考虑到真人也不是响社的，唯一指定垫子
 
+
+*****
+
+####  NODY  
+##### 19403#       发表于 2024-7-9 13:13
+
+ 本帖最后由 NODY 于 2024-7-9 13:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65529577&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-7-9 12:59</a>
+
+一想怎么调整优度就会发现，立希怎么调都是老五甚至老十，考虑到真人也不是响社的，唯一指定垫子 ...</blockquote>
+所以现在狗这边策略就是角色卖猫，cp卖美帝，灯暂时配给立希了，刚好补偿一下每次活动和mc鼓帮羊姐救场的苦劳<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

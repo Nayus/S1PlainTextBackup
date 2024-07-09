@@ -1294,3 +1294,14 @@ Jpop 口水歌逆流 Anisong 的这个趋势也不知道是好是坏<img src="ht
 
 后面斧乃木还会惹事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 337#       发表于 2024-7-9 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65527998&amp;ptid=2168085" target="_blank">七层嘉影 发表于 2024-7-9 11:51</a>
+斧乃木看起来正经，其实根本就是个冒失娘吧，这个事件不是纯她自己搞砸的吗笑死 ...</blockquote>
+正经（迫真）
+恋物语里因为满口peace peace差点被贝木揍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

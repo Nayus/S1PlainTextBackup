@@ -1005,3 +1005,13 @@ e大师真的丑麻了 从零轨开始就是丑的xnml ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ggyy0088  
+##### 97#       发表于 2024-7-9 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65529852&amp;ptid=2189984" target="_blank">法拉 发表于 2024-7-9 13:23</a>
+这都能接受那以后让toi8来画轨迹吧</blockquote>
+Toi8同期给废狗交的武田信玄都没这么离谱
+

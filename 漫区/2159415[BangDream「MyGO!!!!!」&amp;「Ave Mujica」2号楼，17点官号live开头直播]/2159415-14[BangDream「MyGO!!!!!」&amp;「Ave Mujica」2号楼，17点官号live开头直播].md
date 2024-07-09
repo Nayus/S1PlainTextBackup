@@ -1815,3 +1815,37 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 虽然wsd不是第一次吃书
 
+
+*****
+
+####  ddy2811  
+##### 19406#       发表于 2024-7-9 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528883&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 12:02</a>
+
+就这个店铺进货量来看，日本那边也是爱音＞素世＞灯＞猫＞＞立希，人家赚钱的肯定最清楚怎么进货
+
+这样一想 ...</blockquote>
+日本那边店里也有很多代购拼团的在买，不好说完全代表本土人气吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19407#       发表于 2024-7-9 13:47
+
+这么卖<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+我们鸡肯定也会有幼驯染婚纱活吧，祥子你学习一下你的传奇前辈ykn
+
+三人幼驯染来个三人婚纱活好不好，初睦五星祥子四星
+
+幼驯染就是要结婚的
+
+
+*****
+
+####  skives  
+##### 19408#       发表于 2024-7-9 13:50
+
+作为一个cp洁癖党 祥子是唯一的例外<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

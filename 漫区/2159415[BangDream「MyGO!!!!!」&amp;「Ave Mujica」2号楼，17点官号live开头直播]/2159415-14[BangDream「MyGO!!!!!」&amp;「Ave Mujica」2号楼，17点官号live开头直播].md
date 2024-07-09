@@ -2091,3 +2091,13 @@ ykls卖这么大（）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么只剩300+了，跑了这么多人吗
 
+
+*****
+
+####  MASKA-1  
+##### 19428#       发表于 2024-7-9 20:04
+
+听说go团手游团活停了，要等明年mujica，是真的吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

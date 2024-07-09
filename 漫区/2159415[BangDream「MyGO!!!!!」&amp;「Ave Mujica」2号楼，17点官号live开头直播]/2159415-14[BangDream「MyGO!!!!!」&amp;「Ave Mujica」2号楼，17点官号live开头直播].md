@@ -2221,3 +2221,36 @@ C團遺老以為這樣是實錘了在ave動畫會有大動作，
 
 祥
 
+
+*****
+
+####  NODY  
+##### 19439#       发表于 2024-7-9 20:57
+
+怎么还有300+怨种去米亚亲买碟啊，这家都爆了多少次雷了，各种私吞特典或者扣货物要求加钱才发货的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19440#       发表于 2024-7-9 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/09/210133rd1jvm8m2imvdoqm.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240709-125900_1810659921479737677_photo-0.jpg</strong> (588.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/210139nr12tx2ynw1r1txw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_渡瀬 結月(@Watase_Yuzuki)_20240709-125900_1810659921479737677_photo-1.jpg</strong> (541.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 21:01 上传
+
+[https://x.com/Watase_Yuzuki/status/1810659921479737677](https://x.com/Watase_Yuzuki/status/1810659921479737677)
+

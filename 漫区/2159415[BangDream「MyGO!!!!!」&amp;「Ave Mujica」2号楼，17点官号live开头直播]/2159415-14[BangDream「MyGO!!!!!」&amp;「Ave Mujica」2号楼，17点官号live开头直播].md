@@ -1611,3 +1611,61 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 看剧场版staff表大概加的部分脚本是柿本写。
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 19390#       发表于 2024-7-9 11:59
+
+ 本帖最后由 平昭·南宫司卿 于 2024-7-9 12:00 编辑 
+
+感觉上楚平方和 tmtm 这块最早应该还是有想作为一个二三次元的桥梁的，冲淡一点 ras 专业雇佣兵的味道（不过确实是没想到大姐头配音和节目都挺有天赋的），可惜性格不算讨好之外还要和老团冲突，步子迈的太大而且也没迈好，要是最早是最近一次团活的那个形象的 chuchu 来给人第一印象的话就好了；现在来说的话，楚平方的怪叫还算挺有特色，砍掉了真还少点味道，只是喜不喜欢另说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19391#       发表于 2024-7-9 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528816&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-9 11:56</a>
+
+talk塞的动画制作发表会吧
+
+mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五爽姐和立希随机二选一
+
+ ...</blockquote>
+就这个店铺进货量来看，日本那边也是爱音第一灯素第二猫第四立希垫底，人家赚钱的肯定最清楚怎么进货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/09/120217cd16bszf06mzh0fa.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ19k-lf8cXbZ36T3cSzk-k0.jpg</strong> (245.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 12:02 上传
+
+*****
+
+####  Aendst  
+##### 19392#       发表于 2024-7-9 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528883&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 12:02</a>
+
+就这个店铺进货量来看，日本那边也是爱音第一灯素第二猫第四立希垫底，人家赚钱的肯定最清楚怎么进货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你蹲一下煤炉就知道了
+
+
+*****
+
+####  -LYRE-  
+##### 19393#       发表于 2024-7-9 12:05
+
+ 本帖最后由 -LYRE- 于 2024-7-9 12:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65528883&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-9 12:02</a>
+就这个店铺进货量来看，日本那边也是爱音＞素世＞灯＞猫＞＞立希，人家赚钱的肯定最清楚怎么进货
+
+这样一想 ...</blockquote>
+按你这图难道不是爱音＝爽世＞灯＞猫＞立希吗
+爱音和爽世都是6列，灯5列，猫4列，立希2列
+
+编辑：啧，怎么突然编辑了，原来说的是爱音第一灯素第二猫第四，所以才提出疑问
+

@@ -1275,3 +1275,14 @@ UNDEAD 原来是这季物语的 ED 吗，没有关注，Apple Music 推了就听
 
 Jpop 口水歌逆流 Anisong 的这个趋势也不知道是好是坏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  谁又在偷我流量  
+##### 335#       发表于 2024-7-9 12:07
+
+你为什么会觉得余接是个很正经的式神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+她的制作过程从总策划到制作她的人就没有一个是正经的，她看起来正经是因为开场有余弦在身旁+早见滤镜，余弦跑到北极之后她的人设就崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

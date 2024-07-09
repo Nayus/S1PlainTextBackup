@@ -1720,3 +1720,32 @@ mygo本土最热猫，第二爱音，灯主唱位然而只能排第三，四五�
 
 或者直接看kbook买取情报也比较准，像这个就很明显
 
+
+*****
+
+####  NODY  
+##### 19398#       发表于 2024-7-9 12:24
+
+按上面这个价格的话wsd还真挺看市场的，总集篇预告给猫戏份，鸡预告片给睦祥戏份，刚好是卖得最贵的三个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19399#       发表于 2024-7-9 12:24
+
+不得不说kb真的黑
+1200收3300卖<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 19400#       发表于 2024-7-9 12:29
+
+最近学到个道理，就是别美化没走过的路
+
+现在是车WSD给了打牌姐过多的戏份，但是考虑到打牌姐除了狗以外并没摆而且上升势头很好，如果真的没给偷摸零很多戏份，那现在的车法是不是怪WSD没给零一优机会？WSD又开不了天眼，不要基于做决策时无法预料/避免的事情去评价决策
+
+看后面吧，如果后续还是个死舔狗的样子再车也不急
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

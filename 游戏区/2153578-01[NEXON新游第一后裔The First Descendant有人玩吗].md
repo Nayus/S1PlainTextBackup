@@ -997,3 +997,14 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
  不能野排真的蠢
 
+
+*****
+
+####  X9999  
+##### 102#       发表于 2024-7-9 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65529761&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-7-9 13:15</a>
+
+不能野排真的蠢</blockquote>
+太JB蠢了，4202年了还不能野排
+

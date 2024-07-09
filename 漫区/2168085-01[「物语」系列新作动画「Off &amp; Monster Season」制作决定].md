@@ -1254,3 +1254,24 @@ I SCREAM，懂了，致敬冰菓</blockquote>
 都仨月了撒盐这点事没干成，阿良良木你有什么用（）</blockquote>
 别说三个月了，三年也干不成啊，因为阿良良木根本见不到抚子，后面几年都见不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 333#       发表于 2024-7-9 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65527998&amp;ptid=2168085" target="_blank">七层嘉影 发表于 2024-7-9 10:51</a>
+ 斧乃木看起来正经，其实根本就是个冒失娘吧，这个事件不是纯她自己搞砸的吗笑死 ...</blockquote>
+无口不代表正经，无论是鬼哥哥这个谐音梗，还是没事就比剪刀peace～peace～，其实多少能看出是个很皮的人……尸。续终虽然说是垃圾君的内心世界，但对角色的解析是准确的，平时斧乃木心里自己可能就是这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junakr  
+##### 334#       发表于 2024-7-9 11:27
+
+UNDEAD 原来是这季物语的 ED 吗，没有关注，Apple Music 推了就听了。
+
+单听还不错，就是完全不会想到它会在物语系列中出现。
+
+Jpop 口水歌逆流 Anisong 的这个趋势也不知道是好是坏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+

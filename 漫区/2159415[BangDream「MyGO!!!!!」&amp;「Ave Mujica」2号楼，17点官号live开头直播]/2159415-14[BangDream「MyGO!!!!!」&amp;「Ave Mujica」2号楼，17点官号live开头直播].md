@@ -1962,3 +1962,14 @@ ykls只会赢和赢麻
 あこ: 早上好……你们两个怎么都有好大的黑眼圈！？</blockquote>
 一晚没睡<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 19418#       发表于 2024-7-9 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65531067&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-9 15:15</a>
+
+一晚没睡</blockquote>
+之前ksm和ars好像也有这方面的暗示，“都怪香澄晚上太兴奋了”什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

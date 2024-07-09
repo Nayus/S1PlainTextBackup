@@ -13183,3 +13183,13 @@ gamespot的采访，机翻摘选
 
 女朋友云了一下之后表示对黎老师人设兴趣很大想入坑，是该让她从1开始4+1全玩一遍吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 1271#       发表于 2024-7-9 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65530536&amp;ptid=2160194" target="_blank">mrm4B 发表于 2024-7-9 14:26</a>
+女朋友云了一下之后表示对黎老师人设兴趣很大想入坑，是该让她从1开始4+1全玩一遍吗 ...</blockquote>
+就让她玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

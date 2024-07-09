@@ -2254,3 +2254,36 @@ C團遺老以為這樣是實錘了在ave動畫會有大動作，
 
 [https://x.com/Watase_Yuzuki/status/1810659921479737677](https://x.com/Watase_Yuzuki/status/1810659921479737677)
 
+
+*****
+
+####  hitori酱  
+##### 19441#       发表于 2024-7-9 21:52
+
+<img src="https://img.saraba1st.com/forum/202407/09/215157n3s0zjtz1wfz633w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 21:51 上传
+
+@Floweringre
+
+*****
+
+####  鳥栖朝  
+##### 19442#       发表于 2024-7-9 21:53
+
+ 本帖最后由 鳥栖朝 于 2024-7-9 21:56 编辑 
+
+如果没在z8看到那个发癫的贴，我都没发现李子的鞋大得离谱
+
+<img src="https://img.saraba1st.com/forum/202407/09/215259zxz0xdgd7bf8fd75.jpg" referrerpolicy="no-referrer">
+
+<strong>F62EC251121D49C039E0191DB6E52F0D.jpg</strong> (87.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 21:52 上传
+

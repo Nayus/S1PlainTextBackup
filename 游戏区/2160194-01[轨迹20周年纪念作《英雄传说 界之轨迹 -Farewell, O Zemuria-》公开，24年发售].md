@@ -12941,3 +12941,55 @@ ps市场规模下降所以销量跟着跌而已，
 
 这个MV做得真好，每一段都精心设计了故事线
 
+
+*****
+
+####  卢迪克  
+##### 1248#       发表于 2024-7-9 09:47
+
+Azario Lopez：隨著重製和重置越來越成為一種選擇，您是否很難不想回去重新開發其中一些故事？
+
+近藤季洋：作為創作者，不想回去也許稍微修整一下這些舊遊戲並重製它們，確實有點困難。作為創作者，這絕對是一種渴望。說實話，我不能透露詳細信息，但我們正在開發一款可以被認為是重製的遊戲。預計在今年年底前會聽到有關這款遊戲的消息。
+
+*****
+
+####  卢迪克  
+##### 1249#       发表于 2024-7-9 09:48
+
+空re亡了，估计就是素材高清化
+
+
+*****
+
+####  卢迪克  
+##### 1250#       发表于 2024-7-9 09:53
+
+Right now in the Trails games, we're on the fourth arc. Is there a planned number of arcs left? Is there a planned end of the series?
+
+Actually, the series has progressed to the point where its main story is about 80-90% complete. And so while there will be games that come out, and those could be in the form of another arc after this, it won't continue on too much longer. And you won't see an arc as big as Cold Steel again. Though we're currently celebrating the 20th anniversary of the series, you won't see a 30th or 40th anniversary.
+
+
+*****
+
+####  洛克萨斯  
+##### 1251#       发表于 2024-7-9 09:57
+
+近藤季洋：今年早些时候，我们在日本宣布了《东京幻都》系列的新作。Nihon Falcom 的年轻员工正在开发这款游戏。这是粉丝们真正应该期待的东西，它本质上是一个新的 IP
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">献祭伊苏10，黎轨2，界轨的新台柱么！
+
+*****
+
+####  卢迪克  
+##### 1252#       发表于 2024-7-9 09:58
+
+With Trails starting to wind down and this emphasis on new IPs, is the studio looking at starting a new major series?
+
+As for a direct successor to the Trail series, there's nothing specifically planned--we're just extremely focused on finishing up Trails. However, in terms of new IPs, there are actually several things that are actively being worked on right now.
+
+You see, the Trails series has been going on for 20 years now, and as great a thing as that is, the issue is that that means a lot of folks have been working on that title for many, many years. They want to try new things. They have new ideas. There are new challenges they want to tackle.
+
+Developing a game series like Trails over this great period of time is kind of like developing an online game in that you're constantly thinking, "What's the next event or thing that we have to do? What's the course of the game itself?" And what that causes, a lot of times, is that the younger staff and their development kind of stagnates for a while. But I want them to be able to grow and experience new things that lead to new skills and new ideas.
+
+So, in the background, we allow them to create and work on these new IPs--to talk about the things that they want to do. I believe that that will make them even stronger developers and they'll have even better ideas that contribute even more to our games.
+

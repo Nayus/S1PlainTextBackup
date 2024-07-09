@@ -2345,3 +2345,18 @@ cd版神明大人怎么比原版还差，连修音师都救不回来了，wsd不
 
 合同一般多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19450#       发表于 2024-7-10 00:00
+
+新版神明大人和端程山，用b站评论区的委婉说法就是“主唱太惜命了”，怀疑羊姐嫌弃灯的唱法影响自己声优事业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19451#       发表于 2024-7-10 00:03
+
+emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的还是之后呢，如果之前就决定的话杨姐好像有点糊弄工作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

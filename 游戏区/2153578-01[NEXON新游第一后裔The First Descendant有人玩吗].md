@@ -971,3 +971,13 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 反而是开局的那段拉跨得一比 ...</blockquote>
 没有明确演出的死掉（比如切掉脑袋）加从高出丢下水，这是用烂了的以后还会回来的梗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魂淡融  
+##### 100#       发表于 2024-7-9 09:00
+
+<blockquote>盾墙 发表于 2024-7-8 22:58
+杀怪回护盾的mod有入手途径了吗？资料里居然是空的</blockquote>
+没有获取途径的可以通过合成获取，野外的怪应该也不爆
+

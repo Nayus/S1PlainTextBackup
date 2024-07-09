@@ -13035,3 +13035,13 @@ So, in the background, we allow them to create and work on these new IPs--to tal
 
 你法：忘掉轨迹吧，东迷2才是你们真正应该期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1258#       发表于 2024-7-9 11:03
+
+ 本帖最后由 卢迪克 于 2024-7-9 11:04 编辑 
+
+近藤说他们有多个新ip项目，由年轻开发者领衔，数年后玩家可以明确感到falcom真的改变了
+

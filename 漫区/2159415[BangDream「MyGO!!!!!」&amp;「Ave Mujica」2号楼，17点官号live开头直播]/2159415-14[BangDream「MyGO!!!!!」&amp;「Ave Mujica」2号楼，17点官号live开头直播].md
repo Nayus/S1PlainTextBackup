@@ -2370,3 +2370,11 @@ emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的�
 
 錄音版的墮天好狂阿，跟live的感覺又不一樣(兩種版本都suki)
 
+
+*****
+
+####  akiomn  
+##### 19453#       发表于 2024-7-10 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主唱有点太惜命了
+

@@ -515,3 +515,11 @@ https://www.takaratomy.co.jp/pro ... ectorlothwixoss.php
 
 官方把主题歌标题搞错了，应该是《INNER CHILD》，不是《INNNER CHILD》，我还以为是故意多加一个N的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藤田有静  
+##### 42#       发表于 2024-7-9 19:14
+
+上来就负能量大开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打wixoss真会获得幸福吗
+

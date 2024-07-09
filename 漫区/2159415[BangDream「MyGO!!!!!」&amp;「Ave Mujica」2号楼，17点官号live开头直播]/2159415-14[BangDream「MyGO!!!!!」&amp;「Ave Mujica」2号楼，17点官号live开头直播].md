@@ -2306,3 +2306,11 @@ wsd不能給她換個合腳一點的嗎
 
 愛知踩音箱還差點摔了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19445#       发表于 2024-7-9 23:06
+
+wsd的后勤不是传统狗柿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前贵贵说过有次live发现她的鞋子坏了，本来想玻玻站在后面看不到就借穿玻玻的，结果没两下玻玻的也坏掉了
+

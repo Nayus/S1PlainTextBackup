@@ -13045,3 +13045,61 @@ So, in the background, we allow them to create and work on these new IPs--to tal
 
 近藤说他们有多个新ip项目，由年轻开发者领衔，数年后玩家可以明确感到falcom真的改变了
 
+
+*****
+
+####  ravend233  
+##### 1259#       发表于 2024-7-9 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这访谈确实说明你法社内部不不管是老登还是新登都不想继续做你轨这个玩意了（）
+
+*****
+
+####  一步成诗  
+##### 1260#       发表于 2024-7-9 11:15
+
+只有你们这群冤大头韭菜还惦记着呢，不想做但是还要拖，匪夷所思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1261#       发表于 2024-7-9 11:15
+
+gamespot的采访，机翻摘选
+
+网址：[https://www.gamespot.com/article ... ;utm_medium=twitter](https://www.gamespot.com/articles/whats-next-after-a-20-year-old-rpg-series-ends-ys-and-trails-director-toshihiro-kondo-talks-falcoms-future/1100-6524780/?ftag=CAD-01-10abi2f&amp;utm_source=dlvr.it&amp;utm_medium=twitter)
+
+<img src="https://img.saraba1st.com/forum/202407/09/111445c5ut5dt888md4dn5.png" referrerpolicy="no-referrer">
+
+<strong>R98O0E8(4$]K210]89_``1B.png</strong> (94.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 11:14 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/111505z8xsp3vuwxa33350.png" referrerpolicy="no-referrer">
+
+<strong>4U@1SCSVRTDVN7{4(DT@K2K.png</strong> (110.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/111515go9i1kf1oll5e1ei.png" referrerpolicy="no-referrer">
+
+<strong>`LNBZJ{5L0%3I~1]TH%@)}U.png</strong> (81.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202407/09/111526t2iml2ngxxgki74l.png" referrerpolicy="no-referrer">
+
+<strong>AZ9CPF_~H(F7)PWF20{DC.png</strong> (142.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 11:15 上传
+
+总体还是比较废话的（）
+

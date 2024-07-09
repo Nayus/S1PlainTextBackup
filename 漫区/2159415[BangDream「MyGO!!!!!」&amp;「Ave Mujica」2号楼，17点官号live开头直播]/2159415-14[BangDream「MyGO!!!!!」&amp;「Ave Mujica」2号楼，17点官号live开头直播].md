@@ -1463,3 +1463,44 @@ Roselia不是挺成功的。
 
 狗团有救可能性大点的就羊和岭内知美一样声优废业
 
+
+*****
+
+####  星天观测  
+##### 19374#       发表于 2024-7-9 11:09
+
+还是得看人，李子也不是wsd的人啊，真尽力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 19375#       发表于 2024-7-9 11:11
+
+<img src="https://img.saraba1st.com/forum/202407/09/111124vx6130yws7bysyy9.png" referrerpolicy="no-referrer">
+
+<strong>Image_1720494625653.png</strong> (116.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-9 11:11 上传
+
+好久好久不见的双人ban
+
+
+*****
+
+####  星天观测  
+##### 19376#       发表于 2024-7-9 11:15
+
+我超！结婚！我永远喜欢ykls！
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19377#       发表于 2024-7-9 11:15
+
+狗现在就是在消耗动画带来的人气，要是主唱努力点其实是有机会再刷一波热度的，但主唱不行的话只能看有多少人愿意留下来了
+
+比较幸运的是人气最高的是爱音，灯只能和素世争第二，这样拖后腿的程度还没那么高，剧场版总集篇抬了一下猫大概也是意识到主唱扶不起，只能把原本作为底边位牺牲掉的猫捞回来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

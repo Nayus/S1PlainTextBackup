@@ -1410,3 +1410,13 @@ TV里没有的育迷失和黑仪约会的OP都在BD补回来了，只要aniplex�
 斧乃木看起来正经，其实根本就是个冒失娘吧，这个事件不是纯她自己搞砸的吗笑死 ...</blockquote>
 斧乃木变冒失其实和月火有关，她本身是很容易被周围人影响的怪异，和月火在一起待久了事事搞砸
 
+
+*****
+
+####  竹様  
+##### 346#       发表于 2024-7-10 17:27
+
+刚发现staple stable居然有NC版本的OP，当初找了很久没找到，有谁知道这个OP是收录在哪里的吗？
+
+[https://www.bilibili.com/video/B ... cc899dca070e6406709](https://www.bilibili.com/video/BV1ZE411g7W2?p=1&amp;vd_source=73960a4052e47cc899dca070e6406709)
+

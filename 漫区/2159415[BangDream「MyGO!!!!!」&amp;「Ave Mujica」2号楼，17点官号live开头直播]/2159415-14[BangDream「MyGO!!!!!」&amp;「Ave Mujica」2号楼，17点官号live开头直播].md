@@ -2378,3 +2378,16 @@ emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主唱有点太惜命了
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19454#       发表于 2024-7-10 08:29
+
+<img src="https://p.sda1.dev/18/ac80fca36210efccd9c38b926eb07f8b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/87eb662294963e51d31153ecd7f7183e/image.jpg" referrerpolicy="no-referrer">
+
+柿本明确这俩确实是素睦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

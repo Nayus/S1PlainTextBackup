@@ -2696,3 +2696,32 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 
 该猜邦TV座位序了，如果和图一样那明天是不是高尾和米泽要贴麻了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19481#       发表于 2024-7-10 19:15
+
+ 本帖最后由 PDQ4 于 2024-7-10 19:16 编辑 
+
+[https://x.com/carthur_x/status/1810992364715958778](https://x.com/carthur_x/status/1810992364715958778)
+
+神迹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/10/191543khfer8ozo35soy8i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 19:15 上传
+
+
+*****
+
+####  第七軍伐戎処  
+##### 19482#       发表于 2024-7-10 19:22
+
+<img src="https://p.sda1.dev/18/e7b6b6d8dec6f76ac6101ce0eb5cfb0a/image.png" referrerpolicy="no-referrer">
+[ 4/3 @sigangsan](https://x.com/sigangsan/status/1810950783359414531)
+

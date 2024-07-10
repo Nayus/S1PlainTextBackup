@@ -2475,3 +2475,15 @@ emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的�
 
 就算内斗还是要看剧本如何就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19461#       发表于 2024-7-10 12:21
+
+<img src="https://p.sda1.dev/18/2f9dd4e4c42133da8340d94b787d930f/image.jpg" referrerpolicy="no-referrer">
+[Cracy_Logan](https://x.com/Cracy_Logan/status/1810668229863555326?s=19)
+素睦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

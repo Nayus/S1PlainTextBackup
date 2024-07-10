@@ -13537,3 +13537,19 @@ gamespot的采访，机翻摘选
 
 感觉我方介绍也没什么好看的了，东西一次比一次少，等等新系统和长pv吧
 
+
+*****
+
+####  ravend233  
+##### 1309#       发表于 2024-7-10 16:15
+
+还是料太少了，假药都造不动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前所有的料都只是说了什么老角色会来，关于剧情是一点都猜不到
+
+
+*****
+
+####  一步成诗  
+##### 1310#       发表于 2024-7-10 16:24
+
+这阵仗看着又是分线又是找队友的，界2板上钉钉，这作估计也没什么好猜的了，最搞的还是明年说好了东迷2，闪34好歹没有隔一年，界这下有好戏看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

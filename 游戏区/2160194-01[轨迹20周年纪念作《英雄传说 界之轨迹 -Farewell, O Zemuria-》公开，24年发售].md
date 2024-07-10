@@ -13676,3 +13676,11 @@ gamespot的采访，机翻摘选
 
 3rd是真的惨<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">我明明挺喜欢葱头的
 
+
+*****
+
+####  Archlich³  
+##### 1323#       发表于 2024-7-11 03:48
+
+卧槽学妹那个灾难的鼻子藏住了，换拉碧丝脸上长出来了是吧
+

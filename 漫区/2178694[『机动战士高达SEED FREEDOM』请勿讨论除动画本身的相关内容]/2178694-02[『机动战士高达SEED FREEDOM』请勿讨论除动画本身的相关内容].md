@@ -14,3 +14,14 @@
 
 2024-7-10 23:50 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 1807#       发表于 2024-7-11 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546972&amp;ptid=2178694" target="_blank">kyonkoism 发表于 2024-7-10 23:50</a>
+
+草草草草草草草 分身是真分身，鸟疑似成为SEED宇宙最强机师，真正的有了命运我就是无敌的</blockquote>
+鸟觉醒了武斗传角色的能力罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

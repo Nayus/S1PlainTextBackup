@@ -3041,3 +3041,28 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  鳥栖朝  
+##### 19511#       发表于 2024-7-11 00:02
+
+希望之后的编曲多给弄上点压力
+
+*****
+
+####  daiquan333  
+##### 19512#       发表于 2024-7-11 00:04
+
+想问问漏油是不是bml没有现场直播
+
+*****
+
+####  御幸一也  
+##### 19513#       发表于 2024-7-11 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546880&amp;ptid=2159415" target="_blank">H2Ofrozen 发表于 2024-7-10 23:37</a>
+
+现在的新派重型最典型的就这种曲风，主副歌和声走向听起来比较旋律化，但是其实很难弹...这首earth跟母鸡 ...</blockquote>
+樓友好專業，我只看懂了這首歌是在軍訓李子<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+

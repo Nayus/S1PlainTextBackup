@@ -855,3 +855,16 @@ https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
 长期素食很健康女士 ...</blockquote>
 虽然我是在追的时候粉祥子，但很明显祥子现在的人气和风评极大托了二创的福<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shinraki  
+##### 83#       发表于 2024-7-10 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65536384&amp;ptid=2190270" target="_blank">ParadiseMartyr 发表于 2024-7-10 01:30</a>
+祥子人气这么高？第一季里面除了当客服的喜剧塑造，其他时候基本上都是反派的感觉吧？
+长期素食很健康女士 ...</blockquote>
+反派在国内不是人气低的buff，很多国人喜欢反派的，这一点和日本不同<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

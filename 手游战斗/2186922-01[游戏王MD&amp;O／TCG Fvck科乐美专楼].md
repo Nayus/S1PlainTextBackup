@@ -132,3 +132,14 @@
 
 BAN MAXXC！
 
+
+*****
+
+####  没名字怎么办  
+##### 97#       发表于 2024-7-11 06:33
+
+我超别
+刚收三张g<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

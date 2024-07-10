@@ -13553,3 +13553,11 @@ gamespot的采访，机翻摘选
 
 这阵仗看着又是分线又是找队友的，界2板上钉钉，这作估计也没什么好猜的了，最搞的还是明年说好了东迷2，闪34好歹没有隔一年，界这下有好戏看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1311#       发表于 2024-7-10 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界一部完结不了可以看销量还能下探到什么程度了
+

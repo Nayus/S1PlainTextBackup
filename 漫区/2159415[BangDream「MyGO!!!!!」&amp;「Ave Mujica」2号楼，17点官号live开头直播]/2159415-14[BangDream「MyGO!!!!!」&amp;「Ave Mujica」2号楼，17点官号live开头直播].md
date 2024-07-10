@@ -3031,3 +3031,13 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 米泽我现在已经不担心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 多练练以后拼盘就可以上全谱了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 19510#       发表于 2024-7-10 23:49
+
+立石凛生日推下面就🐢没回复，太没人情味了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2509,3 +2509,11 @@ fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
 
 去年以为兽尼就能在大部分场合代替狂C呆了现在看来完全不能....狂C呆的泛用性还是要高太多<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 13027#       发表于 2024-7-11 00:53
+
+想要泳装巴万西<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

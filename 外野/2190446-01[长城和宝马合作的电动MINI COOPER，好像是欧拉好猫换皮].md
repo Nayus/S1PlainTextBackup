@@ -441,3 +441,16 @@ smart这俩上市比极氪x早了一年不止<img src="https://static.saraba1st.
 那么这个电动的有敞篷版嘛》？</blockquote>
 首批没有
 
+
+*****
+
+####  有个梨  
+##### 45#       发表于 2024-7-10 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65513154&amp;ptid=2190446" target="_blank">johnie 发表于 2024-7-7 21:25</a>
+
+smart这俩上市比极氪x早了一年不止</blockquote>
+但底子是吉利的。
+
+而且不到一年。
+

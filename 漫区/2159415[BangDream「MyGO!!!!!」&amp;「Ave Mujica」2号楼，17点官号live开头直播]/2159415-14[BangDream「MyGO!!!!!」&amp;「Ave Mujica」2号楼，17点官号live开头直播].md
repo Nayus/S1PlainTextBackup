@@ -2923,3 +2923,29 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 坛友们有没有推荐的？<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19502#       发表于 2024-7-10 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546120&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-7-10 22:06</a>
+
+想给平板电脑桌面换个壁纸，主要横着用，分辨率为2560×1600
+
+坛友们有没有推荐的？ ...</blockquote>
+
+那我就要推……<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+我的ipad就是用的這個，缺點是豎著的時候自動ban掉了睦祥()
+
+<img src="https://img.saraba1st.com/forum/202407/10/220835lliqzssxzva5hxll.jpg" referrerpolicy="no-referrer">
+
+<strong>GPo2UbAa8AA829a.jpg</strong> (584.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 22:08 上传
+
+[https://x.com/Yukikuma_018/status/1799811328166768911](https://x.com/Yukikuma_018/status/1799811328166768911)
+

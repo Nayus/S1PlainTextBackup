@@ -13659,3 +13659,12 @@ gamespot的采访，机翻摘选
 
 2024-7-11 03:21 上传
 
+
+*****
+
+####  Aeons  
+##### 1321#       发表于 2024-7-11 03:35
+
+最逼话不是那个东轨才是真正值得期待的东西吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉是翻译问题，太幽默，有点类似某个表情包
+

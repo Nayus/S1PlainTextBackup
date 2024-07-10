@@ -967,3 +967,15 @@ nga和S1都有19选1啊，又到了我第八喜欢的投票环节和第六喜欢
 —— 来自 vivo V2183A, Android 14上的 S1Next-鹅 ...</blockquote>
 当时国内言论对祥子也没多友好阿
 
+
+*****
+
+####  shinraki  
+##### 93#       发表于 2024-7-10 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65545124&amp;ptid=2190270" target="_blank">jerryoq1 发表于 2024-7-10 20:25</a>
+当时国内言论对祥子也没多友好阿</blockquote>
+13集以后祥子人气就慢慢变高了 ，日本那边没这种迹象
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

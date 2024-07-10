@@ -2740,3 +2740,28 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 
 <img src="https://p.sda1.dev/18/7f2bb0973e5e7e967d2b15b2f92900a9/image.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19485#       发表于 2024-7-10 20:34
+
+预告图就是座位，一直是这样的
+
+*****
+
+####  罗克萨斯  
+##### 19486#       发表于 2024-7-10 20:39
+
+Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  星天观测  
+##### 19487#       发表于 2024-7-10 20:42
+
+那我想看的李弄贴贴寄了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

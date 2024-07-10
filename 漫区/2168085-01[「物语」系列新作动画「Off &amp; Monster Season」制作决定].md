@@ -1428,3 +1428,16 @@ TV里没有的育迷失和黑仪约会的OP都在BD补回来了，只要aniplex�
 
 角色歌没什么大牌不大牌，反而是大牌不愿意唱（铃村太太），因为角色歌cv没版权，纯日结打工
 
+
+*****
+
+####  Sliurus  
+##### 348#       发表于 2024-7-10 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65542973&amp;ptid=2168085" target="_blank">歪镜 发表于 2024-7-10 16:46</a>
+
+斧乃木变冒失其实和月火有关，她本身是很容易被周围人影响的怪异，和月火在一起待久了事事搞砸 ...</blockquote>
+近朱者赤，近墨者黑，近谐者谐
+
+不过余弦感觉也是专家组里最菜的，除了战力猛，好像就没处理完过什么怪异事件
+

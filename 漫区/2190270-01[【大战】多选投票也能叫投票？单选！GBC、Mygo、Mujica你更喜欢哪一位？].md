@@ -888,3 +888,15 @@ https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
 
 日本那边是哪来的数据？只找到一个全邦的排名ykn第一，只算鸡狗的话灯第一祥第二(当然都跑到40开外了)来自: iPhone客户端
 
+
+*****
+
+####  shinraki  
+##### 86#       发表于 2024-7-10 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65540118&amp;ptid=2190270" target="_blank">jerryoq1 发表于 2024-7-10 12:30</a>
+日本那边是哪来的数据？只找到一个全邦的排名ykn第一，只算鸡狗的话灯第一祥第二(当然都跑到40开外了) ...</blockquote>
+邦吧有人问过霓虹朋友说他们那边睦人气比祥子高，祥子被车的挺惨的
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

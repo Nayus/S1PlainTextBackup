@@ -2630,3 +2630,24 @@ image.png
 
 至少狗动画的时候是没问题的，就看是剧场版导致还是鸡动画导致，还是什么其他私事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19475#       发表于 2024-7-10 14:30
+
+原創本來就要花更多的時間，一般都3年起，
+
+就說同是3D的gbc，2019年末開始的到現在就是4年多。（[https://au.utapass.auone.jp/lp/interview-kenji-tamai](https://au.utapass.auone.jp/lp/interview-kenji-tamai) ）
+
+go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是神速……
+
+總之就是菜花肯定搞的時間更長<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 19476#       发表于 2024-7-10 14:33
+
+都穿和服了也不舍得换个配套的新面具或者不戴面具，这个样子是不是代表mujica以后都没有新衣服？
+

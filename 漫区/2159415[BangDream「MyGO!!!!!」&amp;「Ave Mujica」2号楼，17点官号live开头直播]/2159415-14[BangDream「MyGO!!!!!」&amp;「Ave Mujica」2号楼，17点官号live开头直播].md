@@ -2582,3 +2582,28 @@ image.png
 
 为什么和服也不能换面具，和风面具不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19469#       发表于 2024-7-10 14:00
+
+开始产生就算进了手游也会衣服可以换假面不能换的悲伤预感了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19470#       发表于 2024-7-10 14:03
+
+菜花那边刚出的访谈还说柿本和独角兽相谈甚欢呢，这边又不给看分镜稿了，到底哪边才是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19471#       发表于 2024-7-10 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪裡不給看分鏡了，原文明明是讓確認到分鏡為止。
+
+是分鏡之後的，例如配音什麼的無法確認
+

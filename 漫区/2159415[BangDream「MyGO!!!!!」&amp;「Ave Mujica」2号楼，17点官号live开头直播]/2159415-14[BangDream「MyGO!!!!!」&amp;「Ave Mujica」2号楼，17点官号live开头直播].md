@@ -2684,3 +2684,15 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 
 算了，好像是国内专供，写了人偶名说不定wsd没给改面具的权限怕影响世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19480#       发表于 2024-7-10 18:58
+
+不知道是a+特供还是国内限定
+
+看看日本那边上不上，可能明天邦TV就有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+该猜邦TV座位序了，如果和图一样那明天是不是高尾和米泽要贴麻了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

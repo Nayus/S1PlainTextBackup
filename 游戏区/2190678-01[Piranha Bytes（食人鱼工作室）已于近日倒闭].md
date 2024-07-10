@@ -429,3 +429,20 @@ crytek这几年好像靠着猎杀对决缓了一口气，最近还要升级引�
 
 不过现在还是有厂商用他们的引擎，比如战马工作室。
 
+
+*****
+
+####  maninhole  
+##### 44#       发表于 2024-7-10 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65541013&amp;ptid=2190678" target="_blank">古代人皮克 发表于 2024-7-10 14:00</a>
+
+crytek也是多灾多难，主要还是压错宝
+
+全球工作室差不多都关完了，crytek黑海卖给ca变成ca索菲亚，crytek基 ...</blockquote>
+什么crytek 基辅不还是做warface的主力来着吗
+
+怎么直接独立跑出去了？
+
+上回听说他还是说潜行者2的开发人员里有不少是从那里来的···
+

@@ -921,3 +921,16 @@ nga和S1都有19选1啊，又到了我第八喜欢的投票环节和第六喜欢
 —— 来自 vivo V2183A, Android 1 ...</blockquote>
 国内其实很多人不喜欢的是无情的角色（比如对夜神月，粉丝很多时候也只是谈支持他的理论）
 
+
+*****
+
+####  jerryoq1  
+##### 89#       发表于 2024-7-10 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65540562&amp;ptid=2190270" target="_blank">shinraki 发表于 2024-7-10 13:14</a>
+
+邦吧有人问过霓虹朋友说他们那边睦人气比祥子高，祥子被车的挺惨的
+
+—— 来自 vivo V2183A, Android 14 ...</blockquote>
+这种张口就来没数据的我都当乐子看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

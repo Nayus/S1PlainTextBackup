@@ -13602,3 +13602,11 @@ gamespot的采访，机翻摘选
 
 那就好好完结，给轨迹一个风光大葬，体面一点<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  闭挂锁人  
+##### 1316#       发表于 2024-7-10 17:08
+
+宣不宣发都是这些老逼在买，确实不如省一笔宣发钱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

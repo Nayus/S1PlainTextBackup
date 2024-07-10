@@ -104,3 +104,13 @@
 
 后手还可以等对面小唐人，前阵子看直播，主播遇到的小唐人可太多了
 
+
+*****
+
+####  相濡以沫  
+##### 95#       发表于 2024-7-10 17:14
+
+小轴王是真tm的恶心又无趣，真是受够了这些无自肃又泛用的小轴<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

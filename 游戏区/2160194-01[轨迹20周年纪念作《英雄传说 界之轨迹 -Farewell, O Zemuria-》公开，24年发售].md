@@ -13496,3 +13496,14 @@ gamespot的采访，机翻摘选
 
 不要灰心，黎七月是一期官网师姐。菲，金，一期杂志，结社 魔装鬼
 
+
+*****
+
+####  ravend233  
+##### 1305#       发表于 2024-7-10 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65541852&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-10 15:13</a>
+
+指望黎老师赚钱又不给单独一期杂志，虽然也不敢百分百说下期情报有黎老师 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至目前看来里爷厨买店特都是纯纯怨种，直接普通版拿个初回DLC是最值的
+

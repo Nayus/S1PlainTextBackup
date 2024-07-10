@@ -13353,3 +13353,11 @@ gamespot的采访，机翻摘选
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  星空冻结  
+##### 1289#       发表于 2024-7-10 08:03
+
+你法一年一作就别羡慕人家的销量了，还是好好想想怎么保住5w死忠吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

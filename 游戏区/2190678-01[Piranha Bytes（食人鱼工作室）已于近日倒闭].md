@@ -416,3 +416,16 @@ crytek这几年好像靠着猎杀对决缓了一口气，最近还要升级引�
 
 —— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Marlowe  
+##### 43#         楼主| 发表于 2024-7-10 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65541436&amp;ptid=2190678" target="_blank">古代人皮克 发表于 2024-7-10 14:36</a>
+
+比起几年前全球六七个工作室半壁江山的时候差多了。猎杀对决也算是crytech V仅存硕果，次世代引擎也是没 ...</blockquote>
+听说crytek匈牙利之前在搞别的商业项目，做的风生水起总部要求他们去做游戏了，直接GG。
+
+不过现在还是有厂商用他们的引擎，比如战马工作室。
+

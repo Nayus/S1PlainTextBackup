@@ -86,3 +86,11 @@
 不死啊，人肉魔人之歌是效果赋予，跳个超燃堆分体论就换掉了，而且六武众算不算卡组根本就不好说
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">考虑花里胡哨的事情可能不如考虑次元障壁，吃这个确实会死
 
+
+*****
+
+####  红魔馆的糖  
+##### 93#       发表于 2024-7-10 15:04
+
+这傻逼游戏越来越无聊了，三体人和普通人差距越来越大的同时三体人也在膨胀赛跑。交互起来也没意思，手坑没通过就点，通过了别人拍个别的一卡动也点<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

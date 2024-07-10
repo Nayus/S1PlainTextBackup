@@ -2447,3 +2447,19 @@ emmm所以偷摸零唱歌会很拼命这个设定是选中之人之前决定的�
 
 明天终于就周四了，相约邦tv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 19459#       发表于 2024-7-10 11:39
+
+<img src="https://img.saraba1st.com/forum/202407/10/113847md0zxdfrdccb1gt4.jpg" referrerpolicy="no-referrer">
+
+<strong>AD44~C$)[69N3UUX8SWZ(G2_tmb.jpg</strong> (359.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 11:38 上传
+
+就是还是传统导演跟剧本内斗咯……还是看成品怎么吧
+

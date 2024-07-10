@@ -13390,3 +13390,11 @@ gamespot的采访，机翻摘选
 加藤：什么，要朕改革经营体制？你还是鲨了朕吧？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/4d2b3cd89c2727fff905adc388056a5e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hayate0079  
+##### 1293#       发表于 2024-7-10 10:02
+
+法老控的游戏次次首发几乎都只能啃生肉，从闪开始也就闪2和创同步中文，这次能同步简直就是烧高香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -181,3 +181,13 @@ V最协这种性质的比赛一个个都要请教练不是让比赛的性质都�
 
 直接以nsm的形态出击吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 435#       发表于 2024-7-10 19:52
+
+stgr赶紧实装棒球
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

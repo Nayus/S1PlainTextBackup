@@ -212,3 +212,13 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 红毛好标准的吃瘪青梅啊，已经能想象到以后的惨状了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NeloAngelo  
+##### 93#       发表于 2024-7-10 19:46
+
+有种文艺复兴的感觉.   
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

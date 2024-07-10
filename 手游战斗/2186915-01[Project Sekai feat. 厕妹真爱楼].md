@@ -8997,3 +8997,13 @@ xxn怎么破防了，拉黑我换个号继续发。只准媚女不准媚男?cmg�
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  kangkangsama  
+##### 783#       发表于 2024-7-10 15:59
+
+谢谢董慧敏
+
+省去了我脑内过滤“夸夸OOccnd”和“45进入了蕾蕾”x50的时间
+

@@ -25,3 +25,13 @@
 
 下个池是ST，FA是多久出一次来着
 
+
+*****
+
+####  不灭的旋律  
+##### 1110#       发表于 2024-7-10 20:16
+
+FA又要录新语音又要写新剧情，ST就好办多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+创彩池100连就出了一个佐伯和一个重复四星，艾玛0。
+

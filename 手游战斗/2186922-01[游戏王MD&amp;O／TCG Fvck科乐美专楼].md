@@ -114,3 +114,21 @@
 
 —— 来自 OPPO PHY110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  战术核辣条  
+##### 96#         楼主| 发表于 2024-7-10 20:09
+
+<img src="https://img.saraba1st.com/forum/202407/10/200928seuybbi9ddqzrrci.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240710200909.jpg</strong> (214.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 20:09 上传
+
+哦无敌了，大的真来了
+
+BAN MAXXC！
+

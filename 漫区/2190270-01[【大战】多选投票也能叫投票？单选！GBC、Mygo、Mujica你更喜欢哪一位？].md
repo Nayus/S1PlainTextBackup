@@ -942,3 +942,15 @@ nga和S1都有19选1啊，又到了我第八喜欢的投票环节和第六喜欢
 
 大祥老师谷价挺高的吧，都是国产黄牛在炒吗
 
+
+*****
+
+####  shinraki  
+##### 91#       发表于 2024-7-10 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65543894&amp;ptid=2190270" target="_blank">jerryoq1 发表于 2024-7-10 18:13</a>
+这种张口就来没数据的我都当乐子看</blockquote>
+不过实际我当时也去N站看过，弹幕对祥子也挺不友好的
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

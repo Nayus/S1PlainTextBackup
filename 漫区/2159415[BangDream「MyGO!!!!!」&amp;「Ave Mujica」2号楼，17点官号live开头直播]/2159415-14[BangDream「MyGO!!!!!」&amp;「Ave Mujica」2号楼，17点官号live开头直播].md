@@ -2835,3 +2835,12 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 <img src="https://p.sda1.dev/18/082db3f9fe2df5676834333360d460dd/image.png" referrerpolicy="no-referrer">
 [ ちゃろるど @charorudo_0818](https://x.com/charorudo_0818/status/1811007481344372852)
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19494#       发表于 2024-7-10 21:49
+
+<img src="https://p.sda1.dev/18/eb6fb217ba6ec65e691aa937ad7d7cc0/image.png" referrerpolicy="no-referrer">
+[ 作业奏 @thunder84984819](https://x.com/thunder84984819/status/1811033641474244801)
+

@@ -2676,3 +2676,11 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 
 2024-7-10 14:43 上传
 
+
+*****
+
+####  星天观测  
+##### 19479#       发表于 2024-7-10 17:24
+
+算了，好像是国内专供，写了人偶名说不定wsd没给改面具的权限怕影响世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2489,3 +2489,13 @@ _cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;MsgID=7516305251655036348&amp;skey=@cr
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  eilot  
+##### 13025#       发表于 2024-7-10 22:58
+
+fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
+
+連第一個都未打
+

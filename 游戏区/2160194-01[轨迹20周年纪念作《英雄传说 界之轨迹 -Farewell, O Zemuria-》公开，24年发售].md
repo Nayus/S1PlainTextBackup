@@ -13582,3 +13582,23 @@ gamespot的采访，机翻摘选
 
 在这段漫长的时间里开发像《轨迹》这样的游戏系列有点像开发一款在线游戏，你会不断地思考，“我们必须做的下一个事件或事情是什么？游戏本身的进程是什么？”很多时候，这会导致年轻员工及其发展停滞一段时间。但我希望他们能够成长并体验新事物，从而获得新技能和新想法。
 
+
+*****
+
+####  一步成诗  
+##### 1314#       发表于 2024-7-10 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65543083&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-10 16:54</a>
+
+轨迹限制了我司年轻社员们的发展
+
+在这段漫长的时间里开发像《轨迹》这样的游戏系列有点像开发一款在线游 ...</blockquote>
+都怪你们这群老韭菜惦记着轨迹不放，来个新作给你们换换口味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 1315#       发表于 2024-7-10 17:00
+
+那就好好完结，给轨迹一个风光大葬，体面一点<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

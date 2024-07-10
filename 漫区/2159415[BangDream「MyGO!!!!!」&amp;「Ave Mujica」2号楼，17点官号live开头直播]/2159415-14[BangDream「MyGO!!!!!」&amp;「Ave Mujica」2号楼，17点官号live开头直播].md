@@ -2547,3 +2547,38 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202407/10/134331lm2zzt31mx00b9r8.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19465#       发表于 2024-7-10 13:52
+
+独角兽推特这个不是早说过了么，反正动画肯定做差不多了有什么毛病播了再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+为什么穿浴衣还要带这个老八面具啊
+
+
+*****
+
+####  skives  
+##### 19466#       发表于 2024-7-10 13:54
+
+蜇面具摘不下来了是吧
+
+*****
+
+####  紫吹兰  
+##### 19467#         楼主| 发表于 2024-7-10 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65532371&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-9 17:25</a>
+
+两对新人和一个花童</blockquote>
+可怜的花童，她只有吉他了
+
+*****
+
+####  PDQ4  
+##### 19468#       发表于 2024-7-10 13:56
+
+为什么和服也不能换面具，和风面具不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

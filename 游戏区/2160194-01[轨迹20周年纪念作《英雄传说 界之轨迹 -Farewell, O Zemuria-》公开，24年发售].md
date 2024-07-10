@@ -13561,3 +13561,11 @@ gamespot的采访，机翻摘选
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界一部完结不了可以看销量还能下探到什么程度了
 
+
+*****
+
+####  ミズタ  
+##### 1312#       发表于 2024-7-10 16:37
+
+界1结局还是咚的话，那乐子就大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

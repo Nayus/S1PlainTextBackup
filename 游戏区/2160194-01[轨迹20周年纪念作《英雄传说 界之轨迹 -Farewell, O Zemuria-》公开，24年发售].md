@@ -13361,3 +13361,23 @@ gamespot的采访，机翻摘选
 
 你法一年一作就别羡慕人家的销量了，还是好好想想怎么保住5w死忠吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 1290#       发表于 2024-7-10 08:55
+
+旧p组的暗喻幻想看着一脸死样，新p组做的p6更是鬼知道什么样，所以羡慕p5也没多大意义
+
+*****
+
+####  无动于衷  
+##### 1291#       发表于 2024-7-10 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65537249&amp;ptid=2160194" target="_blank">星空冻结 发表于 2024-7-10 08:03</a>
+
+你法一年一作就别羡慕人家的销量了，还是好好想想怎么保住5w死忠吧</blockquote>
+思来想去你法要想翻身也只能去学GUST去抱大腿了
+
+但前提仍然是先得把老社长给干掉 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

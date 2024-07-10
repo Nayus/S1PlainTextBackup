@@ -13381,3 +13381,12 @@ gamespot的采访，机翻摘选
 
 但前提仍然是先得把老社长给干掉 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 1292#       发表于 2024-7-10 09:41
+
+加藤：什么，要朕改革经营体制？你还是鲨了朕吧？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4d2b3cd89c2727fff905adc388056a5e/image.jpg" referrerpolicy="no-referrer">
+

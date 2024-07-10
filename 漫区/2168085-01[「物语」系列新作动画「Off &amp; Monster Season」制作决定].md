@@ -1441,3 +1441,16 @@ TV里没有的育迷失和黑仪约会的OP都在BD补回来了，只要aniplex�
 
 不过余弦感觉也是专家组里最菜的，除了战力猛，好像就没处理完过什么怪异事件
 
+
+*****
+
+####  oi99o  
+##### 349#       发表于 2024-7-10 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65543453&amp;ptid=2168085" target="_blank">竹様 发表于 2024-7-10 17:27</a>
+
+刚发现staple stable居然有NC版本的OP，当初找了很久没找到，有谁知道这个OP是收录在哪里的吗？
+
+https://w ...</blockquote>
+不如问问up主，我也从来没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

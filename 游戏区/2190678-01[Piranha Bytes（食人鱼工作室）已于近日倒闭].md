@@ -454,3 +454,25 @@ crytek也是多灾多难，主要还是压错宝
 
 办公椅咸鱼挂一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古代人皮克  
+##### 46#       发表于 2024-7-10 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65543831&amp;ptid=2190678" target="_blank">maninhole 发表于 2024-7-10 18:06</a>
+
+什么crytek 基辅不还是做warface的主力来着吗
+
+怎么直接独立跑出去了？</blockquote>
+独立出去改名叫Blackwood Games
+
+*****
+
+####  Abba-il-Aeons  
+##### 47#       发表于 2024-7-10 21:29
+
+<blockquote>Launce 发表于 2024-7-9 16:43
+cry也在垂死边缘吧，引擎没几家在用，自家也就剩个猎杀对决在摆烂运营</blockquote>
+之前看过科普，好像这个引擎基本只有他们自家能玩转
+

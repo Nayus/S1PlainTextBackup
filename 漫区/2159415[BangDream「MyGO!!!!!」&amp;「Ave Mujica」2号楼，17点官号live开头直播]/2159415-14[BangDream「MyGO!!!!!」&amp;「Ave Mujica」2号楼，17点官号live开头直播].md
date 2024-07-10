@@ -2826,3 +2826,12 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 2024-7-10 21:10 上传
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19493#       发表于 2024-7-10 21:16
+
+<img src="https://p.sda1.dev/18/082db3f9fe2df5676834333360d460dd/image.png" referrerpolicy="no-referrer">
+[ ちゃろるど @charorudo_0818](https://x.com/charorudo_0818/status/1811007481344372852)
+

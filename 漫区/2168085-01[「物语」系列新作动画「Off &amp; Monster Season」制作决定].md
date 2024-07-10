@@ -1390,3 +1390,13 @@ TV经常漏OP的，等BD看看。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  竹様  
+##### 344#       发表于 2024-7-10 10:51
+
+TV里没有的育迷失和黑仪约会的OP都在BD补回来了，只要aniplex还打算卖角色歌的话应该BD会补上的。
+
+比起这个希望别再让URA来做OP了，来来回回一个风格都看吐了。
+

@@ -53,3 +53,11 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 归根到底一切还是产能的问题，实在不知道阿金现在的产能到底去哪里了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1113#       发表于 2024-7-10 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">战女高新作？？然后再把阿嘎的人搬过去（（
+

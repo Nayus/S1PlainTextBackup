@@ -2798,3 +2798,31 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 要改的话大概就是李子放中间了
 
+
+*****
+
+####  PDQ4  
+##### 19491#       发表于 2024-7-10 21:07
+
+查了一下团建排序
+
+要么舞台顺序，要么就乐器序
+
+如果有变动就是高尾 梦以 李子 米泽 渡濑
+
+其他散户邦TV换就真找不到规律了，可能她们去了现场想我要坐哪吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 19492#       发表于 2024-7-10 21:10
+
+<img src="https://img.saraba1st.com/forum/202407/10/211012ch4m8g22zq2g2q3c.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720616650551.jpg</strong> (124.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 21:10 上传
+

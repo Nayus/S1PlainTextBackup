@@ -2844,3 +2844,82 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 <img src="https://p.sda1.dev/18/eb6fb217ba6ec65e691aa937ad7d7cc0/image.png" referrerpolicy="no-referrer">
 [ 作业奏 @thunder84984819](https://x.com/thunder84984819/status/1811033641474244801)
 
+
+*****
+
+####  H2Ofrozen  
+##### 19495#       发表于 2024-7-10 22:03
+
+虽然迟了好几天，但是earth简直是目前最对味的一首。长谷川大介确实是真懂写前卫核的
+
+*****
+
+####  御幸一也  
+##### 19496#       发表于 2024-7-10 22:03
+
+好快的畫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/10/220316h8z82cyttmu2cc8c.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_안녕(@pink22_21)_20240710-125828_1811022174234497197_photo.jpg</strong> (384.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 22:03 上传
+
+[https://x.com/pink22_21/status/1811022174234497197](https://x.com/pink22_21/status/1811022174234497197)
+
+*****
+
+####  御幸一也  
+##### 19497#       发表于 2024-7-10 22:03
+
+睦祥的神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/10/220322hh2mzahvvm2saoeh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_4／3(@sigangsan)_20240710-081447_1810950783359414531_photo.jpg</strong> (394.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 22:03 上传
+
+[https://x.com/sigangsan/status/1810950783359414531](https://x.com/sigangsan/status/1810950783359414531)
+
+
+*****
+
+####  御幸一也  
+##### 19498#       发表于 2024-7-10 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546086&amp;ptid=2159415" target="_blank">H2Ofrozen 发表于 2024-7-10 22:03</a>
+
+虽然迟了好几天，但是earth简直是目前最对味的一首。长谷川大介确实是真懂写前卫核的 ...</blockquote>
+原來那種曲風是前衛核嗎，聽著挺流行的……<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19499#       发表于 2024-7-10 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65545260&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-10 20:42</a>
+
+那我想看的李弄贴贴寄了啊</blockquote>
+那我想看的non茜貼貼有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 19500#       发表于 2024-7-10 22:06
+
+狗团没箱活这事也可以理解成武士道也摆了
+
+*****
+
+####  [皆神孝介]  
+##### 19501#       发表于 2024-7-10 22:06
+
+想给平板电脑桌面换个壁纸，主要横着用，分辨率为2560×1600
+
+坛友们有没有推荐的？<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
+

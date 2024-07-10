@@ -2949,3 +2949,16 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 [https://x.com/Yukikuma_018/status/1799811328166768911](https://x.com/Yukikuma_018/status/1799811328166768911)
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 19503#       发表于 2024-7-10 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65545234&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-7-10 20:39</a>
+
+Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
+
+—— 来自 S1Fun</blockquote>
+6 个团里算中游吧，meguchi 基本上是加入企划后开始重学的鼓，练成这样已经非常强了，尤其是萝的强度很高，但可惜鼓手还是太卷或者说挺难捞人速成的，邦的鼓都是拉本来就会打的人上，尤其是有夏芽和 mika 两位的水平顶在前面；说到这个，除了一些高强度的表现之外，我觉得 megu 最有意思的一段是 11th 蝶萝对邦那场，megu mika 师徒共演，神态表情很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2413,3 +2413,26 @@ LA LIVE『TUBEOUT!』现场（今年BW上也由TUBEOUT负责）
 莲之空 Fanart（画师推荐）
 [https://x.com/Kaleid417/](https://x.com/Kaleid417/)
 
+
+*****
+
+####  Piano-Forest  
+##### 213#         楼主| 发表于 2024-7-10 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65509246&amp;ptid=2054995" target="_blank">Piano-Forest 发表于 2024-7-7 11:07</a>
+
+LA LIVE『TUBEOUT!』现场（今年BW上也是由TUBEOUT负责）</blockquote>
+BW详情页面
+[https://live.bilibili.com/activi ... ich-text.link.click](https://live.bilibili.com/activity/live-activity-full/full-next/pc.html?app_name=yq&amp;id=106135&amp;is_live_full_webview=1#/?n=1&amp;spm_id_from=333.1368.rich-text.link.click)
+
+[https://spwn.jp/events/evt_0uwgChlnzlhc480hch5q](https://spwn.jp/events/evt_0uwgChlnzlhc480hch5q)
+
+*****
+
+####  Piano-Forest  
+##### 214#         楼主| 发表于 2024-7-10 13:37
+
+声優グランプリ 2024年8月号（莲之空部分全图）
+[https://m.weibo.cn/detail/5054362759990403](https://m.weibo.cn/detail/5054362759990403)
+<img src="https://p.sda1.dev/18/491c4a5a0997ebc7571b941f3e17cade/81QojWhkgIL._SL1500_.jpg" referrerpolicy="no-referrer">
+

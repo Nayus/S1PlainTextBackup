@@ -50,3 +50,15 @@
 
 又他**的发小垃圾混日子，wcsndm科乐美
 
+
+*****
+
+####  战术核辣条  
+##### 90#         楼主| 发表于 2024-7-10 13:27
+
+大的来了！大的来了！大的来了！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+我最喜欢的db盒
+重铸r4荣光！
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

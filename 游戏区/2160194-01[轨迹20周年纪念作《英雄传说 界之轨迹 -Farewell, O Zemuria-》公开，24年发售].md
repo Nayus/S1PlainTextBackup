@@ -13457,3 +13457,11 @@ gamespot的采访，机翻摘选
 大火不上房没人跳烟筒，都是快死了才会改革。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我只想看你法社销量继续跳水，但你法社很在乎这个基本盘什么时候3W都守不住
 
+
+*****
+
+####  卢迪克  
+##### 1300#       发表于 2024-7-10 10:33
+
+说起来GF新作要英文同步就去找Private Division了，之前的town也是nisa发行美版，说明同步是指望不上nisa的得换公司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

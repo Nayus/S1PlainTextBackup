@@ -13398,3 +13398,62 @@ gamespot的采访，机翻摘选
 
 法老控的游戏次次首发几乎都只能啃生肉，从闪开始也就闪2和创同步中文，这次能同步简直就是烧高香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  minus13  
+##### 1294#       发表于 2024-7-10 10:17
+
+想全平台全语言同步凭他自己是做不到的，确实得走gust路线了，让大公司帮他搞定这些
+
+*****
+
+####  ravend233  
+##### 1295#       发表于 2024-7-10 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是目前剧本基本都是在游戏发售同一年的3-4月才写完，九月就发售，文本量还不小，同步完成翻译太困难了
+
+需要系统性改革才能做到一年一部还能多语种同步
+
+
+*****
+
+####  勿徊哉  
+##### 1296#       发表于 2024-7-10 10:20
+
+为什么要改革，又不是没人买。
+大火不上房没人跳烟筒，都是快死了才会改革。
+
+*****
+
+####  无动于衷  
+##### 1297#       发表于 2024-7-10 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65538628&amp;ptid=2160194" target="_blank">勿徊哉 发表于 2024-7-10 10:20</a>
+
+为什么要改革，又不是没人买。
+
+大火不上房没人跳烟筒，都是快死了才会改革。 ...</blockquote>
+要是不在乎以后的销量只能跟地雷社平起平坐 我们倒真无所谓 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1298#       发表于 2024-7-10 10:23
+
+ 本帖最后由 卢迪克 于 2024-7-10 10:25 编辑 
+
+年货很难的啦，宝可梦年货是200人开发游戏，加上8国翻译团队超过1000人，法老控上哪找个百人翻译团队帮他翻译<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1299#       发表于 2024-7-10 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65538628&amp;ptid=2160194" target="_blank">勿徊哉 发表于 2024-7-10 10:20</a>
+
+为什么要改革，又不是没人买。
+
+大火不上房没人跳烟筒，都是快死了才会改革。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我只想看你法社销量继续跳水，但你法社很在乎这个基本盘什么时候3W都守不住
+

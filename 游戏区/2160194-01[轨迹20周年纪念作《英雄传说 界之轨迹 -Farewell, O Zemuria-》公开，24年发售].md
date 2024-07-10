@@ -13643,3 +13643,19 @@ gamespot的采访，机翻摘选
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  暗影吉他手  
+##### 1320#       发表于 2024-7-11 03:22
+
+你轨人气值用钞票投票，看看都有谁的立牌__都不买<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/11/032155ulviyivjq753iihp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 03:21 上传
+

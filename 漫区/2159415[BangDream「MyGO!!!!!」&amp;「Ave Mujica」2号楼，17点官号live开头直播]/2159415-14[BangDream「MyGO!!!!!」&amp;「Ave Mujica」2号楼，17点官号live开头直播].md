@@ -2725,3 +2725,18 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 <img src="https://p.sda1.dev/18/e7b6b6d8dec6f76ac6101ce0eb5cfb0a/image.png" referrerpolicy="no-referrer">
 [ 4/3 @sigangsan](https://x.com/sigangsan/status/1810950783359414531)
 
+
+*****
+
+####  星天观测  
+##### 19483#       发表于 2024-7-10 20:25
+
+座位我猜是米泽高尾李子节约梦以这样吧，李子应该是中间位的，高尾节约/米泽梦以可能会有交换
+
+*****
+
+####  第七軍伐戎処  
+##### 19484#       发表于 2024-7-10 20:27
+
+<img src="https://p.sda1.dev/18/7f2bb0973e5e7e967d2b15b2f92900a9/image.png" referrerpolicy="no-referrer">
+

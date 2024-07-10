@@ -954,3 +954,16 @@ nga和S1都有19选1啊，又到了我第八喜欢的投票环节和第六喜欢
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
+
+*****
+
+####  jerryoq1  
+##### 92#       发表于 2024-7-10 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65544963&amp;ptid=2190270" target="_blank">shinraki 发表于 2024-7-10 20:06</a>
+
+不过实际我当时也去N站看过，弹幕对祥子也挺不友好的
+
+—— 来自 vivo V2183A, Android 14上的 S1Next-鹅 ...</blockquote>
+当时国内言论对祥子也没多友好阿
+

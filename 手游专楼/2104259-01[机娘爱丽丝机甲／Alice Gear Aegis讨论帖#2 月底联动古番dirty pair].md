@@ -43,3 +43,13 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 下午才跟别人说，st这玩意就换个发型加个可有可无的大招完全可以整合进fa里面去的，现在这副急着骗氪的食相实在太难看了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1112#         楼主| 发表于 2024-7-10 20:35
+
+但凡阿金给换属性的ST的gear出个换色都不会这么难看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不明白阿金还抱死NS的CS版的调色不放出来是闹哪样，还有人买来玩吗
+
+归根到底一切还是产能的问题，实在不知道阿金现在的产能到底去哪里了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

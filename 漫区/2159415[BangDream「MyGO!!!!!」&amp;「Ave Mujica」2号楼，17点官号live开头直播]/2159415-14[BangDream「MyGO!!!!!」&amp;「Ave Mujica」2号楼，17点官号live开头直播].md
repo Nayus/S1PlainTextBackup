@@ -3009,3 +3009,25 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 不知道什么时候能轮到
 
+
+*****
+
+####  H2Ofrozen  
+##### 19508#       发表于 2024-7-10 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546100&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-10 22:04</a>
+
+原來那種曲風是前衛核嗎，聽著挺流行的……</blockquote>
+现在的新派重型最典型的就这种曲风，主副歌和声走向听起来比较旋律化，但是其实很难弹...这首earth跟母鸡卡之前曲子编曲很不一样的地方，主音一直在弹复杂乐句，intro/间奏节奏配合双踩高速切分riff，结果上就是听起来很重的同时旋律也很好听，这就是现在很典型的专业前卫核编曲了，而且确实很难弹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前几首偏核的像双月，假面狂想，素晴世界，编曲还是比较保守一点
+
+
+*****
+
+####  PDQ4  
+##### 19509#       发表于 2024-7-10 23:43
+
+漏油说的好专业
+总之就是新曲又给李子和结月上压力了是吧
+米泽我现在已经不担心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+多练练以后拼盘就可以上全谱了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

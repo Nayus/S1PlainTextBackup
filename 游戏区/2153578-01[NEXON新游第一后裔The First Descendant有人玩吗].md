@@ -1045,3 +1045,11 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
 前天打通剧情，然后试着刷了刷零件，又算了算概率，直接删了。感觉光刷个p甲的时间够我打通好几个其他游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Reslayer  
+##### 107#       发表于 2024-7-10 23:43
+
+这类游戏都这样 不过兔子进化皮感觉买了有点亏
+

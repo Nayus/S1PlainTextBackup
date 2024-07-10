@@ -2651,3 +2651,28 @@ go、ave的動畫是2021年開始討論劇本，2023年就能生出來已經是�
 
 都穿和服了也不舍得换个配套的新面具或者不戴面具，这个样子是不是代表mujica以后都没有新衣服？
 
+
+*****
+
+####  PDQ4  
+##### 19477#       发表于 2024-7-10 14:41
+
+会换的吧
+
+这能不换吗，这么复杂花纹从折磨画师角度思考也不能一直留吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19478#       发表于 2024-7-10 14:43
+
+原來你邦的發光手環長這樣
+
+<img src="https://img.saraba1st.com/forum/202407/10/144301laja5ibtiecm4waq.jpg" referrerpolicy="no-referrer">
+
+<strong>GSF2fKebwAAX1x3.jpg</strong> (332.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 14:43 上传
+

@@ -2977,3 +2977,35 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 说起来现在kdhr的吉他水平应该算你邦中游了吧，萝东京感觉还不错啊
 
+
+*****
+
+####  御幸一也  
+##### 19506#       发表于 2024-7-10 23:16
+
+看點毛絨絨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/10/231520c8255t5y5275i25r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_リンゴ雨🌷︎(@Rainy_NEGI)_20240710-141810_1811042233736646790_photo.jpg</strong> (146.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-10 23:15 上传
+
+[https://x.com/Rainy_NEGI/status/1811042233736646790](https://x.com/Rainy_NEGI/status/1811042233736646790)
+
+
+*****
+
+####  PDQ4  
+##### 19507#       发表于 2024-7-10 23:22
+
+看漏油提到鼓手又非常想看鸡ras对邦了
+
+我想看两个鼓手较劲，肯定很劲
+
+蝶的话感觉风格限制，疯批不起来，但是又很想听加入小提琴重编曲的鸡曲
+
+不知道什么时候能轮到
+

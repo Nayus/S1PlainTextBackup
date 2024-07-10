@@ -17,3 +17,11 @@
 
 服袋主要是抽泳装了吧，但泳装更新也挺慢的，新角色对我也不讨喜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  madcow  
+##### 1109#       发表于 2024-7-10 16:52
+
+下个池是ST，FA是多久出一次来着
+

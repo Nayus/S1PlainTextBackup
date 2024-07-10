@@ -868,3 +868,15 @@ https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
+
+*****
+
+####  arthurmizuki  
+##### 84#       发表于 2024-7-10 12:10
+
+<blockquote>ParadiseMartyr 发表于 2024-7-10 01:30
+祥子人气这么高？第一季里面除了当客服的喜剧塑造，其他时候基本上都是反派的感觉吧？
+
+长期素食很健康女士 ...</blockquote>
+日本不喜欢反派。想到死神经典蓝染不进前十
+

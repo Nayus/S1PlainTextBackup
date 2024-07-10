@@ -13465,3 +13465,11 @@ gamespot的采访，机翻摘选
 
 说起来GF新作要英文同步就去找Private Division了，之前的town也是nisa发行美版，说明同步是指望不上nisa的得换公司<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1301#       发表于 2024-7-10 14:43
+
+看来这周是没有杂志了，好乐的宣发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

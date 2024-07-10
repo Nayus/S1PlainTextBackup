@@ -72,3 +72,17 @@
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  战术核辣条  
+##### 92#         楼主| 发表于 2024-7-10 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65541382&amp;ptid=2186922" target="_blank">13街的居住民 发表于 2024-7-10 14:30</a>
+
+站个人肉魔人之歌 就似了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+不死啊，人肉魔人之歌是效果赋予，跳个超燃堆分体论就换掉了，而且六武众算不算卡组根本就不好说
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">考虑花里胡哨的事情可能不如考虑次元障壁，吃这个确实会死
+

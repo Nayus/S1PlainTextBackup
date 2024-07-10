@@ -908,3 +908,16 @@ https://bbs.saraba1st.com/2b/thread-2189443-1-1.html?sid_for_share=80217_2
 
 nga和S1都有19选1啊，又到了我第八喜欢的投票环节和第六喜欢的有人因为祥子第一而不爽环节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 88#       发表于 2024-7-10 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65539664&amp;ptid=2190270" target="_blank">shinraki 发表于 2024-7-10 11:48</a>
+
+反派在国内不是人气低的buff，很多国人喜欢反派的，这一点和日本不同
+
+—— 来自 vivo V2183A, Android 1 ...</blockquote>
+国内其实很多人不喜欢的是无情的角色（比如对夜神月，粉丝很多时候也只是谈支持他的理论）
+

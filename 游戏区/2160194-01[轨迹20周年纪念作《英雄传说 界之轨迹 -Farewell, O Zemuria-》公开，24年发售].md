@@ -13473,3 +13473,26 @@ gamespot的采访，机翻摘选
 
 看来这周是没有杂志了，好乐的宣发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1302#       发表于 2024-7-10 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">省一期杂志省一笔钱呢
+
+
+*****
+
+####  一步成诗  
+##### 1303#       发表于 2024-7-10 15:13
+
+指望黎老师赚钱又不给单独一期杂志，虽然也不敢百分百说下期情报有黎老师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1304#       发表于 2024-7-10 15:14
+
+不要灰心，黎七月是一期官网师姐。菲，金，一期杂志，结社 魔装鬼
+

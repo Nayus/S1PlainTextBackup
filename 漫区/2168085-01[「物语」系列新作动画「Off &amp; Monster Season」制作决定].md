@@ -1420,3 +1420,11 @@ TV里没有的育迷失和黑仪约会的OP都在BD补回来了，只要aniplex�
 
 [https://www.bilibili.com/video/B ... cc899dca070e6406709](https://www.bilibili.com/video/BV1ZE411g7W2?p=1&amp;vd_source=73960a4052e47cc899dca070e6406709)
 
+
+*****
+
+####  孟沁瑶  
+##### 347#       发表于 2024-7-10 19:42
+
+角色歌没什么大牌不大牌，反而是大牌不愿意唱（铃村太太），因为角色歌cv没版权，纯日结打工
+

@@ -3535,3 +3535,23 @@ STGR式GTA箱企划，看来细节已经谈完了运营那边也没问题了，�
 
 没看过STGR式GTA，能说一下是什么样的吗
 
+
+*****
+
+####  holoan  
+##### 9197#         楼主| 发表于 2024-7-10 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65544424&amp;ptid=2086637" target="_blank">karastar 发表于 2024-7-10 19:01</a>
+
+没看过STGR式GTA，能说一下是什么样的吗</blockquote>
+STGR那帮人搞的另一种玩法的GTA，其实整个世界各种活动高度依赖各种mod，也就是高度定制化的私服，所以玩法也是完全定制化，我觉得不太一定是跟着STGR和前一阵2434服完全一样的模式因为holo的活人太少了，大概会针对人少的情况有一些改进，所以这些东西都是要正式开服前讨论好调整好，前期要准备的事太多了，这次如果要开应该是直接开长期服
+
+还有如果要让ENID的一起加入玩的话还要考虑游戏内语言翻译的问题，如果只有JP的话真的人太少了撑不起来日常活动的
+
+*****
+
+####  holoan  
+##### 9198#         楼主| 发表于 2024-7-10 19:39
+
+永远的长女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

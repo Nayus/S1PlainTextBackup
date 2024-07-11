@@ -629,3 +629,39 @@ needy girl + va11吧，有点土
 
 感觉在日本只想抽烟草的跑到水烟店点服务就好像舞蹈爱好者跑到荤吧去跳舞一样。
 
+
+*****
+
+####  Errey  
+##### 75#       发表于 2024-7-11 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557085&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 22:24</a>
+
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+
+二次元美少女在西餐厅坐一桌开茶会 -&gt; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差
+
+
+*****
+
+####  Tring  
+##### 76#       发表于 2024-7-11 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557340&amp;ptid=2162731" target="_blank">Errey 发表于 2024-7-11 23:08</a>
+
+外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差 ...</blockquote>
+大城市的人怎么想不知道，至少我在的这破地方确实多数人都是认为这题材要不得。
+
+*****
+
+####  qwased  
+##### 77#       发表于 2024-7-11 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557340&amp;ptid=2162731" target="_blank">Errey 发表于 2024-7-11 23:08</a>
+
+外国人怎么想不知道，但烟馆在国内肯定是属于非常过激的题材了，不比杀人黑社会嫖娼这种差 ...</blockquote>
+也没有那么夸张吧，广东沿海这边00年之前抽水烟很常见的，经常能看到一群阿叔拿着根竹竿在那抽
+
+00年之后可能这群人身体不行抽不动了就慢慢销声匿迹了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

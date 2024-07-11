@@ -5491,3 +5491,140 @@ T2级 对家庭矛盾的解决意见不一致</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  dqtql  
+##### 19735#       发表于 2024-7-12 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558082&amp;ptid=2159415" target="_blank">T@L 发表于 2024-7-12 00:36</a>
+
+對祥子的理解不一致可能是什麼情況，認為祥子是女強人和認為她需要別人幫忙才能走出心防這樣的？ ...</blockquote>
+可能是独角兽想大破大立而柿本想包饺子
+
+*****
+
+####  客服少女小祥  
+##### 19736#       发表于 2024-7-12 00:39
+
+不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19737#       发表于 2024-7-12 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558067&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 00:34</a>
+刀屎有多爛沒看過都有耳聞，這完全不行吧</blockquote>
+河豚不喜欢刀使的地方是第二部写了父母的事情，换算成母鸡卡大概是拿一集讲家庭伦理吧
+
+*****
+
+####  利维豚  
+##### 19738#       发表于 2024-7-12 00:40
+
+<img src="https://p.sda1.dev/18/c2f6fed885e998463c68ddd7d97917c7/image.jpg" referrerpolicy="no-referrer">
+[feiyu30903448](https://x.com/feiyu30903448/status/1811435816096350492?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|你好棒棒哦|
+
+查看全部评分
+
+*****
+
+####  skives  
+##### 19739#       发表于 2024-7-12 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558082&amp;ptid=2159415" target="_blank">T@L 发表于 2024-7-12 00:36</a>
+對祥子的理解不一致可能是什麼情況，認為祥子是女強人和認為她需要別人幫忙才能走出心防這樣的？ ...</blockquote>
+对祥子生存方式的理解有两种吧
+一种是全盘否定需要修正
+还有一种是尽管需要改变，但也有值得肯定的部分
+
+*****
+
+####  Alicest  
+##### 19740#       发表于 2024-7-12 00:41
+
+go唐突父辈已经很不安了，特别是还有个杰尼斯的
+只希望别在鸡出现什么灯父祥父对谈这种根本不该存在在少女乐队里的东西，再现实也是少女乐队
+
+*****
+
+####  NODY  
+##### 19741#       发表于 2024-7-12 00:42
+
+独角兽自己都说了剧本还是她写，什么柿本自己重写剧本这个应该不用担心
+
+可能就是独角兽不喜欢这种类似于真白磕蘑菇一样的画面表现，“别把我家孩子弄得像是有精神病一样”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19742#       发表于 2024-7-12 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">柿本发现自己写不来女性角色，情急之下紧急搬出鸡团五个人的父母辈开始家庭伦理黄金档
+
+*****
+
+####  dqtql  
+##### 19743#       发表于 2024-7-12 00:42
+
+大不了走gbc老路，前八集主打叛逆后面集集和解
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  skives  
+##### 19744#       发表于 2024-7-12 00:44
+
+什么时候wsd舍得花钱掏出一个伤伤痛辛等级的mv
+就没人滑坡了
+
+*****
+
+####  rikaren  
+##### 19745#       发表于 2024-7-12 00:44
+
+那不也是出问题
+
+*****
+
+####  Hchan  
+##### 19746#       发表于 2024-7-12 00:46
+
+怎么柿本监督的风评在楼里疯狂下降<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">一部动画做好做坏第一关系人都是监督啊，总不能拍好了就是绫奈的功劳，拍坏了就是监督的问题
+
+有些言论真的有十年前虚渊玄厨子的味了
+
+*****
+
+####  Aendst  
+##### 19747#       发表于 2024-7-12 00:47
+
+让武士道花重金做mv比绫奈取关鸡官推是马斯克纯粹抽风的可能性还低<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  T@L  
+##### 19748#       发表于 2024-7-12 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558135&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 00:42</a>
+
+大不了走gbc老路，前八集主打叛逆后面集集和解
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+像gbc這樣花一集和父母和解，在最後一集和mygo主唱互相理解是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其實也不是不行，畢竟手遊裡還是要見面的，別搞什麼暴死退社應該就還好
+

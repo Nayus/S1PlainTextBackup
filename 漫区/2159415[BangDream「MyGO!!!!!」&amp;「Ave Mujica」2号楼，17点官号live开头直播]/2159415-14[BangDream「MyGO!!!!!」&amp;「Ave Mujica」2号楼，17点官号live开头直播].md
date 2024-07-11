@@ -4019,3 +4019,143 @@ ave的大家都愛吃辣<img src="https://static.saraba1st.com/image/smiley/face
 
 2024-7-11 21:55 上传
 
+
+*****
+
+####  御幸一也  
+##### 19593#       发表于 2024-7-11 21:56
+
+aaaaaaaaaa不能再演一個小時嗎
+
+*****
+
+####  SakuraのOrigami  
+##### 19594#       发表于 2024-7-11 21:57
+
+下回有手游新情报
+
+<img src="https://img.saraba1st.com/forum/202407/11/215750xngrodrczr8meegd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240711215720.png</strong> (434.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:57 上传
+
+*****
+
+####  御幸一也  
+##### 19595#       发表于 2024-7-11 21:58
+
+怎麼最後還咬舌頭了米澤小姐姐太可愛啦wwwwwwwwwwww
+
+*****
+
+####  PDQ4  
+##### 19596#       发表于 2024-7-11 21:58
+
+没看够啊，怎么就1h了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19597#       发表于 2024-7-11 21:59
+
+我只专注于她们贴来贴去摸来摸去里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19598#       发表于 2024-7-11 21:59
+
+我也想看鸡团再聊10小时<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 19599#       发表于 2024-7-11 22:00
+
+米泽OUT<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KirigawaMaki  
+##### 19600#       发表于 2024-7-11 22:00
+
+下次全员生放又要等好久了
+
+
+*****
+
+####  御幸一也  
+##### 19601#       发表于 2024-7-11 22:03
+
+好快的拍！
+
+<img src="https://img.saraba1st.com/forum/202407/11/220340f8m5azr8etzr8pwg.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (44.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:03 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/220306u2nf2mvnlgifiqfc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240711-140100_1811400298591932472_photo-0.jpg</strong> (395.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:03 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/220242c3e3ocreeaycdd7v.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240711-140100_1811400298591932472_photo-1.jpg</strong> (557.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:02 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/220339amzpg8bpsv2nsgn8.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240711-140100_1811400298591932472_photo-2.jpg</strong> (216.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:03 上传
+
+[https://x.com/Kanon_Takao/status/1811400298591932472](https://x.com/Kanon_Takao/status/1811400298591932472)
+
+*****
+
+####  星天观测  
+##### 19602#       发表于 2024-7-11 22:04
+
+怎么还有一张单独牵手手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 19603#       发表于 2024-7-11 22:04
+
+<img src="https://img.saraba1st.com/forum/202407/11/220422kugfgktr4877xdn5.jpg" referrerpolicy="no-referrer">
+
+<strong>3A2C3CB01D74381908DDAD1009ACB7CC.jpg</strong> (560.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:04 上传
+
+还真带了
+
+*****
+
+####  御幸一也  
+##### 19604#       发表于 2024-7-11 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556932&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-11 22:04</a>
+
+怎么还有一张单独牵手手</blockquote>
+甚至十指相扣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -5836,3 +5836,113 @@ NTK_0023
 
 独角兽：这就是不让我check的后果
 
+
+*****
+
+####  NODY  
+##### 19769#       发表于 2024-7-12 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558296&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 01:05</a>
+
+真出现了就请导演把锅背了吧
+
+独角兽：这就是不让我check的后果</blockquote>
+独角兽不是说一直到分镜她都看了吗，那至少删哪里留哪里她那边也知道了，再改动也只剩下画面和声优配音了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 19770#       发表于 2024-7-12 01:10
+
+既然独角兽说她能保证自己负责的部分是有趣的，他们不和的地方在分镜演出，剧本还是独角兽已经是比较好的结果了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 19771#       发表于 2024-7-12 01:11
+
+估计就是pv那个魔女风让独角兽爆发了吧
+
+*****
+
+####  T@L  
+##### 19772#       发表于 2024-7-12 01:12
+
+畢竟劇本早都交上去了，只要綾奈没被除名我能想到最糟糕的情況也就和是gbc最後兩集那樣，演出模糊了原來腳本裡的關係性，花掉最後一集和mygo和解最後只放半首歌當live。但就算這樣其實也説不上爛，就算兩人理解不一樣演出也没辦法影響故事邏輯，最多觀感會有點怪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19773#       发表于 2024-7-12 01:13
+
+感觉就是独角兽不喜欢这个玩偶演出形式，她参与度最高的邦邦前三季和mygo动画都没有这种风格吧
+
+再加上她访谈里面有很自豪的强调过为了让下跪画面更真实亲自表演的事迹，独角兽可能真的不喜欢这类意识流表现手法，而是更想要真实系的表情动作细节演出
+
+*****
+
+####  Hchan  
+##### 19774#       发表于 2024-7-12 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558200&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-12 00:51</a>
+
+怎么说这些人从邦2开始就是磨合多年的稳定团队，
+
+现在出现不稳因素了，滑坡不是很正常吗 ...</blockquote>
+当年就是一起搭伙拍玩具广告片，当然其乐融融。现在不满足于只做玩具广告片了，要做高达了，当然会吵起来咯，
+
+而且这次没准是监督强行压住了绫奈像她的偶像大河内那样忽然发病呢
+
+大河内每次发病都是因为缺少了像富野，谷口这样的强势监督压着他。点子王编剧遇到弱势监督会出多大车祸已经不想再提了
+
+
+*****
+
+####  dqtql  
+##### 19775#       发表于 2024-7-12 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558310&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 01:08</a>
+独角兽不是说一直到分镜她都看了吗，那至少删哪里留哪里她那边也知道了，再改动也只剩下画面和声优配音了 ...</blockquote>
+“我可以断言，自己参与的部分（剧本）很有趣，但对于做完分镜后未能让我检查的作品，就说不准了呢。因为不知道会变成什么样的动画…”
+这是壁吧的翻译，可以理解为独角兽没有检查到做好的分镜。结合之后独角兽说了一堆允许她看分镜的动画，合理推测她是没有看到鸡的分镜的。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  skives  
+##### 19776#       发表于 2024-7-12 01:16
+
+其实最大的可能性不是看到pv画面发作了
+是有人问她mujica怎么样
+她不知道具体情况 又想切割
+那取关不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 19777#       发表于 2024-7-12 01:16
+
+现在都是盲猜，柿本不一定就是错的，独角兽也不一定就是对的，保持好心态等明年了
+
+*****
+
+####  ellisnadie  
+##### 19778#       发表于 2024-7-12 01:17
+
+不那么滑坡的猜测就是独角兽还是负责母鸡卡的剧本，但因为分镜后没有参与也不知道最终表现的成品如何。在母鸡卡pv公布后觉得和自己想要的风格不一致于是取关
+
+*****
+
+####  星天观测  
+##### 19779#       发表于 2024-7-12 01:17
+
+哎，先吃饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 19780#       发表于 2024-7-12 01:18
+
+负责了剧本的人想切割就是很大的滑坡点<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+

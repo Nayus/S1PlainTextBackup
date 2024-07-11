@@ -13794,3 +13794,51 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 那得看现场主持人的提问原文是提的系列还是特指共和国篇了</blockquote>
 草，我才看清主持人问的是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1334#       发表于 2024-7-11 10:47
+
+<img src="https://img.saraba1st.com/forum/202407/11/104705g671stvgt7tm16x1.jpg" referrerpolicy="no-referrer">
+
+<strong>561A987AB213E861BD0ABA67B13FFB3F.jpg</strong> (25.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 10:47 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/104709ukc33ugkk9ax9aaz.jpg" referrerpolicy="no-referrer">
+
+<strong>4E3A86E7C59B8B6E24F48A9B543D49C1.jpg</strong> (30.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 10:47 上传
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1335#       发表于 2024-7-11 10:53
+
+白兔没画崩，感激，虽然可能是因为头发把大饼脸挡住了
+
+*****
+
+####  Squall25  
+##### 1336#       发表于 2024-7-11 10:53
+
+这个黎恩竟然画的还可以，没意思，没得看塔塔开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 1337#       发表于 2024-7-11 10:55
+
+怎么提前一周偷跑了….
+
+黎恩黑兔感觉很不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -1362,3 +1362,15 @@ e大师的背景图？快贴出来瞧瞧。e大师没在我关注的名单里，
 
 E圣别画了，放过轨迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  零食杀手  
+##### 131#       发表于 2024-7-11 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555872&amp;ptid=2189984" target="_blank">zhuhh 发表于 2024-7-11 19:30</a>
+日本论坛里看到挺多差评的，欧美论坛评价倒是挺好</blockquote>
+居然不去推上炎上下的吗，当年ys7可是炎上后换画师的
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

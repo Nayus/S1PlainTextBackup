@@ -5060,3 +5060,155 @@ T0级 对丰川祥子的理解不一致
 <img src="https://p.sda1.dev/18/48e632d36c74696943c1f908eb2fb3a0/image.png" referrerpolicy="no-referrer">
 [ 哈士蕲 @Pancham_Husky](https://x.com/Pancham_Husky/status/1811428475238273328)
 
+
+*****
+
+####  PDQ4  
+##### 19694#       发表于 2024-7-11 23:59
+
+所以没了绫奈的女女关系性，就柿本主刀甚至独断专行的话，我觉得绝对没有第一季的表现力
+
+系构彻底和动画切割了还延期发送，你们有没有这样的动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19695#       发表于 2024-7-11 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557747&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:57</a>
+
+滑坡等级表
+
+T3级 对美术风格配乐风格的理解不同
+
+T2级 对家庭矛盾的解决意见不一致</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">什么恐怖故事
+
+*****
+
+####  鳥栖朝  
+##### 19696#       发表于 2024-7-12 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557747&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:57</a>
+
+滑坡等级表
+
+T3级 对美术风格配乐风格的理解不同
+
+T2级 对家庭矛盾的解决意见不一致</blockquote>
+我怕了<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 19697#       发表于 2024-7-12 00:02
+
+ 本帖最后由 黑夜落叶秋天 于 2024-7-12 00:03 编辑 
+
+所以独角兽还关注菜花么 还关注着的话豚豚就不要自己吓自己了()<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19698#       发表于 2024-7-12 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557747&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:57</a>
+
+滑坡等级表
+
+T3级 对美术风格配乐风格的理解不同
+
+T2级 对家庭矛盾的解决意见不一致</blockquote>
+有没有可能四个全上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19699#       发表于 2024-7-12 00:03
+
+绫奈一开始就没关注过菜花
+
+*****
+
+####  御幸一也  
+##### 19700#       发表于 2024-7-12 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557785&amp;ptid=2159415" target="_blank">黑夜落叶秋天 发表于 2024-7-12 00:02</a>
+
+所以独角兽还关注菜花么 还关注着的话豚豚就不要自己吓自己了()</blockquote>
+從來沒關注過
+
+
+*****
+
+####  NODY  
+##### 19701#       发表于 2024-7-12 00:04
+
+不会真是一个站初祥一个站睦祥然后打起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19702#       发表于 2024-7-12 00:04
+
+绫奈不关注菜花倒是正常，因为菜花宣传的时候好像就和柿本闹掰了，从来没关注过
+
+但是鸡这个从有到无<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 19703#       发表于 2024-7-12 00:04
+
+害怕距离mujica还有5个多月的时间 希望到时候能平稳落地
+
+*****
+
+####  PDQ4  
+##### 19704#       发表于 2024-7-12 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557798&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 00:04</a>
+
+不会真是一个站初祥一个站睦祥然后打起来了吧</blockquote>
+你这个有点假，因为绫奈明显祥嬷，睦祥初祥都吃的
+
+不如说两个人在祥子回不回应幼驯染感情上起了分歧
+
+明年别整出个下头祥子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19705#       发表于 2024-7-12 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557798&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 00:04</a>
+不会真是一个站初祥一个站睦祥然后打起来了吧</blockquote>
+这明明不是最恐怖的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SakuraのOrigami  
+##### 19706#       发表于 2024-7-12 00:07
+
+[佐倉ツバメ](https://x.com/sakura_tsubame/status/1811340990286123376)
+
+GSMtBlUbIAAPPCv.jpg
+(281.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 00:07 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/000700fbhchsh8dj1aj1jz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19707#       发表于 2024-7-12 00:08
+
+其实吧
+只要绫奈还是系构和关键集脚本
+故事和人物就不会偏太多
+最多某些细节出问题
+还是要看staff表 只要不变成故事原案 就有救
+

@@ -235,3 +235,13 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前年工作忙断签后就彻底闲鱼了，2.6至今都没打，今天一看这周年活动是只给满签人搞的吧。。这种周年奖励还搞这么恶心的前提
 
+
+*****
+
+####  bas3721  
+##### 46510#       发表于 2024-7-11 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557405&amp;ptid=1712412" target="_blank">ajkkdcry 发表于 2024-7-11 23:16</a>
+前年工作忙断签后就彻底闲鱼了，2.6至今都没打，今天一看这周年活动是只给满签人搞的吧。。这种周年奖励还 ...</blockquote>
+去年也是一样的活动，就是留个念的东西。
+

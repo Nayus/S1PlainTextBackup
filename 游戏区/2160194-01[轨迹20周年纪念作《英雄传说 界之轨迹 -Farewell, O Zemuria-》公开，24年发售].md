@@ -13911,3 +13911,51 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 
 黎恩这立绘算是渡劫成功了，黑兔的感觉不好不坏吧
 
+
+*****
+
+####  hkguty  
+##### 1347#       发表于 2024-7-11 11:20
+
+这观之眼越来越玄乎，看来黎恩克洛真的是被共和国请来教头盔姐驾驶高达了？
+
+*****
+
+####  SuNR1sE364  
+##### 1348#       发表于 2024-7-11 11:22
+
+这闪轨组的不是还行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  未熟串烧  
+##### 1349#       发表于 2024-7-11 11:23
+
+好腋<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 1350#       发表于 2024-7-11 11:23
+
+有没有人把e大师画的鼻子p掉看看什么效果
+
+*****
+
+####  Cloudslin  
+##### 1351#       发表于 2024-7-11 11:24
+
+ 本帖最后由 Cloudslin 于 2024-7-11 11:25 编辑 
+
+黎老师比大少好，可靠的成年男性了
+
+*****
+
+####  悠悠你心  
+##### 1352#       发表于 2024-7-11 11:27
+
+感觉这两位还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

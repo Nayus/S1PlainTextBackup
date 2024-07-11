@@ -1507,3 +1507,14 @@ https://w ...</blockquote>
 拿出来一翻才发现还有个猴子篇 印象里只有老仓跟斧乃木两篇 ...</blockquote>
 神原那篇就是猜谜，没什么故事发展，动画做起来感觉会很无聊
 
+
+*****
+
+####  无证madam  
+##### 354#       发表于 2024-7-11 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556627&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-11 21:23</a>
+
+神原那篇就是猜谜，没什么故事发展，动画做起来感觉会很无聊</blockquote>
+翻了一下 感觉会做成终里扇那种 确实有点催眠
+

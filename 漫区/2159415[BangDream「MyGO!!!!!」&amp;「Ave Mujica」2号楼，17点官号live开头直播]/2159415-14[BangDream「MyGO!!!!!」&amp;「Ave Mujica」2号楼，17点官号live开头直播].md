@@ -3716,3 +3716,89 @@ BW2024，算是邦相关的
 
 mo酱，有点可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19569#       发表于 2024-7-11 21:26
+
+ 本帖最后由 御幸一也 于 2024-7-11 21:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556619&amp;ptid=2159415" target="_blank">平昭·南宫司卿 发表于 2024-7-11 21:22</a>
+
+草，让没经验的茜念这么多也太拷打了
+
+说到声音，实力最强的鼻姐反而是配离自己本音不太远的吧，除了李子， ...</blockquote>
+有一說一 我好像也沒怎麼聽過奏音的其他聲線，在其他動畫聽到也是差不多的甜妹音，好像黑祥是我第一次聽到她有不一樣的配音<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19570#       发表于 2024-7-11 21:27
+
+好吵啊她們生放真是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19571#       发表于 2024-7-11 21:30
+
+开卡那段真的好吵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+抽第一张的时候少一个timoris，高尾赶紧找自己那盒第二张是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19572#       发表于 2024-7-11 21:30
+
+脱袍子了，谁嗷了一声
+
+*****
+
+####  6030sylar  
+##### 19573#       发表于 2024-7-11 21:31
+
+ 本帖最后由 6030sylar 于 2024-7-11 21:34 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/11/213055uws4tjkenzwcvz92.png" referrerpolicy="no-referrer">
+
+<strong>ILG{3E)7`{BZY6E752X$}M9.png</strong> (92.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:30 上传
+
+几乎睡着的茜姨
+
+<img src="https://img.saraba1st.com/forum/202407/11/213432ewyyx4yaswsawswa.png" referrerpolicy="no-referrer">
+
+<strong>HJ_QRJZ)M7A3%B{]~]F74]5.png</strong> (297.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:34 上传
+
+*****
+
+####  御幸一也  
+##### 19574#       发表于 2024-7-11 21:31
+
+換衣服了
+
+<img src="https://img.saraba1st.com/forum/202407/11/213117p72amp0mim2mi730.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 39-53 screenshot.png</strong> (1.98 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/213119mdvt4zyereiieyni.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 39-57 screenshot.png</strong> (1.8 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:31 上传
+

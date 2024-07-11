@@ -1078,3 +1078,11 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
 棒子是怎么设计的出吞噬者这种野队匹配大概率能一直回满血的boss的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  genki  
+##### 110#       发表于 2024-7-12 01:34
+
+他这个真实概率我是信的，1%的红插件我清任务主线没打完就掉了5个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

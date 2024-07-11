@@ -5997,3 +5997,60 @@ NTK_0023
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Hchan  
+##### 19786#       发表于 2024-7-12 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558389&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 01:21</a>
+
+大河内翻车了多少次，绫奈又翻车了多少次，轻拍翻车说不定还是因为把绫奈踢走了
+
+柿本脚本做得怎么样，他 ...</blockquote>
+本来拍好拍坏，监督都是第一关系人啊
+
+一部动画出现烂活，先不说烂活是谁想出来的，能让烂活制作出来，第一责任人肯定是监督不是编剧啊
+
+*****
+
+####  Aendst  
+##### 19787#       发表于 2024-7-12 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558446&amp;ptid=2159415" target="_blank">Hchan 发表于 2024-7-12 01:29</a>
+
+本来拍好拍坏，监督都是第一关系人啊
+
+一部动画出现烂活，先不说烂活是谁想出来的，能让烂活制作出来，第 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可以跟大河内道歉吗
+
+*****
+
+####  dqtql  
+##### 19788#       发表于 2024-7-12 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558433&amp;ptid=2159415" target="_blank">友情的结晶 发表于 2024-7-12 01:27</a>
+如果真是看不到分镜就太可怕了
+
+论坛助手,iPhone</blockquote>
+其实脚本家不看分镜是常态，脚本定稿后就没他们什么事了。只有独角兽这种对自己心血执念很深控制欲很强的创作者才会这么对分镜心心念念。
+
+*****
+
+####  Hchan  
+##### 19789#       发表于 2024-7-12 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558456&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 01:30</a>
+
+那可以跟大河内道歉吗</blockquote>
+不是大河内向我道歉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19790#       发表于 2024-7-12 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我重看了一下绫奈那天的推，好像真的没看分镜
+
+她是系构也是原案，是内容的重要负责人，分镜不让她看那真的会出问题的
+

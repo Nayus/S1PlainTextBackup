@@ -1086,3 +1086,13 @@ boss头上那几个球，我勒个大槽，是什么脑残能想出这种设计
 
 他这个真实概率我是信的，1%的红插件我清任务主线没打完就掉了5个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeelolo  
+##### 111#       发表于 2024-7-12 02:02
+
+现在优化咋样了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">刚开服那会掉帧挺厉害
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

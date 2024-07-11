@@ -6262,3 +6262,11 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 有一說一現在綾奈確實不粘鍋了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 該來重看一下訪談綾奈和柿木的角色理解哪裡有微妙不一致了
 
+
+*****
+
+####  PDQ4  
+##### 19806#       发表于 2024-7-12 02:03
+
+绫奈已经没有新访谈了，以后每一次柿本的发言都有可能新的罪证<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

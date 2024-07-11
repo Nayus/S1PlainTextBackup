@@ -402,3 +402,59 @@ Towa爹妈不就是搞天文的
 —— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 想起那由多的轨迹，主角姓赫歇尔，家里都是搞天文的，父母出海没了，屋子上一个大天文望远镜，然后东轨主角表姐算是towa的复制人,她才是falcom世界的关键？
 
+
+*****
+
+####  宛若青空  
+##### 1522#       发表于 2024-7-12 00:51
+
+真是谢谢法老控给我们省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1523#       发表于 2024-7-12 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等着看剧透，一部完结补一个票，完结不了直接不买
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  黒鈴ミヲ  
+##### 1524#       发表于 2024-7-12 01:14
+
+逆天特典，做不出可以不做<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 1525#       发表于 2024-7-12 01:24
+
+两张卖学妹的新规插画都是同一个人画的，还是闪轨漫画作者，这有什么说道吗
+
+*****
+
+####  yuy  
+##### 1526#       发表于 2024-7-12 02:18
+
+<blockquote>一夜秋风袭锦城 发表于 2024-7-11 16:01
+Towa爹妈不就是搞天文的
+
+—— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+想起那由多的轨迹，主角姓赫歇尔，家里都是搞天文的，父母出海没了，屋子上一个大天文望远镜，然后东轨主角表姐算是towa的复制人,她才是falcom世界的关键？
+
+*****
+
+####  ravend233  
+##### 1527#       发表于 2024-7-12 06:58
+
+ 本帖最后由 ravend233 于 2024-7-12 07:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558407&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-7-12 01:24</a>
+两张卖学妹的新规插画都是同一个人画的，还是闪轨漫画作者，这有什么说道吗 ...</blockquote>
+给女主角一个面子（）
+
+闪漫画作者本身也给你法社画过几次特典了，属于长期合作关系
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

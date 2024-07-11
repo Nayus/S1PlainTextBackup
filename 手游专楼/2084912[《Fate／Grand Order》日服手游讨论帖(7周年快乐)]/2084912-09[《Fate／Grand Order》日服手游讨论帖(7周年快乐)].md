@@ -2517,3 +2517,11 @@ fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
 
 想要泳装巴万西<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 13028#       发表于 2024-7-11 08:09
+
+希望我这180石有灵魂 去年泳装就差水c呆
+

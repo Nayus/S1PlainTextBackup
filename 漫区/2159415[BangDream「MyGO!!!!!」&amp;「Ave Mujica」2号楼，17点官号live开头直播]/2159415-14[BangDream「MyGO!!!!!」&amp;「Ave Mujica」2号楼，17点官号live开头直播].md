@@ -6270,3 +6270,19 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 绫奈已经没有新访谈了，以后每一次柿本的发言都有可能新的罪证<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19807#       发表于 2024-7-12 02:28
+
+独角兽访谈确实强调了真实感，感觉不满魔女之夜的可能性变大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/12/022818iuhur8cy829988hu.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240712022745.png</strong> (26.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 02:28 上传
+

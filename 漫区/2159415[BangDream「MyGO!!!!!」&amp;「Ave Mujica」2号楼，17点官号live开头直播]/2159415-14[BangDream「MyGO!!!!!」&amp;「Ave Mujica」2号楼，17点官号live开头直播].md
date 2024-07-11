@@ -5946,3 +5946,54 @@ NTK_0023
 
 负责了剧本的人想切割就是很大的滑坡点<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 19781#       发表于 2024-7-12 01:19
+
+也可能是独角兽觉得视觉图不行
+被wsd的贫穷气笑了
+
+*****
+
+####  NODY  
+##### 19782#       发表于 2024-7-12 01:20
+
+ 本帖最后由 NODY 于 2024-7-12 01:22 编辑 
+
+至少声优的表现看起来是对动画挺满意的，我觉得她们五个演技应该还没好到剧情崩了还能那么开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实在不行就学习一下立希厨的心态，直接备战手游，最新的幼驯染剧情不就写得挺好
+
+*****
+
+####  Aendst  
+##### 19783#       发表于 2024-7-12 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558337&amp;ptid=2159415" target="_blank">Hchan 发表于 2024-7-12 01:14</a>
+
+当年就是一起搭伙拍玩具广告片，当然其乐融融。现在不满足于只做玩具广告片了，要做高达了，当然会吵起来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大河内翻车了多少次，绫奈又翻车了多少次，轻拍翻车说不定还是因为把绫奈踢走了
+
+柿本脚本做得怎么样，他个人参与脚本的邦多利剧场版都很好评吗，刀使评价很好吗
+
+万物均可监督压脚本，做好了全都是监督的功劳，做不好全都是系构没被压住是吧
+
+*****
+
+####  IWS2000  
+##### 19784#       发表于 2024-7-12 01:22
+
+到时是《祥子复仇记》还是《魔法少女小祥》
+
+
+*****
+
+####  友情的结晶  
+##### 19785#       发表于 2024-7-12 01:27
+
+如果真是看不到分镜就太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

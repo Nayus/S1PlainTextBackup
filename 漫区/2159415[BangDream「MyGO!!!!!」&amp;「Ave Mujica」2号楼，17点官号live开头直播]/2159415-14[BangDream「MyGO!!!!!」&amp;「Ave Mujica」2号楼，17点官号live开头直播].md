@@ -4159,3 +4159,98 @@ aaaaaaaaaa不能再演一個小時嗎
 怎么还有一张单独牵手手</blockquote>
 甚至十指相扣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19605#       发表于 2024-7-11 22:07
+
+每次都是你們兩個最快<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/220717yxxkk5slx3apl11d.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (40.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:07 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/220707xtir6v2q2ri04v34.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240711-140621_1811401646020391283_photo.jpg</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:07 上传
+
+[https://x.com/sasakirico/status/1811401646020391283](https://x.com/sasakirico/status/1811401646020391283)
+
+*****
+
+####  御幸一也  
+##### 19606#       发表于 2024-7-11 22:09
+
+笑死好快的畫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/220854dc7c9e2nzacanc97.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Natsuki(@NTK_0023)_20240711-133232_1811393137597960689_photo.jpg</strong> (249.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:08 上传
+
+[https://x.com/NTK_0023/status/1811393137597960689](https://x.com/NTK_0023/status/1811393137597960689)
+
+*****
+
+####  星天观测  
+##### 19607#       发表于 2024-7-11 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556942&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-11 22:05</a>
+
+甚至十指相扣</blockquote>
+この手を離さない<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19608#       发表于 2024-7-11 22:10
+
+五个人是不是都戴了戒指，我要造谣是李子送的那个了
+
+明年动画没有五人婚一定是被删了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19609#       发表于 2024-7-11 22:11
+
+不用造謠李子就是送過大家同款戒指<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但好像這次不是都戴的同一款<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19610#       发表于 2024-7-11 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556873&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-11 21:56</a>
+
+ave的大家都愛吃辣</blockquote>
+高尾不行吧
+
+结月问擅长吃辣的人都有谁，结果就高尾没举手
+
+看大家都举手支支吾吾举手夹着说“我也喜欢”
+
+非常可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 19611#       发表于 2024-7-11 22:15
+
+鸡团这五个人也太好了，这才是我想要的邦多利啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

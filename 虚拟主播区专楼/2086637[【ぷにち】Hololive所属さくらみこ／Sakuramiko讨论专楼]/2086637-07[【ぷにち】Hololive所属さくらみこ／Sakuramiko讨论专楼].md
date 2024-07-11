@@ -3597,3 +3597,26 @@ GTA吧，首先miko没有参加过任何STGR式的GTA服那为什么能写出那
 
 这3人真是绝配了，再无第二个同样感觉的组合了
 
+
+*****
+
+####  holoan  
+##### 9203#         楼主| 发表于 2024-7-11 21:26
+
+马里奥死了那么多次都没哭今天真哭了
+
+*****
+
+####  holoan  
+##### 9204#         楼主| 发表于 2024-7-11 22:13
+
+<img src="https://img.saraba1st.com/forum/202407/11/221323taoacg2aooshg2bb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:13 上传
+
+笑死了
+

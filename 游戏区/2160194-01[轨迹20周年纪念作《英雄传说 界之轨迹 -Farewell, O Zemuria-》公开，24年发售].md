@@ -14442,3 +14442,91 @@ Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
 
 不考虑羁绊，库洛和托娃隐性cp这一点我觉得还蛮明显的
 
+
+*****
+
+####  法拉  
+##### 1400#       发表于 2024-7-11 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在本子里还是经常出现库洛艹托娃的
+
+
+*****
+
+####  ravend233  
+##### 1401#       发表于 2024-7-11 14:47
+
+克洛托娃倒是一直都有点那个方面的互动
+
+至于闪1（）大伙就当没看见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1402#       发表于 2024-7-11 14:48
+
+克洛这设定？什么范恩复刻
+
+*****
+
+####  法拉  
+##### 1403#       发表于 2024-7-11 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可能是画风的原因，但立绘的黑兔脸还是胖嘟嘟的，很萝莉，suki
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1404#       发表于 2024-7-11 14:49
+
+50跟Towa的cp感不是很明显吗？
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  医生狼多  
+##### 1405#         楼主| 发表于 2024-7-11 14:51
+
+电击PlayStation将于7月12日晚上8点（北京时间）进行《界之轨迹》新一期情报的直播。直播地址：http://t.cn/A6QrhTOo ​​​
+
+
+*****
+
+####  izayoi39  
+##### 1406#       发表于 2024-7-11 14:53
+
+库洛和托娃其实早期应该就是按cp设计的，只不过随着桃花剑的羁绊剧情崩了后就变得像是桃花剑的后宫了
+
+*****
+
+####  无动于衷  
+##### 1407#       发表于 2024-7-11 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552791&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-11 14:47</a>
+
+克洛托娃倒是一直都有点那个方面的互动</blockquote>
+不是闪1而是碧轨改直接把托瓦的头像做里面了，还有台词<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 1408#       发表于 2024-7-11 14:55
+
+库洛和拖娃 肥肥和学姐
+
+
+*****
+
+####  Aeons  
+##### 1409#       发表于 2024-7-11 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">托娃本人都不恨咱们还能说什么呢
+
+*****
+
+####  smdzh2  
+##### 1410#       发表于 2024-7-11 14:56
+
+本子里是50米拉雷普托娃，游戏里应该是托娃雷普50米拉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

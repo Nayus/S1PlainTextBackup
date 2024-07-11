@@ -1117,3 +1117,30 @@ toi8还是算了，远不如enami
 你真的能接受伊苏10的toi8那个不知道画的什么玩意的东西？</blockquote>
 这很烂 但还是比e大师好百倍
 
+
+*****
+
+####  酷乐  
+##### 108#       发表于 2024-7-11 14:48
+
+这是亲兄弟吗
+
+<img src="https://img.saraba1st.com/forum/202407/11/144828i7e8yhhs6837yhvy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7238.jpeg</strong> (552.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 14:48 上传
+
+
+*****
+
+####  法拉  
+##### 109#       发表于 2024-7-11 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552806&amp;ptid=2189984" target="_blank">酷乐 发表于 2024-7-11 14:48</a>
+
+这是亲兄弟吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎1的时候不就有人说像
+

@@ -5412,3 +5412,82 @@ GSMtBlUbIAAPPCv.jpg
 
 mygo的脚本家团体都是独角兽亲信，应该问题不大，除非最后几集脚本一出来是柿本广大<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19727#       发表于 2024-7-12 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557979&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-7-12 00:25</a>
+
+mygo的脚本家团体都是独角兽亲信，应该问题不大，除非最后几集脚本一出来是柿本广大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不能排除可能性
+
+*****
+
+####  PDQ4  
+##### 19728#       发表于 2024-7-12 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557979&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-7-12 00:25</a>
+
+mygo的脚本家团体都是独角兽亲信，应该问题不大，除非最后几集脚本一出来是柿本广大 ...</blockquote>
+你这个太恐怖了，柿本菜花当脚本就算了，狗剧场版也是脚本第一顺位<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 19729#       发表于 2024-7-12 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557979&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-7-12 00:25</a>
+mygo的脚本家团体都是独角兽亲信，应该问题不大，除非最后几集脚本一出来是柿本广大 ...</blockquote>
+同样是第一集讲六个人，独角兽写的mygo第一集和柿本写的菜花第一集有云泥之别
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  skives  
+##### 19730#       发表于 2024-7-12 00:31
+
+每个名监督都有一个脚本梦来体现作者性
+明年柿本会晋升为柿本哥哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19731#       发表于 2024-7-12 00:32
+
+柿本的话最差拍成刀使巫女，那也还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19732#       发表于 2024-7-12 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刀屎有多爛沒看過都有耳聞，這完全不行吧
+
+*****
+
+####  T@L  
+##### 19733#       发表于 2024-7-12 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557747&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:57</a>
+
+滑坡等级表
+
+T3级 对美术风格配乐风格的理解不同
+
+T2级 对家庭矛盾的解决意见不一致</blockquote>
+對祥子的理解不一致可能是什麼情況，認為祥子是女強人和認為她需要別人幫忙才能走出心防這樣的？
+
+*****
+
+####  利维豚  
+##### 19734#       发表于 2024-7-12 00:37
+
+<img src="https://p.sda1.dev/18/7b2add7f10a8cb56aa9774f8fa72d150/image.jpg" referrerpolicy="no-referrer">
+[Gemini_mujou](https://x.com/Gemini_mujou/status/1811437666162073858?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

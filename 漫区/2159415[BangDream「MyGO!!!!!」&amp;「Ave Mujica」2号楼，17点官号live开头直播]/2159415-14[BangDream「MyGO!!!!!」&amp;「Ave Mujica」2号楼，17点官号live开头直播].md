@@ -6240,3 +6240,25 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 悲观一点想就是，真的出现了只修改一两句台词就影响剧情观感的部分，比如在不合时宜的地方加了一句“哟西”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19804#       发表于 2024-7-12 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558513&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-12 01:39</a>
+
+这个我觉得还好
+
+毕竟春日影也哭了
+
+最多是幅度有点大的问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果是视觉图的话绫奈提及分镜就有点奇怪了，虽然可能确实不是同一件事
+
+*****
+
+####  御幸一也  
+##### 19805#       发表于 2024-7-12 01:53
+
+有一說一現在綾奈確實不粘鍋了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 該來重看一下訪談綾奈和柿木的角色理解哪裡有微妙不一致了
+

@@ -1077,3 +1077,16 @@ Toi8同期给废狗交的武田信玄都没这么离谱
 
 黑兔还是村上来画最好
 
+
+*****
+
+####  慕容断月  
+##### 104#       发表于 2024-7-11 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65518065&amp;ptid=2189984" target="_blank">maojiashu 发表于 2024-7-8 11:01</a>
+
+我包括轨迹和伊苏两个系列 除了e大师 其他所有画师的立绘都能接受
+
+e大师真的丑麻了 从零轨开始就是丑的xnml ...</blockquote>
+你真的能接受伊苏10的toi8那个不知道画的什么玩意的东西？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

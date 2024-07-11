@@ -1144,3 +1144,13 @@ toi8还是算了，远不如enami
 这是亲兄弟吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎1的时候不就有人说像
 
+
+*****
+
+####  izayoi39  
+##### 110#       发表于 2024-7-11 14:59
+
+ 本帖最后由 izayoi39 于 2024-7-11 15:00 编辑 
+
+toi8的武田信玄也能接受吗，当初出来的时候都被人骂烂了，也就三破画面因为整体风格问题还算能看而已
+

@@ -14530,3 +14530,90 @@ Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
 
 本子里是50米拉雷普托娃，游戏里应该是托娃雷普50米拉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 1411#       发表于 2024-7-11 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552920&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 14:56</a>
+
+托娃本人都不恨咱们还能说什么呢</blockquote>
+和能拆黎老师后宫比起来，那点仇恨算得了什么 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1412#       发表于 2024-7-11 14:58
+
+这下利贝尔代表玲，克州代表莉夏，帝国代表黎恩，自由都市圈代表克洛，列曼代表黑兔（财团计划负责人），法典国代表凯文，齐活
+
+*****
+
+####  Aeons  
+##### 1413#       发表于 2024-7-11 15:00
+
+特典不是说有tio
+
+*****
+
+####  卢迪克  
+##### 1414#       发表于 2024-7-11 15:01
+
+大概不可控吧。
+
+*****
+
+####  ravend233  
+##### 1415#       发表于 2024-7-11 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552990&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 15:00</a>
+
+特典不是说有tio</blockquote>
+快进到是3D建模截图
+
+*****
+
+####  卢迪克  
+##### 1416#       发表于 2024-7-11 15:04
+
+还以为自由都市圈能混个手游呢，就这样给克洛了，果然点亮的就是不想做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 1417#       发表于 2024-7-11 15:05
+
+说实话感觉几位来共和国的理由都有点怪怪的
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1418#       发表于 2024-7-11 15:05
+
+按原设那确实该是Towa雷普50的。
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  Piano-Forest  
+##### 1419#       发表于 2024-7-11 15:06
+
+7月12日晚8点
+
+『界の軌跡』最新情報まとめ／初公開映像＆リィン、クロウなど待望の登場キャラに注目！
+[https://www.youtube.com/live/G5R18Vi6Gcg](https://www.youtube.com/live/G5R18Vi6Gcg)
+
+<img src="https://p.sda1.dev/18/eb29dd6b3f21e3e5d5b1f3962f1d5578/001 _2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1b868724e661033fd91ebc9320b54d84/002 _2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/538ee45472172775a5c154018bff28aa/009 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6be367c78b00a3d6c596e021b99ce090/011.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/57fc093df14909782bbf7a659c30e15b/003 _2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/738f1880cedcd661da54977923c3536b/004 _2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5b9bc096e1cfc94ea45822f21c21d02e/015.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/abf5ca142de8487bb5c1ea9aac0ae098/016.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9e3380c771463802af23e8fb5168a95c/017.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c52a8943eb32170f373fed44d71f5345/005 _3_.jpg" referrerpolicy="no-referrer">
+

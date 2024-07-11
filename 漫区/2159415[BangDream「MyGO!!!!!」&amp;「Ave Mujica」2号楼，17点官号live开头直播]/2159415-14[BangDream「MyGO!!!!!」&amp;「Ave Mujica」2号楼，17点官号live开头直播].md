@@ -4365,3 +4365,56 @@ ave的大家都愛吃辣</blockquote>
 
 2024-7-11 22:45 上传
 
+
+*****
+
+####  御幸一也  
+##### 19623#       发表于 2024-7-11 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">綾奈沒有關注ave mujica的官推了，這下真的要不安了
+
+*****
+
+####  Aendst  
+##### 19624#       发表于 2024-7-11 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 19625#       发表于 2024-7-11 23:01
+
+这个话题半年前聊过吧
+
+*****
+
+####  相坂君  
+##### 19626#       发表于 2024-7-11 23:02
+
+绫奈是最近取关的，之前还没有取关<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19627#       发表于 2024-7-11 23:02
+
+ 本帖最后由 PDQ4 于 2024-7-11 23:04 编辑 
+
+卧槽真取关了，我记得前段时间还在呢，那是什么时候取关的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+怎么刚团魂广播完就来这一出
+
+难道是那天说分镜的时候取关的吗，鸡动画彻底收尾了但是绫奈最后工程完全没参与？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19628#       发表于 2024-7-11 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557302&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-7-11 23:01</a>
+
+这个话题半年前聊过吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">半年前，泥樓都說“至少綾奈還關注著ave mujica的推特”，現在她取消關注了
+

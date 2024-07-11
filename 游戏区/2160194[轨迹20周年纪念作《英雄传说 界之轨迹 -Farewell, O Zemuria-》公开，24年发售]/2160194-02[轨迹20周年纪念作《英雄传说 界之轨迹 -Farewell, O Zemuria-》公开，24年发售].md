@@ -290,3 +290,11 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 <img src="https://img.saraba1st.com/forum/202407/11/221418dwwos1trxgw98wpg.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1511#       发表于 2024-7-11 22:56
+
+三人里面互相都可以是cp
+

@@ -1354,3 +1354,11 @@ e大师的背景图？快贴出来瞧瞧。e大师没在我关注的名单里，
 —— 来自 Xiaomi M2102J2SC, Android 13上的 S1 ...</blockquote>
 日本论坛里看到挺多差评的，欧美论坛评价倒是挺好
 
+
+*****
+
+####  gunmanmk2  
+##### 130#       发表于 2024-7-11 19:55
+
+E圣别画了，放过轨迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">
+

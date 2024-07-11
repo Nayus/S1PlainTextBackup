@@ -211,3 +211,47 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 有人说那个大合照就是可控，那是不是快出反派介绍了
 
+
+*****
+
+####  卢迪克  
+##### 1506#       发表于 2024-7-11 19:53
+
+ 本帖最后由 卢迪克 于 2024-7-11 19:55 编辑 
+
+三个版本齐了
+
+<img src="https://img.saraba1st.com/forum/202407/11/195523fv0xm077v9hbbab8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240711_161923.jpg</strong> (156.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/195313mnnqptyvg3rt4yqq.png" referrerpolicy="no-referrer">
+
+<strong>rakuten.png</strong> (54.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 19:53 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/195324l0jz3vm983q1y6vm.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>animate_a.webp</strong> (103.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 19:53 上传
+
+*****
+
+####  Aeons  
+##### 1507#       发表于 2024-7-11 19:54
+
+啊不对，没有双子妹却有黄金蝶，肯定不是可控图
+

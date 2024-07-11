@@ -1374,3 +1374,19 @@ E圣别画了，放过轨迹吧<img src="https://static.saraba1st.com/image/smil
 
 —— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  卢迪克  
+##### 132#       发表于 2024-7-11 20:38
+
+ 本帖最后由 卢迪克 于 2024-7-11 20:40 编辑 
+<blockquote>零食杀手 发表于 2024-7-11 20:17
+居然不去推上炎上下的吗，当年ys7可是炎上后换画师的
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 S1Ne ...</blockquote>
+
+伊苏x亚特鲁不就被冲换了张新的吗。
+
+轨迹玩家声音还不够大罢了
+

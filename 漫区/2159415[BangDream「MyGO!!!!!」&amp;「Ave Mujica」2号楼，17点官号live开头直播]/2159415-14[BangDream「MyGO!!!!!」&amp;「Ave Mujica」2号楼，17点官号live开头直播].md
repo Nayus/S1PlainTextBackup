@@ -5779,3 +5779,60 @@ NTK_0023
 当初第十集左右的时候
 有人就说已经做到16集左右了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19764#       发表于 2024-7-12 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558233&amp;ptid=2159415" target="_blank">ellisnadie 发表于 2024-7-12 00:55</a>
+
+声优是什么时候看完剧本的？我记得她们挺早就在访谈透露过剧情相关吧。</blockquote>
+
+至少1月底就錄完了
+
+[https://bbs.saraba1st.com/2b/for ... 15&amp;pid=65313765](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2159415&amp;pid=65313765)
+
+*****
+
+####  PDQ4  
+##### 19765#       发表于 2024-7-12 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558164&amp;ptid=2159415" target="_blank">Hchan 发表于 2024-7-12 00:46</a>
+
+怎么柿本监督的风评在楼里疯狂下降一部动画做好做坏第一关系人都是监督啊，总不能拍好了就是绫奈的功劳，拍 ...</blockquote>
+不光是这个原因，主要现在更大的问题是制作组内部疑似有矛盾
+
+如果绫奈还关注鸡，我可以说服自己私人矛盾，不影响工作
+
+现在切割了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+当然具体成品如何要看明年就是<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19766#       发表于 2024-7-12 00:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我还记得舅舅党说相信绫奈能写出祥子独特的人物弧光呢
+
+*****
+
+####  NODY  
+##### 19767#       发表于 2024-7-12 01:02
+
+按理来说，像是“大篇幅家庭伦理剧”、“和丰川家包饺子”、“原定cp被拆”、“角色人设被大改”这类剧情，是不可能只靠修改分镜和画面表现或者配音的时候即兴加一两句台词来达到效果的，肯定需要大量的剧本描写，真出现的话独角兽自己也脱不开锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dqtql  
+##### 19768#       发表于 2024-7-12 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558284&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 01:02</a>
+
+按理来说，像是“大篇幅家庭伦理剧”、“和丰川家包饺子”、“原定cp被拆”、“角色人设被大改”这类剧情， ...</blockquote>
+真出现了就请导演把锅背了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+独角兽：这就是不让我check的后果
+

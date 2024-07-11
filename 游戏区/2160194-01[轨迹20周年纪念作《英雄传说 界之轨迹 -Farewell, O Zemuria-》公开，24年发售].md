@@ -14769,3 +14769,24 @@ E圣画的竟然比想象中的好一点<img src="https://static.saraba1st.com/i
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ghostdio  
+##### 1435#       发表于 2024-7-11 15:42
+
+托娃那个和那由多同姓的伏笔还有可能被拿出来发挥吗，还是就单纯当彩蛋了（）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  smdzh2  
+##### 1436#       发表于 2024-7-11 15:45
+
+同样是白毛帝国人，为何差距如此悬殊
+黑兔：<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">什么一方水土养一方人，女大十八变都是假的！！！
+<img src="https://p.sda1.dev/18/54e893d2146597768a0c95d05d0c81b0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/2baea307de7593e3a703f9f90203faf8/image.jpg" referrerpolicy="no-referrer">
+

@@ -3279,3 +3279,16 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 第四张高尾疑似太小女友了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pipaopo  
+##### 19529#       发表于 2024-7-11 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65554759&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-11 17:29</a>
+
+tgw物产应该是个列文虎克假药吧
+
+怎么感觉很多人都觉得是真的</blockquote>
+其它都是娱乐公司，混进个名字很可疑的物产公司
+

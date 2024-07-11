@@ -15211,3 +15211,13 @@ Towa爹妈不就是搞天文的
 表情动起来能到gbc水准就好了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GBC水平没几家做得到，那是真的烧黑奴烧出来的
 
+
+*****
+
+####  悠悠你心  
+##### 1480#       发表于 2024-7-11 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等明天有没有闪组战技动画了
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

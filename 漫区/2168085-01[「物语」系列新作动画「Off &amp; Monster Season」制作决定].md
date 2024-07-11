@@ -1472,3 +1472,25 @@ https://w ...</blockquote>
 
 拿出来一翻才发现还有个猴子篇 印象里只有老仓跟斧乃木两篇
 
+
+*****
+
+####  Piano-Forest  
+##### 352#         楼主| 发表于 2024-7-11 19:21
+
+#02 撫物語 なでこドロー 其ノ壹
+
+漫画家になるため、学校へ行かず絵を描く毎日を送っている千石撫子は、ついに両親から「中学校を卒業したら働きに出なさい」と宣告されてしまう。卒業までの期限が迫るなか、斧乃木余接が漫画家になるための、ある方法を提案する。
+
+脚本：大嶋実句
+
+絵コンテ：吉澤 翠・松村幸治
+
+演出：松村幸治
+
+作画監督：伊藤良明・高野晃久・浅井昭人・高橋みき・宮嶋仁志・牛ノ濱由惟・当真 柚
+<img src="https://p.sda1.dev/18/29ad0bae8cdc11f28ae6f672504e344a/story_3549_photo_1720675785637204889.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b1f98b656f99ac7ab982d93c2101577c/story_3549_photo_1720675787075964215.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/8c189c88bf8d4c0a8ff18d3576e3ac07/story_3549_photo_1720675788082841116.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e41105b438d279876b3bfbee4178222e/story_3549_photo_1720675789626281566.png" referrerpolicy="no-referrer">
+

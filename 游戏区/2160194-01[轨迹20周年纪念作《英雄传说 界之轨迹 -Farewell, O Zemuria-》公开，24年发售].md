@@ -14022,3 +14022,11 @@ e大师这闪组明显就是照着村上绘画的啊，看眼睛一眼看出来�
 
 黑兔明显藏拙了，这不还是会画吗
 
+
+*****
+
+####  Oshino  
+##### 1359#       发表于 2024-7-11 12:06
+
+脸正常了，手指把我看傻了，这图甩出去会被鉴ai的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

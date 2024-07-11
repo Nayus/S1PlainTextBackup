@@ -14910,3 +14910,42 @@ Towa爹妈不就是搞天文的
 细看下就是阴影脸吧，光影靠半张脸的颜色深浅变化展现，只不过阴影颜色没那么黑，阴影边缘也不是清晰的线 ...</blockquote>
 起码比明暗交界线顺着额头鼻子人中下巴一路下来把人脸切成两半的某些赛璐璐三选二效果强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1450#       发表于 2024-7-11 16:24
+
+ 本帖最后由 卢迪克 于 2024-7-11 16:27 编辑 
+<blockquote>hkguty 发表于 2024-7-11 16:12
+黎恩似乎有几句台词都是关于师姐的，难道真的要同门对决了</blockquote>
+
+黑兔的台词才是重点，教会内部好像发生了什么
+
+静名反正可控，没什么看头。
+
+*****
+
+####  Cloudslin  
+##### 1451#       发表于 2024-7-11 16:24
+
+一直以为克洛要配二姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1452#       发表于 2024-7-11 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">克洛不是拒绝了二姐了吗怎么配
+
+
+*****
+
+####  新世界的派蒙  
+##### 1453#       发表于 2024-7-11 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553756&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-7-11 16:02</a>
+
+细看下就是阴影脸吧，光影靠半张脸的颜色深浅变化展现，只不过阴影颜色没那么黑，阴影边缘也不是清晰的线 ...</blockquote>
+如果材质不像皮肤，的确会给人塑料娃娃感，黎这个皮肤还是看得出血色的.
+

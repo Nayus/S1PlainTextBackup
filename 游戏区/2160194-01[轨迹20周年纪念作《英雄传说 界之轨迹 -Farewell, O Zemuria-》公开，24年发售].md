@@ -13842,3 +13842,28 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 
 黎恩黑兔感觉很不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1338#       发表于 2024-7-11 10:59
+
+黎老师这张真的帅
+
+*****
+
+####  a2042312  
+##### 1339#       发表于 2024-7-11 11:01
+
+黎爷这姿势好像在哪看过，黑兔居然露腋了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jinxi42  
+##### 1340#       发表于 2024-7-11 11:06
+
+黎爷这张也太像莱维换头了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

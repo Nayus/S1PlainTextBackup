@@ -5350,3 +5350,65 @@ GSMtBlUbIAAPPCv.jpg
 
 都看到祥子黑网友在期待母鸡卡剧情爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 19721#       发表于 2024-7-12 00:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">对这种事情幸灾乐祸的人从来都不会少
+
+*****
+
+####  Aloereed  
+##### 19722#       发表于 2024-7-12 00:19
+
+明天有没有人直接去现场问问老登啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19723#       发表于 2024-7-12 00:22
+
+祥黑绫奈切不切割都会期待鸡爆炸的
+
+进可以直球骂祥子小丑，银河战舰必翻车
+
+退可以绫奈没水平，肯定闹麻了
+
+现在无非是给他们一个新的发散点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 19724#       发表于 2024-7-12 00:24
+
+怎么又开始车这些了
+
+我的评价是不如茜的这条推，已经是大喵老师 gachi 了，真有人能不爱吗
+
+<img src="https://img.saraba1st.com/forum/202407/12/002403md8onft1u81idzjt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 00:24 上传
+
+*****
+
+####  NODY  
+##### 19725#       发表于 2024-7-12 00:24
+
+就认真分析的话，生放五个人看了pv挺开心的样子说明剧情和人际关系上应该没什么大问题，而且独角兽是看了pv后取关，pv也看不出有什么人际关系被改
+
+最接近的结论就是独角兽不喜欢这套魔女之夜的表现手法了，毕竟之前她在mygo那边的访谈里面确实对mygo相比前三季更“现实”的表现很满意，那就是不喜欢这种魔幻风了
+
+*****
+
+####  ydsbbt  
+##### 19726#       发表于 2024-7-12 00:25
+
+mygo的脚本家团体都是独角兽亲信，应该问题不大，除非最后几集脚本一出来是柿本广大<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

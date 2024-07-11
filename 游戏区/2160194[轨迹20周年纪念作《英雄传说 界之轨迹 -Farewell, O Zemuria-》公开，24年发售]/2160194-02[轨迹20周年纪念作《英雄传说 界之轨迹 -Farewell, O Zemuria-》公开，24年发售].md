@@ -334,3 +334,17 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 那我可以认为这次界轨新立绘已经都公布完了，之后公布的估计都是些旧立绘没啥好说的了。
 
+
+*****
+
+####  ravend233  
+##### 1515#       发表于 2024-7-12 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557889&amp;ptid=2160194" target="_blank">zhuhh 发表于 2024-7-12 00:14</a>
+竟然拿缇欧创轨特典来卖，这样是不是说明缇欧在界轨根本没有新立绘，甚至也不会出场客串？
+
+那我可以认为这 ...</blockquote>
+可能还有一些反派和敌役立绘，不过确实估计就这些了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

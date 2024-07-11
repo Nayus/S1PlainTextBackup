@@ -6371,3 +6371,65 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">現在完全不知道要怎麼熬到河口湖
 
+
+*****
+
+####  御幸一也  
+##### 19816#       发表于 2024-7-12 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558704&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 02:44</a>
+
+至少这已经是最乐观的展开了
+
+独角兽之前的访谈也说过写mygo和mujica带入了自身经历，把自己的人生投影进 ...</blockquote>
+就PV那個feel，要演真實系有點牽強了吧（除非PV的新畫面一個都不用），還是說要演奇巧計程車了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19817#       发表于 2024-7-12 02:57
+
+大概翻了一下几个访谈，发现在人物关系性上，独角兽反而更强调C团的存在感和重要性，倒是柿本在有意切割跨团cp（比如说睦送黄瓜是给mygo全员，海希关系是看到学校临时起意之类的），没准改了以后还更符合泥漏喜好呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19818#       发表于 2024-7-12 03:01
+
+有一說一泥樓雖然每次滑得最狠，但也是調理得最快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感覺都睡一覺就沒事了
+
+*****
+
+####  PDQ4  
+##### 19819#       发表于 2024-7-12 03:03
+
+ 本帖最后由 PDQ4 于 2024-7-12 03:04 编辑 
+
+我已经调理好了，总不能再扩散出去把泥漏当魔窟吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+泥漏人就是心态有点过于良好才这么擅长短道速滑<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19820#       发表于 2024-7-12 03:05
+
+翻推特米澤好可愛，她煩惱了很久（在生放上）要如何說話，
+
+怕大家知道了她講話的樣子，就會破壞腦海中的印象，
+
+所以直到昨天，她都是不打算說話貫徹無口路線的，結果最後還是選擇了展現出原原本本的她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+希望下次全員生放她能放開玩<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/025919qjh1hh2owh9h9rvh.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (55.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 02:59 上传
+

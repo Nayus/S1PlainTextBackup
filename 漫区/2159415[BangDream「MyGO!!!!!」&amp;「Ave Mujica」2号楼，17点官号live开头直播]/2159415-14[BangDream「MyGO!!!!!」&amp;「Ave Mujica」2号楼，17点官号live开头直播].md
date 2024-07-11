@@ -3466,3 +3466,57 @@ BW2024，算是邦相关的
 
 不如直接穿袍子算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19541#       发表于 2024-7-11 20:58
+
+笑喷了，你们有没有这样的团魂世界观啊
+
+
+*****
+
+####  傘木希美  
+##### 19542#       发表于 2024-7-11 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">太逗了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19543#       发表于 2024-7-11 21:01
+
+高尾竟然没笑场，进步好大！
+
+*****
+
+####  MZZK  
+##### 19544#       发表于 2024-7-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556476&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-11 21:01</a>
+高尾竟然没笑场，进步好大！</blockquote>
+答案是开场就已经提前笑过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19545#       发表于 2024-7-11 21:03
+
+<img src="https://img.saraba1st.com/forum/202407/11/210341e23azb3rvayz3hbr.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 12-24 screenshot.png</strong> (1.44 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:03 上传
+
+*****
+
+####  御幸一也  
+##### 19546#       发表于 2024-7-11 21:05
+
+救命啊夢以本音太甜妹了，timoris你太破壞世界觀了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1419,3 +1419,32 @@ e大师作为雇佣兵其实算敬业了，卖力的画完完成了工作，早�
 
 我是真觉得enami挺好的，零轨的艾差点意思，别的大体上都还行<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhuhh  
+##### 136#       发表于 2024-7-11 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556379&amp;ptid=2189984" target="_blank">kongxian 发表于 2024-7-11 20:46</a>
+
+e大师作为雇佣兵其实算敬业了，卖力的画完完成了工作，早年看p站e大师喜欢画男人，迎合游戏美术工整化女角 ...</blockquote>
+说到fgo的话，当年enami也给fgo画过图的，虽然只画了一张。不知道这张图在fgo那边风评如何
+
+豆沙公主.png
+(280.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/224155ifipk5wpg4pukgb1.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sayuki1025  
+##### 137#       发表于 2024-7-11 22:43
+
+黑兔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

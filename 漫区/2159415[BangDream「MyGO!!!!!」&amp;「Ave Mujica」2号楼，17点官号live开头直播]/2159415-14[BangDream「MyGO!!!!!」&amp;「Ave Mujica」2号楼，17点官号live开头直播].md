@@ -4325,3 +4325,27 @@ ave的大家都愛吃辣</blockquote>
 
 海喵感觉是冷笑话和热笑话角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19619#       发表于 2024-7-11 22:37
+
+已經能腦補出海鈴一本正經地裝傻ボケ，然後喵夢接梗オチ了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19620#       发表于 2024-7-11 22:39
+
+梦以这个邦TV好多反应都好搞笑
+
+题外话我觉得弄梦CP可以抬上来了，下意识抓手的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19621#       发表于 2024-7-11 22:40
+
+高尾這個大姐姐廚絕對很饞夢以的身體<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

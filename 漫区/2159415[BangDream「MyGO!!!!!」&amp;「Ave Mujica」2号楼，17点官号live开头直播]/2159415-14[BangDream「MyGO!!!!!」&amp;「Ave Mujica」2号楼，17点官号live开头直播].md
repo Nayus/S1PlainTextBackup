@@ -3520,3 +3520,78 @@ BW2024，算是邦相关的
 
 救命啊夢以本音太甜妹了，timoris你太破壞世界觀了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19547#       发表于 2024-7-11 21:06
+
+梦以在疯狂破坏世界观！<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+有没有D5J的梦以厨，她在那边就是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KirigawaMaki  
+##### 19548#       发表于 2024-7-11 21:07
+
+梦以声音确实好软，爱听<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19549#       发表于 2024-7-11 21:09
+
+茜姐有待那个了，怎么去李子家还留了好多T恤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19550#       发表于 2024-7-11 21:10
+
+〇〇さんごめんなさい
+
+米澤抽到的談話題目，然後她就說想道歉的人是李子
+
+因為米澤整天去李子家住，然後每次住都會借李子的tshirt穿，所以米澤家就堆積了超多的李子衣服沒有還<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最後奏音提議要不大家都去李子家お泊り，我要看這個，我要看ave mujica的お泊り会!!<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 19551#       发表于 2024-7-11 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么借衣服， 有点暧昧了呢
+
+*****
+
+####  御幸一也  
+##### 19552#       发表于 2024-7-11 21:11
+
+結月好活潑啊這回，果然和熟人一起生放就是不一樣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 19553#       发表于 2024-7-11 21:14
+
+刚刚那句声音高扬，好可爱，熟人就是好，放开了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19554#       发表于 2024-7-11 21:14
+
+中气十足的结月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 19555#       发表于 2024-7-11 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我现在就想看母鸡卡，半年太难熬了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

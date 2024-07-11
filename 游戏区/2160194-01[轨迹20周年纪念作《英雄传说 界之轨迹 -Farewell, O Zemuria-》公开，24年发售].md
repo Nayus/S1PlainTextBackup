@@ -14351,3 +14351,94 @@ Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
 
 因为发型设计的问题呗，人设原案是法社自己做的，然后一旦遮不住脸整体e圣就会改的很唐
 
+
+*****
+
+####  ravend233  
+##### 1389#       发表于 2024-7-11 14:36
+
+这全家福特典一度让我回忆起水魔S2主视图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1390#       发表于 2024-7-11 14:38
+
+那也比立绘强，这个对标黑鼻头狸猫
+
+*****
+
+####  法拉  
+##### 1391#       发表于 2024-7-11 14:39
+
+太敷衍了，这角色位置乱塞
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 1392#       发表于 2024-7-11 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">帝国人待遇好像好一点
+
+*****
+
+####  医生狼多  
+##### 1393#         楼主| 发表于 2024-7-11 14:40
+
+还是来看建模吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/aa31f25151489f67e216feaa9e9d5c8a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1394#       发表于 2024-7-11 14:41
+
+克洛那外套感觉建模比立绘要狂野很多
+
+
+*****
+
+####  ravend233  
+##### 1395#       发表于 2024-7-11 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552681&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 14:38</a>
+
+那也比立绘强，这个对标黑鼻头狸猫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还是超级加倍黑鼻头
+
+*****
+
+####  无动于衷  
+##### 1396#       发表于 2024-7-11 14:44
+
+你法不会要把库洛和托瓦给整成CP吧
+
+想想当年库洛差点把托瓦给炸死就觉得这个CP过于生草
+
+*****
+
+####  Aeons  
+##### 1397#       发表于 2024-7-11 14:44
+
+凯文是不是有点忙，哪里都有他
+
+*****
+
+####  法拉  
+##### 1398#       发表于 2024-7-11 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552705&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-7-11 14:40</a>
+
+还是来看建模吧</blockquote>
+建模脸太尖了，感觉一点都不萝莉
+
+而且不知道为什么，黎开始的建模总喜欢给女性突出嘴唇，显老，还是闪3闪4的好看
+
+*****
+
+####  Aeons  
+##### 1399#       发表于 2024-7-11 14:45
+
+不考虑羁绊，库洛和托娃隐性cp这一点我觉得还蛮明显的
+

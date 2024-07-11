@@ -13753,3 +13753,19 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 
 近藤说话都是配合宣传的 最喜欢的角色 艾斯蒂尔  黎恩他都说过 别在意。不过说心里话应该是艾斯蒂尔 毕竟艾约是真的近藤自己创作出来的。
 
+
+*****
+
+####  Kojimaru  
+##### 1331#       发表于 2024-7-11 10:10
+
+<img src="https://img.saraba1st.com/forum/202407/11/100926dvvnufm6wfunkzbb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (692.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 10:09 上传
+
+哦吼，黎轨2廉价版实体预购送🐱🐱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -15001,3 +15001,40 @@ Towa爹妈不就是搞天文的
 
 黑兔长大了又没长大
 
+
+*****
+
+####  Aeons  
+##### 1459#       发表于 2024-7-11 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了丽娜迟疑了很久，总觉得不对但想了半天也没想到应该叫什么，最后还是去搜了一下
+
+*****
+
+####  洛克萨斯  
+##### 1460#       发表于 2024-7-11 16:57
+
+这次可操作角色感觉会很多<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+配回路噩梦
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1461#       发表于 2024-7-11 17:00
+
+有没有黎恩师姐的cp
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ravend233  
+##### 1462#       发表于 2024-7-11 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65554376&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 16:54</a>
+
+看了丽娜迟疑了很久，总觉得不对但想了半天也没想到应该叫什么，最后还是去搜了一下 ...</blockquote>
+叫仁菜（）
+

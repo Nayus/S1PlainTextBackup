@@ -1090,3 +1090,11 @@ Toi8同期给废狗交的武田信玄都没这么离谱
 e大师真的丑麻了 从零轨开始就是丑的xnml ...</blockquote>
 你真的能接受伊苏10的toi8那个不知道画的什么玩意的东西？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  甄月妖日狂  
+##### 105#       发表于 2024-7-11 12:38
+
+toi8还是算了，远不如enami
+

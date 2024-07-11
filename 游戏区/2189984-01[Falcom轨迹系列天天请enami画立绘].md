@@ -1192,3 +1192,42 @@ toi8的武田信玄也能接受吗，当初出来的时候都被人骂烂了，�
 
 e大师褶皱处理生硬的像个初学者，明显t大师笔法灵动多了，t大师就是懒突出一个敷衍
 
+
+*****
+
+####  zhuhh  
+##### 115#       发表于 2024-7-11 18:10
+
+今年除了界轨，enami还给地雷社今年要发售的魔导物语新作也画了两张立绘，画风跟界轨基本不一样，不知道你们觉得如何。看enami推上说自己基本只画背景图，而且还画了不少，人物立绘没怎么画了，可能也是知道自己画风跟地雷社以往风格不贴合吧
+
+<img src="https://img.saraba1st.com/forum/202407/11/180638l6ddein0nd0a270a.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052609.jpg</strong> (89.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 18:06 上传
+
+*****
+
+####  法拉  
+##### 116#       发表于 2024-7-11 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555182&amp;ptid=2189984" target="_blank">zhuhh 发表于 2024-7-11 18:10</a>
+今年除了界轨，enami还给地雷社今年要发售的魔导物语新作也画了两张立绘，画风跟界轨基本不一样，不知道你 ...</blockquote>
+不如他的平均水平，但还是薄纱在你法画的图
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tmmd  
+##### 117#       发表于 2024-7-11 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65550324&amp;ptid=2189984" target="_blank">我tm吃吃吃吃吃 发表于 2024-7-11 11:28</a>
+
+请欣赏enami大师最新力作《你的老婆黑兔》
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+艹啊!什么玩意啊
+

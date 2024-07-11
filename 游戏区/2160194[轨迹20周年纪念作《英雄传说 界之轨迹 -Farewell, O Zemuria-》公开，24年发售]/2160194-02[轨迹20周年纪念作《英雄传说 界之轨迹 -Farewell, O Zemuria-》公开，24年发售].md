@@ -54,3 +54,11 @@
 
 黑兔这个剧情感觉其实可预见，要说哪个女角色最可能真离不开黎恩，感觉还是她
 
+
+*****
+
+####  宛若青空  
+##### 1488#       发表于 2024-7-11 18:06
+
+黑兔和黎老师的关系，从敌人到监视者再到师生，然后现在是同事关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

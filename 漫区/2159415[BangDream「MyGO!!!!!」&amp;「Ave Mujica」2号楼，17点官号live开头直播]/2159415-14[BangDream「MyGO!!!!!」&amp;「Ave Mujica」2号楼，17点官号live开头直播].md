@@ -3951,3 +3951,71 @@ timo————————<img src="https://static.saraba1st.com/image/smiley/
 
 高尾怎么抓了好几次梦以的手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 19587#       发表于 2024-7-11 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚彩虹屁环节，那四个把梦以夸害羞，高尾好像抓了一次梦以的手
+
+
+*****
+
+####  Aendst  
+##### 19588#       发表于 2024-7-11 21:50
+
+真是肉眼可见的关系相当好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19589#       发表于 2024-7-11 21:52
+
+還真是，除了0th和4th，ave的LIVE都不在東京開<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19590#       发表于 2024-7-11 21:52
+
+怎麼讓米澤唸信啊好可愛wwwwwwwwwwwwww 肉眼可見的生疏XD
+
+*****
+
+####  6030sylar  
+##### 19591#       发表于 2024-7-11 21:54
+
+<img src="https://img.saraba1st.com/forum/202407/11/215237qo0t0sh6aoweld0g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/215408k0bh3vovy6yombd3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:54 上传
+
+猪猪
+
+*****
+
+####  御幸一也  
+##### 19592#       发表于 2024-7-11 21:56
+
+ave的大家都愛吃辣<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/215556g5xy9ekahz5ylk5l.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 1-4-45 screenshot.png</strong> (1.92 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:55 上传
+

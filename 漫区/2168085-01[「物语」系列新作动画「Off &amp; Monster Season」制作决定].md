@@ -1494,3 +1494,16 @@ https://w ...</blockquote>
 <img src="https://p.sda1.dev/18/8c189c88bf8d4c0a8ff18d3576e3ac07/story_3549_photo_1720675788082841116.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/e41105b438d279876b3bfbee4178222e/story_3549_photo_1720675789626281566.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 353#       发表于 2024-7-11 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555250&amp;ptid=2168085" target="_blank">无证madam 发表于 2024-7-11 18:18</a>
+
+上次看原作好像都是六七年前 讲的什么全忘完了
+
+拿出来一翻才发现还有个猴子篇 印象里只有老仓跟斧乃木两篇 ...</blockquote>
+神原那篇就是猜谜，没什么故事发展，动画做起来感觉会很无聊
+

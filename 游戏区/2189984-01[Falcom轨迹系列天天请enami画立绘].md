@@ -1398,3 +1398,16 @@ E圣别画了，放过轨迹吧<img src="https://static.saraba1st.com/image/smil
 
 e大师作为雇佣兵其实算敬业了，卖力的画完完成了工作，早年看p站e大师喜欢画男人，迎合游戏美术工整化女角色可见e大师用心画了。 而t大师可是跻身活跃fgo身价不一样了，明显看不上你法了，给你法的那图就是直言不想干活。fgo武田信玄初始图反而不觉得差，不如说是几破图里最吸睛的，不面向宅宅而已。可以清晰的想象的到绘画圈肯定是更欣赏t大师的
 
+
+*****
+
+####  zhuhh  
+##### 134#       发表于 2024-7-11 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556197&amp;ptid=2189984" target="_blank">零食杀手 发表于 2024-7-11 20:17</a>
+
+居然不去推上炎上下的吗，当年ys7可是炎上后换画师的
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 S1Ne ...</blockquote>
+当年伊苏7初始立绘被炎上后，就临时把enami拉出来救场了，于是现在的伊苏7就是enami画风的
+

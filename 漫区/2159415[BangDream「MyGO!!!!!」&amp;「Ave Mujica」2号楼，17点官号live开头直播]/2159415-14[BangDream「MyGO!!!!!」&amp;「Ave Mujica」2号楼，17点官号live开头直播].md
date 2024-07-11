@@ -3595,3 +3595,124 @@ BW2024，算是邦相关的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  可爱的洋甘菊  
+##### 19556#       发表于 2024-7-11 21:16
+
+有没有听得懂的大佬总结一下
+
+*****
+
+####  6030sylar  
+##### 19557#       发表于 2024-7-11 21:16
+
+<img src="https://img.saraba1st.com/forum/202407/11/211615szg1ki9qlkf80qk9.png" referrerpolicy="no-referrer">
+
+<strong>8L[8HEO$_L~K1)9N20%}~VC.png</strong> (17.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:16 上传
+
+根本没睡吧
+
+*****
+
+####  御幸一也  
+##### 19558#       发表于 2024-7-11 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556563&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-11 21:16</a>
+
+有没有听得懂的大佬总结一下</blockquote>
+剛剛她們看完PV也沒給什麼有意義的情報，都是普通反應
+
+*****
+
+####  平昭·南宫司卿  
+##### 19559#       发表于 2024-7-11 21:18
+
+鸡团这个氛围是真的好
+
+完了，我现在越看鼻姐越觉得可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19560#       发表于 2024-7-11 21:19
+
+结月提到土曲说“我最喜欢这个了”
+
+其他人说是结月的口头禅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有点可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19561#       发表于 2024-7-11 21:20
+
+米澤小姐姐唸稿好生疏的感覺好可愛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19562#       发表于 2024-7-11 21:21
+
+我覺得 夢以和米澤小姐姐兩個人的本音要對調一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你們一個太甜妹一個太cooooooooool，實在是太破壞世界觀啦！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 19563#       发表于 2024-7-11 21:21
+
+茜姨快没电了吧<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 19564#       发表于 2024-7-11 21:22
+
+ 本帖最后由 罗克萨斯 于 2024-7-11 21:24 编辑 
+
+米泽茜本音和喵梦差距也挺大的，半路出家竟然这么能夹
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  平昭·南宫司卿  
+##### 19565#       发表于 2024-7-11 21:22
+
+ 本帖最后由 平昭·南宫司卿 于 2024-7-11 21:24 编辑 
+
+草，让没经验的茜念这么多也太拷打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说到声音，实力最强的鼻姐反而是配离自己本音不太远的吧，除了李子，剩下人都要捏声音，还挺离谱的
+
+*****
+
+####  鳥栖朝  
+##### 19566#       发表于 2024-7-11 21:24
+
+感觉是一群老艺术家之间夹了个茜，有点生疏也很可爱
+
+*****
+
+####  PDQ4  
+##### 19567#       发表于 2024-7-11 21:24
+
+新人很努力了，这不更显得她正片喵梦配那么好真的好努力。
+
+*****
+
+####  PDQ4  
+##### 19568#       发表于 2024-7-11 21:25
+
+mo酱，有点可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

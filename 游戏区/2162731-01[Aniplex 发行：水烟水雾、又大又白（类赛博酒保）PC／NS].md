@@ -543,3 +543,21 @@ va11胜在苦中作乐的气氛 这作看起来就不靠谱……
 
 男主人设图整个内八破洞紧身牛仔裤，总感觉官方会弄个雌堕情节整活<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  operatbig  
+##### 67#       发表于 2024-7-11 20:46
+
+居然不是百合，算了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kivz  
+##### 68#       发表于 2024-7-11 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556239&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 20:25</a>
+没想到泥潭对这个游戏的接受程度竟然这么低 。这种末法时代的又一个侧面的氛围感不是很好吗，一群不正常的 ...</blockquote>
+水烟……看到这个就有点劝退了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

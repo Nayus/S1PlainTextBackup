@@ -3458,3 +3458,11 @@ BW2024，算是邦相关的
 
 啊 坐的位置是舞台位置
 
+
+*****
+
+####  星天观测  
+##### 19540#       发表于 2024-7-11 20:45
+
+不如直接穿袍子算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

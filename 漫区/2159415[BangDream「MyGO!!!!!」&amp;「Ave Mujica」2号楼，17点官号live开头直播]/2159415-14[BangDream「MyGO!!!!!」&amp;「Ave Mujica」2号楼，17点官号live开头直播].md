@@ -4714,3 +4714,196 @@ mujica大战祥妈是吧<img src="https://static.saraba1st.com/image/smiley/face
 
 至少她还关注着声优全员<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19661#       发表于 2024-7-11 23:38
+
+好消息，她鸡和初睦祥相关推文还活着，还没膈应到这些都删了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19662#       发表于 2024-7-11 23:38
+
+大战祥妈x
+联合祥妈 森美奈美 大战丰川家的老头 o
+
+*****
+
+####  Aendst  
+##### 19663#       发表于 2024-7-11 23:39
+
+轻拍其实没有切割这么严重吧，有都取关吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+答案是令和威力加强版轻拍
+
+*****
+
+####  相坂君  
+##### 19664#       发表于 2024-7-11 23:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不要轻拍不要伦理剧！
+
+轻拍没有切那么决绝，至少前段时间还转发了
+
+*****
+
+####  哈曼的YY  
+##### 19665#       发表于 2024-7-11 23:39
+
+新来的 啥情况 正是母鸡卡pv这个恐怖惊悚氛围吸引我把mygo补了 结果恰巧在这方面出问题了吗
+
+*****
+
+####  第七軍伐戎処  
+##### 19666#       发表于 2024-7-11 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557565&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-11 23:33</a>
+
+隔壁豚楼的鸟叔小号能不能闭嘴啊</blockquote>
+<img src="https://p.sda1.dev/18/03f5ff0a9cab5aa51d2bcf32185cf6cc/image.png" referrerpolicy="no-referrer">
+[ Arthur.c @CARTHUR_X](https://x.com/CARTHUR_X/status/1805899454295237051)
+
+消消火吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|无聊|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 19667#       发表于 2024-7-11 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557620&amp;ptid=2159415" target="_blank">哈曼的YY 发表于 2024-7-11 23:39</a>
+
+新来的 啥情况 正是母鸡卡pv这个恐怖惊悚氛围吸引我把mygo补了 结果恰巧在这方面出问题了吗 ...</blockquote>
+不想不安的话当无事发生比较好，毕竟具体如何还要等明年正片<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19668#       发表于 2024-7-11 23:41
+
+那威力加强版轻拍岂不是和抽象爹妈包了个super大饺子<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19669#       发表于 2024-7-11 23:42
+
+现在的日本动画定律不就是
+家庭矛盾——轻拿轻放——包饺子
+标准流程吗
+
+*****
+
+####  第七軍伐戎処  
+##### 19670#       发表于 2024-7-11 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">绫奈都说了她看到分镜了怎么还要滑坡这么大
+
+顶多就是母鸡卡没有绫奈拉着后藤手表演下跪这种过激情节
+
+*****
+
+####  PDQ4  
+##### 19671#       发表于 2024-7-11 23:43
+
+鸟叔把cp武器化的本领在此疯狂展现，明明是自己不吃的cp却天天搬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19672#       发表于 2024-7-11 23:44
+
+别包成水母那样的饺子了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  第七軍伐戎処  
+##### 19673#       发表于 2024-7-11 23:44
+
+<img src="https://p.sda1.dev/18/7a73249ceab9c1ea6c51e669781a334b/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5f159655fdec80c1fd66aacc4c7502ce/image.png" referrerpolicy="no-referrer">
+[ 無音零 @MuonRei00](https://x.com/MuonRei00/status/1811425398930198538)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|別委屈你自己吃美帝了|
+| PDQ4|-1|祝美帝大卖，你会赢吗|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 19674#       发表于 2024-7-11 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557647&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-11 23:43</a>
+
+鸟叔把cp武器化的本领在此疯狂展现，明明是自己不吃的cp却天天搬</blockquote>
+不就是為了來這拉屎裝雜食咯<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19675#       发表于 2024-7-11 23:45
+
+我唯一能接受的就是祥子对着万恶之源森美奈美说成为家人吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 19676#       发表于 2024-7-11 23:45
+
+河豚深夜滑坡要开始了吗()
+
+*****
+
+####  阿姆罗二世  
+##### 19677#       发表于 2024-7-11 23:46
+
+母鸡卡也要天降牢妈了吗
+
+*****
+
+####  NODY  
+##### 19678#       发表于 2024-7-11 23:46
+
+乐观一点的想法就是剧本确实没有大改，独角兽不满的是画面表现形式，也符合她看了pv以后阴阳怪气取关，毕竟pv可是看不出有什么女女关系性被改动的
+
+*****
+
+####  PDQ4  
+##### 19679#       发表于 2024-7-11 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557664&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:45</a>
+
+我唯一能接受的就是祥子对着万恶之源森美奈美说成为家人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你这ptsd怎么超级叠加了，什么饺子大集合
+
+*****
+
+####  ellisnadie  
+##### 19680#       发表于 2024-7-11 23:48
+
+这个似曾相识的氛围点进来还以为错楼了
+

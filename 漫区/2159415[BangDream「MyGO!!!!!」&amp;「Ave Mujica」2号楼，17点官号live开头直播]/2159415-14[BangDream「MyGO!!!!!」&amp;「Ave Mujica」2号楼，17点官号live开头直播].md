@@ -6562,3 +6562,165 @@ D5J生放没看过，我觉得和ins直播状态挺像的，很放松，而且�
 
 可能是在母鸡卡脚本会议上讨论剧情方针的时候就闹掰了。
 
+
+*****
+
+####  NODY  
+##### 19832#       发表于 2024-7-12 03:19
+
+独角兽访谈“祥子哭是因为很珍惜c团”、“c团在mujica动画依然有巨大存在感”，外加云朵图拉了一堆跨团cp，真的出现人物关系性改动的话没准反而是独角兽想写十人蜘蛛网被柿本否了要优先团内，哦对独角兽还真说过想写海希写不了来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|这么想至少立希不会被垫了|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 19833#       发表于 2024-7-12 03:24
+
+ 本帖最后由 PDQ4 于 2024-7-12 03:29 编辑 
+
+海希顶多是动画涉及少吧，进了游戏肯定还是稳的，这个不用悲观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过确实，不涉及太多ccc关系性是好事，爽姐都那样了还是被安了c团怨妇形象，广告片打成这样对鸡狗都不好，这两个才是wsd要推销的商品
+
+天天ccc你鸡狗卖不卖了，被c团姨姥招魂diss难道有助于卖票吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 19834#       发表于 2024-7-12 03:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">调理总比滑坡多，滑完才有希望，滑滑更健康
+
+今天米泽和结月真的好好玩，回看特意看她们两动作和小表情，熟人氛围下结月宝不拘束，还学米泽，真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+再次遛完生放只想说，你们能再聊个五块钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19835#       发表于 2024-7-12 03:29
+
+這左右為難夢以真是看一次笑一次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/032920b54n0rw15wpt6wr3.gif" referrerpolicy="no-referrer">
+
+<strong>image.gif</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 03:29 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1|已经变成梦以gachi咧|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 19836#       发表于 2024-7-12 03:40
+
+夢以羨慕初睦兩個人在下面能背靠背貼貼這段太可愛了，聽到她說羨慕，non李兩個馬上貼過去安慰
+
+但是沒有關係，夢以你也可以走下來和我們的尬舞ACE臉貼臉賣姬嘛，只有鼓手會受傷的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/033901wlc15iljmalzbo7j.gif" referrerpolicy="no-referrer">
+
+<strong>ezgif-6-1e72b56446.gif</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 03:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/033908mteslstutssgcw5g.gif" referrerpolicy="no-referrer">
+
+<strong>ezgif-6-57716ee853.gif</strong> (1.16 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 03:39 上传
+
+*****
+
+####  御幸一也  
+##### 19837#       发表于 2024-7-12 03:50
+
+說到這個，奏音是真的端水大師，
+
+生放裡特地說她感覺water不是non李兩個人的曲子，強調是她們ave 5個人的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+因為這首歌在愛知是最後一首，彩排的時候non有說一句抱歉，她感覺其他三個人的份都交給了她和李子（=把其他人的份都演奏了），
+
+結果米澤和奏音說，我是和你們一起演奏的心情，所以不覺得我的部分結束了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| adad| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  KirigawaMaki  
+##### 19838#       发表于 2024-7-12 04:43
+
+结月感觉一般会看在场嘉宾里有没有比较熟的人，有的话基本都放得比较开。很容易兴奋起来，像激动语气词、豪迈大笑之类的经常有
+
+*****
+
+####  抽搐一下  
+##### 19839#       发表于 2024-7-12 05:01
+
+之前访谈说mygo片场每周都开8小时脚本会议商讨剧情，灯念诗是脚本会议上柿本提出的。
+
+去年MYGO放送到后面玲奈突然就不更关系图了，9月15日发推说因为未公开对母鸡卡保持沉默。
+
+可能是在母鸡卡脚本会议上讨论剧情方针的时候就闹掰了。
+
+*****
+
+####  ddy2811  
+##### 19840#       发表于 2024-7-12 05:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558535&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 01:43</a>
+
+乐观一点想就是，声优看起来挺满意而且非常开心（不排除是单纯的演技好），真的有家庭伦理剧或者改cp改人设 ...</blockquote>
+水母为什么还要追着我蜇<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 19841#       发表于 2024-7-12 05:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558815&amp;ptid=2159415" target="_blank">抽搐一下 发表于 2024-7-12 05:01</a>
+
+之前访谈说mygo片场每周都开8小时脚本会议商讨剧情，灯念诗是脚本会议上柿本提出的。
+
+去年MYGO放送到后面玲 ...</blockquote>
+脚本完成得很早的吧？那时候应该已经开始配音了
+

@@ -298,3 +298,21 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 三人里面互相都可以是cp
 
+
+*****
+
+####  ravend233  
+##### 1512#       发表于 2024-7-11 23:26
+
+<img src="https://img.saraba1st.com/forum/202407/11/232600oupguzpzpollgsga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (207.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 23:26 上传
+
+比立绘图特典更幽默的特典来了
+
+创轨旧图特典<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

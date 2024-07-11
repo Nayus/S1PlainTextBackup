@@ -4535,3 +4535,182 @@ ave的大家都愛吃辣</blockquote>
 
 啊？不是，这怎么取关了？
 
+
+*****
+
+####  第七軍伐戎処  
+##### 19641#       发表于 2024-7-11 23:28
+
+<img src="https://p.sda1.dev/18/92b1a6b91cf730395733ac0dbdb242b7/image.png" referrerpolicy="no-referrer">
+[せとー @bpdne](https://x.com/bpdne/status/1811421001235992862)
+
+*****
+
+####  PDQ4  
+##### 19642#       发表于 2024-7-11 23:28
+
+现在就是7.5那天凌晨独角兽发癫的分镜稿更大可能性是指鸡了
+
+如果真的是这样，那鸡后续工作就完全没有绫奈check，到了她切割的程度
+
+PV2能剪出来，配音全完成，动画基本做完了的程度，这么推下去只能得出结论成品是不是绫奈非常不满意
+
+绫奈最看重的大概率是女女关系性，那不是完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19643#       发表于 2024-7-11 23:31
+
+脚本分镜独角兽那边是看过的，说明剧情和台词不会大改，那人物关系应该不会有太大的变化
+
+争议估计是在画面表现形式上了，比如独角兽可能其实不希望搞这种幻觉暗喻风格
+
+*****
+
+####  第七軍伐戎処  
+##### 19644#       发表于 2024-7-11 23:31
+
+不要突然滑坡这么大吧，也许只是那天发完想起来母鸡卡，越想越气然后翻出来取关了
+
+明年播的时候应该还会关注的
+
+当然如果明年播完有问题那柿本全责
+
+*****
+
+####  御幸一也  
+##### 19645#       发表于 2024-7-11 23:31
+
+為什麼會這樣，明明是團魂生放的大好日子，我還在回味呢，突然就感覺滑坡到我調理不好了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  haoshion  
+##### 19646#       发表于 2024-7-11 23:33
+
+独角兽别肘<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19647#       发表于 2024-7-11 23:33
+
+独角兽切的这么彻底怎么可能重新关注，起因还大概率是因为和监督的矛盾
+
+本来认为是有矛盾，但是工作是工作，绫奈干活还是干活，现在就是真的连鸡这个没播的都彻底切割了
+
+制作组内部有问题的动画大概率会如何我想不用多说了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19648#       发表于 2024-7-11 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557538&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-11 23:31</a>
+
+不要突然滑坡这么大吧，也许只是那天发完想起来母鸡卡，越想越气然后翻出来取关了
+
+明年播的时候应该还会关 ...</blockquote>
+隔壁豚楼的鸟叔小号能不能闭嘴啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 19649#       发表于 2024-7-11 23:34
+
+有人知道取关的另外20个里有和邦相关的吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 19650#       发表于 2024-7-11 23:34
+
+这下真成令和轻拍了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19651#       发表于 2024-7-11 23:35
+
+鸟叔应该在乐才对，因为云朵图不给他cp眼神的系构编剧终于彻底滚蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19652#       发表于 2024-7-11 23:35
+
+轻拍一转家庭伦理剧，请问鸡最后几集也是一转家庭伦理剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 19653#       发表于 2024-7-11 23:36
+
+原来mygo就是轻拍的前六集吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">后半要唐突家庭伦理剧了吗
+
+*****
+
+####  haoshion  
+##### 19654#       发表于 2024-7-11 23:36
+
+我刚刚还看了一集轻拍准备刷下论坛就睡的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19655#       发表于 2024-7-11 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557571&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-7-11 23:34</a>
+
+有人知道取关的另外20个里有和邦相关的吗</blockquote>
+
+本來邦相關，她上次取關就全沒了只剩ave和根本P，現在ave也沒了根本P還關注著
+
+<img src="https://img.saraba1st.com/forum/202407/11/233611sppyg5yx7igp45n6.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (159.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 23:36 上传
+
+*****
+
+####  Aendst  
+##### 19656#       发表于 2024-7-11 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557581&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-11 23:35</a>
+
+鸟叔应该在乐才对，因为云朵图不给他cp眼神的系构编剧终于彻底滚蛋了</blockquote>
+是啊，这么乐的事你们怎么能担心不安呢<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">所以来装模作样了呗
+
+*****
+
+####  PDQ4  
+##### 19657#       发表于 2024-7-11 23:37
+
+是不是该下注是拍丰川传还是若叶传了，也有可能弯道突入鸡五人的父母辈爱恨情仇<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19658#       发表于 2024-7-11 23:37
+
+mujica大战祥妈是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 19659#       发表于 2024-7-11 23:37
+
+后藤绿以前有X吗话说
+
+*****
+
+####  skives  
+##### 19660#       发表于 2024-7-11 23:37
+
+至少她还关注着声优全员<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

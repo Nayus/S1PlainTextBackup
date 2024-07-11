@@ -14686,3 +14686,86 @@ Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法社铁血BG+老保，克洛里恩更多还是歪打正着，共和国篇支线塞南通也更像是凑要素
 
+
+*****
+
+####  新世界的派蒙  
+##### 1428#       发表于 2024-7-11 15:28
+
+明天有黎恩战技了吧，球球你把幽默的无刃剑演出改好一点....
+
+*****
+
+####  卢迪克  
+##### 1429#       发表于 2024-7-11 15:29
+
+这应该是轨迹第一次宣发不如伊苏吧，伊苏七月两期都是fami杂志，界轨居然是官网直接更新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1430#       发表于 2024-7-11 15:30
+
+ 本帖最后由 卢迪克 于 2024-7-11 15:33 编辑 
+
+法社：今年开摆
+
+<img src="https://img.saraba1st.com/forum/202407/11/153327dzbh3hwu9scuu8lb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240711_153259.jpg</strong> (354.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 15:33 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/153337m3danghyj22azyce.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240711_153309.jpg</strong> (390.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 15:33 上传
+
+*****
+
+####  ravend233  
+##### 1431#       发表于 2024-7-11 15:30
+
+毕竟销量逆转了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ky怪  
+##### 1432#       发表于 2024-7-11 15:31
+
+好看<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/11/153123xllm5cllmylmhizn.png" referrerpolicy="no-referrer">
+
+<strong>9c9bb17fcb7f578cbe1ad5d2e535a782.png</strong> (193.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 15:31 上传
+
+
+*****
+
+####  倪哥干你  
+##### 1433#       发表于 2024-7-11 15:34
+
+碧轨组派出的参战代表是黑月？
+
+*****
+
+####  光之阶梯  
+##### 1434#       发表于 2024-7-11 15:35
+
+E圣画的竟然比想象中的好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

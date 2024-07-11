@@ -14884,3 +14884,29 @@ Towa爹妈不就是搞天文的
 
 有的人觉得这样的脸部阴影有塑料感。
 
+
+*****
+
+####  solasakiye  
+##### 1447#       发表于 2024-7-11 16:12
+
+托娃要是能把克洛带走也是好事，别整天卖克洛黎恩的CP了，我只想看黎恩和黑兔。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过想也知道不可能，毕竟人气在那，女粉在那。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 1448#       发表于 2024-7-11 16:12
+
+黎恩似乎有几句台词都是关于师姐的，难道真的要同门对决了
+
+*****
+
+####  hzhh95963  
+##### 1449#       发表于 2024-7-11 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553756&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-7-11 16:02</a>
+细看下就是阴影脸吧，光影靠半张脸的颜色深浅变化展现，只不过阴影颜色没那么黑，阴影边缘也不是清晰的线 ...</blockquote>
+起码比明暗交界线顺着额头鼻子人中下巴一路下来把人脸切成两半的某些赛璐璐三选二效果强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

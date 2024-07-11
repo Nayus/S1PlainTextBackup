@@ -5628,3 +5628,154 @@ go唐突父辈已经很不安了，特别是还有个杰尼斯的
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 像gbc這樣花一集和父母和解，在最後一集和mygo主唱互相理解是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其實也不是不行，畢竟手遊裡還是要見面的，別搞什麼暴死退社應該就還好
 
+
+*****
+
+####  skives  
+##### 19749#       发表于 2024-7-12 00:49
+
+感觉mujica还真有可能因为无法完成对赌合同，tgw物产撤资，转地下乐队
+
+*****
+
+####  Aendst  
+##### 19750#       发表于 2024-7-12 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558164&amp;ptid=2159415" target="_blank">Hchan 发表于 2024-7-12 00:46</a>
+
+怎么柿本监督的风评在楼里疯狂下降一部动画做好做坏第一关系人都是监督啊，总不能拍好了就是绫奈的功劳，拍 ...</blockquote>
+问题在于系构没有参与内容全程的check，疑似制作组内部矛盾和突然离职
+
+这个可不单纯是监督系构的事
+
+拍好了绫奈确实没有不满，那绫奈有不满有没有可能是没拍好
+
+*****
+
+####  NODY  
+##### 19751#       发表于 2024-7-12 00:50
+
+按上面说的-1的时间是pv后，那就是pv出了什么问题，独角兽说分镜以后她就没看过了，那如果人物关系或者人设被改了她也不知道，那就是pv的内容她不满意了
+
+但pv确实没透露什么新的人际关系，那就只能猜是不是画面的问题了，比如独角兽剧本写的是正常的回忆杀，柿本写成了这种一堆娃娃的表现形式
+
+*****
+
+####  IWS2000  
+##### 19752#       发表于 2024-7-12 00:51
+
+就怕空降心心青梅竹马，没有被逐出丰川家，想要的话手里资源有很多…
+
+*****
+
+####  skives  
+##### 19753#       发表于 2024-7-12 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558164&amp;ptid=2159415" target="_blank">Hchan 发表于 2024-7-12 00:46</a>
+怎么柿本监督的风评在楼里疯狂下降一部动画做好做坏第一关系人都是监督啊，总不能拍好了就是绫奈的功劳，拍 ...</blockquote>
+怎么说这些人从邦2开始就是磨合多年的稳定团队，
+现在出现不稳因素了，滑坡不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19754#       发表于 2024-7-12 00:52
+
+其实我一直觉得祥子如果放弃所有人性和自由然后对祥爹见死不救，是可以回丰川家的，但那样就不是她了
+
+
+*****
+
+####  利维豚  
+##### 19755#       发表于 2024-7-12 00:54
+
+<img src="https://p.sda1.dev/18/9da44fd5d1eab94bb877d52f6a7a7895/image.jpg" referrerpolicy="no-referrer">
+[NTK_0023](https://x.com/NTK_0023/status/1811393137597960689?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|怎麼了 只敢用這個號發？慫逼|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 19756#       发表于 2024-7-12 00:54
+
+至少从声优五个人在生放和一些访谈的反应来看，应该是没出现什么严重的人设崩坏大改，至少mujica内部关系和人设应该没有大问题
+
+要知道隔壁拉拉手游编剧发癫ooc角色的时候，几个声优可是明牌在生放和访谈里表示不满的，直球表示“我认为xx不应该这样做”“我也不理解xx的做法”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 19757#       发表于 2024-7-12 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558220&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 00:54</a>
+NTK_0023
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+好多图楼里都有了还搬，你根本就没看楼的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ellisnadie  
+##### 19758#       发表于 2024-7-12 00:55
+
+声优是什么时候看完剧本的？我记得她们挺早就在访谈透露过剧情相关吧。
+
+*****
+
+####  Aendst  
+##### 19759#       发表于 2024-7-12 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想回豊川家可以回这种就纯看具体台本和画面表现了
+
+可以做得足够合理，也可能会做得很烂
+
+*****
+
+####  T@L  
+##### 19760#       发表于 2024-7-12 00:56
+
+<blockquote>skives 发表于 2024-7-12 00:40
+对祥子生存方式的理解有两种吧
+
+一种是全盘否定需要修正
+
+还有一种是尽管需要改变，但也有值得肯定的部分</blockquote>
+想了下，其實這兩種都挺有操作空間的吧，不至於説選了那就肯定爛完，還得看具體表現不至於現在就開滑。而且這也只是一種猜測
+
+
+*****
+
+####  OPCI_0125  
+##### 19761#       发表于 2024-7-12 00:57
+
+绫奈至少看过分镜稿了，要有分歧也是表现形式上的，只要绫奈还是系构mujica的内容就不会有太大问题。而形式方面就Go的音画表现来看，同样的班底即使独角兽在这方面参与没那么深大概也不会差到哪去…至于绫奈作为系构对剧本掌握权有多大、制作组对绫奈剧本的理解偏差有多大，真对着黑箱不停猜疑下去，开播前精神状态怕不是要和pv同步了。
+
+*****
+
+####  好想看Mujica啊  
+##### 19762#       发表于 2024-7-12 00:57
+
+至少等菜花放几集，再看柿本有没有罪吧
+
+*****
+
+####  skives  
+##### 19763#       发表于 2024-7-12 00:58
+
+其实整体的脚本应该早就确定了
+当初第十集左右的时候
+有人就说已经做到16集左右了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

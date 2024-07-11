@@ -356,3 +356,21 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 刚想说黑兔好瑟，但是看到菲之后还是觉得女儿你还是算了吧（
 
+
+*****
+
+####  宛若青空  
+##### 1517#       发表于 2024-7-12 00:51
+
+真是谢谢法老控给我们省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 1518#       发表于 2024-7-12 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等着看剧透，一部完结补一个票，完结不了直接不买
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

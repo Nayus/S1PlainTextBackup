@@ -14275,3 +14275,79 @@ e大师这闪组明显就是照着村上绘画的啊，看眼睛一眼看出来�
 
 全立绘啊
 
+
+*****
+
+####  法拉  
+##### 1382#       发表于 2024-7-11 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552469&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-11 14:21</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起shikei的那本トワ弄り2了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  卢迪克  
+##### 1383#       发表于 2024-7-11 14:27
+
+ 本帖最后由 卢迪克 于 2024-7-11 14:28 编辑 
+
+托娃：我有立绘，凭什么我不能上。拉碧斯不也不能操作吗
+
+<img src="https://img.saraba1st.com/forum/202407/11/142725nnbfgwkqbigopubq.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>animate_a.webp</strong> (103.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 14:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/142731o2v78zo824lh4vz2.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>140603wr96rrjs6zek4obb.webp</strong> (33.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-11 14:27 上传
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1384#       发表于 2024-7-11 14:27
+
+Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  Aeons  
+##### 1385#       发表于 2024-7-11 14:30
+
+说明设计是一个
+
+*****
+
+####  natmk  
+##### 1386#       发表于 2024-7-11 14:30
+
+黑兔托娃都画得挺好看的为什么艾蕾因画得这么难看<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 1387#       发表于 2024-7-11 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">因为上面有楼友说闪轨人物画的相对好啊，你看大少也不错，拉碧丝不是帝国人一下就拉了
+
+*****
+
+####  izayoi39  
+##### 1388#       发表于 2024-7-11 14:34
+
+因为发型设计的问题呗，人设原案是法社自己做的，然后一旦遮不住脸整体e圣就会改的很唐
+

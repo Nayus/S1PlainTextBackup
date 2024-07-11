@@ -203,3 +203,11 @@ falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img
 
 黎恩不用找老婆了，有黑兔在旁边就够了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1505#       发表于 2024-7-11 19:37
+
+有人说那个大合照就是可控，那是不是快出反派介绍了
+

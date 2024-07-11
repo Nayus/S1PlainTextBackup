@@ -287,3 +287,11 @@ volta二周年除了常规周边声剧3d联动和新翻唱以外，还有新的�
 
 今年这三位和一哥的观众群不怎么重合，就算选到一哥同接估计也就2w，明年劳伦参加的话还有可能高点儿
 
+
+*****
+
+####  noHentai  
+##### 445#       发表于 2024-7-11 19:46
+
+惊闻管人特定难攻不落的堡垒彗酱陨落了，看了一下还得是角川和黑客助攻的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

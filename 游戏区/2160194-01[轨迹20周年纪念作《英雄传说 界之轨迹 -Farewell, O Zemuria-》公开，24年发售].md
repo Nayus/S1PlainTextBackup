@@ -14030,3 +14030,13 @@ e大师这闪组明显就是照着村上绘画的啊，看眼睛一眼看出来�
 
 脸正常了，手指把我看傻了，这图甩出去会被鉴ai的吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1360#       发表于 2024-7-11 13:03
+
+六根手指的图都没人在意了，就这洒洒水了
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

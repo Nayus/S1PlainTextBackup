@@ -15038,3 +15038,56 @@ Towa爹妈不就是搞天文的
 看了丽娜迟疑了很久，总觉得不对但想了半天也没想到应该叫什么，最后还是去搜了一下 ...</blockquote>
 叫仁菜（）
 
+
+*****
+
+####  ミズタ  
+##### 1463#       发表于 2024-7-11 17:04
+
+回路还好，闪4创这种大杂烩的时候，低难度配回路基本都是队里一个人好好配一下当C，其他几个都是自动喂边角料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stlover  
+##### 1464#       发表于 2024-7-11 17:07
+
+我草里的，还有克洛？
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1465#       发表于 2024-7-11 17:10
+
+印象中客场角色锁回路锁等级，最好主线全程锁着，只在刷刷刷庭院解锁。
+
+*****
+
+####  ravend233  
+##### 1466#       发表于 2024-7-11 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少分线的几个主要角色是不可能给你锁的（）而且有回廊后你法社可能搞个主线没入队几次的（比如冰火星杯）都不锁装备（）
+
+*****
+
+####  宛若青空  
+##### 1467#       发表于 2024-7-11 17:12
+
+都来看黑兔的绝美笑容<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/171209repgt88dgped0szd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>32CD0846-FC3A-4949-B975-F200D8B6E93C.jpeg</strong> (340.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/171207e04r7rv0f26c4za6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6328C76C-24EE-4A97-B835-B8D5AFFDD0B0.jpeg</strong> (118.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 17:12 上传
+

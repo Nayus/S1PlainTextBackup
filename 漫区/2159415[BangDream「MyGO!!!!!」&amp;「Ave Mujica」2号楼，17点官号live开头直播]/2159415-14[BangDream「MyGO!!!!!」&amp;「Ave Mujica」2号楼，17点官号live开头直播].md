@@ -4907,3 +4907,156 @@ mujica大战祥妈是吧<img src="https://static.saraba1st.com/image/smiley/face
 
 这个似曾相识的氛围点进来还以为错楼了
 
+
+*****
+
+####  Aendst  
+##### 19681#       发表于 2024-7-11 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557664&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-11 23:45</a>
+
+我唯一能接受的就是祥子对着万恶之源森美奈美说成为家人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">……
+
+*****
+
+####  米拉苏尔  
+##### 19682#       发表于 2024-7-11 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557663&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-11 23:45</a>
+
+不就是為了來這拉屎裝雜食咯</blockquote>
+心情不好想发泄下可以理解<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过我应该从建楼开始就在搬图了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 5战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 相坂君|-2|欢乐多|
+| 阿姆罗二世|-1|顺着空气就扣了|
+| PDQ4|-1|您还是回百综楼狂欢吧，这是大喜事.|
+| Aendst|-1|没完没了|
+| 御幸一也|-1|哦|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 19683#       发表于 2024-7-11 23:49
+
+总之第一季那种脚本深度参与后期的场面看不到了，我对于画面表现如何谨慎看待
+
+毕竟柿本广大可是监督过刀使的巫女，离了绫奈他对女女关系性的表现我很难看好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19684#       发表于 2024-7-11 23:50
+
+有多少號都上一下啊，一起拉黑了，不然看得真的煩<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 19685#       发表于 2024-7-11 23:51
+
+我来滑坡了，之前翻推时发现这个推文被删除了（可能是一月的时候删的），这是唯一暗示mygo/mujica是百合向作品的证据。联想到绫奈把关系图和cp喜好表都删了，会不会是她推的cp被拆了。
+
+<img src="https://img.saraba1st.com/forum/202407/11/235115yyzyx4sc4z5p564d.png" referrerpolicy="no-referrer">
+
+<strong>暗示百合（已删除）.png</strong> (75.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 23:51 上传
+
+*****
+
+####  收纳袋  
+##### 19686#       发表于 2024-7-11 23:51
+
+这周被吓了两次了，这还有半年该怎么过呀😭
+
+*****
+
+####  相坂君  
+##### 19687#       发表于 2024-7-11 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刀女人的噩梦怎么还追过来了
+
+*****
+
+####  ellisnadie  
+##### 19688#       发表于 2024-7-11 23:54
+
+没了独角兽，柿本能写好祥子关键塑造吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+母鸡卡的cp乱炖又怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19689#       发表于 2024-7-11 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557710&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-7-11 23:51</a>
+
+我来滑坡了，之前翻推时发现这个推文被删除了（可能是一月的时候删的），这是唯一暗示mygo/mujica是百合向 ...</blockquote>
+什么大逃杀，这下鸡悬疑要素也要了，猜猜似的是哪对cp<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 19690#       发表于 2024-7-11 23:55
+
+<img src="https://p.sda1.dev/18/2136f4295354863a7ad7577ecbeef78b/image.png" referrerpolicy="no-referrer">
+[ 七海 @nunnun_0410](https://x.com/nunnun_0410/status/1811306758922805547)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-|-1||
+| 相坂君|-2|好玩吗？|
+| 御幸一也|-1|人不要臉天下無敵|
+
+查看全部评分
+
+*****
+
+####  haoshion  
+##### 19691#       发表于 2024-7-11 23:55
+
+刀使的副cp还是可以的，主cp就
+
+*****
+
+####  skives  
+##### 19692#       发表于 2024-7-11 23:57
+
+滑坡等级表
+T3级 对美术风格配乐风格的理解不同
+T2级 对家庭矛盾的解决意见不一致
+T1级 对女女关系配对的理解不一致
+T0级 对丰川祥子的理解不一致
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 19693#       发表于 2024-7-11 23:57
+
+<img src="https://p.sda1.dev/18/48e632d36c74696943c1f908eb2fb3a0/image.png" referrerpolicy="no-referrer">
+[ 哈士蕲 @Pancham_Husky](https://x.com/Pancham_Husky/status/1811428475238273328)
+

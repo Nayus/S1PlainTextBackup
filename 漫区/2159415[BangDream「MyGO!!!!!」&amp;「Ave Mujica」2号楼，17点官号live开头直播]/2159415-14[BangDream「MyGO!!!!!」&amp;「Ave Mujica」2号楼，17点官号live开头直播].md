@@ -5212,3 +5212,141 @@ GSMtBlUbIAAPPCv.jpg
 最多某些细节出问题
 还是要看staff表 只要不变成故事原案 就有救
 
+
+*****
+
+####  Aloereed  
+##### 19708#       发表于 2024-7-12 00:08
+
+只是西皮站法不一致就算了
+
+对sakiko理解不一致那基本鸡狗两团剧情都要闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19709#       发表于 2024-7-12 00:09
+
+按生放五个人看pv以后笑得很开心的反应，我还是倾向于是画面表现的争议，实际剧情没有pv搞得这么悬疑魔幻，所以她们几个绷不住笑出来了
+
+但独角兽可能不满这种风格所以和柿本掰了，毕竟她参与的mygo画面表现确实比较“真实系”
+
+*****
+
+####  御幸一也  
+##### 19710#       发表于 2024-7-12 00:09
+
+你ave真是，本來啥都沒就天天在跑路邊緣的了，我的小廣播呢？真不給？憑什麼沒有啊，下半年人全給你跑沒了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> 現在還來這齣
+
+*****
+
+####  相坂君  
+##### 19711#       发表于 2024-7-12 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">吹死婊活是传统玄学，别到时第一话的op一看  故事原案 噔噔！！
+
+*****
+
+####  PDQ4  
+##### 19712#       发表于 2024-7-12 00:10
+
+那应该还是系构的，毕竟那条谜语推也只是说自己后续没法check，所以成品质量如何完全不清楚
+
+但是我觉得这个说法很微妙，不是很懂日本人，如果从她有意见的角度思考，就是她其实已经知道成品自己不满意了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 19713#       发表于 2024-7-12 00:11
+
+剧本是决定稿，<strong>理论上</strong>来说就是已经不会更改的了
+
+而且她看过分镜，也就是说这部分问题应该也不大，至少可以妥协，所以之前才一直保持对mujica官推的关注
+
+但在这后的音频收录和具体画面对照、剪辑她应该是真的没有check的
+
+目前看她反应大概是真的不满意的，所以对成品确实会有不安
+
+*****
+
+####  skives  
+##### 19714#       发表于 2024-7-12 00:13
+
+全是黑箱 瞎猜也只能内耗而已<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+反正从之前的访谈来看 制作组对角色和人际关系的理解 和我还是很一致的 
+应该也不用太担心吧
+唯一的悬念就是家庭问题怎么解决 
+对于日本动画来说 
+这个点翻车也很正常就是了
+
+*****
+
+####  dqtql  
+##### 19715#       发表于 2024-7-12 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557859&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 00:11</a>
+剧本是决定稿，理论上来说就是已经不会更改的了
+
+而且她看过分镜，也就是说这部分问题应该也不大，至少可以 ...</blockquote>
+不过pv里就没几个正片画面啊……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Aendst  
+##### 19716#       发表于 2024-7-12 00:16
+
+ 本帖最后由 Aendst 于 2024-7-12 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557882&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 00:13</a>
+
+不过pv里就没几个正片画面啊……
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+这个没有任何锤只能推测
+
+无非就是“做出来的东西不是自己想做的东西”
+
+但是很难断定到底是这个pv的问题，还是pv放出的同时制作组内部有其他交流，然后由这些交流引发了绫奈不满
+
+又或者是pv的其中个别画面的问题，还是pv整体气氛的问题
+
+或者单纯是时间上的巧合，都是有可能的
+
+无论如何她在近一个月内突然取关官推确实不妙
+
+*****
+
+####  skives  
+##### 19717#       发表于 2024-7-12 00:17
+
+绫奈：就不能把剧团狗咖喱请来吗 那几个破玩偶也太难绷了 唉wsd
+
+*****
+
+####  dqtql  
+##### 19718#       发表于 2024-7-12 00:17
+
+还是重温动画投降主义吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19719#       发表于 2024-7-12 00:17
+
+那不就是画面表现其实和实际不符，有闹麻了的可能性，不是很希望芝麻大点的小事用玄乎的表现形式，那不就纯噱头了
+
+用暗示性很强的隐喻画面那要么是人物画面无法/难以表现，要么是为了反衬那种氛围或者加强观众的感受
+
+总不能独角兽不满意是因为把鸡五人美丽的大脸全换成抽象表现了吧，作为角色厨不满柿本竟然敢删我推美丽的脸<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 19720#       发表于 2024-7-12 00:18
+
+都看到祥子黑网友在期待母鸡卡剧情爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

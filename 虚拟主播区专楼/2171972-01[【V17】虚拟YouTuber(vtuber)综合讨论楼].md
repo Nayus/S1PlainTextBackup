@@ -303,3 +303,11 @@ volta二周年除了常规周边声剧3d联动和新翻唱以外，还有新的�
 
 毛子黑客团队：还有送上门的业绩呢这么好感谢台湾人
 
+
+*****
+
+####  渡鸦骑士  
+##### 447#       发表于 2024-7-12 00:12
+
+果然只要稍微脱离一点关心，理解就会和事实的发展产生巨大的偏差<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

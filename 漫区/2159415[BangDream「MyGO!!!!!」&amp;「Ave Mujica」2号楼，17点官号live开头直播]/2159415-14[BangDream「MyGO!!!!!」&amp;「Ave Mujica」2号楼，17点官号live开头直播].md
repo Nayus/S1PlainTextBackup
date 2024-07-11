@@ -6528,3 +6528,17 @@ D5J生放没看过，我觉得和ins直播状态挺像的，很放松，而且�
 
 2024-7-12 03:39 上传
 
+
+*****
+
+####  御幸一也  
+##### 19829#       发表于 2024-7-12 03:50
+
+說到這個，奏音是真的端水大師，
+
+生放裡特地說她感覺water不是non李兩個人的曲子，強調是她們ave 5個人的曲子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+因為這首歌在愛知是最後一首，彩排的時候non有說一句抱歉，她感覺其他三個人的份都交給了她和李子（=把其他人的份都演奏了），
+
+結果米澤和奏音說，我是和你們一起演奏的心情，所以不覺得我的部分結束了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

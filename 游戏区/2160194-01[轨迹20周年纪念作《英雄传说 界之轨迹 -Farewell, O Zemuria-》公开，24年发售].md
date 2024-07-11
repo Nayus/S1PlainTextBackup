@@ -15137,3 +15137,77 @@ Towa爹妈不就是搞天文的
 
 难道就我一个人觉着50米拉和托娃一直挺配嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1473#       发表于 2024-7-11 17:40
+
+粉蓝也很配啊，然后呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1474#       发表于 2024-7-11 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你闪很配的不少，但是全给你进里爷后宫拆了守寡
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1475#       发表于 2024-7-11 17:42
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-7-11 17:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65554756&amp;ptid=2160194" target="_blank">勿徊哉 发表于 2024-7-11 17:28</a>
+
+表情动起来能到gbc水准就好了</blockquote>
+要求太高，日本游戏表情顶天arc的ggst，而且量极小，必杀技人物特写才有，在下面的cygame和xb3都没有gbc水准，和这两比falcom的体量就是蚂蚁。
+
+*****
+
+####  Aeons  
+##### 1476#       发表于 2024-7-11 17:43
+
+他俩剧情那还是比粉蓝多的
+
+*****
+
+####  ravend233  
+##### 1477#       发表于 2024-7-11 17:43
+
+<img src="https://img.saraba1st.com/forum/202407/11/174353zshkh7vrawyh2s2v.png" referrerpolicy="no-referrer">
+
+<strong>Z7]W}L99_09JYXH~O31%@{0.png</strong> (4.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 17:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+@AWTJ{}I[C{LYH1@LOX_8KG.jpg
+(45.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 17:43 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/174353qvfxafdv1kdfhqdv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 1478#       发表于 2024-7-11 17:44
+
+你闪配的可太多了，闪1劳拉和菲还凑对呢，闪2开始就真不熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1479#       发表于 2024-7-11 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65554756&amp;ptid=2160194" target="_blank">勿徊哉 发表于 2024-7-11 17:28</a>
+
+表情动起来能到gbc水准就好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">GBC水平没几家做得到，那是真的烧黑奴烧出来的
+

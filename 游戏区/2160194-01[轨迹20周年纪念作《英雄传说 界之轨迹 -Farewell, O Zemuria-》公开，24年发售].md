@@ -15099,3 +15099,41 @@ Towa爹妈不就是搞天文的
 
 泥楼单天回复量完爆dq<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  勿徊哉  
+##### 1469#       发表于 2024-7-11 17:28
+
+表情动起来能到gbc水准就好了
+
+*****
+
+####  smdzh2  
+##### 1470#       发表于 2024-7-11 17:29
+
+迫真轨迹论坛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宛若青空  
+##### 1471#       发表于 2024-7-11 17:30
+
+ 本帖最后由 宛若青空 于 2024-7-11 17:31 编辑 
+
+算一算黑兔女儿跟在黎老师身边的时间
+
+闪2时间是1204-1205年，内战结束后1205.3在克洲黎恩黑兔对战罗爷丽霞，这时候已经是跟在身边了。
+
+到界轨1209年的话就已经是第5年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+5年啊，什么金发女路人什么那个欠钱50米拉比得上女儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 1472#       发表于 2024-7-11 17:34
+
+难道就我一个人觉着50米拉和托娃一直挺配嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

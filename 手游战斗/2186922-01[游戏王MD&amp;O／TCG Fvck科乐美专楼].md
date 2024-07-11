@@ -181,3 +181,13 @@ BAN MAXXC！
 
 —— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  Arson=desu  
+##### 102#       发表于 2024-7-11 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65549766&amp;ptid=2186922" target="_blank">1096beam 发表于 2024-7-11 10:43</a>
+灰流丽也赶紧拆成三张吧</blockquote>
+灰的强度起码有一半在能康G上面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

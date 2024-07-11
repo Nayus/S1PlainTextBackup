@@ -14048,3 +14048,11 @@ e大师这闪组明显就是照着村上绘画的啊，看眼睛一眼看出来�
 
 黎恩太老了，这立绘三十七八岁差不多，哪能看着比Van还老
 
+
+*****
+
+####  smdzh2  
+##### 1362#       发表于 2024-7-11 13:18
+
+黑兔看起来比拉鼻屎正常一些，但整体很平庸，可能是我没艺术细胞理解不了设计感吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

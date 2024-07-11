@@ -3408,3 +3408,45 @@ tgw物产应该是真的吧，祥子的身世应该还是挺复杂的。
 
 情歌合唱的含金量，你们有没有这样的情歌合唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 19537#       发表于 2024-7-11 20:26
+
+ 本帖最后由 6030sylar 于 2024-7-11 20:27 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/11/202525e0k6sa3phf3gigha.png" referrerpolicy="no-referrer">
+
+<strong>IYBJS%K_@08V6R_PW1RB9G2.png</strong> (69.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/202545m2ufwubo27h42kh7.png" referrerpolicy="no-referrer">
+
+<strong>F_J[K212V[XQHYMH`5F0HNY.png</strong> (16.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 20:25 上传
+
+BW2024，算是邦相关的
+
+
+*****
+
+####  御幸一也  
+##### 19538#       发表于 2024-7-11 20:33
+
+我他媽是真的服了，真是邪邪又教教啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/203231qmemmzus6zjmdumy.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_バンドリ！ BanG Dream! 公式(@bang_dream_info)_20240711-123000_1811377401.jpg</strong> (98.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 20:32 上传
+

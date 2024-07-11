@@ -85,3 +85,13 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 这次的ST夏莉感觉就是炮灰吧，FA风纪和可乐都复刻了。怕不是直接摸到月底6.5周年，应该会新出俩FA<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1117#       发表于 2024-7-12 02:19
+
+这池子氪金等级已经2到4，总共应该有80连了，还是木有艾玛酱仙贝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

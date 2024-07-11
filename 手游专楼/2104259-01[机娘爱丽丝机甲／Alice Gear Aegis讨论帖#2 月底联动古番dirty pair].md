@@ -77,3 +77,11 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 8个福袋全抽了，还是没凑齐四小只的泳装
 
+
+*****
+
+####  江戸前ルナ  
+##### 1116#         楼主| 发表于 2024-7-11 19:32
+
+这次的ST夏莉感觉就是炮灰吧，FA风纪和可乐都复刻了。怕不是直接摸到月底6.5周年，应该会新出俩FA<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

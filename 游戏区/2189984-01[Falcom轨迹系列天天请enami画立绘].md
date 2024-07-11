@@ -1321,3 +1321,36 @@ e大师的背景图？快贴出来瞧瞧。e大师没在我关注的名单里，
 
 —— 来自 Xiaomi M2102J2SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  慕容断月  
+##### 127#       发表于 2024-7-11 19:25
+
+ 本帖最后由 慕容断月 于 2024-7-11 19:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65552430&amp;ptid=2189984" target="_blank">maojiashu 发表于 2024-7-11 14:19</a>
+
+这很烂 但还是比e大师好百倍</blockquote>
+嗯，大家都知道了
+
+*****
+
+####  慕容断月  
+##### 128#       发表于 2024-7-11 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555256&amp;ptid=2189984" target="_blank">酷乐 发表于 2024-7-11 18:19</a>
+
+腋加分，不过最好的还是托娃</blockquote>
+这个学姐真不错<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhuhh  
+##### 129#       发表于 2024-7-11 19:30
+
+<blockquote>零食杀手 发表于 2024-7-11 18:34
+我比较想知道有多少日本本土或者欧美玩家喷e大师的立绘的
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 S1 ...</blockquote>
+日本论坛里看到挺多差评的，欧美论坛评价倒是挺好
+

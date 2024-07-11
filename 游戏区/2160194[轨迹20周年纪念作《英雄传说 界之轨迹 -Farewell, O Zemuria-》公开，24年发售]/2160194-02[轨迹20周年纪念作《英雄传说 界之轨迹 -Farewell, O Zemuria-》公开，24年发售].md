@@ -156,3 +156,50 @@
 
 黑兔越来越可爱，学妹这法杖变镰刀太属实是黑暗圣堂了
 
+
+*****
+
+####  Aeons  
+##### 1500#       发表于 2024-7-11 19:25
+
+什么双头镰刀
+
+*****
+
+####  nozomitech  
+##### 1501#       发表于 2024-7-11 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553872&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-7-11 09:12</a>
+
+黎恩似乎有几句台词都是关于师姐的，难道真的要同门对决了</blockquote>
+falcom这种找各种理由拿自己人凑boss战的行为还没摸到吗？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1502#       发表于 2024-7-11 19:30
+
+反派不够打了，让己方打吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  nozomitech  
+##### 1503#       发表于 2024-7-11 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555479&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-11 11:44</a>
+
+草
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+这图亚尼艾斯为啥要倒着拿法杖我一直看不明白
+
+*****
+
+####  nozomitech  
+##### 1504#       发表于 2024-7-11 19:33
+
+黎恩不用找老婆了，有黑兔在旁边就够了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

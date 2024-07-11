@@ -143,3 +143,13 @@ BAN MAXXC！
 
 —— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  UNFK  
+##### 98#       发表于 2024-7-11 08:03
+
+新的r4卡组下级质量好高啊，大哥也还可以。自肃重但是也能做不少东西，先攻本家大哥三炸+大王花+超阶乘，后攻绿能堆分体论还能出白小强突破，感觉设计的不错<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">数字盒要是能补个厉害点的终端就很舒服
+
+—— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

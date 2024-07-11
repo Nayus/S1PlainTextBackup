@@ -171,3 +171,13 @@ BAN MAXXC！
 
 灰流丽也赶紧拆成三张吧
 
+
+*****
+
+####  UNFK  
+##### 101#       发表于 2024-7-11 11:56
+
+白乙女很强很赚简直是肃声小红帽plus，但是怎么画的这么大妈<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，真不如动画一根
+
+—— 来自 vivo V2217A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

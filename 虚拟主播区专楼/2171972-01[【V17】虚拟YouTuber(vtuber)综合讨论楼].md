@@ -295,3 +295,11 @@ volta二周年除了常规周边声剧3d联动和新翻唱以外，还有新的�
 
 惊闻管人特定难攻不落的堡垒彗酱陨落了，看了一下还得是角川和黑客助攻的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 446#       发表于 2024-7-11 20:02
+
+毛子黑客团队：还有送上门的业绩呢这么好感谢台湾人
+

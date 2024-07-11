@@ -14156,3 +14156,26 @@ e大师这闪组明显就是照着村上绘画的啊，看眼睛一眼看出来�
 
 2024-7-11 14:06 上传
 
+
+*****
+
+####  Aeons  
+##### 1372#       发表于 2024-7-11 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">托娃这都能混到立绘
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">男的都一张脸，托娃像拉碧丝
+
+*****
+
+####  无动于衷  
+##### 1373#       发表于 2024-7-11 14:10
+
+看托瓦再看看拉碧丝就能明白 enami画女人要没头发遮住就只能画大饼脸
+
+*****
+
+####  一步成诗  
+##### 1374#       发表于 2024-7-11 14:10
+
+凭良心说闪组比其他人好了不止一点，库洛这个也挺帅的
+

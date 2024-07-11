@@ -6433,3 +6433,30 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 2024-7-12 02:59 上传
 
+
+*****
+
+####  PDQ4  
+##### 19821#       发表于 2024-7-12 03:07
+
+特地用了猫猫头哭，太有心了米泽
+
+多讲几次相声就放开了，能不能让队友和老前辈多带带<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19822#       发表于 2024-7-12 03:09
+
+不過今天生放我感覺還是結月更驚人，她怎麼講話可以這麼興奮，好幾次中氣十足的唸稿快把我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有沒有人追DJ的生放她在那邊也是這樣的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 19823#       发表于 2024-7-12 03:11
+
+D5J生放没看过，我觉得和ins直播状态挺像的，很放松，而且今天明显很兴奋，等个结月厨科普<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

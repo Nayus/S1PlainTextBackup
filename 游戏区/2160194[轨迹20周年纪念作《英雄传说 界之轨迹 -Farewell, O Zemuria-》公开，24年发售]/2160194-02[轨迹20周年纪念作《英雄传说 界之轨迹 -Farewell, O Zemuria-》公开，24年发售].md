@@ -89,3 +89,40 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 1492#       发表于 2024-7-11 18:34
+
+ 本帖最后由 卢迪克 于 2024-7-11 18:37 编辑 
+
+克洛的客服sc是不是米拉贝尔？
+
+记得黎2说她是mk驻自由都市圈的sc吧。
+
+*****
+
+####  smdzh2  
+##### 1493#       发表于 2024-7-11 18:38
+
+可爱就是无敌，依稀记得闪2黑兔低血量时那楚楚可怜的表情，完美击中宅宅好球区
+<img src="https://p.sda1.dev/18/9e762cb001723b07909056c8a15a73c4/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1494#       发表于 2024-7-11 18:38
+
+法老控也是没活了，不就翻版van
+
+
+*****
+
+####  ravend233  
+##### 1495#       发表于 2024-7-11 18:44
+
+草<img src="https://p.sda1.dev/18/8ae5b6779cbaa1aa7547aff36074789f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

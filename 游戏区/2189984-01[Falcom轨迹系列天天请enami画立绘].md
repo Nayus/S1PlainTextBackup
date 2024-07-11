@@ -1106,3 +1106,14 @@ toi8还是算了，远不如enami
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 107#       发表于 2024-7-11 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65551264&amp;ptid=2189984" target="_blank">慕容断月 发表于 2024-7-11 12:34</a>
+
+你真的能接受伊苏10的toi8那个不知道画的什么玩意的东西？</blockquote>
+这很烂 但还是比e大师好百倍
+

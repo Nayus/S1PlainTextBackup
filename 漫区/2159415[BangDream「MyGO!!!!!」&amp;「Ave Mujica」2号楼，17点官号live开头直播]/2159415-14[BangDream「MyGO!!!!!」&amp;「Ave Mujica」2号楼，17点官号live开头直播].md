@@ -4254,3 +4254,37 @@ ave的大家都愛吃辣</blockquote>
 
 鸡团这五个人也太好了，这才是我想要的邦多利啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 19612#       发表于 2024-7-11 22:18
+
+关系很好的乐队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19613#       发表于 2024-7-11 22:18
+
+是真的肉眼可見的關係好，尤其是看過她們不是全員回時候的表現，嗯……
+
+熟人面前和陌生同事面前，表現出來的差距是真的大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19614#       发表于 2024-7-11 22:19
+
+开始看回放截图
+
+结月不愧是宣传过打牌的，好牌佬的中二pose<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/11/221907dc704vdvl2b8l4ij.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 22:19 上传
+

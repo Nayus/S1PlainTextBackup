@@ -13769,3 +13769,28 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 
 哦吼，黎轨2廉价版实体预购送🐱🐱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1332#       发表于 2024-7-11 10:22
+
+ 本帖最后由 卢迪克 于 2024-7-11 10:24 编辑 
+
+黎2庭园空轨bgm包依旧日版独占。
+
+中文ps和pc都没有。
+
+中文想要只能买界轨实体豪华版才有。
+
+没诚意
+
+*****
+
+####  宛若青空  
+##### 1333#       发表于 2024-7-11 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65548969&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-11 09:37</a>
+那得看现场主持人的提问原文是提的系列还是特指共和国篇了</blockquote>
+草，我才看清主持人问的是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6460,3 +6460,18 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 D5J生放没看过，我觉得和ins直播状态挺像的，很放松，而且今天明显很兴奋，等个结月厨科普<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19824#       发表于 2024-7-12 03:19
+
+独角兽访谈“祥子哭是因为很珍惜c团”、“c团在mujica动画依然有巨大存在感”，外加云朵图拉了一堆跨团cp，真的出现人物关系性改动的话没准反而是独角兽想写十人蜘蛛网被柿本否了要优先团内，哦对独角兽还真说过想写海希写不了来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19825#       发表于 2024-7-12 03:24
+
+海希顶多是动画涉及少吧，进了游戏肯定还是稳的，这个不用悲观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

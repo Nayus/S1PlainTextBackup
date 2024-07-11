@@ -1047,3 +1047,13 @@ Toi8同期给废狗交的武田信玄都没这么离谱
 那祝法老控以后的立绘都是这个b样吧，e大师的完成度要是有个六七成，那toi8画的这几个不知道有三成没有， ...</blockquote>
 感谢祝福 那我祝福你以后玩的游戏都是e大师玩的那个b样
 
+
+*****
+
+####  我tm吃吃吃吃吃  
+##### 101#         楼主| 发表于 2024-7-11 11:28
+
+请欣赏enami大师最新力作《你的老婆黑兔》<img src="https://p.sda1.dev/18/f4d1390d6e68025c4bbedf69de20833a/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

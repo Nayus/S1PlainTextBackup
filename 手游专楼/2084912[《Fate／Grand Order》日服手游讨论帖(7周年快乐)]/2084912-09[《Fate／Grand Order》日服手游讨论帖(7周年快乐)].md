@@ -2525,3 +2525,11 @@ fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
 
 希望我这180石有灵魂 去年泳装就差水c呆
 
+
+*****
+
+####  khxooo  
+##### 13029#       发表于 2024-7-11 09:26
+
+付费单抽出货了，算是将斯卡哈没出货的概率给补回来了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

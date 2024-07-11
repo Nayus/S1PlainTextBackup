@@ -510,3 +510,14 @@ cry也在垂死边缘吧，引擎没几家在用，自家也就剩个猎杀对�
 
 绰号一作灵，崛起1很好玩，只是全身钢甲就结局了，从山顶往空中一跃盘腿缓缓下山的感觉极其天仙，小时候常梦到这种。但二三代一下变海盗什么鬼。阿来客斯只玩了一，优化不好，进建筑不读盘是建立在建筑很简单的基础上，主要乐趣还是反常规的任务。杀敌老手感，要是开放让玩家改模组可能还能延长点寿命。
 
+
+*****
+
+####  Launce  
+##### 52#       发表于 2024-7-11 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65545733&amp;ptid=2190678" target="_blank">Abba-il-Aeons 发表于 2024-7-10 21:29</a>
+
+之前看过科普，好像这个引擎基本只有他们自家能玩转</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">亚马逊的Lumberyard算半个？基于CE3.1还是3.2改的版本，具体表现为，亚马逊自己的游戏工作室都难产游戏了
+

@@ -1411,3 +1411,11 @@ e大师作为雇佣兵其实算敬业了，卖力的画完完成了工作，早�
 —— 来自 Xiaomi M2102J2SC, Android 13上的 S1Ne ...</blockquote>
 当年伊苏7初始立绘被炎上后，就临时把enami拉出来救场了，于是现在的伊苏7就是enami画风的
 
+
+*****
+
+####  kirbykelin  
+##### 135#       发表于 2024-7-11 21:44
+
+我是真觉得enami挺好的，零轨的艾差点意思，别的大体上都还行<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

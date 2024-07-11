@@ -3802,3 +3802,152 @@ mo酱，有点可爱捏<img src="https://static.saraba1st.com/image/smiley/face2
 
 2024-7-11 21:31 上传
 
+
+*****
+
+####  PDQ4  
+##### 19575#       发表于 2024-7-11 21:36
+
+提到水的时候梦以这个后仰指弄李好好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19576#       发表于 2024-7-11 21:36
+
+夢以—夾在初祥non李之間不知所措太可愛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/213626g1z180uuu1lp59d0.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 45-2 screenshot.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:36 上传
+
+*****
+
+####  御幸一也  
+##### 19577#       发表于 2024-7-11 21:38
+
+大家還要明知故問：dolo在看誰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+dolo的右邊，那當然是：
+
+<img src="https://img.saraba1st.com/forum/202407/11/213815mxahhhja9gs5m7y9.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 47-4 screenshot.png</strong> (1.25 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:38 上传
+
+*****
+
+####  御幸一也  
+##### 19578#       发表于 2024-7-11 21:39
+
+結月：為了2nd留長了頭髮，為了更接近角色<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/213854ajbv8j3tbvo0bts3.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 47-44 screenshot.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:38 上传
+
+*****
+
+####  御幸一也  
+##### 19579#       发表于 2024-7-11 21:39
+
+timo————————<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/213929ejsayztywbsuylfj.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 48-18 screenshot.png</strong> (1.32 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:39 上传
+
+
+*****
+
+####  御幸一也  
+##### 19580#       发表于 2024-7-11 21:40
+
+生無可戀.jpg
+
+<img src="https://img.saraba1st.com/forum/202407/11/214005cnn3m5r5zmbet0n3.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 48-50 screenshot.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:40 上传
+
+*****
+
+####  akiomn  
+##### 19581#       发表于 2024-7-11 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高尾在air的时候还特意去了自己的大学研究下爵士的弹奏方式
+其他人：大学好厉害啊
+什么学历骑士（）
+这下高尾也干了！
+
+*****
+
+####  御幸一也  
+##### 19582#       发表于 2024-7-11 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/11/214043g6oxxx0gkpn0p5td.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 49-28 screenshot.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:40 上传
+
+*****
+
+####  御幸一也  
+##### 19583#       发表于 2024-7-11 21:42
+
+這張好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 我的初睦雙吉他！！
+
+<img src="https://img.saraba1st.com/forum/202407/11/214223z774nno7s7u45677.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #223 51-4 screenshot.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 21:42 上传
+
+*****
+
+####  御幸一也  
+##### 19584#       发表于 2024-7-11 21:43
+
+啊 這張照片夢以羨慕了，然後奏音就說啊那你來和keyboard背靠背吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 19585#       发表于 2024-7-11 21:43
+
+ 本帖最后由 鳥栖朝 于 2024-7-11 21:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">梦以不安分的小手
+
+*****
+
+####  PDQ4  
+##### 19586#       发表于 2024-7-11 21:43
+
+高尾怎么抓了好几次梦以的手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

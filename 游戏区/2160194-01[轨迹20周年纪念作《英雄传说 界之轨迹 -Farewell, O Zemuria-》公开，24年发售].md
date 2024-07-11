@@ -13734,3 +13734,14 @@ Falcom社長參加北美動漫展，並宣傳黎之軌跡2美版將在明年上�
 
 没什么，主要主角他都喜欢，只不过老是说他老，过于搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1329#       发表于 2024-7-11 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65548894&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-11 09:30</a>
+
+他这里说的是共和国篇吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那得看现场主持人的提问原文是提的系列还是特指共和国篇了
+

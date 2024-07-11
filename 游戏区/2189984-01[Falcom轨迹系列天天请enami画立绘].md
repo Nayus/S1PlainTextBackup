@@ -1154,3 +1154,13 @@ toi8还是算了，远不如enami
 
 toi8的武田信玄也能接受吗，当初出来的时候都被人骂烂了，也就三破画面因为整体风格问题还算能看而已
 
+
+*****
+
+####  smdzh2  
+##### 111#       发表于 2024-7-11 16:18
+
+<img src="https://p.sda1.dev/18/1fc350518cc60cf67b9bc8105c2569b1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/443e39f38e0fb089c6310513023a11b6/image.jpg" referrerpolicy="no-referrer">
+轨迹学家特有的暴力p图
+

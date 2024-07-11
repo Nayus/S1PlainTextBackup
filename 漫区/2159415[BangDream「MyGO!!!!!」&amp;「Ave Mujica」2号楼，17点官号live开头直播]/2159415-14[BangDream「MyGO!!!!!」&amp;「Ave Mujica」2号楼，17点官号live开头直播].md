@@ -6314,3 +6314,60 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 独角兽访谈确实强调了真实感，感觉不满魔女之夜的可能性变大了</blockquote>
 那不好了，我喜歡PV的怪誕風格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 19810#       发表于 2024-7-12 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558692&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 02:38</a>
+
+那不好了，我喜歡PV的怪誕風格</blockquote>
+至少这已经是最乐观的展开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+独角兽之前的访谈也说过写mygo和mujica带入了自身经历，把自己的人生投影进去之类的发言，那希望表现形式更真实，不满太夸张的表现好像也可以理解
+
+*****
+
+####  御幸一也  
+##### 19811#       发表于 2024-7-12 02:49
+
+反正我調理完了，滑完就調理好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+還是沒有小廣播更讓我生氣<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -LYRE-  
+##### 19812#       发表于 2024-7-12 02:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558523&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-12 01:41</a>
+你说的对，是我之前没理解以降的意思
+
+以降(いこう)</blockquote>
+不愧是鸟，直肠子，刚吃完就拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19813#       发表于 2024-7-12 02:52
+
+10月后会有广播吗，都上邦TV了广播随便了吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+没有广播9月份都不知道怎么熬，没有情报来点相声也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  congnian  
+##### 19814#       发表于 2024-7-12 02:52
+
+如果有可能还是更希望mujica真实系成分多点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19815#       发表于 2024-7-12 02:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">現在完全不知道要怎麼熬到河口湖
+

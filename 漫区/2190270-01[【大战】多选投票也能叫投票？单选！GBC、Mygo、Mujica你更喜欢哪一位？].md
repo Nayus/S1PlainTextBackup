@@ -1059,3 +1059,11 @@ gbc票多的也就27486，其他几个人加起来才50票多点
 四个人加起来才打的赢也好意思说分票
 这么怀疑弄个鸡狗十人单投不就知道了
 
+
+*****
+
+####  斑驳的阴影  
+##### 102#       发表于 2024-7-12 02:39
+
+睦头人和初华一个票数，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

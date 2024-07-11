@@ -6286,3 +6286,31 @@ pv最大的改动：把“让我忘记一切”那段话的初华给删了<img s
 
 2024-7-12 02:28 上传
 
+
+*****
+
+####  御幸一也  
+##### 19808#       发表于 2024-7-12 02:34
+
+看看海海冷靜一下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/023412jqr60yvu66105y3r.png" referrerpolicy="no-referrer">
+
+<strong>twitter_ak(@akni105)_20240711-173339_1811453817034289519_photo.png</strong> (191.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 02:34 上传
+
+[https://x.com/akni105/status/1811453817034289519](https://x.com/akni105/status/1811453817034289519)
+
+*****
+
+####  御幸一也  
+##### 19809#       发表于 2024-7-12 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558671&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 02:28</a>
+
+独角兽访谈确实强调了真实感，感觉不满魔女之夜的可能性变大了</blockquote>
+那不好了，我喜歡PV的怪誕風格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

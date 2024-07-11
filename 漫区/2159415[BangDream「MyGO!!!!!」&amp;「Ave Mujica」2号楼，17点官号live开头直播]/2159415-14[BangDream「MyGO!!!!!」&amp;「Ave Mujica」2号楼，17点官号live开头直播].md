@@ -3108,3 +3108,125 @@ Roselia的鼓手好强，感觉在邦邦里能排个很高的顺位了
 
 唉，打牌
 
+
+*****
+
+####  罗克萨斯  
+##### 19518#       发表于 2024-7-10 23:49
+
+立石凛生日推下面就🐢没回复，太没人情味了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  鳥栖朝  
+##### 19519#       发表于 2024-7-11 00:02
+
+希望之后的编曲多给弄上点压力
+
+*****
+
+####  daiquan333  
+##### 19520#       发表于 2024-7-11 00:04
+
+想问问漏油是不是bml没有现场直播
+
+
+*****
+
+####  御幸一也  
+##### 19521#       发表于 2024-7-11 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65546880&amp;ptid=2159415" target="_blank">H2Ofrozen 发表于 2024-7-10 23:37</a>
+
+现在的新派重型最典型的就这种曲风，主副歌和声走向听起来比较旋律化，但是其实很难弹...这首earth跟母鸡 ...</blockquote>
+樓友好專業，我只看懂了這首歌是在軍訓李子<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19522#       发表于 2024-7-11 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65547062&amp;ptid=2159415" target="_blank">daiquan333 发表于 2024-7-11 00:04</a>
+
+想问问漏油是不是bml没有现场直播</blockquote>
+沒有直播
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| daiquan333| + 1|谢谢解答|
+
+查看全部评分
+
+*****
+
+####  鳥栖朝  
+##### 19523#       发表于 2024-7-11 00:11
+
+<blockquote>daiquan333 发表于 2024-7-11 00:04
+想问问漏油是不是bml没有现场直播</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/11/001121ivfe1yqzoqej38e1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240711_001031.jpg</strong> (78.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 00:11 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| daiquan333| + 1|谢谢解答|
+
+查看全部评分
+
+*****
+
+####  平昭·南宫司卿  
+##### 19524#       发表于 2024-7-11 00:12
+
+令人安心的 8/9，可能哪天 9/9 或者 10/10 了才不正常吧，只能说 x 还是太复杂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收纳袋  
+##### 19525#       发表于 2024-7-11 00:14
+
+唉，打牌
+
+*****
+
+####  安瓦尔阿明  
+##### 19526#       发表于 2024-7-11 08:56
+
+大家有兴趣可以关注一下米泽茜官推昨晚发布的内容，2500円的超划算直笔签明信片。
+
+<img src="https://img.saraba1st.com/forum/202407/11/085522u8k80ku9frua98rk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720659241073.jpg</strong> (513.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 08:55 上传
+
+<img src="https://img.saraba1st.com/forum/202407/11/085522vm0z0l0h2000wadz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720659256730.jpg</strong> (82.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 08:55 上传
+

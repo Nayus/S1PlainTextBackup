@@ -14617,3 +14617,72 @@ Towa这真实锤了就是照着村上版改的吧。太幽默了法老控。
 <img src="https://p.sda1.dev/18/9e3380c771463802af23e8fb5168a95c/017.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/c52a8943eb32170f373fed44d71f5345/005 _3_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1420#       发表于 2024-7-11 15:09
+
+绷，打开贴吧就看到求人深挖enami是不是lgbt
+
+*****
+
+####  法拉  
+##### 1421#       发表于 2024-7-11 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">e圣不一定是，但竹入一定是
+
+*****
+
+####  ravend233  
+##### 1422#       发表于 2024-7-11 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553051&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 15:05</a>
+
+说实话感觉几位来共和国的理由都有点怪怪的</blockquote>
+像是强行塞个设定方便参与共和国篇的剧情线，不然共和国篇这边的故事线和老角色的接点太少了，不好掺和
+
+
+*****
+
+####  ravend233  
+##### 1423#       发表于 2024-7-11 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553103&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 15:09</a>
+
+绷，打开贴吧就看到求人深挖enami是不是lgbt</blockquote>
+新潮垃圾桶罢了
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1424#       发表于 2024-7-11 15:14
+
+托娃建模裤子的质感明显和立绘不一样
+
+*****
+
+####  Aeons  
+##### 1425#       发表于 2024-7-11 15:14
+
+说到lgbt和托娃这一组。
+其实轨里不仅没有还有这种比较经典的，学姐，谢莉这种都是典中典前面像是喜欢女的，后面都是和男的。
+只有贝尔稍微在小说里锤了点。
+
+*****
+
+####  无动于衷  
+##### 1426#       发表于 2024-7-11 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553051&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-11 15:05</a>
+
+说实话感觉几位来共和国的理由都有点怪怪的</blockquote>
+有没有一种可能好几位都已经加入NGO了
+
+*****
+
+####  ravend233  
+##### 1427#       发表于 2024-7-11 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法社铁血BG+老保，克洛里恩更多还是歪打正着，共和国篇支线塞南通也更像是凑要素
+

@@ -28,3 +28,11 @@
 
 感觉主要还是靠BEASTARS和网飞的关系给动了
 
+
+*****
+
+####  狮子咕  
+##### 58#       发表于 2024-7-11 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">说起来这玩意在b漫去年9月就没得更新了，最后结局是啥玩意？
+

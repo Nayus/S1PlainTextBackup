@@ -62,3 +62,30 @@
 
 黑兔和黎老师的关系，从敌人到监视者再到师生，然后现在是同事关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 1489#       发表于 2024-7-11 18:18
+
+黑兔一个闪2的反派中boss，后续居然捧这么高，所以大家还是不够支持我黎1的金兔.....
+
+
+*****
+
+####  SuNR1sE364  
+##### 1490#       发表于 2024-7-11 18:20
+
+黑兔可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1491#       发表于 2024-7-11 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555247&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-7-11 18:18</a>
+黑兔一个闪2的反派中boss，后续居然捧这么高，所以大家还是不够支持我黎1的金兔..... ...</blockquote>
+描写太少了，加上部分玩家的剧情里直接就死了，没留下足够的印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

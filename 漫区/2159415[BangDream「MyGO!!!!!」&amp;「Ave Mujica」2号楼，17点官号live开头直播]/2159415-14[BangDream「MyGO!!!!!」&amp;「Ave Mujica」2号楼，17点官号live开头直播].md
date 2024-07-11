@@ -4441,3 +4441,97 @@ ave的大家都愛吃辣</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我去，不要啊
 
+
+*****
+
+####  Aendst  
+##### 19632#       发表于 2024-7-11 23:20
+
+绫奈取关mujica推大体就是七月以来的事，六月我还看到过她还在关注中
+
+具体哪天取关的不清楚，但可以知道7.4发布了mujica的pv和视觉图2
+
+7.5绫奈突然在推上谈及分镜之后没有让她check的事
+
+我认为可能是有关联的
+
+之前就已经有很多人认为脚本决定稿和分镜稿之后没有参与后续确认的动画是mujica，目前的迹象可以说基本上可以认为就是mujica动画了
+
+并且7.4晚上22:00左右发布pv，7.5凌晨1:30绫奈就提及check问题，有可能是对pv最后的效果有不满
+
+*****
+
+####  星天观测  
+##### 19633#       发表于 2024-7-11 23:20
+
+不是……动画肯定已经做差不多了，取关难道会造成动画重做么真不用这么在意吧
+
+*****
+
+####  御幸一也  
+##### 19634#       发表于 2024-7-11 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 7/5 確實減了1關注
+
+雖然7/10 也減了20
+
+<img src="https://img.saraba1st.com/forum/202407/11/232136lg3mwmmswy0oggy7.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (103.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 23:21 上传
+
+*****
+
+####  御幸一也  
+##### 19635#       发表于 2024-7-11 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557441&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-11 23:20</a>
+
+不是……动画肯定已经做差不多了，取关难道会造成动画重做么真不用这么在意吧 ...</blockquote>
+啥都沒，不安很正常，我也要不安了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19636#       发表于 2024-7-11 23:24
+
+难不成独角兽原本写的内容不是恐怖惊悚风+各种幻觉隐喻的，在这方面和柿本有争议？
+
+
+*****
+
+####  akiomn  
+##### 19637#       发表于 2024-7-11 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">我选择等鸡的动画播出，现在担心这担心那没什么意义
+
+*****
+
+####  PDQ4  
+##### 19638#       发表于 2024-7-11 23:25
+
+7.5凌晨不就是绫奈发分镜稿相关那些谜语的时候吗
+
+7.6还删了7条推
+
+7.4晚上发布的鸡PV
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 19639#       发表于 2024-7-11 23:25
+
+具体的原因永远是个谜了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 19640#       发表于 2024-7-11 23:26
+
+啊？不是，这怎么取关了？
+

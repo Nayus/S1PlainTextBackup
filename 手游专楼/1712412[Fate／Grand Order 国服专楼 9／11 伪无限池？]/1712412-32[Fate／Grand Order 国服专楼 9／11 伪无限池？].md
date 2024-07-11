@@ -227,3 +227,11 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 8周年满签是抽选挂坠
 
+
+*****
+
+####  ajkkdcry  
+##### 46509#       发表于 2024-7-11 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前年工作忙断签后就彻底闲鱼了，2.6至今都没打，今天一看这周年活动是只给满签人搞的吧。。这种周年奖励还搞这么恶心的前提
+

@@ -6054,3 +6054,189 @@ NTK_0023
 
 她是系构也是原案，是内容的重要负责人，分镜不让她看那真的会出问题的
 
+
+*****
+
+####  skives  
+##### 19791#       发表于 2024-7-12 01:34
+
+自分が関わった部分(脚本)は面白いと断言できますが、コンテ以降チェックさせてもらえなかった作品はなんとも言えないですね。どんなアニメになるか知らないので…
+
+就是没看过分镜 所以不知道是什么样的动画
+
+*****
+
+####  哈曼的YY  
+##### 19792#       发表于 2024-7-12 01:35
+
+唉 被母鸡卡pv的风格吸引来看 卖狗感觉也还不错 之前从来没看过这种0战斗的乐队动画...如果算我为歌狂那就第二次看
+
+两件的快乐事情重合在一起怎么会变成这样<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19793#       发表于 2024-7-12 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558346&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 01:15</a>
+
+“我可以断言，自己参与的部分（剧本）很有趣，但对于做完分镜后未能让我检查的作品，就说不准了呢。因为 ...</blockquote>
+還真是，我眼花看混句子了，那綾奈還真的是分鏡都沒check，那可有得滑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 19794#       发表于 2024-7-12 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558488&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-12 01:34</a>
+自分が関わった部分(脚本)は面白いと断言できますが、コンテ以降チェックさせてもらえなかった作品はなんと ...</blockquote>
+没被检查的是分镜还是分镜之后的线稿（或者叫一原？不太清楚）这里还是不能明确吧，倾向于看到分镜了但是没看到线稿
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  Aendst  
+##### 19795#       发表于 2024-7-12 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那祥子理解不同的可能性挺高的
+
+最大问题是：<strong>如果pv里出现的祥子掩面哭泣的画面和她的角色理解不同呢</strong>
+
+当然这个只是纯推测，没有任何证据
+
+*****
+
+####  dqtql  
+##### 19796#       发表于 2024-7-12 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558389&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 01:21</a>
+大河内翻车了多少次，绫奈又翻车了多少次，轻拍翻车说不定还是因为把绫奈踢走了
+
+柿本脚本做得怎么样，他 ...</blockquote>
+大河内的几次原创翻车还真和上面大人脱不了关系。罪恶王冠的话他只是单集脚本。甲铁城那回是荒木主导。水魔就更明显了，都写了一集剧本了结果制作人突然说要搞学园高达。
+
+*****
+
+####  Aendst  
+##### 19797#       发表于 2024-7-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558506&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 01:37</a>
+
+大河内的几次原创翻车还真和上面大人脱不了关系。罪恶王冠的话他只是单集脚本。甲铁城那回是荒木主导。水 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去跟那个突然进楼说可能是柿本压住了绫奈所以做得好
+
+大河内这些东西做的不好需要大河内跟他道歉的新漏油讲吧
+
+*****
+
+####  skives  
+##### 19798#       发表于 2024-7-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558505&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 01:37</a>
+那祥子理解不同的可能性挺高的
+
+最大问题是：如果pv里出现的祥子掩面哭泣的画面和她的角色理解不同呢
+
+当然这 ...</blockquote>
+这个我觉得还好
+毕竟春日影也哭了
+最多是幅度有点大的问题
+问题是视觉图上的样子魔怔过头了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 19799#       发表于 2024-7-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558500&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-12 01:37</a>
+没被检查的是分镜还是分镜之后的线稿（或者叫一原？不太清楚）这里还是不能明确吧，倾向于看到分镜了但是 ...</blockquote>
+看线稿那是演出的工作了，脚本不至于深入参与到这个程度。独角兽如果能检查到这一步真的可以干监督了
+
+*****
+
+####  NODY  
+##### 19800#       发表于 2024-7-12 01:39
+
+pv最大的改动：把“让我忘记一切”那段话的初华给删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  第七軍伐戎処  
+##### 19801#       发表于 2024-7-12 01:40
+
+等会，查了词典，以降确实有“及以后”的意思，那绫奈确实有可能说的是“分镜及以后都没看过”
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|嗯嗯嗯|
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 19802#       发表于 2024-7-12 01:41
+
+ 本帖最后由 第七軍伐戎処 于 2024-7-12 01:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65558515&amp;ptid=2159415" target="_blank">dqtql 发表于 2024-7-12 01:39</a>
+看线稿那是演出的工作了，脚本不至于深入参与到这个程度。独角兽如果能检查到这一步真的可以干监督了 ...</blockquote>
+你说的对，是我之前没理解以降的意思
+
+以降(いこう)
+
+　　接在时间数量词之后，表示从这一时间起一直持续着的行为，状态。「以降」也不能单独使用。
+
+　　三月は忙しいから、四月以降にやりましょう。/三月太忙，四月以后再做吧。
+
+　　19世紀以降の自然科学の進歩は実に素晴らしい。/19世纪以后，自然科学的进步令人惊叹。
+
+　後(ご・あと)
+
+　　1.「後」所表达的时间概念，不含有当时的时刻和日期，这是它的主要特征之一，也是与「以後」「以降」最根本的区别。
+
+　　四月三日後/四月三日后
+
+　　「四月三日後」其意应为：「四月三日から」。因此，「後」所表达的时间概念是从何时何日何月起，不包含当时的时刻、日期。换言之，此话显然不包含“四月三日”这一天。
+
+　　注意：但是，有「法律施行後」这样的说法。「後」作为法律用语时，却把实施之日包括在其中了。这是它的独到之处。
+
+　　四月三日後施行/四月三日后执行
+
+　　这里把“四月三日”包括在执行日期中。即：从四月三日这天就执行。
+
+如果绫奈想说的是分镜再往后没看，那确实应该用後而不是以降
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|nbcs|
+| Aendst|-1|谁问你了|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 19803#       发表于 2024-7-12 01:43
+
+乐观一点想就是，声优看起来挺满意而且非常开心（不排除是单纯的演技好），真的有家庭伦理剧或者改cp改人设的大方向变化独角兽也需要参与，不满的是pv的画面表现
+
+悲观一点想就是，真的出现了只修改一两句台词就影响剧情观感的部分，比如在不合时宜的地方加了一句“哟西”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

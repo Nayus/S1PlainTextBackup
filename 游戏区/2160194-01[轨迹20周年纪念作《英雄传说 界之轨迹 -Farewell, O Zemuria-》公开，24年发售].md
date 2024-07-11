@@ -14790,3 +14790,53 @@ E圣画的竟然比想象中的好一点<img src="https://static.saraba1st.com/i
 <img src="https://p.sda1.dev/18/54e893d2146597768a0c95d05d0c81b0/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/2baea307de7593e3a703f9f90203faf8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1437#       发表于 2024-7-11 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65553560&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-7-11 15:45</a>
+
+同样是白毛帝国人，为何差距如此悬殊
+
+黑兔：什么一方水土养一方人，女大十八变都是假的！！！</blockquote>
+菲是猎兵王在边境捡的，又不是帝国人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 1438#       发表于 2024-7-11 15:51
+
+怎么做到2d立绘丑成这样的？3d建模随便截个图都能把2d立绘爆的渣都不剩
+
+*****
+
+####  卡博雷z  
+##### 1439#       发表于 2024-7-11 15:52
+
+<img src="https://img.saraba1st.com/forum/202407/11/155215pwdz2mbbwi2wwo7o.jpg" referrerpolicy="no-referrer">
+
+<strong>1000006785.jpg</strong> (277.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-11 15:52 上传
+
+一打开就是黎恩和50米拉，太好磕了
+
+*****
+
+####  Aeons  
+##### 1440#       发表于 2024-7-11 15:53
+
+不嗑不是轨迹佬
+
+
+*****
+
+####  新世界的派蒙  
+##### 1441#       发表于 2024-7-11 15:54
+
+不得不说阿法这个渲染方案整挺好，强光影下也没怎么出现阴阳脸
+

@@ -4288,3 +4288,40 @@ ave的大家都愛吃辣</blockquote>
 
 2024-7-11 22:19 上传
 
+
+*****
+
+####  yifan8848  
+##### 19615#       发表于 2024-7-11 22:31
+
+五人一起猜拳那段太有默契了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19616#       发表于 2024-7-11 22:34
+
+刚才没听清的部分重看了下
+
+回顾歌单的时候神奈川印象最深刻的果然是symobols两首新曲
+
+火的时候高尾说她那个角度能看到米泽打鼓，看到快哭了，感觉米泽在燃烧生命打鼓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后到风的时候高尾主场，米泽就说了句我在看着弄
+
+唉弄茜太真了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19617#       发表于 2024-7-11 22:35
+
+看完感受最深的，装傻役我怎么觉得是梦以和米泽，太搞笑了两位，能不能逆输入进动画，我想看一本正经搞笑的海喵相声<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19618#       发表于 2024-7-11 22:35
+
+海喵感觉是冷笑话和热笑话角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

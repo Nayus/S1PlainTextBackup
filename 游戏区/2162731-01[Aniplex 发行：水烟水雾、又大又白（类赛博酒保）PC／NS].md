@@ -571,3 +571,34 @@ needy girl + va11吧，有点土
 
 人家都是独立游戏，你aniplex凭什么学啊
 
+
+*****
+
+####  SugarPagoda  
+##### 70#       发表于 2024-7-11 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556421&amp;ptid=2162731" target="_blank">kivz 发表于 2024-7-11 20:53</a>
+水烟……看到这个就有点劝退了</blockquote>
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+二次元美少女在西餐厅坐一桌开茶会 -&gt; 二次元美少女在咖啡店坐一桌喝咖啡 -&gt; 二次元美少女在吧台坐高脚凳一溜喝鸡尾酒 -&gt; 二次元美少女下班凑一桌大玻璃杯喝啤酒 -&gt; 二次元美少女在透明吸烟室蹲一圈抽烟 -&gt; 二次元美少女在休息室沙发排排坐抽雪茄 -&gt; 二次元美少女在男娘水烟店抽水烟 -&gt; 二次元美少女在朋友家客厅瘫成一团抽麻 -&gt; 二次元美少女在可疑跳舞厅包厢精神亢奋吃可疑蓝色药片 -&gt; 二次元美少女缩在大久保广场角落共用注射器注射不明液体 -&gt; ？？？
+
+
+*****
+
+####  魔法酪饼  
+##### 71#       发表于 2024-7-11 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557085&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 22:24</a>
+
+我觉得其实水烟就是一个正正好好的题材，既不太过老套也不太过激。
+
+二次元美少女在西餐厅坐一桌开茶会 -&gt; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 按照从日本友人那边听说的情况来看，可能水烟的等级比叶子高些？感觉去抽水烟的起码也是奔着混合低强度药品去的吧。
+
+*****
+
+####  莉可厨  
+##### 72#       发表于 2024-7-11 22:31
+
+这b弱势男主……看样子本作是奔着主播女孩的生态位去的，想在地雷妹群体里做成爆款的样子。
+

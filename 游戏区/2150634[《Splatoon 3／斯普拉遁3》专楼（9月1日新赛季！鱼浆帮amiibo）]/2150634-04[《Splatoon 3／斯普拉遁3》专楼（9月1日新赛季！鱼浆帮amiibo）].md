@@ -92,3 +92,11 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 4804#       发表于 2024-7-12 16:22
+
+二代庆典就一个优衣库联动没打。三代庆典目前没缺过。一代缺的好像蛮多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

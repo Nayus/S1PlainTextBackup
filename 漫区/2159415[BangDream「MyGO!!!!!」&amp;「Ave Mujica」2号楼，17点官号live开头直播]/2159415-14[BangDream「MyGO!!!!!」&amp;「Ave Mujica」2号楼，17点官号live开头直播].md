@@ -7498,3 +7498,97 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 syl
 原来是蒜人啊，那不奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19919#       发表于 2024-7-12 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564535&amp;ptid=2159415" target="_blank">T@L 发表于 2024-7-12 16:12</a>
+
+成年女性164挺正常的吧，而且我記得mmk也是164，這是什麼日本最近流行的成女身高嗎 ...</blockquote>
+你说mmk和喵梦一个身高有点难评了，单看外表我觉得应该少说和rupa一个身高<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19920#       发表于 2024-7-12 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564556&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-7-12 16:14</a>
+去隔壁看了眼，果然还是这副德行，一破防就拉出一溜小号追着人扣鹅
+楼上说保底三四个小号还说少了，得再 ...</blockquote>
+被造谣了还是要还击的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Alicest  
+##### 19921#       发表于 2024-7-12 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564568&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-12 16:15</a>
+小号众多，自称河豚会脑男男生子发bg的知名抽象人，红白那边就不提了，有各种“惊喜”发言
+鸡狗这边喜欢 ...</blockquote>
+曾经是蒜人的多了去了，但明明自己是还嘴硬否定、喜欢批发别人蒜人帽子的仅此一家
+
+*****
+
+####  利维豚  
+##### 19922#       发表于 2024-7-12 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564568&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-12 16:15</a>
+小号众多，自称河豚会脑男男生子发bg的知名抽象人，红白那边就不提了，有各种“惊喜”发言
+鸡狗这边喜欢 ...</blockquote>
+什么惊喜发言我还真想看看
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  相坂君  
+##### 19923#       发表于 2024-7-12 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564607&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-12 16:18</a>
+曾经是蒜人的多了去了，但明明自己是还嘴硬否定、喜欢批发别人蒜人帽子的仅此一家 ...</blockquote>
+你说得对，人与人的参差，我给蒜人道歉！
+
+
+*****
+
+####  T@L  
+##### 19924#       发表于 2024-7-12 16:23
+
+<blockquote>PDQ4 发表于 2024-7-12 16:16
+你说mmk和喵梦一个身高有点难评了，单看外表我觉得应该少说和rupa一个身高 ...</blockquote>
+不至於，rupa在日本人眼中都是【又高又壯的外國人】形象了，喵夢應該是没打算突出她的身高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 19925#       发表于 2024-7-12 16:24
+
+这也太抽象了，长见识了
+
+*****
+
+####  利维豚  
+##### 19926#       发表于 2024-7-12 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563939&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 15:28</a>
+請看他經典名言</blockquote>
+你是觉得这个发言十恶不赦嘛
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  IWS2000  
+##### 19927#       发表于 2024-7-12 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564681&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:24</a>
+你是觉得这个发言十恶不赦嘛
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+那要结合你的行为来看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

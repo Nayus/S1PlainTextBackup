@@ -1128,3 +1128,43 @@ OST试听：[https://youtu.be/6OYfHs7OqK4](https://youtu.be/6OYfHs7OqK4)
 
 十年磨一剑好吧
 
+
+*****
+
+####  卢迪克  
+##### 1589#       发表于 2024-7-12 22:11
+
+<img src="https://img.saraba1st.com/forum/202407/12/221127fhzp6xqp3lhyu6i2.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240712_220937.jpg</strong> (14.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 22:11 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/221132lhuclunponkaupwz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240712_221017.jpg</strong> (23.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 22:11 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/221138xsfp7qs4hxgoy61s.jpg" referrerpolicy="no-referrer">
+
+<strong>39175B8A761A749DB95B94C53DD5941C.jpg</strong> (88.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 22:11 上传
+
+*****
+
+####  卢迪克  
+##### 1590#       发表于 2024-7-12 22:13
+
+第一个纹路最多，第三个只有中间有。
+

@@ -76,3 +76,14 @@
 这不挺好的吗，准将改改你那穿衣风格吧
 <img src="https://p.sda1.dev/18/bfc6b9b9f5dda46f92442a5cda890744/20eg0h5f1wkeqwicbkrd85xl6.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 1813#       发表于 2024-7-12 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65337744&amp;ptid=2178694" target="_blank">fengzhouyi 发表于 2024-6-22 19:24</a>
+
+罗盘总裁是卡嘉莉拜托基拉帮忙参与，拉克丝跟着基拉去任职总裁。小说原文里没有任何“都是你们逼的”的感情 ...</blockquote>
+小说原文里没有任何“都是你们逼的”的感情....小说原文是不是没有那么多和黄毛这么狗血无聊的台词<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">？
+

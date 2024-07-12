@@ -8284,3 +8284,22 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 等一个pico4之四人人围观吃不了辣的丰川祥子为了面子大吃一碗麻辣烫
 
+
+*****
+
+####  御幸一也  
+##### 19988#       发表于 2024-7-12 19:47
+
+收到惹<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 明天來掃 
+雖然PR卡的畫質那麼糟糕，可能看官網sample圖還比較好
+
+拜託武士道，治愈這套圖出點別的goods吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/194602ueejwav0fww4fjw0.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (144.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 19:46 上传
+

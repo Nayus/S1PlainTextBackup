@@ -2599,3 +2599,14 @@ CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</block
 CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</blockquote>
 相同命运 只是比你多了个小黑
 
+
+*****
+
+####  qixinno2  
+##### 13036#       发表于 2024-7-12 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565795&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-12 17:53</a>
+
+出的都是辣鸡  我兽你和去年泳装一个都没有 不如你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">氪金保底的兽尼 被萌新白嫖的强力限定五星秒了
+

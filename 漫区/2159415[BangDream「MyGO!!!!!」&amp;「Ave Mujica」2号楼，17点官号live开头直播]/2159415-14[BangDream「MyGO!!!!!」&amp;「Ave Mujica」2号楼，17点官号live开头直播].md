@@ -6901,3 +6901,53 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 算好了，导演不是王家卫，不然得气死
 
+
+*****
+
+####  罗克萨斯  
+##### 19862#       发表于 2024-7-12 10:29
+
+猫猫初三应该还能再长点吧，不然150也太惨了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  arachnid  
+##### 19863#       发表于 2024-7-12 10:29
+
+仔细一看全是名场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/63ab795354ffb9d993a372f5196a6571/1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19864#       发表于 2024-7-12 10:30
+
+如果独角兽真的和柿本有大纲上的争议，倒也不一定是坏事，毕竟独角兽看起来挺喜欢C团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/12/103026nhrhcrsrggzngrsl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240712102933.png</strong> (32.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:30 上传
+
+*****
+
+####  穗波殊  
+##### 19865#       发表于 2024-7-12 10:31
+
+鸡团接吻原画是真实的好还是魔幻的好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御景  
+##### 19866#       发表于 2024-7-12 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560397&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-7-12 10:31</a>
+
+鸡团接吻原画是真实的好还是魔幻的好</blockquote>
+有接吻就是满分
+

@@ -596,3 +596,11 @@ Towa爹妈不就是搞天文的
 
 托娃这个问题你们怪立绘不如怪服设，黎2建模出来我就觉得很丑了头巨大一个还收腰紧身裤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 1541#       发表于 2024-7-12 10:28
+
+托娃你让e画也就这样了，还原得算好的了，没有什么幼态肥肥脸
+

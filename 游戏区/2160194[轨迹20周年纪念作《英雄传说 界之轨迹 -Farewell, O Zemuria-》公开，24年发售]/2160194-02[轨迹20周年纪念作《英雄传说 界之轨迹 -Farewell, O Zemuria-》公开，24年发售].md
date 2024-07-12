@@ -519,3 +519,29 @@ Towa爹妈不就是搞天文的
 由手机上传
 2024-7-12 09:05 上传
 
+
+*****
+
+####  一步成诗  
+##### 1533#       发表于 2024-7-12 09:09
+
+黎2新图那么多塞几张旧图大家当然不计较啊，更何况确实是39相关，缇欧现在连个人影都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1534#       发表于 2024-7-12 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65559377&amp;ptid=2160194" target="_blank">kyonkoism 发表于 2024-7-12 08:58</a>
+
+看了眼专楼对黑兔立绘竟然还是夸的，震惊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">身边的黑兔厨看到这图嗷的一下疯了
+
+*****
+
+####  SuNR1sE364  
+##### 1535#       发表于 2024-7-12 09:17
+
+那肯定不能指望和闪的立绘比吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以e圣的水平画成这样可以了
+

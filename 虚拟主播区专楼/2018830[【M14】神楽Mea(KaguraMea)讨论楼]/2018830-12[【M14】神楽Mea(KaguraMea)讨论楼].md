@@ -506,3 +506,40 @@ mea给我附加无敌<img src="https://static.saraba1st.com/image/smiley/face201
 
 焯拉到最新大头照糊脸，还以为你麻终于在nico助攻下被盒出来了
 
+
+*****
+
+####  sino__unnko3  
+##### 16619#       发表于 2024-7-12 12:30
+
+书接上回，有评论认为上个月麻酱去韩国的两人行同伴事最近跟你咩发合唱的这位
+
+<img src="https://img.saraba1st.com/forum/202407/12/121428bsiizvzxszz3ygug.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1720757020374.png</strong> (613.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:14 上传
+
+看了下原推，日期不完全符合（这位是6号回来，你咩是4号回来）但都是双人行
+
+<img src="https://img.saraba1st.com/forum/202407/12/122022frm7aayutwavcwxv.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1720758015972.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:20 上传
+
+ins上面的合照，同伴的眼间距，长发，（脖子上的痣）都对不上，（再说了你咩会在公开平台露脸吗（）
+
+*****
+
+####  十九号大侠  
+##### 16620#       发表于 2024-7-12 12:49
+
+我还以为今年没参加 BW
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -7167,3 +7167,48 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 也符合独角兽说喜欢真实感、写mygo和mujica代入自己的经历，大概就是想搞体现自己内心的写实作品结果发现柿本搞出个魔法少女吧
 
+
+*****
+
+####  wonner_2012  
+##### 19886#       发表于 2024-7-12 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65561728&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-12 12:09</a>
+独角兽之前还能在推特用开玩笑的语气说想写海希写不了呢，说明写脚本部分的沟通反而没什么大问题，那问题就 ...</blockquote>
+只要剧本还是独角兽写的，情节本身肯定还是现实向的，只是mujica舞台表演这部分确实可以给类似“魔法少女”的演出很大的空间，这部分演出效果就是脚本以外staff决定的部分了
+
+我觉得pv里那个火中倒吊镜头应该就是舞台效果
+
+*****
+
+####  银酒监武  
+##### 19887#       发表于 2024-7-12 12:54
+
+上一个编剧和（动作）导演公开闹掰的是不是西游记后传<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  6030sylar  
+##### 19888#       发表于 2024-7-12 12:54
+
+<img src="https://img.saraba1st.com/forum/202407/12/125355radmiim22noii8bd.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (103.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:53 上传
+
+不玩看不懂
+
+*****
+
+####  MASKA-1  
+##### 19889#       发表于 2024-7-12 12:56
+
+绫奈应该把所有集的剧本都写好了吧，憋复刻轻拍就还行。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

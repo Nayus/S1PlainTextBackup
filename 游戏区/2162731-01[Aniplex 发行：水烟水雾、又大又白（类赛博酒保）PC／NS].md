@@ -665,3 +665,13 @@ needy girl + va11吧，有点土
 
 00年之后可能这群人身体不行抽不动了就慢慢销声匿迹了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yvev  
+##### 78#       发表于 2024-7-12 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65556239&amp;ptid=2162731" target="_blank">SugarPagoda 发表于 2024-7-11 20:25</a>
+没想到泥潭对这个游戏的接受程度竟然这么低 。这种末法时代的又一个侧面的氛围感不是很好吗，一群不正常的 ...</blockquote>
+就是看起来太像了导致一点兴趣都没有
+

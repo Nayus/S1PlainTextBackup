@@ -1344,3 +1344,14 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 其实给的视角黎恩背后更像门
 
+
+*****
+
+####  wang56438250  
+##### 1607#       发表于 2024-7-13 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569660&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-13 01:30</a>
+
+其实给的视角黎恩背后更像门</blockquote>
+因为这段是动补过场，还在打，黎恩那句台词都是动补的时候说的，因为没有对话框
+

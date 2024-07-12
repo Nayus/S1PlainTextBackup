@@ -8319,3 +8319,11 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 已經連續3個鬼圖MV了樓友哪來的自信<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  rikaren  
+##### 19991#       发表于 2024-7-12 20:21
+
+earth的mv应该是下个月月底出?
+

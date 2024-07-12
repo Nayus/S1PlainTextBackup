@@ -6996,3 +6996,16 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 说起来MYGO最后一集小剧场也提到了这是我们的坟墓。玲奈推也多次提到某部脚本是她的坟墓，还说很可能没人会注意到。二者不一定有关联。
 
+
+*****
+
+####  NODY  
+##### 19872#       发表于 2024-7-12 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560371&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-7-12 10:29</a>
+
+猫猫初三应该还能再长点吧，不然150也太惨了
+
+—— 来自 S1Fun</blockquote>
+土笔高二了还是150，最惨还是亚子初三到高二都是148<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

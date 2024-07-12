@@ -2552,3 +2552,39 @@ fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊
 
+
+*****
+
+####  alucardcz  
+##### 13032#       发表于 2024-7-12 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565465&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-12 17:26</a>
+
+CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不欧 不羡慕 萌新all in  只出了个烟雾镜礼装    
+
+不对 还是得欧羡慕
+
+
+*****
+
+####  qixinno2  
+##### 13033#       发表于 2024-7-12 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565691&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-12 17:44</a>
+
+不欧 不羡慕 萌新all in  只出了个烟雾镜礼装    
+
+不对 还是得欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如单抽出限定五星的狗萌新
+
+*****
+
+####  alucardcz  
+##### 13034#       发表于 2024-7-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565789&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-12 17:52</a>
+
+不如单抽出限定五星的狗萌新</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">出的都是辣鸡  我兽你和去年泳装一个都没有 不如你
+

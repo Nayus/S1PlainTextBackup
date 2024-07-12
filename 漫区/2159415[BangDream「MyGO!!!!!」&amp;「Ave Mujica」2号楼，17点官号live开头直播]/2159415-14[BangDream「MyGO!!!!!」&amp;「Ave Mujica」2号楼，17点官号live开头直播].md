@@ -8252,3 +8252,35 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 团宠变团欺这一集留到明天再演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19985#       发表于 2024-7-12 19:27
+
+ 本帖最后由 PDQ4 于 2024-7-12 19:30 编辑 
+
+这事还是留着Live完再干吧，别辣出事来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+昨天我就说高尾不能吃辣，很勉强的样子唯唯诺诺跟着其他四个人举手，非常可爱，结果没人注意到<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+这样勉强嘴硬的特质一定可以逆输入到动画里吧，想看被队友调戏<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19986#       发表于 2024-7-12 19:33
+
+逆輸入一下我要祥子也吃不了辣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+不過海鈴不知道為什麼就是一臉很能吃辣的感覺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19987#       发表于 2024-7-12 19:33
+
+啊大家都没注意到吗，我以为都知道所以都没提只是自己笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等一个pico4之四人人围观吃不了辣的丰川祥子为了面子大吃一碗麻辣烫
+

@@ -7861,3 +7861,150 @@ syl
 
 我觉得鸟叔要不换个词吧，我记得看娱乐圈很喜欢这一套，别用诽谤造谣了，侵犯名誉权更适合你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 19950#       发表于 2024-7-12 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565066&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:55</a>
+布谷鸟在厕所拉屎太臭都熏到隔壁人了
+
+出现的时候，隔壁人纷纷说这就是那个拉屎很臭的人
+
+布谷鸟跳出来大声说 ...</blockquote>
+人身攻击怎么样，正好就是你现在做的事
+看来你确实不怎么在乎讨论环境，我都承诺闭嘴了还要挑衅
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19951#       发表于 2024-7-12 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565085&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:57</a>
+
+人身攻击怎么样，正好就是你现在做的事
+
+看来你确实不怎么在乎讨论环境，我都承诺闭嘴了还要挑衅</blockquote>
+我怎么人身攻击了，把你干的事复述了一遍就算攻击
+
+鸟叔今天真的好破防啊，我还以为你天天说屁话完全不在乎呢
+
+你的承诺闭嘴是指又想小号搬其他cp，过个半年继续冰清玉洁岁月史书吗
+
+我还真是铁暗恋失格了，没有真的记你的小本本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 19952#       发表于 2024-7-12 17:00
+
+ 本帖最后由 Aendst 于 2024-7-12 17:03 编辑 
+
+群体暴力指的是在昨天之前就已经-380战斗力了吗，说实话我还第一次看到负这么多的，长见识了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+可能这就是版宠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一来就搅混水，影响正常讨论，唉唉，没关系，我学会屏蔽了
+
+*****
+
+####  第七軍伐戎処  
+##### 19953#       发表于 2024-7-12 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565108&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:59</a>
+我怎么人身攻击了，把你干的事复述了一遍就算攻击
+
+鸟叔今天真的好破防啊，我还以为你天天说屁话完全不在 ...</blockquote>
+我主推素睦所以就不能搬其他CP图，这是你立的法吗？什么时候开始的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  [皆神孝介]  
+##### 19954#       发表于 2024-7-12 17:01
+
+楼里这话题怎么一下子就混沌起来了，看不明白，这是百合同好的坛友们在战斗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 19955#       发表于 2024-7-12 17:02
+
+感觉像是cp对家之间的战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 19956#       发表于 2024-7-12 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565118&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 17:00</a>
+群体暴力指的是在昨天之前就已经-380战斗力了吗，说实话我还第一次看到负这么多的，长见识了
+
+可能这就是版 ...</blockquote>
+屁大点事，蒜楼当时还有露面就扣，活生生扣到-1000的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和他的前辈比哪到哪
+
+*****
+
+####  Aendst  
+##### 19957#       发表于 2024-7-12 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565157&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-12 17:03</a>
+
+屁大点事，蒜楼当时还有露面就扣，活生生扣到-1000的呢和他的前辈比哪到哪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是蒜人的硬实力吗，这下惊诧了
+
+*****
+
+####  日野下花帆  
+##### 19958#       发表于 2024-7-12 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这边的友友不要见怪多怪了，上个月gbc的时候他就干过拿自己不真情实感的cp来攻击“美帝”（方式就是只搬他感兴趣的图哦，而且还不是他画的）。如果一个否认作品精神和主人公的人能真情实感磕主人公的cp，想想也很不可思议吧
+而且再说了这边都是对鸡真情实感的企划厨，但是很明显鸟叔不属于这类人。
+这种满脑子只把百合和作品当武器的人就别期待他真情实感了，他唯一真情实感的就是自己爱的那部分，而其他部分都是可以拿去攻击的，反正我搬图无罪嘛，就算是我不喜欢的cp也是我喜欢的作品和百合呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Alicest| + 1||
+
+查看全部评分
+
+*****
+
+####  Alicest  
+##### 19959#       发表于 2024-7-12 17:05
+
+顺便一提鸡现在到上海了，茜姨真高啊
+
+*****
+
+####  PDQ4  
+##### 19960#       发表于 2024-7-12 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565123&amp;ptid=2159415" target="_blank">第七軍伐戎処 发表于 2024-7-12 17:00</a>
+
+我主推素睦所以就不能搬其他CP图，这是你立的法吗？什么时候开始的
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+鸟叔又开始混淆了，搬cp图是为了叠甲不是你自己说的
+
+戴面具就是为了装杂食不会以为别人看不出来吧，真以为别人都是傻子
+
+你吃你的cp别拿其他cp叠甲谁理你，百综楼你搬图我什么时候骂你了，顶多是cp大汴京和cp战争
+
+这都企划楼了，把别的cp当甲使不许cp厨记仇你，你立的法？
+
+以及最后，你可以继续搬图，毕竟你闭嘴不回复别人真拿你没办法，连举报都没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

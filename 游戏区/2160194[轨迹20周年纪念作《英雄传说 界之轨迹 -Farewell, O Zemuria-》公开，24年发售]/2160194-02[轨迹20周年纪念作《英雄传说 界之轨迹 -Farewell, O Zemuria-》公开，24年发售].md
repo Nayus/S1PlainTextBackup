@@ -725,3 +725,32 @@ e氏四兄弟
 你法内部2d美术已经快死光了，村上不画就没人画，我估摸着村上也快到退休的年纪了，骗不到新的壮丁就只会越 ...</blockquote>
 enami年龄比近藤社长还大都没退休，那村上更没那么快退休了，还能画得动。她只是去负责东京迷城新作而已，而且看预告明显卖相比界轨强太多了，早早就做好了官网，提前一年多就放出初版预告。大概率是法社后续的新台柱。我预感销量肯定会比界轨或伊苏10高好几倍
 
+
+*****
+
+####  ravend233  
+##### 1553#       发表于 2024-7-12 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">迷城如果宣发到位而且有一定社区讨论度和关注度的话，考虑明年好像JRPG不少大IP都要开天窗，运气好冲个七八万的实体应该是有机会的，几倍YSX/黎轨那得15-20W了，那可是闪轨时期才达到过的成绩
+
+当然要是发售日撞车什么MHW，GTA6就不好说了（
+
+*****
+
+####  一步成诗  
+##### 1554#       发表于 2024-7-12 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564222&amp;ptid=2160194" target="_blank">zhuhh 发表于 2024-7-12 15:51</a>
+
+enami年龄比近藤社长还大都没退休，那村上更没那么快退休了，还能画得动。她只是去负责东京迷城新作而已 ...</blockquote>
+enami自己单干怎么能和正经在公司的比，再说村上那产量感觉把精力都透支完了，就算不退休她也不会再负责轨迹了，还有一个大篇章才完结，谁画？
+
+*****
+
+####  KevinGraham  
+##### 1555#       发表于 2024-7-12 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564320&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-12 15:58</a>
+迷城如果宣发到位而且有一定社区讨论度和关注度的话，考虑明年好像JRPG不少大IP都要开天窗，运气好冲个七八 ...</blockquote>
+falcom发售日雷打不动，那不就是看友商会不会在附近发售<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

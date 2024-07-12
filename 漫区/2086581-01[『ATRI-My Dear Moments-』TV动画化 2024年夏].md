@@ -222,3 +222,11 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Piano-Forest  
+##### 94#         楼主| 发表于 2024-7-13 00:10
+
+PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
+

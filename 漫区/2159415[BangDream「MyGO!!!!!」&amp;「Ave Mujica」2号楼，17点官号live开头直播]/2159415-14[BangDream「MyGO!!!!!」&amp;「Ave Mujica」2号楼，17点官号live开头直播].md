@@ -6855,3 +6855,49 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 高中生，还有发育空间吧，都给我再长至少5cm啊
 
+
+*****
+
+####  御幸一也  
+##### 19857#       发表于 2024-7-12 10:16
+
+女生在高中不太長了吧，來一個遺老告訴我老團有沒有長高<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19858#       发表于 2024-7-12 10:16
+
+你邦只有真帅哥才舍得给一米七，比如牛郎组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19859#       发表于 2024-7-12 10:17
+
+矮点也没什么，比例好就不影响气场，看看我们的150主唱，就问昨天的官方单人照帅不帅吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19860#       发表于 2024-7-12 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560213&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 10:16</a>
+
+女生在高中不太長了吧，來一個遺老告訴我老團有沒有長高</blockquote>
+不长，开服还是初中生的亚子身高三年没变过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 19861#       发表于 2024-7-12 10:24
+
+绫奈这事不就经典的<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+编剧：导演你怎么不按我剧本拍
+
+导演：我才是导演，怎么拍用不着你管
+
+算好了，导演不是王家卫，不然得气死
+

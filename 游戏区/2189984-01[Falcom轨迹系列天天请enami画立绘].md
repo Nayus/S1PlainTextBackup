@@ -1481,3 +1481,13 @@ e圣的真爱是星之海洋，产能质量都在线
 不会啊e孝子最爱的e圣只会量产一堆中年男人和妇女，有画技但没有美商是这样的，初音未来都能画出姨味来再吹只能顺从了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/c42fd98d67376ffcceabb7acbf8b2873/CMP_20240712100952079.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dddty  
+##### 141#       发表于 2024-7-12 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难崩，falcom要是好好搞还会这样吗？楼里一个比一个会做梦，真以为自己是CY还是SE随便挑人啊。
+
+我建议还是楼里真爱粉要不苦练画技去给法老控打黑工，不收钱不就大圆满了。
+

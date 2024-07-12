@@ -8411,3 +8411,13 @@ earth的mv应该是下个月月底出?
 
 求求你了WSD，復刻一下角色不可崩鬼屋篇吧
 
+
+*****
+
+####  Libartas  
+##### 19999#       发表于 2024-7-12 23:55
+
+问一下便乘人之歌歌词真是独角兽写的吗？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1215,3 +1215,14 @@ OST试听：[https://youtu.be/6OYfHs7OqK4](https://youtu.be/6OYfHs7OqK4)
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  wang56438250  
+##### 1596#       发表于 2024-7-12 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65567580&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-7-12 21:14</a>
+
+黎恩线看来主线完全就是八叶黑神恩怨局，就是不知道怎么样跟太空计划扯上关系 ...</blockquote>
+他是唯一上过宇宙的人，这不就扯上了
+

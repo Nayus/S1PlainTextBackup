@@ -6732,3 +6732,30 @@ D5J生放没看过，我觉得和ins直播状态挺像的，很放松，而且�
 
 不是 細看夢以這個衣服怎麼是這種構造<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer"> 好色哦
 
+
+*****
+
+####  御幸一也  
+##### 19843#       发表于 2024-7-12 09:36
+
+aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊怎麼比我還矮啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 19844#       发表于 2024-7-12 09:44
+
+前面那个说是因为想多写团内减少c团部分的猜测感觉挺好的，c团从创立到团建到第一次live到解散故事已经挺完整了，（除了必要的细节补充）还多写的话感觉鸡狗这一代企划真要成三个团的事了
+
+然而十个声优在邦tv的表现好像并没觉得c团有那么重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzm96816  
+##### 19845#       发表于 2024-7-12 09:44
+
+按楼里的猜测就是鸡的动画 更强调魔幻的悬疑和 鸡团内的剧情，剩下很多都到了垃圾桶。
+
+明年出了再看看。做个标记先
+

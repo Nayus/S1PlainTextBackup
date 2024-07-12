@@ -7257,3 +7257,58 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 这个官方身高算不算常服穿鞋的，如果是净身高那还有操作空间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19895#       发表于 2024-7-12 13:39
+
+虽然这个身高在预料之内但还是太矮了
+
+
+*****
+
+####  御幸一也  
+##### 19896#       发表于 2024-7-12 13:43
+
+好崩潰，看一眼推特傳到日本人那了她們居然都在說喵夢164好高<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 19897#       发表于 2024-7-12 13:44
+
+150-160也算是cv常见区间吧，隔壁鲤鱼167都显得特别高一只<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19898#       发表于 2024-7-12 13:45
+
+日本人没救了，喵梦这个身材170也不过分
+
+怎么感觉鸡又要身高低地了
+
+*****
+
+####  NODY  
+##### 19899#       发表于 2024-7-12 13:45
+
+我觉得还好，你邦真正的高个子角色看立绘和模型还是很明显的，实际出入和我看立绘的猜想差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前我就说过你邦只有牛郎型角色才能超过165所以喵梦最高不会超165，果不其然喵梦就被卡在165以下了
+
+*****
+
+####  skives  
+##### 19900#       发表于 2024-7-12 13:46
+
+喵梦比祥子高一头怎么可能只有164<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19901#       发表于 2024-7-12 13:47
+
+建議把高跟鞋納入身高範圍內，我們喵夢算上高跟鞋也要超過170公分！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

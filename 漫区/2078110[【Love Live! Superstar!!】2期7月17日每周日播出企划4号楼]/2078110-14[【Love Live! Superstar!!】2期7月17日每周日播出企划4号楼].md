@@ -177,3 +177,13 @@ day 1不错
 
 2024-7-12 20:36 上传
 
+
+*****
+
+####  starring  
+##### 20529#       发表于 2024-7-12 21:53
+
+day1这首歌就不适合太多人唱，K组唱得真不错
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

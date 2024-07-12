@@ -103,3 +103,11 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 两个池子都扔了十连当尊敬了，要不是想着后面就是半周年还挺想强捞一下的
 
+
+*****
+
+####  madcow  
+##### 1119#       发表于 2024-7-12 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">ST假美国人衣服都只是ST真美国人换个色（
+

@@ -7312,3 +7312,37 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 建議把高跟鞋納入身高範圍內，我們喵夢算上高跟鞋也要超過170公分！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19902#       发表于 2024-7-12 13:48
+
+所以我要猜一个喵梦不是牛郎而是搞笑役<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 19903#       发表于 2024-7-12 13:50
+
+海铃穿个厚底低跟也有162，说得过去
+矮的有睦祥就行了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 19904#       发表于 2024-7-12 13:51
+
+初华作为常服平底鞋选手如果能再高一点就好了
+
+
+*****
+
+####  紫吹兰  
+##### 19905#         楼主| 发表于 2024-7-12 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65562388&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-12 13:04</a>
+
+当时天文台放椅子的时候</blockquote>
+氛围到了都没亲，这不是说明我们的黄毛一点都不轻浮<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+

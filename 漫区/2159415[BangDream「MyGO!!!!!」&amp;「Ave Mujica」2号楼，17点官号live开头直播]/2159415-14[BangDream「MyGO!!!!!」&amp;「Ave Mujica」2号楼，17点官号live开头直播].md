@@ -7440,3 +7440,11 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 其他动画片相关就更抽象了，不过与你邦无关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19914#       发表于 2024-7-12 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">woc好抽象，小号叠甲有点疑似太闲了
+

@@ -60,3 +60,25 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  yanglian72  
+##### 4801#       发表于 2024-7-12 15:51
+
+这次还真是特殊祭典
+
+
+*****
+
+####  KBAC  
+##### 4802#       发表于 2024-7-12 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564127&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-7-12 15:44</a>
+是特殊祭典么？不是的话就不参加了，正好目前还没投票，下次祭典去港服
+
+—— 来自 S1Fun ...</blockquote>
+这次是，而且是前作没有本次新加的夏季祭典。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

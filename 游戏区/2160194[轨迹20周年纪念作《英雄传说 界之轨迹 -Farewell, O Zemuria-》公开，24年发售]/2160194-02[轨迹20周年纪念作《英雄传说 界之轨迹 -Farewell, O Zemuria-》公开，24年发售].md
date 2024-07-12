@@ -1355,3 +1355,13 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 其实给的视角黎恩背后更像门</blockquote>
 因为这段是动补过场，还在打，黎恩那句台词都是动补的时候说的，因为没有对话框
 
+
+*****
+
+####  Aeons  
+##### 1608#       发表于 2024-7-13 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569830&amp;ptid=2160194" target="_blank">wang56438250 发表于 2024-7-13 02:02</a>
+因为这段是动补过场，还在打，黎恩那句台词都是动补的时候说的，因为没有对话框 ...</blockquote>
+我是说包括miniost那张，黎恩背后反而像门
+

@@ -1298,3 +1298,23 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 黎恩本人是没上过的也没那个记忆，有的话直接问他末日了。
 
+
+*****
+
+####  ravend233  
+##### 1602#       发表于 2024-7-13 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569377&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-7-13 00:38</a>
+
+这个黎恩没上过太空，但硬扯也不是不能扯上，不过我更好奇黎恩克洛应该是共和国请过来的，而共和国雇佣了斑 ...</blockquote>
+里恩克洛是金凯德接待的，除非金凯德不和总统一条船了，这俩按理说这个非官方邀请就是总统的个人邀请
+
+而且对决画面看起来是里恩在守卫什么遗迹的大门，要么是斑鸠从总统这边跳船了要么是邀请里爷的另有其人吧
+
+*****
+
+####  ravend233  
+##### 1603#       发表于 2024-7-13 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

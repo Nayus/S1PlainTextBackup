@@ -7466,3 +7466,35 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 [https://www.bilibili.com/video/BV18E4m1R7ii](https://www.bilibili.com/video/BV18E4m1R7ii)
 
+
+*****
+
+####  T@L  
+##### 19916#       发表于 2024-7-12 16:12
+
+成年女性164挺正常的吧，而且我記得mmk也是164，這是什麼日本最近流行的成女身高嗎<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 19917#       发表于 2024-7-12 16:14
+
+ 本帖最后由 -LYRE- 于 2024-7-12 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-12 15:13</a>
+这个狂被打负分的是谁啊</blockquote>
+去隔壁看了眼，果然还是这副德行，一破防就拉出一溜小号追着人扣鹅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+楼上说保底三四个小号还说少了，得再翻一倍，保底六七个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/5b3204f1d5de2f606078f80bfad87ada/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 19918#       发表于 2024-7-12 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-12 15:13</a>
+这个狂被打负分的是谁啊</blockquote>
+小号众多，自称河豚会脑男男生子发bg的知名抽象人，红白那边就不提了，有各种“惊喜”发言
+鸡狗这边喜欢拿对家cp套盾，没事玩爱玩抽象
+
+syl
+原来是蒜人啊，那不奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

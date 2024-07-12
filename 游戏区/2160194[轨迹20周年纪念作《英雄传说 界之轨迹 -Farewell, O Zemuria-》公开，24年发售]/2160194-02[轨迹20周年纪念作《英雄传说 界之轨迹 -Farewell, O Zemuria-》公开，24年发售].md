@@ -754,3 +754,35 @@ enami自己单干怎么能和正经在公司的比，再说村上那产量感觉
 迷城如果宣发到位而且有一定社区讨论度和关注度的话，考虑明年好像JRPG不少大IP都要开天窗，运气好冲个七八 ...</blockquote>
 falcom发售日雷打不动，那不就是看友商会不会在附近发售<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1556#       发表于 2024-7-12 16:08
+
+至于东迷2销量我也看好会比界轨伊苏10高，但好几倍太夸张了，现在整个市场都不太卖得动，哪来的自信高好几倍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1557#       发表于 2024-7-12 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564395&amp;ptid=2160194" target="_blank">KevinGraham 发表于 2024-7-12 16:04</a>
+
+falcom发售日雷打不动，那不就是看友商会不会在附近发售</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是这样的，如果撞车个什么MHW，我不好说（）
+
+*****
+
+####  新世界的派蒙  
+##### 1558#       发表于 2024-7-12 16:10
+
+现在的日本市场你还想卖几倍...除非复刻隔壁莱莎的奇迹，可能么？再来一次东迷8万香槟，就是最好的梦了
+
+*****
+
+####  smdzh2  
+##### 1559#       发表于 2024-7-12 16:12
+
+赌上社运，京轨能否重现闪2的销售奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

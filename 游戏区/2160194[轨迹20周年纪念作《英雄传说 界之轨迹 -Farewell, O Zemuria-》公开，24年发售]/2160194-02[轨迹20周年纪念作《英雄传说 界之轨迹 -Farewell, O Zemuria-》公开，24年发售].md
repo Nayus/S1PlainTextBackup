@@ -695,3 +695,23 @@ e氏四兄弟
 黑兔一个闪2的反派中boss，后续居然捧这么高，所以大家还是不够支持我黎1的金兔..... ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">黎1绷带妹可爱的捏
 
+
+*****
+
+####  一步成诗  
+##### 1550#       发表于 2024-7-12 15:26
+
+你法内部2d美术已经快死光了，村上不画就没人画，我估摸着村上也快到退休的年纪了，骗不到新的壮丁就只会越来越差
+
+
+*****
+
+####  ravend233  
+##### 1551#       发表于 2024-7-12 15:33
+
+服设，概念设计，场景设计几乎全面暴毙，YSX一堆甚至是主线的地图场景毫无设计几乎可以说明是连个画概念画的都没了，只能说内部2D美术要么是不干了要么是润完了
+
+现在问题已经不是有没有人来画各种摆在前台的立绘这么简单的问题了，更大的问题是根本没有设计了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年闪轨最舒服的时候往死里薅村上这批人有多舒服，现在就有多狼狈，活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

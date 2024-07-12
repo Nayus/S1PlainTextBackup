@@ -7397,3 +7397,46 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 这个狂被打负分的是谁啊
 
+
+*****
+
+####  IWS2000  
+##### 19911#       发表于 2024-7-12 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-12 15:13</a>
+这个狂被打负分的是谁啊</blockquote>
+布谷鸟，知名蒜人，搬过红白的bg图然后换个号当红白厨，总之就是很抽象就是了
+
+*****
+
+####  御幸一也  
+##### 19912#       发表于 2024-7-12 15:28
+
+ 本帖最后由 御幸一也 于 2024-7-12 15:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-12 15:13</a>
+
+这个狂被打负分的是谁啊</blockquote>
+請看他經典名言
+
+<img src="https://img.saraba1st.com/forum/202407/12/153013y3epx3bepebh0fre.png" referrerpolicy="no-referrer">
+
+<strong>image (1).png</strong> (134.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 15:30 上传
+
+*****
+
+####  PDQ4  
+##### 19913#       发表于 2024-7-12 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563783&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-12 15:13</a>
+
+这个狂被打负分的是谁啊</blockquote>
+漏油如果不看隔壁百综楼可能不太懂
+
+他坚定素睦官配明年必赢党，阴湿过包含美帝在内的其他cp，说明年要青蒜，但老是搬其他cp图叠甲
+
+其他动画片相关就更抽象了，不过与你邦无关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

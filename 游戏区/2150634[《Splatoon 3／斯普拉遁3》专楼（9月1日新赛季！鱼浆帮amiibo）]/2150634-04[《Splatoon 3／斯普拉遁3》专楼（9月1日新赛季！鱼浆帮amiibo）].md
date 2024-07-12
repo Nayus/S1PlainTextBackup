@@ -40,3 +40,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 4799#       发表于 2024-7-12 15:33
+
+比起在意喷3不如放眼未来相信喷4会更好（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

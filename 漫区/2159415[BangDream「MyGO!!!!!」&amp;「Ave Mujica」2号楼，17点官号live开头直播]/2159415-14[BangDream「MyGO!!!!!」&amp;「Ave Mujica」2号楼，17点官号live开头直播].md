@@ -8189,3 +8189,11 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 有点希望她们发图的时候谨慎点，别被特到酒店了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 19979#       发表于 2024-7-12 18:53
+
+应该会去海底捞的吧，虽然有很多更好吃的火锅店但是大概海底捞会比较适合一点？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

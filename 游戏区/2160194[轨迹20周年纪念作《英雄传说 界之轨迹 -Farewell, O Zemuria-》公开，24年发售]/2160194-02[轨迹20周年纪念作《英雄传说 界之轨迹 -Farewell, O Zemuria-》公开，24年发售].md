@@ -1376,3 +1376,13 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 我是说包括miniost那张，黎恩背后反而像门</blockquote>
 我说了啊，因为两人动补在打啊，肯定动来动去的啊
 
+
+*****
+
+####  Aeons  
+##### 1610#       发表于 2024-7-13 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569931&amp;ptid=2160194" target="_blank">wang56438250 发表于 2024-7-13 02:23</a>
+我说了啊，因为两人动补在打啊，肯定动来动去的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">守门哪怕对打一般也不会彻底掉转方向吧
+

@@ -161,3 +161,19 @@ day 1不错
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  ViyViy  
+##### 20528#       发表于 2024-7-12 20:36
+
+所以这东西到底有没有卖出去哪怕一尊？
+
+<img src="https://img.saraba1st.com/forum/202407/12/203613ya449od95m9067jl.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240712203554.jpg</strong> (34.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 20:36 上传
+

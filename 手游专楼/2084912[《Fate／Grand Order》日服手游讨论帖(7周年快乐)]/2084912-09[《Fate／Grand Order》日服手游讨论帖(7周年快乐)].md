@@ -2544,3 +2544,11 @@ fgo 的活動一向都有主線要求，就最怕是否要完成1~2個所長塔
 付费单抽出货了，算是将斯卡哈没出货的概率给补回来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 
 
+
+*****
+
+####  qixinno2  
+##### 13031#       发表于 2024-7-12 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊
+

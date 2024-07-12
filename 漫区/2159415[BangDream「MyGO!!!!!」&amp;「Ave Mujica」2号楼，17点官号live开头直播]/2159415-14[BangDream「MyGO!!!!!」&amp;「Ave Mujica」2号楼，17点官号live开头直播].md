@@ -8109,3 +8109,30 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 这么快到上海了，那今晚是不是能吃顿好的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">期待食物返图
 
+
+*****
+
+####  相坂君  
+##### 19970#       发表于 2024-7-12 17:18
+
+我看人说，米泽和梦以点头回礼，高尾给接机人鞠躬了，还好氛围没有太差，大家都很收敛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yevvet  
+##### 19971#       发表于 2024-7-12 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564582&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:16</a>
+你说mmk和喵梦一个身高有点难评了，单看外表我觉得应该少说和rupa一个身高 ...</blockquote>
+喵梦常服就是高跟鞋，所以看着很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海铃也是，成天穿个厚底鞋，动画里看着可高了。
+
+*****
+
+####  yevvet  
+##### 19972#       发表于 2024-7-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564535&amp;ptid=2159415" target="_blank">T@L 发表于 2024-7-12 16:12</a>
+成年女性164挺正常的吧，而且我記得mmk也是164，這是什麼日本最近流行的成女身高嗎 ...</blockquote>
+在日本164就等于在中国168。女神身高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

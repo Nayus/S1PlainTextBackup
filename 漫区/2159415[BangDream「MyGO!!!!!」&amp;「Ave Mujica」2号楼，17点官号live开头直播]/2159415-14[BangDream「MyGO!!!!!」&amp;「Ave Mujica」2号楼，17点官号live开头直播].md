@@ -8421,3 +8421,11 @@ earth的mv应该是下个月月底出?
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Aloereed  
+##### 20000#       发表于 2024-7-13 00:33
+
+还真是zsbd...
+

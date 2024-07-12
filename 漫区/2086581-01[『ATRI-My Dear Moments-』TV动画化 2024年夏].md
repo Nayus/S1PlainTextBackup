@@ -230,3 +230,40 @@ ATRI原作是没提过舞台具体位置的，动画明确以铫子市为舞台 
 
 PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
 
+
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2024-7-13 00:17
+
+┼─
+
+#ATRI -My Dear Moments-
+
+ ✨️7/13放送開始記念✨️
+
+　　 応援📢イラスト
+
+    　　　   　　     　      ─┼
+
+·総作画監督【林夏菜】
+
+·総作画監督【鈴木勇】
+
+·総作画監督【奥田淳】
+
+·作画監督【小川真由美】
+
+·作画監督【猪股雅美】
+
+·作画監督【馬詠喬】
+
+·作画【牧野竜一】
+<img src="https://p.sda1.dev/18/8ccd601f299fe7b6ef3011859bae7656/20240713_000935.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/fde1c52575d68b7d8e0e6ef03e669e7f/20240713_000940.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/70d2385aedef60392ae701c128b1239d/20240713_000945.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1ccac15752a05888e7081271bfa3c1f2/20240713_000952.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/108e74b550cf1e1c00c32a9345c865e4/20240713_001005.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f40758d7b481f5e0d588abac05b24148/20240713_001010.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/17409bc45d75291f736e93b567444874/20240713_001015.jpg" referrerpolicy="no-referrer">
+

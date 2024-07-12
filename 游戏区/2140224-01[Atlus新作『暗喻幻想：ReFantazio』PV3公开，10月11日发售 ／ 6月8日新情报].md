@@ -62,3 +62,13 @@ bw有这个游戏的试玩。
 
 这调查问卷，A不会是认为预约和热度不行的主要原因是加强版闹麻了而并非游戏本身有问题吧
 
+
+*****
+
+####  AeonsTorn  
+##### 547#       发表于 2024-7-13 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65567805&amp;ptid=2140224" target="_blank">被击坠王 发表于 2024-7-12 21:38</a>
+这调查问卷，A不会是认为预约和热度不行的主要原因是加强版闹麻了而并非游戏本身有问题吧 ...</blockquote>
+我倒觉得，96个问题中只有两个涉及到加强版或dlc说明他们也没把这太当回事
+

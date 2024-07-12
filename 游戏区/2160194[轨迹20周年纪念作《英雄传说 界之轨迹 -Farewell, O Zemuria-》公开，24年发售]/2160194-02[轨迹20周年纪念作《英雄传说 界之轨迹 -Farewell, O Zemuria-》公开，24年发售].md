@@ -810,3 +810,15 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 至于东迷2销量我也看好会比界轨伊苏10高，但好几倍太夸张了，现在整个市场都不太卖得动，哪来的自信高好几 ...</blockquote>
 要是能把欧美市场一起拉进来同步发售，我认为还是能达到的，只靠亚洲市场的话确实勉强。偏偏欧美版发售太慢了，等他们能玩上游戏热度都不及刚发售时了
 
+
+*****
+
+####  ravend233  
+##### 1562#       发表于 2024-7-12 16:41
+
+能同步英文版，加上中韩区和日区的话，算上所有的销量应该还是有20-30W
+
+不过问题是YSX你算上同步发售的亚洲版以及数字版可能也有接近15-20W()<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是比黎轨高一倍应该是有的（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

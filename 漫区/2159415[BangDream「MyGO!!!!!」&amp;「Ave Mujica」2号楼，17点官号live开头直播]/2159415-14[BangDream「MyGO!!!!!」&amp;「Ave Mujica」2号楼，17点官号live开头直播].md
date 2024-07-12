@@ -7725,3 +7725,53 @@ syl
 
 你都不尊重cp，指望cp厨尊重你？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 19939#       发表于 2024-7-12 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564832&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:36</a>
+你恨不恨我不知道，你把我cp当工具这件事就足够让我恨你了，其他旧仇不牵扯邦楼就不提了
+
+你都不尊重cp，指 ...</blockquote>
+你说当工具就当工具？我也买了MyGOBD买了谷买了碟搬了半年多同人图都是好好的，到你这一句我把你CP当工具我还不能反驳两句
+本来也没说过什么话就搬图，连聊天都只在百综聊，非要在这边挂城墙，群体暴力很有意思？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  PDQ4  
+##### 19940#       发表于 2024-7-12 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564871&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:39</a>
+
+你说当工具就当工具？我也买了MyGOBD买了谷买了碟搬了半年多同人图都是好好的，到你这一句我把你CP当工具 ...</blockquote>
+你在隔壁暴露本性怪别人？
+
+怎么难道我按着你敲键盘的，还群体暴力，虽然你发表若只言论冒犯别人，但是别人因为你若只挂你就是暴力
+
+太冰清玉洁了鸟叔，这么不喜欢为自己说过的话负责吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19941#       发表于 2024-7-12 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564800&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 16:34</a>
+原來你是蒜人，請不要和我說話。</blockquote>
+还有，你说讨厌我的原因是他没在这边倒黑泥 我倒了，问题是你那个截图也是我在百综发的啊，2023/12/10我在这里说过什么很好查的，是吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  T@L  
+##### 19942#       发表于 2024-7-12 16:44
+
+<blockquote>PDQ4 发表于 2024-7-12 16:34
+想起来你邦伊芙这个混血模特也就163，身高有点没救了</blockquote>
+在泥邦168或以上的都是帥氣系角色了，這點上rupa也一樣，喵夢和伊芙這些在泥邦也就是偏高那類<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要是那天邦邦出個一米八九的可愛系角色那才算變天了
+

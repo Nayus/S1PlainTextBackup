@@ -625,3 +625,12 @@ Towa爹妈不就是搞天文的
 旧七初期金灰蓝白加起来打不过橙的
 这样一改，旧校舍洗面奶之后，二少副班没打起来，金橙先杠上了
 
+
+*****
+
+####  smdzh2  
+##### 1544#       发表于 2024-7-12 14:36
+
+e氏四兄弟
+<img src="https://p.sda1.dev/18/cca9a9c816351e49ce6000254a0dff5b/image.jpg" referrerpolicy="no-referrer">
+

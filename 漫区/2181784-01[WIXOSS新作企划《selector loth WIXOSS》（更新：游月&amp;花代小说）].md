@@ -531,3 +531,21 @@ https://www.takaratomy.co.jp/pro ... ectorlothwixoss.php
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">woc,第一话就玩这么大啊
 
+
+*****
+
+####  灵魂收割机  
+##### 44#         楼主| 发表于 2024-7-12 14:08
+
+千依&amp;金（こがね）篇小说：[https://www.takaratomy.co.jp/products/wixoss/novel/novel_240705](https://www.takaratomy.co.jp/products/wixoss/novel/novel_240705)
+
+<img src="https://img.saraba1st.com/forum/202407/12/140024hrczjtrom9t7auar.jpg" referrerpolicy="no-referrer">
+
+<strong>image_05.jpg</strong> (183.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 14:00 上传
+
+艾尔德拉（エルドラ，Eldora）本名首次公开，为“こがね（金）”。日本人是真喜欢黄金国啊<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer"> 
+

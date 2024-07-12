@@ -7370,3 +7370,14 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 最矮的猫猫和星野爱一样高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 19908#       发表于 2024-7-12 14:11
+
+<img src="https://p.sda1.dev/18/c8fe6739b2806d8d44eb7acd3f5a985e/image.jpg" referrerpolicy="no-referrer">
+[Kourui_07](https://x.com/Kourui_07/status/1811641477396930988?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

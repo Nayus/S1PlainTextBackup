@@ -466,3 +466,16 @@ Towa爹妈不就是搞天文的
 
 金发女路人还会出现吗
 
+
+*****
+
+####  ravend233  
+##### 1529#       发表于 2024-7-12 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65559213&amp;ptid=2160194" target="_blank">夜月紫耀 发表于 2024-7-12 08:36</a>
+
+金发女路人还会出现吗</blockquote>
+反正立绘肯定没了，大概率是没了
+
+最好的情况是混个NPC，起码有个新建模，其次就是混个事件插画，最次就是台词提两句，查无此人
+

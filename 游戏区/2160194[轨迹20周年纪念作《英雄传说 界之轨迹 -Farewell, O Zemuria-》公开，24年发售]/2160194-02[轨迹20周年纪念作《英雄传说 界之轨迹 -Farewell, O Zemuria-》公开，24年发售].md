@@ -1113,3 +1113,18 @@ OST试听：[https://youtu.be/6OYfHs7OqK4](https://youtu.be/6OYfHs7OqK4)
 
 虽然图歌不一定有关，但第三首应该全是结社人吧
 
+
+*****
+
+####  a2042312  
+##### 1587#       发表于 2024-7-12 22:05
+
+葱头咋还有有主题曲，待遇这么高<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1588#       发表于 2024-7-12 22:05
+
+十年磨一剑好吧
+

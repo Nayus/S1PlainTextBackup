@@ -187,3 +187,11 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黒烨  
+##### 20530#       发表于 2024-7-13 00:34
+
+嘶，不太懂有些人破音的定义是什么
+

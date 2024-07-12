@@ -1256,3 +1256,45 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列已经出现了,现
 
 你看近藤说的话，不止有关系，关系还挺大
 
+
+*****
+
+####  hkguty  
+##### 1600#       发表于 2024-7-13 00:38
+
+这个黎恩没上过太空，但硬扯也不是不能扯上，不过我更好奇黎恩克洛应该是共和国请过来的，而共和国雇佣了斑鸠，不知黎恩为啥还是能跟师姐杠上。双子里的哥哥还是出来了，他再不出来我都以为他被做掉了，然后妹妹还有跟梵组队的章节，看来结社并不完全是这部的反派？
+
+
+*****
+
+####  Aeons  
+##### 1601#       发表于 2024-7-13 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569122&amp;ptid=2160194" target="_blank">wang56438250 发表于 2024-7-13 00:08</a>
+
+Q:格兰哈特大总统推进创立“瑟库宇宙军基地”的目的是什么?
+
+A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/13/003753z08tghbu051u5g40.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 00:37 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/003754vmtmrmrnj49jym48.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (129.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 00:37 上传
+
+这不是在说宇宙相关的事吗。
+
+说过把黎恩这个事放在创轨提，一是要触及宇宙，二是需要证实存在IF世界。
+
+黎恩本人是没上过的也没那个记忆，有的话直接问他末日了。
+

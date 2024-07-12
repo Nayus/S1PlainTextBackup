@@ -1539,3 +1539,11 @@ https://w ...</blockquote>
 https://w ...</blockquote>
 这是物语系列歌曲集《歌物语》中的附赠OP映像。
 
+
+*****
+
+####  水莲寺流歌  
+##### 357#       发表于 2024-7-13 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一话味道很正，不过感觉有点刻意去追求前作特点的意思，希望能保持住
+

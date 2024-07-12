@@ -7055,3 +7055,41 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 总之系构跑路和明面闹掰不是好事，但也不能说一定特别影响实际的内容制作，毕竟动画其实不只是监督和系构两个人说了算
 
+
+*****
+
+####  星天观测  
+##### 19877#       发表于 2024-7-12 11:28
+
+只能自我调理了，先等最后一首元素曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  可爱的洋甘菊  
+##### 19878#       发表于 2024-7-12 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65561117&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-12 11:21</a>
+按照三次元制作流程配音至少也是后期，分镜就是很早期的内容了
+
+改剧情我认为是没有改的，因为脚本决定稿为 ...</blockquote>
+按这个理解，独角兽前几天的推的意思是：和监督闹矛盾了，但我本职工作认真干了，我写的剧本肯定有趣，但后面的事就不归我管了，能不能拍好是监督的问题，我不清楚。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 19879#       发表于 2024-7-12 11:29
+
+綾奈這個已經調理好了，但是沒有廣播我調理不好。也沒有小動畫。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 19880#       发表于 2024-7-12 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65561224&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-12 11:29</a>
+
+按这个理解，独角兽前几天的推的意思是：和监督闹矛盾了，但我本职工作认真干了，我写的剧本肯定有趣，但 ...</blockquote>
+所以才說這下綾奈不粘鍋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -661,3 +661,37 @@ e氏四兄弟
 
 省钱了真的<img src="https://static.saraba1st.com/image/smiley/face2017/154.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1547#       发表于 2024-7-12 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563744&amp;ptid=2160194" target="_blank">Hinanya 发表于 2024-7-12 15:09</a>
+
+就现实来说，衣服一天一换，这不是问题
+
+但对于游戏或者文艺作品来说，衣服就是皮，就是脸，它和人设是一体 ...</blockquote>
+托娃这个就是丑得建模也救不了啊，这不是黎2的旧衣服了吗怎么现在才发现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 1548#       发表于 2024-7-12 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563744&amp;ptid=2160194" target="_blank">Hinanya 发表于 2024-7-12 15:09</a>
+就现实来说，衣服一天一换，这不是问题
+
+但对于游戏或者文艺作品来说，衣服就是皮，就是脸，它和人设是一体 ...</blockquote>
+服设这个东西真的只能死心了，艾纳米不负责黎轨的人设，也就是说黎轨的服设日渐下降甚至达到敷衍的程度，完全是内部问题。现在来看黎1都还算好的，黎2开始基本就有些奇怪了，到了界轨哪怕重要如黎恩这种角色，他们都选择直接开摆按创轨ep那套改改作为新服设，黎轨角色虽然换了衣服但也更像一种排列组合，各种奇葩土搭表明了轨迹这边人设设计有多么压力山大。
+
+*****
+
+####  铁火辉夜  
+##### 1549#       发表于 2024-7-12 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555247&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-7-11 18:18</a>
+
+黑兔一个闪2的反派中boss，后续居然捧这么高，所以大家还是不够支持我黎1的金兔..... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">黎1绷带妹可爱的捏
+

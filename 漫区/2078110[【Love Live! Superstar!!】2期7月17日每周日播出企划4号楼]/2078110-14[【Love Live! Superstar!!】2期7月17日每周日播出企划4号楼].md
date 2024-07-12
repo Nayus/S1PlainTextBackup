@@ -151,3 +151,13 @@ K组这MV的风格，串戏到隔壁25时了
 
 新衣服还阔以
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20527#       发表于 2024-7-12 19:17
+
+day 1不错
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

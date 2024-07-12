@@ -1194,3 +1194,24 @@ OST试听：[https://youtu.be/6OYfHs7OqK4](https://youtu.be/6OYfHs7OqK4)
 我看到诺华提斯了，这老登这次到底做不做一次正经大BOSS还是继续看戏</blockquote>
 结社夺取了童话庭园的控制权，四月底的演示van说了
 
+
+*****
+
+####  Aeons  
+##### 1594#       发表于 2024-7-12 22:49
+
+说起来看到的东西有点翻来覆去了
+
+*****
+
+####  ravend233  
+##### 1595#       发表于 2024-7-12 22:50
+
+大概率又是几个不怎么关联的故事，一个文案负责一个模块，然后用一个主线和敌人强行串起来（）
+
+这神笔面具人怕不是就是每章一个人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+说起来这新的怎么还是个女的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

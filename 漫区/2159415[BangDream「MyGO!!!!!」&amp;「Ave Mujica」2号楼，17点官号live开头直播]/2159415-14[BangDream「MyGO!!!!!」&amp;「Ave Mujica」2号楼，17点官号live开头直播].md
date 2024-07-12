@@ -8381,3 +8381,21 @@ earth的mv应该是下个月月底出?
 
 希望别直接上去骚扰吓到声优，让人对中国粉丝留下刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19997#       发表于 2024-7-12 22:53
+
+點圖說想看和祥子距離太近陷入慌亂的初華<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/224811whpmg779byb01c9g.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_七海(@nunnun_0410)_20240712-125036_1811744972888231984_photo.jpg</strong> (365.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 22:48 上传
+
+[https://x.com/nunnun_0410/status/1811744972888231984](https://x.com/nunnun_0410/status/1811744972888231984)
+

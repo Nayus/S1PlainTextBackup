@@ -7775,3 +7775,89 @@ syl
 想起来你邦伊芙这个混血模特也就163，身高有点没救了</blockquote>
 在泥邦168或以上的都是帥氣系角色了，這點上rupa也一樣，喵夢和伊芙這些在泥邦也就是偏高那類<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要是那天邦邦出個一米八九的可愛系角色那才算變天了
 
+
+*****
+
+####  利维豚  
+##### 19943#       发表于 2024-7-12 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564903&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:42</a>
+你在隔壁暴露本性怪别人？
+
+怎么难道我按着你敲键盘的，还群体暴力，虽然你发表若只言论冒犯别人，但是别 ...</blockquote>
+当然要负责，不过因为其他楼的评论就要被造谣还不能回复反驳就过分了，该做的澄清还是要做，欢迎你以后继续监督<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  罗克萨斯  
+##### 19944#       发表于 2024-7-12 16:47
+
+身高设定这么保守，是不是因为那边骨子里更喜欢小女孩，妹子太大只甚至会被80
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  御幸一也  
+##### 19945#       发表于 2024-7-12 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564925&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:44</a>
+
+还有，你说讨厌我的原因是他没在这边倒黑泥 我倒了，问题是你那个截图也是我在百综发的啊，2023/12/10我 ...</blockquote>
+你好煩人哦，別在這打滾影響其他樓友，和你多廢話一句話都感覺會被蒜味熏到
+
+*****
+
+####  利维豚  
+##### 19946#       发表于 2024-7-12 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564962&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 16:47</a>
+你好煩人哦，別在這打滾影響其他樓友，和你多廢話一句話都感覺會被蒜味熏到 ...</blockquote>
+没关系，只聊母鸡卡就不会有这种事，聊到别人才会出现这种问题，以后没有造谣的我就只转图不说话
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  PDQ4  
+##### 19947#       发表于 2024-7-12 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564946&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:46</a>
+
+当然要负责，不过因为其他楼的评论就要被造谣还不能回复反驳就过分了，该做的澄清还是要做，欢迎你以后继 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你的不要脸是真的无敌
+
+人前一套背后一套的小人言行，让你演出了正气凛然的气势
+
+这么介意看我觉得你该上报版主给你们百综楼开天窗，以后不在百综楼名单内的人禁止看百综楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19948#       发表于 2024-7-12 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565002&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:50</a>
+你的不要脸是真的无敌
+
+人前一套背后一套的小人言行，让你演出了正气凛然的气势</blockquote>
+这次的事，就是你先开始的，人家攻击我都放个截图有理有据，你是无中生有，而且在百综攻击完了感觉不够舒服还要到母鸡卡楼继续攻击
+什么意思？你在百综释放不充分到这边还要继续吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19949#       发表于 2024-7-12 16:55
+
+布谷鸟在厕所拉屎太臭都熏到隔壁人了
+
+出现的时候，隔壁人纷纷说这就是那个拉屎很臭的人
+
+布谷鸟跳出来大声说你们造谣，我只是在隔壁拉屎臭了点而已，怎么敢假定我在其他地方也臭
+
+我觉得鸟叔要不换个词吧，我记得看娱乐圈很喜欢这一套，别用诽谤造谣了，侵犯名誉权更适合你<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

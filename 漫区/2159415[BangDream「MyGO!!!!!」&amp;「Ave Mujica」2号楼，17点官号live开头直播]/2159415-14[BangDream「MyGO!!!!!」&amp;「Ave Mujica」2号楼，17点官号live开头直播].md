@@ -8008,3 +8008,104 @@ syl
 
 以及最后，你可以继续搬图，毕竟你闭嘴不回复别人真拿你没办法，连举报都没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 19961#       发表于 2024-7-12 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565179&amp;ptid=2159415" target="_blank">日野下花帆 发表于 2024-7-12 17:05</a>
+
+这边的友友不要见怪多怪了，上个月gbc的时候他就干过拿自己不真情实感的cp来攻击“美帝”（方式就是只搬他 ...</blockquote>
+gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验，不知道还要嚯嚯多少动画，都有点佩服他了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19962#       发表于 2024-7-12 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565193&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 17:05</a>
+鸟叔又开始混淆了，搬cp图是为了叠甲不是你自己说的
+
+戴面具就是为了装杂食不会以为别人看不出来吧，真以 ...</blockquote>
+从没说过搬CP图是为了叠甲
+我说过我搬的图都是我喜欢看的 这句话你从来都不信是吧
+戴上面具怎么了，我有阴湿攻击过其他CP吗，就像你做的那样？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19963#       发表于 2024-7-12 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565227&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 17:07</a>
+
+从没说过搬CP图是为了叠甲
+
+我说过我搬的图都是我喜欢看的 这句话你从来都不信是吧
+
+戴上面具怎么了，我有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是那句话，孩子，精通了不要脸的你是无敌的
+
+*****
+
+####  利维豚  
+##### 19964#       发表于 2024-7-12 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565179&amp;ptid=2159415" target="_blank">日野下花帆 发表于 2024-7-12 17:05</a>
+这边的友友不要见怪多怪了，上个月gbc的时候他就干过拿自己不真情实感的cp来攻击“美帝”（方式就是只搬他 ...</blockquote>
+有没有我攻击的截图证据啊 想看看，最好要攻击母鸡卡
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  利维豚  
+##### 19965#       发表于 2024-7-12 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565245&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 17:09</a>
+还是那句话，孩子，精通了不要脸的你是无敌的</blockquote>
+你一张嘴就是别人不要脸，我可说不出这种话来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  Aendst  
+##### 19966#       发表于 2024-7-12 17:11
+
+已经到上海了？行程比想象的宽裕一些
+
+*****
+
+####  hitori酱  
+##### 19967#       发表于 2024-7-12 17:11
+
+<img src="https://img.saraba1st.com/forum/202407/12/171134oyxooe97i94on3x9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 17:11 上传
+
+@toriatama3429
+
+*****
+
+####  daiquan333  
+##### 19968#       发表于 2024-7-12 17:12
+
+神金，表演型人格这么爱汴的跑来专楼自证清白的能不能私聊……来专楼不是看你表演的，换几个号拉屎了……
+
+*****
+
+####  PDQ4  
+##### 19969#       发表于 2024-7-12 17:13
+
+这么快到上海了，那今晚是不是能吃顿好的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">期待食物返图
+

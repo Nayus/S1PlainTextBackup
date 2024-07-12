@@ -8174,3 +8174,18 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 听说还有经纪人同行，这样她们时间安排不知道会不会宽松点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19977#       发表于 2024-7-12 18:43
+
+所以今晚她們會先在上海玩一圈嗎<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 多吃點好吃的
+
+*****
+
+####  PDQ4  
+##### 19978#       发表于 2024-7-12 18:46
+
+有点希望她们发图的时候谨慎点，别被特到酒店了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

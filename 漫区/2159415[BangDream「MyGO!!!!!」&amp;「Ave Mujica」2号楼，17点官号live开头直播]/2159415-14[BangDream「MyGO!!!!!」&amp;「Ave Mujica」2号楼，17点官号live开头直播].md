@@ -8136,3 +8136,25 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 成年女性164挺正常的吧，而且我記得mmk也是164，這是什麼日本最近流行的成女身高嗎 ...</blockquote>
 在日本164就等于在中国168。女神身高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  九陌狂游  
+##### 19973#       发表于 2024-7-12 17:29
+
+看到李子一下飞机就发微博了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  PDQ4  
+##### 19974#       发表于 2024-7-12 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565434&amp;ptid=2159415" target="_blank">yevvet 发表于 2024-7-12 17:24</a>
+
+喵梦常服就是高跟鞋，所以看着很高海铃也是，成天穿个厚底鞋，动画里看着可高了。 ...</blockquote>
+海铃小矮子倒是早有预期，她158我都觉得偏高，算是你邦正常范围的身高，就是对日本人如此执着小矮子有点想笑。
+
+推上除了日本人会感叹喵梦高以外，都在说为什么都这么矮，特别是海厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

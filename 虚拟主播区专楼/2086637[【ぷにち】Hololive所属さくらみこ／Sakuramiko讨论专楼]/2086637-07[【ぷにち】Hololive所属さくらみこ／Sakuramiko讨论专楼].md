@@ -3655,3 +3655,28 @@ GTA吧，首先miko没有参加过任何STGR式的GTA服那为什么能写出那
 
 不过我也贡献了几本销量就是了
 
+
+*****
+
+####  holoan  
+##### 9207#         楼主| 发表于 2024-7-12 19:34
+
+<img src="https://img.saraba1st.com/forum/202407/12/193422r6lzgg7ujfogzo60.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 19:34 上传
+
+七字母周年企划秒读
+
+不过时机确实不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9208#         楼主| 发表于 2024-7-12 23:07
+
+自由工作企划告知拖了整整2个星期我以为是会限里观众说的在准备小礼物结果也没有提到，那有什么事情要准备2星期没完的那征集表格也没什么内容啊，拖这么久还以为又要取消不办了
+

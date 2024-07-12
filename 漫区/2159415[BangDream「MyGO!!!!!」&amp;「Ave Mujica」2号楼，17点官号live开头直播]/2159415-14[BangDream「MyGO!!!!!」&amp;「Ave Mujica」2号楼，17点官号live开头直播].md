@@ -8327,3 +8327,13 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 earth的mv应该是下个月月底出?
 
+
+*****
+
+####  御幸一也  
+##### 19992#       发表于 2024-7-12 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">啊？不是月初嗎
+
+就當water是特例在7/7放出，如果還是每個月的第一個禮拜四，那就是8/1()
+

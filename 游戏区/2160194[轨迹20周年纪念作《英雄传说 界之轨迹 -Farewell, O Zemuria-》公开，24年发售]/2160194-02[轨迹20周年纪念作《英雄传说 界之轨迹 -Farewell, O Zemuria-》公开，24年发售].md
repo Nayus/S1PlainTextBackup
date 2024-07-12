@@ -885,3 +885,79 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 
 你要爆火的前提是有能爆火的宣传图，你法我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1569#       发表于 2024-7-12 20:25
+
+ 本帖最后由 卢迪克 于 2024-7-12 20:26 编辑 
+
+京都迷城首周有六万，年榜七万就差不多了。首周八万不敢想
+
+毕竟黎1截止21.12.31销量实体六万二。黎2截止22.12.31销量实体五万七。
+
+<img src="https://img.saraba1st.com/forum/202407/12/202519uvwv18qqf7q1f483.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240712_202338.jpg</strong> (36.16 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/202524e22ncwv526fby24n.jpg" referrerpolicy="no-referrer">
+
+<strong>F8A3BC756D98BAFFFE2175B4030FC63B.jpg</strong> (36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:25 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/202529xrraa4cz55rerp4t.jpg" referrerpolicy="no-referrer">
+
+<strong>13B90A44DD5EA345B4FFA5B064252191.jpg</strong> (37.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:25 上传
+
+
+*****
+
+####  卢迪克  
+##### 1570#       发表于 2024-7-12 20:30
+
+ 本帖最后由 卢迪克 于 2024-7-12 20:31 编辑 
+
+伊苏x不清楚销量多少，还没人发过，只知道后劲比黎2强
+
+<img src="https://img.saraba1st.com/forum/202407/12/202929nt1otp011zf0loae.jpg" referrerpolicy="no-referrer">
+
+<strong>E2B6FCDFEC9D0F960A036CDCC7FD32B4.jpg</strong> (66.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/202936tumsoj4h0y4vxs9o.jpg" referrerpolicy="no-referrer">
+
+<strong>4A93C96479135713C10162769762FC7E.jpg</strong> (54.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/203005mylz4qn4de3bdjjp.jpg" referrerpolicy="no-referrer">
+
+<strong>1B07EEB1E4C0D9F532A9957A88A14D31.jpg</strong> (55.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 20:30 上传
+

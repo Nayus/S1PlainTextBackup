@@ -7212,3 +7212,33 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  紫吹兰  
+##### 19890#         楼主| 发表于 2024-7-12 13:03
+
+水母和菜花亲吻的都是轻浮黄毛，我们的黄毛也轻浮吗<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 19891#       发表于 2024-7-12 13:04
+
+当时天文台放椅子的时候<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 19892#       发表于 2024-7-12 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想到了一个场景——
+
+睦：祥子……mygo她们发布了对邦预告。
+
+祥子：……是吗，嗯，我知道的，从mujika建立开始，我就早就做好了这样一天来临的准备，被灯和素世她们恨着，接受她们的怨恨，这都是我早已经有的觉悟，我……不会后悔，无论她们在舞台上说什么，我都会……
+
+睦：是和tgtg乐队。
+
+祥子：……初华，让我忘记一切吧
+

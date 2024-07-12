@@ -8429,3 +8429,22 @@ earth的mv应该是下个月月底出?
 
 还真是zsbd...
 
+
+*****
+
+####  银酒监武  
+##### 20001#       发表于 2024-7-13 01:16
+
+有没有感觉米泽茜才是这十个人里最像高松灯的，上节目表现出的阴角和害羞当然不用说，把蛋糕的巧克力盖在冰箱里裹保鲜膜放两年，十足的重女+收集癖，再加上把这个事发出来的电波反常识，我觉得没有更像的了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/adc3ca60272410133e1a2f1ae7c62ffe/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  哈曼的YY  
+##### 20002#       发表于 2024-7-13 01:23
+
+发错
+

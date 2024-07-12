@@ -1318,3 +1318,21 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黒鈴ミヲ  
+##### 1604#       发表于 2024-7-13 01:20
+
+存在if世界不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 0b不就是一个巨大的if线
+
+*****
+
+####  wang56438250  
+##### 1605#       发表于 2024-7-13 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569403&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-13 00:44</a>
+
+里恩克洛是金凯德接待的，除非金凯德不和总统一条船了，这俩按理说这个非官方邀请就是总统的个人邀请</blockquote>
+黎恩那张图像最终迷宫，估计是静奈守门，黎恩和大部队闯，然后就是轨迹传统的你们先走接下来交给我，然后单挑
+

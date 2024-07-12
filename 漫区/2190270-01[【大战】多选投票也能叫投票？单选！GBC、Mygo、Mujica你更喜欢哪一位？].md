@@ -1067,3 +1067,13 @@ gbc票多的也就27486，其他几个人加起来才50票多点
 
 睦头人和初华一个票数，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花火  
+##### 103#       发表于 2024-7-12 11:37
+
+486是被anon分票了吗, 明明gbc单投是比27多的.
+
+小孩姐的特性真是独一无二.
+

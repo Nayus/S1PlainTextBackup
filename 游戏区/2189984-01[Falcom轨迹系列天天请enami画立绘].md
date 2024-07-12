@@ -1470,3 +1470,14 @@ e大师作为雇佣兵其实算敬业了，卖力的画完完成了工作，早�
 
 e圣的真爱是星之海洋，产能质量都在线
 
+
+*****
+
+####  keiyoku  
+##### 140#       发表于 2024-7-12 10:10
+
+车tio8先问问e大师能画出这种少年少女的青春气质吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/650e22c843523455db710e4f7837a5eb/CMP_20240712100513794.jpg" referrerpolicy="no-referrer">
+不会啊e孝子最爱的e圣只会量产一堆中年男人和妇女，有画技但没有美商是这样的，初音未来都能画出姨味来再吹只能顺从了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c42fd98d67376ffcceabb7acbf8b2873/CMP_20240712100952079.jpg" referrerpolicy="no-referrer">
+

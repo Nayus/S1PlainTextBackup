@@ -6794,3 +6794,64 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 脚本家和监督愿意多确认配合确实说明对作品投入心血尽心尽力，没有脚本家check那也就是回归到正常的监督拍板的轨道，就因为这个要过分质疑质量感觉没什么道理，之前采访不也讲过虽然她有一定后续阶段的话语权，但从来都是也本就应该是监督最后拍板的
 
+
+*****
+
+####  skives  
+##### 19850#       发表于 2024-7-12 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65559764&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 09:36</a>
+aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊怎麼比我還矮啊 ...</blockquote>
+出官方设定了吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 19851#       发表于 2024-7-12 10:10
+
+<img src="https://img.saraba1st.com/forum/202407/12/101021m2sdgdffdp3sggz6.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ905k-e101ZbT3cSzk-k0.jpg</strong> (121.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 10:10 上传
+
+*****
+
+####  skives  
+##### 19852#       发表于 2024-7-12 10:11
+
+喵梦164？谁信啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19853#       发表于 2024-7-12 10:13
+
+感覺喵夢海鈴初華全部都被砍了4公分，都+4才是我覺得正常的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 19854#       发表于 2024-7-12 10:14
+
+ 本帖最后由 好想看Mujica啊 于 2024-7-12 10:15 编辑 
+
+见怪不怪了，日本动画凡是身高设定我都自动加5-10cm才不违和。
+
+*****
+
+####  NODY  
+##### 19855#       发表于 2024-7-12 10:14
+
+初华和爱音一个身高，祥子和灯一个身高，所以mujica动画会按爱灯规格来写初祥吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 19856#       发表于 2024-7-12 10:16
+
+高中生，还有发育空间吧，都给我再长至少5cm啊
+

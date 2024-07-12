@@ -877,3 +877,11 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 服设这个东西真的只能死心了，艾纳米不负责黎轨的人设，也就是说黎轨的服设日渐下降甚至达到敷衍的程度， ...</blockquote>
 道理我都懂可是黎2的赛车女郎服真的很顶<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 1568#       发表于 2024-7-12 18:56
+
+你要爆火的前提是有能爆火的宣传图，你法我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

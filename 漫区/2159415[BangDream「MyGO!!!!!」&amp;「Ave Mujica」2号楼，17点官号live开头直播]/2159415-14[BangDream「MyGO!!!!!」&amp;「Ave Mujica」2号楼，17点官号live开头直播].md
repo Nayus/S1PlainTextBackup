@@ -8197,3 +8197,32 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 应该会去海底捞的吧，虽然有很多更好吃的火锅店但是大概海底捞会比较适合一点？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19980#       发表于 2024-7-12 18:58
+
+ 本帖最后由 御幸一也 于 2024-7-12 19:00 编辑 
+
+說到這個，重新認真聽才發現，昨天問到能不能吃辣的時候，原來高尾舉手手說“能吃辣！”是在裝傻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她們一起去吃火鍋的時候，其他人會對高尾說“奏音你的是這邊呢（不辣的鍋” <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+這麼說ave就是4個吃辣的包圍了一個不能吃辣的 草
+
+*****
+
+####  星天观测  
+##### 19981#       发表于 2024-7-12 19:02
+
+可以点一个四宫格，其他三个都是辣锅底，给弄留一个番茄锅假装也是辣锅底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 19982#       发表于 2024-7-12 19:06
+
+為什麼不是四個人輪流餵她辣的看她被辣哭哭呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

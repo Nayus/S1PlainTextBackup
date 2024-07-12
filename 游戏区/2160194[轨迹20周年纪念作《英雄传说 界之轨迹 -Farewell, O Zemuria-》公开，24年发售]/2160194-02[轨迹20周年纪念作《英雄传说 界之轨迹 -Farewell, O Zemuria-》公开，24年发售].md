@@ -1001,3 +1001,29 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 
 《界之轨迹》mini OST 曲目试听动画公开 http://t.cn/A6QgUHgs ​​​
 
+
+*****
+
+####  ky怪  
+##### 1576#       发表于 2024-7-12 21:01
+
+op挺不错
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 1577#       发表于 2024-7-12 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65398140&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-6-27 11:32</a>
+双人模组也不错啊，也是一个新的尝试</blockquote>
+拉碧丝相当于白兔的噶酱是吧
+
+*****
+
+####  宛若青空  
+##### 1578#       发表于 2024-7-12 21:04
+
+シロイセカイ
+
+黎黑界白？
+

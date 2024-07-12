@@ -2621,3 +2621,11 @@ CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</block
 相同命运 只是比你多了个小黑</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">比我欧
 
+
+*****
+
+####  Friede-  
+##### 13038#       发表于 2024-7-12 21:05
+
+弃坑快两年回来，想补档的三个连一块了，第一战兽尼保底后上头25单拉满<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

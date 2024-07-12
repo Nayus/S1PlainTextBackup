@@ -8337,3 +8337,32 @@ earth的mv应该是下个月月底出?
 
 就當water是特例在7/7放出，如果還是每個月的第一個禮拜四，那就是8/1()
 
+
+*****
+
+####  御幸一也  
+##### 19993#       发表于 2024-7-12 20:56
+
+難怪日本人說好，原來是給喵夢算上了高跟鞋的高度<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/205555bna11g66gug2slsz.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード (4).jpg</strong> (18.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 20:55 上传
+
+*****
+
+####  rikaren  
+##### 19994#       发表于 2024-7-12 20:57
+
+<blockquote>御幸一也 发表于 2024-7-12 20:24
+啊？不是月初嗎
+
+就當water是特例在7/7放出，如果還是每個月的第一個禮拜四，那就是8/1()
+
+</blockquote>
+脑抽打错了，如果是卡8.1零点的话有个特殊意义大概就是1.14和下一年2.14之间的中间一天是7.31。
+

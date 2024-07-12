@@ -46,3 +46,11 @@ bw有这个游戏的试玩。
 
 —— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  nancygreenlife  
+##### 545#       发表于 2024-7-12 20:56
+
+看演示，UI简直每时每刻都在动，闪来闪去，蹭来蹭去，小幅度蠕动，真是够烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

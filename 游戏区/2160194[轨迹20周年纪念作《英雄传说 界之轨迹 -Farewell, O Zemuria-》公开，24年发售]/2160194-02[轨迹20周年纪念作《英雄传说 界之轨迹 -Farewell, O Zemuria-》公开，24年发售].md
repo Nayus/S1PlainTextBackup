@@ -1386,3 +1386,14 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 我说了啊，因为两人动补在打啊，肯定动来动去的啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">守门哪怕对打一般也不会彻底掉转方向吧
 
+
+*****
+
+####  wang56438250  
+##### 1611#       发表于 2024-7-13 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569964&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-13 02:34</a>
+
+守门哪怕对打一般也不会彻底掉转方向吧</blockquote>
+你看黎2，静奈对卡西姆，静奈全场乱跳
+

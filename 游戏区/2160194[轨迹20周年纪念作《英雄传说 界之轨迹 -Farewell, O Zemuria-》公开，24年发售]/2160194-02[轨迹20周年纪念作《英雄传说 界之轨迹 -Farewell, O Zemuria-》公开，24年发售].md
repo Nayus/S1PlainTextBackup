@@ -545,3 +545,36 @@ Towa爹妈不就是搞天文的
 
 那肯定不能指望和闪的立绘比吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以e圣的水平画成这样可以了
 
+
+*****
+
+####  kyonkoism  
+##### 1536#       发表于 2024-7-12 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65559432&amp;ptid=2160194" target="_blank">yongze 发表于 2024-7-12 09:03</a>
+你这一对比不更明显表现出至少气质还是保留了吗，不过村上的绘法和上色确实更普世
+
+—— 来自 vivo V2218A, ...</blockquote>
+没有啊……要不是知道她还是黑兔的前提下
+
+我感觉就是角色气质，从三无角色变成了传统沉稳带点热血的女主角一样，像翻版的剑女<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  宛若青空  
+##### 1537#       发表于 2024-7-12 09:20
+
+传统沉稳带点热血？完全不觉得
+
+就我昨天第一眼看到不知道是黑兔的情况下都能一眼认出来这个气质就是黑兔
+
+
+*****
+
+####  Oshino  
+##### 1538#       发表于 2024-7-12 09:25
+
+黑兔还不好吗，菲上哪儿说理去啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

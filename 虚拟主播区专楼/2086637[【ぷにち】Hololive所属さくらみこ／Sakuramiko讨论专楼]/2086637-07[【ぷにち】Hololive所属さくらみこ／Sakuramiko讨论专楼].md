@@ -3620,3 +3620,38 @@ GTA吧，首先miko没有参加过任何STGR式的GTA服那为什么能写出那
 
 笑死了
 
+
+*****
+
+####  holoan  
+##### 9205#         楼主| 发表于 2024-7-12 18:01
+
+<img src="https://img.saraba1st.com/forum/202407/12/180144b5j11l1toekmzgsq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 18:01 上传
+
+行动力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9206#         楼主| 发表于 2024-7-12 19:24
+
+ 本帖最后由 holoan 于 2024-7-12 19:25 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/12/192357m5mfuk2vf6bp0kuf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 19:23 上传
+
+没有内涵瞎比画的开水漫画拿第一，那些认真做漫画的作者怎么想的
+
+不过我也贡献了几本销量就是了
+

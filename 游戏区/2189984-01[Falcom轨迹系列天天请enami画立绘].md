@@ -1501,3 +1501,15 @@ e圣的真爱是星之海洋，产能质量都在线
 
 當年村上不是被S1群眾各種鄙視厭惡嗎？
 
+
+*****
+
+####  Squall25  
+##### 143#       发表于 2024-7-12 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65555391&amp;ptid=2189984" target="_blank">零食杀手 发表于 2024-7-11 18:34</a>
+我比较想知道有多少日本本土或者欧美玩家喷e大师的立绘的
+
+—— 来自 Xiaomi M2102J2SC, Android 13上的 S1 ...</blockquote>
+日本那边搞不懂他们怎么想的，但欧美人可能是真喜欢，但那边的人审美本来就和我们有很大差距，从他们画的同人图也能看出来。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

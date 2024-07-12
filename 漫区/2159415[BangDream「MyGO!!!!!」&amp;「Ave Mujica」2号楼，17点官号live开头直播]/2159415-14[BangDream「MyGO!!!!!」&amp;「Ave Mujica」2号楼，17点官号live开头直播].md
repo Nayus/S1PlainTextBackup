@@ -7009,3 +7009,14 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 —— 来自 S1Fun</blockquote>
 土笔高二了还是150，最惨还是亚子初三到高二都是148<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 19873#       发表于 2024-7-12 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560213&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 10:16</a>
+
+女生在高中不太長了吧，來一個遺老告訴我老團有沒有長高</blockquote>
+没有，ako都维持三年的148了
+

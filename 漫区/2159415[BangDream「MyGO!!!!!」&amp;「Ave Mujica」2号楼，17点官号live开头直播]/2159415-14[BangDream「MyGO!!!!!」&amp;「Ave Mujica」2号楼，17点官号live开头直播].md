@@ -8311,3 +8311,11 @@ gbc的没怎么看百综楼，原来是在那边又精进了武器化的经验�
 
 会赢的，我相信Aether必是治愈的图，上次单一图两吃就算了，这次mini专总不至于还缺席吧，周年画过贺图了一定是亲妈吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19990#       发表于 2024-7-12 19:59
+
+已經連續3個鬼圖MV了樓友哪來的自信<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+

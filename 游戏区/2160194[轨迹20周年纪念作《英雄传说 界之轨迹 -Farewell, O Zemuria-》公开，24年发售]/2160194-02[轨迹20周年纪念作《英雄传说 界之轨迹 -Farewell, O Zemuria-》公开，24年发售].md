@@ -634,3 +634,30 @@ Towa爹妈不就是搞天文的
 e氏四兄弟
 <img src="https://p.sda1.dev/18/cca9a9c816351e49ce6000254a0dff5b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gane1010  
+##### 1545#       发表于 2024-7-12 15:09
+
+还好建模补回了一些分数啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Hinanya  
+##### 1546#       发表于 2024-7-12 15:09
+
+ 本帖最后由 Hinanya 于 2024-7-12 15:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65559834&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-12 09:42</a>
+
+托娃这个问题你们怪立绘不如怪服设，黎2建模出来我就觉得很丑了头巨大一个还收腰紧身裤 ...</blockquote>
+就现实来说，衣服一天一换，这不是问题
+
+但对于游戏或者文艺作品来说，衣服就是皮，就是脸，它和人设是一体的，
+
+不是说怪服设，而是在这个语境下，服设=人设
+
+还有黎恩我也是不满意
+
+省钱了真的<img src="https://static.saraba1st.com/image/smiley/face2017/154.png" referrerpolicy="no-referrer">
+

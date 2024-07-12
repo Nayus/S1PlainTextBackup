@@ -7346,3 +7346,27 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 当时天文台放椅子的时候</blockquote>
 氛围到了都没亲，这不是说明我们的黄毛一点都不轻浮<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 19906#       发表于 2024-7-12 13:59
+
+好幽默的日本人，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/135936v81gagqg0ng1i96c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 13:59 上传
+
+
+*****
+
+####  IWS2000  
+##### 19907#       发表于 2024-7-12 14:03
+
+最矮的猫猫和星野爱一样高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

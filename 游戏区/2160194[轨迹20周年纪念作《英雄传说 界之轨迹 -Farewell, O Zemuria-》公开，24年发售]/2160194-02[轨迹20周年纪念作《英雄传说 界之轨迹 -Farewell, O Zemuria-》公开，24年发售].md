@@ -479,3 +479,43 @@ Towa爹妈不就是搞天文的
 
 最好的情况是混个NPC，起码有个新建模，其次就是混个事件插画，最次就是台词提两句，查无此人
 
+
+*****
+
+####  kyonkoism  
+##### 1530#       发表于 2024-7-12 08:58
+
+看了眼专楼对黑兔立绘竟然还是夸的，震惊
+
+<img src="https://p.sda1.dev/18/902a6eeb7f49c25a488e6c98d9ac91b9/image.jpg" referrerpolicy="no-referrer">
+
+这根本就是画成另一个人了吧，画师疑似有点活全家了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  yongze  
+##### 1531#       发表于 2024-7-12 09:03
+
+你这一对比不更明显表现出至少气质还是保留了吗，不过村上的绘法和上色确实更普世
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  卢迪克  
+##### 1532#       发表于 2024-7-12 09:05
+
+黎2也干了
+
+<img src="https://img.saraba1st.com/forum/202407/12/090555lgh7af9p7eq4mg44.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240712_090517.jpg</strong> (306.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 09:05 上传
+

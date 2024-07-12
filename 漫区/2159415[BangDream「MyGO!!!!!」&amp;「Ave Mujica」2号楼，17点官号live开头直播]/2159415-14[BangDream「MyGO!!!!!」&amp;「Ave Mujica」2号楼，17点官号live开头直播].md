@@ -7592,3 +7592,136 @@ syl
 —— 来自 鹅球 v3.0.86-alpha</blockquote>
 那要结合你的行为来看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 19928#       发表于 2024-7-12 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564688&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-12 16:25</a>
+那要结合你的行为来看</blockquote>
+<img src="https://p.sda1.dev/18/2d5e32a1e6d0fb04473f6117fac55dc7/image.jpg" referrerpolicy="no-referrer">
+和你这个比呢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19929#       发表于 2024-7-12 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564681&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:24</a>
+
+你是觉得这个发言十恶不赦嘛
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+你自己说的戴面具
+
+百综楼有那么多人喜欢陪你演，这边不喜欢和你演你急了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  相坂君  
+##### 19930#       发表于 2024-7-12 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564608&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:18</a>
+什么惊喜发言我还真想看看
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+你都有6个S1号还要装论坛小白，不会点开账号回复看发言吗？
+
+*****
+
+####  IWS2000  
+##### 19931#       发表于 2024-7-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564717&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:27</a>
+和你这个比呢
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+感觉我应该有比这更逆天的发言吧？不像你还需要套盾反串<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19932#       发表于 2024-7-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564743&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-12 16:29</a>
+你自己说的戴面具
+
+百综楼有那么多人喜欢陪你演，这边不喜欢和你演你急了？ ...</blockquote>
+戴面具怎么了，母鸡卡全员都戴面具<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+你是不是觉得我会狠一个百合CP恨到搬半年多同人图，我可没有这么有耐心
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  利维豚  
+##### 19933#       发表于 2024-7-12 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564782&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-12 16:33</a>
+感觉我应该有比这更逆天的发言吧？不像你还需要套盾反串</blockquote>
+不想翻你的逆天发言<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  御幸一也  
+##### 19934#       发表于 2024-7-12 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564681&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:24</a>
+
+你是觉得这个发言十恶不赦嘛
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+原來你是蒜人，請不要和我說話。
+
+*****
+
+####  PDQ4  
+##### 19935#       发表于 2024-7-12 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564664&amp;ptid=2159415" target="_blank">T@L 发表于 2024-7-12 16:23</a>
+
+不至於，rupa在日本人眼中都是【又高又壯的外國人】形象了，喵夢應該是没打算突出她的身高 ...</blockquote>
+想起来你邦伊芙这个混血模特也就163，身高有点没救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 19936#       发表于 2024-7-12 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564800&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-12 16:34</a>
+原來你是蒜人，請不要和我說話。</blockquote>
+都截图存档了我这不是来虚心请教了吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  利维豚  
+##### 19937#       发表于 2024-7-12 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564752&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-12 16:30</a>
+你都有6个S1号还要装论坛小白，不会点开账号回复看发言吗？</blockquote>
+因为印象中没说过什么出格的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  PDQ4  
+##### 19938#       发表于 2024-7-12 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65564791&amp;ptid=2159415" target="_blank">利维豚 发表于 2024-7-12 16:33</a>
+
+戴面具怎么了，母鸡卡全员都戴面具
+
+你是不是觉得我会狠一个百合CP恨到搬半年多同人图，我可没有这么有耐 ...</blockquote>
+你恨不恨我不知道，你把我cp当工具这件事就足够让我恨你了，旧仇不牵扯邦楼
+
+你都不尊重cp，指望cp厨尊重你？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

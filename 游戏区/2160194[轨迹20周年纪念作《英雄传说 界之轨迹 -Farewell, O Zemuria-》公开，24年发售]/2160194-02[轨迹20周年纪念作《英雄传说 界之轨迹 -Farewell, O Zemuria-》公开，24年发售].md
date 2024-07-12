@@ -786,3 +786,27 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 
 赌上社运，京轨能否重现闪2的销售奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1560#       发表于 2024-7-12 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是我也不觉得迷城续作能有什么足够出圈的噱头，大幅提高关注度，如果撞大运撞上了还是有机会爆个十多万
+
+莱莎感觉有很大的运气和时代成分，卖肉这年头在手游大幅提高受众阈值后也很难赚到关注度了，而且村上的画我觉得其他都不错，但是不够涩情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他撞大运的出圈噱头也想不到
+
+看目前的情况又是男主，也吃不到最潮的女同热度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhuhh  
+##### 1561#       发表于 2024-7-12 16:33
+
+<blockquote>一步成诗 发表于 2024-7-12 16:08
+至于东迷2销量我也看好会比界轨伊苏10高，但好几倍太夸张了，现在整个市场都不太卖得动，哪来的自信高好几 ...</blockquote>
+要是能把欧美市场一起拉进来同步发售，我认为还是能达到的，只靠亚洲市场的话确实勉强。偏偏欧美版发售太慢了，等他们能玩上游戏热度都不及刚发售时了
+

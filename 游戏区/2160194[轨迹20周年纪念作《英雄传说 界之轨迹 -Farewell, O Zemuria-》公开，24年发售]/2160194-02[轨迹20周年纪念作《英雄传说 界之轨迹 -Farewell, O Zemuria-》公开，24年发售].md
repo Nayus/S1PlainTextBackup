@@ -1027,3 +1027,81 @@ op挺不错
 
 黎黑界白？
 
+
+*****
+
+####  hkguty  
+##### 1579#       发表于 2024-7-12 21:14
+
+黎恩线看来主线完全就是八叶黑神恩怨局，就是不知道怎么样跟太空计划扯上关系
+
+*****
+
+####  Aeons  
+##### 1580#       发表于 2024-7-12 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘看了
+
+*****
+
+####  卢迪克  
+##### 1581#       发表于 2024-7-12 21:15
+
+斑鸠婆婆，斑鸠老大，静奈
+
+<img src="https://img.saraba1st.com/forum/202407/12/211547ra6xhsoxlnox6pza.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240712_205730.jpg</strong> (234.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-12 21:15 上传
+
+*****
+
+####  Aeons  
+##### 1582#       发表于 2024-7-12 21:16
+
+我佛了怎么又跳舞
+
+*****
+
+####  Piano-Forest  
+##### 1583#       发表于 2024-7-12 21:18
+
+ 本帖最后由 Piano-Forest 于 2024-7-12 21:19 编辑 
+
+OST试听：[https://youtu.be/6OYfHs7OqK4](https://youtu.be/6OYfHs7OqK4)
+
+・シロイセカイ（OPver）
+
+・ヴァルハラの戦士たち
+
+・Anchor in the Dark
+
+・KEVIN GRAHAM
+
+・熱砂舞踏
+
+・Battle Junction-1209-
+
+・そして、宇宙（そら）へ――
+
+・Farewell,My Dear...
+
+
+*****
+
+####  Aeons  
+##### 1584#       发表于 2024-7-12 21:21
+
+凯文还有名字做bgm的
+
+*****
+
+####  Aeons  
+##### 1585#       发表于 2024-7-12 21:22
+
+这op名，不是说了白给创了吗
+

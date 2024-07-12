@@ -21,3 +21,11 @@
 
 【《Kunitsu-Gami: Path of the Goddess》主题曲 - Kunitsu-Gami】 [https://www.bilibili.com/video/B ... 9090d5f448907589519](https://www.bilibili.com/video/BV1A6421f7Wh/?share_source=copy_web&amp;vd_source=9bc124bd87f7a9090d5f448907589519)
 
+
+*****
+
+####  hkguty  
+##### 72#       发表于 2024-7-12 21:17
+
+感觉美术很特别
+

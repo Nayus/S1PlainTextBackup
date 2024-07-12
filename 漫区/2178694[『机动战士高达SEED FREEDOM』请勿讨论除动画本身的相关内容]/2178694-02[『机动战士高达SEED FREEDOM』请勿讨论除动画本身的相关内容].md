@@ -55,3 +55,15 @@
 福田这个补完，感觉鸟用对机子+不再迷茫，比基拉还强吧，至少基拉不会分身，只是躲得快吧？ ...</blockquote>
 让三个命运一起平A也打不出强自头炮的效果吧，鸡神已经转型吹科研了
 
+
+*****
+
+####  stevenzero  
+##### 1811#       发表于 2024-7-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65474494&amp;ptid=2178694" target="_blank">風卷豹 发表于 2024-7-4 09:14</a>
+这母舰最离谱的是还有线控炮...到底是谁在用啊</blockquote>
+舰桥某人在狂敲键盘<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+这千禧年号就是个披着战舰皮的MA。
+

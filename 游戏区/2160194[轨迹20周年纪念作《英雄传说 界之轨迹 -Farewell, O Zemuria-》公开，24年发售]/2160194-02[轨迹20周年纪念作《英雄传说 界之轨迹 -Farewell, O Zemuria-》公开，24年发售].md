@@ -822,3 +822,48 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 
 但是比黎轨高一倍应该是有的（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hinanya  
+##### 1563#       发表于 2024-7-12 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563847&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-12 15:19</a>
+
+托娃这个就是丑得建模也救不了啊，这不是黎2的旧衣服了吗怎么现在才发现 ...</blockquote>
+我一直没玩黎轨，一听说时间跨度有点大，心里总有点“害怕”。
+
+前几天听到界轨的BGM，我直接黎轨加入愿望单
+
+今天看到托娃了，愿望单也给删了……
+
+*****
+
+####  keiyoku  
+##### 1564#       发表于 2024-7-12 17:57
+
+不是已经撞了个塞尔达了么，都能完全撞塞尔达了还有什么好怕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 1565#       发表于 2024-7-12 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565845&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-7-12 17:57</a>
+
+不是已经撞了个塞尔达了么，都能完全撞塞尔达了还有什么好怕的</blockquote>
+撞塞尔达是界轨，这讨论的是明年迷城续作，没人关心界轨销量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界轨销量我是想看还剩多少怨种愿意买
+
+*****
+
+####  ravend233  
+##### 1566#       发表于 2024-7-12 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565837&amp;ptid=2160194" target="_blank">Hinanya 发表于 2024-7-12 17:56</a>
+
+我一直没玩黎轨，一听说时间跨度有点大，心里总有点“害怕”。
+
+前几天听到界轨的BGM，我直接黎轨加入愿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">挺好，不用赤石了，今年入界轨甚至有九成概率还得等到2026才能把史赤完
+

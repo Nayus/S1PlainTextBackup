@@ -2588,3 +2588,14 @@ CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</block
 不如单抽出限定五星的狗萌新</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">出的都是辣鸡  我兽你和去年泳装一个都没有 不如你
 
+
+*****
+
+####  琴酒  
+##### 13035#       发表于 2024-7-12 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65565465&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-12 17:26</a>
+
+CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</blockquote>
+相同命运 只是比你多了个小黑
+

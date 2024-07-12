@@ -279,3 +279,11 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 明明可以分1000,2000，满签三挡的，就是要抠门不想给太多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 46515#       发表于 2024-7-12 18:21
+
+开服+满签人数少吧
+

@@ -2649,3 +2649,19 @@ CNM 我吐了 梭哈就出来一个四星铃鹿 给我个水C呆能死啊</block
 
 这活动的“贸易”页显示结束时间和兑换的一样，不会活动结束还能继续贸易吧反正多打点活动材料到时候不行可以直接换QP
 
+
+*****
+
+####  森兰丸  
+##### 13041#       发表于 2024-7-13 05:00
+
+<img src="https://img.saraba1st.com/forum/202407/13/045830rrsgn4rw5svn4n5j.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 04:58 上传
+
+大半夜迷迷糊糊的醒了.....打开游戏一看狂C呆卡池开了.....就仍了一张护符进去.....直接出彩圈....一下子睡意全无了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

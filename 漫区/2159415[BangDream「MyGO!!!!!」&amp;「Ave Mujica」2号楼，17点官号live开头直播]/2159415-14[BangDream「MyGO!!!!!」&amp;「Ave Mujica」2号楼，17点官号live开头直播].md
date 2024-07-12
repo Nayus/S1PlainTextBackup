@@ -7157,3 +7157,13 @@ ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
 
 [https://x.com/okada_mei0519/status/1811612017637360097](https://x.com/okada_mei0519/status/1811612017637360097)
 
+
+*****
+
+####  NODY  
+##### 19885#       发表于 2024-7-12 12:09
+
+独角兽之前还能在推特用开玩笑的语气说想写海希写不了呢，说明写脚本部分的沟通反而没什么大问题，那问题就是分镜演出的阶段了，也就是取关的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也符合独角兽说喜欢真实感、写mygo和mujica代入自己的经历，大概就是想搞体现自己内心的写实作品结果发现柿本搞出个魔法少女吧
+

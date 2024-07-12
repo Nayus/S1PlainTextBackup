@@ -1365,3 +1365,14 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 因为这段是动补过场，还在打，黎恩那句台词都是动补的时候说的，因为没有对话框 ...</blockquote>
 我是说包括miniost那张，黎恩背后反而像门
 
+
+*****
+
+####  wang56438250  
+##### 1609#       发表于 2024-7-13 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65569863&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-13 02:08</a>
+
+我是说包括miniost那张，黎恩背后反而像门</blockquote>
+我说了啊，因为两人动补在打啊，肯定动来动去的啊
+

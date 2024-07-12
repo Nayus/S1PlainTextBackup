@@ -867,3 +867,13 @@ falcom发售日雷打不动，那不就是看友商会不会在附近发售</blo
 前几天听到界轨的BGM，我直接黎轨加入愿 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">挺好，不用赤石了，今年入界轨甚至有九成概率还得等到2026才能把史赤完
 
+
+*****
+
+####  妄想中毒  
+##### 1567#       发表于 2024-7-12 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65563883&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-7-12 15:22</a>
+服设这个东西真的只能死心了，艾纳米不负责黎轨的人设，也就是说黎轨的服设日渐下降甚至达到敷衍的程度， ...</blockquote>
+道理我都懂可是黎2的赛车女郎服真的很顶<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

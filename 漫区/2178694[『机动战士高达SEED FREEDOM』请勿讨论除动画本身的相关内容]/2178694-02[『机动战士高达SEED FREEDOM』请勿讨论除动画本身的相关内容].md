@@ -67,3 +67,12 @@
 
 这千禧年号就是个披着战舰皮的MA。
 
+
+*****
+
+####  stevenzero  
+##### 1812#       发表于 2024-7-12 18:07
+
+这不挺好的吗，准将改改你那穿衣风格吧
+<img src="https://p.sda1.dev/18/bfc6b9b9f5dda46f92442a5cda890744/20eg0h5f1wkeqwicbkrd85xl6.jpg" referrerpolicy="no-referrer">
+

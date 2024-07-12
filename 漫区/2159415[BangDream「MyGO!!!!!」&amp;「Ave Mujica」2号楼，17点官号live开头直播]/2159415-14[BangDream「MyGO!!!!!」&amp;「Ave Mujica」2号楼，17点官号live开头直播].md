@@ -7121,3 +7121,39 @@ aaaaaaaaaaaaaaaaaaaa他媽的初華怎麼才160公分我不接受啊啊啊啊啊
 
 如果脚本被改动了（这个一般也是脚本会议/脚本制作阶段的事），我觉得她的着眼点就不是分镜有没有让她check的问题了
 
+
+*****
+
+####  御幸一也  
+##### 19884#       发表于 2024-7-12 12:05
+
+ave裡面的人都好愛啊，結月為了配合睦寶留長了一點頭髮，
+
+夢以則是為了配合海鈴的形象剪短了一點<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/120503ybc5oodd7kh77l55.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (19.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/120507pv989b0pqo6btmmw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240712-040217_1811612017637360097_photo-0.jpg</strong> (254.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/12/120510p599bjbs7jym41yy.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_岡田 夢以(@okada_mei0519)_20240712-040217_1811612017637360097_photo-1.jpg</strong> (317.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 12:05 上传
+
+[https://x.com/okada_mei0519/status/1811612017637360097](https://x.com/okada_mei0519/status/1811612017637360097)
+

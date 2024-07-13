@@ -1619,3 +1619,27 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 那真是有点难绷了</blockquote>
 都不粉，硬要说我更怀念伊苏vs空轨时期的村上，哦对了还有09年伊苏编年史的村上，但在没有村上高度参与的现在，至少e大师在我这比toi8在伊苏10画的那坨玩意强那么点的
 
+
+*****
+
+####  法拉  
+##### 153#       发表于 2024-7-13 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572473&amp;ptid=2189984" target="_blank">慕容断月 发表于 2024-7-13 14:01</a>
+
+可他参与的只有4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有4吗，你可以谷歌一下
+
+*****
+
+####  慕容断月  
+##### 154#       发表于 2024-7-13 14:14
+
+ 本帖最后由 慕容断月 于 2024-7-13 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572543&amp;ptid=2189984" target="_blank">法拉 发表于 2024-7-13 14:12</a>
+
+只有4吗，你可以谷歌一下</blockquote>
+你不说我还没意识到手游好像也有
+
+1代那个改良版是不是？
+

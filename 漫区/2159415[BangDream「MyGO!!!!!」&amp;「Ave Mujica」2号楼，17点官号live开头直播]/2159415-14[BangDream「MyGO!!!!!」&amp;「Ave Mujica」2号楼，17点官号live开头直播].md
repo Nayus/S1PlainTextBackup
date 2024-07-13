@@ -9449,3 +9449,68 @@ https://weibo.com/7931903861/5055379165415017
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  PDQ4  
+##### 20079#       发表于 2024-7-13 15:45
+
+ 本帖最后由 PDQ4 于 2024-7-13 15:50 编辑 
+
+我还是相信我们mujica会变成你邦最先进的五人婚团
+
+李子的戒指都送出去了，有心的制作组必然会在最后的画面给一个五人戒指特写<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+如果觉得给在人身上太超过，那pv已经给出了新的答案，五个小玩偶贴贴穿上配套小毛衣挂上同款戒指
+
+柿本和绫奈的冲突我已经完全理解了，绫奈想要一个盛大live作为五人婚礼，柿本为代表的人劳保属性发作写家庭伦理剧就算了，说邦邦8+企划小朋友看不得这种，只能各种隐喻
+
+总之没有五人婚肯定是制作组的问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20080#       发表于 2024-7-13 15:46
+
+反正灯希、猫希、海希的立希都有点抽卡保底的美，有其他cp可以推的时候没立希啥事，但如果官方有剧情主推cp或者推热度高的cp导致有人落单，立希就去当保底陪一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+灯这边官推被冷落导致发配立希真的只能怪羊不努力了，人鼓凛就能靠着自己努力硬生生把被官方踩死的粉黑吊起半条命
+
+
+*****
+
+####  滑稽Captain  
+##### 20081#       发表于 2024-7-13 15:52
+
+广播时代一直是纯纯的灯希呀，连爱灯都没多少
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星天观测  
+##### 20082#       发表于 2024-7-13 15:53
+
+所以说现在有种回归初心的美啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20083#       发表于 2024-7-13 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573239&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 15:46</a>
+
+反正灯希、猫希、海希的立希都有点抽卡保底的美，有其他cp可以推的时候没立希啥事，但如果官方有剧情主推cp ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/155454decb89pp8cre8cbh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_はんすく(@hansku987)_20240713-064408_1812015135319568663_photo.jpg</strong> (939.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 15:54 上传
+
+[https://x.com/hansku987/status/1812015135319568663](https://x.com/hansku987/status/1812015135319568663)
+

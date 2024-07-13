@@ -10404,3 +10404,42 @@ WSD面具直接扔上海不用帶回去了
 
 當然是相當難吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20167#       发表于 2024-7-13 22:58
+
+ 本帖最后由 御幸一也 于 2024-7-13 23:00 编辑 
+
+天啊她們穿場T真的好可愛<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  鳥栖朝  
+##### 20168#       发表于 2024-7-13 23:00
+
+为什么我不是沪✌️.jpg
+
+
+*****
+
+####  御幸一也  
+##### 20169#       发表于 2024-7-13 23:02
+
+什麼時候自己的單獨LIVE也能有這個環節 一人血書武士道讓ave拿下面具<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20170#       发表于 2024-7-13 23:03
+
+過了零點一刷推特就看到鬼圖，信澤這次的是不是特別鬼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 20171#       发表于 2024-7-13 23:07
+
+明天就轮到我去看Mujica咯<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

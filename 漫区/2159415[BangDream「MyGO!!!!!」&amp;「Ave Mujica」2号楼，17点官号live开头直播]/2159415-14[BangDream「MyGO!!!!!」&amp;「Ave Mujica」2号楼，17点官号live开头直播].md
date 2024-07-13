@@ -9413,3 +9413,39 @@ https://weibo.com/7931903861/5055379165415017
 
 还好这种问题不会在鸡身上出现
 
+
+*****
+
+####  akiomn  
+##### 20075#       发表于 2024-7-13 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初华和睦都和大祥绑的太死了。海玲和喵梦估计会卖下海喵，不知道有没有海睦和喵祥
+
+*****
+
+####  NODY  
+##### 20076#       发表于 2024-7-13 15:36
+
+其实我感觉立希也是海铃的抽卡保底，mygo动画的时候海铃还没入团所以推一下海希，等海铃有了队内cp可以推就不需要立希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然不排除海铃的队内cp没推起来或者其他队内cp太火，所以wsd转回去推海希这个保底的可能性，前车之鉴也有不少了
+
+*****
+
+####  星天观测  
+##### 20077#       发表于 2024-7-13 15:38
+
+海睦应该会有的吧，不然第一季的唐突海睦片段要没法解释了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便初华的瞳色也是喵梦的发色，来点初喵也可以
+
+*****
+
+####  第七軍伐戎処  
+##### 20078#       发表于 2024-7-13 15:40
+
+<img src="https://p.sda1.dev/18/ac68d906ecf8be8abb6ac5c8d6f44df7/image.jpg" referrerpolicy="no-referrer">
+恐怖2.0
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

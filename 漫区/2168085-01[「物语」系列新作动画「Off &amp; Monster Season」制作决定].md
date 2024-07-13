@@ -1765,3 +1765,15 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 点子王 斧乃木余接<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  歪镜  
+##### 382#       发表于 2024-7-14 01:39
+
+<blockquote>tiro_finale 发表于 2024-7-14 00:24
+抚子这个一万小时是在瞎吉尔估算吧，先是取24的近似25，折算出400天，然后因为多加了，下修到约一年
+
+但是你 ...</blockquote>
+辍学丈育，理解一下
+

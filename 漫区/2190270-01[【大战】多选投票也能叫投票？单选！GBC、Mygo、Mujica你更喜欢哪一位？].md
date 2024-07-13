@@ -1085,3 +1085,16 @@ gbc票多的也就27486，其他几个人加起来才50票多点
 
 喜欢圣爱音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aptx8285144  
+##### 105#       发表于 2024-7-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65561344&amp;ptid=2190270" target="_blank">花火 发表于 2024-7-12 11:37</a>
+
+486是被anon分票了吗, 明明gbc单投是比27多的.
+
+小孩姐的特性真是独一无二.</blockquote>
+人气单投时，安岂止比27多，27和桃香加在一起还没等于安呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8724,3 +8724,40 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  PDQ4  
+##### 20024#       发表于 2024-7-13 11:42
+
+老登gachi太多了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 20025#       发表于 2024-7-13 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65570969&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-13 10:18</a>
+
+河口湖不能帶上祥子讓她去追星嗎</blockquote>
+【【BanG Dream!】邦多利TV LIVE 2024 #212】 [https://www.bilibili.com/video/B ... dfcd9b78924c5908c6a](https://www.bilibili.com/video/BV1ap42197Sx/?share_source=copy_web&amp;vd_source=fa7d512922707dfcd9b78924c5908c6a)
+
+212那期就有过了
+
+*****
+
+####  御幸一也  
+##### 20026#       发表于 2024-7-13 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65571481&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-13 11:43</a>
+
+【【BanG Dream!】邦多利TV LIVE 2024 #212】 https://www.bilibili.com/video/BV1ap42197Sx/?share_sour ...</blockquote>
+多追幾次<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 20027#       发表于 2024-7-13 11:46
+
+社长，彩沙，音宝，李子，nonnon这么搭配？
+

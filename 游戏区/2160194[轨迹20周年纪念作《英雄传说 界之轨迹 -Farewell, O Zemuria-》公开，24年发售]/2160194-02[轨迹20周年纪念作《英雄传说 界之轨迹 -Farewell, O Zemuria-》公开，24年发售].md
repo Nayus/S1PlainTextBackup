@@ -1714,3 +1714,13 @@ Van：毋庸置疑的地下灰色地带人物
 
 写作白色读作黎明，是隔壁海贼王<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1645#       发表于 2024-7-13 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573953&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-13 17:05</a>
+是这样的，创里NE黎的意思就是这样，界里目前可以知道两个人上去了，一是艾梅丝二是Van，想必也是需要用 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三者共性可能是可以通过外部装甲来突破，毕竟哪怕黑黎，黑的力量应该也是在骑神身上吧。
+

@@ -9827,3 +9827,11 @@ mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  星天观测  
+##### 20112#       发表于 2024-7-13 17:07
+
+是这张，lisa这种马尾的造型好少，这套发型好看衣服也好看，是我游戏里的lisa冬季常驻皮肤<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

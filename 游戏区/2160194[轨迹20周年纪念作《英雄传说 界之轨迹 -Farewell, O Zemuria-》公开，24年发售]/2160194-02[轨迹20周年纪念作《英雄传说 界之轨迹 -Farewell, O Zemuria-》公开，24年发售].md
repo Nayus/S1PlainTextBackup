@@ -1772,3 +1772,11 @@ Van：毋庸置疑的地下灰色地带人物
 
 或者直接吃书也不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1650#       发表于 2024-7-13 18:38
+
+才发现op歌词有点意思，不过也仅限于有点意思了。
+

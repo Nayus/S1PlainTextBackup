@@ -10034,3 +10034,46 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 [https://x.com/akni105/status/1812081741924082122](https://x.com/akni105/status/1812081741924082122)
 
+
+*****
+
+####  御幸一也  
+##### 20133#       发表于 2024-7-13 20:17
+
+就是本人.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/201729x9qtt3fwqgzf8azf.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_SIEIN🎀 ポォロ(@this_is_nn)_20240713-111740_1812083971582501165_photo.jpg</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/201727snk5vt7vi5letll9.jpg" referrerpolicy="no-referrer">
+
+<strong>GSXZV22WgAAjouN.jpg</strong> (99.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 20:17 上传
+
+[https://x.com/this_is_nn/status/1812083971582501165](https://x.com/this_is_nn/status/1812083971582501165)
+
+*****
+
+####  御幸一也  
+##### 20134#       发表于 2024-7-13 20:19
+
+原來這色紙真的有人抽中，都半年前的東西了現在才<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/201903wvbjnlpcavvbpalv.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_寿 りあ(@mito_etta)_20240712-130116_1811747654843724048_photo.jpg</strong> (246.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 20:19 上传
+
+[https://x.com/mito_etta/status/1811747654843724048](https://x.com/mito_etta/status/1811747654843724048)
+

@@ -9514,3 +9514,52 @@ https://weibo.com/7931903861/5055379165415017
 
 [https://x.com/hansku987/status/1812015135319568663](https://x.com/hansku987/status/1812015135319568663)
 
+
+*****
+
+####  御幸一也  
+##### 20084#       发表于 2024-7-13 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/155702b2k13zpwrbxcmmwm.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_はんすく(@hansku987)_20240713-064408_1812015135319568663_photo.jpg</strong> (939.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 15:57 上传
+
+[https://x.com/hansku987/status/1812015135319568663](https://x.com/hansku987/status/1812015135319568663)
+
+*****
+
+####  第七軍伐戎処  
+##### 20085#       发表于 2024-7-13 15:59
+
+<img src="https://p.sda1.dev/18/71552cc345e07f80c891fc2d3ad979bb/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  Aendst  
+##### 20086#       发表于 2024-7-13 16:01
+
+已经从三人婚进步到五人婚了吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20087#       发表于 2024-7-13 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573281&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-13 15:52</a>
+
+广播时代一直是纯纯的灯希呀，连爱灯都没多少
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+灯希现在作为推美帝的保底误打误撞回归初设了，倒也不算是坏事<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+就是磕爱灯的只能怪羊不够努力了，不过你羊姐确实不怎么磕爱灯，她访谈最喜欢cue的是灯祥
+

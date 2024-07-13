@@ -233,3 +233,13 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 看到鱼鞋子上的透明绑带了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 20535#       发表于 2024-7-14 00:32
+
+看了很多切片熟肉，才知道这次fmt这么好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然配信一个不落，但是日语听力基础几乎为0，全靠猜测大概意思，看来fmt还是很需要听力基础
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

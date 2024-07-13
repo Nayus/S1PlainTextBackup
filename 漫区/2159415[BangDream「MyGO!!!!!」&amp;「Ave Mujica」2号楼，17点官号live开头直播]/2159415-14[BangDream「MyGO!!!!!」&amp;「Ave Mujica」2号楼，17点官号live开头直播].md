@@ -8847,3 +8847,105 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 查看全部评分
 
+
+*****
+
+####  紫吹兰  
+##### 20034#         楼主| 发表于 2024-7-13 12:20
+
+<img src="https://img.saraba1st.com/forum/202407/13/121901iipxqxqpylnx3s5c.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720839638267.jpg</strong> (299.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/121912k9xx333a347cc1a1.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720843341472.jpg</strong> (209.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/121919timjurimi82usdqr.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720843776600.jpg</strong> (251.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 12:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/121924bdpeujeqn4ivlpe4.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720844075864.jpg</strong> (209.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 12:19 上传
+
+每一个木谷gachi都得到了木谷哥哥的认可，木谷gachi成了今天最幸福的人了
+
+*****
+
+####  第七軍伐戎処  
+##### 20035#       发表于 2024-7-13 12:22
+
+<img src="https://p.sda1.dev/18/bfc0991118ba6e0ba30372180f058319/image.jpg" referrerpolicy="no-referrer">
+这老哥绝了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  御幸一也  
+##### 20036#       发表于 2024-7-13 12:23
+
+還有2個月就是一周年了，不知道能不能衝200萬<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+[https://www.youtube.com/watch?v=QDsd0nyzwz0](https://www.youtube.com/watch?v=QDsd0nyzwz0)
+
+<img src="https://img.saraba1st.com/forum/202407/13/122238tcasgw7al7p67c6u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 12:22 上传
+
+*****
+
+####  罗克萨斯  
+##### 20037#       发表于 2024-7-13 12:23
+
+响给新人声优的待遇是不是很好，青木阳菜相比三年前圆润了很多，肉眼可见过得不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  第七軍伐戎処  
+##### 20038#       发表于 2024-7-13 12:25
+
+[【BW2024UP主舞台-哔哩哔哩直播】https://b23.tv/0vKuvrx](https://b23.tv/0vKuvrx)
+MyGO的活动14：15开始，有
+<img src="https://p.sda1.dev/18/c8248de1e57829a4c8bd2ee397e600ae/image.jpg" referrerpolicy="no-referrer">
+然后好像四点多在邦邦的展台也会出现，已经有不少人在那蹲着了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4|-1|美帝你会看吗（）|
+| 御幸一也|-1||
+
+查看全部评分
+

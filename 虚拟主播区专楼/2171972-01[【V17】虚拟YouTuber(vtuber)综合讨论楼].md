@@ -385,3 +385,11 @@ TUBEOUT居然在B站开号了，今后会有国V专场吗<img src="https://stati
 
 [https://www.bilibili.com/video/BV1K8bWekE7H](https://www.bilibili.com/video/BV1K8bWekE7H)
 
+
+*****
+
+####  freakystar  
+##### 456#       发表于 2024-7-13 22:27
+
+不破在虹gta期间好像还抽空学玩职棒，这么拼表现可以期待一下
+

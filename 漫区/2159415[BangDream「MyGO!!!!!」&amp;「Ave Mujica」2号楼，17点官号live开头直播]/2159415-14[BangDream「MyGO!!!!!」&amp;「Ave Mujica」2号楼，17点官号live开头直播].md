@@ -9023,3 +9023,25 @@ MyGO的活动14：15开始，有
 
 [https://x.com/mumumunomuni/status/1811783958650323345](https://x.com/mumumunomuni/status/1811783958650323345)
 
+
+*****
+
+####  绯想alter2nd  
+##### 20044#       发表于 2024-7-13 13:44
+
+真有mggm痛衣啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20045#       发表于 2024-7-13 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572363&amp;ptid=2159415" target="_blank">绯想alter2nd 发表于 2024-7-13 13:44</a>
+真有mggm痛衣啊</blockquote>
+<img src="https://p.sda1.dev/18/5d69d871576a6d11b8bd530a8f438ea0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6c7285bd6e970036762d6d4c7763b5e3/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">震撼staff
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

@@ -1626,3 +1626,11 @@ Van：毋庸置疑的地下灰色地带人物
 
 顺便回顾了下创NE黎的话，NE黎表示跟伊修麦格合为一体后就能打破女神枷锁去任何地方，也就是突破大气层到外太空需要打破女神枷锁才行，那本作到底用了什么方法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1635#       发表于 2024-7-13 16:27
+
+白色世界吗，你们记不记得近藤说黎轨的意思是黎明到来前的最后黑暗阶段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

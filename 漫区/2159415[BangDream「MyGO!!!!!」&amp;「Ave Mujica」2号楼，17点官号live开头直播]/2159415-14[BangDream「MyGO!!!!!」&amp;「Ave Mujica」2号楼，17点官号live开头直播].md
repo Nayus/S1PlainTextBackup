@@ -9673,3 +9673,89 @@ mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有�
 那卖灯希是为了让立希疯狂安利AG，然后羊以追星为名义和佐仓贴吗</blockquote>
 手游最新两次卖灯希确实都是和ag一起卖的，这下破案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20099#       发表于 2024-7-13 16:26
+
+这下真的完全连起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20100#       发表于 2024-7-13 16:27
+
+<img src="https://p.sda1.dev/18/e68ac45c3e6cebb0c9e95ac5b3f85f3f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1fc0c0d777cfae250ba7a9822ba70f44/image.jpg" referrerpolicy="no-referrer">
+这二次会人也不少
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| akirakira|-1|对对对|
+
+查看全部评分
+
+*****
+
+####  Артём  
+##### 20101#       发表于 2024-7-13 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573573&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 16:26</a>
+
+这下真的完全连起来了啊</blockquote>
+头像好看，能给个原图喵？<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡密sama  
+##### 20102#       发表于 2024-7-13 16:32
+
+结束走一半啊
+
+<img src="https://img.saraba1st.com/forum/202407/13/163226iylv1dycyp1171p7.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240713163157.png</strong> (40.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 16:32 上传
+
+*****
+
+####  第七軍伐戎処  
+##### 20103#       发表于 2024-7-13 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573630&amp;ptid=2159415" target="_blank">卡密sama 发表于 2024-7-13 16:32</a>
+结束走一半啊</blockquote>
+怎么可能只有一半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最后也就剩五分之一吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  Farlight  
+##### 20104#       发表于 2024-7-13 16:34
+
+去不了现场，等盗摄了
+
+*****
+
+####  星天观测  
+##### 20105#       发表于 2024-7-13 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573590&amp;ptid=2159415" target="_blank">Артём 发表于 2024-7-13 16:29</a>
+
+头像好看，能给个原图喵？</blockquote>
+忘了在哪里存的lisa的图，翻了翻找不到存哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+

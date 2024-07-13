@@ -8466,3 +8466,132 @@ BV1ib421E7vd
 
 鸡全员回的熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20005#       发表于 2024-7-12 22:53
+
+點圖說想看和祥子距離太近陷入慌亂的初華<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/12/224811whpmg779byb01c9g.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_七海(@nunnun_0410)_20240712-125036_1811744972888231984_photo.jpg</strong> (365.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-12 22:48 上传
+
+[https://x.com/nunnun_0410/status/1811744972888231984](https://x.com/nunnun_0410/status/1811744972888231984)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yifan8848| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  yifan8848  
+##### 20006#       发表于 2024-7-12 23:35
+
+重溫一下昨天邦TV，結月的聲音中氣十足
+
+難想像結月半夜看台本害怕的樣子
+
+求求你了WSD，復刻一下角色不可崩鬼屋篇吧
+
+*****
+
+####  Libartas  
+##### 20007#       发表于 2024-7-12 23:55
+
+问一下便乘人之歌歌词真是独角兽写的吗？
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Aloereed  
+##### 20008#       发表于 2024-7-13 00:33
+
+还真是zsbd...
+
+*****
+
+####  银酒监武  
+##### 20009#       发表于 2024-7-13 01:16
+
+有没有感觉米泽茜才是这十个人里最像高松灯的，上节目表现出的阴角和害羞当然不用说，把蛋糕的巧克力盖在冰箱里裹保鲜膜放两年，十足的重女+收集癖，再加上把这个事发出来的电波反常识，我觉得没有更像的了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/adc3ca60272410133e1a2f1ae7c62ffe/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测|-1|高松灯没有自己的声优吗|
+| -LYRE-|-1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  哈曼的YY  
+##### 20010#       发表于 2024-7-13 01:23
+
+发错
+
+*****
+
+####  Mirtis  
+##### 20011#       发表于 2024-7-13 02:33
+
+这下不止脸和数字还有中之人了
+
+*****
+
+####  likeny  
+##### 20012#       发表于 2024-7-13 04:08
+
+BV1ib421E7vd
+
+鸡全员回的熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 66367749| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 20013#       发表于 2024-7-13 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65568816&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-7-12 23:35</a>
+
+重溫一下昨天邦TV，結月的聲音中氣十足
+
+難想像結月半夜看台本害怕的樣子
+
+求求你了WSD，復刻一下角色不可崩 ...</blockquote>
+她在李子講恐怖故事的時候看起來就很怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -100,3 +100,11 @@
 
 二代庆典就一个优衣库联动没打。三代庆典目前没缺过。一代缺的好像蛮多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 4805#       发表于 2024-7-13 08:24
+
+怎么准备祭是宫殿第一啊，我看投票都是游乐园最多啊。莎莎队这么能肝
+

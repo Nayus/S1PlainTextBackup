@@ -9872,3 +9872,11 @@ PPP这首Tremolo Eyes编的感觉像是常见的Tele邦摇
 
 —— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  NODY  
+##### 20116#       发表于 2024-7-13 18:00
+
+羊看不上底边对狗不上心，wsd就只能多推美帝多推猫（总集篇都开始单出猫周边了），把灯发配给立希，把被抛弃的古早cp灯希拉出来给灯吃个保底了，但该说不说，猫有了单独卖的机会，美帝吃糖吃饱饱，立希到处陪人当保底反而有了更多塑造，灯戏份还在也不算亏，总体来说也不算坏事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

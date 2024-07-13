@@ -10451,3 +10451,26 @@ WSD面具直接扔上海不用帶回去了
 
 好好好，明天轮到我去看了，不知道藏的曲会不会变<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  丹德里恩  
+##### 20173#       发表于 2024-7-13 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">最后悔没抢到票的一集
+
+*****
+
+####  NODY  
+##### 20174#       发表于 2024-7-13 23:19
+
+对中华炮这么良心，我真要怀疑明天会唱water来补偿没有直播的七夕特供了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20175#       发表于 2024-7-13 23:22
+
+water应该不可能吧，就4首歌还让其他三个收工一整首，感觉还是symbol1和2可能性比较大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

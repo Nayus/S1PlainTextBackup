@@ -1519,3 +1519,24 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 伊克斯这个换皮冰S不太明白是什么意思，还换了身白衣
 
+
+*****
+
+####  一步成诗  
+##### 1624#       发表于 2024-7-13 15:08
+
+目前的情报来看整部都有点水，虽然不会比黎2更水了但一看就不是地区完结篇，讨论欲望都没有还没喷画师来劲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsubasa2000  
+##### 1625#       发表于 2024-7-13 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572508&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-13 14:06</a>
+
+主角衣服大正风格，裤子和鞋是现代风格。
+
+建筑古代+现代混搭</blockquote>
+能做成樱花大战精神续作我五年之内不黑falcom
+

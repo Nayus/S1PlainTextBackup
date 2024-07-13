@@ -9279,3 +9279,49 @@ soyorin<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 错过了，有无录播</blockquote>
 目前只有这个BV1MW421d7GL，up主说画质不太行
 
+
+*****
+
+####  akiomn  
+##### 20062#       发表于 2024-7-13 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572890&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 15:04</a>
+怎么感觉wsd现在大力推爱素冷落爱灯和声优也有不小的关系，幸好mujica这边是没有这方面问题了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wsd要是有这脑子就好了
+反正爱素都断档第一了，鸡团估计很难出现超越爱素的cp
+
+
+*****
+
+####  PDQ4  
+##### 20063#       发表于 2024-7-13 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572890&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 15:04</a>
+
+怎么感觉wsd现在大力推爱素冷落爱灯和声优也有不小的关系，幸好mujica这边是没有这方面问题了 ...</blockquote>
+想太多，你还不如说羊看自己邦热度扶不起来所以冷淡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  M829A4  
+##### 20064#       发表于 2024-7-13 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那灯要推什么cp
+
+*****
+
+####  NODY  
+##### 20065#       发表于 2024-7-13 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572972&amp;ptid=2159415" target="_blank">M829A4 发表于 2024-7-13 15:13</a>
+
+那灯要推什么cp</blockquote>
+看手游剧情是发配给底边立希了，有种打入冷宫的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20066#       发表于 2024-7-13 15:16
+
+李子已经开吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1745,3 +1745,15 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 但是你 ...</blockquote>
 本来就是跟数字论证114514一个水平的段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 380#       发表于 2024-7-14 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65577269&amp;ptid=2168085" target="_blank">tiro_finale 发表于 2024-7-14 00:24</a>
+抚子这个一万小时是在瞎吉尔估算吧，先是取24的近似25，折算出400天，然后因为多加了，下修到约一年
+
+但是你 ...</blockquote>
+抚子本来就是笨比
+

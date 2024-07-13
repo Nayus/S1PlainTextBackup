@@ -8640,3 +8640,14 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 “aiai你的汉字怎么又写错了，一定是ave mujica的人干的，她们为了胜利把你的卷子改了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20018#       发表于 2024-7-13 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65570969&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-13 10:18</a>
+
+河口湖不能帶上祥子讓她去追星嗎</blockquote>
+之前已经单独追星过一次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

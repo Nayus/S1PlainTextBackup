@@ -1440,3 +1440,30 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ky怪  
+##### 1616#       发表于 2024-7-13 10:39
+
+『界之轨迹』OP -Short Ver.（自翻中日双歌词）By falbgm
+[https://www.bilibili.com/video/BV1mb421n7pn/](https://www.bilibili.com/video/BV1mb421n7pn/)
+
+
+*****
+
+####  smdzh2  
+##### 1617#       发表于 2024-7-13 10:42
+
+更加看好明年京轨了
+京轨：你只不过是生在没有我的时代的凡夫俗子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1618#       发表于 2024-7-13 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">京都迷城目前看起来挺可能是前传的，那时代大概会是二战后冷战结束前的7，80年代这个昭和最黄金的时期或者直接倒车到大正
+
+这些历史时期能写出好剧情的题材还不少，虽然都沾点鉴证，不过你法社在你轨确实挺喜欢写过家家鉴证的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不知道你法社文案有没有水平了（
+

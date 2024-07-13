@@ -222,3 +222,14 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 20534#       发表于 2024-7-13 21:35
+
+结娜美美的。
+
+看到鱼鞋子上的透明绑带了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

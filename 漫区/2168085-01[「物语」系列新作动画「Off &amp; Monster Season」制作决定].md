@@ -1573,3 +1573,18 @@ woOPne<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" refe
 
 op画面不会还没做完吧，真就shaft传统
 
+
+*****
+
+####  oi99o  
+##### 361#       发表于 2024-7-13 21:31
+
+这集演出小点子很多，节奏也不错。果然动画的主叙述者还是得带点感情起伏才好，像斧乃木那样的叙述者真的太闷了
+
+*****
+
+####  ⑨个饼干  
+##### 362#       发表于 2024-7-13 21:34
+
+还是没OP，真就跟第二季那样随机出现OP呗，shaft我要鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

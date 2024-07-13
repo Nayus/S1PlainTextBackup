@@ -267,3 +267,39 @@ PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
 <img src="https://p.sda1.dev/18/f40758d7b481f5e0d588abac05b24148/20240713_001010.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/17409bc45d75291f736e93b567444874/20240713_001015.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gochri  
+##### 96#       发表于 2024-7-14 04:05
+
+7月15日｜アニメ『ATRI -My Dear Moments-』の第1話から第6話までの一挙上映会の開催が決定しました by [https://atri-anime.com/news/?article_id=65749](https://atri-anime.com/news/?article_id=65749)
+
+--------------------------------------
+
+2024.07.07
+
+7月15日｜海の日一挙上映会の開催が決定しました
+
+アニメ『ATRI -My Dear Moments-』の第1話から第6話までの一挙上映会の開催が決定しました。アニメ本編を先んじて視聴できる機会をぜひお見逃しなく！
+
+【アニメ『ATRI -My Dear Moments-』海の日上映会】
+
+実施日：2024年7月15日（月・祝）
+
+実施内容：アニメ『ATRI -My Dear Moments-』本編一挙上映
+
+実施時間：19:00の回
+
+実施劇場：新宿バルト９
+
+上映話数：第1話から第6話まで
+
+チケット料金：2,100円（税込）
+
+チケット申込方法：オンラインチケット予約KINEZOにて
+
+7月7日 (日)0:00（＝7月6日（土）24:00)より販売
+
+[https://tjoy.jp/shinjuku_wald9](https://tjoy.jp/shinjuku_wald9)
+

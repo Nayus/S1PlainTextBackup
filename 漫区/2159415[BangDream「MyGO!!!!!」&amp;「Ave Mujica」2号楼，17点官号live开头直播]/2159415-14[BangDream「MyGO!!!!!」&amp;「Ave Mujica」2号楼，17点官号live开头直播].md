@@ -9254,3 +9254,28 @@ soyorin<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 小羊不会是知道要现场演奏不来了吧</blockquote>
 这气氛到了不唱几句说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寒星  
+##### 20059#       发表于 2024-7-13 14:54
+
+错过了，有无录播
+
+
+*****
+
+####  NODY  
+##### 20060#       发表于 2024-7-13 15:04
+
+怎么感觉wsd现在大力推爱素冷落爱灯和声优也有不小的关系，幸好mujica这边是没有这方面问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绯想alter2nd  
+##### 20061#       发表于 2024-7-13 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572812&amp;ptid=2159415" target="_blank">寒星 发表于 2024-7-13 14:54</a>
+错过了，有无录播</blockquote>
+目前只有这个BV1MW421d7GL，up主说画质不太行
+

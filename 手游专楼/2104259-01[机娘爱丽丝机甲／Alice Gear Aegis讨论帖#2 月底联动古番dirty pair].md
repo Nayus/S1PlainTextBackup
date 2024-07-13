@@ -111,3 +111,15 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">ST假美国人衣服都只是ST真美国人换个色（
 
+
+*****
+
+####  江戸前ルナ  
+##### 1120#         楼主| 发表于 2024-7-13 11:11
+
+ 本帖最后由 江戸前ルナ 于 2024-7-13 11:12 编辑 
+
+[https://x.com/kumaki_20190619/status/1811705387361665090](https://x.com/kumaki_20190619/status/1811705387361665090)
+
+所以阿金就是不懂人心了这次
+

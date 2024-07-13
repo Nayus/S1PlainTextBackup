@@ -54,3 +54,20 @@
 
 被缚王御前的狐夫需要快速击杀，因为他拼点输了或用过ego后很容易进侵蚀...不过我那次他侵蚀的是电狼，三个目标两个自己人，索性没管他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 795#       发表于 2024-7-13 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65575756&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-7-13 20:54</a>
+
+我第一次打也是选的拼点强度，后来发现正常拼点并不容易输，对面上了ego自己也出大骰ego对拼就行（话说小 ...</blockquote>
+缚王我是一次过，虽然到最后资源不足了所以第二次面具选了资源然后用初始EGO拼一拼这样子……
+
+电狼和液袋都属于evp神器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+平常环境根本不会出现这次轨道线的用法
+
+反而是永恒这种高级别EGO不值一提了
+

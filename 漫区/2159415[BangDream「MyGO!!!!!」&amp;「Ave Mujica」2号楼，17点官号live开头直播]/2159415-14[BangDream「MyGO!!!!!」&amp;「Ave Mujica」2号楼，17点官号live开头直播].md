@@ -10172,3 +10172,25 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想都尴尬
 
+
+*****
+
+####  相坂君  
+##### 20141#       发表于 2024-7-13 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是想要某次邦TV氛围再复刻吗？五个熟人不好吗
+
+*****
+
+####  星天观测  
+##### 20142#       发表于 2024-7-13 21:03
+
+如果是说去上海迪士尼那难得出国玩一次还是跟熟悉的人开开心心的吧好像没有硬凑的必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 20143#       发表于 2024-7-13 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有偷录的团歌部分视频了，梦以真的跑到米泽茜那边去了
+

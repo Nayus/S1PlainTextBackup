@@ -1558,3 +1558,18 @@ https://w ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 359#       发表于 2024-7-13 21:02
+
+woOPne<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 360#       发表于 2024-7-13 21:02
+
+op画面不会还没做完吧，真就shaft传统
+

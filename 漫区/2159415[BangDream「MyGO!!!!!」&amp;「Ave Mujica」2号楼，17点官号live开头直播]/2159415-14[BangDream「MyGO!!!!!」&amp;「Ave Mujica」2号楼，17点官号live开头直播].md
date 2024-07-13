@@ -9616,3 +9616,60 @@ https://weibo.com/7931903861/5055379165415017
 
 那杨姐是不是应该十周年活动的时候找ag狂贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20093#       发表于 2024-7-13 16:16
+
+羊姐不是去年就讨论过的，不然打牌这个称呼怎么传起来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过希祥我也是可以的，鼓弄明显的会线下粮不少，而且作曲组有说法，花女1B我也觉得有看头，不过手游立希不是很敢贷<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20094#       发表于 2024-7-13 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573471&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 16:14</a>
+
+那杨姐是不是应该十周年活动的时候找ag狂贴</blockquote>
+那卖灯希是为了让立希疯狂安利AG，然后羊以追星为名义和佐仓贴吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20095#       发表于 2024-7-13 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但凡裡面的人關係性能逆輸入1%到作品裡……
+
+*****
+
+####  星天观测  
+##### 20096#       发表于 2024-7-13 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573512&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-13 16:18</a>
+
+那卖灯希是为了让立希疯狂安利AG，然后羊以追星为名义和佐仓贴吗</blockquote>
+完了，逻辑通顺了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20097#       发表于 2024-7-13 16:20
+
+mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有互动很可能是立希当让祥子伤心的坏人，这点来说真要贷互动也还是贷手游好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+除非动画真的有点良心看在中之人关系好的份上给立希个面子让立希不要发病
+
+*****
+
+####  NODY  
+##### 20098#       发表于 2024-7-13 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573512&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-13 16:18</a>
+
+那卖灯希是为了让立希疯狂安利AG，然后羊以追星为名义和佐仓贴吗</blockquote>
+手游最新两次卖灯希确实都是和ag一起卖的，这下破案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -9229,3 +9229,28 @@ soyorin<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Alicest  
+##### 20056#       发表于 2024-7-13 14:45
+
+笑死我了，说是希望能五个人来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯想alter2nd  
+##### 20057#       发表于 2024-7-13 14:51
+
+小羊不会是知道要现场演奏不来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dqtql  
+##### 20058#       发表于 2024-7-13 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572797&amp;ptid=2159415" target="_blank">绯想alter2nd 发表于 2024-7-13 14:51</a>
+小羊不会是知道要现场演奏不来了吧</blockquote>
+这气氛到了不唱几句说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

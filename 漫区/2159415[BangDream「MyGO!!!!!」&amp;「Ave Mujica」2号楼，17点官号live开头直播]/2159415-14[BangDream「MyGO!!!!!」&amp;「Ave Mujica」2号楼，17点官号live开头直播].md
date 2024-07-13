@@ -9941,3 +9941,26 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 看repo说mujica是中文mc
 
+
+*****
+
+####  yicihanshu  
+##### 20124#       发表于 2024-7-13 19:17
+
+第四首是 angle
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  yicihanshu  
+##### 20125#       发表于 2024-7-13 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65574989&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 19:15</a>
+看repo说mujica是中文mc</blockquote>
+李子说了两句中文
+然后祖传祥子喊人的过场
+其他没mc了
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

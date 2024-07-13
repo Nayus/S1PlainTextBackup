@@ -1595,3 +1595,27 @@ enami四兄弟
 
 —— 来自 Xiaomi 22081212G, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  慕容断月  
+##### 151#       发表于 2024-7-13 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65557681&amp;ptid=2189984" target="_blank">法拉 发表于 2024-7-11 23:47</a>
+
+e圣的真爱是星之海洋，产能质量都在线</blockquote>
+可他参与的只有4<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  慕容断月  
+##### 152#       发表于 2024-7-13 14:03
+
+ 本帖最后由 慕容断月 于 2024-7-13 14:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65561527&amp;ptid=2189984" target="_blank">maojiashu 发表于 2024-7-12 11:53</a>
+
+你不会是e大师粉丝吧 
+
+那真是有点难绷了</blockquote>
+都不粉，硬要说我更怀念伊苏vs空轨时期的村上，哦对了还有09年伊苏编年史的村上，但在没有村上高度参与的现在，至少e大师在我这比toi8在伊苏10画的那坨玩意强那么点的
+

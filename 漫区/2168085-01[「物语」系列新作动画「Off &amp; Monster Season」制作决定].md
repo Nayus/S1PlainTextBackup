@@ -1588,3 +1588,33 @@ op画面不会还没做完吧，真就shaft传统
 
 还是没OP，真就跟第二季那样随机出现OP呗，shaft我要鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 363#       发表于 2024-7-13 21:37
+
+这次应该还是第一次提前预告op吧，结果还不能直接端上来，真的💊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狼王卢比奥  
+##### 364#       发表于 2024-7-13 21:40
+
+内容不错，但没有op，失望
+
+
+*****
+
+####  穗波殊  
+##### 365#       发表于 2024-7-13 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">到第二话还没做好op就不要提前这么久预告了真的是
+
+*****
+
+####  Tachikoma88  
+##### 366#       发表于 2024-7-13 21:44
+
+shaft现在已经不会像绝望先生那样op画面没做完先放个文字版的上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

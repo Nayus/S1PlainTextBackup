@@ -27,3 +27,13 @@ rog ally x港台定价6999港币，25999新台币，这国行不会5999吧……
 5799，狗东都开预定了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer"> 还是觉得有些贵……
 
+
+*****
+
+####  weare17k  
+##### 1254#       发表于 2024-7-13 21:43
+
+看视频说ally x的新版本奥创能锁帧率之类的，原始版本ally也会用这个版本吧？
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

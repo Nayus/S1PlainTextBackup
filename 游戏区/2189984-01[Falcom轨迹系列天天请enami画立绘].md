@@ -1713,3 +1713,19 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 
 エナミの軌跡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  法拉  
+##### 161#       发表于 2024-7-14 03:42
+
+ 本帖最后由 法拉 于 2024-7-14 03:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65577666&amp;ptid=2189984" target="_blank">Niu 发表于 2024-7-14 01:32</a>
+
+當年HACCAN幫畫宣傳畫也有一兩張稍微崩過。
+
+這已經很明顯是Falcom的問題了。
+
+能讓HACCAN都崩可說是一種實 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然给你法的图确实不咋地，不过从漏油疯狂尬黑也看得出你法粉丝只是极端仇恨e圣罢了
+

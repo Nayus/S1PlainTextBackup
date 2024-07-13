@@ -9776,3 +9776,54 @@ mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有�
 
 确实大卖美帝了，三段吉他贝斯合奏+美帝名场面现场配音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 20108#       发表于 2024-7-13 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573422&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-13 16:09</a>
+那她挺會挑的，一眼挑中ave人氣最高那個，不管是角色還是裡面的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ave？整个鸡狗团！鸡动画要是不炸，祥子百分百要人气第一了
+某种意义上羊姐的眼光真无敌好吧，不愧是打牌姐
+
+
+*****
+
+####  御幸一也  
+##### 20109#       发表于 2024-7-13 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573590&amp;ptid=2159415" target="_blank">Артём 发表于 2024-7-13 16:29</a>
+
+头像好看，能给个原图喵？</blockquote>
+
+大概是這張吧
+
+<img src="https://img.saraba1st.com/forum/202407/13/170034z1m1lroc1s1zfzrn.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_物質量(@mol_602214086_)_20220825-032344_1562641852540792832_photo.jpg</strong> (241.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 17:00 上传
+
+[https://x.com/mol_602214086_/status/1562641852540792832](https://x.com/mol_602214086_/status/1562641852540792832)
+
+*****
+
+####  罗克萨斯  
+##### 20110#       发表于 2024-7-13 17:05
+
+🐢🐢不愿跟业界底边混，也太功利了吧，好歹是同事呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  第七軍伐戎処  
+##### 20111#       发表于 2024-7-13 17:05
+
+晚上BML是不是更热闹<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

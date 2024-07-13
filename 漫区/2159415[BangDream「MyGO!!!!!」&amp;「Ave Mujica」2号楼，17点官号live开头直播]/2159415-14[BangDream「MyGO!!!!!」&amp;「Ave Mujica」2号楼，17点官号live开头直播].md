@@ -8961,3 +8961,27 @@ MyGO的活动14：15开始，有
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20040#       发表于 2024-7-13 12:43
+
+<img src="https://p.sda1.dev/18/b67f4c960390a6dac9c774e69631747a/image.jpg" referrerpolicy="no-referrer">
+官推都发了，那肯定会播
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4|-1|唉，美帝|
+| 御幸一也|-1||
+
+查看全部评分
+

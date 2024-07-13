@@ -8985,3 +8985,41 @@ MyGO的活动14：15开始，有
 
 查看全部评分
 
+
+*****
+
+####  kivz  
+##### 20041#       发表于 2024-7-13 13:16
+
+看巨多新回复还以为又出粮了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+以太快端上来吧
+
+
+*****
+
+####  PDQ4  
+##### 20042#       发表于 2024-7-13 13:22
+
+可以等等这两天bml的repo，看看有没有什么新演出
+
+然后五个人可能有团建返图
+
+之后就要等到8月了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20043#       发表于 2024-7-13 13:23
+
+好會畫<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/132238msqp4b9b3z493hok.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_👻むむ👻(@mumumunomuni)_20240712-152531_1811783958650323345_photo.jpg</strong> (276.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 13:22 上传
+
+[https://x.com/mumumunomuni/status/1811783958650323345](https://x.com/mumumunomuni/status/1811783958650323345)
+

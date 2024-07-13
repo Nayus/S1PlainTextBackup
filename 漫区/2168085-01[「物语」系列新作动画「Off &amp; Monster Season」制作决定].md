@@ -1757,3 +1757,11 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 但是你 ...</blockquote>
 抚子本来就是笨比
 
+
+*****
+
+####  SSSGear  
+##### 381#       发表于 2024-7-14 01:25
+
+点子王 斧乃木余接<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

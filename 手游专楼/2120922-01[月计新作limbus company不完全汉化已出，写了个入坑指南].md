@@ -39,3 +39,18 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Jamaisvu  
+##### 794#       发表于 2024-7-13 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65575607&amp;ptid=2120922" target="_blank">salic428 发表于 2024-7-13 20:37</a>
+
+肉斩骨断入坑的小登也来凑个热闹
+
+全程用的是呼啸山庄+新出的十协组成沉沦队</blockquote>
+我第一次打也是选的拼点强度，后来发现正常拼点并不容易输，对面上了ego自己也出大骰ego对拼就行（话说小唐的液袋和奥提斯的狐雨点数真大啊），加的拼点威力作用并没想象中大，第二次打就选了加伤害...
+
+被缚王御前的狐夫需要快速击杀，因为他拼点输了或用过ego后很容易进侵蚀...不过我那次他侵蚀的是电狼，三个目标两个自己人，索性没管他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

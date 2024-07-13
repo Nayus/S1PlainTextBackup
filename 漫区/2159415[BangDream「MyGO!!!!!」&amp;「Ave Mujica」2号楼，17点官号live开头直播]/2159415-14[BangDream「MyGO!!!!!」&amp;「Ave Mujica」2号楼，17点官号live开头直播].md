@@ -10272,3 +10272,46 @@ angles好像梦以和李子也贴挺近的<img src="https://static.saraba1st.com
 
 为什么这么多人羡慕嫉妒以后开始准备不择手段抢萝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我好像要寄了啊家人们
 
+
+*****
+
+####  滑稽Captain  
+##### 20154#       发表于 2024-7-13 22:07
+
+上身换了场t，摘了面具，下半身还是演出服
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 20155#       发表于 2024-7-13 22:10
+
+什麼…原來還是換了場T<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  傘木希美  
+##### 20156#       发表于 2024-7-13 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">为什么我不是沪爷.jpg
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  NODY  
+##### 20157#       发表于 2024-7-13 22:15
+
+[https://tieba.baidu.com/p/9088372697](https://tieba.baidu.com/p/9088372697)
+
+这个帖子有不少现场图
+
+*****
+
+####  星天观测  
+##### 20158#       发表于 2024-7-13 22:15
+
+后排提示这个z87拍照技术十分了得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

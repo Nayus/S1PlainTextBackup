@@ -1633,3 +1633,28 @@ shaft现在已经不会像绝望先生那样op画面没做完先放个文字版�
 
 斧乃木还是比较皮的类型。
 
+
+*****
+
+####  天气天气天气  
+##### 369#       发表于 2024-7-13 23:27
+
+千石抚子的op 15年后的闭环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/838bec5ead1ba7cf2de5d96b66c8425c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天气天气天气  
+##### 370#       发表于 2024-7-13 23:29
+
+这白底黑字的文字排版，想你了大牢心<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/60013c5e4ce7cc916e8f594f2002d145/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BlueThree  
+##### 371#       发表于 2024-7-13 23:34
+
+整集这么大段叨叨叨我还不觉得烦不用快进能看得下去的也就物语了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

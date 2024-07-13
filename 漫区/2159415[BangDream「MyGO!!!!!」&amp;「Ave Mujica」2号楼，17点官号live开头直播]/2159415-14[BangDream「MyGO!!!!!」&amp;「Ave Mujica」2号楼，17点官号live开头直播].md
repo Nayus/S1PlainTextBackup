@@ -9880,3 +9880,21 @@ PPP这首Tremolo Eyes编的感觉像是常见的Tele邦摇
 
 羊看不上底边对狗不上心，wsd就只能多推美帝多推猫（总集篇都开始单出猫周边了），把灯发配给立希，把被抛弃的古早cp灯希拉出来给灯吃个保底了，但该说不说，猫有了单独卖的机会，美帝吃糖吃饱饱，立希到处陪人当保底反而有了更多塑造，灯戏份还在也不算亏，总体来说也不算坏事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20117#       发表于 2024-7-13 18:07
+
+<img src="https://p.sda1.dev/18/0d532f3f98724975f1dec66c89bae869/image.jpg" referrerpolicy="no-referrer">
+唉美帝
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  贰臣  
+##### 20118#       发表于 2024-7-13 18:10
+
+喜欢立希的也对现状比较满意就是了，就希望她能届到自己喜欢的人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

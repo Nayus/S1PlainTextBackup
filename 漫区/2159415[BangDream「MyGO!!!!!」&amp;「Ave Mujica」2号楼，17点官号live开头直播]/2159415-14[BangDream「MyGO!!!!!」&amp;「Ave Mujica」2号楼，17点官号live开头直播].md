@@ -8803,3 +8803,47 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20032#       发表于 2024-7-13 12:08
+
+<img src="https://p.sda1.dev/18/e1f820a0fda25db4380a5c984c90a8c3/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20033#       发表于 2024-7-13 12:12
+
+<img src="https://p.sda1.dev/18/0845650f22cd2307656b60f51b3d6d9f/image.jpg" referrerpolicy="no-referrer">
+这里也做了面身高墙
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+

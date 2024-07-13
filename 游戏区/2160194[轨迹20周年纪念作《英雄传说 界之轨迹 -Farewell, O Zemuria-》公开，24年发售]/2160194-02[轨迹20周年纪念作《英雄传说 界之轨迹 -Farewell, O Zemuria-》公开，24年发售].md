@@ -1467,3 +1467,27 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 这些历史时期能写出好剧情的题材还不少，虽然都沾点鉴证，不过你法社在你轨确实挺喜欢写过家家鉴证的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是不知道你法社文案有没有水平了（
 
+
+*****
+
+####  无动于衷  
+##### 1619#       发表于 2024-7-13 10:50
+
+<blockquote>卢迪克 发表于 2024-7-13 09:56
+暗示金兔回归，好吧只是懒得设计战技了，能复用就复用</blockquote>
+反正古代遗物最后都是交给教会的拿出来用用也不是不可以（doge）
+
+
+*****
+
+####  卢迪克  
+##### 1620#       发表于 2024-7-13 10:55
+
+ 本帖最后由 卢迪克 于 2024-7-13 10:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65571158&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-7-13 10:50</a>
+
+反正古代遗物最后都是交给教会的拿出来用用也不是不可以（doge）</blockquote>
+杰拉尔和金兔还有亚里欧契的古代遗物在结社手里。
+
+教会只有绿毛的古代遗物，黎轨教会就是废物组织
+

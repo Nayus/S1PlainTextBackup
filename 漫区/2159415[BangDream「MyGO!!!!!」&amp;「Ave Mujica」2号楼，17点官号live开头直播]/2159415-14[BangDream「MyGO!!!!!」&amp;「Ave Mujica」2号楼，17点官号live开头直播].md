@@ -8595,3 +8595,48 @@ BV1ib421E7vd
 求求你了WSD，復刻一下角色不可崩 ...</blockquote>
 她在李子講恐怖故事的時候看起來就很怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20014#       发表于 2024-7-13 10:15
+
+ 本帖最后由 PDQ4 于 2024-7-13 10:17 编辑 
+
+我想看萝鸡十人邦tv，鸡都这样了不差那一两个祖宗之法了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+syl，看的漏油说他们能说，想起来那个live回顾的时候，真的好吵听不过来，第一次见播回放的时候嘴完全不停的
+
+*****
+
+####  御幸一也  
+##### 20015#       发表于 2024-7-13 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65570942&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-7-13 10:14</a>
+
+哎，這五人這麼能聊，這週TV基本沒有停頓點
+
+怎麼就不出廣播呢</blockquote>
+真的完全不會冷場感覺大家的話都說不完<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20016#       发表于 2024-7-13 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65570896&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 10:08</a>
+
+河口湖可能会是三位主唱
+
+武藏野的话盲猜一个kdai+李弄</blockquote>
+河口湖不能帶上祥子讓她去追星嗎<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20017#       发表于 2024-7-13 10:19
+
+十人邦tv得是周年半周年那种特别篇吧，如果能有就最好了没有的话我想看ras萝那种幕间
+
+“aiai你的汉字怎么又写错了，一定是ave mujica的人干的，她们为了胜利把你的卷子改了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

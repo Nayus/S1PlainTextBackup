@@ -9851,3 +9851,13 @@ PPP这首Tremolo Eyes编的感觉像是常见的Tele邦摇
 
 难道是没编进去吗（）
 
+
+*****
+
+####  yicihanshu  
+##### 20114#       发表于 2024-7-13 17:43
+
+380的票来听鸡，主打一个听个响
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

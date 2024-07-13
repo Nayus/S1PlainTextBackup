@@ -1754,3 +1754,21 @@ Van：毋庸置疑的地下灰色地带人物
 这个推测的可能性不小，因为闪4NE里克洛和白兔是跟着上去的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以说看表现其实更像是用装甲突破一个物理性或非物理性的障壁，但按最初的描述又不是如此。
 
+
+*****
+
+####  宛若青空  
+##### 1649#       发表于 2024-7-13 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65574078&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-13 17:22</a>
+所以说看表现其实更像是用装甲突破一个物理性或非物理性的障壁，但按最初的描述又不是如此。 ...</blockquote>
+哦我懂你那段话的意思了，确实如果是这样的话是有点矛盾
+
+那要么可能就是闪4NE里克洛和白兔是蹭着NE黎的buff才能解除自身枷锁上去，要么是骑神本身至宝残存的力量给的buff。
+
+那界里Van有魔装鬼魔王buff在想怎么圆简单，主要是艾梅丝看看怎么办
+
+从世界认知枷锁来看，我更倾向于这个也是“人”身上的枷锁。
+
+或者直接吃书也不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

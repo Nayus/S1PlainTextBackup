@@ -1666,3 +1666,14 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 可他参与的只有4</blockquote>
 不止星之海洋4，还有星之海洋手游，星之海洋1重置版。我记得enami之前负责过的御姐玫瑰立绘就挺棒的，这游戏发售后中间才过了短短一年时间负责黎轨后，立绘画风怎么就变了许多？
 
+
+*****
+
+####  慕容断月  
+##### 157#       发表于 2024-7-13 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573743&amp;ptid=2189984" target="_blank">zhuhh 发表于 2024-7-13 16:43</a>
+
+不止星之海洋4，还有星之海洋手游，星之海洋1重置版。我记得enami之前负责过的御姐玫瑰立绘就挺棒的，这 ...</blockquote>
+御姐武戏起源那一套用到死的插画是真的不错
+

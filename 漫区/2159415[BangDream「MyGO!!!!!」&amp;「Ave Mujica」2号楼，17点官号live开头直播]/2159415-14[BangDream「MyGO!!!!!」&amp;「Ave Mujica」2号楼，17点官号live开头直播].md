@@ -9325,3 +9325,55 @@ soyorin<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" ref
 
 李子已经开吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  daiquan333  
+##### 20067#       发表于 2024-7-13 15:17
+
+<img src="https://img.saraba1st.com/forum/202407/13/151700e1id47p2pdaj4y2a.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2872.png</strong> (589.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 15:17 上传
+
+https://weibo.com/7931903861/5055379165415017
+
+*****
+
+####  NODY  
+##### 20068#       发表于 2024-7-13 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572958&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-13 15:12</a>
+
+想太多，你还不如说羊看自己邦热度扶不起来所以冷淡了</blockquote>
+无论是羊自己不想推还是wsd看羊摆了所以不想推，都是声优要素，没差的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 20069#       发表于 2024-7-13 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572989&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 15:15</a>
+看手游剧情是发配给底边立希了，有种打入冷宫的美</blockquote>
+主唱发配给底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种星星当石头的美
+不过wsd也没必要热脸贴羊皮鼓就是了，毕竟莫名其妙的我心危联动都讨好不到她
+
+*****
+
+####  星天观测  
+##### 20070#       发表于 2024-7-13 15:18
+
+灯希好像是初设来着？不如说有种回归初心的美吧
+
+
+*****
+
+####  CyDiablo  
+##### 20071#       发表于 2024-7-13 15:21
+
+说起来前面怪8声优都合影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武士道怎么不安排合影，只能等手游那边了
+希望真的能五个人来吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">爱信等
+

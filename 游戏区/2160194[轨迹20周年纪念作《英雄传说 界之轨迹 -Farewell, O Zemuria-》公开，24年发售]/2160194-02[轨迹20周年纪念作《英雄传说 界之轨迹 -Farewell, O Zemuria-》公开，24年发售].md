@@ -1397,3 +1397,36 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 守门哪怕对打一般也不会彻底掉转方向吧</blockquote>
 你看黎2，静奈对卡西姆，静奈全场乱跳
 
+
+*****
+
+####  卢迪克  
+##### 1612#       发表于 2024-7-13 09:56
+
+暗示金兔回归，好吧只是懒得设计战技了，能复用就复用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/13/095626j2je2jyuzezt7922.png" referrerpolicy="no-referrer">
+
+<strong>22265.png</strong> (156.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 09:56 上传
+
+*****
+
+####  ravend233  
+##### 1613#       发表于 2024-7-13 10:00
+
+素材复用怎么你了）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 1614#       发表于 2024-7-13 10:05
+
+虽说黑兔的地图攻击就是直接从伊苏x搬过来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

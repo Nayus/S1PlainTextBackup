@@ -1547,3 +1547,14 @@ https://w ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一话味道很正，不过感觉有点刻意去追求前作特点的意思，希望能保持住
 
+
+*****
+
+####  谁又在偷我流量  
+##### 358#       发表于 2024-7-13 09:56
+
+伊豆湖：你们的乖女儿我就收下了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+下一话就到撫物語了，看看香菜还能不能重现10年前囮物語的精分表演，另外西尾为了不让物语动画化特意把其中一个抚子写得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

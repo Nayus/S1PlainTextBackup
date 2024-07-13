@@ -8784,3 +8784,22 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 社长，彩沙，音宝，李子，nonnon这么搭配？</blockquote>
 孤独之星马西洛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20030#       发表于 2024-7-13 12:00
+
+邦TV的时候看不到msr的，所有人都会被音宝的大叔笑腐乳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+真这五个人坐中间的肯定是真太子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20031#       发表于 2024-7-13 12:01
+
+木谷gachi太多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

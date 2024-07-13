@@ -195,3 +195,11 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 
 嘶，不太懂有些人破音的定义是什么
 
+
+*****
+
+####  ViyViy  
+##### 20531#       发表于 2024-7-13 17:48
+
+这套小组服据然毫无违和，果然Sunday的本体是那把伞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

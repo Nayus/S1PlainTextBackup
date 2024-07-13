@@ -9861,3 +9861,14 @@ PPP这首Tremolo Eyes编的感觉像是常见的Tele邦摇
 
 —— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  影伴光生  
+##### 20115#       发表于 2024-7-13 17:51
+
+<img src="https://p.sda1.dev/18/b0de1ef042441563f76d6b6ead22a347/image.jpg" referrerpolicy="no-referrer">
+今天在外场第一排（虽然有VIP票但是不太想去跟人挤）等着的时候不知道从哪里传来的无料
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

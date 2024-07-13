@@ -1658,3 +1658,33 @@ shaft现在已经不会像绝望先生那样op画面没做完先放个文字版�
 
 整集这么大段叨叨叨我还不觉得烦不用快进能看得下去的也就物语了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 372#       发表于 2024-7-13 23:39
+
+抚子小妹妹不知道吗？最近不登校已经是潮流了呢！
+
+<img src="https://img.saraba1st.com/forum/202407/13/233905lgngga74vuuuzugb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-13-23-38-17-181_com.xunlei.downloadprovider.jpg</strong> (120.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-13 23:39 上传
+
+还有沙发套我OP呢？
+
+
+*****
+
+####  竹様  
+##### 373#       发表于 2024-7-13 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65576872&amp;ptid=2168085" target="_blank">天气天气天气 发表于 2024-7-13 23:27</a>
+
+千石抚子的op 15年后的闭环</blockquote>
+006后半部分的贝斯和鼓点也是恋爱循环<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

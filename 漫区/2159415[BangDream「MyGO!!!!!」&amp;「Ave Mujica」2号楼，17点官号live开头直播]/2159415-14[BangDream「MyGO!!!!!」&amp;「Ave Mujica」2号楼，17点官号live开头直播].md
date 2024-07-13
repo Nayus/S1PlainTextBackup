@@ -10474,3 +10474,16 @@ WSD面具直接扔上海不用帶回去了
 
 water应该不可能吧，就4首歌还让其他三个收工一整首，感觉还是symbol1和2可能性比较大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20176#       发表于 2024-7-13 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65576839&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 23:22</a>
+
+water应该不可能吧，就4首歌还让其他三个收工一整首，感觉还是symbol1和2可能性比较大 ...</blockquote>
+我是看repo都说米泽腿好像受伤了，那第四首可能会给个强度低点的休息一下，今天给了angles明天没准就water了
+
+当然不排除两天都angles
+

@@ -1688,3 +1688,14 @@ shaft现在已经不会像绝望先生那样op画面没做完先放个文字版�
 千石抚子的op 15年后的闭环</blockquote>
 006后半部分的贝斯和鼓点也是恋爱循环<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖皮质激素  
+##### 374#       发表于 2024-7-13 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65576699&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-7-13 23:05</a>
+
+原来斧乃木这么能整活儿啊，净闯祸了</blockquote>
+斧乃木是那种很容易被身边人影响的怪异，这么皮主要是因为最近跟月火混的比较多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

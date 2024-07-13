@@ -134,3 +134,22 @@
 
 这次开放赢一次百倍，挑战连输两次百倍，最战犯的一集<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4809#       发表于 2024-7-13 23:55
+
+笑死，祭典挑战开局就是100倍然后赢了拿法螺抽10连抽个了银<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绿冰  
+##### 4810#         楼主| 发表于 2024-7-13 23:57
+
+<blockquote>墨染白泉 发表于 2024-7-13 08:24
+怎么准备祭是宫殿第一啊，我看投票都是游乐园最多啊。莎莎队这么能肝</blockquote>
+经过这几次我觉得，纯粹看平时一直玩的大佬投哪个选项的人多233
+

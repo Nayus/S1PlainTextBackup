@@ -9563,3 +9563,56 @@ https://weibo.com/7931903861/5055379165415017
 
 就是磕爱灯的只能怪羊不够努力了，不过你羊姐确实不怎么磕爱灯，她访谈最喜欢cue的是灯祥
 
+
+*****
+
+####  御幸一也  
+##### 20088#       发表于 2024-7-13 16:09
+
+那她挺會挑的，一眼挑中ave人氣最高那個，不管是角色還是裡面的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20089#       发表于 2024-7-13 16:10
+
+羊姐一直都喜欢热度高的啊，从她和小孩姐生放的时候比和邦邦生放还积极就能看出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 20090#       发表于 2024-7-13 16:12
+
+支持羊姐和小孩姐互换主唱
+
+*****
+
+####  御幸一也  
+##### 20091#       发表于 2024-7-13 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573190&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 15:38</a>
+
+海睦应该会有的吧，不然第一季的唐突海睦片段要没法解释了啊
+
+顺便初华的瞳色也是喵梦的发色，来点初喵也可 ...</blockquote>
+
+昨天裡面的人大賣一下馬上就有人做飯了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/13/161404kvp8arwivy1a6xqf.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_퓨(@puni42909975821)_20240713-034656_1811970539663364344_photo.jpg</strong> (151.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 16:14 上传
+
+[https://x.com/puni42909975821/status/1811970539663364344](https://x.com/puni42909975821/status/1811970539663364344)
+
+*****
+
+####  星天观测  
+##### 20092#       发表于 2024-7-13 16:14
+
+那杨姐是不是应该十周年活动的时候找ag狂贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

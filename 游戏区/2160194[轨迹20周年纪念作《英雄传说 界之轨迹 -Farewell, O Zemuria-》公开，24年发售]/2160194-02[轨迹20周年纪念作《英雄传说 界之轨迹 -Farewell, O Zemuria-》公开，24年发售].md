@@ -1589,3 +1589,21 @@ Van：毋庸置疑的地下灰色地带人物
 
 黎12开始近藤就不敢咚了，怎么都会给个阶段性结尾。采访都在提的事情
 
+
+*****
+
+####  一步成诗  
+##### 1631#       发表于 2024-7-13 16:10
+
+阶段性完结三次了还没讲完共和国听起来也蛮搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 1632#       发表于 2024-7-13 16:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了阶段性完结，所以大主线不能展开讲，所以界轨实际上又是破事水，论证完毕
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

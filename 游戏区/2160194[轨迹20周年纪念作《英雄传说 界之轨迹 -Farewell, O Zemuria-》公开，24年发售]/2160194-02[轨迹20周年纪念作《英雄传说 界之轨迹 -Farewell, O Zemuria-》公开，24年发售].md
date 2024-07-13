@@ -1548,3 +1548,11 @@ A:具体的不能说(汗)。伏笔从《闪之轨迹》系列 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真做前传别鉴证过了头成招核公司就不错了
 
+
+*****
+
+####  Aeons  
+##### 1627#       发表于 2024-7-13 15:35
+
+目前的情报感觉是前期几个剧情翻来覆去的发吧，没啥新货。而且跳舞泳装一应俱全，我不好说。
+

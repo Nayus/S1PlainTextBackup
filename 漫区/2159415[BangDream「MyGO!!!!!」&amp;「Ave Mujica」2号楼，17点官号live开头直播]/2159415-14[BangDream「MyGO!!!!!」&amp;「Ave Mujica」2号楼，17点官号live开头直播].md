@@ -9377,3 +9377,39 @@ https://weibo.com/7931903861/5055379165415017
 说起来前面怪8声优都合影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">武士道怎么不安排合影，只能等手游那边了
 希望真的能五个人来吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">爱信等
 
+
+*****
+
+####  NODY  
+##### 20072#       发表于 2024-7-13 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573015&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-13 15:18</a>
+
+灯希好像是初设来着？不如说有种回归初心的美吧</blockquote>
+主要光看定位的话，推其他cp立希就是败犬役，负责搞笑和衬托
+
+但有人没什么cp能推的时候，立希就像抽卡保底一样顶上去
+
+现在主推爱素然后让立希陪灯玩就有点这种感觉，回归初设更像是误打误撞了，当然这对角色塑造可能是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 20073#       发表于 2024-7-13 15:28
+
+鸡播了卖海希怕不是灯要变成你邦第一个边缘人主唱了
+
+*****
+
+####  星天观测  
+##### 20074#       发表于 2024-7-13 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573103&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 15:28</a>
+
+主要光看定位的话，推其他cp立希就是败犬役，负责搞笑和衬托
+
+但有人没什么cp能推的时候，立希就像抽卡保 ...</blockquote>
+只能说幸好还有个初设能当遮羞布，不然太尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还好这种问题不会在鸡身上出现
+

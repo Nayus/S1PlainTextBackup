@@ -375,3 +375,13 @@ JP这边前世被爆的葛叶算一个
 
 EN那边好几个，订阅百万以上的Mysta、Luca，不到百万的Pomu、Millie都是菲律宾裔或者菲律宾混血
 
+
+*****
+
+####  月临碧海  
+##### 455#       发表于 2024-7-13 10:05
+
+TUBEOUT居然在B站开号了，今后会有国V专场吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1K8bWekE7H](https://www.bilibili.com/video/BV1K8bWekE7H)
+

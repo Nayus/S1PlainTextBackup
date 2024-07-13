@@ -9061,3 +9061,74 @@ MyGO的活动14：15开始，有
 
 蜜柑可爱
 
+
+*****
+
+####  6030sylar  
+##### 20047#       发表于 2024-7-13 14:26
+
+<img src="https://img.saraba1st.com/forum/202407/13/142633lzx6lsxwswxpgxgp.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240713142412.jpg</strong> (72.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 14:26 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|剛剛扣錯了 加回來 抱歉|
+
+查看全部评分
+
+*****
+
+####  6030sylar  
+##### 20048#       发表于 2024-7-13 14:29
+
+<img src="https://img.saraba1st.com/forum/202407/13/142901y0w11wia969u0fhc.png" referrerpolicy="no-referrer">
+
+<strong>69_}I)]SLT~Y5UJ(@_9$QNU.png</strong> (99.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 14:29 上传
+
+
+*****
+
+####  米拉苏尔  
+##### 20049#       发表于 2024-7-13 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+现场配音
+
+*****
+
+####  6030sylar  
+##### 20050#       发表于 2024-7-13 14:33
+
+<img src="https://img.saraba1st.com/forum/202407/13/143338tfssdeudazercrrl.png" referrerpolicy="no-referrer">
+
+<strong>EOINL5`SFE8S])H$ZGDIR.png</strong> (104.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 14:33 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/143344to3dj68od3188416.png" referrerpolicy="no-referrer">
+
+<strong>B9Q96V{3[G_9)[K(`7RHX8K.png</strong> (74.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 14:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

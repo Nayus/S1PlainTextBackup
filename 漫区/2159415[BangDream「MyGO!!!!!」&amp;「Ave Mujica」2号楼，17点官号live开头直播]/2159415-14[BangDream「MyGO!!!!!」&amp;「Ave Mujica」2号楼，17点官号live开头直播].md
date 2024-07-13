@@ -9835,3 +9835,19 @@ mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有�
 
 是这张，lisa这种马尾的造型好少，这套发型好看衣服也好看，是我游戏里的lisa冬季常驻皮肤<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SakuraのOrigami  
+##### 20113#       发表于 2024-7-13 17:15
+
+PPP这首Tremolo Eyes编的感觉像是常见的Tele邦摇
+
+副歌转间奏还离了下调
+
+其中还有一段ars独唱
+
+就是，怎么没听见键盘声啊（）
+
+难道是没编进去吗（）
+

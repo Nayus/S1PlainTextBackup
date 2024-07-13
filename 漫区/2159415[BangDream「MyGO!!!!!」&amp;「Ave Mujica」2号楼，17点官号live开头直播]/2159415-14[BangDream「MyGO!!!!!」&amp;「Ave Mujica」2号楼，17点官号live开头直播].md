@@ -8761,3 +8761,26 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 社长，彩沙，音宝，李子，nonnon这么搭配？
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20028#       发表于 2024-7-13 11:53
+
+<img src="https://p.sda1.dev/18/b6c00907c37555993455e602bfed66d8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f2111f327b945bf607259dfdd828f0dd/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b2075e9853d79b68e79e4c31360a68f2/image.jpg" referrerpolicy="no-referrer">
+笑死
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  星天观测  
+##### 20029#       发表于 2024-7-13 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65571508&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-13 11:46</a>
+
+社长，彩沙，音宝，李子，nonnon这么搭配？</blockquote>
+孤独之星马西洛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

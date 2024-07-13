@@ -1788,3 +1788,29 @@ Van：毋庸置疑的地下灰色地带人物
 
 白色世界曲风不像轨迹正代，像那由多
 
+
+*****
+
+####  卢迪克  
+##### 1652#       发表于 2024-7-13 22:46
+
+ 本帖最后由 卢迪克 于 2024-7-13 22:50 编辑 
+
+md，这界轨有头有脸的新人物加上剑仙就三个，新城市就安卡维尔一个，剩下就是首都10和11，中东地区本以为是艾尔萨姆首都结果萨尔巴德复用<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+f1450d1fa8d3fd1fcc0f5405764e251f94ca5fdf.jpg
+(42.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 22:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/224645s1z7wwopc3grnrcb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1653#       发表于 2024-7-13 22:48
+
+拉比斯39泳装那地方怕不是萨尔巴德大酒店<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

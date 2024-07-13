@@ -9980,3 +9980,29 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 听说这次有中文mc？？羡慕死了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20128#       发表于 2024-7-13 19:46
+
+看repo说是就李子说了两句，算不上正经mc
+有在努力维持世界观呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 20129#       发表于 2024-7-13 19:50
+
+你羊的复活时间卡得太好了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+老钟迷子真不熟，蹭小市民最重要
+<img src="https://p.sda1.dev/18/a821e47d3422dc3cb05380fbe66fce03/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20130#       发表于 2024-7-13 19:52
+
+笑死，现地佬说海喵卖了，团名曲梦以去米泽面前疯狂弹
+合理怀疑是对前几天邦tv说前面仨疯狂贴的回击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

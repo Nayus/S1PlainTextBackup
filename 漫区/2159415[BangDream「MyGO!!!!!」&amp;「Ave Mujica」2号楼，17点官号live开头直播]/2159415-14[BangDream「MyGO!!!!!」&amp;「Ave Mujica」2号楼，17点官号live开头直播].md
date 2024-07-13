@@ -10487,3 +10487,19 @@ water应该不可能吧，就4首歌还让其他三个收工一整首，感觉�
 
 当然不排除两天都angles
 
+
+*****
+
+####  御幸一也  
+##### 20177#       发表于 2024-7-14 00:39
+
+<img src="https://img.saraba1st.com/forum/202407/14/003918sw1wz00awbc0wy7y.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Ryow_斑纹仓鼠🐹(@ryow_6)_20240713-160355_1812156011110883345_photo.jpg</strong> (287.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 00:39 上传
+
+[https://x.com/ryow_6/status/1812156011110883345](https://x.com/ryow_6/status/1812156011110883345)
+

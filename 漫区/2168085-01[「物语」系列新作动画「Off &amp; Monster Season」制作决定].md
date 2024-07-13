@@ -1724,3 +1724,11 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 但是你用25近似24，算出来的400天明明是低估了，应该再补一些（实际是416.67）而不是下修
 
+
+*****
+
+####  Tachikoma88  
+##### 378#       发表于 2024-7-14 00:38
+
+斧乃木让抚子出道爆照那里如果让吉泽翠贴上自己的照片绝对会更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

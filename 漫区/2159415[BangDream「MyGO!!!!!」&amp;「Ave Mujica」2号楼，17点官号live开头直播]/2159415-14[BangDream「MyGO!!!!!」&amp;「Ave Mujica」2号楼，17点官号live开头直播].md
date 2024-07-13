@@ -10077,3 +10077,74 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 [https://x.com/mito_etta/status/1811747654843724048](https://x.com/mito_etta/status/1811747654843724048)
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20135#       发表于 2024-7-13 20:27
+
+<img src="https://p.sda1.dev/18/b20ff1abea33965ffefb4219ec99eff4/image.jpg" referrerpolicy="no-referrer">
+[ansy_Ror](https://x.com/ansy_Ror/status/1811782731023679589?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| akirakira|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20136#       发表于 2024-7-13 20:29
+
+<img src="https://p.sda1.dev/18/5cd35ebf934b8aaa5a9788e6df362031/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3086b9f681622485ba9f74b31975ea8c/image.jpg" referrerpolicy="no-referrer">
+[Dao1486**o](https://x.com/Dao1486**o/status/1812052047468134726?s=19)
+素睦
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| akirakira|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20137#       发表于 2024-7-13 20:29
+
+<img src="https://p.sda1.dev/18/c74c0366715a149d6fde480b3d31dfa0/image.jpg" referrerpolicy="no-referrer">
+[fozuru](https://x.com/fozuru/status/1811727448775753768?s=19)
+海玲爱音
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| skives|-1|欢乐多|
+| akirakira|-1||
+
+查看全部评分
+

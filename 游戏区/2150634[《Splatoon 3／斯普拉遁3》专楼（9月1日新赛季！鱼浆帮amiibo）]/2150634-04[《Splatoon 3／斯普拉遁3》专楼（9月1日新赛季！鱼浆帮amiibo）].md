@@ -126,3 +126,11 @@
 
 感觉曼曼这次又要被剃光头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 4808#       发表于 2024-7-13 21:50
+
+这次开放赢一次百倍，挑战连输两次百倍，最战犯的一集<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

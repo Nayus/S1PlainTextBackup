@@ -8662,3 +8662,65 @@ syl，看的漏油说他们能说，想起来那个live回顾的时候，真的�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  紫吹兰  
+##### 20020#         楼主| 发表于 2024-7-13 11:29
+
+<img src="https://img.saraba1st.com/forum/202407/13/112851iyln77018hs0sc8b.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720840394135.jpg</strong> (284.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 11:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/112900rgs9yyn9qwsvysfb.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720840931851.jpg</strong> (253.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/13/112905g046eqss6aqqt3p9.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1720840933898.jpg</strong> (310.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-13 11:29 上传
+
+偷的图，木谷哥哥本届bw mvp没疑问吧
+
+
+*****
+
+####  绯想alter2nd  
+##### 20021#       发表于 2024-7-13 11:34
+
+<img src="https://p.sda1.dev/18/9d9110deea276b988ff1f2aff31fabbb/CMP_20240713113403382.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20022#       发表于 2024-7-13 11:36
+
+<img src="https://p.sda1.dev/18/154b80dd5f85ed3189ca51bf68cc2a4e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  第七軍伐戎処  
+##### 20023#       发表于 2024-7-13 11:37
+
+<img src="https://p.sda1.dev/18/f92fead9a469170a7323ee21da5e9b80/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ac5e77a65b956d8cca6ff9dae8b837bb/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/188b77354f67a182cbd1ee185a66635c/image.jpg" referrerpolicy="no-referrer">
+
+非常恐怖
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

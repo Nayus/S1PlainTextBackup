@@ -10194,3 +10194,33 @@ wsd以后如果推灯希那希望海睦能多一点互动
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有偷录的团歌部分视频了，梦以真的跑到米泽茜那边去了
 
+
+*****
+
+####  星天观测  
+##### 20144#       发表于 2024-7-13 21:07
+
+angles好像梦以和李子也贴挺近的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20145#       发表于 2024-7-13 21:10
+
+两边日程不同，蜜柑凛可能今天的部分结束就回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 20146#       发表于 2024-7-13 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和鸡团熟的就青木和鼓子吧，这俩都没来，而且这俩是和高尾李子比较熟，其他三个估计也是陌生同事关系
+
+*****
+
+####  九陌狂游  
+##### 20147#       发表于 2024-7-13 21:14
+
+但是高尾和蜜柑不是还一起去给米泽过过生日吗，虽然不知道是怎么凑到一起的
+

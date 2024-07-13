@@ -203,3 +203,22 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 
 这套小组服据然毫无违和，果然Sunday的本体是那把伞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20532#       发表于 2024-7-13 21:10
+
+<img src="https://p.sda1.dev/18/9d3c507df1bdf7fb5e1320663c76f039/CMP_20240713210949935.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  csolfans  
+##### 20533#       发表于 2024-7-13 21:11
+
+<img src="https://p.sda1.dev/18/bf81c9935d67dff27db712186e72290a/CMP_20240713211051205.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

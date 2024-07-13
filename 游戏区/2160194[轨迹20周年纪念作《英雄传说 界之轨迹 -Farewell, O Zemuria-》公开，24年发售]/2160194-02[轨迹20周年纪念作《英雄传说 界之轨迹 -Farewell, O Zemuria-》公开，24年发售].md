@@ -1634,3 +1634,27 @@ Van：毋庸置疑的地下灰色地带人物
 
 白色世界吗，你们记不记得近藤说黎轨的意思是黎明到来前的最后黑暗阶段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a2042312  
+##### 1636#       发表于 2024-7-13 16:37
+
+白色世界会是月球吗？看魔装鬼跳上月球还挺配那句歌词的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 1637#       发表于 2024-7-13 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65573574&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-13 16:27</a>
+白色世界吗，你们记不记得近藤说黎轨的意思是黎明到来前的最后黑暗阶段</blockquote>
+记得是记得，但看这个词，谁信界轨会是黎明呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1638#       发表于 2024-7-13 16:40
+
+是的。我们想到「黎」这个字的时候就觉得它实在是太过合适了，甚至有点后悔「要是我当初不起名叫《创之轨迹》，而是叫《白之轨迹》就好了」
+

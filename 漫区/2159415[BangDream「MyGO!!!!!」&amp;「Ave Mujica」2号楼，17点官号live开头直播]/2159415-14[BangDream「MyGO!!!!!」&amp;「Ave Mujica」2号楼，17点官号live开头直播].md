@@ -9759,3 +9759,20 @@ mujica主角是祥子，立希更是从mygo开始就是垫子定位，要是有�
 头像好看，能给个原图喵？</blockquote>
 忘了在哪里存的lisa的图，翻了翻找不到存哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 20106#       发表于 2024-7-13 16:37
+
+听说手游场这边蜜柑凛又卖了，现场演了几段<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">美帝今天bw吃的真的好
+唉，好想见coco<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20107#       发表于 2024-7-13 16:42
+
+确实大卖美帝了，三段吉他贝斯合奏+美帝名场面现场配音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

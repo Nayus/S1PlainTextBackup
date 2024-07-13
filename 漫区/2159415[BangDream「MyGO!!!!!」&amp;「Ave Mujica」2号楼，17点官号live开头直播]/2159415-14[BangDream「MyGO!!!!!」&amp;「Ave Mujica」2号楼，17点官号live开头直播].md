@@ -10315,3 +10315,40 @@ angles好像梦以和李子也贴挺近的<img src="https://static.saraba1st.com
 
 后排提示这个z87拍照技术十分了得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20159#       发表于 2024-7-13 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65576232&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-13 21:58</a>
+舅舅说mujica更重视中国市场看来是真的，身高情报首次公开+脱面具场t安可，厉害的 ...</blockquote>
+这次武士道有个巨大主展台，另外还单独设个邦邦手游展台，然后主展台就在舞台旁边，排队都特事特办，怎么看都是叔叔的小灶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  御幸一也  
+##### 20160#       发表于 2024-7-13 22:24
+
+噴了 神仙拍照技術
+
+
+*****
+
+####  yifan8848  
+##### 20161#       发表于 2024-7-13 22:24
+
+拍照技術再爛都看的出來摘了面具大家的顏直線上升阿<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+WSD面具直接扔上海不用帶回去了
+
+*****
+
+####  御幸一也  
+##### 20162#       发表于 2024-7-13 22:25
+
+夢以這個造型真的不愧是夢女第一多的<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

@@ -1643,3 +1643,16 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 
 1代那个改良版是不是？
 
+
+*****
+
+####  法拉  
+##### 155#       发表于 2024-7-13 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572556&amp;ptid=2189984" target="_blank">慕容断月 发表于 2024-7-13 14:14</a>
+
+你不说我还没意识到手游好像也有
+
+1代那个改良版是不是？</blockquote>
+以前干活普遍认真吸了不少粉，来过你法之后就身败名裂了，现在好一会烂一会，碰上法老控的业务必烂，烂的时候不到平均水平十分之一
+

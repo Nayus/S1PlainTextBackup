@@ -81,3 +81,13 @@ AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
 
 看了隔壁动画，能不能来点货真价实的顶级资源<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1902#       发表于 2024-7-14 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65582042&amp;ptid=2152053" target="_blank">灼眼的夏娜酱 发表于 2024-7-14 17:12</a>
+看了隔壁动画，能不能来点货真价实的顶级资源</blockquote>
+7.23有新东西再说<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

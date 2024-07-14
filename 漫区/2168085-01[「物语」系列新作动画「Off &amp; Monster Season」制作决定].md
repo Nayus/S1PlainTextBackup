@@ -2020,3 +2020,13 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 花物语后的扇是男还是女？看结物语的扇好像还是女生
 
+
+*****
+
+####  狼王卢比奥  
+##### 403#       发表于 2024-7-14 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581676&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-14 16:15</a>
+这次的演出是新人吗，这集有好几个一只脚站立另一只脚画圆的特写镜头，不知道是不是这个人的癖好 ...</blockquote>
+这个转圈算是沙发套特色演出了，很多角色都试过。
+

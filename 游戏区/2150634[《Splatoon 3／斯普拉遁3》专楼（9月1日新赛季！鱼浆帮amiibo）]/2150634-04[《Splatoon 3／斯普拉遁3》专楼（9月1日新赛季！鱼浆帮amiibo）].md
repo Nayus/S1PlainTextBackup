@@ -163,3 +163,13 @@
 
 —— 来自 HUAWEI DBY2-W00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  晴岚  
+##### 4812#       发表于 2024-7-14 13:54
+
+不想打祭典回去打2代发现自己已经完全不能适应没有滚行跟登顶了……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

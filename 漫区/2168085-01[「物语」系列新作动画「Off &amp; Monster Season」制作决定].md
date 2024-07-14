@@ -1869,3 +1869,22 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 知道后面剧情的我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  谁又在偷我流量  
+##### 391#       发表于 2024-7-14 12:54
+
+扇的活动范围被困死在了直江津高中，想有害也很困难。终物语之后这个“活”的“校园七大不可思议”让专家组无比的头疼。
+历哥哥，你已经败了，你绝对无法战胜已领悟四重战神境界的我
+
+<img src="https://img.saraba1st.com/forum/202407/14/125453h7h1g9vb7vngx747.jpg" referrerpolicy="no-referrer">
+
+<strong>16b4edfc1e178a82f2fff69fb003738da877e865.jpg</strong> (176.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 12:54 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

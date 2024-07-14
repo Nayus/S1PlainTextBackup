@@ -10977,3 +10977,57 @@ aiai这造型压真强
 <img src="https://p.sda1.dev/18/ad5a8c1ed9e1062aaae59bfeaaee1099/image.png" referrerpolicy="no-referrer">
 [ 紅涙 @Kourui_07](https://x.com/Kourui_07/status/1812496637451010111)
 
+
+*****
+
+####  akiomn  
+##### 20222#       发表于 2024-7-15 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">b站上看了下录播，连唱四首，李子太稳了，怎么live和cd一样啊。缺点是有点无趣，没有一点变数与激情
+
+*****
+
+####  yevvet  
+##### 20223#       发表于 2024-7-15 00:02
+
+鲤鱼站mujica旁边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yevvet  
+##### 20224#       发表于 2024-7-15 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65585580&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-15 00:01</a>
+b站上看了下录播，连唱四首，李子太稳了，怎么live和cd一样啊。缺点是有点无趣，没有一点变数与激情 ...</blockquote>
+喜欢天音的变幻莫测吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20225#       发表于 2024-7-15 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">live现在不担心李子唱翻了，更多期待是演出上有什么新东西
+
+好在鸡目前能看到的live，除了新曲以外，部分旧歌每场都都能看到点新演出<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20226#       发表于 2024-7-15 00:03
+
+<img src="https://p.sda1.dev/18/c8a0e35f1000f4247f3274b1b4d75f0d/image.png" referrerpolicy="no-referrer">
+[ O²¯ @kaikuluo](https://x.com/kaikuluo/status/1812367613978132666)
+
+广百的摊宣
+
+
+*****
+
+####  akiomn  
+##### 20227#       发表于 2024-7-15 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65585597&amp;ptid=2159415" target="_blank">yevvet 发表于 2024-7-15 00:03</a>
+喜欢天音的变幻莫测吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">别尬黑，音宝现在比以前强多了，不叫变幻莫测好吧
+还得是（）（）（）（）
+

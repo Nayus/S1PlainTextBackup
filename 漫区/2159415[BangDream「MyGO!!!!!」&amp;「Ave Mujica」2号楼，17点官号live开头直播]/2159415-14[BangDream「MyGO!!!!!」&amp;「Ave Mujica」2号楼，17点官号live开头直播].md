@@ -10608,3 +10608,29 @@ aiai这造型压真强
 
 伟大的主唱脸
 
+
+*****
+
+####  御幸一也  
+##### 20188#       发表于 2024-7-14 13:10
+
+亞瑟神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/14/130958hsb990jbi06i066g.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Arthur.c(@CARTHUR_X)_20240714-050000_1812351317865595117_photo-0.jpg</strong> (104.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 13:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/131001x23tu49g2n59z25n.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Arthur.c(@CARTHUR_X)_20240714-050000_1812351317865595117_photo-1.jpg</strong> (111.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 13:10 上传
+
+[https://x.com/CARTHUR_X/status/1812351317865595117](https://x.com/CARTHUR_X/status/1812351317865595117)
+

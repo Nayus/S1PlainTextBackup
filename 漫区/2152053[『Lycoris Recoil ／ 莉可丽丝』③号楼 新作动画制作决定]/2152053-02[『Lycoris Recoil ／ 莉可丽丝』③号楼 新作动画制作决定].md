@@ -179,3 +179,16 @@ AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
 先发泥坛了，wb跟老福特还没发👀之前预计12章完结，没蒜二新消息感觉暑假可以弄完了，开学后部门啊作业啊比 ...</blockquote>
 才发现泥坛只发了3篇，中间缺的去老福特看吧 同名<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑夜夜夜  
+##### 1906#       发表于 2024-7-15 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581198&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-7-14 14:59</a>
+
+https://x.com/Afezeria_/status/1812327552993874242?t=9miNR_iA5dEU-N40bB8sGg&amp;s=19
+
+AI弄的，在twi翻到 ...</blockquote>
+↘️好像不太一样
+

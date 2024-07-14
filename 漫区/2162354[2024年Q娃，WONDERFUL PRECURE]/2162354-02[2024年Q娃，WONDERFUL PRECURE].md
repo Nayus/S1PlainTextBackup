@@ -4868,3 +4868,13 @@ Q娃片场这么多年来没有也不可能深入触及争议话题，既然选�
 
 作者是内田阳子，今年的人设
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1906#       发表于 2024-7-14 23:10
+
+论打架，论学习，论优雅，论细节观察都得是我
+
+这个队伍没了我得散<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

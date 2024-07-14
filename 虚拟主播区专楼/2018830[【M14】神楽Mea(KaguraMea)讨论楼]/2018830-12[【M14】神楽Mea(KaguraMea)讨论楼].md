@@ -600,3 +600,22 @@ ins上面的合照，同伴的眼间距，长发，（脖子上的痣）都对�
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  古战场亡魂  
+##### 16627#       发表于 2024-7-14 22:35
+
+ 本帖最后由 古战场亡魂 于 2024-7-14 22:41 编辑 
+
+完了，这犬山的凸待一堆我不认识的了。查了一下认识了。
+
+*****
+
+####  古战场亡魂  
+##### 16628#       发表于 2024-7-14 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">犬山这pv经费没mea周年的那个高，但是感觉感官好很多。
+
+建议mea学习一下，可以适当在pv加点自己的3d。
+

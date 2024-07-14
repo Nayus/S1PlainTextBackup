@@ -4760,3 +4760,77 @@ Q娃片场这么多年来没有也不可能深入触及争议话题，既然选�
 两版本的ed塞了四位的名字
 所以说いろは和まゆ的汉字是 色叶 色彩？ 繭？
 
+
+*****
+
+####  jaewoongh_  
+##### 1902#       发表于 2024-7-14 16:28
+
+三脚猫日语简单弄了一下，如有错误敬请批评指正
+[https://x.com/AKI_kikumugi/status/1812015991825793535](https://x.com/AKI_kikumugi/status/1812015991825793535)
+[https://x.com/AKI_kikumugi/status/1812016052643201456](https://x.com/AKI_kikumugi/status/1812016052643201456)
+
+<img src="https://img.saraba1st.com/forum/202407/14/162702w6r4h7rw7e2pd9hh.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (204.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162653xenecpbcti43np9e.jpg" referrerpolicy="no-referrer">
+
+<strong>02.jpg</strong> (240.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162659gqaqe8qiczocqocc.jpg" referrerpolicy="no-referrer">
+
+<strong>03.jpg</strong> (265.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162656tc37aralbgfq8hla.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (295.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162654nai10na9rznvivvq.jpg" referrerpolicy="no-referrer">
+
+<strong>05.jpg</strong> (167.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162652qhk4py4q94wlq4rw.jpg" referrerpolicy="no-referrer">
+
+<strong>06.jpg</strong> (289.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162652kkjs9hy899nnf6j8.jpg" referrerpolicy="no-referrer">
+
+<strong>07.jpg</strong> (245.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/162651va4aiaio1g8e7t5y.jpg" referrerpolicy="no-referrer">
+
+<strong>08.jpg</strong> (235.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 16:26 上传
+

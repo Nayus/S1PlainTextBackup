@@ -10746,3 +10746,39 @@ aiai这造型压真强
 
 图转群<img src="https://p.sda1.dev/18/6c063b7d2142d481ce0981fb4ce9634d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20199#       发表于 2024-7-14 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">爛梗得要死
+
+*****
+
+####  PDQ4  
+##### 20200#       发表于 2024-7-14 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65583597&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-7-14 21:02</a>
+
+编辑掉了 漏油好严格</blockquote>
+这不是严格的事，我是来看二偶的，你们是真的爱看鉴证啊，开了口子要是引来奇怪生物以后别给楼炸了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  穗波殊  
+##### 20201#       发表于 2024-7-14 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65583767&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-14 21:19</a>
+这不是严格的事，我是来看二偶的，你们是真的爱看鉴证啊，开了口子要是引来奇怪生物以后别给楼炸了 ...</blockquote>
+看隔壁gbc发了一张<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">下次再也不敢了
+
+
+*****
+
+####  御幸一也  
+##### 20202#       发表于 2024-7-14 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">她們為什麼都不發推特，明明可以RT說明能上推特吧
+

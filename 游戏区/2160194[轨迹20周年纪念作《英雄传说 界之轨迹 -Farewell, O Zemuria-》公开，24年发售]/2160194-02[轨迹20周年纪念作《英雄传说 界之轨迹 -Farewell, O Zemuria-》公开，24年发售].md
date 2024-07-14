@@ -2013,3 +2013,29 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 话说结社不是和大总统约定好两年半互不干涉吗，应该不是直接干涉宇宙军吧 ...</blockquote>
 破戒黎2说马上结束了
 
+
+*****
+
+####  卢迪克  
+##### 1668#       发表于 2024-7-14 15:17
+
+黄色面具人看场景是在昆仑上，应该是黎恩打
+
+<img src="https://img.saraba1st.com/forum/202407/14/151640pbgcjgcmumcz1ccg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240714_151555.jpg</strong> (130.35 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-14 15:16 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/151650bkuagllzlnaage8t.jpg" referrerpolicy="no-referrer">
+
+<strong>39175B8A761A749DB95B94C53DD5941C.jpg</strong> (88.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-14 15:16 上传
+

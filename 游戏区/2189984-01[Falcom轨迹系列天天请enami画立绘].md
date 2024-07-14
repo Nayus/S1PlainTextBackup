@@ -1729,3 +1729,20 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 能讓HACCAN都崩可說是一種實 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然给你法的图确实不咋地，不过从漏油疯狂尬黑也看得出你法粉丝只是极端仇恨e圣罢了
 
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 162#       发表于 2024-7-14 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65572485&amp;ptid=2189984" target="_blank">慕容断月 发表于 2024-7-13 14:03</a>
+
+都不粉，硬要说我更怀念伊苏vs空轨时期的村上，哦对了还有09年伊苏编年史的村上，但在没有村上高度参与的 ...</blockquote>
+伊苏编年史村上的图在岩崎美奈子面前完全不行啊
+
+莉莉娅画得很唐……我是无法接受的
+
+村上的画风适合现在轨迹这种比较现代服饰的
+
+剑与魔法的伊苏1&amp;2不咋行
+

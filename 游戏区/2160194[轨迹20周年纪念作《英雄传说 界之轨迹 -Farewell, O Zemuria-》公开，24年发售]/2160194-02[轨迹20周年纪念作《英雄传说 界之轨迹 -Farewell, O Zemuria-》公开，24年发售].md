@@ -2077,3 +2077,14 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 上次大量冒出来是共和国爆发经济危机吧，这次冒出来不知道因为什么
 
+
+*****
+
+####  hkguty  
+##### 1673#       发表于 2024-7-14 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581306&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-14 15:17</a>
+
+黄色面具人看场景是在昆仑上，应该是黎恩打</blockquote>
+你这样一对比感觉像师姐啊，不过感觉身材比师姐高
+

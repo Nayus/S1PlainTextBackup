@@ -54,3 +54,12 @@
 https://x.com/Afezeria_/status/1812327552993874242?t=9miNR_iA5dEU-N40bB8sGg&amp;s=19
 AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
 
+
+*****
+
+####  Saber琪  
+##### 1899#       发表于 2024-7-14 15:59
+
+一切……都是……蒜人的错……<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f29e14b4f426934de1465b749d1a1a33/image.jpg" referrerpolicy="no-referrer">
+

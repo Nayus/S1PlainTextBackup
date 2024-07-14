@@ -1920,3 +1920,21 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 2024-7-14 15:51 上传
 
+
+*****
+
+####  糖皮质激素  
+##### 393#       发表于 2024-7-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65579199&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-14 10:26</a>
+
+可爱捏。绕口令好像女角色都说过了，咬舌头梗好像还只有荡漾（存疑）和扇表演过？</blockquote>
+这个时间节点的男扇比较特殊，虽然他跟之前的那个女扇是同一个人（怪异），但是这个扇的本质是神原造出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 394#       发表于 2024-7-14 15:59
+
+阿扇是神原的黑暗。和花物语里的是同一个
+

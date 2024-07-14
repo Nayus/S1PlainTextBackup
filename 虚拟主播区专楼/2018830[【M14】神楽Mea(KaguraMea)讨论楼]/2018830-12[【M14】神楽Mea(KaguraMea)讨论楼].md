@@ -583,3 +583,20 @@ ins上面的合照，同伴的眼间距，长发，（脖子上的痣）都对�
 
 2024-7-13 18:47 上传
 
+
+*****
+
+####  秋游刃  
+##### 16625#       发表于 2024-7-13 22:58
+
+还抽空发了个b博<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 16626#       发表于 2024-7-14 20:51
+
+17 号
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

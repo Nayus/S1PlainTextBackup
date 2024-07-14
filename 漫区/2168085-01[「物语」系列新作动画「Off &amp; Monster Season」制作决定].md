@@ -1965,3 +1965,24 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 这次的演出是新人吗，这集有好几个一只脚站立另一只脚画圆的特写镜头，不知道是不是这个人的癖好 ...</blockquote>
 是说斧乃木吗 这个动作对这个角色来说已经是一种定番了 就跟894咬舌头一样 从出场开始就有的招牌动作 有时是俯视角有时是平视角
 
+
+*****
+
+####  ahoge2004  
+##### 398#       发表于 2024-7-14 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65577269&amp;ptid=2168085" target="_blank">tiro_finale 发表于 2024-7-14 00:24</a>
+抚子这个一万小时是在瞎吉尔估算吧，先是取24的近似25，折算出400天，然后因为多加了，下修到约一年
+
+但是你 ...</blockquote>
+抚子数学不好瞎算的，吃了没文化的亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 399#       发表于 2024-7-14 16:39
+
+<blockquote>无证madam 发表于 2024-7-14 16:28
+是说斧乃木吗 这个动作对这个角色来说已经是一种定番了 就跟894咬舌头一样 从出场开始就有的招牌动作 有 ...</blockquote>
+开头扇也有这个镜头
+

@@ -10634,3 +10634,11 @@ aiai这造型压真强
 
 [https://x.com/CARTHUR_X/status/1812351317865595117](https://x.com/CARTHUR_X/status/1812351317865595117)
 
+
+*****
+
+####  基神的强袭自由  
+##### 20189#       发表于 2024-7-14 13:33
+
+抢到两次BML的S票了，但是没有抢到BW票，所以没有去上海<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

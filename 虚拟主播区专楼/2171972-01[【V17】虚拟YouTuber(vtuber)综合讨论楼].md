@@ -428,3 +428,13 @@ vspo cn还是来了，虽然不看好还是先看个乐子
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  格林卡罗尔  
+##### 461#       发表于 2024-7-14 19:57
+
+加贺美是决斗大师的爹，夜见是gbf的爹是吧。好好好你们smc这么玩
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

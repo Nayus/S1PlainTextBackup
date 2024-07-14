@@ -10703,3 +10703,11 @@ aiai这造型压真强
 
 五个人别当晚或者明早就回去吧，wsd来点外国人惯例的外滩观景呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20194#       发表于 2024-7-14 19:58
+
+干脆后天回去，明天直接上迪团建
+

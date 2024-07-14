@@ -10782,3 +10782,40 @@ aiai这造型压真强
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">她們為什麼都不發推特，明明可以RT說明能上推特吧
 
+
+*****
+
+####  PDQ4  
+##### 20203#       发表于 2024-7-14 21:36
+
+可能出去玩了，也可能在吃大餐<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20204#       发表于 2024-7-14 21:37
+
+海底捞团建不可能没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 20205#       发表于 2024-7-14 21:38
+
+看了一眼凛和蜜柑两天都发了，该不会你鸡有什么特殊要求吧
+
+*****
+
+####  Aendst  
+##### 20206#       发表于 2024-7-14 21:39
+
+海底捞东京也有店，没必要跑国内吃海底捞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20207#       发表于 2024-7-14 21:42
+
+可能像之前的青木那样直接录视频到时候发B官号了
+

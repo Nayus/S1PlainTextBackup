@@ -1746,3 +1746,40 @@ e圣的真爱是星之海洋，产能质量都在线</blockquote>
 
 剑与魔法的伊苏1&amp;2不咋行
 
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 163#       发表于 2024-7-14 21:40
+
+ 本帖最后由 唧唧歪歪八卦阵 于 2024-7-14 21:41 编辑 
+
+你法外聘的画师
+
+完全发挥水准的只有结城信辉和恩田尚之
+
+伊苏起源人设的田上俊介当时肢体也画得很僵硬
+
+现在田上画技算是进步了，但是已经往废萌发展了……
+
+他再画女神，已经没当年的味了
+
+<img src="https://img.saraba1st.com/forum/202407/14/213951gsftar8s4sm44th0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240601210434.png</strong> (150.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/214001d4ea1a1eeieemmea.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240601211310.png</strong> (197.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 21:40 上传
+
+翻译
+搜索复制
+

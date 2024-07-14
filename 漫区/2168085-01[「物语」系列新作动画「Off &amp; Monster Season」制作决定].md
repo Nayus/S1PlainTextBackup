@@ -2082,3 +2082,29 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 思路再打开一点，画什么就能出什么的话，感觉完全没上限，很逆天的能力。
 
+
+*****
+
+####  Azako  
+##### 410#       发表于 2024-7-14 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65585178&amp;ptid=2168085" target="_blank">⑨个饼干 发表于 2024-07-14 23:30:20</a>
+思路再打开一点，画什么就能出什么的话，感觉完全没上限，很逆天的能力。 ...</blockquote>抚子只是单纯画画而已，虽然抚子很有潜力但是这个时候负责变式神的是斧乃木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这大概是正弦那一系的能力
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  sheshiro  
+##### 411#       发表于 2024-7-14 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65584399&amp;ptid=2168085" target="_blank">格林卡罗尔 发表于 2024-7-14 22:28</a>
+刘海时代怎么不穿那套恋爱循环造型
+
+不过现在的抚子是不是比神抚子的还要强，一下变四个抚子出来还包括之前 ...</blockquote>
+因为是夏天（其实并不）
+
+蛇神算得了什么，抚子小妹现在可是地道的专家了，虽然她并不知道但那个什么都知道的人早就知道了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

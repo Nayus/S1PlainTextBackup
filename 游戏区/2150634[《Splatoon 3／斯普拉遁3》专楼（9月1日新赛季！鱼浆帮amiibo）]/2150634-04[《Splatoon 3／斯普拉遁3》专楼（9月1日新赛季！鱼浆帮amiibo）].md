@@ -203,3 +203,18 @@
 
 游乐场阵营菜狗多如牛毛。选它我一定是脑子坏了。来自: iPhone客户端
 
+
+*****
+
+####  Ryuuseigun  
+##### 4816#       发表于 2024-7-14 23:34
+
+好久没玩了登上来凑个特殊祭典的热闹连输五把，我多余打开这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Junchoon  
+##### 4817#       发表于 2024-7-14 23:39
+
+哈哈哈，连输14把，你们谁敢与我为敌？
+

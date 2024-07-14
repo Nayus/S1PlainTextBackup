@@ -1825,3 +1825,16 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 小扇的无害证明是什么来着，因为被咩咩赋予了存在所以威胁降级了？
 
+
+*****
+
+####  smdzh2  
+##### 387#       发表于 2024-7-14 11:35
+
+<img src="https://p.sda1.dev/18/dbd3055a5bf1289df31ca1f4c6a127f8/image.jpg" referrerpolicy="no-referrer">
+熟悉的感觉回来了
+
+<img src="https://p.sda1.dev/18/e17b5df1a1c4139e3d324fa59656099b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c4fa604ce1b16b15cc54bfd8562dc9de/image.jpg" referrerpolicy="no-referrer">
+可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

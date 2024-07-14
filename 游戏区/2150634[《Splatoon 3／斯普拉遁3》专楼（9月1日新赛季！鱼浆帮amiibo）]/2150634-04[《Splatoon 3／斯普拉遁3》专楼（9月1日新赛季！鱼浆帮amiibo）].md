@@ -185,3 +185,13 @@
 
 —— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4814#       发表于 2024-7-14 20:42
+
+好久没打对战，祭典用52发现已经打不到人了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

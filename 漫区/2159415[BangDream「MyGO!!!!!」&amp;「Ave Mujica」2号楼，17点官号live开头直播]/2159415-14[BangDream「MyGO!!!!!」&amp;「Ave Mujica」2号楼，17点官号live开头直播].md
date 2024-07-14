@@ -11200,3 +11200,104 @@ https://tieba.baidu.com/p/9089603013
 神秘审美</blockquote>
 Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 20241#       发表于 2024-7-15 00:24
+
+虹馆不是说换设备了吗……还这么糊那有点……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 20242#       发表于 2024-7-15 00:26
+
+基本没有休息时间把angles接在masquerade和黑生日后面还是压力有点大，两天的angles都能感觉到
+
+*****
+
+####  PPB3008  
+##### 20243#       发表于 2024-7-15 00:27
+
+而且除了两天一样的糊，设备今天直接出事故了，樋口爱上去第一首收音挂了，后面把她请回来又唱了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20244#       发表于 2024-7-15 00:28
+
+ 本帖最后由 PDQ4 于 2024-7-15 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65585735&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-15 00:18</a>
+
+鸡楼死鱼回收计划
+
+对一个小号这么反应过激，还不如把死鱼给纯良楼友加鹅</blockquote>
+问题不大，死鱼够多<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20245#       发表于 2024-7-15 00:34
+
+B这设备<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+不过只是小翻还好了，我觉得wsd可能还是有意识练兵
+
+以后参加拼盘机会多起来，得坚持下来才行，这种拼盘小翻不丢人，多练练<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 20246#       发表于 2024-7-15 00:46
+
+看了側拍視角才發現Dolo子和Ob子很多同步的動作
+
+這就是過年還會視訊練習的含金量嗎<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 20247#       发表于 2024-7-15 01:16
+
+<img src="https://img.saraba1st.com/forum/202407/15/011541jjiccc6u0c5mnssq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 01:15 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/011557sbs7f6snl3pnl5fb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 01:15 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">https://tieba.baidu.com/p/9089603013
+
+神秘审美
+
+*****
+
+####  ddy2811  
+##### 20248#       发表于 2024-7-15 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65586101&amp;ptid=2159415" target="_blank">6030sylar 发表于 2024-7-15 01:16</a>
+
+https://tieba.baidu.com/p/9089603013
+
+神秘审美</blockquote>
+Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  550616  
+##### 20249#       发表于 2024-7-15 05:25
+
+主场不给力，被问及何时来开live都没底气
+
+母鸡卡领先了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -1948,3 +1948,14 @@ Nihon Falcom关于翻拍和新发行的战略决策可能会严格影响其市�
 
 不知道是不是火星了，怎么看到会长在白毛怀里脸红撒娇的图，你法这么会玩了？
 
+
+*****
+
+####  卢迪克  
+##### 1662#       发表于 2024-7-14 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65580788&amp;ptid=2160194" target="_blank">lxshhh 发表于 2024-7-14 13:57</a>
+
+不知道是不是火星了，怎么看到会长在白毛怀里脸红撒娇的图，你法这么会玩了？ ...</blockquote>
+黎2被打死就先喊的安酱然后克洛最后才是黎恩啊，乔治查无此人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

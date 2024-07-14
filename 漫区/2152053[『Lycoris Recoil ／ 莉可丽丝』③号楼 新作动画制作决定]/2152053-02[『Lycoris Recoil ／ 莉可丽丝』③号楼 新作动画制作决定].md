@@ -63,3 +63,13 @@ AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
 一切……都是……蒜人的错……<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/f29e14b4f426934de1465b749d1a1a33/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 1900#       发表于 2024-7-14 16:04
+
+蒜2千束会成长的 
+然后回应泷奈的感情
+前途一片光明
+

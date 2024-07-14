@@ -243,3 +243,13 @@ day1这首歌就不适合太多人唱，K组唱得真不错
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  csolfans  
+##### 20536#       发表于 2024-7-14 18:26
+
+鱼在BML第二首歌曲是翻唱死神的Change
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

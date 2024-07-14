@@ -303,3 +303,12 @@ PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
 
 [https://tjoy.jp/shinjuku_wald9](https://tjoy.jp/shinjuku_wald9)
 
+
+*****
+
+####  osore  
+##### 97#       发表于 2024-7-14 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">男主好废物
+话说b站版为啥没删kiss，因为是救人吗
+

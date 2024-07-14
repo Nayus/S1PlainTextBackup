@@ -153,3 +153,13 @@
 怎么准备祭是宫殿第一啊，我看投票都是游乐园最多啊。莎莎队这么能肝</blockquote>
 经过这几次我觉得，纯粹看平时一直玩的大佬投哪个选项的人多233
 
+
+*****
+
+####  墨染白泉  
+##### 4811#       发表于 2024-7-14 12:31
+
+挑战十倍排到金x被薄纱，下把直接排到百倍赢了，这是排到金x的补偿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DBY2-W00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

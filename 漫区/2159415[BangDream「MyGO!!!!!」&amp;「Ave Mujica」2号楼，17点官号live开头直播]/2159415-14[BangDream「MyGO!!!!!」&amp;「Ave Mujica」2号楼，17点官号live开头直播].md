@@ -10572,3 +10572,21 @@ b站上手机录的答辩音质都听爽了
 
 而且李子现在的公司很给力，明年没准有机会单上asl
 
+
+*****
+
+####  6030sylar  
+##### 20186#       发表于 2024-7-14 12:36
+
+[https://www.bilibili.com/video/B ... 13ba91f4603f2f83916](https://www.bilibili.com/video/BV1Sb421n7PR/?vd_source=3646e4ba774f513ba91f4603f2f83916)
+
+<img src="https://img.saraba1st.com/forum/202407/14/123552i5lxlj6gj2j25516.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (692.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 12:35 上传
+
+aiai这造型压真强
+

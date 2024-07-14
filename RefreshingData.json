@@ -1827,12 +1827,12 @@
     "update": false
   },
   "1957309": {
-    "totalreply": 2375,
+    "totalreply": 2378,
     "title": "[星期一的满杯讨论楼]",
     "newtitle": "[星期一的满杯讨论楼]",
-    "lastedit": 1720393569,
+    "lastedit": 1720999928,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1904473": {
@@ -9900,10 +9900,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 54849,
+    "totalreply": 54850,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1720999331,
+    "lastedit": 1721000170,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14031,10 +14031,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 30889,
+    "totalreply": 30891,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1720998846,
+    "lastedit": 1721000289,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -14877,10 +14877,10 @@
     "update": false
   },
   "2159922": {
-    "totalreply": 258,
+    "totalreply": 259,
     "title": "[败犬女主太多了！动画化 2024年7月]",
     "newtitle": "[败犬女主太多了！动画化 2024年7月]",
-    "lastedit": 1720999331,
+    "lastedit": 1721000170,
     "category": "漫区",
     "active": true,
     "update": false
@@ -21114,10 +21114,10 @@
     "update": false
   },
   "2190693": {
-    "totalreply": 67,
+    "totalreply": 68,
     "title": "[打完勇者斗恶龙10离线版 全限制流程，说说感想]",
     "newtitle": "[打完勇者斗恶龙10离线版 全限制流程，说说感想]",
-    "lastedit": 1720934073,
+    "lastedit": 1720999929,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -22959,10 +22959,10 @@
     "update": false
   },
   "2191381": {
-    "totalreply": 1382,
+    "totalreply": 1385,
     "title": "[Ykw遇刺，无生命危险]",
     "newtitle": "[Ykw宾州遇刺，无生命危险]",
-    "lastedit": 1720998974,
+    "lastedit": 1721000292,
     "category": "外野",
     "active": true,
     "update": false
@@ -23013,10 +23013,10 @@
     "update": false
   },
   "2191311": {
-    "totalreply": 51,
+    "totalreply": 52,
     "title": "[PCSX2 2.0版本发布]",
     "newtitle": "[PCSX2 2.0版本发布]",
-    "lastedit": 1720986606,
+    "lastedit": 1721000169,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -23058,10 +23058,10 @@
     "update": false
   },
   "2191401": {
-    "totalreply": 86,
+    "totalreply": 87,
     "title": "[福宝的韩国饲养员爷爷来到中国看福宝, 结果发现福宝根本不认识]",
     "newtitle": "[福宝的韩国饲养员爷爷来到中国看福宝, 结果发现福宝根本不认识]",
-    "lastedit": 1720998974,
+    "lastedit": 1721000047,
     "category": "外野",
     "active": true,
     "update": false
@@ -23198,6 +23198,15 @@
     "newtitle": "[再次转型为vtuber 魔魔マラ真爱楼]",
     "lastedit": 1720997086,
     "category": "虚拟主播区专楼",
+    "active": true,
+    "update": false
+  },
+  "2191461": {
+    "totalreply": 41,
+    "title": "[我们多大程度上会重演日本的遭遇]",
+    "newtitle": "[我们多大程度上会重演日本的遭遇]",
+    "lastedit": 1721000292,
+    "category": "外野",
     "active": true,
     "update": false
   }

@@ -10827,3 +10827,13 @@ aiai这造型压真强
 
 不是说国外有没有，出来一趟如果要找个吃饭的地方团建感觉海底捞应该是气氛最合适的
 
+
+*****
+
+####  PDQ4  
+##### 20209#       发表于 2024-7-14 22:16
+
+来国外一次肯定是吃当地特色菜团建吧，吃点本帮菜什么的，国内有的就没啥意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过上海特色菜我觉得不少人第一反应都会是日料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

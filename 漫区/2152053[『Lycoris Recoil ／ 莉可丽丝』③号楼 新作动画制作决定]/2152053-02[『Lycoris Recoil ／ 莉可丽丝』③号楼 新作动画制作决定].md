@@ -73,3 +73,11 @@ AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
 然后回应泷奈的感情
 前途一片光明
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1901#       发表于 2024-7-14 17:12
+
+看了隔壁动画，能不能来点货真价实的顶级资源<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

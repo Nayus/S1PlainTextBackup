@@ -173,3 +173,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  蓝色的眷念  
+##### 4813#       发表于 2024-7-14 17:10
+
+<img src="https://p.sda1.dev/18/c98ab005791e1dd29e62334bd0e495d4/CMP_20240714170924844.jpg" referrerpolicy="no-referrer">
+
+防守方两个新叶一个金喷，射程最远的是个金重刷。进攻方左右两边一边架一个消防栓，跟打鸭子似的，一群小短手根本没机会摸过去，被狠狠霸凌了
+
+—— 来自 meizu MEIZU 20 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

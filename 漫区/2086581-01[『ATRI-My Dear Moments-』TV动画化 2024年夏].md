@@ -312,3 +312,47 @@ PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">男主好废物
 话说b站版为啥没删kiss，因为是救人吗
 
+
+*****
+
+####  Piano-Forest  
+##### 98#         楼主| 发表于 2024-7-15 01:39
+
+[https://x.com/yusano/status/1812149299029086335](https://x.com/yusano/status/1812149299029086335)
+
+#ATRI -My Dear Moments-ご視聴ありがとうございました！次回もよろしくお願いいたします！
+<img src="https://p.sda1.dev/18/ccc27a97ba6c4001c0c078e7601c5fb7/20240715_013427.jpg" referrerpolicy="no-referrer">
+
+┼─
+
+ #ATRI -My Dear Moments-
+
+　   Blu-ray DVD📀BOX
+
+    　　　   　　     　     ─┼
+
+／
+
+🦀ジャケットイラスト＆CM公開✨️
+
+＼
+
+イラストは #ゆさの @yusano さん
+
+描き下ろしのアトリ👏👏👏✨️
+
+ぜひ予約してみて下さい😉
+
+📅11/27 ON SALE
+<img src="https://p.sda1.dev/18/56c90c5d919c3c3ac977ddc2d407ab03/20240715_013628.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/bluendorange1/status/1812155959688712321](https://x.com/bluendorange1/status/1812155959688712321)
+
+メカデザインでお手伝いさせて頂きました。
+
+最後までどうぞ宜しくお願い致します🦀
+<img src="https://p.sda1.dev/18/b22a54196398e013013726e4afda8ce3/20240715_013424.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/18/e950183c52d52808f8c6d76ae41c6015/20240715_013020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e31842e2588acc369e47e7f20fb3b615/20240715_013550.jpg" referrerpolicy="no-referrer">
+

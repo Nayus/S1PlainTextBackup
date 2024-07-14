@@ -2122,3 +2122,12 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 这些能力之后自己一个人就能使用，不需要斧乃木协助
 
+
+*****
+
+####  Piano-Forest  
+##### 413#         楼主| 发表于 2024-7-15 01:44
+
+[https://x.com/asakonishida/status/1812126123893092805](https://x.com/asakonishida/status/1812126123893092805)
+<img src="https://p.sda1.dev/18/9c344221d8db271de7fc3e829c7e78e0/20240715_014341.jpg" referrerpolicy="no-referrer">
+

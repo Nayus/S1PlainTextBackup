@@ -11086,3 +11086,42 @@ b站上看了下录播，连唱四首，李子太稳了，怎么live和cd一样�
 鸡楼死鱼回收计划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 对一个小号这么反应过激，还不如把死鱼给纯良楼友加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20232#       发表于 2024-7-15 00:22
+
+有個日本富婆睦廚天天約這個小畫家好有錢阿…<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 公道價最低一張4萬羊呢
+
+<img src="https://img.saraba1st.com/forum/202407/15/002038cp2aarhzppkhphps.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_水月とーこ(@mizukitoko)_20240714-144101_1812497534558019736_photo.jpg</strong> (444.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 00:20 上传
+
+[https://x.com/mizukitoko/status/1812497534558019736](https://x.com/mizukitoko/status/1812497534558019736)
+
+*****
+
+####  Aendst  
+##### 20233#       发表于 2024-7-15 00:24
+
+虹馆不是说换设备了吗……还这么糊那有点……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 20234#       发表于 2024-7-15 00:26
+
+基本没有休息时间把angles接在masquerade和黑生日后面还是压力有点大，两天的angles都能感觉到
+
+*****
+
+####  PPB3008  
+##### 20235#       发表于 2024-7-15 00:27
+
+而且除了两天一样的糊，设备今天直接出事故了，樋口爱上去第一首收音挂了，后面把她请回来又唱了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

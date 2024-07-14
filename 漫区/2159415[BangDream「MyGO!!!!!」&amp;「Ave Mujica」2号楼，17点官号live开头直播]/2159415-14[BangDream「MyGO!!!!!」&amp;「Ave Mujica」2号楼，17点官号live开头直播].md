@@ -11125,3 +11125,29 @@ b站上看了下录播，连唱四首，李子太稳了，怎么live和cd一样�
 
 而且除了两天一样的糊，设备今天直接出事故了，樋口爱上去第一首收音挂了，后面把她请回来又唱了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20236#       发表于 2024-7-15 00:28
+
+ 本帖最后由 PDQ4 于 2024-7-15 00:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65585735&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-15 00:18</a>
+
+鸡楼死鱼回收计划
+
+对一个小号这么反应过激，还不如把死鱼给纯良楼友加鹅</blockquote>
+问题不大，死鱼够多<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 20237#       发表于 2024-7-15 00:34
+
+B这设备<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+不过只是小翻还好了，我觉得wsd可能还是有意识练兵
+
+以后参加拼盘机会多起来，得坚持下来才行，这种拼盘小翻不丢人，多练练<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

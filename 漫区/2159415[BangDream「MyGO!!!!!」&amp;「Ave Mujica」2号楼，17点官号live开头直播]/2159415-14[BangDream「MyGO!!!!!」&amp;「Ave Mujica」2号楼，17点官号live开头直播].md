@@ -10729,3 +10729,20 @@ aiai这造型压真强
 
 玩一天怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  arachnid  
+##### 20197#       发表于 2024-7-14 21:02
+
+认识的一个哥们搞到票去现场听母鸡卡，我好羡慕啊<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/327bd0fbed4f6b70d22d9dc1a031c77b/1.jpg" referrerpolicy="no-referrer">
+[https://x.com/bang_dream_info/status/1812453221446926463](https://x.com/bang_dream_info/status/1812453221446926463)
+
+*****
+
+####  穗波殊  
+##### 20198#       发表于 2024-7-14 21:02
+
+图转群<img src="https://p.sda1.dev/18/6c063b7d2142d481ce0981fb4ce9634d/image.jpg" referrerpolicy="no-referrer">
+

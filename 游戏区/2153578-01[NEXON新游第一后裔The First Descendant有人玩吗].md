@@ -1110,3 +1110,13 @@ pc的优化完全是灾难等级
 
 打开ps5发现这游戏也上ps5，再试一次，滑顺得不得了，应该是稳定60帧，见鬼的优化
 
+
+*****
+
+####  emmerMK2  
+##### 113#       发表于 2024-7-14 09:18
+
+反向优化，我PC版开服没遇到任何问题
+
+现在运行一段时间以后帧数会骤降，必须重启游戏才能恢复<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

@@ -503,3 +503,16 @@ B站这边之前就有个mugen live还是啥的，同属一个集团 ，本社�
 夜见这3Dlive不光把holo的人请来了还把老男人请来了。
 嗯，看来之后3D角色出现在管人live应该会更多吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 468#       发表于 2024-7-14 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65584102&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-7-14 21:54</a>
+
+不过说到en，虽然说皮不是很差，但对比本社还是感受到了些待遇区别。vspo现在的新人画师基本上都是顶尖插画 ...</blockquote>
+就一个比较没名气吧（我感觉没名气的那个画的最出彩）
+
+剩下一个杏妈一个しらび，怎么样都不能说不行
+

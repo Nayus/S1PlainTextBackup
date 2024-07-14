@@ -321,3 +321,11 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 终于打完了，爬塔太肝了。。。。。
 
+
+*****
+
+####  qixinno2  
+##### 46519#       发表于 2024-7-14 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开着BB打我都嫌烦 各种弱智配队出招只能手动过关
+

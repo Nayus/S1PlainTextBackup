@@ -418,3 +418,13 @@ TUBEOUT居然在B站开号了，今后会有国V专场吗<img src="https://stati
 
 连枪击都能凑上去发推未免也……
 
+
+*****
+
+####  格林卡罗尔  
+##### 460#       发表于 2024-7-14 19:34
+
+vspo cn还是来了，虽然不看好还是先看个乐子
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

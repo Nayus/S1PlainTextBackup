@@ -11151,3 +11151,13 @@ B这设备<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" 
 
 以后参加拼盘机会多起来，得坚持下来才行，这种拼盘小翻不丢人，多练练<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 20238#       发表于 2024-7-15 00:46
+
+看了側拍視角才發現Dolo子和Ob子很多同步的動作
+
+這就是過年還會視訊練習的含金量嗎<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

@@ -1994,3 +1994,16 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 中间有几分钟会有点闷，想要看看进度条到哪了，但整体来说还是很有趣，能开心看完<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无证madam  
+##### 401#       发表于 2024-7-14 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581829&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-14 16:39</a>
+
+开头扇也有这个镜头</blockquote>
+开头扇那卡只是为了强调一下男扇女扇的一体性 跟后面的转圈不太一样 斧乃木转圈作用基本就是填充画面元素
+
+斧乃木转圈这个点子跟这集演出肯定没关系 这个元素第一次出现的时候松村幸治甚至都不在沙发套 在别的地方打杂呢
+

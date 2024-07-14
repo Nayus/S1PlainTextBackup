@@ -43,3 +43,14 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">谁画的啊，有无链接
 <img src="https://tg-image.com/file/1831e911dcd79e22cf155.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Saber琪  
+##### 1898#       发表于 2024-7-14 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65580779&amp;ptid=2152053" target="_blank">黑夜夜夜 发表于 2024-7-14 13:55</a>
+谁画的啊，有无链接</blockquote>
+https://x.com/Afezeria_/status/1812327552993874242?t=9miNR_iA5dEU-N40bB8sGg&amp;s=19
+AI弄的，在twi翻到的，不清楚是否为这张AI整活的原作者
+

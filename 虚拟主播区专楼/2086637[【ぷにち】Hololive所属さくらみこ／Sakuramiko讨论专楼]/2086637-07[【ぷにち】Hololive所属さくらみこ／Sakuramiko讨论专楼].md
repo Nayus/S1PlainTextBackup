@@ -3761,3 +3761,40 @@ miko跟祖国人共情了
 
 早泄窗 
 
+
+*****
+
+####  rs5621  
+##### 9217#       发表于 2024-7-14 21:56
+
+ 本帖最后由 rs5621 于 2024-7-14 22:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">35五子棋欺负老阿姨脑子转不动
+
+<img src="https://img.saraba1st.com/forum/202407/14/220344s0wmh0wwmw5hyaz4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (779.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 22:03 上传
+
+双绞杀，35无路可走
+
+*****
+
+####  holoan  
+##### 9218#         楼主| 发表于 2024-7-14 22:10
+
+<img src="https://img.saraba1st.com/forum/202407/14/220906aio8s4z182uxz2u0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 22:09 上传
+
+虽然是赢了但是船长一直很想把自己挂上那堵墙所以就说要不把自己的柰子挂上去
+
+如果真的这么做了那下次的直播画面背景就……
+

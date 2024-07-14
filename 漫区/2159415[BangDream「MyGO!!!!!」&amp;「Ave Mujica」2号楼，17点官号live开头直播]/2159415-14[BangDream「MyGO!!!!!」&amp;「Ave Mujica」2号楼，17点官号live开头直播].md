@@ -10562,3 +10562,13 @@ b站上手机录的答辩音质都听爽了
 三十年河东，三十年河西</blockquote>
 想起陈奕迅那句歌词：那年18(指2018)  bw集会  站着如喽啰( <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20185#       发表于 2024-7-14 12:17
+
+邪神酱今年还能上asl呢，也没那么糊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+而且李子现在的公司很给力，明年没准有机会单上asl
+

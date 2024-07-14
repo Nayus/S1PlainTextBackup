@@ -1888,3 +1888,35 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oi99o  
+##### 392#       发表于 2024-7-14 15:52
+
+那素描来代替打招呼是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/14/155141fwamhpzfopogspfi.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 02 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (153.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 15:51 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/155141fal9l40noy8dazjr.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 02 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (186.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 15:51 上传
+
+<img src="https://img.saraba1st.com/forum/202407/14/155141xru9brifalztyr7p.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 02 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (128.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 15:51 上传
+

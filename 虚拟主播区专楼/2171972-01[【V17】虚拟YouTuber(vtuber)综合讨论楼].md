@@ -438,3 +438,11 @@ vspo cn还是来了，虽然不看好还是先看个乐子
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  _Ra1nMaker  
+##### 462#       发表于 2024-7-14 20:21
+
+还真给vspocn招到人了啊，希望能正常点。CN分部尴尬的还是怎么跟本社联动，或者说怎么利用本社的资源更好发展吧。。。
+

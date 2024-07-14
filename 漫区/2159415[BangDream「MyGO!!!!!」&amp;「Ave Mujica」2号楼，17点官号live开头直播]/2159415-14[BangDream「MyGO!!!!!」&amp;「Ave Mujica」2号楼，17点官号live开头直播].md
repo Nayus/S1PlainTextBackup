@@ -10910,3 +10910,70 @@ aiai这造型压真强
 
 套用meme图是互联网的特色，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20218#       发表于 2024-7-14 23:52
+
+<img src="https://p.sda1.dev/18/b283987c0cd44b6d742db9290a1ec9b6/image.png" referrerpolicy="no-referrer">
+[ スカル573 @forhor1](https://x.com/forhor1/status/1812431958950957368)
+
+唉美帝
+
+
+*****
+
+####  第七軍伐戎処  
+##### 20219#       发表于 2024-7-14 23:55
+
+<img src="https://p.sda1.dev/18/a2591f5562902118a5a79e7004c0aeb1/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1f0b4745818dd96fe7f5be82829e371b/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/607f0f00621fcf1a86274373cc09f393/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5685aae3d9cb9493d19e6349f4418404/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/545b965c2425dbf1134b1bbf77ae098e/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/db715995a73b4f1f01f8a72adcb8dd2c/image.png" referrerpolicy="no-referrer">
+[わたぬき @n_wtnk](https://x.com/n_wtnk/status/1812480309797208153)
+
+唉美帝
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20220#       发表于 2024-7-14 23:56
+
+<img src="https://p.sda1.dev/18/c1e7cf56f693fba512d327160d4833a7/image.png" referrerpolicy="no-referrer">
+[ 拓次💫⭐✨🌟⭐💫 @the_iizumi](https://x.com/the_iizumi/status/1812478953518719242)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20221#       发表于 2024-7-14 23:57
+
+<img src="https://p.sda1.dev/18/ad5a8c1ed9e1062aaae59bfeaaee1099/image.png" referrerpolicy="no-referrer">
+[ 紅涙 @Kourui_07](https://x.com/Kourui_07/status/1812496637451010111)
+

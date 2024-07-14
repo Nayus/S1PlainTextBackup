@@ -1838,3 +1838,24 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 <img src="https://p.sda1.dev/18/c4fa604ce1b16b15cc54bfd8562dc9de/image.jpg" referrerpolicy="no-referrer">
 可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vneeto  
+##### 388#       发表于 2024-7-14 12:05
+
+ 本帖最后由 Vneeto 于 2024-7-14 12:08 编辑 
+
+哆啦A梦拉未来的4个自己来通宵肝作业。
+
+把过去的自己拉来发展剧情挺有意思的。没看过原作，接下来是一周解决一个还是一周两个还是一口气解决？解决方式大概也是类似第一话的得在怪异面前直接处理那些自画像吧？
+
+*****
+
+####  孟沁瑶  
+##### 389#       发表于 2024-7-14 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65579199&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-14 10:26</a>
+可爱捏。绕口令好像女角色都说过了，咬舌头梗好像还只有荡漾（存疑）和扇表演过？</blockquote>
+她是正体被认识到就会被黑暗吞噬，咩咩给了她自己侄女的身份才能继续存在
+

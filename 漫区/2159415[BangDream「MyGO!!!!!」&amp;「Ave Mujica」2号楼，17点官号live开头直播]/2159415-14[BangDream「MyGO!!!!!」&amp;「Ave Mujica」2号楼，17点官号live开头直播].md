@@ -10551,3 +10551,14 @@ b站上手机录的答辩音质都听爽了
 
 【Lucky Fes Roselia部分-哔哩哔哩直播】 https://b23.tv/4Uto0GI
 
+
+*****
+
+####  arachnid  
+##### 20184#       发表于 2024-7-14 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65579560&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-14 11:08</a>
+
+三十年河东，三十年河西</blockquote>
+想起陈奕迅那句歌词：那年18(指2018)  bw集会  站着如喽啰( <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

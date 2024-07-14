@@ -11031,3 +11031,58 @@ b站上看了下录播，连唱四首，李子太稳了，怎么live和cd一样�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png">别尬黑，音宝现在比以前强多了，不叫变幻莫测好吧
 还得是（）（）（）（）
 
+
+*****
+
+####  御幸一也  
+##### 20228#       发表于 2024-7-15 00:12
+
+噴了泰國人的睦喵 最高和最矮<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/15/001213pyhhhjprkryrr4pr.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ท่านหยิงน้องซากิโกดโกะกิเกงโย๊ะ(@pcxwise).jpg</strong> (1 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 00:12 上传
+
+[https://x.com/pcxwise/status/1812517149476622728](https://x.com/pcxwise/status/1812517149476622728)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| PDQ4| + 1||
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 20229#       发表于 2024-7-15 00:14
+
+有品，睦喵会卖的，现在对睦爹妈的兴趣总有一天会被本人吸走<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PPB3008  
+##### 20230#       发表于 2024-7-15 00:17
+
+回来了，朋友在前排拍的
+<img src="https://p.sda1.dev/18/90f88437454e9934c9e860fed10e463f/CMP_20240715001642678.jpg" referrerpolicy="no-referrer">
+第三首黑生日的时候可能李子嗓子有点劈了，到唱angles的时候能听的出来（
+但是仍然很爽，至于虹馆真的不适合办这种重乐器的live，所有乐器糊成一片，没到solo糊到连鼓都听不太出来属实有点难绷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 20231#       发表于 2024-7-15 00:18
+
+鸡楼死鱼回收计划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+对一个小号这么反应过激，还不如把死鱼给纯良楼友加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

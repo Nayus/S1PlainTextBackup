@@ -4855,3 +4855,16 @@ Q娃片场这么多年来没有也不可能深入触及争议话题，既然选�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65579138&amp;ptid=2162354" target="_blank">Piano-Forest 发表于 2024-7-14 10:17</a></blockquote>
 好可爱，能贴个作者吗
 
+
+*****
+
+####  jaewoongh_  
+##### 1905#       发表于 2024-7-14 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65582587&amp;ptid=2162354" target="_blank">hisousihou 发表于 2024-7-14 18:42</a>
+
+好可爱，能贴个作者吗</blockquote>
+[https://x.com/sc_ome/status/1812152097984729384](https://x.com/sc_ome/status/1812152097984729384)
+
+作者是内田阳子，今年的人设
+

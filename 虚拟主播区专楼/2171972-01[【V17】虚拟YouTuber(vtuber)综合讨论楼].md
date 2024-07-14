@@ -494,3 +494,12 @@ B站这边之前就有个mugen live还是啥的，同属一个集团 ，本社�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  渡鸦骑士  
+##### 467#       发表于 2024-7-14 22:37
+
+夜见这3Dlive不光把holo的人请来了还把老男人请来了。
+嗯，看来之后3D角色出现在管人live应该会更多吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

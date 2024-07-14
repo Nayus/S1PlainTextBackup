@@ -10864,3 +10864,34 @@ aiai这造型压真强
 
 纯粹人身攻击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 20213#       发表于 2024-7-14 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么老喜欢往角色身上套这种梗
+
+
+*****
+
+####  Aendst  
+##### 20214#       发表于 2024-7-14 23:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么一定要发一些拉低讨论水平的东西，什么低级趣味
+
+*****
+
+####  御幸一也  
+##### 20215#       发表于 2024-7-14 23:02
+
+小姐姐你這樣會被夢女包圍的<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/14/230208fpjpg6mnusedysgx.png" referrerpolicy="no-referrer">
+
+<strong>GSdFywIXkAAeqtV.png</strong> (393.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-14 23:02 上传
+

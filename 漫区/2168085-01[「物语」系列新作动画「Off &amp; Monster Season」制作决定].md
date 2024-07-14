@@ -2057,3 +2057,20 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 虽然物语一直都是以话多著称，但这集的废话信息量是不是有点低……整集就说了抚子分身这一件事
 
+
+*****
+
+####  57042711  
+##### 407#       发表于 2024-7-14 22:26
+
+还是蛇神版本的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  格林卡罗尔  
+##### 408#       发表于 2024-7-14 22:28
+
+刘海时代怎么不穿那套恋爱循环造型<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

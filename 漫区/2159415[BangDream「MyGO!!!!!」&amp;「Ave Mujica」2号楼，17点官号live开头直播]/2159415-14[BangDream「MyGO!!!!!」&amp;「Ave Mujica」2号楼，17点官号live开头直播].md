@@ -10837,3 +10837,13 @@ aiai这造型压真强
 
 不过上海特色菜我觉得不少人第一反应都会是日料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20210#       发表于 2024-7-14 22:26
+
+主要她们平时在东京也不会去海底捞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来以前日留的时候我和我认识的人好像有什么活动全去的海底捞，她们如果去日料店团建好像也能理解
+

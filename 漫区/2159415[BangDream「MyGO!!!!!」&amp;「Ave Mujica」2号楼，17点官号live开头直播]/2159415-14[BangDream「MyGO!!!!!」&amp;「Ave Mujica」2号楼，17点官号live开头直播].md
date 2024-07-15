@@ -11612,3 +11612,21 @@ day1感觉spyair就是全场最high的时候了呀，这个哥们有点抽象，
 
 也有可能aether是串联起其他四元素的曲子，官方根据歌词控制变色？
 
+
+*****
+
+####  星天观测  
+##### 20276#       发表于 2024-7-15 16:08
+
+突然意识到剩下半个月好像没鸡什么动静了
+
+可能只能等她们陆续发点来玩的repo照片之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MZZK  
+##### 20277#       发表于 2024-7-15 16:16
+
+人偶集会什么时候开啊，邦TV几个月才能轮到一次，明明五个人有一堆能聊的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

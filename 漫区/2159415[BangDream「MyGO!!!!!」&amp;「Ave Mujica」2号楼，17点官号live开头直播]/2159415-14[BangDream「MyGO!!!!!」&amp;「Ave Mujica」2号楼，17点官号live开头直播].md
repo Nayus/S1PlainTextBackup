@@ -11640,3 +11640,13 @@ day1感觉spyair就是全场最high的时候了呀，这个哥们有点抽象，
 
 到明年都没什么活
 
+
+*****
+
+####  星天观测  
+##### 20279#       发表于 2024-7-15 16:56
+
+别说啦别说啦，我们鸡推前途真是一片黑暗啊
+
+不知道还在继续推鸡的人到底是在图什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

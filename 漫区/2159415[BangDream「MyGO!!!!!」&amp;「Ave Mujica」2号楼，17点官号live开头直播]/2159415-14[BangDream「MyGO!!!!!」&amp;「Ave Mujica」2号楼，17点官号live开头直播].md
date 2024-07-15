@@ -12342,3 +12342,11 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 我要笑死了，立希廚真是好美的精神狀態</blockquote>
 这才哪到哪，我看到最极端的已经发展到问wsd什么时候写死立希给厨子一个痛快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20337#       发表于 2024-7-15 22:50
+
+真的吗，我的版本好像还是立希厨对于目前wsd开始推灯希表示比较满意来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

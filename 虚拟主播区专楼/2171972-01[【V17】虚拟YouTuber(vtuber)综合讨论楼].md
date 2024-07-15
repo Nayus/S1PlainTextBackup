@@ -550,3 +550,13 @@ B站这边之前就有个mugen live还是啥的，同属一个集团 ，本社�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Harunoharu  
+##### 473#       发表于 2024-7-15 12:30
+
+b站枪姐应该还是有的吧，不至于人人都开框
+
+vspo en之前看和虹en这种被鬼佬gank的一个水平，不知道过一段时间能不能蹭上点活动但感觉还真不如搞kr
+

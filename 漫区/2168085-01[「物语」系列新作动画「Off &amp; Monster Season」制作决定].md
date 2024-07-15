@@ -2187,3 +2187,11 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 余接可爱
 
+
+*****
+
+####  Tachikoma88  
+##### 418#       发表于 2024-7-15 12:33
+
+下一集老仓应该能登场了，期待<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

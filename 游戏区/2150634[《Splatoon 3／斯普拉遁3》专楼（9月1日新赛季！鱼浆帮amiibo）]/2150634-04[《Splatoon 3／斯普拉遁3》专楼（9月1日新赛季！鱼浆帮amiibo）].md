@@ -236,3 +236,11 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4820#       发表于 2024-7-15 10:15
+
+鬼福赢了，特殊祭典没输过
+

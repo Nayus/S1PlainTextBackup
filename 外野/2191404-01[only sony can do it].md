@@ -439,3 +439,33 @@ a93+2470确实顶级干活设备了
 顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
 我见过高强度干活的都是大\\三\\元 (为啥这个是屏蔽词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  russianbear  
+##### 44#       发表于 2024-7-15 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+新闻摄影讲究时效性，没时间换镜头，照片都是直出jpg
+
+
+*****
+
+####  内拉祖里  
+##### 45#       发表于 2024-7-15 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+干活跟创作本来就是两码事
+
+甚至体育机保留网线口就是为了直接把照片传回后台编辑部去选照片，拍到就是完成工作了。
+
+*****
+
+####  notromeo  
+##### 46#       发表于 2024-7-15 10:23
+
+一般人驾驭不住的，不要乱烧钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

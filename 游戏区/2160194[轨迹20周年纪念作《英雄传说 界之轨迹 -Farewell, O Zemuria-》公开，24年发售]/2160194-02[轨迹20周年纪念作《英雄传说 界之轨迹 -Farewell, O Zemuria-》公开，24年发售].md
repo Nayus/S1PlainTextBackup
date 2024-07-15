@@ -2200,3 +2200,23 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 东轨这套gameplay就无聊的要死，当年卖的不错也有乘闪轨顺风的功劳，不改我是觉得销量还是半死不活
 
+
+*****
+
+####  ravend233  
+##### 1685#       发表于 2024-7-15 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东轨2估计是基于YSX的系统改吧，应该可玩性还是比之前那套好的
+
+之前那套就是个YS的劣化版系统
+
+*****
+
+####  ravend233  
+##### 1686#       发表于 2024-7-15 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65588207&amp;ptid=2160194" target="_blank">fireadol 发表于 2024-7-15 10:09</a>
+
+不是，是美国登陆最后关头造出高达，老美打不过就算平手了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是有点抽象了，不过估计到时候干脆不提这些东西糊弄过去
+

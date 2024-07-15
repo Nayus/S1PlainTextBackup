@@ -11765,3 +11765,11 @@ Ave Mujica就两个没有，这也没有，那也没有
 
 真的粉丝自己造假药也需要原料啊，就鸡这人设一个藏得比一个深，写同人写讨论都不知道要给她们捏什么性格什么关系。哪怕来个人偶世界观设定集呢
 
+
+*****
+
+####  Aendst  
+##### 20288#       发表于 2024-7-15 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想想被解密活动骗入坑的mujica推，事实证明推mujica没有最惨只有更惨
+

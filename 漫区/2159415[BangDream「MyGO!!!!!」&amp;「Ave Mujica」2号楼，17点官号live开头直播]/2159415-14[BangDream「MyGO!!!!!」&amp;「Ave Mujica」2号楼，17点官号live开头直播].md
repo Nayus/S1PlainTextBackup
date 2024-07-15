@@ -11801,3 +11801,15 @@ Ave Mujica就两个没有，这也没有，那也没有
 
 中之人但凡不那么有团魂感觉都早跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 20291#       发表于 2024-7-15 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65593425&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-15 18:08</a>
+就那麼幾粒米馬上就能數完的東西 
+
+8月初 earth MV</blockquote>
+常见堵嘴话术罢了，问就是再等等后面有大资源，展望一通不存在的东西，再说你吃得太好了为什么不满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

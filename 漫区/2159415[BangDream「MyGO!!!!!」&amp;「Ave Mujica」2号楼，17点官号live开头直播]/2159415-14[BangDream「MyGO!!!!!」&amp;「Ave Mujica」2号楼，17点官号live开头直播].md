@@ -11542,3 +11542,42 @@ spyair新主唱live表现感觉不咋行啊，high不起来
 
 反正是朋友的repo，可能他觉得挺爽吧
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20271#       发表于 2024-7-15 15:36
+
+<img src="https://p.sda1.dev/18/e0ca56df1a1d767c060f9233d3bae7a1/image.jpg" referrerpolicy="no-referrer">
+[XXXXX_NING3](https://x.com/XXXXX_NING3/status/1812471220841165232?s=19)
+来点爱灯
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  第七軍伐戎処  
+##### 20272#       发表于 2024-7-15 15:43
+
+ 本帖最后由 第七軍伐戎処 于 2024-7-15 15:45 编辑 
+
+<img src="https://p.sda1.dev/18/174f009919d1ab9a4ce70b4fa3938de4/image.jpg" referrerpolicy="no-referrer">
+他是真的玩爽了
+
+这是那个卡牌的梗吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|你也疊甲疊得很爽哦|
+
+查看全部评分
+

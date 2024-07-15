@@ -2262,3 +2262,11 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头看你日YY二战结果我觉得已经没多少人会生气了（）
 
+
+*****
+
+####  一步成诗  
+##### 1692#       发表于 2024-7-15 11:32
+
+日本人搞受害者强行原谅的戏码都快看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11392,3 +11392,57 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 录音室翻车是指哪首歌？我去凑凑热闹</blockquote>
 端程山和翻唱专的新版神明大人，两首新歌的唱法都很奇怪
 
+
+*****
+
+####  6030sylar  
+##### 20259#       发表于 2024-7-15 11:26
+
+<img src="https://img.saraba1st.com/forum/202407/15/112619y5rrhphipoiqrqop.png" referrerpolicy="no-referrer">
+
+<strong>PK98J30RY5QLZX8)E16~N0Y.png</strong> (72.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 11:26 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/112626q2rfnkzl3wvjhvkf.png" referrerpolicy="no-referrer">
+
+<strong>R@AXUP7K(L}B_$$BR[7X74T.png</strong> (74.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 11:26 上传
+
+今天还下雨
+
+
+*****
+
+####  6030sylar  
+##### 20260#       发表于 2024-7-15 11:36
+
+<img src="https://img.saraba1st.com/forum/202407/15/113604uqgqitmzmqttk86m.png" referrerpolicy="no-referrer">
+
+<strong>6930UL6IRN]Y0`}{F(`5H78.png</strong> (63.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/113608tnwiaims2arnaawa.png" referrerpolicy="no-referrer">
+
+<strong>X[UG4EDH_VPO3J4B54]@I$E.png</strong> (51.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/113613djzyow3cjbhwnoc2.png" referrerpolicy="no-referrer">
+
+<strong>FG4QIQKR5C3({XT_%FM1P_P.png</strong> (37.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 11:36 上传
+

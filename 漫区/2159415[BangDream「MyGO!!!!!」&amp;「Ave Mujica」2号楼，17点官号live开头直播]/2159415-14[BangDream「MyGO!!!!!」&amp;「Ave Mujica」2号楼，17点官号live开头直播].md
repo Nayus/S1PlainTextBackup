@@ -11372,3 +11372,23 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 只能说一致对外来的比我想象的要早
 
+
+*****
+
+####  takerest  
+##### 20257#       发表于 2024-7-15 11:06
+
+<blockquote>NODY 发表于 2024-7-15 09:53
+主要还是录音室都翻车，连灯的特色唱法都保不住了，很怀疑继续留人的必要性 ...</blockquote>
+录音室翻车是指哪首歌？我去凑凑热闹
+
+*****
+
+####  NODY  
+##### 20258#       发表于 2024-7-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65588927&amp;ptid=2159415" target="_blank">takerest 发表于 2024-7-15 11:06</a>
+
+录音室翻车是指哪首歌？我去凑凑热闹</blockquote>
+端程山和翻唱专的新版神明大人，两首新歌的唱法都很奇怪
+

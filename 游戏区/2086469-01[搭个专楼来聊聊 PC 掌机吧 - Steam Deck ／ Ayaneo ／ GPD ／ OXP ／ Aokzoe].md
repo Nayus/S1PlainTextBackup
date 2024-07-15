@@ -98,3 +98,17 @@ ally x加完也就比sd多了30多克，但电池有80WHr啊<img src="https://st
 
 在性能没有实质提升的现在，5799买个7840有点不太现实，想了想还是等2代上strix point吧
 
+
+*****
+
+####  plumlis  
+##### 1261#       发表于 2024-7-15 11:07
+
+ 本帖最后由 plumlis 于 2024-7-15 11:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65584482&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-7-14 22:38</a>
+
+最近一直打仁王2，手头SD跟gpd win mini都试着用10w跑，前者续航能接近两小时，后者连一个小时都撑不到…… ...</blockquote>
+GPD和 Windows 都太菜导致的，GPD只在乎性能不在乎能耗比，而 Windows 就不适合做掌机系统，除非你决定全程插电并且活力全开。
+
+SD的那颗定制CPU本身就是为了高能耗比设计的，而且SteamOS的模拟层可不全是所谓的“负优化”，反而可以在很多地方提高性能。
+

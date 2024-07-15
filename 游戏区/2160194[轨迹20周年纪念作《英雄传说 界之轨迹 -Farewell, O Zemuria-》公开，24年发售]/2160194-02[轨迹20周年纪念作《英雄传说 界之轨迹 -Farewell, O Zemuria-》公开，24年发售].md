@@ -2246,3 +2246,19 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 不过应该是二战后了（
 
+
+*****
+
+####  Aeons  
+##### 1690#       发表于 2024-7-15 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只觉得搞笑
+
+
+*****
+
+####  ravend233  
+##### 1691#       发表于 2024-7-15 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头看你日YY二战结果我觉得已经没多少人会生气了（）
+

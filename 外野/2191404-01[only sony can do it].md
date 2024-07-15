@@ -469,3 +469,30 @@ a93+2470确实顶级干活设备了
 
 一般人驾驭不住的，不要乱烧钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  llysander  
+##### 47#       发表于 2024-7-15 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是记者，记者拿个定焦是不想干活的了
+
+说来，他们这记者挤成一坨的姿势传统dslr确实玩不转 或者 要极高水准训练盲射
+
+
+*****
+
+####  摇曳的树影  
+##### 48#       发表于 2024-7-15 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587656&amp;ptid=2191404" target="_blank">cxn 发表于 2024-7-15 09:18</a>
+这造型让我想到了这贴里的雕像 https://bbs.saraba1st.com/2b/thread-2186957-1-1.html
+
+再看看也就最下排那 ...</blockquote>
+明显**更有力量感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

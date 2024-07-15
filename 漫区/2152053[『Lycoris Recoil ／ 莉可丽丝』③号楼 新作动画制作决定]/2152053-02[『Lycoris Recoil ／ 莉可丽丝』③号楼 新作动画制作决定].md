@@ -192,3 +192,14 @@ https://x.com/Afezeria_/status/1812327552993874242?t=9miNR_iA5dEU-N40bB8sGg&amp;
 AI弄的，在twi翻到 ...</blockquote>
 ↘️好像不太一样
 
+
+*****
+
+####  Saber琪  
+##### 1907#       发表于 2024-7-15 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65586422&amp;ptid=2152053" target="_blank">黑夜夜夜 发表于 2024-7-15 02:50</a>
+↘️好像不太一样</blockquote>
+怎么不一样了，不一样的图嘛
+<img src="https://p.sda1.dev/18/a5724f0b9fa60085468be9d1435c4101/image.jpg" referrerpolicy="no-referrer">
+

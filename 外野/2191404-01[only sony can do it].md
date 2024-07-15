@@ -428,3 +428,14 @@ a93+2470确实顶级干活设备了
 <img src="https://img.saraba1st.com/forum/202406/10/093623i4h90r4e7e9k49e9.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/6abf5ac8990d2f773fbbf5bc2a7a8511/CMP_20240714141356974.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Risten  
+##### 43#       发表于 2024-7-15 09:56
+
+ 本帖最后由 Risten 于 2024-7-15 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+我见过高强度干活的都是大\\三\\元 (为啥这个是屏蔽词<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

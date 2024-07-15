@@ -11301,3 +11301,37 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 母鸡卡领先了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20250#       发表于 2024-7-15 09:48
+
+现在太久没有直播live所以羊噶又占领高地了是真的，尤其是z8，前两天还说gbc那边希望换人太恶意，真觉得羊姐拖累企划希望赶紧合同到期的都不敢说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 20251#       发表于 2024-7-15 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是都这个时候了，怎么都不可能把羊姐换下来吧。还是看看先来国内开正式live的是鸡还是狗了，万一狗又是因为羊姐来不了就乐了
+
+
+*****
+
+####  NODY  
+##### 20252#       发表于 2024-7-15 09:53
+
+主要还是录音室都翻车，连灯的特色唱法都保不住了，很怀疑继续留人的必要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  第七軍伐戎処  
+##### 20253#       发表于 2024-7-15 09:54
+
+<img src="https://p.sda1.dev/18/f7ea35ed0311c3ba2faf9b59bb447af9/image.jpg" referrerpolicy="no-referrer">
+[chaluo11](https://x.com/chaluo11/status/1812520182482674159?s=19)
+唉美帝
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

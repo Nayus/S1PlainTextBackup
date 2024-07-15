@@ -2179,3 +2179,11 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 不过现在的抚子是不是比神抚子的还要强，一下变四个抚子出来还包括之前 ...</blockquote>
 在现在这个时间点上，还是没有完整的神抚子厉害的，但是这位大女主未来会越来越逆天的，敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zzf111  
+##### 417#       发表于 2024-7-15 12:05
+
+余接可爱
+

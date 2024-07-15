@@ -11446,3 +11446,20 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 2024-7-15 11:36 上传
 
+
+*****
+
+####  takerest  
+##### 20261#       发表于 2024-7-15 11:57
+
+<blockquote>NODY 发表于 2024-7-15 11:08
+端程山和翻唱专的新版神明大人，两首新歌的唱法都很奇怪</blockquote>
+去听了一下，没听出什么端倪来但是端程山视频中途蹦出来那张“朱元璋”插画节目效果太足了，泥邦是不是有个全员鬼图收集成就要做啊？
+
+*****
+
+####  NODY  
+##### 20262#       发表于 2024-7-15 11:58
+
+还得是我ras，暴雨状态都这么好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

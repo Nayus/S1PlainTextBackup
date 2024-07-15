@@ -11716,3 +11716,44 @@ ASL其实也是八月的
 
 廣播呢，小動畫呢，要不讓李子多翻唱幾首歌呢？難道是隔壁可以有ave不配有<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20285#       发表于 2024-7-15 18:19
+
+難道是回到日本了開始返圖了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/15/181903td52yqyxsy6hcj2b.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240715-101809_1812793770435567636_photo-0.jpg</strong> (345.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 18:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/181908fr0fumuy90smnmal.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240715-101809_1812793770435567636_photo-1.jpg</strong> (224.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 18:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/181913vqsbn0xe0g5xxzis.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240715-101809_1812793770435567636_photo-2.jpg</strong> (440.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 18:19 上传
+
+[https://x.com/Kanon_Takao/status/1812793770435567636](https://x.com/Kanon_Takao/status/1812793770435567636)
+
+*****
+
+####  鳥栖朝  
+##### 20286#       发表于 2024-7-15 18:25
+
+Ave Mujica就两个没有，这也没有，那也没有
+

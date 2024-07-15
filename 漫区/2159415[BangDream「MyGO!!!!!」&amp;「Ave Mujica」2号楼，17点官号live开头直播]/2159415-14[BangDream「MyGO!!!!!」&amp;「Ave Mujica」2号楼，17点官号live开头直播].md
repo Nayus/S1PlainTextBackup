@@ -12180,3 +12180,55 @@ go 这个配置就让人怀疑组出来是干嘛的，对观感影响最大的�
 个人感觉鼓影响还蛮大的，毕竟我自己也是完全不懂的外行人，属于大多数那一类，别的不说强度真是一听一看 ...</blockquote>
 挺符合立希这个角色删了也区别不大的存在感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20319#       发表于 2024-7-15 21:48
+
+说起来gbc那边是不是有两位中之人休息了，是键盘和鼓手？会影响明年对邦吗
+
+*****
+
+####  PDQ4  
+##### 20320#       发表于 2024-7-15 21:49
+
+gbc搞出热度wsd应该挺乐吧，看狗推朋友说宣布对邦后没几天狗6th A席就卖完了，之前卡挺久单圈的，宣布当天不是还上热搜了
+
+就看引流来的热度能不能留住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20321#       发表于 2024-7-15 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595216&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-15 21:45</a>
+
+挺符合立希这个角色删了也区别不大的存在感的，编剧给了个人人喊打的垫脚戏份，声优还愿意营业已经不容易 ...</blockquote>
+我要笑死了，立希廚真是好美的精神狀態<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20322#       发表于 2024-7-15 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595246&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-15 21:48</a>
+
+说起来gbc那边是不是有两位中之人休息了，是键盘和鼓手？会影响明年对邦吗 ...</blockquote>
+秋天我記得她們有單獨LIVE的 先看到那時能不能恢復吧
+
+*****
+
+####  NODY  
+##### 20323#       发表于 2024-7-15 21:54
+
+生病这个据说是日本那边又爆了一波新冠，南条好像都中枪了，以那边新冠的程度来看应该没什么大问题
+
+*****
+
+####  星天观测  
+##### 20324#       发表于 2024-7-15 21:55
+
+那还是希望人没事吧，阳了还是挺难受的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

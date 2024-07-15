@@ -713,3 +713,27 @@ mea审美实在不行，这个极光皮是mv第一次用吧，雪藏了那么久
 
 风怒
 
+
+*****
+
+####  ablast  
+##### 16640#       发表于 2024-7-16 05:57
+
+唉 想看毛片的时候估计怎么都能找到方法翻出去 去404看阿咩从来都是很简单的事情 可真别给自己的懒找借口钻牛角尖 只是取决于你想不想做动不动手去做 可真别天天守着那个可有可无的b转播和b限吧 动动手去404发发评论不也能和咩互动吗 不也挺好的吗
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  thisisaspider  
+##### 16641#       发表于 2024-7-16 06:49
+
+ 本帖最后由 thisisaspider 于 2024-7-16 06:53 编辑 
+
+我觉得比起18，19年不稳定的直播频率，一年没出一件新衣服。现在的mea实际上还不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif">
+
+虽然缺的fanbox福利找谁给我补<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+管人主播能做的事情就那些。没有什么内部矛盾，别带偏了。有的只是连转播和告知都做不好的草台公司。
+

@@ -90,3 +90,11 @@ ally x加完也就比sd多了30多克，但电池有80WHr啊<img src="https://st
 
 —— 来自 Xiaomi M2012K11C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+*****
+
+####  那由  
+##### 1260#       发表于 2024-7-15 09:45
+
+在性能没有实质提升的现在，5799买个7840有点不太现实，想了想还是等2代上strix point吧
+

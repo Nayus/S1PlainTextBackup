@@ -2153,3 +2153,14 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 认真的吗，这小公司不想卖游戏啦
 
+
+*****
+
+####  ravend233  
+##### 1680#       发表于 2024-7-15 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587177&amp;ptid=2160194" target="_blank">星空冻结 发表于 2024-7-15 08:07</a>
+
+话说京迷2真要写前传吗？我记得京迷的背景设定有点奇葩的，日本二战没输没赢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没记错是被美国推到家门口自己内部自爆投了，所以战败条件比现实好一些，甚至还有核武，也算经典日式YY了（）你日的YY架空二战史也该习惯了吧）
+

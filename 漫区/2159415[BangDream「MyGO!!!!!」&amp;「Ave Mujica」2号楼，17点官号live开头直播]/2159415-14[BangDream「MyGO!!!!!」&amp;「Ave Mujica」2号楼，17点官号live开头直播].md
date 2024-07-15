@@ -12468,3 +12468,24 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 看z8说李子见面会票快卖完了，打中华炮真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nebulanoby  
+##### 20345#       发表于 2024-7-16 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65596429&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-16 00:41</a>
+看z8说李子见面会票快卖完了，打中华炮真的有用</blockquote>
+唉，可怜的日菜
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  nebulanoby  
+##### 20346#       发表于 2024-7-16 01:07
+
+<img src="https://p.sda1.dev/18/46c5eadd04f6898a586def8f405d245f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

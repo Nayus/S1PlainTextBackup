@@ -623,3 +623,16 @@ a93+2470确实顶级干活设备了
 顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
 干新闻用定焦那不纯纯告诉别人你这是摆拍么
 
+
+*****
+
+####  Genhime  
+##### 60#       发表于 2024-7-15 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587640&amp;ptid=2191404" target="_blank">szzyf7 发表于 2024-7-15 09:16</a>
+
+说实话这种级别的大佬，拿御三家啥设备基本都应该拍的好，手里就算是台A7M2估计也拍的差不多
+
+这种活干到最 ...</blockquote>
+第一个想法是不是抓一张脑花四溅的构图
+

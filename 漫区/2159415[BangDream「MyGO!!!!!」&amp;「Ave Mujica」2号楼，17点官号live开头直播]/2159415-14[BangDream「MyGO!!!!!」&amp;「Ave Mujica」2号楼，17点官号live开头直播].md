@@ -11481,3 +11481,18 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 除非是种田/小明那种和发声/音乐能力直接相关的不可抗力，或者是amt/有利息那种人消失了/废业了，不然几乎没可能的，平时烤烤过过嘴瘾得了，不会真有认真分析想看降板的吧
 
+
+*****
+
+####  星天观测  
+##### 20265#       发表于 2024-7-15 14:39
+
+狗是不是马上要live了来着，有配信吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20266#       发表于 2024-7-15 14:40
+
+狗真的因为羊姐摆烂和不想营业导致丢了中华炮只能自认倒霉了，反正对wsd来说还有鸡这边的中华炮可以爽吃，bml看起来效果就挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

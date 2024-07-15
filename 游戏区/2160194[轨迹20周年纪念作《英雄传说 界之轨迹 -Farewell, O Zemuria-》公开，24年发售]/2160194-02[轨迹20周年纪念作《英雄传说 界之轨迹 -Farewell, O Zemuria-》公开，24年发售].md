@@ -2402,3 +2402,22 @@ Falcom有没有开TikTok宣传？
 
 而且想做tk宣传，先多整点易于传播的演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉符合这个要求的也就YSX的第六章那段演出
 
+
+*****
+
+####  reegun  
+##### 1704#       发表于 2024-7-15 17:48
+
+它那是喜欢人形兵器吗，根本就是喜欢高科技装备，闪2里机甲兵被坦克大将当狗撵一路撵回帝都，列阵冲锋挡不住，要点防御挡不住，自己那门小炮远了伤不到人家皮，又冲不过坦克集火近身肉搏。西部正规军被打崩看报纸根本就是50米拉拿苍骑的高科技搅屎搅出来的。
+
+*****
+
+####  酷乐  
+##### 1705#       发表于 2024-7-15 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65593072&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-15 17:28</a>
+你法这种老古董劳保公司哪能懂最新最潮的tk宣传。
+
+而且想做tk宣传，先多整点易于传播的演出吧感觉符合这个 ...</blockquote>
+不至于，黎2师姐切光炮已经被国产手游抄过了。
+

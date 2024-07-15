@@ -11668,3 +11668,13 @@ day1感觉spyair就是全场最high的时候了呀，这个哥们有点抽象，
 
 虽然可能被很多人忘了，不过asl和4th其实也是下半年的
 
+
+*****
+
+####  PDQ4  
+##### 20282#       发表于 2024-7-15 17:51
+
+ASL其实也是八月的
+
+7月好歹已经过了一半，论难熬那还是目前看完全没有任何东西的9月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

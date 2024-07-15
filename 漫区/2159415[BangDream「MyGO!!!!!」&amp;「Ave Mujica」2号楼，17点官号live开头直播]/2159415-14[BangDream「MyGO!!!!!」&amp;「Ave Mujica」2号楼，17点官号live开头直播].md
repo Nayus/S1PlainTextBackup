@@ -11678,3 +11678,11 @@ ASL其实也是八月的
 
 7月好歹已经过了一半，论难熬那还是目前看完全没有任何东西的9月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20283#       发表于 2024-7-15 17:57
+
+我还在期待10月的3rd能不能宣个11月的中国单独live，看得出来中华炮这边给钱挺多的
+

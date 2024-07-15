@@ -12369,3 +12369,43 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 真的吗，我的版本好像还是立希厨对于目前wsd开始推灯希表示比较满意来着</blockquote>
 磕灯希的可能觉得舔到就好，但不磕的或者单纯希望角色独立的就不是这个想法了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20340#       发表于 2024-7-16 00:18
+
+ 本帖最后由 御幸一也 于 2024-7-16 00:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 又到了夏祭り的季節
+
+<img src="https://img.saraba1st.com/forum/202407/16/001757bekk1kywww2y5euh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Chacal(低浮上)(@Sakuma07071)_20240715-154404_1812875791585419342_photo.jpg</strong> (549.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 00:17 上传
+
+[https://x.com/Sakuma07071/status/1812875791585419342](https://x.com/Sakuma07071/status/1812875791585419342)
+
+<img src="https://img.saraba1st.com/forum/202407/16/002103jqy6zmitnknqqxpq.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_4／3(@sigangsan)_20240715-122242_1812825112992977001_photo.jpg</strong> (505.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 00:21 上传
+
+[https://x.com/sigangsan/status/1812825112992977001](https://x.com/sigangsan/status/1812825112992977001)
+
+*****
+
+####  第七軍伐戎処  
+##### 20341#       发表于 2024-7-16 00:22
+
+<img src="https://p.sda1.dev/18/1c75feb5bf092e76dc15a00e70584814/image.png" referrerpolicy="no-referrer">
+[โยโกริส: ผู้เกรงกลัวบ้างไม่เกรงกลัวบ้างแล้วแต่ฟีล @lacto_pt](https://x.com/lacto_pt/status/1812734983511130380)
+
+泰国太太的素睦
+

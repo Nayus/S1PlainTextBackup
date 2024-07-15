@@ -35,3 +35,13 @@
 着次BB塔关底有什么手动少的打法吗？前面都用剑豪FA创过去了，这关打到一半发现就剩俩人了，他创我一次快2W ...</blockquote>
 古兰用兽王，带med，泽塔，炎帝
 
+
+*****
+
+####  poor  
+##### 17983#       发表于 2024-7-15 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595360&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2024-7-15 22:02</a>
+古兰用兽王，带med，泽塔，炎帝</blockquote>
+谢谢，太久没打忘了，原来更两层的，我打的23层，刚抄了个兽王过了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

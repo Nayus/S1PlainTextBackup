@@ -16,3 +16,11 @@
 
 当然桑岛摁了3就能到这个数没错。
 
+
+*****
+
+####  poor  
+##### 17981#       发表于 2024-7-15 20:43
+
+着次BB塔关底有什么手动少的打法吗？前面都用剑豪FA创过去了，这关打到一半发现就剩俩人了，他创我一次快2W<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -11944,3 +11944,18 @@ mujica和mygo看起来似乎是他从最早开始就在负责的企划，他很�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得很奇怪，但一想到是武士道，就感觉好像也不那么奇怪了
 
+
+*****
+
+####  akiomn  
+##### 20305#       发表于 2024-7-15 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是那个wsd啊，能把银河战舰整成现在这样，就差个武士道精神里的“切腹”了
+
+*****
+
+####  御幸一也  
+##### 20306#       发表于 2024-7-15 20:36
+
+屁啦明明就有新朋友，雖然一個手數得出來<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

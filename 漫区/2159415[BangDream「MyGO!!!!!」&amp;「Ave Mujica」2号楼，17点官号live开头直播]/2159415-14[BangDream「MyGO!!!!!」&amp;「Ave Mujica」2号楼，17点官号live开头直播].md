@@ -11650,3 +11650,13 @@ day1感觉spyair就是全场最high的时候了呀，这个哥们有点抽象，
 
 不知道还在继续推鸡的人到底是在图什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 20280#       发表于 2024-7-15 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然知道最近没什么东西了，真提起来还是好崩溃捏
+
+今天五个妹妹除了李子发了微博，其他人好像还没有动静，不知道有没有一起去玩
+

@@ -595,3 +595,31 @@ a93+2470确实顶级干活设备了
 
 —— 来自 samsung SM-G9600, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  笵藏  
+##### 58#         楼主| 发表于 2024-7-15 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65590973&amp;ptid=2191404" target="_blank">waterflying 发表于 2024-7-15 14:10</a>
+早上看有人整理了这次拍照的摄影师
+
+那张经典传世照是美联社的Evan Vucci拍的没错
+
+但举着索尼相机的不是他， ...</blockquote>
+走位差不多，相机也一样，就当近似第一人称记录
+<img src="https://p.sda1.dev/18/cf33201822aa02b52db5ef71b51fc8c6/CMP_20240715142744679.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9600, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  Genhime  
+##### 59#       发表于 2024-7-15 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+干新闻用定焦那不纯纯告诉别人你这是摆拍么
+

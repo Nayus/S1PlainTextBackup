@@ -2461,3 +2461,31 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 1709#       发表于 2024-7-15 21:01
+
+ 本帖最后由 卢迪克 于 2024-7-15 21:04 编辑 
+
+你法这几年上趋势的只有伊苏10和闪轨北方战役，你法估计都没搞明白为什么冲上去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/15/210012os1ufffybsstkeob.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240715_205941.jpg</strong> (45.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-15 21:00 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/210016re7qv7ie1hhsn8h8.jpg" referrerpolicy="no-referrer">
+
+<strong>4535F6A8DDC0D13DE318165E8D1CB794.jpg</strong> (36.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-15 21:00 上传
+

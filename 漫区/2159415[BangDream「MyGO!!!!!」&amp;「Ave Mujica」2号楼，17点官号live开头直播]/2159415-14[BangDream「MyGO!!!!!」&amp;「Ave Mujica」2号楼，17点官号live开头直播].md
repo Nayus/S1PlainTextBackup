@@ -11959,3 +11959,12 @@ mujica和mygo看起来似乎是他从最早开始就在负责的企划，他很�
 
 屁啦明明就有新朋友，雖然一個手數得出來<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 20307#       发表于 2024-7-15 20:56
+
+自信藏一年 市场全被gbc抢了
+mygo的谷子半年前冒头就被抢光 现在池袋a店随便买 
+

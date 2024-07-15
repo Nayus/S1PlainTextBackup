@@ -66,3 +66,15 @@ rog ally x港台定价6999港币，25999新台币，这国行不会5999吧……
 有点久没关注了现在掌机有什么进化吗？我一直在用初版sd感觉续航有点不太够用，每次打老头环都强制防沉迷也 ...</blockquote>
 新版ROG续航增加的代价是重了好几十克，反正目前PC掌机基本没办法在性能 散热 续航 重量这几个方面达成平衡
 
+
+*****
+
+####  zid99825  
+##### 1258#       发表于 2024-7-15 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587418&amp;ptid=2086469" target="_blank">巨馍蘸酱 发表于 2024-7-15 08:49</a>
+新版ROG续航增加的代价是重了好几十克，反正目前PC掌机基本没办法在性能 散热 续航 重量这几个方面达成平 ...</blockquote>
+ally x加完也就比sd多了30多克，但电池有80WHr啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

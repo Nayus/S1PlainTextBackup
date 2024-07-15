@@ -12130,3 +12130,53 @@ go 这个配置就让人怀疑组出来是干嘛的，对观感影响最大的�
 
 可能wsd觉得音宝养成成功了羊也能养吧，可惜看错人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20315#       发表于 2024-7-15 21:37
+
+算了，打不赢gbc关我们和鸡什么事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是动画都没有的底边乐队和底边粉
+
+别到时候拐我这种乐子人一起对外就行
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|對！|
+
+查看全部评分
+
+
+*****
+
+####  NODY  
+##### 20316#       发表于 2024-7-15 21:41
+
+其实看z8就能看出来那些拐一致对外的基本都是羊噶，简单来说就是羊被踩头了又说不过，只能拉其他团出来踩gbc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 20317#       发表于 2024-7-15 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595112&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-15 21:31</a>
+
+其实live方面当初选青木当吉他主唱再找个专业点的吉他就解决大部分问题了，节奏组三个位置大部分人是听不出 ...</blockquote>
+个人感觉鼓影响还蛮大的，毕竟我自己也是完全不懂的外行人，属于大多数那一类，别的不说强度真是一听一看就感知到了，再加上你邦鼓手很卷有对比，起码作为邦邦人鼓大概率能感受到落差
+
+*****
+
+####  NODY  
+##### 20318#       发表于 2024-7-15 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595199&amp;ptid=2159415" target="_blank">平昭·南宫司卿 发表于 2024-7-15 21:42</a>
+
+个人感觉鼓影响还蛮大的，毕竟我自己也是完全不懂的外行人，属于大多数那一类，别的不说强度真是一听一看 ...</blockquote>
+挺符合立希这个角色删了也区别不大的存在感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

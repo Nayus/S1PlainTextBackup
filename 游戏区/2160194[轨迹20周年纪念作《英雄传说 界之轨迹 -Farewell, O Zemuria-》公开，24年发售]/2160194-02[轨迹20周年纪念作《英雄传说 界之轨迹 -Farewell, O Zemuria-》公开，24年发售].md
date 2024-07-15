@@ -2289,3 +2289,11 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 宰相：孩子们，我没有意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 1695#       发表于 2024-7-15 13:38
+
+东迷的背景故事放在游戏的书籍里了，一般没多少人看，我记的不太清楚可能不对，印象里就是二战老美快推到本土的时候异界爆发，所以大家研究异界去了，这个世界二战没有核弹，核弹是研究异界造出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

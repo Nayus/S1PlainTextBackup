@@ -2327,3 +2327,13 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起架空二战YY历史这种可以主线干脆不提的设定，真要说70-90年代那还有咱们这边过去的偷渡黑工（）写这块内容我不好说，当然不写就没问题了（）
 
+
+*****
+
+####  Squall25  
+##### 1699#       发表于 2024-7-15 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65591365&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-15 14:47</a>
+比起架空二战YY历史这种可以主线干脆不提的设定，真要说70-90年代那还有咱们这边过去的偷渡黑工（）写这块 ...</blockquote>
+这个如龙6写过了，也没见有啥，但是如龙6是提到另一个才导致系列被封禁的
+

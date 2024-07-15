@@ -538,3 +538,13 @@ a93+2470确实顶级干活设备了
 大哥，尼康怎么样，上过太空！</blockquote>
 尼康加持的大和号都打不准  ﹃_﹃〣
 
+
+*****
+
+####  量子力学  
+##### 53#       发表于 2024-7-15 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65590484&amp;ptid=2191404" target="_blank">瓦格雷 发表于 2024-7-15 13:20</a>
+佳能加持的大和号都打不准  ﹃_﹃〣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">yamato上装的的尼康
+

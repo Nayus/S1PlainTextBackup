@@ -527,3 +527,14 @@ a93+2470确实顶级干活设备了
 顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
 干活这种活肯定变啊
 
+
+*****
+
+####  瓦格雷  
+##### 52#       发表于 2024-7-15 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581050&amp;ptid=2191404" target="_blank">笵藏 发表于 2024-7-14 14:36</a>
+
+大哥，尼康怎么样，上过太空！</blockquote>
+尼康加持的大和号都打不准  ﹃_﹃〣
+

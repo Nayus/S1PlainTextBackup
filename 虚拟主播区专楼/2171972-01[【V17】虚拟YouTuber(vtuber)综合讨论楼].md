@@ -524,3 +524,11 @@ B站这边之前就有个mugen live还是啥的，同属一个集团 ，本社�
 
 不查还看不出来是yejji，插画这么nb怎么立绘画成这样子
 
+
+*****
+
+####  艾特娜  
+##### 470#       发表于 2024-7-15 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">期待vspo的CN分部自己火了再带日本和EN进来还差不多，本社在这边名气太小了，联动也没啥用
+

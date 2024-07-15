@@ -78,3 +78,15 @@ ally x加完也就比sd多了30多克，但电池有80WHr啊<img src="https://st
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  亦饮阑珊  
+##### 1259#       发表于 2024-7-15 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65584482&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2024-7-14 22:38</a>
+最近一直打仁王2，手头SD跟gpd win mini都试着用10w跑，前者续航能接近两小时，后者连一个小时都撑不到…… ...</blockquote>
+你这像是没锁住功率，mini10w真能跑吗
+
+—— 来自 Xiaomi M2012K11C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

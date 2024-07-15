@@ -11813,3 +11813,42 @@ Ave Mujica就两个没有，这也没有，那也没有
 8月初 earth MV</blockquote>
 常见堵嘴话术罢了，问就是再等等后面有大资源，展望一通不存在的东西，再说你吃得太好了为什么不满足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Akari  
+##### 20292#       发表于 2024-7-15 19:55
+
+友情提示，今晚是eplus抽animelo的最后机会
+
+我们鸡是第一天，不要记错了哦~
+
+*****
+
+####  Aendst  
+##### 20293#       发表于 2024-7-15 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63561935&amp;ptid=2159415" target="_blank">浅香山的熊 发表于 2024-1-7 11:01</a>
+
+说了在这贷款资源倾斜的 能不能等27号1st之后再说啊 到时候🐔没资源我跟你们一样问候wsd ...</blockquote>
+漏油让我想起了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20294#       发表于 2024-7-15 20:02
+
+原來有不止一個人嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+說好的1st LIVE之後一起罵沒資源的我怎麼記得還有一個人啊，不意外的是，他們都消失了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅香山的熊  
+##### 20295#       发表于 2024-7-15 20:05
+
+这也能被拉出来鞭尸 
+
+所以呢 你们想要我怎么问候wsd？
+

@@ -12295,3 +12295,25 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 9.22 RAS有个live拼盘，其他好像真没什么，至少现在没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 20332#       发表于 2024-7-15 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗团这个配置，我想了下到最后都是变成烤羊好像还真没问题
+青木，虽然也当起了战犯，但是考虑到有少歌片场要跑，营业态度也没问题，一般都是提一嘴就过去了（而且猪咪很可爱，不想多烤）
+鼓子，有拉拉片场要跑，再是半路出家当的鼓手，也很努力（虽然还是只能打简谱，起码态度没问题）
+蜜柑，不说了，谁都想不到现在最稳的是蜜柑
+凛……呃，节奏吉他未，真没啥印象，和爱音一样呢
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐属于是上不去下不来，有点天赋又不肯多练，白银晚期，再算上营业态度不行，对比上面这四位，还是主唱位，不烤你烤谁啊
+
+*****
+
+####  Alicest  
+##### 20333#       发表于 2024-7-15 22:36
+
+杨姐又在营销哦
+<img src="https://p.sda1.dev/18/4725cd4b4dd2aa197cd03a0aa484e611/image.jpg" referrerpolicy="no-referrer">
+

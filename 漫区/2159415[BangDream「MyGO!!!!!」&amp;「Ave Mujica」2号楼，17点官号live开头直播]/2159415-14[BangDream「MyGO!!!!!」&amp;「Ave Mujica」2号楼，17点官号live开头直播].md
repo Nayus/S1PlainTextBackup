@@ -11581,3 +11581,34 @@ spyair新主唱live表现感觉不咋行啊，high不起来
 
 查看全部评分
 
+
+*****
+
+####  滑稽Captain  
+##### 20273#       发表于 2024-7-15 15:54
+
+day1感觉spyair就是全场最high的时候了呀，这个哥们有点抽象，戏很多
+
+*****
+
+####  御幸一也  
+##### 20274#       发表于 2024-7-15 15:54
+
+[https://x.com/Mnst_GBP_kaota/status/1812660985276297546](https://x.com/Mnst_GBP_kaota/status/1812660985276297546)
+
+別的作品的現場，場控手環亮燈的時候那個一體感好厲害，還能玩好多花活<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+不過這個是現場的官方發配的，ave 3rd LIVE的是售賣，感覺可能做不到這樣的效果(大概?)
+
+
+*****
+
+####  PDQ4  
+##### 20275#       发表于 2024-7-15 16:01
+
+总之先奶一个星星点点变成星海的aether特供演出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只统一变色的话就梦回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过鸡还没有那样情绪渲染的曲子
+
+也有可能aether是串联起其他四元素的曲子，官方根据歌词控制变色？
+

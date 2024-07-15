@@ -11496,3 +11496,11 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 狗真的因为羊姐摆烂和不想营业导致丢了中华炮只能自认倒霉了，反正对wsd来说还有鸡这边的中华炮可以爽吃，bml看起来效果就挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20267#       发表于 2024-7-15 14:53
+
+我一个管人吃朋友（不看邦多利）的bml报告是：感觉最爽的就是spyair，然后就是鸡（“但是都不如我们xx！（他推的管人）”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

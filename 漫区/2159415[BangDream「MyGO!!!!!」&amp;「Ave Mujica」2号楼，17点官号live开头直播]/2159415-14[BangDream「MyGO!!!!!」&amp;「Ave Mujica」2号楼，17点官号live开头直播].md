@@ -11520,3 +11520,25 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 [https://x.com/htq_7/status/1812743412556366180](https://x.com/htq_7/status/1812743412556366180)
 
+
+*****
+
+####  罗克萨斯  
+##### 20269#       发表于 2024-7-15 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65591445&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-15 14:53</a>
+我一个管人吃朋友（不看邦多利）的bml报告是：感觉最爽的就是spyair，然后就是鸡（“但是都不如我们xx！（ ...</blockquote>
+spyair新主唱live表现感觉不咋行啊，high不起来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  星天观测  
+##### 20270#       发表于 2024-7-15 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗，我刚搜新闻才知道spyair换主唱了，他们给银魂唱的歌都挺不错的
+
+反正是朋友的repo，可能他觉得挺爽吧
+

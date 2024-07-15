@@ -356,3 +356,24 @@ PV3：[https://youtu.be/Pv5Kb62OSvg](https://youtu.be/Pv5Kb62OSvg)
 <img src="https://p.sda1.dev/18/e950183c52d52808f8c6d76ae41c6015/20240715_013020.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/e31842e2588acc369e47e7f20fb3b615/20240715_013550.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  结衣小比取  
+##### 99#       发表于 2024-7-15 15:05
+
+亚托莉也是硬盘颗粒不够好的类型吗？所以才召回？
+
+
+*****
+
+####  JetBrains  
+##### 100#       发表于 2024-7-15 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65591562&amp;ptid=2086581" target="_blank">结衣小比取 发表于 2024-7-15 15:05</a>
+亚托莉也是硬盘颗粒不够好的类型吗？所以才召回？</blockquote>
+硬盘颗粒不够好/塑料内存条那张梗图是后来曲解的，大部分这类型的动画或游戏，都是因为各种原因，机器人具有既定寿命，而不是东西做不好，后期没用了才导致的。
+另外本作召回的原因不是因为寿命，而是因为她具有类似人性，后期会谈到的，其他人没法接受这种机器人，然后闯祸了才召回
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

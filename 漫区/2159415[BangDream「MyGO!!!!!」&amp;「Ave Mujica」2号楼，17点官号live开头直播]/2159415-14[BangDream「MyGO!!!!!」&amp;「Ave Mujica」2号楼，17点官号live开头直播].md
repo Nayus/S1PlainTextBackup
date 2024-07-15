@@ -12514,3 +12514,120 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 有一说一，青木满场跑还动不动踩台子跳高的表现力比动画强多了，动画不还原可能都是觉得太显眼了不符合猫的边缘位人设
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20350#       发表于 2024-7-16 00:28
+
+<img src="https://p.sda1.dev/18/932504ecfe88fbc73b666fe104e0b625/image.png" referrerpolicy="no-referrer">">
+[長日 @I_nonfiction_I](https://x.com/I_nonfiction_I/status/1812753186328907786)
+
+猫希
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-|-1||
+| PDQ4|-1|猫希也有官粮，你知道吗|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  第七軍伐戎処  
+##### 20351#       发表于 2024-7-16 00:31
+
+ 本帖最后由 第七軍伐戎処 于 2024-7-16 00:32 编辑 
+
+<img src="https://p.sda1.dev/18/f037bc17cc5f88b27cf55bc08d778129/image.png" referrerpolicy="no-referrer">">
+[水月とーこ @mizukitoko](https://x.com/mizukitoko/status/1812744616451703095)
+
+睦祥
+
+画够十二张要出日历
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| -LYRE-|-1||
+| Aendst|-1|无授权搬有料约图？|
+| PDQ4|-1|别人的约稿你也当武器，你的约稿呢.|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 20352#       发表于 2024-7-16 00:41
+
+看z8说李子见面会票快卖完了，打中华炮真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nebulanoby  
+##### 20353#       发表于 2024-7-16 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65596429&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-16 00:41</a>
+看z8说李子见面会票快卖完了，打中华炮真的有用</blockquote>
+唉，可怜的日菜
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  nebulanoby  
+##### 20354#       发表于 2024-7-16 01:07
+
+<img src="https://p.sda1.dev/18/46c5eadd04f6898a586def8f405d245f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  阿萨德飞过去  
+##### 20355#       发表于 2024-7-16 01:42
+
+这楼活人有三十个没有？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+话说现在都七月了，很难想象大伙儿能就靠几场live不时的访谈嗯聊拖到现在
+
+*****
+
+####  平昭·南宫司卿  
+##### 20356#       发表于 2024-7-16 02:05
+
+除了音色羊倒也没什么能拿得出手的天赋，当录音室战神 ok 但你这也不是声优团，题外话个人还挺喜欢羊软妹音的，也还好在 go 唱歌捏角色音负担小太多，你邦有捏角色音的反面例子和不捏的正面例子都太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了配置和实力，go 还有个大问题是台风带来的表现力也垫底，像 amita 这种唱跳状态下的唱歌可能也就刚及格，但无敌的偶像台风加持下的舞台表现力可能是你邦数一数二的。本来 go 的实际能力就很尴尬，还要叠一个乐队设定要捏点 rp 感，说老实话真的太闷了，几个人放不太开，舞台表现力上的取舍这点可能 p 也得背锅，也指望不了几个人哪天能整好
+
+*****
+
+####  NODY  
+##### 20357#       发表于 2024-7-16 03:01
+
+ 本帖最后由 NODY 于 2024-7-16 03:31 编辑 
+
+有一说一，青木满场跑还动不动踩台子跳高的表现力比动画强多了，动画不还原可能都是觉得太显眼了不符合猫的边缘位人设
+
+不过话说回来抱上东映大腿和gbc对邦这事就是青木的功劳，再加上狗还是糊逼的时候青木就拿着cd上街卖唱过，营业到这程度了live小翻都不是个事了
+
+*****
+
+####  ddy2811  
+##### 20358#       发表于 2024-7-16 06:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65595835&amp;ptid=2159415" target="_blank">Aloereed 发表于 2024-7-15 23:06</a>
+
+虽然从企划粉的角度来看羊姐我会很难受，但是从同为打工人的角度来看我可羡慕死羊姐了 ...</blockquote>
+我也是打工人角度，有羊姐这么个队友还给她那么好待遇是我我想跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

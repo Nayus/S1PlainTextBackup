@@ -2220,3 +2220,11 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 不是，是美国登陆最后关头造出高达，老美打不过就算平手了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是有点抽象了，不过估计到时候干脆不提这些东西糊弄过去
 
+
+*****
+
+####  fireadol  
+##### 1687#       发表于 2024-7-15 10:39
+
+一般情况下可能会改，但是这私货可是涉及法老控最爱的高达啊，改了还怎么加高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

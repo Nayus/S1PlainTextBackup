@@ -11362,3 +11362,13 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 现在太久没有直播live所以羊噶又占领高地了是真的，尤其是z8，前两天还说gbc那边希望换人太恶意，真觉得羊 ...</blockquote>
 毕竟和gbc对邦是外战，而且在论坛里两边摩擦还不少，平时再不满也得暂时团结起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20256#       发表于 2024-7-15 10:40
+
+对邦不是还大半年么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说一致对外来的比我想象的要早
+

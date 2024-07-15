@@ -2131,3 +2131,16 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 [https://x.com/asakonishida/status/1812126123893092805](https://x.com/asakonishida/status/1812126123893092805)
 <img src="https://p.sda1.dev/18/9c344221d8db271de7fc3e829c7e78e0/20240715_014341.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 414#       发表于 2024-7-15 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65586051&amp;ptid=2168085" target="_blank">歪镜 发表于 2024-7-15 01:06</a>
+
+抚子的能力确实很逆天，可以分为两类
+
+1.将现实存在的东西画入画内，封存起来，包括且不限于诅咒，怪异，式 ...</blockquote>
+小扇又干啥缺德事了，还是说秋后算账<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

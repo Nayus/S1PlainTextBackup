@@ -24,3 +24,14 @@
 
 着次BB塔关底有什么手动少的打法吗？前面都用剑豪FA创过去了，这关打到一半发现就剩俩人了，他创我一次快2W<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 17982#       发表于 2024-7-15 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65594686&amp;ptid=1158205" target="_blank">poor 发表于 2024-7-15 20:43</a>
+
+着次BB塔关底有什么手动少的打法吗？前面都用剑豪FA创过去了，这关打到一半发现就剩俩人了，他创我一次快2W ...</blockquote>
+古兰用兽王，带med，泽塔，炎帝
+

@@ -2392,3 +2392,13 @@ ns东轨送的文件夹不就穿着现代校服，概念图的大正风衣服估
 Falcom有没有开TikTok宣传？
 从邮件时代到YouTube时代再到Twitter时代，还算做得不错，特别是Twitter运营鬼才回关17万，吸了30万粉，获得了不错的流量。但现在是TikTok的时代了，不做短视频切片就没流量。
 
+
+*****
+
+####  ravend233  
+##### 1703#       发表于 2024-7-15 17:28
+
+你法这种老古董劳保公司哪能懂最新最潮的tk宣传。
+
+而且想做tk宣传，先多整点易于传播的演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉符合这个要求的也就YSX的第六章那段演出
+

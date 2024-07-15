@@ -252,3 +252,13 @@
 
 曼曼太惨了
 
+
+*****
+
+####  秋月孝三  
+##### 4822#       发表于 2024-7-15 11:02
+
+对精英枪最不友好的活动<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

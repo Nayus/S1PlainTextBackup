@@ -2236,3 +2236,13 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 
 高达有核弹厉害？yy过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1689#       发表于 2024-7-15 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这个世界线你日也搞出了核弹（）
+
+不过应该是二战后了（
+

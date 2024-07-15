@@ -2166,3 +2166,16 @@ TV 版这两集的 OP 就是开头的个人自白 (1:30 整)
 
 「拜托饶了我吧，要是被妳画出来，我就会和黑洞一样消失无踪喔。
 
+
+*****
+
+####  糖皮质激素  
+##### 416#       发表于 2024-7-15 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65584399&amp;ptid=2168085" target="_blank">格林卡罗尔 发表于 2024-7-14 22:28</a>
+
+刘海时代怎么不穿那套恋爱循环造型
+
+不过现在的抚子是不是比神抚子的还要强，一下变四个抚子出来还包括之前 ...</blockquote>
+在现在这个时间点上，还是没有完整的神抚子厉害的，但是这位大女主未来会越来越逆天的，敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

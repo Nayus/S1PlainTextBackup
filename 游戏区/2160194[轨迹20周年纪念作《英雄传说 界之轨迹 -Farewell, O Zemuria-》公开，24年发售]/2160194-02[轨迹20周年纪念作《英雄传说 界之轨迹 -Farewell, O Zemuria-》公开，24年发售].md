@@ -2445,3 +2445,19 @@ Falcom有没有开TikTok宣传？
 而且Falcom的PV一直做得不错，应该早就踩上视频宣传的潮 ...</blockquote>
 falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1708#       发表于 2024-7-15 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65593256&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-15 17:49</a>
+不至于，黎2师姐切光炮已经被国产手游抄过了。
+
+而且Falcom的PV一直做得不错，应该早就踩上视频宣传的潮 ...</blockquote>
+被借鉴只能说设计得不错，和传播效果好没啥关系。这年头不管是游戏还是动画，优质的战斗演出太多了，在观众的阈值被大幅拔高的前提下想通过战斗演出获得传播太难了，何况你法社也没有业界顶级的资源
+
+能被大范围传播的要么是有meme，要么是表现出路人群体感兴趣的内容
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

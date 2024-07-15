@@ -365,3 +365,19 @@ really niga?
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  加藤明浩  
+##### 42#       发表于 2024-7-15 16:29
+
+<blockquote>clyde-wang 发表于 2024-7-15 16:20
+讲道理这个游戏可以被内部审核绿灯上架卖，但是砍掉蜘蛛侠和美末2的多人模式我是不理解的。
+
+真的是zzzq元 ...</blockquote>
+索尼立项的时候应该是疫情期间zzzq最狂的时候。
+
+但2024年了，大家都“woke”了，以色列也好美国也好大家都在以不同的方式“woke”，不仅仅是lgbtqabcdefg。
+
+看索尼的烟花就好。
+

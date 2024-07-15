@@ -2164,3 +2164,39 @@ van就是在打面具人和移民，遇到白毛男开打，也有和小丑打�
 话说京迷2真要写前传吗？我记得京迷的背景设定有点奇葩的，日本二战没输没赢 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没记错是被美国推到家门口自己内部自爆投了，所以战败条件比现实好一些，甚至还有核武，也算经典日式YY了（）你日的YY架空二战史也该习惯了吧）
 
+
+*****
+
+####  hkguty  
+##### 1681#       发表于 2024-7-15 10:08
+
+太右了这私货
+
+*****
+
+####  fireadol  
+##### 1682#       发表于 2024-7-15 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587946&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-15 09:46</a>
+
+没记错是被美国推到家门口自己内部自爆投了，所以战败条件比现实好一些，甚至还有核武，也算经典日式YY了 ...</blockquote>
+不是，是最后关头造出高达压哨打平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 1683#       发表于 2024-7-15 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587264&amp;ptid=2160194" target="_blank">抽烟的猴 发表于 2024-7-15 08:27</a>
+
+认真的吗，这小公司不想卖游戏啦</blockquote>
+连世嘉都可以临场改台词，你还真相信你法在这方面能有多刚
+
+*****
+
+####  fireadol  
+##### 1684#       发表于 2024-7-15 10:12
+
+东轨这套gameplay就无聊的要死，当年卖的不错也有乘闪轨顺风的功劳，不改我是觉得销量还是半死不活
+

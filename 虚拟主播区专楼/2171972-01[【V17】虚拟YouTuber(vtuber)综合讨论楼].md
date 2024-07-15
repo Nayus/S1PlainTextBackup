@@ -532,3 +532,11 @@ B站这边之前就有个mugen live还是啥的，同属一个集团 ，本社�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">期待vspo的CN分部自己火了再带日本和EN进来还差不多，本社在这边名气太小了，联动也没啥用
 
+
+*****
+
+####  _Ra1nMaker  
+##### 471#       发表于 2024-7-15 10:04
+
+国内环境的电竞➕皮套人，真难顶，别又是什么开挂姐就行了。。。
+

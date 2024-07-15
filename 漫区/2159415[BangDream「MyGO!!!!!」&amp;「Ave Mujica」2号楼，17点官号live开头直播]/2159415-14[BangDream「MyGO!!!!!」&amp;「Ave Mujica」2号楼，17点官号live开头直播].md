@@ -11351,3 +11351,14 @@ Anon Tokyo还是赶紧倒闭吧<img src="https://static.saraba1st.com/image/smil
 
 2024-7-15 10:03 上传
 
+
+*****
+
+####  ddy2811  
+##### 20255#       发表于 2024-7-15 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65587965&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-15 09:48</a>
+
+现在太久没有直播live所以羊噶又占领高地了是真的，尤其是z8，前两天还说gbc那边希望换人太恶意，真觉得羊 ...</blockquote>
+毕竟和gbc对邦是外战，而且在论坛里两边摩擦还不少，平时再不满也得暂时团结起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

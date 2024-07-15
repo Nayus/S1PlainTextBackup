@@ -11860,3 +11860,72 @@ Ave Mujica就两个没有，这也没有，那也没有
 
 根本p在整个邦企划里算是什么地位的
 
+
+*****
+
+####  星天观测  
+##### 20297#       发表于 2024-7-15 20:15
+
+幽默，下次堵嘴记得找点好东家，wsd这司马东西也敢帮着贷款给资源的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20298#       发表于 2024-7-15 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65594405&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-7-15 20:09</a>
+
+根本p在整个邦企划里算是什么地位的</blockquote>
+應該是邦企劃的最高決策人吧，現在的邦是他在負責<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+同時也是武士道的董事、武士道音樂的社長
+
+<img src="https://img.saraba1st.com/forum/202407/15/201504l40rty058nvunyq8.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (26.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/201556kg745a99a9zl876t.jpg" referrerpolicy="no-referrer">
+
+<strong>image.jpg</strong> (79.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 20:15 上传
+
+
+*****
+
+####  Aendst  
+##### 20299#       发表于 2024-7-15 20:20
+
+根本p是现在邦多利的综合P
+
+也就是说现在木谷其实是不直接负责邦多利的，实际负责人是根本P，虽然不能说他说了算，但是他确实有话语权
+
+mujica和mygo看起来似乎是他从最早开始就在负责的企划，他很大程度上可以拍板
+
+*****
+
+####  星天观测  
+##### 20300#       发表于 2024-7-15 20:23
+
+所以是他决定的鸡直接藏一年是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20301#       发表于 2024-7-15 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是他一个人说了算，但是这责任有他一份我觉得跑不掉的
+
+*****
+
+####  星天观测  
+##### 20302#       发表于 2024-7-15 20:26
+
+所以wsd到底哪来的自信觉得雪藏一年也没问题的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

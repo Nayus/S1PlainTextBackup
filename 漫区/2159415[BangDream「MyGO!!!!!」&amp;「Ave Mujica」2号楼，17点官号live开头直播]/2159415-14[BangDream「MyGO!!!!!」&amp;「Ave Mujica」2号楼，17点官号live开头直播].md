@@ -11929,3 +11929,18 @@ mujica和mygo看起来似乎是他从最早开始就在负责的企划，他很�
 
 所以wsd到底哪来的自信觉得雪藏一年也没问题的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 20303#       发表于 2024-7-15 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看泥楼的鸡粉，半年前是这几个，半年后还是这几个，搞鸡饿营销真有自信呢
+
+*****
+
+####  Aendst  
+##### 20304#       发表于 2024-7-15 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得很奇怪，但一想到是武士道，就感觉好像也不那么奇怪了
+

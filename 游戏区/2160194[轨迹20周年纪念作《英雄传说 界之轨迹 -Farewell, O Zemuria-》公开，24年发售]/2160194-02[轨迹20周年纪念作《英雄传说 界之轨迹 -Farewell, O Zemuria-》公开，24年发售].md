@@ -2421,3 +2421,27 @@ Falcom有没有开TikTok宣传？
 而且想做tk宣传，先多整点易于传播的演出吧感觉符合这个 ...</blockquote>
 不至于，黎2师姐切光炮已经被国产手游抄过了。
 
+
+*****
+
+####  无动于衷  
+##### 1706#       发表于 2024-7-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65591444&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-7-15 14:53</a>
+
+这个如龙6写过了，也没见有啥，但是如龙6是提到另一个才导致系列被封禁的 ...</blockquote>
+6之前就被禁了，不是临时改台词那事
+
+这个禁指的是不能直播，跟当年的生化一个待遇，当然生化更惨点
+
+*****
+
+####  KevinGraham  
+##### 1707#       发表于 2024-7-15 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65593256&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-15 17:49</a>
+不至于，黎2师姐切光炮已经被国产手游抄过了。
+
+而且Falcom的PV一直做得不错，应该早就踩上视频宣传的潮 ...</blockquote>
+falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

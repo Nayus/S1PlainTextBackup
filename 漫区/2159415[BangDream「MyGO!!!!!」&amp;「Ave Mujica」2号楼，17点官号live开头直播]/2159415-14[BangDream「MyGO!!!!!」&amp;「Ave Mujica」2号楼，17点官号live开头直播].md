@@ -11686,3 +11686,33 @@ ASL其实也是八月的
 
 我还在期待10月的3rd能不能宣个11月的中国单独live，看得出来中华炮这边给钱挺多的
 
+
+*****
+
+####  御幸一也  
+##### 20284#       发表于 2024-7-15 18:08
+
+ 本帖最后由 御幸一也 于 2024-7-15 18:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就那麼幾粒米馬上就能數完的東西 
+
+8月初 earth MV
+
+8月 元素曲第5首
+
+9月初 元素曲第5首的MV
+
+08/30 ASL
+
+10/13 3rd LIVE
+
+12/15 4th LIVE
+
+好奇怪哦，這個“宣傳期”怎麼還沒到啊。
+
+去年年底滑坡的時候就有人堵嘴說1st LIVE播完會有料的，沒有。
+
+然後上半年幾乎啥都沒人都快餓死了，熬到了2nd LIVE，結果還是啥都沒。
+
+廣播呢，小動畫呢，要不讓李子多翻唱幾首歌呢？難道是隔壁可以有ave不配有<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+

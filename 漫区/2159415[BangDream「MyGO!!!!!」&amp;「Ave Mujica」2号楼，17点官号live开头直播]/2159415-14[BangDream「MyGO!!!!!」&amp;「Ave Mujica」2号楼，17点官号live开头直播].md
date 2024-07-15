@@ -11976,3 +11976,137 @@ mygo的谷子半年前冒头就被抢光 现在池袋a店随便买
 
 基本就是mggm退位根本接班以后才开始搞mygo和mujica的，mggm几年前有一条推特提到有一个正在练习的乐队我完全没参与过，要等到她们开到多大多大人数的场我才会去看live说的就是mygo
 
+
+*****
+
+####  NODY  
+##### 20309#       发表于 2024-7-15 21:14
+
+mygo糊了是羊姐自己的问题吧，本来动画后该多跑场子的，结果主唱日程和能力都跟不上导致线下活动也没几个，被gbc抢了不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20310#       发表于 2024-7-15 21:17
+
+想知道东映请手島nari花了多少钱
+wsd请个20万粉以上的画家负责绘柄
+有这么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20311#       发表于 2024-7-15 21:22
+
+<img src="https://img.saraba1st.com/forum/202407/15/212219s8kdpubjvvs94k98.jpg" referrerpolicy="no-referrer">
+
+<strong>GShf_i5bcAECq8s.jpg</strong> (99.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212220ry2ek222errkyz3y.jpg" referrerpolicy="no-referrer">
+
+<strong>GShf_i8bEAEq06w.jpg</strong> (697.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212220ifbjsszf4gosojfg.jpg" referrerpolicy="no-referrer">
+
+<strong>GShf_jGbQAAIeFP.jpg</strong> (623.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212220whv7qolp40ymy0y0.jpg" referrerpolicy="no-referrer">
+
+<strong>GShjy3MawAAn4Qa.jpg</strong> (98.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212220gppcvpy3431313qy.jpg" referrerpolicy="no-referrer">
+
+<strong>GShjy3NbMAAaBg1.jpg</strong> (155.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212221f1s7ii61qb1bj6r9.jpg" referrerpolicy="no-referrer">
+
+<strong>GShjy3XbgAAMJ8V.jpg</strong> (262.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212221xqpnnqiy51dl2i18.jpg" referrerpolicy="no-referrer">
+
+<strong>GSh-K1XbEAAyNrb.jpg</strong> (564.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212221vx599z5ipxa5o3fw.jpg" referrerpolicy="no-referrer">
+
+<strong>GSh-K1YaIAAezTd.jpg</strong> (621.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212222kpymazaqczu6ara5.jpg" referrerpolicy="no-referrer">
+
+<strong>GShuYRaa8AAISKH.jpg</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212223dp4vrwairc56wrpw.jpg" referrerpolicy="no-referrer">
+
+<strong>GShuYRWaAAA-Wak.jpg</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212223q0oadrdnyxt0crxc.jpg" referrerpolicy="no-referrer">
+
+<strong>GShuYRYawAAG3tU.jpg</strong> (262.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212223r8xqh2n0mb65djo6.jpg" referrerpolicy="no-referrer">
+
+<strong>GShXKejaQAA6Rad.jpg</strong> (555.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202407/15/212224n5q1lz0d75jjzi7h.jpg" referrerpolicy="no-referrer">
+
+<strong>GShXKesa0AA2pju.jpg</strong> (566.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-15 21:22 上传
+
+*****
+
+####  滑稽Captain  
+##### 20312#       发表于 2024-7-15 21:25
+
+mygo这一年来拼盘音乐节地上波的频率也挺正常的啊，通告数量这也能拐羊没道理的
+

@@ -516,3 +516,14 @@ a93+2470确实顶级干活设备了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  出轨的三头龙  
+##### 51#       发表于 2024-7-15 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65581072&amp;ptid=2191404" target="_blank">帕林马哲理 发表于 2024-7-14 14:39</a>
+
+顶级摄影师一样用变焦镜头，看来定焦用起来确实没那么方便啊。俺还是更喜欢85跟135拍人的质感。 ...</blockquote>
+干活这种活肯定变啊
+

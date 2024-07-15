@@ -582,3 +582,16 @@ a93+2470确实顶级干活设备了
 
 但举着索尼相机的不是他，是Jabin Botsford，那张某人和特工躲在桌后，桌前面站着持枪武装人员的照片才是他拍的
 
+
+*****
+
+####  笵藏  
+##### 57#         楼主| 发表于 2024-7-15 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65590484&amp;ptid=2191404" target="_blank">瓦格雷 发表于 2024-7-15 13:20</a>
+佳能加持的大和号都打不准  ﹃_﹃〣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今天各种梗图都来了
+<img src="https://p.sda1.dev/18/405cca3e6cd4a0873f343eff4b90db4b/CMP_20240715141755599.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9600, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -13192,3 +13192,45 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 一想到群里的熟人们要么在BW上和老登合影火爆中日互联网，要么在BML上介到梦以，我只能在家里掉下孤独的眼 ...</blockquote>
 宝宝你怎么退s1邦群了
 
+
+*****
+
+####  御幸一也  
+##### 20405#       发表于 2024-7-16 15:50
+
+我服了小姐姐好會賣，怎麼還特地搞了個小祥髮型賣初祥<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/16/155024zca15qj3luzclx0r.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240716-074846_1813118563710038183_photo-0.jpg</strong> (241.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/155026j9t0t1791fra9dry.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240716-074846_1813118563710038183_photo-1.jpg</strong> (206.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/155028acggf63izss0l6bc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240716-074846_1813118563710038183_photo-2.jpg</strong> (311.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 15:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/155030ixtaotokk63thtka.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_高尾奏音(@Kanon_Takao)_20240716-074846_1813118563710038183_photo-3.jpg</strong> (430.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 15:50 上传
+
+[https://x.com/Kanon_Takao/status/1813118563710038183](https://x.com/Kanon_Takao/status/1813118563710038183)
+

@@ -545,3 +545,20 @@ lgbt和mihoyo这两个不能一起死吗
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  名居守  
+##### 48#       发表于 2024-7-17 07:27
+
+ 本帖最后由 名居守 于 2024-7-17 07:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己招了堆太毒女拳lgbt（说起来mxz一直说炎枪造谣结果仙畜头子之一都铁窗泪了，炎枪都没被米桑追究），新游戏还是个到处“致敬”日本文化以倭代中的游戏
+
+现在被整了又开始强调自己是中国游戏了，骂为什么都不支持米桑还在这时候骂米桑
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+顺带也不要带上ps什么的找理由了
+
+无非发出来就是想塑造米桑是受害者，这时候喷米桑的人**滴坏！
+

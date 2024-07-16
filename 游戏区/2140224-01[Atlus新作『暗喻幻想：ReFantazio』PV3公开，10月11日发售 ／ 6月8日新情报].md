@@ -80,3 +80,11 @@
 
 个人觉得加强版本身没什么问题，关键是背刺原版玩家，你哪怕推出个买了原版的玩家可以用7折的优惠买加强版或者干脆替换都行，结果是一点不给原版玩家好还干脆直接把原版的数字版下架掉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SuNR1sE364  
+##### 557#       发表于 2024-7-16 18:41
+
+第一个pv真行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了还带着日期一眼换皮persona之外找不出问题了
+

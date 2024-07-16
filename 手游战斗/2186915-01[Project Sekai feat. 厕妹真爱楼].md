@@ -11451,3 +11451,31 @@ zng到底为什么这么喜欢脚………………
 
 :到底是谁给宝多六花喂中药的[微笑]
 
+
+*****
+
+####  GAdoru  
+##### 1021#       发表于 2024-7-16 14:48
+
+我知道你[偷笑R] 你最讨厌的烤角是mfy [笑哭R]雷的产品里必有走马 每天你的任务就是上传打马帖来发泄对mfy的不满 点进主页一看原来是奏厨[偷笑R]破案（没有说奏厨不好的意思 只是针对某些烤萌
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  GAdoru  
+##### 1022#       发表于 2024-7-16 14:48
+
+碎了，我是mfy公公，看到那群人跟風討厭mfy我真的要碎掉，雖然說我不推，但看了是真的難受啊[哭惹R][哭惹R]
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  GAdoru  
+##### 1023#       发表于 2024-7-16 14:49
+
+还有说马马特别聪明有天赋不能代入很雷，喜欢绘名因为感觉和自己很像很努力[笑哭R]
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

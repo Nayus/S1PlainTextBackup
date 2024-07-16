@@ -13175,3 +13175,20 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 确实是专门骗我们管人痴的，顺便提一嘴，数字卡片是可以交易的，真的想要可以去闲鱼收低价的，没必要硬抽
 
+
+*****
+
+####  基神的强袭自由  
+##### 20403#       发表于 2024-7-16 14:47
+
+一想到群里的熟人们要么在BW上和老登合影火爆中日互联网，要么在BML上介到梦以，我只能在家里掉下孤独的眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 20404#       发表于 2024-7-16 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65601070&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-7-16 14:47</a>
+一想到群里的熟人们要么在BW上和老登合影火爆中日互联网，要么在BML上介到梦以，我只能在家里掉下孤独的眼 ...</blockquote>
+宝宝你怎么退s1邦群了
+

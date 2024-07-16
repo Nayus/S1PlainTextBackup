@@ -53,3 +53,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">飞哥这粪中粪的BOSS每天开天破打打得了，我风2+2+2的盘子，没紫苑都不想进本，看了就头大
 
+
+*****
+
+####  phoenixxj  
+##### 17985#       发表于 2024-7-16 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597106&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-7-16 08:06</a>
+
+飞哥这粪中粪的BOSS每天开天破打打得了，我风2+2+2的盘子，没紫苑都不想进本，看了就头大 ...</blockquote>
+平时自发放置，没人打拉倒
+
+周5 星期5上场，疯狂fa。不确定你能不能赶上土团。
+
+但是土团本来对飞哥武器需求量不大。
+

@@ -13012,3 +13012,14 @@ QQ图片20240716104932.jpg
 （某群友：李子 ...</blockquote>
 這個就是之前寫全網最詳細mujica解謎活動repo的佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 20392#       发表于 2024-7-16 11:00
+
+13号bw+bml归来
+mmp事先不知道rin和mikan在哪个舞台什么时候开始，导致我到那里的时候已经要结束了，位置还稀烂。而且直到结束后才知道原来邦邦舞台那里还有，甚至连录播都没有<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕，不过体验也是绝好，当时在现场的感受看录播是找不回来的，甚至感觉每看一次录播当时的感受都会淡薄几分<img src="https://p.sda1.dev/18/7480001204424aef8ccb1fc44c93cc7a/Screenshot_20240716_105845.jpg" referrerpolicy="no-referrer">
+

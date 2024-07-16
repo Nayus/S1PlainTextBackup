@@ -13250,3 +13250,11 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 第一张图身高排序好好笑，是不是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20408#       发表于 2024-7-16 16:24
+
+如果按身高排序原来弄比节约高吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

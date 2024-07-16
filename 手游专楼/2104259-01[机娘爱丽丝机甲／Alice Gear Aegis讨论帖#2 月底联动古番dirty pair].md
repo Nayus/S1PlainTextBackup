@@ -172,3 +172,11 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 21号直播这嘉宾，难道半周年就是ST王女和舞？
 
+
+*****
+
+####  江戸前ルナ  
+##### 1125#         楼主| 发表于 2024-7-16 21:36
+
+阿金还敢双UP ST？不怕炎上吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

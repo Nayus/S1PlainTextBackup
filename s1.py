@@ -74,7 +74,7 @@ def thread_dict(thdir,thdict):
             a += line
         b = a.split("*****")
     for i in b[1::]:
-        if(re.findall(r'#####\s(\d+)#',i)[0]):
+        if(re.findall(r'#####\s(\d+)#',i)):
             thdict[re.findall(r'\n#####\s(\d+)#',i)[0]] = i
 
 def thread_merge(oridir,desdir):
@@ -202,13 +202,10 @@ async def UpdateThread(threaddict,semaphore):
                     if os.path.exists(filename_des):
                         if os.path.isdir(filedir_src):
                             filedir_src_list = get_dir_files(filedir_src)
-                            print(filedir_src_list)
-                            print(titles)
                             for i in filedir_src_list:
                                 j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
                                 thread_merge(i,j)
                         else:
-                            print(titles)
                             thread_merge(filedir_src,filename_des)
                     else:
                         filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'

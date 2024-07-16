@@ -13711,3 +13711,20 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 這可不能說是debuff，畢竟蘿粉買蘿專天經地義。
 
+
+*****
+
+####  御幸一也  
+##### 20453#       发表于 2024-7-16 21:35
+
+也沒什麼啦，反正啥都沒糊是應該的，ave粉心態都很好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
+
+只是，如果真有黑子是真心在嘲，我只能說小心孽力回饋喔<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20454#       发表于 2024-7-16 21:38
+
+鸡粉已经在天天自嘲了，还当理中客或者捂嘴除了傻逼想找骂我实在想不出其他理由啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

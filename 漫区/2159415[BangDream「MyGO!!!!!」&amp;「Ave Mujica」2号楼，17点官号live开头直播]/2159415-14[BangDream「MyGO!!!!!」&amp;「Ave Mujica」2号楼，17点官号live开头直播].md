@@ -13073,3 +13073,14 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 [https://x.com/sasakirico/status/1813051654100709692](https://x.com/sasakirico/status/1813051654100709692)
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20395#       发表于 2024-7-16 12:28
+
+<img src="https://p.sda1.dev/18/f407487c0606e220113088d93a0cef2e/image.jpg" referrerpolicy="no-referrer">
+[YAMAMOTOchaveZ](https://x.com/YAMAMOTOchaveZ/status/1812836002526027892?s=19)
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

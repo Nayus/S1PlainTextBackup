@@ -133,3 +133,18 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1122#         楼主| 发表于 2024-7-16 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65596723&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-7-16 02:16</a>
+
+动用后备DMM点捞出艾玛酱，好劲的零距离中出炮吔
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+恭喜。是真的帅，抽到后看着难得竟然还有劲儿打非完美回避的调查一大会呢233
+
+虽然锤子真是弱得惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

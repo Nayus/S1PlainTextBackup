@@ -13307,3 +13307,66 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 萌新求问，狗和鸡有成员被邦高祖下手了吗，邦tv没看见
 
+
+*****
+
+####  星天观测  
+##### 20414#       发表于 2024-7-16 16:53
+
+这下要到了都怪鸡这死丫头不争气的环节咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20415#       发表于 2024-7-16 16:53
+
+笑得想死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/16/165346nncikzq6hgkmycd7.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_たれムキ(@patchimlikit)_20240716-081633_1813125555119878490_photo.jpg</strong> (33.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 16:53 上传
+
+[https://x.com/patchimlikit/status/1813125555119878490?s=19](https://x.com/patchimlikit/status/1813125555119878490?s=19)
+
+*****
+
+####  滑稽Captain  
+##### 20416#       发表于 2024-7-16 16:54
+
+那几个响社自己人姑且是接触过了，比如青木的昵称就是爱美取的
+
+*****
+
+####  kivz  
+##### 20417#       发表于 2024-7-16 16:58
+
+它wsd约个正常小画家，再另外找人写点好曲子还怕卖不出去？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20418#       发表于 2024-7-16 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">連動畫都給你壓著不放，糊得很安心，都是自找的
+
+
+*****
+
+####  akiomn  
+##### 20419#       发表于 2024-7-16 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5000多，烂完咯wsd
+
+*****
+
+####  星天观测  
+##### 20420#       发表于 2024-7-16 17:01
+
+翻唱是卖两个团的，抽选是只塞鸡的，物料广播是一点不给的，粉丝流失是无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说5717是你的福报啊wsd，你不如赶紧把鸡闷死了得了正好我跑路
+

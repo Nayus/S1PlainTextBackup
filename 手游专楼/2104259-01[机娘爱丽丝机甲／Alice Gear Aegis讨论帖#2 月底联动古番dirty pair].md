@@ -148,3 +148,17 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 虽然锤子真是弱得惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1123#       发表于 2024-7-16 12:54
+
+ 本帖最后由 冰风血羽 于 2024-7-16 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65599735&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-7-16 12:36</a>
+
+恭喜。是真的帅，抽到后看着难得竟然还有劲儿打非完美回避的调查一大会呢233
+
+虽然锤子真是弱得惨不忍睹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如1107L所说，阿金是会做强度控制的
+

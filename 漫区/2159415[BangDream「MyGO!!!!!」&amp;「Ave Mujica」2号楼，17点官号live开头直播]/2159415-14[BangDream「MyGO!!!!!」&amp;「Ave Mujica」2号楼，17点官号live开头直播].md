@@ -13728,3 +13728,48 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 鸡粉已经在天天自嘲了，还当理中客或者捂嘴除了傻逼想找骂我实在想不出其他理由啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20455#       发表于 2024-7-16 21:45
+
+不如猜猜她們在上海有沒有出去吃飯吧，怎麼感覺好像就沒出過 LIVE場地⇔飯店 這個小圈圈，
+
+高尾剛剛新發的合照看起來也是那附近的商場而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+還有那個樓梯到底要拍幾次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20456#       发表于 2024-7-16 21:50
+
+噴了剛說完
+
+<img src="https://img.saraba1st.com/forum/202407/16/215013p018n3hv2bu3ybn1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-134931_1813209349994783096_photo-0.jpg</strong> (401.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/215023ku7od5vfdx1g2221.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-134931_1813209349994783096_photo-1.jpg</strong> (347.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 21:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/215026vz2if3fxkvxpkapf.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-134931_1813209349994783096_photo-2.jpg</strong> (256.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 21:50 上传
+
+[https://x.com/sasakirico/status/1813209349994783096](https://x.com/sasakirico/status/1813209349994783096)
+

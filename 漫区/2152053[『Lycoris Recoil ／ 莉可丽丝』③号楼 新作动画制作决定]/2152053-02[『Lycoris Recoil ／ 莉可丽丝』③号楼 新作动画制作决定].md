@@ -211,3 +211,11 @@ AI弄的，在twi翻到 ...</blockquote>
 
 我这张右下改了的啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qz66618  
+##### 1909#       发表于 2024-7-16 21:48
+
+才看到蒜楼也发了这个图，你蒜在互联网真实经久不息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

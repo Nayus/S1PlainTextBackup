@@ -13568,3 +13568,34 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 然而一个塞的是pico一个是三抽选，我不好说好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 20441#       发表于 2024-7-16 19:16
+
+<img src="https://img.saraba1st.com/forum/202407/16/191617w6h9fgh0uwzf8ful.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-07-16-19-15-44-56_e39d2c7de19156b0683cd93e8735f348.jpg</strong> (286.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 19:16 上传
+
+座位分布
+
+*****
+
+####  滑稽Captain  
+##### 20442#       发表于 2024-7-16 19:19
+
+980的票要是买到舞台最侧面不是亏死
+
+
+*****
+
+####  NODY  
+##### 20443#       发表于 2024-7-16 19:22
+
+为什么中间空了一大块没座位
+

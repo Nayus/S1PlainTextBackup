@@ -13418,3 +13418,22 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 動畫沒播的糊比團哪來的那麼多鐵粉，怎麼還沒餓死啊
 
+
+*****
+
+####  Aendst  
+##### 20426#       发表于 2024-7-16 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道如意算盘应得的
+
+
+*****
+
+####  -LYRE-  
+##### 20427#       发表于 2024-7-16 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65602605&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-16 17:06</a>
+5700下滑归下滑，也要算烂完吗，要求是不是太高了一点</blockquote>
+毕竟隔壁某些人日常盯着你鸡销量嘲讽你鸡糊比票卖不出去，连在走廊里看点无关贴都能蹦出来
+去看了眼果然又在说你鸡寄了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/350cf0427904557bbc21f128a3d583a8/image.jpg" referrerpolicy="no-referrer">
+

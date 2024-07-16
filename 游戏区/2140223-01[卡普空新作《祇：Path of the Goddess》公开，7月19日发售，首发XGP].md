@@ -19,3 +19,11 @@
 [https://opencritic.com/game/16948/kunitsu-gami-path-of-the-goddess/charts](https://opencritic.com/game/16948/kunitsu-gami-path-of-the-goddess/charts) ...</blockquote>
 对于一个新模式的试水作来说还不错。
 
+
+*****
+
+####  Emmerich  
+##### 75#       发表于 2024-7-16 08:39
+
+demo时候就有个疑问 刀斧手打死自爆怪以后会自己智能远离吗 还是必须手动拖走 未免有点麻烦
+

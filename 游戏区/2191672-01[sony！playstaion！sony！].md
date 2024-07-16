@@ -499,3 +499,11 @@ lgbt和mihoyo这两个不能一起死吗
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kaolimadepi  
+##### 44#       发表于 2024-7-17 01:31
+
+闹麻了，真不想搭理就切割袅袅怪叫的各色团体，而不是招进来偷偷滑跪，回头对国内自己人出气。
+

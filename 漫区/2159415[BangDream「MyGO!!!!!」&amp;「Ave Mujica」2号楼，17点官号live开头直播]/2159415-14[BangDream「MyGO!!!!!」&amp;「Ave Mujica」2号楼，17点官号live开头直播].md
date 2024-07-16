@@ -13155,3 +13155,23 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 4000抽一井而且只能出一个保底，还没有实体卡，专骗有钱人啊，我看群里说之前都是管人才玩这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  基神的强袭自由  
+##### 20401#       发表于 2024-7-16 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65591274&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-15 14:39</a>
+狗是不是马上要live了来着，有配信吗</blockquote>
+感觉狗今年结束前能来国内<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  九陌狂游  
+##### 20402#       发表于 2024-7-16 14:00
+
+确实是专门骗我们管人痴的，顺便提一嘴，数字卡片是可以交易的，真的想要可以去闲鱼收低价的，没必要硬抽
+

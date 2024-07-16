@@ -13464,3 +13464,33 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 去看了眼果然 ...</blockquote>
 这不著名公司go多莉吗？之前还在这边闹过
 
+
+*****
+
+####  星天观测  
+##### 20431#       发表于 2024-7-16 17:59
+
+只能说有时候了解一下情况比较好，不然我个人只能给你标记为公司go了
+
+*****
+
+####  九陌狂游  
+##### 20432#       发表于 2024-7-16 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65602951&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-7-16 17:31</a>
+
+毕竟隔壁某些人日常盯着你鸡销量嘲讽你鸡糊比票卖不出去，连在走廊里看点无关贴都能蹦出来
+
+去看了眼果然 ...</blockquote>
+就这啊，还不如直接说5000全是go批为了羊姐新翻唱买的，剩下的零头才是鸡粉买的，这样不是更符合有些人想的大赢特赢？
+
+*****
+
+####  星天观测  
+##### 20433#       发表于 2024-7-16 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65603251&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-16 18:00</a>
+
+就这啊，还不如直接说5000全是go批为了羊姐新翻唱买的，剩下的零头才是鸡粉买的，这样不是更符合有些人想 ...</blockquote>
+想多了，5000这么点销量你以为那些羊噶看得上么，速速切割你鸡全责才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

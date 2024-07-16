@@ -397,3 +397,35 @@ really niga?
 
 这角色设计是踏马认真的？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 44#       发表于 2024-7-16 08:24
+
+看了Concord，我郑重的向Bleeding Edge道歉。要是十年前你说任天堂将成为未来10年御三家里做多人射击游戏的霸主（光环5也是top1有力竞争者，可惜无限拉了导致10年就一款游戏），我一定觉得这是什么梦话 。
+
+<img src="https://img.saraba1st.com/forum/202407/16/082152tfmdfslabj6a77hm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3.jpeg</strong> (360.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 08:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/082033u813b138exzbpx8m.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2.webp</strong> (313.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 08:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/082041y62tx7rp66p72ut7.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (229.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 08:20 上传
+

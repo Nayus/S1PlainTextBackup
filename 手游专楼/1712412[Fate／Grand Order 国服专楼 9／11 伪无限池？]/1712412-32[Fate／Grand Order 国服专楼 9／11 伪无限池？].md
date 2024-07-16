@@ -339,3 +339,13 @@ md。剑R姐吃了两单，回头去补杜尔迦直接330抽最后一张来。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46521#       发表于 2024-7-16 14:39
+
+开始纠结周年福袋了，定命倒是好选，小福袋比较想要暗狐，但是同个袋子的雅雅和阿国都属于没什么兴趣，出了就亏的。卡莲和摩根那个袋子倒都是new但是鹤小姐也不太想要……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+公主的袋子其他都有了感觉还是定命赌一下吧，福袋党感觉还是new比补宝划算，所以麻婆那个全男袋也不赌了……
+

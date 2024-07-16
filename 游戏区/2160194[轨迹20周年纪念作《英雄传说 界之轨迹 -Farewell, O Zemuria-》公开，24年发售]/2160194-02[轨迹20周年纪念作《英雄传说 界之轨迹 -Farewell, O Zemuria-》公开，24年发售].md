@@ -2530,3 +2530,13 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 怎么新入职的一半都是中国人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 1715#       发表于 2024-7-16 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597699&amp;ptid=2160194" target="_blank">勿徊哉 发表于 2024-7-16 09:43</a>
+怎么新入职的一半都是中国人</blockquote>
+春秋笔法，乍一听入职一半中国人好像很多的样子，实际上一年入职的就4个，刚好这年有两个中国人，这不就一半了？实际算上原有的中国员工，社内总共就这3-4个
+

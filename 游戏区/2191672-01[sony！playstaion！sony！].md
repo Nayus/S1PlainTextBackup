@@ -507,3 +507,13 @@ lgbt和mihoyo这两个不能一起死吗
 
 闹麻了，真不想搭理就切割袅袅怪叫的各色团体，而不是招进来偷偷滑跪，回头对国内自己人出气。
 
+
+*****
+
+####  Yeelolo  
+##### 45#       发表于 2024-7-17 01:51
+
+黑人也可以整个没黑不玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

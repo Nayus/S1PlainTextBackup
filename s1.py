@@ -198,18 +198,22 @@ async def UpdateThread(threaddict,semaphore):
                 else:
                     filedir_src = rootdir+thdata[threaddict['id']]['category']+'/'+str(threaddict['id'])+'-01'+titles+'.md'
                 filename_des = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',filedir_src)
-                if os.path.exists(filename_des):
-                    if os.path.isdir(filedir_src):
-                        filedir_src_list = get_dir_files(filedir_src)
-                        for i in filedir_src_list:
-                            j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
-                            thread_merge(i,j)
+                if os.path.exists(filedir_src):
+                    if os.path.exists(filename_des):
+                        if os.path.isdir(filedir_src):
+                            filedir_src_list = get_dir_files(filedir_src)
+                            print(filedir_src_list)
+                            print(titles)
+                            for i in filedir_src_list:
+                                j = re.sub(r'S1PlainTextBackup','S1PlainTextArchive2024',i)
+                                thread_merge(i,j)
+                        else:
+                            print(titles)
+                            thread_merge(filedir_src,filename_des)
                     else:
-                        thread_merge(filedir_src,filename_des)
-                else:
-                    filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
-                    mkdir(filedir_des)
-                    shutil.move(filedir_src,filedir_des)
+                        filedir_des = '/home/riko/S1PlainTextArchive2024/' +thdata[threaddict['id']]['category']+'/'
+                        mkdir(filedir_des)
+                        shutil.move(filedir_src,filedir_des)
                 thdata[threaddict['id']]['active'] = False
         else:
             thdata[threaddict['id']]['update'] = False

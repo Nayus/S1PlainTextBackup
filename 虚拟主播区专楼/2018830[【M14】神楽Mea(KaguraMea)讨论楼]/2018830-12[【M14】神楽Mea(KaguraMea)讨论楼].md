@@ -813,3 +813,18 @@ mea审美实在不行，这个极光皮是mv第一次用吧，雪藏了那么久
 
 想给主播加强度呢。
 
+
+*****
+
+####  秋游刃  
+##### 16650#       发表于 2024-7-16 14:38
+
+强度不小了，主播退群了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  椎名mahuyo  
+##### 16651#       发表于 2024-7-16 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这日子遇到这事情真是蛋疼
+

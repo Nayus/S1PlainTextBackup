@@ -13494,3 +13494,13 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 就这啊，还不如直接说5000全是go批为了羊姐新翻唱买的，剩下的零头才是鸡粉买的，这样不是更符合有些人想 ...</blockquote>
 想多了，5000这么点销量你以为那些羊噶看得上么，速速切割你鸡全责才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 20434#       发表于 2024-7-16 18:05
+
+萝后天中午开票
+<img src="https://p.sda1.dev/18/71c4ca479237b6b77dfef1a6fbbef96d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/bcc338bcd292822483b3ea277a57bc88/image.jpg" referrerpolicy="no-referrer">
+

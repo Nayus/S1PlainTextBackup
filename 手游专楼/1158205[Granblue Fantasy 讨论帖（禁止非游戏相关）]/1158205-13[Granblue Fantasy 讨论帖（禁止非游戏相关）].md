@@ -45,3 +45,11 @@
 古兰用兽王，带med，泽塔，炎帝</blockquote>
 谢谢，太久没打忘了，原来更两层的，我打的23层，刚抄了个兽王过了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17984#       发表于 2024-7-16 08:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">飞哥这粪中粪的BOSS每天开天破打打得了，我风2+2+2的盘子，没紫苑都不想进本，看了就头大
+

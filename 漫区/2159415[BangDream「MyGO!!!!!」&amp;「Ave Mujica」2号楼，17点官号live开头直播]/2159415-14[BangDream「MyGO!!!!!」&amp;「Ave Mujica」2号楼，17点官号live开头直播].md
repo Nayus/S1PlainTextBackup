@@ -13875,3 +13875,46 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 怎麼沒有上海人說一下她們在吃哪家 想知道她們吃了什麼 已知有典中典小籠包了 ...</blockquote>
 可能还吃了红烧肉吧，毕竟招牌菜
 
+
+*****
+
+####  星天观测  
+##### 20467#       发表于 2024-7-16 22:28
+
+受到启发，希望看到以下内容
+
+祥子夹菜喵转桌，祥子喝水喵刹车，
+
+祥子敬酒喵不喝，祥子开门喵上车，
+
+祥子走路喵坐车，祥子K歌喵切歌，
+
+祥子听牌喵自摸，祥子讲话喵唠嗑。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20468#       发表于 2024-7-16 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606225&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-7-16 22:22</a>
+
+可能还吃了红烧肉吧，毕竟招牌菜</blockquote>
+就是红烧肉，李子微博说过
+
+<img src="https://img.saraba1st.com/forum/202407/16/223110q6ubho8hu5coj567.jpg" referrerpolicy="no-referrer">
+
+<strong>008BJbK1gy1hrnpyfzgcaj31to1d9kjl.jpg</strong> (80.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:31 上传
+
+
+*****
+
+####  KirigawaMaki  
+##### 20469#       发表于 2024-7-16 22:34
+
+一个楼梯间都能拍那么多张照片，出去玩的照片肯定拍得更多<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+上海旅行的vlog什么的，感觉弄弄日后没准还真会剪一个队友间分享吧
+

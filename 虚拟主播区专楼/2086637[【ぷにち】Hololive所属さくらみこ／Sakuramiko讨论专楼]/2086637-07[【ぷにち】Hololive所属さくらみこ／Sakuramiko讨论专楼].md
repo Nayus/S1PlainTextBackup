@@ -3999,3 +3999,28 @@ sololive确定
 
 一声叹息
 
+
+*****
+
+####  holoan  
+##### 9236#         楼主| 发表于 2024-7-16 22:28
+
+七字母周年纪念19日直播确定
+
+企划确定
+
+*****
+
+####  holoan  
+##### 9237#         楼主| 发表于 2024-7-16 22:30
+
+举办时期的话按以前的经验一般是按正式发表时间往后推3个月
+
+<img src="https://img.saraba1st.com/forum/202407/16/223053bkuiymoki3333ki3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:30 上传
+

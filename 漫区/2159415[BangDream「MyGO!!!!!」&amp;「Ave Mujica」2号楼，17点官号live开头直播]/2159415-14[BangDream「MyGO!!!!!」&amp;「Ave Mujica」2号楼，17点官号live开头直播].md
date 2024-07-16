@@ -12709,3 +12709,34 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 2024-7-16 09:20 上传
 
+
+*****
+
+####  Aendst  
+##### 20365#       发表于 2024-7-16 09:30
+
+什么负面情绪，不喜欢泥漏有负面情绪能自掏腰包把下半年资源撑起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能穿越时空让武士道所有操作都变得无可指摘吗？不能那有什么好说的，站着说话不腰疼，既得利益者嘴脸
+
+烤羊就更好笑了，泥漏mujica推根本不在乎羊宮，羊宮跟mujica又没关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只有关心mygo的人才会在乎羊宮，隔壁连这都不懂吗，水平太差了吧
+
+如果是帮某个小号说话就更好笑了，有一种进泥漏说nga环境好的有鸡不看哥真爱粉的美，他们不会是同一个人吧
+
+
+*****
+
+####  NODY  
+##### 20366#       发表于 2024-7-16 09:36
+
+我都怀疑是不是那个小号在泥漏被扣鹅多了去那边告状升堂去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 20367#       发表于 2024-7-16 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还有这想法啊，很可惜那边的人不能给加鹅，多升堂些来点路人粉，把-130+的鹅给加回来
+

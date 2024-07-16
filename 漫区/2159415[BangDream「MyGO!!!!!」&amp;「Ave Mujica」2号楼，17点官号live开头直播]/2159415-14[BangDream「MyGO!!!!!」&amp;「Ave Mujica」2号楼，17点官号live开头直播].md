@@ -14006,3 +14006,124 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 看z8说mujica飞机的座位和其他人不一样，可能是高尾自己出钱给五个人升舱了，这就是三次元大小姐吗 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个好像是lol那边的梗，哥哥自费升舱，这时候就差来个前辈来句“年轻人啊就该多吃些苦”
 
+
+*****
+
+####  PDQ4  
+##### 20479#       发表于 2024-7-16 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606081&amp;ptid=2159415" target="_blank">御景 发表于 2024-7-16 22:11</a>
+
+紫吧速度，看紫吧说是：上海申阿婆（国展店）</blockquote>
+不像，申阿婆有标准小红碗，这个照片特征很少真不太好特<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20480#       发表于 2024-7-16 23:07
+
+ 本帖最后由 御幸一也 于 2024-7-16 23:11 编辑 
+
+端水大師這名字今天起是米澤小姐姐的啦！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+omg表情都好那個<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/16/230917c3om9memohrhcjor.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240716-150719_1813228929274245310_photo-0.jpg</strong> (196.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/230951fk09kc1o0dme9ukm.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240716-150719_1813228929274245310_photo-1.jpg</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/231034ige82ykoo0qkt4h9.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240716-150719_1813228929274245310_photo-2.jpg</strong> (222.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/231026t9k5pnrzfnkzc4z1.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240716-150719_1813228929274245310_photo-3.jpg</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 23:10 上传
+
+[https://x.com/AkaneY_banu/status/1813228929274245310](https://x.com/AkaneY_banu/status/1813228929274245310)
+
+順便她剛剛秒刪了這個重新發了一次，到底哪裡不一樣了
+
+<img src="https://img.saraba1st.com/forum/202407/16/231148qpi6ipp8ccpzciem.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (705.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 23:11 上传
+
+
+*****
+
+####  基神的强袭自由  
+##### 20481#       发表于 2024-7-16 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65601089&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-16 14:48</a>
+
+宝宝你怎么退s1邦群了</blockquote>
+没有BW票道心破碎了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 20482#       发表于 2024-7-16 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606660&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 23:04</a>
+
+不行越想越感覺……B站給人住的什麼鬼地方啊
+
+拍照的那個地址，不是住那裡就是特地跑過去吃飯，有沒有上海的 ...</blockquote>
+你看衣服就知道拍餐桌和拍饭店门口不是同一天，申阿婆特色菜确实有红烧肉，微博发的东坡肉那天衣服是对上的，另外那张就真不知道哪吃的
+
+*****
+
+####  Alicest  
+##### 20483#       发表于 2024-7-16 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606716&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-7-16 23:10</a>
+没有BW票道心破碎了</blockquote>
+bw结束了，该回来了
+
+*****
+
+####  基神的强袭自由  
+##### 20484#       发表于 2024-7-16 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606660&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 23:04</a>
+
+不行越想越感覺……B站給人住的什麼鬼地方啊
+
+拍照的那個地址，不是住那裡就是特地跑過去吃飯，有沒有上海的 ...</blockquote>
+凛和柑住的是虹桥西郊假日酒店
+
+*****
+
+####  基神的强袭自由  
+##### 20485#       发表于 2024-7-16 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606766&amp;ptid=2159415" target="_blank">Alicest 发表于 2024-7-16 23:14</a>
+
+bw结束了，该回来了</blockquote>
+来了，拉我
+

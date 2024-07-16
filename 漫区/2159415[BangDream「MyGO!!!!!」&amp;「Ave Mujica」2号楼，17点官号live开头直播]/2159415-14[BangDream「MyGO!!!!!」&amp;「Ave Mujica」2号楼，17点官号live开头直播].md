@@ -13258,3 +13258,52 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 如果按身高排序原来弄比节约高吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20409#       发表于 2024-7-16 16:34
+
+这没有，高尾152，渡濑153，不过一个鞋跟就能解决，看不出来就是没区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kivz  
+##### 20410#       发表于 2024-7-16 16:38
+
+这身高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 20411#       发表于 2024-7-16 16:40
+
+梦以肉体貌似很不错，就是太矮了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  PDQ4  
+##### 20412#       发表于 2024-7-16 16:40
+
+连体碟初动5717，塞了3张抽选初动没有一单高，这下糊完了
+
+天才啊wsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/16/164032xphvq0a08pp30ri0.jpg" referrerpolicy="no-referrer">
+
+<strong>99a010c013656e8b8efac0e6baceb0e.jpg</strong> (173.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 16:40 上传
+
+*****
+
+####  ml1642879  
+##### 20413#       发表于 2024-7-16 16:44
+
+萌新求问，狗和鸡有成员被邦高祖下手了吗，邦tv没看见
+

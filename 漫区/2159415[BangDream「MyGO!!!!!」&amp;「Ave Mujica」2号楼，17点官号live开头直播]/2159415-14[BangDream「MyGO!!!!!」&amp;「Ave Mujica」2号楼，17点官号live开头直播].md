@@ -13544,3 +13544,27 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 这塞的抽选一点诚意没有，票随便买，又不是一开始那个剧场得抢票
 
+
+*****
+
+####  NODY  
+##### 20439#       发表于 2024-7-16 19:07
+
+隔壁贴的图，翻唱专好像都是差不多这个销量
+
+<img src="https://img.saraba1st.com/forum/202407/16/190716kc2uebbujoecbb74.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240716185432.png</strong> (36.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 19:07 上传
+
+
+*****
+
+####  星天观测  
+##### 20440#       发表于 2024-7-16 19:10
+
+然而一个塞的是pico一个是三抽选，我不好说好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

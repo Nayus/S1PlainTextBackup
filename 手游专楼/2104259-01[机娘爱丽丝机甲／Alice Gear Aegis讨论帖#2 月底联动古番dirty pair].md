@@ -180,3 +180,21 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 
 阿金还敢双UP ST？不怕炎上吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alialex  
+##### 1126#       发表于 2024-7-16 21:58
+
+舞记得不是和G姐一起出了吗
+
+*****
+
+####  江戸前ルナ  
+##### 1127#         楼主| 发表于 2024-7-16 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65605904&amp;ptid=2104259" target="_blank">alialex 发表于 2024-7-16 21:58</a>
+
+舞记得不是和G姐一起出了吗</blockquote>
+那是FA。
+

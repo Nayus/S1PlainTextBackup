@@ -13773,3 +13773,41 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 [https://x.com/sasakirico/status/1813209349994783096](https://x.com/sasakirico/status/1813209349994783096)
 
+
+*****
+
+####  yifan8848  
+##### 20457#       发表于 2024-7-16 21:56
+
+現在看到樓梯圖已經可以腦補出五人在樓梯間吵吵鬧鬧要怎麼擺姿勢了
+
+單人的圖也可以拍出團魂<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20458#       发表于 2024-7-16 22:00
+
+毕竟有结月这个活泼小孩和超级阳角高尾
+
+漏油一说楼梯间吵吵又梦回上周四，才过了五天感觉就有戒断反应了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+什么时候有机会能再看<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20459#       发表于 2024-7-16 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎麼沒有上海人說一下她們在吃哪家 想知道她們吃了什麼 已知有典中典小籠包了
+
+
+*****
+
+####  66367749  
+##### 20460#       发表于 2024-7-16 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65605808&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 21:50</a>
+噴了剛說完</blockquote>
+拍出了大长腿的感觉，其实好几个小个子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

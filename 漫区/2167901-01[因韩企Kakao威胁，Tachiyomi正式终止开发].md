@@ -8,3 +8,11 @@
 
 —— 来自 Xiaomi 23113RKC6C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  布拉德莱恩  
+##### 249#       发表于 2024-7-16 07:46
+
+mihon好久没更新了
+

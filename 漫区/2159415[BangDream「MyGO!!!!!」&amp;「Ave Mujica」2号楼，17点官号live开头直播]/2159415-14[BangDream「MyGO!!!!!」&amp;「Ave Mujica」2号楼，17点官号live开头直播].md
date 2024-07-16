@@ -13811,3 +13811,21 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 噴了剛說完</blockquote>
 拍出了大长腿的感觉，其实好几个小个子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 20461#       发表于 2024-7-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65605958&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 22:01</a>
+
+怎麼沒有上海人說一下她們在吃哪家 想知道她們吃了什麼 已知有典中典小籠包了 ...</blockquote>
+紫吧速度，看紫吧说是：上海申阿婆（国展店）
+
+*****
+
+####  滑稽Captain  
+##### 20462#       发表于 2024-7-16 22:14
+
+像天音那个拍了盘子的能知道是什么店，她们这也没拍菜呀，酒店圆桌也没特征
+

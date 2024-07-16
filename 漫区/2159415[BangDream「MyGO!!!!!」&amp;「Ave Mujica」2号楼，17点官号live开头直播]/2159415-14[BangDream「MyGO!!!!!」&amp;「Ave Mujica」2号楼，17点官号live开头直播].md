@@ -14160,3 +14160,20 @@ bw结束了，该回来了</blockquote>
 凛和柑住的是虹桥西郊假日酒店</blockquote>
 大家應該住的是差不多的吧，那ave不會是住那裡了，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星空冻结  
+##### 20489#       发表于 2024-7-16 23:27
+
+你b的招待一直很差，又不是第一次了，至于招待费是本来就少还是被贪了就不知道了
+
+*****
+
+####  星天观测  
+##### 20490#       发表于 2024-7-16 23:31
+
+阿b现在不是挺穷的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真不好说给的什么条件
+
+不过回都回了，还是等她们多发点照片吧
+

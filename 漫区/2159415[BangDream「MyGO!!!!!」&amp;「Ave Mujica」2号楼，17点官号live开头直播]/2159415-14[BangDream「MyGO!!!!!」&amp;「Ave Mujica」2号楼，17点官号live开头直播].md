@@ -12631,3 +12631,48 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 虽然从企划粉的角度来看羊姐我会很难受，但是从同为打工人的角度来看我可羡慕死羊姐了 ...</blockquote>
 我也是打工人角度，有羊姐这么个队友还给她那么好待遇是我我想跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 20359#       发表于 2024-7-16 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597245&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-16 08:40</a>
+
+去旁边看一眼就知道来盯什么了，帮那个抽象小号打抱不平说泥楼只会追着人咬和传播负面情绪的都有，总结： ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偶尔看隔壁的时候，一三五车祥二四六车立希，剩一天一块车，万物可转车祥希
+
+虽然不知道现在还车不车，但这“福气”别的队友有没有啊.jpg，搞得我都要磕她俩这有“福”之人了
+
+上次短道速滑的时候就有人说打住，没想到又是泥楼传播负面情绪了
+
+唉，鸡杂楼，唉唉，孝祥楼，唉唉唉，不如z8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 20360#       发表于 2024-7-16 09:04
+
+把🐢和🥁优化掉，上两个pro，另外三个督促练琴，感觉能比目前好上不少
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  鳥栖朝  
+##### 20361#       发表于 2024-7-16 09:04
+
+ 本帖最后由 鳥栖朝 于 2024-7-16 09:06 编辑 
+
+都顶级变态s1了，都萝÷狂车爱美中亦有记载了，先不提什么鸡杂和萝厨的问题，小登也不了解当时的情况，不过就社长这歌力这态度被拿来和羊类比，我一时间不知道在乳谁，唉鸡杂，唉孝祥，唉变态
+
+*****
+
+####  NODY  
+##### 20362#       发表于 2024-7-16 09:04
+
+单纯主唱看走眼了，wsd也没想到她唱歌不练不营业也就算了现场活动话都说不利索还不认字，每次都要靠青木鼓帮忙打圆场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然羊噶一般都说来看狗的绝大部分都是来看羊的是羊带飞了另外四个底边，也不知道是不是真的
+

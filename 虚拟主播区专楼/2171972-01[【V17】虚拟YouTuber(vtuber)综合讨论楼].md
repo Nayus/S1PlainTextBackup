@@ -592,3 +592,13 @@ vspo en之前看和虹en这种被鬼佬gank的一个水平，不知道过一段�
 
 不是说bravegroup要上市吗？搞点海外拓展撑撑门面
 
+
+*****
+
+####  格林卡罗尔  
+##### 478#       发表于 2024-7-16 18:57
+
+碧依办的这比赛，我们主播也有自己的algs了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

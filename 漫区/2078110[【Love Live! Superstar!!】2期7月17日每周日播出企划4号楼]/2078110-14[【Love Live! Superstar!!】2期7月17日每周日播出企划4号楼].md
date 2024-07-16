@@ -368,3 +368,16 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 上传了
 
+
+*****
+
+####  ruffian  
+##### 20550#       发表于 2024-7-16 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65603733&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-07-16 18:51:45</a>
+说不定真换人了，不然这么悠哉是无法理解的，太巨魔了。
+
+—— 来自 OPPO PHN110, Android 14上的  v3.0. ...</blockquote>也没办法吧？再有三个月就该播了，花田的活也不可能有什么大的改变了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

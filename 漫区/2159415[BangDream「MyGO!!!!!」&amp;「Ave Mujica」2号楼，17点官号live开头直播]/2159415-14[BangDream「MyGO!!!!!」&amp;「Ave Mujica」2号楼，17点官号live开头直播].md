@@ -13674,3 +13674,19 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 4th的两日通票抽选是和萝三单附的一样吧，这个大概多少也算点debuff
 
+
+*****
+
+####  yifan8848  
+##### 20450#       发表于 2024-7-16 21:05
+
+不管怎麼樣先抽再說
+
+<img src="https://img.saraba1st.com/forum/202407/16/210335pyzaoapat58saai5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2579.png</strong> (228.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 21:03 上传
+

@@ -13023,3 +13023,11 @@ mmp事先不知道rin和mikan在哪个舞台什么时候开始，导致我到那
 
 bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕，不过体验也是绝好，当时在现场的感受看录播是找不回来的，甚至感觉每看一次录播当时的感受都会淡薄几分<img src="https://p.sda1.dev/18/7480001204424aef8ccb1fc44c93cc7a/Screenshot_20240716_105845.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20393#       发表于 2024-7-16 11:08
+
+拼搏百天，我要去年底的鸡萝合演<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

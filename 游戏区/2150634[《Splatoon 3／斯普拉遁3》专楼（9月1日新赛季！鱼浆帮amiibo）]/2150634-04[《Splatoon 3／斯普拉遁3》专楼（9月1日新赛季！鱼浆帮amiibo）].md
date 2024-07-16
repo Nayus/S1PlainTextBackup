@@ -299,3 +299,34 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 4827#       发表于 2024-7-16 11:07
+
+翻译了3组偶像的访谈。
+https://splatoon.com.cn/page/55
+
+<img src="https://img.saraba1st.com/forum/202407/16/110601ruzt2w2yc7ojtey7.jpg" referrerpolicy="no-referrer">
+
+<strong>18401b75-810e-4057-8f62-412d5bb77d67.jpg</strong> (342.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:06 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KBAC| + 1|好评加鹅|
+
+查看全部评分
+

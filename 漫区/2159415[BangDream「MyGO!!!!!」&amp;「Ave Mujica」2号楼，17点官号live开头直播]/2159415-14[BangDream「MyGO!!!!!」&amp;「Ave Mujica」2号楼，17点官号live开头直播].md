@@ -13929,3 +13929,80 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 噴了剛說完</blockquote>
 看第一张图茜和李子的衣服长度基本一样，感觉可以想象茜穿李子衣服是什么样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20471#       发表于 2024-7-16 22:57
+
+看z8说mujica飞机的座位和其他人不一样，可能是高尾自己出钱给五个人升舱了，这就是三次元大小姐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hitori酱  
+##### 20472#       发表于 2024-7-16 22:58
+
+<img src="https://img.saraba1st.com/forum/202407/16/225804f1sgw5p1k1qzzswx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (125.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:58 上传
+
+@rousei13
+
+*****
+
+####  御幸一也  
+##### 20473#       发表于 2024-7-16 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606592&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-16 22:57</a>
+
+看z8说mujica飞机的座位和其他人不一样，可能是高尾自己出钱给五个人升舱了，这就是三次元大小姐吗 ...</blockquote>
+？什麼琴吹紬<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20474#       发表于 2024-7-16 23:03
+
+有点假，不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20475#       发表于 2024-7-16 23:04
+
+不行越想越感覺……B站給人住的什麼鬼地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+拍照的那個地址，不是住那裡就是特地跑過去吃飯，有沒有上海的樓友說一下那裡是會特地跑去吃的嗎
+
+（雖然看餐具已經可以肯定不是在這吃的……
+
+住3晚/人還不夠手遊課金2單貴，真的越想越難繃<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20476#       发表于 2024-7-16 23:04
+
+你B不至于抠门到请人坐经济舱吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 20477#       发表于 2024-7-16 23:05
+
+也有可能是bml和bw的接待规格不一样
+
+*****
+
+####  akiomn  
+##### 20478#       发表于 2024-7-16 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606592&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-16 22:57</a>
+看z8说mujica飞机的座位和其他人不一样，可能是高尾自己出钱给五个人升舱了，这就是三次元大小姐吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个好像是lol那边的梗，哥哥自费升舱，这时候就差来个前辈来句“年轻人啊就该多吃些苦”
+

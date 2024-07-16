@@ -27,3 +27,11 @@ mihon好久没更新了</blockquote>
 preview版更得挺勤快的
 [https://github.com/mihonapp/mihon-preview/releases/tag/r6776](https://github.com/mihonapp/mihon-preview/releases/tag/r6776)
 
+
+*****
+
+####  玄天大佐  
+##### 251#       发表于 2024-7-16 15:39
+
+淦……买了块便宜平板，不论tachiyomi还是mihon都闪退<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

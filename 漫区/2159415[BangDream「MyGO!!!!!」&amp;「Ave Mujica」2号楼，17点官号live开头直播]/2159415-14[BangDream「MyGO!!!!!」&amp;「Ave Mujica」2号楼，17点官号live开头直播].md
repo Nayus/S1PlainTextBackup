@@ -12893,3 +12893,49 @@ nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎�
 
 當了十幾年河豚第一次見某鳥這種把CP當武器的……不能人身攻擊就無話可說了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  第七軍伐戎処  
+##### 20383#       发表于 2024-7-16 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65598067&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 10:18</a>
+
+無所謂 我就是瘋狗我追著咬怎麼了
+
+當了十幾年河豚第一次見某鳥這種把CP當武器的……不能人身攻擊就無話可說 ...</blockquote>
+怎么就拿CP当武器了，而且当武器攻击谁了，到现在为止全MyGO和Mujica所有CP，我说过比你截图那张和唉美帝更重的话吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过造谣的应该不是你，所以你只是单纯看我不爽这样我没有意见
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+
+
+*****
+
+####  御幸一也  
+##### 20384#       发表于 2024-7-16 10:33
+
+噴了米澤小姐姐的簽名明信片已經售罄了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+另一個還能買
+[https://ppixel.official.ec/items/87955383](https://ppixel.official.ec/items/87955383)
+
+<img src="https://img.saraba1st.com/forum/202407/16/103151zy62dmw66ay7w677.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (115.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 10:31 上传
+

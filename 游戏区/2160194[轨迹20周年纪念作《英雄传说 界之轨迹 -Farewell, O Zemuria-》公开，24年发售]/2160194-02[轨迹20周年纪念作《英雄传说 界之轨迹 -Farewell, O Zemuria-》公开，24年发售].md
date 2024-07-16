@@ -2571,3 +2571,14 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 常规进行对话的话，一般是我方视角离镜头近然后能看对面全身的，葱头这边视角像是操控葱头主动靠近大少那边的。
 剧情也是葱头主动找上大少，这两人感觉不会有严格的分主次
 
+
+*****
+
+####  古畑任三郎2015  
+##### 1719#       发表于 2024-7-16 21:26
+
+说起来sc里葱头约修亚哪个可控时间长来着
+四舍五入是不是能算两作男主！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

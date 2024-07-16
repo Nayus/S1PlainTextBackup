@@ -12939,3 +12939,37 @@ nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎�
 
 2024-7-16 10:31 上传
 
+
+*****
+
+####  相坂君  
+##### 20385#       发表于 2024-7-16 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">米泽小姐的罚抄time
+
+这么一联想，我想看mujica五人在小黑屋里签小卡片签到手软，特别是一串字母名字最长的那谁<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20386#       发表于 2024-7-16 10:41
+
+讲个笑话，李子相关的某个群曾经讨论过要用特别复杂的名字（饕餮什么什么的）去买李子to签<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（某群友：李子就想出来赚个钱，你搁这儿军训是吧）
+
+
+*****
+
+####  rikaren  
+##### 20387#       发表于 2024-7-16 10:44
+
+这不得全上繁体+非常用字（
+
+*****
+
+####  星天观测  
+##### 20388#       发表于 2024-7-16 10:46
+
+呼吁一下：不要军训李子和米泽哦内盖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

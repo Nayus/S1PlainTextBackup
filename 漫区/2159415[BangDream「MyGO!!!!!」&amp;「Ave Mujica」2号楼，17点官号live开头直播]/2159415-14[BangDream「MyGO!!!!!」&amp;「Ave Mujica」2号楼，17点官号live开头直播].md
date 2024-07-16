@@ -13650,3 +13650,27 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 總之該支持爆米的我會爆，剩下不關我事，我又不是武士道股東<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20448#       发表于 2024-7-16 20:55
+
+簽名明信片會追加販賣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+[https://x.com/AkaneY_banu/status/1810994355270025462](https://x.com/AkaneY_banu/status/1810994355270025462)
+
+<img src="https://img.saraba1st.com/forum/202407/16/205443rhiycbznoymoyhto.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (41.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 20:54 上传
+
+*****
+
+####  滑稽Captain  
+##### 20449#       发表于 2024-7-16 20:55
+
+4th的两日通票抽选是和萝三单附的一样吧，这个大概多少也算点debuff
+

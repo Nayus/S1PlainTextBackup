@@ -875,3 +875,26 @@ twitch同接580了，平时两三百的。
 
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">，不说了
 
+
+*****
+
+####  古战场亡魂  
+##### 16658#       发表于 2024-7-16 22:02
+
+节目开了
+
+<img src="https://img.saraba1st.com/forum/202407/16/220236crsh830rjyhqyvy1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:02 上传
+
+*****
+
+####  古战场亡魂  
+##### 16659#       发表于 2024-7-16 22:55
+
+めあたむ「私はいいけど、神楽めあはなんていうかな？」
+

@@ -13918,3 +13918,14 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 一个楼梯间都能拍那么多张照片，出去玩的照片肯定拍得更多<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 上海旅行的vlog什么的，感觉弄弄日后没准还真会剪一个队友间分享吧
 
+
+*****
+
+####  叁味线  
+##### 20470#       发表于 2024-7-16 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65605808&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 21:50</a>
+
+噴了剛說完</blockquote>
+看第一张图茜和李子的衣服长度基本一样，感觉可以想象茜穿李子衣服是什么样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

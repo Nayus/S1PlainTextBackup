@@ -4024,3 +4024,52 @@ sololive确定
 
 2024-7-16 22:30 上传
 
+
+*****
+
+####  holoan  
+##### 9238#         楼主| 发表于 2024-7-16 22:36
+
+<img src="https://img.saraba1st.com/forum/202407/16/223503j0ns4lfhah2i41ne.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:35 上传
+
+今年大概率是没有，不仅是miko自己的sololive在忙，korone自己家里的事情今年一直活动不安定，这个状态下是很难搞的
+
+*****
+
+####  holoan  
+##### 9239#         楼主| 发表于 2024-7-16 22:48
+
+以及既然确定sololive了在这种情况下同时准备箱内大型企划对本人来说精神压力太大了吧，我之前其实没有提到另一个相反的设想就是记事本上写的那些细节内容实际上是内部开会的时候随手写的备注，也就是说miko不是主办侧而是参加侧，我之前一直是先入为主以miko作为主办方为前提做假设很有可能是完全错误的方向，那实际是谁主办的那再猜想吧
+
+*****
+
+####  holoan  
+##### 9240#         楼主| 发表于 2024-7-16 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606336&amp;ptid=2086637" target="_blank">holoan 发表于 2024-7-16 22:30</a>
+
+举办时期的话按以前的经验一般是按正式发表时间往后推3个月</blockquote>
+miko：入热门趋势感谢！
+
+
+*****
+
+####  holoan  
+##### 9241#         楼主| 发表于 2024-7-16 22:51
+
+<img src="https://img.saraba1st.com/forum/202407/16/225047uxan8tfhxrnao3oo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:50 上传
+
+目前为止跟miko关系最好的大物声优是谁不用我多说了吧，这个基本不用猜了
+

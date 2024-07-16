@@ -13698,3 +13698,16 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 按照经验，看台一层最边上的位置能res吃饱饱
 
+
+*****
+
+####  御幸一也  
+##### 20452#       发表于 2024-7-16 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65605291&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-16 20:55</a>
+
+4th的两日通票抽选是和萝三单附的一样吧，这个大概多少也算点debuff</blockquote>
+2DAYS PASS是個純抱蘿大腿的東西，純看有多少蘿粉賞臉願意多看兩眼你ave，而且還沒S席<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+這可不能說是debuff，畢竟蘿粉買蘿專天經地義。
+

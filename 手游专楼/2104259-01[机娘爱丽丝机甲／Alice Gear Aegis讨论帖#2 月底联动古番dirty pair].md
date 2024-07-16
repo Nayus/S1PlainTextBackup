@@ -162,3 +162,13 @@ FA又要录新语音又要写新剧情，ST就好办多了<img src="https://stat
 虽然锤子真是弱得惨不忍睹 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如1107L所说，阿金是会做强度控制的
 
+
+*****
+
+####  不灭的旋律  
+##### 1124#       发表于 2024-7-16 21:25
+
+抽干最后一滴都没抽到艾玛羡慕你们<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+21号直播这嘉宾，难道半周年就是ST王女和舞？
+

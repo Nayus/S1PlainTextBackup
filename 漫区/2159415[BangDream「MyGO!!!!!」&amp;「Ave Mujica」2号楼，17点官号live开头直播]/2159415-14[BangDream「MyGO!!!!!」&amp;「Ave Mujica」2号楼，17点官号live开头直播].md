@@ -14127,3 +14127,36 @@ bw结束了，该回来了
 bw结束了，该回来了</blockquote>
 来了，拉我
 
+
+*****
+
+####  Alicest  
+##### 20486#       发表于 2024-7-16 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606776&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-7-16 23:15</a>
+
+来了，拉我</blockquote>
+153877577
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20487#       发表于 2024-7-16 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606754&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-16 23:13</a>
+
+你看衣服就知道拍餐桌和拍饭店门口不是同一天，申阿婆特色菜确实有红烧肉，微博发的东坡肉那天衣服是对上 ...</blockquote>
+筷子不一樣吧，看了下網路上的圖申阿婆的感覺不是木的，東坡肉那張像木筷<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20488#       发表于 2024-7-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65606772&amp;ptid=2159415" target="_blank">基神的强袭自由 发表于 2024-7-16 23:15</a>
+
+凛和柑住的是虹桥西郊假日酒店</blockquote>
+大家應該住的是差不多的吧，那ave不會是住那裡了，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

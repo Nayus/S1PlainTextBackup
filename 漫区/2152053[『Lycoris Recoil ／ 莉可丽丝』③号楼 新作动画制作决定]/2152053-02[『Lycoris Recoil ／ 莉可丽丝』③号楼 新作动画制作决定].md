@@ -219,3 +219,11 @@ AI弄的，在twi翻到 ...</blockquote>
 
 才看到蒜楼也发了这个图，你蒜在互联网真实经久不息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒜灵  
+##### 1910#       发表于 2024-7-16 23:17
+
+7.23真有消息吗？越来越期待蒜2了
+

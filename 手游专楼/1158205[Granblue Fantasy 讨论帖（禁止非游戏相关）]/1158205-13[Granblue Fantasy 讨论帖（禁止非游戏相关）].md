@@ -96,3 +96,18 @@
 
 但土真的属于那种防御面过剩的属性了，天元顶着水土脆性都能跑的属性....
 
+
+*****
+
+####  adretyu67.  
+##### 17989#       发表于 2024-7-16 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65602119&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2024-7-16 16:22</a>
+
+土实在缺血你弄防御九柱短都可以
+
+但土真的属于那种防御面过剩的属性了，天元顶着水土脆性都能跑的属性.... ...</blockquote>
+25血和55血还是差不少的。
+
+55差不多等于单面神威大了。
+

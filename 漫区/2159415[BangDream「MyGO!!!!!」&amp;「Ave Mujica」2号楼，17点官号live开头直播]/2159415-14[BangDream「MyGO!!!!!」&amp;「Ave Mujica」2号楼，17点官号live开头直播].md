@@ -12973,3 +12973,42 @@ nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎�
 
 呼吁一下：不要军训李子和米泽哦内盖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20389#       发表于 2024-7-16 10:51
+
+贴一张群里看到的米泽前公式照，卡密<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+QQ图片20240716104932.jpg
+(14.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 10:51 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/105105qjjs44ye4chj48so.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 20390#       发表于 2024-7-16 10:52
+
+刘海茜什么时候回来，一直都是T0<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  御幸一也  
+##### 20391#       发表于 2024-7-16 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65598289&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-16 10:41</a>
+
+讲个笑话，李子相关的某个群曾经讨论过要用特别复杂的名字（饕餮什么什么的）去买李子to签
+
+（某群友：李子 ...</blockquote>
+這個就是之前寫全網最詳細mujica解謎活動repo的佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -71,3 +71,22 @@
 
 反而是永恒这种高级别EGO不值一提了
 
+
+*****
+
+####  Jamaisvu  
+##### 796#       发表于 2024-7-16 17:25
+
+ 本帖最后由 Jamaisvu 于 2024-7-16 17:27 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/16/172721s3n9ojdzoud448ba.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240716_172702.jpg</strong> (183.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-16 17:27 上传
+
+W间章的三星人格是奥提斯，罗佳可能要等到第七章才有新三星吧...
+

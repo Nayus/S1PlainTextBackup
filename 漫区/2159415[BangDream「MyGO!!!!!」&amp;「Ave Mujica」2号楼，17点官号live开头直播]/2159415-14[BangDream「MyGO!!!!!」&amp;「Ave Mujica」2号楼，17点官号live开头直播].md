@@ -13100,3 +13100,58 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 2024-7-16 13:36 上传
 
+
+*****
+
+####  基神的强袭自由  
+##### 20397#       发表于 2024-7-16 13:50
+
+<img src="https://img.saraba1st.com/forum/202407/16/135003zakainuzv9ikk8zi.jpg" referrerpolicy="no-referrer">
+
+<strong>EBE6710E-758B-4D39-9736-204E830BF011.jpg</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 13:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/135011ibm8d7m28z888qqm.jpg" referrerpolicy="no-referrer">
+
+<strong>070A649D-4ADA-4C5E-9AF1-1672D5B43A56.jpg</strong> (402.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 13:50 上传
+
+不送主题，不是很想抽啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 20398#       发表于 2024-7-16 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65598817&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-16 11:24</a>
+這是哪裡的樓梯啊 </blockquote>
+虹馆吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  基神的强袭自由  
+##### 20399#       发表于 2024-7-16 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597929&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-16 10:08</a>
+慕名去隔壁瞅了一眼，们盯着泥楼看能不能带好点的节奏，正经情报、返图没几个人发？是不是屏蔽了某几个漏油 ...</blockquote>
+有翻译的时候搬的挺快的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 20400#       发表于 2024-7-16 13:54
+
+4000抽一井而且只能出一个保底，还没有实体卡，专骗有钱人啊，我看群里说之前都是管人才玩这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

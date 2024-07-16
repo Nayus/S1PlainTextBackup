@@ -12748,3 +12748,79 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 那个“小号辛苦发同人和场照还要被追着扣鹅”的委屈语气真的很像是本人去告状，要不然就是灵魂之友了，祝锁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 20369#       发表于 2024-7-16 09:46
+
+ 本帖最后由 rikaren 于 2024-7-16 09:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/16/094631sva88t3l7ex78ke3.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1721094378614.jpg</strong> (24.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 09:46 上传
+
+你楼至少干不出来这种事
+
+要断章取义的话nga专楼不就是车立希车的最欢的论坛。
+
+*****
+
+####  第七軍伐戎処  
+##### 20370#       发表于 2024-7-16 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597640&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-16 09:36</a>
+
+我都怀疑是不是那个小号在泥漏被扣鹅多了去那边告状升堂去了</blockquote>
+那边是哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1||
+
+查看全部评分
+
+*****
+
+####  星空冻结  
+##### 20371#       发表于 2024-7-16 09:50
+
+nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎么s1负能量就不行了？还是说nga的负能量不是负能量，s1的负能量才是负能量<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 20372#       发表于 2024-7-16 09:55
+
+为什么总要在意乐器水平呢，就你邦这个本质偶像，大部分粉丝来live是来看什么的心里都有数。有pro当然是好，提起RAS每一个邦狗脸上都有光，但是水平不上不下确实也无所谓的呀
+
+*****
+
+####  NODY  
+##### 20373#       发表于 2024-7-16 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597727&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-16 09:46</a>
+
+你楼至少干不出来这种事
+
+要断章取义的话nga专楼不就是车立希车的最欢的论坛。 ...</blockquote>
+不断章取义也是啊，车立希的内容主要是立希厨抱怨官方不做人，其他人再堵嘴说立希待遇很好或者等手游，反复循环最后以立希厨不要负能量结束，一开始车就能把车羊姐车祥子还有车其他人的节奏停下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20374#       发表于 2024-7-16 09:57
+
+昨天那也叫負面情緒啊，建議多翻翻，泥樓真滑坡的時候要狠多了，昨天完全沒有盡顯魔窟姿態呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

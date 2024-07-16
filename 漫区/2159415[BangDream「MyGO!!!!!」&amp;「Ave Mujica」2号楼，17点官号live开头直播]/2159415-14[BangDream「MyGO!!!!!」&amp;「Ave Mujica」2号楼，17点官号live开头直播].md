@@ -13031,3 +13031,45 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 拼搏百天，我要去年底的鸡萝合演<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20394#       发表于 2024-7-16 11:24
+
+這是哪裡的樓梯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/16/112405t71c7o1wplfouoo4.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-032253_1813051654100709692_photo-0.jpg</strong> (214.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/112406j9pjycz7fo93vq7u.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-032253_1813051654100709692_photo-1.jpg</strong> (443.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/112408o8v8t8toopk6dkob.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-032253_1813051654100709692_photo-2.jpg</strong> (300.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/112410yj856c5f87gyogo8.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_佐々木李子(@sasakirico)_20240716-032253_1813051654100709692_photo-3.jpg</strong> (741.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 11:24 上传
+
+[https://x.com/sasakirico/status/1813051654100709692](https://x.com/sasakirico/status/1813051654100709692)
+

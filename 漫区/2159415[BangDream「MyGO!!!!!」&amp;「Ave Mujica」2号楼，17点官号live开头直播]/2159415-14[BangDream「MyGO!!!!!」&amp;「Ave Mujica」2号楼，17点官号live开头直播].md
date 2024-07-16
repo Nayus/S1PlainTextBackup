@@ -12824,3 +12824,62 @@ nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎�
 
 昨天那也叫負面情緒啊，建議多翻翻，泥樓真滑坡的時候要狠多了，昨天完全沒有盡顯魔窟姿態呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20375#       发表于 2024-7-16 10:07
+
+在意乐器水平的真的是泥楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥楼不是鸡杂楼吗，原来乐器水平不上不下的是鸡啊
+
+*****
+
+####  相坂君  
+##### 20376#       发表于 2024-7-16 10:08
+
+慕名去隔壁瞅了一眼，们盯着泥楼看能不能带好点的节奏，正经情报、返图没几个人发？是不是屏蔽了某几个漏油啊
+
+正面内容一点没有，一半以上是负面情绪，动不动就是滑坡、拉踩，像是一个小群的氛围<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天呐，这简直是……泥楼吗？
+
+*****
+
+####  星天观测  
+##### 20377#       发表于 2024-7-16 10:11
+
+哎鸡杂楼，哎小群，哎负能量，哎不如z8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20378#       发表于 2024-7-16 10:12
+
+这话术我怎么好像见过，他们都是统一使用同一个大脑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难怪看起来脑容量不够用
+
+
+*****
+
+####  ddy2811  
+##### 20379#       发表于 2024-7-16 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597663&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-16 09:38</a>
+
+原来还有这想法啊，很可惜那边的人不能给加鹅，多升堂些来点路人粉，把-130+的鹅给加回来 ...</blockquote>
+哪里加得完？大号还有-350多呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 20380#       发表于 2024-7-16 10:14
+
+<blockquote>NODY 发表于 2024-7-16 09:56
+不断章取义也是啊，车立希的内容主要是立希厨抱怨官方不做人，其他人再堵嘴说立希待遇很好或者等手游，反 ...</blockquote>
+后面回复好歹是基本上觉得这样子不好的，真要论最烂还得是go吧，能让你楼和nga专楼一致觉得是粪坑的含金量。
+
+*****
+
+####  NODY  
+##### 20381#       发表于 2024-7-16 10:14
+
+草生，这下真去隔壁告状了，还把揭露他情况的人给举报了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

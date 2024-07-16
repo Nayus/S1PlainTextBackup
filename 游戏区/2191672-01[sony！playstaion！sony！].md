@@ -535,3 +535,13 @@ lgbt和mihoyo这两个不能一起死吗
 
 所以这事儿相当于迪士尼找白人演花木兰？
 
+
+*****
+
+####  全世界失恋  
+##### 47#       发表于 2024-7-17 07:04
+
+改成黑人是嫌米哈游死得太慢了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

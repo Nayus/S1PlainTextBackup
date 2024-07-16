@@ -13629,3 +13629,24 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 哎，鸡粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20447#       发表于 2024-7-16 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65604856&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-7-16 20:16</a>
+
+塞的三抽选里有一个是狗的talk event吧？虽然也没啥吸引力就是了。
+
+1st也是2000人剧场需要抢票，2nd也是200 ...</blockquote>
+那個talk event很可能是動畫發表會，大概ave，還有go都會上台吧。
+
+而且抽選不是這樣看的吧，會去抽的都是想搶前排，
+
+河口湖的S席只有30來個就不說了，4th的S席看這樣子……嗯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+反正武士道自找的，啥都不給憑什麼要粉絲不跑，
+
+總之該支持爆米的我會爆，剩下不關我事，我又不是武士道股東<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

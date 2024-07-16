@@ -12883,3 +12883,13 @@ nga当时wsd宣布下半年没狗团活的时候不也是负能量拉满？怎�
 
 草生，这下真去隔壁告状了，还把揭露他情况的人给举报了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20382#       发表于 2024-7-16 10:18
+
+無所謂 我就是瘋狗我追著咬怎麼了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+當了十幾年河豚第一次見某鳥這種把CP當武器的……不能人身攻擊就無話可說了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+

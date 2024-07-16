@@ -88,3 +88,25 @@
 
 第一个pv真行的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了还带着日期一眼换皮persona之外找不出问题了
 
+
+*****
+
+####  ouyang菌  
+##### 558#       发表于 2024-7-16 22:21
+
+第一个pv回过头来想也就那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时pv里就有一堆一眼顶针的p系列元素了，比如日程表，五维，commu
+
+从当初浩浩荡荡的说要做脱离smt和p的作品一转persona with 异世界还是挺难绷的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+战斗系统后来看也没啥新意，无论是还在用荣格心理学当战斗设定，还是回归转职天赋树系统的养成，亦或者早在ddsat就有过的消耗多个行动点的组合技，看起来都不是什么能有多革新的系统
+
+最创新的部分可能是把传统的新人看不懂的魔法咒语换成了全新的新人看不懂的魔法咒语，但是又保留了塔尔卡加这种东西来让你知道你玩的是megaten<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/16/222138xs7d5d7ff4s0fddw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240716222052.png</strong> (112.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:21 上传
+

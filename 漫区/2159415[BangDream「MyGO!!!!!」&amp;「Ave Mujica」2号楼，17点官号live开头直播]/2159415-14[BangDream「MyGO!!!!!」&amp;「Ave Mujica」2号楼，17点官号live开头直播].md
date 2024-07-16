@@ -13829,3 +13829,49 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 像天音那个拍了盘子的能知道是什么店，她们这也没拍菜呀，酒店圆桌也没特征
 
+
+*****
+
+####  鳥栖朝  
+##### 20463#       发表于 2024-7-16 22:17
+
+盈港东路1655号照片上都有
+
+*****
+
+####  NODY  
+##### 20464#       发表于 2024-7-16 22:18
+
+<img src="https://img.saraba1st.com/forum/202407/16/221819aaxmyxyn0yufaafi.jpg" referrerpolicy="no-referrer">
+
+<strong>6792200.jpg</strong> (93.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:18 上传
+
+<img src="https://img.saraba1st.com/forum/202407/16/221825gq1hck75c7dqt584.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240716221352.png</strong> (33.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:18 上传
+
+*****
+
+####  星天观测  
+##### 20465#       发表于 2024-7-16 22:18
+
+真想看看她们一起出去玩的vlog啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 20466#       发表于 2024-7-16 22:22
+
+<blockquote>御幸一也 发表于 2024-7-16 22:01
+怎麼沒有上海人說一下她們在吃哪家 想知道她們吃了什麼 已知有典中典小籠包了 ...</blockquote>
+可能还吃了红烧肉吧，毕竟招牌菜
+

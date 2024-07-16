@@ -3950,3 +3950,52 @@ sololive确定
 
 3D直播，确定率10000000000000000%
 
+
+*****
+
+####  holoan  
+##### 9232#         楼主| 发表于 2024-7-16 22:01
+
+评论区
+
+721是45P的日子……
+
+*****
+
+####  holoan  
+##### 9233#         楼主| 发表于 2024-7-16 22:20
+
+说起来直播里什么机密都往外泄过了，自己sololive内容的一丝一毫至今为止都没提前漏出过，真是一种程度的NB
+
+*****
+
+####  holoan  
+##### 9234#         楼主| 发表于 2024-7-16 22:22
+
+<img src="https://img.saraba1st.com/forum/202407/16/222214yd5c1z2lum6cdd2h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:22 上传
+
+屁都没说出来，你推特这个即时热门趋势关键词是怎么回事啊
+
+集体幻觉？
+
+*****
+
+####  holoan  
+##### 9235#         楼主| 发表于 2024-7-16 22:26
+
+<img src="https://img.saraba1st.com/forum/202407/16/222557vfpa0pai2q6ae9z9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 22:25 上传
+
+一声叹息
+

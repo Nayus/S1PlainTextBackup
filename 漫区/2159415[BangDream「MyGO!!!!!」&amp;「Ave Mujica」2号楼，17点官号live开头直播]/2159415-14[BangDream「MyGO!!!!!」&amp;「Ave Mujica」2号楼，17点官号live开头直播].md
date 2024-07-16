@@ -12676,3 +12676,36 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 虽然羊噶一般都说来看狗的绝大部分都是来看羊的是羊带飞了另外四个底边，也不知道是不是真的
 
+
+*****
+
+####  星天观测  
+##### 20363#       发表于 2024-7-16 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597417&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-7-16 09:04</a>
+
+都顶级变态s1了，都萝÷狂车爱美中亦有记载了，先不提什么鸡杂和萝厨的问题，小登也不了解当时的情况，不过 ...</blockquote>
+典中典之鸡杂烤羊=萝厨车社长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+先不说羊的歌力和态度比不上社长一根，狗ppp对邦纯属被吊打，烤羊烤的最勤快的真的是鸡杂么<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">原来昨天突发烤羊十几页的不是nga是s1啊
+
+哎，原来nga也是鸡杂楼
+
+*****
+
+####  NODY  
+##### 20364#       发表于 2024-7-16 09:20
+
+我们至今仍未知道奏音的酒量
+[https://www.bilibili.com/video/BV1qw4m1e7j9](https://www.bilibili.com/video/BV1qw4m1e7j9)
+
+连父母的喝酒情况都逆输入了吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/16/092037e5o5c88d9jymymwj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240716092011.png</strong> (126.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-16 09:20 上传
+

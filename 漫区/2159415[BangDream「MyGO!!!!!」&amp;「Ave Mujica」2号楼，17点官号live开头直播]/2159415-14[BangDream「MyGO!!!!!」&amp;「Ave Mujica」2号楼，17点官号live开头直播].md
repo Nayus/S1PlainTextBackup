@@ -12740,3 +12740,11 @@ wsd太幽默了，以为不拉跨青木能带动其他四个（顶多再算个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还有这想法啊，很可惜那边的人不能给加鹅，多升堂些来点路人粉，把-130+的鹅给加回来
 
+
+*****
+
+####  NODY  
+##### 20368#       发表于 2024-7-16 09:40
+
+那个“小号辛苦发同人和场照还要被追着扣鹅”的委屈语气真的很像是本人去告状，要不然就是灵魂之友了，祝锁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

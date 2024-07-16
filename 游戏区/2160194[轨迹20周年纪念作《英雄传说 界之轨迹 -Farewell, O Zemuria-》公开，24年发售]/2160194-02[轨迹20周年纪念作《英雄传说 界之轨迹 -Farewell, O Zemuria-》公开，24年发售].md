@@ -2522,3 +2522,11 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 就如P5的重点不是回合制战斗，同理东迷的重点也不是那半吊子动作系统，把校园生活和妹子弄好就行。
 
+
+*****
+
+####  勿徊哉  
+##### 1714#       发表于 2024-7-16 09:43
+
+怎么新入职的一半都是中国人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

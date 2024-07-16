@@ -13445,3 +13445,22 @@ bml虽然位置也是稀烂，到了mujica连奏音都看不见只能看屏幕�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">小心孽力回饋
 
+
+*****
+
+####  星空冻结  
+##### 20429#       发表于 2024-7-16 17:47
+
+你鸡一直在寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 20430#       发表于 2024-7-16 17:48
+
+<blockquote>-LYRE- 发表于 2024-7-16 17:31
+毕竟隔壁某些人日常盯着你鸡销量嘲讽你鸡糊比票卖不出去，连在走廊里看点无关贴都能蹦出来
+
+去看了眼果然 ...</blockquote>
+这不著名公司go多莉吗？之前还在这边闹过
+

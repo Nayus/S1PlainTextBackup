@@ -407,3 +407,21 @@ img_9941.png
 
 次回の更新データは、「2024夏 Sizzle Season」のための機能追加やブキのバランス変更を中心として、現在開催中のシーズンが終了する時期に配信予定です。
 
+
+*****
+
+####  KBAC  
+##### 4835#       发表于 2024-7-17 10:09
+
+问题是现在原定的承诺期已经到了，官宣新赛季肯定得正式官宣，又不可能搁这种地方先提一嘴。所以一切都还不好说。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  秋月孝三  
+##### 4836#       发表于 2024-7-17 10:16
+
+FF自带主墨1.1了，感觉有戏<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

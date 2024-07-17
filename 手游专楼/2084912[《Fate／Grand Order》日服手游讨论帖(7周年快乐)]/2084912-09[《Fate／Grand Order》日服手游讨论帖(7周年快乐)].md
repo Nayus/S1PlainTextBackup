@@ -72,3 +72,18 @@
 这都过了4天了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">忙啊  豹豹寂寞了(
 
+
+*****
+
+####  都谷捻柏  
+##### 13049#       发表于 2024-7-17 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616433&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-7-17 19:39</a>
+
+利好中氪往上和老咸鱼
+
+要是全面铺开了某些微氪all in通解党得骂娘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">微氪无氪老咸鱼应该也无所谓，能打就打，不能打就开摆。
+
+一年抽不了几个新从者，资源需求小。
+

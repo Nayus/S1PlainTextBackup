@@ -14254,3 +14254,41 @@ bw结束了，该回来了</blockquote>
 
 接下來到earth的鬼圖MV有差不多3個星期啥都沒<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20497#       发表于 2024-7-17 11:26
+
+所以我选择自娱自乐写点同人小垃圾
+
+这样一来好像每天都沾了点鸡相关的新东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我们鸡推的前途真是一片黑暗啊
+
+*****
+
+####  skives  
+##### 20498#       发表于 2024-7-17 11:27
+
+什么时候鸡能有一个无敌的mv
+
+*****
+
+####  御幸一也  
+##### 20499#       发表于 2024-7-17 11:29
+
+啥都沒我快連初祥的小neta都腦不出來了<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+
+要不緊急放出訪談錘一下ave的作曲是祥子，我馬上開始腦詞曲組 雖然我已經默認初祥就是詞曲組了<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20500#       发表于 2024-7-17 11:33
+
+无敌的mv不就是13集那个ave mujica吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能算吗
+
+说起来祥子为什么没跟ykn和兰一样设定成包办词曲的人呢，而是在初华已经包办sumimi词曲的前提下还要写鸡的词
+

@@ -535,3 +535,35 @@ Ver.8.1.0更新内容
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4847#       发表于 2024-7-17 17:49
+
+他这选项只有意面，不得劲。选项是noodles的话我就选了
+
+<img src="https://img.saraba1st.com/forum/202407/17/174924ybvhialnczua1zvh.jpg" referrerpolicy="no-referrer">
+
+<strong>28rlhlsa6zwcszpjf7x6ieuce.jpg</strong> (320.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 17:49 上传
+
+*****
+
+####  罗克萨斯  
+##### 4848#       发表于 2024-7-17 17:53
+
+时间过得真快，喷三就这么谢幕了，也没说第二贴牌会不会有，往后就是怀旧服了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stoiorz  
+##### 4849#       发表于 2024-7-17 17:53
+
+保送曼曼一次胜利吗？会有几个霓虹金不选米饭哦。
+

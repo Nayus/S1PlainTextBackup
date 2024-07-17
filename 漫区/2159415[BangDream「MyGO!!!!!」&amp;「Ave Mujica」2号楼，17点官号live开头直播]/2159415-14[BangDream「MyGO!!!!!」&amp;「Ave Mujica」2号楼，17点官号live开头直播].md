@@ -14314,3 +14314,29 @@ bw结束了，该回来了</blockquote>
 
 ykn现在都把作词给lisa了，人家都说了自己写歌词也可以但就是要老婆来写，所以你可以理解成祥子要初华写歌词就是因为喜欢，或者其实这就是她们小时候的约定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20503#       发表于 2024-7-17 11:48
+
+仔细想一想的话，包办词曲的ykn和兰都是主唱，初华也是主唱也包办了词曲，但并不是自己乐队的词曲
+
+祥子的设定是什么都能做到的万能之人，却（暂时）只塑造了作曲的天赋
+
+两个角色都有一种微妙的冲突感
+
+（邦世界里好像大部分都是先有词再有曲，也就是说，初华你也好懂中二病啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  星天观测  
+##### 20504#       发表于 2024-7-17 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65611002&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-17 11:43</a>
+
+词曲分开更有利于塑造角色和卖cp（除了mygo这个作曲当挂件的失败例子）
+
+ykn现在都把作词给lisa了，人家都说 ...</blockquote>
+这个套路好是好但是现在ykls已经用过了，编剧能不能给初祥词曲组安排点新的好套路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

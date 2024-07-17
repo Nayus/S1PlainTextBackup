@@ -33,3 +33,13 @@ BW展位的六个coser都好可爱<img src="https://static.saraba1st.com/image/s
 月歌coser有指路吗</blockquote>
 小红书咪噜面面/抖音迷路面面，出片很少，而且小红书另一个号是美妆号，大概是随便找的搬砖的
 
+
+*****
+
+####  牙狼GARO  
+##### 1503#       发表于 2024-7-17 11:56
+
+公厕开了，抽卡教学的指定角色选哪个好一些，0氪蝗虫玩一段时间就丢了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

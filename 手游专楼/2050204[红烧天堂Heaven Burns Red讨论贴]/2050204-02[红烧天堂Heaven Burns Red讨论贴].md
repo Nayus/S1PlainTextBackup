@@ -51,3 +51,25 @@ BW展位的六个coser都好可爱<img src="https://static.saraba1st.com/image/s
 
 国服邀请互助有人填么：邀请码 jo9xldurawmbbv92
 
+
+*****
+
+####  英梨英梨梨  
+##### 1505#       发表于 2024-7-17 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65611143&amp;ptid=2050204" target="_blank">牙狼GARO 发表于 2024-7-17 11:56</a>
+
+公厕开了，抽卡教学的指定角色选哪个好一些，0氪蝗虫玩一段时间就丢了
+
+—— 来自 OnePlus LE2100, Android ...</blockquote>
+我看视频推荐国见玉
+
+*****
+
+####  英梨英梨梨  
+##### 1506#       发表于 2024-7-17 12:21
+
+cuj7h150i2vqt6vz
+
+输入好友邀请码~可以领1000钻~
+

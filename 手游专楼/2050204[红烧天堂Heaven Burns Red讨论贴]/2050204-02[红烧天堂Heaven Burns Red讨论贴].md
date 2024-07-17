@@ -385,3 +385,11 @@ wkf6lnkps2wknbst 已填</blockquote>
 xdsmjypwr01dv349 已填，感谢
 话说这游戏玩起来感觉有点卡卡的啊
 
+
+*****
+
+####  ardito  
+##### 1537#       发表于 2024-7-18 04:15
+
+卡就是原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

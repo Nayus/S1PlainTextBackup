@@ -1983,3 +1983,21 @@ s1私聊你了，最近我也就刷到过这位，不知道他有没有
 
 我开始好奇19号播啥了。
 
+
+*****
+
+####  十九号大侠  
+##### 16768#       发表于 2024-7-17 23:40
+
+19号过来宣布跟B站粉丝切割吧
+
+
+*****
+
+####  czhhws  
+##### 16769#       发表于 2024-7-17 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">唉，都六年了，本以为混成底边能没那么多事。
+
+—— 来自 realme RMX3700, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

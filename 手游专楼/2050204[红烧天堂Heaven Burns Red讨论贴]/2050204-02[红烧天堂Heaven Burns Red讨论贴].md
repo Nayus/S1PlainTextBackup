@@ -312,3 +312,13 @@ xo7fkizra4wyql2h</blockquote>
 xo7fkizra4wyql2h</blockquote>
 我填了楼上的<[img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zukunes  
+##### 1531#       发表于 2024-7-17 22:27
+
+y5mee8zewkt7vzgv 来来互填
+
+—— 来自 vivo V2301A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

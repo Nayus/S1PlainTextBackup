@@ -1177,3 +1177,30 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 
 配几把
 
+
+*****
+
+####  专业划水人员  
+##### 16688#       发表于 2024-7-17 20:17
+
+这事开始发bw视频那人不知道图啥。默认官组没了有那么难吗？
+
+*****
+
+####  古战场亡魂  
+##### 16689#       发表于 2024-7-17 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616715&amp;ptid=2018830" target="_blank">专业划水人员 发表于 2024-7-17 20:17</a>
+
+这事开始发bw视频那人不知道图啥。默认官组没了有那么难吗？</blockquote>
+那到不是，星力也太抽象了，bw消息不提前发和转发，当天发太抽象了，不过官组也没转发，私号也没发。双向奔赴。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leutnant某囧  
+##### 16690#       发表于 2024-7-17 20:25
+
+<blockquote>专业划水人员 发表于 2024-7-17 20:17
+这事开始发bw视频那人不知道图啥。默认官组没了有那么难吗？</blockquote>
+参加bw的v如果有摊位基本都是提前几天宣传的，星力被开了团才官号发条通知，现在看来确实mea就想如此，是粉丝僭越了
+

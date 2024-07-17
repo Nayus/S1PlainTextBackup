@@ -193,3 +193,21 @@ fu46e7q2liv4mhq2
 
 求个互助ykz4w9opukg5k2fn
 
+
+*****
+
+####  绯影汐岚  
+##### 1519#       发表于 2024-7-17 18:50
+
+楼上填了，snb6hz4rpzgib4f8来个互填
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  liu461  
+##### 1520#       发表于 2024-7-17 18:57
+
+已填楼上，互助iois0fj5cbp2p4g0 谢谢
+

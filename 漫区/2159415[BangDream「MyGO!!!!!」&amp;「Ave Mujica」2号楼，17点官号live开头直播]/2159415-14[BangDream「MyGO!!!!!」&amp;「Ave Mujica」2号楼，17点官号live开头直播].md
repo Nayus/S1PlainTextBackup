@@ -14446,3 +14446,21 @@ kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.s
 
 我姑且把这个设定当成初华在mujica篇里一条可能的成长线，从sumimi的糖水词到mujica 1st的中二世界观展示，再到symbol系列逐步把自己的感情（重力）通过歌词释放出来。
 
+
+*****
+
+####  御幸一也  
+##### 20514#       发表于 2024-7-17 18:50
+
+小姐姐你這樣會多很多夢女的 好帥啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/17/185032gjfhm0atbyqfu2w0.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240717-104931_1813526439280709779_photo.jpg</strong> (237.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 18:50 上传
+
+[https://x.com/AkaneY_banu/status/1813526439280709779](https://x.com/AkaneY_banu/status/1813526439280709779)
+

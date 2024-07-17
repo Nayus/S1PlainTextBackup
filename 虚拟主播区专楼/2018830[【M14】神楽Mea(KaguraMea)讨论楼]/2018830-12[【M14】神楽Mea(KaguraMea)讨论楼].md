@@ -1966,3 +1966,20 @@ s1私聊你了，最近我也就刷到过这位，不知道他有没有
 
 何が嘘で何が本当かなんて当人じゃないとわかんないのにね、ネット怖いわ<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ashero  
+##### 16766#       发表于 2024-7-17 23:32
+
+【【翻唱】アイドル(Idol)／YOASOBI【神楽めあ】】 [https://www.bilibili.com/video/B ... 86527b42f5ec3ffa9b6](https://www.bilibili.com/video/BV1v24y1T7e1/?share_source=copy_web&amp;vd_source=f783291f4748c86527b42f5ec3ffa9b6)
+
+来首应景的
+
+*****
+
+####  秋游刃  
+##### 16767#       发表于 2024-7-17 23:35
+
+我开始好奇19号播啥了。
+

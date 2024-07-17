@@ -700,3 +700,13 @@ EN,ID不也只能读个名字，真不熟
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  poipanchao  
+##### 488#       发表于 2024-7-17 22:16
+
+要较真的话，老板年和梨花太不会搞效果了
+
+有人没人没区别的，纯纯的举牌工具人
+

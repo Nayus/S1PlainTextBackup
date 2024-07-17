@@ -1728,3 +1728,50 @@ s1私聊你了，最近我也就刷到过这位，不知道他有没有
 
 这要是能把烟花放起来，我只能说恐怖如斯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 16744#       发表于 2024-7-17 22:17
+
+ 本帖最后由 fsfs_freeze 于 2024-7-17 22:18 编辑 
+
+那烧的不也挺顺利的吗，我看thh评论区里已经有几年前的味道了，说不定官组里的某人还觉得就该是这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  缺陷电气杨永信  
+##### 16745#       发表于 2024-7-17 22:17
+
+令人不禁深思你咩现在还能放得起来烟花吗
+
+
+*****
+
+####  路人庚  
+##### 16746#       发表于 2024-7-17 22:24
+
+几十个人的烟花也是烟花
+
+*****
+
+####  时间在我手中  
+##### 16747#       发表于 2024-7-17 22:25
+
+不懂就问，是街边嘘嘘的级别吗
+
+*****
+
+####  古战场亡魂  
+##### 16748#       发表于 2024-7-17 22:26
+
+<img src="https://img.saraba1st.com/forum/202407/17/222619rjergpyjnyxhg7xg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 22:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

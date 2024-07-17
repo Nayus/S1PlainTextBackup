@@ -14374,3 +14374,11 @@ ykn现在都把作词给lisa了，人家都说 ...</blockquote>
 
 ppp是ksm作词，otae作曲吧。hhw印象里是msk翻译kkr作词兼任作曲，m是真白作词唯唯作曲。
 
+
+*****
+
+####  星天观测  
+##### 20507#       发表于 2024-7-17 14:13
+
+hhw原来不是msk全包吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

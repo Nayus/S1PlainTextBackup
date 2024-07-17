@@ -14512,3 +14512,13 @@ kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.s
 
 灯和初华如果夢ノ結唱化的话，会叫什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20519#       发表于 2024-7-17 22:39
+
+初华或许会叫ava吧
+
+（或者直接ave倒过来）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

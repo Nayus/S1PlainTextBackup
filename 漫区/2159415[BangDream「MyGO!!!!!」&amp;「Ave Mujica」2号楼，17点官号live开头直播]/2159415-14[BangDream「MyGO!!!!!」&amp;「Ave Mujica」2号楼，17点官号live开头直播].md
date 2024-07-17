@@ -14366,3 +14366,11 @@ ykn现在都把作词给lisa了，人家都说 ...</blockquote>
 
 [https://x.com/AkaneY_banu/status/1813431721511313461](https://x.com/AkaneY_banu/status/1813431721511313461)
 
+
+*****
+
+####  rikaren  
+##### 20506#       发表于 2024-7-17 12:57
+
+ppp是ksm作词，otae作曲吧。hhw印象里是msk翻译kkr作词兼任作曲，m是真白作词唯唯作曲。
+

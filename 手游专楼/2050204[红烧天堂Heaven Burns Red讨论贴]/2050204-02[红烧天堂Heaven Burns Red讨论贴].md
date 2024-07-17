@@ -86,3 +86,14 @@ cuj7h150i2vqt6vz
 输入好友邀请码~可以领1000钻~</blockquote>
 填了好友邀请，能回填么，在上面
 
+
+*****
+
+####  夫诸过处  
+##### 1508#       发表于 2024-7-17 12:46
+
+eh12npn30vs0pilq
+好友码，感谢，楼上的已填
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

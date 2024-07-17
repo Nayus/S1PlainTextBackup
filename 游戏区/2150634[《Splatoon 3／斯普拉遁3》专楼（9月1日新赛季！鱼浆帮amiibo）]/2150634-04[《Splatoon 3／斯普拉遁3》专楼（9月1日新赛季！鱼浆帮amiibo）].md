@@ -433,3 +433,11 @@ FF自带主墨1.1了，感觉有戏<img src="https://static.saraba1st.com/image/
 
 能不能把4k长热电锯削一下然后强化下文森刮水刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 4838#       发表于 2024-7-17 13:42
+
+电锯香槟感觉削的差不多了，毕竟别人上手难度也高，强度高点能接受。长热这种是个人就能玩的，下次更新必须重锤出击
+

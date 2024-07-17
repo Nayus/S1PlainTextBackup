@@ -229,3 +229,13 @@ fu46e7q2liv4mhq2
 
 国产和国服代理手游这点真是太傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raimouse  
+##### 1523#       发表于 2024-7-17 19:34
+
+我就是因为强制实名不爱玩国产游戏
+
+而且也不方便刷初始号
+

@@ -605,3 +605,13 @@ Ver.8.1.0更新内容
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 4854#       发表于 2024-7-17 19:27
+
+Naegora最近直播几乎都是用贴牌轻加，还想看他现环境的贴牌鹦鹉螺和贴牌审查者用法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+轻加在中排里真没啥竞争力，射程被同组一大堆武器克制，射击时间也短，除了Naegora真没见其他上位势会把它当常用武器，感觉是喷4最有必要加强的武器之一
+

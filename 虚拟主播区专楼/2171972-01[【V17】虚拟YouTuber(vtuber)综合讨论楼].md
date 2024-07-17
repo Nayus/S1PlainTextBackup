@@ -635,3 +635,16 @@ syl,老叶纯纯数字厨，起手king+下巴</blockquote>
 
 syl，每年转盘环节抽到大家都不认识的KR liver的空气感<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  80proof  
+##### 482#       发表于 2024-7-17 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616192&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-7-17 19:07</a>
+
+我都要怀疑るり到底是有多漂亮了（），能引得黑黑+lize主动喂饭
+
+syl,老叶纯纯数字厨，起手king+下巴</blockquote>
+这位不是新一代兔头吗，老虹人的传承啊<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
+

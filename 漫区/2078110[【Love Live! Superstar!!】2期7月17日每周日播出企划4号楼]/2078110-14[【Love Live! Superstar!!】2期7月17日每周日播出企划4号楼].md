@@ -523,3 +523,17 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 2024-7-17 18:24 上传
 
+
+*****
+
+####  csolfans  
+##### 20565#       发表于 2024-7-18 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65603733&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-16 18:51</a>
+说不定真换人了，不然这么悠哉是无法理解的，太巨魔了。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next ...</blockquote>
+不可能的……他早说了一年四季都有工作
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

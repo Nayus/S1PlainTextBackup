@@ -743,3 +743,11 @@ EN,ID不也只能读个名字，真不熟
 
 梨花选的，除了熊猫人和第一次听说是早就认识的珊瑚以外，全是最近一起在小团体里玩得多的，倾向于服务自己原有的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 493#       发表于 2024-7-18 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我说蹭是说他们一开始起名和人选就明显有上次的对应校，结果每个人都一选对应校的人
+

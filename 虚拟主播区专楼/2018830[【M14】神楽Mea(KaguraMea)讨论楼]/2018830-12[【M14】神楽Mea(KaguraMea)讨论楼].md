@@ -2071,3 +2071,59 @@ thh切片下面什么风向我不好说
  ...</blockquote>
 就你是天狗？你跟星力的摆谱阿姨的架子如出一辙啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 16778#       发表于 2024-7-18 00:10
+
+ 本帖最后由 古战场亡魂 于 2024-7-18 00:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619283&amp;ptid=2018830" target="_blank">水映天 发表于 2024-7-18 00:06</a>
+
+就你是天狗？你跟星力的摆谱阿姨的架子如出一辙啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你个新号，4月28号重生的。今天为止从来没在楼里出现一次。
+
+你现在来一句就你是天狗还挺抽象的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+潜伏的挺好啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我都没扣你鹅，就简单调侃你一句。
+
+你不去和扣你鹅的对线，和我对线？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你是不是有什么大病啊。
+
+*****
+
+####  sino__unnko3  
+##### 16779#       发表于 2024-7-18 00:14
+
+以她的性格也许不会直接一刀两断，要直接一刀两断为何不现在就上号发声明销号？看推上乐一在解释，她最新这条又在打太极，么,人总是喜欢调和折中的（笑）
+
+真要切割完全可以把红线全踩一遍，再说说“乡村”的事。她今天不是也抱怨了言论那啥的事？
+
+今天这局面，很大程度上也是信息差造成的，主播和观众一样都会因为部分真相就红温了（笑）
+
+官组甚至后面的星力，这么多人就没一个人给主播准备个GPT翻译器吗？越信息差越梁木，我23年的时候也是如此，看着残缺不全的切片了解着部分的真相。
+
+后来拿GPT+whisper一看，好家伙，很多信息没有人切，譬如她2月初详细阐述的择偶观，2月底的人生价值观（lskh切了个两人摇床那一段，我暂且不表），4月中说的生命中总要尝试一下试试，都没看到有人切。某种程度上就内个新闻学上手。
+
+之后我就自己存档了，虽然不是录播，但尽量不遗漏。
+
+现在靠着插件跟主播经常能搭上话，这是以前不多的体验。
+
+你咩没有正向feedback,还莫名其妙摊上这么一摊破事，换我早爆了，盲僧不去中路你叫我去，来这个叫什么尊尼获加的，房管给你你说话来；
+
+你咩能一边忍受这边的傲慢一边等待时机，到今天时机终于到了，这就比我伟大太多
+
+
+*****
+
+####  sino__unnko3  
+##### 16780#       发表于 2024-7-18 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619262&amp;ptid=2018830" target="_blank">病態極端 发表于 2024-7-18 00:04</a>
+
+她罵指導廚但沒罵字幕組/國內運營，也沒有aoe全體觀眾，看來並沒有切割的意思啊。
+
+如果哪天切割了能不能細 ...</blockquote>
+discord升堂是？不过pari那边真搞起来怕不是又得上法院
+

@@ -14390,3 +14390,11 @@ hhw原来不是msk全包吗<img src="https://static.saraba1st.com/image/smiley/f
 
 具体来说是其他人负责提主题关键词和随机哼个片段，然后msk把这些片段整理成歌，实际上就是msk全包
 
+
+*****
+
+####  好想看Mujica啊  
+##### 20509#       发表于 2024-7-17 14:39
+
+kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

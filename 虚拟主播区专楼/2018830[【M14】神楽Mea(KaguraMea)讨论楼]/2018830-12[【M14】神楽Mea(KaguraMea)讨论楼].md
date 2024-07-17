@@ -1335,3 +1335,107 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 难怪要缩小镜头在镜头上，就是为了让人感觉她是喋喋不休的骂了4分钟。
 [https://www.bilibili.com/video/BV1Wy411B7Jw/](https://www.bilibili.com/video/BV1Wy411B7Jw/)
 
+
+*****
+
+####  时间在我手中  
+##### 16704#       发表于 2024-7-17 21:17
+
+你组人以前剪辑技术没见这么好只能说，谢谢jack你这B给人上的号
+
+或者也不管谁上的thh的账号，感谢你们这群B把我最后没打破的原则践踏成一个笑话<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+<strong>操**，傻逼东西，死人就自己埋上土，大半年不更新复活就和官组死妈废物联合，说你表子妈死了真是半句没说错，这么会剪没死的时候没见稳定产出，
+
+一到**妈六字母联动比狗还积极，永远都是这样的死妈东西，这就是神乐mea字幕组，不顺你们心了以前说的话全部当屁话
+
+</strong>
+
+*****
+
+####  时间在我手中  
+##### 16705#       发表于 2024-7-17 21:18
+
+ 本帖最后由 时间在我手中 于 2024-7-17 21:20 编辑 
+
+<strong>风怒1</strong>
+
+*****
+
+####  时间在我手中  
+##### 16706#       发表于 2024-7-17 21:18
+
+ 本帖最后由 时间在我手中 于 2024-7-17 21:20 编辑 
+
+<strong>风怒2</strong>
+
+*****
+
+####  时间在我手中  
+##### 16707#       发表于 2024-7-17 21:19
+
+ 本帖最后由 时间在我手中 于 2024-7-17 21:20 编辑 
+
+<strong>风怒3</strong>
+
+*****
+
+####  古战场亡魂  
+##### 16708#       发表于 2024-7-17 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16709#       发表于 2024-7-17 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617413&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-17 21:19</a>
+
+别风怒了</blockquote>
+卡了没辙，谢谢这群B<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 16710#       发表于 2024-7-17 21:20
+
+有啥好气的，自业自得
+
+
+*****
+
+####  古战场亡魂  
+##### 16711#       发表于 2024-7-17 21:24
+
+都半退坑的人，急啥眼啊。反正现在主播马上又要炎上了，星力反正之前现在也在骂。
+
+官组的sb也要骂，这样才平衡。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16712#       发表于 2024-7-17 21:25
+
+补充一句，被踢了也没见自己立个海盗组干点什么，说到底全世界人不都知道你组人连看直播的都没几个了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这会儿滚上来说一句新运营公司不上心早半年干什么去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不得不说幽默深刻，是我这种废物东西一辈子学不到的管人痴境界
+
+*****
+
+####  TiHaru  
+##### 16713#       发表于 2024-7-17 21:26
+
+简单来说就是thh和lskh这两个都只剪了念棉花糖，实际上前面很大一点全是在说某些人dc长文升堂她退群这件事还被爆出来到处宣传，平时嘴巴上说支持主播但是一有不合心意的地方就开始チクチク，这些内容是一个字都不会出现的，最后总会被解释成什么星力还是棉花糖的问题，我打这么多字说清楚了吗，别拿着那几个破b切片到处发了
+
+*****
+
+####  thisisaspider  
+##### 16714#       发表于 2024-7-17 21:27
+
+主播爆得好爽<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+可惜这种对主播精神力打击太大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

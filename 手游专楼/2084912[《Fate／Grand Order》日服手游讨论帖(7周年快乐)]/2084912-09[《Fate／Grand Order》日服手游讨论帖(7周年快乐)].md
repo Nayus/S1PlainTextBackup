@@ -50,3 +50,14 @@
 要是全面铺开了某些微氪all in通解党得骂娘</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">显然是在针对八撒卡
 
+
+*****
+
+####  森兰丸  
+##### 13047#       发表于 2024-7-17 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616485&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-17 19:48</a>
+
+不愧是豹豹 每次都来豹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都过了4天了
+

@@ -633,3 +633,13 @@ Naegora最近直播几乎都是用贴牌轻加，还想看他现环境的贴牌�
 
 但是不想再打了半天都是内战了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 4857#       发表于 2024-7-17 21:00
+
+我就等最终更新之后大润会不会常驻，或者金工规律性定期
+
+3个333金名牌现在完全看不到终点
+

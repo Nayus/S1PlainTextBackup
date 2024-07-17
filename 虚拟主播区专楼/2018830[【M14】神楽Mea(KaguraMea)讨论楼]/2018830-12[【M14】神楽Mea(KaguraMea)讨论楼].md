@@ -1310,3 +1310,28 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 
 还真的是字幕组的字体颜色。这种效率可真难得。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ashero  
+##### 16701#       发表于 2024-7-17 21:01
+
+根本没什么想不明白的 主播就是想窝在舒适圈 
+
+*****
+
+####  CAvongola  
+##### 16702#       发表于 2024-7-17 21:02
+
+以为现在还在看的都是经历过早期mea的，心态已经放平了，怎么2024了还有事业民教主播做事的
+
+*****
+
+####  古战场亡魂  
+##### 16703#       发表于 2024-7-17 21:05
+
+在凛上开花☆ako的视频那段看了，只能说官组的孙子真tm是个杂种，这么好的剪辑手段之前是一点不会用啊。
+
+难怪要缩小镜头在镜头上，就是为了让人感觉她是喋喋不休的骂了4分钟。
+[https://www.bilibili.com/video/BV1Wy411B7Jw/](https://www.bilibili.com/video/BV1Wy411B7Jw/)
+

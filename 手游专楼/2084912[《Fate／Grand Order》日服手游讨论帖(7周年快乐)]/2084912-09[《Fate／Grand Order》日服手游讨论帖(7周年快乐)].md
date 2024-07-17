@@ -27,3 +27,26 @@
 要是全面铺开了某些微氪all in通解党得骂娘
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13045#       发表于 2024-7-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65570146&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-7-13 05:00</a>
+
+大半夜迷迷糊糊的醒了.....打开游戏一看狂C呆卡池开了.....就仍了一张护符进去.....直接出彩圈....一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">不愧是豹豹 每次都来豹
+
+*****
+
+####  alucardcz  
+##### 13046#       发表于 2024-7-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616433&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-7-17 19:39</a>
+
+利好中氪往上和老咸鱼
+
+要是全面铺开了某些微氪all in通解党得骂娘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">显然是在针对八撒卡
+

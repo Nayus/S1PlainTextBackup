@@ -12728,3 +12728,286 @@ nj一个个在那“下一个削你推”，说得好像是多严重的事一样
 
 这么爱cuezng缟纻能不能让zng糙爽了再来逛侧索
 
+
+*****
+
+####  東雲絵名  
+##### 1129#         楼主| 发表于 2024-7-18 00:28
+
+做了一下宝宝的衣柜，做了至今为止所有卡面花前出现的常服，三周年和初中校服没有做因为我做完才想起来忘了，又懒得去再找素材了，宝宝好多衣服好少女好时尚，三周年后宝宝穿裤子特别是短裤的频率直线上升萌萌的，过两天找四格漫画做四格漫画里出现是
+
+顺带一提，棕色玫瑰印花外套的那张做错了，卡面有环境光影响判断了，四格漫画里这件是肉粉色玫瑰印花外衣+白色连帽衫
+
+<img src="https://img.saraba1st.com/forum/202407/18/002703messpzd1lfpvecbs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002710r41tfgyy2o1rfz21.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002715sazw8ccmd9v8emcw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002720gmtqz32p4bkz0v4b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002727xh377o3dr1ojoj5h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002733gkmqqass1akt4akz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002739n6uh93788gj8361h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002745dsni2s2oov9jtvk9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002751qk6ibg6ou6g5fl6f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002756swj7tnjw02e6wnj1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002802m55gao6pgz0o7z55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002807v2evvx9n39jzywss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002812gzlflil5vgbzbl04.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002817zddgdr1d2dd5izd1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002823wvenijvo9vjzvhv8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/002828vuqucz2cvu120un2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:28 上传
+
+*****
+
+####  東雲絵名  
+##### 1130#         楼主| 发表于 2024-7-18 00:29
+
+【】长得人山人海，服设也是一如既往的破衣褴褛到处开洞，肚子那块给我看笑了
+
+鬼啊
+
+【】偶像梦幻祭，忘川风华录！
+
+【】🌸🔥+停运
+
+【👻】经典女角色衣服买不起布料
+
+【】两条腿一长一短，服设更是幽默至极 ​​​
+
+仙舟女角色的服设真的普到了一种境界，虽然男角色也没好到哪去就是了
+
+高柱别说了待会就来脸萌溺爱了
+
+这就是米正统设计啊[允悲] 也别怪那么多人溺爱那个女将军了 真是没一个能拿出手的
+
+可以说一股子青楼女子味吗，明明分支是奶妈，但除了元素带有药草外，没半点医师味。如果人设就是**子风全当我没说
+
+*****
+
+####  東雲絵名  
+##### 1131#         楼主| 发表于 2024-7-18 00:30
+
+【妖女0】就应该倒贴大侠1啊，大侠跟旁人亲亲我我，自在逍遥，妖女0心如刀绞想沙小三还要对老公保持微笑，大侠1掌控妖女的身心玩弄丢弃，妖女0还继续跟踪生怕丈夫中埋伏，真的想看宠夫妖女美0[抱一抱] ​​​
+
+*****
+
+####  東雲絵名  
+##### 1132#         楼主| 发表于 2024-7-18 00:31
+
+<img src="https://img.saraba1st.com/forum/202407/18/003109jkmklsmzfw91nnzk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:31 上传
+
+*****
+
+####  東雲絵名  
+##### 1133#         楼主| 发表于 2024-7-18 00:31
+
+【眼距】打车要50 ​​​
+
+<img src="https://img.saraba1st.com/forum/202407/18/003121cl2wr4ndnrr9lrw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/003126jvv9vb73yvwwxbbs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 00:31 上传
+
+*****
+
+####  東雲絵名  
+##### 1134#         楼主| 发表于 2024-7-18 00:31
+
+【网易】我嘞个异域辣妈 女角色能丑成这样也是无敌了。这就是鸟解一直在吹的美工吗，定好痒超绝头身比，不懂就问手是嫁接上去的吗 ​​​
+
+
+*****
+
+####  東雲絵名  
+##### 1135#         楼主| 发表于 2024-7-18 00:32
+
+首先不是所有人都抽了水龙，其次损害玩家利益早就在它强度膨胀到把所有老c都淘汰时就已经损害了很大部分老角色厨的利益，抽了水龙的强度党或者水龙厨反馈是她们的事，但是这跟嘲nj双标，严以律他宽以待己，自推复刻池不许喊复刻，别人ep可以大胆维权没关系，嘲讽她们双标行为≠mxz，望周知
+
+又在偷换概念了，你想膨胀强度出多少数值机制爆炸的新卡都行，直接砍老角色就是发癫[微笑]这次修改伤害的是所有氪了金的玩家，你以为在ep维权全平台热搜狂骂的都是那解？大家都在骂米哈游你急着跳出来转移重点挑拨角色粉打架，你比米xz还纯啊
+
+*****
+
+####  東雲絵名  
+##### 1136#         楼主| 发表于 2024-7-18 00:32
+
+伞伞爱吃保保的橘瓣，保保爱甜伞伞的贝塔 ​​​
+
+*****
+
+####  東雲絵名  
+##### 1137#         楼主| 发表于 2024-7-18 00:33
+
+【世界是一个巨大的回旋镖】那解刚给付解甩了一记回旋镖转身就被回旋镖砸了[阴险][阴险] ​​​
+
+强度更迭和流水高低都属于游戏运营的正常范畴，厕所里吵来吵去对普通玩家根本没有影响，但需要花不菲价格去抽取的角色上线之后大半年再强行削弱导致货不对板，这不属于正常的运营行为，已经波及了大部分普通玩家，已经不是厕所pvp能够概括的了，这个道理希望高柱能懂，如果不懂那就再多读几年书
+
+*****
+
+####  東雲絵名  
+##### 1138#         楼主| 发表于 2024-7-18 00:33
+
+**嫩爆出来被肾遗物撕卡当天ch就砍了奶味烙铁一刀，想起之前主线结束以后改共治了，豹豹猫猫再一次同进同退，这算不算mhy用背刺那解来对奶粉解的道歉 ​​​
+
+*****
+
+####  東雲絵名  
+##### 1139#         楼主| 发表于 2024-7-18 00:35
+
+谁规定产品解必须喜欢纱巾了，莎解不磕还要管人家怎么磕真是闲得慌，产品解磕自己的又没惹你们都要被骂[汗] ​​​
+
+不喜欢砂就别自称产品姐，整这出对莎姐指指点点实在是幽幽又默默
+
+你第一句就爆典大妹子，产品姐不喜欢cp中的其中一方你当什么产品姐，直接说你是锁瓜嬷或者锁花公不好吗，你产有你这种人真是福报啊[爱你]
+
+知道莎托解都是拉瓜踩瓜的女嬷了
+
+但凡看个图也能发现被挂的是女嬤拉着砂和翡搞雌竞（？雄竞（？还要踩砂一脚啊，怎么又扣帽子了谁家砂姐嗑这种
+
+磕纱相关产品的产品解不喜欢纱巾是在？双推端水做不到的话跟钻裙底有啥区别[努力]出来让我咔
+
+我对甜品本人没意见也不关心女嬷的想法，但也不至于这么急着把💩盆子往砂姐身上扣吧？这条稿子之后几条就是粗箭头纱巾，难道砂姐喜欢自推舔别人的？再说就算有嗑沙陀但把甜品当皮套穿的这种好像也不叫砂姐吧？为了打砂姐把梦女也给塞进砂姐群体里了？[笑cry]
+
+wpg女嬷骂就骂了是谁心虚得对号入座啊[笑哈哈]莎姐都特么失心疯了为了磕cp踩莎捧相方是吧，扣帽子也不嫌可笑，跟lsl解一对b人长长久久吧
+
+plq沙陀解现身说法了 喜欢我磕沙陀但砂不发音吗[666]
+
+*****
+
+####  東雲絵名  
+##### 1140#         楼主| 发表于 2024-7-18 00:35
+
+【好笑】点击女网友ep评论区一键查询那解超绝素质[太阳][太阳][太阳]还要把辱骂女网友的开除那解，把不满的其他人都打成米孝子呀 ​​​
+
+*****
+
+####  東雲絵名  
+##### 1141#         楼主| 发表于 2024-7-18 00:35
+
+感觉每天随身携带一个喷壶时不时给肚脐那块布喷点水确保能严丝合缝精准贴紧肚脐眼
+

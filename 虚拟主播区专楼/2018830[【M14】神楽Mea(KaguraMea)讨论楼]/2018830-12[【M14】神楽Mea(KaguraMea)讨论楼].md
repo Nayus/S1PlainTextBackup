@@ -2163,3 +2163,57 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 听说推特被车到200万查看了，真是盛况啊，可惜了我梯子炸了。不知道是不是这群孙子把节点全占了。
 
+
+*****
+
+####  ShyCrazydog  
+##### 16785#       发表于 2024-7-18 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619513&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 00:28</a>
+听说推特被车到200万查看了，真是盛况啊，可惜了我梯子炸了。不知道是不是这群孙子把节点全占了。 ...</blockquote>
+说真的有些人想炎上不是，回复里突然冒出一堆印度人在刷屏，好迷惑……
+
+*****
+
+####  时间在我手中  
+##### 16786#       发表于 2024-7-18 00:32
+
+马斯克的大手罢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 16787#       发表于 2024-7-18 00:32
+
+才发现苔的那个台加了一个かにかま，天天对vtb发情的，也画过主播的r18，还经常被v用作封面（非r18的画）
+
+
+*****
+
+####  古战场亡魂  
+##### 16788#       发表于 2024-7-18 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619557&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 00:32</a>
+
+才发现苔的那个台加了一个かにかま，天天对vtb发情的，也画过主播的r18，还经常被v用作封面（非r18的画） ...</blockquote>
+介绍成人漫画的联动，加个画黄图的咋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河西大道左  
+##### 16789#       发表于 2024-7-18 00:34
+
+唉我怎么记得好像之前也出过这事（指退群
+
+*****
+
+####  病態極端  
+##### 16790#       发表于 2024-7-18 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619539&amp;ptid=2018830" target="_blank">ShyCrazydog 发表于 2024-7-18 00:31</a>
+
+说真的有些人想炎上不是，回复里突然冒出一堆印度人在刷屏，好迷惑…… ...</blockquote>
+都是bot。
+
+現在任何有點熱度的推文下面都有一群發純emoji或複製別人推文的bot。
+

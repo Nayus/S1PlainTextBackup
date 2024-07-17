@@ -174,3 +174,14 @@ fu46e7q2liv4mhq2
 
 画的挺好看的，但是这个战斗和演出真的是，做成纸片人感觉观感能好一大截。另外，为什么8g3玩这游戏都卡卡的啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  柏木巡音  
+##### 1517#       发表于 2024-7-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65614990&amp;ptid=2050204" target="_blank">qxs 发表于 2024-7-17 17:20</a>
+
+画的挺好看的，但是这个战斗和演出真的是，做成纸片人感觉观感能好一大截。另外，为什么8g3玩这游戏都卡卡 ...</blockquote>
+草，我也是卡卡的
+

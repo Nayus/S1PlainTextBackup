@@ -14431,3 +14431,18 @@ kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.s
 
  https://b23.tv/9HwiNzI
 
+
+*****
+
+####  前方暴雨预警  
+##### 20513#       发表于 2024-7-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65610884&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-17 11:33</a>
+
+无敌的mv不就是13集那个ave mujica吗能算吗
+
+说起来祥子为什么没跟ykn和兰一样设定成包办词曲的人呢，而是 ...</blockquote>
+为了展示初华会读心<img src="https://static.saraba1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">（不是）
+
+我姑且把这个设定当成初华在mujica篇里一条可能的成长线，从sumimi的糖水词到mujica 1st的中二世界观展示，再到symbol系列逐步把自己的感情（重力）通过歌词释放出来。
+

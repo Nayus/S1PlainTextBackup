@@ -575,3 +575,13 @@ Ver.8.1.0更新内容
 
 他配图是拉面的话估计也有霓虹金选，但配的是意面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DeltaStriker  
+##### 4851#       发表于 2024-7-17 18:26
+
+还用证明吗 玩了两年都有数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9010, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

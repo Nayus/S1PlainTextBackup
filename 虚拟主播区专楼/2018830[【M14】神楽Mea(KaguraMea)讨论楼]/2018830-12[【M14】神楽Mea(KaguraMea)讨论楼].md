@@ -1561,3 +1561,50 @@ b站现在对神乐mea的认知就是靠翻译释经的，早tm就和油罐那�
 
 反正追咩的时候总体还是快乐的，以后就x有事没事看下完事了，祝她幸福
 
+
+*****
+
+####  fsfs_freeze  
+##### 16727#       发表于 2024-7-17 21:50
+
+ 本帖最后由 fsfs_freeze 于 2024-7-17 21:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617206&amp;ptid=2018830" target="_blank">CAvongola 发表于 2024-7-17 21:02</a>
+
+以为现在还在看的都是经历过早期mea的，心态已经放平了，怎么2024了还有事业民教主播做事的 ...</blockquote>
+那不就是摆明了有杂种想借着你麻来带节奏呗，不知道又是哪里的阴湿群想上位之心不死，借着这批事搞死星力自己上位呗，就是不知道跟官组有多大关系，说不定就是官组里哪个念念不忘的人呢<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16728#       发表于 2024-7-17 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617766&amp;ptid=2018830" target="_blank">fsfs_freeze 发表于 2024-7-17 21:50</a>
+
+那不会摆明了有杂种想借着你麻来带节奏呗，不知道又是哪里的阴湿群想上位之心不死，借着这批事搞死星力自 ...</blockquote>
+冷知识，同好会的视频字幕样式就是他组的样式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我谢谢他全家人了，剪辑的可太好了
+
+*****
+
+####  Mr.Sakura  
+##### 16729#       发表于 2024-7-17 21:52
+
+有一说一，24年了还听不懂日语靠字幕组翻译的，到底是主播粉还是字幕组粉我有点不好说
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  TiHaru  
+##### 16730#       发表于 2024-7-17 21:53
+
+觉得切的是真的你就去信啊，翻译爹怎么会剪掉对自己不利的部分呢，主播肯定和翻译爹一条心的
+
+*****
+
+####  ShyCrazydog  
+##### 16731#       发表于 2024-7-17 21:54
+
+本来打算一直装死的，但还是被一些人的阴湿搞的想笑。lskh之前那个问发生了什么的动态下面有自称是mea组的让他看私信，结合目前b站上连生肉都没人传但熟肉切片已经有两个相同部分的了不由得怀疑片源是不是同一个。如果是的话，主动提供片源，想让更多人知道这事倒是没什么，但看前面几楼的说法，批判dc升堂的部分被剪去了这是为什么呢？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

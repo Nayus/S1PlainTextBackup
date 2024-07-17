@@ -14292,3 +14292,25 @@ bw结束了，该回来了</blockquote>
 
 说起来祥子为什么没跟ykn和兰一样设定成包办词曲的人呢，而是在初华已经包办sumimi词曲的前提下还要写鸡的词
 
+
+*****
+
+####  御幸一也  
+##### 20501#       发表于 2024-7-17 11:39
+
+當然是為了ave動畫的詞曲組互動，所以先埋下初華寫詞的伏筆<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+你看裡面的人都在 “想在你身邊彈琴” “想在你身邊唱歌” 這麼肉麻了，角色的互動可不能輸<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20502#       发表于 2024-7-17 11:43
+
+ 本帖最后由 NODY 于 2024-7-17 11:44 编辑 
+
+词曲分开更有利于塑造角色和卖cp（除了mygo这个作曲当挂件的失败例子）
+
+ykn现在都把作词给lisa了，人家都说了自己写歌词也可以但就是要老婆来写，所以你可以理解成祥子要初华写歌词就是因为喜欢，或者其实这就是她们小时候的约定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

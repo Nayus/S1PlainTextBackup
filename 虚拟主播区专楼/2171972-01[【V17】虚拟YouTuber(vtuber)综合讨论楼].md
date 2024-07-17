@@ -751,3 +751,11 @@ EN,ID不也只能读个名字，真不熟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我说蹭是说他们一开始起名和人选就明显有上次的对应校，结果每个人都一选对应校的人
 
+
+*****
+
+####  Harunoharu  
+##### 494#       发表于 2024-7-18 00:59
+
+啥玩意看不懂，按照这个说法那ebo不应该直接一指纽伊，而且除了芙莲因为和ib同期所以同为帝国立之外还有谁校名取的和去年相呼应的
+

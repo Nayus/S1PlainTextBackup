@@ -14464,3 +14464,19 @@ kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.s
 
 [https://x.com/AkaneY_banu/status/1813526439280709779](https://x.com/AkaneY_banu/status/1813526439280709779)
 
+
+*****
+
+####  6030sylar  
+##### 20515#       发表于 2024-7-17 20:32
+
+<img src="https://img.saraba1st.com/forum/202407/17/203242v9gjxk2zxm9gjxgz.png" referrerpolicy="no-referrer">
+
+<strong>FL~E8){KKXA[2QE}8C6RV_A.png</strong> (78.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 20:32 上传
+
+命运啊（
+

@@ -1204,3 +1204,37 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 这事开始发bw视频那人不知道图啥。默认官组没了有那么难吗？</blockquote>
 参加bw的v如果有摊位基本都是提前几天宣传的，星力被开了团才官号发条通知，现在看来确实mea就想如此，是粉丝僭越了
 
+
+*****
+
+####  十九号大侠  
+##### 16691#       发表于 2024-7-17 20:29
+
+她现在就是不想要老钟粉丝
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂|-2|你滑坡的过头了|
+
+查看全部评分
+
+*****
+
+####  古战场亡魂  
+##### 16692#       发表于 2024-7-17 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616791&amp;ptid=2018830" target="_blank">Leutnant某囧 发表于 2024-7-17 20:25</a>
+
+参加bw的v如果有摊位基本都是提前几天宣传的，星力被开了团才官号发条通知，现在看来确实mea就想如此，是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别瞎几把扯行吗，再怎么想也不可能bw不宣传，就是星力抽象了。你这思路滑坡的也太厉害了。
+
+你不如说星力油罐转播延时和以前官组延时油罐转播都是mea指示的得了。
+

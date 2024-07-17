@@ -610,3 +610,11 @@ vspo en之前看和虹en这种被鬼佬gank的一个水平，不知道过一段�
 
 栞叶居然被叶选走了，好嫌榜和棉花糖又要被狂暴鸿儒了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 480#       发表于 2024-7-17 19:07
+
+我都要怀疑るり到底是有多漂亮了（），能引得黑黑+lize主动喂饭
+

@@ -537,3 +537,53 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ruffian  
+##### 20566#       发表于 2024-7-17 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65609130&amp;ptid=2078110" target="_blank">lj205 发表于 2024-07-17 09:17:29</a>
+考虑中午去吃个烤牛舌去庆祝一下
+
+话说鱼怎么各种被猫嫌弃，果然阶级不可逾越啊，说起来鱼这个撸猫的手势感 ...</blockquote>鱼是狗派，之前外景她见了狗跟对猫的兴致完全不一样，有次咧垃圾也说过对猫就是简单的卡哇伊没了，估计平时不会主动接触猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  离心  
+##### 20567#       发表于 2024-7-17 18:24
+
+难得的五立德图
+
+<img src="https://img.saraba1st.com/forum/202407/17/182455woq939x9533q7u3y.jpg" referrerpolicy="no-referrer">
+
+<strong>-19243543291721211825999.jpg</strong> (139.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 18:24 上传
+
+*****
+
+####  csolfans  
+##### 20568#       发表于 2024-7-18 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65603733&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-16 18:51</a>
+说不定真换人了，不然这么悠哉是无法理解的，太巨魔了。
+
+—— 来自 OPPO PHN110, Android 14上的 S1Next ...</blockquote>
+不可能的……他早说了一年四季都有工作
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 20569#       发表于 2024-7-18 07:43
+
+你拉官方终于懂得怎么避免ahochika及其变种了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

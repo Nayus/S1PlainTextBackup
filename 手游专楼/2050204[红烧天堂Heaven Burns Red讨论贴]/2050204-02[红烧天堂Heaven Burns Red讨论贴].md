@@ -166,3 +166,11 @@ fu46e7q2liv4mhq2
 
 不管什么游戏必得果然都是傻必<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qxs  
+##### 1516#       发表于 2024-7-17 17:20
+
+画的挺好看的，但是这个战斗和演出真的是，做成纸片人感觉观感能好一大截。另外，为什么8g3玩这游戏都卡卡的啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

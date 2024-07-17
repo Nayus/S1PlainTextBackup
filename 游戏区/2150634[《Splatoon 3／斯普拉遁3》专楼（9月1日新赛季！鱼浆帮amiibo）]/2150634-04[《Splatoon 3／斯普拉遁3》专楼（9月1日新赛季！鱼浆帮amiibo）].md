@@ -483,3 +483,36 @@ Ver.8.1.0更新内容
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  墨染白泉  
+##### 4842#       发表于 2024-7-17 17:20
+
+又祭典了，看来最终祭典得9月
+
+*****
+
+####  shirolin  
+##### 4843#       发表于 2024-7-17 17:20
+
+<img src="https://img.saraba1st.com/forum/202407/17/172013q2ya6xb2ryjjp656.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>f32927b8c2f6a8b5e3924ab5c5d02e7e.webp</strong> (149.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 17:20 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  oi99o  
+##### 4844#       发表于 2024-7-17 17:22
+
+好无聊的题目啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

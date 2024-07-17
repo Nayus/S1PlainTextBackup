@@ -648,3 +648,15 @@ syl，每年转盘环节抽到大家都不认识的KR liver的空气感<img src=
 syl,老叶纯纯数字厨，起手king+下巴</blockquote>
 这位不是新一代兔头吗，老虹人的传承啊<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poipanchao  
+##### 483#       发表于 2024-7-17 19:37
+
+雷娘被凑齐了，黑幕（）
+
+EN,ID不也只能读个名字，真不熟
+
+相比之下KR有几个勉强还能讲点印象，不错了
+

@@ -14406,3 +14406,18 @@ kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.s
 
 明天就是周四了，最近邦好像也没什么活，我要奶一口下周邦tv是蜜柑凛+2鸡（为了照顾气氛或许会是高尾米泽？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  novalli  
+##### 20511#       发表于 2024-7-17 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65610884&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-17 11:33</a>
+无敌的mv不就是13集那个ave mujica吗能算吗
+
+说起来祥子为什么没跟ykn和兰一样设定成包办词曲的人呢，而是 ...</blockquote>
+讲道理我mujika瘾犯的时候还真是去看那一段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+后面的静止系MV欣赏不来，如果是ilem那种创意型的也好点。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

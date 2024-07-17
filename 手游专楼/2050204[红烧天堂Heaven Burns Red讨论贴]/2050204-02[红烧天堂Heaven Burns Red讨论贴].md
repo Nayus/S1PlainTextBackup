@@ -106,3 +106,14 @@ eh12npn30vs0pilq
 z6w71g7fvbsx4px2
 还没有填好友码，互助的话麻烦回复我一下～
 
+
+*****
+
+####  牙狼GARO  
+##### 1510#       发表于 2024-7-17 13:15
+
+g2g3l1ynqbz8r8jm
+我也来求个互助<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

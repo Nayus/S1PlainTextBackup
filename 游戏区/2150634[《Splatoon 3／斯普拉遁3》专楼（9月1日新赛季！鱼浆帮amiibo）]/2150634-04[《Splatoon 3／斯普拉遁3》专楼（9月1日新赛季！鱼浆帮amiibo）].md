@@ -449,3 +449,11 @@ FF自带主墨1.1了，感觉有戏<img src="https://static.saraba1st.com/image/
 
 FF问题不在省墨上啊，顺便金银喷加强什么鬼，比碳刷系强化还要粪<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stoiorz  
+##### 4840#       发表于 2024-7-17 14:05
+
+99精英枪，延迟高的时候中远程武器还能挽救一下，常用精英枪感觉还不错。
+

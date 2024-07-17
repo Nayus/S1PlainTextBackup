@@ -1846,3 +1846,65 @@ s1私聊你了，最近我也就刷到过这位，不知道他有没有
 
 查看全部评分
 
+
+*****
+
+####  时间在我手中  
+##### 16756#       发表于 2024-7-17 22:56
+
+怎么你妈棉花糖还是个以前森永组那边的人投的
+
+还是个倪哥谭发过雄文职责千草组摆烂的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png">
+
+据闻后面加入庄司组了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+难不成是那批迫真被老登恶心到退组的那批人不成<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+老子看不懂，但我大受震撼
+
+*****
+
+####  时间在我手中  
+##### 16757#       发表于 2024-7-17 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618540&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-17 22:52</a>
+
+没录屏，录了音，但阿里云盘分享数量有限制，失效了叫我补下档 https://www.alipan.com/t/CEJiKeymzcO8iruF ...</blockquote>
+失效了，能麻烦再传一次不
+
+*****
+
+####  缺陷电气杨永信  
+##### 16758#       发表于 2024-7-17 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618365&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-17 22:37</a>
+
+看了眼聊天记录。大哥，你看的国v从今年一月到现在就更新两个视频。你就别心疼我们了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别带筝筝节奏啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光看发言记录的话他屁股不应该是lds吗
+
+
+*****
+
+####  sino__unnko3  
+##### 16759#       发表于 2024-7-17 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618540&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-17 22:52</a>
+
+没录屏，录了音，但阿里云盘分享数量有限制，失效了叫我补下档 https://www.alipan.com/t/CEJiKeymzcO8iruF ...</blockquote>
+补档[https://www.alipan.com/t/TQ8dEuNXWbB3WFtvNXVJ](https://www.alipan.com/t/TQ8dEuNXWbB3WFtvNXVJ)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 秋游刃| + 1|又没了|
+
+查看全部评分
+

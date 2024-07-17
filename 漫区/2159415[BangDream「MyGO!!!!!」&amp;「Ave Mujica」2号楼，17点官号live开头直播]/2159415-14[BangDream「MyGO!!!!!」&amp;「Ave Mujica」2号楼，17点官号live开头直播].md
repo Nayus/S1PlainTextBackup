@@ -14237,3 +14237,20 @@ bw结束了，该回来了</blockquote>
 
 突然想到你鸡生日全在上半年，以后团推氪生日卡好像有点内个啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20495#       发表于 2024-7-17 11:18
+
+不操心這麼遠的事，畢竟睦祥生日的官方慶祝要2026年才有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+在這之前說不定已經被武士道噁心到跑路了
+
+
+*****
+
+####  御幸一也  
+##### 20496#       发表于 2024-7-17 11:23
+
+接下來到earth的鬼圖MV有差不多3個星期啥都沒<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

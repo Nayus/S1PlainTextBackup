@@ -129,3 +129,16 @@
 
 可惜不能像其他高贵属性那样全程fa，开局和75%要手点嘲讽送人，硬吃3蓝还要手点驱散，终盘修车还要时不时开蹲，确实是最粪觉醒本了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 17992#       发表于 2024-7-17 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65608156&amp;ptid=1158205" target="_blank">PigMourne 发表于 2024-7-17 03:01</a>
+
+现在车速跑飞哥还是挺简单的，农两个星醒配老必爆盘，插龙武和防御老7斧补点血防就能乱杀。
+
+可惜不能像其他 ...</blockquote>
+太吃角色了，坏兽没COS没HLS都没飞哥没紫苑那么难受
+

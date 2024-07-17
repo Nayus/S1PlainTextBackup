@@ -421,3 +421,53 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  lj205  
+##### 20555#       发表于 2024-7-16 23:23
+
+可可终于回家过生日了🥺
+
+*****
+
+####  csolfans  
+##### 20556#       发表于 2024-7-17 00:05
+
+可可生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 20557#       发表于 2024-7-17 00:54
+
+可可生日快乐么么哒
+
+最后一张这模糊运镜，不会是鱼前置摄像头自拍吧
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 20558#       发表于 2024-7-17 08:10
+
+草
+
+<img src="https://img.saraba1st.com/forum/202407/17/081039axxgzbjfjy4jjyuu.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240717-080839.png</strong> (413.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 08:10 上传
+
+*****
+
+####  ads147147  
+##### 20559#       发表于 2024-7-17 08:14
+
+牛舌梗现在都没过时啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

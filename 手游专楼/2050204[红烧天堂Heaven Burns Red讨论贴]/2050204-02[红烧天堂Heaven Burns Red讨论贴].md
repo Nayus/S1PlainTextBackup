@@ -97,3 +97,12 @@ eh12npn30vs0pilq
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aoye  
+##### 1509#       发表于 2024-7-17 13:08
+
+z6w71g7fvbsx4px2
+还没有填好友码，互助的话麻烦回复我一下～
+

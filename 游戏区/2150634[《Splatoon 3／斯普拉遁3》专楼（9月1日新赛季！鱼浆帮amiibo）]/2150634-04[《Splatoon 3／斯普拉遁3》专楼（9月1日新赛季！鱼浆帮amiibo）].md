@@ -567,3 +567,11 @@ Ver.8.1.0更新内容
 
 保送曼曼一次胜利吗？会有几个霓虹金不选米饭哦。
 
+
+*****
+
+####  墨染白泉  
+##### 4850#       发表于 2024-7-17 17:58
+
+他配图是拉面的话估计也有霓虹金选，但配的是意面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

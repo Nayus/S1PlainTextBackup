@@ -1439,3 +1439,125 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 
 可惜这种对主播精神力打击太大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 16715#       发表于 2024-7-17 21:28
+
+整件事情越想越诡异，不会是有人想借你麻把星力干死吧<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 16716#       发表于 2024-7-17 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617496&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-17 21:26</a>
+
+简单来说就是thh和lskh这两个都只剪了念棉花糖，实际上前面很大一点全是在说某些人dc长文升堂她退群这件事 ...</blockquote>
+需要一个档 
+
+*****
+
+####  古战场亡魂  
+##### 16717#       发表于 2024-7-17 21:29
+
+ 本帖最后由 古战场亡魂 于 2024-7-17 21:31 编辑 
+
+风怒……………………………………………………
+
+*****
+
+####  古战场亡魂  
+##### 16718#       发表于 2024-7-17 21:30
+
+ 本帖最后由 古战场亡魂 于 2024-7-17 21:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617496&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-17 21:26</a>
+
+简单来说就是thh和lskh这两个都只剪了念棉花糖，实际上前面很大一点全是在说某些人dc长文升堂她退群这件事 ...</blockquote>
+那你剪啊，机翻也行啊。
+
+b站现在对神乐mea的认知就是靠翻译释经的，早tm就和油罐那个差了十万八千里了。
+
+你光说也没用啊。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16719#       发表于 2024-7-17 21:30
+
+来个录播<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就你会剪
+
+*****
+
+####  十九号大侠  
+##### 16720#       发表于 2024-7-17 21:30
+
+索性就退出b站，吊人b站确实是有粉丝的，做个告别直播就行了
+
+
+*****
+
+####  时间在我手中  
+##### 16721#       发表于 2024-7-17 21:31
+
+早该告别了，爱看去追，不爱看就告别得了，反正一个个他组死了如丧考妣一样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 16722#       发表于 2024-7-17 21:31
+
+我又没录 我剪什么
+
+*****
+
+####  掉头学姐  
+##### 16723#       发表于 2024-7-17 21:31
+
+有啥用，她自己b先推了多少次了自己的态度摆在那。
+现在这个市场多卷了，每天因为几个跳脸粉丝就惩罚所有人，拜托已经不是以前了好吗
+
+
+*****
+
+####  古战场亡魂  
+##### 16724#       发表于 2024-7-17 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617581&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-17 21:31</a>
+
+我又没录 我剪什么</blockquote>
+就是这个道理啊，你连个生肉都没有，你说什么都行啊。
+
+你和楼里说说大家可能会信你，但是就这和死了区别也没多大的楼能有啥作用呢。
+
+*****
+
+####  时间在我手中  
+##### 16725#       发表于 2024-7-17 21:33
+
+反正那也还是那句话，爱看的就看，不看的自己消失，有什么好多说的
+
+这种事还要重复几十次才是真的令人厌烦，主播就这尿性了
+
+哦，观众也差不多就是了，我也是，像个没死透的怨妇一样，晦气
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 掉头学姐| + 1||
+
+查看全部评分
+
+*****
+
+####  掉头学姐  
+##### 16726#       发表于 2024-7-17 21:35
+
+反正追咩的时候总体还是快乐的，以后就x有事没事看下完事了，祝她幸福
+

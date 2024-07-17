@@ -2233,3 +2233,20 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 录音跟之前传文件的仅有音量与结尾去除无声片段的区别，无其他区别
 
+
+*****
+
+####  水映天  
+##### 16792#       发表于 2024-7-18 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619318&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 00:10</a>
+
+你个新号，4月28号重生的。今天为止从来没在楼里出现一次。
+
+你现在来一句就你是天狗还挺抽象的。
+
+潜伏的挺 ...</blockquote>
+太久没来咩楼，今天莫名热闹进来看看，读空气的能力也忘了不少，但泥潭管人区都停滞多久了，还能有新人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，节奏不少，楼友们的热情一如当年，希望你们的热情能支撑她继续走下去吧
+
+上个号jz进去了，现在也就摸鱼时看看外野，地藏去咯
+

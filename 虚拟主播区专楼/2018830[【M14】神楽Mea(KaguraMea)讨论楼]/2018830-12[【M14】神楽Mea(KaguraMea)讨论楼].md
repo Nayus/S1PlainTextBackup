@@ -1148,3 +1148,32 @@ twitch同接580了，平时两三百的。
 
 想法本来就没必要一样，以后她难过的时候别踩一脚就好
 
+
+*****
+
+####  古战场亡魂  
+##### 16686#       发表于 2024-7-17 19:58
+
+隐退个锤子，明天还要联动的。干了这么多年管人了，一个月前才换了萌萌新3d，twitch联动直播也有起色了。
+
+再说隐退了干嘛去，去当收营员吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/17/195458u1gjsdej7zvevv5b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 19:54 上传
+
+*****
+
+####  时间在我手中  
+##### 16687#       发表于 2024-7-17 20:04
+
+nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+我大概不是这世界最爱主播的人没错，也没什么资格可言，只不过你组人现在配钥匙吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+配几把
+

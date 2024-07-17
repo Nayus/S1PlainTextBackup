@@ -14229,3 +14229,11 @@ bw结束了，该回来了</blockquote>
 
 [https://x.com/Sakuma07071/status/1813260703056470508](https://x.com/Sakuma07071/status/1813260703056470508)
 
+
+*****
+
+####  星天观测  
+##### 20494#       发表于 2024-7-17 10:25
+
+突然想到你鸡生日全在上半年，以后团推氪生日卡好像有点内个啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

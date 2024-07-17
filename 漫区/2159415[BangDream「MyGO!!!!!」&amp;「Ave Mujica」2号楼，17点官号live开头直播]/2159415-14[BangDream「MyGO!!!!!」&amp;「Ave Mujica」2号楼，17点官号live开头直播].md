@@ -14382,3 +14382,11 @@ ppp是ksm作词，otae作曲吧。hhw印象里是msk翻译kkr作词兼任作曲�
 
 hhw原来不是msk全包吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20508#       发表于 2024-7-17 14:20
+
+具体来说是其他人负责提主题关键词和随机哼个片段，然后msk把这些片段整理成歌，实际上就是msk全包
+

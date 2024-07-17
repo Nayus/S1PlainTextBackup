@@ -441,3 +441,11 @@ FF自带主墨1.1了，感觉有戏<img src="https://static.saraba1st.com/image/
 
 电锯香槟感觉削的差不多了，毕竟别人上手难度也高，强度高点能接受。长热这种是个人就能玩的，下次更新必须重锤出击
 
+
+*****
+
+####  darkddragon  
+##### 4839#       发表于 2024-7-17 13:52
+
+FF问题不在省墨上啊，顺便金银喷加强什么鬼，比碳刷系强化还要粪<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -14340,3 +14340,29 @@ ykn现在都把作词给lisa了，人家都说了自己写歌词也可以但就�
 ykn现在都把作词给lisa了，人家都说 ...</blockquote>
 这个套路好是好但是现在ykls已经用过了，编剧能不能给初祥词曲组安排点新的好套路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20505#       发表于 2024-7-17 12:34
+
+小姐姐太帥了啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/17/123414h8d44rc4k8yvnfed.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240717-043308_1813431721511313461_photo-0.jpg</strong> (469.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202407/17/123424fszjjbw0jx3jii2m.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240717-043308_1813431721511313461_photo-1.jpg</strong> (470.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 12:34 上传
+
+[https://x.com/AkaneY_banu/status/1813431721511313461](https://x.com/AkaneY_banu/status/1813431721511313461)
+

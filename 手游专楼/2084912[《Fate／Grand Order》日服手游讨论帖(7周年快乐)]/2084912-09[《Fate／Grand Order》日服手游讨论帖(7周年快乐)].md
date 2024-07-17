@@ -87,3 +87,13 @@
 
 一年抽不了几个新从者，资源需求小。
 
+
+*****
+
+####  森兰丸  
+##### 13050#       发表于 2024-7-17 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞哥快乐本
+
+然而要3T还是太浪费时间....继续回去找手办玩耍去
+

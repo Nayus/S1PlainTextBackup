@@ -333,3 +333,17 @@ qa1udddlj38dbt4q  
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  游蜓  
+##### 1533#       发表于 2024-7-17 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618264&amp;ptid=2050204" target="_blank">zukunes 发表于 2024-7-17 22:27</a>
+y5mee8zewkt7vzgv 来来互填
+
+—— 来自 vivo V2301A, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+已填，27t0lbgw3tkwqecv，感谢
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

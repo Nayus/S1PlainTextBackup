@@ -1824,3 +1824,25 @@ s1私聊你了，最近我也就刷到过这位，不知道他有没有
 这炎上视频一出突然有种你麻又成了日v顶流的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 哦现在在b站的日v本就没多少，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 16755#       发表于 2024-7-17 22:52
+
+没录屏，录了音，但阿里云盘分享数量有限制，失效了叫我补下档 [https://www.alipan.com/t/CEJiKeymzcO8iruFomuY](https://www.alipan.com/t/CEJiKeymzcO8iruFomuY)
+
+可whisper跑个笔记整理
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+查看全部评分
+

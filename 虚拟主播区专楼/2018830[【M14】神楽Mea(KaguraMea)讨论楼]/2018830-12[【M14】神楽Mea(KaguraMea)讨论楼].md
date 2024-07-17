@@ -2297,3 +2297,13 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 害，睡觉，和人聊了一下，这破事我已经想好了，byd<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cushaw  
+##### 16798#       发表于 2024-7-18 03:46
+
+主播登太行山去了，17号之前没我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

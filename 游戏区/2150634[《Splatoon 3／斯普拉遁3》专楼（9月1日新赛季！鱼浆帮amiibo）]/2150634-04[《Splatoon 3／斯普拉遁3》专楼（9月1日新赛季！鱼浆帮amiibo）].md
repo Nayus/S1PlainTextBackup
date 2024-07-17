@@ -330,3 +330,13 @@ https://splatoon.com.cn/page/55
 
 查看全部评分
 
+
+*****
+
+####  绿冰  
+##### 4828#         楼主| 发表于 2024-7-17 09:13
+
+7月18日更新8. 1. 0
+
+https://support.nintendo.com/jp/switch/software_support/av5ja/810.html
+

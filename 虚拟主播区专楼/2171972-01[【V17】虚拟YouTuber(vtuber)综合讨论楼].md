@@ -680,3 +680,23 @@ EN,ID不也只能读个名字，真不熟
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不对吧，第一轮选的说到底全都跟上次关系不大。大福选社是玩倒贴梗，梨花选葵是最近两人很要好，老板娘选德龙是同为棒球粉，芙莲选IB是同期选inui是推し，虾勇选IB是好友，叶选葛叶是好友加热门组合，柴卡选丽泽是兄妹梗，不破选葛叶三枝都是好友，八队在隔壁都有人事前猜到的
 
+
+*****
+
+####  zhrs456  
+##### 486#       发表于 2024-7-17 21:55
+
+ 本帖最后由 zhrs456 于 2024-7-17 21:57 编辑 
+
+编辑
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zhrs456  
+##### 487#       发表于 2024-7-17 21:57
+
+都蹭上次热度那king不得8选？说话有点搞笑的，除了芙莲没选社把节目效果做差了外，一选都是标准的关系户
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

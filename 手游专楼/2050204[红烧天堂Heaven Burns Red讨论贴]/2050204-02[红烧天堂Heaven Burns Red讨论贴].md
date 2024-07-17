@@ -374,3 +374,14 @@ y5mee8zewkt7vzgv 来来互填
 —— 来自 鹅球 v3.0.87-alpha</blockquote>
 wkf6lnkps2wknbst 已填
 
+
+*****
+
+####  mashino  
+##### 1536#       发表于 2024-7-18 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65619660&amp;ptid=2050204" target="_blank">saitohimea 发表于 2024-7-18 00:42</a>
+wkf6lnkps2wknbst 已填</blockquote>
+xdsmjypwr01dv349 已填，感谢
+话说这游戏玩起来感觉有点卡卡的啊
+

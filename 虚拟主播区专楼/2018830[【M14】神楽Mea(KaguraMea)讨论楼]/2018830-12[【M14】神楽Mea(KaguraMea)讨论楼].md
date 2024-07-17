@@ -2127,3 +2127,39 @@ thh切片下面什么风向我不好说
 如果哪天切割了能不能細 ...</blockquote>
 discord升堂是？不过pari那边真搞起来怕不是又得上法院
 
+
+*****
+
+####  ashero  
+##### 16781#       发表于 2024-7-18 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">感觉主播其实很巨魔 今天开棉花糖倒不如说就是等着那个棉花糖的
+
+*****
+
+####  河西大道左  
+##### 16782#       发表于 2024-7-18 00:20
+
+所以那个沟槽的dc升堂到底是什么
+
+
+*****
+
+####  时间在我手中  
+##### 16783#       发表于 2024-7-18 00:25
+
+dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接退了dis群呗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+加上这次bw这些屁事直接一次性引爆了，所以thh下面这群低能是在购叫什么，官组80万粉丝的不懈努力空降夺权不忿？
+
+我可去你吗的吧，和别人聊烤肉，你表子妈的魔法衣服熟肉回呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不知道还以为他组转播个顶个的好，discord也不知道和主播鬼叫了什么长篇大论，结果现在还找个自己以前不合作的海盗组夺舍发东西开带，不得不说20年我和一些朋友确实太有底线了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 16784#       发表于 2024-7-18 00:28
+
+听说推特被车到200万查看了，真是盛况啊，可惜了我梯子炸了。不知道是不是这群孙子把节点全占了。
+

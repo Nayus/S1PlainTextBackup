@@ -2217,3 +2217,19 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 現在任何有點熱度的推文下面都有一群發純emoji或複製別人推文的bot。
 
+
+*****
+
+####  sino__unnko3  
+##### 16791#       发表于 2024-7-18 00:38
+
+ 本帖最后由 sino__unnko3 于 2024-7-18 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65618540&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-17 22:52</a>
+
+没录屏，录了音，但阿里云盘分享数量有限制，失效了叫我补下档 [https://www.alipan.com/t/CEJiKeymzcO8iruF](https://www.alipan.com/t/CEJiKeymzcO8iruF) ...</blockquote>
+[https://cowtransfer.com/s/a2921efc2bf344](https://cowtransfer.com/s/a2921efc2bf344) 点击链接查看 [ 录音 (5).wav ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 d22pmw 查看； 
+
+最终补档
+
+录音跟之前传文件的仅有音量与结尾去除无声片段的区别，无其他区别
+

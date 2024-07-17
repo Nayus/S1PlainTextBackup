@@ -618,3 +618,20 @@ vspo en之前看和虹en这种被鬼佬gank的一个水平，不知道过一段�
 
 我都要怀疑るり到底是有多漂亮了（），能引得黑黑+lize主动喂饭
 
+
+*****
+
+####  Devi_Lito  
+##### 481#       发表于 2024-7-17 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65616192&amp;ptid=2171972" target="_blank">poipanchao 发表于 2024-7-17 19:07</a>
+
+我都要怀疑るり到底是有多漂亮了（），能引得黑黑+lize主动喂饭
+
+syl,老叶纯纯数字厨，起手king+下巴</blockquote>
+那るんちょま还是全社一起喂饭呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜这次新人不让选，不然还想看看它第几轮被选走
+
+syl，每年转盘环节抽到大家都不认识的KR liver的空气感<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

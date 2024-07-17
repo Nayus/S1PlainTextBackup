@@ -219,3 +219,13 @@ fu46e7q2liv4mhq2
 
 模拟器玩的也卡卡的，国服有没有像steam一样的pc端？
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 1522#       发表于 2024-7-17 19:27
+
+不想把手机号送出去，于是B站买了个白号，进去游戏后强制要求实名，告辞。
+
+国产和国服代理手游这点真是太傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

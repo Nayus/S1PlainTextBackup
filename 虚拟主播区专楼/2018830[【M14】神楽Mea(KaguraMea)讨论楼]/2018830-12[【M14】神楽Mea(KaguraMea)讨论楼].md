@@ -1258,3 +1258,55 @@ nm，一天没看怎么他组发颠起来了<img src="https://static.saraba1st.c
 你不如说星 ...</blockquote>
 我说的“就想如此”是mea就不想管这边了，星力无论做的再烂都懒得管。星力何止只是迟转播，是大部分时候根本不转播，犬山那边联合投稿点点鼠标也不点
 
+
+*****
+
+####  古战场亡魂  
+##### 16695#       发表于 2024-7-17 20:46
+
+居然是同好会先爆了，这b站6周年可真红火啊。
+[https://www.bilibili.com/video/BV1Ri421a768/](https://www.bilibili.com/video/BV1Ri421a768/)
+
+*****
+
+####  TiHaru  
+##### 16696#       发表于 2024-7-17 20:47
+
+主播起爆第一句就是“连dc都会被拿出来讲，就算不留档直播也一样会被烧”
+
+结果还在等他妈字幕组释经
+
+*****
+
+####  时间在我手中  
+##### 16697#       发表于 2024-7-17 20:49
+
+你组人这字幕样式大概烧成灰都认得出来，哪位小高手上的号能介绍一下不<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 16698#       发表于 2024-7-17 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65617032&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-17 20:47</a>
+
+主播起爆第一句就是“连dc都会被拿出来讲，就算不留档直播也一样会被烧”
+
+结果还在等他妈字幕组释经 ...</blockquote>
+不好意思，同接500的不留档直播，还是上班时间，有几个能看到的。更何况大部分人不懂日文。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 16699#       发表于 2024-7-17 20:53
+
+感觉就这样了，想不明白
+
+*****
+
+####  古战场亡魂  
+##### 16700#       发表于 2024-7-17 20:55
+
+还真的是字幕组的字体颜色。这种效率可真难得。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

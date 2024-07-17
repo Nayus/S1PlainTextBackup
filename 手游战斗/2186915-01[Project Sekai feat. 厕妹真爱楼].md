@@ -12497,3 +12497,14 @@ plq那人别太搞笑了 是没多少人点赞那篇文 但那日攻姐破防的
 
 楼主，今天建议多搬点原神厕内容。精彩内容很多。
 
+
+*****
+
+####  東雲絵名  
+##### 1104#         楼主| 发表于 2024-7-17 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65611986&amp;ptid=2186915" target="_blank">真奥丁神 发表于 2024-7-17 13:20</a>
+
+楼主，今天建议多搬点原神厕内容。精彩内容很多。</blockquote>
+原神厕叫什么
+

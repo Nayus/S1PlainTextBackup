@@ -14398,3 +14398,11 @@ hhw原来不是msk全包吗<img src="https://static.saraba1st.com/image/smiley/f
 
 kkr想到什么点子画张画，然后交给msk翻译<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20510#       发表于 2024-7-17 14:45
+
+明天就是周四了，最近邦好像也没什么活，我要奶一口下周邦tv是蜜柑凛+2鸡（为了照顾气氛或许会是高尾米泽？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

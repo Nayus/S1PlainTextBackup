@@ -340,3 +340,31 @@ https://splatoon.com.cn/page/55
 
 https://support.nintendo.com/jp/switch/software_support/av5ja/810.html
 
+
+*****
+
+####  yanglian72  
+##### 4829#       发表于 2024-7-17 09:24
+
+次回の更新データは、現在開催中のシーズンが終了する時期に配信します。その更新データでは、一部のブキに絞って、能力を下げることも含んだ対戦バランスの変更を行う予定です。
+
+没新东西了，终结。
+
+*****
+
+####  KBAC  
+##### 4830#       发表于 2024-7-17 09:25
+
+ 本帖最后由 KBAC 于 2024-7-17 09:26 编辑 
+
+没说不等于没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+img_9941.png
+(97.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-17 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/17/092433mmyebmy7a04muu0b.png" referrerpolicy="no-referrer">
+

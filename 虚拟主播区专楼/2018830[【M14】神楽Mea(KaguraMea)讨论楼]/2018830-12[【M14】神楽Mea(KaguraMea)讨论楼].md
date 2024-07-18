@@ -3161,3 +3161,23 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 我说的是私号，你说的是官号。</blockquote>
 是的 现在opgg改了没有显示那个大标 看的不是很明显 我自裁（）
 
+
+*****
+
+####  游山赫乃丈丶  
+##### 16877#       发表于 2024-7-18 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65620439&amp;ptid=2018830" target="_blank">Cushaw 发表于 2024-7-18 03:46</a>
+
+主播登太行山去了，17号之前不播，大家生活愉快
+
+之后是鱼吧爆炸被骂失信的</blockquote>
+沟槽的6657
+
+*****
+
+####  古战场亡魂  
+##### 16878#       发表于 2024-7-18 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果明天能来，今天晚上联动就应该能上的，毕竟联动有台本的，今晚从直播联动变成留言联动很难相信明天能过来啊。
+

@@ -15159,3 +15159,57 @@ https://ngabbs.com/read.php?tid=39822910
 希睦是比希祥还冷门的CP啊，这是我看过第一篇希睦向的同人。不过和纯假药的爱睦相比，希睦在剧中还算是有 ...</blockquote>
 好歹也是前队友，爱睦是离结婚差见面这一步（x）
 
+
+*****
+
+####  滑稽Captain  
+##### 20574#       发表于 2024-7-18 19:15
+
+鬼图是看邦的一环，不得不品尝
+
+*****
+
+####  PDQ4  
+##### 20575#       发表于 2024-7-18 19:16
+
+毕竟大半年了，楼里不少鸡厨早就被wsd气不出声了，土MV没有新鬼图就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于立希相关塑造问题，我只能说年初我还能贷款点希祥或者立希骨的假药，但是既然wsd选了把立希对灯的箭头超级强调锁死，那只能希望后续对灯希下点功夫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">作曲沦为作词的陪衬这种事情可太不邦邦了
+
+*****
+
+####  NODY  
+##### 20576#       发表于 2024-7-18 19:16
+
+和刺团联动的起因是东映看了青木翻空之箱的反响后有了兴趣，所以找狗团谈了，所以我才说狗三次元还真不能没有青木，不然连这个大腿都抱不上，就是wsd没看对人找错主唱而已，要是青木是主唱的话无意中拉动联动甚至算得上一桩美谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 20577#       发表于 2024-7-18 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627873&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-18 19:16</a>
+
+和刺团联动的起因是东映看了青木翻空之箱的反响后有了兴趣，所以找狗团谈了，所以我才说狗三次元还真不能没 ...</blockquote>
+你说是东映先起意来谈的概率比🐑自己突发奇想去申请蹭一下的概率还要低
+
+*****
+
+####  Alicest  
+##### 20578#       发表于 2024-7-18 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627873&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-18 19:16</a>
+和刺团联动的起因是东映看了青木翻空之箱的反响后有了兴趣，所以找狗团谈了，所以我才说狗三次元还真不能没 ...</blockquote>
+这是哪来的消息<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+东映居然会正经营销，太不可思议了
+
+*****
+
+####  yninaa  
+##### 20579#       发表于 2024-7-18 19:22
+
+go粉给gbc的动画bd销量填线，mygo蹭蹭gbc的热度，二者确实是共赢
+
+但我寻思着mygo在鸡团动画开播时候蹭热度的意义是什么，总不可能真有日本go粉看不出来这二者的区别对待吧
+

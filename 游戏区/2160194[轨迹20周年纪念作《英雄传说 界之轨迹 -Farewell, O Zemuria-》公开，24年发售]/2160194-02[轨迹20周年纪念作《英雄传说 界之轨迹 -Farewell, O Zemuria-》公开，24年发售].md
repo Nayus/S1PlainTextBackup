@@ -2865,3 +2865,11 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本就是盟主和妮娜
 
+
+*****
+
+####  Cloudslin  
+##### 1747#       发表于 2024-7-18 14:53
+
+盟主这什么表情……葱头蜜汁笑容，还有方石类似物，学妹脸肥得离谱，这张封面也是一座高峰了
+

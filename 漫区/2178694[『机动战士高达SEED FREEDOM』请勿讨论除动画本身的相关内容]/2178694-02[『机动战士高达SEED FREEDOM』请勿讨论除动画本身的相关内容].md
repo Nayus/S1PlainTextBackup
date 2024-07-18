@@ -58,3 +58,14 @@
 那不就等于没了命运就是fw嘛 一转高级黑了属于是</blockquote>
 总比种命有了命运就变成fw强吧，而且tv的脉冲大招经常被说换成别人也能使出来，新命运的大招基本和鸟绑定了
 
+
+*****
+
+####  妄想系同盟  
+##### 1819#       发表于 2024-7-18 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624218&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-7-18 13:36</a>
+
+AEMedia直接倒出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">翻了下还真是
+

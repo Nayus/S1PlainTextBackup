@@ -480,3 +480,27 @@ a3hyzldb4s26pd0m
 
 —— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  AliceMilky  
+##### 1546#       发表于 2024-7-18 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621504&amp;ptid=2050204" target="_blank">cayon 发表于 2024-7-18 09:36</a>
+f2k34hlyhrfiopym 互助</blockquote>
+已填
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  HinataY  
+##### 1547#       发表于 2024-7-18 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622095&amp;ptid=2050204" target="_blank">Acerola 发表于 2024-7-18 10:27</a>
+原来现在不是和国际服刚出中文的版本一样啊，孔明还没出
+
+—— 来自 HONOR BVL-AN16, Android 14上的 S1N ...</blockquote>
+说是一个月内会出，所以都说到时候再刷初始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

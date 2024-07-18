@@ -2464,3 +2464,24 @@ mea由此又产生了不满：就这么喜欢传话吗，你们不会考量一�
 
 当初要是不直播，就在楼下新开的餐厅打工，你咩姐会因为口罩事件在不为人知的角落里饿死吗？
 
+
+*****
+
+####  河西大道左  
+##### 16813#       发表于 2024-7-18 11:04
+
+还是立本黑心公司太少了 说半天都没发现重点在哪 和她本人本来就没关系啊爱摆就摆呗 这不都在说mcn不行吗 还骂mcn就是骂她 mcn跟她签卖身契了？
+
+*****
+
+####  时间在我手中  
+##### 16814#       发表于 2024-7-18 11:11
+
+所以这B公司似了换回原来他组等于天亮了吗
+
+一坨屎两坨屎不还是屎，感情还要分个味道高低是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+至于骂mcn是不是骂她我不知道，只不过跳脸还玩剪辑只挑部分内容说事，你不会真觉得这很光明正大吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+退一万步说，能觉得靠这个把戏夺权回来，脑回路大概确实和主播本人脑回路在他们眼里的水平半斤八两没跑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

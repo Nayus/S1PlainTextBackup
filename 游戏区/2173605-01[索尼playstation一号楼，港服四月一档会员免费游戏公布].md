@@ -3408,3 +3408,29 @@ Tom Henderson suggests the PS5 Pro might not launchthis year
 
  His reply:"If it releases this year!' 
 
+
+*****
+
+####  ultraseven  
+##### 358#       发表于 2024-7-18 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+虽然今年确实没护航游戏，但是拖到2025年再出“半代”升级还不如不出了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  clyde-wang  
+##### 359#       发表于 2024-7-18 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+今年不出…不如直接整合一下新技术到PS6算了，除非PS5想要卖8年
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

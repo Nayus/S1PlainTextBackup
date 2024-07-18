@@ -2502,3 +2502,70 @@ mea由此又产生了不满：就这么喜欢传话吗，你们不会考量一�
 
 难怪看直播觉得她操作进步了，原来是真进步了。
 
+
+*****
+
+####  河西大道左  
+##### 16817#       发表于 2024-7-18 11:32
+
+我对什么夺权屁事一点兴趣也没有 不如直接把b号销了更好 我是觉得她理解有问题
+
+*****
+
+####  ShyCrazydog  
+##### 16818#       发表于 2024-7-18 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622565&amp;ptid=2018830" target="_blank">河西大道左 发表于 2024-7-18 11:04</a>
+还是立本黑心公司太少了 说半天都没发现重点在哪 和她本人本来就没关系啊爱摆就摆呗 这不都在说mcn不行吗  ...</blockquote>
+会有这种反应可能是目前她本人自己感觉和mcn关系不错，但粉丝以她的名义去骂mcn会搞的她和mcn之间很尴尬，让她觉得很恼火。怀疑在她的认知里星力不是在吸她的血，而是在b站规定必须要有对接公司时愿意收留她的恩人？
+
+
+*****
+
+####  Cortana  
+##### 16819#       发表于 2024-7-18 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622966&amp;ptid=2018830" target="_blank">ShyCrazydog 发表于 2024-7-18 11:38</a>
+会有这种反应可能是目前她本人自己感觉和mcn关系不错，但粉丝以她的名义去骂mcn会搞的她和mcn之间很尴尬 ...</blockquote>
+确实有这种可能。
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  与太郎  
+##### 16820#       发表于 2024-7-18 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622966&amp;ptid=2018830" target="_blank">ShyCrazydog 发表于 2024-7-18 11:38</a>
+
+会有这种反应可能是目前她本人自己感觉和mcn关系不错，但粉丝以她的名义去骂mcn会搞的她和mcn之间很尴尬 ...</blockquote>
+从mea的用词来看，至少她不可能是厌恶这个MCN的
+
+MCN吸血论某种意义上就和队友吸血论一样，说难听点现在属于皇上不急太监急
+
+如果某一天mea对MCN真的特别不满了，字幕组这些人可以顺势“清君侧”
+
+至于现在，mea只觉得他们吵闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 16821#       发表于 2024-7-18 11:46
+
+你不如说星力完全了解了她的性格，完全不操纵她。但凡换个靠谱点的运营，这每月的kpi总要有规定的。星力不对她有啥期待，她也不对星力有啥期待。
+
+星力应该也不止签了mea一个吧，应该还有其他的v吧，对比一下不就知道了吗。
+
+*****
+
+####  MomiNg  
+##### 16822#       发表于 2024-7-18 11:46
+
+qr怎么还是这么简单的二极管思维方式，想让星力死就是让官组回来是吧
+
+要我说两个一起死最好，然后mea完全退出中国市场，过理想的摆烂生活
+
+此外，就算字幕组怎么十恶不赦，他们起身也都是粉丝。而星力就是个天降资本，现在就像个吸血蚂蚱粘在你咩身上。作为5、6年前一直推过来的粉丝而言，难道不会对星力有任何想法吗？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+反正我就是看不得天降系，更何况还是纯纯的吸血蝗虫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

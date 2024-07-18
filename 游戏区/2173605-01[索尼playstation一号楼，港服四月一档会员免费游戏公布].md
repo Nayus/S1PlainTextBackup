@@ -3396,3 +3396,15 @@ GTAV
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  医生狼多  
+##### 357#       发表于 2024-7-18 11:24
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess September will probably be a decent month since PS5 Pro is most likely going to be announced around then?'
+
+ His reply:"If it releases this year!' 
+

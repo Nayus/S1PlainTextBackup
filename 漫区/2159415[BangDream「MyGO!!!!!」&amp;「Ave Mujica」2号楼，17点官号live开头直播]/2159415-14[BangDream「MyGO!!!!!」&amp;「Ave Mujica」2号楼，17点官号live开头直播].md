@@ -15033,3 +15033,14 @@ mv、立绘一坨，看的我都无语，到现在为止能看顺眼的就最开
 
 不管是出于什么原因，mujica方面资源相当贫乏是正常人都肉眼可见的，为此不满再正常不过了
 
+
+*****
+
+####  WhiteGlint  
+##### 20564#       发表于 2024-7-18 18:31
+
+ 本帖最后由 WhiteGlint 于 2024-7-18 18:35 编辑 
+
+砂寸奏那张碟封面真的是一言难尽，没想到后面那张能直接出来个朱八八<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+mujica这张专和送的立牌我倒是挺满意的<img src="https://p.sda1.dev/18/2fbb4dbcc8a254b4c357d91c423b9927/image.jpg" referrerpolicy="no-referrer">
+

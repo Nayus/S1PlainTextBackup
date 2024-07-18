@@ -22,3 +22,17 @@
 
 其实ed我也觉得还行，倒不如说物语的ed里我印象深刻的就化伤终，整个second season的ed我都没啥记忆点
 
+
+*****
+
+####  Tachikoma88  
+##### 422#       发表于 2024-7-18 18:33
+
+<img src="https://img.saraba1st.com/forum/202407/18/183316oyqn218nd3h21p7s.jpg" referrerpolicy="no-referrer">
+
+<strong>1721298765182.jpg</strong> (220.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 18:33 上传
+

@@ -3353,3 +3353,23 @@ Screenshot_20240718_214220.jpg
 全身图，范恩这个腿看起来危</blockquote>
 但凡把黎老师立绘摆高点都不像是要削老范脑袋
 
+
+*****
+
+####  ravend233  
+##### 1791#       发表于 2024-7-18 22:26
+
+这构图越看越像主角和要打的四大天王（不是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 1792#       发表于 2024-7-18 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629460&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-7-18 22:14</a>
+
+但凡把黎老师立绘摆高点都不像是要削老范脑袋</blockquote>
+也捅了葱头肩膀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

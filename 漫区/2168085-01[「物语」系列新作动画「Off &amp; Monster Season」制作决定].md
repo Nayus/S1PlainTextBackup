@@ -58,3 +58,11 @@
 <img src="https://p.sda1.dev/18/634a450549e24594fba0451f5203f14e/story_3560_photo_1721291038483196348.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/a03b3a8461422b7f57990e57ab1f3f09/story_3560_photo_1721291038680232664.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 424#       发表于 2024-7-18 20:45
+
+这作监越来越多了，希望只是shaft在练新人吧
+

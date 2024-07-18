@@ -4172,3 +4172,34 @@ sololive/周年纪念周边跟着C104时期全部撞在一起，不少人钱包�
 
 2024-7-18 21:56 上传
 
+
+*****
+
+####  rs5621  
+##### 9250#       发表于 2024-7-18 22:00
+
+卧槽3dlive！
+
+*****
+
+####  holoan  
+##### 9251#         楼主| 发表于 2024-7-18 22:02
+
+ 本帖最后由 holoan 于 2024-7-18 22:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/18/220609u9ta27natqakqhn9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (2.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 22:06 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/220725tn1li7ibrrh07m9i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 22:07 上传
+

@@ -3228,3 +3228,13 @@ logo中间的还真像两女合体
 
 先想想本作打啥吧，呃啊
 
+
+*****
+
+####  ravend233  
+##### 1783#       发表于 2024-7-18 19:57
+
+要不干脆打恶魔吧，致敬一个战锤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

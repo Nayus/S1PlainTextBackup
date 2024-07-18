@@ -3193,3 +3193,21 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 个人建议去参加米国带选<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 16880#       发表于 2024-7-18 20:01
+
+ 本帖最后由 古战场亡魂 于 2024-7-18 20:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">官组还可以上号把所有视频全删了啊，多痛快啊。比剪了节奏引火视频还不敢留名不是痛快多了。
+
+然后签名一改，她背叛了我们。
+
+复刻一波呗。反正组里的早八百年都没几个看mea直播的了，现在来一波的大的证明一下自己岂不美哉。
+
+还是不够果断啊，所以说才是小孩子，昨天要是一口气删光视频，6周年清空账号，听上去就挺美妙的。
+
+换个时间点就感觉落了下沉。
+

@@ -15389,3 +15389,18 @@ gbc赢不赢不知道，至少wsd蹭到东映赢麻了，真给他蹭到大的�
 
 elements估计是对邦了，不过也有可能再临时塞一个单独Live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20597#       发表于 2024-7-18 19:57
+
+怎么公司内斗都出来了，响社都是mggm的嫡系所以信不过，根本P去外面摇人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20598#       发表于 2024-7-18 20:00
+
+这下身为武士道音乐的社长给换成supalove也合理了，因为元素花园和木谷建立了良好的合作关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

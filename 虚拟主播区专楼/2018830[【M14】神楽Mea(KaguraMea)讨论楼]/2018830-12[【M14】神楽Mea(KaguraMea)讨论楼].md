@@ -2337,3 +2337,18 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 **不唱就来B站唱剪切线吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 16802#       发表于 2024-7-18 07:25
+
+出去看了眼，还真是马斯克的机器人啊。太抽象了吧。
+
+*****
+
+####  thisisaspider  
+##### 16803#       发表于 2024-7-18 07:53
+
+懂了 主播引发智械危机<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

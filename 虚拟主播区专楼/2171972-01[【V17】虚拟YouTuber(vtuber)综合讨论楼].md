@@ -771,3 +771,16 @@ EN,ID不也只能读个名字，真不熟
 
 ebo反而起名方式上和上次nui没啥关联只是他的设定刚好是英雄碰上了，感觉更多是在玩我的英雄学院梗
 
+
+*****
+
+####  pansherry  
+##### 496#       发表于 2024-7-18 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65620274&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-7-18 02:15</a>
+
+还有柴卡，起名方式明显是跟lz一样的x立+自己名字，之前公布校名的时候一眼猜会拿lz，不过我一直以为会是2 ...</blockquote>
+就说下柴卡，首先前提，他第一轮不选社，那你觉得和他关系比较好的人还有谁容易第一轮就被选吗，也就LZ加贺美挑一下了，想整活ルンルン也不能选啊，然后凑组合3baka难度肯定比SMC高，所以就选个LZ呗，要不是芙莲眉笔第一轮第二选择了inui他就要准备抢三baka了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+可惜柴卡也是眉笔，最后一轮50%概率没选到索菲，不然节目效果拉满了
+

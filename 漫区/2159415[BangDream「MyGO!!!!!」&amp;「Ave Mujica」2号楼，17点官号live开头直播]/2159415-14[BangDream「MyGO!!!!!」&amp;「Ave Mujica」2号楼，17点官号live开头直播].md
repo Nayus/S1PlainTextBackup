@@ -14778,3 +14778,38 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 我转了圈感觉是1080有大概3s的时间，其他价位的全都秒没，手动抢到的屈指可数，唉昨天看到票数只有2773就觉 ...</blockquote>
 怎么看到票数的？
 
+
+*****
+
+####  rollingusagi  
+##### 20546#       发表于 2024-7-18 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625957&amp;ptid=2159415" target="_blank">想喝一点点 发表于 2024-07-18 16:12:11</a>
+怎么看到票数的？</blockquote>就票星球app上啊，观影提示点更多那里
+
+去看了下已经可以点缺票登记了，那第二波票肯定是有的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  WhiteGlint  
+##### 20547#       发表于 2024-7-18 16:23
+
+Ksm那把红色星星吉他真好看啊（很想买一把邦标的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">），不过总感觉这种异形的架腿上挺难弹的
+
+*****
+
+####  星天观测  
+##### 20548#       发表于 2024-7-18 16:24
+
+random star据说现在产能很不足，生产线全在做狗琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 20549#       发表于 2024-7-18 16:26
+
+草 票星球21号开卖第二波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

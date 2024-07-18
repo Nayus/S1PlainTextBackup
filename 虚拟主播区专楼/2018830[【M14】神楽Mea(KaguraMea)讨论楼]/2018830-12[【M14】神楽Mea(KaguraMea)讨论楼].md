@@ -3054,3 +3054,14 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 说白了bls那时候也是何错之有？木口那个破事加上叔叔的瞎折腾搞得主播梁木，不过现在回头看看，也跟叔叔的裁员有关系，所谓b站内部对你咩有提携的人开完了大概（反正我认识的市场运营啥的跑了相当的比例）今年bw现场看到这个“日V好起来了”就有种VV表情包的美感，么，都是时代的小浪花罢了，打到个人身上就是惊涛骇浪，包括主播
 
+
+*****
+
+####  ashero  
+##### 16866#       发表于 2024-7-18 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625793&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-18 15:58</a>
+
+说白了bls那时候也是何错之有？木口那个破事加上叔叔的瞎折腾搞得主播梁木，不过现在回头看看，也跟叔叔的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那更加令人感叹了
+

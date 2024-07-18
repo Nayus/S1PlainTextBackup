@@ -16,3 +16,24 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  battleship64  
+##### 1815#       发表于 2024-7-18 13:33
+
+懂了，加油加油
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  gundammarkⅡ  
+##### 1816#       发表于 2024-7-18 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622911&amp;ptid=2178694" target="_blank">妄想系同盟 发表于 2024-7-18 11:33</a>
+编辑了
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AEMedia直接倒出来了
+

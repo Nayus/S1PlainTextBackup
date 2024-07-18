@@ -3034,3 +3034,20 @@ AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="http
 
 中间正方体怎么看着有点电流
 
+
+*****
+
+####  ravend233  
+##### 1767#       发表于 2024-7-18 17:35
+
+官网上的图，大一些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+kai_20240718.jpeg
+(292.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/173514n8jbi0b3qfmebu8s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

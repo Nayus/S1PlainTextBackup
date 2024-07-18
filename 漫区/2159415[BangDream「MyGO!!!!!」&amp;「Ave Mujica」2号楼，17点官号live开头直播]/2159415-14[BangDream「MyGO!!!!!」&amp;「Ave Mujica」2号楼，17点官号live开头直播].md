@@ -14958,3 +14958,19 @@ Blu-ray付生産限定盤：BRMM-10836
 
 好了限定盤特別配色的手環出圖了，我倒要看看特製BOX長什麼樣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 20560#         楼主| 发表于 2024-7-18 17:23
+
+ 本帖最后由 紫吹兰 于 2024-7-18 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626481&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-7-18 16:52</a>
+
+只能先攒钱了，真要超过2w软是拿不下来了（）
+
+之前看ar06白金撞色的1w多点，不知道ar07到时又会是什么定价 ...</blockquote>
+Ar06黑色官网好像点不进去了，可能是怕你们买黑色的06改金配件当代餐<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">
+
+还好我所有琴都买的透明白，后面看看要不买把白色的ar06算了，不过那个好像是实心白不是透明白。
+

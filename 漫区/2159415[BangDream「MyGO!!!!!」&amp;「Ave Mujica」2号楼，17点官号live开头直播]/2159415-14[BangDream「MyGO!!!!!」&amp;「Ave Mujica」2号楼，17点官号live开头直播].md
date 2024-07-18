@@ -14920,3 +14920,41 @@ random star据说现在产能很不足，生产线全在做狗琴</blockquote>
 
 之前看ar06白金撞色的1w多点，不知道ar07到时又会是什么定价了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20558#       发表于 2024-7-18 17:02
+
+好迷惑的東西……
+
+<img src="https://img.saraba1st.com/forum/202407/18/170152q1l615qvzeeplujl.jpg" referrerpolicy="no-referrer">
+
+<strong>GSwHPDIaYAAUCRu.jpg</strong> (81.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 17:01 上传
+
+
+*****
+
+####  御幸一也  
+##### 20559#       发表于 2024-7-18 17:05
+
+数量限定生産特装盤：BRMM-10835
+
+Blu-ray付生産限定盤：BRMM-10836
+
+通常盤：BRMM-10837
+
+数量限定生産特装盤には、配信ジャケットとしても採用されている、
+
+収録楽曲をイメージしたデザインの「ELEMENTS 特製ステッカーセット」と、
+
+「Ave Mujica 2nd LIVE「Quaerere Lumina」シリコンバンド」の特別カラーVer.が付属。
+
+特別なデザインの特製BOXも付属する豪華な仕様となっている。
+
+好了限定盤特別配色的手環出圖了，我倒要看看特製BOX長什麼樣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

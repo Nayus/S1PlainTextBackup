@@ -15111,3 +15111,40 @@ mujica这张专和送的立牌我倒是挺满意的<img src="https://p.sda1.dev/
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Aendst  
+##### 20570#       发表于 2024-7-18 18:57
+
+ 本帖最后由 Aendst 于 2024-7-18 18:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">倒也不能说舔狗，但是访谈明言 <blockquote>立希は燈がいればいいと思っている子ですから（笑）。</blockquote><blockquote>立希（たき）が生まれたのも、作詞の天才である燈のことを「すごい」と思ってくれる人がいてほしいからでした。</blockquote>
+确实可以说明一些立希塑造上的问题
+
+想要把这样一个角色做好是相当困难的，我个人的想法是，立希独立于高松灯之后才能不受局限，才能催生出更多个人的可能性
+
+否则即使是补充，也很可能没办法脱离目前的状态和形象，这种戏份补充对于单个角色来说或许效果甚微
+
+
+*****
+
+####  russianbear  
+##### 20571#       发表于 2024-7-18 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627600&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-7-18 18:44</a>
+
+https://ngabbs.com/read.php?tid=39822910
+
+顺便作为一个纯良立希推，发一下老早之前写的立希x小睦的同人文 ...</blockquote>
+希睦是比希祥还冷门的CP啊，这是我看过第一篇希睦向的同人。不过和纯假药的爱睦相比，希睦在剧中还算是有过互动的。
+
+*****
+
+####  御景  
+##### 20572#       发表于 2024-7-18 19:05
+
+只能多骂几句WSD，RNM。
+
+也没别的办法了。
+

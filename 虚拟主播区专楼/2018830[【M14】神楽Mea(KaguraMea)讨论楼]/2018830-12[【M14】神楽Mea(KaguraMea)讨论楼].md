@@ -2485,3 +2485,20 @@ mea由此又产生了不满：就这么喜欢传话吗，你们不会考量一�
 
 退一万步说，能觉得靠这个把戏夺权回来，脑回路大概确实和主播本人脑回路在他们眼里的水平半斤八两没跑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  草牛  
+##### 16815#       发表于 2024-7-18 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没事，节奏会帮主播更好的摆，无敌了
+
+*****
+
+####  古战场亡魂  
+##### 16816#       发表于 2024-7-18 11:30
+
+好久没关注了lol分段了，看了眼，原来主播24年s1赛季大号钻4了都，小号白金4。
+
+难怪看直播觉得她操作进步了，原来是真进步了。
+

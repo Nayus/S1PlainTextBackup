@@ -2998,3 +2998,11 @@ AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果把盟主是谁，目的是什么，知道什么事实解释清楚了，好像也就没啥可写的了（）
 
+
+*****
+
+####  hkguty  
+##### 1763#       发表于 2024-7-18 15:50
+
+妮娜真上位了，应该会有新立绘吧
+

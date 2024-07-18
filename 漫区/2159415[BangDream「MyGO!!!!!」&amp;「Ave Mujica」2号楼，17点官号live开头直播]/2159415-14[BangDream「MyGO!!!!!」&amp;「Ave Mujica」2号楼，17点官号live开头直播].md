@@ -15548,3 +15548,83 @@ elements估计是对邦了，不过也有可能再临时塞一个单独Live<img 
 
 我不怎么关注声优，不过林鼓子相当认真努力敬业也是能马上看出来的
 
+
+*****
+
+####  御幸一也  
+##### 20615#       发表于 2024-7-18 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">由始至終都沒搞懂為什麼要夢1月和刺對邦要是ave的邏輯
+
+按照樓友說的，牽線對邦的是青木不是嗎（我沒看我真不知道），那她們能和刺對邦是她們牽線的本事好吧
+
+*****
+
+####  相坂君  
+##### 20616#       发表于 2024-7-18 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">回头羊宫粉打过来，我只能说：某漏油个人行为，勿上升！
+
+说到底不关心也不关注羊宫的职业规划和职业态度，真这么讨厌cv也不用来这里说吧，更何况泥楼是邦楼，不是“说给羊宫妃那”楼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20617#       发表于 2024-7-18 20:39
+
+有萝带确实是梦也不敢梦的景象，非常惊喜，之前撑破天也就是梦一下动画里有萝彩蛋
+
+
+*****
+
+####  御幸一也  
+##### 20618#       发表于 2024-7-18 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">我甚至已經開始做夢12/19的邦TV是2團10人的加長2小時版本了
+算了我自己也知道是在做夢
+
+*****
+
+####  Aendst  
+##### 20619#       发表于 2024-7-18 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">roselia有世界观，mujica也有世界观
+
+还是不敢贷款萝在mujica动画里的戏份，不过应该可以有直接交流吧？
+
+*****
+
+####  yninaa  
+##### 20620#       发表于 2024-7-18 20:43
+
+mygo里有前辈团的彩蛋，我感觉鸡的动画应该也会有的
+
+*****
+
+####  NODY  
+##### 20621#       发表于 2024-7-18 20:43
+
+按cd来分析的话，接下来鸡元素碟+动画oped单曲碟+动画插入曲专至少三张碟要出，也就是明年上半年少说也有3场live要跑和一堆新歌要练，这时候抽时间去对邦本来就不太合适
+
+而且gbc动画已经演给你了，小公司乐队抱上大公司乐队的大腿那是小的那边尴尬，鸡好好的动画热播期本来就没必要去抱大腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  是谁的书画  
+##### 20622#       发表于 2024-7-18 20:44
+
+纠正一下，对邦是东映选的对手。
+
+羊有自己的选择，抛开企划这没什么不对的。也就3000人的场未免想的比现实中发生的盛大太多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+鉴定为烤羊上瘾
+
+*****
+
+####  星天观测  
+##### 20623#       发表于 2024-7-18 20:44
+
+对邦这消息都出来多少天了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">安排谁去谁去呗，没安排鸡就没安排，能咋的啊
+
+别在跟鸡无关的事上唐突扯鸡，尤其是别在明年对邦完来一句“如果是鸡”之类的，鸡粉真懒得掺和这种事
+

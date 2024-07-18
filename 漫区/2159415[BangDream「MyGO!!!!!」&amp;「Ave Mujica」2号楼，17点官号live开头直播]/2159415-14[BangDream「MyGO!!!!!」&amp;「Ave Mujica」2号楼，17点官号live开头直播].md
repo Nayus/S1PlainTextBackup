@@ -15271,3 +15271,121 @@ go粉给gbc销量填线……
 gbc首周是7/2出的，对邦消息是7/5，让我们来看看第二周销量，2725… ...</blockquote>
 就算填线那也是抽对邦live的第四卷啊，买现在发售的抽刺2nd的bd干嘛呢
 
+
+*****
+
+####  Aendst  
+##### 20585#       发表于 2024-7-18 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新漏油信息相当闭塞，让让他吧
+
+*****
+
+####  PDQ4  
+##### 20586#       发表于 2024-7-18 19:46
+
+不过青木翻唱然后wsd发现商机先动也正常的，毕竟老登最有眼光的一集就是从爱美的表演上发现了商机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20587#       发表于 2024-7-18 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 如果是演的我建議反串點好的，如果不是，那我覺得迷惑
+
+*****
+
+####  相坂君  
+##### 20588#       发表于 2024-7-18 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628109&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-18 19:44</a>
+
+就算填线那也是抽对邦live的第四卷啊，买现在发售的抽刺2nd的bd干嘛呢</blockquote>
+这不新漏油说的双赢嘛，顺手查了一下，有点震撼呢
+
+*****
+
+####  yninaa  
+##### 20589#       发表于 2024-7-18 19:47
+
+<blockquote>相坂君 发表于 2024-7-18 19:40
+go粉给gbc销量填线……
+
+gbc首周是7/2出的，对邦消息是7/5，让我们来看看第二周销量，2725… ...</blockquote>
+我是说隔壁bd的第四卷，那里面有抽选啊，还比ppp和mygo对邦的抽选便宜
+
+
+*****
+
+####  滑稽Captain  
+##### 20590#       发表于 2024-7-18 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627932&amp;ptid=2159415" target="_blank">yninaa 发表于 2024-7-18 19:22</a>
+
+go粉给gbc的动画bd销量填线，mygo蹭蹭gbc的热度，二者确实是共赢
+
+但我寻思着mygo在鸡团动画开播时候蹭热度 ...</blockquote>
+大可以先了解一下刺团今年剩下时间live安排有多满，再想想这个对邦能开在什么时候
+
+刺团9月2nd，11月3rd，12月4th，而mygo下半年的live安排也没有出，再晚就真的撞动画了，可不就只能明年1月动画开播直前
+
+*****
+
+####  PDQ4  
+##### 20591#       发表于 2024-7-18 19:50
+
+gbc赢不赢不知道，至少wsd蹭到东映赢麻了，真给他蹭到大的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20592#       发表于 2024-7-18 19:52
+
+反正和gbc对邦青木的影响应该是挺大的，找狗也合理
+
+而且按wsd惯例动画播出前后肯定是有自己的live的，mujica当然是忙自家live要练的一堆动画新歌比较优先，而不是在动画期间花时间去抱其他企划大腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yninaa  
+##### 20593#       发表于 2024-7-18 19:52
+
+不是，咋还有人说我反串呢
+
+我闲着没事买cd，还给b站那号充电，然后特地注册个号，就为了来这里反串是吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst|-1|莫名其妙|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 20594#       发表于 2024-7-18 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起什么企划外对邦有的没的我更希望武士道能找点会写歌的人写点好的
+
+*****
+
+####  DarthAka  
+##### 20595#       发表于 2024-7-18 19:55
+
+包括青木不是主唱这事吧，窝现在怀疑是公司内部斗争，新团P和老登有矛盾
+
+*****
+
+####  PDQ4  
+##### 20596#       发表于 2024-7-18 19:55
+
+我现在就希望动画播出期间或者结束后能有一个单独Live，好好吸收动画的热度去固一下鸡粉
+
+elements估计是对邦了，不过也有可能再临时塞一个单独Live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

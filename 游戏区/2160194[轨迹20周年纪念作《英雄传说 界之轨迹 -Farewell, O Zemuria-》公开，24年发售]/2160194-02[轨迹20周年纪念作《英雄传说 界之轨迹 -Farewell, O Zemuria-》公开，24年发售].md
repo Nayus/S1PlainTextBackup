@@ -2873,3 +2873,37 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 盟主这什么表情……葱头蜜汁笑容，还有方石类似物，学妹脸肥得离谱，这张封面也是一座高峰了
 
+
+*****
+
+####  宛若青空  
+##### 1748#       发表于 2024-7-18 14:57
+
+封面背景果然还是要在宇宙中
+
+确实感觉封面的Van和学妹比立绘更好看些
+然后最上面的背靠背基本确定应该就是盟主和妮娜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhuhh  
+##### 1749#       发表于 2024-7-18 14:57
+
+<blockquote>Cloudslin 发表于 2024-7-18 14:53
+盟主这什么表情……葱头蜜汁笑容，还有方石类似物，学妹脸肥得离谱，这张封面也是一座高峰了 ...</blockquote>
+创轨封面的盟主也是这个表情，没啥大问题
+
+*****
+
+####  一步成诗  
+##### 1750#       发表于 2024-7-18 14:58
+
+限定版盒子也出了，纯白浮雕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1751#       发表于 2024-7-18 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">限定版盒子这次看着还成（）
+

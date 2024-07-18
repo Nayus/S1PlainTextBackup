@@ -2749,3 +2749,26 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 但是上封面确实不等于不会路人（
 
+
+*****
+
+####  ravend233  
+##### 1736#       发表于 2024-7-18 14:17
+
+<img src="https://img.saraba1st.com/forum/202407/18/141816nmapu9v5lzf33m5v.jpg" referrerpolicy="no-referrer">
+
+<strong>}W2WKJ@~}]41E5GB3I2X5WL.jpg</strong> (268.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 14:18 上传
+
+清晰一点的
+
+*****
+
+####  jajajzz  
+##### 1737#       发表于 2024-7-18 14:19
+
+轨迹原本设计封面的员工是不是跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

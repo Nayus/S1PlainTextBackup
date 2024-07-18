@@ -14699,3 +14699,21 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 来海心沙吧，照顾一下粤圈人士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20538#       发表于 2024-7-18 14:18
+
+狗狗——<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/18/141827i9vxxkofk9piiokk.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_せとー(@bpdne)_20240717-153522_1813598377751511260_photo.jpg</strong> (151.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 14:18 上传
+
+[https://x.com/bpdne/status/1813598377751511260](https://x.com/bpdne/status/1813598377751511260)
+

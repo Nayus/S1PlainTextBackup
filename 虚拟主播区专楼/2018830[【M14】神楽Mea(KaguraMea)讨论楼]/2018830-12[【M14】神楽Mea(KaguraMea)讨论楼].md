@@ -2966,3 +2966,33 @@ menhera低气压抱怨发言感觉也是家常便饭，反正粉丝menhera发颠
 
 62min，棉花糖来咯嗨嗨嗨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 16859#       发表于 2024-7-18 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624371&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2024-7-18 13:52</a>
+
+快听到你说的那部分了，所以怎么棉花糖精选出这么个的玩意儿的
+
+我听下来感觉主播没啥变化，一直就这吊样
+
+ ...</blockquote>
+钓鱼执法罢了，虽然这么说有点主观臆断主播的嫌疑
+
+
+*****
+
+####  时间在我手中  
+##### 16860#       发表于 2024-7-18 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624640&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-18 14:17</a>
+
+钓鱼执法罢了，虽然这么说有点主观臆断主播的嫌疑</blockquote>
+是这样的，说实话是我以前，这种东西我就不可能切出来，除了被路过人骂两句还能如何
+
+或者换个说法就是，以前说不定还能主播又出来道歉balabala的，现在能什么
+
+所有问题核心点绕不过主播自己想摆就没啥说的
+

@@ -3085,3 +3085,11 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 大概会停播休息一段时间吧。以史为鉴啊。
 
+
+*****
+
+####  makourisu-2  
+##### 16869#       发表于 2024-7-18 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唉
+

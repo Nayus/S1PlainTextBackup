@@ -35,3 +35,13 @@ preview版更得挺勤快的
 
 淦……买了块便宜平板，不论tachiyomi还是mihon都闪退<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  伊丽虾皇VI  
+##### 252#       发表于 2024-7-18 09:02
+
+为啥我在mihon添加keiyoushi的仓库都显示网址无效，是我问题还是真失效了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -15760,3 +15760,22 @@ i83生放又说不清楚mujica剧情，所以萝可能也是只有一两个戏�
 
 和kkr的关系只能进游戏再说了
 
+
+*****
+
+####  星天观测  
+##### 20638#       发表于 2024-7-18 21:17
+
+i83不清楚不是很正常么，社长在狗动画也就是ring里那几句台词，穿越回动画开播前社长肯定也不知道狗动画什么内容的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鸡彩蛋之前讨论过一次了吧，都倾向于萝pp极大概率有，ras可能会有
+
+*****
+
+####  kivz  
+##### 20639#       发表于 2024-7-18 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628660&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-18 20:46</a>
+那麼就不能端上來新翻唱嗎 那幾首真聽膩了</blockquote>
+比起老是被骂xxx写曲不行，不如给李子再多找点anisong翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

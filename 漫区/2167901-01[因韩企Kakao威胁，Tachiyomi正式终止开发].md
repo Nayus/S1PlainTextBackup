@@ -45,3 +45,15 @@ preview版更得挺勤快的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  pgain2004  
+##### 253#         楼主| 发表于 2024-7-18 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621140&amp;ptid=2167901" target="_blank">伊丽虾皇VI 发表于 2024-7-18 09:02</a>
+为啥我在mihon添加keiyoushi的仓库都显示网址无效，是我问题还是真失效了？
+
+—— 来自 S1Fun ...</blockquote>
+我的还能用
+

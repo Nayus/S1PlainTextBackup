@@ -14649,3 +14649,20 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 听不到萝感觉生无可恋了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 20533#       发表于 2024-7-18 13:22
+
+小道消息，8月1号放第二波票，估计包含退票和卖不出去的黄牛票
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NODY  
+##### 20534#       发表于 2024-7-18 13:23
+
+前排黄牛票都炒到7500了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

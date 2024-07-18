@@ -15097,3 +15097,17 @@ mujica这张专和送的立牌我倒是挺满意的<img src="https://p.sda1.dev/
 
 两个新漏油不懂泥漏环境可以多翻翻前面的内容
 
+
+*****
+
+####  WhiteGlint  
+##### 20569#       发表于 2024-7-18 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627606&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-18 18:45</a>
+泥漏从不车角色，并且对立希和立希推要比隔壁善意很多
+
+两个新漏油不懂泥漏环境可以多翻翻前面的内容 ...</blockquote>
+倒也不是说车角色，主要感觉楼友是讨论在剧中的塑造和关系这块，说真的我感觉大部分路人对立希第一印象是舔狗（）
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -3150,3 +3150,14 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 我也赌个明天会来播。
 
+
+*****
+
+####  Klience  
+##### 16876#       发表于 2024-7-18 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627427&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 18:22</a>
+
+我说的是私号，你说的是官号。</blockquote>
+是的 现在opgg改了没有显示那个大标 看的不是很明显 我自裁（）
+

@@ -895,3 +895,38 @@ ebo反而起名方式上和上次nui没啥关联只是他的设定刚好是英�
 
 看讨论感觉今年这个版本很打击大家的积极性啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Devi_Lito  
+##### 509#       发表于 2024-7-18 11:47
+
+不过今年第一轮至少也是抽了3次签了，并且往年选人大会前推上监督吹风的“大热”选手（社、刀也、安洁）最后也就0-1个监督第一轮选也挺有节目效果的，今年能有2个监督抢社已经不错了
+
+syl，明晚琉璃复归&amp;20w粉纪念回要开宾果歌回，挺有意思的
+
+<img src="https://img.saraba1st.com/forum/202407/18/114652x7nnj38knnl7ln3k.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (653.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 11:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/114658zzii6lt9bijjl3ls.png" referrerpolicy="no-referrer">
+
+<strong>2.PNG</strong> (278.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 11:46 上传
+
+*****
+
+####  高等黑暗  
+##### 510#       发表于 2024-7-18 11:50
+
+说实话有些平衡性改动我觉得没什么，比如打高投低（看了下日推很多人上来被E校血虐，而且这把被对面血洗个10几比0下一把自己血洗对面一个10几比0不知道差别在哪里，非常的“高校野球”），说白了新版本平衡大家就得慢慢适应
+
+但是有些地方的改动我觉得很蠢，比如每周一有强制テンションdown事件这种不是纯粹恶心玩家玩吗（）
+

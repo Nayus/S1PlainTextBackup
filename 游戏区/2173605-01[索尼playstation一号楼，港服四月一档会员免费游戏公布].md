@@ -3434,3 +3434,16 @@ Tom Henderson suggests the PS5 Pro might not launchthis year
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  泰坦失足  
+##### 360#       发表于 2024-7-18 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+明年就是撞硬件大年了，反正我买一个NS2花点钱就满足了，不会去买PS5 Pro的
+

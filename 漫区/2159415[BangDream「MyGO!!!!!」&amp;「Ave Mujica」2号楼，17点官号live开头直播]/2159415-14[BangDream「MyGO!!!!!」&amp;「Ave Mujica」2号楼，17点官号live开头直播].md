@@ -15213,3 +15213,14 @@ go粉给gbc的动画bd销量填线，mygo蹭蹭gbc的热度，二者确实是共
 
 但我寻思着mygo在鸡团动画开播时候蹭热度的意义是什么，总不可能真有日本go粉看不出来这二者的区别对待吧
 
+
+*****
+
+####  NODY  
+##### 20580#       发表于 2024-7-18 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627920&amp;ptid=2159415" target="_blank">滑稽Captain 发表于 2024-7-18 19:21</a>
+
+你说是东映先起意来谈的概率比🐑自己突发奇想去申请蹭一下的概率还要低 ...</blockquote>
+反正生放是这么说的，起因是青木的翻唱，信不信就是自己的事了
+

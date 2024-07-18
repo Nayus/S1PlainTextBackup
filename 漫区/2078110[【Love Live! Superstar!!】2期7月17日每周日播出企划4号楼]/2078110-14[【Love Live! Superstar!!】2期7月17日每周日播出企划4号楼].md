@@ -879,3 +879,14 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  csolfans  
+##### 20594#       发表于 2024-7-18 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623349&amp;ptid=2078110" target="_blank">starring 发表于 2024-7-18 12:14</a>
+
+绵田实力是有的，但必须搭上好的剧本。创形者可以说是木村这撕瞎搞，包括后来的元宇宙也是做成一坨。但是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花田先不说，京极是真的不行，演出做得太差；其实理性来说他才是甲级战犯
+

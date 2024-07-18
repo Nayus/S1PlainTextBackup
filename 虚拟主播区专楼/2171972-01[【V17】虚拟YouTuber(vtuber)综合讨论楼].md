@@ -795,3 +795,21 @@ ebo反而起名方式上和上次nui没啥关联只是他的设定刚好是英�
 就说下柴卡，首先前提，他第一轮不选社，那你觉得和他关系比较好的人还有谁容易第一轮就被选吗，也就LZ加 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想了想也是自己奢望太多，总觉得前三轮居然还能有0撞大家各拿各的有点不够血流成河吧
 
+
+*****
+
+####  zhrs456  
+##### 498#       发表于 2024-7-18 08:40
+
+芙莲最搞笑的是一选社怂了，走同期安全牌，你这样以后还怎么在箱活里玩抢社的梗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，白送的节目效果不敢拿，还是怕数字不稳定啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  poipanchao  
+##### 499#       发表于 2024-7-18 08:45
+
+芙莲这次真有理由抢葛叶的
+不过顶着老叶压力抢葛叶的女v也只有西西干得出来了
+

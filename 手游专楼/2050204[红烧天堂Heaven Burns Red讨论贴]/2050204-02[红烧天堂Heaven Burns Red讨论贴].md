@@ -393,3 +393,14 @@ xdsmjypwr01dv349 已填，感谢
 
 卡就是原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AliceMilky  
+##### 1538#       发表于 2024-7-18 08:16
+
+yzvgxp7ei07dncam
+互填~
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

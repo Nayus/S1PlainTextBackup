@@ -74,3 +74,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然其他动画强是强，不过看完第二集觉得还是物语硬实力第一
 
+
+*****
+
+####  sanxgh571  
+##### 426#       发表于 2024-7-19 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623937&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-18 13:03</a>
+
+怎么办我怕不是被yoasobi驯化了，本来是因为ed的月火可爱，ed循环了几遍后开始觉得undead有点好听了不听勇 ...</blockquote>
+而且会不由自主地哼副歌
+

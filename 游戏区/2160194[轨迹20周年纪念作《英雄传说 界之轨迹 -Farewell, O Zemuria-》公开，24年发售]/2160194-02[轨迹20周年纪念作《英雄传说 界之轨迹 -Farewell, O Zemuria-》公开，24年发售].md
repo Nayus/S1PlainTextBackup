@@ -2915,3 +2915,11 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 1753#       发表于 2024-7-18 15:21
+
+看着像不同图层随便p一起
+

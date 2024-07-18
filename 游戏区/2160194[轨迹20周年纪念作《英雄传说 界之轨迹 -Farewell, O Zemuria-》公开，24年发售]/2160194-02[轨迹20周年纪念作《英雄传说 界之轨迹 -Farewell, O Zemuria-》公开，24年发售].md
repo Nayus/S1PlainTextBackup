@@ -2907,3 +2907,11 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">限定版盒子这次看着还成（）
 
+
+*****
+
+####  kivz  
+##### 1752#       发表于 2024-7-18 15:13
+
+AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

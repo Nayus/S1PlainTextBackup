@@ -3258,3 +3258,26 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 dis逼宫内容很容易猜把，我觉得无非就是有人想让她星力和自己二选一呗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 16886#       发表于 2024-7-18 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628741&amp;ptid=2018830" target="_blank">Cortana 发表于 2024-7-18 20:58</a>
+
+有什么好用的直播翻译插件吗？</blockquote>
+最佳whisper+gpt api，其次jimaku（[https://sayonari.github.io/jimakuChan/](https://sayonari.github.io/jimakuChan/)）+沉浸式翻译走gpt api，再次付费thinkpad会记实时字幕，再再次谷歌浏览器自带日转中字幕或者手机自带翻译字幕
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cortana| + 1|好评加鹅|
+
+查看全部评分
+

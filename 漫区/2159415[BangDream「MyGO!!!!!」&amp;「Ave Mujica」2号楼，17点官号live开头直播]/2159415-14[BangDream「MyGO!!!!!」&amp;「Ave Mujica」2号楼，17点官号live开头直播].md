@@ -15044,3 +15044,56 @@ mv、立绘一坨，看的我都无语，到现在为止能看顺眼的就最开
 砂寸奏那张碟封面真的是一言难尽，没想到后面那张能直接出来个朱八八<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 mujica这张专和送的立牌我倒是挺满意的<img src="https://p.sda1.dev/18/2fbb4dbcc8a254b4c357d91c423b9927/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yninaa  
+##### 20565#       发表于 2024-7-18 18:39
+
+ 本帖最后由 yninaa 于 2024-7-18 18:41 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/18/184124jnqynbhu2hqhdita.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_184117.jpg</strong> (12.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 18:41 上传
+
+隔壁gbc在日本那边热度高，我寻思着你wsd让鸡团和隔壁联动都比mygo联动好吧，就羊宫唱的那样子，我真不好评价
+
+鸡团去联动不仅能蹭蹭热度，主唱实力最起码不会像羊宫那样，这算是个好的宣传了
+
+但你wsd选择在鸡团动画播出的时候，让mygo去联动，不是你wsd这么喜欢mygo吗？你这么喜欢的话，能别把这两个团的号合并吗，这合并了，鸡团注定被当垫脚石
+
+*****
+
+####  Aendst  
+##### 20566#       发表于 2024-7-18 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就b站号合并了而已，官推甚至不是互相关注，b站号还是早点取关吧，没什么关注意义
+
+以及买票看live推荐使用eplus
+
+*****
+
+####  WhiteGlint  
+##### 20567#       发表于 2024-7-18 18:44
+
+[https://ngabbs.com/read.php?tid=39822910](https://ngabbs.com/read.php?tid=39822910)
+
+顺便作为一个纯良立希推，发一下老早之前写的立希x小睦的同人文，说真的感觉这俩在AM里会没啥戏份，立希人气更是惨淡，我收点周边都是买别人配套送的，令人感慨
+
+说真的立希在Mygo动画里也算是推着破车往前走的，真希望mujica里能稍微补点戏份
+
+（直到如今才稍微爬了一下楼，感觉你楼已经车过很多轮了。）
+
+*****
+
+####  Aendst  
+##### 20568#       发表于 2024-7-18 18:45
+
+泥漏从不车角色，并且对立希和立希推要比隔壁善意很多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两个新漏油不懂泥漏环境可以多翻翻前面的内容
+

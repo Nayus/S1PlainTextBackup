@@ -2996,3 +2996,29 @@ menhera低气压抱怨发言感觉也是家常便饭，反正粉丝menhera发颠
 
 所有问题核心点绕不过主播自己想摆就没啥说的
 
+
+*****
+
+####  sino__unnko3  
+##### 16861#       发表于 2024-7-18 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624441&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2024-7-18 13:59</a>
+
+说白了就是等着他组上钩了是吧
+
+那这下愿者上钩了
+
+说起来dis群那事是哪里来源来着，不会是他们组的小天才吧</blockquote>
+dis群是fafa深夜直播的时候她还是房导说的好像
+
+
+*****
+
+####  时间在我手中  
+##### 16862#       发表于 2024-7-18 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624747&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-18 14:25</a>
+
+dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
+那说实话，有些东西其实前后联系挺明显的
+

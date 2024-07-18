@@ -2772,3 +2772,49 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 轨迹原本设计封面的员工是不是跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhuhh  
+##### 1738#       发表于 2024-7-18 14:28
+
+感觉封面上的范恩和学妹站姿比立绘强不少，要是一开始公开的范恩学妹立绘是封面上这个，没准会更好
+
+*****
+
+####  Aeons  
+##### 1739#       发表于 2024-7-18 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">我前几天说凯文主视角多一点，果然
+
+*****
+
+####  悠悠你心  
+##### 1740#       发表于 2024-7-18 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再怎么也不会比黎2封面差吧，就这样吧
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  whzfjk  
+##### 1741#       发表于 2024-7-18 14:30
+
+像碧蓝航线的造船方块
+
+*****
+
+####  Aeons  
+##### 1742#       发表于 2024-7-18 14:30
+
+凯文方石，这把我见过
+
+
+*****
+
+####  Aeons  
+##### 1743#       发表于 2024-7-18 14:33
+
+为啥说是盟主、盟主露肩吗
+

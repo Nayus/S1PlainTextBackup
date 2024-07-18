@@ -15224,3 +15224,50 @@ go粉给gbc的动画bd销量填线，mygo蹭蹭gbc的热度，二者确实是共
 你说是东映先起意来谈的概率比🐑自己突发奇想去申请蹭一下的概率还要低 ...</blockquote>
 反正生放是这么说的，起因是青木的翻唱，信不信就是自己的事了
 
+
+*****
+
+####  相坂君  
+##### 20581#       发表于 2024-7-18 19:40
+
+go粉给gbc销量填线……
+gbc首周是7/2出的，对邦消息是7/5，让我们来看看第二周销量，2725…<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Alicest  
+##### 20582#       发表于 2024-7-18 19:41
+
+看到切片了，羊怎么好意思一边蹭gbc一边说自己“经常宣传mygo”的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20583#       发表于 2024-7-18 19:42
+
+漏油小心被说你们又在烤羊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 20584#       发表于 2024-7-18 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628073&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-18 19:40</a>
+
+go粉给gbc销量填线……
+
+gbc首周是7/2出的，对邦消息是7/5，让我们来看看第二周销量，2725… ...</blockquote>
+就算填线那也是抽对邦live的第四卷啊，买现在发售的抽刺2nd的bd干嘛呢
+

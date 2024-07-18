@@ -14725,3 +14725,38 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 据说萝抢到的基本都是3ms的脚本，反正小群里手抢是全军覆没了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rollingusagi  
+##### 20540#       发表于 2024-7-18 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625622&amp;ptid=2159415" target="_blank">想喝一点点 发表于 2024-07-18 15:44:59</a>
+据说萝抢到的基本都是3ms的脚本，反正小群里手抢是全军覆没了</blockquote>我转了圈感觉是1080有大概3s的时间，其他价位的全都秒没，手动抢到的屈指可数，唉昨天看到票数只有2773就觉得不对劲了，还有票星球上的收藏数昨天也就2w今天直奔4w去了，讲真你萝要下次还来的话真可以直接梅奔走起了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星天观测  
+##### 20541#       发表于 2024-7-18 16:01
+
+也有人手动抢到的 吧，还有一些是抢的回流票
+
+友情提示现在最好别买牛，大部分都是骗人的，没骗到钱可能还能骗到身份信息
+
+
+*****
+
+####  WhiteGlint  
+##### 20542#       发表于 2024-7-18 16:03
+
+下周要去狗的6th看现地了，作为被狗引流来的，之前对邦我还挺喜欢PPP的（爱美很厉害！），相关的剧情是不是直接看动画TV第二季就好<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20543#       发表于 2024-7-18 16:05
+
+如果是喜欢ppp我建议从第一季看起吧，虽然画风有点抽象但是故事没什么问题
+

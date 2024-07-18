@@ -869,3 +869,13 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 企划笑嘻了都 ，真有人帮我挡子弹</blockquote>
 花田那剧本写的太恶意不骂他都不行，而且企划运营从来都是最大战犯，能放任花田那个剧本通过一样被骂
 
+
+*****
+
+####  一个陆仁贾  
+##### 20593#       发表于 2024-7-18 15:59
+
+星二当然可以说是服务业，对上不对下，上面都没说不满意不是？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">换个词的话应该叫XX主义，不行，乱说会被沙头
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

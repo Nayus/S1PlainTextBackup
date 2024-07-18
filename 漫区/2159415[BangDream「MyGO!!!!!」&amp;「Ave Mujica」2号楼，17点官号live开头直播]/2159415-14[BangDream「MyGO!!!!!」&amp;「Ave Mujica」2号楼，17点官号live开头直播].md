@@ -15693,3 +15693,41 @@ ras蝶我觉得会和mygo动画的形式相似，会串场出现，但可能就�
 
 整个mygo动画里没有彩蛋的好像就hhw和ras了
 
+
+*****
+
+####  星天观测  
+##### 20631#       发表于 2024-7-18 20:56
+
+bml后面会放出鸡的演出切片<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20632#       发表于 2024-7-18 20:58
+
+先别hhw了，米歇尔形象没被ban就是胜利
+
+萝肯定是有的吧，喵梦已经定了一个萝厨身份了，总不能萝出场只有ako和rinrin吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我会小梦一手祥子和ykn，睦和千圣，明年看不到我真的会很伤心<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20633#       发表于 2024-7-18 21:02
+
+我还是要从三次元逆输入奶一下layer和海铃是熟人，梦以整天在推特和大姐头一起玩，layer又一直被吐槽人际关系太少，也该给她个后辈了吧
+
+虽然目前动画来看人际关系逆输入要素有点少，不然立希也不会混那么惨了
+
+*****
+
+####  Aendst  
+##### 20634#       发表于 2024-7-18 21:04
+
+这样说来其实喵梦和萝接触的部分，台词上其实就挺“商业乐队才会出现的状况”
+
+能不能被拍摄，要不要联系经纪人/P之类的
+

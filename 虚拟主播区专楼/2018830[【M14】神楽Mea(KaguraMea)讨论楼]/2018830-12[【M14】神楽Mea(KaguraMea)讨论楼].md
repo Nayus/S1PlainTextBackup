@@ -3243,3 +3243,18 @@ dis群是fafa深夜直播的时候她还是房导说的好像</blockquote>
 
 文字版看起来好狂气啊。
 
+
+*****
+
+####  Cortana  
+##### 16884#       发表于 2024-7-18 20:58
+
+有什么好用的直播翻译插件吗？
+
+*****
+
+####  fsfs_freeze  
+##### 16885#       发表于 2024-7-18 21:01
+
+dis逼宫内容很容易猜把，我觉得无非就是有人想让她星力和自己二选一呗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

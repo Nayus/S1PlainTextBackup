@@ -2640,3 +2640,72 @@ qr怎么还是这么简单的二极管思维方式，想让星力死就是让官
 
 说个题外话，我13号去bw的时候下午想买个立牌的，没想到已经卖完了，不知道是因为你麻人气还可以还只是单纯因为备货太少
 
+
+*****
+
+####  ShyCrazydog  
+##### 16830#       发表于 2024-7-18 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623234&amp;ptid=2018830" target="_blank">河西大道左 发表于 2024-7-18 12:03</a>
+星力这本职工作都做不好 不求你搞企划 转推转不明白 转播也转不明白 切片更加幽默 还叫fafa在那打白工呢 有 ...</blockquote>
+这可能就涉及b站那边的规定了，具体规定我们也不知道，看之前的说法是日v想在b站播就得有mcn？
+
+*****
+
+####  TiHaru  
+##### 16831#       发表于 2024-7-18 12:12
+
+才发现昨天爆完还和uruca打了两把jjc
+
+还得是野男人
+
+*****
+
+####  千里夜雨  
+##### 16832#       发表于 2024-7-18 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">官组干活需要顶着mcn不爽，我完全推荐当海盗去，海盗剪视频眼里真的需要有星力这个东西么
+甚至官组咋运营都雨女无瓜
+如果纯海盗视角也剪不出东西，我就认为是魅力下降
+主播和海盗螺旋下降，也是大限已到了
+
+*****
+
+####  掉头学姐  
+##### 16833#       发表于 2024-7-18 12:14
+
+现在开餐馆迟了吗，隐退了去开吧
+
+*****
+
+####  时间在我手中  
+##### 16834#       发表于 2024-7-18 12:15
+
+ 本帖最后由 时间在我手中 于 2024-7-18 12:16 编辑 
+
+吸血的前提是你有血可吸，但是莫名你这傻狗有没有想过
+
+这勾八迫真切片都明白了主播自己根本无所谓这个事实所以最开始标题还是个【爆了】啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+你自己不都清楚很久了吗，主播多少，一直，都沾点很想摆的思想的，如今顺坡下驴那就下，至于你说什么这个运营公司如何如何不上心balabala的
+
+首先，尊重主播个人命运，如果真觉得这样好，至少我<strong>【从来不会】</strong>理会这个，这破事我还以为主播要毕业，结果难听点这不就是我一直说的主播退B安心404，海盗快乐不带脑子随便干干系列吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+其次，这破事涉及了我和同好会以前一些人的看法，内部事我也懒得多说太多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+最后，神乐mea字幕组还是粉丝这屁话你自己信就好了，S1楼友也不是傻逼能信这鬼话<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你转播延迟原来还分小延迟和大延迟的高低分是吧
+
+我也懒得多吵，能不能一起死了的了
+
+*****
+
+####  Leutnant某囧  
+##### 16835#       发表于 2024-7-18 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622877&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 11:30</a>
+
+好久没关注了lol分段了，看了眼，原来主播24年s1赛季大号钻4了都，小号白金4。
+
+难怪看直播觉得她操作进步了 ...</blockquote>
+一方面是mea确实技术变强了，另一方面lol取消晋级赛也是一个原因，之前冲了很多次没成的白金也是没了晋级赛后成功上去的
+

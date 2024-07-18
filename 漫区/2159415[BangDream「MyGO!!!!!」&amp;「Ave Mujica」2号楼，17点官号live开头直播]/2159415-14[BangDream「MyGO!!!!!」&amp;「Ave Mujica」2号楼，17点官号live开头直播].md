@@ -14573,3 +14573,18 @@ pico没看建议补pico，轻松日常
 
 Roselia的票光速没了
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 20525#       发表于 2024-7-18 12:07
+
+哎，明年萝 ras 能不能再来几次，抢票也太难了
+
+*****
+
+####  御景  
+##### 20526#       发表于 2024-7-18 12:10
+
+希望明年都来，也太难了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

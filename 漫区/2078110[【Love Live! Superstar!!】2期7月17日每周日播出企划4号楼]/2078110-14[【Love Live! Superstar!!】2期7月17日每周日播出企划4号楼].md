@@ -793,3 +793,16 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 到时候就好玩了，看他怎么通过三期的剑给自己一二期拉的屎找借口和甩锅都是高层的问题。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">直接快进到京极同意自己这么写，没脸没皮的杂种写那些台词还觉得自己很正常，别人过了那自己就没问题了，真是几匹马都不够你粪田死的。
 
+
+*****
+
+####  starring  
+##### 20586#       发表于 2024-7-18 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622799&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-18 11:24</a>
+绵田真用实力证明是木村畅的问题，木村畅这个人是真的硬，他当系构写的东西真的是一言难尽，谁敢说编剧是 ...</blockquote>
+绵田实力是有的，但必须搭上好的剧本。创形者可以说是木村这撕瞎搞，包括后来的元宇宙也是做成一坨。但是创战者try是绵田监督，黑田洋介剧本，成品一样不行。不明不白的3v3，风评仅次于陆姥爷的红毛猴子，这些问题都很明显，绵田在访谈里也提过一些桥段是自己的主意。
+京极和花田这两个战犯，要么上头捂嘴了，要么是真不上心，目前看来是后者。花田的gbc写的好可以赞也会赞，但是我就更加看不起他。对两个企划偏心得这么明显还每周显摆生怕别人不知道自己有多讨厌星<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">为了恶心观众，连自己的风情都可以不要，星三不换走他就不要想能够好起来
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

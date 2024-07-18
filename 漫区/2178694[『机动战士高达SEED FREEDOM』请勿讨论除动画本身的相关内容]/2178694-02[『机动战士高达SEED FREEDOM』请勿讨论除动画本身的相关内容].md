@@ -37,3 +37,14 @@
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">AEMedia直接倒出来了
 
+
+*****
+
+####  无动于衷  
+##### 1817#       发表于 2024-7-18 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65560950&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-7-12 11:08</a>
+
+福田这个补完，感觉鸟用对机子+不再迷茫，比基拉还强吧，至少基拉不会分身，只是躲得快吧？ ...</blockquote>
+那不就等于没了命运就是fw嘛 一转高级黑了属于是
+

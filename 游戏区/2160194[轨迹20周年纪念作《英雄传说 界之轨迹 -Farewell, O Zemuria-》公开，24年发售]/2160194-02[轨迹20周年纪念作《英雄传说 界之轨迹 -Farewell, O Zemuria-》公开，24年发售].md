@@ -2722,3 +2722,30 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 由手机上传
 2024-7-18 14:04 上传
 
+
+*****
+
+####  Squall25  
+##### 1733#       发表于 2024-7-18 14:13
+
+ 本帖最后由 Squall25 于 2024-7-18 14:15 编辑 
+
+翻了半天，原来是日亚泄露的，不是官宣的，怪不得x上没人发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好像上次黎恩和黑兔的立绘也是日亚泄露的
+
+*****
+
+####  一步成诗  
+##### 1734#       发表于 2024-7-18 14:14
+
+不过也不一定上封面就戏份多，想想黎2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1735#       发表于 2024-7-18 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2的封面三路人还是太重量级了，应该不至于复刻，吧
+
+但是上封面确实不等于不会路人（
+

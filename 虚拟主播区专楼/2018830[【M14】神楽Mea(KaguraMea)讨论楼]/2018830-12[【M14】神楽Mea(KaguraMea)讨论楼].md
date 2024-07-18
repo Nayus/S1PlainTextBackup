@@ -3381,3 +3381,24 @@ dis逼宫内容很容易猜把，我觉得无非就是有人想让她星力和�
 早tm该解绑当个人势了，这日子过的。犬山这边也是养一批走一批。刚去看了眼去当个人势的日子过的也不好， ...</blockquote>
 小绿404频道的涨粉速度可比mea快多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 16896#       发表于 2024-7-19 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628515&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 20:29</a>
+
+我要休息了，听着心痛</blockquote>
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+slicer_opt.list
+(121.42 KB, 下载次数: 0)
+
+2024-7-19 01:18 上传
+
+点击文件名下载附件
+
+拉了份日文版的作双语对照，不知道日文识别的准确率如何
+

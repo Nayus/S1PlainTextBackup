@@ -3288,3 +3288,46 @@ Screenshot_20240718_214220.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/18/214616jkqxc5hc5qvv2gxx.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 1787#       发表于 2024-7-18 21:48
+
+剑仙也有佛珠
+
+<img src="https://img.saraba1st.com/forum/202407/18/214837koyntk6462ppjtqs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240718_214749.jpg</strong> (129.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 21:48 上传
+
+
+*****
+
+####  corenel  
+##### 1788#       发表于 2024-7-18 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629176&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-18 21:46</a>
+妮娜应该信奉东方宗教吧
+
+称呼法王猊下，而不是法王殿，猊下是日本佛教中的一个用词
+
+ ...</blockquote>
+我记得以前也是用这个尊称的。
+
+法国の代表者は七耀教会の法王が兼ねるとされる。尊称は猊下。
+
+3rd的脚本里面也有
+
+[https://trailsinthedatabase.com/game-scripts?p=1&amp;q=Dominion](https://trailsinthedatabase.com/game-scripts?p=1&amp;q=Dominion)
+
+本日をもって貴公を
+《守護騎士ドミニオン》第五位に迎える。
+
+これは封聖省による決定事項であり、
+法王猊下もすでに承認されたことだ。
+

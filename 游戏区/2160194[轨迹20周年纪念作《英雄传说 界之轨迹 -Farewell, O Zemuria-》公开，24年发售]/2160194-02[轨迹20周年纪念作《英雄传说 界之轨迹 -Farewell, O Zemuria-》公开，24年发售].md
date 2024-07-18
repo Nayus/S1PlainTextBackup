@@ -2639,3 +2639,36 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 后面是妮娜和盟主了吧，中间的正方体是啥
 
+
+*****
+
+####  byisme001  
+##### 1725#       发表于 2024-7-18 13:50
+
+女演员级别这么高，和盟主背靠背，op什么时候出啊
+
+*****
+
+####  无动于衷  
+##### 1726#       发表于 2024-7-18 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624273&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-18 13:43</a>
+
+后面是妮娜和盟主了吧，中间的正方体是啥</blockquote>
+看着挺像3rd那个方石（并不 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 1727#       发表于 2024-7-18 13:53
+
+说重要但妮娜连正式立绘都没有，虽然说不入队没有也一样但是总统就有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 1728#       发表于 2024-7-18 13:55
+
+黎恩为什么是立绘
+

@@ -2895,3 +2895,60 @@ twitch是只能留两个月的档</blockquote>
 
 虽然刚听到一句要不以后youtube以外干脆别整了，然后光速改口嘘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 16853#       发表于 2024-7-18 13:49
+
+ 本帖最后由 TiHaru 于 2024-7-18 13:51 编辑 
+<blockquote>但是今天大概是会来的吧?我是这样想的所以开了棉花糖,没想到真的有人发啊笑死</blockquote><blockquote>读评论"都后天了应该不会烧了吧" 确实啊,我到了后天就不会被烧了吗?不可能吧?绝对有"烧吧!"之类的人,好烦啊</blockquote>又被主播预判了
+
+*****
+
+####  TiHaru  
+##### 16854#       发表于 2024-7-18 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624308&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2024-7-18 13:46</a>
+
+前面对比以前确实算情绪稳定，后面30min开始主播给我感觉就是有种想喷不好喷的感觉不得不说还是驯化了啊！ ...</blockquote>
+就是想说b站不干了,但是怕被落了口实,马上改口说推特也不干了
+
+*****
+
+####  时间在我手中  
+##### 16855#       发表于 2024-7-18 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624335&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 13:49</a>
+
+又被主播预判了</blockquote>
+快听到你说的那部分了，所以怎么棉花糖精选出这么个的玩意儿的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我听下来感觉主播没啥变化，一直就这吊样
+
+menhera低气压抱怨发言感觉也是家常便饭，反正粉丝menhera发颠也是主播生态圈不得不品的一环
+
+因为是他组的玩意儿咋就有人**上了呢，啊哈哈
+
+
+*****
+
+####  时间在我手中  
+##### 16856#       发表于 2024-7-18 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624364&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 13:52</a>
+
+就是想说b站不干了,但是怕被落了口实,马上改口说推特也不干了</blockquote>
+后面57min感觉主播还是红温了，难绷
+
+诶不是，这是什么新潮的爱的表达方式吗，是不是看神木光那玩法有感而发
+
+*****
+
+####  TiHaru  
+##### 16857#       发表于 2024-7-18 13:57
+
+是“为了爆，所以开了棉花糖”而不是“因为收到了棉花糖所以爆了”，类似于女友给你挖个坑借机分手，所以有这种棉花糖就一定会读
+
+另外主播的认知是30分钟左右开始就会暴走所以50多分钟的时候失控了很正常
+

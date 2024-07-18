@@ -2818,3 +2818,50 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 为啥说是盟主、盟主露肩吗
 
+
+*****
+
+####  卢迪克  
+##### 1744#       发表于 2024-7-18 14:37
+
+<img src="https://img.saraba1st.com/forum/202407/18/143711wxskwwam116t2d6u.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_142219.jpg</strong> (45.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/143744e11wb10w9jysgozo.jpg" referrerpolicy="no-referrer">
+
+<strong>89B56B293538736A4CD838965B49C668.jpg</strong> (84.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/143749i2yjf2fr9r9ofjr5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240718_143642.jpg</strong> (154.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 14:37 上传
+
+*****
+
+####  Aeons  
+##### 1745#       发表于 2024-7-18 14:38
+
+我草，真露肩，是我想当然了
+
+*****
+
+####  ravend233  
+##### 1746#       发表于 2024-7-18 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基本就是盟主和妮娜
+

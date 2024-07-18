@@ -14910,3 +14910,13 @@ random star据说现在产能很不足，生产线全在做狗琴</blockquote>
 
 明年等你开箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 20557#       发表于 2024-7-18 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">只能先攒钱了，真要超过2w软是拿不下来了（）
+
+之前看ar06白金撞色的1w多点，不知道ar07到时又会是什么定价了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+

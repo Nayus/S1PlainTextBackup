@@ -2709,3 +2709,77 @@ qr怎么还是这么简单的二极管思维方式，想让星力死就是让官
 难怪看直播觉得她操作进步了 ...</blockquote>
 一方面是mea确实技术变强了，另一方面lol取消晋级赛也是一个原因，之前冲了很多次没成的白金也是没了晋级赛后成功上去的
 
+
+*****
+
+####  ashero  
+##### 16836#       发表于 2024-7-18 12:18
+
+日服LOL应该也开那个新的类吸血鬼幸存者模式了 主播的下一个战场在那里<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 16837#       发表于 2024-7-18 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623398&amp;ptid=2018830" target="_blank">ashero 发表于 2024-7-18 12:18</a>
+
+日服LOL应该也开那个新的类吸血鬼幸存者模式了 主播的下一个战场在那里</blockquote>
+大号打了20把了，直播号和野男人们打了2把。同接还行。
+
+
+*****
+
+####  秋游刃  
+##### 16838#       发表于 2024-7-18 12:22
+
+我感觉做好转播，转推就行了，甚至只做好转播就行，看样子这个要求可以提，挺合理。至于剩下的切片，企划什么的就别期待了，这样对谁都好。你咩就是不想上班完成KPI才选择的个人势，自己404周年的企划都丢犬山了。
+
+只不过有观众觉得自己受冷落了也在所难免，是翻出去还是脱粉都合理。
+
+去年跟前年她404摆了，我也在楼里发了两年颠，如果不是今年好点了我可能也润了。
+
+*****
+
+####  秋游刃  
+##### 16839#       发表于 2024-7-18 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623057&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 11:46</a>
+
+你不如说星力完全了解了她的性格，完全不操纵她。但凡换个靠谱点的运营，这每月的kpi总要有规定的。星力不 ...</blockquote>
+我差不多也这看法，好像lulu说的上海姐姐就是星力的这位，估计lulu也在吧，猜的。
+
+*****
+
+####  时间在我手中  
+##### 16840#       发表于 2024-7-18 12:25
+
+我的评价就是干脆彻底切割，换谁来你都改不了主播想法的话干脆选择放弃，好聚好散也不是什么坏事
+
+至少我退了的时候是半句屁话没有，不是被人大半夜私聊这批事我都懒得关注，主播活着我觉得我就万事ok<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 16841#       发表于 2024-7-18 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623325&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 12:12</a>
+
+才发现昨天爆完还和uruca打了两把jjc
+
+还得是野男人</blockquote>
+别说了，我最难受的就是这个<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 16842#       发表于 2024-7-18 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623420&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 12:20</a>
+大号打了20把了，直播号和野男人们打了2把。同接还行。
+
+车队里的好几个人都有剪辑人，有专业的也有野生的 ...</blockquote>
+有些东西没有就是没有 没法强求的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+主播自己都不喜欢留档 剪的难度再高一层 
+

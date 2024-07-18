@@ -14588,3 +14588,16 @@ Roselia的票光速没了
 
 希望明年都来，也太难了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 20527#         楼主| 发表于 2024-7-18 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622974&amp;ptid=2159415" target="_blank">ml1642879 发表于 2024-7-18 11:38</a>
+
+萌新求问，刚看完三季+关岛剧场版，接下来看什么，蝶团感觉不好听，不想看了，直接看游戏剧情录屏吗 ...</blockquote>
+r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的是live音源），pico，还有pp主角的pico前传，当然最多的内容还是游戏录像。
+
+至于蝶OVA.....蝶现在是新团里唯一没有TV的，武士道直接跳过蝶拍了MyGO和Mujica，蝶OVA单纯就是不给蝶一个动画说不过去就随便拍一个，但是这玩意连平庸都算不上，属于凑数都没认真凑，算是整个邦系列的耻辱。
+

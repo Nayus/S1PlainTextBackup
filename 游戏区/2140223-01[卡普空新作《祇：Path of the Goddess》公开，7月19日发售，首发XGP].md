@@ -35,3 +35,14 @@ demo时候就有个疑问 刀斧手打死自爆怪以后会自己智能远离吗
 
 这视角转的也太难受了吧，他妈的转来转去转的连角色都看不到。
 
+
+*****
+
+####  weiduopla  
+##### 77#       发表于 2024-7-19 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597236&amp;ptid=2140223" target="_blank">Emmerich 发表于 2024-7-16 08:39</a>
+
+demo时候就有个疑问 刀斧手打死自爆怪以后会自己智能远离吗 还是必须手动拖走 未免有点麻烦 ...</blockquote>
+不用，自爆怪打死变蓝后只能炸怪。
+

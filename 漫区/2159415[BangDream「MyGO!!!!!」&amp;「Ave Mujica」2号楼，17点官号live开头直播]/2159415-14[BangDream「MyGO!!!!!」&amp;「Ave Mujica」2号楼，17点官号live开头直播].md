@@ -14865,3 +14865,48 @@ random star据说现在产能很不足，生产线全在做狗琴</blockquote>
 
 不过李子拿手里的时候真的是太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20554#       发表于 2024-7-18 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626257&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-7-18 16:35</a>
+
+李子这把斯科特要是出联名我不敢想要多少钱了邦多利那些E标的都要2,3w起的样子，不知道斯科特会不会中端 ...</blockquote>
+初华琴应该是还没出，明年应该就有了，之前好像看到过宣传，鸡的琴感觉都还不错
+
+（不过我只想买初华的琴+lisa的贝斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  WhiteGlint  
+##### 20555#       发表于 2024-7-18 16:41
+
+鸡的琴确实比较对我胃口，斯科特的造型都是那种比较收敛的“潮”。ESP的漆面风格感觉都有点....不知道怎么说，土土的味道。
+
+（虽然还在用1000块的GRX40练习，但是已经在看万把块的琴了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  星天观测  
+##### 20556#       发表于 2024-7-18 16:43
+
+<img src="https://img.saraba1st.com/forum/202407/18/164341uzj1cvr4j4jgj11b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240718164335.png</strong> (48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 16:43 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/164341sh5227qpe89f67h1.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240718164342.png</strong> (46.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 16:43 上传
+
+明年等你开箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2871,3 +2871,27 @@ twitch是只能留两个月的档</blockquote>
 她当年可是除了剪辑一点档都不留的。</blockquote>
 说的以前有剪辑一样，byd装好下载视频那个软件一上去啥都没，剪辑我记得好像还是某种迫真自动生成还是什么粉丝分享之类的，结果现在没看了留了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">难绷
 
+
+*****
+
+####  sino__unnko3  
+##### 16851#       发表于 2024-7-18 13:44
+
+ 本帖最后由 sino__unnko3 于 2024-7-18 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623656&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2024-7-18 12:40</a>
+
+说的以前有剪辑一样，byd装好下载视频那个软件一上去啥都没，剪辑我记得好像还是某种迫真自动生成还是什么 ...</blockquote>
+真的是温顺吗。。9分钟和18分钟这两次感觉已经在发疯了。。。甚至是砸桌子砸墙，控制不住情绪那种狂怒转大笑，但你咩不愧心理学pro，至少转换了
+
+*****
+
+####  时间在我手中  
+##### 16852#       发表于 2024-7-18 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65624283&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-18 13:44</a>
+
+真的是温顺吗。。9分钟和18分钟这两次感觉已经在发疯了。。。甚至是砸桌子砸墙 ...</blockquote>
+前面对比以前确实算情绪稳定，后面30min开始主播给我感觉就是有种想喷不好喷的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不得不说还是驯化了啊！
+
+虽然刚听到一句要不以后youtube以外干脆别整了，然后光速改口嘘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

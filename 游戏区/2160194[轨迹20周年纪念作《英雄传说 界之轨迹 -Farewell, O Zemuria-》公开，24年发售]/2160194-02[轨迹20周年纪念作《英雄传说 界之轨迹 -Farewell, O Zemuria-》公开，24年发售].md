@@ -2615,3 +2615,27 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 感觉应该会是个新绘的图，最多可能质量不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1723#       发表于 2024-7-18 13:40
+
+来了，比黎2强
+
+456.jpg
+(55.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 13:40 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/134038ngnnbix06a6p3zln.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 1724#       发表于 2024-7-18 13:43
+
+后面是妮娜和盟主了吧，中间的正方体是啥
+

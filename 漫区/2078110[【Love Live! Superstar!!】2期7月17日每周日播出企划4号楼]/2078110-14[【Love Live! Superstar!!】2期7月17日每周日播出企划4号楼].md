@@ -847,3 +847,25 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 只要牛哥想 冷都能变烫……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20591#       发表于 2024-7-18 13:42
+
+ 本帖最后由 ads147147 于 2024-7-18 13:46 编辑 
+
+[https://bbs.nga.cn/read.php?tid=40845208](https://bbs.nga.cn/read.php?tid=40845208)
+
+隔壁直播到第八话了，现在还卡着最重量级那段，怕不是蚌住了。wish song就是被这集彻底毁掉的。。。
+
+*****
+
+####  starring  
+##### 20592#       发表于 2024-7-18 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623810&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-7-18 12:52</a>
+
+企划笑嘻了都 ，真有人帮我挡子弹</blockquote>
+花田那剧本写的太恶意不骂他都不行，而且企划运营从来都是最大战犯，能放任花田那个剧本通过一样被骂
+

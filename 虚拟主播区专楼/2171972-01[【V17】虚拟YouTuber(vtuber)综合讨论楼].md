@@ -784,3 +784,14 @@ ebo反而起名方式上和上次nui没啥关联只是他的设定刚好是英�
 
 可惜柴卡也是眉笔，最后一轮50%概率没选到索菲，不然节目效果拉满了
 
+
+*****
+
+####  高等黑暗  
+##### 497#       发表于 2024-7-18 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65620707&amp;ptid=2171972" target="_blank">pansherry 发表于 2024-7-18 07:44</a>
+
+就说下柴卡，首先前提，他第一轮不选社，那你觉得和他关系比较好的人还有谁容易第一轮就被选吗，也就LZ加 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">想了想也是自己奢望太多，总觉得前三轮居然还能有0撞大家各拿各的有点不够血流成河吧
+

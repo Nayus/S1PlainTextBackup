@@ -2783,3 +2783,62 @@ qr怎么还是这么简单的二极管思维方式，想让星力死就是让官
 有些东西没有就是没有 没法强求的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 主播自己都不喜欢留档 剪的难度再高一层 
 
+
+*****
+
+####  路人庚  
+##### 16843#       发表于 2024-7-18 12:29
+
+神乐mea的一生，就是与吸血鬼相伴的一生（神乐mea jojo说）
+
+*****
+
+####  古战场亡魂  
+##### 16844#       发表于 2024-7-18 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623518&amp;ptid=2018830" target="_blank">ashero 发表于 2024-7-18 12:27</a>
+
+有些东西没有就是没有 没法强求的
+
+主播自己都不喜欢留档 剪的难度再高一层  ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/18/123129aeeme8me45p819je.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (787.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 12:31 上传
+
+
+*****
+
+####  时间在我手中  
+##### 16845#       发表于 2024-7-18 12:36
+
+说起来听说主播现在图奇打撸混起来了，这水平疑似也迫真起来了点，然而说实话似乎也没啥人剪辑
+
+不得不说有时候我其实很好奇连那个壳都没有之后这群人究竟是什么驱使着半年后搞这种发颠事的
+
+byd，听到这段了，感觉主播还是被驯化的太温顺了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">很喜欢别人和我说的，18年两成功力的主播.jpg
+
+主播直播还是太礼貌了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 16846#       发表于 2024-7-18 12:36
+
+只会吸血这一个b话术了是不是
+
+字幕组里有没有粉丝我不知道 这几个趴在主播身上狂吸的肯定不是粉丝
+
+*****
+
+####  TiHaru  
+##### 16847#       发表于 2024-7-18 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623562&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 12:31</a>
+两个月前开始留档了</blockquote>
+twitch是只能留两个月的档
+

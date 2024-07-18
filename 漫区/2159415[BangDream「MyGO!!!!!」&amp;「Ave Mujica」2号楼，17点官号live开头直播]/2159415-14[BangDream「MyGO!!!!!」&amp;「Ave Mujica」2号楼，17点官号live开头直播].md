@@ -14601,3 +14601,27 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 至于蝶OVA.....蝶现在是新团里唯一没有TV的，武士道直接跳过蝶拍了MyGO和Mujica，蝶OVA单纯就是不给蝶一个动画说不过去就随便拍一个，但是这玩意连平庸都算不上，属于凑数都没认真凑，算是整个邦系列的耻辱。
 
+
+*****
+
+####  紫吹兰  
+##### 20528#         楼主| 发表于 2024-7-18 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623155&amp;ptid=2159415" target="_blank">平昭·南宫司卿 发表于 2024-7-18 11:56</a>
+
+那当然是三季 pico 必须看，live film 喜欢听歌的话可以看看本身就只有 3d 动画 live，然后 circle thanks  ...</blockquote>
+彩彩头像但是单独漏了PP小动画是吧<img src="https://static.saraba1st.com/image/smiley/face2017/275.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  平昭·南宫司卿  
+##### 20529#       发表于 2024-7-18 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623550&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-7-18 12:30</a>
+
+彩彩头像但是单独漏了PP小动画是吧</blockquote>
+草确实忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过感觉 pastel life 感觉没啥意思，放开程度有待提高（虽然贡献了 eve 的混沌表情
+
+虽然是彩彩头像但我本质是 amita 厨，彩彩是附加品（不是
+

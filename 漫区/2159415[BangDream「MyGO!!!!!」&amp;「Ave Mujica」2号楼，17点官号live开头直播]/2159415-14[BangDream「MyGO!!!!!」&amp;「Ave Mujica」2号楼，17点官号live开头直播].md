@@ -15497,3 +15497,54 @@ elements估计是对邦了，不过也有可能再临时塞一个单独Live<img 
 
 我对mygo的另外四个人没啥意见，但我唯独对羊宫有很大的偏见
 
+
+*****
+
+####  御幸一也  
+##### 20609#       发表于 2024-7-18 20:28
+
+要我說真心話，她又不是ave的主唱，真的無關心羊宮如何如何<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20610#       发表于 2024-7-18 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628448&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-18 20:21</a>
+
+鼓子手上活多可以没有立希，但角色厨角度来说立希真不能没有鼓子
+
+打鼓pro可能好找，但一个能在各种访谈场合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好像確實，我對立希的好感很多也都是鼓子拉過去的
+
+高尾大親友的含金量，愛屋及烏了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 20611#       发表于 2024-7-18 20:30
+
+我记得coco说过事要一件一件做好（大意）立希遇到这种敬业的也算是一种幸运吧
+
+*****
+
+####  Aendst  
+##### 20612#       发表于 2024-7-18 20:31
+
+<blockquote>羊宮跟mujica又没关系，只有关心mygo的人才会在乎羊宮</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么说呢
+
+*****
+
+####  NODY  
+##### 20613#       发表于 2024-7-18 20:31
+
+萝爹销量是倍杀gbc的，抱上萝爹大腿而且是动画开播前半个月帮忙引流，比动画期间不练自家新歌而是花时间去蹭别的企划要强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20614#       发表于 2024-7-18 20:34
+
+我不怎么关注声优，不过林鼓子相当认真努力敬业也是能马上看出来的
+

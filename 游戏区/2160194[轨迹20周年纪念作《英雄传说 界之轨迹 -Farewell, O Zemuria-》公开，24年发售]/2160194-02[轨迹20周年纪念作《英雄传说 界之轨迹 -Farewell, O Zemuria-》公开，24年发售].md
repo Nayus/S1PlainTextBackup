@@ -2923,3 +2923,48 @@ AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="http
 
 看着像不同图层随便p一起
 
+
+*****
+
+####  宛若青空  
+##### 1754#       发表于 2024-7-18 15:26
+
+<img src="https://img.saraba1st.com/forum/202407/18/152622odh3ed1ijn83e1eu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6288B592-A5A7-43C2-8EF1-E0E666CADB09.jpeg</strong> (214.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 15:26 上传
+
+上次浮雕还是创轨电击特典的盟主浮雕
+
+*****
+
+####  Aeons  
+##### 1755#       发表于 2024-7-18 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所以这个女的是谁，盟主给形象了不穿这样，二合一吗
+
+
+*****
+
+####  一步成诗  
+##### 1756#       发表于 2024-7-18 15:31
+
+是盟主原本的形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于是人是神还是别的什么就不好说了
+
+*****
+
+####  宛若青空  
+##### 1757#       发表于 2024-7-18 15:32
+
+可能是学妹和创世的合体形象<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1758#       发表于 2024-7-18 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正候选就那几个，女神本尊，盟主换了套新衣服，或者其他角色什么角色的最终形态（）
+

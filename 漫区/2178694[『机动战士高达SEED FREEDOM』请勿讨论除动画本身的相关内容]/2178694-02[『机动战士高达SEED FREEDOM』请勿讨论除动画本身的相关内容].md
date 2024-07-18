@@ -69,3 +69,15 @@
 AEMedia直接倒出来了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">翻了下还真是
 
+
+*****
+
+####  凤舞夜月  
+##### 1820#       发表于 2024-7-18 15:32
+
+再看了几次，好像杂兵机，就只有毁灭是被直接直击击穿腰部，捅穿腰部，大概率驾驶员活不下来的样子。
+
+其他普通杂兵机大概率都能活下来？》
+
+是不是有点双标<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

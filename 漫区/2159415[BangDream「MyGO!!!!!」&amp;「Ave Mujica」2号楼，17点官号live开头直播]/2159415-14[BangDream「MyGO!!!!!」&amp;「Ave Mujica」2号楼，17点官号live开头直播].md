@@ -15404,3 +15404,44 @@ elements估计是对邦了，不过也有可能再临时塞一个单独Live<img 
 
 这下身为武士道音乐的社长给换成supalove也合理了，因为元素花园和木谷建立了良好的合作关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 20599#       发表于 2024-7-18 20:06
+
+东映赢不赢我知道，反正他家大业大，更何况gbc碟片热度都赢麻了
+
+刺团狗团对邦就对邦，拉鸡动画开播出来说做什么，就算看出区别对待，还得让鸡延期个一季，让让对邦时间？没必要带上等了一年的底边团说话吧
+
+*****
+
+####  NODY  
+##### 20600#       发表于 2024-7-18 20:08
+
+只能说狗这个现状比较尴尬，主唱吃了好处不干事，三次元营业和宣传最努力还帮忙拉了人脉的青木和鼓角色待遇偏偏不太行，现在开始推猫算是意思意思补偿青木了，人开播前上街给你狗卖唱宣传开播后又牵线东映大腿的，作为一个边缘位已经很拼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 20601#       发表于 2024-7-18 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65628317&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-7-18 20:06</a>
+
+东映赢不赢我知道，反正他家大业大，更何况gbc碟片热度都赢麻了
+
+刺团狗团对邦就对邦，拉鸡动画开播出来说做 ...</blockquote>
+那人说的是明年一月应该让鸡去和gbc对邦，让鸡动画蹭上gbc热度
+
+不过动画期间不以自家为主而是花时间去抱其他企划大腿本身也不太现实就是了，动画正是新歌最多的时候，不留给自家live拿去给对邦唱才离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20602#       发表于 2024-7-18 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mujica推都不会怎么在乎企划外联动对邦的吧，实打实把自身内容质量做好才是最有用的
+
+先把动画和正常mv放上来才比较重要
+

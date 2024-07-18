@@ -587,3 +587,16 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  evestart  
+##### 20570#       发表于 2024-7-18 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621210&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-18 09:08</a>
+
+不是原本多不多的意思。
+
+他这样的做派很让人反胃。</blockquote>
+他发表感想比较多的也就谬时期吧，水团的时候就话不多了，星团的时候基本就和禁言了一样
+

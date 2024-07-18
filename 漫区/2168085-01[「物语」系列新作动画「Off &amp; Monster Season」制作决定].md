@@ -66,3 +66,11 @@
 
 这作监越来越多了，希望只是shaft在练新人吧
 
+
+*****
+
+####  kenqqex  
+##### 425#       发表于 2024-7-19 00:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虽然其他动画强是强，不过看完第二集觉得还是物语硬实力第一
+

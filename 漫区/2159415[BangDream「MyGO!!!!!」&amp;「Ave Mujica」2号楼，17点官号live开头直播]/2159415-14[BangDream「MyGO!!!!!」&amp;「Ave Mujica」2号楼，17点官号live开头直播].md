@@ -14641,3 +14641,11 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 阿这，我是看完第一季就去看ras两部剧场版了，请问之后比较推荐的观影顺序是什么
 
+
+*****
+
+####  shigure_ee  
+##### 20532#       发表于 2024-7-18 13:07
+
+听不到萝感觉生无可恋了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

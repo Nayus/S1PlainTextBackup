@@ -15779,3 +15779,17 @@ i83不清楚不是很正常么，社长在狗动画也就是ring里那几句台�
 那麼就不能端上來新翻唱嗎 那幾首真聽膩了</blockquote>
 比起老是被骂xxx写曲不行，不如给李子再多找点anisong翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 20640#       发表于 2024-7-18 21:39
+
+<img src="https://img.saraba1st.com/forum/202407/18/213946pc5ljvjhj5h88hhh.png" referrerpolicy="no-referrer">
+
+<strong>@MZXOS3G)))9]Y[ZXUJXL91.png</strong> (76.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 21:39 上传
+

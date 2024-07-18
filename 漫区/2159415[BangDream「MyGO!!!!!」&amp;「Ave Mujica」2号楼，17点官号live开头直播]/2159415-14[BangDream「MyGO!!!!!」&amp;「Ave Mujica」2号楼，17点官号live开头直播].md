@@ -14760,3 +14760,21 @@ r剧场版，两个film live（注意fl1用的是cd音源，fl2真人队用的�
 
 如果是喜欢ppp我建议从第一季看起吧，虽然画风有点抽象但是故事没什么问题
 
+
+*****
+
+####  WhiteGlint  
+##### 20544#       发表于 2024-7-18 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">收到收到，去完6th现地之后慢慢补吧，今天Roselia票没抢到真的被黄牛气死，已经想备战武藏野了
+
+*****
+
+####  想喝一点点  
+##### 20545#       发表于 2024-7-18 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625823&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2024-7-18 16:01</a>
+
+我转了圈感觉是1080有大概3s的时间，其他价位的全都秒没，手动抢到的屈指可数，唉昨天看到票数只有2773就觉 ...</blockquote>
+怎么看到票数的？
+

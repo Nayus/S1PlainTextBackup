@@ -3006,3 +3006,23 @@ AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="http
 
 妮娜真上位了，应该会有新立绘吧
 
+
+*****
+
+####  光之阶梯  
+##### 1764#       发表于 2024-7-18 16:12
+
+葱头这脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  新世界的派蒙  
+##### 1765#       发表于 2024-7-18 16:14
+
+封面看着不像轨迹像星之海洋
+
+是不是剧情也要搞出一个新的星球来
+

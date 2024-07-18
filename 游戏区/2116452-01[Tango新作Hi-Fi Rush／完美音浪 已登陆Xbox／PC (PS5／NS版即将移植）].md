@@ -10,3 +10,16 @@
 
 好游戏，很久没玩得这么畅快了
 
+
+*****
+
+####  stoiorz  
+##### 492#       发表于 2024-7-18 18:22
+
+看到这个楼想起了GDC里制作人发的游戏的一些设计思路。
+[https://www.youtube.com/watch?v= ... &amp;ab_channel=GDC](https://www.youtube.com/watch?v=pG4UxqRMNX0&amp;t=485s&amp;ab_channel=GDC)
+
+在节奏和音频设计上真的很棒，拟合到音轨的思路很棒。根据歌曲的节奏来设计游戏战斗的频率等等都在潜移默化提升了玩家体验。
+
+tango解散，xbox真是不懂游戏。
+

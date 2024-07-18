@@ -14990,3 +14990,46 @@ Ar06黑色官网好像点不进去了，可能是怕你们买黑色的06改金�
 
 这是贼喊捉贼还是？
 
+
+*****
+
+####  yninaa  
+##### 20562#       发表于 2024-7-18 18:20
+
+<img src="https://img.saraba1st.com/forum/202407/18/181355w6frffrc7fag33ca.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_181343.jpg</strong> (212.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 18:13 上传
+
+第一次发言，有点生气，请多见谅
+
+之前不是有人说鸡团下半年会有宣传吗，这都快八月了，按理说已经算是下半年了吧，鸡团咋还是啥都没有啊
+
+<img src="https://img.saraba1st.com/forum/202407/18/181439sbf2cbb4xbm2vzgm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_181237.jpg</strong> (1002.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 18:14 上传
+
+自证一下我是鸡粉，我是感觉wsd这行为真xx，mygo在开播前一年基本就有小动画之类的东西了，马上mygo总结篇剧场版都要出来了，咱们鸡团到现在啥都没有
+
+mv、立绘一坨，看的我都无语，到现在为止能看顺眼的就最开始的黑色生日，不是wsd你没能力出两个团能别出吗？看到你这公司我真感觉晦气
+
+*****
+
+####  Aendst  
+##### 20563#       发表于 2024-7-18 18:24
+
+ 本帖最后由 Aendst 于 2024-7-18 18:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我相信mujica推都会为这件事感到生气
+
+泥漏大部分人其实也都是这样想的，没有任何自证的必要
+
+不管是出于什么原因，mujica方面资源相当贫乏是正常人都肉眼可见的，为此不满再正常不过了
+

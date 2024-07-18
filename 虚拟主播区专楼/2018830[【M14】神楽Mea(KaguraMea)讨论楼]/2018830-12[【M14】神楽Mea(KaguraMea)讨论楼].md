@@ -2842,3 +2842,32 @@ byd，听到这段了，感觉主播还是被驯化的太温顺了<img src="http
 两个月前开始留档了</blockquote>
 twitch是只能留两个月的档
 
+
+*****
+
+####  ashero  
+##### 16848#       发表于 2024-7-18 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623562&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 12:31</a></blockquote>
+一开始倒是不留的 那就是不知道什么时候开始留档了 得承认主播开图奇我是不怎么看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 16849#       发表于 2024-7-18 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623608&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-7-18 12:37</a>
+
+twitch是只能留两个月的档</blockquote>
+她当年可是除了剪辑一点档都不留的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16850#       发表于 2024-7-18 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623633&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 12:38</a>
+
+她当年可是除了剪辑一点档都不留的。</blockquote>
+说的以前有剪辑一样，byd装好下载视频那个软件一上去啥都没，剪辑我记得好像还是某种迫真自动生成还是什么粉丝分享之类的，结果现在没看了留了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">难绷
+

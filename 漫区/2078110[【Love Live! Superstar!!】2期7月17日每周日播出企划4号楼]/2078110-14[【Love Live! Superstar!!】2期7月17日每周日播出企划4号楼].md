@@ -627,3 +627,42 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  ads147147  
+##### 20573#       发表于 2024-7-18 10:48
+
+ 本帖最后由 ads147147 于 2024-7-18 10:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622173&amp;ptid=2078110" target="_blank">乙宗梢 发表于 2024-7-18 10:33</a>
+
+完全不是骂急了才跳出来的给导演扔锅的啊，不如说在他12集发推之前有骂的吗。当时是12集播完了就发推特说 ...</blockquote>
+我胡言乱语了，我道歉。只是这点区别不影响这是他分锅的姿态，大家都同意不就是要骂别骂我一个的意思。最终结论没变，他出来对京吹3做预期管理总归也是一种表态，那他对星团做了什么，nothing。
+
+
+*****
+
+####  乙宗梢  
+##### 20574#       发表于 2024-7-18 10:54
+
+ 本帖最后由 乙宗梢 于 2024-7-18 10:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622358&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-18 10:48</a>
+我胡言乱语了，我道歉。只是这点区别不影响这是他分锅的姿态，大家都同意不就是要骂别骂我一个的意思。最 ...</blockquote>
+看看隔壁虹，河村监督时不时也会发推特，公式书里面河村智之和田中仁也有访谈。虹的成功离不开核心staff把作品当亲儿子捧在手里。
+水的公式书里面也有酒井和男的访谈
+一部动画里面主创完全不说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底发生了什么呢，大家都很好奇，哪怕京极花田出来说句话都行啊。连这群人脑子里面想什么都不知道，nothing
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  ads147147  
+##### 20575#       发表于 2024-7-18 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622442&amp;ptid=2078110" target="_blank">乙宗梢 发表于 2024-7-18 10:54</a>
+
+看看隔壁虹，河村监督时不时也会发推特，公式书里面河村智之和田中仁也有访谈。
+
+水的公式书里面也有酒井 ...</blockquote>
+一个公式书里搞人设的说的话比编剧还多，懂了，事实上的编剧是室田雄平和斋藤敦史。
+

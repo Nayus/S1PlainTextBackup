@@ -14813,3 +14813,55 @@ random star据说现在产能很不足，生产线全在做狗琴<img src="https
 
 草 票星球21号开卖第二波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 20550#       发表于 2024-7-18 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626109&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-18 16:24</a>
+
+random star据说现在产能很不足，生产线全在做狗琴</blockquote>
+狗的琴配色不太对电波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+猫抓板就更欣赏不来了，soyo的贝斯倒是看着挺漂亮的，不过我不会玩儿
+
+*****
+
+####  想喝一点点  
+##### 20551#       发表于 2024-7-18 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626051&amp;ptid=2159415" target="_blank">rollingusagi 发表于 2024-7-18 16:19</a>
+
+就票星球app上啊，观影提示点更多那里
+
+去看了下已经可以点缺票登记了，那第二波票肯定是有的</blockquote>
+哦哦，以前没用过票星球，第二波再挣扎一下，虽然感觉大概率也是没戏的，太多活人没票了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20552#       发表于 2024-7-18 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626182&amp;ptid=2159415" target="_blank">WhiteGlint 发表于 2024-7-18 16:30</a>
+
+狗的琴配色不太对电波爱音薄荷绿看着太素而且琴头是复古式的调音的时候会很难受
+
+猫抓板就更欣赏不来了，s ...</blockquote>
+那就来买我们初华的琴吧，黑金真帅吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  WhiteGlint  
+##### 20553#       发表于 2024-7-18 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65626206&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-18 16:31</a>
+
+那就来买我们初华的琴吧，黑金真帅吧</blockquote>
+李子这把斯科特要是出联名我不敢想要多少钱了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">邦多利那些E标的都要2,3w起的样子，不知道斯科特会不会中端的换皮款。
+
+而且李子那把好像是自己改的？我看有差不多款式但是配件都是黑色的，好像李子自用的都是定做的改装金属件。
+
+不过李子拿手里的时候真的是太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

@@ -2352,3 +2352,20 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 懂了 主播引发智械危机<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zc1996zc  
+##### 16804#       发表于 2024-7-18 08:33
+
+这种时候你楼的回复就变多了
+
+*****
+
+####  MomiNg  
+##### 16805#       发表于 2024-7-18 09:13
+
+没意思，矛头难道不是星力吗，怎么还在内斗来内斗去
+
+万能的坛友就不能想点办法让星力死吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

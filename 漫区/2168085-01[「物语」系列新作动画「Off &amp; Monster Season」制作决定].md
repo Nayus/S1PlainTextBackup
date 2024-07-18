@@ -36,3 +36,25 @@
 
 2024-7-18 18:33 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 423#         楼主| 发表于 2024-7-18 19:08
+
+#03 撫物語 なでこドロー 其ノ貮
+
+「制服姿の撫子を見た」と言う忍野扇とともに、千石撫子は目撃場所の公立七百一中学校に到着。不安を抱えながらも、校内へ足を踏み入れた撫子。彼女が目撃したその光景は意外なものだった。
+
+脚本：大嶋実句
+
+絵コンテ：吉澤 翠・瀬村俊一郎
+
+演出：渋田直彰
+
+作画監督：潮月一也・岩本里奈・高野晃久・牛ノ濱由惟・清水勝祐・和田賢人・浅井昭人・菊地しゅんすけ・北島勇樹・龍光
+<img src="https://p.sda1.dev/18/8604f6360c2157469a7f67b6c59bf9ff/story_3560_photo_1721291038070270992.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9ee47e2cfcb42dabcf029414e3609d55/story_3560_photo_1721291038326258341.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/634a450549e24594fba0451f5203f14e/story_3560_photo_1721291038483196348.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a03b3a8461422b7f57990e57ab1f3f09/story_3560_photo_1721291038680232664.jpg" referrerpolicy="no-referrer">
+

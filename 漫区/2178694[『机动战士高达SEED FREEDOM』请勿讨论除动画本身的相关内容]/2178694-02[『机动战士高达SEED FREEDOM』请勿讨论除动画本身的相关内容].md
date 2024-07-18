@@ -101,3 +101,17 @@ AEMedia直接倒出来了</blockquote>
 
 代哥的换色加新规水贴上海自由在路上了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里村紅葉  
+##### 1823#       发表于 2024-7-18 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65625479&amp;ptid=2178694" target="_blank">凤舞夜月 发表于 2024-7-18 15:32</a>
+再看了几次，好像杂兵机，就只有毁灭是被直接直击击穿腰部，捅穿腰部，大概率驾驶员活不下来的样子。
+
+其他 ...</blockquote>
+毁灭这种大规模杀伤性兵器当然要确保打到再起不能啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

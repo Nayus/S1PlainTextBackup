@@ -15148,3 +15148,14 @@ https://ngabbs.com/read.php?tid=39822910
 
 也没别的办法了。
 
+
+*****
+
+####  WhiteGlint  
+##### 20573#       发表于 2024-7-18 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65627753&amp;ptid=2159415" target="_blank">russianbear 发表于 2024-7-18 19:04</a>
+
+希睦是比希祥还冷门的CP啊，这是我看过第一篇希睦向的同人。不过和纯假药的爱睦相比，希睦在剧中还算是有 ...</blockquote>
+好歹也是前队友，爱睦是离结婚差见面这一步（x）
+

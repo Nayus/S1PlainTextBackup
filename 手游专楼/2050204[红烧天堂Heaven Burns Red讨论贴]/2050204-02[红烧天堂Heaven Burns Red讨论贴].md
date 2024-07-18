@@ -416,3 +416,37 @@ yzvgxp7ei07dncam
 
 ek1xobuftbcgwln7
 
+
+*****
+
+####  amaori  
+##### 1540#       发表于 2024-7-18 09:16
+
+<blockquote>chivalry 发表于 2024-7-18 08:59
+求加好友，日服打到四章，国服肯定也要打下去的
+
+ek1xobuftbcgwln7</blockquote>
+ev15hhkk07ez2qj7
+
+求互填
+
+*****
+
+####  Acerola  
+##### 1541#       发表于 2024-7-18 09:17
+
+国服应该再有一两个月就是大岛姐妹了吧，直接攒石到时候抽个火队，能不能玩一年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  HinataY  
+##### 1542#       发表于 2024-7-18 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621316&amp;ptid=2050204" target="_blank">Acerola 发表于 2024-7-18 09:17</a>
+国服应该再有一两个月就是大岛姐妹了吧，直接攒石到时候抽个火队，能不能玩一年
+
+—— 来自 HONOR BVL-AN16 ...</blockquote>
+先拿下孔明和六妹
+

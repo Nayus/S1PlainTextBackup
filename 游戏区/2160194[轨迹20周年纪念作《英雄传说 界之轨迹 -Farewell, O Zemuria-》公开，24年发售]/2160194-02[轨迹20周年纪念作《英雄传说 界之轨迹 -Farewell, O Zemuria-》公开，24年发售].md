@@ -2968,3 +2968,33 @@ AI炼图也出那么久了，有人搞新的替换e大师的mod吗<img src="http
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正候选就那几个，女神本尊，盟主换了套新衣服，或者其他角色什么角色的最终形态（）
 
+
+*****
+
+####  Aeons  
+##### 1759#       发表于 2024-7-18 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">说起来这种背靠背构图，盟主戏份感觉本作要到头了
+
+*****
+
+####  ravend233  
+##### 1760#       发表于 2024-7-18 15:39
+
+看起来限定版的浮雕上正好有8个一样的圈
+
+
+*****
+
+####  一步成诗  
+##### 1761#       发表于 2024-7-18 15:40
+
+整个轨迹盟主实际上都没说过几句话，这么快到头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1762#       发表于 2024-7-18 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果把盟主是谁，目的是什么，知道什么事实解释清楚了，好像也就没啥可写的了（）
+

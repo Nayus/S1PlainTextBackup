@@ -2569,3 +2569,74 @@ qr怎么还是这么简单的二极管思维方式，想让星力死就是让官
 
 反正我就是看不得天降系，更何况还是纯纯的吸血蝗虫<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与太郎  
+##### 16823#       发表于 2024-7-18 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623059&amp;ptid=2018830" target="_blank">MomiNg 发表于 2024-7-18 11:46</a>
+
+qr怎么还是这么简单的二极管思维方式，想让星力死就是让官组回来是吧
+
+要我说两个一起死最好，然后mea完全退 ...</blockquote>
+对于“吸血”这个词的定义，字幕组，包括指导欲望强的粉丝，和mea的理解恐怕也是不同的
+
+说白了，mea当年大发脾气本质上不也是因为“队友和帕里吸血”这茬事么，所以她不是不在意被吸血，而是不认为现在的MCN是在吸血
+
+如果加MCN对她的分成没甚影响，也不影响她的活动步调，那她乐见其成也是合情合理的
+
+*****
+
+####  十九号大侠  
+##### 16824#       发表于 2024-7-18 11:57
+
+夸张哦
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ShyCrazydog  
+##### 16825#       发表于 2024-7-18 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623057&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 11:46</a>
+你不如说星力完全了解了她的性格，完全不操纵她。但凡换个靠谱点的运营，这每月的kpi总要有规定的。星力不 ...</blockquote>
+所以我估计从她的视角来看可能还觉得运营对她挺好的（愿意收留她这个过气主播，没有硬指标给很高自由度，偶尔还能帮着搞点周边在cn卖）
+
+*****
+
+####  fsfs_freeze  
+##### 16826#       发表于 2024-7-18 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622643&amp;ptid=2018830" target="_blank">时间在我手中 发表于 2024-7-18 11:11</a>
+所以这B公司似了换回原来他组等于天亮了吗
+
+一坨屎两坨屎不还是屎，感情还要分个味道高低是吧
+
+至于骂mcn是不 ...</blockquote>
+那鬼知道是组里哪位觉得星力滚了自己上位对你麻更好呢<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+说不定组里某条也够只想着干死星力就行你麻怎样都无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  河西大道左  
+##### 16827#       发表于 2024-7-18 12:03
+
+星力这本职工作都做不好 不求你搞企划 转推转不明白 转播也转不明白 切片更加幽默 还叫fafa在那打白工呢 有什么存在的意义吗
+
+*****
+
+####  fsfs_freeze  
+##### 16828#       发表于 2024-7-18 12:03
+
+你麻对星力估计就是 大家一块摆烂都挺好，反正自己是懒狗，几年过去自己也不想太努力了，两家无冤无仇
+
+*****
+
+####  fsfs_freeze  
+##### 16829#       发表于 2024-7-18 12:06
+
+说个题外话，我13号去bw的时候下午想买个立牌的，没想到已经卖完了，不知道是因为你麻人气还可以还只是单纯因为备货太少
+

@@ -843,3 +843,13 @@ ebo反而起名方式上和上次nui没啥关联只是他的设定刚好是英�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在黑黑六周年这天从叶手里抢走葛叶的话之后直播是要抗压的，大福虾不破这仨一起玩得多些的要说无聊，芙莲梨花老板娘扛不住这个压，你要有趣又能抗压是想柴卡背负一切吗
 
+
+*****
+
+####  zhrs456  
+##### 503#       发表于 2024-7-18 10:06
+
+芙莲不可能选KING的，就GTA那点关系性去抢，不怕整个养成期被炎到自闭吗，除了男人外也就天皇和同期女能沾一沾，但一样有风险，莉莉姆上次VCR GTA和KING有点纠葛不也被YHM烧了吗。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

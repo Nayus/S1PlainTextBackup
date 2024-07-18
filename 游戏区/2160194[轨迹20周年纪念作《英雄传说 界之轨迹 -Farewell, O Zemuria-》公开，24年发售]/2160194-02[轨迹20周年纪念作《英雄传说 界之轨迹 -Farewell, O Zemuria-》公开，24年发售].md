@@ -2598,3 +2598,20 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 2024-7-18 08:52 上传
 
+
+*****
+
+####  一步成诗  
+##### 1721#       发表于 2024-7-18 10:08
+
+下周出封面了，看看是不是立绘拼接省钱大法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1722#       发表于 2024-7-18 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次立绘拼图封面是闪3还是闪1来着
+
+感觉应该会是个新绘的图，最多可能质量不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

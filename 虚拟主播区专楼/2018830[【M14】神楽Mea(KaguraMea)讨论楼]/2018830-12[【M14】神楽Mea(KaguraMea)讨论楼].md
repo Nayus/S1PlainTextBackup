@@ -3305,3 +3305,22 @@ dis逼宫内容很容易猜把，我觉得无非就是有人想让她星力和�
 
 兔妈妈 伟大 无需多言
 
+
+*****
+
+####  古战场亡魂  
+##### 16889#       发表于 2024-7-18 22:52
+
+ 本帖最后由 古战场亡魂 于 2024-7-18 22:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了眼组长的预告，从明天开始到8月底，做17场双人对谈。这也太抽象。自从做了神域麻将，基本上就和麻将圈绑起来了，发展还挺迷的。现在这种单人粉丝向直播也就600同接不到。
+
+发展这种东西真是不可预料。
+
+*****
+
+####  TiHaru  
+##### 16890#       发表于 2024-7-18 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这能被夹的啊
+

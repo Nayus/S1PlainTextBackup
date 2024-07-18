@@ -814,3 +814,36 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 题外一句：隔壁票都跑支付界面了都没了，十月广州感觉有点悬乎，这票星球真是黄牛天堂
 
+
+*****
+
+####  csolfans  
+##### 20588#       发表于 2024-7-18 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623593&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-7-18 12:35</a>
+题外一句：隔壁票都跑支付界面了都没了，十月广州感觉有点悬乎，这票星球真是黄牛天堂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">星应该不用怕的吧，怕的是上海
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  ViyViy  
+##### 20589#       发表于 2024-7-18 12:52
+
+<blockquote>starring 发表于 2024-7-18 12:14
+绵田实力是有的，但必须搭上好的剧本。创形者可以说是木村这撕瞎搞，包括后来的元宇宙也是做成一坨。但是 ...</blockquote>
+企划笑嘻了都 ，真有人帮我挡子弹
+
+*****
+
+####  黒烨  
+##### 20590#       发表于 2024-7-18 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65623772&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-7-18 12:49</a>
+星应该不用怕的吧，怕的是上海
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+只要牛哥想 冷都能变烫……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

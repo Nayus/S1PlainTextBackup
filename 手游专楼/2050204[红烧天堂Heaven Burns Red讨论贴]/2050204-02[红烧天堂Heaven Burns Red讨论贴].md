@@ -468,3 +468,15 @@ a3hyzldb4s26pd0m
 
 互助，谢谢各位
 
+
+*****
+
+####  Acerola  
+##### 1545#       发表于 2024-7-18 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65621329&amp;ptid=2050204" target="_blank">HinataY 发表于 2024-7-18 09:18</a>
+先拿下孔明和六妹</blockquote>
+原来现在不是和国际服刚出中文的版本一样啊，孔明还没出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

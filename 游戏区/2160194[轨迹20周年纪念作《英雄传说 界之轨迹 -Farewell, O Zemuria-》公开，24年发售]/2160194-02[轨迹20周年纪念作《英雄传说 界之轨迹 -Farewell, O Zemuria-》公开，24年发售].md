@@ -2672,3 +2672,53 @@ falcom pv哪不错了，剪得稀烂，跟bgm完全不搭<img src="https://stati
 
 黎恩为什么是立绘
 
+
+*****
+
+####  KevinGraham  
+##### 1729#       发表于 2024-7-18 13:58
+
+葱头这表情再唐一点
+
+*****
+
+####  一步成诗  
+##### 1730#       发表于 2024-7-18 13:58
+
+还是不一样吧，封面这刀都挡脸了
+
+
+*****
+
+####  zhuhh  
+##### 1731#       发表于 2024-7-18 14:04
+
+<blockquote>卢迪克 发表于 2024-7-18 13:55
+黎恩为什么是立绘</blockquote>
+动作有点类似而已，明显是重画的。
+
+*****
+
+####  卢迪克  
+##### 1732#       发表于 2024-7-18 14:04
+
+好吧，有点变化，背景图是12月份官网就有的
+
+<img src="https://img.saraba1st.com/forum/202407/18/140420shte4pjh1kpphi3y.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_140311.jpg</strong> (43.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 14:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/18/140425khsshtw1yyr3ntre.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240718_140339.jpg</strong> (52.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-18 14:04 上传
+

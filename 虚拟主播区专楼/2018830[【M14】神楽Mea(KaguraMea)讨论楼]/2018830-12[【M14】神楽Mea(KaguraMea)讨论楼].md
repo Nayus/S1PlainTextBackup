@@ -2952,3 +2952,17 @@ menhera低气压抱怨发言感觉也是家常便饭，反正粉丝menhera发颠
 
 另外主播的认知是30分钟左右开始就会暴走所以50多分钟的时候失控了很正常
 
+
+*****
+
+####  时间在我手中  
+##### 16858#       发表于 2024-7-18 13:59
+
+说白了就是等着他组上钩了是吧
+
+那这下愿者上钩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+说起来dis群那事是哪里来源来着，不会是他们组的小天才吧
+
+62min，棉花糖来咯嗨嗨嗨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

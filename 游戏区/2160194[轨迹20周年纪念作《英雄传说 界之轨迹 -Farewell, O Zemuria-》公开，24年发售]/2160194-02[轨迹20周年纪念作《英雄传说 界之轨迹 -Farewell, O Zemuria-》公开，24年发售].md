@@ -3373,3 +3373,21 @@ Screenshot_20240718_214220.jpg
 但凡把黎老师立绘摆高点都不像是要削老范脑袋</blockquote>
 也捅了葱头肩膀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhuhh  
+##### 1793#       发表于 2024-7-19 02:16
+
+看到enami最近画的轻小说插图，感觉作画比界轨封面画的精细啊，怎么界轨封面不按照轻小说插图那样画完整一张大插图。
+
+不过界轨封面个人认为看起来还可以的，但问题就是画面有点空，留白的地方有点多，要是能多画几个人填满画面应该会更好
+
+<img src="https://img.saraba1st.com/forum/202407/19/021558rypu8tyi7n7pu7tt.jpg" referrerpolicy="no-referrer">
+
+<strong>1000052806.jpg</strong> (397.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 02:15 上传
+

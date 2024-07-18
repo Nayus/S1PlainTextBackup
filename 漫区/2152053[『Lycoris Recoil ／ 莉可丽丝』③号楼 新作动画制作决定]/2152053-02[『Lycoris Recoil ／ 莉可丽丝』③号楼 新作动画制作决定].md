@@ -282,3 +282,11 @@ AI弄的，在twi翻到 ...</blockquote>
 
 2024-7-18 16:48 上传
 
+
+*****
+
+####  Saber琪  
+##### 1917#       发表于 2024-7-18 23:00
+
+猛然想起为何不发直播的链接，7.23是录播到时候直接aniplex视频投稿就行了，我猪鼻了，既然如此广播剧那边的负责人还发twi了，感觉可以确定没蒜二或者新作消息嘞<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

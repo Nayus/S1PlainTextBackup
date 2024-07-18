@@ -3324,3 +3324,39 @@ dis逼宫内容很容易猜把，我觉得无非就是有人想让她星力和�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这能被夹的啊
 
+
+*****
+
+####  ashero  
+##### 16891#       发表于 2024-7-18 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629779&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-7-18 22:52</a>
+
+看了眼组长的预告，从明天开始到8月底，做17场双人对谈。这也太抽象。自从做了神域麻将，基本上就和麻将圈 ...</blockquote>
+倒不如说这几年除了麻将圈就是带新人 麻将圈还有点流量 整体看下来774inc生存空间早被挤掉了 组长没绑死麻将战车只会更差
+
+*****
+
+####  古战场亡魂  
+##### 16892#       发表于 2024-7-18 23:01
+
+<img src="https://img.saraba1st.com/forum/202407/18/230136oylggoyszpeki54z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-18 23:01 上传
+
+
+*****
+
+####  古战场亡魂  
+##### 16893#       发表于 2024-7-18 23:05
+
+ 本帖最后由 古战场亡魂 于 2024-7-18 23:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629830&amp;ptid=2018830" target="_blank">ashero 发表于 2024-7-18 23:00</a>
+
+倒不如说这几年除了麻将圈就是带新人 麻将圈还有点流量 整体看下来774inc生存空间早被挤掉了 组长没绑死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犬山这边也是养一批走一批。
+

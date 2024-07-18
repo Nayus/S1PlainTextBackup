@@ -2369,3 +2369,21 @@ dis升堂据我所知就是他组有人和主播聊爆了，然后主播直接�
 
 万能的坛友就不能想点办法让星力死吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fsfs_freeze  
+##### 16806#       发表于 2024-7-18 09:32
+
+但有人想借着星力死让自己上位呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cortana  
+##### 16807#       发表于 2024-7-18 09:32
+
+星力死了也不一定能换一个好的mcn啊，再说了现在早就不是日V的环境了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+主播还不一定想换呢，至少现在正气头上的时候肯定不会松口的，还会因为指导继续开爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

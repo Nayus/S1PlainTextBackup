@@ -3611,3 +3611,31 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 小麻动不动menhera和6657动不动登山有点像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  TiHaru  
+##### 16917#       发表于 2024-7-19 18:41
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+717.md
+(25.11 KB, 下载次数: 1)
+
+2024-7-19 18:39 上传
+
+点击文件名下载附件
+
+对照录播姬对了轴，花了一些时间，今天进展很少，算是把主播第一波爆发翻译完了
+
+另外昨天录播姬发了录播之后某人就开始铺垫主播不仅仅是生棉花糖的气了，真的减除
+
+*****
+
+####  时间在我手中  
+##### 16918#       发表于 2024-7-19 18:43
+
+又是哪个老老老了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+顺便一提我上面发的录播应该比那个录播姬的好，你要用下载就是了
+

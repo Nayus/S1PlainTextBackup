@@ -4057,3 +4057,27 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 2024-7-19 22:53 上传
 
+
+*****
+
+####  sino__unnko3  
+##### 16964#       发表于 2024-7-19 23:04
+
+拿音游群群友吊图改了改()<img src="https://p.sda1.dev/18/21ae2ed93207218eda1d858fe03753ce/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  古战场亡魂  
+##### 16965#       发表于 2024-7-19 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640337&amp;ptid=2018830" target="_blank">ablast 发表于 2024-7-19 22:37</a>
+
+已经又和那几个野男人lol启动了 无大碍
+
+—— 来自 samsung SM-F711U, Android 14上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在和うるか双排北极星竞技场，也就打了一把。
+

@@ -142,3 +142,11 @@
 可惜不能像其他 ...</blockquote>
 太吃角色了，坏兽没COS没HLS都没飞哥没紫苑那么难受
 
+
+*****
+
+####  江戸前ルナ  
+##### 17993#       发表于 2024-7-19 23:04
+
+喷了我觉醒了一把才知道还要把觉醒等级升到20才有那些强力的属性，我之前还以为觉醒材料不是很多就做做试试，看来我真是对四字母的飞妈程度严重低估<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -3681,3 +3681,14 @@ Screenshot_20240718_214220.jpg
 
 不过问题还是特意加这个缠绕有什么象征意义。
 
+
+*****
+
+####  一步成诗  
+##### 1820#       发表于 2024-7-19 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65636858&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-19 17:25</a>
+
+看了看范恩腿上的缠绕，武器遮住了，说明一定是缠腿上而不是环绕特效，白线是从地上钻出来的，所以也不是风 ...</blockquote>
+主要就他一个人有，大家都踩在地面上但学妹就没有
+

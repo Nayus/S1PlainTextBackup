@@ -3572,3 +3572,25 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 今晚能不能来个全网最真实的直播间啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  受菊  
+##### 16914#       发表于 2024-7-19 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65636918&amp;ptid=2018830" target="_blank">与太郎 发表于 2024-7-19 17:29</a>
+
+mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基本就是明说“我不比你们懂？”了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">倒也不是对CN观众，这人不一直对指导厨事业厨不爽。说到底这人对星力来说也就是个旗下艺人，去找她反馈有个啥用，六年经验这人估计闻到点焦味就知道要发生啥了，只是说这次直接干脆自己点爆了算。
+
+至于这操作下场是啥，那鬼才知道了。
+
+*****
+
+####  Cortana  
+##### 16915#       发表于 2024-7-19 17:35
+
+速通太行山是什么梗
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

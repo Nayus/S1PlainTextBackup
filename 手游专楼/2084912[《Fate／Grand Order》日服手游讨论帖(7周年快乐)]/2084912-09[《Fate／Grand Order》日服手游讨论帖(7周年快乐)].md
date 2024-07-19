@@ -307,3 +307,16 @@ Aniplex一单是95%，实际少了3.25%
 我就不一样了 直接没有钱</blockquote>
 但你的脸填补了这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sesuna  
+##### 13071#       发表于 2024-7-20 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65633171&amp;ptid=2084912" target="_blank">eilot 发表于 2024-7-19 11:08</a>
+
+飛哥本只得寶4還是差些少，不過再加多一隻小黑就不用補刀
+
+但還是要換人</blockquote>
+打正太闪可以试试枪虞姬,2只R(C)BA加满破黑杯就行...
+

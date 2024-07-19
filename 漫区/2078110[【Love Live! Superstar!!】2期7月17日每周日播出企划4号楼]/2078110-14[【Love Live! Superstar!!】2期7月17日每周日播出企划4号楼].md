@@ -938,3 +938,25 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 20600#       发表于 2024-7-19 10:56
+
+ 本帖最后由 ViyViy 于 2024-7-19 10:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632578&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-7-19 10:21</a>
+
+隔壁又是哪里
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+恩寄爱呗，看的一愣一愣的，还煞有介事。。最抽象的是并不是莲楼在那搞**论。。有人原地回击了，就不多聊了
+
+
+*****
+
+####  stygian  
+##### 20601#       发表于 2024-7-19 10:57
+
+建议直接原地对线，虹楼大部分都算能平心静气讲理的主
+

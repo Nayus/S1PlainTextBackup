@@ -3447,3 +3447,24 @@ Tom Henderson suggests the PS5 Pro might not launchthis year
  Rumour Tweet he replied to:"I guess S ...</blockquote>
 明年就是撞硬件大年了，反正我买一个NS2花点钱就满足了，不会去买PS5 Pro的
 
+
+*****
+
+####  医生狼多  
+##### 361#       发表于 2024-7-19 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65622796&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-18 11:24</a>
+Tom Henderson suggests the PS5 Pro might not launchthis year
+
+ Rumour Tweet he replied to:"I guess S ...</blockquote>
+舅舅党Tom Henderson发文称，PS5 Pro的发售并未被延迟或取消，仍有望今年晚些时候发售。文章提到，开发者可于7月30日向索尼提交支持认证文件，该日期在18个月前就已敲定了。此外，9月15日后提交给索尼发行的PS5游戏都需要支持PS5 Pro。
+
+Tom Henderson还表示，自己于2023年年中收到的文件显示，PS5 Pro发布时间为2024年11月下半月。#游戏明星计划#
+
+*****
+
+####  宛若青空  
+##### 362#       发表于 2024-7-19 10:57
+
+太好了，真推迟那就有些担心了
+

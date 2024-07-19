@@ -4203,3 +4203,45 @@ sololive/周年纪念周边跟着C104时期全部撞在一起，不少人钱包�
 
 2024-7-18 22:07 上传
 
+
+*****
+
+####  holoan  
+##### 9252#         楼主| 发表于 2024-7-18 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65629320&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-7-18 22:00</a>
+
+卧槽3dlive！</blockquote>
+这不有人开玩笑说8月1号的6周年纪念live提前搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反而周年的时候要干啥就不知道了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|正好最近闲了，爽看|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 9253#         楼主| 发表于 2024-7-19 10:47
+
+<img src="https://img.saraba1st.com/forum/202407/19/095601tbakfpukpfbrfsza.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 09:56 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">急急急都要急出病了
+
+知道你很急了，但是这么激动反而感觉有点不自然，难道还会有其他超出想象的发表？
+

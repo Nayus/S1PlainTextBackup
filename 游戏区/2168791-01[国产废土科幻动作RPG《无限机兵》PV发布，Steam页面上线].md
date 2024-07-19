@@ -600,3 +600,14 @@ xbox不配拥有吗？</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  医生狼多  
+##### 64#       发表于 2024-7-20 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641201&amp;ptid=2168791" target="_blank">fcssnake 发表于 2024-7-20 00:32</a>
+索尼中国之星计划的游戏，你说XBX配不配呢？</blockquote>
+暗影火炬城:当然可以，说不定还近xgp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+中国之星除了索尼发行的，其实和平台没什么关系，只能说一定有ps版
+

@@ -245,3 +245,21 @@ win10提示错误进不去。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ralfli  
+##### 98#       发表于 2024-7-20 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65461569&amp;ptid=2140223" target="_blank">寇马可 发表于 2024-7-2 23:26</a>
+
+女主角会说话吗？选了日文语音没听见有人说话啊。看普遍反映画面太花了看着难受，等骨折价 ...</blockquote>
+吃完贡品也会赞美一句……
+
+*****
+
+####  ralfli  
+##### 99#       发表于 2024-7-20 07:32
+
+第二个村子破坏全部陶罐的任务是不是得后期才能做啊，打了好几遍也没完成
+

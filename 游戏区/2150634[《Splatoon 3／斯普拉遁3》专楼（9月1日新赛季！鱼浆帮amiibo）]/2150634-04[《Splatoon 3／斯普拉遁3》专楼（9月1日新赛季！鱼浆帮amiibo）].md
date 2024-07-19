@@ -914,3 +914,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 饭田本来就是姛，这个不意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4884#       发表于 2024-7-19 15:18
+
+过去的斯普拉遁就让年轻的鱿鱼干和芥末章鱼当偶像吧，正好也是鱿鱼MC章鱼DJ，男版姬饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -117,3 +117,11 @@ win10提示错误进不去。
 
 —— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仿身泪滴  
+##### 84#       发表于 2024-7-19 13:57
+
+这次和大神okami联动的外观、武器和音乐超棒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

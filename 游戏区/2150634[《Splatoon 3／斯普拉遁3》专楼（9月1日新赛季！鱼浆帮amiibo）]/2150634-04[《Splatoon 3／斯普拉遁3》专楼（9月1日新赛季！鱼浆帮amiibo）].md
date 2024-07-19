@@ -854,3 +854,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 不言而喻
 
+
+*****
+
+####  KBAC  
+##### 4879#       发表于 2024-7-19 13:58
+
+现在赢了的话，可以名正言顺的出喷3DX，问就是玩家的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

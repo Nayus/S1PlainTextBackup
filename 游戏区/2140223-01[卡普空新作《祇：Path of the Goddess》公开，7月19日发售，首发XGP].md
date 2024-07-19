@@ -136,3 +136,11 @@ win10提示错误进不去。
 另外 游戏一开始输入年龄是有什么意义 </blockquote>
 游戏里输年龄这个问题我在玩龙信2时也思考过，看来是卡婊兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Christopherzou  
+##### 86#       发表于 2024-7-19 15:50
+
+有用xgp的筒子嘛……我在xbox的应用里倒是看到了，但是点进去不可用。试着去xbox官网但是又找不到这游戏，有点诡异……
+

@@ -3829,3 +3829,50 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 纯路人， 怎么主播老道歉
 
+
+*****
+
+####  TiHaru  
+##### 16940#       发表于 2024-7-19 20:59
+
+不是另一家负责，是需要再找一家来负责
+
+主播ytb都不切的怎么可能专门找切批站的
+
+*****
+
+####  商博良  
+##### 16941#       发表于 2024-7-19 21:00
+
+<img src="https://img.saraba1st.com/forum/202407/19/210036uatcja0anjcqwaqn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 21:00 上传
+
+
+*****
+
+####  时间在我手中  
+##### 16942#       发表于 2024-7-19 21:02
+
+只能说主播属实温柔善良了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thisisaspider  
+##### 16943#       发表于 2024-7-19 21:04
+
+震惊事实，A老师都不知道有半年工期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+第二回开幕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时间在我手中  
+##### 16944#       发表于 2024-7-19 21:07
+
+什么玩意儿，别谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">发个图看看
+

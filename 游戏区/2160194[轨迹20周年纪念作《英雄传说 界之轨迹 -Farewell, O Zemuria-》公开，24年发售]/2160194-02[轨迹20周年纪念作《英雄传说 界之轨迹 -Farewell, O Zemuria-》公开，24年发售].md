@@ -3492,3 +3492,21 @@ Screenshot_20240718_214220.jpg
 拉碧丝很大可能是大少S技召唤兽</blockquote>
 黎二我看了些剧透没玩，拉碧丝可以帮大少也来个变身吗？那也蛮有意思的
 
+
+*****
+
+####  一步成诗  
+##### 1804#       发表于 2024-7-19 10:58
+
+乐死，云豹官博指艾为亚，泳装那图不是他们自己约的稿吗这也能认错人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 1805#       发表于 2024-7-19 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632896&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-7-19 10:47</a>
+
+黎二我看了些剧透没玩，拉碧丝可以帮大少也来个变身吗？那也蛮有意思的 ...</blockquote>
+那应该不会吧，大少还是去干骑神驾驶员这份更有前途的工作吧
+

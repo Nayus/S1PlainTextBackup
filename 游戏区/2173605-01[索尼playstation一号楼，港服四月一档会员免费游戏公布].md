@@ -3468,3 +3468,15 @@ Tom Henderson还表示，自己于2023年年中收到的文件显示，PS5 Pro�
 
 太好了，真推迟那就有些担心了
 
+
+*****
+
+####  ultraseven  
+##### 363#       发表于 2024-7-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65633003&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-19 10:56</a>
+
+舅舅党Tom Henderson发文称，PS5 Pro的发售并未被延迟或取消，仍有望今年晚些时候发售。文章提到，开发者 ...</blockquote><blockquote>Admittingly, the more recent discussions about the PS5 Pro missing its holiday 2024 release have been fueled by <strong>my own tweet</strong>. People understandably took a relatively passive comment as if I was implying the Pro would miss its holiday 2024 release or be canceled entirely, but that isn’t the case as of the time of writing.</blockquote>
+
+什么流量打法
+

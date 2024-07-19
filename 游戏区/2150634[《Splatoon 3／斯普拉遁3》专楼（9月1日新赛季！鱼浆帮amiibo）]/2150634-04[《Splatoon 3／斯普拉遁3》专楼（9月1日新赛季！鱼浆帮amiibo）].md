@@ -809,3 +809,22 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 4875#         楼主| 发表于 2024-7-19 13:02
+
+<blockquote>yanglian72 发表于 2024-7-19 12:26
+猜测选过去的人最多，初代偶像人气太高了</blockquote>
+我猜铁定最少而且是少很多，人气说实在就那样，和2代硬碰硬是打不过的（欧美人气很高）
+
+过去这个主题更是和斯普拉遁的大基调很不搭
+
+*****
+
+####  墨染白泉  
+##### 4876#       发表于 2024-7-19 13:07
+
+一代给过去估计就垫了，二代和三代在现在的得分规则下谁赢不好说
+

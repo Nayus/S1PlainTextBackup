@@ -16396,3 +16396,12 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 不过就wsd现在这个运营方案，4th什么样我不敢想
 
+
+*****
+
+####  jerryoq1  
+##### 20700#       发表于 2024-7-20 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641155&amp;ptid=2159415" target="_blank"> 御幸一也 发表于 2024-7-20 00:25</a> 河口湖這陰間地方，感覺也是賣不完…… 你邦本來就是都內主場地方弱，還搞個鳥不拉屎的場地…… </blockquote>
+唉 原本我是想:选河口湖是要屋顶打开找到光的，但五点才开演感觉没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

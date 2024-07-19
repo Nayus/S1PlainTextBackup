@@ -262,3 +262,26 @@ Aniplex一单是95%，实际少了3.25%
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  偽ウサギ  
+##### 13067#       发表于 2024-7-19 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637739&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-7-19 18:49</a>
+
+这网页氪金支付渠道是啥，没有paypal我就不费工夫去补资料了
+
+—— 来自 nubia NX769J, Android 14上的 S1N ...</blockquote>
+可以直接信用卡付钱，jcb visa都行<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 13068#       发表于 2024-7-19 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638215&amp;ptid=2084912" target="_blank">偽ウサギ 发表于 2024-7-19 19:29</a>
+
+可以直接信用卡付钱，jcb visa都行</blockquote>
+没有信用卡，拜拜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

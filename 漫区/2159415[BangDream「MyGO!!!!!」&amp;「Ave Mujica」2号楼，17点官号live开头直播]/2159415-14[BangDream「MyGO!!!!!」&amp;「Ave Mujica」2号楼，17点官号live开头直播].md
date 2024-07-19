@@ -16112,3 +16112,64 @@ mujica的人设究竟是谁啊 是治愈吗
 
 想跑路了，不知道追这么个啥都没有只有鬼图的底边团干什么
 
+
+*****
+
+####  御幸一也  
+##### 20673#       发表于 2024-7-19 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639642&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-19 21:34</a>
+
+一直很好奇
+
+都知道mygo的人设是shuzuku
+
+mujica的人设究竟是谁啊 是治愈吗</blockquote>
+
+go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人
+
+<img src="https://img.saraba1st.com/forum/202407/19/215049vuntghtir5ppgph8.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (7.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 21:50 上传
+
+習慣叫shuzuku和治愈親媽的原因只是因為第一個MV用了吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer"> 
+還有官網介紹用了 [https://bang-dream.com/avemujica](https://bang-dream.com/avemujica)
+
+*****
+
+####  御幸一也  
+##### 20674#       发表于 2024-7-19 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639839&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-19 21:52</a>
+
+想跑路了，不知道追这么个啥都没有只有鬼图的底边团干什么</blockquote>
+現在都只剩半年不到了，熬熬就過去了。我覺得今年上半年才是難熬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20675#       发表于 2024-7-19 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639966&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-19 22:01</a>
+
+現在都只剩半年不到了，熬熬就過去了。我覺得今年上半年才是難熬</blockquote>
+主要是被一个傻逼搞到心态了
+
+上窜下跳的换着id阴阳你鸡票卖不出去，尤其是爱知上座率特别低
+
+只能说多亏司马wsd的一个个绝世好运营，好恶心啊
+
+*****
+
+####  skives  
+##### 20676#       发表于 2024-7-19 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639933&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-19 21:59</a>
+go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人</blockquote>
+原来如此 估计mujica的角色原案也是这个人了
+

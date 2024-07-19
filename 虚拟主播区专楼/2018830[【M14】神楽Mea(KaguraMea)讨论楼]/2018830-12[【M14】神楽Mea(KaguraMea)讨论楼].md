@@ -4000,3 +4000,11 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 重听了一下，就是说之前不是运营在负责，之后怎么做还在考虑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ashero  
+##### 16958#       发表于 2024-7-19 22:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">b站要怎么运营我觉得其实主播自己负起责任就是了 自己选择的不要打白工用爱发电的选了公司就要管理好  而且以后也别拜托人了
+

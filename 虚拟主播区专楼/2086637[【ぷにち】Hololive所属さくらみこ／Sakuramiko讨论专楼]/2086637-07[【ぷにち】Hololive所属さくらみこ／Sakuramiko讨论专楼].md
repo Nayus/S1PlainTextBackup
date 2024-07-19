@@ -4287,3 +4287,27 @@ sololive/周年纪念周边跟着C104时期全部撞在一起，不少人钱包�
 
 2024-7-19 18:04 上传
 
+
+*****
+
+####  holoan  
+##### 9258#         楼主| 发表于 2024-7-19 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年什么发表都没有，运营全责
+
+明年5周年，bushiroad爹想想办法啊
+
+*****
+
+####  holoan  
+##### 9259#         楼主| 发表于 2024-7-19 21:49
+
+yagoo出演周日live
+
+*****
+
+####  holoan  
+##### 9260#         楼主| 发表于 2024-7-19 21:51
+
+全holo玩梗小能手你第一名
+

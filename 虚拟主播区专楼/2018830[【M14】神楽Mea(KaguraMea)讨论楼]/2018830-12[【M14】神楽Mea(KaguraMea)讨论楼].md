@@ -3594,3 +3594,20 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 —— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Cushaw  
+##### 16916#       发表于 2024-7-19 17:47
+
+ 本帖最后由 Cushaw 于 2024-7-19 17:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65636984&amp;ptid=2018830" target="_blank">Cortana 发表于 2024-7-19 17:35</a>
+速通太行山是什么梗
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+6657前段时间被指导厨和鱼吧喷到心态爆炸，然后直播间标题改成“去登太行山了，17号之前不播，大家生活愉快”
+第二天还是第三天偷偷上播滑跪，详见：【【玩机器】对不起我错了，我回来好好直播🤡-哔哩哔哩】 https://b23.tv/YSn34ng
+
+小麻动不动menhera和6657动不动登山有点像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

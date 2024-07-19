@@ -172,3 +172,16 @@
 
 还是得回官网把那些乱七八糟的信息给补全了去
 
+
+*****
+
+####  TheLoof  
+##### 13058#       发表于 2024-7-19 17:52
+
+怎么说呢，让利了，但不多
+
+谷歌返点一单返175日元，一单10000实际折下来98.25%
+
+Aniplex一单是95%，实际少了3.25%
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

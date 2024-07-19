@@ -15847,3 +15847,38 @@ i83不清楚不是很正常么，社长在狗动画也就是ring里那几句台�
 【佐佐木李子直播切片】在bml举牌宣传fmt被届到的李噶和李子学习中文的往事
 [https://www.bilibili.com/video/BV1Hr421M7jd](https://www.bilibili.com/video/BV1Hr421M7jd)
 
+
+*****
+
+####  肛之练筋士  
+##### 20647#       发表于 2024-7-19 11:27
+
+<img src="https://img.saraba1st.com/forum/202407/19/112647uuq84sy77nlb8l47.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-7-19 11-26-40.jpg</strong> (159.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 11:26 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">姑且也算是某些人心心念念的母鸡卡对邦刺刺？
+
+*****
+
+####  Aloereed  
+##### 20648#       发表于 2024-7-19 11:29
+
+MyGO!!!!! 2024上海演唱会确定。
+
+
+*****
+
+####  DarthAka  
+##### 20649#       发表于 2024-7-19 11:33
+
+ 本帖最后由 DarthAka 于 2024-7-19 11:35 编辑 
+<blockquote>肛之练筋士 发表于 2024-7-19 11:27
+姑且也算是某些人心心念念的母鸡卡对邦刺刺？</blockquote>
+
+那天的看点其实是左上角有芹泽优，SIL旁边是楠木灯，没准会搞点联动——可惜负责配黑嗓那个旋死主唱不会去……然后和乐队企划没准也有联动，鸡和刺谁上不好说
+

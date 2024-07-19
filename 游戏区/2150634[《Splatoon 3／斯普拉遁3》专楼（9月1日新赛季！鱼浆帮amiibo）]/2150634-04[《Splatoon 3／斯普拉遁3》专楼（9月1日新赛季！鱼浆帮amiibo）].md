@@ -643,3 +643,13 @@ Naegora最近直播几乎都是用贴牌轻加，还想看他现环境的贴牌�
 
 3个333金名牌现在完全看不到终点
 
+
+*****
+
+####  KBAC  
+##### 4858#       发表于 2024-7-19 11:33
+
+碳刷加强加上逆天延迟补偿，被碳刷从中刷的距离一确了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

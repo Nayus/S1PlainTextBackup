@@ -4081,3 +4081,23 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 在和うるか双排北极星竞技场，也就打了一把。
 
+
+*****
+
+####  ashero  
+##### 16966#       发表于 2024-7-19 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640585&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-19 23:04</a>
+
+拿音游群群友吊图改了改()
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+真的麻？
+
+*****
+
+####  TiHaru  
+##### 16967#       发表于 2024-7-19 23:15
+
+ゼロスト也在啊，ninja of ninjas应该是たぬき忍者吧
+

@@ -16300,3 +16300,23 @@ mujica诞生的mv曲绘真的惊为天人
 治愈上一次发图还是四月份的事
 这营业的频率也太低了 也不知道除了推特之外还有什么其他的账号 很神秘<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20690#       发表于 2024-7-19 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640324&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-19 22:36</a>
+
+听会儿water和earth自我调理一下</blockquote>
+根本不用調理，動畫播了就可以看那些智障咬牙切齒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正也就現在他們能踩一下了，我純當看笑話，因為孽力會回饋的，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 20691#       发表于 2024-7-19 23:15
+
+治愈有可能是在职画师，社员画师会被限制发图的，也能解释不怎么营业
+

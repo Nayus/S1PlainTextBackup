@@ -779,3 +779,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  maomaoying  
+##### 4872#       发表于 2024-7-19 12:39
+
+没有勇气选择未来，还是过去吧
+

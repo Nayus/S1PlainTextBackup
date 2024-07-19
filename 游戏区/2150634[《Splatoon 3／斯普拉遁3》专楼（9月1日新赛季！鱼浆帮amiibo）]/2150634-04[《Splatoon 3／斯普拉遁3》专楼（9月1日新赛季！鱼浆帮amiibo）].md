@@ -864,3 +864,35 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 4880#       发表于 2024-7-19 14:18
+
+<img src="https://img.saraba1st.com/forum/202407/19/141759ylzlky77vqbzquml.jpg" referrerpolicy="no-referrer">
+
+<strong>d26488d1-9ae9-459c-a81a-126b34e9d940.jpg</strong> (154.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 14:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shirolin  
+##### 4881#       发表于 2024-7-19 14:18
+
+<img src="https://img.saraba1st.com/forum/202407/19/141824ewvacsz9sae8awjc.png" referrerpolicy="no-referrer">
+
+<strong>Image_1721368309824.png</strong> (425.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 14:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

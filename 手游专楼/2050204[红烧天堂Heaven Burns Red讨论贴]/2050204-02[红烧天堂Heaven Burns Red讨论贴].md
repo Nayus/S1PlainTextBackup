@@ -626,3 +626,14 @@ cipyct808ecct1ze 有互填的吗
 
 五步池现在推荐抽吗？
 
+
+*****
+
+####  天气天气天气  
+##### 1560#       发表于 2024-7-19 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632181&amp;ptid=2050204" target="_blank">zukunes 发表于 2024-7-19 09:47</a>
+五步池现在推荐抽吗？</blockquote>
+不建议，这里有wiki可以去看一下
+https://www.gamekee.com/hbr/
+

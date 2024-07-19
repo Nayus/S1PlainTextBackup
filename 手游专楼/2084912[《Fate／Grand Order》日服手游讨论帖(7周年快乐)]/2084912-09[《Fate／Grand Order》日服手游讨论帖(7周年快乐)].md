@@ -252,3 +252,13 @@ Aniplex一单是95%，实际少了3.25%
 0和1质变！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太怨种了 跟直接说我是傻逼没区别了
 
+
+*****
+
+####  里村紅葉  
+##### 13066#       发表于 2024-7-19 18:49
+
+这网页氪金支付渠道是啥，没有paypal我就不费工夫去补资料了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

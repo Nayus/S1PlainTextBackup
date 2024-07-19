@@ -35,3 +35,14 @@
 
 [https://x.com/nCVn9wGaqX64908/status/1813971805369188588](https://x.com/nCVn9wGaqX64908/status/1813971805369188588)
 
+
+*****
+
+####  紫吹兰  
+##### 20724#         楼主| 发表于 2024-7-20 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641429&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-7-20 01:14</a>
+
+动画没有、小动画没有、翻唱没有、人偶集会没有、单独官号没有（国内）、粉丝牌没有（国内）、立绘鬼图、画 ...</blockquote>
+其实吧，至少比被黑了一季TV动画，让后拿两集莫名其妙的OVA打发的蝶好多了....
+

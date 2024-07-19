@@ -611,3 +611,11 @@ xbox不配拥有吗？</blockquote>
 暗影火炬城:当然可以，说不定还近xgp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 中国之星除了索尼发行的，其实和平台没什么关系，只能说一定有ps版
 
+
+*****
+
+####  whzfjk  
+##### 65#       发表于 2024-7-20 01:55
+
+感觉还凑合，动作K得一般，硬直过渡突兀，首个场景跟 CV 一样落入 JRPG 迷宫的窠臼，不过最后出来拉远景看巨构拉回点印象分。
+

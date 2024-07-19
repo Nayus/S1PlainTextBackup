@@ -154,3 +154,13 @@
 
 所以都是回去打一隻騎職那個本，不用換人，可以順便練衣服，還差兩件就全部練滿
 
+
+*****
+
+####  琴酒  
+##### 13056#       发表于 2024-7-19 17:33
+
+[https://online.aniplex.co.jp/itemCVhbvlES.html](https://online.aniplex.co.jp/itemCVhbvlES.html)
+
+95折氪金要绑账号
+

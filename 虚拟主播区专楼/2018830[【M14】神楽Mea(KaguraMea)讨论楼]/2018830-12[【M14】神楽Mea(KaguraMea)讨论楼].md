@@ -3554,3 +3554,21 @@ https://cowtransfer.com/s/8f049854e9fd44
 
 既然对运营有意见那么就不要运营放弃运营就行了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜
 
+
+*****
+
+####  与太郎  
+##### 16912#       发表于 2024-7-19 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65636646&amp;ptid=2018830" target="_blank">受菊 发表于 2024-7-19 17:08</a>
+
+正常来说发生这种事情都是去炎运营找说法，像这样强行把主播拉出来站队架在火上烤真的是天才行为，看一群人 ...</blockquote>
+mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基本就是明说“我不比你们懂？”了
+
+*****
+
+####  时间在我手中  
+##### 16913#       发表于 2024-7-19 17:30
+
+今晚能不能来个全网最真实的直播间啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

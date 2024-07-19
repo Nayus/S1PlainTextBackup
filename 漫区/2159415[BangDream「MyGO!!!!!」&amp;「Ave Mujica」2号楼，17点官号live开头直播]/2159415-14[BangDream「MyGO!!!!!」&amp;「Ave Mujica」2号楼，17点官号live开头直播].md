@@ -16338,3 +16338,22 @@ mujica诞生的mv曲绘真的惊为天人
 
 都整天被質疑底邊團怎麼會有粉絲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20694#       发表于 2024-7-19 23:46
+
+earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不管是串子还是扭曲gachi，离了爱知不会说话除了傻逼真没别的了
+
+
+*****
+
+####  akiomn  
+##### 20695#       发表于 2024-7-19 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初有鸡不看哥开始也是个正常人，谁想到后面变成那样了呢
+不过是个有鸡不看2.0而已
+

@@ -717,3 +717,13 @@ BW展位的六个coser都好可爱</blockquote>
 [https://weibo.com/u/2815614110](https://weibo.com/u/2815614110)
 [https://www.douyin.com/user/MS4w ... QmmRXwcM-mSEF4cCcTA](https://www.douyin.com/user/MS4wLjABAAAAH5jhXqjsdy131SptJiOzMD4eQmmRXwcM-mSEF4cCcTA)
 
+
+*****
+
+####  Acerola  
+##### 1566#       发表于 2024-7-19 23:51
+
+出了小奏，安心等孔明了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

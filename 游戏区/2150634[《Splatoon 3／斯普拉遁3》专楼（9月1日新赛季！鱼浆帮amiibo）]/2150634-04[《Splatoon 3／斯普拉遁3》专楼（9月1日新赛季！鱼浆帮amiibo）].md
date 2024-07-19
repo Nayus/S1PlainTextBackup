@@ -680,3 +680,28 @@ grand festival，不是final<img src="https://static.saraba1st.com/image/smiley/
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4862#       发表于 2024-7-19 12:17
+
+xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗克萨斯  
+##### 4863#       发表于 2024-7-19 12:21
+
+四代会增加种族吗？我要新的美少女海产！
+
+
+*****
+
+####  Ryuuseigun  
+##### 4864#       发表于 2024-7-19 12:23
+
+这就是最终了吧还特意做了个看起来很隆重的宣传片，结果影响下一代的的惯例来看选现在是不是就有二代优化重置玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -16367,3 +16367,22 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 真没眼光啊，不去倒人气高的团票跑来倒鸡的，这下更傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jerryoq1  
+##### 20697#       发表于 2024-7-20 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641033&amp;ptid=2159415" target="_blank"> 星天观测 发表于 2024-7-20 00:05</a> 可能真的是倒票失败不得已看了爱知吧，看他张口就是河口湖武藏野肯定也要当日票了 真没眼光啊，不去倒人气高的团票跑来倒鸡的，这下更傻逼了 </blockquote>
+武藏野万人场不可能卖完的。
+河口湖主要是太远了，ppp能直接买a席，蝶大概率也差不多，AM能抽完a就不错了。来自: iPhone客户端
+
+*****
+
+####  御幸一也  
+##### 20698#       发表于 2024-7-20 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">河口湖這陰間地方，感覺也是賣不完……
+
+你邦本來就是都內主場地方弱，還搞個鳥不拉屎的場地……
+

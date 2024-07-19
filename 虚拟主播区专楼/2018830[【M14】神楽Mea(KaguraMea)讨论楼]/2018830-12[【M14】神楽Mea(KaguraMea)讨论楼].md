@@ -3480,3 +3480,18 @@ https://cowtransfer.com/s/8f049854e9fd44
 
 2024-7-19 16:30 上传
 
+
+*****
+
+####  TiHaru  
+##### 16903#       发表于 2024-7-19 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">b站音质真的好差，我对着视频检查完全听不到各种我在听录音的时候记录的小声音
+
+*****
+
+####  秋游刃  
+##### 16904#       发表于 2024-7-19 16:49
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

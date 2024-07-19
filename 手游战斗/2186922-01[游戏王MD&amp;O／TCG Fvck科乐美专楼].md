@@ -22,3 +22,28 @@
 
 KONAMI 员工早晨开车到公司，在停车场遇到独角兽被里侧除外户口本，在公司门口遇到结界像无法刷卡进门，好不容易进去后发现公司内部新装修，新家具都是活的，还没准备好身上的装备都被炸没了。要坐电梯到办公室时被告知今天是超量庆典，每上一楼需要连胜三把决斗。最后终于到了办公室，结果被畜生上司训斥迟到，被抽一抽一跳脸再抽一最后开除。
 
+
+*****
+
+####  战术核辣条  
+##### 106#         楼主| 发表于 2024-7-19 20:36
+
+<img src="https://img.saraba1st.com/forum/202407/19/203624rn8g8nyggefl8glg.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240719203605.jpg</strong> (314.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 20:36 上传
+
+哦无敌了刻魔居然还能加强一个这么有用的黄毛烂裤裆**恶魔
+
+*****
+
+####  kykawaiii  
+##### 107#       发表于 2024-7-19 20:40
+
+k社是祭天了全家想出来的超量杯吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

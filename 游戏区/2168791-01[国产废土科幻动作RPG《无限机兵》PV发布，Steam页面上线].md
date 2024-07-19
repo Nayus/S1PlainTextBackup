@@ -551,3 +551,15 @@ xbox不配拥有吗？
 
 有希望赶上星刃吗？
 
+
+*****
+
+####  oahcihs  
+##### 59#       发表于 2024-7-19 10:12
+
+看了看视频 感觉还行
+动作基本是流畅的
+就是没什么突出令人印象深刻的亮点
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

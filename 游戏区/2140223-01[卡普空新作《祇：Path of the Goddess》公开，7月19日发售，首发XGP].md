@@ -125,3 +125,14 @@ win10提示错误进不去。
 
 这次和大神okami联动的外观、武器和音乐超棒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  otakun  
+##### 85#       发表于 2024-7-19 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65634537&amp;ptid=2140223" target="_blank">oahcihs 发表于 2024-7-19 13:26</a>
+我卡怎么想的 左摇杆摁下去是闪避？
+另外 游戏一开始输入年龄是有什么意义 </blockquote>
+游戏里输年龄这个问题我在玩龙信2时也思考过，看来是卡婊兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

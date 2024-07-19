@@ -216,3 +216,13 @@ Image_1721365929029.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/19/131225j5vxmrwzv0uw6x3z.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kykawaiii  
+##### 5709#       发表于 2024-7-19 15:07
+
+日语看不懂拉<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

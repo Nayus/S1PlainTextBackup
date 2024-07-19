@@ -185,3 +185,59 @@
 Aniplex一单是95%，实际少了3.25%
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 13059#       发表于 2024-7-19 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟无氪的我屁关系没有 就不绑
+
+*****
+
+####  alucardcz  
+##### 13060#       发表于 2024-7-19 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637349&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-19 18:07</a>
+
+跟无氪的我屁关系没有 就不绑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你不是无课
+
+
+*****
+
+####  qixinno2  
+##### 13061#       发表于 2024-7-19 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637410&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-19 18:11</a>
+
+但你不是无课</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就氪过两次 两次都是保底的大冤种 之后我连福袋都没氪过
+
+*****
+
+####  alucardcz  
+##### 13062#       发表于 2024-7-19 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637431&amp;ptid=2084912" target="_blank">qixinno2 发表于 2024-7-19 18:14</a>
+
+就氪过两次 两次都是保底的大冤种 之后我连福袋都没氪过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">0和1质变！
+
+*****
+
+####  白金口袋  
+##### 13063#       发表于 2024-7-19 18:14
+
+白纸本居然变回40AP了，意外得还有点不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13064#       发表于 2024-7-19 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637442&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-7-19 18:14</a>
+
+白纸本居然变回40AP了，意外得还有点不习惯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">早上打还是20 血亏60体力！
+

@@ -647,3 +647,11 @@ cipyct808ecct1ze 有互填的吗
 
 （也不能完全不抽，一边等签到赠送一边用A卡推图吧）
 
+
+*****
+
+####  chivalry  
+##### 1562#       发表于 2024-7-19 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说国服这个超加速系统有没有改，我当初日服就是因为 sb 宝石迷宫和装备迷宫太痛苦了要自己走自动也难打才含泪弃坑的
+

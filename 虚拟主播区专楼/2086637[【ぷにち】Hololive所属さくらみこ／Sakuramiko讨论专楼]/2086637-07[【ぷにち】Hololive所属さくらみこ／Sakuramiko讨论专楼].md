@@ -4260,3 +4260,30 @@ sololive/周年纪念周边跟着C104时期全部撞在一起，不少人钱包�
 
 4年纪念竟然真的线下联动，我不敢想象之后会发生什么
 
+
+*****
+
+####  holoan  
+##### 9256#         楼主| 发表于 2024-7-19 18:00
+
+<img src="https://img.saraba1st.com/forum/202407/19/180052m6oc4c4vbn5iz161.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 18:00 上传
+
+*****
+
+####  holoan  
+##### 9257#         楼主| 发表于 2024-7-19 18:04
+
+<img src="https://img.saraba1st.com/forum/202407/19/180408durrohompsui58by.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 18:04 上传
+

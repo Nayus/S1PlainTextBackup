@@ -15838,3 +15838,12 @@ i83不清楚不是很正常么，社长在狗动画也就是ring里那几句台�
 
 鼓子估计是来宣传下6th带货下周边的吧
 
+
+*****
+
+####  NODY  
+##### 20646#       发表于 2024-7-19 10:30
+
+【佐佐木李子直播切片】在bml举牌宣传fmt被届到的李噶和李子学习中文的往事
+[https://www.bilibili.com/video/BV1Hr421M7jd](https://www.bilibili.com/video/BV1Hr421M7jd)
+

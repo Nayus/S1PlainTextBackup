@@ -96,3 +96,13 @@ win10提示错误进不去。
 
 王国保卫战爱好者觉得真香，好玩，耐玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寇马可  
+##### 82#       发表于 2024-7-19 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632501&amp;ptid=2140223" target="_blank">conanoysq 发表于 2024-7-19 10:16</a>
+王国保卫战爱好者觉得真香，好玩，耐玩。村民质量提升了之后搭配下职业，在关键点位布阵可以轻松独当一面， ...</blockquote>
+你这最后一句话最关键<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

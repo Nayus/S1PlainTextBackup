@@ -926,3 +926,15 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 隔壁这是不是有点太无理取闹了，友团live安排有迷惑的地方第一推论是要给星面子。。？星什么时候这么受代哥重视了，我怎么没感觉到呢。
 
+
+*****
+
+####  csolfans  
+##### 20599#       发表于 2024-7-19 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632415&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-7-19 10:09</a>
+隔壁这是不是有点太无理取闹了，友团live安排有迷惑的地方第一推论是要给星面子。。？星什么时候这么受代哥 ...</blockquote>
+隔壁又是哪里
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

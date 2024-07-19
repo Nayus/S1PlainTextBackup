@@ -3495,3 +3495,18 @@ https://cowtransfer.com/s/8f049854e9fd44
 
 不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Leutnant某囧  
+##### 16905#       发表于 2024-7-19 17:03
+
+20点播。。。不知道是什么内容
+
+*****
+
+####  受菊  
+##### 16906#       发表于 2024-7-19 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">正常来说发生这种事情都是去炎运营找说法，像这样强行把主播拉出来站队架在火上烤真的是天才行为，看一群人在说主播还是六年前的孩子，看下来咋觉得某些人才是孩子呢。烦，又少看几场直播，谁补给我啊
+

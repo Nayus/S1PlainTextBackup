@@ -16531,3 +16531,57 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 說實話，現在喜歡ave的多少都有點M <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 20715#       发表于 2024-7-20 01:28
+
+ 本帖最后由 御景 于 2024-7-20 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641479&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-7-20 01:24</a>
+
+鸡哥不是老逮著祥子喷吗？ 这个是扭曲gachi 不太一样 至少肯去现地填线比啥都强 ...</blockquote>
+这个一样的，看回复也是逮着祥子相关阴阳怪气，相比“有鸡不看”，不过是扩展到mujica了。
+
+*****
+
+####  MZZK  
+##### 20716#       发表于 2024-7-20 01:30
+
+喜欢ave和喜欢mygo不都得沾点M？一个要忍着wsd的狗屎企划，一个得忍着个别队友的离谱表现<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+能把天胡开局玩成这样wsd多少有些惊世智慧的
+
+*****
+
+####  NODY  
+##### 20717#       发表于 2024-7-20 01:31
+
+这个人一边黑祥子一边repo说water的初祥互动很美，是真的像扭曲gachi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20718#       发表于 2024-7-20 01:32
+
+没办法啊，wsd给点鸡相关的新东西的时候漏油们不是各种脑补考据么，但是现在没新东西啊，蹦出个傻逼那就看乐子呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20719#       发表于 2024-7-20 01:32
+
+才看到總集篇的小冊子居然還有訪談<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 20720#       发表于 2024-7-20 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641497&amp;ptid=2159415" target="_blank">御景 发表于 2024-7-20 01:28</a>
+
+这个一样的，看回复也是逮着祥子相关阴阳怪气，相比“有鸡不看”，不过是扩展到mujica了。 ...</blockquote>
+翻了下，最近提到祥子相关的，与其说在阴阳角色，不如说是阴阳nga常用的那个黑称吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这下越来越像扭曲粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

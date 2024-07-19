@@ -115,3 +115,23 @@ AEMedia直接倒出来了</blockquote>
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1824#       发表于 2024-7-19 07:55
+
+ 本帖最后由 gundammarkⅡ 于 2024-7-19 07:56 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/19/074850e0ap040i0ii9cv74.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240719_074706_com.android.gallery3d_edit_397214868849805.jpg</strong> (425.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 07:48 上传
+
+明确还是第一部那台决斗而不是新造的套皮扎古<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议长）拿去给尼哥尔爸改修
+

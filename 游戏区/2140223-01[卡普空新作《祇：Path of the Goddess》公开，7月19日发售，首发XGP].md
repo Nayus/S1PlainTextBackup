@@ -68,3 +68,15 @@ XSX第一关完成后装备技能界面游戏崩溃……
 
 再回来看看世代真的是顺溜多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Gmlazy  
+##### 79#       发表于 2024-7-19 09:26
+
+ 本帖最后由 Gmlazy 于 2024-7-19 09:28 编辑 
+
+和巨硬八字不合，有人用PC Xbox运行的吗？
+
+win10提示错误进不去。
+

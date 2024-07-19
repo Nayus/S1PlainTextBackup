@@ -3426,3 +3426,14 @@ slicer_opt.list
 
 还有就是一些网络用语会认错
 
+
+*****
+
+####  sino__unnko3  
+##### 16899#       发表于 2024-7-19 13:42
+
+https://cowtransfer.com/s/8f049854e9fd44 
+靠这个勉强的识别引擎搓了个生气咩咩的语音包，配合这个参考音频食用更佳
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

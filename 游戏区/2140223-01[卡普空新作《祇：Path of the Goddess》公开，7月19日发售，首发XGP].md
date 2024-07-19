@@ -207,3 +207,13 @@ win10提示错误进不去。
 
 这游戏玩了demo之后感觉不太值得全价，只想嫖xgp的，但是现在我开了加速器也下载不动。
 
+
+*****
+
+####  Freshfish  
+##### 94#       发表于 2024-7-19 22:48
+
+女主非常符合我的xp<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

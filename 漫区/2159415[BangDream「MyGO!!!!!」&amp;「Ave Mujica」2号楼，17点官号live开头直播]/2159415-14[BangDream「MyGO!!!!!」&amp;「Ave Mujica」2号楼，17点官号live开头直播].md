@@ -16260,3 +16260,23 @@ go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人</b
 
 听会儿water和earth自我调理一下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20686#       发表于 2024-7-19 22:49
+
+叫亲妈是因为出场不止一次的御用画师吧，虽然鸡这治愈出场很少，但又是打牌又是周年贺图的
+
+当然更重要的还是难得画得好看，没有新曲绘的话就很伤心了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 20687#       发表于 2024-7-19 22:54
+
+治愈也才三万粉 但感觉很有潜力  
+就是感觉产量低了点
+mujica诞生的mv曲绘真的惊为天人
+

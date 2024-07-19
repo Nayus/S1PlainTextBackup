@@ -16173,3 +16173,41 @@ go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人
 go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人</blockquote>
 原来如此 估计mujica的角色原案也是这个人了
 
+
+*****
+
+####  御幸一也  
+##### 20677#       发表于 2024-7-19 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639998&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-19 22:04</a>
+
+主要是被一个傻逼搞到心态了
+
+上窜下跳的换着id阴阳你鸡票卖不出去，尤其是爱知上座率特别低
+
+只能说多亏司 ...</blockquote>
+那沒辦法的，沒播就是沒人權<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正孽力會回饋，過於失禮的話就不說了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  NODY  
+##### 20678#       发表于 2024-7-19 22:10
+
+那个话术和有鸡不看哥是差不多的，估计是被禁言封号以后换了小号吧
+
+*****
+
+####  星天观测  
+##### 20679#       发表于 2024-7-19 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640026&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-19 22:06</a>
+
+那沒辦法的，沒播就是沒人權
+
+反正孽力會回饋，過於失禮的話就不說了 </blockquote>
+张口就是鸡卖不出票，其他话是一句都不会说的，不知道以为鸡对他的赛博马动手了
+
+再看看手上仅有的三瓜俩枣，鸡推前途真是一片黑暗啊<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+

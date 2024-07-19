@@ -175,3 +175,25 @@ if剧情也是，悲剧本身没有问题，没头没脑才是大问题。
 
 jp也流行抱憾终生这套？
 
+
+*****
+
+####  Anatoly  
+##### 5706#       发表于 2024-7-19 11:17
+
+真要说WING这事本来按年的赛制完全适合做动画全线串联的，结果缩的没头没尾
+
+不该还原的时候还原历史，真要该还原的时候结果又怕写年龄增长之类的问题怂了
+
+
+*****
+
+####  Vacuolar  
+##### 5707#       发表于 2024-7-19 11:23
+
+【「Look up to the sky」緋田美琴 solo【偶像大师闪耀色彩 Song for Prism MV】】 [https://www.bilibili.com/video/B ... 3afaa822d2f12516262](https://www.bilibili.com/video/BV1vE421F7eX/?share_source=copy_web&amp;vd_source=10262ea2b983d3afaa822d2f12516262)
+
+这官方宣传mv，真的幽默。好歌，好舞蹈设计。
+
+但是这镜头和背景设计把一切都毁了。
+

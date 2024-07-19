@@ -205,3 +205,13 @@ AEMedia直接倒出来了</blockquote>
 这联名套餐可真够冤种的，459买个SD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我以为代哥卖个新换色的会场限定上海自由就成了，结果这新创华搞的联动更离谱
 
+
+*****
+
+####  Ironman_mk5  
+##### 1832#       发表于 2024-7-19 19:58
+
+<blockquote>死难者23er 发表于 2024-7-19 17:43
+阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣 ...</blockquote>
+所以机师实力是月亮&gt;阿古&gt;伊扎克？
+

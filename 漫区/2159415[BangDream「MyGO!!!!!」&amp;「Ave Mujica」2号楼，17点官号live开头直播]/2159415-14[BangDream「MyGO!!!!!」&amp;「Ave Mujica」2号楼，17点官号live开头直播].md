@@ -16459,3 +16459,51 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 真就为了踩鸡什么都不顾了，二代鸡哥实至名归啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 20706#       发表于 2024-7-20 01:10
+
+漏油少去点nga吧，看你们说的这踩鸡的名人都层出不穷了，不敢想是什么环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳥栖朝  
+##### 20707#       发表于 2024-7-20 01:14
+
+ 本帖最后由 鳥栖朝 于 2024-7-20 01:17 编辑 
+
+动画没有、小动画没有、翻唱没有、人偶集会没有、单独官号没有（国内）、粉丝牌没有（国内）、立绘鬼图、神必画师、PPTMV、摆烂周边，全靠中之人硬撑，这要是能起飞wsd嘴都笑歪了
+
+*****
+
+####  jerryoq1  
+##### 20708#       发表于 2024-7-20 01:14
+
+其他的不好说，但翻唱专塞的抽选很奇葩没问题，官网都是后来才改的
+
+*****
+
+####  NODY  
+##### 20709#       发表于 2024-7-20 01:16
+
+这个是一边给鸡送钱一边骂的，这点来说可能比有鸡不看强点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MZZK  
+##### 20710#       发表于 2024-7-20 01:18
+
+就Mujica现在这状态，活动不是live就是新歌，其他内容约等于零，你跟我讲这是新团哦？养老团都比mujica活跃吧？不知道wsd在打什么算盘<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20711#       发表于 2024-7-20 01:18
+
+真强点吗，票据一发天天刷现场看的鸡空了大半座位
+
+我只能说很难评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

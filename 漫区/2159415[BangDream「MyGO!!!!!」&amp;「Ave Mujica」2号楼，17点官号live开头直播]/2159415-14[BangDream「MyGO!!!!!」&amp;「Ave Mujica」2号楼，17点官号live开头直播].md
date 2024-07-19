@@ -16405,3 +16405,36 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641155&amp;ptid=2159415" target="_blank"> 御幸一也 发表于 2024-7-20 00:25</a> 河口湖這陰間地方，感覺也是賣不完…… 你邦本來就是都內主場地方弱，還搞個鳥不拉屎的場地…… </blockquote>
 唉 原本我是想:选河口湖是要屋顶打开找到光的，但五点才开演感觉没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  御幸一也  
+##### 20701#       发表于 2024-7-20 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641261&amp;ptid=2159415" target="_blank">jerryoq1 发表于 2024-7-20 00:42</a>
+
+唉 原本我是想:选河口湖是要屋顶打开找到光的，但五点才开演感觉没戏了</blockquote>
+
+晚上開才浪漫吧，打開屋頂滿天星光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+傍晚開的話能看到富士山，怎麼都不虧
+
+河口湖這場子肯定是好看的，就是位置太陰間
+
+*****
+
+####  PDQ4  
+##### 20702#       发表于 2024-7-20 00:51
+
+5点开努努力演到7点左右，天应该黑了吧，还是能看到星星的
+
+还是先祈祷别下雨吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 20703#       发表于 2024-7-20 00:55
+
+那边的二代鸡哥爆典了，有兴趣的过去看看笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

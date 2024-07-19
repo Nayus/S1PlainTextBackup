@@ -966,3 +966,19 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">玛德饭田和曼曼两位黑皮大雷也太涩了
 
+
+*****
+
+####  秋月孝三  
+##### 4889#       发表于 2024-7-20 00:11
+
+既然野上都明说8月底要砍武器，那么预测一下现t0的被害者名单好了：
+
+不砍你们说明ika研已经没人玩游戏了：无印香槟、无印中桶、长泡；
+
+挨刀也别抱怨，这是你们应得的：无印🍣、无印铅笔、无印52；
+
+野上通过抛硬币决定你们的死活：无印双枪、黑zap；
+
+肘赢野上，成为喷3赢家：无印电锯、无印鹦鹉螺。
+

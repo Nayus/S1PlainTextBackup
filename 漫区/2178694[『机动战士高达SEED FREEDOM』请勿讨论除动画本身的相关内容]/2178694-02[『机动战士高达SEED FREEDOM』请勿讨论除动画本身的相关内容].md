@@ -288,3 +288,27 @@ AEMedia直接倒出来了</blockquote>
 —— 来自 鹅球 v3.0.0.82-a ...</blockquote>
 这个就看前传怎么解释，反正这个说法一出前传的故事在我看来就变得更加吸引人了
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1840#       发表于 2024-7-20 00:16
+
+ 本帖最后由 gundammarkⅡ 于 2024-7-20 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638962&amp;ptid=2178694" target="_blank">mffx 发表于 2024-7-19 20:31</a>
+
+有没可能，是不想进/被调走/妈想让儿子专心相亲(？)等等，而不是“被打败了”
+
+—— 来自 鹅球 v3.0.0.82-a ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">最简单的解：基拉不要
+
+因为<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/20/001637fkykn3tffcvfff3z.jpg" referrerpolicy="no-referrer">
+
+<strong>Collage_20240720_001557.jpg</strong> (397.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 00:16 上传
+

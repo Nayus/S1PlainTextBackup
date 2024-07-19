@@ -152,3 +152,14 @@ win10提示错误进不去。
 
 这游戏跟百龙夜行让我有种说不清谁是爸爸谁是儿子的感觉
 
+
+*****
+
+####  zzy516232108  
+##### 88#       发表于 2024-7-19 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65635500&amp;ptid=2140223" target="_blank">otakun 发表于 2024-7-19 15:14</a>
+
+游戏里输年龄这个问题我在玩龙信2时也思考过，看来是卡婊兴趣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是类似renet那样收集用户信息
+

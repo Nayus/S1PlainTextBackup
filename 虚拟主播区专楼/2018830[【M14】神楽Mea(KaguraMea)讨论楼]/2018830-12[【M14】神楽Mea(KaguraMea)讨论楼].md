@@ -4026,3 +4026,20 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">翻译都没翻译直接发了个切片然后标题叫做忏悔录是把，是不是真的看不得主播好，我服了
 
+
+*****
+
+####  时间在我手中  
+##### 16961#       发表于 2024-7-19 22:32
+
+有点南蚌，不过明天再说吧，乐
+
+*****
+
+####  ablast  
+##### 16962#       发表于 2024-7-19 22:37
+
+已经又和那几个野男人lol启动了 无大碍
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

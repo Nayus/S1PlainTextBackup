@@ -241,3 +241,14 @@ Aniplex一单是95%，实际少了3.25%
 白纸本居然变回40AP了，意外得还有点不习惯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">早上打还是20 血亏60体力！
 
+
+*****
+
+####  qixinno2  
+##### 13065#       发表于 2024-7-19 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637439&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-19 18:14</a>
+
+0和1质变！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太怨种了 跟直接说我是傻逼没区别了
+

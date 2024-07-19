@@ -663,3 +663,20 @@ grand festival，不是final<img src="https://static.saraba1st.com/image/smiley/
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4860#       发表于 2024-7-19 12:08
+
+还真是过去现在未来
+
+*****
+
+####  秋月孝三  
+##### 4861#       发表于 2024-7-19 12:10
+
+一代老害二代老害三代小鬼是吧
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

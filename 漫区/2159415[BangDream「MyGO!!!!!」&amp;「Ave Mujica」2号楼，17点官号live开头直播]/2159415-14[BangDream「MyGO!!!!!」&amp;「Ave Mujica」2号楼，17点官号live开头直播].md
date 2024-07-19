@@ -15956,3 +15956,20 @@ MyGO!!!!! 2024上海演唱会确定。
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  CyDiablo  
+##### 20658#       发表于 2024-7-19 12:11
+
+国内票务平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会员购都显得眉清目秀的
+真希望能抢到mygo的票啊<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">想看coco，想看羊，想看凛，想看青木，想看蜜柑
+
+
+*****
+
+####  rikaren  
+##### 20659#       发表于 2024-7-19 12:15
+
+疑似还是eupd，这下有福了
+

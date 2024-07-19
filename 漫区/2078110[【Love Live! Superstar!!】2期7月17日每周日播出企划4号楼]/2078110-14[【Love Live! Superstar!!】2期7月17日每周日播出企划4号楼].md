@@ -890,3 +890,21 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 绵田实力是有的，但必须搭上好的剧本。创形者可以说是木村这撕瞎搞，包括后来的元宇宙也是做成一坨。但是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花田先不说，京极是真的不行，演出做得太差；其实理性来说他才是甲级战犯
 
+
+*****
+
+####  ads147147  
+##### 20595#       发表于 2024-7-19 09:42
+
+隔壁补星1的到了第八话就绷不住说要给3分了，比较意外的是有个直接看星2的反而觉得还不错，只能说只要接受了大香传的前提，其实夏美k头那段也不是那么难崩，vn当洗脚婢也不是不能接受，不就是另一种版本的hina嘛，只不过这个hina输了。
+
+*****
+
+####  starring  
+##### 20596#       发表于 2024-7-19 09:43
+
+估计要发一单和开1st live
+<img src="https://p.sda1.dev/18/b9152bc6d8f89a51689b13bce55e4489/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

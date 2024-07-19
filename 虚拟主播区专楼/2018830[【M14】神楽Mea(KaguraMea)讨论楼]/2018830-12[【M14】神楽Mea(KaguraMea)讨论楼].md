@@ -4101,3 +4101,23 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 ゼロスト也在啊，ninja of ninjas应该是たぬき忍者吧
 
+
+*****
+
+####  sino__unnko3  
+##### 16968#       发表于 2024-7-19 23:18
+
+记得是真的麻(
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  十九号大侠  
+##### 16969#       发表于 2024-7-19 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

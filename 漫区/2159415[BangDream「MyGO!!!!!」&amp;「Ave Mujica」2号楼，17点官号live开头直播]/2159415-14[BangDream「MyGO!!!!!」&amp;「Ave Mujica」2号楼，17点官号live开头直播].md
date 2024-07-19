@@ -16320,3 +16320,21 @@ mujica诞生的mv曲绘真的惊为天人
 
 治愈有可能是在职画师，社员画师会被限制发图的，也能解释不怎么营业
 
+
+*****
+
+####  NODY  
+##### 20692#       发表于 2024-7-19 23:20
+
+查了一下nga那个一直在说爱知的人的成分，有去2nd现地还表示water营业很好，几个月前发言都还算正常偏鸡，最近两个月突然开始一反常态拿爱知上座率和销量说事，大概和z8那种喜欢说自推是底边的扭曲gachi一个心态吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20693#       发表于 2024-7-19 23:23
+
+什麼時候都內都坐不滿再來不安吧 何況動畫沒播本來就糊 
+
+都整天被質疑底邊團怎麼會有粉絲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

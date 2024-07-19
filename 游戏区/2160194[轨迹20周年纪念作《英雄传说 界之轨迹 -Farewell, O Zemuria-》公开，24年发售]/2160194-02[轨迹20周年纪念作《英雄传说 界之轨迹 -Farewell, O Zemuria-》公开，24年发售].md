@@ -3607,3 +3607,38 @@ Screenshot_20240718_214220.jpg
 
 怎么看着像那个小蓝<img src="https://p.sda1.dev/18/b23f0ddc8184eda154c92a65b5b45759/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 1814#       发表于 2024-7-19 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65635727&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-7-19 15:39</a>
+怎么看着像那个小蓝</blockquote>
+同一个画师VOFAN，也是和云豹合作很久了，闪4亚莉莎有件特典服装还是请这个画师来设计的
+
+*****
+
+####  卢迪克  
+##### 1815#       发表于 2024-7-19 16:39
+
+艹
+
+<img src="https://img.saraba1st.com/forum/202407/19/163951vxdxhoe7wdzecd1v.jpg" referrerpolicy="no-referrer">
+
+<strong>D6E8940BBA6C2BF194767D78DBCF3FB2.jpg</strong> (291.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-19 16:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/19/163955i51t0pps31e0ttl0.jpg" referrerpolicy="no-referrer">
+
+<strong>57E5864157C58DFAD347AE0723812CDC.jpg</strong> (125.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-19 16:39 上传
+

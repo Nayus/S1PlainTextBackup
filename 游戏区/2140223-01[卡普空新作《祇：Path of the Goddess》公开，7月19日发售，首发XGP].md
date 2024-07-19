@@ -163,3 +163,18 @@ win10提示错误进不去。
 游戏里输年龄这个问题我在玩龙信2时也思考过，看来是卡婊兴趣</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是类似renet那样收集用户信息
 
+
+*****
+
+####  manyin1  
+##### 89#       发表于 2024-7-19 16:40
+
+不想买游戏，曲线救国的方式是不是购买一个月的XGP服务然后赶紧通关？
+
+*****
+
+####  unclea  
+##### 90#       发表于 2024-7-19 16:40
+
+大神的外观只有男主的还行，女主还是把面纱戴上吧
+

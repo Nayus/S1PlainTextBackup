@@ -160,3 +160,11 @@ AEMedia直接倒出来了</blockquote>
 
 —— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  1096beam  
+##### 1827#       发表于 2024-7-19 09:13
+
+资源都出了过3000W都是个问题好不
+

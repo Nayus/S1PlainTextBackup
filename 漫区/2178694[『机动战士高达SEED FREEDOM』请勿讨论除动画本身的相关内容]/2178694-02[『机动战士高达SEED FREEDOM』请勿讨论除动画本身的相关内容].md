@@ -215,3 +215,43 @@ AEMedia直接倒出来了</blockquote>
 阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣 ...</blockquote>
 所以机师实力是月亮&gt;阿古&gt;伊扎克？
 
+
+*****
+
+####  starring  
+##### 1833#       发表于 2024-7-19 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65637075&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-19 17:43</a>
+
+阿古尼斯居然是打败了伊扎克进入了指南盘，现在位于前传阿古尼斯加入指南针的过程更加感兴趣 ...</blockquote>
+这个设定哪里出来的？
+
+*****
+
+####  死难者23er  
+##### 1834#       发表于 2024-7-19 20:09
+
+<blockquote>Ironman_mk5 发表于 2024-7-19 19:58
+所以机师实力是月亮&gt;阿古&gt;伊扎克？</blockquote>
+不是只是说伊扎克一开始也打算去指南针的。不过这样一出之后之前所推测的什么阿古尼斯是因为家世或者实力都变得完全没有道理了，毕竟伊扎克这两个哪个都比阿古尼斯强，最后居然输了
+
+
+*****
+
+####  死难者23er  
+##### 1835#       发表于 2024-7-19 20:10
+
+<blockquote>starring 发表于 2024-7-19 20:09
+这个设定哪里出来的？</blockquote>
+最新模型的人物介绍提到伊扎克也打算加入罗盘的
+
+*****
+
+####  starring  
+##### 1836#       发表于 2024-7-19 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638713&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-19 20:10</a>
+
+最新模型的人物介绍提到伊扎克也打算加入罗盘的</blockquote>
+哪里有伊扎克打算加入罗盘，明明说zaft为了参加罗盘的活动才加入军衔，更没有伊扎克输个阿格尼丝的设定
+

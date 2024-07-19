@@ -960,3 +960,17 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 建议直接原地对线，虹楼大部分都算能平心静气讲理的主
 
+
+*****
+
+####  starring  
+##### 20602#       发表于 2024-7-19 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632258&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-19 09:53</a>
+咦，之前那个加入ave母鸡卡的造型单曲不算一单么？
+
+1st还是值得期待的。</blockquote>
+没发实体CD也算吗？我猜测这次要发实体碟
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

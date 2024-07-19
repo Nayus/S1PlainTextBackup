@@ -3451,3 +3451,32 @@ https://cowtransfer.com/s/8f049854e9fd44
 
 录播，一小时半
 
+
+*****
+
+####  古战场亡魂  
+##### 16901#       发表于 2024-7-19 16:29
+
+<img src="https://img.saraba1st.com/forum/202407/19/162927q51js9zs9ezrpsq9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 16:29 上传
+
+*****
+
+####  古战场亡魂  
+##### 16902#       发表于 2024-7-19 16:30
+
+昨天那个文本联动还好跳，这个不知道会不会跳过去。
+
+<img src="https://img.saraba1st.com/forum/202407/19/163024s7d8187dny7n0n9n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 16:30 上传
+

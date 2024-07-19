@@ -1047,3 +1047,16 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 好像星手办有出二期生么？隐约记得一期生已经两套了。
 
+
+*****
+
+####  ViyViy  
+##### 20610#       发表于 2024-7-19 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65635978&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-7-19 16:05</a>
+
+这种tb代购买也不算加价多，就是一想到是出口转内销就没多打意愿买了。
+
+好像星手办有出二期生么？隐约记得 ...</blockquote>
+没有，但是芽衣的看板娘应该是第一个了，除非扣到这也砍了
+

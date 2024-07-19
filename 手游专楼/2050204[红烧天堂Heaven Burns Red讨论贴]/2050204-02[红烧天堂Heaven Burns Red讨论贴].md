@@ -655,3 +655,13 @@ cipyct808ecct1ze 有互填的吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说国服这个超加速系统有没有改，我当初日服就是因为 sb 宝石迷宫和装备迷宫太痛苦了要自己走自动也难打才含泪弃坑的
 
+
+*****
+
+####  虚数存在感  
+##### 1563#       发表于 2024-7-19 20:31
+
+国服这几个用券抽的池子后面会更新吗?还是直接用掉就好
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

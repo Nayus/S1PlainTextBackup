@@ -285,3 +285,25 @@ Aniplex一单是95%，实际少了3.25%
 可以直接信用卡付钱，jcb visa都行</blockquote>
 没有信用卡，拜拜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13069#       发表于 2024-7-19 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638220&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2024-7-19 19:30</a>
+
+没有信用卡，拜拜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我就不一样了 直接没有钱
+
+
+*****
+
+####  里村紅葉  
+##### 13070#       发表于 2024-7-19 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65638942&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-19 20:29</a>
+
+我就不一样了 直接没有钱</blockquote>
+但你的脸填补了这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

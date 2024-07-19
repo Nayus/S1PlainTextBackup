@@ -681,3 +681,39 @@ cipyct808ecct1ze 有互填的吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Skyline_R  
+##### 1565#       发表于 2024-7-19 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65566375&amp;ptid=2050204" target="_blank">Skyline_R 发表于 2024-7-12 18:52</a>
+
+BW展位的六个coser都好可爱</blockquote>
+整理了六位coser的帐号，除了月歌以外都是bilibili的ID，B站直接搜ID就能关注
+
+【月歌】@迷路面面
+[https://www.xiaohongshu.com/user/profile/5a6f4490e8ac2b69f82f8f9f](https://www.xiaohongshu.com/user/profile/5a6f4490e8ac2b69f82f8f9f)
+
+【Yuki】@一束阿束
+[https://www.xiaohongshu.com/user/profile/5e22fe3b0000000001002265](https://www.xiaohongshu.com/user/profile/5e22fe3b0000000001002265)
+[https://www.douyin.com/user/MS4w ... Llt3Cj2PVvMKFxLU4u8](https://www.douyin.com/user/MS4wLjABAAAAphhAsaM46qAHryIlNtB0ZTGKLlt3Cj2PVvMKFxLU4u8)
+
+【司】@兔x2
+[https://weibo.com/u/3586120705](https://weibo.com/u/3586120705)
+[https://www.xiaohongshu.com/user/profile/5bf967d151783a602452f0c2](https://www.xiaohongshu.com/user/profile/5bf967d151783a602452f0c2)
+
+【可怜】@十万个小陆
+[https://weibo.com/1828704871](https://weibo.com/1828704871)
+[https://www.xiaohongshu.com/user/profile/5b858c9909b2740001dc8780](https://www.xiaohongshu.com/user/profile/5b858c9909b2740001dc8780)
+[https://www.douyin.com/user/MS4w ... D7UjwTpZQXGiLk-x0EA](https://www.douyin.com/user/MS4wLjABAAAAIfqg8Ti2rI87TZU9nVWkVbBfD7UjwTpZQXGiLk-x0EA)
+
+【惠】@夏芽yaya
+[https://weibo.com/u/1750515841](https://weibo.com/u/1750515841)
+[https://www.xiaohongshu.com/user/profile/64b0b6c4000000000b0163f7](https://www.xiaohongshu.com/user/profile/64b0b6c4000000000b0163f7)
+[https://www.douyin.com/user/MS4w ... 6Q-AxXPaRWlCCmH0hRg](https://www.douyin.com/user/MS4wLjABAAAA4uxH0wWn9e-X_o1lYpET37_m6Q-AxXPaRWlCCmH0hRg)
+
+【玉】@鲨鱼SAME
+[https://weibo.com/u/2815614110](https://weibo.com/u/2815614110)
+[https://www.douyin.com/user/MS4w ... QmmRXwcM-mSEF4cCcTA](https://www.douyin.com/user/MS4wLjABAAAAH5jhXqjsdy131SptJiOzMD4eQmmRXwcM-mSEF4cCcTA)
+

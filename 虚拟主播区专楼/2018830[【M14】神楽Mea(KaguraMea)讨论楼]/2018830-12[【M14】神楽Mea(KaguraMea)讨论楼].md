@@ -3937,3 +3937,41 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 哦，所以又是哪个公司拖了是吧，那他们怎么和主播discord联系的，令人深思
 
+
+*****
+
+####  sino__unnko3  
+##### 16952#       发表于 2024-7-19 21:18
+
+但主播这是否认了半年的事情？夸张了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  时间在我手中  
+##### 16953#       发表于 2024-7-19 21:20
+
+链接：[https://pan.baidu.com/s/15yvrLlfDXTnK9XPTawYowQ](https://pan.baidu.com/s/15yvrLlfDXTnK9XPTawYowQ) 
+
+提取码：6gu9 
+
+--来自百度网盘超级会员V6的分享
+
+录屏，大概录了49分钟，不全
+
+
+*****
+
+####  ashero  
+##### 16954#       发表于 2024-7-19 21:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">失去沟通渠道就是这吊样  我不好说 
+
+*****
+
+####  十九号大侠  
+##### 16955#       发表于 2024-7-19 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">喝酒去了
+

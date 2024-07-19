@@ -16357,3 +16357,13 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初有鸡不看哥开始也是个正常人，谁想到后面变成那样了呢
 不过是个有鸡不看2.0而已
 
+
+*****
+
+####  星天观测  
+##### 20696#       发表于 2024-7-20 00:05
+
+可能真的是倒票失败不得已看了爱知吧，看他张口就是河口湖武藏野肯定也要当日票了
+
+真没眼光啊，不去倒人气高的团票跑来倒鸡的，这下更傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

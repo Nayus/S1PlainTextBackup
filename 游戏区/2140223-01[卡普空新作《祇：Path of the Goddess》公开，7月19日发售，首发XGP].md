@@ -233,3 +233,15 @@ win10提示错误进不去。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">接受不了这剧情里动不动跳大神的过场，与其说是武不如说是舞
 
+
+*****
+
+####  杰尼龟2号机  
+##### 97#       发表于 2024-7-20 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65635825&amp;ptid=2140223" target="_blank">Christopherzou 发表于 2024-7-19 15:50</a>
+有用xgp的筒子嘛……我在xbox的应用里倒是看到了，但是点进去不可用。试着去xbox官网但是又找不到这游戏， ...</blockquote>
+没到时间点没反应，昨晚到时间了，你再启动试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

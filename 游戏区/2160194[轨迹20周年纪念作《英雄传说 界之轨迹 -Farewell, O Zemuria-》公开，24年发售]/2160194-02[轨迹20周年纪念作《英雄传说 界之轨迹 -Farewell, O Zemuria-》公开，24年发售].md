@@ -3520,3 +3520,16 @@ Screenshot_20240718_214220.jpg
 
 咱能不就整一个最普通的四天王加大BOSS设定，四天王里弄一个外形忧郁系的跳反役，一个不起眼最后豹变的幕后黑手役，这样前面铺垫的几章也不会觉得太水
 
+
+*****
+
+####  ravend233  
+##### 1807#       发表于 2024-7-19 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65633474&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-7-19 11:36</a>
+
+阿法现在还没有公布一个反派立绘，难道真的又要复制人大乱斗了么
+
+咱能不就整一个最普通的四天王加大BOSS设 ...</blockquote>
+反派当然就是目前放出来的神必面具人口牙
+

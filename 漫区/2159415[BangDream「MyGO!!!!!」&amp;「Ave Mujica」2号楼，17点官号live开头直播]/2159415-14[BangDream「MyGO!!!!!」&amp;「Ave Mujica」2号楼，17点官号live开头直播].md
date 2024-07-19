@@ -15906,3 +15906,19 @@ MyGO!!!!! 2024上海演唱会确定。
 
 <img src="https://img.saraba1st.com/forum/202407/19/114744bmjm5khkaamrakct.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 20652#       发表于 2024-7-19 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄牛乐麻了
+狗的票我不抢了，不想开羊姐盲盒
+
+*****
+
+####  [皆神孝介]  
+##### 20653#       发表于 2024-7-19 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">总是上海或者上海旁边
+

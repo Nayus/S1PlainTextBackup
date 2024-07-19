@@ -16211,3 +16211,28 @@ go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人</b
 
 再看看手上仅有的三瓜俩枣，鸡推前途真是一片黑暗啊<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 20680#       发表于 2024-7-19 22:17
+
+只能說快趁現在還沒火先衝現地了，之後開播沒把握能場場抽盤子席
+
+
+*****
+
+####  Aendst  
+##### 20681#       发表于 2024-7-19 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道怎么说，但是这种奇葩粉怎么还不止一个，好有说服力的教科书级一粉顶十黑
+
+1st抽选就挺地狱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20682#       发表于 2024-7-19 22:21
+
+喜欢我1st的ss席二手票15万円一张吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

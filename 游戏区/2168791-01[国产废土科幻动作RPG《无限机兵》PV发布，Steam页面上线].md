@@ -579,3 +579,14 @@ xbox不配拥有吗？
 
 试玩挺糙的，看着像是手游，但手游魂也有帕斯卡契约这样的作品。美术风格类似噬血代码二刺螈魂。似乎没有精力限制，多了个同步率的设计。主角走起路来胯部左摇右摆的真别扭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fcssnake  
+##### 62#       发表于 2024-7-20 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631896&amp;ptid=2168791" target="_blank">westgun 发表于 2024-7-19 09:19</a>
+
+xbox不配拥有吗？</blockquote>
+索尼中国之星计划的游戏，你说XBX配不配呢？
+

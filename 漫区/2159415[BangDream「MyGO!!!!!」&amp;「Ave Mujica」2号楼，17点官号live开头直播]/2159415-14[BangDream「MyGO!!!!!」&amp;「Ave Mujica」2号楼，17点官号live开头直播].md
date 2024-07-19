@@ -16386,3 +16386,13 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 你邦本來就是都內主場地方弱，還搞個鳥不拉屎的場地……
 
+
+*****
+
+####  星天观测  
+##### 20699#       发表于 2024-7-20 00:35
+
+河口湖评价为有配信就算成功，还是看看年底有多少萝粉愿意顺便看一看母鸡卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过就wsd现在这个运营方案，4th什么样我不敢想
+

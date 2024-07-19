@@ -705,3 +705,77 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 这就是最终了吧还特意做了个看起来很隆重的宣传片，结果影响下一代的的惯例来看选现在是不是就有二代优化重置玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yanglian72  
+##### 4865#       发表于 2024-7-19 12:26
+
+猜测选过去的人最多，初代偶像人气太高了
+
+*****
+
+####  lilod  
+##### 4866#       发表于 2024-7-19 12:31
+
+大 N 老师：我的思念从来没有变过！
+
+*****
+
+####  Bruce33  
+##### 4867#       发表于 2024-7-19 12:31
+
+我选过去
+
+*****
+
+####  Dedalus  
+##### 4868#       发表于 2024-7-19 12:32
+
+谁被三代偶像代言谁输
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 4869#       发表于 2024-7-19 12:32
+
+<img src="https://img.saraba1st.com/forum/202407/19/123214zlsk80c0suy0uus1.jpg" referrerpolicy="no-referrer">
+
+<strong>weibo_50578239793417071.jpg</strong> (253.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 12:32 上传
+
+<img src="https://img.saraba1st.com/forum/202407/19/123214mkf16h1rufwwkyhy.jpg" referrerpolicy="no-referrer">
+
+<strong>weibo_50578254662213151.jpg</strong> (369.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-19 12:32 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  darkddragon  
+##### 4870#       发表于 2024-7-19 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阵营祭典也来了，真没活了
+
+*****
+
+####  Dedalus  
+##### 4871#       发表于 2024-7-19 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65634081&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-7-19 12:32</a>
+—— 来自 S1Fun</blockquote>
+妈的任天堂对我们秩序/未来党太不公平<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+二代已经输一次了三代跟这仨一队这怎么带啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

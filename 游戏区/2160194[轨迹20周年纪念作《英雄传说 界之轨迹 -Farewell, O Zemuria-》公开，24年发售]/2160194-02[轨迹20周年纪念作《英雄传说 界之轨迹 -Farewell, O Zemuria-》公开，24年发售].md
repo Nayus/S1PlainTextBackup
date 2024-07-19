@@ -3463,3 +3463,32 @@ Screenshot_20240718_214220.jpg
 
 这代不会可控人数又爆炸吧，建议跟机战学双人单位或者召唤兽
 
+
+*****
+
+####  宛若青空  
+##### 1801#       发表于 2024-7-19 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632744&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-7-19 10:35</a>
+这代不会可控人数又爆炸吧，建议跟机战学双人单位或者召唤兽</blockquote>
+本来期待大少和拉碧丝是双人单位的新玩法，可惜法老控不干选择把拉碧丝做了疑似支援的定位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 1802#       发表于 2024-7-19 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65632744&amp;ptid=2160194" target="_blank">出言不迅 发表于 2024-7-19 10:35</a>
+
+这代不会可控人数又爆炸吧，建议跟机战学双人单位或者召唤兽</blockquote>
+拉碧丝很大可能是大少S技召唤兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出言不迅  
+##### 1803#       发表于 2024-7-19 10:47
+
+<blockquote>a2042312 发表于 2024-7-19 10:44
+拉碧丝很大可能是大少S技召唤兽</blockquote>
+黎二我看了些剧透没玩，拉碧丝可以帮大少也来个变身吗？那也蛮有意思的
+

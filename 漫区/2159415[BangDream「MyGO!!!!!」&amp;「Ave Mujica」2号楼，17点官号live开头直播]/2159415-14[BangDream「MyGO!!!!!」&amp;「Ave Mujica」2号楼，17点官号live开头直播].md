@@ -15922,3 +15922,37 @@ MyGO!!!!! 2024上海演唱会确定。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">总是上海或者上海旁边
 
+
+*****
+
+####  傘木希美  
+##### 20654#       发表于 2024-7-19 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能抢到就去一趟好了，抢不到拉倒，实在太远
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  紫吹兰  
+##### 20655#         楼主| 发表于 2024-7-19 12:06
+
+别这么没自信，开场梅奔看看实力
+
+*****
+
+####  滑稽Captain  
+##### 20656#       发表于 2024-7-19 12:06
+
+不开大场就是黄牛赚麻了
+
+*****
+
+####  ykyin09  
+##### 20657#       发表于 2024-7-19 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">r组抢票都抢的头破血流，狗来了我都不敢想
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

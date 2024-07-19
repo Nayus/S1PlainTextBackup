@@ -3410,3 +3410,19 @@ slicer_opt.list
 
 录播姬传了录播
 
+
+*****
+
+####  TiHaru  
+##### 16898#       发表于 2024-7-19 12:02
+
+ 本帖最后由 TiHaru 于 2024-7-19 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65630815&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-19 01:20</a>
+
+拉了份日文版的作双语对照，不知道日文识别的准确率如何</blockquote>
+普通语速的时候还行,但是促音也经常会认错
+
+语速快了之后准确率就很低了
+
+还有就是一些网络用语会认错
+

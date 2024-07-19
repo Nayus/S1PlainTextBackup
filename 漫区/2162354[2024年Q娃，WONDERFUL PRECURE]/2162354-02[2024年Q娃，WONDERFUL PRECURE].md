@@ -30,3 +30,18 @@
 扶贫捆绑销售是吧
 大福是谁，有这个角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1909#       发表于 2024-7-19 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65633576&amp;ptid=2162354" target="_blank">帝下室の年糕 发表于 2024-7-19 11:45</a>
+
+扶贫捆绑销售是吧
+
+大福是谁，有这个角色吗</blockquote>
+虽然但是，好像大福的谷卖的比狗组好卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然猫组肯定是最好卖的就是了（
+

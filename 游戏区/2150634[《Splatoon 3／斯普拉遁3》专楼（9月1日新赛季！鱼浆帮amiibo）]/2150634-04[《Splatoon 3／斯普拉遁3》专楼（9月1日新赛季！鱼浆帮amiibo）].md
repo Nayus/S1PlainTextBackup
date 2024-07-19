@@ -787,3 +787,25 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 没有勇气选择未来，还是过去吧
 
+
+*****
+
+####  raii  
+##### 4873#       发表于 2024-7-19 12:48
+
+就算他说是grand，其实意义就跟喷2的final一样的
+
+喷2final之后也搞过祭典，基本都是复刻
+
+喷3只不过生命周期还要拉一拉，后面可能打算出一些新祭典，所以不好意思再叫final，但是决定下一作走向的肯定就是它没跑的
+
+
+*****
+
+####  KBAC  
+##### 4874#       发表于 2024-7-19 12:54
+
+我想选过去，最好过去到大涂地战争那个时候，我要看血流成河<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

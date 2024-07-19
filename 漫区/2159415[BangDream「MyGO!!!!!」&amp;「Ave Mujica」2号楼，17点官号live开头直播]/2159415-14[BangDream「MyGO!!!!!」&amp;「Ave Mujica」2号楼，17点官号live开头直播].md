@@ -16438,3 +16438,24 @@ earth前奏真好听，先回旋了<img src="https://static.saraba1st.com/image/
 
 那边的二代鸡哥爆典了，有兴趣的过去看看笑话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 20704#       发表于 2024-7-20 00:58
+
+ 本帖最后由 akiomn 于 2024-7-20 01:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找鸡凑就算了，质疑萝唱不了两天高难度
+
+搁着还想被萝粉殴打啊
+
+有没有查成分的，如果又是个gop那正常不过，有些gop就天天爆典
+
+*****
+
+####  星天观测  
+##### 20705#       发表于 2024-7-20 01:01
+
+真就为了踩鸡什么都不顾了，二代鸡哥实至名归啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

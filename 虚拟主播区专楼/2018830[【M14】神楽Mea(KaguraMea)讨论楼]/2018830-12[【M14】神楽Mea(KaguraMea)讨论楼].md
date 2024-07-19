@@ -4121,3 +4121,13 @@ mea那里对cn观众最大的雷点恰恰就是把她当小孩看吧，之前基
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  格林卡罗尔  
+##### 16970#       发表于 2024-7-20 00:57
+
+我说うるか枪不打stgr也没见人，原来跑去打lol了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

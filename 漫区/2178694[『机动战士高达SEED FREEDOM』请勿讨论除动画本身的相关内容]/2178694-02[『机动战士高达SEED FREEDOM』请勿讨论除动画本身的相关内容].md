@@ -135,3 +135,28 @@ AEMedia直接倒出来了</blockquote>
 
 原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议长）拿去给尼哥尔爸改修
 
+
+*****
+
+####  Y.Cassano  
+##### 1825#       发表于 2024-7-19 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631395&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-7-19 07:55</a>
+
+明确还是第一部那台决斗而不是新造的套皮扎古
+
+原本计划报废的决斗被伊扎克妈和艾琳（第一部结局时的临时议 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜凝雪  
+##### 1826#       发表于 2024-7-19 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65631454&amp;ptid=2178694" target="_blank">Y.Cassano 发表于 2024-7-19 08:10</a>
+合着没有像当年传闻的那样还给曙光社啊。而且都上核能了，武备实在寒酸。 ...</blockquote>
+反正都只是流星驾驶舱
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

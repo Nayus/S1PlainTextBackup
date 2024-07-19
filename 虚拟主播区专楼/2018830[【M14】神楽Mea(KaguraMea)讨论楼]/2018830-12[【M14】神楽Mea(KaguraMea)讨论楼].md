@@ -3510,3 +3510,47 @@ https://cowtransfer.com/s/8f049854e9fd44
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">正常来说发生这种事情都是去炎运营找说法，像这样强行把主播拉出来站队架在火上烤真的是天才行为，看一群人在说主播还是六年前的孩子，看下来咋觉得某些人才是孩子呢。烦，又少看几场直播，谁补给我啊
 
+
+*****
+
+####  sino__unnko3  
+##### 16907#       发表于 2024-7-19 17:14
+
+是的，b站视频的音质太差，拿来跑模型容易爆音
+后来我就自己拿win的录音机+虚拟麦克风录，这次是16位48khz好像
+平常歌回我也不录音，b站有佬训练了歌回的优质模型，比我自己炼的好，我就炼炼她的生活音，这次看她开播一段时间没唱歌就上了，愤怒情绪下的生活音跑出来真的像跟小女友吵架的感觉(，晚上b限再录录看
+就是这个slicer.list文件好遗憾啊，有大佬帮忙校对吗，人工校对以后跑出来效果会好不少
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Cushaw  
+##### 16908#       发表于 2024-7-19 17:15
+
+怎么主播也速通太行山了呀，未免也太巧了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古战场亡魂  
+##### 16909#       发表于 2024-7-19 17:17
+
+真来了，说实话我怕了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makourisu-2  
+##### 16910#       发表于 2024-7-19 17:19
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不会今晚黑屏开播吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ashero  
+##### 16911#       发表于 2024-7-19 17:21
+
+既然对运营有意见那么就不要运营放弃运营就行了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜
+

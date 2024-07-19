@@ -106,3 +106,14 @@ win10提示错误进不去。
 王国保卫战爱好者觉得真香，好玩，耐玩。村民质量提升了之后搭配下职业，在关键点位布阵可以轻松独当一面， ...</blockquote>
 你这最后一句话最关键<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oahcihs  
+##### 83#       发表于 2024-7-19 13:26
+
+我卡怎么想的 左摇杆摁下去是闪避？
+另外 游戏一开始输入年龄是有什么意义 
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -828,3 +828,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 一代给过去估计就垫了，二代和三代在现在的得分规则下谁赢不好说
 
+
+*****
+
+####  君往何处  
+##### 4877#       发表于 2024-7-19 13:21
+
+从背景设定上来说，人类的未来就是splatoon的过去，splatoon已经没有未来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+建议下作直接换种族
+

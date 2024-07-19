@@ -16252,3 +16252,11 @@ go的人設也不是shuzuku，人設原案staff表有寫的，是這兩個人</b
 
 你邦主場本來就是都內，地方坐不滿就坐不滿了。
 
+
+*****
+
+####  星天观测  
+##### 20685#       发表于 2024-7-19 22:36
+
+听会儿water和earth自我调理一下<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

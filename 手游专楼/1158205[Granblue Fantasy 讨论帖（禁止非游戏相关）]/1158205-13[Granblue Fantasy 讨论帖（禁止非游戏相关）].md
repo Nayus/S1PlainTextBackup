@@ -201,3 +201,25 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  江戸前ルナ  
+##### 17999#       发表于 2024-7-20 12:40
+
+感谢各位解答。主要是手动是不可能手动的，要不是GBF可以在翻译时FA挂后台刷才想着随缘挂着，有时间玩游戏的话当然不去玩gbf<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+憋出红路之后试了一大轮现在6只BOSS都能fa了，虽然绝大部分都是只能保200W然后随缘到线。
+
+无限：靠妈，回复后多于80%血进场基本能到400W。就是每场都时间久；<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+老7：如果不是限时我自己都能FA从头到尾，但是车速快就不能到线了；<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+飞哥：现在多人打的车速武僧肯定有200W+，能打多远取决于50特动能不能风水箭龟吃掉和吃不掉时谁存活；<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+机神：取决于第5回合开始泳盾1完了后会不会疯狂出11DB；<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+坏兽：75特动COSMOS活下来就是爷爷，活不下来就是孙子；<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远些，车速一慢很快就超越了，没双子驱散<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

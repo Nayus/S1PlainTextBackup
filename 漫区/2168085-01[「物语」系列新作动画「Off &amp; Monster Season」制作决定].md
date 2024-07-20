@@ -373,3 +373,11 @@ op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条�
 
 我还是没法接受老仓这个新发型<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Icskari  
+##### 459#       发表于 2024-7-21 03:21
+
+offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼和和解，
+

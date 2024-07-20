@@ -188,3 +188,16 @@
 
 一般人需要的比较多的机神老七坏兽都可以比较愉快的农。
 
+
+*****
+
+####  Sylpheed  
+##### 17998#       发表于 2024-7-20 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640592&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2024-7-19 23:04</a>
+喷了我觉醒了一把才知道还要把觉醒等级升到20才有那些强力的属性，我之前还以为觉醒材料不是很多就做做试试 ...</blockquote>
+真化的材料量其实角色到位跟团挂挂机fa清自然恢复的豆子也不费事，突出一个日积月累<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+盘子都好说，3.0强度完全够支撑现在的数值需求了，光是星醒就比绝大多数高难垃圾厉害，不用死磕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

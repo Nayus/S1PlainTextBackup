@@ -454,3 +454,115 @@ c团就是go和mujica的垫子
 
 什么亡灵厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20762#       发表于 2024-7-20 14:25
+
+ 本帖最后由 NODY 于 2024-7-20 14:27 编辑 
+
+二偶企划搞这种“一个过去的团炸了以后成员分别组了新团”的设定，那个旧团基本上都会有很多姨姥，而且我看的二偶企划一般会把这个旧团设计成全员top的传说团，只是理念不合或者外部因素导致解散
+
+这点来说你邦已经算聪明了，把c团写成个35粉出道即解散的底边团，新团混得比旧团要好得多，已经是大量减少姨姥出没的打法了，我举个不是二偶企划的例子，黑子的篮球里面奇迹的世代就是人气太高了最后搞到作者自己都出了个重组的剧场版
+
+*****
+
+####  可爱的洋甘菊  
+##### 20763#       发表于 2024-7-20 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644448&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-20 14:14</a>
+不會少？開玩笑吧，ave的主唱和CCC有個屁關係 
+
+全演CCC還演不演ave的故事了，我看go也沒有全在CCC啊
+
+CCC ...</blockquote>
+我真不是c团遗老，我是觉得祥睦的剧情和c团脱不开关系，旧c团成员之间可能会有激烈的冲突，而且3话已经很多了。不过中后期的主线肯定是在初祥上应该是确定的，这个看访谈应该能看出来。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星天观测  
+##### 20764#       发表于 2024-7-20 14:27
+
+是能说幸好我是萝鸡双推，不然我就要羡慕萝里给sayo设定的背景团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20765#       发表于 2024-7-20 14:27
+
+我看到过的2.5企划里这些传说级的旧团基本上都永远死掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20766#       发表于 2024-7-20 14:27
+
+对剧情真没有什么不放心的
+就是怕美术方面丑丑的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20767#       发表于 2024-7-20 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644564&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-20 14:26</a>
+
+我真不是c团遗老，我是觉得祥睦的剧情和c团脱不开关系，旧c团成员之间可能会有激烈的冲突，而且3话已经很 ...</blockquote>
+沒有，樓友出現好幾次了我記得你的，當然知道你不是這意思<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+我語氣衝了點你不要在意，因為聊到不喜歡的東西了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20768#       发表于 2024-7-20 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644556&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-20 14:25</a>
+
+二偶企划搞这种“一个过去的团炸了以后成员分别组了新团”的设定，那个旧团基本上都会有很多姨姥，而且我看 ...</blockquote>
+笑得我想死，我看你前一段就想說黑籃是不是，結果你後面編輯真的加上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">                          
+
+*****
+
+####  星天观测  
+##### 20769#       发表于 2024-7-20 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644580&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-20 14:27</a>
+
+我看到过的2.5企划里这些传说级的旧团基本上都永远死掉了</blockquote>
+不死难道等着现有的团被踩头么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时候真的会希望鸡回到老邦邦里那种单纯一点的乐队世界观
+
+*****
+
+####  Aendst  
+##### 20770#       发表于 2024-7-20 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644564&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-20 14:26</a>
+
+我真不是c团遗老，我是觉得祥睦的剧情和c团脱不开关系，旧c团成员之间可能会有激烈的冲突，而且3话已经很 ...</blockquote>
+我觉得你的逻辑有一点微妙的偏差
+
+祥睦的剧情和c团脱不开关系这种说法也没错，但更多的是c团和祥睦有关
+
+这是不一样的
+
+前者是角色服务于情节，后者是背景板服务于角色自身
+
+
+*****
+
+####  PDQ4  
+##### 20771#       发表于 2024-7-20 14:33
+
+我觉得这个没什么好担心的吧
+狗里ccc看起来非常重要，是因为一是因为推剧情的爽姐自己最大的矛盾就是在ccc身上
+另一个觉得ccc很重要的角色是主唱
+爱音从头到尾就没深入进ccc，只有被灯爽两个人因为旧事波及出了真伤
+
+鸡明显定位不一样，初华和ccc完全无关，睦祥两个角色的核心谜题个人完全不看好和ccc有关
+
+如果鸡这个人设还能做成c姨姥狂喜的剧情模式，可能理由大概是制作组染上星团了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

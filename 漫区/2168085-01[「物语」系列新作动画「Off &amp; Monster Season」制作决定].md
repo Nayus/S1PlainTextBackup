@@ -235,3 +235,19 @@ op好像有今村亮？今村亮原来你还爱着shaft吗
 
 op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条规圣也是原8bit所属，做过向山进发
 
+
+*****
+
+####  Tachikoma88  
+##### 443#       发表于 2024-7-20 23:13
+
+亮哥上次说是梅津邀请才来画的美少女，这次又是为什么了，跟shaft和解了？甚至画了贺图
+
+<img src="https://img.saraba1st.com/forum/202407/20/231304bqle2lq079cf0flf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 23:13 上传
+

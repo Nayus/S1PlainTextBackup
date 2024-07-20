@@ -900,3 +900,11 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 
 如果说其他团要么是真人团，要么是手游团，MH是武士道的情怀团，那么CCC可以说纯粹是独角兽为了女女关系性拉出来的剧情团。
 
+
+*****
+
+####  yxliu  
+##### 20808#       发表于 2024-7-20 16:54
+
+应该说音色赏饭≠唱歌赏饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

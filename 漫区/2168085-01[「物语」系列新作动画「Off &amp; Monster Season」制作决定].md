@@ -333,3 +333,19 @@ op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乖抚子这个半裸在大街上跑动画化了感觉更糟糕了啊
 
+
+*****
+
+####  tiro_finale  
+##### 454#       发表于 2024-7-21 01:14
+
+这演出有点感动啊，真的梦回化物语
+
+
+*****
+
+####  集合酱  
+##### 455#       发表于 2024-7-21 01:22
+
+真人演出<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这被招魂的到底是哪年的沙发套
+

@@ -312,3 +312,19 @@ AEMedia直接倒出来了</blockquote>
 
 2024-7-20 00:16 上传
 
+
+*****
+
+####  死难者23er  
+##### 1841#       发表于 2024-7-20 11:35
+
+<img src="https://img.saraba1st.com/forum/202407/20/113501f88d9he99svn4s4d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="792" zoomfile="https://img.saraba1st.com/forum/202407/20/113501f88d9he99svn4s4d.jpeg">
+
+<strong>IMG_2544.jpeg</strong> (243.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 11:35 上传
+
+没人发的话我就发一下吧，这次官方又搞了向观众征集问题的活动，看来福田之前的推特应该是他为这件事做铺垫，我已经问完自己想问的人有问题的话也可以去问
+

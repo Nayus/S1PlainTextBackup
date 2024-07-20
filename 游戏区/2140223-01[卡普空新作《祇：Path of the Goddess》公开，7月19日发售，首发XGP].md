@@ -360,3 +360,11 @@ win10提示错误进不去。
 建造的时候正好去打关卡的挑战，我倒是觉得一举两得，两边都有收益了</blockquote>
 其实就是觉得天黑以后给个加速功能就好了，村民还挺强力的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  conanoysq  
+##### 108#       发表于 2024-7-20 19:26
+
+有人知道弓箭怎么瞄准和蓄力吗？我按LT就直接射出来了，长按也没法蓄力，技能演示动画里的锁定圈弄不出来
+

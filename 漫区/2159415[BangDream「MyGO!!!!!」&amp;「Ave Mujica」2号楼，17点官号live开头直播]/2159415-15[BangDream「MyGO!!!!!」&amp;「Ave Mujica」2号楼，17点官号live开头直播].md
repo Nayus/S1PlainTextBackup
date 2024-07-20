@@ -882,3 +882,11 @@ CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="htt
 
 音色确实特别，当录音室战神挺好的。
 
+
+*****
+
+####  星天观测  
+##### 20806#       发表于 2024-7-20 16:16
+
+兑现不了的天赋就像训练赛战神，上场了只会被人说xxx罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

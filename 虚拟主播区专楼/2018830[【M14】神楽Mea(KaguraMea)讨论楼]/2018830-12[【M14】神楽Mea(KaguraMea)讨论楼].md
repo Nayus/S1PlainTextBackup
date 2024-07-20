@@ -4243,3 +4243,18 @@ syl 就算是念棉花糖那一段之前的两个切片也是错得离谱
 
 thh怎么又要开始招人了，你楼老登有想去的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋游刃  
+##### 16981#       发表于 2024-7-20 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640693&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-7-19 23:18</a>
+
+记得是真的麻(
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+这个是我4月1时整的活，中间部分包括鼻子是拿我自己照片拼的。
+
+已经有再次创作了吗<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

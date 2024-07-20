@@ -619,3 +619,22 @@ xbox不配拥有吗？</blockquote>
 
 感觉还凑合，动作K得一般，硬直过渡突兀，首个场景跟 CV 一样落入 JRPG 迷宫的窠臼，不过最后出来拉远景看巨构拉回点印象分。
 
+
+*****
+
+####  霖岚_  
+##### 66#       发表于 2024-7-20 17:24
+
+说起来国内这种3d二游大部分都是unity做的么，我只听说过米都是用的unity，不玩手游不清楚
+
+
+*****
+
+####  陛下欲反邪  
+##### 67#       发表于 2024-7-20 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65645843&amp;ptid=2168791" target="_blank">霖岚_ 发表于 2024-7-20 17:24</a>
+
+说起来国内这种3d二游大部分都是unity做的么，我只听说过米都是用的unity，不玩手游不清楚 ...</blockquote>
+目前上市的几乎都是unity，还是饼阶段的有不少是ue，比如前几天爆火那个异环
+

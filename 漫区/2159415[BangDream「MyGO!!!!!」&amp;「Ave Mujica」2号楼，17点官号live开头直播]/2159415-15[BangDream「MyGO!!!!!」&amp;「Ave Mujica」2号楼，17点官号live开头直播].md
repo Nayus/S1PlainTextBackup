@@ -932,3 +932,23 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐音色确实好，可惜录音室战神，第一次听live版的迷星叫我都怀疑是不是换了个人唱，怎么和我听的mv版不一样啊
 
+
+*****
+
+####  黑夜落叶秋天  
+##### 20811#       发表于 2024-7-20 17:29
+
+烤羊 多放些孜然
+
+
+*****
+
+####  MZZK  
+##### 20812#       发表于 2024-7-20 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644860&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-20 15:04</a>
+想了想其实对邦唱春日影也不太可能，那这五个人搞春日影了剩下五个干啥呢，在台下打call吗
+
+老老实实按普通 ...</blockquote>
+之前我也这么想的，但是mujica上次的water好像就是两个人演的其他三个在歇<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

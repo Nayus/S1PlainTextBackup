@@ -859,3 +859,26 @@ CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="htt
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ai翻唱的听多了，羊姐那个音色真的好，老天赏饭了。很多歌换羊姐亲自上去唱估计要么断气要么低音一坨屎
 点名闪光，这歌换羊姐去唱估计就断气了，gbc的那首op更是直接忘词都可能
 
+
+*****
+
+####  星天观测  
+##### 20803#       发表于 2024-7-20 16:09
+
+真赏饭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你邦主唱称得上老天赏饭的我感觉只有i83+佐仓+大姐头啊，天赋兑现的效果真好吧
+
+
+*****
+
+####  akiomn  
+##### 20804#       发表于 2024-7-20 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">音色好≠会努力。老天爷赏饭了，硬气的羊姐不肯吃
+
+*****
+
+####  ytttsuuuba  
+##### 20805#       发表于 2024-7-20 16:15
+
+音色确实特别，当录音室战神挺好的。
+

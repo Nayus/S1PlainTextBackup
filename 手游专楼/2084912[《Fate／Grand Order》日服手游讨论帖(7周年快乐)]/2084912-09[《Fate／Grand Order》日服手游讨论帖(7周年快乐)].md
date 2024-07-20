@@ -328,3 +328,17 @@ Aniplex一单是95%，实际少了3.25%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挑战水妖崔果然失败歪出水妖高了，淦
 
+
+*****
+
+####  eilot  
+##### 13073#       发表于 2024-7-20 11:40
+
+ 本帖最后由 eilot 于 2024-7-20 11:42 编辑 
+
+又變回每天打完3次白紙本就能關掉的時間
+
+白紙本要40體真是太高了
+
+這兩期活動因各種理由降到20才是合理
+

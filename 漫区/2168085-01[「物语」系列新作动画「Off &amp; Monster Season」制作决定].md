@@ -153,3 +153,45 @@ op不错 情怀拉满了
 
 抚子还真是被偏爱阿
 
+
+*****
+
+####  meailove  
+##### 434#       发表于 2024-7-20 21:29
+
+抚子太可爱了，不管哪个形态都是
+
+*****
+
+####  Tachikoma88  
+##### 435#       发表于 2024-7-20 21:29
+
+原谅shaft推迟op了，爽啊
+
+*****
+
+####  零壹贰叁  
+##### 436#       发表于 2024-7-20 21:29
+
+op这么能动吗，爽了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+
+*****
+
+####  oi99o  
+##### 437#       发表于 2024-7-20 21:32
+
+不是大沼心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/20/213208j5ttv7kf788tfq36.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 21:32 上传
+
+另外这集分镜官网有写吉泽翠，正片却没表上去，不知道为什么
+

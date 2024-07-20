@@ -368,3 +368,16 @@ win10提示错误进不去。
 
 有人知道弓箭怎么瞄准和蓄力吗？我按LT就直接射出来了，长按也没法蓄力，技能演示动画里的锁定圈弄不出来
 
+
+*****
+
+####  moeful  
+##### 109#       发表于 2024-7-20 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65640428&amp;ptid=2140223" target="_blank">Freshfish 发表于 2024-7-19 22:48</a>
+
+女主非常符合我的xp，太顶了，去哪能找到点二创图
+
+—— 来自 S1Fun</blockquote>
+你喜欢这个麻吕眉毛啊
+

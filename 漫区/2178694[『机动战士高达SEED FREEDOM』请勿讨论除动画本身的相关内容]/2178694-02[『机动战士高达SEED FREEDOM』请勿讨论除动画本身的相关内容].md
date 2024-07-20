@@ -489,3 +489,15 @@ AEMedia直接倒出来了</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  死难者23er  
+##### 1856#       发表于 2024-7-20 19:38
+
+<blockquote>starring 发表于 2024-7-20 19:24
+确实不该忍不住回复，都不止一次把自己的脑补当设定了
+
+—— 来自 Sony XQ-DQ72, Android 14上的 S1Next- ...</blockquote>
+能不能不要随便扣帽子一个只是更加期待前传剧情的话语就被曲解成是脑补当成设定。我每一次给人科普的时候都是直接把我买到的官方公式书，还有福田推特和官方网址全部都发出来的，没一次是脑补的。
+

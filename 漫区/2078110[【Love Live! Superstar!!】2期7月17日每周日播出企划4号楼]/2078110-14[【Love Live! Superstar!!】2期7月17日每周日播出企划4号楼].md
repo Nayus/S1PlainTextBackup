@@ -1144,3 +1144,40 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 看来鱼下半年会经常回来开个活
 
+
+*****
+
+####  ViyViy  
+##### 20621#       发表于 2024-7-20 20:47
+
+还特地说不是广告，是游戏相关的cos？
+
+*****
+
+####  ruffian  
+##### 20622#       发表于 2024-7-20 21:01
+
+结那今天干了啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 20623#       发表于 2024-7-20 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65647749&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-7-20 21:01</a>
+结那今天干了啥啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+今天应该有Ka组的活
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  优妮可  
+##### 20624#       发表于 2024-7-20 22:22
+
+大概是周二广播
+

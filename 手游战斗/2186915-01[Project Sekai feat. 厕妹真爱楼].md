@@ -13524,3 +13524,15 @@ v厨和九妹是这样的，只要给sl爆米就行了，而生男互动要考�
 
 问一句，世界计划有bg的cp吗？给我推荐一下。
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1180#       发表于 2024-7-20 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646613&amp;ptid=2186915" target="_blank">真奥丁神 发表于 2024-7-20 19:01</a>
+问一句，世界计划有bg的cp吗？给我推荐一下。</blockquote>
+要说符合宅男口味的bgcp的话大概只有mzen了，终有一天跨越那条境界线啊嗯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

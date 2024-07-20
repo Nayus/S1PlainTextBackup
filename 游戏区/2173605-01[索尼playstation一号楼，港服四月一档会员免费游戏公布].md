@@ -3488,3 +3488,16 @@ Tom Henderson还表示，自己于2023年年中收到的文件显示，PS5 Pro�
 
 NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal codename for the PS5 Pro. Standard PS5 Graphics Preset for comparison.<img src="https://p.sda1.dev/18/435a01f9fd233d2c1c79f5ee9d20d104/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 365#       发表于 2024-7-21 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65649555&amp;ptid=2173605" target="_blank">医生狼多 发表于 2024-7-20 23:43</a>
+NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal codename for the PS5  ...</blockquote>
+最低动态采样比例比由PS5的0.6 升高至 0.8 
+最后一项水体的图形质量也由high升高至ultra
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -290,3 +290,19 @@ AI弄的，在twi翻到 ...</blockquote>
 
 猛然想起为何不发直播的链接，7.23是录播到时候直接aniplex视频投稿就行了，我猪鼻了，既然如此广播剧那边的负责人还发twi了，感觉可以确定没蒜二或者新作消息嘞<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1918#       发表于 2024-7-20 23:53
+
+联动<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/20/235321c9339xxhl64394h9.png" referrerpolicy="no-referrer">
+
+<strong>2024-07-20 235212.png</strong> (171.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 23:53 上传
+

@@ -259,3 +259,35 @@ op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条�
 
 那个是钱形的脸吗？
 
+
+*****
+
+####  CHCL3  
+##### 445#       发表于 2024-7-20 23:45
+
+<img src="https://p.sda1.dev/18/368801730e0f50b6a06c1ad45bfd6fb5/CMP_20240720234536755.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  八雲みたま  
+##### 446#       发表于 2024-7-20 23:50
+
+画shaft作品但不为shaft画画的今村<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BlueThree  
+##### 447#       发表于 2024-7-20 23:50
+
+哆啦A梦的变装照相机<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  猫兔同笼  
+##### 448#       发表于 2024-7-20 23:52
+
+今村亮二次回归，有没有一种可能今村亮其实是个嘴臭傲娇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

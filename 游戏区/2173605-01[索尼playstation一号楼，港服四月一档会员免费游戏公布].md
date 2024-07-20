@@ -3480,3 +3480,11 @@ Tom Henderson还表示，自己于2023年年中收到的文件显示，PS5 Pro�
 
 什么流量打法
 
+
+*****
+
+####  医生狼多  
+##### 364#       发表于 2024-7-20 23:43
+
+NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal codename for the PS5 Pro. Standard PS5 Graphics Preset for comparison.<img src="https://p.sda1.dev/18/435a01f9fd233d2c1c79f5ee9d20d104/image.jpg" referrerpolicy="no-referrer">
+

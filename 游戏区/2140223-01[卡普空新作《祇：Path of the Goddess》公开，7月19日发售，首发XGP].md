@@ -381,3 +381,14 @@ win10提示错误进不去。
 —— 来自 S1Fun</blockquote>
 你喜欢这个麻吕眉毛啊
 
+
+*****
+
+####  conanoysq  
+##### 110#       发表于 2024-7-20 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646804&amp;ptid=2140223" target="_blank">conanoysq 发表于 2024-7-20 19:26</a>
+
+有人知道弓箭怎么瞄准和蓄力吗？我按LT就直接射出来了，长按也没法蓄力，技能演示动画里的锁定圈弄不出来 ...</blockquote>
+试出来了 右摇杆按下去出锁定圈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

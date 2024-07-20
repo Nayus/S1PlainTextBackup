@@ -325,3 +325,11 @@ op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条�
 
 新op真不错吧
 
+
+*****
+
+####  winda  
+##### 453#       发表于 2024-7-21 00:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乖抚子这个半裸在大街上跑动画化了感觉更糟糕了啊
+

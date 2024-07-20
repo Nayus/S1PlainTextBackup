@@ -656,3 +656,14 @@ xbox不配拥有吗？</blockquote>
 看了视频评论区都说是魂，不会又是魂类吧</blockquote>
 都到了对魂感到厌倦的程度了，是不是魂系不是一眼能看出来吗？除非自己骗自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SchwarzX  
+##### 70#       发表于 2024-7-20 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646754&amp;ptid=2168791" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-7-20 19:19</a>
+
+都到了对魂感到厌倦的程度了，是不是魂系不是一眼能看出来吗？除非自己骗自己 ...</blockquote>
+就不喜欢玩魂类也没玩过几部，以前在星刃视频评论区问是不是魂类还被当魂小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

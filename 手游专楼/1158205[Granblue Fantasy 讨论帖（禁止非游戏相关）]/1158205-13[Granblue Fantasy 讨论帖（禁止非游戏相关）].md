@@ -178,3 +178,13 @@
 
 导致飞哥就是不适合当农场，但是机神就很适合当农场。这样的差异其实多少还是有点不舒服
 
+
+*****
+
+####  Geyorkias  
+##### 17997#       发表于 2024-7-20 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">但飞哥不是pro中pro也就真化一把攻击，pro点加个特殊完事儿了。
+
+一般人需要的比较多的机神老七坏兽都可以比较愉快的农。
+

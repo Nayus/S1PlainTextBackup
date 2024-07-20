@@ -814,3 +814,15 @@ CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="htt
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  PDQ4  
+##### 20798#       发表于 2024-7-20 15:14
+
+ 本帖最后由 PDQ4 于 2024-7-20 15:15 编辑 
+
+春日影是狗歌才是正常吧
+
+我好像有记得在哪看过是先定的第七集版本，不记得出处了，可能不对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

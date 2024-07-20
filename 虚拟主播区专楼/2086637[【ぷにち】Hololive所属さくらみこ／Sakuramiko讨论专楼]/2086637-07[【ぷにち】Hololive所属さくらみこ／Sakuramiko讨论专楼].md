@@ -4311,3 +4311,27 @@ yagoo出演周日live
 
 全holo玩梗小能手你第一名
 
+
+*****
+
+####  holoan  
+##### 9261#         楼主| 发表于 2024-7-19 21:54
+
+<blockquote>1701 名無しさん@転載禁止 (ﾜｯﾁｮｲW 615b-Dp5g)  2024/07/19(金) 22:49:25.23 ID:XE289elp
+
+もうこれソロライブ通り越してアリーナツアーだろ</blockquote>
+搞不好真的是巡演发表，虽然有点夸张但是以现在的人气水平来说并不是不可能
+
+*****
+
+####  holoan  
+##### 9262#         楼主| 发表于 2024-7-20 09:51
+
+<img src="https://img.saraba1st.com/forum/202407/20/095128zbwop4bkf7epmwbf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 09:51 上传
+

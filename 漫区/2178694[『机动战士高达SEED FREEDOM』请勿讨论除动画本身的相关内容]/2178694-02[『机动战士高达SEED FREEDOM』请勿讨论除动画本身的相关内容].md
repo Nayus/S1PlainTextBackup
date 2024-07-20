@@ -465,3 +465,15 @@ AEMedia直接倒出来了</blockquote>
 
 我就想说模型介绍里伊扎克有加入罗盘的想法，还有这个阿古尼斯的强人的颜色设计，这些不会让人更加感兴趣是前传到底发生什么事情，我现在非常感兴趣伊扎克为什么没有进，阿古尼斯反而进去了。还有这个强人的颜色设计，真的是太多可以让人感兴趣前传的内容了
 
+
+*****
+
+####  王元姬无惨  
+##### 1854#       发表于 2024-7-20 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646437&amp;ptid=2178694" target="_blank">浅川雏羽 发表于 2024-7-20 18:39</a>
+有一说一，这楼爬了这么久，早该屏蔽死难者23了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说的对 忍不住和回他的人全责
+

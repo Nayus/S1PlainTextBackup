@@ -211,3 +211,19 @@ op这么能动吗，爽了
 
 官方你这都不把op单独发一遍到ytb去吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Junakr  
+##### 440#       发表于 2024-7-20 21:48
+
+建议改名妩物语，OP 好棒。
+
+
+*****
+
+####  Tachikoma88  
+##### 441#       发表于 2024-7-20 21:49
+
+op好像有今村亮？今村亮原来你还爱着shaft吗
+

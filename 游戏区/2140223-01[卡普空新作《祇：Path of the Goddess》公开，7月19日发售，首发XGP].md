@@ -333,3 +333,19 @@ win10提示错误进不去。
 
 不知道强化后的数值，看特效我觉得甚至有只操作宗过关的流派
 
+
+*****
+
+####  幻想菩薩  
+##### 106#       发表于 2024-7-20 17:47
+
+<img src="https://img.saraba1st.com/forum/202407/20/174559jtin7ugnnxuljk9w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 17:45 上传
+
+五个大流派里4个都是纯动作的
+

@@ -404,3 +404,15 @@ AEMedia直接倒出来了</blockquote>
 人图上的原话解释的是伊扎克怎么忽然有了军衔：扎夫特以前没搞，都是队长带着小队满地跑。现在为了参加罗 ...</blockquote>
 你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古尼斯进，这个才是让我对前传更加感兴趣的原因。有些人就对打败这么一个用词这么敏感
 
+
+*****
+
+####  starring  
+##### 1848#       发表于 2024-7-20 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646117&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 18:00</a>
+你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古 ...</blockquote>
+没有那个事实设定自己在那里脑补谣言伊扎克被打败，别人指正还嘴硬
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

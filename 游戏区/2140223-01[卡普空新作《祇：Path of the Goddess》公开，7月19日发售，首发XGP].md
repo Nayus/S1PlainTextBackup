@@ -349,3 +349,14 @@ win10提示错误进不去。
 
 五个大流派里4个都是纯动作的
 
+
+*****
+
+####  新庄運切  
+##### 107#       发表于 2024-7-20 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642265&amp;ptid=2140223" target="_blank">conanoysq 发表于 2024-7-20 08:46</a>
+
+建造的时候正好去打关卡的挑战，我倒是觉得一举两得，两边都有收益了</blockquote>
+其实就是觉得天黑以后给个加速功能就好了，村民还挺强力的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

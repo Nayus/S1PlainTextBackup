@@ -342,3 +342,17 @@ Aniplex一单是95%，实际少了3.25%
 
 這兩期活動因各種理由降到20才是合理
 
+
+*****
+
+####  khxooo  
+##### 13074#       发表于 2024-7-20 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65643367&amp;ptid=2084912" target="_blank">eilot 发表于 2024-7-20 11:40</a>
+又變回每天打完3次白紙本就能關掉的時間
+
+白紙本要40體真是太高了
+
+這兩期活動因各種理由降到20才是合理</blockquote>
+10大福利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -346,3 +346,15 @@ AEMedia直接倒出来了</blockquote>
 
 那个电影营销号估计连班都没上过。
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1843#       发表于 2024-7-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644882&amp;ptid=2178694" target="_blank">菲特妹 发表于 2024-7-20 15:07</a>
+代哥在国内一堆商业计划呢
+
+那个电影营销号估计连班都没上过。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自由的图上是FAITH标志的联动饰物，几个意思呀
+

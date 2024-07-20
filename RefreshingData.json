@@ -1058,7 +1058,7 @@
     "newtitle": "[战锤3新dlc，预计4月末发售？]",
     "lastedit": 1721241126,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2051152": {
@@ -2232,10 +2232,10 @@
     "update": false
   },
   "2068301": {
-    "totalreply": 6960,
+    "totalreply": 6962,
     "title": "[【绝区零】调率测试结束 咖啡馆 141718492]",
     "newtitle": "[绝区零 咖啡馆 交流群 141718492 更多情报 2024年公布]",
-    "lastedit": 1721499380,
+    "lastedit": 1721500332,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -5805,10 +5805,10 @@
     "update": false
   },
   "2024428": {
-    "totalreply": 28200,
+    "totalreply": 28202,
     "title": "[西山居二次元+TPS+PvE《尘白禁区》5.25 三测。]",
     "newtitle": "[西山居二次元+TPS+PvE《尘白禁区》7.20 全球同步公测]",
-    "lastedit": 1721499974,
+    "lastedit": 1721500330,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8838,10 +8838,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 37507,
+    "totalreply": 37509,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1721500089,
+    "lastedit": 1721500449,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8865,10 +8865,10 @@
     "update": false
   },
   "2185177": {
-    "totalreply": 49027,
+    "totalreply": 49029,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
-    "lastedit": 1721499732,
+    "lastedit": 1721500577,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9117,10 +9117,10 @@
     "update": false
   },
   "2159922": {
-    "totalreply": 457,
+    "totalreply": 459,
     "title": "[败犬女主太多了！动画化 2024年7月]",
     "newtitle": "[败犬女主太多了！动画化 2024年7月]",
-    "lastedit": 1721499972,
+    "lastedit": 1721500577,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9135,10 +9135,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 12115,
+    "totalreply": 12118,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1721500090,
+    "lastedit": 1721500450,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -9504,10 +9504,10 @@
     "update": false
   },
   "2082967": {
-    "totalreply": 170,
+    "totalreply": 171,
     "title": "[义妹生活 TV动画化 2024年7月]",
     "newtitle": "[义妹生活 TV动画化 2024年7月]",
-    "lastedit": 1721498774,
+    "lastedit": 1721500577,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9711,10 +9711,10 @@
     "update": false
   },
   "2167723": {
-    "totalreply": 824,
+    "totalreply": 825,
     "title": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
     "newtitle": "[米泽穗信『小市民系列』TV动画化 2024年7月]",
-    "lastedit": 1721495410,
+    "lastedit": 1721500573,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9819,10 +9819,10 @@
     "update": false
   },
   "2168085": {
-    "totalreply": 456,
+    "totalreply": 457,
     "title": "[「物语」系列新作动画「Off &amp; Monster Season」制作决定]",
     "newtitle": "[「物语」系列新作动画「Off &amp; Monster Season」制作决定]",
-    "lastedit": 1721499974,
+    "lastedit": 1721500577,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16654,6 +16654,15 @@
     "title": "[这就是我恐惧的5管1]",
     "newtitle": "[这就是我恐惧的5管1]",
     "lastedit": 1721499133,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2192177": {
+    "totalreply": 41,
+    "title": "[自媒体：自主车打价格战将自寻死路]",
+    "newtitle": "[自媒体：自主车打价格战将自寻死路]",
+    "lastedit": 1721500577,
     "category": "外野",
     "active": true,
     "update": false

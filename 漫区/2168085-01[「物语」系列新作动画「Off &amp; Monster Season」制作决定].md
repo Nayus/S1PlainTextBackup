@@ -299,3 +299,11 @@ op制作协力ソワネ社长村上光是从8bit出来的，制作担当藤条�
 
 这OP看着也太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5353  
+##### 450#       发表于 2024-7-21 00:22
+
+这op真是抚子天堂。
+

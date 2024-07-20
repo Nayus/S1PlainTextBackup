@@ -994,3 +994,19 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 4891#       发表于 2024-7-20 14:38
+
+唉，R键又不行了，惯取做不了了......
+
+
+*****
+
+####  墨染白泉  
+##### 4892#       发表于 2024-7-20 14:41
+
+这次一本估计220
+

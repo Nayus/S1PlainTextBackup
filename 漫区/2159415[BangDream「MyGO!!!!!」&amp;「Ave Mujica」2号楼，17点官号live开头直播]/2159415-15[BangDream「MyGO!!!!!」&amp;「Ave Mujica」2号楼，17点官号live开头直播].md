@@ -566,3 +566,79 @@ CCC ...</blockquote>
 
 如果鸡这个人设还能做成c姨姥狂喜的剧情模式，可能理由大概是制作组染上星团了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 20772#       发表于 2024-7-20 14:35
+
+C团有存在感，和C团有很大篇幅是两回事。
+
+睦祥还有C团部分解谜，C团有内容是肯定的，但终归只是背景板。
+
+*****
+
+####  御幸一也  
+##### 20773#       发表于 2024-7-20 14:35
+
+說白了睦和祥子兩個半身幼馴染之間的謎題，為什麼要和一個只存在了一兩個月的樂團強相關，大家很熟嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20774#       发表于 2024-7-20 14:37
+
+soyo和灯已经天桥和c团和解了，连手游里那期下雨的剧情好像也是给两个人走出不好的回忆做铺垫，立希就不用说了她忘得真快
+
+睦目前看不出来对c团有留恋，祥子更是在月下一跪那段手起刀落的切割
+
+还能怎么冲突呢，难道是soyo发现了祥子找睦组了新乐队跑到后台大骂：“你也干了！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没道理的啊
+
+*****
+
+####  skives  
+##### 20775#       发表于 2024-7-20 14:37
+
+希望小小祥多刷点出场时间 造型太可爱了
+
+*****
+
+####  NODY  
+##### 20776#       发表于 2024-7-20 14:40
+
+所以我才说独角兽切了柿本未必是坏事，独角兽可是明确说了“祥子哭是因为重视c团”、“在mujica动画里c团依然有着巨大的存在感”的，倒是柿本两个团分得挺开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 20777#       发表于 2024-7-20 14:40
+
+ 本帖最后由 Aendst 于 2024-7-20 14:43 编辑 
+
+个人认为crychic对睦和祥子来说，和crychic对爽世/灯来说其实是不一样的
+
+睦祥在脚本上是有主动处置crychic的权能的，而爽灯只能被动接受，两方的位置完全不同
+
+爽世和灯由被动的外部的crychic相关变动影响了角色自身的心境和行为，但睦祥首先是在此之前已经有必然比乐队成员关系更紧密的幼驯染关系，并且在crychic一事上具备相当程度的主动性
+
+说简单一点，爽世和灯有一部分言行是在埋设crychic的线，但睦祥没有埋设crychic的线的必要
+
+*****
+
+####  御幸一也  
+##### 20778#       发表于 2024-7-20 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644678&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-20 14:40</a>
+
+所以我才说独角兽切了柿本未必是坏事，独角兽可是明确说了“祥子哭是因为重视c团”、“在mujica动画里c团依 ...</blockquote>
+只看這兩句話的話，確實<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20779#       发表于 2024-7-20 14:43
+
+我倒是不否认祥子重视c团 但肉眼可见她的成长方向就是真正放下过去 
+总强调自己忘记一切过去的自己已经死了什么的  还是显得太在意了
+

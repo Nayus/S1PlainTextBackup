@@ -416,3 +416,34 @@ AEMedia直接倒出来了</blockquote>
 
 —— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  王元姬无惨  
+##### 1849#       发表于 2024-7-20 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646117&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-7-20 18:00</a>
+你就是想说伊扎克比阿古尼斯强的，这个不是事实吗？我否定过这个，我现在只感兴趣的是为什么他没有进阿古 ...</blockquote>
+要点逼脸吧
+
+
+*****
+
+####  死难者23er  
+##### 1850#       发表于 2024-7-20 18:35
+
+<blockquote>starring 发表于 2024-7-20 18:19
+没有那个事实设定自己在那里脑补谣言伊扎克被打败，别人指正还嘴硬
+
+—— 来自 Sony XQ-DQ72, Android 14 ...</blockquote>
+但我从来就没有说过是实力的原因，我只是说了一句我更加感兴趣阿古尼斯是怎么加入指南针的，而且后面有人觉得是实力原因，我还特地去解释了，是你们自己觉得我这句话指的是实力
+
+*****
+
+####  死难者23er  
+##### 1851#       发表于 2024-7-20 18:36
+
+<blockquote>王元姬无惨 发表于 2024-7-20 18:28
+要点逼脸吧</blockquote>
+是你们自己觉得的是实力关我什么事，而且我还特地跟别人解释了一下，我不觉得实力原因
+

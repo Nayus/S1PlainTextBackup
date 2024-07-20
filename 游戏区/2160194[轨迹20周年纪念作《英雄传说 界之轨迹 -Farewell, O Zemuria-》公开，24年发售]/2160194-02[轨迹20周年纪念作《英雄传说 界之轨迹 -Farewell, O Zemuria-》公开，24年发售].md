@@ -3801,3 +3801,11 @@ Screenshot_20240718_214220.jpg
 
 今天看到gbf一堆情人节返礼就好让人羡慕Cy的美术资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 1830#       发表于 2024-7-20 14:04
+
+跟业界美术天花板比是不是有点残忍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

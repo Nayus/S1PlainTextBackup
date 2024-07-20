@@ -252,3 +252,127 @@ crychic相关剧情肯定是不会少的，而且也是一大看点，讲好了�
 
 别猜了，等明年盖棺定论。
 
+
+*****
+
+####  星天观测  
+##### 20745#       发表于 2024-7-20 14:04
+
+ 本帖最后由 星天观测 于 2024-7-20 14:05 编辑 
+
+真说了母鸡卡是十个人的故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要在他人的解读上进行三创
+
+<img src="https://img.saraba1st.com/forum/202407/20/140420plqbizhqs5psz7jj.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240720140330.png</strong> (72.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 14:04 上传
+
+*****
+
+####  可爱的洋甘菊  
+##### 20746#       发表于 2024-7-20 14:05
+
+重写剧本肯定是不会的，但是同一件事的程度上可能会有区别。拿mygo中初华鼓励灯为例，如果把当时的灯做的更破防，初华的鼓励更直接，那就相当于把灯垫了，因为这相当于降低了灯的任务弧光，拔高了初华的人物弧光。希望mujica里不会有这种情况吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aendst  
+##### 20747#       发表于 2024-7-20 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644345&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-20 13:58</a>
+
+监督访谈mujica篇结尾提了一次，和羊的设定集访谈结尾又提了一次。
+
+—— 来自 S1Fun ...</blockquote>
+我重翻了一下
+
+原文是 <blockquote>mygoのメンバーももちろん描かれますし、まだ決着のついていない話もあるので、注目していただけたらと思います。</blockquote>
+和 <blockquote>its mygoがｍygoだけの話じゃなかったように、ave mujicaもave mujicaだけの話じゃないんです。１０人のはなしで、どちらにウィいんとを置くかの問題です。</blockquote>
+这两句吗
+
+如果是这两句我觉得不用有任何担心，没有任何mygo要在mujica动画里喧宾夺主的意思，也并不是在强调mujica动画是10个人的故事
+
+*****
+
+####  御幸一也  
+##### 20748#       发表于 2024-7-20 14:09
+
+這個原文我看了下，監督原話是 “就像mygo不是只有go的作品，ave也不會是只有ave的作品，是10個人的故事（以下略）”
+
+那麼我問題來了，難道真的有人覺得go是10人故事嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/20/140734ncot4cftz7l467gl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (182.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 14:07 上传
+
+*****
+
+####  可爱的洋甘菊  
+##### 20749#       发表于 2024-7-20 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644376&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-20 14:04</a>
+真说了母鸡卡是十个人的故事吗不要在他人的解读上进行三创</blockquote>
+其实是说了的，不过还有一种解读是为了让go的观众也来看mujica，我不继续这个话题了，传播了负能量是我的错。
+
+<img src="https://img.saraba1st.com/forum/202407/20/140834zhc5n99nujnzjzn5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240720_140806.jpg</strong> (491.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 14:08 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  skives  
+##### 20750#       发表于 2024-7-20 14:12
+
+其实我倒是觉得 他说了“描绘的重点不一样” 就没什么可担心的了 主线和人物感情做好 谁也不会纠结支线
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|就是这样|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 20751#       发表于 2024-7-20 14:13
+
+只能说翻译是没办法把原文的意思全部体现出来的，柿本这两次提到的内容都只是
+
+“avemujica动画里还有mygo出场”的程度而已
+
+*****
+
+####  御幸一也  
+##### 20752#       发表于 2024-7-20 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644241&amp;ptid=2159415" target="_blank">可爱的洋甘菊 发表于 2024-7-20 13:45</a>
+
+crychic相关剧情肯定是不会少的，而且也是一大看点，讲好了会非常好看。但是就怕wsd为了推go，硬加go高光， ...</blockquote>
+不會少？開玩笑吧，ave的主唱和CCC有個屁關係<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+全演CCC還演不演ave的故事了，我看go也沒有全在CCC啊
+
+CCC相關最多3話不能再多了
+

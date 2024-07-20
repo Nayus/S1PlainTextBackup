@@ -1031,3 +1031,22 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 
 看坛友们最近的讨论心情复杂啊，每天都把《人間になりたいうた》和《 春日影》（CRYCHIC版）听几遍的我自认为不算遗老<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 20821#       发表于 2024-7-20 19:59
+
+C团补集乐器编成正好和 Iron Maiden 一样，来首重金属吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星天观测  
+##### 20822#       发表于 2024-7-20 20:01
+
+如果没有针对鸡或者鸡成员进行恶意贷款拉踩和猜测（以及更直白的直球攻击）
+
+那我想鸡推漏油的攻击内容也就与你无关，喜欢听什么歌是你的爱好，这是没有问题的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

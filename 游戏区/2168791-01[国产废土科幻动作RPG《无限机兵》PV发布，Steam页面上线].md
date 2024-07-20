@@ -638,3 +638,21 @@ xbox不配拥有吗？</blockquote>
 说起来国内这种3d二游大部分都是unity做的么，我只听说过米都是用的unity，不玩手游不清楚 ...</blockquote>
 目前上市的几乎都是unity，还是饼阶段的有不少是ue，比如前几天爆火那个异环
 
+
+*****
+
+####  SchwarzX  
+##### 68#       发表于 2024-7-20 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看了视频评论区都说是魂，不会又是魂类吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 69#       发表于 2024-7-20 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646737&amp;ptid=2168791" target="_blank">SchwarzX 发表于 2024-7-20 19:17</a>
+
+看了视频评论区都说是魂，不会又是魂类吧</blockquote>
+都到了对魂感到厌倦的程度了，是不是魂系不是一眼能看出来吗？除非自己骗自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

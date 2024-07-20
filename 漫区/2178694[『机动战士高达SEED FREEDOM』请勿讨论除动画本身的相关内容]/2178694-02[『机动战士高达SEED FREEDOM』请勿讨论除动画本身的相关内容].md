@@ -477,3 +477,15 @@ AEMedia直接倒出来了</blockquote>
 论坛助手,iPhone</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你说的对 忍不住和回他的人全责
 
+
+*****
+
+####  starring  
+##### 1855#       发表于 2024-7-20 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646648&amp;ptid=2178694" target="_blank">王元姬无惨 发表于 2024-7-20 19:05</a>
+你说的对 忍不住和回他的人全责</blockquote>
+确实不该忍不住回复，都不止一次把自己的脑补当设定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-DQ72, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

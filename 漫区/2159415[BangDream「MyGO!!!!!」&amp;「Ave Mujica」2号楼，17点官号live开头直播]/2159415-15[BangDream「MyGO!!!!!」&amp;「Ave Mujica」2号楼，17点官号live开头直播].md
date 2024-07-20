@@ -1023,3 +1023,11 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 
 我想看C和anti-C现场对邦然后被爆杀
 
+
+*****
+
+####  [皆神孝介]  
+##### 20820#       发表于 2024-7-20 19:49
+
+看坛友们最近的讨论心情复杂啊，每天都把《人間になりたいうた》和《 春日影》（CRYCHIC版）听几遍的我自认为不算遗老<img src="https://static.saraba1st.com/image/smiley/face/57.gif" referrerpolicy="no-referrer">
+

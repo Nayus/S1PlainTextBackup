@@ -1068,3 +1068,12 @@ C团补集乐器编成正好和 Iron Maiden 一样，来首重金属吧<img src=
 
 wsd确实挺会挖冷门底边但唱功好的主唱的，像是当初从摔角挖来的i83，后来的大姐头和李子，还有男邦那几个主唱唱功都很顶，羊姐才是为数不多被老登看走眼的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 20825#       发表于 2024-7-20 23:28
+
+☁️吧梗小鬼开始做视频了，<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3f05031eeef280e21655d38d10bfdc33/image.jpg" referrerpolicy="no-referrer">
+

@@ -195,3 +195,19 @@ op这么能动吗，爽了
 
 另外这集分镜官网有写吉泽翠，正片却没表上去，不知道为什么
 
+
+*****
+
+####  穗波殊  
+##### 438#       发表于 2024-7-20 21:39
+
+这个op<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">好萌啊！抚子激萌！
+
+
+*****
+
+####  oi99o  
+##### 439#       发表于 2024-7-20 21:45
+
+官方你这都不把op单独发一遍到ytb去吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

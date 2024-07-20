@@ -167,3 +167,35 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aendst  
+##### 20736#       发表于 2024-7-20 13:29
+
+ 本帖最后由 Aendst 于 2024-7-20 13:31 编辑 
+
+以正常逻辑来说，如果看mygo火了决定完全倾斜，那应该是先放出mujica动画，然后追加mygo总集篇剧场版，甚至新剧场版和第二季
+
+从制作流程和时间上来说可以一直延续热度，而且剧场版依旧可以秋冬放出，不会拖太晚
+
+这种加塞剧场版延后tv动画的行为从各个角度来说都很匪夷所思
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以不是很懂武士道到底在干什么
+
+*****
+
+####  罗克萨斯  
+##### 20737#       发表于 2024-7-20 13:31
+
+CRYCHIC必然要再次被提及，灯祥、素祥、素睦关系描写少不了的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aendst  
+##### 20738#       发表于 2024-7-20 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看好crychic彻底结束使命，毕竟作为2.5企划要推要卖的商品始终都是mygo和mujica
+

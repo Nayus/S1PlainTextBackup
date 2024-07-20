@@ -95,3 +95,11 @@
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Tachikoma88  
+##### 428#       发表于 2024-7-20 13:37
+
+又发了个pv2，还真给灯笼裤抚子打了个黑条
+

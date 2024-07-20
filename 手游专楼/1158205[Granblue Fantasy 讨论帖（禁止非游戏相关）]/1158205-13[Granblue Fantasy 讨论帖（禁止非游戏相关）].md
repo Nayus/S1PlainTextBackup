@@ -168,3 +168,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">500材料而已，猎沙也就是半天的事儿
 
+
+*****
+
+####  adretyu67.  
+##### 17996#       发表于 2024-7-20 08:01
+
+飞哥这堆还是有些机制怪打起来太麻烦了，比如cosmos红蓝和飞哥锁伤。
+
+导致飞哥就是不适合当农场，但是机神就很适合当农场。这样的差异其实多少还是有点不舒服
+

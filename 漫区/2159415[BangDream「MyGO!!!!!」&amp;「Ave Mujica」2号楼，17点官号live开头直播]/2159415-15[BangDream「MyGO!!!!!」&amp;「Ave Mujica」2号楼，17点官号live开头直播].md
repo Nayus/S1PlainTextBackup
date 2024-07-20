@@ -226,3 +226,29 @@ crychic相关剧情肯定是不会少的，而且也是一大看点，讲好了�
 
 柿本说是十个人的故事这个有明确出处吗，我似乎不记得他有这么说过
 
+
+*****
+
+####  可爱的洋甘菊  
+##### 20742#       发表于 2024-7-20 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644296&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-20 13:51</a>
+柿本说是十个人的故事这个有明确出处吗，我似乎不记得他有这么说过</blockquote>
+监督访谈mujica篇结尾提了一次，和羊的设定集访谈结尾又提了一次。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 20743#       发表于 2024-7-20 14:01
+
+又要循环回到之前的延期是因为重写剧本假说了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 20744#       发表于 2024-7-20 14:03
+
+别猜了，等明年盖棺定论。
+

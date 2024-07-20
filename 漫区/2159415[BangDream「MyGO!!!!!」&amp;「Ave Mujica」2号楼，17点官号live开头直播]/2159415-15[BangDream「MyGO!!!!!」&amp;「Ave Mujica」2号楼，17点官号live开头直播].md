@@ -826,3 +826,20 @@ CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="htt
 
 我好像有记得在哪看过是先定的第七集版本，不记得出处了，可能不对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20799#       发表于 2024-7-20 15:26
+
+不确定，反正那期邦tv杨姐蜜柑节约都在，灯soyo睦都干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20800#       发表于 2024-7-20 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">沒說過吧，完全沒印象
+
+而且正常來說，樂團版都是從歌曲旋律中編曲而成，那不管是先有go的吉他版還是先有CCC的key版，區別都不大。
+

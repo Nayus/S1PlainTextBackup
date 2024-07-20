@@ -761,3 +761,56 @@ wsd要是愿意给死人特供东西也没话可说吧，我已经做好心理�
 
 虽然平常笑称crychic爱好者是姨姥，但是我总觉得这些动画前就在支持的人才是真古参姨姥
 
+
+*****
+
+####  星天观测  
+##### 20792#       发表于 2024-7-20 15:04
+
+想了想其实对邦唱春日影也不太可能，那这五个人搞春日影了剩下五个干啥呢，在台下打call吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老老实实按普通对邦的套路走，各自合唱一首对方的歌就完了
+
+*****
+
+####  星天观测  
+##### 20793#       发表于 2024-7-20 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644827&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-20 15:01</a>
+
+其實我覺得C團遺老最搞笑的是每次招魂好像都無視立希</blockquote>
+立希毕竟忘得最快，连手游活动都把立希分出去了，解散后一心想搞好狗团的立希突然开始给c团招魂，我不是立希推我都要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20794#       发表于 2024-7-20 15:06
+
+天天想看這個的人明顯就是不在意你另外5個人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但凡有一點尊重都不會天天招魂這個好吧
+
+*****
+
+####  星天观测  
+##### 20795#       发表于 2024-7-20 15:08
+
+说不定姨姥是为了展示对其他五个人的尊重才提出十人春日影这种傻逼到极点的搞笑建议吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20796#       发表于 2024-7-20 15:08
+
+羊姐真的能现场唱明白春日影吗 总觉得这么经典的歌唱不好不如不唱
+
+
+*****
+
+####  罗克萨斯  
+##### 20797#       发表于 2024-7-20 15:12
+
+CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -114,3 +114,16 @@
 
 2024-7-21 05:51 上传
 
+
+*****
+
+####  手铐君  
+##### 149#       发表于 2024-7-21 06:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65650975&amp;ptid=2078383" target="_blank">drx66 发表于 2024-7-21 05:52</a>
+
+听说是原制作组新游
+
+호라이즌 워커 - 신을 포식한 인간의 이야기 (gentlemaniac.com)</blockquote>
+能玩了吗？
+

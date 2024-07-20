@@ -1050,3 +1050,13 @@ C团补集乐器编成正好和 Iron Maiden 一样，来首重金属吧<img src=
 
 那我想鸡推漏油的攻击内容也就与你无关，喜欢听什么歌是你的爱好，这是没有问题的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 20823#       发表于 2024-7-20 22:36
+
+“好肉谁给你啊”——此事在陈佩斯春晚小品亦有记载
+
+老天爷就赏妮邦这口饭吃？
+

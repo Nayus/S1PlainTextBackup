@@ -642,3 +642,60 @@ soyo和灯已经天桥和c团和解了，连手游里那期下雨的剧情好像
 我倒是不否认祥子重视c团 但肉眼可见她的成长方向就是真正放下过去 
 总强调自己忘记一切过去的自己已经死了什么的  还是显得太在意了
 
+
+*****
+
+####  Aendst  
+##### 20780#       发表于 2024-7-20 14:45
+
+那毕竟是她拉起来的，某种意义上也算队长了吧，就算只是为了角色形象考虑也不能说祥子完全不在乎crychic<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+在乎很正常，将来完全放下走出来更正常，这才是成长
+
+*****
+
+####  御幸一也  
+##### 20781#       发表于 2024-7-20 14:45
+
+之後徹底放下就行，放不下的話就會很下頭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20782#       发表于 2024-7-20 14:46
+
+就我观察到的c团姨姥来看
+人家不觉得祥子切割了，祥子只是在嘴硬心里就是放不下ccc
+what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+祥子的决心和觉悟都被c团姨姥当笑话看了，当然自信招魂<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20783#       发表于 2024-7-20 14:48
+
+切割了开始专心组母鸡卡就是祥子成长的开始啊。完全不在乎那肯定不可能但是人已经往前走了那就要坚定向前
+
+希望不要给祥子安排dont look back这种鬼故事，那我真的会对祥子滑大坡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20784#       发表于 2024-7-20 14:50
+
+還是動畫不播導致的，現在卡在這大家各有各的理解，第二季播完就可以看是你被噁心還是我被下頭<img src="https://static.saraba1st.com/image/smiley/face2017/266.gif" referrerpolicy="no-referrer">
+
+但常理來說，怎麼可能不切掉CCC，以後還開不開ave的LIVE了，要不直接改成組CCC開LIVE吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20785#       发表于 2024-7-20 14:51
+
+现在还没完全放下以后会放下
+和现在还没完全放下以后必定捡起来的区别吧
+
+不过ccc姨姥能完全无视10集后灯爽俩的塑造招魂，不好说明年鸡是不是也可以只盯着相关东西看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

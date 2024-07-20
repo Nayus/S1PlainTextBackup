@@ -376,3 +376,81 @@ crychic相关剧情肯定是不会少的，而且也是一大看点，讲好了�
 
 CCC相關最多3話不能再多了
 
+
+*****
+
+####  星天观测  
+##### 20753#       发表于 2024-7-20 14:14
+
+原文也好翻译也好，意思都是【这整个邦邦2.0（伪）企划的动画讲的是十个人的故事】
+
+你或许没有恶意，但是单拿母鸡卡说是十个人的故事确实有歧义，还是已经被恶意贷款了大半年的那种歧义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能说啥呢，哎，语言的魅力
+
+*****
+
+####  NODY  
+##### 20754#       发表于 2024-7-20 14:15
+
+柿本这个就是单纯的工商一下让之前的观众继续看而已，担心那个还不如担心独角兽说的C团会有巨大存在感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20755#       发表于 2024-7-20 14:17
+
+c团的存在感指的肯定是睦祥解密部分吧
+对c团的怀念这一块 go的剧情已经描写的足够了
+
+*****
+
+####  星天观测  
+##### 20756#       发表于 2024-7-20 14:19
+
+我不好说c团这个背景团的设定到底算不算好，至少从目前的结果看狗确实经常被拷打不如c，狗u也称得上是不胜其烦，估计立本人自己也没想过一个背景团能有这么多粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20757#       发表于 2024-7-20 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">睦为什么玩乐队不开心又为什么要在那个时间点说出来
+
+这个事情还完全没有线索呢
+
+
+*****
+
+####  御幸一也  
+##### 20758#       发表于 2024-7-20 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644492&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-20 14:19</a>
+
+我不好说c团这个背景团的设定到底算不算好，至少从目前的结果看狗确实经常被拷打不如c，狗u也称得上是不胜 ...</blockquote>
+天天招魂的遺老確實煩得要死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20759#       发表于 2024-7-20 14:22
+
+遗老的言论确实让人感觉挺搞笑的
+说白了
+c团就是go和mujica的垫子
+
+*****
+
+####  星天观测  
+##### 20760#       发表于 2024-7-20 14:22
+
+剩下的部分其实就只是祥子睦视角的补充了，而且监督说了是鸡动画是狗13集以后的内容，那soyo和灯都已经在天桥和c团和解的情况下我个人不认为关于c团的补充能占到3集<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 20761#       发表于 2024-7-20 14:23
+
+什么亡灵厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

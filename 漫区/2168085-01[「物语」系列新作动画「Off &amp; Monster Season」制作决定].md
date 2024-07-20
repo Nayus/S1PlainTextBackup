@@ -389,3 +389,13 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 短发抚子越看越喜欢。特别是现在的服饰很保守，但想到以前的一些形象很暴露，都是同一个人就意外的涩
 
+
+*****
+
+####  martinium  
+##### 461#       发表于 2024-7-21 07:42
+
+感觉看到了巅峰的沙发套
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

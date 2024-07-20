@@ -4185,3 +4185,53 @@ ninja of ninjas还真是たぬき忍者
 
 看错了编辑
 
+
+*****
+
+####  TiHaru  
+##### 16977#       发表于 2024-7-20 17:59
+
+ 本帖最后由 TiHaru 于 2024-7-20 18:00 编辑 
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+717.md
+(36.3 KB, 下载次数: 0)
+
+2024-7-20 17:58 上传
+
+点击文件名下载附件
+
+感谢楼友的list和录播,list虽然错误很多但是对的也很多,录播确实音质很好完爆b站了
+
+请随意取用
+
+syl 就算是念棉花糖那一段之前的两个切片也是错得离谱
+
+
+*****
+
+####  古战场亡魂  
+##### 16978#       发表于 2024-7-20 18:03
+
+<img src="https://img.saraba1st.com/forum/202407/20/180324yccggdkkrdnmkgfc.jpg" referrerpolicy="no-referrer">
+
+<strong>c3771ddfbe0757bd8530b2ebc1990ff5_GS5in40b0AEaofT_format=jpg&amp;name=medium.jpg</strong> (89.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 18:03 上传
+
+*****
+
+####  古战场亡魂  
+##### 16979#       发表于 2024-7-20 18:03
+
+<img src="https://img.saraba1st.com/forum/202407/20/180349m1cww3xu1hxy2zh2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (180.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-20 18:03 上传
+

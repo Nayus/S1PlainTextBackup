@@ -952,3 +952,16 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 老老实实按普通 ...</blockquote>
 之前我也这么想的，但是mujica上次的water好像就是两个人演的其他三个在歇<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20813#       发表于 2024-7-20 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65645913&amp;ptid=2159415" target="_blank">MZZK 发表于 2024-7-20 17:34</a>
+
+之前我也这么想的，但是mujica上次的water好像就是两个人演的其他三个在歇</blockquote>
+那是因为water编曲特殊，而且是鸡内部的事，以后说不定来纯音乐，或者不要鼓，不要吉他，这都是鸡内部整的花活鸡推不会有意见
+
+春日影不一样，两个团里完全跟春日影没关系的就三个人，现在春日影有c团版和狗版，狗版更是第一个放出完整版的，live上搞c团复活那lsl和青木不是成了沙口，狗u不闹的吗
+

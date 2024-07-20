@@ -699,3 +699,65 @@ what can I say<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 不过ccc姨姥能完全无视10集后灯爽俩的塑造招魂，不好说明年鸡是不是也可以只盯着相关东西看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 20786#       发表于 2024-7-20 14:55
+
+觉得主人公会走回头路那可真是神智不清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+哪怕go的部分 走回头路的也是soyo 而不是主人公tomori
+还是希望mujica能有一个相对来说比较明确的外部压力  喜欢王道故事<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20787#       发表于 2024-7-20 14:58
+
+算了，都姨姥了，除了动画里抠那么点东西是真没别的了（姨姥笑话之鸡狗4人邦tv上全员默认春日影是狗歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+但是wsd如果真搞出三次c团限定复活节目那我就要尴尬完了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 20788#       发表于 2024-7-20 14:59
+
+mygo经常被姨姥骑脸一是强度真的不如c团，二是没有认识时间比c团久的人际关系
+
+就这方面来说mujica打姨姥可比mygo有底气多了，论强度银河战舰比解散的路人团强，论时间幼驯染三人组的认识时间比c团长多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 20789#       发表于 2024-7-20 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65644798&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-20 14:58</a>
+
+算了，都姨姥了，除了动画里抠那么点东西是真没别的了（姨姥笑话之鸡狗4人邦tv上全员默认春日影是狗歌）
+
+但 ...</blockquote>
+其實我覺得C團遺老最搞笑的是每次招魂好像都無視立希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20790#       发表于 2024-7-20 15:02
+
+鬼故事，如果鸡狗对邦让那五个人唱春日影可能性并不为零
+受伤的只有狗粉和鸡粉
+而对鸡狗无关心的c姨姥只要一点边角料就能狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+wsd要是愿意给死人特供东西也没话可说吧，我已经做好心理准备了，就当上坟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20791#       发表于 2024-7-20 15:02
+
+武士道什么都干得出来
+
+不过卖复活crychic是不是对1st~4th一直支持mygo的人和解密活动~0th开始喜欢mujica的人太过分了
+
+虽然平常笑称crychic爱好者是姨姥，但是我总觉得这些动画前就在支持的人才是真古参姨姥
+

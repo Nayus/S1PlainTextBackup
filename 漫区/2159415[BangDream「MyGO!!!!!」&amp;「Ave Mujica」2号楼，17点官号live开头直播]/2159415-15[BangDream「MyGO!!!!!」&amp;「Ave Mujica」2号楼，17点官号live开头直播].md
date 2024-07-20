@@ -199,3 +199,30 @@ CRYCHIC必然要再次被提及，灯祥、素祥、素睦关系描写少不了�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看好crychic彻底结束使命，毕竟作为2.5企划要推要卖的商品始终都是mygo和mujica
 
+
+*****
+
+####  可爱的洋甘菊  
+##### 20739#       发表于 2024-7-20 13:45
+
+crychic相关剧情肯定是不会少的，而且也是一大看点，讲好了会非常好看。但是就怕wsd为了推go，硬加go高光，导致把鸡垫了，柿本老是强调mujica是10人的故事，还是很难不担心的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星天观测  
+##### 20740#       发表于 2024-7-20 13:46
+
+提及能怎么样呢，c团的故事已经很完整了，除了从祥子睦视角补充说明对c团的看法和解散的事还能说什么
+
+不过你鸡动画播了肯定要面临姨姥拷打团魂不如c的情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 20741#       发表于 2024-7-20 13:51
+
+柿本说是十个人的故事这个有明确出处吗，我似乎不记得他有这么说过
+

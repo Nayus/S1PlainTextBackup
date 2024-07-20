@@ -223,3 +223,14 @@
 
 COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远些，车速一慢很快就超越了，没双子驱散<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 18000#       发表于 2024-7-20 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642791&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-7-20 10:18</a>
+
+真化的材料量其实角色到位跟团挂挂机fa清自然恢复的豆子也不费事，突出一个日积月累而且现在也没啥事可做 ...</blockquote>
+还是血量问题，方阵还有个塔罗里的神威大。就是終突估计要等第三轮外传妇科了。
+

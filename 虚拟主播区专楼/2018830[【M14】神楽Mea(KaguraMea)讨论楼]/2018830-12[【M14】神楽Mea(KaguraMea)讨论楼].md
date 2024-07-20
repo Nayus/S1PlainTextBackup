@@ -4258,3 +4258,13 @@ thh怎么又要开始招人了，你楼老登有想去的吗<img src="https://st
 
 已经有再次创作了吗<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 16982#       发表于 2024-7-20 22:46
+
+艹，不知道啥时候的麻图收藏，拿出来发现脸部拼接有点问题，就跑了个ai修复然后二创()
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

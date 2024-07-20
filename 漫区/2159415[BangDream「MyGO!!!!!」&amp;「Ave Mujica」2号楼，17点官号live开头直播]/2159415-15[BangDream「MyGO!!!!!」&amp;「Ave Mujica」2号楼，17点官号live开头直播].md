@@ -924,3 +924,11 @@ CCC对于独角兽来说当然很重要或者是最重要的团，应该说这�
 
 但武士道没有也不需要这方面的考量，这是确实可以明确的事实
 
+
+*****
+
+####  akiomn  
+##### 20810#       发表于 2024-7-20 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊姐音色确实好，可惜录音室战神，第一次听live版的迷星叫我都怀疑是不是换了个人唱，怎么和我听的mv版不一样啊
+

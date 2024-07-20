@@ -356,3 +356,11 @@ Aniplex一单是95%，实际少了3.25%
 這兩期活動因各種理由降到20才是合理</blockquote>
 10大福利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 13075#       发表于 2024-7-20 16:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我宁可他把商店换材料的数量限制去掉
+

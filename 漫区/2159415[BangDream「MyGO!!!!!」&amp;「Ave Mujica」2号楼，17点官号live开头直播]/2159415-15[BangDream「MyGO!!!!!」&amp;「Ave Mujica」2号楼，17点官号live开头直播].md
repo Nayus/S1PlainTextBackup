@@ -843,3 +843,19 @@ CRYCHIC限时复活，剩下五人在台下鼓掌说“恭喜”呗<img src="htt
 
 而且正常來說，樂團版都是從歌曲旋律中編曲而成，那不管是先有go的吉他版還是先有CCC的key版，區別都不大。
 
+
+*****
+
+####  星天观测  
+##### 20801#       发表于 2024-7-20 15:57
+
+再一周就是李子的fmt了，李噶这次弄得花墙很漂亮，希望李子会在预留的位置拍照返图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 20802#       发表于 2024-7-20 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ai翻唱的听多了，羊姐那个音色真的好，老天赏饭了。很多歌换羊姐亲自上去唱估计要么断气要么低音一坨屎
+点名闪光，这歌换羊姐去唱估计就断气了，gbc的那首op更是直接忘词都可能
+

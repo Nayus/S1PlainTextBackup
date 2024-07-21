@@ -1389,3 +1389,45 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 这个熊猫是上海进博会的吉祥物，估计是在会展中心拍的
 
+
+*****
+
+####  堀内爱里衣  
+##### 20857#       发表于 2024-7-21 22:09
+
+       
+
+<img src="https://img.saraba1st.com/forum/202407/21/220828ctg4ndnei2g00i4e.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-07-21_22-06-13.jpg</strong> (134.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 22:08 上传
+
+       [https://t.bilibili.com/956505305787662338](https://t.bilibili.com/956505305787662338)
+
+       
+
+<img src="https://img.saraba1st.com/forum/202407/21/220827pcuccjv8sj69wuwu.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-07-21_22-07-33.jpg</strong> (64.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 22:08 上传
+
+       [https://t.bilibili.com/956507388861481031](https://t.bilibili.com/956507388861481031)
+
+       [https://www.bilibili.com/video/BV1kr421K7MQ](https://www.bilibili.com/video/BV1kr421K7MQ)
+
+*****
+
+####  仟音一心  
+##### 20858#       发表于 2024-7-21 22:10
+
+<img src="https://p.sda1.dev/18/98c9500a32ad0f19e9d46f65c5fe0054/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/dd47f88665c6b57a79bc4c680d01b0f9/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/8ca80c8ed186616eb5321dbdc05b5ac1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/33dcde9a555cfd83e510334808de7a17/image.jpg" referrerpolicy="no-referrer">
+

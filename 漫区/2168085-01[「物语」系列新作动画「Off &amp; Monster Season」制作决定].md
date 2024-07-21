@@ -504,3 +504,11 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 从扇按火警到出校那里的演出挺好看
 
+
+*****
+
+####  鬼谷ask  
+##### 469#       发表于 2024-7-21 12:52
+
+老仓好棒，各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

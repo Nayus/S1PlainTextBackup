@@ -634,3 +634,14 @@ FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲�
 
 只要宣布从虚幻4迁移到虚幻5开发就可以再顶一年了。
 
+
+*****
+
+####  ナルバレック  
+##### 60#       发表于 2024-7-22 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658929&amp;ptid=2083714" target="_blank">sanxgh571 发表于 2024-7-22 00:04</a>
+
+闹麻了，重制一个psp游戏做了四年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">比本社效率高，本社钞票数到手抽，几十年不扩员（扩员看好球区是否一样为标准），十五个人不到做游戏很是逆天
+

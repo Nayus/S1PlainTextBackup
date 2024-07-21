@@ -847,3 +847,23 @@ zovs743j7t1byv07，我也来求一个互填</blockquote>
 希望叔叔能多撑一会吧 ...</blockquote>
 来国际服或日服啊，进度一样都是fjs直营的，现在2.5周年送的太多了，很容易就能搞出暗队或雷队两位爷✌️
 
+
+*****
+
+####  HDRorz  
+##### 1579#       发表于 2024-7-22 00:29
+
+求互助
+ko004ex4ij6dj347
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  chivalry  
+##### 1580#       发表于 2024-7-22 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658706&amp;ptid=2050204" target="_blank">HinataY 发表于 2024-7-21 23:40</a>
+来国际服或日服啊，进度一样都是fjs直营的，现在2.5周年送的太多了，很容易就能搞出暗队或雷队两位爷✌️ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">之前从日服退的，主要就是氪金太费劲了，玩还是想好好玩的
+

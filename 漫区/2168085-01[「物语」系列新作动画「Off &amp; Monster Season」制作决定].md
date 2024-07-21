@@ -590,3 +590,18 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 一直觉得老仓人设跟其他人不太一样，可能就是物语角色的发色都偏深色。现在和其他角色站一起更协调一点
 
+
+*****
+
+####  Sliurus  
+##### 478#       发表于 2024-7-21 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65651829&amp;ptid=2168085" target="_blank">もも的洞洞鞋 发表于 2024-7-21 10:12</a>
+
+老仓好久没见了
+
+新发型有点好看</blockquote>
+与其说正不正确，不如说日子总得过，人生其实没那么艰难
+
+一个翘课出来自习的学霸如是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

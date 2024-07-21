@@ -1222,3 +1222,11 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星天观测  
+##### 20839#       发表于 2024-7-21 14:03
+
+安心备战年底鸡萝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

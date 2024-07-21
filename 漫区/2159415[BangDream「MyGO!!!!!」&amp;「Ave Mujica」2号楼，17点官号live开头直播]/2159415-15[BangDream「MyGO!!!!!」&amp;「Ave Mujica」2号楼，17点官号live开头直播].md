@@ -1170,3 +1170,29 @@ wsd确实挺会挖冷门底边但唱功好的主唱的，像是当初从摔角�
 
 两个好友进去抢票都是转圈圈，eupd你该死啊
 
+
+*****
+
+####  九陌狂游  
+##### 20834#       发表于 2024-7-21 12:20
+
+我表妹帮我抢说进去转了四圈，然后没票了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  御景  
+##### 20835#       发表于 2024-7-21 12:21
+
+值班刚好有事，错过抢票了，虽然手动抢到的概率就挺低的
+
+*****
+
+####  rikaren  
+##### 20836#       发表于 2024-7-21 12:23
+
+https://whlyj.sh.gov.cn/tsym/index.html
+
+走过路过给eupd来点惊喜。
+

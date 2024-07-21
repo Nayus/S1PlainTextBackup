@@ -392,3 +392,11 @@ win10提示错误进不去。
 有人知道弓箭怎么瞄准和蓄力吗？我按LT就直接射出来了，长按也没法蓄力，技能演示动画里的锁定圈弄不出来 ...</blockquote>
 试出来了 右摇杆按下去出锁定圈<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仿身泪滴  
+##### 111#       发表于 2024-7-21 12:26
+
+我游戏进入后期了，现在世代跳舞只有手部动作了，有一种悲怆感，感觉不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

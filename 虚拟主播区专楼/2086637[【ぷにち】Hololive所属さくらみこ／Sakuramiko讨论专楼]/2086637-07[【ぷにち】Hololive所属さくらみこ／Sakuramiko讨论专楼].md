@@ -4632,3 +4632,61 @@ STGR式GTA箱企划，看来细节已经谈完了运营那边也没问题了，�
 
 另外GTA企划的开服时间很大的可能性在下个月，ARK这个月底结束，fbk自己准备的hardcoreMC企划在9月，而10月是sololive，而8月又是学生的假期时间做大型企划最佳
 
+
+*****
+
+####  holoan  
+##### 9291#         楼主| 发表于 2024-7-21 23:52
+
+关于一专和里面新曲相关的一些补充信息
+
+<img src="https://img.saraba1st.com/forum/202407/21/234200p7urytj0n90sgggm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (320.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:42 上传
+
+这次一专的新曲率大幅超出所有人设想，今年以前发布的所有单曲都不在专辑范围内然后又额外准备了9首新曲，基本上就是今年要出整整12首新曲的意思
+
+关于专辑曲作者，其实大多数上都是以前给holomem写过曲的熟人，叫得上名的都认识的就不说了 <blockquote>一応知名度低そうなとこの注釈
+
+水野良樹→いきものがかり
+
+Medansy→ぺこらの「昇天直前Love it LIVE」作った
+
+やしきん→俺妹とか色々アニソン作ってる
+
+真島ゆろ→P丸とかに曲作ってるボカロP</blockquote>
+
+再然后是关于今年内（已经和即将）出的所有新曲包含solo和组合
+
+<img src="https://img.saraba1st.com/forum/202407/21/234422a9u0uyzvztayjrj0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:44 上传
+
+ <blockquote>参考までに今年リリースのみこ新曲
+
+サクラカゼとアワーツリーとマイエリはほぼ確定としてここに去年のepとかも入ってくるからセトリ予想難しいな</blockquote>
+暂时不考虑嘉宾，如此多的选曲再加上本身在今年之前已经出的十余首原创曲/组合曲，而参考以前办过的sololive构成基本是13+3曲含嘉宾曲，放到这么大的曲库内确实是完全无法预测的
+
+*****
+
+####  holoan  
+##### 9292#         楼主| 发表于 2024-7-22 00:07
+
+<img src="https://img.saraba1st.com/forum/202407/22/000642ywp1t9phdn1gvnpi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 00:06 上传
+
+今天阿希又是帮忙转推又是吹新曲，怎么回事了
+

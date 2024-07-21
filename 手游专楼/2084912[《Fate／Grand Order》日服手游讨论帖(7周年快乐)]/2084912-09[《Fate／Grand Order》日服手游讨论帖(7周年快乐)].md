@@ -385,3 +385,11 @@ Aniplex一单是95%，实际少了3.25%
 
 其实我现在有些怀疑卡面拉成这样也不完全是扫描仪的问题，感觉老爷子当初就是随手一画，结果发现角色太火了，就通过售后竭力为自己挽尊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qixinno2  
+##### 13077#       发表于 2024-7-22 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然死了一个楼友
+

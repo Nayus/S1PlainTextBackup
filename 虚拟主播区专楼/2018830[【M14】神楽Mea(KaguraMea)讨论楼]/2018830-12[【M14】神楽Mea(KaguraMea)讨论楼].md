@@ -4306,3 +4306,17 @@ thh怎么又要开始招人了，你楼老登有想去的吗<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">上次和たかスペ打完好嫌被刷了一整页，居然还能一起打的
 
+
+*****
+
+####  古战场亡魂  
+##### 16987#       发表于 2024-7-22 00:08
+
+<img src="https://img.saraba1st.com/forum/202407/22/000857txjcrz0h1qh05bq1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 00:08 上传
+

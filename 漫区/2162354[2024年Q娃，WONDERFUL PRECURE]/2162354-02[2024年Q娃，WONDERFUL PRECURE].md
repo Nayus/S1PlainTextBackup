@@ -246,3 +246,18 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 暖男不会游泳还硬要跟来，大妈你就不能安排个彩羽教暖男游泳的环节么，卖CP都不会卖，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 1930#       发表于 2024-7-21 14:52
+
+等狼出来麦狗就要变成“一起来玩吧”复读机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 1931#       发表于 2024-7-21 14:53
+
+看剧场版能不能挽个尊吧（谁家第一顺位的主角的塑造要靠剧场版找补啊）
+

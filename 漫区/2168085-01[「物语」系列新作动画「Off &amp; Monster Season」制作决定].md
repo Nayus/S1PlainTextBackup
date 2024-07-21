@@ -615,3 +615,11 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  猫兔同笼  
+##### 480#       发表于 2024-7-21 14:46
+
+老仓要是知道抚子的一万小时估算法估计得抓狂，课也不上了连续一星期的给小姑娘补习补习数学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

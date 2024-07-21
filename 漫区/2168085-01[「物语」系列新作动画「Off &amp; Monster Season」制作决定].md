@@ -512,3 +512,11 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 老仓好棒，各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 470#       发表于 2024-7-21 12:55
+
+这op以物语来说都算少见了，演出这一集集下来都是顶啊，这是哪年的沙发套。反正不是终那一年的（
+

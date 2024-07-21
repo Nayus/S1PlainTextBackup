@@ -165,3 +165,13 @@ A part就开打了，总得拖时长
 
 下集预感是表情包
 
+
+*****
+
+####  pokemon最爱  
+##### 1921#       发表于 2024-7-21 09:24
+
+这集的小雪可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png">
+
+下集光看预告就是一大堆表情包，搞笑回预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

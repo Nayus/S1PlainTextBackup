@@ -1121,3 +1121,36 @@ wsd确实挺会挖冷门底边但唱功好的主唱的，像是当初从摔角�
 山根绮进邦绝对不会当主唱，毕竟邦邦最缺的就是鼓手，她如果进邦肯定是当鼓手的。只不过活力棉花糖这队里 ...</blockquote>
 妮邦的鼓手人气连大桥彩香都hold不住不说，妮酬勤了半天到对邦时候对面全是职业哥，林小姐当时不是让艾回踢了外加艺人高中没学历可言——大花老师本花——两眼一摸黑也没那么容易给骗进来
 
+
+*****
+
+####  穗波殊  
+##### 20830#       发表于 2024-7-21 10:18
+
+<img src="https://img.saraba1st.com/forum/202407/21/101828it2j2oot3tytrluo.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1721528241745.jpg</strong> (70.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 10:18 上传
+
+来源：微博@酸豚
+
+
+*****
+
+####  仟音一心  
+##### 20831#       发表于 2024-7-21 10:20
+
+来点大鼓队员，强健的躯体
+<img src="https://p.sda1.dev/18/900af94c3a765682ae91fbf8cd0180b8/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/cd73f1eec18ab111f2b47a8e3d251ecf/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/058fa7cb3bf34e6a80b36787bf49c30d/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4fd408bc40638bd5f1f37988c60210de/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/23cfcc455276cb4c678254adda821daa/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b46d90c13abdf5bec35886f9f3b1eb78/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/65f3facea6dd0a278dd5bb0fe12c3c57/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f4735b42382a11da697afd5efa3da13c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f7182c30c961f9bdbac7ce439abf4e8b/image.jpg" referrerpolicy="no-referrer">
+

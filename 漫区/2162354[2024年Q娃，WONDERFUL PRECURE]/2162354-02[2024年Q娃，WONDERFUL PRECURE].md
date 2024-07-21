@@ -202,3 +202,35 @@ WONDERFUL PRECURE有四个主角，是彩羽、真由、雪和悟，小麦就是
 
 真主角是彩羽和悟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 1925#       发表于 2024-7-21 10:15
+
+话说下集那大热天的，怎么还不换衣服啊，尤其是猫组那一身，今年的夏装呢
+
+
+*****
+
+####  粉儿alice  
+##### 1926#       发表于 2024-7-21 10:22
+
+讲个笑话今年的女人叫Wonderful Precure<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 1927#       发表于 2024-7-21 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65651892&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2024-7-21 10:22</a>
+讲个笑话今年的女人叫Wonderful Precure</blockquote>
+但叫Cure Wonderful是一只阿卡林狗
+
+*****
+
+####  HANDAIYV  
+##### 1928#       发表于 2024-7-21 10:26
+
+wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

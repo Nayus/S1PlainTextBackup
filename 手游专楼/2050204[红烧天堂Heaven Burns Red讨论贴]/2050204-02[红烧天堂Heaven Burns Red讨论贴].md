@@ -805,3 +805,14 @@ zovs743j7t1byv07，我也来求一个互填</blockquote>
 
 —— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
+
+*****
+
+####  Skyline_R  
+##### 1575#       发表于 2024-7-21 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642651&amp;ptid=2050204" target="_blank">-Vanitas- 发表于 2024-7-20 09:59</a>
+
+多久能攒一井？</blockquote>
+国服一井降到了日服80%，而且送得多一点，四个半月左右？愿意氪月卡应该能干到4个月内，甚至有人说3个月就行，但我没氪也没算过，你自己看看吧
+

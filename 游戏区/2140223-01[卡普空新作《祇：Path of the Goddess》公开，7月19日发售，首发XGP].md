@@ -445,3 +445,16 @@ win10提示错误进不去。
 
 游戏内按暂停可以看到任务要求啊 15个陶罐，而且还贴心的给你计数了已经破坏多少个
 
+
+*****
+
+####  weiduopla  
+##### 116#       发表于 2024-7-21 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653217&amp;ptid=2140223" target="_blank">シャル 发表于 2024-7-21 13:06</a>
+
+历代封印邪恶都是巫女当人柱啊
+
+大殿里还放着个上代巫女变的石头呢</blockquote>
+感觉名字“宗”“世代”也是有说法的，结尾灵境里世代接过宗的面具可能也代表传承？（反白）
+

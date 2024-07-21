@@ -269,3 +269,11 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 小麦剧场版别说挽尊了，没进一步影薄就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1933#       发表于 2024-7-21 16:19
+
+姑且似乎小麦在剧场版有偏心形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不过感觉八成是跟水果组曲一样剧场版粉主先上强化形态然后TV大结局大家再一起变强化形态）
+

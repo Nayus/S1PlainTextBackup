@@ -3538,3 +3538,11 @@ SNK开发定律是不是守恒的
 
 东丈徒弟貌似最初考虑的是姐系人设，但是后来感觉风格太拳皇，不饿狼，定稿成了现在这个
 
+
+*****
+
+####  xiongxingyu  
+##### 321#       发表于 2024-7-21 17:47
+
+凯文的PV也出了，狼印最强角色堂堂回归，新作是否还能再续辉煌呢（想也不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

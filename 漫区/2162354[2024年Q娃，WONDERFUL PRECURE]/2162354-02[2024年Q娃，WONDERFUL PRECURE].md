@@ -125,3 +125,19 @@ A part就开打了，总得拖时长
 
 别到最后真由还是一次没用过吧
 
+
+*****
+
+####  renkan119  
+##### 1917#       发表于 2024-7-21 08:25
+
+下集天气热的无法正常战斗 但还是全员不换衣服 懒得设计夏装了吗…
+
+<img src="https://img.saraba1st.com/forum/202407/21/082509h30fsnndrtzt4zsu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8395.jpeg</strong> (334.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 08:25 上传
+

@@ -520,3 +520,11 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 这op以物语来说都算少见了，演出这一集集下来都是顶啊，这是哪年的沙发套。反正不是终那一年的（
 
+
+*****
+
+####  CHCL3  
+##### 471#       发表于 2024-7-21 13:11
+
+物语动画做的太好了我要看一辈子物语<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

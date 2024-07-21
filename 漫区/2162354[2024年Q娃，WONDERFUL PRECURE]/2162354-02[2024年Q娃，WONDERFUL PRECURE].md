@@ -175,3 +175,14 @@ A part就开打了，总得拖时长
 
 下集光看预告就是一大堆表情包，搞笑回预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新HGCG  
+##### 1922#         楼主| 发表于 2024-7-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65651358&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-7-21 08:44</a>
+
+小麦究竟是不是主角，这是个问题，目前真女主怎么看都是华哥</blockquote>
+WONDERFUL PRECURE有四个主角，是彩羽、真由、雪和悟，小麦就是一条工具狗
+

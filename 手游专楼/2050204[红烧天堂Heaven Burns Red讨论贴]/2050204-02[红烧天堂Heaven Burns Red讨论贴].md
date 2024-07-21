@@ -793,3 +793,15 @@ zovs743j7t1byv07，我也来求一个互填
 zovs743j7t1byv07，我也来求一个互填</blockquote>
 已填，vs3y4667i20m0jtj
 
+
+*****
+
+####  怪叔叔木易  
+##### 1574#       发表于 2024-7-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642651&amp;ptid=2050204" target="_blank">-Vanitas- 发表于 2024-7-20 09:59</a>
+多久能攒一井？</blockquote>
+半年左右
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

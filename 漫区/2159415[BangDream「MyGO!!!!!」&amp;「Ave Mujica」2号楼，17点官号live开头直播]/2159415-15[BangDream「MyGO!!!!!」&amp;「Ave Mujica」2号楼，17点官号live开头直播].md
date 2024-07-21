@@ -1557,3 +1557,21 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 当然不是传统大小姐角色，也更是和大和抚子不沾边
 
+
+*****
+
+####  御幸一也  
+##### 20871#       发表于 2024-7-22 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">講話都不是用敬語，就別蹭大和撫子了……
+
+
+*****
+
+####  PDQ4  
+##### 20872#       发表于 2024-7-22 01:12
+
+看了一半关掉了，人设完全搭不上，代不了一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+再抱着能不能代的心态去看有点过于冒犯，还是等之后有空了考虑从头再补<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

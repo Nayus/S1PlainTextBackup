@@ -494,3 +494,11 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 B站上推给我的第一个有关这游戏的视频标题是“伊津野你切腹吧”，内容是女神吃东西的动画，那么问题来了， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙信2哪有吃饭动画，龙信2吃烤肉是播片，指直接现实里拿一块肉烤然后录了一个视频播
 
+
+*****
+
+####  conanoysq  
+##### 121#       发表于 2024-7-21 17:56
+
+一周目20小时通关了，这游戏的美术资源在单机塔防领域里投入算是最高规格的一档，初见觉得很杂乱，但是中期开始适应了觉得还挺好看的，有种凌乱的美<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

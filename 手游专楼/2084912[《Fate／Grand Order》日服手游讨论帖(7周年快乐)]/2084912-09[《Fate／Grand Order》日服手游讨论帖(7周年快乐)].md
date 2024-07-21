@@ -364,3 +364,24 @@ Aniplex一单是95%，实际少了3.25%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我宁可他把商店换材料的数量限制去掉
 
+
+*****
+
+####  Jamaisvu  
+##### 13076#       发表于 2024-7-21 23:55
+
+ 本帖最后由 Jamaisvu 于 2024-7-21 23:57 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/21/235413hidti5cp40b5tzcp.png" referrerpolicy="no-referrer">
+
+<strong>1721577217310.png</strong> (142.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-21 23:54 上传
+
+田岛昭宇发的烟雾镜新图真是异常俊美啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+其实我现在有些怀疑卡面拉成这样也不完全是扫描仪的问题，感觉老爷子当初就是随手一画，结果发现角色太火了，就通过售后竭力为自己挽尊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

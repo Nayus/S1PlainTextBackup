@@ -242,3 +242,15 @@ Image_1721365929029.jpg
 
 円香和fuyu一桌
 
+
+*****
+
+####  wfhtony  
+##### 5712#       发表于 2024-7-21 20:42
+
+ 本帖最后由 wfhtony 于 2024-7-21 20:44 编辑 
+
+[学马仕新SOLO曲《コントラスト（Contrast）》短版（True End）试听](https://clr2.wfhtony.space/s/MLPSM)
+
+歌曲将于7/23 0点（AM/itunes是按服务器所在局域的0点）上架销售。
+

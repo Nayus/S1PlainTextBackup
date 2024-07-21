@@ -109,3 +109,19 @@ https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json
 拷贝的仓库
 https://stevenyomi.github.io/copymanga/index.min.json
 
+
+*****
+
+####  LennyWallUp  
+##### 259#       发表于 2024-7-21 18:29
+
+借楼问下，禁 漫天堂是不是没法正常用？
+
+*****
+
+####  IWS2000  
+##### 260#       发表于 2024-7-21 18:33
+
+显示废弃其实还能用
+<img src="https://p.sda1.dev/18/9cd8aff78ced0d613b9a06078d626ff6/image.jpg" referrerpolicy="no-referrer">
+

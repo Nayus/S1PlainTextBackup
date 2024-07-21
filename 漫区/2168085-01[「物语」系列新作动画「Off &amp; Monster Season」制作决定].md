@@ -675,3 +675,33 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 要是抚子能够有丝分裂，等世界变成抚子乐园和平一点就到来了吧。建议班长的国境线消灭计划从这方面开始努力
 
+
+*****
+
+####  唯一指定用户名  
+##### 486#       发表于 2024-7-21 23:58
+
+这个老苍的声音真的没办法跟之前联系起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tnzbt  
+##### 487#       发表于 2024-7-21 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">op太棒了
+
+*****
+
+####  零壹贰叁  
+##### 488#       发表于 2024-7-22 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653535&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-7-21 13:56</a>
+说起来老仓的发色变深了，终物语里是灰色偏浅，现在偏深色
+
+一直觉得老仓人设跟其他人不太一样，可能就是物 ...</blockquote>
+我的感觉是因为色彩设计换人吧
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从续终开始变成深灰色
+当初化物语时期荡漾的发色也挺暗的，自从他伪参与之后荡漾发色就变成亮紫色了，也是在续终他不参与之后荡漾发色又暗回去了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

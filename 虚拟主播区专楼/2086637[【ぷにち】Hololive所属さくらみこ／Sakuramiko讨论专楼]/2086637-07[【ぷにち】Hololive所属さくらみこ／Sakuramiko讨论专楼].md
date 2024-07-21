@@ -4578,3 +4578,20 @@ TMD不要最后DAIDAIDAI是新曲名字就好玩了，骗了所有人
 
 3d服做好了啊@Canvas_mochi
 
+
+*****
+
+####  holoan  
+##### 9285#         楼主| 发表于 2024-7-21 20:59
+
+这只是封面用衣装设计案，并没有说这套要做成3D演出服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然按以前的经验sololive都回有一套新的3D服，是不是这套不知道
+
+*****
+
+####  渡鸦骑士  
+##### 9286#       发表于 2024-7-21 21:14
+
+我只觉得如果是这套的话，和脸的连贯性感觉不是很好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

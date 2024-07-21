@@ -502,3 +502,11 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 一周目20小时通关了，这游戏的美术资源在单机塔防领域里投入算是最高规格的一档，初见觉得很杂乱，但是中期开始适应了觉得还挺好看的，有种凌乱的美<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仿身泪滴  
+##### 122#       发表于 2024-7-21 18:04
+
+我哭了我受不了世代每次跳舞越来越虚弱的模样，有点不忍心玩下去了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

@@ -1154,3 +1154,11 @@ wsd确实挺会挖冷门底边但唱功好的主唱的，像是当初从摔角�
 <img src="https://p.sda1.dev/18/f4735b42382a11da697afd5efa3da13c/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/f7182c30c961f9bdbac7ce439abf4e8b/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20832#       发表于 2024-7-21 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">鼓子……
+

@@ -247,3 +247,18 @@ COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远�
 
 最关键是以打团为前提格子只有10个，拿风方举例，不放弃暴击一般2琴1杖2星醒法U去了7格，剩下3格再塞个神威大进去是一定要放弃2猫or2风龙刀的。加入3.0的火暗方也都有类似的问题。说白了方阵武器数值跟老王差距还是过大了，10格要面面俱到是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 18002#       发表于 2024-7-21 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65649447&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2024-7-20 23:31</a>
+
+其实倒不是没武器用，双神威大+一把旧的血量武器弄弄加蛋基本就能过6W了，打不打得过天元是另一码事
+
+最关 ...</blockquote>
+老王有40257和约定当基本盘，现在新一期的冲破类新模版方阵应该是想都不要想。
+
+按照小福尿性方阵应该是准备备战明年3.0加第四把武器吧。
+

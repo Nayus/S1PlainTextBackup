@@ -483,3 +483,22 @@ zzzq下的不可燃垃圾，没有一丝一毫关注的必要，看到它的每�
 
 最后，这游戏除了上述问题和丑逼多的问题以外，最大的问题还是这玩意居然不是免费游戏，不知道哪来的勇气卖40刀门票的……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  byisme001  
+##### 49#       发表于 2024-7-21 22:02
+
+【《星鸣特攻》公测期间Steam上玩家峰值仅2000多人】PS第一方多人FPS游戏《星鸣特攻》近日开启了公开测试。根据SteamCharts所提供的数据显示，本轮测试中Steam上的玩家峰值仅有2363人。虽然游戏需要PSN账号的要求使得部分地区的Steam用户无法体验本作，但该数字仍在社区中引起了人们对其的担忧。本作在PSN商店中的评分目前已降至2.69（两星半），6044条评价中五星好评率为29%。《星鸣特攻》将于8月24日在PC和PS5上正式发售。
+2000多人估计就是峰值数据了吧
+
+
+*****
+
+####  Midnight.Coup  
+##### 50#       发表于 2024-7-21 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65657448&amp;ptid=2191081" target="_blank">byisme001 发表于 2024-7-21 22:02</a>
+【《星鸣特攻》公测期间Steam上玩家峰值仅2000多人】PS第一方多人FPS游戏《星鸣特攻》近日开启了公开测试。 ...</blockquote>
+好似，竞品基本都免费游玩，后续收费，何必来玩这还需要 PSN 账号的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

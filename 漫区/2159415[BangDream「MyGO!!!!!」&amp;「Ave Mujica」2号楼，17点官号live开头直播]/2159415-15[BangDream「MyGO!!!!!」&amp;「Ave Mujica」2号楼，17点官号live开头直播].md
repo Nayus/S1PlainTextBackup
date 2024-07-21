@@ -1327,3 +1327,11 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 沾上这东西只会被人当成祥子对灯后悔莫及，求而不得的烂梗。
 
+
+*****
+
+####  极速赛车手  
+##### 20851#       发表于 2024-7-21 20:07
+
+投这种迫害性质的票是想让刻板印象成型吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

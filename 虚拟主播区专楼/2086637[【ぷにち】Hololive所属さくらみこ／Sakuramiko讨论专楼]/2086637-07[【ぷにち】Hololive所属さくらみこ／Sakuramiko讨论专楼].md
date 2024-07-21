@@ -4528,3 +4528,26 @@ TMD不要最后DAIDAIDAI是新曲名字就好玩了，骗了所有人
 
 过于美化了都不知道是谁了
 
+
+*****
+
+####  rs5621  
+##### 9281#       发表于 2024-7-21 20:06
+
+<img src="https://img.saraba1st.com/forum/202407/21/200555okzk7o727zpiopkk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 20:05 上传
+
+这画师是谁，我推特找不到
+
+*****
+
+####  holoan  
+##### 9282#         楼主| 发表于 2024-7-21 20:19
+
+这人家是专门花钱找人画的封面，推上当然没有 <blockquote>サムネイルイラスト：カカオバター</blockquote>
+

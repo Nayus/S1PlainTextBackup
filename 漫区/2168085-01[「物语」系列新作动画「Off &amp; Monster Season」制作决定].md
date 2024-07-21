@@ -528,3 +528,20 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 物语动画做的太好了我要看一辈子物语<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 472#       发表于 2024-7-21 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我觉得老仓比之前的双马尾强多了，大姐姐我的大姐姐
+
+*****
+
+####  雨宿绘空事  
+##### 473#       发表于 2024-7-21 13:29
+
+好多抚子 太可爱啦<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

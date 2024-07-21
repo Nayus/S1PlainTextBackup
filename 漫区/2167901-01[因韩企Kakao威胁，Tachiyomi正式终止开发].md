@@ -65,3 +65,26 @@ preview版更得挺勤快的
 
 有没有仓库源，用75楼那个不能添加
 
+
+*****
+
+####  keroghy  
+##### 255#       发表于 2024-7-21 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597704&amp;ptid=2167901" target="_blank">pgain2004 发表于 2024-7-16 09:43</a>
+preview版更得挺勤快的
+https://github.com/mihonapp/mihon-preview/releases/tag/r6776</blockquote>
+和原版比哪个好用啊
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  keroghy  
+##### 256#       发表于 2024-7-21 13:32
+
+https://raw.githubusercontent.co ... repo/index.min.json
+这个仓库可以添加但是显示不了插件，是怎么回事
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

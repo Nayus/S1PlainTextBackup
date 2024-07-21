@@ -4439,3 +4439,92 @@ TMD不要最后DAIDAIDAI是新曲名字就好玩了，骗了所有人
 
 我比较想看第一视角坠落
 
+
+*****
+
+####  rs5621  
+##### 9274#       发表于 2024-7-21 19:36
+
+我最爱的歌来了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 9275#       发表于 2024-7-21 19:45
+
+快给我出新衣服
+
+<img src="https://img.saraba1st.com/forum/202407/21/194505fnnkmz99av9ks0kx.png" referrerpolicy="no-referrer">
+
+<strong>8@A2S)E{}YV9UB229$HQ[4U.png</strong> (107.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 19:45 上传
+
+*****
+
+####  rs5621  
+##### 9276#       发表于 2024-7-21 19:47
+
+ 本帖最后由 rs5621 于 2024-7-21 19:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/21/194628pv1ljjppzsk8xssv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (144.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/194909f5bbraoa8nzjza80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (827.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 19:49 上传
+
+
+*****
+
+####  holoan  
+##### 9277#         楼主| 发表于 2024-7-21 19:50
+
+<img src="https://img.saraba1st.com/forum/202407/21/194902ccher2o1e1nt8bbn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (156.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 19:49 上传
+
+提一嘴，会场跟peko去年sololive一样的，时间倒是选到了非常稀有的周六
+
+*****
+
+####  holoan  
+##### 9278#         楼主| 发表于 2024-7-21 19:51
+
+封入直笔就是冲销量的
+
+反正我没有这命
+
+*****
+
+####  holoan  
+##### 9279#         楼主| 发表于 2024-7-21 19:54
+
+这名字选的
+
+自己都念不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9280#         楼主| 发表于 2024-7-21 19:55
+
+吐槽一下一专和live的封面绘
+
+过于美化了都不知道是谁了
+

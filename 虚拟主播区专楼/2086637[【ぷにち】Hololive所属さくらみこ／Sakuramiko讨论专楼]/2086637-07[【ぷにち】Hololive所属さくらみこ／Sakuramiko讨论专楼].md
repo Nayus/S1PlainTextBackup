@@ -4363,3 +4363,18 @@ yagoo出演周日live
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞快点搞快点，正好休息
 
+
+*****
+
+####  rs5621  
+##### 9266#       发表于 2024-7-21 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞快点搞快点，正好休息
+
+*****
+
+####  holoan  
+##### 9267#         楼主| 发表于 2024-7-21 10:32
+
+最在意的是sololive以外的发表，感觉可能跟预想的不太一样，考虑到请了个超大物声优做旁白还有这两个月一直都忙着收录/工作，一般的sololive发表前不会这么忙以及以前的sololive发表也没有特地请声优来，还有今天的直播内容构成到底是什么样的还不清楚，按以前经验来说是先放个做好的企划视频看或者请嘉宾现场做企划然后才是一个简短的3Dlive最后发表，但是船长这次没有现场参加的迹象，请的嘉宾很可能是3Dlive部分提前收录好的而不是今天现场出演，而且标题和封面都强调3DLive很可能反而是以live为主
+

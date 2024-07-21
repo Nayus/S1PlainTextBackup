@@ -270,3 +270,11 @@ COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">40257有些属性已经开始淘汰了啊，其实除了土那个弱智触发条件之外其他的都在减数量了
 
+
+*****
+
+####  初雪绫  
+##### 18004#       发表于 2024-7-21 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">10格盘 除了土确实都不无脑带3了  13格盘子还是有几个放几个    
+

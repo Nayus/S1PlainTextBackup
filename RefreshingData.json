@@ -8829,10 +8829,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 38862,
+    "totalreply": 38863,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1721597768,
+    "lastedit": 1721598727,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8991,10 +8991,10 @@
     "update": false
   },
   "2160089": {
-    "totalreply": 919,
+    "totalreply": 921,
     "title": "[P.A.WORKS × DMM「菜なれ花なれ」原创TV动画 2024年7月]",
     "newtitle": "[P.A.WORKS × DMM「亦叶亦花 ／ 菜なれ花なれ」原创TV动画 2024年7月]",
-    "lastedit": 1721584810,
+    "lastedit": 1721598615,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14985,10 +14985,10 @@
     "update": false
   },
   "2191781": {
-    "totalreply": 203,
+    "totalreply": 204,
     "title": "[你现在的生活比起学生时代的期望是好还是差]",
     "newtitle": "[你现在的生活比起学生时代的期望是好还是差]",
-    "lastedit": 1721583729,
+    "lastedit": 1721598611,
     "category": "外野",
     "active": true,
     "update": false
@@ -15305,7 +15305,7 @@
     "newtitle": "[今天小区里有个二十多岁小伙自杀了。]",
     "lastedit": 1721339531,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2191865": {
@@ -16353,10 +16353,10 @@
     "update": false
   },
   "2192082": {
-    "totalreply": 176,
+    "totalreply": 177,
     "title": "[EVO2024讨论楼]",
     "newtitle": "[EVO2024讨论楼]",
-    "lastedit": 1721591893,
+    "lastedit": 1721598615,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16659,10 +16659,19 @@
     "update": false
   },
   "2192302": {
-    "totalreply": 115,
+    "totalreply": 117,
     "title": "[拜登退选了]",
     "newtitle": "[拜登退选了]",
-    "lastedit": 1721598254,
+    "lastedit": 1721598847,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2190231": {
+    "totalreply": 110,
+    "title": "[小红书大裁员]",
+    "newtitle": "[小红书大裁员]",
+    "lastedit": 1721598619,
     "category": "外野",
     "active": true,
     "update": false

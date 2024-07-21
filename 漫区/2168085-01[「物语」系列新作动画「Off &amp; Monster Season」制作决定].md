@@ -605,3 +605,13 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 一个翘课出来自习的学霸如是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  martinium  
+##### 479#       发表于 2024-7-21 14:39
+
+老仓剪了头发，做了发型，顺便染个发也不稀奇吧。话说我一直以为老仓的头发是压力过大导致少白头来着。当年和班长一起的时候，发色没比黑白头的班长深多少。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

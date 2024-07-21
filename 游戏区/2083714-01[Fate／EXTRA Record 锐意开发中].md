@@ -578,3 +578,28 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer"> 希望这次蘑菇能好好反思下，月姬R写的真实一坨。。。这么说过分了点，但着实失望。
 
+
+*****
+
+####  ナルバレック  
+##### 54#       发表于 2024-7-21 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658475&amp;ptid=2083714" target="_blank">魔法煎饼 发表于 2024-7-21 23:21</a>
+
+希望这次蘑菇能好好反思下，月姬R写的真实一坨。。。这么说过分了点，但着实失望。 ...</blockquote>
+FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲，也是他自HIGH最凶的系列，对不上电波不喜欢FE的也不在少数
+
+月姬系好歹是蘑菇带到管材里去的系列，至今不放权给其他作者深入描述任何相关角色，受此所累，协会的重量级和教会的重量级，女王和局长至今在FATE系列宛如人间蒸发，指望FE部分重写能比月姬R写的好我觉得算是天方夜谭
+
+*****
+
+####  魔法煎饼  
+##### 55#       发表于 2024-7-21 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658537&amp;ptid=2083714" target="_blank">ナルバレック 发表于 2024-7-21 23:26</a>
+
+FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲，也是他自HIGH最凶的系列，对不上电波不喜欢FE ...</blockquote>
+个人觉得月姬R的问题是写的时候可能用力过猛，过于谨慎了，感觉像是有包袱了
+
+讲真写东西的时候还是放飞自我容易写出好东西
+

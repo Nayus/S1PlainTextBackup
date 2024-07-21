@@ -4612,3 +4612,23 @@ TMD不要最后DAIDAIDAI是新曲名字就好玩了，骗了所有人
 
 miko，你不会真的自己一个人搞GTA企划吧不会的告诉我
 
+
+*****
+
+####  holoan  
+##### 9289#         楼主| 发表于 2024-7-21 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65544268&amp;ptid=2086637" target="_blank">holoan 发表于 2024-7-10 18:47</a>
+
+首先可以确定的企划是
+
+STGR式GTA箱企划，看来细节已经谈完了运营那边也没问题了，甚至连每天开服期间都定 ...</blockquote>
+现在回去看这份memo，开服时间跟这次ARK限定服的设定时间高度一致，看来是真的可能性很大了
+
+*****
+
+####  holoan  
+##### 9290#         楼主| 发表于 2024-7-21 23:29
+
+另外GTA企划的开服时间很大的可能性在下个月，ARK这个月底结束，fbk自己准备的hardcoreMC企划在9月，而10月是sololive，而8月又是学生的假期时间做大型企划最佳
+

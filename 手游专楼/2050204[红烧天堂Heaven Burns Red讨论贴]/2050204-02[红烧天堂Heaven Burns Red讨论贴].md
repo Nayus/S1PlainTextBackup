@@ -825,3 +825,13 @@ zovs743j7t1byv07，我也来求一个互填</blockquote>
 下了个玩玩，AB这个联动也太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集预告没把我笑死
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：绷不住了要笑出来了
 
+
+*****
+
+####  liu461  
+##### 1577#       发表于 2024-7-21 23:29
+
+麻子搞笑功力还是在的，虽然你油现在凉的不行，但意外的还挺对我这种老人的胃口。。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+希望叔叔能多撑一会吧
+

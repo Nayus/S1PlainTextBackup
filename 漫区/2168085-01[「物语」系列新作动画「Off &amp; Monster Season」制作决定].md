@@ -471,3 +471,13 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 这季op一个比一个强啊
 
+
+*****
+
+####  もも的洞洞鞋  
+##### 465#       发表于 2024-7-21 10:12
+
+老仓好久没见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这发型太色了
+

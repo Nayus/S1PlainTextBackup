@@ -194,3 +194,11 @@ WONDERFUL PRECURE有四个主角，是彩羽、真由、雪和悟，小麦就是
 
 女主不一直是华哥吗，新作预告pv第一个自我介绍的，哪个女二有这待遇
 
+
+*****
+
+####  Parahure  
+##### 1924#       发表于 2024-7-21 10:12
+
+真主角是彩羽和悟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

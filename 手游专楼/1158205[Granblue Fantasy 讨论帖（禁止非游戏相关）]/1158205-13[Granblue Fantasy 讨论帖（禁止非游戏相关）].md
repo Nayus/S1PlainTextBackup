@@ -278,3 +278,17 @@ COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">10格盘 除了土确实都不无脑带3了  13格盘子还是有几个放几个    
 
+
+*****
+
+####  Sylpheed  
+##### 18005#       发表于 2024-7-21 22:51
+
+有加护的属性13格也不好带了，看了下还在用的风天元jf辉剑是1，飞哥是2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+暗打jf的帽子盘也是硬塞了2把进去
+特色是20特殊上限，但稀释严重又不容易摸得到，其他属性又是什么都有一点但不多是肯定最先被放弃的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+现在回想起来，去年营收压力最大的阶段8个月光速出完6属40257，哥们硬着头皮连井带氪搞了3属8把，石头现在都还没缓过来，结果最先出盘的也是它，真实怪骗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+加护这批直接开摆等着落地人形加护了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

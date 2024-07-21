@@ -3895,3 +3895,21 @@ Screenshot_20240718_214220.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  古畑任三郎2015  
+##### 1839#       发表于 2024-7-21 22:49
+
+<img src="https://img.saraba1st.com/forum/202407/21/224842cvxweffzyekvewwx.png" referrerpolicy="no-referrer">
+
+<strong>img_0018_waifu2x_noise2_scale2x.png</strong> (1.59 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 22:48 上传
+
+waifu2x真是好文明啊，给20周年贺图拉成4k，可以做壁纸用了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

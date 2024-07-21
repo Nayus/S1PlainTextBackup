@@ -1381,3 +1381,11 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 这个熊猫……有点唐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20856#       发表于 2024-7-21 21:26
+
+这个熊猫是上海进博会的吉祥物，估计是在会展中心拍的
+

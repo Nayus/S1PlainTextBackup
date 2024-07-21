@@ -545,3 +545,15 @@ offseason， 结束季，千石抚子对过往人生四个不同阶段的巡礼�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  Sliurus  
+##### 474#       发表于 2024-7-21 13:41
+
+op跟894那种一样一堆复制人，不过意义不太一样，而且没那么夸张。为什么手套部分还有荡漾，抚子和她只有一个电话的交情吧
+
+老仓怎么这么夹、这么亚撒西了，我还是更喜欢抓狂的那个你<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+小扇还挺活跃的，我还以为送到门口就结束了
+

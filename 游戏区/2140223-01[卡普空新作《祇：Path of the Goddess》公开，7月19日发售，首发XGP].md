@@ -416,3 +416,16 @@ win10提示错误进不去。
 
 村民思路不对劲，对邪恶应该是消灭而不是封印
 
+
+*****
+
+####  膛线  
+##### 113#       发表于 2024-7-21 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65642034&amp;ptid=2140223" target="_blank">ralfli 发表于 2024-7-20 07:32</a>
+
+第二个村子破坏全部陶罐的任务是不是得后期才能做啊，打了好几遍也没完成 ...</blockquote>
+第一个场景有个角落里的陶罐，第二个场景房子后面的，我也找了好几次
+
+关卡中当前有没有完成按暂停就能看到提示
+

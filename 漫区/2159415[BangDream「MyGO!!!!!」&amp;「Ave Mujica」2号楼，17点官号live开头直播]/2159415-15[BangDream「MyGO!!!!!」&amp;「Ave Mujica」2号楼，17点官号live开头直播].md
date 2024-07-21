@@ -1495,3 +1495,65 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 懂了，因为素睦已经放在菜花里了，所以不会在mujica里重复
 
+
+*****
+
+####  NODY  
+##### 20866#       发表于 2024-7-22 00:54
+
+跑酷妹是有点睦的味道，不过大小姐不是很像素世就是了，鸡狗十个人好像就没一个和这种传统大和抚子型沾边的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20867#       发表于 2024-7-22 00:57
+
+菜花这群乡下妹子就比较纯良
+鸡狗十个东京人，复杂太多了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20868#       发表于 2024-7-22 01:00
+
+不过正经来说，这种可能性我觉得不高，因为内心os这种表现方式更适合基调活泼积极阳光的作品
+
+稍微严肃一点（或者说基调不那么欢快）的作品走这种路线会显得啰嗦和不合时宜
+
+
+*****
+
+####  PDQ4  
+##### 20869#       发表于 2024-7-22 01:00
+
+ 本帖最后由 PDQ4 于 2024-7-22 01:02 编辑 
+
+看漏油这么夸，去看了一下，感觉不会
+
+菜花这个三无是真三无，表情不带变和内里做出反差
+
+睦有着重刻画各种细致的表情变化，如果按照菜花这个模式去表现反而把细节全浪费了，和2nd小剧场有冲突倒是次要
+
+不过没看出哪里素睦了，第二集没看，是这个大小姐也利用三无了吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 20870#       发表于 2024-7-22 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果要讨论爽世的设定，实际上这个角色更多的是按照“伪大小姐”的方向去做的
+
+当然不是传统大小姐角色，也更是和大和抚子不沾边
+

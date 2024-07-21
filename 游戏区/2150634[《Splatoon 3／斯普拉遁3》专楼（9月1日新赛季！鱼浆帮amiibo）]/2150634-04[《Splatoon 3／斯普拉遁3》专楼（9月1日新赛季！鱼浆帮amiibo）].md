@@ -1085,3 +1085,14 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 4899#       发表于 2024-7-22 00:15
+
+【【电动马达滚筒】谈谈8.1.0版本平衡新更新后的重刷-哔哩哔哩】 https://b23.tv/qkkoK7l
+笑死重刷现在一格多距离曲射100%漏墨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -705,3 +705,29 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  集合酱  
+##### 489#       发表于 2024-7-22 00:15
+
+推上看到的
+1.
+op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=多啦a梦
+2.
+新op比起恋爱循环最高音高一个最低音低一个可以感觉到抚子的“成长”
+
+*****
+
+####  Sliurus  
+##### 490#       发表于 2024-7-22 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658909&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-7-22 00:03</a>
+
+我的感觉是因为色彩设计换人吧
+
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从 ...</blockquote>
+看了眼续终，和抚物语确实更接近一点
+
+荡漾这个之前还真没发现，紫色亮暗没那么明显
+

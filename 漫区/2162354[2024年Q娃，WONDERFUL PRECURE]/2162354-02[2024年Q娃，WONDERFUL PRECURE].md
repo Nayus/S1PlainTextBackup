@@ -261,3 +261,11 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 看剧场版能不能挽个尊吧（谁家第一顺位的主角的塑造要靠剧场版找补啊）
 
+
+*****
+
+####  HANDAIYV  
+##### 1932#       发表于 2024-7-21 16:00
+
+小麦剧场版别说挽尊了，没进一步影薄就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -542,3 +542,11 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 —— 来自 motorola XT2153-1, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仿身泪滴  
+##### 126#       发表于 2024-7-22 01:17
+
+这游戏后期有几首boss战音乐，搭配这个美术，有点像嗑了药一样的疯癫感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

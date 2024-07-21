@@ -1230,3 +1230,11 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 安心备战年底鸡萝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太二EricGuo  
+##### 20840#       发表于 2024-7-21 17:20
+
+今年挺好萌最汗流浃背的就是祥子粉，一不小心就会在主场到之前喜提4强一类禁赛。所以要么在4强之前把祥子投出去，如果不幸进4强那就没有退路只能争取把祥子投上挺王
+

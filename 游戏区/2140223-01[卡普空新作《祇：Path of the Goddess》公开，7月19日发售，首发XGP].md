@@ -476,3 +476,11 @@ win10提示错误进不去。
 
 B站上推给我的第一个有关这游戏的视频标题是“伊津野你切腹吧”，内容是女神吃东西的动画，那么问题来了，龙信2的吃饭动画很摆烂吗？
 
+
+*****
+
+####  seducer0719  
+##### 119#       发表于 2024-7-21 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">世代在帐篷里近看感觉连胸都没有……
+

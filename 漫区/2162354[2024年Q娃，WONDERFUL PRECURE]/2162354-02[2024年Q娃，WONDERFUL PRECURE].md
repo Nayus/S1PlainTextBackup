@@ -296,3 +296,28 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 水太可怕了，但是还好有茉优在我身边</blockquote>
 身为蓝Q竟然怕水，真是丢人啊猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1936#       发表于 2024-7-21 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65655158&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-7-21 18:06</a>
+身为蓝Q竟然怕水，真是丢人啊猫猫</blockquote>
+蓝q是莉莉安妹妹好伐<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">小雪是白貓白q
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  pokemon最爱  
+##### 1937#       发表于 2024-7-21 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65655225&amp;ptid=2162354" target="_blank">maoyou 发表于 2024-7-21 18:14</a>
+
+蓝q是莉莉安妹妹好伐小雪是白貓白q
+
+—— 来自 samsung SM-S9060, Android 13上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+虽然但是莉莉安是绿Q，小雪就是蓝Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1285,3 +1285,13 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 战吧不是说吧务有祥黑吗，记得车祥子的贴子能活好久呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 20847#       发表于 2024-7-21 19:20
+
+贴吧萌战？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话日萌世萌我都不记得初代之外还有谁是萌王了
+
+原来都2024了还有人关注这种投票啊，甚至还是贴吧内的
+

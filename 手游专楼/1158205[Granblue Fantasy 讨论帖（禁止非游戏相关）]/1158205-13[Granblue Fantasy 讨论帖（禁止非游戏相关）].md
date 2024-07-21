@@ -262,3 +262,11 @@ COSMOS：看车速，车速快满豆特动少撞血量特动多就能打得远�
 
 按照小福尿性方阵应该是准备备战明年3.0加第四把武器吧。
 
+
+*****
+
+####  Geyorkias  
+##### 18003#       发表于 2024-7-21 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">40257有些属性已经开始淘汰了啊，其实除了土那个弱智触发条件之外其他的都在减数量了
+

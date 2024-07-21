@@ -3546,3 +3546,15 @@ SNK开发定律是不是守恒的
 
 凯文的PV也出了，狼印最强角色堂堂回归，新作是否还能再续辉煌呢（想也不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  holomoon  
+##### 322#       发表于 2024-7-21 18:49
+
+看了几场对战，这电脑解说一直在大声重复counter hit，也太烦了
+
+完全盖过了背景音乐和发招语言，而且频率超高
+
+希望正式版能改善一下
+

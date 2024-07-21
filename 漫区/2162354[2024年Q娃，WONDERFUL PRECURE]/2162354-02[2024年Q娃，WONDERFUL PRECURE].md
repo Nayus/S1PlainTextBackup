@@ -285,3 +285,14 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 水太可怕了，但是还好有茉优在我身边<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1935#       发表于 2024-7-21 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65654915&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-7-21 17:30</a>
+
+水太可怕了，但是还好有茉优在我身边</blockquote>
+身为蓝Q竟然怕水，真是丢人啊猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

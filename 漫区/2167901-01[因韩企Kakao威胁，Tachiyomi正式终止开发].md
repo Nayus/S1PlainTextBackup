@@ -88,3 +88,24 @@ https://raw.githubusercontent.co ... repo/index.min.json
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  IWS2000  
+##### 257#       发表于 2024-7-21 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653389&amp;ptid=2167901" target="_blank">keroghy 发表于 2024-7-21 13:32</a>
+https://raw.githubusercontent.co ... repo/index.min.json
+这个仓库可以添加但是显示不了插件，是怎么回 ...</blockquote>
+不是完整的链接
+
+https://raw.githubusercontent.com/keiyoushi/extensions/repo/index.min.json
+
+*****
+
+####  IWS2000  
+##### 258#       发表于 2024-7-21 18:09
+
+拷贝的仓库
+https://stevenyomi.github.io/copymanga/index.min.json
+

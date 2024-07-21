@@ -42,3 +42,11 @@ G2现在个个都有状态，要还打不过navi那只能是究极小丑了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  朔方原的星  
+##### 4364#         楼主| 发表于 2024-7-22 07:39
+
+李神牛啊，真又给擒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

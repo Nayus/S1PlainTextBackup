@@ -277,3 +277,11 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 姑且似乎小麦在剧场版有偏心形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不过感觉八成是跟水果组曲一样剧场版粉主先上强化形态然后TV大结局大家再一起变强化形态）
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1934#       发表于 2024-7-21 17:30
+
+水太可怕了，但是还好有茉优在我身边<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

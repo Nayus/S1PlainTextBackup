@@ -484,3 +484,13 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">世代在帐篷里近看感觉连胸都没有……
 
+
+*****
+
+####  Leona_Akari  
+##### 120#       发表于 2024-7-21 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65654771&amp;ptid=2140223" target="_blank">Firvox 发表于 2024-7-21 17:10</a>
+B站上推给我的第一个有关这游戏的视频标题是“伊津野你切腹吧”，内容是女神吃东西的动画，那么问题来了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙信2哪有吃饭动画，龙信2吃烤肉是播片，指直接现实里拿一块肉烤然后录了一个视频播
+

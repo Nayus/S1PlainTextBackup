@@ -234,3 +234,15 @@ WONDERFUL PRECURE有四个主角，是彩羽、真由、雪和悟，小麦就是
 
 wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  上坂莲华  
+##### 1929#       发表于 2024-7-21 14:20
+
+前面说猫怕水，然后海龟带mayu潜水了，我还以为猫要克服恐惧下去打海战，结果嗷一嗓子扯到海龟蛋了，就非得跟暖男智慧袋前后呼应是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+中间这段解开猫心结做的还可以，除了离猫进队太远了以外问题不大，要不是猫蹦了句我自己来你们别插手我都快忘掉这个设定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+暖男不会游泳还硬要跟来，大妈你就不能安排个彩羽教暖男游泳的环节么，卖CP都不会卖，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

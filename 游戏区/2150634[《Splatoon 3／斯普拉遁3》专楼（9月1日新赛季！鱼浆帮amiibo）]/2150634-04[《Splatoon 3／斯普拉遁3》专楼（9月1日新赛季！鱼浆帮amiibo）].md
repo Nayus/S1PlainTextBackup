@@ -1018,3 +1018,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 大王乌贼真的sm了，两个大王乌贼完全打不动塔
 
+
+*****
+
+####  苍蓝之枪  
+##### 4894#       发表于 2024-7-21 14:19
+
+团工打不来，永远不知道别人的想法是啥
+

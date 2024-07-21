@@ -557,3 +557,26 @@ op跟894那种一样一堆复制人，不过意义不太一样，而且没那么
 
 小扇还挺活跃的，我还以为送到门口就结束了
 
+
+*****
+
+####  smdzh2  
+##### 475#       发表于 2024-7-21 13:47
+
+牢仓育短发更好看，或者说更耐看了
+gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e00aca32ed391020bb3108390ba1ce42/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b6b11d100988566f2292af81bf23e166/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无证madam  
+##### 476#       发表于 2024-7-21 13:50
+
+ 本帖最后由 无证madam 于 2024-7-21 13:53 编辑 
+
+今村亮：藤田的任务罢了
+
+中间蹦出钱形警部的脸 爆笑
+

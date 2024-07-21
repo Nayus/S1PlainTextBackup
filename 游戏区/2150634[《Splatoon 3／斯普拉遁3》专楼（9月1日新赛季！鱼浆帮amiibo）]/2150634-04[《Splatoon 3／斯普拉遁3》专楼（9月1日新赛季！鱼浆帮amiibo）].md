@@ -1071,3 +1071,17 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  晴岚  
+##### 4898#       发表于 2024-7-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65657233&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-7-21 21:37</a>
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办
+
+论坛助手,iPhone ...</blockquote>
+像2代一样给转生。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

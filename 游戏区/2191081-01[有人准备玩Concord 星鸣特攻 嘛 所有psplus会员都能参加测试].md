@@ -502,3 +502,11 @@ zzzq下的不可燃垃圾，没有一丝一毫关注的必要，看到它的每�
 【《星鸣特攻》公测期间Steam上玩家峰值仅2000多人】PS第一方多人FPS游戏《星鸣特攻》近日开启了公开测试。 ...</blockquote>
 好似，竞品基本都免费游玩，后续收费，何必来玩这还需要 PSN 账号的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雲夢淵澤  
+##### 51#       发表于 2024-7-21 22:27
+
+那2000个人还真是饥不择食。
+

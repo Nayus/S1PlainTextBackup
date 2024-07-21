@@ -1270,3 +1270,18 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 感觉不如…300萌
 
+
+*****
+
+####  星天观测  
+##### 20845#       发表于 2024-7-21 19:06
+
+上次我给萌战投票的时候还是世萌，挺好萌是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 20846#       发表于 2024-7-21 19:07
+
+战吧不是说吧务有祥黑吗，记得车祥子的贴子能活好久呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

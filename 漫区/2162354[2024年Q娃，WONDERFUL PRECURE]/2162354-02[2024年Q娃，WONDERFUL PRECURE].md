@@ -335,3 +335,14 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 下集没有小麦吐舌头我就差评<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1939#       发表于 2024-7-21 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65655158&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-7-21 18:06</a>
+
+身为蓝Q竟然怕水，真是丢人啊猫猫</blockquote>
+虽然我怕水，但是我有茉优啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

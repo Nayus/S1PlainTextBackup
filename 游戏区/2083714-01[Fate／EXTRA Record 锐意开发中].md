@@ -443,3 +443,130 @@ image.png
 
 8月4日新情报
 
+
+*****
+
+####  zechins  
+##### 50#       发表于 2024-7-21 23:06
+
+<img src="https://img.saraba1st.com/forum/202407/21/230438wkvexkhkhvotooxb.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-14.png</strong> (2.15 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230439nlwj1w7lrr7jpnxn.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-18.png</strong> (1.52 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230441pxsn8n222a2hhxm8.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-22.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230442o9rzjzv9qmvr9pj6.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-25.png</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230444sv7gvf2rbd155ikp.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-27.png</strong> (1.96 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230446xyucuayzcj0kru0k.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-29.png</strong> (2.33 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230447trh94rp4471jd2pd.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-31.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230449envyvyy4ccftgxqc.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-35.png</strong> (1.93 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230450ipvqu3i8ip0pn8qx.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-33.png</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230451i1ttj6l1nt1htqqu.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-37.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230453w9o221k129oi531b.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-37 (1).png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230455owywflkchzwlwc00.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-41.png</strong> (2.87 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+<img src="https://img.saraba1st.com/forum/202407/21/230456o2806kxombukkr6o.png" referrerpolicy="no-referrer">
+
+<strong>【公式】FateEXTRA Record Sneak Peek 00-00-48.png</strong> (361.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 23:04 上传
+
+更了张WADA的新绘
+
+*****
+
+####  格林卡罗尔  
+##### 51#       发表于 2024-7-21 23:09
+
+新纳一斋态度有些摇摆啊，感觉8.4也不会定发售日
+
+
+*****
+
+####  smdzh2  
+##### 52#       发表于 2024-7-21 23:12
+
+真能摸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1042,3 +1042,32 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 这不得封个斯普拉遁仙人
 
+
+*****
+
+####  Junakr  
+##### 4896#       发表于 2024-7-21 21:34
+
+<img src="https://img.saraba1st.com/forum/202407/21/213334p93ff739sw9sfc99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GS8U2KfbMAA1SqR.jpeg</strong> (144.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 21:33 上传
+
+[https://x.com/Dr_Mice_/status/1814692102024147288](https://x.com/Dr_Mice_/status/1814692102024147288)
+
+蛮颓也要蓝屏。
+
+*****
+
+####  KBAC  
+##### 4897#       发表于 2024-7-21 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65656551&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-7-21 20:39</a>
+这不得封个斯普拉遁仙人</blockquote>
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

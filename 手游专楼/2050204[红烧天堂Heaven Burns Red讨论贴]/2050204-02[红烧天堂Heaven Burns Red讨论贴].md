@@ -816,3 +816,12 @@ zovs743j7t1byv07，我也来求一个互填</blockquote>
 多久能攒一井？</blockquote>
 国服一井降到了日服80%，而且送得多一点，四个半月左右？愿意氪月卡应该能干到4个月内，甚至有人说3个月就行，但我没氪也没算过，你自己看看吧
 
+
+*****
+
+####  2017.05.04  
+##### 1576#       发表于 2024-7-21 21:26
+
+下了个玩玩，AB这个联动也太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集预告没把我笑死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：绷不住了要笑出来了
+

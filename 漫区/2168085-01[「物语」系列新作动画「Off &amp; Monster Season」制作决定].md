@@ -639,3 +639,23 @@ gotta lock in表情生草<img src="https://static.saraba1st.com/image/smiley/fac
 
 长裙短发的老仓育很不错
 
+
+*****
+
+####  商博良  
+##### 483#       发表于 2024-7-21 21:48
+
+ 本帖最后由 商博良 于 2024-7-21 21:52 编辑 
+
+听到猴子的声音，一下子感动的不行了，这种亲切感 哎
+
+<img src="https://img.saraba1st.com/forum/202407/21/215240hhmljg3cobuo73l7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (454.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 21:52 上传
+
+啊这 啊这
+

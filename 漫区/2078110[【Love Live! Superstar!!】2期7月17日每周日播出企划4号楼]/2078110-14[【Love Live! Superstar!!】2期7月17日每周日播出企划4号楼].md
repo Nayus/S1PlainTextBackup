@@ -1189,3 +1189,132 @@ K组是真的好啊，手搓和声就是舒服，虽然这次的裙子我个人�
 
 广州就坐等摩天轮票牛打折，不行就像之前初音未来那样，让票烂在牛手里
 
+
+*****
+
+####  csolfans  
+##### 20626#       发表于 2024-7-21 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64946757&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-5-21 01:10</a>
+
+去年，Liella其中一个广为流传的流言就是3rd到4th这段时间换了一波管理层，所以能看到如此精彩4th live嘛， ...</blockquote>
+之前在做完星团数字编号live的STAFF表之后提到想做星动画STAFF表，其中最主要原因是在谈到GBC时，都会不多不少提到三大STAFF：平山（Producer）&amp;酒井（导演）&amp;花田（系列构成/剧本），但是在LLSP这边一直只提到京极（导演）&amp;花田（系列构成/剧本）所以想搞清楚，在Producer职位到底是谁？
+
+但是碍于工作原因一直没做。不过最近发现<strong>B站up主Pizzazium</strong>一直有汇总新番动画制作委员会，所以这次斗胆借用了ta的截图（如有冒犯，请私聊删除）。
+
+LLSP第一季制作委员会汇总：
+
+<img src="https://img.saraba1st.com/forum/202407/21/223759e9cy8kiici7iosrx.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (694.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 22:37 上传
+
+企画
+
+佐々木　新：サンライズ（SUNRISE）
+
+櫻井優香：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+徳田直巳：KADOKAWA
+
+エグゼクティブプロデューサー【仅在配信版表记】
+
+田中紀明：サンライズ（SUNRISE）
+
+木下光正：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+湯浅隆明：KADOKAWA
+
+企画プロデューサー
+
+若林悠紀：サンライズ（SUNRISE）
+
+槙本裕紀：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+諏訪浩樹：KADOKAWA
+
+プロデューサー
+
+大塚　大：サンライズ（SUNRISE）
+
+脇黒丸翔太：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+制作・著作：2021 プロジェクトラブライブ!スーパースター!!【放送版ED表记】
+
+製作：2021 プロジェクトラブライブ!スーパースター!!【配信版OP/ED表记】
+
+サンライズ（SUNRISE）
+
+バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+KADOKAWA
+
+【放送版ED表记】協力プロデューサー
+
+樋口祐葉：サンライズ（SUNRISE）
+
+森山知里：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+伊藤達哉：LoveLive！Days 編集部
+
+【配信版ED表记】協力
+
+谷口　慎：バンダイナムコアーツ（BANDAI NAMCO Arts）
+
+渡部竜平：KADOKAWA
+
+木山聡大郎：バンダイナムコライツマーケティング（BANDAI NAMCO Lights Marketing）
+
+LoveLive！Days 編集部
+
+伊藤達哉　　　赤松陽介　　　中田彩子
+
+青山菜穂　　　市川理恵子　　三瓶ちひろ 
+
+LLSP第二季制作委员会汇总：
+
+<img src="https://img.saraba1st.com/forum/202407/21/223842cfzdsm3f233uzv6q.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (763.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 22:38 上传
+
+企画
+
+佐々木　新：サンライズ（SUNRISE）→バンダイナムコフィルムワークス（BANDAI NAMCO Filmworks）
+
+櫻井優香：バンダイナムコアーツ（BANDAI NAMCO Arts）→バンダイナムコミュージックライブ（BANDAI NAMCO Music Live）
+
+徳田直巳→吉良浩一：KADOKAWA
+
+（新增）広瀬和彦：ブシロード（BUSHIROAD）
+
+エグゼクティブプロデューサー【网络配信版only】
+
+田中紀明：サンライズ（SUNRISE）→バンダイナムコフィルムワークス（BANDAI NAMCO Filmworks）
+
+木下光正：バンダイナムコアーツ（BANDAI NAMCO Arts）→バンダイナムコミュージックライブ（BANDAI NAMCO Music Live）
+
+湯浅隆明：KADOKAWA
+
+企画プロデューサー
+
+若林悠紀：サンライズ（SUNRISE）→バンダイナムコフィルムワークス（BANDAI NAMCO Filmworks）
+
+槙本裕紀：バンダイナムコアーツ（BANDAI NAMCO Arts）→バンダイナムコミュージックライブ（BANDAI NAMCO Music Live）
+
+諏訪浩樹：KADOKAWA
+
+（新增）宮崎智保：ブシロード（BUSHIROAD）
+
+プロデューサー
+
+大塚　大：サンライズ（SUNRISE）→バンダイナムコフィルムワークス（BANDAI NAMCO Filmworks）
+
+脇黒丸翔太：バンダイナムコアーツ（BANDAI NAMCO Arts）→バンダイナムコミュージックライブ（BANDAI NAMCO Music Live） 
+

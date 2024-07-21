@@ -3885,3 +3885,13 @@ Screenshot_20240718_214220.jpg
 白色这个词作为本作轨迹的主题色会是因为它是黑色的反面吗？
 黑色是恶魔，是时间，是宇宙。
 
+
+*****
+
+####  ravend233  
+##### 1838#       发表于 2024-7-21 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是字面意思，白色，盐，世界被盐化（×
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

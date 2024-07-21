@@ -660,3 +660,14 @@ FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲�
 
 另外公主还在的话估计橙子青子和式也还在
 
+
+*****
+
+####  岸浪白野  
+##### 63#       发表于 2024-7-22 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658943&amp;ptid=2083714" target="_blank">onemoment 发表于 2024-7-22 00:06</a>
+
+不会还是猜拳吧，那玩意太折磨了</blockquote>
+放心，以前放出来的演示就已经是剪刀石头布的增强游戏性要素版了，猜拳还是要猜拳的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

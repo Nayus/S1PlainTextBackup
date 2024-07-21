@@ -437,3 +437,11 @@ win10提示错误进不去。
 
 游戏真不错，已经好久没有游戏让我打沉迷了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  樽——見  
+##### 115#       发表于 2024-7-21 15:55
+
+游戏内按暂停可以看到任务要求啊 15个陶罐，而且还贴心的给你计数了已经破坏多少个
+

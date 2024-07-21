@@ -4551,3 +4551,30 @@ TMD不要最后DAIDAIDAI是新曲名字就好玩了，骗了所有人
 
 这人家是专门花钱找人画的封面，推上当然没有 <blockquote>サムネイルイラスト：カカオバター</blockquote>
 
+
+*****
+
+####  holoan  
+##### 9283#         楼主| 发表于 2024-7-21 20:21
+
+另外这重大发表还真是就完全预想之内的3样，新曲 一专+sololive的标配发表，没有任何预想之外的发表，嘛……
+
+倒是为什么特地选个大物旁白很在意，想听她怎么解释
+
+*****
+
+####  rs5621  
+##### 9284#       发表于 2024-7-21 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/21/204853nsfcvygf7v3coqc7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (302.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-21 20:48 上传
+
+3d服做好了啊@Canvas_mochi
+

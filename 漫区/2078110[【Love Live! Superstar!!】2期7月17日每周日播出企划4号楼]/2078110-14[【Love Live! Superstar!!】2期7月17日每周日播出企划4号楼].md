@@ -1326,3 +1326,19 @@ LLSP第二季制作委员会汇总：
 
 呃 今天居然是这样的吗？难道要放动画信息了？
 
+
+*****
+
+####  starring  
+##### 20628#       发表于 2024-7-22 19:08
+
+把鱼整笑趴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starring  
+##### 20629#       发表于 2024-7-22 19:16
+
+鱼被打开奇怪的开关发出了奇怪的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

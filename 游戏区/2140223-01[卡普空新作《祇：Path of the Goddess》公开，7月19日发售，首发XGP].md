@@ -819,3 +819,19 @@ PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题�
 弓系有个技能是蓄力射箭之后瞬移到箭命中的位置，要学一下</blockquote>
 原来是这样操作<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幻想菩薩  
+##### 146#       发表于 2024-7-22 20:33
+
+<img src="https://img.saraba1st.com/forum/202407/22/203310mv3k676pkq7m6kp1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 20:33 上传
+
+这在哪里打 二周目吗？
+

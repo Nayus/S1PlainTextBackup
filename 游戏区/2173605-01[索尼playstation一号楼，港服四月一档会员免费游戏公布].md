@@ -3501,3 +3501,32 @@ NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal c
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  npk7k  
+##### 366#       发表于 2024-7-22 16:31
+
+没想到ps5pro要比switch2先出
+
+
+*****
+
+####  alva8246  
+##### 367#       发表于 2024-7-22 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65650463&amp;ptid=2173605" target="_blank">csolfans 发表于 2024-7-21 01:53</a>
+最低动态采样比例比由PS5的0.6 升高至 0.8 
+最后一项水体的图形质量也由high升高至ultra</blockquote>
+看着提升可能还不如ps4到4pro大 感觉没什么意思
+
+*****
+
+####  ナルバレック  
+##### 368#       发表于 2024-7-22 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665230&amp;ptid=2173605" target="_blank">npk7k 发表于 2024-7-22 16:31</a>
+
+没想到ps5pro要比switch2先出</blockquote>
+总得比怪物猎人荒野和侠盗猎车手6先出嘛，毕竟百分之一千要出捆绑包的
+

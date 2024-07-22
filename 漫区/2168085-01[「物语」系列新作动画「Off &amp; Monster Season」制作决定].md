@@ -767,3 +767,11 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  杂灰  
+##### 495#       发表于 2024-7-22 12:33
+
+那就激进点，改成金色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

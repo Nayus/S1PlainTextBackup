@@ -1137,3 +1137,16 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 我估计刷到心态爆炸了。
 
+
+*****
+
+####  KBAC  
+##### 4904#       发表于 2024-7-22 12:29
+
+ 本帖最后由 KBAC 于 2024-7-22 12:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661963&amp;ptid=2150634" target="_blank">绿冰 发表于 2024-7-22 11:03</a>
+新赛季好像是会送一张劵，不过本来武器劵就不跟等级挂钩啊，看的是武器等级 ...</blockquote>
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时候给一张。如果不像二代那样满级可以从1级重来那武器券数量就是有限的，抽奖抽完了就没了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

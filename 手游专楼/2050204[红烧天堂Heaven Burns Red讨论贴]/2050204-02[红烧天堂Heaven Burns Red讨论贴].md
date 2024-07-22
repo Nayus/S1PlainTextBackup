@@ -867,3 +867,12 @@ ko004ex4ij6dj347
 来国际服或日服啊，进度一样都是fjs直营的，现在2.5周年送的太多了，很容易就能搞出暗队或雷队两位爷✌️ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">之前从日服退的，主要就是氪金太费劲了，玩还是想好好玩的
 
+
+*****
+
+####  Raven314  
+##### 1581#       发表于 2024-7-22 10:05
+
+e341kwz8cvkmo11o
+已过二章day10求互助<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

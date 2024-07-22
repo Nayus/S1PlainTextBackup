@@ -808,3 +808,14 @@ PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题�
 想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的 ...</blockquote>
 应该是要中后期产灵强化里主角射箭里的一项技能才能解锁，射中靶子后可以把你拉到目标身边
 
+
+*****
+
+####  manyin1  
+##### 145#       发表于 2024-7-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665809&amp;ptid=2140223" target="_blank">KyonSuzumiya 发表于 2024-7-22 17:17</a>
+
+弓系有个技能是蓄力射箭之后瞬移到箭命中的位置，要学一下</blockquote>
+原来是这样操作<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+

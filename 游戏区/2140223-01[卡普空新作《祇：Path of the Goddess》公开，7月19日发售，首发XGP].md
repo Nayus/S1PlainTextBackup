@@ -609,3 +609,35 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 论坛助手,iPhone</blockquote>
 六个灯全点亮，他会倒地相当长时间
 
+
+*****
+
+####  ralfli  
+##### 132#       发表于 2024-7-22 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65660304&amp;ptid=2140223" target="_blank">crosz1985 发表于 2024-7-22 08:34</a>
+
+幽暗洞那个蜈蚣boss怎么打啊
+
+论坛助手,iPhone</blockquote>
+好像是六盏灯五个农民
+
+我是用五个弓箭手，开打前先把五个人分别放在五盏灯的位置
+
+开打后绕圈用弓箭手去点身边的灯，最后附近没人的灯用最近的弓箭手点一下就行
+
+灯全亮之后集火，用农民加速技能，带减少自己攻击力加农民攻击力的饰品，破盾打完弱点之后就追着蜈蚣头打
+
+这里好像需要一点运气，有时候灯的时间很短，BOSS很快就上房顶了，不知道什么机制，但尝试几次内肯定能一轮打死
+
+
+*****
+
+####  ralfli  
+##### 133#       发表于 2024-7-22 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662383&amp;ptid=2140223" target="_blank">cubesun 发表于 2024-7-22 11:34</a>
+
+我非常非常喜欢源氏1，那种金灿灿的配色，美工给人很深的印象，音乐也是一流的。而且一闪的手感和难度介 ...</blockquote>
+不仅配色和音乐氛围很像源氏，女神之路也是打手和巫女的组合，如果PC版有犬夜叉的mod我会再买一份<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

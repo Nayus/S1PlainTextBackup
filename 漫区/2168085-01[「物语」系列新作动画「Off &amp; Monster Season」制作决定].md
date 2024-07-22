@@ -775,3 +775,14 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 
 那就激进点，改成金色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 496#       发表于 2024-7-22 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661604&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-22 10:34</a>
+
+想看上大学时荡漾听闻阿良良木夫妇因忙于工作没法给俩妹妹做饭，从而心血来潮买了一大堆食材准备大展拳脚牢 ...</blockquote>
+多来点，多来点！想看荡漾嫉妒的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

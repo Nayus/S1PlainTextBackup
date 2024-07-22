@@ -4690,3 +4690,28 @@ Medansy→ぺこらの「昇天直前Love it LIVE」作った
 
 今天阿希又是帮忙转推又是吹新曲，怎么回事了
 
+
+*****
+
+####  holoan  
+##### 9293#         楼主| 发表于 2024-7-22 10:17
+
+<img src="https://img.saraba1st.com/forum/202407/22/101350vzjdvpn2njv2s298.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 10:13 上传
+
+大半夜3个女的外出吃拉面
+
+*****
+
+####  holoan  
+##### 9294#         楼主| 发表于 2024-7-22 13:07
+
+悲报
+
+桃铃家，长女没了，现在桃铃也没了
+

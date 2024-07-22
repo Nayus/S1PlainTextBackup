@@ -4007,3 +4007,63 @@ CM发了两个，也该发一个PV了</blockquote>
 
 这期应该帝国人吧，下期结社？ 感觉杂志越来越没活了
 
+
+*****
+
+####  ravend233  
+##### 1848#       发表于 2024-7-22 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662197&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-22 11:19</a>
+
+CM发了两个，也该发一个PV了</blockquote>
+最终PV应该是八月，这个月看还会不会再来个CM
+
+然后九月OP，就等发售了
+
+*****
+
+####  Aeons  
+##### 1849#       发表于 2024-7-22 12:41
+
+之前长宣传得8月了吧
+
+*****
+
+####  宛若青空  
+##### 1850#       发表于 2024-7-22 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662576&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-22 11:51</a>
+最终PV应该是八月，这个月看还会不会再来个CM
+
+然后九月OP，就等发售了</blockquote>
+按惯例最终PV大多是在8月，之前还有过发一个短版PV和一个长版PV的情况，这个月有个新片看还是有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 1851#       发表于 2024-7-22 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662236&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-22 11:21</a>
+大哥，什么时代了，还在用waifu2x……
+
+现在都用topaz，特别是最新的gigapixel，带基于sd的恢复模型，效 ...</blockquote>
+刚特意试了下gigapixel的demo，拉出来的图还不如waifu2x平滑顺眼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是要咋设置
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aeons  
+##### 1852#       发表于 2024-7-23 01:18
+
+这期应该帝国人吧，下期结社？ 感觉杂志越来越没活了
+
+*****
+
+####  ravend233  
+##### 1853#       发表于 2024-7-23 06:39
+
+杂志就常规的人物介绍和一些废话，加上很多角色都知道会登场了，能有什么活（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -3530,3 +3530,14 @@ NoMansSkySpoilers Graphics Preset Options for "Trinity", the apparent internal c
 没想到ps5pro要比switch2先出</blockquote>
 总得比怪物猎人荒野和侠盗猎车手6先出嘛，毕竟百分之一千要出捆绑包的
 
+
+*****
+
+####  npk7k  
+##### 369#       发表于 2024-7-22 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665312&amp;ptid=2173605" target="_blank">ナルバレック 发表于 2024-7-22 16:36</a>
+
+总得比怪物猎人荒野和侠盗猎车手6先出嘛，毕竟百分之一千要出捆绑包的</blockquote>
+switch2就没个千分之一和荒野出捆绑包嘛
+

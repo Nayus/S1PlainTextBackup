@@ -1390,3 +1390,18 @@ FMT上会唱20首歌，这还能叫FMT吗
 
 艹，还真玩了炒饭梗了
 
+
+*****
+
+####  starring  
+##### 20636#       发表于 2024-7-22 20:05
+
+这三人凑一起的化学反应可以，很久没有看得这么开心的生放送
+
+*****
+
+####  cat1230  
+##### 20637#       发表于 2024-7-22 20:06
+
+这仨直播效果还挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

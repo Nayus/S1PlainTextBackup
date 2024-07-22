@@ -1439,3 +1439,14 @@ FMT上会唱20首歌，这还能叫FMT吗
 
 鱼的签售居然落了，只能下个月过去靠信用卡冲了😂
 
+
+*****
+
+####  csolfans  
+##### 20642#       发表于 2024-7-22 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65668231&amp;ptid=2078110" target="_blank">lj205 发表于 2024-7-22 21:37</a>
+
+鱼的签售居然落了，只能下个月过去靠信用卡冲了😂</blockquote>
+limista1+1?买了这么久从未中过<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+

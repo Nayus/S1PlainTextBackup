@@ -3985,3 +3985,17 @@ CM发了两个，也该发一个PV了</blockquote>
 然后九月OP，就等发售了</blockquote>
 按惯例最终PV大多是在8月，之前还有过发一个短版PV和一个长版PV的情况，这个月有个新片看还是有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 1846#       发表于 2024-7-22 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662236&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-22 11:21</a>
+大哥，什么时代了，还在用waifu2x……
+
+现在都用topaz，特别是最新的gigapixel，带基于sd的恢复模型，效 ...</blockquote>
+刚特意试了下gigapixel的demo，拉出来的图还不如waifu2x平滑顺眼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是要咋设置
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

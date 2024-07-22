@@ -1701,3 +1701,11 @@ ainmax主打一个混搭，鸡团的世界观药丸
 
 animax去年是狗和ras上的，就是狗和洋葱合唱Time Lapse被拷打，ras和女主cv合唱野良神op那次，mujica去估计也会和哪个组合联动，运气好没准能和翻唱的原唱对上
 
+
+*****
+
+####  星天观测  
+##### 20885#       发表于 2024-7-22 19:00
+
+就目前公布的情况看希望是鸡x南条，我的双推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

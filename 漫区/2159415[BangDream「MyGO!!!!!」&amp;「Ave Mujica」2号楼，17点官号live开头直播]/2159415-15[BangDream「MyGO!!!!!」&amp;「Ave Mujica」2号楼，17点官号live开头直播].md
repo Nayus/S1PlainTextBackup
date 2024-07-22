@@ -1603,3 +1603,19 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 右上角那位是头一回美频live出场，当年还有个故事，狗团蒙面歌王时期不少人猜灯是她，后来都翻过少女rei，可以找来对比听听
 
+
+*****
+
+####  星天观测  
+##### 20876#       发表于 2024-7-22 17:16
+
+鸡是不是多了个新活动，之前宣过么
+
+<img src="https://img.saraba1st.com/forum/202407/22/171607ckn36ryn3zwye8re.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ7i87-fipsZ1tT3cSgf-qx.png</strong> (106.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 17:16 上传
+

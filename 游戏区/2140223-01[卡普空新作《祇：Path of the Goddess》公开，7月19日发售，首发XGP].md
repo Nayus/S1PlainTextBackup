@@ -779,3 +779,14 @@ boss关：全远程，后期可以阴阳师
 
 想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的
 
+
+*****
+
+####  KyonSuzumiya  
+##### 142#       发表于 2024-7-22 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665646&amp;ptid=2140223" target="_blank">manyin1 发表于 2024-7-22 17:03</a>
+
+想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的 ...</blockquote>
+弓系有个技能是蓄力射箭之后瞬移到箭命中的位置，要学一下
+

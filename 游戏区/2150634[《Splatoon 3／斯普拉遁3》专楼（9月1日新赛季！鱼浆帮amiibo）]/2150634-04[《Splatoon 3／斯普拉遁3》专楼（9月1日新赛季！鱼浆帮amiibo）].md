@@ -1150,3 +1150,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 4905#         楼主| 发表于 2024-7-22 14:03
+
+<blockquote>KBAC 发表于 2024-7-22 12:29
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时 ...</blockquote>
+等级升级给的吗，我还真没注意……
+

@@ -583,3 +583,29 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 好玩啊。果然还是得是卡婊。就是每次找东西去污染有点折腾人。
 
+
+*****
+
+####  cubesun  
+##### 130#       发表于 2024-7-22 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64177058&amp;ptid=2140223" target="_blank">ralfli 发表于 2024-3-7 13:34</a>
+
+谁还记得sce的源氏
+
+“让丫抄鬼武者我TM要抄回来”——第一眼有这么个微妙的感觉，反正个人是很喜欢源氏的配 ...</blockquote>
+我非常非常喜欢源氏1，那种金灿灿的配色，美工给人很深的印象，音乐也是一流的。而且一闪的手感和难度介于鬼武者和新鬼武者之间，好用但不无脑，整体完成度很高，就是游戏太短了些。可惜后来PS3的2代听说把系统改了个面目全非，优点全没了，我至今都没敢碰。
+
+
+*****
+
+####  Sissii  
+##### 131#       发表于 2024-7-22 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65660304&amp;ptid=2140223" target="_blank">crosz1985 发表于 2024-7-22 08:34</a>
+
+幽暗洞那个蜈蚣boss怎么打啊
+
+论坛助手,iPhone</blockquote>
+六个灯全点亮，他会倒地相当长时间
+

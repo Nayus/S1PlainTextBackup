@@ -1168,3 +1168,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 还好昨天瞟了一眼推看到230前5%又打了四五把遇到给力的野人队友上了230
 
+
+*****
+
+####  stygianlunar  
+##### 4907#       发表于 2024-7-22 20:49
+
+总感觉，这过去、现在与未来的主题会整出一出“相链接的未来，以及至12000年前的你（玩家）”的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+预料之中，这一代一直强调过去和未来这个元素呢，说起来，老任这几年几个IP似乎都是这个主题啊，朱紫、XB、卡比、喷喷、塞尔达，都有这个元素，也就马没有涉及这个主题了。我都怀疑老任不会给下一代主机的主题就是过去和未来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，然后给你整个任天堂宇宙出来
+

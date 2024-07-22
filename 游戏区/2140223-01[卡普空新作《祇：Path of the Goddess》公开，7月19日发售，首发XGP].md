@@ -761,3 +761,21 @@ boss关：全远程，后期可以阴阳师
 
 想问一下什么时候开始能增加装备各自和武器格子
 
+
+*****
+
+####  manyin1  
+##### 140#       发表于 2024-7-22 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665450&amp;ptid=2140223" target="_blank">wthall 发表于 2024-7-22 16:48</a>
+
+想问一下什么时候开始能增加装备各自和武器格子</blockquote>
+快到中期时候，打一个boss就可以取回力量然后增加装备格子
+
+*****
+
+####  manyin1  
+##### 141#       发表于 2024-7-22 17:03
+
+想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的
+

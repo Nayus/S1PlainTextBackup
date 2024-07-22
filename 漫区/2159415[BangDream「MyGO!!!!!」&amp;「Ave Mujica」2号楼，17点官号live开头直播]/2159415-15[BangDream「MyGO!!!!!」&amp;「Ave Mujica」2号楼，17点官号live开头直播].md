@@ -1739,3 +1739,15 @@ animax去年是狗和ras上的，就是狗和洋葱合唱Time Lapse被拷打，r
 https://www.youtube.com/shorts/vUP ...</blockquote>
 武士道甚至把赛赛的鼓手招进了D4DJ，也是赛赛唯一被武士道拉入伙的，你说武士道当时没有什么图谋我是不信的。不过后来那个鼓手去当了阔太太，现在正在准备去月亮了就算了。
 
+
+*****
+
+####  DarthAka  
+##### 20889#       发表于 2024-7-22 20:39
+
+<blockquote>罗克萨斯 发表于 2024-7-22 19:11
+霓虹年轻女性鼓手很难找么？刚刚刷YT看到一个，能招来的话去肯定不错
+
+https://www.youtube.com/shorts/vUP ...</blockquote>
+妮邦不是啥好活儿，现在又不是PPP那时候了，一堆例子告诉妮别接
+

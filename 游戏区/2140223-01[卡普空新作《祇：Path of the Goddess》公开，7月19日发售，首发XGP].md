@@ -573,3 +573,13 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 论坛助手,iPhone</blockquote>
 要先点灯，然后暴揍！
 
+
+*****
+
+####  wthall  
+##### 129#       发表于 2024-7-22 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">打完老头环dlc无缝衔接这个，周末玩了5个小时。
+
+好玩啊。果然还是得是卡婊。就是每次找东西去污染有点折腾人。
+

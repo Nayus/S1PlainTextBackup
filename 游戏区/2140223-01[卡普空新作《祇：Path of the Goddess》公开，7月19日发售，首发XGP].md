@@ -855,3 +855,11 @@ PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题�
 
 没获取的数量和地图上剩的对不上
 
+
+*****
+
+####  lbb3313725  
+##### 149#       发表于 2024-7-22 22:39
+
+PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380多港币<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -1096,3 +1096,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 4900#       发表于 2024-7-22 10:23
+
+打了几把226蛋以为稳一本就没打了，结果团工一本227<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卷王太多惹
+

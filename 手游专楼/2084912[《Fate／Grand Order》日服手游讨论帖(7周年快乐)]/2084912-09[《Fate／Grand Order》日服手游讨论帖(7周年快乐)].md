@@ -393,3 +393,21 @@ Aniplex一单是95%，实际少了3.25%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然死了一个楼友
 
+
+*****
+
+####  khxooo  
+##### 13078#       发表于 2024-7-22 07:46
+
+付费单抽真有用，水妖兰2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 13079#       发表于 2024-7-22 07:54
+
+<blockquote>khxooo 发表于 2024-7-22 07:46
+付费单抽真有用，水妖兰2宝了</blockquote>
+欧 羡慕
+

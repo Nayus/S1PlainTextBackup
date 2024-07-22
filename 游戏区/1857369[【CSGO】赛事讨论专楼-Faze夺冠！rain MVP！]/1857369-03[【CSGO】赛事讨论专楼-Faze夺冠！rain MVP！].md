@@ -50,3 +50,11 @@ G2现在个个都有状态，要还打不过navi那只能是究极小丑了
 
 李神牛啊，真又给擒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4365#       发表于 2024-7-22 07:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这hunter和snax有什么用，niko在A包点被两个人围攻snax都不愿意拉烟，niko被打死了自己就摸烟白给，什么傻逼。hunter不说了，早就说了G2最该换的就是他，现在好了，hunter没换掉，还来了个不愿意牺牲的老登指挥。
+

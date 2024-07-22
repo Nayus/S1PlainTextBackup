@@ -560,3 +560,16 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  wammwawzy  
+##### 128#       发表于 2024-7-22 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65660304&amp;ptid=2140223" target="_blank">crosz1985 发表于 2024-7-22 08:34</a>
+
+幽暗洞那个蜈蚣boss怎么打啊
+
+论坛助手,iPhone</blockquote>
+要先点灯，然后暴揍！
+

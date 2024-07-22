@@ -681,3 +681,14 @@ FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲�
 希望这次蘑菇能好好反思下，月姬R写的真实一坨。。。这么说过分了点，但着实失望。 ...</blockquote>
 我覺得寫得挺好的啊，官能那塊
 
+
+*****
+
+####  魔法煎饼  
+##### 65#       发表于 2024-7-22 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65660039&amp;ptid=2083714" target="_blank">760194962 发表于 2024-7-22 07:19</a>
+
+我覺得寫得挺好的啊，官能那塊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 别的其实还比较模糊，感觉学姐线结局那段简直老太太的裹脚布。。。
+

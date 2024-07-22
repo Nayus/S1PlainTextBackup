@@ -1000,3 +1000,12 @@ leos艰难进甲我觉得反倒是konami平衡性大改的目的了，之前2020
 
 葛叶更是纯过来玩了，队伍里除了他全是黄金以下的段位，而其他队伍里甚至有三神话，最想不到的是居然带海牛出来玩了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡鸦骑士  
+##### 519#       发表于 2024-7-22 08:38
+
+ike3D披露请了初音啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -29,3 +29,13 @@ W奥技能前瞻：
 如果出了LCCB希斯克利夫，作为LCCB良秀上位的话，就可以两者兼容了。
 （其实死协夫也是呼吸人格）
 
+
+*****
+
+####  Yuzutea  
+##### 800#       发表于 2024-7-22 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夫的tech总能有用的
+
+那Aedd除了资源消耗少打3其他真是一点用没有
+

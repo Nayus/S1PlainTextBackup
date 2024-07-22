@@ -1178,3 +1178,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 预料之中，这一代一直强调过去和未来这个元素呢，说起来，老任这几年几个IP似乎都是这个主题啊，朱紫、XB、卡比、喷喷、塞尔达，都有这个元素，也就马没有涉及这个主题了。我都怀疑老任不会给下一代主机的主题就是过去和未来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，然后给你整个任天堂宇宙出来
 
+
+*****
+
+####  苍蓝之枪  
+##### 4908#       发表于 2024-7-22 23:29
+
+这团工W2的光蝇都能玩全灭的，感觉所有人的都有自己的想法，我拿到刷子也不知道该堵哪了
+

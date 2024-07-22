@@ -419,3 +419,14 @@ Aniplex一单是95%，实际少了3.25%
 
 这几天忙得要死，第七天断签，痛失一呼符<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">长草期剥夺了我的签到雷达，可恶啊
 
+
+*****
+
+####  qixinno2  
+##### 13081#       发表于 2024-7-22 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665890&amp;ptid=2084912" target="_blank">清河子 发表于 2024-7-22 17:24</a>
+
+这几天忙得要死，第七天断签，痛失一呼符长草期剥夺了我的签到雷达，可恶啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">断签是退坑的征兆
+

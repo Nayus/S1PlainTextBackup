@@ -3913,3 +3913,43 @@ waifu2x真是好文明啊，给20周年贺图拉成4k，可以做壁纸用了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Squall25  
+##### 1840#       发表于 2024-7-22 11:14
+
+算算日子，
+
+<img src="https://img.saraba1st.com/forum/202407/22/111428h5yl52v5059y9lq6.jpg" referrerpolicy="no-referrer">
+
+<strong>20240722_110434.jpg</strong> (507.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 11:14 上传
+
+这周应该发pv了
+
+
+*****
+
+####  宛若青空  
+##### 1841#       发表于 2024-7-22 11:19
+
+CM发了两个，也该发一个PV了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  酷乐  
+##### 1842#       发表于 2024-7-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658008&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-7-21 22:49</a>
+waifu2x真是好文明啊，给20周年贺图拉成4k，可以做壁纸用了
+
+论坛助手,iPhone</blockquote>
+大哥，什么时代了，还在用waifu2x……
+
+现在都用topaz，特别是最新的gigapixel，带基于sd的恢复模型，效果好得出奇（虽然还是测试版）。
+

@@ -1726,3 +1726,16 @@ animax去年是狗和ras上的，就是狗和洋葱合唱Time Lapse被拷打，r
 
 年轻女鼓手不一定愿意去你邦，毕竟你邦鼓手角色待遇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 20888#         楼主| 发表于 2024-7-22 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65666841&amp;ptid=2159415" target="_blank">罗克萨斯 发表于 2024-7-22 19:11</a>
+
+霓虹年轻女性鼓手很难找么？刚刚刷YT看到一个，能招来的话去肯定不错
+
+https://www.youtube.com/shorts/vUP ...</blockquote>
+武士道甚至把赛赛的鼓手招进了D4DJ，也是赛赛唯一被武士道拉入伙的，你说武士道当时没有什么图谋我是不信的。不过后来那个鼓手去当了阔太太，现在正在准备去月亮了就算了。
+

@@ -3953,3 +3953,16 @@ waifu2x真是好文明啊，给20周年贺图拉成4k，可以做壁纸用了
 
 现在都用topaz，特别是最新的gigapixel，带基于sd的恢复模型，效果好得出奇（虽然还是测试版）。
 
+
+*****
+
+####  ravend233  
+##### 1843#       发表于 2024-7-22 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662197&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-22 11:19</a>
+
+CM发了两个，也该发一个PV了</blockquote>
+最终PV应该是八月，这个月看还会不会再来个CM
+
+然后九月OP，就等发售了
+

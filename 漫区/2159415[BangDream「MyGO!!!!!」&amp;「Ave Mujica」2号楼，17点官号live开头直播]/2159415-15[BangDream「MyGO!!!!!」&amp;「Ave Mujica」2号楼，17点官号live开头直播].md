@@ -1677,3 +1677,19 @@ https://whlyj.sh.gov.cn/tsym/index.html
 
 今年アニサマ和animax都上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 20882#       发表于 2024-7-22 18:30
+
+ainmax主打一个混搭，鸡团的世界观药丸
+
+
+*****
+
+####  前方暴雨预警  
+##### 20883#       发表于 2024-7-22 18:33
+
+叔叔的大手都让鸡团揭面了，现在也没什么必要在日本矜持世界观了吧。
+

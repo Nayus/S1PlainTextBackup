@@ -1104,3 +1104,36 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 打了几把226蛋以为稳一本就没打了，结果团工一本227<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卷王太多惹
 
+
+*****
+
+####  carroy  
+##### 4901#       发表于 2024-7-22 10:59
+
+重刷爱好者安详地离开<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+多加几滴墨不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 4902#         楼主| 发表于 2024-7-22 11:03
+
+<blockquote>KBAC 发表于 2024-7-21 21:37
+等级有上限啊……好奇这人要是把所有的武器券拿去抽扭蛋假如以后再出新贴牌怎么办
+
+论坛助手,iPhone ...</blockquote>
+
+新赛季好像是会送一张劵，不过本来武器劵就不跟等级挂钩啊，看的是武器等级
+
+*****
+
+####  コーヒー  
+##### 4903#       发表于 2024-7-22 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661442&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-7-22 10:23</a>
+
+打了几把226蛋以为稳一本就没打了，结果团工一本227卷王太多惹</blockquote>
+看到几个好友都刷到了250左右，一个甚至把名字都改成了249。
+
+我估计刷到心态爆炸了。
+

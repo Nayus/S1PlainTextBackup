@@ -411,3 +411,11 @@ Aniplex一单是95%，实际少了3.25%
 付费单抽真有用，水妖兰2宝了</blockquote>
 欧 羡慕
 
+
+*****
+
+####  清河子  
+##### 13080#       发表于 2024-7-22 17:24
+
+这几天忙得要死，第七天断签，痛失一呼符<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">长草期剥夺了我的签到雷达，可恶啊
+

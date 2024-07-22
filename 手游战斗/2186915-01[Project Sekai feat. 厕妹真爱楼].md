@@ -13685,3 +13685,21 @@ afa61a4cddf472b0979a6bec8fcc6b4.jpg
 
 饱饱你好厕
 
+
+*****
+
+####  Alicest  
+##### 1189#       发表于 2024-7-22 17:19
+
+新计划启动。
+
+𝟐𝟎𝟐𝟒.𝟎𝟕.𝟐𝟗 𝟐𝟎:𝟎𝟎
+𝐂𝐨𝐦𝐢𝐧𝐠 𝐒𝐨𝐨𝐧  
+
+https://pjsekai.sega.jp/noise/index.html 
+<img src="https://p.sda1.dev/18/fb5625bfbd23af4ef63bb292cf2e30e4/image.jpg" referrerpolicy="no-referrer">
+近藤 裕一郎 @CPKondoYuichiro 
+5:04 PM · Jul 22, 2024
+来週の生放送で大きな発表があります。
+よろしくお願いします。
+

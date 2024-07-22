@@ -790,3 +790,21 @@ boss关：全远程，后期可以阴阳师
 想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的 ...</blockquote>
 弓系有个技能是蓄力射箭之后瞬移到箭命中的位置，要学一下
 
+
+*****
+
+####  仿身泪滴  
+##### 143#       发表于 2024-7-22 17:18
+
+PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题的人，不知道是不是bug<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仿身泪滴  
+##### 144#       发表于 2024-7-22 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665646&amp;ptid=2140223" target="_blank">manyin1 发表于 2024-7-22 17:03</a>
+
+想问下中间有几关有箭靶一样的东西，学会射箭了射靶子好像没用，靶子附近都是有宝箱的 ...</blockquote>
+应该是要中后期产灵强化里主角射箭里的一项技能才能解锁，射中靶子后可以把你拉到目标身边
+

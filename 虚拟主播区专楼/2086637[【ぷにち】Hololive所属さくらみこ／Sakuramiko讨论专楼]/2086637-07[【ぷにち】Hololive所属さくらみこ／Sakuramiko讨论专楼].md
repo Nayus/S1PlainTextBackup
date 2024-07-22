@@ -4715,3 +4715,26 @@ Medansy→ぺこらの「昇天直前Love it LIVE」作った
 
 桃铃家，长女没了，现在桃铃也没了
 
+
+*****
+
+####  holoan  
+##### 9295#         楼主| 发表于 2024-7-22 16:12
+
+<img src="https://img.saraba1st.com/forum/202407/22/161154eninuff0pi0k0fp2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 16:11 上传
+
+明天是ARK服第一天,也就是说
+
+*****
+
+####  holoan  
+##### 9296#         楼主| 发表于 2024-7-22 20:17
+
+只在官店卖的CD限定版是数量限制的，已经马上快卖光了
+

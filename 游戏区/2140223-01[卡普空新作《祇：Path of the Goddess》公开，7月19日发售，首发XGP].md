@@ -835,3 +835,23 @@ PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题�
 
 这在哪里打 二周目吗？
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 147#       发表于 2024-7-22 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65665816&amp;ptid=2140223" target="_blank">仿身泪滴 发表于 2024-7-22 17:18</a>
+
+PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题的人，不知道是不是bug ...</blockquote>
+你装备了吗 要在刀锷那个界面把弓技能装上才行
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 148#       发表于 2024-7-22 21:54
+
+是有魔像藏二周目了吗
+
+没获取的数量和地图上剩的对不上
+

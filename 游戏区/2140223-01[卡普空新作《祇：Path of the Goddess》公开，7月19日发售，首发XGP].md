@@ -641,3 +641,13 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 我非常非常喜欢源氏1，那种金灿灿的配色，美工给人很深的印象，音乐也是一流的。而且一闪的手感和难度介 ...</blockquote>
 不仅配色和音乐氛围很像源氏，女神之路也是打手和巫女的组合，如果PC版有犬夜叉的mod我会再买一份<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 134#       发表于 2024-7-22 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65662383&amp;ptid=2140223" target="_blank">cubesun 发表于 2024-7-22 11:34</a>
+我非常非常喜欢源氏1，那种金灿灿的配色，美工给人很深的印象，音乐也是一流的。而且一闪的手感和难度介 ...</blockquote>
+源氏的一闪可以开神威减速降难度，不开的话其实和鬼武者的普通难度判定差不多短。但特殊素材不开神威是不会掉落的，直接一闪除了无消耗以外收益并不高
+

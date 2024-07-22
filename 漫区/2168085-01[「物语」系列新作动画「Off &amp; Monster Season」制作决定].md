@@ -757,3 +757,13 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 
 想看上大学时荡漾听闻阿良良木夫妇因忙于工作没法给俩妹妹做饭，从而心血来潮买了一大堆食材准备大展拳脚牢牢抓住小姑子们的胃，然后满怀信心的进门她却看见系着围裙在厨房里忙活的老仓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 494#       发表于 2024-7-22 12:19
+
+说到发色，荡漾在上大学之后把头发染成了褐色，不知道动画要不要做出来。毕竟小说的原始发色设定一直都是黑色，黑变褐可以说是变潮了，紫变褐就有点变土的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

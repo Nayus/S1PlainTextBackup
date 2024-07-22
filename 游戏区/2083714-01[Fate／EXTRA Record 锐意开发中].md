@@ -692,3 +692,14 @@ FE是菌菇最喜欢的系列，真正的放飞自我，FE是最经不起推敲�
 我覺得寫得挺好的啊，官能那塊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 别的其实还比较模糊，感觉学姐线结局那段简直老太太的裹脚布。。。
 
+
+*****
+
+####  Muteki_Link  
+##### 66#       发表于 2024-7-22 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56824673&amp;ptid=2083714" target="_blank">kisskick 发表于 2022-7-27 15:48</a>
+
+这么一说，公主切割了之后，要不要换人啊</blockquote>
+这次预告的预告里，公主立绘也出来了
+

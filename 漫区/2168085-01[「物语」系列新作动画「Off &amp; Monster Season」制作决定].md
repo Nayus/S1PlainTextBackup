@@ -786,3 +786,13 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 想看上大学时荡漾听闻阿良良木夫妇因忙于工作没法给俩妹妹做饭，从而心血来潮买了一大堆食材准备大展拳脚牢 ...</blockquote>
 多来点，多来点！想看荡漾嫉妒的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  remedios010000  
+##### 497#       发表于 2024-7-22 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65653805&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-21 14:46</a>
+老仓要是知道抚子的一万小时估算法估计得抓狂，课也不上了连续一星期的给小姑娘补习补习数学 ...</blockquote>
+老苍：智商配得上苦难，没救了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+

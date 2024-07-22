@@ -357,3 +357,24 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 虽然我怕水，但是我有茉优啊</blockquote>
 那你还不快给真由生真由的小奶猫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1941#       发表于 2024-7-21 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658314&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-7-21 23:10</a>
+
+虽然我怕水，但是我有茉优啊</blockquote>
+那你还不快给真由生真由的小奶猫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猫屋敷ゆき  
+##### 1942#       发表于 2024-7-22 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658478&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-7-21 23:21</a>
+
+那你还不快给真由生真由的小奶猫</blockquote>
+你们这些地球人太可怕，我要回动物镇和茉优贴贴了<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+

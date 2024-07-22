@@ -1342,3 +1342,13 @@ LLSP第二季制作委员会汇总：
 
 鱼被打开奇怪的开关发出了奇怪的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20630#       发表于 2024-7-22 19:35
+
+pay酱这英文发音，是不是又在演<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

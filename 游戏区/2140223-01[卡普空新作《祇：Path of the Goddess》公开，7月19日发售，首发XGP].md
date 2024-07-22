@@ -666,3 +666,22 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 唯一我觉得就是视角有点怪
 
+
+*****
+
+####  malisa  
+##### 136#       发表于 2024-7-22 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65660304&amp;ptid=2140223" target="_blank">crosz1985 发表于 2024-7-22 08:34</a>
+
+幽暗洞那个蜈蚣boss怎么打啊
+
+论坛助手,iPhone</blockquote>
+1.全员斧头 升级到最高 （洗点很方便，洗一下）
+
+2.必杀可以带让小弟加攻速的
+
+3.点灯后一波输出 看情况放必杀
+
+4.一波后会灭灯召小弟，记得让村民全体防御。不管就被偷家了 
+

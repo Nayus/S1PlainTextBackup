@@ -796,3 +796,11 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 老仓要是知道抚子的一万小时估算法估计得抓狂，课也不上了连续一星期的给小姑娘补习补习数学 ...</blockquote>
 老苍：智商配得上苦难，没救了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mldc  
+##### 498#       发表于 2024-7-22 14:33
+
+因为小说里面就引用了多啦a梦的著名篇章遍地都是哆啦a梦
+

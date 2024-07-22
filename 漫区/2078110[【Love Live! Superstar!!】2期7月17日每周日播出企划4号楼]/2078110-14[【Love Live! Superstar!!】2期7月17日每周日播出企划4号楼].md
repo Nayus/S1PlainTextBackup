@@ -1368,3 +1368,25 @@ FMT上会唱20首歌，这还能叫FMT吗
 
 终章时长准备比肩复联4<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 20633#       发表于 2024-7-22 19:55
+
+商店街立牌可爱，但是25号在大阪……
+
+*****
+
+####  starring  
+##### 20634#       发表于 2024-7-22 19:56
+
+这下真是官方认定新绘的堇炒饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 20635#       发表于 2024-7-22 19:56
+
+艹，还真玩了炒饭梗了
+

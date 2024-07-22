@@ -550,3 +550,13 @@ B站上推给我的第一个有关这游戏的视频标题是“伊津野你切�
 
 这游戏后期有几首boss战音乐，搭配这个美术，有点像嗑了药一样的疯癫感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 127#       发表于 2024-7-22 08:34
+
+幽暗洞那个蜈蚣boss怎么打啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

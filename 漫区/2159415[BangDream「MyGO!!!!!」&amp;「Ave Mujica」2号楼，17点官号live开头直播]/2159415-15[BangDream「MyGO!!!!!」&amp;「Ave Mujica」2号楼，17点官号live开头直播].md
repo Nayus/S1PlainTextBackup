@@ -1751,3 +1751,27 @@ https://www.youtube.com/shorts/vUP ...</blockquote>
 https://www.youtube.com/shorts/vUP ...</blockquote>
 妮邦不是啥好活儿，现在又不是PPP那时候了，一堆例子告诉妮别接
 
+
+*****
+
+####  NODY  
+##### 20890#       发表于 2024-7-22 20:57
+
+你俩也太有缘分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/22/205721sbdaxhi61swjiz9r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240722205020.png</strong> (65.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 20:57 上传
+
+<img src="https://img.saraba1st.com/forum/202407/22/205725n00lnlip08phyaie.jpg" referrerpolicy="no-referrer">
+
+<strong>a2ccc162f6246b60e7cad554adf81a4c500fa215.jpg</strong> (68.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-22 20:57 上传
+

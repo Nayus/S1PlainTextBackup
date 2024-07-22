@@ -355,3 +355,37 @@ AI弄的，在twi翻到 ...</blockquote>
 
 该来的还是来了
 
+
+*****
+
+####  蒜灵  
+##### 1923#       发表于 2024-7-22 21:00
+
+终于是要来了么，明年能开播不？
+
+
+*****
+
+####  Saber琪  
+##### 1924#       发表于 2024-7-22 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65667695&amp;ptid=2152053" target="_blank">虚无缥缈的光阴 发表于 2024-7-22 20:45</a>
+感觉明天晚上10点半有什么要来了
+
+复活吧我的蒜人之魂</blockquote>
+水族馆联动罢了
+
+*****
+
+####  Saber琪  
+##### 1925#       发表于 2024-7-22 21:07
+
+<img src="https://p.sda1.dev/18/87047a61e74dd533ed72b4efeabec924/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 1926#       发表于 2024-7-22 21:07
+
+二人の時間、選びとる未来～
+

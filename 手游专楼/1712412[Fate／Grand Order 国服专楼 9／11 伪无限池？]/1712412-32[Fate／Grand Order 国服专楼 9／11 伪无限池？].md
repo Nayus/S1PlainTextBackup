@@ -24,3 +24,11 @@
 
 想要的卡倒是挺多，但是在井降到500之前恐怕不能作什么过多的打算
 
+
+*****
+
+####  johnkamsar  
+##### 46527#       发表于 2024-7-23 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天开始罐子别打了，25更新后有ap减半和牵绊额外加成
+

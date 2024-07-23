@@ -569,3 +569,26 @@ drug问题是经济衰退的副产品才对吧
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  spf54321  
+##### 49#       发表于 2024-7-23 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674668&amp;ptid=2192453" target="_blank">银镜 发表于 2024-7-23 15:55</a>
+
+呃，我初中的时候也听抽烟的同学说过，说是这几个点加了东西，抽着更有味道。
+
+实际上那是印刷的四色定位 ...</blockquote>
+是的，我加了颜料！
+
+*****
+
+####  香草大圣代  
+##### 50#       发表于 2024-7-23 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673931&amp;ptid=2192453" target="_blank">星花 发表于 2024-7-23 14:22</a>
+
+人形机器人我觉得和文中是同样的东西。</blockquote>
+前景更惨。工业用人形机器人，一想就知道比自动生产线上的固定式机械手闹心多了，维护和调试需要很多技师和工程师，这些大仙在美国的薪资高得一批。要用人形机器人大规模替代普通工人，且不说软硬件成本成本和工会找事，现在美国已经找不到这么多人来伺候它们了，除非牢美撒签证来中国挖人。
+

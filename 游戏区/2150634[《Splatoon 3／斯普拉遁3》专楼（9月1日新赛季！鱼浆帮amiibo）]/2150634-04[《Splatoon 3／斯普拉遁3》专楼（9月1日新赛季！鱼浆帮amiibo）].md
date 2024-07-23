@@ -1186,3 +1186,14 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 这团工W2的光蝇都能玩全灭的，感觉所有人的都有自己的想法，我拿到刷子也不知道该堵哪了
 
+
+*****
+
+####  +_+  
+##### 4909#       发表于 2024-7-23 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65663020&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-7-22 12:29</a>
+
+怎么不挂钩，武器券现在日常就两个获取方式，一个是等级升一级给一张，另一个是武器熟练度升到一颗星的时 ...</blockquote>
+新赛季一定送一张，不会卡死
+

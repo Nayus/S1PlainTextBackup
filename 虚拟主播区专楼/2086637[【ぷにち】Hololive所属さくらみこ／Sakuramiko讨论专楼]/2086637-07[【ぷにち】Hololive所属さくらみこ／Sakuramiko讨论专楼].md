@@ -4974,3 +4974,69 @@ set也卖光了，这下特典拿不到了
 
 确定参加ARK倒是有点意外，你自己下个月的日程没问题吗周年的东西准备好了吗
 
+
+*****
+
+####  holoan  
+##### 9320#         楼主| 发表于 2024-7-23 18:40
+
+ 本帖最后由 holoan 于 2024-7-23 18:58 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/23/183254tgcdpkhwrrrhppy9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:32 上传
+
+<img src="https://img.saraba1st.com/forum/202407/23/183554v9riz3anyqalt3eq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:35 上传
+
+刚才显示售空了以后页面就没了，原来是真的有问题，推上大家说的是衣服设计左右颠倒了，对比一下官方图的话确实，竟然到生产发售都没人注意到吗本人也没注意到这么严重的问题
+
+<img src="https://img.saraba1st.com/forum/202407/23/185702fqlqqmiucnpuogmi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (316.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202407/23/185715g484opxgn3dndgbk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202407/23/185804gr41xuiia0mn7m6h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/23/185617pms9amfma1a6a10c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 18:56 上传
+
+
+*****
+
+####  rs5621  
+##### 9321#       发表于 2024-7-23 19:51
+
+这款娃娃还挺好看的
+

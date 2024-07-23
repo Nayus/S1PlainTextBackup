@@ -890,3 +890,23 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 就知乎这个回答的论述，难道目前一个通过自由意志没有染上毒瘾的人，就能顺利实现上世纪的努力致富了？如果 ...</blockquote>
 定投纳斯达克，年化收益率20%
 
+
+*****
+
+####  beeandf  
+##### 79#       发表于 2024-7-23 22:07
+
+感觉铁锈带的“生态位”就相当于“共和国长子”，其衰落是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  belichick  
+##### 80#       发表于 2024-7-23 22:15
+
+是这样的，家里亲戚润去加拿大三十年，一直是做工人和技术工种，他今年回国探亲，说公司请的大多数是老墨和东南亚人，美国那边也是。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

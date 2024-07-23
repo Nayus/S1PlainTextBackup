@@ -40,3 +40,15 @@
 谢谢大佬们的回复，我还想问个问题<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把握会不一样。对于想练技术有推荐的视角不？
 
+
+*****
+
+####  托米  
+##### 1863#       发表于 2024-7-23 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65670594&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-07-23 08:16:37</a>
+谢谢大佬们的回复，我还想问个问题
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把 ...</blockquote>维特尔喜欢第一人称时间，车内视角沉浸感虽然好但视野受限，车外视角适合随便玩玩的人，容易把控车身位置，但长期玩还是推荐第一人称视角
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

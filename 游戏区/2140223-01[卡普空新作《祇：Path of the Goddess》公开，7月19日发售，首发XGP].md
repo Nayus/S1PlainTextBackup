@@ -1052,3 +1052,15 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 怎么我打不开？xpg版本点开直接弹崩溃报告工具
 
+
+*****
+
+####  6x6z6w  
+##### 167#       发表于 2024-7-24 04:50
+
+ 本帖最后由 6x6z6w 于 2024-7-24 04:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65671220&amp;ptid=2140223" target="_blank">cmyk1234 发表于 2024-7-23 09:45</a>
+
+主角宗是不是神使按照巫女世代捏的形象？</blockquote>
+主角应该是式神，但结局最后巫女肉身破灭灵魂飞升，它就继承了巫女的形象变成人守护人间
+

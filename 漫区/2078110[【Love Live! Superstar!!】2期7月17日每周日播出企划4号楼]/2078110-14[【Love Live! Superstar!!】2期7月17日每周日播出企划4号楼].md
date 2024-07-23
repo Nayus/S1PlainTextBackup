@@ -1486,3 +1486,22 @@ limista1+1?买了这么久从未中过<img src="https://static.saraba1st.com/ima
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 20647#       发表于 2024-7-23 20:49
+
+Nagi一专10.16，全部作词担当
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  奥柏伦亲王  
+##### 20648#       发表于 2024-7-23 20:50
+
+青山这直播突出一个随性<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

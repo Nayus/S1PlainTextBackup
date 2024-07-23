@@ -566,3 +566,14 @@ TVアニメ「リコリス・リコイル」の監督を務めた足立慎吾の
 短片说不会等太久的至少年内应该会放出点，动画二期说老实话从建立文件夹到放一般都需要个2-3年起码，25年 ...</blockquote>
 “不会等太久”真的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 1945#       发表于 2024-7-24 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679185&amp;ptid=2152053" target="_blank">Saber琪 发表于 2024-7-24 01:37</a>
+
+“不会等太久”真的嘛我不信，真不会等太久今晚放的还会就这5s嘛</blockquote>
+昨天声优提到放出来的那段配音已经配好了，再加上放出来的部分基本都上色后期都弄好了，考虑长度放上来的确不需要等太久，当然为了凑二期的时间估计慢点放出来是肯定的
+

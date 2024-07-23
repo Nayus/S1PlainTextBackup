@@ -4603,3 +4603,37 @@ day1都来了
 
 主播能抓到这波流量嘛
 
+
+*****
+
+####  TiHaru  
+##### 17017#       发表于 2024-7-23 19:47
+
+<img src="https://img.saraba1st.com/forum/202407/23/194705zt6heeioovww6f6r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6127.jpeg</strong> (60.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 19:47 上传
+
+虽然在简中狂喷这个人但是不知不觉被送了一份订阅
+
+*****
+
+####  sino__unnko3  
+##### 17018#       发表于 2024-7-23 20:06
+
+这人刚睡醒的这个声线跟之前的生气声线还有日常杂谈声线差别好大。。。合成你麻日常生活声线的任务任重道远啊
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  汇聚群光  
+##### 17019#       发表于 2024-7-23 20:35
+
+<blockquote>TiHaru 发表于 2024-7-23 14:09
+267111314有事</blockquote>
+是下个月的安排吗？8月2号不该搞个生日直播吗？
+

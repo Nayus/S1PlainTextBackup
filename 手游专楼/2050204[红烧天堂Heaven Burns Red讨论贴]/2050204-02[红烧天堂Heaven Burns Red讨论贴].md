@@ -921,3 +921,18 @@ e341kwz8cvkmo11o
 刚开始玩，感觉活动商店搬不完，有什么刷起来很快的办法吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能打高难的就好刷，但是我当时日服入坑的时候已经有孔明和星罗了，活动 boss 好打的一逼，现在完全不会了
 
+
+*****
+
+####  genki  
+##### 1587#       发表于 2024-7-23 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65661232&amp;ptid=2050204" target="_blank">Raven314 发表于 2024-7-22 10:05</a>
+
+e341kwz8cvkmo11o
+
+已过二章day10求互助</blockquote>
+avnum0cun2qsc74k
+
+已过已填<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

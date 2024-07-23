@@ -1563,3 +1563,11 @@ Nagi一专10.16，全部作词担当
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  优妮可  
+##### 20654#       发表于 2024-7-23 23:43
+
+人生大起大落，感觉红温了，希望下次别搞
+

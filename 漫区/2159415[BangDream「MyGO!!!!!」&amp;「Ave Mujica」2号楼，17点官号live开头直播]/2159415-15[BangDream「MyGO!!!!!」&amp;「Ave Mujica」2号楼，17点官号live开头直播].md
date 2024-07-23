@@ -1965,3 +1965,11 @@ o_s咖啡店
 
 <img src="https://p.sda1.dev/18/c46fdd73a5a91b77968eefc63a544d17/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20907#       发表于 2024-7-23 17:56
+
+感觉李子会在fmt上唱有梦好甜蜜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

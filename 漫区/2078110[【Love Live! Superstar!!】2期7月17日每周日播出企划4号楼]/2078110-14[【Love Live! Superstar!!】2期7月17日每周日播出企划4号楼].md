@@ -1450,3 +1450,39 @@ FMT上会唱20首歌，这还能叫FMT吗
 鱼的签售居然落了，只能下个月过去靠信用卡冲了😂</blockquote>
 limista1+1?买了这么久从未中过<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20643#       发表于 2024-7-22 21:34
+
+这三人什么组合？被猫欺负三人组.jpg
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  lj205  
+##### 20644#       发表于 2024-7-22 21:37
+
+鱼的签售居然落了，只能下个月过去靠信用卡冲了😂
+
+*****
+
+####  csolfans  
+##### 20645#       发表于 2024-7-22 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65668231&amp;ptid=2078110" target="_blank">lj205 发表于 2024-7-22 21:37</a>
+
+鱼的签售居然落了，只能下个月过去靠信用卡冲了😂</blockquote>
+limista1+1?买了这么久从未中过<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20646#       发表于 2024-7-23 11:47
+
+打光还好吧，大熊造型我觉得不错，被魅魔到jpg
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

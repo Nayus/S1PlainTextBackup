@@ -592,3 +592,14 @@ drug问题是经济衰退的副产品才对吧
 人形机器人我觉得和文中是同样的东西。</blockquote>
 前景更惨。工业用人形机器人，一想就知道比自动生产线上的固定式机械手闹心多了，维护和调试需要很多技师和工程师，这些大仙在美国的薪资高得一批。要用人形机器人大规模替代普通工人，且不说软硬件成本成本和工会找事，现在美国已经找不到这么多人来伺候它们了，除非牢美撒签证来中国挖人。
 
+
+*****
+
+####  香草大圣代  
+##### 51#       发表于 2024-7-23 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674636&amp;ptid=2192453" target="_blank">spf54321 发表于 2024-7-23 15:51</a>
+
+小时候看到有初中生学抽烟，他们把烟盒硬壳拆开，里面纯白的纸上看着像是印刷上去了两个火漆一样的圆片，然 ...</blockquote>
+古代都市传说，说那四个点加了料，能high，90年代就有这说法，中学偷着学抽烟的都上过这个当<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -4077,3 +4077,13 @@ CM发了两个，也该发一个PV了</blockquote>
 我估计是上次的闪轨组加上师姐黑铁云这些角色，反派可能要下个月了</blockquote>
 分开来也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1855#       发表于 2024-7-23 12:54
+
+如果这次帝国人的话，可控绝大部分到场，封面也齐了。
+
+该介绍系统了。
+

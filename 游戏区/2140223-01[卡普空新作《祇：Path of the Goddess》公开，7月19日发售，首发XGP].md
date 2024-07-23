@@ -944,3 +944,14 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 还要二周目真结局？继承啥啊，升级都继承的话这些挑战项目就直接二周目再打了
 
+
+*****
+
+####  printer22  
+##### 158#       发表于 2024-7-23 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65671220&amp;ptid=2140223" target="_blank">cmyk1234 发表于 2024-7-23 09:45</a>
+
+主角宗是不是神使按照巫女世代捏的形象？</blockquote>
+应该是，反正脸是一样的（全游戏也就她一个露脸），体型也不像男人，开场也是凭空出现的
+

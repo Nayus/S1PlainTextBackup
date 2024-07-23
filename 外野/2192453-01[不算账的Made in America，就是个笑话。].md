@@ -869,3 +869,14 @@ sop自己就是毒窝
 http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquote>
 湖南人真会玩，吸毒槟榔一条龙
 
+
+*****
+
+####  ivanwhite2  
+##### 77#       发表于 2024-7-23 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675596&amp;ptid=2192453" target="_blank">spf54321 发表于 2024-7-23 17:40</a>
+
+加拿大人嘴太大，出口到加拿大有搞头</blockquote>
+在加拿大槟榔劲儿不够大
+

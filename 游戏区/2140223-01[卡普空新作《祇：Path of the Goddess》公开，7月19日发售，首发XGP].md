@@ -963,3 +963,29 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 同时清除十个咒炎都怎么做的 二周目都没这么高怪物密度
 
+
+*****
+
+####  幻想菩薩  
+##### 160#       发表于 2024-7-23 21:35
+
+ 本帖最后由 幻想菩薩 于 2024-7-23 21:37 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/23/213443bz64qplxtf4zll54.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 21:34 上传
+
+看起来只用重新打分开的关卡就行了
+
+<img src="https://img.saraba1st.com/forum/202407/23/213712tyrqupg3czue3aqy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 21:37 上传
+

@@ -1529,3 +1529,18 @@ Nagi一专10.16，全部作词担当
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 20651#       发表于 2024-7-23 21:06
+
+ 本帖最后由 starring 于 2024-7-23 21:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65677417&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-7-23 21:02</a>
+中了，1st live:11/4
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+又是丰洲pit这个场馆，全坐席大概1300人
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

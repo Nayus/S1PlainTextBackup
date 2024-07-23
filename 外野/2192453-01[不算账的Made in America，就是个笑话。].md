@@ -833,3 +833,39 @@ sop自己就是毒窝
 
 《乡下人悲歌》里的万斯还会反思自己族裔的生活习惯、生活方式、文化导致自身不适应时代的变化；等到了自己成为民选官员的时候，能提着自己选民的耳朵告诉他们堕落有很大一部分原因是自己的错嘛？疯了才可能。选票政治下的官员人人都像“牛郎”，你有钱（选前）甜言蜜语ml，等你榨干以后（选上之后）就吊着你到下一次选。
 
+
+*****
+
+####  leviathan  
+##### 73#       发表于 2024-7-23 21:08
+
+所谓美帝小政府就是个伪命题，美帝可能某些方面不管，但在它想管的地方管的可细了，而且一个年度预算7万亿美元的政府算个屁的小，不过是在该管的地方省钱而已，这就不是个政府，而是个公司。
+中国政府也有很多地方没管，但有人会说中国政府是小政府吗。
+
+*****
+
+####  Lelouch007  
+##### 74#       发表于 2024-7-23 21:11
+
+湖南公家人都吸毒？福建这边没怎么听说
+
+
+*****
+
+####  回忆and无语  
+##### 75#       发表于 2024-7-23 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65677489&amp;ptid=2192453" target="_blank">Lelouch007 发表于 2024-7-23 21:11</a>
+
+湖南公家人都吸毒？福建这边没怎么听说</blockquote>
+[http://paper.people.com.cn/zgjjz ... content_1939720.htm](http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm)
+
+*****
+
+####  Lelouch007  
+##### 76#       发表于 2024-7-23 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65677519&amp;ptid=2192453" target="_blank">回忆and无语 发表于 2024-7-23 21:15</a>
+http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquote>
+湖南人真会玩，吸毒槟榔一条龙
+

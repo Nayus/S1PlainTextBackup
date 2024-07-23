@@ -742,3 +742,30 @@ sop自己就是毒窝
 今年的槟榔病害应该影响就很大了</blockquote>
 每年能固定返场吗？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  samuel.j  
+##### 65#       发表于 2024-7-23 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674486&amp;ptid=2192453" target="_blank">哈里-谢顿 发表于 2024-7-23 15:34</a>
+
+超级蓄能站，马老板也在做，削峰填谷。36L就是
+
+但他们这个版本有抽象</blockquote>
+他这版本就是换电汽车的工地退化版，看上去能够在市区和工业区代替发电机拖车，但实际上重资产运营的问题依然一个都没避过，只是相比之前吹逼的那个一滴血看身体有那么一点“合理性”而已。
+
+最终失败反倒是证明削减碳排放需要各种复杂的，基于不同环境运用工况的电池，氢气，氨气，或可再生液态燃料投入计划，只靠一时半会儿的热血上脑卖概念真没那么好
+
+*****
+
+####  重巡羊舰  
+##### 66#       发表于 2024-7-23 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65676152&amp;ptid=2192453" target="_blank">vaststars 发表于 2024-7-23 18:46</a>
+
+美国那玩意说他是小政府真的比较亏心。
+
+毒品问题是设计到太多部门的利益没法管，cia经过多轮瞎搞已经变成毒 ...</blockquote>
+死一个毒贩还有无数毒贩，阿美莉卡最大的毒贩在cia、在fbi，在国会山，没救的……
+

@@ -500,3 +500,53 @@ drug问题是经济衰退的副产品才对吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  长弓破风  
+##### 42#       发表于 2024-7-23 15:49
+
+<blockquote>dpdwx 发表于 2024-7-23 14:15
+你还真别说 谁能解决下湖南的槟榔问题</blockquote>
+这就真是“奈何百万漕工衣食所系”了
+
+*****
+
+####  spf54321  
+##### 43#       发表于 2024-7-23 15:51
+
+小时候看到有初中生学抽烟，他们把烟盒硬壳拆开，里面纯白的纸上看着像是印刷上去了两个火漆一样的圆片，然后他们把烟头贴在圆片上烧熔化吸掉了，不知道是什么。
+
+*****
+
+####  x.cat  
+##### 44#       发表于 2024-7-23 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673898&amp;ptid=2192453" target="_blank">搞不好是洗衣粉 发表于 2024-7-23 14:19</a>
+别说槟榔了，湖南是真的这个问题比其他地区严重的，公职人员化验头发全国都出名了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要验头发？吃槟榔的开除？
+
+
+*****
+
+####  fangJmin  
+##### 45#       发表于 2024-7-23 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674638&amp;ptid=2192453" target="_blank">x.cat 发表于 2024-7-23 15:51</a>
+为什么要验头发？吃槟榔的开除？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是槟榔是冰啊
+
+—— 来自 OnePlus PHK110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  银镜  
+##### 46#       发表于 2024-7-23 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674636&amp;ptid=2192453" target="_blank">spf54321 发表于 2024-7-23 15:51</a>
+
+小时候看到有初中生学抽烟，他们把烟盒硬壳拆开，里面纯白的纸上看着像是印刷上去了两个火漆一样的圆片，然 ...</blockquote>
+呃，我初中的时候也听抽烟的同学说过，说是这几个点加了东西，抽着更有味道。
+
+实际上那是印刷的四色定位点……
+

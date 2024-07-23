@@ -880,3 +880,13 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 加拿大人嘴太大，出口到加拿大有搞头</blockquote>
 在加拿大槟榔劲儿不够大
 
+
+*****
+
+####  ggggggssss  
+##### 78#       发表于 2024-7-23 21:55
+
+<blockquote>Raising_Heart 发表于 2024-7-23 14:40
+就知乎这个回答的论述，难道目前一个通过自由意志没有染上毒瘾的人，就能顺利实现上世纪的努力致富了？如果 ...</blockquote>
+定投纳斯达克，年化收益率20%
+

@@ -621,3 +621,39 @@ drug问题是经济衰退的副产品才对吧
 
 把槟榔出口到美国有搞头吗
 
+
+*****
+
+####  LaZier  
+##### 54#       发表于 2024-7-23 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675378&amp;ptid=2192453" target="_blank">十二月 发表于 2024-7-23 17:18</a>
+
+把槟榔出口到美国有搞头吗</blockquote>
+..............劲不够大，不好使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adso  
+##### 55#       发表于 2024-7-23 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673821&amp;ptid=2192453" target="_blank">dpdwx 发表于 2024-7-23 14:11</a>
+
+湖区南北的毒品问题是很严重 你算上北面的多伦多 甚至一路划到渥太华都没啥问题
+
+但是你说社区互助抵制毒品 ...</blockquote>
+但这个回答说的不就是右派最爱吹的社区互助解决不了毒品问题么……
+
+*****
+
+####  枯风瘦雪  
+##### 56#       发表于 2024-7-23 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675378&amp;ptid=2192453" target="_blank">十二月 发表于 2024-7-23 17:18</a>
+
+把槟榔出口到美国有搞头吗</blockquote>
+哪怕在国内这种有消费基础的市场，单一槟榔成瘾的人都是少数，大多都是混着香烟共同成瘾的，你甚至很难分清到底那种成瘾性更严重一点
+
+何况是在成瘾品选择面那么广泛的美国
+

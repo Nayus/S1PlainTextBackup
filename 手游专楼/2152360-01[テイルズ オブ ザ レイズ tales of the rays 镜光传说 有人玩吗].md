@@ -677,3 +677,15 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 
 最后两个月肝了一下，还是有点遗憾的，没有全员80，大部分术技也没有满强化，魔镜也差1个。下午离线版出来应该还能稍微玩一阵子
 
+
+*****
+
+####  法拉  
+##### 77#         楼主| 发表于 2024-7-23 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65672270&amp;ptid=2152360" target="_blank">kurosophie 发表于 2024-7-23 11:20</a>
+最后两个月肝了一下，还是有点遗憾的，没有全员80，大部分术技也没有满强化，魔镜也差1个。下午离线版出来 ...</blockquote>
+唉，怪我这段时间沉迷打牌，回过神来已经要死了，只拉满了几个喜欢的角色
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

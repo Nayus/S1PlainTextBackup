@@ -689,3 +689,12 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 78#       发表于 2024-7-23 17:14
+
+预告关服后载下来当抽卡游戏消遣，硬还原战斗系统对手游来说好像没什么魅力<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">剧情也挺水的，人物设计上イクス感觉还不如コダマ
+最后填了个问卷讨要pc上的高清top，全部资源拉满了クレミン就删游戏了
+

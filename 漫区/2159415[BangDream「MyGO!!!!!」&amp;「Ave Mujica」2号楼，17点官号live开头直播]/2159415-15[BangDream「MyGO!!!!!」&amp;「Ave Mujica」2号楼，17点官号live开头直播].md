@@ -1899,3 +1899,21 @@ https://www.youtube.com/shorts/vUP ...</blockquote>
 李和弄的照片分别是谁拍的，拍弄的人技术有点一般啊</blockquote>
 没有其他人在这个地方的照片，那很大可能性就是她们两个互相拍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20901#       发表于 2024-7-23 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674172&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-23 14:51</a>
+
+没有其他人在这个地方的照片，那很大可能性就是她们两个互相拍的</blockquote>
+说不定其他人的照片还没发呢，我比较倾向于她们在上海都是绑定一起出去玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20902#       发表于 2024-7-23 15:04
+
+破案了应该是米泽拍的，李子写了alt<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

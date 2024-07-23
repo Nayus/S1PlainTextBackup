@@ -698,3 +698,26 @@ drug问题是经济衰退的副产品才对吧
 
 目前来看遏制毒品最简单的方法还是把境内毒贩子统统拉去打靶，境外的派特种部队斩首。
 
+
+*****
+
+####  lipo  
+##### 61#       发表于 2024-7-23 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65676152&amp;ptid=2192453" target="_blank">vaststars 发表于 2024-7-23 18:46</a>
+美国那玩意说他是小政府真的比较亏心。
+
+毒品问题是设计到太多部门的利益没法管，cia经过多轮瞎搞已经变成毒 ...</blockquote>
+sop自己就是毒窝
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  bankofsoul  
+##### 62#       发表于 2024-7-23 19:24
+
+<blockquote>dicktt 发表于 2024-7-23 14:22
+看了《火线》以后，就觉得美国现行体制下锈带的毒品问题根本是无解的</blockquote>
+提醒到我了，刚好b站上线了火线，正好重温一遍。
+

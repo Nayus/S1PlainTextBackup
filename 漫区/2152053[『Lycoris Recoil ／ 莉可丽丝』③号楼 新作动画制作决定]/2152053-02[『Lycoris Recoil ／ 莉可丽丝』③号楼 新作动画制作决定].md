@@ -556,3 +556,13 @@ TVアニメ「リコリス・リコイル」の監督を務めた足立慎吾の
 
 短片说不会等太久的至少年内应该会放出点，动画二期说老实话从建立文件夹到放一般都需要个2-3年起码，25年内能公布时间就算胜利了，日本动画制作就这样没办法
 
+
+*****
+
+####  Saber琪  
+##### 1944#       发表于 2024-7-24 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679115&amp;ptid=2152053" target="_blank">yangun22 发表于 2024-7-24 01:11</a>
+短片说不会等太久的至少年内应该会放出点，动画二期说老实话从建立文件夹到放一般都需要个2-3年起码，25年 ...</blockquote>
+“不会等太久”真的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -873,3 +873,25 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 你装备了吗 要在刀锷那个界面把弓技能装上才行</blockquote>
 啊谢谢，原来如此，困扰我直到一周目通关都没有解决的问题终于消失了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红夜殇雨  
+##### 151#       发表于 2024-7-23 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65667596&amp;ptid=2140223" target="_blank">幻想菩薩 发表于 2024-7-22 20:33</a>
+
+这在哪里打 二周目吗？</blockquote>
+二周目最终boss真结局
+
+*****
+
+####  Garmr  
+##### 152#       发表于 2024-7-23 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65668863&amp;ptid=2140223" target="_blank">lbb3313725 发表于 2024-7-22 22:39</a>
+PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380多港币</blockquote>
+有号的话日服4990日元带中文。。。
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

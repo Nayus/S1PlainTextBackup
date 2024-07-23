@@ -254,3 +254,12 @@ Image_1721365929029.jpg
 
 歌曲将于7/23 0点（AM/itunes是按服务器所在局域的0点）上架销售。
 
+
+*****
+
+####  lunaticfool  
+##### 5713#       发表于 2024-7-23 21:50
+
+<img src="https://p.sda1.dev/18/ba71e67752e35c708f25d1c86b0ca25b/IMG_CMP_265182082.jpeg" referrerpolicy="no-referrer">
+紫月这套也太萌了。相比hnn款就有点普
+

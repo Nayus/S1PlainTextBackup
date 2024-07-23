@@ -73,3 +73,13 @@
 
 恁不要过来呀<img src="https://static.saraba1st.com/image/smiley/carton2017/366.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  抽烟的猴  
+##### 565#       发表于 2024-7-23 21:49
+
+<blockquote>卡拉德利姆 发表于 2024-7-21 22:02
+说来说去 这游戏最大的问题还是没有好看的妹子 连个能吸引眼球的看板娘都没有 3d建模甚至还停留在p5水平 ...</blockquote>
+比p5还是好一丢丢的，p5s水平吧
+

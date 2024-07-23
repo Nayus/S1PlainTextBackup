@@ -1973,3 +1973,29 @@ o_s咖啡店
 
 感觉李子会在fmt上唱有梦好甜蜜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 20908#       发表于 2024-7-23 19:01
+
+亞瑟神<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/23/190126fgcv20zz4c4pvd2d.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Arthur.c(@CARTHUR_X)_20240723-110002_1815703412325208537_photo-0.jpg</strong> (338.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 19:01 上传
+
+<img src="https://img.saraba1st.com/forum/202407/23/190128skc4rsyvzw1grz4c.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_Arthur.c(@CARTHUR_X)_20240723-110002_1815703412325208537_photo-1.jpg</strong> (182.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-23 19:01 上传
+
+[https://x.com/CARTHUR_X/status/1815703412325208537](https://x.com/CARTHUR_X/status/1815703412325208537)
+

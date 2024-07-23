@@ -63,3 +63,13 @@
 
 让玩家们大吃一惊的选择==确实
 
+
+*****
+
+####  whzfjk  
+##### 564#       发表于 2024-7-23 18:46
+
+<blockquote>《暗喻幻想》的故事主题是“不安”，桥野桂认为未经历的事情会带来不安，只要不踏出下一步，人也永远无法拂去不安感。</blockquote>
+
+恁不要过来呀<img src="https://static.saraba1st.com/image/smiley/carton2017/366.png" referrerpolicy="no-referrer">
+

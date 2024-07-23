@@ -31,3 +31,12 @@
 
 手动挡这块看你个人喜好，如果只有手柄想继续深入下去的话练练无妨。我平时电脑有方向盘玩GT7只有手柄的话，开自动档都能做到驾照金牌和线上计时基本金牌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  最后的要塞  
+##### 1862#       发表于 2024-7-23 08:16
+
+谢谢大佬们的回复，我还想问个问题<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把握会不一样。对于想练技术有推荐的视角不？
+

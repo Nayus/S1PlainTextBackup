@@ -657,3 +657,14 @@ drug问题是经济衰退的副产品才对吧
 
 何况是在成瘾品选择面那么广泛的美国
 
+
+*****
+
+####  spf54321  
+##### 57#       发表于 2024-7-23 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675378&amp;ptid=2192453" target="_blank">十二月 发表于 2024-7-23 17:18</a>
+
+把槟榔出口到美国有搞头吗</blockquote>
+加拿大人嘴太大，出口到加拿大有搞头
+

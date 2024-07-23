@@ -421,3 +421,16 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 那么前辈，你的心上人留在你身边了吗，就是那个叫什么爱的</blockquote>
 我就讨厌你这种直觉敏锐的小鬼
 
+
+*****
+
+####  HANDAIYV  
+##### 1946#       发表于 2024-7-23 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675198&amp;ptid=2162354" target="_blank">ダイヤモンド 发表于 2024-7-23 16:56</a>
+
+只是贴贴是不够的，作为过来人表示光贴贴还会被偷腥猫骗走的可能，什么你就是猫……
+
+咳咳，教你几招使用 ...</blockquote>
+可是你那边不只有小三啊，小四小五小六都排着队呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

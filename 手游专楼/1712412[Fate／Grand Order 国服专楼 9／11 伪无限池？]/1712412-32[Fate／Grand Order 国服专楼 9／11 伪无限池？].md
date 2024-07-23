@@ -32,3 +32,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天开始罐子别打了，25更新后有ap减半和牵绊额外加成
 
+
+*****
+
+####  苍蓝之枪  
+##### 46528#       发表于 2024-7-23 23:04
+
+可是体力留着也没别的事干，继续刷以太蓄光体么
+

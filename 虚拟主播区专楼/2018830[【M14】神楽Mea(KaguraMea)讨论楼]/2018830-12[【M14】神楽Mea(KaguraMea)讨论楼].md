@@ -4346,3 +4346,29 @@ B限熟肉杂谈部分里 主播的zqsg真是太美味了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  呓亘  
+##### 16991#       发表于 2024-7-22 01:26
+
+我猜八月前没有独播 大概是为了处理转播的事？
+
+*****
+
+####  sino__unnko3  
+##### 16992#       发表于 2024-7-22 12:19
+
+这个点赞速度大概率连点器或者(人工）连点罢，懒咩估计没咋看内容<img src="https://p.sda1.dev/18/66ed09e2ed28c34f326113d5d4c7c6f1/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  sino__unnko3  
+##### 16993#       发表于 2024-7-23 12:08
+
+直播变看这人什么时候起床了<img src="https://p.sda1.dev/18/5359c50f41b9ae2fa5ccb71d4c40fe5e/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

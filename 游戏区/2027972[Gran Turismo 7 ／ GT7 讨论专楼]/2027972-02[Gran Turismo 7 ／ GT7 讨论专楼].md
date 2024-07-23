@@ -52,3 +52,20 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  droglo  
+##### 1864#       发表于 2024-7-23 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65670594&amp;ptid=2027972" target="_blank">最后的要塞 发表于 2024-7-23 08:16</a>
+
+谢谢大佬们的回复，我还想问个问题
+
+刚开始练车是不是应该固定一个视角？我感觉切换视角之后对入湾时机的把 ...</blockquote>
+第一人称看点位会清楚一点，而且攻略都是用这个视角来做的，基本还是推荐用这个视角。
+
+其他的话，车内视角只适合VR。第三人称适合放松，边跑边观赏你的车……
+
+另外自动挡和手动挡有一点和现实开车一样，就是手动挡会更有掌控感，玩起来更带劲。
+

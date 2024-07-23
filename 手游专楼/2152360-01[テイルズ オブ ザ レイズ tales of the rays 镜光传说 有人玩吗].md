@@ -709,3 +709,14 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 预告关服后载下来当抽卡游戏消遣，硬还原战斗系统对手游来说好像没什么魅力剧情也挺水的，人物设计上イクス ...</blockquote>
 因为系统毫无深度，而且自从增加了一个暴击槽之后，这游戏彻底成了叠活动加成凹暴击的垃圾卡牌游戏，动作系统几乎只能在试炼场里体现
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 80#       发表于 2024-7-23 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678199&amp;ptid=2152360" target="_blank">法拉 发表于 2024-7-23 22:50</a>
+因为系统毫无深度，而且自从增加了一个暴击槽之后，这游戏彻底成了叠活动加成凹暴击的垃圾卡牌游戏，动作 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我很烦那个莫名其妙的跑图部分，前一个死的astaria也是一样的臭毛病，战斗内容是纸片对撞也就算了硬要整个跑地图拿点蝇头小利，哪怕全auto也很浪费时间
+还有感觉大部分精灵镜装备都很难看，虽然我就做了两个完凸的
+

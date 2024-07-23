@@ -4087,3 +4087,16 @@ CM发了两个，也该发一个PV了</blockquote>
 
 该介绍系统了。
 
+
+*****
+
+####  酷乐  
+##### 1856#       发表于 2024-7-23 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65663732&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-7-22 13:42</a>
+
+刚特意试了下gigapixel的demo，拉出来的图还不如waifu2x平滑顺眼是要咋设置
+
+—— 来自 S1Fun ...</blockquote>
+你用的哪张原图？能发一下吗
+

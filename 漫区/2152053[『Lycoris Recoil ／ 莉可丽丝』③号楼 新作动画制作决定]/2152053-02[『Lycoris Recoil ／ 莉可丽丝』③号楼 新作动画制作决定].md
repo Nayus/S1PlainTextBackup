@@ -481,3 +481,51 @@ AI弄的，在twi翻到 ...</blockquote>
 
 二期建文件夹之后在做但现在还拿不出啥能给人看的东西，只能先做点小短片给大家解个馋，然后继续联动出周边圈钱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1937#       发表于 2024-7-23 23:26
+
+爱出不出，反正没新动画不给草台送钱<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a85982313  
+##### 1938#       发表于 2024-7-23 23:26
+
+就这就这？
+
+*****
+
+####  意义不明用户名  
+##### 1939#       发表于 2024-7-23 23:28
+
+还以为能端出档期宣布pv了(
+就继续吊着日本蒜人钱包罢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1940#         楼主| 发表于 2024-7-23 23:28
+
+喫茶リコリコを舞台に、千束やたきなたちの新たな日常を描く6本のショートムービーが制作される。
+
+TVアニメ「リコリス・リコイル」の監督を務めた足立慎吾のもとで、6本それぞれ異なるクリエイターがコンテ・演出を担当し、中にはキャラクターデザインのいみぎむるが脚本を担当するエピソードも。公開時期や詳細は後日アナウンスされる。
+<img src="https://p.sda1.dev/18/8d97b62a08bd812db9f167972e8db371/20240723_232326.jpg" referrerpolicy="no-referrer">
+
+『 #リコリコ プロヂュース
+
+　 2周年記念配信 inすみだ水族館 』
+
+ ご視聴いただいた皆さまありがとうございました🙇‍♂️
+
+皆さまの応援があって、
+
+#リコリコ2周年 を迎えることができました✨
+
+今後の展開もお楽しみに👀！
+<img src="https://p.sda1.dev/18/d18558b1a2d0292614d792ed7ac3a0b3/20240723_232433.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/fb84a59e72dfcc93c4631823aa89519d/20240723_232436.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c02db46b19d06dbd1b1a01eeda36d494/20240723_232438.jpg" referrerpolicy="no-referrer">
+

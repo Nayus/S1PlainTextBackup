@@ -1505,3 +1505,27 @@ Nagi一专10.16，全部作词担当
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 20649#       发表于 2024-7-23 20:58
+
+猜一单，结果发一专<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">还有一条通知那就继续猜1st live
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+
+
+*****
+
+####  csolfans  
+##### 20650#       发表于 2024-7-23 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65677388&amp;ptid=2078110" target="_blank">starring 发表于 2024-7-23 20:58</a>
+猜一单，结果发一专还有一条通知那就继续猜1st live
+
+—— 来自 鹅球 v3.1.88-alpha ...</blockquote>
+中了，1st live:11/4
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -410,3 +410,14 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 咳咳，教你几招使用 ...</blockquote>
 那么前辈，你的心上人留在你身边了吗，就是那个叫什么爱的<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ダイヤモンド  
+##### 1945#       发表于 2024-7-23 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65676982&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-7-23 20:14</a>
+
+那么前辈，你的心上人留在你身边了吗，就是那个叫什么爱的</blockquote>
+我就讨厌你这种直觉敏锐的小鬼
+

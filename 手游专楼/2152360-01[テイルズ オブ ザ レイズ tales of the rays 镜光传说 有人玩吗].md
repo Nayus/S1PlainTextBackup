@@ -698,3 +698,14 @@ blue earth，全外传co，新池免费十连，你游真的一股子要寿终�
 预告关服后载下来当抽卡游戏消遣，硬还原战斗系统对手游来说好像没什么魅力<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">剧情也挺水的，人物设计上イクス感觉还不如コダマ
 最后填了个问卷讨要pc上的高清top，全部资源拉满了クレミン就删游戏了
 
+
+*****
+
+####  法拉  
+##### 79#         楼主| 发表于 2024-7-23 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675341&amp;ptid=2152360" target="_blank">克苏鲁系青骑士 发表于 2024-7-23 17:14</a>
+
+预告关服后载下来当抽卡游戏消遣，硬还原战斗系统对手游来说好像没什么魅力剧情也挺水的，人物设计上イクス ...</blockquote>
+因为系统毫无深度，而且自从增加了一个暴击槽之后，这游戏彻底成了叠活动加成凹暴击的垃圾卡牌游戏，动作系统几乎只能在试炼场里体现
+

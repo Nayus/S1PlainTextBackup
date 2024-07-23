@@ -863,3 +863,13 @@ PC的XBOX版无法长按LT射箭，刚才刷B站遇到一个跟我同样问题�
 
 PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380多港币<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仿身泪滴  
+##### 150#       发表于 2024-7-23 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65668396&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-7-22 21:53</a>
+你装备了吗 要在刀锷那个界面把弓技能装上才行</blockquote>
+啊谢谢，原来如此，困扰我直到一周目通关都没有解决的问题终于消失了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

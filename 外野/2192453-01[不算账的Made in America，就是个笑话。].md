@@ -779,3 +779,14 @@ sop自己就是毒窝
 死一个毒贩还有无数毒贩，阿美莉卡最大的毒贩在cia、在fbi，在国会山，没救的…… ...</blockquote>
 哪轮得到CIA，FBI，美军拿军机贩毒，谁能管的了
 
+
+*****
+
+####  wxhcr  
+##### 68#       发表于 2024-7-23 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673848&amp;ptid=2192453" target="_blank">白影 发表于 2024-7-23 14:14</a>
+
+这回答也很天真啊……毒品是社区就能解决的？这问题哪怕全国上下齐心也是难以攻克的问题啊 ...</blockquote>
+你看反了吧，他就是说因为这帮人相信这个，所以禁不了。
+

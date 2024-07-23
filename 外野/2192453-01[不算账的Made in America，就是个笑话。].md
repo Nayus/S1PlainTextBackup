@@ -721,3 +721,24 @@ sop自己就是毒窝
 看了《火线》以后，就觉得美国现行体制下锈带的毒品问题根本是无解的</blockquote>
 提醒到我了，刚好b站上线了火线，正好重温一遍。
 
+
+*****
+
+####  板蓝根汽水  
+##### 63#       发表于 2024-7-23 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673855&amp;ptid=2192453" target="_blank">dpdwx 发表于 2024-7-23 14:15</a>
+
+你还真别说 谁能解决下湖南的槟榔问题</blockquote>
+马上收归国有，和成天下和和天下本来就是一回事
+
+*****
+
+####  logiccat  
+##### 64#       发表于 2024-7-23 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673984&amp;ptid=2192453" target="_blank">枯风瘦雪 发表于 2024-7-23 14:29</a>
+
+今年的槟榔病害应该影响就很大了</blockquote>
+每年能固定返场吗？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+

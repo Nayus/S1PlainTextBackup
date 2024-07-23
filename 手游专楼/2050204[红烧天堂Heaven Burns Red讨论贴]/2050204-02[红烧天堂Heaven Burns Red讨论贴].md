@@ -911,3 +911,13 @@ e341kwz8cvkmo11o
 
 刚开始玩，感觉活动商店搬不完，有什么刷起来很快的办法吗
 
+
+*****
+
+####  chivalry  
+##### 1586#       发表于 2024-7-23 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65675871&amp;ptid=2050204" target="_blank">无聊者X 发表于 2024-7-23 18:09</a>
+刚开始玩，感觉活动商店搬不完，有什么刷起来很快的办法吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能打高难的就好刷，但是我当时日服入坑的时候已经有孔明和星罗了，活动 boss 好打的一逼，现在完全不会了
+

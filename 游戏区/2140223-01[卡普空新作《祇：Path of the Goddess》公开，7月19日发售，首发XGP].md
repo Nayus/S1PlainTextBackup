@@ -1015,3 +1015,14 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 小物件真有意思</blockquote>
 好漂亮，这个是怎么调出来的，我现在立刻上号查看<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  幻想菩薩  
+##### 163#       发表于 2024-7-23 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678540&amp;ptid=2140223" target="_blank">仿身泪滴 发表于 2024-7-23 23:31</a>
+
+好漂亮，这个是怎么调出来的，我现在立刻上号查看</blockquote>
+绘马最右下角的【魔像】
+

@@ -1649,3 +1649,17 @@ Nagi一专10.16，全部作词担当
 💫✨💫✨💫✨💫✨💫✨💫
 <img src="https://p.sda1.dev/18/374d75f4088a620a90856c92d4842600/20240724_175009.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  we89623  
+##### 20662#       发表于 2024-7-24 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65685378&amp;ptid=2078110" target="_blank">Piano-Forest 发表于 2024-7-24 17:50</a>
+💫Liella!💫
+
+ラブライブ！シリーズ初となるTVアニメ3期の放送枠が決定しました🌟
+
+／</blockquote>
+第一个pv大概就是最近了吧？
+

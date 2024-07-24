@@ -260,3 +260,30 @@ TM的我飞鹰空对空呢<img src="https://static.saraba1st.com/image/smiley/fa
 
 新人现在入坑，有什么建议吗。。。。。
 
+
+*****
+
+####  山风短  
+##### 5079#       发表于 2024-7-24 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65685729&amp;ptid=2170852" target="_blank">godless2020 发表于 2024-7-24 18:25</a>
+新人现在入坑，有什么建议吗。。。。。</blockquote>
+还有小半个月，先把虫子n9练成熟练工
+
+*****
+
+####  dfbbymice  
+##### 5080#       发表于 2024-7-24 19:14
+
+ 本帖最后由 dfbbymice 于 2024-7-24 19:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65685729&amp;ptid=2170852" target="_blank">godless2020 发表于 2024-7-24 18:25</a>
+
+新人现在入坑，有什么建议吗。。。。。</blockquote>
+建议是武器和技术都不齐备的状态下混难6（无重甲单位）或难7（少量重甲单位），还是能玩的很欢乐的，还有就是前期少打机器人，不然你死的贼快队友也很难受。
+
+前期建议3号位武器走榴弹+补给背包流，机炮也可以就是占背包位，重机枪需要护甲BUFF加成，这些都算是比较轮椅的，技术好了可以去试试飞矛什么的，喷火器对虫子专用挺好
+
+1号位枪的话目前选择挺多的，一个个试试，比较轮椅的武器虫子是火喷和电喷，机器人是离子喷和焦土，但都是债券里面的和最后才能解锁的武器你还用不了，可以去捡捡队友的武器试试。
+
+债券的话各有优劣吧，毕竟要更新了不知道武器会不会有变动，超级货币就先屯着吧。
+

@@ -5258,3 +5258,24 @@ pm没做大地图前能够年货。八代搞了之后就做不动了
 
 都搞这个了肯定不止，感觉每人至少一个吧。
 
+
+*****
+
+####  Aeons  
+##### 1963#       发表于 2024-7-25 00:23
+
+哦，第二个可能是参考 我が母の教え給いし歌，基本对的上，有几个字感觉有点糊不好说。
+
+*****
+
+####  古畑任三郎2015  
+##### 1964#       发表于 2024-7-25 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688482&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-25 00:11</a>
+惊了，你这waifu2x效果确实好啊，gigapixel六个模型放大的效果没一个比得上的，最大的缺陷是没法还原大少 ...</blockquote>
+我是直接用的在线转换，3到5分钟出图<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+https://unlimited.waifu2x.net/
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

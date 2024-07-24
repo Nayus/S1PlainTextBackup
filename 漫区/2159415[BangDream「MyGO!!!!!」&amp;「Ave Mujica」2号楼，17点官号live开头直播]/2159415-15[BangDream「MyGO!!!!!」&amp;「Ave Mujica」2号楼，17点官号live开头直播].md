@@ -2130,3 +2130,11 @@ o_s咖啡店
 
 [https://x.com/mkm22111/status/1815847728058098020](https://x.com/mkm22111/status/1815847728058098020)
 
+
+*****
+
+####  星天观测  
+##### 20918#       发表于 2024-7-24 08:27
+
+祥初画师对喵初下手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

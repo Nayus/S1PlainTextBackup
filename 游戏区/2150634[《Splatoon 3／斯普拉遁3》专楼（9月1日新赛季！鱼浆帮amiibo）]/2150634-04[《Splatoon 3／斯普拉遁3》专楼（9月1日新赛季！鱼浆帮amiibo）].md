@@ -1275,3 +1275,31 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 西区预选第四也有队员被ban无法出场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raii  
+##### 4917#       发表于 2024-7-24 23:51
+
+ 本帖最后由 raii 于 2024-7-24 23:53 编辑 
+
+很适合当下喷喷民度的新闻，是该让研究所多感受下，最好加大力度
+
+西日本第三的あんこ的队友因为好友申请嘲讽的事情被大N发现被取消资格
+
+↓
+
+のりすけ的队伍顺延递补获得资格
+
+↓
+
+のりすけ队友里有ちかし
+
+↓
+
+马修举报ちかし五年前在推特发歧视言论
+
+↓
+
+ちかし光速道歉    今ここ
+

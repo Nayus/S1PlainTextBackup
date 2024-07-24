@@ -367,3 +367,11 @@ Wii上treasure还做了一部，还没玩过，不知道是否值得一玩
 感觉目前开发进度好低，游戏类型FTG的话，可选角色能做到米妮娜吗？漫画角色这么多，怕是根本排不上 ...</blockquote>
 做不到，分成两部或者超大型DLC吧，这个进度最多到崩蓝
 
+
+*****
+
+####  梅林的三角裤  
+##### 43#       发表于 2024-7-24 23:51
+
+卖相感觉在漫改游戏里都算一般的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

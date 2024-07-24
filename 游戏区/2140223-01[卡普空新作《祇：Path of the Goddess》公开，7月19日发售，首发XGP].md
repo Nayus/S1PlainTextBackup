@@ -1074,3 +1074,26 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 主角带攻大和结晶数加攻1400左右可以一箭一个小怪 再带个射速清杂效率强如鬼神 可惜我凹完无伤才发现
 
+
+*****
+
+####  manyin1  
+##### 169#       发表于 2024-7-24 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65670947&amp;ptid=2140223" target="_blank">膛线 发表于 2024-7-23 09:16</a>
+
+游戏挺好，就是要是每关一进关卡的第一个白天无限时长就更好了
+
+短短几分钟同时要给世代开路又要清浊秽又要 ...</blockquote>
+这个就是这游戏精髓又引人入胜的地方了，特别有意思<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  manyin1  
+##### 170#       发表于 2024-7-24 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674735&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-7-23 16:01</a>
+
+同时清除十个咒炎都怎么做的 二周目都没这么高怪物密度</blockquote>
+需要角力吸怪过来到鼓边，其他战力不能打小怪才行
+

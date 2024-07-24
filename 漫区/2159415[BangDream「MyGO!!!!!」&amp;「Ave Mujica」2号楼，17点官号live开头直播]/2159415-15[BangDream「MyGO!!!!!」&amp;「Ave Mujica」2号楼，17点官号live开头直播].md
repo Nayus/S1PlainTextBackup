@@ -2287,3 +2287,11 @@ V)D7HQ]I]IMRD3GM_72EHQQ.jpg
 
 怎麼shuzuku變成武士道的人了
 
+
+*****
+
+####  NODY  
+##### 20928#       发表于 2024-7-24 20:53
+
+因为是内部员工所以画得烂也不会被开，此事在型月亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

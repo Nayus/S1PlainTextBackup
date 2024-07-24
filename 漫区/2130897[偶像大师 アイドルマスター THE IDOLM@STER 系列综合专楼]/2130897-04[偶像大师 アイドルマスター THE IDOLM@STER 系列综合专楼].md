@@ -324,3 +324,13 @@ FD`2}`N41)]IKHAV]P$PP9Y_tmb.jpg
 
 太可爱了日花
 
+
+*****
+
+####  kykawaiii  
+##### 5716#       发表于 2024-7-24 20:45
+
+羽那倒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/9637dca7b16edc3caa0dc1c9d96cff7f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

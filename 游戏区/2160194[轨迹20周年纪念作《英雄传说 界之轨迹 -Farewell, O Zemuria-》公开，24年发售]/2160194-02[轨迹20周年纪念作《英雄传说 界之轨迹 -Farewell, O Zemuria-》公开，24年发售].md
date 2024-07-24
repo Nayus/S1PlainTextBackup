@@ -4438,3 +4438,92 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 界2肯定有的，期待就完了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 1888#       发表于 2024-7-24 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">3rd和创是地区篇外的外传，界轨可是本篇，本篇是有大量主线的，重要设定，角色设定与主线分离，很难想象会是一个什么逻辑完备的好剧情。
+
+*****
+
+####  ravend233  
+##### 1889#       发表于 2024-7-24 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">整个主线都写大总统的宇宙计划怎么样
+
+最后尽情期待界2
+
+*****
+
+####  a2042312  
+##### 1890#       发表于 2024-7-24 15:07
+
+主线很大可能就是打面具人和宇宙军那些事了。
+
+*****
+
+####  宛若青空  
+##### 1891#       发表于 2024-7-24 15:07
+
+左上看到黑兔在解读什么东西一样，然后下面像解读结果一样的画面，这就是界轨的刷刷刷了吧。
+
+等等，黑兔这个画面好像拉碧丝读书那个画面，所以拉碧丝那个画面果然也是在黑之庭院的系统咯
+
+*****
+
+####  ravend233  
+##### 1892#       发表于 2024-7-24 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65683787&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-24 15:07</a>
+
+左上看到黑兔在解读什么东西一样，然后下面像解读结果一样的画面，这就是界轨的刷刷刷了吧。
+
+等等，黑兔这 ...</blockquote>
+说不定是个可以换主页角色的位置，类似手游（）
+
+*****
+
+####  一步成诗  
+##### 1893#       发表于 2024-7-24 15:09
+
+主线当然还是丢表找表啊不然呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 1894#       发表于 2024-7-24 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65683809&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-24 15:09</a>
+
+主线当然还是丢表找表啊不然呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">故事线是大总统的宇宙计划，实际剧情是丢表找表打神秘面具人，完美
+
+*****
+
+####  aimujie  
+##### 1895#       发表于 2024-7-24 15:12
+
+找手表要找出ptsd啦，再来的话只能"近藤桑，我去年买了个表"<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1896#       发表于 2024-7-24 15:13
+
+ 本帖最后由 Aeons 于 2024-7-24 15:14 编辑 
+
+第三张图好像是妮娜小时候？ 最多加个备选菲莉，假设就是吧，作为封面人物过去在门里。
+
+放到3rd是什么，莉丝小时候紫苑之家剧情在门里，创是拉碧丝过去故事不是主线讲也是在门里。
+<img src="https://static.saraba1st.com/image/smiley/face/15.gif" referrerpolicy="no-referrer"> 
+
+*****
+
+####  ravend233  
+##### 1897#       发表于 2024-7-24 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不排除刷刷刷抖出来的料比主线还多
+

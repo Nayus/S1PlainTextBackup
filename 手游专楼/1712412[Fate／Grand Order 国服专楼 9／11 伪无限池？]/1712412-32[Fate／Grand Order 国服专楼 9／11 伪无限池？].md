@@ -58,3 +58,13 @@
 
 之前白纸本出来感觉大奥和虚数海留着没啥用就都点了，这几天要攒着罐头等减半结果发现日常没地方快速简单做掉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46531#       发表于 2024-7-24 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65681430&amp;ptid=1712412" target="_blank">啪嗒啪嗒嘭 发表于 2024-7-24 11:09</a>
+之前白纸本出来感觉大奥和虚数海留着没啥用就都点了，这几天要攒着罐头等减半结果发现日常没地方快速简单做 ...</blockquote>
+修炼场、狗粮QP 打两场不就可以了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

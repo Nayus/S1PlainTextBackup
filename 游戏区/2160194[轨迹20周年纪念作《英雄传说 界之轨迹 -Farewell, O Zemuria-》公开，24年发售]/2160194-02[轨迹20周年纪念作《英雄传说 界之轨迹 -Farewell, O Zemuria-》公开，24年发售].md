@@ -4682,3 +4682,23 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过你法社要是真的靠着暴力填坑一部填完，虽然估计剧情糙得没眼看但是至少一定程度展现了赶紧结束的决心，但是再拖出一个界2，路人是真不敢碰你轨了
 
+
+*****
+
+####  一步成诗  
+##### 1915#       发表于 2024-7-24 16:39
+
+你们都没想过最坏的结果吗，界1咚，明年东迷2，后年伊苏，大后年才界2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1916#       发表于 2024-7-24 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65684709&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-24 16:39</a>
+
+你们都没想过最坏的结果吗，界1咚，明年东迷2，后年伊苏，大后年才界2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东迷伊苏连发可能性不高，ACT的BOSS设计和动作系统设计比你轨还是费事多了
+
+正因为连发可能性不高所以2026这个空档期是需要一个凑数的轨填进去的
+

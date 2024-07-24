@@ -2701,3 +2701,16 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 真姨姥占比也许很小，更多是各种想钓鱼的串子，玩复辟梗的烂梗小鬼推波助澜，剧情时不时的重量级操作，中之人也不怎么营业，搞的狗粉都自我怀疑，自己都在滑坡，一来二去姨姥草木皆兵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 20960#       发表于 2024-7-25 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688658&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-25 00:49</a>
+顺便比较神奇的一点，狗在动画里已经靠超诗绊包了阶段性的饺子，但还是经常被拷打团魂问题
+
+你鸡是摆明了肯 ...</blockquote>
+去年贷款祥子众叛亲离被队友反对抗拒、“飞祥”然后遇到灯皇天神下凡埋怀里痛哭忏悔的不要太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在没怎么见了可能是中之人太过于给力了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

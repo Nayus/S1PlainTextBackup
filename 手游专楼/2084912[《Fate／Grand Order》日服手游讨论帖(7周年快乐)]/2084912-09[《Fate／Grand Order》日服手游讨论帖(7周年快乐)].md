@@ -446,3 +446,11 @@ Aniplex一单是95%，实际少了3.25%
 
 周年从者是30号出吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  quanlix  
+##### 13084#       发表于 2024-7-24 14:58
+
+今年周年活动8.3和8.4两天，周年从者8.4下午5点见
+

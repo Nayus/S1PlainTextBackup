@@ -4414,3 +4414,27 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 由手机上传
 2024-7-24 14:51 上传
 
+
+*****
+
+####  quanlix  
+##### 1885#       发表于 2024-7-24 15:01
+
+就是3rd翻版嘛
+
+*****
+
+####  ravend233  
+##### 1886#       发表于 2024-7-24 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理的话，这种形式还是比闪3那种走路到半截角色就开始抖黑历史观感正常些
+
+反正横竖都要暴力填坑了
+
+*****
+
+####  Squall25  
+##### 1887#       发表于 2024-7-24 15:03
+
+界2肯定有的，期待就完了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

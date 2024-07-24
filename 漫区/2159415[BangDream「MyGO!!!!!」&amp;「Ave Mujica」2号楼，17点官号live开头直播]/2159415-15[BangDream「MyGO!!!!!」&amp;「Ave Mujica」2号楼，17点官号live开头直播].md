@@ -2560,3 +2560,59 @@ m ...</blockquote>
 你鸡是摆明了肯定有矛盾肯定会有各种冲突的，竟然几乎没见到有人质疑过鸡的团魂问题
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 20947#       发表于 2024-7-25 01:03
+
+这个不好说是不是跟中之人有关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实不太理解团魂是什么，但是如果是说角色间关系都很好，没有人会有任何退出风险，那现阶段mygo确实不太能给人这种观感吧
+
+制作组还是太重量级了
+
+*****
+
+####  NODY  
+##### 20948#       发表于 2024-7-25 01:03
+
+ 本帖最后由 NODY 于 2024-7-25 01:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688658&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-25 00:49</a>
+
+顺便比较神奇的一点，狗在动画里已经靠超诗绊包了阶段性的饺子，但还是经常被拷打团魂问题
+
+你鸡是摆明了肯 ...</blockquote>
+因为mujica真的在搞事业，说明内部感情问题注定是不会影响事业的级别，再大能大到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mygo是喝茶乐队，闹解散就闹了，mujica闹解散是真要赔钱的，一群女高中生怎么赔得起，出道乐队这个名头就像mygo的op一样，一开始就告诉你这五个人散不了
+
+*****
+
+####  光MIKAN  
+##### 20949#       发表于 2024-7-25 01:09
+
+现在鸡确实没什么剧情，所以让三次元的团魂完成逆输出了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+幕后访谈印象里有提鸡即使台下闹崩了也不影响台上的发挥，这何尝不是一种别样的团魂
+
+
+*****
+
+####  Aendst  
+##### 20950#       发表于 2024-7-25 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688739&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-7-25 01:09</a>
+
+现在鸡确实没什么剧情，所以让三次元的团魂完成逆输出了
+
+幕后访谈印象里有提鸡即使台下闹崩了也不影响台上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有原文吗，我怎么好像没有印象
+
+*****
+
+####  极速赛车手  
+##### 20951#       发表于 2024-7-25 01:11
+
+各种黑脸剧情导致的，愣是塑造不出一个其乐融融的氛围，有人就觉得这种团魂不如蜜月期的c团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4172,3 +4172,34 @@ CM发了两个，也该发一个PV了</blockquote>
 
 好迷茫的速报，没有人物情报了吗
 
+
+*****
+
+####  ravend233  
+##### 1864#       发表于 2024-7-24 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这吗，填坑结社和一些设定坑最后果然还是选择了简单粗暴的设定糊脸
+
+
+*****
+
+####  妮贝雅  
+##### 1865#       发表于 2024-7-24 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face/140.gif" referrerpolicy="no-referrer">又有庭院吗
+
+*****
+
+####  ravend233  
+##### 1866#       发表于 2024-7-24 14:24
+
+<img src="https://img.saraba1st.com/forum/202407/24/142348sifid5hmozcfofgs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 14:23 上传
+
+大概人物就是上次官网五个人了，水死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2616,3 +2616,32 @@ mygo是喝茶乐队，闹解散就闹了，mujica闹解散是真要赔钱的，�
 
 各种黑脸剧情导致的，愣是塑造不出一个其乐融融的氛围，有人就觉得这种团魂不如蜜月期的c团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20952#       发表于 2024-7-25 01:14
+
+mygo不出道所以可以日常把闹解散当花活，或者说闹解散又能和好也是团魂的一种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mujica除非要紧跟潮流玩什么炎上商法不仲炒作，不然内部闹再大也是要回去表演的，那肯定不会是什么大事
+
+*****
+
+####  星天观测  
+##### 20953#       发表于 2024-7-25 01:15
+
+按照拷打方的说法就是，狗没有团魂指约队友出来玩都会出现人不齐的情况（所以不如有明确5人一起出去玩画面的c团）
+
+所以不说鸡没团魂难道是因为觉得队员都会听祥子的号召吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  极速赛车手  
+##### 20954#       发表于 2024-7-25 01:21
+
+拷打团魂一般伴随着c团骑脸，木箱都把c团切了还怎么骑<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+也许会有思路清奇的会从pv捂脸哭那里贷款祥子组鸡团是工作，c团才是生活<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

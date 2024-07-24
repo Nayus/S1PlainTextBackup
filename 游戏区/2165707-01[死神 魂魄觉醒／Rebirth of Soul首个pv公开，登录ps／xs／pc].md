@@ -383,3 +383,26 @@ Wii上treasure还做了一部，还没玩过，不知道是否值得一玩
 
          看来万南没给什么钱，嘛也是意料之中了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usodakedo  
+##### 45#       发表于 2024-7-25 03:07
+
+ 本帖最后由 usodakedo 于 2024-7-25 03:11 编辑 
+
+以前迷恋过死神时把各位延伸游戏玩了个遍，最后发现最好玩的是灵魂嘉年华系列和ds系列。
+对我来说如果没有千年血战篇反而是好事，起码不用再次被结局恶心到
+
+*****
+
+####  usodakedo  
+##### 46#       发表于 2024-7-25 03:08
+
+ 本帖最后由 usodakedo 于 2024-7-25 03:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65501697&amp;ptid=2165707" target="_blank">chdhdhd 发表于 2024-7-6 14:44</a>
+Treasure的两部死神ds感觉做得还挺好的。
+
+Wii上treasure还做了一部，还没玩过，不知道是否值得一玩 ...</blockquote>
+wii上那一作很烂，ds2算是财宝社做的死神游戏的巅峰了，连招系统的上限完全超过了很多漫改作品
+

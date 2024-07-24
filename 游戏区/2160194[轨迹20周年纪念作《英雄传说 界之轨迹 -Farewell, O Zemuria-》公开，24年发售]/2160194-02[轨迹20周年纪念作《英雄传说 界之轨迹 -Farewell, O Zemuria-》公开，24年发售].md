@@ -4720,3 +4720,48 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  卢迪克  
+##### 1919#       发表于 2024-7-24 16:57
+
+ 本帖最后由 卢迪克 于 2024-7-24 17:00 编辑 
+
+白毛和阿龙一样的长辫子，结社这部两个新人，应该一个中东一个东方吧
+
+<img src="https://img.saraba1st.com/forum/202407/24/165658a4bfv99myat9t9f4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240724_165633.jpg</strong> (8.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 16:56 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/165703ghu1uqquwfrca7f0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240724_165603_edit_248813457160709.jpg</strong> (87.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 16:57 上传
+
+
+*****
+
+####  卢迪克  
+##### 1920#       发表于 2024-7-24 17:05
+
+面具人也是长辫子
+
+<img src="https://img.saraba1st.com/forum/202407/24/170535d1xe8aw874ab7e7e.jpg" referrerpolicy="no-referrer">
+
+<strong>81943E79A5D247C6585B566B13195DDF.jpg</strong> (42.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 17:05 上传
+

@@ -2645,3 +2645,41 @@ mujica除非要紧跟潮流玩什么炎上商法不仲炒作，不然内部闹�
 
 也许会有思路清奇的会从pv捂脸哭那里贷款祥子组鸡团是工作，c团才是生活<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 20955#       发表于 2024-7-25 01:26
+
+ 本帖最后由 Aendst 于 2024-7-25 01:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是C团姨姥大显神通，那没事了
+
+拿已经死掉的团说现在的团没团魂是不是有点奇怪
+
+*****
+
+####  Archlich³  
+##### 20956#       发表于 2024-7-25 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687934&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-24 22:51</a>
+
+mujica动画不一定会继续走这种每个人都表现性格负面的路线了吧，本来逐梦演艺圈打外战压力就够大了，性格再 ...</blockquote>
+mygo角色之所以有两面性，并非是她们天生精神病，而是对生活中创伤自然而然形成的反应模式。换言之，出来混了社会，自然学会戴上假面。
+
+所以直接作为社会人活动的mujica各位的面具只会更厚更重，重到演出时干脆直接戴上。内心压力之大，从天堂坠入炼狱的小祥自不待言，初华和睦也已经够明显了吧。
+
+
+*****
+
+####  极速赛车手  
+##### 20957#       发表于 2024-7-25 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688797&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-25 01:26</a>
+
+原来是C团姨姥大显神通，那没事了
+
+拿已经死掉的团说现在的团没团魂是不是有点奇怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得问姨姥为什么会这么想才行
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我是真见过一个二创作者只画c团，主页背景直接放的soyo切割宣言
+

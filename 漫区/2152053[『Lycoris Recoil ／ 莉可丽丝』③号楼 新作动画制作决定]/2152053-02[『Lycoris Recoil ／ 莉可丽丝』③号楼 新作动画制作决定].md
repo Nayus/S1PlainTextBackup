@@ -587,3 +587,17 @@ TVアニメ「リコリス・リコイル」の監督を務めた足立慎吾の
 昨天声优提到放出来的那段配音已经配好了，再加上放出来的部分基本都上色后期都弄好了，考虑长度放上来的 ...</blockquote>
 是嘛，你看看魔夜pv 也是这样的，甚至比泥蒜更长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1947#       发表于 2024-7-24 10:29
+
+<img src="https://img.saraba1st.com/forum/202407/24/102922mpqpa6j6xx5s6ocs.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-07-24 102756.jpg</strong> (461.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 10:29 上传
+

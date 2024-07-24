@@ -2683,3 +2683,13 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得问姨姥为什么会这么想才行
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我是真见过一个二创作者只画c团，主页背景直接放的soyo切割宣言
 
+
+*****
+
+####  NODY  
+##### 20958#       发表于 2024-7-25 01:37
+
+姨姥拿c团唱k说团魂的时候好像都忘了那次她们其实是去练习而不是去玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有我总感觉姨姥贷款和解以后祥子一个电话能把c团全约出去玩的时候好像都忘了立希也是c团的人
+

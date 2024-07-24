@@ -123,3 +123,11 @@
 
 角色一眼没有让人入坑的欲望<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dazzle  
+##### 570#       发表于 2024-7-25 07:28
+
+2024年了一个主卖角色的游戏居然没有全语音，不知道是怎么想的
+

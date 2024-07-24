@@ -2714,3 +2714,98 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 去年贷款祥子众叛亲离被队友反对抗拒、“飞祥”然后遇到灯皇天神下凡埋怀里痛哭忏悔的不要太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 现在没怎么见了可能是中之人太过于给力了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20961#       发表于 2024-7-25 01:15
+
+按照拷打方的说法就是，狗没有团魂指约队友出来玩都会出现人不齐的情况（所以不如有明确5人一起出去玩画面的c团）
+
+所以不说鸡没团魂难道是因为觉得队员都会听祥子的号召吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 20962#       发表于 2024-7-25 01:21
+
+拷打团魂一般伴随着c团骑脸，木箱都把c团切了还怎么骑<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+也许会有思路清奇的会从pv捂脸哭那里贷款祥子组鸡团是工作，c团才是生活<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 20963#       发表于 2024-7-25 01:26
+
+ 本帖最后由 Aendst 于 2024-7-25 01:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是C团姨姥大显神通，那没事了
+
+拿已经死掉的团说现在的团没团魂是不是有点奇怪
+
+*****
+
+####  Archlich³  
+##### 20964#       发表于 2024-7-25 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687934&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-24 22:51</a>
+
+mujica动画不一定会继续走这种每个人都表现性格负面的路线了吧，本来逐梦演艺圈打外战压力就够大了，性格再 ...</blockquote>
+mygo角色之所以有两面性，并非是她们天生精神病，而是对生活中创伤自然而然形成的反应模式。换言之，出来混了社会，自然学会戴上假面。
+
+所以直接作为社会人活动的mujica各位的面具只会更厚更重，重到演出时干脆直接戴上。内心压力之大，从天堂坠入炼狱的小祥自不待言，初华和睦也已经够明显了吧。
+
+*****
+
+####  极速赛车手  
+##### 20965#       发表于 2024-7-25 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688797&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-25 01:26</a>
+
+原来是C团姨姥大显神通，那没事了
+
+拿已经死掉的团说现在的团没团魂是不是有点奇怪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你得问姨姥为什么会这么想才行
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我是真见过一个二创作者只画c团，主页背景直接放的soyo切割宣言
+
+*****
+
+####  NODY  
+##### 20966#       发表于 2024-7-25 01:37
+
+姨姥拿c团唱k说团魂的时候好像都忘了那次她们其实是去练习而不是去玩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有我总感觉姨姥贷款和解以后祥子一个电话能把c团全约出去玩的时候好像都忘了立希也是c团的人
+
+*****
+
+####  极速赛车手  
+##### 20967#       发表于 2024-7-25 02:08
+
+真姨姥占比也许很小，更多是各种想钓鱼的串子，玩复辟梗的烂梗小鬼推波助澜，剧情时不时的重量级操作，中之人也不怎么营业，搞的狗粉都自我怀疑，自己都在滑坡，一来二去姨姥草木皆兵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 20968#       发表于 2024-7-25 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688658&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-25 00:49</a>
+顺便比较神奇的一点，狗在动画里已经靠超诗绊包了阶段性的饺子，但还是经常被拷打团魂问题
+
+你鸡是摆明了肯 ...</blockquote>
+去年贷款祥子众叛亲离被队友反对抗拒、“飞祥”然后遇到灯皇天神下凡埋怀里痛哭忏悔的不要太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在没怎么见了可能是中之人太过于给力了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 20969#       发表于 2024-7-25 05:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688842&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-25 01:37</a>
+
+姨姥拿c团唱k说团魂的时候好像都忘了那次她们其实是去练习而不是去玩的
+
+还有我总感觉姨姥贷款和解以后祥子 ...</blockquote>
+同樣是切了C團，真羨慕遺老們能放過立希，什麼時候遺老們能放過睦和祥子呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -984,3 +984,14 @@ b站填邀请码一堆白嫖，写的互助结果都填了<img src="https://stat
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  disinter  
+##### 1593#       发表于 2024-7-24 19:38
+
+ycwnwnj1nrotu9x9
+试玩一下
+
+—— 来自 vivo V2254A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

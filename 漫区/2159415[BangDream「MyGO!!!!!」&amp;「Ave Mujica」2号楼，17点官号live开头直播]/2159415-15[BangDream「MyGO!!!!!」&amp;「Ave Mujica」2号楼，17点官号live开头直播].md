@@ -2253,3 +2253,29 @@ V)D7HQ]I]IMRD3GM_72EHQQ.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/24/143405pho0cby90oyh9rfc.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  梶原ひかり  
+##### 20926#       发表于 2024-7-24 20:13
+
+<img src="https://img.saraba1st.com/forum/202407/24/201015p9laza7jfzqfgaz7.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (35.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/201308iwxk2vvv0w3106cc.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (35.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 20:13 上传
+
+武士道音乐旗下的创作者新厂牌，BM-ECHOES(BM回声)
+
+旗下艺人，梦限大(管人团品牌)、管人5人也都挂在这、Shuzuku、青木阳菜、日向大辅(男邦)、YOUSAY(男邦作曲家)
+

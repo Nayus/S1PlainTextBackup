@@ -4702,3 +4702,21 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 正因为连发可能性不高所以2026这个空档期是需要一个凑数的轨填进去的
 
+
+*****
+
+####  aimujie  
+##### 1917#       发表于 2024-7-24 16:50
+
+我倒是觉得早点完结怎么都好
+
+
+*****
+
+####  悠悠你心  
+##### 1918#       发表于 2024-7-24 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如黑之史书
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1058,3 +1058,15 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 如果美国有能解决吸毒问题的思想和组织力，那这个新思想和组织力还真有可能 ...</blockquote>
 还真是。
 
+
+*****
+
+####  duofriedrich  
+##### 94#       发表于 2024-7-24 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674083&amp;ptid=2192453" target="_blank">章文元 发表于 2024-7-23 14:38</a>
+美国投资公司的可以提供一点，很多时候各种在我们看起来奇奇怪怪的投资，如果你把它当作一个系列的投资包或 ...</blockquote>
+我不太懂，怎么听上去像投资公司，财团，地方政府合谋搞的一场将风险转嫁到散户的庞氏骗局？
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

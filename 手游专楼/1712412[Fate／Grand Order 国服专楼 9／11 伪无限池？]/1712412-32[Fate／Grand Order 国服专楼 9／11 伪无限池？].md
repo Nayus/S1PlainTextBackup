@@ -50,3 +50,11 @@
 可是体力留着也没别的事干，继续刷以太蓄光体么</blockquote>
 留着种苹果后面用啊
 
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46530#       发表于 2024-7-24 11:09
+
+之前白纸本出来感觉大奥和虚数海留着没啥用就都点了，这几天要攒着罐头等减半结果发现日常没地方快速简单做掉了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

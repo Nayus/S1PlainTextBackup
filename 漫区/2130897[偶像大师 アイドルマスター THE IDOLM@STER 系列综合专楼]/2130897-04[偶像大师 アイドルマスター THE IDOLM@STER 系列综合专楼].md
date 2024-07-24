@@ -334,3 +334,11 @@ FD`2}`N41)]IKHAV]P$PP9Y_tmb.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  格雷殿下  
+##### 5717#       发表于 2024-7-24 22:54
+
+哎呀，都说了，姐姐会帮妹妹报仇的
+

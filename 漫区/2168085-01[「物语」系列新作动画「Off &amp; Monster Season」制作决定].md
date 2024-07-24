@@ -840,3 +840,64 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 话说扇是打算一直呆在学校了吗？</blockquote>
 变成类似于学校不可思议的存在了
 
+
+*****
+
+####  Piano-Forest  
+##### 502#         楼主| 发表于 2024-7-24 22:49
+
+OP：[https://youtu.be/yhL7GvLbSyw](https://youtu.be/yhL7GvLbSyw)
+
+<img src="https://p.sda1.dev/18/9aac46713dc4e8ccfd4c9d9c118134ec/20240724_223425.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sasurainopink/status/1814652976696598558](https://x.com/sasurainopink/status/1814652976696598558)
+
+『#物語シリーズ       オフ&amp;モンスターシーズン』撫物語OPに作画監督で参加させていただきました！
+
+ご視聴ありがとうございました！(*´`)
+<img src="https://p.sda1.dev/18/081a728206b8532e2b3ff09c1cd84da8/20240724_223755.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/shun420820/status/1814656847007134183](https://x.com/shun420820/status/1814656847007134183)
+
+撫物語OP　LO原画で参加させていただきましたー！
+
+よろしくお願いいたします！
+<img src="https://p.sda1.dev/18/74bb1a0f9a0476e4c0c194a8b14d345a/20240724_223809.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/jusjusojus/status/1814676083536764994](https://x.com/jusjusojus/status/1814676083536764994)
+
+撫物語OP最初と最後とか3カットやってました
+
+みてね～
+<img src="https://p.sda1.dev/18/8151ea9cb68498e9c903baf292560849/20240724_223804.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kurushisou/status/1814692329695109449](https://x.com/kurushisou/status/1814692329695109449)
+
+撫物語OP少し原画描きました！よろしくお願いします！
+<img src="https://p.sda1.dev/18/48f552c4061c7006e36c0bc16c5e4597/20240724_223812.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/miacci0/status/1814713151579168986](https://x.com/miacci0/status/1814713151579168986)
+
+#物語シリーズ    撫物語OP原画やってました〜〜
+
+お手玉とパペットのカットやりました。
+
+化物語放送時から観てて関われる機会が来るとは思ってなかったので感謝です…！
+<img src="https://p.sda1.dev/18/bbaffac577b3371a0e5859688d9a569e/20240724_223827.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/jurayuraaa/status/1814852237501325425](https://x.com/jurayuraaa/status/1814852237501325425)
+
+ちょっと遅れますが昨日放送された撫物語OP原画で参加させていただきました！
+
+余接と撫子がドアを飛び出し、撫子たちが駆け寄ってきてくる2カットと、通りゃんせしている撫子たちのカットを担当しました。大久保さんの絵コンテは素晴らしいので参加できて感謝します🙇‍♂️
+<img src="https://p.sda1.dev/18/1b9b0019d7f72d04607f7e8b399332cc/20240724_223846.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/hinari080812/status/1814653989494853954](https://x.com/hinari080812/status/1814653989494853954)
+
+『物語シリーズ オフ＆モンスターシーズン』第１話
+
+#愚物語「つきひアンドゥ」、第３話 ＃撫物語 「なでこドロー其ノ貮」に二原で参加しました！
+
+ありがとうございます🙏✨
+<img src="https://p.sda1.dev/18/9e2df92285015dd723554e8167a2b3fe/20240724_223800.jpg" referrerpolicy="no-referrer">
+

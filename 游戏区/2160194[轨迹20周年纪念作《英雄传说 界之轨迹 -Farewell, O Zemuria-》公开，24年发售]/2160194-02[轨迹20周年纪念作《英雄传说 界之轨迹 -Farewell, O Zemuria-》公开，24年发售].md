@@ -5208,3 +5208,53 @@ pm没做大地图前能够年货。八代搞了之后就做不动了
 
 顺便看来这个背景就是类似真梦幻回廊大家集结的据点了，像是城堡里…
 
+
+*****
+
+####  酷乐  
+##### 1959#       发表于 2024-7-25 00:11
+
+ 本帖最后由 酷乐 于 2024-7-25 00:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65680574&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-7-24 10:04</a>
+
+20周年官网抠下来的
+
+论坛助手,iPhone</blockquote>
+惊了，你这waifu2x效果确实好啊，gigapixel六个模型放大的效果没一个比得上的，最大的缺陷是没法还原大少的瞳色，而且我运行waifu2x的效果都没你那张好，能分享一下你的软件吗？
+
+*****
+
+####  Aeons  
+##### 1960#       发表于 2024-7-25 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688446&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-25 00:04</a>
+
+你到底是？</blockquote>
+第三个是守护骑士吧，我印象比较深，赫灼と氷焱。
+
+『我が深淵にて震えし赫灼の刻印よ──』
+
+『我が深淵にて凍えし氷焱の刻印よ──』
+
+
+*****
+
+####  宛若青空  
+##### 1961#       发表于 2024-7-25 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688484&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-25 00:11</a>
+第三个是守护骑士吧，我印象比较深，赫灼と氷焱。
+
+『我が深淵にて震えし赫灼の刻印よ──』
+
+『我が深淵に ...</blockquote>
+冰火娃的故事，加上其他三个保底六个额外篇章了
+
+
+*****
+
+####  Aeons  
+##### 1962#       发表于 2024-7-25 00:14
+
+都搞这个了肯定不止，感觉每人至少一个吧。
+

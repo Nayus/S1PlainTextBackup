@@ -107,3 +107,11 @@
 说来说去 这游戏最大的问题还是没有好看的妹子 连个能吸引眼球的看板娘都没有 3d建模甚至还停留在p5水平 ...</blockquote>
 不光妹子，反正在我看来男主也挺不好看的<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 568#       发表于 2024-7-25 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哈哈哈哈，角色篇，就这堆丑得一坨的东西还角色篇，劝退篇吧。
+

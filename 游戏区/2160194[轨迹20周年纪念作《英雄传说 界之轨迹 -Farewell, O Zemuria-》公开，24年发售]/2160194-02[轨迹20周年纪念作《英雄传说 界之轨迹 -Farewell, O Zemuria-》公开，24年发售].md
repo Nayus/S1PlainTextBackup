@@ -4144,3 +4144,13 @@ CM发了两个，也该发一个PV了</blockquote>
 
 本周情报周几出
 
+
+*****
+
+####  宛若青空  
+##### 1861#       发表于 2024-7-24 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65680592&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-7-24 10:05</a>
+本周情报周几出</blockquote>
+今天中午或下午文字情报，晚上11点出图
+

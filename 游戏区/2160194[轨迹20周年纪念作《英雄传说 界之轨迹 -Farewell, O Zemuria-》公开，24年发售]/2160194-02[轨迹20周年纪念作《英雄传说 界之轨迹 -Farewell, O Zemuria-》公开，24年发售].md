@@ -4765,3 +4765,26 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 由手机上传
 2024-7-24 17:05 上传
 
+
+*****
+
+####  一步成诗  
+##### 1921#       发表于 2024-7-24 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65684748&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-24 16:43</a>
+
+东迷伊苏连发可能性不高，ACT的BOSS设计和动作系统设计比你轨还是费事多了
+
+正因为连发可能性不高所以2026 ...</blockquote>
+什么叫填档期专用作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1922#       发表于 2024-7-24 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65684998&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-24 17:09</a>
+
+什么叫填档期专用作啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是顺理成章复用素材IP的含金量啊，而且回合制的BOSS设计和人物技能设计也没ACT那么费事，真像摆烂办法可多了，但是ACT摆烂就会直接影响游戏体验
+

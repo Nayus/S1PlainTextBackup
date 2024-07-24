@@ -2173,3 +2173,66 @@ o_s咖啡店
 
 其实我就是想让大三角的这条边也能连起来，（暴言）每条边都好磕的三角形才是稳固的三角形
 
+
+*****
+
+####  影伴光生  
+##### 20923#       发表于 2024-7-24 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重复的几张普卡看了下小黄鱼，也没啥折腾的必要，有人需要吗，似乎可以直接转赠？（应该提供UID就可以了）<img src="https://p.sda1.dev/18/7737e1d11233a9156f9e99312726976d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  御幸一也  
+##### 20924#       发表于 2024-7-24 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679881&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-24 08:49</a>
+
+真的吗，看看</blockquote>
+
+畫過不少，R18都有，但她換號全刪了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/24/135940hgjr5futnduf3z3y.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231205-163043_1732075037098995914_photo.jpg</strong> (130.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/135942jvzykv6677c3cq4j.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231209-183024_1733554704498700483_photo.jpg</strong> (84.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/135948lh8pw9ft8mwhps8s.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231213-071346_1734833978144887227_photo.jpg</strong> (200.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/135953hrdyg0t0z3dygkah.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231215-152353_1735682094515593518_photo.jpg</strong> (113.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 13:59 上传
+
+R18以下略
+
+<img src="https://img.saraba1st.com/forum/202407/24/135949kkdep16tit50t45o.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_ケム(@kkm338)_20231213-182737_1735003558532239686_photo.jpg</strong> (52.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 13:59 上传
+

@@ -1609,3 +1609,14 @@ Nagi一专10.16，全部作词担当
 
 <img src="https://p.sda1.dev/18/442e17f4c2eae3608ec77176e8e46ba8/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20659#       发表于 2024-7-24 14:00
+
+<img src="https://p.sda1.dev/18/cfe384888a3896e738c52a83e1fb041b/CMP_20240724135936452.jpg" referrerpolicy="no-referrer">
+场刊(一眼看去很违和
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -2411,3 +2411,46 @@ mujica当然也要解决关于自己和对人关系的问题，所以与目前�
 
 自卑和孤僻为什么会是相反的属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20936#       发表于 2024-7-24 22:41
+
+大少女乐团时代！
+
+animax不会真有鸡刺联合舞台吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 20937#       发表于 2024-7-24 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687626&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-24 22:17</a>
+
+玖羽大怎么看mygo的
+
+不过我认为并不能称之为外在和内核的相反，只是“实际上并不像看上去那样”的反差（或 ...</blockquote>
+我认为MyGO的一大优点是，不像很多作品那样，把角色的负面性视为一个需要“解决”的问题（暗示只有切除负面性的角色才值得被接纳）
+
+而是和角色的负面性和解（角色和队友都知道角色的负面性在何处，并且愿意包容这种负面性）
+
+祥子姑且不论，Mujica除祥子之外的四个人的问题恰恰是……看起来太稳定（稳重/靠谱）了，按照上面的规律，她们的负面性可能是令人震惊的
+
+ <blockquote>自卑和孤僻为什么会是相反的属性</blockquote>
+说劣等感也行，应该有很多人解释过这个问题
+
+MyGO其实没有明说立希的负面性，只停留在暗示，也许放到了Mujica里（Mujica要讲海铃就肯定要涉及她对立希的箭头）
+
+
+*****
+
+####  穗波殊  
+##### 20938#       发表于 2024-7-24 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687474&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-7-24 21:59</a>
+可能早就有人说过了，不过我想指出，在这10个人里，目前被描写过的角色都有一个共性：
+
+外表（给人的印象 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">主要是太颠覆我的人物理解了。其他角色要么在mygo就已经塑造完成或者展现了两面性，或者就是干脆没开始塑造。睦头这次颠覆人物形象确实让我吓了一跳
+

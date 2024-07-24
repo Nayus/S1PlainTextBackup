@@ -4886,3 +4886,76 @@ pm没做大地图前能够年货。八代搞了之后就做不动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真有人关心绿毛哥和雪伦小时候的故事吗，虽说一个组织，但感觉真的没有什么联系，真没活了要写木马团正常不也应该是黄金蝶和雪伦？
 
+
+*****
+
+####  宛若青空  
+##### 1933#       发表于 2024-7-24 18:59
+
+估计是要讲怎么被结社收吧
+
+
+*****
+
+####  ravend233  
+##### 1934#       发表于 2024-7-24 19:03
+
+放到杂志上的都有一个边角料级别的剧情了，实际有多少边角料我不好说
+
+界2的可能性又大幅提升了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  宛若青空  
+##### 1935#       发表于 2024-7-24 19:06
+
+<img src="https://img.saraba1st.com/forum/202407/24/190547wxzy23qxedy1ld65.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0732.jpeg</strong> (570.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/190548t49sk694jwk2s1j2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0733.jpeg</strong> (637.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/190549naxagi5796ga1ik6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0734.jpeg</strong> (588.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/190550olvptmrt12moq626.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0735.jpeg</strong> (588.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/190551u85pcmmp1p58897t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0736.jpeg</strong> (596.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/190552wlppgxskkzk6nm4k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0737.jpeg</strong> (602.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 19:05 上传
+

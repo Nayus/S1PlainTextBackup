@@ -5088,3 +5088,30 @@ set也卖光了，这下特典拿不到了
 
 按网友的不完全统计，昨晚开服1小时半后首次进服直到联动直播前才登出，然后联动结束（说是自己晕3D了提前下播）没多久又跟fbk星街一起登ark又玩到很迟
 
+
+*****
+
+####  holoan  
+##### 9326#         楼主| 发表于 2024-7-24 11:34
+
+<img src="https://img.saraba1st.com/forum/202407/24/113412evagqhl6ll01zouq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (255.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 11:34 上传
+
+准时上工
+
+以及封面谁啊？
+
+*****
+
+####  holoan  
+##### 9327#         楼主| 发表于 2024-7-24 11:37
+
+[https://x.com/tomo_momoda/status/1815870891101991414](https://x.com/tomo_momoda/status/1815870891101991414)
+
+七字母这两直播外搞什么东西，其他人都在笑你们呢
+

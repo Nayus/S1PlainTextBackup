@@ -1267,3 +1267,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 —— 来自 S1Fun</blockquote>
 我记得好像是管黑人叫monkey，还发过歧视亚裔的图片来着
 
+
+*****
+
+####  秋月孝三  
+##### 4916#       发表于 2024-7-24 22:05
+
+西区预选第四也有队员被ban无法出场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

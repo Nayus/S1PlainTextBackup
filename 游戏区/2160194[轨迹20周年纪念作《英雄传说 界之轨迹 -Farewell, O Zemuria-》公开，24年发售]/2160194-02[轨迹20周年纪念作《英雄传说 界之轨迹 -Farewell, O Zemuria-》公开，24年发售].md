@@ -4108,3 +4108,39 @@ CM发了两个，也该发一个PV了</blockquote>
 
 才想起来，设定集里问前作回归近藤点名的盖乌斯，又教会又中东，结果目前一点画面都没有。
 
+
+*****
+
+####  一步成诗  
+##### 1858#       发表于 2024-7-24 09:56
+
+这期介绍系统的话就能知道分不分线了吧
+
+
+*****
+
+####  古畑任三郎2015  
+##### 1859#       发表于 2024-7-24 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678488&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-7-23 23:26</a>
+你用的哪张原图？能发一下吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/24/100400myzj2od7yto5tot4.png" referrerpolicy="no-referrer">
+
+<strong>img_0018.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 10:04 上传
+
+20周年官网抠下来的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kojimaru  
+##### 1860#       发表于 2024-7-24 10:05
+
+本周情报周几出
+

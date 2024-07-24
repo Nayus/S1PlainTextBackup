@@ -577,3 +577,13 @@ TVアニメ「リコリス・リコイル」の監督を務めた足立慎吾の
 “不会等太久”真的嘛我不信，真不会等太久今晚放的还会就这5s嘛</blockquote>
 昨天声优提到放出来的那段配音已经配好了，再加上放出来的部分基本都上色后期都弄好了，考虑长度放上来的确不需要等太久，当然为了凑二期的时间估计慢点放出来是肯定的
 
+
+*****
+
+####  Saber琪  
+##### 1946#       发表于 2024-7-24 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679546&amp;ptid=2152053" target="_blank">yangun22 发表于 2024-7-24 07:29</a>
+昨天声优提到放出来的那段配音已经配好了，再加上放出来的部分基本都上色后期都弄好了，考虑长度放上来的 ...</blockquote>
+是嘛，你看看魔夜pv 也是这样的，甚至比泥蒜更长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

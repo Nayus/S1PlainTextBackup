@@ -4290,3 +4290,63 @@ CM发了两个，也该发一个PV了</blockquote>
 
 所以有望一作完结共和国篇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 1873#       发表于 2024-7-24 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我依旧保留你法社还要出个界2继续让玩家赤石的观点
+
+*****
+
+####  ravend233  
+##### 1874#       发表于 2024-7-24 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65683445&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-24 14:32</a>
+
+这不是顶级大便设定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没活了就这样了，直接设定集丢玩家脸上拉倒
+
+不过一堆设定摁给你藏到死最后丢出来也就是个就这，那确实不如干脆设定糊脸得了（
+
+*****
+
+####  Aeons  
+##### 1875#       发表于 2024-7-24 14:36
+
+伊苏10石碑顶多是单作回顾过去。
+
+这个我不好说了有点，之前说念经填坑，这比念经还搞笑啊。
+
+*****
+
+####  ravend233  
+##### 1876#       发表于 2024-7-24 14:38
+
+YSX那个起码还有点探索过去未知的历史的味，谜底也是一步一步揭开的
+
+你轨大概就是简单粗暴的直接解释什么是什么了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 1877#       发表于 2024-7-24 14:39
+
+这个就是类似3rd星门和创轨珠子那种吧，估计大部分是放一些本体讲不了的旧作人物小故事，留两三个放核心背景设定
+
+
+*****
+
+####  宛若青空  
+##### 1878#       发表于 2024-7-24 14:42
+
+控制虚拟形象，难道就是之前电击的小人
+
+*****
+
+####  ravend233  
+##### 1879#       发表于 2024-7-24 14:43
+
+小游戏吧，特地做了3D模型，肯定是游戏内的资产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

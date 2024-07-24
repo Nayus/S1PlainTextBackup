@@ -909,3 +909,15 @@ OP：[https://youtu.be/yhL7GvLbSyw](https://youtu.be/yhL7GvLbSyw)
 
 OP太棒了，好多抚子
 
+
+*****
+
+####  Azako  
+##### 504#       发表于 2024-7-25 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65658909&amp;ptid=2168085" target="_blank">零壹贰叁 发表于 2024-07-22 00:03:05</a>
+我的感觉是因为色彩设计换人吧
+之前一直有日比野仁参与，续终之后就是纯渡边康子负责了，老仓发色也是从 ...</blockquote>我记得续终小说封面的老苍就是这个发色，终物语动画老苍人设出来的时候还感觉挺奇怪
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

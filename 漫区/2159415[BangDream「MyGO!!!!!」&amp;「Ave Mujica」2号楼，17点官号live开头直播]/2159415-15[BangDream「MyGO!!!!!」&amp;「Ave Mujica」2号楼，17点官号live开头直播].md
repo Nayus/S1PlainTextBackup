@@ -2540,3 +2540,23 @@ m ...</blockquote>
 
 所以现在回顾一下就会有一群人拷打狗没有团魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时候真不知道这种“就算年级大了也会闹解散”的基础设定是不是真的适合邦多利的世界观
 
+
+*****
+
+####  Aendst  
+##### 20945#       发表于 2024-7-25 00:43
+
+多少沾点巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般很难想到这种反常识的设定吧
+
+甚至还在访谈里提出来，还说什么关系不好的乐队之类的，更令人不解了
+
+*****
+
+####  星天观测  
+##### 20946#       发表于 2024-7-25 00:49
+
+顺便比较神奇的一点，狗在动画里已经靠超诗绊包了阶段性的饺子，但还是经常被拷打团魂问题
+
+你鸡是摆明了肯定有矛盾肯定会有各种冲突的，竟然几乎没见到有人质疑过鸡的团魂问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -4637,3 +4637,13 @@ day1都来了
 267111314有事</blockquote>
 是下个月的安排吗？8月2号不该搞个生日直播吗？
 
+
+*****
+
+####  TiHaru  
+##### 17020#       发表于 2024-7-24 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65677174&amp;ptid=2018830" target="_blank">汇聚群光 发表于 2024-7-23 20:35</a>
+是下个月的安排吗？8月2号不该搞个生日直播吗？</blockquote>
+是下个月有事不能联动的日子
+

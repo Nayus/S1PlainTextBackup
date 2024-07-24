@@ -4350,3 +4350,67 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 小游戏吧，特地做了3D模型，肯定是游戏内的资产<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 1880#       发表于 2024-7-24 14:44
+
+我提醒一下，一般情报说有什么【重要设定】，【相关信息】这样含糊不清的描述，基本可以当做放屁，这作完了。
+不信的话，有兴趣的人可以自己去翻一下黎2初期宣传，明确提到这作会有至宝相关消息，然后实际怎么样不用我多说了吧。
+
+
+*****
+
+####  一步成诗  
+##### 1881#       发表于 2024-7-24 14:47
+
+首周保住4万就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1882#       发表于 2024-7-24 14:47
+
+这有什么完不完的，黎二说了不代表说了就等于黎二，每一作都说只能说明看不出什么花样。
+
+*****
+
+####  ravend233  
+##### 1883#       发表于 2024-7-24 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65683543&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-7-24 14:44</a>
+
+我提醒一下，一般情报说有什么【重要设定】，【相关信息】这样含糊不清的描述，基本可以当做放屁，这作完了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近藤说话基本上是瞎几把乱说的，只需要知道会有什么东西就行
+
+至于会不会暴力把坑填完，那得看还有没有界2
+
+当然我觉得有，所以估计最后发现填了一堆边角料和卖情怀的内容可能性很高
+
+
+*****
+
+####  卢迪克  
+##### 1884#       发表于 2024-7-24 14:51
+
+一毛一样，2d+语音文本，无建模
+
+<img src="https://img.saraba1st.com/forum/202407/24/145151be1er4smaeex5ebe.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240724_144307.jpg</strong> (28.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202407/24/145155e3lzpeee3d1p68dh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240724_145109.jpg</strong> (81.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 14:51 上传
+

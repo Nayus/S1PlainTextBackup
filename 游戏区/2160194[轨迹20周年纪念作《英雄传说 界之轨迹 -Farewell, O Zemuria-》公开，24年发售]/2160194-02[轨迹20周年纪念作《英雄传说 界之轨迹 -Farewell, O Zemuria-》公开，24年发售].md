@@ -5178,3 +5178,33 @@ pm没做大地图前能够年货。八代搞了之后就做不动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法从闪轨开始就没活了，落到现在这个下场是必然的结果
 
+
+*****
+
+####  宛若青空  
+##### 1958#       发表于 2024-7-25 00:04
+
+ 本帖最后由 宛若青空 于 2024-7-25 00:06 编辑 
+
+你到底是？
+
+<img src="https://img.saraba1st.com/forum/202407/25/000231ulp2a6x90y9v7q99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AF571489-5F93-4586-9400-314187B76443.jpeg</strong> (14.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 00:02 上传
+
+第一个看不太清字，第二个是年轻霸王煌都估计是阿龙的，第三个是暴灼与？(看来未必全都是视觉小说形式的）
+
+<img src="https://img.saraba1st.com/forum/202407/25/000255yi9lbv3zvqoov33t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FFC69B48-3476-4890-B4B0-954883B36618.jpeg</strong> (213.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 00:02 上传
+
+顺便看来这个背景就是类似真梦幻回廊大家集结的据点了，像是城堡里…
+

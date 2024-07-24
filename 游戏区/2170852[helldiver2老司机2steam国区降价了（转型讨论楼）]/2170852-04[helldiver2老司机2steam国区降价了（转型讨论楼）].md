@@ -311,3 +311,16 @@ TM的我飞鹰空对空呢<img src="https://static.saraba1st.com/image/smiley/fa
 
 榴弹的话，不买债券只有用性价比最高的摔炮了，打虫还行，打机器人只能说差强人意
 
+
+*****
+
+####  xinfengj  
+##### 5083#       发表于 2024-7-25 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65685729&amp;ptid=2170852" target="_blank">godless2020 发表于 2024-7-24 18:25</a>
+
+新人现在入坑，有什么建议吗。。。。。</blockquote>
+ 买游戏了么？没买的话淘宝买个高级公民版的key，随便混几场把送的老兵债券里的火喷解锁了，然后去解锁战略里的补给背包，然后就可以在东线打虫子横着走了。
+
+离你远的小虫子朝你接近扫一轮给都挂上火，走到你身边基本就都烧死了。近身了小虫打头，大虫打腿，泼水就完了。没子弹就把补给背包叫下来，然后按5给自己补子弹，吃一口6个弹匣，2雷2针。
+

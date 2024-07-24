@@ -356,3 +356,14 @@ Wii上treasure还做了一部，还没玩过，不知道是否值得一玩
 
 感觉目前开发进度好低，游戏类型FTG的话，可选角色能做到米妮娜吗？漫画角色这么多，怕是根本排不上<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ナルバレック  
+##### 42#       发表于 2024-7-24 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688064&amp;ptid=2165707" target="_blank">罗克萨斯 发表于 2024-7-24 23:06</a>
+
+感觉目前开发进度好低，游戏类型FTG的话，可选角色能做到米妮娜吗？漫画角色这么多，怕是根本排不上 ...</blockquote>
+做不到，分成两部或者超大型DLC吧，这个进度最多到崩蓝
+

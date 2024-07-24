@@ -375,3 +375,11 @@ Wii上treasure还做了一部，还没玩过，不知道是否值得一玩
 
 卖相感觉在漫改游戏里都算一般的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bgmilk  
+##### 44#       发表于 2024-7-25 01:54
+
+         看来万南没给什么钱，嘛也是意料之中了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

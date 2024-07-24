@@ -4560,3 +4560,34 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 结社入侵了庭院，结果还给主角团埋了一大堆信息，你法是想说结社人还怪好的，是吧（doge）
 
+
+*****
+
+####  Aeons  
+##### 1902#       发表于 2024-7-24 15:36
+
+不太可能。
+个人认为本次这种看描述和图已经是无下限的填坑方式了，再下只能不出游戏直接出官方小说了。
+这个方法一出，怎么写都写的完了，如果要留界二，为啥要这么做呢。
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 1903#       发表于 2024-7-24 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65684068&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-24 15:36</a>
+不太可能。
+个人认为本次这种看描述和图已经是无下限的填坑方式了，再下只能不出游戏直接出官方小说了。
+这 ...</blockquote>
+黎2这种东西都出了，你还觉得法老控不会水剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？这种东西放庭院里也很好理解，黎2刷刷刷正反馈不足给人喷爆了，那正好赛点东西进去，让人打的不这么无聊，玩家大半天最后发现就是个支线彩蛋
+
+*****
+
+####  ravend233  
+##### 1904#       发表于 2024-7-24 15:44
+
+有可能是一堆主要关系人物塑造的背景内容，并不解释最关键的设定，了解了会更理解人物，不了解也不影响主线<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">然后顺理成章把原本需要占据主线篇幅的角色个人剧情砍掉
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

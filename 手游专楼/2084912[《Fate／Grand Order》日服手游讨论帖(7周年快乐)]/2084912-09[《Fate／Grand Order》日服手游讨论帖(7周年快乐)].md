@@ -454,3 +454,14 @@ Aniplex一单是95%，实际少了3.25%
 
 今年周年活动8.3和8.4两天，周年从者8.4下午5点见
 
+
+*****
+
+####  alucardcz  
+##### 13085#       发表于 2024-7-24 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65683164&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-7-24 13:54</a>
+
+周年从者是30号出吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">延期了啊  所以要长草1周多呢 什么都没的话
+

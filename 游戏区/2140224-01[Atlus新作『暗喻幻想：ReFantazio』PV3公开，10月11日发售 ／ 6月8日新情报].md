@@ -97,3 +97,13 @@
 [https://www.youtube.com/live/SNs75gVNTI0](https://www.youtube.com/live/SNs75gVNTI0)
 <img src="https://p.sda1.dev/18/be119e5e4337cae225fe2f41299e5872/20240724_161119.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 567#       发表于 2024-7-24 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65657450&amp;ptid=2140224" target="_blank">卡拉德利姆 发表于 2024-7-21 22:02</a>
+说来说去 这游戏最大的问题还是没有好看的妹子 连个能吸引眼球的看板娘都没有 3d建模甚至还停留在p5水平 ...</blockquote>
+不光妹子，反正在我看来男主也挺不好看的<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+

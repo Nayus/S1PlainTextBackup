@@ -1012,3 +1012,30 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 
 在这种至上而下问题下扯基层民众某些文化因素是造成产业或者政府出问题突出一个避重就轻
 
+
+*****
+
+####  卡爹  
+##### 90#       发表于 2024-7-24 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674296&amp;ptid=2192453" target="_blank">Mr.Cheung 发表于 2024-7-23 15:06</a>
+
+其实不完全是没有道理，只是主楼里这家公司这种拉着电池跑来跑去的玩法太抽象而已，现在储能系统算是一个 ...</blockquote>
+微电网嘛，曾经还有过拿新能源车直接当电池的设想
+
+以前一直搞不起来主要就是电池效能不行价格还贵，目前确实是大力在推了
+
+
+*****
+
+####  大暴死  
+##### 91#       发表于 2024-7-24 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673930&amp;ptid=2192453" target="_blank">zerocount 发表于 2024-7-23 14:22</a>
+我也奇怪
+
+为什么这玩意在湖南能流行开了。</blockquote>
+海南也是的，去三亚，海滩边开全地形车的小哥一张嘴就是被槟榔侵蚀的口腔和牙......
+
+—— 来自 Xiaomi M2102K1C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

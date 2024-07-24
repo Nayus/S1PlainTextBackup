@@ -1039,3 +1039,22 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 
 —— 来自 Xiaomi M2102K1C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  a317216007  
+##### 92#       发表于 2024-7-24 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">海南石灰+生槟榔这种吃法从我出生记事开始就有了，很多年来城市文明宣传里都会带一条不要乱吐槟榔汁，因为这玩意真的洗不掉，当然目前来说也没有到大规模流行的程度
+
+*****
+
+####  L.L  
+##### 93#       发表于 2024-7-24 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679618&amp;ptid=2192453" target="_blank">战斗鸡 发表于 2024-7-24 07:56</a>
+我倒觉得可以换个方向来看。
+
+如果美国有能解决吸毒问题的思想和组织力，那这个新思想和组织力还真有可能 ...</blockquote>
+还真是。
+

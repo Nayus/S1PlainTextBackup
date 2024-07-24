@@ -1628,3 +1628,24 @@ Nagi一专10.16，全部作词担当
 
 怎么不给K搬台风扇吹着拍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 20661#       发表于 2024-7-24 17:50
+
+💫✨💫✨💫✨💫✨💫✨💫 
+
+＼放送枠決定‼／
+
+ 10月スタートの 
+
+ラブライブ！スーパースター!!3期 
+
+2024年10月より 毎週日曜午後5時 
+
+スクールアイドルLiella!の活躍をお楽しみに🎵 
+
+💫✨💫✨💫✨💫✨💫✨💫
+<img src="https://p.sda1.dev/18/374d75f4088a620a90856c92d4842600/20240724_175009.jpg" referrerpolicy="no-referrer">
+

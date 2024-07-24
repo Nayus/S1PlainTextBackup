@@ -5057,3 +5057,34 @@ set也卖光了，这下特典拿不到了
 
 然后今晚就忍不住进ARK服跟各种人混了，4年前的箱游瘾再次发作
 
+
+*****
+
+####  holoan  
+##### 9324#         楼主| 发表于 2024-7-24 08:57
+
+<img src="https://img.saraba1st.com/forum/202407/24/085657pa4ppwp5klppa8ga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 08:56 上传
+
+谁叫你写日记了！？
+
+*****
+
+####  holoan  
+##### 9325#         楼主| 发表于 2024-7-24 10:47
+
+<img src="https://img.saraba1st.com/forum/202407/24/104539uk0ge7e41g4kw4sg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (228.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 10:45 上传
+
+按网友的不完全统计，昨晚开服1小时半后首次进服直到联动直播前才登出，然后联动结束（说是自己晕3D了提前下播）没多久又跟fbk星街一起登ark又玩到很迟
+

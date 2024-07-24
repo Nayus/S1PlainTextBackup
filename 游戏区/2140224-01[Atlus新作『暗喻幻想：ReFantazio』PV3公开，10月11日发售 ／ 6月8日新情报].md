@@ -83,3 +83,17 @@
 说来说去 这游戏最大的问题还是没有好看的妹子 连个能吸引眼球的看板娘都没有 3d建模甚至还停留在p5水平 ...</blockquote>
 比p5还是好一丢丢的，p5s水平吧
 
+
+*****
+
+####  Piano-Forest  
+##### 566#         楼主| 发表于 2024-7-24 16:20
+
+7月30日早9点新情报
+
+主要介绍王位选举战的候选者以及主角的支援者
+
+第四场专场直播“角色篇”：
+[https://www.youtube.com/live/SNs75gVNTI0](https://www.youtube.com/live/SNs75gVNTI0)
+<img src="https://p.sda1.dev/18/be119e5e4337cae225fe2f41299e5872/20240724_161119.jpg" referrerpolicy="no-referrer">
+

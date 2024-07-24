@@ -473,3 +473,11 @@ Aniplex一单是95%，实际少了3.25%
 
 待会一定会再开个预热活动啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13087#       发表于 2024-7-24 16:21
+
+白纸化开过了，该进阶关卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -829,3 +829,14 @@ op里neta多啦a梦时想要实现梦想的抚子=大雄，帮她的斧乃木=�
 
 剪短发的老仓好成熟，好有魅力
 
+
+*****
+
+####  高三电波台  
+##### 501#       发表于 2024-7-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65654848&amp;ptid=2168085" target="_blank">爱吃冻鳗的猫 发表于 2024-7-21 17:20</a>
+
+话说扇是打算一直呆在学校了吗？</blockquote>
+变成类似于学校不可思议的存在了
+

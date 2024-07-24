@@ -4638,3 +4638,39 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 先不说这个系统本身，但至少里面的小故事大家都是爱看的，比找表好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 1910#       发表于 2024-7-24 16:16
+
+我知道了！看完所有石碑可以解锁最后的隐藏石碑，妮娜和盟主会在里面展开激烈的谜语人交锋，并昭示着结社下一步的全面出动，这就是界轨最大的爆点
+
+*****
+
+####  古畑任三郎2015  
+##### 1911#       发表于 2024-7-24 16:20
+
+说真的，轨迹一直被我当成超注水版异度装甲玩的
+要不直接disc 2化光速完结得了，来个盟主摇摇椅＋ppt<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不要折磨自己折磨玩家了，来个痛快吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ravend233  
+##### 1912#       发表于 2024-7-24 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，就算界一部完结，2026还要拿一部素材复用的外传水档期，你法应该是做不到迷城伊苏二连发的
+
+*****
+
+####  光之阶梯  
+##### 1913#       发表于 2024-7-24 16:22
+
+害怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

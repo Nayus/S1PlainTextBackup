@@ -219,3 +219,36 @@ TM的我飞鹰空对空呢<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://p.sda1.dev/18/293a5a1b143d30af43b32c093545a315/CMP_20240724160345410.jpg" referrerpolicy="no-referrer">
 萨帅承诺更新后带队挑战n10
 
+
+*****
+
+####  赤井稻妻  
+##### 5075#       发表于 2024-7-24 16:17
+
+绝地战兵新版本 x
+
+终结族/机器人新版本 √
+
+
+*****
+
+####  Launce  
+##### 5076#       发表于 2024-7-24 16:23
+
+<img src="https://img.saraba1st.com/forum/202407/24/162304cvzko9qwcktk71mk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 16:23 上传
+
+*****
+
+####  九十九忍  
+##### 5077#       发表于 2024-7-24 16:26
+
+船上装备处对面的电脑也该开放了，难10的丰厚奖励估计会是新样本
+
+新战备不抱希望，绝对不会让你们好过的
+

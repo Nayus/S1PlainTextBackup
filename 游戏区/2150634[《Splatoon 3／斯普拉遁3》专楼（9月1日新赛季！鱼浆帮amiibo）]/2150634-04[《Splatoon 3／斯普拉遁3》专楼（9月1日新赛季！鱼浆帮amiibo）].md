@@ -1211,3 +1211,13 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 2024-7-24 08:30 上传
 
+
+*****
+
+####  罗克萨斯  
+##### 4911#       发表于 2024-7-24 08:34
+
+喷了，连铭牌都能回收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

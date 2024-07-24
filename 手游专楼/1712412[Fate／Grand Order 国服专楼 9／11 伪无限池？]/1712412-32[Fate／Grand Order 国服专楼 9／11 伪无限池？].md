@@ -40,3 +40,13 @@
 
 可是体力留着也没别的事干，继续刷以太蓄光体么
 
+
+*****
+
+####  johnkamsar  
+##### 46529#       发表于 2024-7-24 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678296&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-7-23 23:04</a>
+可是体力留着也没别的事干，继续刷以太蓄光体么</blockquote>
+留着种苹果后面用啊
+

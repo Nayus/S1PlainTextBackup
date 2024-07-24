@@ -5115,3 +5115,34 @@ set也卖光了，这下特典拿不到了
 
 七字母这两直播外搞什么东西，其他人都在笑你们呢
 
+
+*****
+
+####  holoan  
+##### 9328#         楼主| 发表于 2024-7-24 17:26
+
+<img src="https://img.saraba1st.com/forum/202407/24/172501yvbbo3zomt619r2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (240.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 17:25 上传
+
+所以holoshop特地提前更新的同捆限制新功能竟然在下单量最大的前半小时没有实装上去就离谱，一帮废物运营
+
+*****
+
+####  holoan  
+##### 9329#         楼主| 发表于 2024-7-24 18:05
+
+<img src="https://img.saraba1st.com/forum/202407/24/180516ldwigc9criq9y4is.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-24 18:05 上传
+
+ARK专用UI
+

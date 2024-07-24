@@ -1097,3 +1097,14 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 同时清除十个咒炎都怎么做的 二周目都没这么高怪物密度</blockquote>
 需要角力吸怪过来到鼓边，其他战力不能打小怪才行
 
+
+*****
+
+####  膛线  
+##### 171#       发表于 2024-7-25 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674735&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-7-23 16:01</a>
+
+同时清除十个咒炎都怎么做的 二周目都没这么高怪物密度</blockquote>
+甚至不用这么麻烦，主鸟居第一波怪必出蜡烛老，让一个升到范围大的太夫站鸟居门口其他村民躲远点，瞬间一波炎咒清完，太夫不会被小怪打的
+

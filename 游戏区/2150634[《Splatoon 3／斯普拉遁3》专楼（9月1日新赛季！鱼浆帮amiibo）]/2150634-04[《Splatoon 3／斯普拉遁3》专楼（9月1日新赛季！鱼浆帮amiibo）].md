@@ -1245,3 +1245,25 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  liekong  
+##### 4914#       发表于 2024-7-24 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65679760&amp;ptid=2150634" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-7-24 08:30</a></blockquote>
+这具体是做了啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Humpy  
+##### 4915#       发表于 2024-7-24 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687145&amp;ptid=2150634" target="_blank">liekong 发表于 2024-7-24 21:19</a>
+这具体是做了啥
+
+—— 来自 S1Fun</blockquote>
+我记得好像是管黑人叫monkey，还发过歧视亚裔的图片来着
+

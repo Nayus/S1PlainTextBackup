@@ -68,3 +68,11 @@
 之前白纸本出来感觉大奥和虚数海留着没啥用就都点了，这几天要攒着罐头等减半结果发现日常没地方快速简单做 ...</blockquote>
 修炼场、狗粮QP 打两场不就可以了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾尔特翔  
+##### 46532#       发表于 2024-7-24 17:43
+
+种完苹果，打3把大奥，抽个免费的友情点，就可以下线了
+

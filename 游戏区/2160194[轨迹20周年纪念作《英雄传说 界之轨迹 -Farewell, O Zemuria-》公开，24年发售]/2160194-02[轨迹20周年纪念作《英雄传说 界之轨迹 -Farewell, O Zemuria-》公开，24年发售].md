@@ -4591,3 +4591,34 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Aeons  
+##### 1905#       发表于 2024-7-24 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65684127&amp;ptid=2160194" target="_blank">培根芝士蛋堡XD 发表于 2024-7-24 15:42</a>
+黎2这种东西都出了，你还觉得法老控不会水剧情？这种东西放庭院里也很好理解，黎2刷刷刷正反馈不足给人喷 ...</blockquote>
+看图不像支线彩蛋啊，然后就是，本质是在有主线的情况下多开了一个路子讲剧情设定，单纯是说了为了刷的更起劲没什么道理
+
+*****
+
+####  ravend233  
+##### 1906#       发表于 2024-7-24 15:49
+
+如果真要一部完结，这个玩意里面塞相当有分量的主线剧情可能性非常高，因为这样最省事，也属于脸都不要了
+
+但是你法铁了心要出界2那也是可以水的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 1907#       发表于 2024-7-24 15:50
+
+ 本帖最后由 Aeons 于 2024-7-24 15:54 编辑 
+
+我的逻辑和你反一下，出这个我感觉就是脸都不要了，不要脸都要做这种事，所以可能性非常高
+

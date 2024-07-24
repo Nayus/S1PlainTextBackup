@@ -58,3 +58,18 @@ k社是祭天了全家想出来的超量杯吗<img src="https://static.saraba1st
 哦无敌了刻魔居然还能加强一个这么有用的黄毛烂裤裆**恶魔</blockquote>
 唉，世界第一彪子游戏
 
+
+*****
+
+####  pharika  
+##### 109#       发表于 2024-7-24 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65639076&amp;ptid=2186922" target="_blank">kykawaiii 发表于 2024-7-19 20:40</a>
+k社是祭天了全家想出来的超量杯吗
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v3.0.0.81-a ...</blockquote>
+超量杯不一定献祭全家
+但俱舍2独角兽1狼3停泊地肯定献祭全家
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -4527,3 +4527,36 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不排除刷刷刷抖出来的料比主线还多
 
+
+*****
+
+####  宛若青空  
+##### 1898#       发表于 2024-7-24 15:25
+
+应该是，“虾饺，我去年买了套表”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1899#       发表于 2024-7-24 15:30
+
+既然不会影响剧情理解那怎么算的上重要，又为什么还要讲呢？
+3rd创绝大多数都是算的上地区篇后同期时间发生的人物小故事，讲回忆那可是讲人物过去，就算不上小故事了。
+
+
+*****
+
+####  ravend233  
+##### 1900#       发表于 2024-7-24 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有可能是一些和人物塑造相关的过去，更重要的放在主线
+
+当然也有可能不重要的原因是在这一部的主线实际上不会涉及太多这方面的内容，实际上是在给界2挖坑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 1901#       发表于 2024-7-24 15:36
+
+结社入侵了庭院，结果还给主角团埋了一大堆信息，你法是想说结社人还怪好的，是吧（doge）
+

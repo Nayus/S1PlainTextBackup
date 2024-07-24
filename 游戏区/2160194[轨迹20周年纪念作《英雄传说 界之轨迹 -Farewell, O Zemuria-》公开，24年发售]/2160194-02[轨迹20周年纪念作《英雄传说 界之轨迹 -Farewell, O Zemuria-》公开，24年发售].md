@@ -5000,3 +5000,71 @@ pm没做大地图前能够年货。八代搞了之后就做不动了
 
 想不起来哪个角色是这个发型
 
+
+*****
+
+####  悠悠你心  
+##### 1940#       发表于 2024-7-24 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65686215&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-24 19:19</a>
+这谁</blockquote>
+这是六柱，上面有写
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  卢迪克  
+##### 1941#       发表于 2024-7-24 19:29
+
+<blockquote>悠悠你心 发表于 2024-7-24 19:28
+这是六柱，上面有写
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Next-鹅版 v2.1.2</blockquote>
+上面那女的
+
+*****
+
+####  宛若青空  
+##### 1942#       发表于 2024-7-24 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65686284&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-24 19:29</a>
+上面那女的</blockquote>
+说实话有点像艾蕾因（刘海
+
+
+*****
+
+####  卢迪克  
+##### 1943#       发表于 2024-7-24 19:32
+
+<blockquote>宛若青空 发表于 2024-7-24 19:29
+说实话有点像艾蕾因（刘海</blockquote>
+
+她短发，长大才留长发
+
+<img src="https://img.saraba1st.com/forum/202407/24/193231g42hogh6ry66ubgr.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240724_193218.jpg</strong> (40.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-24 19:32 上传
+
+*****
+
+####  宛若青空  
+##### 1944#       发表于 2024-7-24 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65686304&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-24 19:32</a>
+她短发，长大才留长发</blockquote>
+小时候确实是，就是这张图看起来年龄不是很小的时候，今晚大图看看了
+
+*****
+
+####  Aeons  
+##### 1945#       发表于 2024-7-24 19:35
+
+等高清图吧，我瞎了
+

@@ -4630,3 +4630,11 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这东西出来只能说你法社确实没活了，估计是把不少原本还要出一个篇章的内容全塞进去了（）
 
+
+*****
+
+####  一步成诗  
+##### 1909#       发表于 2024-7-24 16:13
+
+先不说这个系统本身，但至少里面的小故事大家都是爱看的，比找表好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

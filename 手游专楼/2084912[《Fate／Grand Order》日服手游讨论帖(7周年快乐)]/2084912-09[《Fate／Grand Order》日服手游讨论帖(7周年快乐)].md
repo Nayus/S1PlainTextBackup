@@ -465,3 +465,11 @@ Aniplex一单是95%，实际少了3.25%
 周年从者是30号出吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">延期了啊  所以要长草1周多呢 什么都没的话
 
+
+*****
+
+####  DARKGRAY  
+##### 13086#       发表于 2024-7-24 16:13
+
+待会一定会再开个预热活动啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

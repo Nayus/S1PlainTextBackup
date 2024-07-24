@@ -210,3 +210,12 @@ TM的我飞鹰空对空呢<img src="https://static.saraba1st.com/image/smiley/fa
 
 总体而言，此次升级充满绝佳的新内容、大家期待已久的优化和大量惊喜，就等你来发掘探索！<strong>《Helldivers 2》“自由升级”将于8月6日正式推出！</strong></blockquote>箭头存货还是挺多的
 
+
+*****
+
+####  xinfengj  
+##### 5074#       发表于 2024-7-24 16:04
+
+<img src="https://p.sda1.dev/18/293a5a1b143d30af43b32c093545a315/CMP_20240724160345410.jpg" referrerpolicy="no-referrer">
+萨帅承诺更新后带队挑战n10
+

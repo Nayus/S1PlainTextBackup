@@ -1231,3 +1231,17 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 4913#       发表于 2024-7-24 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65667729&amp;ptid=2150634" target="_blank">stygianlunar 发表于 2024-7-22 20:49</a>
+总感觉，这过去、现在与未来的主题会整出一出“相链接的未来，以及至12000年前的你（玩家）”的节奏
+
+预料 ...</blockquote>
+任斗:谁在叫我
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

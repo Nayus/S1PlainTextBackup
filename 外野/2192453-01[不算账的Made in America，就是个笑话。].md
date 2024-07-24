@@ -968,3 +968,27 @@ http://paper.people.com.cn/zgjjzk/html/2019-07/15/content_1939720.htm</blockquot
 
 如果美国有能解决吸毒问题的思想和组织力，那这个新思想和组织力还真有可能解决其他问题。
 
+
+*****
+
+####  pagedown  
+##### 86#       发表于 2024-7-24 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674158&amp;ptid=2192453" target="_blank">FeteFrumoase 发表于 2024-7-23 14:48</a>
+按这个理论，国内的东北工业区，德国的鲁尔区，日本的一些老牌工业区，不也没毒品问题，不也衰败了 ...</blockquote>
+你这个说法也不对啊。打个比方，老年人的死因有心脑血管疾病，阿兹海默，糖尿病等等等。我说这个老人有高血压，得治。你不能说，隔壁那位没有高血压但是得糖尿病死了，所以高血压就别治了，反正老人总会死的。
+
+“老人总归会死”是事实，但是不能忽略了有老人活得久活得精神抖擞，有的老人病恹恹十几年才痛苦地去世。不能一概而论说“治病没用”。
+
+*****
+
+####  日霜衣  
+##### 87#       发表于 2024-7-24 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65674261&amp;ptid=2192453" target="_blank">Holyted 发表于 2024-7-23 15:02</a>
+
+经济问题永远是整体问题，只能说毒品是其中的重要一个因素，但绝不可能是主要原因
+
+看看最近的203决定就知道 ...</blockquote>
+再看看美国的maga，只能说大政府才是现版本的答案
+

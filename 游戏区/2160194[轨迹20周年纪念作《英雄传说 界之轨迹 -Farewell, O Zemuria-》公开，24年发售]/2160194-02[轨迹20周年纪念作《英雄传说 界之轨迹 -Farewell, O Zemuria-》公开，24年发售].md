@@ -4788,3 +4788,16 @@ YSX那个起码还有点探索过去未知的历史的味，谜底也是一步�
 什么叫填档期专用作啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是顺理成章复用素材IP的含金量啊，而且回合制的BOSS设计和人物技能设计也没ACT那么费事，真像摆烂办法可多了，但是ACT摆烂就会直接影响游戏体验
 
+
+*****
+
+####  卢迪克  
+##### 1923#       发表于 2024-7-24 17:30
+
+<blockquote>一步成诗 发表于 2024-7-24 17:09
+什么叫填档期专用作啊</blockquote>
+
+回合制又没大地图是这样的。
+
+pm没做大地图前能够年货。八代搞了之后就做不动了
+

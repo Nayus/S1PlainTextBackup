@@ -2295,3 +2295,21 @@ V)D7HQ]I]IMRD3GM_72EHQQ.jpg
 
 因为是内部员工所以画得烂也不会被开，此事在型月亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 20929#       发表于 2024-7-24 20:59
+
+完了 以后所有的图都是shuzuku画了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 20930#       发表于 2024-7-24 21:05
+
+shuzuku是武士道的海月夜吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

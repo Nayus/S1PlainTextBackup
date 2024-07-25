@@ -939,3 +939,19 @@ OP太棒了，好多抚子
 怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了</blockquote>
 限时短发，结尾又长回去了
 
+
+*****
+
+####  Tachikoma88  
+##### 507#       发表于 2024-7-25 18:27
+
+<img src="https://img.saraba1st.com/forum/202407/25/182738mgo9ui0hrhfhyomm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (159.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 18:27 上传
+
+这集的演出是宫本
+

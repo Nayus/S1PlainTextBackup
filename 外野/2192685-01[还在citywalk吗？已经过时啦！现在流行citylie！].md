@@ -526,3 +526,23 @@ citylie 之后紧接着是不是ctiydie了
 
 什么时候开始citypoop？
 
+
+*****
+
+####  天青月白  
+##### 69#       发表于 2024-7-25 15:59
+
+媒体**
+
+—— 来自 OnePlus PJE110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  elwingh  
+##### 70#       发表于 2024-7-25 16:04
+
+其实还是挺羡慕把傻逼当个性的年龄段！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

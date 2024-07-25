@@ -6052,3 +6052,13 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看了看南通哥和雪伦关系还行
 
+
+*****
+
+####  卢迪克  
+##### 2035#       发表于 2024-7-25 16:02
+
+<blockquote>ravend233 发表于 2024-7-25 15:22
+没有新角色没有新地区，就一个回廊的系统介绍，没活了</blockquote>
+近藤：做了新地区，你们又说肯定素材复用有界2，没有又嫌弃东西少，真难伺候
+

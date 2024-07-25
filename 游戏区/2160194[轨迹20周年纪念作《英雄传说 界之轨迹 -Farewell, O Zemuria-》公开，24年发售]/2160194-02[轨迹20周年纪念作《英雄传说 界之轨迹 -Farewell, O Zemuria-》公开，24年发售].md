@@ -6019,3 +6019,36 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正特典都是垃圾，急着买干嘛，现在就急着九月九日忆战斗兄弟了
 
+
+*****
+
+####  一步成诗  
+##### 2031#       发表于 2024-7-25 15:45
+
+葱头建模和范恩真的很像亲兄弟还都挑染<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2032#       发表于 2024-7-25 15:45
+
+建模重复脸4chan天天在聊
+
+*****
+
+####  无动于衷  
+##### 2033#       发表于 2024-7-25 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692868&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-25 14:24</a>
+
+怎么感觉最接近这个发型的是这位（）</blockquote>
+要解明变身器的由来肯定是要从祖母这代讲起的 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2034#       发表于 2024-7-25 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看了看南通哥和雪伦关系还行
+

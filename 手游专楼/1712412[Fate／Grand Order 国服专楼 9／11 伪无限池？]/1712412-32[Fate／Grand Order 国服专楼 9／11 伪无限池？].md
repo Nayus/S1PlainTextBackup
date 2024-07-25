@@ -340,3 +340,13 @@
 
 弃坑一年看到周年庆准备领一波福利试试手，没想到120石+15呼符就三宝了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 46560#       发表于 2024-7-25 23:45
+
+一上头130抽没出水妃歪了个奥德修斯，300石战汇呆很慌
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

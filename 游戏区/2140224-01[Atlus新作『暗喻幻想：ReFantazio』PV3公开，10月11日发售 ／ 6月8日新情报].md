@@ -355,3 +355,34 @@ Metaphor看着挺hardcore（完蛋）的，路人吸引不到一点。当下哪�
 
 人设没亮点和美术丑不是借口，菜就是菜。  异度之刃1的人设和装备被吐槽很土，3D建模更是丑，可这阻止得了它发光吗
 
+
+*****
+
+####  takayama  
+##### 595#       发表于 2024-7-25 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65689662&amp;ptid=2140224" target="_blank">hkguty 发表于 2024-7-25 09:12</a>
+
+大头应该是主推女角色吧，一上来就壁咚，不过个人感觉还不如红毛</blockquote>
+以铁三角当年P5的PV3最后CAST表排列来说，南条的大额头确实算女主位了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/25/234405es0gggosfdudufz6.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240725233052.png</strong> (1.77 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/234404aqeowwe7uongw7qq.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240725233357.png</strong> (484.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 23:44 上传
+
+不过第一列这几位应该都算是主角团成员了吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+PS：某翻车老御所换成了SRW的“周可儿”“周防达哉”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+

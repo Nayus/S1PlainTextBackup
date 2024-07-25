@@ -589,3 +589,13 @@ citylie 之后紧接着是不是ctiydie了
 
 不快点翻面就焦了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tex033  
+##### 76#       发表于 2024-7-25 16:41
+
+“这届扑街仔只有正常人想不到，没有他们做不到。街溜子作为一种生活方式一度走红……但更多扑街仔并不满足于此……你觉得随地冚家铲的旅行是什么体验呢？”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

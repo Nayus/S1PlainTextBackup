@@ -6181,3 +6181,26 @@ IMG_20240725_141807.jpg
 
 不过勇者这个词出现在周边还行，在剧情对话里太弱智了，应该指代的是那个小人，衣服说是骑士勇者也都对的上。
 
+
+*****
+
+####  一步成诗  
+##### 2046#       发表于 2024-7-25 16:43
+
+特典没出图的时候都以为是2d，谁想到直接端个建模上来，都建模了还不是全员都有的话我真没啥好说的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2047#       发表于 2024-7-25 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我觉得应该不可能，但是又想到这个是按势力分，又刚好一个势力出了一个小人
+
+
+*****
+
+####  ravend233  
+##### 2048#       发表于 2024-7-25 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉就这三个
+

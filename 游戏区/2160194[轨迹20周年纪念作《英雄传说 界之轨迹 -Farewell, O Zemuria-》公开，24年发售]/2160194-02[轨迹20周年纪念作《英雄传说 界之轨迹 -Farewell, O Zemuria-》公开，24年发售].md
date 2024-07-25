@@ -6244,3 +6244,35 @@ IMG_20240725_141807.jpg
 
 吼天狮子跟小丑都能聊上，啥熟不熟的
 
+
+*****
+
+####  宛若青空  
+##### 2053#       发表于 2024-7-26 03:03
+
+日服数字版预购开了
+
+<img src="https://img.saraba1st.com/forum/202407/26/030252z1y6j3h56jjdjhgo.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0761.png</strong> (734.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/030253n24smdil4i4f2i2a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0762.jpeg</strong> (659.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/030254r97wft1p9wj9t1az.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0763.jpeg</strong> (987.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+

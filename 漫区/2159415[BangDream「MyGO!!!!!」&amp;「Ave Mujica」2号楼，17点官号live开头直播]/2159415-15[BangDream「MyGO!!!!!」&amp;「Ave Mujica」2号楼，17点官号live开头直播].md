@@ -2957,3 +2957,20 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 当然也可以是之前的领养假药，睦是领养的所以和父母有隔阂导致有罪恶感，实际上父母很爱她但不知道怎么相处
 
+
+*****
+
+####  御幸一也  
+##### 20987#       发表于 2024-7-25 11:34
+
+出道樂團的製作人耶，不可能都組ave了還去當接線生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看好ave動畫前期就不窮了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 20988#       发表于 2024-7-25 11:37
+
+播完后进手游经济水平肯定要恢复的，不然少好几个刷新地点。
+

@@ -5611,3 +5611,128 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 今天会不会有新pv啊</blockquote>
 理论上这两天该有短pv了，如果没有的话说明比前两部黎轨还摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 2000#       发表于 2024-7-25 11:28
+
+早知道把把回廊，还不如5年前就一转手游
+氪金抽卡老角色，附送ppt星门剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  卢迪克  
+##### 2001#       发表于 2024-7-25 11:29
+
+外太空明显都打起来了。
+
+<img src="https://img.saraba1st.com/forum/202407/25/112924igjjq1701yql0sg9.jpg" referrerpolicy="no-referrer">
+
+<strong>AA01FDD8C1522A22BDD2ED1A4B008420.jpg</strong> (50.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/112930dapsfqwkkwxfjrwz.jpg" referrerpolicy="no-referrer">
+
+<strong>1BD8E18FC4D2CE5204CA4E68228E4D31.jpg</strong> (62.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/112934oeqwyppzvmqvyxen.jpg" referrerpolicy="no-referrer">
+
+<strong>30E19EA56D244B5F8DD34155479920D9.jpg</strong> (2.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/112938jkik3ccj33vc4e34.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240725_112739.jpg</strong> (152.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:29 上传
+
+
+*****
+
+####  卢迪克  
+##### 2002#       发表于 2024-7-25 11:32
+
+ 本帖最后由 卢迪克 于 2024-7-25 11:33 编辑 
+
+艾梅斯带出来的几台浮游炮都被外太空的红色机体炸掉了。
+
+<img src="https://img.saraba1st.com/forum/202407/25/113131etcfkca3xv33txyz.jpg" referrerpolicy="no-referrer">
+
+<strong>B72BDE6E171DD797BF9488BCC8E52573.jpg</strong> (58.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/113134htuikw6lkz3iywu3.jpg" referrerpolicy="no-referrer">
+
+<strong>AA1792221B3437C2821EC1DB38C0753E.jpg</strong> (38.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/113141wr4i42a4ryxir206.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240725_112739.jpg</strong> (152.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:31 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/113147zbste3fzt3tsbpw3.jpg" referrerpolicy="no-referrer">
+
+<strong>30E19EA56D244B5F8DD34155479920D9.jpg</strong> (2.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 11:31 上传
+
+
+*****
+
+####  Aeons  
+##### 2003#       发表于 2024-7-25 11:36
+
+这个只会旋转，一眼比浮游子机还小的闹麻了，打不了一点。
+
+*****
+
+####  卢迪克  
+##### 2004#       发表于 2024-7-25 11:36
+
+ 本帖最后由 卢迪克 于 2024-7-25 11:37 编辑 
+
+如果有界2，估计就是van看着艾梅斯的高达被红色机体击毁坠落回塞姆利亚然后就黑屏咚了吧
+
+*****
+
+####  Aeons  
+##### 2005#       发表于 2024-7-25 11:37
+
+为什么都说是今天有东西
+

@@ -3425,3 +3425,122 @@ sayo+毛力，抽50意思一下吧<img src="https://static.saraba1st.com/image/s
 
 不然像team y那樣拍個vlog也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21027#       发表于 2024-7-25 22:22
+
+<img src="https://img.saraba1st.com/forum/202407/25/221950pod6s667ec6dzd1s.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917063588.jpg</strong> (268.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222000a7nqiwv19s1ikflc.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917068913.jpg</strong> (424.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222015wzkseedlsyt94z0d.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917073595.jpg</strong> (373.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222025i6bb6k9bo6s76zly.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917077408.jpg</strong> (383.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222036vthl3kgl2hjgnt0w.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917083628.jpg</strong> (367.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222044et1qopvqm17wvhco.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917086579.jpg</strong> (366.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222055k9vh33999390vvgd.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917089697.jpg</strong> (375 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:20 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222105ll4lnnun68ddnhtb.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917093563.jpg</strong> (380.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222114n1s5uevqgqqg99ee.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917096358.jpg</strong> (331.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222123h73xuo7zvou7tewx.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917099588.jpg</strong> (340.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222133m1797ffgp3ggbgbf.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917103456.jpg</strong> (286.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222144c540clcjsgc1n0sr.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917106268.jpg</strong> (356.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/222153baq5ls05lba0vqqe.jpg" referrerpolicy="no-referrer">
+
+<strong>1721917108852.jpg</strong> (98.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:21 上传
+
+感觉maya的质量最高，就是花前像摩卡，花后像lisa
+
+*****
+
+####  星天观测  
+##### 21028#       发表于 2024-7-25 22:25
+
+sayo和毛力是五星对吧，不知道会是什么颜色
+

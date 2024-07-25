@@ -289,3 +289,20 @@
 
 补宝好难，2宝歪个伍佰
 
+
+*****
+
+####  khxooo  
+##### 46556#       发表于 2024-7-25 22:21
+
+大号：2宝杜尔伽，命定出了BX，8/9的机会都能错过我也是服了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+小号，NEW杜尔伽，杜尔伽这么喜欢我真是服了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">，水摩根倒是直接呼符出了，导致后续补水伊吹的石头大增。
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 46557#       发表于 2024-7-25 22:23
+
+傻X BGO 退钱！！！
+

@@ -1734,3 +1734,14 @@ Nagi一专发售活动
 
 去年完成是看七爷说的吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20670#       发表于 2024-7-25 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65696839&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-7-25 21:45</a>
+
+去年完成是看七爷说的吧</blockquote>
+2月份就有坛友提过这事。我自己问了一下认识的外包，大概也是说国内这边的工作比想象完成得快，宁可信其有，就看个乐吧
+

@@ -5767,3 +5767,16 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 
 因为宣发最晚就是9月正式op，8月正式pv，现在7月底还不放短pv的话只能认为是摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎12都是7月放的短pv
 
+
+*****
+
+####  无动于衷  
+##### 2010#       发表于 2024-7-25 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65691200&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-7-25 11:28</a>
+
+早知道把把回廊，还不如5年前就一转手游
+
+氪金抽卡老角色，附送ppt星门剧情</blockquote>
+那还是卖给米哈游吧 还得先把老社长干掉 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

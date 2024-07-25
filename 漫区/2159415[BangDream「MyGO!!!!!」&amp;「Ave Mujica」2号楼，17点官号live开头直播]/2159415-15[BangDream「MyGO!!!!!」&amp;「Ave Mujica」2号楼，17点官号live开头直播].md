@@ -3132,3 +3132,13 @@ MANTANWEB編集部</blockquote>
 
 扇子都是正反两面没可能不带鸡，说不定剧场下就卖鸡团的剧场版立绘谷<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21002#       发表于 2024-7-25 13:59
+
+ 本帖最后由 NODY 于 2024-7-25 14:01 编辑 
+
+那个扇子不是剧场版周边，是asl和cm的邦邦摊位买蛋白棒送的赠品，大概算是蛋白棒的周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -169,3 +169,14 @@ FY06-LA4R-E6A0-6JAW
 怎么会连衣服都没有做。。。</blockquote>
 就是忘记她们俩实装后有没复刻过，或者复刻过一次忘记买了……总之就是没<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1146#       发表于 2024-7-26 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698014&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-7-26 00:23</a>
+
+就是忘记她们俩实装后有没复刻过，或者复刻过一次忘记买了……总之就是没 ...</blockquote>
+那只能等周年看看会不会复刻了。。。
+

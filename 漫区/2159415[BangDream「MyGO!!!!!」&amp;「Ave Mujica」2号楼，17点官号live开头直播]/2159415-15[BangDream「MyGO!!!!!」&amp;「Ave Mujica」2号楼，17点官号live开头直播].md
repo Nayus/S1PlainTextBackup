@@ -3552,3 +3552,17 @@ sayo和毛力是五星对吧，不知道会是什么颜色
 
 首先排除上一期的红色，其次我想奶一口绿色。
 
+
+*****
+
+####  影伴光生  
+##### 21030#       发表于 2024-7-25 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65687500&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-7-24 22:01</a>
+右上角有小数字的是重复的吧，那我求一张火树银花吧。
+
+UID:4032</blockquote>
+发过去了——昨晚到刚才还在折腾新入职的事情，没及时送出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

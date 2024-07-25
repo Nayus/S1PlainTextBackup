@@ -535,3 +535,11 @@ Aniplex一单是95%，实际少了3.25%
 
 刷了300多井盖，应该可以用一段时间了。
 
+
+*****
+
+####  保罗赫伯特  
+##### 13094#       发表于 2024-7-25 18:13
+
+打三局，拿完奖励就收工<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

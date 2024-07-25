@@ -3590,3 +3590,21 @@ UID:4032</blockquote>
 
 都有绿五星所以不用抽是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 21034#       发表于 2024-7-25 23:39
+
+除了 maya 都中规中矩吧，主要是 maya 这个花前修车也太搞了，已经看到有人把彩彩 p 上去了
+
+花后就是……这是你吗.jpg，气质非常的锂砂镍，但好看还是好看的，又要捞这个 dfes 了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我们 pp 已经三个月没有团活了，卡全往混活 dfes 塞也太缺德了，上次千圣 dfes 就怒吃一井感觉这次又要强吃了，真难顶
+
+
+*****
+
+####  星天观测  
+##### 21035#       发表于 2024-7-25 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">慢慢等吧，萝活出来之前我也是巴巴的在等，萝上上个活对本lisa推来说简直就是矢，难受死了，现在该巴巴的等ag后续了
+

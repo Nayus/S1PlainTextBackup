@@ -3097,3 +3097,30 @@ mujica动画要延到明年一月也算是有原因了</blockquote>
 
 不过几首歌曲是真的赞
 
+
+*****
+
+####  御幸一也  
+##### 20999#       发表于 2024-7-25 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692055&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-25 12:48</a>
+
+这剧场版票房能破两亿就算成功吧
+
+希望能有mujica成员的特典勾引我去看</blockquote>
+別了吧，最好劇場版把ave的部分也全剪了，還go粉一個純淨動畫<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 21000#       发表于 2024-7-25 13:34
+
+<blockquote>劇場総集編ぼっち・ざ・ろっく！：興収6.2億円突破　40万人動員　後編の新予告公開
+
+2024年07月23日 18:00
+
+MANTANWEB編集部</blockquote>
+
+小孤獨的話都6E了喔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

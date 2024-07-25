@@ -1147,3 +1147,46 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 不会这游戏也有分段更新吧 总不能再往三周目以上 ...</blockquote>
 全魔像9周目……反正三周目之后不用考虑过关条件，就可以xjb打了
 
+
+*****
+
+####  ralfli  
+##### 176#       发表于 2024-7-26 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65697942&amp;ptid=2140223" target="_blank">杨千fa单推人 发表于 2024-7-26 00:13</a>
+
+单体打boss输出最高的应该是哪个动作啊</blockquote>
+刀锷白虎和大阴，剩下的随便，贵人也行
+
+魔像用攻击力大，结晶加攻击力，夜晚第一刀伤害增加，村民减攻宗加攻，剩下的随便
+
+开局洗刀，白虎接大**OSS就剩血皮了，然后随便打
+
+*****
+
+####  ralfli  
+##### 177#       发表于 2024-7-26 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65697942&amp;ptid=2140223" target="_blank">杨千fa单推人 发表于 2024-7-26 00:13</a>
+
+单体打boss输出最高的应该是哪个动作啊</blockquote>
+刀锷白虎和大阴，剩下的随便，贵人也行
+
+魔像用攻击力大，结晶加攻击力，夜晚第一刀伤害增加，村民减攻宗加攻，剩下的随便
+
+开局洗刀，白虎接大**OSS就剩血皮了，然后随便打
+
+*****
+
+####  ralfli  
+##### 178#       发表于 2024-7-26 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65697942&amp;ptid=2140223" target="_blank">杨千fa单推人 发表于 2024-7-26 00:13</a>
+
+单体打boss输出最高的应该是哪个动作啊</blockquote>
+刀锷白虎和大阴，剩下的随便，贵人也行
+
+魔像用攻击力大，结晶加攻击力，夜晚第一刀伤害增加，村民减攻宗加攻，剩下的随便
+
+开局洗刀，白虎接大阴，BOSS就剩血皮了，然后随便打
+

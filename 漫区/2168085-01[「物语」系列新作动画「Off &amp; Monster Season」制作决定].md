@@ -929,3 +929,13 @@ OP太棒了，好多抚子
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了
 
+
+*****
+
+####  Tachikoma88  
+##### 506#       发表于 2024-7-25 12:11
+
+<blockquote>stickimbul 发表于 2024-7-25 11:50
+怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了</blockquote>
+限时短发，结尾又长回去了
+

@@ -1025,3 +1025,11 @@ ike3D披露请了初音啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下一个3D我还以为早就已经有了呢
 
+
+*****
+
+####  fastary  
+##### 522#       发表于 2024-7-25 12:09
+
+美夜子和hinap以后除了三世和shiba以外老员工好像都有3d了？en4的也披露完了，接下来该安排上新人的3d了吧……
+

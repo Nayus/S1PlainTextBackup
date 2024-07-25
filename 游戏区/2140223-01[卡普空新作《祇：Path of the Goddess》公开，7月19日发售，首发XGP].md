@@ -1118,3 +1118,11 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 不会这游戏也有分段更新吧 总不能再往三周目以上藏
 
+
+*****
+
+####  杨千fa单推人  
+##### 173#       发表于 2024-7-25 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">为什么男村民的图标是个乌龟啊
+

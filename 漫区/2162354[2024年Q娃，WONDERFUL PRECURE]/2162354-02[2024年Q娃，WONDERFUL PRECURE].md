@@ -483,3 +483,28 @@ B站有猫组角色歌的中文字幕歌词了，猫猫真是好重啊猫组真�
 
 你还说不需要陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ダイヤモンド  
+##### 1951#       发表于 2024-7-26 00:39
+
+<img src="https://img.saraba1st.com/forum/202407/26/003914z8lnckhe2tki5h9p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240726003850.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 00:39 上传
+
+你还说不需要陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maoyou  
+##### 1952#       发表于 2024-7-26 07:43
+
+哈哈哈哈哈哈哈哈
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

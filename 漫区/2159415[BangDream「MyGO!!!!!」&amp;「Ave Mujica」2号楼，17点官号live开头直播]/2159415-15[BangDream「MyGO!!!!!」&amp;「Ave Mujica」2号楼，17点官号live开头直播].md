@@ -3233,3 +3233,31 @@ MANTANWEB編集部</blockquote>
 
 2024-7-25 17:48 上传
 
+
+*****
+
+####  御幸一也  
+##### 21013#       发表于 2024-7-25 17:58
+
+ 本帖最后由 御幸一也 于 2024-7-25 18:00 编辑 
+
+喵睦喵祥我全都要<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/25/180023hkmtsehztmx9zxmh.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240725-094102_1816408307713638517_photo-0.jpg</strong> (292.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/180030o2ke2vh5ub8llqok.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_米澤 茜(@AkaneY_banu)_20240725-094102_1816408307713638517_photo-1.jpg</strong> (194.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 18:00 上传
+
+[https://x.com/AkaneY_banu/status/1816408307713638517](https://x.com/AkaneY_banu/status/1816408307713638517)
+

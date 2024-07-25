@@ -5387,3 +5387,32 @@ https://unlimited.waifu2x.net/
 
 没新城市还是挺可惜的<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  minus13  
+##### 1976#       发表于 2024-7-25 09:38
+
+新地区还是有点吧，奥雷德，茱蒂丝老家安卡维尔市，首都新增的2个区
+
+虽然说这点新场景也就和闪2黎2差不多的水平
+
+*****
+
+####  一步成诗  
+##### 1977#       发表于 2024-7-25 09:40
+
+就目前共和国这个地图量和最高领导人的表现，很难想象可以和帝国匹敌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bixinhaner  
+##### 1978#       发表于 2024-7-25 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65689154&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-7-25 07:25</a>
+揭开序幕的感觉。
+
+《黎之轨迹》只有两部就完结了，那《界之轨迹》在系列中的定位可以理解为类似《创之轨 ...</blockquote>
+20年还没揭开序幕，答案是塞姆里亚大陆原来是新手村？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

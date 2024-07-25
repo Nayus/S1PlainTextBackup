@@ -12,3 +12,14 @@
  🔸修复了头发颜色更改不适用于 Boss Challenge 预设的问题。 
 🔸修复了其他各种错误。 #StellarBlade #PS5 #SUMMER #Update
 
+
+*****
+
+####  jacket  
+##### 1680#       发表于 2024-7-26 00:06
+
+这pose我能摆的出来？不要骗我
+[https://x.com/StellarBlade/status/1816492879965286886](https://x.com/StellarBlade/status/1816492879965286886)
+<img src="https://s21.ax1x.com/2024/07/26/pkbsFnf.jpg" referrerpolicy="no-referrer">
+<img src="https://s21.ax1x.com/2024/07/26/pkbskB8.jpg" referrerpolicy="no-referrer">
+

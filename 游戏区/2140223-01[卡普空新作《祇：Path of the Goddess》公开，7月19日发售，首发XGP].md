@@ -1134,3 +1134,16 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 单体打boss输出最高的应该是哪个动作啊
 
+
+*****
+
+####  ralfli  
+##### 175#       发表于 2024-7-26 04:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688878&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-7-25 01:54</a>
+
+看了下太君攻略网上也没有32 33 34 47 60 61 62魔像的资料
+
+不会这游戏也有分段更新吧 总不能再往三周目以上 ...</blockquote>
+全魔像9周目……反正三周目之后不用考虑过关条件，就可以xjb打了
+

@@ -5364,3 +5364,18 @@ https://unlimited.waifu2x.net/
 下个月分线，9月羁绊系统，没别的新系统了，完事</blockquote>
 人物介绍也差不多就两期了吧，剩下比较重要的角色+反派，真是一眼看得到头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 1973#       发表于 2024-7-25 09:16
+
+估计没分线，玩到哪个切哪个就行了
+
+*****
+
+####  hkguty  
+##### 1974#       发表于 2024-7-25 09:17
+
+万能战士黎师傅：师姐看好了，里疾风是这样用的！
+

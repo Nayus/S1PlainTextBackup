@@ -5904,3 +5904,30 @@ IMG_20240725_141807.jpg
 这个摆拍选人这么私货的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偏偏挤走个学妹，太刻意了
 
+
+*****
+
+####  卢迪克  
+##### 2018#       发表于 2024-7-25 14:57
+
+ 本帖最后由 卢迪克 于 2024-7-25 14:59 编辑 
+
+马克邦之后出现第二个异界人了。
+
+马克邦50年前，身体不会成长
+
+妮娜十几年前，身体会成长。
+
+轨迹最终章应该就是异界篇了
+
+
+*****
+
+####  一步成诗  
+##### 2019#       发表于 2024-7-25 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65693098&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-25 14:53</a>
+
+偏偏挤走个学妹，太刻意了</blockquote>
+不过万一真的是剧情上不在呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

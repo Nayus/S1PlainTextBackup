@@ -1041,3 +1041,15 @@ ike3D披露请了初音啊。
 
 话说叶山为什么不披露，说过吗，谢林我还大概猜得到
 
+
+*****
+
+####  pansherry  
+##### 524#       发表于 2024-7-25 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692969&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-7-25 14:37</a>
+话说叶山为什么不披露，说过吗，谢林我还大概猜得到</blockquote>
+主要还是旧皮那堆破事吧，现在漂白了肯定是准备另做模型了，旧皮模型也就现在参加活动用了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

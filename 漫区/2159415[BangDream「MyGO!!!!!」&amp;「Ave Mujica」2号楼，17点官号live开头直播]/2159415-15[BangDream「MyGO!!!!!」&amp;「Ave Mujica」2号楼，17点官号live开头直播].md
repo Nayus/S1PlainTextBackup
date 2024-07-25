@@ -3582,3 +3582,11 @@ UID:4032</blockquote>
 
 我奶绿色是因为这五个人我都有绿五星，认真点讲橙色可能性的确更大。
 
+
+*****
+
+####  星天观测  
+##### 21033#       发表于 2024-7-25 23:26
+
+都有绿五星所以不用抽是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

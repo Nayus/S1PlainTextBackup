@@ -736,3 +736,13 @@ Citymeat cityfry！
 
 — from Razer Phone 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  nekkihs2  
+##### 93#       发表于 2024-7-25 23:33
+
+昨天才看到有人躺马路睡觉被车碾过脑袋
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

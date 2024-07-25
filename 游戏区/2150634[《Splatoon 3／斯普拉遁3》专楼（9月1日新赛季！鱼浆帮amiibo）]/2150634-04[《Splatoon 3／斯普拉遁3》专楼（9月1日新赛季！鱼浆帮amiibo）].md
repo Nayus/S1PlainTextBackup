@@ -1303,3 +1303,21 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 ちかし光速道歉    今ここ
 
+
+*****
+
+####  martinium  
+##### 4918#       发表于 2024-7-25 11:11
+
+这游戏机制筛选出来的玩家不是佛系就是暴躁哥，竞技又筛选一遍，那自然都是暴躁哥。
+北美锦标赛当场嘲讽已经是家常便饭，这帮人还要硬掰扯成心理战术的一环，我听到这种说辞就觉得挺恶心的。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+
+*****
+
+####  绿冰  
+##### 4919#         楼主| 发表于 2024-7-25 11:15
+
+事情能搞大到取消资格还是没想到
+

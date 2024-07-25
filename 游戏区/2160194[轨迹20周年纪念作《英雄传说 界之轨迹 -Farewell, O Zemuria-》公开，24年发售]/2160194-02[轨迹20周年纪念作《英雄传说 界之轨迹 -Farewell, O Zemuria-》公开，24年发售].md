@@ -5571,3 +5571,24 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要你法社还在摁堆可控角色，回廊的模式一定比主线给你放开限制随便组队来得靠谱一些
 
+
+*****
+
+####  无动于衷  
+##### 1996#       发表于 2024-7-25 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690881&amp;ptid=2160194" target="_blank">minus13 发表于 2024-7-25 11:00</a>
+
+这么看来回廊这东西是不是以后每部轨迹都要有了</blockquote>
+可玩性与主线叙事的矛盾现在你法轨迹的作品里已经是总爆发的状态了，回廊只能说是一种没有办法的办法
+
+而且从创的描写来看，要给回廊正当性和融入主线的基础设定了，只要你法想不出可行的方案以后都不会消失
+
+
+*****
+
+####  一步成诗  
+##### 1997#       发表于 2024-7-25 11:15
+
+今天会不会有新pv啊
+

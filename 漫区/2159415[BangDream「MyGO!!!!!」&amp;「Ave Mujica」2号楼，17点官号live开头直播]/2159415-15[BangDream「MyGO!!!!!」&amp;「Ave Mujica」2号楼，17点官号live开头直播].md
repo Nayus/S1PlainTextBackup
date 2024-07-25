@@ -3124,3 +3124,11 @@ MANTANWEB編集部</blockquote>
 
 小孤獨的話都6E了喔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 21001#       发表于 2024-7-25 13:46
+
+扇子都是正反两面没可能不带鸡，说不定剧场下就卖鸡团的剧场版立绘谷<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

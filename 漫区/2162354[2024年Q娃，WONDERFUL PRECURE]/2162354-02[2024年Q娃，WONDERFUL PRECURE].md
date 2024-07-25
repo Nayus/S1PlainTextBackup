@@ -447,3 +447,23 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 才不是什么小鬼<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1948#       发表于 2024-7-23 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65678198&amp;ptid=2162354" target="_blank">ダイヤモンド 发表于 2024-7-23 22:50</a>
+
+我就讨厌你这种直觉敏锐的小鬼</blockquote>
+人家只是茉优的小猫猫
+
+才不是什么小鬼<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1949#       发表于 2024-7-25 13:43
+
+B站有猫组角色歌的中文字幕歌词了，猫猫真是好重啊猫组真是太好嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -3208,3 +3208,14 @@ MANTANWEB編集部</blockquote>
 
 李茜给我狠狠输入到初喵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 21011#         楼主| 发表于 2024-7-25 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692715&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-25 14:08</a>
+
+前篇应该不会有鸡什么事吧，不是主要讲猫视角么，猫见过鸡成员吗</blockquote>
+经常去space/ring的肯定见过猫猫，海0这种打工战士应该认识猫猫，猫猫认不认识她就不好说了。
+

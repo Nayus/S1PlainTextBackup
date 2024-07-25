@@ -316,3 +316,27 @@
 
 大号：命运金时+1（1-2），福袋水伊吹+1（2-3），30护肤+一发10连梣入手，备战狂呆。
 
+
+*****
+
+####  ywshzw  
+##### 46559#       发表于 2024-7-25 22:53
+
+<img src="https://img.saraba1st.com/forum/202407/25/224128qc2i13o1h1220cac.png" referrerpolicy="no-referrer">
+
+<strong>n2.png</strong> (2.41 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/224126y13zfp1k3ly1khzh.png" referrerpolicy="no-referrer">
+
+<strong>b2.png</strong> (2.67 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:41 上传
+
+弃坑一年看到周年庆准备领一波福利试试手，没想到120石+15呼符就三宝了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

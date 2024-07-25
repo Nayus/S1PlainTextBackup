@@ -228,3 +228,15 @@
 
 代价就是福袋和定命都是出最低期望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  shimotsuki14  
+##### 46549#       发表于 2024-7-25 20:59
+
+二十抽就出了トネリコ！<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+定命在几个new里出了麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+福袋想补宝摩根或者梅柳齐娜，然后补到了卡莲<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

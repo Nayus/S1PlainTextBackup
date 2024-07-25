@@ -1702,3 +1702,16 @@ Nagi一专10.16，全部作词担当
 
 拖这么久的原因不会是想在叔叔这边同步播放吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 20667#       发表于 2024-7-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65695781&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-7-25 19:46</a>
+
+星3吗？我只能说星3在作画方面在去年年末已经完成差不多了
+
+—— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
+really?上次那位已经确定就是那时间了？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">那完了，与一二期的间隔相比，也就多一两个月吧，就粪田那态度和脑子，等着亚巡终场在三个团面前丢脸呢？那是真牛逼。
+

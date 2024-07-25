@@ -6204,3 +6204,27 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉就这三个
 
+
+*****
+
+####  卢迪克  
+##### 2049#       发表于 2024-7-25 16:58
+
+和狮子老熟人，应该是五柱了吧。
+
+<img src="https://img.saraba1st.com/forum/202407/25/165738jneutuk86nexteej.jpg" referrerpolicy="no-referrer">
+
+<strong>F75921653AB1EB3D4D2B9516B8B7C996.jpg</strong> (162.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 16:57 上传
+
+*****
+
+####  Aeons  
+##### 2050#       发表于 2024-7-25 16:59
+
+按黎一说，狮子和247都是熟人，说不好的。
+

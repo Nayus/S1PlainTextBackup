@@ -708,3 +708,21 @@ Citymeat cityfry！
 第一反应是碰瓷扑街
 顺便，这种如果刚好躺在司机视线死角上被碾了，司机需要担负责任吗
 
+
+*****
+
+####  春季残梅  
+##### 90#       发表于 2024-7-25 22:56
+
+这些媒体炮制这些“流行文化”新闻到底有什么好处？能赚钱？
+
+*****
+
+####  约瑟夫海顿  
+##### 91#       发表于 2024-7-25 22:56
+
+有病吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+我记得之前有个躺平爱好者好歹是去横店演个尸体<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

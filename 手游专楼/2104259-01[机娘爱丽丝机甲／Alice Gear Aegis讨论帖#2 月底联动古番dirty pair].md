@@ -128,3 +128,11 @@ FY06-LA4R-E6A0-6JAW
 
 活动复刻是不会补新女演员的饰品么，给奈奈配衣服突然发现没有那个牛奶王冠，之前复刻我记得我兑换都清光了啊
 
+
+*****
+
+####  灰色蔓延  
+##### 1142#       发表于 2024-7-25 23:02
+
+好家伙。LV2 30抽阿金演我，歪了怜+4了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

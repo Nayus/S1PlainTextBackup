@@ -396,3 +396,15 @@ PS：某翻车老御所换成了SRW的“周可儿”“周防达哉”<img src=
 
 —— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  guiminan  
+##### 597#       发表于 2024-7-26 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65696705&amp;ptid=2140224" target="_blank">被击坠王 发表于 2024-7-25 21:30</a>
+人设没亮点和美术丑不是借口，自大就是自大，菜就是菜。  异度之刃1的人设和装备被吐槽很土，3D建模更是丑 ...</blockquote>
+高桥哥哥前两作做的那么好，结果不也端出来了个xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说目前感觉半斤八两
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

@@ -92,3 +92,23 @@
 
 有些大马力后驱出弯时需要细微反打获取抓地力，用手柄就打过头反而没抓地了
 
+
+*****
+
+####  Totokei  
+##### 1867#       发表于 2024-7-26 00:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1.49问题大得可以说小翻车了，有的车直接开着开着弹起来了。
+
+然后充值的米其林花纹轮胎上的尺寸直接123 45 R67这种还不如不写呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但忽略的话还是好看的
+
+<img src="https://img.saraba1st.com/forum/202407/26/002411k8903tmhhcx78999.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>馬泰拉_.jpeg</strong> (558.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 00:24 上传
+

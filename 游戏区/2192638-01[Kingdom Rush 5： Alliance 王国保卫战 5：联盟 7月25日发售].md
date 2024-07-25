@@ -438,3 +438,15 @@ steam解锁啦，开打开打~
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Awanano  
+##### 43#       发表于 2024-7-26 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65697331&amp;ptid=2192638" target="_blank">敏感词好多 发表于 2024-7-25 22:48</a>
+能玩，但没啥新东西，另外我就想问了，你们这些180血中甲的垃圾配叫圣骑吗？ ...</blockquote>
+他真的还能再出圣骑那种让同类4级塔成为纯粹小丑的塔吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

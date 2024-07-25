@@ -1682,3 +1682,15 @@ Nagi一专10.16，全部作词担当
 
 真在亚巡期间播出啊……
 
+
+*****
+
+####  csolfans  
+##### 20665#       发表于 2024-7-25 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65686319&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-7-24 19:34</a>
+感觉要工期地狱了，准备恭迎第一个连画面都彻底保不住的LL（虽然二期就各种描改一期+ppt+偶然性的奇妙透视 ...</blockquote>
+星3吗？我只能说星3在作画方面在去年年末已经完成差不多了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

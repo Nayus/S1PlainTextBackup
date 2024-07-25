@@ -5878,3 +5878,29 @@ IMG_20240725_141807.jpg
 
 发型，瞳色，痣全都对得上，应该没错
 
+
+*****
+
+####  一步成诗  
+##### 2016#       发表于 2024-7-25 14:52
+
+这个摆拍选人这么私货的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/25/145240lse9sgmy5scyv42d.png" referrerpolicy="no-referrer">
+
+<strong>5145157.png</strong> (15.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 14:52 上传
+
+*****
+
+####  ravend233  
+##### 2017#       发表于 2024-7-25 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65693089&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-25 14:52</a>
+
+这个摆拍选人这么私货的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">偏偏挤走个学妹，太刻意了
+

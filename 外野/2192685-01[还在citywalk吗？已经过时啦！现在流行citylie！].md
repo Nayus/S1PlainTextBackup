@@ -329,3 +329,33 @@ citywalk citylie, citytruck citydie.
 躺草坪上也就算了躺大街啊，我记得以前有视频拍沥青路煎蛋还是煎牛排来着吧 ...</blockquote>
 草坪上那么多狗屎，躺上去也要挺大魄力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  用户名已注册  
+##### 44#       发表于 2024-7-25 14:44
+
+接下来是CityShit~
+
+*****
+
+####  姚纳  
+##### 45#       发表于 2024-7-25 14:48
+
+全是媒体自己生造出来的
+
+
+*****
+
+####  tansapple  
+##### 46#       发表于 2024-7-25 14:50
+
+这下真的扑街咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天真无鞋  
+##### 47#       发表于 2024-7-25 14:53
+
+我以为是躺平晒背什么的。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

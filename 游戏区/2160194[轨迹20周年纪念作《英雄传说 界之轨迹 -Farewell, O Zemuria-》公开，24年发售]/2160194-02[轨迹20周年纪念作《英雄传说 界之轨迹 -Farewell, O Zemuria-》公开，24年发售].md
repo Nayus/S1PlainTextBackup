@@ -5416,3 +5416,21 @@ https://unlimited.waifu2x.net/
 《黎之轨迹》只有两部就完结了，那《界之轨迹》在系列中的定位可以理解为类似《创之轨 ...</blockquote>
 20年还没揭开序幕，答案是塞姆里亚大陆原来是新手村？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  心之光  
+##### 1979#       发表于 2024-7-25 09:56
+
+所以这个出之前有必要补黎鬼2嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1980#       发表于 2024-7-25 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690063&amp;ptid=2160194" target="_blank">心之光 发表于 2024-7-25 09:56</a>
+
+所以这个出之前有必要补黎鬼2嘛</blockquote>
+云一下概述就行，没必要玩
+

@@ -2989,3 +2989,37 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 睦的压力来源2nd小剧场说得很直白了，星二代自带被周围指指点点不堪忍受
 
+
+*****
+
+####  Aendst  
+##### 20990#       发表于 2024-7-25 12:45
+
+<img src="https://img.saraba1st.com/forum/202407/25/124413sd5pjknsfjq9ojpj.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-07-25 134333.png</strong> (41.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 12:44 上传
+
+前篇 9.27
+
+后篇 11.8
+
+mujica动画要延到明年一月也算是有原因了
+
+*****
+
+####  御景  
+##### 20991#       发表于 2024-7-25 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692029&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-25 12:45</a>
+
+前篇 9.27
+
+后篇 11.8
+
+mujica动画要延到明年一月也算是有原因了</blockquote>
+宣布mygo剧场版的时候，不就猜到了。
+

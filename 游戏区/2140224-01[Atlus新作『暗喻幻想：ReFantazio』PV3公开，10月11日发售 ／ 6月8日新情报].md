@@ -386,3 +386,13 @@ Metaphor看着挺hardcore（完蛋）的，路人吸引不到一点。当下哪�
 
 PS：某翻车老御所换成了SRW的“周可儿”“周防达哉”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  baizhi  
+##### 596#       发表于 2024-7-26 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下还能吹是“真P6”吗？
+
+—— 来自 OPPO PGBM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

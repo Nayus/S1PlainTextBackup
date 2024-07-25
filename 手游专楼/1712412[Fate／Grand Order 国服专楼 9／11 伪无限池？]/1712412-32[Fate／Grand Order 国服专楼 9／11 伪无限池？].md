@@ -350,3 +350,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  xy1041  
+##### 46561#       发表于 2024-7-26 00:14
+
+丸子的豹跳视频有点用，看完去抽卡2个十连就2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

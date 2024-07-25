@@ -428,3 +428,13 @@ steam解锁啦，开打开打~
 
 拿个泡澡毛巾抽人还是有点乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Awanano  
+##### 42#       发表于 2024-7-26 00:14
+
+我觉得自起源开始颜色都有点太艳了…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

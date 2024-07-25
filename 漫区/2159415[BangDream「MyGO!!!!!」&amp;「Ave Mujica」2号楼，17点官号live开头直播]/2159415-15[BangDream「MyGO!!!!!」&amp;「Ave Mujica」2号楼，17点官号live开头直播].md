@@ -2870,3 +2870,32 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 怎么都干到家里去了
 
+
+*****
+
+####  御幸一也  
+##### 20976#       发表于 2024-7-25 10:51
+
+不能去家裡不就只能去事務所了嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20977#       发表于 2024-7-25 10:55
+
+哎，那就羽泽咖啡馆吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 20978#       发表于 2024-7-25 10:55
+
+在哪裡都可以吧，ppp的聚會地點不也是ars家嗎
+
+*****
+
+####  光MIKAN  
+##### 20979#       发表于 2024-7-25 10:57
+
+去羽泽咖啡厅给前辈撑场，消费水平是祥子能接受的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥都去喝了好几次了
+

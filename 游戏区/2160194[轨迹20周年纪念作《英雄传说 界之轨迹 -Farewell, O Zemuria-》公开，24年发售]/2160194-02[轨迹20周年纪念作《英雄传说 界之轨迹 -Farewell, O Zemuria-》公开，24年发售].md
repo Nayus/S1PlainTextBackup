@@ -5514,3 +5514,30 @@ https://unlimited.waifu2x.net/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是做好了有界2和这一部顶天把大总统故事线和一些配角的个人故事讲完的准备的，再给创世线，至宝线和其他重要角色（盟主，圣女等）的故事线开个头
 
+
+*****
+
+####  Aeons  
+##### 1989#       发表于 2024-7-25 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">可能末日剧情的大场面份额分给上宇宙了吧
+
+*****
+
+####  无动于衷  
+##### 1990#       发表于 2024-7-25 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690523&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-7-25 10:30</a>
+
+其实创轨翻版没啥，创还还算是平均口碑比较好的一部轨迹呢，但是你比创多开发一年，最后成果最好不要比创差 ...</blockquote>
+创的口碑好特指剧本 而且基本上说的是C线
+
+没有人吹那个假装借鉴某某机兵结果实际呈现连无双都不如的剧情架构
+
+*****
+
+####  ravend233  
+##### 1991#       发表于 2024-7-25 10:50
+
+上宇宙看起来也就是用火箭丢了个高达上去，也不是什么直接造宇宙飞船的活，再加上van不知道什么原因也被丢上去了，然后在轨道上不知道打啥
+

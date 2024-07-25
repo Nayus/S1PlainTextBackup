@@ -131,3 +131,28 @@
 
 2024年了一个主卖角色的游戏居然没有全语音，不知道是怎么想的
 
+
+*****
+
+####  猫沢  
+##### 571#       发表于 2024-7-25 08:23
+
+有点烧啊<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/25/082157urh9622u9aua3hrd.jpg" referrerpolicy="no-referrer">
+
+<strong>img_0802.jpg</strong> (315.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 08:21 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星花  
+##### 572#       发表于 2024-7-25 08:24
+
+挺丑的。。。。
+

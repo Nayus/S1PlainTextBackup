@@ -5321,3 +5321,35 @@ https://unlimited.waifu2x.net/
 
 近藤：《界之轨迹》的确在某一部分比较类似于《创之轨迹》，但对于整个系列来说，该作也有着完全不同的意义。它即是两款共和国篇作品的后续，也是共和国篇的完结篇，并不只承担着连接前后作的作用。因为接下来要向“《轨迹》系列”后半段的高潮直接迈进，所以要给一个揭开相关序幕的感觉。
 
+
+*****
+
+####  ravend233  
+##### 1969#       发表于 2024-7-25 08:17
+
+ 本帖最后由 ravend233 于 2024-7-25 08:18 编辑 
+
+现在感觉这个门主要是塞一堆乱七八糟的，主线塞不下的人物过去的补充，作为砍剧情后的补充，这些人物过去的剧情搁以前怕不是要一人一章去写。可能会有一部分很要紧的内容，但是大多数估计都是支线边角料性质的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就目前截图摆拍的图，主线看起来水分还不小<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 1970#       发表于 2024-7-25 08:18
+
+结果还是没说分线的事，是不分还是憋到下个月再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 1971#       发表于 2024-7-25 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65689304&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-25 08:18</a>
+结果还是没说分线的事，是不分还是憋到下个月再说</blockquote>
+下个月分线，9月羁绊系统，没别的新系统了，完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

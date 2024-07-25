@@ -5830,3 +5830,35 @@ IMG_20240725_141807.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/25/141825du9jjjhbaziayb4h.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2012#       发表于 2024-7-25 14:24
+
+<img src="https://img.saraba1st.com/forum/202407/25/142401dcbceyeobspbhbvs.png" referrerpolicy="no-referrer">
+
+<strong>X%PW{9)U~C)4U9IO%A29W.png</strong> (70.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 14:24 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉最接近这个发型的是这位（）
+
+*****
+
+####  一步成诗  
+##### 2013#       发表于 2024-7-25 14:24
+
+最后一张这个刘海+嘴角的痣，是搞笑艺人的外婆，看来是要讲初代幻之夜猫了
+
+*****
+
+####  ravend233  
+##### 2014#       发表于 2024-7-25 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到创世对变身器有反应加上时代，初代要么接触过C博士要么接触过C博士养女吧
+
+快进到博士养女就是小说那位（）
+

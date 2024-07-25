@@ -1,0 +1,313 @@
+﻿
+*****
+
+####  initium  
+##### 1#       楼主       发表于 2024-7-25 13:06
+
+<img src="https://img.saraba1st.com/forum/202407/25/130548z9q2jptcpw7aphrs.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240725130519.jpg</strong> (92.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 13:05 上传
+
+一面煎熟了还可以自己翻身煎另一面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  suzukic  
+##### 2#       发表于 2024-7-25 13:07
+
+神金，害我笑了一下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  变老的大二  
+##### 3#       发表于 2024-7-25 13:08
+
+上海这个温度lie他mlgb，卵蛋黄都给他烤爆。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泡茶  
+##### 4#       发表于 2024-7-25 13:08
+
+这个季节即便是摆拍也停勇的，值得给他点一个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MAGA2024  
+##### 5#       发表于 2024-7-25 13:09
+
+我也想赖在商场里面吹空调玩手机，但保安不让躺啊
+
+*****
+
+####  十点半  
+##### 6#       发表于 2024-7-25 13:10
+
+美拉德反应
+
+*****
+
+####  P.C.  
+##### 7#       发表于 2024-7-25 13:12
+
+媒体动不动就“这届年轻人”，这些是年轻人里的**，代表不了全部年轻人。
+
+*****
+
+####  P.C.  
+##### 8#       发表于 2024-7-25 13:13
+
+媒体动不动就“这届年轻人”，这些是年轻人里的**，代表不了全部年轻人。
+
+*****
+
+####  P.C.  
+##### 9#       发表于 2024-7-25 13:13
+
+媒体动不动就“这届年轻人”，这些是年轻人里的莎比，代表不了全部年轻人。
+
+*****
+
+####  すぴぱら  
+##### 10#       发表于 2024-7-25 13:14
+
+在旁边卖孜然辣椒面有没有赚头
+
+*****
+
+####  sheshiro  
+##### 11#       发表于 2024-7-25 13:15
+
+city can lie，but hot ground cant lie
+
+*****
+
+####  Cityrat  
+##### 12#       发表于 2024-7-25 13:15
+
+什么时候随地大小便，反正最后肯定进化成citydie
+
+*****
+
+####  隰有苌楚  
+##### 13#       发表于 2024-7-25 13:16
+
+飞盘和walk中间是不是还有几个来着，记不清了
+
+*****
+
+####  kyomu  
+##### 14#       发表于 2024-7-25 13:16
+
+媒体没活不要硬整
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wddely  
+##### 15#       发表于 2024-7-25 13:17
+
+油腻字数补丁
+
+*****
+
+####  棍机凹升龙  
+##### 16#       发表于 2024-7-25 13:19
+
+有病，什么铁板烧
+
+*****
+
+####  我的天呐  
+##### 17#       发表于 2024-7-25 13:20
+
+希望有一辆刹不住的泥头车
+
+*****
+
+####  xjjgp01  
+##### 18#       发表于 2024-7-25 13:25
+
+<img src="https://p.sda1.dev/18/0df450ef3a0304784965451345ba7e05/76ff100fe50c44181bef14ad9d4657ec.gif" referrerpolicy="no-referrer">
+
+危若累卵
+
+*****
+
+####  ackroyd2  
+##### 19#       发表于 2024-7-25 13:27
+
+citylie翻译过来是不是叫扑街
+
+*****
+
+####  metro  
+##### 20#       发表于 2024-7-25 13:32
+
+在哪里摔倒就在哪里躺平！
+
+*****
+
+####  濡鸦之羽_  
+##### 21#       发表于 2024-7-25 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是傻逼，有空调房不躺，去外面地上躺
+
+*****
+
+####  鵝  
+##### 22#       发表于 2024-7-25 13:36
+
+来城乡结合部狗屎一条街上也lie一把试试<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  名居守  
+##### 23#       发表于 2024-7-25 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在躺街上还能不蹦起来，肯定是看了天气预报
+
+*****
+
+####  miniconmax  
+##### 24#       发表于 2024-7-25 13:39
+
+当年g20杭州西湖风景区交通限行。
+有不少游客就在景区道路上躺平拍照过
+
+—— 来自 HONOR AGT-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  grantliu  
+##### 25#       发表于 2024-7-25 13:40
+
+我就想问，财经媒体有正常的不
+
+*****
+
+####  煌蘭  
+##### 26#       发表于 2024-7-25 13:41
+
+躺草坪上也就算了躺大街啊，我记得以前有视频拍沥青路煎蛋还是煎牛排来着吧
+
+*****
+
+####  septer  
+##### 27#       发表于 2024-7-25 13:44
+
+想不到现在居然有能完美描述扑街仔的画面
+
+*****
+
+####  心灵的乳头  
+##### 28#       发表于 2024-7-25 13:45
+
+这时候我就盼着来一队王者，把这群潮人都给我压进柏油里才好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  常陆茉子prpr  
+##### 29#       发表于 2024-7-25 13:46
+
+草，还真是扑街<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ysasz  
+##### 30#       发表于 2024-7-25 14:09
+
+这尼玛不就是流浪汉的生活方式吗？太尬了
+
+*****
+
+####  上将郝萌  
+##### 31#       发表于 2024-7-25 14:11
+
+这种我们一般叫倒卧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  猫空  
+##### 32#       发表于 2024-7-25 14:13
+
+现在这天气躺柏油路上真的不是烤肉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  godvim  
+##### 33#       发表于 2024-7-25 14:17
+
+金翅扑街鸟<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朗巴尔多  
+##### 34#       发表于 2024-7-25 14:17
+
+潮人只是潮，还不是傻
+
+*****
+
+####  lj205  
+##### 35#       发表于 2024-7-25 14:17
+
+不如财经杂志里的人都直接先躺
+
+*****
+
+####  qqq2142  
+##### 36#       发表于 2024-7-25 14:20
+
+全网呼叫火车头
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  灵魂熔炉  
+##### 37#       发表于 2024-7-25 14:21
+
+马上就会citydie，然后清洁工还得citywash
+
+*****
+
+####  chillicez  
+##### 38#       发表于 2024-7-25 14:22
+
+快进到citypoop
+
+*****
+
+####  sanxgh571  
+##### 39#       发表于 2024-7-25 14:24
+
+财经媒体果然都是傻逼
+
+*****
+
+####  Y.Cassano  
+##### 40#       发表于 2024-7-25 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692769&amp;ptid=2192685" target="_blank">猫空 发表于 2024-7-25 14:13</a>
+
+现在这天气躺柏油路上真的不是烤肉吗</blockquote>
+直接中暑，柏油路估计效果更好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  King5268  
+##### 41#       发表于 2024-7-25 14:33
+
+都是照片文化带来的影响，各种奇葩行为都是为了拍好看的照片 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

@@ -5473,3 +5473,44 @@ https://unlimited.waifu2x.net/
 
 不过支线有没有感觉不太好说了，回廊剧情都来了。
 
+
+*****
+
+####  Aeons  
+##### 1985#       发表于 2024-7-25 10:36
+
+创还是偏外传的，无论是剧情形式还是玩家对剧情功过的态度和正传就不一样。举个例子不少人喜欢创轨无支线模式，说好，但是正常做新图支线肯定是有的。
+不过这作也不好说了。
+
+*****
+
+####  ravend233  
+##### 1986#       发表于 2024-7-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690504&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-25 10:28</a>
+
+闪四黄昏好歹肉眼可见，界轨目前一点点危机感都没有不知道在干什么了</blockquote>
+目前宣传除了大统领的宇宙计划和天上有什么东西外什么都看不出来，也看不出创世对这个故事线的直接影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 1987#       发表于 2024-7-25 10:43
+
+ 本帖最后由 Aeons 于 2024-7-25 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690637&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-25 10:41</a>
+
+目前宣传除了大统领的宇宙计划和天上有什么东西外什么都看不出来，也看不出创世对这个故事线的直接影响 ...</blockquote>
+
+天上有东西吗？好像也没看出来，和计划的直接关系也没看到。
+
+到时候直接防患于未然，啥事没有。
+
+*****
+
+####  ravend233  
+##### 1988#       发表于 2024-7-25 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是做好了有界2和这一部顶天把大总统故事线和一些配角的个人故事讲完的准备的，再给创世线，至宝线和其他重要角色（盟主，圣女等）的故事线开个头
+

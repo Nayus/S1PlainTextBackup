@@ -2847,3 +2847,26 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 （这也是初祥）
 
+
+*****
+
+####  a_kuma  
+##### 20974#       发表于 2024-7-25 10:37
+
+ 本帖最后由 a_kuma 于 2024-7-25 10:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65689956&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-25 09:45</a>
+
+这么说的话倒是希望鸡能跟roselia一样除了练习室再多一个类似于家庭餐厅这样的见面地点了，但是roselia出道 ...</blockquote>
+回错人了。。
+
+编辑
+
+*****
+
+####  星天观测  
+##### 20975#       发表于 2024-7-25 10:39
+
+不是我的意思说的是比较常去的类似寄り道的地点啊比如家庭餐厅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么都干到家里去了
+

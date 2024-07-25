@@ -431,3 +431,18 @@ citywalk citylie, citytruck citydie.
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  xiaoleirei  
+##### 57#       发表于 2024-7-25 15:29
+
+那要怎么从citylie里生钱呢？citywalk还能和催生文旅消费扯上关系，扑街助力洗染服务业？
+
+*****
+
+####  一座恐怖屋  
+##### 58#       发表于 2024-7-25 15:29
+
+我lie他mlgb，这帮东西都该下放农场去改造，好好的在老城区里遛弯儿，被他们jiba walk都搞的没了兴致，这帮b就该被东风和太阳教做人
+

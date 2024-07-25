@@ -3061,3 +3061,39 @@ mujica动画要延到明年一月也算是有原因了</blockquote>
 泥漏对邦邦的热度有点太自信了，科普一下，巅峰期的film live票房3亿，萝剧场版前篇票房才1亿，后篇无数据 ...</blockquote>
 特典给力的话 黄牛应该会一天看十次的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 20996#       发表于 2024-7-25 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692203&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-25 13:07</a>
+
+特典给力的话 黄牛应该会一天看十次的</blockquote>
+萝当初上映的特典非常多而且很多新图，最后也只有那个数据，鸡狗现在加起来都没有萝火，感觉挺难的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 20997#       发表于 2024-7-25 13:11
+
+真能两亿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孤独摇滚才多少来着
+
+
+*****
+
+####  550616  
+##### 20998#       发表于 2024-7-25 13:13
+
+ 本帖最后由 550616 于 2024-7-25 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692055&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-25 12:48</a>
+
+这剧场版票房能破两亿就算成功吧
+
+希望能有mujica成员的特典勾引我去看</blockquote>
+当时萝很烂的剧场版
+
+销量都第一第二过（阶段性的）
+
+不过几首歌曲是真的赞
+

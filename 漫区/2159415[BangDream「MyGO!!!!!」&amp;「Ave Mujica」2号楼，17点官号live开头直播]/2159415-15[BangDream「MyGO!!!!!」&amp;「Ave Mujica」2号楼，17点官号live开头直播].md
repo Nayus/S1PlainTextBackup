@@ -2809,3 +2809,13 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 还有我总感觉姨姥贷款和解以后祥子 ...</blockquote>
 同樣是切了C團，真羨慕遺老們能放過立希，什麼時候遺老們能放過睦和祥子呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 20970#       发表于 2024-7-25 10:12
+
+タコパ感觉会是动画播完进邦邦4或者pico4的内容了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我的意思是来一个适合她们五个练习后类似于寄り道的地方，如果没有的话希望祥子欠喵梦的庆功宴至少给我补上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

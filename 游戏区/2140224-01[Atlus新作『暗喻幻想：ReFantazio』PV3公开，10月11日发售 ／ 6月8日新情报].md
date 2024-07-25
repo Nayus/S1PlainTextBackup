@@ -186,3 +186,26 @@
 
 穿的啥鬼，评价是不如不穿
 
+
+*****
+
+####  Piano-Forest  
+##### 577#         楼主| 发表于 2024-7-25 08:49
+
+<img src="https://p.sda1.dev/18/f12e2a389fed63edf742f0ac61c16e49/20240725_015404.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3ef39898085e423927da5960081030bc/20240725_015405.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  bobosnader  
+##### 578#       发表于 2024-7-25 08:50
+
+话说谁能想到atlus有一天可能会在美术上翻车==
+
+*****
+
+####  SuNR1sE364  
+##### 579#       发表于 2024-7-25 08:51
+
+这个衣服<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

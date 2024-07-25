@@ -5759,3 +5759,11 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 
 有这种说法吗，那应该是2点或者4点
 
+
+*****
+
+####  Squall25  
+##### 2009#       发表于 2024-7-25 13:48
+
+因为宣发最晚就是9月正式op，8月正式pv，现在7月底还不放短pv的话只能认为是摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎12都是7月放的短pv
+

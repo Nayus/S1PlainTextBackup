@@ -210,3 +210,21 @@
 
 定命丁真 福袋卡莲+1 烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  advancedigger  
+##### 46548#       发表于 2024-7-25 20:54
+
+<img src="https://img.saraba1st.com/forum/202407/25/205037bwagwren9jelwaud.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>716b21fe0575cde06cd29f28724a140e.jpeg</strong> (633.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 20:50 上传
+
+一发10连出梣，特来豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+代价就是福袋和定命都是出最低期望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

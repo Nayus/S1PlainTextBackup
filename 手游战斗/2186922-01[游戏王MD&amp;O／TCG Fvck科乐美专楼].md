@@ -73,3 +73,13 @@ k社是祭天了全家想出来的超量杯吗
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  chaosliu  
+##### 110#       发表于 2024-7-25 14:37
+
+太傻逼了，百夫长这盒补强了四次吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+顺便再k社死妈，现在这出卡方式，老卡组补强了对新卡组都没有任何一战之力，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

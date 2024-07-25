@@ -311,3 +311,21 @@ citylie翻译过来是不是叫扑街
 
 都是照片文化带来的影响，各种奇葩行为都是为了拍好看的照片 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犹格索托斯  
+##### 42#       发表于 2024-7-25 14:36
+
+怎么还直接躺路上的
+citywalk citylie, citytruck citydie.
+
+*****
+
+####  otakun  
+##### 43#       发表于 2024-7-25 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692481&amp;ptid=2192685" target="_blank">煌蘭 发表于 2024-7-25 13:41</a>
+躺草坪上也就算了躺大街啊，我记得以前有视频拍沥青路煎蛋还是煎牛排来着吧 ...</blockquote>
+草坪上那么多狗屎，躺上去也要挺大魄力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -416,3 +416,24 @@ PS：某翻车老御所换成了SRW的“周可儿”“周防达哉”<img src=
 
 现在就定性宏大，硬核了，多少带点立体防御的味道
 
+
+*****
+
+####  Onelooker  
+##### 599#       发表于 2024-7-26 00:58
+
+所以smt5算好看吗
+
+男主那个校服我第一眼看还以为是宇将军
+
+*****
+
+####  SuNR1sE364  
+##### 600#       发表于 2024-7-26 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698238&amp;ptid=2140224" target="_blank">Onelooker 发表于 2024-7-26 00:58</a>
+所以smt5算好看吗
+
+男主那个校服我第一眼看还以为是宇将军</blockquote>
+校服归校服，创毘形态还是能爆这边主角团一大截吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

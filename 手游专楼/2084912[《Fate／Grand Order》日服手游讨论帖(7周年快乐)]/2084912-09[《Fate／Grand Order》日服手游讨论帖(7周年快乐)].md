@@ -543,3 +543,13 @@ Aniplex一单是95%，实际少了3.25%
 
 打三局，拿完奖励就收工<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 13095#       发表于 2024-7-26 00:57
+
+人品奇差
+
+換了蒸氣機械這批後，只得第一次能連續3場都即食，之後連OC2能加即死率的法尼和道滿，都能當無事發生
+

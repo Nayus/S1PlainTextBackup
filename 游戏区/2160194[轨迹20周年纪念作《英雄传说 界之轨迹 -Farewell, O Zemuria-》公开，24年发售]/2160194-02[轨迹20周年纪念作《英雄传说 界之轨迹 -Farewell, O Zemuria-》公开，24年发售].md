@@ -6070,3 +6070,59 @@ IMG_20240725_141807.jpg
 
 这回廊小游戏也太土了
 
+
+*****
+
+####  卢迪克  
+##### 2037#       发表于 2024-7-25 16:15
+
+<blockquote>Aeons 发表于 2024-7-25 16:09
+这回廊小游戏也太土了</blockquote>
+不就是战旗，估计为之后新ip试水。
+
+*****
+
+####  一步成诗  
+##### 2038#       发表于 2024-7-25 16:19
+
+土不土都还好说，要是那个q版小人不是所有角色都有的话那真的好寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2039#       发表于 2024-7-25 16:20
+
+这战旗你们仔细看不就是把黎2选关换成战旗形式加料而已，你走到门还是要进图跑路打怪打BOSS
+
+
+*****
+
+####  Aeons  
+##### 2040#       发表于 2024-7-25 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实不太懂为什么小人和本人穿的不一样，范恩这一身骑士套，入乡随俗迎合气氛吗
+
+
+*****
+
+####  卢迪克  
+##### 2041#       发表于 2024-7-25 16:24
+
+哈哈
+
+<img src="https://img.saraba1st.com/forum/202407/25/162444p7gozx474on7x7ze.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240725_162420.jpg</strong> (280.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 16:24 上传
+
+*****
+
+####  一步成诗  
+##### 2042#       发表于 2024-7-25 16:24
+
+不就是类魔法少女亚里沙的剧中剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

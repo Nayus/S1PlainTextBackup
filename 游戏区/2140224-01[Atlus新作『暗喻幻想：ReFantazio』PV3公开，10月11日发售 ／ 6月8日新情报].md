@@ -437,3 +437,11 @@ PS：某翻车老御所换成了SRW的“周可儿”“周防达哉”<img src=
 男主那个校服我第一眼看还以为是宇将军</blockquote>
 校服归校服，创毘形态还是能爆这边主角团一大截吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hagiwara  
+##### 601#       发表于 2024-7-26 07:20
+
+额头妹这个单侧肩甲能拿来干啥，色调不协调，对称不对称，实战也没啥用
+

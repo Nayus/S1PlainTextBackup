@@ -563,3 +563,29 @@ citylie 之后紧接着是不是ctiydie了
 
 到底是哪家精神病院的围墙塌了？
 
+
+*****
+
+####  jshtstong  
+##### 73#       发表于 2024-7-25 16:32
+
+搞不出新花样，只能靠撒谎了
+
+*****
+
+####  longlivedick  
+##### 74#       发表于 2024-7-25 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65693888&amp;ptid=2192685" target="_blank">上陡门福满多 发表于 2024-7-25 16:15</a>
+今年这么多在逃智障
+
+到底是哪家精神病院的围墙塌了？</blockquote>
+没必要太多精神病，只需要有几个热天懒得出门采访的记者就行了
+
+*****
+
+####  凡人一名  
+##### 75#       发表于 2024-7-25 16:34
+
+不快点翻面就焦了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

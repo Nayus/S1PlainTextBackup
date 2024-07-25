@@ -6126,3 +6126,58 @@ IMG_20240725_141807.jpg
 
 不就是类魔法少女亚里沙的剧中剧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 2043#       发表于 2024-7-25 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65693974&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-25 16:21</a>
+其实不太懂为什么小人和本人穿的不一样，范恩这一身骑士套，入乡随俗迎合气氛吗 ...</blockquote>
+拉碧丝和黑兔也穿得不一样吧，应该是什么结社设定也说不定（比如说结社说他们一个里队伍和Van的队伍比什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+结社那个紫毛还说了个“枷の勇者”的词不知道是不是指Van，但是特典里的描述是“枷の騎士”
+
+「ヴァン（枷の騎士）」「アルティナ（黒兎魔導士）」「ラピス（白の人形姫）」
+
+
+*****
+
+####  卢迪克  
+##### 2044#       发表于 2024-7-25 16:30
+
+<blockquote>一步成诗 发表于 2024-7-25 16:24
+不就是类魔法少女亚里沙的剧中剧吗</blockquote>
+
+魔法少女亚里沙属于究极私货了
+
+<img src="https://img.saraba1st.com/forum/202407/25/163011bth6wf20986t1dwv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240725_162919.jpg</strong> (164.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 16:30 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/163016s13tg1ydgdrtytrd.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240725_162926.jpg</strong> (46.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 16:30 上传
+
+*****
+
+####  Aeons  
+##### 2045#       发表于 2024-7-25 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65694036&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-7-25 16:29</a>
+
+拉碧丝和黑兔也穿得不一样吧，应该是什么结社设定也说不定（比如说结社说他们一个里队伍和Van的队伍比什 ...</blockquote>
+
+狮子和范恩走一路，基本上是了。
+
+不过勇者这个词出现在周边还行，在剧情对话里太弱智了，应该指代的是那个小人，衣服说是骑士勇者也都对的上。
+

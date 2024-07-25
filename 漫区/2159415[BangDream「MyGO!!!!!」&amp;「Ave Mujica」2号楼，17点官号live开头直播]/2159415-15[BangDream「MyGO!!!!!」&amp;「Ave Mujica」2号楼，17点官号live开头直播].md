@@ -3023,3 +3023,24 @@ mujica动画要延到明年一月也算是有原因了
 mujica动画要延到明年一月也算是有原因了</blockquote>
 宣布mygo剧场版的时候，不就猜到了。
 
+
+*****
+
+####  skives  
+##### 20992#       发表于 2024-7-25 12:48
+
+这剧场版票房能破两亿就算成功吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+希望能有mujica成员的特典勾引我去看
+
+*****
+
+####  Aendst  
+##### 20993#       发表于 2024-7-25 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692046&amp;ptid=2159415" target="_blank">御景 发表于 2024-7-25 12:47</a>
+
+宣布mygo剧场版的时候，不就猜到了。</blockquote>
+是这样的，只是进一步验证了猜想
+
+但真的验证了还是挺五味杂陈的
+

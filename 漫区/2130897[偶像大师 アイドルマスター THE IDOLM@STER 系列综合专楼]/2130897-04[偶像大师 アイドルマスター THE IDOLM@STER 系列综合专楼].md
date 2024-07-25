@@ -375,3 +375,31 @@ FD`2}`N41)]IKHAV]P$PP9Y_tmb.jpg
 
 不知道够不够打
 
+
+*****
+
+####  Ask_10A  
+##### 5722#       发表于 2024-7-25 12:33
+
+妹妹杀不掉的人，我甜瓜来杀
+
+*****
+
+####  stadium  
+##### 5723#       发表于 2024-7-25 12:46
+
+<blockquote>kykawaiii 发表于 2024-7-24 20:45
+羽那倒了
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+这个水枪比赛是什么，投票吗？
+
+*****
+
+####  陆久舟  
+##### 5724#       发表于 2024-7-25 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692040&amp;ptid=2130897" target="_blank">stadium 发表于 2024-7-25 12:46</a>
+这个水枪比赛是什么，投票吗？</blockquote>
+X上的投票，第一有新绘
+

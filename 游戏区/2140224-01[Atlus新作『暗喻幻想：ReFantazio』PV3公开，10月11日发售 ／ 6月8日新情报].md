@@ -318,3 +318,32 @@
 
 感觉是风格上的要求，不然按照副岛自己意思搞不至于画的这么糟糕吧
 
+
+*****
+
+####  ybfelix  
+##### 592#       发表于 2024-7-25 21:12
+
+感觉是太想取巧找个比较少人做的时期风格再chic化下。最后效果还不如老实做个人画风的传统奇幻
+
+*****
+
+####  anikom  
+##### 593#       发表于 2024-7-25 21:13
+
+肯定是风格问题，现在的美术略古怪
+
+p5刚出来时风格特立独行，光是靠观感就能把一大堆人拉入坑。
+
+Metaphor看着挺hardcore（完蛋）的，路人吸引不到一点。当下哪怕是关注的人也有很大一批持悲观态度；就看游戏里的宏大内涵能否很好的表现出来了
+
+能赢吗，牢桥
+
+<img src="https://img.saraba1st.com/forum/202407/25/091204s1s98vtga7q19jzs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GQ73WRiXEAA_Lb7.jpeg</strong> (157.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 21:12 上传
+

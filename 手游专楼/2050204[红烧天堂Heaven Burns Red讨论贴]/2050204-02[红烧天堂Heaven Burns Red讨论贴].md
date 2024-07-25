@@ -1012,3 +1012,13 @@ ek1xobuftbcgwln7
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">没井别下池，炸了
 
+
+*****
+
+####  lightingstar  
+##### 1596#       发表于 2024-7-25 12:30
+
+玩起来体验感觉挺好的，希望国服能坚持住
+
+国际服是不是需要谷歌框架?我这华为手机就没办法了，能有国服还是挺好的
+

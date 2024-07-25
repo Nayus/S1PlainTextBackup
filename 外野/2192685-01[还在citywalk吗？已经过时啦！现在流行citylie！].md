@@ -726,3 +726,13 @@ Citymeat cityfry！
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  ↓↘→AB  
+##### 92#       发表于 2024-7-25 23:11
+
+之前美国搞巴勒斯坦抗议的老头就是这么搞的，聚集一帮人去学校门口一躺
+
+— from Razer Phone 2, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

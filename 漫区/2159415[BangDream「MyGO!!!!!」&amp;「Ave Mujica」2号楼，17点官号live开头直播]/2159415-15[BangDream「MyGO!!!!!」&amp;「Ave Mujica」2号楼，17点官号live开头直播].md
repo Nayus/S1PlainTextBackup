@@ -3566,3 +3566,11 @@ UID:4032</blockquote>
 
 —— 来自 vivo V2302A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星天观测  
+##### 21031#       发表于 2024-7-25 23:12
+
+单纯从我个人的收益来说倒是希望是黄色，sayo毛力连黄四星都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

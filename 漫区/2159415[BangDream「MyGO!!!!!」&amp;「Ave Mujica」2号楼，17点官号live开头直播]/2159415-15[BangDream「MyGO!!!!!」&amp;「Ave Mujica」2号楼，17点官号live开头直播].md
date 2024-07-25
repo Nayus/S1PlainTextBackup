@@ -3314,3 +3314,80 @@ MANTANWEB編集部</blockquote>
 
 鼓子吐槽了快五分钟立希的泳装了，她真的太爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 21018#       发表于 2024-7-25 21:38
+
+<img src="https://img.saraba1st.com/forum/202407/25/213815ojwh8xh49rwinh59.png" referrerpolicy="no-referrer">
+
+<strong>Q`RGE{[[A9~77{9XVZMJ_EH.png</strong> (69.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 21:38 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">修哇修哇
+
+*****
+
+####  星天观测  
+##### 21019#       发表于 2024-7-25 21:39
+
+我第一眼真以为是毛力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 21020#       发表于 2024-7-25 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/25/214117p3ummnfmi5loffzd.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #225 48-38 screenshot.png</strong> (2.56 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/214203nq4q32qhfne6nd2j.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #225 48-45 screenshot.png</strong> (3.49 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 21:42 上传
+
+*****
+
+####  6030sylar  
+##### 21021#       发表于 2024-7-25 21:43
+
+<img src="https://img.saraba1st.com/forum/202407/25/214309kvkqspp2m4an4zq7.png" referrerpolicy="no-referrer">
+
+<strong>EK9VYJHG~66JH(UOFYOWC.png</strong> (104.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 21:43 上传
+
+新的吉他？
+
+*****
+
+####  星天观测  
+##### 21022#       发表于 2024-7-25 21:44
+
+sayo+毛力，抽50意思一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21023#       发表于 2024-7-25 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65696812&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-25 21:42</a></blockquote>
+终于有不是五星和两星的卡了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">不对，这怎么又有卡了。
+

@@ -136,3 +136,14 @@ FY06-LA4R-E6A0-6JAW
 
 好家伙。LV2 30抽阿金演我，歪了怜+4了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1143#         楼主| 发表于 2024-7-25 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65688698&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-7-25 00:58</a>
+
+活动复刻是不会补新女演员的饰品么，给奈奈配衣服突然发现没有那个牛奶王冠，之前复刻我记得我兑换都清光了 ...</blockquote>
+可能是新活动？我现在也是很少去查饰品衣服了。比如不知道为啥周年黑礼服，利佳和小萌会没有的！这俩明明是我使用的主力啊！
+

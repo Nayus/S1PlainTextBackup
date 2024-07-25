@@ -3574,3 +3574,11 @@ UID:4032</blockquote>
 
 单纯从我个人的收益来说倒是希望是黄色，sayo毛力连黄四星都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21032#       发表于 2024-7-25 23:18
+
+我奶绿色是因为这五个人我都有绿五星，认真点讲橙色可能性的确更大。
+

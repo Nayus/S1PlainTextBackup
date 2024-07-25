@@ -5780,3 +5780,53 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 氪金抽卡老角色，附送ppt星门剧情</blockquote>
 那还是卖给米哈游吧 还得先把老社长干掉 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2011#       发表于 2024-7-25 14:17
+
+ 本帖最后由 卢迪克 于 2024-7-25 14:19 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/25/141940l7uekpvgaop36uhz.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>03.webp</strong> (89.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 14:19 上传
+
+[
+
+<img src="https://img.saraba1st.com/forum/202407/25/141945sccvjs1ebens0sw9.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02.webp</strong> (135.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 14:19 上传
+
+attachimg]1683996[/attachimg]
+
+<img src="https://img.saraba1st.com/forum/202407/25/141724gv55qydg5eqmjmw4.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>04.webp</strong> (143.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-25 14:17 上传
+
+IMG_20240725_141807.jpg
+(107.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 14:18 上传
+
+由手机上传
+
+<img src="https://img.saraba1st.com/forum/202407/25/141825du9jjjhbaziayb4h.jpg" referrerpolicy="no-referrer">
+

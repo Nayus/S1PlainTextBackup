@@ -5592,3 +5592,22 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 
 今天会不会有新pv啊
 
+
+*****
+
+####  aimujie  
+##### 1998#       发表于 2024-7-25 11:24
+
+回廊再怎样也比主线塞一堆不给换装备的角色强，虽然一样是换装地狱
+
+不过这个模式从最早基本没剧情的小要塞到现在的云聊天室，除了创这个精神时光屋其他和主线关系也不大，就是一个随进度开放的外挂副本，现在还要往里面塞剧情，分量越来越重了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 1999#       发表于 2024-7-25 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65691055&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-25 11:15</a>
+今天会不会有新pv啊</blockquote>
+理论上这两天该有短pv了，如果没有的话说明比前两部黎轨还摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

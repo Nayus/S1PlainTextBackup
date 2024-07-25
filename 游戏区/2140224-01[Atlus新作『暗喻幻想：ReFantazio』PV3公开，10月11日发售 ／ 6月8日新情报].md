@@ -217,3 +217,18 @@
 
 大头应该是主推女角色吧，一上来就壁咚，不过个人感觉还不如红毛
 
+
+*****
+
+####  nancygreenlife  
+##### 581#       发表于 2024-7-25 11:24
+
+天哪，这美术水准怎么感觉下滑得这么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塔奇克马  
+##### 582#       发表于 2024-7-25 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">感觉没有任何亮点 是不是完蛋了呀~
+

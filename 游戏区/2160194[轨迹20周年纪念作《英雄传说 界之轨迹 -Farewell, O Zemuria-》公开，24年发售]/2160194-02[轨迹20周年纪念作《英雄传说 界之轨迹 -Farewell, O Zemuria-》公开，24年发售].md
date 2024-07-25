@@ -5736,3 +5736,18 @@ CM1最后Van在月球的画面可以看到太空中有红色浮游机动机器�
 
 为什么都说是今天有东西
 
+
+*****
+
+####  一步成诗  
+##### 2006#       发表于 2024-7-25 11:42
+
+因为周四祖传放料日，还是月底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2007#       发表于 2024-7-25 11:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是觉得七月底该有点新东西了吧
+

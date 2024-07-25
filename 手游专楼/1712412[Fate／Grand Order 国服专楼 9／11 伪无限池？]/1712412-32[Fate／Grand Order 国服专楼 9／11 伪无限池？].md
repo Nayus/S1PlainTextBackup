@@ -195,3 +195,18 @@
 
 原来今晚就福袋和トネリコ了……我还以为还有一两周……
 
+
+*****
+
+####  Sleipnirω  
+##### 46546#       发表于 2024-7-25 20:22
+
+定命出伊莉雅，职阶出rba，赌公主大失败
+
+*****
+
+####  TohsakaR  
+##### 46547#       发表于 2024-7-25 20:24
+
+定命丁真 福袋卡莲+1 烂完了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

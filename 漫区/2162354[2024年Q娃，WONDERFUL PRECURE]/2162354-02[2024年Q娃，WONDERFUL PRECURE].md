@@ -467,3 +467,19 @@ wonderful不是彩羽的口癖吗，管cure wonderful什么事<img src="https://
 
 B站有猫组角色歌的中文字幕歌词了，猫猫真是好重啊猫组真是太好嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ダイヤモンド  
+##### 1950#       发表于 2024-7-26 00:39
+
+<img src="https://img.saraba1st.com/forum/202407/26/003914z8lnckhe2tki5h9p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240726003850.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 00:39 上传
+
+你还说不需要陷阱<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

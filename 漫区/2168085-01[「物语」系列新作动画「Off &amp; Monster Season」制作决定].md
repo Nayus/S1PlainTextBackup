@@ -921,3 +921,11 @@ OP太棒了，好多抚子
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  stickimbul  
+##### 505#       发表于 2024-7-25 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">怎么看人说斧乃木也要短发，第一次因为老生常谈的物语剪发桥段悲鸣了
+

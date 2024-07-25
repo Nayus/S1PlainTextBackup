@@ -3261,3 +3261,19 @@ MANTANWEB編集部</blockquote>
 
 [https://x.com/AkaneY_banu/status/1816408307713638517](https://x.com/AkaneY_banu/status/1816408307713638517)
 
+
+*****
+
+####  星天观测  
+##### 21014#       发表于 2024-7-25 18:43
+
+海铃：那我呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21015#       发表于 2024-7-25 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65694759&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-25 17:48</a></blockquote>
+草台换图了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

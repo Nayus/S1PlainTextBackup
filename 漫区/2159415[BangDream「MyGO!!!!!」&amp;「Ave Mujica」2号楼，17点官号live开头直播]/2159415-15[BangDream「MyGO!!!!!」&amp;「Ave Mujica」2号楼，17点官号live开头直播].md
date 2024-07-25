@@ -3200,3 +3200,11 @@ MANTANWEB編集部</blockquote>
 
 每个人都有很多箭头才是健全的队友关系
 
+
+*****
+
+####  星天观测  
+##### 21010#       发表于 2024-7-25 16:09
+
+李茜给我狠狠输入到初喵<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -2899,3 +2899,22 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 去羽泽咖啡厅给前辈撑场，消费水平是祥子能接受的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睦祥都去喝了好几次了
 
+
+*****
+
+####  kivz  
+##### 20980#       发表于 2024-7-25 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65690846&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-7-25 10:57</a>
+去羽泽咖啡厅给前辈撑场，消费水平是祥子能接受的睦祥都去喝了好几次了</blockquote>
+才几次啊，要团建可就花得多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 20981#       发表于 2024-7-25 11:05
+
+没事，祥子会鞭策大家好好练习多卖票多赚钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信一下
+
+而且练习后的小聚应该会是aa吧，压力不大
+

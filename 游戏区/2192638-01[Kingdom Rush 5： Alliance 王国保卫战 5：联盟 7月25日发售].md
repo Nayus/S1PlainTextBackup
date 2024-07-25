@@ -469,3 +469,13 @@ steam解锁啦，开打开打~
 他真的还能再出圣骑那种让同类4级塔成为纯粹小丑的塔吗</blockquote>
 一代圣骑除了坦度也就一般吧，还是蛮子太废了，但这代只能说不如援兵一根了，还得捏着鼻子用<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Onelooker  
+##### 46#       发表于 2024-7-26 05:17
+
+主线一共五个半小时，以前好像没这么短
+
+也有可能是这次升级点数不用三星了
+

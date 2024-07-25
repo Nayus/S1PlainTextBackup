@@ -1715,3 +1715,14 @@ Nagi一专10.16，全部作词担当
 —— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
 really?上次那位已经确定就是那时间了？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">那完了，与一二期的间隔相比，也就多一两个月吧，就粪田那态度和脑子，等着亚巡终场在三个团面前丢脸呢？那是真牛逼。
 
+
+*****
+
+####  starring  
+##### 20668#       发表于 2024-7-25 21:25
+
+Nagi一专发售活动
+<img src="https://p.sda1.dev/18/7c6794b2d085d7139fc1fb6b309133f0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

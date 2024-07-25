@@ -3391,3 +3391,37 @@ sayo+毛力，抽50意思一下吧<img src="https://static.saraba1st.com/image/s
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65696812&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-25 21:42</a></blockquote>
 终于有不是五星和两星的卡了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">不对，这怎么又有卡了。
 
+
+*****
+
+####  Alicest  
+##### 21024#       发表于 2024-7-25 22:00
+
+下周又是拷打羊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/25/220000wyliqd0doy9js93q.bmp" id="aimg_1684440" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>ZCFY0)HA%%IU%DN}`1ZE30O.bmp</strong> (138.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-25 22:00 上传
+
+*****
+
+####  akiomn  
+##### 21025#       发表于 2024-7-25 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么拷打羊，万一羊姐发挥超神呢！
+不过羊姐发挥超神概率大概比wsd脑子正常概率还低吧
+
+
+*****
+
+####  yifan8848  
+##### 21026#       发表于 2024-7-25 22:04
+
+看到李子在後台跳舞的影片了，雞團甚麼時候可以出個後台花絮呢
+
+不然像team y那樣拍個vlog也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

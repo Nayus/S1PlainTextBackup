@@ -3044,3 +3044,20 @@ mujica动画要延到明年一月也算是有原因了</blockquote>
 
 但真的验证了还是挺五味杂陈的
 
+
+*****
+
+####  NODY  
+##### 20994#       发表于 2024-7-25 13:05
+
+泥漏对邦邦的热度有点太自信了，科普一下，巅峰期的film live票房3亿，萝剧场版前篇票房才1亿，后篇无数据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 20995#       发表于 2024-7-25 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692181&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-25 13:05</a>
+泥漏对邦邦的热度有点太自信了，科普一下，巅峰期的film live票房3亿，萝剧场版前篇票房才1亿，后篇无数据 ...</blockquote>
+特典给力的话 黄牛应该会一天看十次的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

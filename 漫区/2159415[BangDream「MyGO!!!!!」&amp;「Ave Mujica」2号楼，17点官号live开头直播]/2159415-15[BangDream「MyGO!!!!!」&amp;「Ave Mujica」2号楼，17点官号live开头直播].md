@@ -3142,3 +3142,11 @@ MANTANWEB編集部</blockquote>
 
 那个扇子不是剧场版周边，是asl和cm的邦邦摊位买蛋白棒送的赠品，大概算是蛋白棒的周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21003#       发表于 2024-7-25 14:08
+
+前篇应该不会有鸡什么事吧，不是主要讲猫视角么，猫见过鸡成员吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

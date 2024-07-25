@@ -22,3 +22,15 @@
 
 根据《福布斯》实时亿万富豪榜统计，他目前的财富为34亿美元。
 
+
+*****
+
+####  susan28  
+##### 262#       发表于 2024-7-25 22:36
+
+TachiyomiJ2K 是不是不更新了啊？
+
+mihon搜索太烂了，什么时候有一个mihonj2k？
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

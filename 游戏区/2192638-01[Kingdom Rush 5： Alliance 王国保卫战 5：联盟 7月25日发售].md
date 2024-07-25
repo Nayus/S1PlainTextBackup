@@ -450,3 +450,11 @@ steam解锁啦，开打开打~
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Onelooker  
+##### 44#       发表于 2024-7-26 00:47
+
+原来两个英雄就是顺理成章的拆两路吗
+

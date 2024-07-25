@@ -458,3 +458,14 @@ steam解锁啦，开打开打~
 
 原来两个英雄就是顺理成章的拆两路吗
 
+
+*****
+
+####  敏感词好多  
+##### 45#       发表于 2024-7-26 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65697998&amp;ptid=2192638" target="_blank">Awanano 发表于 2024-7-26 00:21</a>
+
+他真的还能再出圣骑那种让同类4级塔成为纯粹小丑的塔吗</blockquote>
+一代圣骑除了坦度也就一般吧，还是蛮子太废了，但这代只能说不如援兵一根了，还得捏着鼻子用<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+

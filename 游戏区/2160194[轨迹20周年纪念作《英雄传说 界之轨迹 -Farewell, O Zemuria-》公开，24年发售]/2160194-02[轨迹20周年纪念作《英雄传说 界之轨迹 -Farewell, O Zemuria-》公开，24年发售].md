@@ -5939,3 +5939,26 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回廊这种玩法应该不会有什么加入了又离开的吧
 
+
+*****
+
+####  misaka12321  
+##### 2021#       发表于 2024-7-25 15:16
+
+界轨这回廊界面 真是一股子垃圾手游里垃圾模式的感觉 吐了
+
+
+*****
+
+####  Aeons  
+##### 2022#       发表于 2024-7-25 15:20
+
+哦对的对的，新角色介绍都没有吗
+
+*****
+
+####  ravend233  
+##### 2023#       发表于 2024-7-25 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">没有新角色没有新地区，就一个回廊的系统介绍，没活了
+

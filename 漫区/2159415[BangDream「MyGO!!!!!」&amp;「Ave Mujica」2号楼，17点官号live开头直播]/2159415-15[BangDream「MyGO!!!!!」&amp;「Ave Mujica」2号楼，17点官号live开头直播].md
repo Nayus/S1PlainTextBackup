@@ -2819,3 +2819,11 @@ mygo角色之所以有两面性，并非是她们天生精神病，而是对生�
 
 我的意思是来一个适合她们五个练习后类似于寄り道的地方，如果没有的话希望祥子欠喵梦的庆功宴至少给我补上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 20971#       发表于 2024-7-25 10:22
+
+睦家的大house还自带KTV，挺合适的吧
+

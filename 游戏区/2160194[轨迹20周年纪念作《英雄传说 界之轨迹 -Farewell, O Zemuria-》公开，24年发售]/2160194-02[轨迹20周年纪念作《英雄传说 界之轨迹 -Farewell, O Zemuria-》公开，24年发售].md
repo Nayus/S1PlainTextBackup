@@ -5977,3 +5977,45 @@ IMG_20240725_141807.jpg
 
 妈的，越来越像创轨2了，兴趣大减。
 
+
+*****
+
+####  Aeons  
+##### 2026#       发表于 2024-7-25 15:34
+
+说起来这种闯关解锁剧情，是不是给玩家看的。
+剧情上根本没有人看到也没有解释？
+
+*****
+
+####  ravend233  
+##### 2027#       发表于 2024-7-25 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不买，我不买，看看销量能不能破4W
+
+*****
+
+####  ravend233  
+##### 2028#       发表于 2024-7-25 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65693470&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-25 15:34</a>
+
+说起来这种闯关解锁剧情，是不是给玩家看的。
+
+剧情上根本没有人看到也没有解释？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟不可能做玩家看了和没看的剧情差分，要么是默认角色都看了，要么是默认角色没看
+
+*****
+
+####  一步成诗  
+##### 2029#       发表于 2024-7-25 15:37
+
+看看热闹在泥潭吹吹水得了，不想当冤大头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2030#       发表于 2024-7-25 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正特典都是垃圾，急着买干嘛，现在就急着九月九日忆战斗兄弟了
+

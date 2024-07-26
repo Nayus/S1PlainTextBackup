@@ -582,3 +582,16 @@ SIN这种主攻下三路 standing comedy 的形式做网络视频的，整个网
 
 但感觉少了些当年的惊艳，也不知是不是因为已经被信息时代轰炸了，阈值高了
 
+
+*****
+
+####  三千珈蓝  
+##### 63#       发表于 2024-7-26 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65701031&amp;ptid=1923672" target="_blank">evancy 发表于 2024-7-26 11:42</a>
+
+挖个坟，游戏杂谈终于更了
+
+但感觉少了些当年的惊艳，也不知是不是因为已经被信息时代轰炸了，阈值高了 ...</blockquote>
+懒太久了，活儿重新捡起来需要时间
+

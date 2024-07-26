@@ -1723,3 +1723,14 @@ NPRYT0E$)A11P}E0{R5PEJA_tmb.jpg
 
 没有各手游新活动新卡池的消息吗
 
+
+*****
+
+####  Alicest  
+##### 5815#       发表于 2024-7-26 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65705835&amp;ptid=2130897" target="_blank">SchwarzX 发表于 2024-7-26 20:23</a>
+没有各手游新活动新卡池的消息吗</blockquote>
+完全没有
+和手游相关的只有除了男人外送250个代币
+

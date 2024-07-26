@@ -485,3 +485,16 @@ p6是新p组做的，完全不看好
 男主那个校服我第一眼看还以为是宇将军</blockquote>
 创批形态帅得流水<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">月读创批更是连男主的西瓜头都救回来了
 
+
+*****
+
+####  妮贝雅  
+##### 605#       发表于 2024-7-26 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698003&amp;ptid=2140224" target="_blank">guiminan 发表于 2024-7-26 00:22</a>
+
+要这么说p4也很土，不妨碍现在一堆人捧
+
+高桥哥哥前两作做的那么好，结果不也端出来了个xb3只能说目前感觉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">P4几个妹子还挺好看的呀 还有王者花子（
+

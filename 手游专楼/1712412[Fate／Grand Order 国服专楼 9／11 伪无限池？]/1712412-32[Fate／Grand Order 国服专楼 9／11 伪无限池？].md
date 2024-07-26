@@ -504,3 +504,11 @@
 
 600石抽梣，一个拿破仑一个源为朝，离谱，铁南通<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46578#       发表于 2024-7-26 19:48
+
+一想到限定4星开被动2至少需要2宝就感觉不适
+

@@ -578,3 +578,25 @@ Aniplex一单是95%，实际少了3.25%
 往年的还能猜一猜，今年这图标，完全看不出和周年从者有什么关系</blockquote>
 没有必然联系吧，8周年图标竹子之类孟兰节的装饰，以为会是日本从者，谁知道来个水摩根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 
+
+*****
+
+####  الطائر  
+##### 13099#       发表于 2024-7-26 19:48
+
+fgo第一次改游戏icon是7周年，之前没改过。
+
+7周年的是镶红字两边是金色藤蔓的银白色盾牌，对应公主的眼睛颜色和衣服上的纹饰
+
+8周年的icon和8周年logo不一样是两侧镶金线的蓝色缎带，对应救世主梣的领结
+
+9周年的是镶蓝字的金色圆盘，说明周年从者身上有蓝色的东西和金色的圆形部位。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13100#       发表于 2024-7-26 19:51
+
+都是马后炮 没见过真靠这玩意猜出来的
+

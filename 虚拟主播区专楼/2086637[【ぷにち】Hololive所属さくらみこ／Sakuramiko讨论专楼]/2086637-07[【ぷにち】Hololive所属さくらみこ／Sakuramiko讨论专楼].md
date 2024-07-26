@@ -5215,3 +5215,22 @@ miko短时间内反复死了十几次星街就这么给miko来回运了十几次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整个月ark潮流不可抵挡
 
+
+*****
+
+####  holoan  
+##### 9336#         楼主| 发表于 2024-7-26 17:49
+
+ark服最后一天是要过周年庆的实际上可能很难参加
+
+而且加上收录限制应该基本是2天一ARK
+
+*****
+
+####  holoan  
+##### 9337#         楼主| 发表于 2024-7-26 19:44
+
+跟justice的成员第一次接触了
+
+什么唐突自称EN，人家完全不懂你的梗
+

@@ -1808,3 +1808,11 @@ Nagi一专发售活动
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  cmhyt  
+##### 20678#       发表于 2024-7-26 17:05
+
+虹也不是没写过小组，但是虹他不参加LL啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+

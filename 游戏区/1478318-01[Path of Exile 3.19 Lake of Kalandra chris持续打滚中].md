@@ -16,3 +16,23 @@
 
 借贴问下steamdeck可以玩国服吗。?国际服入库了还是提示此地区不可用
 
+
+*****
+
+####  风尘的时光  
+##### 1405#       发表于 2024-7-26 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65703889&amp;ptid=1478318" target="_blank">back57992 发表于 2024-7-26 16:41</a>
+借贴问下steamdeck可以玩国服吗。?国际服入库了还是提示此地区不可用</blockquote>
+光入库不行，每次都要云激活
+
+*****
+
+####  森田美位子  
+##### 1406#       发表于 2024-7-26 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704077&amp;ptid=1478318" target="_blank">风尘的时光 发表于 2024-7-26 16:57</a>
+
+光入库不行，每次都要云激活</blockquote>
+说法有点小问题，应该叫锁运行
+

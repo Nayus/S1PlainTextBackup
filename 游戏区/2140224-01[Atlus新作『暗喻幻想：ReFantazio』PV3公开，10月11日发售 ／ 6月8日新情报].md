@@ -498,3 +498,29 @@ p6是新p组做的，完全不看好
 高桥哥哥前两作做的那么好，结果不也端出来了个xb3只能说目前感觉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">P4几个妹子还挺好看的呀 还有王者花子（
 
+
+*****
+
+####  Redimercia  
+##### 606#       发表于 2024-7-26 10:19
+
+又翻了下20年前副岛第一次担任主人设的作品
+
+我不好说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/26/101851aylvh996hoiddvjv.png" referrerpolicy="no-referrer">
+
+<strong>0f2704ce-63c1-4812-b6f9-9e28d3faf680.png</strong> (19.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 10:18 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/101851tttq9daaick0j0dj.png" referrerpolicy="no-referrer">
+
+<strong>人设.png</strong> (80.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 10:18 上传
+

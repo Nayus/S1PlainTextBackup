@@ -1688,3 +1688,22 @@ NPRYT0E$)A11P}E0{R5PEJA_tmb.jpg
 
 感觉765的大姐姐们这个live 火锅2  moiw之后确实没啥凑齐的机会了
 
+
+*****
+
+####  七草にちか  
+##### 5811#       发表于 2024-7-26 20:00
+
+唉，还是没voy@ger
+
+
+*****
+
+####  hang_on  
+##### 5812#       发表于 2024-7-26 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65705616&amp;ptid=2130897" target="_blank">黛冬优子 发表于 2024-7-26 19:55</a>
+
+感觉765的大姐姐们这个live 火锅2  moiw之后确实没啥凑齐的机会了</blockquote>
+都多大岁数了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">每一次live都当成最后一场，就也不要怕没
+

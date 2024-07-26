@@ -6559,3 +6559,90 @@ IMG_20240725_141807.jpg
 
 随着故事发展、逐渐逼近共和国篇核心的过程中，也必定会有深挖共和国历史的情节展开。像是建国的中心人物希娜·迪尔克和阿拉密斯，以及刚才提到的「伊斯卡神圣皇国」，关于这些都会解释。
 
+
+*****
+
+####  Aeons  
+##### 2081#       发表于 2024-7-26 17:26
+
+主要是目前唯一的接点昆仑上，似乎只是单纯保镖，那就没什么联系了。
+
+*****
+
+####  Aeons  
+##### 2082#       发表于 2024-7-26 17:26
+
+共和国历史感觉纯来搞笑的，界轨还记得就算赢。
+
+*****
+
+####  卢迪克  
+##### 2083#       发表于 2024-7-26 17:26
+
+最初说静奈重要感觉是想讲一些神圣皇国相关。现在估计没篇幅讲了。只有宇宙军和永劫回归了
+
+*****
+
+####  ravend233  
+##### 2084#       发表于 2024-7-26 17:28
+
+师姐目前展现的故事线是比较游离于共和国篇核心主线的，就算皇国故事线直接给你填完也不知道怎么和目前的主线融合，而且参与故事的理由也是很简单粗暴地拿钱办事
+
+很像先有人物再有剧情（
+
+共和国历史这条线感觉是直接砍完了，目前除了黎2出来个低能小丑外也没透露出一点有用的料
+
+*****
+
+####  一步成诗  
+##### 2085#       发表于 2024-7-26 17:29
+
+贴吧看到一个说得挺对的，初始等级还是15估计就是有界2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2086#       发表于 2024-7-26 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不说我都忘了，莉捷特头上还挂着个某种意义上最重要角色的标签，那和妮娜这种上封面的怎么比呢？ 总不能说蓝头发都是有说法吧
+
+*****
+
+####  ravend233  
+##### 2087#       发表于 2024-7-26 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704344&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-26 17:29</a>
+
+不说我都忘了，莉捷特头上还挂着个某种意义上最重要角色的标签，那和妮娜这种上封面的怎么比呢？ 总不能说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近藤的废话真信了你就输了（）
+
+惯例噱头罢了，我估计就是MK线，女仆是MK线的引子）
+
+
+*****
+
+####  Aeons  
+##### 2088#       发表于 2024-7-26 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704351&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-26 17:30</a>
+近藤的废话真信了你就输了（）
+
+惯例噱头罢了，我估计就是MK线，女仆是MK线的引子） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">目前信息mk也只是挨打位（庭院）和被吐槽位（克洛）啊
+
+*****
+
+####  Aeons  
+##### 2089#       发表于 2024-7-26 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">这个倒是实话，几期杂志，重要两个字已经看无数遍了
+
+*****
+
+####  ravend233  
+##### 2090#       发表于 2024-7-26 17:35
+
+除非它给你整出来个封面六个路人的活，我觉得的上封面的含金量怎么也比近藤的口嗨高（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

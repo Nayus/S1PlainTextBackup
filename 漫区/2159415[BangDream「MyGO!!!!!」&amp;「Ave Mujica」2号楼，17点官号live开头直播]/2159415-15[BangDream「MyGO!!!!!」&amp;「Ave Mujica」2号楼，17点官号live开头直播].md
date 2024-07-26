@@ -3699,3 +3699,14 @@ mujica的主食是什么？煎胡萝卜？还是煎的什么贝类？
 —— 来自 vivo V2302A, Android 14上的 S1Ne ...</blockquote>
 已查收，多谢
 
+
+*****
+
+####  russianbear  
+##### 21045#       发表于 2024-7-26 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65703921&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-26 16:43</a>
+
+黄瓜片黄瓜汁</blockquote>
+如果是睦本人应该会换成芒果汁
+

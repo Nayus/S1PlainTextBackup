@@ -1190,3 +1190,16 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 开局洗刀，白虎接大阴，BOSS就剩血皮了，然后随便打
 
+
+*****
+
+####  杨千fa单推人  
+##### 179#       发表于 2024-7-26 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698585&amp;ptid=2140223" target="_blank">ralfli 发表于 2024-7-26 04:49</a>
+
+刀锷白虎和大阴，剩下的随便，贵人也行
+
+魔像用攻击力大，结晶加攻击力，夜晚第一刀伤害增加，村民减攻宗 ...</blockquote>
+啊，虽然很感谢，可我只是想问应该用哪个具体招式，比如说XXY还是XXX蓄力Y这种<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+

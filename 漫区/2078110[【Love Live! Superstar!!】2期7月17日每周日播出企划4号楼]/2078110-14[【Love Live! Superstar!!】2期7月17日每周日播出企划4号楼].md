@@ -1745,3 +1745,38 @@ Nagi一专发售活动
 去年完成是看七爷说的吧</blockquote>
 2月份就有坛友提过这事。我自己问了一下认识的外包，大概也是说国内这边的工作比想象完成得快，宁可信其有，就看个乐吧
 
+
+*****
+
+####  starring  
+##### 20671#       发表于 2024-7-25 21:25
+
+Nagi一专发售活动
+<img src="https://p.sda1.dev/18/7c6794b2d085d7139fc1fb6b309133f0/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+
+*****
+
+####  黒烨  
+##### 20672#       发表于 2024-7-25 21:45
+
+去年完成是看七爷说的吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 20673#       发表于 2024-7-25 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65696839&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-7-25 21:45</a>
+
+去年完成是看七爷说的吧</blockquote>
+2月份就有坛友提过这事。我自己问了一下认识的外包，大概也是说国内这边的工作比想象完成得快，宁可信其有，就看个乐吧
+
+*****
+
+####  cccpprc  
+##### 20674#       发表于 2024-7-26 08:16
+
+花田啊，这涩谷观音是个已经了无遗憾的大女主，你准备怎么写呢？
+

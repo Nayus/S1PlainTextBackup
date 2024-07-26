@@ -828,3 +828,13 @@ citywalk citylie, citytruck citydie.</blockquote>
 
 遇到刹不住的泥头车就变成cityhunted了
 
+
+*****
+
+####  星㐅影  
+##### 103#       发表于 2024-7-26 11:50
+
+city是你的lie
+
+—— 来自 HONOR FNE-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

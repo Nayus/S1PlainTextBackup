@@ -561,3 +561,20 @@ Aniplex一单是95%，实际少了3.25%
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9周年图标这么早更新好了。。。  难道今天有什么活？
 
+
+*****
+
+####  保罗赫伯特  
+##### 13097#       发表于 2024-7-26 15:06
+
+往年的还能猜一猜，今年这图标，完全看不出和周年从者有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 13098#       发表于 2024-7-26 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65702917&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-7-26 15:06</a>
+往年的还能猜一猜，今年这图标，完全看不出和周年从者有什么关系</blockquote>
+没有必然联系吧，8周年图标竹子之类孟兰节的装饰，以为会是日本从者，谁知道来个水摩根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+

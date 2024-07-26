@@ -661,3 +661,12 @@ fgo第一次改游戏icon是7周年，之前没改过。
 
 只能用藍傻加換裝來打，(黑傻才得寶1)，也不能順便練衣服
 
+
+*****
+
+####  希望之花  
+##### 13106#       发表于 2024-7-27 05:41
+
+X上有人猜是珪素姫
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不认识反正到时候抽就是了
+

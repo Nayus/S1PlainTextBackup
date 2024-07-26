@@ -1779,3 +1779,11 @@ NPRYT0E$)A11P}E0{R5PEJA_tmb.jpg
 没有各手游新活动新卡池的消息吗</blockquote>
 学马应该是浴衣吧
 
+
+*****
+
+####  rgauss  
+##### 5820#       发表于 2024-7-26 21:30
+
+Believe~ Clover~
+

@@ -472,3 +472,16 @@ p6是新p组做的，完全不看好
 男主那个校服我第一眼看还以为是宇将军</blockquote>
 创p形态好看啊 不过smt5重点是仲魔好看的多啊（出厂的人连10个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  fireadol  
+##### 604#       发表于 2024-7-26 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698238&amp;ptid=2140224" target="_blank">Onelooker 发表于 2024-7-26 00:58</a>
+
+所以smt5算好看吗
+
+男主那个校服我第一眼看还以为是宇将军</blockquote>
+创批形态帅得流水<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">月读创批更是连男主的西瓜头都救回来了
+

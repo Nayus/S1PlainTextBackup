@@ -800,3 +800,16 @@ Citymeat cityfry！
 
 赶紧撞大运
 
+
+*****
+
+####  灰色骑士  
+##### 100#       发表于 2024-7-26 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692966&amp;ptid=2192685" target="_blank">犹格索托斯 发表于 2024-7-25 14:36</a>
+怎么还直接躺路上的
+citywalk citylie, citytruck citydie.</blockquote>
+来段尼哥念经
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

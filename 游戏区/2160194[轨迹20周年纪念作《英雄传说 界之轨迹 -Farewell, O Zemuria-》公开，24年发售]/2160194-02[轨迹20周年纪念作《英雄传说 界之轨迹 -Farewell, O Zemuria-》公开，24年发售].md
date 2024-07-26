@@ -6687,3 +6687,41 @@ IMG_20240725_141807.jpg
 
 哪怕是奥瓜，第一次出场也是把可控次数用完了，回老家只能当npc了。
 
+
+*****
+
+####  卢迪克  
+##### 2096#       发表于 2024-7-26 17:49
+
+后面最终章肯定有新剑圣，静奈没什么剧情可以展开了。
+
+界轨不讲，后面也没她的事了。
+
+*****
+
+####  一步成诗  
+##### 2097#       发表于 2024-7-26 17:50
+
+不过也是，黎2设定集那时候说不定还是原定黎3而不是界1呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2098#       发表于 2024-7-26 17:51
+
+感觉哪怕不把皇国讲清楚，界轨结束师姐的故事线也就接近结束了，新篇章不太可能让一个前作角色承担大量剧情，这个方案在黎轨已经失败了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  ravend233  
+##### 2099#       发表于 2024-7-26 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704511&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-26 17:50</a>
+不过也是，黎2设定集那时候说不定还是原定黎3而不是界1呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2结束那会估计还想的是不分线以事务所为主的黎3呢，现在原定计划早就改得面目全非了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

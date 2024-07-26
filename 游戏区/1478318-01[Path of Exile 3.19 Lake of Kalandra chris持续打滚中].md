@@ -63,3 +63,14 @@ steam版必须开加速器运行
 
 你们steam deck国际服能显示中文么，我有台Linux机子不显示中文要改游戏文件才行
 
+
+*****
+
+####  back57992  
+##### 1410#       发表于 2024-7-26 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704312&amp;ptid=1478318" target="_blank">ffggty 发表于 2024-7-26 17:26</a>
+
+你们steam deck国际服能显示中文么，我有台Linux机子不显示中文要改游戏文件才行 ...</blockquote>
+要加速器 要改中文 很麻烦 所以想问问国服有办法么 。。
+

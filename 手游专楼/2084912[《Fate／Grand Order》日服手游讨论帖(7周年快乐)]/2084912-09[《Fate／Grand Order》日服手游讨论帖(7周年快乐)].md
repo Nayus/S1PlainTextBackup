@@ -553,3 +553,11 @@ Aniplex一单是95%，实际少了3.25%
 
 換了蒸氣機械這批後，只得第一次能連續3場都即食，之後連OC2能加即死率的法尼和道滿，都能當無事發生
 
+
+*****
+
+####  alucardcz  
+##### 13096#       发表于 2024-7-26 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">9周年图标这么早更新好了。。。  难道今天有什么活？
+

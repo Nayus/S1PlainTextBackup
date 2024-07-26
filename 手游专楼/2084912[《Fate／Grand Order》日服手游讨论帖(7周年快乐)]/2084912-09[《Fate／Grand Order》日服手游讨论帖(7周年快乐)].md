@@ -641,3 +641,11 @@ fgo第一次改游戏icon是7周年，之前没改过。
 
 结晶掉率一般啊
 
+
+*****
+
+####  onemoment  
+##### 13104#       发表于 2024-7-26 23:01
+
+不会是勇者王吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

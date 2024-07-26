@@ -427,3 +427,13 @@
 
 现在除了主线我基本是躺平状态了，就签到完事，每年福袋来楼里看一眼，结果还是一堆欧皇<img src="https://static.saraba1st.com/image/smiley/face/158.jpg" referrerpolicy="no-referrer">，要么就是真非酋老哥，这次五百多出了两个梣，已经很满意了，还留了差不多五百备战水c，后面还会送一点，抽完又可以躺了，命定new了妖兰，还行，虽然我更想要鹤或者老福，只能说这个福袋出谁我都觉得可以，普通福袋new了剑R姐，也比较满意了，毕竟这个袋是全new，以前抽福袋满意的可能就两三回，明明都是挑尽量少雷抽的
 
+
+*****
+
+####  电波系腑海林  
+##### 46569#       发表于 2024-7-26 11:24
+
+只有一井加50呼符希望汇呆不要太非<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

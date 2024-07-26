@@ -670,3 +670,16 @@ fgo第一次改游戏icon是7周年，之前没改过。
 X上有人猜是珪素姫
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不认识反正到时候抽就是了
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 13107#       发表于 2024-7-27 06:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65711244&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-7-27 05:41</a>
+X上有人猜是珪素姫
+
+不认识反正到时候抽就是了</blockquote>
+说的是月之珊瑚的公主吧，但感觉还不如旧剑的颜色像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不如奶爱歌好了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

@@ -3638,3 +3638,36 @@ dolo这个是雪顶可可？好像还不错的样子<img src="https://static.sar
 
 迫真赤石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 21039#       发表于 2024-7-26 16:41
+
+ 本帖最后由 Aendst 于 2024-7-26 16:44 编辑 
+
+广州店菜单有配料表
+
+<img src="https://img.saraba1st.com/forum/202407/26/164400ngfv4lxfkq6qxyq6.jpg" referrerpolicy="no-referrer">
+
+<strong>007cqNoBgy1hs1i2r62w9j30u016fdsm.jpg</strong> (181.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 16:44 上传
+
+*****
+
+####  skives  
+##### 21040#       发表于 2024-7-26 16:43
+
+黄瓜片黄瓜汁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 21041#       发表于 2024-7-26 16:46
+
+ok果然dolo饮料应该很好喝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

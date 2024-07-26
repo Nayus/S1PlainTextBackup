@@ -6449,3 +6449,11 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法这个每月壁纸虽然本来就很水，但是最次也是立绘拼图，拿游戏截图是真的难蚌
 
+
+*****
+
+####  卢迪克  
+##### 2070#       发表于 2024-7-26 15:43
+
+新角色也就三个啊无所谓了
+

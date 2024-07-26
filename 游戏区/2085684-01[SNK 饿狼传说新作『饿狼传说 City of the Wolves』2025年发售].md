@@ -27,3 +27,11 @@
 
 <img src="https://img.saraba1st.com/forum/202407/26/131756xbvtnsvik2zbav7t.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 326#       发表于 2024-7-26 14:03
+
+比利你怎么颓了啊，老大死了也没见你这么邋遢啊，难道是因为妹妹已经嫁给某个泰拳冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1798,3 +1798,13 @@ Nagi一专发售活动
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  csolfans  
+##### 20677#       发表于 2024-7-26 12:59
+
+其实证明了二组在连轴转之外也证明不了啥……
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

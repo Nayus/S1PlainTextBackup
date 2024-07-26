@@ -838,3 +838,11 @@ city是你的lie
 
 —— 来自 HONOR FNE-AN00, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cubesun  
+##### 104#       发表于 2024-7-26 12:57
+
+我就是因为FF15开头小黄毛在沙漠中的公路上放挺，认定这游戏的编剧是傻逼，至今没玩下去<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

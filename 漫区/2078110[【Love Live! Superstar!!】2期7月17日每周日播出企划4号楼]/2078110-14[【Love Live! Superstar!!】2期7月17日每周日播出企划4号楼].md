@@ -1816,3 +1816,14 @@ Nagi一专发售活动
 
 虹也不是没写过小组，但是虹他不参加LL啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20679#       发表于 2024-7-26 18:09
+
+pay和nako
+<img src="https://p.sda1.dev/18/bc4a60856c5bdd9fda0e7a36f0751f5d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

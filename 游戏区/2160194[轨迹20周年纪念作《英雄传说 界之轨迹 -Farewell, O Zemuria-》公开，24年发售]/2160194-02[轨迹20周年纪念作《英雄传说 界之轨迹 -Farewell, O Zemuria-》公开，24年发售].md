@@ -6284,3 +6284,77 @@ IMG_20240725_141807.jpg
 
 看到这才想起来，艾梅丝总有人物介绍吧
 
+
+*****
+
+####  Aeons  
+##### 2055#       发表于 2024-7-25 16:59
+
+按黎一说，狮子和247都是熟人，说不好的。
+
+*****
+
+####  hayate0079  
+##### 2056#       发表于 2024-7-25 17:24
+
+这尼玛这小游戏的小人简直是晓之轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 2057#       发表于 2024-7-25 17:42
+
+吼天狮子跟小丑都能聊上，啥熟不熟的
+
+*****
+
+####  宛若青空  
+##### 2058#       发表于 2024-7-26 03:03
+
+日服数字版预购开了
+
+<img src="https://img.saraba1st.com/forum/202407/26/030252z1y6j3h56jjdjhgo.png" referrerpolicy="no-referrer">
+
+<strong>IMG_0761.png</strong> (734.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/030253n24smdil4i4f2i2a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0762.jpeg</strong> (659.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/030254r97wft1p9wj9t1az.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0763.jpeg</strong> (987.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 03:02 上传
+
+*****
+
+####  Aeons  
+##### 2059#       发表于 2024-7-26 03:23
+
+看到这才想起来，艾梅丝总有人物介绍吧
+
+*****
+
+####  一步成诗  
+##### 2060#       发表于 2024-7-26 08:08
+
+昨天没放pv也没预告直播，真就一月一次啊，真是摆摆又烂烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 2061#       发表于 2024-7-26 08:12
+
+说起来几张回忆图感觉都是新画师的创作，可惜这几张画的大多都是小孩，这画师之前感觉画人有点太幼了，不知道现在好点没。之前黎2的形象拿捏的也不太准。伊苏10好了一点
+

@@ -370,3 +370,13 @@
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  flyzzhj  
+##### 46563#       发表于 2024-7-26 08:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">RBA+1
+
+还好另外一边终于把公主给补满宝了
+

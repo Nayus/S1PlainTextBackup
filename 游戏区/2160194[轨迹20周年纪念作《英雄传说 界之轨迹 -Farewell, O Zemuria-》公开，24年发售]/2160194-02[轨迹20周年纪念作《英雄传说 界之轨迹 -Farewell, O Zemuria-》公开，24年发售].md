@@ -6510,3 +6510,52 @@ IMG_20240725_141807.jpg
 还没介绍：静名
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 2076#       发表于 2024-7-26 17:20
+
+艾蕾因：那我呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2077#       发表于 2024-7-26 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704200&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-26 17:12</a>
+目前看起来就是设计一条故事线给里爷凑出场剧情的（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">其他人基本是本地人啊，故事无关主线也能补充地区内容背景，远的mk和中东也能去不是么，你这斑鸠极东就是天花乱坠讲出花来跟共和国也没一毛关系，也去不了啊。
+
+*****
+
+####  Aeons  
+##### 2078#       发表于 2024-7-26 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704226&amp;ptid=2160194" target="_blank">minus13 发表于 2024-7-26 17:15</a>
+重要人物：莉婕特
+
+超重要人物：亚妮艾丝
+
+还没介绍：静名</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">反了，莉捷特是最重要人物
+
+*****
+
+####  ravend233  
+##### 2079#       发表于 2024-7-26 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704263&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-26 17:21</a>
+
+其他人基本是本地人啊，故事无关主线也能补充地区内容背景，远的mk和中东也能去不是么，你这斑鸠极东就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以师姐这条线确实沾点意义不明
+
+估计你法社是按照先设定角色再设计剧情的思路去构筑故事的，有人想塞一个这样的角色进去，文案再编理由把这个设定圆上
+
+*****
+
+####  卢迪克  
+##### 2080#       发表于 2024-7-26 17:25
+
+随着故事发展、逐渐逼近共和国篇核心的过程中，也必定会有深挖共和国历史的情节展开。像是建国的中心人物希娜·迪尔克和阿拉密斯，以及刚才提到的「伊斯卡神圣皇国」，关于这些都会解释。
+

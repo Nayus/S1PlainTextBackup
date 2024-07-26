@@ -44,3 +44,14 @@
 
 steam版必须开加速器运行
 
+
+*****
+
+####  adretyu67.  
+##### 1408#       发表于 2024-7-26 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65703889&amp;ptid=1478318" target="_blank">back57992 发表于 2024-7-26 16:41</a>
+
+借贴问下steamdeck可以玩国服吗。?国际服入库了还是提示此地区不可用</blockquote>
+我最早应该用的也是steam版，不过因为国服的原因应该很早就锁了。
+

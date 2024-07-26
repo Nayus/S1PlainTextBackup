@@ -71,3 +71,25 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得月计现在就把蝶哥这种高人气异想体端上来实在是有点急
 
+
+*****
+
+####  钟于123  
+##### 804#       发表于 2024-7-26 21:39
+
+感谢搬运
+
+经典延期（通行证真值啊）
+
+没想到w活动是出的傀儡师，也没想到圣宣这么快就出了。
+
+
+*****
+
+####  Yuzutea  
+##### 805#       发表于 2024-7-26 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么一赛季两瓦夜啊
+
+看看第一期那播音能不能换，能换我就只抽一个天井了
+

@@ -1787,3 +1787,19 @@ NPRYT0E$)A11P}E0{R5PEJA_tmb.jpg
 
 Believe~ Clover~
 
+
+*****
+
+####  wfhtony  
+##### 5821#       发表于 2024-7-26 21:44
+
+这次SC的夏季LIVE，惯例有副音轨生放。
+
+<img src="https://img.saraba1st.com/forum/202407/26/214401gjuzoozhwfkhfgqy.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-26-21h42m42s269.jpg</strong> (432.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 21:44 上传
+

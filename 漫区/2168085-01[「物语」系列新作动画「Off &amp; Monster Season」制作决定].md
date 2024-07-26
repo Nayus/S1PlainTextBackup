@@ -955,3 +955,25 @@ OP太棒了，好多抚子
 
 这集的演出是宫本
 
+
+*****
+
+####  Piano-Forest  
+##### 508#         楼主| 发表于 2024-7-26 11:13
+
+#04 撫物語 なでこドロー 其ノ參
+
+老倉育との会話からヒントを得た撫子は、おと撫子を確保すべく阿良々木家へ向かっていた。しかし玄関のノブの辺りには、人間の手首が通るくらいの大穴が空いていて――。一方、別方向へ式神撫子を捜しに行った余接は、北白蛇神社へ向かっていた。
+
+脚本：大嶋実句
+
+絵コンテ：松村幸治
+
+演出：宮本幸裕
+
+作画監督：伊藤良明・高野晃久・高橋みき・浅井昭人・鮫島寿志・ハンミンギ・宮嶋仁志・北島勇樹
+<img src="https://p.sda1.dev/18/97e032d68ca3a1df55848dc9a1743aaa/story_3585_photo_1721889050845903254.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0a58a20d1db87aed301b54770a4128b8/story_3585_photo_1721889051408272923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ea9e79df89b8cc443bf25606be312fa3/story_3585_photo_1721889051144533946.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3868bd7b56e13fe92b7924fd6a483c75/story_3585_photo_1721889051634257421.jpg" referrerpolicy="no-referrer">
+

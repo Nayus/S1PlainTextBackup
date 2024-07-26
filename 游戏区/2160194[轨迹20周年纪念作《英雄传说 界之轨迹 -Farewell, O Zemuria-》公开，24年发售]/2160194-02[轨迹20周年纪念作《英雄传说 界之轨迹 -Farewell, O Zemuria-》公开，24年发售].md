@@ -6744,3 +6744,64 @@ IMG_20240725_141807.jpg
 
 近藤废话听听就得了，黎2是什么坑爹剧情都懂。界轨也不知道会端出什么玩意
 
+
+*****
+
+####  一步成诗  
+##### 2102#       发表于 2024-7-26 17:50
+
+不过也是，黎2设定集那时候说不定还是原定黎3而不是界1呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2103#       发表于 2024-7-26 17:51
+
+感觉哪怕不把皇国讲清楚，界轨结束师姐的故事线也就接近结束了，新篇章不太可能让一个前作角色承担大量剧情，这个方案在黎轨已经失败了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 2104#       发表于 2024-7-26 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704511&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-26 17:50</a>
+不过也是，黎2设定集那时候说不定还是原定黎3而不是界1呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2结束那会估计还想的是不分线以事务所为主的黎3呢，现在原定计划早就改得面目全非了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 2105#       发表于 2024-7-26 18:04
+
+<blockquote>一步成诗 发表于 2024-7-26 17:50
+不过也是，黎2设定集那时候说不定还是原定黎3而不是界1呢</blockquote>
+黎1的故事结束了，但对共和国篇来说，从现在起才是真正的开始。刚才也提到了，接下来会有以往轨迹系列都没有的原理、或者说是规则出现，逐渐逼近轨迹系列的核心。因此，我希望大家不要错过黎2这个故事。
+
+*****
+
+####  卢迪克  
+##### 2106#       发表于 2024-7-26 18:04
+
+ 本帖最后由 卢迪克 于 2024-7-26 18:06 编辑 
+
+近藤废话听听就得了，黎2是什么坑爹剧情都懂。界轨也不知道会端出什么玩意
+
+*****
+
+####  酷乐  
+##### 2107#       发表于 2024-7-27 06:59
+
+再次明确盟主=クレハ？
+
+<img src="https://img.saraba1st.com/forum/202407/27/065830rilwi2tt2lc0j2ci.jpg" referrerpolicy="no-referrer">
+
+<strong>000_o.jpg</strong> (157.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 06:58 上传
+

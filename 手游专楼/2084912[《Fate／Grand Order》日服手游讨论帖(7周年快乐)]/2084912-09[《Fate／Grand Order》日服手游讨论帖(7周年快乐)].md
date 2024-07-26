@@ -649,3 +649,15 @@ fgo第一次改游戏icon是7周年，之前没改过。
 
 不会是勇者王吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 13105#       发表于 2024-7-26 23:15
+
+ 本帖最后由 eilot 于 2024-7-26 23:17 编辑 
+
+已經不太吃即死了
+
+只能用藍傻加換裝來打，(黑傻才得寶1)，也不能順便練衣服
+

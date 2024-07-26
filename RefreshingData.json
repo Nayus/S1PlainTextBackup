@@ -3777,7 +3777,7 @@
     "lastedit": 1721994120,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1410,
@@ -8784,10 +8784,10 @@
     "update": false
   },
   "2185177": {
-    "totalreply": 53806,
+    "totalreply": 53808,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼7.0]",
-    "lastedit": 1722024974,
+    "lastedit": 1722025330,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9225,10 +9225,10 @@
     "update": false
   },
   "2185578": {
-    "totalreply": 379,
+    "totalreply": 380,
     "title": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs]",
     "newtitle": "[真・三国无双 起源公布，原创主角，2025年登录ps5／pc／xs｜cj首次公开实机演示]",
-    "lastedit": 1722016448,
+    "lastedit": 1722025448,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -10444,15 +10444,6 @@
     "title": "[【送福利】steam好评如潮佳作史低背刺！留言赢取《风暴之城》]",
     "newtitle": "[【送福利】steam好评如潮佳作史低背刺！留言赢取《风暴之城》]",
     "lastedit": 1720851020,
-    "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2162731": {
-    "totalreply": 81,
-    "title": "[Aniplex 发行：水烟水雾、又大又白（类赛博酒保）PC／NS]",
-    "newtitle": "[Aniplex 发行：水烟水雾、又大又白（类赛博酒保）PC／NS]",
-    "lastedit": 1720815967,
     "category": "游戏区",
     "active": false,
     "update": false
@@ -14472,10 +14463,10 @@
     "update": false
   },
   "2192321": {
-    "totalreply": 191,
+    "totalreply": 192,
     "title": "[加拿大女子曝光大量印度人在沙滩随地大小便,被印媒指责种族歧视]",
     "newtitle": "[加拿大女子曝光大量印度人在沙滩随地大小便,被印媒指责种族歧视]",
-    "lastedit": 1722024372,
+    "lastedit": 1722025333,
     "category": "外野",
     "active": true,
     "update": false
@@ -16506,10 +16497,10 @@
     "update": false
   },
   "2192827": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[那么哈里斯是小三吗？]",
     "newtitle": "[那么哈里斯是小三吗？]",
-    "lastedit": 1722024732,
+    "lastedit": 1722025690,
     "category": "外野",
     "active": true,
     "update": false
@@ -16596,10 +16587,10 @@
     "update": false
   },
   "2192861": {
-    "totalreply": 1738,
+    "totalreply": 1877,
     "title": "[你们会熬夜看奥运开幕式吗]",
     "newtitle": "[你们会熬夜看奥运开幕式吗（转型直播闲聊楼）]",
-    "lastedit": 1722024978,
+    "lastedit": 1722025691,
     "category": "外野",
     "active": true,
     "update": false

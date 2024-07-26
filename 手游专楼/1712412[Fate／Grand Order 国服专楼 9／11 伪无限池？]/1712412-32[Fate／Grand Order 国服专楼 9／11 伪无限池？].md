@@ -461,3 +461,11 @@
 
 现在还有s1国服群么，有没有高宝暗狐大佬加我啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MMIno  
+##### 46573#       发表于 2024-7-26 15:57
+
+福袋出了兽尼禄和提妈，抽水摩根歪了一个大象，真有你的啊
+

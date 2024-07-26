@@ -6358,3 +6358,94 @@ IMG_20240725_141807.jpg
 
 说起来几张回忆图感觉都是新画师的创作，可惜这几张画的大多都是小孩，这画师之前感觉画人有点太幼了，不知道现在好点没。之前黎2的形象拿捏的也不太准。伊苏10好了一点
 
+
+*****
+
+####  ravend233  
+##### 2062#       发表于 2024-7-26 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698849&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-7-26 08:08</a>
+
+昨天没放pv也没预告直播，真就一月一次啊，真是摆摆又烂烂啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下什么都没有了
+
+*****
+
+####  卢迪克  
+##### 2063#       发表于 2024-7-26 08:48
+
+ 本帖最后由 卢迪克 于 2024-7-26 08:54 编辑 
+
+本来就摆，不想给宣发
+
+<img src="https://img.saraba1st.com/forum/202407/26/084838v9jxd0lzjd2020jp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240726_084800.jpg</strong> (176.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-26 08:48 上传
+
+<img src="https://img.saraba1st.com/forum/202407/26/084842wgpbzwkw7gxdwdyv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240726_084812.jpg</strong> (160.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-7-26 08:48 上传
+
+*****
+
+####  一步成诗  
+##### 2064#       发表于 2024-7-26 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65699060&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-7-26 08:45</a>
+
+这下什么都没有了</blockquote>
+既然一月一次上次怎么不放帝国组战技演示啊，不会觉得自己这次的曲子写得很好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2065#       发表于 2024-7-26 08:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能节目组只有一次播片的时长吧
+
+*****
+
+####  ravend233  
+##### 2066#       发表于 2024-7-26 09:02
+
+<img src="https://img.saraba1st.com/forum/202407/26/090213z67lpsk1zqs6p7ii.png" referrerpolicy="no-referrer">
+
+<strong>$T6{FDRT7K[4M@AJB{TFZ}C.png</strong> (64.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 09:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 2067#       发表于 2024-7-26 09:02
+
+黎1和黎2七月就只有一次直播，八月才有两次，
+
+*****
+
+####  一步成诗  
+##### 2068#       发表于 2024-7-26 09:04
+
+真是寒寒又酸酸口牙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2069#       发表于 2024-7-26 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法这个每月壁纸虽然本来就很水，但是最次也是立绘拼图，拿游戏截图是真的难蚌
+

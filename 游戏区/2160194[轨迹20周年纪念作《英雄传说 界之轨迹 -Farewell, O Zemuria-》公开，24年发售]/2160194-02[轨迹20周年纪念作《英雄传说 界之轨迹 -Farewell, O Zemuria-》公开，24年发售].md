@@ -6487,3 +6487,26 @@ IMG_20240725_141807.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">不过顺序不影响重要程度，现在公布的无非就是三代主角团，感觉都不是很重要啊，反正不靠主角们推动剧情。
 
+
+*****
+
+####  ravend233  
+##### 2074#       发表于 2024-7-26 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704011&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-7-26 16:50</a>
+
+去年那会我解释过了啊。原文是说值得关注的有静名，理由是她的故事在这之前就没讲，并没有强调说特别重要。 ...</blockquote>
+目前看起来就是设计一条故事线给里爷凑出场剧情的（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  minus13  
+##### 2075#       发表于 2024-7-26 17:15
+
+重要人物：莉婕特
+
+超重要人物：亚妮艾丝
+
+还没介绍：静名
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

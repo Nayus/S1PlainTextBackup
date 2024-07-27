@@ -194,3 +194,19 @@
 
 （而且你肝镜牢，新人体力不够的，买每日体力不建议超过2次，新人想肝也就3次，因为体力上限会随着等级提升。）
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 811#       发表于 2024-7-27 20:03
+
+<img src="https://img.saraba1st.com/forum/202407/27/200251iqes7x888h82vvqd.png" referrerpolicy="no-referrer">
+
+<strong>limbus.png</strong> (548.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 20:02 上传
+
+球配队<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
+

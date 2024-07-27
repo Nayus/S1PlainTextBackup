@@ -114,3 +114,28 @@ kmr和fkhr都不在了，至少三年前就开始淡出了
 
 问题来了，cy游戏离了gbf还有什么能剩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 18022#       发表于 2024-7-27 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65716466&amp;ptid=1158205" target="_blank">小Q 发表于 2024-7-27 19:48</a>
+
+问题来了，cy游戏离了gbf还有什么能剩</blockquote>
+影之诗2和马娘吧，然后gbf估计靠主机端了
+
+*****
+
+####  jxzeroga0  
+##### 18023#       发表于 2024-7-27 19:58
+
+大概内部评价数据真不行，搞得需要这么榨干价值连个吉祥物都不当直接不管了。kmr制作人高管太忙还好说，fkhr本身兼任一堆衍生作的导演和世界观总策划都跑，今年这ip运营操作是真的很谜啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 18024#       发表于 2024-7-27 20:01
+
+但是我刚入坑的时候角色靠做，武器靠农，基本上没任何氪金点，不至于现在十把武器靠抽，团战前出特定角色的营收还不如那个时候吧
+

@@ -547,3 +547,15 @@ ps：精灵法师塔是不是还是那么废啊
 
 第三章给怪加血的那个地形真是给我恶心到吐了
 
+
+*****
+
+####  敏感词好多  
+##### 55#       发表于 2024-7-27 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65717479&amp;ptid=2192638" target="_blank">みさ 发表于 2024-7-27 21:17</a>
+第三章给怪加血的那个地形真是给我恶心到吐了</blockquote>
+应该是这系列最死妈的机制了，完全没反制手段，第三章吃特殊加成的出生怪还多的一批<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

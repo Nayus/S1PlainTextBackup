@@ -2263,3 +2263,184 @@ PS：这两天迷光的三位都有出演，目前是除了overture阶段之外�
 
 笑死 其他情报大家都在喊 就动画没声了
 
+
+*****
+
+####  wfhtony  
+##### 5859#       发表于 2024-7-27 18:39
+
+<img src="https://img.saraba1st.com/forum/202407/27/183820a2vxiovz37u5p52p.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h29m28s581.jpg</strong> (345.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183821s5i5hzwpbhqrnwtt.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h29m33s859.jpg</strong> (206.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:38 上传
+
+这次ECHO系列的主题曲确定发售共通版本。
+
+S4P的下个新曲活动是花组。
+
+<img src="https://img.saraba1st.com/forum/202407/27/183821gis7vdzunzpa0iv3.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h31m38s383.jpg</strong> (449.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183823uhm0h5wl0bs1elxp.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h31m43s996.jpg</strong> (272.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183825tttzsxflqkphbhfl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h31m51s720.jpg</strong> (216.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:38 上传
+
+然后会有泳装活动：
+
+<img src="https://img.saraba1st.com/forum/202407/27/183907vg8g9jwrkjg3f9wc.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h31m57s952.jpg</strong> (96.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183908vvtvbp7axa6g11z1.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h32m01s394.jpg</strong> (121.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183908dlj9l0elnncempwh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h32m05s088.jpg</strong> (130.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183909neakx3een4e66e43.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h32m19s420.jpg</strong> (114.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183910vd5utk89lrretup4.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h32m26s519.jpg</strong> (110.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183910pofa0lxbfvpxoacx.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h32m40s460.jpg</strong> (203.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183911r77kvgl3vx7gx9kz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h34m28s925.jpg</strong> (192.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+动画...当不存在吧。
+
+=====
+
+新情报：
+
+<img src="https://img.saraba1st.com/forum/202407/27/183938tiz8m8zfvg85eimo.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h35m06s395.jpg</strong> (305.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183938bp2uuxjifiixxiiz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h35m12s638.jpg</strong> (497.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183939v4w30gouew1zqb56.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h35m17s620.jpg</strong> (147.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/183940z4dmt4y0w45nztjp.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h35m25s462.jpg</strong> (323.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:39 上传
+
+6th的蓝光今天开放预约。
+
+
+*****
+
+####  陆久舟  
+##### 5860#       发表于 2024-7-27 18:44
+
+这一手啊
+
+*****
+
+####  冰寒之月  
+##### 5861#       发表于 2024-7-27 18:44
+
+原来这个穿越世界小情侣是为了在过去时间线引出迷光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 5862#       发表于 2024-7-27 18:45
+
+原来路人情侣是动画观众<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 5863#       发表于 2024-7-27 18:45
+
+ 本帖最后由 wfhtony 于 2024-7-27 18:47 编辑 
+
+迷光那下确实是藏了活（剧情需要）。
+
+那明天 Day 2 应该是ノクチル处于「神隐」状态了。
+

@@ -4027,3 +4027,45 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 看来可以不用担心搞出c团和解重唱十人春日影的活了
 
+
+*****
+
+####  DarthAka  
+##### 21075#       发表于 2024-7-27 18:40
+
+节奏组一直谁在C一目了然，早就该扶正
+
+
+*****
+
+####  DarthAka  
+##### 21076#       发表于 2024-7-27 18:43
+
+音一会这歌早就该BAN了
+
+*****
+
+####  PDQ4  
+##### 21077#       发表于 2024-7-27 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715853&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-27 18:35</a>
+
+我猜总集篇7th就是用来解封mygo版春日影的
+
+看来可以不用担心搞出c团和解重唱十人春日影的活了 ...</blockquote>
+真这样那不是说明wsd觉得狗动画广告打得有问题，元素花园作的曲子应该很前期了，结果动画一播直接默认成ccc曲子没法唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 21078#       发表于 2024-7-27 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715909&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-7-27 18:43</a>
+
+音一会这歌早就该BAN了</blockquote>
+比我预期好多了，虽然青木拉了个大的
+
+再练一年差不多了
+
+我还指望翻唱envy呢
+

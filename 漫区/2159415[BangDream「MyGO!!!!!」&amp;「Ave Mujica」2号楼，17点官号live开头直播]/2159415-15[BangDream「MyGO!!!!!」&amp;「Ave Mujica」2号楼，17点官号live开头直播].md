@@ -3973,3 +3973,57 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 我去，新mv
 
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21069#       发表于 2024-7-27 18:26
+
+剧场版情报也有了
+
+*****
+
+####  紫吹兰  
+##### 21070#         楼主| 发表于 2024-7-27 18:28
+
+属于猫猫的春日影<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  depthlee  
+##### 21071#       发表于 2024-7-27 18:32
+
+猫猫pv几乎可以说一直在哼春日影
+
+难道猫猫真的是ccc人？
+
+
+*****
+
+####  CyDiablo  
+##### 21072#       发表于 2024-7-27 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小猫，你不会真看了ccc那场春日影吧
+什么跳高场地
+新画面太好了啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 21073#       发表于 2024-7-27 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715688&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-7-27 18:11</a>
+激动人心的紧张时刻！</blockquote>
+一个人的怒火四个人分担吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  NODY  
+##### 21074#       发表于 2024-7-27 18:35
+
+我猜总集篇7th就是用来解封mygo版春日影的
+
+看来可以不用担心搞出c团和解重唱十人春日影的活了
+

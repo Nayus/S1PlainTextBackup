@@ -2240,3 +2240,26 @@ PS：这两天迷光的三位都有出演，目前是除了overture阶段之外�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">牢0又不见了
 
+
+*****
+
+####  陆久舟  
+##### 5856#       发表于 2024-7-27 18:30
+
+怎么又出冬优子，还要挖矿了
+
+
+*****
+
+####  magicc  
+##### 5857#       发表于 2024-7-27 18:33
+
+笑死，到动画就没什么呼声了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰寒之月  
+##### 5858#       发表于 2024-7-27 18:33
+
+笑死 其他情报大家都在喊 就动画没声了
+

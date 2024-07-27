@@ -4178,3 +4178,34 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 但实际上，不仅跟doloris没有关系，跟oblivions也没关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21091#       发表于 2024-7-27 19:18
+
+不如说我突然想到涉及到春日影的时候就只剩键盘问题了，原来谁弹节奏吉他part没有那么重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 21092#       发表于 2024-7-27 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往好处想，起码鸡可能有一首新歌新live放动画了，不用听再听一遍c团春日影了
+
+
+*****
+
+####  星天观测  
+##### 21093#       发表于 2024-7-27 19:24
+
+真有吗，不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的建议是剧场版就别在带鸡出来开live了，不然要还多少时间我不好说，让狗多演点自己的live，狗粉舒服了也顺便给鸡粉一个清净吧
+
+*****
+
+####  akiomn  
+##### 21094#       发表于 2024-7-27 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了，我也这么想，狗团的动画就别带鸡出来了，不然下篇剧场版突然跑出个鸡团的live，以剧情节奏来说，想想就觉得怪。还是把鸡的live部分换成狗的新live好点
+但是wsd这脑子又不好说
+

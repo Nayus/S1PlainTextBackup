@@ -2122,3 +2122,106 @@ C104的特典：
 
 嘘<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alicest  
+##### 5841#       发表于 2024-7-27 17:31
+
+不是，真没迷光？
+
+*****
+
+####  wfhtony  
+##### 5842#       发表于 2024-7-27 17:32
+
+ 本帖最后由 wfhtony 于 2024-7-27 17:48 编辑 
+
+八个组，指「イルミネーションスターズ」「アンティーカ」「放課後クライマックスガールズ」「アルストロメリア」「ノクチル」「シーズ」「コメティック」和「シャイニーカラーズ」这八组...
+
+嗯...嗯？
+
+PS：这两天迷光的三位都有出演，目前是除了overture阶段之外完全消失状态，且目前官推没有发相关的消息。应该是后面还有活...？
+
+*****
+
+####  712628  
+##### 5843#       发表于 2024-7-27 17:46
+
+牢0人呢<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 5844#       发表于 2024-7-27 17:47
+
+牢0在后台晕倒了;没做牢0衣服;被穿小鞋
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 5845#       发表于 2024-7-27 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">抱歉没排练这首，鸽了
+
+*****
+
+####  陆久舟  
+##### 5846#       发表于 2024-7-27 17:49
+
+瞎穿越到牢玲不在的未来了
+
+说笑的，玲玲应该是顶不住没上，这曲没放录音，说明一开始就没安排让玲玲上
+
+*****
+
+####  magicc  
+##### 5847#       发表于 2024-7-27 17:49
+
+怎么又变回两个了？
+
+*****
+
+####  joshua1990  
+##### 5848#       发表于 2024-7-27 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第二首说不过去呀，这首上次她有出场的时候合唱过的呀
+
+*****
+
+####  陆久舟  
+##### 5849#       发表于 2024-7-27 17:51
+
+当时玲玲参演时就说了只参与部分歌
+
+*****
+
+####  冰寒之月  
+##### 5850#       发表于 2024-7-27 17:51
+
+想你了 牢0
+
+
+*****
+
+####  Alicest  
+##### 5851#       发表于 2024-7-27 17:52
+
+#迷光暗杀00
+#羊宫唆使小孩姐偷00cd
+
+*****
+
+####  冰寒之月  
+##### 5852#       发表于 2024-7-27 17:55
+
+终于现身的迷光
+
+*****
+
+####  joshua1990  
+##### 5853#       发表于 2024-7-27 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">结果也没整啥活呀
+

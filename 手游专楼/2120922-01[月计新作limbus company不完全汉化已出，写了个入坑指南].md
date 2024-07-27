@@ -93,3 +93,17 @@
 
 看看第一期那播音能不能换，能换我就只抽一个天井了
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 806#       发表于 2024-7-27 12:35
+
+最近刚看见这个游戏想入坑
+
+然后查了下好像9月才出最优质的池子，魔女之夜
+
+想问下这1个多月的时间就不抽卡随便玩玩吗？<img src="https://static.saraba1st.com/image/smiley/face/50.gif" referrerpolicy="no-referrer">
+
+目前是石头号6w石头
+

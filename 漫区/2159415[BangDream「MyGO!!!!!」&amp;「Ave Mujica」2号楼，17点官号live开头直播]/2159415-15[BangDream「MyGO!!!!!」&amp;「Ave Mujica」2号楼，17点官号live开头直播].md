@@ -3798,3 +3798,19 @@ mujica的主食是什么？煎胡萝卜？还是煎的什么贝类？
 中之人疑似佐仓的管人今天有演场会，好像是本人遮脸上台
 [https://b23.tv/gk7RnpT](https://b23.tv/gk7RnpT)
 
+
+*****
+
+####  WhiteGlint  
+##### 21052#       发表于 2024-7-27 16:41
+
+<img src="https://img.saraba1st.com/forum/202407/27/164052s451ph7to1hktzxz.jpg" referrerpolicy="no-referrer">
+
+<strong>1000114946.jpg</strong> (687.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 16:40 上传
+
+马上开演了 第一次来现地 好紧张（）
+

@@ -4360,3 +4360,34 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 端程山MV里的大家是不是有点成熟了，尤其是灯，像是换了个人
 
+
+*****
+
+####  NODY  
+##### 21113#       发表于 2024-7-27 20:50
+
+ 本帖最后由 NODY 于 2024-7-27 20:51 编辑 
+
+这个预告一下子就补上了猫家里的情况，学校情况，学习成绩的设定，再加内心活动回忆杀，虽然篇幅估计不多但也算是设定补完了，这下真就剩立希戏份和补丁都没有了，唉，立希，亏鼓子营业那么努力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过mv找了奏这样比较喜欢立希的作者，还加了点私货，看在这个份上我暂时和解一下
+
+
+*****
+
+####  Aendst  
+##### 21114#       发表于 2024-7-27 20:55
+
+这次mygo的mv制作阵容让我对武士道改观了
+
+奏就不说了，还有四个动画师给做动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来想好好做mv想约点正常画师都是能做到的啊
+
+唉，洗脚的自我修养
+
+*****
+
+####  御幸一也  
+##### 21115#       发表于 2024-7-27 20:56
+
+人家是皇族 洗腳的怎麼比<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

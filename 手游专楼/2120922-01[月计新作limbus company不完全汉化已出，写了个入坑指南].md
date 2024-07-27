@@ -210,3 +210,39 @@
 
 球配队<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  钟于123  
+##### 812#       发表于 2024-7-27 20:48
+
+先这个顺序打主线，能打多少算多少，要7个人就借助战。
+
+<img src="https://img.saraba1st.com/forum/202407/27/204513b2ozokzqzifsk2ss.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (114.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 20:45 上传
+
+镜牢里的天赋树免费送了一些开局加成，就把w唐换成T唐一样的顺序打镜牢就行，把时间缰绳升级满行其他都没要求直接自动。
+
+<img src="https://img.saraba1st.com/forum/202407/27/204615l4pppugnpbbeo5gc.png" referrerpolicy="no-referrer">
+
+<strong>无标题2.png</strong> (114 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 20:46 上传
+
+*****
+
+####  钟于123  
+##### 813#       发表于 2024-7-27 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65716624&amp;ptid=2120922" target="_blank">DRAGONBLEAPIECE 发表于 2024-7-27 20:03</a>
+
+球配队</blockquote>
+这边人少，还有问题最好去贴吧 边狱公司吧 问问。
+

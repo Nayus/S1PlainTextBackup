@@ -1099,3 +1099,14 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 化物语里就是历和神原去神社解除抚子诅咒的啊</blockquote>
 哦哦草，忘记作品跨度20年但里面实际将近1年，还以为是在这之中又哪里交际了
 
+
+*****
+
+####  loka  
+##### 521#       发表于 2024-7-28 00:16
+
+  私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+<img src="https://static.saraba1st.com/image/smiley/carton2017/155.png" referrerpolicy="no-referrer">：接电话，然后报上大名！
+  我一直都知道抚子傻，但没想到她这么傻，条件反射也就罢了，她甚至还是不知所措了一会儿之后才接的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不止人傻，反射弧也够长，这么长的反射时间里要是能思考一下的话该多好
+  她说之后要和月火解释，但垃圾家大门被破坏，地板戳了个洞，椅子翻在一边，衣服少了一套还多了一件，最后电话还挂在一边的这个情况到底要怎么解释？她真的有想过要怎么解释吗？一点整理现场的意识都没有吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

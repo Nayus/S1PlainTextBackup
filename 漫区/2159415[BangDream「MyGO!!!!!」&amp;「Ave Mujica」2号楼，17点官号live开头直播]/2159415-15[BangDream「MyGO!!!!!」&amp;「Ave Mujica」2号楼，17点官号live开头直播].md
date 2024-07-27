@@ -3839,3 +3839,18 @@ mujica的主食是什么？煎胡萝卜？还是煎的什么贝类？
 
 羊姐的风评不会要倒退一年了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Toki_Ai  
+##### 21056#       发表于 2024-7-27 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">T1巅峰羊回来了，就差T0团魂羊了
+
+*****
+
+####  skives  
+##### 21057#       发表于 2024-7-27 17:29
+
+不愧是羊神
+

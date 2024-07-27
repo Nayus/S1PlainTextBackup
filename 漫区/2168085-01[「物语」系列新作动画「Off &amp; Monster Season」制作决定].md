@@ -1143,3 +1143,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 被肢解还在peacepeace笑死
 
+
+*****
+
+####  Tachikoma88  
+##### 525#       发表于 2024-7-28 01:18
+
+感觉这一季用了好多次鱼眼镜头，以前的物语有这么频繁用吗
+

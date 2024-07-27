@@ -4295,3 +4295,28 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  yifan8848  
+##### 21105#       发表于 2024-7-27 20:27
+
+7th怎麼只選3千多人的場<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+6th上座率不是挺好的嗎?
+
+
+*****
+
+####  仟音一心  
+##### 21106#       发表于 2024-7-27 20:36
+
+<img src="https://p.sda1.dev/18/a863da5b66c99cf511500e397548ca9a/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21107#       发表于 2024-7-27 20:36
+
+仔细看了看mv，奏明目张胆画自己喜欢的cp啊，她推特就是爱素+灯希猫希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

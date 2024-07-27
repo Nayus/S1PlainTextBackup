@@ -244,3 +244,37 @@ kmr16年11月回归，24年7月宣布跑路，居然呆了7年多，你也是传
 
 本家页游主线更新也鸽了，下半年古战场数值膨胀、联动卡池、运营团队大变动烂摊子一堆，怪不得减半一直开到9月新增了个半周年。希望9月半周年会有新的生放送让新团队露个脸吧。
 
+
+*****
+
+####  洛克萨斯  
+##### 18034#       发表于 2024-7-27 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能给个痛快告诉我gbf的死期在哪，我每个月还在交小美卡月租呢
+
+*****
+
+####  usoda  
+##### 18035#       发表于 2024-7-27 20:26
+
+主线真别更了，停在现在这里还蛮好的，给玩家亿点点遐想得了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 18036#       发表于 2024-7-27 20:30
+
+在这里停，然后gbf 2 impact堂堂连载是吧
+
+*****
+
+####  jxzeroga0  
+##### 18037#       发表于 2024-7-27 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65716927&amp;ptid=1158205" target="_blank">usoda 发表于 2024-7-27 20:26</a>
+主线真别更了，停在现在这里还蛮好的，给玩家亿点点遐想得了</blockquote>
+想来想去，画饼到11月还鸽主线更新，怕不是因为卡姐一群人要配合年底出新的lm卡池机制才延期了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

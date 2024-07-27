@@ -4439,3 +4439,23 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 回层浮的mv就足够惊艳了
 
+
+*****
+
+####  NODY  
+##### 21121#       发表于 2024-7-27 21:19
+
+ 本帖最后由 NODY 于 2024-7-27 21:20 编辑 
+
+李子这新公司确实靠谱，李子进去以后个人活动和节目都多了不少还上了地上波，甚至还有个高人中国员工指点怎么打中华炮，明年估计能单上asl了
+
+
+*****
+
+####  dqtql  
+##### 21122#       发表于 2024-7-27 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65717405&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-27 21:10</a>
+好家伙，还真是有高人指点</blockquote>
+不会是上次调试直播的那个员工吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽说调试了个寂寞
+

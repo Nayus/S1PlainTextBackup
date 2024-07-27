@@ -4510,3 +4510,13 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 佐佐木李子翻唱'君じゃなきゃダメみたい'
 [https://www.bilibili.com/video/BV1Bw4m1k7H4](https://www.bilibili.com/video/BV1Bw4m1k7H4)
 
+
+*****
+
+####  yifan8848  
+##### 21128#       发表于 2024-7-28 02:17
+
+雞團沒有新cover前只能靠李子cover續命了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+如果和聲換成女聲就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

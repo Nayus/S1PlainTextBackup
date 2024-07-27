@@ -719,3 +719,13 @@ wada一年没新卡是不是说明fer项目一直摸鱼到去年
 
 感觉今年泳装会有谦信和高扬
 
+
+*****
+
+####  jackyhuang  
+##### 13112#       发表于 2024-7-27 22:29
+
+两个太公望再找个单体爽刷，但是根本不缺书页和爪子
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

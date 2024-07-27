@@ -275,3 +275,18 @@
 
 进了战斗后没啥操作空间？
 
+
+*****
+
+####  Yuzutea  
+##### 815#       发表于 2024-7-28 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65718783&amp;ptid=2120922" target="_blank">DRAGONBLEAPIECE 发表于 2024-7-27 23:25</a>
+
+这游戏的战斗战略性如何？
+
+看了一下教学视频
+
+战斗系统本身要素挺多有点复杂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏大部分时间都是刷日常本坐牢
+

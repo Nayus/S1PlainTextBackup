@@ -1138,3 +1138,11 @@ ike3D披露请了初音啊。
 草，葛叶队怎么一路杀进决赛了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">枪怕少壮，海牛年轻人反应快，天赋不错还愿意主动学技巧
 
+
+*****
+
+####  Harunoharu  
+##### 532#       发表于 2024-7-27 13:54
+
+一哥那队练习赛的时候胜率就是第二啊，就输shaka队一头，对上krb和冈子都是赢的
+

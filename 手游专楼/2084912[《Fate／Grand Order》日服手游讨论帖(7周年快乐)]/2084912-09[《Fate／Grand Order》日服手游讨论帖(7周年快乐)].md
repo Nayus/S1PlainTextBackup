@@ -709,3 +709,13 @@ X上有人猜是珪素姫
 
 只要来个新的wada绘从者就行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">wada成分急缺
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13111#       发表于 2024-7-27 18:10
+
+wada一年没新卡是不是说明fer项目一直摸鱼到去年
+
+感觉今年泳装会有谦信和高扬
+

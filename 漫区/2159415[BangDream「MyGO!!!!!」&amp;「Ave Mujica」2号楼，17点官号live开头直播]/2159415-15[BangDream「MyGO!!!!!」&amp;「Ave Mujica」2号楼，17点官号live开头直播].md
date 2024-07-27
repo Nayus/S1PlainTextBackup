@@ -3910,3 +3910,31 @@ mujica的主食是什么？煎胡萝卜？还是煎的什么贝类？
 
 羊姐防伪标签<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 21064#         楼主| 发表于 2024-7-27 18:11
+
+ 本帖最后由 紫吹兰 于 2024-7-27 18:13 编辑 
+
+激动人心的紧张时刻！
+
+<img src="https://img.saraba1st.com/forum/202407/27/181302dlpeltqek5spsqzc.jpg" referrerpolicy="no-referrer">
+
+<strong>{B0B18C99-B10B-FB24-5253-0048F7ECA2F8}.jpg</strong> (149.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:13 上传
+
+*****
+
+####  depthlee  
+##### 21065#       发表于 2024-7-27 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715688&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-7-27 18:11</a>
+
+激动人心的紧张时刻！</blockquote>
+ykn赢面太强了啊……后续曲子尽快放出来吧！
+

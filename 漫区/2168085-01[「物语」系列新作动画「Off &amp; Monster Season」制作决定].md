@@ -1079,3 +1079,23 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 续终后面小说都没看过，能问下这集抚子和神原说的上次多谢是什么事吗？是之后会说或者后续小说内容？还是前面有但是我忘记了（
 
+
+*****
+
+####  狼王卢比奥  
+##### 519#       发表于 2024-7-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65718808&amp;ptid=2168085" target="_blank">Yinacona 发表于 2024-7-27 23:28</a>
+续终后面小说都没看过，能问下这集抚子和神原说的上次多谢是什么事吗？是之后会说或者后续小说内容？还是前 ...</blockquote>
+化物语里就是历和神原去神社解除抚子诅咒的啊
+
+*****
+
+####  Yinacona  
+##### 520#       发表于 2024-7-27 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65718887&amp;ptid=2168085" target="_blank">狼王卢比奥 发表于 2024-7-27 23:40</a>
+
+化物语里就是历和神原去神社解除抚子诅咒的啊</blockquote>
+哦哦草，忘记作品跨度20年但里面实际将近1年，还以为是在这之中又哪里交际了
+

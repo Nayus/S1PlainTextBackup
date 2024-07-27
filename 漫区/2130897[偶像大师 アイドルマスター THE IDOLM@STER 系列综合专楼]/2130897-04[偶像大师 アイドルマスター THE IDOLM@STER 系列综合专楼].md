@@ -1803,3 +1803,51 @@ Believe~ Clover~
 
 2024-7-26 21:44 上传
 
+
+*****
+
+####  rgauss  
+##### 5822#       发表于 2024-7-26 21:30
+
+Believe~ Clover~
+
+*****
+
+####  wfhtony  
+##### 5823#       发表于 2024-7-26 21:44
+
+这次SC的夏季LIVE，惯例有副音轨生放。
+
+<img src="https://img.saraba1st.com/forum/202407/26/214401gjuzoozhwfkhfgqy.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-26-21h42m42s269.jpg</strong> (432.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-26 21:44 上传
+
+*****
+
+####  wfhtony  
+##### 5824#       发表于 2024-7-27 10:25
+
+<img src="https://img.saraba1st.com/forum/202407/27/102453y96qxzwqge6rc43g.png" referrerpolicy="no-referrer">
+
+<strong>img_notice_birthday_birthday-kcna-2024.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 10:24 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/102452xosorjy53rq5gqsn.png" referrerpolicy="no-referrer">
+
+<strong>img_general_meishi_base_kcna-birthday-01-full 拷貝.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 10:24 上传
+
+8/1 千奈的生日曲《憧れをいっぱい》试听：[短版](https://clr2.wfhtony.space/s/YD4t0)
+
+歌曲将于8/1 0点（AM/itunes是按服务器所在局域的0点）上架销售。
+

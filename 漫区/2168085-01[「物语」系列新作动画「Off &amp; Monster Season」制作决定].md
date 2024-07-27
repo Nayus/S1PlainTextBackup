@@ -1159,3 +1159,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 感觉这一季脑子里那种声道用的比以前多不少。
 
+
+*****
+
+####  Atamaitai  
+##### 527#       发表于 2024-7-28 02:46
+
+这接op太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">同时这集让我深刻的认识到了斧乃木的重要性，没有她画面真的有点无聊
+

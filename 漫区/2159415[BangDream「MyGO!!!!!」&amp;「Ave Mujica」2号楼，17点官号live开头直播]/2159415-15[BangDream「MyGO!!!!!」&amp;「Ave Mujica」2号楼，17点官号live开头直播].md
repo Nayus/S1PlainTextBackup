@@ -4209,3 +4209,24 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巧了，我也这么想，狗团的动画就别带鸡出来了，不然下篇剧场版突然跑出个鸡团的live，以剧情节奏来说，想想就觉得怪。还是把鸡的live部分换成狗的新live好点
 但是wsd这脑子又不好说
 
+
+*****
+
+####  NODY  
+##### 21095#       发表于 2024-7-27 19:37
+
+估计就是和手游一样，把没有mygo成员参与的mujica线（像是喵祥谈话）删了，放到mujica主场去，后篇到12集的live完整版开完结束，刚好前篇后篇各六集
+
+
+*****
+
+####  CyDiablo  
+##### 21096#       发表于 2024-7-27 19:44
+
+小猫，你是一只可爱小猫<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/8954b0c0bc78af2e5014a74ccd458712/Screenshot_20240727_194035.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/94fabf732071adea9d2d968c370fa498/Screenshot_20240727_194041.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e40cca38f2b48de44e4ffeeb221a0e10/Screenshot_20240727_194047.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f913170c3393310d658816a0805975c1/Screenshot_20240727_194111.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/d5f00dc53846037863730cff39b7061a/Screenshot_20240727_194125.jpg" referrerpolicy="no-referrer">
+

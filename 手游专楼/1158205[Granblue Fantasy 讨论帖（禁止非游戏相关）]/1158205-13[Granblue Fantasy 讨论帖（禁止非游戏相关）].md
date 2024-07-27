@@ -32,3 +32,68 @@
 
 真的有人没事做反复农四天司吗
 
+
+*****
+
+####  jxzeroga0  
+##### 18012#       发表于 2024-7-27 19:35
+
+ 本帖最后由 jxzeroga0 于 2024-7-27 19:37 编辑 
+
+原来kmr要跑路了，看来接下来变化会很多了。今年营收方式变化这么大估计也是要甩锅新的制作人了。
+
+草，fkhr也跑路，这关键时刻制作组全变很不稳啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 18013#       发表于 2024-7-27 19:39
+
+来玩蒸蒸日上的gbf，情人节返礼美术优秀，福原哲也直接下线，夏活不出草稿，古战新内容带动玩家热度，老的过气十天角色也能拿到新强化，你猜怎么着，诶，我刚好有个成品号
+
+*****
+
+####  horacio  
+##### 18014#       发表于 2024-7-27 19:39
+
+这下真的要考虑12神将抽完就彻底放弃这个游戏了
+
+*****
+
+####  はちたや  
+##### 18015#       发表于 2024-7-27 19:41
+
+pd都跑了，什么意思很明显了
+
+
+*****
+
+####  洛克萨斯  
+##### 18016#       发表于 2024-7-27 19:43
+
+熬走了7字母，你游在cy看来也是差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 18017#       发表于 2024-7-27 19:43
+
+啥？四字母要跑路了？
+
+*****
+
+####  洛克萨斯  
+##### 18018#       发表于 2024-7-27 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65716397&amp;ptid=1158205" target="_blank">usoda 发表于 2024-7-27 19:43</a>
+
+啥？四字母要跑路了？</blockquote>
+kmr和fkhr都不在了，至少三年前就开始淡出了
+
+*****
+
+####  adretyu67.  
+##### 18019#       发表于 2024-7-27 19:44
+
+无所谓，该死的要死的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

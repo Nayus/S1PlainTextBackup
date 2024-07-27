@@ -1113,3 +1113,28 @@ ike3D披露请了初音啊。
 
 没想到这么悬殊的段位差距还能战斗到最后一刻
 
+
+*****
+
+####  艾特娜  
+##### 530#       发表于 2024-7-27 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704421&amp;ptid=2171972" target="_blank">高等黑暗 发表于 2024-7-26 17:40</a>
+
+其实评一下这次konami公告里说的几个改动
+
+■栄冠ナイン</blockquote>
+第二点改动的问题是以前周二是有升有降，现在是周一纯降，当然了假期不发动其实是好事
+
+第三点的问题不是显示变动了，是输的时候尤其是同级别的队伍掉的评价比以前多了
+
+*****
+
+####  艾特娜  
+##### 531#       发表于 2024-7-27 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65705197&amp;ptid=2171972" target="_blank">zhangruiy 发表于 2024-7-26 19:07</a>
+
+草，葛叶队怎么一路杀进决赛了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">枪怕少壮，海牛年轻人反应快，天赋不错还愿意主动学技巧
+

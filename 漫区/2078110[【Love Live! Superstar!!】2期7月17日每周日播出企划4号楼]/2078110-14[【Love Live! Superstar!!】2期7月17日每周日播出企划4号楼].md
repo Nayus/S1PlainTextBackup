@@ -1867,3 +1867,15 @@ pay和nako
 
 一小时长度的外景，满足
 
+
+*****
+
+####  csolfans  
+##### 20684#       发表于 2024-7-27 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715207&amp;ptid=2078110" target="_blank">starring 发表于 2024-7-27 17:17</a>
+【Liella! 突击外景第五弹】 https://www.bilibili.com/video/BV1ndv5esELc/?share_source=copy_web&amp;vd_sou ...</blockquote>
+星团外景还是太少了，看看莲团真的羡慕。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

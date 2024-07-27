@@ -4255,3 +4255,43 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 官方不会是看到太多的花咲川中专弱智梗开始找补了吧，之前是给初华补了个学习好的设定，现在又给猫补了
 
+
+*****
+
+####  CyDiablo  
+##### 21100#       发表于 2024-7-27 20:07
+
+【【Official Music Video】端程山（Panorama）/ MyGO!!!!!【原创歌曲】-哔哩哔哩】 [https://b23.tv/2XnqPLv](https://b23.tv/2XnqPLv)
+居然是那位奏老师，同人转正了这下<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花生酥王  
+##### 21101#       发表于 2024-7-27 20:08
+
+合集还是前传啊
+
+*****
+
+####  NODY  
+##### 21102#       发表于 2024-7-27 20:11
+
+我说奏怎么去现场了，怀疑wsd拿现地门票当稿费让画师用爱发电<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 21103#       发表于 2024-7-27 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么能让抠门wsd拿现地门票让黑生日画师或者2nd宣传图画师多画几张鸡的立绘吗
+
+*****
+
+####  MASKA-1  
+##### 21104#       发表于 2024-7-27 20:14
+
+剧场版系构还是独角兽
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

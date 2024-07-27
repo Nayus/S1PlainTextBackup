@@ -1030,3 +1030,11 @@ ek1xobuftbcgwln7
 
 这池子太毒了，小号狂保底，S都不多发一个
 
+
+*****
+
+####  chivalry  
+##### 1598#       发表于 2024-7-27 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗袍圣华多久贬值，能等到西服小玉吗
+

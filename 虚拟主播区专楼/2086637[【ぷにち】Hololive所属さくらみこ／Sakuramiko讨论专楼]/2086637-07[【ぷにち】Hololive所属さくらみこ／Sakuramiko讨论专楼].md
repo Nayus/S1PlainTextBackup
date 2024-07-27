@@ -5289,3 +5289,23 @@ ark服最后一天是要过周年庆的实际上可能很难参加
 
 说到今天的直播简直是完全放开不停地彪黄段子加上raid前一直跟okayo这个色坯头子混在一起，最近果然精神疲惫了
 
+
+*****
+
+####  holoan  
+##### 9343#         楼主| 发表于 2024-7-27 11:00
+
+ 本帖最后由 holoan 于 2024-7-27 11:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/27/110025hc4pmccvsc94vccb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (678.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 11:00 上传
+
+跃动感
+
+还有现场录的视频[https://x.com/lRzUmV0rG8aV66w/status/1817025629126295908](https://x.com/lRzUmV0rG8aV66w/status/1817025629126295908)
+

@@ -1913,3 +1913,11 @@ emo真是料理组的大腿，太可靠
 
 听说fanClub的CD排序出了个差错，封面写着香可千的顺序，实际上CD读进去看列表，可千颠倒了，这种地方也能糙的吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 20689#       发表于 2024-7-27 21:59
+
+sunypa两个人突然碰头了
+

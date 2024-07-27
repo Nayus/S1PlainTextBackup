@@ -1047,3 +1047,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 草，突然来个三狮画风
 
+
+*****
+
+####  Tachikoma88  
+##### 516#       发表于 2024-7-27 21:27
+
+看样子还能做两集呀，那抚物语是总共5集了？
+

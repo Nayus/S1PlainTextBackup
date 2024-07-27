@@ -1177,3 +1177,32 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 这集香菜发挥真不错
 
+
+*****
+
+####  Atamaitai  
+##### 529#       发表于 2024-7-28 03:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  晋冠丘  
+##### 530#       发表于 2024-7-28 03:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65717562&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-27 21:27</a>
+ 看样子还能做两集呀，那抚物语是总共5集了？ 这集算过渡回了</blockquote>
+这一季有几集啊
+
+*****
+
+####  martinium  
+##### 531#       发表于 2024-7-28 03:35
+
+仔细听的话，对话里好多洗胃式文字游戏
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

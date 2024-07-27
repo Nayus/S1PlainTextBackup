@@ -337,3 +337,17 @@ cy这几年是有点神秘，完全不知道在干嘛
 
 7字母跑路部分的熟肉
 
+
+*****
+
+####  Sylpheed  
+##### 18044#       发表于 2024-7-28 03:28
+
+除了抽联动感觉都还好，钱充给怪了是必然的，毕竟膨胀得越来越厉害，10秒一个95，3分钟一个200的地步了也很恶心，要么就前两天完全不干事等最后两天挂200追线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+双辉夜打牛之类的在我看来也是属于内耗产物。只要新牛和250收益对得起他的血量，个人角度是血越多越好，然而不出意外也只是开启了下一个循环<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是这个联动变成抽真限定，还送2抽2，属于是试探底线了，第一次不一定敢给角色上强度，后面就不好说了。
+
+你游这么多年所有活动都是F5A，也整不出什么花活了，挂一边就为了有个东西刷刷，时不时还有高难玩，还是希望太君加大点力度，别真给作死了还不好找替代品<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

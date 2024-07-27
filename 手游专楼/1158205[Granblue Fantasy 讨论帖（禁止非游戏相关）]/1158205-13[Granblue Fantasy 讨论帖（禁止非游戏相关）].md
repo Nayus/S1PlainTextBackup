@@ -97,3 +97,20 @@ kmr和fkhr都不在了，至少三年前就开始淡出了
 
 无所谓，该死的要死的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  usoda  
+##### 18020#       发表于 2024-7-27 19:47
+
+明讲了要调离项目了？
+
+哦牛皮不会十二神将都出不完吧
+
+*****
+
+####  小Q  
+##### 18021#       发表于 2024-7-27 19:48
+
+问题来了，cy游戏离了gbf还有什么能剩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -3887,3 +3887,26 @@ mujica的主食是什么？煎胡萝卜？还是煎的什么贝类？
 
 [https://x.com/ushio0104/status/1817131906967998492](https://x.com/ushio0104/status/1817131906967998492)
 
+
+*****
+
+####  紫吹兰  
+##### 21061#         楼主| 发表于 2024-7-27 17:57
+
+今天这调音贝斯好明显，比鼓和节奏吉他存在感强多了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 21062#       发表于 2024-7-27 18:01
+
+小忘不算忘
+
+
+*****
+
+####  12351sscca  
+##### 21063#       发表于 2024-7-27 18:03
+
+羊姐防伪标签<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

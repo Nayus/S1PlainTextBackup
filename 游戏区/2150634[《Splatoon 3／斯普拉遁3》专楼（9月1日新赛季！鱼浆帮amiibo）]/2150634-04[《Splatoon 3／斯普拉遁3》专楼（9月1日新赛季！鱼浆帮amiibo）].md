@@ -1329,3 +1329,19 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 草 打工平均通关wave数2以下是什么地狱啊
 
+
+*****
+
+####  KBAC  
+##### 4921#       发表于 2024-7-27 16:26
+
+<img src="https://img.saraba1st.com/forum/202407/27/162443c9i9moz6lw98tchr.jpg" referrerpolicy="no-referrer">
+
+<strong>GLHL_UEWsAAbWwF.jpg</strong> (341.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 16:24 上传
+
+把名牌改成这个吧，比原来的好看，原来的种族歧视这个还有只黑鱿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

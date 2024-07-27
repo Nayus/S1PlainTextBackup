@@ -683,3 +683,13 @@ X上有人猜是珪素姫
 说的是月之珊瑚的公主吧，但感觉还不如旧剑的颜色像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 不如奶爱歌好了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 13108#       发表于 2024-7-27 07:50
+
+芙芙代表兽，是卡玛佐兹
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

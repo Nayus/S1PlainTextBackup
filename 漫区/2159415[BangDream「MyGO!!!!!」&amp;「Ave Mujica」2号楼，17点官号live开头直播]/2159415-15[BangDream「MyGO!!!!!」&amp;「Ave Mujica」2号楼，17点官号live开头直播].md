@@ -4391,3 +4391,20 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 人家是皇族 洗腳的怎麼比<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 21116#       发表于 2024-7-27 21:04
+
+我觉得鸡粉可以自信些，明年也不会有动画MV的，唯一能指望的就是没有鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+狗这MV看了确实羡慕死了，一个MV能出好几套周边捞钱，更大可能是光给你看甚至不卖钱，这是我认识的抠比wsd吗，真就鸡不配了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 21117#       发表于 2024-7-27 21:04
+
+<img src="https://p.sda1.dev/18/b18f8020220e3a5f5d3c7d12e24c0857/image.jpg" referrerpolicy="no-referrer">
+

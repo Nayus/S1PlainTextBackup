@@ -1895,3 +1895,13 @@ pay和nako
 
 emo真是料理组的大腿，太可靠
 
+
+*****
+
+####  csolfans  
+##### 20687#       发表于 2024-7-27 21:01
+
+这次拍摄地原来是在Amuse总部，我还以为是什么乡间度假区
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

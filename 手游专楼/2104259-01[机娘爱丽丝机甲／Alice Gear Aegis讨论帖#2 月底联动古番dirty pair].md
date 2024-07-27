@@ -180,3 +180,11 @@ FY06-LA4R-E6A0-6JAW
 就是忘记她们俩实装后有没复刻过，或者复刻过一次忘记买了……总之就是没 ...</blockquote>
 那只能等周年看看会不会复刻了。。。
 
+
+*****
+
+####  不灭的旋律  
+##### 1147#       发表于 2024-7-27 14:06
+
+神BUG，王女绊剧情的王女被替换成夜露，诺艾尔的不知什么剧情诺艾尔被替换成东京最强。夜露问题不大东京最强可就是黑历史了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

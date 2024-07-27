@@ -1167,3 +1167,13 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 这接op太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">同时这集让我深刻的认识到了斧乃木的重要性，没有她画面真的有点无聊
 
+
+*****
+
+####  tiro_finale  
+##### 528#       发表于 2024-7-28 03:02
+
+抚子推着斧乃木的头的画面实在太爆笑了，用画面带过纯聊天的祖传绝活还是有灵性
+
+这集香菜发挥真不错
+

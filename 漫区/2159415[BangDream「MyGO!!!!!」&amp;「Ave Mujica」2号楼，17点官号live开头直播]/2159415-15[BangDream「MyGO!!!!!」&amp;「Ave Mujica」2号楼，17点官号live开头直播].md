@@ -4123,3 +4123,58 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 节奏组一直谁在C一目了然，早就该扶正</blockquote>
 已经算扶正了吧，贝斯那么大声的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WhiteGlint  
+##### 21084#       发表于 2024-7-27 19:06
+
+羊姐我今天觉得还不错啊 我现在是羊噶了！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+*****
+
+####  收纳袋  
+##### 21085#       发表于 2024-7-27 19:07
+
+和解了，希望羊姐继续保持吧
+
+*****
+
+####  akiomn  
+##### 21086#       发表于 2024-7-27 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码我不想听到鸡团版春日影，更何况我也想不到鸡团那风格怎么唱春日影
+
+*****
+
+####  WhiteGlint  
+##### 21087#       发表于 2024-7-27 19:08
+
+今天这个贝斯调音好明显啊 蜜柑的长裙好好看（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+
+*****
+
+####  Aendst  
+##### 21088#       发表于 2024-7-27 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">春日影关mujica什么事，跟doloris一点关系都没有有什么好唱的
+
+
+*****
+
+####  星天观测  
+##### 21089#       发表于 2024-7-27 19:14
+
+想听春日影就写信给wsd让狗唱啊，非要跟鸡扯上关系难道最看重的不是主唱只是键盘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21090#       发表于 2024-7-27 19:16
+
+但实际上，不仅跟doloris没有关系，跟oblivions也没关系吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

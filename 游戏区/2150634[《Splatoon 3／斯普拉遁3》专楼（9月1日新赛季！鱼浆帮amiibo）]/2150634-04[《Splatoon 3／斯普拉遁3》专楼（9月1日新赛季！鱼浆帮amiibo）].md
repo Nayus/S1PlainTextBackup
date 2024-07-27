@@ -1345,3 +1345,21 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 把名牌改成这个吧，比原来的好看，原来的种族歧视这个还有只黑鱿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 4922#       发表于 2024-7-27 17:14
+
+<img src="https://img.saraba1st.com/forum/202407/27/171431ui3mxr8p39zruz81.png" referrerpolicy="no-referrer">
+
+<strong>img_9990.png</strong> (444.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 17:14 上传
+
+笑死，你也Jackpot<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -2095,3 +2095,30 @@ C104的特典：
 
 又玩什么，我迷光呢？
 
+
+*****
+
+####  00Q  
+##### 5838#       发表于 2024-7-27 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65714958&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-7-27 16:41</a>
+但是动画二期（目前）并没有嘘组和黑米登场（
+
+只能理解为这对路人情侣穿越到了游戏剧本的并行世界了（[ ...</blockquote>
+#查询迷光状态
+
+*****
+
+####  lunaticfool  
+##### 5839#       发表于 2024-7-27 17:00
+
+迷光要压轴吗。
+安提卡这套挺好看的
+
+*****
+
+####  koodooliz  
+##### 5840#       发表于 2024-7-27 17:12
+
+嘘<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

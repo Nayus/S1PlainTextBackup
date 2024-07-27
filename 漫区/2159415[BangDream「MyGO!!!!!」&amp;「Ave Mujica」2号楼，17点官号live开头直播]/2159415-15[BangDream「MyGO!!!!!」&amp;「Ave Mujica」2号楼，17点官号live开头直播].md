@@ -4069,3 +4069,57 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 我还指望翻唱envy呢
 
+
+*****
+
+####  cherryjia12  
+##### 21079#       发表于 2024-7-27 18:48
+
+烤羊已经退环境了,现在是爱猫环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 21080#       发表于 2024-7-27 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青木本来就是第二战犯啊，只不过以前羊姐过于耀眼把青木掩盖了
+
+
+*****
+
+####  紫吹兰  
+##### 21081#         楼主| 发表于 2024-7-27 18:51
+
+哎，美帝
+
+<img src="https://img.saraba1st.com/forum/202407/27/185131nl559k5ffc9kvkc1.jpg" referrerpolicy="no-referrer">
+
+<strong>meidi.jpg</strong> (177.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:51 上传
+
+
+*****
+
+####  星天观测  
+##### 21082#       发表于 2024-7-27 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715853&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-27 18:35</a>
+
+我猜总集篇7th就是用来解封mygo版春日影的
+
+看来可以不用担心搞出c团和解重唱十人春日影的活了 ...</blockquote>
+挺好的，春日影爱唱唱吧别拉鸡成员就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 21083#       发表于 2024-7-27 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715891&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-7-27 18:40</a>
+
+节奏组一直谁在C一目了然，早就该扶正</blockquote>
+已经算扶正了吧，贝斯那么大声的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

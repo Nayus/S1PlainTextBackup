@@ -2444,3 +2444,187 @@ S4P的下个新曲活动是花组。
 
 那明天 Day 2 应该是ノクチル处于「神隐」状态了。
 
+
+*****
+
+####  陆久舟  
+##### 5864#       发表于 2024-7-27 18:50
+
+还在透鸽
+
+*****
+
+####  magicc  
+##### 5865#       发表于 2024-7-27 18:50
+
+透鸽真有内部爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lunaticfool  
+##### 5866#       发表于 2024-7-27 18:50
+
+最后放张透鸽也太幽默了
+
+
+*****
+
+####  sliver1997  
+##### 5867#       发表于 2024-7-27 18:52
+
+sclive 还是得看迷光啊
+
+*****
+
+####  wfhtony  
+##### 5868#       发表于 2024-7-27 18:52
+
+ 本帖最后由 wfhtony 于 2024-7-27 18:57 编辑 
+
+别复刻动画那个偷懒ED了啊...
+
+<img src="https://img.saraba1st.com/forum/202407/27/185213z5m9kvsxsa3qx5ss.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h49m03s886.jpg</strong> (46.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/185214cqk8e0f00n0kpq0k.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h49m10s522.jpg</strong> (105.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+今天的两位情侣：
+
+<img src="https://img.saraba1st.com/forum/202407/27/185215pffo8fpmpmzvp78m.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h50m14s021.jpg</strong> (72.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+ED CARD：
+
+<img src="https://img.saraba1st.com/forum/202407/27/185215ymptygoa8pwn44uh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h50m26s269.jpg</strong> (179.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/185216iogneo0ynjwd6yja.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h50m28s510.jpg</strong> (447.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/185217ulnhhrnllqwissr2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h51m09s432.jpg</strong> (255.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/185218perbppkemnon1jpj.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-18h51m18s170.jpg</strong> (375.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 18:52 上传
+
+今天没有安可MC（啊？）。
+
+Day 1 Setlist:
+
+・Overture + 1st block<blockquote>[朗读剧本（＊路人情侣）]
+
+[Overture (Inst. Medley)]
+
+01. バベルシティ・グレイス // アンティーカ
+
+02. アルストロメリア // アルストロメリア
+
+03. 夢咲きAfter school // 放課後クライマックスガールズ
+
+04. ヒカリのdestination // イルミネーションスターズ（＊注：三人齐）
+
+05. ツバサグラビティ（Long Intro ver.） // シャイニーカラーズ（＊注：游戏初始（或动画一期）四组）
+
+[朗读剧本（＊路人情侣）]
+
+--免费部分结束--
+
+[Overture (Inst. Medley)]
+
+06. いつだって僕らは // ノクチル
+
+07. OH MY GOD // シーズ
+
+08. 無自覚アプリオリ // コメティック
+
+→ 开场MC（MC①）</blockquote>
+・2nd block<blockquote>09. Black Reverie // アンティーカ
+
+10. NEO THEORY FANTASY // アンティーカ
+
+11. Love Addiction // アルストロメリア
+
+12. Give me some more... // アルストロメリア
+
+13. Bouncy Girl // シーズ
+
+14. Fashionable // シーズ
+
+15. 今しかない瞬間を // ノクチル
+
+16. Catch the Breeze // ノクチル
+
+[朗读剧本（＊路人情侣）]
+
+→ MC②</blockquote>
+・3rd block<blockquote>17. 平行線の美学 // コメティック
+
+18. くだらないや // コメティック
+
+19. Twinkle way // イルミネーションスターズ（＊注：通常三缺一状态，没播放录音）
+
+20. Happy Funny Lucky // イルミネーションスターズ（＊注：通常三缺一状态，没播放录音）
+
+21. Another Rampage // ストレイライト
+
+22. Hide &amp; Attack // ストレイライト
+
+23. 一閃は君が導く // 放課後クライマックスガールズ
+
+24. 拝啓タイムカプセル // 放課後クライマックスガールズ
+
+→ MC③
+
+25. Ambitious Eve // シャイニーカラーズ（＊注：除 近藤玲奈 之外的全员）
+
+26. Shiny Stories // シャイニーカラーズ（＊注：除 近藤玲奈 之外的全员）
+
+[朗读剧本（＊路人情侣）]</blockquote>
+==业务联络环节==
+
+・Encore block<blockquote>27. Multicolored Sky // シャイニーカラーズ（＊注：游戏初始（或动画一期）四组，除 近藤玲奈 之外）
+
+[朗读剧本（＊路人情侣）]
+
+28. Wandering Dream Chaser // ストレイライト
+
+[ED Roll (《Wandering Dream Chaser》Inst.)]
+
+→ 终演</blockquote>
+

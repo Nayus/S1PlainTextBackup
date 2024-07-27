@@ -278,3 +278,11 @@ kmr16年11月回归，24年7月宣布跑路，居然呆了7年多，你也是传
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  はちたや  
+##### 18038#       发表于 2024-7-27 20:43
+
+出2了也不会玩了，现在不过是沉没成本而已<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">我mbg的余额就当给我的青春陪葬了
+

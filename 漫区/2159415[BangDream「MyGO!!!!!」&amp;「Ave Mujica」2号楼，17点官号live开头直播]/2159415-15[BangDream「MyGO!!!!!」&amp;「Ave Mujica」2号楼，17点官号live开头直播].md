@@ -4320,3 +4320,43 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 仔细看了看mv，奏明目张胆画自己喜欢的cp啊，她推特就是爱素+灯希猫希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 21108#       发表于 2024-7-27 20:38
+
+真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/775696ddb46a7f84850860bd1fa9c5b3/Image_1722083866219.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21109#       发表于 2024-7-27 20:41
+
+有没有可能就是因为推的cp也符合wsd的品味才找了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 21110#       发表于 2024-7-27 20:43
+
+鸡有剧场版的话还是希望别总集篇找补了，动画正片就好好讲海喵过去，全新剧情的OVA也可以
+
+初睦祥幼驯染的线可以通过祥子简单拉起来，海喵能不能融进去就看系构能力了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 21111#       发表于 2024-7-27 20:46
+
+<img src="https://p.sda1.dev/18/1080ce32ae6b0e4881e10f6a43333a65/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 21112#       发表于 2024-7-27 20:47
+
+端程山MV里的大家是不是有点成熟了，尤其是灯，像是换了个人
+

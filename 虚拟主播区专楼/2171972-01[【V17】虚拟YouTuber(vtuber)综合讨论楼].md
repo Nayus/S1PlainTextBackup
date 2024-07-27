@@ -1146,3 +1146,14 @@ ike3D披露请了初音啊。
 
 一哥那队练习赛的时候胜率就是第二啊，就输shaka队一头，对上krb和冈子都是赢的
 
+
+*****
+
+####  格林卡罗尔  
+##### 533#       发表于 2024-7-27 20:40
+
+asgs两个vspo队伍居然都进决赛了
+cpt带qpi，tsuna的队伍先不谈，eden和noah带水师心白居然还是胜者组进决赛
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

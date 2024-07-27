@@ -1851,3 +1851,166 @@ Believe~ Clover~
 
 歌曲将于8/1 0点（AM/itunes是按服务器所在局域的0点）上架销售。
 
+
+*****
+
+####  wfhtony  
+##### 5825#       发表于 2024-7-27 12:11
+
+ 本帖最后由 wfhtony 于 2024-7-27 12:42 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/27/121122gw293yvvu0vx7twv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h09m39s903.jpg</strong> (334.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:11 上传
+
+SEASON 02《冠菊》
+老熟人 早川博隆 来了。
+
+<img src="https://img.saraba1st.com/forum/202407/27/123823oatpnk88tx2aafqy.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h37m57s659.jpg</strong> (197.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:38 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/123824o846g3uo6m6g6igg.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h38m10s761.jpg</strong> (243.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:38 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/123842lvm6cg3y22ym26qy.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h38m35s023.jpg</strong> (207 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:38 上传
+
+CD版应该和《キミとセミブルー》同日贩卖（之前yodobashi临时工公开的信息），Hi-Res的配信估计是八月上旬 8/2 上线。
+
+初回特典：
+
+<img src="https://img.saraba1st.com/forum/202407/27/123902c5eabsp53rpa5ep3.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h38m49s928.jpg</strong> (251.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:39 上传
+
+C104的特典：
+
+<img src="https://img.saraba1st.com/forum/202407/27/123919n1c3vdlqzvyofdpk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h39m08s497.jpg</strong> (249.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:39 上传
+
+*****
+
+####  wfhtony  
+##### 5826#       发表于 2024-7-27 12:50
+
+ 本帖最后由 wfhtony 于 2024-7-27 12:59 编辑 
+
+学马仕初巡演的在线观看券今天开卖（ASOBISTAGE），分两个版本。其中SP券只有各公演的第一场（只有夜场的一天）有卖，其他都只有通常券（一场3000円）。
+
+<img src="https://img.saraba1st.com/forum/202407/27/125021x9m6k19mgm69mmes.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h47m29s523.jpg</strong> (160.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/125022ip1vul77p17vhiu6.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-12h47m56s826.jpg</strong> (273.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/125743omgygytth5gghzyl.png" referrerpolicy="no-referrer">
+
+<strong>123.png</strong> (25.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:57 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/125911c6gt2ute6utusuat.png" referrerpolicy="no-referrer">
+
+<strong>456.png</strong> (23.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:59 上传
+
+<img src="https://img.saraba1st.com/forum/202407/27/125912hx37r7na77oafobb.png" referrerpolicy="no-referrer">
+
+<strong>789.png</strong> (23.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 12:59 上传
+
+ <blockquote>【スペシャルチケット特典】※名古屋公演のみ販売
+
+・-初声公演- 出演キャストオーディション結果発表映像
+
+初声公演出演キャスト3名の、オーディション結果の発表時映像を公開！
+
+■視聴可能期間
+
+2024年8月12日(月) 18:00 ～ 11月18日(月)23:59（予定）
+
+・名古屋クラブクアトロ公演 舞台裏映像
+
+公演当日の舞台裏の一部を特典映像として公開！
+
+■視聴可能期間
+
+2024年8月21日(水) 18:00 ～ 11月18日(月)23:59（予定）
+
+【視聴チケット特典（スペシャルチケット・通常チケット共通）】
+
+＜映像特典＞
+
+・名古屋クラブクアトロ公演 公演後インタビュー映像
+
+公演終了後の出演者インタビューの映像を公開！
+
+■視聴可能期間
+
+2024年8月21日(水) 18:00 ～ 11月18日(月)23:59（予定）
+
+※-初声公演- 出演キャストオーディション結果発表映像は15分程度を予定しております。
+
+※特典映像の内容および尺などは予告なく変更となる場合がございます。</blockquote>LIVE的后台花絮要8/21公开了。
+
+*****
+
+####  wfhtony  
+##### 5827#       发表于 2024-7-27 15:48
+
+<img src="https://img.saraba1st.com/forum/202407/27/154845zkzrrylx46oykky6.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-27-15h47m43s128.jpg</strong> (181.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 15:48 上传
+
+放  送  事  故
+

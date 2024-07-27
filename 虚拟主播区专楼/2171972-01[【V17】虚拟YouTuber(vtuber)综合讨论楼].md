@@ -1157,3 +1157,11 @@ cpt带qpi，tsuna的队伍先不谈，eden和noah带水师心白居然还是胜�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  poipanchao  
+##### 534#       发表于 2024-7-27 23:16
+
+猫这队各种troll，配合也挺屎的
+

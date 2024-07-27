@@ -1126,3 +1126,20 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 2024-7-28 00:55 上传
 
+
+*****
+
+####  KDConan  
+##### 523#       发表于 2024-7-28 01:11
+
+这个se no就很灵性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  stickimbul  
+##### 524#       发表于 2024-7-28 01:15
+
+被肢解还在peacepeace笑死
+

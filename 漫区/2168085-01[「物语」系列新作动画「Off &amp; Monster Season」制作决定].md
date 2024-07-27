@@ -1110,3 +1110,19 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
   我一直都知道抚子傻，但没想到她这么傻，条件反射也就罢了，她甚至还是不知所措了一会儿之后才接的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不止人傻，反射弧也够长，这么长的反射时间里要是能思考一下的话该多好
   她说之后要和月火解释，但垃圾家大门被破坏，地板戳了个洞，椅子翻在一边，衣服少了一套还多了一件，最后电话还挂在一边的这个情况到底要怎么解释？她真的有想过要怎么解释吗？一点整理现场的意识都没有吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rabbt  
+##### 522#       发表于 2024-7-28 00:55
+
+斧乃木也被剪头了，终究还是没逃过
+
+<img src="https://img.saraba1st.com/forum/202407/28/005523iyvfvs4o1pfs8z5l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 00:55 上传
+

@@ -4408,3 +4408,34 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 <img src="https://p.sda1.dev/18/b18f8020220e3a5f5d3c7d12e24c0857/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21118#       发表于 2024-7-27 21:08
+
+怎么在跟太子比啊，底边乐队粉多少有点不自觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先祈祷下那个earth的mv立绘不是鬼图吧
+
+*****
+
+####  NODY  
+##### 21119#       发表于 2024-7-27 21:10
+
+好家伙，还真是有高人指点
+
+<img src="https://img.saraba1st.com/forum/202407/27/211038ycaag1g2j2848qjq.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-4pjoKnT3cSkh-6o.jpg</strong> (22.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-27 21:10 上传
+
+
+*****
+
+####  skives  
+##### 21120#       发表于 2024-7-27 21:13
+
+回层浮的mv就足够惊艳了
+

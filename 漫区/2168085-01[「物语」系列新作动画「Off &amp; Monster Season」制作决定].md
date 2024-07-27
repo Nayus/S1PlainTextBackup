@@ -1017,3 +1017,33 @@ OP太棒了，好多抚子
 
 se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 512#       发表于 2024-7-27 21:10
+
+好，荡漾一句话怒领工资了
+
+*****
+
+####  猫兔同笼  
+##### 513#       发表于 2024-7-27 21:11
+
+一句话把抚子吓跑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 514#       发表于 2024-7-27 21:15
+
+只有一个头都做45°角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 515#       发表于 2024-7-27 21:17
+
+草，突然来个三狮画风
+

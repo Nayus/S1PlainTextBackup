@@ -286,3 +286,15 @@ kmr16年11月回归，24年7月宣布跑路，居然呆了7年多，你也是传
 
 出2了也不会玩了，现在不过是沉没成本而已<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">我mbg的余额就当给我的青春陪葬了
 
+
+*****
+
+####  江戸前ルナ  
+##### 18039#       发表于 2024-7-27 21:11
+
+ 本帖最后由 江戸前ルナ 于 2024-7-27 21:12 编辑 
+
+同样是10周年+，不过要年长一点点，GBF必入手角色出卡池换装、联动要抽这俩被人喷的操作放在隔壁千年战争不都是很正常吗，虽然这是GBF的祖宗之法，估计日本人不会有啥感觉？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+然而千年的换装人气老角色说明必定是普池，还有拿各种活动送、票换的，老玩家纷纷为自己本来半退环境的角色重新可以活跃而高兴，但GBF放季限如果还强度爆炸就<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

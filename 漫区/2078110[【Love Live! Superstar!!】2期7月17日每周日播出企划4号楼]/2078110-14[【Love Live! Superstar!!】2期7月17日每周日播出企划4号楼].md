@@ -1905,3 +1905,11 @@ emo真是料理组的大腿，太可靠
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 20688#       发表于 2024-7-27 21:38
+
+听说fanClub的CD排序出了个差错，封面写着香可千的顺序，实际上CD读进去看列表，可千颠倒了，这种地方也能糙的吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

@@ -1206,3 +1206,19 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  moras2694  
+##### 532#       发表于 2024-7-28 04:08
+
+好看，无需多言
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 533#       发表于 2024-7-28 04:16
+
+这话太有物语的味道了
+

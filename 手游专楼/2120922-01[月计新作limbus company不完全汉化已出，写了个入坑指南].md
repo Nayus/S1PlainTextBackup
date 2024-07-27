@@ -159,3 +159,15 @@
 
 好像开活动的话，剑契组也能换来着？忘了
 
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 809#       发表于 2024-7-27 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65714542&amp;ptid=2120922" target="_blank">钟于123 发表于 2024-7-27 15:34</a>
+只要你够肝，就只需要买通行证（需要付费狂气购买）
+
+游戏内所有人格和ego都可以兑换（魔女之夜当期只能抽， ...</blockquote>
+买现在的一个通行证 就能拿到所有人格？
+

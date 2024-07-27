@@ -5359,3 +5359,13 @@ ark服最后一天是要过周年庆的实际上可能很难参加
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿泡说一下当时的盛况
 
+
+*****
+
+####  holoan  
+##### 9349#         楼主| 发表于 2024-7-27 22:50
+
+坐在peko的恐龙后面（peko坐在前miko坐在其后，两个人的物理距离很近）长达5分钟，评论区不管是会员还是普通用户都在刷哭脸的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然了不过没有直接对话就是了，最后一句话是peko的“坐在后面的那个人下来”
+

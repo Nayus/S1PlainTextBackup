@@ -4501,3 +4501,12 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 2024-7-27 23:34 上传
 
+
+*****
+
+####  NODY  
+##### 21127#       发表于 2024-7-28 00:49
+
+佐佐木李子翻唱'君じゃなきゃダメみたい'
+[https://www.bilibili.com/video/BV1Bw4m1k7H4](https://www.bilibili.com/video/BV1Bw4m1k7H4)
+

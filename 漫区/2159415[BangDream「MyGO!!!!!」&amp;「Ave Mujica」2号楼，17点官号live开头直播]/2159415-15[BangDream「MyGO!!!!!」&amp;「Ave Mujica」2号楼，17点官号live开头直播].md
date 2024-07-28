@@ -5249,3 +5249,266 @@ MyGO!!!!!×Ave Mujica 合同LIVE 开催确定！
 
 正当双方准备握手言和之时，角落里突然传来一个女声: 我只是出去买了个甜甜圈而已，我还没投票呢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 21210#       发表于 2024-7-28 18:38
+
+心态放松，总要进手游的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+爱信等柿本和独角兽
+
+*****
+
+####  akirakira  
+##### 21211#       发表于 2024-7-28 18:38
+
+两万人场，看好华人填线是吧这么自信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 21212#       发表于 2024-7-28 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724659&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 18:36</a>
+挺多都在担心出现那种立希对海铃发脾气然后海希绝交，海铃发现鸡团才是自己真正的家的剧情的，毕竟独角兽 ...</blockquote>
+你说的这个是赛博小祥<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21213#       发表于 2024-7-28 18:39
+
+什么决裂不决裂的，合着第二季结束小祥还能过得比现在还倒霉性格还会比现在的二创更加尖利是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 21214#       发表于 2024-7-28 18:39
+
+声势搞这么大，能不能先看下货，看你节俭的宣传和物料，很不安desu
+
+*****
+
+####  rikaren  
+##### 21215#       发表于 2024-7-28 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724669&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-7-28 18:38</a>
+
+心态放松，总要进手游的
+
+爱信等柿本和独角兽</blockquote>
+所以能赶上25年的周年，出海玲的贝斯组周年卡吗？哦，好像赶上了也不一定会出，今年吉他组薰就是用dfes替了，硬亏一张周年卡。
+
+*****
+
+####  [皆神孝介]  
+##### 21216#       发表于 2024-7-28 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724629&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-7-28 18:34</a>
+
+深切理解漏油想跑路的心情，这段时间我也想对鸡降低关注了
+
+投入的时间精力太多很容易陷入擅自期待擅自失望 ...</blockquote>
+完全没问题<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/28/183946toylypoqy7gv1qul.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-07-28_18-37-56.jpg</strong> (405.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:39 上传
+
+*****
+
+####  御幸一也  
+##### 21217#       发表于 2024-7-28 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724629&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-7-28 18:34</a>
+
+深切理解漏油想跑路的心情，这段时间我也想对鸡降低关注了
+
+投入的时间精力太多很容易陷入擅自期待擅自失望 ...</blockquote>
+我理解樓友想跑的心情，這對邦KV居然還能不是主唱對主唱，當初華塑膠？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 21218#       发表于 2024-7-28 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724624&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-7-28 18:33</a>
+
+有没有可能是唱完这个我们就可以好聚好散了</blockquote>
+死去的mihiru还在追我<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21219#       发表于 2024-7-28 18:40
+
+这要是科幻世界观 确实有可能决裂
+问题是mujica的主要矛盾大概率是娱乐圈和家族
+这帮人也没什么决裂的必要啊
+
+*****
+
+####  IWS2000  
+##### 21220#       发表于 2024-7-28 18:41
+
+应该是羊姐喜欢灯祥，所以宣传图做成灯x祥。
+
+
+*****
+
+####  星空冻结  
+##### 21221#       发表于 2024-7-28 18:42
+
+不如猜猜是独角兽还是柿本喜欢灯箱
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21222#       发表于 2024-7-28 18:42
+
+那么如果站在动画角度，初华对灯拿什理由对呢？你找不到理由啊
+
+*****
+
+####  光MIKAN  
+##### 21223#       发表于 2024-7-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724659&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 18:36</a>
+
+挺多都在担心出现那种立希对海铃发脾气然后海希绝交，海铃发现鸡团才是自己真正的家的剧情的，毕竟独角兽 ...</blockquote>
+她们两个人不是这种性格吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 21224#       发表于 2024-7-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724701&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-28 18:40</a>
+
+这要是科幻世界观 确实有可能决裂
+
+问题是mujica的主要矛盾大概率是娱乐圈和家族
+
+这帮人也没什么决裂的必要 ...</blockquote>
+而且决裂对邦邦世界观也没什么帮助吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21225#       发表于 2024-7-28 18:43
+
+ 本帖最后由 Aendst 于 2024-7-28 18:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+本来就是因故退队不继续做朋友了而已，又没有什么深仇大恨
+
+不然怎么会只有一句祝你幸福呢
+
+*****
+
+####  skives  
+##### 21226#       发表于 2024-7-28 18:43
+
+其实就是各出一个代表人物罢了
+毕竟mujica的kv也是祥子c位
+可能她在动画的剧情里会有比观众想象的更多的戏份<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 21227#       发表于 2024-7-28 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724650&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-28 18:36</a>
+
+好聚好散的漏油，夏雪冬花吗</blockquote>
+反正看到这个宣传图的第一反应真的是《刀》<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21228#       发表于 2024-7-28 18:43
+
+曾经有段时间我真觉得如果有初祥be的同人那mihiru的故事还挺贴的
+
+*****
+
+####  紫吹兰  
+##### 21229#         楼主| 发表于 2024-7-28 18:43
+
+有点气，明年一月还要去美国，如果在国内买黄牛票我都认了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+至于春日影，我赌一个day1 ccc，day2 10人版。
+
+*****
+
+####  IWS2000  
+##### 21230#       发表于 2024-7-28 18:43
+
+<img src="https://img.saraba1st.com/forum/202407/28/184346lxvx5te6xwlwmuis.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1722163343271.jpg</strong> (44.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:43 上传
+
+*****
+
+####  星空冻结  
+##### 21231#       发表于 2024-7-28 18:44
+
+你邦虽然老说主唱是星星，但是乐队代表不是主唱也不是第一次了
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21232#       发表于 2024-7-28 18:44
+
+如果抛开动画站在完全的舞台演出角度🐏和李子塞一起可以理解
+
+*****
+
+####  rikaren  
+##### 21233#       发表于 2024-7-28 18:44
+
+问题难道不是ras那边对邦也是layer封面，只有少数情况才chu²吗？wsd在搞什么。
+
+*****
+
+####  rikaren  
+##### 21234#       发表于 2024-7-28 18:45
+
+之前乐队核心不是主唱的也就ras。
+
+*****
+
+####  NODY  
+##### 21235#       发表于 2024-7-28 18:47
+
+ras那边宣传图一般还真是大姐头上的，我印象里只有ras刚进手游的周年开屏是楚平方（就是ksm和ykn拉着真白和楚平方两个新团队长的那个），其他基本全是大姐头
+
+只能说鸡这边祥子的大女主核心程度确实比楚平方还要高
+
+*****
+
+####  skives  
+##### 21236#       发表于 2024-7-28 18:47
+
+有理由相信 
+mujica播出之前还会有正式定档的kv 
+播到一半说不定还有初祥背靠背二人物语kv
+
+*****
+
+####  IWS2000  
+##### 21237#       发表于 2024-7-28 18:47
+
+原来楼里还有对祥子大女主位不满的啊？
+早在母鸡卡的宣传图出来之后不就知道了吗？
+

@@ -815,3 +815,11 @@ wada一年没新卡是不是说明fer项目一直摸鱼到去年
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65723916&amp;ptid=2084912" target="_blank">琴酒 发表于 2024-7-28 17:16</a></blockquote>
 单充80？唯一神怎么可能这么慷慨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AbigailWilliams  
+##### 13122#       发表于 2024-7-28 21:40
+
+三星能直接80它冲，这得做多大的梦啊
+

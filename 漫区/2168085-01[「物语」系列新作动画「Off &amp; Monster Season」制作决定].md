@@ -1337,3 +1337,13 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 越来越蓝了
 
+
+*****
+
+####  神圣天使书记官  
+##### 546#       发表于 2024-7-28 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65723127&amp;ptid=2168085" target="_blank">Yugao 发表于 2024-7-28 15:33</a>
+有个想法， 是不是把月火灭口她就会失去这一天的记忆了</blockquote>
+斧乃木不敢的，她一开始就是因为肘了正弦让阿良良木历产生了厌恶感，为了挽回关系她才被安排到了阿良良木历家，这会儿要是再敢动月火那这关系算是彻底完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

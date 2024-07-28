@@ -4840,3 +4840,135 @@ artplayer_01_28_22.png
 
 看成祥子掐灯脖子了，一边狠狠地掐一边祝你幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yifan8848  
+##### 21161#       发表于 2024-7-28 18:08
+
+全身圖
+
+<img src="https://img.saraba1st.com/forum/202407/28/180821hzckiphkozuuzhpu.png" referrerpolicy="no-referrer">
+
+<strong>2024-07-28.png</strong> (94.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:08 上传
+
+*****
+
+####  Aendst  
+##### 21162#       发表于 2024-7-28 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实很好猜，完美延续了绝交的感觉
+
+*****
+
+####  akiomn  
+##### 21163#       发表于 2024-7-28 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两万人场，wsd那么自信啊
+
+*****
+
+####  大贺美沙知  
+##### 21164#       发表于 2024-7-28 18:11
+
+四月底，春日的残响。
+十人的春日影<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  御幸一也  
+##### 21165#       发表于 2024-7-28 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 很好，希望是這次之後再也不見
+
+*****
+
+####  a85982313  
+##### 21166#       发表于 2024-7-28 18:11
+
+等一个无情握手
+
+*****
+
+####  CyDiablo  
+##### 21167#       发表于 2024-7-28 18:12
+
+赌一手动画效应吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压力来到了三次元和柿本广大身上
+这下真感觉十人春日影在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 21168#       发表于 2024-7-28 18:12
+
+风光大葬是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 21169#       发表于 2024-7-28 18:12
+
+动画播完后的live都准备了，所以“宣传期”什么时候到<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  rikaren  
+##### 21170#       发表于 2024-7-28 18:12
+
+所以动画放送完结时间wsd到底打算定啥时候
+
+*****
+
+####  IWS2000  
+##### 21171#       发表于 2024-7-28 18:13
+
+<img src="https://p.sda1.dev/18/1b4666b6c161191f20a9e080d0e327a1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  日野下花帆  
+##### 21172#       发表于 2024-7-28 18:13
+
+这下crychic 1st了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  rikaren  
+##### 21173#       发表于 2024-7-28 18:14
+
+这个对邦时间让我很不安
+
+*****
+
+####  yifan8848  
+##### 21174#       发表于 2024-7-28 18:14
+
+兩萬人的場連開兩天，wsd真的對動畫很有信心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜了不是13th
+
+*****
+
+####  九陌狂游  
+##### 21175#       发表于 2024-7-28 18:16
+
+看了一眼日历，哈哈，会存在一个不用调休的周末吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21176#       发表于 2024-7-28 18:17
+
+想跑路了
+

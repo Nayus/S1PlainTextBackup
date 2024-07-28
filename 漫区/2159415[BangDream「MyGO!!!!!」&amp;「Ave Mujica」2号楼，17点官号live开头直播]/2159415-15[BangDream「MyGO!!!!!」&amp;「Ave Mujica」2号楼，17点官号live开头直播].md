@@ -7202,3 +7202,53 @@ C团有啥可怀念的，只存在了一个来月，中之人都够呛全彼此�
 
 那还是tv前磕灯希的惨，好好的词曲cp，动画后关系被垫给其他cp还整天被人在底下ky<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 21393#       发表于 2024-7-29 00:54
+
+爱灯纯爱党震怒<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21394#       发表于 2024-7-29 00:59
+
+<blockquote>akiomn 发表于 2024-7-28 23:33
+比起春日影，隔壁提到个问题，对邦时候的安可怎么办，鸡团的歌现在除了Angles和water，其他都是给羊姐上强 ...</blockquote>
+那就上强度呗，反正差点趴地上也不会是第一次了。
+
+
+*****
+
+####  IWS2000  
+##### 21395#       发表于 2024-7-29 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728665&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-7-29 00:41</a>
+我不知道tv播出之前的go推现在是什么心情，代表曲迷星叫被春日影喧宾夺主，还时不时被一帮子人用别的团的成 ...</blockquote>
+破防的鸡推楼里见多了，破防的狗推倒不怎么见到。
+
+*****
+
+####  NODY  
+##### 21396#       发表于 2024-7-29 01:05
+
+感觉人鱼这衣服不如mujica的衣服显腿长
+
+<img src="https://img.saraba1st.com/forum/202407/29/010510frfkrcjhzt88kkrf.jpg" referrerpolicy="no-referrer">
+
+<strong>GTlASeja0AAMtb8.jpg</strong> (319.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 01:05 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/010510rw9sggwvhxdvff3d.jpg" referrerpolicy="no-referrer">
+
+<strong>GTlASemaoAAZ8QM.jpg</strong> (374.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 01:05 上传
+

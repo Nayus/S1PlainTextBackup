@@ -5599,3 +5599,159 @@ mujica播出之前还会有正式定档的kv
 
 如果对邦要卖ccc，剩下五个人怎么办呢，总不能初海喵都受c团live影响吧😰
 
+
+*****
+
+####  御幸一也  
+##### 21248#       发表于 2024-7-28 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724799&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-7-28 18:51</a>
+
+不是，邦可能让鸡狗分道扬镳吗？何况狗跟鸡关系还这么紧密，不如想想两个团怎么和解 ...</blockquote>
+有什麼不能分道揚鑣<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> ave又不是離了go不能獨立行走，勿cue
+
+*****
+
+####  NODY  
+##### 21249#       发表于 2024-7-28 19:00
+
+看开点，动画戏份真不行还能靠cv救火呢，鼓子这两天顶着坐牢的debuff都能拉着另外四个人把cp全卖了一遍，还每次都最后谢幕，真正做到了一己之力拯救立希的存在感和相关cp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21250#       发表于 2024-7-28 19:00
+
+不是 鸡狗都没在一起过 谈何分道扬镳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 21251#       发表于 2024-7-28 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724873&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-28 19:00</a>
+
+不是 鸡狗都没在一起过 谈何分道扬镳</blockquote>
+還真是，你說的對
+
+又掉進了所謂“姐妹團”陷阱，你看看日本人有誰說這個的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21252#       发表于 2024-7-28 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724843&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-28 18:56</a>
+
+感觉玩梗的人比较多 真c团遗老我确实没怎么见过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那应该还是真的有的
+
+如果要春日影喜欢crychic的大多是乐子人，那对真情实感喜欢crychic的姨姥是不是太不友善了
+
+
+*****
+
+####  IWS2000  
+##### 21253#       发表于 2024-7-28 19:02
+
+就不能是母鸡卡卖了睦祥初祥灯祥喵祥素祥吗？所有祥子cp粉都有口饭吃，大家就能和和气气的了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 21254#       发表于 2024-7-28 19:03
+
+之前觉得幽默的，但看样子10人春日影wsd真做得出来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21255#       发表于 2024-7-28 19:03
+
+為什麼不能是賣初祥睦祥喵祥海祥初睦初海初喵海睦海喵呢
+
+*****
+
+####  本间日阳  
+##### 21256#       发表于 2024-7-28 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有没有能力独立发展又影响不了什么，这两个团从故事和运营都是绑定的。
+
+不过这个绑定估计除了动画主线以外也就仅限于隔三岔五互动一次的地步，对邦这种事也不可能经常搞，其实影响不了什么。
+
+想让鸡狗彻底切割，楼友只能去给武士道上书了，我是支持切割的，加油啊楼友。
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21257#       发表于 2024-7-28 19:05
+
+归根结底还是动画组不识好歹，居然把素睦塞一个教室，孙笑川三人组一个教室，灯祥教室前后脚，早早把她们天女散花还有那么多事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinraki  
+##### 21258#       发表于 2024-7-28 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724766&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-28 18:47</a>
+原来楼里还有对祥子大女主位不满的啊？
+早在母鸡卡的宣传图出来之后不就知道了吗？ ...</blockquote>
+重点应该是祥的大女主地位和以前不同吧，总有人用楚平方举例，但楚平方不管是戏份还是剧情线索都不如祥来的深刻<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+*****
+
+####  rikaren  
+##### 21259#       发表于 2024-7-28 19:07
+
+为什么不是A（5，2）种可能性
+
+*****
+
+####  PDQ4  
+##### 21260#       发表于 2024-7-28 19:07
+
+所以十人春日影有点好笑
+
+硬扣帽子有点没意思，不如理性考虑春日影十人的合理性
+
+很简单，证明春日影这首歌对鸡团也很重要，重要到是成团上非常里程碑的一笔
+
+这个歌词我完全脑补不出来要怎么成为鸡团主轴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+灯是狗主唱，是作词，所以她对唱这首歌很有执念，唱出来是告别ccc自己开始独立，实际上唱完后爽世那边也开始爆炸开始突入从ccc姨姥转入狗团的心态
+
+春日影对鸡团要如何起到类似的作用，如果漏油有合理的推测可以一起brain storm，而不是一句包饺子所以挑首姨姥代表曲合唱
+
+当然也可能只是我思维定式狭隘了，只是鸡那个PV风格，要是独角兽也硬能写成青春伤痛也是个神人了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 21261#       发表于 2024-7-28 19:07
+
+我觉得chu²动画剧情很招黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">如果戏份多就是这些剧情的话，不如隐身。
+
+*****
+
+####  御幸一也  
+##### 21262#       发表于 2024-7-28 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724920&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-7-28 19:05</a>
+
+归根结底还是动画组不识好歹，居然把素睦塞一个教室，孙笑川三人组一个教室，灯祥教室前后脚，早早把她们天 ...</blockquote>
+你邦宇宙基本上就這3個學校還能怎麼分，沒關係，同班同學而已嘛，唸過書都知道同學關係僅此而已，不同班的就更不用說咯 嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

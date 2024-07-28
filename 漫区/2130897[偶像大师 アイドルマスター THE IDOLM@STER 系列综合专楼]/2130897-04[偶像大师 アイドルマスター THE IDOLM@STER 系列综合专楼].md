@@ -2907,3 +2907,97 @@ RXC4OO7_92T(GP~26N0QSY4.gif
 
 我了个双冠王啊<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 5899#       发表于 2024-7-28 18:58
+
+JR列車長，週一也要上班(
+
+<img src="https://img.saraba1st.com/forum/202407/28/185832orpnr34r3rr1sunr.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h53m40s110.jpg</strong> (346.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+各類新聯動：
+
+<img src="https://img.saraba1st.com/forum/202407/28/185833eu7mr87zen7g7sg6.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h54m42s379.jpg</strong> (445.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/185834kiro1f1nnb0pzdnp.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h54m50s310.jpg</strong> (403.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/185834ucce26c8be2v6cdn.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h54m55s381.jpg</strong> (460.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+推子都出二期動畫了嘛，生放裏露下臉也算正常...
+
+<img src="https://img.saraba1st.com/forum/202407/28/185835duoound4uuouzdjq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h55m37s382.jpg</strong> (462.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+7th LIVE... 不對，是動畫二期LIVE確定舉辦。
+
+<img src="https://img.saraba1st.com/forum/202407/28/185836ss75yrohjxzhxxhx.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h56m16s835.jpg</strong> (126.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/185837x2b15qyojk732jzn.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h56m23s941.jpg</strong> (157.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/185838cpy3w5ooowky8wyk.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h56m31s137.jpg</strong> (148.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/185838rzya0mh5h366so6o.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-07-28-18h56m39s268.jpg</strong> (126.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:58 上传
+
+
+*****
+
+####  sliver1997  
+##### 5900#       发表于 2024-7-28 19:07
+
+小高这真是没活硬整
+

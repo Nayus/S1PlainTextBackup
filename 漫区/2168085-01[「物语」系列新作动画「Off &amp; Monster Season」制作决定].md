@@ -1258,3 +1258,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 把式神收回了还要再出场了啊，接下来要3V2？
 
+
+*****
+
+####  鸣神  
+##### 538#       发表于 2024-7-28 10:46
+
+斧乃木这个和稀泥手能用Unlimited Rule Book吗？是不是只能用左手了
+

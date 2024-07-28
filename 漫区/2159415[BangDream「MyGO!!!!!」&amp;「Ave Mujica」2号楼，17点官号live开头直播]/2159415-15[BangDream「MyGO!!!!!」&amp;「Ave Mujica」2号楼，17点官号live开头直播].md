@@ -6695,3 +6695,91 @@ wsd你就同意重组crychic吧，看你也挺急的，给个准话让我彻底�
 
 弓形虫画师：那我呢
 
+
+*****
+
+####  -LYRE-  
+##### 21350#       发表于 2024-7-28 21:08
+
+ 本帖最后由 -LYRE- 于 2024-7-28 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724916&amp;ptid=2159415" target="_blank">本间日阳 发表于 2024-7-28 19:04</a>
+有没有能力独立发展又影响不了什么，这两个团从故事和运营都是绑定的。
+
+不过这个绑定估计除了动画主线以外 ...</blockquote>
+绑定在至今官推连个关注都不带点的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要不你先上书下吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">互相绑定的团怎么可以不互相关注呢，简中限定的绑定吗
+
+*****
+
+####  EBe  
+##### 21351#       发表于 2024-7-28 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725586&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 20:23</a>
+跨团纠葛和主次不分还是不太一样的，其实看狗友没意见一直不敢妄评，狗动画第三集从单纯故事上讲对灯的塑造 ...</blockquote>
+同意，所以我一直认为绫奈之前疑似切割鸡目前来说不是太坏的事
+
+*****
+
+####  前方暴雨预警  
+##### 21352#       发表于 2024-7-28 21:11
+
+再发个疯就跑
+
+我想看的初祥是忠犬系不是舔狗系啊淦，这要是写成动画灯希关系复刻就太要命了。
+
+你团的鼓手+作曲+队长+实际负责人，绑死了对核心的单箭头，被垫给另一队的核心；我团的主唱+主音+作词+门面，绑死了对核心的单箭头，也被垫给另一队的核心，一时竟不知道谁更惨。
+
+就很好奇立希推是怎么活下去的，我感觉自己得提前学习一下先进经验。
+
+但live里的初华很闪耀，二次元三次元都是，要是舞台上的Doloris没那么耀眼，我想跑的时候也不会这么纠结。对未来有美好预期的时候，初华重力展开的细节非常可爱，但一旦开始滑坡这些箭头可能得不到回应，反而就有些看不到这种沉重感了，一时竟恨不得这些感情没存在过，大家都是纯粹未来事业发展的同事关系也好，别掺和C团那些感情纠葛还要被踩一脚。
+
+好了我得赶紧去找点新番旧爱让自己忘记一切，纠缠这些没准的消息实在太内耗了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 六道明| + 1||
+
+查看全部评分
+
+
+*****
+
+####  skives  
+##### 21353#       发表于 2024-7-28 21:16
+
+ 本帖最后由 skives 于 2024-7-28 21:17 编辑 
+
+初华就是祥子最初的光 
+
+她长大以后感兴趣的女人都是收了初华的影响
+
+看到独角仙封皮的笔记本都会脸红的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+长大以后这种身份的变换后错位的关系性也很适合编剧发挥
+
+第八集都要见缝插针的狂卖一波
+
+迟早会有一个著名的感情爆发场景诞生 
+
+没什么可滑坡的
+
+推荐这个手书
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1zi421a7tq/?spm_id_from=333.337.search-card.all.click)
+
+*****
+
+####  Aendst  
+##### 21354#       发表于 2024-7-28 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得还好，仔细想想，很多人包括制作组内部也很喜欢ep08阳光明媚夏日午后初祥桥上相见的场景
+
+至少这个场景完全看不出所谓的舔狗系不是吗，两个人是相当对等的关系
+
+制作组喜欢，说明这样的场景就是制作组想要表现出来的
+

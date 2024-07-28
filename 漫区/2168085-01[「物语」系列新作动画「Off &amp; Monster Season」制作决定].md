@@ -1390,3 +1390,18 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对 ...</blockquote>
 客套话吧，fire sister对荡漾都很有好感，一种尊重的表现
 
+
+*****
+
+####  5353  
+##### 551#       发表于 2024-7-28 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725285&amp;ptid=2168085" target="_blank">晋冠丘 发表于 2024-7-28 19:45</a>
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对 ...</blockquote>
+我的理解是因为垃圾君并不是那种容易发火的人，应该可以说基本上就没发过火。
+
+对妹妹更是。她俩怎么闹腾垃圾君都不会真的发火。
+
+但这种人真发起火来也最吓人。
+

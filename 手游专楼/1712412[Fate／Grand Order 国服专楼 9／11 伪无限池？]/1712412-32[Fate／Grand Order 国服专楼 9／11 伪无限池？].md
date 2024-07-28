@@ -532,3 +532,17 @@ py码：100104725198，安B服。
 
 小号忍不住，追了300多石2宝<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  电波系腑海林  
+##### 46581#       发表于 2024-7-29 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">544bd43f2cb8807 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+福袋出了杜尔迦和闪闪，命定没出兽尼禄有点遗憾
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

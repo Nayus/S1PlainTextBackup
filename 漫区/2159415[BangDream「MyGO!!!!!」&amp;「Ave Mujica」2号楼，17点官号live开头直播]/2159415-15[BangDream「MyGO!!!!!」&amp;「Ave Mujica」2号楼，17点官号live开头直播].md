@@ -6404,3 +6404,32 @@ mujica队内，睦祥对于crychic态度一致，结合上面这些梳理来说�
 
 灯祥曲爱写写吧就别再给初华找补了，现在还不够幽默吗，wsd要听我的我真建议把初华的幼驯染关系什么的删掉算了，纯粹雇佣兵主唱真比现在强
 
+
+*****
+
+####  PDQ4  
+##### 21321#       发表于 2024-7-28 19:48
+
+本来的事，死掉的东西要不就是过了很久徒留回忆，要不就彻底死掉，不然就是在打脸现在的团，设计上就该是这个样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+sayo、saaya以前也有团，为什么不展开讲，因为是和现在乐队无关的背景路人
+
+现在有这么个团拿到台面上来讲，处理不好很容易就喧宾夺主，背景板当好背景板的工作就行
+
+*****
+
+####  skives  
+##### 21322#       发表于 2024-7-28 19:49
+
+mygo都已经把crychic给垫了
+mujica真没必要再讲一遍哭团往事了 mujica讲cryhic唯一的目的只能是为了揭秘睦祥
+
+*****
+
+####  NODY  
+##### 21323#       发表于 2024-7-28 19:50
+
+saya和前团有过歌的，手游专门出过
+
+但人家chispa是好聚好散，和c团这个仇人关系还是差很多的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

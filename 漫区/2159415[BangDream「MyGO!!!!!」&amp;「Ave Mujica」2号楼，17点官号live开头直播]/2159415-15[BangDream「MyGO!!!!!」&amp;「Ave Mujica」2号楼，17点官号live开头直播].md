@@ -4730,3 +4730,113 @@ artplayer_01_28_22.png
 
 花咲川還有kkr跟ars呢，只能說是學風自由了點
 
+
+*****
+
+####  Aendst  
+##### 21147#       发表于 2024-7-28 17:57
+
+这图好重的擦肩而过从此平行线味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">99是想要永远分手是吗
+
+*****
+
+####  NODY  
+##### 21148#       发表于 2024-7-28 17:57
+
+对邦宣传图不放主唱是不是有点尴尬了，感觉就算是ras这种情况也是放layer而不是楚平方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21149#       发表于 2024-7-28 17:58
+
+评价为幽默
+
+*****
+
+####  kivz  
+##### 21150#       发表于 2024-7-28 17:59
+
+播完后开是吧，为啥不敢放主唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21151#       发表于 2024-7-28 18:00
+
+动画后还是这个一脸有仇的宣传图，感觉关系真要僵到手游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狮子咕  
+##### 21152#       发表于 2024-7-28 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这图的绝交味臻浓啊
+
+<img src="https://img.saraba1st.com/forum/202407/28/180109il4xzl0lxz1lschf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (235.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 18:01 上传
+
+*****
+
+####  凡人  
+##### 21153#       发表于 2024-7-28 18:01
+
+灯祥将如闪电般归来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21154#       发表于 2024-7-28 18:01
+
+很酷的两个小女孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  贰臣  
+##### 21155#       发表于 2024-7-28 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这下女同性恨了
+
+*****
+
+####  光MIKAN  
+##### 21156#       发表于 2024-7-28 18:03
+
+小动画chuchu也抢过主唱的c位，个别场合搞搞特殊又不会真换主唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 21157#       发表于 2024-7-28 18:04
+
+黃金週，這下不好排行程了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 21158#       发表于 2024-7-28 18:04
+
+“据说有人问她这些事，她说不认识我。也许我是她的一个插曲，但是上帝对待我和对待她天差地别”<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日野下花帆  
+##### 21159#       发表于 2024-7-28 18:05
+
+动画播完鸡狗对邦，对邦第一次现场春日影，完全教科书般好猜的运营套路<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  pigpigbig  
+##### 21160#       发表于 2024-7-28 18:07
+
+看成祥子掐灯脖子了，一边狠狠地掐一边祝你幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

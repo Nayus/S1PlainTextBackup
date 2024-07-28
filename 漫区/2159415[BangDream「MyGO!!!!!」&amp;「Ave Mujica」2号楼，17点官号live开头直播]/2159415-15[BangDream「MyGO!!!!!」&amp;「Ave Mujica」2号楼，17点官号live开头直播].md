@@ -6968,3 +6968,13 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 我可以原谅她在故事的前期不回箭头<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 21372#       发表于 2024-7-28 22:02
+
+真的能给个画面初祥两个人在床上醒过来吗<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+从小海誓山盟，结果阴差阳错，两人都不愿真心相见，深入交流变成了祥子用来捆住初华的工具，但是能被捆住的前提是对方愿意，最后二人和解找到曾经私定终身的初心<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+

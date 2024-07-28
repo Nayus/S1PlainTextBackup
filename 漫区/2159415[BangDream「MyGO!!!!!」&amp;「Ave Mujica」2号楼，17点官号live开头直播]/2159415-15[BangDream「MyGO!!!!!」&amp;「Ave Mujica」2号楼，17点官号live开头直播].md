@@ -5512,3 +5512,90 @@ mujica播出之前还会有正式定档的kv
 原来楼里还有对祥子大女主位不满的啊？
 早在母鸡卡的宣传图出来之后不就知道了吗？
 
+
+*****
+
+####  光MIKAN  
+##### 21238#       发表于 2024-7-28 18:51
+
+就我目前补课的内容，对邦应该还有个全员海报？
+
+*****
+
+####  icoywt  
+##### 21239#       发表于 2024-7-28 18:51
+
+不是，邦可能让鸡狗分道扬镳吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">何况狗跟鸡关系还这么紧密，不如想想两个团怎么和解
+
+*****
+
+####  NODY  
+##### 21240#       发表于 2024-7-28 18:52
+
+正式的全员海报这个肯定有的，估计动画完结才宣
+
+
+*****
+
+####  星天观测  
+##### 21241#       发表于 2024-7-28 18:52
+
+本初华推只觉得幽默，既然主唱不需要了那就寄呗，layer在周边和live宣传里也配角是吧
+
+爱咋咋吧，摆了
+
+（幽默是说wsd幽默）
+
+*****
+
+####  PDQ4  
+##### 21242#       发表于 2024-7-28 18:54
+
+十人春日影太好笑了有点，所以爱音和春日影有关系了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+退一万步剧场版给猫变成春日影铁粉，海喵初怎么跟春日影搭上关系
+
+天天惦记春日影我看别拍鸡狗也别卖鸡狗合同了，直接拍大c传不好吗
+明年鸡动画播完宣布两团堂堂解散，合成大ccc，反正都是春日影腐乳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21243#       发表于 2024-7-28 18:54
+
+ 本帖最后由 Aendst 于 2024-7-28 18:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦多利之前还没有做过关系不好的乐队呢，这不是也做出来了
+
+要春日影的本来就是姨姥，宣个对邦就一夜成为人上人了，正开心呢
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21244#       发表于 2024-7-28 18:56
+
+一个本来用你是罗马我也是罗马正统的角度看就能轻松解释的东西为什么总有人滑坡合成大c团呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21245#       发表于 2024-7-28 18:56
+
+感觉玩梗的人比较多 真c团遗老我确实没怎么见过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21246#       发表于 2024-7-28 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724839&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-7-28 18:56</a>
+
+一个本来用你是罗马我也是罗马正统的角度看就能轻松解释的东西为什么总有人滑坡合成大c团呢 ...</blockquote>
+你说得对，但crychic已经解散了，而且进手游的没有这个乐队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 21247#       发表于 2024-7-28 18:57
+
+如果对邦要卖ccc，剩下五个人怎么办呢，总不能初海喵都受c团live影响吧😰
+

@@ -518,3 +518,34 @@ B站有猫组角色歌的中文字幕歌词了，猫猫真是好重啊猫组真�
 你还说不需要陷阱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该让猫猫纠正下青春病了
 
+
+*****
+
+####  坐看风起云涌  
+##### 1954#       发表于 2024-7-26 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65698124&amp;ptid=2162354" target="_blank">ダイヤモンド 发表于 2024-7-26 00:39</a>
+你还说不需要陷阱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">该让猫猫纠正下青春病了
+
+*****
+
+####  犬飼いろは  
+##### 1955#       发表于 2024-7-28 08:02
+
+第26話　暑すぎてヤバい！
+
+脚本：千葉美鈴
+
+演出：のもとゆうや
+
+作画監督：青山充
+
+美術：鈴木祥太
+
+朝、いつものようにお散歩に出かけるこむぎ（CV.長縄まりあ）といろは（CV.種﨑敦美）だったが、夏の暑さで足取りが重い。同じ頃、買い物に出かけたユキ（CV.松田颯水）とまゆ（CV.上田麗奈）も暑さでバテていた。ちょうど4人が出会い、体力の限界をむかえたところで、誰かがいろはとまゆに水をかけてくれる。それは、打ち水をしていた悟だった。悟の家に上がりこみ、冷房の効いた部屋で元気を取り戻すこむぎたち。悟がごちそうしてくれたお昼ごはんを食べたあと、悟の家を出ようとするこむぎたちだったが、そのとき街にガルガルがあらわれる。息を切らせながら駆けつけたこむぎたちの前には、ラクダ型のガルガルの姿があった。すぐに変身して立ち向かうワンダフルたちだったが、暑さのせいでいつもの力が出せない。
+<img src="https://p.sda1.dev/18/ca81c274b8bbe9ba9a1aba11d8777195/001_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a54a8a82c82d0ed11dd436a6936c7fbe/002_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/9b1c8701246b94b6ba4c7af995e30a99/003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/d8aec2b377dabe4ecdbfab9a1071cecc/004.jpg" referrerpolicy="no-referrer">
+

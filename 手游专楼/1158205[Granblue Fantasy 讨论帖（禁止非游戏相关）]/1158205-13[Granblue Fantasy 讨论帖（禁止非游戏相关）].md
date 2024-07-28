@@ -363,3 +363,11 @@ cy这几年是有点神秘，完全不知道在干嘛
 
 但只憑連動池一事就夠讓我乞求gbf趕快爆死。
 
+
+*****
+
+####  adretyu67.  
+##### 18046#       发表于 2024-7-28 08:52
+
+找转生斯莱姆联动也是没活或者说不想多花钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

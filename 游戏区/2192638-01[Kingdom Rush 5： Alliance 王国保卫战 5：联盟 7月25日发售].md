@@ -575,3 +575,13 @@ ps：精灵法师塔是不是还是那么废啊
 
 这系列大概是玩完了
 
+
+*****
+
+####  KevinGraham  
+##### 58#       发表于 2024-7-28 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65720445&amp;ptid=2192638" target="_blank">pwzzy 发表于 2024-7-28 08:44</a>
+就玩过1代，复仇和这作，评价是出道即巅峰了，英雄一点都不好玩，感觉是为了增加氪金点做的设计。而且这次 ...</blockquote>
+评价最高的应该是2，还是值得玩的
+

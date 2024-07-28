@@ -5988,3 +5988,110 @@ mujica播出之前还会有正式定档的kv
 
 真BE了我感觉灯祥可以捡回来，现在灯祥人搞得完全吃不下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  穗波殊  
+##### 21285#       发表于 2024-7-28 19:18
+
+其实c团几个人根本不熟吧。看狗动画素希关系不好，睦头更是玩乐队都不开心，有没有一种可能c团本来就是没有团魂的团。
+
+*****
+
+####  Aendst  
+##### 21286#       发表于 2024-7-28 19:18
+
+ 本帖最后由 Aendst 于 2024-7-28 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725029&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-7-28 19:17</a>
+
+这你得喷武士道，它逆天宣传才导致了这样的结果，只能期待明年动画播出以后live宣传不用再这么畏首畏尾 ...</blockquote>
+我一直是喷武士道的先锋军之一，你可以查看我的回帖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以武士道都不愿意绑一起，还有谁要绑一起呢，中国大陆网络用户吗
+
+*****
+
+####  rikaren  
+##### 21287#       发表于 2024-7-28 19:18
+
+又是经典世界观
+
+*****
+
+####  CyDiablo  
+##### 21288#       发表于 2024-7-28 19:20
+
+明年对邦大概率能看到海希花篮了好诶<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+要是能顺便看到coco和梦以互动就好了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21289#       发表于 2024-7-28 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725045&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-7-28 19:18</a>
+
+动画没播世界观不能展开导致宣传只能畏首畏尾，不如多喷武士道</blockquote>
+之前喷wsd不是被堵嘴了，姐妹团姐妹团叫的很开心，从去年12月堵嘴到6月没东西，才发现堵不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21290#       发表于 2024-7-28 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725040&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-28 19:17</a>
+
+不是，先想清一个事，这动画叫bangdream avemujica，不叫bangdream its mygo avemujica。主角团是avemujica ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武士道甚至在官网介绍和新宣传里把its mygo续篇这几个字给删了
+
+*****
+
+####  ytttsuuuba  
+##### 21291#       发表于 2024-7-28 19:21
+
+这视觉图是在藏吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">完全就是13集的状态，动画播出后不可能还是这样一成不变吧。决裂我觉得不可能，而且说实话本来也没什么深仇大恨，说开了恢复成普通朋友概率还挺大的，之后多讲讲团内吧，总共就13集，ave每个人都要着墨的话哪有空间老是掰扯那些c团往事，总不能又像go一样把个别成员边缘化。
+
+*****
+
+####  IWS2000  
+##### 21292#       发表于 2024-7-28 19:22
+
+爱过
+
+<img src="https://img.saraba1st.com/forum/202407/28/192219zqmo2xoldpx52a2p.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1722165688846.jpg</strong> (133.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 19:22 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 灼眼的夏娜酱| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 21293#       发表于 2024-7-28 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725073&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-28 19:21</a>
+
+武士道甚至在官网介绍和新宣传里把its mygo续篇这几个字给删了</blockquote>
+喜歡我「新シリーズ」嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 21294#       发表于 2024-7-28 19:22
+
+没播为什么不能宣传<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">go没播也是没有宣传吗
+

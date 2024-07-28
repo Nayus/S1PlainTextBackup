@@ -567,3 +567,11 @@ ps：精灵法师塔是不是还是那么废啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">就玩过1代，复仇和这作，评价是出道即巅峰了，英雄一点都不好玩，感觉是为了增加氪金点做的设计。而且这次的我放地图机制也少的可怜，以后不会再买了
 
+
+*****
+
+####  Vladimeow  
+##### 57#       发表于 2024-7-28 12:44
+
+这系列大概是玩完了
+

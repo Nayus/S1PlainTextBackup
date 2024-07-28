@@ -37,3 +37,23 @@ OP好宏大，从太古的宇宙唱到未来的地球以及人类的爱与历史
 
 学校的荒废面目正式揭开了
 
+
+*****
+
+####  本间日阳  
+##### 107#       发表于 2024-7-28 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65651329&amp;ptid=2086581" target="_blank">帆前 发表于 2024-7-21 08:37</a>
+
+感觉好像老番（
+
+开头先引入非日常的脱线少女，前几集日常和铺垫世界观，中期暴走揭露世界观，后期反转几下 ...</blockquote>
+人类都快完犊子了，学校里一共就几个人，早就没什么管理体制了。
+
+*****
+
+####  osore  
+##### 108#       发表于 2024-7-28 12:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然走近科学
+

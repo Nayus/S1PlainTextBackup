@@ -371,3 +371,14 @@ cy这几年是有点神秘，完全不知道在干嘛
 
 找转生斯莱姆联动也是没活或者说不想多花钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 18047#       发表于 2024-7-28 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65720495&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-7-28 08:52</a>
+
+找转生斯莱姆联动也是没活或者说不想多花钱吧</blockquote>
+KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
+

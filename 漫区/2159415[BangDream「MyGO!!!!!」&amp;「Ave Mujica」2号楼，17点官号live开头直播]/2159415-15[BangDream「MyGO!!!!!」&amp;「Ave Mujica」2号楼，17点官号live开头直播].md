@@ -6433,3 +6433,54 @@ saya和前团有过歌的，手游专门出过
 
 但人家chispa是好聚好散，和c团这个仇人关系还是差很多的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 21324#       发表于 2024-7-28 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725329&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 19:50</a>
+
+saya和前团有过歌的，手游专门出过
+
+但人家chispa是好聚好散，和c团这个仇人关系还是差很多的 ...</blockquote>
+重点不是chispa也没解散吗，突出一个体谅saaya<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21325#       发表于 2024-7-28 20:01
+
+等10.13看动画放送时间，真把进周年时间卡掉了真的会恶心死的
+
+*****
+
+####  NODY  
+##### 21326#       发表于 2024-7-28 20:02
+
+想了一下无论是春日影重唱还是笔记本新歌，主要还是立希一个人尴尬，初华有比牢c更远的幼驯染关系有三首盖章的初祥cp曲根本不慌，但灯还真没给立希单独写过歌呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 21327#       发表于 2024-7-28 20:04
+
+<img src="https://p.sda1.dev/18/a1157199062fd4f054b986e7050a0133/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 21328#       发表于 2024-7-28 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725127&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-28 19:28</a>
+
+讓我們看看監督怎麼說的</blockquote>
+有一说一，这里说的是：
+
+Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的乐队。
+
+（我希望把这个作品做成）【后面直译】描写她们的（その）人与人之间的联系的断绝的作品。
+
+不是特指两个乐队之间的联系断绝，要说断绝人与人的联系，MyGO的7~9话也符合这个描述
+

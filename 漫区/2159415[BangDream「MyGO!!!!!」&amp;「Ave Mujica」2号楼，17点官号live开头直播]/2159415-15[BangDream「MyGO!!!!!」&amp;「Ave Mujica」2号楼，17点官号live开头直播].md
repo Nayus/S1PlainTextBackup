@@ -6783,3 +6783,122 @@ wsd你就同意重组crychic吧，看你也挺急的，给个准话让我彻底�
 
 制作组喜欢，说明这样的场景就是制作组想要表现出来的
 
+
+*****
+
+####  PDQ4  
+##### 21355#       发表于 2024-7-28 21:18
+
+立希对灯单箭头，核心在于灯不明白立希在想什么，为什么对她这么好，所以箭头卡住了
+
+而初祥，先抛开场外中之人卖那么大，单纯动画内第七集结尾的忘记一切就杜绝了单箭头的可能性，祥子在困顿的时候是主动选择了寻求初华帮助
+
+这还能垫了，丰川祥子到底要写成什么程度的下头女<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 21356#       发表于 2024-7-28 21:18
+
+因为我们希推真没你们想的这么急<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">所有关系都能解构的
+
+*****
+
+####  skives  
+##### 21357#       发表于 2024-7-28 21:18
+
+从名字的设计真的可以看出很多东西
+
+*****
+
+####  星天观测  
+##### 21358#       发表于 2024-7-28 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65726221&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-7-28 21:11</a>
+
+再发个疯就跑
+
+我想看的初祥是忠犬系不是舔狗系啊淦，这要是写成动画灯希关系复刻就太要命了。
+
+你团的鼓手+ ...</blockquote>
+我和你的想法大概差不多，只能说初华真的是目前wsd操作最幽默的主唱，但凡她的箭头别绑那么死我都可以自顾自的欣赏她的颜性格歌声和舞台魅力，她如果和海铃一样是以雇佣兵身份进来的该多好
+
+如果还想看邦内的东西不如来看看roselia，主唱的箭头双向锁死而且互相陪伴一起前进的故事写得很不错，今晚破大防了看了很久的roselia相关（约束live和角色不可崩）才慢慢调理好
+
+*****
+
+####  -LYRE-  
+##### 21359#       发表于 2024-7-28 21:21
+
+ 本帖最后由 -LYRE- 于 2024-7-28 21:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725045&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-7-28 19:18</a>
+动画没播世界观不能展开导致宣传只能畏首畏尾，不如多喷武士道</blockquote>
+这楼喷wsd还喷少了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还时不时刷新点护wsd的公司go出来
+不了解就别做这种搞笑发言好吧
+经典世界观洗地倒是和那些公司go发言一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21360#       发表于 2024-7-28 21:21
+
+<img src="https://img.saraba1st.com/forum/202407/28/212119qev1x4eej0ovnjnq.jpg" referrerpolicy="no-referrer">
+
+<strong>1722172550096.jpg</strong> (286.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/212129xgm7b5by56m51bm5.jpg" referrerpolicy="no-referrer">
+
+<strong>1722172560100.jpg</strong> (271.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/212137lwzodd6dzkbyofgy.jpg" referrerpolicy="no-referrer">
+
+<strong>1722172830823.jpg</strong> (375.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 21:21 上传
+
+AM这边什么时候能蹭到M的服装设计师和画师啊
+
+
+*****
+
+####  NODY  
+##### 21361#       发表于 2024-7-28 21:24
+
+不跑路还是因为鼓子太努力了，live上又是被所有人围着演奏又是拉人营业又是退场鞠躬，存在感比动画立希强多了
+
+而且鼓子每次能拿得出这么多的营业和小论文来给立希找补，让人感觉立希的后续塑造或许还真的有一点希望，可能官方真的写了很多隐藏后续设定被鼓子看到了，只是手游还没来得及放出来而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 21362#       发表于 2024-7-28 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65726366&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-28 21:21</a>
+AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆鬼图画师强太多了，而且感觉服装风格AM也合适 ...</blockquote>
+太子团，不一样的
+
+*****
+
+####  御幸一也  
+##### 21363#       发表于 2024-7-28 21:27
+
+已經調理好了，反正還是要先看動畫<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21364#       发表于 2024-7-28 21:27
+
+前有太子，后有皇族，什么时候这个拥有美丽资源的宝座能让我们鸡也蹭蹭<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+

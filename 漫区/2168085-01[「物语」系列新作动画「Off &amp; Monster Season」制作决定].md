@@ -1517,3 +1517,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
 神抚子智商很低的，专家组都能退治她，更别提本作战斗力顶点完全体忍了，斧乃木被神抚子秒了主要是因为她和月火住在一起的时间长了被影响变得不严谨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yugao  
+##### 562#       发表于 2024-7-29 07:20
+
+斧乃木这个近墨者黑的特质，没和羽川混到一起去算是不幸中的万幸了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

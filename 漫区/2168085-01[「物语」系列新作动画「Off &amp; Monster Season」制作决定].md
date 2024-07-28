@@ -1371,3 +1371,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 这十字固笑死我了 没头还怎么锁得住啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 549#       发表于 2024-7-28 20:21
+
+尾石达也说在做新电影了，还说会比伤物语更好
+

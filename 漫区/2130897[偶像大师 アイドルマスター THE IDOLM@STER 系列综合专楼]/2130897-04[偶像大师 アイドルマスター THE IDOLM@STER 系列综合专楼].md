@@ -3089,3 +3089,30 @@ JR列車長，週一也要上班(
 
 这从天而降的事故变机遇的事件，第一时间是当这件事不存在。
 
+
+*****
+
+####  FMIC  
+##### 5911#       发表于 2024-7-28 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65727644&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-7-28 23:00</a>
+如果真剪了，小高就是顶级神经，作为偶像企划，就是要以偶像的能力作为神话，大力造神。
+
+这从天而降的事故 ...</blockquote>
+小高希望你关注他的天才剧本，而不是小姑娘即兴发挥
+
+
+*****
+
+####  wfhtony  
+##### 5912#       发表于 2024-7-28 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65727644&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-7-28 23:00</a>
+
+如果真剪了，小高就是顶级神经，作为偶像企划，就是要以偶像的能力作为神话，大力造神。
+
+这从天而降的事故 ...</blockquote>
+其实，之前的2nd因地震中断的放课后的演出（以及后续的救场MC）也在后续的蓝光盘里面全部被剪掉了。
+
+要是当时有出现在所谓「最速VOD」的话，估计救场那段也是一样当场被剪的...
+

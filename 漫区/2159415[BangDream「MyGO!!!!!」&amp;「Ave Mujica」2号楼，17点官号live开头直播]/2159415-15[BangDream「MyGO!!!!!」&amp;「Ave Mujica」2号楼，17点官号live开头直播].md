@@ -5069,3 +5069,183 @@ artplayer_01_28_22.png
 
 草 这下真整十人春日影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 21190#       发表于 2024-7-28 18:29
+
+不用担心母鸡卡不会卖灯祥了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21191#       发表于 2024-7-28 18:31
+
+这边欢呼和解的不少，推特首页的太君倒是开始担心以后真变仇人直接掐死所有跨团cp，并且准备提桶跑路了，人与人的悲欢并不相通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 21192#       发表于 2024-7-28 18:32
+
+对邦本来就是预中的事，都是邦多利下属乐队怎么可能不对邦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一脸惊喜的漏油不会都没想到吧
+
+*****
+
+####  PDQ4  
+##### 21193#       发表于 2024-7-28 18:32
+
+这个宣传映像出来基本断绝包饺子可能了
+
+个人猜测大概率是按照动画去演了，前半场狗，ave mujica开篇后半程鸡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实符合合同live的构成
+
+*****
+
+####  skives  
+##### 21194#       发表于 2024-7-28 18:32
+
+也没什么当仇人的点吧 前任变朋友的模版套路罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 21195#       发表于 2024-7-28 18:32
+
+动画不和解的话狗在鸡动画出现的意义是什么
+
+而且灯祥闹别扭关立希什么事，凭什么连带立希的人际<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21196#       发表于 2024-7-28 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724595&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 18:31</a>
+
+这边欢呼和解的不少，推特首页的太君倒是开始担心以后真变仇人直接掐死所有跨团cp，并且准备提桶跑路了，人 ...</blockquote>
+这当然了，对邦一定有，但这种绝交表情不一定有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 21197#       发表于 2024-7-28 18:33
+
+又没有什么仇，一点小事变成仇人就是给角色招黑啊。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  九陌狂游  
+##### 21198#       发表于 2024-7-28 18:33
+
+有没有可能是唱完这个我们就可以好聚好散了
+
+*****
+
+####  星天观测  
+##### 21199#       发表于 2024-7-28 18:34
+
+？刀民？
+
+*****
+
+####  yuyin589  
+##### 21200#       发表于 2024-7-28 18:34
+
+C团决裂就决裂，不要拆花女1B好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  前方暴雨预警  
+##### 21201#       发表于 2024-7-28 18:34
+
+深切理解漏油想跑路的心情，这段时间我也想对鸡降低关注了
+
+投入的时间精力太多很容易陷入擅自期待擅自失望的恶性循环里。
+
+权当它是一部新动画吧
+
+*****
+
+####  [皆神孝介]  
+##### 21202#       发表于 2024-7-28 18:35
+
+MyGO!!!!!×Ave Mujica 合同LIVE 开催确定！
+[https://www.youtube.com/watch?v=eeGRSZckfN8](https://www.youtube.com/watch?v=eeGRSZckfN8)
+[https://www.bilibili.com/video/BV1Zy411i7rZ/](https://www.bilibili.com/video/BV1Zy411i7rZ/)
+
+听到“お幸せに”的时候，感觉人要死了<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  穗波殊  
+##### 21203#       发表于 2024-7-28 18:35
+
+#誓言生锈 我们分别#
+不喜欢灯祥展开所以希望分的彻底一点
+
+*****
+
+####  rikaren  
+##### 21204#       发表于 2024-7-28 18:35
+
+我更关心海玲的贝斯组周年卡和能不能赶上生日卡周期，我可不想26年才能抽海玲，喵梦，初华的生日卡，睦祥的更是要27年。
+
+*****
+
+####  星天观测  
+##### 21205#       发表于 2024-7-28 18:36
+
+好聚好散的漏油，夏雪冬花吗
+
+*****
+
+####  skives  
+##### 21206#       发表于 2024-7-28 18:36
+
+灯箱也谈不上闹别扭吧
+灯不知道也没必要知道真相
+这俩人的那点纠葛在mujica也不可能是主要矛盾
+无非就是给合同live吸引流量的噱头 
+没必要滑坡的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21207#       发表于 2024-7-28 18:36
+
+第一季都那样了，轻拿轻放我觉得才是不合理的
+
+我之前担心的就是最后雷声大雨点小，很多看起来绝交不为过的事情最后随便包个饺子作结
+毕竟日本是饺子大国
+
+不过毕竟动画后了，2w人场不知道谁给wsd的自信，这么看好鸡动画？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我觉得鸡动画全是debuff，wsd觉得吹死婊活是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21208#       发表于 2024-7-28 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724609&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-7-28 18:32</a>
+
+动画不和解的话狗在鸡动画出现的意义是什么
+
+而且灯祥闹别扭关立希什么事，凭什么连带立希的人际 ...</blockquote>
+挺多都在担心出现那种立希对海铃发脾气然后海希绝交，海铃发现鸡团才是自己真正的家的剧情的，毕竟独角兽喜欢垫立希<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21209#       发表于 2024-7-28 18:37
+
+两万人的场馆里，狗团和鸡团的十位选手燃尽了所有，大屏幕上显示观众投票为10000:10000。
+
+正当双方准备握手言和之时，角落里突然传来一个女声: 我只是出去买了个甜甜圈而已，我还没投票呢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

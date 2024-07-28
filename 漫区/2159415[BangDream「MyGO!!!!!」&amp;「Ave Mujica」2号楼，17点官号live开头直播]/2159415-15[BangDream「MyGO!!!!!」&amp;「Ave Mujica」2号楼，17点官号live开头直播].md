@@ -5755,3 +5755,236 @@ mujica播出之前还会有正式定档的kv
 归根结底还是动画组不识好歹，居然把素睦塞一个教室，孙笑川三人组一个教室，灯祥教室前后脚，早早把她们天 ...</blockquote>
 你邦宇宙基本上就這3個學校還能怎麼分，沒關係，同班同學而已嘛，唸過書都知道同學關係僅此而已，不同班的就更不用說咯 嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  平昭·南宫司卿  
+##### 21263#       发表于 2024-7-28 19:08
+
+还是很佩服漏油滑坡的能力，办个合同 live 也要掐这些乱七八糟的，你们是看 live 的还是看啥的，照漏油这个滑坡能力那萝 ras 之前办合同 live 不打起来不看？等团都落地之后难道还真要每个 live 都继续乐此不疲玩那套 role play？
+
+还是先担心两个团差距比较明显的情况下的落差吧
+
+*****
+
+####  Aendst  
+##### 21264#       发表于 2024-7-28 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724920&amp;ptid=2159415" target="_blank">赫尔墨斯的权杖 发表于 2024-7-28 19:05</a>
+
+归根结底还是动画组不识好歹，居然把素睦塞一个教室，孙笑川三人组一个教室，灯祥教室前后脚，早早把她们天 ...</blockquote>
+这就是你的阅读理解能力太差导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从写脚本角度来说，没有密切关系的人只有在同一空间下才可能会有互动，才能推剧情
+
+不在同一个班甚至不在同一个学校的初祥和睦祥都有官方人员希望你关注人家的关系性呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rikaren| + 1||
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 21265#       发表于 2024-7-28 19:09
+
+我是觉得春日影是给7th唱的，毕竟总集篇特地给了猫唱春日影的画面
+
+对邦和春日影关系不大，出个新歌可能性还大点
+
+*****
+
+####  icoywt  
+##### 21266#       发表于 2024-7-28 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724865&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-28 18:59</a>
+有什麼不能分道揚鑣 ave又不是離了go不能獨立行走，勿cue</blockquote>
+这俩团就是绑在一起卖的，不用预言都知道以后动画跟游戏里两个团成员互动不会少
+
+*****
+
+####  光MIKAN  
+##### 21267#       发表于 2024-7-28 19:11
+
+真写团内其他无关人员被c团往事连累交恶才是臭棋<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+祥子动画再大女主，wsd应该不会让她顶周年图里主唱站位，姑且当现在动画还没播留点悬念
+
+*****
+
+####  NODY  
+##### 21268#       发表于 2024-7-28 19:11
+
+推特首页磕灯祥的好像都挺高兴，磕海希的在准备动画关系一变差就提桶跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他跨团...没有，其他所有跨团在海外基本约等于查无
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21269#       发表于 2024-7-28 19:12
+
+不知道第二季会不会出现漏油盼星星盼月亮的干净纯洁的完全单独队内关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21270#       发表于 2024-7-28 19:13
+
+不知道耶 我只知道燈祥BE的可能性upupup 樓友加油<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21271#       发表于 2024-7-28 19:13
+
+不知道耶 我只知道燈祥BE的可能性upupup 樓友加油<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21272#       发表于 2024-7-28 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724978&amp;ptid=2159415" target="_blank">icoywt 发表于 2024-7-28 19:11</a>
+
+这俩团就是绑在一起卖的，不用预言都知道以后动画跟游戏里两个团成员互动不会少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你先把能“绑一起”的水平的资源给抬上来再说
+
+*****
+
+####  kivz  
+##### 21273#       发表于 2024-7-28 19:13
+
+你说没播前搞对邦也就算了，现在播完还卖这套真不吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 21274#       发表于 2024-7-28 19:15
+
+灯助攻初华向祥子表达出真心的概率比较大 
+
+估计也就是几句台词的事 和第十集工工又整整
+
+毕竟该写的都写完了 从技术上就没什么可续的点
+
+以后最多是见面打招呼偶尔一起吃个饭这种等级
+
+*****
+
+####  IWS2000  
+##### 21275#       发表于 2024-7-28 19:15
+
+角色是无辜的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21276#       发表于 2024-7-28 19:16
+
+无关人员和c团那几个人本就没关系，事实上爱音也没流弹击中了也没卷进去
+
+我的评价是狗动画都能养出这么多c团姨姥，wsd最好明白你再卖的是什么东西
+
+说是联系紧密，实际上除了海希这个本来就在卖的，到底是谁想紧密，想让谁紧密，我觉得不眼瞎的都有数，真要紧密的卖，ccc往事的时候，就该让爱音全认识了，把ccc关系转化成鸡狗关系，事实上爱音现在还不认识睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  NODY  
+##### 21277#       发表于 2024-7-28 19:16
+
+ 本帖最后由 NODY 于 2024-7-28 19:17 编辑 
+
+说实话我觉得十人春日影不太实际，但有点担心13集灯本子上那首歌会让祥子作曲，毕竟动画立希一直挺挂件的，独角兽再给她撒一把土很有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21278#       发表于 2024-7-28 19:16
+
+<blockquote>icoywt 发表于 2024-7-28 19:11
+这俩团就是绑在一起卖的，不用预言都知道以后动画跟游戏里两个团成员互动不会少 ...</blockquote>
+那能给下资源吗？而且绑在一起卖？场外中之人不会安排点营业吗，go除了coco另外四个和am成员有什么互动吗。
+
+*****
+
+####  Alicest  
+##### 21279#       发表于 2024-7-28 19:16
+
+上次看到姐妹论是yostar双株之姐姐养妹妹，存在现实利益冲突的提姐妹论绝对不安好心
+
+*****
+
+####  ytttsuuuba  
+##### 21280#       发表于 2024-7-28 19:16
+
+对邦是肯定的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">不过这也太早了，k横a这种场子2天，感觉国人得填2/3才能坐满
+
+
+*****
+
+####  icoywt  
+##### 21281#       发表于 2024-7-28 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725000&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-28 19:13</a>
+你先把能“绑一起”的水平的资源给抬上来再说</blockquote>
+这你得喷武士道，它逆天宣传才导致了这样的结果，只能期待明年动画播出以后live宣传不用再这么畏首畏尾
+
+*****
+
+####  akiomn  
+##### 21282#       发表于 2024-7-28 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，先想清一个事，这动画叫bangdream avemujica，不叫bangdream its mygo avemujica。主角团是avemujica的成员
+团外互动必定有，但是狗团能有多少戏份？顶天了像mujica在go的动画里那样。而wsd也肯定优先卖团内cp
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  icoywt  
+##### 21283#       发表于 2024-7-28 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725020&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-28 19:16</a>
+那能给下资源吗？而且绑在一起卖？场外中之人不会安排点营业吗，go除了coco另外四个和am成员有什么互动吗 ...</blockquote>
+动画没播世界观不能展开导致宣传只能畏首畏尾，不如多喷武士道
+
+*****
+
+####  PDQ4  
+##### 21284#       发表于 2024-7-28 19:18
+
+真BE了我感觉灯祥可以捡回来，现在灯祥人搞得完全吃不下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1397,3 +1397,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 让3代玩家体验一下2代伞的8成功力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 4927#       发表于 2024-7-28 10:23
+
+我用加特林也打不过伞，一管子都打不爆伞面，灵活性还不如伞
+

@@ -572,3 +572,17 @@ B站有猫组角色歌的中文字幕歌词了，猫猫真是好重啊猫组真�
 
 动物知识也是满点包括遛狗的时机，和宠物在家的情况基本都要开空调之类的，很真实。
 
+
+*****
+
+####  上坂莲华  
+##### 1958#       发表于 2024-7-28 13:47
+
+天热回×暖男回√，暗示暖男看到彩羽就燥热，难怪养兔子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mayu最后一说忘了什么我就知道是线没买了，还有mayu终于拿到玩具玩了，可喜可贺可喜可贺
+
+不过猫你不是一直自诩姐姐吗，为什么出门自己打个小阳伞把mayu晾外面，塑料姐妹花是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wonderful precuer结果猫组先变身，貌似有点巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

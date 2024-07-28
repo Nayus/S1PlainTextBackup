@@ -1266,3 +1266,15 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 斧乃木这个和稀泥手能用Unlimited Rule Book吗？是不是只能用左手了
 
+
+*****
+
+####  神圣天使书记官  
+##### 539#       发表于 2024-7-28 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+：接电话，然后报上大名！
+  我一直都 ...</blockquote>
+无所谓，月火的神经更大条，随便怎么解释都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

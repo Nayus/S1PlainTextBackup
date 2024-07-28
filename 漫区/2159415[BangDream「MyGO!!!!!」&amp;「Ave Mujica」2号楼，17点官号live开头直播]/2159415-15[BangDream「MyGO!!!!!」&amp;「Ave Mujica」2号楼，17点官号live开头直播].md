@@ -6484,3 +6484,25 @@ Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的
 
 不是特指两个乐队之间的联系断绝，要说断绝人与人的联系，MyGO的7~9话也符合这个描述
 
+
+*****
+
+####  御幸一也  
+##### 21329#       发表于 2024-7-28 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725454&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-7-28 20:06</a>
+
+有一说一，这里说的是：
+
+Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的乐队。</blockquote>
+我知道沒有特指是這兩個樂團的斷絕，這個剛出來的時候泥樓就討論過了。
+
+當然，祥子和家人的斷絕也是斷絕，但是，反正是說了會有“斷絕”不是嗎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  海月くらげ  
+##### 21330#       发表于 2024-7-28 20:17
+
+支持鸡狗分家，但是WSD跨团纠葛是祖宗之法也知道无力改变，况且这也不是分家就能解决的事，2.5里自己喜欢的角色不被优待就会活得注定痛苦，还是多看点其他企划对冲不要太专注了，这对邦就是噱头吸一般通过的。
+

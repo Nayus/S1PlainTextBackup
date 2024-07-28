@@ -1457,3 +1457,18 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">伤物语开头就发过火啊（物理，还挺容易着的（不是。
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 556#       发表于 2024-7-29 00:15
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫来所以兵不血刃解决了，真打起来谁能打过神抚子？
+
+*****
+
+####  Ollie  
+##### 557#       发表于 2024-7-29 00:17
+
+现在哪个字幕组翻译最好？喵萌奶茶？
+

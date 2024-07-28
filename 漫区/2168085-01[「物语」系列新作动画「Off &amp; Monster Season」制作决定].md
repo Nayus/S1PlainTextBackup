@@ -1301,3 +1301,13 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
   我一直都 ...</blockquote>
 蠢的可爱才是抚子啊
 
+
+*****
+
+####  jaewoongh_  
+##### 542#       发表于 2024-7-28 14:17
+
+斧乃木的新造型还挺可爱的？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">神社的漫才不错，这季的精髓应该就是抚子和斧乃木斗嘴了吧
+

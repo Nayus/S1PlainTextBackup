@@ -597,3 +597,11 @@ ps：精灵法师塔是不是还是那么废啊
 
 —— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  water  
+##### 60#       发表于 2024-7-29 01:21
+
+流程太短，没有新意，勉强比4代好一点点。
+

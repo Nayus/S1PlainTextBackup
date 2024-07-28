@@ -1472,3 +1472,14 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 现在哪个字幕组翻译最好？喵萌奶茶？
 
+
+*****
+
+####  猫兔同笼  
+##### 558#       发表于 2024-7-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+完全体能刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和小忍俩人舍不得分开吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除此之外咩咩不会用暴力解决，而影缝大概率直接上去硬打，不过扇是直接把这俩人ban了
+

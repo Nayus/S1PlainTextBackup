@@ -1379,3 +1379,14 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 尾石达也说在做新电影了，还说会比伤物语更好
 
+
+*****
+
+####  Sliurus  
+##### 550#       发表于 2024-7-28 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725285&amp;ptid=2168085" target="_blank">晋冠丘 发表于 2024-7-28 19:45</a>
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对 ...</blockquote>
+客套话吧，fire sister对荡漾都很有好感，一种尊重的表现
+

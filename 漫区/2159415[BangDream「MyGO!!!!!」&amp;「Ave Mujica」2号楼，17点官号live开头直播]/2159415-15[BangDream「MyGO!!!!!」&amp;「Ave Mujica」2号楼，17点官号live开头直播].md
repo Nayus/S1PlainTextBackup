@@ -6567,3 +6567,48 @@ Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的
 而13集很明显的祥子反衬爱音，爱灯水族馆定情 ...</blockquote>
 细想之后不就显出来灯箱感情的塑料之处了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 21337#       发表于 2024-7-28 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724694&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-28 18:40</a>
+
+我理解樓友想跑的心情，這對邦KV居然還能不是主唱對主唱，當初華塑膠？</blockquote>
+之前类似Caffe这种活动给灯祥出新谷做两团的代表人物我还挺理解的，毕竟明确的剧情核心，而且鸡团现在就祥子展开比较多人气高想赚米当然得卖她。但live这个……以邦的live模式，三次元live不推主唱真的合理吗？RAS都没这么搞吧。本来觉得祥子再大女主，祥睦的关系再是解密中心，初华的位置也不会比layer更惨了，但现在看来……<img src="https://static.saraba1st.com/image/smiley/face/178.gif" referrerpolicy="no-referrer">我已经滑坡到了幻视新周年图是8个主唱+1个键盘手了。
+
+再考虑到立希的遭遇，wsd总不会真想推CCC的词曲组soulmate，把新团的词曲全都垫成挂件吧
+
+*****
+
+####  六道明  
+##### 21338#       发表于 2024-7-28 20:45
+
+养女党的我只有初祥睦祥，没有其他<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cayon  
+##### 21339#       发表于 2024-7-28 20:45
+
+灯箱是邦邦膏肓吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21340#       发表于 2024-7-28 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725624&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-28 20:26</a>
+
+灯对祥子的感情本来就是mygo动画没敢去讲明白的东西啊
+
+第八集还在纠结祥子
+
+第九集马上就去思考soyo的问题了 ...</blockquote>
+因为mygo才是生活，crychic只是为了推剧情弄点人际矛盾
+
+实际上爱音说你们回去重组crychic吧之后，灯的反应也是她不要，打定主意就要mygo这五个人
+
+这是她自己选的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

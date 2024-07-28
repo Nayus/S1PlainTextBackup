@@ -7292,3 +7292,39 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 本来就不可能唱Angles跟Water，对邦换歌都是唱气氛热烈的歌的，怎么可能会拿抒情曲去唱 ...</blockquote>
 那就fire和黑色生日？真不错。
 
+
+*****
+
+####  御幸一也  
+##### 21401#       发表于 2024-7-29 04:19
+
+<img src="https://img.saraba1st.com/forum/202407/29/041900g4w3tmmkyffitw1m.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_はやし🥺(@hayashi_mujina)_20240728-152204_1817581294748156014_photo-0.jpg</strong> (208.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 04:19 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/041901funl8z88s8fugsfa.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_はやし🥺(@hayashi_mujina)_20240728-152204_1817581294748156014_photo-1.jpg</strong> (166.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 04:19 上传
+
+[https://x.com/hayashi_mujina/status/1817581294748156014](https://x.com/hayashi_mujina/status/1817581294748156014)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kivz| + 2|好评加鹅|
+
+查看全部评分
+

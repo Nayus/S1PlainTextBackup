@@ -1038,3 +1038,19 @@ ek1xobuftbcgwln7
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗袍圣华多久贬值，能等到西服小玉吗
 
+
+*****
+
+####  Acerola  
+##### 1599#       发表于 2024-7-28 17:26
+
+高难等级上来能抗住还挺好打的，这联动BOSS算是小奏为数不多的售后吧，印象里去年日服联动活动刚过就给了个光抗性的BOSS，一点面子都不给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/28/172546ol9jqhrj7haa7r79.png" referrerpolicy="no-referrer">
+
+<strong>b34b7ca63fdcad2426eaf6e33ec4b468.png</strong> (429.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 17:25 上传
+

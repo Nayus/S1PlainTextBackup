@@ -2732,3 +2732,44 @@ p了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">节目效果整不错
 
+
+*****
+
+####  wfhtony  
+##### 5881#       发表于 2024-7-28 17:19
+
+TAKE 2了。
+
+按照烂铁之前2nd时放课后演出因地震中断的处理情况看，之前的那段演出事故应该不会剪到最后的蓝光里面（花絮里应该也不会有）。
+
+*****
+
+####  黛冬优子  
+##### 5882#       发表于 2024-7-28 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">这就是我们sc最好的红黄啊
+
+*****
+
+####  Porsche  
+##### 5883#       发表于 2024-7-28 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上全在求出bd的时候不要cut这段
+
+*****
+
+####  Alicest  
+##### 5884#       发表于 2024-7-28 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/593d08357c3b0ffff9d33a3ecc03a656/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/2fe33e22a79518296d60c30004f3daf4/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lunaticfool  
+##### 5885#       发表于 2024-7-28 17:23
+
+day2直接上迷光了
+

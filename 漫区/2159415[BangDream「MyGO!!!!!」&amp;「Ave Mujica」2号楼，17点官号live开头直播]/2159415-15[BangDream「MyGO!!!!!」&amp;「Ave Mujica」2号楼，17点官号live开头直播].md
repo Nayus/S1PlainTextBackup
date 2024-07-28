@@ -6537,3 +6537,33 @@ Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的
 结果到13集又开始纠结祥子
 如果去细想 就会非常的奇怪
 
+
+*****
+
+####  NODY  
+##### 21334#       发表于 2024-7-28 20:29
+
+立希被写得像作曲挂件本质也是因为独角兽太喜欢c团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过目前官方好像稍微有开始推灯希了，可能是手游侧觉得作曲太挂件了不好推剧情所以给立希补了戏份，或者鼓子的努力营业真有用了
+
+*****
+
+####  PDQ4  
+##### 21335#       发表于 2024-7-28 20:32
+
+说明爽世＞祥子，很合理的逻辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而13集很明显的祥子反衬爱音，爱灯水族馆定情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21336#       发表于 2024-7-28 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725713&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 20:32</a>
+说明爽世＞祥子，很合理的逻辑
+
+而13集很明显的祥子反衬爱音，爱灯水族馆定情 ...</blockquote>
+细想之后不就显出来灯箱感情的塑料之处了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

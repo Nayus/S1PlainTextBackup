@@ -1506,3 +1506,14 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 完全体的刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和 ...</blockquote>
 还有就是垃圾心软。忍恢复完全体的话，俩人不一定分离，但很有可能是忍直接把抚子吃了…所以一直没动真格。
 
+
+*****
+
+####  糖皮质激素  
+##### 561#       发表于 2024-7-29 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+神抚子智商很低的，专家组都能退治她，更别提本作战斗力顶点完全体忍了，斧乃木被神抚子秒了主要是因为她和月火住在一起的时间长了被影响变得不严谨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

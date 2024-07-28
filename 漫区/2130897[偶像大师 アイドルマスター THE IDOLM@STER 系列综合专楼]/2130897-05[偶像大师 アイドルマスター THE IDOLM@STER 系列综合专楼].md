@@ -6,3 +6,13 @@
 
 没想到这么快就要8月了，学马的首次live也要来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NiteShien  
+##### 5922#       发表于 2024-7-29 02:05
+
+2nd地震的片段，b站上还能看到吗？搜了一下没找到
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

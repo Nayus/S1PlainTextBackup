@@ -1278,3 +1278,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
   我一直都 ...</blockquote>
 无所谓，月火的神经更大条，随便怎么解释都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鬼谷ask  
+##### 540#       发表于 2024-7-28 12:31
+
+好看，很有趣，抚子和斧乃木对话的过程中用拼身体来保证画面的趣味度感觉很好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

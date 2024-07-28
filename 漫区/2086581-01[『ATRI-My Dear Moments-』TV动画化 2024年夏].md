@@ -27,3 +27,13 @@
 
 OP好宏大，从太古的宇宙唱到未来的地球以及人类的爱与历史，我肥秋系听的少，给偶像唱这么高大上的歌有点意思，这格局倒是感觉比原作科幻。
 
+
+*****
+
+####  帆前  
+##### 106#       发表于 2024-7-28 12:31
+
+萝卜子力发电<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <img src="https://i.hd-r.cn/6c8a9c9c35e36419e8ea70eff2617b2d.jpg" referrerpolicy="no-referrer">
+
+学校的荒废面目正式揭开了
+

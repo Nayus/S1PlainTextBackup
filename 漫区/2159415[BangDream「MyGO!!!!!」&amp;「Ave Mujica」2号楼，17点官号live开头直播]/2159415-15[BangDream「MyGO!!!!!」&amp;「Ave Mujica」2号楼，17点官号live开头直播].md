@@ -6935,3 +6935,36 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 邦邦对青梅竹马cp还是挺好的吧，又是一个队里的，初祥要自信
 
+
+*****
+
+####  结衣小比取  
+##### 21369#       发表于 2024-7-28 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65726288&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-28 21:16</a>
+
+我觉得还好，仔细想想，很多人包括制作组内部也很喜欢ep08阳光明媚夏日午后初祥桥上相见的场景
+
+至少这个场 ...</blockquote>
+我觉得第八话那个场景在初华用“cry…”试探触雷前，祥子甚至有点谄媚<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21370#       发表于 2024-7-28 21:45
+
+青梅也好，天降青梅也好，这种设定天生就是为了来写角色间关系而存在的
+
+所谓一直陪伴，又或者再续前缘一同走下去
+
+这就是幼驯染的意义
+
+*****
+
+####  skives  
+##### 21371#       发表于 2024-7-28 21:47
+
+祥子只要愿意用肉体温柔的安慰初华
+
+我可以原谅她在故事的前期不回箭头<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

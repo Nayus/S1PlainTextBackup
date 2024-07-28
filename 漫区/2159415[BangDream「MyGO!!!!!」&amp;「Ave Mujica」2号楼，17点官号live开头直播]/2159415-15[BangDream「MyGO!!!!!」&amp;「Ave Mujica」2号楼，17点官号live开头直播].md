@@ -4565,3 +4565,43 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 2024-7-28 17:18 上传
 
+
+*****
+
+####  asion617  
+##### 21132#       发表于 2024-7-28 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65716548&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-27 19:55</a>
+
+这个预告给猫补了个学习成绩不错的设定
+
+官方不会是看到太多的花咲川中专弱智梗开始找补了吧，之前是给初华 ...</blockquote>
+拿现实里的标准看tv里的猫确实有点弱智啊, 跟学校没关系吧
+
+学习成绩不错的话那应该属于阿斯伯格那类了
+
+
+*****
+
+####  紫吹兰  
+##### 21133#         楼主| 发表于 2024-7-28 17:33
+
+[https://tieba.baidu.com/p/9106928604](https://tieba.baidu.com/p/9106928604)
+
+<img src="https://img.saraba1st.com/forum/202407/28/173249ymty77a07q75mvla.png" referrerpolicy="no-referrer">
+
+<strong>菜花.png</strong> (630.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 17:32 上传
+
+好消息？坏消息？
+
+*****
+
+####  NODY  
+##### 21134#       发表于 2024-7-28 17:34
+
+成片和分镜差的有点远，而且独角兽还愿意聊感觉不是什么大问题，感觉反而说明了闹僵的不是菜花
+

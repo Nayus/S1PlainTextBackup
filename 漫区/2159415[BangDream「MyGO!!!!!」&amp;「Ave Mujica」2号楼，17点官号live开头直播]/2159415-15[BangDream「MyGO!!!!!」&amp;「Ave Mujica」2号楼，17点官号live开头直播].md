@@ -6245,3 +6245,162 @@ c团本来就没有什么所谓的深交，就是因为太短暂，大家都不�
 
 c团说实话这几个人都没深交就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">完全没觉得可惜的，如果描写的再深刻点彼此感情再好点可能会理解点吧，现在就感觉是一个认识不到1个月，成员关系也没多好就散了的三次元很正常的事，搞的好像很重大很特别的样子。不理解。难道是春日影演出太好了？
 
+
+*****
+
+####  御幸一也  
+##### 21307#       发表于 2024-7-28 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725170&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-7-28 19:32</a>
+
+c团说实话这几个人都没深交就结束了完全没觉得可惜的，如果描写的再深刻点彼此感情再好点可能会理解点吧， ...</blockquote>
+可能是因為綾奈想要一個人對CCC執著，所以設計了一個角色導致的吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21308#       发表于 2024-7-28 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725152&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 19:31</a>
+
+真把初华也垫了我立马跑，不用玩文字游戏，因为这么垫实际上就是鸡狗垫给ccc了
+
+而且可以预计到的现在对 ...</blockquote>
+灯这歌是给祥子的，如果是立希作曲那就是立希尴尬，是祥子作曲就是立希初华一起尴尬，这么一想要不还是牺牲一下立希一个人算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21309#       发表于 2024-7-28 19:35
+
+画饼不叫走出一步，更何况是动画之后的饼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+有了动画真的很在乎那个live吗，动画搞好了才会给live捧场，如果动画出问题了那后续不甚关心，毕竟我对中之人的喜欢是建立在对纸片人的爱之上（虽然有几位有点想噶了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御景| + 1|中之人更多是爱屋及乌|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 21310#       发表于 2024-7-28 19:36
+
+制作组已经说过了，开局就crychic是因为要写一个有真实感的故事，crychic的实质是“失败的乐队”
+
+所以其实不需要去强调crychic的好，只要加深“这个乐队失败了所以气氛很沉重”的表现就可以
+
+之所以crychic客观来讲并没有很熟，但是mygo的元crychic成员都有滤镜我想很可能也和这有关，因为crychic就是剧本中的一个矛盾集合点和基调铺设背景
+
+基调上需要crychic作为失败的乐队体现“不那么积极的氛围”，具体脚本架构上则需要mygo内部去怀念crychic来引爆mygo内部的矛盾
+
+*****
+
+####  akiomn  
+##### 21311#       发表于 2024-7-28 19:37
+
+ 本帖最后由 akiomn 于 2024-7-28 19:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有睦祥这俩在，c团肯定会牵扯到。但是这俩肯定还有更大的爆点在，团内的事情都解决不了，哪来时间解决c团问题。而且睦祥态度很明确了，睦是祥的半身，立场也和祥子一致，c团不可能复活（mygo在诗抄绊前的一大半问题都来源于soyo想复辟c团）而鸡团出的问题肯定会和狗团不一样
+
+cp肯定优先卖团内，初祥睦祥这俩不可能不卖吧？海玲喵梦这俩不可能放着不管吧？
+
+*****
+
+####  PDQ4  
+##### 21312#       发表于 2024-7-28 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725192&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 19:34</a>
+
+灯这歌是给祥子的，如果是立希作曲那就是立希尴尬，是祥子作曲就是立希初华一起尴尬，这么一想要不还是牺 ...</blockquote>
+为什么不能通过这首曲子灯希交心，本身灯唱的就是自己的想法，现在只有立希想让她的歌声传遍**，届不到祥子就届不到，回头看看立希呗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21313#       发表于 2024-7-28 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725192&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 19:34</a>
+
+灯这歌是给祥子的，如果是立希作曲那就是立希尴尬，是祥子作曲就是立希初华一起尴尬，这么一想要不还是牺 ...</blockquote>
+为什么不能通过这首曲子灯希交心，本身灯唱的就是自己的想法，现在只有立希想让她的歌声传遍大江南北，届不到祥子就届不到，回头看看立希呗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 21314#       发表于 2024-7-28 19:38
+
+因为这个对邦真的很难说是好操作好吧，除了确实有乐子对🐔推🐶推都不是什么好活
+
+
+*****
+
+####  御幸一也  
+##### 21315#       发表于 2024-7-28 19:40
+
+只有CCC遺老一日限定狂歡，完全無視KV這個從此陌路人的氛圍<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光MIKAN  
+##### 21316#       发表于 2024-7-28 19:44
+
+现在争议大主要还是鸡动画没播，睦祥的视角没展开，还得等动画<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21317#       发表于 2024-7-28 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725216&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 19:37</a>
+
+为什么不能通过这首曲子灯希交心，本身灯唱的就是自己的想法，现在只有立希想让她的歌声传遍大江南北，届 ...</blockquote>
+给祥子的歌让立希写本身就挺尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+除非wsd端个水，灯和祥子写笔记本那首，立希和初华在手游补个花女文化祭活动的歌
+
+*****
+
+####  EBe  
+##### 21318#       发表于 2024-7-28 19:44
+
+爬完楼了，佩服大家的想象力，我第一反应就是终于能送海希花篮了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21319#       发表于 2024-7-28 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725209&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-7-28 19:37</a>
+
+有睦祥这俩在，c团肯定会牵扯到。但是这俩肯定还有更大的爆点在，团内的事情都解决不了，哪来时间解决c团问 ...</blockquote>
+睦祥和爽灯希有一个决定性的差异
+
+爽灯希在mygo成立前的接点，甚至整个crychic除了睦祥之外所有人之间的最大接点都是crychic
+
+现在，mygo成立之后mygo的三个人有了mygo做核心节点
+
+但睦祥在crychic之前，首先是幼驯染，其次，在mujica出道后，也已经都有了mujica
+
+mygo队内基于crychic的冲突在于爽世想要复活crychic，但灯和立希并不想，所以实质上造成了爽世和灯的冲突
+
+mujica队内，睦祥对于crychic态度一致，结合上面这些梳理来说，即使睦祥有冲突，也更有可能是跟她们个人的关系有关
+
+初华就更不用说了，不论如何她是主唱，并且一定是有相当重要爆点内容的，而她和队内任何人的关系都跟crychic无关
+
+*****
+
+####  星天观测  
+##### 21320#       发表于 2024-7-28 19:47
+
+灯祥曲爱写写吧就别再给初华找补了，现在还不够幽默吗，wsd要听我的我真建议把初华的幼驯染关系什么的删掉算了，纯粹雇佣兵主唱真比现在强
+

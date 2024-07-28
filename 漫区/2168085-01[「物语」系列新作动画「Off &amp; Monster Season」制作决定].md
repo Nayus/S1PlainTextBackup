@@ -1347,3 +1347,27 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 有个想法， 是不是把月火灭口她就会失去这一天的记忆了</blockquote>
 斧乃木不敢的，她一开始就是因为肘了正弦让阿良良木历产生了厌恶感，为了挽回关系她才被安排到了阿良良木历家，这会儿要是再敢动月火那这关系算是彻底完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晋冠丘  
+##### 547#       发表于 2024-7-28 19:45
+
+说起来我最近在回顾副音轨，突然有些好奇，恋物语副音轨里月火对荡漾毕恭毕敬、十分守礼，并且很不想荡漾对自己毕恭毕敬，原因是怕垃圾君看见荡漾这个样子对自己生气
+就目前第一集这个样子还有我之前一些模糊记忆来说，月火真的会有多怕垃圾君发火吗
+
+*****
+
+####  无证madam  
+##### 548#       发表于 2024-7-28 19:46
+
+<img src="https://img.saraba1st.com/forum/202407/28/194558lyllm1lz6rm1lmx1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 19:45 上传
+
+这十字固笑死我了 没头还怎么锁得住啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -6902,3 +6902,28 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 前有太子，后有皇族，什么时候这个拥有美丽资源的宝座能让我们鸡也蹭蹭<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 21365#       发表于 2024-7-28 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65726434&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 21:27</a>
+
+前有太子，后有皇族，什么时候这个拥有美丽资源的宝座能让我们鸡也蹭蹭</blockquote>
+晚上早点睡
+
+*****
+
+####  御景  
+##### 21366#       发表于 2024-7-28 21:35
+
+全部暂且放下，等明年看完动画再说
+
+*****
+
+####  上杉打老虎  
+##### 21367#       发表于 2024-7-28 21:37
+
+从没嗑过灯祥的人，看了这对邦宣传图后嗑上了
+

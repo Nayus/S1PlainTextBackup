@@ -2717,3 +2717,18 @@ p了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">牢0又又又不见啦
 
+
+*****
+
+####  wfhtony  
+##### 5879#       发表于 2024-7-28 17:10
+
+12. Twinkle way // イルミネーションスターズ(*註：通常三缺一狀態，沒播放錄音。演出時伴奏出問題，後半爲聲優清唱。)
+
+*****
+
+####  joshua1990  
+##### 5880#       发表于 2024-7-28 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">节目效果整不错
+

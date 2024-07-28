@@ -6612,3 +6612,78 @@ Ave Mujica和MyGO在有着密切联系的同时，是两个处于相反极端的
 
 这是她自己选的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21341#       发表于 2024-7-28 20:48
+
+wsd你就同意重组crychic吧，看你也挺急的，给个准话让我彻底死心跑路
+
+*****
+
+####  御幸一也  
+##### 21342#       发表于 2024-7-28 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725867&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-7-28 20:44</a>
+
+之前类似Caffe这种活动给灯祥出新谷做两团的代表人物我还挺理解的，毕竟明确的剧情核心，而且鸡团现在就 ...</blockquote>
+滑得有點遠了，我覺得不至於
+
+*****
+
+####  光MIKAN  
+##### 21343#       发表于 2024-7-28 20:51
+
+能赚两个团的钱为什么要倒回去只赚一个团
+
+别的不说，正式对邦海报应该是全员的，而且要配合对邦设计新衣服，我看萝蝶和ppp狗都是，站在这一层我想看鸡蝶对邦，蝶的衣服好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 21344#       发表于 2024-7-28 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对邦都会有的，mujica和蝶，mujica和萝应该会有，甚至mujica和ppp和ras也都能有
+
+真人团都对邦好几轮了吧，本来就是卖票赚钱的好机会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">武士道怎么会放弃任何对邦呢
+
+想看和蝶小提琴或者和萝世界观共振
+
+*****
+
+####  PDQ4  
+##### 21345#       发表于 2024-7-28 20:55
+
+看现在这个图
+
+我怀疑对邦真就是重走动画，不会有新衣服
+
+唯一的期望是对邦前或者后，能有个单独live，换身衣服，鸡这人偶服长身上了，真两年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21346#       发表于 2024-7-28 20:57
+
+蹭一下蝶的服装设计师和画师
+
+*****
+
+####  Aendst  
+##### 21347#       发表于 2024-7-28 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到还原动画我就不困了，隔壁百万和sc也都真的做了动画相关的构成
+
+邦多利沿用一下这种形式也不奇怪
+
+*****
+
+####  skives  
+##### 21348#       发表于 2024-7-28 20:58
+
+至少面具摘了吧
+
+我怀疑鬼图多也是很多画师不擅长画面具导致的
+

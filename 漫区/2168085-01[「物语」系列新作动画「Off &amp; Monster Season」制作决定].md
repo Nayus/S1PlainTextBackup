@@ -1417,3 +1417,43 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  oi99o  
+##### 553#       发表于 2024-7-28 23:47
+
+找到了，怎么是蒙特利尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/28/234748qzcsctc59nz3dn4o.png" referrerpolicy="no-referrer">
+
+<strong>img_3546.png</strong> (332.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 23:47 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  winda  
+##### 554#       发表于 2024-7-28 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+
+：接电话，然后报上大名！
+
+  我一直都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">没事，这些都是月火一个人在家就能搞出来的事情
+
+*****
+
+####  Junakr  
+##### 555#       发表于 2024-7-28 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">伤物语开头就发过火啊（物理，还挺容易着的（不是。
+

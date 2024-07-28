@@ -7069,3 +7069,20 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 Angles跟Water是初祥曲，拿出來合唱我跟wsd拼命了
 
+
+*****
+
+####  NODY  
+##### 21384#       发表于 2024-7-28 23:44
+
+本来就不可能唱Angles跟Water，对邦换歌都是唱气氛热烈的歌的，怎么可能会拿抒情曲去唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21385#       发表于 2024-7-28 23:47
+
+滑坡可以
+但是还有半年动画才播放
+动画播出之前成为鸡灵了就太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

@@ -7044,3 +7044,28 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起春日影，隔壁提到个问题，对邦时候的安可怎么办，鸡团的歌现在除了Angles和water，其他都是给羊姐上强度的
 
+
+*****
+
+####  星天观测  
+##### 21381#       发表于 2024-7-28 23:36
+
+ 本帖最后由 星天观测 于 2024-7-28 23:40 编辑 
+
+那就让杨姐练或者出新歌啊？搞笑呢？
+
+
+*****
+
+####  NODY  
+##### 21382#       发表于 2024-7-28 23:40
+
+我觉得羊姐明年一月能做到把刺团的歌唱下来不断气的话，到时候去唱鸡团的歌还是可以不断气的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yifan8848  
+##### 21383#       发表于 2024-7-28 23:42
+
+Angles跟Water是初祥曲，拿出來合唱我跟wsd拼命了
+

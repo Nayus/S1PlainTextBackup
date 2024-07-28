@@ -1405,3 +1405,15 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 但这种人真发起火来也最吓人。
 
+
+*****
+
+####  oi99o  
+##### 552#       发表于 2024-7-28 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725572&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-28 20:21</a>
+尾石达也说在做新电影了，还说会比伤物语更好</blockquote>
+在哪说的？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

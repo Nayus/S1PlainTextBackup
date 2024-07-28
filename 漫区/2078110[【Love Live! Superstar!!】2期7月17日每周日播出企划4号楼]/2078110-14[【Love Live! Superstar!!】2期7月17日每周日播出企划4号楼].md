@@ -1953,3 +1953,13 @@ sunypa两个人突然碰头了
 
 <img src="https://p.sda1.dev/18/a2aeb85c296a82334dc2ff772c3143c1/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20693#       发表于 2024-7-28 23:34
+
+女曲联动怎么还有应援留言啊……是每个人都有还是只有分到了门将的铃原上？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

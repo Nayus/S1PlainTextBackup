@@ -3152,3 +3152,23 @@ ML那个事故不就没减吗，制作人肯定有不小话语权的</blockquote
 
 放在sc这里，当时在舞台上硬和海量观众无剧本聊，明显两个人都开始有应激反应，还强行要重唱。这件事本来就逆天，如果当作这事故没发生，只能说准备开始要求staff道歉。
 
+
+*****
+
+####  Laie  
+##### 5916#       发表于 2024-7-28 23:35
+
+记得地震那次后来在5ch上提起回顾发的还是b站的链接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wfhtony  
+##### 5917#       发表于 2024-7-28 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728073&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2024-7-28 23:32</a>
+
+这种只要企划主管一句话的事情就能决定剪不剪。如果真把别人小姑娘的努力就当作理所当然的东西，完事了不 ...</blockquote>
+只能说2nd那时候没啥人对删减这件事写信投诉... 
+
+疫情前不搞VOD，要看LIVE只有去现地（看LV）和事后买盘两种方法。现在有了VOD，只要保存了后续不买盘也能随时回顾。要咱来说，疫情确实改变了很多东西（
+

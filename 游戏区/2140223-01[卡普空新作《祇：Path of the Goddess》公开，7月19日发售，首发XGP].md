@@ -1211,3 +1211,32 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 
 这游戏后面几关的条件真是一个赛一个逆天，八面王那个撞树根，用落雷劈死5只怪，弹反打死15只怪。。。
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 181#       发表于 2024-7-28 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65727975&amp;ptid=2140223" target="_blank">Leona_Akari 发表于 2024-7-28 23:25</a>
+
+这游戏后面几关的条件真是一个赛一个逆天，八面王那个撞树根，用落雷劈死5只怪，弹反打死15只怪。。。 ...</blockquote>
+撞树根等着就行 体感血量低了更容易出冲撞
+
+落雷劈五只可以和不转职一起做 放几个飞头蛮过去一次就够了
+
+十五只那个是处决 这关大怪多挺好做的
+
+*****
+
+####  Leona_Akari  
+##### 182#       发表于 2024-7-28 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728087&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-7-28 23:33</a>
+
+撞树根等着就行 体感血量低了更容易出冲撞
+
+落雷劈五只可以和不转职一起做 放几个飞头蛮过去一次就够了
+
+十 ...</blockquote>
+我刚打下来觉得其实树根有血量，带6把火枪就很明显，第一次树根火枪齐射很快就死了，从第二次树根开始八面王才会在树根出来的时候出冲撞
+

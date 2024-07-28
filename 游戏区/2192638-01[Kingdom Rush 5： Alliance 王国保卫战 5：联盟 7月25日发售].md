@@ -585,3 +585,15 @@ ps：精灵法师塔是不是还是那么废啊
 就玩过1代，复仇和这作，评价是出道即巅峰了，英雄一点都不好玩，感觉是为了增加氪金点做的设计。而且这次 ...</blockquote>
 评价最高的应该是2，还是值得玩的
 
+
+*****
+
+####  未来起航  
+##### 59#       发表于 2024-7-28 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65704553&amp;ptid=2192638" target="_blank">tansapple 发表于 2024-7-26 17:56</a>
+直接差评就行，这第五作各方面都做的不行，本来以为第四作已经够低了，没想到第五作还能更低，目前不推荐原 ...</blockquote>
+玩下来这代怎么着都比第四代好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">四代那个稀烂到根本无法集火的塔位、若干纯粹弱智的第三技能以及依旧稀巴烂的平衡，起码这代全都改了。
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

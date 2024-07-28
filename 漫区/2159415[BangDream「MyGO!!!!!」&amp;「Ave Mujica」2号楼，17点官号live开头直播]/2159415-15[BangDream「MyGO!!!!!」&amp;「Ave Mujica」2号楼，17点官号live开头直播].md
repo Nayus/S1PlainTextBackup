@@ -6978,3 +6978,13 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 从小海誓山盟，结果阴差阳错，两人都不愿真心相见，深入交流变成了祥子用来捆住初华的工具，但是能被捆住的前提是对方愿意，最后二人和解找到曾经私定终身的初心<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21373#       发表于 2024-7-28 22:09
+
+我一直觉得mujica就是初祥小时候就约定要组的团啊，尤其是water有主唱+钢琴双人限定的表现后<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+甚至有可能是祥子想组乐队的时候初华刚好发短信说要出道，所以祥子才改变主意另外组个c团的
+

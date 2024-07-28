@@ -6095,3 +6095,153 @@ mujica播出之前还会有正式定档的kv
 
 没播为什么不能宣传<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">go没播也是没有宣传吗
 
+
+*****
+
+####  PDQ4  
+##### 21295#       发表于 2024-7-28 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725048&amp;ptid=2159415" target="_blank">穗波殊 发表于 2024-7-28 19:18</a>
+
+其实c团几个人根本不熟吧。看狗动画素希关系不好，睦头更是玩乐队都不开心，有没有一种可能c团本来就是没有 ...</blockquote>
+c团本来就没有什么所谓的深交，就是因为太短暂，大家都不了解，才能上一层美好的滤镜
+
+睦祥视角不知道，实际上狗动画里灯爽希三个人，看ccc相关都有滤镜在
+
+恕我直言，这种滤镜在我浅薄的阅历里，给逝去之物用比较常见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21296#       发表于 2024-7-28 19:24
+
+看了一眼隔壁也在骂春日影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是觉得7th就狗版春日影了，无论是c团春日影还是十人春日影可能性都不大，但真得担心一下回收灯本子的伏笔让灯祥最后再写一首分手歌，把立希初华给垫了
+
+*****
+
+####  Arrogate  
+##### 21297#       发表于 2024-7-28 19:25
+
+泥漏滑坡滑的更厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21298#       发表于 2024-7-28 19:26
+
+ 本帖最后由 Aendst 于 2024-7-28 19:29 编辑 
+
+决裂其实真的是不能完全否定可能性的，即使从多方面角度考虑推测可能性不高，但也没办法说不可能
+
+因为这个词是访谈里监督的原话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+原文“<strong>断絶</strong>”
+
+*****
+
+####  光MIKAN  
+##### 21299#       发表于 2024-7-28 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725062&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-7-28 19:20</a>
+
+明年对邦大概率能看到海希花篮了好诶
+
+要是能顺便看到coco和梦以互动就好了 ...</blockquote>
+现在的隔空小营业就挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21300#       发表于 2024-7-28 19:27
+
+垫，都可以垫，被贷款大半年接盘侠的主唱为什么不能垫，sb
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1||
+| kivz| + 1||
+
+查看全部评分
+
+*****
+
+####  ytttsuuuba  
+##### 21301#       发表于 2024-7-28 19:27
+
+c团春日影应该不可能（应该..不可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">）让其他人站台下鼓掌吗，而且这样让go团和ave团都很尴尬啊，10人就不好说了，wsd能干得出。
+
+*****
+
+####  御幸一也  
+##### 21302#       发表于 2024-7-28 19:28
+
+讓我們看看監督怎麼說的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202407/28/192806eax4x4j4jj419kqj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (201.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 19:28 上传
+
+*****
+
+####  穗波殊  
+##### 21303#       发表于 2024-7-28 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725095&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-28 19:24</a>
+c团本来就没有什么所谓的深交，就是因为太短暂，大家都不了解，才能上一层美好的滤镜
+
+睦祥视角不知道，实 ...</blockquote>
+一个玩得开心的团是不可能让人说出“从没开心过”这种话的。睦在狗动画的举动也都是在抹销c团的影响。我是觉得一定有睦主视角来撕破这层伪装的。
+
+
+*****
+
+####  PDQ4  
+##### 21304#       发表于 2024-7-28 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65725096&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-28 19:24</a>
+
+看了一眼隔壁也在骂春日影
+
+我是觉得7th就狗版春日影了，无论是c团春日影还是十人春日影可能性都不大，但真 ...</blockquote>
+真把初华也垫了我立马跑，不用玩文字游戏，因为这么垫实际上就是鸡狗垫给ccc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且可以预计到的现在对初华败犬役的迫害会大量增加，我可不受自家主唱被垫了这种委屈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1||
+
+查看全部评分
+
+*****
+
+####  icoywt  
+##### 21305#       发表于 2024-7-28 19:31
+
+看出来一些漏油这半年要憋疯了，但是能怎么办呢，我其实觉得办合同live已经算是走出一步了，谁叫动画明年才播呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ytttsuuuba  
+##### 21306#       发表于 2024-7-28 19:32
+
+c团说实话这几个人都没深交就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">完全没觉得可惜的，如果描写的再深刻点彼此感情再好点可能会理解点吧，现在就感觉是一个认识不到1个月，成员关系也没多好就散了的三次元很正常的事，搞的好像很重大很特别的样子。不理解。难道是春日影演出太好了？
+

@@ -30,3 +30,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">你游一些环境对视野的影响是不是太大了
 
+
+*****
+
+####  IWS2000  
+##### 5093#       发表于 2024-7-28 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728301&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-7-28 23:52</a>
+你游一些环境对视野的影响是不是太大了</blockquote>
+我萌新的时候玩那个会地震的星球，黑夜一片黑，当时是看着地图才能走的，那个刺激至今印象深刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

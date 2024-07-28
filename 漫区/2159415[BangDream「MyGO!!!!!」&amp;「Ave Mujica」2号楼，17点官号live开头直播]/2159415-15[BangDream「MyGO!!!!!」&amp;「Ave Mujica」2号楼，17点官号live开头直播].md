@@ -7086,3 +7086,29 @@ Angles跟Water是初祥曲，拿出來合唱我跟wsd拼命了
 但是还有半年动画才播放
 动画播出之前成为鸡灵了就太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cayon  
+##### 21386#       发表于 2024-7-28 23:57
+
+ 本帖最后由 cayon 于 2024-7-28 23:58 编辑 
+
+谁不怀念c团，谁就没有良心；谁想回到c团，谁就没有脑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 21387#       发表于 2024-7-28 23:59
+
+这ai效果太神经了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+1722182256919.gif
+(561.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-28 23:58 上传
+
+<img src="https://img.saraba1st.com/forum/202407/28/235855fkdjs4qeq3dkq2a4.gif" referrerpolicy="no-referrer">
+

@@ -4972,3 +4972,100 @@ artplayer_01_28_22.png
 
 想跑路了
 
+
+*****
+
+####  PDQ4  
+##### 21177#       发表于 2024-7-28 18:18
+
+实锤平行线be了吧，看来13集那个状态至少动画没有进展<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21178#       发表于 2024-7-28 18:18
+
+要赶上手游周年就需要3.16前动画放送完，然后这个对邦4.26/4.27？
+
+*****
+
+####  daiquan333  
+##### 21179#       发表于 2024-7-28 18:19
+
+都等到这个时候了跑路太亏了
+
+*****
+
+####  NODY  
+##### 21180#       发表于 2024-7-28 18:19
+
+学之前一样12月底提前连播三集就能在周年前播完了
+
+*****
+
+####  skives  
+##### 21181#       发表于 2024-7-28 18:20
+
+1月2日开播，至少也是3/20播完啊。又要三集连播吗
+
+*****
+
+####  rikaren  
+##### 21182#       发表于 2024-7-28 18:21
+
+如果是为了动画效应开对邦保证能坐满人，那这个对邦时间会安排成可能是动画放送完结一个月以上的时间节点吗？
+
+*****
+
+####  NODY  
+##### 21183#       发表于 2024-7-28 18:21
+
+感觉我也可以提前做好立希和两个同班同学彻底断成陌生人的准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  基神的强袭自由  
+##### 21184#       发表于 2024-7-28 18:22
+
+两万拆你死在横滨消费能提升多少GDP
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  赫尔墨斯的权杖  
+##### 21185#       发表于 2024-7-28 18:23
+
+好好好，来点世界观混活就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 21186#       发表于 2024-7-28 18:25
+
+对邦是好事，但转念一想是不是意味着动画要以对邦结尾了😰有烂活的预感
+
+*****
+
+####  skives  
+##### 21187#       发表于 2024-7-28 18:27
+
+先质疑降低预期是好事<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  KokutouMikiya  
+##### 21188#       发表于 2024-7-28 18:28
+
+我觉得比包饺子好
+
+—— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  YESIARE  
+##### 21189#       发表于 2024-7-28 18:28
+
+草 这下真整十人春日影了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

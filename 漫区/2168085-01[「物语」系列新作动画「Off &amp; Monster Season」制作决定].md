@@ -1286,3 +1286,18 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 好看，很有趣，抚子和斧乃木对话的过程中用拼身体来保证画面的趣味度感觉很好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宝儿  
+##### 541#       发表于 2024-7-28 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65719174&amp;ptid=2168085" target="_blank">loka 发表于 2024-7-28 00:16</a>
+
+私闯民宅、造成破坏、留下物证、准备跑路时听到电话，你的选择是？
+
+：接电话，然后报上大名！
+
+  我一直都 ...</blockquote>
+蠢的可爱才是抚子啊
+

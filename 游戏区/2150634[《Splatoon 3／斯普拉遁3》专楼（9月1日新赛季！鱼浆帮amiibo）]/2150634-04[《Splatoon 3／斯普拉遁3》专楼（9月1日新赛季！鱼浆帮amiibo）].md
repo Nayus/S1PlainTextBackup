@@ -1389,3 +1389,11 @@ xb3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 现在小枪打伞不会打了，扔雷也爆不掉伞面。正面打伞时又绕不过去
 
+
+*****
+
+####  秋月孝三  
+##### 4926#       发表于 2024-7-28 10:13
+
+让3代玩家体验一下2代伞的8成功力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

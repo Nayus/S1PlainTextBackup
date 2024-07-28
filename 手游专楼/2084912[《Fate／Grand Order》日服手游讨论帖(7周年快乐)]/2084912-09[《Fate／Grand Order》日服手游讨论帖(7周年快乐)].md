@@ -757,3 +757,15 @@ wada一年没新卡是不是说明fer项目一直摸鱼到去年
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么复杂不如直接用黑杯伯爵哈哈哈  反正也是5加成（
 
+
+*****
+
+####  乾理央  
+##### 13116#       发表于 2024-7-28 15:16
+
+ 本帖最后由 乾理央 于 2024-7-28 15:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">黑杯魔法少女爽刷，周年来个如果出个新绿拐刚好也能把准备到14绊的bba换下去，自己出个bba跟rba，借个奥伯龙就完事
+
+切第二形态还能吃到秩序善+活在当下的加成
+

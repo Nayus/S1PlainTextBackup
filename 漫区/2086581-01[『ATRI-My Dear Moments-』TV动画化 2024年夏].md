@@ -57,3 +57,11 @@ OP好宏大，从太古的宇宙唱到未来的地球以及人类的爱与历史
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然走近科学
 
+
+*****
+
+####  アルメリア  
+##### 109#       发表于 2024-7-29 01:09
+
+女主能量来源是谁 不用吃东西 也没地方充电，太阳能？
+

@@ -7252,3 +7252,25 @@ C团有啥可怀念的，只存在了一个来月，中之人都够呛全彼此�
 
 2024-7-29 01:05 上传
 
+
+*****
+
+####  NODY  
+##### 21397#       发表于 2024-7-29 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728799&amp;ptid=2159415" target="_blank">IWS2000 发表于 2024-7-29 01:02</a>
+
+破防的鸡推楼里见多了，破防的狗推倒不怎么见到。</blockquote>
+隔壁就挺多的，日常骂姨姥复辟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LeonsCat  
+##### 21398#       发表于 2024-7-29 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65726366&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-28 21:21</a>
+
+AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆鬼图画师强太多了，而且感觉服装风格AM也合适 ...</blockquote>
+蝶团怎么整个成寡妇团了……
+

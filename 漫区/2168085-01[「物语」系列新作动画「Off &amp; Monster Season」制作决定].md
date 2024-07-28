@@ -1483,3 +1483,26 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 完全体能刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和小忍俩人舍不得分开吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 除此之外咩咩不会用暴力解决，而影缝大概率直接上去硬打，不过扇是直接把这俩人ban了
 
+
+*****
+
+####  Unlight  
+##### 559#       发表于 2024-7-29 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+忍直接开大就行了，但那样抚子估计也就寄了。
+
+垃圾不想把抚子干掉，也不想让忍恢复，所以一直僵持着。
+
+*****
+
+####  Unlight  
+##### 560#       发表于 2024-7-29 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728581&amp;ptid=2168085" target="_blank">猫兔同笼 发表于 2024-7-29 00:26</a>
+
+完全体的刃下心呗，蛇再克制吸血鬼对规格之外的刃下心来说一点用都没有，抚子的事能拖这么久不就是垃圾和 ...</blockquote>
+还有就是垃圾心软。忍恢复完全体的话，俩人不一定分离，但很有可能是忍直接把抚子吃了…所以一直没动真格。
+

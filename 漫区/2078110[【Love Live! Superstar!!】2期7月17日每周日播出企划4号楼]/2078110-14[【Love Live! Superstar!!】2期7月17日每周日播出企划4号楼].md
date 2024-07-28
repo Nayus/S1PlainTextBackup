@@ -1921,3 +1921,18 @@ emo真是料理组的大腿，太可靠
 
 sunypa两个人突然碰头了
 
+
+*****
+
+####  仟音一心  
+##### 20690#       发表于 2024-7-28 09:56
+
+朗读剧『初等教育ロイヤル』
+4年4号佐藤：坂仓花
+<img src="https://p.sda1.dev/18/f513f09337e57ce6904e08a3e09c8c07/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/13db0ddf5a46e783c99d0880b22d3392/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/97507656e7fcb2b89130492308c7413b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/d6eadc48f2bdd9386ccbb2f2516c07ce/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4efc21fd3eb36e0c1b7f1c382a19a756/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/cdc86741999829dd68f715e7f4b830b9/image.jpg" referrerpolicy="no-referrer">
+

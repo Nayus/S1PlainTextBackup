@@ -4605,3 +4605,31 @@ ykn赢面太强了啊……后续曲子尽快放出来吧！
 
 成片和分镜差的有点远，而且独角兽还愿意聊感觉不是什么大问题，感觉反而说明了闹僵的不是菜花
 
+
+*****
+
+####  NODY  
+##### 21135#       发表于 2024-7-28 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65724021&amp;ptid=2159415" target="_blank">asion617 发表于 2024-7-28 17:28</a>
+
+拿现实里的标准看tv里的猫确实有点弱智啊, 跟学校没关系吧
+
+学习成绩不错的话那应该属于阿斯伯格那类了 ...</blockquote>
+指的是不少同人把花女的四个人写成全员考试不及格，有的甚至写成加减乘除都不会的弱智，还有被很多人当真的中专梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 21136#       发表于 2024-7-28 17:39
+
+花女中专算是新人鉴定器，去年动画入坑的特爱玩
+
+
+*****
+
+####  星天观测  
+##### 21137#       发表于 2024-7-28 17:42
+
+冰川纱夜毕业了导致的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

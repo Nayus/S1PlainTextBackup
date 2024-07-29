@@ -71,3 +71,21 @@
 刚看演出事故的切片怎么就瞳瞳和dmy在台上</blockquote>
 本来当时就说了不是全部参与
 
+
+*****
+
+####  hlazd  
+##### 5928#       发表于 2024-7-29 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730524&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-7-29 10:10</a>
+
+当年本家9th的BD就是因为减太多，连azumin初次现场Kosmos，Cosmos都被剪了，被狂骂，后来10th的宣传里反复 ...</blockquote>
+9th演出之外的部分剪得确实挺多的，但是kosmos没剪啊。。。
+
+*****
+
+####  はらみー  
+##### 5929#       发表于 2024-7-29 11:31
+
+9th那个不叫剪，是司马烂铁说了就挑着收录
+

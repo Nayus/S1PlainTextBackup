@@ -1609,3 +1609,16 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 这么看无论贝木是否插手抚子的事，专家们都是赢，毕竟就算垃圾君真死了下面也有人照应。那伊豆湖给贝木资 ...</blockquote>
 卧烟不在乎谁当神，她在乎的是小镇必须有一个神，具体谁当不太重要，她本来想让忍去当但是阿良良木不同意，于是在扇的操作下变成了抚子当这个神，这个时候其实也没什么问题，但是神抚子的目标是做掉阿良良木和他的后宫团，其他人无所谓，阿良良木要是死了会放出完全体的忍然后走倾物语世界线，那这就有必要干涉一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 570#       发表于 2024-7-29 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735665&amp;ptid=2168085" target="_blank">糖皮质激素 发表于 2024-7-29 17:55</a>
+
+卧烟不在乎谁当神，她在乎的是小镇必须有一个神，具体谁当不太重要，她本来想让忍去当但是阿良良木不同意 ...</blockquote>
+神抚子时期垃圾君和伊豆湖、正弦已经认识了，有正弦打照应复活垃圾君应该不会变成倾物语的世界线，不然历物语也不会冒险把垃圾君切块
+
+我比较同意楼上的观点，伊豆湖是打算让贝木治退神抚子引出小扇
+

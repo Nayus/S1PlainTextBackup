@@ -7649,3 +7649,15 @@ fes、巡、乃至综艺和其他演艺活动之类的确实才是大头
 
 他這麼雷初祥第二季你看他破防就是了，肯定很好玩 嘻嘻
 
+
+*****
+
+####  PDQ4  
+##### 21437#       发表于 2024-7-29 14:12
+
+对邦不太在乎了，上座率是wsd自己需要考虑的问题
+我更关心鸡的单独live在哪里，新衣服，以及把鸡动画的流量稳固住<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+乐观看就是2单，2/3月卖的话可以抽5-6月的单独，也可能赶13th？
+
+不过单纯一个鸡狗对邦wsd就敢开这个场子，那13th是不是又要上西武了，希望别再炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

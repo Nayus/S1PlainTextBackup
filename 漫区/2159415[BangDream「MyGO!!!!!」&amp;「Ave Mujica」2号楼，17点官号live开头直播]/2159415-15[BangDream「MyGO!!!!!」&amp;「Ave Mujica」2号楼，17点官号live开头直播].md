@@ -8005,3 +8005,68 @@ wsd给主要角色的亲属团找自家cv客串也不是什么稀奇事吧，李
 
 初华独白我还是倾向于那个sumimi原本有三个人被公司踢了一个导致初华认识演艺圈黑暗的假说，主要bd还特地给那个背景音做了字幕
 
+
+*****
+
+####  Aendst  
+##### 21474#       发表于 2024-7-29 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734358&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-29 16:03</a>
+
+初华独白我还是倾向于那个sumimi原本有三个人被公司踢了一个导致初华认识演艺圈黑暗的假说，主要bd还特地给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">那个不是听错了吗，bd做的字幕有详细名字吗？
+
+*****
+
+####  ytttsuuuba  
+##### 21475#       发表于 2024-7-29 16:08
+
+灯不是还有首写给祥子的歌词吗，比起春日影，动画里唱这首可能性大多了。可能是彻底给c团画上句号。
+
+*****
+
+####  星天观测  
+##### 21476#       发表于 2024-7-29 16:08
+
+原本有三个人那就随便开个假药呗，sumimi是由三个人姓氏的第一个音组成的，sumida，misumi，剩下一个说不定是什么minami或者miyagi之类的（miyagi royta）
+
+*****
+
+####  玖羽  
+##### 21477#       发表于 2024-7-29 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734152&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-29 15:49</a>
+
+初华在sumimi应该是有点问题的，动画里被问到工作时下意识后撤步不太像特别顺心
+
+会不会解散会不会继续兼任 ...</blockquote>
+一开始初华等到mana走了才感叹自己脸色真差就已经说明100%有问题了
+
+2nd小剧场说初华的压力是读空气太累
+
+*****
+
+####  Aendst  
+##### 21478#       发表于 2024-7-29 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734432&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-7-29 16:08</a>
+
+灯不是还有首写给祥子的歌词吗，比起春日影，动画里唱这首可能性大多了。可能是彻底给c团画上句号。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了纪念crychic起到了垫给mygo的重要作用，我们准备举办一个葬礼
+
+其实不太懂为什么会对葬礼这么开心的，原来是喜丧吗
+
+*****
+
+####  Aendst  
+##### 21479#       发表于 2024-7-29 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734476&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-7-29 16:10</a>
+
+一开始初华等到mana走了才感叹自己脸色真差就已经说明100%有问题了
+
+2nd小剧场说初华的压力是读空气太累 ...</blockquote>
+是这样，初华在sumimi有一种带上假面工作的观感，而且眼下似乎也依旧打算一个人压抑这部分问题
+
+我还很在意最后那句“我是……空气”但是怎么想都想不通那里到底是什么意思
+

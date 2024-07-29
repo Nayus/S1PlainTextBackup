@@ -1525,3 +1525,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 斧乃木这个近墨者黑的特质，没和羽川混到一起去算是不幸中的万幸了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oshinoshinobu  
+##### 563#       发表于 2024-7-29 11:11
+
+这两集感觉节奏有点单调了，缺了点画面上或者对话上的变奏
+

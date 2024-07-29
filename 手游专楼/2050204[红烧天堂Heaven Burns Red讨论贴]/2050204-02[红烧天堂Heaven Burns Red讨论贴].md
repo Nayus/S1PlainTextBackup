@@ -1054,3 +1054,14 @@ ek1xobuftbcgwln7
 
 2024-7-28 17:25 上传
 
+
+*****
+
+####  ardito  
+##### 1600#       发表于 2024-7-29 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65715195&amp;ptid=2050204" target="_blank">chivalry 发表于 2024-7-27 17:16</a>
+
+麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗 ...</blockquote>
+还是能用到西装玉上线的，够保值了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

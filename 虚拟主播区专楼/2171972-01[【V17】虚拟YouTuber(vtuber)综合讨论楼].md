@@ -1199,3 +1199,11 @@ cpt带qpi，tsuna的队伍先不谈，eden和noah带水师心白居然还是胜�
 
 新改动最大的问题还是不适合三年缚，但宣传用的又是三年缚
 
+
+*****
+
+####  渡鸦骑士  
+##### 537#       发表于 2024-7-29 15:47
+
+啊，望要重新套皮吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -7498,3 +7498,23 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 这可能也是一个背景团的生命力那么强的原因之一吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 21422#       发表于 2024-7-29 12:02
+
+ 本帖最后由 Aendst 于 2024-7-29 12:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说mygo动画作为mygo的广告的角度来说确实有失败的部分，不知道从小动画和真人活动一开始就入坑的人什么感觉
+
+不过日本人会在早期入坑的大多也都是武士道企划受众，可能没什么意见
+
+有话题度和与邦多利系列的区分（参见访谈）确实带来了一部分可见的收益
+
+根本P不知道在想什么，但或许真的想做一些脚本上很不邦多利的东西
+
+顺便一提很早楼里讨论过mujica主流出道这个问题
+
+目前状态比较相近的应该只有PP，PP有参与什么对邦吗（包括动画和手游）
+

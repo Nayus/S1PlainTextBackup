@@ -457,3 +457,11 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 不过这几年是流行成为小说家系的web文挖宝，转生史莱姆还是挺早一批的
 
+
+*****
+
+####  klzxs  
+##### 18055#       发表于 2024-7-30 01:10
+
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">不知道该说是重量还是无关紧要的情报
+

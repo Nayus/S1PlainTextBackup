@@ -422,3 +422,25 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 感觉新P好像很喜欢Vtuber和成为小说家系的作品啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  adretyu67.  
+##### 18052#       发表于 2024-7-29 09:47
+
+因为讨厌cy所以去踩大咪咪系的坑？
+
+大咪咪的玩意可真比cy坑多了，什么gbf和pcr也提供大咪咪账号登陆？
+
+*****
+
+####  adretyu67.  
+##### 18053#       发表于 2024-7-29 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729771&amp;ptid=1158205" target="_blank">暮星弥空 发表于 2024-7-29 08:52</a>
+
+感觉新P好像很喜欢Vtuber和成为小说家系的作品啊</blockquote>
+管人这事我不太清楚。
+
+不过这几年是流行成为小说家系的web文挖宝，转生史莱姆还是挺早一批的
+

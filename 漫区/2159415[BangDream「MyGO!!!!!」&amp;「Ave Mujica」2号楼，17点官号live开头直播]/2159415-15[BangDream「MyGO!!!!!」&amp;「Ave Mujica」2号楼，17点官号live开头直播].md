@@ -7371,3 +7371,12 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 以太是不是差不多该出了
 
+
+*****
+
+####  PDQ4  
+##### 21407#       发表于 2024-7-29 09:51
+
+新曲月中吧，月初还有个土的MV
+最难熬的时候马上要来喽<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

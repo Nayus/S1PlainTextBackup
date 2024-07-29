@@ -8272,3 +8272,11 @@ ave mujica世界观设定：丰川祥子<img src="https://static.saraba1st.com/i
 
 但按独角兽的访谈，她代入自己被背叛经历的对象是灯，喜欢的类型是把女孩从阴影里带出去的爱音和祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cherryjia12  
+##### 21498#       发表于 2024-7-29 19:33
+
+官号这新头像换的还算有点脑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那b黑底图每次都要找半天
+

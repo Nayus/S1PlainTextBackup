@@ -93,3 +93,11 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729717&amp;ptid=1564883" target="_blank">蚊仔蚊仔蚊仔 发表于 2024-7-29 08:45</a></blockquote>
 然后女儿辞职去考律师了
 
+
+*****
+
+####  astrayl  
+##### 773#       发表于 2024-7-29 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">果不其然的烂了，典型的噱头网文套路，越写越暴露水平
+

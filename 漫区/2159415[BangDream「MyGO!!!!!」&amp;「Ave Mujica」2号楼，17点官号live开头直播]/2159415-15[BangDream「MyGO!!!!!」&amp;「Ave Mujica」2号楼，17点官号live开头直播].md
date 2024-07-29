@@ -7395,3 +7395,28 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 手游切到go图鉴放的那首歌动画里有唱过吗
 
+
+*****
+
+####  星天观测  
+##### 21410#       发表于 2024-7-29 10:10
+
+我是看过对爱灯感到悲观的人，但是似乎是因为手游里没什么对爱灯的塑造，来自其他cp的影响好像没看到过
+
+*****
+
+####  NODY  
+##### 21411#       发表于 2024-7-29 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730365&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-29 09:57</a>
+
+提到爱灯，说来有趣，提到垫了要么是立希要么是初华，好像没看到爱灯推有意见的，有点佩服这种自信，也可能 ...</blockquote>
+爱灯推骂对邦搞c团春日影的挺多的，只是爱音的情况顶多和算猫一桌被当局外人，立希和初华作为作词作曲要更尴尬一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CyDiablo  
+##### 21412#       发表于 2024-7-29 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唱个歌开个合同live而已，真没你楼想的有这么多人要死要活的
+

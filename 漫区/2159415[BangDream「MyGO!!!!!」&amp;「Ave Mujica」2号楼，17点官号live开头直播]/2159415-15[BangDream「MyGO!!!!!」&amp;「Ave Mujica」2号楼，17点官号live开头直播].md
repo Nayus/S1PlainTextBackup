@@ -8147,3 +8147,64 @@ sumimi那个，听的出来是たまこ、ミオ、ういか，最后一个是�
 
 那个广播就不是sumimi啊，不是有个什么分析说那是拉初华在奶新人还是什么的吗
 
+
+*****
+
+####  cherryjia12  
+##### 21487#       发表于 2024-7-29 17:09
+
+难道不是介绍here the world这首歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/29/170837oc6ceer223ms5fs6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 17:08 上传
+
+
+*****
+
+####  星天观测  
+##### 21488#       发表于 2024-7-29 17:12
+
+你不如去搜一下那个万字解析看看
+
+*****
+
+####  玖羽  
+##### 21489#       发表于 2024-7-29 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735101&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-7-29 16:58</a>
+
+sumimi那个，听的出来是たまこ、ミオ、ういか，最后一个是初华没啥疑问，中间那个mio疑似是小灯给虫子的那 ...</blockquote>
+不是说Mio是这个吗
+
+<img src="https://img.saraba1st.com/forum/202407/29/171350hdoqffpbo4rlyywy.jpg" referrerpolicy="no-referrer">
+
+<strong>mio-bang-dream-its-mygo-4.38.jpg</strong> (11.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 17:13 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/171352ovkss97k9kfpafff.jpg" referrerpolicy="no-referrer">
+
+<strong>4132.jpg</strong> (30.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 17:13 上传
+
+*****
+
+####  Aendst  
+##### 21490#       发表于 2024-7-29 17:14
+
+这个泥漏早就讨论过了，可以翻一下一号楼，这里基本可以确定与sumimi无关
+
+只有最后一个名字确实大部分人都会听成ういか，但是也不一定真的是这个音，更不一定是指初华
+
+如果有BD字幕截图是最好的，直接看原文本是什么
+

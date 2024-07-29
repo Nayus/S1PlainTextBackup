@@ -8420,3 +8420,43 @@ b站搜lovedream，然后去nyaa看看
 
 bml的时候李子两天live完之后隔周又有美频的live，可能没好好玩也有赶着回去排练的原因吧
 
+
+*****
+
+####  66367749  
+##### 21512#       发表于 2024-7-29 23:20
+
+才发现b站官号换了新头像，几个意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 21513#       发表于 2024-7-29 23:24
+
+b站运营不是老炒作狗了吗，简中特供合并账号，特供头像什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IWS2000  
+##### 21514#       发表于 2024-7-29 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65738546&amp;ptid=2159415" target="_blank">66367749 发表于 2024-7-29 23:20</a>
+才发现b站官号换了新头像，几个意思啊</blockquote>
+这个号是卖狗_母鸡卡，换上鸡狗主角当头像也没啥问题
+
+*****
+
+####  daiquan333  
+##### 21515#       发表于 2024-7-29 23:27
+
+没啥意思……别太认真
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">，搁这遛粉
+
+*****
+
+####  御幸一也  
+##### 21516#       发表于 2024-7-29 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">官方推特換了再來叫
+

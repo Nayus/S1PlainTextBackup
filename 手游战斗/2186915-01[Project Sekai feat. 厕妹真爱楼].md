@@ -14607,3 +14607,13 @@ bg姐是冰柜姐的简称，指被自己家亲亲男宝分shi然后塞进冰柜
 
 2024-7-29 21:46 上传
 
+
+*****
+
+####  GAdoru  
+##### 1261#       发表于 2024-7-29 21:55
+
+我马呢我马呢我马呢在跟enamzk3p吗
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

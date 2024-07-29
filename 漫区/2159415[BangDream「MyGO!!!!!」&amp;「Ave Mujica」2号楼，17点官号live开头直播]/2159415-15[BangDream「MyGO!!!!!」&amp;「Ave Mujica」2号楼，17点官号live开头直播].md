@@ -8390,3 +8390,14 @@ b站搜lovedream，然后去nyaa看看
 
 感觉一般都是只在活动场地的附近活动的，毕竟也不方便跑太远，RAS那次宛平剧院在徐汇，就去了豫园，BML四叶草在虹桥，基本就只在西边活动
 
+
+*****
+
+####  LeonsCat  
+##### 21509#       发表于 2024-7-29 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65733489&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-29 14:43</a>
+
+那估计不会，pp毕竟是点明的偶像乐队的，偶像营业应该不会适用于鸡</blockquote>
+你日重金属偶像是出了名的，至少宝钢之后是国际上都出了名的~
+

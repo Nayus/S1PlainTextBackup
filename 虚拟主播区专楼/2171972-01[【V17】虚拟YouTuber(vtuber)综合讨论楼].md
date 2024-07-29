@@ -1207,3 +1207,11 @@ cpt带qpi，tsuna的队伍先不谈，eden和noah带水师心白居然还是胜�
 
 啊，望要重新套皮吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 538#       发表于 2024-7-29 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">叶到底对这次虹甲有多看重啊，今天看油土鳖开虹甲第二窗进去一看还是捏人，他twitch试跑学校都快跑了10来次了吧……
+

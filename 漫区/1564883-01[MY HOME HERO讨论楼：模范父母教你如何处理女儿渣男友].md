@@ -63,3 +63,16 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  X(iaolw)S  
+##### 770#       发表于 2024-7-29 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729590&amp;ptid=1564883" target="_blank">黑上シグマ 发表于 2024-7-29 08:25</a>
+
+提了句量刑酌情认可的话大概能判个无期
+
+----发送自 STAGE1 App for Android.</blockquote>
+那是电视台说的，实际怎么判作者也不敢写的啦，就最后借儿子的嘴表明下立场
+

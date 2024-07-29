@@ -7348,3 +7348,11 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  NODY  
+##### 21404#       发表于 2024-7-29 08:35
+
+像青木和鼓子这样主动去营业的羊姐还是会接一下的，对方不主动就没办法了，于是这两天能看到李世林和羊姐营业了一圈唯独绕过对方的神奇场面，作为官推还是挺奇葩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

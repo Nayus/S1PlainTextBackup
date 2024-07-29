@@ -7518,3 +7518,42 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 目前状态比较相近的应该只有PP，PP有参与什么对邦吗（包括动画和手游）
 
+
+*****
+
+####  Aendst  
+##### 21423#       发表于 2024-7-29 12:07
+
+ 本帖最后由 Aendst 于 2024-7-29 12:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730675&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-29 10:21</a>
+
+真没人要死要活么，昨晚泥楼给初华说两句已经被阴湿人骂不是祥孝楼是初孝楼了，谁在要死要活的我不好说 ...</blockquote>
+我直白我来说，灯祥厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者也有可能是爽祥厨
+
+*****
+
+####  suv2012  
+##### 21424#       发表于 2024-7-29 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730580&amp;ptid=2159415" target="_blank">CyDiablo 发表于 2024-7-29 10:14</a>
+
+唱个歌开个合同live而已，真没你楼想的有这么多人要死要活的</blockquote>
+动画放完了有曝光不是好事吗也不知道哪来这么大酸劲
+
+饭还没吃上先嫌馊是这样的
+
+
+*****
+
+####  Aendst  
+##### 21425#       发表于 2024-7-29 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65732025&amp;ptid=2159415" target="_blank">suv2012 发表于 2024-7-29 12:09</a>
+
+动画放完了有曝光不是好事吗也不知道哪来这么大酸劲
+
+饭还没吃上先嫌馊是这样的 ...</blockquote>
+确实，一个必然会有的合同live而已
+
+怎么那么多人搞得跟自己中举了一样
+

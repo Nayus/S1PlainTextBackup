@@ -1630,3 +1630,11 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 看的很爽，就是西尾老贼太tm能续了，希望他真的想好个结局吧，别真写到挂了都没完结就难受了
 
+
+*****
+
+####  Junetheriver  
+##### 572#       发表于 2024-7-29 20:00
+
+ED拿着薙刀的月火酱好帅啊<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">，后面剧情有说法吗没看过原作
+

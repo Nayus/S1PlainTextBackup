@@ -1551,3 +1551,18 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 这两集感觉节奏有点单调了，缺了点画面上或者对话上的变奏</blockquote>
 这两集分镜好像吉泽翠都没在，她可能重点在最后两集里
 
+
+*****
+
+####  sheshiro  
+##### 566#       发表于 2024-7-29 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728502&amp;ptid=2168085" target="_blank">天王寺凯伊姆 发表于 2024-7-29 00:15</a>
+
+神抚子强是强，反正蛇毒能克小忍，一个偷袭就把斧乃木分尸了，那其他人呢？当初恋物语是因为荡漾先把贝木叫 ...</blockquote>
+因为在下棋嘛
+
+抚子是纸面上战斗力最高的天花板，倾物语里面三专家都打不了完整版的刃下心，让小忍变成这个状态抚子必死，然后小忍变成新的神，这就算是黑方赢了
+
+所以只要牺牲一个棋子就行了
+

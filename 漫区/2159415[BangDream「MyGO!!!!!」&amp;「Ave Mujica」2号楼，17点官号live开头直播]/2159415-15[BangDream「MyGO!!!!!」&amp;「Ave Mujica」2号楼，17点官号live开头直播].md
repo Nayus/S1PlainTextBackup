@@ -7862,3 +7862,46 @@ mana可以染个发换个发型
 
 wsd给主要角色的亲属团找自家cv客串也不是什么稀奇事吧，李美丽姐姐还是三森这种唱功顶级的呢，倒不一定就是新团
 
+
+*****
+
+####  光MIKAN  
+##### 21459#       发表于 2024-7-29 15:38
+
+甜甜圈就是sumimi的主唱，小曲有人分过词，是她唱的更多，如果初华小剧场说的是sumimi的话，那么虽然名义上是二人组合但事务所主捧的是甜甜圈
+
+*****
+
+####  Zendless  
+##### 21460#       发表于 2024-7-29 15:40
+
+我从“忘记一切”就开始等的10人《春日影》有没有机会
+
+*****
+
+####  ddy2811  
+##### 21461#       发表于 2024-7-29 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734036&amp;ptid=2159415" target="_blank">Zendless 发表于 2024-7-29 15:40</a>
+
+我从“忘记一切”就开始等的10人《春日影》有没有机会</blockquote>
+很多人看了对邦消息破防就是因为太有机会了，是wsd会整的活吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狂热飞鸟  
+##### 21462#       发表于 2024-7-29 15:44
+
+其实初华兼任两边也行，但按目前的分折她在sumimi内定位不像能长久维持下去的样子……
+
+*****
+
+####  Zendless  
+##### 21463#       发表于 2024-7-29 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734051&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-7-29 15:41</a>
+
+很多人看了对邦消息破防就是因为太有机会了，是wsd会整的活吧</blockquote>
+那给大家安排一个开场OP上C团春日影，结尾Encore来个10人大合奏，满足。
+

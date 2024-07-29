@@ -7420,3 +7420,68 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唱个歌开个合同live而已，真没你楼想的有这么多人要死要活的
 
+
+*****
+
+####  PDQ4  
+##### 21413#       发表于 2024-7-29 10:18
+
+什么活，不是只有死吗
+鸡团这大半年不都是在被wsd往死里埋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21414#       发表于 2024-7-29 10:19
+
+没有人维护 
+滑坡是一件自然而然的事情
+时间越长 滑坡程度越严重
+
+*****
+
+####  ytttsuuuba  
+##### 21415#       发表于 2024-7-29 10:19
+
+对邦早有预料，肯定会有的。动画里别来就行，动画整对邦真的容易联想到RAS，有点ptsd了。<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21416#       发表于 2024-7-29 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730365&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-7-29 09:57</a>
+
+提到爱灯，说来有趣，提到垫了要么是立希要么是初华，好像没看到爱灯推有意见的，有点佩服这种自信，也可能 ...</blockquote>
+可能都去在意美帝去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21417#       发表于 2024-7-29 10:21
+
+真没人要死要活么，昨晚泥楼给初华说两句已经被阴湿人骂不是祥孝楼是初孝楼了，谁在要死要活的我不好说
+
+*****
+
+####  kivz  
+##### 21418#       发表于 2024-7-29 10:22
+
+惊世智慧操作那么多怎么维护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+祈祷它接下来不整活就阿弥陀佛了
+
+*****
+
+####  PDQ4  
+##### 21419#       发表于 2024-7-29 10:23
+
+不整活那还是wsd吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 21420#       发表于 2024-7-29 10:24
+
+对邦真不会有吧，楚平方找ykn对邦的时候萝还只是一个有实力的普通高中生乐队呢
+

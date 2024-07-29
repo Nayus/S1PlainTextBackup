@@ -8280,3 +8280,14 @@ ave mujica世界观设定：丰川祥子<img src="https://static.saraba1st.com/i
 
 官号这新头像换的还算有点脑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那b黑底图每次都要找半天
 
+
+*****
+
+####  紫吹兰  
+##### 21499#         楼主| 发表于 2024-7-29 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65736501&amp;ptid=2159415" target="_blank">cherryjia12 发表于 2024-7-29 19:33</a>
+
+官号这新头像换的还算有点脑子那b黑底图每次都要找半天</blockquote>
+可算找到一个不用来回换的头像了，这个应该能一直用到明年4月，这图粗看之下和漏油头像这个咲和还有点像
+

@@ -1963,3 +1963,37 @@ sunypa两个人突然碰头了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  仟音一心  
+##### 20694#       发表于 2024-7-28 19:37
+
+彩排也要好好吃饭🍙🍠 ​​​
+<img src="https://p.sda1.dev/18/3da1c838d84b1edcf17f1d457edae0b2/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 20695#       发表于 2024-7-28 19:56
+
+<img src="https://p.sda1.dev/18/a2aeb85c296a82334dc2ff772c3143c1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 20696#       发表于 2024-7-28 23:34
+
+女曲联动怎么还有应援留言啊……是每个人都有还是只有分到了门将的铃原上？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  奥柏伦亲王  
+##### 20697#       发表于 2024-7-29 09:28
+
+星团还是外景最好看
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

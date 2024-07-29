@@ -855,3 +855,13 @@ wada一年没新卡是不是说明fer项目一直摸鱼到去年
 
 蹄铁700，胆结石10<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 13127#       发表于 2024-7-29 22:31
+
+沒暗狐，炒了仇小黑、術狗、殺兩儀和奧伯隆，衣服是單體攻+40%寶+20那件
+
+第3場還要些少運氣，
+

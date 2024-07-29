@@ -2013,3 +2013,14 @@ sunypa两个人突然碰头了
 
 怎么微博那么多人帮那个营销号转啊<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">，没节奏硬带节奏是吧。那个图水印还是紫吧的
 
+
+*****
+
+####  ruffian  
+##### 20700#       发表于 2024-7-29 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735211&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-07-29 17:10:21</a>
+虽然很糊，但是也能很明显的看出来的大眼萌…有种上世纪的美</blockquote>背景是香港还是唐人街？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -108,3 +108,17 @@
 
 灰这新曲像是去云南吃了一星期菌子做出来的，出神要素拉满了。还得是灰。
 
+
+*****
+
+####  wfhtony  
+##### 5932#       发表于 2024-7-29 19:12
+
+ 本帖最后由 wfhtony 于 2024-7-29 19:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65727577&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-7-28 22:55</a>
+
+​官方说Day2的最速版VOD不公开了，明天直接上正式版VOD，且正式版VOD是没有留言回看的。
+
+换句话说，今天T ...</blockquote>
+该部分内容在正式版VOD中确认已被全部删减。
+

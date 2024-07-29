@@ -7636,3 +7636,16 @@ fes、巡、乃至综艺和其他演艺活动之类的确实才是大头
 
 这倒是没什么大问题，你邦最容易让不同乐队跨领域对邦的设定就是随便设个比赛或者音乐节，比如剧场版蝶一个刚出道的学生乐队突然就能和拿了大赛前三的ppp还有ras同台就是因为被音乐节邀请了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 21436#       发表于 2024-7-29 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730675&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-29 10:21</a>
+
+真没人要死要活么，昨晚泥楼给初华说两句已经被阴湿人骂不是祥孝楼是初孝楼了，谁在要死要活的我不好说 ...</blockquote>
+總感覺好像知道你在說誰，他也不是第一次罵初祥了，畢竟是個C團遺老初祥黑，尊重 祝福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他這麼雷初祥第二季你看他破防就是了，肯定很好玩 嘻嘻
+

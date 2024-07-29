@@ -1638,3 +1638,13 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 ED拿着薙刀的月火酱好帅啊<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">，后面剧情有说法吗没看过原作
 
+
+*****
+
+####  马甲君  
+##### 573#       发表于 2024-7-29 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65736774&amp;ptid=2168085" target="_blank">Junetheriver 发表于 2024-7-29 20:00</a>
+ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</blockquote>
+不就是第一话的内容吗
+

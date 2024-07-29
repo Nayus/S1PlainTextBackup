@@ -8264,3 +8264,11 @@ sumimi和mujica的事务所有提到具体是哪家吗，不会是和pp一家吧
 某一集只剩下
 ave mujica世界观设定：丰川祥子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21497#       发表于 2024-7-29 19:18
+
+但按独角兽的访谈，她代入自己被背叛经历的对象是灯，喜欢的类型是把女孩从阴影里带出去的爱音和祥子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

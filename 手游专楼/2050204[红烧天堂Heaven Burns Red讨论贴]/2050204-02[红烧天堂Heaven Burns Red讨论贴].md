@@ -1065,3 +1065,13 @@ ek1xobuftbcgwln7
 麻了，当初日服开坑就有旗袍圣华+孔明的豪华配置，玩起来非常舒服，这次想自己抽一个沉的我快弃坑了，这旗 ...</blockquote>
 还是能用到西装玉上线的，够保值了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 1601#       发表于 2024-7-29 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65731377&amp;ptid=2050204" target="_blank">ardito 发表于 2024-7-29 11:14</a>
+还是能用到西装玉上线的，够保值了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">buff 池除了圣华都出来了，我真的日了狗
+

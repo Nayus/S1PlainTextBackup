@@ -7762,3 +7762,56 @@ mujica虽然也不能说是完全的金属乐队，但是综艺节目之类的�
 
 我认为是值得去花费相当程度的笔墨描写的
 
+
+*****
+
+####  PDQ4  
+##### 21449#       发表于 2024-7-29 15:16
+
+事务所偏向sumimi的话，就是很经典的可以导向初华自身的冲突
+
+2nd小剧场和动画都基本明示了sumimi不是初华想待下去的地方，或者至少有不满，那对应的鸡对初华来讲到底是什么存在，如果是故事早期，可能是不敢展露真心的压力，放在故事后期就可能是未熟的容身之所，无论哪种展开对于推进鸡内部形式和初华自身故事都很便利<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 21450#       发表于 2024-7-29 15:20
+
+mana：请你 不要太勉强初华
+
+skk：但是主动要和我一起的人是初华
+
+mana：我知道 但我希望你不要给初华更大的负担了
+
+skk：初华是属于我的
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 21451#       发表于 2024-7-29 15:20
+
+ 本帖最后由 NODY 于 2024-7-29 15:22 编辑 
+
+初华直接退了不喜欢的sumimi专心mujica，然后甜甜圈含泪祝福初华追梦，一举拿下明年的挺王？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这样甜甜圈怪惨的，热门组合被迫解散自己要重新打拼
+
+*****
+
+####  星天观测  
+##### 21452#       发表于 2024-7-29 15:24
+
+解散sumimi我都想不到要怎么圆，怎么解释都是臭棋，我反正不支持这么写
+
+*****
+
+####  skives  
+##### 21453#       发表于 2024-7-29 15:25
+
+[https://www.bilibili.com/video/B ... 8f0e814ab1f9f27ba60](https://www.bilibili.com/video/BV1dt421u7H4/?spm_id_from=333.337.search-card.all.click&amp;vd_source=a2b20922f1fcb8f0e814ab1f9f27ba60)
+[https://www.bilibili.com/video/B ... arch-card.all.click](https://www.bilibili.com/video/BV1t142187JJ/?spm_id_from=333.337.search-card.all.click)
+
+反田这水平不当邦邦下一个团的主唱可惜了
+

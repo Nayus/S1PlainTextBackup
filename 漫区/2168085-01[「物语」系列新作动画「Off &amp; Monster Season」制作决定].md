@@ -1541,3 +1541,13 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 还是好足的味道，不记得原作内容看的更加开心了。
 
+
+*****
+
+####  Tachikoma88  
+##### 565#       发表于 2024-7-29 15:17
+
+<blockquote>oshinoshinobu 发表于 2024-7-29 11:11
+这两集感觉节奏有点单调了，缺了点画面上或者对话上的变奏</blockquote>
+这两集分镜好像吉泽翠都没在，她可能重点在最后两集里
+

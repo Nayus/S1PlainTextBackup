@@ -7557,3 +7557,18 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 怎么那么多人搞得跟自己中举了一样
 
+
+*****
+
+####  NODY  
+##### 21426#       发表于 2024-7-29 12:22
+
+动画的对邦剧情都是给真人团准备的，从手游三团第三季直接变路人还被用各种理由ban出大赛就能看出来了，拿手游团剧情分析真人团没什么用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21427#       发表于 2024-7-29 12:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以动画里的真人团只有mujica是已主流出道的状态吗
+

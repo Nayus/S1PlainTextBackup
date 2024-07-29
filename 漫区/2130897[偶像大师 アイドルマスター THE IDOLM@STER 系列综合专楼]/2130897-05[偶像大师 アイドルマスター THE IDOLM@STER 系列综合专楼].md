@@ -89,3 +89,14 @@
 
 9th那个不叫剪，是司马烂铁说了就挑着收录
 
+
+*****
+
+####  achilleus  
+##### 5930#       发表于 2024-7-29 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65731532&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-7-29 11:27</a>
+
+9th演出之外的部分剪得确实挺多的，但是kosmos没剪啊。。。</blockquote>
+那个是巡演最终场的，已经不是“第一次”了，这个剪辑有个愚蠢的逻辑，就是最终2场里有的歌，前面场次里的一律剪掉，所以前面的“第一次Kosmos”被剪掉了，从那以后，CG和ML的巡演都不再剪了（AS之后没巡演过）
+

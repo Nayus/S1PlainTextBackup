@@ -7336,3 +7336,15 @@ AM这边什么时候能蹭到M的服装设计师和画师啊，比现在这堆�
 
 下一秒<img src="https://p.sda1.dev/18/c8cf7e8cc71d42bf81ad0f5718097b45/CMP_20240729081144125.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 21403#       发表于 2024-7-29 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729222&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-29 04:19</a>
+https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
+第二张图，初华看着跟剑之圣女似的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

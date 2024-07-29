@@ -8479,3 +8479,18 @@ b站运营不是老炒作狗了吗，简中特供合并账号，特供头像什�
 官方推特換了再來叫</blockquote>
 这不就又回到经典问题，什么时候分家，毕竟推特是分家的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21519#       发表于 2024-7-30 00:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换头像这事隔壁已经吵过了，只能说就这幽默运营的样子，这头像能活几个月呢？估计最晚到鸡开播又要换头像了
+
+*****
+
+####  Alicest  
+##### 21520#       发表于 2024-7-30 00:31
+
+mmr的思路是运营反应及时，mmr就喜欢这套
+

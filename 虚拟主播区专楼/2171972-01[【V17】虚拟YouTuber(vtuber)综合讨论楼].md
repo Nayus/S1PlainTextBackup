@@ -1215,3 +1215,16 @@ cpt带qpi，tsuna的队伍先不谈，eden和noah带水师心白居然还是胜�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">叶到底对这次虹甲有多看重啊，今天看油土鳖开虹甲第二窗进去一看还是捏人，他twitch试跑学校都快跑了10来次了吧……
 
+
+*****
+
+####  渡鸦骑士  
+##### 539#       发表于 2024-7-30 00:26
+
+varium这个专门请大箱画师父母的蹭热度手法，三期订阅都上万了，从这个层面讲比不少一无所有的企业势起步稳定好多了。
+然后还真给他抽到了一张SSR了，二期的Serenade，画师是wata，不知道有没有吃到莎乐美的热度，声线还算好听，能唱的不错，还能耐久，还可以耐久老游戏。https://www.youtube.com/@SerenadeOxblood
+8.8万订阅在整箱里都鹤立鸡群起来了。
+说起来vee那个金毛也是狂暴耐久老游戏到12.2万订阅的。https://www.youtube.com/@MinaAudrey
+然而3D化的却是另一个金毛https://www.youtube.com/@LinonAmakomo/featured，索尼还是觉得能唱能跳的更好嘛。
+一年七万粉确实也不差就是了。
+

@@ -7572,3 +7572,67 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以动画里的真人团只有mujica是已主流出道的状态吗
 
+
+*****
+
+####  NODY  
+##### 21428#       发表于 2024-7-29 12:28
+
+mygo动画时间点的萝也是已出道，但是她们出道以后就没有和人比赛过了，都是直接走音乐节和巡演
+
+*****
+
+####  CyDiablo  
+##### 21429#       发表于 2024-7-29 12:28
+
+此事mygo ep12已有记载<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/4c47a4da6e794f85f5f978e82b2a4c15/Screenshot_20240729_122639.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 21430#       发表于 2024-7-29 12:29
+
+所以动画里如果真的有对邦，不管是哪边发起，爱好者小团体和商业团体对邦也太怪了，要编什么理由让事务所同意，狗团紧急出道？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">私自出场的话事务所会管吗
+
+*****
+
+####  滑稽Captain  
+##### 21431#       发表于 2024-7-29 12:31
+
+能在动画播出前就认识蒙面歌王mygo的人除了邦铁粉能有几个人，反正我没意见
+
+
+*****
+
+####  DarthAka  
+##### 21432#       发表于 2024-7-29 12:33
+
+找一号楼翻翻头几页不就知道了
+
+*****
+
+####  Aendst  
+##### 21433#       发表于 2024-7-29 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65732193&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-29 12:28</a>
+
+mygo动画时间点的萝也是已出道，但是她们出道以后就没有和人比赛过了，都是直接走音乐节和巡演 ...</blockquote>
+真的要往真实感和严肃性赛道上走的话
+
+fes、巡、乃至综艺和其他演艺活动之类的确实才是大头
+
+*****
+
+####  skives  
+##### 21434#       发表于 2024-7-29 12:34
+
+动画哪有对邦的时间啊 最多是和解之后tomori和祥子说 总有一天我也想和你站上同一个舞台 给现实对邦留个伏笔
+
+*****
+
+####  NODY  
+##### 21435#       发表于 2024-7-29 12:36
+
+这倒是没什么大问题，你邦最容易让不同乐队跨领域对邦的设定就是随便设个比赛或者音乐节，比如剧场版蝶一个刚出道的学生乐队突然就能和拿了大赛前三的ppp还有ras同台就是因为被音乐节邀请了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

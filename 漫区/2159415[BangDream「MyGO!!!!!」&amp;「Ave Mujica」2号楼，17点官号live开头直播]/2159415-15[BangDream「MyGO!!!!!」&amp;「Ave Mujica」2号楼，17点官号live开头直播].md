@@ -8412,3 +8412,11 @@ b站搜lovedream，然后去nyaa看看
 李子这次自家公司的活动玩爽了，之前鸡团那次明显就没给时间到处玩</blockquote>
 木柜子指定酒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  叁味线  
+##### 21511#       发表于 2024-7-29 22:45
+
+bml的时候李子两天live完之后隔周又有美频的live，可能没好好玩也有赶着回去排练的原因吧
+

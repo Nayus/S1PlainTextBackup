@@ -8332,3 +8332,45 @@ b站这幽默运营爱用啥用啥吧
 
 真人live资源怎么找？尤其是汉化好的
 
+
+*****
+
+####  Nomind96  
+##### 21505#       发表于 2024-7-29 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65737277&amp;ptid=2159415" target="_blank">461757753 发表于 2024-7-29 21:11</a>
+真人live资源怎么找？尤其是汉化好的</blockquote>
+b站搜lovedream，然后去nyaa看看
+
+
+*****
+
+####  NODY  
+##### 21506#       发表于 2024-7-29 21:21
+
+李子这次自家公司的活动玩爽了，之前鸡团那次明显就没给时间到处玩
+
+<img src="https://img.saraba1st.com/forum/202407/29/212126i7ewoozo793w3ep9.jpg" referrerpolicy="no-referrer">
+
+<strong>GTp-baDbwAAGTDN.jpg</strong> (531.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/212126p61u69sq6ru6s1ql.jpg" referrerpolicy="no-referrer">
+
+<strong>GTp-bZ_bsAANDdX.jpg</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 21:21 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/212127ujff36fnohanyaan.jpg" referrerpolicy="no-referrer">
+
+<strong>GTp-bZ1aEAE9S_H.jpg</strong> (603.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 21:21 上传
+

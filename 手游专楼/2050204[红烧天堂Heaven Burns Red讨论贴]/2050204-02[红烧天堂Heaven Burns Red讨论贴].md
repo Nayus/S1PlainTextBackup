@@ -1091,3 +1091,16 @@ ek1xobuftbcgwln7
 
 下半也是ab的池子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  YMS16M  
+##### 1604#       发表于 2024-7-29 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65733403&amp;ptid=2050204" target="_blank">catcoffee 发表于 2024-7-29 14:34</a>
+
+国服这ab联动活动时间给这么短, 奖励真的拿的完?</blockquote>
+没问题啊。一天送12体力呢。
+
+你全刷了肯定拿完了。
+

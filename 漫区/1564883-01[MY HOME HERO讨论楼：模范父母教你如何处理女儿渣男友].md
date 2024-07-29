@@ -111,3 +111,13 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  terminator1990  
+##### 775#       发表于 2024-7-29 16:05
+
+所以最后警队里的老鼠呢？我记得前面还杀了一个警探的吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

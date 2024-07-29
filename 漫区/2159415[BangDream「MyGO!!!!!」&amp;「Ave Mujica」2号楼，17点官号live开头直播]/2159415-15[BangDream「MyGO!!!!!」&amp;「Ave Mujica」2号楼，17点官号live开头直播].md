@@ -7955,3 +7955,53 @@ wsd给主要角色的亲属团找自家cv客串也不是什么稀奇事吧，李
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为有拱火的乐子人
 
+
+*****
+
+####  六道明  
+##### 21469#       发表于 2024-7-29 15:58
+
+开场C团春日影，encore用13集灯的新词，不要大合唱<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21470#       发表于 2024-7-29 15:58
+
+有时候你也不知道有的人是不是除了春日影就不知道别的狗歌了
+
+*****
+
+####  skives  
+##### 21471#       发表于 2024-7-29 15:58
+
+因为足够乐
+一边十人春日影 一边加上罐头笑声 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+节目效果拉满
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  IWS2000  
+##### 21472#       发表于 2024-7-29 16:02
+
+在祥子功成名就之后，和素世解开了误解，为了弥补她的遗憾祥子决定搞个crychic临时复活演唱春日影。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21473#       发表于 2024-7-29 16:03
+
+初华独白我还是倾向于那个sumimi原本有三个人被公司踢了一个导致初华认识演艺圈黑暗的假说，主要bd还特地给那个背景音做了字幕
+

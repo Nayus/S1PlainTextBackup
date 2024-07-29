@@ -570,3 +570,37 @@ py码：100104725198，安B服。
 
 虽然手握2000石，但是总觉得汇呆也要吃600以上，我怀疑yls在搞一种很新的平衡，今年上半年确实有两个池子比较欧，我担心还掉一井还不够
 
+
+*****
+
+####  xy1041  
+##### 46585#       发表于 2024-7-29 22:52
+
+<img src="https://img.saraba1st.com/forum/202407/29/225232a1ws8icigzi1xrix.jpg" referrerpolicy="no-referrer">
+
+<strong>EBCD5AEB-D35B-4C62-86F3-150DB61957E0.jpg</strong> (387.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/225232zdmjjy00jljcuecd.jpg" referrerpolicy="no-referrer">
+
+<strong>08750B82-1FFF-4303-8CA6-DC9FEC3C41B1.jpg</strong> (450.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 22:52 上传
+
+<img src="https://img.saraba1st.com/forum/202407/29/225232kofg6ogqefc72s6f.jpg" referrerpolicy="no-referrer">
+
+<strong>56653CC7-819C-4074-BEFA-FB797F50B752.jpg</strong> (384.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 22:52 上传
+
+嘟嘟嘟，麻花辫眼镜真棒啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

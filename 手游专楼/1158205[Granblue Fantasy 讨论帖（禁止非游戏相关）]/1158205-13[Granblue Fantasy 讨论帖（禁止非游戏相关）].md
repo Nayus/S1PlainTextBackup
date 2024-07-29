@@ -414,3 +414,11 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 有没有大佬科普下神姬pro现在什么环境，做好跳船准备
 
+
+*****
+
+####  暮星弥空  
+##### 18051#       发表于 2024-7-29 08:52
+
+感觉新P好像很喜欢Vtuber和成为小说家系的作品啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

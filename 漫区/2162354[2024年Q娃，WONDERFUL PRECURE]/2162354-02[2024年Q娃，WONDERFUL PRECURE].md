@@ -606,3 +606,11 @@ wonderful precuer结果猫组先变身，貌似有点巨魔了<img src="https://
 
 本集竟然是青山我都没注意到，新人演出不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Cloudslin  
+##### 1961#       发表于 2024-7-29 10:45
+
+野本雄也是去年天Q第42集演出出道，就是索拉二度迷茫那集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实证明演出还是得有像样的本子，今年的表现就亮眼多了，本集很有老东映片子那种ゆかい系的感觉，希望能继续进步吧（不过我缺的小麦吐舌头谁给补一下啊），看下集预告哈基雪要本性暴露了。
+

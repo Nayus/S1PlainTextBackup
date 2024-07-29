@@ -7485,3 +7485,16 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 
 对邦真不会有吧，楚平方找ykn对邦的时候萝还只是一个有实力的普通高中生乐队呢
 
+
+*****
+
+####  ddy2811  
+##### 21421#       发表于 2024-7-29 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728665&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-7-29 00:41</a>
+
+我不知道tv播出之前的go推现在是什么心情，代表曲迷星叫被春日影喧宾夺主，还时不时被一帮子人用别的团的成 ...</blockquote>
+我看到那时候的视频评论基本上只当是又一个邦邦团在关注，根本没有多少独立的粉丝，更不用说成员正式公布的时候动画很快就要播了，连个人带进来的粉都不多，绝大多数人就是被春日影相关的内容给创进来的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+这可能也是一个背景团的生命力那么强的原因之一吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

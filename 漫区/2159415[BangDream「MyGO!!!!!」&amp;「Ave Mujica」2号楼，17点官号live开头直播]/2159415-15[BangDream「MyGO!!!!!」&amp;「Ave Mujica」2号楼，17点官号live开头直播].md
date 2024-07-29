@@ -8238,3 +8238,20 @@ sumimi和mujica的事务所有提到具体是哪家吗，不会是和pp一家吧
 
 没提过事务所，只知道是一家
 
+
+*****
+
+####  skives  
+##### 21494#       发表于 2024-7-29 18:35
+
+如果结合上独角兽的人生经历
+会不会把自己几次被踢出制作组这种事融合到剧情里
+
+
+*****
+
+####  星天观测  
+##### 21495#       发表于 2024-7-29 18:43
+
+那有点keqing了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

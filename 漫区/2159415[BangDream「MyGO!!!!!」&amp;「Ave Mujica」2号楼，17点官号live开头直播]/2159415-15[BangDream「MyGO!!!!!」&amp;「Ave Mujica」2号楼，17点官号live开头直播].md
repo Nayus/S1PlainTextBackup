@@ -8401,3 +8401,14 @@ b站搜lovedream，然后去nyaa看看
 那估计不会，pp毕竟是点明的偶像乐队的，偶像营业应该不会适用于鸡</blockquote>
 你日重金属偶像是出了名的，至少宝钢之后是国际上都出了名的~
 
+
+*****
+
+####  ddy2811  
+##### 21510#       发表于 2024-7-29 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65737350&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-29 21:21</a>
+
+李子这次自家公司的活动玩爽了，之前鸡团那次明显就没给时间到处玩</blockquote>
+木柜子指定酒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

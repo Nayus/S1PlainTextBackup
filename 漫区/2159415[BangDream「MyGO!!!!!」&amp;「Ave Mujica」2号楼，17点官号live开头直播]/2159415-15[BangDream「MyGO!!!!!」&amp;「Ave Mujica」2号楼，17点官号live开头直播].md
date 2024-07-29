@@ -8382,3 +8382,11 @@ b站搜lovedream，然后去nyaa看看
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bml那次不知道是叔叔的锅还是wsd的锅，我倾向于抠门的wsd
 
+
+*****
+
+####  滑稽Captain  
+##### 21508#       发表于 2024-7-29 21:43
+
+感觉一般都是只在活动场地的附近活动的，毕竟也不方便跑太远，RAS那次宛平剧院在徐汇，就去了豫园，BML四叶草在虹桥，基本就只在西边活动
+

@@ -2024,3 +2024,13 @@ sunypa两个人突然碰头了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ruffian  
+##### 20701#       发表于 2024-7-29 23:12
+
+顺便拉个票，希望冬季girl能把恋恋投上<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

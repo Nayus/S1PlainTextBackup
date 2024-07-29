@@ -30,3 +30,23 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  火红之眼  
+##### 767#       发表于 2024-7-29 08:15
+
+我可真服了……最终话主角一句台词没有，全是大众议论，女儿这逮个爹就不干了，还搁这对犯人觉醒同理心，可太孝顺了，下次也摊个什么kbfz吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  X(iaolw)S  
+##### 768#       发表于 2024-7-29 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729380&amp;ptid=1564883" target="_blank">黑上シグマ 发表于 2024-7-29 07:31</a>
+
+完结，牢底坐穿结局
+
+----发送自 STAGE1 App for Android.</blockquote>
+开放性结局，没说怎么判吧，牢底坐穿符合现实，死刑也拖着不执行那种
+

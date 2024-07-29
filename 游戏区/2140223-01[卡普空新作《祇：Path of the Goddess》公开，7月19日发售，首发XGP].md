@@ -1259,3 +1259,11 @@ PS5下了试玩版进去看了两分钟画面真漂亮，不过游戏好贵380�
 二周目打完了怎么还差七个魔像 魔像任务都清完了</blockquote>
 steam上的指南说是要9周目才能全收集，有些是要反复打二周目隐藏BOSS才掉。
 
+
+*****
+
+####  wthall  
+##### 185#       发表于 2024-7-29 08:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天打完那个蜘蛛模样的boss，结果下一章竟然是bossrush么，这也太卡社传统了
+

@@ -4728,3 +4728,41 @@ day1都来了
 
 我有几年没看主播了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 17029#       发表于 2024-7-26 17:46
+
+这就是主播
+
+*****
+
+####  thisisaspider  
+##### 17030#       发表于 2024-7-27 00:07
+
+我有几年没看主播了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sino__unnko3  
+##### 17031#       发表于 2024-7-29 14:56
+
+神楽めあ 2nd Single「のんふぃくしょん」
+2024.8.11 Release
+
+●収録楽曲
+01 青い防波堤
+02 のんふぃくしょん
+03 ネットサーファー
+04 ご主人様はおたわむれ
+05 青い防波堤(Instrumental)
+06 のんふぃくしょん(Instrumental)
+07 ネットサーファー(Instrumental)
+08 ご主人様はおたわむれ(Instrumental)
+09 ボーナストラック
+
+新专辑3新一旧，但是最后这个9号不知道是啥
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

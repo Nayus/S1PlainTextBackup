@@ -101,3 +101,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">果不其然的烂了，典型的噱头网文套路，越写越暴露水平
 
+
+*****
+
+####  jackyhuang  
+##### 774#       发表于 2024-7-29 14:48
+
+感觉什么都没说的最后一话<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -465,3 +465,11 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">不知道该说是重量还是无关紧要的情报
 
+
+*****
+
+####  PigMourne  
+##### 18056#       发表于 2024-7-30 07:36
+
+relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升职到底去做什么呢？难道主机端gbf还有新作希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

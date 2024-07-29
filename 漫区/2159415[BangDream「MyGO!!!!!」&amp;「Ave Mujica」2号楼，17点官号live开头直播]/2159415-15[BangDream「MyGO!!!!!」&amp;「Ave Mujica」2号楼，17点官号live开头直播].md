@@ -7380,3 +7380,18 @@ https://x.com/hayashi_mujina/status/1817581294748156014</blockquote>
 新曲月中吧，月初还有个土的MV
 最难熬的时候马上要来喽<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 21408#       发表于 2024-7-29 09:57
+
+提到爱灯，说来有趣，提到垫了要么是立希要么是初华，好像没看到爱灯推有意见的，有点佩服这种自信，也可能我没关注相关社群的原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 21409#       发表于 2024-7-29 10:00
+
+手游切到go图鉴放的那首歌动画里有唱过吗
+

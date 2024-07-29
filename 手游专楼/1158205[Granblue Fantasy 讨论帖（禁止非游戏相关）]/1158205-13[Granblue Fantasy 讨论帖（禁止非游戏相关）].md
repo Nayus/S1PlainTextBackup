@@ -444,3 +444,16 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 不过这几年是流行成为小说家系的web文挖宝，转生史莱姆还是挺早一批的
 
+
+*****
+
+####  adretyu67.  
+##### 18054#       发表于 2024-7-29 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65729771&amp;ptid=1158205" target="_blank">暮星弥空 发表于 2024-7-29 08:52</a>
+
+感觉新P好像很喜欢Vtuber和成为小说家系的作品啊</blockquote>
+管人这事我不太清楚。
+
+不过这几年是流行成为小说家系的web文挖宝，转生史莱姆还是挺早一批的
+

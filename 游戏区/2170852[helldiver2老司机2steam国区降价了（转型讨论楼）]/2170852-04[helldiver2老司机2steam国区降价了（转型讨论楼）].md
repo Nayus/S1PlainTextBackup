@@ -40,3 +40,16 @@
 你游一些环境对视野的影响是不是太大了</blockquote>
 我萌新的时候玩那个会地震的星球，黑夜一片黑，当时是看着地图才能走的，那个刺激至今印象深刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5094#       发表于 2024-7-30 01:51
+
+ 本帖最后由 Aeons 于 2024-7-30 01:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728333&amp;ptid=2170852" target="_blank">IWS2000 发表于 2024-7-28 23:55</a>
+
+我萌新的时候玩那个会地震的星球，黑夜一片黑，当时是看着地图才能走的，那个刺激至今印象深刻 ...</blockquote>
+
+佛农井模板吧，光照好像有bug，要么是黑到一点看不见，要么是瞎眼黑红滤镜，战备还经常掉山上，飞鹰也砸山上，路又单一，容易被巡逻队无限堵，虽然只有一个地震debuff，但数一数二的粪。
+

@@ -8494,3 +8494,24 @@ b站运营不是老炒作狗了吗，简中特供合并账号，特供头像什�
 
 mmr的思路是运营反应及时，mmr就喜欢这套
 
+
+*****
+
+####  [皆神孝介]  
+##### 21521#       发表于 2024-7-30 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735262&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-29 17:14</a>
+
+这个泥漏早就讨论过了，可以翻一下一号楼，当时的结论是这里基本可以确定与sumimi无关
+
+只有最后一个名字确 ...</blockquote>
+第七话ED结束后，到这里才有字幕，前面的语音没有字幕
+
+<img src="https://img.saraba1st.com/forum/202407/30/004035msqlomo9lww792s9.jpg" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-07-30_00-38-07.jpg</strong> (203.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 00:40 上传
+

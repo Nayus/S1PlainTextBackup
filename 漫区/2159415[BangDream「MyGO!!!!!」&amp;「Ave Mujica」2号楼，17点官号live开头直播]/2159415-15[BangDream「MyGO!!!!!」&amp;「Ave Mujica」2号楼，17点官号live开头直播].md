@@ -8317,3 +8317,18 @@ ave mujica世界观设定：丰川祥子<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这头像我觉得用不到明年四月，搞不好mujica开播了立马又换一个
 
+
+*****
+
+####  星天观测  
+##### 21503#       发表于 2024-7-29 21:10
+
+b站这幽默运营爱用啥用啥吧
+
+*****
+
+####  461757753  
+##### 21504#       发表于 2024-7-29 21:11
+
+真人live资源怎么找？尤其是汉化好的
+

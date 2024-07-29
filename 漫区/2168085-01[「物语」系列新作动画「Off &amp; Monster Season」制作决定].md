@@ -1566,3 +1566,17 @@ se-no接op我直接笑出声<img src="https://static.saraba1st.com/image/smiley/
 
 所以只要牺牲一个棋子就行了
 
+
+*****
+
+####  Sliurus  
+##### 567#       发表于 2024-7-29 17:23
+
+ 本帖最后由 Sliurus 于 2024-7-29 17:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65734097&amp;ptid=2168085" target="_blank">sheshiro 发表于 2024-7-29 15:44</a>
+
+因为在下棋嘛
+
+抚子是纸面上战斗力最高的天花板，倾物语里面三专家都打不了完整版的刃下心，让小忍变成这 ...</blockquote>
+这么看无论贝木是否插手抚子的事，专家们都是赢，毕竟就算垃圾君真死了下面也有人照应。那伊豆湖给贝木资金让他继续干是为了什么？总不能是学姐的爱吧
+

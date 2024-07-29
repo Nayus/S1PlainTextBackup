@@ -8208,3 +8208,11 @@ sumimi那个，听的出来是たまこ、ミオ、ういか，最后一个是�
 
 如果有BD字幕截图是最好的，直接看原文本是什么
 
+
+*****
+
+####  一壹  
+##### 21491#       发表于 2024-7-29 17:21
+
+sumimi和mujica的事务所有提到具体是哪家吗，不会是和pp一家吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

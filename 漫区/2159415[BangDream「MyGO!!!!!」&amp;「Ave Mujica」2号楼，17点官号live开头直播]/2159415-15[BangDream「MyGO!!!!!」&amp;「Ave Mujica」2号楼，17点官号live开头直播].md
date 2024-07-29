@@ -8070,3 +8070,23 @@ wsd给主要角色的亲属团找自家cv客串也不是什么稀奇事吧，李
 
 我还很在意最后那句“我是……空气”但是怎么想都想不通那里到底是什么意思
 
+
+*****
+
+####  PDQ4  
+##### 21480#       发表于 2024-7-29 16:17
+
+大部分人其实根本不在乎剧本逻辑，角色待遇什么的，只要有乐子和噱头就可以
+而春日影就是那个噱头
+
+竟然有人在乎角色待遇和春日影难和其他人搭边？太饭圈了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 21481#       发表于 2024-7-29 16:20
+
+如果复刻动画和乐子的话，我是不介意live上让我再看一遍第七集第八集和第十集名场面的
+正好还能让狗团也出演某些人心心念念的小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+

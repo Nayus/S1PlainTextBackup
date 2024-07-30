@@ -883,3 +883,16 @@ wada怎么发了张狐狸的九周年贺图 前几年都没发过
 
 今年难道真是金毛白面
 
+
+*****
+
+####  alucardcz  
+##### 13130#       发表于 2024-7-30 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65738056&amp;ptid=2084912" target="_blank">eilot 发表于 2024-7-29 22:31</a>
+
+沒暗狐，炒了仇小黑、術狗、殺兩儀和奧伯隆，衣服是單體攻+40%寶+20那件
+
+第3場還要些少運氣， ...</blockquote>
+这么复杂不如黑呆直接秒了（
+

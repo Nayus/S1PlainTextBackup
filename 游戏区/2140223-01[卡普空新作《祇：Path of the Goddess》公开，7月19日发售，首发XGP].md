@@ -1267,3 +1267,11 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">昨天打完那个蜘蛛模样的boss，结果下一章竟然是bossrush么，这也太卡社传统了
 
+
+*****
+
+####  wthall  
+##### 186#       发表于 2024-7-30 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">打完，最终boss被逼着洗点改风格玩了，从TR变成了ACT。不过总算是打完了，今年意料之外的好游戏，快赶上去年的hifi rush了
+

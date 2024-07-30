@@ -491,3 +491,11 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 水老王这声音像不像俊达萌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑白魔炮使  
+##### 18059#       发表于 2024-7-30 16:10
+
+联动史莱姆说是对面找过来的话，也倒是能说通为什么要联动这个，这IP太没牌面了。节省了一波开销是吧
+

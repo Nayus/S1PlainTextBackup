@@ -155,3 +155,12 @@ eba8b8f370e9efc2ae1dd076aa4151ec.jpeg
 
 我高伟大，无需多言
 
+
+*****
+
+####  Alicest  
+##### 5936#       发表于 2024-7-30 16:08
+
+学历的胜利
+<img src="https://p.sda1.dev/18/31e1f20d43e5f55656a6ccea8aa247c3/image.jpg" referrerpolicy="no-referrer">
+

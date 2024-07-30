@@ -8840,3 +8840,15 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 一起跳下去为祥子照亮深渊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 21546#       发表于 2024-7-30 14:03
+
+关于祥子的三组cp，我挺赞同某位同人作者的看法：
+
+灯是往日美好时光的象征，祥子陷入泥沼的时候会在岸边向她伸出手，鼓励她爬出来的人；睦是灵魂相通的半身，会毫不犹豫的选择跟祥子同进退共沉沦，you jump I jump，你在哪儿我就在哪儿；而初华尚难定义，但我觉得她会是说出“好可憐……啊啊，我想來代替你”，自己跳进深渊也想把祥子推出去的那个。
+
+毕竟13集看下来初华侵略性更强一点，一直在试探祥子的雷区范围<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

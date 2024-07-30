@@ -8766,3 +8766,13 @@ b站官号这个老炒作狗还有必要给它洗吗<img src="https://static.sar
 语c，合号时期不就被很多人喷了 
 自己戏精瘾犯了换头像被人喷不是很正常？
 
+
+*****
+
+####  前方暴雨预警  
+##### 21539#       发表于 2024-7-30 12:12
+
+B站官号不就是和羊姐一样的热度厨嘛
+
+有点好奇狗刺对邦的宣传图出来之后它会不会紧急插播一个灯和nina的头像<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+

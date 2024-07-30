@@ -8968,3 +8968,11 @@ C4GDL5@F{[(A8J2RHUKRPUB.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/30/183542b88wwr8q1rq2uzb8.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21556#       发表于 2024-7-30 19:37
+
+狗团里我记得鼓和青木也会钢琴，羊不知道会不会，蜜柑和凛应该不会
+

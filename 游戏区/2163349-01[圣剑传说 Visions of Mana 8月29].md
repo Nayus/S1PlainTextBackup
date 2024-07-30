@@ -1942,3 +1942,11 @@ demo有点短，整体符合预期吧，2线作品，特点和硬伤都有，这
 
 太幼了，但是一看商店页PEGI 12+
 
+
+*****
+
+####  ff2077  
+##### 197#       发表于 2024-7-30 21:02
+
+有一点 坐骑做的比16和7rb都强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起码真的随便跳跃障碍物了 不会被各种犄角旮旯的玩意卡了
+

@@ -1640,3 +1640,25 @@ PV看起来不错，不过不愧是SE的游戏，上作249，这作348，涨的�
 
 卖相比预期好很多啊～
 
+
+*****
+
+####  Markorca  
+##### 167#       发表于 2024-7-30 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65740960&amp;ptid=2163349" target="_blank">tbone 发表于 2024-7-30 09:56</a>
+
+PV看起来不错，不过不愧是SE的游戏，上作249，这作348，涨的挺快</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">圣剑不都好久没全新作了
+
+
+*****
+
+####  tbone  
+##### 168#       发表于 2024-7-30 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65741214&amp;ptid=2163349" target="_blank">Markorca 发表于 2024-7-30 10:16</a>
+
+圣剑不都好久没全新作了</blockquote>
+2020年出的重置圣剑3，4年还好吧
+

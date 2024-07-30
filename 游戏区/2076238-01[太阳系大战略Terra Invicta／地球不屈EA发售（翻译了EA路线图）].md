@@ -1881,3 +1881,14 @@ ps：这游戏当rpg玩会更带感
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">今天打折买了完全不会玩，一开始怎么给两个人安排任务都没弄明白
 
+
+*****
+
+####  leviathan  
+##### 183#       发表于 2024-7-30 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56299776&amp;ptid=2076238" target="_blank">蓝雉 发表于 2022-6-17 06:43</a>
+
+这游戏很多人都是当三体模拟器在期待，听说制作组提前给了一些mod作者工具了，等发售后三体mod估计必有 ...</blockquote>
+三体打个毛啊，不是必败吗
+

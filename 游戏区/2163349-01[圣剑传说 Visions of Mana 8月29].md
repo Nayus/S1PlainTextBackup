@@ -1744,3 +1744,15 @@ RPG部分会更重要点
 
 习惯了3RE的烧鸡已经看不惯这个画风了，不过元素还是系列那些还算比较吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苦瓜师傅  
+##### 176#       发表于 2024-7-30 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65741861&amp;ptid=2163349" target="_blank">crosz1985 发表于 2024-7-30 11:08</a>
+悄无声息的上架了试玩版
+
+论坛助手,iPhone</blockquote>
+并不是 各硬件厂都发demo trailer了
+

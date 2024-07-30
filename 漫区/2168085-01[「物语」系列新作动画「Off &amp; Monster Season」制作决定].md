@@ -1711,3 +1711,23 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 终里面发生了啥我已经完全忘记了
 
+
+*****
+
+####  努斯万克  
+##### 581#       发表于 2024-7-30 13:16
+
+好多剧情都忘记了就想再看一遍，但是物语系列这么多集也是望而却步。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孟沁瑶  
+##### 582#       发表于 2024-7-30 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742942&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-7-30 12:40</a>
+
+吐槽一下，伤物语总集篇bd发售一周了还没有资源，我们物语现在这么凉的吗
+
+论坛助手,iPhone ...</blockquote>
+因为是总集篇吧……
+

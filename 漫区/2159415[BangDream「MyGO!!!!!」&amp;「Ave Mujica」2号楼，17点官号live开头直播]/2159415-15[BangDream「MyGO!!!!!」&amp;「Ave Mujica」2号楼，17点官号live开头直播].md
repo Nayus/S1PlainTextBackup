@@ -8822,3 +8822,13 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 [@星天观测](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572691) 新活是橙色。
 
+
+*****
+
+####  akiomn  
+##### 21544#       发表于 2024-7-30 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素睦这对只是老钟特供吧，国外有热度吗？
+睦祥不担心。如果说祥子往深渊跳下去的话，睦头一定是毫不犹豫陪着一起跳的那个。不论是拆c团还是保守祥子的秘密还是最后加入mujica，睦都是站在祥子那边的
+初华就不知道了，按照主唱是星星来看，也许是把祥子从深渊拉回来的那个
+

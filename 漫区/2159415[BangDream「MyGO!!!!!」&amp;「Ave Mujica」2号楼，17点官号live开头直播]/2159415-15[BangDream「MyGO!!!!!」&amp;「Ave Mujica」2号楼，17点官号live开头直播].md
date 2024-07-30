@@ -9478,3 +9478,18 @@ mujica怎么写都会有烂梗小鬼的，这不是脚本怎么写的问题<img 
 
 以祥子的自尊心来说，被网友或者电视台当场开出和爹住小破屋的话，伤害应该比楚平方被开盒大得多，当然不排除祥子出道第二天就拿钱带着爹搬进正经房子防止被盒了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21612#       发表于 2024-7-31 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说被网民开盒出来，光是队友知道就够祥子心态炸穿吧（睦除外）
+
+*****
+
+####  skives  
+##### 21613#       发表于 2024-7-31 00:58
+
+希望祥子能拥有破罐破摔的精神
+

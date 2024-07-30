@@ -328,3 +328,13 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202407/30/233052d37to5m5t7tfikf5.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 5948#       发表于 2024-7-31 01:02
+
+学25的话是不是史上最速动画化了？
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

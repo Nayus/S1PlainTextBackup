@@ -1662,3 +1662,11 @@ PV看起来不错，不过不愧是SE的游戏，上作249，这作348，涨的�
 圣剑不都好久没全新作了</blockquote>
 2020年出的重置圣剑3，4年还好吧
 
+
+*****
+
+####  zqqwe  
+##### 169#       发表于 2024-7-30 11:01
+
+请假刚好打完试玩，这战斗部分还是不敢恭维的水平<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">冲动预购就当是给人设付费了
+

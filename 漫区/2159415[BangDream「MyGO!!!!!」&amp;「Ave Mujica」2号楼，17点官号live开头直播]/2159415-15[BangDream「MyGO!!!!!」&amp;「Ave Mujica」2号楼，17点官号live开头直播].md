@@ -8515,3 +8515,60 @@ mmr的思路是运营反应及时，mmr就喜欢这套
 
 2024-7-30 00:40 上传
 
+
+*****
+
+####  Aendst  
+##### 21522#       发表于 2024-7-30 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65739174&amp;ptid=2159415" target="_blank">[皆神孝介] 发表于 2024-7-30 00:41</a>
+
+第七话ED结束后，到这里才有字幕，前面的语音没有字幕</blockquote>
+感谢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是怎么关键部分刚好什么都没有……
+
+
+*****
+
+####  御幸一也  
+##### 21523#       发表于 2024-7-30 11:05
+
+ 本帖最后由 御幸一也 于 2024-7-30 11:07 编辑 
+
+<img src="https://img.saraba1st.com/forum/202407/30/110707jdpvz8kv48rk2jir.jpg" referrerpolicy="no-referrer">
+
+<strong>ダウンロード.jpg</strong> (52.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:07 上传
+
+怎麼這個劇場版小冊子還能有訪談的啊，是聲優的還是製作組的也不說<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+還好也不算貴買個看看。
+
+說到這個，這幾天也是閒著無聊把訪談都重新看了一遍，
+
+只能說難怪睦爽廚不愛看訪談呢，監督真是處處針對，好好笑。
+
+而且連在綾奈這種這麼愛大亂炖拉CP的人眼裡，也能查無此CP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  相坂君  
+##### 21524#       发表于 2024-7-30 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730675&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-29 10:21</a>
+
+真没人要死要活么，昨晚泥楼给初华说两句已经被阴湿人骂不是祥孝楼是初孝楼了，谁在要死要活的我不好说 ...</blockquote>
+爬了一下楼，想起好像看到过这个人
+
+看同人二创赛博小祥入脑，大骂三角初华抢戏，直言看到三角初华恶心，代表祥厨发表“初祥在祥厨内部风评差”的发言
+
+被初华厨看到挂了后，就认怂删博了
+
+没想到还视奸泥楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+泥楼天天被人视奸，还老被惦记，都这么不爽鸡杂了还来看，看就算了，怎还偷偷骂啊
+

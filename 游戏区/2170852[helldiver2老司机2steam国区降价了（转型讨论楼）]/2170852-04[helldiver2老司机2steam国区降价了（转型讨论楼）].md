@@ -104,3 +104,26 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 厉害的就在这里，第三人建主，互斥的两个人，第二个进的会炸房。要么原来人被踢，要么后面人进不去。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那彻底GG，国内P2P突出一个折磨，说不定第二天又不互斥了
 
+
+*****
+
+####  kratos_li  
+##### 5100#       发表于 2024-7-30 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744098&amp;ptid=2170852" target="_blank">Launce 发表于 2024-7-30 14:45</a>
+
+那彻底GG，国内P2P突出一个折磨，说不定第二天又不互斥了；要不就拔插下光猫什么的重置下拨号 ...</blockquote>
+哦了，PPPOE拨号确实重置过了，回头试下最终手段拔光猫。ps5直接拨号，都NAT1了也不行。
+
+有个替代方案是手机开热点，连起来居然很稳定。
+
+
+*****
+
+####  Aeons  
+##### 5101#       发表于 2024-7-30 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65740081&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-7-30 08:15</a>
+现在觉得最粪的是机器人那边天啥二这个球，极暑+暴雨+开阔地形，压根看不到机器人在哪，但是机器人老远就开 ...</blockquote>
+酸雨天樽二吗？ 这模板还一地水池的确实弱智
+

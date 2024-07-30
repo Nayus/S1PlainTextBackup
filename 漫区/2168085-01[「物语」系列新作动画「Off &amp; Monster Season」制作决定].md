@@ -1668,3 +1668,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  sylccll  
+##### 576#       发表于 2024-7-30 12:29
+
+已经觉得这系列不会完结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">他要想完结终物语的时候就该结束了
+

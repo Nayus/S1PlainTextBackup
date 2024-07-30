@@ -9092,3 +9092,33 @@ nbcs sumimi
 
 诶，我倒是还挺喜欢mana的
 
+
+*****
+
+####  skives  
+##### 21570#       发表于 2024-7-30 21:48
+
+喜欢反田 如果能成为新团的主唱就太好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21571#       发表于 2024-7-30 21:49
+
+對mana沒有任何興趣只想看ave<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  星天观测  
+##### 21572#       发表于 2024-7-30 21:50
+
+反妖女当主唱那可真不知道新团是什么风格了
+
+*****
+
+####  NODY  
+##### 21573#       发表于 2024-7-30 21:51
+
+sumimi更火所以事务所优先保这个还真不好说，幕间里面有说人们喜新厌旧的，没准指的就是mujica一出来sumimi就糊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

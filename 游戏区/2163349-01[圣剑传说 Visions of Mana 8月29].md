@@ -1960,3 +1960,18 @@ demo有点短，整体符合预期吧，2线作品，特点和硬伤都有，这
 有一点 坐骑做的比16和7rb都强多了起码真的随便跳跃障碍物了 不会被各种犄角旮旯的玩意卡了 ...</blockquote>
 要做的比这两差还是很有难度的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  suzakushi  
+##### 199#       发表于 2024-7-30 21:54
+
+做得也太糙了。。。感觉还不如3re，雪地跑两步发现脚印是浮在空中的。。
+
+*****
+
+####  hugosol  
+##### 200#       发表于 2024-7-30 21:54
+
+就别碰瓷relink了吧，搞得跟龙信2一样捧杀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

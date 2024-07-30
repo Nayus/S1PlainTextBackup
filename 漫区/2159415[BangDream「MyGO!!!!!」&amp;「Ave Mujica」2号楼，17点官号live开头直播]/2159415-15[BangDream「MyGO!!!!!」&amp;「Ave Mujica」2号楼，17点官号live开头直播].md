@@ -8879,3 +8879,16 @@ okok来了
 
 【【音频】Surges - Roselia × 蘭-哔哩哔哩】 https://b23.tv/Zwmmp1S
 
+
+*****
+
+####  雪川_  
+##### 21550#       发表于 2024-7-30 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742173&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-30 11:33</a>
+
+監督那是真的很敢說，動畫表現看起來是爽世在壓力睦，然後訪談也真的敢這樣錘
+
+ ...</blockquote>
+最近有个欧美老哥的视频提出了素睦同框睦从来没有坐下过这么个分镜信息。没人坐的椅子和素世祥子的塑造
+

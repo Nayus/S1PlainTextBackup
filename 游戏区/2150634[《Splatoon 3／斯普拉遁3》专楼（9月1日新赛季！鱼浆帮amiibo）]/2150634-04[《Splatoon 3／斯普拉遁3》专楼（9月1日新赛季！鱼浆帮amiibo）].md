@@ -1421,3 +1421,11 @@ JACKPOT已经被大N实施除忆诅咒了，相关比赛提到他们的公式视
 
 唉，开门工是不能停的啊，休息了半小时再排无败立马没了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4930#       发表于 2024-7-30 15:24
+
+昨天配了套回归+复活+隐跳+0.5行动强化的长热泡，发现这武器真的挺难玩，离太远打不到靠太近又不能确保直击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有玩长热玩的比较好的大佬教教
+

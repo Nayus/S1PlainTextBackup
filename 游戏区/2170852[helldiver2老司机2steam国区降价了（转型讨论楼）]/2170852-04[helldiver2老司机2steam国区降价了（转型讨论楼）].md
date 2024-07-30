@@ -127,3 +127,16 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 现在觉得最粪的是机器人那边天啥二这个球，极暑+暴雨+开阔地形，压根看不到机器人在哪，但是机器人老远就开 ...</blockquote>
 酸雨天樽二吗？ 这模板还一地水池的确实弱智
 
+
+*****
+
+####  ravend233  
+##### 5102#       发表于 2024-7-30 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744177&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-7-30 14:54</a>
+
+酸雨天樽二吗？ 这模板还一地水池的确实弱智</blockquote>
+对，就这个
+
+被看不见的机器人打得满头包，直接当炮塔仙人了
+

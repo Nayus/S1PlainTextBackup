@@ -499,3 +499,18 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 联动史莱姆说是对面找过来的话，也倒是能说通为什么要联动这个，这IP太没牌面了。节省了一波开销是吧
 
+
+*****
+
+####  暮星弥空  
+##### 18060#       发表于 2024-7-30 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65730318&amp;ptid=1158205" target="_blank">adretyu67. 发表于 2024-7-29 09:52</a>
+
+管人这事我不太清楚。
+
+不过这几年是流行成为小说家系的web文挖宝，转生史莱姆还是挺早一批的 ...</blockquote>
+记得以前有人提过不管是金月组的女人们还是四圣都挺管人皮套味儿的<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+虽然新p大概管不了这么细节的地方不过总觉得新p喜欢管人的说法也说得通
+

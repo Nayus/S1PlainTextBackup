@@ -4766,3 +4766,31 @@ day1都来了
 
 —— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  古战场亡魂  
+##### 17032#       发表于 2024-7-29 20:54
+
+<img src="https://img.saraba1st.com/forum/202407/29/205448c5vi5u8mukuf8fbu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (281.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-29 20:54 上传
+
+*****
+
+####  TiHaru  
+##### 17033#       发表于 2024-7-29 21:22
+
+前半在开会没听，最后宣布了一个lol的窗，也没讲是什么模式
+
+*****
+
+####  yywzjsw  
+##### 17034#       发表于 2024-7-30 09:47
+
+op鼠标垫，主播这是咋了（
+

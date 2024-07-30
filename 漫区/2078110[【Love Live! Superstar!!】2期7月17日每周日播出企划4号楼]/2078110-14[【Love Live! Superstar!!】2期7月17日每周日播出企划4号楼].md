@@ -2034,3 +2034,39 @@ sunypa两个人突然碰头了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  优妮可  
+##### 20702#       发表于 2024-7-29 21:33
+
+ 本帖最后由 优妮可 于 2024-7-29 21:50 编辑 
+
+算了
+
+*****
+
+####  ruffian  
+##### 20703#       发表于 2024-7-29 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65735211&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-07-29 17:10:21</a>
+虽然很糊，但是也能很明显的看出来的大眼萌…有种上世纪的美</blockquote>背景是香港还是唐人街？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 20704#       发表于 2024-7-29 23:12
+
+顺便拉个票，希望冬季girl能把恋恋投上<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 20705#       发表于 2024-7-30 09:45
+
+这个赛前寄语是每个人都搞？别吧
+

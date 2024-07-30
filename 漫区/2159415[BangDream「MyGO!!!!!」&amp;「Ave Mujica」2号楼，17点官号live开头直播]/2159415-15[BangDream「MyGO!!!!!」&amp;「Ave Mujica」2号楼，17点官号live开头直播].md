@@ -8776,3 +8776,11 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 有点好奇狗刺对邦的宣传图出来之后它会不会紧急插播一个灯和nina的头像<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21540#       发表于 2024-7-30 12:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能性不大，gbc在国内热度一般，不如看看鸡动画播出后这官号会不会换头像，要是不换还能敬他是条汉子
+

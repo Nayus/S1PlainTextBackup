@@ -1648,3 +1648,23 @@ ED拿着薙刀的月火酱好帅啊<img src="https://static.saraba1st.com/image/
 ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</blockquote>
 不就是第一话的内容吗
 
+
+*****
+
+####  努斯万克  
+##### 574#       发表于 2024-7-30 12:18
+
+本季动画后面会有战场原出现吗
+
+
+*****
+
+####  oi99o  
+##### 575#       发表于 2024-7-30 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742696&amp;ptid=2168085" target="_blank">努斯万克 发表于 2024-7-30 12:18</a>
+本季动画后面会有战场原出现吗</blockquote>
+忍物语会有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

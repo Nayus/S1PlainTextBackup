@@ -104,3 +104,15 @@ R5N4}NB0)Q`JYJX)1BLSMUU.jpg
 
 经过一年多的宣传，除了s1已经没有地方对它感兴趣了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石中剑二  
+##### 618#       发表于 2024-7-30 22:43
+
+<blockquote>抽烟的猴 发表于 2024-7-30 22:34
+讨论度最高的是pv1
+
+经过一年多的宣传，除了s1已经没有地方对它感兴趣了</blockquote>
+确实，后面每一次宣发好像就让人期待度掉一级
+

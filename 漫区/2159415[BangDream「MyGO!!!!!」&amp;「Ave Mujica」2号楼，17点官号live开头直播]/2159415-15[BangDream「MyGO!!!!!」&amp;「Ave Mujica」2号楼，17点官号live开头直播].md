@@ -8603,3 +8603,36 @@ mmr的思路是运营反应及时，mmr就喜欢这套
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是海玲生日那天爆了波大的，这官号会不会换头像还不一定呢，不过新头像就用了两个多月，现在换成灯祥头像了。现在的头像又能用多久呢？
 只能说给这官号幽默完了，反正我没见过其他官号有换头像这么勤的
 
+
+*****
+
+####  MASKA-1  
+##### 21528#       发表于 2024-7-30 11:18
+
+头像竟然是灯祥不是灯初，说好主唱是星星呢。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御幸一也  
+##### 21529#       发表于 2024-7-30 11:19
+
+一開始說什麼嗑“女同性恨”，結果現在人人嗑小甜餅，
+
+早期同人一狗票的霸凌欺負暴力睦，有些人還歲月史書把這些骯髒的記憶抹除<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能真的以為互聯網沒有記憶吧
+
+
+*****
+
+####  Aendst  
+##### 21530#       发表于 2024-7-30 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不女同性恨吧，这个词是不是被滥用过度了
+
+当时我还看同人，很多的确就是纯粹的单方面暴力霸凌，没有恨意只有无端的恶意
+
+不过没想到制作组也真的认为爽世的行为是负面的，或许这种单方面霸凌也只是一种基于原作但过度夸张的再加工吧
+

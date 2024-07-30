@@ -473,3 +473,13 @@ KR说是对面找过来的，但不管是谁找谁这联动开池都太恶心了
 
 relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升职到底去做什么呢？难道主机端gbf还有新作希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  是这样  
+##### 18057#       发表于 2024-7-30 13:38
+
+这次活动还挺有意思的，比生放那堆烂活好多了
+
+— from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

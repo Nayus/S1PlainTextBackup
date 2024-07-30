@@ -8636,3 +8636,107 @@ mmr的思路是运营反应及时，mmr就喜欢这套
 
 不过没想到制作组也真的认为爽世的行为是负面的，或许这种单方面霸凌也只是一种基于原作但过度夸张的再加工吧
 
+
+*****
+
+####  星天观测  
+##### 21531#       发表于 2024-7-30 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65741984&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-7-30 11:18</a>
+
+头像竟然是灯祥不是灯初，说好主唱是星星呢。
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我不好说，可能初华不是吧，能怎么办呢，我对wsd的预期已经拉低到初华以后能露脸就行了
+
+
+*****
+
+####  御幸一也  
+##### 21532#       发表于 2024-7-30 11:33
+
+監督那是真的很敢說，動畫表現看起來是爽世在壓力睦，然後訪談也真的敢這樣錘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21533#       发表于 2024-7-30 11:37
+
+正是因为官方就是这样想的，所以才会这样说，所以才会做出来这样的动画表现
+
+其实反倒可以说明脚本完成度和制作完成度很高吧
+
+也可以看出来制作组对爽世这个角色这样的塑造是满意的
+
+的确，是一个放在偶像动画里相对少见，也很有意思的角色
+
+*****
+
+####  akiomn  
+##### 21534#       发表于 2024-7-30 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这个官号换头像的事，想起来昨晚隔壁还有人觉得这官号换头像不叫蹭热度，自家官号换头像怎么能叫蹭热度。
+我还真没见过一个正经企业的官号头像随便换的，还是换成宣传图的，推特官号都没换，国内运营却换头像了
+屁股在幽默运营那边不如直说，这运营蹭热度前科还没过半年呢
+
+*****
+
+####  祐天寺若麦  
+##### 21535#       发表于 2024-7-30 11:38
+
+呃，我都不知道在急什么，目前剧情导向为主当然是用祥子当头图比较合适啊，初华本来就还是谜之设定。那个对邦主视图最后肯定出10人视觉图啊，人家要卖徽章立牌的啊，还有这些就不是初华了？
+
+QQ图片20240730113550.jpg
+(417.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113638gc15s1ic5fsf5d5h.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240730113555.jpg
+(420.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113638cotb6mtsyg43msf3.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240730113559.jpg
+(233.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113638aj7714os8jcup7p1.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240730113602.jpg
+(172.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113638mg9uun8nzms34z8s.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240730113605.jpg
+(168.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113639lmz9923431dox269.jpg" referrerpolicy="no-referrer">
+
+QQ图片20240730113608.jpg
+(188.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 11:36 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/113639f2lww6d6gwwxdnjh.jpg" referrerpolicy="no-referrer">
+

@@ -8803,3 +8803,22 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 讲个好笑的，隔壁专楼有人提问了这个，然后完全没人回应，是因为自己也知道和臆想中的祥孝楼完全不一样吗？
 
+
+*****
+
+####  玖羽  
+##### 21542#       发表于 2024-7-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65742173&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-7-30 11:33</a>
+
+監督那是真的很敢說，動畫表現看起來是爽世在壓力睦，然後訪談也真的敢這樣錘</blockquote>
+啊不然呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 21543#       发表于 2024-7-30 13:16
+
+[@星天观测](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=572691) 新活是橙色。
+

@@ -213,3 +213,13 @@ vims包揽前三
 
 果然还是国立医大B判技高一筹啊
 
+
+*****
+
+####  kykawaiii  
+##### 5941#       发表于 2024-7-30 17:25
+
+恭喜🎉<img src="https://p.sda1.dev/18/2ac741d69bbe7aa6cf2112a036a1a88b/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

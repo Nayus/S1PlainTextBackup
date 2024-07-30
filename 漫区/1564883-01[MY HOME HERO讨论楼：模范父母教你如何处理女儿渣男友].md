@@ -216,3 +216,13 @@ SB作者。
 一开始就让老爹宰了</blockquote>
 麻了，今天看书报才知道完结了，就这样的话还不如第二部同归于尽来的好呢
 
+
+*****
+
+####  smdzh2  
+##### 786#       发表于 2024-7-30 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744040&amp;ptid=1564883" target="_blank">chivalry 发表于 2024-7-30 15:39</a>
+麻了，今天看书报才知道完结了，就这样的话还不如第二部同归于尽来的好呢 ...</blockquote>
+第二部完结时作者说自己本来预计第二部写死窪，结果编辑让他把窪留到第三部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

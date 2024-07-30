@@ -1871,3 +1871,16 @@ demo有点短，整体符合预期吧，2线作品，特点和硬伤都有，这
 
 试完了下，白期待了，动作过于大便
 
+
+*****
+
+####  dddty  
+##### 190#       发表于 2024-7-30 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65746842&amp;ptid=2163349" target="_blank">五月之雨 发表于 2024-7-30 19:19</a>
+
+试玩动作部分相当烂, 简直国产二游劣化版,建模有如大便</blockquote>
+辱二游了，一股子国产MMO的味道。
+
+战斗其实这样我也能忍，演出真的失望人物几乎没啥表情，男女主的脸进演出打光导致很奇怪。
+

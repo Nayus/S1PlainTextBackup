@@ -616,3 +616,17 @@ ps：精灵法师塔是不是还是那么废啊
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  敏感词好多  
+##### 62#       发表于 2024-7-30 19:25
+
+ 本帖最后由 敏感词好多 于 2024-7-30 19:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65746146&amp;ptid=2192638" target="_blank">lhh_ah 发表于 2024-7-30 18:00</a>
+图鉴怎么看
+有时候敌人信息没注意看就点掉了</blockquote>
+目前没有，等更新吧，或者点击敌人本体，在被打爆之前<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

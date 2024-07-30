@@ -483,3 +483,11 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 — from Google Pixel 6, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  小Q  
+##### 18058#       发表于 2024-7-30 15:30
+
+水老王这声音像不像俊达萌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

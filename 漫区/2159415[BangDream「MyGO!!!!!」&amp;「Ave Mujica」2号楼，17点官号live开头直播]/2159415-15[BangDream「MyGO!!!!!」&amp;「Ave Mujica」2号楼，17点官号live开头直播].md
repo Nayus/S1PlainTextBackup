@@ -8892,3 +8892,35 @@ okok来了
  ...</blockquote>
 最近有个欧美老哥的视频提出了素睦同框睦从来没有坐下过这么个分镜信息。没人坐的椅子和素世祥子的塑造
 
+
+*****
+
+####  WhiteGlint  
+##### 21551#       发表于 2024-7-30 15:31
+
+入场特典T穿不下，落泪了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 21552#       发表于 2024-7-30 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744447&amp;ptid=2159415" target="_blank">雪川_ 发表于 2024-7-30 15:16</a>
+
+最近有个欧美老哥的视频提出了素睦同框睦从来没有坐下过这么个分镜信息。没人坐的椅子和素世祥子的塑造 ...</blockquote>
+这个：[https://www.youtube.com/watch?v=ZEbQV1tLyro](https://www.youtube.com/watch?v=ZEbQV1tLyro)
+
+睦从来没有坐下这个不是重点，Soyo周围的空椅子是Soyo孤独的象征，比如她小时候的镜头里Soyo前面有两个空椅子，用广角镜头强化她家里的空旷感也是
+
+但是Soyo跟MyGO及CryChic成员在一起的时候有很多展示她周围坐着人/坐满了人的镜头，就是说和Soyo坐在一起象征着和她在同一个共同体（伐木累）里
+
+这也可以看出第10话Anon第一次走进Soyo的家并且坐下是一个象征意义非常强的举动
+
+<img src="https://img.saraba1st.com/forum/202407/30/153124jettujksw8ejtjev.jpg" referrerpolicy="no-referrer">
+
+<strong>00.jpg</strong> (80.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 15:31 上传
+

@@ -9168,3 +9168,20 @@ sumimi更火所以事务所优先保这个还真不好说，幕间里面有说�
 
 初华吉他都没换，这个盒真的需要事务所帮忙开吗，擅自调初华日程还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21580#       发表于 2024-7-30 22:08
+
+好像有点国产偶像剧的味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 21581#       发表于 2024-7-30 22:09
+
+能不能来个mern4id风格的团<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

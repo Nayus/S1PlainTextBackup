@@ -1756,3 +1756,21 @@ RPG部分会更重要点
 论坛助手,iPhone</blockquote>
 并不是 各硬件厂都发demo trailer了
 
+
+*****
+
+####  allenz3  
+##### 177#       发表于 2024-7-30 13:47
+
+被gbf吊打，骨折有时间再考虑，看来是预期高了
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  医生狼多  
+##### 178#       发表于 2024-7-30 13:50
+
+ps版demo怎么玩起来没振动
+

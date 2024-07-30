@@ -172,3 +172,44 @@ eba8b8f370e9efc2ae1dd076aa4151ec.jpeg
 
 雾子是冠军！！！
 
+
+*****
+
+####  黛冬优子  
+##### 5938#       发表于 2024-7-30 16:30
+
+ 本帖最后由 黛冬优子 于 2024-7-30 16:31 编辑 
+
+我不能接受
+
+<img src="https://img.saraba1st.com/forum/202407/30/163136u9f62pff30xgf6v6.jpg" referrerpolicy="no-referrer">
+
+<strong>67QH92$D@C{]2J1P`09F(RO_tmb.jpg</strong> (319.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 16:31 上传
+
+TLRCI~WDZX~P@@RJZJJ0PO6_tmb.jpg
+(59.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 16:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/162956g3iqiczvu1q3iy1v.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  陆久舟  
+##### 5939#       发表于 2024-7-30 16:30
+
+vims包揽前三
+
+*****
+
+####  achilleus  
+##### 5940#       发表于 2024-7-30 16:32
+
+果然还是国立医大B判技高一筹啊
+

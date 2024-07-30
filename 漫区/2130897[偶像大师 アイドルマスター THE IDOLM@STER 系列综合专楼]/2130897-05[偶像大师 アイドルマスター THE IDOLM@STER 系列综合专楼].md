@@ -346,3 +346,15 @@ image.png
 
 动画的画面和乐呵程度要是还比不上游戏剧情就好玩了
 
+
+*****
+
+####  Atamaitai  
+##### 5950#       发表于 2024-7-31 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749203&amp;ptid=2130897" target="_blank">黛冬优子 发表于 2024-7-30 23:31</a>
+说是学马动画25内出</blockquote>
+好快
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -8572,3 +8572,34 @@ mmr的思路是运营反应及时，mmr就喜欢这套
 
 泥楼天天被人视奸，还老被惦记，都这么不爽鸡杂了还来看，看就算了，怎还偷偷骂啊
 
+
+*****
+
+####  -LYRE-  
+##### 21525#       发表于 2024-7-30 11:11
+
+动画播完了、合号后还顶着纯狗头像背景顶了半年
+等鸡动画来了怎么也得顶着纯鸡头像背景半年吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 21526#       发表于 2024-7-30 11:13
+
+真的算针对吗……我觉得应该是完全查无此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实也只是大主播带风向才出来了一批所谓的爽睦厨吧，只要认真看mygo动画、有正常的人际交往经历，应该都不会觉得这两人有什么值得嗑cp的
+
+当然也不能排除有些人天生骨骼惊奇就是喜欢邪教味就是异食癖的可能性，又或者阅读理解能力太差还喜欢妄想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前者尊重祝福，只是口味不同的问题，后者就有点……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 21527#       发表于 2024-7-30 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是海玲生日那天爆了波大的，这官号会不会换头像还不一定呢，不过新头像就用了两个多月，现在换成灯祥头像了。现在的头像又能用多久呢？
+只能说给这官号幽默完了，反正我没见过其他官号有换头像这么勤的
+

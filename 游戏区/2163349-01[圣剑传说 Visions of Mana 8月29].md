@@ -1670,3 +1670,25 @@ PV看起来不错，不过不愧是SE的游戏，上作249，这作348，涨的�
 
 请假刚好打完试玩，这战斗部分还是不敢恭维的水平<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">冲动预购就当是给人设付费了
 
+
+*****
+
+####  crosz1985  
+##### 170#       发表于 2024-7-30 11:08
+
+悄无声息的上架了试玩版
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jbjack1215  
+##### 171#       发表于 2024-7-30 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65741780&amp;ptid=2163349" target="_blank">zqqwe 发表于 2024-7-30 11:01</a>
+请假刚好打完试玩，这战斗部分还是不敢恭维的水平冲动预购就当是给人设付费了 ...</blockquote>
+呃，多差？
+
+我感觉动作性跟3re差不多就行了，z轴战斗其实不是那么必要
+RPG部分会更重要点
+

@@ -8992,3 +8992,17 @@ C4GDL5@F{[(A8J2RHUKRPUB.jpg
 
 为什么sumimi会解散？
 
+
+*****
+
+####  玖羽  
+##### 21559#       发表于 2024-7-30 21:11
+
+ 本帖最后由 玖羽 于 2024-7-30 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744688&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-7-30 15:34</a>
+
+和Soyo坐在一起象征着和她在同一个共同体里</blockquote>
+补充一点我刚才想到的
+
+Soyo为什么在吹奏乐部里拉低音提琴，因为拉低音提琴的时候必须站着<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer"> 
+

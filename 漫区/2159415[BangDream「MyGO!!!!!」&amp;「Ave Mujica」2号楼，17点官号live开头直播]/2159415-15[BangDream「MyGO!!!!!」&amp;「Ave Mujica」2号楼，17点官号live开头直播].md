@@ -8852,3 +8852,22 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 毕竟13集看下来初华侵略性更强一点，一直在试探祥子的雷区范围<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21547#       发表于 2024-7-30 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743319&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-30 13:16</a>
+
+@星天观测 新活是橙色。</blockquote>
+okok来了
+
+
+*****
+
+####  星天观测  
+##### 21548#       发表于 2024-7-30 14:15
+
+居然是roselia和兰的翻唱，我又要开始怀念竞宴了，十周年live能不能再竞一次<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

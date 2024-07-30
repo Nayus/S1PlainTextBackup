@@ -338,3 +338,11 @@ image.png
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  没取名啊  
+##### 5949#       发表于 2024-7-31 01:12
+
+动画的画面和乐呵程度要是还比不上游戏剧情就好玩了
+

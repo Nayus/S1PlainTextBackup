@@ -9229,3 +9229,30 @@ dj是18+游戏才能搞尺度这么大的，你邦3+可能性不大<img src="htt
 
 真要加入粉圈搞这么复杂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像离邦世界有点远啊
 
+
+*****
+
+####  skives  
+##### 21587#       发表于 2024-7-30 22:26
+
+鸡动画能加入各种符合时代的潮元素也挺好的
+网络主播、偶像、家道中落的大小姐，（疑似）精神疾病。
+从人物背景看可挖掘的东西就很多，不知道会选什么方向
+
+
+*****
+
+####  PDQ4  
+##### 21588#       发表于 2024-7-30 22:31
+
+鸡这个风格离你邦已经很远了，不过涉及这么深那纯粹我瞎讲，没可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大概率还是纯粹初华自己问题的一个表现，可能进了手游箱活不知道怎么写剧情了就会又把sumimi拉出来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21589#       发表于 2024-7-30 22:31
+
+希望不要选粉丝斗争吧，一想到就感觉头开始疼了
+

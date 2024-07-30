@@ -913,3 +913,16 @@ webwxgetmsgimg.jfif
 
 兽科队....成本就是暗狐和狮子王开了20NP,狮子王低宝建议带输出礼装,打一炮10W就可以了...但实际要开宝具的机会不高<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 13132#       发表于 2024-7-30 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65746230&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-7-30 18:07</a>
+
+这么复杂不如黑呆直接秒了（</blockquote>
+黑傻才得寶1
+
+不過這組合都能3回合確定能殺，也不用補刀
+

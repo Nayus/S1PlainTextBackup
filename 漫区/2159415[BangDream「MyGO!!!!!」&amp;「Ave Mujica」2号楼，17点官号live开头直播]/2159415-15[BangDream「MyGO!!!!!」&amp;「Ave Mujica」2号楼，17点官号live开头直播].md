@@ -9051,3 +9051,44 @@ nbcs sumimi
 
 我也觉得不会解散，解散了对初华对祥子对鸡都是一个不好解释的debuff，可惜大环境似乎就是觉得初华没法兼顾，以及很想看解散然后甜甜圈被迫害的样子
 
+
+*****
+
+####  PDQ4  
+##### 21565#       发表于 2024-7-30 21:38
+
+初华很累和sumimi会不会解散没有任何联系，只能说这里初华的状态暗示了一部分她自己的问题，而且可能和sumimi有关系，这里不仅仅只能指mana，也可能和经纪公司等相关，如果和公司关联又会联系上鸡团，个人会倾向于猜这个结论
+
+至于mana这个角色会是什么定位，之前好像讨论过，但是基本没什么线索就只是猜罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+如果反田拉过来是为了开新团，那mana的地位会比npc高很多，如果没有新团企划那大概就是和手游的高级npc一样地位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑夜落叶秋天  
+##### 21566#       发表于 2024-7-30 21:39
+
+甜甜圈：首先 我没有惹你们任何人
+
+
+*****
+
+####  ytttsuuuba  
+##### 21567#       发表于 2024-7-30 21:41
+
+甜甜圈被迫不迫害倒是无所谓了，就现在才露了个脸被迫害的也没见少啊。无法兼顾的话，从各种角度来看需要担心的是mujica吧，经纪公司眼里肯定sumimi赚钱。而且，别整什么sumimi解散了，到时候不得又成祥子全锅罪大恶极了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21568#       发表于 2024-7-30 21:43
+
+我觉得这个不用担心，因为无论结果如何祥子都会被认为罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21569#       发表于 2024-7-30 21:45
+
+诶，我倒是还挺喜欢mana的
+

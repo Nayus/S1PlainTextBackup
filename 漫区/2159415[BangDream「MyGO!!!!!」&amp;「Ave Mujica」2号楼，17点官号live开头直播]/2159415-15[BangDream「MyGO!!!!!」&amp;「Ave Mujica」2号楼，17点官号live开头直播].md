@@ -8940,3 +8940,31 @@ okok来了
 
 [键盘手含量过高的ave mujica-哔哩哔哩] https://b23.tv/Lr81mIn
 
+
+*****
+
+####  星天观测  
+##### 21555#       发表于 2024-7-30 18:36
+
+李子还是去了海底捞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可惜好像不是鸡团建去的，希望以后有机会看她们火锅团建
+
+7@((6~($G%~JATBI]27TOIA.jpg
+(391.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/183542tc5ewc7z9oymhc59.jpg" referrerpolicy="no-referrer">
+
+C4GDL5@F{[(A8J2RHUKRPUB.jpg
+(326.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/183542b88wwr8q1rq2uzb8.jpg" referrerpolicy="no-referrer">
+

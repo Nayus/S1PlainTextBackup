@@ -8871,3 +8871,11 @@ okok来了
 
 居然是roselia和兰的翻唱，我又要开始怀念竞宴了，十周年live能不能再竞一次<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21549#       发表于 2024-7-30 14:25
+
+【【音频】Surges - Roselia × 蘭-哔哩哔哩】 https://b23.tv/Zwmmp1S
+

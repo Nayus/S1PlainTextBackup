@@ -8784,3 +8784,22 @@ B站官号不就是和羊姐一样的热度厨嘛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能性不大，gbc在国内热度一般，不如看看鸡动画播出后这官号会不会换头像，要是不换还能敬他是条汉子
 
+
+*****
+
+####  rikaren  
+##### 21541#       发表于 2024-7-30 12:54
+
+<blockquote>星天观测 发表于 2024-7-29 10:21
+真没人要死要活么，昨晚泥楼给初华说两句已经被阴湿人骂不是祥孝楼是初孝楼了，谁在要死要活的我不好说 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202407/30/125354dw1qiwuvo1hk91i1.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1722315051176.jpg</strong> (92.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 12:53 上传
+
+讲个好笑的，隔壁专楼有人提问了这个，然后完全没人回应，是因为自己也知道和臆想中的祥孝楼完全不一样吗？
+

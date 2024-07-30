@@ -1983,3 +1983,22 @@ demo有点短，整体符合预期吧，2线作品，特点和硬伤都有，这
 
 6月份发售日预告的光影很惊艳的，不懂为啥实机菜成这样，开场雪山女主那黑脸跟死人似的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三尖酸努努  
+##### 202#       发表于 2024-7-30 22:21
+
+仅从试玩来看，战斗真的不太行
+
+*****
+
+####  三尖酸努努  
+##### 203#       发表于 2024-7-30 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743617&amp;ptid=2163349" target="_blank">allenz3 发表于 2024-7-30 13:47</a>
+被gbf吊打，骨折有时间再考虑，看来是预期高了
+
+—— 来自 nubia NX712J, Android 13上的 S1Next-鹅版 v2.5 ...</blockquote>
+se不是最多四折吗，咋骨折
+

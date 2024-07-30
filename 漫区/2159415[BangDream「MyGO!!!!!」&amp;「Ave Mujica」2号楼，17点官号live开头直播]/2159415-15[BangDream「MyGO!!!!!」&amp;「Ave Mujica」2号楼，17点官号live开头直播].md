@@ -9185,3 +9185,47 @@ sumimi更火所以事务所优先保这个还真不好说，幕间里面有说�
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  skives  
+##### 21582#       发表于 2024-7-30 22:15
+
+想看初华护妻
+
+*****
+
+####  NODY  
+##### 21583#       发表于 2024-7-30 22:16
+
+dj是18+游戏才能搞尺度这么大的，你邦3+可能性不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21584#       发表于 2024-7-30 22:17
+
+粉丝开盒和事务所开盒发文稿主动转移热度还是不一样的，特别是针对路人粉
+
+事务所要真想恰流量，在鸡团上升期铺天盖地通稿说大热doloris是sumimi主唱，然后文内再暗示一些在sumimi的时候也没耽误工作，捧杀鸡实吹sumimi这种，两边粉丝可以撕的昏天黑地
+
+如果鸡动画真要涉及一部分娱乐圈的事，不相信事务所不动刀子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21585#       发表于 2024-7-30 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65748565&amp;ptid=2159415" target="_blank">skives 发表于 2024-7-30 22:15</a>
+
+想看初华护妻</blockquote>
+我朋友写过一篇小短文大概算是这种，但是她写的是初真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 21586#       发表于 2024-7-30 22:21
+
+真要加入粉圈搞这么复杂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像离邦世界有点远啊
+

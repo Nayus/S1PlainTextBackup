@@ -9332,3 +9332,34 @@ dj是18+游戏才能搞尺度这么大的，你邦3+可能性不大<img src="htt
 
 妖女当新团主唱不是挺好，小黄歌这块就有希望了
 
+
+*****
+
+####  NODY  
+##### 21599#       发表于 2024-7-30 23:10
+
+祥子的家庭情况很适合做文章，我看别的偶像番就有上节目被翻出有个人渣爹，然后在角色不知情的情况下让渣爹上节目玩苦情认亲，然后那个角色不肯合作在直播现场把渣爹打了，不过这么黑的展开感觉你邦不敢写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 21600#       发表于 2024-7-30 23:14
+
+希望能比本家的剧情冲突更深刻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜落叶秋天  
+##### 21601#       发表于 2024-7-30 23:16
+
+可能mujica到最后也没开盒成功吧 但是开盒过程中粉丝不断阴湿导致mujica众人身心力疲 最后私下爆了
+
+*****
+
+####  六道明  
+##### 21602#       发表于 2024-7-30 23:17
+
+不一定是渣爹啊，可能是入赘爹散尽家财给娘治病无果，被赶出家族心灰意冷<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

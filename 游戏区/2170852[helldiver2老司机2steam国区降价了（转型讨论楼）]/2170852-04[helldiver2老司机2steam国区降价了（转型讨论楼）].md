@@ -65,3 +65,42 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  kratos_li  
+##### 5096#       发表于 2024-7-30 14:37
+
+这个p2p联机方式，和好友互相进不去房间。两个人永远打不到照面，江苏电信和上海电信，有什么解决办法吗。加速器网易uu开不开都一样。
+
+*****
+
+####  Launce  
+##### 5097#       发表于 2024-7-30 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744012&amp;ptid=2170852" target="_blank">kratos_li 发表于 2024-7-30 14:37</a>
+
+这个p2p联机方式，和好友互相进不去房间。两个人永远打不到照面，江苏电信和上海电信，有什么解决办法吗。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主
+
+
+*****
+
+####  kratos_li  
+##### 5098#       发表于 2024-7-30 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744057&amp;ptid=2170852" target="_blank">Launce 发表于 2024-7-30 14:41</a>
+
+P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</blockquote>
+厉害的就在这里，第三人建主，互斥的两个人，第二个进的会炸房。要么原来人被踢，要么后面人进不去。
+
+*****
+
+####  Launce  
+##### 5099#       发表于 2024-7-30 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744089&amp;ptid=2170852" target="_blank">kratos_li 发表于 2024-7-30 14:44</a>
+
+厉害的就在这里，第三人建主，互斥的两个人，第二个进的会炸房。要么原来人被踢，要么后面人进不去。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那彻底GG，国内P2P突出一个折磨，说不定第二天又不互斥了
+

@@ -1743,3 +1743,14 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 论坛助手,iPhone ...</blockquote>
 那个总集篇好像就是把大量内心戏份删掉再加上部分重新配音，搞不懂尾石怎么六年就憋出个这玩意，我一开始还以为结尾有新的法语歌呢，结果好像并没有
 
+
+*****
+
+####  Sliurus  
+##### 584#       发表于 2024-7-30 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743327&amp;ptid=2168085" target="_blank">努斯万克 发表于 2024-7-30 13:16</a>
+
+好多剧情都忘记了就想再看一遍，但是物语系列这么多集也是望而却步。</blockquote>
+当新动画慢慢看呗，其实中间好几部都是四五集一部，看起来很快的
+

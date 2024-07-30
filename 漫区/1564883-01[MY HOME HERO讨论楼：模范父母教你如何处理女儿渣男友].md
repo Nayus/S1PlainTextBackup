@@ -199,3 +199,20 @@ SB作者。
 所以第三部啥情况，窐哥最后抓到没</blockquote>
 一开始就让老爹宰了
 
+
+*****
+
+####  猎人D  
+##### 784#       发表于 2024-7-30 14:38
+
+虽然肯定会是被抓结局，但这女儿的处理上还是太失望了
+
+*****
+
+####  chivalry  
+##### 785#       发表于 2024-7-30 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744017&amp;ptid=1564883" target="_blank">沼蝇 发表于 2024-7-30 14:37</a>
+一开始就让老爹宰了</blockquote>
+麻了，今天看书报才知道完结了，就这样的话还不如第二部同归于尽来的好呢
+

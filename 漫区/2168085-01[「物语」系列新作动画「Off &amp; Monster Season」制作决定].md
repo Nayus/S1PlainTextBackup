@@ -1676,3 +1676,22 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 已经觉得这系列不会完结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">他要想完结终物语的时候就该结束了
 
+
+*****
+
+####  oi99o  
+##### 577#       发表于 2024-7-30 12:40
+
+吐槽一下，伤物语总集篇bd发售一周了还没有资源，我们物语现在这么凉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tiro_finale  
+##### 578#       发表于 2024-7-30 12:44
+
+终已经算完结了啊，把伏线全收了
+现在是西尾逮着一只羊薅的番外篇了，类似童年经典的长大篇，整点烂活在意的人都不多了
+

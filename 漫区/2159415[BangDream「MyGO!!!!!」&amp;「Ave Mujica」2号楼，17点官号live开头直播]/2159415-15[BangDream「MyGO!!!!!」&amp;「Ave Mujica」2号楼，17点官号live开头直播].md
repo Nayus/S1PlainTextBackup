@@ -9449,3 +9449,24 @@ mygo的剧情架构跟魔法少女小圆挺像的
 
 但一个被感情蒙蔽双眼一开始天真地想要奉献的人，和被感情蒙蔽双眼但却在一开始更偏向正当化自己负面行为、无来由将他人牵扯进来的人，从某种意义上来说也可以称得上是几乎相反的角色吧
 
+
+*****
+
+####  星天观测  
+##### 21609#       发表于 2024-7-31 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749188&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-30 23:29</a>
+
+其实开盒和黑粉阴湿这种剧情前辈已经玩过了</blockquote>
+但是以你鸡现在的讨论环境来看，真这么搞了感觉又要出现各种烂梗小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21610#       发表于 2024-7-31 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749668&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-7-31 00:35</a>
+
+但是以你鸡现在的讨论环境来看，真这么搞了感觉又要出现各种烂梗小鬼了 ...</blockquote>
+mujica怎么写都会有烂梗小鬼的，这不是脚本怎么写的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

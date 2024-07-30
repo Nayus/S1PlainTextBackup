@@ -182,3 +182,20 @@ SB作者。
 
 我更希望是一开始画面是明带女朋友回家看歌仙，然后零花翻看之前的教材，然后看到了父亲的案例，和家人一起吃饭，然后切入当年的电视新闻和回忆。最后由明来点个题“MY HOME HERO。”
 
+
+*****
+
+####  chivalry  
+##### 782#       发表于 2024-7-30 14:36
+
+所以第三部啥情况，窐哥最后抓到没
+
+*****
+
+####  沼蝇  
+##### 783#       发表于 2024-7-30 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65744010&amp;ptid=1564883" target="_blank">chivalry 发表于 2024-7-30 14:36</a>
+所以第三部啥情况，窐哥最后抓到没</blockquote>
+一开始就让老爹宰了
+

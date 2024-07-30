@@ -9493,3 +9493,43 @@ mujica怎么写都会有烂梗小鬼的，这不是脚本怎么写的问题<img 
 
 希望祥子能拥有破罐破摔的精神
 
+
+*****
+
+####  紫吹兰  
+##### 21614#         楼主| 发表于 2024-7-31 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749096&amp;ptid=2159415" target="_blank">黑夜落叶秋天 发表于 2024-7-30 23:16</a>
+
+可能mujica到最后也没开盒成功吧 但是开盒过程中粉丝不断阴湿导致mujica众人身心力疲 最后私下爆了 ...</blockquote>
+肯定要被盒成功的，祥子找大喵的理由就是“脸和数字”，怎么可能一直不让她露脸。现在这蒙面玩法本来就是为了烂炒恰流量，初华的吉他这么明显的指示物不就是为了制造话题度。
+
+而且吧，你真准备让声优一直带着面具开live吗<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 21615#       发表于 2024-7-31 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749574&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-7-31 00:22</a>
+
+很有趣，架构上或许确实有相似之处，但我认为内核却几乎是截然相反的，小圆依旧可以被大部分人看做是一个有 ...</blockquote>
+这就是我在前面说的MyGO的一大优点，很多作品都把人物弧光的终点放在“解决”角色的负面性上，默认这些负面性是某种需要被修复的故障，或者需要被切除的异物
+
+但是很多角色的负面性和个性恰恰是密切相关的，切除负面性就等于切除个性，让各种不同的角色全都沦为千篇一律的“平庸的好人”
+
+MyGO没有这么做，而是让所有角色依然保留自己的负面性，她们的人物弧光是学会理解队友的负面性，并且不再自欺欺人地隐藏自己的负面性
+
+所以MyGO的成员可以在保留自己的负面性（很大程度上也是个性）的基础上互相包容，在磕磕碰碰中寻找共同语言，因为大家都是MAIGO
+
+说得直白一点就是大家都不装了，尽管不装，还是要一辈子乐队
+
+<img src="https://img.saraba1st.com/forum/202407/31/011026kw6nk6v21ywqrky0.jpg" referrerpolicy="no-referrer">
+
+<strong>00.jpg</strong> (60.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 01:10 上传
+

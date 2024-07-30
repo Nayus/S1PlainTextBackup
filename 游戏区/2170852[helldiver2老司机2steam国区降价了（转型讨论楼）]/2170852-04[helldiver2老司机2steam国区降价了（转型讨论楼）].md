@@ -180,3 +180,28 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ravend233  
+##### 5107#       发表于 2024-7-30 21:55
+
+主手喷火器，副手喷火器，泵动火焰喷，75%防火甲，就这些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  BadYanL  
+##### 5108#       发表于 2024-7-30 22:03
+
+火法回归！不过全是橙火焰好单调
+
+*****
+
+####  BadYanL  
+##### 5109#       发表于 2024-7-30 22:04
+
+还差个喷火塔
+

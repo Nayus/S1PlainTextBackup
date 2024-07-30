@@ -1975,3 +1975,11 @@ demo有点短，整体符合预期吧，2线作品，特点和硬伤都有，这
 
 就别碰瓷relink了吧，搞得跟龙信2一样捧杀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黑酒杯  
+##### 201#       发表于 2024-7-30 21:57
+
+6月份发售日预告的光影很惊艳的，不懂为啥实机菜成这样，开场雪山女主那黑脸跟死人似的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

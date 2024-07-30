@@ -9122,3 +9122,49 @@ nbcs sumimi
 
 sumimi更火所以事务所优先保这个还真不好说，幕间里面有说人们喜新厌旧的，没准指的就是mujica一出来sumimi就糊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21574#       发表于 2024-7-30 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是不管怎样，初华最后还是会被祥子牛走啊，甜甜圈最后还是逃不过被迫害的命啊
+
+*****
+
+####  星天观测  
+##### 21575#       发表于 2024-7-30 21:58
+
+鸡和sumimi大概不算同一个赛道吧
+
+*****
+
+####  紫吹兰  
+##### 21576#         楼主| 发表于 2024-7-30 21:59
+
+<blockquote>星天观测 发表于 2024-7-30 21:50
+反妖女当主唱那可真不知道新团是什么风格了</blockquote>
+影响不大，反田她自己那些高p图和4l也不是一个风格啊
+
+*****
+
+####  PDQ4  
+##### 21577#       发表于 2024-7-30 22:00
+
+幕间那个喜新厌旧水性杨花念的很轻蔑，真按照这个去思考，不如奶鸡团蒸蒸日上的时候事务所为了给sumimi顺热度主动把doloris开盒了，没过问初华的意见/初华知情后第一反应没能反驳，还能对应doloris幕间说的空气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 21578#       发表于 2024-7-30 22:02
+
+初华吉他都没换，这个盒真的需要事务所主动开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21579#       发表于 2024-7-30 22:02
+
+初华吉他都没换，这个盒真的需要事务所帮忙开吗，擅自调初华日程还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

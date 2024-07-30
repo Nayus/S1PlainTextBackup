@@ -646,3 +646,11 @@ ps：精灵法师塔是不是还是那么废啊
 
 通关了，还有四个成就没拿，都跟难度有关，算了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 65#       发表于 2024-7-30 20:52
+
+还好没有买，连图鉴这么基本的功能都没有就端上来了，没有大厂的命得了大厂的病
+

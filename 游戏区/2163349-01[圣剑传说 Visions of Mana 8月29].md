@@ -1692,3 +1692,16 @@ PV看起来不错，不过不愧是SE的游戏，上作249，这作348，涨的�
 我感觉动作性跟3re差不多就行了，z轴战斗其实不是那么必要
 RPG部分会更重要点
 
+
+*****
+
+####  zqqwe  
+##### 172#       发表于 2024-7-30 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65741875&amp;ptid=2163349" target="_blank">jbjack1215 发表于 2024-7-30 11:09</a>
+
+呃，多差？
+
+我感觉动作性跟3re差不多就行了，z轴战斗其实不是那么必要</blockquote>
+应该是我对act部分期望过高的锅，其实就是保持3re的味道
+

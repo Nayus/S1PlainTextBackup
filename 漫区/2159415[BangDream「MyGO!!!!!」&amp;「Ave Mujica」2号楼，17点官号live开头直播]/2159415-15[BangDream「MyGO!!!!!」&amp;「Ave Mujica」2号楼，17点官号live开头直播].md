@@ -8740,3 +8740,19 @@ QQ图片20240730113608.jpg
 
 <img src="https://img.saraba1st.com/forum/202407/30/113639f2lww6d6gwwxdnjh.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21536#       发表于 2024-7-30 11:38
+
+监督和独角兽磕的都是爱素（独角兽还磕灯祥初祥睦祥），素睦对哪一边都算拆cp，当然不会聊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 21537#       发表于 2024-7-30 11:46
+
+爱用谁用谁呗，wsd喜欢怎么搞就怎么搞，只是这就开始指导了谁急的pb我不好说
+

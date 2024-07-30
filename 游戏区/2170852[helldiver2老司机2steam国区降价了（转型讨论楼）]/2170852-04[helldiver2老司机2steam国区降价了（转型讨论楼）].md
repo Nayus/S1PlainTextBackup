@@ -148,3 +148,15 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这几个搞能见度的星球还有个机制就是扔战备会炸出一片更浓的雾，越打越瞎
 
+
+*****
+
+####  Aeons  
+##### 5104#       发表于 2024-7-30 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65747418&amp;ptid=2170852" target="_blank">九十九忍 发表于 2024-7-30 20:21</a>
+
+这几个搞能见度的星球还有个机制就是扔战备会炸出一片更浓的雾，越打越瞎 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">机器人几个图落地人模狗样的视野一片开阔看起来还行，开打后战备子弹飞起来，没一会就啥都看不见了
+

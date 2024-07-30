@@ -9006,3 +9006,15 @@ C4GDL5@F{[(A8J2RHUKRPUB.jpg
 
 Soyo为什么在吹奏乐部里拉低音提琴，因为拉低音提琴的时候必须站着<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer"> 
 
+
+*****
+
+####  紫吹兰  
+##### 21560#         楼主| 发表于 2024-7-30 21:23
+
+<blockquote>玖羽 发表于 2024-7-30 21:11
+补充一点我刚才想到的，Soyo为什么在吹奏乐部里拉低音提琴，因为拉低音提琴的时候必须站着 
+
+和其他月之森 ...</blockquote>
+拉低音提琴是因为那是原声贝斯……
+

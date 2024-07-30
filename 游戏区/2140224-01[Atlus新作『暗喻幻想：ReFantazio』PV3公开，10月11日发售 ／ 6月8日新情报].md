@@ -73,3 +73,24 @@ PGDX（菲律宾游戏开发者展会）、台北漫画博览会 贺图
 
 下一次专场（第五场）将在8月下旬公开「日常旅行篇」
 
+
+*****
+
+####  ouyang菌  
+##### 616#       发表于 2024-7-30 21:16
+
+怎么角色篇出来了也没啥讨论度
+
+虽然好像确实没啥能讨论的就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最大的感想是部分人设真的很......出人意料
+
+R5N4}NB0)Q`JYJX)1BLSMUU.jpg
+(156.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 21:16 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/211641u1k7ololk60do71b.jpg" referrerpolicy="no-referrer">
+

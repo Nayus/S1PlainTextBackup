@@ -9378,3 +9378,38 @@ dj是18+游戏才能搞尺度这么大的，你邦3+可能性不大<img src="htt
 
 被粉丝阴湿……我的天……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21605#       发表于 2024-7-30 23:29
+
+ 本帖最后由 NODY 于 2024-7-30 23:30 编辑 
+
+其实开盒和黑粉阴湿这种剧情前辈已经玩过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202407/30/232921wkcojtkf2u222gxu.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (67.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 23:29 上传
+
+<img src="https://img.saraba1st.com/forum/202407/30/233048h9aamptm4zbpm9az.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (361.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-30 23:30 上传
+
+
+*****
+
+####  akiomn  
+##### 21606#       发表于 2024-7-30 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开盒后受益最大的不是大喵吗？自己是视频博主，本身就是冲着米和流量来的，就是付出的代价有那么点大（脸和数字）
+不论剧内剧外都是呢（每一场live都会死一只大喵，祥子你有什么头绪吗）
+

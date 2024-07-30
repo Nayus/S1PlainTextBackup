@@ -9470,3 +9470,11 @@ mygo的剧情架构跟魔法少女小圆挺像的
 但是以你鸡现在的讨论环境来看，真这么搞了感觉又要出现各种烂梗小鬼了 ...</blockquote>
 mujica怎么写都会有烂梗小鬼的，这不是脚本怎么写的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21611#       发表于 2024-7-31 00:52
+
+以祥子的自尊心来说，被网友或者电视台当场开出和爹住小破屋的话，伤害应该比楚平方被开盒大得多，当然不排除祥子出道第二天就拿钱带着爹搬进正经房子防止被盒了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

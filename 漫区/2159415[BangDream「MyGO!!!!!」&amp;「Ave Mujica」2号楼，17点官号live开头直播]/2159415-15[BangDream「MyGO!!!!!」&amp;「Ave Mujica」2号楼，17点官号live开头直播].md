@@ -10035,3 +10035,27 @@ bml这个导播切了个牛魔<img src="https://static.saraba1st.com/image/smile
 
 要塑造完整可能得等到海铃的剧情，海铃对立希原因不明的单箭头肯定不是随便写的
 
+
+*****
+
+####  PDQ4  
+##### 21649#       发表于 2024-7-31 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65759279&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-7-31 22:11</a>
+
+我觉得最重要的原因是立希在MyGO里不算被塑造完整，她是五人里唯一一个没展现过去经历的（虽然间接提到过 ...</blockquote>
+这里我认为立希的问题我觉得大概率会下放到手游解决，作为五人动画来讲立希塑造确实不完整
+
+海铃大概有自身想被看到的问题亟待解决，能和立希问题一起打包不失为一种举措，但个人不太看好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21650#       发表于 2024-7-31 22:25
+
+负面属性要平衡观感，要么给高光来盖过负面表现（爱音、灯、猫），要么给详细的能让人共情的描写来中和（素世），立希很不巧两样都没有，但在剧情里面又拉了不少仇恨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+看b站历史评论的话动画前立希也对灯双标但风评还可以，隔壁好像有早期企划追过来的说立希动画前人气比较高，所以主要原因应该还是立希拉仇恨的事情太多了又没有其他人那样的补救剧情
+
+如果mujica动画也要搞强化负面属性这一套，那负责拉仇恨的部分和高光回忆杀这类中和元素的使用，就得好好斟酌斟酌了，别再搞出个光拉仇恨不找补的立希二号来
+

@@ -18,3 +18,11 @@
 听说890m在15到30w功耗下还不如780m</blockquote>CPU抢电，GPU再强也发挥不出来
 [https://www.bilibili.com/video/BV1jZ421K7CC](https://www.bilibili.com/video/BV1jZ421K7CC)
 
+
+*****
+
+####  zzy516232108  
+##### 1267#       发表于 2024-7-31 17:23
+
+想问下有没有安卓掌机/寨机的楼，没搜到
+

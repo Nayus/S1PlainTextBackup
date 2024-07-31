@@ -2146,3 +2146,13 @@ Nako 新单初动 2784
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 20714#       发表于 2024-7-31 20:58
+
+演日剧也挺好，不过bl剧啊？上次看bl剧也是因为假面骑士来着。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

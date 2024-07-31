@@ -567,3 +567,15 @@ pjsk不比拉拉邦邦那些手游强？是靠动画带的吗，他们组合拳�
 
 邦组合拳打的飞起但是没用啊，看似热热闹闹实际转换率可不尽人意
 
+
+*****
+
+####  Alleyht  
+##### 5968#       发表于 2024-8-1 02:53
+
+TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结果只来了羽那红色形态和峰峰峰，暮光池临近然而手头快没矿了
+
+音游在泳装池砸了3W才把米组和嘘组抽齐，为了抽星组又砸了2w，还搭了一堆母猪石升五星，这下无课党真离含恨退坑不远了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+不过音游新歌真是热闹，震惊！283小偶像竟在光天化日下脱去上衣！人多就是好，帧率什么的都无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

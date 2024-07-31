@@ -6,3 +6,15 @@
 
 听说890m在15到30w功耗下还不如780m
 
+
+*****
+
+####  瓦拉几亚之夜  
+##### 1266#       发表于 2024-7-31 12:36
+
+ 本帖最后由 瓦拉几亚之夜 于 2024-7-31 12:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65751284&amp;ptid=2086469" target="_blank">酷乐 发表于 2024-7-31 09:52</a>
+
+听说890m在15到30w功耗下还不如780m</blockquote>CPU抢电，GPU再强也发挥不出来
+[https://www.bilibili.com/video/BV1jZ421K7CC](https://www.bilibili.com/video/BV1jZ421K7CC)
+

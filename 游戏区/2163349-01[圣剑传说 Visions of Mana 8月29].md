@@ -2070,3 +2070,11 @@ se不是最多四折吗，咋骨折
 
 这打光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我用sd玩一上来还以为主角是个小黑哥，我合计怎么圣剑也开始zzzq了
 
+
+*****
+
+####  alingzero  
+##### 212#       发表于 2024-8-1 05:05
+
+这试玩版问题是不是有点多？进CG所有角色皮肤变黑，画面卡顿，人物无法正常跑动（前后左右都正常，但是摇杆一往斜方向推，人物就只会缓慢行走）
+

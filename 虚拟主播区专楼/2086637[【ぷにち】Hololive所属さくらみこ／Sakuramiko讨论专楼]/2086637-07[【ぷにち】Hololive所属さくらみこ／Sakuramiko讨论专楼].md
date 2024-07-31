@@ -5568,3 +5568,18 @@ ark服最后一天是要过周年庆的实际上可能很难参加
 
 DMM的工商，好像以前很少有
 
+
+*****
+
+####  rs5621  
+##### 9366#       发表于 2024-7-31 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dmm？要做进黄油了么
+
+*****
+
+####  holoan  
+##### 9367#         楼主| 发表于 2024-7-31 14:28
+
+是DMM自己新搞的线上娃娃机品牌，做活动请嘉宾来现场玩做宣传
+

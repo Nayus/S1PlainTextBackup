@@ -28,3 +28,13 @@
 
 据说更新后已经比不联网的实体版更舒服了
 
+
+*****
+
+####  Bani82  
+##### 1686#       发表于 2024-8-1 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65760827&amp;ptid=1978008" target="_blank">石中剑二 发表于 2024-8-1 01:44</a>
+据说更新后已经比不联网的实体版更舒服了</blockquote>
+新衣服露出度是很高，老衣服也反和谐了？
+

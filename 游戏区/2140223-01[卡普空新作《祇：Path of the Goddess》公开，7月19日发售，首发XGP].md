@@ -1302,3 +1302,16 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 专注躲避的话几乎没有难度，虽然打得很快但过程比较无聊……
 
+
+*****
+
+####  megaheracross  
+##### 189#       发表于 2024-7-31 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65759103&amp;ptid=2140223" target="_blank">ralfli 发表于 2024-7-31 21:48</a>
+
+个人有个逃课打法，比较破坏体验，推荐多周目使用
+
+两个奶妈剩下全阴阳师，刀锷带朱雀白虎和大阴，魔像带 ...</blockquote>
+啊原来阴阳师对BOSS也有效的么，才知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1778,3 +1778,16 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 加油啊沙发套的大哥哥，不要做着做着又工期爆炸众叛亲离啊
 
+
+*****
+
+####  零壹贰叁  
+##### 587#       发表于 2024-7-31 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65743998&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-7-30 14:34</a>
+那个总集篇好像就是把大量内心戏份删掉再加上部分重新配音，搞不懂尾石怎么六年就憋出个这玩意，我一开始 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">知道尾石做了五六年总集篇我是非常震惊的
+到底怎么才能做这么久
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

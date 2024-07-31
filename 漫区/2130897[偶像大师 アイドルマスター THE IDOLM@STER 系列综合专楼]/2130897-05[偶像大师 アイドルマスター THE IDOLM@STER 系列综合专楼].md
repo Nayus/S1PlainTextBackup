@@ -433,3 +433,14 @@ image.png
 
 或者票选复活赛和票选冠军
 
+
+*****
+
+####  achilleus  
+##### 5956#       发表于 2024-7-31 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65753815&amp;ptid=2130897" target="_blank">野菜一日分 发表于 2024-7-31 13:06</a>
+
+按学马这个开服投入的资源和宣发，尽可能快的出动画才符合水平，之前的media mix做的太拉了 ...</blockquote>
+本家11版是配合PS3版2代，CG，SM，SC都是在出手游的同时出的的动画，哪里拉了
+

@@ -455,3 +455,33 @@ image.png
 本家11版是配合PS3版2代，CG，SM，SC都是在出手游的同时出的的动画，哪里拉了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大哥，现在2024年了，上一次成功的CG动画都已经快10年了，315动画成功了然后后续运营烂完了，手游一坨屎还不如走路工，SCSP出的时候这个企划都过去5年了，然后这个手游以及后续的动画什么质量大家也有目共睹。你看着人家邦和拉组合拳打的飞起，先不说成品如何，对比下来百万、男人、闪彩的media mix也能叫不拉吗。
 
+
+*****
+
+####  cckuku  
+##### 5958#       发表于 2024-7-31 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65754629&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-7-31 14:22</a>
+ 本家11版是配合PS3版2代，CG，SM，SC都是在出手游的同时出的的动画，哪里拉了 ...</blockquote>
+为什么不提百万呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  achilleus  
+##### 5959#       发表于 2024-7-31 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65754794&amp;ptid=2130897" target="_blank">野菜一日分 发表于 2024-7-31 14:38</a>
+
+大哥，现在2024年了，上一次成功的CG动画都已经快10年了，315动画成功了然后后续运营烂完了，手游一坨屎 ...</blockquote>
+所以拉的是作品本身素质，不是media mix的操作啊，你吐槽错对象了呀
+
+*****
+
+####  achilleus  
+##### 5960#       发表于 2024-7-31 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65754887&amp;ptid=2130897" target="_blank">cckuku 发表于 2024-7-31 14:48</a>
+
+为什么不提百万呢</blockquote>
+百万有11th live<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

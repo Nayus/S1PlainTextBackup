@@ -551,3 +551,11 @@ pjsk不比拉拉邦邦那些手游强？是靠动画带的吗，他们组合拳�
 
 所以动画配合3D手游齐出，正是sc逆天改命的绝好机会，结果嘛<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格雷殿下  
+##### 5966#       发表于 2024-7-31 19:11
+
+萌新刚来，是准备要烤羊了吗
+

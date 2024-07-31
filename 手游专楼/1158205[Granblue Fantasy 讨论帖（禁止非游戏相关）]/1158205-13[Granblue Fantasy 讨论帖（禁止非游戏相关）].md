@@ -599,3 +599,13 @@ GBF一年六七十个角色，上不了前排就是个玩具的才是大多数�
 
 1井二姐赫卡忒都没有,CY退钱！<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Meiien  
+##### 18071#       发表于 2024-7-31 19:12
+
+福利缩水是不是关服前兆？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

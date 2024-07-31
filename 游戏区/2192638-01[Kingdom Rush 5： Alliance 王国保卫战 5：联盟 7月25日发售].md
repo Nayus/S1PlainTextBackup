@@ -691,3 +691,15 @@ ps：精灵法师塔是不是还是那么废啊
 
 —— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Blackson  
+##### 69#       发表于 2024-7-31 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749352&amp;ptid=2192638" target="_blank">ChrisSnake 发表于 2024-7-30 23:50</a>
+比较情怀的一作 整体难度不高 流程也短 爽一把完事
+
+死灵塔削了 跟踪导弹削了 电疗和回旋镖比较不错</blockquote>
+好像垃圾世界从发布到现在也有一年了吧，这苹果独占期真有这么长！？
+

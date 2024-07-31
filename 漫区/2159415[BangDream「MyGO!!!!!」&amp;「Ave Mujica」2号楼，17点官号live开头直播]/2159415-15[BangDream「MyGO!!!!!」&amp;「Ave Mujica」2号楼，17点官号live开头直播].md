@@ -9861,3 +9861,11 @@ QQ图片20240731181542.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄！摆！
 
+
+*****
+
+####  rikaren  
+##### 21635#       发表于 2024-7-31 18:20
+
+看10.13的3rd，如果3rd也没动画消息可以默认1月中旬才会有am动画的放送了。
+

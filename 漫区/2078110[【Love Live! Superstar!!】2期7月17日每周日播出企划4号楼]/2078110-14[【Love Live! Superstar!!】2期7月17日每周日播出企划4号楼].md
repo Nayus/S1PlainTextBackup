@@ -2133,3 +2133,16 @@ Nako 新单初动 2784
 
 能不能顺便贴几首歌
 
+
+*****
+
+####  csolfans  
+##### 20713#       发表于 2024-7-31 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65757180&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-7-31 18:27</a>
+虽然是BL剧。
+顺便中间这个贺集利树就是假面骑士亚极陀。</blockquote>
+(一开始没看出来，没想到老了这么多
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -9549,3 +9549,23 @@ MyGO没有这么做，而是让所有角色依然保留自己的负面性，她�
 
 2024-7-31 02:39 上传
 
+
+*****
+
+####  御幸一也  
+##### 21617#       发表于 2024-7-31 10:46
+
+196萬了，最後4萬捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+應該8/10左右能200萬
+
+[https://www.youtube.com/watch?v=QDsd0nyzwz0](https://www.youtube.com/watch?v=QDsd0nyzwz0)
+
+<img src="https://img.saraba1st.com/forum/202407/31/104604j4asm8zmnaga9nns.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 10:46 上传
+

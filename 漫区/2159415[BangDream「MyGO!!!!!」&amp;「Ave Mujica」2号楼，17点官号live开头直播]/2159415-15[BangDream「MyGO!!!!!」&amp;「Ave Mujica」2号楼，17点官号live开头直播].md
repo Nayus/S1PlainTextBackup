@@ -9662,3 +9662,13 @@ MyGO没有这么做，而是让所有角色依然保留自己的负面性，她�
 
 少歌手游寄了，加上卖掉的d4dj，wsd旗下游戏真就剩你邦一个独苗了
 
+
+*****
+
+####  光MIKAN  
+##### 21621#       发表于 2024-7-31 16:15
+
+手游一定要撑到把鸡出了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+少歌手游关了之后真人那边还会搞吗
+

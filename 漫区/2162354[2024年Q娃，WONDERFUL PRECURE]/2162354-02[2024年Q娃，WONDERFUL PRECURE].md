@@ -650,3 +650,14 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 还请多多购买<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 1964#       发表于 2024-7-31 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65754526&amp;ptid=2162354" target="_blank">猫屋敷ゆき 发表于 2024-7-31 14:14</a>
+
+还请多多购买</blockquote>
+还多多购买呢，开卖当天去买都不一定抢得到好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

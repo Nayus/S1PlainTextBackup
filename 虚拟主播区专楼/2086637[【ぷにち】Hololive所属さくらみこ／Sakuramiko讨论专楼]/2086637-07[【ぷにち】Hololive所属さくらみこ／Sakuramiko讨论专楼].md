@@ -5583,3 +5583,42 @@ DMM的工商，好像以前很少有
 
 是DMM自己新搞的线上娃娃机品牌，做活动请嘉宾来现场玩做宣传
 
+
+*****
+
+####  holoan  
+##### 9368#         楼主| 发表于 2024-7-31 16:03
+
+<img src="https://img.saraba1st.com/forum/202407/31/160314hr07utrg0nnzg4wq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 16:03 上传
+
+这下真的请凹酱来了
+
+*****
+
+####  holoan  
+##### 9369#         楼主| 发表于 2024-7-31 16:08
+
+<img src="https://img.saraba1st.com/forum/202407/31/160819ddalpdgjaldkmsml.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 16:08 上传
+
+<img src="https://img.saraba1st.com/forum/202407/31/160843fmvyy8sgy26miiz4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 16:08 上传
+
+明天爆破预告……
+

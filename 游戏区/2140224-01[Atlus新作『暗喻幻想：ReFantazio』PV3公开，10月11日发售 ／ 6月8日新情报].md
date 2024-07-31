@@ -170,3 +170,18 @@ X上没啥热度
 
 这几个月基本没有讨论声音了
 
+
+*****
+
+####  suzakushi  
+##### 625#       发表于 2024-7-31 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65751036&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-7-31 09:31</a>
+
+X上没啥热度
+
+红迪大半年前讨论都认为会大卖而且质量高，因为是桥野桂三个人出品
+
+这几个月基本没有讨论声 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太好了，那我就安心了。
+

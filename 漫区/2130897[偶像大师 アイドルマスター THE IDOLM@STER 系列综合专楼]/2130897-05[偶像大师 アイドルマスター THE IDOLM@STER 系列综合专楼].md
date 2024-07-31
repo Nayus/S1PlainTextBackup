@@ -444,3 +444,14 @@ image.png
 按学马这个开服投入的资源和宣发，尽可能快的出动画才符合水平，之前的media mix做的太拉了 ...</blockquote>
 本家11版是配合PS3版2代，CG，SM，SC都是在出手游的同时出的的动画，哪里拉了
 
+
+*****
+
+####  野菜一日分  
+##### 5957#       发表于 2024-7-31 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65754629&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-7-31 14:22</a>
+
+本家11版是配合PS3版2代，CG，SM，SC都是在出手游的同时出的的动画，哪里拉了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大哥，现在2024年了，上一次成功的CG动画都已经快10年了，315动画成功了然后后续运营烂完了，手游一坨屎还不如走路工，SCSP出的时候这个企划都过去5年了，然后这个手游以及后续的动画什么质量大家也有目共睹。你看着人家邦和拉组合拳打的飞起，先不说成品如何，对比下来百万、男人、闪彩的media mix也能叫不拉吗。
+

@@ -9936,3 +9936,25 @@ QQ图片20240731181542.jpg
 
 bml官方上传了鸡团部分
 
+
+*****
+
+####  ytttsuuuba  
+##### 21643#       发表于 2024-7-31 20:15
+
+那要看这个负面性足不足够讨厌，同时有没有更突出的高光让人去包容或者忽视这些负面性了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">如果没有的话，那就纯粹就是个也许很真实也许很有话题度，但绝不可能有高人气的角色了。
+
+
+*****
+
+####  六道明  
+##### 21644#       发表于 2024-7-31 20:23
+
+翻唱盘的三个抽选码
+
+トークイベント   NLkp24k3
+
+Ave Mujica 3rd LIVE   qfPx5926
+
+Ave Mujica 4th LIVE   Zuw6Vd32
+

@@ -558,3 +558,11 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 被那个金发男人骗井了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 关服之前能看到他上我船吗
 
+
+*****
+
+####  Geyorkias  
+##### 18066#       发表于 2024-7-31 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">KMR之前说过这样的角色不会上船，但现在KMR也是先帝了，那就不知道咯，最后的最后大抵会拿出来骗米吧
+

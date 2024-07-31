@@ -2036,3 +2036,11 @@ se不是最多四折吗，咋骨折
 
 女主那黑脸一开始还以为是我ps5或者电视有些问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ParukiaMKII  
+##### 208#       发表于 2024-7-31 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到大家都在喷战斗我就放心了，我体感不如国产手游我还以为是我的问题
+

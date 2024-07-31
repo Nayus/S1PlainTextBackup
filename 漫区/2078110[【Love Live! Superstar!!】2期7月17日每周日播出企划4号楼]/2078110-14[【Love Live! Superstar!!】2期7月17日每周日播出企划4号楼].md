@@ -2093,3 +2093,22 @@ Nako 新单初动 2784
 
 除了sif，其他游戏做出来玩法确实差点意思。
 
+
+*****
+
+####  csolfans  
+##### 20709#       发表于 2024-7-31 18:05
+
+<img src="https://p.sda1.dev/18/2f724ffca65c650b0809be2029db3221/CMP_20240731180511153.jpg" referrerpolicy="no-referrer">这下合鲤双双进军演艺圈？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  starring  
+##### 20710#       发表于 2024-7-31 18:08
+
+出演日剧，事务所做得好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

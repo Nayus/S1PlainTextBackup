@@ -5543,3 +5543,28 @@ ark服最后一天是要过周年庆的实际上可能很难参加
 
 这boss当年你带队打过啊,忘了啊
 
+
+*****
+
+####  holoan  
+##### 9364#         楼主| 发表于 2024-7-31 10:55
+
+今天服务器到24点关，不过大概率是raid结束就下线然后另开周年倒计时窗，应该不至于在游戏内过周年庆
+
+*****
+
+####  holoan  
+##### 9365#         楼主| 发表于 2024-7-31 11:52
+
+<img src="https://img.saraba1st.com/forum/202407/31/114928zk1cy166361yc6vm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 11:49 上传
+
+这帮熟悉的名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+DMM的工商，好像以前很少有
+

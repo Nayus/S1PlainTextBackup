@@ -193,3 +193,23 @@ X上没啥热度
 
 越宣传越感觉不行 乐死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alseabd  
+##### 627#       发表于 2024-7-31 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65692727&amp;ptid=2140224" target="_blank">sslink 发表于 2024-7-25 14:10</a>
+
+感觉像海贼王里的角色</blockquote>
+我也看到了一个让我想起了海贼王的角色。。<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  塔奇克马  
+##### 628#       发表于 2024-7-31 12:21
+
+不知道会褒姒到什么程度<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 国内外都没点热度
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

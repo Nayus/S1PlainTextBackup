@@ -9752,3 +9752,50 @@ mujica的五人因为披露的线索太少，所以相当难以去推测她们�
 
 我认为她的本质是“自尊”，负面性是感情压抑和强烈拒否，但在这之外实在是难以推敲出有理可循的东西了
 
+
+*****
+
+####  rikaren  
+##### 21627#       发表于 2024-7-31 17:39
+
+<blockquote>星天观测 发表于 2024-7-31 16:25
+先担心一下你鸡赶不赶得上周年吧进手游还要有第一期团活，之前算过好像真有点赶不上啊 ...</blockquote>
+赶得上吗？假设一样13话需要1.2开始放送还三话连播才能在3.13赶上，配合那个4.26/4.27的对邦时间，我是不觉得靠动画效应趁热打铁会隔开这么久，三话连播还需要电视台有档期不是wsd自己就能决定的，别给你搞个1.16开始放送第一话，一周一话，4.10放送结束，半个月之后对邦开始就不错了。
+
+<img src="https://img.saraba1st.com/forum/202407/31/173208ploeoejlpfjozu3e.jpg" referrerpolicy="no-referrer">
+
+<strong>1722418008435.jpg</strong> (171.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202407/31/173217wcoil1bv511iiic1.png" referrerpolicy="no-referrer">
+
+<strong>1722418000885.png</strong> (127.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202407/31/173225f5evm5jjppjfmjpj.png" referrerpolicy="no-referrer">
+
+<strong>1722417740016.png</strong> (231.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 17:32 上传
+
+go那边则是2023.4.9宣布动画2023夏开始放送+2023.5.24有发表大会，5.24宣布2023.6.29开始放送。AM2024.1就宣布动画2025.1放送，我们大概最早得要3rd的2024.10.13才能知道AM动画的具体放送时间，更悲观一点就是AM&amp;R那一场才知道。
+
+
+*****
+
+####  御幸一也  
+##### 21628#       发表于 2024-7-31 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65755739&amp;ptid=2159415" target="_blank">NODY 发表于 2024-7-31 16:04</a>
+
+少歌手游寄了，加上卖掉的d4dj，wsd旗下游戏真就剩你邦一个独苗了</blockquote>
+什麼時候倒閉 別等ave mujica了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

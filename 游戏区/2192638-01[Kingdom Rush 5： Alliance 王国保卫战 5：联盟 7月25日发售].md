@@ -676,3 +676,18 @@ ps：精灵法师塔是不是还是那么废啊
 
 什么时候把垃圾世界放出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lhh_ah  
+##### 68#       发表于 2024-7-31 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65746888&amp;ptid=2192638" target="_blank">敏感词好多 发表于 2024-7-30 19:25</a>
+目前没有，等更新吧，或者点击敌人本体，在被打爆之前
+
+—— 来自 S1Fun</blockquote>
+那按键提示里那个按R出资料卡是没做？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+搞得我还一直在各个界面尝试
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

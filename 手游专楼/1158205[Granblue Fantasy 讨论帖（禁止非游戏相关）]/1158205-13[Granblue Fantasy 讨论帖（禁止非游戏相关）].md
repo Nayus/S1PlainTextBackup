@@ -532,3 +532,13 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  江戸前ルナ  
+##### 18063#       发表于 2024-7-31 12:32
+
+果然无论什么角色只要去火属性就很大几率变得抽象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+火属性可能真的杀过策划的妈<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

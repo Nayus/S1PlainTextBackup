@@ -522,3 +522,13 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 在narou挖作品早就过时了，现在都是直接kkym上投稿角川系出道的
 
+
+*****
+
+####  Sylpheed  
+##### 18062#       发表于 2024-7-31 12:03
+
+还剩一个池子了，风老王能空过一年领到大奖吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

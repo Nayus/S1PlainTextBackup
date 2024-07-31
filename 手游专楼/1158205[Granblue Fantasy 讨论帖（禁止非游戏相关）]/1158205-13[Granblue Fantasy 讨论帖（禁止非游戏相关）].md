@@ -542,3 +542,11 @@ relink这毫无情报一脸死相，格斗游戏也基本外包，四字母升�
 
 火属性可能真的杀过策划的妈<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Geyorkias  
+##### 18064#       发表于 2024-7-31 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火去年年底一波强化现在早就翻身做主人了啊，有一说一现在火绝对是上位属性好吧，火埔军校都什么老黄历了
+

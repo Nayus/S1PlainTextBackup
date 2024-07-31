@@ -9680,3 +9680,19 @@ MyGO没有这么做，而是让所有角色依然保留自己的负面性，她�
 
 先担心一下你鸡赶不赶得上周年吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进手游还要有第一期团活，之前算过好像真有点赶不上啊
 
+
+*****
+
+####  是谁的书画  
+##### 21623#       发表于 2024-7-31 16:31
+
+u1s1 邦手游真的不打算更新换代一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  滑稽Captain  
+##### 21624#       发表于 2024-7-31 16:34
+
+ 难道少歌最近两年手游学校的真人有几个还在动吗（
+

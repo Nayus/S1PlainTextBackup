@@ -1278,3 +1278,11 @@ beni最近打派这么多竟然不参加
 
 这下尴尬了，提前开香槟的后辈粉没想到一哥二哥没把泼天的富贵留给自家人吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 545#       发表于 2024-7-31 21:27
+
+感觉哈弟应该是直接无视了17赛季，确实该这么算。至于夹在黑黑之间是不是滔天富贵可以把话筒递给碧依さくら女士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉ツルギ是炎上习惯了才答应的，感觉上也找不到更好的选择
+

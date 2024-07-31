@@ -1275,3 +1275,11 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">打完，最终boss被逼着洗点改风格玩了，从TR变成了ACT。不过总算是打完了，今年意料之外的好游戏，快赶上去年的hifi rush了
 
+
+*****
+
+####  megaheracross  
+##### 187#       发表于 2024-7-31 21:24
+
+最终BOSS这难度一下子提的这么高么<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">，老是贴脸开弓给我秒了，都卡了一小时了
+

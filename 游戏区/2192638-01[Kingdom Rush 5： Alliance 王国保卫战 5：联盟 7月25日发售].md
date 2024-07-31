@@ -711,3 +711,14 @@ ps：精灵法师塔是不是还是那么废啊
 
 1个塔2个技能太不爽了，比四代强，不如前三代
 
+
+*****
+
+####  blueelf  
+##### 71#       发表于 2024-7-31 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65750823&amp;ptid=2192638" target="_blank">银枪子龙 发表于 2024-7-31 09:13</a>
+
+1个塔2个技能太不爽了，比四代强，不如前三代</blockquote>
+4代也是三个技能阿
+

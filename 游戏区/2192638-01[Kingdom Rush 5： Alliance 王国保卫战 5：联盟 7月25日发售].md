@@ -733,3 +733,15 @@ ps：精灵法师塔是不是还是那么废啊
 4代也是三个技能阿</blockquote>
 4代的大问题是塔位设计问题，间隔有些大，摆的不舒服
 
+
+*****
+
+####  Deco  
+##### 73#       发表于 2024-7-31 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65749352&amp;ptid=2192638" target="_blank">ChrisSnake 发表于 2024-7-30 23:50</a>
+比较情怀的一作 整体难度不高 流程也短 爽一把完事
+
+死灵塔削了 跟踪导弹削了 电疗和回旋镖比较不错</blockquote>
+电疗是哪一个？
+

@@ -1283,3 +1283,22 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 最终BOSS这难度一下子提的这么高么<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">，老是贴脸开弓给我秒了，都卡了一小时了
 
+
+*****
+
+####  ralfli  
+##### 188#       发表于 2024-7-31 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65758897&amp;ptid=2140223" target="_blank">megaheracross 发表于 2024-7-31 21:24</a>
+
+最终BOSS这难度一下子提的这么高么，老是贴脸开弓给我秒了，都卡了一小时了 ...</blockquote>
+个人有个逃课打法，比较破坏体验，推荐多周目使用
+
+两个奶妈剩下全阴阳师，刀锷带朱雀白虎和大阴，魔像带减刀锷CD，剩下随便
+
+开局洗刀，朱雀白虎破防后处决，BOSS瞬移过去大阴再处决
+
+剩下的时间等阴阳师CD好了就召唤，中等距离躲分裂箭就行，注意调整位置不要背对村民和世代的，这样分裂箭不会误伤到他们，有两个奶妈容错还是非常高的
+
+专注躲避的话几乎没有难度，虽然打得很快但过程比较无聊……
+

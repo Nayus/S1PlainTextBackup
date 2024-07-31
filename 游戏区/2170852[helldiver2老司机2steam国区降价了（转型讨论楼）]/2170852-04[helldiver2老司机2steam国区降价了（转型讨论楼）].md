@@ -246,3 +246,11 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 
 防火甲终于要上了，玩喷火仙人配装老是不小心给自己点着了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  IWS2000  
+##### 5115#       发表于 2024-7-31 21:52
+
+带上强化可以开局砸红点了
+

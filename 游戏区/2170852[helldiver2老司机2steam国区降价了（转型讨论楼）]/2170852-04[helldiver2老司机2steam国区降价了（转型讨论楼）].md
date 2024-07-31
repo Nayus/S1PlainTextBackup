@@ -266,3 +266,36 @@ P2P这个次元墙无解，只能找个你俩都能连上的第三人当房主</
 
 有没有漏油有头绪的可以帮我指个路<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5117#       发表于 2024-8-1 01:31
+
+ 本帖最后由 Aeons 于 2024-8-1 01:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65760653&amp;ptid=2170852" target="_blank">Znesmoc 发表于 2024-8-1 01:03</a>
+
+之前有一个里面把各种武器敌人啥的写的很详细的共享文档，今天想看一些东西的时候发现它被删除了
+
+然后我又 ...</blockquote>
+
+军务手册吧，就是删了，我记得好像有备份，也可以直接看wiki
+
+*****
+
+####  xinfengj  
+##### 5118#       发表于 2024-8-1 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65760653&amp;ptid=2170852" target="_blank">Znesmoc 发表于 2024-8-1 01:03</a>
+
+之前有一个里面把各种武器敌人啥的写的很详细的共享文档，今天想看一些东西的时候发现它被删除了
+
+然后我又 ...</blockquote>
+游戏里更新好几次版本，攻略文跟不上了吧
+
+有什么不清楚的直接查WIKI就行
+[https://helldivers.wiki.gg/wiki/Helldivers_Wiki](https://helldivers.wiki.gg/wiki/Helldivers_Wiki)
+
+战线情况，任务，超级商店，解包数值查这个
+[https://helldivers.io/](https://helldivers.io/)
+

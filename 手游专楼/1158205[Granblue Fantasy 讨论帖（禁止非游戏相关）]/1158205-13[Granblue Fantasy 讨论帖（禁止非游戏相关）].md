@@ -617,3 +617,14 @@ GBF一年六七十个角色，上不了前排就是个玩具的才是大多数�
 
 100抽还真是只有去年取消总池被炎上了才给啊，扣扣嗖嗖的
 
+
+*****
+
+####  Sylpheed  
+##### 18073#       发表于 2024-7-31 19:57
+
+这召唤还挺有说法的，主招120属攻+20000最终血量
+sub10%少带一把星醒，30%方阵直接起飞<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -9912,3 +9912,11 @@ QQ图片20240731181542.jpg
 状态的改变不 ...</blockquote>
 技术问题可以作为人物弧光的一部分，负面性不可以
 
+
+*****
+
+####  NODY  
+##### 21640#       发表于 2024-7-31 19:52
+
+但人气最高的还是动画里负面性相对表现得最少的爱音和猫吧，大部分都是负面性的立希直接垫底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

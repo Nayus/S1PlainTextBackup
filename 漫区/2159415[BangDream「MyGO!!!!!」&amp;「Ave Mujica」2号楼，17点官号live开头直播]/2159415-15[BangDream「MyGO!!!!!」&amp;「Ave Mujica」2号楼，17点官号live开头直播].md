@@ -9886,3 +9886,14 @@ QQ图片20240731181542.jpg
 
 你邦换公司和dj换运营应该都属于断尾求生，不然我真的要怀疑下半年没狗团活动其实只是单纯的因为明年年初就关服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 21638#       发表于 2024-7-31 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65756294&amp;ptid=2159415" target="_blank">曼彻斯特联 发表于 2024-7-31 16:59</a>
+
+很有趣的想法。我有一个问题想问玖羽老师，当我观赏一部影视作品/书籍/游戏时，怎么样去判别一个角色的负 ...</blockquote>
+把负面性砍掉，看这个角色的个性还能不能存在
+

@@ -9799,3 +9799,14 @@ go那边则是2023.4.9宣布动画2023夏开始放送+2023.5.24有发表大会�
 少歌手游寄了，加上卖掉的d4dj，wsd旗下游戏真就剩你邦一个独苗了</blockquote>
 什麼時候倒閉 別等ave mujica了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21629#       发表于 2024-7-31 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65756714&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-7-31 17:39</a>
+
+赶得上吗？假设一样13话需要1.2开始放送还三话连播才能在3.13赶上，配合那个4.26/4.27的对邦时间，我是不 ...</blockquote>
+那不是寄了，看来想在封面看到主唱只能多等半年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

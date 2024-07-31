@@ -65,3 +65,13 @@ OP好宏大，从太古的宇宙唱到未来的地球以及人类的爱与历史
 
 女主能量来源是谁 不用吃东西 也没地方充电，太阳能？
 
+
+*****
+
+####  亚瑟邓特  
+##### 110#       发表于 2024-7-31 23:24
+
+看弹幕感觉不仅是年一gal还是年一gal改了属于是，一个个都在那拷打花田<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，有哪部gal改没有大幅度精简原作细节吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+

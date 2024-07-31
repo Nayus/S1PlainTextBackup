@@ -9920,3 +9920,19 @@ QQ图片20240731181542.jpg
 
 但人气最高的还是动画里负面性相对表现得最少的爱音和猫吧，大部分都是负面性的立希直接垫底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21641#       发表于 2024-7-31 20:05
+
+【Ave Mujica】欢迎来到《Ave Mujica》的世界【BML2024单品】
+[https://www.bilibili.com/video/BV1P142187fx](https://www.bilibili.com/video/BV1P142187fx)
+
+*****
+
+####  akiomn  
+##### 21642#       发表于 2024-7-31 20:06
+
+bml官方上传了鸡团部分
+

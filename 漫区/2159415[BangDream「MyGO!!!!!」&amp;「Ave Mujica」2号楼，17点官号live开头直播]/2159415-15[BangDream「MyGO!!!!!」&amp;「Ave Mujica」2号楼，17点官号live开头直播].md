@@ -10089,3 +10089,12 @@ bml这个导播切了个牛魔<img src="https://static.saraba1st.com/image/smile
 
 那么为什么海铃眼里偏偏有立希，这个问题是肯定要说明白的
 
+
+*****
+
+####  NODY  
+##### 21653#       发表于 2024-8-1 00:40
+
+【熟/Team Y】和大胃王声优后辈一起狂吃炸鸡 嘉宾：渡濑结月
+[https://www.bilibili.com/video/BV14w4m1k7Q2](https://www.bilibili.com/video/BV14w4m1k7Q2)
+

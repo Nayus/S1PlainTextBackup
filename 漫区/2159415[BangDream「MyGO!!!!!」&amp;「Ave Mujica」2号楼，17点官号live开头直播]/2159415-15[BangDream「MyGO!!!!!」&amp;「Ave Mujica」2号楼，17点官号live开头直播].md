@@ -9837,3 +9837,27 @@ go那边则是2023.4.9宣布动画2023夏开始放送+2023.5.24有发表大会�
 
 🐔应该在动画开始上映的时候游戏里会有同步活动的
 
+
+*****
+
+####  祐天寺若麦  
+##### 21633#       发表于 2024-7-31 18:16
+
+1月游戏里就有放映活动了啊
+
+QQ图片20240731181542.jpg
+(131.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-7-31 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202407/31/181549q9ww0ojmj0999ic0.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21634#       发表于 2024-7-31 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄！摆！
+

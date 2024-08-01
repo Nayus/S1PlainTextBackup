@@ -5981,3 +5981,71 @@ danye草
 
 每次都感谢ordan老师的大nai子！
 
+
+*****
+
+####  holoan  
+##### 9400#         楼主| 发表于 2024-8-1 23:25
+
+说这个MV本来之前想更早的时候发表果然还是4月1号那时候的事情，那时候就在想特地演这么多年愚人节的戏肯定有最后要弄出什么东西来，可惜那时动画没做完赶不上加上那时生病没直播愚人节企划就烂尾了，光这个动画也是前后花了一年时间在做，所以要做点质量高的MV都得提早很早开始准备还包括曲子本身
+
+另外animate的那个线下活动预告也是很有意思，线下CD促销活动不是请本人而是请danye出场看起来大家都很懂，在线下限定的场合danye现在是最能发挥角色魅力和人气的时候
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  holoan  
+##### 9401#         楼主| 发表于 2024-8-1 23:50
+
+neta认得全吗，我是差不多
+
+<img src="https://img.saraba1st.com/forum/202408/01/233229lqviyyyzfvoveqvd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (105.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/233237xb85pyry5r3jwe83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/233244u52etkckdhd3dx35.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (92.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/233251y9fgtijzg0nxm5f2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 23:32 上传
+
+比较有意思的几个地方，一个是以前出过的翻唱曲/原创曲MV封面被替换成danye版（恐怕都有事先经过这些原曲作者的特别许可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），一个是把同时视听过的电影作品的名场面加进来
+
+还有全篇GTA的梗太他妈多了，所以说miko的GTA5直播系列包括从19年开始的单机剧情然后PC版观众参加型企划再到最近两年的holomem联动还有PS版的原创歌回企划，一款游戏能贯穿这么多年的直播还始终这么有人气，现在完全就是miko独一无二的东西了
+
+所以holo服GTA真的有吗
+

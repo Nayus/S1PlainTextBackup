@@ -1315,3 +1315,14 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 两个奶妈剩下全阴阳师，刀锷带朱雀白虎和大阴，魔像带 ...</blockquote>
 啊原来阴阳师对BOSS也有效的么，才知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 190#       发表于 2024-8-1 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65760033&amp;ptid=2140223" target="_blank">megaheracross 发表于 2024-7-31 23:41</a>
+
+啊原来阴阳师对BOSS也有效的么，才知道</blockquote>
+我是抄的B站的攻略，6个大炮6个阴阳师，青龙朱雀玄武3个技能。 白天3个技能打完基本上剩血皮了，正好阴阳师技能好了，直接开，清场加打死，二阶段了直接洗刀上去一个技能就能干掉4/5血，后面就随便打了
+

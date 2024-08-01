@@ -705,3 +705,44 @@ op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑�
 
 基于你法社第一印象定律，还是相信自己第一印象比较好
 
+
+*****
+
+####  maojiashu  
+##### 2184#       发表于 2024-8-1 15:41
+
+莉丝不来真的无语了
+
+合着葱头一个人来呗 不说cp 随从骑士都不来？
+
+*****
+
+####  hkguty  
+##### 2185#       发表于 2024-8-1 15:44
+
+双子哥哥估计真挂了
+
+*****
+
+####  抽烟的猴  
+##### 2186#       发表于 2024-8-1 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765597&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-1 15:41</a>
+
+莉丝不来真的无语了
+
+合着葱头一个人来呗 不说cp 随从骑士都不来？</blockquote>
+人气太低，没资格上桌
+
+*****
+
+####  苏斯赫查  
+##### 2187#       发表于 2024-8-1 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765597&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-1 15:41</a>
+
+莉丝不来真的无语了
+
+合着葱头一个人来呗 不说cp 随从骑士都不来？</blockquote>
+冰火的从骑士有来吗？不太记得了
+

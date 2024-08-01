@@ -614,3 +614,16 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 
 对单推人来说，还是solo live爽，欣赏不来两位数人数的舞台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KQUIN  
+##### 5973#       发表于 2024-8-1 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65757070&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-7-31 18:15</a>
+
+手游要赚钱，最重要的还是自身素质。目前靠动画带飞的也就cy的cgss和马娘，但这俩起飞都是沉淀了至少3年的 ...</blockquote>
+我记得最早一次灰友悲观和发怒就是因为土豆刚出就很显然比草菇好，抱怨万南抄了cy模式还要试图推草菇竞品（然后因为app间隔几年世代不公平），这些言论从霓虹社媒、论坛和niconico上都有相关的留存证据，如果你是对的，土豆连草菇都比不上，是不是可以千言万语理解为：霓虹灰友，你要自信？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+讲道理，我觉得依次震撼业界（指每个刚出的时候就是冠绝性的市面最好3dliveMV）的几个偶像live音游前后分别就是，草菇→土豆→idolypride。这几个每个都是一次偶像3d音游世代变革。
+

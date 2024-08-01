@@ -1734,3 +1734,22 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 动作还行吧，歌我欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2290#       发表于 2024-8-1 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这次敌人是另一条时间线的所长团队？感觉白色装甲就是学妹if啊
+
+*****
+
+####  ravend233  
+##### 2291#       发表于 2024-8-1 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾那个真要是学妹应该是本人，不会是什么平行世界if吧
+
+所以其实学妹本来就是二周目（不是
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

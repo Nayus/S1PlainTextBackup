@@ -2137,3 +2137,14 @@ v的试玩版不给看二转后就算了，毕竟很不巧去年有ff16这个大
 
 只能说未来可期
 
+
+*****
+
+####  KOGmk2  
+##### 217#       发表于 2024-8-1 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65762595&amp;ptid=2163349" target="_blank">sgssk 发表于 2024-8-1 10:21</a>
+
+3re的职业搭配玩法起码到二转才算正式开始，二转前大家只有点聊胜于无的动作模组区别。对于前期乐趣不足的 ...</blockquote>
+3re开局平砍各位差距很大~~~很明显能感觉出来丽斯长枪还有安吉拉法杖收招的迟钝,反而后来连招开始普及突进之后差距小了
+

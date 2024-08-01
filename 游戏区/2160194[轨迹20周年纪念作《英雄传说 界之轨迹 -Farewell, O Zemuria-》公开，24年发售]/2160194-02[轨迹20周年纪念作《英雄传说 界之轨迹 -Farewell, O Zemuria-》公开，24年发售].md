@@ -2046,3 +2046,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这模型肯定是外包做的  对法老空应该是巨款了
 
+
+*****
+
+####  frosta  
+##### 2322#       发表于 2024-8-2 01:04
+
+看了op尽然有想玩的冲动
+然后看到了宣传图
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

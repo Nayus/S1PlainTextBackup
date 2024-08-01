@@ -10137,3 +10137,11 @@ bml这个导播切了个牛魔<img src="https://static.saraba1st.com/image/smile
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65761053&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-1 02:34</a></blockquote>
 三角来自夏季大三角哦
 
+
+*****
+
+####  NODY  
+##### 21658#       发表于 2024-8-1 09:28
+
+连冰川和宇田川刚好在对应地区有两个都这么精准，感觉丰川和若叶不在一个地区真是故意的，领养说成真？
+

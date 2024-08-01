@@ -2027,3 +2027,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 话说到底什么时候换画师  这op看到最后那宣传图就崩不住了 这学妹画的跟鬼一样 ...</blockquote>
 等共和国篇结束（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diectt  
+##### 2320#       发表于 2024-8-1 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769699&amp;ptid=2160194" target="_blank">liuguokobe 发表于 2024-8-1 23:04</a>
+
+说实话f社现在有一种“黎1黎2人物模型走做出来了，这一作不用就可惜了”的感觉 ...</blockquote>
+不用加“的感觉”3个字，就是模型做出来不用就可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

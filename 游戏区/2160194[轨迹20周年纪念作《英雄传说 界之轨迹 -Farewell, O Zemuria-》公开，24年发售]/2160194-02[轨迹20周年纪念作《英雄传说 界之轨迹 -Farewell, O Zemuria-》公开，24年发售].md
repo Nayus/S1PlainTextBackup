@@ -1272,3 +1272,66 @@ logo标题是学妹，金发魔装鬼是学妹，圣女是学妹，好多学妹�
 学妹就单说黎12。。。真的能跟强和惨挂钩吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 黎1出个门总统爹保驾护航，黎2绝大部分人诟病死亡loop她真躺地的演出就一次吧，范恩都莫名其妙挨几次了
 
+
+*****
+
+####  ravend233  
+##### 2244#       发表于 2024-8-1 17:28
+
+ 本帖最后由 ravend233 于 2024-8-1 17:31 编辑 
+
+你轨法师和剧情强度就不怎么沾边，惨不惨还得看设定解密（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是这样也和黎爷不是一路子的角色，你不如说轨版丹娜（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 2245#       发表于 2024-8-1 17:28
+
+点点点，学妹和黎恩除了家世有哪里像吗。
+
+*****
+
+####  Aeons  
+##### 2246#       发表于 2024-8-1 17:29
+
+<img src="https://img.saraba1st.com/forum/202408/01/172850lvon0nllhapullod.png" referrerpolicy="no-referrer">
+
+<strong>？.png</strong> (30.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 17:28 上传
+
+？能有这种建模吗
+
+*****
+
+####  ravend233  
+##### 2247#       发表于 2024-8-1 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766868&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 17:29</a>
+？能有这种建模吗</blockquote>
+op专门k一下表情还是能做到的（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  natmk  
+##### 2248#       发表于 2024-8-1 17:31
+
+ 本帖最后由 natmk 于 2024-8-1 17:33 编辑 
+
+只是调侃啦就这跟主线绑定的女主要是人气还是比不过艾蕾因会被称为强推之耻吗
+
+*****
+
+####  未熟串烧  
+##### 2249#       发表于 2024-8-1 17:32
+
+OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。
+

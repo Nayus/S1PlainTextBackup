@@ -1146,3 +1146,16 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 入坑搜一些最近发布的入坑或者开荒攻略应该都可以
 
+
+*****
+
+####  saber6146  
+##### 124#       发表于 2024-8-1 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766677&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-8-1 17:11</a>
+
+开服这一个月，更新我觉得还挺拟人的，比全境2当年好太多了。
+
+针对一些吐槽比较多的点都修改了，减负不少 ...</blockquote>
+感谢指导<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

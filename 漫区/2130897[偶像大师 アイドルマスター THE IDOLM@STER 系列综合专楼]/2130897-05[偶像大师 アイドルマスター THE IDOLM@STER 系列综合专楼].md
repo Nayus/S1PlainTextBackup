@@ -598,3 +598,11 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 手游率先开创了live同屏人数上限，偶像换发色机制，新的光影渲染，这不比cgss一百年只会光污染癫痫警告的live好多了
 至于穴马那就更不值一提了，live只能solo的小物<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  はらみー  
+##### 5971#       发表于 2024-8-1 09:05
+
+音游我快抽全了才发现后面有按组合来的，，
+

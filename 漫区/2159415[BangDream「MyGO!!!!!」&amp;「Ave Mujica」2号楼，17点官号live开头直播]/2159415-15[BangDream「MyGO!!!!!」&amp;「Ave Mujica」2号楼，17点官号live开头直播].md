@@ -10220,3 +10220,36 @@ mujica成员姓名地名规律并不能这么找
 
 用已知的祐天寺和三角山拿仙王座去比划能直接锁定到底是哪个八幡吗？
 
+
+*****
+
+####  祐天寺若麦  
+##### 21666#       发表于 2024-8-1 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764066&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-1 12:38</a>
+
+你理解错了，这句话的意思是，想到夏天就想到夏季大三角，（但我的角色不是）三角（さんかく）而是三角（ ...</blockquote>
+我知道后面是这个意思，这里她打烟雾弹呢
+
+*****
+
+####  祐天寺若麦  
+##### 21667#       发表于 2024-8-1 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764066&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-1 12:38</a>
+
+你理解错了，这句话的意思是，想到夏天就想到夏季大三角，（但我的角色不是）三角（さんかく）而是三角（ ...</blockquote>
+我知道后面是这个意思，这里她打烟雾弹呢
+
+*****
+
+####  Aendst  
+##### 21668#       发表于 2024-8-1 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764066&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-1 12:38</a>
+
+你理解错了，这句话的意思是，想到夏天就想到夏季大三角，（但我的角色不是）三角（さんかく）而是三角（ ...</blockquote>
+说到姓氏读音，豊川（とがわ）应该是非常非常少见的读法吧
+
+玖羽大有什么思路吗……
+

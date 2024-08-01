@@ -1132,3 +1132,11 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 打完两次高分挑战基本ab池子就拿的差不多了吧，最后打几把棱镜战就空了
 
+
+*****
+
+####  上坂莲华  
+##### 1608#       发表于 2024-8-1 23:06
+
+职阶池把牢苍捞出来了，牢苍，我的牢苍<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

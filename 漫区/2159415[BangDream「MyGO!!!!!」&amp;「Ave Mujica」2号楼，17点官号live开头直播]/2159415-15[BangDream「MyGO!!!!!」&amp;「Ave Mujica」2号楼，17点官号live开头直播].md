@@ -10153,3 +10153,19 @@ bml这个导播切了个牛魔<img src="https://static.saraba1st.com/image/smile
 
 但她俩生日不一样，不过刚好差一个月就有点刻意的感觉
 
+
+*****
+
+####  星天观测  
+##### 21660#       发表于 2024-8-1 10:07
+
+今天能有新东西嘛<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 21661#       发表于 2024-8-1 10:12
+
+生日可以是把领养的时间当做生日了，这样合情合理也能和黑色生日歌词对上。
+

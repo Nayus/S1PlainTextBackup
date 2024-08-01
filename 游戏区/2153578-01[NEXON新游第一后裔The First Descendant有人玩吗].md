@@ -1085,3 +1085,15 @@ pc的优化完全是灾难等级
 
 LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yjmy705  
+##### 119#       发表于 2024-8-1 10:54
+
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也低，中后期要肝到什么程度啊？
+
+氪的话，单角色就500多，这……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

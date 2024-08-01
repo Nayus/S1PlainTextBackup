@@ -642,3 +642,66 @@ op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑�
 op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑紫毛吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可以是只存在于op 黎2不是表演过了
 
+
+*****
+
+####  苏斯赫查  
+##### 2176#       发表于 2024-8-1 15:28
+
+金毛魔装鬼如果是OP欺诈，实际其实是爱莲，那会不会很炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 2177#       发表于 2024-8-1 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764915&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-8-1 14:25</a>
+艾蕾因</blockquote>
+我急了，感觉消费完剑女又要被恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cloudslin  
+##### 2178#       发表于 2024-8-1 15:30
+
+学妹这是要变了吧，真要logo杀？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2179#       发表于 2024-8-1 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剑女是金装鬼最后还真挂了能起飞吗（
+
+*****
+
+####  黒鈴ミヲ  
+##### 2180#       发表于 2024-8-1 15:31
+
+这白金魔鬼配色 是你吗 七奶奶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 2181#         楼主| 发表于 2024-8-1 15:32
+
+别慌，魔装鬼变完发色都和原本发色没对上的，说不定是剑女（）
+
+*****
+
+####  新世界的派蒙  
+##### 2182#       发表于 2024-8-1 15:33
+
+发售前：法社不会这么俗的
+发售后：各位点的金之齐格飞真是伏笔满满阿
+
+*****
+
+####  ravend233  
+##### 2183#       发表于 2024-8-1 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如猜是C博士（）
+
+基于你法社第一印象定律，还是相信自己第一印象比较好
+

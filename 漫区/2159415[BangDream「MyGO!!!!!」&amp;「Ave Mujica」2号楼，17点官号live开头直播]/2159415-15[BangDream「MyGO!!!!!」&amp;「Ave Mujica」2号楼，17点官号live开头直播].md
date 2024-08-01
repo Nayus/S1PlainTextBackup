@@ -10576,3 +10576,80 @@ earth我不梦
 
 今晚8点先期待一下
 
+
+*****
+
+####  skives  
+##### 21695#       发表于 2024-8-1 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765368&amp;ptid=2159415" target="_blank">shalulyq 发表于 2024-8-1 15:18</a>
+
+我漲知識了，原來在泥樓有些外號是不能叫的
+
+這種純良度讓我再次感覺到百綜真tama混沌 ...</blockquote>
+再怎么说也是个企划楼
+
+纯良点是好事<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 21696#       发表于 2024-8-1 15:29
+
+<blockquote>光MIKAN 发表于 2024-8-1 15:26
+我挺好奇觉得祥子组鸡团是为了报复狗这种思路是怎么来的，鸡团可是要主流出道， 签阅违约金的数额不是现在 ...</blockquote>
+gop臆想中的反派罢了
+
+*****
+
+####  PDQ4  
+##### 21697#       发表于 2024-8-1 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765455&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-1 15:26</a>
+ 我挺好奇觉得祥子组鸡团是为了报复狗这种思路是怎么来的，鸡团可是要主流出道， 签阅违约金的数额不是现在 ...</blockquote>
+会这么脑补的前提基本是想看鸡/祥子被狗暴打，那必然组鸡团就是主动去送头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21698#       发表于 2024-8-1 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765455&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-1 15:26</a>
+
+我挺好奇觉得祥子组鸡团是为了报复狗这种思路是怎么来的，鸡团可是要主流出道， 签阅违约金的数额不是现在 ...</blockquote>
+可能是从类似于祥子嘴上各种切割其实心里肯定放不下这种想法来的，因为放不下所以最后扭曲了要报复，但这种想法明显没考虑过一个商业乐队要用什么理由什么形式来报复一个高中乐队，甚至这种想法的基础也建立在mujica其他四个人没有自己的脑子，只是祥子指哪儿打哪儿的沙兵而已，只能说有点搞笑
+
+*****
+
+####  相坂君  
+##### 21699#       发表于 2024-8-1 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765455&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-1 15:26</a>
+
+我挺好奇觉得祥子组鸡团是为了报复狗这种思路是怎么来的，鸡团可是要主流出道， 签阅违约金的数额不是现在 ...</blockquote>
+应该是早些时候有人脑补的母鸡卡反派论，把祥子行为反派化，就会说成组鸡团是要跟狗对立/报复等，一些结论
+
+*****
+
+####  NODY  
+##### 21700#       发表于 2024-8-1 15:33
+
+报复自己家倒是有可能，当时就有不少人猜是家里不准玩音乐不然赶出家门，所以祥子把mujica做成大火乐队来打家族脸
+
+*****
+
+####  Aendst  
+##### 21701#       发表于 2024-8-1 15:33
+
+会描写并且不会消去角色的负面性不代表所有言行的出发点都是负面性
+
+不可否认这里确实应该有“不甘”的心情，但是指向不明，当然也远不至于到“嫉妒”“恨”的程度
+
+祥子对mygo没那么咬牙切齿，不至于为了报复mygo去组avemujica
+
+“自卑”同样有失偏颇
+
+说到底，mygo只是学生喝茶社团，mujica是商业乐队，mujica这个乐队是好是坏都和mygo这个乐队是好是坏没有太大关系
+
+总不能说，因为我看到别人在吃苹果我也想吃，所以我去买个西瓜吃吧
+

@@ -9,3 +9,11 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  格雷殿下  
+##### 114#       发表于 2024-8-1 18:03
+
+谁说魔术师不能上位的
+

@@ -1468,3 +1468,61 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 唉 是 看到这op人气已经无所谓了想玩的欲望都变小了 
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 2264#       发表于 2024-8-1 17:56
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-8-1 17:58 编辑 
+
+可闪4黎1黎2的op也不燃啊，还土气，界轨op至少不土。
+
+你们觉得界轨op不燃，那比起不上不下的燃，我宁愿选不土的，反正真我光生肯定搞不成第二个闪3op了。
+
+*****
+
+####  ravend233  
+##### 2265#       发表于 2024-8-1 17:57
+
+这次曲风比较慢，确实不够燃
+
+不过光生那些曲子本身也挺土嗨的（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  妄想中毒  
+##### 2266#       发表于 2024-8-1 17:58
+
+反派感觉根本不够用，除了面具人大队就小丑和破戒不知道能不能上，op里新角色帽子男看起来也算个敌对，这么几个人加起来哪够我方大队人马揍的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2267#       发表于 2024-8-1 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65767163&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-8-1 17:58</a>
+
+反派感觉根本不够用，除了面具人大队就小丑和破戒不知道能不能上，op里新角色帽子男看起来也算个敌对，这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就从好人里拉一个做反派！
+
+
+*****
+
+####  Aeons  
+##### 2268#       发表于 2024-8-1 18:01
+
+ 本帖最后由 Aeons 于 2024-8-1 18:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是面具人那边看着就很杂毛啊，有个机械肥仔也看着跟这种小怪一样，纯纯的垃圾啊，你要是有台怪异机甲那还能看看，这都啥啊。
+
+<img src="https://img.saraba1st.com/forum/202408/01/180144cq732vd996azmy4j.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>39ca2313cfda9e366e93f5cc942e4129_5957307504938682223.webp</strong> (109.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 18:01 上传
+

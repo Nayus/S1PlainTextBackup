@@ -380,3 +380,14 @@ CEO萨姆斯在红迪集思广益[https://old.reddit.com/r/Helldiv ... r_resourc
 
 PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏修改器，作为任务的一个有趣解锁内容。或者，我们将Pilestedt（创意总监，原CEO）悬挂在一个水槽上，一旦我们花费XXXX什么的，就把他扔进去。或者，像我们为儿童慈善活动做的那样，做些好事。</blockquote>
 
+
+*****
+
+####  xinfengj  
+##### 5124#       发表于 2024-8-1 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65763062&amp;ptid=2170852" target="_blank">aSky117 发表于 2024-8-1 11:04</a>
+
+请教下突击步枪这里的“耐久伤害比例”是什么？是指这个武器造成的耐久伤害是面板伤害的10%？然后打到强 ...</blockquote>
+耐久伤害比率只是一个说明方式，实际上武器的耐久伤害值是一个固定值，在伤害计算时是单独计算的。具体可以看我在4756楼的解释 [https://bbs.saraba1st.com/2b/for ... 52&amp;pid=64974203](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2170852&amp;pid=64974203)
+

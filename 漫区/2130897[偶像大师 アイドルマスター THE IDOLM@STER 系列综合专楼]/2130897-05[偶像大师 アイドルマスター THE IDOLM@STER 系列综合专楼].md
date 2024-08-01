@@ -606,3 +606,11 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 
 音游我快抽全了才发现后面有按组合来的，，
 
+
+*****
+
+####  yuuuuuuuu  
+##### 5972#       发表于 2024-8-1 11:27
+
+对单推人来说，还是solo live爽，欣赏不来两位数人数的舞台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

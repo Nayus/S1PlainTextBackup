@@ -1845,3 +1845,13 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 掉链子后面无表情地替自己挽尊也是萌点之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 594#       发表于 2024-8-1 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">过场插画里的迷你比基尼抚子就是出自有班长卡拉ok剪发名场面的伪物语后短篇：抚子泳池吧
+
+终于看到具体是啥样的了，也没西尾写的那么糟糕嘛
+

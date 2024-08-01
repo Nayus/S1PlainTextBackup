@@ -2166,3 +2166,41 @@ Nako 新单初动 2784
 
 —— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  csolfans  
+##### 20716#       发表于 2024-7-31 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65757180&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-7-31 18:27</a>
+虽然是BL剧。
+顺便中间这个贺集利树就是假面骑士亚极陀。</blockquote>
+(一开始没看出来，没想到老了这么多
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 20717#       发表于 2024-7-31 20:58
+
+演日剧也挺好，不过bl剧啊？上次看bl剧也是因为假面骑士来着。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cqc1021  
+##### 20718#       发表于 2024-7-31 23:08
+
+为啥演员出道是BL剧啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 20719#       发表于 2024-8-1 08:02
+
+今年11月ASL会在上海开一场（11月16），这时间，你裂有机会？
+

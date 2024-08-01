@@ -628,3 +628,11 @@ sub10%少带一把星醒，30%方阵直接起飞<img src="https://static.saraba1
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  zilch_ren  
+##### 18074#       发表于 2024-8-1 07:57
+
+一波直接干碎，能活12年吗这游戏，打开全体奖励的宝晶石X100真的笑了。福利脚踝斩，限定多又多，祖宗之法如擦屁纸。
+

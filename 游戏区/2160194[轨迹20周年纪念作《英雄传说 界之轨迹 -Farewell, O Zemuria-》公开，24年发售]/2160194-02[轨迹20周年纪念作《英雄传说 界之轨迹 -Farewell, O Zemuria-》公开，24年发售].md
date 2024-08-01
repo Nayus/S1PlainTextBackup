@@ -1859,3 +1859,31 @@ op最后是复归常人，那很难说不是告一段落。3rd幻焰，后续虽
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各位少买一份，让这次卖下3W吧
 
+
+*****
+
+####  dio999  
+##### 2302#       发表于 2024-8-1 21:37
+
+别骗我，这次我不会买了。不对，我没ps5本来也不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  keiyoku  
+##### 2303#       发表于 2024-8-1 21:42
+
+有黎恩和葱头很难下3w吧，可能真的会比黎轨1高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+倒不如期待一下黎恩葱头戏份都是诈骗雷声大雨点小，那界2真的可能3w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2304#       发表于 2024-8-1 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65768727&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 21:16</a>
+哦想到个事，闪4创，二姐和贝尔是不是说要参与下个计划来着。
+
+op最后是复归常人，那很难说不是告一段落。3r ...</blockquote>
+就如你所说的一点末日氛围都没有，这作会告一段落顶多也就是大总统的计划告一段落，boss也就可能是个中boss，永劫估计下部才结束了
+

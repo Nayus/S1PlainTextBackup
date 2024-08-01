@@ -10454,3 +10454,18 @@ MyGO設定集訪談：監督:柿本広大 × 分鏡・演出:梅津朋美
 
 不过组团是为了对邦报复这个想法估计是没有的，单纯就是有个想又能玩乐队又能来钱的打法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 21682#       发表于 2024-8-1 15:06
+
+今天應該還是有可能出earth的MV的，雖然也可能要等到下週<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21683#       发表于 2024-8-1 15:07
+
+饥饿的漏油已经在期待鬼图了，wsd终于等到了这一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

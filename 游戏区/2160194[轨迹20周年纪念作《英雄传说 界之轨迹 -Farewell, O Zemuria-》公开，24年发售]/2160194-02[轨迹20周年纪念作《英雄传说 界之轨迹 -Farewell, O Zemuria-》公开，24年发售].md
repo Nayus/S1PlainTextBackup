@@ -366,3 +366,94 @@ OP静音看还行，
 
 师姐VS黎恩，社长敢不给平手或中断吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 2143#       发表于 2024-8-1 14:57
+
+剑bba校服总算来了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2144#       发表于 2024-8-1 14:58
+
+逐帧看了遍，没看出什么超出宣传的新的花样
+
+*****
+
+####  妄想中毒  
+##### 2145#       发表于 2024-8-1 14:59
+
+剑女都多大了还穿jk服装嫩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜月紫耀  
+##### 2146#       发表于 2024-8-1 14:59
+
+新的魔装鬼是学妹吗？
+
+*****
+
+####  Kojimaru  
+##### 2147#       发表于 2024-8-1 14:59
+
+内容量看op是爆满状态，期待疯了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">永远相信法老控
+
+*****
+
+####  王俊凯  
+##### 2148#       发表于 2024-8-1 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face/137.gif" referrerpolicy="no-referrer">卢法斯 男人中的男人
+
+*****
+
+####  ravend233  
+##### 2149#       发表于 2024-8-1 15:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该下注金魔装鬼是谁了
+
+*****
+
+####  Aeons  
+##### 2150#       发表于 2024-8-1 15:01
+
+说起来魔方是紫色凝聚的，这可是邪恶😈特效，说不准就是恶魔和时间相关了。
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2151#       发表于 2024-8-1 15:02
+
+要论op的末日氛围，感觉不如ff14 6.0的pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 2152#       发表于 2024-8-1 15:03
+
+这op我不好评价。。画面跟歌感觉完全不搭。。既不燃也没那种末日的感觉
+
+话说这白金鬼是学妹吗（<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2153#       发表于 2024-8-1 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765198&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-1 15:01</a>
+
+该下注金魔装鬼是谁了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学妹 师姐 55开！
+
+*****
+
+####  diectt  
+##### 2154#       发表于 2024-8-1 15:06
+
+希望桃花剑被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

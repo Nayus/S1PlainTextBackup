@@ -38,3 +38,16 @@
 据说更新后已经比不联网的实体版更舒服了</blockquote>
 新衣服露出度是很高，老衣服也反和谐了？
 
+
+*****
+
+####  光焰天下第一  
+##### 1687#       发表于 2024-8-1 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65761244&amp;ptid=1978008" target="_blank">Bani82 发表于 2024-8-1 06:44</a>
+
+新衣服露出度是很高，老衣服也反和谐了？</blockquote>
+老衣服给了不和谐的换色板，我觉得更好了。
+
+还是建议更新。
+

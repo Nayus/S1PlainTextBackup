@@ -1830,3 +1830,18 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 斧乃木面无表情配合短发和中性装扮还挺飒的，可惜是个不靠谱式神
 
+
+*****
+
+####  Anonekoy  
+##### 592#       发表于 2024-8-1 20:04
+
+斧乃木短发有点帅了，要不和抚子搭伙过日子吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 593#       发表于 2024-8-1 20:05
+
+掉链子后面无表情地替自己挽尊也是萌点之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

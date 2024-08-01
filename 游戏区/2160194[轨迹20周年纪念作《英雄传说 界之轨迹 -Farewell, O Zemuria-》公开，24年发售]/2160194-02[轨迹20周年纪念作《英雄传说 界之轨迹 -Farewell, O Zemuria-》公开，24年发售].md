@@ -1335,3 +1335,105 @@ op专门k一下表情还是能做到的（
 
 OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。
 
+
+*****
+
+####  苏斯赫查  
+##### 2250#       发表于 2024-8-1 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766404&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-1 16:46</a>
+
+这次除了葱头谁单独来都行
+
+黎恩就算单独来师姐也在这
+
+约修亚单独来玲在这</blockquote>
+你忘了还有吼天狮子，可能托马斯也会来呢
+
+*****
+
+####  苏斯赫查  
+##### 2251#       发表于 2024-8-1 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766631&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-1 17:06</a>
+
+范恩：我呢</blockquote>
+没看到OP最后双飞吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 2252#       发表于 2024-8-1 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766868&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 17:29</a>
+？能有这种建模吗</blockquote>
+可爱捏，界真有2能不能让莉丝也享受一下<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 2253#       发表于 2024-8-1 17:37
+
+我觉得和主线高度绑定要是人气还比不过天天被拉出来对比嘲讽的路人女主亚里莎比较说不过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏斯赫查  
+##### 2254#       发表于 2024-8-1 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766900&amp;ptid=2160194" target="_blank">natmk 发表于 2024-8-1 17:31</a>
+
+只是调侃啦就这跟主线绑定的女主要是人气还是比不过艾蕾因会被称为强推之耻吗
+
+ ...</blockquote>
+有啥奇怪的，就像阿创说的，跟主线强绑定的角色都是剧情的奴隶。自然人气也会跟着主线浮沉，黎的主线到现在看着也不咋地，学妹不像爱莲那么自由自然人气也高不起来
+
+*****
+
+####  天王寺凯伊姆  
+##### 2255#       发表于 2024-8-1 17:38
+
+<blockquote>natmk 发表于 2024-8-1 17:31
+只是调侃啦就这跟主线绑定的女主要是人气还是比不过艾蕾因会被称为强推之耻吗
+
+ ...</blockquote>
+琪雅人气也没见压过tio啊，xp这种东西是这样的
+
+*****
+
+####  aimujie  
+##### 2256#       发表于 2024-8-1 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766718&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-1 17:15</a>
+
+最后那个镜头的燕子有什么说法吗，感觉第一次在轨里看见除了魔兽以外这么具体的鸟类 ...</blockquote>
+公主的鹰第一个不服，枪哥的鹰第二个不服
+
+
+*****
+
+####  ravend233  
+##### 2257#       发表于 2024-8-1 17:40
+
+ 本帖最后由 ravend233 于 2024-8-1 17:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766964&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-1 17:37</a>
+
+我觉得和主线高度绑定要是人气还比不过天天被拉出来对比嘲讽的路人女主亚里莎比较说不过去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还得考虑共和国篇的人气本身总体低于闪轨啊（
+
+syl，女主角和主线强绑定本来也是正常创作手法，怎么就强推之耻了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 2258#       发表于 2024-8-1 17:42
+
+人气跟主线本来就屁关系没有，而且亚里沙人气又不低。另外克洛就算了，菲和黑兔在整个闪轨里跟主线有什么关系？黑兔本来要当剑的结果也被白兔替代了
+
+*****
+
+####  天王寺凯伊姆  
+##### 2259#       发表于 2024-8-1 17:43
+
+看op闪轨组第一反应是菲真的好赚啊，象征身份就是旧七班代表了这当初谁想得到啊
+

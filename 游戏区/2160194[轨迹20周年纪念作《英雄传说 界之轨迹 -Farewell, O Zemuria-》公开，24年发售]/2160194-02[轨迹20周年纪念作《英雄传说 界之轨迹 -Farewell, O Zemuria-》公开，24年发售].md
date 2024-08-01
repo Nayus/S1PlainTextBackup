@@ -1249,3 +1249,26 @@ logo标题是学妹，金发魔装鬼是学妹，圣女是学妹，好多学妹�
 
 这次主角应该有二段变身了吧
 
+
+*****
+
+####  夜漫群星  
+##### 2241#       发表于 2024-8-1 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">文好可破，要是它能写好我没意见……问题是法老控它接得住吗，很难的啦
+
+*****
+
+####  一步成诗  
+##### 2242#       发表于 2024-8-1 17:22
+
+黎老师也不是闪3人气才起来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keiyoku  
+##### 2243#       发表于 2024-8-1 17:23
+
+学妹就单说黎12。。。真的能跟强和惨挂钩吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+黎1出个门总统爹保驾护航，黎2绝大部分人诟病死亡loop她真躺地的演出就一次吧，范恩都莫名其妙挨几次了
+

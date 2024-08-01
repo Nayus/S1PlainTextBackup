@@ -344,3 +344,25 @@ OP静音看还行，
 
 刚才下班打开声音再播一次，歌真不怎么好听。
 
+
+*****
+
+####  夜漫群星  
+##### 2140#       发表于 2024-8-1 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实还成了，总比吊嗓子上不去好那么一点，不过光看这op我确实是想不到在界轨就能把故事讲完的，界2没跑了吧
+
+*****
+
+####  新世界的派蒙  
+##### 2141#       发表于 2024-8-1 14:53
+
+双子妹妹我方预定了，这人性格还是挺讨喜的，完全看不出来有那种剧情背景....
+
+*****
+
+####  solasakiye  
+##### 2142#       发表于 2024-8-1 14:54
+
+师姐VS黎恩，社长敢不给平手或中断吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

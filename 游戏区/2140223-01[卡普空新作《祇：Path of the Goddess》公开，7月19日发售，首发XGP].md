@@ -1334,3 +1334,14 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 阴阳师该怎么用？我看技能说能召唤式神和清屏？
 
+
+*****
+
+####  Leona_Akari  
+##### 192#       发表于 2024-8-1 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765045&amp;ptid=2140223" target="_blank">deathoctopus 发表于 2024-8-1 14:42</a>
+阴阳师该怎么用？我看技能说能召唤式神和清屏？</blockquote>
+左上角有个式神，带了以后会读条，读满可以释放，全屏AOE
+带的越多读条越快
+

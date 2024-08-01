@@ -1887,3 +1887,60 @@ op最后是复归常人，那很难说不是告一段落。3rd幻焰，后续虽
 op最后是复归常人，那很难说不是告一段落。3r ...</blockquote>
 就如你所说的一点末日氛围都没有，这作会告一段落顶多也就是大总统的计划告一段落，boss也就可能是个中boss，永劫估计下部才结束了
 
+
+*****
+
+####  Aeons  
+##### 2305#       发表于 2024-8-1 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65768980&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-8-1 21:44</a>
+就如你所说的一点末日氛围都没有，这作会告一段落顶多也就是大总统的计划告一段落，boss也就可能是个中bo ...</blockquote>
+op里有三个计划倒计时，时间基本只隔几小时，很难说会分开
+
+*****
+
+####  alseabd  
+##### 2306#       发表于 2024-8-1 21:49
+
+OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2307#       发表于 2024-8-1 21:50
+
+黎二不诈骗？轨迹这种就一波销量，当你玩上的时候无论啥内容你已经被骗到了
+
+*****
+
+####  Squall25  
+##### 2308#       发表于 2024-8-1 21:51
+
+正经分析的话，首发低于3w不太可能的，真的这样的话绝对算大褒姒了。近10年法老控都没有首发低于4w的了，下限好像是树海。不过界轨这次肯定保不住5w，而且低于4w概率也很大。
+
+*****
+
+####  ravend233  
+##### 2309#       发表于 2024-8-1 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sofmap特典完成图
+
+<img src="https://img.saraba1st.com/forum/202408/01/215106mnxso3snc3osuhun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 21:51 上传
+
+
+*****
+
+####  ravend233  
+##### 2310#       发表于 2024-8-1 21:54
+
+销量的话感觉主要还是看剩下的5W结晶在打完黎2后还有多少纯度，不过大于3W应该问题不大
+
+至于里爷和葱头，考虑到如果本来就没玩黎轨的还得至少回头打个黎1，如果玩了的本来也算结晶粉了，感觉对销量的提升不会很大
+

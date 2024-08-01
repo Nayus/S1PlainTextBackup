@@ -54,3 +54,13 @@
 高达seed剧场版官方你们这么希望用黄毛吸金就好好刻画呀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">卡嘉莉这戒指，现实中财团B卖的这价格，会不会比设定中阿斯兰买的价格高
 
+
+*****
+
+####  死难者23er  
+##### 1876#       发表于 2024-8-1 18:23
+
+<blockquote>gundammarkⅡ 发表于 2024-8-1 16:38
+卡嘉莉这戒指，现实中财团B卖的这价格，会不会比设定中阿斯兰买的价格高 ...</blockquote>
+是的福田特地发推特给这枚戒指的价格升值了
+

@@ -1573,3 +1573,39 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 感觉界轨其实就是原来的黎轨2，因为基本上没什么新东西，还是那些老面孔，而黎轨2就是用来凑数的
 
+
+*****
+
+####  抽烟的猴  
+##### 2274#       发表于 2024-8-1 18:15
+
+<img src="https://img.saraba1st.com/forum/202408/01/181524ia2ge6zbfgu26xa7.jpg" referrerpolicy="no-referrer">
+
+<strong>081953cc6b0616880176eb185090ed65_edit_336472265878624.jpg</strong> (171.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-1 18:15 上传
+
+葱头的钱包已爆炸
+
+
+*****
+
+####  ravend233  
+##### 2275#       发表于 2024-8-1 18:20
+
+大少带的娃怎么还要葱头付钱的（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  keiyoku  
+##### 2276#       发表于 2024-8-1 18:22
+
+完全不打轨的朋友问这俩关系是公主和她的贴身保镖吗
+才发现镜头语言和站位真的牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6b5ff0af72a47bcdc735fa3350698e90/CMP_20240801182214463.png" referrerpolicy="no-referrer">
+

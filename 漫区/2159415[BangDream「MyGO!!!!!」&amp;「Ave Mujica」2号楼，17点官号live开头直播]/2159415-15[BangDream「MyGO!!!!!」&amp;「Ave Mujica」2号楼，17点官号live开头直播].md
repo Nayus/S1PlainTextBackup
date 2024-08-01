@@ -10786,3 +10786,12 @@ gop臆想中的反派罢了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天沒有MV
 
+
+*****
+
+####  NODY  
+##### 21713#       发表于 2024-8-1 19:32
+
+[奏音谈母鸡卡bml的背后故事：酒店一个人寂寞睡不着叫队友来房间-哔哩哔哩] 
+[https://b23.tv/byI0wRg](https://b23.tv/byI0wRg)
+

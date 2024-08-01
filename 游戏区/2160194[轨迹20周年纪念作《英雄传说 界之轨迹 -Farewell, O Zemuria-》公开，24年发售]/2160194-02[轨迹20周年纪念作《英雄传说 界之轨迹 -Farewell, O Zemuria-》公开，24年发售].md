@@ -1013,3 +1013,21 @@ op不够燃啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉大半篇幅还在日常，没有界2确实可能就是终章坐火箭直接暴力填坑结局了
 
+
+*****
+
+####  Aeons  
+##### 2215#       发表于 2024-8-1 16:18
+
+嗨呀，不让莉丝陷入危险不是很正常的吗
+
+*****
+
+####  ravend233  
+##### 2216#       发表于 2024-8-1 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766025&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 16:15</a>
+
+说起来封面女op也没有</blockquote>
+logo女大概真是在现有角色里找了吧（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1031,3 +1031,47 @@ op不够燃啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 说起来封面女op也没有</blockquote>
 logo女大概真是在现有角色里找了吧（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 2217#       发表于 2024-8-1 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766078&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 16:18</a>
+
+嗨呀，不让莉丝陷入危险不是很正常的吗</blockquote>
+我更想知道她跟拉碧丝谁更能吃
+
+
+*****
+
+####  Layvaten  
+##### 2218#       发表于 2024-8-1 16:34
+
+忍不了了，这学妹真像是艾蕾因代餐吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁火辉夜  
+##### 2219#       发表于 2024-8-1 16:36
+
+一整个op没看到曹李，终于不用看黑月家那篮子破事了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 2220#       发表于 2024-8-1 16:36
+
+法老控是不是本来打算让罗伊德来 然后发现丽霞也在共和国 这个建模逃不掉了
+
+干脆让葱头来 吃货不来 可以少做个建模
+
+法老控：少做一个建模感觉像赚了一个亿
+
+*****
+
+####  月夜的风  
+##### 2221#       发表于 2024-8-1 16:37
+
+OP很好 买 买 买
+

@@ -656,3 +656,14 @@ py码：100104725198，安B服。
 
 月符和签到符无事发生，看样子梣没缘分
 
+
+*****
+
+####  6030sylar  
+##### 46591#       发表于 2024-8-1 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65737097&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-7-29 20:45</a>
+
+之前不知道被哪个视频误导了，以为强化本有没有卡都能打，结果发现今天只有个迦尔纳才意识到被骗了 ...</blockquote>
+前段时间是哪个活动，没有的也能打
+

@@ -696,3 +696,20 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 
 同时代对标都被百万吊打
 
+
+*****
+
+####  冰寒之月  
+##### 5981#       发表于 2024-8-1 17:52
+
+scsp氪了3单才抽到泳装限定雾子 要是早知道雾子这么快来还是限定 就多攒攒石头了 被小高拿捏了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  magicc  
+##### 5982#       发表于 2024-8-1 17:55
+
+南梦宫写过imas曲子的又少一个<img src="https://p.sda1.dev/18/340390272fba0ebfd007c4b072525580/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+

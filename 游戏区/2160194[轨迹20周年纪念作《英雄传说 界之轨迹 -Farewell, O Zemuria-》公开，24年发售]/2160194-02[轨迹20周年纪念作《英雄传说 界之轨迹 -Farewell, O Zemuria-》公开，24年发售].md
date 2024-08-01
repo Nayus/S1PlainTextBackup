@@ -1944,3 +1944,13 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 至于里爷和葱头，考虑到如果本来就没玩黎轨的还得至少回头打个黎1，如果玩了的本来也算结晶粉了，感觉对销量的提升不会很大
 
+
+*****
+
+####  ravend233  
+##### 2311#       发表于 2024-8-1 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想想，如果有界2还要这部结尾有活还要不咚（一定程度回到日常）的话
+
+整个BE然后回溯？（
+

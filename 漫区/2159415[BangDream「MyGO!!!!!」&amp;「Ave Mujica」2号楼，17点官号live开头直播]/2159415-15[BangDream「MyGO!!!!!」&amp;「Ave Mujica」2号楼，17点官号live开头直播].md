@@ -10795,3 +10795,39 @@ gop臆想中的反派罢了
 [奏音谈母鸡卡bml的背后故事：酒店一个人寂寞睡不着叫队友来房间-哔哩哔哩] 
 [https://b23.tv/byI0wRg](https://b23.tv/byI0wRg)
 
+
+*****
+
+####  御幸一也  
+##### 21714#       发表于 2024-8-1 21:59
+
+下週
+
+<img src="https://img.saraba1st.com/forum/202408/01/215931aspgpxpymqdsfskb.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #226 1-5-33 screenshot.jpg</strong> (253.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 21:59 上传
+
+*****
+
+####  NODY  
+##### 21715#       发表于 2024-8-1 21:59
+
+<img src="https://img.saraba1st.com/forum/202408/01/215943w201xc6jxg8gr0rg.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240801215830.png</strong> (113.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 21:59 上传
+
+*****
+
+####  星天观测  
+##### 21716#       发表于 2024-8-1 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">太好了，我的冰川双子
+

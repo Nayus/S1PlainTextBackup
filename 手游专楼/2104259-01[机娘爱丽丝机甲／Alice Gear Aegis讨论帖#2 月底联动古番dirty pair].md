@@ -36,3 +36,16 @@ AI队友不会识别鳖的反射盾，还有柱子的大光柱和开关柱子的
 
 lv400就是纯吓人的，多打几次就能过。但是我现在无法登入PC端搓玻璃搓得好难受<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1152#         楼主| 发表于 2024-8-1 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65768726&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-1 21:16</a>
+
+lv400就是纯吓人的，多打几次就能过。但是我现在无法登入PC端搓玻璃搓得好难受
+
+ ...</blockquote>
+看了下，是进不了DMMPLAYER还是进不了游戏啊？
+

@@ -391,3 +391,11 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 请教下突击步枪这里的“耐久伤害比例”是什么？是指这个武器造成的耐久伤害是面板伤害的10%？然后打到强 ...</blockquote>
 耐久伤害比率只是一个说明方式，实际上武器的耐久伤害值是一个固定值，在伤害计算时是单独计算的。具体可以看我在4756楼的解释 [https://bbs.saraba1st.com/2b/for ... 52&amp;pid=64974203](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2170852&amp;pid=64974203)
 
+
+*****
+
+####  kalavinka  
+##### 5125#         楼主| 发表于 2024-8-1 12:25
+
+上次8/6大更新预告后面官方不是说冻肉也有更新，就这一个通行证？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

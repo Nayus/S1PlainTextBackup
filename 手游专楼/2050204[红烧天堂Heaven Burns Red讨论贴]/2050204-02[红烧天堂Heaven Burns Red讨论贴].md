@@ -1124,3 +1124,11 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 杀人诛心了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  中已矣  
+##### 1607#       发表于 2024-8-1 12:24
+
+打完两次高分挑战基本ab池子就拿的差不多了吧，最后打几把棱镜战就空了
+

@@ -1962,3 +1962,13 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 特意去看了黎2op评论区，感觉和今天氛围好像啊，然后大家都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 2313#       发表于 2024-8-1 22:18
+
+莉丝不来我以为大家早有心里预期呢，没东西给她写了啊，葱头就是有个教会关系所以进帝国午餐队提供新信息的，毕竟冰火和狮子都偏“台面上”，哪有位置再加个莉丝
+
+一个想法，葱头进野餐队是妈妈定位<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

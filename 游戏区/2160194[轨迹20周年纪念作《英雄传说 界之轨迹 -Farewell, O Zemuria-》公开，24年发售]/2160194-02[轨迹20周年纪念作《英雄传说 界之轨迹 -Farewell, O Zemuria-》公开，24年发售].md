@@ -1647,3 +1647,34 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名额有限，这次回归的哪个不是榜上有名，响当当的人物。
 
+
+*****
+
+####  smdzh2  
+##### 2282#       发表于 2024-8-1 19:20
+
+四十周年投票艾玛差一位没进前十，菲这个人气守门员的含金量显得更高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2283#       发表于 2024-8-1 19:23
+
+才发现阿妮开头就是散发了…
+
+<img src="https://img.saraba1st.com/forum/202408/01/192326ob5gdk5nuqkxq5qo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0846.jpeg</strong> (181.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/192327abv07qex2wrw0erx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0848.jpeg</strong> (156.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 19:23 上传
+

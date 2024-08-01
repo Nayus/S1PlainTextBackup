@@ -10831,3 +10831,42 @@ gop臆想中的反派罢了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">太好了，我的冰川双子
 
+
+*****
+
+####  akiomn  
+##### 21717#       发表于 2024-8-1 22:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，下期真正的美帝来了，最美帝的一集
+wsd也是神人，把五个人请过来然后念了四十分钟的工商，真有你的啊wsd
+
+*****
+
+####  PDQ4  
+##### 21718#       发表于 2024-8-1 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65767355&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-1 18:25</a>
+ 祥子是第八集后才正式搬出大宅子和爹住，之前是在大房子当禁止玩音乐的金丝雀这个论点，之前在别的地方也见 ...</blockquote>
+第八集才搬出去不好说在老宅是不是当金丝雀
+
+转学已经锤了是因为羽丘可以缓解经济压力
+再加上私服是从初三开始穿到了现在（虽然大概率是因为懒得建模）
+
+经济问题是从高中前就开始有的
+
+有一种可能是本家只管未成年基本生活，等祥子高中毕业了就必须搬走
+现在只是提前了而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6030sylar  
+##### 21719#       发表于 2024-8-1 22:29
+
+<img src="https://img.saraba1st.com/forum/202408/01/222915f90t2fb7fe6e5908.jpg" referrerpolicy="no-referrer">
+
+<strong>V@HD60K}VB95_NKE6I@Y(K0.jpg</strong> (21.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 22:29 上传
+

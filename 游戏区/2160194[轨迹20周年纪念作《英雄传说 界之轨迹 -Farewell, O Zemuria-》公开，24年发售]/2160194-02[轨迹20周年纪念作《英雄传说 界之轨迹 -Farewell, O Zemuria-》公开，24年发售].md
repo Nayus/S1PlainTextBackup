@@ -1972,3 +1972,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 一个想法，葱头进野餐队是妈妈定位<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 2314#       发表于 2024-8-1 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769333&amp;ptid=2160194" target="_blank">plok201 发表于 2024-8-1 22:18</a>
+
+莉丝不来我以为大家早有心里预期呢，没东西给她写了啊，葱头就是有个教会关系所以进帝国午餐队提供新信息的 ...</blockquote>
+钱包定位！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -1187,3 +1187,26 @@ OP很好 买 买 买
 
 logo标题是学妹，金发魔装鬼是学妹，圣女是学妹，好多学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2233#       发表于 2024-8-1 17:01
+
+省心省力
+
+*****
+
+####  ravend233  
+##### 2234#       发表于 2024-8-1 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把所有坑捆到一个角色身上省事啊（）
+
+
+*****
+
+####  一步成诗  
+##### 2235#       发表于 2024-8-1 17:06
+
+范恩：我呢
+

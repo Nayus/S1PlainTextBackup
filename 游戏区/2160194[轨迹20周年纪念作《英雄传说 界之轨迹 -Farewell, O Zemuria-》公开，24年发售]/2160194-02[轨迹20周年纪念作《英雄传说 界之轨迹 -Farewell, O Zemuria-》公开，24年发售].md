@@ -457,3 +457,75 @@ OP静音看还行，
 
 希望桃花剑被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2155#       发表于 2024-8-1 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765223&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-8-1 15:03</a>
+
+这op我不好评价。。画面跟歌感觉完全不搭。。既不燃也没那种末日的感觉</blockquote>
+基于法社第一定律，第一印象是，那就是（不是
+
+*****
+
+####  一步成诗  
+##### 2156#       发表于 2024-8-1 15:06
+
+op欺诈然后魔装鬼揭晓一个完全没出现在op的人就好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出轨的三头龙  
+##### 2157#       发表于 2024-8-1 15:08
+
+怎么回事，我又想玩了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  alucardcz  
+##### 2158#       发表于 2024-8-1 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765273&amp;ptid=2160194" target="_blank">出轨的三头龙 发表于 2024-8-1 15:08</a>
+
+怎么回事，我又想玩了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎2op看完我也很激动（
+
+*****
+
+####  Kojimaru  
+##### 2159#       发表于 2024-8-1 15:09
+
+<img src="https://img.saraba1st.com/forum/202408/01/150810dfpfo9smpeozpelc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (911.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:08 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">桃花剑被腐乳x周年纪念日
+
+*****
+
+####  Aeons  
+##### 2160#       发表于 2024-8-1 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还挺搭啊，我之前在想怎么op一点激情都没有，实际画面出来确实蛮休闲
+
+
+*****
+
+####  alucardcz  
+##### 2161#       发表于 2024-8-1 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765290&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 15:09</a>
+
+我觉得还挺搭啊，我之前在想怎么op一点激情都没有，实际画面出来确实蛮休闲 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都要世界末日了你怎么还休闲呢
+

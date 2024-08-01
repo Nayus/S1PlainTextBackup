@@ -10469,3 +10469,28 @@ MyGO設定集訪談：監督:柿本広大 × 分鏡・演出:梅津朋美
 
 饥饿的漏油已经在期待鬼图了，wsd终于等到了这一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AshPenguin  
+##### 21684#       发表于 2024-8-1 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765080&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-1 14:47</a>
+如果同时也叫了大素老师或者大爽老师那也不是不行吧，可能只是称呼习惯
+
+木头人当然也是烂梗，所以为什么muj ...</blockquote>
+我确实不知道s1专楼里规矩这么多的，bgm和b站感觉都是随便叫，我查了一下才知道这个梗原来用来骂大司马的。下次不用就罢了。
+
+话又说回来不知道是不是因为已经过了快一年的原因，已经过了讨论阶段，楼友的分析都定型而且排外。整个第一季最有魅力的也莫过于祥子，个人也是最欣赏的角色。我觉得自己在抛砖引玉被理解成诋毁我也很无奈
+
+
+*****
+
+####  akiomn  
+##### 21685#       发表于 2024-8-1 15:15
+
+ 本帖最后由 akiomn 于 2024-8-1 15:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥没想到自己退出后剩下四个真的不行了，当时大概想的是自己退出了也没事，剩下四个还能继续下去，结果嘛……c团本质上是一带四（什么李相赫与他的四个沙兵）祥这个绝对核心走了，c团自然就炸了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然mujica搞不好祥会再炸一次，不过这回如果祥先炸了，剩下那可是连环爆炸，炸的可比c团猛多了（初华和睦都是冲着祥才加入的，喵梦是图流量和米的，海玲大概率是来找个归宿的）
+

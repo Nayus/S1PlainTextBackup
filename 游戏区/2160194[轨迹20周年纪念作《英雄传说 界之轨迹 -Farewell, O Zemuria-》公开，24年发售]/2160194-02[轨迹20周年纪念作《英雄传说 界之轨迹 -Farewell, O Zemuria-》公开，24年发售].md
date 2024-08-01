@@ -1807,3 +1807,55 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 op最后是复归常人，那很难说不是告一段落。3rd幻焰，后续虽然没有想象那么好，但篇幅和内容确实有，还可以，永劫计划要是单部启单部完，之前说的人都没来，感觉作为一个类似幻焰的提前准备计划，结结实实拉裤里了。
 
+
+*****
+
+####  cloudccpro  
+##### 2298#       发表于 2024-8-1 21:24
+
+完了
+
+看完op我又想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+没法抵抗剑女那个笑容
+
+这次总该给个交代了吧
+
+总该滚床单滚几天了吧！
+
+葱头也是老朋友了
+
+大少一如既往优雅
+
+拉碧丝居然还给养大了点
+
+你不是娃娃么（）
+
+唉算了算了
+
+十几年吃下来也不差这一次了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  Aeons  
+##### 2299#       发表于 2024-8-1 21:25
+
+老板糊涂
+
+
+*****
+
+####  Squall25  
+##### 2300#       发表于 2024-8-1 21:30
+
+你们能不能别买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">助力轨迹褒姒好早点完结。
+
+*****
+
+####  ravend233  
+##### 2301#       发表于 2024-8-1 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各位少买一份，让这次卖下3W吧
+

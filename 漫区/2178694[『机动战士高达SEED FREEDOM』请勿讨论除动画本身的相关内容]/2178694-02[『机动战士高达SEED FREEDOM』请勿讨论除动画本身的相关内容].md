@@ -44,3 +44,13 @@
 
 你没看过种命的Final Plus吗？当时就已经约定好为保护共同的世界而战啦
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1875#       发表于 2024-8-1 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65761487&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-8-1 08:20</a>
+高达seed剧场版官方你们这么希望用黄毛吸金就好好刻画呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">卡嘉莉这戒指，现实中财团B卖的这价格，会不会比设定中阿斯兰买的价格高
+

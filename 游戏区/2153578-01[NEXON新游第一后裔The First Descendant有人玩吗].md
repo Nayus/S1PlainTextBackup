@@ -1124,3 +1124,11 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 肝的话我看了下合成链还挺复杂的，很多材料掉率也 ...</blockquote>
 我周末2天刷齐终极兔，不是很肝
 
+
+*****
+
+####  saber6146  
+##### 122#       发表于 2024-8-1 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">看样子这是好起来了吗，请问有没有什么入坑视频可以看的
+

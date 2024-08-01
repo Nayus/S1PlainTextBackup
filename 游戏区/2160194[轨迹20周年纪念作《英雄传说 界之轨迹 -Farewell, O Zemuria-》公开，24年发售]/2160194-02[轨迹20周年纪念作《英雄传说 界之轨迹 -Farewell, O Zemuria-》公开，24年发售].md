@@ -1526,3 +1526,50 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 2024-8-1 18:01 上传
 
+
+*****
+
+####  ravend233  
+##### 2269#       发表于 2024-8-1 18:05
+
+有名有姓有脸的boss都分完了，只能凑凑数了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  离心  
+##### 2270#       发表于 2024-8-1 18:08
+
+<blockquote>ravend233 发表于 2024-8-1 17:28
+你轨法师和剧情强度就不怎么沾边，惨不惨还得看设定解密（）
+
+但是这样也和黎爷不是一路子的角色，你不如说 ...</blockquote>
+还是比不上丹娜的。丹娜才是真正意义上的大女主比小艾还要大的那种（伊苏8所有人都为她铺路，空轨至少还有个约修亚）。且结局更是拉了不少的分
+
+*****
+
+####  一步成诗  
+##### 2271#       发表于 2024-8-1 18:09
+
+如果最后成神的话那确实丹娜的路子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2272#       发表于 2024-8-1 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65767237&amp;ptid=2160194" target="_blank">离心 发表于 2024-8-1 18:08</a>
+还是比不上丹娜的。丹娜才是真正意义上的大女主比小艾还要大的那种（伊苏8所有人都为她铺路，空轨至少还 ...</blockquote>
+只能说非要类比的话。但肯定不可能比得上丹娜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  grox133  
+##### 2273#       发表于 2024-8-1 18:12
+
+感觉界轨其实就是原来的黎轨2，因为基本上没什么新东西，还是那些老面孔，而黎轨2就是用来凑数的
+

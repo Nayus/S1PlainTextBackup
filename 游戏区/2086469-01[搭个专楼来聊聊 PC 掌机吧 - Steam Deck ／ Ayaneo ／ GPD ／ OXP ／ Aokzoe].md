@@ -47,3 +47,17 @@ ROG X相比较原版除了电池以外，性能有提升吗？
 
 现在很想买个机子打BG3和行商浪人，SD玩这俩还是太吃力了
 
+
+*****
+
+####  clyde-wang  
+##### 1270#       发表于 2024-8-1 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65762594&amp;ptid=2086469" target="_blank">blueelf 发表于 2024-8-1 10:21</a>
+ROG X相比较原版除了电池以外，性能有提升吗？
+
+现在很想买个机子打BG3和行商浪人，SD玩这俩还是太吃力了 ...</blockquote>
+内存提升了，但是没有质变，和Ally比起来没有太大区别
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1609,3 +1609,11 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 才发现镜头语言和站位真的牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/6b5ff0af72a47bcdc735fa3350698e90/CMP_20240801182214463.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2277#       发表于 2024-8-1 18:31
+
+虽说打魔装鬼那个场景物体是拟造出来的，但也太糙了点，这石头和地面看着想笑
+

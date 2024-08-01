@@ -409,3 +409,14 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 上次8/6大更新预告后面官方不是说冻肉也有更新，就这一个通行证？</blockquote>
 通行证8号，补丁6号
 
+
+*****
+
+####  aSky117  
+##### 5127#       发表于 2024-8-1 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65763301&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-8-1 11:27</a>
+
+耐久伤害比率只是一个说明方式，实际上武器的耐久伤害值是一个固定值，在伤害计算时是单独计算的。具体可 ...</blockquote>
+了解清楚了，感谢老哥整理
+

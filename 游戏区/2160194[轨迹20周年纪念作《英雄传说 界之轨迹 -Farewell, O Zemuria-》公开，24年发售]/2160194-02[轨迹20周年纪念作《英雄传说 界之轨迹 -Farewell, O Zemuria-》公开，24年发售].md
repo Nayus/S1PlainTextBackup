@@ -1769,3 +1769,21 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 说起来直接op是不是没有pv了？可惜，op场面游戏里都不一样的pv全是实机
 
+
+*****
+
+####  洛克萨斯  
+##### 2294#       发表于 2024-8-1 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主骑，敌骑，女骑士，那么二骑和三骑呢！
+
+*****
+
+####  ravend233  
+##### 2295#       发表于 2024-8-1 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65768492&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 20:42</a>
+
+说起来直接op是不是没有pv了？可惜，op场面游戏里都不一样的pv全是实机</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该还是会有一个发售PV吧，不然真就是一个正经PV都没有了，这次应该算是提前放出OP？（）
+

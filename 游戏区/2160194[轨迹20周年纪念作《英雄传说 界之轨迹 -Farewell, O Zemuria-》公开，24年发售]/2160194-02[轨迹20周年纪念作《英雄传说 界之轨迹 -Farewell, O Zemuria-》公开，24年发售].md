@@ -1145,3 +1145,45 @@ OP很好 买 买 买
 
 我要是葱头都不屑与这俩为伍
 
+
+*****
+
+####  Aeons  
+##### 2228#       发表于 2024-8-1 16:49
+
+教会不是一堆人
+
+*****
+
+####  炒面  
+##### 2229#       发表于 2024-8-1 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766294&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-1 16:36</a>
+
+法老控是不是本来打算让罗伊德来 然后发现丽霞也在共和国 这个建模逃不掉了
+
+干脆让葱头来 吃货不来 可以少 ...</blockquote>
+没懂，丽霞在黎轨本来就是可用角色啊
+
+*****
+
+####  SuNR1sE364  
+##### 2230#       发表于 2024-8-1 16:52
+
+不会真就是学妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2231#       发表于 2024-8-1 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一印象觉得是学妹的感觉可能和发型有关？其他魔装鬼都是上翘的马尾，这个是长直发
+
+*****
+
+####  一步成诗  
+##### 2232#       发表于 2024-8-1 16:57
+
+logo标题是学妹，金发魔装鬼是学妹，圣女是学妹，好多学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

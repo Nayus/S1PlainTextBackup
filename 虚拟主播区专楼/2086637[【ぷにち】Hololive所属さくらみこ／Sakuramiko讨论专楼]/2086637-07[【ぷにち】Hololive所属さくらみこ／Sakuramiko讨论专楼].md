@@ -5753,3 +5753,38 @@ DMM的工商，好像以前很少有
 
 你cover就这么会搞事
 
+
+*****
+
+####  holoan  
+##### 9382#         楼主| 发表于 2024-8-1 15:33
+
+<img src="https://img.saraba1st.com/forum/202408/01/153232woob9joj7gddsex9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:32 上传
+
+果然我说什么来什么
+
+今晚果然是danye主场，原创曲同时发表了意料之内
+
+<img src="https://img.saraba1st.com/forum/202408/01/153335thcnczhld09b9907.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:33 上传
+
+依然是full anime豪华配置
+
+*****
+
+####  rs5621  
+##### 9383#       发表于 2024-8-1 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又有动画mv看了
+

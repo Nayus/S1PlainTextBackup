@@ -746,3 +746,103 @@ op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑�
 合着葱头一个人来呗 不说cp 随从骑士都不来？</blockquote>
 冰火的从骑士有来吗？不太记得了
 
+
+*****
+
+####  克里斯蒂娜  
+##### 2188#       发表于 2024-8-1 15:46
+
+<img src="https://p.sda1.dev/18/8f94703fc832eceeb4101b93c7639162/CMP_20240801154528550.jpg" referrerpolicy="no-referrer">
+
+挺好颜是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ssobsb  
+##### 2189#       发表于 2024-8-1 15:47
+
+<img src="https://img.saraba1st.com/forum/202408/01/154254onuc4c1kd27fd17s.jpg" referrerpolicy="no-referrer">
+
+<strong>1F999DE381F378CB4A8A8F0BBFDD50B3.jpg</strong> (6.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/154254lpts0ihvi7ttnft7.jpg" referrerpolicy="no-referrer">
+
+<strong>729A510AC2C1275D3429C187FDAC25EA.jpg</strong> (44.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/154254y2zsff2jpbppspza.jpg" referrerpolicy="no-referrer">
+
+<strong>A58374B1E653A8CF8C02E1EB4A2D6625.jpg</strong> (23.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:42 上传
+
+就是换皮皮套，最多改了改颜色细节，除了配色相近感觉不出和奥古斯特有啥关系，而且丁格和红黎的配色关联就是穿了个红衬衣，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 2190#       发表于 2024-8-1 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765643&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-8-1 15:45</a>
+
+冰火的从骑士有来吗？不太记得了</blockquote>
+我印象中这俩就没提到从骑士
+
+*****
+
+####  Aeons  
+##### 2191#       发表于 2024-8-1 15:49
+
+黎二有伏笔金色魔装鬼后面还有东西，说不定就这个呢，就我打我自己了
+
+*****
+
+####  Squall25  
+##### 2192#       发表于 2024-8-1 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765643&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-8-1 15:45</a>
+冰火的从骑士有来吗？不太记得了</blockquote>
+冰自己就是给火打下手的，哪里还需要从骑士
+
+*****
+
+####  huyangxinhn  
+##### 2193#       发表于 2024-8-1 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765643&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-8-1 15:45</a>
+
+冰火的从骑士有来吗？不太记得了</blockquote>
+这两个一开始就是组队关系，互为从骑士。
+
+*****
+
+####  maojiashu  
+##### 2194#       发表于 2024-8-1 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765637&amp;ptid=2160194" target="_blank">抽烟的猴 发表于 2024-8-1 15:44</a>
+
+人气太低，没资格上桌</blockquote>
+那还不如别上葱头呢 害我白期待这么久 闪4结尾都有两人 现在跟我说莉丝不来 真恶心吧
+
+
+*****
+
+####  苏斯赫查  
+##### 2195#       发表于 2024-8-1 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765693&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-1 15:50</a>
+
+冰自己就是给火打下手的，哪里还需要从骑士</blockquote>
+其实这点挺扯的，从骑士说白了就是星杯的保姆或者管家，让星杯当星杯管家简直是浪费资源。。。
+

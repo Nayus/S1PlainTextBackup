@@ -667,3 +667,11 @@ py码：100104725198，安B服。
 之前不知道被哪个视频误导了，以为强化本有没有卡都能打，结果发现今天只有个迦尔纳才意识到被骗了 ...</blockquote>
 前段时间是哪个活动，没有的也能打
 
+
+*****
+
+####  khxooo  
+##### 46592#       发表于 2024-8-1 11:47
+
+水伊吹120级了，下一个目标仇凛<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

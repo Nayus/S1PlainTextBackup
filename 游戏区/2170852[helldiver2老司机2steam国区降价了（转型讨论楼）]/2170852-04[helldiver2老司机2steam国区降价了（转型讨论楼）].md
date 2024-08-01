@@ -428,3 +428,14 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 机器人新轨道加农炮这图是不是有BUG，有些敌人的伤害高的一笔，我都改穿中甲了，小杂兵都能一枪秒我，有一局死得我都怀疑人生了。打到后面敌人刷新量又变得奇低，最后撤离也不刷怪，好几局都是前期死成狗，后期随便溜。我看国外队友甚至都换上了重甲<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5129#       发表于 2024-8-2 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769088&amp;ptid=2170852" target="_blank">dfbbymice 发表于 2024-8-1 21:53</a>
+
+机器人新轨道加农炮这图是不是有BUG，有些敌人的伤害高的一笔，我都改穿中甲了，小杂兵都能一枪秒我，有一 ...</blockquote>
+这图已知的bug是拿铝热手雷钻到巨炮尾仓下面炸炮弹仓之后巨炮会无敌，地狱火和迷你核弹都炸不爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

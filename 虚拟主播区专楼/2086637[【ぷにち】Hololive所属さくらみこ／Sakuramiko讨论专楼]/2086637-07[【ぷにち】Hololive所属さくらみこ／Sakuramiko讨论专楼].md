@@ -5724,3 +5724,32 @@ DMM的工商，好像以前很少有
 
 那绝对是爆破企划了
 
+
+*****
+
+####  holoan  
+##### 9380#         楼主| 发表于 2024-7-31 23:51
+
+明天的嘉宾咋一看好像0期生全齐了有人就在说是不是0期生周年企划
+
+仔细一瞧没有星街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过0期生的周年live应该很难搞得起来，反而0期生的线下live可能性更大
+
+*****
+
+####  holoan  
+##### 9381#         楼主| 发表于 2024-8-1 14:02
+
+<img src="https://img.saraba1st.com/forum/202408/01/140155mg05wsqnlx13vnwl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:01 上传
+
+延期2个月勉强赶得上sololive笑死了
+
+你cover就这么会搞事
+

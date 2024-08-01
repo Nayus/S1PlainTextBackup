@@ -721,3 +721,16 @@ scsp氪了3单才抽到泳装限定雾子 要是早知道雾子这么快来还�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">gbf没有出货，scsp没有出透，学没有出莉莉娅，真要给万南送钱了
 
+
+*****
+
+####  KQUIN  
+##### 5984#       发表于 2024-8-1 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65766697&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-8-1 17:13</a>
+
+我能找到十几年前网上“西部人民还在吃草”的言论来，是不是足以证明十几年前西部人民还活在温饱线以下 ...</blockquote>
+哥们咋先入为主的认为是日本人觉得的一定对呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，土豆和草菇谁比较强想来也不是什么有价值的议题，什么时候产生了我要证明的是TD＞CG这件事的错觉了。
+
+有没有一种可能，我在说日本灰友不够自信？从TD诞生时起一路到两者联动，再到双方一同实装voyager乃至一直笑的MV，日本人总是带着一股莫名其妙的缺乏自信的方式来审视两者MV技术力的对比，哪怕他们手里握着最好的3dlive开山之作手游？我觉得是大可不必，我甚至能说到了学马的今天，一些草菇MV的创意和点子还是没有被超越，先世代的游戏对比后一个世代的游戏时可不要带着这种没必要的劣等感，只要自己别闹到不脸红脖子粗的境地，先发的开拓者永远都是爷。
+

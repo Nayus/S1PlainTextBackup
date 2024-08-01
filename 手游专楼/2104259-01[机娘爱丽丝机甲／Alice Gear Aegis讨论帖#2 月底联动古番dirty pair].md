@@ -60,3 +60,14 @@ lv400就是纯吓人的，多打几次就能过。但是我现在无法登入PC�
 看了下，是进不了DMMPLAYER还是进不了游戏啊？</blockquote>
 进不了游戏。换个代理估计就能好不过懒得换了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1154#         楼主| 发表于 2024-8-1 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769323&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-1 22:16</a>
+
+进不了游戏。换个代理估计就能好不过懒得换了</blockquote>
+这可能是地区运营商的问题，我的电信就曾经试过非常难进游戏……还是要上代理才行……
+

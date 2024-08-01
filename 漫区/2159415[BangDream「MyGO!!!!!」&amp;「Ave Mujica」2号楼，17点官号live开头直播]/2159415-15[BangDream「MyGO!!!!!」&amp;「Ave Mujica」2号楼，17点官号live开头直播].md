@@ -10392,3 +10392,25 @@ MyGO設定集訪談：監督:柿本広大 × 分鏡・演出:梅津朋美
 
 为什么扣你分，大x老师用来骂人没有m的，喜欢当面喊烂梗，活该
 
+
+*****
+
+####  御幸一也  
+##### 21678#       发表于 2024-8-1 14:37
+
+什麼大可不必，喜歡叫那個什麼大X在S1看到我一定扣，又爛又臭。
+
+怎麼了 難道真的是“祥子”兩個字不會打？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 21679#       发表于 2024-8-1 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果同时也叫了大素老师或者大爽老师那也不是不行吧，可能只是称呼习惯
+
+木头人当然也是烂梗，所以为什么mujica成员要用烂梗黑称，但是对mygo成员却会叫名字呢
+
+当然第一次我不会扣分，因为确实可能有人不知道
+

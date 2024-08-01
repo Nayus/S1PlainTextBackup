@@ -283,3 +283,64 @@ X创世和汉弥尔顿有关啊
 
 2024-8-1 14:35 上传
 
+
+*****
+
+####  低调不圆滑  
+##### 2133#       发表于 2024-8-1 14:37
+
+金毛大概率是老太婆变得吧
+
+*****
+
+####  kivz  
+##### 2134#       发表于 2024-8-1 14:37
+
+看不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以到底谁赢（
+
+*****
+
+####  低调不圆滑  
+##### 2135#       发表于 2024-8-1 14:37
+
+这op一点都看不到一部完结的样子怎么看都有界2了
+
+*****
+
+####  ravend233  
+##### 2136#       发表于 2024-8-1 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765009&amp;ptid=2160194" target="_blank">kivz 发表于 2024-8-1 14:37</a>
+看不懂啊
+
+所以到底谁赢（</blockquote>
+当然是开放结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  hkguty  
+##### 2137#       发表于 2024-8-1 14:43
+
+哇，我怀疑最终boss是学妹
+
+*****
+
+####  hkguty  
+##### 2138#       发表于 2024-8-1 14:44
+
+八叶对决希望做得比黎2打菲莉哥更屌
+
+*****
+
+####  winggg  
+##### 2139#       发表于 2024-8-1 14:46
+
+OP静音看还行，
+
+刚才下班打开声音再播一次，歌真不怎么好听。
+

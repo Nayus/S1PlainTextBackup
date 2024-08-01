@@ -941,3 +941,75 @@ op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑�
 戏外角度来说就是人太多了，再写从骑士控制不住。戏内角度来看可能单纯两个人相性好，男女干活搭配不累， ...</blockquote>
 当战友是这样，问题从骑士干的是杂活啊，例如订酒店，洗衣服，联络当地负责人之类，给星杯免去俗事的，让一个星杯去干这活实在太暴殄天物了
 
+
+*****
+
+####  Squall25  
+##### 2206#       发表于 2024-8-1 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765895&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-8-1 16:07</a>
+当战友是这样，问题从骑士干的是杂活啊，例如订酒店，洗衣服，联络当地负责人之类，给星杯免去俗事的，让 ...</blockquote>
+飞船的人又不止从骑士，其他人也可以干杂活，主要一般从骑士已经满足不了出任务的需要了。黎1狮子说冰火骑士是能抗衡破戒+黄金蝶的，结社都出那么多人了，不上两星杯确实不好办事，更别说实际上僧兵团都能难住两星杯。
+
+
+*****
+
+####  一步成诗  
+##### 2207#       发表于 2024-8-1 16:12
+
+等出了界2再买才是最明智的选择，明年说好了东迷这咚了等两年比闪3还难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏斯赫查  
+##### 2208#       发表于 2024-8-1 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765930&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-1 16:09</a>
+
+飞船的人又不止从骑士，其他人也可以干杂活，主要一般从骑士已经满足不了出任务的需要了。黎1狮子说冰火 ...</blockquote>
+从骑士相当于心腹，有些秘密行动也得靠他们传递，说白了既然从骑士可有可无，就没必要设置这么一个职位，显得前面很傻，看看托马斯的从骑士实际上也没干啥活。。。
+
+*****
+
+####  Aeons  
+##### 2209#       发表于 2024-8-1 16:14
+
+界二有没有都很正常，但是没有的话感觉就挺小打小闹的
+
+*****
+
+####  ravend233  
+##### 2210#       发表于 2024-8-1 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有莉丝说到底就是资源有限呗，至于资源分哪去了，DDDD
+
+*****
+
+####  光之阶梯  
+##### 2211#       发表于 2024-8-1 16:14
+
+op不够燃啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 2212#       发表于 2024-8-1 16:15
+
+说起来封面女op也没有
+
+*****
+
+####  aimujie  
+##### 2213#       发表于 2024-8-1 16:16
+
+吃货修女多好，估计是建模都懒得做，最多对话里找个借口一笔带过
+
+*****
+
+####  ravend233  
+##### 2214#       发表于 2024-8-1 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉大半篇幅还在日常，没有界2确实可能就是终章坐火箭直接暴力填坑结局了
+

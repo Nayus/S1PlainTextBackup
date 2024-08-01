@@ -10683,3 +10683,25 @@ gop臆想中的反派罢了
 
 所以我说的自卑不是说祥子觉得自己劣于别人，而是说她曾经拥有但后来失去。最后祥子说软弱的我已经死去了，不也正是和过去告别
 
+
+*****
+
+####  六道明  
+##### 21705#       发表于 2024-8-1 16:04
+
+泪奔肯定不是自卑，祥子高傲的性格也不会允许别人对她有怜悯之心的（邀请睦的时候）
+
+祥子台词中反复提到“命运”，大概更多是对命运的愤恨和对失去曾经生活（家庭、朋友等）的失落<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21706#       发表于 2024-8-1 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765772&amp;ptid=2159415" target="_blank">AshPenguin 发表于 2024-8-1 15:58</a>
+
+我觉得自傲和自卑是一体两面的。
+
+顺风顺水的前15年肯定给祥子自傲的资本，而且她的心理眼界都超出同龄人 ...</blockquote>
+那不是自傲，是自负
+

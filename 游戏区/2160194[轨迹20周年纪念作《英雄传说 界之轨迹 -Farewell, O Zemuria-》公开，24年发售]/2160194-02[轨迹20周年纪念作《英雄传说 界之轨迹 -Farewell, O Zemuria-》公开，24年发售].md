@@ -2016,3 +2016,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 特意去看了黎2op评论区，感觉和今天氛围好像啊，然后大家都知道了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就说黎2op精彩不精彩 你期待不期待（
 
+
+*****
+
+####  ravend233  
+##### 2319#       发表于 2024-8-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769716&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-8-1 23:07</a>
+
+话说到底什么时候换画师  这op看到最后那宣传图就崩不住了 这学妹画的跟鬼一样 ...</blockquote>
+等共和国篇结束（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

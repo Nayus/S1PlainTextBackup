@@ -2038,3 +2038,11 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 说实话f社现在有一种“黎1黎2人物模型走做出来了，这一作不用就可惜了”的感觉 ...</blockquote>
 不用加“的感觉”3个字，就是模型做出来不用就可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 2321#       发表于 2024-8-2 00:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这模型肯定是外包做的  对法老空应该是巨款了
+

@@ -1617,3 +1617,25 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 
 虽说打魔装鬼那个场景物体是拟造出来的，但也太糙了点，这石头和地面看着想笑
 
+
+*****
+
+####  gulant  
+##### 2278#       发表于 2024-8-1 18:59
+
+我只关注帝国桃花剑vs师姐。求更多互动<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  memo2  
+##### 2279#       发表于 2024-8-1 19:01
+
+哎呦这op，黎1结尾那恶心感又回来了，还能提前买的剑女党心是有多大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhouaa  
+##### 2280#       发表于 2024-8-1 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帝国两白毛着不住  你说换一个艾玛都强点  
+

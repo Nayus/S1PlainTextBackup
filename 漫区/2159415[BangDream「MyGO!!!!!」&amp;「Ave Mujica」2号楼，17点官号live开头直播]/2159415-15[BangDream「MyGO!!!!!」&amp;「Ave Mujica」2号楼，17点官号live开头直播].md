@@ -10253,3 +10253,44 @@ mujica成员姓名地名规律并不能这么找
 
 玖羽大有什么思路吗……
 
+
+*****
+
+####  AshPenguin  
+##### 21669#       发表于 2024-8-1 12:56
+
+终于在众多安利中看完了mygo，一个感觉，8话前和8话后好像不是一个世界
+
+8话之前就像全是重力，8话之后编剧的大手直接把5个人强行粘合回来了，能理解这么写的原因，毕竟不能真的炸团换人，但是之前刻画的所谓真实性就大打折扣了。
+
+我猜大祥老师第一次炸团估摸着是因为知道自己以后玩不起乐队了，但是又怕队友惦记，直接把团炸了就没人惦记了，结果没想到有个soyo
+
+随着时间变化，这种对过去的美好的怀恋逐渐变成自卑，嫉妒，愤恨，最后受不了了直接开个新团对bang。大祥老师为大伙有第二季看操碎了心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+但我还是不懂为什么soyo把黄瓜给木头人退回去了，木头人做错了什么，黄瓜做错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也|-1|“祥子”兩個字不會打嗎？|
+
+查看全部评分
+
+
+*****
+
+####  Aendst  
+##### 21670#       发表于 2024-8-1 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764250&amp;ptid=2159415" target="_blank">AshPenguin 发表于 2024-8-1 12:56</a>
+
+终于在众多安利中看完了mygo，一个感觉，8话前和8话后好像不是一个世界
+
+8话之前就像全是重力，8话之后编剧 ...</blockquote><blockquote>随着时间变化，这种对过去的美好的怀恋逐渐变成自卑，嫉妒，愤恨，最后受不了了直接开个新团对bang。</blockquote>
+可能我们看的不是同一个动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1983,3 +1983,36 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 莉丝不来我以为大家早有心里预期呢，没东西给她写了啊，葱头就是有个教会关系所以进帝国午餐队提供新信息的 ...</blockquote>
 钱包定位！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a85982313  
+##### 2315#       发表于 2024-8-1 22:58
+
+艾约，还有罗爷他们一个都没来吗，按常理来说，如果界轨完结共和国篇的话，法老控应该怎么都得把这两批人塞进去吧
+
+
+*****
+
+####  liuguokobe  
+##### 2316#       发表于 2024-8-1 23:04
+
+说实话f社现在有一种“黎1黎2人物模型走做出来了，这一作不用就可惜了”的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2317#       发表于 2024-8-1 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说到底什么时候换画师  这op看到最后那宣传图就崩不住了 这学妹画的跟鬼一样
+
+*****
+
+####  alucardcz  
+##### 2318#       发表于 2024-8-1 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65769277&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-1 22:11</a>
+
+特意去看了黎2op评论区，感觉和今天氛围好像啊，然后大家都知道了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就说黎2op精彩不精彩 你期待不期待（
+

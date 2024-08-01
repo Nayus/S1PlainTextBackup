@@ -120,3 +120,12 @@ tkn生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.
 
 祝福传奇黑长直0泷奈生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Delicatus545  
+##### 1962#       发表于 2024-8-2 01:28
+
+没人搬那我搬了，伟大无需多盐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/6137963f9fafbaf9b968c46b1b02667a/20240801_232805.jpg" referrerpolicy="no-referrer">
+

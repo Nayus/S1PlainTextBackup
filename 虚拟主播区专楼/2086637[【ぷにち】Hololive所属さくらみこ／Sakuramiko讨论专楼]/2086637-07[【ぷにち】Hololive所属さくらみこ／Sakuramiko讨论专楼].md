@@ -5805,3 +5805,33 @@ DMM的工商，好像以前很少有
 
 danye草
 
+
+*****
+
+####  rs5621  
+##### 9386#       发表于 2024-8-1 21:04
+
+鬼叫重复4遍！
+
+*****
+
+####  holoan  
+##### 9387#         楼主| 发表于 2024-8-1 21:05
+
+danye草。。。
+
+*****
+
+####  rs5621  
+##### 9388#       发表于 2024-8-1 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是之前说的爆炸项目么
+
+*****
+
+####  渡鸦骑士  
+##### 9389#       发表于 2024-8-1 21:05
+
+所以两次爆炸……
+是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

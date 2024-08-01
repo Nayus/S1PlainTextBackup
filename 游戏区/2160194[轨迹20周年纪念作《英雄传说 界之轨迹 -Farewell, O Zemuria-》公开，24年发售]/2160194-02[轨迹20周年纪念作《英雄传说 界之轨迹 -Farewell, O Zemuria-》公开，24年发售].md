@@ -1787,3 +1787,11 @@ OP不算难听，但作为OP激不起情绪，这点真的被黎II完爆了。</
 说起来直接op是不是没有pv了？可惜，op场面游戏里都不一样的pv全是实机</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该还是会有一个发售PV吧，不然真就是一个正经PV都没有了，这次应该算是提前放出OP？（）
 
+
+*****
+
+####  洛克萨斯  
+##### 2296#       发表于 2024-8-1 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮娜的建模技术我感觉以后会拿去给空轨重制的约书亚女装用（）
+

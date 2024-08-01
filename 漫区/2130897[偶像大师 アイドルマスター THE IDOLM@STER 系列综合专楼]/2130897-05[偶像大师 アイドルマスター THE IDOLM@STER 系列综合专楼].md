@@ -654,3 +654,14 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 
 木实姐太会了 我要和木实姐结婚
 
+
+*****
+
+####  achilleus  
+##### 5977#       发表于 2024-8-1 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65763695&amp;ptid=2130897" target="_blank">KQUIN 发表于 2024-8-1 12:01</a>
+
+我记得最早一次灰友悲观和发怒就是因为土豆刚出就很显然比草菇好，抱怨万南抄了cy模式还要试图推草菇竞品 ...</blockquote>
+我能找到十几年前网上“西部人民还在吃草”的言论来，是不是足以证明十几年前西部人民还活在温饱线以下<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -1210,3 +1210,42 @@ logo标题是学妹，金发魔装鬼是学妹，圣女是学妹，好多学妹�
 
 范恩：我呢
 
+
+*****
+
+####  ravend233  
+##### 2236#       发表于 2024-8-1 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">VAN的坑说到底也就剩个魔王是什么东西这个问题了吧（）然后再解释一下为什么创世对这玩意也有影响
+
+最终还是回到创世这个坑上（
+
+
+*****
+
+####  一步成诗  
+##### 2237#       发表于 2024-8-1 17:15
+
+最后那个镜头的燕子有什么说法吗，感觉第一次在轨里看见除了魔兽以外这么具体的鸟类<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2238#       发表于 2024-8-1 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">其实核心是梅亚，她才是连结一切谜团的人，魔王，创世，魔装鬼，昆仑内部。
+
+*****
+
+####  natmk  
+##### 2239#       发表于 2024-8-1 17:15
+
+你法老控明显想打造一个女版黎恩 把所有的坑都集中到学妹身上在出个美惨强的剧情真就一有尽有了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  出言不迅  
+##### 2240#       发表于 2024-8-1 17:17
+
+这次主角应该有二段变身了吧
+

@@ -1132,3 +1132,17 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">看样子这是好起来了吗，请问有没有什么入坑视频可以看的
 
+
+*****
+
+####  魂淡融  
+##### 123#       发表于 2024-8-1 17:11
+
+<blockquote>saber6146 发表于 2024-8-1 16:40
+看样子这是好起来了吗，请问有没有什么入坑视频可以看的</blockquote>
+开服这一个月，更新我觉得还挺拟人的，比全境2当年好太多了。
+
+针对一些吐槽比较多的点都修改了，减负不少。但一些玩家发现的收益很高的bug和机制也改的很快。
+
+入坑搜一些最近发布的入坑或者开荒攻略应该都可以
+

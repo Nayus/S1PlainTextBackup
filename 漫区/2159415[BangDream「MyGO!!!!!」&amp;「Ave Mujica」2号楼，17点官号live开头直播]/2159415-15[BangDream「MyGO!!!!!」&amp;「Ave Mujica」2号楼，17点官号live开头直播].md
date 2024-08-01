@@ -10294,3 +10294,14 @@ mujica成员姓名地名规律并不能这么找
 8话之前就像全是重力，8话之后编剧 ...</blockquote><blockquote>随着时间变化，这种对过去的美好的怀恋逐渐变成自卑，嫉妒，愤恨，最后受不了了直接开个新团对bang。</blockquote>
 可能我们看的不是同一个动画吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AshPenguin  
+##### 21671#       发表于 2024-8-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65764305&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-1 13:03</a>
+
+可能我们看的不是同一个动画吧</blockquote>
+那为什么要“忘记一切”呢，然后转头组了专业的新团，总不能全是为了赚钱吧
+

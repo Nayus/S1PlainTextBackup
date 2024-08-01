@@ -1791,3 +1791,26 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Tachikoma88  
+##### 588#       发表于 2024-8-1 18:39
+
+好新潮的斧乃木
+
+<img src="https://img.saraba1st.com/forum/202408/01/183914d0o7qghgb0b0020y.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-ayk4ZlT3cSxc-ir.jpg</strong> (92.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 18:39 上传
+
+*****
+
+####  Tachikoma88  
+##### 589#       发表于 2024-8-1 18:41
+
+编辑
+

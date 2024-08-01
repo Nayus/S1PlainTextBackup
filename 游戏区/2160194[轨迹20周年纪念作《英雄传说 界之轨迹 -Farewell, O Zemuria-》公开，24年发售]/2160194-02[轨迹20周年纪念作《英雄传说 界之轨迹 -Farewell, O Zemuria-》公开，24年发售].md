@@ -846,3 +846,98 @@ op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑�
 冰自己就是给火打下手的，哪里还需要从骑士</blockquote>
 其实这点挺扯的，从骑士说白了就是星杯的保姆或者管家，让星杯当星杯管家简直是浪费资源。。。
 
+
+*****
+
+####  Aeons  
+##### 2196#       发表于 2024-8-1 15:58
+
+ 本帖最后由 Aeons 于 2024-8-1 15:59 编辑 
+
+官网葱头介绍里还提了下莉丝，不来和罗伊德创轨剧情说末日，黎二设定集说盖乌斯，结果没来一样，你法不太体面。
+
+只能说选角很明显。
+
+*****
+
+####  yth329  
+##### 2197#       发表于 2024-8-1 15:58
+
+看最后一幕感觉还是和稀泥根据好感度两边都能选的暧昧结局，能不能至少加个翅膀路线啊
+
+*****
+
+####  酷乐  
+##### 2198#       发表于 2024-8-1 15:59
+
+魔装鬼月球单挑，让我想起了车田正美的《风魔小次郎》。
+
+*****
+
+####  Squall25  
+##### 2199#       发表于 2024-8-1 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765749&amp;ptid=2160194" target="_blank">苏斯赫查 发表于 2024-8-1 15:55</a>
+其实这点挺扯的，从骑士说白了就是星杯的保姆或者管家，让星杯当星杯管家简直是浪费资源。。。 ...</blockquote>
+戏外角度来说就是人太多了，再写从骑士控制不住。戏内角度来看可能单纯两个人相性好，男女干活搭配不累，塞莉丝有力量但冲动，里翁实力差一些但比较冷静，刚好互补
+
+*****
+
+####  无动于衷  
+##### 2200#       发表于 2024-8-1 16:00
+
+能不能来个老范一个人跑路把俩人都丢下的结局 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wseedx  
+##### 2201#       发表于 2024-8-1 16:01
+
+赢不了                 
+
+
+*****
+
+####  keiyoku  
+##### 2202#       发表于 2024-8-1 16:03
+
+看了op坚定了不买的心<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maojiashu  
+##### 2203#       发表于 2024-8-1 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765767&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 15:58</a>
+
+官网葱头介绍里还提了下莉丝，不来和罗伊德创轨剧情说末日，黎二设定集说盖乌斯，结果没来一样，你法不太体 ...</blockquote>
+这个还不太一样
+
+这个像
+
+罗伊德来了 艾莉 琪雅一个没来
+
+约修亚来了 艾斯蒂尔 玲一个没来
+
+就tm离谱 以前哪有这种事
+
+*****
+
+####  悠悠你心  
+##### 2204#       发表于 2024-8-1 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">op好看不代表剧情值得期待，继续观望了。
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  苏斯赫查  
+##### 2205#       发表于 2024-8-1 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765792&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-1 16:00</a>
+
+戏外角度来说就是人太多了，再写从骑士控制不住。戏内角度来看可能单纯两个人相性好，男女干活搭配不累， ...</blockquote>
+当战友是这样，问题从骑士干的是杂活啊，例如订酒店，洗衣服，联络当地负责人之类，给星杯免去俗事的，让一个星杯去干这活实在太暴殄天物了
+

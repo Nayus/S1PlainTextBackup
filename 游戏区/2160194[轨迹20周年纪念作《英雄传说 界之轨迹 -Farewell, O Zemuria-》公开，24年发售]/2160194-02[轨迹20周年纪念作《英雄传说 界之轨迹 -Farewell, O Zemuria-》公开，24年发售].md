@@ -190,3 +190,96 @@ X创世和汉弥尔顿有关啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界轨打白金魔装鬼和面具人
 
+
+*****
+
+####  zwc80000  
+##### 2126#       发表于 2024-8-1 14:26
+
+这面具人看着像什么复制人
+
+*****
+
+####  ravend233  
+##### 2127#       发表于 2024-8-1 14:28
+
+面具人应该是一个对应一个创世的样子（
+
+*****
+
+####  一步成诗  
+##### 2128#       发表于 2024-8-1 14:30
+
+既然这样该给校服dlc了吧
+
+*****
+
+####  a2042312  
+##### 2129#       发表于 2024-8-1 14:31
+
+面具人跟阿龙对砍那幕还挺像复制人的，话说结尾怎么来了个三人行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，看OP也没啥世界末日紧迫的氛围，大少还玩上公主抱了。
+
+
+*****
+
+####  Aeons  
+##### 2130#       发表于 2024-8-1 14:32
+
+我之前就说了，本作一点末日氛围都没有
+
+*****
+
+####  一步成诗  
+##### 2131#       发表于 2024-8-1 14:35
+
+有界2嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2132#       发表于 2024-8-1 14:36
+
+开头阿妮这一幕很美，就是感觉…这次真要出什么大事？还有你怎么也哭了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202408/01/143522o1kucbpspokqoyyp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0844.jpeg</strong> (184.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/143523lgoqoumczddu2rtr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0854.jpeg</strong> (216.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/143524s8f08797mv9f08sr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0853.jpeg</strong> (131.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:35 上传
+
+最后这位不会是阿妮吧，接着之后的分镜，还有这发型发色…？
+
+<img src="https://img.saraba1st.com/forum/202408/01/143554x74aetaaaltcuauq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0847.jpeg</strong> (189.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/01/143555h7wm2ukolw8iwojs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0850.jpeg</strong> (168.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 14:35 上传
+

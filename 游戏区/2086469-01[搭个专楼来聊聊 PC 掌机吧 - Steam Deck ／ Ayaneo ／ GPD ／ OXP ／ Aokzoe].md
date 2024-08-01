@@ -61,3 +61,11 @@ ROG X相比较原版除了电池以外，性能有提升吗？
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  luffyzhou  
+##### 1271#       发表于 2024-8-1 12:32
+
+ally玩不了的，x也够呛……
+

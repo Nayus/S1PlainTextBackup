@@ -627,3 +627,12 @@ TMD，被SB小高拿捏了，页游在透的冠军池砸了9W羽石抽限定结�
 
 讲道理，我觉得依次震撼业界（指每个刚出的时候就是冠绝性的市面最好3dliveMV）的几个偶像live音游前后分别就是，草菇→土豆→idolypride。这几个每个都是一次偶像3d音游世代变革。
 
+
+*****
+
+####  三郷雫  
+##### 5974#       发表于 2024-8-1 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单推人玩穴马那不是更惨了
+活动轮不到你的单推up的话那不是只能p别人全程吃屎
+

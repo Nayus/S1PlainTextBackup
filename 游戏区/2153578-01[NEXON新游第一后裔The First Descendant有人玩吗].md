@@ -1111,3 +1111,16 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 终极邦尼的总图是剧情直接给的，只要刷三个配件就可以，终极邦尼应该是仅次于终极水妹第二好刷的终极甲。
 
+
+*****
+
+####  vava  
+##### 121#       发表于 2024-8-1 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65762949&amp;ptid=2153578" target="_blank">yjmy705 发表于 2024-8-1 10:54</a>
+
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也 ...</blockquote>
+我周末2天刷齐终极兔，不是很肝
+

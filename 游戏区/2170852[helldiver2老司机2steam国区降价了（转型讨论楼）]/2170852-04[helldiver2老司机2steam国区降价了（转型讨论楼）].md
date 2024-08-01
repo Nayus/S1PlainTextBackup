@@ -399,3 +399,13 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 上次8/6大更新预告后面官方不是说冻肉也有更新，就这一个通行证？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xinfengj  
+##### 5126#       发表于 2024-8-1 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65763940&amp;ptid=2170852" target="_blank">kalavinka 发表于 2024-8-1 12:25</a>
+上次8/6大更新预告后面官方不是说冻肉也有更新，就这一个通行证？</blockquote>
+通行证8号，补丁6号
+

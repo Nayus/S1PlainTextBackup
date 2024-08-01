@@ -529,3 +529,116 @@ op欺诈然后魔装鬼揭晓一个完全没出现在op的人就好笑了<img sr
 我觉得还挺搭啊，我之前在想怎么op一点激情都没有，实际画面出来确实蛮休闲 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都要世界末日了你怎么还休闲呢
 
+
+*****
+
+####  Aeons  
+##### 2162#       发表于 2024-8-1 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765319&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-8-1 15:13</a>
+都要世界末日了你怎么还休闲呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不到啊
+
+*****
+
+####  natmk  
+##### 2163#       发表于 2024-8-1 15:17
+
+艾蕾因这个表情看得我真是 唉 败犬就败犬吧
+
+*****
+
+####  Kojimaru  
+##### 2164#       发表于 2024-8-1 15:18
+
+<img src="https://img.saraba1st.com/forum/202408/01/151744bmokzmixlzvovg1d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (727.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-1 15:17 上传
+
+孤男寡女 天台 要素拉满<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 2165#       发表于 2024-8-1 15:18
+
+校服回忆杀 还在消费剑女<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2166#       发表于 2024-8-1 15:19
+
+挺热闹的不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 2167#       发表于 2024-8-1 15:20
+
+这作先不买，先看剧透艾蕾因败不败，败了再也不买法老控的游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ky怪  
+##### 2168#       发表于 2024-8-1 15:20
+
+反正我真不预购了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sslink  
+##### 2169#       发表于 2024-8-1 15:20
+
+op看前半我以为他们是来度假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 2170#       发表于 2024-8-1 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pc版玩家无所畏惧（
+
+*****
+
+####  ravend233  
+##### 2171#       发表于 2024-8-1 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大半都是玩乐日常，确实挺乐的
+
+*****
+
+####  离心  
+##### 2172#       发表于 2024-8-1 15:21
+
+md信不了一点，看黎二op还以为真有范亚艾打红黎结果全是套路
+
+
+*****
+
+####  Aeons  
+##### 2173#       发表于 2024-8-1 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他要是小小一作里这么多老角色情况下，既能讲主线，还能把范恩感情扭个对转，那真是世不二出的奇迹我佩服好吧，买了
+
+*****
+
+####  Aeons  
+##### 2174#       发表于 2024-8-1 15:23
+
+op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑紫毛吧
+
+*****
+
+####  alucardcz  
+##### 2175#       发表于 2024-8-1 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765428&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-1 15:23</a>
+
+op打斗肯定是选代表啊，不会真有人觉得39单挑ace，葱头单挑紫毛吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也可以是只存在于op 黎2不是表演过了
+

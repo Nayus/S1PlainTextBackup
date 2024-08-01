@@ -10494,3 +10494,85 @@ MyGO設定集訪談：監督:柿本広大 × 分鏡・演出:梅津朋美
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥没想到自己退出后剩下四个真的不行了，当时大概想的是自己退出了也没事，剩下四个还能继续下去，结果嘛……c团本质上是一带四（什么李相赫与他的四个沙兵）祥这个绝对核心走了，c团自然就炸了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然mujica搞不好祥会再炸一次，不过这回如果祥先炸了，剩下那可是连环爆炸，炸的可比c团猛多了（初华和睦都是冲着祥才加入的，喵梦是图流量和米的，海玲大概率是来找个归宿的）
 
+
+*****
+
+####  shalulyq  
+##### 21686#       发表于 2024-8-1 15:18
+
+我漲知識了，原來在泥樓有些外號是不能叫的<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+這種純良度讓我再次感覺到百綜真tama混沌<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 21687#       发表于 2024-8-1 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765275&amp;ptid=2159415" target="_blank">AshPenguin 发表于 2024-8-1 15:08</a>
+
+我确实不知道s1专楼里规矩这么多的，bgm和b站感觉都是随便叫，我查了一下才知道这个梗原来用来骂大司马的 ...</blockquote>
+沒新東西的話，確實討論不了什麼，因為之前大家都討論過好多回了感覺就是在輪迴……
+
+不過昨天前天還是有樓友討論了點新的東西，感興趣的話可以翻翻。
+
+*****
+
+####  御幸一也  
+##### 21688#       发表于 2024-8-1 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65765266&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-1 15:07</a>
+
+饥饿的漏油已经在期待鬼图了，wsd终于等到了这一天</blockquote>
+不就是看到了隔壁最新的MV做那麼好饞了嘛，真的不能期待一下嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 21689#       发表于 2024-8-1 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">来楼里一看，映入眼帘的是让人眼前一黑的“猜”+大祥老师自卑，嫉妒，愤恨+木头人
+
+猜的很好下次别把妄想当剧情推论了
+
+为什么退黄瓜推测都不一定对，毕竟游戏里都删了送黄瓜情节，也难从旁枝末节猜
+
+*****
+
+####  星天观测  
+##### 21690#       发表于 2024-8-1 15:24
+
+假设earth又是鬼图我都不知道该哭还是该笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 21691#       发表于 2024-8-1 15:24
+
+講道理都鬼圖3個MV了，省下來的錢可以請一個不那麼鬼的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 21692#       发表于 2024-8-1 15:26
+
+我挺好奇觉得祥子组鸡团是为了报复狗这种思路是怎么来的，鸡团可是要主流出道， 签阅违约金的数额不是现在的祥子能随便背负的东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只为赌气能让她冒这么大险吗
+
+*****
+
+####  PDQ4  
+##### 21693#       发表于 2024-8-1 15:26
+
+earth我不梦
+我只希望最后一首不是鬼图，不然live上下面特殊演出，大屏幕上播鬼片也太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21694#       发表于 2024-8-1 15:27
+
+我就怕这句话以后可以复用一下变成讲道理都鬼图4个mv了，省下来的钱可以请一个不要那么鬼的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（还鬼就鬼完了）
+
+今晚8点先期待一下
+

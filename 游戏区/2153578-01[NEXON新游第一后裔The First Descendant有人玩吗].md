@@ -1097,3 +1097,17 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 
 氪的话，单角色就500多，这……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魂淡融  
+##### 120#       发表于 2024-8-1 11:22
+
+<blockquote>yjmy705 发表于 2024-8-1 10:54
+刚玩，想问下满大街的终极邦尼都是肝出来还是氪出来的？ 
+
+肝的话我看了下合成链还挺复杂的，很多材料掉率也 ...</blockquote>
+材料看着难整，其实除了正负离子这种特别阴间的。绝大部分都有高效率刷法。
+
+终极邦尼的总图是剧情直接给的，只要刷三个配件就可以，终极邦尼应该是仅次于终极水妹第二好刷的终极甲。
+

@@ -915,3 +915,11 @@ Boom Boom Pow
 
 今後ともASOBINOTESをよろしくお願いいたします。
 
+
+*****
+
+####  Seeley  
+##### 5992#       发表于 2024-8-2 17:35
+
+怎么感觉莉莉娅这卡还挺微妙的，发牌员让你赤石的时候有种回到好印象的美<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

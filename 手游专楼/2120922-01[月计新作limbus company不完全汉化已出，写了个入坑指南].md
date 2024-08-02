@@ -329,3 +329,97 @@
 
 B站有高技术力粉丝把金笠大战黑云会的故事做成了横版动作游戏，感兴趣可以去评论区下载。
 
+
+*****
+
+####  Jamaisvu  
+##### 818#       发表于 2024-8-2 17:37
+
+新活动8.8下周四开启：
+
+<img src="https://img.saraba1st.com/forum/202408/02/173135rx4w49uc1fdot44e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172956.jpg</strong> (186.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:31 上传
+
+新人格：
+
+赠送二星，多裂纹事务所收尾人希斯克利夫：
+
+<img src="https://img.saraba1st.com/forum/202408/02/173210qawzukz8aem71hmy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172601.jpg</strong> (229.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/02/173210w2ux409mxvza4o0q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172700.jpg</strong> (194.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:32 上传
+
+三星，多裂纹事务所代表人浮士德：
+
+<img src="https://img.saraba1st.com/forum/202408/02/173236xsux0u0ckzq0hkkd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172835.jpg</strong> (198.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/02/173236fddsnvhvwf3f8s3v.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172902.jpg</strong> (188.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:32 上传
+
+新EGO：奥提斯的空间撕裂者：
+
+<img src="https://img.saraba1st.com/forum/202408/02/173332lcetc74izc3scsic.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172742.jpg</strong> (276.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/02/173332ucdkd4ocuix484jm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172715.jpg</strong> (197.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/02/173332a9o90i9zdobmi5i5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240802_172753.jpg</strong> (184.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-2 17:33 上传
+
+适配W奥，觉醒和侵蚀都是大范围AOE。
+
+剧情貌似是某事务所在W列车头等舱搞事，把巴士众人和W清理员也连累进来了。
+
+W社的清理小组一般都是停稳了车才进去干活吧，不过这次预告里出现了活尸化的清理员，估计迷失旅客这种异想体就是在这种情况下诞生的吧...
+

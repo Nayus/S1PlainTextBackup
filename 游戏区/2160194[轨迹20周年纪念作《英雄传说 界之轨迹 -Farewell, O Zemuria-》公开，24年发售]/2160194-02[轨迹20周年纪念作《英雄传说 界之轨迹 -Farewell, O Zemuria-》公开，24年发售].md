@@ -2354,3 +2354,31 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 说了界轨完结共和国篇，界2还能说也是界轨，还换名字又从另一个角度打自己脸了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正现在社长的话基本上日常前后矛盾，大概也无所谓了
 
+
+*****
+
+####  Aeons  
+##### 2354#       发表于 2024-8-2 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774272&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-2 13:48</a>
+
+不知道七星到底是真的认识舅舅还是n手消息，而且不知道是什么时候的版本就是了（
+
+—— 来自 鹅球 v3.0.0 ...</blockquote>
+
+多次证明了他消息比一般玩家灵通。
+
+但是，他在去年年底到现在都笃定有，是出于个人对法社的不信任，还是客观这么认为，说不好。
+
+*****
+
+####  ravend233  
+##### 2355#       发表于 2024-8-2 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774352&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-2 13:58</a>
+
+多次证明了他消息比一般玩家灵通。
+
+但是，他在去年年底到现在都笃定有，是出于个人对法社的不信任，还是 ...</blockquote>
+她应该确实是有消息源，但是她的发言多少是沾点情绪发泄成分的，所以很难判断到底是当舅舅还是在口嗨
+

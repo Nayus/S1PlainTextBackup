@@ -2234,3 +2234,13 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 也是你法自找的，觉得另一位人气看着不高就省资源了，然后把资源花在其他也没啥特别剧情意义的前作角色上，挨骂也是活该
 
+
+*****
+
+####  无动于衷  
+##### 2342#       发表于 2024-8-2 13:29
+
+[https://bbs.a9vg.com/forum.php?m ... ;extra=#pid66100944](https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8991092&amp;page=1&amp;extra=#pid66100944)
+
+又有社长访谈了，就算是太极，你们又可以去欺负社长了 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

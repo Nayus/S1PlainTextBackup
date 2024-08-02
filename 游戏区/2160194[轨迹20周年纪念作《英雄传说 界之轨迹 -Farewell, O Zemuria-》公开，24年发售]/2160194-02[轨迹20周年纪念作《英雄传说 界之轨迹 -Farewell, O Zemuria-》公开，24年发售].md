@@ -2105,3 +2105,33 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 约修亚单独来玲在这</blockquote>
 提醒下，小艾才是第一主人公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 2328#       发表于 2024-8-2 08:19
+
+<blockquote>cxj649 发表于 2024-8-2 02:21
+提醒下，小艾才是第一主人公</blockquote>
+没用，现在看的是谁是官方亲女儿
+
+
+*****
+
+####  ravend233  
+##### 2329#       发表于 2024-8-2 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65770869&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-2 01:48</a>
+这S级不会不出来了吧，那有点幽默。
+那伏笔做的一坨屎，走一步看一步都没这么夸张的。 ...</blockquote>
+你法：建模资源都拿去做返场角色了，这些角色就不做惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  hkguty  
+##### 2330#       发表于 2024-8-2 08:24
+
+说白了还是因为葱头在共和国没有相链接的角色，封面有他没大少可能是把他算成野餐队一方的主角了
+

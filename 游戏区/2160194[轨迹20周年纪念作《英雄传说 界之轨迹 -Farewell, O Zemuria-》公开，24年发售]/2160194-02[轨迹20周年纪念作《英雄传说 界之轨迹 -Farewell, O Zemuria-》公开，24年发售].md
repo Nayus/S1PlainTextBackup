@@ -2580,3 +2580,11 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">双月没有脸模，面具人会不会也没有脸
 
+
+*****
+
+####  keiyoku  
+##### 2378#       发表于 2024-8-2 18:41
+
+真说角色厨我觉得在轨迹只做黎恩厨和艾约还是挺爽的，其他人不评价各有各的粪点，尽管黎恩经常还要捆个男的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

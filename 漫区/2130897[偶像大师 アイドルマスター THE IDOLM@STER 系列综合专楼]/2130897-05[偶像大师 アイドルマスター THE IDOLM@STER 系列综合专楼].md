@@ -972,3 +972,13 @@ https://asobinotes.bn-ent.net/news/905/
 不懂，cd都出了突然重新混音，那cd音源用的是旧版还是新版？</blockquote>
 重做母带的只涉及数字版
 
+
+*****
+
+####  xmcp  
+##### 5997#       发表于 2024-8-3 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65779846&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-8-2 22:37</a>
+重做母带的只涉及数字版</blockquote>
+那流媒体平台也会换源吗，还是只有游戏内重制？
+

@@ -1418,3 +1418,16 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 别的应该都在外面了</blockquote>
 查了下才知道居然有两个要用飞雷神才能去的罐子<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，逆天
 
+
+*****
+
+####  膛线  
+##### 200#       发表于 2024-8-2 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65775208&amp;ptid=2140223" target="_blank">megaheracross 发表于 2024-8-2 15:41</a>
+
+14关那20个陶罐究竟怎么找全啊，我地图翻了个底朝天都只找到18个，全成就做的真的是蛋疼 ...</blockquote>
+前半张图两条支路分别有一个箭靶，需要蝴蝶箭飞过去
+
+其实最难找的是房间里的那两个陶罐
+

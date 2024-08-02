@@ -1428,3 +1428,35 @@ jcb 测试的2日元没事, 买点的时候就不成了. 有意思. 之后:测�
 你这个页面我没见过 ...</blockquote>
 好好，把语言改成English就弹出来了，我琢磨一下
 
+
+*****
+
+####  shamal0324  
+##### 146#       发表于 2024-8-3 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780483&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-8-3 00:09</a>
+
+人在美国的话用dl-pay.com就行，跳转paypal，自己注意一下用的什么货币
+
+你这个页面我没见过 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/03/001928mp7aiwc9pe9y2yzm.png" referrerpolicy="no-referrer">
+
+<strong>Weixin Image_20240802111853.png</strong> (38.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 00:19 上传
+
+是这里吗？选USD还是JPY啊
+
+
+*****
+
+####  圈量子  
+##### 147#       发表于 2024-8-3 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780553&amp;ptid=2178442" target="_blank">shamal0324 发表于 2024-8-3 00:19</a>
+是这里吗？选USD还是JPY啊</blockquote>
+对，我记得paypal自带的汇率比银行汇率坑，买的时候可以看一下实时汇率，选个能便宜一点的
+

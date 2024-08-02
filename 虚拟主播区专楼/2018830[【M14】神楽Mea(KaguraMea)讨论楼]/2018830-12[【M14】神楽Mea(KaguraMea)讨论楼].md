@@ -4947,3 +4947,35 @@ ng是啥？
 
 幽闭是那个东方的大社团么
 
+
+*****
+
+####  受菊  
+##### 17052#       发表于 2024-8-2 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">能联动到幽闭是真没想到。。。而且一下子出三张碟
+
+*****
+
+####  古战场亡魂  
+##### 17053#       发表于 2024-8-2 22:35
+
+ 本帖最后由 古战场亡魂 于 2024-8-2 22:37 编辑 
+
+这啥啊？幽闭星光  少女分形 中间加个mea？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我用我基本不剩多少的东方记忆，这个位置应该放森罗万象。
+
+<img src="https://img.saraba1st.com/forum/202408/02/223253zb29hhvb554q57a7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 22:32 上传
+
+*****
+
+####  sino__unnko3  
+##### 17054#       发表于 2024-8-2 22:51
+
+似乎是历年来歌出的最多最密集的一次？加上上个月的各种联动，可以理解她为啥之前一直抱怨超级忙了，一首歌工作量不知道大概几天
+

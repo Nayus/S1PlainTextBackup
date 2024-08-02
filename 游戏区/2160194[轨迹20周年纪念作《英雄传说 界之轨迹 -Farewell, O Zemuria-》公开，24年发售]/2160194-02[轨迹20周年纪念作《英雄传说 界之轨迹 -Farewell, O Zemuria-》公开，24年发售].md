@@ -2668,3 +2668,24 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算真是最终BOSS大概也是复刻黎1只有最后一战离队吧，最多整个终章离队（）应该不会太久（
 
+
+*****
+
+####  宛若青空  
+##### 2387#       发表于 2024-8-2 22:50
+
+看贴吧有人提OP最后那只鸟飞过的演出像是某人做出了牺牲让大家能短暂回归到日常，感觉挺有这个意思的；
+而那只鸟是黑加一点红，那么本作黑发加一点挑染红的是哪位角色呢———<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 2388#       发表于 2024-8-2 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65779945&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-8-2 22:50</a>
+
+看贴吧有人提OP最后那只鸟飞过的演出像是某人做出了牺牲让大家能短暂回归到日常，感觉挺有这个意思的；
+
+而 ...</blockquote>
+换个思路，参考天元突破，是boss制造日常，鸟是开高达没受影响的机车姐来破局的（OP欺诈）。不然想不出机车姐为这帮人牺牲的理由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

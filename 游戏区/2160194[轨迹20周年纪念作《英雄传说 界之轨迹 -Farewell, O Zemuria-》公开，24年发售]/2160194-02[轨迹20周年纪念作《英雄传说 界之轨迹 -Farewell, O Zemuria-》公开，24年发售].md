@@ -2472,3 +2472,46 @@ op能看出最终boss
 界后决定我是不是和她一样</blockquote>
 她破防本身是有点角色厨的原因的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然我记得她对轨迹也没伊苏那么在乎。
 
+
+*****
+
+####  Aeons  
+##### 2366#       发表于 2024-8-2 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65775089&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-2 15:28</a>
+她破防本身是有点角色厨的原因的不然我记得她对轨迹也没伊苏那么在乎。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道我不是角色厨吗
+
+*****
+
+####  zhouaa  
+##### 2367#       发表于 2024-8-2 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏还有角色厨吗  注水这么多角色不都毁得差不多了  
+
+熟悉的角色一遍又一遍的说那些模板式对白 人又那么多 我越来越分不清谁是谁了
+
+*****
+
+####  一步成诗  
+##### 2368#       发表于 2024-8-2 15:33
+
+其实雌竞还说不上，但是要永远被个没有结果的b白学党争捆着，续作出场就是反反复复没有尽头的感情话题，那对角色厨来说确实是致命打击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2369#       发表于 2024-8-2 15:33
+
+你法社会平等地恶心每一个人，不要急，都要史赤<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  酷乐  
+##### 2370#       发表于 2024-8-2 15:37
+
+创轨在欧美的宣传是比作漫威宇宙的，所以界完了继续黎3，就像复联完了继续钢铁侠3，复联2完了继续美队3。
+

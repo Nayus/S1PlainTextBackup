@@ -2450,3 +2450,25 @@ op能看出最终boss
 
 思路打开点，界如果有第二部可以不叫界2
 
+
+*****
+
+####  宛若青空  
+##### 2364#       发表于 2024-8-2 15:23
+
+七星是一手消息源，她会那么笃定是因为现在界轨展示出来的东西和改名前就没啥差别；
+
+所以界2当然不会叫界2，继续改个名字做黎4罢了；
+
+有个问题问得好，共和国篇能在界轨完结吗？
+答案是———<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 2365#       发表于 2024-8-2 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774557&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-2 14:30</a>
+界后决定我是不是和她一样</blockquote>
+她破防本身是有点角色厨的原因的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然我记得她对轨迹也没伊苏那么在乎。
+

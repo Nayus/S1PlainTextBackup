@@ -2244,3 +2244,55 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 又有社长访谈了，就算是太极，你们又可以去欺负社长了 <img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2343#       发表于 2024-8-2 13:35
+
+ 本帖最后由 Aeons 于 2024-8-2 13:36 编辑 
+
+我还以为是已经出了，原来是A9又征集问题了。
+
+系统上没有的也问不出，除了展望未来，剧情上其实一个问题就好，就是会不会有界二。 创轨这个时期问近藤，近藤是直言没有创二的，这个问题他肯定会回复。
+
+*****
+
+####  ravend233  
+##### 2344#       发表于 2024-8-2 13:38
+
+确实只需要问一个有没有界2就完事了，只要有，那所有的问题大概都不会有有价值的答案，如果没有，那都会有答案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2345#       发表于 2024-8-2 13:42
+
+真的能说吗，说了有不就明示咚吗，会影响销量吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KevinGraham  
+##### 2346#       发表于 2024-8-2 13:43
+
+没有界2可以换个名字啊，这代难道不能叫黎3rd吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2347#       发表于 2024-8-2 13:44
+
+创时期直接说没有第二部的，这个问题问出来就结束了，近藤要是说没有就是没有，说去游戏里品味那就是闪三，很简单的问题。
+
+这个话题讨论了这么久也该结束了，我看微博七星还是觉得有来着。
+
+*****
+
+####  一步成诗  
+##### 2348#       发表于 2024-8-2 13:45
+
+庭院截图初始等级15，有完结作初始等级是15的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

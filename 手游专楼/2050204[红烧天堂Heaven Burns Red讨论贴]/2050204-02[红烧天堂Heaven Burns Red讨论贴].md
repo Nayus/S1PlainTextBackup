@@ -1156,3 +1156,13 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 话说国际服的打分章BUG修好没有？体力石溢出了不太想点进去看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  chivalry  
+##### 1611#       发表于 2024-8-3 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">哎日服来了一遍，而且后面异时层好几遍应该脱敏了，国服又来了一遍 aoi 还是绷不住。我一直觉得 2 章是个分水岭，如果打完二章还没什么感觉就应该抛弃这个垃圾游戏了……
+分享麻枝准/やなぎなぎ的单曲《White Spell》[http://163cn.tv/v86UxcI](http://163cn.tv/v86UxcI) (@网易云音乐)
+再来一遍次aoi 入阵曲
+

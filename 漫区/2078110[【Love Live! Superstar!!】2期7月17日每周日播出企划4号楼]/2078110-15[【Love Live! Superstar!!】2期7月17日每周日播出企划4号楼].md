@@ -54,3 +54,13 @@
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  靡宜  
+##### 20724#       发表于 2024-8-3 00:27
+
+<blockquote>lj205 发表于 2024-8-2 21:26
+鱼新单CW歌有点kpop风，作词居然才刚17岁</blockquote>
+yellow同阵容
+

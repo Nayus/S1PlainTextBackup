@@ -2192,3 +2192,35 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 官方数据来看，入坑最多的确实是空轨和闪1，正好这两部基本没有担忧前作角色太多的必要，空轨就不说了，闪12前作角色正经说只有奥瓜（安墩这种不算）
 
+
+*****
+
+####  Aeons  
+##### 2337#       发表于 2024-8-2 12:59
+
+全世界都在问为什么没有莉丝，巴哈有些已经特别急了
+
+
+*****
+
+####  alucardcz  
+##### 2338#       发表于 2024-8-2 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有这么多人爱着吃货吗？
+
+*****
+
+####  法拉  
+##### 2339#       发表于 2024-8-2 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为做了这几个新模型就已经是极限了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aeons  
+##### 2340#       发表于 2024-8-2 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那说实话，喜欢葱头的也喜欢莉丝很正常吧
+

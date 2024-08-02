@@ -6049,3 +6049,36 @@ neta认得全吗，我是差不多
 
 所以holo服GTA真的有吗
 
+
+*****
+
+####  holoan  
+##### 9402#         楼主| 发表于 2024-8-2 10:52
+
+凌晨不知道在做什么事,推特突然误爆了一个视频,还好不是什么特别的就是去年周年live上的OP片段（为什么是去年的）后面自己删掉了
+
+<img src="https://img.saraba1st.com/forum/202408/02/104436pz7kgxo67008vcgx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 10:44 上传
+
+然后跑去看polka的直播还留言了
+
+反倒是主频道今天有一些变化，看上去像是要搞成船长那样的artist认证频道，把音乐部分收回频道内
+
+*****
+
+####  holoan  
+##### 9403#         楼主| 发表于 2024-8-2 11:36
+
+<img src="https://img.saraba1st.com/forum/202408/02/113603evdfut0t0fcbkvgi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 11:36 上传
+

@@ -2552,3 +2552,31 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 哦，好像体验过，闪轨2
 
+
+*****
+
+####  ravend233  
+##### 2375#       发表于 2024-8-2 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">史嘛，多吃两口就习惯了，闪轨四部都赤过来了
+
+起码不用像追原创番一样这口史还要让你连着赤三个月才知道有多难吃（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  jacket  
+##### 2376#       发表于 2024-8-2 18:20
+
+最近刚打过双剑面具人
+<img src="https://s21.ax1x.com/2024/08/02/pkjCIRP.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2377#       发表于 2024-8-2 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">双月没有脸模，面具人会不会也没有脸
+

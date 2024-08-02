@@ -923,3 +923,15 @@ Boom Boom Pow
 
 怎么感觉莉莉娅这卡还挺微妙的，发牌员让你赤石的时候有种回到好印象的美<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  安广多惠子  
+##### 5993#       发表于 2024-8-2 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65776756&amp;ptid=2130897" target="_blank">Seeley 发表于 2024-8-2 17:35</a>
+怎么感觉莉莉娅这卡还挺微妙的，发牌员让你赤石的时候有种回到好印象的美 ...</blockquote>
+二命質變，製作組把米哈遊的招式學來了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -2660,3 +2660,11 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 要是女主离队，然后男追女剧情，那还挺期待的，因为通常这时陪男主的通常是女二，还会有女二高光时刻，如XB2喜欢妮娅还有大家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2386#       发表于 2024-8-2 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算真是最终BOSS大概也是复刻黎1只有最后一战离队吧，最多整个终章离队（）应该不会太久（
+

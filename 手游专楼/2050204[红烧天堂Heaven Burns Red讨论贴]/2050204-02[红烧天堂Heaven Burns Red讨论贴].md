@@ -1148,3 +1148,11 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 1610#       发表于 2024-8-2 22:42
+
+话说国际服的打分章BUG修好没有？体力石溢出了不太想点进去看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

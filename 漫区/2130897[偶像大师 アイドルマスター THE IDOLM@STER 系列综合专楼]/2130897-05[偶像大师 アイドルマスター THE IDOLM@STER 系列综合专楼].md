@@ -961,3 +961,14 @@ https://asobinotes.bn-ent.net/news/905/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  hlazd  
+##### 5996#       发表于 2024-8-2 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65777972&amp;ptid=2130897" target="_blank">xmcp 发表于 2024-8-2 19:10</a>
+
+不懂，cd都出了突然重新混音，那cd音源用的是旧版还是新版？</blockquote>
+重做母带的只涉及数字版
+

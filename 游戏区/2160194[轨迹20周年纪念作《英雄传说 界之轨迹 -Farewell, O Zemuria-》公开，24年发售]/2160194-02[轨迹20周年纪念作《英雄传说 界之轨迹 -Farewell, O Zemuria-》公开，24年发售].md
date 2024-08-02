@@ -2618,3 +2618,13 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  minus13  
+##### 2382#       发表于 2024-8-2 21:31
+
+近藤：轨迹应该没有下个十年了，五六年左右吧？
+
+（内心：骗你们的，轨迹还要再出20部）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

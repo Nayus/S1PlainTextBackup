@@ -2400,3 +2400,11 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 界后决定我是不是和她一样
 
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 2358#       发表于 2024-8-2 14:46
+
+看完这么多情报还会觉得没第二部的我只能怀疑根本没玩过轨迹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这真要完结我反而害怕了，剧情得潦草成啥样啊
+

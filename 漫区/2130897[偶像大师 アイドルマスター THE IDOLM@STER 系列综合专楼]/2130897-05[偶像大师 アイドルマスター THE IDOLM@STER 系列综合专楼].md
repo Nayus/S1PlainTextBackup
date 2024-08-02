@@ -826,3 +826,92 @@ scsp氪了3单才抽到泳装限定雾子 要是早知道雾子这么快来还�
 
 不加量词默认是全体，被地图炮到不爽正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hlazd  
+##### 5991#       发表于 2024-8-2 17:19
+
+[https://asobinotes.bn-ent.net/news/905/](https://asobinotes.bn-ent.net/news/905/)
+
+2024.08.02 INFORMATION
+
+【学園アイドルマスター】配信中のサブスクリプション音源およびハイレゾ音源について
+
+いつもASOBINOTESをご利用いただいております皆さまへ、
+
+現在配信中のサブスクリプション音源およびハイレゾ音源に関するお知らせがございます。
+
+＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
+
+このたび、より聴き心地の良いサウンドを目指して、
+
+音源を再マスタリングさせていただきました。
+
+学園アイドルマスタープロジェクトで
+
+一緒に制作していただいた作家のみなさまの意図したサウンドを、
+
+出来るだけそのままお届けしたいと考えております。
+
+そのため、音圧やダイナミクスのマスタリング基準を見直し、
+
+より多くの方々に心地良く感じていただける音源として
+
+あらためて配信音源を更新させていただきます。
+
+引き続き、みなさまにお楽しみいただけると幸いです。
+
+音楽プロデューサー
+
+佐藤貴文
+
+＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
+
+更新後の配信音源は再ダウンロードしていただくことでご利用いただけます。
+
+▼楽曲のDISCOGRAPHYはこちらよりご確認ください。
+[https://gakuen-label.idolmaster-official.jp/discography](https://gakuen-label.idolmaster-official.jp/discography)
+
+対象楽曲は、次の通りとなります。
+
+—————-
+
+初
+
+Campus mode!!
+
+Fighting My Way
+
+Luna say maybe
+
+世界一可愛い私
+
+clumsy trick
+
+Tame-Lie-One-Step
+
+光景
+
+白線
+
+Wonder Scale
+
+Fluorite
+
+The Rolling Riceball
+
+アイヴイ
+
+叶えたい、ことばかり
+
+Yellow Big Bang！
+
+Boom Boom Pow
+
+—————-
+
+皆さまにはお手数をおかけして申し訳ございません。
+
+今後ともASOBINOTESをよろしくお願いいたします。
+

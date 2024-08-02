@@ -2540,3 +2540,15 @@ op能看出最终boss
 cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，没有曹的身影，集装箱倾倒。
 <img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">我明白了，双剑面具人是其他世界线的阿龙，来到本世界线第一时间把曹宰了。
 
+
+*****
+
+####  TheOccuria  
+##### 2374#       发表于 2024-8-2 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文版同步才伤害高吧，之前黎2看啃日语的漏油那么破防都提前打好预防针玩下来都被恶心到了
+
+中文同步直接无防护脸接答辩什么感受我都不敢想
+
+哦，好像体验过，闪轨2
+

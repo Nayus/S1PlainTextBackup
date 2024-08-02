@@ -561,3 +561,14 @@ Not much to report but everything is well for the moment. I'm running out of top
 
 做出来了 真好 11月有东西玩喽<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ronu  
+##### 43#         楼主| 发表于 2024-8-2 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65776336&amp;ptid=2031000" target="_blank">希波兰多的诗歌 发表于 2024-8-2 17:11</a>
+
+消息：11月1日会在steam开抢先体验，lz要不要更新一下</blockquote>
+更了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

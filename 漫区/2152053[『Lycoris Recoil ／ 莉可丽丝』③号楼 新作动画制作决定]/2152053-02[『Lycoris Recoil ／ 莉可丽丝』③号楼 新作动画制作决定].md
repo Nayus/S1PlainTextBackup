@@ -145,3 +145,11 @@ tkn生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.
 
 2024-8-2 22:31 上传
 
+
+*****
+
+####  Saber琪  
+##### 1964#       发表于 2024-8-3 01:26
+
+shit，打1打成0了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这下要被当成泷1了，那种事情不要哇
+

@@ -2636,3 +2636,27 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 反正我买我真不买。虽然嘴上说等个偷跑剧透再决定，但其实已经猜到会怎么发展了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2384#       发表于 2024-8-2 22:16
+
+<img src="https://img.saraba1st.com/forum/202408/02/221311tveuoqoqnxokt9vd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (203.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 22:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对比了下散发学妹和LOGO的发型，好像是有那么点像了（
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 2385#       发表于 2024-8-2 22:22
+
+要是女主离队，然后男追女剧情，那还挺期待的，因为通常这时陪男主的通常是女二，还会有女二高光时刻，如XB2喜欢妮娅还有大家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

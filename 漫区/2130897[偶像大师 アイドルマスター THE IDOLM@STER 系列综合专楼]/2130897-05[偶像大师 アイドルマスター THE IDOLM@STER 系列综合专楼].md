@@ -935,3 +935,15 @@ Boom Boom Pow
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  xmcp  
+##### 5994#       发表于 2024-8-2 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65776483&amp;ptid=2130897" target="_blank">hlazd 发表于 2024-8-2 17:19</a>
+https://asobinotes.bn-ent.net/news/905/
+
+2024.08.02 INFORMATION</blockquote>
+不懂，cd都出了突然重新混音，那cd音源用的是旧版还是新版？
+

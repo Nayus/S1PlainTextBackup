@@ -572,3 +572,11 @@ Not much to report but everything is well for the moment. I'm running out of top
 消息：11月1日会在steam开抢先体验，lz要不要更新一下</blockquote>
 更了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 44#       发表于 2024-8-2 19:06
+
+ea拉，还要一两年正式版呢
+

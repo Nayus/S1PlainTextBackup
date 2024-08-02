@@ -709,3 +709,16 @@ py码：100104725198，安B服。
 好像还没说夏活什么时候开？</blockquote>
 很大机会8号开，日服是11号，但是今年11号是星期天，阿B不可能给你加班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  史艳文  
+##### 46597#       发表于 2024-8-2 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65772874&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-8-2 11:13</a>
+
+很大机会8号开，日服是11号，但是今年11号是星期天，阿B不可能给你加班</blockquote>
+迫不及待了，掏了100+的呼符抽水王姐，四星五星都没有
+
+要等水呆用石头满足自己抽卡的欲望
+

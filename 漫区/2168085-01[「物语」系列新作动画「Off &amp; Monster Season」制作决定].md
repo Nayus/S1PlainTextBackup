@@ -1879,3 +1879,25 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 ありがとうございます。
 <img src="https://p.sda1.dev/18/8363172c80c5e52e101cbc7cb615bb5f/20240802_130038.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 596#         楼主| 发表于 2024-8-2 23:40
+
+#05 撫物語 なでこドロー 其ノ肆
+
+今後の作戦を立てるため、一度千石家に戻った撫子と余接。残りの式神撫子を確保するために思案するも一歩踏み出せない撫子に対し、余接は当初の目的を思い出させる。事態を収拾するために、目的を達成するために、二人は決戦の地へと向かった。
+
+脚本：大嶋実句
+
+絵コンテ：松村幸治
+
+演出：宮本幸裕
+
+作画監督：伊藤良明・高野晃久・高橋みき・浅井昭人・鮫島寿志・ハンミンギ・宮嶋仁志・北島勇樹
+<img src="https://p.sda1.dev/18/3c13fe44bef026a9d6c3f576cf995ba1/story_3591_photo_1722502068625141922.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3609ee6995667b4781fc3aad4e142661/story_3591_photo_1722502068874728945.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/31055ee960e47d3afd660b0dbae0df07/story_3591_photo_1722502069110454384.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1317e9e0e8ef912a63b724dc61f12c05/story_3591_photo_1722502069343263177.jpg" referrerpolicy="no-referrer">
+

@@ -2154,3 +2154,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 建模是外包的，动捕也是么，阿法的动捕总给人一种油腻的感觉，小动作太多了，说个话摇头晃脑
 
+
+*****
+
+####  无动于衷  
+##### 2333#       发表于 2024-8-2 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65772103&amp;ptid=2160194" target="_blank">cxj649 发表于 2024-8-2 09:57</a>
+
+我是说他的举例。而且小艾人气排名并不低</blockquote>
+没用，歼灭天使哪怕写崩了也要反复加笔，这才叫官方亲女儿
+

@@ -2224,3 +2224,13 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那说实话，喜欢葱头的也喜欢莉丝很正常吧
 
+
+*****
+
+####  ravend233  
+##### 2341#       发表于 2024-8-2 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是CP，一般是一起推的，常理来说也是要卖情怀两个打包一起出比较合适
+
+也是你法自找的，觉得另一位人气看着不高就省资源了，然后把资源花在其他也没啥特别剧情意义的前作角色上，挨骂也是活该
+

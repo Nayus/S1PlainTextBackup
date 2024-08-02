@@ -101,3 +101,41 @@ IMG_2609.png
 
 <img src="https://img.saraba1st.com/forum/202408/02/163201ynjfj7hhzhhkv8hj.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Viteeee  
+##### 1879#       发表于 2024-8-2 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前一个半小时基本不用看，从剩35分钟开始看决战就行。
+
+不管整个剧情结构有多蠢，起码观众想看的东西都有了，包括但不限于：
+
+- 流星装备的Duel和Buster
+
+- 自由高达，阿斯兰开的
+
+- 战舰没有冲角就像MS没有实体剑
+
+- 我们棚终于也进化到可以电光一闪隔空聊天了
+
+- 哪个山窝窝里的叛军都能推出来一台毁灭给主角换着花样拆
+
+- 终于打中目标然而还是卵用没有的露娜
+
+- 巴基露露和尼高尔的直球地狱笑话
+
+- 不满足于顶主炮，决心开始顶战略兵器的穆
+
+- 虽然我跟新老婆打情骂俏但身上的宇宙女鬼可是不会在意的
+
+- 一句相关台词都没有、被主角回忆次数输给议长和克队、只露脸8帧左右的芙蕾
+
+- 全解放Destiny+爆种鸟1v4正名战，上次会输都是Justice太弱的错
+
+- 你以为从隔壁棚搞来兰斯洛特就无敌了然而我这边是钢巴斯塔（大误
+
+- 虽然ED还没放完但已经在海边**待机准备三天三夜了
+
+可以了，已经不能要求更多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

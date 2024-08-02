@@ -2689,3 +2689,28 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 而 ...</blockquote>
 换个思路，参考天元突破，是boss制造日常，鸟是开高达没受影响的机车姐来破局的（OP欺诈）。不然想不出机车姐为这帮人牺牲的理由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2389#       发表于 2024-8-2 22:57
+
+ 本帖最后由 ravend233 于 2024-8-2 22:58 编辑 
+
+快递姐的问题是
+
+估计会很重要，但是没法猜到底重要在哪（
+
+人物设定几乎完全是空白的，猜都很难猜剧情（
+
+如果要牺牲的话还得看剧情怎么去塑造才能让玩家对这个本来只是个NPC的角色产生感情（）
+
+*****
+
+####  宛若青空  
+##### 2390#       发表于 2024-8-2 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65779968&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-8-2 22:53</a>
+换个思路，参考天元突破，是boss制造日常，鸟是开高达没受影响的机车姐来破局的（OP欺诈）。不然想不出机 ...</blockquote>
+挺好的思路，就是这个是OP里最后的镜头感觉不会有那么多反转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

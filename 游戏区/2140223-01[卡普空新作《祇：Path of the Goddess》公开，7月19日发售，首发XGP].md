@@ -1405,3 +1405,16 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 箭靶的两个打了吗 有个房间里好像也有罐子
 别的应该都在外面了
 
+
+*****
+
+####  megaheracross  
+##### 199#       发表于 2024-8-2 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65775254&amp;ptid=2140223" target="_blank">RiesbyfeAtlasia 发表于 2024-8-2 15:46</a>
+
+箭靶的两个打了吗 有个房间里好像也有罐子
+
+别的应该都在外面了</blockquote>
+查了下才知道居然有两个要用飞雷神才能去的罐子<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，逆天
+

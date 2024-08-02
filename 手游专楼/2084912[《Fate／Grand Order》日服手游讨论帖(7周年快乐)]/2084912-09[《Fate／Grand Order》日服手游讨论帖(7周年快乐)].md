@@ -962,3 +962,14 @@ webwxgetmsgimg.jfif
 
 更新了五六十MB，点进去一看什么新东西都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13137#       发表于 2024-8-2 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65776493&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-2 17:20</a>
+
+更新了五六十MB，点进去一看什么新东西都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂不懂预热（  明天还要开什么木桩呢
+

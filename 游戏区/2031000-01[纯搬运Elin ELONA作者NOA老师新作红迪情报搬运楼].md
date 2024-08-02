@@ -553,3 +553,11 @@ Not much to report but everything is well for the moment. I'm running out of top
 
 消息：11月1日会在steam开抢先体验，lz要不要更新一下
 
+
+*****
+
+####  aldieb  
+##### 42#       发表于 2024-8-2 17:30
+
+做出来了 真好 11月有东西玩喽<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

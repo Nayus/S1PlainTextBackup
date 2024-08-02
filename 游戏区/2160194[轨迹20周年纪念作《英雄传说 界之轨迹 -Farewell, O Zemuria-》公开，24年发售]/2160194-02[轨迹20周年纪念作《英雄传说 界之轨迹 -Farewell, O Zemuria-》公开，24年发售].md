@@ -2382,3 +2382,13 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 但是，他在去年年底到现在都笃定有，是出于个人对法社的不信任，还是 ...</blockquote>
 她应该确实是有消息源，但是她的发言多少是沾点情绪发泄成分的，所以很难判断到底是当舅舅还是在口嗨
 
+
+*****
+
+####  Squall25  
+##### 2356#       发表于 2024-8-2 14:15
+
+ 本帖最后由 Squall25 于 2024-8-2 14:17 编辑 
+
+七星是有消息源的。说起来她一般也不爱乱说，挺保守的。不过感觉她现在对轨迹是挺破防的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

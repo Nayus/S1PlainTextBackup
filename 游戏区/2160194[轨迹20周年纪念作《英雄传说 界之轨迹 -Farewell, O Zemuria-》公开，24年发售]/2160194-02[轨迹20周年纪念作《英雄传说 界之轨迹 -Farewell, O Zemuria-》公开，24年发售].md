@@ -2135,3 +2135,14 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 说白了还是因为葱头在共和国没有相链接的角色，封面有他没大少可能是把他算成野餐队一方的主角了
 
+
+*****
+
+####  cxj649  
+##### 2331#       发表于 2024-8-2 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65771299&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-2 08:19</a>
+
+没用，现在看的是谁是官方亲女儿</blockquote>
+我是说他的举例。而且小艾人气排名并不低
+

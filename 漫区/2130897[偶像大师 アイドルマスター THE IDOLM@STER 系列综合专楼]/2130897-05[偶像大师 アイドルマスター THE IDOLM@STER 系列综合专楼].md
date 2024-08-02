@@ -947,3 +947,17 @@ https://asobinotes.bn-ent.net/news/905/
 2024.08.02 INFORMATION</blockquote>
 不懂，cd都出了突然重新混音，那cd音源用的是旧版还是新版？
 
+
+*****
+
+####  Seeley  
+##### 5995#       发表于 2024-8-2 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65777336&amp;ptid=2130897" target="_blank">安广多惠子 发表于 2024-8-2 18:18</a>
+二命質變，製作組把米哈遊的招式學來了
+
+—— 来自 S1Fun</blockquote>
+麻了，才发现2突是3好调触发<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

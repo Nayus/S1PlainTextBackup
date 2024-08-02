@@ -2296,3 +2296,61 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 庭院截图初始等级15，有完结作初始等级是15的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2349#       发表于 2024-8-2 13:47
+
+ 本帖最后由 ravend233 于 2024-8-2 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774222&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-2 13:42</a>
+真的能说吗，说了有不就明示咚吗，会影响销量吧</blockquote>
+他打太极，那就是心虚，那就是有，他不打太极，还有的话那下一部只能又换个名了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如直接问，共和国篇能在本作结束吗（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 2350#       发表于 2024-8-2 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774237&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-2 13:44</a>
+创时期直接说没有第二部的，这个问题问出来就结束了，近藤要是说没有就是没有，说去游戏里品味那就是闪三， ...</blockquote>
+不知道七星到底是真的认识舅舅还是n手消息，而且不知道是什么时候的版本就是了（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2351#       发表于 2024-8-2 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774264&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-2 13:47</a>
+
+他打太极，那就是心虚，那就是有，他不打太极，还有的话那下一部只能又换个名了
+
+不如直接问，共和国篇能 ...</blockquote>
+说了界轨完结共和国篇，界2还能说也是界轨，还换名字又从另一个角度打自己脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 2352#       发表于 2024-8-2 13:53
+
+我觉得也不需要舅舅了吧，就目前这些情报来看还不够明显的吗，真能完结早就大字加粗宣传了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便既然op提前一个月那下次直播是不是该序章试玩了
+
+*****
+
+####  ravend233  
+##### 2353#       发表于 2024-8-2 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774290&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-2 13:49</a>
+
+说了界轨完结共和国篇，界2还能说也是界轨，还换名字又从另一个角度打自己脸了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正现在社长的话基本上日常前后矛盾，大概也无所谓了
+

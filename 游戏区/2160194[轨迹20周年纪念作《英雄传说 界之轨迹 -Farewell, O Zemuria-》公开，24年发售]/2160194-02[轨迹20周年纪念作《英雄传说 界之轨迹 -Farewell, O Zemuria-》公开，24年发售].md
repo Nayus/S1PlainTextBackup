@@ -2434,3 +2434,11 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 换个思路，轨迹之前的算阶段完结作的就闪4和创，这两个的op能看出个啥（闪4也就当时的发售前的宣传很狠，创 ...</blockquote>
 op能看出最终boss
 
+
+*****
+
+####  zhouaa  
+##### 2362#       发表于 2024-8-2 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准就第一章BOSS
+

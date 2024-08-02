@@ -745,3 +745,24 @@ scsp氪了3单才抽到泳装限定雾子 要是早知道雾子这么快来还�
 哥们咋先入为主的认为是日本人觉得的一定对呢，土豆和草菇谁比较强想来也不是什么有价值的议题，什么时候 ...</blockquote>
 我说的就是你为什么要去盲人摸象的揣测日本灰友的想法呢？日本灰友是什么思想共有的单一生命体？还是你自己立的一个靶子？
 
+
+*****
+
+####  KQUIN  
+##### 5986#       发表于 2024-8-2 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65771825&amp;ptid=2130897" target="_blank">achilleus 发表于 2024-8-2 09:30</a>
+
+我说的就是你为什么要去盲人摸象的揣测日本灰友的想法呢？日本灰友是什么思想共有的单一生命体？还是你自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+你误解了最关键的一点
+
+你以为我提出“日本一直有XXX言论”→是为了证明“TD＞CG”，所以你提出“个别言论不能代表全体”来反驳，
+
+但问题是，我提出这个上述这个事情不是为了证明这个言论是对的，我是为了证明<strong>不仅存在这些言论，而且这些言论也不个别，都是能几十楼几十条级别以上找到痕迹的</strong>，不是借助这些言论试图证明任何事情，存在能证明的唯一事情就是它确实存在。
+
+那我得出结论<strong>他们不如你这么自信</strong>，有什么问题吗？毕竟你“土豆刚出就落后于草菇”的言论也蛮新奇的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">。你就说<strong>发这些帖子/弹幕/推特</strong>的人和你谁更自信吧。
+
+你以为我是想凭借人数和群体来评判正方反方两个观点谁更正确，实际上我只是看到一个少见的言论感慨两句“哇，真少见”而已，你非揪着我说“这不少见，这以偏概全了”，你可以是对的啊，我无所谓的，反正如果你觉得有多少多少比例的人跟你一样想，或者说是日本灰友或者中国灰友真的有很多人是这么认为的，对我来说也算是稀奇的知识点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

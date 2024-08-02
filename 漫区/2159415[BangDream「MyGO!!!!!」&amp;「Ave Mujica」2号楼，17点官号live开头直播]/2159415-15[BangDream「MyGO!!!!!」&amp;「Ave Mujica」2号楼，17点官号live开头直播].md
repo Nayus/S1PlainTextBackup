@@ -10925,3 +10925,12 @@ wsd也是神人，把五个人请过来然后念了四十分钟的工商，真�
 
 从kv图上可以看出，祥子右脚的鞋跟是离地的（暂不考虑作画失误），通常来说，这是一个迈步的前置姿势，而mujica的确也是祥子自己开始组建的
 
+
+*****
+
+####  Aendst  
+##### 21723#       发表于 2024-8-2 11:51
+
+[https://www.bilibili.com/video/BV1Wu411A72W/](https://www.bilibili.com/video/BV1Wu411A72W/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

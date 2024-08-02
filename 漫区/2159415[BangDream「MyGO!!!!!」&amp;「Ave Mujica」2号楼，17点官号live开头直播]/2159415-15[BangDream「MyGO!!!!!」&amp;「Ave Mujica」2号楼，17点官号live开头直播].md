@@ -10943,3 +10943,14 @@ wsd也是神人，把五个人请过来然后念了四十分钟的工商，真�
 祥子的很多cp向手书是真的能把我看哭<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 被很多人爱着呢
 
+
+*****
+
+####  御幸一也  
+##### 21725#       发表于 2024-8-2 12:36
+
+【MyGO/初祥手书】Goodbye Happiness
+[https://www.bilibili.com/video/BV1zi421a7tq/](https://www.bilibili.com/video/BV1zi421a7tq/)
+
+那怎麼能不提我們初祥最棒的手書呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

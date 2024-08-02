@@ -699,3 +699,13 @@ py码：100104725198，安B服。
 
 好像还没说夏活什么时候开？
 
+
+*****
+
+####  khxooo  
+##### 46596#       发表于 2024-8-2 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65770552&amp;ptid=1712412" target="_blank">史艳文 发表于 2024-8-2 00:30</a>
+好像还没说夏活什么时候开？</blockquote>
+很大机会8号开，日服是11号，但是今年11号是星期天，阿B不可能给你加班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

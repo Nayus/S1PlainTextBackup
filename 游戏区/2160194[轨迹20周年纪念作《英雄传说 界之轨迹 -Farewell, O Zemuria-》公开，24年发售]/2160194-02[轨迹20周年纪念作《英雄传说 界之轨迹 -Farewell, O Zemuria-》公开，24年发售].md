@@ -2408,3 +2408,29 @@ OP真不错。爱了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 看完这么多情报还会觉得没第二部的我只能怀疑根本没玩过轨迹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这真要完结我反而害怕了，剧情得潦草成啥样啊
 
+
+*****
+
+####  Aeons  
+##### 2359#       发表于 2024-8-2 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那也可以这么说，觉得剧情不可能潦草我只能怀疑根本没玩过轨迹了，你轨什么事做不出来？
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 2360#       发表于 2024-8-2 14:54
+
+换个思路，轨迹之前的算阶段完结作的就闪4和创，这两个的op能看出个啥（闪4也就当时的发售前的宣传很狠，创倒是直接给人整出创2ptsd了
+
+
+*****
+
+####  Aeons  
+##### 2361#       发表于 2024-8-2 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65774793&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-8-2 14:54</a>
+换个思路，轨迹之前的算阶段完结作的就闪4和创，这两个的op能看出个啥（闪4也就当时的发售前的宣传很狠，创 ...</blockquote>
+op能看出最终boss
+

@@ -1460,3 +1460,14 @@ jcb 测试的2日元没事, 买点的时候就不成了. 有意思. 之后:测�
 是这里吗？选USD还是JPY啊</blockquote>
 对，我记得paypal自带的汇率比银行汇率坑，买的时候可以看一下实时汇率，选个能便宜一点的
 
+
+*****
+
+####  shamal0324  
+##### 148#       发表于 2024-8-3 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780580&amp;ptid=2178442" target="_blank">圈量子 发表于 2024-8-3 00:25</a>
+
+对，我记得paypal自带的汇率比银行汇率坑，买的时候可以看一下实时汇率，选个能便宜一点的 ...</blockquote>
+搞定了，选了日元支付，天无绝人之路啊，谢谢潭友
+

@@ -74,3 +74,30 @@
 你没看过种命的Final Plus吗？当时就已经约定好为保护共同的世界而战啦</blockquote>
 不知鸡神当时是怎么想的，按种自人物简介的话鸟的理解是通过战斗一起实现姨丈那个“没有战争的世界”，所以被福田吐槽过只是换了老大而已
 
+
+*****
+
+####  死难者23er  
+##### 1878#       发表于 2024-8-2 16:32
+
+这一波操作还真的是奇怪呀，甚至还影响到拉克丝的销量了。卡嘉莉一天就直接第一了，拉克丝的连前八都没有
+
+<img src="https://img.saraba1st.com/forum/202408/02/163200d3hyvvovmbeh55l5.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2608.png</strong> (160.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 16:32 上传
+
+[attachimg]1692695[/attachimg］
+
+IMG_2609.png
+(206.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-2 16:32 上传
+
+<img src="https://img.saraba1st.com/forum/202408/02/163201ynjfj7hhzhhkv8hj.png" referrerpolicy="no-referrer">
+

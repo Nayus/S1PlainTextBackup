@@ -2606,3 +2606,15 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 只希望对手团这量产型面具人设定别写得太搞笑就行了，闪轨再不好，他的对手团起码有头有脸的，这一群面具人看着就像什么精英杂兵，共和国大结局打这种也太幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2381#       发表于 2024-8-2 20:44
+
+能不能完结不是做不做得到，而是想不想的问题
+
+现在我觉得他们不想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

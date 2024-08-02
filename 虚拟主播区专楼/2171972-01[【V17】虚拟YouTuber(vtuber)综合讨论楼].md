@@ -1382,3 +1382,11 @@ yysy，当年yqqx炎归炎，也是靠那一波流量登顶的吧
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  北山玖公  
+##### 557#       发表于 2024-8-2 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得是老虹人这股味正
+

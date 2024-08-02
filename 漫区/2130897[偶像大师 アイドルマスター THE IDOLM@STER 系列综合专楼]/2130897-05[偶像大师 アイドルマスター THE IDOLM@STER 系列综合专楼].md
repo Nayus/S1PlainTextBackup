@@ -992,3 +992,24 @@ ASOBINOTES也是继承了烂铁祖传海带音源
 
 这是突然醒悟要向日本哥伦比亚看齐吗
 
+
+*****
+
+####  wfhtony  
+##### 5999#       发表于 2024-8-3 02:18
+
+ 本帖最后由 wfhtony 于 2024-8-3 02:22 编辑 
+
+旧标准：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/56a9387e29e6b6a875d40b7b905be2e0.png" referrerpolicy="no-referrer">
+
+新标准：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/7b63061f490aa28b7d0848651a31c26e.png" referrerpolicy="no-referrer">
+
+7月之后的曲子全部都是按新标准做母带处理的。
+
+例：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/1628f1330dec718882f56c4ec8bba104.png" referrerpolicy="no-referrer">
+
+估计这个月开始发售的 1st SOLO CD 用的都是调整后的新音源了。（不过CD的海苔墙是避免不了的）
+

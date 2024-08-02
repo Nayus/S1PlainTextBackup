@@ -818,3 +818,11 @@ scsp氪了3单才抽到泳装限定雾子 要是早知道雾子这么快来还�
 
 我是只玩了cgss，土豆不能直连所以没上船。cgss最近几个MV都很不错，推荐欣赏一下。另外这次美波的衣服也终于大方露出内内了
 
+
+*****
+
+####  yuuuuuuuu  
+##### 5990#       发表于 2024-8-2 17:09
+
+不加量词默认是全体，被地图炮到不爽正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

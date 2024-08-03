@@ -107,3 +107,13 @@ yellow同阵容
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  starring  
+##### 20730#       发表于 2024-8-3 18:31
+
+突然就薮熊合唱solo曲<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

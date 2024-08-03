@@ -1159,3 +1159,20 @@ LUNA这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/072
 针对一些吐槽比较多的点都修改了，减负不少 ...</blockquote>
 感谢指导<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  魂淡融  
+##### 125#       发表于 2024-8-3 09:30
+
+凌晨热更新把凯尔秒杀和0cd哨所修复了，还没刷就无了
+
+<img src="https://img.saraba1st.com/forum/202408/03/092940vhzg5pqx0xfpypqf.jpg" referrerpolicy="no-referrer">
+
+<strong>57B153C2F6B46A25E71E19DE03FE074F.jpg</strong> (103.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-3 09:29 上传
+

@@ -706,3 +706,18 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 第 26 集的 TVer 源（含日字）：magnet:?xt=urn:btih:35d399f0b0d8e671ae40ce509be3046c60487068
 
+
+*****
+
+####  犬飼いろは  
+##### 1969#       发表于 2024-8-2 10:09
+
+第 26 集的 TVer 源（含日字）：magnet:?xt=urn:btih:35d399f0b0d8e671ae40ce509be3046c60487068
+
+*****
+
+####  粉儿alice  
+##### 1970#       发表于 2024-8-3 08:58
+
+看来苍乃女士后继有人了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

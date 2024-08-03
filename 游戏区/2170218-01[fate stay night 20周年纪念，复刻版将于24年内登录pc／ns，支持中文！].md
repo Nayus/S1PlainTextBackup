@@ -490,3 +490,21 @@ fha也炒了
 
 真没完了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 54#         楼主| 发表于 2024-8-3 13:29
+
+《Fate/hollow ataraxia REMASTERED》制作决定。登陆 Steam/Switch 平台。 http://t.cn/A68OGhOx ​​​
+
+
+*****
+
+####  crosz1985  
+##### 55#       发表于 2024-8-3 13:35
+
+ns版没实体吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

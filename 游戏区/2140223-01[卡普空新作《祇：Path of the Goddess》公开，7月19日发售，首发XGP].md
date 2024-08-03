@@ -1466,3 +1466,16 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 解锁需要蓄力的弓箭技能后，长按rt 还是普通射击，是我操作漏了么，还是我手柄有问题 ...</blockquote>
 要装备技能
 
+
+*****
+
+####  atsira  
+##### 205#       发表于 2024-8-4 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783831&amp;ptid=2140223" target="_blank">Amelia_1812 发表于 2024-8-3 14:50</a>
+
+被野猪撞会影响无伤吗</blockquote>
+不影响
+
+可以看屏幕左下的标记，任务失败相关标记会变成灰色的
+

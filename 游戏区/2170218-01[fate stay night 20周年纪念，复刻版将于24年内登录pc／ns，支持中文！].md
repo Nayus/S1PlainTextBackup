@@ -716,3 +716,12 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 这次这个高清版有PS2那个加料结局吗
 
+
+*****
+
+####  噗呸破屁诚  
+##### 79#       发表于 2024-8-4 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788511&amp;ptid=2170218" target="_blank"> RPG-7 发表于 2024-8-3 23:45</a> 这次这个高清版有PS2那个加料结局吗 </blockquote>
+有的，是12年psv版移植，甚至还有三个ufo做的酷酷的op来自: iPhone客户端
+

@@ -11048,3 +11048,37 @@ mv、新歌，3th，数着好绝望。
 
 等动画播了一群梗小鬼开始闹了就不绝望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 21735#       发表于 2024-8-3 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784449&amp;ptid=2159415" target="_blank">御景 发表于 2024-8-3 16:22</a>
+
+一片死寂。
+
+mv、新歌，3th，数着好绝望。
+
+越是临近越悲凉。</blockquote>
+啥都沒是這樣的了，往好處想，距離開播<strong>只</strong>有5個月了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿萨德飞过去  
+##### 21736#       发表于 2024-8-3 16:44
+
+还好啦，我最崩溃的时候还是一月，哪晓得能熬到现在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御景  
+##### 21737#       发表于 2024-8-3 16:44
+
+再怎么闹，也比现在好。
+
+mujica角色形象没有完善，二创都束手束脚。
+
+等进手游了，也终于能定期有点东西了。
+

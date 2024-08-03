@@ -1261,3 +1261,33 @@ webwxgetmsgimg.jfif
 
 月姬侧众人也算正式融入FGO体系了，估计以后什么罗亚啊教授啊都得落地...甚至哪天落地个全新二十七祖也有可能吧...
 
+
+*****
+
+####  Jamaisvu  
+##### 13169#       发表于 2024-8-3 16:37
+
+<blockquote>保罗赫伯特 发表于 2024-8-3 16:26
+泳装二池会有2.7角色吗，还是纯月姬主题</blockquote>
+还没说主题是什么吧，不过埋葬机关的人来海边确实可能是追查吸血鬼（估计会提一句二十一祖水魔）....
+
+话说CIEL看见虞姬不知道什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13170#       发表于 2024-8-3 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个强度爆炸
+
+
+*****
+
+####  保罗赫伯特  
+##### 13171#       发表于 2024-8-3 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784573&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-3 16:38</a>
+
+等一个强度爆炸</blockquote>
+哪种爆炸，青子那种吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

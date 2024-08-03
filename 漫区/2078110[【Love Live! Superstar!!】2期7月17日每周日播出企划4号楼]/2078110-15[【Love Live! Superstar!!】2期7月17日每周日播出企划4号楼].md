@@ -194,3 +194,11 @@ yellow同阵容
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  优妮可  
+##### 20740#       发表于 2024-8-3 20:41
+
+非要探讨的也有，官方拿堇来引出可香对双方来说的观感真的会好么
+

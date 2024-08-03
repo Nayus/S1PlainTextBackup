@@ -605,3 +605,16 @@ remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smile
 
 fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了
 
+
+*****
+
+####  M_K  
+##### 67#       发表于 2024-8-3 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63839228&amp;ptid=2170218" target="_blank">罐子 发表于 2024-1-31 12:40</a>
+
+所以有没有R18中文版资源，求一个
+
+在手机上玩一下</blockquote>
+[krkr版](https://lzacg.org/2206)
+

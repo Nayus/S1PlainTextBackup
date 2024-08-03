@@ -1254,3 +1254,11 @@ Boom Boom Pow
 
 [[自購自分享]『学園偶像大師』系列 高解析度音頻 (ASOBINOTES發行)](https://blog.wfhtony.space/2024/06/09/imas-gk-hi-res-asbn/)
 
+
+*****
+
+####  xmcp  
+##### 6005#       发表于 2024-8-4 01:25
+
+开了音量均衡之后abx根本听不出区别，有点怀疑这个remaster版只是调了一下目标响度
+

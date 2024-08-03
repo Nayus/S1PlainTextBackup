@@ -1192,3 +1192,14 @@ webwxgetmsgimg.jfif
 
 尼基季奇这泳装看起来比原版强太多了。原版太烂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 13162#       发表于 2024-8-3 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783834&amp;ptid=2084912" target="_blank">GuDaZi 发表于 2024-8-3 14:50</a>
+
+尼基季奇这泳装看起来比原版强太多了。原版太烂了</blockquote>
+主要是黑色泳装和白色肌肤+雪色眼睛和头发相映成趣
+

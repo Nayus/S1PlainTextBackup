@@ -557,3 +557,12 @@ remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smile
 
 型月的18x有啥可看的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  噗呸破屁诚  
+##### 62#       发表于 2024-8-3 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783536&amp;ptid=2170218" target="_blank"> Shabadadoo 发表于 2024-8-3 13:57</a> 都仅数字版了，不给ps平台复制粘贴一份？ </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为人家移植就是psv版……来自: iPhone客户端
+

@@ -1382,3 +1382,14 @@ ciel弓阶吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.pn
 シエル学姐埋葬机关所属专杀死徒，这次夏活可能是吸血鬼、死徒相关？</blockquote>
 不然，来个超级五月？
 
+
+*****
+
+####  保罗赫伯特  
+##### 13182#       发表于 2024-8-3 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65785754&amp;ptid=2084912" target="_blank">blue321 发表于 2024-8-3 19:30</a>
+
+今年周年角色不会还是联动角吧</blockquote>
+也可能是芙芙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

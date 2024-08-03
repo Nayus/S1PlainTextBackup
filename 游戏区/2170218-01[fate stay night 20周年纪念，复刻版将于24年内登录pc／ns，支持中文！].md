@@ -587,3 +587,21 @@ remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smile
 因为人家移植就是psv版……</blockquote>
 对啊，那也给ps4复制一份啊
 
+
+*****
+
+####  jinxi42  
+##### 65#       发表于 2024-8-3 16:10
+
+我魔夜月姬都ps4，再来两个fateps4就收藏完了啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  SorroFrost  
+##### 66#       发表于 2024-8-3 16:17
+
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了
+

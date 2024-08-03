@@ -11116,3 +11116,11 @@ mujica角色形象没有完善，二创都束手束脚。
 
 真差不多等了一年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21741#       发表于 2024-8-3 21:58
+
+好像初祥桥今天一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

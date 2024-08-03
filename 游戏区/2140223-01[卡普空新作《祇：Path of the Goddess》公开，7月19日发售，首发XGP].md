@@ -1455,3 +1455,14 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 解锁需要蓄力的弓箭技能后，长按rt 还是普通射击，是我操作漏了么，还是我手柄有问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  gzGaryC  
+##### 204#       发表于 2024-8-4 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788734&amp;ptid=2140223" target="_blank">三千珈蓝 发表于 2024-8-4 00:06</a>
+
+解锁需要蓄力的弓箭技能后，长按rt 还是普通射击，是我操作漏了么，还是我手柄有问题 ...</blockquote>
+要装备技能
+

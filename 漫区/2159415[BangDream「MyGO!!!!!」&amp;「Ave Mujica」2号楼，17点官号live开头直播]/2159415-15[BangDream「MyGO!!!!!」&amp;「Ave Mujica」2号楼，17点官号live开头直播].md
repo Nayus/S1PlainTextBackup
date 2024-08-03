@@ -11124,3 +11124,19 @@ mujica角色形象没有完善，二创都束手束脚。
 
 好像初祥桥今天一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KirigawaMaki  
+##### 21742#       发表于 2024-8-4 01:39
+
+好像是扭蛋
+
+<img src="https://img.saraba1st.com/forum/202408/04/013844vw8g1q9v4qogq1ql.jpg" referrerpolicy="no-referrer">
+
+<strong>569X1qZh7T.jpg</strong> (167.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 01:38 上传
+

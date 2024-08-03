@@ -90,3 +90,20 @@ yellow同阵容
 
 鱼是完全拉不住这两 哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 20728#       发表于 2024-8-3 18:18
+
+这次歌曲组成应该可以判明了，就是小组连弹+11个solo+1-3个团曲
+
+*****
+
+####  starring  
+##### 20729#       发表于 2024-8-3 18:21
+
+非虚构的衣服再次登场，能当成solo服也不错
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

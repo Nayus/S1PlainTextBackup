@@ -1539,12 +1539,12 @@
     "update": false
   },
   "1916007": {
-    "totalreply": 2150,
+    "totalreply": 2151,
     "title": "[漫画《少年的深渊》讨论楼]",
     "newtitle": "[漫画《少年的深渊》讨论楼]",
-    "lastedit": 1722312971,
+    "lastedit": 1722719288,
     "category": "漫区",
-    "active": false,
+    "active": true,
     "update": false
   },
   "2046370": {
@@ -15386,7 +15386,7 @@
     "newtitle": "[直言不讳“为了投资”！上海“90后”打新七次终于买到豪宅]",
     "lastedit": 1722459968,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2193404": {
@@ -16645,6 +16645,15 @@
     "title": "[使命召唤： 黑色行动6 ｜ 首发XGP／PGP ｜ 10月25日发售｜8月29更多消息]",
     "newtitle": "[使命召唤： 黑色行动6 ｜ 首发XGP／PGP ｜ 10月25日发售｜8月29更多消息]",
     "lastedit": 1722716414,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2145336": {
+    "totalreply": 133,
+    "title": "[FC《赤影战士》（水上魂斗罗），官方公布新预告和游戏demo]",
+    "newtitle": "[FC《赤影战士》（水上魂斗罗），官方公布新预告和游戏demo]",
+    "lastedit": 1722719171,
     "category": "游戏区",
     "active": true,
     "update": false

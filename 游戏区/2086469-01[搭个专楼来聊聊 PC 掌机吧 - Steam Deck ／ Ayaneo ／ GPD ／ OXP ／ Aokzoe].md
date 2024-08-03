@@ -79,3 +79,11 @@ ally玩不了的，x也够呛……
 
 —— 来自 vivo V2337A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  blueelf  
+##### 1273#       发表于 2024-8-3 15:07
+
+HX370翻车了，7840看样子还能撑一年，上午收了个二手2T的ROG一代
+

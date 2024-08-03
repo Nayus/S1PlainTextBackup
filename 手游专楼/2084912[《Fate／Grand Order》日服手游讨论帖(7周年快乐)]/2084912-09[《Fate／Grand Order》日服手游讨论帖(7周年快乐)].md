@@ -1364,3 +1364,11 @@ ciel弓阶吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.pn
 
 今年周年角色不会还是联动角吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 13180#       发表于 2024-8-3 19:50
+
+2.7再这样下去连底裤都要输光了，今年连周年礼装都没一个人混上，你看看人2.6的待遇呢23333
+

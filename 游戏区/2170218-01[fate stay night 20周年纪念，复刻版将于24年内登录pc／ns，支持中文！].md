@@ -634,3 +634,13 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 这是fha第一次复刻吗
 
+
+*****
+
+####  医生狼多  
+##### 70#         楼主| 发表于 2024-8-3 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65785794&amp;ptid=2170218" target="_blank">AeonsTorn 发表于 2024-8-3 19:36</a>
+这是fha第一次复刻吗</blockquote>
+也是psv版的
+

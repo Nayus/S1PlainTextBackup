@@ -1065,3 +1065,72 @@ webwxgetmsgimg.jfif
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  natmk  
+##### 13149#       发表于 2024-8-3 14:18
+
+学姐泳装公主估计也有吧那周年是不是可以猜个志贵
+
+*****
+
+####  TheLoof  
+##### 13150#       发表于 2024-8-3 14:19
+
+ 本帖最后由 TheLoof 于 2024-8-3 14:21 编辑 
+
+现在的压力给到周年从者了
+
+总不能真是所长
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今年估计又是1+3=4个五星了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13151#       发表于 2024-8-3 14:20
+
+不可能所长 不然收集碎片啥意义 好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13152#       发表于 2024-8-3 14:21
+
+还有两个碎片要收集，不会那么快出所长的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是其他作品联动角色的可能性倒是增大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13153#       发表于 2024-8-3 14:21
+
+<blockquote>TheLoof 发表于 2024-8-3 14:19
+现在的压力给到周年从者了
+
+总不能真是所长</blockquote>
+碎片没全呢，排队十周年吧
+
+当然，废狗是自由的.jpg
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13154#       发表于 2024-8-3 14:24
+
+上来一个月亮险些给我吓死 还以为公主真泳装了
+
+*****
+
+####  sin.yugi  
+##### 13155#       发表于 2024-8-3 14:26
+
+敢不敢实装秋叶<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+— from nubia NX729J, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

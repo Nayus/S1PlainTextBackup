@@ -489,3 +489,13 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  xinfengj  
+##### 5135#       发表于 2024-8-3 19:53
+
+之前十亿虫子用了五天，这次十三亿给四天完不成就白送就是硬塞啊。
+
+正好接上6号更新，怕不是要更载具了所以专门找理由给个免费反坦克雷坑人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

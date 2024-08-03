@@ -2865,3 +2865,20 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">金魔装鬼这独角，侧面像那么回事，正面感觉会很丑
 
+
+*****
+
+####  Aeons  
+##### 2406#       发表于 2024-8-3 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">想起来一个事，当时都说开国际大会，但是目前没有任何提及，大场面也一点没有，你这世界末日剧情是不是无关其他国家啊？
+
+*****
+
+####  ravend233  
+##### 2407#       发表于 2024-8-3 20:03
+
+可能这个世界会议直接时间上跳过了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">或者报纸给你看看得了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

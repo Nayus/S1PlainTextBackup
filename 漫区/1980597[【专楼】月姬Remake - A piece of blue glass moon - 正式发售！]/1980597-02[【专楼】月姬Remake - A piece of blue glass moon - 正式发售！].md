@@ -52,3 +52,15 @@
 
 就看得我满头问号
 
+
+*****
+
+####  oi99o  
+##### 1622#       发表于 2024-8-3 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784499&amp;ptid=1980597" target="_blank">清浦刹那 发表于 2024-8-3 16:29</a>
+问下这个版本含日文版吗？</blockquote>
+含，中日英都有
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

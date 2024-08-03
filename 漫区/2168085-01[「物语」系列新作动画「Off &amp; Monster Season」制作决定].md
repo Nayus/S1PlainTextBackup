@@ -2001,3 +2001,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 每个抚子都好可爱。下集会很赶吗
 
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 608#       发表于 2024-8-4 04:44
+
+越来越像常守朱了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

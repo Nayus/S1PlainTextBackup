@@ -1164,3 +1164,23 @@ webwxgetmsgimg.jfif
 
 没看过月姬....公主还能抽下.....这蓝毛学姐是真的一点兴趣也没有
 
+
+*****
+
+####  alucardcz  
+##### 13159#       发表于 2024-8-3 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783746&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-3 14:36</a>
+
+今年泳装目前为止一个有兴趣的都没有.....省石头了
+
+没看过月姬....公主还能抽下.....这蓝毛学姐是真的一点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后转身就是一豹
+
+*****
+
+####  シャル  
+##### 13160#       发表于 2024-8-3 14:47
+
+明天一定是要勇者王啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

@@ -549,3 +549,11 @@ remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smile
 《Fate/hollow ataraxia REMASTERED》制作决定。登陆 Steam/Switch 平台。 http://t.cn/A68OGhOx ​​​ ...</blockquote>
 锅还没擦就开始炒下一盘冷饭了。
 
+
+*****
+
+####  无动于衷  
+##### 61#       发表于 2024-8-3 14:41
+
+型月的18x有啥可看的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

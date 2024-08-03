@@ -531,3 +531,11 @@ ns版没实体吗
 
 都仅数字版了，不给ps平台复制粘贴一份？
 
+
+*****
+
+####  社友者  
+##### 59#       发表于 2024-8-3 13:59
+
+remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

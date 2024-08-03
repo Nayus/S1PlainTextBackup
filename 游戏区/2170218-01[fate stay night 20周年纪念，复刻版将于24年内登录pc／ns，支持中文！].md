@@ -671,3 +671,13 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 刚发现e shop有这个，惊了。
 
+
+*****
+
+####  Acerola  
+##### 74#       发表于 2024-8-3 22:46
+
+竟然不出实体，还想收藏来着<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，只能凑活来份Steam版了
+
+—— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1447,3 +1447,11 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 被野猪撞会影响无伤吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三千珈蓝  
+##### 203#       发表于 2024-8-4 00:06
+
+解锁需要蓄力的弓箭技能后，长按rt 还是普通射击，是我操作漏了么，还是我手柄有问题<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

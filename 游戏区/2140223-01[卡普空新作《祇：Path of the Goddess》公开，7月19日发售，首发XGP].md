@@ -1439,3 +1439,11 @@ steam上的指南说是要9周目才能全收集，有些是要反复打二周�
 
 五周目下来感觉推图最强职业真得是火枪 出一两个斧头扛下线就行 别的职业实在意义不大
 
+
+*****
+
+####  Amelia_1812  
+##### 202#       发表于 2024-8-3 14:50
+
+被野猪撞会影响无伤吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

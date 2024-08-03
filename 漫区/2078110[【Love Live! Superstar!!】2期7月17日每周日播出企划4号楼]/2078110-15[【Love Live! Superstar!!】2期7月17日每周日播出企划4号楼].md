@@ -117,3 +117,13 @@ yellow同阵容
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  starring  
+##### 20731#       发表于 2024-8-3 19:04
+
+今天FMT歌part的强度比正式LIVE还高
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

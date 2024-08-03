@@ -1901,3 +1901,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 <img src="https://p.sda1.dev/18/31055ee960e47d3afd660b0dbae0df07/story_3591_photo_1722502069110454384.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/1317e9e0e8ef912a63b724dc61f12c05/story_3591_photo_1722502069343263177.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 597#       发表于 2024-8-3 21:18
+
+怎么bgm全是过去op的变奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

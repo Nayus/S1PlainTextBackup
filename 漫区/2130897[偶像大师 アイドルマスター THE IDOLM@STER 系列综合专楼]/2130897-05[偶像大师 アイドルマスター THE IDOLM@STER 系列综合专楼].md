@@ -1239,3 +1239,18 @@ Boom Boom Pow
 旧标准：</blockquote>
 这旧标准真的一眼烂铁
 
+
+*****
+
+####  wfhtony  
+##### 6004#       发表于 2024-8-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65786199&amp;ptid=2130897" target="_blank">xmcp 发表于 2024-8-3 20:28</a>
+
+这个新音源是哪里下的啊，想听一下有多大区别。搜了下nyaa之类的bt站，目前好像都没更新？ ...</blockquote>
+|[[BD|OD|GD][mora自購][240802][Hi-Res] 『初星学園（学園アイドルマスター）』前期配信樂曲母帶重編修正版本 [FLAC 96kHz/24bit]](https://www.tsdm39.com/forum.php?mod=viewthread&amp;tid=1209294)|
+
+或者
+
+[[自購自分享]『学園偶像大師』系列 高解析度音頻 (ASOBINOTES發行)](https://blog.wfhtony.space/2024/06/09/imas-gk-hi-res-asbn/)
+

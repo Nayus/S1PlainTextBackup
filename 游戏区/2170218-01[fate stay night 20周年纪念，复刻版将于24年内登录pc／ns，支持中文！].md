@@ -539,3 +539,13 @@ ns版没实体吗
 
 remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  云梦泽岸  
+##### 60#       发表于 2024-8-3 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783381&amp;ptid=2170218" target="_blank">医生狼多 发表于 2024-8-3 13:29</a>
+《Fate/hollow ataraxia REMASTERED》制作决定。登陆 Steam/Switch 平台。 http://t.cn/A68OGhOx ​​​ ...</blockquote>
+锅还没擦就开始炒下一盘冷饭了。
+

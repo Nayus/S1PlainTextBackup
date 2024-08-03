@@ -1111,3 +1111,131 @@ Boom Boom Pow
 
 (via [ASOBINOTES](https://asobinotes.bn-ent.net/news/905/))
 
+
+*****
+
+####  wfhtony  
+##### 6001#       发表于 2024-8-3 02:18
+
+ 本帖最后由 wfhtony 于 2024-8-3 02:31 编辑 
+
+旧标准：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/56a9387e29e6b6a875d40b7b905be2e0.png" referrerpolicy="no-referrer">
+
+新标准：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/7b63061f490aa28b7d0848651a31c26e.png" referrerpolicy="no-referrer">
+
+7月之后的曲子全部都是按新标准做母带处理的。
+
+例：
+<img src="https://tc2.wfhtony.space/images/2024/08/03/1628f1330dec718882f56c4ec8bba104.png" referrerpolicy="no-referrer">
+
+估计这个月开始发售的 1st SOLO CD 用的都是调整后的新音源（调整后伴奏轨中部分乐器轨的音量调下去了，因此人声相对显得更为突出）了。（不过CD的海苔墙是避免不了的）
+
+*****
+
+####  wfhtony  
+##### 6002#       发表于 2024-8-3 02:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780434&amp;ptid=2130897" target="_blank">xmcp 发表于 2024-8-3 00:01</a>
+
+那流媒体平台也会换源吗，还是只有游戏内重制？</blockquote>
+这次只针对流媒体和Hi-Res。
+
+<strong>INFORMATION</strong>
+
+<strong>【学院偶像大师】关于公开配信中的线上流媒体音源以及高解析度音源的通知</strong>
+
+ <blockquote>＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
+
+为了追求更好的聆听体验，我们这次对（一些既有）音源进行了母带重编处理（Remastering）。
+
+我们希望在这次的《学院偶像大师》项目中，尽可能原汁原味地将我们与共同参与乐曲创作的各位乐曲作家们所意图呈现的声音，带给各位听众。
+
+因此，我们重新审视了音压和动态的母带处理基准，将一些已经发售的音源重新修正并配信，以期更多听众能享受更为舒适的聆听体验。
+
+希望各位听众能够继续聆听并享受我们的作品。
+
+音乐制作人　佐藤貴文
+
+＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝
+
+このたび、より聴き心地の良いサウンドを目指して、
+
+音源を再マスタリングさせていただきました。
+
+学園アイドルマスタープロジェクトで
+
+一緒に制作していただいた作家のみなさまの意図したサウンドを、
+
+出来るだけそのままお届けしたいと考えております。
+
+そのため、音圧やダイナミクスのマスタリング基準を見直し、
+
+より多くの方々に心地良く感じていただける音源として
+
+あらためて配信音源を更新させていただきます。
+
+引き続き、みなさまにお楽しみいただけると幸いです。
+
+音楽プロデューサー
+
+佐藤貴文
+
+＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝</blockquote>
+本次更新上线后的音源请各位在各大线上音乐商店的「已购买页面」<strong>重新下载获取</strong>。
+
+<strong>▼乐曲目录（DISCOGRAPHY）请参阅以下网址。</strong>
+[https://gakuen-label.idolmaster-official.jp/discography](https://gakuen-label.idolmaster-official.jp/discography)
+
+本次更新音源的乐曲如下： <blockquote>—————-
+
+初
+
+Campus mode!!
+
+Fighting My Way
+
+Luna say maybe
+
+世界一可愛い私
+
+clumsy trick
+
+Tame-Lie-One-Step
+
+光景
+
+白線
+
+Wonder Scale
+
+Fluorite
+
+The Rolling Riceball
+
+アイヴイ
+
+叶えたい、ことばかり
+
+Yellow Big Bang！
+
+Boom Boom Pow
+
+—————-</blockquote>
+对各位听众造成的任何不便，我们深表歉意。
+
+也望听众朋友们今后能继续支持ASOBINOTES。
+
+(via [ASOBINOTES](https://asobinotes.bn-ent.net/news/905/))
+
+*****
+
+####  はらみー  
+##### 6003#       发表于 2024-8-3 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65781023&amp;ptid=2130897" target="_blank">wfhtony 发表于 2024-8-3 02:18</a>
+
+旧标准：</blockquote>
+这旧标准真的一眼烂铁
+

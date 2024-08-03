@@ -202,3 +202,14 @@ yellow同阵容
 
 非要探讨的也有，官方拿堇来引出可香对双方来说的观感真的会好么
 
+
+*****
+
+####  starring  
+##### 20741#       发表于 2024-8-3 20:56
+
+之前的live都是20首左右，这次FMT一共唱了27首
+<img src="https://p.sda1.dev/18/f3d0c4de33170c3f597ce74e8fea695d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

@@ -1909,3 +1909,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 怎么bgm全是过去op的变奏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 598#       发表于 2024-8-3 22:59
+
+七分40秒就是妄想快车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

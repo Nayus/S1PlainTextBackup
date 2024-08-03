@@ -681,3 +681,30 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 —— 来自 HONOR BVL-AN16, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  碎月  
+##### 75#       发表于 2024-8-3 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是能登演贝德维尔吗？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  760194962  
+##### 76#       发表于 2024-8-3 23:01
+
+<blockquote>SorroFrost 发表于 2024-8-3 16:17
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了</blockquote>
+空境有什么实体版
+
+*****
+
+####  760194962  
+##### 77#       发表于 2024-8-3 23:02
+
+买过ps2和psv两作的实体，不算贵，尤其ps2新星
+

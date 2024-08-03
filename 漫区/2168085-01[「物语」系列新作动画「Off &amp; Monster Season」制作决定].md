@@ -1946,3 +1946,19 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  meailove  
+##### 602#       发表于 2024-8-4 00:01
+
+<img src="https://img.saraba1st.com/forum/202408/04/000116i655koa6ysczsgz5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (259.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 00:01 上传
+
+经典男主形象
+

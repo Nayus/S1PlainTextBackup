@@ -168,3 +168,29 @@ yellow同阵容
 
 这个周期开始频繁可香，诸位如何解析这个信号。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20737#       发表于 2024-8-3 20:12
+
+最后一首歌是2期ed，真的是今天最后一首了
+
+*****
+
+####  lj205  
+##### 20738#       发表于 2024-8-3 20:12
+
+没什么信号，不要过多联想
+
+*****
+
+####  ads147147  
+##### 20739#       发表于 2024-8-3 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65785980&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-3 20:02</a>
+这个周期开始频繁可香，诸位如何解析这个信号。</blockquote>
+说明动画没有，没啥信号<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

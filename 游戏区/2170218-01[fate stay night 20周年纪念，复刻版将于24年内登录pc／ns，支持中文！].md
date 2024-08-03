@@ -652,3 +652,14 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 这次是没有豪华版吗？
 
+
+*****
+
+####  任天索尼子  
+##### 72#       发表于 2024-8-3 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784411&amp;ptid=2170218" target="_blank">SorroFrost 发表于 2024-8-3 16:17</a>
+
+fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate了</blockquote>
+淘个PSV版
+

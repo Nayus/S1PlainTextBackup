@@ -1243,3 +1243,21 @@ webwxgetmsgimg.jfif
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  保罗赫伯特  
+##### 13167#       发表于 2024-8-3 16:26
+
+泳装二池会有2.7角色吗，还是纯月姬主题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 13168#       发表于 2024-8-3 16:32
+
+学姐空降的好自然啊，和旧梅一样首次亮相就是泳装活动。
+
+月姬侧众人也算正式融入FGO体系了，估计以后什么罗亚啊教授啊都得落地...甚至哪天落地个全新二十七祖也有可能吧...
+

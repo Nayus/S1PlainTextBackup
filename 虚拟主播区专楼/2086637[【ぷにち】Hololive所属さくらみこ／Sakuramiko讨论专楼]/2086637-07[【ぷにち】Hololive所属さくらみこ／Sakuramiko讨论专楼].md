@@ -6136,3 +6136,34 @@ neta认得全吗，我是差不多
 
 谁都不认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有得看了
 
+
+*****
+
+####  holoan  
+##### 9408#         楼主| 发表于 2024-8-3 10:04
+
+<img src="https://img.saraba1st.com/forum/202408/03/100442uoozdyyioug5gv6d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 10:04 上传
+
+。。。
+
+*****
+
+####  holoan  
+##### 9409#         楼主| 发表于 2024-8-3 10:22
+
+<img src="https://img.saraba1st.com/forum/202408/03/102225gymlyosojaj2djxy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-3 10:22 上传
+
+看看是不是P的图，好像不太是应该是真的改完设计的实物图
+

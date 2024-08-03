@@ -1203,3 +1203,14 @@ webwxgetmsgimg.jfif
 尼基季奇这泳装看起来比原版强太多了。原版太烂了</blockquote>
 主要是黑色泳装和白色肌肤+雪色眼睛和头发相映成趣
 
+
+*****
+
+####  森兰丸  
+##### 13163#       发表于 2024-8-3 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783789&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-3 14:43</a>
+
+然后转身就是一豹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能的事
+

@@ -8451,10 +8451,10 @@
     "update": false
   },
   "2145840": {
-    "totalreply": 1789,
+    "totalreply": 1790,
     "title": "[学园偶像大师]",
     "newtitle": "[学园偶像大师]",
-    "lastedit": 1722614409,
+    "lastedit": 1722644778,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8919,10 +8919,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 20601,
+    "totalreply": 20603,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1722644167,
+    "lastedit": 1722644886,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10741,15 +10741,6 @@
     "title": "[日本6G究竟有多快？]",
     "newtitle": "[日本6G究竟有多快？]",
     "lastedit": 1721609289,
-    "category": "外野",
-    "active": false,
-    "update": false
-  },
-  "2192042": {
-    "totalreply": 74,
-    "title": "[咏春的名气是否就靠近三十年武打电影（特别是香港的）吹起来的？]",
-    "newtitle": "[咏春的名气是否就靠近三十年武打电影（特别是香港的）吹起来的？]",
-    "lastedit": 1721434811,
     "category": "外野",
     "active": false,
     "update": false
@@ -13878,10 +13869,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 742,
+    "totalreply": 743,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1722623651,
+    "lastedit": 1722644528,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -14580,10 +14571,10 @@
     "update": false
   },
   "2192941": {
-    "totalreply": 54,
+    "totalreply": 55,
     "title": "[如果世界上只剩下日式二次元游戏你还会玩游戏吗]",
     "newtitle": "[如果世界上只剩下日式二次元游戏你还会玩游戏吗]",
-    "lastedit": 1722611180,
+    "lastedit": 1722644778,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15408,10 +15399,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 3293,
+    "totalreply": 3294,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1722643571,
+    "lastedit": 1722644774,
     "category": "漫区",
     "active": true,
     "update": false
@@ -15422,7 +15413,7 @@
     "newtitle": "[FF7RB全小游戏高分心得]",
     "lastedit": 1722385327,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2160256": {
@@ -16227,10 +16218,10 @@
     "update": false
   },
   "2193634": {
-    "totalreply": 111,
+    "totalreply": 112,
     "title": "[Jk罗琳大妈反跨反魔怔，因为“没女人样，一定是跨”召集网暴女运动员]",
     "newtitle": "[Jk罗琳大妈反跨反魔怔，因为“没女人样，一定是跨”召集网暴女运动员]",
-    "lastedit": 1722642849,
+    "lastedit": 1722644778,
     "category": "外野",
     "active": true,
     "update": false
@@ -16479,10 +16470,10 @@
     "update": false
   },
   "2193689": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[关于小象超市，是什么来头？]",
     "newtitle": "[关于小象超市，是什么来头？]",
-    "lastedit": 1722643807,
+    "lastedit": 1722644778,
     "category": "外野",
     "active": true,
     "update": false
@@ -16650,11 +16641,20 @@
     "update": false
   },
   "2193760": {
-    "totalreply": 41,
+    "totalreply": 44,
     "title": "[不是，奥运会开幕式支持lgbt的那群人哪去了？]",
     "newtitle": "[不是，奥运会开幕式支持lgbt的那群人哪去了？]",
-    "lastedit": 1722643571,
+    "lastedit": 1722644778,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2188121": {
+    "totalreply": 87,
+    "title": "[浪漫沙加2完全重制!《浪漫沙加2 七英雄的复仇》 2024.10.24中文同步发售]",
+    "newtitle": "[浪漫沙加2完全重制!《浪漫沙加2 七英雄的复仇》 2024.10.24中文同步发售]",
+    "lastedit": 1722644781,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

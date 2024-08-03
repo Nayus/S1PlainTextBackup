@@ -2807,3 +2807,27 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 其实op会有暗示但不会明示，这么明显反而让人觉得诱导性很强，虽然黎2发售前大家都已经猜出来丁格就是红黎但也没在op里明示吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liuguokobe  
+##### 2400#       发表于 2024-8-3 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65779729&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-8-2 22:22</a>
+
+要是女主离队，然后男追女剧情，那还挺期待的，因为通常这时陪男主的通常是女二，还会有女二高光时刻，如XB ...</blockquote>
+这种剧情感觉在sc里已经见到过了
+
+
+*****
+
+####  无动于衷  
+##### 2401#       发表于 2024-8-3 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65775176&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-2 15:37</a>
+
+创轨在欧美的宣传是比作漫威宇宙的，所以界完了继续黎3，就像复联完了继续钢铁侠3，复联2完了继续美队3。 ...</blockquote>
+你法要真像漫威那么整帝国篇 黎老师主角出一部 卢法斯主角出一部 七姐主角出一部 然后集结出一部大事件
+
+估计帝国篇就没什么人骂了
+

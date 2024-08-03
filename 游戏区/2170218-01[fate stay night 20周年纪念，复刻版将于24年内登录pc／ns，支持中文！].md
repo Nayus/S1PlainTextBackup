@@ -577,3 +577,13 @@ remaster个啥，支持4k60吗<img src="https://static.saraba1st.com/image/smile
 都仅数字版了，不给ps平台复制粘贴一份？</blockquote>
 这就是小V版
 
+
+*****
+
+####  Shabadadoo  
+##### 64#       发表于 2024-8-3 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65783860&amp;ptid=2170218" target="_blank">噗呸破屁诚 发表于 2024-8-3 14:58</a>
+因为人家移植就是psv版……</blockquote>
+对啊，那也给ps4复制一份啊
+

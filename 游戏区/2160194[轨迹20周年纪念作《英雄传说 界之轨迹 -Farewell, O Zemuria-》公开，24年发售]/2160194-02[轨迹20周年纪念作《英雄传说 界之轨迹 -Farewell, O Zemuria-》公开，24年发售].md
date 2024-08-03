@@ -2839,3 +2839,13 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 闪1234可以都是黎恩主角，但是副主角可以每一作换一个，亚里沙，克洛，黑兔，路法斯，最后创轨收尾！
 
+
+*****
+
+####  ravend233  
+##### 2403#       发表于 2024-8-3 17:36
+
+金魔装鬼比起之前的大少或者丁格飞，是个到公布op才第一次抛出来的东西，也不好说到底是需要藏的重要悬念还是进游戏很快就会解密的东西就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

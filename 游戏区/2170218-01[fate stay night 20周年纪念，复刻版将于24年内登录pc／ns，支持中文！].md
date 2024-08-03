@@ -457,3 +457,28 @@ ps4给套新奖杯我都会买
 2024年8月8日发售。steam价格没出。日文版价格是3500日元
 [https://store.steampowered.com/a ... y_night_REMASTERED/](https://store.steampowered.com/app/2396980/Fatestay_night_REMASTERED/)
 
+
+*****
+
+####  LRSzwei  
+##### 50#       发表于 2024-8-3 13:01
+
+实体版都不愿意出，我买Steam版算了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  M_K  
+##### 51#       发表于 2024-8-3 13:03
+
+估计和魔夜价格差不多
+
+*****
+
+####  onemoment  
+##### 52#       发表于 2024-8-3 13:05
+
+fha也炒了
+

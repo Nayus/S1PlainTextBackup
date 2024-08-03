@@ -2746,3 +2746,64 @@ cm曹和双剑面具人对打，集装箱完整，op阿龙打双剑面具人，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ravend233  
+##### 2394#       发表于 2024-8-2 22:57
+
+ 本帖最后由 ravend233 于 2024-8-2 22:58 编辑 
+
+快递姐的问题是
+
+估计会很重要，但是没法猜到底重要在哪（
+
+人物设定几乎完全是空白的，猜都很难猜剧情（
+
+如果要牺牲的话还得看剧情怎么去塑造才能让玩家对这个本来只是个NPC的角色产生感情（）
+
+*****
+
+####  宛若青空  
+##### 2395#       发表于 2024-8-2 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65779968&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-8-2 22:53</a>
+换个思路，参考天元突破，是boss制造日常，鸟是开高达没受影响的机车姐来破局的（OP欺诈）。不然想不出机 ...</blockquote>
+挺好的思路，就是这个是OP里最后的镜头感觉不会有那么多反转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2396#       发表于 2024-8-2 23:32
+
+艾梅丝设定集里是有不遮脸的，合理怀疑最初只是一个捏他角色。
+而且性格感觉变化太大了，以前是沉稳人设。
+
+*****
+
+####  Aeons  
+##### 2397#       发表于 2024-8-2 23:39
+
+标题这个画的几乎对称，很不真，说是谁都行，在建模上参考意义不大。
+
+*****
+
+####  ravend233  
+##### 2398#       发表于 2024-8-2 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65780306&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-2 23:39</a>
+标题这个画的几乎对称，很不真，说是谁都行，在建模上参考意义不大。</blockquote>
+发型上其实是不对称的（左边有呆毛但是右边没有，左边的前发更长但是右边更短
+散开的后发倒是基本上是对称的
+
+虽然就目前来说基本还是说谁都行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟目前也找不到个完全能对上发型的角色，衣服也是没有人穿的一套
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2399#       发表于 2024-8-3 08:36
+
+其实op会有暗示但不会明示，这么明显反而让人觉得诱导性很强，虽然黎2发售前大家都已经猜出来丁格就是红黎但也没在op里明示吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

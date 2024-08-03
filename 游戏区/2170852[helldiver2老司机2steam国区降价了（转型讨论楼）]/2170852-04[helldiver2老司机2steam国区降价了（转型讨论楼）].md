@@ -477,3 +477,15 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 通行证8号，补丁6号</blockquote>
 我期待是武器库对面那排电脑开放的加强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉这几天也不宣布应该就是这几把新武器的“加强”了
 
+
+*****
+
+####  jy000129  
+##### 5134#       发表于 2024-8-3 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65784143&amp;ptid=2170852" target="_blank">ykyin09 发表于 2024-8-3 15:38</a>
+箭头是有多想把这个b地雷塞玩家手上</blockquote>
+这是不想发好吧，这点数量还给3天，这任务怕不是一天就给你做完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

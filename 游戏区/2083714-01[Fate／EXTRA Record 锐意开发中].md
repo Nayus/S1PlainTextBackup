@@ -27,3 +27,17 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掐指一算，这几位全登了fgo（包括青子），不会故意磨洋工配合fgo吧？
 
+
+*****
+
+####  岸浪白野  
+##### 71#       发表于 2024-8-4 03:13
+
+<img src="https://pbs.twimg.com/media/GUDzkqLbMAAPPxH?format=jpg&amp;name=4096x4096" height="450" id="aimg_xAzA9" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/GUDzkqNbIAANk9l?format=jpg&amp;name=4096x4096" height="450" id="aimg_Mu9S9" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+<img src="https://pbs.twimg.com/media/GUDzkqLaYAAGGGW?format=jpg&amp;name=4096x4096" id="aimg_og0GO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+<img src="https://pbs.twimg.com/media/GUDzksNacAEMtFM?format=jpg&amp;name=4096x4096" id="aimg_TnE2J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/GUD9yPAWAAAbx85?format=jpg&amp;name=large" id="aimg_Qzwp5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

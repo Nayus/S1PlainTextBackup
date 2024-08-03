@@ -1917,3 +1917,14 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 七分40秒就是妄想快车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sylccll  
+##### 599#       发表于 2024-8-3 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65786655&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-3 21:18</a>
+
+怎么bgm全是过去op的变奏</blockquote>
+狂卖情怀<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+

@@ -1928,3 +1928,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 怎么bgm全是过去op的变奏</blockquote>
 狂卖情怀<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫兔同笼  
+##### 600#       发表于 2024-8-3 23:21
+
+结尾香菜的笑声，不敢想象录音时的表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -578,3 +578,38 @@ staff表出了，京极花田还挂在上面，提早烧香吧
 
 这海报，可可真就彻底成连体人了，估计还是星二典中典的cp剧情<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Totokei  
+##### 20780#       发表于 2024-8-4 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794953&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-4 19:56</a>
+
+往好点想，起码vn不是理事长女儿，可以用学生会全面追杀偶像部活动。
+
+说起来社团活动真要整活，分裂是必 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点忘了S2啥剧情了，但是S3这PV感觉大香是畏惧vn吧
+
+*****
+
+####  ads147147  
+##### 20781#       发表于 2024-8-4 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795821&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2024-8-4 21:05</a>
+这pv看起来想制造一些相对激烈的矛盾冲突，到时候大概还是老样子高高举起轻轻放下，糊弄一把完事了，估摸着 ...</blockquote>
+隔壁种田那边似乎就爆改原著把地狱cp改成纯爱cp了。反正nhk教育台可能是有按头要求不可能炸太狠，又不是mygo。只不过as那种也是包饺子只是过程写的真的垃圾，每一章都是折磨，你花很可能是这种路数。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ads147147  
+##### 20782#       发表于 2024-8-4 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796009&amp;ptid=2078110" target="_blank">Totokei 发表于 2024-8-4 21:15</a>
+有点忘了S2啥剧情了，但是S3这PV感觉大香是畏惧vn吧</blockquote>
+大香s2e11东京预赛战胜vn后就已经是胜者余韵了，还用推特盒vn直接正面突脸，怎么可能怕vn。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

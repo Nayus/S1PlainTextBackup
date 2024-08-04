@@ -1357,3 +1357,43 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 我记得很久以前就说过3000dl有大的。实在不行，过段时间直接开3000dl活动，宣布改硬币系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 13435#       发表于 2024-8-4 21:07
+
+更新一下，打了个双C呆奥伯龙黑杯的伤害
+
+<img src="https://img.saraba1st.com/forum/202408/04/210145hst3x208qsm8646r.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722776589408.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 21:01 上传
+
+最后好感到7，也就是宝具倍率1.7倍
+
+单人45w
+
+克制1.5倍，67.5w
+
+属性是兽没有天地人克制
+
+2宝到5宝提升1.25倍，84.375w
+
+就……强度党在给加宝具本/特攻，或者有新的蓝卡奥伯龙前还是别抽了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 13436#       发表于 2024-8-4 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794955&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 19:56</a>
+
+白纸freed的QP本？能打出即死吗</blockquote>
+虚假的女友：每次出门都装失忆，不陪她去海边就不开心。真正的女友：芦屋道满 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

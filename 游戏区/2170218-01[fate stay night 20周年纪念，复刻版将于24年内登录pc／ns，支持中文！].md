@@ -762,3 +762,13 @@ ha没h真不行吧
 
 实在不喜欢fha那个重制版op<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouzongxing  
+##### 84#       发表于 2024-8-4 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">除非重制，还是那种不砍h的重制，我这辈子估计不会再碰fsn和fha了
+
+至于语音，当年澄空就已经把ps的语音移植过了。当年花了一个暑假玩完的
+

@@ -1955,3 +1955,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 我不需要120级，拉过一次以后就没兴趣了，狗粮和QP缺口太大_(:з」∠)_ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时代变了！以后不会有人拉120了 纯纯小丑行为（
 
+
+*****
+
+####  cenhr  
+##### 13489#       发表于 2024-8-5 00:56
+
+感觉今年周年福利差境，新的系统就是要玩家去多抽，整个夕阳游戏的操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

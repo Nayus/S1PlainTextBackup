@@ -3092,3 +3092,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  Aeons  
+##### 2428#       发表于 2024-8-5 00:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">既然如此，希望本作多一点有特点的新地图
+

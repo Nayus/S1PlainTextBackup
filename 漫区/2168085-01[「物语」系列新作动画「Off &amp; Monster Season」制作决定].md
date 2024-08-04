@@ -2142,3 +2142,18 @@ kamimamita</blockquote>
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  宝儿  
+##### 621#       发表于 2024-8-5 02:41
+
+每个抚子都很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+*****
+
+####  moras2694  
+##### 622#       发表于 2024-8-5 02:42
+
+抚物语的几首曲子真好啊，虽然两三首是以前抚子主题曲变奏，但经典还就是那个经典啊，就好这口情怀，抚物语的剧情也很适合用老曲变奏
+

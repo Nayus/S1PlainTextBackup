@@ -411,3 +411,39 @@ fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" 
 没具体解包感觉就是2宝封顶完事儿了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13360#       发表于 2024-8-4 18:09
+
+我靠 还以为是骂运营怎么全是狗叫的
+
+
+*****
+
+####  jaicka  
+##### 13361#       发表于 2024-8-4 18:12
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png">
+
+强化的五星剑是呆毛王
+
+<img src="https://img.saraba1st.com/forum/202408/04/181201g11yvi4n88va8mmq.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (102.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 18:12 上传
+
+*****
+
+####  保罗赫伯特  
+##### 13362#       发表于 2024-8-4 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793654&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-4 17:06</a>
+
+太空艾蕾卡面：</blockquote>
+extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙芙实装了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

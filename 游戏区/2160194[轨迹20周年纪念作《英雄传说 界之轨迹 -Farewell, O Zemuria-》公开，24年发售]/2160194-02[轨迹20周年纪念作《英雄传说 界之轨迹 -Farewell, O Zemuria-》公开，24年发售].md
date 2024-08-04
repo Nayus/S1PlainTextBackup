@@ -3080,3 +3080,15 @@ op的断句还是白色世界
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  苏斯赫查  
+##### 2427#       发表于 2024-8-5 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789497&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-4 01:29</a>
+OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？白异世界。</blockquote>
+双关，典型的文字游戏而已
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

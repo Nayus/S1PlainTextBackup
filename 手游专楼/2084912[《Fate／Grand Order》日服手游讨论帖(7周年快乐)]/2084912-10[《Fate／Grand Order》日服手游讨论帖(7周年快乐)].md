@@ -1135,3 +1135,64 @@ syl 隔壁发的好感度叠加规则</blockquote>
 用令咒充能不加好感的吗</blockquote>
 这何尝不是一种ntr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 13417#       发表于 2024-8-4 20:19
+
+令咒加好感就像是在交公粮，为了让你精力充沛还专门改成了每天回3画
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|欢乐多|
+| 保罗赫伯特| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  低调不圆滑  
+##### 13418#       发表于 2024-8-4 20:21
+
+【カルデア広報局より】
+
+バトルにおいて、スペース･エレシュキガルに特定の「マスター好感度が蓄積される行動」を行っているにも関わらず、マスター好感度が蓄積されない不具合を確認しており、現在調査･対応を行っております。
+
+※対象の行動は以下となります。
+
+・マスタースキルの効果対象にする(+5)
+
+・令呪の効果対象にする(+10)
+
+みなさまにはご迷惑をおかけしておりますことをお詫び申し上げます。
+
+*****
+
+####  保罗赫伯特  
+##### 13419#       发表于 2024-8-4 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795211&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-4 20:19</a>
+
+令咒加好感就像是在交公粮，为了让你精力充沛还专门改成了每天回3画</blockquote>
+迦勒底的黑暗真实<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 13420#       发表于 2024-8-4 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795229&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-4 20:21</a>
+
+【カルデア広報局より】
+
+バトルにおいて、スペース･エレシュキガルに特定の「マスター好感度が蓄積される ...</blockquote>
+没有累计是bug吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

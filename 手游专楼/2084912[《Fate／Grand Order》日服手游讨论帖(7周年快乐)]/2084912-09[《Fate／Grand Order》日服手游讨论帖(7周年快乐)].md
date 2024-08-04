@@ -1794,3 +1794,101 @@ MD好像算错了
 
 奥博龙C呆摩根 什么神福袋
 
+
+*****
+
+####  angelooo  
+##### 13224#       发表于 2024-8-4 16:18
+
+<blockquote>Jamaisvu 发表于 2024-8-4 16:17
+选择强迫症要疯了...要不咱还是大黑锅吧...</blockquote>
+惨了这样分我哪个都有雷……
+
+*****
+
+####  TheLoof  
+##### 13225#       发表于 2024-8-4 16:18
+
+还行，送1E QP，挺实在的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13226#       发表于 2024-8-4 16:19
+
+<blockquote>Jamaisvu 发表于 2024-8-4 16:17
+选择强迫症要疯了...要不咱还是大黑锅吧...</blockquote>
+我平时抽的太杂，这基本没有new概率大的池子...选汇呆水摩尺兰补宝具得了...
+
+*****
+
+####  TheLoof  
+##### 13227#       发表于 2024-8-4 16:19
+
+<img src="https://img.saraba1st.com/forum/202408/04/161947gcgprowlobc0pd0v.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722759674400.png</strong> (163.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:19 上传
+
+你们要的大黑锅
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13228#       发表于 2024-8-4 16:20
+
+定命看来以后周年常驻了
+
+*****
+
+####  TheLoof  
+##### 13229#       发表于 2024-8-4 16:21
+
+不是，你这命运召唤怎么不送QP的啊
+
+好歹再送1E吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13230#       发表于 2024-8-4 16:23
+
+<blockquote>Jamaisvu 发表于 2024-8-4 16:19
+我平时抽的太杂，这基本没有new概率大的池子...选汇呆水摩尺兰补宝具得了... ...</blockquote>
+我也只能选这个了……仔细看了下唯一可以new的是265那个池子……鬼才抽那个
+
+*****
+
+####  TheLoof  
+##### 13231#       发表于 2024-8-4 16:23
+
+卧槽，打赢复活赛了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 13232#       发表于 2024-8-4 16:23
+
+赢了！！
+
+*****
+
+####  alucardcz  
+##### 13233#       发表于 2024-8-4 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 周年从者泳装爱雷？
+
+*****
+
+####  angelooo  
+##### 13234#       发表于 2024-8-4 16:24
+
+啥，艾蕾赢了？
+

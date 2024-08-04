@@ -3037,3 +3037,15 @@ op的断句还是白色世界
 
 拯救世界不靠大国铁骑只靠勇者是否也是一种幽默？
 
+
+*****
+
+####  Aeons  
+##### 2423#       发表于 2024-8-4 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795517&amp;ptid=2160194" target="_blank">black 发表于 2024-8-4 20:44</a>
+不然怎么叫英雄传说呢
+
+拯救世界不靠大国铁骑只靠勇者是否也是一种幽默？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">打最终boss是民间人士没问题，但在这之前呢，闪4创都有各方助力的吧
+

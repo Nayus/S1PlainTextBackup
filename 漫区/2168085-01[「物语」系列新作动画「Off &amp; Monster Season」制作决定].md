@@ -2121,3 +2121,14 @@ kamimamita</blockquote>
 
 抚子和抚公是不是也是谐音
 
+
+*****
+
+####  oi99o  
+##### 619#       发表于 2024-8-4 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796339&amp;ptid=2168085" target="_blank">大弹涂鱼潜伏 发表于 2024-8-4 21:30</a>
+
+抚子和抚公是不是也是谐音</blockquote>
+公比子多一个长音
+

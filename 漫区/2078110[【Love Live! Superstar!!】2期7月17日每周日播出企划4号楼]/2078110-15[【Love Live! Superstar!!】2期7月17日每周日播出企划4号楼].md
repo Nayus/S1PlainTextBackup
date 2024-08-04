@@ -640,3 +640,34 @@ s2结尾vn都要舔着香音才能去留学了
 
 —— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Anatoly  
+##### 20786#       发表于 2024-8-4 21:40
+
+不是，这分野我就想象不到怎么做到的
+
+千这塑造能跟香音对着来？还是香音这一季还得寻找真正的我？
+
+*****
+
+####  llllife  
+##### 20787#       发表于 2024-8-4 21:42
+
+<blockquote>ads147147 发表于 2024-8-4 21:05
+你酱（也就是侑，游戏里你酱才是同好会部长，所以才会有后面的事）外出一段时间，回虹咲的时候发现同好会 ...</blockquote>
+所以为啥本意是好的理解不了了，把人赶尽杀绝是好意是因为啥，因为像看你们在绝境中进步？我有点理解不了这个逻辑了
+
+*****
+
+####  ViyViy  
+##### 20788#       发表于 2024-8-4 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796513&amp;ptid=2078110" target="_blank">Anatoly 发表于 2024-8-4 21:40</a>
+
+不是，这分野我就想象不到怎么做到的
+
+千这塑造能跟香音对着来？还是香音这一季还得寻找真正的我？ ...</blockquote>
+答案是老四人奉旨叛变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正老登三年级了明年毕业完没用啦，全炸了给新生让路，明年堂堂a new ipad liella，登场！
+

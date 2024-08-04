@@ -1465,3 +1465,24 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 不送硬币不增加硬币获得然后硬开5技能也太蠢了...
 
+
+*****
+
+####  TheLoof  
+##### 13443#       发表于 2024-8-4 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796329&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 21:30</a>
+
+那还比如继承好感让大家开心开心呢  这么整活图啥（</blockquote>
+这张卡就 ，全身上下都满了我要开宝具本给个特攻
+
+非常有未来可期的精神
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DARKGRAY  
+##### 13444#       发表于 2024-8-4 21:41
+
+加个本好感每5升1级，立马能上一个档次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

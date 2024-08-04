@@ -2053,3 +2053,24 @@ kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" 
 
 这集没太看懂，乖抚子就这么退场了？斧乃木为什么要开大？
 
+
+*****
+
+####  oi99o  
+##### 613#       发表于 2024-8-4 14:00
+
+ 本帖最后由 oi99o 于 2024-8-4 14:01 编辑 
+<blockquote>即使不愿意也会进入视野的一百具笼裤抚子，斧乃木之所以能够忽略，应该是切离情感的人偶怪异特有的优势吧。而且，无论想逃还是想躲，由于她的<strong>右手</strong>抓着目标的背，能借此确定所在位置的方向，所以斧乃木可以朝该处使出「例外较多之规则」。
+
+虽然不是惯用手，但她让<strong>左手</strong>食指膨胀，像是火箭砲一样射向依然罩著神祕面纱没现身的神抚子。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/04/135949qw3ygxzh2me3rhg8.png" referrerpolicy="no-referrer">
+
+<strong>[ANi] 物語系列 第外季＆第怪季 - 05 [1080P][Baha][WEB-DL][AAC AVC][CHT].mp4_snaps.png</strong> (158.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 13:59 上传
+
+小说写的左手，不知道怎么动画做成了右手
+

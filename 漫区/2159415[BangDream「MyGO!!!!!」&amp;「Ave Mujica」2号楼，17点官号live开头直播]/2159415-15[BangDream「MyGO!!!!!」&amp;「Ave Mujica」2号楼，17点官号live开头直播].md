@@ -11166,3 +11166,23 @@ mujica角色形象没有完善，二创都束手束脚。
 
 个人猜测不一定对这个应该是立本那边的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 21746#       发表于 2024-8-4 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65790248&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-4 08:56</a>
+个人猜测不一定对这个应该是立本那边的吧</blockquote>
+啊对 1600是日元<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+出点周边也行吧
+就是也多出点没有面具的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 21747#       发表于 2024-8-4 09:16
+
+1600应该是rmb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">200日元扭一次
+

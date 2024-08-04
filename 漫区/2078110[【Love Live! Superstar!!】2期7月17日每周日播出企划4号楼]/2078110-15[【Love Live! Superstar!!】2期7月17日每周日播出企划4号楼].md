@@ -1078,3 +1078,36 @@ gbc第八集（修正掌那集）不是好评如潮吗，后面也就逐渐下�
 liella 3 ：内战</blockquote>
 星团3～ 裂啦最后之日
 
+
+*****
+
+####  优妮可  
+##### 20828#       发表于 2024-8-5 00:35
+
+看小花和结那都发了期待，虽然知道是要求。但还是不想看到她们复刻九人落泪的场景。
+
+*****
+
+####  we89623  
+##### 20829#       发表于 2024-8-5 02:41
+
+我跟你们说，星二熟肉我至今没敢看，估计也不打算看了，星三我先看泥潭反响再决定看不看这集。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 20830#       发表于 2024-8-5 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797058&amp;ptid=2078110" target="_blank">凡人 发表于 2024-8-4 22:19</a>
+liella 3 ：内战</blockquote>
+星团3～ 裂啦最后之日
+
+*****
+
+####  奥柏伦亲王  
+##### 20831#       发表于 2024-8-5 07:16
+
+如果知道动画基本是一坨屎，那么不要报任何期望就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正我还是坚持对动画零期望，有真人看真人
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

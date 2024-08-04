@@ -1250,3 +1250,95 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 起码加个技能洗点机制，然后还得把活动从者缺的硬币补上。
 
+
+*****
+
+####  TheLoof  
+##### 13427#       发表于 2024-8-4 20:45
+
+<img src="https://img.saraba1st.com/forum/202408/04/204522jov5h2wdv77g2xo8.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722775607127.png</strong> (222.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:45 上传
+
+解包完了，鉴定为寄
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  alucardcz  
+##### 13428#       发表于 2024-8-4 20:48
+
+给洗硬币技能是最折中的方法了
+
+当然120级就直接寄了  总比得罪所有人好
+
+*****
+
+####  alucardcz  
+##### 13429#       发表于 2024-8-4 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795532&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 20:45</a>
+
+解包完了，鉴定为寄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬锐评下如果 我说如果好感可以继承 也就是用段时间后进场直接满好感是什么水平
+
+*****
+
+####  alucardcz  
+##### 13430#       发表于 2024-8-4 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795437&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 20:39</a>
+
+其实两边关注点微妙的不一样
+
+大概是我们的想法：霓虹人民你们居然不冲命座？
+
+11区人民干的：我氪6宝都不够 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8宝完全体得15羁绊 10宝安稳点!
+
+*****
+
+####  TheLoof  
+##### 13431#       发表于 2024-8-4 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795563&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 20:48</a>
+
+大佬锐评下如果 我说如果好感可以继承 也就是用段时间后进场直接满好感是什么水平 ...</blockquote>
+无敌好吧
+
+相当于打谁都是两倍的宝具倍率，根本不在乎克制，还不用带天草礼装
+
+配合黑杯这种纯黑杯礼装直接爆炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13432#       发表于 2024-8-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795593&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 20:49</a>
+
+无敌好吧
+
+相当于打谁都是两倍的宝具倍率，根本不在乎克制，还不用带天草礼装
+
+配合黑杯这种纯输出礼装直接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了( 还好我没冲2宝
+

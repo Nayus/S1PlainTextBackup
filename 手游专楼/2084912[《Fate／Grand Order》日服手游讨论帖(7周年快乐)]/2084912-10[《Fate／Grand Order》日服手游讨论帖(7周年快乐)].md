@@ -488,3 +488,77 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 太空艾蕾好像强度一般啊，不用抽了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要按照满好感+点满减cd算啊（
 
+
+*****
+
+####  Jamaisvu  
+##### 13367#       发表于 2024-8-4 18:49
+
+<blockquote>jaicka 发表于 2024-8-4 18:12
+草
+
+强化的五星剑是呆毛王
+
+右图内呆毛的领导力成红魔放了</blockquote>
+估计会升级成我方全体加20攻击力20红魔放，如果再大方点可以加个20宝威或20群充。
+
+*****
+
+####  rooarr  
+##### 13368#       发表于 2024-8-4 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794312&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 18:30</a>
+
+要按照满好感+点满减cd算啊（</blockquote>
+有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13369#       发表于 2024-8-4 18:51
+
+<img src="https://img.saraba1st.com/forum/202408/04/185112tg5yyydbdg6q6gcy.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722768758475.png</strong> (191.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 18:51 上传
+
+吐了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 13370#       发表于 2024-8-4 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794307&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 18:30</a>
+
+嘻嘻（</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/04/185249jbzslelbeb6vom86.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722768849503.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 18:52 上传
+
+冤种在这里
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沼蝇  
+##### 13371#       发表于 2024-8-4 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794182&amp;ptid=2084912" target="_blank">jaicka 发表于 2024-8-4 18:12</a>
+草
+
+强化的五星剑是呆毛王
+
+右图内呆毛的领导力成红魔放了</blockquote>
+细啊，转发到牛国安了
+

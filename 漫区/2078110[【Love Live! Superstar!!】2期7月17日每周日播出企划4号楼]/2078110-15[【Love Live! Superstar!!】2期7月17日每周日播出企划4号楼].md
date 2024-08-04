@@ -239,3 +239,19 @@ yellow同阵容
 
 第三季第一个pv啥时公布啊。
 
+
+*****
+
+####  ViyViy  
+##### 20745#       发表于 2024-8-4 18:47
+
+在商圈和繁华地段时效性太强了，除了不动产（可家、堇神社这种），有些地点再过几年都找不到对照了，当然如果企划有那个心参考新的街景搞一些图做衍生反而是个特色（感觉几乎不可能）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/04/183956nm9pkkziik81ck2p.png" referrerpolicy="no-referrer">
+
+<strong>QQ20240804-183941.png</strong> (323.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 18:39 上传
+

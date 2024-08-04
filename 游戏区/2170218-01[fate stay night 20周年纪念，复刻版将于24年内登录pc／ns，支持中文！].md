@@ -754,3 +754,11 @@ ha没h真不行吧
 
 —— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 83#       发表于 2024-8-4 12:54
+
+实在不喜欢fha那个重制版op<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

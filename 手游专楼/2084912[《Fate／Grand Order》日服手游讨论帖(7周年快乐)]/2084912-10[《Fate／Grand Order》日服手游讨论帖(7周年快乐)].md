@@ -2015,3 +2015,14 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 1个月能给一个就谢天谢地了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不是哥们，点一个技能得120个，就算是新活动搬空商店也给10个，差不多也要一年才点一个技能
 
+
+*****
+
+####  alucardcz  
+##### 13495#       发表于 2024-8-5 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799076&amp;ptid=2084912" target="_blank">kulanyee 发表于 2024-8-5 01:20</a>
+
+不是哥们，点一个技能得120个，就算是新活动搬空商店也给10个，差不多也要一年才点一个技能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就对了吗 急就氪金啊（
+

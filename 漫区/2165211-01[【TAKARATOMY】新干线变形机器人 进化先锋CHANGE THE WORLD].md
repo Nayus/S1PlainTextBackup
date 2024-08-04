@@ -1067,3 +1067,13 @@ Z的话我记得B站好像有正版。字幕组版的话只做到中期就弃坑
 
 2024-8-4 10:45 上传
 
+
+*****
+
+####  王九的哥哥  
+##### 71#       发表于 2024-8-5 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65790795&amp;ptid=2165211" target="_blank">DARK_HGCG 发表于 2024-8-4 10:45</a>
+难不成姐姐要被抓回去和面具男合体？</blockquote>
+面具男洗白吧……
+

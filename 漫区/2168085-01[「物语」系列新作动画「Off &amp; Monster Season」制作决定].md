@@ -2113,3 +2113,11 @@ kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" 
 kamimamita</blockquote>
 这谐音梗，894成神不会是早就内定了吧
 
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 618#       发表于 2024-8-4 21:30
+
+抚子和抚公是不是也是谐音
+

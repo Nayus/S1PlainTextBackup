@@ -630,3 +630,13 @@ staff表出了，京极花田还挂在上面，提早烧香吧
 有点忘了S2啥剧情了，但是S3这PV感觉大香是畏惧vn吧</blockquote>
 s2结尾vn都要舔着香音才能去留学了
 
+
+*****
+
+####  言可  
+##### 20785#       发表于 2024-8-4 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">“新学园偶像部”这句话一出来我直接被气笑了
+
+—— 来自 HUAWEI LIO-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

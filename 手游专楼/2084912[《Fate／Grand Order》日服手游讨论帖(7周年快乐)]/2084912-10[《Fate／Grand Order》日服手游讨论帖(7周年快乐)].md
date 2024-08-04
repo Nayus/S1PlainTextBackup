@@ -1420,3 +1420,48 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 基础即死律的60%也是差一点，升到62.5%就刚好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 13439#       发表于 2024-8-4 21:26
+
+<img src="https://img.saraba1st.com/forum/202408/04/212542tsfvc5wmcaddhmdr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3633.png</strong> (1.07 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 21:25 上传
+
+650石头3宝，还歪了一个欧罗巴。一边看男乒一边抽卡。。
+
+*****
+
+####  alucardcz  
+##### 13440#       发表于 2024-8-4 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795863&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 21:07</a>
+
+更新一下，打了个双C呆奥伯龙黑杯的伤害</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还比如继承好感让大家开心开心呢  这么整活图啥（
+
+
+*****
+
+####  保罗赫伯特  
+##### 13441#       发表于 2024-8-4 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796277&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-4 21:26</a>
+
+650石头3宝，还歪了一个欧罗巴。一边看男乒一边抽卡。。</blockquote>
+出了欧罗巴+1，不过没3宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乾理央  
+##### 13442#       发表于 2024-8-4 21:32
+
+不送硬币不增加硬币获得然后硬开5技能也太蠢了...
+

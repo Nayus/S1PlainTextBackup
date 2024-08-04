@@ -235,3 +235,11 @@ Xbox独不占，很日本<img src="https://static.saraba1st.com/image/smiley/fac
 
 ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 90#       发表于 2024-8-4 21:31
+
+还是线条粗点好看，新纳一哉能不能改回去<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

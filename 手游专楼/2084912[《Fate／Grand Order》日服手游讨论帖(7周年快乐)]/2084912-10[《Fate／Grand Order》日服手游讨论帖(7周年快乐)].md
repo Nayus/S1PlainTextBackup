@@ -1397,3 +1397,26 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 白纸freed的QP本？能打出即死吗</blockquote>
 虚假的女友：每次出门都装失忆，不陪她去海边就不开心。真正的女友：芦屋道满 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 13437#       发表于 2024-8-4 21:18
+
+<blockquote>الطائر 发表于 2024-8-4 21:15
+虚假的女友：每次出门都装失忆，不陪她去海边就不开心。真正的女友：芦屋道满  ...</blockquote>
+你说得对23333
+
+
+*****
+
+####  保罗赫伯特  
+##### 13438#       发表于 2024-8-4 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796016&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-8-4 21:15</a>
+
+虚假的女友：每次出门都装失忆，不陪她去海边就不开心。真正的女友：芦屋道满  ...</blockquote>
+到好感度4才有100%即死率加成，确实是不如道满直接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+基础即死律的60%也是差一点，升到62.5%就刚好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

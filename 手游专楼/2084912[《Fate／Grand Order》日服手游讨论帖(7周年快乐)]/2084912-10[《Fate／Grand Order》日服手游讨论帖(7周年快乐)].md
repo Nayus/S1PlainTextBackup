@@ -1196,3 +1196,22 @@ syl 隔壁发的好感度叠加规则</blockquote>
 バトルにおいて、スペース･エレシュキガルに特定の「マスター好感度が蓄積される ...</blockquote>
 没有累计是bug吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 13421#       发表于 2024-8-4 20:28
+
+就是现在用令咒跟衣服技能不加好感
+
+*****
+
+####  jackyhuang  
+##### 13422#       发表于 2024-8-4 20:32
+
+<img src="https://p.sda1.dev/18/602cb316ab8bc5777a3b8b23241a1d42/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/a4320ec276a39a7599f9595ed586df76/image.jpg" referrerpolicy="no-referrer">
+把福利整成炎上项目，真有你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

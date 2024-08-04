@@ -2102,3 +2102,14 @@ kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" 
 
 香菜又笑啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 617#       发表于 2024-8-4 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65791725&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-4 13:18</a>
+
+kamimamita</blockquote>
+这谐音梗，894成神不会是早就内定了吧
+

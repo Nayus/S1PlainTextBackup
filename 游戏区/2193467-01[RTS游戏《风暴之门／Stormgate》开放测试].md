@@ -382,3 +382,14 @@ TMD狗屎水雷的含金量再次上升，已经成为RTS唯一独苗了<img src
 
 Tempest Rising应该还行
 
+
+*****
+
+####  寇马可  
+##### 43#       发表于 2024-8-4 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796054&amp;ptid=2193467" target="_blank">jedipiggy 发表于 2024-8-4 21:16</a>
+
+Tempest Rising应该还行</blockquote>
+玩过demo，不太行，寻路有一种红警2的美。而且这两年的游戏似乎只要demo什么德行，正式版就原封不动搬上来，你以为一年半年的肯定对缺点有优化，不存在的。
+

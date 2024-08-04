@@ -752,3 +752,67 @@ s2结尾vn都要舔着香音才能去留学了
 
 不过隔壁nga前阵子刚有个直播看下来的芽衣也被骂了一句，我不好说。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  soranoguiji  
+##### 20796#       发表于 2024-8-4 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么是角川润了啊，我还以为武士道不在了呢
+
+*****
+
+####  ads147147  
+##### 20797#       发表于 2024-8-4 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796749&amp;ptid=2078110" target="_blank">lj205 发表于 2024-8-4 21:59</a>
+还特意开了新官号，头像就是纯纯的大香，我大香站谁，谁就是冠军呗</blockquote>
+不好说，万一真的拿不到代代木fes冠军呢。
+
+星团目前有几个时间点肯定是要做callback的，开学入学招新，代代木fes，东京赛区入选，东京赛区决赛，拉拉决赛，决赛后毕业前。代代木这个很重要的冲突点肯定是要用来处理分队问题的，第三集的位置也很适合给newLiella和大香队两个分队展示，冬毬回结束后就该和解大家合并去参加地区预选，如果赛制可以再改，完全可以到区域决赛前都还是分裂状态，决赛的时候合并。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  Totokei  
+##### 20798#       发表于 2024-8-4 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AS的问题还有这个剧情是连载的，等于玩家每个月还是每周要被这高血压剧情泥头车碾一遍
+
+*****
+
+####  川陀  
+##### 20799#       发表于 2024-8-4 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796614&amp;ptid=2078110" target="_blank">笋狐 发表于 2024-8-4 21:46</a>
+
+总有人觉得as剧情是钟女士出来之后才烂的，必须澄清一下：明明是栞子出来就开始了，雨野智晴在as2期几乎做 ...</blockquote>
+本来as第一章的人物塑造就不行，一个个和白开水过家家一样，后面直接来个三船栞子苦迭塔。
+
+第二章更别说了，也就ksks一个角色能立得住<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Anatoly  
+##### 20800#       发表于 2024-8-4 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796894&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-4 22:08</a>
+
+不好说，万一真的拿不到代代木fes冠军呢。
+
+星团目前有几个时间点肯定是要做callback的，开学入学招新， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">代代木那我觉得铁赢不了，毕竟前两年都没赢
+
+就是不知道还有没有特别赏
+
+我猜是改赛制第十集打完再合并
+
+
+*****
+
+####  evestart  
+##### 20801#       发表于 2024-8-4 22:12
+
+不求口碑逆转，平庸点落地也行，没活别硬整，平平稳稳就好，别伤害到3次元团，她们可能是这个企画里少有的还在认真对待努力付出的人了，别辜负她们。
+

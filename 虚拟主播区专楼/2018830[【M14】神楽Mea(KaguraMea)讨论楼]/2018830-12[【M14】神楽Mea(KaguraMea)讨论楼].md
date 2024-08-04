@@ -5110,3 +5110,25 @@ https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][24
 
 发生啥了，怎么今天同接高了，今天确实唱的不错，总不至于是因为标题吧。
 
+
+*****
+
+####  古战场亡魂  
+##### 17071#       发表于 2024-8-4 22:19
+
+<img src="https://img.saraba1st.com/forum/202408/04/221936g89ndn6p81t8q9t8.jpg" referrerpolicy="no-referrer">
+
+<strong>6c80428b9614dfe2629dc3c9850ca97d_GUJLxLfbIAA7FUR_format=jpg&amp;name=medium.jpg</strong> (214.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/221952oc2222obctpmzf2t.jpg" referrerpolicy="no-referrer">
+
+<strong>077d3bb14d3a3647fa2ddcdf46ee2cb1_GUIf6fxa4AAToor_format=jpg&amp;name=4096x4096.jpg</strong> (386.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:19 上传
+

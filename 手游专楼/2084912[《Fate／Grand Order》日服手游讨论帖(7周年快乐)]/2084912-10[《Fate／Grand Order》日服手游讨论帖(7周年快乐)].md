@@ -1520,3 +1520,47 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次官方被冲到投降好像是第二期泳装吧，不知不觉都要迎来第九期泳装了
 
+
+*****
+
+####  alucardcz  
+##### 13449#       发表于 2024-8-4 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波做死含金量还是很高的 同时得罪了所有人  什么真爱重课无课微课中课强度等等等
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且更可怕的是这功能还是福利之一  福利啊。。。
+
+*****
+
+####  TheLoof  
+##### 13450#       发表于 2024-8-4 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796959&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 22:11</a>
+
+看了看  11区也开始起节奏了 但是还是有点弱鸡</blockquote>
+11区人民属于是没整对斗争方向，他们的诉求是“我不想氪8宝”
+
+但你们母猪的要求普通人谁管你啊，完全发动不了微氪无氪那批佛系玩家
+
+就该学学棒子，人开泥头车的时候，人写得都是些所有人都用得上的需求
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13451#       发表于 2024-8-4 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797081&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 22:21</a>
+
+11区人民属于是没整对斗争方向，他们的诉求是“我不想氪8宝”
+
+但你们母猪的要求普通人谁管你啊，完全发动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们就这么煞 鼻吗？ 一个最高等级只有5 要课8宝 就不会感觉到哪里不对劲吗
+
+
+*****
+
+####  希望之花  
+##### 13452#       发表于 2024-8-4 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没冲出结果吗，太君战斗力不行啊
+

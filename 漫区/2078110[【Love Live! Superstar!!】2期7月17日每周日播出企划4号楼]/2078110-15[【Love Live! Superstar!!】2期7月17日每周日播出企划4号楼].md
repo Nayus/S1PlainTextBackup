@@ -816,3 +816,54 @@ s2结尾vn都要舔着香音才能去留学了
 
 不求口碑逆转，平庸点落地也行，没活别硬整，平平稳稳就好，别伤害到3次元团，她们可能是这个企画里少有的还在认真对待努力付出的人了，别辜负她们。
 
+
+*****
+
+####  ViyViy  
+##### 20802#       发表于 2024-8-4 22:18
+
+唯一一个不搞火药且保留稍微正面的搞笑处理方式就是十个人都在演VN，演到她破防了心服口服当奴才，就是苦了剧里不存在的那些观众和路人看这群人玩楚门play。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 20803#       发表于 2024-8-4 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795579&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-4 20:49</a>
+如果海报没有诈骗的话，最终两队的格局应该是老四人加薇恩组成的新Liella，大香和二期生以及冬毬组成新队伍 ...</blockquote>
+liela 3 ：内战
+
+
+*****
+
+####  Totokei  
+##### 20804#       发表于 2024-8-4 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796918&amp;ptid=2078110" target="_blank">川陀 发表于 2024-8-4 22:09</a>
+
+本来as第一章的人物塑造就不行，一个个和白开水过家家一样，后面直接来个三船栞子苦迭塔。
+
+第二章更别说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我能说平常的手游剧情大部分都是没人看的吗
+
+只有整活了才会被人讨论
+
+*****
+
+####  csolfans  
+##### 20805#       发表于 2024-8-4 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796749&amp;ptid=2078110" target="_blank">lj205 发表于 2024-8-4 21:59</a>
+
+还特意开了新官号，头像就是纯纯的大香，我大香站谁，谁就是冠军呗</blockquote>
+其实那个是旧官号，复活而已
+
+*****
+
+####  ruffian  
+##### 20806#       发表于 2024-8-4 22:23
+
+不是，怎么就默认海报两边是对抗关系了？这些人的表情动作明显不是那回事吧？说真的不用太asptsd，退一万步就vn星2时的人设左边那几个人入得了她法眼吗？我更信她吃瘪之后自己变傲娇
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -5102,3 +5102,11 @@ https://cowtransfer.com/s/d2fe0bb5084d4f 点击链接查看 [ 录音 (7).wav ] �
 临晨的那场有录播吗？</blockquote>
 https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][2408032045] 寝る前にちょっとだけ！ #めあスペ (1RDGlyXAwVNJL).wav ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 3hsf96 查看；
 
+
+*****
+
+####  古战场亡魂  
+##### 17070#       发表于 2024-8-4 21:52
+
+发生啥了，怎么今天同接高了，今天确实唱的不错，总不至于是因为标题吧。
+

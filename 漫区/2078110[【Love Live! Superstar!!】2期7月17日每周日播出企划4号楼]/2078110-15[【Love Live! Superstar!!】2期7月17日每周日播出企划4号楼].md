@@ -671,3 +671,54 @@ s2结尾vn都要舔着香音才能去留学了
 千这塑造能跟香音对着来？还是香音这一季还得寻找真正的我？ ...</blockquote>
 答案是老四人奉旨叛变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正老登三年级了明年毕业完没用啦，全炸了给新生让路，明年堂堂a new ipad liella，登场！
 
+
+*****
+
+####  笋狐  
+##### 20789#       发表于 2024-8-4 21:46
+
+ 本帖最后由 笋狐 于 2024-8-4 21:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总有人觉得as剧情是钟女士出来之后才烂的，必须澄清一下：明明是栞子出来就开始了，雨野智晴在as2期几乎做到了阎王点名主写谁谁就崩的程度
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但在星这边要复刻当时观众的感受是很困难的，正因为as原本10人写得还行，后面摁搞加人跳反对抗烂活才会破防大炎上；星二期动画会有人觉得那10个人写得还行吗
+
+*****
+
+####  Anatoly  
+##### 20790#       发表于 2024-8-4 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796573&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-4 21:44</a>
+
+答案是老四人奉旨叛变反正老登三年级了明年毕业完没用啦，全炸了给新生让路，明年堂堂a new ipad liella ...</blockquote>
+真就第一季1带4没过SNP
+
+第二季1带8手撕vn
+
+这次要证明1带5手撕vn+老四人证明真的是老四人拖后腿是吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 20791#       发表于 2024-8-4 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796555&amp;ptid=2078110" target="_blank">llllife 发表于 2024-8-4 21:42</a>
+所以为啥本意是好的理解不了了，把人赶尽杀绝是好意是因为啥，因为像看你们在绝境中进步？我有点理解不了 ...</blockquote>
+按岚珠的说法是我成立这个部，里头的老师，编曲编舞，训练设施都是最好的，来我这边会得到最好的发挥，你们不愿意来就禁止你们活动那你们就必须来我这。
+
+脑回路不正常吧，是的，没人觉得正常。所以虹2几乎一整季都在偷偷绕过as的雷，比如让dd组和岚珠没有任何瓜葛，没有分裂同好会而是岚珠自己单独行动，不会禁止同好会而是会给同好会办sif2帮忙拉外援。还有tv里岚珠让侑专心音乐科活动，参加同好会会分心，as里有类似的台词但是说出来完全是嘲讽你酱能力不够。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ads147147  
+##### 20792#       发表于 2024-8-4 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796614&amp;ptid=2078110" target="_blank">笋狐 发表于 2024-8-4 21:46</a>
+总有人觉得as剧情是钟女士出来之后才烂的，必须澄清一下：明明是栞子出来就开始了，雨野智晴在as2期几乎做 ...</blockquote>
+确实，小盐子的时候已经让雪菜厨挺破防的了，虹2对发现雪菜本体的处理真的很不错。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

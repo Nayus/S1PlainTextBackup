@@ -300,3 +300,69 @@ fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" 
 
 太君这都能忍住不炎上也真是神人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 13349#       发表于 2024-8-4 17:28
+
+<blockquote>cckuku 发表于 2024-8-4 17:26
+太君这都能忍住不炎上也真是神人了</blockquote>
+太君不差钱，接着氪金就是了
+
+*****
+
+####  v22325  
+##### 13350#       发表于 2024-8-4 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">今天给的抽完了没有……太惨了
+
+
+*****
+
+####  khxooo  
+##### 13351#       发表于 2024-8-4 17:30
+
+ 本帖最后由 khxooo 于 2024-8-4 17:33 编辑 
+
+90石头出货，感谢艾蕾。
+
+*****
+
+####  blue321  
+##### 13352#       发表于 2024-8-4 17:31
+
+井了存货全完了，今年泳装只能跳掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13353#       发表于 2024-8-4 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793816&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-4 17:26</a>
+
+太君这都能忍住不炎上也真是神人了</blockquote>
+你对11区的FGO环境可能有什么误解
+
+我们这边换人5都有傻逼跑来对着你指指点点，那边换人4加成都照用不误
+
+不是说没有强度党，但是环境没我们这边这么极端
+
+某种意义上最关心硬币的大概是APPMEDIA
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 13354#       发表于 2024-8-4 17:32
+
+<img src="https://img.saraba1st.com/forum/202408/04/173027filmpla9vr9oop9i.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 17:30 上传
+
+一共45张护符和225多石头才2宝....黑到姥姥家了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+

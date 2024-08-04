@@ -613,3 +613,80 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 吐了</blockquote>
 可以去商店换100个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13377#       发表于 2024-8-4 19:08
+
+过几天还会送20个白方块呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13378#       发表于 2024-8-4 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794558&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:05</a>
+
+你白方块的都已经换光了？</blockquote>
+没换完
+
+但是白方块用完了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13379#       发表于 2024-8-4 19:13
+
+啊？水爱蕾好感每次战斗结束都会重置的？？？
+
+那这卡有什么猫用（
+
+*****
+
+####  lin2004  
+##### 13380#       发表于 2024-8-4 19:14
+
+爱蕾酱没提妈爱我不让我+1，所以，能用么（
+
+*****
+
+####  alucardcz  
+##### 13381#       发表于 2024-8-4 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794440&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-8-4 18:50</a>
+
+有啥用满好感90%情况就不可能，减cd需要的绊凑齐的时候猴年马月了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我错了　我以为好感度是可以永久保留的　刷满以后进场直接满　　
+
+*****
+
+####  TheLoof  
+##### 13382#       发表于 2024-8-4 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794637&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:13</a>
+
+啊？水爱蕾好感每次战斗结束都会重置的？？？
+
+那这卡有什么猫用（</blockquote>
+你就把她的好感当作是自带的BUFF机制就行了
+
+现在的问题是没有数值解包导致迷惑得飞起
+
+特别是NP还不怎么样的情况下
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13383#       发表于 2024-8-4 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794647&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 19:15</a>
+
+你就把她的好感当作是自带的BUFF机制就行了
+
+现在的问题是没有数值解包导致迷惑得飞起</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用看了　已经确认是个花瓶了（
+

@@ -11253,3 +11253,13 @@ mujica角色形象没有完善，二创都束手束脚。
 
 2024-8-4 15:13 上传
 
+
+*****
+
+####  yicihanshu  
+##### 21750#       发表于 2024-8-4 19:07
+
+今日去了go咖<img src="https://p.sda1.dev/18/8c3c4d1d04ca955fffe9247428b677d2/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -2095,3 +2095,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 还有这次周年也不拓展额外阶的助战，box里ex阶五十来号人抢一个坑（all不算的话）
 
+
+*****
+
+####  yangun22  
+##### 13503#       发表于 2024-8-5 06:17
+
+真能爆米么？这次惹到的人可是为了完整体抽6宝的人，连几个结晶据点都没人给这事开脱，只能说真的想死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

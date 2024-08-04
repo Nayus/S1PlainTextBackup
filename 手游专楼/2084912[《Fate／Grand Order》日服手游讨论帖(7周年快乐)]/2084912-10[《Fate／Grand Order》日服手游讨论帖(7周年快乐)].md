@@ -690,3 +690,50 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 现在的问题是没有数值解包导致迷惑得飞起</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用看了　已经确认是个花瓶了（
 
+
+*****
+
+####  eilot  
+##### 13384#       发表于 2024-8-4 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793444&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:40</a>
+
+看情况吧，不是所有人都需要CD-1
+
+就怕那种红卡6CD，逼着你开的</blockquote>
+有點不明白
+
+是所有技能的CD都-1嗎?
+
+之後的只限1~3次，是全部技能使用總數，還是每個技能都有3次用完後CD-1?
+
+*****
+
+####  TheLoof  
+##### 13385#       发表于 2024-8-4 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794698&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-4 19:23</a>
+
+有點不明白
+
+是所有技能的CD都-1嗎?</blockquote>
+相当于给你一个状态
+
+每次你用一个技能，这个技能CD-1，然后这个状态消失
+
+技能1级的时候只作用于1技能，点满了三个技能一个一次
+
+*****
+
+####  alucardcz  
+##### 13386#       发表于 2024-8-4 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">１１区卡该抽完了　开冲了吗？ 这么不合理的东西总不能还赞美运营吧？
+
+*****
+
+####  alucardcz  
+##### 13387#       发表于 2024-8-4 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐是彻底寄了。。。该去刷公主羁绊了。。。1级羁绊给多少硬币来着？
+

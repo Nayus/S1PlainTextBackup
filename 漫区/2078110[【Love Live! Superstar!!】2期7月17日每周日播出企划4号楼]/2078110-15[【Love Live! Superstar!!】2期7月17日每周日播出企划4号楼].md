@@ -272,3 +272,63 @@ yellow同阵容
 
 笔确实在他手里，但是众所周知，语录创始人自己都给同事玩他梗搞破防过，希望花田别锁推哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 20748#       发表于 2024-8-4 19:21
+
+安可三回啊三回。
+
+
+*****
+
+####  ViyViy  
+##### 20749#       发表于 2024-8-4 19:23
+
+抄袭是吧？你花田有田中仁那本事么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 20750#       发表于 2024-8-4 19:23
+
+ 本帖最后由 离心 于 2024-8-4 19:25 编辑 
+
+emmmmm真在上海巡演播出啊
+
+<img src="https://img.saraba1st.com/forum/202408/04/192501hg4oswy4zwzos42n.png" referrerpolicy="no-referrer">
+
+<strong>Image_1722770680284.png</strong> (248.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 19:25 上传
+
+*****
+
+####  starring  
+##### 20751#       发表于 2024-8-4 19:23
+
+VN就算入学了还要自立门户继续当小丑，没救了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+
+*****
+
+####  csolfans  
+##### 20752#       发表于 2024-8-4 19:26
+
+完蛋，这不AS钟岚珠剧情吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 20753#       发表于 2024-8-4 19:27
+
+红红火火恍恍惚惚，真是as复刻，谁来给vn当伴舞。没想到已经被大香干了一次了vn还有骨气和大香对着干。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

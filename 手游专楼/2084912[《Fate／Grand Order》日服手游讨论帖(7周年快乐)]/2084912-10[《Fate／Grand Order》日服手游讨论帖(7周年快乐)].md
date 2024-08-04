@@ -1981,3 +1981,37 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日活难题解决，复刻没人玩难题解决。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么你没时间？喝八宝粥，请~
 
+
+*****
+
+####  alucardcz  
+##### 13492#       发表于 2024-8-5 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799003&amp;ptid=2084912" target="_blank">kulanyee 发表于 2024-8-5 01:11</a>
+
+我看大伙还是太天真了。以后连续一周完成每日任务送1枚通用硬币，只限复刻活动商店搬空给10枚通用硬币。
+
+日 ...</blockquote>
+1周就想拿一个通用硬币你这是在做春秋大梦呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1个月能给一个就谢天谢地了
+
+*****
+
+####  alucardcz  
+##### 13493#       发表于 2024-8-5 01:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">顺便有没有漏油说说还有其他手游有这种因为拉满了人物反而吃瘪的吗 不会创造历史了吧？
+
+*****
+
+####  kulanyee  
+##### 13494#       发表于 2024-8-5 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799043&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 01:18</a>
+
+1周就想拿一个通用硬币你这是在做春秋大梦呢
+
+1个月能给一个就谢天谢地了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不是哥们，点一个技能得120个，就算是新活动搬空商店也给10个，差不多也要一年才点一个技能
+

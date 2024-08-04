@@ -142,3 +142,11 @@
 
 Xbox独不占，很日本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  医生狼多  
+##### 84#         楼主| 发表于 2024-8-4 16:50
+
+《Fate/EXTRA Record》最新宣传片公开，展示了大量实机画面。本作为《Fate/EXTRA》的完全重制作品，确定将于2025年发售，登陆PS5/PS4/Switch/Steam平台。 http://t.cn/A68lVbB8 ​​​
+

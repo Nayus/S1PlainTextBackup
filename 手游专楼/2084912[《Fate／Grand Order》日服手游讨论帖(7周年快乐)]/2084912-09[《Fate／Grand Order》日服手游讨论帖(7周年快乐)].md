@@ -2458,3 +2458,190 @@ beast，牛逼
 白公主：好日子要来了</blockquote>
 擦，我公主好像还真没开，但反正只有一宝……
 
+
+*****
+
+####  保罗赫伯特  
+##### 13292#       发表于 2024-8-4 16:44
+
+还好水摩根的硬币留着没用掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻花疼  
+##### 13293#       发表于 2024-8-4 16:45
+
+这个好感度，如果用陈宫发射的话会一次性清零吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13294#       发表于 2024-8-4 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793484&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:44</a>
+
+往好处想，这么久估计也快15羁绊下班了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在全开要8宝  运营真觉得没问题吗
+
+*****
+
+####  TheLoof  
+##### 13295#       发表于 2024-8-4 16:46
+
+<img src="https://img.saraba1st.com/forum/202408/04/164641g6kr6bwpakwrko2a.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722761284782.png</strong> (123 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:46 上传
+
+草，硬拖1年是吧
+
+*****
+
+####  森兰丸  
+##### 13296#       发表于 2024-8-4 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793425&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:38</a>
+
+开心吗 豹豹 我很后悔升120（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌...拐比打手重要....能让拐开了减CD就行
+
+*****
+
+####  onemoment  
+##### 13297#       发表于 2024-8-4 16:47
+
+明年2部完结了
+
+*****
+
+####  TheLoof  
+##### 13298#       发表于 2024-8-4 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793504&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:46</a>
+
+现在全开要8宝  运营真觉得没问题吗</blockquote>
+大概真的没问题，毕竟11区人一堆抽成仓库的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过不开玩笑的话，其实一般也不用全点满吧
+
+*****
+
+####  kyonkoism  
+##### 13299#       发表于 2024-8-4 16:47
+
+难蚌2025年底终章
+
+*****
+
+####  希望之花  
+##### 13300#       发表于 2024-8-4 16:47
+
+上次艾蕾落地第二天迦炸了
+
+这次艾蕾落地之后宣布一年内第二部结束
+
+*****
+
+####  alucardcz  
+##### 13301#       发表于 2024-8-4 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793514&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:47</a>
+
+大概真的没问题，毕竟11区人一堆抽成仓库的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人真的这么牛魔吗  现在这波明显是在背刺120的 你开120负提升哦
+
+*****
+
+####  rooarr  
+##### 13302#       发表于 2024-8-4 16:49
+
+上线看了下，我的硬币基本都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13303#       发表于 2024-8-4 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793486&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-4 16:44</a>
+
+擦，我公主好像还真没开，但反正只有一宝……</blockquote>
+公主NP被动没啥必要开，这个减CD倒是雪中送炭了，双杀狐就能3T光炮洗地...
+
+只能说可以不当主C，但没了这个被动性能真的打折扣。
+
+估计节奏榜会因此稍微抬一下公主的排名吧，不过克制相性摆在那里，上场机会也就那些，顶多是给宇宙蕾补班...
+
+话说我估计宇宙蕾也会和七周年公主八周年水摩那样，宝具等级绑定一个特攻伤害，希望能泛用些...
+
+
+*****
+
+####  alucardcz  
+##### 13304#       发表于 2024-8-4 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793537&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-4 16:49</a>
+
+公主NP被动没啥必要开，这个减CD倒是雪中送炭了，双杀狐就能3T光炮洗地...
+
+只能说可以不当主C，但没了这 ...</blockquote>
+现在说这个没用 喜欢用的肯定都开了你说是不是？
+
+*****
+
+####  Jamaisvu  
+##### 13305#       发表于 2024-8-4 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793517&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-4 16:47</a>
+
+上次艾蕾落地第二天迦炸了
+
+这次艾蕾落地之后宣布一年内第二部结束</blockquote>
+艾蕾：我不是来迦勒底加班的，我是找立香回老家过小日子的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13306#       发表于 2024-8-4 16:51
+
+等一下，我突然想起来，TMD我新拐呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 13307#       发表于 2024-8-4 16:51
+
+这下拉满被动120要8宝才行了
+
+*****
+
+####  克苏鲁系青骑士  
+##### 13308#       发表于 2024-8-4 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">王姐三个被动都开了 不过没拉120应该还有救…
+
+*****
+
+####  alucardcz  
+##### 13309#       发表于 2024-8-4 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793548&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:51</a>
+
+等一下，我突然想起来，TMD我新拐呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到强化本那2个术了吗 梅林和绿令！
+
+*****
+
+####  TheLoof  
+##### 13310#       发表于 2024-8-4 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793560&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:52</a>
+
+看到强化本那2个术了吗 梅林和绿令！</blockquote>
+强化梅林不如强化梅莉啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

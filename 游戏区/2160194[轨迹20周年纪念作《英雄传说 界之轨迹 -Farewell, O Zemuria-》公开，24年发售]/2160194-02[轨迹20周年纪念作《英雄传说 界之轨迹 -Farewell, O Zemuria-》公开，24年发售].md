@@ -2963,3 +2963,31 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 哪的分析
 
+
+*****
+
+####  ravend233  
+##### 2415#       发表于 2024-8-4 13:31
+
+哪的分析把面具人和结社划等号了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 2416#       发表于 2024-8-4 13:31
+
+黄昏闪四用过了，神话这个基本没有太多参考
+
+*****
+
+####  ravend233  
+##### 2417#       发表于 2024-8-4 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789497&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-4 01:29</a>
+OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？白异世界。</blockquote>
+op的断句还是白色世界
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -11186,3 +11186,14 @@ mujica角色形象没有完善，二创都束手束脚。
 
 1600应该是rmb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">200日元扭一次
 
+
+*****
+
+####  Aendst  
+##### 21748#       发表于 2024-8-4 11:06
+
+[https://chappy-net.com/products/detail.php?product_id=54595](https://chappy-net.com/products/detail.php?product_id=54595)
+[https://item.rakuten.co.jp/mirakikaku/c2411077/](https://item.rakuten.co.jp/mirakikaku/c2411077/)
+
+11月发售预定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

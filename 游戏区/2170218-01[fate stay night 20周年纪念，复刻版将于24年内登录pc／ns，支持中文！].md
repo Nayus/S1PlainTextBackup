@@ -733,3 +733,14 @@ fsn不整个实体版吗，我空镜月姬魔夜都整实体了，就差个fate�
 
 2008年，我第一次在土豆网还是什么乱七八糟的网站上看到fate的动画片然后入宅了。确实有必要买一个
 
+
+*****
+
+####  SorroFrost  
+##### 81#       发表于 2024-8-4 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788056&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-3 23:01</a>
+
+空境有什么实体版</blockquote>
+书啊zsbd
+

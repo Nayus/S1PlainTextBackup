@@ -2645,3 +2645,98 @@ beast，牛逼
 强化梅林不如强化梅莉啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  サイトヒメア  
+##### 13311#       发表于 2024-8-4 16:54
+
+整烂活还是得看你游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  隰有苌楚  
+##### 13312#       发表于 2024-8-4 16:54
+
+以后复刻泳装池不带这个吧
+
+*****
+
+####  cckuku  
+##### 13313#       发表于 2024-8-4 16:54
+
+smyls，出新技能了以前的硬币不让洗的啊？
+
+*****
+
+####  DARKGRAY  
+##### 13314#       发表于 2024-8-4 16:54
+
+就是要8宝才给改保底，否则不会改的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13315#       发表于 2024-8-4 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793542&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:50</a>
+
+现在说这个没用 喜欢用的肯定都开了你说是不是？</blockquote>
+叶良树太TM过分了，他这是发现盘子系统没人用故意逼着抽重复卡是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13316#       发表于 2024-8-4 16:57
+
+想了想，从硬币实装第一天就说想要通用硬币
+
+结果到现在都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 13317#       发表于 2024-8-4 16:57
+
+不如把那个没人用的纹章移除器改成硬币移除器
+
+*****
+
+####  TheLoof  
+##### 13318#       发表于 2024-8-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793583&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-4 16:55</a>
+
+叶良树太TM过分了，他这是发现盘子系统没人用故意逼着抽重复卡是吧</blockquote>
+最乐的是盘子让B阶上天以后，落地了个双星本
+
+只能说你月总能在奇怪的地方瞎用力
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13319#       发表于 2024-8-4 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793583&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-4 16:55</a>
+
+叶良树太TM过分了，他这是发现盘子系统没人用故意逼着抽重复卡是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13技能更是没用 但你看真爱为了爱都点了。现在反而成了最小丑的那批人
+
+*****
+
+####  alucardcz  
+##### 13320#       发表于 2024-8-4 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793604&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:58</a>
+
+最乐的是盘子让B阶上天以后，落地了个双星本
+
+只能说你月总能在奇怪的地方瞎用力
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还搞了克制增伤 明脸宣布就是要针对狂
+

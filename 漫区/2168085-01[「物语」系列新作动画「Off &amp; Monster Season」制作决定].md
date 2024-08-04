@@ -2082,3 +2082,15 @@ kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" 
 
 不知道是过度解读还是这么回事，前两集bgm的恋爱循环只有鼓点和贝斯，这集旋律更丰富了，是不是和收复的式神数量有关？等全收复了是不是bgm连人声就有了
 
+
+*****
+
+####  1774565576  
+##### 615#       发表于 2024-8-4 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65728519&amp;ptid=2168085" target="_blank">Ollie 发表于 2024-7-29 00:17</a>
+现在哪个字幕组翻译最好？喵萌奶茶？</blockquote>
+物语系列圈汉化组的版本最好，会对画面做分析标注，就是更新速度比较慢
+
+—— 来自 vivo V2031EA, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+

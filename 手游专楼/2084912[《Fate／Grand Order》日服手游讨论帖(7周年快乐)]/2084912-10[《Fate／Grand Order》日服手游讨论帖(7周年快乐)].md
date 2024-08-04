@@ -1963,3 +1963,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 感觉今年周年福利差境，新的系统就是要玩家去多抽，整个夕阳游戏的操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 13490#       发表于 2024-8-5 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议明年开始，十大福利改成十大福报
+

@@ -867,3 +867,22 @@ liela 3 ：内战
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  ads147147  
+##### 20807#       发表于 2024-8-4 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796901&amp;ptid=2078110" target="_blank">Totokei 发表于 2024-8-4 22:08</a>
+AS的问题还有这个剧情是连载的，等于玩家每个月还是每周要被这高血压剧情泥头车碾一遍 ...</blockquote>
+后面我都是skip然后去b站2倍速速看的。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  1096beam  
+##### 20808#       发表于 2024-8-4 22:28
+
+相信花田，PV就只是前两集内容，大香老师以为自己回不了liella然后解开误会是第一集，VN成立新偶像部然后被收编是第二集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

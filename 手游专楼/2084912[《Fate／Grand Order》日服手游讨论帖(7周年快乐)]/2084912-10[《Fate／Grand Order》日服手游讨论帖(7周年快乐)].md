@@ -1564,3 +1564,35 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没冲出结果吗，太君战斗力不行啊
 
+
+*****
+
+####  jackyhuang  
+##### 13453#       发表于 2024-8-4 22:29
+
+会炎上的肯定是有多余硬币用手贱去点被动13甚至搓杯子的，无课一宝跑路的还是老样子6绊点个20NP没变化啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  TheLoof  
+##### 13454#       发表于 2024-8-4 22:30
+
+ 本帖最后由 TheLoof 于 2024-8-4 22:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797105&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 22:23</a>
+
+他们就这么煞 鼻吗？ 一个最高等级只有5 要课8宝 就不会感觉到哪里不对劲吗
+
+而且8宝算的可是15羁绊
+
+ ...</blockquote>
+习惯问题吧，而且这不是挺日本人的吗，不整到我头上就先憋着
+
+我觉得主要是你游跟GBF不一样，有大量的轻度玩家，对强度并不敏感，有的可能只拿个1宝，有的可能都理解不了CD-1能干啥
+
+结果就是轻度玩家看着氪金佬去找运营，要求运营不要让他氪这么多金
+
+然后内心OS就“关我啥事儿我又不氪5宝”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1166,3 +1166,27 @@ AB活动先别刷完，下期打分给的还是AB的币
 分享麻枝准/やなぎなぎ的单曲《White Spell》[http://163cn.tv/v86UxcI](http://163cn.tv/v86UxcI) (@网易云音乐)
 再来一遍次aoi 入阵曲
 
+
+*****
+
+####  lxshhh  
+##### 1612#       发表于 2024-8-4 22:33
+
+懒人图nice
+
+<img src="https://img.saraba1st.com/forum/202408/04/223014zc1gpcfipyllp1wp.png" referrerpolicy="no-referrer">
+
+<strong>20240804222948.png</strong> (96.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:30 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/223014wsm813818wcgk7g8.png" referrerpolicy="no-referrer">
+
+<strong>20240804222955.png</strong> (82.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:30 上传
+

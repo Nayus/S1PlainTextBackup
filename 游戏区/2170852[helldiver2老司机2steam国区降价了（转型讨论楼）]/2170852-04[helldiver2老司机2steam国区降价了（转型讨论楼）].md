@@ -499,3 +499,13 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 正好接上6号更新，怕不是要更载具了所以专门找理由给个免费反坦克雷坑人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  扑克脸军曹  
+##### 5136#       发表于 2024-8-4 19:34
+
+都上线刷鸭，把这逼地雷给他憋回去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

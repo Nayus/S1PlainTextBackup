@@ -737,3 +737,112 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐是彻底寄了。。。该去刷公主羁绊了。。。1级羁绊给多少硬币来着？
 
+
+*****
+
+####  rooarr  
+##### 13388#       发表于 2024-8-4 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794729&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:27</a>
+王姐是彻底寄了。。。该去刷公主羁绊了。。。1级羁绊给多少硬币来着？</blockquote>
+刚试了下，好像是1级给5<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  eilot  
+##### 13389#       发表于 2024-8-4 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794644&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:15</a>
+
+我错了　我以为好感度是可以永久保留的　刷满以后进场直接满　　</blockquote>
+好感?是否綁角色絆值嗎?
+
+不是的話，就算當成類似仇小黑那類書頁數量，另類的BUFF機制吧
+
+看了那個說明，不是綁絆值，而是看戰鬥時玩家曾經用她做了甚麼來慢慢累積，可當成不存在的機制...
+
+*****
+
+####  TheLoof  
+##### 13390#       发表于 2024-8-4 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794729&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:27</a>
+
+王姐是彻底寄了。。。该去刷公主羁绊了。。。1级羁绊给多少硬币来着？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/04/193001gktcdatltdixbp1a.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722771077703.png</strong> (50.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 19:30 上传
+
+*****
+
+####  alucardcz  
+##### 13391#       发表于 2024-8-4 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794750&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-4 19:29</a>
+
+好感?是否綁角色絆值嗎?
+
+不是的話，就算當成類似仇小黑那類書頁數量，另類的BUFF機制吧 ...</blockquote>
+不保留就没有意义 纯摆设 永远到不了满好感 除非你特意不把怪打死整活
+
+*****
+
+####  quanlix  
+##### 13392#       发表于 2024-8-4 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794698&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-4 19:23</a>
+有點不明白
+
+是所有技能的CD都-1嗎?</blockquote>
+就是每个技能第一次使用之后会额外少1cd，对红卡队有强力6cd和7cd技能的打手是个福利，配合双杀狐2面可以提前开一次6cd技能或者3面再开一次7cd技能，受益的角色其实没几个
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 13393#       发表于 2024-8-4 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794744&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-8-4 19:28</a>
+
+刚试了下，好像是1级给5
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是30吗 你尬黑
+
+
+*****
+
+####  alucardcz  
+##### 13394#       发表于 2024-8-4 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794752&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 19:30</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了 我公主还要刷到9羁绊才能用？ 尼玛的这要刷到什么时候
+
+*****
+
+####  eilot  
+##### 13395#       发表于 2024-8-4 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794762&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-8-4 19:31</a>
+
+就是每个技能第一次使用之后会额外少1cd，对红卡队有强力6cd和7cd技能的打手是个福利，配合双杀狐2面可以 ...</blockquote>
+那看來還是不錯，殺狐一早絆15，她的硬幣一直都沒用過，因為根本不知道點甚麼好
+
+*****
+
+####  alucardcz  
+##### 13396#       发表于 2024-8-4 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794807&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-4 19:36</a>
+
+那看來還是不錯，殺狐一早絆15，她的硬幣一直都沒用過，因為根本不知道點甚麼好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？ 有什么用 你杀狐点满了也是白点  除非你跟我一样钱溢出没地方用了
+

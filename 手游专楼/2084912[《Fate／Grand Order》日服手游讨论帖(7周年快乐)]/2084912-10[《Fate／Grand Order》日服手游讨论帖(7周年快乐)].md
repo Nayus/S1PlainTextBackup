@@ -846,3 +846,61 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 那看來還是不錯，殺狐一早絆15，她的硬幣一直都沒用過，因為根本不知道點甚麼好 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？ 有什么用 你杀狐点满了也是白点  除非你跟我一样钱溢出没地方用了
 
+
+*****
+
+####  eilot  
+##### 13397#       发表于 2024-8-4 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794543&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 19:04</a>
+
+利好打白纸化双星free</blockquote>
+之前打主線或活動高難度，都是難得想直接爆今咒，是BOSS太喜歡每條血槽前先全員消BUFF上NERF
+
+只要不是像主線基本上都是綁角色、限出戰人數、限衣服、現在連令咒都禁用，每天回3次令咒，就是用來解白紙化那些高難度用
+
+
+*****
+
+####  保罗赫伯特  
+##### 13398#       发表于 2024-8-4 19:42
+
+看了一下B站才知道减CD是要用过一次技能之后才生效的，水摩根3技能开场CD还是固定的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还有那个好感系统原来是每场战斗都会重置的，这不就是另一种充能条吗，还以为是累积固定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13399#       发表于 2024-8-4 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794865&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 19:42</a>
+
+看了一下B站才知道减CD是要用过一次技能之后才生效的，水摩根3技能开场CD还是固定的
+
+还有那个好感系统原来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟我一样 我一开始以为带着刷刷以后进场直接满好感 看到会重置 心已经凉了一般了  不就个玩具
+
+*****
+
+####  保罗赫伯特  
+##### 13400#       发表于 2024-8-4 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794870&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:43</a>
+
+跟我一样 我一开始以为带着刷刷以后进场直接满好感 看到会重置 心已经凉了一般了  不就个玩具 ...</blockquote>
+高情商：多次体验初恋的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 13401#       发表于 2024-8-4 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794826&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 19:37</a>
+
+？ 有什么用 你杀狐点满了也是白点  除非你跟我一样钱溢出没地方用了</blockquote>
+沒法子，FGO就是日常打周目，或BOSS戰懶得組隊令咒解決一切，死了大不了今咒復活全補，現場每晚更能直接全復活
+
+所以硬幣還是會留下來，一直看它長草中
+

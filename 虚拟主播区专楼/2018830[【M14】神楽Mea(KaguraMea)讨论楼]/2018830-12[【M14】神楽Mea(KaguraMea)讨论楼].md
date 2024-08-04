@@ -5060,3 +5060,20 @@ https://cowtransfer.com/s/0426bc86ff0446 点击链接查看 [ slicer_opt.list ] 
 
 faker皮肤 健身房 adobe的付费
 
+
+*****
+
+####  sino__unnko3  
+##### 17065#       发表于 2024-8-4 19:43
+
+以为21年以后跟父亲就不太联系了。。。还在联系，好事
+
+*****
+
+####  sino__unnko3  
+##### 17066#       发表于 2024-8-4 19:45
+
+8月4号晚上6点的推限全程录音
+
+https://cowtransfer.com/s/d2fe0bb5084d4f 点击链接查看 [ 录音 (7).wav ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 jz0dw0 查看；
+

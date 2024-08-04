@@ -789,3 +789,11 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 其实动物界比较有名的害怕蛇的是人类，刻进DNA本能里的害怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1977#       发表于 2024-8-4 19:45
+
+今天的茉优抱起来手感有点硬<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+

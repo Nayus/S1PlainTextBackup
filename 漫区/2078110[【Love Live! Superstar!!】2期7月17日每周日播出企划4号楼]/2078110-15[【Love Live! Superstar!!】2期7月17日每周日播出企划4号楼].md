@@ -352,3 +352,46 @@ VN就算入学了还要自立门户继续当小丑，没救了<img src="https://
 
 什么编剧换雨野
 
+
+*****
+
+####  离心  
+##### 20756#       发表于 2024-8-4 19:38
+
+md一个入队角色咋又继续小丑塑造啊，三回啊!三回啊!md前面声优一直在说三期的事我还以为会好一点呢，结果md又是声优盾是吧
+
+*****
+
+####  lj205  
+##### 20757#       发表于 2024-8-4 19:40
+
+笑嘻，我说啥来着
+
+*****
+
+####  ads147147  
+##### 20758#       发表于 2024-8-4 19:42
+
+之前还一群人说虹白开水不如花田老师有活。虹那叫没活么，拆雷给你拆麻了。好，现在花田也没活了，as抄起来，建议花田京极赶紧滚蛋，去东映，MAPPA还是哪个你想去的地方，赶紧滚出日升。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  we89623  
+##### 20759#       发表于 2024-8-4 19:44
+
+笑死，这个PV除了第一二季的回顾画面，第三季的新画面完全没可可的独立特写镜头，堇好歹有一个独立特写...虽然一闪而过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  日野下花帆  
+##### 20760#       发表于 2024-8-4 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794862&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-4 19:42</a>
+之前还一群人说虹白开水不如花田老师有活。虹那叫没活么，拆雷给你拆麻了。好，现在花田也没活了，as抄起来 ...</blockquote>
+万南看见星二这样了铁了心还是不换staff也是够变态的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

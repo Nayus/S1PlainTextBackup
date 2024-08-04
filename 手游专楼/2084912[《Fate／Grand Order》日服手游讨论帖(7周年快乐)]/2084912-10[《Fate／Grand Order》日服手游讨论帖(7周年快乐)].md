@@ -562,3 +562,54 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 右图内呆毛的领导力成红魔放了</blockquote>
 细啊，转发到牛国安了
 
+
+*****
+
+####  eilot  
+##### 13372#       发表于 2024-8-4 18:58
+
+ 本帖最后由 eilot 于 2024-8-4 19:00 编辑 
+
+10張符，沒事發生
+
+看了一下，之後每晚直接回3令咒，不再是一天回一個，拖時間和BOSS戰拼長命的話，可以用令咒爆寶具爆得更多次
+
+
+*****
+
+####  TheLoof  
+##### 13373#       发表于 2024-8-4 19:03
+
+埃蕾这NP也太难蹦了点
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13374#       发表于 2024-8-4 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794503&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-4 18:58</a>
+
+10張符，沒事發生</blockquote>
+利好打白纸化双星free<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13375#       发表于 2024-8-4 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794449&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 18:51</a>
+
+吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你白方块的都已经换光了？
+
+*****
+
+####  rooarr  
+##### 13376#       发表于 2024-8-4 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794449&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 18:51</a>
+
+吐了</blockquote>
+可以去商店换100个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

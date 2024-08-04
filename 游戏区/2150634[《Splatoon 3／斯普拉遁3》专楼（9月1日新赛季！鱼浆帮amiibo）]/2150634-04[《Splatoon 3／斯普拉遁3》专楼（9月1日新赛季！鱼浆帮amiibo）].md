@@ -128,3 +128,20 @@
 
 今天加时翻盘好多，爱看
 
+
+*****
+
+####  秋月孝三  
+##### 4943#       发表于 2024-8-4 18:57
+
+三分钟浪费三个大蛤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  墨染白泉  
+##### 4944#       发表于 2024-8-4 18:59
+
+蛤蜊完全互相喂饭
+

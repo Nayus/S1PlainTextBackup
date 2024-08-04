@@ -886,3 +886,43 @@ AS的问题还有这个剧情是连载的，等于玩家每个月还是每周要
 
 相信花田，PV就只是前两集内容，大香老师以为自己回不了liella然后解开误会是第一集，VN成立新偶像部然后被收编是第二集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20809#       发表于 2024-8-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797111&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-8-4 22:23</a>
+不是，怎么就默认海报两边是对抗关系了？这些人的表情动作明显不是那回事吧？说真的不用太asptsd，退一万步 ...</blockquote>
+s2e11的时候薇恩自己都说如果香音不去自己也要想办法去维也纳。如果家里的要求是再拿冠军，薇恩也会低头去找队友的，毕竟拉拉大赛的观众投票赛制下solo选手就是有天然的人气劣势的。
+
+并且2期生不如一期是官方盖章，vn作为功利主义肯定是要找一期生。更何况还有kale组这个场外因素，本来就不是人气投票出来的组合而是官方强行划分的，说不定动画组里也得照做。
+
+再者说，你拉也没搞过海报诈骗，这样分好左右两边，大小比例肯定是有依据的。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  黒烨  
+##### 20810#       发表于 2024-8-4 22:38
+
+不是，你拉海报有过成真的吗……
+
+
+*****
+
+####  仟音一心  
+##### 20811#       发表于 2024-8-4 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797267&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-8-4 22:38</a>
+不是，你拉海报有过成真的吗……</blockquote>
+第二季确实是大香传没错，你就说那个香音大不大吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 20812#       发表于 2024-8-4 22:46
+
+二期那个海报也只应证了大香传吧，你硬要说边缘的蓝绿还特地给你整一集出来玩play，不符合海报的配比啊，恋那么大一个也不就只配一集，夏美我记得也不是很大，她能分两集呢。
+

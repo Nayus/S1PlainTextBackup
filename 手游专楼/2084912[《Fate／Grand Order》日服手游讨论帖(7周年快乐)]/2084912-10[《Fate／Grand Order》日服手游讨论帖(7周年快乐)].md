@@ -1596,3 +1596,41 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 然后内心OS就“关我啥事儿我又不氪5宝”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13455#       发表于 2024-8-4 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797158&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-4 22:29</a>
+
+会炎上的肯定是有多余硬币用手贱去点被动13甚至搓杯子的，无课一宝跑路的还是老样子6绊点个20NP没变化啊
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没变化 现在直接少条腿了
+
+
+*****
+
+####  cckuku  
+##### 13456#       发表于 2024-8-4 22:45
+
+ 本帖最后由 cckuku 于 2024-8-4 22:47 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/04/224534i4mxxzf4rm1d1dd4.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3634.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 22:45 上传
+
+我勒个命定福袋双五星啊！这个双五星把我水蕾追高宝的心思打断了，见好就收了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 13457#       发表于 2024-8-4 22:46
+
+追了210石头，5星礼装满破，同时艾蕾第二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

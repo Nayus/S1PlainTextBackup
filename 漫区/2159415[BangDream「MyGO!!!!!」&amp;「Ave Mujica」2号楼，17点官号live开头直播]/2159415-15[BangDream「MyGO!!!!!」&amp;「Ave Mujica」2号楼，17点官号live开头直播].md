@@ -11148,3 +11148,21 @@ mujica角色形象没有完善，二创都束手束脚。
 
 这扭蛋据说一套卖1600，服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 21744#       发表于 2024-8-4 08:48
+
+一套1600 还行
+起码不是一个1600
+又是国内特供？日本能买到吗
+
+
+*****
+
+####  星天观测  
+##### 21745#       发表于 2024-8-4 08:56
+
+个人猜测不一定对这个应该是立本那边的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

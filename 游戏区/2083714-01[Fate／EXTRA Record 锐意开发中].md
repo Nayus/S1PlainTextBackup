@@ -150,3 +150,20 @@ Xbox独不占，很日本<img src="https://static.saraba1st.com/image/smiley/fac
 
 《Fate/EXTRA Record》最新宣传片公开，展示了大量实机画面。本作为《Fate/EXTRA》的完全重制作品，确定将于2025年发售，登陆PS5/PS4/Switch/Steam平台。 http://t.cn/A68lVbB8 ​​​
 
+
+*****
+
+####  盖尔杰特克  
+##### 85#       发表于 2024-8-4 17:11
+
+这麻婆建模也太丑了吧，甚至还不如原版啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+捕获.PNG
+(380.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 17:11 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/171116fnnltnek5cri31uu.png" referrerpolicy="no-referrer">
+

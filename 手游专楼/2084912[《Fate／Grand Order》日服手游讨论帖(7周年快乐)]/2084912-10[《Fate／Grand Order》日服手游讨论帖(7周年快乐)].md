@@ -1045,3 +1045,93 @@ syl 隔壁发的好感度叠加规则</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听隔壁说11区也开始冲硬币了？ 有没有可能
 
+
+*****
+
+####  希望之花  
+##### 13412#       发表于 2024-8-4 20:10
+
+ 本帖最后由 希望之花 于 2024-8-4 20:12 编辑 
+
+用令咒充能不加好感的吗
+
+泳装莉莉丝开技能也能加好感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真好骗啊（不是
+
+*****
+
+####  TheLoof  
+##### 13413#       发表于 2024-8-4 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795102&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-4 20:10</a>
+
+用令咒充能不加好感的吗</blockquote>
+加，但是只加10，相当于在海边的加成
+
+你每次都要令咒出门吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 13414#       发表于 2024-8-4 20:14
+
+ 本帖最后由 TheLoof 于 2024-8-4 20:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/04/201213gpaee5mmvf6j5bvd.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722773619429.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/201221o3384t3tf8jewgke.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722773627467.png</strong> (1.62 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/201229lbz1nk1mxz16oo9m.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722773635269.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:12 上传
+
+这卡还是太娱乐了点
+
+如果没有其他特效，那5宝比2宝再提升1.25倍
+
+那单体无黑杯无克制伤害就是28.75w
+
+再算克制的1.5倍，就是43.125w
+
+天地人如果从0.9放大到1.1就再翻1.22倍，51.75w
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 13415#       发表于 2024-8-4 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795108&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 20:11</a>
+
+加，但是只加10，相当于在海边的加成
+
+你每次都要令咒出门吗</blockquote>
+就试一下看看新机制啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13416#       发表于 2024-8-4 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795102&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-4 20:10</a>
+
+用令咒充能不加好感的吗</blockquote>
+这何尝不是一种ntr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

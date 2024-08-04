@@ -169,3 +169,28 @@
 
 这波推塔反超好牛
 
+
+*****
+
+####  秋月孝三  
+##### 4948#       发表于 2024-8-4 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马老师可惜了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  raii  
+##### 4949#       发表于 2024-8-4 20:08
+
+关西最高峰就这个水平的话关东睡觉都能笑醒
+
+
+*****
+
+####  nanjolno  
+##### 4950#       发表于 2024-8-4 20:12
+
+确实，这东西实力差肉眼可见
+

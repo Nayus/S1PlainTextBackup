@@ -1494,3 +1494,13 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 500+石头&amp;50+的呼符，两宝再加歪一只果心居士，还行
 
+
+*****
+
+####  BlackmageM  
+##### 13446#       发表于 2024-8-4 22:04
+
+240石+15呼符一宝，当收藏了，不指望有多大的作用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

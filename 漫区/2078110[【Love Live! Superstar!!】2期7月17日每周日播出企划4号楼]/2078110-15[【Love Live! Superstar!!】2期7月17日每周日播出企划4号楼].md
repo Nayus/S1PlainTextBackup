@@ -722,3 +722,33 @@ s2结尾vn都要舔着香音才能去留学了
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Anatoly  
+##### 20793#       发表于 2024-8-4 21:56
+
+哦等等这逻辑我明白了，敢情这么一搞二期特意把人设搞得和一期对应也说得过去了
+
+现在只要鬼冬是个裁缝那确实歌词谱曲编舞场地和衣服都对上了
+
+*****
+
+####  lj205  
+##### 20794#       发表于 2024-8-4 21:59
+
+还特意开了新官号，头像就是纯纯的大香，我大香站谁，谁就是冠军呗
+
+
+*****
+
+####  ViyViy  
+##### 20795#       发表于 2024-8-4 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796614&amp;ptid=2078110" target="_blank">笋狐 发表于 2024-8-4 21:46</a>
+
+总有人觉得as剧情是钟女士出来之后才烂的，必须澄清一下：明明是栞子出来就开始了，雨野智晴在as2期几乎做 ...</blockquote>
+有啊，堇嘛，正常人叫的最欢，有的还喜欢捎带芽衣
+
+不过隔壁nga前阵子刚有个直播看下来的芽衣也被骂了一句，我不好说。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

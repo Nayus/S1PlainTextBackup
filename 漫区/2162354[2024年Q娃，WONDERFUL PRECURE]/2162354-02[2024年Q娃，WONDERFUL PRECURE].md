@@ -741,3 +741,17 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 新的过渡卡是美马健二？
 
+
+*****
+
+####  上坂莲华  
+##### 1973#       发表于 2024-8-4 13:21
+
+猫怕蛇大抵是制作组看了网上拿玩具蛇和黄瓜吓唬猫的段子
+
+没见过蛇的猫一般来说不会怕，也有可能这猫其实是龙猫被蛇血脉压制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+恭喜暖男拿下首个助攻，不过们这个蛇洞浅的能让暖男拿园艺锹挖开是不是有点离谱了
+
+蛋大概30厘米高，掉下去看都看不到，洞深少说得两米，结果最后暖男挖开那镜头感觉不到半米深，上面跺两脚洞都会塌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

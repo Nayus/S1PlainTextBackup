@@ -721,3 +721,15 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 看来苍乃女士后继有人了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maoyou  
+##### 1971#       发表于 2024-8-4 11:10
+
+ 本帖最后由 maoyou 于 2024-8-4 11:11 编辑 
+
+打遍动物镇无敌手的东百哈基米竟然怕蛇？正宗哈基米打蛇跟打儿子一样，假毛！👎怪不得这集用耗子耳朵，什么哈基米，广c大型耗子罢了
+
+—— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

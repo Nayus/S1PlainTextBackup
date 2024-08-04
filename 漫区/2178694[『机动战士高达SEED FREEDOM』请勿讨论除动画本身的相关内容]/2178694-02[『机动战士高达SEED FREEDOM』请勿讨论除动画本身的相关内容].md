@@ -139,3 +139,19 @@ IMG_2609.png
 
 可以了，已经不能要求更多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 1880#       发表于 2024-8-4 11:57
+
+<img src="https://img.saraba1st.com/forum/202408/04/115654ngr2ryset0iuw8ne.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2617.png</strong> (306.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 11:56 上传
+
+福田看来是玩真的厉害了
+

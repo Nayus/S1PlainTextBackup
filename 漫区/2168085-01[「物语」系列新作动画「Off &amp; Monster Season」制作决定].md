@@ -2009,3 +2009,15 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 越来越像常守朱了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KDConan  
+##### 609#       发表于 2024-8-4 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789891&amp;ptid=2168085" target="_blank">大弹涂鱼潜伏 发表于 2024-8-4 04:44</a>
+越来越像常守朱了</blockquote>
+还真是，不仅声优现在连造型和行动都像了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

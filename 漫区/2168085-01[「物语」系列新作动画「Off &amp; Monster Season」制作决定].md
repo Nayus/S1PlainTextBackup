@@ -2021,3 +2021,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  鬼谷ask  
+##### 610#       发表于 2024-8-4 12:29
+
+不停用书构成白蛇还蛮带感的
+

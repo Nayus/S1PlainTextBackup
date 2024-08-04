@@ -1527,3 +1527,270 @@ ciel弓阶吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.pn
 
 2024-8-4 16:07 上传
 
+
+*****
+
+####  TheLoof  
+##### 13196#       发表于 2024-8-4 16:08
+
+<img src="https://img.saraba1st.com/forum/202408/04/160822ogz6m1dznxximl6d.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722758988924.png</strong> (165.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:08 上传
+
+开！奶！
+
+*****
+
+####  alucardcz  
+##### 13197#       发表于 2024-8-4 16:08
+
+惯例的从者强化。。。
+
+*****
+
+####  TheLoof  
+##### 13198#       发表于 2024-8-4 16:08
+
+两个外星人草，其中一个有青子就乐了
+
+*****
+
+####  希望之花  
+##### 13199#       发表于 2024-8-4 16:08
+
+ 本帖最后由 希望之花 于 2024-8-4 16:11 编辑 
+
+强化本两个金外星人两个金术
+
+新硬币技能加了个减CD的，然后强化从者有一个金骑
+
+*****
+
+####  alucardcz  
+##### 13200#       发表于 2024-8-4 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793104&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:08</a>
+
+两个外星人草，其中一个有青子就乐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如猜2个术 梅林王者归来（
+
+
+*****
+
+####  TheLoof  
+##### 13201#       发表于 2024-8-4 16:09
+
+<img src="https://img.saraba1st.com/forum/202408/04/160940a42j762m4r1r842d.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722759067223.png</strong> (148.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:09 上传
+
+*****
+
+####  TheLoof  
+##### 13202#       发表于 2024-8-4 16:10
+
+卧槽，真的改变世界了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是硬币获取方式你特么不加一点？
+
+*****
+
+####  壳壳牛  
+##### 13203#       发表于 2024-8-4 16:10
+
+该给硬币了吧
+
+*****
+
+####  alucardcz  
+##### 13204#       发表于 2024-8-4 16:10
+
+减技能cd有点逆天  属于改变用法了。。。但没硬币了啊？
+
+*****
+
+####  angelooo  
+##### 13205#       发表于 2024-8-4 16:10
+
+我这种1宝党选手哪有硬币开新追加技能，滚吧
+
+*****
+
+####  xiongxingyu  
+##### 13206#       发表于 2024-8-4 16:11
+
+md，敢给个硬币洗点吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13207#       发表于 2024-8-4 16:11
+
+真的，别惦记你那逼指令卡强化了，想出这系统的人就该扔出去
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13208#       发表于 2024-8-4 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马德 你加这玩意不发硬币是什么意思？ 
+
+*****
+
+####  khxooo  
+##### 13209#       发表于 2024-8-4 16:13
+
+鲤鱼图，终于复刻。
+
+*****
+
+####  alucardcz  
+##### 13210#       发表于 2024-8-4 16:13
+
+改保底。
+
+*****
+
+####  TheLoof  
+##### 13211#       发表于 2024-8-4 16:13
+
+笑死，给5宝加天井了
+
+微氪屁用没有，中氪偶尔用得上
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 13212#       发表于 2024-8-4 16:13
+
+改保底了，终于开服了！
+
+还是330抽，辣鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13213#       发表于 2024-8-4 16:14
+
+艹。。。。就把保底次数改成了无限。。。对我这种咸鱼来说等于没改
+
+
+*****
+
+####  alucardcz  
+##### 13214#       发表于 2024-8-4 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793154&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:13</a>
+
+笑死，给5宝加天井了
+
+微氪屁用没有，中氪偶尔用得上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中课用上这个你还能叫中课吗  人和钱包 总有一个被气死
+
+*****
+
+####  Jamaisvu  
+##### 13215#       发表于 2024-8-4 16:15
+
+多次保底也太幽默了，这么多抽才保底，还不让设定成凑够330抽后可以直接换...（吃桃）
+
+*****
+
+####  壳壳牛  
+##### 13216#       发表于 2024-8-4 16:15
+
+艹怎么就福袋了
+福利就这些啊
+
+*****
+
+####  angelooo  
+##### 13217#       发表于 2024-8-4 16:15
+
+只要你石头多总能抽到想要的宝具数是吧
+
+好的我没多少石头233
+
+*****
+
+####  TheLoof  
+##### 13218#       发表于 2024-8-4 16:16
+
+ 本帖最后由 TheLoof 于 2024-8-4 16:17 编辑 
+
+MD好像算错了
+
+*****
+
+####  xiongxingyu  
+##### 13219#       发表于 2024-8-4 16:16
+
+哇，以后最多只要抽1650发就能满宝了呢，真是太酷啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13220#       发表于 2024-8-4 16:16
+
+<img src="https://img.saraba1st.com/forum/202408/04/161608jlbygnm0ny4a3n3o.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722759455358.png</strong> (239.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:16 上传
+
+*****
+
+####  angelooo  
+##### 13221#       发表于 2024-8-4 16:16
+
+<blockquote>壳壳牛 发表于 2024-8-4 16:15
+艹怎么就福袋了
+
+福利就这些啊</blockquote>
+每年福利不都是来搞笑的吗，然后告诉你某些开服就该有的玩意现在终于实装了
+
+*****
+
+####  Jamaisvu  
+##### 13222#       发表于 2024-8-4 16:17
+
+<img src="https://img.saraba1st.com/forum/202408/04/161631th63ni0wwvkkiok0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_161616.jpg</strong> (322.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:16 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/161654n8h9asah18otfso9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_161643.jpg</strong> (407.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:16 上传
+
+选择强迫症要疯了...要不咱还是大黑锅吧...
+
+*****
+
+####  希望之花  
+##### 13223#       发表于 2024-8-4 16:17
+
+奥博龙C呆摩根 什么神福袋
+

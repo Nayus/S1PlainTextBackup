@@ -96,3 +96,34 @@
 
 结果还真是打牌
 
+
+*****
+
+####  嘘月姫  
+##### 79#       发表于 2024-8-4 16:04
+
+发行怎么换万代了，以前没见过合作吧
+
+*****
+
+####  低调不圆滑  
+##### 80#       发表于 2024-8-4 16:05
+
+打牌至少比猜拳强
+
+
+*****
+
+####  zechins  
+##### 81#       发表于 2024-8-4 16:06
+
+<img src="https://img.saraba1st.com/forum/202408/04/160536nyznzrqxaqbyr5r1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (296.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">2025预定，希望不要跳...还想玩ccc呢
+

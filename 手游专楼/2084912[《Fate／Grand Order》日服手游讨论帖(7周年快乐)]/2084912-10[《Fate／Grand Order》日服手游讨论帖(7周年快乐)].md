@@ -1869,3 +1869,19 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 我公主什么被动都没点，一个币都没花出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 13481#       发表于 2024-8-4 23:58
+
+没开宝具上限我觉得是因为开服代码写死了，改这个要重构的代码太多，没那勇气改好吧，也没必要。
+
+
+*****
+
+####  sin.yugi  
+##### 13482#       发表于 2024-8-5 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好几个三宝的从者小丑点了ex强化那个被动，这下卡羁绊开不了cd-1小丑了
+

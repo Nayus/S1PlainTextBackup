@@ -642,3 +642,14 @@ SpaceX公布了S30静点官照和导流槽慢镜头
 
 猛禽计划是到第几代才是完全体？
 
+
+*****
+
+####  多多天下  
+##### 43#       发表于 2024-8-4 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65790039&amp;ptid=2190881" target="_blank">かしこま 发表于 2024-8-4 07:41</a>
+
+猛禽计划是到第几代才是完全体？</blockquote>
+v5，后面还有LEET
+

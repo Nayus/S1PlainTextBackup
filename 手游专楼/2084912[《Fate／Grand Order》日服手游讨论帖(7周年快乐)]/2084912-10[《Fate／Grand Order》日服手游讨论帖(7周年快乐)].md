@@ -1215,3 +1215,38 @@ syl 隔壁发的好感度叠加规则</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cckuku  
+##### 13423#       发表于 2024-8-4 20:35
+
+lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果玩家反应不大那就当无事发生，如果玩家炎上就赶紧把补偿方案端上来。
+
+*****
+
+####  yyzcacxg  
+##### 13424#       发表于 2024-8-4 20:38
+
+在氵由管看こやはん直播讲这事，1.5w同接评论炎上中，氪金母猪们这不去消费厅冲一波能忍？
+
+*****
+
+####  TheLoof  
+##### 13425#       发表于 2024-8-4 20:39
+
+两边关注点微妙的不一样
+
+强度党：你好歹给个技能重置
+
+真爱党：你居然要我氪8宝？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 13426#       发表于 2024-8-4 20:42
+
+起码加个技能洗点机制，然后还得把活动从者缺的硬币补上。
+

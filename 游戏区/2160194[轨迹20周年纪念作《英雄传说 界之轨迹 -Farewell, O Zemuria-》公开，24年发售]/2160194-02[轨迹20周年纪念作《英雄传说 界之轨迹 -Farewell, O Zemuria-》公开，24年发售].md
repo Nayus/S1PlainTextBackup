@@ -3024,3 +3024,16 @@ op的断句还是白色世界
 
 这部有一个蓝色晶柱的遗迹
 
+
+*****
+
+####  black  
+##### 2422#       发表于 2024-8-4 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65786142&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-3 20:22</a>
+
+功亏一篑最后不依靠全大陆国家联合力量而是单纯靠民间人士吗</blockquote>
+不然怎么叫英雄传说呢
+
+拯救世界不靠大国铁骑只靠勇者是否也是一种幽默？
+

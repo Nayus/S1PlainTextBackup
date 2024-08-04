@@ -2026,3 +2026,15 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 不是哥们，点一个技能得120个，就算是新活动搬空商店也给10个，差不多也要一年才点一个技能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就对了吗 急就氪金啊（
 
+
+*****
+
+####  VictorWJ  
+##### 13496#       发表于 2024-8-5 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799072&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 01:19</a>
+顺便有没有漏油说说还有其他手游有这种因为拉满了人物反而吃瘪的吗 不会创造历史了吧？ ...</blockquote>
+有啊，比如国产gbf这种限定轮替很快的游戏限定角色或者武器迟早进池子甚至白送，就是早氪早享受晚氪等白嫖了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

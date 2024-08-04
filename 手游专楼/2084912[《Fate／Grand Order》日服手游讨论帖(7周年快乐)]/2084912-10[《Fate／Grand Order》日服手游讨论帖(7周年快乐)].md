@@ -374,3 +374,22 @@ fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" 
 
 留一单半战泳装了...
 
+
+*****
+
+####  usoda  
+##### 13356#       发表于 2024-8-4 17:49
+
+2个福袋一个青子一个有珠 ，不错不错
+
+*****
+
+####  白金口袋  
+##### 13357#       发表于 2024-8-4 17:54
+
+570石头+25呼符才1宝
+
+有点肉疼
+
+泳装储备不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

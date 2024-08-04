@@ -851,3 +851,20 @@ py码：100104725198，安B服。
 
 只能祝十周年再开三个被动技能了XD，真的就第二部结束关服跑路啊。
 
+
+*****
+
+####  khxooo  
+##### 46611#       发表于 2024-8-4 23:39
+
+可惜了，公主120级用光了硬币了，玩不了双杀狐奥伯龙单核了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xy1041  
+##### 46612#       发表于 2024-8-4 23:41
+
+该把yls穿起来烧了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1716,3 +1716,63 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 难道活动从者拉了120把硬币用掉了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以不是少了条腿（
 
+
+*****
+
+####  alucardcz  
+##### 13466#       发表于 2024-8-4 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797789&amp;ptid=2084912" target="_blank">xy1041 发表于 2024-8-4 23:11</a>
+
+哦，限定四星只需要17个哦
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恐怖
+
+*****
+
+####  保罗赫伯特  
+##### 13467#       发表于 2024-8-4 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797789&amp;ptid=2084912" target="_blank">xy1041 发表于 2024-8-4 23:11</a>
+
+哦，限定四星只需要17个哦
+
+—— 来自 S1Fun</blockquote>
+120级真是大冤种吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13468#       发表于 2024-8-4 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">120级是真冤种了 就算能洗点也不可能让你洗掉120  升个110差不多得了 120提升也不大
+
+*****
+
+####  الطائر  
+##### 13469#       发表于 2024-8-4 23:19
+
+如果不改硬币系统、不洗点，大概有3种解决方法：
+
+1.每点满10级技能（3个常规技能、5个辅助技能）就返还30硬币，共240个，收支相抵。低宝玩家能多点几个技能。
+
+2.五星从者每次召唤获得120个硬币，四星限定90个，常驻40个，差额发到礼物箱。6宝15绊共900个，刚好升满。
+
+3.增加羁绊上限到20级，16至20级每级获得40个硬币，6宝20绊共920个，比前面这个方案还多给20个呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 13470#       发表于 2024-8-4 23:22
+
+哎对，这次又没开20绊，看来是真不准备开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 13471#       发表于 2024-8-4 23:23
+
+就是为了让结晶粉爆米的，还做梦会发善心呢？
+

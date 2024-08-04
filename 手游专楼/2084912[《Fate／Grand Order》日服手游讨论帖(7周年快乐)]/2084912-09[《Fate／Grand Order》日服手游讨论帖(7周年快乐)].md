@@ -1892,3 +1892,353 @@ MD好像算错了
 
 啥，艾蕾赢了？
 
+
+*****
+
+####  xiongxingyu  
+##### 13235#       发表于 2024-8-4 16:24
+
+卧槽，还有这种玩法的吗，联动放泳装，泳装放周年<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13236#       发表于 2024-8-4 16:24
+
+<img src="https://img.saraba1st.com/forum/202408/04/162413bd3g5og3n5g38ou4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_162404.jpg</strong> (212.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:24 上传
+
+泳装艾蕾！！！
+
+*****
+
+####  TheLoof  
+##### 13237#       发表于 2024-8-4 16:24
+
+卧槽牛逼了，还是BEAST
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 13238#       发表于 2024-8-4 16:24
+
+赢了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">居然是周年
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 13239#       发表于 2024-8-4 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就变兽了
+
+*****
+
+####  xunit  
+##### 13240#       发表于 2024-8-4 16:24
+
+beast，牛逼
+
+
+*****
+
+####  alucardcz  
+##### 13241#       发表于 2024-8-4 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793268&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-8-4 16:24</a>
+
+赢了居然是周年
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么突然出现
+
+*****
+
+####  xiongxingyu  
+##### 13242#       发表于 2024-8-4 16:25
+
+居然还是高贵的兽阶！！！宇宙艾蕾！！！看来只能抽爆了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13243#       发表于 2024-8-4 16:25
+
+什么，是兽？有特殊抽卡动画吗
+
+*****
+
+####  Jamaisvu  
+##### 13244#       发表于 2024-8-4 16:25
+
+是不是原订学姐周年出，但是武内心血来潮画了泳装造型，然后叶良树觉得艾蕾更有话题度，就把二人换了一下？
+
+呱，不要紧的，我两个一样的抽呀！！！
+
+*****
+
+####  TheLoof  
+##### 13245#       发表于 2024-8-4 16:25
+
+哦，是宇宙埃蕾啊，那没事儿了
+
+你别说BEAST，你出个UO都没关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 13246#       发表于 2024-8-4 16:25
+
+周年又是泳装
+还是艾蕾...绝了
+
+*****
+
+####  khxooo  
+##### 13247#       发表于 2024-8-4 16:26
+
+泳装艾蕾，还是兽阶，可以可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13248#       发表于 2024-8-4 16:26
+
+<img src="https://img.saraba1st.com/forum/202408/04/162607ngji5ii5yhdga5ii.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722760053736.png</strong> (153.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:26 上传
+
+*****
+
+####  Jamaisvu  
+##### 13249#       发表于 2024-8-4 16:26
+
+<img src="https://img.saraba1st.com/forum/202408/04/162604dd4wfv2z4fdpmq1w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_162555.jpg</strong> (258.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:26 上传
+
+抽爆！！！
+
+*****
+
+####  保罗赫伯特  
+##### 13250#       发表于 2024-8-4 16:26
+
+什么啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  隰有苌楚  
+##### 13251#       发表于 2024-8-4 16:26
+
+相性挺怪
+
+*****
+
+####  TheLoof  
+##### 13252#       发表于 2024-8-4 16:27
+
+ 本帖最后由 TheLoof 于 2024-8-4 16:29 编辑 
+
+草草草
+
+这也太直球了，笑死
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/04/162734zh4qj86laohhzaco.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722760139368.png</strong> (755.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:27 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/162858wjz46m9biul0uxi6.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722760208023.png</strong> (851.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:28 上传
+
+*****
+
+####  angelooo  
+##### 13253#       发表于 2024-8-4 16:27
+
+可以打除了仇之外的其他EX（不包括盾
+
+神特么好感度
+
+*****
+
+####  低调不圆滑  
+##### 13254#       发表于 2024-8-4 16:27
+
+麻辣始祖
+
+*****
+
+####  Jamaisvu  
+##### 13255#       发表于 2024-8-4 16:27
+
+<img src="https://img.saraba1st.com/forum/202408/04/162656dqwbofdqgpttuhou.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_162645.jpg</strong> (167.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:26 上传
+
+嗯，五个EX阶有特攻手了，复仇者的话有七周年那位呢...
+
+*****
+
+####  Jamaisvu  
+##### 13256#       发表于 2024-8-4 16:28
+
+<blockquote>TheLoof 发表于 2024-8-4 16:27
+草草草
+
+这也太直球了，笑死</blockquote>
+什么命定之人
+
+*****
+
+####  angelooo  
+##### 13257#       发表于 2024-8-4 16:29
+
+什么养成系从者23333
+
+*****
+
+####  jackyhuang  
+##### 13258#       发表于 2024-8-4 16:29
+
+太麻辣啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  khxooo  
+##### 13259#       发表于 2024-8-4 16:29
+
+神TM好感度，真的是官方盖章ML从者了哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 13260#       发表于 2024-8-4 16:30
+
+<blockquote>angelooo 发表于 2024-8-4 16:27
+可以打除了仇之外的其他EX（不包括盾
+
+神特么好感度</blockquote>
+希望打七骑士是白字，纯EX阶的本感觉不太多呢...
+
+*****
+
+####  TheLoof  
+##### 13261#       发表于 2024-8-4 16:30
+
+<img src="https://img.saraba1st.com/forum/202408/04/163046pzr86o600e68rih9.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722760332582.png</strong> (231.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:30 上传
+
+*****
+
+####  kyonkoism  
+##### 13262#       发表于 2024-8-4 16:31
+
+主要是，还附加了一条
+
+你借别人的艾蕾好感度是0
+
+他妈的一百万匹麻辣力量 笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 13263#       发表于 2024-8-4 16:31
+
+梅林跟杨贵妃可以预定强化本了
+
+*****
+
+####  GuDaZi  
+##### 13264#       发表于 2024-8-4 16:31
+
+抽，全都抽。今年送的石头是不是不多啊
+
+*****
+
+####  alucardcz  
+##### 13265#       发表于 2024-8-4 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天一共送多少石？ 不会300都没有吧
+
+*****
+
+####  TheLoof  
+##### 13266#       发表于 2024-8-4 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793355&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:32</a>
+
+今天一共送多少石？ 不会300都没有吧</blockquote>
+到现在为止，是
+
+138+170+36+10=354
+
+应该还有转发的翻倍，100个左右
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 13267#       发表于 2024-8-4 16:34
+
+没有泳装二期从者吗
+
+*****
+
+####  Jamaisvu  
+##### 13268#       发表于 2024-8-4 16:34
+
+<img src="https://img.saraba1st.com/forum/202408/04/163330g5nbo7bdzbodoez7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_163318.jpg</strong> (116.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:33 上传
+
+麻辣老祖带头搞百合啦（误）
+
+（某种意义上也算水仙？）
+

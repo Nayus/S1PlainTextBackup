@@ -1650,3 +1650,69 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到 4星开满要几宝啊？ 4星真爱党要上天了？
 
+
+*****
+
+####  jackyhuang  
+##### 13460#       发表于 2024-8-4 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797300&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 22:42</a>
+怎么没变化 现在直接少条腿了</blockquote>
+一宝哪来的硬币再去点个被动啊
+难道活动从者拉了120把硬币用掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  yangun22  
+##### 13461#       发表于 2024-8-4 23:05
+
+太过弱智的操作，但凡有个玩游戏的都能看出问题，现在的玩家对这种事情也敏感的很，不知道哪个弱智拍板的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 13462#       发表于 2024-8-4 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这友情池什么时候能开100抽啊.....趁着周年大成功翻倍想搓丸子.....仍旧还要先慢慢点友情池
+
+*****
+
+####  xy1041  
+##### 13463#       发表于 2024-8-4 23:09
+
+要抽20多个，我为了给藤乃120上次up已经抽了十几个了，在国服顶着一年千里眼都能被背刺，真有你的啊yls<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xy1041  
+##### 13464#       发表于 2024-8-4 23:11
+
+<img src="https://img.saraba1st.com/forum/202408/04/231123n0ouho8totuo03tz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_4652.JPG</strong> (533.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 23:11 上传
+
+哦，限定四星只需要17个哦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 13465#       发表于 2024-8-4 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797678&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-4 23:04</a>
+
+一宝哪来的硬币再去点个被动啊
+
+难道活动从者拉了120把硬币用掉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以不是少了条腿（
+

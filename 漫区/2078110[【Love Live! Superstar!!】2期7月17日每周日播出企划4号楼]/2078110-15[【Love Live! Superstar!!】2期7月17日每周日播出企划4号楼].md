@@ -945,3 +945,14 @@ s2e11的时候薇恩自己都说如果香音不去自己也要想办法去维也
 
 <img src="https://p.sda1.dev/18/e53f720e04fbd5638421b1e0a9f4f980/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ruffian  
+##### 20815#       发表于 2024-8-4 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797229&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-08-04 22:35:45</a>
+s2e11的时候薇恩自己都说如果香音不去自己也要想办法去维也纳。如果家里的要求是再拿冠军，薇恩也会低头 ...</blockquote>那光考虑k组了，5组和猫组又是怎么回事？星1的海报恋恋站左位，想必戏份一定跟右边的可可同等分量吧？星2海报除了巨大的香音，后面的人又哪里符合剧情了？跳进新世界封面的星星当初也是各种分析，结果什么含义都没有就是乱点的，这海报也就新世界的队形换个角度没有手拉手，pv那几秒钟的新画面怎么看都不是12集拼的，估计就开头两三集
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -393,3 +393,14 @@ Tempest Rising应该还行
 Tempest Rising应该还行</blockquote>
 玩过demo，不太行，寻路有一种红警2的美。而且这两年的游戏似乎只要demo什么德行，正式版就原封不动搬上来，你以为一年半年的肯定对缺点有优化，不存在的。
 
+
+*****
+
+####  jedipiggy  
+##### 44#       发表于 2024-8-4 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65796944&amp;ptid=2193467" target="_blank">寇马可 发表于 2024-8-4 22:10</a>
+
+玩过demo，不太行，寻路有一种红警2的美。而且这两年的游戏似乎只要demo什么德行，正式版就原封不动搬上来 ...</blockquote>
+那算了 老老实实等神话时代
+

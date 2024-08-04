@@ -6167,3 +6167,22 @@ neta认得全吗，我是差不多
 
 看看是不是P的图，好像不太是应该是真的改完设计的实物图
 
+
+*****
+
+####  holoan  
+##### 9410#         楼主| 发表于 2024-8-3 10:52
+
+[https://x.com/azjump2/status/1819566211149320396](https://x.com/azjump2/status/1819566211149320396)
+
+danye今天也出勤了
+
+*****
+
+####  holoan  
+##### 9411#         楼主| 发表于 2024-8-4 23:13
+
+miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的时候全都给我哭！
+
+评论区：都要哭得没眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3049,3 +3049,17 @@ op的断句还是白色世界
 拯救世界不靠大国铁骑只靠勇者是否也是一种幽默？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">打最终boss是民间人士没问题，但在这之前呢，闪4创都有各方助力的吧
 
+
+*****
+
+####  ravend233  
+##### 2424#       发表于 2024-8-4 23:09
+
+ 本帖最后由 ravend233 于 2024-8-4 23:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没资源了，文字描述凑合凑合吧
+
+或者终章来个各国合力凑个超级大火箭才能把高达送上天，如果最开始那玩意运力只够送个卫星的话（（<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

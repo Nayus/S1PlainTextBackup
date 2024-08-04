@@ -996,3 +996,18 @@ s2e11的时候薇恩自己都说如果香音不去自己也要想办法去维也
 
 还记得二期鱼和pay对e9的说法么。
 
+
+*****
+
+####  ads147147  
+##### 20820#       发表于 2024-8-4 23:30
+
+ 本帖最后由 ads147147 于 2024-8-4 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797756&amp;ptid=2078110" target="_blank">ruffian 发表于 2024-8-4 23:09</a>
+那光考虑k组了，5组和猫组又是怎么回事？星1的海报恋恋站左位，想必戏份一定跟右边的可可同等分量吧？星2海 ...</blockquote>
+日升预告片一般就是开头一集。新Liella这事可大可小吧，花田创作一般就是一集解决问题，最多拖两集。
+
+至于期待加入这事，且不说星团2期的时候，隔壁虹as加入秀明的时候也是声优盾拉满。。。。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

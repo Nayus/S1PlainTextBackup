@@ -3063,3 +3063,20 @@ op的断句还是白色世界
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  lxshhh  
+##### 2425#       发表于 2024-8-4 23:26
+
+再信社长亿次！本来想订电击20周年的，就是那挂画实在是太丑了反而把上缴欲望给浇灭了，啧啧
+
+*****
+
+####  ravend233  
+##### 2426#       发表于 2024-8-4 23:29
+
+这次特典就两张新绘挂画（电击那个已经出了一万个周边了所有不算新绘），值得买的除了普通版就sofmap和wgo，电击纯纯怨种上供<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

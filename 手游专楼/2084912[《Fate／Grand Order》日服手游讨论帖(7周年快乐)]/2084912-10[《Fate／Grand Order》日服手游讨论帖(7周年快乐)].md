@@ -1776,3 +1776,88 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 就是为了让结晶粉爆米的，还做梦会发善心呢？
 
+
+*****
+
+####  alucardcz  
+##### 13472#       发表于 2024-8-4 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797953&amp;ptid=2084912" target="_blank">الطائر 发表于 2024-8-4 23:19</a>
+
+如果不改硬币系统、不洗点，大概有3种解决方法：
+
+1.每点满10级技能（3个常规技能、5个辅助技能）就返还30 ...</blockquote>
+就应该用新的货币开 就算他很扣给的很少也不是问题 也算是一种福利了 大家估计也就笑笑过去了
+
+现在这玩意真不知道怎么才能想出来的
+
+*****
+
+####  格林卡罗尔  
+##### 13473#       发表于 2024-8-4 23:24
+
+难得见到日推这么火热，恐怕还是第一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过有一说一，感觉这cd-1意义不大，能减cd的从者基本自己cd都特别长，我看来看去感觉只有5cd30np的从者有用<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 13474#       发表于 2024-8-4 23:24
+
+看了下，日本这边基本也是喷，推上词条也一直挂着，这次是真的搞砸了，选择装死的话明年第二部完了就准备一起埋了要<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xy1041  
+##### 13475#       发表于 2024-8-4 23:25
+
+120无非是厨力放出和想要轻松6加成，我之前看着千里眼拉了120公主和仇凛，已经爽了许多90++轻松6加成了，抽个6宝无非是已经5宝的复刻的时候顺手下去捞一捞的事
+现在起手就8宝了，那没意思了，何况之前3被动120拉满了的话进铸造圣杯界面会把这个从者的硬币优先显示在最前面，虽然我没干过，但是万一有人拿多出来的硬币去造圣杯了呢，纯纯的欺诈，yls你该死啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 13476#       发表于 2024-8-4 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797993&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-4 23:23</a>
+
+就是为了让结晶粉爆米的，还做梦会发善心呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你倒是开宝具上限啊 开成10宝满宝至少不会得罪课佬了 你说是不是
+
+*****
+
+####  alucardcz  
+##### 13477#       发表于 2024-8-4 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798031&amp;ptid=2084912" target="_blank">xy1041 发表于 2024-8-4 23:25</a>
+
+120无非是厨力放出和想要轻松6加成，我之前看着千里眼拉了120公主和仇凛，已经爽了许多90++轻松6加成了，抽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲个笑话  120级公主是最惨的那个  大概率是开不出质变被动的
+
+
+*****
+
+####  xy1041  
+##### 13478#       发表于 2024-8-4 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798093&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 23:30</a>
+讲个笑话  120级公主是最惨的那个  大概率是开不出质变被动的</blockquote>
+哦，我还没点第3个被动，真要论起来我是最大受益者<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  alucardcz  
+##### 13479#       发表于 2024-8-4 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798110&amp;ptid=2084912" target="_blank">xy1041 发表于 2024-8-4 23:31</a>
+
+哦，我还没点第3个被动，真要论起来我是最大受益者
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是受益 是幸存者（
+

@@ -824,3 +824,14 @@ py码：100104725198，安B服。
 
 新情报看完觉得烂完了
 
+
+*****
+
+####  atomicink  
+##### 46608#       发表于 2024-8-4 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65792114&amp;ptid=1712412" target="_blank">想吃芋泥软包 发表于 2024-8-4 14:13</a>
+
+过2.7剧情尼莫水兵说他们只剩19人了，不列颠那一个怎么死的</blockquote>
+妖兰把船打穿了，掉下去一个
+

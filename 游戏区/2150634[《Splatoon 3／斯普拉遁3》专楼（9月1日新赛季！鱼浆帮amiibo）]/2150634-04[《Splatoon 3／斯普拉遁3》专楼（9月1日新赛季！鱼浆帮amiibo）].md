@@ -88,3 +88,23 @@
 
 这图鱼虎连续两把左路翻盘了
 
+
+*****
+
+####  shirolin  
+##### 4939#       发表于 2024-8-4 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793985&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-8-4 17:49</a>
+皮勇这把吸墨机掩护鱼虎翻盘太帅了</blockquote>
+直呼牛逼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 4940#       发表于 2024-8-4 18:25
+
+太刀在这些t0武器面前还是有点小丑
+

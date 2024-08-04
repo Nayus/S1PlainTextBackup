@@ -447,3 +447,11 @@ fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" 
 太空艾蕾卡面：</blockquote>
 extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙芙实装了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rooarr  
+##### 13363#       发表于 2024-8-4 18:23
+
+太空艾蕾好像强度一般啊，不用抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

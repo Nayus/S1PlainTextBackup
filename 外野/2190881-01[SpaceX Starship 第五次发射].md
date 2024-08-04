@@ -653,3 +653,14 @@ SpaceX公布了S30静点官照和导流槽慢镜头
 猛禽计划是到第几代才是完全体？</blockquote>
 v5，后面还有LEET
 
+
+*****
+
+####  leviathan  
+##### 44#       发表于 2024-8-4 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789925&amp;ptid=2190881" target="_blank">YoumuChan 发表于 2024-8-4 05:34</a>
+
+好像说管线都集成到了主体结构里，放弃一部分可维护性来换性能和降低量产难度。 ...</blockquote>
+卧槽好看，果然好看才是王道，原先那鸟巢般的管线一看就感觉是手工业制品，现在的才是真正的工业制品
+

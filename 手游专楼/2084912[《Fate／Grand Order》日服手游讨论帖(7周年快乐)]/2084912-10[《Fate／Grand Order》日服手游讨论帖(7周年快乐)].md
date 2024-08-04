@@ -2063,3 +2063,27 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 泳二池要是没大的，可能要首次出现周年之后石头还有剩余的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13500#       发表于 2024-8-5 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799312&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-5 02:04</a>
+
+漏油香槟开得太早了，我觉得很有可能无事发生
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 奶一口百分百无事发生
+
+*****
+
+####  khxooo  
+##### 13501#       发表于 2024-8-5 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799312&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-5 02:04</a>
+漏油香槟开得太早了，我觉得很有可能无事发生
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版  ...</blockquote>
+怎么可能有事发生，叶良树摆明就是割韭菜，怎么可能给你来通用硬币这东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

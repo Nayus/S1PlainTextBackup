@@ -243,3 +243,13 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 还是线条粗点好看，新纳一哉能不能改回去<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  l⑨th_Knight  
+##### 91#       发表于 2024-8-5 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人这么中意杀戮尖塔吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

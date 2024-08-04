@@ -1885,3 +1885,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好几个三宝的从者小丑点了ex强化那个被动，这下卡羁绊开不了cd-1小丑了
 
+
+*****
+
+####  希望之花  
+##### 13483#       发表于 2024-8-5 00:08
+
+那个好感度条初始值最好能和绊等级挂钩，比如5绊就起始lv5，或者说5绊每提1级起始好感度就+1，现在这个系统周回挺难打出lv10
+

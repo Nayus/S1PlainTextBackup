@@ -108,3 +108,15 @@
 
 太刀在这些t0武器面前还是有点小丑
 
+
+*****
+
+####  shirolin  
+##### 4941#       发表于 2024-8-4 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794275&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-8-4 18:25</a>
+太刀在这些t0武器面前还是有点小丑</blockquote>
+第一局但凡换成中刷不至于翻成这样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

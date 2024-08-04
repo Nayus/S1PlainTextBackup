@@ -1068,3 +1068,13 @@ gbc第八集（修正掌那集）不是好评如潮吗，后面也就逐渐下�
 
 我跟你们说，星二熟肉我至今没敢看，估计也不打算看了，星三我先看泥潭反响再决定看不看这集。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 20827#       发表于 2024-8-5 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797058&amp;ptid=2078110" target="_blank">凡人 发表于 2024-8-4 22:19</a>
+liella 3 ：内战</blockquote>
+星团3～ 裂啦最后之日
+

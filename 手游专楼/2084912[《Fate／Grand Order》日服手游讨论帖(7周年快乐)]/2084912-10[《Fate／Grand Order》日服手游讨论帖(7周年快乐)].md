@@ -1634,3 +1634,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 追了210石头，5星礼装满破，同时艾蕾第二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  plok201  
+##### 13458#       发表于 2024-8-4 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波越是花钱越是重度的玩家越受罪，轻度玩家点个NP了事羁绊还是6的倒是一身轻松，没想到周年缺的欢乐在这里补上了
+

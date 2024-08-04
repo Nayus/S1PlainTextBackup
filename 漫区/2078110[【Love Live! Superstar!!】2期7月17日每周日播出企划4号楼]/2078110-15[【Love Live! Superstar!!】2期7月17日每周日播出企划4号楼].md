@@ -926,3 +926,22 @@ s2e11的时候薇恩自己都说如果香音不去自己也要想办法去维也
 
 二期那个海报也只应证了大香传吧，你硬要说边缘的蓝绿还特地给你整一集出来玩play，不符合海报的配比啊，恋那么大一个也不就只配一集，夏美我记得也不是很大，她能分两集呢。
 
+
+*****
+
+####  ads147147  
+##### 20813#       发表于 2024-8-4 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65797351&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-4 22:46</a>
+二期那个海报也只应证了大香传吧，你硬要说边缘的蓝绿还特地给你整一集出来玩play，不符合海报的配比啊，恋 ...</blockquote>
+除了樱小路有个全身其他人都差不多小小的就半拉身子，樱小路的戏份确实是最多的，第一集就见了所有成员，演了两集香樱传，后面还有单独两集旅游景点，大香独一份的话，樱小路独2份也没错啊，和这两个比其他人哪有那么多集。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  仟音一心  
+##### 20814#       发表于 2024-8-4 22:53
+
+<img src="https://p.sda1.dev/18/e53f720e04fbd5638421b1e0a9f4f980/image.jpg" referrerpolicy="no-referrer">
+

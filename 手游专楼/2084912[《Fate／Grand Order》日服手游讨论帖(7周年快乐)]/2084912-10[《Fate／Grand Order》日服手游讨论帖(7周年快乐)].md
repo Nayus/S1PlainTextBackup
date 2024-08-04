@@ -167,3 +167,136 @@
 
 6张护符先出了1个....继续<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 13335#       发表于 2024-8-4 17:14
+
+福袋赌到烟雾镜，艾蕾也抽到了
+
+fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 13336#       发表于 2024-8-4 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FGO，下载，270石，ALL IN，无事发生，FGO，卸载
+
+*****
+
+####  v22325  
+##### 13337#       发表于 2024-8-4 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草不要啊  没出
+
+*****
+
+####  Jamaisvu  
+##### 13338#       发表于 2024-8-4 17:15
+
+好感度对宝具的影响：buddy加即死成功率，darling无视防御+无敌贯通，destiny给星星，十个等级依次提升宝具威力。
+
+附带强化解除和即死。
+
+*****
+
+####  cckuku  
+##### 13339#       发表于 2024-8-4 17:15
+
+这技能组，被动自带弱体无效3次，太夸张了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 13340#       发表于 2024-8-4 17:15
+
+送的石头无事发生
+
+*****
+
+####  alucardcz  
+##### 13341#       发表于 2024-8-4 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793719&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-4 17:14</a>
+
+6张护符先出了1个....继续</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跳 豹 跳 豹 跳
+
+*****
+
+####  Jamaisvu  
+##### 13342#       发表于 2024-8-4 17:17
+
+艾蕾自带70充能，感觉宝具回收如果不是废了就是飞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 13343#       发表于 2024-8-4 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793733&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 17:15</a>
+
+跳 豹 跳 豹 跳</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/04/171708k29blptugt5ygdsu.png" referrerpolicy="no-referrer">
+
+<strong>2222.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 17:17 上传
+
+跳你个妹妹....歪了...气死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13344#       发表于 2024-8-4 17:17
+
+三破这背景我瞎了，其他都很好
+
+
+*****
+
+####  シャル  
+##### 13345#       发表于 2024-8-4 17:22
+
+直接进去免费石头10连熄灯
+
+<img src="https://img.saraba1st.com/forum/202408/04/172203ubbpbkwlp37pbmhd.png" referrerpolicy="no-referrer">
+
+<strong>28DB6384-1055-480E-9D10-1638E02F80F5.png</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 17:22 上传
+
+2宝艾蕾
+
+这女人真是太好出了
+
+*****
+
+####  保罗赫伯特  
+##### 13346#       发表于 2024-8-4 17:24
+
+ 本帖最后由 保罗赫伯特 于 2024-8-4 17:25 编辑 
+
+虽然泳装一池看起来不是很吸引力，但还是先留一点石头吧，保不准有大的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13347#       发表于 2024-8-4 17:24
+
+这抽卡特效感觉不如兽尼啊，感觉是兽关灯+公主特效缝的一个动画……
+
+*****
+
+####  cckuku  
+##### 13348#       发表于 2024-8-4 17:26
+
+太君这都能忍住不炎上也真是神人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -10103,7 +10103,7 @@
     "newtitle": "[地下城里的人们 TV动画化 2024年7月]",
     "lastedit": 1722546727,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2191617": {
@@ -15849,10 +15849,10 @@
     "update": false
   },
   "2193695": {
-    "totalreply": 108,
+    "totalreply": 109,
     "title": "[王泪同季销量已经卖不过野炊了 同世代续作算不算debuff]",
     "newtitle": "[王泪同季销量已经卖不过野炊了 同世代续作算不算debuff]",
-    "lastedit": 1722793690,
+    "lastedit": 1722805807,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16565,6 +16565,15 @@
     "newtitle": "[海贼在国内的讨论度好像一直不如火影？]",
     "lastedit": 1722792019,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2144309": {
+    "totalreply": 287,
+    "title": "[APEX石油杯决赛进行中]",
+    "newtitle": "[APEX石油杯决赛进行中]",
+    "lastedit": 1722806176,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

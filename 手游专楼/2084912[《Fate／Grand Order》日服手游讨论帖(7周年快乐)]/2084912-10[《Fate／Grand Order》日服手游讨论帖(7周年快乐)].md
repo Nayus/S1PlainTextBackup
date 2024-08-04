@@ -954,3 +954,94 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 然后QP本打到最后还是9</blockquote>
 白纸freed的QP本？能打出即死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13405#       发表于 2024-8-4 19:58
+
+感觉减cd除了那几张卡也没那么有用啊 除了7cd红卡巨幅提升 6cd可以早一轮开技能
+
+蓝绿卡要绑cd服还得自己有减cd才能用 隔壁把这个和初始np并列是否有点
+
+*****
+
+####  TheLoof  
+##### 13406#       发表于 2024-8-4 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794955&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 19:56</a>
+
+白纸freed的QP本？能打出即死吗</blockquote>
+伤害根本不够，不敢去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布伦史塔德  
+##### 13407#       发表于 2024-8-4 19:59
+
+<img src="https://img.saraba1st.com/forum/202408/04/200017yke057t7y5n2k7hu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:00 上传
+
+*****
+
+####  保罗赫伯特  
+##### 13408#       发表于 2024-8-4 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794977&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 19:59</a>
+
+伤害根本不够，不敢去</blockquote>
+这样啊，回头看看别人的测试数据吧
+
+syl 隔壁发的好感度叠加规则
+
+<img src="https://img.saraba1st.com/forum/202408/04/200232n6v4j46mvsjyzwwz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (323.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:02 上传
+
+
+*****
+
+####  alucardcz  
+##### 13409#       发表于 2024-8-4 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795012&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 20:02</a>
+
+这样啊，回头看看别人的测试数据吧
+
+syl 隔壁发的好感度叠加规则</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你刷个本还要动脑怎么加好感  说直白点除了整活的谁会去记这个  还用在周回上
+
+*****
+
+####  TheLoof  
+##### 13410#       发表于 2024-8-4 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795012&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-4 20:02</a>
+
+这样啊，回头看看别人的测试数据吧
+
+syl 隔壁发的好感度叠加规则</blockquote>
+不用看，人物技能写的很清楚
+
+我已经是最高触发了，除了令咒其他拉满
+
+不会有比我那个配置更高的触发效率了，硬要改的话可以把梅莉留场让OC再+1
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13411#       发表于 2024-8-4 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听隔壁说11区也开始冲硬币了？ 有没有可能
+

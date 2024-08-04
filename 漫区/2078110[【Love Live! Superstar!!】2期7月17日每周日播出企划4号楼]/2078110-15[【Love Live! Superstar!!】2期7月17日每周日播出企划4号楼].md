@@ -456,3 +456,26 @@ md一个入队角色咋又继续小丑塑造啊，三回啊!三回啊!md前面�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  笋狐  
+##### 20768#       发表于 2024-8-4 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐小姐的戏份当然会有，就比如打包卖花大师甄选欢喜冤家的时候扮那个黑脸役
+
+*****
+
+####  starring  
+##### 20769#       发表于 2024-8-4 20:02
+
+staff表出了，京极花田还挂在上面，提早烧香吧
+
+<img src="https://img.saraba1st.com/forum/202408/04/200149x4mx6uoxx2wu7dne.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240804200117.jpg</strong> (46.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 20:01 上传
+

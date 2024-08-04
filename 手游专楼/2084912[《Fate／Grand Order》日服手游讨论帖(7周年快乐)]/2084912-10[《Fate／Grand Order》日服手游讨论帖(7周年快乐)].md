@@ -1893,3 +1893,65 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 那个好感度条初始值最好能和绊等级挂钩，比如5绊就起始lv5，或者说5绊每提1级起始好感度就+1，现在这个系统周回挺难打出lv10
 
+
+*****
+
+####  TheLoof  
+##### 13484#       发表于 2024-8-5 00:19
+
+把埃蕾补了3宝然后拉到100级
+
+唯一的感想就是你为什么不是群30
+
+但凡是群30我觉得所有的缺点都可以忍
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13485#       发表于 2024-8-5 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798525&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-5 00:08</a>
+
+那个好感度条初始值最好能和绊等级挂钩，比如5绊就起始lv5，或者说5绊每提1级起始好感度就+1，现在这个系统 ...</blockquote>
+明明是好感度，5绊之后就不加了，真的很奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13486#       发表于 2024-8-5 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798641&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 00:19</a>
+
+把埃蕾补了3宝然后拉到100级
+
+唯一的感想就是你为什么不是群30
+
+但凡是群30我觉得所有的缺点都可以忍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3多尴尬 5啊！
+
+*****
+
+####  TheLoof  
+##### 13487#       发表于 2024-8-5 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798669&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 00:23</a>
+
+3多尴尬 5啊！</blockquote>
+其实3宝就够了，点个2和5
+
+我不需要120级，拉过一次以后就没兴趣了，狗粮和QP缺口太大_(:з」∠)_
+
+*****
+
+####  alucardcz  
+##### 13488#       发表于 2024-8-5 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798682&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 00:24</a>
+
+其实3宝就够了，点个2和5
+
+我不需要120级，拉过一次以后就没兴趣了，狗粮和QP缺口太大_(:з」∠)_ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时代变了！以后不会有人拉120了 纯纯小丑行为（
+

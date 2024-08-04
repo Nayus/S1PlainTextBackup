@@ -2242,3 +2242,219 @@ beast，牛逼
 
 （某种意义上也算水仙？）
 
+
+*****
+
+####  alucardcz  
+##### 13269#       发表于 2024-8-4 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793369&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:33</a>
+
+到现在为止，是
+
+138+170+36+10=354
+
+应该还有转发的翻倍，100个左右</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这354至少有100 大多数人都拿不到吧
+
+*****
+
+####  隰有苌楚  
+##### 13270#       发表于 2024-8-4 16:34
+
+托勒密复刻
+
+*****
+
+####  Jamaisvu  
+##### 13271#       发表于 2024-8-4 16:35
+
+<blockquote>希望之花 发表于 2024-8-4 16:34
+没有泳装二期从者吗</blockquote>
+既然一期是ciel，二期我奶一个泳装公主！
+
+*****
+
+####  洛克萨斯  
+##### 13272#       发表于 2024-8-4 16:36
+
+宇宙艾蕾也是森井么？感觉比宇宙凛画的好
+
+*****
+
+####  angelooo  
+##### 13273#       发表于 2024-8-4 16:37
+
+事故了笑死
+
+（他们强行复活了角神
+
+*****
+
+####  Jamaisvu  
+##### 13274#       发表于 2024-8-4 16:37
+
+<img src="https://img.saraba1st.com/forum/202408/04/163735klcz8fzpck6yefk5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240804_163723.jpg</strong> (169.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-4 16:37 上传
+
+咕哒子这身好潮啊，新衣服预订（大误）
+
+*****
+
+####  TheLoof  
+##### 13275#       发表于 2024-8-4 16:38
+
+更新一下，到现在为止，是
+
+138+170+36+10+100=454
+
+单抽护符没算
+
+按阿叶自己统计的，最多是190*3=570个石头的量
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13276#       发表于 2024-8-4 16:38
+
+有570？  
+
+*****
+
+####  森兰丸  
+##### 13277#       发表于 2024-8-4 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我虽然没开过被动技能但几个打手硬币都用来升120了....没想到还是能被背刺
+
+*****
+
+####  隰有苌楚  
+##### 13278#       发表于 2024-8-4 16:38
+
+<img src="https://p.sda1.dev/18/daf39f9a1e55d579276ed091358dbe4d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13279#       发表于 2024-8-4 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793420&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-4 16:38</a>
+
+我虽然没开过被动技能但几个打手硬币都用来升120了....没想到还是能被背刺</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开心吗 豹豹 我很后悔升120（
+
+*****
+
+####  GuDaZi  
+##### 13280#       发表于 2024-8-4 16:39
+
+还有活动从者怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 13281#       发表于 2024-8-4 16:40
+
+看情况吧，不是所有人都需要CD-1
+
+就怕那种红卡6CD，逼着你开的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13282#       发表于 2024-8-4 16:40
+
+我是确定一二三星的三个被动都开了一级才开始拿硬币搓圣杯的，结果又开了俩重量级，感觉被背叛了...
+
+*****
+
+####  angelooo  
+##### 13283#       发表于 2024-8-4 16:40
+
+虽然我没有开五星120的资格但我开了不少20np啊，算是这次最烂的活了
+
+*****
+
+####  alucardcz  
+##### 13284#       发表于 2024-8-4 16:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动从者反而简单 用叶子换呗 没必要卡你
+
+*****
+
+####  Jamaisvu  
+##### 13285#       发表于 2024-8-4 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793444&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:40</a>
+
+看情况吧，不是所有人都需要CD-1
+
+就怕那种红卡6CD，逼着你开的</blockquote>
+白公主：<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">好日子要来了
+
+*****
+
+####  TheLoof  
+##### 13286#       发表于 2024-8-4 16:41
+
+草，福袋不知道选什么了，要去赌牢青了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13287#       发表于 2024-8-4 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793444&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 16:40</a>
+
+看情况吧，不是所有人都需要CD-1
+
+就怕那种红卡6CD，逼着你开的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主王姐都是质变。可我王姐拉120了 能退回100级吗
+
+*****
+
+####  cckuku  
+##### 13288#       发表于 2024-8-4 16:42
+
+牢蕾，你复活了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 13289#       发表于 2024-8-4 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793448&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:40</a>
+
+活动从者反而简单 用叶子换呗 没必要卡你</blockquote>
+活动从者大部分用不到-1cd吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13290#       发表于 2024-8-4 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65793462&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-4 16:41</a>
+
+公主王姐都是质变。可我王姐拉120了 能退回100级吗</blockquote>
+往好处想，这么久估计也快15羁绊下班了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13291#       发表于 2024-8-4 16:44
+
+<blockquote>Jamaisvu 发表于 2024-8-4 16:41
+白公主：好日子要来了</blockquote>
+擦，我公主好像还真没开，但反正只有一宝……
+

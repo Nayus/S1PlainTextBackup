@@ -2132,3 +2132,13 @@ kamimamita</blockquote>
 抚子和抚公是不是也是谐音</blockquote>
 公比子多一个长音
 
+
+*****
+
+####  strider_oy  
+##### 620#       发表于 2024-8-5 00:32
+
+余切换了衣服之后，连动作也变成像大姐姐了啊
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

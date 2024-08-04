@@ -1041,3 +1041,22 @@ gbc……不是也已经被花田干成一坨了吗？gbc那扇巴掌回不等�
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Kfly  
+##### 20824#       发表于 2024-8-5 00:32
+
+ 本帖最后由 Kfly 于 2024-8-5 00:36 编辑 
+
+gbc第八集（修正掌那集）不是好评如潮吗，后面也就逐渐下滑，能达到星S1E7~8的境界还是不至于的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+星三整的这另立中央最好两三集讲完，要是作为半季以上的冲突来写画面不要太美，上头的人和下头的人是怎么做到让这种剧情通过的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 20825#       发表于 2024-8-5 00:35
+
+看小花和结那都发了期待，虽然知道是要求。但还是不想看到她们复刻九人落泪的场景。
+

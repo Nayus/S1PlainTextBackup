@@ -65,3 +65,34 @@
 
 实话实说，没注意也没注意之前的放出的游戏实机图片，不过看别人的说法应该是接近杀戮尖塔。
 
+
+*****
+
+####  空洞骑士  
+##### 75#       发表于 2024-8-4 15:54
+
+2025年内发售。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">今年玩不到了
+
+*****
+
+####  jackyhuang  
+##### 76#       发表于 2024-8-4 15:55
+
+还没开始录音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  宛若青空  
+##### 77#       发表于 2024-8-4 15:55
+
+明年好，今年玩（买）不过来了
+
+*****
+
+####  kisskick  
+##### 78#       发表于 2024-8-4 15:59
+
+结果还真是打牌
+

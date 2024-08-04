@@ -763,3 +763,21 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 几年前有幸亲眼看过猫和蛇打架，真是太劲爆了
 
+
+*****
+
+####  离心  
+##### 1975#       发表于 2024-8-4 16:01
+
+ 本帖最后由 离心 于 2024-8-4 16:04 编辑 
+
+前几周看的猫打蛇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小雪请从小猫开始练起吧
+
+<img src="https://img.saraba1st.com/forum/202408/04/160113rmc8mtft50x8y2c5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240722_184359.jpg</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:01 上传
+

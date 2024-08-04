@@ -1437,3 +1437,93 @@ ciel弓阶吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.pn
 
 2024-8-4 15:57 上传
 
+
+*****
+
+####  TheLoof  
+##### 13188#       发表于 2024-8-4 16:00
+
+这么多年终于有素材追踪了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13189#       发表于 2024-8-4 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前依然全是辣鸡的典中典玩意
+
+*****
+
+####  TheLoof  
+##### 13190#       发表于 2024-8-4 16:01
+
+<img src="https://img.saraba1st.com/forum/202408/04/160148gbe5ozuuozz0upxu.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722758592486.png</strong> (186.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:01 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/160224n8i5i8cg5f9l7fua.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722758628283.png</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:02 上传
+
+*****
+
+####  TheLoof  
+##### 13191#       发表于 2024-8-4 16:03
+
+让人做核心盘真的是神经病，只能说好歹比打指令卡强化有用
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13192#       发表于 2024-8-4 16:03
+
+弱智。。。。我缺令咒吗（
+
+
+*****
+
+####  angelooo  
+##### 13193#       发表于 2024-8-4 16:04
+
+以后令咒可以一天回三画了
+
+*****
+
+####  angelooo  
+##### 13194#       发表于 2024-8-4 16:05
+
+<blockquote>alucardcz 发表于 2024-8-4 16:03
+弱智。。。。我缺令咒吗（</blockquote>
+为了告诉你令咒真的每天都能生小令咒（拖走
+
+*****
+
+####  TheLoof  
+##### 13195#       发表于 2024-8-4 16:06
+
+<img src="https://img.saraba1st.com/forum/202408/04/160640lixp8nyyo3d9n5od.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722758886057.png</strong> (211.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:06 上传
+
+<img src="https://img.saraba1st.com/forum/202408/04/160730resse9hpm646b4b6.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1722758935069.png</strong> (1.1 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 16:07 上传
+

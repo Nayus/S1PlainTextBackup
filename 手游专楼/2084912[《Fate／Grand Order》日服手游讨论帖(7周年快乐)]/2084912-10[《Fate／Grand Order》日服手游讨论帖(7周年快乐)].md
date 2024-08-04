@@ -455,3 +455,36 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 
 太空艾蕾好像强度一般啊，不用抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 13364#       发表于 2024-8-4 18:26
+
+自身弱体无效三次，然后一技能给全队下毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13365#       发表于 2024-8-4 18:30
+
+<img src="https://img.saraba1st.com/forum/202408/04/182949c5ikmahnqnmmasij.jpg" referrerpolicy="no-referrer">
+
+<strong>232323.jpg</strong> (426.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 18:29 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘻嘻（
+
+*****
+
+####  alucardcz  
+##### 13366#       发表于 2024-8-4 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794268&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-8-4 18:23</a>
+
+太空艾蕾好像强度一般啊，不用抽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要按照满好感+点满减cd算啊（
+

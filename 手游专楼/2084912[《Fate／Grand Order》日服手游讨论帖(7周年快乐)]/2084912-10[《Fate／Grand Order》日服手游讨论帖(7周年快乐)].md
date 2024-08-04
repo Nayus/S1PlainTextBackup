@@ -1971,3 +1971,13 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议明年开始，十大福利改成十大福报
 
+
+*****
+
+####  kulanyee  
+##### 13491#       发表于 2024-8-5 01:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看大伙还是太天真了。以后连续一周完成每日任务送1枚通用硬币，只限复刻活动商店搬空给10枚通用硬币。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日活难题解决，复刻没人玩难题解决。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么你没时间？喝八宝粥，请~
+

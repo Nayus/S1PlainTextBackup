@@ -2045,3 +2045,11 @@ ED拿着薙刀的月火酱好帅啊，后面剧情有说法吗没看过原作</b
 
 kamimamita<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 612#       发表于 2024-8-4 13:36
+
+这集没太看懂，乖抚子就这么退场了？斧乃木为什么要开大？
+

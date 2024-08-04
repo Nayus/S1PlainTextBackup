@@ -1642,3 +1642,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波越是花钱越是重度的玩家越受罪，轻度玩家点个NP了事羁绊还是6的倒是一身轻松，没想到周年缺的欢乐在这里补上了
 
+
+*****
+
+####  alucardcz  
+##### 13459#       发表于 2024-8-4 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到 4星开满要几宝啊？ 4星真爱党要上天了？
+

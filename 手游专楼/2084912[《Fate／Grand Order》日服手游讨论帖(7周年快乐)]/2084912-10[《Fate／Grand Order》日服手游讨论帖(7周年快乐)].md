@@ -904,3 +904,53 @@ extra攻击会召唤背景里的那一团怪，这在某种意义上也算是芙
 
 所以硬幣還是會留下來，一直看它長草中
 
+
+*****
+
+####  保罗赫伯特  
+##### 13402#       发表于 2024-8-4 19:51
+
+兽艾蕾好感等级4的即死率增加数值有解锁出来吗，基础数值是60%<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 13403#       发表于 2024-8-4 19:53
+
+我真是吐了
+
+我给埃蕾带了天草那张5星礼装，4次OC2的那玩意儿，甚至还有梅莉的OC+1
+
+然后QP本打到最后还是9
+
+你就非要去海边是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  保罗赫伯特  
+##### 13404#       发表于 2024-8-4 19:56
+
+ 本帖最后由 保罗赫伯特 于 2024-8-4 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794935&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-4 19:53</a>
+
+我真是吐了
+
+我给埃蕾带了天草那张5星礼装，4次OC2的那玩意儿，甚至还有梅莉的OC+1
+
+然后QP本打到最后还是9</blockquote>
+白纸freed的QP本？能打出即死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

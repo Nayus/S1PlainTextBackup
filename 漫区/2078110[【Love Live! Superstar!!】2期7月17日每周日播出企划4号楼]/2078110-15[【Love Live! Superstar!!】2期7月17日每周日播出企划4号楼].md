@@ -221,3 +221,13 @@ yellow同阵容
 
 后面应该是没啥变化了，也许安可后的MC2会变？
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20743#       发表于 2024-8-4 18:03
+
+各种压箱底的好货都掏出来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

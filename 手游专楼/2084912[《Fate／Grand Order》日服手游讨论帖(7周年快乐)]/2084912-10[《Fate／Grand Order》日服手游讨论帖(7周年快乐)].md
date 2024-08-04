@@ -393,3 +393,21 @@ fgo神game<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" 
 
 泳装储备不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 13358#       发表于 2024-8-4 17:56
+
+我只拿了240石头，还有的在哪里？
+
+*****
+
+####  TheLoof  
+##### 13359#       发表于 2024-8-4 17:57
+
+数值解包怎么还没出来，好急
+
+没具体解包感觉就是2宝封顶完事儿了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

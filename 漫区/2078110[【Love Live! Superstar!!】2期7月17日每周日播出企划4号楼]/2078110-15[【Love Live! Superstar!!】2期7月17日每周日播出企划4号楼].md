@@ -1312,3 +1312,15 @@ CGディレクター：黒﨑豪
 
 花田是不是和雨野是soulmate<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20843#       发表于 2024-8-5 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804817&amp;ptid=2078110" target="_blank">引路人形当下哥 发表于 2024-8-5 16:48</a>
+花田是不是和雨野是soulmate</blockquote>
+花田这种文学世家出身入门搞动画编剧的大概率看不起搞黄油的雨野<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

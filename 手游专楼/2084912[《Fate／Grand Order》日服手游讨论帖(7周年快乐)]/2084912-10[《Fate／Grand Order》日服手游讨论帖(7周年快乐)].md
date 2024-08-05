@@ -2411,3 +2411,19 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 啊？！他们疯了？索尼下kpi指标压力那么大？</blockquote>
 这可是索尼啊，几个月前给地狱潜兵2搞强制绑定psn的事情还历历在目，整这种为了年报扇玩家脸的事情不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zechins  
+##### 13530#       发表于 2024-8-5 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">公主一个技能没开，臭咸鱼也只开得起一个技能，现在是不是无脑-cd？
+摩根开了np起手，但是刷下绊应该还能开一个，也是点-cd吗
+
+*****
+
+####  cenhr  
+##### 13531#       发表于 2024-8-5 10:32
+
+不过今年福利真糟糕，最好的还是7周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

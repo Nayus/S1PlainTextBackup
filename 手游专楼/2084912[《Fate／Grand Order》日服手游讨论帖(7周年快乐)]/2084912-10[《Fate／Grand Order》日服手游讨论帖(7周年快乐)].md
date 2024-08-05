@@ -3005,3 +3005,30 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 技術力不足，算式懶得重整重算可能是真的
 
+
+*****
+
+####  cckuku  
+##### 13580#       发表于 2024-8-5 14:48
+
+想改真的很好改吧？增加每抽到一宝给的硬币和每羁绊给的硬币。鞠躬斯密马赛升120的硬币因为技术问题无法回退，然后把全部人的附加技能都回退，再每人补偿100石头，日本人立刻就会在下面欢呼神运营了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13581#       发表于 2024-8-5 14:49
+
+职介星盘在2.0完结前最多只能填满四五个吧，除非后面再多发点星灰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真准备开第三部就另说了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13582#       发表于 2024-8-5 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803605&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-5 14:48</a>
+
+想改真的很好改吧？增加每抽到一宝给的硬币和每羁绊给的硬币。鞠躬斯密马赛升120的硬币因为技术问题无法回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想改有一万种方法 但你看他们是想改的吗（
+

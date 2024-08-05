@@ -11520,3 +11520,32 @@ go团那张找了半天没找到，算了。五周年的图之前就有发过，
 
 那个全员但是按热门cp分站位的图是什么地方出现的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">wsd巨魔起来还是很会玩的
 
+
+*****
+
+####  星天观测  
+##### 21766#       发表于 2024-8-5 14:49
+
+七周年这套图的画风我挺喜欢的，可惜没有母鸡卡<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21767#       发表于 2024-8-5 14:52
+
+手游四周年主视觉图？那张我找一下没水印的。
+
+*****
+
+####  NODY  
+##### 21768#       发表于 2024-8-5 14:53
+
+七周年这套很神奇的是除了蝶和ag外核心位都不在中间<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21769#       发表于 2024-8-5 14:54
+
+kkr可以算中间吧，chu²也是视觉引导的中心。
+

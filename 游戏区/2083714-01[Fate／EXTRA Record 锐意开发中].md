@@ -291,3 +291,13 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 这次新pv是不是第一次出现万南的标</blockquote>
 是，换发行商了
 
+
+*****
+
+####  kyonkoism  
+##### 96#       发表于 2024-8-5 09:36
+
+起码杀戮尖塔的游戏模式是真的让我更期待游戏了，纯纯的加分项
+
+原本的包剪锤战斗模式弱智的一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

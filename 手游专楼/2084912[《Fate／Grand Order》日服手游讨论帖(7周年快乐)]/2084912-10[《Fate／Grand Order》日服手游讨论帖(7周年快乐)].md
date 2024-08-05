@@ -3275,3 +3275,80 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 反正我尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 13604#       发表于 2024-8-5 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804331&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 16:03</a>
+
+我就暴论了，除非你一次都没用过这个狗币系统（包括搓圣杯）你才有资格说目前为止自己没有受到伤害 ...</blockquote>
+受伤也有，主要是开13技能
+
+不过我大部分人本来就开不出13技能的……
+
+*****
+
+####  miro112233  
+##### 13605#       发表于 2024-8-5 16:15
+
+ 本帖最后由 miro112233 于 2024-8-5 16:17 编辑 
+
+这次还真的挺严重的，日本人像是昨天被泳装艾蕾落地砸傻了今天才回归味儿来似的，X上几个带头冲锋的推特点赞数今天明显飞增，几个关键词（宝具8，从者硬币）现在实时都是在骂的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+另外以前的圣杯铸造界面会把原来3个被动+120拉满的从者硬币顶到最前面并且没有“还有强化余地”提示这事，在空降新被动之后算不算犯法还真的有讨论余地，至少日本人已经有人拿着截图去冲消费者厅了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+最关键的是这次已经打破了玩家的信任，虽然不知道被动678存不存在，但150级已经是游戏里的数据了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大十字紅朔  
+##### 13606#       发表于 2024-8-5 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804467&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 16:14</a>
+
+还在这洗 有意思吗？
+
+你直说你没受影响不就完事了？</blockquote>
+不是洗什么，我只是感觉这事情不会有结果的
+
+除非真的能影响大部分玩家那种
+
+*****
+
+####  alucardcz  
+##### 13607#       发表于 2024-8-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804495&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 16:16</a>
+
+不是洗什么，我只是感觉这事情不会有结果的
+
+除非真的能影响大部分玩家那种</blockquote>
+的确不会有结果 因为这是日本游戏 日本人什么样子大家都懂
+
+但你在这瞎jb喊只有少部分人受影响不是在洗是什么？
+
+*****
+
+####  矿学家  
+##### 13608#       发表于 2024-8-5 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">昨天用送的石头出了一个泳装老婆，支持氪金母猪狠狠冲官方啊。
+
+
+*****
+
+####  大十字紅朔  
+##### 13609#       发表于 2024-8-5 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804507&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 16:17</a>
+
+的确不会有结果 因为这是日本游戏 日本人什么样子大家都懂
+
+但你在这瞎jb喊只有少部分人受影响不是在洗是 ...</blockquote>
+你是最伤害的那部分玩家，我理解你心情不好，但你没必要对我发火啦……
+
+不然我删贴算了，就这样吧
+

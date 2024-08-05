@@ -11647,3 +11647,14 @@ akorin和laytae中间有空隙，可以认为mas6没拆
 
 从六周年半，五周年半来看，应该是没有的，甚至还可能收获一张五周年半那样子的鬼图
 
+
+*****
+
+####  光MIKAN  
+##### 21780#       发表于 2024-8-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804118&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-5 15:42</a>
+
+喷了，还得接着找</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一次乐一次
+

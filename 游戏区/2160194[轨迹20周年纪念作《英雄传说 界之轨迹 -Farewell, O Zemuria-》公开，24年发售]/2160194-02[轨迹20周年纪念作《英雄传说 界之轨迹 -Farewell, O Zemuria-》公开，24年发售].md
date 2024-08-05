@@ -3140,3 +3140,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 那九月岂不是没东西放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2434#       发表于 2024-8-5 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九月放个序章直播拉倒
+

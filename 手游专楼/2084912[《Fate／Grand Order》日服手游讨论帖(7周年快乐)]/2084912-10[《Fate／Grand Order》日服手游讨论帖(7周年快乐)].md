@@ -2394,3 +2394,20 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 反正不管什么强度都会有一大把人抽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 13528#       发表于 2024-8-5 10:23
+
+突然想到其实技能或者宝具加一个加OC，那应该比现在的卑呆梅摩呆梅强不少，女梅林也能起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 13529#       发表于 2024-8-5 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800594&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-8-5 09:59</a>
+啊？！他们疯了？索尼下kpi指标压力那么大？</blockquote>
+这可是索尼啊，几个月前给地狱潜兵2搞强制绑定psn的事情还历历在目，整这种为了年报扇玩家脸的事情不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

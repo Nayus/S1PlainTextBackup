@@ -3624,3 +3624,15 @@ Screenshot_20240805_234612.jpg
 
 双向究极手！
 
+
+*****
+
+####  岸波  
+##### 368#       发表于 2024-8-6 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808877&amp;ptid=2188108" target="_blank">downnote 发表于 2024-8-5 23:07</a>
+2D作里面都没有利特族？像小人帽这种有天空神殿的都没有利特族</blockquote>
+按照官方给的时间线走的话，利特族是直到风之杖才由佐拉族进化而来的。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

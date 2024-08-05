@@ -951,3 +951,14 @@ XenoGear-&gt;XenoSaga-&gt;XenoBlade，接下来会是啥，Gear对Blade，那Sag
 
 xb3 卖这b样，你怎么还在？
 
+
+*****
+
+####  king520kyo  
+##### 103#       发表于 2024-8-6 01:04
+
+异度装甲-异度传说-异度神剑-异度？？
+盲猜一个异度灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

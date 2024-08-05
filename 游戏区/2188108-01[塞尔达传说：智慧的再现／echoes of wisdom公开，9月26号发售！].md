@@ -3582,3 +3582,18 @@ Screenshot_20240805_234612.jpg
 
 看完了，我急了。好想玩，塞尔达传说智慧的再现啊。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SAKURAJIMAI  
+##### 363#       发表于 2024-8-6 00:56
+
+急急急急急急
+
+*****
+
+####  hl氏  
+##### 364#       发表于 2024-8-6 00:56
+
+预想外的大制作，本以为可能是比梦见岛大点的规模，从PV看来地图意外的很大，还用上了马
+

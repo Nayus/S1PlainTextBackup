@@ -345,3 +345,13 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 而且原版记得从boss到小怪都是1v1，现在小怪有1vn之后不知道从者战会不会有变化。
 
+
+*****
+
+####  宛若青空  
+##### 102#       发表于 2024-8-6 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805074&amp;ptid=2083714" target="_blank">——裂锦—— 发表于 2024-8-5 17:08</a>
+这次的pv麻婆走路的几部动作有点僵，表情也是。之前两个pv动作演出挺流畅来着，开场慎二的表情也挺自然。有 ...</blockquote>
+我也有点这种感觉，这片剪辑也不太好，后面实机还有个地方掉帧了，只能说还在打磨阶段吧，希望完善好角色细节再上（前几个片演出是真挺不错的
+

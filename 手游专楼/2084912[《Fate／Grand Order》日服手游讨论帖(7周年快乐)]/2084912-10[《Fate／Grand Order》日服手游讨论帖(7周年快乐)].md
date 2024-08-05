@@ -3208,3 +3208,70 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 我就暴论了，除非你一次都没用过这个狗币系统（包括搓圣杯）你才有资格说目前为止自己没有受到伤害 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">大胆点 有没有可能游戏都没玩过 那就肯定不会受到伤害
 
+
+*****
+
+####  yangun22  
+##### 13598#       发表于 2024-8-5 16:08
+
+这次问题1是背刺拉120的人，你以为是完整体结果变成残缺体甚至还不如人家没拉120但是有硬币剩下来点技能的
+
+还有圣杯铸造这个之前全拉满的从者硬币会给你排到最前面，而且不会像其他没拉满的那样提示还有用处，这完全是陷阱，这基本是可以拉去找消费者厅投诉的问题了
+
+
+*****
+
+####  alucardcz  
+##### 13599#       发表于 2024-8-5 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804391&amp;ptid=2084912" target="_blank">yangun22 发表于 2024-8-5 16:08</a>
+
+这次问题1是背刺拉120的人，你以为是完整体结果变成残缺体甚至还不如人家没拉120但是有硬币剩下来点技能的
+
+ ...</blockquote>
+看隔壁说圣杯铸造那块硬币溢出图都改掉了
+
+*****
+
+####  大十字紅朔  
+##### 13600#       发表于 2024-8-5 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804250&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 15:57</a>
+
+你在说什么呢 伤害的是所有人  我就问你以后谁敢拉120</blockquote>
+真不是所有人，我玩了8年FGO，一个120也没有，大部分限定五星是宝具1
+
+每个卡池充几大千抽卡的人是极少数啊！极少数啊！<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 13601#       发表于 2024-8-5 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804430&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 16:11</a>
+
+看隔壁说圣杯铸造那块硬币溢出图都改掉了</blockquote>
+对啊，更新后又显示还有强化余地了，这的确算是诈骗了
+
+*****
+
+####  alucardcz  
+##### 13602#       发表于 2024-8-5 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804453&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 16:13</a>
+
+真不是所有人，我玩了8年FGO，一个120也没有，大部分限定五星是宝具1
+
+每个卡池充几大千抽卡的人是极少数 ...</blockquote>
+还在这洗 有意思吗？
+
+你直说你没受影响不就完事了？
+
+*****
+
+####  清河子  
+##### 13603#       发表于 2024-8-5 16:14
+
+反正我尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

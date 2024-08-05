@@ -11639,3 +11639,11 @@ akorin和laytae中间有空隙，可以认为mas6没拆
 
 我说的日服，半周年能有新视觉图吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21779#       发表于 2024-8-5 16:16
+
+从六周年半，五周年半来看，应该是没有的，甚至还可能收获一张五周年半那样子的鬼图
+

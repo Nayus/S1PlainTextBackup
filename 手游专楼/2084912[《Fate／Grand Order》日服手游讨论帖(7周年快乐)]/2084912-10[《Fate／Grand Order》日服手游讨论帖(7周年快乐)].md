@@ -2785,3 +2785,14 @@ YLS:你看，重複再抽寶5角色是否有了新的意義啊
 
 所以不管怎么想都觉得这个操作过于离谱了，而且终极目标就是为了逼氪的话他自然不会也不需要考虑什么补救方案……算了，放弃思考了
 
+
+*****
+
+####  alucardcz  
+##### 13561#       发表于 2024-8-5 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65802676&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 13:11</a>
+
+所以不管怎么想都觉得这个操作过于离谱了，而且终极目标就是为了逼氪的话他自然不会也不需要考虑什么补救方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信我99。99% 就这样 什么补偿都不会有
+

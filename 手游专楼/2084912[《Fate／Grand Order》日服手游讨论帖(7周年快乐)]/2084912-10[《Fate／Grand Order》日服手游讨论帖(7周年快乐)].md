@@ -2200,3 +2200,26 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 猛刷了一天水艾蕾羁绊才发现那个好感度系统和卡的羁绊等级不是绑定，还以为是10拌满配，实际根本就是马戏
 
+
+*****
+
+####  シャル  
+##### 13514#       发表于 2024-8-5 09:40
+
+艾蕾这个，现在因为bug，没法开局就好感4
+
+所以100即死没法用
+
+
+*****
+
+####  cenhr  
+##### 13515#       发表于 2024-8-5 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800387&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-5 09:40</a>
+
+艾蕾这个，现在因为bug，没法开局就好感4
+
+所以100即死没法用</blockquote>
+什么笑话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

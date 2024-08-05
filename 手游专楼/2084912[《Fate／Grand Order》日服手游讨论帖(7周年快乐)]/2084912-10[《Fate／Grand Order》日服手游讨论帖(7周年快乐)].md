@@ -3352,3 +3352,14 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 不然我删贴算了，就这样吧
 
+
+*****
+
+####  alucardcz  
+##### 13610#       发表于 2024-8-5 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804579&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 16:23</a>
+
+你是最伤害的那部分玩家，我理解你心情不好，但你没必要对我发火啦……</blockquote>
+我已经很客气了  要不然帮你挂到隔壁看看会发生什么？
+

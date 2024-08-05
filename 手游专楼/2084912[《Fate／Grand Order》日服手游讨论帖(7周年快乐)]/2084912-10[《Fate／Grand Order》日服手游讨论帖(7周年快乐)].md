@@ -2176,3 +2176,11 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 推特转发那活动是100个</blockquote>
 任务是240，推特转发是100，如果从者强化齐人就72，才412？好吝啬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  棍机凹升龙  
+##### 13511#       发表于 2024-8-5 09:23
+
+昨天的600石抽了个寂寞, 还好早上靠100石头出了
+

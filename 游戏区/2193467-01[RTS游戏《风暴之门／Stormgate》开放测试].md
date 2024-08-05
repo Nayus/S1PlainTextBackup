@@ -415,3 +415,16 @@ Tempest Rising应该还行</blockquote>
 神话时代封测水平挺稳的，但垃圾机翻对国内是严重debuff，而且以软子的操性我丝毫不怀疑他们会在九月首发 ...</blockquote>
 记得神话时代把“berserker”（狂战士）翻译成了“菁英双剑兵”。
 
+
+*****
+
+####  Limpidity  
+##### 46#       发表于 2024-8-5 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65789527&amp;ptid=2193467" target="_blank">爱护动物抓根宝 发表于 2024-8-4 01:37</a>
+
+神话时代封测水平挺稳的，但垃圾机翻对国内是严重debuff，而且以软子的操性我丝毫不怀疑他们会在九月首发 ...</blockquote>
+AOE复活后官中一直就有点神经，aoe4甚至到前几周都还又修了一回翻译
+
+aom估计也好不到哪里去
+

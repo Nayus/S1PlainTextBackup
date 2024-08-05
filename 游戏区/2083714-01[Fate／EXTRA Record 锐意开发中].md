@@ -281,3 +281,13 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 这次新pv是不是第一次出现万南的标
 
+
+*****
+
+####  宛若青空  
+##### 95#       发表于 2024-8-5 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800121&amp;ptid=2083714" target="_blank">Muteki_Link 发表于 2024-8-5 09:12</a>
+这次新pv是不是第一次出现万南的标</blockquote>
+是，换发行商了
+

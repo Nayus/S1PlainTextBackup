@@ -6219,3 +6219,28 @@ miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的
 
 不过到底有没有嘉宾按惯例后面还会有一场关于sololive的告知直播上会发表，也就是现在无责任瞎猜
 
+
+*****
+
+####  holoan  
+##### 9414#         楼主| 发表于 2024-8-5 16:40
+
+[https://www.youtube.com/playlist ... bgmcEzK9MxCk5oDDUrc](https://www.youtube.com/playlist?list=OLAK5uy_kJ0sg8xej1tt3wbgmcEzK9MxCk5oDDUrc)
+
+更新一下，今天频道多了一个新玩意，里面有各种曲子而且MV和纯音频混在一起不知道干啥用的
+
+*****
+
+####  holoan  
+##### 9415#         楼主| 发表于 2024-8-5 22:52
+
+<img src="https://img.saraba1st.com/forum/202408/05/225215wsofvjq2ezuqekak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 22:52 上传
+
+来自洛圣都的温暖
+

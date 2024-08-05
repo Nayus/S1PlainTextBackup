@@ -4175,3 +4175,19 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 这帮废物又可以借口推迟终章了吧，2025年12月也是2025年23333</blockquote>
 我忘了 他们说2025“出”终章还是  “出完” 终章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  壳壳牛  
+##### 13691#       发表于 2024-8-5 18:52
+
+死活不肯增加硬币获取手段...
+唉算了，总比没有好
+
+*****
+
+####  清河子  
+##### 13692#       发表于 2024-8-5 18:56
+
+我就想知道我的4星bb是不是永远等不到五个追加一起点亮的那一天了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">md活动4星厨人下人啊
+

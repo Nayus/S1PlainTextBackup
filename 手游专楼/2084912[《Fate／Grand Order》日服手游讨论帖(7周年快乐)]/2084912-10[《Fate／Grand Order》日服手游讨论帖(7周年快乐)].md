@@ -2538,3 +2538,17 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  angelooo  
+##### 13542#       发表于 2024-8-5 11:28
+
+<blockquote>TheLoof 发表于 2024-8-5 11:09
+公主无脑减CD
+
+她几乎没有需要留充能的情况，更何况充能还带个20宝威
+
+</blockquote>
+我摩根只有一宝，已经开了20np了，不补宝只能刷到14绊才能开第二个，算了算了，反正她现在也很少上班
+

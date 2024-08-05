@@ -493,3 +493,46 @@ act部分大概率不如国产手游吧，又不像RELINK那样有白金协力�
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+*****
+
+####  希望之异热同心  
+##### 53#       发表于 2024-8-5 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">比起大家都想大高老师招个靠谱剧本，我更想大高老师招个靠谱UI，XB系列真就没一作UI是人玩的，点开菜单总会脑淤血
+
+*****
+
+####  VVhaleVoice  
+##### 54#       发表于 2024-8-5 11:27
+
+风怒编辑
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  VVhaleVoice  
+##### 55#       发表于 2024-8-5 11:32
+
+ 本帖最后由 VVhaleVoice 于 2024-8-5 11:34 编辑 
+
+高桥的剧本很完美了，
+
+XB3用破碎离奇甚至中二小屁孩乌托邦的世界观和社会制度讲述了平凡和平常生活的伟大<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+有句话讲得好，三流作品无病呻吟，二流作品回应时代的呼声，一流作品解答永恒的命题。
+
+XB3，伟大！
+
+*****
+
+####  whzfjk  
+##### 56#       发表于 2024-8-5 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801662&amp;ptid=2193968" target="_blank">希望之异热同心 发表于 2024-8-5 11:26</a>
+
+比起大家都想大高老师招个靠谱剧本，我更想大高老师招个靠谱UI，XB系列真就没一作UI是人玩的，点开菜单总会 ...</blockquote>
+所以说是社风狂野，还在 welcome
+

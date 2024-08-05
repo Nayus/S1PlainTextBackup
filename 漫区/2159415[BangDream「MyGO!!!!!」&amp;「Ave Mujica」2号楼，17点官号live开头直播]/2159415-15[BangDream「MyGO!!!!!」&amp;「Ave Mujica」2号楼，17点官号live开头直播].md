@@ -11812,3 +11812,13 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">asl没狗的，我对着首字母和护照号看过了
 
+
+*****
+
+####  傘木希美  
+##### 21798#       发表于 2024-8-5 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抢不到就不给官牛送钱了，来回机酒太贵了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+

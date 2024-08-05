@@ -3566,3 +3566,11 @@ Screenshot_20240805_234612.jpg
 
 **的鬼佬也说这作应该叫林克传说。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 361#       发表于 2024-8-5 23:56
+
+游戏官网里出现了一些pv没有出现过的新图和短视频，有兴趣的可以去看看。
+

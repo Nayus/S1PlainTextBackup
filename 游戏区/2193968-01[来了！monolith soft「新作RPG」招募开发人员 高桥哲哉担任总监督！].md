@@ -818,3 +818,13 @@ XBY！</blockquote>
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  UltramanPain  
+##### 88#       发表于 2024-8-5 18:58
+
+ 本帖最后由 UltramanPain 于 2024-8-5 18:59 编辑 
+
+但是这个我感觉没法证明新作不是异度吧，当年找异度1de开发人员的招聘写的也是新rpg ​​​
+

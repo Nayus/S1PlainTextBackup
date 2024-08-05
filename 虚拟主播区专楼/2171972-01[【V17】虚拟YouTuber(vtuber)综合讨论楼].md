@@ -1471,3 +1471,13 @@ https://x.com/yue_fsp/status/1819692819382239450
 
 这还真是角色互换了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  voizerick  
+##### 562#       发表于 2024-8-5 18:59
+
+2020年以来的大乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ec君救一下啊
+

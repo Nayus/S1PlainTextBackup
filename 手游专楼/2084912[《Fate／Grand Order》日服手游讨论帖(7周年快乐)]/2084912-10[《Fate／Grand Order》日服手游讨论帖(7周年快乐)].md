@@ -2443,3 +2443,55 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 反正NP是最重要的
 
+
+*****
+
+####  xiongxingyu  
+##### 13534#       发表于 2024-8-5 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800518&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-5 09:52</a>
+
+公主暂且不论，烟雾镜确实是无条件30充能：</blockquote>
+双烟地铺打多了，一直下意识以为烟老板是50+20（反正都是溢出的），这样看来烟老板的规格真是高啊，不愧是蘑菇追星产物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 13535#       发表于 2024-8-5 11:01
+
+<blockquote>beer 发表于 2024-8-5 09:34
+猛刷了一天水艾蕾羁绊才发现那个好感度系统和卡的羁绊等级不是绑定，还以为是10拌满配，实际根本就是马戏 ...</blockquote>
+一顿猴戏，伤害不如白字无特攻烟雾镜，充能也不如233
+
+
+*****
+
+####  beer  
+##### 13536#       发表于 2024-8-5 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801310&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-5 11:01</a>
+
+一顿猴戏，伤害不如白字无特攻烟雾镜，充能也不如233</blockquote>
+卡面和宝具好看都是强度换的，还好因为效果字多一宝停手没抽下去
+
+*****
+
+####  清河子  
+##### 13537#       发表于 2024-8-5 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800956&amp;ptid=2084912" target="_blank">zechins 发表于 2024-8-5 10:32</a>
+公主一个技能没开，臭咸鱼也只开得起一个技能，现在是不是无脑-cd？
+摩根开了np起手，但是刷下绊应该还能开 ...</blockquote>
+一模一样的两个问题，同问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jackyhuang  
+##### 13538#       发表于 2024-8-5 11:05
+
+说起来其他服务器也都已经开从者硬币了吧，日服现在喂这坨史明后年其他服也跟着喂吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

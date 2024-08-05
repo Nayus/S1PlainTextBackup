@@ -3597,3 +3597,14 @@ Screenshot_20240805_234612.jpg
 
 预想外的大制作，本以为可能是比梦见岛大点的规模，从PV看来地图意外的很大，还用上了马
 
+
+*****
+
+####  liekong  
+##### 365#       发表于 2024-8-6 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808877&amp;ptid=2188108" target="_blank">downnote 发表于 2024-8-5 23:07</a>
+
+2D作里面都没有利特族？像小人帽这种有天空神殿的都没有利特族</blockquote>
+小人帽毕竟在官方时间线中很靠前，利特族在设定中出现的官方时间线的位置很晚...
+

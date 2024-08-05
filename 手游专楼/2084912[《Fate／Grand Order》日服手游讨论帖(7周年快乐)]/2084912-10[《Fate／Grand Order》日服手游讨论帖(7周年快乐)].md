@@ -4337,3 +4337,11 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 2024年了，我TM还是缺黑灰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kulanyee  
+##### 13706#       发表于 2024-8-6 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我就摊牌了，2024年了还缺开服素材的肯定是变相豹跳
+

@@ -685,3 +685,11 @@ XB3已经圆了高桥GG的异度装甲梦了   下一作该重开一个世界�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">会是什么样的呢
 
+
+*****
+
+####  Link213  
+##### 75#       发表于 2024-8-5 14:21
+
+话说传闻中的小红帽arpg除了官网上挂的招聘图外，高桥自己有透露这游戏吗？
+

@@ -3124,3 +3124,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 还欠一版剧情pv呢不会就没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2432#       发表于 2024-8-5 14:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惯例来说八月中下旬一个三分钟的剧情PV吧，那个应该还是会有的，这次只是提前公布了OP
+

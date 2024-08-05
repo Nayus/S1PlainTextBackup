@@ -2876,3 +2876,27 @@ YLS:你看，重複再抽寶5角色是否有了新的意義啊
 
 推上的サーヴァントコイン趋势也没了
 
+
+*****
+
+####  poor  
+##### 13568#       发表于 2024-8-5 14:21
+
+yls是真不行，刚开始新官上任给活动4送金方块，送了几年后悔了开始不给复刻就硬长草，开了15绊送石头也后悔了，（疑似）开始临时加新被动回收石头，纹章不记得是谁干的了，一次性的没人用于是改出个开瓶器，还没人用只能取消，这系统才算能正常玩，但是之前的开瓶器就成了笑话。感觉做事都没个规划的。你游要是像以前一样什么都不改，再续个5年估计也没问题。当然也可能是蘑菇不想续了，赶紧收割一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 13569#       发表于 2024-8-5 14:22
+
+因为趋势变成鯖コイン这个短的了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 13570#       发表于 2024-8-5 14:22
+
+ 本帖最后由 AbigailWilliams 于 2024-8-5 14:24 编辑 
+
+硬币系统的本质就是让你抽盘子的。这种变相加氪金点的事情，全球手游运营都是敢干就做好被冲的预期的，结局一般也都是洗一波玩家，能和解的就玩，怎么都不能接受的就走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

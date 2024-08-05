@@ -11796,3 +11796,19 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难说哦，鸡的人气在国内其实不算低，真开了也说不定和萝一个待遇，抢票抢上天
 
+
+*****
+
+####  星天观测  
+##### 21796#       发表于 2024-8-5 23:48
+
+把钱送给黄牛真不如飞日本吧，如果能自己抢到另说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aloereed  
+##### 21797#       发表于 2024-8-5 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">asl没狗的，我对着首字母和护照号看过了
+

@@ -644,3 +644,14 @@ MONO这所谓新RPG IP制作宣言，最后成品应该不会变成ATLUS那个�
 我打个比方，假如崩坏星穹铁道是monolith soft做的，你们给几分？</blockquote>
 mono做手游不管做成怎样，出就给10分，因为攒到的钱始终会回流到单机，米不出单机0分。
 
+
+*****
+
+####  VVhaleVoice  
+##### 70#       发表于 2024-8-5 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

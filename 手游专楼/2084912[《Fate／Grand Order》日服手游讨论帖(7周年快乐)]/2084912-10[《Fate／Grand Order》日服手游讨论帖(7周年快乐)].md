@@ -2817,3 +2817,43 @@ YLS:你看，重複再抽寶5角色是否有了新的意義啊
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  yangun22  
+##### 13564#       发表于 2024-8-5 13:51
+
+性质不一样，别的还能说是制作者的坚持和单纯抠，但这次是背刺了又肝又氪的玩家，铸造圣杯那里还会把120技能全开的硬币放到最前面推荐你用掉呢，这次真敢这么装死那流失一批重度玩家几乎是不可避免的，那时候再来补偿也来不及了，其实现在也已经不太来得及了，毕竟有人会去拉8宝艾蕾和用福袋补硬币的，你补了这些人又要不满意了，基本可以判定为自杀了
+
+
+*****
+
+####  quanlix  
+##### 13565#       发表于 2024-8-5 13:54
+
+<img src="https://img.saraba1st.com/forum/202408/05/134727vf0lk2g7hllag2lh.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2u-f2ekZeT1kShs-lb.jpg</strong> (85.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/134732xqwr9g003iw2x99x.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2u-hnlbZsT1kShs-12g.jpg</strong> (170.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/134727llblhm5fqsmy5hif.jpg" referrerpolicy="no-referrer">
+
+<strong>f0Q2u-3rstZiT1kShs-12g.jpg</strong> (110.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 13:47 上传
+
+推上有人晒官方回复了，运营这次压根就没想着补硬币，反正这次更新不补以后补也还是背刺抽5宝以上的人，狗逼叶良树不干人事
+

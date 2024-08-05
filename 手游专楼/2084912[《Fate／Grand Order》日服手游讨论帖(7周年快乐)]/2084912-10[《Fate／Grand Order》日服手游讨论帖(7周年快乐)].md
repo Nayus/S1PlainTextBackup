@@ -2552,3 +2552,27 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 </blockquote>
 我摩根只有一宝，已经开了20np了，不补宝只能刷到14绊才能开第二个，算了算了，反正她现在也很少上班
 
+
+*****
+
+####  jackyhuang  
+##### 13543#       发表于 2024-8-5 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801408&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 11:09</a>
+公主无脑减CD
+
+她几乎没有需要留充能的情况，更何况充能还带个20宝威</blockquote>
+20NP公主找个好友奥伯隆再穿任意10充能衣服就能打两炮，看敌人配置找个有自充的就一个3T队伍出来了
+然后现在被动5点不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  シャル  
+##### 13544#       发表于 2024-8-5 11:36
+
+艾蕾蠢在蓝卡np率超低
+
+想的出来了的
+

@@ -11340,3 +11340,14 @@ S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  光MIKAN  
+##### 21757#       发表于 2024-8-5 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801240&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-8-5 10:55</a>
+
+谁说我们邦邦只会乱炖的，不说ykls这种那不是每次活动不是结婚就是婚后的。进入大学篇以后，花千和彩千都不 ...</blockquote>
+薰千呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

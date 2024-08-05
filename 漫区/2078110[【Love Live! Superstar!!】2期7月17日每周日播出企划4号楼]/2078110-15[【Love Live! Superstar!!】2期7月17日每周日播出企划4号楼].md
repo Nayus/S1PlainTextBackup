@@ -1190,3 +1190,16 @@ btw，你星是不是有什么人在和虹较劲啊，建议菜就得认，人�
 当然，之后live上出11人版 ...</blockquote>
 那头被火烧连营了费尽心思绕道，这头我不信，再来一把，MD精神分裂啊？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20837#       发表于 2024-8-5 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801484&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-5 11:16</a>
+
+那头被火烧连营了费尽心思绕道，这头我不信，再来一把，MD精神分裂啊？
+
+这种已经翻大车的方案他一个过来 ...</blockquote>
+你花现在各种觉得学园偶像不够摇滚，可不会各种整活。反正最后就是一句我写了两种剧本，京极选了现在这种就把自己摘干净了。
+

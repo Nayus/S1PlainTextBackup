@@ -2599,3 +2599,34 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 然后 ...</blockquote>
 不需要，配狂摩根就可以任意字符。摩根自己满被动2，开始摩根20给公主，奥伯龙1、2，第二回合公主3，摩根1，那么摩根就是30+30+20+20刚好100，第三回合就能开公主2了。
 
+
+*****
+
+####  eilot  
+##### 13547#       发表于 2024-8-5 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801187&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-8-5 10:50</a>
+
+我个人还是先开被动2，开始20NP就算对5加成对3t真的很影响配对思路。</blockquote>
+現在遊戲活動都是給各種起手就NP50和各種有用沒用的特效，
+
+只要自己有自充30，先點NP20，再加一張NP50卡就能即時寶具(大英雄表示又話一天只用一天，第一回合後就再見)
+
+最後一回合就是雙殺狐及奧伯隆一起充到100來極限輸出
+
+90++?愈來愈麻煩了，看雜兵組合及會掉甚麼職業的秘石，大多都是打一次領了200綠磚就算了
+
+白磚市場又不會刷新，換完就沒有，各職的秘石比起其他素材更缺
+
+*****
+
+####  jackyhuang  
+##### 13548#       发表于 2024-8-5 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801924&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-8-5 11:51</a>
+不需要，配狂摩根就可以任意字符。摩根自己满被动2，开始摩根20给公主，奥伯龙1、2，第二回合公主3，摩根 ...</blockquote>
+找机会让一些板凳队员上下班很不容易的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+前段时间NGA抄到套水摩根爱迪生陈宫我还用得正爽呢
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

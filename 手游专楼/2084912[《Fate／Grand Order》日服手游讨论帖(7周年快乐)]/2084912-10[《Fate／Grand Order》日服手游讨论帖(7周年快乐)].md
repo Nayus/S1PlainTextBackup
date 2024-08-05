@@ -4085,3 +4085,31 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  棍机凹升龙  
+##### 13682#       发表于 2024-8-5 17:41
+
+几个月笑死，日本的IT能力
+
+*****
+
+####  jackyhuang  
+##### 13683#       发表于 2024-8-5 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805401&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-5 17:34</a>
+那个抽卡计数器是不是有bug，我看召唤履历里抽了160发，但是计数器跟我说还要280发才保底
+
+还是说出货了会重 ...</blockquote>
+现在只是保证你330抽肯定能有一宝，准备1650抽肯定能五宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  alucardcz  
+##### 13684#       发表于 2024-8-5 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">我感觉我公主蹭到9羁绊他们那新系统可能还没做出来
+

@@ -11666,3 +11666,46 @@ akorin和laytae中间有空隙，可以认为mas6没拆
 
 fine，那就等26年鸡的视觉图吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 21782#       发表于 2024-8-5 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803520&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-5 14:40</a>
+
+go团那张找了半天没找到，算了。五周年的图之前就有发过，六周年的就不发了，毕竟加起来应该105张。 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/05/174022ha7uv75p8uvr9xvu.jpg" referrerpolicy="no-referrer">
+
+<strong>img_thumb_cd_08.jpg</strong> (136.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/174027s853lu6fz85qx5u3.jpg" referrerpolicy="no-referrer">
+
+<strong>img_kv_fullsize.jpg</strong> (533.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 17:40 上传
+
+*****
+
+####  skives  
+##### 21783#       发表于 2024-8-5 17:43
+
+go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1a不解释  
+##### 21784#       发表于 2024-8-5 17:43
+
+<img src="https://p.sda1.dev/18/c404a5b0c2d870c86628fca09c99c5b7/image.jpg" referrerpolicy="no-referrer">
+这量杯有点幽默
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

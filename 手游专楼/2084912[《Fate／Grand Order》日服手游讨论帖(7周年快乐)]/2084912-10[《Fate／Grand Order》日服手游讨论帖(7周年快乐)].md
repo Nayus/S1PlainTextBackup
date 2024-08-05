@@ -4113,3 +4113,26 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">我感觉我公主蹭到9羁绊他们那新系统可能还没做出来
 
+
+*****
+
+####  jackyhuang  
+##### 13685#       发表于 2024-8-5 17:56
+
+最痛的硬币搓杯子的事情解决了，再冲恐怕冲不出啥了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  beer  
+##### 13686#       发表于 2024-8-5 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804495&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 16:16</a>
+
+不是洗什么，我只是感觉这事情不会有结果的
+
+除非真的能影响大部分玩家那种</blockquote>
+什么不会有结果，上次在日本手游炎上可是搞到全部手游都必须公开抽取概率
+

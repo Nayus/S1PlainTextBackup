@@ -11822,3 +11822,13 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
 
+
+*****
+
+####  rollingusagi  
+##### 21799#       发表于 2024-8-6 00:19
+
+萝这次是我见过最恐怖的演唱会之一了，开票后5s内切完，一开后b站统计八成人没抢到，算上二开和三开估计最后也有六成人没票，live当晚外场几百个没票的站了两个半小时聚众开唱，保安都看无语了，我很好奇别的团会不会也有这种情况
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

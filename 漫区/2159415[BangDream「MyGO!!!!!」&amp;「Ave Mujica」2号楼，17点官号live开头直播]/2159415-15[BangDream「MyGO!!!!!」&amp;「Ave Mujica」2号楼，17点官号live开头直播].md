@@ -11588,3 +11588,54 @@ mas6和mskk怎么被拆了<img src="https://static.saraba1st.com/image/smiley/fa
 
 喷了，无字版的我还真没找到（萌娘百科那张没有字，但是油水印）
 
+
+*****
+
+####  rikaren  
+##### 21774#       发表于 2024-8-5 15:58
+
+<img src="https://img.saraba1st.com/forum/202408/05/155723v3z32chbu0gb9y38.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (30.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 15:57 上传
+
+搜索栏直接搜bangdream找到了，从来没有这般感觉自己像个弱智。并且清晰度也不咋样。
+
+*****
+
+####  星天观测  
+##### 21775#       发表于 2024-8-5 15:59
+
+半周年是啥时候，11月？
+
+*****
+
+####  rikaren  
+##### 21776#       发表于 2024-8-5 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804159&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-5 15:47</a>
+
+mas6和mskk怎么被拆了</blockquote>
+akorin和laytae中间有空隙，可以认为mas6没拆
+
+*****
+
+####  rikaren  
+##### 21777#       发表于 2024-8-5 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804269&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-5 15:59</a>
+
+半周年是啥时候，11月？</blockquote>
+周年3.16，半周年9.16（活动不一定这个时间开），还是说你说的国服?
+
+
+*****
+
+####  星天观测  
+##### 21778#       发表于 2024-8-5 16:05
+
+我说的日服，半周年能有新视觉图吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

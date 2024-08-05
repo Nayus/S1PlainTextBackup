@@ -3113,3 +3113,98 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 所以这个事情应该就这么算了
 
+
+*****
+
+####  alucardcz  
+##### 13590#       发表于 2024-8-5 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804110&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 15:41</a>
+
+这个系统伤害的只是少部分抽宝具6的人吧，这部分人在全体玩家里只占很小一部分
+
+甚至你现在马上开宝具8，他 ...</blockquote>
+你在说什么呢 伤害的是所有人  我就问你以后谁敢拉120
+
+*****
+
+####  eilot  
+##### 13591#       发表于 2024-8-5 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803614&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-5 14:49</a>
+
+职介星盘在2.0完结前最多只能填满四五个吧，除非后面再多发点星灰
+
+真准备开第三部就另说了 ...</blockquote>
+那些中級以上星灰，除了白紙化地球那些高難度外，原本還期待在活動內也會給的
+
+結果活動就只是在交換所內，給更多技能升到10階用的結晶
+
+
+*****
+
+####  jackyhuang  
+##### 13592#       发表于 2024-8-5 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804110&amp;ptid=2084912" target="_blank">大十字紅朔 发表于 2024-8-5 15:41</a>
+这个系统伤害的只是少部分抽宝具6的人吧，这部分人在全体玩家里只占很小一部分
+
+甚至你现在马上开宝具8，他 ...</blockquote>
+你楼上还在说自己拉的120没救了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在只有实装前没有把硬币用掉，还有余力去点新被动的算没受影响
+昨天看讨论有句挺经典的，“为什么玩家要为强化从者后悔啊”
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  alucardcz  
+##### 13593#       发表于 2024-8-5 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804264&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-5 15:59</a>
+
+那些中級以上星灰，除了白紙化地球那些高難度外，原本還期待在活動內也會給的
+
+結果活動就只是在交換所內 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">根本不用考虑开结点的东西  最基础的道具都不够呢 1天3把给这么点点 全点满还得多少年
+
+*****
+
+####  alucardcz  
+##### 13594#       发表于 2024-8-5 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804289&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-5 16:00</a>
+
+你楼上还在说自己拉的120没救了呢
+
+现在只有实装前没有把硬币用掉，还有余力去点新被动的算没受影响
+
+昨天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">严格来说救还是有救的  就是在抽1宝  但叫我抽那是不可能的
+
+*****
+
+####  jackyhuang  
+##### 13595#       发表于 2024-8-5 16:03
+
+对了，更新了但是没有修好感度的bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  angelooo  
+##### 13596#       发表于 2024-8-5 16:03
+
+我就暴论了，除非你一次都没用过这个狗币系统（包括搓圣杯）你才有资格说目前为止自己没有受到伤害
+
+*****
+
+####  alucardcz  
+##### 13597#       发表于 2024-8-5 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804331&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 16:03</a>
+
+我就暴论了，除非你一次都没用过这个狗币系统（包括搓圣杯）你才有资格说目前为止自己没有受到伤害 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">大胆点 有没有可能游戏都没玩过 那就肯定不会受到伤害
+

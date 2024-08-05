@@ -1324,3 +1324,12 @@ CGディレクター：黒﨑豪
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  仟音一心  
+##### 20844#       发表于 2024-8-5 23:15
+
+<img src="https://p.sda1.dev/18/a13e554632f2e505e21a7c921d62fb20/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/04b6cc125d6e3337712e529b20370557/image.jpg" referrerpolicy="no-referrer">
+

@@ -11718,3 +11718,19 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 狗来了，鸡应该也快了吧
 <img src="https://p.sda1.dev/18/82e5d2db9757f90d522df321f1e3e95e/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21786#       发表于 2024-8-5 23:17
+
+鸡今年应该不会来国内了，除非11月插一个
+
+
+*****
+
+####  cherryjia12  
+##### 21787#       发表于 2024-8-5 23:23
+
+又是虹馆。。
+

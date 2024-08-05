@@ -2146,3 +2146,22 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 烟雾镜和公主表示不服啊</blockquote>
 肯定是说技能啊，算上宝具那是有不少了，然而第一回合开不出来，没法让那些50冲的原地起爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 13508#       发表于 2024-8-5 08:58
+
+周年石头是送多少个？
+
+
+*****
+
+####  琴酒  
+##### 13509#       发表于 2024-8-5 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799985&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-5 08:58</a>
+
+周年石头是送多少个？</blockquote>
+推特转发那活动是100个
+

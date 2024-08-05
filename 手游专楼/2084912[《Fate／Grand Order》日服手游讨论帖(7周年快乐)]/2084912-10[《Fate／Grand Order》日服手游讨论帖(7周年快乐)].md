@@ -4262,3 +4262,11 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 兄弟你是不是看错了四星BB是活动从者，别说18宝是恶心的极意，哪怕我愿意去搞这个恶心的极意官方都完全没 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好意思看错了
 
+
+*****
+
+####  DARKGRAY  
+##### 13699#       发表于 2024-8-5 20:54
+
+活动从者也就找个机会再发一波币或者巡灵兑换直接增量的事情，前景是没啥好担心的，只是不能立即实现而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

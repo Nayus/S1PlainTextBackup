@@ -11734,3 +11734,26 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 又是虹馆。。
 
+
+*****
+
+####  akiomn  
+##### 21788#       发表于 2024-8-5 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像这是逸星的子公司？还是epud
+到时候一张票炒到来回日本一趟的钱都很可能
+
+*****
+
+####  星天观测  
+##### 21789#       发表于 2024-8-5 23:27
+
+就是马甲，只能说该看看狗u的实力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  滑稽Captain  
+##### 21790#       发表于 2024-8-5 23:28
+
+11月的asl上海很可能又有鸡狗啊
+

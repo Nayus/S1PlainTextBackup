@@ -2364,3 +2364,33 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">有珠牢青仇奶光都没,  但是最想要有珠和牢青,   果然来了奶光
 
+
+*****
+
+####  DARKGRAY  
+##### 13525#       发表于 2024-8-5 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800613&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-5 10:00</a>
+
+好感4即死加到100
+
+可以用</blockquote>
+那就是60翻倍啊，80%的怪要125%才保必死，100%的怪直接用回两个尼托就得了，术的还能加OC上125%呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  棍机凹升龙  
+##### 13526#       发表于 2024-8-5 10:11
+
+看了一眼仓库118的公主, 不上不下<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
+
+不过羁绊还没拉满倒是咸鱼的福利
+
+
+*****
+
+####  cckuku  
+##### 13527#       发表于 2024-8-5 10:15
+
+反正不管什么强度都会有一大把人抽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

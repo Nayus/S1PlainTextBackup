@@ -311,3 +311,19 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  空彦秋  
+##### 98#       发表于 2024-8-5 10:05
+
+这演示总觉得怪怪的，尤其过场CG，尼禄扑向女白，然后裙子被风吹动的效果，一种steam创意工坊的美感<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘘月姫  
+##### 99#       发表于 2024-8-5 10:14
+
+坐实wada描图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/609cec2e0aa50bd817ee3553138e513a/CMP_20240805101407953.jpg" referrerpolicy="no-referrer">
+

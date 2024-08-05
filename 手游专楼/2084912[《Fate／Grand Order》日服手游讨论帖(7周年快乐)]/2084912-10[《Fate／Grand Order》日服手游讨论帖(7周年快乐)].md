@@ -2323,3 +2323,44 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 打即死也只有60翻倍，不能必杀80%的怪，还不是一样坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  洛克萨斯  
+##### 13521#       发表于 2024-8-5 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800552&amp;ptid=2084912" target="_blank">yyzcacxg 发表于 2024-8-5 09:55</a>
+
+简单翻译了下昨天こやはん直播的内容
+
+概要</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊？！他们疯了？索尼下kpi指标压力那么大？
+
+*****
+
+####  CHCL3  
+##### 13522#       发表于 2024-8-5 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十护符豹了又抽了十护符复仇者礼装也抽到了我宣布这是神周年
+
+剩下的石头打算等泳1了，学姐宝具做的还挺不错的
+
+*****
+
+####  シャル  
+##### 13523#       发表于 2024-8-5 10:00
+
+<blockquote>DARKGRAY 发表于 2024-8-5 09:57
+打即死也只有60翻倍，不能必杀80%的怪，还不是一样坑</blockquote>
+好感4即死加到100
+
+可以用
+
+
+*****
+
+####  棍机凹升龙  
+##### 13524#       发表于 2024-8-5 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">有珠牢青仇奶光都没,  但是最想要有珠和牢青,   果然来了奶光
+

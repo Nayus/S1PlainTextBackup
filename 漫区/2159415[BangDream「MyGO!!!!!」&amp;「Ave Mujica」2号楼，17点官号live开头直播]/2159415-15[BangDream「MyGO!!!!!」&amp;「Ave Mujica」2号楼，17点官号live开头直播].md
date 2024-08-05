@@ -11263,3 +11263,29 @@ mujica角色形象没有完善，二创都束手束脚。
 
 —— 来自 Xiaomi 2201123C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  [皆神孝介]  
+##### 21751#       发表于 2024-8-5 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794574&amp;ptid=2159415" target="_blank">yicihanshu 发表于 2024-8-4 19:07</a>
+
+今日去了go咖
+
+—— 来自 Xiaomi 2201123C, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/05/100112azjj6tt6svkpzhvz.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-08-05_10-00-57.png</strong> (4.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 10:01 上传
+
+这个图片从昨天转到现在都没显示出来
+
+S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
+
+更新链接：[https://www.pgyer.com/xfPejhuq](https://www.pgyer.com/xfPejhuq) 密码eo
+

@@ -2103,3 +2103,18 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 真能爆米么？这次惹到的人可是为了完整体抽6宝的人，连几个结晶据点都没人给这事开脱，只能说真的想死了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  xiongxingyu  
+##### 13504#       发表于 2024-8-5 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798641&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 00:19</a>
+
+把埃蕾补了3宝然后拉到100级
+
+唯一的感想就是你为什么不是群30
+
+但凡是群30我觉得所有的缺点都可以忍</blockquote>
+一个震惊的事实是，你游开服到现在只有4个群30，其中只有C呆和暗狐是无条件的，梅芙限定男性和妖精，诺克娜雷阿要先上技能封印的debuff。所以说，不要小看唯一神的数值把控，人家就是来恶心你们的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

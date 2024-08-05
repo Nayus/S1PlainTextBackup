@@ -3574,3 +3574,11 @@ Screenshot_20240805_234612.jpg
 
 游戏官网里出现了一些pv没有出现过的新图和短视频，有兴趣的可以去看看。
 
+
+*****
+
+####  kuarwbwe  
+##### 362#       发表于 2024-8-6 00:09
+
+看完了，我急了。好想玩，塞尔达传说智慧的再现啊。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

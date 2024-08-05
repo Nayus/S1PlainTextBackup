@@ -663,3 +663,25 @@ mono做手游不管做成怎样，出就给10分，因为攒到的钱始终会�
 
 高桥哥哥，来个猛的吧，SWITCH2首发异度装甲重制版，新作RPG是异度装甲2（小红帽肯定快做完了）<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  任毒瘤  
+##### 72#       发表于 2024-8-5 14:06
+
+XB3已经圆了高桥GG的异度装甲梦了   下一作该重开一个世界了 
+
+*****
+
+####  SorroFrost  
+##### 73#       发表于 2024-8-5 14:07
+
+感觉不会是xb了，要么异度世界观其他作品，要么就是完全的全新作品，我是希望能先出个全新作
+
+*****
+
+####  Aeons  
+##### 74#       发表于 2024-8-5 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">会是什么样的呢
+

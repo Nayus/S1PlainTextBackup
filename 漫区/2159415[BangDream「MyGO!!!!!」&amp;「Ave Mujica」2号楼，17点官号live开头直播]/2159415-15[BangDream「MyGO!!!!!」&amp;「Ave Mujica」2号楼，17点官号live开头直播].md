@@ -11433,3 +11433,11 @@ tag数第三是彩花音来着吧，花薰千是大三角，彩花千也是大�
 
 心疼彩彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望十周年就卖卖各团团魂吧
 
+
+*****
+
+####  rikaren  
+##### 21762#       发表于 2024-8-5 14:14
+
+今年手游周年就是团魂图，五周年画的cp图，六周年画的单人图，明年贺图不确定会是什么方向，按位置分五组吗？
+

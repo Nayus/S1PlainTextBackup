@@ -3116,3 +3116,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杂志基本一期就五个角色，假设这个月上二期，下个月发售特辑一期，还能介绍15-20个人（
 
+
+*****
+
+####  一步成诗  
+##### 2431#       发表于 2024-8-5 14:08
+
+还欠一版剧情pv呢不会就没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

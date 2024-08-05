@@ -11449,3 +11449,74 @@ tag数第三是彩花音来着吧，花薰千是大三角，彩花千也是大�
 
 那也挺好的，我早就想看初华跟前辈们玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21764#       发表于 2024-8-5 14:40
+
+<img src="https://img.saraba1st.com/forum/202408/05/143326arw9qqcltnulq9nt.jpg" referrerpolicy="no-referrer">
+
+<strong>1710428540387.jpg</strong> (574.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143355cb0pb0psajv0svva.jpg" referrerpolicy="no-referrer">
+
+<strong>1710342034460.jpg</strong> (261.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143439ktttowokd0ou4m0e.jpg" referrerpolicy="no-referrer">
+
+<strong>1716441376178.jpg</strong> (585 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:34 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143459i2g3gzfj0hjnlskl.jpg" referrerpolicy="no-referrer">
+
+<strong>1710170848643.jpg</strong> (636.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:34 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143522sg98wij8egi0is13.jpg" referrerpolicy="no-referrer">
+
+<strong>1710082940476.jpg</strong> (552.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143537i5yxzz00xsqqyhqe.jpg" referrerpolicy="no-referrer">
+
+<strong>1710037734019.jpg</strong> (626.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/143557gg8eeallgcgpbll8.jpg" referrerpolicy="no-referrer">
+
+<strong>1710037806510.jpg</strong> (636.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 14:35 上传
+
+go团那张找了半天没找到，算了。五周年的图之前就有发过，六周年的就不发了，毕竟加起来应该105张。
+
+*****
+
+####  光MIKAN  
+##### 21765#       发表于 2024-8-5 14:43
+
+那个全员但是按热门cp分站位的图是什么地方出现的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">wsd巨魔起来还是很会玩的
+

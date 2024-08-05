@@ -2942,3 +2942,66 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 说老实话直接加4，5技能真是最蠢的做法，真想增加氪金点那应该做成开完前面3个技能外加拉满120级才能开4，5技能，这样搞反而不会有现在那么大动静<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13575#       发表于 2024-8-5 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一 你要骗课直接开宝具等级上限就完事了 开成10宝满  不但没有节奏还会有不少人称赞呢  无课也无所谓 反正不管他们的事情   能赚钱也不会得罪任何人 为什么要搞什么被动45？
+
+难道没这个技术力提宝具上限？
+
+*****
+
+####  cckuku  
+##### 13576#       发表于 2024-8-5 14:40
+
+ 本帖最后由 cckuku 于 2024-8-5 14:42 编辑 
+
+这种背刺玩家的行为比加新氪金点恶劣多了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放着不管只会越来越发酵，然后直接炸在泳装活动上。
+
+*****
+
+####  DARKGRAY  
+##### 13577#       发表于 2024-8-5 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803485&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-5 14:35</a>
+
+昨晚看appmedia水艾蕾留言板有人说以前这时候，新从者讨论区是一直能热闹到深夜的
+
+今年都去战硬币了，影响 ...</blockquote>
+肯定有影响，回忆本的详细状况昨晚都没更新，明明机制没变只是加了点血量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 13578#       发表于 2024-8-5 14:42
+
+其實最簡單做法
+
+先提高每個絆等級，抽到英靈時送的硬碟數量
+
+並暫時關服再統計全玩家曾經入手多少角色及數量，最低限度要剛好同時絆15和寶5，就能5技能全開放+120級所需數量
+
+再補回其差額
+
+即是好像剛出硬幣時的做法
+
+抽到寶8寶9，YLS是認為多出了的是用來做5星交換劵碎片，其實對玩家更好待遇，所以拒絕去改或不認為是問題嗎?
+
+
+*****
+
+####  eilot  
+##### 13579#       发表于 2024-8-5 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803504&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 14:38</a>
+
+有一说一 你要骗课直接开宝具等级上限就完事了 开成10宝满  不但没有节奏还会有不少人称赞呢  无课也无所谓 ...</blockquote>
+看職業盤，真是能全解放加3色卡攻和會心、加寶具傷害，也只是一個絆禮裝的級數，
+
+沒有甚麼加防、加異常、加異常抗性、加血量這類，職業盤內容還不多只是好多鎖
+
+技術力不足，算式懶得重整重算可能是真的
+

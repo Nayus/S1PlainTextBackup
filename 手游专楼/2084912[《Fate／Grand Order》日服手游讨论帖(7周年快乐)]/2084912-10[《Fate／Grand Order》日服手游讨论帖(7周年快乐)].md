@@ -4270,3 +4270,13 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 活动从者也就找个机会再发一波币或者巡灵兑换直接增量的事情，前景是没啥好担心的，只是不能立即实现而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 13700#       发表于 2024-8-5 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805104&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 17:10</a>
+本小丑皇来发2张图给大家乐乐   （王姐4宝14羁绊  狂娜3宝15羁绊）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还好我拉到100级收手了，但也手贱让阿周那和赖光点了被动1（都2宝），不过幸亏国服未来这个能一并上不亏了
+

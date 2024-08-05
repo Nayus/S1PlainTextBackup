@@ -3255,3 +3255,38 @@ zelda gb.jpg
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  king520kyo  
+##### 326#       发表于 2024-8-5 21:16
+
+同步这个系统有点意思啊
+
+*****
+
+####  ace8848  
+##### 327#       发表于 2024-8-5 21:21
+
+这都散装，秋直没了？
+
+
+*****
+
+####  sslink  
+##### 328#       发表于 2024-8-5 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65807792&amp;ptid=2188108" target="_blank">ace8848 发表于 2024-8-5 21:21</a>
+
+这都散装，秋直没了？</blockquote>
+9月就发售了，等秋直再宣传这游戏还要不要卖了
+
+*****
+
+####  ace8848  
+##### 329#       发表于 2024-8-5 21:24
+
+<blockquote>sslink 发表于 2024-8-5 21:23
+9月就发售了，等秋直再宣传这游戏还要不要卖了</blockquote>
+忘了发售日，我的错。。。
+

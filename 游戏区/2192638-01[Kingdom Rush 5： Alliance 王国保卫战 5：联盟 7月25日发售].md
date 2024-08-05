@@ -28,3 +28,31 @@
 
 借楼球球有没有手机上比较好玩的塔防游戏？
 
+
+*****
+
+####  wthall  
+##### 80#       发表于 2024-8-5 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804846&amp;ptid=2192638" target="_blank">wcorvo 发表于 2024-8-5 16:49</a>
+
+玩了下感觉就是前期节奏太慢了，没有2倍速玩不动
+
+借楼球球有没有手机上比较好玩的塔防游戏？ ...</blockquote>
+感觉KR已经是比较好玩的塔防了，不限定在手机的话，推荐capcom的新作祈 成神之路。
+
+非常有意思的塔防推车游戏
+
+
+*****
+
+####  Onelooker  
+##### 81#       发表于 2024-8-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804846&amp;ptid=2192638" target="_blank">wcorvo 发表于 2024-8-5 16:49</a>
+
+玩了下感觉就是前期节奏太慢了，没有2倍速玩不动
+
+借楼球球有没有手机上比较好玩的塔防游戏？ ...</blockquote>
+Dungeon Warfare，两作都支持手机
+

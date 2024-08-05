@@ -3694,3 +3694,144 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 这次本质上只是把会被投诉消费厅的融硬币解决了，其他的还是没有改变，该逼氪继续逼氪。
 
+
+*****
+
+####  希望之花  
+##### 13643#       发表于 2024-8-5 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几个月作为3000w下载活动福利推出是吧
+
+*****
+
+####  TheLoof  
+##### 13644#       发表于 2024-8-5 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804903&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 16:55</a>
+
+真的吗 今天实装我还信 还要等几个月这不冲？ 日本人难道就这么zz？</blockquote>
+估计是刻意拖时间继续试探玩家吧
+
+毕竟你游的数据库算是比较靠谱的那一档
+
+啥鬼东西都能给你统计出来，根本没必要做这么久
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13645#       发表于 2024-8-5 16:57
+
+<blockquote>希望之花 发表于 2024-8-5 16:57
+过几个月作为3000w下载活动福利推出是吧</blockquote>
+3000w：我少了一个需要企划的福利，好耶！
+
+*****
+
+####  rooarr  
+##### 13646#       发表于 2024-8-5 16:57
+
+什么，居然跪了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">天亮了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 13647#       发表于 2024-8-5 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804910&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-5 16:55</a>
+
+卧槽，螺旋社居然跪了，看来天朝出海的手游给11区的老家伙们上了不小的压力啊，连祖宗之法都顾不上了。这波 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">跪了 但没完全跪 除非明天就实装我信他真跪了 要几个月不就是在画饼
+
+*****
+
+####  希望之花  
+##### 13648#       发表于 2024-8-5 16:59
+
+要几个月难道不是因为菜
+
+
+*****
+
+####  poor  
+##### 13649#       发表于 2024-8-5 17:00
+
+避免了氪佬当小丑，钱还是要骗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13650#       发表于 2024-8-5 17:01
+
+太君拿了这波福利是不是就收了
+治标不治本又让叶狗混过去了
+
+*****
+
+####  alucardcz  
+##### 13651#       发表于 2024-8-5 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804981&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-8-5 17:01</a>
+
+太君拿了这波福利是不是就收了
+
+治标不治本又让叶狗混过去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">appmedia那边已经有太君在运营辛苦了
+
+*****
+
+####  希望之花  
+##### 13652#       发表于 2024-8-5 17:02
+
+顺便一提第一个金剑强化是小麻雀
+
+艾蕾好感度条还没有修复
+
+*****
+
+####  quanlix  
+##### 13653#       发表于 2024-8-5 17:02
+
+反正死活就是不给你补这硬币，人物升级，再临，技能升级都可以补点，正常把角色拉满直接能让玩家点出个被动不是挺好，就不
+
+*****
+
+####  cenhr  
+##### 13654#       发表于 2024-8-5 17:03
+
+拉级去120的真变小丑了？
+
+*****
+
+####  司马千晶  
+##### 13655#       发表于 2024-8-5 17:04
+
+我摩根和公主都只有3宝 拉了120以后就算15绊，技能好像也开不了第二个？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+5宝的既然可以切换就好办，但是以后解锁强力ex67难道要抽6么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cckuku  
+##### 13656#       发表于 2024-8-5 17:04
+
+<img src="https://img.saraba1st.com/forum/202408/05/170403ediwij4uevbidnhd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_3635.png</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 17:04 上传
+
+该说不说，我是真的有收益了，可以看看我这号的技能开的有多傻逼。
+
+*****
+
+####  低调不圆滑  
+##### 13657#       发表于 2024-8-5 17:05
+
+不对啊，拉等级的硬币不回溯yls不还是得飞妈，利益相关3大b全升级了
+

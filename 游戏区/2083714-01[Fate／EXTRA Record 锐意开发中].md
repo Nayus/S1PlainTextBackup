@@ -327,3 +327,21 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 坐实wada描图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/18/609cec2e0aa50bd817ee3553138e513a/CMP_20240805101407953.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ——裂锦——  
+##### 100#       发表于 2024-8-5 17:08
+
+这次的pv麻婆走路的几部动作有点僵，表情也是。之前两个pv动作演出挺流畅来着，开场慎二的表情也挺自然。有点意外，希望能再仔细调整下。现在不公布具体发售季节或者月份的话感觉明年一季度是没戏了。
+
+
+*****
+
+####  ——裂锦——  
+##### 101#       发表于 2024-8-5 17:13
+
+另外这次好像还是有情报收集推理真名的设计，没玩过杀戮尖塔，战斗系统改了以后不知道会怎么提现情报的作用。fate这么多游戏只有extra和ccc从系统上体现出圣杯战争情报战的重要作用了，希望别舍弃。
+
+而且原版记得从boss到小怪都是1v1，现在小怪有1vn之后不知道从者战会不会有变化。
+

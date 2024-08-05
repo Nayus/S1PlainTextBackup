@@ -3835,3 +3835,125 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 不对啊，拉等级的硬币不回溯yls不还是得飞妈，利益相关3大b全升级了
 
+
+*****
+
+####  alucardcz  
+##### 13658#       发表于 2024-8-5 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805013&amp;ptid=2084912" target="_blank">司马千晶 发表于 2024-8-5 17:04</a>
+
+我摩根和公主都只有3宝 拉了120以后就算15绊，技能好像也开不了第二个？
+
+5宝的既然可以切换就好办，但是以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 4宝15羁绊才能开2个
+
+*****
+
+####  angelooo  
+##### 13659#       发表于 2024-8-5 17:06
+
+<blockquote>希望之花 发表于 2024-8-5 17:02
+顺便一提第一个金剑强化是小麻雀
+
+艾蕾好感度条还没有修复</blockquote>
+卧槽，昨天那个呆毛的图标是真画错了？233
+
+*****
+
+####  jackyhuang  
+##### 13660#       发表于 2024-8-5 17:06
+
+官推下面已经一片反应及时谢谢运营了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  格林卡罗尔  
+##### 13661#       发表于 2024-8-5 17:08
+
+爽死了，我没仔细看公告还在后悔没多铸造
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 13662#       发表于 2024-8-5 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805052&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-5 17:06</a>
+
+官推下面已经一片反应及时谢谢运营了
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v3.0.0.81-alp ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘿 日本人
+
+*****
+
+####  cckuku  
+##### 13663#       发表于 2024-8-5 17:08
+
+但那这还是没解决活动从者怎么办以及8宝完全体的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 13664#       发表于 2024-8-5 17:08
+
+小麻雀给了30自充，30蓝魔放，强化幅度挺大的。
+
+
+*****
+
+####  alucardcz  
+##### 13665#       发表于 2024-8-5 17:10
+
+<img src="https://img.saraba1st.com/forum/202408/05/170934qzye5qm63msq0cex.jpg" referrerpolicy="no-referrer">
+
+<strong>232323.jpg</strong> (426.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 17:09 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/170940gx4ceewvlsfz58l6.jpg" referrerpolicy="no-referrer">
+
+<strong>2323232.jpg</strong> (397.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 17:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">本小丑皇来发2张图给大家乐乐   （王姐4宝14羁绊  狂娜3宝15羁绊）
+
+*****
+
+####  rooarr  
+##### 13666#       发表于 2024-8-5 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805104&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 17:10</a>
+本小丑皇来发2张图给大家乐乐   （王姐4宝14羁绊  狂娜3宝15羁绊）</blockquote>
+居然4宝，欧皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  alucardcz  
+##### 13667#       发表于 2024-8-5 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805111&amp;ptid=2084912" target="_blank">rooarr 发表于 2024-8-5 17:11</a>
+
+居然4宝，欧皇
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">王姐开被动5的时候就是她下岗的时候！
+
+*****
+
+####  poor  
+##### 13668#       发表于 2024-8-5 17:15
+
+不是说跪得好，你游这跪得比GBF已经算是治本了，隔壁差不多操作统计不出来花过的，干脆全服送了相当于每人120货币可能少点吧，本来忍忍也就过了，然后他又开了EX6—15<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

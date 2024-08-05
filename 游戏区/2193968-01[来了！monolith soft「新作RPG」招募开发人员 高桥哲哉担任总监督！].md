@@ -544,3 +544,35 @@ XB3，伟大！
 
 爱信等<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yiqy  
+##### 58#       发表于 2024-8-5 12:06
+
+等XBX复刻版
+
+*****
+
+####  牛仔裤的夏天  
+##### 59#       发表于 2024-8-5 12:08
+
+剧情不重要，做arpg就行
+
+*****
+
+####  thez  
+##### 60#       发表于 2024-8-5 12:09
+
+小红帽和女剑士到底哪个真实存在哪个是随便画的概念图？
+
+
+*****
+
+####  天堂大法  
+##### 61#         楼主| 发表于 2024-8-5 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65802086&amp;ptid=2193968" target="_blank">thez 发表于 2024-8-5 12:09</a>
+小红帽和女剑士到底哪个真实存在哪个是随便画的概念图？</blockquote>
+小红帽是本根康之画的招人原画，中世纪女剑士才可能是新作的人设
+

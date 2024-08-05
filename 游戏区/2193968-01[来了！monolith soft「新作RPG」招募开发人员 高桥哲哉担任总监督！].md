@@ -735,3 +735,11 @@ XBX2！！！！
 
 我只希望是即时动作类，xb的回合制真的不太喜欢
 
+
+*****
+
+####  Arisita  
+##### 80#       发表于 2024-8-5 15:25
+
+爱高信高等高<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

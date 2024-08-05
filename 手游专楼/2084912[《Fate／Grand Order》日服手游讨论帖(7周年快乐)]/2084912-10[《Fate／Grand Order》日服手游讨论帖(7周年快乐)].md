@@ -3085,3 +3085,17 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 你游上班最努力的就是唯一神，你要相信他卡你数值的能力
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13588#       发表于 2024-8-5 15:23
+
+ 本帖最后由 alucardcz 于 2024-8-5 15:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我杀狐和奥师傅居然够开被动5  c呆反而不够（要14羁绊）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到我精良不用c呆反而成了xx   虽然不知道这3个人开减cd有什么用（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主才羁绊6  要到羁绊9才能上班。。好遥远啊  我为什么要点20np啊？ 明明没任何意义
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">至于120的王姐和狂娜  已经彻底没救了  
+

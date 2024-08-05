@@ -11322,3 +11322,11 @@ S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
 
 [https://x.com/pink22_21/status/1 ... OOyRcQrdH69orkV5Ftg](https://x.com/pink22_21/status/1820004866770751856?s=46&amp;t=HjqOOyRcQrdH69orkV5Ftg)
 
+
+*****
+
+####  星天观测  
+##### 21755#       发表于 2024-8-5 11:23
+
+那就支持一下初海复刻主唱贝斯cp吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -406,3 +406,90 @@ XBX真的没有完整版吗
 
 高桥哥哥和锦织哥哥的二战都来了
 
+
+*****
+
+####  巨馍蘸酱  
+##### 45#       发表于 2024-8-5 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801447&amp;ptid=2193968" target="_blank">宛若青空 发表于 2024-8-5 11:12</a>
+距离新机发售至少还有半年多点，这下能期待这款ARPG的完成度了，让我们见识下mono第一次挑战做动作游戏的 ...</blockquote>
+这个好像跟暗喻幻想同年公布的，都是奇幻题材RPG，也都拖了这么多年了，暗喻幻想目前的成品让我挺失望的，希望mono能给力吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  VVhaleVoice  
+##### 46#       发表于 2024-8-5 11:17
+
+回来了嗼嗼社😭，
+我最骄傲的信仰😭！
+
+历历在目的蒙纳多😭，
+眼泪莫名在流淌😭！
+
+依稀记得天之圣杯😭，
+还有美丽的光和焰😭，
+把基佬灭真都打退😭，
+上到宇宙也不馁😭😭😭！
+
+在破碎的艾欧尼翁😭，
+携手迈向未来😭😭😭！
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 47#       发表于 2024-8-5 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801447&amp;ptid=2193968" target="_blank">宛若青空 发表于 2024-8-5 11:12</a>
+
+距离新机发售至少还有半年多点，这下能期待这款ARPG的完成度了，让我们见识下mono第一次挑战做动作游戏的 ...</blockquote>
+act部分大概率不如国产手游吧，又不像RELINK那样有白金协力，还是得看RPG部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sslink  
+##### 48#       发表于 2024-8-5 11:22
+
+其实也不代表刚开始做，可能前期工作做完，准备开始大规模开发的阶段
+
+*****
+
+####  qiyu1234  
+##### 49#       发表于 2024-8-5 11:22
+
+开点新坑吧，别总被旧系列的世界观和玩法掣肘套住了
+
+另外人设其实可以更“放肆”一点，3代少了些前几作的油腻中年味这点我觉得不对味了
+
+*****
+
+####  qiyu1234  
+##### 50#       发表于 2024-8-5 11:23
+
+ 本帖最后由 qiyu1234 于 2024-8-5 11:25 编辑 
+
+另外纸娃娃系统也可以回归了
+
+*****
+
+####  VVhaleVoice  
+##### 51#       发表于 2024-8-5 11:25
+
+确实有可能，全方位招新人的潜台词也可能是开始下车间
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ネコカイザー  
+##### 52#       发表于 2024-8-5 11:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+

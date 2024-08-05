@@ -2523,3 +2523,18 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 她几乎没有需要留充能的情况，更何况充能还带个20宝威
 
+
+*****
+
+####  清河子  
+##### 13541#       发表于 2024-8-5 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801408&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 11:09</a>
+公主无脑减CD
+
+她几乎没有需要留充能的情况，更何况充能还带个20宝威</blockquote>
+谢谢大佬！
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这个新硬币技能更新太地狱了，希望太君能炎上救一下吧，虽然我觉得大概率无事发生……
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

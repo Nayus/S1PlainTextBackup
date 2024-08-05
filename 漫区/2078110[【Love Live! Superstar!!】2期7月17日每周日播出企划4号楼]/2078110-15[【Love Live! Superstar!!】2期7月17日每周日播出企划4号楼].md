@@ -1177,3 +1177,16 @@ btw，你星是不是有什么人在和虹较劲啊，建议菜就得认，人�
 
 不过这次vn开新liella完全做得到，一期二期生每个人都有重合职能的问题，如果一开始目标就是玩分裂，只能说这个伏笔埋的很牛逼，非常符合花田这些年小细节做的好大趋势一坨的创作方向。
 
+
+*****
+
+####  ViyViy  
+##### 20836#       发表于 2024-8-5 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801268&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-5 10:57</a>
+
+再怎么说tv里也不可能改始空吧，我觉得这点就算京极花田再发癫也不会改这个。
+
+当然，之后live上出11人版 ...</blockquote>
+那头被火烧连营了费尽心思绕道，这头我不信，再来一把，MD精神分裂啊？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

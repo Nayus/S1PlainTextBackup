@@ -3437,3 +3437,21 @@ zelda gb.jpg
 新宣传片介绍了地图各个区域，最重要是介绍了新功能同步，自由度高还能随意切换，看着就有意思啊，进一步丰 ...</blockquote>
 里世界可能对应神庙，感觉不要过度期待。
 
+
+*****
+
+####  iqbsh38  
+##### 347#       发表于 2024-8-5 22:41
+
+希望有更多好看的衣服 默认的村姑装确实不好看
+
+*****
+
+####  holomoon  
+##### 348#       发表于 2024-8-5 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808436&amp;ptid=2188108" target="_blank">SakuraAyane 发表于 2024-8-5 22:13</a>
+
+没有利特族？可能是因为在众神的三角力量的时间线还没有这个种族？</blockquote>
+PV开始大地图左上有颗大树，大概跟利特族有关吧
+

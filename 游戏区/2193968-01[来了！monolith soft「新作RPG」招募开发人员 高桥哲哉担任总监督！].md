@@ -906,3 +906,14 @@ XenoGear-&gt;XenoSaga-&gt;XenoBlade，接下来会是啥，Gear对Blade，那Sag
 
 光田转推了，应该还是异度
 
+
+*****
+
+####  ziyer  
+##### 98#       发表于 2024-8-5 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808628&amp;ptid=2193968" target="_blank">seize1121 发表于 2024-8-5 22:36</a>
+
+光田转推了，应该还是异度</blockquote>
+大概率是异度，但是是不是异度神剑就不好说了
+

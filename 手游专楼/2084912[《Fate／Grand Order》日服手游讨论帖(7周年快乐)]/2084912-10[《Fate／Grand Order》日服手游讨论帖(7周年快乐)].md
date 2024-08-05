@@ -4004,3 +4004,84 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 这次滑跪其实就是币换圣杯这块性质恶劣 属于欺诈了</blockquote>
 如果日本玩家肯，可以告对吗？
 
+
+*****
+
+####  jackyhuang  
+##### 13674#       发表于 2024-8-5 17:27
+
+过段时间再宣布“新福利”，开150但是升120前不用硬币，之前用掉的返还
+是不是就成运营典范了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  TheLoof  
+##### 13675#       发表于 2024-8-5 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805321&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-5 17:27</a>
+
+过段时间再宣布“新福利”，开150但是升120前不用硬币，之前用掉的返还
+
+是不是就成运营典范了</blockquote>
+那就跟隔壁骗你界限突破一个吊样了
+
+闭着眼睛按0逼你肝（然后发现卵用没有季限才是爹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gxliv  
+##### 13676#       发表于 2024-8-5 17:28
+
+以他们产能，这个技能切换的功能会等到10周年10大福利放出来嘛?<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 13677#       发表于 2024-8-5 17:33
+
+圣杯这个不跪真可能出问题，120退回来估计是真没技术做出来，至于硬币看他们是死活不肯给，建议继续冲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13678#       发表于 2024-8-5 17:34
+
+120已经够受罪的了，还有150啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 13679#       发表于 2024-8-5 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805235&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 17:20</a>
+
+120石豹豹要5宝爱蕾了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不存在的事....我大多数角色2宝就满足了....除非特别对厨力的
+
+*****
+
+####  希望之花  
+##### 13680#       发表于 2024-8-5 17:34
+
+那个抽卡计数器是不是有bug，我看召唤履历里抽了160发，但是计数器跟我说还要280发才保底
+
+还是说出货了会重置计数？好像也对不上
+
+
+*****
+
+####  rooarr  
+##### 13681#       发表于 2024-8-5 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805401&amp;ptid=2084912" target="_blank">希望之花 发表于 2024-8-5 17:34</a>
+那个抽卡计数器是不是有bug，我看召唤履历里抽了160发，但是计数器跟我说还要280发才保底
+
+还是说出货了会重 ...</blockquote>
+现在是出货就重置
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -751,3 +751,18 @@ XBX2！！！！
 
 xeno系列新作吧，blade应该是已经完结了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  JOJOROY  
+##### 82#       发表于 2024-8-5 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804427&amp;ptid=2193968" target="_blank">xy12shao 发表于 2024-8-5 16:11</a>
+
+xeno系列新作吧，blade应该是已经完结了</blockquote>
+最後再請教橫田先生一個問題。雖然你曾說過這是系列作的「集大成」，但《異度神劍》系列還會持續下去對吧？
+
+横田
+
+是的，會繼續下去！我想讓這系列盡可能地延續下去……！
+

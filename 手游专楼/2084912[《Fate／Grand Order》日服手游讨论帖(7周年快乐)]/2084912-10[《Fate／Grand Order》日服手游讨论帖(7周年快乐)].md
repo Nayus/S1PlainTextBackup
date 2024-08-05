@@ -2900,3 +2900,45 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 硬币系统的本质就是让你抽盘子的。这种变相加氪金点的事情，全球手游运营都是敢干就做好被冲的预期的，结局一般也都是洗一波玩家，能和解的就玩，怎么都不能接受的就走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13571#       发表于 2024-8-5 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803351&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2024-8-5 14:22</a>
+
+硬币系统的本质就是让你抽盘子的。这种变相加氪金点的事情，全球手游运营都是敢干就做好被冲的预期的，结局 ...</blockquote>
+这次完全不是一个性质好吗 没有提高告知 突然加了硬币新项目  也不开返还也不加新途经
+
+这就是狠狠的背刺
+
+跟隔壁开头就告诉你6命满命 武器也要5把完全不是一个性质的事情
+
+*****
+
+####  alucardcz  
+##### 13572#       发表于 2024-8-5 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803091&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-8-5 13:54</a>
+
+推上有人晒官方回复了，运营这次压根就没想着补硬币，反正这次更新不补以后补也还是背刺抽5宝以上的人， ...</blockquote>
+这看上去是标准摸版的自动回复啊。。
+
+
+*****
+
+####  希望之花  
+##### 13573#       发表于 2024-8-5 14:35
+
+昨晚看appmedia水艾蕾留言板有人说以前这时候，新从者讨论区是一直能热闹到深夜的
+
+今年都去战硬币了，影响应该是有的
+
+*****
+
+####  yangun22  
+##### 13574#       发表于 2024-8-5 14:37
+
+说老实话直接加4，5技能真是最蠢的做法，真想增加氪金点那应该做成开完前面3个技能外加拉满120级才能开4，5技能，这样搞反而不会有现在那么大动静<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

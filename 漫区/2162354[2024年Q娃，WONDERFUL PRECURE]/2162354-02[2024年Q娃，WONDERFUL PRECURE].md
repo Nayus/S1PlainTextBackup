@@ -813,3 +813,14 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">小雪太可爱了，我要看的就是这个哇
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 1980#       发表于 2024-8-5 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65795744&amp;ptid=2162354" target="_blank">hisousihou 发表于 2024-8-4 21:00</a>
+
+小雪太可爱了，我要看的就是这个哇</blockquote>
+多说点，我爱听<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+

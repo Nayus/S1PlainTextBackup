@@ -693,3 +693,13 @@ XB3已经圆了高桥GG的异度装甲梦了   下一作该重开一个世界�
 
 话说传闻中的小红帽arpg除了官网上挂的招聘图外，高桥自己有透露这游戏吗？
 
+
+*****
+
+####  天堂大法  
+##### 76#         楼主| 发表于 2024-8-5 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803337&amp;ptid=2193968" target="_blank">Link213 发表于 2024-8-5 14:21</a>
+话说传闻中的小红帽arpg除了官网上挂的招聘图外，高桥自己有透露这游戏吗？ ...</blockquote>
+没有任何官方消息提及，只有从招聘中能看到中世纪、奇幻、ARPG这种关键词
+

@@ -655,3 +655,11 @@ mono做手游不管做成怎样，出就给10分，因为攒到的钱始终会�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  smarms  
+##### 71#       发表于 2024-8-5 13:56
+
+高桥哥哥，来个猛的吧，SWITCH2首发异度装甲重制版，新作RPG是异度装甲2（小红帽肯定快做完了）<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

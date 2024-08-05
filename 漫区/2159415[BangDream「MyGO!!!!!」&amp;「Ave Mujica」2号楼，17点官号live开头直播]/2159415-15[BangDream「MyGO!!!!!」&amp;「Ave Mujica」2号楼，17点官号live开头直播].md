@@ -11417,3 +11417,19 @@ S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
 
 哎，彩彩的主要cp是不是就是彩千圣和彩日菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21760#       发表于 2024-8-5 13:57
+
+tag数第三是彩花音来着吧，花薰千是大三角，彩花千也是大三角。
+
+
+*****
+
+####  星天观测  
+##### 21761#       发表于 2024-8-5 14:02
+
+心疼彩彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望十周年就卖卖各团团魂吧
+

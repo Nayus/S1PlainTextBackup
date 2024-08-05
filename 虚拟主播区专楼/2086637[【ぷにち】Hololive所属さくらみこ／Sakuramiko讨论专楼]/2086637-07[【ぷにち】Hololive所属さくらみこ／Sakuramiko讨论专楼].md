@@ -6186,3 +6186,36 @@ miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的
 
 评论区：都要哭得没眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9412#         楼主| 发表于 2024-8-4 23:16
+
+<img src="https://img.saraba1st.com/forum/202408/04/231614mg36h4bjztsjkhg6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-4 23:16 上传
+
+*****
+
+####  holoan  
+##### 9413#         楼主| 发表于 2024-8-5 15:54
+
+<img src="https://img.saraba1st.com/forum/202408/05/154244nyz8ygqxgptq3x3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 15:42 上传
+
+另外提一个事，官方其实之前已经作了一份歌单放在了sololive官网，里面已经有将近20首曲子，有意思的是除了solo曲以外只有3首官方认可的合唱曲，mikorone24的主题曲，八字母的moshrace和七字母的sugarrush
+
+去掉一首曲子也就剩2首，如果这是官方的意思的话，也就是这个live撑死请2个嘉宾我觉得不如别请
+
+不过到底有没有嘉宾按惯例后面还会有一场关于sololive的告知直播上会发表，也就是现在无责任瞎猜
+

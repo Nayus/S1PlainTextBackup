@@ -11573,3 +11573,18 @@ kkr可以算中间吧，chu²也是视觉引导的中心。
 
 喷了，还得接着找
 
+
+*****
+
+####  星天观测  
+##### 21772#       发表于 2024-8-5 15:47
+
+mas6和mskk怎么被拆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 21773#       发表于 2024-8-5 15:50
+
+喷了，无字版的我还真没找到（萌娘百科那张没有字，但是油水印）
+

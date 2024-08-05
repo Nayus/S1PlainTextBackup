@@ -301,3 +301,13 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 
 原本的包剪锤战斗模式弱智的一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 97#       发表于 2024-8-5 09:50
+
+这游戏四年前放出来的片就是杀戮尖塔了，不过为什么卖相感觉越来越差了，发行商应该没这么大的影响力吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

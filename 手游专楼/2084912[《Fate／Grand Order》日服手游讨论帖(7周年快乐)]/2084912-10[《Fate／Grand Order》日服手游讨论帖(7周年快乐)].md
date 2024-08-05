@@ -2223,3 +2223,103 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 所以100即死没法用</blockquote>
 什么笑话<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 13516#       发表于 2024-8-5 09:52
+
+<blockquote>xiongxingyu 发表于 2024-8-5 08:54
+肯定是说技能啊，算上宝具那是有不少了，然而第一回合开不出来，没法让那些50冲的原地起爆 ...</blockquote>
+
+公主暂且不论，烟雾镜确实是无条件30充能：
+
+<img src="https://img.saraba1st.com/forum/202408/05/095232ft1386zf0ep37znf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240805_095017.jpg</strong> (173.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-5 09:52 上传
+
+*****
+
+####  シャル  
+##### 13517#       发表于 2024-8-5 09:53
+
+<blockquote>cenhr 发表于 2024-8-5 09:43
+什么笑话</blockquote>
+理论上是开局4
+
+绊5+5 
+
+先发队+5
+
+先用技能+2
+
+使用三个技能 +9
+
+使用master技能2种 +10
+
+合计+31 好感到4
+
+实际master技能bug不加好感，所以只能到3
+
+*****
+
+####  cenhr  
+##### 13518#       发表于 2024-8-5 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800527&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-5 09:53</a>
+
+理论上是开局4
+
+绊5+5 
+
+先发队+5</blockquote>
+周年角色搞这么多花里胡哨的还搞不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyzcacxg  
+##### 13519#       发表于 2024-8-5 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800280&amp;ptid=2084912" target="_blank">洛克萨斯 发表于 2024-8-5 09:29</a>
+
+看出了宇宙艾蕾就没关注了，发生啥事了，什么设计能氪的越多越菜的，有楼友总结下么 ...</blockquote>
+简单翻译了下昨天こやはん直播的内容
+
+概要
+
+9周年运营宣布开追加技能4和5
+
+追加技能4 比较有用     追加技能5 对部分角色的评价影响很大
+
+硬币还是和之前一样要用120枚开技能（抽一个角色90枚）
+
+完全体需求 8宝+15绊或者9宝
+
+追加减CD技能需求：公主＞＞＞＞提妈、泳装伊吹、青子等
+
+问题点
+
+突然要求真爱完全体玩家再付费抽尸块
+
+周年不但没有缓和硬币需求反而继续增加
+
+之前开了没用的追加1、3技能的玩家无法开有用的4和5
+
+狠狠的背刺了绝大部分氪金玩家
+
+为了铸造圣杯用掉了角色“多余”硬币的玩家成了小丑
+
+活动赠送角色、限定3、4星角色的硬币获取问题
+
+*****
+
+####  DARKGRAY  
+##### 13520#       发表于 2024-8-5 09:57
+
+打即死也只有60翻倍，不能必杀80%的怪，还不是一样坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

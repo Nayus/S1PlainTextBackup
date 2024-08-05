@@ -889,3 +889,20 @@ XBY！</blockquote>
 
 “之前的新作”当然指的就是从XB3崭新的未来开发结束，到这个新招募项目之间这段时间做的一款新作了。看样子估计已经开发完成，并且很有可能明年作为新机阵容之一上市。
 
+
+*****
+
+####  大暴死  
+##### 96#       发表于 2024-8-5 22:32
+
+XenoGear-&gt;XenoSaga-&gt;XenoBlade，接下来会是啥，Gear对Blade，那Saga对Tale/Fate？
+
+—— 来自 Xiaomi M2102K1C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  seize1121  
+##### 97#       发表于 2024-8-5 22:36
+
+光田转推了，应该还是异度
+

@@ -785,3 +785,36 @@ xeno系列新作吧，blade应该是已经完结了</blockquote>
 monolith游戏的ui和ux设计简直是犯罪，难以想象这是任天堂第一方工作室的作品
 他们真该让epd的人过来培训下怎么提高玩家的基础游玩体验
 
+
+*****
+
+####  UltramanPain  
+##### 85#       发表于 2024-8-5 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805614&amp;ptid=2193968" target="_blank">andychen 发表于 2024-8-5 17:53</a>
+monolith游戏的ui和ux设计简直是犯罪，难以想象这是任天堂第一方工作室的作品
+他们真该让epd的人过来培训 ...</blockquote>
+mono的游戏需要在画面上显示每个技能的详细说明，一个技能可能有多种特殊效果。
+但老任的游戏ui就可以很简单，因为跳就是跳，轻攻击，重攻击不需要什么解释
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ZOHAR=往世之痕  
+##### 86#       发表于 2024-8-5 18:15
+
+XBY！
+
+
+*****
+
+####  UltramanPain  
+##### 87#       发表于 2024-8-5 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805851&amp;ptid=2193968" target="_blank">ZOHAR=往世之痕 发表于 2024-8-5 18:15</a>
+XBY！</blockquote>
+老任的游戏甚至不需要多余按键，有的ab就够了。异度x光一个人就要塞16个技能，按键更本不够用
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11757,3 +11757,42 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 11月的asl上海很可能又有鸡狗啊
 
+
+*****
+
+####  星天观测  
+##### 21791#       发表于 2024-8-5 23:34
+
+8月的歌和mv都还没来呢就先别惦记11月的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期望越大失望越大
+
+*****
+
+####  仟音一心  
+##### 21792#       发表于 2024-8-5 23:36
+
+鼓子要不别走了，9.21到10.6也没几天。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  前方暴雨预警  
+##### 21793#       发表于 2024-8-5 23:45
+
+扫了一眼隔壁发的黄牛票价，鉴定为不如飞日本再住两天
+
+不过鸡大概不会有这种黄牛上天的待遇吧，毕竟没动画也没有那么多的mmr
+
+*****
+
+####  Hieda  
+##### 21794#       发表于 2024-8-5 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一想起虹馆的音响就头大
+
+*****
+
+####  akiomn  
+##### 21795#       发表于 2024-8-5 23:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难说哦，鸡的人气在国内其实不算低，真开了也说不定和萝一个待遇，抢票抢上天
+

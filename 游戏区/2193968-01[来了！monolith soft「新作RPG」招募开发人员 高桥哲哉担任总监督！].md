@@ -852,3 +852,11 @@ XBY！</blockquote>
 
 那之前的小红帽捏
 
+
+*****
+
+####  lost-star  
+##### 92#       发表于 2024-8-5 21:37
+
+我永远相信高桥哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

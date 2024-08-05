@@ -3148,3 +3148,14 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九月放个序章直播拉倒
 
+
+*****
+
+####  暗影吉他手  
+##### 2435#       发表于 2024-8-6 06:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65798077&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-4 23:29</a>
+
+这次特典就两张新绘挂画（电击那个已经出了一万个周边了所有不算新绘），值得买的除了普通版就sofmap和wgo ...</blockquote>
+但是电击有师姐新衣服DLC<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

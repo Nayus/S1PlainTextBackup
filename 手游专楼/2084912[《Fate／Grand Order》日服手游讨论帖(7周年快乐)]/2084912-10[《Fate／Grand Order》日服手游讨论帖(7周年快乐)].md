@@ -2118,3 +2118,31 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 但凡是群30我觉得所有的缺点都可以忍</blockquote>
 一个震惊的事实是，你游开服到现在只有4个群30，其中只有C呆和暗狐是无条件的，梅芙限定男性和妖精，诺克娜雷阿要先上技能封印的debuff。所以说，不要小看唯一神的数值把控，人家就是来恶心你们的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  芭德薇  
+##### 13505#       发表于 2024-8-5 08:48
+
+<blockquote>xiongxingyu 发表于 2024-8-5 08:39
+一个震惊的事实是，你游开服到现在只有4个群30，其中只有C呆和暗狐是无条件的，梅芙限定男性和妖精，诺克 ...</blockquote>
+烟雾镜和公主表示不服啊
+
+*****
+
+####  v22325  
+##### 13506#       发表于 2024-8-5 08:50
+
+今天100石也没出,我的夏活结束了！
+
+
+*****
+
+####  xiongxingyu  
+##### 13507#       发表于 2024-8-5 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799907&amp;ptid=2084912" target="_blank">芭德薇 发表于 2024-8-5 08:48</a>
+
+烟雾镜和公主表示不服啊</blockquote>
+肯定是说技能啊，算上宝具那是有不少了，然而第一回合开不出来，没法让那些50冲的原地起爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

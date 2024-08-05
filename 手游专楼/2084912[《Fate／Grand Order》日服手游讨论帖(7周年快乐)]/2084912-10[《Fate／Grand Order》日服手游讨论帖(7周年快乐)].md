@@ -3545,3 +3545,152 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
 
+
+*****
+
+####  eilot  
+##### 13628#       发表于 2024-8-5 16:46
+
+學妹:
+
+你們其他都能抽到寶8寶9和刷到絆15
+
+我只能一世卡在絆8，硬幣就只得更新時那一次，之後都再沒法入手
+
+*****
+
+####  yangun22  
+##### 13629#       发表于 2024-8-5 16:46
+
+真的贱，硬要这么来一次，但是氪金上限还是被提高了
+
+*****
+
+####  alucardcz  
+##### 13630#       发表于 2024-8-5 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804775&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 16:44</a>
+
+所以这是把国内二游那套学完了是吧，先试探一下再滑跪
+
+刚在上个月冲过1999的表示心情极度复杂</blockquote>
+120级新称号 终极小丑 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 13631#       发表于 2024-8-5 16:47
+
+學妹:
+
+你們其他都能抽到寶8寶9和刷到絆15
+
+我只能一世卡在絆8，硬幣就只得更新時那一次，之後都再沒法入手
+
+*****
+
+####  alucardcz  
+##### 13632#       发表于 2024-8-5 16:49
+
+仔细看了下公告。。。。我草 居然还要几个月才能做出来？？
+
+*****
+
+####  cenhr  
+##### 13633#       发表于 2024-8-5 16:49
+
+看来这骂的规模很大，2号不得不认衰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechins  
+##### 13634#       发表于 2024-8-5 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">太阳打西边出来了，你狗运营竟然认错了，还赔石头
+
+
+*****
+
+####  angelooo  
+##### 13635#       发表于 2024-8-5 16:50
+
+<blockquote>alucardcz 发表于 2024-8-5 16:47
+120级新称号 终极小丑</blockquote>
+他们的脑子是不是有病啊，这个最重要的直接无视了？
+
+*****
+
+####  alucardcz  
+##### 13636#       发表于 2024-8-5 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804849&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 16:50</a>
+
+他们的脑子是不是有病啊，这个最重要的直接无视了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">你看公告 上面的功能还要花几个月才会实装 他们脑子什么时候正常过？
+
+*****
+
+####  都谷捻柏  
+##### 13637#       发表于 2024-8-5 16:53
+
+<blockquote>alucardcz 发表于 2024-8-5 16:47
+120级新称号 终极小丑</blockquote>
+是啊，用硬币拉等级的直接不管，我看还得继续冲233
+
+*****
+
+####  TheLoof  
+##### 13638#       发表于 2024-8-5 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804849&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 16:50</a>
+
+他们的脑子是不是有病啊，这个最重要的直接无视了？</blockquote>
+讲道理，人挺聪明的，成功分化了玩家
+
+起码现在微氪、不拉120的、5宝但是不点全被动的已经不会去冲了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13639#       发表于 2024-8-5 16:53
+
+ 本帖最后由 Jamaisvu 于 2024-8-5 16:54 编辑 
+
+随便赔点东西，但底层机制不变。
+
+虽然普通玩家有选择的权利了，但追求完全体的真爱玩家还是得吃屎...
+
+不过有一说一，今天看见运营被冲得低头认错，比昨天更新九周年要高兴多了，历史性的一幕啊。
+
+*****
+
+####  alucardcz  
+##### 13640#       发表于 2024-8-5 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804886&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-5 16:53</a>
+
+讲道理，人挺聪明的，成功分化了玩家
+
+起码现在微氪、不拉120的、5宝但是不点全被动的已经不会去冲了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">真的吗 今天实装我还信 还要等几个月这不冲？ 日本人难道就这么zz？
+
+
+*****
+
+####  xiongxingyu  
+##### 13641#       发表于 2024-8-5 16:55
+
+卧槽，螺旋社居然跪了，看来天朝出海的手游给11区的老家伙们上了不小的压力啊，连祖宗之法都顾不上了。这波硬币全返还加送对应数量圣杯确实是大放血了，大约估摸下，fgo关服前我这老咸鱼大概都不会缺圣杯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 13642#       发表于 2024-8-5 16:55
+
+拉等级的真小丑了，不是解包里面还有150级么XD 
+
+这次本质上只是把会被投诉消费厅的融硬币解决了，其他的还是没有改变，该逼氪继续逼氪。
+

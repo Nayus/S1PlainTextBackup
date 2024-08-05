@@ -11658,3 +11658,11 @@ akorin和laytae中间有空隙，可以认为mas6没拆
 喷了，还得接着找</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一次乐一次
 
+
+*****
+
+####  星天观测  
+##### 21781#       发表于 2024-8-5 16:55
+
+fine，那就等26年鸡的视觉图吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

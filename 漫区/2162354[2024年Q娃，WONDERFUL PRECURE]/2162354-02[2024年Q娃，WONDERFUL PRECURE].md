@@ -824,3 +824,13 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 小雪太可爱了，我要看的就是这个哇</blockquote>
 多说点，我爱听<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1981#       发表于 2024-8-5 16:57
+
+<blockquote>粉儿alice 发表于 2024-8-4 20:18
+镇长和太上皇姓 声优是本平 这是彩蛋还是私货</blockquote>
+配角以staff名字的一部分来命名不是从开设晨间档就有的传统吗？
+

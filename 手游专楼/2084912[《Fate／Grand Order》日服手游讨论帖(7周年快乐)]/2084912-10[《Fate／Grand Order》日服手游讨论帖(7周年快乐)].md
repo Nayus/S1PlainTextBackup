@@ -4154,3 +4154,24 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 这帮废物又可以借口推迟终章了吧，2025年12月也是2025年23333
 
+
+*****
+
+####  segadc  
+##### 13689#       发表于 2024-8-5 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805479&amp;ptid=2084912" target="_blank">棍机凹升龙 发表于 2024-08-05 17:41:09</a>
+几个月笑死，日本的IT能力</blockquote>怎么了，看不起我龙王修297天的bug吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 13690#       发表于 2024-8-5 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805877&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 18:20</a>
+
+这帮废物又可以借口推迟终章了吧，2025年12月也是2025年23333</blockquote>
+我忘了 他们说2025“出”终章还是  “出完” 终章<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11409,3 +11409,11 @@ S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
 
 哎呀，紅茶瑪德蓮？ 那麼，等一下我們一起做吧。 當然，是三個人一起
 
+
+*****
+
+####  星天观测  
+##### 21759#       发表于 2024-8-5 13:39
+
+哎，彩彩的主要cp是不是就是彩千圣和彩日菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

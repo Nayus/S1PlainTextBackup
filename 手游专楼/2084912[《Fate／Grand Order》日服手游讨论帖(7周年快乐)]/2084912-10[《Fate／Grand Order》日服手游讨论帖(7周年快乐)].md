@@ -3099,3 +3099,17 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主才羁绊6  要到羁绊9才能上班。。好遥远啊  我为什么要点20np啊？ 明明没任何意义
 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">至于120的王姐和狂娜  已经彻底没救了  
 
+
+*****
+
+####  大十字紅朔  
+##### 13589#       发表于 2024-8-5 15:41
+
+这个系统伤害的只是少部分抽宝具6的人吧，这部分人在全体玩家里只占很小一部分
+
+甚至你现在马上开宝具8，他们也有很多人赶紧去补上<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+或者说真正不满的是没有马上开卡池让他们宝具8？
+
+所以这个事情应该就这么算了
+

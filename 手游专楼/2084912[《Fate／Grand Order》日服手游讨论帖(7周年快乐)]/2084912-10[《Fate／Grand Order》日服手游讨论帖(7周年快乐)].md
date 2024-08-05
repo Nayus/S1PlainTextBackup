@@ -4202,3 +4202,63 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 我就想知道我的4星bb是不是永远等不到五个追加一起点亮的那一天了md活动4星厨人下人啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等复课抽 不就18宝还是17宝？
 
+
+*****
+
+####  jackyhuang  
+##### 13694#       发表于 2024-8-5 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806827&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 19:51</a>
+等复课抽 不就18宝还是17宝？</blockquote>
+活动从者上哪里抽？
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  乾理央  
+##### 13695#       发表于 2024-8-5 20:04
+
+ 本帖最后由 乾理央 于 2024-8-5 20:06 编辑 
+<blockquote>・我们将恢复用于铸造圣杯的从者币，并补偿过去可以铸造的圣杯数量。
+
+→对于所有在8月4日(星期日)17:59之前铸造圣杯的用户，我们将恢复所有从者在圣杯铸造过程中消耗的从者币。
+
+→此外，对于所有用户，我们将根据已获得的从者币数量来计算过去可以铸造的圣杯数量，并补偿全部未铸造的圣杯数量。</blockquote>
+圣杯铸币这块还是有点没看懂
+
+也就是未来运营会把以前用来铸杯的币全部换回来，再补偿所消耗的币对应的圣杯？也就是未来会一口气送很多的圣杯+补偿从者币？还是送圣杯 or 补偿从者币
+
+*****
+
+####  清河子  
+##### 13696#       发表于 2024-8-5 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806827&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 19:51</a>
+等复课抽 不就18宝还是17宝？</blockquote>
+兄弟你是不是看错了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">md我是真的一想到当时蘑菇说BB是特意做成配布只为了让大家都能拥有就被讽刺得忍俊不禁
+
+*****
+
+####  alucardcz  
+##### 13697#       发表于 2024-8-5 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806922&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-5 20:04</a>
+
+活动从者上哪里抽？
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是看不见  难道还给用叶子换 不存在的！
+
+*****
+
+####  alucardcz  
+##### 13698#       发表于 2024-8-5 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806934&amp;ptid=2084912" target="_blank">清河子 发表于 2024-8-5 20:05</a>
+
+兄弟你是不是看错了四星BB是活动从者，别说18宝是恶心的极意，哪怕我愿意去搞这个恶心的极意官方都完全没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好意思看错了
+

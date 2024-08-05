@@ -2495,3 +2495,31 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  TheLoof  
+##### 13539#       发表于 2024-8-5 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65799857&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-5 08:39</a>
+
+一个震惊的事实是，你游开服到现在只有4个群30，其中只有C呆和暗狐是无条件的，梅芙限定男性和妖精，诺克 ...</blockquote>
+不，我没想这么多
+
+单纯是暗兔子羁绊爆炸了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 13540#       发表于 2024-8-5 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801362&amp;ptid=2084912" target="_blank">清河子 发表于 2024-8-5 11:05</a>
+
+一模一样的两个问题，同问
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+公主无脑减CD
+
+她几乎没有需要留充能的情况，更何况充能还带个20宝威
+

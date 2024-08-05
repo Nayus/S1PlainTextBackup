@@ -4191,3 +4191,14 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 我就想知道我的4星bb是不是永远等不到五个追加一起点亮的那一天了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">md活动4星厨人下人啊
 
+
+*****
+
+####  alucardcz  
+##### 13693#       发表于 2024-8-5 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806265&amp;ptid=2084912" target="_blank">清河子 发表于 2024-8-5 18:56</a>
+
+我就想知道我的4星bb是不是永远等不到五个追加一起点亮的那一天了md活动4星厨人下人啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等复课抽 不就18宝还是17宝？
+

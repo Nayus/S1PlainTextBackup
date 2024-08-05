@@ -4329,3 +4329,11 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 除了硬幣外還要更多個聖杯，本身活動就是通關才得1個，主線又開得慢，就是靠過多硬幣換上去(但都是用3星 ...</blockquote>
 你缺圣杯？ 我怎么还有70多个。。。
 
+
+*****
+
+####  khxooo  
+##### 13705#       发表于 2024-8-5 23:16
+
+2024年了，我TM还是缺黑灰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

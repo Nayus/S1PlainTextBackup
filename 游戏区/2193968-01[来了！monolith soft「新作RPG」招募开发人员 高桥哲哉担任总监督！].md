@@ -917,3 +917,21 @@ XenoGear-&gt;XenoSaga-&gt;XenoBlade，接下来会是啥，Gear对Blade，那Sag
 光田转推了，应该还是异度</blockquote>
 大概率是异度，但是是不是异度神剑就不好说了
 
+
+*****
+
+####  时空之旅  
+##### 99#       发表于 2024-8-5 23:07
+
+<blockquote>seize1121 发表于 2024-8-5 22:36
+光田转推了，应该还是异度</blockquote>
+这啥逻辑，光田转推就一定是异度。。。。
+
+
+*****
+
+####  Arisita  
+##### 100#       发表于 2024-8-5 23:15
+
+还是光田就行狠狠期待，感觉xb3因为续作关系有点束手束脚了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

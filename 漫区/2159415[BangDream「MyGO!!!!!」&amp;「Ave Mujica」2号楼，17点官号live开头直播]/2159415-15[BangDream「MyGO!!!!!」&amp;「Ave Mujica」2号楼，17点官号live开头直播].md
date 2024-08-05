@@ -11709,3 +11709,12 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Alicest  
+##### 21785#       发表于 2024-8-5 23:10
+
+狗来了，鸡应该也快了吧
+<img src="https://p.sda1.dev/18/82e5d2db9757f90d522df321f1e3e95e/image.jpg" referrerpolicy="no-referrer">
+

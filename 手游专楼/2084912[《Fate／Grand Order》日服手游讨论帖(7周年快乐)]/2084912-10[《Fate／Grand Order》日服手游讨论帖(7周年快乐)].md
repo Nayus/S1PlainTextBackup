@@ -4306,3 +4306,26 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 也就是未来运营会把以前用来铸杯的币全部换回来，再补偿所消耗的币对应的圣 ...</blockquote>
 铸造了圣杯的会把消耗的硬币退给你，没有每个月都铸造满2个圣杯的会按照你少铸造的数量补杯子给你
 
+
+*****
+
+####  eilot  
+##### 13703#       发表于 2024-8-5 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805389&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-5 17:34</a>
+
+120已经够受罪的了，还有150啊</blockquote>
+除了硬幣外還要更多個聖杯，本身活動就是通關才得1個，主線又開得慢，就是靠過多硬幣換上去(但都是用3星角色吧，4星以上不會用，1~2星自己都不足)
+
+100級是每個只能升2級，120以上可能1個才能升1級，到時會開課金買聖杯嗎
+
+*****
+
+####  alucardcz  
+##### 13704#       发表于 2024-8-5 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65808109&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-5 21:48</a>
+
+除了硬幣外還要更多個聖杯，本身活動就是通關才得1個，主線又開得慢，就是靠過多硬幣換上去(但都是用3星 ...</blockquote>
+你缺圣杯？ 我怎么还有70多个。。。
+

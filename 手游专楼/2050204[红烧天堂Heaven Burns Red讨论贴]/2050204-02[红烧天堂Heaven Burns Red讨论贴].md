@@ -1190,3 +1190,15 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 2024-8-4 22:30 上传
 
+
+*****
+
+####  拖鞋脚后跟  
+##### 1613#       发表于 2024-8-5 21:54
+
+今天抽到了原皮水濑莓和雷白河学姐，因为都是雷属性就上wiki看了眼数值。想请教一下为什么这俩一个单体一个群体，大招倍率却差不多？
+<img src="https://p.sda1.dev/18/40c876c8fd3ef9834f7df6abef59dcb7/CMP_20240805215130851.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c715dfed28a2958ff6c7866781229274/CMP_20240805215130930.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

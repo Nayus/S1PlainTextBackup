@@ -860,3 +860,14 @@ XBY！</blockquote>
 
 我永远相信高桥哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HOBBITXDD  
+##### 93#       发表于 2024-8-5 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803460&amp;ptid=2193968" target="_blank">天堂大法 发表于 2024-8-5 14:32</a>
+
+没有任何官方消息提及，只有从招聘中能看到中世纪、奇幻、ARPG这种关键词 ...</blockquote>
+而且甚至跟招聘图的“小红帽”本身关系不大，本根康之推特早就说了那张概念CG只是自己练手画着玩的
+

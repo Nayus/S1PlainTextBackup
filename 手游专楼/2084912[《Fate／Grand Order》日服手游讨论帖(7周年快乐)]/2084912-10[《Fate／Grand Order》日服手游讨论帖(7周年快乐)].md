@@ -3363,3 +3363,185 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 你是最伤害的那部分玩家，我理解你心情不好，但你没必要对我发火啦……</blockquote>
 我已经很客气了  要不然帮你挂到隔壁看看会发生什么？
 
+
+*****
+
+####  格林卡罗尔  
+##### 13611#       发表于 2024-8-5 16:35
+
+我靠真的有用
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  大十字紅朔  
+##### 13612#       发表于 2024-8-5 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804615&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 16:27</a>
+
+我已经很客气了  要不然帮你挂到隔壁看看会发生什么？</blockquote>
+隔壁是哪儿啊，我很久没来S1了，看你也是05年的老号，说不定我们以前也见过
+
+至于嘛两三句就要吵起来…
+
+但是关于FGO这游戏吧，我其实也有些想法，但是等你气头过了之后我再说吧
+
+*****
+
+####  森兰丸  
+##### 13613#       发表于 2024-8-5 16:38
+
+<img src="https://img.saraba1st.com/forum/202408/05/163636ctt9lzgt9zze0azk.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (884.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 16:36 上传
+
+<img src="https://img.saraba1st.com/forum/202408/05/163643n1midb44lik0z4y9.png" referrerpolicy="no-referrer">
+
+<strong>22.png</strong> (921.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 16:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">看了下我的摩根还能拯救下.....10绊后就特意雪藏了.....该是时候拉出来溜一溜了
+
+*****
+
+####  希望之花  
+##### 13614#       发表于 2024-8-5 16:38
+
+转隔壁
+
+简单概括
+
+→支持把开放的被动换成别的被动
+
+→支持返还圣杯铸造使用了的硬币
+
+然后给所有人补偿120石
+
+但是→满配需要8宝15绊(实际上就是9宝)的事实不变
+
+*****
+
+####  大十字紅朔  
+##### 13615#       发表于 2024-8-5 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804684&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-5 16:35</a>
+
+我靠真的有用
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+我去看了，第一次看到FGO的营运会认错，现代医学的奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 13616#       发表于 2024-8-5 16:39
+
+怂了，开启硬币返还。后面感觉升级被动2，4，5收益更大吧。
+
+*****
+
+####  khxooo  
+##### 13617#       发表于 2024-8-5 16:39
+
+难得难得，怂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 13618#       发表于 2024-8-5 16:40
+
+官方出通知了
+
+*****
+
+####  angelooo  
+##### 13619#       发表于 2024-8-5 16:40
+
+证明冲是真的特么有用，这破运营就是贱
+
+*****
+
+####  alucardcz  
+##### 13620#       发表于 2024-8-5 16:41
+
+跪了<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jackyhuang  
+##### 13621#       发表于 2024-8-5 16:43
+
+120石够抽一宝吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不过分化一部分玩家的效果应该能达到了，手贱点了被动13的应该不会冲了
+喂了120导致开不了被动的接着冲啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  保罗赫伯特  
+##### 13622#       发表于 2024-8-5 16:44
+
+看来还是要多发声啊，喜大普奔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13623#       发表于 2024-8-5 16:44
+
+ 本帖最后由 angelooo 于 2024-8-5 16:45 编辑 
+
+所以这是把国内二游那套学完了是吧，先试探一下再滑跪
+
+刚在上个月冲过1999的表示心情极度复杂
+
+不是，我看岔了，120的问题没解决啊？？？
+
+*****
+
+####  alucardcz  
+##### 13624#       发表于 2024-8-5 16:44
+
+这措施不就是我之前说的那个吗。。。被动改成自选制。。
+
+现在120级的属于终极小丑了
+
+*****
+
+####  eilot  
+##### 13625#       发表于 2024-8-5 16:44
+
+學妹:
+
+你們其他都能抽到寶8寶9和刷到絆15
+
+我只能一世卡在絆8，硬幣就只得更新時那一次，之後都再沒法入手
+
+*****
+
+####  TheLoof  
+##### 13626#       发表于 2024-8-5 16:44
+
+笑死，实践证明闹得大没有屁用，闹得最凶的真爱氪金佬依旧吃屎
+
+螺旋社这手分化人群玩得挺好
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 13627#       发表于 2024-8-5 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能让阿叶补填120石，这次问题是史诗级的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+

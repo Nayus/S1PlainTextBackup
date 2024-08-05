@@ -3290,3 +3290,30 @@ zelda gb.jpg
 9月就发售了，等秋直再宣传这游戏还要不要卖了</blockquote>
 忘了发售日，我的错。。。
 
+
+*****
+
+####  冷泉夜月  
+##### 330#       发表于 2024-8-5 21:28
+
+2D究极手<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  thez  
+##### 331#       发表于 2024-8-5 21:34
+
+同步技能惊了，这可比究极手用处多
+
+*****
+
+####  医生狼多  
+##### 332#         楼主| 发表于 2024-8-5 21:35
+
+#塞尔达传说智慧的再现# 漫游海拉鲁的方法ー「大地篇」公布 http://t.cn/A68YlOJk ​​​
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

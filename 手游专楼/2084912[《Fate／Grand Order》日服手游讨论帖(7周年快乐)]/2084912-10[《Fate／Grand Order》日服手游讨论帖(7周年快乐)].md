@@ -3957,3 +3957,50 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 不是说跪得好，你游这跪得比GBF已经算是治本了，隔壁差不多操作统计不出来花过的，干脆全服送了相当于每人120货币可能少点吧，本来忍忍也就过了，然后他又开了EX6—15<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 13669#       发表于 2024-8-5 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">粗看了下用币换圣杯这栏.....是不是说偿还你所有用来铸造圣杯的币同时还送你之前可以铸造的最大圣杯的数量？
+
+*****
+
+####  格林卡罗尔  
+##### 13670#       发表于 2024-8-5 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805196&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-5 17:18</a>
+粗看了下用币换圣杯这栏.....是不是说偿还你所有用来铸造圣杯的币同时还送你之前可以铸造的最大圣杯的数量 ...</blockquote>
+是这个意思，也就是不管你铸多少，拥有的圣杯量总体不变
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  alucardcz  
+##### 13671#       发表于 2024-8-5 17:20
+
+这次滑跪其实就是币换圣杯这块性质恶劣 属于欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13672#       发表于 2024-8-5 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805196&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-5 17:18</a>
+
+粗看了下用币换圣杯这栏.....是不是说偿还你所有用来铸造圣杯的币同时还送你之前可以铸造的最大圣杯的数量 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">120石豹豹要5宝爱蕾了吗
+
+*****
+
+####  cenhr  
+##### 13673#       发表于 2024-8-5 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805224&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-5 17:20</a>
+
+这次滑跪其实就是币换圣杯这块性质恶劣 属于欺诈了</blockquote>
+如果日本玩家肯，可以告对吗？
+

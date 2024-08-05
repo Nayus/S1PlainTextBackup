@@ -3100,3 +3100,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">既然如此，希望本作多一点有特点的新地图
 
+
+*****
+
+####  Aeons  
+##### 2429#       发表于 2024-8-5 12:43
+
+剩下的角色和剧情关联挺大，不知道能不能混到杂志，近藤点评反派还是挺有参考意义的。
+

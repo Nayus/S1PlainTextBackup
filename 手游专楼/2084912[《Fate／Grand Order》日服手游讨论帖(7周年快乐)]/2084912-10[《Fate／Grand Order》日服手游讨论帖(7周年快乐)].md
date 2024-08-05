@@ -2630,3 +2630,53 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  保罗赫伯特  
+##### 13549#       发表于 2024-8-5 12:34
+
+ 本帖最后由 保罗赫伯特 于 2024-8-5 12:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800567&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-5 09:57</a>
+
+打即死也只有60翻倍，不能必杀80%的怪，还不是一样坑</blockquote>
+还得带个许德拉匕首，加10%即死律才够。对比下，尼托还灵活点，能靠OC涨呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+御主技能和令咒现在是不加好感度吧，本来操作就够麻烦了，还有这种bug，走即死流都得最后放宝具<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13550#       发表于 2024-8-5 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65801861&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 11:44</a>
+
+这个当然是无事发生啊，最多到哪个整数下载甚至到明年的时候再搞个新福利来稍微处理下
+
+比如我看到很多地方 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算这么干了 120级的怎么办 终极小丑吗
+
+
+*****
+
+####  poor  
+##### 13551#       发表于 2024-8-5 12:42
+
+抽完就歪了个大王+1，结束啦，反正是花瓶<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  司马千晶  
+##### 13552#       发表于 2024-8-5 12:42
+
+120了怎么也不算亏吧，希望安排一下洗点13
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 13553#       发表于 2024-8-5 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亏麻了 升个110不好吗  现在我被动5都开不出
+

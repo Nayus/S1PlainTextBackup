@@ -5132,3 +5132,14 @@ https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][24
 
 2024-8-4 22:19 上传
 
+
+*****
+
+####  sino__unnko3  
+##### 17072#       发表于 2024-8-5 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65790742&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-8-4 10:36</a>
+看话题留言，似乎还是打算搬家而没搬家的阶段？之前搬家的推测可能得更新 ...</blockquote>
+翻昨天的录播，有个细节可以作为补充:家里冰箱放满了东西而且放了相当一段时间了？
+搬家的话这些理论上会处理，所以几个月内可能没有搬家？
+

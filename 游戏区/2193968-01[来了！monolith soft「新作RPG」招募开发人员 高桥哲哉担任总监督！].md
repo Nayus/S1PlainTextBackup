@@ -935,3 +935,11 @@ XenoGear-&gt;XenoSaga-&gt;XenoBlade，接下来会是啥，Gear对Blade，那Sag
 
 还是光田就行狠狠期待，感觉xb3因为续作关系有点束手束脚了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  herryk159  
+##### 101#       发表于 2024-8-6 00:37
+
+答应我，这次别阳痿了好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

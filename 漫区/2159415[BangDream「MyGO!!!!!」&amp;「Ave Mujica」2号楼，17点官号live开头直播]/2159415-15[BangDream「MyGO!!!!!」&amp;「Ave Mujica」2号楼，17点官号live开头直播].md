@@ -11289,3 +11289,13 @@ S1Next-鹅版 客户端已经到 3.1.88.3了，建议更新一下
 
 更新链接：[https://www.pgyer.com/xfPejhuq](https://www.pgyer.com/xfPejhuq) 密码eo
 
+
+*****
+
+####  紫吹兰  
+##### 21752#         楼主| 发表于 2024-8-5 10:55
+
+谁说我们邦邦只会乱炖的，不说ykls这种那不是每次活动不是结婚就是婚后的。进入大学篇以后，花千和彩千都不端水了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+中学生小丫头懂啥，乘着年轻多交交朋友罢了，真结婚还得看成年人，最终祥子走那条线还是要看谁在上大学的时候能抢到同居的位置<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

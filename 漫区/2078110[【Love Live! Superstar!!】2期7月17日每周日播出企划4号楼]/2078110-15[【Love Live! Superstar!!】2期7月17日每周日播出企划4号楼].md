@@ -1137,3 +1137,22 @@ gbc第八集（修正掌那集）不是好评如潮吗，后面也就逐渐下�
 </blockquote>
 然后大香老师表示我就不回来了，在电视上看到十人团再夺冠军释然的似了（）
 
+
+*****
+
+####  ads147147  
+##### 20834#       发表于 2024-8-5 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65800948&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-5 10:31</a>
+
+这次VN也很大只
+
+btw，你星是不是有什么人在和虹较劲啊，建议菜就得认，人家做得比你好都只能绕道，你哪来的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">再怎么说tv里也不可能改始空吧，我觉得这点就算京极花田再发癫也不会改这个。
+
+当然，之后live上出11人版本就不意外了。
+
+——————
+
+至于较劲我觉得不太可能啊，星虹不都是若林主导的，真要阴谋论也应该是若林强行要求星团按as的写（毕竟之前有访谈说对as加人挺满意的），京极花田蚌埠但是只能照做，当然，星1就已经砸了其实已经很说明这个阴谋论不太可能。
+

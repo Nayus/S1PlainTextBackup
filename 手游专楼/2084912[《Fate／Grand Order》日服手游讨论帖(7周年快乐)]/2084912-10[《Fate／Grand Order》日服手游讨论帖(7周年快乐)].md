@@ -2427,3 +2427,19 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 不过今年福利真糟糕，最好的还是7周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 13532#       发表于 2024-8-5 10:50
+
+我个人还是先开被动2，开始20NP就算对5加成对3t真的很影响配对思路。
+
+
+*****
+
+####  Blackson  
+##### 13533#       发表于 2024-8-5 10:56
+
+反正NP是最重要的
+

@@ -2680,3 +2680,49 @@ lxs肯定做了两手备案的<img src="https://static.saraba1st.com/image/smile
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亏麻了 升个110不好吗  现在我被动5都开不出
 
+
+*****
+
+####  onemoment  
+##### 13554#       发表于 2024-8-5 12:48
+
+毁灭吧FGO
+
+*****
+
+####  angelooo  
+##### 13555#       发表于 2024-8-5 12:49
+
+<blockquote>alucardcz 发表于 2024-8-5 12:38
+就算这么干了 120级的怎么办 终极小丑吗</blockquote>
+那当然是等级也可以搞回退啊
+
+但我觉得他大概率什么都不会干23333
+
+哦，还有个解决方式，开20绊，但那样要给玩家很多免费石头，太亏了，估计也不行
+
+
+*****
+
+####  alucardcz  
+##### 13556#       发表于 2024-8-5 12:51
+
+ 本帖最后由 alucardcz 于 2024-8-5 12:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65802471&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-5 12:49</a>
+
+那当然是等级也可以搞回退啊
+
+但我觉得他大概率什么都不会干23333
+
+哦，还有个解决方式，开20绊，但那样要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得大概率什么都不会干 无事发生
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外按照现在羁绊给的硬币20是不够的（
+
+解决方法其实有很多
+
+1 通用硬币 说了那么多年了 影子都没有
+
+2 用新货币开被动45 给多给少都无所谓  慢慢来
+
+用脚想都能想出一堆解法  可yls偏偏选择了现在这个 我都不知道他们是怎么通过这个方案的  他们团队里难道就没有一个脑子是正常的
+

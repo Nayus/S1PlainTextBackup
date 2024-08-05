@@ -3065,3 +3065,23 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 想打高难本是不是一定要抽蛾子哥？</blockquote>
 高难不一定，90艹需求更大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 13587#       发表于 2024-8-5 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803788&amp;ptid=2084912" target="_blank">holyblood 发表于 2024-8-5 15:08</a>
+
+想打高难本是不是一定要抽蛾子哥？</blockquote>
+看你的仓库
+
+奥伯龙的本质是关底最大的“增幅器”
+
+你有一仓库的二宝三宝，那就无所谓
+
+你要是一堆一宝，还只养了一堆通用打手，没有乱七八糟的特型特攻打手，那你就老老实实抽
+
+你游上班最努力的就是唯一神，你要相信他卡你数值的能力
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1481,3 +1481,19 @@ https://x.com/yue_fsp/status/1819692819382239450
 
 ec君救一下啊
 
+
+*****
+
+####  格林卡罗尔  
+##### 563#       发表于 2024-8-5 23:00
+
+ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽然甲子园没优胜
+
+<img src="https://img.saraba1st.com/forum/202408/05/230012e66c3v6ycfycq6vk.jpg" referrerpolicy="no-referrer">
+
+<strong>GUOeXfYaIAAWe-g.jpg</strong> (217.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-5 23:00 上传
+

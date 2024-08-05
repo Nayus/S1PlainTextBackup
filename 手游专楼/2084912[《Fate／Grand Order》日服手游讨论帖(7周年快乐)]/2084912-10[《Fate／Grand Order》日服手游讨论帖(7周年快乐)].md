@@ -3047,3 +3047,21 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 关键还是11区的玩家就这样13样  要是韩国早就卡车了
 
+
+*****
+
+####  holyblood  
+##### 13585#       发表于 2024-8-5 15:08
+
+想打高难本是不是一定要抽蛾子哥？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 13586#       发表于 2024-8-5 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65803788&amp;ptid=2084912" target="_blank">holyblood 发表于 2024-8-5 15:08</a>
+
+想打高难本是不是一定要抽蛾子哥？</blockquote>
+高难不一定，90艹需求更大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

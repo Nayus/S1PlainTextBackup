@@ -1359,3 +1359,19 @@ CGディレクター：黒﨑豪
 <img src="https://p.sda1.dev/18/0e4d3b1af3f7adb47c70050577833e6d/松浦果南徒町小铃.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/b5bdbdccd7e8583e6d24e801d4598ae8/米娅泰勒薇恩玛格丽特安养寺姬芽.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 20847#       发表于 2024-8-6 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65812744&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-6 13:11</a>
+怪不得异次元BD宣传咋就大马路有单独给角色们画，原来就是BD封底的差分
+
+btw，平山采访说日升会给制作人三 ...</blockquote>
+平山那个只是吹吹自己这次高压下把活干好了吧，说实话这个比正常3d动画3倍多的开销一看dvd数量怎么看也不像是能算成功的收支平衡（更别说还是东南亚外包结果重新返工的，制作人失格。）
+
+不过平山采访三分之一的部分都在说水团经验，算一下水tv又不算失败，破壁呢，剧场版的失败说狠和代便日升那么多倒霉催企划来比也就那样吧，说到底更像是办公室政治失败。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

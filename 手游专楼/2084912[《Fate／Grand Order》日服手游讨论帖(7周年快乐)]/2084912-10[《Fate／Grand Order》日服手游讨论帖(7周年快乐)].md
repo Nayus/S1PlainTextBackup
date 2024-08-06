@@ -4660,3 +4660,25 @@ fgo一直都限制直播内容啊
 
 谈个纸片人女友都要每次战斗重新攻略，现实的女人都没这么麻烦
 
+
+*****
+
+####  khxooo  
+##### 13734#       发表于 2024-8-6 17:02
+
+又不是杰克，真是应了国服的名称，弃子啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13735#       发表于 2024-8-6 17:02
+
+艳后我以为早就不存在了。。
+
+*****
+
+####  希望之花  
+##### 13736#       发表于 2024-8-6 17:05
+
+艳后和杰克谁也别说谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

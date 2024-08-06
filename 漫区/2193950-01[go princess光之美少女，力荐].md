@@ -441,3 +441,14 @@
 
 组曲后半段因为311地震被迫重写剧本，可惜了。我入坑就是看的初代和组曲。
 
+
+*****
+
+####  pokemon最爱  
+##### 49#       发表于 2024-8-6 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65814044&amp;ptid=2193950" target="_blank">klushyo 发表于 2024-8-6 15:51</a>
+
+组曲后半段因为311地震被迫重写剧本，可惜了。我入坑就是看的初代和组曲。 ...</blockquote>
+组曲不看小说等于没看（暴论）
+

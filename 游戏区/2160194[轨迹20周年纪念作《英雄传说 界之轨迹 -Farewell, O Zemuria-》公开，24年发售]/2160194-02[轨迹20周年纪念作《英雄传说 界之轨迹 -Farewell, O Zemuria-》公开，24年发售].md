@@ -3469,3 +3469,13 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 应该不至于直接快进到九月吧，新服装明明都人均夏装的（）年龄这个可能你法社又草台了（）
 
+
+*****
+
+####  宛若青空  
+##### 2469#       发表于 2024-8-6 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65814530&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-6 16:37</a>
+小垃圾DLC应该是有的，但是新的换装DLC怕是无了，所以这次直接没机票和豪华版了吧</blockquote>
+其实也不一定，黎1也没数字豪华版一样有服装饰品DLC，等9月要是没公布那就是真没了
+

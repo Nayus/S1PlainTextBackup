@@ -11866,3 +11866,13 @@ md，感觉狗的票根本买不到啊<img src="https://static.saraba1st.com/ima
 
 [https://x.com/Kanade_3344/status/1819766959690666391](https://x.com/Kanade_3344/status/1819766959690666391)
 
+
+*****
+
+####  rslika  
+##### 21803#       发表于 2024-8-6 12:17
+
+抢票：抢不到就不去了，打死不给黄牛钱
+
+当天：你们都开到了什么位置
+

@@ -3636,3 +3636,21 @@ Screenshot_20240805_234612.jpg
 
 —— 来自 vivo V2118A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  xbhuang  
+##### 369#       发表于 2024-8-6 08:14
+
+看到同步我想到了一个玩法
+就是同步林克，然后林克和塞尔达切换解密
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 370#       发表于 2024-8-6 08:16
+
+急急急急急
+

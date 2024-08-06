@@ -4593,3 +4593,13 @@ fgo一直都限制直播内容啊
 说的是目前使用令咒和衣服技能不加好感度的bug
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">appstore里的更新日志里写了不具合修正，也许是程序框架先改，然后一会儿bug修复和强化本一起推送（吃桃
 
+
+*****
+
+####  angelooo  
+##### 13726#       发表于 2024-8-6 16:20
+
+<blockquote>希望之花 发表于 2024-8-6 15:19
+今天的版本更新没有修复好感度条bug</blockquote>
+太废物了，这都养的什么人
+

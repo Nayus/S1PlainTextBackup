@@ -1052,3 +1052,11 @@ xb3 卖这b样，你怎么还在？
 
 —— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  LuciferMustDie  
+##### 113#       发表于 2024-8-6 16:23
+
+希望是另起世界观的XB，把这个品牌立住
+

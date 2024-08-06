@@ -3316,3 +3316,14 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到主角方八个表，但是又有九个新的表
 
+
+*****
+
+####  oskneo  
+##### 2453#       发表于 2024-8-6 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813258&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-6 14:21</a>
+
+法老控：哪有空去考据北欧神话，借个名字而已别想太多</blockquote>
+隔壁ys10刚研究北欧不少了，有现成的研究材料别浪费啊
+

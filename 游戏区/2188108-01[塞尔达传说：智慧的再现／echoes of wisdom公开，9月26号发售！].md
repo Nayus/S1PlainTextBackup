@@ -3891,3 +3891,14 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 平时关注的好多游戏自媒体都没提这个宣传片，差点错过
 
+
+*****
+
+####  佛罗伦萨  
+##### 396#       发表于 2024-8-6 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813550&amp;ptid=2188108" target="_blank">就是剑鞘 发表于 2024-8-6 14:56</a>
+
+平时关注的好多游戏自媒体都没提这个宣传片，差点错过</blockquote>
+一般都会发的，除非是只发steam打折消息的那种。
+

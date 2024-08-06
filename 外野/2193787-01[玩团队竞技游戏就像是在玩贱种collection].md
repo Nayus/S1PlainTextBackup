@@ -819,3 +819,11 @@ ELO机制发力+给你匹配两个人机队友+两个人机对手（用你的电
 
 我经常看的马里奥制造2就是，直播天天在骂娘
 
+
+*****
+
+####  黑羽零  
+##### 67#       发表于 2024-8-6 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">3个人就够，比如随机配队玩斗地主
+

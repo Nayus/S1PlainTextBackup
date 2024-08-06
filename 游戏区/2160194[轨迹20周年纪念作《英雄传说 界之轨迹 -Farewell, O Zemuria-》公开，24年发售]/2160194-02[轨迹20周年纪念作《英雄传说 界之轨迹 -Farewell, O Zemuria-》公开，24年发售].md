@@ -3405,3 +3405,45 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 都忘了闪轨大锤的索尔大锤吗
 
+
+*****
+
+####  一步成诗  
+##### 2463#       发表于 2024-8-6 16:30
+
+是你，窗纸诡计2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2464#       发表于 2024-8-6 16:30
+
+可能是嫌我发了几封要数字豪华版的邮件烦所以今天终于回了我一封<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+日版没数字豪华版，云豹中文版不确定
+
+<img src="https://img.saraba1st.com/forum/202408/06/162951fly86e8f58yl681l.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240806162921.png</strong> (35.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 16:29 上传
+
+
+*****
+
+####  一步成诗  
+##### 2465#       发表于 2024-8-6 16:35
+
+意思是没dlc？这下真的乐晕了，谁买谁冤大头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2466#       发表于 2024-8-6 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小垃圾DLC应该是有的，但是新的换装DLC怕是无了，所以这次直接没机票和豪华版了吧
+
+毕竟店特都是老模直接凑数了，游戏内还想有新模的换装DLC确实不太现实
+

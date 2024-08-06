@@ -1060,3 +1060,13 @@ xb3 卖这b样，你怎么还在？
 
 希望是另起世界观的XB，把这个品牌立住
 
+
+*****
+
+####  哎哟卧槽了  
+##### 114#       发表于 2024-8-6 16:29
+
+NS2護航作來了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

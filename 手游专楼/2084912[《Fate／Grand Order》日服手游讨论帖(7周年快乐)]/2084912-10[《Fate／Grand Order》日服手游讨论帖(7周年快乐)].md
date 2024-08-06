@@ -4603,3 +4603,21 @@ fgo一直都限制直播内容啊
 今天的版本更新没有修复好感度条bug</blockquote>
 太废物了，这都养的什么人
 
+
+*****
+
+####  巴裘拉  
+##### 13727#       发表于 2024-8-6 16:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">符合小作坊公司的技术水平
+
+*****
+
+####  beer  
+##### 13728#       发表于 2024-8-6 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65812868&amp;ptid=2084912" target="_blank">巴裘拉 发表于 2024-8-6 13:31</a>
+
+这回真忍不住要豹跳了靠送的石头和运营滑跪的120石头成功把5宝艾蕾请回迦</blockquote>
+不会滑跪调高了概率吧
+

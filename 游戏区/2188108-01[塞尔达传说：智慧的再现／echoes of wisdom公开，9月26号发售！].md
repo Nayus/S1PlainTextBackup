@@ -3804,3 +3804,11 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 又看了一遍pv1，原来裂缝里是碎片化的，这样裂缝里能连成一整张地图的可能性就小了一些，可能每个裂缝相当 ...</blockquote>
 还是希望双地图。
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 387#       发表于 2024-8-6 10:35
+
+看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

@@ -84,3 +84,11 @@ Dungeon Warfare，两作都支持手机
 不过其实有的已经实现了，但不够爽，我觉得最该出的是王国全明星 ...</blockquote>
 DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能让英雄的动作性更强些就好了，在宏观战略（哪里放塔）和微观战术（优先攻击哪个敌人，是保护自己还是输出还是拉扯引敌）间平衡就有趣多了，亲手操作英雄杀敌的爽快感也自然是看他在那边自动不能比的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wthall  
+##### 84#       发表于 2024-8-6 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">打完，这最后几关压力挺大的啊，总是会漏1-3个，你们怎么一个个都说的那么容易。地上的眼睛一睁开，马上防线就崩了
+

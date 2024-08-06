@@ -5303,3 +5303,20 @@ https://www.youtube.com/watch?v=HAn58pSPJ1Q
 https://www.youtube.com/watch?v=YjL5Fx ...</blockquote>
 还挺好听的
 
+
+*****
+
+####  古战场亡魂  
+##### 17088#       发表于 2024-8-6 23:41
+
+最坏不过粉丝吵架吵不过呗，能有啥影响呗。
+
+有那时间思考这种无聊的事情，mea出了两首东方曲速听。
+
+*****
+
+####  Dualist彩  
+##### 17089#       发表于 2024-8-6 23:45
+
+crew能哭的地方，只有厕所和你麻的评论区里<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

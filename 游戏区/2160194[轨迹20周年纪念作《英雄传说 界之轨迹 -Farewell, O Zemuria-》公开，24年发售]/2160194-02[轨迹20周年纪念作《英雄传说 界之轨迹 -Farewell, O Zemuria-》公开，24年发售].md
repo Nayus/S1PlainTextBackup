@@ -3487,3 +3487,25 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 如果没有换装dlc那就是连设计的人都没有了，难怪立绘的衣服拉胯成那样，我收回前言，不是你法的2d美术要死了，是你法的美术要死了
 
+
+*****
+
+####  Aeons  
+##### 2471#       发表于 2024-8-6 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65814660&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-6 16:50</a>
+哦，看了下。
+
+托娃生日3月，黎恩5月，菲8月。黎2开篇2月托娃23岁界轨24岁，黎恩界轨23岁，菲1206年8月未成 ...</blockquote>
+如果按游戏开始时间，小部分存在问题，比如黎一菲20，开篇8月27日，理应是19，狮子三部都是69岁。
+但是如果以登场时间计，那就基本没问题了。
+
+*****
+
+####  宛若青空  
+##### 2472#       发表于 2024-8-6 17:24
+
+不至于不至于，京都迷城就是社内保底还有个村上
+
+（但是村上现在在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+

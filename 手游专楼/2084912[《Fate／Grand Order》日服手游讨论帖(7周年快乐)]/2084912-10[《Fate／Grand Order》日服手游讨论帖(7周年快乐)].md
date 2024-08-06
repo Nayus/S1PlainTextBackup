@@ -4702,3 +4702,33 @@ fgo一直都限制直播内容啊
 
 不过太君这做个被动切换都要等几个月的fw技术力，有的好等了
 
+
+*****
+
+####  TheLoof  
+##### 13739#       发表于 2024-8-6 17:18
+
+ 本帖最后由 TheLoof 于 2024-8-6 17:19 编辑 
+
+比起艳后，医神超绝强化啊
+群20np+群30np率+群20蓝魔放
+虽然蓝卡还是缺伤害但是连发拐管够
+
+这就去拉61010
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  清河子  
+##### 13740#       发表于 2024-8-6 17:21
+
+我刚拉完徐福医神就强化了！<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巴裘拉  
+##### 13741#       发表于 2024-8-6 17:23
+
+医神这是把豆爸完爆了？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

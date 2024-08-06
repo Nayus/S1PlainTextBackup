@@ -420,3 +420,16 @@
 柴田现在在哪来着的？</blockquote>
 22年起是海贼王那边的制作人啊
 
+
+*****
+
+####  zoomegg  
+##### 47#       发表于 2024-8-6 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813595&amp;ptid=2193950" target="_blank">NameLess2501 发表于 2024-8-6 15:01</a>
+
+唯一一部看完的Q娃，很好看，可能是因为画风和人设比较成熟所以看下去了？而评价也很高的其他系列却一部没 ...</blockquote>
+画风和人设成熟真的不考虑一波组曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+高桥晃YYDS，还画了人鱼天使变身bank
+

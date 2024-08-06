@@ -4552,3 +4552,21 @@ fgo一直都限制直播内容啊
 
 今天的版本更新没有修复好感度条bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13722#       发表于 2024-8-6 15:36
+
+ 本帖最后由 保罗赫伯特 于 2024-8-6 15:40 编辑 
+
+这东西是修不好了吗，本来就难凑好感，一天三划令咒的优势也发挥不出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 13723#       发表于 2024-8-6 15:41
+
+好感度条感觉不是bug吧，就是这么设定的，每次进本都是一次全新的恋爱体验哦<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+

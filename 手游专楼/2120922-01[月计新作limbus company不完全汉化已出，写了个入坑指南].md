@@ -41,3 +41,11 @@
 
 感觉之后的充能队可以选裂隙浮、裂隙希、W唐、W良、W奥，再加个鹿玛或牛索？不过这样的话会缺突刺伤害，继续奶R罗佳吧...
 
+
+*****
+
+####  erratic璃月  
+##### 820#       发表于 2024-8-6 15:37
+
+yj不开活动都没讨论欲望了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

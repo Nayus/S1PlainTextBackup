@@ -1341,3 +1341,21 @@ CGディレクター：黒﨑豪
 
 怪不得异次元BD宣传咋就大马路有单独给角色们画，原来就是BD封底的差分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 20846#       发表于 2024-8-6 15:38
+
+<img src="https://p.sda1.dev/18/74794d3165fc4a7ba0c7a67111f89f58/leaders.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0c174920558f7be0417e8aaa188313f6/唐可可钟岚珠.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/793d087361ba2e769392b0e3f4775e3b/津岛善子岚千砂都.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/352f51507f14873c1e59d75ccd45d014/黑泽黛雅平安名堇.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5ba62173faa3d5f93d953c480cd328be/西野木真姬叶月恋.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/7ff3a3f684f59a1ab55222c31d9c2cb6/中须霞鬼冢夏美.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/09322b8103705bdb46c3bb869bbc9bfa/黑泽露比鬼冢冬毬.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0c4cccb3e4d1d5e586a6b57e88865b86/百生吟子三船栞子.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c6ebbe9c16691a0221f01a7ae2fa301e/天王寺璃奈大沢琉璃乃.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/0e4d3b1af3f7adb47c70050577833e6d/松浦果南徒町小铃.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b5bdbdccd7e8583e6d24e801d4598ae8/米娅泰勒薇恩玛格丽特安养寺姬芽.jpg" referrerpolicy="no-referrer">
+

@@ -3343,3 +3343,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起前半，我觉得更可能整部游戏都是这个
 
+
+*****
+
+####  hkguty  
+##### 2456#       发表于 2024-8-6 15:46
+
+应该不至于，真那样的话就是又一个黎2，近藤还敢吗？
+

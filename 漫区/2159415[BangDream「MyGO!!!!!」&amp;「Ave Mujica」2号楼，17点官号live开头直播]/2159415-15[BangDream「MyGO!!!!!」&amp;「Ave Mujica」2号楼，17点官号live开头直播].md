@@ -11886,3 +11886,27 @@ md，感觉狗的票根本买不到啊<img src="https://static.saraba1st.com/ima
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  550616  
+##### 21805#       发表于 2024-8-6 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65809198&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-8-5 23:47</a>
+
+难说哦，鸡的人气在国内其实不算低，真开了也说不定和萝一个待遇，抢票抢上天 ...</blockquote>
+要看和谁比
+
+鸡毕竟是职业音乐人
+
+go的6th已经很可以了，但是还是比不过鸡的1st
+
+
+*****
+
+####  akiomn  
+##### 21806#       发表于 2024-8-6 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡的1st算是出道巅峰了，但是架不住wsd一手好牌打的稀烂，后面开始走低了
+鸡在国内人气肯定高，但在日本现在的人气确实就那样，wsd功不可没啊
+

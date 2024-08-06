@@ -3372,3 +3372,20 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 如果完全按照之前描述和op，三计划时间差不多，那游戏开始得8月左右了，也就是4月宣布宇宙军基地，4-5个月后才发射。
 
+
+*****
+
+####  一步成诗  
+##### 2459#       发表于 2024-8-6 16:03
+
+反正界1看起来是不会讲魔王了，那除了表还能有什么可写<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2460#       发表于 2024-8-6 16:04
+
+ 本帖最后由 ravend233 于 2024-8-6 16:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写双子39抠脚苦情戏，写里爷个人进一步成长，写黑月内部斗争，写各种个人故事线，顺便写完一个收一个表但是不解释表的设定
+

@@ -333,3 +333,13 @@
 
 什么花组星组都是不良社团，大神一郎穿着特攻服喊着喧哗上等带着太妹们登场了是吧
 
+
+*****
+
+####  广告位  
+##### 42#       发表于 2024-8-6 16:03
+
+传奇领主DLC：开挖掘机的真岛吾朗，挖掘机直接用死亡爪的模型
+
+想想很带感啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+

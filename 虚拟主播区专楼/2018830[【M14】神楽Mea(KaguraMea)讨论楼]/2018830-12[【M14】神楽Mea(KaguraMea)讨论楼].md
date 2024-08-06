@@ -5162,3 +5162,41 @@ https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][24
 谷歌翻译，当时开的突然没开whisper<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">
 幽默谷歌
 
+
+*****
+
+####  Cortana  
+##### 17075#       发表于 2024-8-6 20:02
+
+我擦好姐妹都毕业了，小麻还能播到十年吗
+
+
+*****
+
+####  ashero  
+##### 17076#       发表于 2024-8-6 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816669&amp;ptid=2018830" target="_blank">Cortana 发表于 2024-8-6 20:02</a>
+
+我擦好姐妹都毕业了，小麻还能播到十年吗</blockquote>
+皮在自己手里 想勃就勃 大不了休息
+
+*****
+
+####  商博良  
+##### 17077#       发表于 2024-8-6 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816669&amp;ptid=2018830" target="_blank">Cortana 发表于 2024-8-6 20:02</a>
+
+我擦好姐妹都毕业了，小麻还能播到十年吗</blockquote>
+兄弟你醒醒，不是一个公司的
+
+*****
+
+####  Cortana  
+##### 17078#       发表于 2024-8-6 20:07
+
+<img src="https://img.saraba1st.com/forum/202408/06/195446j2xdxyn72idqgsvn.png" referrerpolicy="no-referrer">
+
+开香槟的来了
+

@@ -3584,3 +3584,14 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  椎名mahuyo  
+##### 2481#       发表于 2024-8-6 19:53
+
+<img src="https://p.sda1.dev/18/9f6c120c3d80c7b48413a7fd86c46efa/CMP_20240806195313560.jpg" referrerpolicy="no-referrer">
+b站又开始推了，这货多久能落地啊
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4829,3 +4829,14 @@ fgo一直都限制直播内容啊
 
 他最初就是觉得起码要有转移而已，本来就没对8宝15绊有异议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高木なつめ  
+##### 13752#       发表于 2024-8-6 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815257&amp;ptid=2084912" target="_blank">lin2004 发表于 2024-8-6 17:39</a>
+
+心放宽，别盯着战斗力练120，我好友列表里有个把吕布和徐福拉到120的真爱党，一车厨卡技能都没一个点到10 ...</blockquote>
+说得轻巧，我现在是彻底后悔喂任何一张120，每一个硬币都想抠回来点被动5。
+

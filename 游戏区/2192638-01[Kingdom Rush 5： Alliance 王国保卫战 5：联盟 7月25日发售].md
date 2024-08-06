@@ -71,3 +71,16 @@ Dungeon Warfare，两作都支持手机
 
 不过其实有的已经实现了，但不够爽，我觉得最该出的是王国全明星
 
+
+*****
+
+####  永远的访客  
+##### 83#       发表于 2024-8-6 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65806267&amp;ptid=2192638" target="_blank">巴特爱素子 发表于 2024-8-5 18:57</a>
+
+1、DOTA？
+
+不过其实有的已经实现了，但不够爽，我觉得最该出的是王国全明星 ...</blockquote>
+DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能让英雄的动作性更强些就好了，在宏观战略（哪里放塔）和微观战术（优先攻击哪个敌人，是保护自己还是输出还是拉扯引敌）间平衡就有趣多了，亲手操作英雄杀敌的爽快感也自然是看他在那边自动不能比的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

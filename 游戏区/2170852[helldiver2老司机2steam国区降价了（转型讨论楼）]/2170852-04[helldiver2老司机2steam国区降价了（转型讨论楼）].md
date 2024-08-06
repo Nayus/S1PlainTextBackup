@@ -747,3 +747,15 @@ n9打着倒是和以前差不多，n10还没解锁
 
 总体来说难10需要队友更好的技术和配合了，虫子那边主要还是要防止一个人遇到虫潮+钉刺，机器人是没有队友支援基本上会被压着打，武器基本上只能选自己最擅长的，不然玩着会很难受。
 
+
+*****
+
+####  ravend233  
+##### 5162#       发表于 2024-8-7 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816269&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-6 19:27</a>
+问题是非难10也都加强了啊。</blockquote>
+打了两把难9虫子，感觉钉刺虫不是很麻烦的玩意，还是绿胖更恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

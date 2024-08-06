@@ -643,3 +643,13 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">游走火力网还是三发一轮，buff了个狗屁
 
+
+*****
+
+####  风萧飒  
+##### 5153#       发表于 2024-8-6 21:11
+
+n9打着倒是和以前差不多，n10还没解锁
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

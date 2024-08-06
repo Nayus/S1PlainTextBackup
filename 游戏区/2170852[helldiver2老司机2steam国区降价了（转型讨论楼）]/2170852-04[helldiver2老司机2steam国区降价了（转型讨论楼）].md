@@ -776,3 +776,31 @@ n9打着倒是和以前差不多，n10还没解锁
 
 给潜兵的东西呢？玩的还是老几样，甚至少了。
 
+
+*****
+
+####  ravend233  
+##### 5164#       发表于 2024-8-7 01:41
+
+ 本帖最后由 ravend233 于 2024-8-7 01:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65819295&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-7 01:26</a>
+你要说难度，难10也就这样啊，但增加刺虫，增加新指挥官，火箭双足替换旧双足，这就是无条件的加强吧？
+
+ ...</blockquote>
+俩个月玩家方面就这点内容更新确实傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只能说玩是能玩，但是玩的东西也没变多，鉴定为没活，还是等九月九日当ek大魔去<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  6x6z6w  
+##### 5165#       发表于 2024-8-7 01:44
+
+箭头到底懂不懂正负反馈这些东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">你周四要卖火焰武器通行证的，周二就把喷火器削了，你让玩家怎么想？哪怕给喷火器再加个buff也行
+
+我都想好了，喷火器能短时间降低所有敌方单位盔甲强度，这不算直接伤害增强，但好歹能让喷火器继续在难9难10这些关卡能用
+
+而且新的巨型基地里拿的新战利品就只能换2超级样本+4稀有样本 ，逗谁玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">能打难10的玩家缺这些东西吗？
+

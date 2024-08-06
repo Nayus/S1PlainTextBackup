@@ -4913,3 +4913,26 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 点麻了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">这么重大的机能改革必须10周年福利！
 
+
+*****
+
+####  DARKGRAY  
+##### 13759#       发表于 2024-8-6 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818257&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-6 22:34</a>
+
+硬币的事情我感觉也不用聊了  基本不会在有什么改动了 120级就准备钉上耻辱柱吧
+
+以后请叫我丑新</blockquote>
+或许有救，刚才突然想到这转移卫星不是要数月吗，几个月就新年了，新年实装150级，120级不花硬币直接全退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13760#       发表于 2024-8-6 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818422&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-6 22:51</a>
+
+或许有救，刚才突然想到这转移卫星不是要数月吗，几个月就新年了，新年实装150级，120级不花硬币直接全退 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说出来你自己信吗（
+

@@ -827,3 +827,16 @@ ELO机制发力+给你匹配两个人机队友+两个人机对手（用你的电
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">3个人就够，比如随机配队玩斗地主
 
+
+*****
+
+####  红炉灰  
+##### 68#       发表于 2024-8-6 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65788750&amp;ptid=2193787" target="_blank">梦游君 发表于 2024-8-4 00:07</a>
+
+自我中心，一盘散沙，缺乏团队合作意识。
+
+跟老外玩能感觉到他们团队意识比较强，队友帮忙的概率很高。国 ...</blockquote>
+这就开始外国月亮比较圆啦，你玩过几个游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

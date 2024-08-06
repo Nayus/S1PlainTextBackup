@@ -1368,12 +1368,12 @@
     "update": false
   },
   "1936922": {
-    "totalreply": 2612,
+    "totalreply": 2613,
     "title": "[《战双帕弥什》新春版本，入坑！回归！驾驶娜娜米出击！]",
     "newtitle": "[《战双帕弥什》新春版本，入坑！回归！驾驶娜娜米出击！]",
-    "lastedit": 1722051018,
+    "lastedit": 1722971406,
     "category": "手游专楼",
-    "active": false,
+    "active": true,
     "update": false
   },
   "1165789": {
@@ -7344,10 +7344,10 @@
     "update": false
   },
   "2170519": {
-    "totalreply": 10875,
+    "totalreply": 10876,
     "title": "[【#10】hololive综合讨论楼]",
     "newtitle": "[【#10】hololive综合讨论楼]",
-    "lastedit": 1722971289,
+    "lastedit": 1722971534,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -7524,10 +7524,10 @@
     "update": false
   },
   "2170852": {
-    "totalreply": 5167,
+    "totalreply": 5168,
     "title": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
     "newtitle": "[helldiver2老司机2steam国区降价了（转型讨论楼）]",
-    "lastedit": 1722969728,
+    "lastedit": 1722971530,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8676,10 +8676,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 52301,
+    "totalreply": 52304,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1722971290,
+    "lastedit": 1722971889,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10935,10 +10935,10 @@
     "update": false
   },
   "2188884": {
-    "totalreply": 319,
+    "totalreply": 320,
     "title": "[波音送上去俩航天员，蹭吃蹭喝快两周了 PS.最新消息，太空服也漏了]",
     "newtitle": "[波音送上去俩航天员，蹭吃蹭喝快俩月了]",
-    "lastedit": 1722970573,
+    "lastedit": 1722971768,
     "category": "外野",
     "active": true,
     "update": false
@@ -13797,10 +13797,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 6546,
+    "totalreply": 6548,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1722966970,
+    "lastedit": 1722971889,
     "category": "漫区",
     "active": true,
     "update": false
@@ -16583,6 +16583,15 @@
     "newtitle": "[山东发现的世界级巨型单体金矿床，潜在经济价值2000多亿元]",
     "lastedit": 1722960741,
     "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2154428": {
+    "totalreply": 45,
+    "title": "[当哒当 TV动画化 2024年10月]",
+    "newtitle": "[当哒当 TV动画化 2024年10月]",
+    "lastedit": 1722971534,
+    "category": "漫区",
     "active": true,
     "update": false
   }

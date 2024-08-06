@@ -924,3 +924,14 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 正经地说，一般碰到这种不可调和的矛盾的，一定会给你的机械降神。特意强调了动物镇周边的狼灭绝了，那其他地方不还有吗。最后和你说其实是附近的狼搬走了，噶路一个人傻不拉几的不知道。最后再搬个幕后boss出来，没有人受伤的世界就达成了。
 
+
+*****
+
+####  粉儿alice  
+##### 1992#       发表于 2024-8-6 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804929&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-8-5 16:57</a>
+配角以staff名字的一部分来命名不是从开设晨间档就有的传统吗？</blockquote>
+doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那么阿光原本提议是叫あかり跟柳川明p同名 但最后选择是叫ひかる
+太上皇成老害的开始飘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

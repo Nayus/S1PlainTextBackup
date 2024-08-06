@@ -4782,3 +4782,13 @@ fgo一直都限制直播内容啊
 
 反正我艾蕾和兽尼都抽了，你有本事就以后全出能同时针对到两个兽的本吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 13747#       发表于 2024-8-6 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815699&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-6 18:29</a>
+反正我艾蕾和兽尼都抽了，你有本事就以后全出能同时针对到两个兽的本吧</blockquote>
+忘记了圣诞的魔神柱了？给你来个仇阶大怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

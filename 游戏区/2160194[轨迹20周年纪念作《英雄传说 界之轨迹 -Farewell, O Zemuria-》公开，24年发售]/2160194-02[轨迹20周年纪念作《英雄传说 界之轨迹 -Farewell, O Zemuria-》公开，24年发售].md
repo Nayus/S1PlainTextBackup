@@ -3559,3 +3559,12 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 作为一个公司，最核心的还是跑通过业务的整合人才，这点我觉得法老空还是有保障的，创作内容，一看运气，二看人脉，三看钱
 
+
+*****
+
+####  keiyoku  
+##### 2479#       发表于 2024-8-6 18:43
+
+看界轨服装就是美术完蛋，怎么会有这种又无个性又素又土有点还丑的服装啊，遥想当年创轨9妹DLC泳装胸口的小熊形状设计多可爱<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+到了界更是凉中凉
+

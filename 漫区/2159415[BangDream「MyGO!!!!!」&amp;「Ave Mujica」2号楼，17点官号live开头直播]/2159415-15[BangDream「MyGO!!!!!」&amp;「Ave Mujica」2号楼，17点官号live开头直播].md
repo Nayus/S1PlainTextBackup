@@ -11989,3 +11989,11 @@ MyGO在这方面可以说非常大胆，它用了13话里的10话去铺垫一场
 
 <img src="https://p.sda1.dev/18/11e9abf15fbd128ec1eeac6612d05e9d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  toshima  
+##### 21812#       发表于 2024-8-6 23:09
+
+mygo是我见过的乐队番好像是第一部几乎所有曲子都是完整展现出来的，很多包括偶像番唱歌都是半首曲子打卡下班的
+

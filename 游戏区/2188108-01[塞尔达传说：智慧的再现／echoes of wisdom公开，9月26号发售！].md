@@ -3988,3 +3988,23 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 也不一定是通缉吧，公主失踪了，张贴寻人启事也正常</blockquote>
 别忘了公主一开始在监狱
 
+
+*****
+
+####  skypiea  
+##### 405#       发表于 2024-8-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818437&amp;ptid=2188108" target="_blank">liekong 发表于 2024-8-6 22:53</a>
+
+也不一定是通缉吧，公主失踪了，张贴寻人启事也正常</blockquote>
+这看着不像寻人启示吧 
+
+006OLR7Hgy1hse05znoj6j307208uwfq.jpg
+(9.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202408/06/230808l1jhjzu1uju111dz.jpg" referrerpolicy="no-referrer">
+

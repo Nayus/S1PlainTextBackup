@@ -4985,3 +4985,27 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 以后血量自然也是参考150级的调了，控制到和现在只喂到100级的人面对的处境差不多的程度 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大胆点 150照开 120也不退
 
+
+*****
+
+####  DARKGRAY  
+##### 13766#       发表于 2024-8-6 23:10
+
+ 本帖最后由 DARKGRAY 于 2024-8-6 23:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818494&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-6 23:02</a>
+
+大胆点 150照开 120也不退</blockquote>
+主要这样就不会只落下一部分喂120的人不管又不放松逼氪力度了，至于150级要吃多少币可以再调整，不是非得2级吃30<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+甚至圣杯大放送也可以理解成这个的铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13767#       发表于 2024-8-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818532&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-6 23:10</a>
+
+主要这样就不会只落下一部分喂120的人不管又不放松逼氪力度了，至于150级要吃多少币可以再调整，不是非得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我yls在乎这种小事情？
+

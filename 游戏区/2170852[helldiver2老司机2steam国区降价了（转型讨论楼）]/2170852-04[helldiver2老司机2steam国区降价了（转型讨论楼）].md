@@ -678,3 +678,16 @@ n9打着倒是和以前差不多，n10还没解锁
 体感虫子打起来跟之前相比差不太多，难度还是低于机器人，不知道重甲模版是不是会比以前难打点。
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">但是箭畜不给玩家发新东西还是西格玛吧
 
+
+*****
+
+####  风萧飒  
+##### 5156#       发表于 2024-8-6 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818133&amp;ptid=2170852" target="_blank">DawnGuardian 发表于 2024-8-6 22:24</a>
+我打了两把虫子n9一把n10，用的爆裂铳+盟友的组合，可能是因为没去清全图的原因，说实话没感觉出来n10跟n ...</blockquote>
+穿刺虫触手看到了但是本体没见到，不过他那个触手感觉没啥用命中率很低。
+新东西看看后天的轨道燃烧弹？（不过还是太少了，对标敌人升级至少得有三四个新战备吧）范围看着还行，貌似对标120，就是不知道cd。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

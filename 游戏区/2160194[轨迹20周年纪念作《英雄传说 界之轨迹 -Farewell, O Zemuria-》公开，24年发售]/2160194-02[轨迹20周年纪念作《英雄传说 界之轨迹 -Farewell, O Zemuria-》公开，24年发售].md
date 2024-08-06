@@ -3551,3 +3551,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 啊？最没救的是竹入的剧本才对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjk  
+##### 2478#       发表于 2024-8-6 18:23
+
+作为一个公司，最核心的还是跑通过业务的整合人才，这点我觉得法老空还是有保障的，创作内容，一看运气，二看人脉，三看钱
+

@@ -4570,3 +4570,26 @@ fgo一直都限制直播内容啊
 
 好感度条感觉不是bug吧，就是这么设定的，每次进本都是一次全新的恋爱体验哦<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13724#       发表于 2024-8-6 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813955&amp;ptid=2084912" target="_blank">啪嗒啪嗒嘭 发表于 2024-8-6 15:41</a>
+
+好感度条感觉不是bug吧，就是这么设定的，每次进本都是一次全新的恋爱体验哦 ...</blockquote>
+说的不是继承  说的是本该加好感度的动作没加好感
+
+
+*****
+
+####  希望之花  
+##### 13725#       发表于 2024-8-6 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813955&amp;ptid=2084912" target="_blank">啪嗒啪嗒嘭 发表于 2024-8-6 15:41</a>
+
+好感度条感觉不是bug吧，就是这么设定的，每次进本都是一次全新的恋爱体验哦 ...</blockquote>
+说的是目前使用令咒和衣服技能不加好感度的bug
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">appstore里的更新日志里写了不具合修正，也许是程序框架先改，然后一会儿bug修复和强化本一起推送（吃桃
+

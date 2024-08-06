@@ -1202,3 +1202,15 @@ AB活动先别刷完，下期打分给的还是AB的币
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Edward0901  
+##### 1614#       发表于 2024-8-6 17:29
+
+明天8月7日12点buffer卡池要关闭了，要井旗袍圣华的朋友抓紧了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+主线、邀请、交流剧情、记忆之庭记忆修复、活动代码兑换，都可以获得大量石头，
+
+缺的不多可以试着肝肝看
+

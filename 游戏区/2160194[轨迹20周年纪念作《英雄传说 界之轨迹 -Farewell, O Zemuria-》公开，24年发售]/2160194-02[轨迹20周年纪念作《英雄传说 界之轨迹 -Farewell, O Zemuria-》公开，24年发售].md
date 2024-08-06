@@ -3509,3 +3509,37 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 （但是村上现在在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  法拉  
+##### 2473#       发表于 2024-8-6 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这一幅要比黎2烂得更彻底的样子……
+
+*****
+
+####  ravend233  
+##### 2474#       发表于 2024-8-6 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村上只能负责一个游戏，那个游戏叫京都迷城
+
+至少你轨现在能分到的资源确实少得可怜，不过YSX也没好到哪去就是了
+
+*****
+
+####  一步成诗  
+##### 2475#       发表于 2024-8-6 17:33
+
+全公司只剩一个村上和死了有什么区别，再压榨她真的没人性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2476#       发表于 2024-8-6 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他的早都没救了，唯一可能有救的只有竹入的剧本，吧
+
+但是竹入不靠谱众所周知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

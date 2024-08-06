@@ -509,3 +509,19 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Aeons  
+##### 5137#       发表于 2024-8-6 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">平衡性调整
+
+
+*****
+
+####  DawnGuardian  
+##### 5138#       发表于 2024-8-6 17:35
+
+公告出了，一言难尽，箭头最好想想这几天怎么危机公关吧
+

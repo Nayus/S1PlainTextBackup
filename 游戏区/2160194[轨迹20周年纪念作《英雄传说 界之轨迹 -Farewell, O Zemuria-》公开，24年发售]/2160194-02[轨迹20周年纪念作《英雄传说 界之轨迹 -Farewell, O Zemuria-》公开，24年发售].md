@@ -3204,3 +3204,38 @@ SYL这周FAMI是两周合刊
 
 hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2441#       发表于 2024-8-6 14:07
+
+国外界轨北欧论有点流行
+
+
+*****
+
+####  ravend233  
+##### 2442#       发表于 2024-8-6 14:14
+
+大概是因为出现了几个北欧神话的名词吧，开始往这玩意上摁套（
+
+*****
+
+####  flyingover  
+##### 2443#       发表于 2024-8-6 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813138&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-6 14:07</a>
+
+国外界轨北欧论有点流行</blockquote>
+有来源吗，想看看
+
+*****
+
+####  无动于衷  
+##### 2444#       发表于 2024-8-6 14:15
+
+曲名都用上瓦尔哈拉的战士了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老外还是太敏感 立本用北欧元素从来都是当地摊货贱卖的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

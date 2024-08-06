@@ -1456,3 +1456,16 @@ non好像病了还没好来着
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  starring  
+##### 20857#       发表于 2024-8-6 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815705&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-8-6 18:30</a>
+
+non好像病了还没好来着
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+在隔壁看到说non是喉咙不舒服，前几天是花身体不舒服（可能中暑了），现在是鱼，希望早日康复
+

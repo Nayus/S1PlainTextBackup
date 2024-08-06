@@ -759,3 +759,20 @@ n9打着倒是和以前差不多，n10还没解锁
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Aeons  
+##### 5163#       发表于 2024-8-7 01:26
+
+ 本帖最后由 Aeons 于 2024-8-7 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65819274&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-7 01:19</a>
+
+打了两把难9虫子，感觉钉刺虫不是很麻烦的玩意，还是绿胖更恶心
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你要说难度，难10也就这样啊，但增加刺虫，增加新指挥官，火箭双足替换旧双足，这就是无条件的加强吧？
+
+给潜兵的东西呢？玩的还是老几样，甚至少了。
+

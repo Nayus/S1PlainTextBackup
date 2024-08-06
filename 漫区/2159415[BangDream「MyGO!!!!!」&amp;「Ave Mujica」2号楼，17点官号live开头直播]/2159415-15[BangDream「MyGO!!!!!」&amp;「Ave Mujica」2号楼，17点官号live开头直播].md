@@ -11848,3 +11848,21 @@ md，感觉狗的票根本买不到啊<img src="https://static.saraba1st.com/ima
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不如备战武藏野，看完萝还能再看一天鸡，总比送钱给黄牛强，抢到票的概率也算大
 
+
+*****
+
+####  御幸一也  
+##### 21802#       发表于 2024-8-6 11:39
+
+也太適合
+
+<img src="https://img.saraba1st.com/forum/202408/06/113944vew2ywke9nsajdjw.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_奏(@Kanade_3344)_20240803-160707_1819766959690666391_photo.jpg</strong> (147.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 11:39 上传
+
+[https://x.com/Kanade_3344/status/1819766959690666391](https://x.com/Kanade_3344/status/1819766959690666391)
+

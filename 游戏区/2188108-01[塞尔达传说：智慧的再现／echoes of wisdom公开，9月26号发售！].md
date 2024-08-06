@@ -3856,3 +3856,14 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 论坛助手,iPhone</blockquote>
 反正希望最好能增加上限，只有4个肯定是不行的，4个肯定和王泪的究极手只有21个拼接上限一样，属于给一个上限极高的系统设计了一个限制玩家发挥上限的东西。这东西至少得有个10个才合适。<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 392#       发表于 2024-8-6 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811523&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 10:46</a>
+
+反正希望最好能增加上限，只有4个肯定是不行的，4个肯定和王泪的究极手只有21个拼接上限一样，属于给一个 ...</blockquote>
+2D可以发挥的空间没那么大，画面显示大小、聊胜于无的Z轴空间，给10个是完全溢出了
+

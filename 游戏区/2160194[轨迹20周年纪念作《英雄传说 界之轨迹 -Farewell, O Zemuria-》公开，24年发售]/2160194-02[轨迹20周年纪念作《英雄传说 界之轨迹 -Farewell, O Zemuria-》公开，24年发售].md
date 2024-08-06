@@ -3167,3 +3167,17 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 
 为什么还有人觉得界轨这卖相像是能涨人气的样子，不掉都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2437#       发表于 2024-8-6 09:47
+
+ 本帖最后由 ravend233 于 2024-8-6 09:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多剩下的结晶粉圈子内人气变化吧，在外面就是nbcs的糊逼
+
+SYL这周FAMI是两周合刊
+
+也就是说这个月杂志又要月底了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

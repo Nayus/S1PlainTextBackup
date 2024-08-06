@@ -706,3 +706,18 @@ v5，后面还有LEET
 这个是机械哥斯拉？</blockquote>
 老马给筷子取的昵称就是“ Mechazilla”
 
+
+*****
+
+####  璇瑢子R  
+##### 49#       发表于 2024-8-6 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65791692&amp;ptid=2190881" target="_blank">YoumuChan 发表于 2024-8-4 13:12</a>
+
+笑死，ULA的CEO声称这些raptor的图是根本没装推力矢量部件、控制器、液体系统的图，属于很有误导性的图。
+
+ ...</blockquote>
+摆动部件就是属于发动机啊
+
+连机架也是属于发动机的。。。
+

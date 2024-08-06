@@ -3729,3 +3729,36 @@ Screenshot_20240805_234612.jpg
 
 塞尔达公主去到里世界发现林克已经阵亡，悲伤万分过后跟林克尸体进行同步，打败盖农<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ubiquity  
+##### 380#       发表于 2024-8-6 09:48
+
+<img src="https://img.saraba1st.com/forum/202408/06/094647glmmbmrqr0qbk0r3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_094344.jpg</strong> (143.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 09:46 上传
+
+<img src="https://img.saraba1st.com/forum/202408/06/094647oii709uqfux6kxv2.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240806_094526.jpg</strong> (181.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 09:46 上传
+
+pv一开始有一个地图全貌，大致能看到展示的地方在地图右下角位置，有城堡的一角和右下角的爱心湖
+
+*****
+
+####  Muteki_Link  
+##### 381#       发表于 2024-8-6 09:49
+
+看到这个同步能力第一反应是老2d塞尔达里面那种会跟你同步动作的怪物，然后在一个迷宫里通过解密遥控它踩机关
+
+不过现在这个同步功能可自由太多了
+

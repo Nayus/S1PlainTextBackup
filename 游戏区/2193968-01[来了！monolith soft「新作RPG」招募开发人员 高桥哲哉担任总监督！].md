@@ -1040,3 +1040,15 @@ xb3 卖这b样，你怎么还在？
 
 其实xb也接近半开放世界吧，玩过的xb123都会有几张蛮大的的地图，高低差更是大，真要全开放，加上高桥喜欢造奇观的设计，绝对爽啊，王泪都可以从天上俯冲下地，不知道高桥会搞一个什么样的出来，还是挺期待的，爱高信高等高<img src="https://static.saraba1st.com/image/smiley/carton2017/246.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  曼彻斯特联  
+##### 112#       发表于 2024-8-6 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813883&amp;ptid=2193968" target="_blank">hujingjing 发表于 2024-8-6 15:30</a>
+其实xb也接近半开放世界吧，玩过的xb123都会有几张蛮大的的地图，高低差更是大，真要全开放，加上高桥喜欢 ...</blockquote>
+地图这块mono的水平倒是不必担心。真要做开放世界最大的难题应该是任务设计
+
+—— 来自 OnePlus LE2100, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

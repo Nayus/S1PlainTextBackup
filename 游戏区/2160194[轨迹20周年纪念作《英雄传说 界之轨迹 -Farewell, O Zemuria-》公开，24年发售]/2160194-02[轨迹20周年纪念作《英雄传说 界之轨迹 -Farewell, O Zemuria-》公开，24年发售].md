@@ -3389,3 +3389,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">写双子39抠脚苦情戏，写里爷个人进一步成长，写黑月内部斗争，写各种个人故事线，顺便写完一个收一个表但是不解释表的设定
 
+
+*****
+
+####  Kojimaru  
+##### 2461#       发表于 2024-8-6 16:10
+
+找表找队友已经是法社水剧情的核心出装了，求界轨收了这俩神通吧
+

@@ -4898,3 +4898,18 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币的事情我感觉也不用聊了  基本不会在有什么改动了 120级就准备钉上耻辱柱吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">以后请叫我丑新
 
+
+*****
+
+####  alucardcz  
+##### 13758#       发表于 2024-8-6 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817100&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-6 20:51</a>
+
+本日感想
+
+YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一百抽
+
+点麻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">这么重大的机能改革必须10周年福利！
+

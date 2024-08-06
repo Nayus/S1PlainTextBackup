@@ -878,3 +878,23 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 
 一个子供向动画为什么要碰这种话题……
 
+
+*****
+
+####  Arson=desu  
+##### 1987#       发表于 2024-8-6 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818225&amp;ptid=2162354" target="_blank">wly 发表于 2024-8-6 22:31</a>
+
+拒绝拒绝成为朋友不是上一句灭绝的原因，是下一句彩叶沮丧的原因。</blockquote>
+那还不如打哈哈糊弄过去呢，反正最后都要包饺子碰什么种族灭绝啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 1988#       发表于 2024-8-6 22:44
+
+居然真就选了最难写的展开，是什么给了东大妈这种错误的勇气，是希望之力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+盲奶一个反派分两派一种认为适者生存是自然界的法则接受了狼群的灭绝并拒绝了人类的怜悯，另一派则认为狼群灭绝都是人类的错必须向人类复仇，小麦听到的远吠是来自前者的而造怪物的是后者<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

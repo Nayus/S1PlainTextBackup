@@ -87,3 +87,11 @@
 
 不会，哈弟那比赛开二期了，看领队和之前的一样估计还有绫总
 
+
+*****
+
+####  stedckk  
+##### 14760#       发表于 2024-8-6 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">难道绫总才是万组的最后生还者
+

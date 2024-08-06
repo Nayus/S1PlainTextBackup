@@ -4353,3 +4353,28 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么看隔壁说现在fgo限制直播内容了？
 
+
+*****
+
+####  TheLoof  
+##### 13708#       发表于 2024-8-6 08:39
+
+ 本帖最后由 TheLoof 于 2024-8-6 08:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810270&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-6 08:31</a>
+
+怎么看隔壁说现在fgo限制直播内容了？</blockquote>
+fgo一直都限制直播内容啊
+
+这次周年后反而解禁了新章节的直播
+
+好像是能播到2.5了
+
+咋这都能成新闻的
+
+*****
+
+####  holyblood  
+##### 13709#       发表于 2024-8-6 08:40
+
+有人知道，点秘石后，系统给的推荐quest是其它free quest而不是修练场，是因为推荐的free quest比对应修练场掉率更高么？
+

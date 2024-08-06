@@ -7344,10 +7344,10 @@
     "update": false
   },
   "2170519": {
-    "totalreply": 10879,
+    "totalreply": 10880,
     "title": "[【#10】hololive综合讨论楼]",
     "newtitle": "[【#10】hololive综合讨论楼]",
-    "lastedit": 1722983888,
+    "lastedit": 1722984489,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -7407,10 +7407,10 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 14910,
+    "totalreply": 14964,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1722974288,
+    "lastedit": 1722984129,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -12123,10 +12123,10 @@
     "update": false
   },
   "2186744": {
-    "totalreply": 236,
+    "totalreply": 237,
     "title": "[niconico已经挂了十几个小时了]",
     "newtitle": "[niconico已经挂了十几个小时了]",
-    "lastedit": 1722959305,
+    "lastedit": 1722984007,
     "category": "外野",
     "active": true,
     "update": false
@@ -16601,6 +16601,15 @@
     "newtitle": "[EA《星球大战 绝地：幸存者》实机演示PV公开，2023.04.28发售]",
     "lastedit": 1722980649,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2171778": {
+    "totalreply": 230,
+    "title": "[押山清高监督 蓦然回首 剧场动画化 2024年6月28日上映]",
+    "newtitle": "[押山清高监督 蓦然回首 剧场动画化 2024年6月28日上映]",
+    "lastedit": 1722984498,
+    "category": "漫区",
     "active": true,
     "update": false
   }

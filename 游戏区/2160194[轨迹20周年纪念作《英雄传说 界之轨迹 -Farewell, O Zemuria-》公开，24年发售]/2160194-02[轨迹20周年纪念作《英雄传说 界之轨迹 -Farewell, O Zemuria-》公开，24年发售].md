@@ -3595,3 +3595,16 @@ b站又开始推了，这货多久能落地啊
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  酷乐  
+##### 2482#       发表于 2024-8-6 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816585&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-8-6 19:53</a>
+
+b站又开始推了，这货多久能落地啊
+
+—— 来自 realme RMX3708, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这个已经开了啊
+

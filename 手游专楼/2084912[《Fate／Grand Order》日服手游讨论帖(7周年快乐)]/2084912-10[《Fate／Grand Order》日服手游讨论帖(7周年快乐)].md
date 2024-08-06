@@ -4887,3 +4887,14 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 但凑到7还是有点困难啊，失忆女友真的麻烦 ...</blockquote>
 每次出击都是一次新的约会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13757#       发表于 2024-8-6 22:34
+
+ 本帖最后由 alucardcz 于 2024-8-6 22:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币的事情我感觉也不用聊了  基本不会在有什么改动了 120级就准备钉上耻辱柱吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/273.png" referrerpolicy="no-referrer">以后请叫我丑新
+

@@ -696,3 +696,13 @@ v5，后面还有LEET
 任务徽章公布，大战哥斯拉。</blockquote>
 这个是机械哥斯拉？
 
+
+*****
+
+####  commcody  
+##### 48#         楼主| 发表于 2024-8-6 09:42
+
+<blockquote>AraTurambar 发表于 2024-8-6 09:27
+这个是机械哥斯拉？</blockquote>
+老马给筷子取的昵称就是“ Mechazilla”
+

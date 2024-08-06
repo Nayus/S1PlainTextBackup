@@ -26,3 +26,15 @@
 
 为啥基本每个角色都来个那么大的肩甲。。
 
+
+*****
+
+####  kuarwbwe  
+##### 632#       发表于 2024-8-6 09:46
+
+ 本帖最后由 kuarwbwe 于 2024-8-6 09:48 编辑 
+
+debuff拉满是这样的。
+
+别的不说，光没恋爱戏份、走严肃政治题材和未来100%会出完整版三连debuff我就不想买了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

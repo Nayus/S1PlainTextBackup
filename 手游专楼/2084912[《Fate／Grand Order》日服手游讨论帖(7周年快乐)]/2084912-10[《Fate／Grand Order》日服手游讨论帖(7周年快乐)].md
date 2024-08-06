@@ -4427,3 +4427,64 @@ fgo一直都限制直播内容啊
 
 但是海外很多公司还是卖商品的传统思路
 
+
+*****
+
+####  cenhr  
+##### 13713#       发表于 2024-8-6 09:40
+
+这次2号跪得这么快是不是代表日产手游公司养孝子不如我国的成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 13714#       发表于 2024-8-6 09:42
+
+<blockquote>holyblood 发表于 2024-8-6 08:40
+有人知道，点秘石后，系统给的推荐quest是其它free quest而不是修练场，是因为推荐的free quest比对应修练 ...</blockquote>
+理论上极级修炼场是秘石掉率最高的地方：
+
+<img src="https://img.saraba1st.com/forum/202408/06/092421koyk08kep8p09o4w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_092353.jpg</strong> (138.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-6 09:24 上传
+
+推荐地点里排第一的本可能是结合了羁绊值和掉率？
+
+<img src="https://img.saraba1st.com/forum/202408/06/093722oerw8wgxwbsrei5r.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_093243_com.aniplex.fategrandorder.jpg</strong> (164.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-6 09:37 上传
+
+素材方面，用打同人志稿纸（禁断书页）的限时任务举例，推荐地点除了修炼场还给了一个泳装紫式部的白纸本：
+
+<img src="https://img.saraba1st.com/forum/202408/06/093505vs312prqirr46bsu.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_093254_com.aniplex.fategrandorder.jpg</strong> (172.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-6 09:35 上传
+
+这回推荐的倒是掉率最高的了：
+
+<img src="https://img.saraba1st.com/forum/202408/06/092735ce6cssgkvsejs7s6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240806_092230.jpg</strong> (145.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-6 09:27 上传
+
+估计官方希望玩家多利用刷素材的机会升羁绊吧。反正现在修炼场半价，刷秘石无论是羁绊还是掉率都比free本高，直接去就行了。
+

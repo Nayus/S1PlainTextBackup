@@ -113,3 +113,15 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 要不就把怪堵在菌毯前或菌毯后。总之不要在菌毯跟怪对抗</blockquote>
 这游戏塔位你懂的，根本不是你能决定在哪边集火的，
 
+
+*****
+
+####  敏感词好多  
+##### 87#       发表于 2024-8-6 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65812756&amp;ptid=2192638" target="_blank">wthall 发表于 2024-8-6 13:13</a>
+这游戏塔位你懂的，根本不是你能决定在哪边集火的，</blockquote>
+优先堵门
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3875,3 +3875,11 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 这一作怕不是主要玩 Z 轴了。。。
 
+
+*****
+
+####  渺小小  
+##### 394#       发表于 2024-8-6 14:31
+
+室外大概率是能力没有限制的，我看不仅是“一招鲜”而是“招招鲜”怎么爽怎么来。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

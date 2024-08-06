@@ -3275,3 +3275,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 比如这个[https://www.youtube.com/watch?v=NTHjuDrVZRA](https://www.youtube.com/watch?v=NTHjuDrVZRA)
 
+
+*****
+
+####  Aeons  
+##### 2448#       发表于 2024-8-6 14:34
+
+这倒也不算什么故事，扯这个其实主要应该是，通过汉密尔顿和X创世匣子有关系，给匣子跟创世和末日有关系提供一点名词上的助力吧，其他大多多少发散了。
+

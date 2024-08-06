@@ -375,3 +375,21 @@
 
 看到大家都喜欢亮亮我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  avatar2808  
+##### 42#       发表于 2024-8-6 14:29
+
+公主确实好看，最爱会长和亮亮，bank也好看。最喜欢的三部q娃魔法使热带和公主，热带我感觉真的是被很多人低估了的作品
+
+*****
+
+####  待宵  
+##### 43#       发表于 2024-8-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813085&amp;ptid=2193950" target="_blank">春野春花 发表于 2024-8-6 14:00</a>
+
+那我们很有必要再重新看一下柴田先生是怎么打算写公主的</blockquote>
+然后他滚了
+

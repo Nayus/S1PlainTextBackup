@@ -3669,3 +3669,28 @@ Screenshot_20240805_234612.jpg
 
 同步这个点子有意思
 
+
+*****
+
+####  kuarwbwe  
+##### 373#       发表于 2024-8-6 08:58
+
+说起来这作不会有专属直面会了吧？感觉几个视频基本说的七七八八了啊。这么看感觉这作给的资源应该到不了惊奇的的程度吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 374#       发表于 2024-8-6 09:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">居然需要马？这么大？而且不光主世界，还有缝隙世界呢
+
+
+*****
+
+####  JOJOROY  
+##### 375#       发表于 2024-8-6 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810454&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 08:58</a>
+说起来这作不会有专属直面会了吧？感觉几个视频基本说的七七八八了啊。这么看感觉这作给的资源应该到不了惊 ...</blockquote>
+有没有专属直面会又不是判断有没有资源的标准，宣发的大头是核心玩家不太关心的广告投放
+

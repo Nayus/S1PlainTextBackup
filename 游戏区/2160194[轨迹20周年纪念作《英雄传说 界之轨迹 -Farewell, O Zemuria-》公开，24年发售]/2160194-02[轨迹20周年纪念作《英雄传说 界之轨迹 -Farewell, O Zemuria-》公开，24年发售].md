@@ -3159,3 +3159,11 @@ OP曲名《シロイセカイ》是误导？其实读作シロ/イセカイ？�
 这次特典就两张新绘挂画（电击那个已经出了一万个周边了所有不算新绘），值得买的除了普通版就sofmap和wgo ...</blockquote>
 但是电击有师姐新衣服DLC<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2436#       发表于 2024-8-6 09:04
+
+为什么还有人觉得界轨这卖相像是能涨人气的样子，不掉都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

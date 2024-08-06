@@ -1416,3 +1416,11 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 <img src="https://p.sda1.dev/18/5a7df8a39f80f38e9e594aa5ff9f1bc2/IMG_CMP_162329488.png" referrerpolicy="no-referrer">要B限了
 又是乐府带路的吗？
 
+
+*****
+
+####  tansapple  
+##### 136#       发表于 2024-8-6 11:55
+
+龟龟那边时差和这里差7小时的，搞不了b限吧，最多就是同步分流。
+

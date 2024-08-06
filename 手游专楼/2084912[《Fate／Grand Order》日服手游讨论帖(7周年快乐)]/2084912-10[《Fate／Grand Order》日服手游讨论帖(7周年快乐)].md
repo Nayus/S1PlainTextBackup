@@ -4504,3 +4504,14 @@ fgo一直都限制直播内容啊
 
 其实日本那边所谓的直播限制也只是嘴上说说，一直有一些小主播管人直播最新剧情基本没人去管，剧情动画也一直有人上传，说到底只是对某些大主播有点作用罢了
 
+
+*****
+
+####  beer  
+##### 13717#       发表于 2024-8-6 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810338&amp;ptid=2084912" target="_blank">holyblood 发表于 2024-8-6 08:40</a>
+
+有人知道，点秘石后，系统给的推荐quest是其它free quest而不是修练场，是因为推荐的free quest比对应修练 ...</blockquote>
+那个不是按掉率排的，无视即可，真要刷还是要看效率剧场
+

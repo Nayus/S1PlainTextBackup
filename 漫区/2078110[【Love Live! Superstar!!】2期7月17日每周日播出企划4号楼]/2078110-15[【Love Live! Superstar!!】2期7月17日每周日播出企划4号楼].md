@@ -1469,3 +1469,11 @@ non好像病了还没好来着
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
 在隔壁看到说non是喉咙不舒服，前几天是花身体不舒服（可能中暑了），现在是鱼，希望早日康复
 
+
+*****
+
+####  cat1230  
+##### 20858#       发表于 2024-8-6 19:47
+
+鲤鱼上次投票翻唱的爱李大石节目取消了吧，可惜啊，好想听翻唱神曲<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

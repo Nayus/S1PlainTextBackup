@@ -653,3 +653,28 @@ n9打着倒是和以前差不多，n10还没解锁
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  扑克脸军曹  
+##### 5154#       发表于 2024-8-6 22:21
+
+所以这n10是有什么新奖励吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DawnGuardian  
+##### 5155#       发表于 2024-8-6 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817288&amp;ptid=2170852" target="_blank">风萧飒 发表于 2024-8-6 21:11</a>
+
+n9打着倒是和以前差不多，n10还没解锁
+
+—— 来自 S1Fun</blockquote>
+我打了两把虫子n9一把n10，用的爆裂铳+盟友的组合，可能是因为没去清全图的原因，说实话没感觉出来n10跟n9有太大差别，打完击杀数也差不太多，人均两三百杀的样子。虫子的新单位没想像中的那么恶心，钉刺虫因为会站桩+暴漏弱点，很容易用战备秒掉，威胁度感觉不如泰坦和强袭虫，触手我3局里就被打到过一次吧。
+
+体感虫子打起来跟之前相比差不太多，难度还是低于机器人，不知道重甲模版是不是会比以前难打点。
+<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">但是箭畜不给玩家发新东西还是西格玛吧
+

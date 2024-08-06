@@ -4874,3 +4874,16 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 但凑到7还是有点困难啊，失忆女友真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 13756#       发表于 2024-8-6 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817172&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-6 20:59</a>
+
+兽艾蕾好感度7的宝具笑脸是挺可爱的
+
+但凑到7还是有点困难啊，失忆女友真的麻烦 ...</blockquote>
+每次出击都是一次新的约会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

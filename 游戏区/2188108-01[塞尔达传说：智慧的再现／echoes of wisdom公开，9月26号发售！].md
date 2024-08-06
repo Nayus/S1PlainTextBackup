@@ -3934,3 +3934,30 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 左上角这个降落伞角色有点神秘，我首先想到的是奥德赛里的路易吉。感觉是负责通关后要素的
 
+
+*****
+
+####  巴尔干炮  
+##### 400#       发表于 2024-8-6 22:24
+
+<img src="https://img.saraba1st.com/forum/202408/06/222242h2sw28u8g0g6ck6f.jpg" referrerpolicy="no-referrer">
+
+<strong>ZELDA.jpg</strong> (42.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 22:22 上传
+
+左上角能看到塞尔达的画像，结合PV1中的地牢场景，塞尔达应该是越狱后被通缉了。
+
+
+*****
+
+####  Link213  
+##### 401#       发表于 2024-8-6 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817823&amp;ptid=2188108" target="_blank">牛奶笛 发表于 2024-8-6 21:55</a>
+
+左上角这个降落伞角色有点神秘，我首先想到的是奥德赛里的路易吉。感觉是负责通关后要素的 ...</blockquote>
+地球冒险？
+

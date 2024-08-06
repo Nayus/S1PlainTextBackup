@@ -4533,3 +4533,14 @@ fgo一直都限制直播内容啊
 
 这回真忍不住要豹跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">靠送的石头和运营滑跪的120石头成功把5宝艾蕾请回迦
 
+
+*****
+
+####  保罗赫伯特  
+##### 13720#       发表于 2024-8-6 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65812868&amp;ptid=2084912" target="_blank">巴裘拉 发表于 2024-8-6 13:31</a>
+
+这回真忍不住要豹跳了靠送的石头和运营滑跪的120石头成功把5宝艾蕾请回迦</blockquote>
+那不是600石头都不到，牛哇<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

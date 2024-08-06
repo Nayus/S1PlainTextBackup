@@ -4821,3 +4821,11 @@ fgo一直都限制直播内容啊
 光崎喷完附加喷3000w一直不来 彻底黑化了这下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他那也能叫喷？昨天还改修万岁呢
 
+
+*****
+
+####  DARKGRAY  
+##### 13751#       发表于 2024-8-6 19:41
+
+他最初就是觉得起码要有转移而已，本来就没对8宝15绊有异议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -595,3 +595,11 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 硬要说不是不能玩，但是出个难10玩家方面也没啥强化和新玩具，而且等这么久就这么点新东西太抽象了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">问题是非难10也都加强了啊。
 
+
+*****
+
+####  Aeons  
+##### 5147#       发表于 2024-8-6 19:37
+
+官方直播死得像条路边野狗一样
+

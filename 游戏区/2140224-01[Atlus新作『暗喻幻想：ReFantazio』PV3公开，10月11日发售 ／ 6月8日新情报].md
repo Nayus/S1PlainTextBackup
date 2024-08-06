@@ -38,3 +38,13 @@ debuff拉满是这样的。
 
 别的不说，光没恋爱戏份、走严肃政治题材和未来100%会出完整版三连debuff我就不想买了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  传剑人  
+##### 633#       发表于 2024-8-6 10:23
+
+奇幻题材美学上都是偏古典的啊，搞什么后现代人设，不割裂吗……
+
+奇幻题材做得比都市题材更后现代，也是一种奇景了。
+

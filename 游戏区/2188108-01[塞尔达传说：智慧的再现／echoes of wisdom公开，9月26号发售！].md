@@ -3842,3 +3842,17 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kuarwbwe  
+##### 391#       发表于 2024-8-6 10:46
+
+ 本帖最后由 kuarwbwe 于 2024-8-6 10:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811471&amp;ptid=2188108" target="_blank">Kiyohara_Yasuke 发表于 2024-8-6 10:41</a>
+
+演示的是同一个复制品有4个上限，还是等更多情报吧
+
+论坛助手,iPhone</blockquote>
+反正希望最好能增加上限，只有4个肯定是不行的，4个肯定和王泪的究极手只有21个拼接上限一样，属于给一个上限极高的系统设计了一个限制玩家发挥上限的东西。这东西至少得有个10个才合适。<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

@@ -3543,3 +3543,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 但是竹入不靠谱众所周知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2477#       发表于 2024-8-6 18:14
+
+啊？最没救的是竹入的剧本才对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

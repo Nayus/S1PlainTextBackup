@@ -4766,3 +4766,11 @@ fgo一直都限制直播内容啊
 
 还好当初在印度人池子里强抽了个医神，马嘶都比他先来你敢信
 
+
+*****
+
+####  都谷捻柏  
+##### 13745#       发表于 2024-8-6 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我3宝水伊吹之前喂到114了，现在及其蛋疼。
+

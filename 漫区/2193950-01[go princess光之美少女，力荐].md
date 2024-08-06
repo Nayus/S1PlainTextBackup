@@ -478,3 +478,16 @@
 比较想吐槽一下好评如潮的失忆彼方让春春破防的地方。没记错的话，那时春春应该是知道王子失忆了，结果还被 ...</blockquote>
 访谈上说过当初是准备发彼方便当的 被电视台方给否决 才能出此下策
 
+
+*****
+
+####  pokemon最爱  
+##### 53#       发表于 2024-8-7 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815463&amp;ptid=2193950" target="_blank">wly 发表于 2024-8-6 18:02</a>
+
+比较想吐槽一下好评如潮的失忆彼方让春春破防的地方。没记错的话，那时春春应该是知道王子失忆了，结果还被 ...</blockquote>
+主要虽然失忆了但是彼方的性格其实没太大变化，所以算不上疯言疯语吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这段剧情最值得称道的还是其反王道展开的冲击性以及后续完全不同于其他Q娃的奋起过程，配合优良的作画所以好评如潮。
+

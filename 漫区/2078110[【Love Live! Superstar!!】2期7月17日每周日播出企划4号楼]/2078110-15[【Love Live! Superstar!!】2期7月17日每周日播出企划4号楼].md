@@ -1405,3 +1405,36 @@ btw，平山采访说日升会给制作人三 ...</blockquote>
 
 感觉也有这两个月连轴转的原因吧，连吃饭都能睡着，工作强度太大了
 
+
+*****
+
+####  starring  
+##### 20852#       发表于 2024-8-6 18:28
+
+这段时间成员的身体都有点出状况，两场FMT的强度也大
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+
+*****
+
+####  csolfans  
+##### 20853#       发表于 2024-8-6 18:29
+
+上星期广播很明显能感受到，基本每个地方都能睡着，吃着火锅都吃睡了。
+最近冠也比较肆虐，坛友也得多多注意。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  csolfans  
+##### 20854#       发表于 2024-8-6 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815693&amp;ptid=2078110" target="_blank">starring 发表于 2024-8-6 18:28</a>
+这段时间成员的身体都有点出状况，两场FMT的强度也大
+
+—— 来自 鹅球 v3.1.88-alpha ...</blockquote>
+non好像病了还没好来着
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

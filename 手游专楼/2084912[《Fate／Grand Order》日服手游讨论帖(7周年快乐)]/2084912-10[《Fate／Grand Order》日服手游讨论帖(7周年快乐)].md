@@ -4774,3 +4774,11 @@ fgo一直都限制直播内容啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我3宝水伊吹之前喂到114了，现在及其蛋疼。
 
+
+*****
+
+####  cckuku  
+##### 13746#       发表于 2024-8-6 18:29
+
+反正我艾蕾和兽尼都抽了，你有本事就以后全出能同时针对到两个兽的本吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

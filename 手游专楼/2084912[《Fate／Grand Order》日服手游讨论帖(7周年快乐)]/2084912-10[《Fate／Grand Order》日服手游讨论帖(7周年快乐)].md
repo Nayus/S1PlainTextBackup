@@ -4792,3 +4792,21 @@ fgo一直都限制直播内容啊
 反正我艾蕾和兽尼都抽了，你有本事就以后全出能同时针对到两个兽的本吧</blockquote>
 忘记了圣诞的魔神柱了？给你来个仇阶大怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13748#       发表于 2024-8-6 19:00
+
+我一开始比较担心后面的兽做成对额外特攻，对常规蓝字，只对仇蓝字还算可以吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过对狂白字还是有点幽默了，喜提玛修的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13749#       发表于 2024-8-6 19:05
+
+光崎喷完附加喷3000w一直不来 彻底黑化了这下
+

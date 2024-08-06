@@ -1333,3 +1333,11 @@ CGディレクター：黒﨑豪
 <img src="https://p.sda1.dev/18/a13e554632f2e505e21a7c921d62fb20/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/04b6cc125d6e3337712e529b20370557/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ViyViy  
+##### 20845#       发表于 2024-8-6 13:11
+
+怪不得异次元BD宣传咋就大马路有单独给角色们画，原来就是BD封底的差分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

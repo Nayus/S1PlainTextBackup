@@ -3335,3 +3335,11 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 反正op显示是莱瓦汀计划比总统和盟主的计划都要先完成了，肯定是前半部分最主要的主线
 
+
+*****
+
+####  ravend233  
+##### 2455#       发表于 2024-8-6 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起前半，我觉得更可能整部游戏都是这个
+

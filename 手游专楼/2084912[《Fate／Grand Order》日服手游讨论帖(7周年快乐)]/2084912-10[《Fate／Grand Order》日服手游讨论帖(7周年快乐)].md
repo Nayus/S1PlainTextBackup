@@ -4391,3 +4391,39 @@ fgo一直都限制直播内容啊
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">反正拖多几个月母猪们就会淡忘
 
+
+*****
+
+####  johnkamsar  
+##### 13711#       发表于 2024-8-6 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810335&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-6 08:39</a>
+fgo一直都限制直播内容啊
+
+这次周年后反而解禁了新章节的直播
+
+好像是能播到2.5了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日服那边那么抽象吗…..
+
+
+*****
+
+####  TheLoof  
+##### 13712#       发表于 2024-8-6 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810570&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-6 09:14</a>
+
+日服那边那么抽象吗…..</blockquote>
+其实是国内太自由了
+
+很多游戏都有避免剧透的限制直播政策
+
+只是国内看不懂日语的玩家看棗黑子视频成习惯了，自然没发觉有什么问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这也跟销售理念不一样有关系
+
+国内已经变成了kol陪玩推销，讲究一个陪伴感了
+
+但是海外很多公司还是卖商品的传统思路
+

@@ -676,3 +676,12 @@ v5，后面还有LEET
 
 评价为ULA的CEO看到了空叉的新引擎破防了。
 
+
+*****
+
+####  stevenzero  
+##### 46#       发表于 2024-8-6 09:17
+
+任务徽章公布，大战哥斯拉。
+<img src="https://p.sda1.dev/18/3cb45a5218cd25c8b711db7da9c96037/CMP_20240806091702351.jpg" referrerpolicy="no-referrer">
+

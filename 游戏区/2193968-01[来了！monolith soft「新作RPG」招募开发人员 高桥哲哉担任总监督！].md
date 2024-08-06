@@ -1021,3 +1021,14 @@ xb3 卖这b样，你怎么还在？
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  woaimiyabi  
+##### 110#       发表于 2024-8-6 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810793&amp;ptid=2193968" target="_blank">lbj5454 发表于 2024-8-6 09:41</a>
+
+爱！信！等！</blockquote>
+高桥还真有举着红酒的图，你这也太形象了 哈哈。
+

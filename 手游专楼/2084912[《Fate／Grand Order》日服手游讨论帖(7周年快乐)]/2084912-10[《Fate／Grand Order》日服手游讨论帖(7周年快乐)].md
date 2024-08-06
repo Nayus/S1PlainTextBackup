@@ -4544,3 +4544,11 @@ fgo一直都限制直播内容啊
 这回真忍不住要豹跳了靠送的石头和运营滑跪的120石头成功把5宝艾蕾请回迦</blockquote>
 那不是600石头都不到，牛哇<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 13721#       发表于 2024-8-6 15:19
+
+今天的版本更新没有修复好感度条bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

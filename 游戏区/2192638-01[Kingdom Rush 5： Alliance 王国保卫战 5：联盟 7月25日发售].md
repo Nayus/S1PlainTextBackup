@@ -125,3 +125,18 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  未来起航  
+##### 88#       发表于 2024-8-6 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65804846&amp;ptid=2192638" target="_blank">wcorvo 发表于 2024-8-5 16:49</a>
+玩了下感觉就是前期节奏太慢了，没有2倍速玩不动
+
+借楼球球有没有手机上比较好玩的塔防游戏？ ...</blockquote>
+所谓三大塔防，除了pvz和kr就是气球塔防了。最新是6代。
+怪就是几种气球，此消彼长，对应的塔的机制算这三个里最复杂最有深度的了。乐趣集中在build。
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

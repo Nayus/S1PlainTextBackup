@@ -4810,3 +4810,14 @@ fgo一直都限制直播内容啊
 
 光崎喷完附加喷3000w一直不来 彻底黑化了这下
 
+
+*****
+
+####  黑上シグマ  
+##### 13750#       发表于 2024-8-6 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815998&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-8-6 19:05</a>
+
+光崎喷完附加喷3000w一直不来 彻底黑化了这下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他那也能叫喷？昨天还改修万岁呢
+

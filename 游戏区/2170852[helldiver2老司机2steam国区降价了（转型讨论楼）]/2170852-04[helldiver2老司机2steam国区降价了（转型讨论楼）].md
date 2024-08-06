@@ -568,3 +568,30 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬要说不是不能玩，但是出个难10玩家方面也没啥强化和新玩具，而且等这么久就这么点新东西太抽象了
 
+
+*****
+
+####  Aeons  
+##### 5144#       发表于 2024-8-6 19:26
+
+官方低难打的都一坨屎怎么有脸大加强敌人的
+
+*****
+
+####  DawnGuardian  
+##### 5145#       发表于 2024-8-6 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816173&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-6 19:19</a>
+
+硬要说不是不能玩，但是出个难10玩家方面也没啥强化和新玩具，而且等这么久就这么点新东西太抽象了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">它但凡放点后续要挤得的牙膏我都当它努力过了，被骂了这么久真是不长一点心啊
+
+*****
+
+####  Aeons  
+##### 5146#       发表于 2024-8-6 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816173&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-6 19:19</a>
+硬要说不是不能玩，但是出个难10玩家方面也没啥强化和新玩具，而且等这么久就这么点新东西太抽象了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">问题是非难10也都加强了啊。
+

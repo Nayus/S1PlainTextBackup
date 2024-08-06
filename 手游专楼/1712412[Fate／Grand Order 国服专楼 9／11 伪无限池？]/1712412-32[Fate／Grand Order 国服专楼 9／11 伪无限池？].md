@@ -888,3 +888,11 @@ py码：100104725198，安B服。
 
 fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
+
+*****
+
+####  GuDaZi  
+##### 46615#       发表于 2024-8-6 14:00
+
+泳装活动提前，9月的呼符没法用在泳装卡池了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

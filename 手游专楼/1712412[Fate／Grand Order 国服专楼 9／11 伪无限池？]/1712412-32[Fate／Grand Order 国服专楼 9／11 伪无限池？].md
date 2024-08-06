@@ -896,3 +896,14 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 泳装活动提前，9月的呼符没法用在泳装卡池了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46616#       发表于 2024-8-6 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813082&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2024-8-6 14:00</a>
+
+泳装活动提前，9月的呼符没法用在泳装卡池了</blockquote>
+可以留给老登啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

@@ -525,3 +525,30 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 公告出了，一言难尽，箭头最好想想这几天怎么危机公关吧
 
+
+*****
+
+####  九十九忍  
+##### 5139#       发表于 2024-8-6 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">“自由升级”
+
+*****
+
+####  BadYanL  
+##### 5140#       发表于 2024-8-6 17:41
+
+ 本帖最后由 BadYanL 于 2024-8-6 17:44 编辑 
+
+不能火烧强袭虫了，烧不了重甲
+
+测试了一下，烧腿不行，烧屁股效率不错
+
+
+*****
+
+####  FLZB  
+##### 5141#       发表于 2024-8-6 17:44
+
+重炮手击退又buff了，我都不知道这帮人是图啥<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

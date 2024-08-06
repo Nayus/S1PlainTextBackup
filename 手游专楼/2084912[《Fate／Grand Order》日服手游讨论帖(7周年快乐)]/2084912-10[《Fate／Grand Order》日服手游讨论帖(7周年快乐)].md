@@ -4345,3 +4345,11 @@ yls是真不行，刚开始新官上任给活动4送金方块，送了几年后�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我就摊牌了，2024年了还缺开服素材的肯定是变相豹跳
 
+
+*****
+
+####  都谷捻柏  
+##### 13707#       发表于 2024-8-6 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么看隔壁说现在fgo限制直播内容了？
+

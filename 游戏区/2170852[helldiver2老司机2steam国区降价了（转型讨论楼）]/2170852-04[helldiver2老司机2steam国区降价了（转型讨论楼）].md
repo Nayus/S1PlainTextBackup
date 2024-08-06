@@ -560,3 +560,11 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 箭头我草死你的马！
 
+
+*****
+
+####  ravend233  
+##### 5143#       发表于 2024-8-6 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬要说不是不能玩，但是出个难10玩家方面也没啥强化和新玩具，而且等这么久就这么点新东西太抽象了
+

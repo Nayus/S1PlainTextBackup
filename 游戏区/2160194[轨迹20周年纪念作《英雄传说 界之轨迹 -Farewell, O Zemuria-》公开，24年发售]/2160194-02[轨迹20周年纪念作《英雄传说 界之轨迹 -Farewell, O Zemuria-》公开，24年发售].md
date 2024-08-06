@@ -3568,3 +3568,19 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 看界轨服装就是美术完蛋，怎么会有这种又无个性又素又土有点还丑的服装啊，遥想当年创轨9妹DLC泳装胸口的小熊形状设计多可爱<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 到了界更是凉中凉
 
+
+*****
+
+####  ravend233  
+##### 2480#       发表于 2024-8-6 18:51
+
+ 本帖最后由 ravend233 于 2024-8-6 18:53 编辑 
+
+伊苏10不知道是不是千智荟遗产，兄弟的几套换装还挺好看的，但是原皮真不行
+
+黎1虽然原皮不行，但是换装dlc都还成，黎2没几套新衣服，dlc也变成人均同款赛车女郎，界轨就直接摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，估计服装设计是真没人了，还是看看远处的京都迷城吧
+
+竹入的剧本毕竟目前还处于无法判断的状态，虽然五成概率是没活摁水和样板戏，四成概率是新的答辩，但是万一竹入捡起碧轨的脑子写了个还行的剧本呢（）起码比其他确定没救的东西还有不到一成有救的可能不是<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

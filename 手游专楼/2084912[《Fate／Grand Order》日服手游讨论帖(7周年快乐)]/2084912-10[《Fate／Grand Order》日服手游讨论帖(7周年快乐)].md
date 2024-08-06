@@ -4851,3 +4851,16 @@ fgo一直都限制直播内容啊
 说得轻巧，我现在是彻底后悔喂任何一张120，每一个硬币都想抠回来点被动5。 ...</blockquote>
 这种都是站着说话不腰疼的 已经练了的怎么办 又不给后悔药
 
+
+*****
+
+####  TheLoof  
+##### 13754#       发表于 2024-8-6 20:51
+
+本日感想
+
+YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一百抽
+
+点麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

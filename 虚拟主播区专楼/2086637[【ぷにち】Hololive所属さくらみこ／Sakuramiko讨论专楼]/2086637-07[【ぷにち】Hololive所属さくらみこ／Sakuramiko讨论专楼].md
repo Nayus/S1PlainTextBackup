@@ -6262,3 +6262,31 @@ miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的
 
 怎么突然就动情了，我感觉不如A离职来得有实感
 
+
+*****
+
+####  karastar  
+##### 9418#       发表于 2024-8-6 20:46
+
+挺正常的，以为一直有机会不急但突然就再也没有机会了
+
+*****
+
+####  holoan  
+##### 9419#         楼主| 发表于 2024-8-6 20:46
+
+当初很羡慕夸，我是很懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当年运营基本就是主推sora和夸2个，资源也都是给这两人，谁看了都羡慕
+
+现在就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9420#         楼主| 发表于 2024-8-6 20:48
+
+每次悼念到最后都是这句话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“我要连着这些毕业的人的份一起努力”
+

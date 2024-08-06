@@ -1010,3 +1010,14 @@ xb3 卖这b样，你怎么还在？
 
 2024-8-6 09:41 上传
 
+
+*****
+
+####  UltramanPain  
+##### 109#       发表于 2024-8-6 12:16
+
+前两张本根康之说了只是招聘用的，后面两张从一开始就是写着新项目和动作游戏
+<img src="https://p.sda1.dev/18/e96c8c4221aa782a6c503f65fd7b54a1/CMP_20240806121417388.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

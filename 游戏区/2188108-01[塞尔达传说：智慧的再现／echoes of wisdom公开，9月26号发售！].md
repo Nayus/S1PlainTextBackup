@@ -3721,3 +3721,11 @@ Screenshot_20240805_234612.jpg
 
 第一个宣传片有说过林克就在里世界，萨尔达到了里世界应该可以与林克产生互动的吧？结合同步能力，说不定公主也有林克的剑术能力
 
+
+*****
+
+####  otakun  
+##### 379#       发表于 2024-8-6 09:28
+
+塞尔达公主去到里世界发现林克已经阵亡，悲伤万分过后跟林克尸体进行同步，打败盖农<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+

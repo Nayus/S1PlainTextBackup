@@ -685,3 +685,14 @@ v5，后面还有LEET
 任务徽章公布，大战哥斯拉。
 <img src="https://p.sda1.dev/18/3cb45a5218cd25c8b711db7da9c96037/CMP_20240806091702351.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  AraTurambar  
+##### 47#       发表于 2024-8-6 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65810588&amp;ptid=2190881" target="_blank">stevenzero 发表于 2024-8-6 09:17</a>
+
+任务徽章公布，大战哥斯拉。</blockquote>
+这个是机械哥斯拉？
+

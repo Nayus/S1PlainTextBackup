@@ -3283,3 +3283,13 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这倒也不算什么故事，扯这个其实主要应该是，通过汉密尔顿和X创世匣子有关系，给匣子跟创世和末日有关系提供一点名词上的助力吧，其他大多多少发散了。
 
+
+*****
+
+####  ravend233  
+##### 2449#       发表于 2024-8-6 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">创世的数量是八个，再加上目前宣传情报里似乎又多了新的，正好在数量上也对上了，也让人觉得是不是在引用神话
+
+有引用名词那大概是是有设定有引用，但是引用到什么程度就不好说了
+

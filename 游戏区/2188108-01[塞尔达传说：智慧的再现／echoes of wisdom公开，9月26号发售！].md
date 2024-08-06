@@ -4008,3 +4008,14 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 <img src="https://img.saraba1st.com/forum/202408/06/230808l1jhjzu1uju111dz.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  liekong  
+##### 406#       发表于 2024-8-6 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818553&amp;ptid=2188108" target="_blank">skypiea 发表于 2024-8-6 23:12</a>
+
+这看着不像寻人启示吧</blockquote>
+通缉令下面不应该标赏金么
+

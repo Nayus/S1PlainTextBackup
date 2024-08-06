@@ -5276,3 +5276,30 @@ https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][24
 [https://www.youtube.com/watch?v=HAn58pSPJ1Q](https://www.youtube.com/watch?v=HAn58pSPJ1Q)
 [https://www.youtube.com/watch?v=YjL5Fx4_mBw](https://www.youtube.com/watch?v=YjL5Fx4_mBw)
 
+
+*****
+
+####  商博良  
+##### 17086#       发表于 2024-8-6 23:27
+
+ 本帖最后由 商博良 于 2024-8-6 23:31 编辑 
+
+主播都不介意，我算个屁
+
+不在直播间 该觉得恶心还是觉得恶心
+
+
+*****
+
+####  gundamf91  
+##### 17087#       发表于 2024-8-6 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818592&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-8-6 23:19</a>
+
+谁来帮忙搬运一下
+
+https://www.youtube.com/watch?v=HAn58pSPJ1Q
+
+https://www.youtube.com/watch?v=YjL5Fx ...</blockquote>
+还挺好听的
+

@@ -3239,3 +3239,39 @@ hk预购咋还不开<img src="https://static.saraba1st.com/image/smiley/face2017
 
 老外还是太敏感 立本用北欧元素从来都是当地摊货贱卖的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2445#       发表于 2024-8-6 14:21
+
+法老控：哪有空去考据北欧神话，借个名字而已别想太多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2446#       发表于 2024-8-6 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连YSX这种也就背景设定扯了下北欧神话，故事本身和北欧神话没多少关系，你轨大概率也就搬几个名词装逼罢了
+
+*****
+
+####  Aeons  
+##### 2447#       发表于 2024-8-6 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65813202&amp;ptid=2160194" target="_blank">flyingover 发表于 2024-8-6 14:14</a>
+
+有来源吗，想看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">OP里有一个新计划Lævateinn莱瓦汀，达成后出现了封面的邪恶匣子。一般都是从这个角度开始往上套的。
+
+在这之后就是，歌名瓦尔哈拉的战士，用于红发辫子面具人疑似大君，面具人现在认为是招魂的很多。
+
+莱瓦汀被封装在洛基的盒子里，有九个锁，8+X创世，守护者Sinmoera，词源分为Sin和mare。
+
+黎二仅在结尾汉密尔顿处用过一次的BGM，叫做匣中之物是.....
+
+白金魔装鬼奥丁啊之类的
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">本质还是从莱瓦汀计划开始发散的。
+
+比如这个[https://www.youtube.com/watch?v=NTHjuDrVZRA](https://www.youtube.com/watch?v=NTHjuDrVZRA)
+

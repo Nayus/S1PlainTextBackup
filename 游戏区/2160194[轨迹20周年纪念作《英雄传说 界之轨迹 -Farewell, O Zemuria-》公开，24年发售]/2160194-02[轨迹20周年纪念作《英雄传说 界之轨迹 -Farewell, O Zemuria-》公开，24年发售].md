@@ -3626,3 +3626,13 @@ b站又开始推了，这货多久能落地啊
 
 —— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ravend233  
+##### 2485#       发表于 2024-8-7 01:14
+
+大概是近些年最差的一次宣发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

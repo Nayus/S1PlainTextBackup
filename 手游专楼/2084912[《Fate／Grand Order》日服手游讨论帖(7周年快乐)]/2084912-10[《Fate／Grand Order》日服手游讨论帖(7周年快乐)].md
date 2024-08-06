@@ -4682,3 +4682,23 @@ fgo一直都限制直播内容啊
 
 艳后和杰克谁也别说谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 13737#       发表于 2024-8-6 17:06
+
+这次强化挺大方的
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 13738#       发表于 2024-8-6 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65814006&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-6 15:47</a>
+
+说的不是继承  说的是本该加好感度的动作没加好感</blockquote>
+暴露我没抽到艾蕾了<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
+
+不过太君这做个被动切换都要等几个月的fw技术力，有的好等了
+

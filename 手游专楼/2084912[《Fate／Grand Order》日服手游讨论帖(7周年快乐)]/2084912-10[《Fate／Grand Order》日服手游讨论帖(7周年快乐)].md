@@ -4936,3 +4936,52 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 或许有救，刚才突然想到这转移卫星不是要数月吗，几个月就新年了，新年实装150级，120级不花硬币直接全退 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话说出来你自己信吗（
 
+
+*****
+
+####  DARKGRAY  
+##### 13761#       发表于 2024-8-6 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818435&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-6 22:53</a>
+
+这话说出来你自己信吗（</blockquote>
+退是会退，但喂上150级要花更多硬币<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 13762#       发表于 2024-8-6 22:55
+
+对厨常驻123星的玩家能算是福利，对厨金卡和各种限定的就是喂屎，今天推上也没啥动静，肯定就这样了
+
+*****
+
+####  alucardcz  
+##### 13763#       发表于 2024-8-6 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818445&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-6 22:54</a>
+
+退是会退，但喂上150级要花更多硬币</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要硬币我主力全部120了 圣杯又不值钱  90-120提升还是有的 不可能白给你
+
+
+*****
+
+####  DARKGRAY  
+##### 13764#       发表于 2024-8-6 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818456&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-6 22:56</a>
+
+不要硬币我主力全部120了 圣杯又不值钱  90-120提升还是有的 不可能白给你</blockquote>
+以后血量自然也是参考150级的调了，控制到和现在只喂到100级的人面对的处境差不多的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13765#       发表于 2024-8-6 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818477&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-6 23:00</a>
+
+以后血量自然也是参考150级的调了，控制到和现在只喂到100级的人面对的处境差不多的程度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大胆点 150照开 120也不退
+

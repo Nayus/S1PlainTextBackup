@@ -5219,3 +5219,16 @@ https://cowtransfer.com/s/ba5e2b478e3446 点击链接查看 [ [KaguraMea_VoV][24
 
 （等一个立即转生加入腾子虚环好吧
 
+
+*****
+
+####  Cortana  
+##### 17081#       发表于 2024-8-6 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65816816&amp;ptid=2018830" target="_blank">路人庚 发表于 2024-8-6 20:17</a>
+
+原地转生的还少么，此事平平无奇
+
+（等一个立即转生加入腾子虚环好吧</blockquote>
+感觉……不如……8.29b限黑神话
+

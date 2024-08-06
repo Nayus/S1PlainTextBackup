@@ -635,3 +635,11 @@ PS. 我的建议（被否决了）是复制N64上《》007黄金眼》的游戏�
 
 8月8日债券都是喷火武器吧。。。。8月6日一刀把喷火器砍废了和8月8日的债券过不去？
 
+
+*****
+
+####  九十九忍  
+##### 5152#       发表于 2024-8-6 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">游走火力网还是三发一轮，buff了个狗屁
+

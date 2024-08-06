@@ -4864,3 +4864,13 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 点麻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13755#       发表于 2024-8-6 20:59
+
+兽艾蕾好感度7的宝具笑脸是挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+但凑到7还是有点困难啊，失忆女友真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

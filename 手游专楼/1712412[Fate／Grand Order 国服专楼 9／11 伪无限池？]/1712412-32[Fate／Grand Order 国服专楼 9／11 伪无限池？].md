@@ -907,3 +907,11 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 泳装活动提前，9月的呼符没法用在泳装卡池了</blockquote>
 可以留给老登啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46617#       发表于 2024-8-6 21:05
+
+群里欧皇立flag要抽三宝了，我石头数量是他三倍但只敢一宝收藏，搞不好我抽一宝会比他三宝用得还多
+

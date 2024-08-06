@@ -11910,3 +11910,13 @@ go的6th已经很可以了，但是还是比不过鸡的1st
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡的1st算是出道巅峰了，但是架不住wsd一手好牌打的稀烂，后面开始走低了
 鸡在国内人气肯定高，但在日本现在的人气确实就那样，wsd功不可没啊
 
+
+*****
+
+####  星天观测  
+##### 21807#       发表于 2024-8-6 14:47
+
+鸡没新东西的日子里连拷打wsd都索然无味了
+
+弄那4000张存货能不能一天发一张啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

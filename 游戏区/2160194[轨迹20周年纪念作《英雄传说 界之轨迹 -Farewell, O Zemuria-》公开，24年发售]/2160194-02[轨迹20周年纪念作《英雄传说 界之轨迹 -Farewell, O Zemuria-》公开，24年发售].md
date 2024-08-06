@@ -3616,3 +3616,13 @@ b站又开始推了，这货多久能落地啊
 
 闹麻了，2000fun买的中文限定给我直接退款了
 
+
+*****
+
+####  悠悠你心  
+##### 2484#       发表于 2024-8-6 23:47
+
+你法今年对你轨到现在的宣发进度，很难看好作品质量啊，连电击都少了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

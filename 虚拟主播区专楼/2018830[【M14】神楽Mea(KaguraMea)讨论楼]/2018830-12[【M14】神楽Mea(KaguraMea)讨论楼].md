@@ -5320,3 +5320,11 @@ https://www.youtube.com/watch?v=YjL5Fx ...</blockquote>
 
 crew能哭的地方，只有厕所和你麻的评论区里<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dualist彩  
+##### 17090#       发表于 2024-8-6 23:52
+
+第一首还是taishi给的曲子，令人感叹，不知道你麻能不能当下一个青叶苹果
+

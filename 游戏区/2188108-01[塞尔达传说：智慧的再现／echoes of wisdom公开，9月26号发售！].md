@@ -3918,3 +3918,19 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 如果裂缝下面是跟王泪地底一样联通大地图就爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 399#       发表于 2024-8-6 21:55
+
+<img src="https://img.saraba1st.com/forum/202408/06/215329q9umeckk509unn99.jpg" referrerpolicy="no-referrer">
+
+<strong>3333.jpg</strong> (8.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-6 21:53 上传
+
+左上角这个降落伞角色有点神秘，我首先想到的是奥德赛里的路易吉。感觉是负责通关后要素的
+

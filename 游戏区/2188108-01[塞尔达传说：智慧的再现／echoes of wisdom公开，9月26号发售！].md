@@ -3812,3 +3812,33 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 388#       发表于 2024-8-6 10:39
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-8-6 10:35
+看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的 ...</blockquote>
+四个太少了。不太行。
+
+*****
+
+####  whfnet  
+##### 389#       发表于 2024-8-6 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811401&amp;ptid=2188108" target="_blank">Kiyohara_Yasuke 发表于 2024-8-6 10:35</a>
+ 看了下官网的演示动图，复制数量有上限，最多4个，复制物品的选择还是左右选，这个是最脑溢血的 ...</blockquote>
+小三角的数量上限应该是可以提升的，虽然也不会太高就是了
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 390#       发表于 2024-8-6 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811439&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-8-6 10:39</a>
+四个太少了。不太行。</blockquote>
+演示的是同一个复制品有4个上限，还是等更多情报吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -11840,3 +11840,11 @@ go这张图太妙了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 md，感觉狗的票根本买不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21801#       发表于 2024-8-6 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">不如备战武藏野，看完萝还能再看一天鸡，总比送钱给黄牛强，抢到票的概率也算大
+

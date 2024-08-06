@@ -92,3 +92,13 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">打完，这最后几关压力挺大的啊，总是会漏1-3个，你们怎么一个个都说的那么容易。地上的眼睛一睁开，马上防线就崩了
 
+
+*****
+
+####  Blackson  
+##### 85#       发表于 2024-8-6 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65811327&amp;ptid=2192638" target="_blank">wthall 发表于 2024-8-6 10:26</a>
+打完，这最后几关压力挺大的啊，总是会漏1-3个，你们怎么一个个都说的那么容易。地上的眼睛一睁开，马上防 ...</blockquote>
+要不就把怪堵在菌毯前或菌毯后。总之不要在菌毯跟怪对抗
+

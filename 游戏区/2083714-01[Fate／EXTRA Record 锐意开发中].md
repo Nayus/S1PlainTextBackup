@@ -355,3 +355,17 @@ ui和某百合卡牌游戏好像啊<img src="https://static.saraba1st.com/image/
 这次的pv麻婆走路的几部动作有点僵，表情也是。之前两个pv动作演出挺流畅来着，开场慎二的表情也挺自然。有 ...</blockquote>
 我也有点这种感觉，这片剪辑也不太好，后面实机还有个地方掉帧了，只能说还在打磨阶段吧，希望完善好角色细节再上（前几个片演出是真挺不错的
 
+
+*****
+
+####  ネロ  
+##### 103#       发表于 2024-8-6 11:16
+
+几年都没消息还以为胎死腹中了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+出现了走路镜头的几个角色都僵硬得不行
+尤其扎比夫的难蚌
+扎比子原来的跑步动作那么可爱，都不指望升级了，能不能保留下来都觉得悬啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

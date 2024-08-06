@@ -4378,3 +4378,16 @@ fgo一直都限制直播内容啊
 
 有人知道，点秘石后，系统给的推荐quest是其它free quest而不是修练场，是因为推荐的free quest比对应修练场掉率更高么？
 
+
+*****
+
+####  棍机凹升龙  
+##### 13710#       发表于 2024-8-6 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65805960&amp;ptid=2084912" target="_blank">segadc 发表于 2024-8-5 18:26</a>
+
+怎么了，看不起我龙王修297天的bug吗
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">反正拖多几个月母猪们就会淡忘
+

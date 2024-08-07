@@ -1455,3 +1455,11 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 <img src="https://p.sda1.dev/18/c5fa6395537df4a948b8bee53e632f5e/neuro0.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/e8fb6c5e1ff8aef270ddfe060bd392db/neuro1.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  tansapple  
+##### 140#       发表于 2024-8-7 16:21
+
+昨天半夜直播我还奇怪b站啥时候那么多牛肉粉了，明明平时切片都没几个人留言，后来想想这应该是官方推广引流的结果，乐府这推广力度也太猛了，龟龟到底开了个什么价？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

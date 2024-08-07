@@ -5223,3 +5223,17 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 别急，你游刚开发了其他手游开服就有的素材检索功能，其他手游的强化系统还要继续学习
 
+
+*****
+
+####  保罗赫伯特  
+##### 13788#       发表于 2024-8-7 16:14
+
+ 本帖最后由 保罗赫伯特 于 2024-8-7 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823952&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-7 15:45</a>
+
+顺带一提，比起纠结什么500np这种屁用没有的东西
+
+不如想想艾蕾的机制，你嫖好友直接没有好感条，嫖5宝等于 ...</blockquote>
+看到有人挂助战兽艾蕾就忍俊不禁，这机制都摆明了不希望让人挂助战了，是真纯爱路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

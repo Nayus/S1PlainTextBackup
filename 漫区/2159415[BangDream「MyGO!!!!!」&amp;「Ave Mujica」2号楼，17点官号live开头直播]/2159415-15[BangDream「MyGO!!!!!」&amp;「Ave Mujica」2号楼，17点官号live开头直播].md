@@ -12616,3 +12616,11 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 —— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  星空冻结  
+##### 21858#       发表于 2024-8-7 18:07
+
+🐶的乐队强相关都在猫希身上，这两个人是真的得靠liver续命的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

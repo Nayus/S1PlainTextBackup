@@ -3799,3 +3799,54 @@ b站又开始推了，这货多久能落地啊
 
 别cp小妹了我看那帖子cp小弟也不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2504#       发表于 2024-8-7 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是，还是用CP人吧
+
+*****
+
+####  古畑任三郎2015  
+##### 2505#       发表于 2024-8-7 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823567&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-7 15:04</a>
+
+时代变了，战力哥不如CP小妹一根毛</blockquote>
+卧轨还是太伟大了，素材与时俱进<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2506#       发表于 2024-8-7 15:08
+
+还不够最新网红版本，下一部应该该进入到底是百合还是soulmate 版本，然后劳保通讯录乐子人cp人打到昏天黑地<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2507#       发表于 2024-8-7 15:09
+
+打得头破血流还意识不到事务所已经被压缩到三分之一线了，还cp呢，救救事务所除男女主以外其他人的存在感吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2508#       发表于 2024-8-7 15:10
+
+这帮人能理解篇幅总量有限，戏份本质上是分蛋糕这个问题就有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  smdzh2  
+##### 2509#       发表于 2024-8-7 15:12
+
+李鬼吧养蛊的必然结果，建议加速<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

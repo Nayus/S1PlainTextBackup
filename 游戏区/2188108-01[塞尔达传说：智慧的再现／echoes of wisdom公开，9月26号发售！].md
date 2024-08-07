@@ -4241,3 +4241,16 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 —— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  Zeno_5  
+##### 429#       发表于 2024-8-7 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823339&amp;ptid=2188108" target="_blank">clyde-wang 发表于 2024-8-7 14:43</a>
+
+外包用得好比收购划算很多，微软索尼收购的工作室效果真的不算太好
+
+—— 来自 samsung SM-S9280, Android  ...</blockquote>
+外包搞砸了下次不找他们了，外包做得不错就长期合作，后面变成任的形状以后再收购，确实高明<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

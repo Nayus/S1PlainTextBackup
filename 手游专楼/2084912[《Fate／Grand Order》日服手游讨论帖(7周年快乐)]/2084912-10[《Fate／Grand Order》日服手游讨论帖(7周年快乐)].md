@@ -5129,3 +5129,27 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 我相信有不少人连多余的5星都卖了。真开 你看看会不会又爆炸（</blockquote>
 先爆炸，然后假装跪下补偿一部分来堵嘴，太君那边很好哄的啦，和九周年一样操作就ok
 
+
+*****
+
+####  司马千晶  
+##### 13779#       发表于 2024-8-7 15:08
+
+官漫里阿蒂拉看到未来的fgo不远了捏，pvp全服排名什么的也安排一下。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  johnkamsar  
+##### 13780#       发表于 2024-8-7 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823515&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-7 15:00</a>
+特殊手段是什么，解包吗
+
+不会真要开十宝吧，非要最后收割一波吗</blockquote>
+不是解包，大概率修改了程序实现，但是500的话大前提是得有对应匹配数值，这还是有些工程量（至少所有角色都得有对应拉上去的数据。）
+而且500oc我怎么看都觉得是叠出来那种，只是常规不会这么出现（就是宝具值oc显示会临时加成这幅度再进行计算，反正你fgo程序本身也很迷惑就是）
+这个感觉先放着，说不准
+

@@ -5745,3 +5745,24 @@ Fami通FGO九周年访谈情报：</blockquote>
 我就是已经更过的</blockquote>
 ios的话，要自己去商店里点一下更新
 
+
+*****
+
+####  Nunnallyzz  
+##### 13836#       发表于 2024-8-7 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827957&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 22:38</a>
+我就是已经更过的</blockquote>
+现在ios更新有问题 下滑刷不出来 得去搜app到app页面才能更新 昨天今天更新了2次app 昨天的更新没有修复 今天才修复
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yyzcacxg  
+##### 13837#       发表于 2024-8-7 22:58
+
+https://b23.tv/NusfgtE
+
+录了下雨神副手的，1T 7好感度
+

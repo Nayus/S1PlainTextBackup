@@ -204,3 +204,11 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 这游戏距离上一代居然有6年了啊，6年做出这种创新和体量都不大的新作，虽然质量依然稳定，也不能算很出彩吧 ...</blockquote>
 中间出过PRG王国保卫战传奇，junkworld还有钢铁战队2<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kaolimadepi  
+##### 96#       发表于 2024-8-7 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉除了可以操控伪直男和迪纳斯外没新意，微操塔是闹哪样。
+

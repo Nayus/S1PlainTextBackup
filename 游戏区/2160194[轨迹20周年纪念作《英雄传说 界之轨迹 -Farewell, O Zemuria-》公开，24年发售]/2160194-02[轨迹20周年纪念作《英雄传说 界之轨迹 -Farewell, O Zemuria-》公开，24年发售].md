@@ -3729,3 +3729,21 @@ b站又开始推了，这货多久能落地啊
 
 界轨吧cp楼属实大开眼界，太带派了
 
+
+*****
+
+####  一步成诗  
+##### 2496#       发表于 2024-8-7 14:49
+
+魔怔的不还是那一两个眼熟的id吗，从黎吧打到界吧，一人打出百人的气势，不过养出这种蛊都是你法阴德的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2497#       发表于 2024-8-7 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次都是那几个眼熟的ID互相团建，合计下来不超过20个人，闹麻了，还以为你圈多热门
+
+只能说讨论环境一坨屎，销量越来越差也是你法阴德的
+

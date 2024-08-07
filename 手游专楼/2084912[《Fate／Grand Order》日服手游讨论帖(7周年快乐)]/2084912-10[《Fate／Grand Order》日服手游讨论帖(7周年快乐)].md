@@ -5085,3 +5085,18 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 那我以前卖掉的四星能还我吗？保守估计得有个10宝飞哥和10宝卫宫了
 
+
+*****
+
+####  alucardcz  
+##### 13774#       发表于 2024-8-7 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信有不少人连多余的5星都卖了。真开 你看看会不会又爆炸（
+
+*****
+
+####  壳壳牛  
+##### 13775#       发表于 2024-8-7 14:57
+
+好时代来临喽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

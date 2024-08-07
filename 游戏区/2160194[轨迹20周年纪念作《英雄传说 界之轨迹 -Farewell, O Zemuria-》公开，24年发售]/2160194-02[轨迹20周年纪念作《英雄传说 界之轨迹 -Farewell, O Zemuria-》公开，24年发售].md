@@ -3893,3 +3893,28 @@ b站又开始推了，这货多久能落地啊
 闹麻了，2000fun买的中文限定给我直接退款了</blockquote>
 看了你这个信息，发现我的2000FUN的限定版也被退了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2515#       发表于 2024-8-7 18:50
+
+<img src="https://img.saraba1st.com/forum/202408/07/184909lzb4jbxnn0lob4x5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 18:49 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曹李来了（
+
+*****
+
+####  Aeons  
+##### 2516#       发表于 2024-8-7 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不是一批，黎那会骂闪吧，黎二后回闪吧骂黎吧，界之后骂闪吧。
+
+说到底，这种nbcs的糊逼游戏小贴吧，消息出来抢个吧主位置，一天之内吧务安排上十来个，能是什么公平公正人了。
+

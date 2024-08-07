@@ -12573,3 +12573,26 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 又是没有新歌也没有MV的一天<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21854#       发表于 2024-8-7 16:15
+
+据说日本那边现在又开始流行新冠了？感觉最近体调不良的有点多
+
+<img src="https://img.saraba1st.com/forum/202408/07/161508r97l43cz277g932s.jpg" referrerpolicy="no-referrer">
+
+<strong>c28689ccba3665541ef29c319cd5e7965f7ee5c9c47f2665a35c3f77969509da.0.JPG</strong> (89.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 16:15 上传
+
+*****
+
+####  星天观测  
+##### 21855#       发表于 2024-8-7 16:17
+
+应该是新冠，之前南条也是新冠取消活动了
+

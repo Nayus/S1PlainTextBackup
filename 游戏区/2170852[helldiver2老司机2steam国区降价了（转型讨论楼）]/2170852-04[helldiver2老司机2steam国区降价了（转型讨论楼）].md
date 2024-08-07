@@ -1165,3 +1165,15 @@ n9打着倒是和以前差不多，n10还没解锁
 每次更新一堆bug，有几个很恶心bug的就要 ...</blockquote>
 来，你给我说话来
 
+
+*****
+
+####  FLZB  
+##### 5202#       发表于 2024-8-7 16:13
+
+ 本帖最后由 FLZB 于 2024-8-7 16:18 编辑 
+
+这又不是第一次，脑子有矢看玩家玩爽了比他们死亲🐴都难受不是人尽皆知的事了么？这次大更pv就提前打好预防针了，只能说意料之中稳定发挥，现在只想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种玩家矮子里拔高个→箭头把高个腿打断→玩家矮子里拔高个→箭头把高个腿打断的扭曲恶性循环继续下去玩家强度只会越来越弱，好日子还在后头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

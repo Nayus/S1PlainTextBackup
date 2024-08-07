@@ -12632,3 +12632,14 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 今天应该出MV了
 
+
+*****
+
+####  星天观测  
+##### 21860#       发表于 2024-8-7 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65825430&amp;ptid=2159415" target="_blank">1a不解释 发表于 2024-8-7 17:56</a>
+
+23我反倒不太能接受，2的强塞青梅制造矛盾我感觉太生硬，3的最终回硬颁三个奖看着很尬，不过这两部的日常 ...</blockquote>
+问题不大，因为我基本都是在看roselia+ag，其他的不是很在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

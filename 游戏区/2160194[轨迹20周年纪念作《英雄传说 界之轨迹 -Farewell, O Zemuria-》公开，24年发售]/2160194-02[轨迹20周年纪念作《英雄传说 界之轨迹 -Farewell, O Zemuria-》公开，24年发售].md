@@ -4083,3 +4083,19 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可能后续没东西能写了，那也比删光个人剧情的其他角色强得多了
 
+
+*****
+
+####  一步成诗  
+##### 2535#       发表于 2024-8-7 21:47
+
+黎2宁愿一块表拆几块找也不愿意填角色个人坑，算填了一个卡特尔吧，大君也不讲，憋到最后直接扔掉，确实是天天又才才呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2536#       发表于 2024-8-7 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很好奇要是界轨开人气投票，黎轨组有几个能进前10
+

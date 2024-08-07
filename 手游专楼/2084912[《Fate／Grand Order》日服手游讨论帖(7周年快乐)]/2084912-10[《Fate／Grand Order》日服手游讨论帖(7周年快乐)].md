@@ -5302,3 +5302,45 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 水尼托致死是不是后置了，应该勉强救回来点了吧
 
+
+*****
+
+####  angelooo  
+##### 13797#       发表于 2024-8-7 17:07
+
+艹，梅杰德后置即死了
+
+但她没有自充啊混蛋，你看看本体，这能比吗
+
+*****
+
+####  サイトヒメア  
+##### 13798#       发表于 2024-8-7 17:08
+
+没有艳后也没有大帝<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  希望之花  
+##### 13799#       发表于 2024-8-7 17:08
+
+四星蓝光炮杀阶有另一个战神泳装瓦尔基里，再怎么救也就那样吧
+
+甚至有一个是同声优<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  大十字紅朔  
+##### 13800#       发表于 2024-8-7 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65824879&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-7 17:07</a>
+
+艹，梅杰德后置即死了
+
+但她没有自充啊混蛋，你看看本体，这能比吗</blockquote>
+NP率比本体好，应该可以冲浪的
+
+虽然没必要
+

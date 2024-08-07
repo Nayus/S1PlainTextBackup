@@ -3882,3 +3882,14 @@ b站又开始推了，这货多久能落地啊
 
 不知道界轨和黎轨的吧务是不是一批人，反正当时我在黎吧用自嘲语气嘴了句法社粉丝人傻钱多，直接被十天，我寻思有这么严重么，看来85就是看心情干事的贵物罢了
 
+
+*****
+
+####  bill910  
+##### 2514#       发表于 2024-8-7 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817965&amp;ptid=2160194" target="_blank">天堂蜘蛛 发表于 2024-8-6 22:09</a>
+
+闹麻了，2000fun买的中文限定给我直接退款了</blockquote>
+看了你这个信息，发现我的2000FUN的限定版也被退了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

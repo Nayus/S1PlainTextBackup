@@ -1540,3 +1540,11 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我是服了西西了，前面天崩地裂级，一直到第三年夏为止公式战0胜，结果最后一年还能拉回来，现在看看她还是冠军候补之一……这就是被神爱着的女人吗，正赛运气好点搞不好真能连霸了
 
+
+*****
+
+####  ヒトニナル  
+##### 569#       发表于 2024-8-7 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这哈弟瓦杯还有我一直看的老熟人参加，我也服了
+

@@ -872,3 +872,21 @@ n9打着倒是和以前差不多，n10还没解锁
 
 虫子我最佳成绩也只是同时应付3只坦克虫，昨晚一次性来5只坦克虫我只能在里面乱窜，还绕什么背，人都给冲麻了，混了大半天还是队友用突击兵帮我打掉的。当然也有可能我是替队友吸引火力了，因为我基本没做啥主支线任务，虫潮基本都是我这边拉的烟<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  风萧飒  
+##### 5173#       发表于 2024-8-7 09:13
+
+轨道燃烧
+
+<img src="https://img.saraba1st.com/forum/202408/07/091304nx4vzw3848uzxd3x.png" referrerpolicy="no-referrer">
+
+<strong>1722993159067.png</strong> (415.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 09:13 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

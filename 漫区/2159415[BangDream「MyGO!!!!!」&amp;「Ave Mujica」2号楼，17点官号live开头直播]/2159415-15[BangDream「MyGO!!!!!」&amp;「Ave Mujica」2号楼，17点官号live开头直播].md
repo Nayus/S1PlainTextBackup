@@ -12700,3 +12700,11 @@ fl2真人团就是live音源
 
 本来很深情的宣言突然变搞笑了是怎么回事了啊<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 21867#       发表于 2024-8-8 02:23
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反
+

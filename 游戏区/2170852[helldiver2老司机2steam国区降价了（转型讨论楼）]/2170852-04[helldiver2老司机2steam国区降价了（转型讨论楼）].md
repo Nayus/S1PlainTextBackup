@@ -1023,3 +1023,13 @@ n9打着倒是和以前差不多，n10还没解锁
 
 说白了就该把坦克虫那顺滑的漂移拐弯跑法给改掉，整个那么大那么重的虫子，跑动的时候拐个弯比小电驴都轻松，每次绕个背都只给打两三发机炮的时间，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  WGTCorp  
+##### 5189#       发表于 2024-8-7 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65821613&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-7 11:36</a>
+箭头想的怕不是你怎么能用主手处理虫海，你怎么不用三号位的机枪</blockquote>
+三号位机枪也压不住虫潮，弹链打完基本只能跑了，两个晕雷都不一定能让你把子弹换好，再来个牛更是只能等死了。
+

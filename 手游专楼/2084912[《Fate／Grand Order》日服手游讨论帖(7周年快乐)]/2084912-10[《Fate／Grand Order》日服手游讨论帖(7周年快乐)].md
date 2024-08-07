@@ -5505,3 +5505,56 @@ NP率比本体好，应该可以冲浪的
 修了Bug能上10好感了，开场叠brave chain能直接上7。带上泥黑杯伤害也能合格，厨力玩法一本满足了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几宝啊 2宝带黑杯能单c吗
 
+
+*****
+
+####  johnkamsar  
+##### 13816#       发表于 2024-8-7 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827172&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-7 21:14</a>
+
+几宝啊 2宝带黑杯能单c吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">我是感觉不大行，我2宝打caster修炼场都不大行，回收太糟糕了
+
+*****
+
+####  Jamaisvu  
+##### 13817#       发表于 2024-8-7 21:19
+
+Fami通FGO九周年访谈情报：
+
+<img src="https://img.saraba1st.com/forum/202408/07/211957iu3q3ood30zsowsa.png" referrerpolicy="no-referrer">
+
+<strong>1723036582504.png</strong> (118.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-7 21:19 上传
+
+翻译转自B站：
+
+蘑菇：终章会推出新系统，游戏系统上也是最大的。
+
+羁绊，职介，全体从者的练度重要。
+
+打倒奥尔加玛丽后最后系统解放，做好觉悟。
+
+剩下的所长，一个在享受大总统的生活，一个憎恨人类。
+
+东京疑似主人公的记忆，奏章3会让人吃惊，这样好吗？的想法
+
+星战3也想做，不过要根据日程决定。
+
+FGO的故事结束，之后谁也不知道的感觉。
+
+武内崇：贞德的某句台词敬请期待它的真意，考虑画廊功能，
+
+希耶尔三破是礼服姿态，会有各种彩蛋，过于期待seven登场，
+
+面对终章营造氛围，恐怕是有史以来的最大挑战。
+
+叶良树：活动限定从者的性能标准可能比以前高了，正在讨论补充青铜树苗的机会，恢复白方块兑换次数，正在讨论改善自动编组，排除羁绊Max者等。
+
+和奈须蘑菇一起推进的最后一章的新机制是集大成之作。
+

@@ -927,3 +927,14 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 —— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  johnkamsar  
+##### 46619#       发表于 2024-8-7 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65817227&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-8-6 21:05</a>
+
+群里欧皇立flag要抽三宝了，我石头数量是他三倍但只敢一宝收藏，搞不好我抽一宝会比他三宝用得还多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">哪个群？我去围观下，发红包么？
+

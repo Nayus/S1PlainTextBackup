@@ -4035,3 +4035,51 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 没关系的，管你什么角色大家都找一遍表就老实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2529#       发表于 2024-8-7 21:17
+
+就是抛开作品本身销量差，某种意义上也表现了黎1黎2在角色塑造上的失败，大伙都不关心这帮角色能展开什么剧情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟两部的篇幅一个角色都没讲明白也是一种能力了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  whzfjk  
+##### 2530#       发表于 2024-8-7 21:18
+
+毕竟黎恩用了4作来捧啊，还是3D化第一任主角，一切都是存在因果的脉络的
+
+*****
+
+####  一步成诗  
+##### 2531#       发表于 2024-8-7 21:20
+
+和数量关系已经不大了，你换黎恩来找四作表人气也上不去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2532#       发表于 2024-8-7 21:22
+
+黎1,2说实话讲明白了的新角色只有一个剑女（这还是黎1讲明白的，黎2什么都没讲明白），其他角色因为竹入天才一般的摁藏角色剧情的设计，导致整整两部总体都只有一堆平平淡淡的日常剧情而没有太多亮眼的塑造<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，主线剧情又是衔接性极差的找表，这样有人气就有鬼了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2533#       发表于 2024-8-7 21:24
+
+所以谁说剑女的坑在黎1直接填完没有留后续不算一种塞翁失马呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2534#       发表于 2024-8-7 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可能后续没东西能写了，那也比删光个人剧情的其他角色强得多了
+

@@ -12038,3 +12038,17 @@ mygo是我见过的乐队番好像是第一部几乎所有曲子都是完整展�
 
 第十集确实看得我尬得抠地板，但是考虑是邦邦，我还是给一个好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  紫吹兰  
+##### 21816#         楼主| 发表于 2024-8-7 09:36
+
+ 本帖最后由 紫吹兰 于 2024-8-7 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65815939&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-6 19:00</a>
+
+在这也发一下，谈一谈MyGO好在哪。
+
+MyGO彻底搞明白了乐队番里的Live是什么。（我不敢说它是不是第一个搞明 ...</blockquote>
+MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最重要的环节，第三话的春日影是矛盾开始，第七话的春日影是矛盾的激化，第十话的诗超绊则是矛盾的最高潮。而大部分动画的live只是解决矛盾后的胜利结算动画，本身并不是剧情冲突的一部分，更不是胜利本身。这也是春日影和诗超绊这两首单看歌本身并不算特别出彩的歌这么浓墨重彩的原因。
+

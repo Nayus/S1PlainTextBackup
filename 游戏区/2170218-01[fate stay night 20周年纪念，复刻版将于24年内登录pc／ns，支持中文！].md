@@ -33,3 +33,35 @@
 
 97买了，也没实体豪华凯<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BigLittle1999  
+##### 89#       发表于 2024-8-7 23:38
+
+steam上的应该是无h的？会有补丁嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cuchulain2021  
+##### 90#       发表于 2024-8-7 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65828457&amp;ptid=2170218" target="_blank">BigLittle1999 发表于 2024-8-7 23:38</a>
+
+steam上的应该是无h的？会有补丁嘛
+
+—— 来自 S1Fun</blockquote>
+不会，除非民间自己折腾，不然根本不是一个游戏
+
+*****
+
+####  LRSzwei  
+##### 91#       发表于 2024-8-7 23:44
+
+感觉没有hs也就hf线稍微有点影响，不过型月粉丝这么多出个民间r18补丁概率还是大的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

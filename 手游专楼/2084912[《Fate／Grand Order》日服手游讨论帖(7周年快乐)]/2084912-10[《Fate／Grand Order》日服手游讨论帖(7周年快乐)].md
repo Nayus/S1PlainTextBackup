@@ -5774,3 +5774,11 @@ https://b23.tv/NusfgtE
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼仓库雨神1宝。告辞了  另外你这个是不是还必须点20np
 
+
+*****
+
+####  yyzcacxg  
+##### 13839#       发表于 2024-8-7 23:38
+
+点减CD就行，只打两面NP是溢出的，开局放Ｃ呆13技能
+

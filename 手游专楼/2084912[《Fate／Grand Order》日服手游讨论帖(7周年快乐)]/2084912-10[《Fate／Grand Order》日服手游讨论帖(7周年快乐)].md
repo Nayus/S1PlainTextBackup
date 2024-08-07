@@ -5587,3 +5587,14 @@ Fami通FGO九周年访谈情报：</blockquote>
 
 十周年实装画廊功能！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13821#       发表于 2024-8-7 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827217&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 21:18</a>
+
+我是感觉不大行，我2宝打caster修炼场都不大行，回收太糟糕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我试了下 可以啊 带减cd服
+

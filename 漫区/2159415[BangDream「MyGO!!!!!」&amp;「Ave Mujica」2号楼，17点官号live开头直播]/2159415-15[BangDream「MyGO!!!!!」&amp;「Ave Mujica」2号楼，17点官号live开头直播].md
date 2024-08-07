@@ -12604,3 +12604,15 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 李子7月一共6场演出，还日本上海往返跑，强度不小的，恐怕真的累坏了吧
 
+
+*****
+
+####  1a不解释  
+##### 21857#       发表于 2024-8-7 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822976&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-7 14:09</a>
+所以比起狗我更喜欢邦23（1画风有点没法接受还没补）</blockquote>
+23我反倒不太能接受，2的强塞青梅制造矛盾我感觉太生硬，3的最终回硬颁三个奖看着很尬，不过这两部的日常回还挺喜欢的
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

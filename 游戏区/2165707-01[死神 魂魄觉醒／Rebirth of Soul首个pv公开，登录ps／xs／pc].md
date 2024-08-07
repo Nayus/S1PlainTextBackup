@@ -58,3 +58,16 @@
 
 那是粉絲創作的概念圖
 
+
+*****
+
+####  bgmilk  
+##### 52#       发表于 2024-8-7 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65825231&amp;ptid=2165707" target="_blank">病態極端 发表于 2024-8-7 17:38</a>
+
+https://x.com/SylverZ05/status/1818015557331141063
+
+那是粉絲創作的概念圖</blockquote>
+   原来如此，改了。
+

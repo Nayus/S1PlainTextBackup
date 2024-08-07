@@ -4169,3 +4169,12 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 那怎么办，写都写完了，又差又敷衍界轨也没办法再从三分之一线分戏份给你一个十八线配角了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保住男女主就算胜利
 
+
+*****
+
+####  Aeons  
+##### 2544#       发表于 2024-8-8 00:14
+
+其实有想过写一点黎一二包括设定集提到的非常明确后续需要解释的东西。
+想想有点太多了还是界轨后再写吧。
+

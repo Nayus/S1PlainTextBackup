@@ -1222,3 +1222,16 @@ n9打着倒是和以前差不多，n10还没解锁
 
 太烦躁了，每次难9第三关都过不了，不是bug了就是闪退，真是狗屎
 
+
+*****
+
+####  6x6z6w  
+##### 5208#       发表于 2024-8-8 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823802&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-7 15:27</a>
+
+尽管削，我上线算我输
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+尽管削，其实现在机器人兵营还有个bug，侧面和后面一共三条缝隙，只要拿支援武器对着缝隙打一发就能直接炸掉<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">根本不用突击兵打四发
+

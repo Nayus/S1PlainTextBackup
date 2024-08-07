@@ -1142,3 +1142,15 @@ n9打着倒是和以前差不多，n10还没解锁
 
 怀念一代次抛机枪
 
+
+*****
+
+####  jy000129  
+##### 5200#       发表于 2024-8-7 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823251&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-7 14:36</a>
+说起来没有人提公告说要削突击兵吗？ 说40摧毁力并非有意为之</blockquote>
+尽管削，我上线算我输<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

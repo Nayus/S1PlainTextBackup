@@ -5100,3 +5100,32 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 好时代来临喽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 13776#       发表于 2024-8-7 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822974&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-8-7 14:09</a>
+
+这是打算要提高宝具等级上限了吧</blockquote>
+特殊手段是什么，解包吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+不会真要开十宝吧，非要最后收割一波吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啪嗒啪嗒嘭  
+##### 13777#       发表于 2024-8-7 15:00
+
+真开了也行吧，可以给FGO送终了XD
+
+*****
+
+####  angelooo  
+##### 13778#       发表于 2024-8-7 15:01
+
+<blockquote>alucardcz 发表于 2024-8-7 14:55
+我相信有不少人连多余的5星都卖了。真开 你看看会不会又爆炸（</blockquote>
+先爆炸，然后假装跪下补偿一部分来堵嘴，太君那边很好哄的啦，和九周年一样操作就ok
+

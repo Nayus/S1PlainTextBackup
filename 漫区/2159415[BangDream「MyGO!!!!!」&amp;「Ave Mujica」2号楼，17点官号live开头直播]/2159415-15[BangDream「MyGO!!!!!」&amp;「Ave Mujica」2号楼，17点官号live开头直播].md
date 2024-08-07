@@ -12558,3 +12558,18 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 猫剧情表现上来说设定她觉得有趣的是立希也完全没问题，流浪猫时期蹭吃蹭喝找立希，回学校有同校buff，组成乐队后行为上也粘立希，对灯感觉是有点单薄
 
+
+*****
+
+####  NODY  
+##### 21852#       发表于 2024-8-7 14:57
+
+猫有趣的女人是灯这个官方确实强调过，不过手游给了个猫想跑路灯都劝不动的设定，搞得猫灯同人都少了，还是最近6th青木羊疯狂营业才拉回来一点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六道明  
+##### 21853#       发表于 2024-8-7 15:03
+
+又是没有新歌也没有MV的一天<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

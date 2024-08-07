@@ -3747,3 +3747,55 @@ b站又开始推了，这货多久能落地啊
 
 只能说讨论环境一坨屎，销量越来越差也是你法阴德的
 
+
+*****
+
+####  一步成诗  
+##### 2498#       发表于 2024-8-7 15:00
+
+点进去看喷粪和弱智逻辑都感觉浪费时间，还不如泥潭呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过看起来这些人都对界轨挺有信心的，好羡慕这种乐观的态度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2499#       发表于 2024-8-7 15:01
+
+ 本帖最后由 ravend233 于 2024-8-7 15:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CP人是这样的，只要刀子不落下来可以无止境贷款
+
+不过你圈还是小意思了，不如其他热门圈<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 2500#       发表于 2024-8-7 15:03
+
+说起来10年前轨迹不都是讨论不了几页一转论武的<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">什么s级准s级s-s+
+
+*****
+
+####  一步成诗  
+##### 2501#       发表于 2024-8-7 15:03
+
+超级弱化糊版死小圈是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2502#       发表于 2024-8-7 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823550&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-8-7 15:03</a>
+
+说起来10年前轨迹不都是讨论不了几页一转论武的什么s级准s级s-s+</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时代变了，战力哥不如CP小妹一根毛
+
+*****
+
+####  一步成诗  
+##### 2503#       发表于 2024-8-7 15:05
+
+别cp小妹了我看那帖子cp小弟也不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

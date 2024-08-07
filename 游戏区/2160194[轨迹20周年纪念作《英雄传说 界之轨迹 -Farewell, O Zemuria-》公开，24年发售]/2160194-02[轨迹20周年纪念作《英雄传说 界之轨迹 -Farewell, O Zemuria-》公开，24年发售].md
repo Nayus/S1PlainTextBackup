@@ -3674,3 +3674,11 @@ b站又开始推了，这货多久能落地啊
 个人推测是五六月，五六月有一部朱蒂丝妮娜的电影上映，目前公开的电影院地图还挂着老黄历电影，这个电影放在剧情期间挺合适。
 当然也可能忘了这事了。
 
+
+*****
+
+####  Sylpheed  
+##### 2490#       发表于 2024-8-7 10:01
+
+懂了，是无酒精啤酒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

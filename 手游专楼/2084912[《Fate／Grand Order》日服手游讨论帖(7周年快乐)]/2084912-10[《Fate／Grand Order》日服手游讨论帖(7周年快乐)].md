@@ -5598,3 +5598,27 @@ Fami通FGO九周年访谈情报：</blockquote>
 我是感觉不大行，我2宝打caster修炼场都不大行，回收太糟糕了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我试了下 可以啊 带减cd服
 
+
+*****
+
+####  johnkamsar  
+##### 13822#       发表于 2024-8-7 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827418&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-7 21:39</a>
+我试了下 可以啊 带减cd服</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是换人，没带cd，主要是要给正雪弄点硬币开np被动
+
+*****
+
+####  alucardcz  
+##### 13823#       发表于 2024-8-7 22:02
+
+ 本帖最后由 alucardcz 于 2024-8-7 22:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827587&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 22:01</a>
+
+我是换人，没带cd，主要是要给正雪弄点硬币开np被动</blockquote>
+[https://www.bilibili.com/video/BV1WMaDepEAA/](https://www.bilibili.com/video/BV1WMaDepEAA/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">录了个视频 2宝黑杯打白字 232的本
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第3面伤害有点低。。。但可以连2个c呆宝具
+

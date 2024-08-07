@@ -5025,3 +5025,13 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 當然一直都是WIFI環境，遊戲容量也升到2.1G了
 
+
+*****
+
+####  xy1041  
+##### 13769#       发表于 2024-8-7 13:52
+
+这下谢谢yls了，再也不用抽6宝了，最多5宝点两个被动拉倒，你有种出个宝威魔放被动，给我个理由彻底跑路<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

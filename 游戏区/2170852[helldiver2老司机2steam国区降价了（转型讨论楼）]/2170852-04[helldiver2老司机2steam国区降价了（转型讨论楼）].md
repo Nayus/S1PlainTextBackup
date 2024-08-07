@@ -1086,3 +1086,21 @@ n9打着倒是和以前差不多，n10还没解锁
 
 我看维基说6月的一个补丁修复了牛的屁股不会受到爆炸伤害的bug，不知道榴弹杀牛会不会更容易一些了
 
+
+*****
+
+####  xinfengj  
+##### 5195#       发表于 2024-8-7 14:20
+
+又看了一遍更新说明，发现激光狗没冷却嗯滋已经上了已知bug名单了，大家赶紧用吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6x6z6w  
+##### 5196#       发表于 2024-8-7 14:23
+
+<img src="https://i.redd.it/fi3xx588l6hd1.jpeg" referrerpolicy="no-referrer">
+
+牛这东西**就是这游戏里一块肿瘤
+

@@ -4102,3 +4102,18 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 这作也是啊，也是Grezzo负责制作，任天堂出点人监督</blockquote>
 那还真，奇迹了。
 
+
+*****
+
+####  liekong  
+##### 415#       发表于 2024-8-7 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820564&amp;ptid=2188108" target="_blank">星花 发表于 2024-8-7 09:55</a>
+
+那还真，奇迹了。</blockquote>
+看来是重复使用 水银蒸气 的套路了，先用新引擎复刻一款旧作练手，然后同样引擎做新作，
+
+水银蒸气是复刻萨姆斯归来，做生存恐惧，
+
+Grezzo则是复刻织梦岛，做智慧再现
+

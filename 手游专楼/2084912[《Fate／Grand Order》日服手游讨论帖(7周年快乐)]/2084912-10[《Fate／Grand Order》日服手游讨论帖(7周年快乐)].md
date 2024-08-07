@@ -5782,3 +5782,11 @@ https://b23.tv/NusfgtE
 
 点减CD就行，只打两面NP是溢出的，开局放Ｃ呆13技能
 
+
+*****
+
+####  johnkamsar  
+##### 13840#       发表于 2024-8-7 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">日服没阿妹….国服倒是抽羽蛇神满宝了阿妹….
+

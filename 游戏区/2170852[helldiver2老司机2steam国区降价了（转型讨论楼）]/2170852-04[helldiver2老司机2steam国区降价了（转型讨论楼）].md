@@ -1235,3 +1235,14 @@ n9打着倒是和以前差不多，n10还没解锁
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
 尽管削，其实现在机器人兵营还有个bug，侧面和后面一共三条缝隙，只要拿支援武器对着缝隙打一发就能直接炸掉<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">根本不用突击兵打四发
 
+
+*****
+
+####  jy000129  
+##### 5209#       发表于 2024-8-8 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65828673&amp;ptid=2170852" target="_blank">6x6z6w 发表于 2024-8-8 00:13</a>
+
+尽管削，其实现在机器人兵营还有个bug，侧面和后面一共三条缝隙，只要拿支援武器对着缝隙打一发就能直接炸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这还第一次知道
+

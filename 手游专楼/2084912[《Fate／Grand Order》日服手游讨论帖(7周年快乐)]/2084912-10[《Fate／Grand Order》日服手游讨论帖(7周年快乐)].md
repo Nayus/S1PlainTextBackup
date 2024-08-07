@@ -5766,3 +5766,11 @@ https://b23.tv/NusfgtE
 
 录了下雨神副手的，1T 7好感度
 
+
+*****
+
+####  alucardcz  
+##### 13838#       发表于 2024-8-7 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼仓库雨神1宝。告辞了  另外你这个是不是还必须点20np
+

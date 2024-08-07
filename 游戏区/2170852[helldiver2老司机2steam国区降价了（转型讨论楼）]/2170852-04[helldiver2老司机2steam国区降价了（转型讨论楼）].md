@@ -1006,3 +1006,20 @@ n9打着倒是和以前差不多，n10还没解锁
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ravend233  
+##### 5187#       发表于 2024-8-7 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">箭头：你不是还有队友吗
+
+然而现在的重甲数量是四个人都拿反重都不够用（）
+
+*****
+
+####  dfbbymice  
+##### 5188#       发表于 2024-8-7 11:58
+
+说白了就该把坦克虫那顺滑的漂移拐弯跑法给改掉，整个那么大那么重的虫子，跑动的时候拐个弯比小电驴都轻松，每次绕个背都只给打两三发机炮的时间，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

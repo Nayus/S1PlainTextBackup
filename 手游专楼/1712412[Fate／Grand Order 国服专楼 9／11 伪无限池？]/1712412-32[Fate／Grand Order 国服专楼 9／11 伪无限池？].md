@@ -915,3 +915,15 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 群里欧皇立flag要抽三宝了，我石头数量是他三倍但只敢一宝收藏，搞不好我抽一宝会比他三宝用得还多
 
+
+*****
+
+####  天天那个啥  
+##### 46618#       发表于 2024-8-7 12:01
+
+想起福袋还没抽，于是赶紧去抽一下
+
+本来想狙一个道满的，结果三个里面中了两个，偏偏没中道满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真不知该哭还是该笑
+
+—— 来自 vivo V2309A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

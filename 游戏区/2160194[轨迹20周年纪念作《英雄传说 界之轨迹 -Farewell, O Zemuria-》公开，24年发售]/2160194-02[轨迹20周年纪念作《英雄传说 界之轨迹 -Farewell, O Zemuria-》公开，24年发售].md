@@ -4161,3 +4161,11 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 至于有人提前把故事线写完是不是好事，从人气来说确实是好事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2543#       发表于 2024-8-7 22:35
+
+那怎么办，写都写完了，又差又敷衍界轨也没办法再从三分之一线分戏份给你一个十八线配角了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">保住男女主就算胜利
+

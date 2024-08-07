@@ -5698,3 +5698,50 @@ Fami通FGO九周年访谈情报：</blockquote>
 草 今天的更新没推送</blockquote>
 更了也没感觉到，给换人服的hp技能时没生效，感觉还是有问题
 
+
+*****
+
+####  alucardcz  
+##### 13832#       发表于 2024-8-7 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827936&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 22:36</a>
+
+更了也没感觉到，给换人服的hp技能时没生效，感觉还是有问题</blockquote>
+我刚刚去更新了下 有效果了
+
+你是今天更新的还是昨天更新的  今天又出了个新版本（ios）
+
+*****
+
+####  johnkamsar  
+##### 13833#       发表于 2024-8-7 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827954&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-7 22:38</a>
+我刚刚去更新了下 有效果了
+
+你是今天更新的还是昨天更新的  今天又出了个新版本（ios） ...</blockquote>
+我就是已经更过的
+
+*****
+
+####  alucardcz  
+##### 13834#       发表于 2024-8-7 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827957&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 22:38</a>
+
+我就是已经更过的</blockquote>
+那就不知道了 我是刚刚更新的 换人服3个技能都可以加好感了
+
+前面录像的时候都不加
+
+
+*****
+
+####  保罗赫伯特  
+##### 13835#       发表于 2024-8-7 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827957&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 22:38</a>
+
+我就是已经更过的</blockquote>
+ios的话，要自己去商店里点一下更新
+

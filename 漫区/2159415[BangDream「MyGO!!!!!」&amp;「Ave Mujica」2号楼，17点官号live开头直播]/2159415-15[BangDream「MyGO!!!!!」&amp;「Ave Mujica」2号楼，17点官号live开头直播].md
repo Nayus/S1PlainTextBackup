@@ -12418,3 +12418,23 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 作为邦邦剧本上有大突破的新作，羁绊＆音乐被分开了，这两点没能很好的融合在一起，乐队更多的成为了世界观层次上的表现<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21841#       发表于 2024-8-7 14:09
+
+所以比起狗我更喜欢邦23<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（1画风有点没法接受还没补）
+
+*****
+
+####  御幸一也  
+##### 21842#       发表于 2024-8-7 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822887&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-8-7 14:00</a>
+
+不同人能接受的音乐肯定不一样，现在流行音乐里就有很多人无法接受的。诗抄绊这种歌曲夹着念诗的，单拿出来 ...</blockquote>
+這種音樂形式倒沒什麼不好接受的 世界には愛しかない.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不過把元素花園和索尼的曲庫比還是有點太殘忍了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

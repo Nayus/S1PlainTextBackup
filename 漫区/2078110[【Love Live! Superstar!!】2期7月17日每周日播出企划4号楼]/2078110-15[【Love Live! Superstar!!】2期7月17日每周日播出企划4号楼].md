@@ -1499,3 +1499,38 @@ btw，平山采访说日升会给制作人三 ...</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  cat1230  
+##### 20861#       发表于 2024-8-6 19:47
+
+鲤鱼上次投票翻唱的爱李大石节目取消了吧，可惜啊，好想听翻唱神曲<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 20862#       发表于 2024-8-6 22:01
+
+每次参加这个节目的活动就出状况取消…………好事多磨啊……期待的合唱和翻唱都没了😔……希望还能有合作的机会………………
+
+*****
+
+####  csolfans  
+##### 20863#       发表于 2024-8-7 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65812744&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-6 13:11</a>
+怪不得异次元BD宣传咋就大马路有单独给角色们画，原来就是BD封底的差分
+
+btw，平山采访说日升会给制作人三 ...</blockquote>
+之前圣地相关道歉文是他写的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  优妮可  
+##### 20864#       发表于 2024-8-7 14:04
+
+异次元这个分团直拍有点意思
+

@@ -5035,3 +5035,27 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  quanlix  
+##### 13770#       发表于 2024-8-7 14:09
+
+<img src="https://img.saraba1st.com/forum/202408/07/140736r3ozgy0ti6gyg7s2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240807140711.png</strong> (176.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 14:07 上传
+
+<img src="https://img.saraba1st.com/forum/202408/07/140737zdr2nebtcazn4v84.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240807140718.jpg</strong> (74.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 14:07 上传
+
+这是打算要提高宝具等级上限了吧
+

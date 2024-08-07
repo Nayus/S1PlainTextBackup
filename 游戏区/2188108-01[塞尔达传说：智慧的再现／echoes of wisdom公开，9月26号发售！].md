@@ -4204,3 +4204,11 @@ Grezzo则是复刻织梦岛，做智慧再现
 —— 来自 S1Fun</blockquote>
 这种不比盲目收购强多了，NLG合作了20多年因为创始人退休不得不收购了，Grezzo这也合作14年负责了三款塞尔达重制，一款塞尔达移植，两款新2D塞制作。好用的很<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清浦刹那  
+##### 425#       发表于 2024-8-7 14:06
+
+会有amiibo吗？
+

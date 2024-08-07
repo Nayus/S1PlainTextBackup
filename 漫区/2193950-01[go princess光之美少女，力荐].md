@@ -502,3 +502,24 @@
 除了系构田中仁，公主全篇脚本均为女性，这也是田中仁明确要求的。
 公主这个故事虽然是王侯将相+主bg，但其实在女性主义这方面走得很远，甚至有些探讨明明也没有多深刻，但在后面的作品就完全消失不见了，拥抱有一些吧，但也淹没在嘈杂和私货里了。
 
+
+*****
+
+####  月夜凝雪  
+##### 55#       发表于 2024-8-7 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818914&amp;ptid=2193950" target="_blank">pokemon最爱 发表于 2024-8-7 00:08</a>
+主要虽然失忆了但是彼方的性格其实没太大变化，所以算不上疯言疯语吧毕竟在当时失忆的彼方看来春春是快被 ...</blockquote>
+多数还是友情，公主和牛郎爱差不多都是自力为主
+
+—— 来自 Xiaomi 23049RAD8C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  klushyo  
+##### 56#       发表于 2024-8-7 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65818914&amp;ptid=2193950" target="_blank">pokemon最爱 发表于 2024-8-7 00:08</a>
+主要虽然失忆了但是彼方的性格其实没太大变化，所以算不上疯言疯语吧毕竟在当时失忆的彼方看来春春是快被 ...</blockquote>
+还有那首《公主的条件》！
+

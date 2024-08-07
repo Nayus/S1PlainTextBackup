@@ -4072,3 +4072,13 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么外星科技容量差不多的情况下，地图大四倍，还有里世界
 
+
+*****
+
+####  星花  
+##### 412#       发表于 2024-8-7 09:30
+
+<blockquote>佛罗伦萨 发表于 2024-8-7 08:47
+什么外星科技容量差不多的情况下，地图大四倍，还有里世界</blockquote>
+前作是外包的，正常。
+

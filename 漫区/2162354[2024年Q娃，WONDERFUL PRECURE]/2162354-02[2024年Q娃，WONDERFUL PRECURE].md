@@ -935,3 +935,11 @@ syl，今年猫组比犬组出彩太多了，犬组两位都是标签式的角�
 doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那么阿光原本提议是叫あかり跟柳川明p同名 但最后选择是叫ひかる
 太上皇成老害的开始飘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 1993#       发表于 2024-8-7 09:26
+
+强化小怪不会也是抱抱吧……
+

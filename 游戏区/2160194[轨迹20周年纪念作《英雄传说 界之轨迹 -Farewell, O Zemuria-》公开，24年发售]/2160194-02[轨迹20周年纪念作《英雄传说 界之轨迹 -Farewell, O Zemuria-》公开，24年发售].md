@@ -3972,3 +3972,13 @@ b站又开始推了，这货多久能落地啊
 
 惨，不过估计也有葱头那边有大少的原因
 
+
+*****
+
+####  ravend233  
+##### 2522#       发表于 2024-8-7 20:33
+
+nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">早点写完集体入土算了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

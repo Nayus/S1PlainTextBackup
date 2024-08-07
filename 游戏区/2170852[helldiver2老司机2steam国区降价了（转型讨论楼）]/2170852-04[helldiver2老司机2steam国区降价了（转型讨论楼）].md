@@ -1193,3 +1193,13 @@ n9打着倒是和以前差不多，n10还没解锁
 
 还看不清箭头吗，喷火器一管杀三四头牛比杀了他们妈都难受
 
+
+*****
+
+####  IWS2000  
+##### 5205#       发表于 2024-8-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823251&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-7 14:36</a>
+说起来没有人提公告说要削突击兵吗？ 说40摧毁力并非有意为之</blockquote>
+听说是套了肥猫的机制，关了制导就不能背面打构筑了，削了有连累到肥猫的可能
+

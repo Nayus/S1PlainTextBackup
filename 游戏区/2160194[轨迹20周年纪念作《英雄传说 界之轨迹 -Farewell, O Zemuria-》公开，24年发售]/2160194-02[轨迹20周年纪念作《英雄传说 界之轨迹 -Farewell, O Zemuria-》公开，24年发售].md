@@ -3692,3 +3692,22 @@ b站又开始推了，这货多久能落地啊
 
 我先下注，首周不如黎2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2492#       发表于 2024-8-7 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没信心啊，只能说有极低的可能
+
+首周比黎2低不奇怪，毕竟前作口碑DEBUFF+无宣发+卖相差，再加上PS平台在日本本土疲软，就看低到什么程度
+
+要比黎2高就幽默了，说明黎老师真的有用，以后可以继续做闪678910了
+
+*****
+
+####  Kojimaru  
+##### 2493#       发表于 2024-8-7 11:01
+
+双平台不怕的，真滑铁卢得等成ps5独占<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

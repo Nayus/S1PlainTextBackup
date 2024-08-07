@@ -12362,3 +12362,29 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那可能我情緒沒被帶動吧。看得我尬到不行。
 
+
+*****
+
+####  PDQ4  
+##### 21836#       发表于 2024-8-7 13:38
+
+觉得尬是正常的吧，教室大喊诗朗诵还有后面即兴诗超绊我都觉得尬，爱音都被尬跑了
+
+但是就算如此，逻辑仍然是自洽的
+
+而且带动了相当多人的情绪，可以说非常厉害<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  玖羽  
+##### 21837#       发表于 2024-8-7 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820401&amp;ptid=2159415" target="_blank">紫吹兰 发表于 2024-8-7 09:36</a>
+
+MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最重要的环节，第三话的春日影是矛盾开始，第七 ...</blockquote>
+我现在觉得拖上台音趴真的就是乐队番矛盾最优解（当然音趴本身的制作得撑得起来）
+
+可以这么说，哪怕MyGO别的都不变，仅仅把第10话改成台上诗超绊，Soyo在台下哭得稀哩哗啦，唱完在后台和解，它都绝对不会有这样的观感
+
+打架片就用打架解决问题，决斗片就用决斗解决问题，打牌片就用打牌解决问题，那么乐队片不用Live反倒想靠话疗解决问题不是很奇怪吗
+

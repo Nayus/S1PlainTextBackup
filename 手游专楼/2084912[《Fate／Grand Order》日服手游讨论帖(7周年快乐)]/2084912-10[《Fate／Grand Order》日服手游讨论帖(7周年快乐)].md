@@ -5479,3 +5479,11 @@ NP率比本体好，应该可以冲浪的
 
 修了Bug能上10好感了，开场叠brave chain能直接上7。带上泥黑杯伤害也能合格，厨力玩法一本满足了。
 
+
+*****
+
+####  保罗赫伯特  
+##### 13813#       发表于 2024-8-7 20:10
+
+御主技能也能加了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

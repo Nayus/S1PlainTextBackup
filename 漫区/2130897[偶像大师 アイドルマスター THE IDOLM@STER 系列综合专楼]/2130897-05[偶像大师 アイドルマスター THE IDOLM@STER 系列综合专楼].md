@@ -24,3 +24,25 @@ KX59QSVH2(H58CSSP{2MX$H.jpg
 
 <img src="https://img.saraba1st.com/forum/202408/07/165714ve1rd0e06e3pzjrn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6008#       发表于 2024-8-7 20:08
+
+ 本帖最后由 wfhtony 于 2024-8-7 20:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/07/200809kjeuw9deeblevebu.png" referrerpolicy="no-referrer">
+
+<strong>お届けした商品の特典についてのご案内_-_Mozilla_Thunderbird_2024-08-07_20-06-05.png</strong> (99.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 20:08 上传
+
+万南啊，万南...
+
+不过还好，特装版的新录影像不是给的Asobistage的兑换码（
+
+顺利的话，这张到时候和学马仕两张季节系列CD一起送出去。
+

@@ -209,3 +209,14 @@ Blu-ray Mighty Edition＆特装限定版
 
 gustav C104居然要出卡嘉丽和阿斯兰的结婚初夜本 本子封面完全没看出来是卡嘉丽
 
+
+*****
+
+####  线程召唤使  
+##### 1883#       发表于 2024-8-7 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65673868&amp;ptid=2178694" target="_blank">liekong 发表于 2024-7-23 14:16</a>
+
+经常有人问，“福田先生，只要您说了，就是官方设定的吗”。 怎么说呢，因为我是导演，说的话就是正确的 ...</blockquote>
+说一句狼比鸡强没想到会把FT给吓成这样，233。
+

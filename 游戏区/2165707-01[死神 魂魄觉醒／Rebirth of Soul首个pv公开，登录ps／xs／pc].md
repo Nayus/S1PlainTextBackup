@@ -71,3 +71,15 @@ https://x.com/SylverZ05/status/1818015557331141063
 那是粉絲創作的概念圖</blockquote>
    原来如此，改了。
 
+
+*****
+
+####  usodakedo  
+##### 53#       发表于 2024-8-7 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65824650&amp;ptid=2165707" target="_blank">woaimiyabi 发表于 2024-8-7 16:45</a>
+八月八发售的 转生史莱姆这个游戏像是翻版灵魂嘉年华</blockquote>
+OK，感谢推荐，不过对史莱姆这个ip不太感兴趣，到时候有闲钱可以观望一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

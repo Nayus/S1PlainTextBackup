@@ -4048,3 +4048,19 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 
 就像是野炊王泪，四种能力使用率也不大一样
 
+
+*****
+
+####  天堂大法  
+##### 410#       发表于 2024-8-7 08:08
+
+<img src="https://img.saraba1st.com/forum/202408/07/080724icva25azvciiii67.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9824.jpeg</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 08:07 上传
+
+老外已经把已知地点给标注出来了，另外还有人推算出了地图比织梦岛大四倍。
+

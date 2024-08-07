@@ -134,3 +134,16 @@ steam上的应该是无h的？会有补丁嘛
 
 怎么能这么搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  760194962  
+##### 97#       发表于 2024-8-8 05:54
+
+<blockquote>bad_alloc 发表于 2024-8-8 00:06
+奇怪，为啥序章士郎跟远坂在走廊上见面的时候没语音啊，打开民间版看了下是有的
+
+---
+</blockquote>
+Ps2版似乎就是这样
+

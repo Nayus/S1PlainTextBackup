@@ -5487,3 +5487,21 @@ NP率比本体好，应该可以冲浪的
 
 御主技能也能加了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 13814#       发表于 2024-8-7 21:11
+
+所长最后战才更新系统，估计有第三部了。
+
+*****
+
+####  alucardcz  
+##### 13815#       发表于 2024-8-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65826491&amp;ptid=2084912" target="_blank">yyzcacxg 发表于 2024-8-7 19:50</a>
+
+修了Bug能上10好感了，开场叠brave chain能直接上7。带上泥黑杯伤害也能合格，厨力玩法一本满足了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几宝啊 2宝带黑杯能单c吗
+

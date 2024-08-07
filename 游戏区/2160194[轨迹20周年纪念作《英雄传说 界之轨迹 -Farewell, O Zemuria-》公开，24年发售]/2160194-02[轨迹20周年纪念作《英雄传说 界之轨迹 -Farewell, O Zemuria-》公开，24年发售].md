@@ -4002,3 +4002,36 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 1500+人样本量不算小了，说不定还真的能靠黎恩把销量给你奶回来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 2525#       发表于 2024-8-7 21:07
+
+事实证明还是老角色香，van様你谁啊？不认识的大叔呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2526#       发表于 2024-8-7 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是这部真顶着一堆DEBUFF把销量救回来了那只能说你轨以后就继续出里爷主角的游戏就行了
+
+闹麻了的全都成小丑了
+
+*****
+
+####  Aeons  
+##### 2527#       发表于 2024-8-7 21:11
+
+差不多就这个比例吧，考虑推主的粉丝结构，可能偏高一点点。
+而且面具人确实没意思。
+
+
+*****
+
+####  一步成诗  
+##### 2528#       发表于 2024-8-7 21:13
+
+没关系的，管你什么角色大家都找一遍表就老实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

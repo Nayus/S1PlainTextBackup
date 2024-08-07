@@ -12737,3 +12737,19 @@ laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，�
 2018年1月14日， ガルパライブ＆ガルパーティ！in东京LIVE中官方宣布将会由LIVE中的Back Band成员组成一支新的乐队组合，并在同年3月25日以「THE THIRD(仮)」的名义举办第一次单独LIVE。由歌手Raychell、鼓手夏芽、声优仓知玲凤以及Poppin'Party的大冢纱英作为临时成员组成。之后的第一次LIVE中，大冢纱英含泪告退，声优小原莉子作为新吉他手上位。</blockquote>
 临时团比ras早啊？
 
+
+*****
+
+####  紫吹兰  
+##### 21870#         楼主| 发表于 2024-8-8 05:19
+
+<img src="https://img.saraba1st.com/forum/202408/08/051823z4gg6g6ogowc6aom.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-08-05-18-02-264_tv.danmaku.bili.jpg</strong> (295.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 05:18 上传
+
+8月8日下午至22日晚上，少歌剧场版限时盗播
+

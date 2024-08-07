@@ -5558,3 +5558,32 @@ FGO的故事结束，之后谁也不知道的感觉。
 
 和奈须蘑菇一起推进的最后一章的新机制是集大成之作。
 
+
+*****
+
+####  alucardcz  
+##### 13818#       发表于 2024-8-7 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827225&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-7 21:19</a>
+
+Fami通FGO九周年访谈情报：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不开被动5的不准进本！ 这样吗
+
+*****
+
+####  alucardcz  
+##### 13819#       发表于 2024-8-7 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827217&amp;ptid=2084912" target="_blank">johnkamsar 发表于 2024-8-7 21:18</a>
+
+我是感觉不大行，我2宝打caster修炼场都不大行，回收太糟糕了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我2宝是不是又白抽了 
+
+
+*****
+
+####  希望之花  
+##### 13820#       发表于 2024-8-7 21:31
+
+十周年实装画廊功能！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

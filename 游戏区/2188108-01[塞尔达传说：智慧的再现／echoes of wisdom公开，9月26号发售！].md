@@ -4182,3 +4182,13 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  渺小小  
+##### 423#       发表于 2024-8-7 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来到现在也没见地狱提过有限定和首发特典之类的消息···········
+
+天剑好歹还有铁盒版呢，那个NSL限定机实在下不去手啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

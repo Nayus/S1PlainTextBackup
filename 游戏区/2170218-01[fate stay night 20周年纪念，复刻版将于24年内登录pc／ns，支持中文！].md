@@ -87,3 +87,17 @@ steam上的应该是无h的？会有补丁嘛
 
 草，看了下设置是因为默认把士郎静音了，怪
 
+
+*****
+
+####  社友者  
+##### 94#       发表于 2024-8-8 03:24
+
+牛逼了，英文版还自带roguelike模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/ab3a7456d630cb948726b577c2d89c0c/msedge_diL1PDUfNx.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/65428a403c92deea7c4d22784a811dda/msedge_kBQibK2XN2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5afc352d2b1463ba725d6a2f211ba2fc/msedge_a3Lzv0r7Dn.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/556d62ae7ed40b7961739fb51634a0b6/msedge_o7nTcKea0F.png" referrerpolicy="no-referrer">
+
+怎么一个复制粘贴还能整出这种bug，技术力有点震撼了
+

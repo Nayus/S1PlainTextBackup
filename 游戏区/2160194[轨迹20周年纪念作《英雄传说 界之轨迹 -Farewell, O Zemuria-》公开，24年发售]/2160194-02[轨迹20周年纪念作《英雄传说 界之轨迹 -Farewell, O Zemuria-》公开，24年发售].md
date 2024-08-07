@@ -4186,3 +4186,18 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 有一说一当初闪12也没把啥角色写明白，但黎恩那些闪轨角色人气闪2结束后也还可以。
 
+
+*****
+
+####  暗之谋者  
+##### 2546#       发表于 2024-8-8 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65828767&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-8 00:32</a>
+
+有一说一当初闪12也没把啥角色写明白，但黎恩那些闪轨角色人气闪2结束后也还可以。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">因为尽管你楼大部分楼友都认为闪是一坨，但是人物塑造这方面闪只有空能比比（当然也不是没拉跨的，艾略特和枪哥不太行），而且闪有一点好，很多角色的塑造不是只单箭头主人公，旧7里二少和副班，菲和劳拉，二少和白兔，新7里大锤和穆拉弟等等吧，都是成对去塑造的，效果就事半功倍……
+
+事务所嘛……除了阿伦和小仓唯稍微有点互动，其他人感觉也就是挺熟而已。
+
+另外，立绘也是人物塑造的一部分……
+

@@ -45,3 +45,16 @@
 
 个性化会有换装吗，喜欢灵魂升温的校服露琪亚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  病態極端  
+##### 51#       发表于 2024-8-7 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65824208&amp;ptid=2165707" target="_blank">bgmilk 发表于 2024-8-7 16:09</a>
+
+选人界面38人人数不少  有月岛和银城  （没有大狗有些奇怪）</blockquote>
+[https://x.com/SylverZ05/status/1818015557331141063](https://x.com/SylverZ05/status/1818015557331141063)
+
+那是粉絲創作的概念圖
+

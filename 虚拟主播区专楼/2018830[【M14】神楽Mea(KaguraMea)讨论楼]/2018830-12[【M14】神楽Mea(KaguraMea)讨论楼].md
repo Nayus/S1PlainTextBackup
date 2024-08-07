@@ -5429,3 +5429,25 @@ crew能哭的地方，只有厕所和你麻的评论区里<img src="https://stat
 
 同接确实涨了不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 17102#       发表于 2024-8-7 16:38
+
+补了下lol录播，3小时左右似乎提到去租了AO(不愧是你.jpg
+
+*****
+
+####  秋游刃  
+##### 17103#       发表于 2024-8-7 21:04
+
+同接确实涨了不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 17104#       发表于 2024-8-8 07:37
+
+twitch同接破千了
+

@@ -4201,3 +4201,26 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 另外，立绘也是人物塑造的一部分……
 
+
+*****
+
+####  Aeons  
+##### 2547#       发表于 2024-8-8 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829272&amp;ptid=2160194" target="_blank">暗之谋者 发表于 2024-8-8 03:26</a>
+因为尽管你楼大部分楼友都认为闪是一坨，但是人物塑造这方面闪只有空能比比（当然也不是没拉跨的，艾略特 ...</blockquote>
+我觉得你说的这方面闪12有，34就差点意思了。
+
+
+*****
+
+####  Aeons  
+##### 2548#       发表于 2024-8-8 03:40
+
+ 本帖最后由 Aeons 于 2024-8-8 03:41 编辑 
+
+这其实是个成对问题，不说好坏，法老控确实包括一般配角npc在内喜欢写成对的角色。
+<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">事务所你说的阿龙菲莉，其实卡特尔和莉婕特也是。好不好不说，但应该很明显吧，黎二开始，双人羁绊和宣传图同框。
+
+至于程度问题，毕竟非同龄人+入事务所有先后，关系的构造就已经迟了，同学的话开始就能定个调子。
+

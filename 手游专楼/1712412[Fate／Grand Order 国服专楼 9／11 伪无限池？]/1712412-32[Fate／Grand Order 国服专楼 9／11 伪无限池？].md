@@ -949,3 +949,13 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 哪个群？我去围观下，发红包么？</blockquote>
 同学群，今天还在得瑟前年200石四宝杀狐的光辉战绩，怕不是觉得今年200石3宝梣算是发挥失常
 
+
+*****
+
+####  johnkamsar  
+##### 46621#       发表于 2024-8-7 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827686&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2024-8-7 22:10</a>
+同学群，今天还在得瑟前年200石四宝杀狐的光辉战绩，怕不是觉得今年200石3宝梣算是发挥失常 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">120石满宝芜的表示
+

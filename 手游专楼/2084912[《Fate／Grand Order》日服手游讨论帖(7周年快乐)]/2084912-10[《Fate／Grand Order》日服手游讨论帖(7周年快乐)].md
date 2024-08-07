@@ -5664,3 +5664,37 @@ Fami通FGO九周年访谈情报：</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但随便打打好感最高也就7
 
+
+*****
+
+####  alucardcz  
+##### 13829#       发表于 2024-8-7 22:29
+
+ 本帖最后由 alucardcz 于 2024-8-7 22:31 编辑 
+
+不对 我看了下录像衣服技能不加好感啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+草 今天的更新没推送<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 13830#       发表于 2024-8-7 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827225&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-7 21:19</a>
+
+Fami通FGO九周年访谈情报：</blockquote>
+要開被動4和5，所長塔都是主線一部份，不打就沒新系統新副本?
+
+
+*****
+
+####  johnkamsar  
+##### 13831#       发表于 2024-8-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827862&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-7 22:29</a>
+不对 我看了下录像衣服技能不加好感啊。。。
+
+草 今天的更新没推送</blockquote>
+更了也没感觉到，给换人服的hp技能时没生效，感觉还是有问题
+

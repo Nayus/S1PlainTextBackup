@@ -3850,3 +3850,27 @@ b站又开始推了，这货多久能落地啊
 
 李鬼吧养蛊的必然结果，建议加速<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2510#       发表于 2024-8-7 15:16
+
+黎1全线事务所，黎2被39分走一半或许没有一半吧但还是变成了二分之一线，界变成三分之一线，你法就是这样赚不到钱就扔呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2511#       发表于 2024-8-7 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以在你法这种在剧本创作上毫无节操的玩意上费精力和感情真不值得
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2512#       发表于 2024-8-7 15:21
+
+骂了就不买是最快乐的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

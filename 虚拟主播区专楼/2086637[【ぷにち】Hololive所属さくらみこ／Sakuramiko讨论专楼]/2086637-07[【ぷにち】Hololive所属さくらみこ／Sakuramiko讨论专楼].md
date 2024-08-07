@@ -6337,3 +6337,34 @@ miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的
 
 另外昨天也有人回忆到前一阵miko单独跑去安慰情绪失落486的那个事件，那个时间点之前其实大家已经知道夸毕业的事了所以miko才会对其他成员的精神状态额外关心
 
+
+*****
+
+####  holoan  
+##### 9425#         楼主| 发表于 2024-8-7 11:07
+
+ 本帖最后由 holoan 于 2024-8-7 11:10 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/07/110645d7060pwwotpcwfc3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (339.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 11:06 上传
+
+*****
+
+####  holoan  
+##### 9426#         楼主| 发表于 2024-8-7 15:25
+
+<img src="https://img.saraba1st.com/forum/202408/07/152443p4nknw5fnnlkf282.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-7 15:24 上传
+
+还是卖光了，这下真的卖光了……
+

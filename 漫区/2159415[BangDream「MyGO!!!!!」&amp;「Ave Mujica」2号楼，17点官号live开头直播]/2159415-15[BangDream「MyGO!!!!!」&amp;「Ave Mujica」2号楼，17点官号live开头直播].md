@@ -12721,3 +12721,19 @@ laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，�
 
 但laytae的关系并不绑定在音乐上，所以layer当然可以说“重生100次也要加入RAS”，但灯祥关系始于乐队终于乐队，再拿laytae的场景来套就非常搞笑了，充满了“重生100次也不会和你组一辈子乐队”的喜剧感<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downforce  
+##### 21869#       发表于 2024-8-8 04:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829142&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-8 02:23</a>
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反 ...</blockquote><blockquote>【History of RAS】从THE THIRD(仮)到RAISE A SUILEN
+[https://www.bilibili.com/video/av44174686/](https://www.bilibili.com/video/av44174686/)
+
+她们的过去可以追溯到武士道10周年。Raychell、鼓手夏芽与大冢纱英一起演奏Are you ready to FIGHT一曲成为RAS的成团契机。
+
+2018年1月14日， ガルパライブ＆ガルパーティ！in东京LIVE中官方宣布将会由LIVE中的Back Band成员组成一支新的乐队组合，并在同年3月25日以「THE THIRD(仮)」的名义举办第一次单独LIVE。由歌手Raychell、鼓手夏芽、声优仓知玲凤以及Poppin'Party的大冢纱英作为临时成员组成。之后的第一次LIVE中，大冢纱英含泪告退，声优小原莉子作为新吉他手上位。</blockquote>
+临时团比ras早啊？
+

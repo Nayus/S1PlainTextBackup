@@ -58,3 +58,11 @@ debuff拉满是这样的。
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  bobosnader  
+##### 635#       发表于 2024-8-8 04:11
+
+现在完全是异世界轻小说风格==最后不会是网游吧
+

@@ -1154,3 +1154,14 @@ n9打着倒是和以前差不多，n10还没解锁
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  山风短  
+##### 5201#       发表于 2024-8-7 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64782558&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-5-1 16:37</a>
+箭头的问题就是菜，但是不知道为什么就是有人非要把箭头妖魔化。
+每次更新一堆bug，有几个很恶心bug的就要 ...</blockquote>
+来，你给我说话来
+

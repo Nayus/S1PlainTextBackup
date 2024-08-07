@@ -953,3 +953,22 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 追加看来是真无了
 
+
+*****
+
+####  犬飼いろは  
+##### 1995#       发表于 2024-8-7 15:46
+
+／
+
+🎉HAPPY BIRTHDAY🎉
+
+＼
+
+今日8月7日はキュアフレンディの誕生日❣
+
+おめでとう🎁
+
+みんなもいっしょにお祝いしてね✨🎁
+<img src="https://p.sda1.dev/18/5837a07282dce37ce5cd99fa82dbd874/GUSnco6awAA2OIJ.jpg" referrerpolicy="no-referrer">
+

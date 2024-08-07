@@ -5252,3 +5252,23 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 其实是欧罗巴哒！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 13791#       发表于 2024-8-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65824477&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-7 16:31</a>
+不如奶奶今天5星骑是谁!  开奶司马懿or大帝！</blockquote>
+司马懿机会很低吧，羽蛇神机会都比她大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13792#       发表于 2024-8-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65824552&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-8-7 16:37</a>
+
+司马懿机会很低吧，羽蛇神机会都比她大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶 都可以奶！
+

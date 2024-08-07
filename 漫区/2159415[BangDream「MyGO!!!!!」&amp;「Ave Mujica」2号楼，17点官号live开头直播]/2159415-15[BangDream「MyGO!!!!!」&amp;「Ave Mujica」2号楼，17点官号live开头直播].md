@@ -12205,3 +12205,58 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 喵梦的年龄有具体设定吗？
 
+
+*****
+
+####  PDQ4  
+##### 21827#       发表于 2024-8-7 12:50
+
+就我个人来讲，第十集在我这里最大的违和点是感受不到“live和音乐”的必要性
+
+虽然理性上知道会开个live来解决问题，但是摆在脸上的时候还是尬住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+如果说个体设定上的逻辑漏洞，可以用“二次元”来解释
+
+动画里狗团为什么一定要执着于live和乐队，我说服自己的理由是“因为这是邦邦动画”
+
+作为核心描写角色的灯、爽世、爱音，找不到一个执着于乐队和live的内因，或许是因为可能执着于音乐/乐队的立希和猫没有太多着墨导致
+
+给我的感受不是“把live和剧情矛盾结合起来”，而是“如果把矛盾单独提取出来，就没有理由开live了”
+
+事实上狗的矛盾很多也抛离开live在爆发，8、9都是这样
+
+只能说邦邦魔法伟大
+
+也确实没有更好的解决方法，制作组已经很努力了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 21828#       发表于 2024-8-7 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822181&amp;ptid=2159415" target="_blank">Lawliet.L 发表于 2024-8-7 12:35</a>
+
+喵梦的年龄有具体设定吗？</blockquote>
+没有，初中——成年人均有可能
+
+但是不是大学生往上，个人会觉得很遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一壹  
+##### 21829#       发表于 2024-8-7 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822148&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-7 12:31</a>
+
+没有说服力，小剧场那些话对偶像适用，对UP主更适用，完全可以解释成她干得再好也不过是无数美妆系UP主中 ...</blockquote>
+这个假药真不错<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">正好把非幼驯染的节奏两人组目标统一了
+
+海铃是表明想要能归属的乐队的，但她只对立希委婉表达过，又是现在唯一没写祥子拉入伙过场的，沟通的时候有没有对祥子表达过这个想法也是个假药点
+
+*****
+
+####  skives  
+##### 21830#       发表于 2024-8-7 12:53
+
+喵梦高中毕业来东京追逐梦想也挺合理吧
+

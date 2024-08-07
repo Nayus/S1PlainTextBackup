@@ -1297,3 +1297,16 @@ n9打着倒是和以前差不多，n10还没解锁
 
 几张雨林图钻石点少的就你吗离谱，n10更少了，我一般不吃补给，这雨林实在没办法
 
+
+*****
+
+####  6x6z6w  
+##### 5216#       发表于 2024-8-8 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65828782&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-8 00:35</a>
+
+这还第一次知道</blockquote>
+[https://www.youtube.com/watch?v=Er825ziuKuY](https://www.youtube.com/watch?v=Er825ziuKuY)
+
+这里有教程，学习一下
+

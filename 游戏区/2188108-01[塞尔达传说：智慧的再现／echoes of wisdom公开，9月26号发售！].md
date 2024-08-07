@@ -4192,3 +4192,15 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 天剑好歹还有铁盒版呢，那个NSL限定机实在下不去手啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂大法  
+##### 424#       发表于 2024-8-7 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822565&amp;ptid=2188108" target="_blank">jtwing 发表于 2024-8-7 13:19</a>
+任：我们不收购公司，我们只是找外包打工
+
+—— 来自 S1Fun</blockquote>
+这种不比盲目收购强多了，NLG合作了20多年因为创始人退休不得不收购了，Grezzo这也合作14年负责了三款塞尔达重制，一款塞尔达移植，两款新2D塞制作。好用的很<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

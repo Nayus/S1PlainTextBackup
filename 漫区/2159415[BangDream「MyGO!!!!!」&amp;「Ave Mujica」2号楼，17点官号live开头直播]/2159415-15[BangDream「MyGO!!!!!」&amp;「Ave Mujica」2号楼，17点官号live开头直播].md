@@ -12388,3 +12388,33 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 打架片就用打架解决问题，决斗片就用决斗解决问题，打牌片就用打牌解决问题，那么乐队片不用Live反倒想靠话疗解决问题不是很奇怪吗
 
+
+*****
+
+####  傘木希美  
+##### 21838#       发表于 2024-8-7 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65821757&amp;ptid=2159415" target="_blank">downforce 发表于 2024-8-7 11:52</a>
+买了可口可乐的奥运定制礼包，不知道这定制标语能审核过不。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这个哪儿整啊，也想弄个试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  akiomn  
+##### 21839#       发表于 2024-8-7 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不同人能接受的音乐肯定不一样，现在流行音乐里就有很多人无法接受的。诗抄绊这种歌曲夹着念诗的，单拿出来放给路人听，绝大多数都不会接受。所以最好安利给路人的还是迷星叫，樱色舞这种不含念诗的歌
+至于喵梦，等个soyo哭2.0好吧，从开始的只想赚米到打鼓真tm开心啊
+
+*****
+
+####  PDQ4  
+##### 21840#       发表于 2024-8-7 14:05
+
+所以说还是有点遗憾的，看哪里都有说狗是那种不玩乐队，干别的事一样都可以的团
+
+作为邦邦剧本上有大突破的新作，羁绊＆音乐被分开了，这两点没能很好的融合在一起，乐队更多的成为了世界观层次上的表现<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

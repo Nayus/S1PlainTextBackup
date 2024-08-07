@@ -5067,3 +5067,21 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 
 十周年十大福利之开放十宝上限
 
+
+*****
+
+####  サイトヒメア  
+##### 13772#       发表于 2024-8-7 14:28
+
+我枪龙娘存了15宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接开15宝吧
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  cckuku  
+##### 13773#       发表于 2024-8-7 14:33
+
+那我以前卖掉的四星能还我吗？保守估计得有个10宝飞哥和10宝卫宫了
+

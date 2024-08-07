@@ -12492,3 +12492,47 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 说不定猫剧场版会打一下补丁呢
 
+
+*****
+
+####  NODY  
+##### 21847#       发表于 2024-8-7 14:35
+
+ 本帖最后由 NODY 于 2024-8-7 14:37 编辑 
+
+看手游现在几个团的主线，就算是非出道乐队，也都得塞个音乐相关的主线（ppp大音乐节、蝶月之森音乐祭、ag打比赛），所以动画为了重点渲染情感导致弱化乐队重要性搞出个好像真的只需要大家一起喝茶也行的乐队，估计手游那边也挺难办的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+硬要说的话hhw倒是和mygo一样属于“不玩乐队也行只是碰巧选了乐队”，但偏偏官方给了个“当初kkr不找花音组乐队的话很多事情都不会变好，连游乐园都解散”的if世界线，直接给你盖章hhw玩乐队就是最优解了
+
+*****
+
+####  PDQ4  
+##### 21848#       发表于 2024-8-7 14:36
+
+ 本帖最后由 PDQ4 于 2024-8-7 14:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823110&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-7 14:23</a>
+
+就算是戏份分配有极大偏差的蝶团，瑠唯这个作曲兼管事人的戏份也是仅次于真白的，所以动画组极端弱化乐队要 ...</blockquote>
+这个问题只要灯希发起进攻就可以好起来吧，作词和作曲的剧情只要不再去给立希打标签，必然会对乐队前路做出推动
+
+或者从猫那边下手，老板娘来指点
+
+想要推动进展还是挺好推的，不过要怎么和一直迷路结合起来可能需要考研编剧笔力，把握不好度就是开倒车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过你邦倒车也不罕见就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  downforce  
+##### 21849#       发表于 2024-8-7 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822863&amp;ptid=2159415" target="_blank">傘木希美 发表于 2024-8-7 13:56</a>
+这个哪儿整啊，也想弄个试试
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+微信小程序
+
+#小程序://可口可乐商店/4AL1nzPVDuKHZVv
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

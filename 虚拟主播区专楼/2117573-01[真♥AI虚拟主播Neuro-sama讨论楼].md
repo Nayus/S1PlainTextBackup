@@ -1442,3 +1442,16 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 
 讲真，这才是真正的virtual UTuber.俺今天才知道有Vedal这种堂吉诃德，已经被neuro迷住了。
 
+
+*****
+
+####  病態極端  
+##### 139#       发表于 2024-8-7 14:26
+
+<img src="https://p.sda1.dev/18/46ced232789aa0c570ba60dcf985474a/neuro3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/f8bd683dbf1e1eb806d0dfb6e5a83e89/neuro2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/838d13a4908884c07b38b80b8bce065a/neuro4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/877fc5f9ee097fdc490f002b6950e6f0/neuro5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c5fa6395537df4a948b8bee53e632f5e/neuro0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/e8fb6c5e1ff8aef270ddfe060bd392db/neuro1.jpg" referrerpolicy="no-referrer">
+

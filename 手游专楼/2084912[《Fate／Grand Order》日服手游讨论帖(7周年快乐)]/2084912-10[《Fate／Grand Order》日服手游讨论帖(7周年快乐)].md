@@ -5622,3 +5622,11 @@ Fami通FGO九周年访谈情报：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">录了个视频 2宝黑杯打白字 232的本
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第3面伤害有点低。。。但可以连2个c呆宝具
 
+
+*****
+
+####  yyzcacxg  
+##### 13824#       发表于 2024-8-7 22:13
+
+我是带个水边场地副手打双核，上三带雨神下三带魔箱双子打二面
+

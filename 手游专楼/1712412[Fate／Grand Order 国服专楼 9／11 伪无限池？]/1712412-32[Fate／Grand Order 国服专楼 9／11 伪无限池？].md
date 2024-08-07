@@ -938,3 +938,14 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 群里欧皇立flag要抽三宝了，我石头数量是他三倍但只敢一宝收藏，搞不好我抽一宝会比他三宝用得还多 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">哪个群？我去围观下，发红包么？
 
+
+*****
+
+####  苍蓝之枪  
+##### 46620#       发表于 2024-8-7 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65827224&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2024-8-7 21:19</a>
+
+哪个群？我去围观下，发红包么？</blockquote>
+同学群，今天还在得瑟前年200石四宝杀狐的光辉战绩，怕不是觉得今年200石3宝梣算是发挥失常
+

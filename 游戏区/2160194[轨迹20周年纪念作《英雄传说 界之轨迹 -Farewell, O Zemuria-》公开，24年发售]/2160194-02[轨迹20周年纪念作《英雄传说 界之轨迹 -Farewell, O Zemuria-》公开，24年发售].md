@@ -4125,3 +4125,19 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 我觉得最搞笑的观点就是如今洋洋得意“还好剑女在1就填完坑了”，所以这个填坑就是到最后都不理解男主一边顾影自怜一边放任对方？剑女最好的剧情难道不是夜晚对酌最后实在忍不住质问男主？如果这个人设的最后定格还是黎1把界限划开一厢情愿那真的活该败犬，不过无妨，毕竟很多粉丝爱她就是因为她败犬，也根本不希望她把质问对方的勇气再进一步。
 
+
+*****
+
+####  keiyoku  
+##### 2540#       发表于 2024-8-7 22:10
+
+看界宣发学妹台词啥的都一股败犬味，界结束别回头你剑女士败犬人设也没咯<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+是要剧情没剧情，要塑造没塑造，明明不是事务所成员却非得跟事务所行动的工具人一枚呀<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  memo2  
+##### 2541#       发表于 2024-8-7 22:11
+
+看贴吧结晶打架没笑，看投票差点笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

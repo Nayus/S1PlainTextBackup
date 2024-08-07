@@ -523,3 +523,14 @@
 主要虽然失忆了但是彼方的性格其实没太大变化，所以算不上疯言疯语吧毕竟在当时失忆的彼方看来春春是快被 ...</blockquote>
 还有那首《公主的条件》！
 
+
+*****
+
+####  pokemon最爱  
+##### 57#       发表于 2024-8-7 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65819884&amp;ptid=2193950" target="_blank">klushyo 发表于 2024-8-7 08:27</a>
+
+还有那首《公主的条件》！</blockquote>
+只能说高木洋NB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茶几到魔法三作的3首4位Q娃合唱曲（茶几的勇气诞生的场所，公主的公主的条件，魔法的闪亮之誓）都又燃又好听。
+

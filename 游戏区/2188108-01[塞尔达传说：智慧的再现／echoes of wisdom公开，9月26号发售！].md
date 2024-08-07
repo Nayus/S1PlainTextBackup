@@ -4133,3 +4133,13 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 我看Grezzo官推都不转发这次新作，确实是他们开发？
 
+
+*****
+
+####  天堂大法  
+##### 418#       发表于 2024-8-7 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820930&amp;ptid=2188108" target="_blank">Zeno_5 发表于 2024-8-7 10:32</a>
+我看Grezzo官推都不转发这次新作，确实是他们开发？</blockquote>
+百分百是Grezzo，EPD3出设计、监督之类的，Grezzo当苦力。
+

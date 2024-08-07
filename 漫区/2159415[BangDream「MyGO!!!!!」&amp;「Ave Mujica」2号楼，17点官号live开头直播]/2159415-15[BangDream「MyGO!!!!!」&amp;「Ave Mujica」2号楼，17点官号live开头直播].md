@@ -12688,3 +12688,15 @@ mygo总体音乐性不足还是因为太过弱化立希作曲的作用了，或�
 借楼询问一下，最近看了邦邦2film live，感觉这场的混音有点奇怪，好像更像是live现场一些？不知道有没有懂 ...</blockquote>
 fl2真人团就是live音源
 
+
+*****
+
+####  前方暴雨预警  
+##### 21866#       发表于 2024-8-8 00:57
+
+看到有人用laytae代灯祥，于是去看了著名的“重生100次”宣言，但这个代进去的话不就成了
+
+（哪怕重来一百次，我也希望这一百次都能和灯相遇，然后……一百次都要解散crychic建立ave mujica）
+
+本来很深情的宣言突然变搞笑了是怎么回事了啊<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+

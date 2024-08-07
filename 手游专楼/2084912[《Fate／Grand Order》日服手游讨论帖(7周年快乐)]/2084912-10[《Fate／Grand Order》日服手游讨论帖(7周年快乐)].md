@@ -5272,3 +5272,33 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 司马懿机会很低吧，羽蛇神机会都比她大</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶 都可以奶！
 
+
+*****
+
+####  TheLoof  
+##### 13793#       发表于 2024-8-7 17:01
+
+泳装尼托这谁想得到啊！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 13794#       发表于 2024-8-7 17:02
+
+卧槽，我的梅杰德居然捞到强化了？
+
+*****
+
+####  alucardcz  
+##### 13795#       发表于 2024-8-7 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么能真是大帝呢 没意思
+
+*****
+
+####  GuDaZi  
+##### 13796#       发表于 2024-8-7 17:05
+
+水尼托致死是不是后置了，应该勉强救回来点了吧
+

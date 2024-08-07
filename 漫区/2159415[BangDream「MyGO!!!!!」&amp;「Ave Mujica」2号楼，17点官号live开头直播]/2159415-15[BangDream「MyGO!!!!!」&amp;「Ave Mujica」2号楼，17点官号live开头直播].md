@@ -12708,3 +12708,16 @@ fl2真人团就是live音源
 
 laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反
 
+
+*****
+
+####  前方暴雨预警  
+##### 21868#       发表于 2024-8-8 03:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829142&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-8 02:23</a>
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反 ...</blockquote>
+谁知道呢<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">，大概是想证明即是不在同一个乐队，依然可以是最理解彼此、给对方力量的两人？
+
+但laytae的关系并不绑定在音乐上，所以layer当然可以说“重生100次也要加入RAS”，但灯祥关系始于乐队终于乐队，再拿laytae的场景来套就非常搞笑了，充满了“重生100次也不会和你组一辈子乐队”的喜剧感<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

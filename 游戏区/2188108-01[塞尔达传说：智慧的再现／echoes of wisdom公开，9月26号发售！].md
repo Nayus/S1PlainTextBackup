@@ -4082,3 +4082,23 @@ pv一开始有一个地图全貌，大致能看到展示的地方在地图右下
 什么外星科技容量差不多的情况下，地图大四倍，还有里世界</blockquote>
 前作是外包的，正常。
 
+
+*****
+
+####  天堂大法  
+##### 413#       发表于 2024-8-7 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65820347&amp;ptid=2188108" target="_blank">星花 发表于 2024-8-7 09:30</a>
+前作是外包的，正常。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作也是啊，也是Grezzo负责制作，任天堂出点人监督
+
+
+*****
+
+####  星花  
+##### 414#       发表于 2024-8-7 09:55
+
+<blockquote>天堂大法 发表于 2024-8-7 09:46
+这作也是啊，也是Grezzo负责制作，任天堂出点人监督</blockquote>
+那还真，奇迹了。
+

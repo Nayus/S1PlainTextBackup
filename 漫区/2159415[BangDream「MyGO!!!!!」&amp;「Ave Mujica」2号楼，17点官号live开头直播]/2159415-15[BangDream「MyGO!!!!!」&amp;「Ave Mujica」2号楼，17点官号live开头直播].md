@@ -12536,3 +12536,25 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 —— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  傘木希美  
+##### 21850#       发表于 2024-8-7 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65823271&amp;ptid=2159415" target="_blank">downforce 发表于 2024-8-7 14:37</a>
+微信小程序
+
+#小程序://可口可乐商店/4AL1nzPVDuKHZVv</blockquote>
+多谢，我去试试
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  光MIKAN  
+##### 21851#       发表于 2024-8-7 14:45
+
+猫剧情表现上来说设定她觉得有趣的是立希也完全没问题，流浪猫时期蹭吃蹭喝找立希，回学校有同校buff，组成乐队后行为上也粘立希，对灯感觉是有点单薄
+

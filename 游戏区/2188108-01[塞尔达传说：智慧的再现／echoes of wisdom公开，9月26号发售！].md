@@ -4212,3 +4212,32 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 会有amiibo吗？
 
+
+*****
+
+####  liekong  
+##### 426#       发表于 2024-8-7 14:37
+
+ 本帖最后由 liekong 于 2024-8-7 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65822933&amp;ptid=2188108" target="_blank">天堂大法 发表于 2024-8-7 14:05</a>
+
+这种不比盲目收购强多了，NLG合作了20多年因为创始人退休不得不收购了，Grezzo这也合作14年负责了三款塞 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">老任：我要狠狠注入DNA，让你变成我的形状！
+
+*****
+
+####  ace8848  
+##### 427#       发表于 2024-8-7 14:39
+
+现在也没几家大厂做游戏不用外包的，只不过含量多少而已
+
+
+*****
+
+####  clyde-wang  
+##### 428#       发表于 2024-8-7 14:43
+
+外包用得好比收购划算很多，微软索尼收购的工作室效果真的不算太好
+
+—— 来自 samsung SM-S9280, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

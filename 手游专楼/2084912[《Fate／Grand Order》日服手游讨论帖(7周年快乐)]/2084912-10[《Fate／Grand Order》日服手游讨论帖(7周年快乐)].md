@@ -5630,3 +5630,37 @@ Fami通FGO九周年访谈情报：</blockquote>
 
 我是带个水边场地副手打双核，上三带雨神下三带魔箱双子打二面
 
+
+*****
+
+####  alucardcz  
+##### 13825#       发表于 2024-8-7 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下 第3轮 oc2个lv1c呆宝具 好感7  白字也就40万
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便打狂试了下 np也够 可以3连冲
+
+*****
+
+####  eilot  
+##### 13826#       发表于 2024-8-7 22:23
+
+看了一下，JK女學生、齋藤一都一早寶5情況下，倉庫再各有4隻
+
+之後1星斑楊也是寶5情況下也有5隻，
+
+寶10的話，以前曾經復活的活動角再巡靈，將多出的角色換成6粒綠磚也不是虧了吧...
+
+*****
+
+####  johnkamsar  
+##### 13827#       发表于 2024-8-7 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这边刚才试着打奥伯龙本，发现艾蕾打这本意外好使，直接3t速刷了，果然ml程度够高就无敌
+
+*****
+
+####  alucardcz  
+##### 13828#       发表于 2024-8-7 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但随便打打好感最高也就7
+

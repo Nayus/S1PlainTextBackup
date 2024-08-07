@@ -992,3 +992,17 @@ n9打着倒是和以前差不多，n10还没解锁
 
 箭头想的怕不是你怎么能用主手处理虫海，你怎么不用三号位的机枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jy000129  
+##### 5186#       发表于 2024-8-7 11:52
+
+ 本帖最后由 jy000129 于 2024-8-7 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65821613&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-7 11:36</a>
+箭头想的怕不是你怎么能用主手处理虫海，你怎么不用三号位的机枪</blockquote>
+嘛个寄，要是机枪好用我会不用？
+拿机枪处理虫海了我缺的重火力哪里来<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

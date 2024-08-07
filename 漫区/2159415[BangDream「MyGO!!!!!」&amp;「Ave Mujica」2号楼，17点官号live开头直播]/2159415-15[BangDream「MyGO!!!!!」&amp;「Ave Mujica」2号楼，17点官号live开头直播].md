@@ -12112,3 +12112,14 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 意思就是制作组确实有想走现实风的意思在导致大部分剧情都在激化矛盾，但又不能真解散所以需要10集这种邦邦世界观音乐拯救一切的降神
 
+
+*****
+
+####  downforce  
+##### 21821#       发表于 2024-8-7 11:52
+
+买了可口可乐的奥运定制礼包，不知道这定制标语能审核过不。
+<img src="https://p.sda1.dev/18/837089b25ab7f6c95d0ef009bc0b431b/CMP_20240807115155199.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -12079,3 +12079,26 @@ MyGO的live不仅仅是高潮的释放，而是推动剧情矛盾冲突本身最
 
 连starff都写上打保护是吧
 
+
+*****
+
+####  Aendst  
+##### 21819#       发表于 2024-8-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65819422&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-8-7 02:21</a>
+
+狗的剧本确实是在邦邦范围内做到了突破吧，但是还是受制于需要寻求“真实感”的框架，把hhw踢出去也是这个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是也可以用“设定如此”“世界观如此”去合理化
+
+比如说明明要追求真实感做出一定程度的沉重，但路人人均天使这一点
+
+构成很有新意也很顺所以初次观看的观感会是有趣的
+
+只是部分内容不适合反复看，多次回顾会冲淡情绪体验
+
+符合情感逻辑，角色当下也在做角色会做的事，但对于感情体验较少的人来说就可能会有“违和感”
+
+无论如何，mygo自始至终都是一个关于角色间化学反应和角色感情的故事，所以我觉得是说得通的
+
+如果去探讨角色行为逻辑和其成因带来的观感差异，那其实就是另一个话题了
+

@@ -5344,3 +5344,20 @@ NP率比本体好，应该可以冲浪的
 
 虽然没必要
 
+
+*****
+
+####  TheLoof  
+##### 13801#       发表于 2024-8-7 17:14
+
+大帝这强化可以的，全体防御无视
+奇怪的副手/插件又增加了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13802#       发表于 2024-8-7 17:19
+
+今年强化怎么都这么当人
+

@@ -5237,3 +5237,18 @@ YLS硬币的事情我先不跟你白扯了，3000WDL能不能加个友情池一�
 不如想想艾蕾的机制，你嫖好友直接没有好感条，嫖5宝等于 ...</blockquote>
 看到有人挂助战兽艾蕾就忍俊不禁，这机制都摆明了不希望让人挂助战了，是真纯爱路线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13789#       发表于 2024-8-7 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如奶奶今天5星骑是谁!  开奶司马懿or大帝！
+
+*****
+
+####  希望之花  
+##### 13790#       发表于 2024-8-7 16:32
+
+其实是欧罗巴哒！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

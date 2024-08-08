@@ -1440,3 +1440,14 @@ n9打着倒是和以前差不多，n10还没解锁
 
 电喷近距离是不是有问题，贴脸跳虫我电了5下电不死。
 
+
+*****
+
+####  6x6z6w  
+##### 5230#       发表于 2024-8-9 04:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65840125&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-9 03:23</a>
+
+电喷近距离是不是有问题，贴脸跳虫我电了5下电不死。</blockquote>
+一直都是这样，这枪伤害是扇形分布的，所以打多动症虫子极其不稳定
+

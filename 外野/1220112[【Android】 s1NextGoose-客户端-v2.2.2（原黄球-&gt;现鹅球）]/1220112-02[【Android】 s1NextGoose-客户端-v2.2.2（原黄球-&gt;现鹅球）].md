@@ -75,3 +75,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  KDConan  
+##### 1632#       发表于 2024-8-8 12:59
+
+3.1.88 alpha附件还是不行
+
+<img src="https://p.sda1.dev/18/76f455a2e6587f494816e8a5313ffa0d/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

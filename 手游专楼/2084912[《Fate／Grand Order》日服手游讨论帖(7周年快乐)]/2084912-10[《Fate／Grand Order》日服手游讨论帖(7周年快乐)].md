@@ -6057,3 +6057,26 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 大胆点2个外星人里必有青子一个位置用来挽尊
 
+
+*****
+
+####  khxooo  
+##### 13863#       发表于 2024-8-8 16:58
+
+团长吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13864#       发表于 2024-8-8 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么又是阿比
+
+*****
+
+####  Jamaisvu  
+##### 13865#       发表于 2024-8-8 17:05
+
+强化是阿比盖尔（No.195）和比利小子（No.105），至少五星角色还勉强维持数字论...
+

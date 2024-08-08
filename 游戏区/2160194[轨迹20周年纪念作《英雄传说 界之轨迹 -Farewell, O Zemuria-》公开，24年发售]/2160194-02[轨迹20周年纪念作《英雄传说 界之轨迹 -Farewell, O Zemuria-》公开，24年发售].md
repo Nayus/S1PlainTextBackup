@@ -4584,3 +4584,20 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 这个月也是单更一次角色，下个月也是。没什么料了
 
+
+*****
+
+####  ravend233  
+##### 2587#       发表于 2024-8-8 17:39
+
+要介绍的基本也就结社和斑鸠了，正好两期，面具人可以直接忽略了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 2588#       发表于 2024-8-8 17:43
+
+主要有新立绘的角色就结社两个，剑仙和面具人肯定是建模，静名和黑铁和曹 两星杯这些都没新立绘介绍不介绍无所谓
+

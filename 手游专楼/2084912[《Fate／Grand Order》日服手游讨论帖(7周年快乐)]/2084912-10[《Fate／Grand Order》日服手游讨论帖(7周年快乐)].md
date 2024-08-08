@@ -6137,3 +6137,14 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 感谢库小姐，没有库小姐估计也舍不得给得这么大方
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 13872#       发表于 2024-8-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65834253&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-8 15:35</a>
+
+给钻我必设！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦里什么都有
+

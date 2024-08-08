@@ -1118,3 +1118,18 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 <img src="https://img.saraba1st.com/forum/202408/08/214814cj49j0aewq1qw9lo.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾尔特翔  
+##### 46636#       发表于 2024-8-8 22:24
+
+700石头一宝，6个小黑，小号400石，4个汇呆，没有小黑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 46637#       发表于 2024-8-8 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">93石头，1宝，1宝，2宝，跑了！
+

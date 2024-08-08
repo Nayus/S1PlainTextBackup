@@ -32,3 +32,14 @@
 
 阿b限时免费公开剧场版了，爽看
 
+
+*****
+
+####  MASKA-1  
+##### 789#       发表于 2024-8-9 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65838355&amp;ptid=2043629" target="_blank">缪斯替 发表于 2024-08-08 22:08:22</a>
+随便查了查古川好像少歌剧场版以后说那个未定名新作到今年都只说是还在做没具体信息……咋回事啊哥哥 ...</blockquote>至少今年初古川推特上说今年的工作是“做动画”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，预感小出的动画会比古川的更早出。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

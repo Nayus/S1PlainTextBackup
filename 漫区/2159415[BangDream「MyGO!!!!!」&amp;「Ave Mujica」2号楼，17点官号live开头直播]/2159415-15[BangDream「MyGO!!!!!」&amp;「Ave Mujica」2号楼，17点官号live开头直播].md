@@ -12753,3 +12753,117 @@ laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，�
 
 8月8日下午至22日晚上，少歌剧场版限时盗播
 
+
+*****
+
+####  星天观测  
+##### 21871#       发表于 2024-8-7 19:49
+
+好消息，李子应该只是中暑，没有新冠（希望人没事）
+
+*****
+
+####  前方暴雨预警  
+##### 21872#       发表于 2024-8-7 21:13
+
+不过说起来，歌词的情感指向或许可以更直观的传达给观众？毕竟大部分情况下文字的意义和美感不存在显著的理解障碍，哪怕是经过翻译也能保留一定的感染力。而对纯音乐的鉴赏有一定的门槛，大部分人对艺术性已经很高的古典音乐依然表示“听不懂”，对其表达的意向需要依赖乐评人的解析。这个现象在日本这种音乐基础教育素养好的地方应该会减少，但毕竟比起理解文字，还是提出额外的技能点需求。
+
+这可能也是邦邦虽然是乐队番，但对如果创作组词曲分开，着重被描写反而是作词的那个（ppp的ksm，蝶团的小白，狗团的灯），这或许也是制作组对观众的一种妥协？
+
+*****
+
+####  fsfs_freeze  
+##### 21873#       发表于 2024-8-7 22:56
+
+借楼询问一下，最近看了邦邦2film live，感觉这场的混音有点奇怪，好像更像是live现场一些？不知道有没有懂的<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 21874#         楼主| 发表于 2024-8-7 22:58
+
+ 本帖最后由 紫吹兰 于 2024-8-8 02:43 编辑 
+<blockquote>fsfs_freeze 发表于 2024-8-7 22:56
+借楼询问一下，最近看了邦邦2film live，感觉这场的混音有点奇怪，好像更像是live现场一些？不知道有没有懂 ...</blockquote>
+大概是为了增强临场感，fl2真人团就是live音源，R组的Avant的前奏还是kdhr第一次live演奏这首时候的简化版<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 21875#       发表于 2024-8-8 00:57
+
+看到有人用laytae代灯祥，于是去看了著名的“重生100次”宣言，但这个代进去的话不就成了
+
+（哪怕重来一百次，我也希望这一百次都能和灯相遇，然后……一百次都要解散crychic建立ave mujica）
+
+本来很深情的宣言突然变搞笑了是怎么回事了啊<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 21876#       发表于 2024-8-8 02:23
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反
+
+*****
+
+####  前方暴雨预警  
+##### 21877#       发表于 2024-8-8 03:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829142&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-8 02:23</a>
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反 ...</blockquote>
+谁知道呢<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">，大概是想证明即是不在同一个乐队，依然可以是最理解彼此、给对方力量的两人？
+
+但laytae的关系并不绑定在音乐上，所以layer当然可以说“重生100次也要加入RAS”，但灯祥关系始于乐队终于乐队，再拿laytae的场景来套就非常搞笑了，充满了“重生100次也不会和你组一辈子乐队”的喜剧感<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  downforce  
+##### 21878#       发表于 2024-8-8 04:12
+
+ 本帖最后由 downforce 于 2024-8-8 04:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829142&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-8 02:23</a>
+
+laytae为什么能代灯祥，ppp和ras真的是她们各自的第一个团，临时组的那个才是后来的，和c团不是完全相反 ...</blockquote><blockquote>【History of RAS】从THE THIRD(仮)到RAISE A SUILEN
+[https://www.bilibili.com/video/av44174686/](https://www.bilibili.com/video/av44174686/)
+
+她们的过去可以追溯到武士道10周年。Raychell、鼓手夏芽与大冢纱英一起演奏Are you ready to FIGHT一曲成为RAS的成团契机。
+
+2018年1月14日， ガルパライブ＆ガルパーティ！in东京LIVE中官方宣布将会由LIVE中的Back Band成员组成一支新的乐队组合，并在同年3月25日以「THE THIRD(仮)」的名义举办第一次单独LIVE。由歌手Raychell、鼓手夏芽、声优仓知玲凤以及Poppin'Party的大冢纱英作为临时成员组成。之后的第一次LIVE中，大冢纱英含泪告退，声优小原莉子作为新吉他手上位。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/08/041616d3obw0h6spwlvxq3.jpg" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-08-08 041517.jpg</strong> (265.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 04:16 上传
+
+临时团比ras早啊？
+
+sae退出的那段感言看了就很感动。
+[【中字】BanG Dream! THE THIRD(仮) 1st LIVE【LoveDream字幕组】_哔哩哔哩_bilibili](https://www.bilibili.com/video/BV1Xt411Y7aL/?p=1&amp;t=3013)
+
+*****
+
+####  紫吹兰  
+##### 21879#         楼主| 发表于 2024-8-8 05:19
+
+<img src="https://img.saraba1st.com/forum/202408/08/051823z4gg6g6ogowc6aom.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-08-05-18-02-264_tv.danmaku.bili.jpg</strong> (295.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 05:18 上传
+
+8月8日下午至22日晚上，少歌剧场版限时盗播
+
+*****
+
+####  星天观测  
+##### 21880#       发表于 2024-8-8 08:17
+
+为什么有些人这么喜欢到处拿别人家的东西当代餐啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

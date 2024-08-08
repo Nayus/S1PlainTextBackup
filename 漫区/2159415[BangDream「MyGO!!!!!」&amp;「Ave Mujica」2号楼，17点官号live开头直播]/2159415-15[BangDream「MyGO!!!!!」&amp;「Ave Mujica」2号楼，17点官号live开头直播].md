@@ -12875,3 +12875,11 @@ sae退出的那段感言看了就很感动。
 
 真影响不了吗，看看熏千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 21882#       发表于 2024-8-8 10:00
+
+薰千也大麦特麦过，虽然是不少彩铅的天雷
+

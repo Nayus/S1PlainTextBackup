@@ -55,3 +55,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Destiny4073  
+##### 1630#       发表于 2024-8-8 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829741&amp;ptid=1220112" target="_blank">DLAN 发表于 2024-8-8 08:24</a>
+3.1.88，可以正常搜索</blockquote>
+好奇怪，现在反过来了，奥运能搜奥迪搜不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

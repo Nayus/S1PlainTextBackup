@@ -220,3 +220,14 @@ Ps2版似乎就是这样
 
 —— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  茴香蚪的马甲  
+##### 105#       发表于 2024-8-8 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65831357&amp;ptid=2170218" target="_blank">hourousha 发表于 2024-8-8 10:44</a>
+
+但剧场版HF基本还是沿用老版设定啊，那个官方不认吗？</blockquote>
+融合吧，也有吸血的桥段
+

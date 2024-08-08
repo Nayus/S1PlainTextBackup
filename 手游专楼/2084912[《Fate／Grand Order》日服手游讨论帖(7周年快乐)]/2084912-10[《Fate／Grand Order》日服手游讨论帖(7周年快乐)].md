@@ -5928,3 +5928,26 @@ Fami通“最想要从者”投票：
 Fami通“最想要从者”投票：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里面联通皮收收味道啊！
 
+
+*****
+
+####  TheLoof  
+##### 13852#       发表于 2024-8-8 12:22
+
+ 本帖最后由 TheLoof 于 2024-8-8 12:24 编辑 
+
+顺便发一下8周年的，感受一下变化
+
+视频里截的别在意细节
+
+8周年投票9000+，今年好像只有5000+了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/08/122209d0sd4bmyy8srd1pm.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1723091010313.png</strong> (254.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 12:22 上传
+

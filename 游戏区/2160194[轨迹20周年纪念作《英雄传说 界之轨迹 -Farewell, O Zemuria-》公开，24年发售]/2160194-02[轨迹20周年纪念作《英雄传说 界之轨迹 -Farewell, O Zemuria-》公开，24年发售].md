@@ -4352,3 +4352,20 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 等着，剧情pv就给你把曹李端上来，哦虽然前面的pv他也没缺席就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2562#       发表于 2024-8-8 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情PV没曹不看好吧，真正的轨迹厨师应该成为曹厨
+
+*****
+
+####  光之阶梯  
+##### 2563#       发表于 2024-8-8 10:23
+
+曹李你怎么还在？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

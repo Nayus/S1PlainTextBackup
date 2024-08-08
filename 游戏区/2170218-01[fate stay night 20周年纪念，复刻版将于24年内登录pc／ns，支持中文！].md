@@ -175,3 +175,23 @@ Ps2版似乎就是这样
 
 这作少h会影响关键剧情衔接吗，我对月姬老版的H都是一路全C的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starcraft3  
+##### 101#       发表于 2024-8-8 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830837&amp;ptid=2170218" target="_blank">MobyDickStudio 发表于 2024-8-8 10:10</a>
+这作少h会影响关键剧情衔接吗，我对月姬老版的H都是一路全C的</blockquote>
+设定早就改了 全年龄版本现在才是官设。
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  盒饭鬼魅清蒸鱼  
+##### 102#       发表于 2024-8-8 10:26
+
+记得以前玩还有职介卡介绍的，这版没有吗，还是后面会解锁，实在没记忆了
+

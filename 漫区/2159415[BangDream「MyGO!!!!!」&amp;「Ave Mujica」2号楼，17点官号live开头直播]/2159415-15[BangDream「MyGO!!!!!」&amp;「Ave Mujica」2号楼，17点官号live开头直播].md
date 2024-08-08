@@ -12906,3 +12906,35 @@ sae退出的那段感言看了就很感动。
 去年我去重温ykls的时候就看到有嗑灯箱的在ykls下面ky了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 我寻思你也不是幼驯染啊？也不同团，到底哪门子的相似让你跑来碰瓷的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21885#       发表于 2024-8-8 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830892&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-8-8 10:12</a>
+
+去年我去重温ykls的时候就看到有嗑灯箱的在ykls下面ky了
+
+我寻思你也不是幼驯染啊？也不同团，到底哪门子 ...</blockquote>
+那我能说啥呢，真寄吧能偷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃偷来的的东西真的很像路边啊
+
+*****
+
+####  御幸一也  
+##### 21886#       发表于 2024-8-8 10:19
+
+可能官方端出來賣的BE讓這些人很不滿意吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 21887#       发表于 2024-8-8 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830792&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-8 10:07</a>
+
+至少从目前的结果看熏千确实是受影响了
+
+（wsd对于这四个人的关系处理真的很让我感到迷惑） ...</blockquote>
+确实挺迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">目前我补的卡面剧情和pico里薰千都卖的挺多，难道花千同居卡剧情非常炸裂
+

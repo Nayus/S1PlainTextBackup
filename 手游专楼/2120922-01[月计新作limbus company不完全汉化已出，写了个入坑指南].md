@@ -49,3 +49,11 @@
 
 yj不开活动都没讨论欲望了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 821#       发表于 2024-8-8 13:29
+
+这新剧情...怪不得第七章前的预热间章要选W列车事件，在某方面和图书馆照应上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

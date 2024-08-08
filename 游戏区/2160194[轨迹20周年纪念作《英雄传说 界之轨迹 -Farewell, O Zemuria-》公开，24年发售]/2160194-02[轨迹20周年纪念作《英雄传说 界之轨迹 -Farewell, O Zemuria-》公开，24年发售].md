@@ -4302,3 +4302,22 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 云豹的实体豪华版有开放大陆直接购买的渠道吗，还是只能靠倒狗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2556#       发表于 2024-8-8 09:50
+
+只能靠淘宝奸商吧，没有在大陆直接销售过应该
+
+
+*****
+
+####  YMS16M  
+##### 2557#       发表于 2024-8-8 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830110&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-8-8 09:07</a>
+
+还有专属机甲，要素齐全</blockquote>
+算了吧。别的都可以吹。那个弱智骑神战基本是冷钢最大败笔。和超失衡的战斗系统叠加起来让整个系统的战斗都是在搞笑一样。
+

@@ -12867,3 +12867,11 @@ sae退出的那段感言看了就很感动。
 
 为什么有些人这么喜欢到处拿别人家的东西当代餐啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21881#       发表于 2024-8-8 09:49
+
+真影响不了吗，看看熏千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

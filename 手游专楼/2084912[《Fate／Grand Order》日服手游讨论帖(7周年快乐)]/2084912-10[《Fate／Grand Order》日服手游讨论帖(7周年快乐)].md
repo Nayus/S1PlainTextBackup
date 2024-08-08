@@ -6203,3 +6203,13 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 天草都4个强化本了怎么都轮不到了，始皇帝或者兔子王吧
 
+
+*****
+
+####  都谷捻柏  
+##### 13878#       发表于 2024-8-8 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836378&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-8 18:23</a>
+天草都4个强化本了怎么都轮不到了，始皇帝或者兔子王吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，天草居然强化四次了吗？暴露了我没有天草的事实了。那他也太惨了吧，强化四次还是没有一点存在感。
+

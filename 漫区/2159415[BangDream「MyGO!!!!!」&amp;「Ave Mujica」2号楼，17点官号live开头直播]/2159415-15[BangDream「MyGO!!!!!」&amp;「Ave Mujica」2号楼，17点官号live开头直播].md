@@ -12990,3 +12990,19 @@ sae退出的那段感言看了就很感动。
 
 生日卡，明年就能在国服抽了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">卡面剧情是团魂和灯希，nga115161楼gpt翻译已出<[img src="https://s21.ax1x.com/2024/08/08/pkzKgMD.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21894#       发表于 2024-8-8 14:08
+
+<img src="https://img.saraba1st.com/forum/202408/08/140830g8qqdn2pt7873126.jpg" referrerpolicy="no-referrer">
+
+<strong>-635313141723095221337.jpg</strong> (317.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 14:08 上传
+
+除了肩膀有点宽以外都挺好
+

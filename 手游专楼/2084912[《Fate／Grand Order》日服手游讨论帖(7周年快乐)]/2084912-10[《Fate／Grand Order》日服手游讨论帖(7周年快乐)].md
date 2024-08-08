@@ -5994,3 +5994,11 @@ Fami通“最想要从者”投票：</blockquote>
 
 第1名投票才100多是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yangun22  
+##### 13857#       发表于 2024-8-8 14:10
+
+去年问卷7月4号发的截止到9号晚上，今年13号发的截至到15号晚上，时间短了一半
+

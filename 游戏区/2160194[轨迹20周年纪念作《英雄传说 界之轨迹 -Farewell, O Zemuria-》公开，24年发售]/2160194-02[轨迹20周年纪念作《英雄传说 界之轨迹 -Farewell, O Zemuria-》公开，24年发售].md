@@ -4400,3 +4400,20 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 游戏质量相比闪1又没什么绝对优势，提升主要是技术上的。 服装设计、剧本都还是原来那些人，而BGM这些开倒车 。质量只能说55开怎么赢。
 
+
+*****
+
+####  ravend233  
+##### 2567#       发表于 2024-8-8 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特典算是公布完了的样子
+
+N9%VV}XDNDEE8P%KOGXSCZR.jpg
+(76.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 14:08 上传
+
+<img src="https://img.saraba1st.com/forum/202408/08/140848dsanczd97znnk20d.jpg" referrerpolicy="no-referrer">
+

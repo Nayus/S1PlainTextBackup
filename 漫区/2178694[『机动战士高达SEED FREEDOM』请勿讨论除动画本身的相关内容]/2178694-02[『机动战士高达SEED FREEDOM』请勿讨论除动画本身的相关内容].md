@@ -230,3 +230,27 @@ gustav C104居然要出卡嘉丽和阿斯兰的结婚初夜本 本子封面完�
 说一句狼比鸡强没想到会把FT给吓成这样，233。</blockquote>
 白毛声优也是这么表示的说是种1和种命都证明狼比鸡强，算不算官设就不知道了
 
+
+*****
+
+####  Piano-Forest  
+##### 1885#         楼主| 发表于 2024-8-9 01:03
+
+[https://x.com/koukidou_p/status/1820013980347408453](https://x.com/koukidou_p/status/1820013980347408453)
+
+【C104_お品書き】
+
+ガンダムSEEDFREEDOMのメカレイアウト修正集と、キャラ画稿満載の別冊イラスト集を頒布します！
+
+====
+
+◻︎ 『 FREEDOMWORKS +別冊ブックレット 』: 3000円/unit
+
+====
+
+-日曜日 東地区 “ス” ブロック 63b-
+<img src="https://p.sda1.dev/18/7ec4c0cd85faaac48fe45c8c7b38eb29/20240809_010012.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/5607c98268d911f8942e658d40f3b92e/20240809_010019.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/2c681974c575686296d416e96d4491d3/20240809_010029.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/1d54b4c6d397092e75c910eebb83038b/20240809_010024.jpg" referrerpolicy="no-referrer">
+

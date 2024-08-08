@@ -4386,3 +4386,17 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在克州小地方作威作福罢了，大地方原形毕露.jpg
 
+
+*****
+
+####  zhouaa  
+##### 2566#       发表于 2024-8-8 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黎卖不过闪哪用想那么多
+
+一是在日本学园肯定大于社畜题材，你见过哪个游戏没有学园要素。社长说的不是没有道理。
+
+二是日本PS系越来越式微，或者说玩主机的越来越少。大环境在这里。
+
+游戏质量相比闪1又没什么绝对优势，提升主要是技术上的。 服装设计、剧本都还是原来那些人，而BGM这些开倒车 。质量只能说55开怎么赢。
+

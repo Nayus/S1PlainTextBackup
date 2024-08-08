@@ -12938,3 +12938,11 @@ sae退出的那段感言看了就很感动。
 （wsd对于这四个人的关系处理真的很让我感到迷惑） ...</blockquote>
 确实挺迷惑的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">目前我补的卡面剧情和pico里薰千都卖的挺多，难道花千同居卡剧情非常炸裂
 
+
+*****
+
+####  rikaren  
+##### 21888#       发表于 2024-8-8 10:34
+
+说到幼驯染，别忘了hgm和ksm也算，还有幼年卡。
+

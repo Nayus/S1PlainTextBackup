@@ -195,3 +195,16 @@ Ps2版似乎就是这样
 
 记得以前玩还有职介卡介绍的，这版没有吗，还是后面会解锁，实在没记忆了
 
+
+*****
+
+####  hourousha  
+##### 103#       发表于 2024-8-8 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830980&amp;ptid=2170218" target="_blank">starcraft3 发表于 2024-8-8 10:18</a>
+
+设定早就改了 全年龄版本现在才是官设。
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
+但剧场版HF基本还是沿用老版设定啊，那个官方不认吗？
+

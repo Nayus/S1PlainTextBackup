@@ -6231,3 +6231,11 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 强化开到炽天之杯的时候已经是个废人了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13880#       发表于 2024-8-8 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">天草强化不是给对面用的吗
+

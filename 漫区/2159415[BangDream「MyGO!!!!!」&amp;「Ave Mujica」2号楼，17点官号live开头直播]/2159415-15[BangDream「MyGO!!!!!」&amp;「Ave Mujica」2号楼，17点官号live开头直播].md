@@ -13051,3 +13051,20 @@ sae退出的那段感言看了就很感动。
 
 难道这是一个pjsk等级的豪华mv
 
+
+*****
+
+####  前方暴雨预警  
+##### 21900#       发表于 2024-8-8 19:11
+
+就算梦一个豪华MV我也只会梦最后一首
+
+还不如猜是这次wsd挖得底边小画师接单后跑路了<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 21901#       发表于 2024-8-8 19:13
+
+不要擅自期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

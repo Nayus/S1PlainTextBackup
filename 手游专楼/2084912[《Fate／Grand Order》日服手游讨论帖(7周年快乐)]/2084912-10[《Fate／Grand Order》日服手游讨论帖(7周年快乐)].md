@@ -6239,3 +6239,13 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">天草强化不是给对面用的吗
 
+
+*****
+
+####  司马千晶  
+##### 13881#       发表于 2024-8-8 21:59
+
+我觉得要么是尺呆，要么是卡莲，对应fha的hd<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

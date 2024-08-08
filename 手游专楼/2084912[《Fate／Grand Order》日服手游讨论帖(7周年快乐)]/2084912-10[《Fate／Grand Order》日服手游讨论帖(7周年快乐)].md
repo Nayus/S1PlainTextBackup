@@ -6148,3 +6148,50 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 给钻我必设！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">梦里什么都有
 
+
+*****
+
+####  保罗赫伯特  
+##### 13873#       发表于 2024-8-8 17:59
+
+该奶明天强化哪个尺子了，是秦始皇还是上杉呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+总不会真是白贞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13874#       发表于 2024-8-8 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836074&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-8 17:59</a>
+
+该奶明天强化哪个尺子了，是秦始皇还是上杉呢
+
+总不会真是白贞吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">福尔摩斯
+
+*****
+
+####  都谷捻柏  
+##### 13875#       发表于 2024-8-8 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65835705&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-8 17:32</a>
+阿比这个强化，只能说看起来很猛
+
+感谢库小姐，没有库小姐估计也舍不得给得这么大方
+
+ ...</blockquote>
+是啊，打两发道中伤害成问题，打一发问题不大，开被动5伊吹当副手带单杀狐2技能也转不过来，多开一次3技能也只多20np。
+
+*****
+
+####  都谷捻柏  
+##### 13876#       发表于 2024-8-8 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836074&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-8 17:59</a>
+该奶明天强化哪个尺子了，是秦始皇还是上杉呢
+
+总不会真是白贞吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尺子我猜的天草。
+

@@ -262,3 +262,19 @@ Ps2版似乎就是这样
 我是真的想玩啊 好多年前打了一遍fate线就没玩下去了，前几天民间版又打了一遍fate线就确定8.8发售日了， ...</blockquote>
 现在高清复刻版的贴图BUG我还没遇到，但是读存档会间歇黑屏几秒钟才能看到画面的BUG我倒是遇到了
 
+
+*****
+
+####  760194962  
+##### 109#       发表于 2024-8-8 18:22
+
+很好，这个主机独占先进标题界面的设计没了
+
+<img src="https://img.saraba1st.com/forum/202408/08/182240txuaf5fnpuj3jquj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 18:22 上传
+

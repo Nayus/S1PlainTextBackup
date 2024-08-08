@@ -6195,3 +6195,11 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 总不会真是白贞吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尺子我猜的天草。
 
+
+*****
+
+####  低调不圆滑  
+##### 13877#       发表于 2024-8-8 18:23
+
+天草都4个强化本了怎么都轮不到了，始皇帝或者兔子王吧
+

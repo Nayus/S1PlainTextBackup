@@ -65,3 +65,13 @@
 3.1.88，可以正常搜索</blockquote>
 好奇怪，现在反过来了，奥运能搜奥迪搜不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lyflyflxf  
+##### 1631#       发表于 2024-8-8 10:32
+
+现在正式版应该怎么登录帐号？用app自带登录界面总是报http 503的错误
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

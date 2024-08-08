@@ -4369,3 +4369,20 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  古畑任三郎2015  
+##### 2564#       发表于 2024-8-8 10:34
+
+曹李雷克特雾香作为0b三幻神，闪黎基本已经崩完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Aeons  
+##### 2565#       发表于 2024-8-8 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在克州小地方作威作福罢了，大地方原形毕露.jpg
+

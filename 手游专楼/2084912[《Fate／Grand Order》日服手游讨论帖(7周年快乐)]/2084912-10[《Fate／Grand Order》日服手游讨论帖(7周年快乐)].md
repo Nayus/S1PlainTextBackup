@@ -6213,3 +6213,21 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 天草都4个强化本了怎么都轮不到了，始皇帝或者兔子王吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，天草居然强化四次了吗？暴露了我没有天草的事实了。那他也太惨了吧，强化四次还是没有一点存在感。
 
+
+*****
+
+####  TheLoof  
+##### 13879#       发表于 2024-8-8 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836614&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-8 18:47</a>
+
+什么，天草居然强化四次了吗？暴露了我没有天草的事实了。那他也太惨了吧，强化四次还是没有一点存在感。 ...</blockquote>
+红利期过了而已，天草最强的时候就是刚开宝具本+3技能给了红魔放的那个时期
+
+高难血量不多，刚好够他黑杯一炮清BUFF秒
+
+启示强化的时候用的就少
+
+强化开到炽天之杯的时候已经是个废人了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

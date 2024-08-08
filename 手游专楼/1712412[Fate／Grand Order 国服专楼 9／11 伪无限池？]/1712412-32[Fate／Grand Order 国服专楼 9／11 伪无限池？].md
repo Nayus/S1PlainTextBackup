@@ -971,3 +971,26 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 放弃了，不能再浪费汇呆的石头了
 
+
+*****
+
+####  xy1041  
+##### 46623#       发表于 2024-8-8 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">544bd43f2cb8807 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/08/185957p600gpxyil0gx6kd.jpg" referrerpolicy="no-referrer">
+
+<strong>6A979F27-3C11-4CF1-9825-FB6544C1C032.jpg</strong> (457.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 18:59 上传
+
+白嫖4宝，撤退！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

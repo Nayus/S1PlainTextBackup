@@ -1058,3 +1058,24 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 我等第二个池子之后看看还剩多少石头再来补吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ayeayecaptain  
+##### 46632#       发表于 2024-8-8 20:39
+
+现在泳装四星还有轮换单up吗
+
+
+*****
+
+####  麻花疼  
+##### 46633#       发表于 2024-8-8 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65837524&amp;ptid=1712412" target="_blank">ayeayecaptain 发表于 2024-8-8 20:39</a>
+
+现在泳装四星还有轮换单up吗</blockquote>
+没有了。
+
+所以顶着风险强抽，好在小潶对宝具要求不高。。。
+

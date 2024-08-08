@@ -77,3 +77,13 @@ debuff拉满是这样的。
 现在完全是异世界轻小说风格==最后不会是网游吧</blockquote>
 也确实是异世界题材啊。感觉是开项目那会儿是异世界最火的时候…
 
+
+*****
+
+####  kuarwbwe  
+##### 637#       发表于 2024-8-8 14:44
+
+看了pmm的试玩汇报感觉好了点，反正谨慎看好吧，主要是战斗那个念经bgm好魔性好劲。拉回了一点印象分。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+不过这作应该是不会和我想的一样有那种翻天覆地的进化了（特指有一个可以自由探索的开放世界大地图）。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

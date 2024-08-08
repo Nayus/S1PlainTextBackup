@@ -251,3 +251,14 @@ Ps2版似乎就是这样
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  赤黑的假面  
+##### 108#       发表于 2024-8-8 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65833718&amp;ptid=2170218" target="_blank">bad_alloc 发表于 2024-8-8 14:32</a>
+
+我是真的想玩啊 好多年前打了一遍fate线就没玩下去了，前几天民间版又打了一遍fate线就确定8.8发售日了， ...</blockquote>
+现在高清复刻版的贴图BUG我还没遇到，但是读存档会间歇黑屏几秒钟才能看到画面的BUG我倒是遇到了
+

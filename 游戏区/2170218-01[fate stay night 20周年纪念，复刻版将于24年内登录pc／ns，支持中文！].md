@@ -208,3 +208,15 @@ Ps2版似乎就是这样
 —— 来自 Xiaomi 22127RK46C, Android 14上的 S1Next-鹅版 v2. ...</blockquote>
 但剧场版HF基本还是沿用老版设定啊，那个官方不认吗？
 
+
+*****
+
+####  starcraft3  
+##### 104#       发表于 2024-8-8 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65831357&amp;ptid=2170218" target="_blank">hourousha 发表于 2024-8-8 10:44</a>
+但剧场版HF基本还是沿用老版设定啊，那个官方不认吗？</blockquote>
+问题是hf剧场版的床戏是突出的感情而不是补魔的设定 
+
+—— 来自 Xiaomi 22127RK46C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

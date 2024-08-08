@@ -12980,3 +12980,13 @@ sae退出的那段感言看了就很感动。
 
 他们又故意的高声嚷道，“你一定又偷了人家的东西了！”赛博扒手睁大眼睛说，“你怎么这样凭空污人清白……”“什么清白？我前天亲眼见你偷了初祥睦祥的糖，吊着打。”赛博扒手便涨红了脸，额上的青筋条条绽出，争辩道，“偷糖不能算偷……偷糖！……cp厨圈地自萌的事，能算偷么？”接连便是难懂的话，什么“神笨是灯箱曲”，什么“water也要灯唱给祥子”之类，引得众人都哄笑起来：店内外充满了快活的空气。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CyDiablo  
+##### 21893#       发表于 2024-8-8 13:55
+
+ 本帖最后由 CyDiablo 于 2024-8-8 13:58 编辑 
+
+生日卡，明年就能在国服抽了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">卡面剧情是团魂和灯希，nga115161楼gpt翻译已出<[img src="https://s21.ax1x.com/2024/08/08/pkzKgMD.jpg" referrerpolicy="no-referrer">
+

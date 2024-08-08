@@ -13068,3 +13068,49 @@ sae退出的那段感言看了就很感动。
 
 不要擅自期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21902#       发表于 2024-8-8 19:21
+
+可能是连mv都不打算了
+
+*****
+
+####  rikaren  
+##### 21903#       发表于 2024-8-8 19:22
+
+最后一首指不定还要拖到什么时候（八月底上流媒体，九月底上mv，太酷了）
+
+*****
+
+####  九陌狂游  
+##### 21904#       发表于 2024-8-8 19:23
+
+都不做梦是吧，那我来，今晚邦多利tv宣布，哦今晚双子，那就下周邦多利tv上五个人宣布豪华mv
+
+*****
+
+####  御景  
+##### 21905#       发表于 2024-8-8 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836985&amp;ptid=2159415" target="_blank">九陌狂游 发表于 2024-8-8 19:23</a>
+
+都不做梦是吧，那我来，今晚邦多利tv宣布，哦今晚双子，那就下周邦多利tv上五个人宣布豪华mv ...</blockquote>
+不如宣布毕业，动画成绝唱
+
+*****
+
+####  skives  
+##### 21906#       发表于 2024-8-8 19:26
+
+宣布下个mv让米山舞来画<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 21907#       发表于 2024-8-8 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让米山舞画了五分钟的动画是吧
+

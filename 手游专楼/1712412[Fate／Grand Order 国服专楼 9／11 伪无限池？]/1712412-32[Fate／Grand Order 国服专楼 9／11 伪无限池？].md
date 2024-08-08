@@ -994,3 +994,20 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  苍蓝之枪  
+##### 46624#       发表于 2024-8-8 19:15
+
+我说什么来着，“我抽一宝会比他三宝用得还多”......
+
+虽然这一宝也不是很非就是
+
+*****
+
+####  khxooo  
+##### 46625#       发表于 2024-8-8 19:16
+
+吃井了，歪手办娘加呆毛，气死了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

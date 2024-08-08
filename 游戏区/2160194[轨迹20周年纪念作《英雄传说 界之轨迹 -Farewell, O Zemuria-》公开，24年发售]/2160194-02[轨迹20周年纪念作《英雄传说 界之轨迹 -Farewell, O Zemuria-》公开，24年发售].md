@@ -4624,3 +4624,19 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 <img src="https://p.sda1.dev/18/3e17071a1ee950b956a0321d52584031/image.jpg" referrerpolicy="no-referrer">
 平川大辅宇宙之曹李红莲地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2592#       发表于 2024-8-8 18:54
+
+ 本帖最后由 卢迪克 于 2024-8-8 18:56 编辑 
+<blockquote>妄想中毒 发表于 2024-8-8 18:04
+黑月这么多戏份是不是因为你法很重视国内市场</blockquote>
+
+因为只有共和国黑月能重视国内，在往东边就有北方白人移民，南方褐色皮肤游牧民族，内陆部东方人（中文名但文化偏清朝）极东部东方人（日本）。
+
+文化大杂烩
+
+黑月的部族领地已经沙漠化了
+

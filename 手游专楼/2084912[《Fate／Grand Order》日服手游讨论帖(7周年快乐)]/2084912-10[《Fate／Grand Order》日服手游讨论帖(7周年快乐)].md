@@ -6002,3 +6002,13 @@ Fami通“最想要从者”投票：</blockquote>
 
 去年问卷7月4号发的截止到9号晚上，今年13号发的截至到15号晚上，时间短了一半
 
+
+*****
+
+####  johnkamsar  
+##### 13858#       发表于 2024-8-8 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65832857&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-8 12:53</a>
+奏三的重头戏是贞德吗，感觉有点不妙啊</blockquote>
+ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像不大奇怪，刚好最早的三个ex给嚯嚯掉<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

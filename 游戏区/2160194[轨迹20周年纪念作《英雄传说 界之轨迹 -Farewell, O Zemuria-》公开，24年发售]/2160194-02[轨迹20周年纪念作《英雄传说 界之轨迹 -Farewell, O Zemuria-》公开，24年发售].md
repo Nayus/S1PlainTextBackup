@@ -4458,3 +4458,15 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 25周年如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2573#       发表于 2024-8-8 14:48
+
+ 本帖最后由 ravend233 于 2024-8-8 14:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">假设2025迷城，2026界2/共和国篇外传，2027伊苏11；有空rm可能是2028，然后2029 25周年新篇第一作
+
+不过就目前的说法我觉得空RM可能规格不会太高，甚至会不会被砍了也不好说（
+

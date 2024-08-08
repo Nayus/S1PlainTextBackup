@@ -1092,3 +1092,29 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 所以顶着风险强抽，好在小潶对宝具要求不高。。。</blockquote>
 我铃鹿没抽到，没单up就直接撤了
 
+
+*****
+
+####  宵十一狼  
+##### 46635#       发表于 2024-8-8 21:48
+
+900存石进去汇呆一宝，一气之下上头了，后面氪8单0宝，骗氪不是不行但是你得讲道理不能抢劫是吧~再给bgo氪金我就是狗。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+微信图片_20240808214614.jpg
+(441.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 21:48 上传
+
+<img src="https://img.saraba1st.com/forum/202408/08/214806njbb75bi08hhezhm.jpg" referrerpolicy="no-referrer">
+
+微信图片_20240808214606.jpg
+(474.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-8 21:48 上传
+
+<img src="https://img.saraba1st.com/forum/202408/08/214814cj49j0aewq1qw9lo.jpg" referrerpolicy="no-referrer">
+

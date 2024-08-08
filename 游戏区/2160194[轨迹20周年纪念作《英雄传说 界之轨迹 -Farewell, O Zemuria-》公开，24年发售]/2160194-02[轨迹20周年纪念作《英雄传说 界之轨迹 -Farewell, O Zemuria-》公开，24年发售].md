@@ -4640,3 +4640,14 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 黑月的部族领地已经沙漠化了
 
+
+*****
+
+####  酷乐  
+##### 2593#       发表于 2024-8-8 20:00
+
+ 本帖最后由 酷乐 于 2024-8-8 20:02 编辑 
+
+Nico恢复了，OP投稿才两天就有两千播放：
+[https://www.nicovideo.jp/watch/sm43891891](https://www.nicovideo.jp/watch/sm43891891)
+

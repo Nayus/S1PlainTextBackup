@@ -4651,3 +4651,11 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 Nico恢复了，OP投稿才两天就有两千播放：
 [https://www.nicovideo.jp/watch/sm43891891](https://www.nicovideo.jp/watch/sm43891891)
 
+
+*****
+
+####  ky怪  
+##### 2594#       发表于 2024-8-9 00:51
+
+很搞笑的特典啊
+

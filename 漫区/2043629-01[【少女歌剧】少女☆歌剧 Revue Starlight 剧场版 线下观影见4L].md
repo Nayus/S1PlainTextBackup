@@ -24,3 +24,11 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">随便查了查古川好像少歌剧场版以后说那个未定名新作到今年都只说是还在做没具体信息……咋回事啊哥哥
 
+
+*****
+
+####  kyogngn  
+##### 788#       发表于 2024-8-9 00:55
+
+阿b限时免费公开剧场版了，爽看
+

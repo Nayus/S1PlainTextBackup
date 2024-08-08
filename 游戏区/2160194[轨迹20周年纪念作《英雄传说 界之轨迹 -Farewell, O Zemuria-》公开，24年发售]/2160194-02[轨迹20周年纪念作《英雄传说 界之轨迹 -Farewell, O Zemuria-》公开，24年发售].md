@@ -4442,3 +4442,19 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 还是看看远方的fc重制吧 最快2026？
 
+
+*****
+
+####  ravend233  
+##### 2571#       发表于 2024-8-8 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026我觉得做不出来，而且2026甚至可能是界2
+
+
+*****
+
+####  一步成诗  
+##### 2572#       发表于 2024-8-8 14:36
+
+25周年如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

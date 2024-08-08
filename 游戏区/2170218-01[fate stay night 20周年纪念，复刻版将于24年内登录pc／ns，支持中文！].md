@@ -231,3 +231,23 @@ Ps2版似乎就是这样
 但剧场版HF基本还是沿用老版设定啊，那个官方不认吗？</blockquote>
 融合吧，也有吸血的桥段
 
+
+*****
+
+####  姬萩九郎  
+##### 106#       发表于 2024-8-8 14:28
+
+制作方：不是，我没想到你们买了真玩啊？
+
+
+*****
+
+####  bad_alloc  
+##### 107#       发表于 2024-8-8 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65833679&amp;ptid=2170218" target="_blank">姬萩九郎 发表于 2024-8-8 14:28</a>
+制作方：不是，我没想到你们买了真玩啊？</blockquote>
+我是真的想玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 好多年前打了一遍fate线就没玩下去了，前几天民间版又打了一遍fate线就确定8.8发售日了，特意等着虫豸版打剩下两条线的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

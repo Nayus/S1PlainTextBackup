@@ -36,3 +36,22 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  KDConan  
+##### 1628#       发表于 2024-8-8 09:05
+
+附件好了？<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  KDConan  
+##### 1629#       发表于 2024-8-8 09:07
+
+哎不对，内测版和正式版不是一个APP啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -5879,3 +5879,42 @@ https://b23.tv/NusfgtE
 接下来就看东出的奏3尺子回，是能够像大妈那样触底反弹还是接着打破下限 ...</blockquote>
 估计会涉及到阿贞，就看是哪个东出了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 13850#       发表于 2024-8-8 11:17
+
+Fami通“最想要从者”投票：
+
+<img src="https://img.saraba1st.com/forum/202408/08/111636lbulgjmlj0y5lglp.png" referrerpolicy="no-referrer">
+
+<strong>1723086738062_min.png</strong> (656.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-8 11:16 上传
+
+第一是兽尼禄，旁边还有粉丝留言：
+
+<img src="https://img.saraba1st.com/forum/202408/08/111658njk5i3ariqj96kjr.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240808_111237.png</strong> (221.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-8 11:16 上传
+
+抱歉，我最近一看见六宝就想笑<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202408/08/111713rfnr5nv7up5alxxg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240808_111316.png</strong> (27.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-8 11:17 上传
+

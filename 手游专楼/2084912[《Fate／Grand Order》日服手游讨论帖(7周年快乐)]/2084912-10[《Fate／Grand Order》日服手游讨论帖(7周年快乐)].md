@@ -5976,3 +5976,21 @@ Fami通“最想要从者”投票：</blockquote>
 
 奏三的重头戏是贞德吗，感觉有点不妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 13855#       发表于 2024-8-8 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65832857&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-8 12:53</a>
+
+奏三的重头戏是贞德吗，感觉有点不妙啊</blockquote>
+有什么不妙，最多拳打麻婆脚踢天草头槌锤boss<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 13856#       发表于 2024-8-8 13:12
+
+第1名投票才100多是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

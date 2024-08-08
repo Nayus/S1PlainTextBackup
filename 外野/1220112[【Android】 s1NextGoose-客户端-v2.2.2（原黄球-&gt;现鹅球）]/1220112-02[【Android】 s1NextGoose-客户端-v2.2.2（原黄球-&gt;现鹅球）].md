@@ -87,3 +87,15 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  DLAN  
+##### 1633#       发表于 2024-8-8 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830749&amp;ptid=1220112" target="_blank">Destiny4073 发表于 2024-8-8 10:04</a>
+好奇怪，现在反过来了，奥运能搜奥迪搜不了</blockquote>
+我这里搜索奥迪也是正常的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -972,3 +972,37 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 みんなもいっしょにお祝いしてね✨🎁
 <img src="https://p.sda1.dev/18/5837a07282dce37ce5cd99fa82dbd874/GUSnco6awAA2OIJ.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 1996#       发表于 2024-8-7 15:46
+
+／
+
+🎉HAPPY BIRTHDAY🎉
+
+＼
+
+今日8月7日はキュアフレンディの誕生日❣
+
+おめでとう🎁
+
+みんなもいっしょにお祝いしてね✨🎁
+<img src="https://p.sda1.dev/18/5837a07282dce37ce5cd99fa82dbd874/GUSnco6awAA2OIJ.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  深渊魔魂  
+##### 1997#       发表于 2024-8-9 07:21
+
+二段图透
+
+<img src="https://img.saraba1st.com/forum/202408/09/072107ku282dau6027skst.png" referrerpolicy="no-referrer">
+
+<strong>EFBE4FEB24BE79CC561E31769C3CBD0D.png</strong> (240.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 07:21 上传
+

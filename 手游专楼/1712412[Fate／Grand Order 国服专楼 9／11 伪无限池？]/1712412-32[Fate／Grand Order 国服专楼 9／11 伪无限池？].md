@@ -1011,3 +1011,11 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 吃井了，歪手办娘加呆毛，气死了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  GuDaZi  
+##### 46626#       发表于 2024-8-8 19:26
+
+四星双up太烂了，水小黑是最后出的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

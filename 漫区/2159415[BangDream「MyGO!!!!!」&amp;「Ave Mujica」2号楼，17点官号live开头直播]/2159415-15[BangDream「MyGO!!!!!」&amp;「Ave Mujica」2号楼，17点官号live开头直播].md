@@ -12954,3 +12954,21 @@ sae退出的那段感言看了就很感动。
 
 今晚该关注冰川双子了，希望两位能整点活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  好想看Mujica啊  
+##### 21890#       发表于 2024-8-8 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65831024&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-8 10:21</a>
+
+确实挺迷惑的目前我补的卡面剧情和pico里薰千都卖的挺多，难道花千同居卡剧情非常炸裂 ...</blockquote>
+感觉除了没doi过，新婚妇妇该做的都做过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好想看Mujica啊  
+##### 21891#       发表于 2024-8-8 11:02
+
+剧情里薰哥哥打不过腹黑水母很正常，但从企划上来说完全想不通
+

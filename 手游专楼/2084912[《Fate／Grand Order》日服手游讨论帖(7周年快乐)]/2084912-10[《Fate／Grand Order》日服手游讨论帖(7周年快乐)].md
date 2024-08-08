@@ -6080,3 +6080,49 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 强化是阿比盖尔（No.195）和比利小子（No.105），至少五星角色还勉强维持数字论...
 
+
+*****
+
+####  alucardcz  
+##### 13866#       发表于 2024-8-8 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿比喜体1回合万物特攻  有一说一 目前来看这次强度幅度都挺大的。。。
+
+*****
+
+####  angelooo  
+##### 13867#       发表于 2024-8-8 17:07
+
+数字论已经完全是在胡说八道了吧
+
+今年后面几个还有什么大活没
+
+大帝强化之后感觉别的都没啥看头了
+
+*****
+
+####  alucardcz  
+##### 13868#       发表于 2024-8-8 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65834729&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-8 16:21</a>
+
+大胆点2个外星人里必有青子一个位置用来挽尊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">玩家想到的 舍弃
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13869#       发表于 2024-8-8 17:07
+
+1t100c 再不来几个废物强化都不认识你螺旋狗了
+
+
+*****
+
+####  Jamaisvu  
+##### 13870#       发表于 2024-8-8 17:14
+
+<blockquote>低调不圆滑 发表于 2024-8-8 16:21
+大胆点2个外星人里必有青子一个位置用来挽尊</blockquote>
+青子把二技能那个“变身成超级青子后解除效果”删了就很好，或者第一宝具加个减CD，两个形态CD共用挺糟心的...
+

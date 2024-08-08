@@ -29,3 +29,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  oidoid  
+##### 48#       发表于 2024-8-8 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65838474&amp;ptid=2031000" target="_blank">elskio 发表于 2024-8-8 22:21</a>
+
+虽然我这问题很蠢但是我忘了，会有创意工坊吗？
+
+—— 来自 S1Fun</blockquote>
+已经有人做MOD了，有的。
+

@@ -4484,3 +4484,48 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 官网意思是说是庭院小人吗
 
+
+*****
+
+####  ravend233  
+##### 2575#       发表于 2024-8-8 15:20
+
+估计是用庭院的形象转sd小人出谷的意思，这样的话大概人人都有（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2576#       发表于 2024-8-8 15:20
+
+意思是大家都有？而且有2d版？那范恩黑兔拉碧丝那个马克杯怎么用建模<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2577#       发表于 2024-8-8 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65834107&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-8 15:20</a>
+
+意思是大家都有？而且有2d版？那范恩黑兔拉碧丝那个马克杯怎么用建模</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你怎么假定人人都会有2D版本（
+
+*****
+
+####  一步成诗  
+##### 2578#       发表于 2024-8-8 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65834118&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-8 15:21</a>
+
+你怎么假定人人都会有2D版本（</blockquote>
+你说得对，是我想当然了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2579#       发表于 2024-8-8 15:26
+
+我是说3d都有，这个转2d做了立牌。
+

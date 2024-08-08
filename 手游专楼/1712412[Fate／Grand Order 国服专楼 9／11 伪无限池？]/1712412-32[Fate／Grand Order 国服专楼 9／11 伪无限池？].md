@@ -959,3 +959,15 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 同学群，今天还在得瑟前年200石四宝杀狐的光辉战绩，怕不是觉得今年200石3宝梣算是发挥失常 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">120石满宝芜的表示
 
+
+*****
+
+####  哔——  
+##### 46622#       发表于 2024-8-8 11:27
+
+又金圈出了海妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被这池子搞了两次心态，还是届不到
+
+放弃了，不能再浪费汇呆的石头了
+

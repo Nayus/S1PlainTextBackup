@@ -167,3 +167,11 @@ Ps2版似乎就是这样
 
 月球现在连冷饭都摆烂了吗
 
+
+*****
+
+####  MobyDickStudio  
+##### 100#       发表于 2024-8-8 10:10
+
+这作少h会影响关键剧情衔接吗，我对月姬老版的H都是一路全C的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

@@ -4329,3 +4329,26 @@ nbcs的共和国篇主角<img src="https://static.saraba1st.com/image/smiley/fac
 
 说起来曹李会有官网介绍吗
 
+
+*****
+
+####  ravend233  
+##### 2559#       发表于 2024-8-8 10:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">曹可以和亚仙，高朗，莉夏凑一期，黑月厨最快乐的一集
+
+*****
+
+####  Aeons  
+##### 2560#       发表于 2024-8-8 10:10
+
+那要介绍的可太多了
+
+
+*****
+
+####  一步成诗  
+##### 2561#       发表于 2024-8-8 10:16
+
+等着，剧情pv就给你把曹李端上来，哦虽然前面的pv他也没缺席就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -12883,3 +12883,26 @@ sae退出的那段感言看了就很感动。
 
 薰千也大麦特麦过，虽然是不少彩铅的天雷
 
+
+*****
+
+####  星天观测  
+##### 21883#       发表于 2024-8-8 10:07
+
+至少从目前的结果看熏千确实是受影响了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（wsd对于这四个人的关系处理真的很让我感到迷惑）
+
+
+*****
+
+####  -LYRE-  
+##### 21884#       发表于 2024-8-8 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830056&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-8 09:01</a>
+偷初祥偷睦祥，现在开偷laytae，赶紧盘点下我们ykls有没有什么可能被偷的
+
+（顺便问下睦祥曲是哪首来着） ...</blockquote>
+去年我去重温ykls的时候就看到有嗑灯箱的在ykls下面ky了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我寻思你也不是幼驯染啊？也不同团，到底哪门子的相似让你跑来碰瓷的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

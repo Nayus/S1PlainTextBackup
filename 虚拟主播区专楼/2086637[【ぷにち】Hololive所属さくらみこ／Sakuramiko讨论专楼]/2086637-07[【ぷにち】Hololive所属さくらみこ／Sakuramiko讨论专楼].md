@@ -6387,3 +6387,33 @@ miko：你们live去现场的，到时候开幕前摄像机扫到你们画面的
 
 实际上受到V这种形式的限制也不是所有的会场都能开live的，可以参考初音以前开过的最大会场规模
 
+
+*****
+
+####  holoan  
+##### 9429#         楼主| 发表于 2024-8-8 19:31
+
+悲报
+
+holo服GTA，基本确定 <blockquote>下次要举办的企划比以前的运动会规模还要大！</blockquote>
+
+*****
+
+####  渡鸦骑士  
+##### 9430#       发表于 2024-8-8 19:36
+
+推上看到不少星咏者中了票。
+35p面临的竞争压力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9431#         楼主| 发表于 2024-8-8 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65837102&amp;ptid=2086637" target="_blank">渡鸦骑士 发表于 2024-8-8 19:36</a>
+
+推上看到不少星咏者中了票。
+
+35p面临的竞争压力</blockquote>
+刚才会限已经提到过这个事了，箱推这次有非常多人中签，倒也不是什么稀奇的事
+

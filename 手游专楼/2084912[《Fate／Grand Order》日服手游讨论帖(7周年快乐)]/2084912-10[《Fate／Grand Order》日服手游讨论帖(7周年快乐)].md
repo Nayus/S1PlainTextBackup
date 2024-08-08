@@ -6012,3 +6012,19 @@ Fami通“最想要从者”投票：</blockquote>
 奏三的重头戏是贞德吗，感觉有点不妙啊</blockquote>
 ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像不大奇怪，刚好最早的三个ex给嚯嚯掉<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 13859#       发表于 2024-8-8 15:02
+
+主要是尺子不像复仇者，复仇者的设定几乎都是混着来的，作家群谁都沾一点
+
+尺子那边一大片的东出，成败全看阿出自己，然后你月对尺子又一直是一种你说啥就是啥的混沌状态，正经尺子没几个就很难绷
+
+正常发挥平稳落地比啥都强
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+整大活还得看外星人，各个都是绝活哥
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

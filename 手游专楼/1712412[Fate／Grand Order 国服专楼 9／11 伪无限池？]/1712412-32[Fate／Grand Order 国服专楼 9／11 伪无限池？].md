@@ -1079,3 +1079,16 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 所以顶着风险强抽，好在小潶对宝具要求不高。。。
 
+
+*****
+
+####  ayeayecaptain  
+##### 46634#       发表于 2024-8-8 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65837562&amp;ptid=1712412" target="_blank">麻花疼 发表于 2024-8-8 20:44</a>
+
+没有了。
+
+所以顶着风险强抽，好在小潶对宝具要求不高。。。</blockquote>
+我铃鹿没抽到，没单up就直接撤了
+

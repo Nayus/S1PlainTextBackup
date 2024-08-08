@@ -1414,3 +1414,13 @@ n9打着倒是和以前差不多，n10还没解锁
 所以轨道燃烧攻击什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 我怎么老记得是今天发
 
+
+*****
+
+####  dfbbymice  
+##### 5227#       发表于 2024-8-8 21:21
+
+现在的难10野队，只要有一个队友拉跨，基本上就会进入死亡局，问为什么，因为我刚好有局被队友炸死之后看着一个70多级的队友从钉刺虫面前跑过去也不打钉刺<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+而且我估计钉刺虫的刺只要下地了就能够全图追击，因为我跑了大半个地图，钉刺就追着我咬了大半个地图，一直到周围没有队友了才因为刷新原因消失<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

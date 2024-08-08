@@ -12946,3 +12946,11 @@ sae退出的那段感言看了就很感动。
 
 说到幼驯染，别忘了hgm和ksm也算，还有幼年卡。
 
+
+*****
+
+####  星天观测  
+##### 21889#       发表于 2024-8-8 10:50
+
+今晚该关注冰川双子了，希望两位能整点活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

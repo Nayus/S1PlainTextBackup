@@ -5858,3 +5858,24 @@ https://b23.tv/NusfgtE
 
 奏2至少够煽情，虽然伯爵最后复了其他复仇者却被ban了有些搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 13848#       发表于 2024-8-8 09:37
+
+没人惦记这是奏1的水平应得的23333
+
+接下来就看东出的奏3尺子回，是能够像大妈那样触底反弹还是接着打破下限
+
+*****
+
+####  khxooo  
+##### 13849#       发表于 2024-8-8 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65830434&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-8 09:37</a>
+没人惦记这是奏1的水平应得的23333
+
+接下来就看东出的奏3尺子回，是能够像大妈那样触底反弹还是接着打破下限 ...</blockquote>
+估计会涉及到阿贞，就看是哪个东出了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

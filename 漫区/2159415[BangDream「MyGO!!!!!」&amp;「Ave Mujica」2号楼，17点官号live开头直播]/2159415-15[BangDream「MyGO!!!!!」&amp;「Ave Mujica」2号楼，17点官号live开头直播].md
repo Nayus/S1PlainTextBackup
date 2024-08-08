@@ -13354,3 +13354,24 @@ wsd又在搞什么很新的东西<img src="https://static.saraba1st.com/image/sm
 
 2024-8-8 23:42 上传
 
+
+*****
+
+####  nebulanoby  
+##### 21925#       发表于 2024-8-9 00:39
+
+ 本帖最后由 nebulanoby 于 2024-8-9 00:41 编辑 
+
+taki成了国服第一个上生日庆祝的狗团成员，但是只上生日礼包不上剧情
+
+剧情要等，恰米不能等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  rikaren  
+##### 21926#       发表于 2024-8-9 00:39
+
+看着这生日卡我意识到了新的不对劲的地方，老团第一轮生日卡是以花为主题，第二轮自由发挥的感觉。mygo现在第一轮是以宝石为主题，明年第二**概率也是自由发挥。那am呢？明年无论是开新主题（因为同周期内还有个其他情况的团）还是直接自由发挥都很神必，wsd不会真打算26年才开始am的生日卡周期吧。
+

@@ -4576,3 +4576,11 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  卢迪克  
+##### 2586#       发表于 2024-8-8 17:33
+
+这个月也是单更一次角色，下个月也是。没什么料了
+

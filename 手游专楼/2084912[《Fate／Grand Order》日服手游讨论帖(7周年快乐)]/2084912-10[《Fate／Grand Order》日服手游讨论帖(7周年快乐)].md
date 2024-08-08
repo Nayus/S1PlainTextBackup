@@ -6126,3 +6126,14 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 大胆点2个外星人里必有青子一个位置用来挽尊</blockquote>
 青子把二技能那个“变身成超级青子后解除效果”删了就很好，或者第一宝具加个减CD，两个形态CD共用挺糟心的...
 
+
+*****
+
+####  TheLoof  
+##### 13871#       发表于 2024-8-8 17:32
+
+阿比这个强化，只能说看起来很猛
+
+感谢库小姐，没有库小姐估计也舍不得给得这么大方
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

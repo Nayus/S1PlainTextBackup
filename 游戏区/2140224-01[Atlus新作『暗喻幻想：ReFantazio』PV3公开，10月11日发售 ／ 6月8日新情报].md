@@ -66,3 +66,14 @@ debuff拉满是这样的。
 
 现在完全是异世界轻小说风格==最后不会是网游吧
 
+
+*****
+
+####  ybfelix  
+##### 636#       发表于 2024-8-8 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829367&amp;ptid=2140224" target="_blank">bobosnader 发表于 2024-8-8 04:11</a>
+
+现在完全是异世界轻小说风格==最后不会是网游吧</blockquote>
+也确实是异世界题材啊。感觉是开项目那会儿是异世界最火的时候…
+

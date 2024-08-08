@@ -5824,3 +5824,29 @@ https://b23.tv/NusfgtE
 
 什么玩意，奏2这德行也能排第一？
 
+
+*****
+
+####  TheLoof  
+##### 13845#       发表于 2024-8-8 08:52
+
+每年的新章节都有加成啊，看明年还能不能维持不就得了
+
+像去年活动第一是街机联动，今年掉第6了，说明虽然不是顶尖但玩家反馈也不错，起码有人惦记着
+
+惨的是连续两年见不到人的
+
+比如有品位的、能证明自己不是恋爱光癖的奏章1
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 13846#       发表于 2024-8-8 08:54
+
+不过11区人民到底多少人没有斯卡蒂，去年第一今年第二闹麻了
+
+今年第二的理由有几个还特别生草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

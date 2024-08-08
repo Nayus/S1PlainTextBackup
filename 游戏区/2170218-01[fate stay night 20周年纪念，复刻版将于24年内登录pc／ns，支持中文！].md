@@ -147,3 +147,15 @@ steam上的应该是无h的？会有补丁嘛
 </blockquote>
 Ps2版似乎就是这样
 
+
+*****
+
+####  lpzhg  
+##### 98#       发表于 2024-8-8 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829298&amp;ptid=2170218" target="_blank">社友者 发表于 2024-8-8 03:37</a>
+至此，已成艺术</blockquote>
+突然觉得这样也挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

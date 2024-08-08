@@ -5951,3 +5951,20 @@ Fami通“最想要从者”投票：</blockquote>
 
 2024-8-8 12:22 上传
 
+
+*****
+
+####  Jamaisvu  
+##### 13853#       发表于 2024-8-8 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65832510&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-8 12:22</a>
+
+顺便发一下8周年的，感受一下变化
+
+视频里截的别在意细节
+
+8周年投票9000+，今年好像只有5000+了</blockquote>
+两次投票的前五名竟然有四个重复的...
+
+新伯爵再登男友位，奥伯龙喜成前夫哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

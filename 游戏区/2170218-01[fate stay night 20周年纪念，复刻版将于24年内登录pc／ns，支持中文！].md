@@ -329,3 +329,16 @@ OP也是采用psv版
 
 但是我的一键快进功能呢
 
+
+*****
+
+####  饭冢武也  
+##### 114#       发表于 2024-8-8 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836564&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-8 18:41</a>
+
+工作量比直接把4:3压16:9大多了🫡
+
+Psv版好像就是这样做的</blockquote>
+不是补全的吗
+

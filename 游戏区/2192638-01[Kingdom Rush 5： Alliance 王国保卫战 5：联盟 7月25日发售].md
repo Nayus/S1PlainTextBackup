@@ -212,3 +212,17 @@ DOTA是为PVP设计的，要缝进来的话缝太重了，其实我认为KR能�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">感觉除了可以操控伪直男和迪纳斯外没新意，微操塔是闹哪样。
 
+
+*****
+
+####  Dedalus  
+##### 97#       发表于 2024-8-8 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65826273&amp;ptid=2192638" target="_blank">景悦风和 发表于 2024-8-7 19:24</a>
+中间出过PRG王国保卫战传奇，junkworld还有钢铁战队2</blockquote>
+这三部里传奇玩了，钢铁战队浅尝辄止，废土刚开头
+传奇是好玩的，但是体量太小断更了，废土世界美术和无塔位限制让人眼前一亮初印象不错，我玩玩再评价
+对5的失望也有这几作把气氛炒太热的原因，你以为憋了这么多年有大的，结果这些实验作里的新点子一个没用上，正作保守到看不出从外传吸收的经验在哪里
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

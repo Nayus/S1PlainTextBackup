@@ -16,3 +16,11 @@
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  缪斯替  
+##### 787#       发表于 2024-8-8 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">随便查了查古川好像少歌剧场版以后说那个未定名新作到今年都只说是还在做没具体信息……咋回事啊哥哥
+

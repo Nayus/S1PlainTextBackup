@@ -1432,3 +1432,11 @@ n9打着倒是和以前差不多，n10还没解锁
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">难10单走吃力不少，还是团了
 
+
+*****
+
+####  Aeons  
+##### 5229#       发表于 2024-8-9 03:23
+
+电喷近距离是不是有问题，贴脸跳虫我电了5下电不死。
+

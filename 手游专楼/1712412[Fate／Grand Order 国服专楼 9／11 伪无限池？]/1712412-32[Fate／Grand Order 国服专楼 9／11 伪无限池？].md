@@ -1154,3 +1154,22 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  kyonkoism  
+##### 46640#       发表于 2024-8-8 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65838145&amp;ptid=1712412" target="_blank">宵十一狼 发表于 2024-8-8 21:48</a>
+
+900存石进去汇呆一宝，一气之下上头了，后面氪8单0宝，骗氪不是不行但是你得讲道理不能抢劫是吧~再给bgo氪 ...</blockquote>
+我上次泳装池 3000石头进去 800石头出来  强度美1宝 还是60抽的时候就出的，给漏油平衡下<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 46641#       发表于 2024-8-8 23:44
+
+每年夏天吃个大瘪嘛，比起去年吃二井，今年只吃了一井是不是还得感谢yls，再往前的无井时代还给我整出过1700一宝这种事故
+

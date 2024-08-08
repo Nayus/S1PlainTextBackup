@@ -1424,3 +1424,11 @@ n9打着倒是和以前差不多，n10还没解锁
 
 而且我估计钉刺虫的刺只要下地了就能够全图追击，因为我跑了大半个地图，钉刺就追着我咬了大半个地图，一直到周围没有队友了才因为刷新原因消失<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 5228#       发表于 2024-8-8 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">难10单走吃力不少，还是团了
+

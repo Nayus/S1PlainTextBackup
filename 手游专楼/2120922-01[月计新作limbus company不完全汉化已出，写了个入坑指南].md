@@ -57,3 +57,13 @@ yj不开活动都没讨论欲望了<img src="https://static.saraba1st.com/image/
 
 这新剧情...怪不得第七章前的预热间章要选W列车事件，在某方面和图书馆照应上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 822#       发表于 2024-8-8 16:41
+
+这次活动真希望能听语音啊（
+
+尤其是那个人的声音变低沉的部分
+

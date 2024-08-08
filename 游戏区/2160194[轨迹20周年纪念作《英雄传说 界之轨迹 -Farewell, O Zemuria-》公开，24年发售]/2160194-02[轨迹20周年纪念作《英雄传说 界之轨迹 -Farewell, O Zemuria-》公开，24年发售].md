@@ -4601,3 +4601,26 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 主要有新立绘的角色就结社两个，剑仙和面具人肯定是建模，静名和黑铁和曹 两星杯这些都没新立绘介绍不介绍无所谓
 
+
+*****
+
+####  妄想中毒  
+##### 2589#       发表于 2024-8-8 18:04
+
+黑月这么多戏份是不是因为你法很重视国内市场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 2590#       发表于 2024-8-8 18:05
+
+我靠这部村上没画真可惜了，好想要她画的师姐vs黎恩
+
+*****
+
+####  smdzh2  
+##### 2591#       发表于 2024-8-8 18:06
+
+<img src="https://p.sda1.dev/18/3e17071a1ee950b956a0321d52584031/image.jpg" referrerpolicy="no-referrer">
+平川大辅宇宙之曹李红莲地狱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

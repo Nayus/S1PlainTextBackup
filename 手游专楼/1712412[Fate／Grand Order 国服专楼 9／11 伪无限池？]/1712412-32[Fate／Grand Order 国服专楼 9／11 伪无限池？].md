@@ -1133,3 +1133,24 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">93石头，1宝，1宝，2宝，跑了！
 
+
+*****
+
+####  史艳文  
+##### 46638#       发表于 2024-8-8 23:27
+
+1100+石头，三个五星，一个水C呆，一个贞德，一个船长。
+
+然后小黑7宝，JK5宝。
+
+不知道怎么吐槽了。
+
+*****
+
+####  Kon-El  
+##### 46639#       发表于 2024-8-8 23:31
+
+550石15呼符一汇呆一小黑仨铃鹿，凑合了
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

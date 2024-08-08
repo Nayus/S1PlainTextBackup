@@ -5918,3 +5918,13 @@ Fami通“最想要从者”投票：
 由手机上传
 2024-8-8 11:17 上传
 
+
+*****
+
+####  johnkamsar  
+##### 13851#       发表于 2024-8-8 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65831796&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-8 11:17</a>
+Fami通“最想要从者”投票：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里面联通皮收收味道啊！
+

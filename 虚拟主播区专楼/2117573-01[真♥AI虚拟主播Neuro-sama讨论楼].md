@@ -1463,3 +1463,13 @@ Vedal最后这几天真的是究极整蛊啊，马拉松开始的时候宣传的
 
 昨天半夜直播我还奇怪b站啥时候那么多牛肉粉了，明明平时切片都没几个人留言，后来想想这应该是官方推广引流的结果，乐府这推广力度也太猛了，龟龟到底开了个什么价？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  与天争锋_L  
+##### 141#       发表于 2024-8-8 13:56
+
+哈人，已经40万粉了，再过几天别把t台超了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

@@ -14,3 +14,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他🐴酱胸口这赞助商logo实在有点绷不住
 
+
+*****
+
+####  Picavian  
+##### 1158#       发表于 2024-8-8 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65833881&amp;ptid=2104259" target="_blank">madcow 发表于 2024-8-8 14:53</a>
+
+他🐴酱胸口这赞助商logo实在有点绷不住</blockquote>
+ST人的衣服都是这样，被企业赞助的衣服。而法国人胸部放大商标的奇妙设计在AN米娅就已经开始了——
+
+说来这游戏除了企业标（包括橙子板NKZ和装备企业等）以外，衣服上的细小文字基本是看不清楚的。也不知道设计层面上有没有说明本来的文字内容。
+

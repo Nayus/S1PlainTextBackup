@@ -13017,3 +13017,14 @@ sae退出的那段感言看了就很感动。
 感觉除了没doi过，新婚妇妇该做的都做过了</blockquote>
 好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对既不是幼驯染也不是同队，看来wsd的心不好捉摸
 
+
+*****
+
+####  ddy2811  
+##### 21896#       发表于 2024-8-8 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65831024&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-8 10:21</a>
+
+确实挺迷惑的目前我补的卡面剧情和pico里薰千都卖的挺多，难道花千同居卡剧情非常炸裂 ...</blockquote>
+完全按同居情侣来的，所以没谁打得过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

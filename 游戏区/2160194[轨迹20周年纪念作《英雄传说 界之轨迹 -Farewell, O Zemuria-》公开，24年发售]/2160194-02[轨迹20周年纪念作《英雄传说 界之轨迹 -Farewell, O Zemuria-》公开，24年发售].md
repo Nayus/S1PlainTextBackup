@@ -4529,3 +4529,40 @@ N9%VV}XDNDEE8P%KOGXSCZR.jpg
 
 我是说3d都有，这个转2d做了立牌。
 
+
+*****
+
+####  卢迪克  
+##### 2580#       发表于 2024-8-8 15:29
+
+黎恩不就是创轨dlc
+
+*****
+
+####  一步成诗  
+##### 2581#       发表于 2024-8-8 15:29
+
+虽然只是3d，那也比之前看起来只有三个人有强多了，不至于那么寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2582#       发表于 2024-8-8 15:30
+
+队士服那个素多了
+
+*****
+
+####  一步成诗  
+##### 2583#       发表于 2024-8-8 15:33
+
+创轨dlc是紫白配色吧
+
+
+*****
+
+####  宛若青空  
+##### 2584#       发表于 2024-8-8 15:35
+
+又是立牌，真是没什么创意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -6036,3 +6036,16 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 今天不知道是哪个外星人的强化了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13861#       发表于 2024-8-8 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829417&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-8 05:28</a>
+
+新更新的推荐助战是主线每关都能设置个人还能留言？
+
+谁吃饱了撑着会去设置这东西啊......还有助战不都是选 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给钻我必设！
+

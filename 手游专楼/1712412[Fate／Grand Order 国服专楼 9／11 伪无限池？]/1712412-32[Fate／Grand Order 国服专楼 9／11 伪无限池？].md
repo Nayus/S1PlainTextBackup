@@ -1242,3 +1242,17 @@ B服安卓 100 112 138 134
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  麻花疼  
+##### 46649#       发表于 2024-8-9 14:16
+
+今天寻思一宝的汇呆太可怜了，连班都上不了，于是想补个2宝。
+
+于是，惨案发生了。
+
+昨晚有多欧今天就有多非，第二宝用了1410石和166护符才抽到，平均2000石一宝，中间没出任何五星，歪了无数小黑和JK狐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好在接下一年不用抽卡了。
+

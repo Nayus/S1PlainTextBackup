@@ -1094,3 +1094,13 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 头上顶个蛋有点太怪了
 
+
+*****
+
+####  深渊魔魂  
+##### 2007#       发表于 2024-8-9 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844543&amp;ptid=2162354" target="_blank">Arson=desu 发表于 2024-8-9 15:43</a>
+老实说“动起来就顺眼了”比较依赖剧内精彩华丽的动作戏，不知道犬q这个禁打斗要怎么才能把动作戏玩出花 ...</blockquote>
+二段现在不是放大招专用形态吗，得看大招bank设计得咋样
+

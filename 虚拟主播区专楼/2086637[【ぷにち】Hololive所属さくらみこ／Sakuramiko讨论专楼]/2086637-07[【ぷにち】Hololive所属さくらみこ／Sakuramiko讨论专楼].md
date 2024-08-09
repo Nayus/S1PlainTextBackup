@@ -6434,3 +6434,29 @@ miko：后面请夸来游戏房间（直播）如果夸输了被关在房间里�
 
 等会还有龙珠直播，会限总结明天听了再写
 
+
+*****
+
+####  rs5621  
+##### 9434#       发表于 2024-8-9 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65837444&amp;ptid=2086637" target="_blank">holoan 发表于 2024-8-8 20:28</a>
+
+miko：后面请夸来游戏房间（直播）如果夸输了被关在房间里就毕不了业了
+
+最大的问题是如果夸故意输了真的留 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好满足她哈迷心，阿夸动图一挂，音容犹在永流传。
+
+*****
+
+####  holoan  
+##### 9435#         楼主| 发表于 2024-8-9 19:04
+
+<img src="https://img.saraba1st.com/forum/202408/09/190457i3g8ipl4df3nfdg3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (544.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 19:04 上传
+

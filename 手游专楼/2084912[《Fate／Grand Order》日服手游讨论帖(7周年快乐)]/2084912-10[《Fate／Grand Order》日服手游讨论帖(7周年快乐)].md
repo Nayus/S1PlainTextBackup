@@ -6641,3 +6641,95 @@ TMD小教授怎么是你
 
 这次强化的5星大部分轮空了，我不信明天会强化我唯二没有的外星人小王子跟旺吉娜
 
+
+*****
+
+####  TheLoof  
+##### 13923#       发表于 2024-8-9 17:20
+
+ 本帖最后由 TheLoof 于 2024-8-9 17:22 编辑 
+
+卧槽夏绿蒂这什么鬼强化，太猛了吧
+
+直接可以扔出去的30蓝魔放、50爆伤、50宝具威力
+
+那堆只能给50特攻的5星UCCU
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 13924#       发表于 2024-8-9 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845628&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 17:20</a>
+
+卧槽夏绿蒂这什么鬼强化，太猛了吧
+
+直接可以扔出去的30蓝魔放、50爆伤、50宝具威力</blockquote>
+那个buff是自身3选1
+
+*****
+
+####  格林卡罗尔  
+##### 13925#       发表于 2024-8-9 17:23
+
+感觉唯一神领悟了数据填猛一点也不会有人用，不必恶心大家伙的道理
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TheLoof  
+##### 13926#       发表于 2024-8-9 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845663&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-9 17:23</a>
+
+那个buff是自身3选1</blockquote>
+那还行，可以省下一个结晶了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 13927#       发表于 2024-8-9 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845551&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 17:16</a>
+
+小教授的宝具威力UP变成3t了，关底直接叠到60%
+
+妖兰是60攻30魔放30宝具威力</blockquote>
+然而茉莉那个回收甚至双C呆都没法冲大部分333，得配合礼装或者衣服。而尺兰自信80充配上衣服甚至可以单C呆加梅莉、女教皇甚至徐福和医神冲浪，只能说唯一神还是懂怎么恶心玩家的。强化了吗？如强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 13928#       发表于 2024-8-9 17:25
+
+ 本帖最后由 Jamaisvu 于 2024-8-9 17:28 编辑 
+<blockquote>TheLoof 发表于 2024-8-9 17:20
+卧槽夏绿蒂这什么鬼强化，太猛了吧
+
+直接可以扔出去的30蓝魔放、50爆伤、50宝具威力
+
+</blockquote>
+
+夏绿蒂的强化不就是把以前随机三选一变成可控三选一吗再加个出星吗，只能说可以用了，但也没多离谱吧，毕竟白值摆在那里...
+
+话说她要是红宝具，那双狐减CD加奥伯龙翻倍叠个超级宝威倒是挺可观的...
+
+*****
+
+####  TheLoof  
+##### 13929#       发表于 2024-8-9 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845706&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-9 17:25</a>
+
+夏绿蒂的强化不就是把以前随机三选一变成可控三选一吗再加个出星吗，只能说可以用了，但也没多离谱吧，毕 ...</blockquote>
+没，当时的解包写的是可选释放
+
+下意识以为是可以直接扔出去
+
+鬼想到是这么个扔法
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

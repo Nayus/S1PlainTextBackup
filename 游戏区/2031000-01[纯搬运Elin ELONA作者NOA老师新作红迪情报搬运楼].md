@@ -83,3 +83,36 @@
 已经两个楼了啊。
 [https://bbs.saraba1st.com/2b/for ... ;page=1#pid65759620](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2188971&amp;page=1#pid65759620)
 
+
+*****
+
+####  oidoid  
+##### 53#       发表于 2024-8-9 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65841864&amp;ptid=2031000" target="_blank">exalbion01 发表于 2024-8-9 10:45</a>
+
+刚跟几个日本人看了一圈应该是没有关系，这玩意在国内似乎是叫什么黑星勇者的，八成是针对日本那边硬凑一 ...</blockquote>
+【银铃】2024/8/9 12:14:26
+
+说是从上一个手游公司那里拿的许可
+
+【管理员】 2024/8/9 12:14:43
+
+雷霆？
+
+果然是他们卖的
+
+【管理员】 2024/8/9 12:15:42
+
+还能这么给么
+
+【银铃】  12:20:26
+
+肯定是笨蛋noa没较真当时跟雷霆的合同
+
+里面有陷阱
+
+【管理员】  12:21:09
+
+……估计是了
+

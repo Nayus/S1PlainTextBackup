@@ -4278,3 +4278,13 @@ Grezzo则是复刻织梦岛，做智慧再现
 几个亮点：沙漠也能骑马，床在水里能浮上来，有简单的属性克制，比如遇火可 ...</blockquote>
 虚化模糊的担忧的点是什么，模拟景深的效果实现的不好？
 
+
+*****
+
+####  冷泉夜月  
+##### 432#       发表于 2024-8-9 12:06
+
+用水和床做电梯也太骚了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

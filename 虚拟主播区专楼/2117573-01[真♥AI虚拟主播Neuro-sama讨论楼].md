@@ -1489,3 +1489,13 @@ T台都是活人，b站这关注人数水分太多了<img src="https://static.sa
 
 好久没看这里了，尼楼要火了吗
 
+
+*****
+
+####  kykawaiii  
+##### 144#       发表于 2024-8-9 12:10
+
+明显没火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

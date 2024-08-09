@@ -481,3 +481,14 @@ Psv版好像就是这样做的</blockquote>
 
 士郎出现场景，默认不是mute
 
+
+*****
+
+####  饭冢武也  
+##### 124#       发表于 2024-8-9 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65838650&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-8 22:39</a>
+
+不，psv版我看了下明显是4:3压16:9，意味着人物显示也变矮</blockquote>
+我看了一下LS的意思好像这次和PSV不一样了
+

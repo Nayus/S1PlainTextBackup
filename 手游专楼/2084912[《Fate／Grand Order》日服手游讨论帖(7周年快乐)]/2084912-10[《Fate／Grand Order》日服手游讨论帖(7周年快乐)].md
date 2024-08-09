@@ -6750,3 +6750,16 @@ TMD小教授怎么是你
 
 要是明天外星人强化把O蛇神二技能的指向性充能削成只能对单，我都没意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13931#       发表于 2024-8-9 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845802&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-9 17:32</a>
+
+其实我不太在乎选择的权利，多点两下就嫌废手还不如改成随机三选二...
+
+要是明天外星人强化把O蛇神二技能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说什么呢 明明是史诗级加强
+

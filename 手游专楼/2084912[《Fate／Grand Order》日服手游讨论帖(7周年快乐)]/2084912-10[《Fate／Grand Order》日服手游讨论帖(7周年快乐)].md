@@ -6819,3 +6819,24 @@ TMD小教授怎么是你
 我只关心到底什么时候送杯子.....杯子已经用完了想趁着周年大成功期间再拉几个120 ...</blockquote>
 对哦，既然改成这样了，那之前说的杯是不是也就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 13938#       发表于 2024-8-9 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65846275&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-9 18:13</a>
+
+对哦，既然改成这样了，那之前说的杯是不是也就没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能....再无耻的运营也干不出把已经答应过的补偿再收回去这种事吧
+
+*****
+
+####  DARKGRAY  
+##### 13939#       发表于 2024-8-9 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65846292&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-9 18:14</a>
+
+怎么可能....再无耻的运营也干不出把已经答应过的补偿再收回去这种事吧</blockquote>
+毕竟换补偿方式了嘛，之前铸圣杯投的币不再是被坑的支出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

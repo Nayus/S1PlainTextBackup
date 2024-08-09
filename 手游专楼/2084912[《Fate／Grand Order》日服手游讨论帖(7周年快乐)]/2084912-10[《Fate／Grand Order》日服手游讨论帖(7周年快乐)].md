@@ -6780,3 +6780,42 @@ TMD小教授怎么是你
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  plok201  
+##### 13934#       发表于 2024-8-9 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对日本人来说这个已经是让步太大开始心痛运营的阶段了
+
+希望运营别学聪明，到时候150和6、7技能啥的再来一次，多赔点石头
+
+*****
+
+####  angelooo  
+##### 13935#       发表于 2024-8-9 18:10
+
+<blockquote>plok201 发表于 2024-8-9 18:05
+对日本人来说这个已经是让步太大开始心痛运营的阶段了
+
+希望运营别学聪明，到时候150和6、7技能啥的再来一 ...</blockquote>
+下次再来那只能再冲了，没有信用了是这样的
+
+
+*****
+
+####  森兰丸  
+##### 13936#       发表于 2024-8-9 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只关心到底什么时候送杯子.....杯子已经用完了想趁着周年大成功期间再拉几个120
+
+*****
+
+####  DARKGRAY  
+##### 13937#       发表于 2024-8-9 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65846256&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-9 18:10</a>
+
+我只关心到底什么时候送杯子.....杯子已经用完了想趁着周年大成功期间再拉几个120 ...</blockquote>
+对哦，既然改成这样了，那之前说的杯是不是也就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

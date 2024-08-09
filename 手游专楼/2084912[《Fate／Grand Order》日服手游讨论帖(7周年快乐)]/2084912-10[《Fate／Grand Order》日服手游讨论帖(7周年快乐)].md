@@ -6763,3 +6763,20 @@ TMD小教授怎么是你
 要是明天外星人强化把O蛇神二技能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说什么呢 明明是史诗级加强
 
+
+*****
+
+####  yangun22  
+##### 13932#       发表于 2024-8-9 17:48
+
+好吧，其实我这次福袋提妈和奶光宝具7了，能赚180个硬币<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 13933#       发表于 2024-8-9 17:50
+
+其实六十宝威有个机械龙娘，还是红宝具，但还是查无此人
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

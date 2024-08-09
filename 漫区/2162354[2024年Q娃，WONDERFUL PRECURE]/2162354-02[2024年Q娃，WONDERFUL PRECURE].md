@@ -1024,3 +1024,11 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 得让茉优给我另做一身好看的<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1096beam  
+##### 2000#       发表于 2024-8-9 11:16
+
+所以大福的身份伏笔还会用到吗？
+

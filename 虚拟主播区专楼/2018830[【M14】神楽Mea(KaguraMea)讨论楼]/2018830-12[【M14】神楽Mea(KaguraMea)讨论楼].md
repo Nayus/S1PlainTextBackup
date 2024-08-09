@@ -5562,3 +5562,43 @@ urc喂饭200→600
 
 已经不是小v了，不管是c-clays还是幽闭星光，你麻在这次碟子里的牌面都是一等一的，主播在业界的面子还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ablast  
+##### 17114#       发表于 2024-8-9 07:18
+
+无敌了你咩 连着三天突击lol台
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  古战场亡魂  
+##### 17115#       发表于 2024-8-9 11:01
+
+确实无敌了
+
+<img src="https://img.saraba1st.com/forum/202408/09/110137vlgxlqkqpihyb1qg.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20240809110100685.jpg</strong> (140.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202408/09/110138yig022xgxgfkkm07.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20240809110110335.jpg</strong> (47.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 11:01 上传
+
+*****
+
+####  TiHaru  
+##### 17116#       发表于 2024-8-9 11:21
+
+出魔抗是犯法的吗
+

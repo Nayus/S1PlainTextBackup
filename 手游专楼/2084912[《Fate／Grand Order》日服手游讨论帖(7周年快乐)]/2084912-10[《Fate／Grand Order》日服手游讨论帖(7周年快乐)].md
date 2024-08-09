@@ -6299,3 +6299,54 @@ nga是不是已经把硬币的事情忘的一干二净了</blockquote>
 
 改系统了？
 
+
+*****
+
+####  格林卡罗尔  
+##### 13888#       发表于 2024-8-9 16:38
+
+看来终于要有通用硬币了？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DARKGRAY  
+##### 13889#       发表于 2024-8-9 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845119&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-9 16:38</a>
+
+看来终于要有通用硬币了？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+没有，对周年后抽卡的弥补方式更加证明了不会有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 13890#       发表于 2024-8-9 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么跪了呢 傲气呢！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么问题来了  当初设计45被动做福利的时候脑子是一点都不带的是吧？
+
+*****
+
+####  TheLoof  
+##### 13891#       发表于 2024-8-9 16:46
+
+ 本帖最后由 TheLoof 于 2024-8-9 16:48 编辑 
+
+简单的说就是增加了从羁绊7开始的硬币获取，拉满15绊多给240
+
+然后你为了开技能用盘子换从者的话，盘子补给你
+
+从结果来说的话就是6宝120级还是能拉满
+
+但是非6宝情况下120没救的还是没救
+
+什么你说你羁绊满了多拿240硬币？
+
+你羁绊都满了你还用个鬼，直接放仓库不好吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

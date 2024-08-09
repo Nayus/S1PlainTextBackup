@@ -254,3 +254,17 @@ gustav C104居然要出卡嘉丽和阿斯兰的结婚初夜本 本子封面完�
 <img src="https://p.sda1.dev/18/2c681974c575686296d416e96d4491d3/20240809_010029.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/1d54b4c6d397092e75c910eebb83038b/20240809_010024.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ironman_mk5  
+##### 1886#       发表于 2024-8-9 13:00
+
+<blockquote>Piano-Forest 发表于 2024-8-9 01:03
+https://x.com/koukidou_p/status/1820013980347408453
+
+【C104_お品書き】
+
+ガンダムSEEDFREEDOMのメカレイ ...</blockquote>
+为何上封面的是扎古而不是脉冲
+

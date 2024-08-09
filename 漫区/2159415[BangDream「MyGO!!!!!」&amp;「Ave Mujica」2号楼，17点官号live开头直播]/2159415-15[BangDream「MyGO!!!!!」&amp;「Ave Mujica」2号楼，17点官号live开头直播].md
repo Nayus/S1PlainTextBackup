@@ -13459,3 +13459,19 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 等3rd10.13，这场不宣动画时间那真的要等12.15了。
 
+
+*****
+
+####  星天观测  
+##### 21937#       发表于 2024-8-9 10:47
+
+还不宣那真要有人滑坡明年主推的是梦团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  光MIKAN  
+##### 21938#       发表于 2024-8-9 10:54
+
+看之前的照片管人团中之人出场要带动物头套，太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外现在已经滑坡到管人就是下一个游戏实装团了
+

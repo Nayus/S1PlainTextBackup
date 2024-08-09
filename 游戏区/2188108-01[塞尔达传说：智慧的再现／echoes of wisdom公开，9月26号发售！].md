@@ -4351,3 +4351,11 @@ Grezzo则是复刻织梦岛，做智慧再现
 织梦岛的效果不是很好，虚化模糊的面积很大，仿佛每时每刻都在迷雾森林。本作看几个片段会好一些，不知道 ...</blockquote>
 感觉和微缩模型的美术风格绑定了，有点难解决<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hl氏  
+##### 439#       发表于 2024-8-9 18:52
+
+众神+时之笛+狂吹，三大塞尔达元素在此集结
+

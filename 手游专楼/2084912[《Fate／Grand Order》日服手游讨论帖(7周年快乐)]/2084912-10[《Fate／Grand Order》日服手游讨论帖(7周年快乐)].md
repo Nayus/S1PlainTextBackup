@@ -6877,3 +6877,14 @@ TMD小教授怎么是你
 我之前大多数角色都不开被动技能的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是豹豹 已经拉完多少个120了？
 
+
+*****
+
+####  森兰丸  
+##### 13943#       发表于 2024-8-9 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65847073&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 19:22</a>
+
+不愧是豹豹 已经拉完多少个120了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在瞎说....非洲人一直也只有摩根一个120....其他大多数2宝角色最多也就只能拉到114级
+

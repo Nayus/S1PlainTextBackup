@@ -1032,3 +1032,25 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 所以大福的身份伏笔还会用到吗？
 
+
+*****
+
+####  leleq  
+##### 2001#       发表于 2024-8-9 11:36
+
+好没识别度的二段啊，就蛋头饰还不好看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  犬飼いろは  
+##### 2002#       发表于 2024-8-9 11:43
+
+[前 3 张：月刊アニメージュ 2024年9月号](https://files.catbox.moe/yaun9u.zip)
+[后 2 张：アニメディア 2024年9月号](https://files.catbox.moe/thyti3.zip)
+<img src="https://p.sda1.dev/18/95ddaee6fed33d523aa2c4a2b1569904/080.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/cf6dfab953bb8f73bab1f1db3f73e589/081.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/3d90f2ea0311d26bda838562b90979d5/082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/b1e198569be1b6fc33d6050ba1421fae/066.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/be4c31d1d68b512f54d61aefc9ecc38e/067.jpg" referrerpolicy="no-referrer">
+

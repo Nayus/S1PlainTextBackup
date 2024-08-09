@@ -13499,3 +13499,11 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 新歌可能拖到下周一了(08.12)，然后是间隔两个月的3rd(10.13)、4th(12.15)，还挺有规律的。
 
+
+*****
+
+####  星天观测  
+##### 21942#       发表于 2024-8-9 16:47
+
+拖，就硬拖，我就是要拖住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

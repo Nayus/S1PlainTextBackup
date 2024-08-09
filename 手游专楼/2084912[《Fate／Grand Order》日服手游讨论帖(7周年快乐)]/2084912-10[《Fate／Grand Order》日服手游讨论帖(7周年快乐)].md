@@ -6350,3 +6350,183 @@ nga是不是已经把硬币的事情忘的一干二净了</blockquote>
 你羁绊都满了你还用个鬼，直接放仓库不好吗
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13892#       发表于 2024-8-9 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845201&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 16:46</a>
+
+简单的说就是增加了从羁绊7开始的硬币获取，拉满15绊多给240
+
+然后你为了开技能用盘子换从者的话，盘子补给 ...</blockquote>
+还有一段  超过一定宝具数量的从者硬币可以换其他从者的硬币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 13893#       发表于 2024-8-9 16:49
+
+yls不停的在试探底线，不过这波改动应该满意了
+
+*****
+
+####  TheLoof  
+##### 13894#       发表于 2024-8-9 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845229&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 16:48</a>
+
+还有一段  超过一定宝具数量的从者硬币可以换其他从者的硬币</blockquote>
+醒醒，同星级，也就是说你保守抽个7宝吧
+
+这楼里有几个人用得上
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 13895#       发表于 2024-8-9 16:50
+
+也还行吧，至少不是8宝了，改成8宝15绊120才能满被动之后，感觉自己就像个小丑皇帝，🤡完了
+
+*****
+
+####  alucardcz  
+##### 13896#       发表于 2024-8-9 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845238&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 16:50</a>
+
+醒醒，同星级
+
+这楼里有几个人用得上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星我勉强能用！
+
+*****
+
+####  格林卡罗尔  
+##### 13897#       发表于 2024-8-9 16:50
+
+这通用硬币和盘子差不多难度，四星要十张以上
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 13898#       发表于 2024-8-9 16:51
+
+真有这么好说话
+
+*****
+
+####  低调不圆滑  
+##### 13899#       发表于 2024-8-9 16:51
+
+通用硬币就是盘子附赠物，至少他肯给了
+
+
+*****
+
+####  希望之花  
+##### 13900#       发表于 2024-8-9 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">什么时候开20绊
+
+*****
+
+####  alucardcz  
+##### 13901#       发表于 2024-8-9 16:53
+
+これらの対応につきましては、8月5日に発表させていただきました対応と合わせまして準備ができ次第、順次、できるだけ早く対応をさせていただきますが、数カ月お時間をいただくことをご了承頂けますと幸いです。 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是依然要几个月！
+
+*****
+
+####  格林卡罗尔  
+##### 13902#       发表于 2024-8-9 16:53
+
+想到我不知道何时出的一大堆徐福，三星的通用硬币比较实际<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 13903#       发表于 2024-8-9 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845283&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-9 16:53</a>
+
+想到我不知道何时出的一大堆徐福，三星的通用硬币比较实际
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 3星不在范围内
+
+*****
+
+####  TheLoof  
+##### 13904#       发表于 2024-8-9 16:55
+
+从整个系统的结果来说的话挺好的
+
+1、以后apend技能可以退回重点；
+
+2、硬币获取数量增加，你不追求点满的话，对非6宝玩家来说实际硬币需求是降低了的；
+
+3、常驻4星硬币基本都溢出了，能帮1宝党或者活动从者厨省点事儿；
+
+*****
+
+####  alucardcz  
+##### 13905#       发表于 2024-8-9 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845308&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 16:55</a>
+
+从整个系统的结果来说的话挺好的
+
+1、以后apend技能可以退回重点；
+
+2、硬币获取数量增加，你不追求点满的话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 1宝是不是能120+1被动了 懒得算（
+
+*****
+
+####  格林卡罗尔  
+##### 13906#       发表于 2024-8-9 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845294&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 16:54</a>
+你好 3星不在范围内</blockquote>
+草，第三条我以为是三星，原来是常驻四星，常驻四星真没人权
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TheLoof  
+##### 13907#       发表于 2024-8-9 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845312&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 16:55</a>
+
+1宝是不是能120+1被动了 懒得算（</blockquote>
+我连120级都懒得拉你还让我算
+
+直接等隔壁吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 13908#       发表于 2024-8-9 16:57
+
+常驻4星要重复16骑以上才会开始给硬币，基本不可能
+
+*****
+
+####  都谷捻柏  
+##### 13909#       发表于 2024-8-9 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845229&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 16:48</a>
+还有一段  超过一定宝具数量的从者硬币可以换其他从者的硬币</blockquote>
+这个换别的从者的硬币是对应这几天抽到的人的补偿，并不会一直有效。
+

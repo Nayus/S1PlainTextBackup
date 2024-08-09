@@ -6888,3 +6888,11 @@ TMD小教授怎么是你
 不愧是豹豹 已经拉完多少个120了？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又在瞎说....非洲人一直也只有摩根一个120....其他大多数2宝角色最多也就只能拉到114级
 
+
+*****
+
+####  v22325  
+##### 13944#       发表于 2024-8-10 03:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">235抽总算没歪出了第一个五星艾蕾。TM的0.1
+

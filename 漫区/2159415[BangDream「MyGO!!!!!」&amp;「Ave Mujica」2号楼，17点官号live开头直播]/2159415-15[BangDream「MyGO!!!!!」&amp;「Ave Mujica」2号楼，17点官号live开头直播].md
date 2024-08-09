@@ -13594,3 +13594,13 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 武士道确实是有周边产业的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好多热门番的谷都是bushiroad creative的
 
+
+*****
+
+####  webashrat  
+##### 21952#       发表于 2024-8-10 01:09
+
+路人们我知道你一头像是galgame主页满屏日语lovelive赛马娘口号是百合赛高柚子厨万岁日常用盗版网站看番吃了一个星期泡面终于存下穿着自印蕾姆痛衣去漫展的钱给白嫖观看了好久的地偶打call
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

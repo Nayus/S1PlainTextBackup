@@ -1077,3 +1077,12 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 然后就是胸前这个简单粗暴的四色结只适合犬组但不适合猫组，不知 ...</blockquote>
 老实说“动起来就顺眼了”比较依赖剧内精彩华丽的动作戏，不知道犬q这个禁打斗要怎么才能把动作戏玩出花来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  有骨气的百合  
+##### 2005#       发表于 2024-8-9 16:11
+
+<img src="https://p.sda1.dev/18/f4e996e01ab60b93ae0d737b4daf2e8b/CMP_20240809160948207.jpeg" referrerpolicy="no-referrer">
+全员白色有点太没辨识度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

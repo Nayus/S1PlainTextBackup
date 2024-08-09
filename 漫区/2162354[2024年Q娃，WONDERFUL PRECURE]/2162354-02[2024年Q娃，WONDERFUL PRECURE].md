@@ -1054,3 +1054,13 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 <img src="https://p.sda1.dev/18/b1e198569be1b6fc33d6050ba1421fae/066.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/be4c31d1d68b512f54d61aefc9ecc38e/067.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 2003#       发表于 2024-8-9 14:46
+
+二段的样式其实我觉得挺有微笑组即视感的
+
+然后就是胸前这个简单粗暴的四色结只适合犬组但不适合猫组，不知道正片里看起来是否会更好些
+

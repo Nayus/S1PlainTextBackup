@@ -4694,3 +4694,11 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 黑月这么多戏份是不是因为你法很重视国内市场</blockquote>
 黑月的剧情真不会让人怀疑是在乳化吗，牌面居然是曹李这种太监<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2598#       发表于 2024-8-9 14:35
+
+鬼佬和太君那边都有说是讨好国人，可能是执行坏了
+

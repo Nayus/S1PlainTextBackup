@@ -4848,3 +4848,36 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 只能说真要写要么单独出个外传要么把设定转移到别的作品去（）比如变成什么上世纪日本的华人黑帮（）或者香港警匪片（）
 
+
+*****
+
+####  一步成诗  
+##### 2614#       发表于 2024-8-9 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844775&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-9 16:09</a>
+
+黑龙城寨这个有明确的参考方向确实问题不大
+
+黑月我觉得问题就是，它整个组织的设计得太糙了，也没啥很好 ...</blockquote>
+你法写黑月就是借了个老中黑帮的框架，然后往里面塞一些奇奇怪怪的东西搞得不伦不类，0b写得不多所以错的也少并且还有点神秘感，然后黎轨大家都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2615#       发表于 2024-8-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844911&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-9 16:22</a>
+
+你法写黑月就是借了个老中黑帮的框架，然后往里面塞一些奇奇怪怪的东西搞得不伦不类，0b写得不多所以错的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，说到底就是太糙了，乱七八糟的设计没有很好通过设定缝合起来就开始写剧本了，到处都是漏洞，少写点还好，越写问题越多（
+
+*****
+
+####  一步成诗  
+##### 2616#       发表于 2024-8-9 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844937&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-9 16:24</a>
+
+对，说到底就是太糙了，乱七八糟的设计没有很好通过设定缝合起来就开始写剧本了，到处都是漏洞，少写点还 ...</blockquote>
+同理八叶受大家欢迎有部分原因就因为这是他们本国的东西写起来得心应手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会写真的少写点吧
+

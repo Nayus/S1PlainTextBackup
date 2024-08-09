@@ -6265,3 +6265,13 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga是不是已经把硬币的事情忘的一干二净了  
 
+
+*****
+
+####  都谷捻柏  
+##### 13884#       发表于 2024-8-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844416&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-9 15:28</a>
+nga是不是已经把硬币的事情忘的一干二净了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币还是次要问题，只开2和5还好。让人绷不住的是他们只算三面伤害，把buff全堆起来算个结果就开吹，完全不管一面单怪怎么办，突出一个抽象。
+

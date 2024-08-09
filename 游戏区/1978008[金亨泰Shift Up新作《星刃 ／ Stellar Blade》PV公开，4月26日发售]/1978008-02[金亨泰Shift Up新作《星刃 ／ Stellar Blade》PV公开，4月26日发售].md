@@ -32,3 +32,11 @@
 
 今天想起这游戏，于是翻出我的日服账号想下个日版试玩，结果搞了半天也没找到，问题是我明明在发售前用主号下过港版的试玩，游戏还在我机器里只不过没打开呢，然后终于发现，想试玩？请充值会员。这出生索尼现在是真几把不要脸啊。<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">所以问问楼里，港版的试玩存档应该是不能继承给日版光盘的吧？还是日语听着习惯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 1692#       发表于 2024-8-10 04:13
+
+首发到上个月才真正开玩玩到现在通了，总体来说是符合我各方面喜好的游戏，真结局接着二周目继续全收集全结局<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

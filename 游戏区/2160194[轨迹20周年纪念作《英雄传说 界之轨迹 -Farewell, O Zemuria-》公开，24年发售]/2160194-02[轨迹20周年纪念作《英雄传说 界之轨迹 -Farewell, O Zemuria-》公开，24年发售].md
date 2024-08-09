@@ -4659,3 +4659,19 @@ Nico恢复了，OP投稿才两天就有两千播放：
 
 很搞笑的特典啊
 
+
+*****
+
+####  酷乐  
+##### 2595#       发表于 2024-8-9 11:09
+
+轨迹TCG，伊苏TRPG
+
+<img src="https://img.saraba1st.com/forum/202408/09/110915p6egg6t6u7eldg3b.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7567.png</strong> (710.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 11:09 上传
+

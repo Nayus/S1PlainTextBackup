@@ -6275,3 +6275,27 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 nga是不是已经把硬币的事情忘的一干二净了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币还是次要问题，只开2和5还好。让人绷不住的是他们只算三面伤害，把buff全堆起来算个结果就开吹，完全不管一面单怪怎么办，突出一个抽象。
 
+
+*****
+
+####  DARKGRAY  
+##### 13885#       发表于 2024-8-9 16:34
+
+看样子硬币怂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 13886#       发表于 2024-8-9 16:34
+
+送硬币了，楼友好奶
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  麻花疼  
+##### 13887#       发表于 2024-8-9 16:37
+
+改系统了？
+

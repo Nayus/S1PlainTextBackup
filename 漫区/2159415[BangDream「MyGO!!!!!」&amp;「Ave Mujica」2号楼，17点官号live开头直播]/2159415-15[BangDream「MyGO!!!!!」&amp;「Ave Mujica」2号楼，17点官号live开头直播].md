@@ -13405,3 +13405,11 @@ taki成了国服第一个上生日庆祝的狗团成员，但是只上生日礼�
 今天椎名立希生日
 鼓子是能连续两天过生日的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 21930#       发表于 2024-8-9 08:33
+
+没必要吧只要进游戏了感觉没必要延后啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

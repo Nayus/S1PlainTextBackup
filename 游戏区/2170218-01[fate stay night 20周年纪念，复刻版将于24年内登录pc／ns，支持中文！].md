@@ -381,3 +381,25 @@ Psv版好像就是这样做的</blockquote>
 玩了序章的一半。汉化好像没什么问题，至少光看中文看不太出来。比魔夜那个只读中文，都能感觉到别扭的汉化 ...</blockquote>
 默认主人公不带语音吧，比如ps2版序章凛默认就是静音的（不过ps2序章土狼反而不静音）
 
+
+*****
+
+####  760194962  
+##### 119#       发表于 2024-8-9 08:57
+
+<blockquote>cuchulain2021 发表于 2024-8-9 08:55
+默认主人公不带语音吧，比如ps2版序章凛默认就是静音的（不过ps2序章土狼反而不静音） ...</blockquote>
+我记得ps2序章开始也是Shirou静音Rin不静音
+
+*****
+
+####  cuchulain2021  
+##### 120#       发表于 2024-8-9 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65840869&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-9 08:57</a>
+
+我记得ps2序章开始也是Shirou静音Rin不静音</blockquote>
+我刚打开试了下，就是凛默认静音啊……
+
+而且序章静音那边没有办法单独设置士郎的，只有设置凛的
+

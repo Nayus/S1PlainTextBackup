@@ -13507,3 +13507,11 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 拖，就硬拖，我就是要拖住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 21943#       发表于 2024-8-9 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">新歌之前，earth的鬼圖MV都沒吐出來呢
+

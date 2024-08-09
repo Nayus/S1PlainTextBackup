@@ -107,3 +107,11 @@ debuff拉满是这样的。
 不 ...</blockquote>
 p组完全没有做大地图的经验和能力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁smt组虽然有大地图经验其实也是更多偏向精致小箱庭路子
 
+
+*****
+
+####  herryk159  
+##### 640#       发表于 2024-8-10 01:35
+
+这游戏十月才发售，怎么感觉已经营销大半年了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

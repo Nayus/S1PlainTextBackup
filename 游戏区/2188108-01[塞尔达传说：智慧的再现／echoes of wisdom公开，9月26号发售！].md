@@ -4310,3 +4310,15 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  雾时  
+##### 435#       发表于 2024-8-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65843805&amp;ptid=2188108" target="_blank">leonlink 发表于 2024-8-9 14:25</a>
+众神3是吧，林克你家没了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+空地还特地做了土路连通过去。感觉可以塞个自定义房屋的玩法进去<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

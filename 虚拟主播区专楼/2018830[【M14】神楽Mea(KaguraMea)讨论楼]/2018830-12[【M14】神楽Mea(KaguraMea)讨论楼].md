@@ -5602,3 +5602,53 @@ urc喂饭200→600
 
 出魔抗是犯法的吗
 
+
+*****
+
+####  古战场亡魂  
+##### 17117#       发表于 2024-8-9 13:29
+
+中午看了一把有点6啊，控兵线，上单白金3波比单杀翡翠3诺手。扛着队伍度过前期。
+
+<img src="https://img.saraba1st.com/forum/202408/09/132900rjos9ydogjnoeggd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (127.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 13:29 上传
+
+<img src="https://img.saraba1st.com/forum/202408/09/132916xeame7tw3wnfxatm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 13:29 上传
+
+<img src="https://img.saraba1st.com/forum/202408/09/132944anypqnwqtocauvy2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (275.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 13:29 上传
+
+*****
+
+####  sino__unnko3  
+##### 17118#       发表于 2024-8-9 14:27
+
+草，直接拉黑了评论区某位并且现场对线吗(帅otto(不是)
+
+*****
+
+####  sino__unnko3  
+##### 17119#       发表于 2024-8-9 14:52
+
+ 本帖最后由 sino__unnko3 于 2024-8-9 14:55 编辑 
+
+好像快下了，晚上可能歌回
+真就lol连轴+睡觉啊
+到盂兰盆节之前有啥假期还是啥安排来着没听清
+

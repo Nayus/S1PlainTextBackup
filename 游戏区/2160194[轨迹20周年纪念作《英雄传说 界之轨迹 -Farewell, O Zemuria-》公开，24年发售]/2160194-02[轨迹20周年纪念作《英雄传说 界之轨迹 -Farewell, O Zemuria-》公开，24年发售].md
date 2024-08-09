@@ -4702,3 +4702,11 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 鬼佬和太君那边都有说是讨好国人，可能是执行坏了
 
+
+*****
+
+####  keiyoku  
+##### 2599#       发表于 2024-8-9 14:48
+
+你法内部是真有国人吧，但写出这么个鬼玩意不问问社内国人感想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

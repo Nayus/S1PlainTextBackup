@@ -13604,3 +13604,13 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  氯化磷君  
+##### 21953#       发表于 2024-8-10 02:18
+
+晚上七八点还想着邦批战五渣怎么打得过死小姐，没想到居然真的反攻了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

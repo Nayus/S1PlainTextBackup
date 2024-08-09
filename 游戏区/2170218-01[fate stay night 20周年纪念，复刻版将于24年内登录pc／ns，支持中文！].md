@@ -439,3 +439,45 @@ Psv版好像就是这样做的</blockquote>
 
 【《命运之夜：新星》ps2平台文字剧情游戏，人物对话有语音（游戏推荐36）-哔哩哔哩】 https://b23.tv/AHso7Zv
 
+
+*****
+
+####  cuchulain2021  
+##### 123#       发表于 2024-8-9 10:04
+
+ 本帖最后由 cuchulain2021 于 2024-8-9 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65841216&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-9 09:38</a>
+
+找来找去都找不到ps2的游玩流程，一时只找到这个
+
+【《命运之夜：新星》ps2平台文字剧情游戏，人物对话有 ...</blockquote>
+自己下个iso试试不就知道了么，不过我刚才说错了一点，士郎那边语音确实可以单独设置，默认不静音而已（他是随人物出现解锁的）
+
+<img src="https://img.saraba1st.com/forum/202408/09/100540ios33groodsj1os1.jpg" referrerpolicy="no-referrer">
+
+<strong>73bd6f03d79e6cf4.png.jpg</strong> (119.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 10:05 上传
+
+<img src="https://img.saraba1st.com/forum/202408/09/100541orxqq4n44xyr66wq.jpg" referrerpolicy="no-referrer">
+
+<strong>677c119de084f319.png.jpg</strong> (421.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 10:05 上传
+
+进入凛视角序章默认就是mute
+
+<img src="https://img.saraba1st.com/forum/202408/09/100544mbn4tvt2o8d4b8tb.jpg" referrerpolicy="no-referrer">
+
+<strong>0227cbcad7e2610e.png.jpg</strong> (470.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-9 10:05 上传
+
+士郎出现场景，默认不是mute
+

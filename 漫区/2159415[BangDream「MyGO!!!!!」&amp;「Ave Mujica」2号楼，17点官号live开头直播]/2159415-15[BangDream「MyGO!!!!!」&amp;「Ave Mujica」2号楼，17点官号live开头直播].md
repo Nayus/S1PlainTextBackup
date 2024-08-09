@@ -13515,3 +13515,11 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">新歌之前，earth的鬼圖MV都沒吐出來呢
 
+
+*****
+
+####  仟音一心  
+##### 21944#       发表于 2024-8-9 21:19
+
+<img src="https://p.sda1.dev/18/9cf8e124f083a2a1e4efd50153617290/image.jpg" referrerpolicy="no-referrer">
+

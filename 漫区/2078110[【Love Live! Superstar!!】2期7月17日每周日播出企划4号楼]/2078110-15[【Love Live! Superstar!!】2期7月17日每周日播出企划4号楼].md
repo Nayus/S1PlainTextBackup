@@ -1534,3 +1534,14 @@ btw，平山采访说日升会给制作人三 ...</blockquote>
 
 异次元这个分团直拍有点意思
 
+
+*****
+
+####  starring  
+##### 20865#       发表于 2024-8-9 21:20
+
+猫组去纽约，K组上超次元音乐祭，接下来5组应该也会有单独活动
+<img src="https://p.sda1.dev/18/9582072ac120918192cfab763958e532/image.jpg" referrerpolicy="no-referrer">">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

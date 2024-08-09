@@ -4683,3 +4683,14 @@ Nico恢复了，OP投稿才两天就有两千播放：
 
 Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份。http://t.cn/A68mGEWJ（曾于2022年9月22日官宣突破700万份） ​​​
 
+
+*****
+
+####  fireadol  
+##### 2597#       发表于 2024-8-9 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65836137&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-8-8 18:04</a>
+
+黑月这么多戏份是不是因为你法很重视国内市场</blockquote>
+黑月的剧情真不会让人怀疑是在乳化吗，牌面居然是曹李这种太监<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

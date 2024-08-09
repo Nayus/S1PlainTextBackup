@@ -1256,3 +1256,28 @@ B服安卓 100 112 138 134
 
 好在接下一年不用抽卡了。
 
+
+*****
+
+####  advancedigger  
+##### 46650#       发表于 2024-8-9 14:24
+
+从没有这种烦恼
+
+他强任他强，一宝当收藏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  麻花疼  
+##### 46651#       发表于 2024-8-9 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65843792&amp;ptid=1712412" target="_blank">advancedigger 发表于 2024-8-9 14:24</a>
+
+从没有这种烦恼
+
+他强任他强，一宝当收藏</blockquote>
+我明明可怜汇呆，结果她不爱我！
+
+上次这么惨还是补金时第3宝。。。
+

@@ -4298,3 +4298,15 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 召唤的魔物消失后,消耗的费用就立即回复,可以再次召唤,无限连续。
 
+
+*****
+
+####  leonlink  
+##### 434#       发表于 2024-8-9 14:25
+
+<img src="https://p.sda1.dev/18/56eb4d5d6e05c8f2a97196d78f60b345/image.jpg" referrerpolicy="no-referrer">
+
+众神3是吧，林克你家没了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

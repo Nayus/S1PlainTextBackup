@@ -6840,3 +6840,14 @@ TMD小教授怎么是你
 怎么可能....再无耻的运营也干不出把已经答应过的补偿再收回去这种事吧</blockquote>
 毕竟换补偿方式了嘛，之前铸圣杯投的币不再是被坑的支出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13940#       发表于 2024-8-9 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65846256&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-9 18:10</a>
+
+我只关心到底什么时候送杯子.....杯子已经用完了想趁着周年大成功期间再拉几个120 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币都没发居然能拉这么多120  豹豹恐怖如斯
+

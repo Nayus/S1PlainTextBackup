@@ -6864,3 +6864,16 @@ TMD小教授怎么是你
 
 我之前大多数角色都不开被动技能的
 
+
+*****
+
+####  alucardcz  
+##### 13942#       发表于 2024-8-9 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65846560&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-9 18:41</a>
+
+可以先拉到把现有硬币用完后的最高级啊
+
+我之前大多数角色都不开被动技能的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是豹豹 已经拉完多少个120了？
+

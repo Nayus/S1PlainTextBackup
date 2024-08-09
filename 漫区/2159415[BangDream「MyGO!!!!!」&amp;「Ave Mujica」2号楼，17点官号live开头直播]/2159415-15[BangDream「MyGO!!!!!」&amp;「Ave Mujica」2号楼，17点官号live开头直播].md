@@ -13475,3 +13475,11 @@ MyGO是9.15实装的，4.7正好卡在能不能赶上Mujica完结后第一期活
 
 看之前的照片管人团中之人出场要带动物头套，太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外现在已经滑坡到管人就是下一个游戏实装团了
 
+
+*****
+
+####  星天观测  
+##### 21939#       发表于 2024-8-9 11:03
+
+我们鸡真是前途一片黑暗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

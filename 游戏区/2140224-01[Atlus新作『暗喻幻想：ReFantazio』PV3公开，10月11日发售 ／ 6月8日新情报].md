@@ -95,3 +95,15 @@ debuff拉满是这样的。
 
 现在异世界也很火啊，只不过绝大部分异世界观众在异世界作品里追求的东西这个游戏里似乎看不到就是了
 
+
+*****
+
+####  SuNR1sE364  
+##### 639#       发表于 2024-8-10 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65833811&amp;ptid=2140224" target="_blank">kuarwbwe 发表于 2024-8-8 14:44</a>
+看了pmm的试玩汇报感觉好了点，反正继续悲观吧，主要是战斗那个念经bgm好魔性好劲。拉回了一点印象分。
+
+不 ...</blockquote>
+p组完全没有做大地图的经验和能力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁smt组虽然有大地图经验其实也是更多偏向精致小箱庭路子
+

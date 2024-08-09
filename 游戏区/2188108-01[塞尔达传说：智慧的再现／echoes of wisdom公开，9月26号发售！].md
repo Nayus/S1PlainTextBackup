@@ -4330,3 +4330,24 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 林克这次会变兔子吗
 
+
+*****
+
+####  佛罗伦萨  
+##### 437#       发表于 2024-8-9 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65842546&amp;ptid=2188108" target="_blank">扭曲论坛 发表于 2024-8-9 11:50</a>
+
+虚化模糊的担忧的点是什么，模拟景深的效果实现的不好？</blockquote>
+织梦岛的效果不是很好，虚化模糊的面积很大，仿佛每时每刻都在迷雾森林。本作看几个片段会好一些，不知道实机如何
+
+
+*****
+
+####  扭曲论坛  
+##### 438#       发表于 2024-8-9 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845736&amp;ptid=2188108" target="_blank">佛罗伦萨 发表于 2024-8-9 17:27</a>
+织梦岛的效果不是很好，虚化模糊的面积很大，仿佛每时每刻都在迷雾森林。本作看几个片段会好一些，不知道 ...</blockquote>
+感觉和微缩模型的美术风格绑定了，有点难解决<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+

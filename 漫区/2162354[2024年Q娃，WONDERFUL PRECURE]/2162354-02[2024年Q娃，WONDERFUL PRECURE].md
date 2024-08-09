@@ -1086,3 +1086,11 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 <img src="https://p.sda1.dev/18/f4e996e01ab60b93ae0d737b4daf2e8b/CMP_20240809160948207.jpeg" referrerpolicy="no-referrer">
 全员白色有点太没辨识度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HANDAIYV  
+##### 2006#       发表于 2024-8-9 17:32
+
+头上顶个蛋有点太怪了
+

@@ -6733,3 +6733,20 @@ TMD小教授怎么是你
 鬼想到是这么个扔法
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 13930#       发表于 2024-8-9 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65845722&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-9 17:26</a>
+
+没，当时的解包写的是可选释放
+
+下意识以为是可以直接扔出去
+
+鬼想到是这么个扔法</blockquote>
+其实我不太在乎选择的权利，多点两下就嫌废手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还不如改成随机三选二...
+
+要是明天外星人强化把O蛇神二技能的指向性充能削成只能对单，我都没意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

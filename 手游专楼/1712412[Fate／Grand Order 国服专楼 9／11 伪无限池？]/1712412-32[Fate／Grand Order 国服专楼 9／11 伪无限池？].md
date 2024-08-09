@@ -1200,3 +1200,11 @@ fgo开命座了，开命座了，开命座了，重要的事情说三遍
 
 难得双黄来个项羽 的亏后面还有个汇呆 不然要骂人了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  izumilee  
+##### 46645#       发表于 2024-8-9 10:21
+
+29呼符，1水呆，歪了1杰克，200石头等二期再看怎么抽
+

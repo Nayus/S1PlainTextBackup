@@ -20,3 +20,16 @@
 
 弓箭和斧头升满了，接下来推荐升什么兵种啊
 
+
+*****
+
+####  暗影吉他手  
+##### 210#       发表于 2024-8-10 07:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65842841&amp;ptid=2140223" target="_blank">32767 发表于 2024-8-9 12:25</a>
+
+游戏更新了
+
+总算有只显示已有魔像的模式，不过现在魔像多了意义不大了，游戏初期看着大片空白的魔像列表的 ...</blockquote>
+原来真有纯娱乐的魔像啊，初期拿了个“村民会来向宗打招呼”的魔像，试了半天也没搞明白有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

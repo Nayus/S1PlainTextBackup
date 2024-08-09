@@ -4718,3 +4718,17 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 讨好国人挺正常的，我记得我之前看到一个数据，黎轨还是创轨来着，ps商店数字版，销售比例中港服占近40%，是ps商店销售游戏里港服占比最高的一款，应该是22年的数据，找了好几次没找到出处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2601#       发表于 2024-8-9 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得你法社确实有讨好国人的想法，但是执行的结果嘛。。。。
+
+至于社内国人，在日企这种等级森严的体系里面，这些新进入的国人员工有多少话语权只能说我不好说
+
+而且你不能保证这些日企国人的屁股（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过就黑月的描写来说，更多还是编剧自己拍脑袋凭借自己想象搁那瞎编
+

@@ -6257,3 +6257,11 @@ ex里面剩下四个还没嚯嚯，其中ruler是最早的ex，嚯嚯掉好像�
 
 阿比这种单回合特攻100的还是少个90++喂饭本，NGA已经开始贷款狂吹我是没想到的
 
+
+*****
+
+####  alucardcz  
+##### 13883#       发表于 2024-8-9 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga是不是已经把硬币的事情忘的一干二净了  
+

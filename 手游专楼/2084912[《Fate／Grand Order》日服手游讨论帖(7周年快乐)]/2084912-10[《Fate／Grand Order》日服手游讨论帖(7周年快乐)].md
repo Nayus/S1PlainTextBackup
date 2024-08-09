@@ -6602,3 +6602,42 @@ TMD小教授怎么是你
 
 小教授强化了能打过水妖兰吗？我福袋刚出的水妖兰<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 13919#       发表于 2024-8-9 17:12
+
+限定三星这种东西是不是被遗忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  格林卡罗尔  
+##### 13920#       发表于 2024-8-9 17:12
+
+我觉得尺阶没必要争个一二三，手牵手做好兄弟得了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  TheLoof  
+##### 13921#       发表于 2024-8-9 17:16
+
+小教授的宝具威力UP变成3t了，关底直接叠到60%
+
+妖兰是60攻30魔放30宝具威力
+
+小教授是60宝具威力50魔放，但是有宝具本
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 13922#       发表于 2024-8-9 17:16
+
+这次强化的5星大部分轮空了，我不信明天会强化我唯二没有的外星人小王子跟旺吉娜
+

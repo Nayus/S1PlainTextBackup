@@ -1317,3 +1317,16 @@ B服安卓 100 112 138 134
 166折算成石头也就498，1908石头第二宝，平均2000石一宝，如何做到第一天更欧的？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我楼里发言就知道了，第一天就甚至还歪了个月神
 
+
+*****
+
+####  冷泡茶  
+##### 46655#       发表于 2024-8-9 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844534&amp;ptid=1712412" target="_blank">麻花疼 发表于 2024-8-9 15:42</a>
+
+看我楼里发言就知道了，第一天就甚至还歪了个月神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那不是1000石一宝吗
+
+你非洲你值得<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

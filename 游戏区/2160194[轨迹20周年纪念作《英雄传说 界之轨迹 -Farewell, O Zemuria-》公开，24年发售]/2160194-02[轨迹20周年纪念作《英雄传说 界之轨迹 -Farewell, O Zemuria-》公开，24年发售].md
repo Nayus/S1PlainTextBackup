@@ -4748,3 +4748,18 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那来打HD2还能知道北欧爷一年有多少天不是放假（）
 
+
+*****
+
+####  SuNR1sE364  
+##### 2604#       发表于 2024-8-9 15:51
+
+我看在这里的各位对黑月都不太满意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">法社真是想讨好那也是发力发错方向了
+
+*****
+
+####  diectt  
+##### 2605#       发表于 2024-8-9 15:56
+
+不是不太满意，是太不满意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

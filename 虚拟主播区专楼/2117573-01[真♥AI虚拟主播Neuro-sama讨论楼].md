@@ -1499,3 +1499,16 @@ T台都是活人，b站这关注人数水分太多了<img src="https://static.sa
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Totokei  
+##### 145#       发表于 2024-8-9 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢感觉最近入驻b站有毒
+
+filian感觉同时入驻和爆炸
+mr beast入驻没几天也炸了
+
+现在牛肉？
+

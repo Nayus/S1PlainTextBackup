@@ -4710,3 +4710,11 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 你法内部是真有国人吧，但写出这么个鬼玩意不问问社内国人感想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  diectt  
+##### 2600#       发表于 2024-8-9 15:24
+
+讨好国人挺正常的，我记得我之前看到一个数据，黎轨还是创轨来着，ps商店数字版，销售比例中港服占近40%，是ps商店销售游戏里港服占比最高的一款，应该是22年的数据，找了好几次没找到出处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

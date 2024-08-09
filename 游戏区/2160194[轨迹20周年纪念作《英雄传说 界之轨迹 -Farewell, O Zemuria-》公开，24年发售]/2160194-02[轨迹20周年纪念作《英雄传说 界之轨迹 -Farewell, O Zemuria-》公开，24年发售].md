@@ -4732,3 +4732,19 @@ Falcom最新财报宣布《轨迹》系列全球累计销量已突破800万份�
 
 不过就黑月的描写来说，更多还是编剧自己拍脑袋凭借自己想象搁那瞎编
 
+
+*****
+
+####  一步成诗  
+##### 2602#       发表于 2024-8-9 15:39
+
+唉今年蹲情报蹲得都知道日本人什么时候放假放多少天了，酸啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 2603#       发表于 2024-8-9 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那来打HD2还能知道北欧爷一年有多少天不是放假（）
+

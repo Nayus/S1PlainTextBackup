@@ -1306,3 +1306,14 @@ B服安卓 100 112 138 134
 于是，惨案发生了。</blockquote>
 166折算成石头也就498，1908石头第二宝，平均2000石一宝，如何做到第一天更欧的？
 
+
+*****
+
+####  麻花疼  
+##### 46654#       发表于 2024-8-9 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844213&amp;ptid=1712412" target="_blank">冷泡茶 发表于 2024-8-9 15:07</a>
+
+166折算成石头也就498，1908石头第二宝，平均2000石一宝，如何做到第一天更欧的？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我楼里发言就知道了，第一天就甚至还歪了个月神
+

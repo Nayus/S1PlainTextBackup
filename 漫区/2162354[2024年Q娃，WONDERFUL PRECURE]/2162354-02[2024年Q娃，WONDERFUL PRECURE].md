@@ -1064,3 +1064,16 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 然后就是胸前这个简单粗暴的四色结只适合犬组但不适合猫组，不知道正片里看起来是否会更好些
 
+
+*****
+
+####  Arson=desu  
+##### 2004#       发表于 2024-8-9 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65844030&amp;ptid=2162354" target="_blank">待宵 发表于 2024-8-9 14:46</a>
+
+二段的样式其实我觉得挺有微笑组即视感的
+
+然后就是胸前这个简单粗暴的四色结只适合犬组但不适合猫组，不知 ...</blockquote>
+老实说“动起来就顺眼了”比较依赖剧内精彩华丽的动作戏，不知道犬q这个禁打斗要怎么才能把动作戏玩出花来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

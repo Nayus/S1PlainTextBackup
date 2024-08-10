@@ -694,3 +694,45 @@ Asobi那边也会有广播节目了（和AM那个是不同节目）。
 
 录播有吗，我想看小火龙唱fighting my way唱破音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cckuku  
+##### 6083#       发表于 2024-8-10 18:56
+
+说实话小黄唱的有点难听了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 6084#       发表于 2024-8-10 18:57
+
+听说小美野在门口一个个送人？
+
+*****
+
+####  BQlin  
+##### 6085#       发表于 2024-8-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65854866&amp;ptid=2130897" target="_blank">azbhg1 发表于 2024-8-10 18:47</a>
+
+录播有吗，我想看小火龙唱fighting my way唱破音</blockquote>
+[https://www.bilibili.com/video/av112937289188312/](https://www.bilibili.com/video/av112937289188312/)
+
+完整的应该没那么快，切片倒是一堆了
+
+
+*****
+
+####  azbhg1  
+##### 6086#       发表于 2024-8-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65854969&amp;ptid=2130897" target="_blank">BQlin 发表于 2024-8-10 18:57</a>
+
+https://www.bilibili.com/video/av112937289188312/
+
+完整的应该没那么快，切片倒是一堆了 ...</blockquote>
+好，刚好就只想听这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这一开口就把我整笑抽了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

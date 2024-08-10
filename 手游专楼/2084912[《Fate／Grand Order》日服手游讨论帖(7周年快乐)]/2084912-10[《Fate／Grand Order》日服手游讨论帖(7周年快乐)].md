@@ -6926,3 +6926,18 @@ TMD小教授怎么是你
 
 神经病。。。给敌人降蓝抗3回合有什么意义？ 
 
+
+*****
+
+####  cckuku  
+##### 13949#       发表于 2024-8-10 17:09
+
+还加了30黄金率啊，挺不错的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她弱主要是外星人的问题。
+
+*****
+
+####  alucardcz  
+##### 13950#       发表于 2024-8-10 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该展望明天了 cba or 梅林！
+

@@ -16,3 +16,13 @@
 
 — from Xiaomi 2203121C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4372#       发表于 2024-8-11 01:52
+
+蒙古压着绿龙打，好nb
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

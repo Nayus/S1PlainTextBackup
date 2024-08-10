@@ -1621,3 +1621,11 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 老叶可以理解，其实我是想说五十岚号称双看板但非要葵中堂空体力投到丢分了才换人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 576#       发表于 2024-8-10 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梨花那是贪胜利运吧，虽说空体力但已经2出局了，能贪到就是赚到啊
+

@@ -7105,3 +7105,14 @@ TMD小教授怎么是你
 
 四星就是术尼托给个同款后置即死但是我的已经15绊了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13969#       发表于 2024-8-10 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65856158&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-8-10 21:01</a>
+
+孔明现在哪来的上班机会啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3技能变成红蓝绿3色50魔防有没有机会上班?
+

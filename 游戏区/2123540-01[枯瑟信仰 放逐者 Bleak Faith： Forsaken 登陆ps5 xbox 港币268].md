@@ -3458,3 +3458,18 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 还以为制作组毛钱跑路了呢<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 272#         楼主| 发表于 2024-8-10 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855633&amp;ptid=2123540" target="_blank">Asukalangley33 发表于 2024-08-10 19:57:09</a>
+这游戏是救活了嘛？居然上主机平台了
+
+初版看的这贴被安利的，玩了2小时实在受不了
+
+还以为制作组毛钱跑路了 ...</blockquote>改了很多版，这应该是最终版了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

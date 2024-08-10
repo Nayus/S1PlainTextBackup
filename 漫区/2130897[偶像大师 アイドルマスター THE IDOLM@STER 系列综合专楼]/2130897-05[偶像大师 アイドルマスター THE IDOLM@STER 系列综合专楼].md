@@ -773,3 +773,11 @@ https://www.bilibili.com/video/av112937289188312/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saki和手球说实话就没啥可能唱好吧，这俩歌难度本来就在的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于皮卡丘……草感觉没法评论
 
+
+*****
+
+####  虚无缥缈的光阴  
+##### 6091#       发表于 2024-8-10 21:18
+
+只能说很符合我对现场水平的预测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

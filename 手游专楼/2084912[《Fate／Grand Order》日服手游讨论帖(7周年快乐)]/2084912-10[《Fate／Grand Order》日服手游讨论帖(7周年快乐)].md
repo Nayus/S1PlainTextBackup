@@ -7116,3 +7116,11 @@ TMD小教授怎么是你
 孔明现在哪来的上班机会啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3技能变成红蓝绿3色50魔防有没有机会上班?
 
+
+*****
+
+####  都谷捻柏  
+##### 13970#       发表于 2024-8-10 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿荣宝具前置了降防，运营光速发公告。我说本来就很弱了，多这20降防也不会有多强，给了就给了呗。
+

@@ -7016,3 +7016,11 @@ TMD小教授怎么是你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据前6天的经验，这波强化都是我没有的限定五星，那么明天必定是梅林了。
 
+
+*****
+
+####  低调不圆滑  
+##### 13960#       发表于 2024-8-10 18:49
+
+拥有完美技能组的水尼禄就差一个宝具本了
+

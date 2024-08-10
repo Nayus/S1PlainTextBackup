@@ -686,3 +686,11 @@ Asobi那边也会有广播节目了（和AM那个是不同节目）。
 
 只能说近几年灰和闪的新人初登场表现都很好，给了过高的期望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  azbhg1  
+##### 6082#       发表于 2024-8-10 18:47
+
+录播有吗，我想看小火龙唱fighting my way唱破音<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

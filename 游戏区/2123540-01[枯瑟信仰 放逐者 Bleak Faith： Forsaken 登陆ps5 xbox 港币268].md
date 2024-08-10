@@ -3394,3 +3394,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 老登们快回来玩 几乎是个新游戏 信我
 
+
+*****
+
+####  DawnGuardian  
+##### 266#       发表于 2024-8-10 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65851886&amp;ptid=2123540" target="_blank">qappip 发表于 2024-8-10 11:45</a>
+
+老登们快回来玩 几乎是个新游戏 信我</blockquote>
+这游戏是卖了多少啊怎么还在大改<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

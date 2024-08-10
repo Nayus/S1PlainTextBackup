@@ -6999,3 +6999,20 @@ TMD小教授怎么是你
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Jamaisvu  
+##### 13958#       发表于 2024-8-10 18:35
+
+北斋这次强化把三技能改了，包括宝具在内的蓝卡攻击前就会赋予20减防。
+
+不考虑敌方抗性和特攻的前提下，自buff相当于50蓝放和20攻击，好像还挺可观的...
+
+*****
+
+####  都谷捻柏  
+##### 13959#       发表于 2024-8-10 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据前6天的经验，这波强化都是我没有的限定五星，那么明天必定是梅林了。
+

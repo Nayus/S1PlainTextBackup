@@ -44,3 +44,14 @@
 弓箭和斧头升满了，接下来推荐升什么兵种啊</blockquote>
 可以把弓退了，全投入到火枪手上，这是用到通关的主力输出职业，然后可以相扑，减速。
 
+
+*****
+
+####  Sleipnirω  
+##### 212#       发表于 2024-8-10 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65851453&amp;ptid=2140223" target="_blank">conanoysq 发表于 2024-8-10 10:28</a>
+
+可以把弓退了，全投入到火枪手上，这是用到通关的主力输出职业，然后可以相扑，减速。 ...</blockquote>
+好的谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

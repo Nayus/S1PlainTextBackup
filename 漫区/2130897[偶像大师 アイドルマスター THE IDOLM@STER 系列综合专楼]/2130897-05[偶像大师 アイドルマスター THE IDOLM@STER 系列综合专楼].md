@@ -678,3 +678,11 @@ Asobi那边也会有广播节目了（和AM那个是不同节目）。
 
 本身要跳唱的歌要表演得好就很難，今年live中唱跳live印象中比較深還是灰灰的小市，感覺長月要達到這個水平還是要練一兩年
 
+
+*****
+
+####  a1370303  
+##### 6081#       发表于 2024-8-10 18:20
+
+只能说近几年灰和闪的新人初登场表现都很好，给了过高的期望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

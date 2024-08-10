@@ -6989,3 +6989,13 @@ TMD小教授怎么是你
 
 反正不可能是那个男人和狐狸。四星术可能还有点猜测在里面
 
+
+*****
+
+####  格林卡罗尔  
+##### 13957#       发表于 2024-8-10 18:19
+
+明天一定是梅林好吧，不是可以扣我鹅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

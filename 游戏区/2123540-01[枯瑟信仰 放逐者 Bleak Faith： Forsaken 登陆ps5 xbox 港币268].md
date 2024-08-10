@@ -3427,3 +3427,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 老登们快回来玩 几乎是个新游戏 信我</blockquote>
 现在有中文了吗？
 
+
+*****
+
+####  qappip  
+##### 269#         楼主| 发表于 2024-8-10 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65853342&amp;ptid=2123540" target="_blank">塞利斯 发表于 2024-08-10 15:59:44</a>
+现在有中文了吗？</blockquote>没有
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

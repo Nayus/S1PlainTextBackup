@@ -1121,3 +1121,36 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 新的访谈内容依旧令人不安
 
+
+*****
+
+####  Arson=desu  
+##### 2010#       发表于 2024-8-10 09:49
+
+ 本帖最后由 Arson=desu 于 2024-8-10 10:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65851057&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-8-10 08:47</a>
+
+新的访谈内容依旧令人不安</blockquote>
+实锤了彩叶小姐的女主位而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犬飼いろは  
+##### 2011#       发表于 2024-8-10 11:04
+
+第28話　大熊牧場で遊ぼ♪
+
+脚本：千葉美鈴
+
+演出：篠原花奈
+
+作画監督：玖遠らぎ
+
+美術：中林由貴
+
+夏休みのある日、こむぎ（CV.長縄まりあ）たちはクラスメイトの大熊の家でもある大熊牧場を訪れる。トランクからメエメエもあらわれ、いっしょに楽しもうとするが、やってきた大熊に群れからはぐれた羊だと思われ、連れ去られてしまう。大熊に案内され、まず牛舎にやってきたこむぎたちは、乳搾り体験をする。そこでとれた牛乳で作ったアイスのおいしさにおどろくこむぎとユキ（CV.松田颯水）。アルパカや子ブタ、ウマとふれあったこむぎたちが次に訪れたのは、シープドッグショーだった。牧羊犬のアンディが走り出すと、放牧地からいっせいに羊たちが押し寄せ、あっという間に牧柵の中に誘導されていく。その中には、メエメエの姿もあった。なんとか羊小屋から脱出してきたメエメエは、大変な目にあったとこむぎたちに話すが、ニコの卵が楽しそうに反応する様子を見て気を取り直す。しかしそのとき、牧場にガルガルがあらわれる。
+<img src="https://p.sda1.dev/18/ba66907f52a2298765521455032867c5/001_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/98818ab3f01ec731197ce53e3c7163f9/002_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/c88a8debed8fa828306670854349d3b8/003_2_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/18/121f0e8989a673dcf7a6ff602354692b/004_2_.jpg" referrerpolicy="no-referrer">
+

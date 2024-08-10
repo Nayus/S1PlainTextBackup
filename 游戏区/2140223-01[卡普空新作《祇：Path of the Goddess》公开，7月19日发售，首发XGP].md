@@ -55,3 +55,14 @@
 可以把弓退了，全投入到火枪手上，这是用到通关的主力输出职业，然后可以相扑，减速。 ...</blockquote>
 好的谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ralfli  
+##### 213#       发表于 2024-8-10 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65850813&amp;ptid=2140223" target="_blank">暗影吉他手 发表于 2024-8-10 07:07</a>
+
+原来真有纯娱乐的魔像啊，初期拿了个“村民会来向宗打招呼”的魔像，试了半天也没搞明白有啥用 ...</blockquote>
+重建时用宗去碰一下村民，他们会对你行礼……
+

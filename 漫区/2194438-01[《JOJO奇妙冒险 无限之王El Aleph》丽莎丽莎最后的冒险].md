@@ -510,3 +510,28 @@ El Señor de las Moscas 蝇王</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  pokemon最爱  
+##### 42#       发表于 2024-8-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65839454&amp;ptid=2194438" target="_blank">シャル 发表于 2024-8-9 00:07</a>
+
+这个不是波波命名的嘛
+
+镇魂歌给死者以安息，最后死者进入天堂不是嘛</blockquote>
+超越天堂不是比**高级而是游戏为了平衡性削了**变成要拳头打到才能发动能力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 43#       发表于 2024-8-10 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65839454&amp;ptid=2194438" target="_blank">シャル 发表于 2024-8-9 00:07</a>
+
+这个不是波波命名的嘛
+
+镇魂歌给死者以安息，最后死者进入天堂不是嘛</blockquote>
+超越天堂不是比黄体镇魂曲高级而是游戏为了平衡性削了镇魂曲变成要拳头打到才能发动能力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

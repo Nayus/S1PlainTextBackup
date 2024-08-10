@@ -7155,3 +7155,14 @@ TMD小教授怎么是你
 
 不知道的还以为这个bug之后北斋比水伊吹还能打了呢23333
 
+
+*****
+
+####  eilot  
+##### 13974#       发表于 2024-8-10 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65856158&amp;ptid=2084912" target="_blank">沼蝇 发表于 2024-8-10 21:01</a>
+
+孔明现在哪来的上班机会啊</blockquote>
+長期在大池內有機會出來能幫他人50充的角色，在角色不足的情況下還有上班可能性
+

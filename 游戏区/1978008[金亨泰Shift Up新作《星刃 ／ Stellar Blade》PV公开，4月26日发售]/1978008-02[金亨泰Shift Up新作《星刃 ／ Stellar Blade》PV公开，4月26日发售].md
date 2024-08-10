@@ -74,3 +74,13 @@
 
 —— 来自 vivo V2307A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  宛若青空  
+##### 1696#       发表于 2024-8-10 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65853064&amp;ptid=1978008" target="_blank">poppin 发表于 2024-8-10 15:12</a>
+夏日活动新服装也是限时的吗？什么时候活动结束啊？前几天盘才到，想要做到这个活动需要流程打大概多久呀。 ...</blockquote>
+不是限时的，会一直在钓鱼NPC商店里
+

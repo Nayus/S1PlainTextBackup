@@ -3405,3 +3405,14 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 老登们快回来玩 几乎是个新游戏 信我</blockquote>
 这游戏是卖了多少啊怎么还在大改<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  qappip  
+##### 267#         楼主| 发表于 2024-8-10 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65851996&amp;ptid=2123540" target="_blank">DawnGuardian 发表于 2024-08-10 12:02:44</a>
+这游戏是卖了多少啊怎么还在大改</blockquote>我也很好奇，这个修改力度挺夸张的。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

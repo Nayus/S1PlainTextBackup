@@ -34,3 +34,13 @@
 
 面包队最强
 
+
+*****
+
+####  KBAC  
+##### 4956#       发表于 2024-8-10 22:25
+
+米饭队的颜色和贝见亭的地板颜色太像了，屏幕亮度调低了有点分辨不清<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

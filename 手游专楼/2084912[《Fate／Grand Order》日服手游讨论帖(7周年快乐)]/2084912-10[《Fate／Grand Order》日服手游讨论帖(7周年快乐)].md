@@ -7147,3 +7147,11 @@ TMD小教授怎么是你
 不考虑敌方抗性和特攻的前提下，自b ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿蓉被楼友奶死了(
 
+
+*****
+
+####  angelooo  
+##### 13973#       发表于 2024-8-10 22:28
+
+不知道的还以为这个bug之后北斋比水伊吹还能打了呢23333
+

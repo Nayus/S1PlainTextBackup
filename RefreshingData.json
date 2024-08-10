@@ -3777,7 +3777,7 @@
     "lastedit": 1723303920,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -4410,10 +4410,10 @@
     "update": false
   },
   "1955542": {
-    "totalreply": 11870,
+    "totalreply": 11871,
     "title": "[《黑神话 悟空》专楼，6分钟新剧情mv加8分钟实机演示公布]",
     "newtitle": "[黑神话 悟空专楼，pc、ps5版24.8.20发售！｜国区售价268，港区298hkd，8.8上午新pv!]",
-    "lastedit": 1723320369,
+    "lastedit": 1723320609,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8892,10 +8892,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 24155,
+    "totalreply": 24156,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1723318569,
+    "lastedit": 1723321088,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -14594,7 +14594,7 @@
     "newtitle": "[如何评价自己玩过的游戏，以及我为什么追求难度]",
     "lastedit": 1723061407,
     "category": "游戏区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194145": {
@@ -16191,10 +16191,10 @@
     "update": false
   },
   "2194649": {
-    "totalreply": 130,
+    "totalreply": 131,
     "title": "[关于饺子的南北文化差异]",
     "newtitle": "[关于饺子的南北文化差异]",
-    "lastedit": 1723318216,
+    "lastedit": 1723320848,
     "category": "外野",
     "active": true,
     "update": false

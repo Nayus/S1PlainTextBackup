@@ -535,3 +535,16 @@ El Señor de las Moscas 蝇王</blockquote>
 镇魂歌给死者以安息，最后死者进入天堂不是嘛</blockquote>
 超越天堂不是比黄体镇魂曲高级而是游戏为了平衡性削了镇魂曲变成要拳头打到才能发动能力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 44#       发表于 2024-8-10 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65842836&amp;ptid=2194438" target="_blank">丹德里恩 发表于 2024-8-9 12:25</a>
+
+这能力大老远直接就能把dio家给扬了，老东西你的替身真是太没用啦</blockquote>
+老东西替身没用主要是老东西打完卡兹就荒废波纹了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实际上紫隐可以作为波纹的传导介质使用，要是老东西维持二部决战水准的波纹水平dio可能撑不到天亮（
+

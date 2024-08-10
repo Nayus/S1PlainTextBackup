@@ -28,3 +28,19 @@
 <img src="https://p.sda1.dev/18/c55e87544e39548f2adc1eddeedb409f/story_3600_photo_1723101759222726855.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/b0e9ffd447dbd4b24e06ae1ca1389275/story_3600_photo_1723101759404556818.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 625#       发表于 2024-8-10 21:31
+
+下周会是补回愚物语还是直接业物语呢
+
+
+*****
+
+####  tjshibc21  
+##### 626#       发表于 2024-8-10 21:34
+
+下周业物语了吧
+

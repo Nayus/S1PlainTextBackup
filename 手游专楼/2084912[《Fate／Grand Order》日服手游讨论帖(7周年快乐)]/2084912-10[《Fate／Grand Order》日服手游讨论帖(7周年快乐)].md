@@ -7124,3 +7124,26 @@ TMD小教授怎么是你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿荣宝具前置了降防，运营光速发公告。我说本来就很弱了，多这20降防也不会有多强，给了就给了呗。
 
+
+*****
+
+####  angelooo  
+##### 13971#       发表于 2024-8-10 22:21
+
+是bug都散了吧
+
+垃圾运营
+
+
+*****
+
+####  alucardcz  
+##### 13972#       发表于 2024-8-10 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65854753&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-10 18:35</a>
+
+北斋这次强化把三技能改了，包括宝具在内的蓝卡攻击前就会赋予20减防。
+
+不考虑敌方抗性和特攻的前提下，自b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿蓉被楼友奶死了(
+

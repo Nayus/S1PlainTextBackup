@@ -1627,3 +1627,44 @@ wc，剧中还有谷子
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cat1230  
+##### 20874#       发表于 2024-8-10 20:48
+
+日剧出了吗？
+
+*****
+
+####  csolfans  
+##### 20875#       发表于 2024-8-10 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65856045&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-8-10 20:48</a>
+日剧出了吗？</blockquote>
+还没 凌晨
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  ads147147  
+##### 20876#       发表于 2024-8-10 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855811&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-8-10 20:17</a>
+wc，剧中还有谷子
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha ...</blockquote>
+鱼这个剧中虚拟形象那么像隔壁学马士的saki<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  starring  
+##### 20877#       发表于 2024-8-11 07:23
+
+出场只有十几秒，还是剧中广告<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

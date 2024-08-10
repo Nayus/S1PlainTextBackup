@@ -1565,3 +1565,14 @@ btw，平山采访说日升会给制作人三 ...</blockquote>
 
 香音应该是撑不过半集就暴露了
 
+
+*****
+
+####  csolfans  
+##### 20868#       发表于 2024-8-10 20:17
+
+<img src="https://p.sda1.dev/18/ff9be49eaf9c4a9ca974ab2a659c2ec5/CMP_20240810201719648.jpg" referrerpolicy="no-referrer">
+wc，剧中还有谷子
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

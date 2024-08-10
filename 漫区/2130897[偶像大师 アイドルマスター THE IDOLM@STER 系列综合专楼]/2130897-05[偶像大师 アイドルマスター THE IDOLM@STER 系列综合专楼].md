@@ -764,3 +764,12 @@ https://www.bilibili.com/video/av112937289188312/
 
 小鹿唱的还行有待加强另外两位就比较难蚌了角色音夹不住歌又难唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 6090#       发表于 2024-8-10 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saki和手球说实话就没啥可能唱好吧，这俩歌难度本来就在的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于皮卡丘……草感觉没法评论
+

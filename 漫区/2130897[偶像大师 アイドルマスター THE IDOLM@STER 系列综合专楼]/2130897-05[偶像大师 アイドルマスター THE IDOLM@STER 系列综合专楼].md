@@ -805,3 +805,16 @@ https://www.bilibili.com/video/av112937289188312/
 
 只能说长月学小火龙每天上午四点去跑步还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  天堂懵懂人  
+##### 6095#       发表于 2024-8-11 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855192&amp;ptid=2130897" target="_blank">azbhg1 发表于 2024-8-10 19:21</a>
+
+https://www.bilibili.com/video/BV1DS411c7HK/
+
+又把这玩意刷了一遍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太神经了（褒义）
+

@@ -7059,3 +7059,11 @@ TMD小教授怎么是你
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  保罗赫伯特  
+##### 13965#       发表于 2024-8-10 19:28
+
+好了，现在的重头戏是明天的五星术是谁了，是梅林/孔明重回巅峰，还是一般路过术阶光炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

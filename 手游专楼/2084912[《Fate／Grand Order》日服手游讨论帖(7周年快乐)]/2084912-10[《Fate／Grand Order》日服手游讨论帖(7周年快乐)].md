@@ -6973,3 +6973,11 @@ TMD小教授怎么是你
 
 明天的5星法，就給你玉藻吧，那就全部技能都強化一次，又或者同一技能再強化多次(看紅A、狂伯爵他們)
 
+
+*****
+
+####  alucardcz  
+##### 13955#       发表于 2024-8-10 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶而已 我也不觉得一个新大拐会靠强化本出
+

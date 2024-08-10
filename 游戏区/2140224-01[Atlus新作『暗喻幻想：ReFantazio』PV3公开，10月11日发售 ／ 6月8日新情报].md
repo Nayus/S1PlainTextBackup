@@ -115,3 +115,11 @@ p组完全没有做大地图的经验和能力吧<img src="https://static.saraba
 
 这游戏十月才发售，怎么感觉已经营销大半年了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhuhh  
+##### 641#       发表于 2024-8-10 17:42
+
+这人设还好吧，感觉风格还挺独特的，而且作画本身画的也挺精致的。本身游戏定位也不是媚宅风格。
+

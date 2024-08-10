@@ -539,3 +539,60 @@ J85_Z0QXXF8$FWV4W2162D6.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，三个人上不去在嚎叫
 
+
+*****
+
+####  rgauss  
+##### 6070#       发表于 2024-8-10 17:45
+
+打复活赛了
+
+*****
+
+####  wfhtony  
+##### 6071#       发表于 2024-8-10 17:47
+
+Setlist（名古屋クラブクアトロ公演 夜）：
+
+・Overture + 1st block<blockquote>[开演前注意事项 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture]
+
+01. 初 // 全员
+
+02. Campus mode!! // 全员
+
+→ 开场MC（MC①）
+
+03. Fighting My Way // 長月あおい
+
+04. Luna say maybe // 小鹿なお
+
+05. 世界一可愛い私 // 飯田ヒカル
+
+→ MC②</blockquote>
+・2nd block<blockquote>06. Boom Boom Pow // 長月あおい
+
+07. Yellow Big Bang！ // 飯田ヒカル
+
+08. アイヴイ // 小鹿なお
+
+→ MC③</blockquote>
+・3rd block + 安可<blockquote>09. キミとセミブルー // 全员
+
+10. EGO // 長月あおい（＊新曲）
+
+→ MC④
+
+11. がむしゃらに行こう！ // 全员
+
+---安可---
+
+12. 冠菊 // 全员
+
+→ 安可MC
+
+13. 初 // 全员
+
+[终演后留言 // ]</blockquote>
+

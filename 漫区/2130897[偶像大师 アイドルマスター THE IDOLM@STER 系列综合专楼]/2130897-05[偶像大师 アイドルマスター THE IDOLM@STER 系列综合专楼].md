@@ -332,3 +332,49 @@ solo表现好不少
 
 这狗屎麦刚刚出问题还不给人换的吗
 
+
+*****
+
+####  a1370303  
+##### 6044#       发表于 2024-8-10 16:59
+
+白线录音室版都快破音了，不过花岩很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黛冬优子  
+##### 6045#       发表于 2024-8-10 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">感觉最后反而是nao一个人能活着出去
+
+*****
+
+####  a1370303  
+##### 6046#       发表于 2024-8-10 17:02
+
+ 本帖最后由 a1370303 于 2024-8-10 17:03 编辑 
+
+ybb比预想的好，小光可爱<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rgauss  
+##### 6047#       发表于 2024-8-10 17:02
+
+饭田体力杂鱼 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">夹了 一首歌夹不完
+
+
+*****
+
+####  黛冬优子  
+##### 6048#       发表于 2024-8-10 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">小鹿苍的守门员！
+
+*****
+
+####  六至九  
+##### 6049#       发表于 2024-8-10 17:05
+
+小鹿真的好稳啊
+

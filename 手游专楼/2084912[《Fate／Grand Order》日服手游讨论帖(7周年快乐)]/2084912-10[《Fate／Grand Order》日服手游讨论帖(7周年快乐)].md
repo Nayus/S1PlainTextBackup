@@ -7082,3 +7082,26 @@ TMD小教授怎么是你
 
 是梅林會否給他能幫他人NP50充，又或者只是補回在寶具發動一刻，能同時全體大補血，前者的話，準備入醫院吃金蘋果吧
 
+
+*****
+
+####  沼蝇  
+##### 13967#       发表于 2024-8-10 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855348&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-10 19:34</a>
+孔明因為能幫他人NP50充，而且更可控制加多少NP(30+10+10)，
+
+上班機會還是好多
+
+是梅林會否給他能幫他人NP ...</blockquote>
+孔明现在哪来的上班机会啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 13968#       发表于 2024-8-10 21:02
+
+要么拐加充要么打手加特攻
+
+四星就是术尼托给个同款后置即死但是我的已经15绊了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

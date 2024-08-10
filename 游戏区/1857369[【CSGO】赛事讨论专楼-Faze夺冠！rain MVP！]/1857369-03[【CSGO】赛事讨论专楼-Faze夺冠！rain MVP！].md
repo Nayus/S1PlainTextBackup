@@ -6,3 +6,13 @@
 
 我怎么感觉现在全是菜逼队啊，所谓强队一只手真的数的完吗？
 
+
+*****
+
+####  Aureliano  
+##### 4371#       发表于 2024-8-11 00:06
+
+几个强队都在变阵边缘，还有液体G2这样的蜜月期队，不稳定挺正常
+
+— from Xiaomi 2203121C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

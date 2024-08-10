@@ -7181,3 +7181,14 @@ TMD小教授怎么是你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以明天给孔明来个超绝强化如何
 
+
+*****
+
+####  保罗赫伯特  
+##### 13977#       发表于 2024-8-10 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65858009&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-10 23:26</a>
+
+所以明天给孔明来个超绝强化如何</blockquote>
+怎么超绝强化，技能加全体减cd吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

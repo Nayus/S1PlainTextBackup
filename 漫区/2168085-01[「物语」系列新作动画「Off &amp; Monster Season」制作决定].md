@@ -52,3 +52,13 @@
 
 无敌咯，要是跟个新pv就更无敌了
 
+
+*****
+
+####  KDConan  
+##### 628#       发表于 2024-8-10 23:57
+
+抚子虽然没积累成一万小时漫画经验，但是却积攒了不少追杀和暗杀经验，很快就能成为专业人才的<img src="https://static.saraba1st.com/image/smiley/carton2017/154.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

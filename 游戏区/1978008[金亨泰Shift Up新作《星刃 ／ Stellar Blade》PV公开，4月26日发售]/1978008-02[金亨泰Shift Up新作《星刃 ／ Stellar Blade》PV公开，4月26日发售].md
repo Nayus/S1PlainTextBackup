@@ -53,3 +53,14 @@
 
 这游戏可能是开发时间太长，技术一边做一边进步，也可能是被索尼扶持后给了不少技术支持，整个流程甚至场景画面质量都是在不断进步的，对比一开始的拆迁楼场景和最后太空电梯内部场景，场景画面质量的跨度甚至有种PS3到PS5的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 1694#       发表于 2024-8-10 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65829496&amp;ptid=1978008" target="_blank">nozomitech 发表于 2024-8-8 07:09</a>
+
+今天想起这游戏，于是翻出我的日服账号想下个日版试玩，结果搞了半天也没找到，问题是我明明在发售前用主号 ...</blockquote>
+不能，要重新打，我之前也是港服的试玩，韩语实在是太难听，忍不了后来直接买的日版盘，日语好听太多，玩的挺爽，而且现在日版盘挺便宜，拼夕夕已经干到350以下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

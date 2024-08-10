@@ -106,3 +106,59 @@ KX59QSVH2(H58CSSP{2MX$H.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">学马第一次小场live开始啦
 
+
+*****
+
+####  六至九  
+##### 6014#       发表于 2024-8-10 16:14
+
+来了来了
+
+*****
+
+####  rgauss  
+##### 6015#       发表于 2024-8-10 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从毛球开场就一直在笑
+
+*****
+
+####  六至九  
+##### 6016#       发表于 2024-8-10 16:21
+
+饭田压不住啊
+
+*****
+
+####  a1370303  
+##### 6017#       发表于 2024-8-10 16:21
+
+草，感觉都在憋笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 6018#       发表于 2024-8-10 16:25
+
+<blockquote>01. 初 // 全員
+
+02. Campus mode!! // 全員</blockquote>
+初手好感度10是吧（
+
+*****
+
+####  馬斯特壺  
+##### 6019#       发表于 2024-8-10 16:27
+
+这三人小场素人味愣是看出股地偶的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  a1370303  
+##### 6020#       发表于 2024-8-10 16:27
+
+虽然唱的不怎么样，但是今天的服化道还可以
+

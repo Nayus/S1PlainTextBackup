@@ -818,3 +818,32 @@ https://www.bilibili.com/video/BV1DS411c7HK/
 又把这玩意刷了一遍</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太神经了（褒义）
 
+
+*****
+
+####  北条早苗  
+##### 6096#       发表于 2024-8-10 22:41
+
+只能说长月学小火龙每天上午四点去跑步还有救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂懵懂人  
+##### 6097#       发表于 2024-8-11 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855192&amp;ptid=2130897" target="_blank">azbhg1 发表于 2024-8-10 19:21</a>
+
+https://www.bilibili.com/video/BV1DS411c7HK/
+
+又把这玩意刷了一遍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太神经了（褒义）
+
+*****
+
+####  YetToCome  
+##### 6098#       发表于 2024-8-11 06:16
+
+虽然说早就有准备了，不过小火龙这还是难崩啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，偏偏她的歌都不好唱
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

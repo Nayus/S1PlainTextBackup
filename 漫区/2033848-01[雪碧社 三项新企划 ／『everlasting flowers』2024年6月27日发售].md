@@ -851,3 +851,11 @@ everlasting flowers靠实体预购已经回本了，接下来就是纯赚了
 
 看出来原本雪碧原本对新作可能亏损是有所预期的，光实体初回就能回本对他们来说的确超出预期，要不然也不会在官网专门祝贺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来续作可能有指望了？
 
+
+*****
+
+####  ardito  
+##### 79#       发表于 2024-8-10 07:44
+
+资源也可以回去再做黄油的，黄油仔你要自信
+

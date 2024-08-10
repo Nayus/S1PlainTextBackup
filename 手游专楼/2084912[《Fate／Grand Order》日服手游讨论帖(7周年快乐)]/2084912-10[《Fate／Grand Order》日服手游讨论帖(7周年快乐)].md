@@ -7192,3 +7192,22 @@ TMD小教授怎么是你
 所以明天给孔明来个超绝强化如何</blockquote>
 怎么超绝强化，技能加全体减cd吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  blue321  
+##### 13978#       发表于 2024-8-11 01:21
+
+发现以前加的推图阵容up基本不做视频了
+楼友现在还有啥平民一点的阵容攻略up推荐吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 13979#       发表于 2024-8-11 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65858845&amp;ptid=2084912" target="_blank">blue321 发表于 2024-8-11 01:21</a>
+发现以前加的推图阵容up基本不做视频了
+楼友现在还有啥平民一点的阵容攻略up推荐吗 ...</blockquote>
+找“在下阿迪”，速度相对还可以，配置也算平民。
+

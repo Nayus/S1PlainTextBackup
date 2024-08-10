@@ -756,3 +756,11 @@ https://www.bilibili.com/video/av112937289188312/
 
 又把这玩意刷了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  natmk  
+##### 6089#       发表于 2024-8-10 19:37
+
+小鹿唱的还行有待加强另外两位就比较难蚌了角色音夹不住歌又难唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

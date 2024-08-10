@@ -7067,3 +7067,18 @@ TMD小教授怎么是你
 
 好了，现在的重头戏是明天的五星术是谁了，是梅林/孔明重回巅峰，还是一般路过术阶光炮呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 13966#       发表于 2024-8-10 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855263&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-10 19:28</a>
+
+好了，现在的重头戏是明天的五星术是谁了，是梅林/孔明重回巅峰，还是一般路过术阶光炮呢 ...</blockquote>
+孔明因為能幫他人NP50充，而且更可控制加多少NP(30+10+10)，
+
+上班機會還是好多
+
+是梅林會否給他能幫他人NP50充，又或者只是補回在寶具發動一刻，能同時全體大補血，前者的話，準備入醫院吃金蘋果吧
+

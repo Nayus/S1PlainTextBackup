@@ -5689,3 +5689,29 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 
 22分钟唐突tkb和o派()
 
+
+*****
+
+####  秋游刃  
+##### 17123#       发表于 2024-8-10 19:09
+
+没见过，新挖出来的吗？
+
+*****
+
+####  sino__unnko3  
+##### 17124#       发表于 2024-8-10 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65855083&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-8-10 19:09</a>
+没见过，新挖出来的吗？</blockquote>
+是的，新石油
+
+*****
+
+####  ablast  
+##### 17125#       发表于 2024-8-11 04:42
+
+麻麻深夜出去买饮料穿个t恤下半身只穿了条透透的内内（？）就出门了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

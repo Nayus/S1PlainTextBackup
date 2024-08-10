@@ -294,3 +294,41 @@ solo表现好不少
 
 只有长月受伤的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  joshua1990  
+##### 6039#       发表于 2024-8-10 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">小红2首solo都不太友好，现场表现肯定都是灾难的
+
+
+*****
+
+####  rgauss  
+##### 6040#       发表于 2024-8-10 16:54
+
+期待白线好吧
+
+
+*****
+
+####  rgauss  
+##### 6041#       发表于 2024-8-10 16:56
+
+这比fmy好
+
+*****
+
+####  六至九  
+##### 6042#       发表于 2024-8-10 16:56
+
+这首在状态了
+
+*****
+
+####  BQlin  
+##### 6043#       发表于 2024-8-10 16:57
+
+这狗屎麦刚刚出问题还不给人换的吗
+

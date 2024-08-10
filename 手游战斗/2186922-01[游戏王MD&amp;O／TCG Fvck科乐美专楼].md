@@ -42,3 +42,11 @@
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  supergilaboy  
+##### 120#       发表于 2024-8-10 11:29
+
+处理,指裁判无事，不提4进2，不解除拉黑，全格斗圈就都该进来看看什么叫真正的大手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

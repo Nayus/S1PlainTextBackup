@@ -7040,3 +7040,22 @@ TMD小教授怎么是你
 
 什么东西，yls吞了我一个技能本的石头？
 
+
+*****
+
+####  Jamaisvu  
+##### 13963#       发表于 2024-8-10 19:20
+
+吃个桃：如果明天把C狐二技能加个30NP自充和全体CD-1，那就能让水艾蕾体系不用绑定减CD服了。
+
+（水艾蕾20充+C呆30充+C狐50NP开宝具，技能+宝具CD-2，顺便能叠OC加好感度）
+
+*****
+
+####  司马千晶  
+##### 13964#       发表于 2024-8-10 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">当年手欠把这俩降临者都抽了3，现在可以拉出来溜溜了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

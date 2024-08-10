@@ -1593,3 +1593,11 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 相反地除了第一场大跌眼镜的首回6分外，比赛本身倒是有来有回还不错
 
+
+*****
+
+####  Ketestrait  
+##### 573#       发表于 2024-8-10 16:42
+
+感觉这帮人是不是除了空体力强投嗯造节目效果外不会别的招了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

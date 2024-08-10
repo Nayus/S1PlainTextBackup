@@ -199,3 +199,98 @@ KX59QSVH2(H58CSSP{2MX$H.jpg
 
 我的笑就没停过
 
+
+*****
+
+####  野菜一日分  
+##### 6026#       发表于 2024-8-10 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确实是苍系
+
+*****
+
+####  a1370303  
+##### 6027#       发表于 2024-8-10 16:39
+
+小鹿还可以
+
+*****
+
+####  六至九  
+##### 6028#       发表于 2024-8-10 16:39
+
+还得是小鹿，稳
+
+*****
+
+####  magicc  
+##### 6029#       发表于 2024-8-10 16:39
+
+比预想中的好不少
+
+*****
+
+####  rgauss  
+##### 6030#       发表于 2024-8-10 16:42
+
+你确实是苍系
+
+*****
+
+####  BQlin  
+##### 6031#       发表于 2024-8-10 16:42
+
+毛球真稳
+
+*****
+
+####  a1370303  
+##### 6032#       发表于 2024-8-10 16:42
+
+饭田能夹住吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 6033#       发表于 2024-8-10 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比預期的好，本以為要三連翻車的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rgauss  
+##### 6034#       发表于 2024-8-10 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">饭田只练了solo吧
+
+*****
+
+####  magicc  
+##### 6035#       发表于 2024-8-10 16:43
+
+solo表现好不少
+
+
+*****
+
+####  rgauss  
+##### 6036#       发表于 2024-8-10 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好了 夹不住了
+
+*****
+
+####  rgauss  
+##### 6037#       发表于 2024-8-10 16:45
+
+这下知道hw的含金量了吧
+
+*****
+
+####  a1370303  
+##### 6038#       发表于 2024-8-10 16:47
+
+只有长月受伤的世界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

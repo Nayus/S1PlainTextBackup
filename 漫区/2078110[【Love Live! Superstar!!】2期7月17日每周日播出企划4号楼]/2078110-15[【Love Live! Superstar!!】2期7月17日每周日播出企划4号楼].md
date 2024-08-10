@@ -1545,3 +1545,13 @@ btw，平山采访说日升会给制作人三 ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  csolfans  
+##### 20866#       发表于 2024-8-10 13:00
+
+今天福冈那边还有新预告片
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -40,3 +40,16 @@
 
 首发到上个月才真正开玩玩到现在通了，总体来说是符合我各方面喜好的游戏，真结局接着二周目继续全收集全结局<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  葵  
+##### 1693#       发表于 2024-8-10 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65819317&amp;ptid=1978008" target="_blank">石中剑二 发表于 2024-8-7 01:37</a>
+
+2小时试玩结束，玩到出车站，总体感觉就是个很一般的关卡制游戏，遇见怪就打，打完怪就跑的老式玩法，去除 ...</blockquote>
+这游戏开头这段是做的最差的，无论是关卡设计还是场景画面质量，后面有小型沙盘区域的，而且线性和闲庭的关卡也质量好不少。
+
+这游戏可能是开发时间太长，技术一边做一边进步，也可能是被索尼扶持后给了不少技术支持，整个流程甚至场景画面质量都是在不断进步的，对比一开始的拆迁楼场景和最后太空电梯内部场景，场景画面质量的跨度甚至有种PS3到PS5的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

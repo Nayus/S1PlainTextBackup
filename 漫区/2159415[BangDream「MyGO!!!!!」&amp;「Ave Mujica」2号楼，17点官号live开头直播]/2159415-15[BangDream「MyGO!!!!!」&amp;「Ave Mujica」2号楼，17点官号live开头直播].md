@@ -13679,3 +13679,26 @@ MV一般是日区8点放吧？我是想看看零点会不会有新歌预告
 
 看来是寄了，等明天晚上吧。
 
+
+*****
+
+####  星天观测  
+##### 21961#       发表于 2024-8-10 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是干点别的吧，每天期待每天落空感觉像坐牢
+
+*****
+
+####  rikaren  
+##### 21962#       发表于 2024-8-10 23:14
+
+<img src="https://img.saraba1st.com/forum/202408/10/231339w60t86aa28jv6tz2.gif" referrerpolicy="no-referrer">
+
+<strong>bili_v_1723302511927.gif</strong> (802.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-10 23:13 上传
+
+说起来双月live上李子有这个动作吗？如果没有那pv这里可能是把两场live的动画拼到了一起。
+

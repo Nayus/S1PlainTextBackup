@@ -29,3 +29,14 @@ X和原版比起来，提升最大的是电池才对
 
 我是受不了的，所以转投SD OLED了
 
+
+*****
+
+####  bypass  
+##### 1277#         楼主| 发表于 2024-8-11 10:40
+
+SteamOS 似乎有望添加对 ROG Ally 的支持：
+
+[https://store.steampowered.com/n ... ator_clanid=9730205](https://store.steampowered.com/news/app/1675200/view/4361258795952118017?curator_clanid=9730205)
+ <blockquote>Added support for extra ROG Ally keys</blockquote>
+

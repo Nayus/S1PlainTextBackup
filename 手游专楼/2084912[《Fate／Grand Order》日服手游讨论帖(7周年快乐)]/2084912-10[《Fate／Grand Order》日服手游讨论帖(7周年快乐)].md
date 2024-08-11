@@ -7323,3 +7323,81 @@ TMD小教授怎么是你
 可以整很多花活了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 13993#       发表于 2024-8-11 17:07
+
+30充好歹算是能带上周回了，上位替换暗狐
+
+*****
+
+####  保罗赫伯特  
+##### 13994#       发表于 2024-8-11 17:08
+
+怎么不学梅莉加个充能OC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 13995#       发表于 2024-8-11 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有个色卡这个周年加强了两次，有个色卡输麻了
+
+*****
+
+####  angelooo  
+##### 13996#       发表于 2024-8-11 17:09
+
+这强化，果然还是熟悉的那个味23333
+
+
+*****
+
+####  alucardcz  
+##### 13997#       发表于 2024-8-11 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能fgo只有蓝卡和红卡 根本没有绿卡
+
+*****
+
+####  TheLoof  
+##### 13998#       发表于 2024-8-11 17:11
+
+幻术除了10np还加了50群爆伤
+
+红绿都可以赢，不用带C呆了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 13999#       发表于 2024-8-11 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65862950&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-11 17:10</a>
+
+有没有可能fgo只有蓝卡和红卡 根本没有绿卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡赢两次，蓝卡输麻了
+
+*****
+
+####  低调不圆滑  
+##### 14000#       发表于 2024-8-11 17:12
+
+梅林本质还是高难长线用的，加强还给你CD-1就偷着乐吧
+
+
+*****
+
+####  TheLoof  
+##### 14001#       发表于 2024-8-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65862962&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-11 17:12</a>
+
+梅林本质还是高难长线用的，加强还给你CD-1就偷着乐吧</blockquote>
+别闹，红绿为了个破群30带了多久的C呆了
+
+现在终于可以换个有用的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

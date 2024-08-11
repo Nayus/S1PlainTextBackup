@@ -358,3 +358,23 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  downnote  
+##### 661#       发表于 2024-8-11 19:44
+
+不错，前几季总有哪里做得不够充分不能吃饱，这个季度还不错，虽然时长看起来有些拖戏。这样接下来做业物语开篇也就可以放心了
+
+*****
+
+####  downnote  
+##### 662#       发表于 2024-8-11 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863763&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-11 19:00</a>
+
+所以是不是该下注死主的声优了，虽然我一点头绪都没有
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">还有哪些shaft常用声优没有在物语和戏言里出现过
+

@@ -79,3 +79,22 @@
 
 怎么了怎么了，碗橱被冲了？有没有观战现场啊指个路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dev2ce  
+##### 4379#       发表于 2024-8-11 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65864113&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-8-11 19:37</a>
+怎么了怎么了，碗橱被冲了？有没有观战现场啊指个路</blockquote>
+斧乃木b站切片已经一千多条回复了，狂吃🐷血馒头，就是G2爆冷输给saw之后，玩🐷凌晨复盘不是snax全锅，然后爆了，什么b站贴吧鱼吧完美全部爆爆爆
+
+*****
+
+####  Rainwedell  
+##### 4380#       发表于 2024-8-11 19:49
+
+就是之前一个写深度分析的 up caivar 的复刻罢了，区别就是玩出流量大一点，说点真话有些人听不得，当时 caivar 被这帮 g2 粉丝冲一次后基本只开串了，精品文章数量明显降低。2015 年看到现在，2020 开始 niko 相关的讨论环境不断恶性循环成饭圈 最后逼得我这种从 niko 出道就开始关注的人粉转路，到现在 niko 没 major 是 niko 的不幸，但很多粉丝确实就 tm 活该
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

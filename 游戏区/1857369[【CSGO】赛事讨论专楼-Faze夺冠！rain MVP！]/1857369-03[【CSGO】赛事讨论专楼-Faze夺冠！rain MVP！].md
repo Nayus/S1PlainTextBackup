@@ -136,3 +136,13 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  doublehit  
+##### 4385#       发表于 2024-8-12 03:23
+
+g2饭圈/黑子跟niko饭圈/黑子都一个弱智样，认真就输了，串串得了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

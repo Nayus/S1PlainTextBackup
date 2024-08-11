@@ -13754,3 +13754,21 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 [https://spice.eplus.jp/articles/330950](https://spice.eplus.jp/articles/330950)
 新访谈里有透漏一点mujica相关的
 
+
+*****
+
+####  rikaren  
+##### 21968#       发表于 2024-8-11 12:27
+
+也就是说可以确定动画里会有双月跟fire的live镜头？那这两首歌要加大分析力度了。
+
+
+*****
+
+####  skives  
+##### 21969#       发表于 2024-8-11 12:32
+
+来年、2025年1月にはTVアニメの放送も控えているので、そこでも脳天をぶん殴られるような衝撃的な体験ができると思います。
+
+你们这到底是什么动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

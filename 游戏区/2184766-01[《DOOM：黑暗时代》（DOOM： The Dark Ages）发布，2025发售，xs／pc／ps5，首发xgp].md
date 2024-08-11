@@ -1588,3 +1588,16 @@ Mech can perform Glory Kills and has a specialized HUD
 DOOM: The Dark Ag ...</blockquote>
 链锯盾这个设计真的太酷了，希望能多玩点花样；机甲战斗这种感觉偶尔作为调剂还行，太多了感觉就有点喧宾夺主了；壮烈击杀这是改成啥了？没看明白
 
+
+*****
+
+####  JOJO42  
+##### 160#       发表于 2024-8-11 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861114&amp;ptid=2184766" target="_blank">DawnGuardian 发表于 2024-8-11 12:21</a>
+
+链锯盾这个设计真的太酷了，希望能多玩点花样；机甲战斗这种感觉偶尔作为调剂还行，太多了感觉就有点喧宾 ...</blockquote>
+机甲和飞龙据说是都有独立的战斗系统，有专门对应的敌人和boss设计
+
+壮烈击杀....我其实也没看大明白，我个人理解或许是进一步削弱了观赏演出性，进一步突出功能性；毕竟相当一部分玩家打高难度时候觉得壮烈击杀的演出动画过长了，有些影响节奏
+

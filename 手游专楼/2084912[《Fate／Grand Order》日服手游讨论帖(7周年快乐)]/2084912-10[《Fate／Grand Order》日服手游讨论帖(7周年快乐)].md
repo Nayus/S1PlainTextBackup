@@ -7250,3 +7250,21 @@ TMD小教授怎么是你
 
 牢梅能不能站起来就看20分钟后了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 13984#       发表于 2024-8-11 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">不过我觉得大概率是打手
+
+*****
+
+####  保罗赫伯特  
+##### 13985#       发表于 2024-8-11 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65862786&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-11 16:46</a>
+
+梅什么林 等一个绿王降临 ！不过我觉得大概率是打手</blockquote>
+一般路过五星光炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

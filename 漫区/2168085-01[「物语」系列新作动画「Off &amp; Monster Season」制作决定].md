@@ -431,3 +431,13 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 沟槽的蛇发女居然如此可爱 和解了
 
+
+*****
+
+####  浅川雏羽  
+##### 668#       发表于 2024-8-12 00:36
+
+下周该业物语了啊，当年第一次读到死主的时候怎么也没想到她最后会死于新冠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -62,3 +62,13 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 4959#       发表于 2024-8-11 15:47
+
+占了信标之后花洒也会开喷泉，这次花洒给防守方造成的劣势可能比以前大。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

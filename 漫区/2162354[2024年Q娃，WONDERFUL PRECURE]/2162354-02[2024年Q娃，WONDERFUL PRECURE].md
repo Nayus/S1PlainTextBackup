@@ -1244,3 +1244,11 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 咩咩和悟关系真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yeaha123  
+##### 2019#       发表于 2024-8-11 23:40
+
+还以为牧牛妹会类似魔法使里那个魔法使目击者同学那样，是我想多了
+

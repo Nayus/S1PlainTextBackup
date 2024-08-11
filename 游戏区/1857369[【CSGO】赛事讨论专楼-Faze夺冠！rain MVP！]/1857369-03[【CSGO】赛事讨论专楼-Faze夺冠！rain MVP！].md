@@ -126,3 +126,13 @@
 贴吧、鱼吧、完美评论区、B站，每个地方的风景都不一样，建议全逛。</blockquote>
 别的没看就看了眼b站和完美评论区，感觉没啥火力啊，比起攻击碗橱不如说是攻击g2粉的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  攻城匠师黑索  
+##### 4384#       发表于 2024-8-11 23:38
+
+跟圣A蝗的粉丝一个味。赢了清算前队友，输了清算现队友<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -13935,3 +13935,23 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 
 佐々木　私も「Ave Mujica」です。ここから始まった、私たちを代表する曲になっているので。</blockquote>
 
+
+*****
+
+####  前方暴雨预警  
+##### 21987#       发表于 2024-8-11 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861553&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-11 13:31</a>
+
+没有，mygo动画剧情内所有的歌包括春日影在内都是supalove，eg只写了一首非插入曲的栞（也是唯一eg给mygo ...</blockquote>
+我去，看来“春日影和诗超绊是EG写的”这个错误印象在我脑子里植入的太深了
+
+*****
+
+####  祐天寺若麦  
+##### 21988#       发表于 2024-8-11 19:12
+
+<blockquote>Aendst 发表于 2024-8-11 14:22
+第一首歌实际上应该是ave mujica</blockquote>
+对，avemujica才是真正意义上第一曲，代表歌，看编曲人都是老邦的，录制时间应该是最早的，而且目前所有拼盘live都有avemujica，farbe热场就没有黑色生日。黑色生日只是作为解谜活动发布的“第一首歌”，把假面舞会放第一个发布也是可以的，很多人就搞混了这点，还以为动画13集唱的第一首会是黑色生日，游戏上的第一首是黑色生日。到时候第一个上游戏的肯定是avemujica的。
+

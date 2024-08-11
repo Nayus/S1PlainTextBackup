@@ -1687,3 +1687,13 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 柴卡老板娘这局也太爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 582#       发表于 2024-8-11 19:08
+
+不播电竞公布形象了，和jp en的画师阵看起来有很大差距阿
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

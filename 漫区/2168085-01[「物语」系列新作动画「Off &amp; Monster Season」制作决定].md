@@ -328,3 +328,13 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 今抚子和乖抚子放在一个场景里声线的差别就很明显了，乖抚子还是以前内味啊，香菜以前萌妹音标志性的颤抖和小嘶哑
 
+
+*****
+
+####  神圣天使书记官  
+##### 658#       发表于 2024-8-11 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65862679&amp;ptid=2168085" target="_blank">集合酱 发表于 2024-8-11 16:31</a>
+泥潭婆罗门如何看到熟肉up把ed剪掉直接接cpart的做法</blockquote>
+挺好的，UP也说了很多人看到ED就直接关视频了，会忽略掉后面的C part<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -45,3 +45,13 @@
 玩🐷管不住嘴终于被，这能叫反噬吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">什么时候CS国内圈子变成这样了，恐怖。
 你汤真就吃亏在21年发挥平平，22年查无此人，直接错过最后的引流期，稳稳的go史top2天天被碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令人感叹，胡来TV18年还被叫丹麦网站，还是啥比v社太懒，其他游戏哪有纯第三方越来越往台前走
 
+
+*****
+
+####  heseran  
+##### 4375#       发表于 2024-8-11 17:18
+
+ 本帖最后由 heseran 于 2024-8-11 17:20 编辑 
+
+这波玩机器纯活该，喜欢护snax，前面G2赢了几场还有人帮着他给snax洗，昨天G2拉了个大的他还在那儿帮snax洗给别人分锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再加上snax前两天直播的时候说的话立刻变成回旋镖飞了回来，这时候出来理中客不就是纯吸引火力吗，只能说看得出来他是真喜欢snax。
+

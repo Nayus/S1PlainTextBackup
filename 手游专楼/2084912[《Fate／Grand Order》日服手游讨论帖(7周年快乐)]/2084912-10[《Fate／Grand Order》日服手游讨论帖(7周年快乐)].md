@@ -7401,3 +7401,51 @@ TMD小教授怎么是你
 现在终于可以换个有用的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14002#       发表于 2024-8-11 17:19
+
+<img src="https://img.saraba1st.com/forum/202408/11/172028ctgtisj89kxhan89.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240811_171046.jpg</strong> (198.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-11 17:20 上传
+
+梅林二技能CD9变成了CD8，加了三回合50暴击和10NP群充，还不错，无条件30充，卑梅C组合更好用了。
+
+<img src="https://img.saraba1st.com/forum/202408/11/171129leahuvcpquc7cqek.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240811_171055.jpg</strong> (220.65 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-11 17:11 上传
+
+童谣的变化加了3T30蓝魔放，以及全体儿童从者20群充，全体童话从者3T20宝威。
+
+从毫无增伤的技能组一下子加了魔放宝威，还有60自充，质变级加强。
+
+既是儿童又是童话的从者有狂班扬、志度内、红阎魔、小王子以及童谣自己，不过当拐的话还是比不上奥伯龙一技能，人家是30宝威呢。
+
+*****
+
+####  jackyhuang  
+##### 14003#       发表于 2024-8-11 17:21
+
+这次强化的我居然都有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  cckuku  
+##### 14004#       发表于 2024-8-11 17:21
+
+我超真恶心啊还偏偏绑在无敌上。。。
+

@@ -1709,3 +1709,13 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花花这个甚至头都不是圆的，趴趴按理来说也是流水产品为啥形态可以这么千奇百怪，刷X也见过不少异形，感觉那种非常圆润，符合宣传图的都是特地挑的
 
+
+*****
+
+####  lj205  
+##### 20882#       发表于 2024-8-11 15:45
+
+要圆润可以学一下地瓜上集美们的掐掐大法，我买回来都是直接扔柜子里，定期吸尘器大力开吸，目前还没洗过
+
+之前帮原来Q群的人下单一堆星序趴还没收定金，结果动画播完一堆人跑单，手上好几个可可<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚好小组趴没来得及下单，到时看看能不能用来换吧
+

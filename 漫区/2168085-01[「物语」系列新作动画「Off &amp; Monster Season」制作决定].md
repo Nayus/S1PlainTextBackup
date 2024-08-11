@@ -304,3 +304,11 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  0aleph37  
+##### 655#       发表于 2024-8-11 15:33
+
+业物语还有班长的欧洲吸血鬼战斗之旅呢，希望之后能动画化
+

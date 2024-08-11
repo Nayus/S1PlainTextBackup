@@ -55,3 +55,11 @@
 
 这波玩机器纯活该，喜欢护snax，前面G2赢了几场还有人帮着他给snax洗，昨天G2拉了个大的他还在那儿帮snax洗给别人分锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 再加上snax前两天直播的时候说的话立刻变成回旋镖飞了回来，这时候出来理中客不就是纯吸引火力吗，只能说看得出来他是真喜欢snax。
 
+
+*****
+
+####  OVOVO  
+##### 4376#       发表于 2024-8-11 18:34
+
+网红队粉丝闹麻了，说个snax不背全锅就这么急，不还是想洗海鲜自助，之前玩🐷给李子洗，也没见navi粉丝这么急。
+

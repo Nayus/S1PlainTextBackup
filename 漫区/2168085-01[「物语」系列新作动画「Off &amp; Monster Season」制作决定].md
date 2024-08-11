@@ -405,3 +405,11 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 不过推敲起来，的确没有说过不能反过来找戏言声优配物语<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鬼谷ask  
+##### 665#       发表于 2024-8-11 20:38
+
+让人感动，真好啊，解答成长相关的命题怎么看都不觉得腻，对过去的自己做出承诺什么的就是很浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

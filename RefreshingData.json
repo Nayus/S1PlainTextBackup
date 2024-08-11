@@ -8676,10 +8676,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 56752,
+    "totalreply": 56755,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1723408087,
+    "lastedit": 1723408688,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -12915,10 +12915,10 @@
     "update": false
   },
   "2193516": {
-    "totalreply": 1253,
+    "totalreply": 1285,
     "title": "[【街霸6】沙特世界杯讨论专楼（LCQ 8.1-8.3）]",
     "newtitle": "[【街霸6】沙特世界杯讨论专楼（8月11号最终日）]",
-    "lastedit": 1723407971,
+    "lastedit": 1723408570,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16466,6 +16466,15 @@
     "newtitle": "[一张图代表我的心情，xbox玩家的命也是命]",
     "lastedit": 1723403769,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2194777": {
+    "totalreply": 41,
+    "title": "[你们会熬夜看奥运闭幕式吗（直播闲聊）]",
+    "newtitle": "[你们会熬夜看奥运闭幕式吗（直播闲聊）]",
+    "lastedit": 1723408570,
+    "category": "外野",
     "active": true,
     "update": false
   }

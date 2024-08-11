@@ -348,3 +348,13 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 小忍还是那么可爱。
 
+
+*****
+
+####  oi99o  
+##### 660#       发表于 2024-8-11 19:00
+
+所以是不是该下注死主的声优了，虽然我一点头绪都没有<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

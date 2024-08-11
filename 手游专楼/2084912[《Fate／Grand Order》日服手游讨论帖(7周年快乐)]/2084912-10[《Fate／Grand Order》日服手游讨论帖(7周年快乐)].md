@@ -7529,3 +7529,26 @@ TMD小教授怎么是你
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神经病，这种事情干活倒挺快的
 
+
+*****
+
+####  angelooo  
+##### 14013#       发表于 2024-8-11 18:04
+
+<blockquote>alucardcz 发表于 2024-8-11 17:50
+硬币今年内有希望吗</blockquote>
+
+有利玩家的bug：一天之内双休日加班也要修完
+
+因为傻逼操作导致的对玩家的补偿：对不起您刚才说了什么，不好意思我们还要花几个月23333
+
+*****
+
+####  保罗赫伯特  
+##### 14014#       发表于 2024-8-11 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863223&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-11 17:49</a>
+
+哎 时代啊 小时候还有朕哥哥高难体系 现在朕都已经不存在了</blockquote>
+始皇帝这次也没混到强化，是真时代的眼泪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

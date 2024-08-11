@@ -7467,3 +7467,65 @@ TMD小教授怎么是你
 
 周回倒是无所谓
 
+
+*****
+
+####  Jamaisvu  
+##### 14007#       发表于 2024-8-11 17:45
+
+<blockquote>alucardcz 发表于 2024-8-11 17:35
+不是 都高难了 你2技能无敌不留的吗？ 这不是超级恶心人？
+
+周回倒是无所谓 ...</blockquote>
+长线高难浪费无敌，速通高难影响卖拐。
+
+但是真的和卑弥呼相性很好，估计策划比较偏爱这个体系吧...
+
+*****
+
+####  低调不圆滑  
+##### 14008#       发表于 2024-8-11 17:48
+
+有一个高难选手需要80np启动，可以自己产星用红卡打全体暴击，可以横充50-2CD，她就是带上C呆跟梅林后完整的牢青
+
+*****
+
+####  alucardcz  
+##### 14009#       发表于 2024-8-11 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863201&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-11 17:45</a>
+
+长线高难浪费无敌，速通高难影响卖拐。
+
+但是真的和卑弥呼相性很好，估计策划比较偏爱这个体系吧... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 时代啊 小时候还有朕哥哥高难体系 现在朕都已经不存在了
+
+*****
+
+####  angelooo  
+##### 14010#       发表于 2024-8-11 17:49
+
+顺便阿荣的bug修完了
+
+这垃圾运营在修良性bug方面居然还周末加班，剑不剑啊
+
+*****
+
+####  alucardcz  
+##### 14011#       发表于 2024-8-11 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863224&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-11 17:49</a>
+
+顺便阿荣的bug修完了
+
+这垃圾运营在修良性bug方面居然还周末加班，剑不剑啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">硬币今年内有希望吗
+
+
+*****
+
+####  希望之花  
+##### 14012#       发表于 2024-8-11 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神经病，这种事情干活倒挺快的
+

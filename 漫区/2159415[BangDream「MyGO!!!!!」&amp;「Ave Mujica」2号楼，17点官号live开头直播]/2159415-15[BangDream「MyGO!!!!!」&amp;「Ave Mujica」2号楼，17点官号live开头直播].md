@@ -13725,3 +13725,23 @@ MV一般是日区8点放吧？我是想看看零点会不会有新歌预告
 专门去翻了3次live的直播和BD，双月的表演里有多次扬起右手的动作，但感觉像个通用动作，不是演出定番。 ...</blockquote>
 那我就试着靠屏幕上的火焰去对一下吧，感觉这里不低概率是拼了动画新歌live的画面。
 
+
+*****
+
+####  祐天寺若麦  
+##### 21965#       发表于 2024-8-11 11:19
+
+ 本帖最后由 祐天寺若麦 于 2024-8-11 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65857899&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-10 23:14</a>
+
+说起来双月live上李子有这个动作吗？如果没有那pv这里可能是把两场live的动画拼到了一起。 ...</blockquote>
+live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬手这里的嘴型我也对过，是symbol 1前奏前那一句 全てを取り戻せるのなら，张大嘴的 ら，背景刚好还冒火。跟上面那句 世界は悦ん… 是同一个调子的。
+
+
+*****
+
+####  nebulanoby  
+##### 21966#       发表于 2024-8-11 11:25
+
+没有希望就不会失望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

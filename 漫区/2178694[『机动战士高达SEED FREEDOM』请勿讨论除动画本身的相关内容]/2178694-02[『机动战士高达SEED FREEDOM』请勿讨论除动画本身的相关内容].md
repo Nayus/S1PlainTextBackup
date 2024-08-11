@@ -312,3 +312,16 @@ https://x.com/koukidou_p/status/1820013980347408453
 
 所以说官方到底是怎么想的？彻底把这个戒指给毁了。
 
+
+*****
+
+####  Piano-Forest  
+##### 1891#         楼主| 发表于 2024-8-11 21:56
+
+[https://x.com/imaizumi_7026/status/1822491454234861818](https://x.com/imaizumi_7026/status/1822491454234861818)
+
+カガリとラクス
+
+水着で
+<img src="https://p.sda1.dev/18/4e4d33e0f4da06a07f6cc75fe78a657c/20240811_215603.jpg" referrerpolicy="no-referrer">
+

@@ -13979,3 +13979,18 @@ earth的mv到底打算拖到什么时候啊
 
 这么年轻的人一般会这么容易流鼻血吗，不会又和前辈一样是身体出什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 21992#       发表于 2024-8-11 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861553&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-11 13:31</a>
+
+没有，mygo动画剧情内所有的歌包括春日影在内都是supalove，eg只写了一首非插入曲的栞（也是唯一eg给mygo ...</blockquote>
+——第七话的Live成功本以为是告一段落，最后素世将那份喜悦的氛围一扫而空呢。那个展开真的让人深感冲击。
+
+「CRYCHIC的曲子让MyGo来唱」这样的展开，在很早之前就决定好了。请武士道音乐和乐曲担当的Elements Garden来创作那首曲子，最后创作出来的就是「春日影」。这首曲子好到让我觉得作为本作象征都有些委屈它了，真的是超出想象数倍的精妙绝伦的曲子。虽然没有「让春日影在最棒的时机登场！」，一直到7话左右的剧情，都是我们脚本家队伍全员，一边听着春日影一边创作的。然后是Elements Garden，虽然很多时候都是在歌词写出来之前就写好了曲子，但因为剧情中只有灯会写歌词，我和他商量「能否先让织田あすか老师先写完词在作曲」，他也爽快地答应了。
+
+等一下，春日影是EG写的啊
+

@@ -80,3 +80,13 @@
 
 你说的对，但米饭三色都是内战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打半天贡献度0
 
+
+*****
+
+####  KBAC  
+##### 4961#       发表于 2024-8-11 21:33
+
+我是面包队，一局内战也没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

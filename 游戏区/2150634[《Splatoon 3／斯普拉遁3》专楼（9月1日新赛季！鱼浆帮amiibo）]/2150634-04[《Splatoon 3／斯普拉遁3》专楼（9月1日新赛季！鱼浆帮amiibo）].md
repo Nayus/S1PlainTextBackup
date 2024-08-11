@@ -100,3 +100,17 @@
 
 后面应该没有新武器了吧，券正好用完
 
+
+*****
+
+####  KBAC  
+##### 4963#       发表于 2024-8-11 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65865908&amp;ptid=2150634" target="_blank">苍蓝之枪 发表于 2024-8-11 22:35</a>
+为了刷武器券强行用不会的玩意喜提疯狂连败，还好前面连胜了不少，又是动态平衡法是吧
+
+后面应该没有新武器 ...</blockquote>
+不好说，有一批前作都有的第二贴牌三代到现在还没出，现在把武器券用光了万一之后再出了可就没法第一时间买了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

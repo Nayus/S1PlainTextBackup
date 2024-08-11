@@ -17,3 +17,13 @@
 
 绫总不知道狗头跟鳄鱼是兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stmule  
+##### 14769#       发表于 2024-8-11 19:23
+
+亏哥都要扑街了绫总还在播lol哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

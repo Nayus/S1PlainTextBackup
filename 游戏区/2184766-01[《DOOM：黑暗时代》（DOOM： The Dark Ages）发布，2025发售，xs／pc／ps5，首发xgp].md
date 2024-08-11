@@ -1575,3 +1575,16 @@ Mech can perform Glory Kills and has a specialized HUD
 
 另外，壮烈击杀现在是输出足够伤害后，敌人会闪出个紫色光圈，然后通过近战击杀——据说整个设计相比前两作已经完全大改，几乎可以视作壮烈击杀不存在了
 
+
+*****
+
+####  DawnGuardian  
+##### 159#       发表于 2024-8-11 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65860378&amp;ptid=2184766" target="_blank">JOJO42 发表于 2024-8-11 10:44</a>
+
+估摸QUAKECON的实机演示是线下特供......未会必线上放出了，红迪doom板块放了点文字描述
+
+DOOM: The Dark Ag ...</blockquote>
+链锯盾这个设计真的太酷了，希望能多玩点花样；机甲战斗这种感觉偶尔作为调剂还行，太多了感觉就有点喧宾夺主了；壮烈击杀这是改成啥了？没看明白
+

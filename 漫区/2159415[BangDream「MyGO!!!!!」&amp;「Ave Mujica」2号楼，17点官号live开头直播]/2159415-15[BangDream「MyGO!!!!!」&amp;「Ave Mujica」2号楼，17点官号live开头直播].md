@@ -13745,3 +13745,12 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 
 没有希望就不会失望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 21967#       发表于 2024-8-11 12:20
+
+[https://spice.eplus.jp/articles/330950](https://spice.eplus.jp/articles/330950)
+新访谈里有透漏一点mujica相关的
+

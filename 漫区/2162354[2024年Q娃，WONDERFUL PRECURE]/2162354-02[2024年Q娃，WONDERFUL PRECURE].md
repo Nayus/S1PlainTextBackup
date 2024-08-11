@@ -1200,3 +1200,39 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 反派终于登场了
 好消息这个男反派是个黄毛不是绿毛 而且长的也挺丑的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MLP_102  
+##### 2017#       发表于 2024-8-11 16:01
+
+几个干部看起来就是古代人（动物）啊，会是狼群灭绝前时期人类的装扮吗？
+
+<img src="https://img.saraba1st.com/forum/202408/11/155554osocqgvvkubqps9x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-11 15:55 上传
+
+  
+
+<img src="https://img.saraba1st.com/forum/202408/11/155610v7o9y4ty0557zp55.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-11 15:56 上传
+
+    
+
+<img src="https://img.saraba1st.com/forum/202408/11/155627fk83esskxg3eyccl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-11 15:56 上传
+

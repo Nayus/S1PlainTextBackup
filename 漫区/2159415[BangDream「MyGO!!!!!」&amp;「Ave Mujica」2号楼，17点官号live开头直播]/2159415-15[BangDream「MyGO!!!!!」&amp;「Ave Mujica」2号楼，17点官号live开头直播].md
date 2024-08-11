@@ -13879,3 +13879,25 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 
 塞一分半版的话是可以做到多塞几首歌的，比如第二季能做到半集塞五首歌，mygo动画总共就那点歌是因为设定上是没经验的新团写不出几首，mujica作为职业团多塞几首老歌还是有可能的
 
+
+*****
+
+####  Aendst  
+##### 21981#       发表于 2024-8-11 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就涉及大量live了，虽然不一定全都有live画面，但是起码也要多出几个live片段
+
+洗脚实在是不敢贷款
+
+*****
+
+####  NODY  
+##### 21982#       发表于 2024-8-11 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861429&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-8-11 13:11</a>
+
+而且强剧情相关的歌基本都是EG负责的吧？
+
+至少mygo篇里，supalove的歌基本都只是“奖杯”性质的live。 ...</blockquote>
+没有，mygo动画剧情内所有的歌包括春日影在内都是supalove，eg只写了一首非插入曲的栞（也是唯一eg给mygo写的歌）
+

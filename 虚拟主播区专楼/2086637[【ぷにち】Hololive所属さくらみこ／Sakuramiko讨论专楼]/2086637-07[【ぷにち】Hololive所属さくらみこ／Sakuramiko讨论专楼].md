@@ -6553,3 +6553,26 @@ fbk昨天结束前也说今天要跟micomet见面（线下）
 
 然而今天是什么日子？C104第一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9442#         楼主| 发表于 2024-8-11 10:11
+
+另外说到下周日本假期要回家几天，有直播而且是白天直播，而且可能是会跟holomem联动的小企划
+
+昨晚直播的时候做了一个小调查确定了如果白天要直播会定在时间早上11/12点左右开始，具体会在后续确认后告知
+
+*****
+
+####  holoan  
+##### 9443#         楼主| 发表于 2024-8-11 12:09
+
+<img src="https://img.saraba1st.com/forum/202408/11/120916uwyfjmfj5n1bmb3o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (211.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-11 12:09 上传
+

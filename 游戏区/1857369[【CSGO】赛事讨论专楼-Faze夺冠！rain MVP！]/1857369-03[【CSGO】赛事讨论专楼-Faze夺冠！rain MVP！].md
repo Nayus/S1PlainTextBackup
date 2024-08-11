@@ -26,3 +26,11 @@
 
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  TiiTiiLL  
+##### 4373#       发表于 2024-8-11 11:48
+
+中国什么时候能出一个布里兹
+

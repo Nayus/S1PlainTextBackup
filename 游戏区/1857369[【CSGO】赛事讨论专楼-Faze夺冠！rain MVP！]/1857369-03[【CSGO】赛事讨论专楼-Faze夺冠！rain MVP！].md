@@ -116,3 +116,13 @@
 
 什么人沾上g2最后都会惹得一身骚
 
+
+*****
+
+####  朔方原的星  
+##### 4383#         楼主| 发表于 2024-8-11 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65864437&amp;ptid=1857369" target="_blank">heseran 发表于 2024-8-11 20:09</a>
+贴吧、鱼吧、完美评论区、B站，每个地方的风景都不一样，建议全逛。</blockquote>
+别的没看就看了眼b站和完美评论区，感觉没啥火力啊，比起攻击碗橱不如说是攻击g2粉的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13994,3 +13994,16 @@ earth的mv到底打算拖到什么时候啊
 
 等一下，春日影是EG写的啊
 
+
+*****
+
+####  NODY  
+##### 21993#       发表于 2024-8-11 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65865251&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-8-11 21:30</a>
+
+——第七话的Live成功本以为是告一段落，最后素世将那份喜悦的氛围一扫而空呢。那个展开真的让人深感冲击 ...</blockquote>
+那是我记错了，就记得诗超绊和碧天伴走这两首剧情曲是supalove，看来春日影果然还是地位不一样
+
+这样看的话动画人气最高播放最多的两首歌全是eg写的了（春日影和ave mujica）
+

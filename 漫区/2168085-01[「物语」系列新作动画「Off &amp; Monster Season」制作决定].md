@@ -378,3 +378,15 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 论坛助手,iPhone</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">还有哪些shaft常用声优没有在物语和戏言里出现过
 
+
+*****
+
+####  oi99o  
+##### 663#       发表于 2024-8-11 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65864242&amp;ptid=2168085" target="_blank">downnote 发表于 2024-8-11 19:47</a>
+还有哪些shaft常用声优没有在物语和戏言里出现过</blockquote>
+你这么一说，戏言上过了不代表不能上物语吧，比如umb
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

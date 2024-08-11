@@ -734,7 +734,7 @@
     "newtitle": "[2022.10『想要成为影之实力者』 剧场动画残响篇制作决定]",
     "lastedit": 1723120110,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1993571": {
@@ -779,7 +779,7 @@
     "newtitle": "[『电锯人 第二部』Jump+ 2022年7月12日晚11点连载开启！]",
     "lastedit": 1723120110,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1998862": {
@@ -1557,10 +1557,10 @@
     "update": false
   },
   "2009253": {
-    "totalreply": 24773,
+    "totalreply": 24774,
     "title": "[《艾尔登法环》2月25日发售！全球销量突破1660万！1.06版更新]",
     "newtitle": "[《艾尔登法环》DLC「黄金树幽影」PV公开，24年6月21日发售]",
-    "lastedit": 1723372456,
+    "lastedit": 1723379653,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -1989,10 +1989,10 @@
     "update": false
   },
   "2062303": {
-    "totalreply": 1221,
+    "totalreply": 1222,
     "title": "[复古打枪游戏专楼 22／08／31一楼更新楼里提过的游戏汇总]",
     "newtitle": "[复古打枪游戏兼沉浸式模拟器专楼 22／10／17 更新沉浸式模拟器]",
-    "lastedit": 1723378220,
+    "lastedit": 1723379420,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -6966,10 +6966,10 @@
     "update": false
   },
   "2163917": {
-    "totalreply": 18089,
+    "totalreply": 18097,
     "title": "[【A39】A-SOUL综合讨论楼（12.29广州线下）]",
     "newtitle": "[【A39】A-SOUL综合讨论楼]",
-    "lastedit": 1723379171,
+    "lastedit": 1723379771,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8676,10 +8676,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 56473,
+    "totalreply": 56480,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1723379171,
+    "lastedit": 1723379771,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8712,10 +8712,10 @@
     "update": false
   },
   "2181530": {
-    "totalreply": 12524,
+    "totalreply": 12526,
     "title": "[《活侠传》定档6月19号发售]",
     "newtitle": "[武侠游戏《活侠传》现已发售,剧透请反白谢谢]",
-    "lastedit": 1723377872,
+    "lastedit": 1723379420,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -8784,10 +8784,10 @@
     "update": false
   },
   "2169691": {
-    "totalreply": 762,
+    "totalreply": 763,
     "title": "[『真夜中ぱんチ』原创TV动画 2024年7月]",
     "newtitle": "[『深夜重拳 ／ 真夜中ぱんチ』原创TV动画 2024年7月]",
-    "lastedit": 1723376066,
+    "lastedit": 1723379651,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8865,10 +8865,10 @@
     "update": false
   },
   "2159922": {
-    "totalreply": 1811,
+    "totalreply": 1816,
     "title": "[败犬女主太多了！动画化 2024年7月]",
     "newtitle": "[败犬女主太多了！动画化 2024年7月]",
-    "lastedit": 1723379056,
+    "lastedit": 1723379653,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8883,10 +8883,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 24342,
+    "totalreply": 24344,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1723379061,
+    "lastedit": 1723379420,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10400,7 +10400,7 @@
     "newtitle": "[niconico已经挂了十几个小时了]",
     "lastedit": 1723120338,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2192842": {
@@ -10449,10 +10449,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 1104,
+    "totalreply": 1105,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1723371502,
+    "lastedit": 1723379420,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10664,15 +10664,6 @@
     "active": false,
     "update": false
   },
-  "2046333": {
-    "totalreply": 52,
-    "title": "[《歪小子斯科特》动画化 科学猴制作 11月17日 Netflix配信]",
-    "newtitle": "[《歪小子斯科特》动画化 科学猴制作 11月17日 Netflix配信]",
-    "lastedit": 1722170058,
-    "category": "漫区",
-    "active": false,
-    "update": false
-  },
   "2192997": {
     "totalreply": 57,
     "title": "[自曝无理由退货大量电子产品，宋紫薇被网友喷到道歉]",
@@ -10724,15 +10715,6 @@
     "newtitle": "[横版银河城推荐---边境猎人艾尔莎的命运之环]",
     "lastedit": 1722222873,
     "category": "游戏区",
-    "active": false,
-    "update": false
-  },
-  "2192896": {
-    "totalreply": 43,
-    "title": "[感觉在B站，两斤十六国南北朝这段历史已经被重新发掘为了显学了]",
-    "newtitle": "[感觉在B站，两斤十六国南北朝这段历史已经被重新发掘为了显学了]",
-    "lastedit": 1722169948,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -11808,10 +11790,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 9812,
+    "totalreply": 9814,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1723378819,
+    "lastedit": 1723379416,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14378,7 +14360,7 @@
     "newtitle": "[看了两本ntr类的本子，我想将这两本称之为《颠ntr》]",
     "lastedit": 1723120452,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194094": {
@@ -15215,14 +15197,14 @@
     "newtitle": "[今天又看了一遍《年会不能停》真是打工人爽文]",
     "lastedit": 1723120110,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2194353": {
-    "totalreply": 255,
+    "totalreply": 256,
     "title": "[坛友们还有戴手表的习惯吗？]",
     "newtitle": "[坛友们还有戴手表的习惯吗？]",
-    "lastedit": 1723378938,
+    "lastedit": 1723379893,
     "category": "外野",
     "active": true,
     "update": false
@@ -15903,10 +15885,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 132,
+    "totalreply": 134,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1723378934,
+    "lastedit": 1723379536,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -16020,10 +16002,10 @@
     "update": false
   },
   "2194649": {
-    "totalreply": 175,
+    "totalreply": 176,
     "title": "[关于饺子的南北文化差异]",
     "newtitle": "[关于饺子的南北文化差异]",
-    "lastedit": 1723375477,
+    "lastedit": 1723379540,
     "category": "外野",
     "active": true,
     "update": false
@@ -16074,10 +16056,10 @@
     "update": false
   },
   "2194654": {
-    "totalreply": 142,
+    "totalreply": 143,
     "title": "[卜姓，取名求助]",
     "newtitle": "[卜姓，取名求助]",
-    "lastedit": 1723379294,
+    "lastedit": 1723379540,
     "category": "外野",
     "active": true,
     "update": false
@@ -16326,10 +16308,10 @@
     "update": false
   },
   "2194728": {
-    "totalreply": 80,
+    "totalreply": 82,
     "title": "[刷到短视频：丫鬟代替小姐拜堂之后不愿意换回去该咋办]",
     "newtitle": "[刷到短视频：丫鬟代替小姐拜堂之后不愿意换回去该咋办]",
-    "lastedit": 1723378695,
+    "lastedit": 1723379893,
     "category": "外野",
     "active": true,
     "update": false
@@ -16398,28 +16380,28 @@
     "update": false
   },
   "2194731": {
-    "totalreply": 42,
+    "totalreply": 43,
     "title": "[国产Discord：QQ频道好像没搞起来？]",
     "newtitle": "[国产Discord：QQ频道好像没搞起来？]",
-    "lastedit": 1723376299,
+    "lastedit": 1723379540,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2194735": {
-    "totalreply": 44,
+    "totalreply": 45,
     "title": "[怎么有的作者这么喜欢结局配种]",
     "newtitle": "[怎么有的作者这么喜欢结局配种]",
-    "lastedit": 1723378938,
+    "lastedit": 1723379540,
     "category": "外野",
     "active": true,
     "update": false
   },
   "2194730": {
-    "totalreply": 41,
+    "totalreply": 43,
     "title": "[五百年前的游戏王玩家水：贪欲之壶还是禁卡？]",
     "newtitle": "[五百年前的游戏王玩家水：贪欲之壶还是禁卡？]",
-    "lastedit": 1723377879,
+    "lastedit": 1723379653,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16439,6 +16421,15 @@
     "newtitle": "[这几天nga和是还以为绝区零要关服了]",
     "lastedit": 1723379061,
     "category": "手游战斗",
+    "active": true,
+    "update": false
+  },
+  "2194694": {
+    "totalreply": 42,
+    "title": "[【转】BBC：中国社交媒体上的跨国情侣网红：为何手握“流量密码”却遭遇“双刃剑”]",
+    "newtitle": "[【转】BBC：中国社交媒体上的跨国情侣网红：为何手握“流量密码”却遭遇“双刃剑”]",
+    "lastedit": 1723379893,
+    "category": "外野",
     "active": true,
     "update": false
   }

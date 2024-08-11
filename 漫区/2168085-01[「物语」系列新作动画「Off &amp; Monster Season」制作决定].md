@@ -338,3 +338,13 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 泥潭婆罗门如何看到熟肉up把ed剪掉直接接cpart的做法</blockquote>
 挺好的，UP也说了很多人看到ED就直接关视频了，会忽略掉后面的C part<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  5353  
+##### 659#       发表于 2024-8-11 18:55
+
+物语还是好看。
+
+小忍还是那么可爱。
+

@@ -3473,3 +3473,13 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  慕容断月  
+##### 273#       发表于 2024-8-12 01:26
+
+这破游戏6号的更新把改键更废了，以前可以设置方案1里LT+X和Y，现在就是设不了，一堆键冲突<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+6号这次更新完了我都不认识这游戏了
+

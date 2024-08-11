@@ -1671,3 +1671,11 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是正因为育成期间最倒霉，为了避免监督只留下不好的回忆，所以才做歌吧
 
+
+*****
+
+####  高等黑暗  
+##### 580#       发表于 2024-8-11 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西西第一把就翻了草，不过这虹甲定制版本的指叉球球质降了好多……虽然原版根据那个检证指叉球的确太强了，别的球都是0.4~0.6打率，指叉球直接给干到0.23，西西这完全按照那个检证培养的主投到正赛被爆锤了
+

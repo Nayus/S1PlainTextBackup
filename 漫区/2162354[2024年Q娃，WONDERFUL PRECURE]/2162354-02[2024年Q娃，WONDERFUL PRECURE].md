@@ -1189,3 +1189,14 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">经过了半年，反派终于出场了，又是男反派，不安です
 
+
+*****
+
+####  粉儿alice  
+##### 2016#       发表于 2024-8-11 14:32
+
+妮可确定不是福娃吗
+
+反派终于登场了
+好消息这个男反派是个黄毛不是绿毛 而且长的也挺丑的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

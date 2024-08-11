@@ -877,3 +877,11 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 
 对于2.5偶像企划与真人偶像企划，在歌上面的唯一区别，就是真人企划会演出每个人特有的声线，2.5偶像企划会先确定二次元人物的声线再演出。
 
+
+*****
+
+####  KAFAKs  
+##### 6101#       发表于 2024-8-11 21:59
+
+豪哥曲也算卡拉ok级别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

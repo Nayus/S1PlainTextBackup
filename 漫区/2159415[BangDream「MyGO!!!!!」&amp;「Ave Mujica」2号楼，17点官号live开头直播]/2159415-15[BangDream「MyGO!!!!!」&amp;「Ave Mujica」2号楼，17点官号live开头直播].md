@@ -13772,3 +13772,23 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 
 你们这到底是什么动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 21970#       发表于 2024-8-11 12:46
+
+没什么新东西，基本客套话+过去的内容换种说法复读
+
+*****
+
+####  Aendst  
+##### 21971#       发表于 2024-8-11 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65861152&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-11 12:27</a>
+
+也就是说可以确定动画里会有双月跟fire的live镜头？那这两首歌要加大分析力度了。 ...</blockquote>
+并不能确定，只能说有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且动画不用新曲推剧情是不是有点说不过去
+

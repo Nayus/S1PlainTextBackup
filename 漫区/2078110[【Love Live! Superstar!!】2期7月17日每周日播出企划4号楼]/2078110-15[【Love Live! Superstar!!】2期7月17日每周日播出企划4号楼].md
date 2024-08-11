@@ -1668,3 +1668,44 @@ wc，剧中还有谷子
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  奥柏伦亲王  
+##### 20878#       发表于 2024-8-11 07:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来是这么个出场法，感觉和平时工作倒也没差
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ads147147  
+##### 20879#       发表于 2024-8-11 08:23
+
+bl剧的女人，确实不太需要的。又不是假面骑士（
+——————
+那句我不回Liella是香音对可可说的啊，我已经对花田这套噱头玩法没感觉了，就看可可什么时候去投奔MaruMaru。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  csolfans  
+##### 20880#       发表于 2024-8-11 08:25
+
+ 本帖最后由 csolfans 于 2024-8-11 08:26 编辑 
+
+<img src="https://p.sda1.dev/18/a5c306034ea9cfa5efbd6c2f8a2ffae7/CMP_20240811082608877.jpg" referrerpolicy="no-referrer">
+花花这孩子还是一如既往这么喜欢可可
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+
+*****
+
+####  ViyViy  
+##### 20881#       发表于 2024-8-11 09:01
+
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花花这个甚至头都不是圆的，趴趴按理来说也是流水产品为啥形态可以这么千奇百怪，刷X也见过不少异形，感觉那种非常圆润，符合宣传图的都是特地挑的
+

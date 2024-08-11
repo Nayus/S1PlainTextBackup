@@ -1154,3 +1154,38 @@ doremi那个时代没有关系 算是一个官方彩蛋 可时代不同了 那�
 <img src="https://p.sda1.dev/18/c88a8debed8fa828306670854349d3b8/003_2_.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/18/121f0e8989a673dcf7a6ff602354692b/004_2_.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  himfsz  
+##### 2012#       发表于 2024-8-11 07:55
+
+你们心真大啊，以前有个叫八木沼的同学可是差点被吃掉了的（可能真的已经吃了）
+
+*****
+
+####  犬飼いろは  
+##### 2013#       发表于 2024-8-11 08:20
+
+第 27 集的 TVer 源（含日字）：magnet:?xt=urn:btih:302080fda6a3ad71b18135efd871d0f54ae68071
+
+第 28 集的 TVer 源（含日字）：magnet:?xt=urn:btih:569659bbdae27246601e8069ea757300b1107939
+
+*****
+
+####  Wondering  
+##### 2014#       发表于 2024-8-11 08:21
+
+狗狗后面不会要和男干部拉cp吧，要不然很难想象怎么安排戏份了，总不可能一直卖萌耍宝吧
+
+*****
+
+####  jaewoongh_  
+##### 2015#       发表于 2024-8-11 08:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大熊同学真好啊，田舍少女的家计事情
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">牢悟虽然bg输得彻底，但男同这一块属实是拿捏住了，结局之后跟羊一起过日子吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">经过了半年，反派终于出场了，又是男反派，不安です
+

@@ -216,3 +216,17 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 ----发送自 [Xiaomi 2304FPN6DC,Android 14](http://stage1.5j4m.com/?1.37)
 
+
+*****
+
+####  浅川雏羽  
+##### 646#       发表于 2024-8-11 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65860709&amp;ptid=2168085" target="_blank">vacuumsword 发表于 2024-8-11 11:29</a>
+这季还有余接的戏份么
+
+----发送自 Xiaomi 2304FPN6DC,Android 14</blockquote>
+多着呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

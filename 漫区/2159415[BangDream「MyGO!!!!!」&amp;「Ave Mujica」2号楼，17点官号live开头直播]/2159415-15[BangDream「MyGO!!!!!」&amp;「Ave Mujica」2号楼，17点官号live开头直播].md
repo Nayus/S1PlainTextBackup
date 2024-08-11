@@ -13963,3 +13963,19 @@ live里symbol 1最后一句 世界は悦んで蠢き出す 李子就有这个抬
 
 <img src="https://p.sda1.dev/18/e00e6285f9e3c4c4cdcb2f956de8292d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 21990#       发表于 2024-8-11 20:18
+
+earth的mv到底打算拖到什么时候啊
+
+
+*****
+
+####  NODY  
+##### 21991#       发表于 2024-8-11 20:20
+
+这么年轻的人一般会这么容易流鼻血吗，不会又和前辈一样是身体出什么问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

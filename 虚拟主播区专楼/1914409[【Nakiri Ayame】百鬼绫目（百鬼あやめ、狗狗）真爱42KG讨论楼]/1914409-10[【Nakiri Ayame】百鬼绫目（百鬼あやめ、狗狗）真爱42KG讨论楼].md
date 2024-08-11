@@ -27,3 +27,16 @@
 
 —— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  因为你不会  
+##### 14770#       发表于 2024-8-11 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863960&amp;ptid=1914409" target="_blank">stmule 发表于 2024-8-11 19:23</a>
+
+亏哥都要扑街了绫总还在播lol哦
+
+—— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+接的是解说的活又不上去挨揍，明天还要解说瓦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7200,10 +7200,10 @@
     "update": false
   },
   "2165753": {
-    "totalreply": 1301,
+    "totalreply": 1302,
     "title": "[23年动画 宝可梦地平线-太勒巴戈斯的光辉2号楼 1月12号复播]",
     "newtitle": "[23年动画 宝可梦地平线-太晶化舞台 2号楼]",
-    "lastedit": 1723384701,
+    "lastedit": 1723402809,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8712,10 +8712,10 @@
     "update": false
   },
   "2181530": {
-    "totalreply": 12544,
+    "totalreply": 12545,
     "title": "[《活侠传》定档6月19号发售]",
     "newtitle": "[武侠游戏《活侠传》现已发售,剧透请反白谢谢]",
-    "lastedit": 1723397891,
+    "lastedit": 1723402810,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -12924,10 +12924,10 @@
     "update": false
   },
   "2193516": {
-    "totalreply": 1058,
+    "totalreply": 1068,
     "title": "[【街霸6】沙特世界杯讨论专楼（LCQ 8.1-8.3）]",
     "newtitle": "[【街霸6】沙特世界杯讨论专楼（8月11号最终日）]",
-    "lastedit": 1723402574,
+    "lastedit": 1723403170,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16457,6 +16457,15 @@
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "lastedit": 1723402274,
     "category": "手游专楼",
+    "active": true,
+    "update": false
+  },
+  "2194671": {
+    "totalreply": 43,
+    "title": "[S1的质量效应队友人气投票贴]",
+    "newtitle": "[S1的质量效应队友人气投票贴]",
+    "lastedit": 1723403170,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

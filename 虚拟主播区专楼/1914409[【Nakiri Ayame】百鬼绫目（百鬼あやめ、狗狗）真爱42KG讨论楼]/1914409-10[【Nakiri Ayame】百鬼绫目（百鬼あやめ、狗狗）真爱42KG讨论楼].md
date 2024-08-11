@@ -40,3 +40,11 @@
 —— 来自 samsung SM-S9110, Android 14上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 接的是解说的活又不上去挨揍，明天还要解说瓦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夏小筱ss  
+##### 14771#       发表于 2024-8-11 22:07
+
+最喜欢的英雄是青钢影，还挺意外的
+

@@ -413,3 +413,13 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 让人感动，真好啊，解答成长相关的命题怎么看都不觉得腻，对过去的自己做出承诺什么的就是很浪漫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  兰开夏  
+##### 666#       发表于 2024-8-11 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+好看！！！和解和成长，真棒
+

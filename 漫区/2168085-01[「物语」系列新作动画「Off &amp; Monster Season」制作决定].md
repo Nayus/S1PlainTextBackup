@@ -230,3 +230,11 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  仟音一心  
+##### 647#       发表于 2024-8-11 11:56
+
+业物语开头应该能做刃下心的起源了，究极玛丽苏（褒义）。
+

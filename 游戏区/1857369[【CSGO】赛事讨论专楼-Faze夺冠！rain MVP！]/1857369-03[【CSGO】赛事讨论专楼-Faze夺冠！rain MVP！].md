@@ -146,3 +146,18 @@ g2饭圈/黑子跟niko饭圈/黑子都一个弱智样，认真就输了，串串
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  andychen  
+##### 4386#       发表于 2024-8-12 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65868017&amp;ptid=1857369" target="_blank">doublehit 发表于 2024-8-12 03:23</a>
+
+g2饭圈/黑子跟niko饭圈/黑子都一个弱智样，认真就输了，串串得了
+
+—— 来自 鹅球 v3.0.87-alpha ...</blockquote>
+体育世界的个人粉都是这德行
+
+喷队友喷队伍喷对手喷管理层喷裁判，自己最喜欢的GG永远没错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

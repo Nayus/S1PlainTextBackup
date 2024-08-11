@@ -10,3 +10,14 @@
 
 武士道，好卑鄙的商法<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（but it works）
 
+
+*****
+
+####  fireflies  
+##### 8946#       发表于 2024-8-11 23:44
+
+看完剧场版再听游戏隐藏ed杀伤力太强了
+
+再见，各位，前程似锦
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

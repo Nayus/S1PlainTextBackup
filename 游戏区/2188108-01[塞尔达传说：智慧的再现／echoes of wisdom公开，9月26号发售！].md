@@ -4399,3 +4399,13 @@ Grezzo则是复刻织梦岛，做智慧再现
 
 不知道还是不是他们
 
+
+*****
+
+####  VVhaleVoice  
+##### 442#       发表于 2024-8-12 00:18
+
+这种时候总是会想起创世小玩家要是能有新作就好了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

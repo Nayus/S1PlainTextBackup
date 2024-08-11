@@ -296,3 +296,19 @@ https://x.com/koukidou_p/status/1820013980347408453
 虽然FT死胖子口嗨饶舌，但这不是你造谣传谣的理由。你的脑子除了这些造谣东西能多点别的想法吗？ ...</blockquote>
 你觉得是谣言跟我有什么关系，现在要亲眼看福田的推特不是很难的事情，自己睁眼看一下福田推特就知道了，会不会给你一种他对田中有意思的感觉
 
+
+*****
+
+####  死难者23er  
+##### 1890#       发表于 2024-8-11 20:03
+
+<img src="https://img.saraba1st.com/forum/202408/11/200319kanxn4a4a6yb11sy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2648.jpeg</strong> (94.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-11 20:03 上传
+
+所以说官方到底是怎么想的？彻底把这个戒指给毁了。
+

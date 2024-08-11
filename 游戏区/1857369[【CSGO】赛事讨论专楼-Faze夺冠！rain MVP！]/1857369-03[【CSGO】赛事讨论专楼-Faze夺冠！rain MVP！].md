@@ -98,3 +98,13 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  heseran  
+##### 4381#       发表于 2024-8-11 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65864113&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-8-11 19:37</a>
+怎么了怎么了，碗橱被冲了？有没有观战现场啊指个路</blockquote>
+贴吧、鱼吧、完美评论区、B站，每个地方的风景都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，建议全逛。
+

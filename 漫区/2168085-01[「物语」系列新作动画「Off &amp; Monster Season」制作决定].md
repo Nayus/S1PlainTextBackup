@@ -390,3 +390,18 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  downnote  
+##### 664#       发表于 2024-8-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65864307&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-11 19:55</a>
+
+你这么一说，戏言上过了不代表不能上物语吧，比如umb
+
+论坛助手,iPhone</blockquote>
+戏言选声优的时候，说是故意找没有配过物语的。
+
+不过推敲起来，的确没有说过不能反过来找戏言声优配物语<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

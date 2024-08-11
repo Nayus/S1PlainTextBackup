@@ -279,3 +279,28 @@ monster season全动画化的话应该会有死物语吧，想看为期两周的
 
 等扇物语吧，业物语里也有扇和神原的一话
 
+
+*****
+
+####  猫兔同笼  
+##### 652#       发表于 2024-8-11 15:00
+
+下周就是业了，育惨败真的没了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沼蝇  
+##### 653#       发表于 2024-8-11 15:04
+
+这话可真好啊
+
+*****
+
+####  oi99o  
+##### 654#       发表于 2024-8-11 15:06
+
+业物语估计也是做完死主就跳忍物语了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

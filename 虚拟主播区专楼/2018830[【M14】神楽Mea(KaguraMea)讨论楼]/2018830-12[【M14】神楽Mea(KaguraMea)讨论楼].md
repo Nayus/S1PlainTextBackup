@@ -5715,3 +5715,29 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 
 —— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ablast  
+##### 17126#       发表于 2024-8-11 04:46
+
+感觉麻麻一说错话就会被凛子打或者捏（14:33叫了声一袋） 想象出画面了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  掉头学姐  
+##### 17127#       发表于 2024-8-11 07:02
+
+诶，藏了多少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  斗斗一号  
+##### 17128#       发表于 2024-8-11 10:06
+
+30分钟的JK能量，真好啊，不知道还有没有
+

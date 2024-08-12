@@ -7572,3 +7572,15 @@ TMD小教授怎么是你
 
 當被玩家已用了一段(短)時間，認為已經是常態時才再修，那時才更炎上...
 
+
+*****
+
+####  xy1041  
+##### 14017#       发表于 2024-8-12 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863013&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-11 17:19</a>
+梅林二技能CD9变成了CD8，加了三回合50暴击和10NP群充，还不错，无条件30充，卑梅C组合更好用了。</blockquote>
+事实上这个改动无论周回还是高难都是很大提升，周回里梅林成为30群充拐，50充红卡打手可以自己充满了，另一方面无敌减了1回合cd，高难回转也更有余地了，这个加强确实挺在痛点上的，就是如果把这个技能改成指向加30单充变成思想键纹就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

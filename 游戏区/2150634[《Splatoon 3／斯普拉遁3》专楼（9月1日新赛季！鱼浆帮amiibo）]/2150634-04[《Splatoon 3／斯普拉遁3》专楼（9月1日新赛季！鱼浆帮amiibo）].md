@@ -148,3 +148,11 @@
 
 说起来发售至今每次祭典都打到至少永远，但一次百倍都没遇上过。有没有跟我一样的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 4967#       发表于 2024-8-12 13:16
+
+我上次祭典四个百倍，这次祭典没百倍能接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

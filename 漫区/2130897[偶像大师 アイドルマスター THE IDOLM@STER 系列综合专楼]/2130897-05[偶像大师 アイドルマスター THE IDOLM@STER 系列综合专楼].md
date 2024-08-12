@@ -913,3 +913,13 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  raimouse  
+##### 6105#       发表于 2024-8-12 13:17
+
+李大嘴唱豪哥，修音都修不过来吧我记得
+
+跟早见没得比
+

@@ -392,3 +392,13 @@ https://x.com/imaizumi_7026/status/1822491454234861818
 种1还是种命op裸飘的时候也不平吧</blockquote>
 都不说种了，种命里在海边穿那个蓝色吊带裙的时候平的都能切菜了，当然重置版我没咋看，乳量加没加没印象了
 
+
+*****
+
+####  软软人  
+##### 1898#       发表于 2024-8-12 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65869870&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-8-12 10:14</a>
+还有我只是说福田对田中意思两个人一个妻子已经过世了一个已经离婚了，就算福田真的想追田中请问有什么黄 ...</blockquote>
+从种命后半+龙的轮舞+种剧场版+换咖喱声优这些剧情和事给我的印象来说，我觉得福田脑子有病，他干出啥事我都不会觉得奇怪，他比大河内猛多了，都不是吃药的问题，可以直接去精神病院了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+

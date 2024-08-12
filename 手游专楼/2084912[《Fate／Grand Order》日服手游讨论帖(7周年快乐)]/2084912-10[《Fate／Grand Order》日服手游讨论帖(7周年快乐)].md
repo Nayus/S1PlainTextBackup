@@ -7745,3 +7745,26 @@ TMD小教授怎么是你
 
 2024-8-12 23:10 上传
 
+
+*****
+
+####  alucardcz  
+##### 14031#       发表于 2024-8-12 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65876695&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-12 23:05</a>
+
+看了漏油的评论感觉挺有道理的，给水艾蕾补了200多石头终于出2宝了，但是伤害提升也没想象的明显
+
+留个300左 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">300就想够 什么欧皇
+
+*****
+
+####  保罗赫伯特  
+##### 14032#       发表于 2024-8-12 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65876825&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-12 23:25</a>
+
+300就想够 什么欧皇</blockquote>
+那没准泳2也没想要的五星呢，抽点四星插件够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

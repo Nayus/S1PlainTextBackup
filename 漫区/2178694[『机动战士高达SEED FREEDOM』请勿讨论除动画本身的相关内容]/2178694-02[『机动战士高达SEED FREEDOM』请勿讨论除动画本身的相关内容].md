@@ -325,3 +325,14 @@ https://x.com/koukidou_p/status/1820013980347408453
 水着で
 <img src="https://p.sda1.dev/18/4e4d33e0f4da06a07f6cc75fe78a657c/20240811_215603.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fengzhouyi  
+##### 1892#       发表于 2024-8-12 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65852970&amp;ptid=2178694" target="_blank">死难者23er 发表于 2024-8-10 14:59</a>
+
+你觉得是谣言跟我有什么关系，现在要亲眼看福田的推特不是很难的事情，自己睁眼看一下福田推特就知道了， ...</blockquote>
+或许只有你的脑子看出来了，这种除了这两人一人是男一人是女之外全凭自己脑补的发散跟造别人黄遥有啥区别？况且你也不光在这个帖子里瞎说，在别的平台也胡写一气，幸好隔着海，这种捕风捉影的造遥没啥影响，大家也继续在忍耐你的胡诌罢了
+

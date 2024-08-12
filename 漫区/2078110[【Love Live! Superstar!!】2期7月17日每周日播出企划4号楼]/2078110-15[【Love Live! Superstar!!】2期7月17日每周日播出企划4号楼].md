@@ -1719,3 +1719,51 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 之前帮原来Q群的人下单一堆星序趴还没收定金，结果动画播完一堆人跑单，手上好几个可可<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚好小组趴没来得及下单，到时看看能不能用来换吧
 
+
+*****
+
+####  ads147147  
+##### 20883#       发表于 2024-8-11 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65859866&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-11 09:01</a>
+难绷花花这个甚至头都不是圆的，趴趴按理来说也是流水产品为啥形态可以这么千奇百怪，刷X也见过不少异形， ...</blockquote>
+可能是棉花填充的问题 这个也没法保证会不会粘黏。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ViyViy  
+##### 20884#       发表于 2024-8-11 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65860067&amp;ptid=2078110" target="_blank">starring 发表于 2024-8-11 09:43</a>
+
+我那个可趴的头也不是圆的，下巴鼓起来其她的趴反而都正常</blockquote>
+我因为我第一个的挑染胶印是开裂的，怕寿命短，从叔叔那又搞了两个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第一个一样下巴鼓鼓的+左右的挂耳染太长了+身子扁扁的像个胖子；
+
+第二个脸的右边像是被倒梯形削了一块，加上右撇的刘海短了，导致看着像个假小子。
+
+结果兜来转去还是第一个的品性是比较符合我预期，到手两年多了洗了好几次也没脱落，就这么过着了//
+
+我SSS的趴趴倒是挺完美的，看看年底的小组趴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这何尝不是一种盲盒草
+
+*****
+
+####  lj205  
+##### 20885#       发表于 2024-8-11 15:45
+
+要圆润可以学一下地瓜上集美们的掐掐大法，我买回来都是直接扔柜子里，定期吸尘器大力开吸，目前还没洗过
+
+之前帮原来Q群的人下单一堆星序趴还没收定金，结果动画播完一堆人跑单，手上好几个可可<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚好小组趴没来得及下单，到时看看能不能用来换吧
+
+*****
+
+####  lj205  
+##### 20886#       发表于 2024-8-12 08:33
+
+鱼下一集可算是真正有台词了，只能说本色出演…反正导演觉得行就行…<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

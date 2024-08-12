@@ -174,3 +174,22 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  shirolin  
+##### 4970#       发表于 2024-8-12 21:04
+
+不止随意换衣服，广场上会量产1.3装备：
+https://weibo.com/7766209741/5066588416119119
+
+<img src="https://img.saraba1st.com/forum/202408/12/210402xaz4pdaphzapwi8u.jpg" referrerpolicy="no-referrer">
+
+<strong>img-17234677510135066588416119119.jpg</strong> (554.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 21:04 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -936,3 +936,12 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 —— 来自 OnePlus PGKM10, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完蛋，忘了漏网之鱼
 
+
+*****
+
+####  糖尔  
+##### 6107#       发表于 2024-8-12 17:11
+
+说实话我前一个2.5企划是pjsk，听macchico 秋奈 铃果包括野口现场唱术曲感觉是真的牛，学马仕给我听懵了
+当然新人实力不足也很正常，不过感觉长月的上限说句实话挺低的，唱歌多少看天赋，压不住角色音正常，但是训练这么久还是气息不稳成这样，未来上限不高
+

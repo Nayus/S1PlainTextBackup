@@ -554,3 +554,11 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 我就说怎么没看见小忍登场...
 
+
+*****
+
+####  downnote  
+##### 678#       发表于 2024-8-12 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在想想，会不会找回平野绫来配
+

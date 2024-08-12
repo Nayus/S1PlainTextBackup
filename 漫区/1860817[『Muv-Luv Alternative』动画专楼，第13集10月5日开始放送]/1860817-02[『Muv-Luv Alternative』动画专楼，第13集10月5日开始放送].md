@@ -49,3 +49,13 @@ MUV-LUV：TACTICS(仮)公式X(@Muvluv_TCS
 
 age的C104展台太缺德了……
 
+
+*****
+
+####  再买自检星剁手  
+##### 2305#       发表于 2024-8-12 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65874759&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2024-8-12 18:32</a>
+age的C104展台太缺德了……</blockquote>
+是美奈实本人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

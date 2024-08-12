@@ -6618,3 +6618,49 @@ kanauru大手笔
 
 7大豆holo服啊可以啊，竟然是mio主办就很意外
 
+
+*****
+
+####  holoan  
+##### 9448#         楼主| 发表于 2024-8-12 20:51
+
+这次参加的8个人里面gamers全员参加
+
+所以一个很大的意义就是mikorome可以有极端难得的机会在一起最少一个星期
+
+*****
+
+####  holoan  
+##### 9449#         楼主| 发表于 2024-8-12 21:55
+
+另外忘了贴了
+
+今天的新闻（拍的是昨天的CM现场）
+
+<img src="https://img.saraba1st.com/forum/202408/12/214457nngbbbcb8gbu38tr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 21:44 上传
+
+<img src="https://img.saraba1st.com/forum/202408/12/214510csl2psly8pfe531v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (208.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202408/12/214517skmcxd1xo418mkk1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (165.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 21:45 上传
+
+这个摊位是推特知名holo同人画师了，本子和set我买了好几份了
+[https://x.com/aya02ka](https://x.com/aya02ka)
+

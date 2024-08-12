@@ -1518,3 +1518,13 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 麻了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一个陆仁贾  
+##### 46674#       发表于 2024-8-12 21:47
+
+想碰运气抽水妖崔的，结果彩圈先来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

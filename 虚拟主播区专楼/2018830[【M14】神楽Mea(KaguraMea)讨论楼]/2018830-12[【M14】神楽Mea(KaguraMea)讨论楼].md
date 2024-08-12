@@ -5978,3 +5978,18 @@ crew这种人你泔毕业你说发这个不影响，神乐mea还活着呢
 
 你麻麻的，难怪凛谈过5任还是6任都没成，都比不过这吊人是吧，阿泔那真是风评被害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  凛子也想要五个  
+##### 17155#       发表于 2024-8-13 04:00
+
+ 本帖最后由 凛子也想要五个 于 2024-8-13 04:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65877246&amp;ptid=2018830" target="_blank">Kayz996 发表于 2024-8-13 00:44</a>
+24分左右大亏是不是在问麻麻生日是什么时候啊，有的整蛊了这个营业
+
+不过其实之前麻麻说没有生日礼物，然后 ...</blockquote>
+所以find 到了不就跑木口了么（
+以及这个话其实放你麻这里很正常的，这人就是这种批话很多的形态，比如当年连体人车过一遍的经典发言“营业只是因为钱多”，本质上是一种口是心非（
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

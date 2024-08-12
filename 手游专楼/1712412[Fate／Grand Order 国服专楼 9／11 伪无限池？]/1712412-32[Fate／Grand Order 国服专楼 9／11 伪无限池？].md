@@ -1480,3 +1480,13 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">井了，中间歪了拿皇
 
+
+*****
+
+####  苍蓝之枪  
+##### 46671#       发表于 2024-8-12 20:00
+
+对着池子想了想还是关闭了游戏，托勒密之前应该是不抽卡了
+
+本来想呼符试水，但是一想呼符不如去拿由井正雪
+

@@ -1055,3 +1055,22 @@ vo强的一开始就强，菜的到最后也只是在调上的水平，拿声优
 
 学马选人是真的不行
 
+
+*****
+
+####  wfhtony  
+##### 6120#       发表于 2024-8-12 20:41
+
+这两天 [Resilio Sync 针对个人免费（Pro）了](https://www.resilio.com/sync/)，咱也顺带重新把这个工具捡起来，试着分享点东西，密钥也不晓得能不能用...
+以下内容需要积分高于 500 才可浏览
+
+IM@S_Hi-Res（以鸽伦比亚那些、外加SC和学马仕为主，包括部分场贩CD抓轨）：
+
+EXWNRGONB6NOIRSFAQVVQQMDBG3LKWBXMDLKKM6K7XSCBMUQY4NRMOKNC2U（密钥有效期：长期有效，大概）
+
+PS：建议使用「选择性同步」功能。
+
+录播档+α：B4J2A33DFXBWK2CCAMUR4NAIR4EB5VOMF（密钥有效期：长期有效，大概）
+
+VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止）
+

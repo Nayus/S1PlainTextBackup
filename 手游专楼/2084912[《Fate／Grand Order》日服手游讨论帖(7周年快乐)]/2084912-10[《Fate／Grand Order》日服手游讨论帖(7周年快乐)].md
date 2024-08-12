@@ -7719,3 +7719,13 @@ TMD小教授怎么是你
 
 2024-8-12 22:47 上传
 
+
+*****
+
+####  保罗赫伯特  
+##### 14029#       发表于 2024-8-12 23:05
+
+看了漏油的评论感觉挺有道理的，给水艾蕾补了200多石头终于出2宝了，但是伤害提升也没想象的明显<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+留个300左右给泳2，应该也够了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -5873,3 +5873,13 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 
 夜宵能买得起ku100的啊？借的吧
 
+
+*****
+
+####  thisisaspider  
+##### 17144#       发表于 2024-8-12 23:07
+
+反正我挺纠结的。挖石油能看到麻的更多面孔。但这热度感觉不是mea想要的，有种回到18-19年贴贴人魔怔的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+对比享受直播和联动曲带来的快乐，窥视主播隐私的快乐还有一种罪恶感。主播这行业还是逃不开贩卖隐私，非常难过地，mea作为pro应该早有觉悟了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

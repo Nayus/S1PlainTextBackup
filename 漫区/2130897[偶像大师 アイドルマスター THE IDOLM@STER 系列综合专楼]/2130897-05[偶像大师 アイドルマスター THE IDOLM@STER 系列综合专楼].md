@@ -903,3 +903,13 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 
 豪哥曲基本也不斩无名之辈了，除了开头后面都是顶级vo力
 
+
+*****
+
+####  RhmBWT_Wu  
+##### 6104#       发表于 2024-8-12 12:41
+
+李依李呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

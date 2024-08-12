@@ -7668,3 +7668,14 @@ TMD小教授怎么是你
 
 才意识到国服都开泳2池了，日服泳1还没开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14025#       发表于 2024-8-12 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65874318&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-12 17:38</a>
+
+才意识到国服都开泳2池了，日服泳1还没开</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟今年周年延了  现在来看难道是为了喂波大石才延的吗（
+

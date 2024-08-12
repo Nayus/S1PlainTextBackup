@@ -56,3 +56,11 @@
 
 感觉绫总今天解说打枪好像比昨天兴奋，虽然还是没啥词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stedckk  
+##### 14773#       发表于 2024-8-13 01:33
+
+绫总解说不就那三个词吗，诶、啊、哇
+

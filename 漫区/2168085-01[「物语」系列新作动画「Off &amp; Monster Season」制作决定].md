@@ -583,3 +583,11 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 说到恋童癖，按照斧乃木的预测，家里蹲的发育期之后抚子很可能比垃圾君还高吧，怎么也不会是ltp的好球区了
 
+
+*****
+
+####  Piano-Forest  
+##### 681#         楼主| 发表于 2024-8-12 21:58
+
+<img src="https://p.sda1.dev/18/414e88f0d6f6963a8e4f887dbde605d1/yande.re 1188413 araragi_tsukihi chibi gym_uniform hachikuji_mayoi monogatari__series_ ononoki_yotsugi pointy_ears seifuku sengoku_nadeko senjougahara_hitagi tagme_compressed.jpg" referrerpolicy="no-referrer">
+

@@ -5899,3 +5899,16 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 
 我勒个定时连环盾构机啊<img src="https://p.sda1.dev/18/85f1ca9bbe424916c979a742a031167d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  sino__unnko3  
+##### 17147#       发表于 2024-8-13 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65869242&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-8-12 09:22</a>
+重新听了下录播，之前和朋友一起去的健身房但是现在取消了计划(打撸导致的，唉撸撸)
+
+twitch开播还在说gpro ...</blockquote>
+新石油2分10秒左右说的应该是麻酱能吃辣但是凛子耐辣能力差，于是凛子吃酸的？
+结果这人还喜欢吃酸的，差点忘了这茬
+

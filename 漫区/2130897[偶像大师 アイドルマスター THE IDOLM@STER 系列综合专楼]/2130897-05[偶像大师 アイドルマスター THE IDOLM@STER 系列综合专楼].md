@@ -1074,3 +1074,11 @@ PS：建议使用「选择性同步」功能。
 
 VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止）
 
+
+*****
+
+####  66367749  
+##### 6121#       发表于 2024-8-13 07:13
+
+我之前看到过一些b站cgss live的wxy切片，学mas是第一次关注，但这个初次live感觉有点震撼我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

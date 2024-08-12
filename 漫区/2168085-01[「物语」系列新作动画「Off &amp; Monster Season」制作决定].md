@@ -534,3 +534,13 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  兰开夏  
+##### 676#       发表于 2024-8-12 18:32
+
+<blockquote>而且没有恋童癖的人</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

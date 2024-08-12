@@ -63,3 +63,13 @@ ST人的衣服都是这样，被企业赞助的衣服。而法国人胸部放大
 
 至于为什么突然松口了，开个玩笑岛田刚刚新冠痊愈还在恢复中可能想通了想要小钱钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1162#         楼主| 发表于 2024-8-12 13:00
+
+不知道，都是口胡猜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曾经放狗搜过下日语关键字，也完全没见11区那边有黑泥。
+
+当然脑补还是希望是万代爹的封口费已经过期了，下次周年岛田能回来搞周年服<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

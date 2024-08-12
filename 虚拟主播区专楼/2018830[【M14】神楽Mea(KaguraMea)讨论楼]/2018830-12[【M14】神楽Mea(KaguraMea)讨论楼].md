@@ -5883,3 +5883,11 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 
 对比享受直播和联动曲带来的快乐，窥视主播隐私的快乐还有一种罪恶感。主播这行业还是逃不开贩卖隐私，非常难过地，mea作为pro应该早有觉悟了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  商博良  
+##### 17145#       发表于 2024-8-12 23:46
+
+年轻时傻过，但人是要活在眼下的。
+

@@ -885,3 +885,11 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 
 豪哥曲也算卡拉ok级别吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+*****
+
+####  yuuuuuuuu  
+##### 6102#       发表于 2024-8-12 10:30
+
+表演水平都参差不齐的，现实偶像团体唱跳不行的也不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

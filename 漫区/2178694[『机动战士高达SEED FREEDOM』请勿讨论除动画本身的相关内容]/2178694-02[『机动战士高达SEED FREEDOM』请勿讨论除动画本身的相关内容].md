@@ -358,3 +358,17 @@ https://x.com/koukidou_p/status/1820013980347408453
 或许只有你的脑子看出来了，这种除了这两人一人是男一人是女之外全凭自己脑补的发散跟造别人黄遥有啥区别 ...</blockquote>
 还有我只是说福田对田中意思两个人一个妻子已经过世了一个已经离婚了，就算福田真的想追田中请问有什么黄色的地方存在？
 
+
+*****
+
+####  软软人  
+##### 1895#       发表于 2024-8-12 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65865487&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-8-11 21:56</a>
+https://x.com/imaizumi_7026/status/1822491454234861818
+
+カガリとラクス
+
+水着で</blockquote>
+拉客撕这乳量不对啊，我记得早年是个平板来着，看来是过上夫妻生活了
+

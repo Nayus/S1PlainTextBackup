@@ -1441,3 +1441,42 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 今年泳装圆满结束，1200多石3宝妖兰 还歪出一个复仇 尼托，爽了
 
+
+*****
+
+####  kyonkoism  
+##### 46668#       发表于 2024-8-12 19:49
+
+<img src="https://img.saraba1st.com/forum/202408/12/194858g9333zrllwtr9zpw.png" referrerpolicy="no-referrer">
+
+<strong>_9[9VN]}4KQMOFL2J0GYK27.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 19:48 上传
+
+<img src="https://img.saraba1st.com/forum/202408/12/194901ry2u5dgint5hivgh.png" referrerpolicy="no-referrer">
+
+<strong>X{OA$K(`QJ7U_Y]4{$TL]@G.png</strong> (1.73 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 19:49 上传
+
+2个十连2宝妖兰，单抽补了妖崔，我跑<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 46669#       发表于 2024-8-12 19:51
+
+330妖兰+第二宝水C呆，很欧嘛？前面水C呆垫了600多石头的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 46670#       发表于 2024-8-12 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">井了，中间歪了拿皇
+

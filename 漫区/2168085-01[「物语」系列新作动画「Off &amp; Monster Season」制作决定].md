@@ -562,3 +562,16 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在想想，会不会找回平野绫来配
 
+
+*****
+
+####  仟音一心  
+##### 679#       发表于 2024-8-12 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65873444&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-12 16:08</a>
+业物语小说里有写当时的尊主是成年形态还是幼年形态吗？如果是幼年形态的话还可以用正太音配一下
+
+论坛助手 ...</blockquote>
+没说，就是纯叙诡。
+顺便《忍物语》里面是幼年形态。
+

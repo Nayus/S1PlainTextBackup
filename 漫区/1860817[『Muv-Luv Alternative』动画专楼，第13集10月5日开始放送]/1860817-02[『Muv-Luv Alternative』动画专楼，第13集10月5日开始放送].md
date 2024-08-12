@@ -67,3 +67,11 @@ age的C104展台太缺德了……</blockquote>
 
 抹布做战旗可比做动作游戏要靠谱多了
 
+
+*****
+
+####  smdzh2  
+##### 2307#       发表于 2024-8-12 21:36
+
+SLG会有美少女对抗小型种的战斗吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

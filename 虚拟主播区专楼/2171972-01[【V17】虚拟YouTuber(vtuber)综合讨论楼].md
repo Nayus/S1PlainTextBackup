@@ -1722,3 +1722,11 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不破对打击顺序的理解没梨花好，不过阿葵的发挥是真的神勇
 
+
+*****
+
+####  Devi_Lito  
+##### 586#       发表于 2024-8-12 21:30
+
+8支队还是比10支队日程上观感舒服多了，但目前社内这个人数明年估计又得扩充到10支队<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

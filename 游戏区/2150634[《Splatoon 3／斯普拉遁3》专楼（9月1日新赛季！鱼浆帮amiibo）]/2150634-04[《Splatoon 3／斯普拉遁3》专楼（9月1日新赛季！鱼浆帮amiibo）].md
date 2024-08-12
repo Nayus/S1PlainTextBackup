@@ -140,3 +140,11 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  事象变移机关  
+##### 4966#       发表于 2024-8-12 11:19
+
+说起来发售至今每次祭典都打到至少永远，但一次百倍都没遇上过。有没有跟我一样的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

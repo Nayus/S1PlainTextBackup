@@ -5005,3 +5005,12 @@ van线：奥雷德、首都、安卡威尔、煌都
 
 除了开局奥雷德
 
+
+*****
+
+####  卢迪克  
+##### 2629#       发表于 2024-8-12 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65826552&amp;ptid=2160194" target="_blank">Squall25 发表于 2024-8-7 19:59</a></blockquote>
+fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

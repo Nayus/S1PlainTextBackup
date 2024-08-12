@@ -591,3 +591,25 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 <img src="https://p.sda1.dev/18/414e88f0d6f6963a8e4f887dbde605d1/yande.re 1188413 araragi_tsukihi chibi gym_uniform hachikuji_mayoi monogatari__series_ ononoki_yotsugi pointy_ears seifuku sengoku_nadeko senjougahara_hitagi tagme_compressed.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 682#       发表于 2024-8-12 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65875804&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-8-12 21:04</a>
+
+说到恋童癖，按照斧乃木的预测，家里蹲的发育期之后抚子很可能比垃圾君还高吧，怎么也不会是ltp的好球区了 ...</blockquote>
+还有几个女角色比垃圾君矮，难道恋童癖是因为身边的女人都太高了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  5353  
+##### 683#       发表于 2024-8-12 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65876916&amp;ptid=2168085" target="_blank">Sliurus 发表于 2024-8-12 23:36</a>
+
+还有几个女角色比垃圾君矮，难道恋童癖是因为身边的女人都太高了吗</blockquote>
+萝莉控喜欢幼女需要理由吗，因为萝莉/幼女她就在那里。
+

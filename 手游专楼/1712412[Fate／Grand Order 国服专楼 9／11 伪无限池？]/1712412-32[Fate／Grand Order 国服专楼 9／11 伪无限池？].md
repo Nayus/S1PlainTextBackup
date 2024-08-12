@@ -1546,3 +1546,15 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 妖兰是这种性格的人吗……？<img src="https://p.sda1.dev/18/6261adcce54f9ca979165fecca4dc7d9/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  dawning  
+##### 46677#       发表于 2024-8-13 06:02
+
+七张卡都有了，补汇呆二宝大失败，这次抽了6个五星，歪了三个就nm离谱，
+
+jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，
+
+这次抽卡最大的惊喜 出了  沙条爱歌的礼装<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+

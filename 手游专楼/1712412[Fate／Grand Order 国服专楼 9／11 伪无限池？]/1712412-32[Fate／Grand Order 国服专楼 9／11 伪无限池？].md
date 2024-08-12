@@ -1506,3 +1506,15 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 事情不对劲起来了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  待宵  
+##### 46673#       发表于 2024-8-12 21:35
+
+本意是水妖崔抽个2宝就跑路
+
+目前：水妖兰1、水妖崔1、水巴格子2
+
+麻了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
+

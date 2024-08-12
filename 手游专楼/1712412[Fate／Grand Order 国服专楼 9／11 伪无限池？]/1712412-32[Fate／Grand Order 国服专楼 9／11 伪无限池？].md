@@ -1538,3 +1538,11 @@ JK给我带来了惊喜，我的是5宝，自buff接汇呆的宝具，能2蓝卡
 
 算上另一个卡池，合计歪了3个五星，太离谱了
 
+
+*****
+
+####  lcn  
+##### 46676#       发表于 2024-8-12 22:50
+
+妖兰是这种性格的人吗……？<img src="https://p.sda1.dev/18/6261adcce54f9ca979165fecca4dc7d9/image.jpg" referrerpolicy="no-referrer">
+

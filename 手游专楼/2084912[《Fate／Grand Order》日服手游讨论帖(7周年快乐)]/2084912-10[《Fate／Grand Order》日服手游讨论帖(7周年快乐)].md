@@ -7698,3 +7698,24 @@ TMD小教授怎么是你
 
 继续180石头一个福尔摩斯，这个周年送的石头，2宝艾蕾+1宝金时+1宝福尔摩斯，泳装？管他呢，身为伽皇对这期泳装毫无兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14028#       发表于 2024-8-12 22:51
+
+ 本帖最后由 希望之花 于 2024-8-12 22:52 编辑 
+
+周年石头也全部拿去抽泳装艾蕾了
+
+主要是一期卡池没啥想要的，二期的话，目前没有泳装的从者里想要实装泳装的有小麻雀和仇尼托，感觉都不会太可能的样子
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">不过水艾蕾语音里有提到这两个，应该不会真落地吧
+
+<img src="https://img.saraba1st.com/forum/202408/12/224728ksb1i2gao8s2s9fk.png" referrerpolicy="no-referrer">
+
+<strong>fgo.png</strong> (265.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 22:47 上传
+

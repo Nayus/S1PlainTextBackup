@@ -7768,3 +7768,11 @@ TMD小教授怎么是你
 300就想够 什么欧皇</blockquote>
 那没准泳2也没想要的五星呢，抽点四星插件够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14033#       发表于 2024-8-12 23:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 硬币到底什么时候补 好急 不会等我公主刷到羁绊9还没影子吧
+

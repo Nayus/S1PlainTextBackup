@@ -7584,3 +7584,36 @@ TMD小教授怎么是你
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  eilot  
+##### 14018#       发表于 2024-8-12 12:17
+
+ 本帖最后由 eilot 于 2024-8-12 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65871102&amp;ptid=2084912" target="_blank">xy1041 发表于 2024-8-12 11:54</a>
+
+事实上这个改动无论周回还是高难都是很大提升，周回里梅林成为30群充拐，50充红卡打手可以自己充满了，另 ...</blockquote>
+其實最理想還是將單體強化的英雄作成給個單充，
+
+不過全體無敵變成CD6也好用得多
+
+只是現在故事主線的BOSS太喜歡普攻/寶具會先再追加強化消除效果，又或者打了一條血槽就全體消 BUFF
+
+令全體無敵或防肅經常的作用效果大減，變成速攻為重，大不了用大量靈脈石來解決對方...
+
+幸好是活動的高難度通常都是打了一條血槽就直接來寶具，只要寶具沒有起手前消BUFF就可以了，只是現在每晚就能回令咒3條...
+
+
+*****
+
+####  eilot  
+##### 14019#       发表于 2024-8-12 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65863223&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-11 17:49</a>
+
+哎 时代啊 小时候还有朕哥哥高难体系 现在朕都已经不存在了</blockquote>
+之前還以為是更早的朕哥哥有強化，想不到是尺教授遲來先上岸
+
+不過兩隻都沒，所以只能期待卑爾乎有沒強化...
+

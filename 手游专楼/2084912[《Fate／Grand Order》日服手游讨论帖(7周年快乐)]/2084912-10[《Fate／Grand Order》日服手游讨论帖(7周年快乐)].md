@@ -7679,3 +7679,14 @@ TMD小教授怎么是你
 才意识到国服都开泳2池了，日服泳1还没开</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟今年周年延了  现在来看难道是为了喂波大石才延的吗（
 
+
+*****
+
+####  保罗赫伯特  
+##### 14026#       发表于 2024-8-12 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65874455&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-12 17:54</a>
+
+毕竟今年周年延了  现在来看难道是为了喂波大石才延的吗（</blockquote>
+提前想到了这一步吗，什么八奇领域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

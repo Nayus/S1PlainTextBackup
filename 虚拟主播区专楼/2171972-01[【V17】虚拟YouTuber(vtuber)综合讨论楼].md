@@ -1697,3 +1697,20 @@ ABO结档了啊，多多少少算个名门校最后的数据也不错了，虽�
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Ketestrait  
+##### 583#       发表于 2024-8-12 19:42
+
+ 本帖最后由 Ketestrait 于 2024-8-12 19:43 编辑 
+
+虽然还是空体力被打了2分，但葵皇MVP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高等黑暗  
+##### 584#       发表于 2024-8-12 19:43
+
+葵皇那投球太吓人了，各种边角变化球进好球区，这是AI在投球？你说这是真人在投我都信
+

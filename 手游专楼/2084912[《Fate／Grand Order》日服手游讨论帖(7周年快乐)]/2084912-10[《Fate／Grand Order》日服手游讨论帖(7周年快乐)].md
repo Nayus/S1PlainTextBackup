@@ -7660,3 +7660,11 @@ TMD小教授怎么是你
 
 可以用拉二拐一下强化成功率吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且拉二还有群充和其他buff
 
+
+*****
+
+####  保罗赫伯特  
+##### 14024#       发表于 2024-8-12 17:38
+
+才意识到国服都开泳2池了，日服泳1还没开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

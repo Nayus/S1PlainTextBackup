@@ -73,3 +73,14 @@ ST人的衣服都是这样，被企业赞助的衣服。而法国人胸部放大
 
 当然脑补还是希望是万代爹的封口费已经过期了，下次周年岛田能回来搞周年服<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1163#       发表于 2024-8-12 13:55
+
+没抽到火舞缺却抽到了舞的泳装_(:з)∠)_
+关于岛田……早年还在幻想他能继续画德舰呢……
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

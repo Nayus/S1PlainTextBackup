@@ -14057,3 +14057,14 @@ Ave Mujica 200萬播放了<img src="https://static.saraba1st.com/image/smiley/fa
 
 真实拉帮结派，隔壁不准备横幅恭迎邦太祖莅临指导
 
+
+*****
+
+####  Drawrain  
+##### 21998#       发表于 2024-8-12 23:59
+
+要憋到几号啊
+感觉真要化身初华了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7627,3 +7627,16 @@ TMD小教授怎么是你
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  alucardcz  
+##### 14021#       发表于 2024-8-12 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65871979&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-12 13:22</a>
+
+我现在才想起梅奥不相容问题，太狗屎了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+你只要不同时在场没问题
+

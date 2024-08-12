@@ -923,3 +923,16 @@ ego这歌律动不行的话很容易夜店爆款唱成广场舞，看游戏内�
 
 跟早见没得比
 
+
+*****
+
+####  Anatoly  
+##### 6106#       发表于 2024-8-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65871549&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2024-8-12 12:41</a>
+
+李依李呢
+
+—— 来自 OnePlus PGKM10, Android 14上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完蛋，忘了漏网之鱼
+

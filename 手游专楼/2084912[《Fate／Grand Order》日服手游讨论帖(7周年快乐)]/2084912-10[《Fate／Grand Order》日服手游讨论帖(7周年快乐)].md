@@ -7640,3 +7640,15 @@ TMD小教授怎么是你
 —— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 你只要不同时在场没问题
 
+
+*****
+
+####  格林卡罗尔  
+##### 14022#       发表于 2024-8-12 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65872860&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-12 14:59</a>
+你只要不同时在场没问题</blockquote>
+可我就是想用梅林让奥伯龙开炮...这下不如光狐了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

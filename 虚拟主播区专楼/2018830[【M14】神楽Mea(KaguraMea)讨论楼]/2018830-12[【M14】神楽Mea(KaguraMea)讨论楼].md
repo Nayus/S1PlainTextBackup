@@ -5824,3 +5824,28 @@ https://www.youtube.com/watch?v=HArsAGZCCtw
 没注意是不是和朋友去 总之是没去 一周没出门
 刚刚提了一下阿卡林，看来确实是认识的
 
+
+*****
+
+####  商博良  
+##### 17139#       发表于 2024-8-12 14:30
+
+<img src="https://img.saraba1st.com/forum/202408/12/143043eo4gogzvg73agag4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (533.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-12 14:30 上传
+
+笑死
+
+*****
+
+####  十九号大侠  
+##### 17140#       发表于 2024-8-12 14:32
+
+小麻撸瘾还是那么重
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

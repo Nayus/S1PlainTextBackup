@@ -193,3 +193,22 @@ https://weibo.com/7766209741/5066588416119119
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DeltaStriker  
+##### 4971#       发表于 2024-8-13 03:25
+
+玩随机武器活动真实体验到自己武器池太窄 一分到狙刷伞就抓瞎
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  DeltaStriker  
+##### 4972#       发表于 2024-8-13 03:26
+
+刷指的是滚筒 随到北斋毛笔之类的稍微会玩那么一点
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

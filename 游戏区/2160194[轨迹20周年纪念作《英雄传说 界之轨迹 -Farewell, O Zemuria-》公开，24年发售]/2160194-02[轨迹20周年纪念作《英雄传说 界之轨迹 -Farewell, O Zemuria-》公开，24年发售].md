@@ -5306,3 +5306,12 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 不过法老控本质还是想写自己，虽说套了不少中韩设定吧，但他们的皇帝还是地道的二次元日本皇族姓式</blockquote>
 2008年同时播出第二季的鲁鲁修和高达00，里面都有个スメラギ。
 
+
+*****
+
+####  酷乐  
+##### 2656#       发表于 2024-8-14 01:47
+
+TTD在MC有83+8.0了，仅次于3rd的83+8.1
+[https://www.metacritic.com/game/ ... s-through-daybreak/](https://www.metacritic.com/game/the-legend-of-heroes-trails-through-daybreak/)
+

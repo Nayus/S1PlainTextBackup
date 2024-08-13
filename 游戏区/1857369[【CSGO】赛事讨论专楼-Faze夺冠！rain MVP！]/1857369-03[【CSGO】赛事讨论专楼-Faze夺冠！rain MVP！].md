@@ -210,3 +210,23 @@ T方的战术问题就更多了，绿龙之前各张地图T方胜率高就是因
 
 现在g2这个逼火力太恐怖了，不会要给尼公子圆梦了吧，那种事情不要啊我还想迫害尼公子一辈子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  heseran  
+##### 4392#       发表于 2024-8-13 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65886575&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-8-13 23:23</a>
+现在g2这个逼火力太恐怖了，不会要给尼公子圆梦了吧，那种事情不要啊我还想迫害尼公子一辈子的 ...</blockquote>
+snax想明白了，这两天的比赛学会奉献了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯影汐岚  
+##### 4393#       发表于 2024-8-13 23:35
+
+别急，碰到navi就老实了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -14322,3 +14322,11 @@ ttps://www.pixiv.net/artworks/121349338 <blockquote>
 
 多来这边打中华炮就是了，就目前双r两次票秒空的战斗力来看完全是血赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22016#       发表于 2024-8-13 23:31
+
+双r秒空但ras是1000人场，萝的黄牛恶心到爆炸，不是说不希望来打中华炮但是感觉人气越高黄牛越恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

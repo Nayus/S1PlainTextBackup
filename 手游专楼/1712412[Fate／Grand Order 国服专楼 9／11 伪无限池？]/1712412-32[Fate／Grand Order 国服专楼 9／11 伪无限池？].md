@@ -1580,3 +1580,26 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 我群友基本都是五六十发出1到2宝，楼内也是这个情况<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 46680#       发表于 2024-8-13 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65878293&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2024-8-13 09:03</a>
+这次泳装二期感觉有黑贞池那味了
+
+我群友基本都是五六十发出1到2宝，楼内也是这个情况 ...</blockquote>
+就我水C呆吃保底呗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kyonkoism  
+##### 46681#       发表于 2024-8-13 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65878768&amp;ptid=1712412" target="_blank">khxooo 发表于 2024-8-13 09:54</a>
+
+就我水C呆吃保底呗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期 二期 一期到是挺正常的，我群友也有俩吃保底
+

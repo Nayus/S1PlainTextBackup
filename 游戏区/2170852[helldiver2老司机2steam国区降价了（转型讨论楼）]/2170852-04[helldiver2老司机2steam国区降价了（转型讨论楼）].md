@@ -1650,3 +1650,15 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 原来修复了牛屁股免疫爆炸伤害的bug之后，可以用集束炸弹杀牛了，现在好像也有人用集束炸弹炸已经埋地的钉 ...</blockquote>
 那集束火箭筒呢？
 
+
+*****
+
+####  赤井稻妻  
+##### 5251#       发表于 2024-8-13 18:46
+
+ 本帖最后由 赤井稻妻 于 2024-8-13 18:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65883224&amp;ptid=2170852" target="_blank">lily-black 发表于 2024-8-13 17:02</a>
+
+那集束火箭筒呢？</blockquote>
+集束火箭筒的问题在于自杀效率远远高于杀敌效率吧，而且都背背包了，为什么不用泛用性更强的飞矛
+

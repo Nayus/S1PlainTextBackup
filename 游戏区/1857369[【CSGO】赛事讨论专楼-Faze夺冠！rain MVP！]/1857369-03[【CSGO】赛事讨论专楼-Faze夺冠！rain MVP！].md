@@ -248,3 +248,13 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 指战术本果然被警告了，看比赛的时候就在想这taz胆子这么大的吗。
 
+
+*****
+
+####  ParadiseMartyr  
+##### 4396#       发表于 2024-8-14 00:48
+
+电竞兴奋剂有用??????
+快进到玩速通的也打兴奋剂作弊…
+—— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

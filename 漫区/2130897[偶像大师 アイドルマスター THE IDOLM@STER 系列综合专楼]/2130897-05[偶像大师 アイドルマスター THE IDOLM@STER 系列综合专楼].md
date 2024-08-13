@@ -1082,3 +1082,13 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 
 我之前看到过一些b站cgss live的wxy切片，学mas是第一次关注，但这个初次live感觉有点震撼我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Anatoly  
+##### 6122#       发表于 2024-8-13 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现场收音很烂，歌曲难度在那，而且都是solo所以没人顶
+
+后面看目前的歌，莉莉娅应该是一定会寄，清夏和麻央能指望一下，剩下三个应该烂不到哪去？（但广的断气唱法实战能成啥样不好说）
+

@@ -7794,3 +7794,13 @@ TMD小教授怎么是你
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  jackyhuang  
+##### 14036#       发表于 2024-8-13 10:05
+
+不要说的好像去年出了什么强度破格的卡一样
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

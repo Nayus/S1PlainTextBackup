@@ -1603,3 +1603,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 就我水C呆吃保底呗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期 二期 一期到是挺正常的，我群友也有俩吃保底
 
+
+*****
+
+####  xy1041  
+##### 46682#       发表于 2024-8-13 10:06
+
+不止，感觉一个十连两个四星全出也很常见，群内、楼内、我自己、代抽主播那我都看到了，这池子改过什么参数吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -1140,3 +1140,23 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 
 没想到竟然是21年就通过试镜了。然后就没有然后了吗
 
+
+*****
+
+####  kykawaiii  
+##### 6129#       发表于 2024-8-13 13:01
+
+不至于这么草台吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  馬斯特壺  
+##### 6130#       发表于 2024-8-13 13:07
+
+爱马仕这边一般是live定下时间才开始练live吧而且基本是修行靠个人，灰百有些中之人隐隐约约透露过一点，之前还听到种田为live练歌还是自己找卡拉ok练来着，准备两年怎么看都是演技和录音室歌唱指导，长月没一点唱歌和跳舞的底子只能慢慢练出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

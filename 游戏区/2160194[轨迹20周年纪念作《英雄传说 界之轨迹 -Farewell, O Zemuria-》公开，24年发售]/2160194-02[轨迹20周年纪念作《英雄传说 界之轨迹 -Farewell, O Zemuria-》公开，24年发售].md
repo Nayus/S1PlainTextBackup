@@ -5101,3 +5101,13 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 
 淦，我的限定版也被退了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冷泉夜月  
+##### 2639#       发表于 2024-8-13 12:55
+
+昨天墨策开了25个港版限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

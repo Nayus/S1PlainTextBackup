@@ -195,3 +195,13 @@
 
 怎么在联动窗里就合唱了secret base，我的预想可是在葬礼上与二期生一起唱的<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zpy393  
+##### 9812#       发表于 2024-8-13 20:51
+
+没关系，二期生葬礼可以再唱一次<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

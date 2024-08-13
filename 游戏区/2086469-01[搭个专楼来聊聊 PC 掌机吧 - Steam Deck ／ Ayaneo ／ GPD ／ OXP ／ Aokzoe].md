@@ -40,3 +40,11 @@ SteamOS 似乎有望添加对 ROG Ally 的支持：
 [https://store.steampowered.com/n ... ator_clanid=9730205](https://store.steampowered.com/news/app/1675200/view/4361258795952118017?curator_clanid=9730205)
  <blockquote>Added support for extra ROG Ally keys</blockquote>
 
+
+*****
+
+####  酷乐  
+##### 1278#       发表于 2024-8-13 13:26
+
+京东的ally x卖了几台？迄今没货
+

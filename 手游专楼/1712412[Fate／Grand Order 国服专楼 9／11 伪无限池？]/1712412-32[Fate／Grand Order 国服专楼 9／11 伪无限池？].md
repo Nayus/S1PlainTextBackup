@@ -1669,3 +1669,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 算呼符再多算点大概6500抽了吧
 
+
+*****
+
+####  司马千晶  
+##### 46689#       发表于 2024-8-13 21:14
+
+解包5星出率才0.93，不算特别非但是符合抽卡手感<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

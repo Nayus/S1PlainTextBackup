@@ -7850,3 +7850,16 @@ TMD小教授怎么是你
 
 最接近改善使用体验的可能是烟，但是烟的重要性也远不到大拐和统治级打手的程度了
 
+
+*****
+
+####  johnkamsar  
+##### 14041#       发表于 2024-8-13 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65878887&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-13 10:05</a>
+
+不要说的好像去年出了什么强度破格的卡一样
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v3.0.0. ...</blockquote>
+突出的也就只是中上，最值得玩也就芜，2宝芜性价比很高，五宝够无脑<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

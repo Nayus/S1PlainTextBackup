@@ -1649,3 +1649,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 水妖兰这边打算回头再放一单试试
 
+
+*****
+
+####  johnkamsar  
+##### 46687#       发表于 2024-8-13 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大概100石，1宝，1宝，跑了。
+
+这次190石头收获还凑合吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

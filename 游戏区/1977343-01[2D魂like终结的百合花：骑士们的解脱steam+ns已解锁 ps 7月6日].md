@@ -20,3 +20,11 @@ NS虽然也打完全成就了，但PS会免送了莉莉丝，想了想还是抽�
 
 我也看到会免送这个了，打算试试。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ATRO  
+##### 665#       发表于 2024-8-13 23:44
+
+这作对上电波就很上头，作曲和美术加分太多，被骑士团长三阶段波秒了都是种享受<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

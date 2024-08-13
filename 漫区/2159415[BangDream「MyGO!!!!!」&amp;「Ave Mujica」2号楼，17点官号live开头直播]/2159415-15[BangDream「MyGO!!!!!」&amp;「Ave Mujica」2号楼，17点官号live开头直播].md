@@ -14249,3 +14249,33 @@ ppp,ag,hhw,r,m,pp,ras,mygo？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时候这些大公司高管真的很会犯蠢，像今晚某个开发布会的车企一样
 
+
+*****
+
+####  御幸一也  
+##### 22008#       发表于 2024-8-13 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知不覺又守寡一個月了
+
+*****
+
+####  hitori酱  
+##### 22009#       发表于 2024-8-13 22:19
+
+大公司？草台罢了，wsd是真没钱（利润-）+当初肯定没预料到go的热度+日本人做事一板一眼=mujica各种跟不上，并且硬拖到明年<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22010#       发表于 2024-8-13 22:24
+
+可能是没有炎上带来的错觉吧
+
+*****
+
+####  skives  
+##### 22011#       发表于 2024-8-13 22:25
+
+wsd至少活到出初祥睦祥双人卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

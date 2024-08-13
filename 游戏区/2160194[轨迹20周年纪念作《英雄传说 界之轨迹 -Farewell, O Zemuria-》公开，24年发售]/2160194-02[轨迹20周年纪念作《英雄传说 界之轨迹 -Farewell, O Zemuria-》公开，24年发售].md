@@ -5288,3 +5288,21 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 
 看了看上面说的四格封面，怎么有艾约，而且没有罗
 
+
+*****
+
+####  酷乐  
+##### 2654#       发表于 2024-8-13 19:24
+
+终于有个代理能编辑Ja Wikipedia了，创建了条目。
+
+*****
+
+####  酷乐  
+##### 2655#       发表于 2024-8-13 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65883585&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-13 17:35</a>
+
+不过法老控本质还是想写自己，虽说套了不少中韩设定吧，但他们的皇帝还是地道的二次元日本皇族姓式</blockquote>
+2008年同时播出第二季的鲁鲁修和高达00，里面都有个スメラギ。
+

@@ -48,3 +48,15 @@ SteamOS 似乎有望添加对 ROG Ally 的支持：
 
 京东的ally x卖了几台？迄今没货
 
+
+*****
+
+####  两个字  
+##### 1279#       发表于 2024-8-13 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65880950&amp;ptid=2086469" target="_blank">酷乐 发表于 2024-8-13 13:26</a>
+京东的ally x卖了几台？迄今没货</blockquote>
+X现在属于耍🐒阶段，要么加大概1k左右买，要么等等，如果插电玩不如无脑1代，没啥区别
+
+—— 来自 HUAWEI ALT-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

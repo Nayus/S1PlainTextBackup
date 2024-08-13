@@ -5243,3 +5243,40 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 黑月的问题其实是法老控不会写国人题材，实际上是拿霓虹财阀控制黑社会那一套给套进了黑月，国内有多少人懂 ...</blockquote>
 很明显啊，甚至大君就是德川用过的称号
 
+
+*****
+
+####  卢迪克  
+##### 2652#       发表于 2024-8-13 17:35
+
+ 本帖最后由 卢迪克 于 2024-8-13 17:37 编辑 
+
+不过法老控本质还是想写自己，虽说套了不少中韩设定吧，但他们的皇帝还是地道的二次元日本皇族姓式
+
+<img src="https://img.saraba1st.com/forum/202408/13/173458dywy5yplm9zyr253.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240813_172814.jpg</strong> (121.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-13 17:34 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/173527bzl4v818884j50l5.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1723541710666.jpg</strong> (58.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-13 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/173532inchk3tccebnzttz.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1723541713543.jpg</strong> (50.21 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-13 17:35 上传
+

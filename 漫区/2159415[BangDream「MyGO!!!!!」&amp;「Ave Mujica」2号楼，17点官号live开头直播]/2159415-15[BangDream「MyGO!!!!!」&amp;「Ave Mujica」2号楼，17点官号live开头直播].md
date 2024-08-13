@@ -14068,3 +14068,23 @@ Ave Mujica 200萬播放了<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  堀内爱里衣  
+##### 21999#       发表于 2024-8-13 15:02
+
+       
+
+<img src="https://img.saraba1st.com/forum/202408/13/150209tvb8ohvz55svffff.png" referrerpolicy="no-referrer">
+
+<strong>PixPin_2024-08-13_15-00-34.png</strong> (462.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 15:02 上传
+
+       [https://x.com/BushiM_info/status/1823238065118196150](https://x.com/BushiM_info/status/1823238065118196150)
+
+       [https://bushiroad-store.com/pages/mygo_2024_summer_ver](https://bushiroad-store.com/pages/mygo_2024_summer_ver)
+

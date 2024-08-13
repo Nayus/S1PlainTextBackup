@@ -5210,3 +5210,25 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 
 不过，总的顺序应该大差不差了，我倒是想看看加上黎轨的轨迹总投票，想看看事务所的大家人气什么水准，黎轨是真的无人关心吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2649#       发表于 2024-8-13 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65882665&amp;ptid=2160194" target="_blank">solasakiye 发表于 2024-8-13 16:21</a>
+
+这种排名投票人数有没过千啊
+
+不过，总的顺序应该大差不差了，我倒是想看看加上黎轨的轨迹总投票，想看看事 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么可能过千，合计五六百票吧，还是一个人投三票的
+
+*****
+
+####  izayoi39  
+##### 2650#       发表于 2024-8-13 16:31
+
+ 本帖最后由 izayoi39 于 2024-8-13 16:34 编辑 
+
+黑月的问题其实是法老控不会写国人题材，实际上是拿霓虹财阀控制黑社会那一套给套进了黑月，国内有多少人懂霓虹财阀，所以就看黑月的剧情怎么看怎么难受，因为本质上就不是国人喜欢的剧情写法，黑月实际上不是国产黑社会而是日本财阀
+

@@ -14138,3 +14138,71 @@ Alea jacta est：7873
 
 要传位了吗
 
+
+*****
+
+####  hitori酱  
+##### 22003#       发表于 2024-8-13 19:14
+
+武士道6月期财报提到🐶🐔部份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以Mygo为中心的现场表演部门创下有史以来最高的全年销售额，同时🐶🐔的周边产品销量也稳步增长
+
+Mujica将配合动画播出寻求进一步增长
+
+<img src="https://img.saraba1st.com/forum/202408/13/185809g1zokxuf66fk007f.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.44.19.png</strong> (396.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/185810jdbdr3cd8mpmmymm.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.50.12.png</strong> (816.97 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/185811sw8ncybgg0g3d8wc.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.50.32.png</strong> (961.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/185812mrh3shi022mspvrj.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.51.07.png</strong> (1.94 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/185813qhhhypbth5qnbpph.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.51.20.png</strong> (730.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:58 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/191435mqpkkpwq0q5buykd.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 19.14.27.png</strong> (605.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202408/13/185926uc884cehtc84whzh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-13 18.58.54大.jpeg</strong> (206.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 18:59 上传
+

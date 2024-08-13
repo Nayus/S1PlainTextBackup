@@ -421,3 +421,11 @@ https://x.com/imaizumi_7026/status/1822491454234861818
 
 之前说是8月23号上现在又没动静了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SorroFrost  
+##### 1901#       发表于 2024-8-13 10:32
+
+要么宣发期被压的很晚，要么就是前段时间某些原因导致打回重审，要么就是当时舅舅党消息偷跑被上面叫停。后两个的话，种自在国内真的是命运多舛啊。
+

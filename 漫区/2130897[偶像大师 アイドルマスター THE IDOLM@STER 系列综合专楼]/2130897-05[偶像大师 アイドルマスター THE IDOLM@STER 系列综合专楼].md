@@ -1115,3 +1115,12 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 
 真的能养成嘛，还是筛选比这还烂的多<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖尔  
+##### 6126#       发表于 2024-8-13 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天看了眼紫吧的说法学信号灯其实已经进企划训练有两年了，那确实是有点难绷
+估计确实是对三次元要求不高吧
+

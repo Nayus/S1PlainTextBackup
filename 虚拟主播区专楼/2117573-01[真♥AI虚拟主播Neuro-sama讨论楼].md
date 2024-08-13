@@ -6,3 +6,13 @@
 
 很久没看过直播，现在回答速度快得夸张啊。
 
+
+*****
+
+####  记忆消失  
+##### 148#       发表于 2024-8-13 21:53
+
+昨天的直播几乎没有冷场，太强了
+
+—— 来自 samsung SM-T720, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

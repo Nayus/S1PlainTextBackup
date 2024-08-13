@@ -1100,3 +1100,18 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 
 小美也的思路大概是选没唱功的现实和游戏同步养成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  koodooliz  
+##### 6124#       发表于 2024-8-13 11:01
+
+你又不是tymm wsd嫡系出道还挂着个JK的牌子能来句“原石”，而且最次还能卖个脸……
+
+*****
+
+####  Seeley  
+##### 6125#       发表于 2024-8-13 11:04
+
+真的能养成嘛，还是筛选比这还烂的多<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

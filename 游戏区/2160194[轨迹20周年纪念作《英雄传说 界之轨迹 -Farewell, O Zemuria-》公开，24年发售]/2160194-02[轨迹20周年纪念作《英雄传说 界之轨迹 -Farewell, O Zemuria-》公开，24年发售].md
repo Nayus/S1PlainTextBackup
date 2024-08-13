@@ -5067,3 +5067,21 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 黎轨黑月的设定本来就奇葩，盘踞在南海的港口却没有和东方做南海生意，在和东方做南海生意的却是瓦利斯市国 ...</blockquote>
 盲猜要么生意看不上要么不好xiqian，毕竟克州那个地方出事以前也算半个法外之地了
 
+
+*****
+
+####  卢迪克  
+##### 2635#       发表于 2024-8-13 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65879427&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-13 10:51</a>
+
+盲猜要么生意看不上要么不好xiqian，毕竟克州那个地方出事以前也算半个法外之地了 ...</blockquote>
+应该为了对应皇国崩坏后东方就和卡尔瓦德断交的现状吧。东方现在只和瓦利斯是邦交国吧
+
+*****
+
+####  宛若青空  
+##### 2636#       发表于 2024-8-13 11:03
+
+怎么新久保的界轨4格封面把艾约画上去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

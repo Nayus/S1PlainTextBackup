@@ -14289,3 +14289,36 @@ wsd至少活到出初祥睦祥双人卡吧<img src="https://static.saraba1st.com
 
 明年动画要崩了，对邦再来个空场，是不是就寄了？
 
+
+*****
+
+####  极速赛车手  
+##### 22013#       发表于 2024-8-13 22:55
+
+演出空座率高会导致人气暴跌吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玖羽  
+##### 22014#       发表于 2024-8-13 23:00
+
+ttps://www.pixiv.net/artworks/121349338 <blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/13/230027lrronlrlzrz5cxws.jpg" referrerpolicy="no-referrer">
+
+<strong>121349338.jpg</strong> (1.66 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 23:00 上传
+
+</blockquote>
+
+*****
+
+####  NODY  
+##### 22015#       发表于 2024-8-13 23:06
+
+多来这边打中华炮就是了，就目前双r两次票秒空的战斗力来看完全是血赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

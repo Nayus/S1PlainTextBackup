@@ -6038,3 +6038,16 @@ crew这种人你泔毕业你说发这个不影响，神乐mea还活着呢
 
 另外估计她俩平时也不会叫对方本名，那帮LOL野男人私下跟咩打的时候叫的应该也是麻酱，我其实一直期待他们直播时叫错的。
 
+
+*****
+
+####  gongge666  
+##### 17160#       发表于 2024-8-13 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65881075&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-8-13 13:42</a>
+
+听错了吧，应该就是单纯尖叫。
+
+另外估计她俩平时也不会叫对方本名，那帮LOL野男人私下跟咩打的时候叫的应 ...</blockquote>
+就算再熟的人也不一定会告诉真名的
+

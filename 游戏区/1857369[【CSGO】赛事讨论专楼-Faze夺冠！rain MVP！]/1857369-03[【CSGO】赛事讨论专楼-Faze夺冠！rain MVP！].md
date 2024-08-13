@@ -230,3 +230,13 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 —— 来自 Xiaomi 23013RK75C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  doublehit  
+##### 4394#       发表于 2024-8-14 00:24
+
+这下药检队了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">不过小组赛数据几把用没有，场馆才是检验结果的时候
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

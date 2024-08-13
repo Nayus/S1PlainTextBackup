@@ -7814,3 +7814,18 @@ TMD小教授怎么是你
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  TheLoof  
+##### 14038#       发表于 2024-8-13 12:27
+
+从新年开始算的话，去年勉强可以算是群星闪耀啊
+
+烟雾镜、库小姐、提妈、琼安、托勒密
+
+再往前一年，就是暗狐狸和水伊吹默秒全
+
+今年到现在确实是普普通通
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

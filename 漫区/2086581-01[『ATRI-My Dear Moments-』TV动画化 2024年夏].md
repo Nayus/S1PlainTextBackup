@@ -30,3 +30,11 @@
 
 <img src="https://p.sda1.dev/18/b156566bf0e6daadb3d3bb995c4d9042/yande.re 1188560 aquastar_inc. atri atri_-my_dear_moments- seifuku.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  CALPISSODA  
+##### 117#       发表于 2024-8-13 12:29
+
+看着卖相不错，有没玩过游戏的来说下游戏和动画哪个表现效果好？有点犹豫应该看动画还是直接补游戏？
+

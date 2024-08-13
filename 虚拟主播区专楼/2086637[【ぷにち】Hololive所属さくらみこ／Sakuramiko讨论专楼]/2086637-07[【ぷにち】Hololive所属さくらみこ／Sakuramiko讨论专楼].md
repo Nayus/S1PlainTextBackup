@@ -6664,3 +6664,25 @@ kanauru大手笔
 这个摊位是推特知名holo同人画师了，本子和set我买了好几份了
 [https://x.com/aya02ka](https://x.com/aya02ka)
 
+
+*****
+
+####  karastar  
+##### 9450#       发表于 2024-8-12 22:23
+
+看七字母去热消暑
+
+*****
+
+####  rs5621  
+##### 9451#       发表于 2024-8-13 19:46
+
+打麻将？
+
+*****
+
+####  holoan  
+##### 9452#         楼主| 发表于 2024-8-13 19:49
+
+她自己也不知道在打什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

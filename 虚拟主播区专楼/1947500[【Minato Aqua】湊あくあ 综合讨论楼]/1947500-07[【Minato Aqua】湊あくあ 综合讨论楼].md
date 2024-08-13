@@ -187,3 +187,11 @@
 
 今天的占卜回换以前就是诶多诶多，已经决定毕业就是不一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离魂仙  
+##### 9811#       发表于 2024-8-13 20:42
+
+怎么在联动窗里就合唱了secret base，我的预想可是在葬礼上与二期生一起唱的<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+

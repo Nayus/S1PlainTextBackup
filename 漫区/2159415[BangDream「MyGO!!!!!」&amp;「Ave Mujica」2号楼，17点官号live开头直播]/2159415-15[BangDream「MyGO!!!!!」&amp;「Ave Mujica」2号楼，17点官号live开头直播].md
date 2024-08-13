@@ -14233,3 +14233,11 @@ ppp,ag,hhw,r,m,pp,ras,mygo？
 
 以及他们对mujica动画的引流能力真有信心，这就是鸡团啥都不给的底气吗？<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22006#       发表于 2024-8-13 20:43
+
+未解之谜之鸡现在这种一点资源靠挤出来的状态到底是wsd对鸡太有自信还是太没自信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

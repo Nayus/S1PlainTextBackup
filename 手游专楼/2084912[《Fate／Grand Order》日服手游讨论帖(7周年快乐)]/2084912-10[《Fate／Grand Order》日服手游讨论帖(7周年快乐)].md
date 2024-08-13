@@ -7804,3 +7804,13 @@ TMD小教授怎么是你
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  格林卡罗尔  
+##### 14037#       发表于 2024-8-13 10:40
+
+去年小黑水c呆水摩根啊，虽然没破格到奥伯龙的程度，但也是前列了。今年这些看来看去强度都差不多
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

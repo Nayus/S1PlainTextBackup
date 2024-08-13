@@ -1092,3 +1092,11 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 
 后面看目前的歌，莉莉娅应该是一定会寄，清夏和麻央能指望一下，剩下三个应该烂不到哪去？（但广的断气唱法实战能成啥样不好说）
 
+
+*****
+
+####  zqpm1235  
+##### 6123#       发表于 2024-8-13 10:44
+
+小美也的思路大概是选没唱功的现实和游戏同步养成<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

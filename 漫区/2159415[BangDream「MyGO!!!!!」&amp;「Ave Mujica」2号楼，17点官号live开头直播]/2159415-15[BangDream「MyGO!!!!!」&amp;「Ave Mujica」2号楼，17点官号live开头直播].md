@@ -14088,3 +14088,11 @@ Ave Mujica 200萬播放了<img src="https://static.saraba1st.com/image/smiley/fa
 
        [https://bushiroad-store.com/pages/mygo_2024_summer_ver](https://bushiroad-store.com/pages/mygo_2024_summer_ver)
 
+
+*****
+
+####  六道明  
+##### 22000#       发表于 2024-8-13 15:24
+
+武士道还是这么爱他的贴纸<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

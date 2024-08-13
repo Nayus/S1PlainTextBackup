@@ -1201,3 +1201,21 @@ VOD（+特典）：BB6PIOPJ6CRU2Y2NR6MBR3LVDEOACEZSG（密钥有效期：8/22止
 往好了想，妮学游戏这热度，学隔壁pjsk虚拟live一样能行，周年真人上台不但缺人还有假唱嫌疑不也没事 ...</blockquote>
 退一万步，说live身为广告完全不合格，但商品本身很过硬，比虚空广告不知道在live个啥强多了
 
+
+*****
+
+####  a85982313  
+##### 6135#       发表于 2024-8-13 16:11
+
+学马仕御三家1单首周实体成绩：皮卡丘7079，杰尼龟6191，小火龙5684
+
+<img src="https://img.saraba1st.com/forum/202408/13/161038z0b6m1yeylof0j1y.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (20.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-13 16:10 上传
+
+基本就是和之前场贩人气一样吧
+

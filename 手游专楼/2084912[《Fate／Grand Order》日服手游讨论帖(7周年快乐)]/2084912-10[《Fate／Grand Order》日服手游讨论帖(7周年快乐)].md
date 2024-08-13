@@ -7784,3 +7784,13 @@ TMD小教授怎么是你
 
 深夜脑子一闪抽了一发十连，，结果水蕾现在四宝了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">现在陷入了要不要追5宝的纠结。。。
 
+
+*****
+
+####  格林卡罗尔  
+##### 14035#       发表于 2024-8-13 09:11
+
+今年除了送的还没出过强度破格的卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5137,3 +5137,33 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 
 陈：对游戏开发方面应该会有影响，当然近藤社长有提到过Falcom不是刻意去录取中国员工，而是当他看到很多来Falcom应征的人员中，最热情、最想加入Falcom开发游戏的人里面有很多是中国大陆的玩家，而且他们也具备不错的能力（所以最后才录取的）。开发游戏不仅需要能力，也需要热情，否则是没法持续下去的。Falcom去年和今年（黎之轨迹II和伊苏X）推出的游戏当中，中国员工也在其中有所贡献和产生正面的影响，这方面近藤社长和我们都很期待今后的发展。
 
+
+*****
+
+####  冷泉夜月  
+##### 2642#       发表于 2024-8-13 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65880805&amp;ptid=2160194" target="_blank">CQTK 发表于 2024-08-13 13:09:42</a>
+刚看了下已经下架了？</blockquote>对，16点准时上架的算上税720元，我抢到了再看已经没了一共就售出25个，堪比在万代旗舰店抢东西的体验<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  CQTK  
+##### 2643#       发表于 2024-8-13 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65880887&amp;ptid=2160194" target="_blank">冷泉夜月 发表于 2024-8-13 13:18</a>
+对，16点准时上架的算上税720元，我抢到了再看已经没了一共就售出25个，堪比在万代旗舰店抢东西的体验
+
+  - ...</blockquote>
+好吧，看来只能到tb吃高价了
+
+*****
+
+####  蜂柚瓜  
+##### 2644#       发表于 2024-8-13 13:26
+
+每次镜头到曹李的时候看到他那双老布鞋我都感觉很难绷，而且黑月剧情是真的弱智
+

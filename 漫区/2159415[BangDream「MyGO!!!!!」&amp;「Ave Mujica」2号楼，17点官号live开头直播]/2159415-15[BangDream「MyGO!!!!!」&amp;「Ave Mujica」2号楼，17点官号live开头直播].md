@@ -14279,3 +14279,13 @@ ppp,ag,hhw,r,m,pp,ras,mygo？
 
 wsd至少活到出初祥睦祥双人卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 22012#       发表于 2024-8-13 22:36
+
+没钱了，游戏亏损，tcg福利期过了，演出这块砍了中华炮那这财报肯定亏损
+
+明年动画要崩了，对邦再来个空场，是不是就寄了？
+

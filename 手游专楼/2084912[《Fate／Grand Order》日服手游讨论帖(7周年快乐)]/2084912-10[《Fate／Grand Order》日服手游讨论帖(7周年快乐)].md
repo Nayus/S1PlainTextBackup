@@ -7863,3 +7863,13 @@ TMD小教授怎么是你
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v3.0.0. ...</blockquote>
 突出的也就只是中上，最值得玩也就芜，2宝芜性价比很高，五宝够无脑<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 14042#       发表于 2024-8-13 16:18
+
+我觉得就不要脱离职介讨论强度了，这游戏绝大多时候打的就是七职介，七骑士就是比额外职介更容易打出高伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

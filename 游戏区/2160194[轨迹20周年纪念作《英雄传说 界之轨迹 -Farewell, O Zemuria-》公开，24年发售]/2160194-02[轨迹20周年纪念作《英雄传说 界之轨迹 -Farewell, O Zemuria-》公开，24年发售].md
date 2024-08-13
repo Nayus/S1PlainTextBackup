@@ -5200,3 +5200,13 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 
 我对这b的印象只有背刺7姐
 
+
+*****
+
+####  solasakiye  
+##### 2648#       发表于 2024-8-13 16:21
+
+这种排名投票人数有没过千啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过，总的顺序应该大差不差了，我倒是想看看加上黎轨的轨迹总投票，想看看事务所的大家人气什么水准，黎轨是真的无人关心吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

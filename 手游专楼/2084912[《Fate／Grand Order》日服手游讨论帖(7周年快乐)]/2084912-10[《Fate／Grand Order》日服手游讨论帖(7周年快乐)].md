@@ -7829,3 +7829,24 @@ TMD小教授怎么是你
 今年到现在确实是普普通通
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乾理央  
+##### 14039#       发表于 2024-8-13 12:37
+
+就差个新绿拐，那今年就有非常多破格角色了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UNISONIA  
+##### 14040#       发表于 2024-8-13 12:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可有可无的角色变多了是这样的
+
+去年双单体都不能说强度破格的，梣和琼安这种更不配了，库大仙和提妈算是数值给足但是因为操作和职阶都存在局限性的
+
+牢托的要点可能是性价比，和道满一样低宝无额外培养能打自己的售后（虽然牢托卖的并不好）
+
+最接近改善使用体验的可能是烟，但是烟的重要性也远不到大拐和统治级打手的程度了
+

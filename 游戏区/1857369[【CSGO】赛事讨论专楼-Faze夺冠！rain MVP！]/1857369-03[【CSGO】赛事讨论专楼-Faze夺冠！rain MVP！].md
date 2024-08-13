@@ -258,3 +258,16 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 快进到玩速通的也打兴奋剂作弊…
 —— 来自 Xiaomi 23054RA19C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  朔方原的星  
+##### 4397#         楼主| 发表于 2024-8-14 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65886979&amp;ptid=1857369" target="_blank">ParadiseMartyr 发表于 2024-8-14 00:48</a>
+电竞兴奋剂有用??????
+快进到玩速通的也打兴奋剂作弊…
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Ne ...</blockquote>
+肯定有用的啊，g Fuel之类的卖点就是这个（实际效果另说）
+电竞药检规范程度不明确但肯定是早就在检的
+

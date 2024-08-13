@@ -14096,3 +14096,29 @@ Ave Mujica 200萬播放了<img src="https://static.saraba1st.com/image/smiley/fa
 
 武士道还是这么爱他的贴纸<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 22001#       发表于 2024-8-13 17:26
+
+新的画师明显不会画脖子，出过的CD按时间顺序排，销量除了端程山之外都到上周为止
+
+迷星叫：3430
+
+音一会：5835
+
+壱雫空：9876
+
+Alea jacta est：7873
+
+迷跡波：30627
+
+砂寸奏／回層浮：11929
+
+素晴らしき世界 でも どこにもない場所：8852
+
+バンドリ！カバーコレクション Extra Volume：8433
+
+端程山：12359
+

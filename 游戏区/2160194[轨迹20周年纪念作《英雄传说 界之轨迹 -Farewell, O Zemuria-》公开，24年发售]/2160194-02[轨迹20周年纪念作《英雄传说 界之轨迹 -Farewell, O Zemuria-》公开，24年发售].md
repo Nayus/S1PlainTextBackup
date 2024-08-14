@@ -5315,3 +5315,16 @@ fami期待榜至今进不去前十，不如黎轨2了<img src="https://static.sa
 TTD在MC有83+8.0了，仅次于3rd的83+8.1
 [https://www.metacritic.com/game/ ... s-through-daybreak/](https://www.metacritic.com/game/the-legend-of-heroes-trails-through-daybreak/)
 
+
+*****
+
+####  卢迪克  
+##### 2657#       发表于 2024-8-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65887174&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-14 01:47</a>
+
+TTD在MC有83+8.0了，仅次于3rd的83+8.1：
+
+https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
+现在倒1是ps伊苏f的2303本，消化绿，法老控还买了一期电击宣传，亏出翔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

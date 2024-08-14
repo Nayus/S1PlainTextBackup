@@ -1853,3 +1853,50 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 —— 来自 HUAWEI WLZ-AL10, Android ...</blockquote>
 机炮就是典型的4穿武器啊，西线全能王
 
+
+*****
+
+####  jy000129  
+##### 5270#       发表于 2024-8-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888744&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-8-14 10:02</a>
+机炮就是典型的4穿武器啊，西线全能王</blockquote>
+这一个多月我玩其他游戏去了，现在无畏正面能用机炮打了？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  ravend233  
+##### 5271#       发表于 2024-8-14 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888670&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 09:57</a>
+
+我主要是玩机炮的，所以一个人打无畏只能上红战备盾牌哥倒是好处理
+
+—— 来自 HUAWEI WLZ-AL10, Android ...</blockquote>
+一直都可以，瞄观察窗（就头上那个发红光的），就在正面无遮挡，判定点不是很大但是熟悉了还是很好打的
+
+
+*****
+
+####  jy000129  
+##### 5272#       发表于 2024-8-14 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888828&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-14 10:09</a>
+一直都可以，瞄观察窗（就头上那个发红光的），就在正面无遮挡，判定点不是很大但是熟悉了还是很好打的 ...</blockquote>
+好吧，以前机炮轰正面半天没效果，回头试试机炮打红点效率怎么样
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  赤井稻妻  
+##### 5273#       发表于 2024-8-14 10:15
+
+顺便，触手虫的设计太尼玛反人类了，常识来讲当触手虫埋地之后，应该整个头部连同埋下去的触手都应该是头部范畴，因为玩家费尽千辛万苦来到触手虫本体前不就是为了打头吗，但实际上埋下去的触手根部算是触手部位，而触手根本再往上一点的黑色部分才是头
+
+触手部分每次埋地血量刷新，被打没血了触手会收回去，这就导致了不了解触手头部位置的玩家很容易把触手根部当成头，造成伤害测试的血量浮动
+
+实际上触手虫的头部只需要榴弹枪5发就能直接击杀，但触手虫的头部有另一个bug，就是在受到榴弹爆炸伤害的时候头会后仰一下，这个后仰动作似乎会让hurtbox缩回到护甲里，反正我每次用榴弹击杀触手虫的时候都会出现一枪有伤害一枪没伤害的情况，放慢射速等到受创硬直结束之后再开第二枪就能正常，不知道机炮会不会有同样的问题
+

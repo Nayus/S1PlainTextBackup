@@ -76,3 +76,13 @@ debuff是敌人行动一次结束，你开od可以行动多次。破盾手只是
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
 
+
+*****
+
+####  Toki_Ai  
+##### 1622#       发表于 2024-8-14 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两个号都抽50发，一个出6一个出4，这可太有意思了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

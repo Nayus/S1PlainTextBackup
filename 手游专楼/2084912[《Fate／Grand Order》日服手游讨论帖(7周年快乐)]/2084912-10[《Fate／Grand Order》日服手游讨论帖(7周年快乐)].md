@@ -9344,3 +9344,24 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 2024-8-14 23:24 上传
 
+
+*****
+
+####  cckuku  
+##### 14192#       发表于 2024-8-14 23:47
+
+三发十连两个徐福，大满足了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  保罗赫伯特  
+##### 14193#       发表于 2024-8-14 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65896373&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-14 23:26</a>
+
+嘿嘿嘿了，这就是糖果蔓藤啊
+
+发带完全一致，还有胸牌写了かずら</blockquote>
+真BB在pv里也出现了，现在不知道是被融合了/囚禁了，还是单纯没到出场的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

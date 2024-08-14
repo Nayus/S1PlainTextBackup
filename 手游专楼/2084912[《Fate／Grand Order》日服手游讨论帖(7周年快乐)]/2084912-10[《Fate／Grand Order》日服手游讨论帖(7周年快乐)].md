@@ -9197,3 +9197,22 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
  学姐2600多石吧，非的人麻了各种保底边缘才出</blockquote>
 你不是刚2200石6宝了艾蕾吗，这几天充了多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 14181#       发表于 2024-8-14 22:07
+
+才看到三个男人的灵衣卡面，小太阳那狗有病吧，看多少遍都觉得是p上去的，巴沙就一路人，吗的没想到在这里让白峰翻身了，只有大白鹅的卡面能看
+
+
+*****
+
+####  保罗赫伯特  
+##### 14182#       发表于 2024-8-14 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895793&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-14 22:07</a>
+
+才看到三个男人的灵衣卡面，小太阳那狗有病吧，看多少遍都觉得是p上去的，巴沙就一路人，吗的没想到在这里 ...</blockquote>
+看隔壁的帖子说是要和加尔纳的猴子对称吧，但是占据的画面太多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

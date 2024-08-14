@@ -1838,3 +1838,15 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 是因为邦邦票务那件事所以换掉了？然后找叔叔去了？
 
+
+*****
+
+####  csolfans  
+##### 20894#       发表于 2024-8-14 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895108&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-8-14 20:32</a>
+是因为邦邦票务那件事所以换掉了？然后找叔叔去了？</blockquote>
+想太多……截图是eupd的老板，不是蜀黍
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

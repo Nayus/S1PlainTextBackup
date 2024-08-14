@@ -7989,3 +7989,11 @@ TMD小教授怎么是你
 
 去年图上的圆桌某人也没出泳装灵衣甚至剧情上都没他啥事，不过今年出了灵衣，所以lip请期待明年<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14056#       发表于 2024-8-14 17:37
+
+最近苹果商店更新是不是有问题 我下拉刷新不出 必须得去fgo游戏页面才能更新<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

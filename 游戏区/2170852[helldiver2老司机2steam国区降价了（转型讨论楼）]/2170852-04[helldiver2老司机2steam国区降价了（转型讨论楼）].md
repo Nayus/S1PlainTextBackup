@@ -2148,3 +2148,11 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就箭头的人的游戏理解和工作效率，60天我确实觉得他们搞不明白
 
+
+*****
+
+####  FLZB  
+##### 5298#       发表于 2024-8-14 17:38
+
+60天能治好精神变态脑子有矢就是电子游戏神医好吧，给他60天他怕不是都搞不明白玩家想要的fun到底是哪种fun，最好的结果估计就是捏着鼻子照玩家要求意思意思小buff一波各种武器安抚社区情绪，之后继续发癫，毕竟狗改不了吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

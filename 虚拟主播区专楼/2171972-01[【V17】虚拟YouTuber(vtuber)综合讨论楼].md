@@ -1777,3 +1777,14 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 “いずれ菖蒲か杜若”里除伦伦外剩下4个人基本可以埋了。。
 
+
+*****
+
+####  yanjunle  
+##### 592#       发表于 2024-8-14 14:27
+
+<img src="https://p.sda1.dev/18/df63a07f2dd7093994d278ddb7214736/image.jpg" referrerpolicy="no-referrer">
+小区门口全家里看到的，之前摆的都是各种动画的。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

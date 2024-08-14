@@ -1921,3 +1921,38 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 —— 来自 HUAWEI WLZ-AL10, Android 1 ...</blockquote>
 击中两枪就打死，就是机炮不好瞄，建议交晕雷再打
 
+
+*****
+
+####  赤井稻妻  
+##### 5276#       发表于 2024-8-14 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888795&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 10:07</a>
+
+这一个多月我玩其他游戏去了，现在无畏正面能用机炮打了？
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的  ...</blockquote>
+4穿在西线连atat都能打，atat头上正面有个发红光的小眼睛，是可以用4级穿甲击毁的，好像一共是750血，100%耐久部位
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1||
+
+查看全部评分
+
+
+*****
+
+####  jy000129  
+##### 5277#       发表于 2024-8-14 10:32
+
+感谢，我一直以为机炮处理不了这两个
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

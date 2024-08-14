@@ -2085,3 +2085,13 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 唉，现在针改版后最烦的还是被秒。
 
+
+*****
+
+####  WGTCorp  
+##### 5291#       发表于 2024-8-14 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65891388&amp;ptid=2170852" target="_blank">Aeons 发表于 2024-8-14 13:42</a>
+多触手情况下我怎么保证不停下来呢</blockquote>
+不停飞扑或者一直跑+稍微变向，针刺虫就秒不了你，起码不会把你直接戳死，最多就是打飞到虫堆里或者飞到石头上撞死。
+

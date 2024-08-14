@@ -1715,3 +1715,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 卡主线了，这90本掉落还不平均，真的恶心
 
+
+*****
+
+####  马桶3  
+##### 46694#       发表于 2024-8-14 21:29
+
+换人水小黑确实提升队伍的宝具伤害上限，借活动礼装的光，还没梅莉的我凑合用C闪当个小梅莉用吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+还有类似20群冲蓝魔放buff和加攻的低星吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

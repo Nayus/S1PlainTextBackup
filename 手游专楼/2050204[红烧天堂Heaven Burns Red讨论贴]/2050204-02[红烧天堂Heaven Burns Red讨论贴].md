@@ -66,3 +66,13 @@ debuff是敌人行动一次结束，你开od可以行动多次。破盾手只是
 
 有个叫兰叔爱玩炽焰天穹的up可以看看，讲的很细致
 
+
+*****
+
+####  bbyhxb  
+##### 1621#       发表于 2024-8-14 16:13
+
+四六妹抽一井一了，但是送的必得出了Aoi，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.1-alpha
+

@@ -318,3 +318,11 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 【哪些职业哥在使用Snap Tap_Blast Premier Fall Groups 2024】 [https://www.bilibili.com/video/BV1mVYgeSECs/](https://www.bilibili.com/video/BV1mVYgeSECs/)
 
+
+*****
+
+####  曼陀罗肥  
+##### 4402#       发表于 2024-8-15 06:01
+
+这玩意儿是真有点哈人了，科隆六强里就只有小蜜蜂没用过，其余队都至少有两到三人在用<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">甚至g2老鼠saw是全队都在用
+

@@ -439,3 +439,27 @@ https://x.com/imaizumi_7026/status/1822491454234861818
 
 期待钢雷欧大神尽快发功弄死所有二次元 包括他心爱的特摄
 
+
+*****
+
+####  死难者23er  
+##### 1903#       发表于 2024-8-15 00:03
+
+如果说香水是因为个人的喜好问题，戒指是因为官方自己作死，但是这个人物立牌应该真的能说明一些问题了吧
+
+<img src="https://img.saraba1st.com/forum/202408/15/000331cx5p4dux5c1fwfuc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2669.jpeg</strong> (242.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202408/15/000331i6avmfvgftgtkqst.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2668.jpeg</strong> (218.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 00:03 上传
+

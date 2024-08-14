@@ -9238,3 +9238,13 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 这样就是三面都是水BB的5张卡。 ...</blockquote>
 你当然也可以上水BB，但用锁卡+十颗星星换杀狐伤害会比较难看。而且没有集星没有np
 
+
+*****
+
+####  シャル  
+##### 14185#       发表于 2024-8-14 22:36
+
+120连希尔1，徐福3，尼基2<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+还剩1034个石头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

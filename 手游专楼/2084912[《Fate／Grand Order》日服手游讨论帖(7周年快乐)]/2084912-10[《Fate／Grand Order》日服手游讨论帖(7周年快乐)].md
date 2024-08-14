@@ -9308,3 +9308,39 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 不是说了奏章期间还有别的活动吗
 
+
+*****
+
+####  シャル  
+##### 14191#       发表于 2024-8-14 23:26
+
+嘿嘿嘿了，这就是糖果蔓藤啊
+
+发带完全一致，还有胸牌写了かずら
+
+这次又穿皮套了吧
+
+<img src="https://img.saraba1st.com/forum/202408/14/232402x8zgcajbjsezzdc4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1D31C2A8-CE5A-4D42-9E06-B3941DCD82BF.jpeg</strong> (259.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/232402dcswh7sgcwsnrnah.png" referrerpolicy="no-referrer">
+
+<strong>45E10D65-DA9E-4AF5-9AB0-B618A8FFD7BD.png</strong> (118 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 23:24 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/232402wez66ruyeymkkoue.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D7227962-3410-445A-A19C-AAA3342250D5.jpeg</strong> (174.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 23:24 上传
+

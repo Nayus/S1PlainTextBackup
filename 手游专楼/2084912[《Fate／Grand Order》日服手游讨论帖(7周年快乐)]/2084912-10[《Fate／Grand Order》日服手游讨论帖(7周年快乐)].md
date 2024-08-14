@@ -9161,3 +9161,39 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 缺点是这宝具有个100%即死你指令卡可能打不出去，二是fgo还没诞生过绑定两个从者还很强势的卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  都谷捻柏  
+##### 14178#       发表于 2024-8-14 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895037&amp;ptid=2084912" target="_blank">低调不圆滑 发表于 2024-8-14 20:21</a>
+
+忘了她1技能还有10np缓冲，这样每回合70，正好梅林补30</blockquote>
+1技能回10，2张红卡20，被动20，自充50，安排得明明白白。
+
+梅林没星，感觉周回很难加梅林进来。
+
+*****
+
+####  都谷捻柏  
+##### 14179#       发表于 2024-8-14 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895720&amp;ptid=2084912" target="_blank">格林卡罗尔 发表于 2024-8-14 21:57</a>
+
+玩了下西耶尔感觉很神秘啊
+
+先说说好的，在双杀狐体系下红宝具BB三连回收来自学姐二技能的30np，杀狐二技能4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以拿学姐拐水BB，出来洗牌洗好，换水BB锁住。
+
+这样就是三面都是水BB的5张卡。
+
+*****
+
+####  cckuku  
+##### 14180#       发表于 2024-8-14 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895578&amp;ptid=2084912" target="_blank">onemoment 发表于 2024-8-14 21:36</a>
+ 学姐2600多石吧，非的人麻了各种保底边缘才出</blockquote>
+你不是刚2200石6宝了艾蕾吗，这几天充了多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

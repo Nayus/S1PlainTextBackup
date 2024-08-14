@@ -293,3 +293,18 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 这才下半年第二个比赛不急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiiTiiLL  
+##### 4400#       发表于 2024-8-14 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65886979&amp;ptid=1857369" target="_blank">ParadiseMartyr 发表于 2024-8-14 00:48</a>
+
+电竞兴奋剂有用??????
+
+快进到玩速通的也打兴奋剂作弊…
+
+—— 来自 Xiaomi 23054RA19C, Android 13上的 S1Ne ...</blockquote>
+老C9当时不还自爆用兴奋剂吗
+

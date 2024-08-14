@@ -5359,3 +5359,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 核心还是写的菜，黑帮题材写成晚八点家庭伦理剧，好看就有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2661#       发表于 2024-8-14 10:40
+
+就，黑月的剧情总体偏支线，在这种情况下肯定不敢放开手往大了写，估计组织的设定也不全面，再加上编剧对这个题材水平不足，原本估计就是围绕大君和阿龙去粗略地描写这个组织，把大君的坑填了拉倒的，但是黎2又不让写角色主线，只能这样写个蹩脚内斗和家庭伦理戏丢人
+

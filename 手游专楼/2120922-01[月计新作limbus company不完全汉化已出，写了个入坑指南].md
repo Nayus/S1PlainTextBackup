@@ -25,3 +25,16 @@
 
 魔王夫要来啦！压轴人格强度应该不低，希斯克利夫喜提连续两个强力人格！
 
+
+*****
+
+####  erratic璃月  
+##### 828#       发表于 2024-8-14 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65877209&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-8-13 00:35</a>
+
+现在这充能队开局花600买个手套打困牢真有点解压的
+
+全是超大币，好爽</blockquote>
+没，不过有一次合成的时候网卡了，直接吞了我要合成的两个饰品<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

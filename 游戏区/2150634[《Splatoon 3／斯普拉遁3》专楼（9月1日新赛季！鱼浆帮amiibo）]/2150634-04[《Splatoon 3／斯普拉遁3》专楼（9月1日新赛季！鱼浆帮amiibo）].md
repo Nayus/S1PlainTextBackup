@@ -268,3 +268,16 @@ https://weibo.com/7766209741/5066588416119119
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  DeltaStriker  
+##### 4977#       发表于 2024-8-14 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894201&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-8-14 18:38</a>
+大型祭典的官网上线了。
+新广场没有大厅，参加对战需要坐广场上的接送巴士回对战大厅。</blockquote>
+……给我整无语了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

@@ -86,3 +86,11 @@ debuff是敌人行动一次结束，你开od可以行动多次。破盾手只是
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  chivalry  
+##### 1623#       发表于 2024-8-14 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">100 发一无所有，玩你妈
+

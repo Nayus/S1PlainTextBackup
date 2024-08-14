@@ -2164,3 +2164,16 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 五月底六月那波节奏过后还信箭头的简直比结晶孝子还要神人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾诺琳  
+##### 5300#       发表于 2024-8-14 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888670&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 09:57</a>
+我主要是玩机炮的，所以一个人打无畏只能上红战备盾牌哥倒是好处理
+
+—— 来自 HUAWEI WLZ-AL10, Android ...</blockquote>
+机炮是高贵4穿，正面拆无畏只需要观察口2炮就行了
+配合晕雷随便拆啊
+

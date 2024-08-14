@@ -8186,3 +8186,287 @@ mc，强度是不是寄了<img src="https://static.saraba1st.com/image/smiley/fa
 草，这FX，呆毛的身高枪呆的胸围
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 14076#       发表于 2024-8-14 18:44
+
+BB！！！！
+
+*****
+
+####  TheLoof  
+##### 14077#       发表于 2024-8-14 18:44
+
+笑死，库小姐输麻了，这就是无敌手刀的代价吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 14078#       发表于 2024-8-14 18:45
+
+bb：就你们来撕我卡背是吧
+
+*****
+
+####  alucardcz  
+##### 14079#       发表于 2024-8-14 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bb  水b2号（
+
+*****
+
+####  Jamaisvu  
+##### 14080#       发表于 2024-8-14 18:45
+
+月癌雨神，外星小艾，月癌礼服BB。
+
+<img src="https://img.saraba1st.com/forum/202408/14/184256mylr9cffnbfv7v47.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240814_184247.jpg</strong> (249.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 18:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/184351l8qql1sm8qv8b1zc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240814_184323.jpg</strong> (285.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 18:43 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/184511lnzhcu7wv8hllh6w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240814_184445.jpg</strong> (286.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 18:45 上传
+
+出这么多额外职业是准备塞进90++强抬兽蕾吗...
+
+
+*****
+
+####  低调不圆滑  
+##### 14081#       发表于 2024-8-14 18:45
+
+基本全是ex职
+
+*****
+
+####  cckuku  
+##### 14082#       发表于 2024-8-14 18:46
+
+黔驴技穷.jpg
+
+*****
+
+####  GuDaZi  
+##### 14083#       发表于 2024-8-14 18:46
+
+PV有扎比子
+
+*****
+
+####  alucardcz  
+##### 14084#       发表于 2024-8-14 18:46
+
+啊？ 直接成奏章3了？
+
+*****
+
+####  低调不圆滑  
+##### 14085#       发表于 2024-8-14 18:46
+
+有公主的画面要复刻了
+
+*****
+
+####  Jamaisvu  
+##### 14086#       发表于 2024-8-14 18:47
+
+奏章III，新灵长后继战！有扎比子登场！
+
+<img src="https://img.saraba1st.com/forum/202408/14/184811fy00cccy0of6kfcf.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240814_184759.jpg</strong> (211.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 18:48 上传
+
+突然放PV出来还以为是泳装预告的第二段呢，出场人物好像都差不多...
+
+*****
+
+####  alucardcz  
+##### 14087#       发表于 2024-8-14 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894278&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-14 18:47</a>
+
+奏章III，新灵长后继战！
+
+突然放PV出来还以为是泳装预告的第二段呢，出场人物好像都差不多... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前中后 更1年预定 
+
+*****
+
+####  GuDaZi  
+##### 14088#       发表于 2024-8-14 18:48
+
+小标题意思是原奏章3变成奏章4了？
+
+*****
+
+####  白金口袋  
+##### 14089#       发表于 2024-8-14 18:48
+
+<img src="https://img.saraba1st.com/forum/202408/14/184810i67tsu7j76u6xlzt.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240814184744.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 18:48 上传
+
+yls：就跟你们说要抵达奏章了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14090#       发表于 2024-8-14 18:48
+
+菌哥哥我CNM，这尼玛都要分三段有病吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 14091#       发表于 2024-8-14 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这BB奈子好大啊
+
+*****
+
+####  xiongxingyu  
+##### 14092#       发表于 2024-8-14 18:49
+
+卧槽，真的玩大的了，泳装活动是蘑菇自己下场的奏章三，怪不得这么多月癌
+
+*****
+
+####  cckuku  
+##### 14093#       发表于 2024-8-14 18:49
+
+还能这样玩？
+
+*****
+
+####  TheLoof  
+##### 14094#       发表于 2024-8-14 18:49
+
+说白了这就是CCC2期联动，期间限定奏章都整出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 14095#       发表于 2024-8-14 18:50
+
+不愧是蘑菇，下场写个活动硬生生扩展进主线里...
+
+
+*****
+
+####  白金口袋  
+##### 14096#       发表于 2024-8-14 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894294&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-14 18:48</a>
+
+这BB奈子好大啊</blockquote>
+估计是把lip融回去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14097#       发表于 2024-8-14 18:50
+
+泳装活动直接变奏章。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 14098#       发表于 2024-8-14 18:50
+
+8月14日到10月31日，超长活动了吧
+
+*****
+
+####  低调不圆滑  
+##### 14099#       发表于 2024-8-14 18:50
+
+超长夏活
+
+*****
+
+####  希望之花  
+##### 14100#       发表于 2024-8-14 18:51
+
+奏章期间限定<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14101#       发表于 2024-8-14 18:51
+
+<img src="https://img.saraba1st.com/forum/202408/14/185150y3nt8znxzd5i1jyw.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1723632801329.png</strong> (843.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 18:51 上传
+
+真的是有病，一个活动打三个月
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 14102#       发表于 2024-8-14 18:51
+
+今年是不是没有万圣节了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">伊利酱还会再见吗？
+
+*****
+
+####  alucardcz  
+##### 14103#       发表于 2024-8-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894323&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-14 18:51</a>
+
+真的是有病，一个活动打三个月</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不起我产能低？
+
+*****
+
+####  Jamaisvu  
+##### 14104#       发表于 2024-8-14 18:52
+
+蘑菇这是写嗨了吧，加上学姐是不是能算月姬、CCC、废狗三方联动...
+
+*****
+
+####  xiongxingyu  
+##### 14105#       发表于 2024-8-14 18:52
+
+怪不得要把印度人塞到泳装里，这个节奏明显后面还有一个（甚至两个）奏章卡池，大家开始下注吧，我赌5毛扎比子特殊职阶落地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

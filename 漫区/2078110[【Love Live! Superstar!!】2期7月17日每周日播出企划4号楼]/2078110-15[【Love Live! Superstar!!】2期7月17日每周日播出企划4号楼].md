@@ -1783,3 +1783,14 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 这插1分两个版又是啥玩法，星是不是以前就始空是双版本过。
 
+
+*****
+
+####  csolfans  
+##### 20889#       发表于 2024-8-14 13:32
+
+<img src="https://p.sda1.dev/18/9ab919cc8cfd0b252155d4edbf8e95ad/CMP_20240814133236219.jpg" referrerpolicy="no-referrer">
+复活！
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

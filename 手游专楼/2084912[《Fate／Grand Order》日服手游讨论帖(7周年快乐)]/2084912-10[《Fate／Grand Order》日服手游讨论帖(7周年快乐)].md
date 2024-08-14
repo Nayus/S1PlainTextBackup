@@ -7965,3 +7965,11 @@ TMD小教授怎么是你
 
 上预告图说明不出卡 怎么可能直接剧透给你
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14053#       发表于 2024-8-14 13:32
+
+泳装广播的宣传图是让画师自己发挥的，有没有中全看运气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

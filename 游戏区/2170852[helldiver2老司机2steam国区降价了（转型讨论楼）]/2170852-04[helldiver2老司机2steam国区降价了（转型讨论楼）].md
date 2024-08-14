@@ -1980,3 +1980,24 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 但东线基本就是被牛消耗反重甲火力，然后被触手虫颠勺，在触手虫出现之前，其实虫子的进攻并不致命，只要能足够高效的击杀小怪，牛和泰坦就是玩具，现在多了个触手在那颠勺，就真的处理不了了
 
+
+*****
+
+####  rainknine  
+##### 5280#       发表于 2024-8-14 11:05
+
+如果钉刺虫的触手的背面能总是朝向钉刺虫本体的位置的话，那我会说是好设计
+毕竟找到本体的话交个精准就好
+
+
+*****
+
+####  jy000129  
+##### 5281#       发表于 2024-8-14 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65889353&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-14 10:45</a>
+机炮（或者说4穿武器）可以处理西线除了坦克以及炮塔外所有敌人（坦克打散热器也可以，但要绕后），ATAT ...</blockquote>
+散热器倒是会打，正面打红点几次没打死后以为正面穿不了甲就没尝试了，现在想起来应该是没打准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

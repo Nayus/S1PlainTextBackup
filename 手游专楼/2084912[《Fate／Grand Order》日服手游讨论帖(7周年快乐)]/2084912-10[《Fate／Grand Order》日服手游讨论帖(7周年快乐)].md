@@ -8595,3 +8595,92 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 这次这么多月癌，是要开月癌症的盘子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  花枝鱿鱼面  
+##### 14117#       发表于 2024-8-14 19:05
+
+送扎比差不多就是说EXTRA这条线不打算续下去了
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kyonkoism  
+##### 14118#       发表于 2024-8-14 19:05
+
+答应我蘑菇 别刀bb好吗 她真是我在acg里见过最完美的小恶魔后辈角色了<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  天王寺凯伊姆  
+##### 14119#       发表于 2024-8-14 19:06
+
+学姐看起来g了，单体月癌特攻约等于没有然后没生存技能
+
+*****
+
+####  Jamaisvu  
+##### 14120#       发表于 2024-8-14 19:06
+
+<blockquote>花枝鱿鱼面 发表于 2024-8-14 19:05
+送扎比差不多就是说EXTRA这条线不打算续下去了
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+不一定吧，魔夜联动送草十郎了结果蘑菇还说有可能写续集...
+
+
+*****
+
+####  alucardcz  
+##### 14121#       发表于 2024-8-14 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5星出了 4星一张没有  甚至3星礼装都没有
+
+*****
+
+####  琴酒  
+##### 14122#       发表于 2024-8-14 19:11
+
+一个10连 学姐+徐福 结束
+
+*****
+
+####  cckuku  
+##### 14123#       发表于 2024-8-14 19:11
+
+徐福满破画的真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 14124#       发表于 2024-8-14 19:11
+
+学姐这100爆伤直接锁卡硬配水bb太暴力了
+
+*****
+
+####  onemoment  
+##### 14125#       发表于 2024-8-14 19:12
+
+掉月癌坑坑里了
+
+*****
+
+####  低调不圆滑  
+##### 14126#       发表于 2024-8-14 19:13
+
+牢青做梦都想要学姐这个锁卡
+
+*****
+
+####  blue321  
+##### 14127#       发表于 2024-8-14 19:14
+
+就300石，不抽了忍忍到二期吧虽然徐福很想要…………
+
+还有这么搞的话，奏章3的封面角色挺想要的看来也拿不到了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

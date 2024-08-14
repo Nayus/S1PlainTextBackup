@@ -2177,3 +2177,27 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 机炮是高贵4穿，正面拆无畏只需要观察口2炮就行了
 配合晕雷随便拆啊
 
+
+*****
+
+####  山风短  
+##### 5301#       发表于 2024-8-14 19:12
+
+<img src="https://img.saraba1st.com/forum/202408/14/191117wx92ky2zb9qqb1rk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2964.jpeg</strong> (245.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/191117uwummepnpapnesep.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2965.jpeg</strong> (242.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 19:11 上传
+
+60天，还是等着收尸吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

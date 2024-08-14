@@ -8470,3 +8470,128 @@ yls：就跟你们说要抵达奏章了嘛<img src="https://static.saraba1st.com
 
 怪不得要把印度人塞到泳装里，这个节奏明显后面还有一个（甚至两个）奏章卡池，大家开始下注吧，我赌5毛扎比子特殊职阶落地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14106#       发表于 2024-8-14 18:54
+
+送的从者都到奏3里了
+
+*****
+
+####  低调不圆滑  
+##### 14107#       发表于 2024-8-14 18:54
+
+扎比子估计是送的4星了
+
+*****
+
+####  保罗赫伯特  
+##### 14108#       发表于 2024-8-14 18:55
+
+还能把泳装活动变成奏章的啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
+
+大概律是有三池了<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 14109#       发表于 2024-8-14 18:55
+
+ 本帖最后由 Jamaisvu 于 2024-8-14 18:59 编辑 
+<blockquote>白金口袋 发表于 2024-8-14 18:50
+估计是把lip融回去了</blockquote>
+
+真的有可能是完全体BB，黄色发带好像是糖果蔓藤的...
+
+<img src="https://img.saraba1st.com/forum/202408/14/185910s3i2d32eh9ffidn3.jpg" referrerpolicy="no-referrer">
+
+<strong>695765afgy1gsjyov707gj21ds0n0tcc.jpg</strong> (43.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 18:59 上传
+
+*****
+
+####  yangun22  
+##### 14110#       发表于 2024-8-14 18:56
+
+10月还有新活动会和3章公开期间重叠
+
+*****
+
+####  サイトヒメア  
+##### 14111#       发表于 2024-8-14 18:56
+
+这是发现与其想破脑袋弄一堆零零碎碎的活动充数，不如一口气整个大的开张吃三年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  khxooo  
+##### 14112#       发表于 2024-8-14 18:58
+
+送扎比就好玩了。听说你是主角？你也是我的后宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 14113#       发表于 2024-8-14 18:59
+
+家人们它不会想趁机落地维纳斯尼禄吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 14114#       发表于 2024-8-14 19:02
+
+ccc和extella还是有区别的….虽然这个区别现在有没意义不知道（
+
+*****
+
+####  Jamaisvu  
+##### 14115#       发表于 2024-8-14 19:02
+
+ 本帖最后由 Jamaisvu 于 2024-8-14 19:03 编辑 
+
+解包来了，看一下新从者强度：
+
+<img src="https://img.saraba1st.com/forum/202408/14/190335asq12smi135y9w10.png" referrerpolicy="no-referrer">
+
+<strong>1723633297451.png</strong> (196.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/190335m6xgjnnjmjm4mmm6.png" referrerpolicy="no-referrer">
+
+<strong>1723633304324.png</strong> (208.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 19:03 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/190336azhgz9vkpv9pjf94.png" referrerpolicy="no-referrer">
+
+<strong>1723633311742.png</strong> (181.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-14 19:03 上传
+
+*****
+
+####  保罗赫伯特  
+##### 14116#       发表于 2024-8-14 19:02
+
+这次这么多月癌，是要开月癌症的盘子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

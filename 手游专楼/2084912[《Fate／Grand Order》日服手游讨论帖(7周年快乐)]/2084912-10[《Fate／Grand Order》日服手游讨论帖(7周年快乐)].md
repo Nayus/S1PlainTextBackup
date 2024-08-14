@@ -9439,3 +9439,14 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不然扎比送我吧，扎比要是得抽那我真破产了
 
+
+*****
+
+####  stadium  
+##### 14200#       发表于 2024-8-15 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895430&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-14 21:16</a>
+
+三破卡面头上那个冠，幻视宝可梦太晶化了</blockquote>
+暗示冰之花<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
+

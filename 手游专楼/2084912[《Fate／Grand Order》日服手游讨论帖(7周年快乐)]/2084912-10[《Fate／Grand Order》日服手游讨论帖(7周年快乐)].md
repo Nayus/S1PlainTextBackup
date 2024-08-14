@@ -8856,3 +8856,41 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 有种预感泳装库库+扎比会蹦出来一个3期卡池，毕竟前俩是“泳装”池，第三个可以说是“奏章”池，我觉得这帮 ...</blockquote>
 这活动要开到十月份呢，泳装2池28号就开了，后面肯定还有新池子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14148#       发表于 2024-8-14 19:52
+
+学姐升技能怎么也要这个终之花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 14149#       发表于 2024-8-14 19:53
+
+学姐这三破不就是公主二破换了个色吗 
+
+*****
+
+####  壳壳牛  
+##### 14150#       发表于 2024-8-14 19:53
+
+70抽1学姐4徐福还歪了个尼莫...
+兽娘没缘分...
+
+*****
+
+####  CHCL3  
+##### 14151#       发表于 2024-8-14 19:55
+
+150抽四宝学姐三宝徐福我擦我妮基呢<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+欧的吓人了但是学姐一个单体高宝感觉也上不了班啊…感觉二期要还债了
+
+*****
+
+####  低调不圆滑  
+##### 14152#       发表于 2024-8-14 19:55
+
+学姐技能吃63终之花直接给我吃光了
+

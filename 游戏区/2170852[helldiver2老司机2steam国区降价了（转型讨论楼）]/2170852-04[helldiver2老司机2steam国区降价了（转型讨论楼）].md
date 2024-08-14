@@ -2095,3 +2095,13 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 多触手情况下我怎么保证不停下来呢</blockquote>
 不停飞扑或者一直跑+稍微变向，针刺虫就秒不了你，起码不会把你直接戳死，最多就是打飞到虫堆里或者飞到石头上撞死。
 
+
+*****
+
+####  Aeons  
+##### 5292#       发表于 2024-8-14 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65892389&amp;ptid=2170852" target="_blank">WGTCorp 发表于 2024-8-14 15:23</a>
+不停飞扑或者一直跑+稍微变向，针刺虫就秒不了你，起码不会把你直接戳死，最多就是打飞到虫堆里或者飞到 ...</blockquote>
+多触手有空摘的啊，击飞接扎直接全身粉碎了
+

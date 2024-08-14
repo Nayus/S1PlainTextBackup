@@ -8684,3 +8684,89 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 还有这么搞的话，奏章3的封面角色挺想要的看来也拿不到了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14128#       发表于 2024-8-14 19:16
+
+这期泳装模组做得也太好了，当年泳装加雷斯那个不知所谓的宝具<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仰望神的括约肌  
+##### 14129#       发表于 2024-8-14 19:20
+
+50抽一期毕业 送的石还没动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14130#       发表于 2024-8-14 19:20
+
+3破太丑了。。。。根本分不清这是谁了 
+
+*****
+
+####  Jamaisvu  
+##### 14131#       发表于 2024-8-14 19:21
+
+太好了，学姐有两套宝具动画，三破变成原理血戒断头台了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheLoof  
+##### 14132#       发表于 2024-8-14 19:21
+
+<img src="https://img.saraba1st.com/forum/202408/14/192116ghmo5o5dw5yh11wc.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1723634569730.png</strong> (307.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 19:21 上传
+
+盘子都给我歪出来了草，还全是枪阶
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 14133#       发表于 2024-8-14 19:22
+
+学姐这个三破可可爱爱的我很喜欢啊，除了跟前两破不像以外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我点太快了没看到特殊卡背，有豹看一眼特殊卡背是啥么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 14134#       发表于 2024-8-14 19:23
+
+忘了生放……等着抽二期了
+
+*****
+
+####  保罗赫伯特  
+##### 14135#       发表于 2024-8-14 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894565&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-14 19:20</a>
+
+3破太丑了。。。。根本分不清这是谁了</blockquote>
+拿公主的原稿重涂了一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 14136#       发表于 2024-8-14 19:25
+
+90连1个学姐3个尼基1个徐福还行
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14137#       发表于 2024-8-14 19:25
+
+没有特殊卡背，就是BB那版
+

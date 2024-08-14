@@ -9429,3 +9429,13 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 泳装1池90抽结束战斗，除了毛子都抽了一个，刑部姬4&gt;5，一个金 ...</blockquote>
 原来的奏三变奏四了，要排到更后面落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 14199#       发表于 2024-8-15 01:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">好高兴但是好惊慌，高兴是bb（藤蔓）实装必抽，惊慌是我前两天刚花了700石补了迦摩，这波是生死存亡之赌
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不然扎比送我吧，扎比要是得抽那我真破产了
+

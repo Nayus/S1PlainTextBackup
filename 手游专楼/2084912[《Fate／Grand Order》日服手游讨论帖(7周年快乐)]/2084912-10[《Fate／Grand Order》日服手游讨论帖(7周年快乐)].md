@@ -8909,3 +8909,26 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 算了一下现在到10月初大概还有200多石头可拿，边打边攒了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aris  
+##### 14155#       发表于 2024-8-14 20:06
+
+看了一页多这么多豹跳的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 14156#       发表于 2024-8-14 20:06
+
+学姐这池子竟然开48天，好坚挺啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">期待在奏章III也有精彩表现。
+
+
+*****
+
+####  低调不圆滑  
+##### 14157#       发表于 2024-8-14 20:13
+
+学姐这套技能配杀狐水BB加梅林或者rba单体打3T很暴力啊，宝具加2红卡能回60np至少可以打2套宝红红
+

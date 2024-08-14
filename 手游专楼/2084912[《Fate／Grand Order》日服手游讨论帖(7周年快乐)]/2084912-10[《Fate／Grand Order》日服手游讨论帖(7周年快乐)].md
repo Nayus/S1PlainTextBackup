@@ -8770,3 +8770,40 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 没有特殊卡背，就是BB那版
 
+
+*****
+
+####  angelooo  
+##### 14138#       发表于 2024-8-14 19:26
+
+<blockquote>保罗赫伯特 发表于 2024-8-14 19:24
+拿公主的原稿重涂了一下</blockquote>
+这三破明明是黑公主，你谁啊233
+
+*****
+
+####  低调不圆滑  
+##### 14139#       发表于 2024-8-14 19:29
+
+雪儿只是变成了志贵最想看到的样子罢了
+
+
+*****
+
+####  yyzcacxg  
+##### 14140#       发表于 2024-8-14 19:32
+
+等着抽2期雨神了，她真好看。
+
+*****
+
+####  保罗赫伯特  
+##### 14141#       发表于 2024-8-14 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894405&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-14 19:02</a>
+
+新从者立绘及解包：</blockquote>
+礼服BB是单体啊，兴趣一下降低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+俄国猫娘这个满破挺涩的啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

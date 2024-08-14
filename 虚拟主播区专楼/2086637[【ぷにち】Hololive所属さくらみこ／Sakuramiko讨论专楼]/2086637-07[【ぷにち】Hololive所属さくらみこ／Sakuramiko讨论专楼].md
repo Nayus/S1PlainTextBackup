@@ -6686,3 +6686,37 @@ kanauru大手笔
 
 她自己也不知道在打什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9453#         楼主| 发表于 2024-8-14 11:38
+
+<img src="https://img.saraba1st.com/forum/202408/14/113811g96wzf15q6j7w4fp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 11:38 上传
+
+<img src="https://img.saraba1st.com/forum/202408/14/113632m9ty3hzyshz9ux4w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-14 11:36 上传
+
+*****
+
+####  holoan  
+##### 9454#         楼主| 发表于 2024-8-14 19:30
+
+最新情报
+
+486今天唐突宣布下次开始玩GTA故事模式
+[https://www.youtube.com/live/ng6 ... G3yNoQKo&amp;t=4112](https://www.youtube.com/live/ng6vwsNj0-I?si=wMYaw0ACG3yNoQKo&amp;t=4112)
+
+我已经不想再多说了，太明显了已经
+

@@ -9216,3 +9216,25 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 才看到三个男人的灵衣卡面，小太阳那狗有病吧，看多少遍都觉得是p上去的，巴沙就一路人，吗的没想到在这里 ...</blockquote>
 看隔壁的帖子说是要和加尔纳的猴子对称吧，但是占据的画面太多了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 14183#       发表于 2024-8-14 22:19
+
+原来如此，学姐居然是牢青售后！
+
+学姐锁卡换牢青带水BB锁卡跟rba产星一路红卡踢过去了
+
+*****
+
+####  格林卡罗尔  
+##### 14184#       发表于 2024-8-14 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895746&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-14 22:00</a>
+
+可以拿学姐拐水BB，出来洗牌洗好，换水BB锁住。
+
+这样就是三面都是水BB的5张卡。 ...</blockquote>
+你当然也可以上水BB，但用锁卡+十颗星星换杀狐伤害会比较难看。而且没有集星没有np
+

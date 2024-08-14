@@ -14440,3 +14440,13 @@ s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶�
 今天8点**音乐还是没有Symbol V偷跑，等到月底去了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">上曲儿PV都没出
 
+
+*****
+
+####  Drawrain  
+##### 22028#       发表于 2024-8-14 21:18
+
+诶，又是啥也没有的一天<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

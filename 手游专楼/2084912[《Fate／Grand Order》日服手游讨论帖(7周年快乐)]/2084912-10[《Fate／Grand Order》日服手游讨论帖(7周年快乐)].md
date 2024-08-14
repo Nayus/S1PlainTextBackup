@@ -9062,3 +9062,39 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 三破卡面头上那个冠，幻视宝可梦太晶化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14171#       发表于 2024-8-14 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895425&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-14 21:15</a>
+
+啊？这三破大家都不喜欢么？我还觉得挺好看的……像个唱歌的偶像
+
+眼熟姿势和肢体变形早就习惯了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你3破这图放外面有人能认出这是谁吗（
+
+
+*****
+
+####  xiongxingyu  
+##### 14172#       发表于 2024-8-14 21:22
+
+雨神上来就想偷跑啊，我说剧情第一场战斗全系统助战怎么没有雨神，结果一转场这女人趁其他人打得正欢已经偷偷拉着咕哒去逛街了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  琴酒  
+##### 14173#       发表于 2024-8-14 21:28
+
+nga看到的
+
+不要问我暴伤有多高～
+
+我会告诉你我有多神～
+
+不要问我星星有几颗～
+
+我会告诉你很多～很多～
+

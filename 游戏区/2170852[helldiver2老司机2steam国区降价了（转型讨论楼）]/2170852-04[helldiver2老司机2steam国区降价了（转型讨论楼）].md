@@ -2113,3 +2113,13 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是这玩意射程贼远，除非处理掉本体，总能把你颠死
 
+
+*****
+
+####  dfbbymice  
+##### 5294#       发表于 2024-8-14 16:49
+
+钉刺虫的触手必须对准了人才攻击，一般注意一下触手和你的位置稍微偏向一点飞扑就可以躲掉，没有体力我都多次躲掉过，距离再近都可以躲掉，不过被打飞的情况最多 ，有时候会扣点血。
+
+问题是被虫子追的时候为了打跳虫没法注意到后背的触手，就很容易被偷袭致死<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+

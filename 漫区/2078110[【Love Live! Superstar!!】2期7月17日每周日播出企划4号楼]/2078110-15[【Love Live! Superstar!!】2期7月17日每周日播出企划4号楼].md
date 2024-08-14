@@ -1858,3 +1858,13 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 上面的名字一般是提交报批材料的办事员的名字。。。
 
+
+*****
+
+####  太阳寺太守  
+##### 20896#       发表于 2024-8-15 03:47
+
+第三季估计不是花田写全话脚本了，看 staff 表上只标注了系列构成，没标注脚本，或许脚本交给其他人写了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

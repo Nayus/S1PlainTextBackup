@@ -9416,3 +9416,16 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 你当然也可以上水BB，但用锁卡+十颗星星换杀狐伤害会比较难看。而且没有集星没有np ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是学姐开技能拿5张牌，然后水bb换学姐，这样就是水bb+双杀狐，3t都是5张水bb的卡。
 
+
+*****
+
+####  保罗赫伯特  
+##### 14198#       发表于 2024-8-15 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65896782&amp;ptid=2084912" target="_blank">乾理央 发表于 2024-8-15 00:39</a>
+
+不是，奏3难道没有果子龙吗，我还很期待呀
+
+泳装1池90抽结束战斗，除了毛子都抽了一个，刑部姬4&gt;5，一个金 ...</blockquote>
+原来的奏三变奏四了，要排到更后面落地了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

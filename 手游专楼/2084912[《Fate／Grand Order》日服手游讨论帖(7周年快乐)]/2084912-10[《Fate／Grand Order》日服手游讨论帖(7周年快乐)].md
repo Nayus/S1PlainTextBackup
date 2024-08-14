@@ -9248,3 +9248,45 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 还剩1034个石头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14186#       发表于 2024-8-14 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895174&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-14 20:39</a>
+
+这奏章3是什么鬼....我才不信运营会这么勤快奏章3和泳装一起出
+
+还有怎么连男女扎比都出来了啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">勤快啥 直接出到10月底了
+
+*****
+
+####  angelooo  
+##### 14187#       发表于 2024-8-14 22:41
+
+<blockquote>Jamaisvu 发表于 2024-8-14 21:29
+泳装二池的两位真是太好看了(｡･ω･｡)ﾉ♡8.28开池必抽。
+
+算上学姐这活动有三个月癌了，估计功能性 ...</blockquote>
+
+这个bb大概率是糖果藤蔓……她的本体是很绿的（指衣服配色）所以万一……
+
+不过这二池太地狱了，感觉会被雨神疯狂埋伏（符合人设的一集
+
+
+*****
+
+####  シャル  
+##### 14188#       发表于 2024-8-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65896031&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-14 22:38</a>
+
+勤快啥 直接出到10月底了</blockquote>
+就是，根本偷懒，泳装2池直接算奏章3的卡池了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这样一合体就能少开个卡池
+
+泳装1,2，奏章1.2现场变成泳装奏章123<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

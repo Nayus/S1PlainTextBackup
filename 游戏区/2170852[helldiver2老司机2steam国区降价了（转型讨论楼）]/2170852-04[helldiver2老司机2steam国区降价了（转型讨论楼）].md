@@ -1749,3 +1749,33 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强袭虫属于HD2最粪的一个怪，刷怪量多不说，高速且正面无弱点，而且能直接创烂炮塔，不能快速处理就很容易被后续堆起来的小虫子滚雪球。原先筒子一发爆头秒就很合适，后面不能一发秒了但是喷火器还能处理加上刷怪量少了一些也还好，这次更新一下子没有能快速处理掉牛的三号位了，直接难受起来
 
+
+*****
+
+####  jy000129  
+##### 5260#       发表于 2024-8-14 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65887945&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-14 08:52</a>
+强袭虫属于HD2最粪的一个怪，刷怪量多不说，高速且正面无弱点，而且能直接创烂炮塔，不能快速处理就很容易 ...</blockquote>
+我觉得最粪的是东线的大机器人，正面最少吃两发次抛，转向快，还能喷火和发射导弹，基本单人被盯上了跑都难跑掉，而西线的强袭虫很多时候可以放风筝，它追你的时候还能碾死旁边的小虫子，给的压力并不高
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ravend233  
+##### 5261#       发表于 2024-8-14 09:12
+
+ 本帖最后由 ravend233 于 2024-8-14 09:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888080&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 09:06</a>
+
+我觉得最粪的是东线的大机器人，正面最少吃两发次抛，转向快，还能喷火和发射导弹，基本单人被盯上了跑都 ...</blockquote>
+无畏正面有弱点，机动速度慢，机炮大狙激光大炮只要准都能很快送走（机炮和大狙都是打中弱点两枪一个），磁轨更是安全模式一枪送走
+
+筒子打无畏纯纯赤石
+
+就是这玩意动起来不好瞄弱点，一般来说都要交晕雷处理，也就磁轨这种一枪一个的只要你枪准可以不用晕雷
+
+西线最粪的怪我觉得还得是机枪哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

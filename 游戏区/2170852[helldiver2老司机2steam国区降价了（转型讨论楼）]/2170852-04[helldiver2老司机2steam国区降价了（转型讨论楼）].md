@@ -1828,3 +1828,28 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 机器人怀疑又开始锁头攻击了，而且大盾哥的开火间隔感觉也变短了，现在几乎是不间断射击，要么交晕雷战备要么打先手才行
 
+
+*****
+
+####  jy000129  
+##### 5268#       发表于 2024-8-14 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888135&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-8-14 09:12</a>
+无畏正面有弱点，机动速度慢，机炮大狙激光大炮只要准都能很快送走（机炮和大狙都是打中弱点两枪一个）， ...</blockquote>
+我主要是玩机炮的，所以一个人打无畏只能上红战备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盾牌哥倒是好处理
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  赤井稻妻  
+##### 5269#       发表于 2024-8-14 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888670&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 09:57</a>
+
+我主要是玩机炮的，所以一个人打无畏只能上红战备盾牌哥倒是好处理
+
+—— 来自 HUAWEI WLZ-AL10, Android ...</blockquote>
+机炮就是典型的4穿武器啊，西线全能王
+

@@ -2140,3 +2140,11 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 感觉会越做越烂
 
+
+*****
+
+####  ravend233  
+##### 5297#       发表于 2024-8-14 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就箭头的人的游戏理解和工作效率，60天我确实觉得他们搞不明白
+

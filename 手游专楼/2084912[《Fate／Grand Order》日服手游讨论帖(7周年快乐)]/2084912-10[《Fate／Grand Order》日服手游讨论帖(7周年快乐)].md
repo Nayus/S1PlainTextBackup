@@ -8807,3 +8807,52 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 俄国猫娘这个满破挺涩的啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14142#       发表于 2024-8-14 19:38
+
+想喝雨神的洗脚水（错乱
+
+*****
+
+####  白金口袋  
+##### 14143#       发表于 2024-8-14 19:38
+
+有种预感泳装库库+扎比会蹦出来一个3期卡池，毕竟前俩是“泳装”池，第三个可以说是“奏章”池，我觉得这帮人真的干得出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高木なつめ  
+##### 14144#       发表于 2024-8-14 19:39
+
+3破这人谁啊，是哪里的新角色吗？
+
+学姐不长这样吧
+
+
+*****
+
+####  yangun22  
+##### 14145#       发表于 2024-8-14 19:40
+
+学姐被动有个克制剑阶的，解包好像漏了
+
+*****
+
+####  低调不圆滑  
+##### 14146#       发表于 2024-8-14 19:41
+
+拿弓真的可以当archer
+
+*****
+
+####  保罗赫伯特  
+##### 14147#       发表于 2024-8-14 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894687&amp;ptid=2084912" target="_blank">白金口袋 发表于 2024-8-14 19:38</a>
+
+有种预感泳装库库+扎比会蹦出来一个3期卡池，毕竟前俩是“泳装”池，第三个可以说是“奏章”池，我觉得这帮 ...</blockquote>
+这活动要开到十月份呢，泳装2池28号就开了，后面肯定还有新池子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

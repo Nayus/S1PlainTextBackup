@@ -9290,3 +9290,21 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 泳装1,2，奏章1.2现场变成泳装奏章123<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14189#       发表于 2024-8-14 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65896031&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-14 22:38</a>
+
+勤快啥 直接出到10月底了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整整2个多月都有事干不是挺好....总比长草要好啊
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14190#       发表于 2024-8-14 23:03
+
+不是说了奏章期间还有别的活动吗
+

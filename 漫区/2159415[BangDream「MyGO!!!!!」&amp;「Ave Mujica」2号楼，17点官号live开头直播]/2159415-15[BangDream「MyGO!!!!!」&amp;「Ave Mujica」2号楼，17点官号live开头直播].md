@@ -14393,3 +14393,13 @@ s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶�
 
 只要我没有期待，就不会失望<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 22023#       发表于 2024-8-14 13:02
+
+<blockquote>NODY 发表于 2024-8-13 23:06
+多来这边打中华炮就是了，就目前双r两次票秒空的战斗力来看完全是血赚</blockquote>
+中华炮这东西看大环境的，谁知道明年还通不通得过
+

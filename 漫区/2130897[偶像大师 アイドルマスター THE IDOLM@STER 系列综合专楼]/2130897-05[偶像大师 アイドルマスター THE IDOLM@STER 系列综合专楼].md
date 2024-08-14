@@ -1269,3 +1269,33 @@ ktn人气还是高
 
 比较核心的问题还是学马现在12个人是有工作有实力有颜值最多沾一个可能一个不沾吧（X）
 
+
+*****
+
+####  Vacuolar  
+##### 6141#       发表于 2024-8-14 09:37
+
+宣传宣传
+
+s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶像企划歌，少女乐队歌，gal/adv歌正在投票。
+[https://bbs.saraba1st.com/2b/thread-2193424-1-1.html](https://bbs.saraba1st.com/2b/thread-2193424-1-1.html)
+
+感兴趣的话，请来投出你宝贵的一票吧。
+
+*****
+
+####  RhmBWT_Wu  
+##### 6142#       发表于 2024-8-14 11:19
+
+实力可以天道酬勤，颜值可以靠化妆和整容
+工作这是真没办法了吧，想起紫月了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑翼死神  
+##### 6143#       发表于 2024-8-14 11:24
+
+感覺愛馬仕一直是以聲線配合度和演技來選人的，不管學還是閃，至少我覺得聲優們一開始的演技還是配得不錯的，沒有棒讀的情況
+

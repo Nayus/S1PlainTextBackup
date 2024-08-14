@@ -1779,3 +1779,29 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 西线最粪的怪我觉得还得是机枪哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 5262#       发表于 2024-8-14 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65888080&amp;ptid=2170852" target="_blank">jy000129 发表于 2024-8-14 09:06</a>
+
+我觉得最粪的是东线的大机器人，正面最少吃两发次抛，转向快，还能喷火和发射导弹，基本单人被盯上了跑都 ...</blockquote>
+无畏用4穿的3号位+震撼弹可以正面稳吃，这类支援武器一般弹药都很足，只要震撼弹够用，来多少都白给
+
+
+*****
+
+####  ravend233  
+##### 5263#       发表于 2024-8-14 09:22
+
+四穿的三号位弹药足，单个弹匣弹容量高，而且大狙和磁轨都可以跑动换弹，机炮只要不清空弹匣也就站桩一秒，打无畏容错空间也比筒子大多了
+
+*****
+
+####  siebten  
+##### 5264#       发表于 2024-8-14 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉倒吧 所有能快速解决强袭虫的武器都要被削 我都怀疑强袭虫是箭头亲爹了 你现在忽然说重做我能信吗 而且你们这个不如预期难道指的是砍了燃烧后发现卖不出燃烧武器债券吗 如果是的话那就太幽默了
+

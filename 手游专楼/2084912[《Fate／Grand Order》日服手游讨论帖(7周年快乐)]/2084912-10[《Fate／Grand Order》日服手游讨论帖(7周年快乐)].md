@@ -8955,3 +8955,34 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 忘了她1技能还有10np缓冲，这样每回合70，正好梅林补30
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14160#       发表于 2024-8-14 20:29
+
+试用的水雨神一技能群充20？三技能提升兔女郎系从者的暴击威力，CD-1<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 14161#       发表于 2024-8-14 20:31
+
+社长要不以后自己设计好然后让别人代工算了...................<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheLoof  
+##### 14162#       发表于 2024-8-14 20:33
+
+ 本帖最后由 TheLoof 于 2024-8-14 20:35 编辑 
+
+学姐那可比托勒密强多了，你用学姐打1XX的话，1T是可以稳定少打一发宝具的
+
+而且是双红暴，不管是RBA还是梅林都可以稳定打出超高伤害，你硬打一发宝具输出极大概率打不过这双红暴击
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这么一算学姐也算是个低宝战神了
+

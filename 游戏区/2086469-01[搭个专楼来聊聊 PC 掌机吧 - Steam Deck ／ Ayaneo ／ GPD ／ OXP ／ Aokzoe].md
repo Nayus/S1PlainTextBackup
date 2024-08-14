@@ -60,3 +60,25 @@ X现在属于耍🐒阶段，要么加大概1k左右买，要么等等，如果�
 
 —— 来自 HUAWEI ALT-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  bypass  
+##### 1280#         楼主| 发表于 2024-8-14 10:16
+
+[https://www.theverge.com/2024/8/ ... -progress-dual-boot](https://www.theverge.com/2024/8/13/24219469/valve-steamos-asus-rog-ally-steady-progress-dual-boot)
+
+The Verge 询问了一下 V 社关于第三方机器的 SteamOS 支持，以及 Steam Deck 自己的双系统启动的进度。
+
+关于之前的 Release note 里面提及了 ROG Ally：
+ <blockquote>"The note about ROG Ally keys is related to third-party device support for SteamOS. The team is continuing to work on adding support for additional handhelds on SteamOS," Yang tells me.
+
+那条提及 ROG Ally 的更新日志是跟 SteamOS 的第三方设备支持有关的（而不是某些人说的仅仅是因为大屏幕模式对 ROG Ally 的更新被合并到了 Steam Client 代码里面），我们团队能在添加对其他掌机设备的 SteamOS 支持。</blockquote>
+
+关于双系统启动：
+ <blockquote>As for Windows, we’re preparing to make the remaining Windows drivers for Steam Deck OLED available (you might have seen that we are prepping firmware for the Bluetooth driver). There’s no update on the timing for dual boot support—it’s still a priority, but we haven’t been able to get to it just yet.
+
+至于 Windows，我们仍在开发余下的 Steam Deck OLED 的 Windows 驱动（比如你可以看到我们正在弄蓝牙驱动），但是关于双系统启动我们依旧没有准确的时间 —— 它仍是高优先级，但是我们还没有准备好。</blockquote>
+
+懒狗 V 社，发售已经两年半了好嘛。
+

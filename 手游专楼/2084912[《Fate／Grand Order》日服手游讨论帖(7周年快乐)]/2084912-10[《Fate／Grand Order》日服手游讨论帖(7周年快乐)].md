@@ -9365,3 +9365,14 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 发带完全一致，还有胸牌写了かずら</blockquote>
 真BB在pv里也出现了，现在不知道是被融合了/囚禁了，还是单纯没到出场的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  onemoment  
+##### 14194#       发表于 2024-8-15 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895749&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-14 22:01</a>
+
+你不是刚2200石6宝了艾蕾吗，这几天充了多少啊</blockquote>
+20多单吧，还差个BB，现在能40单以内拿下就算预期之内了，非麻了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

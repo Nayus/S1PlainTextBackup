@@ -2230,3 +2230,13 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">反正下周黑神话，打完就差不多星际战士2了
 
+
+*****
+
+####  风萧飒  
+##### 5305#       发表于 2024-8-14 20:47
+
+隔壁星际战士好像说pve内容会比较少，不一定耐玩。当然买肯定是会买的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

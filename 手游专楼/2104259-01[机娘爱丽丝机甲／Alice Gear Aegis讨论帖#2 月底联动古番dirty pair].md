@@ -94,3 +94,11 @@ ST人的衣服都是这样，被企业赞助的衣服。而法国人胸部放大
 
 而最近的这次列克星敦引发“争议”，MC☆AXIS也及时地把自己手里（前？）舰c画师画的列克星敦拿出来凑热闹，一看也是不嫌事大
 
+
+*****
+
+####  不灭的旋律  
+##### 1165#       发表于 2024-8-14 14:09
+
+DTA复刻来了。DTA给AGA出了那么多胶金字塔居然一直不复刻让两个猫猫一直无法用enigma系统真是负心汉<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

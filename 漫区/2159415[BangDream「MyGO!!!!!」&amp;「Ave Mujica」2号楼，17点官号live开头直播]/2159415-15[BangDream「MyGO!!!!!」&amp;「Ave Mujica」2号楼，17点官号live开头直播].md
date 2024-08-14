@@ -14330,3 +14330,16 @@ ttps://www.pixiv.net/artworks/121349338 <blockquote>
 
 双r秒空但ras是1000人场，萝的黄牛恶心到爆炸，不是说不希望来打中华炮但是感觉人气越高黄牛越恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Vacuolar  
+##### 22017#       发表于 2024-8-14 09:38
+
+宣传宣传
+
+s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶像企划歌，少女乐队歌，gal/adv歌正在投票。
+[https://bbs.saraba1st.com/2b/thread-2193424-1-1.html](https://bbs.saraba1st.com/2b/thread-2193424-1-1.html)
+
+感兴趣的话，请来投出你宝贵的一票吧。
+

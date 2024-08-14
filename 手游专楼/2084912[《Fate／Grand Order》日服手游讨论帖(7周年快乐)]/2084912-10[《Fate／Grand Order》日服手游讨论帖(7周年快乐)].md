@@ -9034,3 +9034,31 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 该想个场外节奏巨大的剧情了，比如说咕哒魂穿扎比或者咕哒被ban奏章是扎比全程主场之类的 ...</blockquote>
 当然是眼镜侠和卫宫大侠上演NTR戏码，咕哒和扎比只能看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 14168#       发表于 2024-8-14 21:07
+
+奏二都没爆，奏三应该也不会爆吧（帕德梅公主.jpg)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过要落地扎比和白野的话，之前FE角色的语音也要加了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  v22325  
+##### 14169#       发表于 2024-8-14 21:15
+
+ 本帖最后由 v22325 于 2024-8-14 21:17 编辑 
+
+啊？这三破大家都不喜欢么？我还觉得挺好看的……像个唱歌的偶像
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">眼熟姿势和肢体变形早就习惯了
+
+*****
+
+####  cckuku  
+##### 14170#       发表于 2024-8-14 21:16
+
+三破卡面头上那个冠，幻视宝可梦太晶化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

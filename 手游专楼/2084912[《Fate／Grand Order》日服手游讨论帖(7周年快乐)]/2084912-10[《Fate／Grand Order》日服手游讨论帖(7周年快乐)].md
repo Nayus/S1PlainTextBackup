@@ -9003,3 +9003,34 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 还有怎么连扎比都出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14165#       发表于 2024-8-14 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895174&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-14 20:39</a>
+
+这奏章3是什么鬼....我才不信运营会这么勤快奏章3和泳装一起出
+
+还有怎么连男女扎比都出来了啊 ...</blockquote>
+蘑菇和金主下令，运营想偷懒也不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 14166#       发表于 2024-8-14 21:02
+
+该想个场外节奏巨大的剧情了，比如说咕哒魂穿扎比或者咕哒被ban奏章是扎比全程主场之类的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 14167#       发表于 2024-8-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65895319&amp;ptid=2084912" target="_blank">cckuku 发表于 2024-8-14 21:02</a>
+
+该想个场外节奏巨大的剧情了，比如说咕哒魂穿扎比或者咕哒被ban奏章是扎比全程主场之类的 ...</blockquote>
+当然是眼镜侠和卫宫大侠上演NTR戏码，咕哒和扎比只能看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

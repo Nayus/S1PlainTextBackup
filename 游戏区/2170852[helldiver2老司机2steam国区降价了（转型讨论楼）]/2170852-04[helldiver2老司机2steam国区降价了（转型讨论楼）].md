@@ -2211,3 +2211,22 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  dfbbymice  
+##### 5303#       发表于 2024-8-14 19:59
+
+单通N9我也做过，基本都是队友一个个掉线之后剩我懒得拉人了一个人继续做的，无非就是利用刷新机制和潜行机制，一击脱离的玩法，要我说确实挺容易的，只是这么玩着很枯燥。
+
+但是官方对着单通玩家来加难度结果把难度全加到了合作玩家的头上，就是本末倒置了，属实是没搞懂自己游戏的底层玩法。
+
+要真想增加单人游戏的难度，那就固定刷新双子炮艇工厂，虫子那边目前还真没辙，未来增加飞龙巢变种吧，只能地狱火轰炸的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ykyin09  
+##### 5304#       发表于 2024-8-14 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">反正下周黑神话，打完就差不多星际战士2了
+

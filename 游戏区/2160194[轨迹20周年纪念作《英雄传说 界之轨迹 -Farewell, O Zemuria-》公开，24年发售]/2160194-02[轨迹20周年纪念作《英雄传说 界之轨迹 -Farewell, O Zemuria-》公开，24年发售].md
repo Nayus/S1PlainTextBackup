@@ -5401,3 +5401,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">黑月剧情太傻了，展开方式也蠢，就当着主角团面扯东扯西，，拜托 我真的对你家那些屁事没兴趣，你内斗别带上我好不好
 
+
+*****
+
+####  Aeons  
+##### 2665#       发表于 2024-8-14 12:23
+
+黑月就该围绕大君讲
+

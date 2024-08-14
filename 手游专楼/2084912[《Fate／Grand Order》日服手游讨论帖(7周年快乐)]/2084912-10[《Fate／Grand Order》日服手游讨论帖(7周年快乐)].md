@@ -8986,3 +8986,20 @@ ccc和extella还是有区别的….虽然这个区别现在有没意义不知道
 
 这么一算学姐也算是个低宝战神了
 
+
+*****
+
+####  白金口袋  
+##### 14163#       发表于 2024-8-14 20:39
+
+600石+30呼符ciel才1宝，感觉2期（甚至3期）在离我而去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 14164#       发表于 2024-8-14 20:39
+
+这奏章3是什么鬼....我才不信运营会这么勤快奏章3和泳装一起出
+
+还有怎么连扎比都出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

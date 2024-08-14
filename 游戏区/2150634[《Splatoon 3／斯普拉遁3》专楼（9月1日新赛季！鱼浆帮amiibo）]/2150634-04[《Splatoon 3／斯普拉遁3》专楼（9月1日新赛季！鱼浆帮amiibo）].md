@@ -255,3 +255,16 @@ https://weibo.com/7766209741/5066588416119119
 
 好看捏
 
+
+*****
+
+####  KBAC  
+##### 4976#       发表于 2024-8-14 18:38
+
+大型祭典的官网上线了。
+新广场没有大厅，参加对战需要坐广场上的接送巴士回对战大厅。
+
+怎么有种脱裤子放屁感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

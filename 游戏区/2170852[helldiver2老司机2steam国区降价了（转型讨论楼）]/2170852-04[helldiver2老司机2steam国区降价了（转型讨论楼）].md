@@ -2156,3 +2156,11 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 60天能治好精神变态脑子有矢就是电子游戏神医好吧，给他60天他怕不是都搞不明白玩家想要的fun到底是哪种fun，最好的结果估计就是捏着鼻子照玩家要求意思意思小buff一波各种武器安抚社区情绪，之后继续发癫，毕竟狗改不了吃屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  山风短  
+##### 5299#       发表于 2024-8-14 18:38
+
+五月底六月那波节奏过后还信箭头的简直比结晶孝子还要神人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -5659,3 +5659,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 坏但本质又不能坏 不就只能搞过家家脱裤子放屁的玩意儿
 
+
+*****
+
+####  aimujie  
+##### 2692#       发表于 2024-8-15 12:54
+
+对黑月内部狠一点又不会怎样，那帮长老都是黎轨蹦出来的角色玩家也没有什么好感，还能额外塑造个杀伐果断
+
+现在这大棋一通下就为了过家家，连运筹帷幄的本来特点都弱化了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

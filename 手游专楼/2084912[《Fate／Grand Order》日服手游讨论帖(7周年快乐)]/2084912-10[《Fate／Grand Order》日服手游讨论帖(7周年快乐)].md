@@ -9672,3 +9672,11 @@ wada你是被隔壁的平井传染了吗
 还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个</blockquote>
 根据咕哒的性别遍就可以了，和咕哒统一性别或者互为异性。
 
+
+*****
+
+####  保罗赫伯特  
+##### 14222#       发表于 2024-8-15 18:38
+
+互为异性比较好，不然只能搞姬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

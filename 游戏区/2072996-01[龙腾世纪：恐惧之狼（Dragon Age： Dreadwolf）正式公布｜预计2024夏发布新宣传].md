@@ -23,3 +23,19 @@
 
 匆匆忙忙赶工赶鸭子上架的感觉越来越强烈了，仿佛仙女座2.0重现<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ybfelix  
+##### 498#       发表于 2024-8-16 00:21
+
+<img src="https://img.saraba1st.com/forum/202408/16/001828nasmqs2a8tqcbcx1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_2709.jpeg</strong> (786.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-16 00:18 上传
+
+感觉画这图的参照物是什么美国大学生party照片，每个人脸上的这个乞撚人憎的笑意真是欠揍啊<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
+

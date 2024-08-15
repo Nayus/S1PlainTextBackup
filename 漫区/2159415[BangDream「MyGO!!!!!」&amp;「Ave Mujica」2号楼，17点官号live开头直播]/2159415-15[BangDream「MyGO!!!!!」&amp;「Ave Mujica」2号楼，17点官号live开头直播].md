@@ -14757,3 +14757,58 @@ wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.s
 
 鬼图就鬼图的恭喜你已经被wsd成功pua了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22060#       发表于 2024-8-15 21:58
+
+好消息，有鸡！
+
+*****
+
+####  御幸一也  
+##### 22061#       发表于 2024-8-15 21:59
+
+下週<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202408/15/215856xpnz1ipnkppuppp1.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #228 1-7-34 screenshot.jpg</strong> (319.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 21:58 上传
+
+*****
+
+####  御幸一也  
+##### 22062#       发表于 2024-8-15 22:00
+
+喜報：睦寶名字沒有打錯
+
+*****
+
+####  akiomn  
+##### 22063#       发表于 2024-8-15 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下周节约放的开吗？印象里节约唯一放开的一次还是鸡团五人组一起上tv，节约好像和鼓子和凛根本不熟啊
+
+*****
+
+####  御幸一也  
+##### 22064#       发表于 2024-8-15 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65904958&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-8-15 22:01</a>
+
+下周节约放的开吗？印象里节约唯一放开的一次还是鸡团五人组一起上tv，节约好像和鼓子和凛根本不熟啊 ...</blockquote>
+那肯定是不熟了，不過另外兩個很熟，至少不會很尬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 22065#       发表于 2024-8-15 22:05
+
+凛和节约一起上过个人节目的啊，因为一起聊了一下mujica动画我还有点印象
+

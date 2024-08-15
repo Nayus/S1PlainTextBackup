@@ -5677,3 +5677,30 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 黑月从黎1开始新弄两个高逼格能打的狠角色很难吗，后面不还是空降了花臂哥，结果现在还是在捧曹，BOSS无人只能搞些一次性面具男，曹李也不敢让玩家真的把他痛打一顿，非得让玩家忍着恶心看这个太监装逼<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2694#       发表于 2024-8-15 13:20
+
+推曹李不就因为诸葛亮吗，看那他扇子和月（八）门遁甲就知道了。
+
+别忘了近藤说过最初轨迹的地理是参考三国志的。
+
+早晚会出现拿着青龙偃月刀的新一代战神的
+
+*****
+
+####  ravend233  
+##### 2695#       发表于 2024-8-15 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然设计上确实有致敬，但是你把这俩人联系在一起属实乳了
+
+
+*****
+
+####  卢迪克  
+##### 2696#       发表于 2024-8-15 13:23
+
+亚里欧契也有点吕布的感觉
+

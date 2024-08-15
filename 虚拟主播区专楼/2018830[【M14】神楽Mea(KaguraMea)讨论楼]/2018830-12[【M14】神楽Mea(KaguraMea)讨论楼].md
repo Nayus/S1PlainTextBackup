@@ -6111,3 +6111,46 @@ crew这种人你泔毕业你说发这个不影响，神乐mea还活着呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这一边打撸还能一边说以前男朋友的事情。结果这LOL入坑契机还不是因为男友是另一个朋友，草生。（不知道有没有听错）
 
+
+*****
+
+####  古战场亡魂  
+##### 17168#       发表于 2024-8-15 11:36
+
+ 本帖最后由 古战场亡魂 于 2024-8-15 12:10 编辑 
+
+感觉今天能翡翠啊
+
+<img src="https://img.saraba1st.com/forum/202408/15/113540zffvojffn7vsqnop.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (351.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 11:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/15/121053pgoe6fuhkkauaq9k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (185.06 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 12:10 上传
+
+*****
+
+####  sino__unnko3  
+##### 17169#       发表于 2024-8-15 12:11
+
+ 本帖最后由 sino__unnko3 于 2024-8-15 12:25 编辑 
+
+(🦄——&gt;🐴）
+你咩这撸撸直播存档啥时候做个AI视频总结估计还能提出蛮多信息，可惜t台没搞相关功能；这打个撸怎么声线还能回到萌音之神时期的
+
+*****
+
+####  古战场亡魂  
+##### 17170#       发表于 2024-8-15 13:21
+
+两把被队友干碎了，遗憾下播。t台确实不适合转播，日本玩家和国人在游戏内聊天栏吵起来了。
+

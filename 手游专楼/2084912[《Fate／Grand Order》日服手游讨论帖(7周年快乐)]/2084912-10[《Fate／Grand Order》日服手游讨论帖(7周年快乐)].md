@@ -9553,3 +9553,14 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 類似小妖精這種4星角，通了主線後就會先送一隻，再在友情池抽滿嗎?
 
+
+*****
+
+####  cenhr  
+##### 14211#       发表于 2024-8-15 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65899245&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-15 11:37</a>
+
+「此外，自 8 月 28 日開始舉辦的期間限定「奏章 Ⅲ 新靈長後繼戰 Archetype･Inception」，循序關卡進行即 ...</blockquote>
+不就猜测这次的免费从者就是活动从者，大概是Extra的岸波白野
+

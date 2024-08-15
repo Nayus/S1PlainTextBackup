@@ -1969,3 +1969,19 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 20907#       发表于 2024-8-15 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65900920&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-8-15 14:18</a>
+我对前辈团了解不清楚……前辈唱老歌也这么频繁吗？(我倒是印象中莲团有不少新歌
+
+—— 来自 Xiaomi 220412 ...</blockquote>
+星巡演强度高的多，改五人曲看着又缩手缩脚改了又改的不多，可不就一堆老歌。
+
+而且发新曲也没发solo，不然用solo填一下数还可以。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

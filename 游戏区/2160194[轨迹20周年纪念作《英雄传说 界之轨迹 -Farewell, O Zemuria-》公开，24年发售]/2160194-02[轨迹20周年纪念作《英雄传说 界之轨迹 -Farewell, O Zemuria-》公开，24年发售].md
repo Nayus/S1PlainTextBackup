@@ -5773,3 +5773,39 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 不如等a9采访出来
 
+
+*****
+
+####  卢迪克  
+##### 2705#       发表于 2024-8-15 17:38
+
+<blockquote>一步成诗 发表于 2024-8-15 14:17
+看来这周又无了，老实等日本人放假回来吧</blockquote>
+这部开发预算都没多少，就一个新城市，中东城市以为是艾尔萨姆首都，结果就是萨尔巴德复用一下。
+
+就别指望宣发了
+
+*****
+
+####  一步成诗  
+##### 2706#       发表于 2024-8-15 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65902876&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-15 17:38</a>
+
+这部开发预算都没多少，就一个新城市，中东城市以为是艾尔萨姆首都，结果就是萨尔巴德复用一下。
+
+就别指 ...</blockquote>
+就算不宣发更新官网总不要钱吧，还有一车子人等着介绍呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 2707#       发表于 2024-8-15 17:46
+
+<blockquote>一步成诗 发表于 2024-8-15 17:42
+就算不宣发更新官网总不要钱吧，还有一车子人等着介绍呢</blockquote>
+黎1更过妮娜和丁格这些，黎2更过总统和cid姐弟。
+
+界轨主打一个我就是不想更
+

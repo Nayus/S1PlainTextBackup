@@ -9617,3 +9617,40 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望送扎比子，真可爱
 
+
+*****
+
+####  angelooo  
+##### 14216#       发表于 2024-8-15 17:40
+
+lip表情差分好少，不会是npc或者灵衣吧
+
+这个藤蔓我刑了
+
+
+*****
+
+####  TheLoof  
+##### 14217#       发表于 2024-8-15 17:42
+
+wada你是被隔壁的平井传染了吗
+
+加唇彩有效提升年龄
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 14218#       发表于 2024-8-15 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">PV里扎比夫和色茄子跑的时候穿的也是这身
+
+不知道到时是双扎比同时登场还是和街机联动最后的剧情一样根据玩家的选择不同只登场一个
+
+*****
+
+####  quanlix  
+##### 14219#       发表于 2024-8-15 17:47
+
+泳装两期，奏3两期，钱包大破
+

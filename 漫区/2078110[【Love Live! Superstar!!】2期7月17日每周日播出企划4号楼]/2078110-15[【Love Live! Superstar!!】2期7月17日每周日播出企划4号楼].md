@@ -1985,3 +1985,21 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  ads147147  
+##### 20908#       发表于 2024-8-15 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65901545&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-8-15 15:17</a>
+主要是花田这个抄AS烂活抄得太明显了。
+一期叶月恋就是抄的AS三船栞子。
+现在三期薇恩单独组队分裂内战也是 ...</blockquote>
+就算是as的栞子反对学院偶像的理由也比恋正当点，花田用了个有故事以来最烂的技能——失忆，来做恋这个角色的底色，顺便当坏人也难怪会让青山姐问出恋是这种角色么。
+
+vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你算什么冠军这事后，所以花田大概率一拍拍大腿定了个要不香音就不打算回Liella这种烂活。
+
+说来了真按五学考虑，大香自己s2e12说希望自己留学后Liella还在，刚好拿vn这个小丑皇考验下老臣忠不忠诚。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

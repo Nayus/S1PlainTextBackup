@@ -5497,3 +5497,35 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 曹李有什么人气啊梗玩多了当真了吗，还不如说内部有平川大辅粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2674#       发表于 2024-8-15 10:00
+
+ 本帖最后由 ravend233 于 2024-8-15 10:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曹李我觉得不能用商业逻辑去解释，只能说是一种内部爱或者一些没有道理的错误决策搞出的东西（）
+
+不过你法社在你轨总体上是有很明显的看人气改剧本的倾向的，而且还不是小幅度的改动
+
+*****
+
+####  古畑任三郎2015  
+##### 2675#       发表于 2024-8-15 10:03
+
+黑月按鲁巴彻的格式写一下不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+非要搞成这样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  maojiashu  
+##### 2676#       发表于 2024-8-15 10:04
+
+按照人气改剧本能写出鬼来
+
+闪轨就是这样烂掉的
+

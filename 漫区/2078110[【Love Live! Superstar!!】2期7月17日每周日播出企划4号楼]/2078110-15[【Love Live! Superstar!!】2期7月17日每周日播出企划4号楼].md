@@ -1868,3 +1868,17 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 — from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  csolfans  
+##### 20897#       发表于 2024-8-15 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65897120&amp;ptid=2078110" target="_blank">太阳寺太守 发表于 2024-8-15 03:47</a>
+第三季估计不是花田写全话脚本了，看 staff 表上只标注了系列构成，没标注脚本，或许脚本交给其他人写了
+
+ ...</blockquote>
+以前官网也只是写系列构成
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

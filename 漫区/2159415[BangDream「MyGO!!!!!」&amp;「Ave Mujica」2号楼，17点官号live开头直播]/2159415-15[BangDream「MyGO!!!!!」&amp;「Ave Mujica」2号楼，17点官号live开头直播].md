@@ -14526,3 +14526,51 @@ wsd太后正式润了
 
 wsd帮我省钱了
 
+
+*****
+
+####  御幸一也  
+##### 22037#       发表于 2024-8-15 16:23
+
+ASL場販賣黑生，真有你的
+
+[https://bushiroad-creative.com/items/79465/](https://bushiroad-creative.com/items/79465/)
+
+<img src="https://img.saraba1st.com/forum/202408/15/162318e3cyhyx7yic3gicp.jpg" referrerpolicy="no-referrer">
+
+<strong>anisama_AM_keyholder_set_ari.jpg</strong> (133.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 16:23 上传
+
+*****
+
+####  滑稽Captain  
+##### 22038#       发表于 2024-8-15 16:24
+
+ASL出演新周边
+
+<img src="https://img.saraba1st.com/forum/202408/15/162336nuzzruqb7cc4ud4u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 16:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/15/162416ajovjtovhbom8kcc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (308.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 16:24 上传
+
+*****
+
+####  星天观测  
+##### 22039#       发表于 2024-8-15 16:25
+
+说明wsd也知道鸡除了黑生都是鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过鸡怎么没立牌
+

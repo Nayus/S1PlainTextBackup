@@ -5573,3 +5573,19 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 他这个人设就刻板印象拉满  要不是写崩了原计划大概是想打造成共和版克洛呢
 
+
+*****
+
+####  Aeons  
+##### 2682#       发表于 2024-8-15 11:44
+
+近藤不是说过了写剧情看人气吗，无非是比例的问题，这没什么好说的吧，鬼佬mmr聊这个也只能说是全世界都这样。
+界回归不就是榜单1234，黑兔无中生有财团代表人，克洛无中生有MK契约者。
+
+*****
+
+####  ravend233  
+##### 2683#       发表于 2024-8-15 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看人气改剧本不奇怪，但是改到对大纲动刀子的还是不多
+

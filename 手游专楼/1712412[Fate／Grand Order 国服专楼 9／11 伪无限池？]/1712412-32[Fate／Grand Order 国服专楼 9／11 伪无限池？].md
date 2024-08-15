@@ -1766,3 +1766,11 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 开始决定刷之前的单材料掉落了
 
+
+*****
+
+####  GuDaZi  
+##### 46699#       发表于 2024-8-15 11:39
+
+烟哥，妖高，妖崔都抽到了。泳装抽卡地狱结束了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+

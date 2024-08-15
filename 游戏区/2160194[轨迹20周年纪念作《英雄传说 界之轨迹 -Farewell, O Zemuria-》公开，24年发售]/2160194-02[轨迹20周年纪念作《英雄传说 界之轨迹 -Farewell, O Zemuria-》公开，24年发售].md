@@ -5669,3 +5669,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 现在这大棋一通下就为了过家家，连运筹帷幄的本来特点都弱化了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fireadol  
+##### 2693#       发表于 2024-8-15 13:02
+
+黑月从黎1开始新弄两个高逼格能打的狠角色很难吗，后面不还是空降了花臂哥，结果现在还是在捧曹，BOSS无人只能搞些一次性面具男，曹李也不敢让玩家真的把他痛打一顿，非得让玩家忍着恶心看这个太监装逼<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

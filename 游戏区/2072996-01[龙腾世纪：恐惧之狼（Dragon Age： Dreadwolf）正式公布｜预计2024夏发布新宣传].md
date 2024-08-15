@@ -57,3 +57,11 @@
 
 —— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  卡拉德利姆  
+##### 501#       发表于 2024-8-16 06:50
+
+就问你fun不fun吧<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+

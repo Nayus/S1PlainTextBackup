@@ -14643,3 +14643,11 @@ wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又是什麼都沒有的一天
 
+
+*****
+
+####  星天观测  
+##### 22049#       发表于 2024-8-15 19:24
+
+往好处想，至少还有个盼头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -281,3 +281,35 @@ https://weibo.com/7766209741/5066588416119119
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  shirolin  
+##### 4978#       发表于 2024-8-15 19:26
+
+翻译了大型祭典的专题页面：
+https://splatoon.com.cn/page/57
+
+<img src="https://img.saraba1st.com/forum/202408/15/192531y6f6m96faqau9aie.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (692.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 19:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  shirolin  
+##### 4979#       发表于 2024-8-15 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65894280&amp;ptid=2150634" target="_blank">DeltaStriker 发表于 2024-8-14 18:47</a>
+……给我整无语了
+
+—— 来自 鹅球 v3.0.87-alpha</blockquote>
+依然可以通过主菜单移动到大厅
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -632,3 +632,23 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 说到恋童癖，按照斧乃木的预测，家里蹲的发育期之后抚子很可能比垃圾君还高吧，怎么也不会是ltp的好球区了 ...</blockquote>
 大忍182的（
 
+
+*****
+
+####  oi99o  
+##### 686#       发表于 2024-8-15 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65903445&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-8-15 18:46</a>
+
+下集果然是美丽公主，我看有人说这集就15分钟？</blockquote>
+
+确实，算上广告，可能更短
+
+<img src="https://img.saraba1st.com/forum/202408/15/192540emmunqclzmmc2icb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 19:25 上传
+

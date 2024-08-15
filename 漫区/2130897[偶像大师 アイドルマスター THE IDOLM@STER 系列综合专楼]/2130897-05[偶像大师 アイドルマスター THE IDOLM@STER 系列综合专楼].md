@@ -1299,3 +1299,21 @@ s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶�
 
 感覺愛馬仕一直是以聲線配合度和演技來選人的，不管學還是閃，至少我覺得聲優們一開始的演技還是配得不錯的，沒有棒讀的情況
 
+
+*****
+
+####  koodooliz  
+##### 6144#       发表于 2024-8-15 14:06
+
+<img src="https://img.saraba1st.com/forum/202408/15/140552qswvws5etlwxx06z.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240815_140535.jpg</strong> (325.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 14:05 上传
+
+茶房的新歌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

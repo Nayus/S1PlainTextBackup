@@ -9450,3 +9450,13 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 三破卡面头上那个冠，幻视宝可梦太晶化了</blockquote>
 暗示冰之花<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  サイトヒメア  
+##### 14201#       发表于 2024-8-15 08:06
+
+这璧池子最好抽的是五星从者，最难抽的是五星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif">看来周年池子五星礼装出太多了
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

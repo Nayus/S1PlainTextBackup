@@ -6720,3 +6720,26 @@ kanauru大手笔
 
 我已经不想再多说了，太明显了已经
 
+
+*****
+
+####  karastar  
+##### 9455#       发表于 2024-8-14 19:36
+
+miko的GTA企划要来了吗
+
+*****
+
+####  holoan  
+##### 9456#         楼主| 发表于 2024-8-15 12:42
+
+<img src="https://img.saraba1st.com/forum/202408/15/124208mxxqrscl3spco3y1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 12:42 上传
+
+东方系弹幕游戏，据说有点难度
+

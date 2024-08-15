@@ -1341,3 +1341,13 @@ s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶�
 
 茶神来了
 
+
+*****
+
+####  Ask_10A  
+##### 6147#       发表于 2024-8-16 00:24
+
+这曲子节奏好碎，感觉一般
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -5477,3 +5477,15 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 话是这么说但是一想到99%有界2就什么也期待不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 2672#       发表于 2024-8-15 09:40
+
+ 本帖最后由 zhouaa 于 2024-8-15 09:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是因为卖人物？  按人气给戏份这种商法能写出鬼来
+
+黑月这么烂不就是因为要给曹李加戏  出场那么多编剧又没深挖塑造的本事 同样的戏码车轱辘一回又一回 和那个克洛不一回事  看着烦
+

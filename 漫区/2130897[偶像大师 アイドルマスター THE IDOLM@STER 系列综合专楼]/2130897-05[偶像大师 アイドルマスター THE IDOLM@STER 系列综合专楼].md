@@ -1317,3 +1317,19 @@ s1anisong乱战现在正在分组投票中，有流行歌手anisong，传统偶�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Anatoly  
+##### 6145#       发表于 2024-8-15 14:20
+
+<img src="https://img.saraba1st.com/forum/202408/15/142018d8yuc8zpyy620ic8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 14:20 上传
+
+这封面有点神秘的（
+

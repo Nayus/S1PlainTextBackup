@@ -5757,3 +5757,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 师姐用魔法会喊布瑠部由良由良。来自日本的布瑠之言，咒术回战也有这个。
 
+
+*****
+
+####  一步成诗  
+##### 2703#       发表于 2024-8-15 14:17
+
+看来这周又无了，老实等日本人放假回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -1756,3 +1756,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 报好友满配汇呆，自出一宝梣小黑C呆，伪不换人6加成好爽<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  SAGA0Arcueid  
+##### 46698#       发表于 2024-8-15 11:32
+
+我是受不了了，刷杀生院本地最大阻力是大腿的满宝妖兰宝具4次左右游戏奔溃一次
+
+开始决定刷之前的单材料掉落了
+

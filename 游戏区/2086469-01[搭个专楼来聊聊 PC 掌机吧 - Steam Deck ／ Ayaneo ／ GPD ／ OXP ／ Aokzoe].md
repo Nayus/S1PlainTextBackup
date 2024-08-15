@@ -110,3 +110,21 @@ RSR和AFMF对画质和帧数有增强，但对功耗都是负优化，都关了�
 
 查看全部评分
 
+
+*****
+
+####  はちたや  
+##### 1282#       发表于 2024-8-15 11:27
+
+有看到g胖在做steam os对rog的适配？
+
+*****
+
+####  bypass  
+##### 1283#         楼主| 发表于 2024-8-15 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65899137&amp;ptid=2086469" target="_blank">はちたや 发表于 2024-8-15 11:27</a>
+
+有看到g胖在做steam os对rog的适配？</blockquote>
+有，你看我 1280 楼有翻译。
+

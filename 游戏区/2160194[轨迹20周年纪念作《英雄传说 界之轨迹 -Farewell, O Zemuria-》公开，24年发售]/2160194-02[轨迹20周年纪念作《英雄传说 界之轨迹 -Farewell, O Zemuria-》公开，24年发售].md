@@ -5563,3 +5563,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">都不用说主角之间出场的定位差了，如果不是想卖角色，玲、丽霞、黑兔之类的凭什么一直出场，她们在剧情中有什么很重要定位吗？就算没活也能给你硬整点出来。剧情出了人气角色，出店头特典可以直接拉上，换一套衣服流水线周边印上，这些可全是钱。有人气没什么戏份的倒可以归咎为内部不喜欢，但是说剧情不看人气写就搞笑了
 
+
+*****
+
+####  zhouaa  
+##### 2681#       发表于 2024-8-15 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我不觉得曹李没人气  或者说法老空不看好他
+
+他这个人设就刻板印象拉满  要不是写崩了原计划大概是想打造成共和版克洛呢
+

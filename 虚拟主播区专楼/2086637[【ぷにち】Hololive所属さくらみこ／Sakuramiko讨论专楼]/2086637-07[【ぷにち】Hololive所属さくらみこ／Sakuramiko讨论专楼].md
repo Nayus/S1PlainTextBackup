@@ -6743,3 +6743,19 @@ miko的GTA企划要来了吗
 
 东方系弹幕游戏，据说有点难度
 
+
+*****
+
+####  holoan  
+##### 9457#         楼主| 发表于 2024-8-15 22:38
+
+<img src="https://img.saraba1st.com/forum/202408/15/223754g5lql0qlillpw1q6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (71.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 22:37 上传
+
+事实证明，有的人是没有记忆力的
+

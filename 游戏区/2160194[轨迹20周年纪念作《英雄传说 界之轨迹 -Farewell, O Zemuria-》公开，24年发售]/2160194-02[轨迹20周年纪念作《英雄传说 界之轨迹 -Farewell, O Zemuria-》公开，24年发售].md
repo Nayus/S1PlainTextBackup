@@ -5614,3 +5614,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 曹李戏也不算多吧，其实就是黑月没角色充门面甚至要把丽霞拉过来，这不得反复薅他吗。
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丽霞和曹形影不离了属于是，聚餐都是亚仙先到，曹丽霞一起来的，不知道的还以为是曹老婆呢，就你吗搞笑的。
 
+
+*****
+
+####  ravend233  
+##### 2687#       发表于 2024-8-15 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曹李戏确实不多，但是每次都能给人留下深刻的印象，也是很有水平
+
+毕竟设定上莉霞是曹请回共和国的，那可不就当曹的跟班了
+

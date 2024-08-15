@@ -5589,3 +5589,28 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看人气改剧本不奇怪，但是改到对大纲动刀子的还是不多
 
+
+*****
+
+####  Aeons  
+##### 2684#       发表于 2024-8-15 11:48
+
+难免想到39，黎二发售前半个月我说39戏多在你楼是被骂饭圈狗的，那么黎二后近藤承认创轨发布后根据用户反响吸收进黎二最后把他们提到了主人公一般的地位又怎么样呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">39黎二结束专门羁绊煽情要走了，界一开又回来了，这合理吗这就不合理。
+
+
+*****
+
+####  ravend233  
+##### 2685#       发表于 2024-8-15 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">39黎2建模都做好了，就不可能退场，面子不要紧
+
+*****
+
+####  Aeons  
+##### 2686#       发表于 2024-8-15 11:54
+
+曹李戏也不算多吧，其实就是黑月没角色充门面甚至要把丽霞拉过来，这不得反复薅他吗。
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">丽霞和曹形影不离了属于是，聚餐都是亚仙先到，曹丽霞一起来的，不知道的还以为是曹老婆呢，就你吗搞笑的。
+

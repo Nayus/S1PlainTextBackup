@@ -2271,3 +2271,21 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 反正配合好的话，高难度打起来还是紧张又刺激的，尤其是n10体感刷小虫子的数量变少了，难度反而更低了
 
+
+*****
+
+####  xinfengj  
+##### 5309#       发表于 2024-8-15 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65897637&amp;ptid=2170852" target="_blank">赤井稻妻 发表于 2024-8-15 08:51</a>
+
+我说的atat头上的眼睛</blockquote>
+ATAT的头弱点不只眼睛，它是4甲的头部本体外面包了5甲盒子，正面中间那条没包装甲的地方都可以4穿武器穿，头壳被飞矛打烂之后就整个可以用4穿打
+
+*****
+
+####  Aeons  
+##### 5310#       发表于 2024-8-15 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">野队遇到集束队友基本要交代几条命
+

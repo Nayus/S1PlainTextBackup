@@ -9572,3 +9572,14 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14213#       发表于 2024-8-15 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65901252&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-15 14:52</a>
+
+还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个</blockquote>
+一男一女都入队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

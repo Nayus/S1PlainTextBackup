@@ -14574,3 +14574,48 @@ ASL出演新周边
 
 说明wsd也知道鸡除了黑生都是鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过鸡怎么没立牌
 
+
+*****
+
+####  skives  
+##### 22040#       发表于 2024-8-15 16:27
+
+啊这…又要去アニサマ了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 22041#       发表于 2024-8-15 16:28
+
+立牌都是鬼图 又不想把黑色生日的立牌放出来
+
+*****
+
+####  星天观测  
+##### 22042#       发表于 2024-8-15 16:29
+
+那干脆放个风立绘的立牌大家对冲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 22043#       发表于 2024-8-15 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">別急，還有earth的鬼圖等著你呢！
+
+*****
+
+####  PDQ4  
+##### 22044#       发表于 2024-8-15 16:32
+
+wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22045#       发表于 2024-8-15 16:34
+
+希望充足吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉得快点找代购了
+

@@ -2289,3 +2289,11 @@ ATAT的头弱点不只眼睛，它是4甲的头部本体外面包了5甲盒子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">野队遇到集束队友基本要交代几条命
 
+
+*****
+
+####  赤井稻妻  
+##### 5311#       发表于 2024-8-15 15:23
+
+昨天晚上几乎每次集束炸弹出手都得有队友惨死，很恐怖
+

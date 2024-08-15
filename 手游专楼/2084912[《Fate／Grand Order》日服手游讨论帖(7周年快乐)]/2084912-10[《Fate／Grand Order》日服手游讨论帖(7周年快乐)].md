@@ -9680,3 +9680,28 @@ wada你是被隔壁的平井传染了吗
 
 互为异性比较好，不然只能搞姬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 14223#       发表于 2024-8-15 18:57
+
+这泳装都至少有3期了，之后说不定还要加一期奏3卡池
+
+
+*****
+
+####  サイトヒメア  
+##### 14224#       发表于 2024-8-15 19:02
+
+等一个FE新作双咕哒串场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  cckuku  
+##### 14225#       发表于 2024-8-15 19:03
+
+我感觉扎比不会真落地啊🤔
+

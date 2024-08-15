@@ -9722,3 +9722,19 @@ wada你是被隔壁的平井传染了吗
 
 白野：哈哈哈，对！我们怎么会握手，™的我们应该拥抱才对啊！哈哈哈哈。
 
+
+*****
+
+####  シャル  
+##### 14227#       发表于 2024-8-15 20:47
+
+特殊组队动作
+
+<img src="https://img.saraba1st.com/forum/202408/15/204733f6r5riy7jl7yirpv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AE4ADE3B-942D-46AD-BA0B-B5CFA59E5385.jpeg</strong> (47.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-15 20:47 上传
+

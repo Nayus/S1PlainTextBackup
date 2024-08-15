@@ -5547,3 +5547,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得他们是有看人气改（克洛死而复生很明显就是被人气拉起来的），但是严重不足的工期导致很多决策相当不过脑子，然后给你整出一堆匪夷所思的东西来
 
+
+*****
+
+####  benhawk  
+##### 2679#       发表于 2024-8-15 10:34
+
+库孝子怎么这么多。好好的桃花剑变成了被50米拉束缚的灵魂
+

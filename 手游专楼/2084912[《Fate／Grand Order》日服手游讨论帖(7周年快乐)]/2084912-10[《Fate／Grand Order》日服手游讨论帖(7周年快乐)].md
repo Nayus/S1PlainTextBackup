@@ -9662,3 +9662,13 @@ wada你是被隔壁的平井传染了吗
 
 奏三月癌，奏四尺子，剩下外星人，兽和盾阶，所长本解锁两个，奏五/终章解锁最后一个<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 14221#       发表于 2024-8-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65901252&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-15 14:52</a>
+还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个</blockquote>
+根据咕哒的性别遍就可以了，和咕哒统一性别或者互为异性。
+

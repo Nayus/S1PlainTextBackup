@@ -14822,3 +14822,33 @@ wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.s
 
 syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很适合逆输入
 
+
+*****
+
+####  NODY  
+##### 22067#       发表于 2024-8-15 22:22
+
+我已经脑补了不少剧情了，初华和祥子在岛上到处玩的时候捡到游客丢掉的吉他，然后初华觉得有意思就开始自学，然后和祥子的钢琴合奏
+
+还可以和高尾逃钢琴课的设定一起逆输入一下，祥子本来不喜欢钢琴课，但因为和初华合奏很快乐所以又下决心学钢琴了
+
+*****
+
+####  玖羽  
+##### 22068#       发表于 2024-8-15 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65905055&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-8-15 22:16</a>
+
+syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很适合逆输入</blockquote>
+不如说 反 过 来 ……讲这个就是为了逆输入<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+在垃圾站捡到六弦吉他，我不知道，可能会有这种事吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  光MIKAN  
+##### 22069#       发表于 2024-8-15 22:27
+
+初华和祥子还有个看星星，和ksm一样看到星之鼓动的可能性也不小
+

@@ -14867,3 +14867,18 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 真不一定逆输入吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看就好，播了再说
 
+
+*****
+
+####  前方暴雨预警  
+##### 22072#       发表于 2024-8-15 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65905108&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-15 22:23</a>
+
+不如说 反 过 来 ……讲这个就是为了逆输入
+
+在垃圾站捡到六弦吉他，我不知道，可能会有这种事吧  ...</blockquote>
+哈哈意思是已经有这个剧情了，先由真人讲出来当成是逆输入吧
+
+垃圾站捡吉他着实有点过于离谱，不过之前在隔壁猴区的确看到过有人在香格里拉找到了一把少了根弦写着日语的木吉他，类似的剧情倒是也能接受
+

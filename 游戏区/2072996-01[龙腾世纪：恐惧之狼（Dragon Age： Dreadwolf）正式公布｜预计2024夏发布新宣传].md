@@ -47,3 +47,13 @@
 
 莫姐又漂亮了
 
+
+*****
+
+####  TTAA  
+##### 500#       发表于 2024-8-16 06:43
+
+建模有种劣质3d小簧片既视感
+
+—— 来自 OPPO PJR110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

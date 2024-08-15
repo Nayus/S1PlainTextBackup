@@ -5489,3 +5489,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 黑月这么烂不就是因为要给曹李加戏  出场那么多编剧又没深挖塑造的本事 同样的戏码车轱辘一回又一回 和那个克洛不一回事  看着烦
 
+
+*****
+
+####  一步成诗  
+##### 2673#       发表于 2024-8-15 09:51
+
+曹李有什么人气啊梗玩多了当真了吗，还不如说内部有平川大辅粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

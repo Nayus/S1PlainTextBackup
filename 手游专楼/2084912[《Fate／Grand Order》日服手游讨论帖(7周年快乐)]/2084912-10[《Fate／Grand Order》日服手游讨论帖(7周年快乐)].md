@@ -9777,3 +9777,11 @@ wada你是被隔壁的平井传染了吗
 幸好還未開始升技...殺式絆13了，就看有沒人能取她上班</blockquote>
 你要找的是不是：王哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  沼蝇  
+##### 14232#       发表于 2024-8-16 06:57
+
+本来想抽一宝当锁卡玩具，结果双黄了，这下不得不补了，最后900多石4宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来公主我也是第一发就双黄的，月姬爱我
+

@@ -9468,3 +9468,18 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">一觉醒来学姐风评变强了，50连下去1学姐1猫娘2徐福，但是没有五星礼装
 
+
+*****
+
+####  久井路路  
+##### 14203#       发表于 2024-8-15 08:53
+
+糖果藤蔓也来了，这下紫罗兰累积的怨念差不多快要能毁灭世界了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 14204#       发表于 2024-8-15 08:53
+
+这次活动难近母的礼装好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

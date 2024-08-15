@@ -2248,3 +2248,16 @@ AT-ST外挂火箭灵感是来自二战三德子履带车外挂的21cm火箭弹�
 
 光能者不会到游戏死掉都出不来吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  赤井稻妻  
+##### 5307#       发表于 2024-8-15 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65891470&amp;ptid=2170852" target="_blank">xinfengj 发表于 2024-8-14 13:51</a>
+
+250血，25%耐久
+
+260伤害机炮要崩两枪是因为4穿对4甲有一半减伤，酸雨环境的话打只要一炮 ...</blockquote>
+我说的atat头上的眼睛
+

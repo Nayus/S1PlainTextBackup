@@ -9460,3 +9460,11 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14202#       发表于 2024-8-15 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">一觉醒来学姐风评变强了，50连下去1学姐1猫娘2徐福，但是没有五星礼装
+

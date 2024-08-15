@@ -5539,3 +5539,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 之前在楼里说过，讨论法老控时一定要牢记2个前提：它只有60人，它1年1作，只要有这2个前提在，什么匪夷所思的事都能想通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2678#       发表于 2024-8-15 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得他们是有看人气改（克洛死而复生很明显就是被人气拉起来的），但是严重不足的工期导致很多决策相当不过脑子，然后给你整出一堆匪夷所思的东西来
+

@@ -5843,3 +5843,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 学三国谁是蜀汉？利贝尔吗？那孔明也得是卡西乌斯才对啊</blockquote>
 我觉得卡西乌斯可能是刘备，从武将转到政治
 
+
+*****
+
+####  風卷豹  
+##### 2711#       发表于 2024-8-15 20:30
+
+曹李最多也就是个贾诩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

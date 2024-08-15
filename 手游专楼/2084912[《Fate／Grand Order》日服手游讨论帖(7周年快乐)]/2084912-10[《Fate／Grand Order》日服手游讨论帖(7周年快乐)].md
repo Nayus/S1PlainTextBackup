@@ -9564,3 +9564,11 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 「此外，自 8 月 28 日開始舉辦的期間限定「奏章 Ⅲ 新靈長後繼戰 Archetype･Inception」，循序關卡進行即 ...</blockquote>
 不就猜测这次的免费从者就是活动从者，大概是Extra的岸波白野
 
+
+*****
+
+####  DARKGRAY  
+##### 14212#       发表于 2024-8-15 14:52
+
+还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

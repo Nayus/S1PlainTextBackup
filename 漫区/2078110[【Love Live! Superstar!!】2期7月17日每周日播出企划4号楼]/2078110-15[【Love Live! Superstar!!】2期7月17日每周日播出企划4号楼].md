@@ -1936,3 +1936,11 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ViyViy  
+##### 20904#       发表于 2024-8-15 14:52
+
+就第二季的情况来说，衣服想要评价超过平均线也有点难啊。
+

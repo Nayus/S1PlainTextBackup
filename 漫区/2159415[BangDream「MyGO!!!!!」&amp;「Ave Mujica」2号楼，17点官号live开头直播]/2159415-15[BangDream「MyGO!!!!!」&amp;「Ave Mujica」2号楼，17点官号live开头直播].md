@@ -14934,3 +14934,12 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 （[https://www.bilibili.com/read/cv26565306/](https://www.bilibili.com/read/cv26565306/)、[https://www.lisani.jp/0000239390/2/](https://www.lisani.jp/0000239390/2/)）
 
+
+*****
+
+####  akiomn  
+##### 22075#       发表于 2024-8-15 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个角度，喵梦如果是炸了鸡团的那个，那么最快回归的也是喵梦？
+嘴上说只要流量和米，心里想的是打鼓真开心啊
+

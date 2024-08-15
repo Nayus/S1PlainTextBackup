@@ -5649,3 +5649,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 曹李的问题到真能跟格局扯上点关系，就他这个运筹帷幄了半天最后只想要个垂帘听政就足够吃瓜群众笑掉大牙了
 
+
+*****
+
+####  zhouaa  
+##### 2691#       发表于 2024-8-15 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他人设在那里  就不可能写出东西
+
+坏但本质又不能坏 不就只能搞过家家脱裤子放屁的玩意儿
+

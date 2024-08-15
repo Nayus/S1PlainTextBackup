@@ -14749,3 +14749,11 @@ wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.s
 
 一时不知道挡帘子和带头套哪个更好笑，管人团不是周末live吗？这到底要怎么开？全体挡帘子？
 
+
+*****
+
+####  星天观测  
+##### 22059#       发表于 2024-8-15 21:49
+
+鬼图就鬼图的恭喜你已经被wsd成功pua了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1955,3 +1955,17 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 现在三期薇恩单独组队分裂内战也是抄的AS钟岚珠。
 连整烂活都突出一个偷懒，可见心思根本不在ll这边，而在gbc那边了。
 
+
+*****
+
+####  csolfans  
+##### 20906#       发表于 2024-8-15 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65901545&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-8-15 15:17</a>
+主要是花田这个抄AS烂活抄得太明显了。
+一期叶月恋就是抄的AS三船栞子。
+现在三期薇恩单独组队分裂内战也是 ...</blockquote>
+亲 亲女儿就是不一样
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

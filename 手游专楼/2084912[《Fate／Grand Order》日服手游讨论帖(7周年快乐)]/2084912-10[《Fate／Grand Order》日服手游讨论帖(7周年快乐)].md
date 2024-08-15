@@ -9748,3 +9748,21 @@ wada你是被隔壁的平井传染了吗
 
 徐福寶4、另一人寶2，學姊還是寶１
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14229#       发表于 2024-8-15 23:05
+
+杀式能过50即死率银怪 徐福不行
+
+*****
+
+####  eilot  
+##### 14230#       发表于 2024-8-15 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65905413&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-8-15 23:05</a>
+
+杀式能过50即死率银怪 徐福不行</blockquote>
+幸好還未開始升技...殺式絆13了，就看有沒人能取她上班
+

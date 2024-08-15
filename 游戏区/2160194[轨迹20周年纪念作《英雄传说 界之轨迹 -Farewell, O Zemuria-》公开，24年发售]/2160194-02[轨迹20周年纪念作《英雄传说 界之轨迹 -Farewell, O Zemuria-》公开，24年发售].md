@@ -5704,3 +5704,44 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 亚里欧契也有点吕布的感觉
 
+
+*****
+
+####  tsubasa2000  
+##### 2697#       发表于 2024-8-15 13:30
+
+#falcom伤害川渝人民感情
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  无动于衷  
+##### 2698#       发表于 2024-8-15 13:32
+
+学三国谁是蜀汉？利贝尔吗？那孔明也得是卡西乌斯才对啊 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fireadol  
+##### 2699#       发表于 2024-8-15 13:32
+
+还说黑月相关不是乳化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2700#       发表于 2024-8-15 13:35
+
+这是否有些
+
+
+*****
+
+####  古畑任三郎2015  
+##### 2701#       发表于 2024-8-15 13:36
+
+这也太乳了
+
+再说曹李行为准则不是司马懿吗
+

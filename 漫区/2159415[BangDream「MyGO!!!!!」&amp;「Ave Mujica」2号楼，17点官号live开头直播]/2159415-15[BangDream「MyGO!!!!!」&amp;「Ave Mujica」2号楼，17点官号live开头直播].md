@@ -14619,3 +14619,11 @@ wsd的库存应该充足吧，这总不能炒上天吧<img src="https://static.s
 
 希望充足吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉得快点找代购了
 
+
+*****
+
+####  rikaren  
+##### 22046#       发表于 2024-8-15 17:15
+
+真的还会有库存吗
+

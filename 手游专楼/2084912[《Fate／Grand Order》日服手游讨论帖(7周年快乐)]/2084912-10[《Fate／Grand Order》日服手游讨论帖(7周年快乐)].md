@@ -9583,3 +9583,11 @@ Ciel这角色从同人版到现在的人设变化就像他奈须蘑菇最喜欢�
 还有极低可能性是像FZ爱丽那样瞒着送一个，和奏3给的不是同一个</blockquote>
 一男一女都入队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 14214#       发表于 2024-8-15 17:18
+
+这个lip是找个时间落地还是和bb缝一起啊
+

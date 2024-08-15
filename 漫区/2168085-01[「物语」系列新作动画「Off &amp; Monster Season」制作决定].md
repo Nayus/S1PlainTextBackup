@@ -667,3 +667,19 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 今はもうどこにもない国にいた、とてもとても美しい娘の話。
 <img src="https://p.sda1.dev/19/6b432b4d8dc7b2746af0ec02b9025d8f/20240815_214516.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  moras2694  
+##### 688#       发表于 2024-8-16 00:45
+
+没事，已经开始从头再回看一遍物语了，15分钟就15分钟吧<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tiro_finale  
+##### 689#       发表于 2024-8-16 00:52
+
+这季真的好奇怪啊，一会跳过一会15分钟的，这谁构思的企划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -16,3 +16,14 @@
 究极悲报：老任将在9月26日复刻织梦岛和风之杖的Amiibo，这说明本作很可能没有新Amiibo了 ...</blockquote>
 复刻旧amiibo不就更加能证明新amiibo快来了
 
+
+*****
+
+####  牛奶笛  
+##### 445#       发表于 2024-8-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65899533&amp;ptid=2188108" target="_blank">雾时 发表于 2024-8-15 12:03</a>
+
+复刻旧amiibo不就更加能证明新amiibo快来了</blockquote>
+我的理解是没有新的，所以复刻旧的
+

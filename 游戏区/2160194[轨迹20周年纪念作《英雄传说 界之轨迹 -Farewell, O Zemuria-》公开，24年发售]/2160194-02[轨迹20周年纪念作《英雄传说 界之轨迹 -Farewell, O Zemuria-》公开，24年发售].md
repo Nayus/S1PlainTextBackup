@@ -5832,3 +5832,14 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 再说曹李行为准则不是司马懿吗</blockquote>
 曹李？曹魏！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nintenxu  
+##### 2710#       发表于 2024-8-15 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65900484&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-14 21:32</a>
+
+学三国谁是蜀汉？利贝尔吗？那孔明也得是卡西乌斯才对啊</blockquote>
+我觉得卡西乌斯可能是刘备，从武将转到政治
+

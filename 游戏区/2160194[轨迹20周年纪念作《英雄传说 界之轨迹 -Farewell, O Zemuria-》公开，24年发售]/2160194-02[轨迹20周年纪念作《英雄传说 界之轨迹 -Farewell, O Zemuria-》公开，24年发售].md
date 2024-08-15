@@ -5469,3 +5469,11 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 目前界宣发的内容不仅没活而且松弛有度，我觉得合理但同时也很诧异，这准备怎么讲？只能看竹入表演了。我要求也不高，一句话也好，给有提过的各个东西都好好做个解释收个尾就可以了，把黎三改成界，至少要做到黎三的本分对吧。
 
+
+*****
+
+####  一步成诗  
+##### 2671#       发表于 2024-8-15 09:06
+
+话是这么说但是一想到99%有界2就什么也期待不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

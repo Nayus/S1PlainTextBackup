@@ -9766,3 +9766,14 @@ wada你是被隔壁的平井传染了吗
 杀式能过50即死率银怪 徐福不行</blockquote>
 幸好還未開始升技...殺式絆13了，就看有沒人能取她上班
 
+
+*****
+
+####  DARKGRAY  
+##### 14231#       发表于 2024-8-15 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65905435&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-15 23:08</a>
+
+幸好還未開始升技...殺式絆13了，就看有沒人能取她上班</blockquote>
+你要找的是不是：王哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

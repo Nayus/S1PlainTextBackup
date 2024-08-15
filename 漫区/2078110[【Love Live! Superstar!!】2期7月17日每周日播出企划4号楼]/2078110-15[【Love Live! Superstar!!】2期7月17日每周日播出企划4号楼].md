@@ -1882,3 +1882,15 @@ bl剧的女人，确实不太需要的。又不是假面骑士（
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  ads147147  
+##### 20898#       发表于 2024-8-15 10:13
+
+我觉得漏油还是要认清花田已经毁了并且会继续毁了星团动画，同时接受骂花田人家也有导演盾，制作人盾，代便盾，声优盾这样事实而不是骗自己花田参与不会多，星3会好起来。
+
+难道pv里大香不回Liella的噱头都没让你有烂活雷达预警么。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

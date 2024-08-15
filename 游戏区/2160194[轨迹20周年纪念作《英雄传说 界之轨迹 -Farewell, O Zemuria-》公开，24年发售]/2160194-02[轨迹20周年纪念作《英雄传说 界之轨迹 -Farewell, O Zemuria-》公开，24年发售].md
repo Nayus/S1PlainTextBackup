@@ -5529,3 +5529,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 闪轨就是这样烂掉的
 
+
+*****
+
+####  diectt  
+##### 2677#       发表于 2024-8-15 10:16
+
+我觉着是大家想多了，哪有什么按人气写，纯粹是因为有现成的人设和背景好用偷懒就直接用了
+
+之前在楼里说过，讨论法老控时一定要牢记2个前提：它只有60人，它1年1作，只要有这2个前提在，什么匪夷所思的事都能想通<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

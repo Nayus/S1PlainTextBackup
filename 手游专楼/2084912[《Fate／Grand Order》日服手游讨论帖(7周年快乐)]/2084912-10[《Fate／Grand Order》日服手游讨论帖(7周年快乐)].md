@@ -9923,3 +9923,48 @@ wada你是被隔壁的平井传染了吗
 卡池都还没开豹个妹妹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预 豹!
 
+
+*****
+
+####  khxooo  
+##### 14247#       发表于 2024-8-16 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913201&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-16 18:43</a>
+
+卡池都还没开豹个妹妹</blockquote>
+提前欧羡慕就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 14248#       发表于 2024-8-16 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新现在就是后悔 不应该把剩的下石头allin老福的 （虽然周年从者就缺个老福
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">当然最关键的还是。。。。。。没出啊
+
+*****
+
+####  サイトヒメア  
+##### 14249#       发表于 2024-8-16 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913408&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-16 19:04</a>
+萌新现在就是后悔 不应该把剩的下石头allin老福的 （虽然周年从者就缺个老福
+
+当然最关键的还是。。。。。。 ...</blockquote>
+你这种石头数三进制的人居然还会后悔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  alucardcz  
+##### 14250#       发表于 2024-8-16 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913427&amp;ptid=2084912" target="_blank">サイトヒメア 发表于 2024-8-16 19:05</a>
+
+你这种石头数三进制的人居然还会后悔
+
+—— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尬黑了 抽完学姐还剩120呢
+

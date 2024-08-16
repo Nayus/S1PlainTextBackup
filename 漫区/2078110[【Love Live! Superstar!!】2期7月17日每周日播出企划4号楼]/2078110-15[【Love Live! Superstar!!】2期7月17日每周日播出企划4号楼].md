@@ -2035,3 +2035,14 @@ vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你
 我 ...</blockquote>
 反正最后都是要落在和解双冠，退队流，分裂流都是烂活。
 
+
+*****
+
+####  csolfans  
+##### 20911#       发表于 2024-8-16 16:36
+
+<img src="https://p.sda1.dev/19/82a130fa2dae0ae29e1fafbbf8c9088d/CMP_20240816163607485.jpg" referrerpolicy="no-referrer">
+北京ido
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

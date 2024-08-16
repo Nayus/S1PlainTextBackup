@@ -15532,3 +15532,11 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如lofter上那篇鸡团5人同居的同人……其他四个一起给祥子涨血压
 
+
+*****
+
+####  rikaren  
+##### 22130#       发表于 2024-8-16 21:09
+
+“海铃有着不一样的一面”，突然想看祥子一人带四个捣蛋鬼娃的二创了。
+

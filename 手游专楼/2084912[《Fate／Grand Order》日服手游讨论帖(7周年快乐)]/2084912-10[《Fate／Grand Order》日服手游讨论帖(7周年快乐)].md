@@ -9785,3 +9785,11 @@ wada你是被隔壁的平井传染了吗
 
 本来想抽一宝当锁卡玩具，结果双黄了，这下不得不补了，最后900多石4宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来公主我也是第一发就双黄的，月姬爱我
 
+
+*****
+
+####  巴裘拉  
+##### 14233#       发表于 2024-8-16 10:06
+
+没有水BB啊，玩不了锁卡暴击队<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

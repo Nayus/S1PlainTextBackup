@@ -15000,3 +15000,19 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 アニサマ的周边好像有事后通贩的样子
 
+
+*****
+
+####  rikaren  
+##### 22081#       发表于 2024-8-16 16:41
+
+<img src="https://img.saraba1st.com/forum/202408/16/164123cyzvlwl6vavlw6i2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-16-16-23-48-30_76eaced432273cd65da1ec13409568ff.jpg</strong> (199.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-16 16:41 上传
+
+断章取义是这样子的。估计就是把这个漏油的言论给断章取义了
+

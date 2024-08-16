@@ -2046,3 +2046,20 @@ vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  evestart  
+##### 20912#       发表于 2024-8-16 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65910214&amp;ptid=2078110" target="_blank">蒸汽投石BuBu車 发表于 2024-8-16 13:40</a>
+
+裂啦是连在一起的意思，一期想团名的时候已经说了
+
+大香老师要是脱团留学，怎么测试剩下的团员忠不忠诚
+
+我 ...</blockquote>
+在最后明显会拿双冠的情况下，前面搞这些不但没办法制造悬念，反而给人闹麻了的感觉。
+
+到不至于现在就给星3判死刑，但抱有多余的期待，很多时候是对自己的伤害
+

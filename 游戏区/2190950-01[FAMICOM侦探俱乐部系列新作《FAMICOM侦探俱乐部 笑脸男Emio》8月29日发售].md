@@ -2260,3 +2260,11 @@ Re还有异色代码，新作有最佳拍档。任从不缺文字冒险</blockqu
 
 顺路开坑了 nds犬神家一族，没出色的画面配音音乐，玩得有点犯困。
 
+
+*****
+
+####  漫漫来  
+##### 221#       发表于 2024-8-16 16:39
+
+前作到处都买不到卡带啊，数字版也不打折，怎么补<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

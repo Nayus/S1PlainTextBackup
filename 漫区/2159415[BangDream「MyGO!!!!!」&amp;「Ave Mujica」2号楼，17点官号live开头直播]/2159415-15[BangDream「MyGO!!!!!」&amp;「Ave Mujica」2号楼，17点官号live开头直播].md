@@ -16165,3 +16165,31 @@ ppp核心当然不是彩彩啊</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  Aendst  
+##### 22189#       发表于 2024-8-17 02:19
+
+mygo需要队内冲突，由爽世提供，最明显的矛盾冲突在于：其他人要成立mygo但爽世要复活crychic
+
+虽然立希在姨姥那里时常隐身，但是她确实是参与到队内要不要复活crychic这个矛盾里了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+爱音其实也是，复活crychic和她是有关系的，可以说crychic在剧情上对mygo来说是很重要的一环
+
+所以同样作为关键一环的起爆点，爽世的线路上会有大量crychic相关的内容，也会和上帝视角里导致crychic解散的祥子和睦有直接冲突
+
+猫可以隐身不直接参与，反正就这么一个角色完全游离于主线之外也没什么
+
+mujica不一样，之前我也说过，睦和祥子在crychic成员之前首先是幼驯染，已经有其他优先级更高的关系，这种关系也更方便做两个角色之间的矛盾
+
+初华海铃喵梦跟crychic没太大关系，参与不进来，况且祥子也没想着复活crychic，所以mujica队内的冲突很难跟crychic有特别大的关联
+
+祥子也不需要与想要复活crychic（有矛盾）现在不想复活了mygo也挺好（行为上已经不会再有矛盾）的爽世继续接触
+
+而且现在爽世已经被爱音和mygo改变，让她再回到crychic的事情上，要延续创作她的初衷让她继续纠结拘泥吗
+
+角色塑造上人物弧光已经变化的情况下，再单纯为了剧情设置变回去就太工具人了
+
+当然还有一种可能是爽世看到mujica自己又崩了……那就有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可能会有更多梗诞生
+

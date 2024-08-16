@@ -14975,3 +14975,28 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我靠 爱素卖好大啊 这个大阪后续语音 soyo已经逃不出阿农的手掌心了
 
+
+*****
+
+####  akiomn  
+##### 22079#       发表于 2024-8-16 16:18
+
+ 本帖最后由 akiomn 于 2024-8-16 16:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点幽默
+
+你觉得你是专楼吗？
+
+我觉得我是（起码是偏向鸡的）
+
+隔壁昨天吵了一晚上，有人想把鸡团全垫给灯祥，接着吵起来了。今天看到个回复难蚌了，还觉得专楼偏向鸡。
+
+要不是wsd幽默运营已经彻底堵不住嘴了，我不好说会不会偏向鸡
+
+*****
+
+####  skives  
+##### 22080#       发表于 2024-8-16 16:21
+
+アニサマ的周边好像有事后通贩的样子
+

@@ -2020,3 +2020,18 @@ vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你
 团员：entaro ShibuyaCanon！（退团）
 最近的偶像流行退团流，花田老贼要不整个烂活？
 
+
+*****
+
+####  ads147147  
+##### 20910#       发表于 2024-8-16 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65910214&amp;ptid=2078110" target="_blank">蒸汽投石BuBu車 发表于 2024-8-16 13:40</a>
+
+裂啦是连在一起的意思，一期想团名的时候已经说了
+
+大香老师要是脱团留学，怎么测试剩下的团员忠不忠诚
+
+我 ...</blockquote>
+反正最后都是要落在和解双冠，退队流，分裂流都是烂活。
+

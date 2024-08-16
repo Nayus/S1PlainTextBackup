@@ -336,3 +336,13 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  Aureliano  
+##### 4404#       发表于 2024-8-17 00:22
+
+线下能和faze打的这么焦灼而且还是打的nuke。好猛的葡萄牙人
+
+— from Xiaomi 2203121C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

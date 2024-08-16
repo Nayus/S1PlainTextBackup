@@ -15929,3 +15929,45 @@ ppp核心当然不是彩彩啊<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我印象里邦系列的家长没有真的不做人的吧？睦家长应该不会有什么问题，最多和睦一样也是剑姬而已
 不如关心下祥和睦到底是什么姐妹半身关系
 
+
+*****
+
+####  光MIKAN  
+##### 22169#       发表于 2024-8-17 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65917055&amp;ptid=2159415" target="_blank">ddy2811 发表于 2024-8-16 23:54</a>
+
+ppp核心当然不是彩彩啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被气的打多了一个p，为什么我在邦推的主唱都是被迫害役，初华小姐能给力点吗
+
+*****
+
+####  玖羽  
+##### 22170#       发表于 2024-8-17 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65917285&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-8-17 00:11</a>
+
+虽然主流假药是睦爹妈不做人，但是我更喜欢看睦爹妈其实很关心睦
+
+现在推回去看，其实根本没有直接证据说明 ...</blockquote>
+把那么小的孩子推到公共场合变成名人本身就是问题，灯说过电视上的睦父很可怕
+
+
+*****
+
+####  PDQ4  
+##### 22171#       发表于 2024-8-17 00:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">鸡这个风格已经很不邦了，明年整出什么活我都不意外
+
+半身盘烂了，亲如恋人、命运双子、许诺终生，只能等明年再给线索
+
+现在只能锤设定上的不可分离<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22172#       发表于 2024-8-17 00:23
+
+把父母写成反派最大的问题是容易出现手游之后的主线都围绕大战恶人父母的情况出现，此事在pjsk亦有记载<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

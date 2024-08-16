@@ -1841,3 +1841,11 @@ img_2153.png
 
 <img src="https://img.saraba1st.com/forum/202408/16/225108u6mcazheevmaasmd.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MuramasaSP  
+##### 46706#       发表于 2024-8-17 00:21
+
+这游戏之前有过威力这么大的三连池子吗？一不小心就把手上石头抽光了。
+

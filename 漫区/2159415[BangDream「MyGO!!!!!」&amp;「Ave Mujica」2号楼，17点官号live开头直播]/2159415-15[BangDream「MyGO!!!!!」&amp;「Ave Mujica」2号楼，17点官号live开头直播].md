@@ -16223,3 +16223,26 @@ mujica不一样，之前我也说过，睦和祥子在crychic成员之前首先�
 
 祥子是mujica的核心，是P也是实质队长，mujica也是她一手拉起来的，甚至是做好觉悟后拉起来的
 
+
+*****
+
+####  御幸一也  
+##### 22192#       发表于 2024-8-17 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65918154&amp;ptid=2159415" target="_blank">oldgoat 发表于 2024-8-17 01:47</a>
+
+但soyo就此下线的话有个毛病，就是这样真的会彻底把原C团的纠结跟祥的神秘行动给掩埋掉了，或者最多是在鸡 ...</blockquote>
+爽世那些爛梗，到底誰在喜歡，浪費就浪費了難道挖出來手廚還能拍手叫好？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22193#       发表于 2024-8-17 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65918294&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-17 02:19</a>
+
+mygo需要队内冲突，由爽世提供，最明显的矛盾冲突在于：其他人要成立mygo但爽世要复活crychic
+
+虽然立希在姨 ...</blockquote>
+C團只適合當背景板 希望遺老們早日認清事實<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

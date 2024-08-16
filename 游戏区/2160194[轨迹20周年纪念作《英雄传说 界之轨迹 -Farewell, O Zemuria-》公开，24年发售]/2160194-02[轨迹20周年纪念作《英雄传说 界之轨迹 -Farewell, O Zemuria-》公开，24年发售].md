@@ -5869,3 +5869,27 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 突然想到我还真不该批评39本作出场，听黑黎恩说话的人里面，罗爷二少39拉碧丝，前俩讲完大话界轨不出场，这不只能后面几位扛大梁了吗
 
+
+*****
+
+####  一步成诗  
+##### 2714#       发表于 2024-8-16 11:42
+
+我现在就想看一个准确情报到底分不分线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2715#       发表于 2024-8-16 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前的摆拍来看怎么都是分线吧，就是看怎么分
+
+*****
+
+####  一步成诗  
+##### 2716#       发表于 2024-8-16 11:46
+
+看起来是看起来，虽然大家心里都有数了但是官方不说出来也不敢百分百确定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且目前情报看来三条线没有合流那真是分得彻底
+

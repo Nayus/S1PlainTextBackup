@@ -3777,7 +3777,7 @@
     "lastedit": 1723795320,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -4767,7 +4767,7 @@
     "lastedit": 1723846500,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2119338": {
     "totalreply": 945,
@@ -7407,10 +7407,10 @@
     "update": false
   },
   "2170764": {
-    "totalreply": 15454,
+    "totalreply": 15455,
     "title": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
     "newtitle": "[社交卡游 米家游戏幽夜讨论集MK-2，不喜剧透勿进]",
-    "lastedit": 1723839131,
+    "lastedit": 1723849090,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8667,10 +8667,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 59806,
+    "totalreply": 59807,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1723846214,
+    "lastedit": 1723848851,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10328,15 +10328,6 @@
     "newtitle": "[冲方丁「再见，地球」动画化 2024年7月]",
     "lastedit": 1723395010,
     "category": "漫区",
-    "active": false,
-    "update": false
-  },
-  "2193565": {
-    "totalreply": 91,
-    "title": "[终于熬成行业专家了]",
-    "newtitle": "[终于熬成行业专家了]",
-    "lastedit": 1722639370,
-    "category": "外野",
     "active": false,
     "update": false
   },
@@ -14049,10 +14040,10 @@
     "update": false
   },
   "2194719": {
-    "totalreply": 250,
+    "totalreply": 251,
     "title": "[黑神话媒体评分痛投]",
     "newtitle": "[黑神话媒体评分痛投]",
-    "lastedit": 1723847777,
+    "lastedit": 1723848972,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16425,19 +16416,19 @@
     "update": false
   },
   "2195377": {
-    "totalreply": 305,
+    "totalreply": 310,
     "title": "[黑神话悟空首开30家84，ign8，gs8]",
     "newtitle": "[黑神话悟空首开30家84，ign8，gs8／54家82分]",
-    "lastedit": 1723847412,
+    "lastedit": 1723848730,
     "category": "游戏区",
     "active": true,
     "update": false
   },
   "2195369": {
-    "totalreply": 67,
+    "totalreply": 69,
     "title": "[高寒卖咖啡翻车了]",
     "newtitle": "[高寒卖咖啡翻车了]",
-    "lastedit": 1723848375,
+    "lastedit": 1723848972,
     "category": "外野",
     "active": true,
     "update": false

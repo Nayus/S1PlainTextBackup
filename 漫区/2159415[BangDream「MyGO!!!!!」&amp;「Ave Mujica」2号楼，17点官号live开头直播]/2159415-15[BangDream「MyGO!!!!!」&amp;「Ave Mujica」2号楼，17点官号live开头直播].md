@@ -15235,3 +15235,13 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 典中典ave mujica反派<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22104#       发表于 2024-8-16 19:55
+
+ 本帖最后由 rikaren 于 2024-8-16 19:57 编辑 
+
+拐下话题，二创同人私设祥喜欢歌德的作品，睦喜欢席勒好像挺不错的，两人的洋装总是给我一种德式的感觉，刚好歌德和席勒关系还很好。
+

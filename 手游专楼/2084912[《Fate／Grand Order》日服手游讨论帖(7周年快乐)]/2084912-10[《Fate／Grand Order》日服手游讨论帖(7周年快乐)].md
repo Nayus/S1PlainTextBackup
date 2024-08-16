@@ -10004,3 +10004,11 @@ wada你是被隔壁的平井传染了吗
 
 反正我决觉得一定会出现5身合1的超级BB让玩家轮。这么想，不就是原版属性过剩的樱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14255#       发表于 2024-8-17 00:13
+
+抽满了发现没杯子了 叶狗之前说的补发杯子什么时候来
+

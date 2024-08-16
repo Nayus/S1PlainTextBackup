@@ -15887,3 +15887,45 @@ APEX？</blockquote>
 隔壁都能说ppp核心不是彩彩了还能说什么</blockquote>
 ppp核心当然不是彩彩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22165#       发表于 2024-8-17 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">go在mujica里当个重要配角差不多得了，倒霉点的话，也许还有角色得到海玲和喵梦在mygo里的待遇（出场时间有十分钟吗？）
+
+*****
+
+####  PDQ4  
+##### 22166#       发表于 2024-8-17 00:11
+
+虽然主流假药是睦爹妈不做人，但是我更喜欢看睦爹妈其实很关心睦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在推回去看，其实根本没有直接证据说明睦家有问题
+
+课外班没有说是强制的，音乐有自主性，言辞没有那么讲究
+
+以及最重要的2nd，睦提到自己的问题是被外界肆意评判，以及自己像缺乏和他人一样的感受，非常的内因
+
+而不是说没有自由被人操纵意义上的“人偶”
+
+从这个角度讲，睦爹妈是默默注视孩子成长的存在也完全说得过去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22167#       发表于 2024-8-17 00:15
+
+最倒霉的不是可能有人要背黑锅吗，我还是觉得打打边角辅助就行，真要深入参与必定要有人激化矛盾
+
+还是说默认肯定都是祥子的错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 22168#       发表于 2024-8-17 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我印象里邦系列的家长没有真的不做人的吧？睦家长应该不会有什么问题，最多和睦一样也是剑姬而已
+不如关心下祥和睦到底是什么姐妹半身关系
+

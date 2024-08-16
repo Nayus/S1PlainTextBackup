@@ -703,3 +703,17 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 因为这集是只有几页的番外不是两本书的正式内容吧 不算进总集数的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sliurus  
+##### 692#       发表于 2024-8-16 10:51
+
+ 本帖最后由 Sliurus 于 2024-8-16 10:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65906306&amp;ptid=2168085" target="_blank">downnote 发表于 2024-8-16 01:28</a>
+
+只做15分钟分明是一件好事，说明STAFF为了保持节奏，不打算为了凑满一整集的时长加料拖戏。最后做成精致完 ...</blockquote>
+上半段虽然慢，但是断章的地方都还算比较讲究，就是今抚子和乖抚子的自白短了点
+
+物语系列删减一直都有吧。重蟹我看动画的时候就感觉荡漾的过去表述得有点奇怪，看了下小说才发现垃圾君去荡漾家的时候就已经说过母亲迷信邪教的事，所以后面垃圾君又重复了一遍梳理剧情。还有荡漾希望母亲能放弃邪教才参加田径部（所以家里有钉鞋）这个信息，删掉就成了单纯母亲因为女儿身体不好加入邪教，少了母女之间期待的错位
+

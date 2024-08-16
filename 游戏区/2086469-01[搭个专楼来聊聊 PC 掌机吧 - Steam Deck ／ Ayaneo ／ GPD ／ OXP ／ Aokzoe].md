@@ -128,3 +128,21 @@ RSR和AFMF对画质和帧数有增强，但对功耗都是负优化，都关了�
 有看到g胖在做steam os对rog的适配？</blockquote>
 有，你看我 1280 楼有翻译。
 
+
+*****
+
+####  bypass  
+##### 1284#         楼主| 发表于 2024-8-16 08:16
+
+Steam Deck OLED 的 Windows 驱动更新。
+
+<img src="https://imgur.ihainan.me/HnG1Pd3.png" referrerpolicy="no-referrer">
+
+[https://help.steampowered.com/en/faqs/view/6121-ECCD-D643-BAA8](https://help.steampowered.com/en/faqs/view/6121-ECCD-D643-BAA8)
+
+并不完善现在：
+
+Note: Bluetooth audio is currently output only, microphone functionality still being worked on.
+
+Note: Audio currently only works via headphones or Bluetooth audio. Speaker drivers are still being worked on.
+

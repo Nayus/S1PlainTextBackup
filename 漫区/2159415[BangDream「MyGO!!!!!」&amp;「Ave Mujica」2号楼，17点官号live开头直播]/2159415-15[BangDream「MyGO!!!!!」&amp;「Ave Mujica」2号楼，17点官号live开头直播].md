@@ -15351,3 +15351,71 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，隔壁哈人，盒武器都来了？
 
+
+*****
+
+####  星天观测  
+##### 22115#       发表于 2024-8-16 20:40
+
+祥子目前来看最需要解决的就是“能相信的只有自己”，鸡动画结尾时应该会转换成“可以相信的还有大家”这个状态，大家至少包含了鸡的四位成员，所以性格以及立场各有千秋的鸡成员和祥子的互相影响和帮助怎么写我是很好奇的
+
+那些等着看祥子被打脸然后狠狠破防的，不如去看某日剧呗，倍返し不就是他们最爱看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22116#       发表于 2024-8-16 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914211&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-16 20:32</a>
+
+有些cp在最美好的时候死掉本来就是一件好事
+
+强行追求破镜重圆什么的就像把棺材里下葬好的尸体挖出来一样 
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有些姨姥真心认为白祥没死，现在的祥子就是纯装
+
+人家就好这口怎么办呢，只能说现在转战纯种高尾gachi还有救吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 22117#       发表于 2024-8-16 20:45
+
+很明显现在的祥子和当初那个过于天真的小女孩相比才是成长了呢，矫枉过正的部分被身边的人用爱灌溉之后肯定也会有所改善的
+
+*****
+
+####  玖羽  
+##### 22118#       发表于 2024-8-16 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914292&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-8-16 20:40</a>
+
+有些姨姥真心认为白祥没死，现在的祥子就是纯装</blockquote>
+塑造成功的人物从来都不是黑白分明的，所谓黑白都是同一个人在不同环境下的不同反应
+
+我认为：
+
+祥子肯定会坏掉一次(睦已经说过了)；
+
+解决祥子的问题是Ave Mujica的高潮；
+
+(假药)解决方式可能是四拖一
+
+*****
+
+####  PDQ4  
+##### 22119#       发表于 2024-8-16 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914289&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-16 20:40</a>
+
+祥子目前来看最需要解决的就是“能相信的只有自己”，鸡动画结尾时应该会转换成“可以相信的还有大家”这个 ...</blockquote>
+信任之间的写法也不一样
+
+是在某件事情上可以互相托底，一丘之貉共犯之间的信任
+
+还是融入对方生活，亲密如家人一般的信任
+
+两种我都爱看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

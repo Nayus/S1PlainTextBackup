@@ -15052,3 +15052,15 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 现在觉得梦团1st结束之后马上游戏实装打破一下鸡狗姐妹团说法也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22086#       发表于 2024-8-16 17:51
+
+ 本帖最后由 akiomn 于 2024-8-16 17:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大战之前屁股摆的明明白白，c团和解只是表面之词，实际屁股是朝着灯祥的。难怪会认为初祥睦祥甚至鸡团全员都救不了祥子，得以前c团成员一起下场才行，说那么多不就是为了灯祥吗？
+
+昨晚隔壁那人的话要是放在泥楼，又是一场腥风血雨了，作为鸡团粉看完血压很难不高
+

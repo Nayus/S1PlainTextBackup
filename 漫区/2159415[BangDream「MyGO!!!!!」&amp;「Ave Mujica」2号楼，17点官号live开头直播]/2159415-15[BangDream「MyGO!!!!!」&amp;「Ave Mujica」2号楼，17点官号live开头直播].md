@@ -16246,3 +16246,14 @@ mygo需要队内冲突，由爽世提供，最明显的矛盾冲突在于：其�
 虽然立希在姨 ...</blockquote>
 C團只適合當背景板 希望遺老們早日認清事實<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  66367749  
+##### 22194#       发表于 2024-8-17 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914509&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-16 21:05</a>
+慈悲的姨姥（以及部分狗u）会允许富婆接济祥子（顺便塞点祥子去富婆家里当女仆之类的剧情）的啦，这不就按 ...</blockquote>
+所以说脱产学生🧠是否清醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+让soyo或者别的人拿母亲赚的钱替前同学还家里的债务和包养，别说日本人了，这种剧情是人能想得出来的吗？想看圣xx拯救一切的大x传，又或者是脑内认定祥子是狗团的敌人要狠狠羞辱踩到地底，以至于喜欢的角色和剧情崩坏都无所谓吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

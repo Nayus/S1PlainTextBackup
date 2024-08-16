@@ -15632,3 +15632,76 @@ syl，忘记在哪看到，有人repo说12th狗部分有个演出，出现代表
 
 好好好，累倒三个了，剩下俩要用什么理由累倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  玖羽  
+##### 22141#       发表于 2024-8-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914700&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-8-16 21:23</a>
+
+个人见解，如果说tv结束祥子是一个披着刺猬皮的状态，那么mujica篇肯定要讲怎么把刺猬皮卸下来，这一过程作 ...</blockquote>
+以下是我的理论，可以说明为什么拉回祥子不能让MyGO成员主导（但是可以提供重要帮助），而且最好是Ave Mujica成员四拖一：
+
+<strong>描写恋爱的重点，在于相互成就。相互成就的极致，是影响对方的人物弧光。</strong>
+
+就恋爱剧情而言，使对方的人物弧光发生决定性改变，一般意味着巨大的进度提升，在很多作品中是可以一锤定音的。
+
+陷阱就藏在这里：<strong>进度的提升不是线性的，并且是不可再生资源。</strong>
+
+换句话说，有可能仅仅一个事件就大幅推进进度，而一个角色能够经历的这样的事件是有限的。
+
+具体到祥子，毫无疑问，祥子坏掉之后拉回她，就是一个独一无二的、可以超大幅推进进度的事件。
+
+如果是单独一个角色做到这件事，这个角色将占有决定性的优势，Ave Mujica的情况和其他乐队不一样，如果队内产生这样的一对CP，其他三个角色将不可避免地被边缘化。
+
+如果这样的一对CP是跟另一个队的，那么Ave Mujica的其他四个角色都会被边缘化，场面会变得非常难看。
+
+但如果是其他四个角色一起拉回祥子，反而会决定性地增强Ave Mujica的凝聚力，使Ave Mujica从高度商业化的乐队彻底转变为这五个人的一辈子乐队。怎么看都是这样比较划算。
+
+顺带一提，这也可以说明为什么爱音和爽世的CP感那么强，灯一拖四实际上是改变了四个人的人物弧光，每个人分到的影响是平均的，不会因为这件事产生以灯为中心的四对CP；
+
+但是除此之外最重要的工作，把爽世拉到现场，是爱音做的，更何况还有名场面撩头发，也就是说在改变爽世的人物弧光方面，爱音做的比其他人多一点，仅仅多这么一点，就产生了这么强的CP感。
+
+*****
+
+####  rikaren  
+##### 22142#       发表于 2024-8-16 21:52
+
+草，什么医院五黑，说起来日本那边有流行什么手机上就能玩的联机游戏吗
+
+*****
+
+####  御幸一也  
+##### 22143#       发表于 2024-8-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914509&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-16 21:05</a>
+
+慈悲的姨姥（以及部分狗u）会允许富婆接济祥子（顺便塞点祥子去富婆家里当女仆之类的剧情）的啦，这不就按 ...</blockquote>
+你還要加上一句典中典的譴責 “何必死要面子活受罪”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 22144#       发表于 2024-8-16 21:56
+
+APEX？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22145#       发表于 2024-8-16 21:57
+
+不要面子就不受罪了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+普通的学生真能背负别人的人生吗
+
+*****
+
+####  rikaren  
+##### 22146#       发表于 2024-8-16 21:58
+
+<blockquote>御幸一也 发表于 2024-8-16 21:54
+你還要加上一句典中典的譴責 “何必死要面子活受罪”</blockquote>
+如果剧情真写祥子接受保养现在车的就是怎么有脸白吃白喝了吧，蚌
+

@@ -15616,3 +15616,19 @@ c团想化解矛盾祥子正常化是大前提，让其他人提前介入上面�
 
 syl，忘记在哪看到，有人repo说12th狗部分有个演出，出现代表灯和祥的两条线，两条线短暂相交后变成平行线，期间祥的线有一节突然变乱，但最终自己恢复平稳，两条线始终没有再相交过，我在b站没搜到12th的本篇，有楼友看过吗，真的存在这个演出？
 
+
+*****
+
+####  akiomn  
+##### 22139#       发表于 2024-8-16 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如来个喵梦累倒
+喵梦：黑心乐团偶遇无良键盘手，鼓谱bpm强如怪物，拼尽全力无法战胜
+
+*****
+
+####  星天观测  
+##### 22140#       发表于 2024-8-16 21:43
+
+好好好，累倒三个了，剩下俩要用什么理由累倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

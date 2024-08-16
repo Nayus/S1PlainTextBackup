@@ -15792,3 +15792,23 @@ APEX？</blockquote>
 隔壁坛聊啥最后都一转车丰川小姐，可能人家只想要go团主唱拯救，其他阿猫阿狗是顺带的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幼驯染是不熟的，队友是帮不了的，初华是走不进丰川小姐心里的，唯有……
 
+
+*****
+
+####  星天观测  
+##### 22155#       发表于 2024-8-16 22:18
+
+要看鸡5人打游戏的话去找萝一起玩nfo啊，我现在就要看到皇家骑士三角初华<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22156#       发表于 2024-8-16 22:23
+
+<blockquote>相坂君 发表于 2024-8-16 22:10
+看到楼数暴增，我还以为出Earith的鬼图mv了，怎么是在讨论隔壁坛
+
+隔壁坛聊啥最后都一转车丰川小姐，可能人 ...</blockquote>
+隔壁直接截漏油言论断章取义来造谣了，就这还能有神人附和，非常的难绷。
+

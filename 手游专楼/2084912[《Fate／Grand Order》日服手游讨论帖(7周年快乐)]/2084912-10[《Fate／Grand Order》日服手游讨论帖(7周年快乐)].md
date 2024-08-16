@@ -9844,3 +9844,20 @@ wada你是被隔壁的平井传染了吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">徐福能打白纸钱本关底硬币怪吗 能的话杀式就可以下班了
 
+
+*****
+
+####  刹海之绊  
+##### 14239#       发表于 2024-8-16 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为了抽徐福，只剩40抽了，学姐也没出，感觉bb无望了……
+
+*****
+
+####  angelooo  
+##### 14240#       发表于 2024-8-16 17:20
+
+新水b是蓝卡光炮
+
+这游戏把绿卡删了得了
+

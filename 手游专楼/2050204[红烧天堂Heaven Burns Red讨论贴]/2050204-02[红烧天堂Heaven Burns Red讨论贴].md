@@ -94,3 +94,11 @@ debuff是敌人行动一次结束，你开od可以行动多次。破盾手只是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">100 发一无所有，玩你妈
 
+
+*****
+
+####  lightingstar  
+##### 1624#       发表于 2024-8-16 18:36
+
+五十发试水歪了两个，等孔明到手之后看看还有没有剩下的石头再抽抽，大岛屋剧情真不错，我将来想每一个大岛姐妹都能有一个ss
+

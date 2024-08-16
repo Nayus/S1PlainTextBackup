@@ -16115,3 +16115,32 @@ ppp核心当然不是彩彩啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">soyo更没啥可能了，祥子现在巴不得离soyo越远越好，睦又被soyo剪切线了，剩下鸡团三个压根不熟
 
+
+*****
+
+####  oldgoat  
+##### 22184#       发表于 2024-8-17 01:29
+
+另外就是我觉得鸡团要真能在情节上足够站得住脚、足够成功，那最好是写得能有多现实就多现实、有多成人化就成人化。因此要是把问题都归为祥睦的家庭亲子关系上，这个不是不行，但太八点档小儿科了。比如睦的父母我觉得确实会给牵扯到这里面去，但牵扯的关系应该更加“社会化”。就是就算他们很照顾睦，睦祥之间也只是单纯的幼驯染关系，但是跟祥的变化和鸡团成立之间的关联是跟睦父母利益相关的“公事”。于是在睦看来虽然她不喜欢但也不能说是黑白分明的不赞同，这样才足够说得通。
+
+*****
+
+####  NODY  
+##### 22185#       发表于 2024-8-17 01:31
+
+倒也不用把祥子说得像是辍学玩职业乐队一样，按这个阶级不同的理论以后mujica岂不是只能和出道的萝和pp互动了，哦，还有富婆加成的hhw和蝶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 22186#       发表于 2024-8-17 01:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">爽世正常发展的话大概是认可mygo，把mygo正式作为归属，进一步敞开心扉热爱mygo的路子
+
+可以说认同mygo就是否定crychic，因为要让mygo存续就代表承认和接受crychic已经是永远的过去式
+
+自己脱离执着于过去的状态，跟crychic的解散和解，其他元crychic成员当然也是这个道理
+
+很多人都贷款mygo和avemujica和解，但我不认为这两队的成员有什么需要和解的矛盾，元crychic成员实质和解的对象应该是已解散的事实，这才是有始有终的对应
+

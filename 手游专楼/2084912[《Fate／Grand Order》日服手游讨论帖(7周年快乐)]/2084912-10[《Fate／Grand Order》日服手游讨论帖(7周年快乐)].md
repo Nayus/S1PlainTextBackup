@@ -9890,3 +9890,36 @@ wada你是被隔壁的平井传染了吗
 
 蓝卡太多了点吧
 
+
+*****
+
+####  alucardcz  
+##### 14244#       发表于 2024-8-16 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65912894&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-16 18:11</a>
+
+兽蕾已经是蓝光炮了怎么新水B还是蓝光炮啊....去年的B呆和水妖兰还有兽尼也都是蓝卡
+
+蓝卡太多了点吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">又要豹了吗!
+
+*****
+
+####  森兰丸  
+##### 14245#       发表于 2024-8-16 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913170&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-16 18:39</a>
+
+又要豹了吗!</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡池都还没开豹个妹妹
+
+*****
+
+####  alucardcz  
+##### 14246#       发表于 2024-8-16 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913201&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-16 18:43</a>
+
+卡池都还没开豹个妹妹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预 豹!
+

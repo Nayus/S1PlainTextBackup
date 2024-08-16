@@ -5998,3 +5998,26 @@ iska的词源是风、空、精灵。也是很重要的词。风-未登场的风
 
 破案了，是玩家喜欢曹李
 
+
+*****
+
+####  酷乐  
+##### 2728#       发表于 2024-8-16 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65912593&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-16 17:36</a>
+没人讨论ns黎2和欧美黎2都把绯红原罪副标题删除了。
+
+丁格成最大小丑</blockquote>
+你的反射弧有点长，看看674楼？
+
+
+*****
+
+####  卢迪克  
+##### 2729#       发表于 2024-8-16 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913143&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-16 18:36</a>
+
+你的反射弧有点长，看看674楼？</blockquote>
+忘了....
+

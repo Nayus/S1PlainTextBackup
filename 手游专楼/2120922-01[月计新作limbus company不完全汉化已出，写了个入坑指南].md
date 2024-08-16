@@ -53,3 +53,16 @@
 
 之前翻到了一篇AI英配，非常的老祖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 830#       发表于 2024-8-16 18:42
+
+狼夫预告来了
+<img src="https://p.sda1.dev/19/7b5e2630e50ad53176acd878da146a0c/image.jpg" referrerpolicy="no-referrer">
+看完最大的感想不是猜新机制或者会不会下毒，而是
+这真的是地狱篇走到一半就能放出来的东西吗？现在的演出就已经有BOSS的华丽程度了，最后几位罪人（奥、浮）的剧情得是什么样才能满足大家的期望啊？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

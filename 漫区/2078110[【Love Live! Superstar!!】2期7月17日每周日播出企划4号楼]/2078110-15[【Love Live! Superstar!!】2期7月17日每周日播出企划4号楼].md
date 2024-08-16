@@ -2101,3 +2101,14 @@ nagi北上广在一周就全通啊，工作都不好做啊
 之前还一群人说虹白开水不如花田老师有活。虹那叫没活么，拆雷给你拆麻了。好，现在花田也没活了，as抄起来 ...</blockquote>
 没事啊，一群人不是不喜欢拆雷嘛，这回不拆了，原封不动搬上来，看看这回怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  evestart  
+##### 20917#       发表于 2024-8-16 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65899104&amp;ptid=2078110" target="_blank">黒烨 发表于 2024-8-15 11:24</a>
+
+摇滚编剧不会看评论的，但是看动画的粉丝一定是最憋屈的</blockquote>
+也看作品，gbc的时候记得好像是有回复的，当然，也是因为一方面他的确喜欢gbc，动画完结的时候风评都还不错，另一方面，他这种老资历老油条，对于跑去团建他的可能早就习惯了吧，舰C，星团，现在的京吹。
+

@@ -16203,3 +16203,23 @@ mujica不一样，之前我也说过，睦和祥子在crychic成员之前首先�
 
 最大的雷其实是C团姨姥独角兽的这句话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就是祥子可能会因为mujica的人对她提起c团导致炸了，狗那边已经切了反倒不太会参与这个问题
 
+
+*****
+
+####  Aendst  
+##### 22191#       发表于 2024-8-17 02:37
+
+ 本帖最后由 Aendst 于 2024-8-17 02:41 编辑 
+
+那很难说是crychic成员间的问题而是祥子自身的问题，要讲祥子肯定会涉及crychic这是当然的，但理论上不需要爽世再进行参与
+
+祥子珍惜crychic不想退出也是事实，所以我才说元成员都一样需要和解散这件事和解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+实事求是，不可能说祥子对crychic一点想法都没有扔了就扔了
+
+毕竟无论如何都是她一手拉起来的乐队，她是实质上的队长
+
+所以mujica我也觉得应该是四拉一或者五个人互舔伤口凝聚起来自己走出临时困境
+
+祥子是mujica的核心，是P也是实质队长，mujica也是她一手拉起来的，甚至是做好觉悟后拉起来的
+

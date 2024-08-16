@@ -15743,3 +15743,52 @@ APEX？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" ref
 
 我的建议是你别退这一万步，这里人没几个有多少神人盯着你不知道么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22150#       发表于 2024-8-16 22:07
+
+<blockquote>PDQ4 发表于 2024-8-16 21:56
+APEX？</blockquote>
+我搜了一下，应该没手游，而且pc端联机也只能最多四个人
+
+*****
+
+####  相坂君  
+##### 22151#       发表于 2024-8-16 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到楼数暴增，我还以为出Earith的鬼图mv了，怎么是在讨论隔壁坛
+
+隔壁坛聊啥最后都一转车丰川小姐，可能人家只想要go团主唱拯救，其他阿猫阿狗是顺带的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幼驯染是不熟的，队友是不帮的，初华是走不进丰川小姐心里的，唯有……
+
+*****
+
+####  相坂君  
+##### 22152#       发表于 2024-8-16 22:10
+
+ 本帖最后由 相坂君 于 2024-8-16 22:13 编辑 
+
+风怒 编辑
+
+*****
+
+####  极速赛车手  
+##### 22153#       发表于 2024-8-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915110&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-16 21:51</a>
+
+以下是我的理论，可以说明为什么拉回祥子不能让MyGO成员主导（但是可以提供重要帮助），而且最好是Ave Mu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没想这么广，单纯从剧情架构来想的，作为主线内容肯定要主角鸡团来参与
+
+*****
+
+####  相坂君  
+##### 22154#       发表于 2024-8-16 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到楼数暴增，我还以为出Earith的鬼图mv了，怎么是在讨论隔壁坛
+
+隔壁坛聊啥最后都一转车丰川小姐，可能人家只想要go团主唱拯救，其他阿猫阿狗是顺带的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幼驯染是不熟的，队友是帮不了的，初华是走不进丰川小姐心里的，唯有……
+

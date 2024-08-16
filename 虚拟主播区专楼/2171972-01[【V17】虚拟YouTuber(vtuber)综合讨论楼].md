@@ -1852,3 +1852,19 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 渚能唱、说话也更有主动在养噶吃的感觉，就算是养噶主播也是酒寄上位啊，怎么给同期出道了，别是缺麦麸搭子硬凑的吧<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 600#       发表于 2024-8-16 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最协练习赛还能混进挂哥的，太有节目效果了
+
+
+*****
+
+####  winda  
+##### 600#       发表于 2024-8-16 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最协练习赛还能混进挂哥的，太有节目效果了
+

@@ -1774,3 +1774,13 @@ jk和小黑直接五宝，水妖崔最后出了个新，能不能平均点<img s
 
 烟哥，妖高，妖崔都抽到了。泳装抽卡地狱结束了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哔——  
+##### 46700#       发表于 2024-8-16 11:00
+
+水妃没抽到，结果这次90艹6加成几乎都要用到她
+
+开始攒石等妇科了
+

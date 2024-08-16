@@ -5851,3 +5851,13 @@ https://www.metacritic.com/game/ ... s-through-daybreak/</blockquote>
 
 曹李最多也就是个贾诩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2712#       发表于 2024-8-16 11:01
+
+ 本帖最后由 卢迪克 于 2024-8-16 11:04 编辑 
+
+新七柱这部出吗，不是背负沉重吗，不会就最后星辰之间开会来句之后就看那位的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

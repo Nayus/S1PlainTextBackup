@@ -15210,3 +15210,28 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 讓他們多點做夢，到時破防愛看
 
+
+*****
+
+####  PDQ4  
+##### 22102#       发表于 2024-8-16 19:29
+
+拉拉星团加四人的时候，只认5人团的姨姥可不少
+
+“狗推”倒是赶着给鸡人套狗帽子，真觉得这屁股没问题的尊重祝福好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 22103#       发表于 2024-8-16 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913591&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-8-16 19:22</a>
+
+发生什么事了
+
+看不懂，不过我来臆测，没有特指nga</blockquote>
+兄弟你太懂某些人什麼想法嚕 
+
+典中典ave mujica反派<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

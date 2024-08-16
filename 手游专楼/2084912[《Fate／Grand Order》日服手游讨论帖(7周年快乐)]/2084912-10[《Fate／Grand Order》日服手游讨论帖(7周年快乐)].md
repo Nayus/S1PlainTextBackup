@@ -9968,3 +9968,23 @@ wada你是被隔壁的平井传染了吗
 —— 来自 nubia NX769J, Android 14上的 S1Next-鹅版 v2.5.2 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尬黑了 抽完学姐还剩120呢
 
+
+*****
+
+####  森兰丸  
+##### 14251#       发表于 2024-8-16 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913344&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-8-16 18:58</a>
+
+提前欧羡慕就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别被你上面的萌新骗了....非洲人一直都非常黑....出货了只是因为抽的少
+
+像老福还有这次的1期泳池非洲人可都没抽
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14252#       发表于 2024-8-16 19:29
+
+能不能快点把水b技能出了我好allin学姐 强度瘾压抑不住了
+

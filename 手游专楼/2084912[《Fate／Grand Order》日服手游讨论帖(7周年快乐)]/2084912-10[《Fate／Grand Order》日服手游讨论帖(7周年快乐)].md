@@ -9861,3 +9861,15 @@ wada你是被隔壁的平井传染了吗
 
 这游戏把绿卡删了得了
 
+
+*****
+
+####  都谷捻柏  
+##### 14241#       发表于 2024-8-16 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65912410&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-16 17:20</a>
+新水b是蓝卡光炮
+
+这游戏把绿卡删了得了</blockquote>
+你游绿卡是填充物，用途是“数值平衡”，红卡负责超模，蓝卡负责卷。
+

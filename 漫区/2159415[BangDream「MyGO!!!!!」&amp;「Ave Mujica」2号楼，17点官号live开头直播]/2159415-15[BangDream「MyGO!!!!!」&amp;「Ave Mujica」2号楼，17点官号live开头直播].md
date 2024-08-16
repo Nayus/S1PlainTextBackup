@@ -15036,3 +15036,11 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能说啥呢，喜欢造屎自己生吞，不愧屎黄色
 
+
+*****
+
+####  星天观测  
+##### 22084#       发表于 2024-8-16 17:26
+
+以及，天天都说泥楼和那边都骂姨姥，那边真骂么，我看一群人跟姨姥共振的很愉快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

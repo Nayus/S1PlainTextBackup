@@ -9836,3 +9836,11 @@ wada你是被隔壁的平井传染了吗
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14238#       发表于 2024-8-16 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">徐福能打白纸钱本关底硬币怪吗 能的话杀式就可以下班了
+

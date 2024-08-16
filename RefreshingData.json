@@ -3777,7 +3777,7 @@
     "lastedit": 1723795320,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": true
+    "update": false
   },
   "1478318": {
     "totalreply": 1412,
@@ -4767,7 +4767,7 @@
     "lastedit": 1723837320,
     "category": "游戏区",
     "active": true,
-    "update": true
+    "update": false
   },
   "2119338": {
     "totalreply": 945,
@@ -5085,10 +5085,10 @@
     "update": false
   },
   "2059881": {
-    "totalreply": 8944,
+    "totalreply": 8945,
     "title": "[KURO新作《鸣潮》]",
     "newtitle": "[《鸣潮》将于8.15浅尝折枝]",
-    "lastedit": 1723834810,
+    "lastedit": 1723845130,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -8874,10 +8874,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 26662,
+    "totalreply": 26665,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1723844770,
+    "lastedit": 1723845490,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -16164,10 +16164,10 @@
     "update": false
   },
   "2195296": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[半个熏肉大饼，两个酱肉大包子，一大碗红油肉酱拌粉，900ml苹果美年达，一中盘拌菜]",
     "newtitle": "[半个熏肉大饼，两个酱肉大包子，一大碗红油肉酱拌粉，900ml苹果美年达，一中盘拌菜]",
-    "lastedit": 1723844650,
+    "lastedit": 1723845010,
     "category": "外野",
     "active": true,
     "update": false

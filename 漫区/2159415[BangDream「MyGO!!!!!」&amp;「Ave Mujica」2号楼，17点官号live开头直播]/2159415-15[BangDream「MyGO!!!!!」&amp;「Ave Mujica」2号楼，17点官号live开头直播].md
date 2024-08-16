@@ -15126,3 +15126,11 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 2024-8-16 18:15 上传
 
+
+*****
+
+####  66367749  
+##### 22094#       发表于 2024-8-16 18:23
+
+说直白点就是想要垫子衬托吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

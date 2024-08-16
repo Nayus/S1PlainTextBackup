@@ -2083,3 +2083,21 @@ vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  离心  
+##### 20915#       发表于 2024-8-16 18:18
+
+nagi北上广在一周就全通啊，工作都不好做啊
+
+*****
+
+####  00Q  
+##### 20916#       发表于 2024-8-16 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65794862&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-4 19:42</a>
+
+之前还一群人说虹白开水不如花田老师有活。虹那叫没活么，拆雷给你拆麻了。好，现在花田也没活了，as抄起来 ...</blockquote>
+没事啊，一群人不是不喜欢拆雷嘛，这回不拆了，原封不动搬上来，看看这回怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

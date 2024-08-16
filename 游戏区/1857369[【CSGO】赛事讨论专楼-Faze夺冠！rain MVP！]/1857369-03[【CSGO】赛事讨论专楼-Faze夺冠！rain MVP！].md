@@ -371,3 +371,23 @@ send them home!
 
 居然拒绝爆冷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saw后两张图快终结比赛时连续choke我还以为要被抬走了
 
+
+*****
+
+####  andychen  
+##### 4408#       发表于 2024-8-17 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65917884&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-8-17 01:03</a>
+
+居然拒绝爆冷了saw后两张图快终结比赛时连续choke我还以为要被抬走了</blockquote>
+小将有点尿裤了，story直接路都不会走
+
+最后还是靠30岁老大哥一锤定音
+
+*****
+
+####  曼陀罗肥  
+##### 4409#       发表于 2024-8-17 01:15
+
+甜饭和ewjerks还是吊的，看能不能创烂现在这个抽象的小蜜蜂进决赛咯
+

@@ -101,3 +101,21 @@
 
 看片和演示我真觉得是赶工作品，建议谨慎预购<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nage560  
+##### 506#       发表于 2024-8-16 14:50
+
+新预告竟然有美女，有美女，有美女，等等，这还是我认识的生软吗？
+
+
+*****
+
+####  寂长无星夜  
+##### 507#       发表于 2024-8-16 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65910869&amp;ptid=2072996" target="_blank">nage560 发表于 2024-8-16 14:50</a>
+新预告竟然有美女，有美女，有美女，等等，这还是我认识的生软吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫姨吗？颜值一代就定下来了不好改了
+

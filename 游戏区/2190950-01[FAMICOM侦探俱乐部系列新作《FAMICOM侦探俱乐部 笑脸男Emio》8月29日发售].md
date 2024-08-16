@@ -2285,3 +2285,14 @@ Re还有异色代码，新作有最佳拍档。任从不缺文字冒险</blockqu
 
 还给分三次试玩，看来流程绝不会像前两作那么短了
 
+
+*****
+
+####  h122h  
+##### 224#       发表于 2024-8-16 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65911995&amp;ptid=2190950" target="_blank">漫漫来 发表于 2024-8-16 16:39</a>
+
+前作到处都买不到卡带啊，数字版也不打折，怎么补</blockquote>
+其他版本不清楚，日版前作只有豪华版有实体卡带。普通版本只有电子版
+

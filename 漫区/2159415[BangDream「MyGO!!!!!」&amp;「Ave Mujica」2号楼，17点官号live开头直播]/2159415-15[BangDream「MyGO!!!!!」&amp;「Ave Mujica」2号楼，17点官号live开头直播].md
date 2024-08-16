@@ -16154,3 +16154,14 @@ ppp核心当然不是彩彩啊</blockquote>
 
 但soyo就此下线的话有个毛病，就是这样真的会彻底把原C团的纠结跟祥的神秘行动给掩埋掉了，或者最多是在鸡团季里给处理成了一个单纯的“历史背景”。这样也蛮浪费的，比如最直接了当的不就是浪费了soyo的那些梗么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。所以鸡团要整好确实挺难的。
 
+
+*****
+
+####  adcdqre  
+##### 22188#       发表于 2024-8-17 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65918154&amp;ptid=2159415" target="_blank">oldgoat 发表于 2024-08-17 01:47:10</a>
+。所以鸡团要整好确实挺难的。</blockquote>爽世这个角色再写下去就属于画蛇添足了。mygo成员出场大概率会选能提供新视角的角色，一个是故意不让接触的立希，一个是有梗的爱音
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -15315,3 +15315,39 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 重要的是个别角色失去的能破镜重圆吊打其他所有，让个别角色伤心的必须哭着道歉，让个别角色受挫的必须付出代价
 
+
+*****
+
+####  skives  
+##### 22111#       发表于 2024-8-16 20:29
+
+都2024年了 也应该能看出来了
+祥子的个人问题肯定是和mujica面对的外部压力一起解决的 
+她的行动力和到现在为止的剧情铺垫也注定了她不是需要别人拯救的女主角 
+毕竟接受别人的帮助和被别人拯救是两回事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22112#       发表于 2024-8-16 20:31
+
+不是，隔壁在干啥，地域歧视和盒武器都要出来了
+
+*****
+
+####  skives  
+##### 22113#       发表于 2024-8-16 20:32
+
+有些cp在最美好的时候死掉本来就是一件好事
+强行追求破镜重圆什么的就像把棺材里下葬好的尸体挖出来一样 
+得到的东西是不是当初印象里的那个 
+真的不好说<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiomn  
+##### 22114#       发表于 2024-8-16 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去，隔壁哈人，盒武器都来了？
+

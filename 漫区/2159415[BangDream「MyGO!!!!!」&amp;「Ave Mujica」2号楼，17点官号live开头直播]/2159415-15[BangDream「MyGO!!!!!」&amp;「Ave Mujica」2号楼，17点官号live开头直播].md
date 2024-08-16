@@ -15094,3 +15094,35 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祥子肯定得改变，得看怎么改变，现在心态是“能相信的只有自己”，不吃个大瘪很难把祥子修正回来
 
+
+*****
+
+####  夜游宫  
+##### 22091#       发表于 2024-8-16 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">想看mygo同人文，不要男主，不要黑深残，lofter上的几篇长文看过了，但不是很合我胃口，NGA上的几个长安科也已经追到头了。
+
+*****
+
+####  NODY  
+##### 22092#       发表于 2024-8-16 18:12
+
+没记错的话隔壁日常喜欢骂姨姥的狗厨因为整天被理中客拉架不准黑泥，所以全跑去另一个黑泥楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22093#       发表于 2024-8-16 18:15
+
+爬完隔壁了，难绷，祥子的问题要让AM团来直接就给滑坡到不准mygo的人是出场了，隔壁比泥漏要滑多了。
+
+这位go爷更是让人难绷。
+
+<img src="https://img.saraba1st.com/forum/202408/16/181504x0a0z60566pcb0cq.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1723803280889.jpg</strong> (53.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-16 18:15 上传
+

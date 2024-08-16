@@ -10012,3 +10012,16 @@ wada你是被隔壁的平井传染了吗
 
 抽满了发现没杯子了 叶狗之前说的补发杯子什么时候来
 
+
+*****
+
+####  シャル  
+##### 14256#       发表于 2024-8-17 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65911211&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-8-16 15:30</a>
+
+徐福能打白纸钱本关底硬币怪吗 能的话杀式就可以下班了</blockquote>
+没问题
+
+徐福即死稳的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

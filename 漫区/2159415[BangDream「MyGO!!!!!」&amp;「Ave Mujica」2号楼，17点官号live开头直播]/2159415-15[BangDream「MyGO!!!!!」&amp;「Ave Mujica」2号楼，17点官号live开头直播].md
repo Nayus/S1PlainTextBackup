@@ -15812,3 +15812,28 @@ APEX？</blockquote>
 隔壁坛聊啥最后都一转车丰川小姐，可能人 ...</blockquote>
 隔壁直接截漏油言论断章取义来造谣了，就这还能有神人附和，非常的难绷。
 
+
+*****
+
+####  相坂君  
+##### 22157#       发表于 2024-8-16 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915804&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-16 22:23</a>
+
+隔壁直接截漏油言论断章取义来造谣了，就这还能有神人附和，非常的难绷。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不得不说，泥楼真是备受关注
+
+*****
+
+####  daiquan333  
+##### 22158#       发表于 2024-8-16 22:36
+
+希望下一个曲绘来点美图，连续出的几个曲绘我都快忘记丰川祥子的美丽模样了
+
+*****
+
+####  NODY  
+##### 22159#       发表于 2024-8-16 22:36
+
+隔壁还是少去比较好，尤其不要说话，打架都打出ID盒武器来了，吓人得很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

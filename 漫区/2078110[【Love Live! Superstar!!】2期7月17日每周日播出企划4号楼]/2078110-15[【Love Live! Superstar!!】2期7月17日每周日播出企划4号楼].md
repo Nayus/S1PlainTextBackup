@@ -2003,3 +2003,20 @@ vn这边其实更不适合岚珠这种凤傲天的设计，还是已经输过你
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 20909#       发表于 2024-8-16 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65903010&amp;ptid=2078110" target="_blank">ads147147 发表于 2024-8-15 17:53</a>
+就算是as的栞子反对学院偶像的理由也比恋正当点，花田用了个有故事以来最烂的技能——失忆，来做恋这个角 ...</blockquote>
+裂啦是连在一起的意思，一期想团名的时候已经说了
+大香老师要是脱团留学，怎么测试剩下的团员忠不忠诚
+我看大香老师就是大主教，裂啦就是神圣的卡拉
+大香老师：我必须斩断与裂啦的链接，然后去留学！
+团员：失去了裂啦，我们还剩什么？
+大香老师：那样我们就能得到自由！
+团员：entaro ShibuyaCanon！（退团）
+最近的偶像流行退团流，花田老贼要不整个烂活？
+

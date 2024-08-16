@@ -9815,3 +9815,14 @@ wada你是被隔壁的平井传染了吗
 
 我就放了个在公共位上
 
+
+*****
+
+####  eilot  
+##### 14236#       发表于 2024-8-16 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65905505&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-15 23:18</a>
+
+你要找的是不是：王哈</blockquote>
+留了300多石等到之前的爺爺池，不過好像連4星都看不到...
+

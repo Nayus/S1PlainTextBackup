@@ -326,3 +326,13 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 这玩意儿是真有点哈人了，科隆六强里就只有小蜜蜂没用过，其余队都至少有两到三人在用<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">甚至g2老鼠saw是全队都在用
 
+
+*****
+
+####  doublehit  
+##### 4403#       发表于 2024-8-16 23:43
+
+看完这局可以宣布navi冠军了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

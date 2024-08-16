@@ -119,3 +119,14 @@
 新预告竟然有美女，有美女，有美女，等等，这还是我认识的生软吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫姨吗？颜值一代就定下来了不好改了
 
+
+*****
+
+####  nage560  
+##### 508#       发表于 2024-8-16 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65910916&amp;ptid=2072996" target="_blank">寂长无星夜 发表于 2024-8-16 14:56</a>
+
+莫姨吗？颜值一代就定下来了不好改了</blockquote>
+不是M姐，M姐我觉得反而比前作丑了点，这预告那个黑皮新角色长得不错。
+

@@ -15848,3 +15848,13 @@ APEX？</blockquote>
 不得不说，泥楼真是备受关注</blockquote>
 代表鸡推，睦推，祥推，初华推，海铃推，喵梦推发言的时候就会忽视你楼了，说实话隔壁有个睦推在关于睦的话题里也是不低概率被无视来着<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22161#       发表于 2024-8-16 23:23
+
+泥樓聚集了那麼多只關心ave的樓友，不知道有多少人視為眼中釘 
+
+“你們怎麼能對go沒興趣” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

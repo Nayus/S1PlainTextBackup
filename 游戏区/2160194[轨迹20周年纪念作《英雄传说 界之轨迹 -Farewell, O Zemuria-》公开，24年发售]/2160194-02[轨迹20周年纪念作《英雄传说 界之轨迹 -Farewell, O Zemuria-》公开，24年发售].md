@@ -5948,3 +5948,11 @@ iska的词源是风、空、精灵。也是很重要的词。风-未登场的风
 
 我直接把买了没动的黎二出了二手然后换了一个新的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  minus13  
+##### 2723#       发表于 2024-8-16 15:16
+
+看了下官网视频页面，两个cm，一个ost试听，一个op正好4个格子整整齐齐，这是不打算出最终pv了吗
+

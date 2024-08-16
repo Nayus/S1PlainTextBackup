@@ -81,3 +81,23 @@
 
 这片也太拉了
 
+
+*****
+
+####  洛亚替身  
+##### 504#       发表于 2024-8-16 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65906708&amp;ptid=2072996" target="_blank">TTAA 发表于 2024-8-16 06:43</a>
+
+建模有种劣质3d小簧片既视感
+
+—— 来自 OPPO PJR110, Android 14上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+还真是，非常欧美小黄片，甚至够不上守望先锋那种自制质量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛亚替身  
+##### 505#       发表于 2024-8-16 14:44
+
+看片和演示我真觉得是赶工作品，建议谨慎预购<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

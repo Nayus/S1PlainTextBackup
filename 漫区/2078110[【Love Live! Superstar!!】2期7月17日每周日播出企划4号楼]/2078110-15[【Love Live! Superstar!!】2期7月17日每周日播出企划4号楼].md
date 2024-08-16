@@ -2112,3 +2112,31 @@ nagi北上广在一周就全通啊，工作都不好做啊
 摇滚编剧不会看评论的，但是看动画的粉丝一定是最憋屈的</blockquote>
 也看作品，gbc的时候记得好像是有回复的，当然，也是因为一方面他的确喜欢gbc，动画完结的时候风评都还不错，另一方面，他这种老资历老油条，对于跑去团建他的可能早就习惯了吧，舰C，星团，现在的京吹。
 
+
+*****
+
+####  ads147147  
+##### 20918#       发表于 2024-8-16 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65911943&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-8-16 16:36</a>
+北京ido
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v3.0.0-alpha</blockquote>
+羡慕京爷了，刚刚出差去杭州还能摸鱼去上海，北京就没办法了。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  ads147147  
+##### 20919#       发表于 2024-8-16 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65912971&amp;ptid=2078110" target="_blank">00Q 发表于 2024-8-16 18:18</a>
+没事啊，一群人不是不喜欢拆雷嘛，这回不拆了，原封不动搬上来，看看这回怎么说 ...</blockquote>
+现在这个时代宁可烂的天翻地覆不能无聊到白开水，黑红也是红嘛。
+
+主要是注定和解加上花田那敷衍的态度，烂活噱头太重就失去了黑红的基础，人家甚至觉得你活都烂的没趣。
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

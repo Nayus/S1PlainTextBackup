@@ -15540,3 +15540,47 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 “海铃有着不一样的一面”，突然想看祥子一人带四个捣蛋鬼娃的二创了。
 
+
+*****
+
+####  -LYRE-  
+##### 22131#       发表于 2024-8-16 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914484&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-16 21:03</a>
+说到这个问题，ccc不就一个和解问题吗，祥睦两人身上问题大头和ccc的关系是？祥已经确定家里出问题需要经济 ...</blockquote>
+当然是只要灯皇唱歌一切就能迎刃而解啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22132#       发表于 2024-8-16 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914489&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-8-16 21:03</a>
+
+笑死，还能再复刻表演下，批皮新人手里握着闹钟掐着点，在生日刚开始就车祥吗？只不过第一次是素厨，第二 ...</blockquote>
+倒没考虑那些小鬼，这种人迟早会被创
+
+我觉得会炸个大的，是因为独角兽明显祥嬷+恶趣味，乐观想这一集祥子会非常惨，比如失去一切之类
+
+悲观想就是祥子自尊心到了极限，在这一集炸毛把所有队友都推开了
+
+后者那个写法必定是风评最低点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这么好的日子，不来个“黑色生日”的话，只能说制作组还是太善良了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22133#       发表于 2024-8-16 21:20
+
+想泥楼的贝多芬假药了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  极速赛车手  
+##### 22134#       发表于 2024-8-16 21:23
+
+个人见解，如果说tv结束祥子是一个披着刺猬皮的状态，那么mujica篇肯定要讲怎么把刺猬皮卸下来，这一过程作为主线肯定是团内成员来完成，就像拉回爽姐也是go团一起发力
+
+c团想化解矛盾祥子正常化是大前提，让其他人提前介入上面的过程有点喧宾夺主了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1842,3 +1842,13 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">渚这款更像会养gachi的吧
 
+
+*****
+
+####  fastary  
+##### 599#       发表于 2024-8-16 21:17
+
+也没说渚不养啊，主要是酒寄目前完全没有亮点也没有特长除了养噶好像也没别的路可以走了（直球
+
+渚能唱、说话也更有主动在养噶吃的感觉，就算是养噶主播也是酒寄上位啊，怎么给同期出道了，别是缺麦麸搭子硬凑的吧<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+

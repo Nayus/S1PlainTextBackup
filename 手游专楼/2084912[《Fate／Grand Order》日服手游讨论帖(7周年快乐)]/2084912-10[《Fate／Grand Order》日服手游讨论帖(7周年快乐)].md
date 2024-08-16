@@ -9996,3 +9996,11 @@ wada你是被隔壁的平井传染了吗
 
 别的不说，迪拜BB这模组又是黄金特效又是召唤座驾和小弟，让我不禁想起了君11<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14254#       发表于 2024-8-16 21:18
+
+反正我决觉得一定会出现5身合1的超级BB让玩家轮。这么想，不就是原版属性过剩的樱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

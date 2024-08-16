@@ -16193,3 +16193,13 @@ mujica不一样，之前我也说过，睦和祥子在crychic成员之前首先�
 
 当然还有一种可能是爽世看到mujica自己又崩了……那就有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然可能会有更多梗诞生
 
+
+*****
+
+####  NODY  
+##### 22190#       发表于 2024-8-17 02:29
+
+绫奈：看到祥子在那里哭了出来，你就可以知道她有多珍惜CRYCHIC。其实并不是真的想退出吗……等等。它也成为了Ave Mujica成立的契机。
+
+最大的雷其实是C团姨姥独角兽的这句话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就是祥子可能会因为mujica的人对她提起c团导致炸了，狗那边已经切了反倒不太会参与这个问题
+

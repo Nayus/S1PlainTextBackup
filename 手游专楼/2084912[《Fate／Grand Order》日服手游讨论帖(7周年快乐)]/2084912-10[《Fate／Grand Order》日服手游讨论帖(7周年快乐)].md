@@ -9826,3 +9826,13 @@ wada你是被隔壁的平井传染了吗
 你要找的是不是：王哈</blockquote>
 留了300多石等到之前的爺爺池，不過好像連4星都看不到...
 
+
+*****
+
+####  サイトヒメア  
+##### 14237#       发表于 2024-8-16 13:54
+
+我以前怎么不知道坛友都是要么一宝要么六宝的巨富<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

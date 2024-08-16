@@ -14951,3 +14951,19 @@ syl，我也觉得李子那个捡来的吉他的故事不管真假，的确很�
 
 回收站捡把吉他还算可以理解吧，比垃圾堆捡台Chobits靠谱
 
+
+*****
+
+####  NODY  
+##### 22077#       发表于 2024-8-16 12:49
+
+邪教黑袍又有货了
+
+<img src="https://img.saraba1st.com/forum/202408/16/124912g5ebznxz2smgbkzf.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240816124905.png</strong> (92.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-16 12:49 上传
+

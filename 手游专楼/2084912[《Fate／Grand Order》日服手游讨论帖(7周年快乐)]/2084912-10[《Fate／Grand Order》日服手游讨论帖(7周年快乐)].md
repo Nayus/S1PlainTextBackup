@@ -9801,3 +9801,17 @@ wada你是被隔壁的平井传染了吗
 
 又抽五个十连三宝了 真不抽了这下
 
+
+*****
+
+####  シャル  
+##### 14235#       发表于 2024-8-16 12:51
+
+ 本帖最后由 シャル 于 2024-8-16 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65908062&amp;ptid=2084912" target="_blank">巴裘拉 发表于 2024-8-16 10:06</a>
+
+没有水BB啊，玩不了锁卡暴击队</blockquote>
+借一个不就好了
+
+我就放了个在公共位上
+

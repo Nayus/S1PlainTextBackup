@@ -15419,3 +15419,61 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 两种我都爱看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 22120#       发表于 2024-8-16 20:52
+
+<blockquote>玖羽 发表于 2024-8-16 20:45
+塑造成功的人物从来都不是黑白分明的，所谓黑白都是同一个人在不同环境下的不同反应
+
+我认为：
+</blockquote>
+
+四拖一蝶已经演过了，一带四ccc下场也看过了，五个一丘之貉相互扶持不香吗？
+
+
+*****
+
+####  PDQ4  
+##### 22121#       发表于 2024-8-16 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65914335&amp;ptid=2159415" target="_blank">玖羽 发表于 2024-8-16 20:45</a>
+
+塑造成功的人物从来都不是黑白分明的，所谓黑白都是同一个人在不同环境下的不同反应
+
+我认为：</blockquote>
+祥子相关炸个大的也和朋友讨论过，恰好有个日子非常合适
+
+如果1月初就开播（不考虑三集连播），2.13恰好是第七集，而第二天就是祥子的生日
+
+已经做好风评低地的心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个黑白倒不是反应上的不同，我觉得难评的是，有些姨姥真心认为那个天真的祥子会回来
+
+我理解里祥子在克服困境重新学会信任朋友以后，性格会软化，但是那种不谙世事天真的自己确实是回不来了，所谓的阅历和成长不就是这么一回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -LYRE-  
+##### 22122#       发表于 2024-8-16 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913903&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-16 19:58</a>
+隔壁又开始了吗
+
+不针对谁，只说一个比较能泛用的推断逻辑（大多数情况下）
+
+极端期望A拯救B的，实质上喜欢的 ...</blockquote>
+看蒜的时候我就极端希望拯救大女主的必须得是泷奈，结果被人截胡了于是破防
+但也从不避讳作为泷奈毒唯的立场
+倒是在鸡狗这里，某些人可能觉得自己的真实成分见不得人吧，一定要披皮装成别的厨或者所谓“一般通过路人”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akiomn  
+##### 22123#       发表于 2024-8-16 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是认为祥子问题算鸡团团内问题还是C团＋鸡团问题，昨天那个灯祥党就是后面那种，觉得祥子问题光靠鸡团四人解决不掉，需要C团三人＋鸡团4人才能解决（当然他更像是为了灯祥）
+而后面这种最大问题就是把鸡团四个当成来垫子，4个团员（2青梅在内）居然解决不掉祥子的心态问题
+

@@ -15174,3 +15174,39 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 隔壁都能说ppp核心不是彩彩了还能说什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22100#       发表于 2024-8-16 19:22
+
+发生什么事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看不懂，不过我来臆测，没有特指nga<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+什么鸡团垫给灯祥，cp无非是这群人的遮羞布
+
+实际就是想看祥子吃瘪，觉得祥子那么对不起灯，需要彻底被击溃然后被“拯救”
+
+鸡团可是祥子一手拉起来的，那怎么能成功有团魂，必须孤苦伶仃，只能一败涂地
+
+其实“拯救”也不重要，无非就是需要击溃唯一指定反派大魔王罢了，拯救只是战利品奖杯说好听一点，需要保持“主角”的正确性罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+如果身为狗团推完全不在乎灯祥真卖大了，会垫自家爱灯、灯希之类cp，也不在乎会否定爽世姐十三集的祥子全肯定bot发言，脑补的是什么卖法我觉得很明显<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22101#       发表于 2024-8-16 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65911724&amp;ptid=2159415" target="_blank">akiomn 发表于 2024-8-16 16:18</a>
+
+有点幽默
+
+你觉得你是专楼吗？
+
+我觉得我是（起码是偏向鸡的）</blockquote>
+嗑這對的本就不把你ave放眼裡，很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讓他們多點做夢，到時破防愛看
+

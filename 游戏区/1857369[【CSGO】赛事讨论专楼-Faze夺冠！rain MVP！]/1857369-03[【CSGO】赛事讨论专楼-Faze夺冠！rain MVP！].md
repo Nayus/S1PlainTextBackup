@@ -346,3 +346,28 @@ snax想明白了，这两天的比赛学会奉献了<img src="https://static.sar
 
 — from Xiaomi 2203121C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  Aureliano  
+##### 4405#       发表于 2024-8-17 01:00
+
+居然真的拿下了
+
+*****
+
+####  那由  
+##### 4406#       发表于 2024-8-17 01:01
+
+send them home!
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  朔方原的星  
+##### 4407#         楼主| 发表于 2024-8-17 01:03
+
+居然拒绝爆冷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">saw后两张图快终结比赛时连续choke我还以为要被抬走了
+

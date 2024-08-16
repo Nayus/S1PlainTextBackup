@@ -22,3 +22,13 @@
 
 起码尼娅设计得比2姐有诚意多了（指技能复杂度）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sylpheed  
+##### 18084#       发表于 2024-8-17 02:13
+
+微创拿下土龙，憋住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

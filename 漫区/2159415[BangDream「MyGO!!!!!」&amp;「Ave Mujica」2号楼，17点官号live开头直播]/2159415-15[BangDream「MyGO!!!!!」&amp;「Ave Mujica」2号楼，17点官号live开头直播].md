@@ -15245,3 +15245,27 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 拐下话题，二创同人私设祥喜欢歌德的作品，睦喜欢席勒好像挺不错的，两人的洋装总是给我一种德式的感觉，刚好歌德和席勒关系还很好。
 
+
+*****
+
+####  Aendst  
+##### 22105#       发表于 2024-8-16 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁又开始了吗
+
+不针对谁，只说一个比较能泛用的推断逻辑（大多数情况下）
+
+极端期望A拯救B的，实质上喜欢的是A而不是B
+
+喜欢B可以希望B自救，也可以接受CDE去救B
+
+但只有喜欢A的人会希望A是唯一的拯救方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  祐天寺若麦  
+##### 22106#       发表于 2024-8-16 20:04
+
+今晚8点还是没有新歌偷跑，剑指8.30
+

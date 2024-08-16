@@ -1796,3 +1796,26 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 云母有点东西
 
+
+*****
+
+####  Harunoharu  
+##### 594#       发表于 2024-8-16 19:58
+
+13岁139的幼女操着一口说不清话的萌音掏出一把和她人差不多的吉他开始solo，这摇不摇滚啊，这太摇滚了
+
+
+*****
+
+####  Devi_Lito  
+##### 595#       发表于 2024-8-16 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65884149&amp;ptid=2171972" target="_blank">Devi_Lito 发表于 2024-8-13 18:33</a>
+
+Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的新人，希望也能和石神一样来点大惊喜
+
+“いずれ ...</blockquote>
+惊喜有点大啊，玩电吉他的13岁萝莉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外这期3个人的差距挺直白的，たまこ虽然操着一口黏糊的萌音，但明显是首播节奏最好的，30分钟利用得很到位，就连周表给人的兴趣也是最高的，有点期待了啊
+

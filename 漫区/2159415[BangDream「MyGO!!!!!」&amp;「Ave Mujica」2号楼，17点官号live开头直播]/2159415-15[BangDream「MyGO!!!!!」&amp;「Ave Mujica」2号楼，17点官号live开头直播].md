@@ -15837,3 +15837,14 @@ APEX？</blockquote>
 
 隔壁还是少去比较好，尤其不要说话，打架都打出ID盒武器来了，吓人得很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22160#       发表于 2024-8-16 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915981&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-8-16 22:36</a>
+
+不得不说，泥楼真是备受关注</blockquote>
+代表鸡推，睦推，祥推，初华推，海铃推，喵梦推发言的时候就会忽视你楼了，说实话隔壁有个睦推在关于睦的话题里也是不低概率被无视来着<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+

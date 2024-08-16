@@ -146,3 +146,28 @@ Note: Bluetooth audio is currently output only, microphone functionality still b
 
 Note: Audio currently only works via headphones or Bluetooth audio. Speaker drivers are still being worked on.
 
+
+*****
+
+####  出轨的三头龙  
+##### 1285#       发表于 2024-8-16 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65586078&amp;ptid=2086469" target="_blank">laosai13 发表于 2024-7-15 01:11</a>
+
+有点久没关注了现在掌机有什么进化吗？我一直在用初版sd感觉续航有点不太够用，每次打老头环都强制防沉迷也 ...</blockquote>
+ally2续航有翻倍吗
+
+不过我觉得rog一代那点握持优势都是牺牲续航得来的，电池科技没进步的情况下有点难，win又是耗电大户
+
+*****
+
+####  出轨的三头龙  
+##### 1286#       发表于 2024-8-16 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65882348&amp;ptid=2086469" target="_blank">两个字 发表于 2024-8-13 15:54</a>
+
+X现在属于耍🐒阶段，要么加大概1k左右买，要么等等，如果插电玩不如无脑1代，没啥区别
+
+—— 来自 HUAWEI ...</blockquote>
+一代暴死成那样二代还这么玩吗
+

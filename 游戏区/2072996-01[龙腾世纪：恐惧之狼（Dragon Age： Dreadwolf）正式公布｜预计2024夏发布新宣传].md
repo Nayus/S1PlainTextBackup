@@ -130,3 +130,13 @@
 莫姨吗？颜值一代就定下来了不好改了</blockquote>
 不是M姐，M姐我觉得反而比前作丑了点，这预告那个黑皮新角色长得不错。
 
+
+*****
+
+####  PROCAINUM  
+##### 509#       发表于 2024-8-16 16:05
+
+这个预告片比之前放出的要好点，但是还是不喜欢卡通画风<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

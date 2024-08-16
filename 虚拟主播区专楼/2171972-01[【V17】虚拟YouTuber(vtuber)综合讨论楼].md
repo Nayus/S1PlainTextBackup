@@ -1868,3 +1868,19 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最协练习赛还能混进挂哥的，太有节目效果了
 
+
+*****
+
+####  溴麝香草酚蓝  
+##### 601#       发表于 2024-8-17 07:34
+
+[雲母超酷电吉他翻奏《Hurrah!!》【彩虹社新人/雲母たまこ】](https://www.bilibili.com/video/BV14MeGedELX)
+
+<img src="https://img.saraba1st.com/forum/202408/17/073358dubt8fnnciwtitdu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 07:33 上传
+

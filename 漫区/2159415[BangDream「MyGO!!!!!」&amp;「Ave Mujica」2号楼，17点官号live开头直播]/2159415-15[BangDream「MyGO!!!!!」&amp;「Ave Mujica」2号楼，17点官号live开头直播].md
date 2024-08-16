@@ -15858,3 +15858,32 @@ APEX？</blockquote>
 
 “你們怎麼能對go沒興趣” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 22162#       发表于 2024-8-16 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915285&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-16 22:00</a>
+
+就算退一万步 真接受包养 有睦的存在 又和别人有什么关系呢 还是不需要告知真实情况 ...</blockquote>
+因为睦也有可能要从家里跑路吧
+
+*****
+
+####  MASKA-1  
+##### 22163#       发表于 2024-8-16 23:51
+
+期待产点好图<img src="https://p.sda1.dev/19/13cab0ba60ca79393ebe097c092ecf93/IMG_CMP_178593239.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 22164#       发表于 2024-8-16 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913517&amp;ptid=2159415" target="_blank">光MIKAN 发表于 2024-8-16 19:14</a>
+
+隔壁都能说ppp核心不是彩彩了还能说什么</blockquote>
+ppp核心当然不是彩彩啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

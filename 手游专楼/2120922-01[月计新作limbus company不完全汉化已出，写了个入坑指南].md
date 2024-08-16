@@ -78,3 +78,17 @@
 
 复活队友这一点我怀疑不是真复活，而是变成衍生物挂件，触发共鸣时像船玛那样协同攻击，过一段时间消失，这样还可以配合十二人替补的新机制。
 
+
+*****
+
+####  Yuzutea  
+##### 832#       发表于 2024-8-16 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帅狼夫帅
+
+这技能aoe不下毒的话伞夫终于要取回他的神力了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+期待唐和良的章节ego和人格演出能做成什么效果了
+
+良剧情会有渗透天堂出场吗，从边狱出就有这种感觉来着
+

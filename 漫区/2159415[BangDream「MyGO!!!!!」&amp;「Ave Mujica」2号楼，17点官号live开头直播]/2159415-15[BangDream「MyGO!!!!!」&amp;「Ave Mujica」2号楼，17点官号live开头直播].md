@@ -15584,3 +15584,35 @@ nga那个专楼理中客太多了，黑泥骂wsd的爱灯厨和立希厨都会�
 
 c团想化解矛盾祥子正常化是大前提，让其他人提前介入上面的过程有点喧宾夺主了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22135#       发表于 2024-8-16 21:27
+
+倒是可以过劳出现短暂性失聪或者幻听，不如说祥子这个高强度工作哪天进医院太正常了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 22136#       发表于 2024-8-16 21:33
+
+咬着木棒作曲，请
+
+
+*****
+
+####  星天观测  
+##### 22137#       发表于 2024-8-16 21:37
+
+不是，之前的说法不是初华会累病么，怎么祥子也累病了，鸡真的是黑心企业（乐队）吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光MIKAN  
+##### 22138#       发表于 2024-8-16 21:37
+
+有个pv的倒吊火鸟其实是鸡团某人病倒看到输液瓶时出现的幻觉的假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，忘记在哪看到，有人repo说12th狗部分有个演出，出现代表灯和祥的两条线，两条线短暂相交后变成平行线，期间祥的线有一节突然变乱，但最终自己恢复平稳，两条线始终没有再相交过，我在b站没搜到12th的本篇，有楼友看过吗，真的存在这个演出？
+

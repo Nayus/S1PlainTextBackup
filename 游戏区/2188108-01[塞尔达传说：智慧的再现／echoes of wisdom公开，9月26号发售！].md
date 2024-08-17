@@ -96,3 +96,11 @@
 
 为什么，为什么不是8月26日发售<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  佛罗伦萨  
+##### 452#       发表于 2024-8-18 07:40
+
+根据Amiibo网站的消息，塞尔达系列Amiibo可以在游戏内解锁各种物品和不同颜色的服装
+

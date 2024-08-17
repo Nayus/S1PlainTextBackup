@@ -167,3 +167,25 @@ S1 PV上来就是毒妈拍屁股
 我用一个角色打主线到后面了，换另一个没练过的角色来继续会不会一点儿都打不过? ...</blockquote>
 敌人等级固定的，开荒主要看人物防御、血量，还有枪械等级。人物等级不影响枪械伤害，但低等级血防低，会比较脆
 
+
+*****
+
+####  三郷雫  
+##### 145#       发表于 2024-8-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65924362&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-8-17 19:39</a>
+敌人等级固定的，开荒主要看人物防御、血量，还有枪械等级。人物等级不影响枪械伤害，但低等级血防低，会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">所以说要练新角色的话要回普通难度从前面的图慢慢刷吗
+
+
+*****
+
+####  vava  
+##### 146#       发表于 2024-8-17 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65924435&amp;ptid=2153578" target="_blank">三郷雫 发表于 2024-8-17 19:48</a>
+所以说要练新角色的话要回普通难度从前面的图慢慢刷吗</blockquote>
+不用，枪、卡和装备等级都在，都是秒
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

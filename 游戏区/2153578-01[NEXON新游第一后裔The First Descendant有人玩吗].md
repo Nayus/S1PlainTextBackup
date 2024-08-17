@@ -62,3 +62,12 @@ S1 PV上来就是毒妈拍屁股
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这游戏的着色器，是每次进游戏都要重新编译么
 我以为编译一次就好，可是为啥每次进地图都要卡很久...
 
+
+*****
+
+####  jbjack1215  
+##### 136#       发表于 2024-8-17 09:38
+
+毒妈各种20%
+导致现在100小时我都还没做出来…
+

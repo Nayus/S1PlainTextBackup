@@ -1941,3 +1941,19 @@ algs正赛都有卖挂的，打到赛点还能炸服务器呢
 
 反正感觉这两期都是虹外部招的新人质量挺高的，然后VTA那边随便配几个炮灰凑一期直接出道了。。Speciale这期VTA出身的liver直播能力也是明显差其他同期一截，感觉不太能救
 
+
+*****
+
+####  alcoholic1000  
+##### 605#       发表于 2024-8-18 02:38
+
+<img src="https://img.saraba1st.com/forum/202408/18/023633saj115yaayt2zaa0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>VTA生のデビュー状況(2024年8月時点) -1.jpeg</strong> (747.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-18 02:36 上传
+
+X上看到了这个对照图，VTA看好的几个都失踪或者它社出道了<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
+

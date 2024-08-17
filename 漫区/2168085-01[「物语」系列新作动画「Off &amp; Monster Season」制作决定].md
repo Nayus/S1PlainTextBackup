@@ -831,3 +831,11 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且还是索尼找的大牌肯定要放满一个季度。不如等等看后面的op。
 另外这集是外包出去了，估计也是早就决定好的。
 
+
+*****
+
+####  Acerola  
+##### 706#       发表于 2024-8-17 23:18
+
+巴哈怎么延期了，好急<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

@@ -124,3 +124,29 @@ mujica官推至今才发了300条推特<img src="https://static.saraba1st.com/im
 
 2024-8-17 20:17 上传
 
+
+*****
+
+####  skives  
+##### 22210#       发表于 2024-8-17 20:18
+
+是直接开骂还是走程序<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22211#       发表于 2024-8-17 20:20
+
+关于30号发，b站白鹭哥的想法是8.30这天是mujica出演Anisama2024，这场ASL的主题也是《Stargazer》(观星者)。这首也是3rd live河口湖“星光”剧场的主题曲。感觉也算可以接受
+
+就是这个b封面我真的有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22212#       发表于 2024-8-17 20:22
+
+像tm的星球大战
+sakiko，I'm your father
+No！！！
+

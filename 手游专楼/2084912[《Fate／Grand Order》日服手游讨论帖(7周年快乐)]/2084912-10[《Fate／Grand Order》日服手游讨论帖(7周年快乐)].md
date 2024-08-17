@@ -10069,3 +10069,11 @@ wada你是被隔壁的平井传染了吗
 但你5宝限定</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是萌新的5星数量要比非洲人多
 
+
+*****
+
+####  cenhr  
+##### 14261#       发表于 2024-8-17 19:08
+
+这次写手真强，白野都坦荡当地欢迎藤丸和玛修这两个“地球来的客人”造访，但两人完全没有反应和疑问。都改阶成智障了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

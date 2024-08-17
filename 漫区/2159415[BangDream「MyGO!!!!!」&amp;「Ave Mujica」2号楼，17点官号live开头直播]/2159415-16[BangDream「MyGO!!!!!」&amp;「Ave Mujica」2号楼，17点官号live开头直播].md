@@ -69,3 +69,58 @@ mujica官推至今才发了300条推特<img src="https://static.saraba1st.com/im
 
 2024-8-17 20:06 上传
 
+
+*****
+
+####  星天观测  
+##### 22207#       发表于 2024-8-17 20:10
+
+这个封面我有点难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御幸一也  
+##### 22208#       发表于 2024-8-17 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">突出一個啥都沒有就在那硬拖，好希望武士道今天就倒閉
+
+*****
+
+####  御幸一也  
+##### 22209#       发表于 2024-8-17 20:17
+
+醜得有點難忍，武士道這傻逼公司審美就這樣了
+
+<img src="https://img.saraba1st.com/forum/202408/17/201744wuji5uqci8z3y4bb.jpg" referrerpolicy="no-referrer">
+
+<strong>f93f901a-c31c-4d13-adfe-d2770b12f155.jpg</strong> (81.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202408/17/201737uswsxzi4lgxz184o.jpg" referrerpolicy="no-referrer">
+
+<strong>03781441-a515-49af-a478-8d69da437091.jpg</strong> (155.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202408/17/201728f8ecc9vacy99xy44.jpg" referrerpolicy="no-referrer">
+
+<strong>2818a070-e684-4b51-8941-88071191942a.jpg</strong> (152.43 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202408/17/201721d2bmjiigkis12094.jpg" referrerpolicy="no-referrer">
+
+<strong>199f837f-5303-4aca-b268-e2656796808c.jpg</strong> (253.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 20:17 上传
+

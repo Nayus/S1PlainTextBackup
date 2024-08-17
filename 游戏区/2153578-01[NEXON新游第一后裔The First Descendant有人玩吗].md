@@ -223,3 +223,31 @@ S1 PV上来就是毒妈拍屁股
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  三郷雫  
+##### 149#       发表于 2024-8-17 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65925319&amp;ptid=2153578" target="_blank">vava 发表于 2024-8-17 21:30</a>
+有必要升
+
+蓝紫金卡都要装</blockquote>
+好
+所以技能卡这三种稀有度不是上下位替代而是各有所用么
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一直想把那个加血的蓝卡升满，兔子太脆了
+
+*****
+
+####  vava  
+##### 150#       发表于 2024-8-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65925472&amp;ptid=2153578" target="_blank">三郷雫 发表于 2024-8-17 21:46</a>
+
+好
+
+所以技能卡这三种稀有度不是上下位替代而是各有所用么
+
+一直想把那个加血的蓝卡升满，兔子太脆了 ...</blockquote>
+对，各司其职
+

@@ -799,3 +799,18 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 <img src="https://p.sda1.dev/19/6090e7ebcd6e25874052b743c7686033/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Sissii  
+##### 702#       发表于 2024-8-17 21:48
+
+呵呵，水了10分钟，还要放遍undead。。 不会业物语也要放这个吧
+
+*****
+
+####  集合酱  
+##### 703#       发表于 2024-8-17 21:50
+
+这水平还水啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

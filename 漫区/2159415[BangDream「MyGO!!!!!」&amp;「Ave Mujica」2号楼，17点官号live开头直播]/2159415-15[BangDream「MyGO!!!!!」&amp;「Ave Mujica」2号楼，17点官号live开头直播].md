@@ -16278,3 +16278,28 @@ C團只適合當背景板 希望遺老們早日認清事實<img src="https://sta
 
 X: NAGAYAMAcreator<img src="https://p.sda1.dev/19/e5e3f6e705d9461c6c969cd24021d06f/IMG_CMP_168160983.jpeg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22197#       发表于 2024-8-17 19:02
+
+ 本帖最后由 PDQ4 于 2024-8-17 19:04 编辑 
+
+动力 8.30
+
+<img src="https://img.saraba1st.com/forum/202408/17/190343r8fvfwmv4ty0oz68.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9034.jpeg</strong> (436.07 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 19:03 上传
+
+*****
+
+####  PDQ4  
+##### 22198#       发表于 2024-8-17 19:04
+
+所以土MV呢，下周四？
+

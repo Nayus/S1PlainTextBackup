@@ -171,3 +171,18 @@ X现在属于耍🐒阶段，要么加大概1k左右买，要么等等，如果�
 —— 来自 HUAWEI ...</blockquote>
 一代暴死成那样二代还这么玩吗
 
+
+*****
+
+####  NameLess2501  
+##### 1287#       发表于 2024-8-17 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65907155&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2024-8-16 08:45</a>
+
+ally2续航有翻倍吗
+
+不过我觉得rog一代那点握持优势都是牺牲续航得来的，电池科技没进步的情况下有点难，w ...</blockquote>
+实测，15W模式，整机功耗22W，电量从80%到20%，Ally续航1小时，Ally X续航2小时。所以可以说续航翻倍了。
+
+如果是从100%到没电关机的话，差距能更大一点。
+

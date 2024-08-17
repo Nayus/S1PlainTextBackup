@@ -71,3 +71,16 @@ S1 PV上来就是毒妈拍屁股
 毒妈各种20%
 导致现在100小时我都还没做出来…
 
+
+*****
+
+####  vava  
+##### 137#       发表于 2024-8-17 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65919054&amp;ptid=2153578" target="_blank">三郷雫 发表于 2024-8-17 08:51</a>
+
+这游戏的着色器，是每次进游戏都要重新编译么
+
+我以为编译一次就好，可是为啥每次进地图都要卡很久... ...</blockquote>
+进游戏第一次编译比较久，后面切图还算快的
+

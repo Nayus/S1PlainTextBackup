@@ -10058,3 +10058,14 @@ wada你是被隔壁的平井传染了吗
 像老福还有这次的1期泳池非洲人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你5宝限定
 
+
+*****
+
+####  森兰丸  
+##### 14260#       发表于 2024-8-17 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65921221&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-17 13:47</a>
+
+但你5宝限定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是萌新的5星数量要比非洲人多
+

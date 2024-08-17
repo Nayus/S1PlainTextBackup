@@ -1724,7 +1724,7 @@
     "newtitle": "[同人音声交流楼（禁止发送资源，为了本楼安全）]",
     "lastedit": 1723616062,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2066937": {
@@ -3542,7 +3542,7 @@
     "newtitle": "[机娘爱丽丝机甲／Alice Gear Aegis 6.5周年 火舞！！！]",
     "lastedit": 1723615936,
     "category": "手游专楼",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1569854": {
@@ -3777,7 +3777,7 @@
     "lastedit": 1723795320,
     "category": "虚拟主播区专楼",
     "active": true,
-    "update": false
+    "update": true
   },
   "1478318": {
     "totalreply": 1412,
@@ -4410,10 +4410,10 @@
     "update": false
   },
   "1955542": {
-    "totalreply": 15147,
+    "totalreply": 15156,
     "title": "[《黑神话 悟空》专楼，6分钟新剧情mv加8分钟实机演示公布]",
     "newtitle": "[【售前请勿剧透】黑神话 悟空专楼，pc、ps5版24.8.20发售！｜国区售价268，港区298hkd]",
-    "lastedit": 1723874666,
+    "lastedit": 1723875265,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -4767,7 +4767,7 @@
     "lastedit": 1723868220,
     "category": "游戏区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2119338": {
     "totalreply": 945,
@@ -7650,10 +7650,10 @@
     "update": false
   },
   "2171479": {
-    "totalreply": 962,
+    "totalreply": 963,
     "title": "[修罗场后宫胃药党争文讨论楼2号楼]",
     "newtitle": "[修罗场后宫胃药党争文讨论楼2号楼 ver 0720]",
-    "lastedit": 1723741092,
+    "lastedit": 1723875258,
     "category": "外野",
     "active": true,
     "update": false
@@ -8667,10 +8667,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 59906,
+    "totalreply": 59920,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1723873577,
+    "lastedit": 1723875375,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9675,10 +9675,10 @@
     "update": false
   },
   "2192349": {
-    "totalreply": 1987,
+    "totalreply": 1988,
     "title": "[俄乌专楼-7月版]",
     "newtitle": "[俄乌专楼-7月版]",
-    "lastedit": 1723874666,
+    "lastedit": 1723875265,
     "category": "外野",
     "active": true,
     "update": false
@@ -10098,10 +10098,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 15034,
+    "totalreply": 15041,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1723874778,
+    "lastedit": 1723875376,
     "category": "漫区",
     "active": true,
     "update": false
@@ -13842,10 +13842,10 @@
     "update": false
   },
   "2194673": {
-    "totalreply": 698,
+    "totalreply": 701,
     "title": "[【严重剧透慎入】《黑神话悟空》剧透讨论楼，成就奖杯名单泄露]",
     "newtitle": "[【严重剧透慎入】《黑神话悟空》剧透讨论楼，30分钟开头实机泄露，大量实机视频泄露]",
-    "lastedit": 1723874671,
+    "lastedit": 1723875265,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -14031,10 +14031,10 @@
     "update": false
   },
   "2194776": {
-    "totalreply": 7053,
+    "totalreply": 7054,
     "title": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
     "newtitle": "[原神攻略讨论楼#9 （严禁剧透，此楼不影响游戏体验）]",
-    "lastedit": 1723874666,
+    "lastedit": 1723875019,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -15084,10 +15084,10 @@
     "update": false
   },
   "2194966": {
-    "totalreply": 75,
+    "totalreply": 76,
     "title": "[打算上门干闲鱼到手刀职业骗子]",
     "newtitle": "[打算上门干闲鱼到手刀职业骗子]",
-    "lastedit": 1723874896,
+    "lastedit": 1723875375,
     "category": "外野",
     "active": true,
     "update": false
@@ -15804,10 +15804,10 @@
     "update": false
   },
   "2195212": {
-    "totalreply": 90,
+    "totalreply": 91,
     "title": "[说说有生之年你最希望玩到的汉化作品]",
     "newtitle": "[说说有生之年你最希望玩到的汉化作品]",
-    "lastedit": 1723867117,
+    "lastedit": 1723875265,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16218,10 +16218,10 @@
     "update": false
   },
   "2195341": {
-    "totalreply": 98,
+    "totalreply": 101,
     "title": "[老人出国旅游8天欠费一万六，上海电信回应]",
     "newtitle": "[老人出国旅游8天欠费一万六，上海电信回应]",
-    "lastedit": 1723872741,
+    "lastedit": 1723875265,
     "category": "外野",
     "active": true,
     "update": false
@@ -16326,10 +16326,10 @@
     "update": false
   },
   "2194665": {
-    "totalreply": 43,
+    "totalreply": 44,
     "title": "[当一个中年男人决心成为卡萨诺瓦]",
     "newtitle": "[当一个中年男人决心成为卡萨诺瓦]",
-    "lastedit": 1723860859,
+    "lastedit": 1723875265,
     "category": "外野",
     "active": true,
     "update": false
@@ -16488,10 +16488,19 @@
     "update": false
   },
   "2195426": {
-    "totalreply": 55,
+    "totalreply": 56,
     "title": "[黑神话悟空是属于哪种奇迹？]",
     "newtitle": "[黑神话悟空是属于哪种奇迹？]",
-    "lastedit": 1723874674,
+    "lastedit": 1723875019,
+    "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2195443": {
+    "totalreply": 43,
+    "title": "[抽奖roll 3个黑神话key，截止到19号零点。]",
+    "newtitle": "[抽奖roll 3个黑神话key，截止到19号零点。]",
+    "lastedit": 1723875265,
     "category": "游戏区",
     "active": true,
     "update": false

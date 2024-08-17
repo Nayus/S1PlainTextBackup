@@ -417,3 +417,11 @@ send them home!
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  haruhiismer  
+##### 4413#       发表于 2024-8-17 09:49
+
+g2指挥是真难当让虾哥当又不乐意，要不还是给hooxi认个错请回来吧
+

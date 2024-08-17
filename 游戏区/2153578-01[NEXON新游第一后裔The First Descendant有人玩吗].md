@@ -189,3 +189,21 @@ S1 PV上来就是毒妈拍屁股
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  三郷雫  
+##### 147#       发表于 2024-8-17 21:24
+
+地上的这个标志是干啥的...？
+
+另外问下蓝色和紫色的技能卡有升级的必要吗.....?
+
+<img src="https://img.saraba1st.com/forum/202408/17/212346po0uy3um3i3ugkkj.jpg" referrerpolicy="no-referrer">
+
+<strong>202408172038204_1.jpg</strong> (61.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 21:23 上传
+

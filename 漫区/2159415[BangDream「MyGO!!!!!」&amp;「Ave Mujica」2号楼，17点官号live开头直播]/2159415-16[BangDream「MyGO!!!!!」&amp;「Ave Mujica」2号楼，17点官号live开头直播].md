@@ -215,3 +215,13 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  相坂君  
+##### 22221#       发表于 2024-8-17 22:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老师，我们家鸡的封图像是ai，这是可以说吗？
+
+真搞不懂这种风格，跟前面的差别也太大
+

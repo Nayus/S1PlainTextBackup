@@ -1918,3 +1918,26 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 最协练习赛还能混进挂哥的，太有节目效果了</blockquote>
 algs正赛都有卖挂的，打到赛点还能炸服务器呢 
 
+
+*****
+
+####  Devi_Lito  
+##### 604#       发表于 2024-8-18 01:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65924718&amp;ptid=2171972" target="_blank">zjoi 发表于 2024-8-17 20:22</a>
+
+ナナ的歌力就足够保底了，歌枠能有5K同接
+
+游戏效果也有挖掘潜力，目前就是游戏选择上还有待提升
+
+应该多玩 ...</blockquote>
+ナナ首播后也是那期里にじアン风评第二好的，的确本身挺pro的，后面和千麻的歌回联动，以及这周三的にじヌ→ン表现也不错
+
+桃音是真的前几播太难看了，后面完全没关注。。
+
+綺沙良这周和琉璃的茶杯头耐久联动稍微追了一下，耐久到后面基本9成都是琉璃在说话撑住场子，綺沙良两人的联动都能显得地藏得一逼，这个谈话能力也是有点没救<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+つゆゆ已经完全是にじアン的玩具了，没啥聊头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正感觉这两期都是虹外部招的新人质量挺高的，然后VTA那边随便配几个炮灰凑一期直接出道了。。Speciale这期VTA出身的liver直播能力也是明显差其他同期一截，感觉不太能救
+

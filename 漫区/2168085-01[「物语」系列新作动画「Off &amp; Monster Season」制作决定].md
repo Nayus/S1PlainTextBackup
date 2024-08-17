@@ -866,3 +866,15 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 巴哈怎么延期了，好急</blockquote>
 是不是翻译没跟上，我下到一个多语言字幕版，就是没中文<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Place_O  
+##### 710#       发表于 2024-8-18 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65926814&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-8-18 00:11</a>
+话说这么看来小忍还是人类时导致死的人好像比吸血鬼时期吃的人都多吧</blockquote>
+但是我记得小忍好像就是把那些人都吃了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JAD-AL50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

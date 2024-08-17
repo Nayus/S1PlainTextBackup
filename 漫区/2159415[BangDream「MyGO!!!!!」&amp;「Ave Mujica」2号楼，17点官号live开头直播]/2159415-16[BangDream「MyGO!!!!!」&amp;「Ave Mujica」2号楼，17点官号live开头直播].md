@@ -197,3 +197,21 @@ No！！！
 
 wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  russianbear  
+##### 22219#       发表于 2024-8-17 22:05
+
+学PS三年既视感
+
+
+*****
+
+####  Drawrain  
+##### 22220#       发表于 2024-8-17 22:12
+
+这梗真的蛮烂的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

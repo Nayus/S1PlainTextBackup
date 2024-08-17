@@ -6021,3 +6021,16 @@ iska的词源是风、空、精灵。也是很重要的词。风-未登场的风
 你的反射弧有点长，看看674楼？</blockquote>
 忘了....
 
+
+*****
+
+####  hkguty  
+##### 2730#       发表于 2024-8-17 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65912804&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-16 18:00</a>
+
+近藤
+
+轨迹系列我们收集了很多玩家对角色的反馈。如果粉丝群真的喜欢某个特定角色，我们会在未来的游戏中给 ...</blockquote>
+啥时候的采访
+

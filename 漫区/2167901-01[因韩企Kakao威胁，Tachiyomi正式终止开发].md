@@ -2819,3 +2819,16 @@ jmtt用不了了？<img src="https://p.sda1.dev/19/1b82e21d6c238b420f4c18d271be7
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  我家教很严  
+##### 265#       发表于 2024-8-17 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63966615&amp;ptid=2167901" target="_blank">慈父斯大林 发表于 2024-2-15 21:40</a>
+
+目前在用的：dmzj、vomic、拷贝、bato.to、古风漫画、COLAMANGA、包子漫画，最后两个水印重。
+
+ ...</blockquote>
+bato.to只选中文的话。。什么都搜不出来压
+

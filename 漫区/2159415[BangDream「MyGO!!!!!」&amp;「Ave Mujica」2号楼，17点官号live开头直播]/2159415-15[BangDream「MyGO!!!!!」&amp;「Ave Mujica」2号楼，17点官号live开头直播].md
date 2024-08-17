@@ -16257,3 +16257,16 @@ C團只適合當背景板 希望遺老們早日認清事實<img src="https://sta
 所以说脱产学生🧠是否清醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 让soyo或者别的人拿母亲赚的钱替前同学还家里的债务和包养，别说日本人了，这种剧情是人能想得出来的吗？想看圣xx拯救一切的大x传，又或者是脑内认定祥子是狗团的敌人要狠狠羞辱踩到地底，以至于喜欢的角色和剧情崩坏都无所谓吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  夜游宫  
+##### 22195#       发表于 2024-8-17 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65917790&amp;ptid=2159415" target="_blank">NODY 发表于 2024-8-17 00:54</a>
+
+我喜欢的假药版本是福利院孤儿姐妹被丰川和若叶分别收养，按地图假药来说的话，她们俩原姓可能是高田
+
+睦的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">这个假说感觉不错。
+

@@ -53,3 +53,12 @@ S1 PV上来就是毒妈拍屁股
 
 那么乳摇和臀摇啥时候实装呢
 
+
+*****
+
+####  三郷雫  
+##### 135#       发表于 2024-8-17 08:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这游戏的着色器，是每次进游戏都要重新编译么
+我以为编译一次就好，可是为啥每次进地图都要卡很久...
+

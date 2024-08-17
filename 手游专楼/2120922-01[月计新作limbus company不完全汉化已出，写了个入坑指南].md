@@ -100,3 +100,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下期瓦夜是两三灯人格吗？
 
+
+*****
+
+####  erratic璃月  
+##### 834#       发表于 2024-8-18 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65926317&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-8-17 23:20</a>
+
+下期瓦夜是两三灯人格吗？</blockquote>
+好像是两个3灯一个ego两个播报员，纯凭印象，不保真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Yuzutea| + 2|这下运气不好要大出血了|
+
+查看全部评分
+

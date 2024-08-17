@@ -10077,3 +10077,13 @@ wada你是被隔壁的平井传染了吗
 
 这次写手真强，白野都坦荡当地欢迎藤丸和玛修这两个“地球来的客人”造访，但两人完全没有反应和疑问。都改阶成智障了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 14262#       发表于 2024-8-17 22:21
+
+问就是要考虑的太多顾不上细节了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

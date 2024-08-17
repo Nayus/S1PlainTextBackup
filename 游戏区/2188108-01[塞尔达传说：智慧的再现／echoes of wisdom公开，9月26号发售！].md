@@ -88,3 +88,11 @@
 
 今次2D塞没有效能压力,应该会进入一步做到地表上全地图无缝联通,估计只有进入虚空裂缝世界才需要黑屏加载。
 
+
+*****
+
+####  heseran  
+##### 451#       发表于 2024-8-17 18:09
+
+为什么，为什么不是8月26日发售<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

@@ -124,3 +124,15 @@ S1 PV上来就是毒妈拍屁股
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  白河响剑  
+##### 141#       发表于 2024-8-17 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">玩了第一后裔后回去又刷了两百小时仓鼠
+
+现在和开服比起来有啥优化更新么
+
+比如子弹掉落什么的...
+

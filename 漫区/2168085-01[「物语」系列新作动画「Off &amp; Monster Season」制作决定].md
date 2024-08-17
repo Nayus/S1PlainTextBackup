@@ -878,3 +878,18 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 —— 来自 HUAWEI JAD-AL50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  moras2694  
+##### 711#       发表于 2024-8-18 02:29
+
+这集沉下心来看故事的，结尾unhappy的jump scare程度我觉得能和第六集掰掰手腕了，不过是个ex篇，应该不会很计较
+
+*****
+
+####  tiro_finale  
+##### 712#       发表于 2024-8-18 02:30
+
+好无聊啊，什么有声小说，怪不得只做15分钟<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

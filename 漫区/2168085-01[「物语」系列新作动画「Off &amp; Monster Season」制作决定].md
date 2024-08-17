@@ -905,3 +905,13 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 —— 来自 HUAWEI JAD-AL50, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 自己杀自己吃是尊主的原则，刃下心不挑食
 
+
+*****
+
+####  downnote  
+##### 714#       发表于 2024-8-18 06:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">坂本真綾の満月朗読館 - 残酷童話 うつくし姫，这样搞是吧……
+
+非要说的话的确是不增不删，但和预想中的完全不同啊。如此处理的办法也不好说哪里不对，但太难令人满足了啊
+

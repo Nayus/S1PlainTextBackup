@@ -10045,3 +10045,16 @@ wada你是被隔壁的平井传染了吗
 
 焯，彩光金BB卡背出大象了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14259#       发表于 2024-8-17 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913640&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-16 19:28</a>
+
+别被你上面的萌新骗了....非洲人一直都非常黑....出货了只是因为抽的少
+
+像老福还有这次的1期泳池非洲人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但你5宝限定
+

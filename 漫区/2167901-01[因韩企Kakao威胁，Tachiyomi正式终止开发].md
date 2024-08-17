@@ -2832,3 +2832,15 @@ jmtt用不了了？<img src="https://p.sda1.dev/19/1b82e21d6c238b420f4c18d271be7
  ...</blockquote>
 bato.to只选中文的话。。什么都搜不出来压
 
+
+*****
+
+####  linux40  
+##### 266#       发表于 2024-8-18 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65920842&amp;ptid=2167901" target="_blank">keroghy 发表于 2024-8-17 12:57</a>
+jmtt用不了了？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+同样的问题，但firefox没问题，估计插件该更新了。
+

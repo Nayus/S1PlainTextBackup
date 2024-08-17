@@ -6099,3 +6099,18 @@ ax2024的，近藤那会接受的采访挺多的
 
 说实在的，现在想让萌主出场简直不要太容易：跟在云老头身边就行了，既能照顾云老头起居跟着老爷子还能顺便练级。但就算这样你法都想不起来她，这叫人气高了就加剧情？
 
+
+*****
+
+####  windtrack  
+##### 2738#       发表于 2024-8-17 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">我又订了界轨限定版  我是傻逼
+
+*****
+
+####  zhouaa  
+##### 2739#       发表于 2024-8-17 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌主是指亚妮拉斯吗  我还以为说的基尔巴特
+

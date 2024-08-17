@@ -313,3 +313,21 @@ https://splatoon.com.cn/page/57
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 4980#       发表于 2024-8-17 17:30
+
+<img src="https://img.saraba1st.com/forum/202408/17/172908wrqr4jjec6q26er4.png" referrerpolicy="no-referrer">
+
+<strong>img_0053.png</strong> (169.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-17 17:29 上传
+
+明天喷2也金工<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

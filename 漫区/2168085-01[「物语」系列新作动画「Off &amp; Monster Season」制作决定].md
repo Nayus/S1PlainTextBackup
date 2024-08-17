@@ -776,3 +776,14 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 
 急急急，什么时候放业物语忍物语的正式pv？
 
+
+*****
+
+####  tjshibc21  
+##### 700#       发表于 2024-8-17 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65925171&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-17 21:11</a>
+
+草，就这还要播一遍undead，蚌埠住</blockquote>
+至少还重画了ed画面
+

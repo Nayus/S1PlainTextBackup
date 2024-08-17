@@ -6083,3 +6083,11 @@ ax2024的，近藤那会接受的采访挺多的
 
 萌主怎么会是典型，典型的明显是库洛 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2736#       发表于 2024-8-17 22:55
+
+有点记不清了，最开始八叶除了是亚妮拉丝的技能，fcsc有没有八叶一刀剑仙八叶剑圣的说法的？
+

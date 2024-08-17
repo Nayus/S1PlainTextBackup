@@ -1957,3 +1957,13 @@ algs正赛都有卖挂的，打到赛点还能炸服务器呢
 
 X上看到了这个对照图，VTA看好的几个都失踪或者它社出道了<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alcoholic1000  
+##### 606#       发表于 2024-8-18 04:00
+
+酒寄颯馬，valo神话3（Sova&amp;Cypher），ow4200，csgo大地球
+
+自称10岁开始打枪的22岁...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

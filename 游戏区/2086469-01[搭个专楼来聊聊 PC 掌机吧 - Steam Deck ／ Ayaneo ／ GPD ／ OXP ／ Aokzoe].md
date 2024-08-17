@@ -227,3 +227,23 @@ ally2续航有翻倍吗
 体感助手哪里下。。。有没有官网的。。。</blockquote>
 没有，只有群。试试：642052151，可能已经满了。
 
+
+*****
+
+####  两个字  
+##### 1292#       发表于 2024-8-17 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65918930&amp;ptid=2086469" target="_blank">weare17k 发表于 2024-8-17 08:18</a>
+
+一代爆死成那样？哪个世界线啊
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+就是这个世界线，1代去年7月的库存倒现在还没卖完，目前贴吧的人猜测打人硕搞耍猴是为了清一代的库存<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两个字  
+##### 1293#       发表于 2024-8-17 14:15
+
+上周8888买了个4T版本的
+

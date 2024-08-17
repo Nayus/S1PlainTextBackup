@@ -1907,3 +1907,14 @@ Idios里面一眼看中赤倉画的石神，这期也是一眼看中水母画的
 
 另外两个就确实有点困难~
 
+
+*****
+
+####  alcoholic1000  
+##### 603#       发表于 2024-8-17 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915205&amp;ptid=2171972" target="_blank">winda 发表于 2024-8-16 21:57</a>
+
+最协练习赛还能混进挂哥的，太有节目效果了</blockquote>
+algs正赛都有卖挂的，打到赛点还能炸服务器呢 
+

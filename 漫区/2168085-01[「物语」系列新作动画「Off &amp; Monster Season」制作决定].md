@@ -787,3 +787,15 @@ Ep6神回，可惜的是ED一出，所有感动的氛围都败光了
 草，就这还要播一遍undead，蚌埠住</blockquote>
 至少还重画了ed画面
 
+
+*****
+
+####  remedios010000  
+##### 701#       发表于 2024-8-17 21:39
+
+西尾搞得个15周年系列投票，也不知道是怎么排的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/a07b9af457687819aeb208a9c6f52300/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/19/6090e7ebcd6e25874052b743c7686033/image.jpg" referrerpolicy="no-referrer">
+

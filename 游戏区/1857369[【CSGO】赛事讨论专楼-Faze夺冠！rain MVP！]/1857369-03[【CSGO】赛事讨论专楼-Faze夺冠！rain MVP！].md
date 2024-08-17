@@ -443,3 +443,13 @@ g2昨天啥情况，看开幕式还挺正常，然后图一前几个回合尼的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  那由  
+##### 4416#       发表于 2024-8-18 01:17
+
+navi这个钢铁b区绝了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -186,3 +186,15 @@ ally2续航有翻倍吗
 
 如果是从100%到没电关机的话，差距能更大一点。
 
+
+*****
+
+####  weare17k  
+##### 1288#       发表于 2024-8-17 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65907167&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2024-8-16 08:46</a>
+一代暴死成那样二代还这么玩吗</blockquote>
+一代爆死成那样？哪个世界线啊
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

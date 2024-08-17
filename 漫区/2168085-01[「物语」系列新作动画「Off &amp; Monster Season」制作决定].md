@@ -893,3 +893,15 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 好无聊啊，什么有声小说，怪不得只做15分钟<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 713#       发表于 2024-8-18 06:02
+
+<blockquote>Place_O 发表于 2024-8-18 01:29
+但是我记得小忍好像就是把那些人都吃了
+
+—— 来自 HUAWEI JAD-AL50, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+自己杀自己吃是尊主的原则，刃下心不挑食
+

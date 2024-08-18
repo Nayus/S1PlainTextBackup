@@ -2322,3 +2322,14 @@ BL剧的周边出一下，谢谢
 上次拍的小视频还有存货，pay看鱼那眼神太 ...</blockquote>
 看着像是在终章横K拍的，不是上次生放送
 
+
+*****
+
+####  starring  
+##### 20942#       发表于 2024-8-18 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65935338&amp;ptid=2078110" target="_blank">csolfans 发表于 2024-8-18 22:09</a>
+
+看着像是在终章横K拍的，不是上次生放送</blockquote>
+你看天花还有左边的黑色行李箱（中间的大熊不见了，其实还是上次生放送的化妆室<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

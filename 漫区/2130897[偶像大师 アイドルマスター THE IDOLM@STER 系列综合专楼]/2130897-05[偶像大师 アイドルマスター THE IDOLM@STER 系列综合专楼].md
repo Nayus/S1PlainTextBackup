@@ -1561,3 +1561,25 @@ livehouse他就得不用棒子打手指艺，唱到高潮的时候拍一拍旁�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">前两天发的新歌等会唱不唱呢
 
+
+*****
+
+####  joshua1990  
+##### 6172#       发表于 2024-8-18 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">小红唱的比上次放得开，不过动作更少了
+
+*****
+
+####  麻巳巳  
+##### 6173#       发表于 2024-8-18 14:55
+
+放得开但是solo2到底只唱了多少句，听到的几乎都是背景的垫音，不知道还以为直接在放cd
+
+*****
+
+####  joshua1990  
+##### 6174#       发表于 2024-8-18 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ybb也只能夹半首
+

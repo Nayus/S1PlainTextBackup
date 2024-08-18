@@ -572,3 +572,15 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 好几把强盗的给他人设定审美底线，给他研究出新的捂嘴说法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 22261#       发表于 2024-8-18 14:58
+
+还是友好一点
+
+可能只是因为喜欢mygo新单封面，所以也不觉得这次mujica封面丑吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+就是为什么要拿真人面具说事我不太能圆上
+

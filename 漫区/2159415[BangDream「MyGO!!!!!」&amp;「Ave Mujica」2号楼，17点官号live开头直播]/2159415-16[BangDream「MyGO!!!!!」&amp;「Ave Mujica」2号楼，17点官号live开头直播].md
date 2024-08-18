@@ -493,3 +493,32 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 单说丑不是一直很丑</blockquote>
 只能说，如果你懂点设计就不会这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DarthAka  
+##### 22252#       发表于 2024-8-18 14:35
+
+<blockquote>Aendst 发表于 2024-8-18 14:22
+只能说，如果你懂点（不到入门程度的）设计就不会这么说了</blockquote>
+有真人那个面具打底，再难看能到哪去
+
+*****
+
+####  DarthAka  
+##### 22253#       发表于 2024-8-18 14:36
+
+有这精力去冲官方，真人面具怕不是去年就换了
+
+*****
+
+####  Aendst  
+##### 22254#       发表于 2024-8-18 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931435&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-8-18 14:35</a>
+
+有真人那个面具打底，再难看能到哪去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但凡你比较的是mygo的CD封面我都当你努力过了
+

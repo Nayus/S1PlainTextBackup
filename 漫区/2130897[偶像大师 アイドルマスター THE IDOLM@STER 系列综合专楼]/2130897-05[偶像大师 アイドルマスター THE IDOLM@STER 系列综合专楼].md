@@ -1466,3 +1466,60 @@ livehouse他就得不用棒子打手指艺，唱到高潮的时候拍一拍旁�
 
 梅田的收音比上週名古屋還差啊（或者這次導播不知道爲啥把高頻降噪拉滿了）...
 
+
+*****
+
+####  raimouse  
+##### 6160#       发表于 2024-8-18 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说符合我对代孙的预期
+
+
+*****
+
+####  joshua1990  
+##### 6161#       发表于 2024-8-18 14:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这周不给小红超大背景伴唱了呀
+
+*****
+
+####  Seeley  
+##### 6162#       发表于 2024-8-18 14:35
+
+至少saki这solo听感比上回好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wfhtony  
+##### 6163#       发表于 2024-8-18 14:37
+
+因爲導播把高音給削了，這次FMW的低音格外轟頭，在部份階段人聲比上週更聽不清楚了（外加咱目前用的是XM3監聽，轟頭程度加倍...）
+
+咱是不是要說一下<strong>低音注意</strong>？
+
+不過這周長月的唱功進步了些。
+
+*****
+
+####  joshua1990  
+##### 6164#       发表于 2024-8-18 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">小蓝这lunar say mabey的熟练度，私下得练了多少次
+
+*****
+
+####  北条早苗  
+##### 6165#       发表于 2024-8-18 14:37
+
+长月表现比上周好了不少
+
+*****
+
+####  raimouse  
+##### 6166#       发表于 2024-8-18 14:37
+
+小鹿的水平明显高出一截
+

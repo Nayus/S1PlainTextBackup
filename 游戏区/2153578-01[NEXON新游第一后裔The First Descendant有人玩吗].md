@@ -310,3 +310,16 @@ S1 PV上来就是毒妈拍屁股
 兔子进化皮和终极皮不知道选哪个</blockquote>
 这个肉色涂料是哪一个，怎么没见着
 
+
+*****
+
+####  vava  
+##### 155#       发表于 2024-8-18 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65928965&amp;ptid=2153578" target="_blank">jbjack1215 发表于 2024-8-18 09:59</a>
+
+这个肉色涂料是哪一个，怎么没见着</blockquote>
+皮革哑光棕
+
+或者哑光粉
+

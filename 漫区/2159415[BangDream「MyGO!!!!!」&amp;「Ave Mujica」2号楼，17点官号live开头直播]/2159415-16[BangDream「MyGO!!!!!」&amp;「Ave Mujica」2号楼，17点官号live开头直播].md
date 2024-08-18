@@ -713,3 +713,25 @@ mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
 
 这封面不就是典型的金属乐队专辑封面嘛。。
 
+
+*****
+
+####  御幸一也  
+##### 22273#       发表于 2024-8-18 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65929480&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-18 11:06</a>
+
+说不定保底好看的那张是火</blockquote>
+樓友不要再講鬼故事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22274#       发表于 2024-8-18 16:00
+
+她们私下约出去玩的次数真不知道有多少，随便发几张感觉都没见过
+
+假设4000张不是夸张而是真的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说她真的好喜欢拍照
+

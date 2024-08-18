@@ -275,3 +275,34 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 
 我还是喜欢一单和迷你一专的那种
 
+
+*****
+
+####  PDQ4  
+##### 22228#       发表于 2024-8-18 09:29
+
+ 本帖最后由 PDQ4 于 2024-8-18 09:31 编辑 
+
+太鬼了，怎么能这么丑
+
+这下没脸摆出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这下限量版是真的高贵了，最能接受的一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  相坂君  
+##### 22229#       发表于 2024-8-18 09:33
+
+笑得，还是漏油吹死婊活厉害，好像有说过鸡碟封面设计摆出来挺好看的，现在……<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22230#       发表于 2024-8-18 09:35
+
+哦对，推上有句评价挺好笑的，“有股哈利波特的内（臭）味”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+原来这次封面这么难蚌是漏油们的问题，出列！通通出列！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

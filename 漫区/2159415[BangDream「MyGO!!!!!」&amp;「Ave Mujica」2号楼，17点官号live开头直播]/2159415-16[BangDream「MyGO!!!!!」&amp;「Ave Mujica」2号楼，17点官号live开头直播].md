@@ -482,3 +482,14 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 单说丑不是一直很丑
 
+
+*****
+
+####  Aendst  
+##### 22251#       发表于 2024-8-18 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931285&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-8-18 14:16</a>
+
+单说丑不是一直很丑</blockquote>
+只能说，如果你懂点设计就不会这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -341,3 +341,13 @@ gamers的特典送ob一串字母小姐的立牌和吧唧
 
 wsd：我将通过丢飞镖的方式决定特典用哪个立绘并很高兴的告诉你我们最后丢出了风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 22235#       发表于 2024-8-18 10:34
+
+一想到立牌很可能是前面鬼图里抽一个就毫无动力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说拉丝也是这种抽象风格的封面吧
+

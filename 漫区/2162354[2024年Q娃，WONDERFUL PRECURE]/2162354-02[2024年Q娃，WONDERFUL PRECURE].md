@@ -113,3 +113,14 @@ friendy precure(√)
 
 解决肯定还是能有合理的解决方法的，但就现在q娃这样，我是信任不了一点，先降低期待就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2031#       发表于 2024-8-18 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65929204&amp;ptid=2162354" target="_blank">HANDAIYV 发表于 2024-8-18 10:30</a>
+
+解决肯定还是能有合理的解决方法的，但就现在q娃这样，我是信任不了一点，先降低期待就是了 ...</blockquote>
+最简单的办法就是把锅甩给还没出现的真黑幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

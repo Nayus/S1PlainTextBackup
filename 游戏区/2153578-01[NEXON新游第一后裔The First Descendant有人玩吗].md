@@ -355,3 +355,28 @@ S1 PV上来就是毒妈拍屁股
 那个什么分裂细胞的小boss还会 ...</blockquote>
 开荒要堆体力和防御，模组找加体力和防御的升满带上。然后外部组件不管等级，找防御和体力最高的带上，立刻变硬。
 
+
+*****
+
+####  jbjack1215  
+##### 159#       发表于 2024-8-18 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65932569&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-8-18 16:41</a>
+
+开荒要堆体力和防御，模组找加体力和防御的升满带上。然后外部组件不管等级，找防御和体力最高的带上，立 ...</blockquote>
+别堆防御和抗性
+
+有人测过实际有效hp
+
+四个外挂部件只要无脑堆体力就行了，套装大多数鸡肋，终局资源不匮乏再去考虑套装
+
+防御的瓶颈很低，不用特地堆，抗性更搞笑，除了免疫卡，巨魔战也没人堆抗性的
+
+*****
+
+####  三郷　雫  
+##### 160#       发表于 2024-8-18 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草，刷子游戏狂堆命，让我想到暗黑2
+顺便护盾用堆吗？
+

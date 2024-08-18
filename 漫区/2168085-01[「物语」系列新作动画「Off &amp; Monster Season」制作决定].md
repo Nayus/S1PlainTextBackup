@@ -962,3 +962,11 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 [https://www.bilibili.com/video/BV1TT421r7pW/](https://www.bilibili.com/video/BV1TT421r7pW/)
 
+
+*****
+
+####  Yinacona  
+##### 719#       发表于 2024-8-18 17:01
+
+我说怎么搜不到7，这周原来是6.5.。要不是最后直接报名字+难顶的ed还真觉得自己开错动画了
+

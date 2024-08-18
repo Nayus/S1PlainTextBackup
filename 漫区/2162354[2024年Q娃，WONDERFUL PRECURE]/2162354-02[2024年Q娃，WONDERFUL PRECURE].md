@@ -260,3 +260,15 @@ friendy precure(√)
 
 结局肯定是和解，但是和解的过程写不好又会是一个派Q和空Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ΣPRC  
+##### 2045#       发表于 2024-8-19 00:39
+
+<blockquote>starring 发表于 2024-8-18 23:40
+剧情终于好起来，但是这对立分分钟写崩
+
+结局肯定是和解，但是和解的过程写不好又会是一个派Q和空Q ...</blockquote>
+首先，空Q没跟最终boss和解
+

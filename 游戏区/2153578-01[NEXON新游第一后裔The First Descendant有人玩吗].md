@@ -637,3 +637,24 @@ S1 PV上来就是毒妈拍屁股
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jbjack1215  
+##### 179#       发表于 2024-8-19 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65936548&amp;ptid=2153578" target="_blank">Ashice 发表于 2024-8-19 00:26</a>
+
+话说，蓝紫武器是不是纯过度啊？
+
+玩了半个晚上有点想下回wf了</blockquote>
+痕迹器官（连发火箭弹）
+
+森林视线（狙击）
+
+这两把以外全是过度，但这两把也不是说就值得极化，只是说可以拿著用用，如果你真的需要紫弹武器的话
+
+主要开荒就是把雷暴装等升级上去
+
+目前游戏的枪械平衡性巨烂无比，一支手能数完值得培养的武器，内裤松已经表明在加强枪械部分了
+

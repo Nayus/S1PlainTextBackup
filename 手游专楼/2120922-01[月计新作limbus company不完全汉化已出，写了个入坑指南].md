@@ -131,3 +131,11 @@
 
 希望下期瓦夜卡池子能优化一下吧，上次5up黑暗锅真的不想再抽一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 836#       发表于 2024-8-19 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次我300抽才抽出人格
+

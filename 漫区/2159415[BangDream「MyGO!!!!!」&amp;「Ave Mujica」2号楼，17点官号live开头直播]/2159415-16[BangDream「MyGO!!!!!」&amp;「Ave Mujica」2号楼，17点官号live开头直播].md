@@ -265,3 +265,13 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 
 这不就是萝画风的无人封面么，二代萝和一代萝统一画风不是很合理吗
 
+
+*****
+
+####  星天观测  
+##### 22227#       发表于 2024-8-18 09:07
+
+别二代萝了，到了某些阴湿sb眼里又成鸡推在不自量力贷款了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还是喜欢一单和迷你一专的那种
+

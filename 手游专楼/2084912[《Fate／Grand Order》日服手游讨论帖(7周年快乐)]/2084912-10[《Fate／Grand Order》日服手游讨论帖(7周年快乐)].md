@@ -10116,3 +10116,25 @@ wada你是被隔壁的平井传染了吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你醒啦?
 
+
+*****
+
+####  森兰丸  
+##### 14266#       发表于 2024-8-18 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65934678&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-18 20:43</a>
+
+你醒啦?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人老了看不动这些前瞻情报什么的了
+
+
+*****
+
+####  alucardcz  
+##### 14267#       发表于 2024-8-18 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65934726&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-18 20:48</a>
+
+人老了看不动这些前瞻情报什么的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹豹毕竟只负责豹
+

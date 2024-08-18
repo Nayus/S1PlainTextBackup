@@ -389,3 +389,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  苍蓝之枪  
+##### 4988#       发表于 2024-8-18 23:28
+
+给狙也过不了，这次还是最多击破两个
+

@@ -570,3 +570,22 @@ S1 PV上来就是毒妈拍屁股
 
 如果半路退坑，那就更不用考虑那么多了，随便吃
 
+
+*****
+
+####  レオナ  
+##### 175#       发表于 2024-8-18 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65935508&amp;ptid=2153578" target="_blank">jbjack1215 发表于 2024-8-18 22:30</a>
+
+我的看法是
+
+这游戏你不一定能耐著性子刷下去
+
+及时行乐，用掉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这枪我做出来后都没继承过等级，继承等级那个素材都没舍得用
+
+这枪真的特别改变体验吗....那我就升一把试试
+
+扩容道具先留着了，延迟享受万岁<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+

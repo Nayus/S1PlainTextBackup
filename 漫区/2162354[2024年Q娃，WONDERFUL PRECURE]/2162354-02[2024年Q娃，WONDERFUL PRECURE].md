@@ -95,3 +95,21 @@ friendy precure(√)
 
 想不出来这反派最后到底要怎么解决 打死肯定是不行的 和解感觉又变成了自说自话 毕竟现实日本狼是真的被灭绝了啊
 
+
+*****
+
+####  pokemon最爱  
+##### 2029#       发表于 2024-8-18 10:25
+
+这剧情一下子就加速了，很有传统Q娃那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过灭绝动物这个问题可是真的最难写的展开，不知道最后会怎么处理，这可是个大雷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HANDAIYV  
+##### 2030#       发表于 2024-8-18 10:30
+
+解决肯定还是能有合理的解决方法的，但就现在q娃这样，我是信任不了一点，先降低期待就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

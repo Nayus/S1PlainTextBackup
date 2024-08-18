@@ -2262,3 +2262,42 @@ nagi北上广在一周就全通啊，工作都不好做啊
 
 BL剧的周边出一下，谢谢
 
+
+*****
+
+####  仟音一心  
+##### 20935#       发表于 2024-8-18 16:20
+
+武士道卡牌游戏，不是手游
+<img src="https://p.sda1.dev/19/5acb2fb29b2f3853acf209bc4c7cd993/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 20936#       发表于 2024-8-18 16:51
+
+这么隆重应该是有新卡面的吧
+
+*****
+
+####  starring  
+##### 20937#       发表于 2024-8-18 17:01
+
+叔叔有份参与，简中应该不成问题
+
+*****
+
+####  太阳寺太守  
+##### 20938#       发表于 2024-8-18 17:19
+
+拉拉系列第一次出卡牌吗，早干嘛去了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+— from HONOR MAA-AN10, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  离心  
+##### 20939#       发表于 2024-8-18 17:23
+
+我还以为经历过手游这些破事早就把武士道踢了呢，结果还在啊
+

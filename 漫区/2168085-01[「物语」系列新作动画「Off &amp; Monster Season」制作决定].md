@@ -923,3 +923,21 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 这ed简直是恐袭<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 716#       发表于 2024-8-18 12:27
+
+之前制作人说网络播放单集时长可以更自由，看了下确实是这样，不光是愚物语，抚物语的时长也挺自由的。
+
+<img src="https://img.saraba1st.com/forum/202408/18/122501fzebp104w9b0wbfp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-18 12:25 上传
+
+但是实际上抚物语的时长差距基本都是90秒，所以真要在tv播的话也可以传统艺能剪oped<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

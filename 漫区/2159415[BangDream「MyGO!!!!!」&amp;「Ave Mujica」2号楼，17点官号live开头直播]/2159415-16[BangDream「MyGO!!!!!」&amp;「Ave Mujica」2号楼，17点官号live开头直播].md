@@ -442,3 +442,11 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 最贵的那个版本其实还是可以接受的
 后面两个版本的和窗框差不多有点迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22247#       发表于 2024-8-18 12:30
+
+【【佐佐木李子】李子Vlog——中国粉丝见面会之上海的回忆（上）】 [https://www.bilibili.com/video/BV13GeuexEDi/](https://www.bilibili.com/video/BV13GeuexEDi/)
+

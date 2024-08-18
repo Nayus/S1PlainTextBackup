@@ -250,3 +250,18 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 然而推上似乎对这个封面接受度还不错</blockquote>
 至少比鬼图强吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22225#       发表于 2024-8-18 08:58
+
+我不好说这个和鬼图哪个更难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫吹兰  
+##### 22226#         楼主| 发表于 2024-8-18 09:00
+
+这不就是萝画风的无人封面么，二代萝和一代萝统一画风不是很合理吗
+

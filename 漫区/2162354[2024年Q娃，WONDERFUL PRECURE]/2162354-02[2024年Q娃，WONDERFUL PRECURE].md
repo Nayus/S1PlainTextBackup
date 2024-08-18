@@ -50,3 +50,11 @@ X: @ulsRnj1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反派跟人类主角调情还行
 
+
+*****
+
+####  犬飼いろは  
+##### 2024#       发表于 2024-8-18 08:20
+
+第 29 集的 TVer 源（含日字）：magnet:?xt=urn:btih:dddfc32338b4840c699a859230357c3404e42351
+

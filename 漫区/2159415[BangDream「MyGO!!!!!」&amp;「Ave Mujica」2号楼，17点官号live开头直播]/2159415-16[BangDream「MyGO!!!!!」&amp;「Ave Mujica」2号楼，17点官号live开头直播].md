@@ -464,3 +464,13 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 甚至用几乎同样的元素，限定盘比其他三种好看很多，这显然就是设计水平和审美的问题
 
+
+*****
+
+####  PDQ4  
+##### 22249#       发表于 2024-8-18 13:34
+
+那个框塑料感真的很重，五种元素也完全没考虑糅合过度在一起，甚至用来分割的内框和外框是一个粗细的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+好久没见过这么敷衍的设计了
+

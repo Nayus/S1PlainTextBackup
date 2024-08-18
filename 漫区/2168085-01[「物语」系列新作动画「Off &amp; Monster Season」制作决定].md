@@ -1004,3 +1004,14 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 原来是抚子篇
 
+
+*****
+
+####  5353  
+##### 724#       发表于 2024-8-18 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65934998&amp;ptid=2168085" target="_blank">依然荏苒 发表于 2024-8-18 21:22</a>
+
+整个外传都是抚子篇？</blockquote>
+接下来是业物语，讲小忍变吸血鬼的那段故事。
+

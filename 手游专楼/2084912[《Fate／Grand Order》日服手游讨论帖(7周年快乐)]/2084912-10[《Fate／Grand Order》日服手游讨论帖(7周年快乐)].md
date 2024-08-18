@@ -10138,3 +10138,11 @@ wada你是被隔壁的平井传染了吗
 人老了看不动这些前瞻情报什么的了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹豹毕竟只负责豹
 
+
+*****
+
+####  保罗赫伯特  
+##### 14268#       发表于 2024-8-18 21:34
+
+除了马修之外，唯一一个打狂白字的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

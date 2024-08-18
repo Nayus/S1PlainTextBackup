@@ -450,3 +450,17 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 【【佐佐木李子】李子Vlog——中国粉丝见面会之上海的回忆（上）】 [https://www.bilibili.com/video/BV13GeuexEDi/](https://www.bilibili.com/video/BV13GeuexEDi/)
 
+
+*****
+
+####  Aendst  
+##### 22248#       发表于 2024-8-18 13:06
+
+封面使用的元素抽象和封面设计难看是两回事
+
+一迷你专一单元素也很抽象，疑似月球表面，法阵，材质底纹都很抽象，但是设计好看
+
+萝和ras也是一样的，很抽象但是很摇滚乐队，设计是有审美的，是好看的，论设计元素可以比较火鸟和这张元素的封面，这能是一个审美水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至用几乎同样的元素，限定盘比其他三种好看很多，这显然就是设计水平和审美的问题
+

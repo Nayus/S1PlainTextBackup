@@ -250,3 +250,13 @@ friendy precure(√)
 
 相信东映，相信成田<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 2044#       发表于 2024-8-18 23:40
+
+剧情终于好起来，但是这对立分分钟写崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结局肯定是和解，但是和解的过程写不好又会是一个派Q和空Q<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

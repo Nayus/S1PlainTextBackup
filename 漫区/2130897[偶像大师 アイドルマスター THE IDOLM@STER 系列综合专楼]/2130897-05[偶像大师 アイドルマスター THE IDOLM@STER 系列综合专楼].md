@@ -1673,3 +1673,51 @@ livehouse他就得不用棒子打手指艺，唱到高潮的时候拍一拍旁�
 
 这新歌感觉不太搭,没ego带劲
 
+
+*****
+
+####  BQlin  
+##### 6187#       发表于 2024-8-18 15:19
+
+曲风变化很大，唱起来也没拼命感
+
+*****
+
+####  joshua1990  
+##### 6188#       发表于 2024-8-18 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">唱这个新组曲呀，小黄彻底不夹了
+
+*****
+
+####  BQlin  
+##### 6189#       发表于 2024-8-18 15:21
+
+这歌完全听不清
+
+
+*****
+
+####  Seeley  
+##### 6190#       发表于 2024-8-18 15:23
+
+感觉好微妙<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  joshua1990  
+##### 6191#       发表于 2024-8-18 15:26
+
+收音稀烂唱这种歌确实是糊的不行，代哥你行不行呀
+
+*****
+
+####  raimouse  
+##### 6192#       发表于 2024-8-18 15:26
+
+这新歌我一直觉得也不怎么好听
+
+不如冠菊
+

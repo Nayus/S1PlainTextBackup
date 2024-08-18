@@ -676,3 +676,32 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 坏消息：只有中之人供给
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22269#       发表于 2024-8-18 15:20
+
+现在这么难熬弄真有一部分责任吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4000多张照片，每天发一张感觉会好很多
+
+
+*****
+
+####  adcdqre  
+##### 22270#       发表于 2024-8-18 15:23
+
+mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aendst  
+##### 22271#       发表于 2024-8-18 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">倒是真的也不能天天发，毕竟还有其他工作呢
+
+现在这种程度已经是营业力max了
+
+不如说4000张到底是怎么照的到底出去玩了多少次，实在是有点匪夷所思
+

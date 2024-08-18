@@ -399,3 +399,13 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 鬼图 鬼图 还是tmd鬼图
 
+
+*****
+
+####  星天观测  
+##### 22242#       发表于 2024-8-18 11:17
+
+本来想说wsd能不能给个机会，以后跟萝紫线一样也出单人封面盘（lisa的单人封面也太好看了吧）
+
+一想到你鸡全是鬼图那还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

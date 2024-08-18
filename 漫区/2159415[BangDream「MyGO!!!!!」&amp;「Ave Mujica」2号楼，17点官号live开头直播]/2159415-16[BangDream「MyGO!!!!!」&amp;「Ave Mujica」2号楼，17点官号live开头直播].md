@@ -417,3 +417,19 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这个封面怎么了？我觉得挺有摇滚乐队内味儿的
 
+
+*****
+
+####  DarthAka  
+##### 22244#       发表于 2024-8-18 12:08
+
+封面不是挺传统的吗，老乐队不都这德性
+
+
+*****
+
+####  NODY  
+##### 22245#       发表于 2024-8-18 12:11
+
+还行吧，这种起码可以摆出来，朱元璋那种我只能包三层塑料纸然后压箱底
+

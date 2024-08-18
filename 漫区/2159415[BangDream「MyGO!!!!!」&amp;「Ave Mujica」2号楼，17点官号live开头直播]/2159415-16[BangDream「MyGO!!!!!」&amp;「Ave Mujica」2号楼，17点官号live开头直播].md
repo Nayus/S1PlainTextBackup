@@ -409,3 +409,11 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 一想到你鸡全是鬼图那还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  枫林不见  
+##### 22243#       发表于 2024-8-18 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这个封面怎么了？我觉得挺有摇滚乐队内味儿的
+

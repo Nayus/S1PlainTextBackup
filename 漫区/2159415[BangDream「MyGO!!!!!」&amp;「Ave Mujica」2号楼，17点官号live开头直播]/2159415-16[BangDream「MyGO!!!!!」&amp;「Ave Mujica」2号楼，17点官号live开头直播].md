@@ -584,3 +584,95 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 就是为什么要拿真人面具说事我不太能圆上
 
+
+*****
+
+####  相坂君  
+##### 22262#       发表于 2024-8-18 15:10
+
+ 本帖最后由 相坂君 于 2024-8-18 15:11 编辑 
+
+可能这位漏油真的很不喜欢真人面具
+
+见过有些人很不喜欢鸡面具经常骂ob一串字母小姐审美拉胯，甚至还写文在文里让角色说出鸡面具多丑，出新图又开始骂你鸡面具了……
+
+颇有一种恨比爱更深<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Aendst| + 1|思路广|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 22263#       发表于 2024-8-18 15:11
+
+算了，不如想想8.30要上asl，这几天她们会不会发几张排练照片吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉七八月好像比之前还难熬
+
+
+*****
+
+####  Aendst  
+##### 22264#       发表于 2024-8-18 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">八月至少有新曲和asl
+
+九月是真的只有一个（可能）鬼图的mv在路上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22265#       发表于 2024-8-18 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931784&amp;ptid=2159415" target="_blank">相坂君 发表于 2024-8-18 15:10</a>
+
+可能这位漏油真的很不喜欢真人面具
+
+见过有些人很不喜欢鸡面具经常骂ob一串字母小姐审美拉胯，甚至还写文在 ...</blockquote>
+真这么不喜欢干嘛不自己去冲官方呢，还“有这精力”，只能说太爱指导了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+漏油已经尽力在圆了，就是好像有点圆不回了
+
+*****
+
+####  相坂君  
+##### 22266#       发表于 2024-8-18 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">相信高尾李子米泽，肯定会发的
+
+其实下个月也很难熬的，歌都发完了，虽然可以等大概率鬼图的mv<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22267#       发表于 2024-8-18 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931824&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-18 15:13</a>
+
+八月至少有新曲和asl
+
+九月是真的只有一个（可能）鬼图的mv在路上</blockquote>
+戳啦，9月10号（应该没记错）是弄的生日，也是可以期待一下的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（我们鸡推的前途真是一片光明啊）
+
+*****
+
+####  Aendst  
+##### 22268#       发表于 2024-8-18 15:17
+
+好消息：还有中之人供给
+
+坏消息：只有中之人供给
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

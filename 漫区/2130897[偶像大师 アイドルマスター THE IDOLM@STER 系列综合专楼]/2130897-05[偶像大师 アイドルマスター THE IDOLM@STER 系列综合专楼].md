@@ -1583,3 +1583,93 @@ livehouse他就得不用棒子打手指艺，唱到高潮的时候拍一拍旁�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ybb也只能夹半首
 
+
+*****
+
+####  BQlin  
+##### 6175#       发表于 2024-8-18 15:02
+
+不知道这次有没有新solo
+
+*****
+
+####  joshua1990  
+##### 6176#       发表于 2024-8-18 15:03
+
+盲猜一个小黄或者小蓝的solo3
+
+*****
+
+####  格雷殿下  
+##### 6177#       发表于 2024-8-18 15:08
+
+不想夹就别夹辣<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 6178#       发表于 2024-8-18 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得没水平就别让人家夹这种声线还出这么难的歌啊
+
+*****
+
+####  joshua1990  
+##### 6179#       发表于 2024-8-18 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">小黄看一看远处的羊宫妃那吧
+
+
+*****
+
+####  Seeley  
+##### 6180#       发表于 2024-8-18 15:12
+
+至少可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  joshua1990  
+##### 6181#       发表于 2024-8-18 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">小蓝的solo3来乐
+
+*****
+
+####  北条早苗  
+##### 6182#       发表于 2024-8-18 15:13
+
+毛球solo3来了
+
+*****
+
+####  wfhtony  
+##### 6183#       发表于 2024-8-18 15:14
+
+10. Unhappy Light // 小鹿なお（＊新曲）
+
+*****
+
+####  Seeley  
+##### 6184#       发表于 2024-8-18 15:14
+
+不开心的小光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  joshua1990  
+##### 6185#       发表于 2024-8-18 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">想听这首的cd版
+
+*****
+
+####  raimouse  
+##### 6186#       发表于 2024-8-18 15:16
+
+这新歌感觉不太搭,没ego带劲
+

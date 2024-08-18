@@ -397,3 +397,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 给狙也过不了，这次还是最多击破两个
 
+
+*****
+
+####  Ryuuseigun  
+##### 4989#       发表于 2024-8-19 02:10
+
+尾工打到康给了9片金的运气不错<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">发电厂金工真的是随便打miss基本没有爽到了
+

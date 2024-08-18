@@ -359,3 +359,19 @@ wsd：我将通过丢飞镖的方式决定特典用哪个立绘并很高兴的�
 
 ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuyin589  
+##### 22237#       发表于 2024-8-18 10:54
+
+感觉特典应该是以太吧，能不能让治癒来画<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22238#       发表于 2024-8-18 11:03
+
+保底要弄一张好看的吧，不过看看端程山wsd干的出来全员鬼图的事情。
+

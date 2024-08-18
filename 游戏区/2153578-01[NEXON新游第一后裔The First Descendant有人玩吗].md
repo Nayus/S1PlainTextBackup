@@ -380,3 +380,22 @@ S1 PV上来就是毒妈拍屁股
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草，刷子游戏狂堆命，让我想到暗黑2
 顺便护盾用堆吗？
 
+
+*****
+
+####  jbjack1215  
+##### 161#       发表于 2024-8-18 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65932744&amp;ptid=2153578" target="_blank">三郷　雫 发表于 2024-8-18 16:59</a>
+
+草，刷子游戏狂堆命，让我想到暗黑2
+
+顺便护盾用堆吗？
+
+还有技能卡是不是每样留两个就行了，多余的都拆? ...</blockquote>
+护盾也不用
+
+护盾吃不太到防御加成，几下就破，除非玩几万的盾牛，不然没有太多意义
+
+技能卡前期就l3把全部重复的都敲成碎片，后期不缺碎片再四卡合一去碰运气（出一些限定卡）
+

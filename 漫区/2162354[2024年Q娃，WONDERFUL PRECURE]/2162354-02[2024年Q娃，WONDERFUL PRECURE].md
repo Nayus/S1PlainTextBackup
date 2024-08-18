@@ -184,3 +184,17 @@ friendy precure(√)
 
 不超过当年蓝猫大眼的下线就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  李霞  
+##### 2037#       发表于 2024-8-18 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931513&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-8-18 14:42</a>
+彩羽抢先体验黑吗喽，却因为怪不但快慢刀读指令还会摇人群殴难度太高被打崩心态
+讲真这话题是你们q ...</blockquote>
+真这么演，之前埋的人宠关系的地雷铁定要炸
+
+麦“狗是从狼驯化的，小麦身上也有狼的血。现在小麦跟人是好朋友哦。”
+狼“哼，被圈养的‘朋友’”
+

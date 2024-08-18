@@ -2333,3 +2333,15 @@ BL剧的周边出一下，谢谢
 看着像是在终章横K拍的，不是上次生放送</blockquote>
 你看天花还有左边的黑色行李箱（中间的大熊不见了，其实还是上次生放送的化妆室<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  csolfans  
+##### 20943#       发表于 2024-8-18 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65935454&amp;ptid=2078110" target="_blank">starring 发表于 2024-8-18 22:23</a>
+你看天花还有左边的黑色行李箱（中间的大熊不见了，其实还是上次生放送的化妆室 ...</blockquote>
+哈哈，还真是
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -6271,3 +6271,39 @@ ps:想到个历史性遗留问题，麻酱老家在哪里？之前尝试着系�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">还是希望她玩游戏开心点，她的情绪对我影响太大了。
 
+
+*****
+
+####  古战场亡魂  
+##### 17183#       发表于 2024-8-18 17:33
+
+<img src="https://img.saraba1st.com/forum/202408/18/173316iawtzrwf88r8uw6s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-18 17:33 上传
+
+*****
+
+####  sino__unnko3  
+##### 17184#       发表于 2024-8-18 18:05
+
+ 本帖最后由 sino__unnko3 于 2024-8-18 18:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65921815&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-8-17 14:56</a>
+怎么又哭了
+1月那次哭的直接尖叫+开骂+锤桌子+西内举报全套好爽，现在有内味了，情绪逐渐崩溃那种感觉()
+又 ...</blockquote>
+去t台拉了下昨天直播这段的音频和视频录像
+https://cowtransfer.com/s/9094d92689b34a 点击链接查看 [ lol.wav ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 5rqcw7 查看；
+
+1月那一段的视频也事主包帮大忙了()https://cowtransfer.com/s/a628f652d21549 点击链接查看 [ VID_20240127_163251.mp4 ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 d9hq6y 查看；
+
+*****
+
+####  古战场亡魂  
+##### 17185#       发表于 2024-8-18 19:36
+
+这么多年了，总算认真的爬分了，甚至开始练习上单鳄鱼了，甚至找最强王者的鳄鱼玩家进行求教。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

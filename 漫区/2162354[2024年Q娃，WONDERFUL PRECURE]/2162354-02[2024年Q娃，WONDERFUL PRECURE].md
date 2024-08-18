@@ -272,3 +272,11 @@ friendy precure(√)
 结局肯定是和解，但是和解的过程写不好又会是一个派Q和空Q ...</blockquote>
 首先，空Q没跟最终boss和解
 
+
+*****
+
+####  李霞  
+##### 2046#       发表于 2024-8-19 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer"> 又该夸一下派对处置战犯的态度了
+

@@ -1015,3 +1015,13 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 整个外传都是抚子篇？</blockquote>
 接下来是业物语，讲小忍变吸血鬼的那段故事。
 
+
+*****
+
+####  moras2694  
+##### 725#       发表于 2024-8-19 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65933941&amp;ptid=2168085" target="_blank">宝儿 发表于 2024-8-18 19:17</a>
+ 神抚子杀刃下心几千次在哪儿段来着 我没印象了</blockquote>
+要么囮要么恋吧，大概率囮。现在回看进度才到猫白，具体记不得了
+

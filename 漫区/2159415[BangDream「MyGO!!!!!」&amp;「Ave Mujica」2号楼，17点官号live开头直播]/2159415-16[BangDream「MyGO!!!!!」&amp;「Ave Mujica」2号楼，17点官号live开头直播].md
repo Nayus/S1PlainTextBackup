@@ -351,3 +351,11 @@ wsd：我将通过丢飞镖的方式决定特典用哪个立绘并很高兴的�
 
 话说拉丝也是这种抽象风格的封面吧
 
+
+*****
+
+####  星天观测  
+##### 22236#       发表于 2024-8-18 10:46
+
+ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

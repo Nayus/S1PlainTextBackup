@@ -325,3 +325,19 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 gamers的特典送ob一串字母小姐的立牌和吧唧
 买不买取决于立牌的柄图是什么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22233#       发表于 2024-8-18 09:59
+
+看好销量继续跌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22234#       发表于 2024-8-18 10:04
+
+wsd：我将通过丢飞镖的方式决定特典用哪个立绘并很高兴的告诉你我们最后丢出了风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

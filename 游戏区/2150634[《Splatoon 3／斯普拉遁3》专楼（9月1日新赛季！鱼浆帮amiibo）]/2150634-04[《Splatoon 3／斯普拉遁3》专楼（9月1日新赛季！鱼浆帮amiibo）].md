@@ -355,3 +355,11 @@ https://splatoon.com.cn/page/57
 
 最后900+又miss两次，然后在999打了16把，一次头目联合都没击破
 
+
+*****
+
+####  墨染白泉  
+##### 4984#       发表于 2024-8-18 10:00
+
+max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

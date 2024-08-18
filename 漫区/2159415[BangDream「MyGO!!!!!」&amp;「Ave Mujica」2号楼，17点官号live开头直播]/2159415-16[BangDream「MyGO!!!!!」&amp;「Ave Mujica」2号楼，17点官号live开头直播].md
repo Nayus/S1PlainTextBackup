@@ -306,3 +306,22 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 
 原来这次封面这么难蚌是漏油们的问题，出列！通通出列！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22231#       发表于 2024-8-18 09:54
+
+还剩两首MV，elements成为鬼图合集的可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+回来吧我的mini专，至少就一首格外瞎眼，我再也不骂神蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22232#       发表于 2024-8-18 09:57
+
+现在唯一的悬念就
+gamers的特典送ob一串字母小姐的立牌和吧唧
+买不买取决于立牌的柄图是什么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

@@ -794,3 +794,11 @@ mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
 
 水煮笋干写的每一篇我都很喜欢，正常又舒适的初祥关系，在现阶段的初祥同人里十分难得
 
+
+*****
+
+####  御幸一也  
+##### 22281#       发表于 2024-8-18 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">初祥的神
+

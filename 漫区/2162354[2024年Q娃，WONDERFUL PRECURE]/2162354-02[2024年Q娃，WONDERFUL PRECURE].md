@@ -216,3 +216,11 @@ friendy precure(√)
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  jaewoongh_  
+##### 2040#       发表于 2024-8-18 18:44
+
+复读“大家都是好朋友”能糊弄过去吗？那岂不是把小友当傻子
+

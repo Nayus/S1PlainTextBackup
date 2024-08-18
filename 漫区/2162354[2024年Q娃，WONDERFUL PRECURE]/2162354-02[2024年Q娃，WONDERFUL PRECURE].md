@@ -280,3 +280,16 @@ friendy precure(√)
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer"> 又该夸一下派对处置战犯的态度了
 
+
+*****
+
+####  starring  
+##### 2047#       发表于 2024-8-19 07:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65936643&amp;ptid=2162354" target="_blank">ΣPRC 发表于 2024-8-19 00:39</a>
+首先，空Q没跟最终boss和解</blockquote>
+空Q虽然不是boss，但前代的事就是写烂了。
+派Q则是由依嘴炮失败导致拓海被打导致风评进一步变差，结局做得还好都救不回去
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

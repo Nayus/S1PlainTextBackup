@@ -379,3 +379,13 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 概率真搞，从999跳水到0，过了的没出金，没过的嘎嘎出金
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4987#       发表于 2024-8-18 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一路上900很顺利然后就开始连ng太难受了，顺便这次头目没一次打完的，每次都随不到狙
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

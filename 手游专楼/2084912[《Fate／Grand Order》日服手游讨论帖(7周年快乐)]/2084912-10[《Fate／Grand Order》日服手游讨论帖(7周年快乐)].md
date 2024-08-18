@@ -10146,3 +10146,11 @@ wada你是被隔壁的平井传染了吗
 
 除了马修之外，唯一一个打狂白字的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 14269#       发表于 2024-8-18 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">30石头到账，等二期卡池了！
+

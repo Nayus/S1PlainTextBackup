@@ -1875,3 +1875,11 @@ img_2153.png
 
 但是还是被汇呆这个分身两头卖震惊到了，虽然知道当时日服就有骂声，但真不知道AAA和村正卖那么明显，还好我不是C呆厨，否则便样衰了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  johnkamsar  
+##### 46710#       发表于 2024-8-18 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">200石，2宝泳装c呆，1宝姚兰，2宝铃鹿，1宝小黑，1宝妖精高文，感觉要收手了。。。。。
+

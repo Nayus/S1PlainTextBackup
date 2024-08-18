@@ -6784,3 +6784,52 @@ BGM都做了，这游戏完成度太高了
 
 可惜本人没有那个通关的游戏水平，大概率不会播
 
+
+*****
+
+####  holoan  
+##### 9460#         楼主| 发表于 2024-8-16 20:02
+
+<img src="https://img.saraba1st.com/forum/202408/16/200225q55y444bm3a45p3z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-16 20:02 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  rs5621  
+##### 9461#       发表于 2024-8-18 20:39
+
+<img src="https://img.saraba1st.com/forum/202408/18/203911syrm0rckakcp1pk2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-18 20:39 上传
+
+みみはち
+
+@MimihachiBnbn
+
+冬コミ申し込みました！
+
+去年に引き続き、みこちメインです！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个画师还行
+

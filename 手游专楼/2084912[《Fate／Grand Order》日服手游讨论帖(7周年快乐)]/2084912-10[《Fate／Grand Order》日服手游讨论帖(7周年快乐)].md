@@ -10095,3 +10095,24 @@ wada你是被隔壁的平井传染了吗
 
 公主开减CD的被动后带上黑圣杯好农关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14264#       发表于 2024-8-18 20:37
+
+这兽蕾打今天的狂本怎么是白字
+
+
+*****
+
+####  alucardcz  
+##### 14265#       发表于 2024-8-18 20:43
+
+ 本帖最后由 alucardcz 于 2024-8-18 20:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65934630&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-18 20:37</a>
+
+这兽蕾打今天的狂本怎么是白字</blockquote><img src="https://img.saraba1st.com/forum/202408/04/162607ngji5ii5yhdga5ii.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你醒啦?
+

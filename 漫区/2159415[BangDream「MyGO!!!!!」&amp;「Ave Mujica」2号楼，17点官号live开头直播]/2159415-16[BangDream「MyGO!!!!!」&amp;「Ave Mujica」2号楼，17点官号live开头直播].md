@@ -233,3 +233,20 @@ wsd给mujica搞的所有骚操作都能解释成祥子的问题是吧<img src="h
 
 两眼一黑 可能真是AI作图
 
+
+*****
+
+####  星天观测  
+##### 22223#       发表于 2024-8-18 08:30
+
+然而推上似乎对这个封面接受度还不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 22224#       发表于 2024-8-18 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65928466&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-18 08:30</a>
+然而推上似乎对这个封面接受度还不错</blockquote>
+至少比鬼图强吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

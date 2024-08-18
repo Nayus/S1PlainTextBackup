@@ -1841,3 +1841,33 @@ Resilio: B6D3AFDEMKABQ5VC3R7SH54BDH6VEYG2D （有效期：长期，大概）
 
 夜场的音质比昼场正常多了，FMW也没有瞬间轰头的感觉（当然，也有可能是咱的头已经习惯了）。
 
+
+*****
+
+####  joshua1990  
+##### 6200#       发表于 2024-8-18 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你又没气了
+
+
+*****
+
+####  joshua1990  
+##### 6201#       发表于 2024-8-18 18:37
+
+皮卡丘的solo3<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 6202#       发表于 2024-8-18 18:37
+
+卧槽 今天直接上两首新曲
+
+*****
+
+####  wfhtony  
+##### 6203#       发表于 2024-8-18 18:38
+
+10. ふわふわ // 飯田ヒカル（＊新曲）
+

@@ -363,3 +363,11 @@ https://splatoon.com.cn/page/57
 
 max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 4985#       发表于 2024-8-18 18:36
+
+感觉平均每十几把就要翻一把，这太简单了MAX局也混了很多奇怪的人进来
+

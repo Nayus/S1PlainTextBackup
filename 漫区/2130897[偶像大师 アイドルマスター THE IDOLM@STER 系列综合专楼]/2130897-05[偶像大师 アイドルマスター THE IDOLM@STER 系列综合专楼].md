@@ -1523,3 +1523,41 @@ livehouse他就得不用棒子打手指艺，唱到高潮的时候拍一拍旁�
 
 小鹿的水平明显高出一截
 
+
+*****
+
+####  joshua1990  
+##### 6167#       发表于 2024-8-18 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大家都在进步，小黄你等会能不能给点力呀
+
+*****
+
+####  Seeley  
+##### 6168#       发表于 2024-8-18 14:44
+
+这是体力问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第二段稳定出本音，完全夹不住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  joshua1990  
+##### 6169#       发表于 2024-8-18 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">稳定夹不住
+
+*****
+
+####  北条早苗  
+##### 6170#       发表于 2024-8-18 14:45
+
+饭田这歌就夹不下来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  joshua1990  
+##### 6171#       发表于 2024-8-18 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">前两天发的新歌等会唱不唱呢
+

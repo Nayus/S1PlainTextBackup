@@ -522,3 +522,36 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 但凡你比较的是mygo的CD封面我都当你努力过了
 
+
+*****
+
+####  相坂君  
+##### 22255#       发表于 2024-8-18 14:39
+
+去内框那张，几个元素融合有忘记拉渐变的美，虽然三张放一块对比产生美，也能接受了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 22256#       发表于 2024-8-18 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931453&amp;ptid=2159415" target="_blank">DarthAka 发表于 2024-8-18 14:36</a>
+
+有这精力去冲官方，真人面具怕不是去年就换了</blockquote>
+你说的很好，朱元璋你们冲了吗，没冲去冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有这精力在这顾左右言他装理中客去冲官方，下一张怕不是就不是鬼图了
+
+
+*****
+
+####  Aendst  
+##### 22257#       发表于 2024-8-18 14:44
+
+真是奇了怪了，mygo推骂CD封面丑的时候有mujica推出来说我觉得挺好的不许你们骂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22258#       发表于 2024-8-18 14:46
+
+没见过，毕竟这关鸡推的大火什么事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

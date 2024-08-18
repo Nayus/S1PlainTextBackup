@@ -148,3 +148,15 @@ friendy precure(√)
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 这不已经割起来了，看后续是割得彻底，还是能够醒悟…… 估计是悬，可以先盖板板了，就等敲钉子了。
 
+
+*****
+
+####  上坂莲华  
+##### 2034#       发表于 2024-8-18 14:42
+
+彩羽抢先体验黑吗喽，却因为怪不但快慢刀读指令还会摇人群殴难度太高被打崩心态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+讲真这话题是你们q娃组能碰的吗，到时候搞不好就成洗白犯罪者了，又不能真的把日本狼弄活过来，大暴死预定
+不过后面大概率就是从小麦身上入手了，到时候来个小麦其实有日本狼血脉啥的，然后小麦代表日本狼原谅……活好像太烂了，希望大妈能写好吧
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

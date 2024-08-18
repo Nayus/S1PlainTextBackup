@@ -198,3 +198,11 @@ friendy precure(√)
 麦“狗是从狼驯化的，小麦身上也有狼的血。现在小麦跟人是好朋友哦。”
 狼“哼，被圈养的‘朋友’”
 
+
+*****
+
+####  1096beam  
+##### 2038#       发表于 2024-8-18 18:01
+
+只要小麦说一起玩一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -172,3 +172,15 @@ friendy precure(√)
 
 不如把嘎嗷的神社改造成灭绝动物展览馆吧，嘎嗷担任馆长，俩干部担任讲解员~
 
+
+*****
+
+####  leleq  
+##### 2036#       发表于 2024-8-18 17:16
+
+最像正常Q娃的一集但真的走这剧情了
+
+就凭现在的Q娃staff和日本的风气<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不超过当年蓝猫大眼的下线就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

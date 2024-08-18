@@ -626,3 +626,14 @@ S1 PV上来就是毒妈拍屁股
 
 但雷暴需要升满，甚至满固（流程两把，刷另外三把），一堆角色需要雷暴打aoe
 
+
+*****
+
+####  Ashice  
+##### 178#       发表于 2024-8-19 00:26
+
+话说，蓝紫武器是不是纯过度啊？
+玩了半个晚上有点想下回wf了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -818,3 +818,28 @@ mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
 
 话说这封面是个英文M吧，普普通通的水平
 
+
+*****
+
+####  [皆神孝介]  
+##### 22284#       发表于 2024-8-18 19:00
+
+有没有玩键帽的坛友，说说 沧浪斋×STAR工坊、Aka Kura、SWS败家 这几家质量肿么样<img src="https://static.saraba1st.com/image/smiley/face/117.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22285#       发表于 2024-8-18 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65933203&amp;ptid=2159415" target="_blank">贰臣 发表于 2024-8-18 17:50</a>
+
+万能的漏油有人知道李子上海vlog里面那个吃饭的地方是哪里吗？想和朋友去get同款 ...</blockquote>
+以下是群友原文：
+
+鼎泰丰
+
+说实话不值得去吃）
+
+贵还不好吃
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

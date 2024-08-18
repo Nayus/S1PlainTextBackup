@@ -555,3 +555,20 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 没见过，毕竟这关鸡推的大火什么事呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  相坂君  
+##### 22259#       发表于 2024-8-18 14:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在说封面呢，怎么说面具，这么爱矛盾转移的吗
+
+*****
+
+####  星天观测  
+##### 22260#       发表于 2024-8-18 14:51
+
+因为你们鸡推这么丑的面具都认了，还会觉得其他的丑吗
+
+好几把强盗的给他人设定审美底线，给他研究出新的捂嘴说法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

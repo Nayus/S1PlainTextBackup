@@ -132,3 +132,19 @@ friendy precure(√)
 
 这还不简单，今天的我并不是昨天的我，切割切割
 
+
+*****
+
+####  李霞  
+##### 2033#       发表于 2024-8-18 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65929167&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-8-18 10:25</a>
+这剧情一下子就加速了，很有传统Q娃那味了
+
+不过灭绝动物这个问题可是真的最难写的展开，不知道最后会怎么处 ...</blockquote>
+猫“灭绝狼的是以前的人”
+悟“在狼看起来都一样”
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+这不已经割起来了，看后续是割得彻底，还是能够醒悟…… 估计是悬，可以先盖板板了，就等敲钉子了。
+

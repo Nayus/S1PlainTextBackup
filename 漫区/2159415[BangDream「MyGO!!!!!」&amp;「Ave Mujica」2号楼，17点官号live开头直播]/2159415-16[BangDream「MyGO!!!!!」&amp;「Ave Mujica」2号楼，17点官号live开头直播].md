@@ -375,3 +375,27 @@ ras的封面比元素专好看多了吧<img src="https://static.saraba1st.com/im
 
 保底要弄一张好看的吧，不过看看端程山wsd干的出来全员鬼图的事情。
 
+
+*****
+
+####  星天观测  
+##### 22239#       发表于 2024-8-18 11:06
+
+说不定保底好看的那张是火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22240#       发表于 2024-8-18 11:11
+
+第五元素总该上点心吧，何况还是和寻找光相对应的。
+
+
+*****
+
+####  skives  
+##### 22241#       发表于 2024-8-18 11:12
+
+鬼图 鬼图 还是tmd鬼图
+

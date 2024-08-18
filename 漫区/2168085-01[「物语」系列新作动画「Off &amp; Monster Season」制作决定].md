@@ -949,3 +949,16 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 蹲个6.5话熟肉
 
+
+*****
+
+####  Junglemgs  
+##### 718#       发表于 2024-8-18 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65931815&amp;ptid=2168085" target="_blank">siansian 发表于 2024-8-18 15:12</a>
+
+蹲个6.5话熟肉</blockquote>
+物语圈在b站上已经发了
+
+[https://www.bilibili.com/video/BV1TT421r7pW/](https://www.bilibili.com/video/BV1TT421r7pW/)
+

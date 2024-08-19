@@ -10382,3 +10382,15 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  jackyhuang  
+##### 14291#       发表于 2024-8-19 17:53
+
+今天的剧情就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+仔细想想代入兽蕾视角不是不能理解啦，突然遭遇天大的问题一筹莫展时有个人主动来帮忙解决（虽然现在还没找到办法），一起保守秘密（虽然大家都发现了），这好感度不刷爆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

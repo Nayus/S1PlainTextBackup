@@ -871,3 +871,11 @@ mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
 
 虫が平気•ダメのイメージ
 
+
+*****
+
+####  461757753  
+##### 22288#       发表于 2024-8-19 21:07
+
+mygo的剧场版可能上映多长时间？后篇如果12月底（7th）去还有得看吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

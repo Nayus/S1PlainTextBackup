@@ -843,3 +843,13 @@ mygo丑还是不丑里面音乐如果我不感兴趣的话我也不会买
 贵还不好吃
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  downforce  
+##### 22286#       发表于 2024-8-19 17:35
+
+<img src="https://p.sda1.dev/19/b1f668442b8f16a52eaabcb1b80c9ea2/CMP_20240819173513743.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22061218C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

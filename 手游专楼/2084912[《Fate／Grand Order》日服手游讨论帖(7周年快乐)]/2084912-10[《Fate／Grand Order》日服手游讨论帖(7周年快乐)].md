@@ -10349,3 +10349,11 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水院给技能太烧脑了
 
+
+*****
+
+####  cckuku  
+##### 14288#       发表于 2024-8-19 17:33
+
+全体40atk有点太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

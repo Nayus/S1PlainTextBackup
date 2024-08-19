@@ -372,3 +372,11 @@ friendy precure(√)
 
 成田一直喜欢写误会，最后老狼抛个暴论，主角团从神社为切入点开始嘴炮，最后皆大欢喜包饺子
 
+
+*****
+
+####  1096beam  
+##### 2056#       发表于 2024-8-19 16:55
+
+说不定独角兽也是被上古人类灭绝的<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

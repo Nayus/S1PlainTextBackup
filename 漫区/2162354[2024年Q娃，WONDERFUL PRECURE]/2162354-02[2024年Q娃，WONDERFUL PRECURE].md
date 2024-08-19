@@ -352,3 +352,15 @@ friendy precure(√)
 
 这两年（天空～汪宠）就喜欢开局搞噱头，也不知道今年的访谈里会不会像上年那样推锅找理由
 
+
+*****
+
+####  Arson=desu  
+##### 2054#       发表于 2024-8-19 15:43
+
+ 本帖最后由 Arson=desu 于 2024-8-19 15:44 编辑 
+
+大家滑坡都滑了两天了，来找找有什么能平稳落地的角度吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直接御衡者展开靠友情power穿越时空惨剧回避，最后所有人给还在负隅顽抗的大boss也来个爱的抱抱把他感化成哈士奇皆大欢喜这种白魔法向的饺子馅你们能接受吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

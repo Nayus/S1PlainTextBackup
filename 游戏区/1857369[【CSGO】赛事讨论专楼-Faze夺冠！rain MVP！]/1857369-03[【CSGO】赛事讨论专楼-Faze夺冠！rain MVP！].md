@@ -480,3 +480,22 @@ navi这个钢铁b区绝了
 这个阵容证明确实是有实力的 im打出了一些 ...</blockquote>
 wdf空的关键简单枪太令人窒息了，感觉人都被打蒙了后面
 
+
+*****
+
+####  cnmyster1ous  
+##### 4419#       发表于 2024-8-19 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65938902&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2024-8-19 10:38</a>
+
+wdf空的关键简单枪太令人窒息了，感觉人都被打蒙了后面</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前两次决赛随便打个1.0左右rating兄弟们就把对面抬走了
+
+加上之前对位是西蓝花和状态烂完了的海参 这次是状态不错的番薯 压力不在同一水平
+
+毕竟天生的大场面先生还是少数 19岁小孩进决赛打顶级强队尿了也很正常
+
+反正输比赛这件事情迟早会发生 我觉得这个时间点挺好的 major也拿了 ewc也拿了 现在被top1处刑输掉比赛他才知道作为主狙打真强队不像打网红队一样混着等兄弟们杀就能赢的
+
+如果有心气闯过这道坎的话我都想贷款他明年进TOP5了
+

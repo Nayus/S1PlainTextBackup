@@ -10190,3 +10190,15 @@ wada你是被隔壁的平井传染了吗
 当然菌皇可以后补 ...</blockquote>
 今天剧情不是已经解释了吗，公布的话假期就结束了。
 
+
+*****
+
+####  jackyhuang  
+##### 14273#       发表于 2024-8-19 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65940174&amp;ptid=2084912" target="_blank">芭德薇 发表于 2024-8-19 12:21</a>
+今天剧情不是已经解释了吗，公布的话假期就结束了。</blockquote>
+现在一头雾水找线索还要做样子隐瞒像在过假期吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

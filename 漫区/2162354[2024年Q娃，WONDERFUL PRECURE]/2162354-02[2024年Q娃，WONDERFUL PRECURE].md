@@ -344,3 +344,11 @@ friendy precure(√)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都看了大半年了，即使哭着也要吃下去
 
+
+*****
+
+####  Blackson  
+##### 2053#       发表于 2024-8-19 12:40
+
+这两年（天空～汪宠）就喜欢开局搞噱头，也不知道今年的访谈里会不会像上年那样推锅找理由
+

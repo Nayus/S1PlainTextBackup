@@ -6315,3 +6315,29 @@ https://cowtransfer.com/s/9094d92689b34a 点击链接查看 [ lol.wav ] ，或�
 
 职业选手这么好换位置吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  十九号大侠  
+##### 17187#       发表于 2024-8-18 22:12
+
+就一定要玩上单吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  thisisaspider  
+##### 17188#       发表于 2024-8-19 02:45
+
+职业选手这么好换位置吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TiHaru  
+##### 17189#       发表于 2024-8-19 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65934093&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-8-18 19:36</a>
+这么多年了，总算认真的爬分了，甚至开始练习上单鳄鱼了，甚至找最强王者的鳄鱼玩家进行求教。 ...</blockquote>
+求教这件事出自哪里
+

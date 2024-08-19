@@ -702,3 +702,29 @@ S1 PV上来就是毒妈拍屁股
 
 查看全部评分
 
+
+*****
+
+####  Ashice  
+##### 182#       发表于 2024-8-19 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65939847&amp;ptid=2153578" target="_blank">jbjack1215 发表于 2024-8-19 11:52</a>
+一般常规就是两张攻卡、四张暴卡，射速剩下三个格子就属性攻击、弱点、后座力、精准、装弹量这几个去取舍
+
+ ...</blockquote>
+所以属性卡是额外加属性伤害吗？我插上看DPS没变化就给卸了，还以为是只会加成自身带属性的枪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  レオナ  
+##### 183#       发表于 2024-8-19 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65940462&amp;ptid=2153578" target="_blank">Ashice 发表于 2024-8-19 12:50</a>
+所以属性卡是额外加属性伤害吗？我插上看DPS没变化就给卸了，还以为是只会加成自身带属性的枪
+
+—— 来自 ...</blockquote>
+属性卡有好几种，要先插一种蓝卡，蓝卡会按武器伤害百分比额外提供属性伤，紫卡只能加这个属性伤的伤害
+单独插紫卡好像没用
+

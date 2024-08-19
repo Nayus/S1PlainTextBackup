@@ -10202,3 +10202,15 @@ wada你是被隔壁的平井传染了吗
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  cenhr  
+##### 14274#       发表于 2024-8-19 13:08
+
+日本人吐槽昨天剧情的玛修就如一个为出轨的人渣丈夫向亲友团辩护的可怜妻子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狮子那边玛修是失忆不算，这次主角可是故意隐瞒
+
+看来和自己从者的信赖关系就如屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -10305,3 +10305,39 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 但写得很糟糕就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jackyhuang  
+##### 14284#       发表于 2024-8-19 17:08
+
+兔子王强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  TheLoof  
+##### 14285#       发表于 2024-8-19 17:11
+
+卧槽全体40攻自己还带30魔放
+
+你怎么真被救回来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/19/171108byxpb68ecvkxiw1h.png" referrerpolicy="no-referrer">
+
+<strong>QQ_1724058746040.png</strong> (66.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-19 17:11 上传
+
+*****
+
+####  低调不圆滑  
+##### 14286#       发表于 2024-8-19 17:13
+
+兔子王都强化了，那排在后面的蓝光炮之耻水院是不是也有机会
+

@@ -10214,3 +10214,25 @@ wada你是被隔壁的平井传染了吗
 
 看来和自己从者的信赖关系就如屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 14275#       发表于 2024-8-19 14:51
+
+到目前为止的剧情有点无聊，奈须不会写日常可以不写的...
+
+*****
+
+####  jackyhuang  
+##### 14276#       发表于 2024-8-19 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65940619&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-19 13:08</a>
+日本人吐槽昨天剧情的玛修就如一个为出轨的人渣丈夫向亲友团辩护的可怜妻子
+
+狮子那边玛修是失忆不算，这次 ...</blockquote>
+那必然是两组人以绝妙的默契从两个方向一起把事件解决了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+已经有人感慨菌皇对茄子的塑造终于走上正轨了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

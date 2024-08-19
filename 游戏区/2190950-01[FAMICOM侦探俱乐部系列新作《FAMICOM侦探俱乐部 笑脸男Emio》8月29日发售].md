@@ -2312,3 +2312,14 @@ Re还有异色代码，新作有最佳拍档。任从不缺文字冒险</blockqu
 
 明天就能看到有没改进。
 
+
+*****
+
+####  Sutrid  
+##### 227#       发表于 2024-8-19 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65915924&amp;ptid=2190950" target="_blank">佛罗伦萨 发表于 2024-8-16 22:31</a>
+
+分三次试玩这种形式很少见啊，怎么实现的。是一次下完，然后分批解锁，还是要到点下载三次？ ...</blockquote>
+推更新呗，好像还没见过进了游戏还能有时间锁的
+

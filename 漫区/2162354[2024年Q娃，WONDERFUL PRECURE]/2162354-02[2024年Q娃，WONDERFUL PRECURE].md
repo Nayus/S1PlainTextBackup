@@ -314,3 +314,13 @@ friendy precure(√)
 今年这立意要怎么写啊。。。日本狼和人类是有真正的核心利益冲突的，说句物竞天择你死我活不过分，前面的抱 ...</blockquote>
 谨慎悲观
 
+
+*****
+
+####  pokemon最爱  
+##### 2050#       发表于 2024-8-19 09:52
+
+总之先相信，因为相信是不需要理由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看看今年东映还能整出什么烂活来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

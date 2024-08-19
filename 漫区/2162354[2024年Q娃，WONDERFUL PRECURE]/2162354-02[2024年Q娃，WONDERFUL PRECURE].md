@@ -324,3 +324,15 @@ friendy precure(√)
 
 看看今年东映还能整出什么烂活来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Parahure  
+##### 2051#       发表于 2024-8-19 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65938343&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2024-8-19 09:52</a>
+总之先相信，因为相信是不需要理由的
+
+看看今年东映还能整出什么烂活来</blockquote>
+相信：指相信肯定会崩掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

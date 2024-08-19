@@ -515,3 +515,13 @@ wdf空的关键简单枪太令人窒息了，感觉人都被打蒙了后面</blo
 
 蜀黍现在是top1第一候补了
 
+
+*****
+
+####  雨中曲  
+##### 4422#       发表于 2024-8-19 18:29
+
+这NAVI阵容还是可以的
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

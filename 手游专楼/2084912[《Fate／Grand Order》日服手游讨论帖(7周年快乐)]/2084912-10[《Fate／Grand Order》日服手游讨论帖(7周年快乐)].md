@@ -10290,3 +10290,18 @@ wada你是被隔壁的平井传染了吗
 
 FGO这边的工作除了（大概是很久以前就完成的）设定作成以外，已经全都移交给了茗荷屋
 
+
+*****
+
+####  cenhr  
+##### 14283#       发表于 2024-8-19 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65941623&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-19 14:55</a>
+
+那必然是两组人以绝妙的默契从两个方向一起把事件解决了
+
+已经有人感慨菌皇对茄子的塑造终于走上正轨了</blockquote>
+大概是想写互相关心所以隐瞒，最后心有灵犀一同从不同方向解决问题吧
+
+但写得很糟糕就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

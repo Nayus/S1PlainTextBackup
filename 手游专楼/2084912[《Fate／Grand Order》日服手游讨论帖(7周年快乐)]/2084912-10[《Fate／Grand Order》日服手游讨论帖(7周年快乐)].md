@@ -10166,3 +10166,14 @@ wada你是被隔壁的平井传染了吗
 
 等打完奏三开天赋树就能不换人不重名白纸九十星了
 
+
+*****
+
+####  jackyhuang  
+##### 14271#       发表于 2024-8-19 12:03
+
+遇到兽这么要紧的事为什么首先想着去隐瞒的，特别是其实其他人都已经发现了更显得滑稽了
+当然菌皇可以后补“要是一开始就告诉大家会BALABALA”什么的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

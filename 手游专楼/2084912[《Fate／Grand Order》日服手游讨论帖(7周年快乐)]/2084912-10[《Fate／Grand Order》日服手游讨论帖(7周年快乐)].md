@@ -10341,3 +10341,11 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 兔子王都强化了，那排在后面的蓝光炮之耻水院是不是也有机会
 
+
+*****
+
+####  希望之花  
+##### 14287#       发表于 2024-8-19 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水院给技能太烧脑了
+

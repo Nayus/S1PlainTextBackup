@@ -467,3 +467,16 @@ navi这个钢铁b区绝了
 
 网红队粉丝闹麻了 这么精彩的强强对决还猛带选手节奏 结果主队连4强都进不去 真的幽默
 
+
+*****
+
+####  朔方原的星  
+##### 4418#         楼主| 发表于 2024-8-19 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65937178&amp;ptid=1857369" target="_blank">cnmyster1ous 发表于 2024-8-19 04:21</a>
+
+这次的决赛算是wdf的学费了 希望他能够顶住压力 以后越打越好吧
+
+这个阵容证明确实是有实力的 im打出了一些 ...</blockquote>
+wdf空的关键简单枪太令人窒息了，感觉人都被打蒙了后面
+

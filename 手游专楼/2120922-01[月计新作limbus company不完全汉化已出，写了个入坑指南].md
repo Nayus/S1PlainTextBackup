@@ -177,3 +177,35 @@
 
 而且其实还好，因为和图书馆时期不同，你入手人格之后没法改技能配组，所以小作文再长的人格用起来单纯就是留不留三技能这种简单的注意事项
 
+
+*****
+
+####  Jamaisvu  
+##### 839#       发表于 2024-8-19 20:09
+
+ 本帖最后由 Jamaisvu 于 2024-8-19 20:10 编辑 
+
+汉化版技能：
+
+<img src="https://img.saraba1st.com/forum/202408/19/200928l3hzkqdirhkrkfsm.png" referrerpolicy="no-referrer">
+
+<strong>1724068861917.png</strong> (460.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-19 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202408/19/201005r3mmjk19kcjpn01w.png" referrerpolicy="no-referrer">
+
+<strong>1724069396968.png</strong> (197.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-19 20:10 上传
+
+其实还是挺好理解的，可以手动变身的菲辛plus，就是专属buff比较多。
+
+到手后我去要试试带缚王ego单刷蛙蛙，希望比船夫更快吧。
+

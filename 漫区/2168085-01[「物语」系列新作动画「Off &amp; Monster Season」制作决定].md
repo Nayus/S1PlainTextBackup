@@ -1068,3 +1068,48 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 之前不喜欢ed也没啥特殊感觉，这次ed跳出来真的被吓到了一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  s1-5-5  
+##### 730#       发表于 2024-8-20 01:07
+
+都看这么多年了，真无所谓吧就，反正也不会盯着看，出源都记不住了。
+
+*****
+
+####  moras2694  
+##### 731#       发表于 2024-8-20 01:12
+
+囮物语没提杀小忍次数的事，明天就到期待的恋物语了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。动画还是不能短时间再刷，隔个五六年也太爽了，跟初见一样
+
+
+*****
+
+####  s1-5-5  
+##### 730#       发表于 2024-8-20 01:07
+
+都看这么多年了，真无所谓吧就，反正也不会盯着看，出源都记不住了。
+
+*****
+
+####  moras2694  
+##### 731#       发表于 2024-8-20 01:12
+
+囮物语没提杀小忍次数的事，明天就到期待的恋物语了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。动画还是不能短时间再刷，隔个五六年也太爽了，跟初见一样
+
+
+*****
+
+####  s1-5-5  
+##### 730#       发表于 2024-8-20 01:07
+
+都看这么多年了，真无所谓吧就，反正也不会盯着看，出源都记不住了。
+
+*****
+
+####  moras2694  
+##### 731#       发表于 2024-8-20 01:12
+
+囮物语没提杀小忍次数的事，明天就到期待的恋物语了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。动画还是不能短时间再刷，隔个五六年也太爽了，跟初见一样
+

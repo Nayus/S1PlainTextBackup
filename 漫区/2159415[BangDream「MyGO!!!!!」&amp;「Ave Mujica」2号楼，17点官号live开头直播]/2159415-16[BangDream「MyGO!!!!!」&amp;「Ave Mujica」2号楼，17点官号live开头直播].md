@@ -938,3 +938,109 @@ mygo的剧场版可能上映多长时间？后篇如果12月底（7th）去还�
 
 当然不排除她确实只是单纯的过生日心情好，毕竟说的是“考虑去看”
 
+
+*****
+
+####  星天观测  
+##### 22295#       发表于 2024-8-20 00:32
+
+感觉要给独角兽这姨姥爽到了啊
+
+*****
+
+####  NODY  
+##### 22296#       发表于 2024-8-20 00:36
+
+还是有值得乐观的地方的，李子祝贺的时候说了她非常喜欢独角兽的剧情，所以初华可能赢很大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22297#       发表于 2024-8-20 00:50
+
+去年茜叫绫奈さん　今年叫先生  强行加戏脑补一下就是喵梦的剧情很厉害很感人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 22298#       发表于 2024-8-20 01:00
+
+ 本帖最后由 ydsbbt 于 2024-8-20 01:03 编辑 
+
+独角兽祥子原型说（x
+
+<img src="https://img.saraba1st.com/forum/202408/20/005913fokn833o3h93hcct.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-20-00-54-42-96_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (93.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 00:59 上传
+
+*****
+
+####  NODY  
+##### 22299#       发表于 2024-8-20 01:06
+
+但祥子不是狮子座吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22300#       发表于 2024-8-20 01:24
+
+李子那个喜欢我怎么感觉更像是公式客套啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22295#       发表于 2024-8-20 00:32
+
+感觉要给独角兽这姨姥爽到了啊
+
+*****
+
+####  NODY  
+##### 22296#       发表于 2024-8-20 00:36
+
+还是有值得乐观的地方的，李子祝贺的时候说了她非常喜欢独角兽的剧情，所以初华可能赢很大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22297#       发表于 2024-8-20 00:50
+
+去年茜叫绫奈さん　今年叫先生  强行加戏脑补一下就是喵梦的剧情很厉害很感人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 22298#       发表于 2024-8-20 01:00
+
+ 本帖最后由 ydsbbt 于 2024-8-20 01:03 编辑 
+
+独角兽祥子原型说（x
+
+<img src="https://img.saraba1st.com/forum/202408/20/005913fokn833o3h93hcct.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-20-00-54-42-96_0b2fce7a16bf2b728d6ffa28c8d60efb.jpg</strong> (93.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 00:59 上传
+
+*****
+
+####  NODY  
+##### 22299#       发表于 2024-8-20 01:06
+
+但祥子不是狮子座吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22300#       发表于 2024-8-20 01:24
+
+李子那个喜欢我怎么感觉更像是公式客套啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

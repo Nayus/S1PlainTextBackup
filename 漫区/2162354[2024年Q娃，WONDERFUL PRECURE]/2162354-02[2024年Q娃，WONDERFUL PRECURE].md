@@ -364,3 +364,11 @@ friendy precure(√)
 
 直接御衡者展开靠友情power穿越时空惨剧回避，最后所有人给还在负隅顽抗的大boss也来个爱的抱抱把他感化成哈士奇皆大欢喜这种白魔法向的饺子馅你们能接受吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2055#       发表于 2024-8-19 16:37
+
+成田一直喜欢写误会，最后老狼抛个暴论，主角团从神社为切入点开始嘴炮，最后皆大欢喜包饺子
+

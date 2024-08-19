@@ -407,3 +407,15 @@ friendy precure(√)
 
 但是这种玩意我不觉得Q娃写得出来……
 
+
+*****
+
+####  Arson=desu  
+##### 2059#       发表于 2024-8-19 18:25
+
+ 本帖最后由 Arson=desu 于 2024-8-19 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65943951&amp;ptid=2162354" target="_blank">ΣPRC 发表于 2024-8-19 18:10</a>
+
+最标准的正论是：过去已经无法改变，我们只能珍惜现在仍然存活的生物们；然后展示一下人类现在在动物保护 ...</blockquote>
+弟啊，不说整个q娃系列，就单说犬q这一部演了大半季了连真动过手的猫都已经被修正了害搁这儿用拳头讲道理这话说出来你不觉得有违作品主旨吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

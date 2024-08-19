@@ -1060,3 +1060,11 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 垃圾君每天都去神社估计是动画删减了 只有在对话中才有体现
 
+
+*****
+
+####  鬼谷ask  
+##### 729#       发表于 2024-8-19 18:25
+
+之前不喜欢ed也没啥特殊感觉，这次ed跳出来真的被吓到了一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

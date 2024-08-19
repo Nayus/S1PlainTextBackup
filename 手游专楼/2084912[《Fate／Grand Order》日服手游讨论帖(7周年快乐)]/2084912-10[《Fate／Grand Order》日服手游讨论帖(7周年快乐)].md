@@ -10177,3 +10177,16 @@ wada你是被隔壁的平井传染了吗
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  芭德薇  
+##### 14272#       发表于 2024-8-19 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65939970&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-19 12:03</a>
+
+遇到兽这么要紧的事为什么首先想着去隐瞒的，特别是其实其他人都已经发现了更显得滑稽了
+
+当然菌皇可以后补 ...</blockquote>
+今天剧情不是已经解释了吗，公布的话假期就结束了。
+

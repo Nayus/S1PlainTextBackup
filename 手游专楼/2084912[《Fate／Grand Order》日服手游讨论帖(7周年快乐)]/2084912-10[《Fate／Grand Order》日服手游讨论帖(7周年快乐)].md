@@ -10394,3 +10394,18 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  シャル  
+##### 14292#       发表于 2024-8-19 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65943744&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-19 17:53</a>
+
+今天的剧情就这
+
+仔细想想代入兽蕾视角不是不能理解啦，突然遭遇天大的问题一筹莫展时有个人主动来帮忙解决 ...</blockquote>
+所以beast权能给变质了
+
+反宇宙直接没了
+

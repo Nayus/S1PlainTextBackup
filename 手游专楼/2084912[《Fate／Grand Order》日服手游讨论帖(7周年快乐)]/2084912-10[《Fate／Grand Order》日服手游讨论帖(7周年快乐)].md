@@ -10357,3 +10357,28 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 全体40atk有点太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 14289#       发表于 2024-8-19 17:36
+
+团长的万圣节后续剧情什么时候出啊，星空？星空呢？
+
+<img src="https://img.saraba1st.com/forum/202408/19/173537d3jdc03n6nznkv3t.png" referrerpolicy="no-referrer">
+
+<strong>CDA72C2E23BE63433C923C19A0DFCB08.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-19 17:35 上传
+
+*****
+
+####  漆黑之花  
+##### 14290#       发表于 2024-8-19 17:39
+
+刚想用兽蕾和兔子王组队就给强化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

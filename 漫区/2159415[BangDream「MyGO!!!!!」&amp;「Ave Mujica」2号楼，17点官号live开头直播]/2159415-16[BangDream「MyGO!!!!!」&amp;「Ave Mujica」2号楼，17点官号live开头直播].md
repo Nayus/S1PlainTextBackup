@@ -918,3 +918,23 @@ mygo的剧场版可能上映多长时间？后篇如果12月底（7th）去还�
 
 在祥子一个人身上把她喜欢的各种类型cp都给写爽了 这就是效率论吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KirigawaMaki  
+##### 22293#       发表于 2024-8-19 23:22
+
+鸡狗live独角兽还是提过不少次的，现地也去过
+
+*****
+
+####  NODY  
+##### 22294#       发表于 2024-8-19 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65947813&amp;ptid=2159415" target="_blank">KirigawaMaki 发表于 2024-8-19 23:22</a>
+
+鸡狗live独角兽还是提过不少次的，现地也去过</blockquote>
+那是切割前，切割后这是第一次提
+
+当然不排除她确实只是单纯的过生日心情好，毕竟说的是“考虑去看”
+

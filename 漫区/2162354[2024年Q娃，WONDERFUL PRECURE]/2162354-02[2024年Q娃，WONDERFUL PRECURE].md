@@ -303,3 +303,14 @@ friendy precure(√)
 明明有些剧情就别碰别写 怎么写都会写争议
 即使能包饺子 饺子陷也是漏的
 
+
+*****
+
+####  舞野咲  
+##### 2049#       发表于 2024-8-19 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65516273&amp;ptid=2162354" target="_blank">舞野咲 发表于 2024-7-8 07:41</a>
+
+今年这立意要怎么写啊。。。日本狼和人类是有真正的核心利益冲突的，说句物竞天择你死我活不过分，前面的抱 ...</blockquote>
+谨慎悲观
+

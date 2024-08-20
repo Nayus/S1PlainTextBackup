@@ -10427,3 +10427,13 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 唉，C妈和荆轲以及卡米拉的声优田中敦子老师去世了，希望不要换人，好歹留个念想<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  サイトヒメア  
+##### 14295#       发表于 2024-8-20 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">是不是你游头一个他届的CV
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

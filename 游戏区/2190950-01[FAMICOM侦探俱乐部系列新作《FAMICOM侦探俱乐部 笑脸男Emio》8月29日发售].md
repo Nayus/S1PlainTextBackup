@@ -2373,3 +2373,14 @@ Re还有异色代码，新作有最佳拍档。任从不缺文字冒险</blockqu
 想补一下前作，发现完全没降价，无论下载还是二手实体，怎么这样</blockquote>
 数字版不太了解，但是实体版方面，前两作复刻只有限定版有实体版，很难降价的
 
+
+*****
+
+####  Sutrid  
+##### 234#       发表于 2024-8-20 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65951667&amp;ptid=2190950" target="_blank">西多士 发表于 2024-8-20 10:36</a>
+
+女警那块怎么过，说以前好像在哪儿见过，所有选项都试了还是不能往下推进 ...</blockquote>
+调查她的脸，一般对长相、年龄和表情有疑问的环节都是仔细看脸
+

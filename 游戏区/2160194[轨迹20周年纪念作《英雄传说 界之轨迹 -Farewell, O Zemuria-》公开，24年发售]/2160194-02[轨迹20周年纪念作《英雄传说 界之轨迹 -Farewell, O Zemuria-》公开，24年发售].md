@@ -6227,3 +6227,15 @@ NSw　スーパーマリオパーティジャンボリー
 
 但讲道理啊，玩界轨有必要玩ob吗？还是说是因为要补闪轨所以必须先玩ob<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orangee  
+##### 2749#       发表于 2024-8-20 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65940010&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-8-19 12:07</a>
+艹……列祖列宗啊</blockquote>
+这台子摆的真是列祖列宗味道拉满了……
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

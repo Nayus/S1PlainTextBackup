@@ -32,3 +32,19 @@
 
 不多说了我明天屯点月卡以后就没了
 
+
+*****
+
+####  江戸前ルナ  
+##### 1169#         楼主| 发表于 2024-8-20 21:20
+
+这次动了那堆大月卡囤钻党的利益大概了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ <blockquote>補足
+
+旧パス3種の1470カラットは課金11連スカウト3.86回分
+
+1万課金で新パス買ったお釣りで課金11連2回分＋チケ11連1.5回分の計3.5回
+
+11連スカウト回数すら負けるのかよ…</blockquote>
+阿金的小算盘已经有人看穿了，这还不算拿钻石买衣服和亏抽卡等级的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

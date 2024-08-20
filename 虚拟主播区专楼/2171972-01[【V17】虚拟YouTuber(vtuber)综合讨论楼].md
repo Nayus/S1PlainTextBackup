@@ -1998,3 +1998,16 @@ syl
 <img src="https://p.sda1.dev/19/ca7b2bc7f3108c2578491166a8e4ae96/CMP_20240820163128199.jpg" referrerpolicy="no-referrer">
 没想到真的连VR都算进去了，触目惊心.png
 
+
+*****
+
+####  Devi_Lito  
+##### 610#       发表于 2024-8-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65956317&amp;ptid=2171972" target="_blank">渡鸦骑士 发表于 2024-8-20 16:31</a>
+
+没想到真的连VR都算进去了，触目惊心.png</blockquote>
+niji非公式wiki一直是有VR的信息的，每日直播表甚至比VR官号要完整得多
+
+不过非公式wiki里面一直不含VR link和VR star的liver（只有一个单独的liver介绍页面），也是挺有意思的
+

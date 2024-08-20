@@ -1113,3 +1113,18 @@ undead肯定是还要放的啊，这个歌本来就有意指吸血鬼，而且�
 
 囮物语没提杀小忍次数的事，明天就到期待的恋物语了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。动画还是不能短时间再刷，隔个五六年也太爽了，跟初见一样
 
+
+*****
+
+####  Piano-Forest  
+##### 732#         楼主| 发表于 2024-8-20 17:09
+
+业物语PV：[https://youtu.be/wMQY20isBQs](https://youtu.be/wMQY20isBQs)
+
+*****
+
+####  Tachikoma88  
+##### 733#       发表于 2024-8-20 17:13
+
+尊主就说了一句啊，听不出是谁啊
+

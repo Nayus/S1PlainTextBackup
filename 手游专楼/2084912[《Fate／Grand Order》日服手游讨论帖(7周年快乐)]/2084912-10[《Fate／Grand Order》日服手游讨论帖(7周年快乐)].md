@@ -10447,3 +10447,24 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  シャル  
+##### 14297#       发表于 2024-8-20 22:32
+
+ 本帖最后由 シャル 于 2024-8-20 22:33 编辑 
+
+卧槽，这啥赤兔骆驼<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+喷了
+
+9AD57D78-3F12-45FF-A167-149FC6939E21.jpeg
+(469.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/223348j56btjt4o4j7yvvp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

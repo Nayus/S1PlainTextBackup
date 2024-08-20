@@ -10481,3 +10481,15 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 只是辛苦寫劇本盡量回避她們，連活動時出現的雜兵版本也不要加新對白
 
+
+*****
+
+####  khxooo  
+##### 14299#       发表于 2024-8-21 05:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65962394&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-21 00:57</a>
+CV是否/會否換人某程度這問題可以拖一段時間來處理
+
+只是辛苦寫劇本盡量回避她們，連活動時出現的雜兵版本 ...</blockquote>
+活动出来没所谓，反正没有配音，只不过估计没有新皮了。
+

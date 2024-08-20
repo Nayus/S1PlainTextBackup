@@ -405,3 +405,35 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 尾工打到康给了9片金的运气不错<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">发电厂金工真的是随便打miss基本没有爽到了
 
+
+*****
+
+####  绝望队长  
+##### 4990#       发表于 2024-8-20 14:24
+
+兄弟们，目录打满了，真格到S了，再往上打有什么值得拿的奖励吗？
+
+*****
+
+####  绿冰  
+##### 4991#         楼主| 发表于 2024-8-20 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65954704&amp;ptid=2150634" target="_blank">绝望队长 发表于 2024-8-20 14:24</a>
+
+兄弟们，目录打满了，真格到S了，再往上打有什么值得拿的奖励吗？</blockquote>
+真格S+有徽章和X比赛，算是高手对局的起点
+
+目录满级了就不用太在意了，后面没啥太好的，等下赛季
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 绝望队长| + 2|谢谢大佬|
+
+查看全部评分
+

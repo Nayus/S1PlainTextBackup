@@ -954,3 +954,11 @@ jzgg点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 古手川是他現在老婆的原型嗎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ryanghj  
+##### 112#       发表于 2024-8-20 11:17
+
+原作里古手川就有怀孕剧情，小梨斗吃古手川的奶的剧情也有
+

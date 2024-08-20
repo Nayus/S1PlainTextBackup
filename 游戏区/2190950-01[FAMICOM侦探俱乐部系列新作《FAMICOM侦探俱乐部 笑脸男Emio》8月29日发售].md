@@ -2418,3 +2418,14 @@ bs的时间线已经和新作冲突了，证明那部被踢出去了
 
 有无单出前作卡带的
 
+
+*****
+
+####  八神  
+##### 238#       发表于 2024-8-20 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65960168&amp;ptid=2190950" target="_blank">Sutrid 发表于 2024-8-20 21:17</a>
+
+bs的时间线已经和新作冲突了，证明那部被踢出去了</blockquote>
+bs坂本只是挂名监修，不认也正常
+

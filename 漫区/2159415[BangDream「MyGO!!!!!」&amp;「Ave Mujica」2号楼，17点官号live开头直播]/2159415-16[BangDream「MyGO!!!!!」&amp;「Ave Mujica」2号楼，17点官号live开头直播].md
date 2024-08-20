@@ -1052,3 +1052,43 @@ mygo的剧场版可能上映多长时间？后篇如果12月底（7th）去还�
 
 心情整理好了倒是可以指望她在播动画的时候发一下癫，其他的看看就好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 22302#       发表于 2024-8-20 13:09
+
+<img src="https://img.saraba1st.com/forum/202408/20/130539rjvj7bq9w3v4vjwv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3112.jpeg</strong> (254.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:05 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130742rfvkppe9rv4zrb6y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3113.jpeg</strong> (907.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130814wotalwd3ewwe5t56.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3115.jpeg</strong> (284.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130838qeogaiaiomwabx7b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3114.jpeg</strong> (637.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:08 上传
+
+tv放送时官方约的图都挺好的 画师也都是至少十几万粉的 没有底边
+

@@ -468,3 +468,30 @@ friendy precure(√)
 我也相信小日子各阶层里肯定都是有有志之士的，但就从执政层的整体方针来看，他们都做了些什么？
 何止百年前的日本狼，商业捕鲸，海豚湾，排放核污水，连国鸟都能被霍霍光，还是东大给救回来的。
 
+
+*****
+
+####  李霞  
+##### 2064#       发表于 2024-8-19 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65944482&amp;ptid=2162354" target="_blank">不能摸的屁屁 发表于 2024-8-19 19:00</a>
+看完了，有几个疑点值得注意，妮可对人类态度不信任，害怕花园暴露，boss从不黑化动物镇现有的动物，哪怕得 ...</blockquote>
+说穿了，小日子就不配提环保、动保。
+肯定有人会说动画不要上升到现实高度，但面向儿童的动画，要么卖玩具，要么在前者基础上要教书育人，我相信Q娃是后者，虽然天空是够歪的了。
+我也相信小日子各阶层里肯定都是有有志之士的，但就从执政层的整体方针来看，他们都做了些什么？
+何止百年前的日本狼，商业捕鲸，海豚湾，排放核污水，连国鸟都能被霍霍光，还是东大给救回来的。
+
+*****
+
+####  pokemon最爱  
+##### 2065#       发表于 2024-8-20 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65945171&amp;ptid=2162354" target="_blank">李霞 发表于 2024-8-19 20:03</a>
+
+说穿了，小日子就不配提环保、动保。
+
+肯定有人会说动画不要上升到现实高度，但面向儿童的动画，要么卖玩 ...</blockquote>
+鞠躬就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个暴论，其实“切割”这个行为本身没啥问题，有问题的是有罪的人去切割把自己切割刀无罪的群体里躲避应有的报应（
+

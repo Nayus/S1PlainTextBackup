@@ -448,3 +448,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  laosai13  
+##### 4993#       发表于 2024-8-21 06:33
+
+摸鱼看到巧克鱼虎冲到4700+了，希望能圆梦5000xp
+

@@ -48,3 +48,11 @@
 11連スカウト回数すら負けるのかよ…</blockquote>
 阿金的小算盘已经有人看穿了，这还不算拿钻石买衣服和亏抽卡等级的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1170#       发表于 2024-8-20 23:43
+
+这运营脑回路清奇啊，大家买月卡不就为了钻吗？
+

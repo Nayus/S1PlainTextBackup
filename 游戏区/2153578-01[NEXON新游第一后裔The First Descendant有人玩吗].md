@@ -742,3 +742,15 @@ S1 PV上来就是毒妈拍屁股
 去靶场试射，一下会跳出两个数字，其中一个会带属性符号，这个就是属性增伤
 面板不会把这部分直接显示在枪械伤害上，但你往下滑会看到黄色字体的附魔内容
 
+
+*****
+
+####  至高点  
+##### 185#       发表于 2024-8-20 22:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈，通关了刷了一下下雷暴的素材，刷了四十五分钟三个任务来回轮着刷
+
+只掉了一个没有做标记的任务的素材，感觉到有点恶心了
+
+什么时候加低保啊这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

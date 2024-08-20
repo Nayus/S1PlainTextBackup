@@ -1044,3 +1044,11 @@ mygo的剧场版可能上映多长时间？后篇如果12月底（7th）去还�
 
 李子那个喜欢我怎么感觉更像是公式客套啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aendst  
+##### 22301#       发表于 2024-8-20 12:34
+
+心情整理好了倒是可以指望她在播动画的时候发一下癫，其他的看看就好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

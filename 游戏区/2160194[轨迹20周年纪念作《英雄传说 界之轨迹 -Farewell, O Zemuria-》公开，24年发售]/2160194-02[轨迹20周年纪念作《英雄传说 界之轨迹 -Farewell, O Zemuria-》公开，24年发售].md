@@ -6239,3 +6239,14 @@ NSw　スーパーマリオパーティジャンボリー
 
 —— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  妮贝雅  
+##### 2750#       发表于 2024-8-20 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65950643&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-8-20 09:42</a>
+
+但讲道理啊，玩界轨有必要玩ob吗？还是说是因为要补闪轨所以必须先玩ob</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">没有那个必要
+

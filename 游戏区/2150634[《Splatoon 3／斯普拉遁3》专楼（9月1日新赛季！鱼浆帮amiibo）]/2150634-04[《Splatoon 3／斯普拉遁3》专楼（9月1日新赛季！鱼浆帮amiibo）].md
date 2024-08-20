@@ -437,3 +437,14 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 查看全部评分
 
+
+*****
+
+####  KBAC  
+##### 4992#       发表于 2024-8-21 01:14
+
+潮色姐妹的amiibo给的装备一直都是3号的衣服，就从来没给过偶像自己主题的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这次小萤amiibo给的司令帽直接平替打工那个30金鳞片的司令帽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

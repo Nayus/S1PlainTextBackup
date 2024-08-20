@@ -946,3 +946,11 @@ jzgg点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 <img src="https://p.sda1.dev/19/23855065cad72cba850725bc1b21956f/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gary76  
+##### 111#       发表于 2024-8-20 11:12
+
+古手川是他現在老婆的原型嗎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

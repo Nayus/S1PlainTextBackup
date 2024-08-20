@@ -525,3 +525,11 @@ wdf空的关键简单枪太令人窒息了，感觉人都被打蒙了后面</blo
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  S.A.R  
+##### 4423#       发表于 2024-8-20 11:06
+
+apEX在inferno香蕉道那个三杀有一种疯狗的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

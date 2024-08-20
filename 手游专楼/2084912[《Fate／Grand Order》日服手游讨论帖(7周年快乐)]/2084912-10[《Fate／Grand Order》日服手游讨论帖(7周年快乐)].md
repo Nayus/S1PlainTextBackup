@@ -10468,3 +10468,16 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 <img src="https://img.saraba1st.com/forum/202408/20/223348j56btjt4o4j7yvvp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 14298#       发表于 2024-8-21 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65958592&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-20 19:10</a>
+
+唉，C妈和荆轲以及卡米拉的声优田中敦子老师去世了，希望不要换人，好歹留个念想</blockquote>
+CV是否/會否換人某程度這問題可以拖一段時間來處理
+
+只是辛苦寫劇本盡量回避她們，連活動時出現的雜兵版本也不要加新對白
+

@@ -6349,3 +6349,39 @@ https://cowtransfer.com/s/9094d92689b34a 点击链接查看 [ lol.wav ] ，或�
 
 一直视奸可以看在线custom 但是打完不会留记录
 
+
+*****
+
+####  TiHaru  
+##### 17191#       发表于 2024-8-19 10:01
+
+自定义能opgg查的吗
+
+哪个王者啊
+
+*****
+
+####  冰封臧列  
+##### 17192#       发表于 2024-8-19 14:22
+
+一直视奸可以看在线custom 但是打完不会留记录
+
+*****
+
+####  古战场亡魂  
+##### 17193#       发表于 2024-8-20 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65938449&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-8-19 10:01</a>
+
+自定义能opgg查的吗
+
+哪个王者啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/20/203818c9ogzof8cvbb2zf2.png" referrerpolicy="no-referrer">
+
+<strong>1724157475160.png</strong> (114.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 20:38 上传
+

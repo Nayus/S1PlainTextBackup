@@ -10417,3 +10417,13 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 老实说，因为这次提前得知夏天活动是OC3的序幕，所以看主角一行干的事就觉得如果炸了是活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14294#       发表于 2024-8-20 19:10
+
+ 本帖最后由 Jamaisvu 于 2024-8-20 19:12 编辑 
+
+唉，C妈和荆轲以及卡米拉的声优田中敦子老师去世了，希望不要换人，好歹留个念想<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+

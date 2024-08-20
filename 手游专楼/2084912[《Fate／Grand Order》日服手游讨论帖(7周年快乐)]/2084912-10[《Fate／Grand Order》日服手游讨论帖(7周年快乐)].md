@@ -10409,3 +10409,11 @@ FGO这边的工作除了（大概是很久以前就完成的）设定作成以�
 
 反宇宙直接没了
 
+
+*****
+
+####  cenhr  
+##### 14293#       发表于 2024-8-20 09:59
+
+老实说，因为这次提前得知夏天活动是OC3的序幕，所以看主角一行干的事就觉得如果炸了是活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

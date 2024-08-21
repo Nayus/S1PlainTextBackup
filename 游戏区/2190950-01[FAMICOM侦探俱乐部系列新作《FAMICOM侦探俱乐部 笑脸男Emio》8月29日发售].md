@@ -2467,3 +2467,11 @@ bs坂本只是挂名监修，不认也正常
 
 骨骼动作应该用spine做的，我觉得这作的动作没重制版做的自然，画得也不好了
 
+
+*****
+
+####  清浦刹那  
+##### 243#       发表于 2024-8-21 18:23
+
+DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

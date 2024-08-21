@@ -495,3 +495,11 @@ friendy precure(√)
 
 一个暴论，其实“切割”这个行为本身没啥问题，有问题的是有罪的人去切割把自己切割刀无罪的群体里躲避应有的报应（
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2066#       发表于 2024-8-21 15:51
+
+都怪神秘的力量不让我继续战斗了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

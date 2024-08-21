@@ -2437,3 +2437,25 @@ bs坂本只是挂名监修，不认也正常
 
 想问一下需要补前作吗
 
+
+*****
+
+####  leonlink  
+##### 240#       发表于 2024-8-21 15:57
+
+试完了一下，系统非常普通，甚至有一点点不方便，虽然个人不太喜欢人物画风但是全程live2d的制作还是不错的，重启这个系列难不成是对这次的剧本特别满意？
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  leonlink  
+##### 241#       发表于 2024-8-21 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65964924&amp;ptid=2190950" target="_blank">bird-lay 发表于 2024-8-21 10:32</a>
+想问一下需要补前作吗</blockquote>
+可以跟着这几天不断放出的试玩版玩一下，目前就第一章来说基本没有前作的要素
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

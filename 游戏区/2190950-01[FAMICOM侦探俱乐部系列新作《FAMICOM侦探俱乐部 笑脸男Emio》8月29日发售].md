@@ -2475,3 +2475,11 @@ bs坂本只是挂名监修，不认也正常
 
 DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  crosz1985  
+##### 244#       发表于 2024-8-21 18:41
+
+这系统有点复古啊，感觉像在玩90年代的galgame
+

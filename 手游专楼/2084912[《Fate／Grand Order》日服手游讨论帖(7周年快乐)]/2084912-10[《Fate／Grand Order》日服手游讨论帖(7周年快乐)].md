@@ -10560,3 +10560,12 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 什么时候出个技能本把二技能的30魔放变成3T，再加个自充，就更好了。
 
+
+*****
+
+####  TheLoof  
+##### 14307#       发表于 2024-8-21 17:40
+
+这宝具本属于强化了但是没强化到关键的类型了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

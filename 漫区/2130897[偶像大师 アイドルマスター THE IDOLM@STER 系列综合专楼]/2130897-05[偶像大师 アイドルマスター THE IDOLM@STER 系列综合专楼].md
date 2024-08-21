@@ -2065,3 +2065,13 @@ ASOBINOTES那邊是真的急着發曲啊...
 
 还找yostar联动啊，乐
 
+
+*****
+
+####  Ask_10A  
+##### 6217#       发表于 2024-8-22 03:23
+
+原来yaya的华子血脉浓度这么高，高达75%，比之前网传打完3/8高
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

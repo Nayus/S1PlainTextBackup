@@ -10511,3 +10511,15 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 田中敦子阿姨近年是有点莫名其妙地瘦下来了，但是没想到会因病那么早就去世……
 
+
+*****
+
+####  khxooo  
+##### 14302#       发表于 2024-8-21 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65964019&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2024-8-21 09:09</a>
+不太好回避的地方大概是魔伊新动画，虽然可以通过魔改剧本来实现
+
+田中敦子阿姨近年是有点莫名其妙地瘦下来 ...</blockquote>
+估计就是换声优了，毕竟这种事情不是没有发生过。
+

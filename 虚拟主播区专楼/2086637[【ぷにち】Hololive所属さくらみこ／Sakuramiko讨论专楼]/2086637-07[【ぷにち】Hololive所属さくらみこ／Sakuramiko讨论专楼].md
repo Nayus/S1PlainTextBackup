@@ -6852,3 +6852,36 @@ BGM都做了，这游戏完成度太高了
 
 上次ARK服里面过周年纪念日的0点真就服务器里几十个人愣是没有任何一个人记起来miko的纪念日带头给miko庆祝，我真不知道该说什么
 
+
+*****
+
+####  holoan  
+##### 9464#         楼主| 发表于 2024-8-20 22:07
+
+<img src="https://img.saraba1st.com/forum/202408/20/220709u67czlpwswsn46nc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 22:07 上传
+
+突然被叫出去说是什么其他游戏的练习
+
+不知道是什么
+
+*****
+
+####  holoan  
+##### 9465#         楼主| 发表于 2024-8-21 10:59
+
+<img src="https://img.saraba1st.com/forum/202408/21/095453x88lq6fwzw0qq0fz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-21 09:54 上传
+
+拐弯抹角地其实要说的意思是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

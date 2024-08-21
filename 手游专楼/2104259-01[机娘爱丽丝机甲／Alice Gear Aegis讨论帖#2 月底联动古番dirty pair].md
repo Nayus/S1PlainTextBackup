@@ -108,3 +108,14 @@
 —— 来自 鹅球 v3.0.86-alpha ...</blockquote>
 不知道，好像是新旧月卡可以同时生效。但钻石又不会过期，直接开了就是啊
 
+
+*****
+
+####  冰风血羽  
+##### 1176#       发表于 2024-8-21 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65971366&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-8-21 19:00</a>
+
+不知道，好像是新旧月卡可以同时生效。但钻石又不会过期，直接开了就是啊 ...</blockquote>
+我本来打算需要大量开贝的时候再用的，这样一看还是直接用算了
+

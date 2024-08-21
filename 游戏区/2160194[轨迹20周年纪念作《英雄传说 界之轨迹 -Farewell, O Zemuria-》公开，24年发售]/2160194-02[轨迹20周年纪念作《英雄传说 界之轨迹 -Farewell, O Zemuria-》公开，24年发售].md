@@ -6250,3 +6250,18 @@ NSw　スーパーマリオパーティジャンボリー
 但讲道理啊，玩界轨有必要玩ob吗？还是说是因为要补闪轨所以必须先玩ob</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">没有那个必要
 
+
+*****
+
+####  卢迪克  
+##### 2751#       发表于 2024-8-21 14:27
+
+这周fami真没有界轨.....
+
+*****
+
+####  ravend233  
+##### 2752#       发表于 2024-8-21 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大，8月还剩一周（）
+

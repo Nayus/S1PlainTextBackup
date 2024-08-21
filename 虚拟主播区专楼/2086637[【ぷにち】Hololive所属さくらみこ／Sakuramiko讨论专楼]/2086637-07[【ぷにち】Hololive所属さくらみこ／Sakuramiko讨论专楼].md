@@ -6885,3 +6885,36 @@ BGM都做了，这游戏完成度太高了
 
 拐弯抹角地其实要说的意思是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9466#         楼主| 发表于 2024-8-21 12:30
+
+<img src="https://img.saraba1st.com/forum/202408/21/122932egm4miejmltmum6p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-21 12:29 上传
+
+Vjump常连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9467#         楼主| 发表于 2024-8-21 15:29
+
+<img src="https://img.saraba1st.com/forum/202408/21/152731nf4wn3xzixi3k3gm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (273.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-21 15:27 上传
+
+我去，别人跟小豆的geogesser企划都是特别准备跟那个人相关主题的
+
+你就直接上来一个恐怖主题
+

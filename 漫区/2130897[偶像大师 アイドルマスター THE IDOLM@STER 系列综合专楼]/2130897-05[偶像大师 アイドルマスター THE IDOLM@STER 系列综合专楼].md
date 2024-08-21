@@ -2026,3 +2026,26 @@ https://www.bilibili.com/video/BV1UxWweTENM
 
 联动的话，冬优子和圆香感觉是必有的了
 
+
+*****
+
+####  wfhtony  
+##### 6213#       发表于 2024-8-21 23:39
+
+<img src="https://img.saraba1st.com/forum/202408/21/233931t9rz8ztmremaxrqx.png" referrerpolicy="no-referrer">
+
+<strong>191dbb1c-a098-4c1b-bc2b-de0cca3add2f.png</strong> (177.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-21 23:39 上传
+
+ASOBINOTES那邊是真的急着發曲啊...
+
+*****
+
+####  Vacuolar  
+##### 6214#       发表于 2024-8-21 23:42
+
+怎么是百万在发神秘新闻啊，不会这也能整错吧
+

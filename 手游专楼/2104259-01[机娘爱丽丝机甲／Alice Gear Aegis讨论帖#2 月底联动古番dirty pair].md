@@ -95,3 +95,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  江戸前ルナ  
+##### 1175#         楼主| 发表于 2024-8-21 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65971240&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2024-8-21 18:48</a>
+
+中小月卡各买一张放着了，更新之后再启用是不是还是原来的月卡内容？
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+不知道，好像是新旧月卡可以同时生效。但钻石又不会过期，直接开了就是啊
+

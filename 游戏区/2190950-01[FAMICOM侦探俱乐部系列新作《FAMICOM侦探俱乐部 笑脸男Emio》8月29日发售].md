@@ -2483,3 +2483,11 @@ DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2
 
 这系统有点复古啊，感觉像在玩90年代的galgame
 
+
+*****
+
+####  Niyah  
+##### 245#       发表于 2024-8-21 19:01
+
+昨天看了下别人的录屏，感觉每个人头发的晃动都好奇怪
+

@@ -2491,3 +2491,19 @@ DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2
 
 昨天看了下别人的录屏，感觉每个人头发的晃动都好奇怪
 
+
+*****
+
+####  zpower  
+##### 246#       发表于 2024-8-21 19:35
+
+<img src="https://img.saraba1st.com/forum/202408/21/193158ugz3ssqsqfwnida0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-21 19:31 上传
+
+今年有个星影馆杀人事件，也是复古系统。
+

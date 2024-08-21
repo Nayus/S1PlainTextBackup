@@ -1149,3 +1149,13 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 虽然我看小说的时候脑补的是帅大叔来着(
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  居于月上伊莫库  
+##### 736#       发表于 2024-8-22 00:11
+
+ 本帖最后由 居于月上伊莫库 于 2024-8-22 00:13 编辑 
+
+啊，像是田中敦子老师<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">。
+

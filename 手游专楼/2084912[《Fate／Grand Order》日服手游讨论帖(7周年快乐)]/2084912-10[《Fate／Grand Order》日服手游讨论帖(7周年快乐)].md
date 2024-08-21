@@ -10550,3 +10550,13 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 水院太惨了</blockquote>
 这么多buff，做的时候怨气应该不少，所以才不想加强吧，麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14306#       发表于 2024-8-21 17:29
+
+泳装巴御前强化后算是小村正吧，第一回合先靠1T魔放打伤害和回收，之后宝具前置buff越叠越高。
+
+什么时候出个技能本把二技能的30魔放变成3T，再加个自充，就更好了。
+

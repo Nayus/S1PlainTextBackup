@@ -64,3 +64,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">他最近也没啥新衣服啊
 
+
+*****
+
+####  Rincewind  
+##### 1172#       发表于 2024-8-21 10:38
+
+我日，新高难是TAMAYO
+本淡游好久的老咸鱼又给炸出来了
+
+不过这么一来ZUNTATA上世纪的三位代表性人物（Yack.，TAMAYO，OGR）已经来了俩，接下来是不是该请一下最重量级的小仓久佳老先生了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

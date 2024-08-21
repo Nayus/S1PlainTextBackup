@@ -10539,3 +10539,14 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 水院太惨了
 
+
+*****
+
+####  cenhr  
+##### 14305#       发表于 2024-8-21 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65970306&amp;ptid=2084912" target="_blank">angelooo 发表于 2024-8-21 17:13</a>
+
+水院太惨了</blockquote>
+这么多buff，做的时候怨气应该不少，所以才不想加强吧，麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

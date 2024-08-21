@@ -10569,3 +10569,11 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 这宝具本属于强化了但是没强化到关键的类型了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14308#       发表于 2024-8-21 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这些4星泳装宝具本最需要强化的是冲田吧....起码把那个概率晕给弄没了啊
+

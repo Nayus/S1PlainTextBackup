@@ -456,3 +456,15 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 摸鱼看到巧克鱼虎冲到4700+了，希望能圆梦5000xp
 
+
+*****
+
+####  KBAC  
+##### 4994#       发表于 2024-8-22 15:56
+
+大型祭典每天下午五点挤的牙膏至今就没挤出过实质性内容。
+要么是实在没活了，要么是好东西藏在后边了。
+赶紧上第二贴牌，连这个都不上喷3可就连喷1都不如了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

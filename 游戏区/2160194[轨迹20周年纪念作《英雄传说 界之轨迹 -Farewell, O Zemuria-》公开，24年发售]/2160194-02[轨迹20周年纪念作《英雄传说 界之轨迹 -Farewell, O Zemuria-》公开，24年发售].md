@@ -6265,3 +6265,100 @@ NSw　スーパーマリオパーティジャンボリー
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大，8月还剩一周（）
 
+
+*****
+
+####  天王寺凯伊姆  
+##### 2753#       发表于 2024-8-20 09:42
+
+但讲道理啊，玩界轨有必要玩ob吗？还是说是因为要补闪轨所以必须先玩ob<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  orangee  
+##### 2754#       发表于 2024-8-20 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65940010&amp;ptid=2160194" target="_blank">benhawk 发表于 2024-8-19 12:07</a>
+艹……列祖列宗啊</blockquote>
+这台子摆的真是列祖列宗味道拉满了……
+
+—— 来自 OnePlus PGP110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  妮贝雅  
+##### 2755#       发表于 2024-8-20 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65950643&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-8-20 09:42</a>
+
+但讲道理啊，玩界轨有必要玩ob吗？还是说是因为要补闪轨所以必须先玩ob</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">没有那个必要
+
+*****
+
+####  卢迪克  
+##### 2756#       发表于 2024-8-21 14:27
+
+这周fami真没有界轨.....
+
+*****
+
+####  ravend233  
+##### 2757#       发表于 2024-8-21 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大，8月还剩一周（）
+
+*****
+
+####  ravend233  
+##### 2758#       发表于 2024-8-22 10:37
+
+丹娜手办，3W日
+
+这特典脸怎么一股傻味，阿库娅演的是吧
+
+GLC@VNZPM)2TF(2~J_SSGM9.jpg
+(82.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/22/103701h6msgaammugfuzgp.jpg" referrerpolicy="no-referrer">
+
+9QTYS~5TGW1C@DML}A78HAS.jpg
+(67.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/22/103727g6ae16zm5lvs61zl.jpg" referrerpolicy="no-referrer">
+
+[}7Z4O5%KOXJ`[PB%~ZF{Q6.jpg
+(159.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/22/103742vgwwabvgsdwzz0x0.jpg" referrerpolicy="no-referrer">
+
+11`BX3LB`@SRVK{{[P3GYBY.jpg
+(109.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/22/103747tl4v4xhx7xrfljha.jpg" referrerpolicy="no-referrer">
+
+R~4HVXO0J3_F`0]5$T@O05G.jpg
+(103.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/22/103752op69nhhpbtatbbtt.jpg" referrerpolicy="no-referrer">
+

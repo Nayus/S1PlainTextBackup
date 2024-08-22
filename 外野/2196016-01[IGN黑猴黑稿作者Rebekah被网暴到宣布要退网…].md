@@ -806,3 +806,46 @@ WOKE ×
 
 客观党战斗力还不如集美冲明星呢。
 
+
+*****
+
+####  -AKIRA-  
+##### 78#       发表于 2024-8-22 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977833&amp;ptid=2196016" target="_blank">liangxuancheng 发表于 2024-8-22 11:16</a>
+
+你这话说的大快人心，但是14亿，有一说一有点过了，8亿吧，微博上几乎是个女的都在狂黑呢。 ...</blockquote>
+圈子问题，我群里女的比我预购都早 昨天玩了一宿 今天上班睡觉 让我羡慕坏了
+
+*****
+
+####  gstsg  
+##### 79#       发表于 2024-8-22 11:37
+
+不玩黑神话，但这丧家犬这时还能以一副“我害人没成功”的口吻说话，那只能说好死。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  储安平  
+##### 80#       发表于 2024-8-22 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65976420&amp;ptid=2196016" target="_blank">皮划艇日客人 发表于 2024-8-22 09:24</a>
+
+WOKE ×
+
+反市场反自由 √
+
+拳杂和多元匪帮的实质是皿煮邪档的冲锋队利用权力干涉市场，毁灭自由竞争，企图 ...</blockquote>
+看到unrealized capital tax ，不少黄左左破防了
+
+
+*****
+
+####  喧嚣的风酱  
+##### 81#       发表于 2024-8-22 11:43
+
+什么时候不要笑挑战？
+

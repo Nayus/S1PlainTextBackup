@@ -1197,3 +1197,34 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  狼王卢比奥  
+##### 740#       发表于 2024-8-22 20:48
+
+不会是新房吧
+
+*****
+
+####  Piano-Forest  
+##### 741#         楼主| 发表于 2024-8-22 20:48
+
+#07 業物語 あせろらボナペティ 其ノ壹
+
+餓死から目覚めたスーサイドマスターは、自身の眷属であるトロピカレスクから、死んだ原因が『うつくし姫』だと知らされる。彼女の童話を聞き興味をそそられたスーサイドマスターは、トロピカレスクの忠告をよそに、『うつくし姫』を目覚めの一食にする、と彼女を探しに出かけていく。
+
+脚本：大嶋実句
+
+絵コンテ：東冨耶子・青柳隆平
+
+演出：志村 亮
+
+作画監督：伊藤良明・高野晃久・許 有真・河島久美子・高橋みき・清水勝祐・浅井昭人・築山翔太
+
+物語シリーズ
+<img src="https://p.sda1.dev/19/19ac45efcd1731c268e4a177879db087/story_3645_photo_1724306402090848946.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/8c43e9c35eb289831263d11c40429e77/story_3645_photo_1724306402359904159.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/7299a2291af06a4a3d3c9dca837a82c7/story_3645_photo_17243064025759713.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/6d14bdeafb1d09557aa2d707defe97e0/story_3645_photo_1724306402765743319.jpg" referrerpolicy="no-referrer">
+

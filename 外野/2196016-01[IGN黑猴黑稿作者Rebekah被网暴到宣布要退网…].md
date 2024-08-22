@@ -1068,3 +1068,14 @@ resetera：最后避风港！
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Sopp  
+##### 103#       发表于 2024-8-22 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65978906&amp;ptid=2196016" target="_blank">sdeplee 发表于 2024-8-22 12:43</a>
+
+就是这逼伙同国内拳师在IGN发文打响污名化黑神话和国内游戏业界第一枪的 冤有头债有主 活该 ...</blockquote>
+我还以为是评测的作者
+

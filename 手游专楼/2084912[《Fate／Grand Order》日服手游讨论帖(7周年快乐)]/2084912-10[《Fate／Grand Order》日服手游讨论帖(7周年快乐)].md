@@ -10639,3 +10639,16 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 可是原皮都没晕啊....总不能换上泳装后身体更虚弱了吧</blockquote>
 印象中这泳装的源头是被X撞了的急救改造？还真说不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14315#       发表于 2024-8-22 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65983679&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-22 19:51</a>
+
+印象中这泳装的源头是被X撞了的急救改造？还真说不准</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是被装上了那个拆不下来的背包....经过手术装好后身体比起之前也是更健康了
+
+虽然时间长了后会紧急停止不过那都是几百还是几千年后的事了
+

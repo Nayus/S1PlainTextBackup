@@ -10589,3 +10589,13 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  khxooo  
+##### 14310#       发表于 2024-8-22 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65972046&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-21 19:58</a>
+这些4星泳装宝具本最需要强化的是冲田吧....起码把那个概率晕给弄没了啊</blockquote>
+会晕是人设，不能改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

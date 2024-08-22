@@ -1177,3 +1177,13 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 看了下这集分镜里有东富耶子？这不是全体shaft员工的马甲吗，不会是新房来干活了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 738#       发表于 2024-8-22 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65974542&amp;ptid=2168085" target="_blank">居于月上伊莫库 发表于 2024-8-22 00:11</a>
+啊，像是田中敦子老师。</blockquote>
+不太可能。
+

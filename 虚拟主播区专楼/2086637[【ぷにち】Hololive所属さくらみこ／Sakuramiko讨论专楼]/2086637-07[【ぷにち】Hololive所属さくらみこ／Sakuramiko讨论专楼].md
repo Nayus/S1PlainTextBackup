@@ -7022,3 +7022,44 @@ Vjump常连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 悲报，今天开幕地狱绘图确定
 
+
+*****
+
+####  holoan  
+##### 9476#         楼主| 发表于 2024-8-22 14:29
+
+今晚比什么游戏，特地查了一下上个月7字母周年的时候直播说明写的许可
+
+<img src="https://img.saraba1st.com/forum/202408/22/142721lt3t6sjtzt2wm4y3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 14:27 上传
+
+而今天也是写这个
+
+<img src="https://img.saraba1st.com/forum/202408/22/142743k7orrseerane5jou.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 14:27 上传
+
+七字母当时一场直播里玩了3个不同的任天堂版权游戏，所以今天到底会比哪几个很难说，也不一定是51毕竟夸都连续玩3天了观众都腻了
+
+*****
+
+####  holoan  
+##### 9477#         楼主| 发表于 2024-8-22 19:12
+
+<img src="https://img.saraba1st.com/forum/202408/22/191205snaponnpbbb2inap.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 19:12 上传
+

@@ -10607,3 +10607,14 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 草，XXalter肚子饿了后的演出是孤独美食家的捏他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14312#       发表于 2024-8-22 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65982981&amp;ptid=2084912" target="_blank">khxooo 发表于 2024-8-22 18:33</a>
+
+会晕是人设，不能改，我相信很多从者就是为了还原所谓人设这东西才故意设计成各种奇葩的技能的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是原皮都没晕啊....总不能换上泳装后身体更虚弱了吧
+

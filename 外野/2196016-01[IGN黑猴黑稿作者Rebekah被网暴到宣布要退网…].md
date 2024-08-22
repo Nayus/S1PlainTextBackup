@@ -591,3 +591,59 @@ WOKE ×
 
 阿美不是有报警流居合么，阿美人真是心太善了，之前那个打cod还是啥的，直接报警对方住址，然后警察就上门突死了。这种阴阳人烂屁股居然还没被居合。
 
+
+*****
+
+####  1303312165  
+##### 59#       发表于 2024-8-22 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975087&amp;ptid=2196016" target="_blank">ryanghj 发表于 2024-8-22 01:31</a>
+我看到好多懂王支持者红脖在推特狂吹黑神话，魔幻
+
+—— 来自 Xiaomi 2308CPXD0C, Android 14上的 S1Next- ...</blockquote>
+欧洲白右不也被白左折腾到喊欧罗巴宪兵救驾么<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tissuesea  
+##### 60#       发表于 2024-8-22 10:12
+
+这种人早死早超生
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+
+*****
+
+####  1303312165  
+##### 61#       发表于 2024-8-22 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975842&amp;ptid=2196016" target="_blank">刷卡时为零 发表于 2024-8-22 08:20</a>
+这边如果坚持质量，并且有着反政治正确的旗号，是不是鬼佬抢着给你汴京。 ...</blockquote>
+大儒扛着山海关飞奔而来.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  皮划艇日客人  
+##### 62#       发表于 2024-8-22 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65976954&amp;ptid=2196016" target="_blank">1303312165 发表于 2024-8-22 10:10</a>
+
+欧洲白右不也被白左折腾到喊欧罗巴宪兵救驾么</blockquote>
+毕竟毒菜大国俄罗斯财政收入占GDP的比重才17%，还不到皿煮世界盗盟那几个主要的大国的一半<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+然后皿煮大锅们接近GDP快一半的财政收入，养了火烧巴黎的，和在英国捅白人小孩的黑衣战神，都说瓦格纳坏但人家可没拿过英发屁民一毛钱<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  1303312165  
+##### 63#       发表于 2024-8-22 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65976358&amp;ptid=2196016" target="_blank">a317216007 发表于 2024-8-22 09:18</a>
+现在全球WOKE的时代，老钟反而成了极端群眼里最大的老保的国家了么
+
+我只能说，自觉正义者做事情想要客观正 ...</blockquote>
+毕竟游戏界只剩两个半国家敢不鸟lgbt了……
+
+其中一个停滞被制裁半死不活，还有半个岌岌可危，剩下个独苗不就成苦海明灯咯<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+

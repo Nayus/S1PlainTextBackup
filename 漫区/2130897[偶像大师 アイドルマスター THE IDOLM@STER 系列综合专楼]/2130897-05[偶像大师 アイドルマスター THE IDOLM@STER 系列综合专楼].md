@@ -2101,3 +2101,11 @@ ASOBINOTES那邊是真的急着發曲啊...
 
 —— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Vacuolar  
+##### 6221#       发表于 2024-8-22 20:46
+
+草，真是百万麻将
+

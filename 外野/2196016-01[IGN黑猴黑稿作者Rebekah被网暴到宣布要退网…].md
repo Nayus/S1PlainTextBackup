@@ -1097,3 +1097,23 @@ resetera：最后避风港！
 
 怎么不赶紧吊死在家里啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一座恐怖屋  
+##### 106#       发表于 2024-8-23 00:36
+
+杀杀杀，张献忠才能体现我对这个群体的想法
+
+
+*****
+
+####  疼子  
+##### 107#       发表于 2024-8-23 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977994&amp;ptid=2196016" target="_blank">muyefytte 发表于 2024-8-22 11:30</a>
+可能被网暴致死的都是心思细腻的好人，之前的给母亲送饺子的女生还有染彩色头发被网暴的都是，但是我从来没 ...</blockquote>
+因为网暴是烂人的兴奋剂
+
+—— 来自 HUAWEI HBN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

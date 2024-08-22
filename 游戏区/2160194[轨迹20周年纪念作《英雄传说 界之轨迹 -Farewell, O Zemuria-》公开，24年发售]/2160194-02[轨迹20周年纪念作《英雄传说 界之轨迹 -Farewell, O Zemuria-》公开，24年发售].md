@@ -6466,3 +6466,13 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 法社：让我看看结晶粉的购买力
 
+
+*****
+
+####  悠悠你心  
+##### 2771#       发表于 2024-8-22 17:33
+
+你法剧情不聊，分线不聊，战技捏着，op提早放，很难相信你法还有猛药能惊倒众人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

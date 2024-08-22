@@ -788,3 +788,13 @@ S1 PV上来就是毒妈拍屁股
 
 现在距离衰减跟搞笑似的，还不如抬遗产扫射
 
+
+*****
+
+####  至高点  
+##### 188#       发表于 2024-8-22 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">问下s1有组织吗.....想打一下普通倒吊人，野排过不去啊......
+
+感觉那个嘴也好难打，又硬又难瞄
+

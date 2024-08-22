@@ -2517,3 +2517,20 @@ DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2
 
 号码彩蛋
 
+
+*****
+
+####  zpower  
+##### 248#       发表于 2024-8-23 07:14
+
+第一章打了几遍，这代很多隐藏对话，调查自行车，警局喝茶，乱打电话，电话留言，调查女警胸部有各种无厘头的对话。
+
+1724367149818.png
+(42.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 07:14 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/071413nqvvrzivzrfzfmfr.png" referrerpolicy="no-referrer">
+

@@ -1079,3 +1079,21 @@ resetera：最后避风港！
 就是这逼伙同国内拳师在IGN发文打响污名化黑神话和国内游戏业界第一枪的 冤有头债有主 活该 ...</blockquote>
 我还以为是评测的作者
 
+
+*****
+
+####  超阳电子炮  
+##### 104#       发表于 2024-8-22 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977833&amp;ptid=2196016" target="_blank">liangxuancheng 发表于 2024-8-22 11:16</a>
+
+你这话说的大快人心，但是14亿，有一说一有点过了，8亿吧，微博上几乎是个女的都在狂黑呢。 ...</blockquote>
+少看点垃圾信息吧，我和朋友们玩的非常开心
+
+*****
+
+####  hunkd4  
+##### 105#       发表于 2024-8-22 21:38
+
+怎么不赶紧吊死在家里啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

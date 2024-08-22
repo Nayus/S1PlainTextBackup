@@ -1463,3 +1463,81 @@ wsd中国企业实锤了</blockquote>
 
 2024-8-22 21:16 上传
 
+
+*****
+
+####  御幸一也  
+##### 22341#       发表于 2024-8-22 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65984463&amp;ptid=2159415" target="_blank">PDQ4 发表于 2024-8-22 21:13</a>
+
+李世林开爽世，鼓子开乐奈，结月开到ob桑，都是cp呢，是不是有钦定的感觉</blockquote>
+天注定.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cherryjia12  
+##### 22342#       发表于 2024-8-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65984263&amp;ptid=2159415" target="_blank">larthasliu 发表于 2024-8-22 20:51</a>
+
+有没有全文</blockquote>
+[https://tieba.baidu.com/p/9140125759?pn=1](https://tieba.baidu.com/p/9140125759?pn=1)
+
+紫吧的机翻,主楼有原文链接
+
+*****
+
+####  滑稽Captain  
+##### 22343#       发表于 2024-8-22 21:20
+
+不可思议，还有新kv
+
+*****
+
+####  御幸一也  
+##### 22344#       发表于 2024-8-22 21:20
+
+<img src="https://img.saraba1st.com/forum/202408/22/212051cn1kei69ayjzie2t.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #229 30-20 screenshot.png</strong> (2.05 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 21:20 上传
+
+
+*****
+
+####  PDQ4  
+##### 22345#       发表于 2024-8-22 21:24
+
+结月发话了，鸡也像蝶那样五人同屏，听到了吗
+
+以及结月怎么对蝶也发癫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22346#       发表于 2024-8-22 21:24
+
+鼓子笑死我了，怎麼那麼激動，李子兩個字喊到要燙嘴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22347#       发表于 2024-8-22 21:26
+
+鼓子也太捧场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22348#       发表于 2024-8-22 21:26
+
+ 本帖最后由 星天观测 于 2024-8-22 21:27 编辑 
+
+大鼓队员不要太鸡冻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+无情的卡哇伊机器
+

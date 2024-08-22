@@ -10599,3 +10599,11 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 这些4星泳装宝具本最需要强化的是冲田吧....起码把那个概率晕给弄没了啊</blockquote>
 会晕是人设，不能改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14311#       发表于 2024-8-22 18:44
+
+草，XXalter肚子饿了后的演出是孤独美食家的捏他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

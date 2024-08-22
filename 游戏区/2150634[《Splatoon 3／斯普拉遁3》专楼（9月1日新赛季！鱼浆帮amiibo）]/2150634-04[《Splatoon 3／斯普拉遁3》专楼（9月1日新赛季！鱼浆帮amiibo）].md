@@ -504,3 +504,13 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 动森手游今天刚好宣布11月关服，说不定真有可能动森新作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晴岚  
+##### 4999#       发表于 2024-8-22 18:51
+
+第二贴牌作为新机的splatoon3 DX版的内容放进去吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

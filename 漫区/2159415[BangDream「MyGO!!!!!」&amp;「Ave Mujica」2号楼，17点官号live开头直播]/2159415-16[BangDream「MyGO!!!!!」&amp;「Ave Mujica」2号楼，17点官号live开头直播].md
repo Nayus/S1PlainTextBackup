@@ -1311,3 +1311,15 @@ ag活动就这么结尾挺好的，接着写下去我很难想象还有一些什
 
 1st同一个画师吧 比1st强点
 
+
+*****
+
+####  PDQ4  
+##### 22325#       发表于 2024-8-22 17:35
+
+感觉像手游画风，应该是wsd自己的人画的
+
+至少不是鬼图，赢！
+
+syl，是不是说明earth鬼图概率上升了，所以现在把3rd图放出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

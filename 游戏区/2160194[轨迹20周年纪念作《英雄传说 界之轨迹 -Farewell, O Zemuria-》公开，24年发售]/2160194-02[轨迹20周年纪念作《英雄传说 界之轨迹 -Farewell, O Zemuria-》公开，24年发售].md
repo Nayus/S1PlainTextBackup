@@ -6484,3 +6484,15 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 那得有一张外星图或者异界图
 
+
+*****
+
+####  ravend233  
+##### 2773#       发表于 2024-8-22 18:03
+
+对一个宣发期就展现出资源和预算不足的作品相信这玩意有藏大的，我的建议是洗洗睡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+大多数情况不宣传大概率真是什么都没有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

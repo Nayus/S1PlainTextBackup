@@ -775,3 +775,34 @@ WOKE ×
 
 一点都不好笑
 
+
+*****
+
+####  无畏的巴利斯坦  
+##### 75#       发表于 2024-8-22 11:29
+
+游戏区那边的8分客观党支持青蒜国内吹猴的KOL，建议他们也学一学老外们的行动力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[既然都玩上了，可以给前几天的KOL节奏事件做个了结了——游戏素质能不能清算媒体分？ - 游戏论坛 - Stage1st - stage1/s1 游戏动漫论坛 (saraba1st.com)](https://bbs.saraba1st.com/2b/thread-2195819-1-1.html)
+
+*****
+
+####  muyefytte  
+##### 76#       发表于 2024-8-22 11:30
+
+可能被网暴致死的都是心思细腻的好人，之前的给母亲送饺子的女生还有染彩色头发被网暴的都是，但是我从来没看过人渣被网暴致死的。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  荡寇将军张嶷  
+##### 77#       发表于 2024-8-22 11:30
+
+<blockquote>无畏的巴利斯坦 发表于 2024-8-22 11:29
+游戏区那边的8分客观党支持青蒜国内吹猴的KOL，建议他们也学一学老外们的行动力
+
+既然都玩上了，可以给前几 ...</blockquote>
+
+要么先从新华社和外交部开始冲?
+
+客观党战斗力还不如集美冲明星呢。
+

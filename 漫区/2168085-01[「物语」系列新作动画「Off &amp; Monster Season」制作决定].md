@@ -1228,3 +1228,11 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 <img src="https://p.sda1.dev/19/7299a2291af06a4a3d3c9dca837a82c7/story_3645_photo_17243064025759713.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/6d14bdeafb1d09557aa2d707defe97e0/story_3645_photo_1724306402765743319.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Tachikoma88  
+##### 742#       发表于 2024-8-22 22:19
+
+而且这还是东富耶子这名字第一次出现在分镜里，到底是新房还是之前离开的演出家又回来帮忙了？
+

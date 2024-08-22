@@ -1678,3 +1678,18 @@ RAS回 手遊情報
 
 没想到这期邦tv还挺有意思的，本来以为林和渡瀬不熟
 
+
+*****
+
+####  御幸一也  
+##### 22363#       发表于 2024-8-22 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">畢竟同事務所，應該關係不算差吧，這期氛圍真挺好的
+
+*****
+
+####  星天观测  
+##### 22364#       发表于 2024-8-22 22:22
+
+说起来不发mv这几天也该发点排练照片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

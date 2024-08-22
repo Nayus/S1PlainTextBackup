@@ -730,3 +730,16 @@ WOKE ×
 
 8，直播带货
 
+
+*****
+
+####  liangxuancheng  
+##### 70#       发表于 2024-8-22 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975243&amp;ptid=2196016" target="_blank">ネオグランゾン 发表于 2024-8-22 02:26</a>
+
+哈哈，回旋镖打在自己身上知道痛了吧
+
+本来这群白左畜生最擅长的就是拉人网暴各大游戏制作组，逼其妥协来满 ...</blockquote>
+你这话说的大快人心，但是14亿，有一说一有点过了，8亿吧，微博上几乎是个女的都在狂黑呢。
+

@@ -1187,3 +1187,13 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 啊，像是田中敦子老师。</blockquote>
 不太可能。
 
+
+*****
+
+####  oi99o  
+##### 739#       发表于 2024-8-22 19:35
+
+按道理shaft的片子有马甲首先默认是新房，但是毕竟东富耶子还是在系列构成上和新房连名的，应该不至于连这个马甲也要披吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -773,3 +773,18 @@ S1 PV上来就是毒妈拍屁股
 
 挤牙膏。
 
+
+*****
+
+####  jbjack1215  
+##### 187#       发表于 2024-8-22 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65981952&amp;ptid=2153578" target="_blank">魂淡融 发表于 2024-8-22 17:09</a>
+
+原来宣传片里的内容是两个多月合计的，这
+
+挤牙膏。</blockquote>
+要求不多，能把狙击改得正常点就行了
+
+现在距离衰减跟搞笑似的，还不如抬遗产扫射
+

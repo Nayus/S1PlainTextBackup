@@ -1046,3 +1046,25 @@ XXN绝招的玉玉症竟然不拿出？
 XXN绝招的玉玉症竟然不拿出？</blockquote>
 国外玉玉症可是最低级的几个了，他们版本太快了
 
+
+*****
+
+####  itsmyrailgun  
+##### 101#       发表于 2024-8-22 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65979598&amp;ptid=2196016" target="_blank">bonbonfox 发表于 2024-8-22 13:46</a>
+假的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+resetera：最后避风港！
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  stanzgy  
+##### 102#       发表于 2024-8-22 18:35
+
+国外有哪些有名的单机游戏交流论坛？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

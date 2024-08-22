@@ -6471,3 +6471,27 @@ AXC Washidai
 
 —— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  秋游刃  
+##### 17203#       发表于 2024-8-22 11:00
+
+此刻又开始自定义了，看来真奔着夺冠去的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  sino__unnko3  
+##### 17204#       发表于 2024-8-22 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65913851&amp;ptid=2018830" target="_blank">秋游刃 发表于 2024-8-16 19:51</a>
+初中高中都在神奈川，初中校篮球队的，打的位置是大前锋。</blockquote>
+这次MV的篮球元素又想到了这条，会不会这两个人有意选的(
+
+*****
+
+####  TiHaru  
+##### 17205#       发表于 2024-8-22 18:31
+
+本家开头三人里一粉一红
+

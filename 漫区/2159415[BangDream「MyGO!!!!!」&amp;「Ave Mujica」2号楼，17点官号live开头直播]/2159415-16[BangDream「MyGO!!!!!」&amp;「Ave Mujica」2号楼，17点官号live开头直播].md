@@ -1733,3 +1733,11 @@ RAS回 手遊情報
 
 感觉只会是Pico剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 22369#       发表于 2024-8-22 23:25
+
+好团魂<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">希望鸡完结了能马上接新一季PICO
+

@@ -867,3 +867,27 @@ WOKE ×
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
 
+
+*****
+
+####  sdeplee  
+##### 84#       发表于 2024-8-22 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975183&amp;ptid=2196016" target="_blank">Sopp 发表于 2024-8-22 02:08</a>
+
+有点过了吧
+
+网暴那个RS的作者还能接受一点……</blockquote>
+就是这逼伙同国内拳师在IGN发文打响污名化黑神话和国内游戏业界第一枪的 冤有头债有主 活该
+
+*****
+
+####  josefa  
+##### 85#       发表于 2024-8-22 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975205&amp;ptid=2196016" target="_blank">GreenBird 发表于 2024-8-22 02:13</a>
+因为Sweet Baby就是很WOKE很LGBTQ，Wukong拒绝她们的咨询，让你们扣分，这也是红脖子喜欢的其中一大理由 ...</blockquote>
+其实游科能这么硬气还是因为背靠中国市场啊，做西游题材根本就没想过在欧美市场能有什么成绩。西游题材主要市场在东亚和东南亚国家，刚好这些国家的玩家并不在乎什么LGBT，自然完全不care这些政确组织
+
+—— 来自 HUAWEI ADA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+

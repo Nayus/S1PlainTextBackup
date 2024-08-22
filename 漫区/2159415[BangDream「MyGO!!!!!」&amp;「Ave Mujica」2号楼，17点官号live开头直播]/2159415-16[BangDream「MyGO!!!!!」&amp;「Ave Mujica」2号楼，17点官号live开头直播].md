@@ -1572,3 +1572,34 @@ wsd中国企业实锤了</blockquote>
 
 高尾在看啊。睦祥<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22352#       发表于 2024-8-22 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65984610&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-22 21:30</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">狠狠撿睦祥
+
+*****
+
+####  六道明  
+##### 22353#       发表于 2024-8-22 21:56
+
+睦祥也是可以的
+
+*****
+
+####  御幸一也  
+##### 22354#       发表于 2024-8-22 21:56
+
+RAS回 手遊情報
+
+<img src="https://img.saraba1st.com/forum/202408/22/215646wia333226i3gavr1.png" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #229 1-6-25 screenshot.png</strong> (2.17 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 21:56 上传
+

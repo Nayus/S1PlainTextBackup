@@ -468,3 +468,23 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 4995#       发表于 2024-8-22 16:01
+
+办完大型祭典就搞动森新作去了吧，第二贴牌还是梦里见吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿冰  
+##### 4996#         楼主| 发表于 2024-8-22 16:06
+
+<blockquote>Kiyohara_Yasuke 发表于 2024-8-22 16:01
+办完大型祭典就搞动森新作去了吧，第二贴牌还是梦里见吧</blockquote>
+第二贴牌又用不上主力开发团队的，让资历不够深的员工练手就行啊
+
+大型祭典后应该没有建模意义上的新内容了，但各种换皮类的内容和更新活动应该还有
+

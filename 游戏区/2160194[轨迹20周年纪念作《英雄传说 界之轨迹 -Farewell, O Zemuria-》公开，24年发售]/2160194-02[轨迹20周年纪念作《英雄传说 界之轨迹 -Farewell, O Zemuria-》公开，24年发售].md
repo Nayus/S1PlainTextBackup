@@ -6395,3 +6395,30 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 空轨重置/东迷2不比界轨有吸引力？
 
+
+*****
+
+####  卢迪克  
+##### 2763#       发表于 2024-8-22 16:01
+
+<blockquote>Squall25 发表于 2024-8-22 14:23
+想想都知道吧，Op都提前一个半月放了，显然是没活了剩下的除了官网更新几个配角还能有啥 ...</blockquote>
+去年伊苏x没活了都能用战技凑一期杂志，单纯不想在界轨投入太多，大概觉得不好卖
+
+
+*****
+
+####  一步成诗  
+##### 2764#       发表于 2024-8-22 16:05
+
+不会真打算在周末东京场live上放pv吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2765#       发表于 2024-8-22 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有PV不好说
+
+完整版OP应该有
+

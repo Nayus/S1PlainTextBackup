@@ -2075,3 +2075,29 @@ ASOBINOTES那邊是真的急着發曲啊...
 
 —— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  koodooliz  
+##### 6218#       发表于 2024-8-22 01:34
+
+还找yostar联动啊，乐
+
+*****
+
+####  Ask_10A  
+##### 6219#       发表于 2024-8-22 03:23
+
+原来yaya的华子血脉浓度这么高，高达75%，比之前网传打完3/8高
+
+—— 来自 vivo V2121A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RhmBWT_Wu  
+##### 6220#       发表于 2024-8-22 09:14
+
+之前传3/8好像是把原话里1/4的主语搞错了
+
+—— 来自 OnePlus PGKM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

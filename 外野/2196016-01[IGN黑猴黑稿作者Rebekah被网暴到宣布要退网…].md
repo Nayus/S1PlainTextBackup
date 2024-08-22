@@ -485,3 +485,49 @@ ta一定能跟本朝互联网上的拳师们共情吧</blockquote>
 
 找错了讹诈对象是这样的
 
+
+*****
+
+####  皮划艇日客人  
+##### 48#       发表于 2024-8-22 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975842&amp;ptid=2196016" target="_blank">刷卡时为零 发表于 2024-8-22 08:20</a>
+
+这边如果坚持质量，并且有着反政治正确的旗号，是不是鬼佬抢着给你汴京。 ...</blockquote>
+反对皿煮邪档邪教价值观洗（）脑，是全体正常人类的一致追求。拳杂和多元匪帮都是仰赖它们本国的一部分权力庇护才能兴风作浪，但是它们本国的那部分权力管不到国外，因此形成国际反讹诈反洗（）脑同盟是极好的事<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  罗马还能再战  
+##### 49#       发表于 2024-8-22 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975842&amp;ptid=2196016" target="_blank">刷卡时为零 发表于 2024-8-22 08:20</a>
+
+这边如果坚持质量，并且有着反政治正确的旗号，是不是鬼佬抢着给你汴京。 ...</blockquote>
+这是必然的
+
+*****
+
+####  a317216007  
+##### 50#       发表于 2024-8-22 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在全球WOKE的时代，老钟反而成了极端群眼里最大的老保的国家了么
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我只能说，自觉正义者做事情想要客观正义，现内视下是否是实事求是的来吧，别敲诈勒索被粪坑里的蛆吹捧惯了，把自己骗进去了
+
+
+*****
+
+####  皮划艇日客人  
+##### 51#       发表于 2024-8-22 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65976358&amp;ptid=2196016" target="_blank">a317216007 发表于 2024-8-22 09:18</a>
+
+现在全球WOKE的时代，老钟反而成了极端群眼里最大的老保的国家了么
+
+我只能说，自觉正义者做事情想要客观正 ...</blockquote>
+WOKE ×
+
+反市场反自由 √
+
+拳杂和多元匪帮的实质是皿煮邪档的冲锋队利用权力干涉市场，毁灭自由竞争，企图实现皿煮邪档控制一切资源分配的经济体制，通过消灭经济自由进而消灭政治自由（目田宗师约翰穆勒早二百年警告过的情况），最近哈哈里斯公然声称要通过限制物价解决“通胀”已是装都不装了。
+

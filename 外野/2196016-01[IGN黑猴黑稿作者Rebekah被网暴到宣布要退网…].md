@@ -956,3 +956,13 @@ WOKE ×
 
 有谁总结一下前情提要、后续发展么？..
 
+
+*****
+
+####  姚纳  
+##### 92#       发表于 2024-8-22 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977833&amp;ptid=2196016" target="_blank">liangxuancheng 发表于 2024-8-22 11:16</a>
+你这话说的大快人心，但是14亿，有一说一有点过了，8亿吧，微博上几乎是个女的都在狂黑呢。 ...</blockquote>
+微博只要有组织的1000人就能给你搞出100万人的声势
+

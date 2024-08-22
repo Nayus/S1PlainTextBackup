@@ -6964,3 +6964,34 @@ Vjump常连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 2024-8-21 20:53 上传
 
+
+*****
+
+####  holoan  
+##### 9472#         楼主| 发表于 2024-8-22 10:43
+
+<img src="https://img.saraba1st.com/forum/202408/22/104257o5i4wy7u4051449l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 10:42 上传
+
+这破漫画卖10万本了，毫无实感
+
+不过说起来我自己就买了10来本……
+
+*****
+
+####  holoan  
+##### 9473#         楼主| 发表于 2024-8-22 11:03
+
+<img src="https://img.saraba1st.com/forum/202408/22/110327dwxjglutf3m3333t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 11:03 上传
+

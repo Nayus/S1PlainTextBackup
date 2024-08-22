@@ -1343,3 +1343,20 @@ earth必然是鬼图
 希望以太花点钱约一套好的
 用来做特典的柄图
 
+
+*****
+
+####  星天观测  
+##### 22328#       发表于 2024-8-22 18:06
+
+说不定以太就是3rd这套，然后wsd为了这套燃尽了所以earth是超级大鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22329#       发表于 2024-8-22 18:11
+
+按理说3rd这套是场贩立牌吧唧的柄图
+所以专辑的特典应该是另一套图
+这么看特典的柄图还真有可能是earth的鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -647,3 +647,43 @@ WOKE ×
 
 其中一个停滞被制裁半死不活，还有半个岌岌可危，剩下个独苗不就成苦海明灯咯<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1303312165  
+##### 64#       发表于 2024-8-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977046&amp;ptid=2196016" target="_blank">皮划艇日客人 发表于 2024-8-22 10:17</a>
+毕竟毒菜大国俄罗斯财政收入占GDP的比重才17%，还不到皿煮世界盗盟那几个主要的大国的一半
+
+然后皿煮大锅 ...</blockquote>
+很简单我们这没有倪哥.jpg<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">
+
+罗马正统上帝救赎之地！<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a317216007  
+##### 65#       发表于 2024-8-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65976420&amp;ptid=2196016" target="_blank">皮划艇日客人 发表于 2024-8-22 09:24</a>
+
+WOKE ×
+
+反市场反自由 √
+
+拳杂和多元匪帮的实质是皿煮邪档的冲锋队利用权力干涉市场，毁灭自由竞争，企图 ...</blockquote>
+站在背后资本的角度那肯定是反自由市场追求全面垄断的
+
+不过很显然比如楼主贴的这位DEI工作者，真把LGBTQ当一份正义事业产生精神内耗了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 66#       发表于 2024-8-22 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975842&amp;ptid=2196016" target="_blank">刷卡时为零 发表于 2024-8-22 08:20</a>
+
+这边如果坚持质量，并且有着反政治正确的旗号，是不是鬼佬抢着给你汴京。 ...</blockquote>
+不管政确还是反政确很容易两极反转，长周期要慎重...
+

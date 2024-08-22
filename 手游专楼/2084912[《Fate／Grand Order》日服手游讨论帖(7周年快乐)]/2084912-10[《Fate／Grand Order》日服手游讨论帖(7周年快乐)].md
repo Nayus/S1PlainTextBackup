@@ -10628,3 +10628,14 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 可是原皮都没晕啊....总不能换上泳装后身体更虚弱了吧</blockquote>
 喷射三段突g力太大了？反正跳警告还有最后爆炸理由随便找,也不用搞的太清楚……
 
+
+*****
+
+####  DARKGRAY  
+##### 14314#       发表于 2024-8-22 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65983237&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-22 19:04</a>
+
+可是原皮都没晕啊....总不能换上泳装后身体更虚弱了吧</blockquote>
+印象中这泳装的源头是被X撞了的急救改造？还真说不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

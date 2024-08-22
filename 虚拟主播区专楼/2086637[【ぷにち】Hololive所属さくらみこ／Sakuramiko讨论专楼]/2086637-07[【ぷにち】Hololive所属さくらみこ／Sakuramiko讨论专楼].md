@@ -6995,3 +6995,30 @@ Vjump常连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 2024-8-22 11:03 上传
 
+
+*****
+
+####  karastar  
+##### 9474#       发表于 2024-8-22 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65977395&amp;ptid=2086637" target="_blank">holoan 发表于 2024-8-22 10:43</a>
+这破漫画卖10万本了，毫无实感
+
+不过说起来我自己就买了10来本……</blockquote>
+10来本<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 9475#         楼主| 发表于 2024-8-22 13:54
+
+<img src="https://img.saraba1st.com/forum/202408/22/135339h484ug8n1hw3333l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 13:53 上传
+
+悲报，今天开幕地狱绘图确定
+

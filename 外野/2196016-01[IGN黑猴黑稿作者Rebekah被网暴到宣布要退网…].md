@@ -932,3 +932,19 @@ WOKE ×
 你这话说的大快人心，但是14亿，有一说一有点过了，8亿吧，微博上几乎是个女的都在狂黑呢。 ...</blockquote>
 声量大≠数量多，何况还是在微博这种骨子里就鼓励水军的平台
 
+
+*****
+
+####  bonbonfox  
+##### 90#       发表于 2024-8-22 13:46
+
+[假的](https://www.resetera.com/threads/gamergate-2-0-chuds-furious-about-a-consulting-company-named-%E2%80%9Csweet-baby-inc%E2%80%9D-which-overviews-scripts-to-make-sure-nothing-offensive-was-written.823731/page-89#post-127504542)
+
+<img src="https://img.saraba1st.com/forum/202408/22/133952tspdodzo7h2ozpd6.png" referrerpolicy="no-referrer">
+
+<strong>截屏2024-08-22 13.38.15.png</strong> (58.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 13:39 上传
+

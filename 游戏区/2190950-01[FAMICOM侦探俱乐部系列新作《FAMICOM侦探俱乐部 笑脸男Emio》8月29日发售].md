@@ -2507,3 +2507,13 @@ DEMO还要分3次解锁<img src="https://static.saraba1st.com/image/smiley/face2
 
 今年有个星影馆杀人事件，也是复古系统。
 
+
+*****
+
+####  佛罗伦萨  
+##### 247#       发表于 2024-8-22 16:50
+
+【[彩蛋]《Famicom侦探俱乐部》特殊电话号码】 [https://www.bilibili.com/video/B ... d11544ce04b701263dc](https://www.bilibili.com/video/BV1Cg411u7vF/?share_source=copy_web&amp;vd_source=e25a19f57372cd11544ce04b701263dc)
+
+号码彩蛋
+

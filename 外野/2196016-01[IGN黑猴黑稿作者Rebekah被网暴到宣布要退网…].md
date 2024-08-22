@@ -1117,3 +1117,11 @@ resetera：最后避风港！
 
 —— 来自 HUAWEI HBN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  eva02eva02  
+##### 108#       发表于 2024-8-23 00:50
+
+因为这位是站在了LGBT的对立面啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

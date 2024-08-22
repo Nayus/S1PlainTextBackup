@@ -1773,3 +1773,22 @@ akane的声音真好听
 
 好暗啊草 為什麼畫面那麼暗
 
+
+*****
+
+####  yifan8848  
+##### 22374#       发表于 2024-8-23 01:03
+
+大概是在床上開的直播
+
+前面甚至沒開畫面
+
+*****
+
+####  PDQ4  
+##### 22375#       发表于 2024-8-23 01:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">距离gachi又近了一步
+
+明明我已经决定不当真人偶像厨了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

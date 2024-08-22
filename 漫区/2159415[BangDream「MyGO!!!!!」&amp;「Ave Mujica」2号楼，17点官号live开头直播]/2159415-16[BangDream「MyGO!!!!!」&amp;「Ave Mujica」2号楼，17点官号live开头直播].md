@@ -1725,3 +1725,11 @@ RAS回 手遊情報
 
 要逆输入的话就只能五人同居了吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22368#       发表于 2024-8-22 23:04
+
+感觉只会是Pico剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

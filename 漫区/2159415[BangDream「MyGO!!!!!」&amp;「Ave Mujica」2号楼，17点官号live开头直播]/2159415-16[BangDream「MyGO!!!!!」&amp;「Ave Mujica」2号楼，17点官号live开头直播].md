@@ -1263,3 +1263,35 @@ ag活动就这么结尾挺好的，接着写下去我很难想象还有一些什
 
 漏油还是自信，我来猜2000粉画师创造新的鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22320#       发表于 2024-8-22 17:05
+
+3rd LIVE KV
+
+<img src="https://img.saraba1st.com/forum/202408/22/170508uk3qvvxrq368vkqx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9376.png</strong> (820.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 17:05 上传
+
+
+*****
+
+####  滑稽Captain  
+##### 22321#       发表于 2024-8-22 17:06
+
+这是蛋白棒赠卡用的那套人物立绘吗
+
+
+*****
+
+####  星天观测  
+##### 22322#       发表于 2024-8-22 17:11
+
+初华，你看着有点傻了吧唧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

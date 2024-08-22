@@ -7112,3 +7112,28 @@ Vjump常连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 还有第一局保龄球，甚至不少观众都达不到的这个差一点就满分局的水平，确实是太惊艳了
 
+
+*****
+
+####  holoan  
+##### 9482#         楼主| 发表于 2024-8-22 21:22
+
+还有说到五子棋输了这个事，记得前两天fbk叫miko去私下练习游戏的事情吗，还有昨天486也是提早下播说是0点要练习游戏，之前很多人猜测是miko私下叫fbk单独特训51的游戏应对夸，但是今天这个结果来看绝对不是这个事了，如果练习过五子棋绝对今天不会这么轻易输的，
+
+*****
+
+####  holoan  
+##### 9483#         楼主| 发表于 2024-8-22 22:00
+
+刚才直播最后念手信，提到“当初自己想办sololive的契机也是看了夸的sololive以及live衣装之后，很有idol的样子很仰慕”
+
+这事是真的，ordan把当时的绘日记都挖出来了
+
+<img src="https://img.saraba1st.com/forum/202408/22/215345ay6p4ad4jz36y5py.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 21:53 上传
+

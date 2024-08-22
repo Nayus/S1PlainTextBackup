@@ -1603,3 +1603,58 @@ RAS回 手遊情報
 
 2024-8-22 21:56 上传
 
+
+*****
+
+####  NODY  
+##### 22355#       发表于 2024-8-22 22:01
+
+上周看到预告还担心不熟或者冷场，果然有鼓子在就不用担心气氛问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yuyin589  
+##### 22356#       发表于 2024-8-22 22:03
+
+又幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22357#       发表于 2024-8-22 22:03
+
+<blockquote>PDQ4 发表于 2024-8-22 21:24
+结月发话了，鸡也像蝶那样五人同屏，听到了吗
+
+以及结月怎么对蝶也发癫</blockquote>
+没看直播，五人同屏是指？动画里应该有五个人同屏吧。
+
+*****
+
+####  御幸一也  
+##### 22358#       发表于 2024-8-22 22:03
+
+說不定鼓子參加過多次avemujica裡面的人聚會呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看起來和結月關係挺好的
+
+結月和真不熟的人是什麼表現，在某回已經品鑑過了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 22359#       发表于 2024-8-22 22:07
+
+节约和凛应该是挺熟的，但是没想到和鼓子也很熟，这期各种大声狂笑，颇有音宝之风（什么响社祖传）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22360#       发表于 2024-8-22 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65984942&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-22 22:03</a>
+
+没看直播，五人同屏是指？动画里应该有五个人同屏吧。</blockquote>
+蝶live，背后大屏幕有五人同屏的一幕
+
+鸡动画倒确实是有，真人live还无
+

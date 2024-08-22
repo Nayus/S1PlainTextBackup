@@ -1003,3 +1003,46 @@ WOKE ×
 
 XXN绝招的玉玉症竟然不拿出？
 
+
+*****
+
+####  wl2356  
+##### 97#       发表于 2024-8-22 18:19
+
+<blockquote>a317216007 发表于 2024-8-22 09:18
+现在全球WOKE的时代，老钟反而成了极端群眼里最大的老保的国家了么
+
+我只能说，自觉正义者做事情想要客观正 ...</blockquote>
+老保国应该是毛子吧，毕竟毛子那边还是信上帝的多
+
+*****
+
+####  穿越护城河  
+##### 98#       发表于 2024-8-22 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65982707&amp;ptid=2196016" target="_blank">薄皮破船 发表于 2024-8-22 18:04</a>
+微博难道不是一堆人在开除女籍？</blockquote>
+也就那些混迹粉圈的在跳脚了
+
+比如昨天tes发布了蹭了猴子的对战海报
+
+一堆跳脚的
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  シャル  
+##### 99#       发表于 2024-8-22 18:24
+
+看X是假的，人没退网继续嘴硬
+
+*****
+
+####  琉璃苑軒風  
+##### 100#       发表于 2024-8-22 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65982724&amp;ptid=2196016" target="_blank">wykeen 发表于 2024-8-22 18:06</a>
+XXN绝招的玉玉症竟然不拿出？</blockquote>
+国外玉玉症可是最低级的几个了，他们版本太快了
+

@@ -1360,3 +1360,26 @@ earth必然是鬼图
 所以专辑的特典应该是另一套图
 这么看特典的柄图还真有可能是earth的鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  光MIKAN  
+##### 22330#       发表于 2024-8-22 18:17
+
+初华这个动作是复刻的蛋白卡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星空冻结  
+##### 22331#       发表于 2024-8-22 18:21
+
+只要你心里预估是鬼图，就不会被鬼图伤害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 22332#       发表于 2024-8-22 18:22
+
+你可以出鬼图 我可以不买 谁怕谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

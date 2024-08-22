@@ -1323,3 +1323,13 @@ ag活动就这么结尾挺好的，接着写下去我很难想象还有一些什
 
 syl，是不是说明earth鬼图概率上升了，所以现在把3rd图放出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22326#       发表于 2024-8-22 17:49
+
+蛋白棒可是治愈的图，跟1st不可同日而语。
+
+虽然这个初华还是有点囧囧有神，但好歹不是1st的小短腿了，赢！
+

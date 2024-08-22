@@ -539,3 +539,31 @@ WOKE ×
 
 也看不出来他遭受什么网暴了啊，如果只是推特被冲锋就觉得自己被网暴，那我只能认为是一种自我炒作行为<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  瓦格雷  
+##### 53#       发表于 2024-8-22 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65974871&amp;ptid=2196016" target="_blank">刘昊霖 发表于 2024-8-22 00:49</a>
+
+网暴？对这种畜生就是狠狠地正义执行！</blockquote>
+游戏玩家太温和了  美国不是有居合嘛
+
+*****
+
+####  赤月知佳  
+##### 54#       发表于 2024-8-22 09:38
+
+什么时候玉玉，然后割麦
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+
+*****
+
+####  双面人  
+##### 55#       发表于 2024-8-22 09:44
+
+大家都在嘻嘻哈哈就TA看到了仇恨，只能说应了苏小妹那句“你看到他是屎，说明你心中有屎了”
+

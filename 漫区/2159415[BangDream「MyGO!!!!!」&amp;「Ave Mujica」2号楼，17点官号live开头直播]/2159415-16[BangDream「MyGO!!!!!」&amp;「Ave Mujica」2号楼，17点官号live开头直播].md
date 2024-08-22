@@ -1132,3 +1132,118 @@ ag新活这什么剧情？进度莫名其妙的快，摩卡还被分配了个两
 
 ag活动就这么结尾挺好的，接着写下去我很难想象还有一些什么狗屎，评价为别折腾了就这样吧
 
+
+*****
+
+####  NODY  
+##### 22308#       发表于 2024-8-20 01:06
+
+但祥子不是狮子座吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22309#       发表于 2024-8-20 01:24
+
+李子那个喜欢我怎么感觉更像是公式客套啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 22310#       发表于 2024-8-20 12:34
+
+心情整理好了倒是可以指望她在播动画的时候发一下癫，其他的看看就好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22311#       发表于 2024-8-20 13:09
+
+<img src="https://img.saraba1st.com/forum/202408/20/130539rjvj7bq9w3v4vjwv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3112.jpeg</strong> (254.08 KB, 下载次数: 1)
+
+下载附件
+
+2024-8-20 13:05 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130742rfvkppe9rv4zrb6y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3113.jpeg</strong> (907.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:07 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130814wotalwd3ewwe5t56.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3115.jpeg</strong> (284.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:08 上传
+
+<img src="https://img.saraba1st.com/forum/202408/20/130838qeogaiaiomwabx7b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3114.jpeg</strong> (637.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-20 13:08 上传
+
+tv放送时官方约的图都挺好的 画师也都是至少十几万粉的 没有底边
+
+*****
+
+####  前方暴雨预警  
+##### 22312#       发表于 2024-8-20 20:15
+
+指望从声优们对独角兽的言辞来推测剧情，还不如试着解读一下独角兽的回复。毕竟看她对鼓子的回应，她也很清楚自己的立希的戏份神秘的不行
+
+*****
+
+####  rikaren  
+##### 22313#       发表于 2024-8-20 20:18
+
+ag新活这什么剧情？进度莫名其妙的快，摩卡还被分配了个两星。
+
+*****
+
+####  光MIKAN  
+##### 22314#       发表于 2024-8-20 20:18
+
+给鼓子的回复确实有点巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22315#       发表于 2024-8-20 20:24
+
+鼓子这么高情商的人去年大部分人都庆生了就她没去，多少还是有点不满的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然独角兽看到鼓子来了一副受宠若惊的样子总有种二期立希戏份还是不怎么样的预感，就不知道鼓子是单纯的和解了还是真的有改善待遇
+
+*****
+
+####  星天观测  
+##### 22316#       发表于 2024-8-20 20:42
+
+ag活动就这么结尾挺好的，接着写下去我很难想象还有一些什么狗屎，评价为别折腾了就这样吧
+
+*****
+
+####  御幸一也  
+##### 22317#       发表于 2024-8-22 09:36
+
+通販比場販還快()
+
+[https://bushiroad-store.com/pages/anisama2024](https://bushiroad-store.com/pages/anisama2024)
+
+<img src="https://img.saraba1st.com/forum/202408/22/093541lxsnnoaoo9cv69ph.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 09:35 上传
+

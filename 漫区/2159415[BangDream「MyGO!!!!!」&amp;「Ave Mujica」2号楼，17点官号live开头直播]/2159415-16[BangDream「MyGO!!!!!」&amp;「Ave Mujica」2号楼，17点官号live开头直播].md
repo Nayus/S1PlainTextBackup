@@ -1693,3 +1693,35 @@ RAS回 手遊情報
 
 说起来不发mv这几天也该发点排练照片了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22365#       发表于 2024-8-22 22:59
+
+<img src="https://img.saraba1st.com/forum/202408/22/225951sz9mishsl29llosu.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (67.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-22 22:59 上传
+
+*****
+
+####  星天观测  
+##### 22366#       发表于 2024-8-22 23:01
+
+投票选的马尾，不会是三票对一票吧，等一个李子和梦以的回复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22367#       发表于 2024-8-22 23:02
+
+感觉结月马尾有高尾的推手，有品的
+
+能不能逆输入进动画，鸡其他四个人早上给睦做头发<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要逆输入的话就只能五人同居了吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

@@ -10652,3 +10652,13 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 虽然时间长了后会紧急停止不过那都是几百还是几千年后的事了
 
+
+*****
+
+####  希望之花  
+##### 14316#       发表于 2024-8-23 06:41
+
+抽到徐福了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这技能组是专门拿来打白纸qp本的吧
+

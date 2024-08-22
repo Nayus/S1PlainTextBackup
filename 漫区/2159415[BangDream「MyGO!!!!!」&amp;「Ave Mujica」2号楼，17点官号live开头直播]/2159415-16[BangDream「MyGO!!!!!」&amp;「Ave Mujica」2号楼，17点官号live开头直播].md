@@ -1741,3 +1741,11 @@ RAS回 手遊情報
 
 好团魂<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">希望鸡完结了能马上接新一季PICO
 
+
+*****
+
+####  星天观测  
+##### 22370#       发表于 2024-8-22 23:45
+
+最新消息，梦以也回复了，这下我们鸡也四缺一了（暂时）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

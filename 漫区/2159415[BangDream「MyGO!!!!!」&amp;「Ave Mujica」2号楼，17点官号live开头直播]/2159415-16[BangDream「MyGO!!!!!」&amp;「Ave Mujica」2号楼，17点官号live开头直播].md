@@ -1658,3 +1658,23 @@ RAS回 手遊情報
 
 鸡动画倒确实是有，真人live还无
 
+
+*****
+
+####  PDQ4  
+##### 22361#       发表于 2024-8-22 22:08
+
+鼓子这控场能力，真的是wsd捡到宝了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+结月大叔笑感觉可以抬上日程了，不愧是和音宝很熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 22362#       发表于 2024-8-22 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好健康的笑声，好营养均衡的发癫反应
+
+没想到这期邦tv还挺有意思的，本来以为林和渡瀬不熟
+

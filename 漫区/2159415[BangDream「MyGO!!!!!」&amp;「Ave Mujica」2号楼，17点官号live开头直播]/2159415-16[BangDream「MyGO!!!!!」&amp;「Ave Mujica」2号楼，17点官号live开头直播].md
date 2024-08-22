@@ -1792,3 +1792,11 @@ akane的声音真好听
 
 明明我已经决定不当真人偶像厨了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22376#       发表于 2024-8-23 01:42
+
+结月对蝶发癫应该是d4dj那边和天音的关系吧，感觉llll的关系挺不错的。
+

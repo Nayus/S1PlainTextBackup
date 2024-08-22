@@ -899,3 +899,18 @@ WOKE ×
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这就缩头了
 
+
+*****
+
+####  流浪的使徒  
+##### 87#       发表于 2024-8-22 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65975243&amp;ptid=2196016" target="_blank">ネオグランゾン 发表于 2024-8-22 02:26</a>
+
+哈哈，回旋镖打在自己身上知道痛了吧
+
+本来这群白左畜生最擅长的就是拉人网暴各大游戏制作组，逼其妥协来满 ...</blockquote>
+这帮人就是被造出来占据左翼话语权的玩意，实际上拨开表皮内里全是近似“种姓”这种右的不能再右的玩意。离法X斯不过一步之遥。
+
+哪怕红脖子都比他们左，白右好歹在白里还要讲某种平等，他们在民族上是暗搓搓的“种姓”，在阶级上是明晃晃的“种姓”，只不过把阶级差别包装得那么不那么明显，套上一层似是而非的“道德”外衣，比如什么“环保”，“素食”，“女拳”
+

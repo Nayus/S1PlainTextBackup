@@ -6496,3 +6496,19 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 2774#       发表于 2024-8-23 10:00
+
+ 本帖最后由 卢迪克 于 2024-8-23 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65982698&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-22 18:03</a>
+
+对一个宣发期就展现出资源和预算不足的作品相信这玩意有藏大的，我的建议是洗洗睡
+
+大多数情况不宣传大概率 ...</blockquote>
+你法主要态度问题，采访说伊苏通常收集玩家对战斗系统和剧情的意见。谈到轨迹就是一转收集哪个角色在玩家中人气高然后给它加剧情，轨迹能做好才怪
+
+当然伊苏剧情是近藤写，他肯定在乎风评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

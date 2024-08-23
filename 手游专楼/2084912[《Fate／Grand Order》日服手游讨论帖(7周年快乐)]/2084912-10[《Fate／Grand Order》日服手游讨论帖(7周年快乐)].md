@@ -11105,3 +11105,23 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14361#       发表于 2024-8-23 20:27
+
+不是说了几个月后进主线物语吗
+
+*****
+
+####  alucardcz  
+##### 14362#       发表于 2024-8-23 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994437&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-23 20:14</a>
+
+我知道这次奏章3和活动一起开但我没想到奏章3也是限时的
+
+这游戏虽然几乎不可能再有多少新玩家了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是会进那个什么吗 和之前暗狐狸一样
+

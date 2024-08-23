@@ -1941,3 +1941,11 @@ bgo还怪好的，给我留了一个十连是吧
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  待宵  
+##### 46717#       发表于 2024-8-23 20:29
+
+今天早上单抽终于出烟雾镜了，但是我连再临材料都不够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

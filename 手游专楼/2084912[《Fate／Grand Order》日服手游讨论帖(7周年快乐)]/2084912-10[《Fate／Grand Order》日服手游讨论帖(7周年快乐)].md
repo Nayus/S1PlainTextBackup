@@ -11255,3 +11255,17 @@ GVquoYraYAAXsAa.jpg
 
 可能这次是大型的Last Encore和月之珊瑚的联动<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14374#       发表于 2024-8-24 06:40
+
+90++ 杀狐 水bb ciel 可以不换人，水bb和ciel两宝以上伤害会比较稳定
+
+一面杀狐给bb充50，bb开宝具炸（我还上了衣服技能）
+
+二面给ciel上满buff锁卡，两红稳定带走
+
+三面ciel宝红红，一宝90级有可能伤害不够（ciel一宝技能没材料了只能666）
+

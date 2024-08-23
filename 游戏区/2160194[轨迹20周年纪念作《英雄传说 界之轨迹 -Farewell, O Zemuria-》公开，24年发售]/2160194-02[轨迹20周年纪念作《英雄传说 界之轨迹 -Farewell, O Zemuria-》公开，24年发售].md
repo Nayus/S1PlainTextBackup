@@ -7320,3 +7320,19 @@ PSV独占累计15万，那是十年前的事了，闪轨一二PS**3双平台，�
 
 猜完剧情这不是轨发售前的固定节目吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2861#       发表于 2024-8-23 18:11
+
+我看黎2发售前贴吧的轨迹学家不就猜出庭院首领是奥古斯特了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  izayoi39  
+##### 2862#       发表于 2024-8-23 18:16
+
+东迷那个加强版我是觉得真sb，原本的剧情已经够完整了，结果后面又给续了一坨狗屎，活该加强版卖得不好
+

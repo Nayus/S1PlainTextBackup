@@ -10813,3 +10813,61 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是bug了吗 好感度条突破天际了  还是说满好感就这样？ 我第1次满好感
 
+
+*****
+
+####  シャル  
+##### 14332#       发表于 2024-8-23 18:06
+
+啥奥特曼希尔
+
+光体呢
+
+*****
+
+####  TheLoof  
+##### 14333#       发表于 2024-8-23 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993431&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-23 18:03</a>
+
+这是bug了吗 好感度条突破天际了  还是说满好感就这样？ 我第1次满好感</blockquote>
+平时也有这个条，只是进战斗演出会省略道只有数字啊
+
+*****
+
+####  alucardcz  
+##### 14334#       发表于 2024-8-23 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993460&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-23 18:06</a>
+
+平时也有这个条，只是进战斗演出会省略道只有数字啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第1次看到 平时好歹也有 8好感 怎么从来没注意到过
+
+
+*****
+
+####  00251718  
+##### 14335#       发表于 2024-8-23 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993219&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-23 17:40</a>
+蘑菇是真的很喜欢fe动画啊</blockquote>
+是蘑菇很喜欢fe系列，可能就历史上来说算是基本上脱离原fsn架构情况下的第一次大型创作？（俺寻思了下，差不多时间段的基本上蘑菇都不是剧本作者，可能蘑菇因此觉得不如自己作品来得亲）
+
+*****
+
+####  quanlix  
+##### 14336#       发表于 2024-8-23 18:12
+
+还以为是在mc里，结果真给来了个月面基地，话说这bb和尼禄都有自己的主场活动了，狐狸什么时候安排
+
+*****
+
+####  TheLoof  
+##### 14337#       发表于 2024-8-23 18:13
+
+ 本帖最后由 TheLoof 于 2024-8-23 18:15 编辑 
+
+琼安+学姐（伊吹礼装）+抓个C呆，魔放给琼安
+
+衣服3t给学姐10np完事儿
+

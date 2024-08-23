@@ -2029,3 +2029,39 @@ akane的声音真好听
 
 https://namebox.lofter.com/post/445b7e_2bc910afb?incantation=rzmwc87YvNSP
 
+
+*****
+
+####  hitori酱  
+##### 22391#       发表于 2024-8-23 23:58
+
+＼予約受付中📢／
+
+10/2(水) リリース🌙
+
+Ave Mujica ミニAlbum「ELEMENTS」
+
+数量限定生産特装盤が絶賛予約受付中❣
+
+特装盤だけに付属する、特別カラーVer.のシリコンバンドも是非ゲットしてくださいね🎶
+
+🛒ご購入はこちら [https://t.co/GYDDtESRi1](https://t.co/GYDDtESRi1)
+
+这封面实装感觉还行啊 
+
+<img src="https://img.saraba1st.com/forum/202408/23/235732c3ge33ggtueekee1.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202408/23/235732c3ge33ggtueekee1.png">
+
+<strong>image.png</strong> (133.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 23:57 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/235738vdvmqkrrzopromno.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (35.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 23:57 上传
+

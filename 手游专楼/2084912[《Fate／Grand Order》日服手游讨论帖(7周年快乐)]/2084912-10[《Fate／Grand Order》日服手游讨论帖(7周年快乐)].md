@@ -11048,3 +11048,35 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">今天剧情第一场是什么鸟新角色怪物，换了几个梯子了怎么死活载不动……
 
+
+*****
+
+####  alucardcz  
+##### 14356#       发表于 2024-8-23 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994097&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-23 19:21</a>
+
+今天剧情第一场是什么鸟新角色怪物，换了几个梯子了怎么死活载不动……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为是车轮站 n个人 还有特殊背景 不下一扩的后果
+
+
+*****
+
+####  v22325  
+##### 14357#       发表于 2024-8-23 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994170&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-23 19:31</a>
+
+因为是车轮站 n个人 还有特殊背景 不下一扩的后果</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">挂了半天没动静也打算去下一括的，一看要下20G
+
+*****
+
+####  alucardcz  
+##### 14358#       发表于 2024-8-23 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994183&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-23 19:32</a>
+
+挂了半天没动静也打算去下一括的，一看要下20G</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还是继续等一会吧 （
+

@@ -1931,3 +1931,13 @@ bgo还怪好的，给我留了一个十连是吧
 
 小号500多石头沉强度美，果然是还了10出水妖兰的债嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  溯夜  
+##### 46716#       发表于 2024-8-23 19:30
+
+只有三十石头无事发生
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

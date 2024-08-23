@@ -6561,3 +6561,35 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 你轨本质上还是靠老粉，东亚家底厚，欧美没那么多老粉，伊苏还能吸点路人，自然比轨更能卖 ...</blockquote>
 近藤：《轨迹》系列最新作的过场动画剧本就是市场部的人写的，同时那个人还在负责服务器管理。（闪4)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Squall25  
+##### 2779#       发表于 2024-8-23 12:32
+
+这个算实锤新的魔装鬼是学妹了吧
+【《英雄传说 界之轨迹》最新一弹WebCM-哔哩哔哩】 https://b23.tv/J0TVGmV
+
+*****
+
+####  ravend233  
+##### 2780#       发表于 2024-8-23 12:34
+
+[https://www.youtube.com/watch?v=oz2J42QaUbk](https://www.youtube.com/watch?v=oz2J42QaUbk)新CM
+
+*****
+
+####  Aeons  
+##### 2781#       发表于 2024-8-23 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呃这cm
+
+*****
+
+####  ravend233  
+##### 2782#       发表于 2024-8-23 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就对称黎1吗
+
+法社第一印象定律又生效了（
+

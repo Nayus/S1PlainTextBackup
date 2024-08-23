@@ -10939,3 +10939,26 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 太**了 学姐都默认点了被动5才能用  1宝还得刷20多万羁绊才能用。。。</blockquote>
 可以参考下我发的那个队伍，不用开被动也能打。
 
+
+*****
+
+####  alucardcz  
+##### 14345#       发表于 2024-8-23 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993615&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-23 18:23</a>
+
+我比你还难蹦，无脑开的AS2，我得刷到羁绊9才能开AS5
+
+所以上面那套大概没几个人能用
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又回来了 试了下不开被动5也可以6加成不换人 我去录个视频
+
+
+*****
+
+####  cckuku  
+##### 14346#       发表于 2024-8-23 18:40
+
+我蕾哭叻，全游唯二对狂白字的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

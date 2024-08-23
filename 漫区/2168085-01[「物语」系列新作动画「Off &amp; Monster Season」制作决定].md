@@ -1256,3 +1256,20 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Tachikoma88  
+##### 745#       发表于 2024-8-23 18:40
+
+<img src="https://img.saraba1st.com/forum/202408/23/184013mwuwgfz3rx8xfjif.png" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-ft1mZdT1kShs-14w.png</strong> (145.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-23 18:40 上传
+
+阿b出了个角色榜，然而这季物语垃圾君一次没登场却上了榜
+

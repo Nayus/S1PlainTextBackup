@@ -6996,3 +6996,40 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 不对啊两个十几秒cm就糊弄过去了？剧情长pv呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  アーリィ  
+##### 2827#       发表于 2024-8-23 14:35
+
+真金不怕洪炉火，在黑暗中黄金总是闪闪发光
+游戏区首页唯一与众不同的真年度游戏帖站出来了!
+
+*****
+
+####  卢迪克  
+##### 2828#       发表于 2024-8-23 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991184&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-23 14:29</a>
+
+不对啊两个十几秒cm就糊弄过去了？剧情长pv呢</blockquote>
+长pv本身一些都是从op剪出来的，op都出了不好出了
+
+*****
+
+####  一步成诗  
+##### 2829#       发表于 2024-8-23 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991249&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 14:36</a>
+
+长pv本身一些都是从op剪出来的，op都出了不好出了</blockquote>
+真就没了啊那剑指下个月媒体序章试玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 2830#       发表于 2024-8-23 14:42
+
+黎恩给谁报恩，剑仙？
+

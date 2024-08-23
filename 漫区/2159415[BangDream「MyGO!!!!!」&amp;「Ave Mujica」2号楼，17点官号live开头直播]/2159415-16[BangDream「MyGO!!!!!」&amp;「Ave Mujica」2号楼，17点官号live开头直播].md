@@ -1901,3 +1901,16 @@ akane的声音真好听
 
 说不定备货先优先场贩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22385#       发表于 2024-8-23 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65987937&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-23 09:37</a>
+
+睡过头了
+
+还会补货吗</blockquote>
+肯定補貨的 不過追加可能晚發貨就是（
+

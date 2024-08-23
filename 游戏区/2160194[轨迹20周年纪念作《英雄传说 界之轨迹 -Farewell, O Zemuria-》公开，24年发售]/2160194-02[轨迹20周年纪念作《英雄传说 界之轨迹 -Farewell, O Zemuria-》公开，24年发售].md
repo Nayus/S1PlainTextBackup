@@ -6524,3 +6524,16 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 你法主要态度问题，采访说伊苏通常收集玩家对战斗系统和剧情的意见。谈到轨迹就是一转收集哪个角色在玩家 ...</blockquote>
 伊苏的开发思路和你轨完全是两个路子，一个思路和逻辑更接近一个认认真真做的游戏，而轨迹更像是个卖角色的展示平台<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">轨这套更像是手游的路子
 
+
+*****
+
+####  卢迪克  
+##### 2776#       发表于 2024-8-23 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65988790&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-23 10:43</a>
+
+伊苏的开发思路和你轨完全是两个路子，一个思路和逻辑更接近一个认认真真做的游戏，而轨迹更像是个卖角色 ...</blockquote>
+因为销量大头的美国人更喜欢伊苏得认真做啊，伊苏8在ns发售后就从50w涨到了60w了啊
+
+加藤：美国的玩家倒是对《伊苏》挺喜欢，亚洲的玩家则更喜欢《轨迹》系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6550,3 +6550,14 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 加藤：美国的玩家倒是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨本质上还是靠老粉，东亚家底厚，欧美没那么多老粉，伊苏还能吸点路人，自然比轨更能卖
 
+
+*****
+
+####  卢迪克  
+##### 2778#       发表于 2024-8-23 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65989418&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-23 11:38</a>
+
+你轨本质上还是靠老粉，东亚家底厚，欧美没那么多老粉，伊苏还能吸点路人，自然比轨更能卖 ...</blockquote>
+近藤：《轨迹》系列最新作的过场动画剧本就是市场部的人写的，同时那个人还在负责服务器管理。（闪4)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

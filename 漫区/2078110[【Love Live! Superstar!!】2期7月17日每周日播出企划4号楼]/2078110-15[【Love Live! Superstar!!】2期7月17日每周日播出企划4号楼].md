@@ -8,3 +8,11 @@
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  仟音一心  
+##### 20946#       发表于 2024-8-23 19:46
+
+上海还没开票啊
+

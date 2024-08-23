@@ -2039,3 +2039,11 @@ vr link还好说，vr star除了菜菜子之外的人基本都和维阿没联系
 
 十天其实挺久了吧，毕竟又不是真的职业哥，主播自己也还有别的事，况且很多人还未必是全职的主播，每天晚上高强度练习赛还干不干别的事情了还休不休息了
 
+
+*****
+
+####  Harunoharu  
+##### 614#       发表于 2024-8-23 12:59
+
+要这群管人十天练出来堪比职业的igl也太难为他们了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

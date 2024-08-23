@@ -11125,3 +11125,21 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 这游戏虽然几乎不可能再有多少新玩家了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是会进那个什么吗 和之前暗狐狸一样
 
+
+*****
+
+####  lokiling  
+##### 14363#       发表于 2024-8-23 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">回坑玩家听说会补发每个角色升级羁绊的角色碎片，上线找了一圈没找到，有没有人知道在哪里领的
+
+*****
+
+####  alucardcz  
+##### 14364#       发表于 2024-8-23 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994878&amp;ptid=2084912" target="_blank">lokiling 发表于 2024-8-23 21:12</a>
+
+回坑玩家听说会补发每个角色升级羁绊的角色碎片，上线找了一圈没找到，有没有人知道在哪里领的 ...</blockquote>
+还没实装呢  在过一个月问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

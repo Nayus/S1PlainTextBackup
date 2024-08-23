@@ -10900,3 +10900,42 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 所以上面那套大概没几个人能用
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  angelooo  
+##### 14341#       发表于 2024-8-23 18:27
+
+你菌这也太喜欢fe了……
+
+
+*****
+
+####  alucardcz  
+##### 14342#       发表于 2024-8-23 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993615&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-23 18:23</a>
+
+我比你还难蹦，无脑开的AS2，我得刷到羁绊9才能开AS5
+
+所以上面那套大概没几个人能用
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不一样！ 你可以在抽一宝！
+
+*****
+
+####  cenhr  
+##### 14343#       发表于 2024-8-23 18:31
+
+90+的材料比较适合我，滚回去农了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  都谷捻柏  
+##### 14344#       发表于 2024-8-23 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993597&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-23 18:21</a>
+太**了 学姐都默认点了被动5才能用  1宝还得刷20多万羁绊才能用。。。</blockquote>
+可以参考下我发的那个队伍，不用开被动也能打。
+

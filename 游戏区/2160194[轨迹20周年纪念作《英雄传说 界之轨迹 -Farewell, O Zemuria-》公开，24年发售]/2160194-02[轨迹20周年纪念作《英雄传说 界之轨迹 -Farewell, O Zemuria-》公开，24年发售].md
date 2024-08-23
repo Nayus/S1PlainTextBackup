@@ -6890,3 +6890,40 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 真就是学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 2814#       发表于 2024-8-23 13:56
+
+同一个点子用两次，没活了
+
+*****
+
+####  一步成诗  
+##### 2815#       发表于 2024-8-23 13:56
+
+还有一种可能，法老控还藏了更大的爆点所以先把这个放出来钓你们首发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2816#       发表于 2024-8-23 13:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别藏了，别藏了
+
+*****
+
+####  Aeons  
+##### 2817#       发表于 2024-8-23 13:58
+
+爆，太爆了
+
+
+*****
+
+####  whzfjk  
+##### 2818#       发表于 2024-8-23 14:02
+
+按照经典二次元理论，角色变身蕴含着重大人物弧光的转折，红鬼纯被动，不算数的。白金鬼让人兴奋，因为有戏看口牙。
+

@@ -11197,3 +11197,43 @@ GVquoYraYAAXsAa.jpg
 
 第2隻和第3隻，可以用孔明和泳裝小文西，試了一次也可以的，不過小文西要開被動技2(NP那個)
 
+
+*****
+
+####  alucardcz  
+##### 14369#       发表于 2024-8-24 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65996671&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-24 00:14</a>
+
+90++
+
+一開始3隻巨人可以用大英雄解決</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整这么复杂不如直接 1宝CIEL+双杀狐 6加成不换人
+
+
+*****
+
+####  eilot  
+##### 14370#       发表于 2024-8-24 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65996773&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-24 00:27</a>
+
+整这么复杂不如直接 1宝CIEL+双杀狐 6加成不换人</blockquote>
+找不到終之花去那裡刷
+
+突然想起
+
+白磚能否換到，先換了100個備用
+
+*****
+
+####  alucardcz  
+##### 14371#       发表于 2024-8-24 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65996794&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-24 00:31</a>
+
+找不到終之花去那裡刷
+
+突然想起</blockquote>
+能换啊 我都是换的 正好够拉满学姐和艾蕾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

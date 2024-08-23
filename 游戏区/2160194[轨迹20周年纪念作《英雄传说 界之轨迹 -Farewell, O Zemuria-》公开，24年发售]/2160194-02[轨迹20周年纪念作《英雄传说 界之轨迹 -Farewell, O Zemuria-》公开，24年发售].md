@@ -6747,3 +6747,102 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 真就大喊学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2801#       发表于 2024-8-23 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990625&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-8-23 13:33</a>
+
+都剪到这份上了，别到时候告诉我是学老员工高桥把无关的台词凑到pv画面上啊 ...</blockquote>
+高桥记得也就呆了几个月吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 2802#         楼主| 发表于 2024-8-23 13:35
+
+《界之轨迹》WebCM公布（全2种，已合并） http://t.cn/A6RboevF ​​​
+
+*****
+
+####  ravend233  
+##### 2803#       发表于 2024-8-23 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欺诈可能性还是不高，你法应该不敢这样玩的，而且本身学妹的剧情定位足够高，当一次最终BOSS也不是什么预料之外的活
+
+*****
+
+####  一步成诗  
+##### 2804#       发表于 2024-8-23 13:37
+
+有没有可能就是烟雾弹呢，最后如果是其他角色那就烟雾弹大成功了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 2805#       发表于 2024-8-23 13:39
+
+为什么会觉得白金鬼是最终boss，我估计最后人人都有魔装鬼开
+
+
+*****
+
+####  一步成诗  
+##### 2806#       发表于 2024-8-23 13:41
+
+如果法老控不打算藏了，放变身画面出来不更直接省得大家猜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 2807#       发表于 2024-8-23 13:43
+
+<blockquote>ravend233 发表于 2024-8-23 13:36
+欺诈可能性还是不高，你法应该不敢这样玩的，而且本身学妹的剧情定位足够高，当一次最终BOSS也不是什么预料 ...</blockquote>
+致敬传奇作品那由多轨迹是吧！
+
+<img src="https://img.saraba1st.com/forum/202408/23/134310w8dnrk35m75vyyy2.jpg" referrerpolicy="no-referrer">
+
+<strong>8D03BB081EB7BDF98B09685CAD5240E6.jpg</strong> (291.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-23 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/134317mxa2tht82vxgf4rf.jpg" referrerpolicy="no-referrer">
+
+<strong>35CD134E52E5D592B6A4E926EF9C534E.jpg</strong> (125.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-23 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/134321zy0r915f995tlr1t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240823_134131.jpg</strong> (168.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-23 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/134327s0ii334r7kz2aasq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240823_124310.jpg</strong> (103.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-23 13:43 上传
+
+*****
+
+####  Aeons  
+##### 2808#       发表于 2024-8-23 13:43
+
+黎二都一整部魔装鬼甚至最终boss了，界最终boss还是魔装鬼，感觉真不行
+

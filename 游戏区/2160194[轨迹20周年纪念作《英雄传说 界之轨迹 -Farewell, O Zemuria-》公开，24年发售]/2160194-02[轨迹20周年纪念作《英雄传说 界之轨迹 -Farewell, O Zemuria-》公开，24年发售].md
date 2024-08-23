@@ -6512,3 +6512,15 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 当然伊苏剧情是近藤写，他肯定在乎风评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2775#       发表于 2024-8-23 10:43
+
+ 本帖最后由 ravend233 于 2024-8-23 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65988229&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 10:00</a>
+
+你法主要态度问题，采访说伊苏通常收集玩家对战斗系统和剧情的意见。谈到轨迹就是一转收集哪个角色在玩家 ...</blockquote>
+伊苏的开发思路和你轨完全是两个路子，一个思路和逻辑更接近一个认认真真做的游戏，而轨迹更像是个卖角色的展示平台<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">轨这套更像是手游的路子
+

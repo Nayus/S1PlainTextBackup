@@ -1939,3 +1939,29 @@ akane的声音真好听
 
 不过最后还是找到光了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hitori酱  
+##### 22388#       发表于 2024-8-23 16:35
+
+尴尬
+
+<img src="https://img.saraba1st.com/forum/202408/23/163503o76tbalby8yeja79.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 16:35 上传
+
+<img src="https://img.saraba1st.com/forum/202408/23/163527d7yyau71d5pc7de9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (117.69 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 16:35 上传
+
+[https://x.com/portablehell/status/1826548736270426245](https://x.com/portablehell/status/1826548736270426245)
+

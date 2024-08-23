@@ -6593,3 +6593,35 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 法社第一印象定律又生效了（
 
+
+*****
+
+####  悠悠你心  
+##### 2783#       发表于 2024-8-23 12:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个人接着吊着是吧
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Aeons  
+##### 2784#       发表于 2024-8-23 12:43
+
+没啥意思，感觉这种小短片能剪辑到发售
+
+
+*****
+
+####  新世界的派蒙  
+##### 2785#       发表于 2024-8-23 12:45
+
+阿法看大家都猜出来了，索性不装了，难不成自己也知道卖关子结果答案太简单会被嘲，比如红黎
+
+*****
+
+####  ravend233  
+##### 2786#       发表于 2024-8-23 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PV呢，我的长PV呢
+

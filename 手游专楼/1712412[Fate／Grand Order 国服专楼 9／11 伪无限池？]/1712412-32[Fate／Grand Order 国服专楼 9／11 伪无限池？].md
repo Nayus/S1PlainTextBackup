@@ -1923,3 +1923,11 @@ img_2153.png
 
 bgo还怪好的，给我留了一个十连是吧
 
+
+*****
+
+####  khxooo  
+##### 46715#       发表于 2024-8-23 19:21
+
+小号500多石头沉强度美，果然是还了10出水妖兰的债嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

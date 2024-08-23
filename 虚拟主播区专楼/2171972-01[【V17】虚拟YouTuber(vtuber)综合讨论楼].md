@@ -2047,3 +2047,11 @@ vr link还好说，vr star除了菜菜子之外的人基本都和维阿没联系
 
 要这群管人十天练出来堪比职业的igl也太难为他们了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  winda  
+##### 615#       发表于 2024-8-23 13:54
+
+ssk怎么突然就把fanclub关了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

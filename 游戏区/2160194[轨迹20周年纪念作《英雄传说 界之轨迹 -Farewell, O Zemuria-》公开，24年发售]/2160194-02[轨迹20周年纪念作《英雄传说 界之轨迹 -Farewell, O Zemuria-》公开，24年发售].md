@@ -6846,3 +6846,47 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 黎二都一整部魔装鬼甚至最终boss了，界最终boss还是魔装鬼，感觉真不行
 
+
+*****
+
+####  古畑任三郎2015  
+##### 2809#       发表于 2024-8-23 13:45
+
+我有一个很成熟的点子，8个魔装鬼搞8之相克怎么样<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  benhawk  
+##### 2810#       发表于 2024-8-23 13:45
+
+等看前瞻。
+
+话说他们想不出烂活了。
+
+不如把空轨重置了。不是很方便。本来也断代了。
+
+*****
+
+####  ravend233  
+##### 2811#       发表于 2024-8-23 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990733&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-8-23 13:45</a>
+
+我有一个很成熟的点子，8个魔装鬼搞8之相克怎么样</blockquote>
+太棒了，就这么写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2812#       发表于 2024-8-23 13:51
+
+黎一猜也就算了，现在肯定没的
+
+*****
+
+####  SuNR1sE364  
+##### 2813#       发表于 2024-8-23 13:51
+
+真就是学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

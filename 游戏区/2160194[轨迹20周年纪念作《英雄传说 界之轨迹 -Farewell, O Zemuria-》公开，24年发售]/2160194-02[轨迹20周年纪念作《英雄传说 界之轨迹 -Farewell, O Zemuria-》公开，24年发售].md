@@ -7288,3 +7288,35 @@ PSV独占累计15万，那是十年前的事了，闪轨一二PS**3双平台，�
 
 似乎现在法社用户对于冷饭作品更喜欢用掌机玩，新作则更喜欢用机能更强的ps玩，
 
+
+*****
+
+####  Aeons  
+##### 2857#       发表于 2024-8-23 17:59
+
+不知道后续有哪些角色能上官网，有立绘
+
+*****
+
+####  妄想中毒  
+##### 2858#       发表于 2024-8-23 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怎么感觉游戏还没发售剧情都快透完了
+
+
+*****
+
+####  ravend233  
+##### 2859#       发表于 2024-8-23 18:05
+
+毕竟你法社能编的活就这些东西了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 2860#       发表于 2024-8-23 18:07
+
+猜完剧情这不是轨发售前的固定节目吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

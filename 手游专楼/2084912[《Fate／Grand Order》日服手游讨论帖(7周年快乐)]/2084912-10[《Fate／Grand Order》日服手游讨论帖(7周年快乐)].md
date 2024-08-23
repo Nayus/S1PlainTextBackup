@@ -10773,3 +10773,43 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 其实没有提前透露OC3的话，这个展开真的会是惊喜
 
+
+*****
+
+####  TheLoof  
+##### 14329#       发表于 2024-8-23 17:54
+
+ 本帖最后由 TheLoof 于 2024-8-23 17:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993219&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-23 17:40</a>
+
+蘑菇是真的很喜欢fe动画啊</blockquote>
+铁鱼没关系吧，阿菌应该是真的喜欢可以随便嘴瓢的mc设定
+
+反而是不能瞎嘴瓢又忍不住想嘴瓢的时候，怎么玩怎么难蹦，铁鱼就是这么玩脱的
+
+这次也算是找补一下了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 14330#       发表于 2024-8-23 18:00
+
+伤害倍卡水妖兰+狮子王，第二面刷掉C呆的卡，如果没有水妖兰的卡就狮子王宝具3连。
+
+*****
+
+####  alucardcz  
+##### 14331#       发表于 2024-8-23 18:03
+
+<img src="https://img.saraba1st.com/forum/202408/23/180332yx2r2zrkrlxlxrag.jpg" referrerpolicy="no-referrer">
+
+<strong>45454.jpg</strong> (578.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 18:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是bug了吗 好感度条突破天际了  还是说满好感就这样？ 我第1次满好感
+

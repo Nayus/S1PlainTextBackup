@@ -1965,3 +1965,19 @@ akane的声音真好听
 
 [https://x.com/portablehell/status/1826548736270426245](https://x.com/portablehell/status/1826548736270426245)
 
+
+*****
+
+####  PDQ4  
+##### 22389#       发表于 2024-8-23 20:18
+
+这下真的全军覆没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/23/201846eobrjb4fn4ozpfx2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9059.jpeg</strong> (405.09 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 20:18 上传
+

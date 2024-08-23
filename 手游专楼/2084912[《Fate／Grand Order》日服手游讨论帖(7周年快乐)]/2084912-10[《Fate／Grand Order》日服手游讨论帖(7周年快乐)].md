@@ -11080,3 +11080,28 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 挂了半天没动静也打算去下一括的，一看要下20G</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还是继续等一会吧 （
 
+
+*****
+
+####  森兰丸  
+##### 14359#       发表于 2024-8-23 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993981&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-23 19:06</a>
+
+你醒啦？ 这次还分上中下哦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我知道这次奏章3和活动一起开但我没想到奏章3也是限时的
+
+这游戏虽然几乎不可能再有多少新玩家了
+
+但万一没打过这活动的新玩家到时推主线打完奏章2后就直接跳到奏章4少了一整段奏章3么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 14360#       发表于 2024-8-23 20:24
+
+这90++来给学姐喂饭来了？至于艾蕾……她是全游戏唯二打狂白字的高贵职介<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

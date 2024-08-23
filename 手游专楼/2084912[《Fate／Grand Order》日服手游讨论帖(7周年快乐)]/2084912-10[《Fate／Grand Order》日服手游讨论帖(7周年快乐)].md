@@ -11237,3 +11237,13 @@ GVquoYraYAAXsAa.jpg
 突然想起</blockquote>
 能换啊 我都是换的 正好够拉满学姐和艾蕾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 14372#       发表于 2024-8-24 00:52
+
+我直接1宝CIEL200%礼装 1宝公主 借的杀狐
+
+1面公主直接杀,2面CIEL宝具,3面宝具加两红卡暴击。
+

@@ -7033,3 +7033,63 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 黎恩给谁报恩，剑仙？
 
+
+*****
+
+####  Aeons  
+##### 2831#       发表于 2024-8-23 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991249&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 14:36</a>
+
+长pv本身一些都是从op剪出来的，op都出了不好出了</blockquote>
+
+看黎二，长pv都是实机吧，op反而都是op限定场面
+
+*****
+
+####  一步成诗  
+##### 2832#       发表于 2024-8-23 14:47
+
+那这总统未免也太，当初对标宰相，现在一看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2833#       发表于 2024-8-23 14:48
+
+干嘛，宰相最开始不是为了救小孩？
+
+
+*****
+
+####  卢迪克  
+##### 2834#       发表于 2024-8-23 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991370&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-23 14:47</a>
+
+那这总统未免也太，当初对标宰相，现在一看</blockquote>
+伟大，竞选大总统是为了推进计划，向帝国索要天文赔偿是为了加速计划实行，以两个大国作为踏板，你说牛不牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 2835#       发表于 2024-8-23 14:53
+
+宰相救小孩自己去救，总统救小孩造火箭上太空？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 2836#       发表于 2024-8-23 14:53
+
+愿意赔钱的帝国更加小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2837#       发表于 2024-8-23 14:54
+
+总统这像是你法社会写出的剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

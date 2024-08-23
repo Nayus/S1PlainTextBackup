@@ -10871,3 +10871,32 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 衣服3t给学姐10np完事儿
 
+
+*****
+
+####  alucardcz  
+##### 14338#       发表于 2024-8-23 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太**了 学姐都默认点了被动5才能用  1宝还得刷20多万羁绊才能用。。。
+
+*****
+
+####  都谷捻柏  
+##### 14339#       发表于 2024-8-23 18:22
+
+学姐+水斯卡蒂+水BB，衣服用初始那件+50攻的，纹章绿卡蓝卡带出星，红卡带加暴伤的（一张是红卡25爆伤（天の女主人），一张是阳光照射场地30爆伤（太陽の乙女狼）），学姐1宝百级下限剩10000血，几乎稳定3t。
+
+*****
+
+####  TheLoof  
+##### 14340#       发表于 2024-8-23 18:23
+
+ 本帖最后由 TheLoof 于 2024-8-23 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993597&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-23 18:21</a>
+
+太**了 学姐都默认点了被动5才能用  1宝还得刷20多万羁绊才能用。。。</blockquote>
+我比你还难蹦，无脑开的AS2，我得刷到羁绊9才能开AS5
+
+所以上面那套大概没几个人能用
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

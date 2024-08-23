@@ -593,3 +593,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 两年前大润刚出的时候就有粉丝群体在呼吁了怎么游戏棺材板都要盖上了才想起来该做什么啊野上
 
+
+*****
+
+####  Ryuuseigun  
+##### 5007#       发表于 2024-8-23 19:01
+
+不记得谁说最终大润最好是水淹蛮颓，现在倒也差不多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

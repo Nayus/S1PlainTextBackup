@@ -7377,3 +7377,20 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ravend233  
+##### 2867#       发表于 2024-8-23 19:00
+
+比黎2烂大概不至于，但是感觉也好不到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 2868#       发表于 2024-8-23 19:03
+
+以前也没想到有比闪2烂的，不要低估你法
+

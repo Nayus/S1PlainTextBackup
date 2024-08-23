@@ -10983,3 +10983,49 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 还以为是在mc里，结果真给来了个月面基地，话说这bb和尼禄都有自己的主场活动了，狐狸什么时候安排 ...</blockquote>
 嘿嘿，阿提拉都没上，轮得到狐狸吗
 
+
+*****
+
+####  angelooo  
+##### 14349#       发表于 2024-8-23 19:02
+
+<blockquote>cckuku 发表于 2024-8-23 18:40
+我蕾哭叻，全游唯二对狂白字的含金量</blockquote>
+你什么时候产生了拿到泳装就不用被迫害的错觉23333
+
+*****
+
+####  alucardcz  
+##### 14350#       发表于 2024-8-23 19:02
+
+[https://www.bilibili.com/video/BV19ZWSeSERn](https://www.bilibili.com/video/BV19ZWSeSERn)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1宝无被动学姐6加成不换人。。不过不打文章不喂脚的话  第3面伤害是不够的   要么2宝要么开被动解放衣服（
+
+*****
+
+####  森兰丸  
+##### 14351#       发表于 2024-8-23 19:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">奏章这东西不是主线么....怎么也能搞成期间限定活动啊
+
+*****
+
+####  都谷捻柏  
+##### 14352#       发表于 2024-8-23 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993523&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-8-23 18:12</a>
+
+还以为是在mc里，结果真给来了个月面基地，话说这bb和尼禄都有自己的主场活动了，狐狸什么时候安排 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狐狸连人都是兔子精代餐了，感觉已经是查无此人了。
+
+*****
+
+####  alucardcz  
+##### 14353#       发表于 2024-8-23 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993966&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-23 19:03</a>
+
+奏章这东西不是主线么....怎么也能搞成期间限定活动啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你醒啦？ 这次还分上中下哦
+

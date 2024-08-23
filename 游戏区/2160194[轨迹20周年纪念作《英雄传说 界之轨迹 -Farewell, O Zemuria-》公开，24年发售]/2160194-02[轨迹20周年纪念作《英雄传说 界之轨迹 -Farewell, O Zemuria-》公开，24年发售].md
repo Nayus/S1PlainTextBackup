@@ -6949,3 +6949,42 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 女神本尊是不是最重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2822#       发表于 2024-8-23 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原文是“某种意义上是最重要”
+
+*****
+
+####  一步成诗  
+##### 2823#       发表于 2024-8-23 14:20
+
+黎2是不是说3某种意义上是主角来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 2824#       发表于 2024-8-23 14:23
+
+莉捷特的重要是因为mk重要，有说。
+至于斯温，发售前发售后都说过像主角。
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我还记得那会骂我的呢
+
+*****
+
+####  ravend233  
+##### 2825#       发表于 2024-8-23 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991121&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-23 14:23</a>
+
+莉捷特的重要是因为mk重要，有说。
+
+至于斯温，发售前发售后都说过像主角。
+
+我还记得那会骂我的呢 ...</blockquote>
+不止是像主角吧，还有说里主角的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7128,3 +7128,14 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉你法的爹大体上都是这种，YSX那种提着斧子追着女儿砍的屑爹反而少（
 
+
+*****
+
+####  卢迪克  
+##### 2842#       发表于 2024-8-23 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991717&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-23 15:16</a>
+
+感觉你法的爹大体上都是这种，YSX那种提着斧子追着女儿砍的屑爹反而少（</blockquote>
+杰拉尔：女儿儿子长啥样我都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

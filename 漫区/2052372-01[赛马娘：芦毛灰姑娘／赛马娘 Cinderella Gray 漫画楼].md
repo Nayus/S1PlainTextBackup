@@ -1576,3 +1576,47 @@ md看到鸡腿就想到圣夜，想起圣夜就是帽门ptsd<img src="https://st
 
 好好好！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arrogate  
+##### 142#       发表于 2024-8-23 20:55
+
+居然动画化了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arrogate  
+##### 143#       发表于 2024-8-23 20:57
+
+希望能做好一点，能像马2那样吗
+
+*****
+
+####  Todds_lies  
+##### 144#       发表于 2024-8-23 20:59
+
+小栗帽本马的高人气和芦毛灰姑娘的高人气，应该能做到马二那样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">。
+
+啥也别动，跟着漫画改编的节奏就行了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  wfhtony  
+##### 145#       发表于 2024-8-23 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994775&amp;ptid=2052372" target="_blank">Arrogate 发表于 2024-8-23 20:57</a>
+
+希望能做好一点，能像马2那样吗</blockquote>
+只要动画组不魔改漫画剧情，理论上一个季度没啥问题。
+
+*****
+
+####  DOACAON  
+##### 146#       发表于 2024-8-23 21:04
+
+但是这个导演的履历……还是先质疑再质疑吧
+

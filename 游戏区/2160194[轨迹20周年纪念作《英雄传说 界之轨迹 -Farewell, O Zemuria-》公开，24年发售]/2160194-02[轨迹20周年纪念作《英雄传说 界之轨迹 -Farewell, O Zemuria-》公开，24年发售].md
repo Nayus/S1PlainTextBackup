@@ -6709,3 +6709,41 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 哦，画面和人物是完全对应的，那没话说了。 ...</blockquote>
 应该就是艾梅丝说的，的确由她来说不由得让人觉得他们上宇宙的目的之一不会是寻找女神吧，当然那句话也可能只是感概而已
 
+
+*****
+
+####  Aeons  
+##### 2796#       发表于 2024-8-23 13:29
+
+这20天情报已经放了，下次请等20天后
+
+*****
+
+####  ravend233  
+##### 2797#       发表于 2024-8-23 13:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到游戏发售才把PV发出来
+
+不过感觉下周应该会有PV了，九月再来直播一下序章就完事了
+
+*****
+
+####  一步成诗  
+##### 2798#       发表于 2024-8-23 13:31
+
+一个新画面都没有也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 2799#       发表于 2024-8-23 13:33
+
+都剪到这份上了，别到时候告诉我是学老员工高桥把无关的台词凑到pv画面上啊
+
+*****
+
+####  KevinGraham  
+##### 2800#       发表于 2024-8-23 13:33
+
+真就大喊学妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

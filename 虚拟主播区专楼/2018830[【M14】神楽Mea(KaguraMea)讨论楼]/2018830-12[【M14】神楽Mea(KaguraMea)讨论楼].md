@@ -6512,3 +6512,16 @@ mv的衣装设计里两人有对方的元素
 半年前就录了 半年前就决定毕业了？
 话说鱼板做隐语不会和nqrse搞混吗
 
+
+*****
+
+####  秋游刃  
+##### 17208#       发表于 2024-8-23 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990000&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-8-23 12:34</a>
+
+半年前就录了 半年前就决定毕业了？
+
+话说鱼板做隐语不会和nqrse搞混吗</blockquote>
+问题不大，好多药娘也用鱼板当身份标签。
+

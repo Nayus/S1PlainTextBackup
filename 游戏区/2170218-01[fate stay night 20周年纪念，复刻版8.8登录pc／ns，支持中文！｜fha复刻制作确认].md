@@ -1243,3 +1243,13 @@ mod文件夹里的游戏id文件夹下面新建个romfs文件夹放进去就行
 
 现在只用等全收集存档就好了（
 
+
+*****
+
+####  satan023  
+##### 128#       发表于 2024-8-24 03:16
+
+没玩过游戏 要补的话玩老的pc版还是这个steam版？
+
+—— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

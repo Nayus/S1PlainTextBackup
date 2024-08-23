@@ -10747,3 +10747,11 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 前方战报，基本上大型fe二期联动了</blockquote>
 PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白野逼格的踏脚石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 14326#       发表于 2024-8-23 17:40
+
+蘑菇是真的很喜欢fe动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

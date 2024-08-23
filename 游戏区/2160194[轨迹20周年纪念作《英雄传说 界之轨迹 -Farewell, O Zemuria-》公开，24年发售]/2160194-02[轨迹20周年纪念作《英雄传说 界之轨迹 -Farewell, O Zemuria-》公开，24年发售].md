@@ -7229,3 +7229,48 @@ psv那会统计首周9w左右吧，当时是弗如轨，现在嘛
 <blockquote>「軌跡」「イース」シリーズの日本ファルコムが手掛ける同社初の現代劇として 2015 年 9 月 30 日(水)に発売した『東亰ザナドゥ』は、東亰都・杜宮市を舞台に描かれる高校生たちの等身大の群像劇、スキル攻撃や属性を駆使した爽快アクション、テンポよく展開する壮大なストーリーなどが幅広いユーザーから支持され、PlayStation Vita 向けの完全新規タイトルとしては異例の販売本数 15 万本を突破！</blockquote>
 PSV独占累计15万，那是十年前的事了，闪轨一二PS**3双平台，其中PSV都是累计10万以上，时代早就不一样，现在首发Switch也就一万五的销量，而且时代早就转向数字版，这种实体版销量肯定越来越少。
 
+
+*****
+
+####  卢迪克  
+##### 2853#       发表于 2024-8-23 17:34
+
+ 本帖最后由 卢迪克 于 2024-8-23 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993044&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-23 17:21</a>
+
+不知道你在胡说啥，首先这个不是新闻了，而是2016年的旧闻：
+
+[https://www.4gamer.net/games/285/G028562/](https://www.4gamer.net/games/285/G028562/) ...</blockquote>
+不统计累积吗 记得 ys8  2.0万,闪3 1.6w ys9 1.4w  闪4  1.3w 创 1.1w  闪1  9k  闪2  8k  那由多 7k,
+
+。
+
+黎1 7w4  黎2 5w7 奶由多 1.9  黎ps5 5k，
+
+实体都还行吧所以近藤才揽下ns发行权自己卖，23年还没外泄 不清楚 东x和ysx卖了多少，
+
+
+*****
+
+####  洛克萨斯  
+##### 2854#       发表于 2024-8-23 17:45
+
+白色魔装鬼是另一条线的学妹的话，其他蒙面人就是另一条线的事务所成员了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+界轨？创轨2！
+
+*****
+
+####  酷乐  
+##### 2855#       发表于 2024-8-23 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993172&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 17:34</a>
+
+不统计累积吗 记得 ys8  2.0万,闪3 1.6w ys9 1.4w  闪4  1.3w 创 1.1w  闪1  9k  闪2  8k  那由多 7k,
+
+。
+
+ ...</blockquote>
+
+这是发路空Switch游戏的Fami通统计值，只作一个横向对比用。
+

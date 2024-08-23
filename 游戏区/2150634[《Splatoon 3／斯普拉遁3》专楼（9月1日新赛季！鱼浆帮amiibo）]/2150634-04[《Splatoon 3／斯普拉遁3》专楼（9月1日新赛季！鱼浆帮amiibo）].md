@@ -532,3 +532,22 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 🍫👅，-568.2，又可以再挑战一次5000了
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5002#       发表于 2024-8-23 17:17
+
+没想到还有新的大润，不错不错
+
+明天还有东西对抗决战看，爽
+
+*****
+
+####  KBAC  
+##### 5003#       发表于 2024-8-23 17:20
+
+怪不得有解包佬说大型祭典和打工有关<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

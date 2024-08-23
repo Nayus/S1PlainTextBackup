@@ -7109,3 +7109,14 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 总统：为什么是我的女儿，我不同意，去你的爱普斯泰恩预言<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 2840#       发表于 2024-8-23 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65991426&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 14:52</a>
+
+伟大，竞选大总统是为了推进计划，向帝国索要天文赔偿是为了加速计划实行，以两个大国作为踏板，什么环境 ...</blockquote>
+确实伟大，折腾完估计总统位置又要换狸猫坐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

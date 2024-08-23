@@ -10689,3 +10689,14 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 才意识到兽蕾3技能可以减2tcd，开了被动加上衣服之后能有140冲了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14320#       发表于 2024-8-23 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65987917&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-23 09:36</a>
+
+公主是5号技能收益最高的卡，没有之一（仅对公主而言，-cd的优先级要大于初始Np）。没有-cd之前公主是双杀 ...</blockquote>
+原來如此。不过水吹的优势是狂吧，冲浪伤害维持高
+

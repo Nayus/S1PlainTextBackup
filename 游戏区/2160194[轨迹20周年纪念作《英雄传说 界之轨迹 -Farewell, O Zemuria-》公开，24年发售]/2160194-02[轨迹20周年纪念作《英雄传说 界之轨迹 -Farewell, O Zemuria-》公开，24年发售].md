@@ -6537,3 +6537,16 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 加藤：美国的玩家倒是对《伊苏》挺喜欢，亚洲的玩家则更喜欢《轨迹》系列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2777#       发表于 2024-8-23 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65989390&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-23 11:36</a>
+
+因为销量大头的美国人更喜欢伊苏得认真做啊，伊苏8在ns发售后就从50w涨到了60w了啊
+
+加藤：美国的玩家倒是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你轨本质上还是靠老粉，东亚家底厚，欧美没那么多老粉，伊苏还能吸点路人，自然比轨更能卖
+

@@ -10670,3 +10670,14 @@ CV是否/會否換人某程度這問題可以拖一段時間來處理
 
 公主开-CD划不划算？
 
+
+*****
+
+####  xiongxingyu  
+##### 14318#       发表于 2024-8-23 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65987689&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-23 09:20</a>
+
+公主开-CD划不划算？</blockquote>
+公主是5号技能收益最高的卡，没有之一（仅对公主而言，-cd的优先级要大于初始Np）。没有-cd之前公主是双杀狐加CD服才能无条件三连冲，开了之后就可以解放一个杀狐或者衣服，目前5120的顶配公主可以说是你游最泛用的冲浪手了（水吹多少还得考虑一下对面人数和回收系数）。
+

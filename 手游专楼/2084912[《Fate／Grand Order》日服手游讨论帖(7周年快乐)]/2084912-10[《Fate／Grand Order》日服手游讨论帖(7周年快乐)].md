@@ -11143,3 +11143,18 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 回坑玩家听说会补发每个角色升级羁绊的角色碎片，上线找了一圈没找到，有没有人知道在哪里领的 ...</blockquote>
 还没实装呢  在过一个月问<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14365#       发表于 2024-8-23 21:20
+
+也差不多半个月了，看看是拖两天等中篇同步实装还是提早一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lokiling  
+##### 14366#       发表于 2024-8-23 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

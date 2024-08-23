@@ -1125,3 +1125,11 @@ resetera：最后避风港！
 
 因为这位是站在了LGBT的对立面啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  overmindoyj  
+##### 109#       发表于 2024-8-23 10:19
+
+cancel culture落到自己头上了就觉得可怕了？
+

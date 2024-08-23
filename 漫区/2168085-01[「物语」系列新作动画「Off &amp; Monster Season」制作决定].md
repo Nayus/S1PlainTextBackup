@@ -1284,3 +1284,14 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 阿b出了个角色榜，然而这季物语垃圾君一次没登场却上了榜</blockquote>
 女版垃圾君是小扇，那男版小扇不就是垃圾君了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ef6270  
+##### 747#       发表于 2024-8-23 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993770&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-8-23 18:40</a>
+
+阿b出了个角色榜，然而这季物语垃圾君一次没登场却上了榜</blockquote>
+有一说一，给斧乃木送冰淇淋时登场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

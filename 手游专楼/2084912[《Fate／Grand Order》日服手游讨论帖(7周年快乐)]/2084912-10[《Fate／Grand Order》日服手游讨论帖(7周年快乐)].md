@@ -11029,3 +11029,14 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 奏章这东西不是主线么....怎么也能搞成期间限定活动啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你醒啦？ 这次还分上中下哦
 
+
+*****
+
+####  シャル  
+##### 14354#       发表于 2024-8-23 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993970&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2024-8-23 19:04</a>
+
+狐狸连人都是兔子精代餐了，感觉已经是查无此人了。</blockquote>
+就是，除非出妲己灵基本人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

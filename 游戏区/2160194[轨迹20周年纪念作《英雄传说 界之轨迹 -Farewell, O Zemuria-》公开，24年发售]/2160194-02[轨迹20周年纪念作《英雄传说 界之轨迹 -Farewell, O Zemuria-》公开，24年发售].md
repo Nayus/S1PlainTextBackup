@@ -6625,3 +6625,29 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PV呢，我的长PV呢
 
+
+*****
+
+####  卢迪克  
+##### 2787#       发表于 2024-8-23 12:48
+
+结社呢   
+
+*****
+
+####  ravend233  
+##### 2788#       发表于 2024-8-23 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990129&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-8-23 12:45</a>
+
+阿法看大家都猜出来了，索性不装了，难不成自己也知道卖关子结果答案太简单会被嘲，比如红黎 ...</blockquote>
+白金魔装鬼硬要说从设计元素和OP分镜来说指向性挺明显的，和红黎不一样，就没打算藏吧
+
+
+*****
+
+####  低调不圆滑  
+##### 2789#       发表于 2024-8-23 12:54
+
+你法这辈子绕不过艾约了，天天想搞复刻
+

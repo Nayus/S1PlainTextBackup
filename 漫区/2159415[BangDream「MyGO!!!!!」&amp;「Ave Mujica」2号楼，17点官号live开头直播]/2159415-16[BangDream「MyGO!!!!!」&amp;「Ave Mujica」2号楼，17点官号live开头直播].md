@@ -1914,3 +1914,28 @@ akane的声音真好听
 还会补货吗</blockquote>
 肯定補貨的 不過追加可能晚發貨就是（
 
+
+*****
+
+####  NODY  
+##### 22386#       发表于 2024-8-23 15:19
+
+草台放错预告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/23/151941ef5f05920b9ijb2n.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (80.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 15:19 上传
+
+*****
+
+####  星天观测  
+##### 22387#       发表于 2024-8-23 15:21
+
+难蚌
+
+不过最后还是找到光了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

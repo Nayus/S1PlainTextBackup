@@ -7120,3 +7120,11 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 伟大，竞选大总统是为了推进计划，向帝国索要天文赔偿是为了加速计划实行，以两个大国作为踏板，什么环境 ...</blockquote>
 确实伟大，折腾完估计总统位置又要换狸猫坐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2841#       发表于 2024-8-23 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉你法的爹大体上都是这种，YSX那种提着斧子追着女儿砍的屑爹反而少（
+

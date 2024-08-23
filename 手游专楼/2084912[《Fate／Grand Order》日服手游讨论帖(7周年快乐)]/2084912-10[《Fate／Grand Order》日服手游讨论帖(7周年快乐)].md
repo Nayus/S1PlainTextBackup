@@ -10755,3 +10755,21 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 蘑菇是真的很喜欢fe动画啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14327#       发表于 2024-8-23 17:46
+
+草，你们过今天剧情的时候记得带QP礼装
+
+1400w没加成我好心痛
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 14328#       发表于 2024-8-23 17:49
+
+其实没有提前透露OC3的话，这个展开真的会是惊喜
+

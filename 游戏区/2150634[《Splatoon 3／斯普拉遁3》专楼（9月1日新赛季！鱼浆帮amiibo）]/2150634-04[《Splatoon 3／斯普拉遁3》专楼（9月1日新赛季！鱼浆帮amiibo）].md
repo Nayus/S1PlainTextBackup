@@ -569,3 +569,19 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 5005#       发表于 2024-8-23 17:48
+
+<img src="https://img.saraba1st.com/forum/202408/23/174645ciyyyhykwl6ashh7.png" referrerpolicy="no-referrer">
+
+<strong>Image_1724406395966.png</strong> (336.73 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 17:46 上传
+
+最终奖励按研究所的尿性应该要333333333总计三亿多个金蛋。算它有100w玩家上线打，平均每人打300多个金蛋
+

@@ -7274,3 +7274,17 @@ PSV独占累计15万，那是十年前的事了，闪轨一二PS**3双平台，�
 
 这是发路空Switch游戏的Fami通统计值，只作一个横向对比用。
 
+
+*****
+
+####  卢迪克  
+##### 2856#       发表于 2024-8-23 17:52
+
+ 本帖最后由 卢迪克 于 2024-8-23 17:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993260&amp;ptid=2160194" target="_blank">酷乐 发表于 2024-8-23 17:45</a>
+
+这是发路空Switch游戏的Fami通统计值，只作一个横向对比用。</blockquote>
+最近Switch似乎已经成为法老控的冷饭专用平台了，ps5冷饭作品从ps4时代固定一万本跌到两三千。
+
+似乎现在法社用户对于冷饭作品更喜欢用掌机玩，新作则更喜欢用机能更强的ps玩，
+

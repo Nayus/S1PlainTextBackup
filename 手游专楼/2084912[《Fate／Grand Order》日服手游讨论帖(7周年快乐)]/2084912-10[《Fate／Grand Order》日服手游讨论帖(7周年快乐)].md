@@ -11247,3 +11247,11 @@ GVquoYraYAAXsAa.jpg
 
 1面公主直接杀,2面CIEL宝具,3面宝具加两红卡暴击。
 
+
+*****
+
+####  cenhr  
+##### 14373#       发表于 2024-8-24 01:02
+
+可能这次是大型的Last Encore和月之珊瑚的联动<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

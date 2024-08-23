@@ -551,3 +551,21 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5004#       发表于 2024-8-23 17:33
+
+<img src="https://img.saraba1st.com/forum/202408/23/173302f3ml1iqm2qxmx8qi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_0074.jpeg</strong> (602.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-23 17:33 上传
+
+而且还是金工<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

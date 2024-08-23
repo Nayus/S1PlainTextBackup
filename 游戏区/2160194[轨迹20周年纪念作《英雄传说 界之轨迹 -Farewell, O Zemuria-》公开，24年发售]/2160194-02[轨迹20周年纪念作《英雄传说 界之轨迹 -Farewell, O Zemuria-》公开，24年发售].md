@@ -6659,3 +6659,53 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 “爱德丝在哪里呢”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  酷乐  
+##### 2791#       发表于 2024-8-23 13:14
+
+没开声音，我说这不没一点新画面吗，再开声音一看，我去，原来爆点全在这里。
+
+*****
+
+####  Aeons  
+##### 2792#       发表于 2024-8-23 13:15
+
+ 本帖最后由 Aeons 于 2024-8-23 13:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990342&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-8-23 13:04</a>
+
+“（空之女神）爱德丝在哪里呢”</blockquote>
+
+这话我听着像艾梅丝说的，意思是在外星找？
+
+哦，画面和人物是完全对应的，那没话说了。
+
+*****
+
+####  卢迪克  
+##### 2793#       发表于 2024-8-23 13:16
+
+<blockquote>酷乐 发表于 2024-8-23 13:14
+没开声音，我说这不没一点新画面吗，再开声音一看，我去，原来爆点全在这里。 ...</blockquote>
+没料了，理解一下
+
+
+*****
+
+####  宛若青空  
+##### 2794#       发表于 2024-8-23 13:21
+
+法在界轨的宣发上看起来着实是又省又混乱，这两个CM在标题上完全没做区分，而应该冠名为PV的前两个宣发长视频标题却是WebCM第一弹和第二弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 2795#       发表于 2024-8-23 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65990461&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-23 13:15</a>
+这话我听着像艾梅丝说的，意思是在外星找？
+
+哦，画面和人物是完全对应的，那没话说了。 ...</blockquote>
+应该就是艾梅丝说的，的确由她来说不由得让人觉得他们上宇宙的目的之一不会是寻找女神吧，当然那句话也可能只是感概而已
+

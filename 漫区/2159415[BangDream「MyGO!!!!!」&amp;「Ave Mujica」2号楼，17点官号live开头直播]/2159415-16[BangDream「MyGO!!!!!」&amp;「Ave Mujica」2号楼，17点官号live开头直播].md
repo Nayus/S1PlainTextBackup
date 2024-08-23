@@ -1893,3 +1893,11 @@ akane的声音真好听
 
 备货对得起你鸡唯一真神的黑生吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22384#       发表于 2024-8-23 11:25
+
+说不定备货先优先场贩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

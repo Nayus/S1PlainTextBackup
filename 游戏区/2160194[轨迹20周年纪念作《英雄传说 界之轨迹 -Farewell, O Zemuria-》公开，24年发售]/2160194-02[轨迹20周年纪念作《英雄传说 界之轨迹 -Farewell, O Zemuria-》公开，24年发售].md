@@ -6927,3 +6927,25 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 按照经典二次元理论，角色变身蕴含着重大人物弧光的转折，红鬼纯被动，不算数的。白金鬼让人兴奋，因为有戏看口牙。
 
+
+*****
+
+####  卢迪克  
+##### 2819#       发表于 2024-8-23 14:09
+
+本作超重要人物学妹是白金魔装鬼，本作重要人物的莉泽特是干嘛的，面具人首领？<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 2820#       发表于 2024-8-23 14:10
+
+错了，女仆是最重要，别漏字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 2821#       发表于 2024-8-23 14:13
+
+女神本尊是不是最重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

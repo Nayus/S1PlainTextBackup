@@ -7155,3 +7155,28 @@ R~4HVXO0J3_F`0]5$T@O05G.jpg
 
 原来对标宰相指这个吗？
 
+
+*****
+
+####  卢迪克  
+##### 2845#       发表于 2024-8-23 17:00
+
+贴吧看到的，东迷首周日本原来有接近15万销量吗，续作居然拖到明年才出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+東京ザナドゥの続編は 近藤 最低ノルマが5万本だったが、その3倍近く売れてる。なので続報をお待ちいただきたい
+
+
+*****
+
+####  一步成诗  
+##### 2846#       发表于 2024-8-23 17:05
+
+这下三倍杀你轨了，不用你填档用谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜月紫耀  
+##### 2847#       发表于 2024-8-23 17:07
+
+献祭献计
+

@@ -7367,3 +7367,13 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  光之阶梯  
+##### 2866#       发表于 2024-8-23 18:46
+
+比黎2好就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

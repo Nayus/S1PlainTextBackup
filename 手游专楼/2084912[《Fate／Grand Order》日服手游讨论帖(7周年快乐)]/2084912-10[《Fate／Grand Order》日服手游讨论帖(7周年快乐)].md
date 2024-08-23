@@ -10962,3 +10962,24 @@ PV不早就说明了？就看看藤丸会不会成为真飞鸟，用来当吹白
 
 我蕾哭叻，全游唯二对狂白字的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14347#       发表于 2024-8-23 18:46
+
+ 本帖最后由 alucardcz 于 2024-8-23 18:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有点亏 为了能直接秒了我甚至喂了兽脚 虽然也没地方用就是了
+
+
+*****
+
+####  シャル  
+##### 14348#       发表于 2024-8-23 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65993523&amp;ptid=2084912" target="_blank">quanlix 发表于 2024-8-23 18:12</a>
+
+还以为是在mc里，结果真给来了个月面基地，话说这bb和尼禄都有自己的主场活动了，狐狸什么时候安排 ...</blockquote>
+嘿嘿，阿提拉都没上，轮得到狐狸吗
+

@@ -601,3 +601,20 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 不记得谁说最终大润最好是水淹蛮颓，现在倒也差不多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 5008#       发表于 2024-8-24 18:49
+
+鱼虎对抗战吸墨机还是好用
+
+*****
+
+####  shirolin  
+##### 5009#       发表于 2024-8-24 18:50
+
+太刺激了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

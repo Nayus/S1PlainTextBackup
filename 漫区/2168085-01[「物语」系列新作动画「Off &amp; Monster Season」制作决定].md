@@ -1339,3 +1339,26 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 彳亍
 
+
+*****
+
+####  集合酱  
+##### 752#       发表于 2024-8-24 21:29
+
+这ed就一直没画面了吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Tachikoma88  
+##### 753#       发表于 2024-8-24 21:31
+
+没一个猜对的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 754#       发表于 2024-8-24 21:33
+
+业物语估计就两集，接下来忍物语就是新ed画面了吧
+

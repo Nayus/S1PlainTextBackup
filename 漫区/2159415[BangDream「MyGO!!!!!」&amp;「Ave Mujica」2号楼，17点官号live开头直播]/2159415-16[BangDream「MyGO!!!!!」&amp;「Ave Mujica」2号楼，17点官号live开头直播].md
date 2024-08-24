@@ -2105,3 +2105,16 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 泛式一出手就是大的，目前见过最sb的素睦二创。正好再叠一波挺王热度，感觉讨论环境彻底完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 22396#       发表于 2024-8-24 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66002918&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-8-24 20:45</a>
+
+泛式一出手就是大的，目前见过最sb的素睦二创。正好再叠一波挺王热度，感觉讨论环境彻底完蛋了 ...</blockquote>
+铁暗恋好像就是从他传出来的吧，国内特供素睦源头，动漫KOL的威力可见一斑。
+
+素睦官方洗糖降的热度，不知道会不会再被他推起来。
+

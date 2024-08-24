@@ -7544,3 +7544,23 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 之前还爆料你法和云豹联合开轨迹二十周年发布会呢，结果就是你法在界轨电击直 ...</blockquote>
 你法有舅舅能不能先曝一下PSN港版数字什么时候能预购
 
+
+*****
+
+####  卢迪克  
+##### 2883#       发表于 2024-8-24 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66003063&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-24 21:01</a>
+
+你法有舅舅能不能先曝一下PSN港版数字什么时候能预购</blockquote>
+云豹的pc版树海还没交出来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2884#       发表于 2024-8-24 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live的完整版op编曲还是很自由
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

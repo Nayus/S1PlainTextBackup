@@ -1411,3 +1411,13 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 卷发老仓和最初的长发版本果然还是没得比，但比续终那噩梦般的短发高到不知哪里去了
 
+
+*****
+
+####  KDConan  
+##### 760#       发表于 2024-8-24 23:50
+
+有点闷的一集，这部分确实也就只能改编成这德性吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

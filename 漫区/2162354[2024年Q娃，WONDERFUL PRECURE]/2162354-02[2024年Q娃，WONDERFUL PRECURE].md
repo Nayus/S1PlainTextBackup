@@ -503,3 +503,26 @@ friendy precure(√)
 
 都怪神秘的力量不让我继续战斗了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  犬飼いろは  
+##### 2067#       发表于 2024-8-24 11:03
+
+第30話　わんだふるなキャッスル！
+
+脚本：成田良美
+
+演出：土田豊
+
+作画監督：板岡錦
+
+美術：東美紀
+
+夜、メエメエに鏡石のひみつを明かすニコ。鏡石は、「人間となかよく暮らしたい」という動物たちの願いをかなえるため、ニコが与えたニコダイヤのかけらだった。ニコは、プリキュアが狼たちを止めることができなければ、その力を返してもらい、自分がガオウに立ち向かうつもりだと打ち明ける。ガオガオーンたちは夜が明けてもあばれまわり、アニマルタウンには外出禁止令が出されていた。トラメとザクロから、アニマルタウン付近にいた狼は人間のせいで絶滅したと聞かされ、友達なんかになれるわけないと拒絶されて落ち込むいろは（CV.種﨑敦美）。そんないろはに寄り添い、言葉をかけるこむぎ（CV.長縄まりあ）のもとに、悟から「ガオガオーンたちが街の中心部に向かっている」と知らされる。恐怖と動揺で動けなくなっていたまゆ（CV.上田麗奈）にもユキ（CV.松田颯水）が寄り添い、共に街の中心をめざす。
+
+<img src="https://p.sda1.dev/19/1b80ea0b77ba8101422e452335e22281/1.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/6292ce005ee7c7c90bcbaf71622f6369/2.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/de2c9e3b011b37dc63868cd927ac65a0/3.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/7aeab47c4f60f074f7ff2106d7477285/4.jpeg" referrerpolicy="no-referrer">
+

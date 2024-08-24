@@ -682,3 +682,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  墨染白泉  
+##### 5017#       发表于 2024-8-24 20:42
+
+8个赛季打满了，第一次上25。3代入坑萌新圆满了
+

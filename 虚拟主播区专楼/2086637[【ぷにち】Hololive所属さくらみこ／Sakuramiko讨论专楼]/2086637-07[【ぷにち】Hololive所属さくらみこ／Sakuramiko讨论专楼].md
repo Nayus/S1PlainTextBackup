@@ -7237,3 +7237,32 @@ miko看到ordan的转发以后自己也转了……
 
 最后一刻的丢人
 
+
+*****
+
+####  holoan  
+##### 9493#         楼主| 发表于 2024-8-24 20:14
+
+<img src="https://img.saraba1st.com/forum/202408/24/201420zlsrdsrb1s5e9rhi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 20:14 上传
+
+*****
+
+####  holoan  
+##### 9494#         楼主| 发表于 2024-8-24 20:38
+
+<img src="https://img.saraba1st.com/forum/202408/24/203747n5esues5bke5erkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 20:37 上传
+
+按官方设定确实是6人里最高的
+

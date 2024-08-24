@@ -11299,3 +11299,14 @@ GVquoYraYAAXsAa.jpg
 只要想吹，大家都是无敌的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14378#       发表于 2024-8-24 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65997958&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-24 08:39</a>
+
+打完泳装突然反应过来，这回的奏三是第一回苍辉宇宙的从者进正经儿主线剧情？以前虽然会在泳装活动登场，但 ...</blockquote>
+从大气精灵同源甚至是同一个开始就完全转正了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

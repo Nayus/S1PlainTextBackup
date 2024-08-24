@@ -2097,3 +2097,11 @@ Ave Mujica ミニAlbum「ELEMENTS」
 
 syl，原来今天管人团live了，完全不记得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 22395#       发表于 2024-8-24 20:45
+
+泛式一出手就是大的，目前见过最sb的素睦二创。正好再叠一波挺王热度，感觉讨论环境彻底完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

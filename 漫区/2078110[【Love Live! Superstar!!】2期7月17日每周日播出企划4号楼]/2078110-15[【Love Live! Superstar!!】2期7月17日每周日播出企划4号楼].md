@@ -27,3 +27,13 @@
 上海还没开票啊</blockquote>
 多半开演半个月前
 
+
+*****
+
+####  csolfans  
+##### 20948#       发表于 2024-8-24 08:40
+
+<img src="https://p.sda1.dev/19/1947a0872c8056eba94da31fde78f889/CMP_20240824084034087.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -2217,3 +2217,18 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 不过听说二创那边从苏修掉欧盟了？
 跨团靠着mujica团内还没开卖+先发优势+烂梗环境跟风，某cp甚至还有好几首所谓“cp曲”的官方加持，都没能占据绝对优势，甚至不如纯拉娘的爱祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 22406#       发表于 2024-8-25 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004726&amp;ptid=2159415" target="_blank">-LYRE- 发表于 2024-8-25 00:33</a>
+
+别尬黑，人家还在畅享明年变美帝呢
+
+不过听说二创那边从苏修掉欧盟了？
+
+跨团靠着mujica团内还没开卖+先发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都能把soyo桑love的爱音直接描改成睦了，主打一手你的就是我的
+

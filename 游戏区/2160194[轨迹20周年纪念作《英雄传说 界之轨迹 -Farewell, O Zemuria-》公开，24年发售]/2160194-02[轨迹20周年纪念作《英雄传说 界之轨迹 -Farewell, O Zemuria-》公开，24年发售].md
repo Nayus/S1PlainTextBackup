@@ -7461,3 +7461,11 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 这算什么新图，明明就是把立绘贴在一起而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2875#       发表于 2024-8-24 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新拼的也是新图
+

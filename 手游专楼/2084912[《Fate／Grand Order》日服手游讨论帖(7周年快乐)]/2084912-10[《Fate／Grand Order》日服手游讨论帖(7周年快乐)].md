@@ -11360,3 +11360,16 @@ GVquoYraYAAXsAa.jpg
 月之珊瑚主要是没造AI，不过按阿菌喜欢套皮的习惯，到时候套个3破公主皮出来也不一定
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  琴酒  
+##### 14382#       发表于 2024-8-24 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65999563&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-24 12:10</a>
+
+这不是MC是月球表面啊
+
+我看这事是月之珊瑚</blockquote>
+月之珊瑚 钢之大地 FE 千年城
+

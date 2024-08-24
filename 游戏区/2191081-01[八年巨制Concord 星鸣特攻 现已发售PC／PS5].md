@@ -559,3 +559,14 @@ zzzq下的不可燃垃圾，没有一丝一毫关注的必要，看到它的每�
 
 这游戏有mc评分吗，多少？
 
+
+*****
+
+####  吃鸡南小鸟  
+##### 57#       发表于 2024-8-24 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998502&amp;ptid=2191081" target="_blank">magicianxu 发表于 2024-8-24 10:08</a>
+
+这游戏有mc评分吗，多少？</blockquote>
+目前5个媒体评分，69
+

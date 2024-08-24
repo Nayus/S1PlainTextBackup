@@ -11329,3 +11329,18 @@ GVquoYraYAAXsAa.jpg
 唯一的乐子就是这里面有一个菜鸡需要带3星礼装补即死率
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  シャル  
+##### 14380#       发表于 2024-8-24 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998419&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-24 09:55</a>
+
+对于MC来说，你进来了那就不是你说了算了
+
+只要想吹，大家都是无敌的</blockquote>
+这不是MC是月球表面啊
+
+我看这事是月之珊瑚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

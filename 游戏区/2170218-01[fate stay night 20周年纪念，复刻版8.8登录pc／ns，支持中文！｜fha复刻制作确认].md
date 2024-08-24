@@ -1253,3 +1253,24 @@ mod文件夹里的游戏id文件夹下面新建个romfs文件夹放进去就行
 
 —— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  某化某  
+##### 129#       发表于 2024-8-24 12:10
+
+引擎为什么会是AGES Mk2，这不是aNCHOR和age的新引擎吗
+
+
+*****
+
+####  M_K  
+##### 130#       发表于 2024-8-24 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65997456&amp;ptid=2170218" target="_blank">satan023 发表于 2024-8-24 03:16</a>
+
+没玩过游戏 要补的话玩老的pc版还是这个steam版？
+
+—— 来自 OPPO PCCM00, Android 10上的 S1Next-鹅版 v3 ...</blockquote>
+老pc版吧还有台钳，这个版本有影响游玩的bug而且后面章节汉化还会消失
+

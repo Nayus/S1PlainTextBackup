@@ -2091,3 +2091,19 @@ fc太鸽了就直接摆了，目前来看没啥大事
 十天其实挺久了吧，毕竟又不是真的职业哥，主播自己也还有别的事，况且很多人还未必是全职的主播，每天晚上 ...</blockquote>
 很难想象会去参加最协的人会不是全职主播，虽然忙的人不少，但练习时间长一点其实时间上要松和点，毕竟也不是要天天参加，团队配合练到合适就好。现在的情况是大多数队伍都是一盘散沙，遇到枪硬的容易变成1vs1vs1vs1，对于平时不太打枪的人来说很不利，v最协变成枪箱争霸也挺没意思的
 
+
+*****
+
+####  Devi_Lito  
+##### 619#       发表于 2024-8-24 20:02
+
+草，虹社内第二个开始玩黑猴的怎么是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/24/200209gocznclatrbuheeh.png" referrerpolicy="no-referrer">
+
+<strong>1.PNG</strong> (1.05 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 20:02 上传
+

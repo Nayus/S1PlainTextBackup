@@ -2139,3 +2139,23 @@ syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 
 有本身让我猫和诺宝组队啊，打不死你们！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  艾特娜  
+##### 623#       发表于 2024-8-24 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下次猫和QP组队，加个听话的萌新保证杀穿
+
+
+*****
+
+####  格林卡罗尔  
+##### 624#       发表于 2024-8-24 21:54
+
+分差不极端的队伍优胜才是最协传统x
+
+属于是黑黑六周年献礼了，ツルギ这人虽然出身枪箱，但出道以来几乎没摸过枪，我一开始不怎么看好来着
+
+本来以为会是猎杀杀穿的一届，结果倒是很有最协风格
+

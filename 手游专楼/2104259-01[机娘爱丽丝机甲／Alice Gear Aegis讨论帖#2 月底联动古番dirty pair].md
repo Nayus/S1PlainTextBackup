@@ -129,3 +129,15 @@
 
 炒了一波AI概念，说ALICE和VICE都进化树上的两个分支，人类开发AI，AI再开发超AI的进化结果。虽然早就猜过敌我同源了不过游戏里还是第一次提到。
 
+
+*****
+
+####  不灭的旋律  
+##### 1178#       发表于 2024-8-24 21:53
+
+不小心开了新月卡结果发现送的石头保质期只有7天，金字塔你真棒<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+我估计金字塔就是想把旧月卡拆成两份服务，便宜砖石由apppay继承，便利功能由新月卡继承。但是直播的时候解释得太差了。
+
+讨论两个新女演员和敌人起源的人还没讨论月卡的人多，你们太现实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

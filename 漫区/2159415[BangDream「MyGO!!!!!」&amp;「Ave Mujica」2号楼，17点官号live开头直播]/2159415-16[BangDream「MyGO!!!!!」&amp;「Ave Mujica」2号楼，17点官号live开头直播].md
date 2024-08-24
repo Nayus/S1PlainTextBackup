@@ -2130,3 +2130,22 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 素睦官方洗糖降的热度，不知 ...</blockquote>
 是的，只能说你鸡你祥以后有福了，素睦作品里的超级大反派是不会有好果汁吃的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  极速赛车手  
+##### 22398#       发表于 2024-8-24 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">素睦大本营搞的定制投票，想不脱身都难
+
+
+*****
+
+####  鳥栖朝  
+##### 22399#       发表于 2024-8-24 21:55
+
+<blockquote>极速赛车手 发表于 2024-8-24 21:49
+素睦大本营搞的定制投票，想不脱身都难</blockquote>
+
+素睦大本营也是素厨大本营，上届把祥子投到第二是为了让素世狠狠羞辱祥子，到这届就不承认了，前后态度令人发笑
+

@@ -7212,3 +7212,28 @@ miko看到ordan的转发以后自己也转了……
 
 周边买就是了
 
+
+*****
+
+####  holoan  
+##### 9491#         楼主| 发表于 2024-8-24 19:40
+
+丢脸
+
+开场词都念不好
+
+*****
+
+####  holoan  
+##### 9492#         楼主| 发表于 2024-8-24 20:04
+
+<img src="https://img.saraba1st.com/forum/202408/24/200440rvnonnsvzknvbynl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 20:04 上传
+
+最后一刻的丢人
+

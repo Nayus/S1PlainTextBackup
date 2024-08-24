@@ -1421,3 +1421,18 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  loka  
+##### 761#       发表于 2024-8-24 23:56
+
+抚物语和业物语之间的风格变化也太大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">简直可以看作两部作品了
+
+*****
+
+####  oshinoshinobu  
+##### 762#       发表于 2024-8-24 23:57
+
+阿垃垃圾是谁，不如尊主一根<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+

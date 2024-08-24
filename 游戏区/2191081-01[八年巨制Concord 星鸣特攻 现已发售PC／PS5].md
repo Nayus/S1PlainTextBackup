@@ -680,3 +680,24 @@ PSN用户评分高达2.7
 
 索尼还有啥GAAS？马拉松和Fairgame$ ？这俩都是玩撤退流现在还能大卖吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  缤纷如落絮  
+##### 71#       发表于 2024-8-24 14:17
+
+Bungie现在这鬼样，别到死线时，成品还运行不起来。
+
+
+*****
+
+####  ak123  
+##### 72#       发表于 2024-8-24 14:25
+
+ 本帖最后由 ak123 于 2024-8-24 14:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66000444&amp;ptid=2191081" target="_blank">缤纷如落絮 发表于 2024-8-24 14:17</a>
+
+Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquote>
+
+棒鸡现在被sony掏空了，而且塞了一堆专门和玩家对着干的管理层，真把命运搞死那就真没gaas游戏了
+

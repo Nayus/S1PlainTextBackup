@@ -11344,3 +11344,19 @@ GVquoYraYAAXsAa.jpg
 
 我看这事是月之珊瑚<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14381#       发表于 2024-8-24 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65999563&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-24 12:10</a>
+
+这不是MC是月球表面啊
+
+我看这事是月之珊瑚</blockquote>
+就阿菌非要拉着BB皮跑来月球玩，说这跟MC没关系也没人信啊
+
+月之珊瑚主要是没造AI，不过按阿菌喜欢套皮的习惯，到时候套个3破公主皮出来也不一定
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

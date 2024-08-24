@@ -597,3 +597,15 @@ PSN用户评分高达2.7
 
 是时候让大家见识LGBT的购买力了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  讨逆修会  
+##### 61#       发表于 2024-8-24 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65597137&amp;ptid=2191081" target="_blank">FLZB 发表于 2024-7-16 08:17</a>
+这角色设计是踏马认真的？</blockquote>
+低配索杰恩
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -2176,3 +2176,24 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 确实是定制投票，素睦大本营也是素厨大本营，上次把祥子推上第二是为了让素世狠狠羞辱，这次又搞了出ccc ...</blockquote>
 好像吧务有祥黑来着，让角色黑把持环境的后果<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ydsbbt  
+##### 22402#       发表于 2024-8-24 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66003267&amp;ptid=2159415" target="_blank">御景 发表于 2024-8-24 21:26</a>
+
+铁暗恋好像就是从他传出来的吧，国内特供素睦源头，动漫KOL的威力可见一斑。
+
+素睦官方访谈降的热度，不知 ...</blockquote>
+你落后版本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，之前那批人确实缩在角落yygq访谈不能全信，现在的素睦人已经对着访谈原文振振有辞说素世和半身祥子同等重要了。
+
+
+*****
+
+####  skives  
+##### 22403#       发表于 2024-8-24 22:54
+
+趁着这段时间嘴硬吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">明年一月再嘴硬就是两家的美帝混合双打了
+

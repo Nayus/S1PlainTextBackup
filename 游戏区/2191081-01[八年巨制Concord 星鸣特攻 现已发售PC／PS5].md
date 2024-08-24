@@ -735,3 +735,14 @@ Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquot
 
 这游戏制作组是Bungie的关系户吧，是该好好清算了
 
+
+*****
+
+####  CyborgIP  
+##### 77#       发表于 2024-8-24 17:57
+
+吉姆的gaas政策真是依托构思，除了无心插柳的老司机能成一个不？
+加上lgbt，真是福报
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

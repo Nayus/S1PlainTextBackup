@@ -1468,3 +1468,16 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 变化好大，7月又一电影感高手是吗
 
+
+*****
+
+####  高三电波台  
+##### 766#       发表于 2024-8-25 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65875507&amp;ptid=2168085" target="_blank">仟音一心 发表于 2024-8-12 20:20</a>
+
+没说，就是纯叙诡。
+
+顺便《忍物语》里面是幼年形态。</blockquote>
+后记里面说了尊主每死一次就会变小，所以开头是比较大的形态
+

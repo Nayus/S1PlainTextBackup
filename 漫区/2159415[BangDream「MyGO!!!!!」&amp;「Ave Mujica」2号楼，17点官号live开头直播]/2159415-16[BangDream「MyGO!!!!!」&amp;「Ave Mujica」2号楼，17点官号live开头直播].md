@@ -2165,3 +2165,14 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 以前瞎黑祥子也是先给祥厨推黑锅，NGA也是装理中客怪鸡推垄断市场，不让磕灯祥。
 
+
+*****
+
+####  极速赛车手  
+##### 22401#       发表于 2024-8-24 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66003519&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-8-24 21:55</a>
+
+确实是定制投票，素睦大本营也是素厨大本营，上次把祥子推上第二是为了让素世狠狠羞辱，这次又搞了出ccc ...</blockquote>
+好像吧务有祥黑来着，让角色黑把持环境的后果<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

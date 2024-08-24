@@ -7416,3 +7416,11 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 闪轨之后帝国一直小丑担当
 
+
+*****
+
+####  ravend233  
+##### 2871#       发表于 2024-8-24 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法的政治突出一个主场是谁吹谁，其他国家没写的东西了就小丑化
+

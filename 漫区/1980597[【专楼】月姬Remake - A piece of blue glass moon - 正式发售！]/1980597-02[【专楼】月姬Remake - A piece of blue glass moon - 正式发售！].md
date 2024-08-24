@@ -49,3 +49,28 @@ switch版怎么切繁中啊，系统语言换成繁中还是简中翻译
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  cuchulain2021  
+##### 1628#       发表于 2024-8-24 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998172&amp;ptid=1980597" target="_blank">TiiTiiLL 发表于 2024-8-24 09:19</a>
+
+switch版怎么切繁中啊，系统语言换成繁中还是简中翻译
+
+—— 来自 S1Fun</blockquote>
+你进游戏config拉到最下面能选语言啊
+
+*****
+
+####  cuchulain2021  
+##### 1629#       发表于 2024-8-24 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998519&amp;ptid=1980597" target="_blank">DARILBALDE 发表于 2024-8-24 10:11</a>
+
+虽然希望不大，但求问switch日版现在有中文了吗
+
+没有我就等上PC</blockquote>
+中文版是单独的多语言版，日版没更新中文
+

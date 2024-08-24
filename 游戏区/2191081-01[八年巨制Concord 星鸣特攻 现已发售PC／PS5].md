@@ -570,3 +570,22 @@ zzzq下的不可燃垃圾，没有一丝一毫关注的必要，看到它的每�
 这游戏有mc评分吗，多少？</blockquote>
 目前5个媒体评分，69
 
+
+*****
+
+####  青色精灵の最期  
+##### 58#       发表于 2024-8-24 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65578547&amp;ptid=2191081" target="_blank">卡拉德利姆 发表于 2024-7-14 08:51</a>
+
+好死 我看索尼还能搞出多少gaas来</blockquote>
+我到要看看索尼还能好处多少丑肥圆出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  crosz1985  
+##### 59#       发表于 2024-8-24 11:36
+
+PSN用户评分高达2.7
+

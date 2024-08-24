@@ -7477,3 +7477,30 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 看人说29号长pv，什么出处
 
+
+*****
+
+####  反方向的波  
+##### 2877#       发表于 2024-8-24 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太摆烂了
+
+*****
+
+####  ravend233  
+##### 2878#       发表于 2024-8-24 18:08
+
+有个不知道哪来的说法说你法社在等云豹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过29号出pv也不奇怪
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  一步成诗  
+##### 2879#       发表于 2024-8-24 18:13
+
+29号8月最后一个周四咯，没有就下个月，还能怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

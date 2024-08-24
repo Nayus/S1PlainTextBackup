@@ -74,3 +74,16 @@ switch版怎么切繁中啊，系统语言换成繁中还是简中翻译
 没有我就等上PC</blockquote>
 中文版是单独的多语言版，日版没更新中文
 
+
+*****
+
+####  DARILBALDE  
+##### 1630#       发表于 2024-8-24 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998738&amp;ptid=1980597" target="_blank">cuchulain2021 发表于 2024-8-24 10:38</a>
+中文版是单独的多语言版，日版没更新中文</blockquote>
+果然……
+那我还是等PC吧，到时候出个表里合集啥的（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

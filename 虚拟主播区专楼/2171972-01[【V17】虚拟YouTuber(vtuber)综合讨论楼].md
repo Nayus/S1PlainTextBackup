@@ -2127,3 +2127,15 @@ fc太鸽了就直接摆了，目前来看没啥大事
 
 syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 
+
+*****
+
+####  poipanchao  
+##### 622#       发表于 2024-8-24 21:39
+
+前六就一个vspo，还是nijisanji出身的
+
+真正的电竞箱！
+
+有本身让我猫和诺宝组队啊，打不死你们！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

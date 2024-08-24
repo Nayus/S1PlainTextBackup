@@ -2118,3 +2118,15 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 素睦官方洗糖降的热度，不知道会不会再被他推起来。
 
+
+*****
+
+####  鳥栖朝  
+##### 22397#       发表于 2024-8-24 21:44
+
+<blockquote>御景 发表于 2024-8-24 21:26
+铁暗恋好像就是从他传出来的吧，国内特供素睦源头，动漫KOL的威力可见一斑。
+
+素睦官方洗糖降的热度，不知 ...</blockquote>
+是的，只能说你鸡你祥以后有福了，素睦作品里的超级大反派是不会有好果汁吃的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

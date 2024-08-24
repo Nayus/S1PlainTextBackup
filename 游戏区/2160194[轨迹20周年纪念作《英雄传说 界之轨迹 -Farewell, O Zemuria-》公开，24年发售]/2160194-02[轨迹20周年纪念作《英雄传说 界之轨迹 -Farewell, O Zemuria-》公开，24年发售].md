@@ -7572,3 +7572,13 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 不是，这魔装鬼真抽象吧？丁格学妹这种人间体几乎没有武力的，和范这种练过打拳的，变身后反而是范的最菜，要当boss就强行加强了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2886#       发表于 2024-8-24 23:13
+
+别问，问就是创世强化<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

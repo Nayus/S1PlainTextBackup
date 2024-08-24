@@ -11277,3 +11277,11 @@ GVquoYraYAAXsAa.jpg
 
 打完泳装突然反应过来，这回的奏三是第一回苍辉宇宙的从者进正经儿主线剧情？以前虽然会在泳装活动登场，但基本上还是和咕嗒咕嗒系列一样自己玩自己的，论战时基本上也不带宇宙从者玩。但这回奏三是实打实的主线剧情，我方带着宇宙蕾（宇宙创世女神级）和大爱酱（对标XX的话就是奥特曼级的）这种大杀器感觉规模一下就不一样了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说以后论战是不是也得带上苍辉宇宙这些人一起玩了？闪闪的宇宙大帝皮套赶紧安排下，天花板要坐不住了
 
+
+*****
+
+####  保罗赫伯特  
+##### 14376#       发表于 2024-8-24 09:27
+
+这奏三的boss得有多大排面，才能和兽蕾，XX，公主，杀生院同场竞技，单纯的兽化BB感觉都不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

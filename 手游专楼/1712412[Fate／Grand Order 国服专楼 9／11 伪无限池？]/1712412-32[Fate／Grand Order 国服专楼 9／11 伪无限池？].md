@@ -1949,3 +1949,11 @@ bgo还怪好的，给我留了一个十连是吧
 
 今天早上单抽终于出烟雾镜了，但是我连再临材料都不够<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 46718#       发表于 2024-8-24 09:15
+
+三种礼装平均带，结果金的要先溢出了....铜的缺得最多.....
+

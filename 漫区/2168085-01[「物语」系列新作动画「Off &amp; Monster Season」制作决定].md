@@ -1444,3 +1444,19 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 确实是像新房分镜，全片都没几个连贯动作
 
+
+*****
+
+####  oi99o  
+##### 764#       发表于 2024-8-25 00:41
+
+青柳隆平：只帮忙画了一点分镜
+
+<img src="https://img.saraba1st.com/forum/202408/25/004111cpfa81jjzywj1p1z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 00:41 上传
+

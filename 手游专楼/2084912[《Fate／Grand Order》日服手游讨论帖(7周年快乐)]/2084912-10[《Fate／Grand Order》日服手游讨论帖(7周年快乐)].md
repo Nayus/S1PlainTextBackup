@@ -11310,3 +11310,22 @@ GVquoYraYAAXsAa.jpg
 打完泳装突然反应过来，这回的奏三是第一回苍辉宇宙的从者进正经儿主线剧情？以前虽然会在泳装活动登场，但 ...</blockquote>
 从大气精灵同源甚至是同一个开始就完全转正了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14379#       发表于 2024-8-24 11:16
+
+ 本帖最后由 TheLoof 于 2024-8-24 11:19 编辑 
+
+点满了玩了下，徐福还行，挺好玩的
+
+自充30+被动20+技能10+缓冲20
+
+你甚至可以组一个上铺兄弟+埃蕾+徐福的QP即死队
+
+缺点就是太吃结晶了，稳稳的吃3个
+
+唯一的乐子就是这里面有一个菜鸡需要带3星礼装补即死率
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

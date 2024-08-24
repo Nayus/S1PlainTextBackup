@@ -11285,3 +11285,17 @@ GVquoYraYAAXsAa.jpg
 
 这奏三的boss得有多大排面，才能和兽蕾，XX，公主，杀生院同场竞技，单纯的兽化BB感觉都不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14377#       发表于 2024-8-24 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998215&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-8-24 09:27</a>
+
+这奏三的boss得有多大排面，才能和兽蕾，XX，公主，杀生院同场竞技，单纯的兽化BB感觉都不够看啊 ...</blockquote>
+对于MC来说，你进来了那就不是你说了算了
+
+只要想吹，大家都是无敌的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -551,3 +551,11 @@ zzzq下的不可燃垃圾，没有一丝一毫关注的必要，看到它的每�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">byd这游戏还得买了才能玩，建议SE自裁
 
+
+*****
+
+####  magicianxu  
+##### 56#       发表于 2024-8-24 10:08
+
+这游戏有mc评分吗，多少？
+

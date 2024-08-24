@@ -38,3 +38,14 @@ switch版怎么切繁中啊，系统语言换成繁中还是简中翻译
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  DARILBALDE  
+##### 1627#       发表于 2024-8-24 10:11
+
+虽然希望不大，但求问switch日版现在有中文了吗
+没有我就等上PC<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

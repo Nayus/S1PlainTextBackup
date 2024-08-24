@@ -627,3 +627,26 @@ PSN用户评分高达2.7
 
 索尼要上的GAAS还有个Fairgame$吧，反映也不太好
 
+
+*****
+
+####  ak123  
+##### 64#       发表于 2024-8-24 13:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看这些玩意儿挺理解白皮为啥那么多当furry控的了，这他妈人做的都没畜生顺眼
+
+
+*****
+
+####  缤纷如落絮  
+##### 65#       发表于 2024-8-24 13:42
+
+放心，不是今天就是明天，庞大的mOdeRn auDIencE群体就回来打烂黑子的脸<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 66#       发表于 2024-8-24 13:44
+
+索尼已经断气了.jpg 
+

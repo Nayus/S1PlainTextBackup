@@ -618,3 +618,28 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 5010#       发表于 2024-8-24 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这蛤太强了
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  幽香  
+##### 5011#       发表于 2024-8-24 18:58
+
+蛤蜊一轮投完太🐂了
+
+
+*****
+
+####  苍蓝之枪  
+##### 5012#       发表于 2024-8-24 19:03
+
+都最后一次大润了，100金都还没打到
+

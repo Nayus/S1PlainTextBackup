@@ -2205,3 +2205,15 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 管人团真身都露了，这团有什么套皮的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  -LYRE-  
+##### 22405#       发表于 2024-8-25 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004076&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-24 22:54</a>
+趁着这段时间嘴硬吧明年一月再嘴硬就是两家的美帝混合双打了</blockquote>
+别尬黑，人家还在畅享明年变美帝呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不过听说二创那边从苏修掉欧盟了？
+跨团靠着mujica团内还没开卖+先发优势+烂梗环境跟风，某cp甚至还有好几首所谓“cp曲”的官方加持，都没能占据绝对优势，甚至不如纯拉娘的爱祥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

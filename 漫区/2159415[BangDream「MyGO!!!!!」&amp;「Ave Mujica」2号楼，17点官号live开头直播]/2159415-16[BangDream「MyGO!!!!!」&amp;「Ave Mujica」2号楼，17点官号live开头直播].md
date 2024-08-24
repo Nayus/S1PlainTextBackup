@@ -2232,3 +2232,17 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 跨团靠着mujica团内还没开卖+先发 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都能把soyo桑love的爱音直接描改成睦了，主打一手你的就是我的
 
+
+*****
+
+####  rikaren  
+##### 22407#       发表于 2024-8-25 07:32
+
+<blockquote>御景 发表于 2024-8-24 22:00
+这次一禁了也好，省得再被拿出来当乐子，就看他们还要不要点脸皮了。
+
+搞个挺好萌，出乱子也是一转怪祥厨， ...</blockquote>
+那俩神人太厉害了，起手都不是“初祥党也干了”而是“初祥党先干的”，“也有人说灯是初华代餐”，是啊，为什么会有人这么说呢？一定不是因为反击ky小鬼吧，岁月史书的有点太厉害了。
+
+至于战吧，素睦才是幼驯染这个典就是战吧爆的吧。
+

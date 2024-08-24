@@ -1436,3 +1436,11 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 阿垃垃圾是谁，不如尊主一根<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  狼王卢比奥  
+##### 763#       发表于 2024-8-25 00:10
+
+确实是像新房分镜，全片都没几个连贯动作
+

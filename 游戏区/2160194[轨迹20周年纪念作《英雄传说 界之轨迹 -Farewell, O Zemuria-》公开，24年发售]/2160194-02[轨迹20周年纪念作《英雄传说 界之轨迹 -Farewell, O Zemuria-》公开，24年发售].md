@@ -7592,3 +7592,11 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 云豹的pc版树海还没交出来呢</blockquote>
 还有回炉的ysx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 2888#       发表于 2024-8-25 00:53
+
+因为是不同的，比如黎二的红黎灵子晶片十倍，输出防御高的很
+

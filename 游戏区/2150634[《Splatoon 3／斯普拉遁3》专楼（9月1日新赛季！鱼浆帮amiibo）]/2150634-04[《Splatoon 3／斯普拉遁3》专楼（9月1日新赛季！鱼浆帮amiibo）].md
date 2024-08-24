@@ -643,3 +643,42 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 都最后一次大润了，100金都还没打到
 
+
+*****
+
+####  幽香  
+##### 5013#       发表于 2024-8-24 19:11
+
+泡跟竹子涂地还是差点意思，感觉gloria还是轻敌了。西日本这边的队员除了natsy都没什么印象。
+
+*****
+
+####  秋月孝三  
+##### 5014#       发表于 2024-8-24 19:12
+
+竹乙打龙宫涂地是很厉害的，但是最后死了来不及放气球
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  幽香  
+##### 5015#       发表于 2024-8-24 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66002262&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-8-24 19:12</a>
+竹乙打龙宫涂地是很厉害的，但是最后死了来不及放气球
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next-鹅 ...</blockquote>
+他拿的是无印竹子吧
+
+*****
+
+####  秋月孝三  
+##### 5016#       发表于 2024-8-24 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66002270&amp;ptid=2150634" target="_blank">幽香 发表于 2024-8-24 19:13</a>
+他拿的是无印竹子吧</blockquote>
+不是，是乙。最后放了气球但没来得及炸
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -1644,3 +1644,19 @@ md看到鸡腿就想到圣夜，想起圣夜就是帽门ptsd<img src="https://st
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  isummon  
+##### 149#         楼主| 发表于 2024-8-24 11:47
+
+新卷封面，希望动画的表情越狰狞越好，保持最大特色
+
+<img src="https://img.saraba1st.com/forum/202408/24/114707g45c558ofnzl8ylw.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="580" zoomfile="https://img.saraba1st.com/forum/202408/24/114707g45c558ofnzl8ylw.png">
+
+<strong>image.png</strong> (153.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 11:47 上传
+

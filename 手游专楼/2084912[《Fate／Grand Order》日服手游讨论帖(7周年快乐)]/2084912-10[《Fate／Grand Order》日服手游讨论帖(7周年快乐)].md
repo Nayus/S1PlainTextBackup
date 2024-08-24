@@ -11373,3 +11373,14 @@ GVquoYraYAAXsAa.jpg
 我看这事是月之珊瑚</blockquote>
 月之珊瑚 钢之大地 FE 千年城
 
+
+*****
+
+####  xiongxingyu  
+##### 14383#       发表于 2024-8-24 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65998701&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-24 10:33</a>
+
+从大气精灵同源甚至是同一个开始就完全转正了</blockquote>
+fgo的活动还可以说是处于发生过和没发生过的薛定谔状态。类似泳装、咕嗒咕嗒和星战发生过的事都可以用也许、可能、平行世界、搞笑剧情不用当真这种瞎比理由糊弄过去，但是奏章这种主线可就没法糊弄了。这次奏三是实打实的来了几个宇宙级的强者在fgo这个世界的地球（月亮）上打了一架，目前来看还不是在MC里面而是在外面（说不定这个月球迪拜就是拿MC魔改的），规格之高已经超过型月之前所有的作品了，什么冠位啊、兽啊、主神级估计只能被当草割，游星尖兵、UO之流的一下也不够看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

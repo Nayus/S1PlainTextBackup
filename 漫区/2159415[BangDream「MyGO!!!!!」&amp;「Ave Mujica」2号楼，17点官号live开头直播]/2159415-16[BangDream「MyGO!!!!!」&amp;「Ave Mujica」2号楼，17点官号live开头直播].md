@@ -2087,3 +2087,13 @@ Ave Mujica ミニAlbum「ELEMENTS」
 
 哎，李子还是没回前天节约马尾那条<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会只有她没选马尾吧
 
+
+*****
+
+####  PDQ4  
+##### 22394#       发表于 2024-8-24 19:40
+
+下次要是有直播什么的狠狠提问，太好奇李子是不是有惊人的idea了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，原来今天管人团live了，完全不记得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

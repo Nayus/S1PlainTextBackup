@@ -2636,3 +2636,14 @@ fc则是正经本格推理，很容易让人较真，毕竟也是推理游戏开
 
 国内网店都好贵，还是乖乖上日亚订了份限定版<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  h122h  
+##### 260#       发表于 2024-8-25 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007939&amp;ptid=2190950" target="_blank">清浦刹那 发表于 2024-8-25 13:37</a>
+
+国内网店都好贵，还是乖乖上日亚订了份限定版</blockquote>
+日亚能直邮?
+

@@ -378,3 +378,25 @@ Telegram上面yygq东大的不少吧 前些天还有人拿这个来yygq</blockqu
 想多了，钱都是进财阀寡头的袋里，漏些屑让你们底层狗咬狗，你居然还真咬饵啊 ...</blockquote>
 啥底层，这种东西外国人受愚民教育不容易想起来是啥，中国人可熟悉的很：朱勔的金腰带家奴。其自己不劳动，生存靠权力撑腰，压迫别人和掠夺别人私有财产，就是压迫者掠夺者。
 
+
+*****
+
+####  革萌  
+##### 42#       发表于 2024-8-25 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008169&amp;ptid=2196447" target="_blank">水无定势 发表于 2024-8-25 14:19</a>
+
+电报使用感受是否比微信好？</blockquote>
+支持十万人大群，群文件免费用户支持一个文件2g
+
+
+*****
+
+####  bestwood  
+##### 43#       发表于 2024-8-25 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008270&amp;ptid=2196447" target="_blank">革萌 发表于 2024-8-25 14:37</a>
+
+支持十万人大群，群文件免费用户支持一个文件2g</blockquote>
+之前没了解过，他这服务器是靠什么维持的
+

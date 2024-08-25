@@ -7655,3 +7655,16 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 说起来黎恩克洛上不上天，毕竟没戴头盔
 
+
+*****
+
+####  卢迪克  
+##### 2895#       发表于 2024-8-25 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004237&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-24 23:13</a>
+
+别问，问就是创世强化
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+跟黎恩的灰骑一样，主角的外挂总是最菜的。红黎出现，附件导力仪器都直接失灵了，van开半天魔装鬼都没事
+

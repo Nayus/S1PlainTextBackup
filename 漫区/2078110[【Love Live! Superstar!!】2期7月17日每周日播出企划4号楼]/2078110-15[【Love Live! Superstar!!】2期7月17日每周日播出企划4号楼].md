@@ -59,3 +59,15 @@
 
 签完后大家都在现场等着，然后她就给了一下福利再跟大家道别
 
+
+*****
+
+####  csolfans  
+##### 20951#       发表于 2024-8-25 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008153&amp;ptid=2078110" target="_blank">lj205 发表于 2024-8-25 14:16</a>
+大阪签售参加完，去的晚排的很后还担心抽不到，结果买8中了2（当然最后只能给签1次），隔壁有人买了10张居 ...</blockquote>
+坛友牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">可惜没有猜测的广州fmt
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

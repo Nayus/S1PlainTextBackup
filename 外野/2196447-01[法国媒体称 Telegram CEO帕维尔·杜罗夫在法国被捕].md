@@ -444,3 +444,12 @@ Tg蛮好用的啊。
 
 等等，如果他手里掌握着后门呢<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 49#       发表于 2024-8-25 15:26
+
+“Telegram创始人逍遥法外已经够久了”，一名调查人员说，他们很惊讶杜罗夫明知自己是通缉犯却还来巴黎。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

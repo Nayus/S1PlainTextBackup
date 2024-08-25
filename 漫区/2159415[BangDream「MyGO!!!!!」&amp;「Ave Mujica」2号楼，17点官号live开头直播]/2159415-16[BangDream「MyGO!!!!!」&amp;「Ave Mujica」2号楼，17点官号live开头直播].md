@@ -2265,3 +2265,14 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 好低级的互联网冰清玉洁话术，味太冲了
 
+
+*****
+
+####  御景  
+##### 22410#       发表于 2024-8-25 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004043&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-8-24 22:50</a>
+
+你落后版本了，之前那批人确实缩在角落yygq访谈不能全信，现在的素睦人已经对着访谈原文振振有辞说素世和 ...</blockquote>
+有够冥顽不灵的，磕CP也没人能拦着，但喜欢把官设半身打成大反派，也是独一家了。
+

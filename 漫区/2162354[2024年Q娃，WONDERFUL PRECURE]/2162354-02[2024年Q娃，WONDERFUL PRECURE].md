@@ -551,3 +551,29 @@ friendy precure(√)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">无战斗的观感实在太差，最后连硬直都没打出来，喊喊口号新玩具就从天而降了，而且猫也彻底喵喵化了……拉扯环节的作画还是很顶的，板冈作监虽然修不明白但流畅度是真不错啊
 
+
+*****
+
+####  新HGCG  
+##### 2071#         楼主| 发表于 2024-8-25 08:40
+
+这投影是什么情况
+
+<img src="https://img.saraba1st.com/forum/202408/25/084010nq4mcg5zqdbzgybx.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202408/25/084010nq4mcg5zqdbzgybx.png">
+
+<strong>image.png</strong> (94.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 08:40 上传
+
+*****
+
+####  jaewoongh_  
+##### 2072#       发表于 2024-8-25 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66006018&amp;ptid=2162354" target="_blank">新HGCG 发表于 2024-8-25 08:40</a>
+
+这投影是什么情况</blockquote>
+cure majesty（
+

@@ -541,3 +541,14 @@ Tg蛮好用的啊。
 老版的钱哪来的</blockquote>
 他是vkontakte创始人，在那赚的。
 
+
+*****
+
+####  革萌  
+##### 57#       发表于 2024-8-25 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008326&amp;ptid=2196447" target="_blank">bestwood 发表于 2024-8-25 14:44</a>
+
+之前没了解过，他这服务器是靠什么维持的</blockquote>
+据说是ipfs
+

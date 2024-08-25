@@ -2232,3 +2232,135 @@ Re:MEMBER/MOON Setlist:<blockquote>--Overture--
 
 --ENDROLL--</blockquote>
 
+
+*****
+
+####  Vacuolar  
+##### 6231#       发表于 2024-8-24 17:24
+
+草，人也太多了
+
+*****
+
+####  wfhtony  
+##### 6232#       发表于 2024-8-24 18:24
+
+ 本帖最后由 wfhtony 于 2024-8-24 18:48 编辑 
+
+Re:MEMBER/MOON Setlist:<blockquote>--Overture--
+
+01. オーバーマスター // 全員
+
+02. マリオネットの心 // 全員
+
+03. 目が逢う瞬間 // 星井 美希
+
+[Tr.3剛起頭，YT免費部分結束]
+
+04. I Want // 四条 貴音、我那覇 響
+
+--MC--
+
+05. きゅんっ!ヴァンパイアガール // 全員
+
+06. ショッキングな彼 // 星井 美希
+
+07. TRIAL DANCE // 我那覇 響
+
+08. 風花 // 四条 貴音
+
+--MC--
+
+09. FlaME // 全員（＊本演出的主題曲）
+
+10. Nostalgia // 星井 美希
+
+11. DREAM // 我那覇 響
+
+12. ふたつの月 // 四条 貴音
+
+--終場前MC--
+
+13. Fate of the World // 全員
+
+--安可 &amp; 安可MC--
+
+14. KisS // 全員
+
+--ENDROLL--</blockquote>
+以下内容需要积分高于 500 才可浏览
+
+961 PRODUCTION presents 『Re:FLAME』
+
+Resilio: BBZDKIPCYTUIHRHWP7SNR3NFN6F667YHQ
+
+<img src="https://img.saraba1st.com/forum/202408/24/183040qzn4bcnmnw84ta6n.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-24-18h29m04s963.jpg</strong> (25.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:30 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/183041w3mff882d187d2f2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-24-18h29m12s030.jpg</strong> (35.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:30 上传
+
+這次是只有 REZ&amp; 這一家主導製作啊。
+
+<img src="https://img.saraba1st.com/forum/202408/24/183346v666jdel0lggdrzj.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-08-24_17-07-30.ts_snapshot_01.24.46.162.jpg</strong> (128.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/183359kxoewwogkc146qko.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-24-18h33m53s170.jpg</strong> (141.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:33 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/183719anu6520cz2xaffny.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-24-18h34m44s535.jpg</strong> (103.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202408/24/183720fss5vsinynnsbsun.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-24-18h34m57s296.jpg</strong> (21.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:37 上传
+
+只在Staff表裏出現的黑井社長。
+
+<img src="https://img.saraba1st.com/forum/202408/24/183735mqz1outnttjaiq1j.png" referrerpolicy="no-referrer">
+
+<strong>12_本番終了.png</strong> (2.81 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-24 18:37 上传
+
+明天是961xRLive的Day2(晝夜兩場)和學馬仕8月巡演的最後一場(晝夜兩場)...
+
+*****
+
+####  wfhtony  
+##### 6233#       发表于 2024-8-25 13:20
+
+<blockquote>09. Rebellion // 我那覇 響</blockquote>
+今天的贊助可以看到爛鐵的標了。
+

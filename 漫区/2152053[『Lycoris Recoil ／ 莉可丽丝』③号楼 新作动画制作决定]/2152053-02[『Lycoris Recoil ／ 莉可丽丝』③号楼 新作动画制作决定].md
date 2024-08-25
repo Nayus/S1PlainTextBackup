@@ -61,3 +61,19 @@
 
 关注的蒜转发bot博主转型去发泰百了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1980#       发表于 2024-8-25 09:38
+
+[https://x.com/alililielu/status/1827427151727227131](https://x.com/alililielu/status/1827427151727227131)
+
+<img src="https://img.saraba1st.com/forum/202408/25/093824g6jd7hj6z7d3i2pi.jpg" referrerpolicy="no-referrer">
+
+<strong>2024-08-25 093639.jpg</strong> (134.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 09:38 上传
+

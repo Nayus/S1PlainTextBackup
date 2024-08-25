@@ -1512,3 +1512,31 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 千石抚子是外表美的低配版本，谁都觉得可爱。她哪有什么内心美，也就一颗黑暗的心
 
+
+*****
+
+####  沼蝇  
+##### 770#       发表于 2024-8-25 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66005680&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-8-25 06:09</a>
+尊主的原则是自己杀的都得自己吃掉，自己吃的必须是自己杀，自杀当然也算 ...</blockquote>
+复活是原尸体复活吗？原尸体复活的话怎么吃自己？我看有吃头和心脏的画面
+
+*****
+
+####  101stroad  
+##### 771#       发表于 2024-8-25 09:41
+
+你这心脏怎么画的跟个苹果似的，让木津千里来画<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oi99o  
+##### 772#       发表于 2024-8-25 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66006343&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-8-25 09:40</a>
+
+复活是原尸体复活吗？原尸体复活的话怎么吃自己？我看有吃头和心脏的画面 ...</blockquote>
+就是死的时候分别是自己砍头或者掏心自杀的，然后头和心脏就在原身体上长出来，旧的就没用了
+

@@ -1597,3 +1597,16 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 最后来死物语上下收个尾，呼应本季先讲的抚子和忍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 778#       发表于 2024-8-25 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007014&amp;ptid=2168085" target="_blank">kedvfu 发表于 2024-8-25 11:27</a>
+
+哈哈哈，如果一直接着档期把两季小说全部做完的话能看爽了
+
+现在忍物语也提到前面，应该两个季度的故事就是 ...</blockquote>
+收尾不该是结物语吗？最具有结束感的一部
+

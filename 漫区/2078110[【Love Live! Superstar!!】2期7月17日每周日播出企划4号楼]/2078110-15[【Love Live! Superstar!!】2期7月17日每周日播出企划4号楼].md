@@ -45,3 +45,17 @@
 
 有一说一申请变更的批文没下来他也不敢卖<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 20950#       发表于 2024-8-25 14:16
+
+大阪签售参加完，去的晚排的很后还担心抽不到，结果买8中了2（当然最后只能给签1次），隔壁有人买了10张居然没中，然后排队抽到15号，但是不知道是提前排又去的晚只能站在第3排，白瞎了那么前的号<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+唱了3首歌，游刃有余啊，大家也都特别撑场，新单衣服是很帅
+
+然后到签名环节，这次给说话的时间真少，加上太紧张看到鱼一下子不知道说啥，鱼开始签的时候我说了一句瘦了好多（新冠后是真瘦），她一下子好高兴还说真的吗马上摆了好几个POSE<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，到这就开始让走了，我就说10月底会过来，她说谢谢跑过来参加活动，然后就互道东京见就下台了
+
+签完后大家都在现场等着，然后她就给了一下福利再跟大家道别
+

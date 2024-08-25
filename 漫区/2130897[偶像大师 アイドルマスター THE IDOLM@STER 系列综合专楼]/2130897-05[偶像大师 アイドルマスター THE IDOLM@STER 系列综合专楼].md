@@ -2694,3 +2694,35 @@ saki输得透彻，正常收音的ego无了
 
 我觉得这个部长的人设比某些偶像好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 6252#       发表于 2024-8-25 20:15
+
+<img src="https://img.saraba1st.com/forum/202408/25/201517q0ri00chhp0mhl3e.png" referrerpolicy="no-referrer">
+
+<strong>#放送部長からの連絡__学園アイドルマスター_-_Discord_2024-08-25_20-06-27.png</strong> (48.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202408/25/201517vvr52l2innncoiaa.png" referrerpolicy="no-referrer">
+
+<strong>#放送部長からの連絡__学園アイドルマスター_-_Discord_2024-08-25_20-10-35.png</strong> (48.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 20:15 上传
+
+<img src="https://img.saraba1st.com/forum/202408/25/201526ii1h111ipyhp9nss.png" referrerpolicy="no-referrer">
+
+<strong>#初星学園放送部室__学園アイドルマスター_-_Discord_2024-08-25_20-13-22.png</strong> (93.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 20:15 上传
+
+嗯，Discord民正常發揮
+

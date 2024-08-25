@@ -453,3 +453,14 @@ Tg蛮好用的啊。
 “Telegram创始人逍遥法外已经够久了”，一名调查人员说，他们很惊讶杜罗夫明知自己是通缉犯却还来巴黎。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朋友  
+##### 50#       发表于 2024-8-25 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008169&amp;ptid=2196447" target="_blank">水无定势 发表于 2024-8-25 14:19</a>
+
+电报使用感受是否比微信好？</blockquote>
+除了中文搜索一坨以外，其它方面好太多了。
+

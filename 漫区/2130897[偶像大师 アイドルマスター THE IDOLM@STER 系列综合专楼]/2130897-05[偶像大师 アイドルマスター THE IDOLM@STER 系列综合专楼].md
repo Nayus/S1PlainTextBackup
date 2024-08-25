@@ -2551,3 +2551,81 @@ Setlist（渋谷クラブクアトロ公演）：（根據上週的歌單的推�
 [Tr.5剛起頭，YT免費部分結束]</blockquote>
 小黑...
 
+
+*****
+
+####  magicc  
+##### 6240#       发表于 2024-8-25 17:10
+
+怎么还有 dance dance dance的
+
+
+*****
+
+####  zeroed  
+##### 6241#       发表于 2024-8-25 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这次的歌单比真雪的好，重复感不强，比如miki和贵音的solo部分就没有相同的歌
+
+当以为老害歌集结时，又突然来一首新的
+
+*****
+
+####  magicc  
+##### 6242#       发表于 2024-8-25 17:21
+
+colorful days都来了
+
+*****
+
+####  wfhtony  
+##### 6243#       发表于 2024-8-25 17:23
+
+ 本帖最后由 wfhtony 于 2024-8-25 17:24 编辑 
+
+Re:FRAME/SUN Setlist:<blockquote>--Overture--
+
+01. オーバーマスター(M@STER VERSION) -Rio Hamamoto Rearrange- // 全員
+
+02. FlaME // 全員（＊本演出的主題曲）
+
+03. relations // 全員（＊組曲形式）
+
+04. キミはメロディ // 全員（＊組曲形式）
+
+05. THE IDOLM@STER // 全員（＊組曲形式）
+
+[Tr.5剛起頭，YT免費部分結束]
+
+06. Pon De Beach // 我那覇 響
+
+--MC--
+
+07. KisS // 全員
+
+08. Next Life // 我那覇 響
+
+09. edeN // 星井 美希、四条 貴音
+
+10. Fate of the World // 全員
+
+11. 1st Call // 全員
+
+--MC--
+
+12. 風花 // 四条 貴音
+
+13. DREAM // 我那覇 響
+
+14. Day of the future // 星井 美希
+
+--終場前MC--
+
+15. ダンス・ダンス・ダンス // 全員
+
+--安可 &amp; 安可MC--
+
+16. Colorful Days // 全員（＊偶像大師SP的ED曲。現場可揮舞其他顏色的熒光棒）
+
+--ENDROLL--</blockquote>
+

@@ -2736,3 +2736,18 @@ BS侦探俱乐部 消失在雪中的过去</blockquote>
 
 这次的重制也算是给童年补票啦
 
+
+*****
+
+####  努斯万克  
+##### 269#       发表于 2024-8-26 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012426&amp;ptid=2190950" target="_blank">maninhole 发表于 2024-8-25 22:49</a>
+
+https://www.zhihu.com/question/461123084/answer/1911680970
+
+不是哥，这游戏连视频都没人做（也确实做 ...</blockquote>
+[https://www.bilibili.com/video/BV1X7411K7pH](https://www.bilibili.com/video/BV1X7411K7pH)
+
+这里有翻译，怎么样我不知道，我也没看过，不过BS侦探俱乐部似乎是被放弃了，也不是非得看吧。
+

@@ -1582,3 +1582,18 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kedvfu  
+##### 777#       发表于 2024-8-25 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66006748&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-8-25 10:47</a>
+
+这次动画化应该是off season和monster season做完吧，不过网络配信也没有档期限制，不知道是怎么安排的，un ...</blockquote>
+哈哈哈，如果一直借着档期把两季小说全部做完的话能看爽了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+现在忍物语也提到前面，应该两个季度的故事就是全重排吧
+
+最后来死物语上下收个尾，呼应本季先讲的抚子和忍<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

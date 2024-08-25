@@ -706,3 +706,23 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 巧克又掉600分，心态不知道崩没有
 
+
+*****
+
+####  shirolin  
+##### 5020#       发表于 2024-8-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66005075&amp;ptid=2150634" target="_blank">laosai13 发表于 2024-8-25 01:26</a>
+惊了重看东西大赛melon居然拿着鱼虎也会从大桥那个台子上跳不上高台吗</blockquote>
+直播第一时间就发现了，大赛时候心里紧张压力大难免失误
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋月孝三  
+##### 5021#       发表于 2024-8-25 10:56
+
+再次证明最适合冲分的规则还得是区域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

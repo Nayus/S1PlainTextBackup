@@ -1559,3 +1559,26 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 话说UNDEAD原型小说讲的分别就是抚子和忍两篇，并且从业物语开始ed用了后半段歌词，是不是指本季只有这四篇物语/（如果还有）其他物语是新ed
 
+
+*****
+
+####  0aleph37  
+##### 775#       发表于 2024-8-25 10:47
+
+ 本帖最后由 0aleph37 于 2024-8-25 10:51 编辑 
+
+这次动画化应该是off season和monster season做完吧，不过网络配信也没有档期限制，不知道是怎么安排的，undead应该是业忍用完就换，剩余的部分也不合适了。
+
+愚业剩下的篇幅放哪里也是个问题，和monster season混在一起吗？
+
+*****
+
+####  oi99o  
+##### 776#       发表于 2024-8-25 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66006680&amp;ptid=2168085" target="_blank">kedvfu 发表于 2024-8-25 10:36</a>
+话说UNDEAD原型小说讲的分别就是抚子和忍两篇，并且从业物语开始ed用了后半段歌词，是不是指本季只有这四篇 ...</blockquote>
+这四部做完已经是季番长度了，之后换新ed也正常
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

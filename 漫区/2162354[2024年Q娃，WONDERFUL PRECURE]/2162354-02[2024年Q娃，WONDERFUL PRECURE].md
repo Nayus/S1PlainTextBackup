@@ -718,3 +718,15 @@ cure majesty（
 
 不打斗实际上是反直觉的这点当年甜点就说过了，你不去打很多感情是没法表达出来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MLP_102  
+##### 2080#       发表于 2024-8-25 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012317&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-8-25 22:40</a>
+预告里的新角色是之前出现过的配角啊，mayu的老同学，因为误会分手了，养的宠物是龙猫 ...</blockquote>
+离得久了，这就回去再看一遍（
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

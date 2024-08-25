@@ -179,3 +179,15 @@
 
 感觉这个人剧情就是个水的前奏，中东船团那边什么时候来个大的啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1183#       发表于 2024-8-25 19:42
+
+疯狂科学家难道不是加速剧情的吗？艾玛就是进击的韩吉+足球流氓属性，蒸汽庞克活动狙击绫香和怜的也是她（行动的是三人组）不过那个活动我没玩。
+
+莉莉就是个嘴臭小个子，黑皮不知道是什么血统。
+
+快七年五常终于凑齐了，下二常拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

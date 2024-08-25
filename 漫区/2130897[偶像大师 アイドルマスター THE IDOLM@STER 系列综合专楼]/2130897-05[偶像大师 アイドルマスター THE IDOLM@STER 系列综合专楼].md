@@ -2653,3 +2653,29 @@ Re:FRAME/SUN Setlist:<blockquote>--Overture--
 
 就一试水live，没什么好吹或者推的
 
+
+*****
+
+####  joshua1990  
+##### 6247#       发表于 2024-8-25 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">学马信号灯最后一场考试了，能合格线吗
+
+*****
+
+####  gammatau  
+##### 6248#       发表于 2024-8-25 18:16
+
+至少真人出来了
+
+*****
+
+####  BQlin  
+##### 6249#       发表于 2024-8-25 18:46
+
+ 本帖最后由 BQlin 于 2024-8-25 18:50 编辑 
+
+saki输得透彻，正常收音的ego无了
+
+还好，缺的营养补上了
+

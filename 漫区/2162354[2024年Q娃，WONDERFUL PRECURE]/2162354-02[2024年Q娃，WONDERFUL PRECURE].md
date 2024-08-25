@@ -708,3 +708,13 @@ cure majesty（
 <img src="https://p.sda1.dev/19/240de90b982df3c4a0201dbe45080df7/20240825_224054.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/566b5f9743dec085c17ee08d712bc526/20240825_224056.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  leleq  
+##### 2079#       发表于 2024-8-25 22:51
+
+原来之前没有一起变身是伏笔啊好棒耶（棒读）
+
+不打斗实际上是反直觉的这点当年甜点就说过了，你不去打很多感情是没法表达出来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

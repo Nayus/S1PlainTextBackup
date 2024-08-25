@@ -2708,3 +2708,31 @@ fc则是正经本格推理，很容易让人较真，毕竟也是推理游戏开
 啥时候讲过步美过去？</blockquote>
 BS侦探俱乐部 消失在雪中的过去
 
+
+*****
+
+####  maninhole  
+##### 267#       发表于 2024-8-25 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66011506&amp;ptid=2190950" target="_blank">努斯万克 发表于 2024-8-25 21:15</a>
+
+BS侦探俱乐部 消失在雪中的过去</blockquote>
+[https://www.zhihu.com/question/461123084/answer/1911680970](https://www.zhihu.com/question/461123084/answer/1911680970)
+
+不是哥，这游戏连视频都没人做（也确实做不了），刚在b站啥都没查到我还以为名字错了
+
+我咋知道里面都说了些啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  忧蓝  
+##### 268#       发表于 2024-8-25 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007939&amp;ptid=2190950" target="_blank">清浦刹那 发表于 2024-8-25 13:37</a>
+国内网店都好贵，还是乖乖上日亚订了份限定版</blockquote>
+我也定了限定，前两部限定下不去手，买了数字。
+
+这游戏小时候在fc上就听说过并且超级感兴趣，但语言问题只能纯眼馋了。
+
+这次的重制也算是给童年补票啦
+

@@ -942,3 +942,11 @@ Tg蛮好用的啊。
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  riczxc  
+##### 87#       发表于 2024-8-26 03:48
+
+用户为了方便，选择中心化的工具，只能说是自作自受了。
+

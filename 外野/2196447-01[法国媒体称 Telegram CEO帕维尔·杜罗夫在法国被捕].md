@@ -572,3 +572,34 @@ Tg蛮好用的啊。
 
 看泥潭这讨论的，我还以为我家宽带能连上tg了
 
+
+*****
+
+####  acfun178  
+##### 60#       发表于 2024-8-25 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007640&amp;ptid=2196447" target="_blank">lin2004 发表于 2024-8-25 12:55</a>
+
+所以才是一样的性质啊，你竟敢不留后门让我高贵的白皮小政府大资本ds监控和顺着网线盗取个人信息然后丢炸 ...</blockquote>
+他当然留了的，之前就报道过靠和乌克兰军事机构合作度过了某些“危机”。只是这恩客太多了小姐也实在接待不过来啊，而且大家都是玩玩而已，根本不可能有恩客给一个罗刹娼妓撑腰，那不是谁都能搞两下么？
+
+*****
+
+####  朋友  
+##### 61#       发表于 2024-8-25 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66009491&amp;ptid=2196447" target="_blank">革萌 发表于 2024-8-25 17:33</a>
+
+据说是ipfs
+
+所以这玩意儿生态挺好的，很多网站只是分享种子之类，这玩意儿游戏动画啥的都直接分享到群里 ...</blockquote>
+想啥呢，就是土豪自家服务器，ipfs那点可怜的容量跑telegram怕不是明天就爆了
+
+
+*****
+
+####  roypppp  
+##### 62#       发表于 2024-8-25 18:01
+
+你都不在鹅螺丝了反鹅有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

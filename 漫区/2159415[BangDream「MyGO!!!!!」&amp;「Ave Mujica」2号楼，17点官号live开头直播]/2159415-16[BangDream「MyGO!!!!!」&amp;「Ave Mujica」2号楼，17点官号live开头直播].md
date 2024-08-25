@@ -2246,3 +2246,22 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 至于战吧，素睦才是幼驯染这个典就是战吧爆的吧。
 
+
+*****
+
+####  PDQ4  
+##### 22408#       发表于 2024-8-25 08:30
+
+奉劝wsd现在赶紧删了鸡，还有3个月可以大改剧本，明年狠狠让睦祥垫给爽世睦
+毕竟是向钱看齐的wsd，有百万up做后盾的爽睦不比那个唯一指定反派有钱途多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+人设剧情？无人在意啦，太较真只会毁了二创自由捏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22409#       发表于 2024-8-25 08:32
+
+那个跑出来aoe初祥的跟个老坛一样，那天本来都吵差不多了突然跑出来引战，张嘴就是我们灯祥厨什么都没干都是初祥厨在那儿xxxx
+
+好低级的互联网冰清玉洁话术，味太冲了
+

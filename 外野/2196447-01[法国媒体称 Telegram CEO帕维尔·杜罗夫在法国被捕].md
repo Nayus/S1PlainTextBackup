@@ -637,3 +637,21 @@ Tg蛮好用的啊。
 他说： ...</blockquote>
 应该来香港蹲着的
 
+
+*****
+
+####  akitox  
+##### 66#       发表于 2024-8-25 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66009746&amp;ptid=2196447" target="_blank">Alpha1918 发表于 2024-8-25 18:07</a>
+
+移动家宽的确能直连 Telegram，还能直连 Play Store</blockquote>
+哪个平行世界的移动家宽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新人马甲2  
+##### 67#       发表于 2024-8-25 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">微博都传闻说他是拒绝跟以色列合作才被逮的，S1没人说这个吗
+

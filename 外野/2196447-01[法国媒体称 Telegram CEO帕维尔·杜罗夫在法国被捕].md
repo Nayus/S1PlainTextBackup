@@ -733,3 +733,13 @@ Tg蛮好用的啊。
 她在自己的“电报”频道上写道：“你们怎么看？这次它们是会向巴黎发出呼吁，要求释放杜罗夫，还是把话烂在肚子里？”</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alpha1918  
+##### 76#       发表于 2024-8-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66010574&amp;ptid=2196447" target="_blank">akitox 发表于 2024-8-25 19:52</a>
+哪个平行世界的移动家宽</blockquote>
+今年我这边 IPv6 开通之后的
+

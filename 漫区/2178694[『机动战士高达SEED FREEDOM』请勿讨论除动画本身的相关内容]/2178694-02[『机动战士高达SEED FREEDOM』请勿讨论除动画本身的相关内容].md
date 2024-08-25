@@ -39,3 +39,13 @@ https://x.com/camus27315/status/1827282302680055812
 
 银灰的幻影 10月3号， 然而粗糙的令人难以置信，那克拉普建模是都没弄完嘛像纸折的一样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1907#       发表于 2024-8-25 23:14
+
+虽然说该来的还是会来，但实在是受不了<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/ec4e53cda77937471d4b0c499fb5513c/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/a79fafa205ab49d5137627d85f9b4348/image.jpg" referrerpolicy="no-referrer">
+

@@ -844,3 +844,13 @@ Tg蛮好用的啊。
 —— 來自 OnePlus PJE110, Android 14上的 S1Next-鵝版 v3.0.0.81-al ...</blockquote>
 可是这么多年了克格勃都没有抓他啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  青冥  
+##### 81#       发表于 2024-8-25 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66006639&amp;ptid=2196447" target="_blank">アコ 发表于 2024-8-25 10:31</a>
+抓了这么些俄罗斯巨头，这个怎么还敢去欧洲的</blockquote>
+这位当年反出毛子国时是在社媒上公开发了对大帝的竖中指图的，大概觉得划清立场交了投名状就是自己人了，没成想……<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

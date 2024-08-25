@@ -651,3 +651,60 @@ cure majesty（
 
 2024-8-25 16:19 上传
 
+
+*****
+
+####  MLP_102  
+##### 2076#       发表于 2024-8-25 22:39
+
+下集是小雪成网红后找到原主人了吗
+以为会是小麦先找到的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  jaewoongh_  
+##### 2077#       发表于 2024-8-25 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012306&amp;ptid=2162354" target="_blank">MLP_102 发表于 2024-8-25 22:39</a>
+
+下集是小雪成网红后找到原主人了吗
+
+以为会是小麦先找到的</blockquote>
+预告里的新角色是之前出现过的配角啊，mayu的老同学，因为误会分手了，养的宠物是龙猫
+
+
+*****
+
+####  Piano-Forest  
+##### 2078#       发表于 2024-8-25 22:46
+
+[https://x.com/HanyuXv/status/1827496110036021377](https://x.com/HanyuXv/status/1827496110036021377)
+
+わんぷり３０話おつかれ様でした。今回はアクションを担当しました。ガオガオーンがリリアンに飛び掛りからワンダフルゴロゴロからの投げ飛ばしあたりまで。あとはヘルプ！キラリンアニマルのみんなの変身カットもやりました。プリキュア全員描けてよかった！
+<img src="https://p.sda1.dev/19/4a66a10f412765d9c71d7887dc4553a7/20240825_224433.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sususihara/status/1822408837808242712](https://x.com/sususihara/status/1822408837808242712)
+
+本日放送のわんぷり＃28 コンテ・演出担当しています
+
+のんびり回です
+
+作画監督の玖遠さんのお力により絵がめちゃカワです
+
+進行は11話に続いて入江くんです
+
+今回私がコロナにかかってしまい、他話数の演出、演出助手の皆さんに助けていただきました 本当にありがとうございます！
+
+よろしくお願いします
+<img src="https://p.sda1.dev/19/f7d7edd97055b088d1275c53e90be48d/20240825_224442.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sc_ome/status/1821959027213136370](https://x.com/sc_ome/status/1821959027213136370)
+<img src="https://p.sda1.dev/19/6d03cd7ada37f7c5d323059c6619f107/20240825_224222.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b82128918c2bd439867ea5b49a54a72a/20240825_224228.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/sugimoto_mi_ho_/status/1818648396187812016](https://x.com/sugimoto_mi_ho_/status/1818648396187812016)
+<img src="https://p.sda1.dev/19/240de90b982df3c4a0201dbe45080df7/20240825_224054.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/566b5f9743dec085c17ee08d712bc526/20240825_224056.jpg" referrerpolicy="no-referrer">
+

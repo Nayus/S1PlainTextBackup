@@ -1610,3 +1610,26 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 现在忍物语也提到前面，应该两个季度的故事就是 ...</blockquote>
 收尾不该是结物语吗？最具有结束感的一部
 
+
+*****
+
+####  moras2694  
+##### 779#       发表于 2024-8-25 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66005684&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-8-25 06:13</a>
+ 美丽公主的魔性比起外表美，更多是内心美，有了魔女帮助之后才出现把人美死了。 千石抚子是外表美的低配 ...</blockquote>
+按文中的表现，这低配也太低配了，根本达不到魔性吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，毕竟都被两个同学诅咒了，也没可爱到能保护自己。还是说小忍是看出了这份可爱的成长性？至于黑暗的心，现在来看纯是西尾写嗨了，从后面抚看到死下，虽然抚子是成长了，但跨度不是一般的大
+
+
+*****
+
+####  kedvfu  
+##### 780#       发表于 2024-8-25 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007044&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-8-25 11:31</a>
+
+收尾不该是结物语吗？最具有结束感的一部</blockquote>
+也有道理，会有点花物语的感觉，故事感觉有点像番外篇
+
+主体上都是新的同事们的故事，中间再透露一些拉长时间线后的角色，最后回到垃圾君荡漾收尾
+

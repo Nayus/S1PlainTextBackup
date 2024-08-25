@@ -2697,3 +2697,14 @@ fc则是正经本格推理，很容易让人较真，毕竟也是推理游戏开
 空木的身世大概率跟18年前的案子有关系，就像消失的继承人是讲主角的身世，在雪中消失的过去是讲步美的身 ...</blockquote>
 啥时候讲过步美过去？
 
+
+*****
+
+####  努斯万克  
+##### 266#       发表于 2024-8-25 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66010546&amp;ptid=2190950" target="_blank">maninhole 发表于 2024-8-25 19:48</a>
+
+啥时候讲过步美过去？</blockquote>
+BS侦探俱乐部 消失在雪中的过去
+

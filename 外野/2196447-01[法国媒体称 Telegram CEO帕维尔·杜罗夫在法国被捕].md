@@ -674,3 +674,19 @@ Tg蛮好用的啊。
 
 有一种张一鸣赵长鹏的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古代人皮克  
+##### 70#       发表于 2024-8-25 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66009041&amp;ptid=2196447" target="_blank">有毒的蘑菇 发表于 2024-8-25 16:28</a>
+梅德韦杰夫就杜罗夫被捕发表评论：
+
+很久以前我问杜罗夫为什么不愿意与执法机构合作处理严重犯罪。
+
+他说： ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的落在kgb手上就会有好下场一样
+
+—— 來自 OnePlus PJE110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

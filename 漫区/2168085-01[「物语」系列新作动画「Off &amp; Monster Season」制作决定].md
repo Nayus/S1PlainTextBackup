@@ -1660,3 +1660,11 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 以前想象过这篇改编成动画长什么样子 这动画只能说完全符合我的想象
 
+
+*****
+
+####  鬼谷ask  
+##### 784#       发表于 2024-8-25 21:11
+
+还不错，稳稳当当吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

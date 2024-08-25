@@ -2341,3 +2341,17 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 <img src="https://p.sda1.dev/19/b82b84dfca8e50570fa077bd44da3435/E8AE54B9275F9AA7D019F520BA46C250.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/077bf3412a591728dc85b3be8f7cfc21/FEEBC1EBEE253380AC3FC4AE813D33A9.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  傘木希美  
+##### 22417#       发表于 2024-8-25 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008021&amp;ptid=2159415" target="_blank">yifan8848 发表于 2024-8-25 13:52</a>
+日本好像有颱風
+
+希望不要影響到下禮拜的anisama</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">台风啥时候啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

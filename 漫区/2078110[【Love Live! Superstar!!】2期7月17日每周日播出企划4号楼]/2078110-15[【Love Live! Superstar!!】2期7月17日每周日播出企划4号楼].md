@@ -71,3 +71,26 @@
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  仟音一心  
+##### 20952#       发表于 2024-8-25 18:57
+
+<img src="https://p.sda1.dev/19/48a27a799004ef2fb6d829fe7effa751/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 20953#       发表于 2024-8-25 18:58
+
+<img src="https://p.sda1.dev/19/8d478381b36043f18b716d3a91eea0bd/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 20954#       发表于 2024-8-25 19:02
+
+原来只有一个队输了
+<img src="https://p.sda1.dev/19/fbece085dcfd9037841d1da9879e4c31/image.jpg" referrerpolicy="no-referrer">
+

@@ -534,3 +534,20 @@ friendy precure(√)
 
 板冈锦+土田丰，值得期待啊
 
+
+*****
+
+####  jaewoongh_  
+##### 2069#       发表于 2024-8-24 11:21
+
+板冈锦+土田丰，值得期待啊
+
+*****
+
+####  jaewoongh_  
+##### 2070#       发表于 2024-8-25 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今年的二段无论是造型还是bank设计还是技能特效都不敢恭维……但有二段总比没二段强吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">无战斗的观感实在太差，最后连硬直都没打出来，喊喊口号新玩具就从天而降了，而且猫也彻底喵喵化了……拉扯环节的作画还是很顶的，板冈作监虽然修不明白但流畅度是真不错啊
+

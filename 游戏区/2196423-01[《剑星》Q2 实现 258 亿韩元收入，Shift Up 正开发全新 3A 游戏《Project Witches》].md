@@ -544,3 +544,13 @@ ps5独占就这样了
 
 剑星那个逆天头身比+长得和我童年阴影小学老师一个样的脸，玩不了一点
 
+
+*****
+
+####  至高点  
+##### 50#       发表于 2024-8-25 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007811&amp;ptid=2196423" target="_blank">CyborgIP 发表于 2024-8-25 13:18</a>
+剑星那个逆天头身比+长得和我童年阴影小学老师一个样的脸，玩不了一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友小学老师还挺漂亮的
+

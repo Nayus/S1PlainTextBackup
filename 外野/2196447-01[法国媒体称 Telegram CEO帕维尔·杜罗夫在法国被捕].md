@@ -603,3 +603,37 @@ Tg蛮好用的啊。
 
 你都不在鹅螺丝了反鹅有什么用<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  黄油indie  
+##### 63#       发表于 2024-8-25 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008270&amp;ptid=2196447" target="_blank">革萌 发表于 2024-8-25 14:37</a>
+
+支持十万人大群，群文件免费用户支持一个文件2g</blockquote>
+现在找资源都去tg，人多东西多，腾讯群那几十几百mb的容量跟开玩笑一样
+
+*****
+
+####  Alpha1918  
+##### 64#       发表于 2024-8-25 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66009552&amp;ptid=2196447" target="_blank">找蟹男 发表于 2024-8-25 17:41</a>
+看泥潭这讨论的，我还以为我家宽带能连上tg了</blockquote>
+移动家宽的确能直连 Telegram，还能直连 Play Store <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江南映月  
+##### 65#       发表于 2024-8-25 18:14
+
+<blockquote>有毒的蘑菇 发表于 2024-8-25 16:28
+梅德韦杰夫就杜罗夫被捕发表评论：
+
+很久以前我问杜罗夫为什么不愿意与执法机构合作处理严重犯罪。
+
+他说： ...</blockquote>
+应该来香港蹲着的
+

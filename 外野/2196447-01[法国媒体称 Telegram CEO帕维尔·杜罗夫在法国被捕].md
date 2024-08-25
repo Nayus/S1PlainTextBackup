@@ -498,3 +498,35 @@ Tg蛮好用的啊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  有毒的蘑菇  
+##### 54#       发表于 2024-8-25 16:28
+
+  梅德韦杰夫就杜罗夫被捕发表评论：
+很久以前我问杜罗夫为什么不愿意与执法机构合作处理严重犯罪。
+
+他说：“这是我的原则立场，”       “但是任何国家都会管控”，我告诉他。
+
+他认为自己最大的问题是身处俄罗斯，于是离开了，然后也在其他国家获得了公民权。 “哪里美好那里就是祖国”
+
+他失算了。对于我们现在所有共同的敌人来说，他是俄罗斯人，不可预测且危险，不是像马斯克或扎克伯格那种FBI可以与之积极合作的人。
+
+杜罗夫最终必须明白，祖国就像时代一样，是无法选择的……
+
+  “美好的地方，香甜的空气” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  小数点  
+##### 55#       发表于 2024-8-25 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008966&amp;ptid=2196447" target="_blank">红炉灰 发表于 2024-8-25 16:14</a>
+
+老板自己就有很多钱
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+老版的钱哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

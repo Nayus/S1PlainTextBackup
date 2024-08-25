@@ -820,3 +820,27 @@ Tg蛮好用的啊。
    卡尔森：我想，也许我们不应该只关注旧金山，也许美国还有其他地方，在那里……你不会受到袭击？
 杜罗夫：但还有第二部分，在美国可能更令人担忧。无论我们来到美国哪里，我们都受到了联邦调查局和安全机构的过多关注。
 
+
+*****
+
+####  initium  
+##### 79#       发表于 2024-8-25 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66011526&amp;ptid=2196447" target="_blank">古代人皮克 发表于 2024-8-25 21:17</a>
+
+说的落在kgb手上就会有好下场一样
+
+—— 來自 OnePlus PJE110, Android 14上的 S1Next-鵝版 v3.0.0.81-al ...</blockquote>
+现实是俄罗斯让他带着钱安全的润了，法国才是那个抓了他的人。
+
+*****
+
+####  仟音一心  
+##### 80#       发表于 2024-8-25 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66011526&amp;ptid=2196447" target="_blank">古代人皮克 发表于 2024-8-25 21:17</a>
+说的落在kgb手上就会有好下场一样
+
+—— 來自 OnePlus PJE110, Android 14上的 S1Next-鵝版 v3.0.0.81-al ...</blockquote>
+可是这么多年了克格勃都没有抓他啊。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

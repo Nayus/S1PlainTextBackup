@@ -2758,3 +2758,24 @@ saki输得透彻，正常收音的ego无了
 
 这就是养成系的偶像吗 唱的比之前好多了
 
+
+*****
+
+####  北条早苗  
+##### 6257#       发表于 2024-8-25 23:25
+
+初星9人+里御三家+部长刚好13人，765AS<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oznark  
+##### 6258#       发表于 2024-8-25 23:25
+
+<img src="https://img.saraba1st.com/forum/202408/25/082541w0rypxaxzy02txjy.jpg" referrerpolicy="no-referrer">
+
+<strong>4432.jpg</strong> (107.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 23:25 上传
+

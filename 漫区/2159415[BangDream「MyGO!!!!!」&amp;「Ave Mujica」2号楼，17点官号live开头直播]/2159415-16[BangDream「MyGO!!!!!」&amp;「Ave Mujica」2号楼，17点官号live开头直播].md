@@ -2355,3 +2355,13 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  rikaren  
+##### 22418#       发表于 2024-8-25 19:14
+
+<blockquote>极速赛车手 发表于 2024-8-24 22:12
+好像吧务有祥黑来着，让角色黑把持环境的后果</blockquote>
+有人at吧务骑脸才删帖子的含金量。
+

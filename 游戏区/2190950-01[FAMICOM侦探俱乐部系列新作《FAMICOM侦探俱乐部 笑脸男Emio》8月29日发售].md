@@ -2647,3 +2647,11 @@ fc则是正经本格推理，很容易让人较真，毕竟也是推理游戏开
 国内网店都好贵，还是乖乖上日亚订了份限定版</blockquote>
 日亚能直邮?
 
+
+*****
+
+####  清浦刹那  
+##### 261#       发表于 2024-8-25 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能，算是自己解决运费差不多是国内价，再买点别的东西一起邮就便宜了。
+

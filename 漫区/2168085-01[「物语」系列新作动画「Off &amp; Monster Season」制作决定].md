@@ -1652,3 +1652,11 @@ syl上半季的抚物语的演出也是很合适的，存在感足而且都很�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这业物语真的不是在讽刺玛丽苏小说吗
 
+
+*****
+
+####  无证madam  
+##### 783#       发表于 2024-8-25 14:00
+
+以前想象过这篇改编成动画长什么样子 这动画只能说完全符合我的想象
+

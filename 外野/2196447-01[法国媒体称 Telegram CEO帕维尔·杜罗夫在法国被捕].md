@@ -530,3 +530,14 @@ Tg蛮好用的啊。
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 老版的钱哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zewubbfa  
+##### 56#       发表于 2024-8-25 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66009062&amp;ptid=2196447" target="_blank">小数点 发表于 2024-8-25 16:32</a>
+
+老版的钱哪来的</blockquote>
+他是vkontakte创始人，在那赚的。
+

@@ -2276,3 +2276,16 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 你落后版本了，之前那批人确实缩在角落yygq访谈不能全信，现在的素睦人已经对着访谈原文振振有辞说素世和 ...</blockquote>
 有够冥顽不灵的，磕CP也没人能拦着，但喜欢把官设半身打成大反派，也是独一家了。
 
+
+*****
+
+####  御景  
+##### 22411#       发表于 2024-8-25 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66005799&amp;ptid=2159415" target="_blank">rikaren 发表于 2024-8-25 07:32</a>
+
+那俩神人太厉害了，起手都不是“初祥党也干了”而是“初祥党先干的”，“也有人说灯是初华代餐”，是啊， ...</blockquote>
+喵梦、初华代餐论，哪个不是灯厨、go推先干的，喵梦和初华只是人气不够，才没吵起来。
+
+也就在专楼里，还能掰扯下。
+

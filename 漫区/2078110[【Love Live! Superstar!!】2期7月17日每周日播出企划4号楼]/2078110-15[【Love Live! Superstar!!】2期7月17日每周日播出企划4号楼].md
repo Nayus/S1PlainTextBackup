@@ -94,3 +94,13 @@
 原来只有一个队输了
 <img src="https://p.sda1.dev/19/fbece085dcfd9037841d1da9879e4c31/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20955#       发表于 2024-8-25 22:24
+
+好像是nako和结那声援的那队
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88-alpha
+

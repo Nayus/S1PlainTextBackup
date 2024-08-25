@@ -2663,3 +2663,16 @@ fc则是正经本格推理，很容易让人较真，毕竟也是推理游戏开
 
 这作空木不划水重点关注，多年金田一柯南的直觉告诉我，40岁单身，还喜欢捉高中生当侦探，大有问题。
 
+
+*****
+
+####  白金口袋  
+##### 263#       发表于 2024-8-25 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66010160&amp;ptid=2190950" target="_blank">zpower 发表于 2024-8-25 19:03</a>
+
+这作空木不划水重点关注，多年金田一柯南的直觉告诉我，40岁单身，还喜欢捉高中生当侦探，大有问题。
+
+ ...</blockquote>
+空木的身世大概率跟18年前的案子有关系，就像消失的继承人是讲主角的身世，在雪中消失的过去是讲步美的身世，按顺序和年代来讲这次该轮到他了，比惨事务所一个赛一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

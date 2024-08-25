@@ -591,7 +591,7 @@
     "lastedit": 1724599200,
     "category": "漫区",
     "active": true,
-    "update": false
+    "update": true
   },
   "2026556": {
     "totalreply": 138126,
@@ -7650,10 +7650,10 @@
     "update": false
   },
   "2171479": {
-    "totalreply": 977,
+    "totalreply": 979,
     "title": "[修罗场后宫胃药党争文讨论楼2号楼]",
     "newtitle": "[修罗场后宫胃药党争文讨论楼2号楼 ver 0720]",
-    "lastedit": 1724522646,
+    "lastedit": 1724616972,
     "category": "外野",
     "active": true,
     "update": false
@@ -8649,10 +8649,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 64736,
+    "totalreply": 64737,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1724616368,
+    "lastedit": 1724616972,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8856,10 +8856,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 29382,
+    "totalreply": 29383,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1724614689,
+    "lastedit": 1724616728,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10512,10 +10512,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 888,
+    "totalreply": 889,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1724615412,
+    "lastedit": 1724616613,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -15606,10 +15606,10 @@
     "update": false
   },
   "2196067": {
-    "totalreply": 130,
+    "totalreply": 131,
     "title": "[真的有人过了黑神话第一章后想起来还有个第一章猴子能升级酒壶吗？]",
     "newtitle": "[真的有人过了黑神话第一章后想起来还有个第一章猴子能升级酒壶吗？]",
-    "lastedit": 1724612295,
+    "lastedit": 1724616970,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16857,10 +16857,10 @@
     "update": false
   },
   "2196442": {
-    "totalreply": 70,
+    "totalreply": 71,
     "title": "[柬埔寨德崇扶南运河8月动工，当地为庆祝特地放假]",
     "newtitle": "[柬埔寨德崇扶南运河8月动工，当地为庆祝特地放假]",
-    "lastedit": 1724615417,
+    "lastedit": 1724616618,
     "category": "外野",
     "active": true,
     "update": false
@@ -17163,10 +17163,10 @@
     "update": false
   },
   "2196555": {
-    "totalreply": 59,
+    "totalreply": 62,
     "title": "[大半夜又听《猴哥》这首歌，我大概这辈子都不会和黑神话和解了。]",
     "newtitle": "[大半夜又听《猴哥》这首歌，我大概这辈子都不会和黑神话和解了。]",
-    "lastedit": 1724616252,
+    "lastedit": 1724616618,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17195,6 +17195,15 @@
     "newtitle": "[贰瓶勉新连载《塔之迷宫Tower Dungeon》]",
     "lastedit": 1724613493,
     "category": "漫区",
+    "active": true,
+    "update": false
+  },
+  "2196534": {
+    "totalreply": 42,
+    "title": "[黑神话：悟空战斗设计最好和最差的BOSS（剧透可能）]",
+    "newtitle": "[黑神话：悟空战斗设计最好和最差的BOSS（剧透可能）]",
+    "lastedit": 1724616618,
+    "category": "游戏区",
     "active": true,
     "update": false
   }

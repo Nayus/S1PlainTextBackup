@@ -473,3 +473,16 @@ Tg蛮好用的啊。
 马一龙巨魔依旧。
 <img src="https://p.sda1.dev/19/a5856af554d20d21d18394601c622f11/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  bestwood  
+##### 52#       发表于 2024-8-25 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008462&amp;ptid=2196447" target="_blank">红炉灰 发表于 2024-8-25 15:03</a>
+
+捐款，会员，老板自己的钱
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+不会捐款是大头吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

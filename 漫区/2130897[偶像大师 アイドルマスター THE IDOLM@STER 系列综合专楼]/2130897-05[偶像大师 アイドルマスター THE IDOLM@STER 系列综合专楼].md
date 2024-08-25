@@ -2364,3 +2364,117 @@ Resilio: BBZDKIPCYTUIHRHWP7SNR3NFN6F667YHQ
 <blockquote>09. Rebellion // 我那覇 響</blockquote>
 今天的贊助可以看到爛鐵的標了。
 
+
+*****
+
+####  wfhtony  
+##### 6234#       发表于 2024-8-25 13:35
+
+ 本帖最后由 wfhtony 于 2024-8-25 14:02 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/25/133438w8tfjr4tqut4vuql.png" referrerpolicy="no-referrer">
+
+<strong>961_PRODUCTION_presents_『ReFLAME』_｜ASOBI_STAGE｜EVE_2024-08-25_13-33-51.png</strong> (8.49 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 13:34 上传
+
+<img src="https://img.saraba1st.com/forum/202408/25/133439qpqyzup072uj2y0u.png" referrerpolicy="no-referrer">
+
+<strong>961_PRODUCTION_presents_『ReFLAME』_｜ASOBI_STAGE｜EVE_2024-08-25_13-34-08.png</strong> (5.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 13:34 上传
+
+嗯...
+讓學馬仕的信號燈唱961的那些曲（包括新曲）也算符合原設定了（
+
+Re:SIST/STAR Setlist:<blockquote>--Overture--
+
+01. インセインゲーム // 全員
+
+02. Fate of the World // 全員
+
+03. inferno // 星井 美希、我那覇 響
+
+[Tr.3剛起頭，YT免費部分結束]
+
+04. 炎ノ鳥 // 四条 貴音
+
+--MC--
+
+05. マリオネットの心 // 全員
+
+06. relations // 星井 美希
+
+07. フタリの記憶 // 四条 貴音
+
+08. KisS // 全員
+
+--MC--
+
+09. Rebellion // 我那覇 響
+
+10. 聖炎の女神 // 四条 貴音
+
+11. Marionetteは眠らない // 星井 美希
+
+12. FlaME // 全員（＊本演出的主題曲）
+
+--終場前MC--
+
+13. 僕たちのResistance // 全員
+
+--安可 &amp; 安可MC--
+
+14. 1st Call // 全員
+
+--ENDROLL--</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202408/25/140158e32juunvaeq2rjiv.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2024-08-25-13h59m56s297.jpg</strong> (191.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 14:01 上传
+
+アイマス最高 -&gt; 961! 961! 961!
+
+*****
+
+####  wfhtony  
+##### 6235#       发表于 2024-8-25 14:23
+
+ 本帖最后由 wfhtony 于 2024-8-25 14:43 编辑 
+
+第一句直接バラバラ... 
+這週的設備（大概）沒啥問題了，所以問題又集中回聲優的演唱上了...
+
+所以上週的音質是怎麼個情況？
+
+這週（涉谷場）的MC起手依然是從吃的（章魚燒）開始聊起...
+
+果然是月村同學啊（
+
+這週的小鹿依然是安定發揮。
+
+<img src="https://img.saraba1st.com/forum/202408/25/144308yqm64eq9efqaaibm.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (2.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-25 14:43 上传
+
+不要小看吃貨啊（
+
+*****
+
+####  joshua1990  
+##### 6236#       发表于 2024-8-25 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">原来这周的开了呀
+

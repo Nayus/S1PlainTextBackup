@@ -655,3 +655,22 @@ Tg蛮好用的啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">微博都传闻说他是拒绝跟以色列合作才被逮的，S1没人说这个吗
 
+
+*****
+
+####  极速再生  
+##### 68#       发表于 2024-8-25 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66010591&amp;ptid=2196447" target="_blank">新人马甲2 发表于 2024-8-25 19:53</a>
+
+微博都传闻说他是拒绝跟以色列合作才被逮的，S1没人说这个吗</blockquote>
+这位之前去美国，fbi让他用有后门的库他也拒绝了。只能说这个时代理想主义者是活不下去的，他们信仰的这些东西根本就没有根基。而且其实tg也算已经妥协了，比如之前谷歌商店下载的客户端屏蔽了俄媒，只有pc上才能看；一般司法机关的要求也会配合。
+
+
+*****
+
+####  SkavenYesYes  
+##### 69#       发表于 2024-8-25 20:24
+
+有一种张一鸣赵长鹏的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

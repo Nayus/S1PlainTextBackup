@@ -2323,3 +2323,21 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 影响asl的概率比较小，但是可能会影响国内远征的航班（
 
+
+*****
+
+####  星天观测  
+##### 22415#       发表于 2024-8-25 18:34
+
+别影响远征啊我还盼着代购呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 22416#       发表于 2024-8-25 18:35
+
+<img src="https://p.sda1.dev/19/8070f9a9b21d1185854fcad1c5519c77/2E30F15A84A4D3D084669060C1601CEC.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/fe28138cb1d8c242d7fd603b5d65590f/D72D4A720BB0397B44B70C91D59A22DF.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b82b84dfca8e50570fa077bd44da3435/E8AE54B9275F9AA7D019F520BA46C250.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/077bf3412a591728dc85b3be8f7cfc21/FEEBC1EBEE253380AC3FC4AE813D33A9.jpg" referrerpolicy="no-referrer">
+

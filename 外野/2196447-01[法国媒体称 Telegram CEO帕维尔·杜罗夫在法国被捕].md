@@ -926,3 +926,19 @@ Tg蛮好用的啊。
 
 据法国电视一台（FT1）8月24日报道，杜罗夫当天晚间在法国被捕，可能面临恐怖主义、贩毒、洗钱、欺诈等多项指控。法国政府认为，松懈的审核规则和加密技术导致犯罪分子广泛使用“电报”平台从事违法活动。
 
+
+*****
+
+####  strider_oy  
+##### 86#       发表于 2024-8-26 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012441&amp;ptid=2196447" target="_blank">yxds 发表于 2024-8-25 06:50</a>
+梅德韦杰夫劝过他他不信:杜罗夫以为自己是世界公民，在别人眼里他是危险的俄罗斯人
+
+梅德韦杰夫25日在Telegr ...</blockquote>
+祖国和时代一样，都是无法选择的
+
+姐夫说话真有水平
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

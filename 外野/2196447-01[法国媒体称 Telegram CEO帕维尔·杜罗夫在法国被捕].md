@@ -408,3 +408,39 @@ Telegram上面yygq东大的不少吧 前些天还有人拿这个来yygq</blockqu
 
 美國的互聯網巨頭不時會拿到調查、拆分和聽證的服從性大禮包
 
+
+*****
+
+####  木瓜奶五元  
+##### 45#       发表于 2024-8-25 14:59
+
+一个社交软件，上来有人diss东大就算罪状的话…
+
+先把微信QQ微博抖音知乎豆瓣等等等等都挂一遍路灯会比较有说服力一点。哦还有你潭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红炉灰  
+##### 46#       发表于 2024-8-25 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008326&amp;ptid=2196447" target="_blank">bestwood 发表于 2024-8-25 14:44</a>
+之前没了解过，他这服务器是靠什么维持的</blockquote>
+捐款，会员，老板自己的钱
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+
+*****
+
+####  zypyong  
+##### 47#       发表于 2024-8-25 15:05
+
+Tg蛮好用的啊。 
+
+*****
+
+####  jamboo  
+##### 48#       发表于 2024-8-25 15:05
+
+等等，如果他手里掌握着后门呢<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

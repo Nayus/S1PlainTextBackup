@@ -2478,3 +2478,76 @@ Re:SIST/STAR Setlist:<blockquote>--Overture--
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">原来这周的开了呀
 
+
+*****
+
+####  wfhtony  
+##### 6237#       发表于 2024-8-25 16:00
+
+Setlist（渋谷クラブクアトロ公演）：（根據上週的歌單的推測版本，隨時更新）
+
+・Overture + 1st block<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全員
+
+02. Campus mode!! // 全員
+
+→ 開場MC（MC①）</blockquote>・2nd block<blockquote>03. Fighting My Way // 長月あおい
+
+04. Luna say maybe // 小鹿なお
+
+05. 世界一可愛い私 // 飯田ヒカル
+
+→ MC②
+
+06. Boom Boom Pow // 長月あおい
+
+07. Yellow Big Bang！ // 飯田ヒカル
+
+08. アイヴイ // 小鹿なお
+
+→ MC③</blockquote>・3rd block + 安可<blockquote>09. キミとセミブルー // 全員
+
+10. ふわふわ // 飯田ヒカル（＊晝場）
+
+10.  // （＊夜場）
+
+→ MC④
+
+11. ミラクルナナウ(゜∀゜)！ // 全員（＊晝場）
+
+11.  // 全員（＊夜場）
+
+---安可---
+
+12. 冠菊 // 全員
+
+→ 安可MC
+
+13. 初 // 全員
+
+[終演後留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+
+*****
+
+####  wfhtony  
+##### 6238#       发表于 2024-8-25 16:04
+
+上來就是《オーバーマスター(M@STER VERSION) -Rio Hamamoto Rearrange-》...
+
+*****
+
+####  wfhtony  
+##### 6239#       发表于 2024-8-25 16:12
+
+<blockquote>03. relations // 全員（＊組曲形式）
+
+04. キミはメロディ // 全員（＊組曲形式）
+
+05. THE IDOLM@STER // 全員（＊組曲形式）
+
+[Tr.5剛起頭，YT免費部分結束]</blockquote>
+小黑...
+

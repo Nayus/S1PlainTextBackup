@@ -2315,3 +2315,11 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 希望不要影響到下禮拜的anisama<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  滑稽Captain  
+##### 22414#       发表于 2024-8-25 16:09
+
+影响asl的概率比较小，但是可能会影响国内远征的航班（
+

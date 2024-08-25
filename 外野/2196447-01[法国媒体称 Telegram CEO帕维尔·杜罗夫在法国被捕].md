@@ -486,3 +486,15 @@ Tg蛮好用的啊。
 —— 来自 鹅球 v3.1.88.3-alpha</blockquote>
 不会捐款是大头吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  红炉灰  
+##### 53#       发表于 2024-8-25 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008807&amp;ptid=2196447" target="_blank">bestwood 发表于 2024-8-25 15:49</a>
+不会捐款是大头吧</blockquote>
+老板自己就有很多钱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

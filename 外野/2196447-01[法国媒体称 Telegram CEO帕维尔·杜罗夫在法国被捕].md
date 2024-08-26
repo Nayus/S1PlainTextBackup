@@ -1418,3 +1418,16 @@ Rumble CEO直接跑了
 来惊醒的
 已经是没救啦
 
+
+*****
+
+####  自演乙.  
+##### 125#       发表于 2024-8-27 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66008437&amp;ptid=2196447" target="_blank">木瓜奶五元 发表于 2024-8-25 14:59</a>
+
+一个社交软件，上来有人diss东大就算罪状的话…
+
+先把微信QQ微博抖音知乎豆瓣等等等等都挂一遍路灯会比较有 ...</blockquote>
+你把这话和法兰西说啊，怎么老是扯东大，东大抓的人？
+

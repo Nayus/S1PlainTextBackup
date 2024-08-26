@@ -2227,3 +2227,18 @@ syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 
 石神可以啊，黑猴开播3个小时刚刚过广智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  高等黑暗  
+##### 633#       发表于 2024-8-26 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">石神开播30分钟被大头暴打实在太扎眼我就去看了会别的 3小时后回来瞄了一眼还在打大头，简直了
+
+*****
+
+####  woui003woui  
+##### 634#       发表于 2024-8-26 09:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等下，加了一个月班突然发现虹甲已经结束了啊
+

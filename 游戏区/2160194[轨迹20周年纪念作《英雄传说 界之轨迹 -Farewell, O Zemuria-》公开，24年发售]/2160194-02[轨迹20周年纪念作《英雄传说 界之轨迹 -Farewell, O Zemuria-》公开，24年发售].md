@@ -7817,3 +7817,46 @@ TVゲーム新作予約ランキング（2024/8/25 閉店時点）
 
 10PS5・PS4　英雄伝説 界の軌跡 -Farewell， O Zemuria-
 
+
+*****
+
+####  ravend233  
+##### 2909#       发表于 2024-8-26 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都要飞榜了还行
+
+顺便FAMI封面没有
+
+<img src="https://img.saraba1st.com/forum/202408/26/115307jm46ekno4ra230ay.png" referrerpolicy="no-referrer">
+
+<strong>QA}HU~$TLR04P@_%}5C[25A.png</strong> (772.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 11:53 上传
+
+*****
+
+####  一步成诗  
+##### 2910#       发表于 2024-8-26 11:53
+
+ 本帖最后由 一步成诗 于 2024-8-26 11:57 编辑 
+
+这周fami通还是没有，寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上次fami通是7.25，这周还没有的话就是空了一整个8月没上杂志
+
+顺便黎2这个时候已经在电击直播放出序章片段和实机演示了
+
+*****
+
+####  ravend233  
+##### 2911#       发表于 2024-8-26 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66017068&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-26 11:53</a>
+
+这周fami通还是没有，寄
+
+上次fami通是7.25，这周还没有的话就是空了一整个8月没上杂志</blockquote>
+崩铁也是轨，有（不是
+

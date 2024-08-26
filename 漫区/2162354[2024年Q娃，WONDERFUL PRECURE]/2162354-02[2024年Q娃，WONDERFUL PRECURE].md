@@ -770,3 +770,13 @@ cure majesty（
 
 至于为啥不跟干部打，那毕竟汪Q组心理有些理亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 2085#       发表于 2024-8-26 11:54
+
+前辈没遇到过这种从头到尾每一次都不好出手打的情况
+
+虽然跨作品了，但哪怕是以感化著称的高斯都时不时会遇到谈话无用只能火化的敌人（
+

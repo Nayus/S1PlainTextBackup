@@ -1321,3 +1321,14 @@ Rumble CEO直接跑了
 
 他起码不双标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wqm2008  
+##### 116#       发表于 2024-8-26 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018785&amp;ptid=2196447" target="_blank">油条小贩 发表于 2024-8-26 14:38</a>
+
+不过看着比张一鸣身段还是要硬点</blockquote>
+张一鸣常驻新加坡
+

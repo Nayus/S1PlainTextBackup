@@ -2393,3 +2393,21 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  PDQ4  
+##### 22422#       发表于 2024-8-26 16:27
+
+土mv是不是要比ether还晚出了
+
+总不能没有吧，国内周四晚23点可就有新曲了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 22423#       发表于 2024-8-26 16:32
+
+这么长的工期 估计是一个无敌的 堪比25时バグ的传奇mv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

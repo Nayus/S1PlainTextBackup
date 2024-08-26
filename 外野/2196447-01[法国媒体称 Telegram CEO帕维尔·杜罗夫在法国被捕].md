@@ -1178,3 +1178,13 @@ Rumble CEO直接跑了
 
 现在算不算英雄难过美人关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  油条小贩  
+##### 102#       发表于 2024-8-26 14:37
+
+在阿联酋，按照中东的情况，被以色列暗杀吧
+
+其实也就香港是真避风港
+

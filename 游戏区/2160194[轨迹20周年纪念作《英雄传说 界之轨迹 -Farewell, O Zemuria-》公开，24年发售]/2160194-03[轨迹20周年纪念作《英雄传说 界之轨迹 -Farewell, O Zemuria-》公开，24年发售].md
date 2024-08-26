@@ -14,3 +14,24 @@
 
 啥玩意，评价是不如丽霞
 
+
+*****
+
+####  悠悠你心  
+##### 2963#       发表于 2024-8-26 17:30
+
+今年tgs是9月26号开始，界发售也是这一天，tgs宣发也省咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  卢迪克  
+##### 2964#       发表于 2024-8-26 17:31
+
+<blockquote>悠悠你心 发表于 2024-8-26 17:30
+今年tgs是9月26号开始，界发售也是这一天，tgs宣发也省咯
+
+—— 来自 HONOR PGT-AN20, Android 14上的 S1Ne ...</blockquote>
+买法老控商店的9.24就可以玩了
+

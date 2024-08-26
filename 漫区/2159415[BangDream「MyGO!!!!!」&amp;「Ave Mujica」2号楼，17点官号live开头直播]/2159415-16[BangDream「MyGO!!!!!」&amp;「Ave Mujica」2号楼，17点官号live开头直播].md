@@ -2419,3 +2419,21 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 看看wsd能端出来什么传奇鬼图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22425#       发表于 2024-8-26 17:25
+
+就怕是反向传奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+过于惊艳，一个普普通通3rd视觉图压不住
+只能拖到29号放，反正几个小时后就是ether<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22426#       发表于 2024-8-26 17:30
+
+惊艳也应该是以太的mv惊艳吧，earth惊艳了以太又超鬼那不是一颗糖一个巴掌么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

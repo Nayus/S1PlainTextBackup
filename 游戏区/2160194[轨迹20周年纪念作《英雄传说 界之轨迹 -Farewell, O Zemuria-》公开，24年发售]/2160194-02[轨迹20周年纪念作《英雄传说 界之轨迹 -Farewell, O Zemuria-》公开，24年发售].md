@@ -8250,3 +8250,31 @@ md ,黎2好歹有概念图，这次直接建模图
 
 黎2也就除了开头因为仓促毫无宣发，后期宣发甚至比黎1还好点，界轨也配碰瓷？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2951#       发表于 2024-8-26 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019554&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-8-26 15:42</a>
+
+理性分析，界轨的宣发资源是否不如黎2</blockquote>
+你该和黎1比，黎2是整个共和国篇宣发资源最好的了
+
+*****
+
+####  Aeons  
+##### 2952#       发表于 2024-8-26 15:59
+
+这图就是本周情报吗
+
+
+*****
+
+####  古畑任三郎2015  
+##### 2953#       发表于 2024-8-26 16:02
+
+笑死了，这不就是阿紫和游坦之吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

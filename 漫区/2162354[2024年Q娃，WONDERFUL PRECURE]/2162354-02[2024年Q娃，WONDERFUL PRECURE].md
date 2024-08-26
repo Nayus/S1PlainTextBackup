@@ -801,3 +801,33 @@ cure majesty（
 
 积极的角度来看是为了跟动物做好朋友，消极的角度来看就是人类对动物负有原罪，为了人宠这碟醋staff大概不会重拾打斗了
 
+
+*****
+
+####  上坂莲华  
+##### 2088#       发表于 2024-8-26 13:57
+
+ 本帖最后由 上坂莲华 于 2024-8-26 13:59 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/26/135900es3n003wkh5dq5d0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240826135854.png</strong> (726.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:59 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/134812lr7riabh0hxzuhwd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240826134800.png</strong> (61.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:48 上传
+
+所以这是明确了彩狗组在床上的位置是吧，看来狗祖上除了日本狼可能还串了泰迪，对青少年的影响不可估量啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狗这集提了嘴自己遇到彩羽前也嘎噜嘎噜的，鉴于大妈们的表现我觉得这八成是伏笔，日本狼血统可能性激增<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及狗到现在只字未提过前主人的事，猫可以说是野猫，你狗可是剧情明说过弃养的，九成九最后要在这做文章了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

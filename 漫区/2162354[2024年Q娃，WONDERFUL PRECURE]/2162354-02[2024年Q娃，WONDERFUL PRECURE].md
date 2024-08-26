@@ -738,3 +738,14 @@ cure majesty（
 
 我觉得不肉搏的话就像是在痛骂前辈们是粗暴野蛮没人性的战斗狂一样，难道只有你们甜点和猫狗是好孩子吗？
 
+
+*****
+
+####  pokemon最爱  
+##### 2082#       发表于 2024-8-26 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66014437&amp;ptid=2162354" target="_blank">himfsz 发表于 2024-8-26 08:04</a>
+
+我觉得不肉搏的话就像是在痛骂前辈们是粗暴野蛮没人性的战斗狂一样，难道只有你们甜点和猫狗是好孩子吗？ ...</blockquote>
+前辈们面对敌方怪物是生物变的怪时往往也打得束手束脚吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

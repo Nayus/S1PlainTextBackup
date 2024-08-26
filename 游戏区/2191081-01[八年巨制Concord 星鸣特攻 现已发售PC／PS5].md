@@ -877,3 +877,13 @@ Concord Review In Progress - IGN
 
 爱鸡恩都吃不下这么大一坨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a317216007  
+##### 87#       发表于 2024-8-26 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">IGN，你的DEI部门呢？让专业的来啊！
+
+哦，LGBTQ可能根本不玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

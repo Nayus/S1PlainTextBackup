@@ -1387,3 +1387,14 @@ Rumble CEO直接跑了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Humpy  
+##### 122#       发表于 2024-8-27 00:09
+
+还是知乎能吹。
+在一些知乎er口中，杜罗夫早就知道西方民主自由是虚假的，去法国前就确信自己会被逮捕，这次逮捕是杜罗夫为理想主动献身，他必将青史留名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

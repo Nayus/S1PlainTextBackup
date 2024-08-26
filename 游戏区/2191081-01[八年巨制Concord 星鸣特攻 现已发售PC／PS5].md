@@ -911,3 +911,11 @@ Concord Review In Progress - IGN
 憋了3天也没写完 ...</blockquote>
 然后IGN宣布，因为同期玩家过少，编辑没法匹配对局，评测出不来~
 
+
+*****
+
+####  观者熊  
+##### 90#       发表于 2024-8-27 00:00
+
+峰值也就2000人，看回帖泥潭居然都能找出好几个玩了的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

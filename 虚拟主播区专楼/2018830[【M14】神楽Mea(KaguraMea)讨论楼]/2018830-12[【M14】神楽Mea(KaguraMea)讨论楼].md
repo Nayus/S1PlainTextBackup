@@ -6710,3 +6710,35 @@ https://cowtransfer.com/s/acc024176e4f43 点击链接查看 [ 825推限.list ] �
 https://cowtransfer.com/s/acc024176e4f43 点击链接查看 [ 825推限.list ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 2le76e 查看；
 gpt翻译还是有点问题？你咩这个工作和恋爱交杂在一起说了啥？以及是主包对普通男性无感想要闪闪发光的会家务的男人还是普通男性因为地雷女对主包无感？还有主包说的是恋爱三分钟热度以后马上换人还是分了来着(
 
+
+*****
+
+####  TiHaru  
+##### 17225#       发表于 2024-8-25 21:06
+
+日本的租房都是不带家具的，所以一直用同一个冰箱也不是不可能吧
+
+*****
+
+####  sino__unnko3  
+##### 17226#       发表于 2024-8-26 00:20
+
+ 本帖最后由 sino__unnko3 于 2024-8-26 09:23 编辑 
+
+825推限全程录音:
+https://cowtransfer.com/s/853d83aa0bd44b 点击链接查看 [ 8.25推限（聊恋爱与地雷.wav ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 gk9d61 查看；
+
+日文原版文本：
+https://f.ws28.cn/f/exigql9boe0 复制链接到浏览器打开
+
+gpt翻译还是有点问题？你咩这个工作和恋爱交杂在一起说了啥？以及是主包对普通男性无感想要闪闪发光的会家务的男人还是普通男性因为地雷女对主包无感？还有主包说的是恋爱三分钟热度以后马上换人还是分了来着(
+
+（你lol怎么快9年热度不带停的<img src="https://p.sda1.dev/19/09aa1940e42393c62cba55a1895f6cfb/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 17227#       发表于 2024-8-26 09:45
+
+以后说不准，但现在她起床能有个推限对我来说是最好的时期<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

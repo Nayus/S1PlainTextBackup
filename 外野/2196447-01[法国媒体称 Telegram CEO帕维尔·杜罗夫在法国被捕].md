@@ -971,3 +971,16 @@ Tg蛮好用的啊。
 可是这么多年了克格勃都没有抓他啊。</blockquote>
 他也没回过俄罗斯啊，何况之前克格勃真的抓过他
 
+
+*****
+
+####  灼眼艾莉亚  
+##### 90#       发表于 2024-8-26 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012183&amp;ptid=2196447" target="_blank">仟音一心 发表于 2024-8-25 22:26</a>
+
+可是这么多年了克格勃都没有抓他啊。</blockquote>
+还真抓过，跑得快而已。
+
+这人多少有点精法了，他干这行应该阿联酋呆着才对，阿联酋公民身份都有了
+

@@ -821,3 +821,22 @@ Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquot
 
 这游戏不会是内外串联好了的吧
 
+
+*****
+
+####  半江瑟瑟半江红  
+##### 82#       发表于 2024-8-26 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016630&amp;ptid=2191081" target="_blank">火星後繼者 发表于 2024-8-26 11:24</a>
+来赤点石</blockquote>
+在一堆歪瓜裂枣衬托下第一排左三和第一排右一居然挺好看的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  变老的大二  
+##### 83#       发表于 2024-8-26 15:05
+
+IGN好像鸡贼的跳过了concord和dustborn两款反人类粪作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

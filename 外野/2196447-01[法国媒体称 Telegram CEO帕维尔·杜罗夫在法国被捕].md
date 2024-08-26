@@ -1233,3 +1233,35 @@ Rumble CEO直接跑了
 笑死。。</blockquote>
 讲道理他又不是在巴黎潜行，怪人家姑娘属实是甩锅<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 108#       发表于 2024-8-26 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018437&amp;ptid=2196447" target="_blank">linhaolin1 发表于 2024-8-26 14:04</a>
+笑死。。</blockquote>
+他本来就是被通缉的，怪女人什么毛病？
+
+*****
+
+####  仟音一心  
+##### 109#       发表于 2024-8-26 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018835&amp;ptid=2196447" target="_blank">Yeelolo 发表于 2024-8-26 14:44</a>
+话说他不会某一天突然被自杀吧</blockquote>
+活着慢慢薅羊毛比较合适，当然前提是不要多嘴。
+
+
+*****
+
+####  wpcc  
+##### 110#       发表于 2024-8-26 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016217&amp;ptid=2196447" target="_blank">艾诺琳 发表于 2024-8-26 10:52</a>
+
+我很好奇，既然是俄罗斯润人，为什么不直接和西方合作在电报群里面加后门让cia看光呢？
+
+难道真信了西方民 ...</blockquote>
+电报不是透明平台吗 随便看 笑死 
+

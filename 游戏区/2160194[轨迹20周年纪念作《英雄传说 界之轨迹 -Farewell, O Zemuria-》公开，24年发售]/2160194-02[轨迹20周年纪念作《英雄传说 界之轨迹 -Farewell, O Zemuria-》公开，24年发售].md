@@ -8206,3 +8206,39 @@ md ,黎2好歹有概念图，这次直接建模图
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摆就完事了
 
+
+*****
+
+####  Kojimaru  
+##### 2947#       发表于 2024-8-26 15:40
+
+<img src="https://img.saraba1st.com/forum/202408/26/154051rl2329p512ez23f2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (248.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 15:40 上传
+
+*****
+
+####  宛若青空  
+##### 2948#       发表于 2024-8-26 15:41
+
+其实我更喜欢黑兔的7班服（
+
+<img src="https://img.saraba1st.com/forum/202408/26/154146z1v1hw7qgzqhagwq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_1154.jpeg</strong> (430.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 15:41 上传
+
+*****
+
+####  Kojimaru  
+##### 2949#       发表于 2024-8-26 15:42
+
+理性分析，界轨的宣发资源是否不如黎2
+

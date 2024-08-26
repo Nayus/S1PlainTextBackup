@@ -745,3 +745,18 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 5023#         楼主| 发表于 2024-8-26 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66020267&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-8-26 16:41</a>
+
+所有歌都有编舞的话那工作量还蛮大的
+
+这么多歌都有编舞是不是初代那个刷偶像amiibo可以看偶像表演的功能 ...</blockquote>
+编舞基本就是用全息演唱会的，导入游戏而已
+
+比较惊的是这次三组偶像合唱的新曲居然全曲都有歌词翻译了
+

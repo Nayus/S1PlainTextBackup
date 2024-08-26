@@ -857,3 +857,11 @@ cure majesty（
 
 没事反正全明星大家都划水主角来承担。就算出场了参考花妈，上个buff就完事
 
+
+*****
+
+####  pokemon最爱  
+##### 2092#       发表于 2024-8-26 16:52
+
+有ASM的抓心组魔法组ASF的花妈在前面顶着，全明星再划水也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

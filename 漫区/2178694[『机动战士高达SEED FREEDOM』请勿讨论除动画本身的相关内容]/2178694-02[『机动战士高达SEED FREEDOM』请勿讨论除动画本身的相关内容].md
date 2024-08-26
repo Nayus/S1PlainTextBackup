@@ -102,3 +102,13 @@ https://x.com/camus27315/status/1827282302680055812
 
 PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
+
+*****
+
+####  サイトヒメア  
+##### 1911#       发表于 2024-8-26 12:11
+
+非凡哥这pose怎么像左手把右手捅穿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

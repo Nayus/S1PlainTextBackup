@@ -2285,3 +2285,11 @@ syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 
 就是开在nico的收费频道，nico现在这鸟样，不如关了
 
+
+*****
+
+####  高等黑暗  
+##### 638#       发表于 2024-8-26 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">konami的游戏实在太难蚌导致King和油男开发了个荣冠对战新赛道，四年缚，笑到
+

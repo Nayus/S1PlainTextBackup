@@ -1297,3 +1297,27 @@ Rumble CEO直接跑了
 除了那几个被美国制裁的极端反美国家和地区，比如古巴和朝鲜，经济既发达又安全，还不受美国长臂管辖的地区 ...</blockquote>
 南深圳好不容易有法可依，姥爷可别被这些空洞的价值观绑架，又把南深圳打造成世界谍都了
 
+
+*****
+
+####  beeandf  
+##### 114#       发表于 2024-8-26 19:37
+
+<blockquote>引用第112楼嘤嘤嘤QAQ于2024-08-26 18:21发表的  :
+
+遗迹永存 发表于 2024-8-26 15:53除了那几个被美国制裁的极端反美国家和地区，比如古巴和......</blockquote>
+
+笑死，说到这话，让我想起以前听人介绍黎巴嫩，说是“中东小香港”，什么谁来都可以上的公交车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  maninhole  
+##### 115#       发表于 2024-8-26 19:44
+
+这人我没前排说的那么那啥，就是个理想主义过头的自由主义者
+
+他起码不双标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

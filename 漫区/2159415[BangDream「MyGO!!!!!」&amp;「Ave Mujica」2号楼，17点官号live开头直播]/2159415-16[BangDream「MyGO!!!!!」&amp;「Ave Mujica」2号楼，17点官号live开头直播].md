@@ -2445,3 +2445,19 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 不要擅自期待了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22428#       发表于 2024-8-26 19:45
+
+【【佐佐木李子】李子Vlog——中国粉丝见面会之上海的回忆（下）】 [https://www.bilibili.com/video/BV1AGWGeoEtm/](https://www.bilibili.com/video/BV1AGWGeoEtm/)
+
+<img src="https://img.saraba1st.com/forum/202408/26/194444etzmxvhplbvhrhss.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2u-boefK1mT3cSud-gg.jpg</strong> (58.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 19:44 上传
+

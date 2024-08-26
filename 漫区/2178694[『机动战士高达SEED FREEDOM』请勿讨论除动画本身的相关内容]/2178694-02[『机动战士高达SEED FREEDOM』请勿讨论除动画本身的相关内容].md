@@ -162,3 +162,25 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
 2024-8-26 18:28 上传
 
+
+*****
+
+####  月夜凝雪  
+##### 1917#       发表于 2024-8-26 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016603&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-8-26 11:22</a>
+
+修正了画面？
+
+年底的BD应该是这个修正版本吧</blockquote>
+
+看这第二条甚至有改剧情的
+
+<img src="https://img.saraba1st.com/forum/202408/26/194442c4h6hjr2ctry2bj0.png" referrerpolicy="no-referrer">
+
+<strong>517D26A98DFD20BBA142541C1304DF8A.png</strong> (212.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 19:44 上传
+

@@ -1295,3 +1295,29 @@ mod文件夹里的游戏id文件夹下面新建个romfs文件夹放进去就行
 
 steam版跳过模式是有的，汉化我三线全通没见到消失，但有一句漏翻，闪退和卡死有过几次。
 
+
+*****
+
+####  M_K  
+##### 133#       发表于 2024-8-26 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66021267&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-26 18:14</a>
+
+还有这事情
+
+另外没有跳过模式的问题还是没解决吗</blockquote>
+我没买游戏具体有什么问题并不清楚，我说的是我看到别人发帖反馈的
+
+
+*****
+
+####  M_K  
+##### 134#       发表于 2024-8-26 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66021267&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-26 18:14</a>
+
+还有这事情
+
+另外没有跳过模式的问题还是没解决吗</blockquote>
+问题实在这个[贴子](https://bbs.kfpromax.com/read.php?tid=1037945&amp;sf=393)上看到的
+

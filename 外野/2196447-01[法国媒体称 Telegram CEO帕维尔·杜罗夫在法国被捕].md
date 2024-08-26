@@ -1273,3 +1273,27 @@ Rumble CEO直接跑了
 
 除了那几个被美国制裁的极端反美国家和地区，比如古巴和朝鲜，经济既发达又安全，还不受美国长臂管辖的地区也就剩个hk了吧，阿联酋和新加坡压力太大应该还是会交出去吧，在hk东大好面子，基本上不会怎么样，安保做好就行，不知道什么时候世界上那帮有钱人能反应过来。
 
+
+*****
+
+####  kyokofsky  
+##### 112#       发表于 2024-8-26 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016094&amp;ptid=2196447" target="_blank">Burabura 发表于 2024-8-26 10:42</a>
+现在tg不就盒小鬼 卖片哥用吗
+
+没人拿他当聊天工具（神神除外</blockquote>
+还是有的，进了几个千人群氛围还挺不错的，主要是管理得勤快而且严格。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+
+
+*****
+
+####  嘤嘤嘤QAQ  
+##### 113#       发表于 2024-8-26 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019711&amp;ptid=2196447" target="_blank">遗迹永存 发表于 2024-8-26 15:53</a>
+除了那几个被美国制裁的极端反美国家和地区，比如古巴和朝鲜，经济既发达又安全，还不受美国长臂管辖的地区 ...</blockquote>
+南深圳好不容易有法可依，姥爷可别被这些空洞的价值观绑架，又把南深圳打造成世界谍都了
+

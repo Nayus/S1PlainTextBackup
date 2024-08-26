@@ -1274,3 +1274,24 @@ mod文件夹里的游戏id文件夹下面新建个romfs文件夹放进去就行
 —— 来自 OPPO PCCM00, Android 10上的 S1Next-鹅版 v3 ...</blockquote>
 老pc版吧还有台钳，这个版本有影响游玩的bug而且后面章节汉化还会消失
 
+
+*****
+
+####  760194962  
+##### 131#       发表于 2024-8-26 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65999598&amp;ptid=2170218" target="_blank">M_K 发表于 2024-8-24 12:15</a>
+
+老pc版吧还有台钳，这个版本有影响游玩的bug而且后面章节汉化还会消失</blockquote>
+还有这事情
+
+另外没有跳过模式的问题还是没解决吗
+
+
+*****
+
+####  Booorunestud  
+##### 132#       发表于 2024-8-26 18:24
+
+steam版跳过模式是有的，汉化我三线全通没见到消失，但有一句漏翻，闪退和卡死有过几次。
+

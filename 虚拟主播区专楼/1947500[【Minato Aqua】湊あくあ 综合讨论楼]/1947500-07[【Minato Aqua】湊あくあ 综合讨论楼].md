@@ -50,3 +50,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">I love you so much
 
+
+*****
+
+####  lightsuger  
+##### 9820#       发表于 2024-8-26 12:27
+
+<img src="https://img.saraba1st.com/forum/202408/26/122705uqz2j85e8l2zp2xj.jpg" referrerpolicy="no-referrer">
+
+<strong>GVpcwD1bgAAwMmV.jpg</strong> (157.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 12:27 上传
+
+这下在SAO里永生了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

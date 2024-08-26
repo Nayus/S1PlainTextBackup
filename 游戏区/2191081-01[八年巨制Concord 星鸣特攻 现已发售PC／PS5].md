@@ -798,3 +798,16 @@ Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquot
 
 "但事实证明它是 2024 年最令人愉快的多人游戏体验之一”
 
+
+*****
+
+####  Sue  
+##### 80#       发表于 2024-8-26 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016630&amp;ptid=2191081" target="_blank">火星後繼者 发表于 2024-8-26 11:24</a>
+来赤点石</blockquote>
+我觉得它没全错
+至少它确实是今年最令人愉快的乐子之一
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

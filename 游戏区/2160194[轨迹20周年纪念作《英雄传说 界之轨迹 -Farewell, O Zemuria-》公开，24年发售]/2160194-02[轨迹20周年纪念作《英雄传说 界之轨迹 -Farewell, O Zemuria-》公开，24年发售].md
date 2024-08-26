@@ -8002,3 +8002,21 @@ e0dd1b7fca80653806636a32d1dda144ac348252.jpg
 
 你法为什么把店铺版的ps4版都下架了，4版要退出历史舞台了吗
 
+
+*****
+
+####  无动于衷  
+##### 2924#       发表于 2024-8-26 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66017417&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-26 12:20</a>
+
+静奈朱雀 ，阿龙白虎，剑仙黑龙，四神兽还差玄武</blockquote>
+说吧，是老金还是69岁老同志
+
+*****
+
+####  ravend233  
+##### 2925#       发表于 2024-8-26 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能4版预售太差了
+

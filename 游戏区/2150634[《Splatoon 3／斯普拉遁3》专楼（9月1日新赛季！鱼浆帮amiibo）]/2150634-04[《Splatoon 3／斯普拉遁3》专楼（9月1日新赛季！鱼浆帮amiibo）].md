@@ -726,3 +726,22 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 再次证明最适合冲分的规则还得是区域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5022#       发表于 2024-8-26 16:41
+
+<img src="https://img.saraba1st.com/forum/202408/26/164011gb4x2233lqn4srbq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>img_0086.jpeg</strong> (342.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 16:40 上传
+
+所有歌都有编舞的话那工作量还蛮大的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这么多歌都有编舞是不是初代那个刷偶像amiibo可以看偶像表演的功能要回归了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

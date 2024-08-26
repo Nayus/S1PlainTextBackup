@@ -756,3 +756,45 @@ Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquot
 
 风怒1111111
 
+
+*****
+
+####  火星後繼者  
+##### 79#       发表于 2024-8-26 11:24
+
+来赤点石
+
+<img src="https://img.saraba1st.com/forum/202408/26/112332ohym26soiw2pmzaa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/112344ijtt8s4g9dgno8n9.png" referrerpolicy="no-referrer">
+
+<strong>82d700ef789172217a98dcac2b71614.png</strong> (90.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/112353lfdom44uey3po2e2.png" referrerpolicy="no-referrer">
+
+<strong>a0e5c3e90ce99a4775b4f7ae4bfad00.png</strong> (98.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/112404itchlxqcgjg4xt9h.png" referrerpolicy="no-referrer">
+
+<strong>be07d28f10a4d1b20f0b6a19c1a39de.png</strong> (227.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 11:24 上传
+
+"但事实证明它是 2024 年最令人愉快的多人游戏体验之一”
+

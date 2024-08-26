@@ -757,3 +757,16 @@ cure majesty（
 
 去年干部都是肉猪也没见她们手下留情过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2084#       发表于 2024-8-26 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016105&amp;ptid=2162354" target="_blank">雨宮優子 发表于 2024-8-26 10:42</a>
+
+去年干部都是肉猪也没见她们手下留情过</blockquote>
+明确的敌人和被卷入的无辜动物是有区别的（雾）
+
+至于为啥不跟干部打，那毕竟汪Q组心理有些理亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

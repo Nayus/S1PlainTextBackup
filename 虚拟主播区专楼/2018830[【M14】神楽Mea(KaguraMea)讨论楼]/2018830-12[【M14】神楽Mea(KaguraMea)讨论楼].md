@@ -6784,3 +6784,35 @@ GV02eYdawAAs3sk.jpg
 你咩上电视了</blockquote>
 草 ，怎么没关注（x
 
+
+*****
+
+####  秋游刃  
+##### 17231#       发表于 2024-8-26 11:43
+
+ 本帖最后由 秋游刃 于 2024-8-26 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016610&amp;ptid=2018830" target="_blank">onlv星骸 发表于 2024-8-26 11:23</a>
+
+mea队水平如何</blockquote>
+来自前职业选手，たかやスペ教练的肯定“mea桑的波比真的非常强力！”
+
+*****
+
+####  TiHaru  
+##### 17232#       发表于 2024-8-26 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016610&amp;ptid=2018830" target="_blank">onlv星骸 发表于 2024-8-26 11:23</a>
+mea队水平如何</blockquote>
+开一车瓦能带主播上超凡的水平
+
+撸的话最高段位是打野的白银，中下都是今年才开始玩的黑铁
+
+*****
+
+####  TiHaru  
+##### 17233#       发表于 2024-8-26 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66007652&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-8-25 12:56</a>
+大概率在聊雷了，从恋爱观(应该不是在直播工作开始后的恋爱或者约会吧？还说什么约会一次就不会再交往了 ...</blockquote>
+又是经典jumbo巧克力
+

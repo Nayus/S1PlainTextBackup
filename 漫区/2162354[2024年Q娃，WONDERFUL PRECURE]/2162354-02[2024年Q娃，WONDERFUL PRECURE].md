@@ -831,3 +831,11 @@ cure majesty（
 
 以及狗到现在只字未提过前主人的事，猫可以说是野猫，你狗可是剧情明说过弃养的，九成九最后要在这做文章了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ピちゃン  
+##### 2089#       发表于 2024-8-26 14:18
+
+甜点是攻击方式不是近战物理，可不是不打架。用奶油鞭子，打起来不还是狠的。
+

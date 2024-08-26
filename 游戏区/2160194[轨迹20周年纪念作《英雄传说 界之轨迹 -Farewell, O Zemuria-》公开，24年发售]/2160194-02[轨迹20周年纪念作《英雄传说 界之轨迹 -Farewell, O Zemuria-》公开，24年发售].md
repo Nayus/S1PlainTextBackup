@@ -8242,3 +8242,11 @@ md ,黎2好歹有概念图，这次直接建模图
 
 理性分析，界轨的宣发资源是否不如黎2
 
+
+*****
+
+####  Squall25  
+##### 2950#       发表于 2024-8-26 15:46
+
+黎2也就除了开头因为仓促毫无宣发，后期宣发甚至比黎1还好点，界轨也配碰瓷？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

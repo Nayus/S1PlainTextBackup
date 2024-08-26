@@ -840,3 +840,32 @@ Bungie现在这鬼样，别到死线时，成品还运行不起来。</blockquot
 
 IGN好像鸡贼的跳过了concord和dustborn两款反人类粪作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  真实之影  
+##### 84#       发表于 2024-8-26 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019076&amp;ptid=2191081" target="_blank">变老的大二 发表于 2024-8-26 15:05</a>
+
+IGN好像鸡贼的跳过了concord和dustborn两款反人类粪作</blockquote>
+[https://www.ign.com/articles/concord-review](https://www.ign.com/articles/concord-review)
+
+Concord Review In Progress - IGN
+
+憋了3天也没写完
+
+*****
+
+####  变老的大二  
+##### 85#       发表于 2024-8-26 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019608&amp;ptid=2191081" target="_blank">真实之影 发表于 2024-8-26 15:47</a>
+
+https://www.ign.com/articles/concord-review
+
+Concord Review In Progress - IGN
+
+憋了3天也没写完 ...</blockquote>
+应该和奇迹上一样要成为绝唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

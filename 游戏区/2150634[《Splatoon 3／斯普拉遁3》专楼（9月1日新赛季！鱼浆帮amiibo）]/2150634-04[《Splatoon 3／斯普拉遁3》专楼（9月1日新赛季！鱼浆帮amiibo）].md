@@ -760,3 +760,14 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 比较惊的是这次三组偶像合唱的新曲居然全曲都有歌词翻译了
 
+
+*****
+
+####  carroy  
+##### 5024#       发表于 2024-8-27 03:26
+
+赛季初重制到b-拿着贴牌弓打回x
+定分定完1600
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两年前还在吐槽怎么会有1k6的x
+没想到两年过去1k6的x竟是我自己！
+

@@ -1054,3 +1054,85 @@ Rumble CEO直接跑了
 
 他以前在俄罗斯也这么拒绝过俄罗斯zf，然后跑路了，当时俄罗斯zf没有下这么狠的手......
 
+
+*****
+
+####  有毒的蘑菇  
+##### 98#       发表于 2024-8-26 13:35
+
+ 本帖最后由 有毒的蘑菇 于 2024-8-26 13:37 编辑 
+
+  直接上采访报道吧。
+
+ 2024年4月，塔克·卡尔森访谈电报Telegram创始人帕维尔·杜罗夫   
+
+[B站视频链接] BV14i42127ZX/
+
+[文字版]https://new.qq.com/rain/a/20240825A06IO700
+
+访谈长达58分钟，相当多的时间<strong>他是在抱怨美国</strong>。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+  所谓在“俄罗斯抓他”，杜罗夫自己都说是当时警察只是 “尝试进门”(try to break in），但最后也没进门去。  如果警察或者KGB是真心要抓他，还能连门都进不了？
+
+<img src="https://img.saraba1st.com/forum/202408/26/131951hs1uq1q1f811puu4.jpg" referrerpolicy="no-referrer">
+
+<strong>2024082513.JPG</strong> (51.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:19 上传
+
+而且根据其他报道的说法，警宫上门是在2013年（因为涉及交通事件），一年后他才离开俄罗斯。  如果警察或者KGB是真心要抓他，还能放任他一年后自由地润走？
+
+十几年前年，正是俄罗斯国内亲西方自由派势力旺盛的时候， 一部分俄罗斯人还<strong>对西方抱着不切实际的幻想</strong>。 2008至2011年前后是梅德韦杰夫执政期间， 像杜罗夫这样的人比比皆是。 这大概就是为什么不抓杜罗夫的原因吧。
+
+视频中杜罗夫也提到他为什么不愿意到中国、俄罗斯，因为他觉得价值观不合。   
+
+后面的事情就不用重复了，西方并没有因为俄罗斯的示好就放过俄罗斯。美国主导的北约东扩也从未停止。   这次梅德韦杰夫的感概由来：如何从亲西方到幻灭。 
+
+然后重点来了，整个视频杜罗夫花了大量时间抱怨美国是如何不安全，美国当局是压迫他，强迫他合作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ，
+
+比如<strong>美国是他在街上遭到袭击的唯一一个国家</strong>。
+
+每次去机场都有人守着他盘问，<strong>FBI在他吃早餐时直接闯入他家</strong>。
+
+1月6日<strong>国会山事件后民主党议员</strong>要求杜罗夫交出抗议者数据（<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202408/26/132530f993xo9o9k2394of.jpg" referrerpolicy="no-referrer">
+
+<strong>2024082517.JPG</strong> (49.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:25 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/131951ueeqqp6ihs4h4f9z.jpg" referrerpolicy="no-referrer">
+
+<strong>2024082514.JPG</strong> (46.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:19 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/131951no8mmqmon45nrb5q.jpg" referrerpolicy="no-referrer">
+
+<strong>2024082515.JPG</strong> (47.83 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:19 上传
+
+（补充一下除了视频中提到的，哈马斯等抵抗之弧也在广泛使用TG，而以色列这次在国际舆论上被彻底掀去狗皮，也都看到了。这就又触犯了被以色列寄生的美国的利益）
+
+ 杜罗夫的前新闻秘书洛布什金认为，法国这次抓捕杜罗夫，背后是美国的指示。 
+
+ 所以说，杜罗夫虽然投靠了西方，但西方认为他的投靠还不够绝对。所以必须逮捕。   
+
+结论：杜罗夫 
+
+在俄国时，是一拍好散。
+
+在美国时，是处处为难。
+
+在法国时，是一见被捕。
+

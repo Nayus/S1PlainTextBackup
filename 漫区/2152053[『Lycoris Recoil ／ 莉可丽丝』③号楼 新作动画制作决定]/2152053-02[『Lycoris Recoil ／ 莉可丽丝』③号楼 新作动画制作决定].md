@@ -77,3 +77,15 @@
 
 2024-8-25 09:38 上传
 
+
+*****
+
+####  Piano-Forest  
+##### 1981#         楼主| 发表于 2024-8-26 13:37
+
+[https://x.com/satoutubo6/status/1827908189217837082](https://x.com/satoutubo6/status/1827908189217837082)
+
+完全に気づくのが遅れてしまったのですが、こちら原画描かせていただきました！何卒よろしくお願いいたしました…⚽️
+<img src="https://p.sda1.dev/19/f04ebfef44aab8eb0f584dfd9c83a48d/20240826_133332.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/cee50853b7098007fa5308914b45d749/20240826_133700.jpg" referrerpolicy="no-referrer">
+

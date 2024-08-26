@@ -793,3 +793,11 @@ cure majesty（
 虽然跨作品了，但哪怕是以感化著称的高斯都时不时会遇 ...</blockquote>
 高斯只是不照着让对面爆发四散去下手，实际上还是动手了，你也不能说打太极就不算动作戏了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2087#       发表于 2024-8-26 13:25
+
+积极的角度来看是为了跟动物做好朋友，消极的角度来看就是人类对动物负有原罪，为了人宠这碟醋staff大概不会重拾打斗了
+

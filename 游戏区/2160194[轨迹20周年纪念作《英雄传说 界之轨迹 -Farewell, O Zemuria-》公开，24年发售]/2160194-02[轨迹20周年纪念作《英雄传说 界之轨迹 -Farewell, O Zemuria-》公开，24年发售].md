@@ -7750,3 +7750,26 @@ ys不能拖太久，闪轨还剩个闪3,4，闪轨结束后肯定是立即接伊
 
 感明确定下来就能过年了
 
+
+*****
+
+####  ravend233  
+##### 2904#       发表于 2024-8-26 10:07
+
+ 本帖最后由 ravend233 于 2024-8-26 10:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法社在你轨就是什么有争议性和激烈冲突的剧情都不敢写，献祭角色更是敢都不敢写，突出一个闹半天最后大团圆包饺子，大伙回归日常该干嘛干嘛，感情该吊着就吊着，生怕得罪哪一个玩家群体，就这点出息了
+
+我能想到的你法社能整的活最多也就是界1把人挂天上了，界2过半捞回来，复刻闪3闪4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  塔奇克马  
+##### 2905#       发表于 2024-8-26 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66015644&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-26 10:07</a>
+你法社在你轨就是什么有争议性和激烈冲突的剧情都不敢写，献祭角色更是敢都不敢写，突出一个闹半天最后大团 ...</blockquote>
+做成伊苏那样每部单元剧也是不敢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">这系列也就这样了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

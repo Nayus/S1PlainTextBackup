@@ -1334,3 +1334,17 @@ steam版跳过模式是有的，汉化我三线全通没见到消失，但有一
 
 Pc版跳过对应哪个键？
 
+
+*****
+
+####  760194962  
+##### 136#       发表于 2024-8-26 21:46
+
+<img src="https://img.saraba1st.com/forum/202408/26/214635lw3loryunvupudox.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 21:46 上传
+

@@ -2461,3 +2461,18 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 2024-8-26 19:44 上传
 
+
+*****
+
+####  rikaren  
+##### 22429#       发表于 2024-8-26 21:03
+
+只剩27，28，29三天了，wsd在干什么
+
+*****
+
+####  星天观测  
+##### 22430#       发表于 2024-8-26 21:07
+
+wsd决定把earth的mv留到下个月放，这样你们就不会觉得9月东西很少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

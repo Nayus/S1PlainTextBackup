@@ -1332,3 +1332,14 @@ Rumble CEO直接跑了
 不过看着比张一鸣身段还是要硬点</blockquote>
 张一鸣常驻新加坡
 
+
+*****
+
+####  艾诺琳  
+##### 117#       发表于 2024-8-26 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019573&amp;ptid=2196447" target="_blank">wpcc 发表于 2024-8-26 15:44</a>
+
+电报不是透明平台吗 随便看 笑死</blockquote>
+那为什么西方还要求他提供反犹账号呢？
+

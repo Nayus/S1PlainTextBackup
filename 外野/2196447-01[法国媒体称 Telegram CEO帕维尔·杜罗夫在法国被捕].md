@@ -1196,3 +1196,18 @@ Rumble CEO直接跑了
 
 不过看着比张一鸣身段还是要硬点
 
+
+*****
+
+####  Yeelolo  
+##### 104#       发表于 2024-8-26 14:44
+
+话说他不会某一天突然被自杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Paradox7  
+##### 105#       发表于 2024-8-26 14:47
+
+求仁得仁了
+

@@ -8131,3 +8131,34 @@ md ,黎2好歹有概念图，这次直接建模图
 皮肤还行，话说上次法老控官店店特里的师姐、黎恩小人那服装实际游戏里会有么 ...</blockquote>
 说了是回廊虚拟形象
 
+
+*****
+
+####  一步成诗  
+##### 2938#       发表于 2024-8-26 14:48
+
+本来店特摆了还能指望一下电子豪华版dlc结果直接没豪华版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2939#       发表于 2024-8-26 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">DLC别想了，直接黎1，2老DLC大放送
+
+黎1的几套起码比后面的接头霸王好些不是
+
+*****
+
+####  一步成诗  
+##### 2940#       发表于 2024-8-26 14:53
+
+黎1最用心不用说了吧，都以为黎2全员赛车服换色已经是下限的时候法老控总能给大家带来惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 2941#       发表于 2024-8-26 14:53
+
+黑兔用闪四的，师姐用毛丽霞的，预购也是黎恩军官套，感觉这次卖新皮肤的概率无限接近0<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
+

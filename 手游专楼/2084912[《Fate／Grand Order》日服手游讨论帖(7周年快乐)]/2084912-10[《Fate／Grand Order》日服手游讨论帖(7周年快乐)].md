@@ -11437,3 +11437,24 @@ fgo的活动还可以说是处于发生过和没发生过的薛定谔状态。�
 
 前2年还不是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  希望之花  
+##### 14388#       发表于 2024-8-26 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">商店里bb那句日式英语听一次笑一次
+
+
+*****
+
+####  alucardcz  
+##### 14389#       发表于 2024-8-26 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66014139&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-26 03:48</a>
+
+哎是真的觉得自己人老了记忆力也衰退了
+
+抽到任何新角色我都是习惯带去打几场看看3种色卡所有攻击模组是什 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹之拐弯抹角豹
+

@@ -927,3 +927,17 @@ Concord Review In Progress - IGN
 
 迟点应该能跟龙腾做一桌吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  朔方原的星  
+##### 92#       发表于 2024-8-27 03:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019608&amp;ptid=2191081" target="_blank">真实之影 发表于 2024-8-26 15:47</a>
+https://www.ign.com/articles/concord-review
+
+Concord Review In Progress - IGN
+
+憋了3天也没写完 ...</blockquote>
+九分文都写好了，一看太爆死了发不出来了
+

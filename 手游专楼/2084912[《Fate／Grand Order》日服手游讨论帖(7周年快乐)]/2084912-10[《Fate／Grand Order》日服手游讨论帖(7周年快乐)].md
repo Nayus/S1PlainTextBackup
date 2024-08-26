@@ -11466,3 +11466,14 @@ fgo的活动还可以说是处于发生过和没发生过的薛定谔状态。�
 
 NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14391#       发表于 2024-8-27 03:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66021907&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-26 19:30</a>
+
+豹之拐弯抹角豹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非洲人抽了兽蕾后又没抽过新卡
+

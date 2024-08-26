@@ -49,3 +49,31 @@ https://x.com/camus27315/status/1827282302680055812
 <img src="https://p.sda1.dev/19/ec4e53cda77937471d4b0c499fb5513c/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/a79fafa205ab49d5137627d85f9b4348/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 1908#         楼主| 发表于 2024-8-26 11:07
+
+◤￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣◥
+
+『機動戦士ガンダム #SEEDFREEDOM』
+
+　　　　  特別版上映決定✨
+
+◣＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿◢
+
+第1弾🌱9/20(金)-10/3(木)
+
+第2弾🌱11/1(金)-11/14(木)
+
+500カット以上！本編映像アップデート
+
+エピローグカット付 特別版上映✨
+
+特別版上映告知PV：[https://youtu.be/qJBiJXw-XYI](https://youtu.be/qJBiJXw-XYI)
+<img src="https://p.sda1.dev/19/5e422e4a45408932ac2206c0c9895f52/20240826_110352.jpg" referrerpolicy="no-referrer">
+
+入場者プレゼント第1弾の「オリジナルミニクリアファイル」
+<img src="https://p.sda1.dev/19/7ad0b4a73a63c76f7beb170392895be2/20240826_110353.jpg" referrerpolicy="no-referrer">
+

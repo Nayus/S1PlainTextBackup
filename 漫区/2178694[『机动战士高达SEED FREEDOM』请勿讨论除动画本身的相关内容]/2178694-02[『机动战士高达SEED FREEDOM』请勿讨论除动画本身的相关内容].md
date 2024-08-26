@@ -138,3 +138,11 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
 看完正片兴趣不大了
 
+
+*****
+
+####  布拉德莱恩  
+##### 1915#       发表于 2024-8-26 18:10
+
+双刀pose那一幕还是崩得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -127,3 +127,23 @@
 
 大放送啊，就是鱼在国内都没to签呢
 
+
+*****
+
+####  仟音一心  
+##### 20959#       发表于 2024-8-26 22:51
+
+<img src="https://p.sda1.dev/19/ffd6fbe62516d6719dfced5b5d9c975d/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 20960#       发表于 2024-8-26 22:54
+
+CelticWhite老师在纽约见到了catchu
+<img src="https://p.sda1.dev/19/8b49aabdad1fe8a0cb5fbe1a85cfad97/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/4d8661197513f4fad02f667345752f5f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/bc7e3afa05450f883b13b1f059a0ec1e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c0f60bccda9394a7e47674d009707a94/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/9473d6edc407367b65dc75783fbd357a/image.jpg" referrerpolicy="no-referrer">
+

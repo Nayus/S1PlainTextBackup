@@ -887,3 +887,27 @@ Concord Review In Progress - IGN
 
 哦，LGBTQ可能根本不玩游戏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ads147147  
+##### 88#       发表于 2024-8-26 17:04
+
+ign给这坨多少，不会是8吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  wthall  
+##### 89#       发表于 2024-8-26 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019608&amp;ptid=2191081" target="_blank">真实之影 发表于 2024-8-26 15:47</a>
+
+https://www.ign.com/articles/concord-review
+
+Concord Review In Progress - IGN
+
+憋了3天也没写完 ...</blockquote>
+然后IGN宣布，因为同期玩家过少，编辑没法匹配对局，评测出不来~
+

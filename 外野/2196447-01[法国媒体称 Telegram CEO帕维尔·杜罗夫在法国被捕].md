@@ -1019,3 +1019,38 @@ Rumble CEO直接跑了
 
 难道真信了西方民主自由那一套叙事？
 
+
+*****
+
+####  eir45  
+##### 95#       发表于 2024-8-26 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66015291&amp;ptid=2196447" target="_blank">gnihton314 发表于 2024-8-26 09:39</a>
+
+他也没回过俄罗斯啊，何况之前克格勃真的抓过他</blockquote>
+額，麻烦给下信源谢谢，我在必应没搜到
+
+*****
+
+####  闪电旋风劈  
+##### 96#       发表于 2024-8-26 11:00
+
+姐夫那句话真是真情实感
+
+一个好端端的西方自由派被逼得整天装皇鹅，姐夫也委屈啊
+
+
+*****
+
+####  fsdragontree  
+##### 97#       发表于 2024-8-26 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016217&amp;ptid=2196447" target="_blank">艾诺琳 发表于 2024-8-26 10:52</a>
+
+我很好奇，既然是俄罗斯润人，为什么不直接和西方合作在电报群里面加后门让cia看光呢？
+
+难道真信了西方民 ...</blockquote>
+他真的信了，拒绝了开放【反犹主义账号】数据给美国zf，然后美国人和法国沟通，直接抓了........
+
+他以前在俄罗斯也这么拒绝过俄罗斯zf，然后跑路了，当时俄罗斯zf没有下这么狠的手......
+

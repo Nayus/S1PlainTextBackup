@@ -8162,3 +8162,32 @@ md ,黎2好歹有概念图，这次直接建模图
 
 黑兔用闪四的，师姐用毛丽霞的，预购也是黎恩军官套，感觉这次卖新皮肤的概率无限接近0<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2942#       发表于 2024-8-26 15:20
+
+<blockquote>一步成诗 发表于 2024-8-26 14:48
+本来店特摆了还能指望一下电子豪华版dlc结果直接没豪华版</blockquote>
+
+黎1也没豪华版，当然黎1是直接送的dlc
+
+
+*****
+
+####  一步成诗  
+##### 2943#       发表于 2024-8-26 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019275&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-26 15:20</a>
+
+黎1也没豪华版，当然黎1是直接送的dlc</blockquote>
+不仅送了泳装后面还有季票
+
+*****
+
+####  卢迪克  
+##### 2944#       发表于 2024-8-26 15:24
+
+今年惯例的立川和tgs好像都还没宣
+

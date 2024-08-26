@@ -8278,3 +8278,58 @@ md ,黎2好歹有概念图，这次直接建模图
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ravend233  
+##### 2954#       发表于 2024-8-26 16:06
+
+法：这周蠕动过了，下个月再动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 2955#       发表于 2024-8-26 16:10
+
+指望你法不如看推上玩家自发的发售倒数图<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 2956#       发表于 2024-8-26 16:11
+
+黑兔分校制服不好吗，真男人想看的要素都齐了
+旅行服我总是幻视成舰c的俾斯麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 2957#       发表于 2024-8-26 16:11
+
+这玩意是啥，原来不是纯换色
+
+<img src="https://img.saraba1st.com/forum/202408/26/161143t8y9k3e8jz3uue88.png" referrerpolicy="no-referrer">
+
+<strong>GV5DSOaWsAAZNLO.png</strong> (6.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 16:11 上传
+
+*****
+
+####  Aeons  
+##### 2958#       发表于 2024-8-26 16:11
+
+说起来这个背景图在的塔出现的也太多了，拉碧丝大少凯文像是住在里面了
+
+*****
+
+####  Aeons  
+##### 2959#       发表于 2024-8-26 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66019921&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-26 16:11</a>
+这玩意是啥，原来不是纯换色</blockquote>
+穿孔绳子
+

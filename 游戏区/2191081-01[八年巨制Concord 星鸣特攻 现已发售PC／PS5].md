@@ -949,3 +949,11 @@ Concord Review In Progress - IGN
 
 这游戏我最崩不住的一点是访谈的时候是两个一眼老白男坐镇……就不能找几个对应群体的来接受采访么
 
+
+*****
+
+####  jpiajwopdm  
+##### 94#       发表于 2024-8-27 06:54
+
+真是拉了坨大的。砍tlou2ol买这个逼工作室，真有你的啊索尼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

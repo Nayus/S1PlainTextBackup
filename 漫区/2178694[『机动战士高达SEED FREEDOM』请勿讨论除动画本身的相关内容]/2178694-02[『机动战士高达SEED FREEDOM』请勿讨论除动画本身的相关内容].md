@@ -217,3 +217,37 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 看这第二条甚至有改剧情的</blockquote>
 这个应该指的是拉克丝的秘书，本来有很多人推测她死在里面了，现在明确逃出来
 
+
+*****
+
+####  kisstv22  
+##### 1922#       发表于 2024-8-26 22:47
+
+只能改变路人角色的结局吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 1923#       发表于 2024-8-26 22:50
+
+难道是三连星的男生们？
+
+*****
+
+####  死难者23er  
+##### 1924#       发表于 2024-8-26 23:22
+
+<blockquote>月夜凝雪 发表于 2024-8-26 19:45
+看这第二条甚至有改剧情的</blockquote>
+这个应该指的是拉克丝的秘书，本来有很多人推测她死在里面了，现在明确逃出来
+
+*****
+
+####  gundammarkⅡ  
+##### 1925#       发表于 2024-8-27 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66023714&amp;ptid=2178694" target="_blank">七七見奈波 发表于 2024-8-26 22:39</a>
+还带改部分角色结局的？？？反正大厚嘴唇子是不会改的</blockquote>
+不够厚嘴唇的画面还得修正成厚厚的嘴唇呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/b17261fdb4cf5b5d1778905948fba16f/image.jpg" referrerpolicy="no-referrer">
+

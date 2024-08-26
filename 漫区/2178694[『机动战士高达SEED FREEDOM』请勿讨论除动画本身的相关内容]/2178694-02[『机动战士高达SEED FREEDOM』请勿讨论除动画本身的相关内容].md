@@ -146,3 +146,19 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
 双刀pose那一幕还是崩得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  renkan119  
+##### 1916#       发表于 2024-8-26 18:28
+
+把原来正常的尾翼给画成了翅膀 这是修正了个什么啊
+
+<img src="https://img.saraba1st.com/forum/202408/26/182800t356mzn2m153knb5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8936.jpeg</strong> (1.03 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 18:28 上传
+

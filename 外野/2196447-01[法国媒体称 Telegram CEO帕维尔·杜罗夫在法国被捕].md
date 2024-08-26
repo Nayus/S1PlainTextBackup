@@ -1356,3 +1356,24 @@ Rumble CEO直接跑了
 没人拿他当聊天工具（神神除外</blockquote>
 感觉用起来比QQ群强啊。
 
+
+*****
+
+####  orecheng  
+##### 119#       发表于 2024-8-26 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66021336&amp;ptid=2196447" target="_blank">嘤嘤嘤QAQ 发表于 2024-8-26 18:21</a>
+
+南深圳好不容易有法可依，姥爷可别被这些空洞的价值观绑架，又把南深圳打造成世界谍都了 ...</blockquote>
+依啥法？Pax Americana的法吗？HK已经在2019年跟Pax Americana彻底闹掰了，废除了所有引渡协议。只要不犯中国的法，来者皆是客，PLA有义务保护HK的和平安稳和各位的人生安全。随大家怎么洗Pax Americana的钱，在Pax Americana搞黑产，这里是HK，不犯法。
+
+*****
+
+####  斩岛之刃  
+##### 120#       发表于 2024-8-26 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66022332&amp;ptid=2196447" target="_blank">wqm2008 发表于 2024-8-26 20:23</a>
+
+张一鸣常驻新加坡</blockquote>
+这种人怎么能放出去这么久
+

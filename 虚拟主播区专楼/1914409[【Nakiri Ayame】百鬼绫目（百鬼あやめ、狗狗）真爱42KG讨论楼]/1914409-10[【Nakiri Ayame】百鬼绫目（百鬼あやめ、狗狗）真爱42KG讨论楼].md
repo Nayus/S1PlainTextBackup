@@ -90,3 +90,15 @@ bsyl，绫总第二把开局游龙了<img src="https://static.saraba1st.com/imag
 
 绫总你要做什么我不是来看这个的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  因为你不会  
+##### 14784#       发表于 2024-8-26 22:14
+
+ 本帖最后由 因为你不会 于 2024-8-26 22:17 编辑 
+
+四把全胜、最后一枪、完美谢幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卍组包了四个mvp，绫总两个亏一个傻紫一个
+

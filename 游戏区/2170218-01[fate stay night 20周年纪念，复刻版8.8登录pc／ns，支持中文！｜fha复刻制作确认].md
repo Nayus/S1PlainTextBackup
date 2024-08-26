@@ -1348,3 +1348,16 @@ Pc版跳过对应哪个键？
 
 2024-8-26 21:46 上传
 
+
+*****
+
+####  Booorunestud  
+##### 137#       发表于 2024-8-27 02:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66022904&amp;ptid=2170218" target="_blank">760194962 发表于 2024-8-26 21:32</a>
+
+不会是switch版的问题把，switch似乎只有rt按住跳过⋯⋯⋯
+
+Pc版跳过对应哪个键？ ...</blockquote>
+跳过功能只能应用于已读章节，得先全rt一遍才行
+

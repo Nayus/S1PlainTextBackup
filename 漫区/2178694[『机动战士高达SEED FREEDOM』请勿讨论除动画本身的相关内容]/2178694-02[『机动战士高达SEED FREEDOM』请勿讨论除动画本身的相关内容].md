@@ -112,3 +112,13 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
 —— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  oi99o  
+##### 1912#       发表于 2024-8-26 12:42
+
+两次上映还有不同的片尾彩蛋，太会骗钱了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -1343,3 +1343,16 @@ Rumble CEO直接跑了
 电报不是透明平台吗 随便看 笑死</blockquote>
 那为什么西方还要求他提供反犹账号呢？
 
+
+*****
+
+####  clarkgao  
+##### 118#       发表于 2024-8-26 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016094&amp;ptid=2196447" target="_blank">Burabura 发表于 2024-8-26 10:42</a>
+
+现在tg不就盒小鬼 卖片哥用吗
+
+没人拿他当聊天工具（神神除外</blockquote>
+感觉用起来比QQ群强啊。
+

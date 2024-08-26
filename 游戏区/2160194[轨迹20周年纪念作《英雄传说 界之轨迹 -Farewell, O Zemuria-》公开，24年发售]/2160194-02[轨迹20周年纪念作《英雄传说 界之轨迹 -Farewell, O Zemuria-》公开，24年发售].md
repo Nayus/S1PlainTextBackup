@@ -7860,3 +7860,29 @@ TVゲーム新作予約ランキング（2024/8/25 閉店時点）
 上次fami通是7.25，这周还没有的话就是空了一整个8月没上杂志</blockquote>
 崩铁也是轨，有（不是
 
+
+*****
+
+####  卢迪克  
+##### 2912#       发表于 2024-8-26 11:59
+
+ 本帖最后由 卢迪克 于 2024-8-26 12:00 编辑 
+
+fami期待榜22和36，叫你摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+界22 PS5,36 PS4
+
+*****
+
+####  ravend233  
+##### 2913#       发表于 2024-8-26 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">nbcs的水平，赶紧埋了吧
+
+*****
+
+####  一步成诗  
+##### 2914#       发表于 2024-8-26 12:04
+
+期待首周了，精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

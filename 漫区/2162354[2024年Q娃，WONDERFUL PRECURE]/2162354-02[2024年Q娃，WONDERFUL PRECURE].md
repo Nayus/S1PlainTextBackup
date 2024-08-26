@@ -780,3 +780,16 @@ cure majesty（
 
 虽然跨作品了，但哪怕是以感化著称的高斯都时不时会遇到谈话无用只能火化的敌人（
 
+
+*****
+
+####  Arson=desu  
+##### 2086#       发表于 2024-8-26 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66017079&amp;ptid=2162354" target="_blank">久井路路 发表于 2024-8-26 11:54</a>
+
+前辈没遇到过这种从头到尾每一次都不好出手打的情况
+
+虽然跨作品了，但哪怕是以感化著称的高斯都时不时会遇 ...</blockquote>
+高斯只是不照着让对面爆发四散去下手，实际上还是动手了，你也不能说打太极就不算动作戏了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

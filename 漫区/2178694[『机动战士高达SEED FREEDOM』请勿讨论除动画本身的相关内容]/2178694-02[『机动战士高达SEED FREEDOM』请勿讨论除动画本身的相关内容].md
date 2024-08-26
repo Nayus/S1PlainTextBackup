@@ -184,3 +184,11 @@ PV里面IJ2登场变成3D了，然后魔蟹和卡列班有新镜头
 
 2024-8-26 19:44 上传
 
+
+*****
+
+####  七七見奈波  
+##### 1918#       发表于 2024-8-26 22:39
+
+还带改部分角色结局的？？？反正大厚嘴唇子是不会改的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

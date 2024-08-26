@@ -1223,3 +1223,13 @@ Rumble CEO直接跑了
 
 居然认为我大法兰西不是大国，该抓<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Promeus  
+##### 107#       发表于 2024-8-26 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018437&amp;ptid=2196447" target="_blank">linhaolin1 发表于 2024-8-26 14:04</a>
+笑死。。</blockquote>
+讲道理他又不是在巴黎潜行，怪人家姑娘属实是甩锅<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

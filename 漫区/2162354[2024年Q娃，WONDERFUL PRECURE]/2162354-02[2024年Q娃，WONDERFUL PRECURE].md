@@ -749,3 +749,11 @@ cure majesty（
 我觉得不肉搏的话就像是在痛骂前辈们是粗暴野蛮没人性的战斗狂一样，难道只有你们甜点和猫狗是好孩子吗？ ...</blockquote>
 前辈们面对敌方怪物是生物变的怪时往往也打得束手束脚吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  雨宮優子  
+##### 2083#       发表于 2024-8-26 10:42
+
+去年干部都是肉猪也没见她们手下留情过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

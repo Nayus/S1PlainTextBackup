@@ -77,3 +77,20 @@ https://x.com/camus27315/status/1827282302680055812
 入場者プレゼント第1弾の「オリジナルミニクリアファイル」
 <img src="https://p.sda1.dev/19/7ad0b4a73a63c76f7beb170392895be2/20240826_110353.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1909#       发表于 2024-8-26 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66016426&amp;ptid=2178694" target="_blank">Piano-Forest 发表于 2024-8-26 11:07</a>
+
+◤￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣◥
+
+『機動戦士ガンダム #SEEDFREEDOM』
+
+　　　　  特別版上映決定✨</blockquote>
+修正了画面？
+
+年底的BD应该是这个修正版本吧
+

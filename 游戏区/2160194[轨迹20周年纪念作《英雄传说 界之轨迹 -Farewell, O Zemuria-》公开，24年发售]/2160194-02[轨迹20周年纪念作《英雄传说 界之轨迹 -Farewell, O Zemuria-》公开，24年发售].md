@@ -8020,3 +8020,86 @@ e0dd1b7fca80653806636a32d1dda144ac348252.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能4版预售太差了
 
+
+*****
+
+####  Aeons  
+##### 2926#       发表于 2024-8-26 13:24
+
+这么多回复我还以为有什么活
+
+*****
+
+####  卢迪克  
+##### 2927#       发表于 2024-8-26 13:26
+
+md ,黎2好歹有概念图，这次直接建模图
+
+0cbb6a3c70cf3bc79a3291319400baa1cc112a74.jpg
+(111.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-26 13:26 上传
+
+<img src="https://img.saraba1st.com/forum/202408/26/132647mzm2tsy74jrre6qy.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2928#       发表于 2024-8-26 13:29
+
+都是拿黎一设定图姿势套的
+
+
+*****
+
+####  Aeons  
+##### 2929#       发表于 2024-8-26 13:30
+
+我之前说过吧，dlc服装的话，胸应该跟衣服匹配的，之前赛车服就挺明显。
+
+*****
+
+####  无动于衷  
+##### 2930#       发表于 2024-8-26 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018067&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-26 13:30</a>
+
+我之前说过吧，dlc服装的话，胸应该跟衣服匹配的，之前赛车服就挺明显。</blockquote>
+这不是师姐的凶可以忽大忽小的理由 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 2931#       发表于 2024-8-26 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018052&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-26 13:29</a>
+
+都是拿黎一设定图姿势套的</blockquote>
+今年推特的摆拍图都没有放，纯摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 2932#       发表于 2024-8-26 13:31
+
+莉霞那个模型没这么小的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2933#       发表于 2024-8-26 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66018074&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-26 13:31</a>
+这不是师姐的凶可以忽大忽小的理由</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看到的胸都是装在衣服上的
+
+*****
+
+####  Aeons  
+##### 2934#       发表于 2024-8-26 13:33
+
+我刚想说，静名这好歹换了个花纹，上面两个我都认不出是界轨。
+<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">仔细一看原来没换花纹..... 纯正凶手啊嗯
+

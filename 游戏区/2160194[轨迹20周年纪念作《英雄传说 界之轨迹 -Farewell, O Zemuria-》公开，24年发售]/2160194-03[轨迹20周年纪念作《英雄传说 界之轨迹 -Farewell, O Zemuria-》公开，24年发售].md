@@ -259,3 +259,13 @@ f本来就把吸引不到新人归罪于主角年龄，伊苏x拉到新人后，
 
 都玩了这么多年了，还是要买<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2985#       发表于 2024-8-27 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还是买了SOFMAP的限定（）
+
+云豹板先云一个看看要不要买（）
+

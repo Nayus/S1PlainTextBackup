@@ -6926,3 +6926,14 @@ mea队水平如何</blockquote>
 
 如果有人要剪的话推荐一个mea波比千里追杀单杀Kamito永恩。大概是昨天直播的5小时27分左右。
 
+
+*****
+
+####  古战场亡魂  
+##### 17247#       发表于 2024-8-27 16:45
+
+ 本帖最后由 古战场亡魂 于 2024-8-27 16:47 编辑 
+
+来个大家看个有趣的，1v1，mea鳄鱼单杀前职业战队选手现日本日服排名第12剑魔
+[https://clips.twitch.tv/Heartles ... rZ-j05TaZ5tZDifhfCX](https://clips.twitch.tv/HeartlessTemperedLaptopRalpherZ-j05TaZ5tZDifhfCX)
+

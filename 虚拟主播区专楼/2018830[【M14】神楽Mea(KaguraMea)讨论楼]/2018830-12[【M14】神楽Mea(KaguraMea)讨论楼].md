@@ -6937,3 +6937,11 @@ mea队水平如何</blockquote>
 来个大家看个有趣的，1v1，mea鳄鱼单杀前职业战队选手现日本日服排名第12剑魔
 [https://clips.twitch.tv/Heartles ... rZ-j05TaZ5tZDifhfCX](https://clips.twitch.tv/HeartlessTemperedLaptopRalpherZ-j05TaZ5tZDifhfCX)
 
+
+*****
+
+####  古战场亡魂  
+##### 17248#       发表于 2024-8-27 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

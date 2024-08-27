@@ -131,3 +131,37 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ravend233  
+##### 2974#       发表于 2024-8-27 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66026477&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 09:35</a>
+
+我有一个大胆的想法，他们不会到现在都没做完吧，所以宣发挤牙膏一点也挤不出来 ...</blockquote>
+不太可能，你法社是宁可砍一大堆内容做分割商法或者砍了就砍了都要9月底发售的，这个时间点已经该送去压盘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能就这么点东西呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">剩下界2再说
+
+
+*****
+
+####  一步成诗  
+##### 2975#       发表于 2024-8-27 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027143&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-27 10:27</a>
+
+不太可能，你法社是宁可砍一大堆内容做分割商法或者砍了就砍了都要9月底发售的，这个时间点已经该送去压 ...</blockquote>
+压盘归压盘，也不一定做完了，还可以首日补丁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 2976#       发表于 2024-8-27 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027188&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 10:31</a>
+
+压盘归压盘，也不一定做完了，还可以首日补丁啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这鸟样你信它是还有东西没做完在赶工还是赶紧糊弄完事去做明年的迷城）
+

@@ -277,3 +277,48 @@ f本来就把吸引不到新人归罪于主角年龄，伊苏x拉到新人后，
 
 「Falcom jdk BAND LIVE 2024 SUMMER」现场演唱的《英雄传说 界之轨迹  -告别塞姆利亚-》主题曲「シロイセカイ」。本作中文版将于9月26日登陆#PS5# 、PS4，与日版同步发售。#夏日畅想季# http://t.cn/A6RfQId9 ​​​
 
+
+*****
+
+####  卢迪克  
+##### 2987#       发表于 2024-8-27 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66028042&amp;ptid=2160194" target="_blank">ミズタ 发表于 2024-8-27 11:32</a>
+
+这宣发实在看不出来有什么东西了，我感觉同期还是会玩林克传说，林克传说通了，看看大家无剧透风评在考虑买 ...</blockquote>
+有啊，永劫回归和宇宙军一样都是上天，从星辰之间起飞
+
+c0d22c00a18b87d6c1bd523f410828381e30fd60.jpg
+(8.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202408/27/124459m5bfjtcr5p75i7t5.jpg" referrerpolicy="no-referrer">
+
+a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
+(11.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 12:45 上传
+
+<img src="https://img.saraba1st.com/forum/202408/27/124503ncp30qqidpi79040.jpg" referrerpolicy="no-referrer">
+
+72279200213fb80e28a39cf770d12f2eb83894f4.jpg
+(24.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 12:45 上传
+
+<img src="https://img.saraba1st.com/forum/202408/27/124506l7u0rucxcuucnqru.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 2988#       发表于 2024-8-27 12:46
+
+这就不是一个东西
+

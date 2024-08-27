@@ -957,3 +957,11 @@ Concord Review In Progress - IGN
 
 真是拉了坨大的。砍tlou2ol买这个逼工作室，真有你的啊索尼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lilisipis  
+##### 95#       发表于 2024-8-27 08:30
+
+我倒要看看IGN敢不敢给出8分以上的成绩
+

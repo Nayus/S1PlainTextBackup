@@ -348,3 +348,15 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 2992#       发表于 2024-8-27 15:02
+
+ 本帖最后由 卢迪克 于 2024-8-27 15:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66029138&amp;ptid=2160194" target="_blank">jajajzz 发表于 2024-8-27 12:58</a>
+
+就那点人，硬指标还要搞一年一部新作，又思思念念的搞多平台发售，旧作移植NS的活也不想外包要自己搞这钱不 ...</blockquote>
+法：得了吧，日本一和云豹两废物做的ns版还不如我自己做的，闪轨1和ys8还能掉到十几帧，卧龙凤雏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

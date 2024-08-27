@@ -1044,3 +1044,47 @@ sen3是老pe吧，黎1和ysx应该都是起源1魔改
 
 所以说这回本地化包给谁了？加藤舍得花钱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alann  
+##### 3064#       发表于 2024-8-27 23:47
+
+说实话这个空re的3d脸模，感觉把头发去了长的都一模一样
+
+*****
+
+####  卢迪克  
+##### 3065#       发表于 2024-8-27 23:48
+
+<blockquote>ravend233 发表于 2024-8-27 23:17
+这个截图看着又特别像你法社的引擎
+
+</blockquote>
+
+股东说法社自己做的，渲染是为了配合低龄玩家喜好（手游）
+
+
+*****
+
+####  ravend233  
+##### 3066#       发表于 2024-8-27 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036652&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-27 23:48</a>
+股东说法社自己做的，渲染是为了配合低龄玩家喜好（手游）</blockquote>
+有几个场景特别像你法社那味，我觉得确实是本社的
+
+所以我东迷2是不是2026了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  whzfjk  
+##### 3067#       发表于 2024-8-27 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036652&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-27 23:48</a>
+
+股东说法社自己做的，渲染是为了配合低龄玩家喜好（手游）</blockquote>
+法老空竟然觉得本家那塑料盆渲染（虽然好点了）还存在正当性？
+

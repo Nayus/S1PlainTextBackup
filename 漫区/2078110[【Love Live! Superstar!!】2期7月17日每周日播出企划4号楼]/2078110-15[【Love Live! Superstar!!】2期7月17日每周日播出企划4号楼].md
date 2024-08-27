@@ -158,3 +158,13 @@ CelticWhite老师在纽约见到了catchu
 CelticWhite老师在纽约见到了catchu</blockquote>
 看了一些图这次活动她们跟观众的距离好近，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  lj205  
+##### 20962#       发表于 2024-8-27 23:45
+
+今天再次跟10抽0中哥站一起抽，他继续0中我则一发入魂，我明天打算就找这位老哥站一块，看看能不能抽中个啥。
+
+今天staff甚至还推人，时间感觉比大阪还紧，话都不能好好聊。然后可以签CD，以为只能签歌词本结果后面看到有人签了CD本体，气死我了（）
+

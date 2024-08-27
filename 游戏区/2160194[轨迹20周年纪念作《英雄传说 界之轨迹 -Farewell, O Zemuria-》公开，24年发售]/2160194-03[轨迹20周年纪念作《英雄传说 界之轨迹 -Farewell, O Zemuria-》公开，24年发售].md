@@ -1164,3 +1164,11 @@ sen3是老pe吧，黎1和ysx应该都是起源1魔改
 
 SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3076#       发表于 2024-8-28 01:37
+
+啊？25年发售？那我京迷呢？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -1075,3 +1075,13 @@ IGN给个7分
 
 已经跌至100人同时在线了
 
+
+*****
+
+####  UmarIbnLaAhad  
+##### 107#       发表于 2024-8-27 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66032193&amp;ptid=2191081" target="_blank">mimighost 发表于 2024-8-27 17:13</a>
+ 首席角色设计师在推上面发码  实话有点儿可怜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">领来都脏了游戏库
+

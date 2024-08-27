@@ -119,3 +119,15 @@
 
 我有一个大胆的想法，他们不会到现在都没做完吧，所以宣发挤牙膏一点也挤不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古畑任三郎2015  
+##### 2973#       发表于 2024-8-27 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66026477&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 09:35</a>
+我有一个大胆的想法，他们不会到现在都没做完吧，所以宣发挤牙膏一点也挤不出来 ...</blockquote>
+可能在设计咚的时机<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

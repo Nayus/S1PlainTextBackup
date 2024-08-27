@@ -7319,3 +7319,24 @@ miko看到ordan的转发以后自己也转了……
 
 反正不知道是什么东西
 
+
+*****
+
+####  holoan  
+##### 9500#         楼主| 发表于 2024-8-26 22:33
+
+还有，9月头有关于live的新告知，那就有得期待了
+
+*****
+
+####  holoan  
+##### 9501#         楼主| 发表于 2024-8-27 13:21
+
+<img src="https://img.saraba1st.com/forum/202408/27/132122ac9csjgray9ujmal.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (110.92 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 13:21 上传
+

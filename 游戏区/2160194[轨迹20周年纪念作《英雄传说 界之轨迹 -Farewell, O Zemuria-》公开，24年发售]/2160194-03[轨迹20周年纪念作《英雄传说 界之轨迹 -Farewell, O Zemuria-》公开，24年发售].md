@@ -338,3 +338,13 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 
 作品硬实力说话好吧，我又不是股东宣不宣传无所谓。但是你要是给我搬大便上来我可要骂了。
 
+
+*****
+
+####  ravend233  
+##### 2991#       发表于 2024-8-27 13:09
+
+现在也只能可持续性拆东墙补西墙咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不怎么烧钱的剧本又突出一个特别喜欢摊大饼但是没能力收
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

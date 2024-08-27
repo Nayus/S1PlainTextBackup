@@ -165,3 +165,41 @@
 压盘归压盘，也不一定做完了，还可以首日补丁啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这鸟样你信它是还有东西没做完在赶工还是赶紧糊弄完事去做明年的迷城）
 
+
+*****
+
+####  一步成诗  
+##### 2977#       发表于 2024-8-27 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027215&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-27 10:32</a>
+
+就这鸟样你信它是还有东西没做完在赶工还是赶紧糊弄完事去做明年的迷城） ...</blockquote>
+不过搞笑的是界轨有两年时间还弄成这个样子，从东迷2官网出来我一直都觉得他们就是在做东迷2没人做轨啊，宣发表现越来越实锤罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 2978#       发表于 2024-8-27 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027251&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 10:35</a>
+
+不过搞笑的是界轨有两年时间还弄成这个样子，从东迷2官网出来我一直都觉得他们就是在做东迷2没人做轨啊， ...</blockquote>
+去年伊苏采访就说过在做新ip了
+
+对于不久的将来，Falcom的目标是什么？
+
+社长:【 对于即将到来的未来，最重要的是确保《伊苏X》这款系列的35周年纪念作品能够取得巨大成功。同时，这也是系列的第十部作品，所以这一点也很重要。此外，我们希望向粉丝们展示一些全新的东西，另外一个不属于《伊苏》或《轨迹》系列。我们正在进行这方面开发的工作。 】
+
+*****
+
+####  一步成诗  
+##### 2979#       发表于 2024-8-27 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027343&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-27 10:42</a>
+
+去年伊苏采访就说过在做新ip了
+
+对于不久的将来，Falcom的目标是什么？</blockquote>
+做是一回事，没想到是弃轨保迷式地做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

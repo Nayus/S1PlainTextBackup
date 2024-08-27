@@ -147,3 +147,14 @@ CelticWhite老师在纽约见到了catchu
 <img src="https://p.sda1.dev/19/c0f60bccda9394a7e47674d009707a94/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/9473d6edc407367b65dc75783fbd357a/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20961#       发表于 2024-8-27 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66023883&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-8-26 22:54</a>
+
+CelticWhite老师在纽约见到了catchu</blockquote>
+看了一些图这次活动她们跟观众的距离好近，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+

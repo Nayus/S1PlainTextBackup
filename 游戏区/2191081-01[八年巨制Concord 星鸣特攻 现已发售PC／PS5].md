@@ -965,3 +965,16 @@ Concord Review In Progress - IGN
 
 我倒要看看IGN敢不敢给出8分以上的成绩
 
+
+*****
+
+####  mimighost  
+##### 96#       发表于 2024-8-27 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66025873&amp;ptid=2191081" target="_blank">lilisipis 发表于 2024-8-27 08:30</a>
+
+我倒要看看IGN敢不敢给出8分以上的成绩</blockquote>
+IGN给个7分
+
+堵上所有人的嘴巴
+

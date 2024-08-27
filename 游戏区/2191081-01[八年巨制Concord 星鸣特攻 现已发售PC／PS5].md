@@ -998,3 +998,15 @@ IGN给个7分
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  mimighost  
+##### 99#       发表于 2024-8-27 13:57
+
+基本钦定了近10年最大的爆死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前看到成本来说，1e到3e美元的都有说，换来不到一千个玩家，里面还有大量的dev充数
+
+我觉得firewalk被解散已经是板上钉钉了，准备找工作吧
+

@@ -95,3 +95,19 @@
 希望正式版出了后dlc里师姐也有好 ...</blockquote>
 云豹 pc版和ns版应该会给的
 
+
+*****
+
+####  卢迪克  
+##### 2971#       发表于 2024-8-27 09:20
+
+别骂了，我真的没货了
+
+<img src="https://img.saraba1st.com/forum/202408/27/092057c038nqpgithkphhh.png" referrerpolicy="no-referrer">
+
+<strong>GV5amTxacAAp3qY(1).png</strong> (503.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 09:20 上传
+

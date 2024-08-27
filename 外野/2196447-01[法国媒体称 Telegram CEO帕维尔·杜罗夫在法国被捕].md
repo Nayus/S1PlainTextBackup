@@ -1449,3 +1449,25 @@ Rumble CEO直接跑了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  remedios010000  
+##### 128#       发表于 2024-8-27 09:41
+
+怎么会有人觉得在hk东大就能忍住不出手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在眼皮子底下挖你家墙角，这还能让他跑了？
+
+*****
+
+####  YG111  
+##### 129#       发表于 2024-8-27 09:42
+
+<blockquote>引用第110楼遗迹永存于2024-08-26 00:53发表的  :
+
+除了那几个被美国制裁的极端反美国家和地区，比如古巴和朝鲜，经济既发达又安全，还不受美国长臂管辖的地区......</blockquote>
+@遗迹永存
+
+HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

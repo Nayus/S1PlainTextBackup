@@ -944,3 +944,29 @@ sen3是老pe吧，黎1和ysx应该都是起源1魔改
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  卢迪克  
+##### 3053#       发表于 2024-8-27 23:31
+
+中文同步，老任说的
+
+云豹：您悠着点
+
+<img src="https://img.saraba1st.com/forum/202408/27/233058u1nyuv1vt2url3p4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240827_233049.jpg</strong> (249.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-27 23:30 上传
+
+*****
+
+####  新世界的派蒙  
+##### 3054#       发表于 2024-8-27 23:31
+
+渲染特别像PE引擎，但是怪物高亮那一下还是黎轨那样的样子，所以应该还是新引擎
+

@@ -1085,3 +1085,13 @@ IGN给个7分
  首席角色设计师在推上面发码  实话有点儿可怜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">领来都脏了游戏库
 
+
+*****
+
+####  strider_oy  
+##### 108#       发表于 2024-8-27 23:41
+
+黑猴的成功，和这东西的暴死，以后游戏业再没人信lgbt了吧。政治声量和实际影响不成正比。
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

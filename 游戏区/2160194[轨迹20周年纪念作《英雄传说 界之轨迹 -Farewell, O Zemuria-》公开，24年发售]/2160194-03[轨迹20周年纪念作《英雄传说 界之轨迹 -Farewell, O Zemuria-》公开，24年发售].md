@@ -753,3 +753,97 @@ ec64847e9e2f0708028483d9ac24b899ab01f29e.jpg
 
 猜测一个空轨重制卖的比界轨多
 
+
+*****
+
+####  卢迪克  
+##### 3032#       发表于 2024-8-27 22:59
+
+这是不是你法第一次跑去发布会公布作品
+
+*****
+
+####  Aeons  
+##### 3033#       发表于 2024-8-27 23:00
+
+有说啥时候吗
+
+*****
+
+####  Falcomfans  
+##### 3034#       发表于 2024-8-27 23:00
+
+PV里的雪拉太幼了吧
+
+*****
+
+####  古畑任三郎2015  
+##### 3035#       发表于 2024-8-27 23:00
+
+官网怎么还没维护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古畑任三郎2015  
+##### 3036#       发表于 2024-8-27 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036126&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-27 23:00</a>
+有说啥时候吗</blockquote>
+25年
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  keiyoku  
+##### 3037#       发表于 2024-8-27 23:01
+
+还以为明年大概率京迷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">………
+
+*****
+
+####  Aeons  
+##### 3038#       发表于 2024-8-27 23:01
+
+这画面和风格怎么有点像手游
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3039#       发表于 2024-8-27 23:05
+
+渲染建模让falcom赢了一次，但打戏演出被gust追上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3040#       发表于 2024-8-27 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036142&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-27 23:01</a>
+这画面和风格怎么有点像手游</blockquote>
+像u3d的三渲二画面，
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  低调不圆滑  
+##### 3041#       发表于 2024-8-27 23:06
+
+感觉空re搞的时间挺久的，引擎看着就像是闪3的
+
+*****
+
+####  ravend233  
+##### 3042#       发表于 2024-8-27 23:07
+
+看看是不是外包的，看着很像外包
+
+是外包的话本社明年应该还是京迷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

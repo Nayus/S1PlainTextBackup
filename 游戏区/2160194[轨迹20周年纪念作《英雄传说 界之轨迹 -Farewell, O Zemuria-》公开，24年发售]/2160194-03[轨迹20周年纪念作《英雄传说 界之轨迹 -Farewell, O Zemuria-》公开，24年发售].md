@@ -1122,3 +1122,45 @@ sen3是老pe吧，黎1和ysx应该都是起源1魔改
 
 你说的是七星吗，她说渲染是为了吸引小朋友
 
+
+*****
+
+####  ravend233  
+##### 3072#       发表于 2024-8-28 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036827&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-8-28 00:12</a>
+
+要迎合年轻人喜好连那没品的绿油油草地也复制过来了
+
+再看一次PV，发现公会小姐的头发明明在室内也会被风吹 ...</blockquote>
+好，这下确实是黎轨的引擎了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  benhawk  
+##### 3073#       发表于 2024-8-28 00:23
+
+话说这种多语言首发，只有一种可能吧！
+
+我全文本照搬！2333
+
+严重怀疑能在一些地方加点类似零轨的彩蛋就不错了。
+
+顺便我感觉如果ok很可能零碧是不是要二度重置。毕竟模型现成的。
+
+而且现在空轨3d建模也有了。感觉可以在剧情上回去了
+
+*****
+
+####  Aeons  
+##### 3074#       发表于 2024-8-28 00:24
+
+多改多错，按原版稍微改一点就好
+
+*****
+
+####  ravend233  
+##### 3075#       发表于 2024-8-28 00:24
+
+SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

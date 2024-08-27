@@ -419,3 +419,19 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  ravend233  
+##### 2999#       发表于 2024-8-27 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦对，你日PS5大涨价，怕是更难卖了
+
+<img src="https://img.saraba1st.com/forum/202408/27/171243i46qx5xswbxor4xb.png" referrerpolicy="no-referrer">
+
+<strong>F)5GX{LBH}1%[YO{K72NNAI.png</strong> (29.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 17:12 上传
+

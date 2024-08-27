@@ -1026,3 +1026,31 @@ IGN给个7分
 
 现在坨的在线人数还不如游戏价格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  泰坦失足  
+##### 102#       发表于 2024-8-27 17:11
+
+都怪Steam和PC master race，搞什么在线人数透明化。
+
+*****
+
+####  爱护动物抓根宝  
+##### 103#       发表于 2024-8-27 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66029698&amp;ptid=2191081" target="_blank">mimighost 发表于 2024-8-27 13:57</a>
+基本钦定了近10年最大的爆死了
+
+目前看到成本来说，1e到3e美元的都有说，换来不到一千个玩家，里面还有大量 ...</blockquote>
+现在推上全叫工作室成员 FIRED WOKE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mimighost  
+##### 104#       发表于 2024-8-27 17:13
+
+首席角色设计师在推上面发码
+
+实话有点儿可怜<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

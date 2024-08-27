@@ -1439,3 +1439,13 @@ Rumble CEO直接跑了
 
 <img src="https://p.sda1.dev/19/83aff899f83b7a67895d02dc62cc5bcf/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nejiang  
+##### 127#       发表于 2024-8-27 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66025859&amp;ptid=2196447" target="_blank">仟音一心 发表于 2024-08-27 08:28:01</a></blockquote>后面4条就是他在阅读的虚假信息
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

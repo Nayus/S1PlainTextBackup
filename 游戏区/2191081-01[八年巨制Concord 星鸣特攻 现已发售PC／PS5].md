@@ -1186,3 +1186,13 @@ GV3GBKGXMAAhCvL.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  ChoRyuJin  
+##### 113#       发表于 2024-8-28 01:11
+
+<blockquote>leafS 发表于 2024-8-28 00:38
+审美多元化的前提是审的还是美而不是丑，我一直无法理解这游戏包括今年巴黎奥运会开幕式时候的这些lgbt群体 ...</blockquote>
+如果lgbt不丑，怎么能显得woke人群品味高雅，觉醒了进步呢？
+

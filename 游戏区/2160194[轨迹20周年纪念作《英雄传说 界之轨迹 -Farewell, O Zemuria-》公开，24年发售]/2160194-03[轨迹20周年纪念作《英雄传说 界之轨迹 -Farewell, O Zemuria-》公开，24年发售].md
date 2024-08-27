@@ -435,3 +435,11 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 
 2024-8-27 17:12 上传
 
+
+*****
+
+####  妄想中毒  
+##### 3000#       发表于 2024-8-27 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，ps4一样玩，反正你轨迹的画面ps5玩和ps4玩不会有太大区别
+

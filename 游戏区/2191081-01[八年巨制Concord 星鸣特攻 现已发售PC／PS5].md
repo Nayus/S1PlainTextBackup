@@ -1054,3 +1054,16 @@ IGN给个7分
 
 实话有点儿可怜<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三千珈蓝  
+##### 105#       发表于 2024-8-27 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66032193&amp;ptid=2191081" target="_blank">mimighost 发表于 2024-8-27 17:13</a>
+
+首席角色设计师在推上面发码
+
+实话有点儿可怜</blockquote>
+直接送cdkey？
+

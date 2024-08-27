@@ -582,3 +582,86 @@ ec64847e9e2f0708028483d9ac24b899ab01f29e.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  natmk  
+##### 3012#       发表于 2024-8-27 22:34
+
+看来是拿资源去做空轨重制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3013#       发表于 2024-8-27 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66035692&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-27 22:33</a>
+
+那我东迷2呢</blockquote>
+等ns2吧   
+
+*****
+
+####  新世界的派蒙  
+##### 3014#       发表于 2024-8-27 22:35
+
+我去，真全新重制阿，我害怕
+
+*****
+
+####  ravend233  
+##### 3015#       发表于 2024-8-27 22:35
+
+引擎技术也是新的，还是村上人设，再看看界轨，哎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  whzfjk  
+##### 3016#       发表于 2024-8-27 22:36
+
+画面是真的追上来了
+
+*****
+
+####  反方向的波  
+##### 3017#       发表于 2024-8-27 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">界轨。。。究极沙批
+
+*****
+
+####  SuNR1sE364  
+##### 3018#       发表于 2024-8-27 22:37
+
+界轨这上面又有空轨re又有东轨2的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3019#       发表于 2024-8-27 22:39
+
+空轨重制建模不知道为什么一股手游味，不过丑完了的另有其人你说是吧界轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 3020#       发表于 2024-8-27 22:40
+
+<blockquote>一步成诗 发表于 2024-8-27 22:39
+空轨重制建模不知道为什么一股手游味，不过丑完了的另有其人你说是吧界轨 ...</blockquote>
+这下手游玩家不能拒绝了
+
+*****
+
+####  ravend233  
+##### 3021#       发表于 2024-8-27 22:42
+
+看着是在向手游的渲染风格看齐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+界轨，哎
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

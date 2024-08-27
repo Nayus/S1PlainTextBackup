@@ -203,3 +203,14 @@
 对于不久的将来，Falcom的目标是什么？</blockquote>
 做是一回事，没想到是弃轨保迷式地做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 2980#       发表于 2024-8-27 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66027374&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 10:43</a>
+
+做是一回事，没想到是弃轨保迷式地做</blockquote>
+f本来就把吸引不到新人归罪于主角年龄，伊苏x拉到新人后，自然就对轨更没好脸色了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

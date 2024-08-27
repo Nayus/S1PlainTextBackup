@@ -443,3 +443,29 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事，ps4一样玩，反正你轨迹的画面ps5玩和ps4玩不会有太大区别
 
+
+*****
+
+####  卢迪克  
+##### 3001#       发表于 2024-8-27 20:05
+
+黎2ns居然卖得比黎1好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/27/200508d70ktbk7t1s0rptd.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724760258056.jpg</strong> (50.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-27 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202408/27/200512yjl9qj3pj3u67j3r.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724760260668.jpg</strong> (58.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-27 20:05 上传
+

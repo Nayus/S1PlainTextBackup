@@ -243,3 +243,19 @@ f本来就把吸引不到新人归罪于主角年龄，伊苏x拉到新人后，
 由手机上传
 2024-8-27 11:24 上传
 
+
+*****
+
+####  ミズタ  
+##### 2983#       发表于 2024-8-27 11:32
+
+这宣发实在看不出来有什么东西了，我感觉同期还是会玩林克传说，林克传说通了，看看大家无剧透风评在考虑买不买吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aimujie  
+##### 2984#       发表于 2024-8-27 11:36
+
+都玩了这么多年了，还是要买<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

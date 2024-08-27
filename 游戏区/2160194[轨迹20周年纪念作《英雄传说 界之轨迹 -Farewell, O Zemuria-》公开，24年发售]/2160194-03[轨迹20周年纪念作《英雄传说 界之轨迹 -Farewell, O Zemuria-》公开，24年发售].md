@@ -494,3 +494,24 @@ ec64847e9e2f0708028483d9ac24b899ab01f29e.jpg
 
 <img src="https://img.saraba1st.com/forum/202408/27/202921vow9qbwjjq92jjqn.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Falcomfans  
+##### 3003#       发表于 2024-8-27 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66026280&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-27 09:20</a>
+
+别骂了，我真的没货了</blockquote>
+这是《V Jump》啊，集英社的杂志，Falcom是第一次和集英社搭上关系，难道是因为轨迹TCG？
+
+<img src="https://img.saraba1st.com/forum/202408/27/214840fiiii3y5uii2qbba.jpg" referrerpolicy="no-referrer">
+
+<strong>GVVeKR8aUAE_ojo.jpg</strong> (417.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 21:48 上传
+
+之前一直说轨迹和OP很像，这下还真进一本杂志了。
+

@@ -6945,3 +6945,13 @@ mea队水平如何</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  古战场亡魂  
+##### 17249#       发表于 2024-8-27 21:51
+
+刚打完一场完胜。
+
+顺便附赠一个和监督1v1击杀的剪辑[https://www.twitch.tv/takayaspec ... se-xuYoDEHzwGyFc7a8](https://www.twitch.tv/takayaspecial/clip/GenerousHumbleTubersPRChase-xuYoDEHzwGyFc7a8)
+

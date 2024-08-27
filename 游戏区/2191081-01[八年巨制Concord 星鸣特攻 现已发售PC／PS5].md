@@ -1231,3 +1231,12 @@ GV3GBKGXMAAhCvL.jpg
 
 4.最快下个月就会f2p5.beta测试以来的媒体玩家反馈根本没有被处理，直接被无视
 
+
+*****
+
+####  卡拉德利姆  
+##### 116#       发表于 2024-8-28 06:59
+
+为灾难性的发布感到震惊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+车已经冲下悬崖了才发现方向盘打的不对吗
+

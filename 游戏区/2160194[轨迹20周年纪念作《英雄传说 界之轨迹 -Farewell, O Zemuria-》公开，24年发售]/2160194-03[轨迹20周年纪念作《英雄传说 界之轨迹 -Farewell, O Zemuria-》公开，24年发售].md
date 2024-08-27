@@ -1190,3 +1190,14 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  liuguokobe  
+##### 3079#       发表于 2024-8-28 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036605&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-8-27 23:43</a>
+
+所以说这回本地化包给谁了？加藤舍得花钱了</blockquote>
+要省钱肯定是直接翻出来娱乐通的老翻译和向英文fan翻译要授权啦
+

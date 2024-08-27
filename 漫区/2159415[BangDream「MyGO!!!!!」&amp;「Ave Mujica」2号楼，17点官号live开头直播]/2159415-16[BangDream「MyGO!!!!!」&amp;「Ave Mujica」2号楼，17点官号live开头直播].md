@@ -2476,3 +2476,34 @@ syl，原来今天管人团live了，完全不记得<img src="https://static.sar
 
 wsd决定把earth的mv留到下个月放，这样你们就不会觉得9月东西很少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22431#       发表于 2024-8-27 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66003519&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-8-24 21:55</a>
+
+确实是定制投票，素睦大本营也是素厨大本营，上次把祥子推上第二是为了让素世狠狠羞辱，这次又搞了出ccc ...</blockquote>
+爛梗大本營是這樣的 吃史拉屎還都很自豪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22432#       发表于 2024-8-27 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004043&amp;ptid=2159415" target="_blank">ydsbbt 发表于 2024-8-24 22:50</a>
+
+你落后版本了，之前那批人确实缩在角落yygq访谈不能全信，现在的素睦人已经对着访谈原文振振有辞说素世和 ...</blockquote>
+這自我洗腦力和嘴硬力有點厲害的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22433#       发表于 2024-8-27 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66004799&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-8-25 00:44</a>
+
+都能把soyo桑love的爱音直接描改成睦了，主打一手你的就是我的</blockquote>
+什麼偷糖大戶，天天偷睦祥就算了怎麼連美帝的都偷上了，美帝人多勢眾怎麼沒人抱怨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

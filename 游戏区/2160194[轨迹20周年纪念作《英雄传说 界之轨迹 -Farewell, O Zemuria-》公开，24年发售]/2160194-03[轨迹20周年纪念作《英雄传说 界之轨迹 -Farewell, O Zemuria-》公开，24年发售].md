@@ -214,3 +214,15 @@
 做是一回事，没想到是弃轨保迷式地做</blockquote>
 f本来就把吸引不到新人归罪于主角年龄，伊苏x拉到新人后，自然就对轨更没好脸色了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 2981#       发表于 2024-8-27 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说黎2卖得比黎1还差让你法社的决策层彻底对这玩意失望了
+
+黎2加大宣发投入从决策层来说应该是想这玩意再多卖点看能不能抢救一下的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于剧本，那是竹入那帮人的问题（）
+

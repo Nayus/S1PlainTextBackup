@@ -1167,3 +1167,22 @@ GV3GBKGXMAAhCvL.jpg
 
 所谓审美多元化，就是把传统审美曲解成所谓的，白人直男暴政下扭曲出的狭隘审美，然后非要另起炉灶搞自己那一套，那能搞出啥<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  晨曦之下  
+##### 111#       发表于 2024-8-28 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为圣歌那样的奇迹不会再出现了
+真是一个炸的比一个大
+角色外形按照守望那样全部重新设计一遍也许能苟一苟 可是没意义
+
+*****
+
+####  leafS  
+##### 112#       发表于 2024-8-28 00:38
+
+审美多元化的前提是审的还是美而不是丑，我一直无法理解这游戏包括今年巴黎奥运会开幕式时候的这些lgbt群体为什么能这么丑，就算人本身不抽化的妆和穿的衣服也丑，可能真的已经不是正常人类了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

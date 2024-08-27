@@ -986,3 +986,15 @@ IGN给个7分
 
 不如给个6.8，致敬ow
 
+
+*****
+
+####  difa  
+##### 98#       发表于 2024-8-27 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66026782&amp;ptid=2191081" target="_blank">土豆麻辣人 发表于 2024-8-27 09:59</a>
+不如给个6.8，致敬ow</blockquote>
+什么玩意？年度3大奖ow全拿了，这玩意致敬个屁
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

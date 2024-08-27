@@ -1180,3 +1180,13 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 
 笑死，没想到东轨又拖一年，当然话说回来，轨迹完结也被你法又拖了两年。这样会发生什么事情不好说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3078#       发表于 2024-8-28 02:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样子你法的思路大概率就是空re吸引小登，sc结束顺势推出新篇章吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

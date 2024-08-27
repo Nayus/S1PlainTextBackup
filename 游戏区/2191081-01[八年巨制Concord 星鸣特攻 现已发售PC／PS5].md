@@ -1018,3 +1018,11 @@ IGN给个7分
 
 完美的爆死，大投资，zzzq拉满，高话题度(xqc进来踩一脚)，又恰逢这个时间点
 
+
+*****
+
+####  czs13  
+##### 101#       发表于 2024-8-27 17:05
+
+现在坨的在线人数还不如游戏价格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

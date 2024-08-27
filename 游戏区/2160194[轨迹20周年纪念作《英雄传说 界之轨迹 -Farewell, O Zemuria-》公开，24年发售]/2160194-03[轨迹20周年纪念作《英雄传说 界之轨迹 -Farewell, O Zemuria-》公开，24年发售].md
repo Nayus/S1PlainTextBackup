@@ -360,3 +360,11 @@ a5c27d1ed21b0ef4926ea87c9bc451da81cb3e09.jpg
 就那点人，硬指标还要搞一年一部新作，又思思念念的搞多平台发售，旧作移植NS的活也不想外包要自己搞这钱不 ...</blockquote>
 法：得了吧，日本一和云豹两废物做的ns版还不如我自己做的，闪轨1和ys8还能掉到十几帧，卧龙凤雏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 2993#       发表于 2024-8-27 15:07
+
+这次界轨会要多少圆子 淘宝450？
+

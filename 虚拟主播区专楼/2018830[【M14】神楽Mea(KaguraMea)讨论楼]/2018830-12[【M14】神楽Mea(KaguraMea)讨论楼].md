@@ -6983,3 +6983,39 @@ mea队水平如何</blockquote>
 
 2024-8-28 01:15 上传
 
+
+*****
+
+####  TiHaru  
+##### 17252#       发表于 2024-8-28 00:02
+
+这都不和千女打 我说主播被ng不是没道理的
+
+*****
+
+####  古战场亡魂  
+##### 17253#       发表于 2024-8-28 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036748&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-8-28 00:02</a>
+
+这都不和千女打 我说主播被ng不是没道理的</blockquote>
+
+直接干碎了
+
+<img src="https://img.saraba1st.com/forum/202408/28/011510oqg3wwvkv3dspddd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 01:15 上传
+
+*****
+
+####  Dualist彩  
+##### 17254#       发表于 2024-8-28 05:43
+
+主播下手有点重了
+
+真神波比goat
+

@@ -1201,3 +1201,108 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 所以说这回本地化包给谁了？加藤舍得花钱了</blockquote>
 要省钱肯定是直接翻出来娱乐通的老翻译和向英文fan翻译要授权啦
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3080#       发表于 2024-8-28 00:12
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2024-8-28 00:16 编辑 
+
+要迎合年轻人喜好连那没品的绿油油草地也复制过来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+再看一次PV，发现公会小姐的头发明明在室内也会被风吹到飘来飘去，和李鬼犯一样的错误，能确认是本家做的了。
+
+
+*****
+
+####  Aeons  
+##### 3081#       发表于 2024-8-28 00:12
+
+你说的是七星吗，她说渲染是为了吸引小朋友
+
+*****
+
+####  ravend233  
+##### 3082#       发表于 2024-8-28 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036827&amp;ptid=2160194" target="_blank">Dai-Dai-Dai-Dai 发表于 2024-8-28 00:12</a>
+
+要迎合年轻人喜好连那没品的绿油油草地也复制过来了
+
+再看一次PV，发现公会小姐的头发明明在室内也会被风吹 ...</blockquote>
+好，这下确实是黎轨的引擎了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  benhawk  
+##### 3083#       发表于 2024-8-28 00:23
+
+话说这种多语言首发，只有一种可能吧！
+
+我全文本照搬！2333
+
+严重怀疑能在一些地方加点类似零轨的彩蛋就不错了。
+
+顺便我感觉如果ok很可能零碧是不是要二度重置。毕竟模型现成的。
+
+而且现在空轨3d建模也有了。感觉可以在剧情上回去了
+
+*****
+
+####  Aeons  
+##### 3084#       发表于 2024-8-28 00:24
+
+多改多错，按原版稍微改一点就好
+
+*****
+
+####  ravend233  
+##### 3085#       发表于 2024-8-28 00:24
+
+SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 3086#       发表于 2024-8-28 01:37
+
+啊？25年发售？那我京迷呢？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nozomitech  
+##### 3087#       发表于 2024-8-28 01:52
+
+ 本帖最后由 nozomitech 于 2024-8-27 18:54 编辑 
+
+笑死，没想到东轨又拖一年，当然话说回来，轨迹完结也被你法又拖了两年。这样会发生什么事情不好说了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3088#       发表于 2024-8-28 02:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样子你法的思路大概率就是空re吸引小登，sc结束顺势推出新篇章吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  liuguokobe  
+##### 3089#       发表于 2024-8-28 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036605&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-8-27 23:43</a>
+
+所以说这回本地化包给谁了？加藤舍得花钱了</blockquote>
+要省钱肯定是直接翻出来娱乐通的老翻译和向英文fan翻译要授权啦
+
+*****
+
+####  红叶  
+##### 3090#       发表于 2024-8-28 05:44
+
+菜堆打赢复活赛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo L71091, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

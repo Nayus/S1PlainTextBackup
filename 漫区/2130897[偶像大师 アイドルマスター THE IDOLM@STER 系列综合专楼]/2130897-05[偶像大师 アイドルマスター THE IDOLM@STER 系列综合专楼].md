@@ -2826,3 +2826,29 @@ saki输得透彻，正常收音的ego无了
 
 —— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Unlight  
+##### 6264#         楼主| 发表于 2024-8-27 22:15
+
+黑子说话！（bushi
+
+*****
+
+####  kykawaiii  
+##### 6265#       发表于 2024-8-27 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012871&amp;ptid=2130897" target="_blank">oznark 发表于 2024-8-25 23:25</a></blockquote>
+不能p太伤了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  klushyo  
+##### 6266#       发表于 2024-8-28 06:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012871&amp;ptid=2130897" target="_blank">oznark 发表于 2024-8-25 23:25</a></blockquote>
+难道不是速水奏吗？
+

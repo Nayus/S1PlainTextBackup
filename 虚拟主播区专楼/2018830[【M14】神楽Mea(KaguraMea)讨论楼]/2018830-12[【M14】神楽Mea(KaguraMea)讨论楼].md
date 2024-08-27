@@ -6955,3 +6955,11 @@ mea队水平如何</blockquote>
 
 顺便附赠一个和监督1v1击杀的剪辑[https://www.twitch.tv/takayaspec ... se-xuYoDEHzwGyFc7a8](https://www.twitch.tv/takayaspecial/clip/GenerousHumbleTubersPRChase-xuYoDEHzwGyFc7a8)
 
+
+*****
+
+####  TiHaru  
+##### 17250#       发表于 2024-8-28 00:02
+
+这都不和千女打 我说主播被ng不是没道理的
+

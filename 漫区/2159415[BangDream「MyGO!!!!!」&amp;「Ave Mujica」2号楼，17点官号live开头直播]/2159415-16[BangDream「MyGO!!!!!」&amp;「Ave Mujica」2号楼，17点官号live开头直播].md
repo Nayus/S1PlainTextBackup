@@ -2528,3 +2528,25 @@ wsd决定把earth的mv留到下个月放，这样你们就不会觉得9月东西
 
 美帝那属于家大业大不在乎，喜欢暗暗踩一脚美帝的拆家太多了，一个个在意没意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御景  
+##### 22436#       发表于 2024-8-27 20:17
+
+MV是要和上次一样，和新歌一起发了
+
+
+*****
+
+####  NODY  
+##### 22437#       发表于 2024-8-27 20:21
+
+<img src="https://img.saraba1st.com/forum/202408/27/202127n5r53k3n83drydif.jpg" referrerpolicy="no-referrer">
+
+<strong>GV-TmI7W0AACQNt.jpg</strong> (1015.85 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 20:21 上传
+

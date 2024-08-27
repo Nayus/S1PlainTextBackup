@@ -1095,3 +1095,67 @@ IGN给个7分
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  6x6z6w  
+##### 109#       发表于 2024-8-28 00:13
+
+一个巴西画师在推上发了自己重新设计过的部分角色，id图上有  
+
+所以说搞zzzq的艺术家真的该死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+GV3GBFAXUAAe_h1.jpg
+(373.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001228anct2dfn66cd2chw.jpg" referrerpolicy="no-referrer">
+
+GV3GBElXwAEb9v5.jpg
+(398.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001234bc68d3z6cu9jjncc.jpg" referrerpolicy="no-referrer">
+
+GV3YdN5WAAAs6AG.jpg
+(444.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001236g6s69t9lu9b9h9hm.jpg" referrerpolicy="no-referrer">
+
+GV3YdPKXYAA4iym.jpg
+(538.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001241lfak7oa3of86o6ft.jpg" referrerpolicy="no-referrer">
+
+GV3GBG_XsAAuYVn.jpg
+(436.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001241lj83nknqilxjjcqq.jpg" referrerpolicy="no-referrer">
+
+GV3GBKGXMAAhCvL.jpg
+(486.99 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/001242nro74o8zi8jiiii7.jpg" referrerpolicy="no-referrer">
+

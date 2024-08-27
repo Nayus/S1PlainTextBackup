@@ -878,3 +878,69 @@ PV里的雪拉太幼了吧
 
 近藤：今年某个时间公布=近藤：我不知道任天堂什么时间开发布会，首发宣发交给他了
 
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3046#       发表于 2024-8-27 23:18
+
+感觉像UE或unity做的，外包吧
+
+*****
+
+####  洛克萨斯  
+##### 3047#       发表于 2024-8-27 23:22
+
+<img src="https://img.saraba1st.com/forum/202408/27/232159mym1bk6yuopxcy6x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (351.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-27 23:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还行？
+
+*****
+
+####  Pumpkin_ccc  
+##### 3048#       发表于 2024-8-27 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036203&amp;ptid=2160194" target="_blank">低调不圆滑 发表于 2024-8-27 23:06</a>
+
+感觉空re搞的时间挺久的，引擎看着就像是闪3的</blockquote>
+更像是伊苏的引擎，不过也可能是同一个
+
+*****
+
+####  卢迪克  
+##### 3049#       发表于 2024-8-27 23:23
+
+任天堂：空之轨迹重制将支持简体中文版
+
+*****
+
+####  Aeons  
+##### 3050#       发表于 2024-8-27 23:23
+
+总感觉有点复古，不过建模不错
+
+
+*****
+
+####  KevinGraham  
+##### 3051#       发表于 2024-8-27 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036394&amp;ptid=2160194" target="_blank">Pumpkin_ccc 发表于 2024-8-27 23:22</a>
+更像是伊苏的引擎，不过也可能是同一个</blockquote>
+sen3是老pe吧，黎1和ysx应该都是起源1魔改
+
+*****
+
+####  古畑任三郎2015  
+##### 3052#       发表于 2024-8-27 23:26
+
+有没有机会当ns2护航作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

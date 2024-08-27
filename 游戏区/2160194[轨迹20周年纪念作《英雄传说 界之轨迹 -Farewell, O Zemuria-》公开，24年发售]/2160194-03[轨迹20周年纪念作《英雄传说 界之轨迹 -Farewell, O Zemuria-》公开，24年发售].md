@@ -665,3 +665,91 @@ ec64847e9e2f0708028483d9ac24b899ab01f29e.jpg
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ravend233  
+##### 3022#       发表于 2024-8-27 22:47
+
+有一说一这画面的画风变化有点大，甚至怀疑是不是外包的（）
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  一步成诗  
+##### 3023#       发表于 2024-8-27 22:47
+
+这下好了，25空轨重制，26东迷2，27伊苏11，28界2，谁说轨迹不能挨到30周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3024#       发表于 2024-8-27 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66035940&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 22:47</a>
+
+这下好了，25空轨重制，26东迷2，27伊苏11，28界2，谁说轨迹不能挨到30周年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你把SC放哪了
+
+*****
+
+####  古畑任三郎2015  
+##### 3025#       发表于 2024-8-27 22:52
+
+为了给ns1遮丑吧，看我在ns2上展示多边形<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一步成诗  
+##### 3026#       发表于 2024-8-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66035992&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-27 22:50</a>
+
+你把SC放哪了</blockquote>
+噢不好意思，那你界2再往后排排吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新世界的派蒙  
+##### 3027#       发表于 2024-8-27 22:52
+
+嗯....PV看了下光影材质，又是一个以NS为主平台开发的游戏，不太能数毛
+
+*****
+
+####  古畑任三郎2015  
+##### 3028#       发表于 2024-8-27 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036016&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-27 22:52</a>
+噢不好意思，那你界2再往后排排吧</blockquote>
+爱博士不是说了吗，1209年世界毁灭，这就是界轨完结篇的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以不用有界2了，界不到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  KevinGraham  
+##### 3029#       发表于 2024-8-27 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036031&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-8-27 22:52</a>
+嗯....PV看了下光影材质，又是一个以NS为主平台开发的游戏，不太能数毛</blockquote>
+动作也比ys x和黎僵很多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3030#       发表于 2024-8-27 22:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多看了两眼，总觉得是外包的（）
+
+*****
+
+####  r1r2r3  
+##### 3031#       发表于 2024-8-27 22:58
+
+猜测一个空轨重制卖的比界轨多
+

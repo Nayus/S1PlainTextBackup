@@ -2342,3 +2342,25 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 我寻思着logo上也没写1st啊</blockquote>
 打开官网 告诉我你看到了什么
 
+
+*****
+
+####  卢迪克  
+##### 3197#       发表于 2024-8-28 14:01
+
+两点了 依旧没有杂志速报<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3198#       发表于 2024-8-28 14:03
+
+这期杂志不是没有吗
+
+*****
+
+####  ravend233  
+##### 3199#       发表于 2024-8-28 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法：钱都花给老任了，FAMI不熟
+

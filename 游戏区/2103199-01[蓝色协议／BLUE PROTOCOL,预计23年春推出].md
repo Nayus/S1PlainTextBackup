@@ -381,3 +381,11 @@ SEGA的PSO也这副德行
 
 只能说还好似了
 
+
+*****
+
+####  是谁的书画  
+##### 928#       发表于 2024-8-28 13:59
+
+哎，这游戏死之前都没能玩上还怪可惜的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

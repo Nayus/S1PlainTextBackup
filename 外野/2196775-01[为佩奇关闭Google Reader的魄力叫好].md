@@ -496,3 +496,20 @@ RSS只适合那些你不想错过更新的东西，比如特定渠道的新闻�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  损友阿德  
+##### 48#       发表于 2024-8-28 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040331&amp;ptid=2196775" target="_blank">CCauchy 发表于 2024-8-28 11:34</a>
+
+用rsshub也叫能rss了吗
+
+论坛助手,iPhone</blockquote>
+我不知道你说的是什么意思。
+
+我用的是自己搭建的ttrss阅读器，收取的源既有rsshub的源，也有网友们分享的源。
+
+既然软件里带了rss，用起来也是rss的体验，那么，就可以算作是rss了吧
+

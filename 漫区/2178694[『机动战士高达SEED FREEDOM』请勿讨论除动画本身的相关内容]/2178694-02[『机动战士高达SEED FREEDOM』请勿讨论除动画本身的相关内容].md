@@ -316,3 +316,19 @@ ft心爱的黄毛 新规里面可能不会领便当了
 比较吃惊的是魔蟹居然带X翼背包，套件本身就有简易版的无限正义贰的上半身
 等于说就算不买HGCE无限正义贰也能该有的玩法都能玩<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  死难者23er  
+##### 1930#       发表于 2024-8-28 14:29
+
+可以确定这次的特别版有新的配音内容，买到票的话一定去看首映
+
+<img src="https://img.saraba1st.com/forum/202408/28/142943h92jytw6926zzcwt.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2727.png</strong> (221.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 14:29 上传
+

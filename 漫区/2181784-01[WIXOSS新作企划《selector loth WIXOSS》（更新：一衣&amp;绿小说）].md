@@ -611,3 +611,16 @@ https://www.takaratomy.co.jp/pro ... ectorlothwixoss.php
 漫画有说更新时间吗？
 看了下两个月过去还是只有第一话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  灵魂收割机  
+##### 49#         楼主| 发表于 2024-8-28 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040879&amp;ptid=2181784" target="_blank">啪嗒啪嗒嗒 发表于 2024-8-28 12:14</a>
+
+漫画有说更新时间吗？
+
+看了下两个月过去还是只有第一话</blockquote>
+没有新消息<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

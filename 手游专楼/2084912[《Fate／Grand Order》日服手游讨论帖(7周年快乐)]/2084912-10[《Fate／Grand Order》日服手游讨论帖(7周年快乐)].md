@@ -12081,3 +12081,29 @@ md四星怎么沉了
 
 3十连+3呼符，1BB1XX1水上都市，齐了，之前抽学姐的大暴死算是给我回过气来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  清河子  
+##### 14442#       发表于 2024-8-28 19:31
+
+BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但是我想要当期五星礼装结果又多抽了40连才爆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+挺好的，心满意足，有珠当时倾家荡产也没出的债都回来了
+
+*****
+
+####  清河子  
+##### 14443#       发表于 2024-8-28 19:32
+
+顺便这次四星好难出，我两个池子都抽了不少，四星一个都没爆，好想要徐福但是不敢嗯抽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 14444#       发表于 2024-8-28 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又是马修锁前排，吐了
+

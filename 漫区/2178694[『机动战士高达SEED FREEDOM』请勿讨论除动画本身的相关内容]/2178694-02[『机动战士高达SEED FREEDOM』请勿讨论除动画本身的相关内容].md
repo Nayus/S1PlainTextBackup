@@ -402,3 +402,19 @@ ft心爱的黄毛 新规里面可能不会领便当了
 
 以后还要出前传OVA，估计会放在那里
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1938#       发表于 2024-8-28 19:37
+
+<img src="https://img.saraba1st.com/forum/202408/28/193708mi6lc4nanj9nnj6l.jpg" referrerpolicy="no-referrer">
+
+<strong>006SCGqIgy1ht3apkp8mtj30xc0xcq9f.jpg</strong> (92.66 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 19:37 上传
+
+啊，这背部怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

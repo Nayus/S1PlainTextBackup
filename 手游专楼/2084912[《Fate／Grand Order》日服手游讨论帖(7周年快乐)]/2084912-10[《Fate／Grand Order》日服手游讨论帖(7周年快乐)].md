@@ -12280,3 +12280,25 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 三天，还是先用了再去刷分</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正准备直接跳剧情把战斗全打了 等上中下出完一起看
 
+
+*****
+
+####  CHCL3  
+##### 14462#       发表于 2024-8-28 22:48
+
+豹了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">三十抽两宝
+
+*****
+
+####  DARKGRAY  
+##### 14463#       发表于 2024-8-28 22:50
+
+来到现在给补上了人死了为什么会回迦勒底的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CHCL3  
+##### 14464#       发表于 2024-8-28 22:51
+
+一到蘑菇主笔的章节就开始在锁助战上疯狂恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉打了两个小时都没打完，频繁的组队
+

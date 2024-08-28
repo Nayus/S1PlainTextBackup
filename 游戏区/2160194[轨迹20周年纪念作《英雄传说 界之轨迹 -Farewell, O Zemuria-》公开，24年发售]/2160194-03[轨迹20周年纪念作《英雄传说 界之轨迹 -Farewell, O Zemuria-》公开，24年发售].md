@@ -1984,3 +1984,34 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 真正的20周年作：空之轨迹the 1st
 
+
+*****
+
+####  Kojimaru  
+##### 3163#       发表于 2024-8-28 11:09
+
+但在美任nd里只播了十秒（串烧），欧美法孝子大骂任天堂坑爹<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/28/110828clz90li98pl08ezv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 11:08 上传
+
+*****
+
+####  Aeons  
+##### 3164#       发表于 2024-8-28 11:09
+
+多平台的话我觉得大部分能在玩轨的愿意买，单的话也能多但是毕竟也有没ns的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">吗的，昨天刚和朋友吹完比，朋友有我没有。
+
+*****
+
+####  ravend233  
+##### 3165#       发表于 2024-8-28 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明年买NS2呗，多完美
+

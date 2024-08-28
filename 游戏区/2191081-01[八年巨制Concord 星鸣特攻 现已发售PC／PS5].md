@@ -1312,3 +1312,30 @@ GV3GBKGXMAAhCvL.jpg
 
 "CHINA!"
 
+
+*****
+
+####  acropolis  
+##### 125#       发表于 2024-8-28 11:09
+
+到底是什么环节出了问题呢 烧脑啊索尼
+
+
+*****
+
+####  otakun  
+##### 126#       发表于 2024-8-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038262&amp;ptid=2191081" target="_blank">alex2092 发表于 2024-8-28 09:05</a>
+这个工作室只有一句话要喊
+
+"CHINA!"</blockquote>
+“MONKEY!”
+
+*****
+
+####  losm  
+##### 127#       发表于 2024-8-28 11:15
+
+搬去美国那天开始臭棋就没停过
+

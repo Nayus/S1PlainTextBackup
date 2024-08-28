@@ -492,3 +492,11 @@ SEGA的PSO也这副德行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特地赶来嘲笑
 
+
+*****
+
+####  nianiania  
+##### 941#       发表于 2024-8-28 20:36
+
+到底是那个领导授意的封禁国外IP的，动过脑子吗，宁愿关服也不愿跪下来认错也是很日本人了
+

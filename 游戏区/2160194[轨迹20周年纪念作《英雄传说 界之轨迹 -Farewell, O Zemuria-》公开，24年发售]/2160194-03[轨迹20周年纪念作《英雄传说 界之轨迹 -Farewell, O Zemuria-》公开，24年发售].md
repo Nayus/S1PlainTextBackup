@@ -2015,3 +2015,35 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明年买NS2呗，多完美
 
+
+*****
+
+####  aimbot  
+##### 3166#       发表于 2024-8-28 11:24
+
+<img src="https://img.saraba1st.com/forum/202408/28/112419n4ti6twz1ggp6rvf.jpg" referrerpolicy="no-referrer">
+
+<strong>1000079522.jpg</strong> (16.81 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 11:24 上传
+
+*****
+
+####  卢迪克  
+##### 3167#       发表于 2024-8-28 11:24
+
+ 本帖最后由 卢迪克 于 2024-8-28 11:27 编辑 
+
+这重制版开发时间挺紧的所以只有单平台，毕竟去年才终止那三部移植的开发，发生了什么让你法想做重制版了
+
+加上30号近藤直播玩的空轨改，说明这重制版还没开发到可以演示的程度，只是临时赶工拍了个pv出来
+
+*****
+
+####  ravend233  
+##### 3168#       发表于 2024-8-28 11:27
+
+战斗系统和演出完全没做，只是搭了个演示DEMO而已
+

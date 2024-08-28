@@ -11508,3 +11508,26 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 —— 来自 Xiaomi 230 ...</blockquote>
 这次的奏三是蘑菇亲自下场的，不用担心没活儿。只不过到时候这个活儿大家能不能接受又是另一回事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 14395#       发表于 2024-8-28 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65994878&amp;ptid=2084912" target="_blank">lokiling 发表于 2024-8-23 21:12</a>
+
+回坑玩家听说会补发每个角色升级羁绊的角色碎片，上线找了一圈没找到，有没有人知道在哪里领的 ...</blockquote>
+不论螺旋社是不是有心拖延，以他们的能力，奏章三出完之前有可能实装吗？别连奏章三也闪退就不错了
+
+*****
+
+####  beer  
+##### 14396#       发表于 2024-8-28 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65996671&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-24 00:14</a>
+
+90++
+
+一開始3隻巨人可以用大英雄解決</blockquote>
+90++为什么不考虑汇呆，二三面都有特攻属性吧
+

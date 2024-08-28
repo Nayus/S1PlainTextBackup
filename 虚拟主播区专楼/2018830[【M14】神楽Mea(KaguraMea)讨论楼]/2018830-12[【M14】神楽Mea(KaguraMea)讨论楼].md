@@ -7019,3 +7019,30 @@ mea队水平如何</blockquote>
 
 真神波比goat
 
+
+*****
+
+####  TiHaru  
+##### 17255#       发表于 2024-8-28 08:41
+
+千女监督确实有点恨了 打完一把就开始想抢波比+阴阳赛制 第二把直接暂停报经济又报对面状态
+
+*****
+
+####  受菊  
+##### 17256#       发表于 2024-8-28 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">感觉这比赛不ban波比的话真的只能指望队友出问题才有机会赢吊人这队了，过几天正赛估计见不到波比了
+
+*****
+
+####  古战场亡魂  
+##### 17257#       发表于 2024-8-28 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039774&amp;ptid=2018830" target="_blank">受菊 发表于 2024-8-28 11:01</a>
+
+感觉这比赛不ban波比的话真的只能指望队友出问题才有机会赢吊人这队了，过几天正赛估计见不到波比了 ...</blockquote>
+你搞错了，虽然去年mea正赛波比被ban了干干净净。但是今年有条规矩每队每场比赛前有一个英雄免ban。
+
+所以现在其他队才这么头疼，不然早禁了。
+

@@ -1339,3 +1339,28 @@ GV3GBKGXMAAhCvL.jpg
 
 搬去美国那天开始臭棋就没停过
 
+
+*****
+
+####  siebten  
+##### 128#       发表于 2024-8-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038117&amp;ptid=2191081" target="_blank">冰风血羽 发表于 2024-8-28 08:47</a>
+刷到个xqc直播退款的切片
+
+—— 来自 鹅球 v3.0.86-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最好笑的是切片下面的评论 你们应该意识到这游戏有多糟糕因为就连世界上最懒惰的千万富翁都退款了甚至他还写了评测
+
+*****
+
+####  Midnight.Coup  
+##### 129#       发表于 2024-8-28 11:18
+
+ 本帖最后由 Midnight.Coup 于 2024-8-28 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66037019&amp;ptid=2191081" target="_blank">晨曦之下 发表于 2024-8-28 00:37</a>
+我以为圣歌那样的奇迹不会再出现了
+真是一个炸的比一个大
+角色外形按照守望那样全部重新设计一遍也许能苟一 ...</blockquote>
+花个位数买个圣歌盘还能玩到十小时以上市面上最好的钢铁侠模拟器，比漫威版OW的钢铁侠手感还好
+这玩意作为OW+命运2熔炉的劣质私生子，换个皮也顶多苟活个一年半载吧
+

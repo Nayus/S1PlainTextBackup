@@ -2668,3 +2668,14 @@ KONAMI的世界级ip现在能拿多少出来？
 不懂日文，谁说说老的繁中翻译质量咋样？</blockquote>
 我感觉还不错，1代通了三遍
 
+
+*****
+
+####  剑鹰  
+##### 298#       发表于 2024-8-28 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036411&amp;ptid=2090186" target="_blank">缺德猫 发表于 2024-8-27 23:23</a>
+
+不懂日文，谁说说老的繁中翻译质量咋样？</blockquote>
+当年玩过，中文没感觉有啥问题，不过咱也不懂日文，不好说-_-
+

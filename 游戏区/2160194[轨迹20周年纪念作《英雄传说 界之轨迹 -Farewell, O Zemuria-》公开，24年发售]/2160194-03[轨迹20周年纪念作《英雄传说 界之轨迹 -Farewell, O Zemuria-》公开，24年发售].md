@@ -2540,3 +2540,20 @@ PS看起来没首发了
 
 <strong>可以预测未来ＰＳ平台的移植也会被取消！</strong>
 
+
+*****
+
+####  ravend233  
+##### 3217#       发表于 2024-8-28 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这个在研项目表是看不出有什么给界2插的位置了，但是舅舅都笃定还有个界2，看不懂一点
+
+*****
+
+####  CAFc  
+##### 3218#       发表于 2024-8-28 16:02
+
+黎2暴死不纯自己作的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，也不看看自己做的什么玩意
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -12035,3 +12035,11 @@ GGG是ゴ ...</blockquote>
 
 这新水b感觉又是个多核玩具，等开发吧
 
+
+*****
+
+####  alucardcz  
+##### 14437#       发表于 2024-8-28 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完的说下这次剧情断的恶心吗    最近也比较忙我考虑先把战斗全打了 等出完再一起看剧情
+

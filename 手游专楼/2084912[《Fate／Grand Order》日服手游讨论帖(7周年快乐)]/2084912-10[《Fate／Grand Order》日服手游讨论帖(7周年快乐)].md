@@ -11557,3 +11557,55 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 
 現在又開始儲石
 
+
+*****
+
+####  低调不圆滑  
+##### 14399#       发表于 2024-8-28 17:04
+
+双宝具，赢
+
+*****
+
+####  alucardcz  
+##### 14400#       发表于 2024-8-28 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没人豹 豹啊
+
+
+*****
+
+####  angelooo  
+##### 14401#       发表于 2024-8-28 17:08
+
+补硬币了
+
+
+*****
+
+####  cenhr  
+##### 14402#       发表于 2024-8-28 17:12
+
+竟然没有延长维修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  低调不圆滑  
+##### 14403#       发表于 2024-8-28 17:14
+
+不小心跳过了没看到BB迪拜有没有特殊演出
+
+*****
+
+####  khxooo  
+##### 14404#       发表于 2024-8-28 17:14
+
+果然还债了，xx6宝，雨神才1宝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 14405#       发表于 2024-8-28 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这 公主依然不够开第2个被动 还是得刷羁绊 得羁绊8才能开2个
+

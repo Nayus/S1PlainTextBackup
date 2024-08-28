@@ -2751,3 +2751,13 @@ ns2独占估计是伊苏了，迷城和空轨re应该是ns1+2
 
 2024-8-29 01:03 上传
 
+
+*****
+
+####  neosphere  
+##### 3240#       发表于 2024-8-29 02:45
+
+我睡觉前还瞄了眼预购，但是没想到要拉到最下面<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+特典只有一个教官服，能不能多端点上来啊。
+

@@ -7126,3 +7126,14 @@ lol痴恐怖
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  aisakahammer  
+##### 17265#       发表于 2024-8-28 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66041543&amp;ptid=2018830" target="_blank">makourisu-2 发表于 2024-8-28 13:07</a>
+
+怪事，为什么练出来个波比绝活呢</blockquote>
+喜欢很多年了啊
+

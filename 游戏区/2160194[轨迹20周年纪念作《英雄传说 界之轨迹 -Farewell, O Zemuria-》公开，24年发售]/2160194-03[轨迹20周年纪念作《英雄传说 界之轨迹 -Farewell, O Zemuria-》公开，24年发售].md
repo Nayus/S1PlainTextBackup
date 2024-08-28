@@ -2456,3 +2456,27 @@ PS看起来没首发了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SC虽然地图建模可以沿用，演出还是要重新做的，打包是不可能打包的
 
+
+*****
+
+####  卢迪克  
+##### 3211#       发表于 2024-8-28 15:00
+
+七星也说你法界轨准备的货卖完就不补了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liwangli1983  
+##### 3212#       发表于 2024-8-28 15:02
+
+问题是界轨之后的轨迹，也要转switch吗
+
+*****
+
+####  古畑任三郎2015  
+##### 3213#       发表于 2024-8-28 15:04
+
+说起来这个渲染色彩风格挺像dq8的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

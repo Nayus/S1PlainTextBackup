@@ -11934,3 +11934,13 @@ ssy这张表情神韵完全抓住了，牛逼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这迪BB的魔放要是和加NP能分开就好了...用起来还是不如C呆灵活
 
+
+*****
+
+####  angelooo  
+##### 14427#       发表于 2024-8-28 18:24
+
+<blockquote>khxooo 发表于 2024-8-28 18:03
+你这机器人动画不是会做吗</blockquote>
+水妖兰：我觉得他们在故意搞我
+

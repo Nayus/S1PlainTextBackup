@@ -375,3 +375,12 @@ ft心爱的黄毛 新规里面可能不会领便当了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1935#       发表于 2024-8-28 18:22
+
+服了，BD收录的是这个修正版，但不包括两个新加的尾声
+<img src="https://p.sda1.dev/19/986d4e530cb5d36165a7b4242690002d/image.jpg" referrerpolicy="no-referrer">
+

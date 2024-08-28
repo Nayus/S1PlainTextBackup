@@ -2557,3 +2557,13 @@ PS看起来没首发了
 
 —— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  Aeons  
+##### 3219#       发表于 2024-8-28 16:09
+
+ 本帖最后由 Aeons 于 2024-8-28 16:10 编辑 
+
+没见过笃定的，哦，七星又提了界二
+

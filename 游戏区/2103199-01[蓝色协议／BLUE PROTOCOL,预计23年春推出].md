@@ -357,3 +357,27 @@ SEGA的PSO也这副德行
 
 如果三年内看不到蓝协渲染的主机作我就要骂万代了
 
+
+*****
+
+####  iqbsh38  
+##### 926#       发表于 2024-8-28 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040585&amp;ptid=2103199" target="_blank">X9999 发表于 2024-8-28 11:52</a>
+
+感觉日本人的MMO都喜欢封国外IP，为什么不学学隔壁棒子搞全球化呢。。
+
+SEGA的PSO也这副德行
+
+ ...</blockquote>
+细狗服务器+弱弱程序员 没有应对大规模境外IP冲击的经验 服务器天天原地爆炸连自己家游客都逼走 那就不是土下座就能解决的了
+
+*****
+
+####  雪城飞鸟  
+##### 927#       发表于 2024-8-28 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看不懂日语，我甚至在等台服
+
+只能说还好似了
+

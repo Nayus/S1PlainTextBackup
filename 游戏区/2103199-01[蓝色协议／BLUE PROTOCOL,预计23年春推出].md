@@ -484,3 +484,11 @@ SEGA的PSO也这副德行
 
 喜欢封号是吧，好死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yone00000  
+##### 940#       发表于 2024-8-28 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特地赶来嘲笑
+

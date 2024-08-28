@@ -2852,3 +2852,11 @@ saki输得透彻，正常收音的ego无了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012871&amp;ptid=2130897" target="_blank">oznark 发表于 2024-8-25 23:25</a></blockquote>
 难道不是速水奏吗？
 
+
+*****
+
+####  liyropen  
+##### 6267#       发表于 2024-8-28 20:25
+
+只是挺奇怪为什么还需要一个专门主持电台节目的角色，有这么重视企划的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1353,3 +1353,42 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 
 —— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  一步成诗  
+##### 3096#       发表于 2024-8-28 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038055&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-28 08:39</a>
+
+说的是冷饭</blockquote>
+空轨重制这个也不能说不算冷饭吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3097#       发表于 2024-8-28 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038038&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-28 08:35</a>
+
+之前还说闪34好歹是连着出的，界12还得隔一年，这下好了，不止隔一年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2026迷城，2027伊苏11,空SC抢，要还有界2要不要直接剑指2029或者2030
+
+*****
+
+####  Pipcat  
+##### 3098#       发表于 2024-8-28 08:53
+
+空轨重制肯定更能吸引路人，干脆一路重制到零轨得了
+
+*****
+
+####  一步成诗  
+##### 3099#       发表于 2024-8-28 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038137&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-28 08:51</a>
+
+2026迷城，2027伊苏11,空SC抢，要还有界2要不要直接剑指2029或者2030</blockquote>
+2030的话看好首周大卖2万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -513,3 +513,17 @@ RSS只适合那些你不想错过更新的东西，比如特定渠道的新闻�
 
 既然软件里带了rss，用起来也是rss的体验，那么，就可以算作是rss了吧
 
+
+*****
+
+####  CCauchy  
+##### 49#       发表于 2024-8-28 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66042464&amp;ptid=2196775" target="_blank">损友阿德 发表于 2024-8-28 14:34</a>
+我不知道你说的是什么意思。
+
+我用的是自己搭建的ttrss阅读器，收取的源既有rsshub的源，也有网友们分享的 ...</blockquote>
+不是网站自己开的rss都是别人帮你爬的
+
+能rss的是部署了rsshub的，不是微博
+

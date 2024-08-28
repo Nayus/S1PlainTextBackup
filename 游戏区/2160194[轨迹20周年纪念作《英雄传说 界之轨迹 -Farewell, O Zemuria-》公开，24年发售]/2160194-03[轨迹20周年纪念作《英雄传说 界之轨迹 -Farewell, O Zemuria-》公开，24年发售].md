@@ -2417,3 +2417,34 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 官推把空轨重制置顶了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">等到9月26就把头图换了
 
+
+*****
+
+####  卢迪克  
+##### 3206#       发表于 2024-8-28 14:40
+
+日本ファルコム株式会社（代表取締役社長：近藤季洋、以下「日本ファルコム」）は、同社を代表するストーリーRPG「軌跡シリーズ」が生誕20周年を迎えたことを記念し、シリーズ第1作『英雄伝説 空の軌跡FC（ファーストチャプター）』の完全フルリメイク版となる『英雄伝説 空の軌跡 the 1st（ザ・ファースト）』（仮称）を、2025年にNintendo Switch用タイトルとして発売することをお知らせ致します。
+
+PS看起来没首发了
+
+*****
+
+####  ravend233  
+##### 3207#       发表于 2024-8-28 14:42
+
+估计NS限时独占半年到一年吧
+
+*****
+
+####  dio999  
+##### 3208#       发表于 2024-8-28 14:44
+
+把sc一起也出了吧，反正大部分地图也就是fc逆着来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3209#       发表于 2024-8-28 14:45
+
+赌ns2吧，九月也发售快半年了
+

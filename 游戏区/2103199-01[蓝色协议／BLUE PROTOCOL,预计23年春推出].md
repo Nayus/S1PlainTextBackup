@@ -508,3 +508,11 @@ SEGA的PSO也这副德行
 
 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  桐野心音  
+##### 943#       发表于 2024-8-28 21:43
+
+2024年还在封外国IP的网游，你怎么敢的，活该<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -12239,3 +12239,22 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 —— 来自 Xiaomi 230 ...</blockquote>
 别尬黑，玛修至少还有无敌贯通，防卫和当盾牌的功能
 
+
+*****
+
+####  alucardcz  
+##### 14458#       发表于 2024-8-28 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046626&amp;ptid=2084912" target="_blank">poor 发表于 2024-8-28 20:54</a>
+
+谢谢，那继续刷泳装先了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但现在有免费的复活石 好像马上要过期了
+
+
+*****
+
+####  希望之花  
+##### 14459#       发表于 2024-8-28 21:43
+
+这批灵脉石还有三天过期，剩四十个不用白不用
+

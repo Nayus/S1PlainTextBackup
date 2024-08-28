@@ -2608,3 +2608,26 @@ PS看起来没首发了
 
 没觉得大集结在哪了。是葱头的存在感不够吗
 
+
+*****
+
+####  memo2  
+##### 3225#       发表于 2024-8-28 16:41
+
+还能出2？剧情密度得咚成什么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3226#       发表于 2024-8-28 16:43
+
+中文版到底谁做，云豹完全不转推，还是你法找到新大腿了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a2276382  
+##### 3227#       发表于 2024-8-28 16:46
+
+中文感觉是找了老任那边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

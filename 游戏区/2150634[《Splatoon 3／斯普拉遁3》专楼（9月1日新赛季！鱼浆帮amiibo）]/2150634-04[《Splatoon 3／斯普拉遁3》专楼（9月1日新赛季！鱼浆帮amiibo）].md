@@ -788,3 +788,13 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 由手机上传
 2024-8-27 05:28 上传
 
+
+*****
+
+####  KBAC  
+##### 5026#       发表于 2024-8-28 16:34
+
+官网也该快发版本更新内容了，还会有牙膏没挤吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

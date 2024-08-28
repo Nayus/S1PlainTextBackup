@@ -2589,3 +2589,22 @@ PS看起来没首发了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我确实不知道界到底能在什么时候发售，真就2029是吧
 
+
+*****
+
+####  Aeons  
+##### 3223#       发表于 2024-8-28 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66043709&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-8-28 16:21</a>
+
+都大集结了还能水一作，看来界轨的定位是闪4，界二才是创轨么</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">其实目前情报根本没有任何集结画面，都是各干各的
+
+*****
+
+####  Archer长羽  
+##### 3224#       发表于 2024-8-28 16:33
+
+没觉得大集结在哪了。是葱头的存在感不够吗
+

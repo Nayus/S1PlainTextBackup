@@ -476,3 +476,11 @@ SEGA的PSO也这副德行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  vava  
+##### 939#       发表于 2024-8-28 19:20
+
+喜欢封号是吧，好死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

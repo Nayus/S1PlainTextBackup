@@ -2571,3 +2571,11 @@ MV是要和上次一样，和新歌一起发了
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  rikaren  
+##### 22440#       发表于 2024-8-28 19:24
+
+mv是真的打算和ether一起出啊
+

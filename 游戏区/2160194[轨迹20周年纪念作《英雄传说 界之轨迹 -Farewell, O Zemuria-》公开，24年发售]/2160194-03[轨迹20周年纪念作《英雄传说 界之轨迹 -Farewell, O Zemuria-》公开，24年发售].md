@@ -2448,3 +2448,11 @@ PS看起来没首发了
 
 赌ns2吧，九月也发售快半年了
 
+
+*****
+
+####  ravend233  
+##### 3210#       发表于 2024-8-28 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SC虽然地图建模可以沿用，演出还是要重新做的，打包是不可能打包的
+

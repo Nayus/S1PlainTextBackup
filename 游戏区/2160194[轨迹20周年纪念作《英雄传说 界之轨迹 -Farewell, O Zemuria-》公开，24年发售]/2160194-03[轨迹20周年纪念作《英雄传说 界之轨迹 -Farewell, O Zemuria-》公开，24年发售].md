@@ -1593,3 +1593,11 @@ ns独占这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单平台也不等于不需要人做啊，你法社60个人一年只能做一部，这一部目前看确实不是外包，迷城还得26去了
 
+
+*****
+
+####  卢迪克  
+##### 3121#       发表于 2024-8-28 09:30
+
+本质双平台，因为还有ns2，所以法不担心没有60帧版本给玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

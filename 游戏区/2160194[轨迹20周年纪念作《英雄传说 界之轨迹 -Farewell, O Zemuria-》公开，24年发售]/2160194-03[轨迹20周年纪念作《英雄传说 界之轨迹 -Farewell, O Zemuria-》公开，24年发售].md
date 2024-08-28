@@ -2074,3 +2074,51 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本社的话应该还是九月档，最快也是八月吧
 
+
+*****
+
+####  卢迪克  
+##### 3172#       发表于 2024-8-28 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040352&amp;ptid=2160194" target="_blank">zhuhh 发表于 2024-8-28 11:35</a>
+
+还有我也发现小约的跑步动作跟范恩和斯温的一模一样，还以为能有个新动作 ...</blockquote>
+甚至按键颜色都和黎12和ysx不同，早期版本啦，
+
+老任：pv你搞好没，晚了不带你了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clover293  
+##### 3173#       发表于 2024-8-28 11:43
+
+要看社内定位是啥了，你法也不是没干过一年出重制+新游戏的先例（树海+那由多）
+
+我还是觉得吧，老ip永远是老IP，老游戏永远是老游戏。fc的剧情我都快能背下来了
+
+我个人希望东迷2好好做的。。。
+
+*****
+
+####  古畑任三郎2015  
+##### 3174#       发表于 2024-8-28 11:45
+
+明年首发护航ns2，抛弃索索转投任任，能混个八旗身份吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  洛克萨斯  
+##### 3175#       发表于 2024-8-28 11:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">画师头牌村上在哪，哪就是旗舰产品，我对东迷2还是有信心的
+
+*****
+
+####  ravend233  
+##### 3176#       发表于 2024-8-28 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东迷2估计是在YSX的防反系统基础上进行设计的，应该也差不到哪去，就是明年应该是做不出来的
+

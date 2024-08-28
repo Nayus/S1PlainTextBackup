@@ -132,3 +132,30 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家都能看出来一眼褒姒的玩意儿到底是怎么通过立项的
 
+
+*****
+
+####  hinarin  
+##### 906#       发表于 2024-8-28 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">做啥都不行 收钱第一名 豪斯 加餐
+
+*****
+
+####  heseran  
+##### 907#       发表于 2024-8-28 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040386&amp;ptid=2103199" target="_blank">天王寺綯 发表于 2024-8-28 11:37</a>
+玩家都能看出来一眼褒姒的玩意儿到底是怎么通过立项的</blockquote>
+他别封外国ip，把海外充值搞方便点说不定能多苟半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，现在只能无情嘲笑了
+
+
+*****
+
+####  mwj  
+##### 908#       发表于 2024-8-28 11:45
+
+<blockquote>天王寺綯 发表于 2024-8-28 11:37
+玩家都能看出来一眼褒姒的玩意儿到底是怎么通过立项的</blockquote>
+记得这东西不是拖了好多年的结果吗，立项的时候估计还是mmo欣欣向荣的时候吧。
+

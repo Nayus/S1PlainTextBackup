@@ -2364,3 +2364,30 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你法：钱都花给老任了，FAMI不熟
 
+
+*****
+
+####  卢迪克  
+##### 3200#       发表于 2024-8-28 14:07
+
+08 年 28 月 24 日凌晨 1：10 更新：Falcom 的一位代表已向 Gematsu 澄清了以下平台和发布相关信息：
+
+平台 – “虽然该游戏已宣布登陆 Nintendo Switch，但目前在 PlayStation 和 PC 平台上的发布'待定'。它有可能在这些平台上发布，如果做出该决定，将在稍后的新闻稿中宣布。
+
+西方出版商 – “目前，西方出版商'待定'，这就是公告中提到我们公司名称的原因。我们有可能自己处理发行，但如果与当地出版商达成协议，他们将负责发行。
+
+
+*****
+
+####  卢迪克  
+##### 3201#       发表于 2024-8-28 14:09
+
+还没决定上不上也是牛逼
+
+*****
+
+####  ravend233  
+##### 3202#       发表于 2024-8-28 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打太极罢了，也没说PS和PC会同步
+

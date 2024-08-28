@@ -389,3 +389,13 @@ SEGA的PSO也这副德行
 
 哎，这游戏死之前都没能玩上还怪可惜的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  fuochai  
+##### 929#       发表于 2024-8-28 14:10
+
+喜欢乱封号
+
+—— 來自 Sony XQ-DQ72, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

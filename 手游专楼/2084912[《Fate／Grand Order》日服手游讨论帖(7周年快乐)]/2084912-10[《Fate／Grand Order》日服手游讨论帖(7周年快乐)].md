@@ -12155,3 +12155,28 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 只有240个硬币的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 14450#       发表于 2024-8-28 20:23
+
+奏三现在不打等减半再打会有什么损失吗？
+
+*****
+
+####  eilot  
+##### 14451#       发表于 2024-8-28 20:28
+
+又是學妹鎖前線和人數鎖，對方又是自帶無敵，只能靠學妹的無敵貫通來打
+
+能否再給她強化吧...
+
+
+*****
+
+####  シャル  
+##### 14452#       发表于 2024-8-28 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">家还是没出
+

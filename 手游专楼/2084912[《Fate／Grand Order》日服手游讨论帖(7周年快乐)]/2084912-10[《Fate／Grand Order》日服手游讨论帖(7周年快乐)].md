@@ -12126,3 +12126,32 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 主线正常操作，都坐下……坐下你妹啊！每次都这样搞很有意思吗！
 
+
+*****
+
+####  TheLoof  
+##### 14447#       发表于 2024-8-28 19:59
+
+ 本帖最后由 TheLoof 于 2024-8-28 20:02 编辑 
+
+二期四星真的好……微妙？
+不像尼基那样一眼歇，但是又处于好像没那么有用的阶段
+这绝对不是因为我只抽了个1+2的评价
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cenhr  
+##### 14448#       发表于 2024-8-28 20:00
+
+玛修还好，海盗哥才要命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 14449#       发表于 2024-8-28 20:02
+
+受不了了拿陈宫炸了，什么鬼东西
+
+只有240个硬币的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

@@ -426,3 +426,13 @@ ft心爱的黄毛 新规里面可能不会领便当了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  novyDC  
+##### 1940#       发表于 2024-8-28 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66042347&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-08-28 14:24:14</a></blockquote>那个无正2上半身是简化版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -12214,3 +12214,28 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 妈的，锁海盗哥和玛修，只让出包括他们在内的三人+敌人上无敌或回避，拖延时间<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  poor  
+##### 14456#       发表于 2024-8-28 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046564&amp;ptid=2084912" target="_blank">eilot 发表于 2024-8-28 20:48</a>
+沒太大所謂吧
+
+反正剛看了攻略網</blockquote>
+谢谢，那继续刷泳装先了
+
+
+*****
+
+####  cenhr  
+##### 14457#       发表于 2024-8-28 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046549&amp;ptid=2084912" target="_blank">Aunn 发表于 2024-8-28 20:47</a>
+
+别尬黑，海盗哥还有buff我不嫌少，茄子打这些全都自带闪避无敌的就搁这占指令卡呢。
+
+—— 来自 Xiaomi 230 ...</blockquote>
+别尬黑，玛修至少还有无敌贯通，防卫和当盾牌的功能
+

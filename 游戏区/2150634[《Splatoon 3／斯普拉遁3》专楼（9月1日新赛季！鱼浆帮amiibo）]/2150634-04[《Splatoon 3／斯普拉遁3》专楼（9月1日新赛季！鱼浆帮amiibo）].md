@@ -808,3 +808,11 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  墨染白泉  
+##### 5028#       发表于 2024-8-28 20:56
+
+香槟长热的审判日
+

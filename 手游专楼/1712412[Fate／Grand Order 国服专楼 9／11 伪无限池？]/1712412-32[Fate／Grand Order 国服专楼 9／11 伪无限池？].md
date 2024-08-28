@@ -30,3 +30,14 @@
 
 该死的。
 
+
+*****
+
+####  往日不在  
+##### 46722#       发表于 2024-8-28 20:58
+
+打90++，水摩根，汇呆，c呆这三个放一起都分不出谁是谁了
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

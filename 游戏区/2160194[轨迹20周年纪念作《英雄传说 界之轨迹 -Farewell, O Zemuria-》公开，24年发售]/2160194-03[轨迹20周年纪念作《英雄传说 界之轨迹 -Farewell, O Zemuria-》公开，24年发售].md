@@ -2511,3 +2511,32 @@ PS看起来没首发了
 
 都是黎2暴死的锅，黎4被空re取代了。
 
+
+*****
+
+####  snkcapcom  
+##### 3216#       发表于 2024-8-28 15:51
+
+<strong>事实上</strong>
+
+<strong>ＰＳ５主机要卖８万日元</strong>
+<strong>
+</strong>
+<strong>已经在日本造成炎上！</strong>
+<strong>
+</strong>
+<strong>一些中小第三方．态度开始转变！</strong>
+
+<strong>之前应该很多人注意到</strong>
+
+<strong>日本ＮＳ／ＰＣ平台开始变多了</strong>
+
+<strong>直接排除了ＰＳ４／ＰＳ５</strong>
+<strong>
+</strong>
+<strong>小高那後发ＰＳ加强版．销量也很惨！</strong>
+
+<strong>新作直接ＮＳ／ＰＣ平台</strong>
+
+<strong>可以预测未来ＰＳ平台的移植也会被取消！</strong>
+

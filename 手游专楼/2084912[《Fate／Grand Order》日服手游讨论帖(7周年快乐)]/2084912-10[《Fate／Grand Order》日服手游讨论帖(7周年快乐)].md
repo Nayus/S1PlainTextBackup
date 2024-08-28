@@ -12180,3 +12180,37 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">家还是没出
 
+
+*****
+
+####  Aunn  
+##### 14453#       发表于 2024-8-28 20:47
+
+别尬黑，海盗哥还有buff我不嫌少，茄子打这些全都自带闪避无敌的就搁这占指令卡呢。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  eilot  
+##### 14454#       发表于 2024-8-28 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046339&amp;ptid=2084912" target="_blank">poor 发表于 2024-8-28 20:23</a>
+
+奏三现在不打等减半再打会有什么损失吗？</blockquote>
+沒太大所謂吧
+
+反正剛看了攻略網
+
+奏三還是未完的(9月11日再開之後劇情)，關卡也不多，部份看來也有些少難度，懶的話可以直接用令咒解決，反正一天就能補回3令咒
+
+所以送的角色是甚麼還是不知道
+
+
+*****
+
+####  cenhr  
+##### 14455#       发表于 2024-8-28 20:52
+
+妈的，锁海盗哥和玛修，只让出包括他们在内的三人+敌人上无敌或回避，拖延时间<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

@@ -261,3 +261,62 @@
 
 听了两遍调色盘，散场，拉闸<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cIrcler  
+##### 9839#       发表于 2024-8-28 20:47
+
+本来想说的很多，关于你的那些耐久、那些练习、那些人际关系、那些成绩，想了想还是都删了。
+ 我发现大家总是用复杂势利的思维去思考你，却轻易地忽略你的决心与勇气，小看你的成长与努力，因此大家总是惊讶于你只是下定决心坚定的向前跑就已经光彩熠熠。
+“宇宙以其不息的欲望将一个歌舞炼
+为永恒。这欲望有怎样一个人间的姓名，大可忽略不计。”
+pro的勇者湊阿库娅，衷心祝愿在新的人生篇章你能永远做自己，每一天都开开心心。
+
+<img src="https://img.saraba1st.com/forum/202408/28/204717khdhhq8whtawsslg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-28-20-46-34-682_com.miui.gallery.jpg</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 20:47 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  星の守  
+##### 9840#       发表于 2024-8-28 20:51
+
+不管别人怎么想，她在我心中是真正的偶像，也是唯一的偶像
+
+
+*****
+
+####  喜闻乐见  
+##### 9841#       发表于 2024-8-28 20:52
+
+<img src="https://img.saraba1st.com/forum/202408/28/205156koukykppbfzfuvm9.png" referrerpolicy="no-referrer">
+
+<strong>4fd75b40ce2a23cab66b48a4a30e56c.png</strong> (24.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 20:51 上传
+
+*****
+
+####  裁决之光  
+##### 9842#       发表于 2024-8-28 20:53
+
+就这样成为传奇了，真酷
+
+<img src="https://img.saraba1st.com/forum/202408/28/205249si3p4d9wmyavwgvt.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2024-08-28 205207.png</strong> (3.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 20:52 上传
+

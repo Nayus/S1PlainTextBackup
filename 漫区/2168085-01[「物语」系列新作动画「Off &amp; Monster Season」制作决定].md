@@ -1741,3 +1741,13 @@ LO、 原画で参加させて頂きました！
 #物語シリーズ    オフ&amp;モンスターシーズン 第7話 #業物語「あせろらボナペティ 其ノ壹」絵コンテをほんの少しだけ手伝わせていただきました。ありがとうございました🙇
 <img src="https://p.sda1.dev/19/c91d4b673f2c44963fe629e3c1994357/20240829_003523.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oi99o  
+##### 791#       发表于 2024-8-29 07:18
+
+隔壁尼姑庵还真的有动画党以为尊主是男的（虽然马上就被剧透了），所以小说的先入为主真的影响很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

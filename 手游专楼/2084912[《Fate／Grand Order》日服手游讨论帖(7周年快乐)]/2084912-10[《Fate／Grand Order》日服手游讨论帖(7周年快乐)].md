@@ -12020,3 +12020,18 @@ GGG是ゴ ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044913&amp;ptid=2084912" target="_blank">蓮華 发表于 2024-8-28 18:05</a></blockquote>
 草，是姐姐恶魔的作者吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 14435#       发表于 2024-8-28 18:51
+
+120抽一个小莫两个雨神，崩溃了，等着每日单抽出货吧...
+
+*****
+
+####  天王寺凯伊姆  
+##### 14436#       发表于 2024-8-28 18:51
+
+这新水b感觉又是个多核玩具，等开发吧
+

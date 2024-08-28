@@ -12347,3 +12347,13 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 在看到BB alter的时候我在想，BB alter化后不该是个好人吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14468#       发表于 2024-8-29 05:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">第一次进入沙漠时兽蕾跳反前的那段剧情没看懂
+
+BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要说自己就是迦勒底的艾蕾
+

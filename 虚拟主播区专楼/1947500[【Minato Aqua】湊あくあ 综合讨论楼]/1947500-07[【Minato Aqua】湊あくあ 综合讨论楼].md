@@ -320,3 +320,13 @@ pro的勇者湊阿库娅，衷心祝愿在新的人生篇章你能永远做自�
 
 2024-8-28 20:52 上传
 
+
+*****
+
+####  andeloz  
+##### 9843#       发表于 2024-8-28 23:04
+
+<img src="https://p.sda1.dev/19/783f329d7928c38eaca27ee698f17f0b/Screenshot 2024-08-28 at 8.02.35 AM.png" referrerpolicy="no-referrer">
+
+有缘再见
+

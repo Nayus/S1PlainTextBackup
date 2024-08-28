@@ -1471,3 +1471,16 @@ IGN终于把分憋出来了</blockquote>
 
 索尼抄个游戏都要抄8年，真是家大业大，不怕败光
 
+
+*****
+
+####  ultraseven  
+##### 140#       发表于 2024-8-29 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66048352&amp;ptid=2191081" target="_blank">不服来辩 发表于 2024-8-29 00:39</a>
+
+搜了一下守望先锋，守望先锋2016年上线。星鸣特攻耗时8年制作，2024年上线，也就是2016开始制作。
+
+守望先 ...</blockquote>
+不是索尼做了8年，是做了7年然后去年被索尼收购
+

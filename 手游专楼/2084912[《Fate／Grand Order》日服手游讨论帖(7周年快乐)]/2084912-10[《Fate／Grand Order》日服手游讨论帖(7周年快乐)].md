@@ -12339,3 +12339,11 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 问题是不停的调整阵容还是很烦
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  格林卡罗尔  
+##### 14467#       发表于 2024-8-29 01:21
+
+在看到BB alter的时候我在想，BB alter化后不该是个好人吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

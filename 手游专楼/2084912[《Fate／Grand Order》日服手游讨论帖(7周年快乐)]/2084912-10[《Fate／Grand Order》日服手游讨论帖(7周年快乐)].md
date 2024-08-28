@@ -11926,3 +11926,11 @@ ssy这张表情神韵完全抓住了，牛逼
 
 2024-8-28 18:05 上传
 
+
+*****
+
+####  森兰丸  
+##### 14426#       发表于 2024-8-28 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">这迪BB的魔放要是和加NP能分开就好了...用起来还是不如C呆灵活
+

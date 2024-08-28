@@ -2177,3 +2177,20 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 只要一直出重制和新ip，就没人惦记轨迹总进度了对吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3183#       发表于 2024-8-28 12:27
+
+フィールドから街への移動もシームレスになり、「空の軌跡」の世界を臨場感たっぷりに演出しています。
+
+无缝移动
+
+*****
+
+####  黒鈴ミヲ  
+##### 3184#       发表于 2024-8-28 12:29
+
+我了个シームレス，终于不用看门口一排标点了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

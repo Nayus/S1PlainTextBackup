@@ -292,3 +292,18 @@ SEGA的PSO也这副德行
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  rs5621  
+##### 920#       发表于 2024-8-28 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040717&amp;ptid=2103199" target="_blank">cnmyster1ous 发表于 2024-8-28 12:00</a>
+
+现在是 幻想时间:
+
+狗代20年下半把这个游戏端了出来 提前看好的玩家和一部分pso2玩腻了的玩家加入
+
+21年中  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服端出来的东西，呃呃，这些人从上到下都在磨洋工吧
+

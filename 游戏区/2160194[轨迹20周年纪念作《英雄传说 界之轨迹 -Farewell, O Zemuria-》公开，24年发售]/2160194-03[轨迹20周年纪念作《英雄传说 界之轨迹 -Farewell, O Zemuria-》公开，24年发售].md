@@ -2258,3 +2258,29 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 你法还是知道什么能赚钱的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  snkcapcom  
+##### 3191#       发表于 2024-8-28 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66041475&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-28 13:00</a>
+
+感觉明天可能会更新一下官网了</blockquote>
+<strong>第一时间就有简体中文</strong>
+
+<strong>这可能是与任天堂合作的项目！</strong>
+
+<strong>另外</strong>
+
+<strong>サブカル河村「今回のPS5の大幅値上げはソニーが日本市场を见限る判断をしたからだろう」</strong>
+<strong>
+</strong>
+<strong>索尼已经放弃了日本市场！</strong>
+<strong>
+</strong>
+
+<strong>这让中小游戏公司为了生存</strong>
+
+<strong>转向与任天堂合作！</strong>
+

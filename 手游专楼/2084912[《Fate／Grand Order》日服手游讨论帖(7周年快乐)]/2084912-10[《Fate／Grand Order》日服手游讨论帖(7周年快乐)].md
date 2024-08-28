@@ -12043,3 +12043,33 @@ GGG是ゴ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完的说下这次剧情断的恶心吗    最近也比较忙我考虑先把战斗全打了 等出完再一起看剧情
 
+
+*****
+
+####  blue321  
+##### 14438#       发表于 2024-8-28 19:07
+
+井了之后这次50抽抽齐3个，运回来了
+
+倒是纠结起要不要抽学姐了
+
+*****
+
+####  TheLoof  
+##### 14439#       发表于 2024-8-28 19:08
+
+md四星怎么沉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 14440#       发表于 2024-8-28 19:15
+
+<blockquote>低调不圆滑 发表于 2024-8-28 18:36
+这个卡池抽起来确实很吓人，没事就出来一张月癌翻出来雨神</blockquote>
+最符合人设的一集
+
+（笑什么笑，你也被她追杀了好几次
+

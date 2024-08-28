@@ -304,3 +304,15 @@ ft心爱的黄毛 新规里面可能不会领便当了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gundammarkⅡ  
+##### 1929#       发表于 2024-8-28 14:24
+
+ 本帖最后由 gundammarkⅡ 于 2024-8-28 14:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039298&amp;ptid=2178694" target="_blank">novyDC 发表于 2024-8-28 10:27</a>
+终于来了</blockquote>
+比较吃惊的是魔蟹居然带X翼背包，套件本身就有简易版的无限正义贰的上半身
+等于说就算不买HGCE无限正义贰也能该有的玩法都能玩<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+

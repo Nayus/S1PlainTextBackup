@@ -2391,3 +2391,29 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打太极罢了，也没说PS和PC会同步
 
+
+*****
+
+####  宛若青空  
+##### 3203#       发表于 2024-8-28 14:17
+
+法不一直都那样，界轨公布是个人都知道有PS4&amp;PS5版，结果它偏要写个待定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 3204#       发表于 2024-8-28 14:20
+
+官推把空轨重制置顶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3205#       发表于 2024-8-28 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66042312&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-28 14:20</a>
+
+官推把空轨重制置顶了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">等到9月26就把头图换了
+

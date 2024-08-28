@@ -2629,3 +2629,32 @@ KONAMI的世界级ip现在能拿多少出来？
 
 看了一眼STEAM商店好像又锁国区
 
+
+*****
+
+####  黑上シグマ  
+##### 294#       发表于 2024-8-28 08:37
+
+<blockquote>引用第292楼茶茶丸于2024-08-28 08:33发表的  :
+
+看了一眼STEAM商店好像又锁国区</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">KONAMI的就别想steam了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.38)
+
+*****
+
+####  yyman  
+##### 295#       发表于 2024-8-28 08:39
+
+与此同时不声不响的出了DNS恶魔城合集
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Demi.Albertini  
+##### 296#       发表于 2024-8-28 08:40
+
+对于跳这么久只想到一个理由……就是外包给百英雄传制作公司做的…………
+

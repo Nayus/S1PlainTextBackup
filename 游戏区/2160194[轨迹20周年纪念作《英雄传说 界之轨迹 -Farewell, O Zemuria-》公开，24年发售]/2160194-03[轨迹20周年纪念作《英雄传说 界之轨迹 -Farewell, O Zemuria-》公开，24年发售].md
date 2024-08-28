@@ -1306,3 +1306,50 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 
 —— 来自 Lenovo L71091, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  卢迪克  
+##### 3091#       发表于 2024-8-28 08:39
+
+<blockquote>一步成诗 发表于 2024-8-28 08:37
+不过之前好像有说过打算一年出2-3部，明年上半年空重制下半年东迷2也不是没可能 ...</blockquote>
+说的是冷饭
+
+
+*****
+
+####  红叶  
+##### 3092#       发表于 2024-8-28 08:40
+
+空轨加零碧重制完 虾蛟正好准备退休了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo L71091, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a2042312  
+##### 3093#       发表于 2024-8-28 08:43
+
+没界二了吧，估计这部就是粗暴性填坑，最后整个大团圆完事，下一部新轨直接转到消息不通的东大陆省得吓跑新玩家。
+
+*****
+
+####  Falcomfans  
+##### 3094#       发表于 2024-8-28 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038066&amp;ptid=2160194" target="_blank">红叶 发表于 2024-8-28 08:40</a>
+空轨加零碧重制完 虾蛟正好准备退休了
+
+—— 来自 Lenovo L71091, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+再过十年也不到60岁啊
+
+*****
+
+####  yongze  
+##### 3095#       发表于 2024-8-28 08:45
+
+这重制版的渲染风格倒是挺贴合这部的田园童话风的，哪知道后面的续作越来越城市化现代化冷峻化
+
+—— 来自 vivo V2218A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

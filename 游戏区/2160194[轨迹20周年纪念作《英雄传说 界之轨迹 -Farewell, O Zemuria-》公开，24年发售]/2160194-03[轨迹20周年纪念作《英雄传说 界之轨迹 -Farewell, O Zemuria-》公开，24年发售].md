@@ -2677,3 +2677,14 @@ ff15销量还是很高的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看你法是还想最终章再赌一波的，他们只是觉得平台没选对加上黎轨主角团不吸引人
 
+
+*****
+
+####  卢迪克  
+##### 3233#       发表于 2024-8-28 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044547&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-28 17:31</a>
+
+我看你法是还想最终章再赌一波的，他们只是觉得平台没选对加上黎轨主角团不吸引人 ...</blockquote>
+七星说你法有首发ns2的项目，看看是啥
+

@@ -11977,3 +11977,46 @@ ssy这张表情神韵完全抓住了，牛逼
 
 11抽歪了个白贞我真是（只有一个小艾没雨神，还债还债
 
+
+*****
+
+####  alucardcz  
+##### 14431#       发表于 2024-8-28 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044726&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-28 17:46</a>
+
+400多石头2宝这不是平均水平么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听听 是人话吗 什么豹皇发言
+
+
+*****
+
+####  シャル  
+##### 14432#       发表于 2024-8-28 18:42
+
+BB2宝了
+
+但是我家还没出
+
+*****
+
+####  白金口袋  
+##### 14433#       发表于 2024-8-28 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044505&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-28 17:28</a>
+
+迪拜BB的双宝具：
+
+CCC是コスモス・クラフト・クレーター，Cosmos craft crater，银河工艺环形山？
+
+GGG是ゴ ...</blockquote>
+过剧情第一战BB宝具飞的太快了都没看清字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14434#       发表于 2024-8-28 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044913&amp;ptid=2084912" target="_blank">蓮華 发表于 2024-8-28 18:05</a></blockquote>
+草，是姐姐恶魔的作者吗<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

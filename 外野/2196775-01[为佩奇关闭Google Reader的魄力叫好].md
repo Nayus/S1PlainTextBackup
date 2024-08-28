@@ -435,3 +435,16 @@ RSS只适合那些你不想错过更新的东西，比如特定渠道的新闻�
 
 不如WX<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  havoc_cc  
+##### 43#       发表于 2024-8-28 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66037379&amp;ptid=2196775" target="_blank">snailium 发表于 2024-8-28 02:07</a>
+
+没错，为了避免信息茧房就要多订阅，然后实际上造成信息过载，只能根据标题来决定哪一条要点进去看，现在 ...</blockquote>
+我觉得信息茧房这个词很有趣，因为一个认知层面有手有脚的人理应不会进入这个场景，真把这个词挂嘴上或者让自己陷入这个局面我只能内心os一句【水平堪忧】。
+
+于我，如果关注内容有明显的偏向性，但总会有个纠正机制让自己看些【反派意见】，另外公共场合少说话露屁股更好了~
+

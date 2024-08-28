@@ -1713,3 +1713,48 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3135#       发表于 2024-8-28 10:08
+
+<img src="https://img.saraba1st.com/forum/202408/28/100817l4bjrexljjph0zph.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724810867559.jpg</strong> (74.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 10:08 上传
+
+*****
+
+####  SuNR1sE364  
+##### 3136#       发表于 2024-8-28 10:09
+
+今年宣发费全投进任任口袋了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新世界的派蒙  
+##### 3137#       发表于 2024-8-28 10:09
+
+这下销量超轨迹新作存疑了，检验霓虹小学生购买力的时候到了
+
+*****
+
+####  ravend233  
+##### 3138#       发表于 2024-8-28 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首发英文版，鬼佬销量算上应该不少的
+
+日本本土的实体版确实不好说
+
+*****
+
+####  天王寺凯伊姆  
+##### 3139#       发表于 2024-8-28 10:11
+
+给老任塞钱了呀这个
+

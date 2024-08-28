@@ -2561,3 +2561,13 @@ MV是要和上次一样，和新歌一起发了
 <img src="https://p.sda1.dev/19/9f975313e37317b430a1c024f66de279/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/2507e2b8a2c697dacfdb7726c43a8bbf/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  6030sylar  
+##### 22439#       发表于 2024-8-28 17:00
+
+昨天去的动星<img src="https://p.sda1.dev/19/728153d42f87c9182e9d9c5fdfb3881d/CMP_20240828165906474.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

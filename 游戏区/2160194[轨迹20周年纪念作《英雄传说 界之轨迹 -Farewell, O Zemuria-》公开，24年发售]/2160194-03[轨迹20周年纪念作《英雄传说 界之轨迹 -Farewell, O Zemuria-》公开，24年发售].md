@@ -1651,3 +1651,25 @@ PC肯定会有，PS估计会有，但是没首发了
 还以为明年大概率京迷结果半路杀出来个空轨抬明年，那么京后年你们界2……… ...</blockquote>
 有没有可能明年是2作？以前好像也这么干过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 3128#       发表于 2024-8-28 09:51
+
+空轨大概率明年四月档吧，之前的复刻也是这个时间
+
+*****
+
+####  ravend233  
+##### 3129#       发表于 2024-8-28 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前PV这个完成度（技能演出人物动作）如果是定版的话就太糙了，如果是早期版本的话那基本还得8-9月
+
+*****
+
+####  黒鈴ミヲ  
+##### 3130#       发表于 2024-8-28 09:53
+
+ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

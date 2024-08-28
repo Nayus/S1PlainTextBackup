@@ -2122,3 +2122,15 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东迷2估计是在YSX的防反系统基础上进行设计的，应该也差不到哪去，就是明年应该是做不出来的
 
+
+*****
+
+####  孔方兄  
+##### 3177#       发表于 2024-8-28 11:48
+
+<blockquote>古畑任三郎2015 发表于 2024-8-28 11:45
+明年首发护航ns2，抛弃索索转投任任，能混个八旗身份吗
+
+—— 来自 S1Fun</blockquote>
+我记得ns刚发售的时候，日本一上了魔界战记，忘记是几代了，然后卖了8万，日本一社长很高兴，还发文说索尼根本不管他们，然后第二天就删了并道歉
+

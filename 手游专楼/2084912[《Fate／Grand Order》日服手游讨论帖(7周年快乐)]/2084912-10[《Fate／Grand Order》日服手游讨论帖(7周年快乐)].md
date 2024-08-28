@@ -12269,3 +12269,14 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 但现在有免费的复活石 好像马上要过期了</blockquote>
 三天，还是先用了再去刷分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 14461#       发表于 2024-8-28 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66047125&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-28 21:47</a>
+
+三天，还是先用了再去刷分</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正准备直接跳剧情把战斗全打了 等上中下出完一起看
+

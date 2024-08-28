@@ -191,3 +191,13 @@
 
 快七年五常终于凑齐了，下二常拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1184#         楼主| 发表于 2024-8-28 12:41
+
+阿嘎在官推宣传那个新APP了，还推出特别优惠价。
+
+但是下面一堆骂的，“只能用信用卡，可不可以新增其他支付方式啊混蛋”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

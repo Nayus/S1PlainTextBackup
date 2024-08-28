@@ -11542,3 +11542,18 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 这次的奏三是蘑菇亲自下场的，不用担心没活儿。只不过到时候这个活儿大家能不能接受又是另一回事儿了 ...</blockquote>
 我要看在你迦的BB系列重新发回给白野，但把FGO公主发给藤丸当补偿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  eilot  
+##### 14398#       发表于 2024-8-28 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040009&amp;ptid=2084912" target="_blank">beer 发表于 2024-8-28 11:15</a>
+
+90++为什么不考虑汇呆，二三面都有特攻属性吧</blockquote>
+狂呆?
+
+之前留了300多石都沒有啊...
+
+現在又開始儲石
+

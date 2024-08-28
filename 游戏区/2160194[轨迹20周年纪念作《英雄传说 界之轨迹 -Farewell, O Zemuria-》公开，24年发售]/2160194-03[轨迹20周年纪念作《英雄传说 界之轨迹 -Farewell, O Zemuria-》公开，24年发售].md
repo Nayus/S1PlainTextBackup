@@ -2194,3 +2194,27 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 我了个シームレス，终于不用看门口一排标点了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3185#       发表于 2024-8-28 12:36
+
+ 本帖最后由 卢迪克 于 2024-8-28 12:39 编辑 
+
+你法什么都没说，都是别人在说
+初めての人でも遊びやすいようにフルリメイクされてNintendo Switchに登場します。
+
+シリーズの経験者だけでなく、これまでにRPGをプレイしたことの無い方でもストレスなく楽しんでいただけるよう、難易度設定や各種サポート機能も追加されています。
+
+遊撃士としてまい進するエステルとヨシュアに待ち受けるものとは……？
+
+『英雄伝説 空の軌跡 the 1st（仮称）』は2025年発売。続報をお待ちください。
+
+*****
+
+####  嘘月姫  
+##### 3186#       发表于 2024-8-28 12:38
+
+为了看起来是系列原点作方便拉新，偷摸把英雄伝説Ⅵ的序号给删了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

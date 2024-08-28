@@ -2134,3 +2134,20 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 —— 来自 S1Fun</blockquote>
 我记得ns刚发售的时候，日本一上了魔界战记，忘记是几代了，然后卖了8万，日本一社长很高兴，还发文说索尼根本不管他们，然后第二天就删了并道歉
 
+
+*****
+
+####  smdzh2  
+##### 3178#       发表于 2024-8-28 11:57
+
+近藤：那么答案只有一个了，向任天堂宣誓效忠
+东迷2NS/NS2限时独占！<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3179#       发表于 2024-8-28 12:03
+
+空RE如果真的卖得不错，迷城2在NS限时独占可能性还挺高的
+

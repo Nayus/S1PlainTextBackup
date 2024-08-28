@@ -176,3 +176,105 @@ SEGA的PSO也这副德行
 
 只能说活该了，又想骗钱又看不起外国人，你不死谁死。
 
+
+*****
+
+####  变老的大二  
+##### 911#       发表于 2024-8-28 11:58
+
+<blockquote>X9999 发表于 2024-8-28 11:52
+感觉日本人的MMO都喜欢封国外IP，为什么不学学隔壁棒子搞全球化呢。。
+
+SEGA的PSO也这副德行
+
+ ...</blockquote>
+日本人就是那么轴的。封号了自己不会背锅，那就封呗。
+
+*****
+
+####  rs5621  
+##### 912#       发表于 2024-8-28 11:58
+
+<img src="https://img.saraba1st.com/forum/202408/28/115703gbicvls66v14us0u.png" referrerpolicy="no-referrer">
+
+<strong>YG806II4AHWPCO3Z~MX5F{F.png</strong> (15.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 11:57 上传
+
+来点gbo2群友暴言
+
+*****
+
+####  cnmyster1ous  
+##### 913#       发表于 2024-8-28 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040386&amp;ptid=2103199" target="_blank">天王寺綯 发表于 2024-8-28 11:37</a>
+
+玩家都能看出来一眼褒姒的玩意儿到底是怎么通过立项的</blockquote>
+现在是 幻想时间:
+
+狗代20年下半把这个游戏端了出来 提前看好的玩家和一部分pso2玩腻了的玩家加入
+
+21年中 ngs端上来了 赶上蓝协马上一周年 卖相被暴打 大量遗老流入这边
+
+21年底 ff14 6.0端上来了 恶心人的剧情 少得可怜的新内容 被激怒的玩家看隔壁有个二次元mmo还可以 也来试一试
+
+再拉点vtb做工商，毕竟这游戏可以说是二次元圣体天生适合皮套人引流
+
+这不有了吗 不说打过ff14 至少偏安一隅好好活着没问题吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是他选择了磨到23年下半再端上来
+
+
+*****
+
+####  cnmyster1ous  
+##### 914#       发表于 2024-8-28 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040585&amp;ptid=2103199" target="_blank">X9999 发表于 2024-8-28 11:52</a>
+
+感觉日本人的MMO都喜欢封国外IP，为什么不学学隔壁棒子搞全球化呢。。
+
+SEGA的PSO也这副德行
+
+ ...</blockquote>
+棒子也分人的 挣不到钱的才会跪下来全球化
+
+冒险岛这种不愁挣钱的至今还需要韩国手机认证+频率不低的游戏内韩文验证
+
+*****
+
+####  童贞阿龙  
+##### 915#       发表于 2024-8-28 12:05
+
+是好消息啊，好似
+
+*****
+
+####  smdzh2  
+##### 916#       发表于 2024-8-28 12:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">阿蓝你又锁ip哦，休息一下吧，别封国外ip好不好
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">烦内
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">我才讲两句你又嫌我烦，我只希望你能让海外玩家获得更好的游戏体验，整天只看到你在这里封号
+<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">吼，关服了，都你害的啦，拜托！
+
+*****
+
+####  黄金时代  
+##### 917#       发表于 2024-8-28 12:05
+
+啥，真要停服了吗
+
+*****
+
+####  双刀少女  
+##### 918#       发表于 2024-8-28 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040277&amp;ptid=2103199" target="_blank">极速再生 发表于 2024-8-28 11:31</a>
+
+蓝协谈了一堆代理，狂杀外国ip，然而自己都没有熬到外服上线就似了。太好笑了吧。 ...</blockquote>
+国代好像是腾讯吧，版号都没拿到吧..
+

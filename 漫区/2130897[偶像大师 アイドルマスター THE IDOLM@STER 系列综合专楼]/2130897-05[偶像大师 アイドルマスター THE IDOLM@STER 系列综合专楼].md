@@ -2860,3 +2860,19 @@ saki输得透彻，正常收音的ego无了
 
 只是挺奇怪为什么还需要一个专门主持电台节目的角色，有这么重视企划的世界观吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Alleyht  
+##### 6268#       发表于 2024-8-28 23:42
+
+我的音游闪已经进化成了每天上线看小偶像们穿泳装戴项圈换花样跳舞的少儿不宜游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上班途中打歌都不敢让小朋友们看画面，都怪换装功能
+
+
+*****
+
+####  Ask_10A  
+##### 6269#       发表于 2024-8-28 23:46
+
+当年也没说儿力不进自机，说不定什么时候就进了呢
+

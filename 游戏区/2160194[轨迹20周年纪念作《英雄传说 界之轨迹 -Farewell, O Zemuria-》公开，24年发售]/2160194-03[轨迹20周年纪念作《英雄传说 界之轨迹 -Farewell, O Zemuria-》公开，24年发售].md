@@ -2737,3 +2737,17 @@ ns2独占估计是伊苏了，迷城和空轨re应该是ns1+2
 
 空轨bgm真的劲爽啊，感慨
 
+
+*****
+
+####  Squall25  
+##### 3239#       发表于 2024-8-29 01:03
+
+<img src="https://img.saraba1st.com/forum/202408/29/010330wdob1tk1gldlw186.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-29-01-02-44-034_com.scee.psxandroid-edit.jpg</strong> (202.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 01:03 上传
+

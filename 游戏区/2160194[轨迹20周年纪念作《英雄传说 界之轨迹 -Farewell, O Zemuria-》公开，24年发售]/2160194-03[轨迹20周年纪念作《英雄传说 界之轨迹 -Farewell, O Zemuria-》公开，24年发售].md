@@ -2218,3 +2218,28 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 为了看起来是系列原点作方便拉新，偷摸把英雄伝説Ⅵ的序号给删了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仲可怀  
+##### 3187#       发表于 2024-8-28 12:47
+
+<blockquote>引用第3182楼卢迪克于2024-08-28 12:27发表的  :
+
+フィールドから街への移動もシームレスになり、「空の軌跡」の世界を臨場感たっぷりに演出しています。无缝......</blockquote>
+云豹那个中文说了。城市野外无缝地图 
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  无动于衷  
+##### 3188#       发表于 2024-8-28 12:48
+
+<blockquote>嘘月姫 发表于 2024-8-28 12:38
+为了看起来是系列原点作方便拉新，偷摸把英雄伝説Ⅵ的序号给删了啊</blockquote>
+
+没看连FC都没写吗，司马昭之心路人皆知
+
+别跟我说PC初版就没写，这不是那年代了
+

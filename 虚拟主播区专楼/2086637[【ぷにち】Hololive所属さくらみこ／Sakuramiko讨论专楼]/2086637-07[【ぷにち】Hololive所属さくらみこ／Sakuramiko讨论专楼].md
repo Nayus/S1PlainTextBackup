@@ -7380,3 +7380,48 @@ miko看到ordan的转发以后自己也转了……
 
 polka第三场同时视听会在明天中午，即便是miko明天没有事白天也很难起得来估计很难参加
 
+
+*****
+
+####  holoan  
+##### 9506#         楼主| 发表于 2024-8-27 22:54
+
+明天很敏感，到底播不播，今天直播的状态看感觉还好（昨天提到前两天身体很累睡了很久的时间，之前会限也说过这一阵经常忙到深夜还睡不好），但是明天要播什么合适，估计很可能干脆就不播了
+
+后天又是7大豆了，或许明天会有什么solo直播在联动之间穿插一下吧，还有holosummer的bingo表任务一直没有去完成不知道是不是已经忘了
+
+*****
+
+####  holoan  
+##### 9507#         楼主| 发表于 2024-8-28 12:47
+
+另外有个事情昨天晚上收到R星官方订阅邮件，竟然是向全体玩家用户公开宣传日本的GTA角色扮演型玩法也就是俗称STGR
+
+<img src="https://img.saraba1st.com/forum/202408/28/124124jpoddb3mcmommdm1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/124151ov9m4v63ezgr145t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 12:41 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/124223m9993afyfy6awf9a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 12:42 上传
+
+这次官方不仅宣传fiveM还直接给STGR这种玩法站台也是清楚表明了一个官方的积极态度，这其实给平时很讲究“clean”的游戏直播许可的cover铺平了官方层面许可的道路
+
+另外还有一个就是starEN侧已经开始播EN的RPG GTA服也就是EN版的STGR，倒不是说直播的事而是STGR的海外业务拓展，如果说他们运营已经把游戏内的MOD相关文字菜单都翻译好了那到时候如果有holo服要同时邀请ENID的来参加就很简单了
+

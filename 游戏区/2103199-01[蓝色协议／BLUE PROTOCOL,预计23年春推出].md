@@ -307,3 +307,11 @@ SEGA的PSO也这副德行
 21年中  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服端出来的东西，呃呃，这些人从上到下都在磨洋工吧
 
+
+*****
+
+####  YaZ  
+##### 921#       发表于 2024-8-28 12:56
+
+好似<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

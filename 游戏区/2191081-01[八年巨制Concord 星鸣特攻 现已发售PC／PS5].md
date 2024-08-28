@@ -1401,3 +1401,19 @@ IGN 打了七分<img src="https://static.saraba1st.com/image/smiley/face2017/066
 
 全员一条命，死了观战的抢点，但是设置类可以留在场上。同时技能不是等cd而是每个角色做到特定数量不同动作回技能，这样就可以安排资源给下一局造优势阵地。
 
+
+*****
+
+####  a317216007  
+##### 134#       发表于 2024-8-28 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">IGN终于把分憋出来了
+
+<img src="https://img.saraba1st.com/forum/202408/28/224133cqyxq8ta8qqxzqtf.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240828224108.png</strong> (645.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 22:41 上传
+

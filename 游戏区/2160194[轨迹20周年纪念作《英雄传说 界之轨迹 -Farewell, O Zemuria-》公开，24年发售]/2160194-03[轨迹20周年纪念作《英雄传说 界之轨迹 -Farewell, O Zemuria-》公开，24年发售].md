@@ -2151,3 +2151,29 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 空RE如果真的卖得不错，迷城2在NS限时独占可能性还挺高的
 
+
+*****
+
+####  卢迪克  
+##### 3180#       发表于 2024-8-28 12:16
+
+你法经典常年吃尾气的，末期想起来ns独占也挺魔幻的。
+
+*****
+
+####  卢迪克  
+##### 3181#       发表于 2024-8-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040742&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-28 12:03</a>
+
+空RE如果真的卖得不错，迷城2在NS限时独占可能性还挺高的</blockquote>
+卖得好一路重制到闪12，完结篇都不用做了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 3182#       发表于 2024-8-28 12:24
+
+只要一直出重制和新ip，就没人惦记轨迹总进度了对吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

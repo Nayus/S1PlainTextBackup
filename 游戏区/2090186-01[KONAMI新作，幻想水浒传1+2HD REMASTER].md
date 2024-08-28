@@ -2658,3 +2658,13 @@ KONAMI的世界级ip现在能拿多少出来？
 
 对于跳这么久只想到一个理由……就是外包给百英雄传制作公司做的…………
 
+
+*****
+
+####  xisailuo  
+##### 297#       发表于 2024-8-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036411&amp;ptid=2090186" target="_blank">缺德猫 发表于 2024-8-27 23:23</a>
+不懂日文，谁说说老的繁中翻译质量咋样？</blockquote>
+我感觉还不错，1代通了三遍
+

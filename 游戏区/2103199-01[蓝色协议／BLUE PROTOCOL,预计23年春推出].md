@@ -278,3 +278,17 @@ SEGA的PSO也这副德行
 蓝协谈了一堆代理，狂杀外国ip，然而自己都没有熬到外服上线就似了。太好笑了吧。 ...</blockquote>
 国代好像是腾讯吧，版号都没拿到吧..
 
+
+*****
+
+####  冰风血羽  
+##### 919#       发表于 2024-8-28 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040789&amp;ptid=2103199" target="_blank">双刀少女 发表于 2024-8-28 12:06</a>
+国代好像是腾讯吧，版号都没拿到吧..</blockquote>
+看贴吧说是要二测了，用本体素材尸体+南极贱畜灵魂搓出来的东西，又是一个还没测出来本体就死的玩意儿。
+
+当初我看贴吧多少氪金的转眼就被封，全世界不知道多少这样的餐具，似了活该啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

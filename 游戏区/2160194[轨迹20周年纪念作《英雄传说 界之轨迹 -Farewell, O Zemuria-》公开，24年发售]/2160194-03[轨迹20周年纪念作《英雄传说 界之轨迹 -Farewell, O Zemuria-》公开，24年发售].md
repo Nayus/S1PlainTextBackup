@@ -1673,3 +1673,43 @@ PC肯定会有，PS估计会有，但是没首发了
 
 ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 3131#       发表于 2024-8-28 10:03
+
+真NS独占阿.....电子辣鸡忍不了一点，告辞
+
+*****
+
+####  clover293  
+##### 3132#       发表于 2024-8-28 10:04
+
+你法自己发行的话大概就是一个平台的样子，我看有媒体去问nisa了，说他们不负责发行。
+
+*****
+
+####  卢迪克  
+##### 3133#       发表于 2024-8-28 10:04
+
+老任官网上了介绍，历史首次
+
+<img src="https://img.saraba1st.com/forum/202408/28/100428exxa4h5hrd0c7d6r.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724810636510.jpg</strong> (171.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 10:04 上传
+
+*****
+
+####  ravend233  
+##### 3134#       发表于 2024-8-28 10:05
+
+花钱了啊，这个月宣发经费是不是都在这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

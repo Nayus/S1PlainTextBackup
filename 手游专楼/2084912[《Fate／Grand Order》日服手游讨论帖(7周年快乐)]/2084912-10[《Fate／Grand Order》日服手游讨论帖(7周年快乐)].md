@@ -12302,3 +12302,14 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 一到蘑菇主笔的章节就开始在锁助战上疯狂恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉打了两个小时都没打完，频繁的组队
 
+
+*****
+
+####  cenhr  
+##### 14465#       发表于 2024-8-28 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66047665&amp;ptid=2084912" target="_blank">CHCL3 发表于 2024-8-28 22:51</a>
+
+一到蘑菇主笔的章节就开始在锁助战上疯狂恶心人感觉打了两个小时都没打完，频繁的组队 ...</blockquote>
+还要锁两个+敌人上无敌回避等等恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+

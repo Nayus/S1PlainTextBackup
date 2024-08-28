@@ -2310,3 +2310,18 @@ syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 怎么bravegroup亏的这么多啊。
 还以为买了这么多有什么底气呢<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zjoi  
+##### 641#       发表于 2024-8-28 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66045314&amp;ptid=2171972" target="_blank">格林卡罗尔 发表于 2024-8-28 18:46</a>
+
+最近石神のぞみ开了黑神话，栞葉るり开了只狼，一边是现充一边是铅字中毒者平时都不怎么打游戏，想着看哪边 ...</blockquote>
+哈巴狗琉璃是要打游戏的
+
+是尼尔就能打几百个小时的硬核玩家。。。
+
+石神是真的纯小白
+

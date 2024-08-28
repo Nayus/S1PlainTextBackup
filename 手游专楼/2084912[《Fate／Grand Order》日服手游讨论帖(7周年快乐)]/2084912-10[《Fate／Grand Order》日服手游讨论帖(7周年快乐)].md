@@ -11531,3 +11531,14 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 一開始3隻巨人可以用大英雄解決</blockquote>
 90++为什么不考虑汇呆，二三面都有特攻属性吧
 
+
+*****
+
+####  cenhr  
+##### 14397#       发表于 2024-8-28 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039535&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-28 10:45</a>
+
+这次的奏三是蘑菇亲自下场的，不用担心没活儿。只不过到时候这个活儿大家能不能接受又是另一回事儿了 ...</blockquote>
+我要看在你迦的BB系列重新发回给白野，但把FGO公主发给藤丸当补偿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

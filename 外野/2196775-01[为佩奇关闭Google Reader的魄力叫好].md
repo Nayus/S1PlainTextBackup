@@ -484,3 +484,15 @@ RSS只适合那些你不想错过更新的东西，比如特定渠道的新闻�
 问下google read ...</blockquote>
 基于网页，方便，而且排版也好，抓取够及时
 
+
+*****
+
+####  CCauchy  
+##### 47#       发表于 2024-8-28 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039553&amp;ptid=2196775" target="_blank">损友阿德 发表于 2024-8-28 10:47</a>
+可以啊，用rsshub可以订阅个人的rss，也有油猴插件可以嗅探微博的rss订阅地址。同样的YTB也可以订阅。 ...</blockquote>
+用rsshub也叫能rss了吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

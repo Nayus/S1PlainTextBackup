@@ -63,3 +63,72 @@
 
 笑死了bn<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  h1r0  
+##### 897#       发表于 2024-8-28 11:29
+
+笑死，游戏做不好运营做不好，怎么好意思端出来的
+
+*****
+
+####  ikusakong  
+##### 898#       发表于 2024-8-28 11:30
+
+不如好好做你的tales of 吧<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+*****
+
+####  663jzq  
+##### 899#       发表于 2024-8-28 11:31
+
+好似<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空洞骑士  
+##### 900#       发表于 2024-8-28 11:31
+
+这死的也太快了，美服上线了吗？
+
+*****
+
+####  极速再生  
+##### 901#       发表于 2024-8-28 11:31
+
+蓝协谈了一堆代理，狂杀外国ip，然而自己都没有熬到外服上线就似了。太好笑了吧。<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 902#       发表于 2024-8-28 11:31
+
+好似，运营不知道想赚什么钱，比我是你爹都过分，又要打你，又要你给我钱。
+
+这也是万代南梦宫不做人的一个侧面。
+
+*****
+
+####  虎纹鲨鱼鱼鱼  
+##### 903#       发表于 2024-8-28 11:32
+
+除了皮相一坨的玩意,玩法十年前,商业化一坨狗屎,运营活动也一坨,想不出来当初我为啥还去充了一期通行证的
+
+
+*****
+
+####  冰风血羽  
+##### 904#       发表于 2024-8-28 11:32
+
+好似好似，中午开罐可乐庆祝下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  天王寺綯  
+##### 905#       发表于 2024-8-28 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩家都能看出来一眼褒姒的玩意儿到底是怎么通过立项的
+

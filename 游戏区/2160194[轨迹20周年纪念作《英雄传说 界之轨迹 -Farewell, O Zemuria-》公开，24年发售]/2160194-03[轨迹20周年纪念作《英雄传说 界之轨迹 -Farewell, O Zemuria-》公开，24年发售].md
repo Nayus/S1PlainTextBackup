@@ -2047,3 +2047,30 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 战斗系统和演出完全没做，只是搭了个演示DEMO而已
 
+
+*****
+
+####  a2042312  
+##### 3169#       发表于 2024-8-28 11:35
+
+也挺糊弄事的，还在早期开发，应该是明年9月档吧
+
+*****
+
+####  zhuhh  
+##### 3170#       发表于 2024-8-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038270&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-8-28 09:05</a>
+
+哇这经典留言板反光，这复用动作，还不如外包呢。这pv完成度也低的吓人，法社别把底牌给献祭掉了
+
+ ...</blockquote>
+还有我也发现小约的跑步动作跟范恩和斯温的一模一样，还以为能有个新动作
+
+*****
+
+####  ravend233  
+##### 3171#       发表于 2024-8-28 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本社的话应该还是九月档，最快也是八月吧
+

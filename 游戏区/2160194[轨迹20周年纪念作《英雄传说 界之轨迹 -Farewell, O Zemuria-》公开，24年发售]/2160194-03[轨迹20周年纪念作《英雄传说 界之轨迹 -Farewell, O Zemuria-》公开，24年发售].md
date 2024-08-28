@@ -1519,3 +1519,77 @@ ns独占这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 后续应该还是会上ps和pc的，吧，就是看等多久了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  smdzh2  
+##### 3112#       发表于 2024-8-28 09:17
+
+乐，25年单平台
+说明东轨2同年稳了？
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 3113#       发表于 2024-8-28 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧这还搞单平台怕不是疯了
+
+*****
+
+####  卢迪克  
+##### 3114#       发表于 2024-8-28 09:18
+
+加藤：让我看看界轨和空轨哪个卖得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3115#       发表于 2024-8-28 09:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PC肯定会有，PS看你法社还做不做吧（
+
+*****
+
+####  悠悠你心  
+##### 3116#       发表于 2024-8-28 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ns独占的话，我ps奖杯这一块找谁补啊
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  neosphere  
+##### 3117#       发表于 2024-8-28 09:21
+
+已经准备好买ns2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3118#       发表于 2024-8-28 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结合PS5涨价，你法社PS平台地位大概会越来越低
+
+
+*****
+
+####  卢迪克  
+##### 3119#       发表于 2024-8-28 09:22
+
+ 本帖最后由 卢迪克 于 2024-8-28 09:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038378&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-8-28 09:17</a>
+
+乐，25年单平台
+
+说明东轨2同年稳了？</blockquote>
+法：想多了，要全球同步，我60个人做单平台都很吃力了，这作为了新玩家制作的，不就优先保证有z世代用户的ns平台吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3120#       发表于 2024-8-28 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单平台也不等于不需要人做啊，你法社60个人一年只能做一部，这一部目前看确实不是外包，迷城还得26去了
+

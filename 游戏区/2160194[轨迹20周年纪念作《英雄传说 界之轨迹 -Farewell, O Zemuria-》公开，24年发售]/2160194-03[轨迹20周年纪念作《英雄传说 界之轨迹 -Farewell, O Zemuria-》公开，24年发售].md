@@ -2284,3 +2284,50 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 <strong>转向与任天堂合作！</strong>
 
+
+*****
+
+####  卢迪克  
+##### 3192#       发表于 2024-8-28 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66041317&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-8-28 12:47</a>
+
+云豹那个中文说了。城市野外无缝地图 
+
+----发送自 STAGE1 App for Android.</blockquote>
+云豹还在装死，港任的
+
+*****
+
+####  仲可怀  
+##### 3193#       发表于 2024-8-28 13:17
+
+<blockquote>引用第3187楼无动于衷于2024-08-28 12:48发表的  :
+
+嘘月姫 发表于 2024-8-28 12:38为了看起来是系列原点作方便拉新，偷摸把英雄伝説Ⅵ的序号......</blockquote>
+都1st了还要啥fc
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  无动于衷  
+##### 3194#       发表于 2024-8-28 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66041662&amp;ptid=2160194" target="_blank">仲可怀 发表于 2024-8-28 13:17</a>
+
+都1st了还要啥fc
+
+----发送自 STAGE1 App for Android.</blockquote>
+我寻思着logo上也没写1st啊 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3195#       发表于 2024-8-28 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66041694&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-28 13:20</a>
+
+我寻思着logo上也没写1st啊</blockquote>
+1st是ND上的作品名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

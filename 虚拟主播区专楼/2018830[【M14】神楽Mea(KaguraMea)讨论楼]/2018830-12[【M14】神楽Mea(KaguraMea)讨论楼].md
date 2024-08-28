@@ -7106,3 +7106,13 @@ lol痴恐怖
 
 怪事，为什么练出来个波比绝活呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TiHaru  
+##### 17263#       发表于 2024-8-28 13:17
+
+与其说强不如说日本人弱得可怕
+
+几个铂金也不会波比对策那真没办法了
+

@@ -384,3 +384,13 @@ ft心爱的黄毛 新规里面可能不会领便当了
 服了，BD收录的是这个修正版，但不包括两个新加的尾声
 <img src="https://p.sda1.dev/19/986d4e530cb5d36165a7b4242690002d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 1936#       发表于 2024-8-28 18:34
+
+现在不加，以后出多几个版本的BD就会加上去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

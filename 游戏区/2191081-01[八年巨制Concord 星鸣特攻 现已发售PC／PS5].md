@@ -1445,3 +1445,15 @@ good
 
 让你无fa可说
 
+
+*****
+
+####  なるぼど  
+##### 138#       发表于 2024-8-29 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66047588&amp;ptid=2191081" target="_blank">a317216007 发表于 2024-8-28 22:42</a>
+IGN终于把分憋出来了</blockquote>
+这就是泥潭某些老害畜生天天批黑神话ign八分甚至给高了的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

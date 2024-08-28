@@ -448,3 +448,16 @@ RSS只适合那些你不想错过更新的东西，比如特定渠道的新闻�
 
 于我，如果关注内容有明显的偏向性，但总会有个纠正机制让自己看些【反派意见】，另外公共场合少说话露屁股更好了~
 
+
+*****
+
+####  损友阿德  
+##### 44#       发表于 2024-8-28 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66029943&amp;ptid=2196775" target="_blank">CCauchy 发表于 2024-8-27 14:24</a>
+
+微博能rss？
+
+论坛助手,iPhone</blockquote>
+可以啊，用rsshub可以订阅个人的rss，也有油猴插件可以嗅探微博的rss订阅地址。同样的YTB也可以订阅。
+

@@ -11485,3 +11485,13 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兽蕾不也就上一个卡池
 
+
+*****
+
+####  Aunn  
+##### 14393#       发表于 2024-8-28 10:39
+
+今天开奏章了？只能说希望你月还有活，摆这么大阵仗，连周年带泳活都铺垫一个月了。
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

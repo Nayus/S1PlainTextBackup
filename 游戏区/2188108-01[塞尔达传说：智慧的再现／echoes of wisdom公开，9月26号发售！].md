@@ -32,3 +32,14 @@
 
 还一个月发售了也没什么新情报释出，本来还以为会有个专属直面会，这作不会真的就是个小品作吧
 
+
+*****
+
+####  佛罗伦萨  
+##### 456#       发表于 2024-8-28 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038643&amp;ptid=2188108" target="_blank">Kiyohara_Yasuke 发表于 2024-8-28 09:40</a>
+
+还一个月发售了也没什么新情报释出，本来还以为会有个专属直面会，这作不会真的就是个小品作吧 ...</blockquote>
+这两天应该会有最终pv了，昨天官推介绍林克，意味着pv2的内容已经复读完了。8月30号有现场试玩，所以最近两天应该有消息了
+

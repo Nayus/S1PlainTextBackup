@@ -1827,3 +1827,53 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 法：界轨，不认识的孩子呢</blockquote>
 界轨真是超绝偷感，一股偷偷摸摸卖最好大家买了就忘的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 3148#       发表于 2024-8-28 10:40
+
+这公开时间也是尴尬，刚好是界轨发售前一个月，风头全被抢完了，五万死侍能否坚持住<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 3149#       发表于 2024-8-28 10:43
+
+<img src="https://img.saraba1st.com/forum/202408/28/104339cp7y86g3wpqgyq7u.jpg" referrerpolicy="no-referrer">
+
+<strong>1724813003337.jpg</strong> (231.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 10:43 上传
+
+*****
+
+####  新世界的派蒙  
+##### 3150#       发表于 2024-8-28 10:44
+
+我有一招，可救界轨
+
+那就是界轨首发特典追加空轨RE体验版下载码<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3151#       发表于 2024-8-28 10:44
+
+ 本帖最后由 卢迪克 于 2024-8-28 10:45 编辑 
+
+近藤：任天堂，你终于公布了，我来太极了，界轨顺便介绍一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古畑任三郎2015  
+##### 3152#       发表于 2024-8-28 10:46
+
+界轨要不临时加个艾约救场吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

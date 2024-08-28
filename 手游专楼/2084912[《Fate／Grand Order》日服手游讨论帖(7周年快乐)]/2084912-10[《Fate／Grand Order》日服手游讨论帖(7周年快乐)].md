@@ -11609,3 +11609,88 @@ NND就是让大家农来拖延时间<img src="https://static.saraba1st.com/image
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这 公主依然不够开第2个被动 还是得刷羁绊 得羁绊8才能开2个
 
+
+*****
+
+####  低调不圆滑  
+##### 14406#       发表于 2024-8-28 17:16
+
+这BB解包都还在藏，三技能是减CD图标
+
+*****
+
+####  保罗赫伯特  
+##### 14407#       发表于 2024-8-28 17:19
+
+BB是大拐吗，石头不够了啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  サイトヒメア  
+##### 14408#       发表于 2024-8-28 17:22
+
+BYD四星比五星还难抽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">两个BB了BX还没出，雨神就一个
+
+—— 来自 nubia NX769J, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  低调不圆滑  
+##### 14409#       发表于 2024-8-28 17:22
+
+BB是活人加月癌特殊拐，自己还带个天星跟万物特攻
+
+*****
+
+####  Jamaisvu  
+##### 14410#       发表于 2024-8-28 17:23
+
+ 本帖最后由 Jamaisvu 于 2024-8-28 17:24 编辑 
+
+搬一下新从者立绘：
+
+泳装雨神：
+
+<img src="https://img.saraba1st.com/forum/202408/28/172421rvwve5t2tvyjopdd.jpg" referrerpolicy="no-referrer">
+
+<strong>6BDC7D8076F02141F799846767981304.jpg</strong> (478.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:24 上传
+
+泳装小艾：
+
+<img src="https://img.saraba1st.com/forum/202408/28/172427wmh2i6ynxv2h4sf7.jpg" referrerpolicy="no-referrer">
+
+<strong>C09AB6E6FFC31C0AF30C739F04DD8C02.jpg</strong> (291.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:24 上传
+
+迪拜BB：
+
+<img src="https://img.saraba1st.com/forum/202408/28/172434u85m1qoht04ttxo0.jpg" referrerpolicy="no-referrer">
+
+<strong>925EE5ED73420FBFF43861472AB9C2B3.jpg</strong> (139.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/172434htjeofl0jo2fw0jt.jpg" referrerpolicy="no-referrer">
+
+<strong>F52FD919036B66AFA87A54E430ABCC8A.jpg</strong> (112.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:24 上传
+
+（灵基三以上剧情锁）
+

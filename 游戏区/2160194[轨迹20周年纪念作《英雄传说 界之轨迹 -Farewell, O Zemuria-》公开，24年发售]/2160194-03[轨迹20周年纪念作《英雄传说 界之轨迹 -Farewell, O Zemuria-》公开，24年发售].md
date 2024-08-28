@@ -2631,3 +2631,29 @@ PS看起来没首发了
 
 中文感觉是找了老任那边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哆哆鸡  
+##### 3228#       发表于 2024-8-28 17:18
+
+界以后直接小说补完结局算了，你好我好大家好，互相不折磨
+
+*****
+
+####  卢迪克  
+##### 3229#       发表于 2024-8-28 17:23
+
+<blockquote>哆哆鸡 发表于 2024-8-28 17:18
+界以后直接小说补完结局算了，你好我好大家好，互相不折磨</blockquote>
+什么ff15
+
+*****
+
+####  smdzh2  
+##### 3230#       发表于 2024-8-28 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044389&amp;ptid=2160194" target="_blank">哆哆鸡 发表于 2024-8-28 18:18</a>
+界以后直接小说补完结局算了，你好我好大家好，互相不折磨</blockquote>
+快进到近藤出走
+

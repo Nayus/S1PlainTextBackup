@@ -1885,3 +1885,102 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 空重制生放顺便说下界轨，乐死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3154#       发表于 2024-8-28 10:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">带你玩就不错力，不要不识好歹
+
+*****
+
+####  一步成诗  
+##### 3155#       发表于 2024-8-28 11:01
+
+早说了界轨各种不正常表现对比东迷明显就是被弃了有人还不信，现在加上空轨够明显了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3156#       发表于 2024-8-28 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">空RE直接ND一分钟，比什么说法都有含金量
+
+*****
+
+####  Aeons  
+##### 3157#       发表于 2024-8-28 11:03
+
+单平套台...
+
+*****
+
+####  卢迪克  
+##### 3158#       发表于 2024-8-28 11:04
+
+塞钱了
+
+<img src="https://img.saraba1st.com/forum/202408/28/110403babfv3l39s6v1kbs.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724814215525.jpg</strong> (156.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 11:04 上传
+
+*****
+
+####  Aeons  
+##### 3159#       发表于 2024-8-28 11:06
+
+全平台销量无条件高，单的话..
+
+*****
+
+####  卢迪克  
+##### 3160#       发表于 2024-8-28 11:06
+
+ 本帖最后由 卢迪克 于 2024-8-28 11:07 编辑 
+
+赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/28/110640xl9zgukrwkpp5avk.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724814371168.jpg</strong> (97.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 11:06 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/110644lz7cjaz5ej77c0zg.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1724814368473.jpg</strong> (90.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 11:06 上传
+
+
+*****
+
+####  ravend233  
+##### 3161#       发表于 2024-8-28 11:06
+
+看NS小登有多少能爆的咯（
+
+单NS都能爆起来那你法社确实可能以后首发都没PS了
+
+*****
+
+####  一步成诗  
+##### 3162#       发表于 2024-8-28 11:07
+
+虚假的20周年作：界之轨迹
+
+真正的20周年作：空之轨迹the 1st
+

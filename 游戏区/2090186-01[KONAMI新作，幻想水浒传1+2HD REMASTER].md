@@ -2679,3 +2679,13 @@ KONAMI的世界级ip现在能拿多少出来？
 不懂日文，谁说说老的繁中翻译质量咋样？</blockquote>
 当年玩过，中文没感觉有啥问题，不过咱也不懂日文，不好说-_-
 
+
+*****
+
+####  棺材叔叔  
+##### 299#       发表于 2024-8-28 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可乐妹锁国区到底是图个啥啊
+
+损人不利己。。
+

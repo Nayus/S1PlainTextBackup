@@ -2657,3 +2657,23 @@ PS看起来没首发了
 界以后直接小说补完结局算了，你好我好大家好，互相不折磨</blockquote>
 快进到近藤出走
 
+
+*****
+
+####  哆哆鸡  
+##### 3231#       发表于 2024-8-28 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044443&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-28 17:23</a>
+
+什么ff15</blockquote>
+ff15销量还是很高的。
+
+轨迹现在就是卖不动，老人退坑不少，新人拉不动，再硬做到结局真的是粉丝厂家互相折磨罢了
+
+*****
+
+####  ravend233  
+##### 3232#       发表于 2024-8-28 17:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看你法是还想最终章再赌一波的，他们只是觉得平台没选对加上黎轨主角团不吸引人
+

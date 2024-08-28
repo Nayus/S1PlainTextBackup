@@ -11860,3 +11860,48 @@ GGG我知道，是勇者王GAOGAIGAR（
 竟然没有特殊召唤演出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹！不愧是豹子王
 
+
+*****
+
+####  保罗赫伯特  
+##### 14420#       发表于 2024-8-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044657&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2024-8-28 17:40</a>
+
+新的四星礼装画得真好，不过我看见眼镜美少女还以为是沙条绫香...一看名字才发现是吉娜可。</blockquote>
+第一反应是芥前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 14421#       发表于 2024-8-28 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044667&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-28 17:41</a>
+
+豹！不愧是豹子王</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">400多石头2宝这不是平均水平么
+
+*****
+
+####  onemoment  
+##### 14422#       发表于 2024-8-28 17:46
+
+BB用2000石头左右6宝了，这次周年＋泳装用的石头也算是在预期之内了吧nmd<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/28/174403q5v5tjjzd670n7s9.jpg" referrerpolicy="no-referrer">
+
+<strong>fgo.jpg</strong> (286.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 17:44 上传
+
+*****
+
+####  angelooo  
+##### 14423#       发表于 2024-8-28 17:46
+
+这吉娜可什么文学少女233
+
+ssy这张表情神韵完全抓住了，牛逼
+

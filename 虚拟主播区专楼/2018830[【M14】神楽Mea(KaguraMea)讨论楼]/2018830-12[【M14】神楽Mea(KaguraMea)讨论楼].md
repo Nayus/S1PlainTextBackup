@@ -7145,3 +7145,23 @@ lol痴恐怖
 
 主播说玩了八年波比了
 
+
+*****
+
+####  受菊  
+##### 17267#       发表于 2024-8-28 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66040110&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-8-28 11:21</a>
+
+你搞错了，虽然去年mea正赛波比被ban了干干净净。但是今年有条规矩每队每场比赛前有一个英雄免ban。
+
+所以 ...</blockquote>
+哦原来有这个规则，那主播爽死了.JPG
+
+*****
+
+####  Dualist彩  
+##### 17268#       发表于 2024-8-28 17:47
+
+钢铁大使是这样的，主播可能比较享受守护一切的感觉
+

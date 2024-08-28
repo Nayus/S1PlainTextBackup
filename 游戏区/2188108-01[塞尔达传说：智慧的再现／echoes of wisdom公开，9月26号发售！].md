@@ -24,3 +24,11 @@
 
 急急急，这一个月怎么过啊<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 455#       发表于 2024-8-28 09:40
+
+还一个月发售了也没什么新情报释出，本来还以为会有个专属直面会，这作不会真的就是个小品作吧
+

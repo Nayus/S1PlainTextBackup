@@ -1601,3 +1601,53 @@ ns独占这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 本质双平台，因为还有ns2，所以法不担心没有60帧版本给玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  nozomitech  
+##### 3122#       发表于 2024-8-28 09:37
+
+应该会追加的吧，毕竟也不是没有过先例，祖宗之法不可变啊！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哆哆鸡  
+##### 3123#       发表于 2024-8-28 09:37
+
+伊苏10的ns版做得怎么样？是法社自己做的吗
+
+*****
+
+####  ravend233  
+##### 3124#       发表于 2024-8-28 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038594&amp;ptid=2160194" target="_blank">哆哆鸡 发表于 2024-8-28 09:37</a>
+
+伊苏10的ns版做得怎么样？是法社自己做的吗</blockquote>
+30帧能玩水平，本社制作
+
+*****
+
+####  ravend233  
+##### 3125#       发表于 2024-8-28 09:38
+
+PC肯定会有，PS估计会有，但是没首发了
+
+*****
+
+####  卢迪克  
+##### 3126#       发表于 2024-8-28 09:40
+
+估计你法统计ysx拉的新玩家都是来自ns呗。ps没多少就没优先级了
+
+
+*****
+
+####  哆哆鸡  
+##### 3127#       发表于 2024-8-28 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036139&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-8-27 23:01</a>
+
+还以为明年大概率京迷结果半路杀出来个空轨抬明年，那么京后年你们界2……… ...</blockquote>
+有没有可能明年是2作？以前好像也这么干过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

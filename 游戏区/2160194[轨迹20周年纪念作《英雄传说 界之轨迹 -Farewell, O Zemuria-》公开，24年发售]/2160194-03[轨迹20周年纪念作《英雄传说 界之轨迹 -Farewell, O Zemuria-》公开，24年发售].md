@@ -1423,3 +1423,99 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 
 哇这经典留言板反光，这复用动作，还不如外包呢。这pv完成度也低的吓人，法社别把底牌给献祭掉了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3102#       发表于 2024-8-28 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，本社制作的话现在的版本属于相当早期的版本，有相当多内容应该都是临时凑合搭DEMO用的，黎1从宣发开始到发售连UI都是一直在重做
+
+你法社一年一作那是真的一个游戏只有一年工期的
+
+*****
+
+####  卢迪克  
+##### 3103#       发表于 2024-8-28 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038270&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-8-28 09:05</a>
+
+哇这经典留言板反光，这复用动作，还不如外包呢。这pv完成度也低的吓人，法社别把底牌给献祭掉了
+
+ ...</blockquote>
+法：我每年七月做新作，老任把九月发布会提前到八月了，我就一个多月时间赶pv，有这完成度你就偷着乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 3104#       发表于 2024-8-28 09:09
+
+<img src="https://img.saraba1st.com/forum/202408/28/090817h5mlqlq2ldc6gm5n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 09:08 上传
+
+[https://www.falcom.co.jp/sora/](https://www.falcom.co.jp/sora/)
+
+法社官号发了，单平台<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 3105#       发表于 2024-8-28 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66038270&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-8-28 09:05</a>
+
+哇这经典留言板反光，这复用动作，还不如外包呢。这pv完成度也低的吓人，法社别把底牌给献祭掉了
+
+ ...</blockquote>
+指望动作模组不重复你还是太高看你法（以及他的外包朋友们）了
+
+*****
+
+####  华发夜眼[CN]  
+##### 3106#       发表于 2024-8-28 09:11
+
+单平台也太搞了
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  SuNR1sE364  
+##### 3107#       发表于 2024-8-28 09:11
+
+ns独占这么搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3108#       发表于 2024-8-28 09:11
+
+也许只是首发单平台。。。。。吧？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3109#       发表于 2024-8-28 09:13
+
+真独占啊？
+
+*****
+
+####  卢迪克  
+##### 3110#       发表于 2024-8-28 09:15
+
+猜到了，毕竟ysx 老任就给了30秒，空轨可是给了一分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3111#       发表于 2024-8-28 09:16
+
+后续应该还是会上ps和pc的，吧，就是看等多久了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

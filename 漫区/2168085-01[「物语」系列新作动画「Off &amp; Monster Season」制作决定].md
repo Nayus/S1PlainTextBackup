@@ -1712,3 +1712,32 @@ bgm太好听了，看爽了
 
 真是让人羡慕嫉妒
 
+
+*****
+
+####  Piano-Forest  
+##### 790#         楼主| 发表于 2024-8-29 00:37
+
+[https://x.com/Saqu09307728/status/1827342663387099586](https://x.com/Saqu09307728/status/1827342663387099586)
+
+ヘルプでLO、原画１カット参加しておりました！誘って頂いたやんさんありがとうございます！
+
+松田さんと一緒に原画デビュー果たしました！
+<img src="https://p.sda1.dev/19/3820fbc97d65dde5b3dad811cd3881a6/20240829_003508.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/7XNQM/status/1827339304676331871](https://x.com/7XNQM/status/1827339304676331871)
+
+#物語シリーズ     #業物語
+
+LO、 原画で参加させて頂きました！
+
+原画としての初クレジットとても嬉しいです！誘って頂いたやんさんありがとうございます！さくやさんと一緒に原画デビューしました！
+
+（担当したカットはリプに書きます）
+<img src="https://p.sda1.dev/19/5b62c094f1eb617f5beb69f53afb1a77/20240829_003520.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/seryu_oekaki/status/1827343143664283884](https://x.com/seryu_oekaki/status/1827343143664283884)
+
+#物語シリーズ    オフ&amp;モンスターシーズン 第7話 #業物語「あせろらボナペティ 其ノ壹」絵コンテをほんの少しだけ手伝わせていただきました。ありがとうございました🙇
+<img src="https://p.sda1.dev/19/c91d4b673f2c44963fe629e3c1994357/20240829_003523.jpg" referrerpolicy="no-referrer">
+

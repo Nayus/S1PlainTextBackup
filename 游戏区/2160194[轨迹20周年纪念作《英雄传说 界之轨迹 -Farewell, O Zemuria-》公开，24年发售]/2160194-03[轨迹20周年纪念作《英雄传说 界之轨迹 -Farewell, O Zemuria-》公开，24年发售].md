@@ -1392,3 +1392,34 @@ SC暂且不说，FC剧本你直接照搬肯定是最好的选择<img src="https:
 2026迷城，2027伊苏11,空SC抢，要还有界2要不要直接剑指2029或者2030</blockquote>
 2030的话看好首周大卖2万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3100#       发表于 2024-8-28 09:05
+
+界2应该没了，后续作品基本都是ns基底开发了，ns2和ps5玩60帧版本。谁还会做界2这玩意？
+
+*****
+
+####  Kojimaru  
+##### 3101#       发表于 2024-8-28 09:05
+
+<img src="https://img.saraba1st.com/forum/202408/28/090044sv3ydztc09y19tqz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/090202pfq5g8t9fo1bt05q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (648.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 09:02 上传
+
+哇这经典留言板反光，这复用动作，还不如外包呢。这pv完成度也低的吓人，法社别把底牌给献祭掉了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

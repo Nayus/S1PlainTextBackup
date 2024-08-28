@@ -11782,3 +11782,81 @@ BB下垂的好厉害，人老珠黄了？<img src="https://static.saraba1st.com/
 
 这小艾怎么感觉比雨神还要骚
 
+
+*****
+
+####  xunit  
+##### 14416#       发表于 2024-8-28 17:35
+
+GGG我知道，是勇者王GAOGAIGAR（
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 保罗赫伯特| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  森兰丸  
+##### 14417#       发表于 2024-8-28 17:36
+
+ 本帖最后由 森兰丸 于 2024-8-28 17:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202408/28/173434x978d677jl6dq06l.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 17:34 上传
+
+还好还好....第2个BB很快就来了
+
+加起来一共400多个石头和20多张护符.....2个BB...5个水雨神....2个水黑X....还歪了个哪咤....收手了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 14418#       发表于 2024-8-28 17:40
+
+<img src="https://img.saraba1st.com/forum/202408/28/173842gzi3f3f7ch3fcdea.png" referrerpolicy="no-referrer">
+
+<strong>1724837884093.png</strong> (139.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:38 上传
+
+新的四星礼装画得真好，不过我看见眼镜美少女还以为是沙条绫香...一看名字才发现是吉娜可。
+
+<img src="https://img.saraba1st.com/forum/202408/28/174012s3wkokb3iax3ahb1.png" referrerpolicy="no-referrer">
+
+<strong>1724838008817.png</strong> (154.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-28 17:40 上传
+
+杀生院这张五星礼装也很邪魅，黑A表示严查画师。
+
+*****
+
+####  alucardcz  
+##### 14419#       发表于 2024-8-28 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66044522&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-28 17:29</a>
+
+干....300多石才出了第一个BB
+
+竟然没有特殊召唤演出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹！不愧是豹子王
+

@@ -2567,3 +2567,25 @@ PS看起来没首发了
 
 没见过笃定的，哦，七星又提了界二
 
+
+*****
+
+####  一步成诗  
+##### 3220#       发表于 2024-8-28 16:18
+
+黎2水界1水，没有界2共和国真的都是水了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然界2也可能是水
+
+*****
+
+####  新世界的派蒙  
+##### 3221#       发表于 2024-8-28 16:21
+
+都大集结了还能水一作，看来界轨的定位是闪4，界二才是创轨么
+
+*****
+
+####  ravend233  
+##### 3222#       发表于 2024-8-28 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过我确实不知道界到底能在什么时候发售，真就2029是吧
+

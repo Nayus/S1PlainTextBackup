@@ -7181,3 +7181,11 @@ lol痴恐怖
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没注意听，好像临时改了规则？虽然是图一乐的比赛不过是否有点...
 
+
+*****
+
+####  TiHaru  
+##### 17271#       发表于 2024-8-28 21:16
+
+这两个人隔空吵了一小时了，没ng就拉一个频道吵啊
+

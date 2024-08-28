@@ -500,3 +500,11 @@ SEGA的PSO也这副德行
 
 到底是那个领导授意的封禁国外IP的，动过脑子吗，宁愿关服也不愿跪下来认错也是很日本人了
 
+
+*****
+
+####  fjj036  
+##### 942#       发表于 2024-8-28 21:19
+
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

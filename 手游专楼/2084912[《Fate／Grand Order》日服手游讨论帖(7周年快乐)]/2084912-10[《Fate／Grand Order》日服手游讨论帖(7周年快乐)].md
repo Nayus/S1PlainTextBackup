@@ -12313,3 +12313,29 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 一到蘑菇主笔的章节就开始在锁助战上疯狂恶心人感觉打了两个小时都没打完，频繁的组队 ...</blockquote>
 还要锁两个+敌人上无敌回避等等恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14466#       发表于 2024-8-29 00:08
+
+打完了，在那么多的主线铺垫章节里也属于比较欢乐的，情节也很无厘头
+
+大部分笑点我都绷住了，但是月下三高达真的没绷住
+
+这是玩家梦想中的阵容.JPG
+
+下次能不能在晚上带着月亮出场
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+平心而论，这次恶心人程度还好，属于那种选克制就能赢
+
+1.自带无敌贯通能生很多事儿，因为你永远不知道对面凭啥一堆无敌
+
+2.打阿福用白贞打有特效
+
+3.双锁的情况下，你直接带俩10150能省很多事儿
+
+问题是不停的调整阵容还是很烦
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1758,3 +1758,72 @@ ns首发独占...难评<img src="https://static.saraba1st.com/image/smiley/face2
 
 给老任塞钱了呀这个
 
+
+*****
+
+####  妄想中毒  
+##### 3140#       发表于 2024-8-28 10:27
+
+销量肯定能超界轨啊，系列原点没有任何上手门槛不比又臭又长拖了十几部剧情还在挤牙膏的最新作强？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 3141#       发表于 2024-8-28 10:28
+
+其实我比较好奇sc重置了全国大停电那段剧情怎么改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3142#       发表于 2024-8-28 10:29
+
+官网pvcm腹泻式宣发，明天上杂志的也是空轨吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  未熟串烧  
+##### 3143#       发表于 2024-8-28 10:29
+
+可能真是要看看坚持留守PS平台的和愿意买NS版的粉丝数吧。别的IP新作和重置作品buff差太多，轨迹说不定还真有点参考价值。
+
+*****
+
+####  ravend233  
+##### 3144#       发表于 2024-8-28 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039327&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-8-28 10:28</a>
+
+其实我比较好奇sc重置了全国大停电那段剧情怎么改</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得会为了代入感照搬（）
+
+*****
+
+####  ravend233  
+##### 3145#       发表于 2024-8-28 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039333&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-28 10:29</a>
+
+官网pvcm腹泻式宣发，明天上杂志的也是空轨吧</blockquote>
+法：界轨，不认识的孩子呢
+
+
+*****
+
+####  nicholas30  
+##### 3146#       发表于 2024-8-28 10:32
+
+首發有中文和英文，用的肯定是老任的資源
+
+都NS獨占了，老任能不給點好處<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3147#       发表于 2024-8-28 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66039356&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-28 10:31</a>
+
+法：界轨，不认识的孩子呢</blockquote>
+界轨真是超绝偷感，一股偷偷摸摸卖最好大家买了就忘的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

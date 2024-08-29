@@ -427,3 +427,11 @@ Entergram的基本盘在主机那边吧，pc版做成r18那谁还买主机版
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  COLEETE  
+##### 54#       发表于 2024-8-30 01:41
+
+不是  连个中文都没鬼买啊   多娜都有中文吧
+

@@ -3175,3 +3175,13 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得看长谷川编的啥风格曲子吧？像Angles这种抒情曲真的挺好的
 
+
+*****
+
+####  前方暴雨预警  
+##### 22492#       发表于 2024-8-30 01:37
+
+我对长谷川最不满的是他人声旋律写的太烂，Angles和Earth已经比较好的那一档了。
+
+虽然金属乐通常不重视旋律性，但你邦的平均乐器水平和常规受众，还是挺重视人声的
+

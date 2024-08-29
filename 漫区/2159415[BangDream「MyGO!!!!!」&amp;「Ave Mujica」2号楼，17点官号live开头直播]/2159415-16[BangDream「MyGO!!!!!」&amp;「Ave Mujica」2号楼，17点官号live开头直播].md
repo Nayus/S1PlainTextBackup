@@ -3151,3 +3151,11 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 希望动画来几首新的传世名曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  六道明  
+##### 22489#       发表于 2024-8-29 22:30
+
+长谷川的火和土感觉都还好啊
+

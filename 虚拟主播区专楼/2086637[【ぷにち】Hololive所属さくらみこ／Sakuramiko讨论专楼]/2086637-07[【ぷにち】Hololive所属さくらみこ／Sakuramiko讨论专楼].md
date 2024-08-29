@@ -7425,3 +7425,42 @@ polka第三场同时视听会在明天中午，即便是miko明天没有事白�
 
 另外还有一个就是starEN侧已经开始播EN的RPG GTA服也就是EN版的STGR，倒不是说直播的事而是STGR的海外业务拓展，如果说他们运营已经把游戏内的MOD相关文字菜单都翻译好了那到时候如果有holo服要同时邀请ENID的来参加就很简单了
 
+
+*****
+
+####  holoan  
+##### 9508#         楼主| 发表于 2024-8-28 17:16
+
+今天投稿这首的曲名，确实你很懂
+
+<img src="https://img.saraba1st.com/forum/202408/28/171420dv2di4mmc2ai26qp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202408/28/171606h2hszr5h0fz6fwsg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.19 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-28 17:16 上传
+
+*****
+
+####  holoan  
+##### 9509#         楼主| 发表于 2024-8-29 10:20
+
+<img src="https://img.saraba1st.com/forum/202408/29/102000nho3o8rw93gw5lnu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (707.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 10:20 上传
+
+实物图（推上的），跟以前出过的帽子35P玩偶比起来小了一圈
+

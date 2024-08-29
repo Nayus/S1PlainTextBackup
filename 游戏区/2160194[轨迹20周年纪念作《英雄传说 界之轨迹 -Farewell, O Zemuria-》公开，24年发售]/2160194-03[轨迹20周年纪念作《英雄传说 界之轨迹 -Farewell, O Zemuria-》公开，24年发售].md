@@ -2822,3 +2822,59 @@ ns2独占估计是伊苏了，迷城和空轨re应该是ns1+2
 
 云豹请A9去本社试玩了，下周有新消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 3247#       发表于 2024-8-29 10:17
+
+为了一个界轨飞东京么，法社是不是要报销机票<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 3248#         楼主| 发表于 2024-8-29 10:18
+
+a9，估计也有别的媒体<blockquote>在东京参加了云豹娱乐举办的《界之轨迹》媒体活动，提前试玩了本作并采访了Falcom的近藤社长，还顺便问了问刚刚发表的《空之轨迹 the 1st》重制版。具体内容将在下周解禁。 ​​​</blockquote>
+
+*****
+
+####  仲可怀  
+##### 3249#       发表于 2024-8-29 10:21
+
+轨迹试玩真的没啥意义 伊苏还能玩出个手感之类的 轨迹重点全在剧情 这又不可能在试玩里说
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  悠悠你心  
+##### 3250#       发表于 2024-8-29 10:23
+
+ucg也去了，感觉下周会有界和空的宣发，噢，下周是9月了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  无动于衷  
+##### 3251#       发表于 2024-8-29 10:23
+
+轨迹的试玩基本上就是给你抠出来一段探索战斗，一段剧情
+
+都到了这份上了还不如直接发码 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 3252#       发表于 2024-8-29 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050509&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-8-29 10:23</a>
+轨迹的试玩基本上就是给你抠出来一段探索战斗，一段剧情
+
+都到了这份上了还不如直接发码  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看样子是序章，你法甚至懒得抠
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -213,3 +213,13 @@
 
 海老川单抽抽到艾玛在推上晒，不愧是亲爹。看推上宣传9月3号会有艾玛的足球？新活动，要是复刻蒸汽庞克石头就留着抽FA绫香了。
 
+
+*****
+
+####  希望之花  
+##### 1186#       发表于 2024-8-29 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经大半年没有抽到UP的女演员了，虽然主推的几个都有了无欲无求，但是这卡池也太过分了点
+
+另一方面只要延续这种颓势，今年可能出的小裤裤北欧组一定会抽到的（大概<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+

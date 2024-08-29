@@ -2935,3 +2935,11 @@ saki输得透彻，正常收音的ego无了
 
 小美野突击，特地跑出来提醒这周的live可能要没
 
+
+*****
+
+####  magicc  
+##### 6276#       发表于 2024-8-29 18:18
+
+这就是3+游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

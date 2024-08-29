@@ -12455,3 +12455,40 @@ BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要
 
 奏三这都是些什么粪怪粪关卡，在哪能给日版打差评
 
+
+*****
+
+####  UNISONIA  
+##### 14478#       发表于 2024-8-29 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050897&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-29 10:50</a>
+
+CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启动时被格式化，但也是强力打手 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">总算见到个把Violet叫香堇菜的了
+
+*****
+
+####  シャル  
+##### 14479#       发表于 2024-8-29 11:07
+
+ 本帖最后由 シャル 于 2024-8-29 11:12 编辑 
+
+这个世界的AI赛博飞升不比钢之大地牛鬼蛇神好多了
+
+旧人类都死了，盖亚也就没必要呼救了
+
+话说回来搞成这样还是天龙人搞基因飞升失败了
+
+*****
+
+####  cenhr  
+##### 14480#       发表于 2024-8-29 11:09
+
+ 本帖最后由 cenhr 于 2024-8-29 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051135&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-29 11:07</a>
+
+这个世界的AI不比钢之大地牛鬼蛇神好多了
+
+旧人类都死了，盖亚也就没必要呼救了</blockquote>
+要编的话也能编老古董盖亚看不懂AI这个和自己无关的生命体然后还是去呼救。如果人类是啃老族，AI就是和自然无关的侵略者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

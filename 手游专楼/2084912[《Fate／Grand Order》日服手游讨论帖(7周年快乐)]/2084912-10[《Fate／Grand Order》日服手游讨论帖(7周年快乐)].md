@@ -12698,3 +12698,23 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 中间有很多内容都是乐子剧情，正经剧情严格的说只有AI发展史需要注意一下，找个up看整理就行了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  低调不圆滑  
+##### 14497#       发表于 2024-8-29 14:38
+
+这产能感觉没有新五星了，后面会用暗狐跟公主凑2期池子吧
+
+*****
+
+####  alucardcz  
+##### 14498#       发表于 2024-8-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053435&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-29 14:34</a>
+
+你实在没空的话，你找个人帮你理一下
+
+上部分结束以后，我方还剩哪几个，对方还剩哪几个，你就直接能接上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别理 我有空 只是不想看没完的东西
+

@@ -140,3 +140,29 @@ persona伟大
 
 新队友人设还可以
 
+
+*****
+
+####  罗克萨斯  
+##### 659#       发表于 2024-8-30 00:42
+
+可恶！粉毛要是能入队就好了f:128]
+
+<img src="https://img.saraba1st.com/forum/202408/30/004228bgkk85lff9kglkm7.jpg" referrerpolicy="no-referrer">
+
+<strong>c565a122-fb1f-4dcd-8671-5614d9e05d02.jpg</strong> (137.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/004228uv29le3liekcflv3.jpg" referrerpolicy="no-referrer">
+
+<strong>fc94561b-d9cc-4d99-9692-30f880061019.jpg</strong> (137.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 00:42 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

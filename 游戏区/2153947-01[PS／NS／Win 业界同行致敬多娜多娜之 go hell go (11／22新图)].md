@@ -417,3 +417,13 @@ Entergram的基本盘在主机那边吧，pc版做成r18那谁还买主机版
 
 2024-8-30 00:36 上传
 
+
+*****
+
+####  refiver  
+##### 53#       发表于 2024-8-30 00:43
+
+等放流，这种游戏曾经psp psv上一大把，leaf的迷宫也卖的还行，leaf那个子品牌就是专门做主机擦边全年龄的，这个entergram还发行了海猫和寒蝉的主机最新版，是老朋友了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

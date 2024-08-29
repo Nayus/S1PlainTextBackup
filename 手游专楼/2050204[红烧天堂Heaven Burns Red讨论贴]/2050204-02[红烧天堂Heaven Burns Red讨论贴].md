@@ -54,3 +54,14 @@ ss卡技能强化里有个通用化, 点完就能放s卡上
 
 抽完了孔明和六妹，下个必抽的角色是哪个呀
 
+
+*****
+
+####  学长失格  
+##### 1632#       发表于 2024-8-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050269&amp;ptid=2050204" target="_blank">爱拯救 发表于 2024-8-29 10:05</a>
+
+抽完了孔明和六妹，下个必抽的角色是哪个呀</blockquote>
+雷苍井吧，再往后还有别的强卡，这段时间正好屯石头。
+

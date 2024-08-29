@@ -1078,3 +1078,26 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 5049#       发表于 2024-8-29 17:06
+
+这次大润特别奖励的分数线是7亿，奖励是鳞片<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  KBAC  
+##### 5050#       发表于 2024-8-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66054651&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-8-29 16:19</a>
+目录打到50级是不是就不会错过东西了？这赛季实在没法分配给喷喷更多时间了，等游戏淡季再加把练
+
+—— 来 ...</blockquote>
+那肯定不是啊，50级以后除了衣服是复刻其他的都是新东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

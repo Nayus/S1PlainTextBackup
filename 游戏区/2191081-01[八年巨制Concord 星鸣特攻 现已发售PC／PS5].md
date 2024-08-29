@@ -1562,3 +1562,27 @@ IGN终于把分憋出来了</blockquote>
 
 —— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  朋友  
+##### 149#       发表于 2024-8-29 11:45
+
+<img src="https://img.saraba1st.com/forum/202408/29/114418brqkes0o11fmb2kx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/114452smu10fqa1z40flzm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (369.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:44 上传
+
+笑死
+

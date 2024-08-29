@@ -987,3 +987,19 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  shirolin  
+##### 5043#       发表于 2024-8-29 11:45
+
+<img src="https://img.saraba1st.com/forum/202408/29/114513e1mjlj6vz6mj3e3s.png" referrerpolicy="no-referrer">
+
+<strong>Image_1724902901031.png</strong> (978.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:45 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

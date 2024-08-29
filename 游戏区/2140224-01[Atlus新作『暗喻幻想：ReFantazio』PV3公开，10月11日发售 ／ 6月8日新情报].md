@@ -14,3 +14,11 @@ Fami通：
 [https://youtu.be/xU0JAA13zm8](https://youtu.be/xU0JAA13zm8)
 [https://www.4gamer.net/games/367/G036702/20240821070/](https://www.4gamer.net/games/367/G036702/20240821070/)
 
+
+*****
+
+####  抽烟的猴  
+##### 650#       发表于 2024-8-29 11:50
+
+现在唯一好奇的是首周能卖多少（p3r是100w）
+

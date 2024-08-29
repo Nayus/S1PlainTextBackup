@@ -2927,3 +2927,11 @@ saki输得透彻，正常收音的ego无了
 
 昨天阿姨就推了好多虾给我<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  BQlin  
+##### 6275#       发表于 2024-8-29 18:05
+
+小美野突击，特地跑出来提醒这周的live可能要没
+

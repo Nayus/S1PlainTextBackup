@@ -731,3 +731,16 @@ STEAM版已上架，国区定价88
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  car123  
+##### 47#       发表于 2024-8-29 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66055938&amp;ptid=2160710" target="_blank">第七軍伐戎処 发表于 2024-8-29 17:58</a>
+
+那是鼠标连击只看文本速度
+
+开自动模式10h吧</blockquote>
+嗯，那还可以，不过体量也不算很大吧（没查文本量），后续看下评价再考虑买不买，最近时间打红烧的活动都不够<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

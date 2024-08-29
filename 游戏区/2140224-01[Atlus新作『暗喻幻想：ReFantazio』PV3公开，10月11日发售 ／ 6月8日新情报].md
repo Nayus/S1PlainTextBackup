@@ -107,3 +107,17 @@ persona伟大
 都说人设不行，但大只粉毛兔耳萌娘凯瑟琳娜却让我冲爆了</blockquote>
 是不是真滴从凯瑟琳fullbody里穿越来的？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 656#         楼主| 发表于 2024-8-29 21:13
+
+ 本帖最后由 Piano-Forest 于 2024-8-29 21:16 编辑 
+
+【《暗喻幻想：ReFantazio》第五支预告片“Travel Beyond Fantasy”】 
+[https://b23.tv/Op5fn7f](https://b23.tv/Op5fn7f)
+
+【ATLUS Exclusive《暗喻幻想：ReFantazio》巡游世界篇】 
+[https://b23.tv/iZ2FEkh](https://b23.tv/iZ2FEkh)
+

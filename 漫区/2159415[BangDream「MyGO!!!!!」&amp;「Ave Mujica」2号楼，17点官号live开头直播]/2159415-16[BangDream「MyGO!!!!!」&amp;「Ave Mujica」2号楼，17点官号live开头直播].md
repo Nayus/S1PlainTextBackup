@@ -2971,3 +2971,44 @@ ether没啥好说了，长谷川味听耳朵起茧了已经
 2nd那次虽然找的是19万粉的画师  也很微妙 ...</blockquote>
 可能是吧，不然怎么解释每次都有她
 
+
+*****
+
+####  六道明  
+##### 22475#       发表于 2024-8-29 21:18
+
+ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(ˆ⌣ˆc)
+
+*****
+
+####  NODY  
+##### 22476#       发表于 2024-8-29 21:22
+
+键盘接主音吉他，感觉现场又有初祥看了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rikaren  
+##### 22477#       发表于 2024-8-29 21:25
+
+草，因为柏青哥被迫剪掉
+
+*****
+
+####  Aendst  
+##### 22478#       发表于 2024-8-29 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057620&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-29 20:36</a>
+
+祥子是不是比较难画啊 感觉几套mv都不太行 
+
+2nd那次虽然找的是19万粉的画师  也很微妙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+地狱折磨级的发型，眼睛（五官）也很难还原味道
+
+演出服尤其那个裙子也非常复杂
+
+但是也不是没有画得好的画师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

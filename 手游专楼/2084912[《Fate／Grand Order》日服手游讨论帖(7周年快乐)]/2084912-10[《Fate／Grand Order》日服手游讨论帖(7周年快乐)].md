@@ -12818,3 +12818,11 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">连发了两贴都要审核....怎么回事....一开始还以为是论坛BUG
 
+
+*****
+
+####  森兰丸  
+##### 14509#       发表于 2024-8-30 03:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">花了2天才打完....下一个阶段竟然要9月11号才开....还以为像活动一样每天都分阶段来开的
+

@@ -7425,3 +7425,13 @@ mea这把表现可能能拿mvp吧。
 
 不如说日本lol要靠v的流量带一带
 
+
+*****
+
+####  ablast  
+##### 17297#       发表于 2024-8-30 03:50
+
+这几天最难绷是day2训练赛的00:23:43主播同队的ramuchi提了一句ポピ様 是真没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

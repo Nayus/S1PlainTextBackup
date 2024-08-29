@@ -41,3 +41,11 @@ syl感觉狼夫问题就在那理智值提升没改了
 
 要是菲辛同款回转不会那么烂的
 
+
+*****
+
+####  drm1202  
+##### 844#       发表于 2024-8-29 16:16
+
+今天上头抽了两百发玛玛角色池，出了5个奇奇怪怪的ego没一个玛玛，心碎井了船玛，以后再也不碰角色池了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

@@ -1042,3 +1042,29 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 贴牌就是削回最开始审查者的体验吧，估计涂螃蟹坦克有点影响
 
+
+*****
+
+####  罗克萨斯  
+##### 5046#       发表于 2024-8-29 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66054237&amp;ptid=2150634" target="_blank">Pumpkin_ccc 发表于 2024-8-29 15:45</a>
+
+审查者的总共三次改动
+
+1.相比之前，我们提高了射击时墨汁的飞溅数量。(射击时可以获得更多的涂抹点数)
+
+2. ...</blockquote>
+这也太恶心了吧，加特林整体本来就不强，稍微挤点牙膏都能吸回去
+
+
+*****
+
+####  Pumpkin_ccc  
+##### 5047#       发表于 2024-8-29 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66054485&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-8-29 16:06</a>
+
+这也太恶心了吧，加特林整体本来就不强，稍微挤点牙膏都能吸回去</blockquote>
+大约是螃蟹太好涂了，一场下来基本五六次，无印是被牵连了
+

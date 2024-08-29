@@ -2666,3 +2666,30 @@ MV这个月是真没了吧
 
 米泽加油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Drawrain  
+##### 22449#       发表于 2024-8-29 19:54
+
+诶，能不能给长谷川丢出去啊
+又是他
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  PDQ4  
+##### 22450#       发表于 2024-8-29 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057173&amp;ptid=2159415" target="_blank">Drawrain 发表于 2024-8-29 19:54</a>
+
+诶，能不能给长谷川丢出去啊
+
+又是他</blockquote>
+又是他吗，能不能别写了
+
+EG回不来，迷你专黑色生日、假面舞会那几个作曲呢
+
+就记得长谷川了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

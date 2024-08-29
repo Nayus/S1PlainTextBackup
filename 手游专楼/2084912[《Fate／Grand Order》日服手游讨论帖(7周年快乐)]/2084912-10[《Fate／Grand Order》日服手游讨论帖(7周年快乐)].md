@@ -12771,3 +12771,24 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 
 推完月r都没什么感觉 还得是强度最升好感
 
+
+*****
+
+####  poor  
+##### 14504#       发表于 2024-8-29 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66055085&amp;ptid=2084912" target="_blank">beer 发表于 2024-8-29 16:53</a>
+将来进主线物语或者在奏章中正常出现的话大概率是多发一次过关石头的</blockquote>
+我记得说过继承进度的吧
+
+
+*****
+
+####  シャル  
+##### 14505#       发表于 2024-8-29 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66054774&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-29 16:28</a>
+
+OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但OC3的她看起来是在摸鱼 ...</blockquote>
+因为都是AI，没劲
+

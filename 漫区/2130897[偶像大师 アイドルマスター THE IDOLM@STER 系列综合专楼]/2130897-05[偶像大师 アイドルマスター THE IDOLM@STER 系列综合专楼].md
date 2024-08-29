@@ -2965,3 +2965,19 @@ saki输得透彻，正常收音的ego无了
 
 感觉漫画的剧情会比手游的有意思
 
+
+*****
+
+####  lunaticfool  
+##### 6279#       发表于 2024-8-29 19:46
+
+漫画宣传图一张皮卡丘，又gold。很难不是琴音传
+
+
+*****
+
+####  sliver1997  
+##### 6280#       发表于 2024-8-29 19:55
+
+T恤裤衩泡温泉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

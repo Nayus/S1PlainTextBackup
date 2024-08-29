@@ -1231,3 +1231,40 @@ Q：《终极弗雷娜》的更新出乎意料。《终极渥尔比》相对容�
 本来哨所刷核桃熔炉开核桃这一套循环就挺完整了
 不明白为啥插进来个刷碎片，碎片的怪又毛都不掉，一点儿副产品不给，纯纯拖时间...刷这个的过程真是要多无聊有多无聊
 
+
+*****
+
+####  yzqray  
+##### 207#       发表于 2024-8-29 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049591&amp;ptid=2153578" target="_blank">天王寺綯 发表于 2024-8-29 09:15</a>
+感觉就是不能着急
+一着急心态就容易崩，另外就是掉落需要向wf学习</blockquote>
+碎片今天就改了
+看访谈制作组态度还可以，就是产能堪忧
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  天王寺綯  
+##### 208#       发表于 2024-8-29 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050023&amp;ptid=2153578" target="_blank">yzqray 发表于 2024-8-29 09:47</a>
+碎片今天就改了
+看访谈制作组态度还可以，就是产能堪忧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改了但是还是要刷，我是真的觉得这个环节纯多余
+要不你给碎片怪搞点可能掉落的副产品
+哪怕每一波出个黄血怪能掉点研究材料呢
+不然不如把这逼环节删了
+
+
+*****
+
+####  vava  
+##### 209#       发表于 2024-8-29 09:55
+
+就是硬拖时间
+
+这游戏肉眼可见的内容匮乏，很多机制就是强行拉长在线时间的，要不然三两下就刷到头了
+

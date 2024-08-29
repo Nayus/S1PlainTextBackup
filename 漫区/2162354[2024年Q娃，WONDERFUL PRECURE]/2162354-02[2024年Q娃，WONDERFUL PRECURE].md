@@ -865,3 +865,22 @@ cure majesty（
 
 有ASM的抓心组魔法组ASF的花妈在前面顶着，全明星再划水也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2093#       发表于 2024-8-26 16:52
+
+有ASM的抓心组魔法组ASF的花妈在前面顶着，全明星再划水也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 2094#       发表于 2024-8-29 09:50
+
+剧场版声优
+ナツキ：花泽香菜
+ムジナ：三宅健太
+
+花泽又来了 可以明年转正预定？
+

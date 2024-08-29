@@ -12423,3 +12423,14 @@ BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要
 
 现在是多少小节？刚打的第八节,不太长就在灵脉石过期之前肝完了。
 
+
+*****
+
+####  UNISONIA  
+##### 14475#       发表于 2024-8-29 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049893&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-29 09:37</a>
+
+现在是多少小节？刚打的第八节,不太长就在灵脉石过期之前肝完了。</blockquote>
+前篇开到9小节
+

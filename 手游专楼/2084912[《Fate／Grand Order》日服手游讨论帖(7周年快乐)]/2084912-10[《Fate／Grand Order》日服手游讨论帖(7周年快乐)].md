@@ -12521,3 +12521,30 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 有一句“是为了替代人类制造出来的”不知道能怎么解释
 
+
+*****
+
+####  alucardcz  
+##### 14483#       发表于 2024-8-29 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049159&amp;ptid=2084912" target="_blank">TheLoof 发表于 2024-8-29 08:12</a>
+
+艾蕾说自己是迦勒底的艾蕾以后bb又找补了一下
+
+艾蕾回不去是因为灵基变了，而让她灵基变化的原因也在这里
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快说说这9节文本量多大 是产能低如狗只能分上中下 还是容量爆炸 被迫分上中下
+
+*****
+
+####  cenhr  
+##### 14484#       发表于 2024-8-29 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051484&amp;ptid=2084912" target="_blank">v22325 发表于 2024-8-29 11:31</a>
+
+看前面几个奏章多多少少都以爱为主题的一部分，我觉得这些AI应该也没那么黑。
+
+有一句“是为了替代人类制 ...</blockquote>
+一句是人类自己YY AI不安好心的就搞定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

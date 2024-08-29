@@ -973,3 +973,17 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  秋月孝三  
+##### 5042#       发表于 2024-8-29 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65641081&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-7-20 00:11</a>
+既然野上都明说8月底要砍武器，那么预测一下现t0的被害者名单好了：
+
+不砍你们说明ika研已经没人玩游戏了： ...</blockquote>
+自己猜得还挺准
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

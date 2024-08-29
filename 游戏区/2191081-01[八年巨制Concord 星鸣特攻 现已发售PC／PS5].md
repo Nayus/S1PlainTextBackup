@@ -1511,3 +1511,11 @@ IGN终于把分憋出来了</blockquote>
 
 索爹：我涨价PS5也要养你啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卡拉德利姆  
+##### 144#       发表于 2024-8-29 09:06
+
+这评语看着不像7分的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

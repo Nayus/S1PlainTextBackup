@@ -2904,3 +2904,18 @@ saki输得透彻，正常收音的ego无了
 
 话说为啥突然全都在虾
 
+
+*****
+
+####  wfhtony  
+##### 6273#       发表于 2024-8-29 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049447&amp;ptid=2130897" target="_blank">全装甲夏亚 发表于 2024-8-29 08:59</a>
+话说为啥突然全都在虾</blockquote>
+流行起来没啥特别的理由，本质空耳一発芸（而且还是[空耳作者在初听HFL之后时隔三年才想起来要做视频的一发艺w](https://dic.nicovideo.jp/t/a/%E3%82%A8%E3%83%93%E6%8F%89%E3%82%81)）。
+
+这次的元凶：
+[https://www.nicovideo.jp/watch/sm44019051](https://www.nicovideo.jp/watch/sm44019051)
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

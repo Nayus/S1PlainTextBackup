@@ -1548,3 +1548,17 @@ IGN终于把分憋出来了</blockquote>
 
 “唉，还要来吗……（死妈脸）外媒8分很客观！”
 
+
+*****
+
+####  jy000129  
+##### 148#       发表于 2024-8-29 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036841&amp;ptid=2191081" target="_blank">6x6z6w 发表于 2024-8-28 00:13</a>
+一个巴西画师在推上发了自己重新设计过的部分角色，id图上有  
+
+所以说搞zzzq的艺术家真的该死 ...</blockquote>
+真的做妖魔鬼怪都比这坨好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

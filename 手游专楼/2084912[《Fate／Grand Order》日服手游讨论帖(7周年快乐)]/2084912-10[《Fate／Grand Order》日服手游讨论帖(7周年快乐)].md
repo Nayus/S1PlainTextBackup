@@ -12506,3 +12506,18 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 拖了280年才反应过来自己被AI坑了
 
+
+*****
+
+####  v22325  
+##### 14482#       发表于 2024-8-29 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051358&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-29 11:22</a>
+
+话说AI给天龙人搞出延命改造，缺不搞备份身体技术，怕不是故意的吧
+
+长生有终点，但是换躯体则没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看前面几个奏章多多少少都以爱为主题的一部分，我觉得这些AI应该也没那么黑。
+
+有一句“是为了替代人类制造出来的”不知道能怎么解释
+

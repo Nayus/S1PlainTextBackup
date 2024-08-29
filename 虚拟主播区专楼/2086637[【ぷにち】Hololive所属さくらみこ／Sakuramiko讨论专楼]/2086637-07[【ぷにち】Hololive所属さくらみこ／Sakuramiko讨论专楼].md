@@ -7464,3 +7464,30 @@ polka第三场同时视听会在明天中午，即便是miko明天没有事白�
 
 实物图（推上的），跟以前出过的帽子35P玩偶比起来小了一圈
 
+
+*****
+
+####  holoan  
+##### 9510#         楼主| 发表于 2024-8-29 11:01
+
+<img src="https://img.saraba1st.com/forum/202408/29/110144pjssjj7wjrtlfbga.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:01 上传
+
+*****
+
+####  holoan  
+##### 9511#         楼主| 发表于 2024-8-29 11:31
+
+<img src="https://img.saraba1st.com/forum/202408/29/113128rfdoadnf2n363dak.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:31 上传
+

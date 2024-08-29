@@ -935,3 +935,41 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 前作最 ...</blockquote>
 可能，就很简单，比如这赛季开始变成4个月一赛季
 
+
+*****
+
+####  shirolin  
+##### 5040#       发表于 2024-8-29 11:25
+
+下次更新内容：「大型祭典」相关数据
+
+<img src="https://img.saraba1st.com/forum/202408/29/112515jqd2qgdu42zutvuv.jpg" referrerpolicy="no-referrer">
+
+<strong>4c9250d3-c9aa-4807-bb44-39414b1bf9c4.jpg</strong> (317.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:25 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/112515rrrrjyftm6p5gprf.png" referrerpolicy="no-referrer">
+
+<strong>Image_1724901660087.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 11:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shirolin  
+##### 5041#       发表于 2024-8-29 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051394&amp;ptid=2150634" target="_blank">shirolin 发表于 2024-8-29 11:25</a>
+下次更新内容：「大型祭典」相关数据</blockquote>
+图又压缩到看不清了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

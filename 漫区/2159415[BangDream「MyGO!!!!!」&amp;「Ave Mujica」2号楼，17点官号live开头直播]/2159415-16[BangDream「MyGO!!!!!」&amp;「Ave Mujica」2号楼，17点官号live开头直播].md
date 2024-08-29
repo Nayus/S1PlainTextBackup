@@ -2593,3 +2593,15 @@ mv是真的打算和ether一起出啊
 
 我们鸡推是真的在追3次元乐队啊
 
+
+*****
+
+####  星天观测  
+##### 22442#       发表于 2024-8-29 13:34
+
+坏消息，土mv不知道什么时候出
+
+好消息，可能9月出，那9月就有两个mv可以等了
+
+我们鸡推真有福气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

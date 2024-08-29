@@ -3013,3 +3013,11 @@ T恤裤衩泡温泉<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 万代这沟槽的蓝协捅了多大的窟窿要这么恶心的透支骗课真的∑了
 
+
+*****
+
+####  藤田琴音  
+##### 6283#       发表于 2024-8-29 22:46
+
+我那天看到蓝色协议关服新闻的时候，第一反应也是学马又要加大力度骗钱了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

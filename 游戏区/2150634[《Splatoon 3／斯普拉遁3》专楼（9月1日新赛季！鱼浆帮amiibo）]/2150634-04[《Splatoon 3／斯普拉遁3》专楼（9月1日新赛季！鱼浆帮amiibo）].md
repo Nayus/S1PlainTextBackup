@@ -1146,3 +1146,21 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 桃一个最终祭典之后出新武器吧
 
+
+*****
+
+####  罗克萨斯  
+##### 5056#       发表于 2024-8-30 06:44
+
+区域模式真是神仙打仗，唯一加特林神再次携它的轻加登顶了！灭龙赛季末狂追，会是最后结算的第一么？马老师真给他装到了，竟然上了4000<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/30/064455nxths4cc2uujhwgk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-30-06-40-53-714_com.nintendo.znca-edit.jpg</strong> (134.28 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 06:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

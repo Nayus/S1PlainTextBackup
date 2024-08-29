@@ -12395,3 +12395,31 @@ BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要
 
 你月写手团不愧是半个英国人，自从FGO法国篇后阿贞都不知道被写成什么鬼样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  UNISONIA  
+##### 14472#       发表于 2024-8-29 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046339&amp;ptid=2084912" target="_blank">poor 发表于 2024-8-28 20:23</a>
+
+奏三现在不打等减半再打会有什么损失吗？</blockquote>
+微观来说就最近给的灵脉石用不了了（月底过期），大菌现在的章节前篇中篇难不了，就是锁编成组队麻烦，大体也不影响
+
+宏观来说这次的所谓主线的情况是近似活动模式的期间限定开放（时间到了会暂时关掉，在之后的某个时间点吐出来以后估计也是直接进Main Interlude或者Order Call的子菜单的），所以在10月31日之前大概率不会有减半，当然夏活没毕业的话还是先刷夏活吧
+
+
+*****
+
+####  xiongxingyu  
+##### 14473#       发表于 2024-8-29 09:36
+
+话说新剧情已经坐实了BBlily就是糖果藤蔓本蔓，帝王花也作为我方强力外援登场（虽然只能待在都市区而且一天70%时间要睡觉回魔），莉莉丝cm里登场了后面肯定有戏份，甚至BB本人这回都亲自上前线了（第一幕BB酱飒爽登场，然后发现自己迟到了被偷家然后被BB迪拜一发轰到火星简直笑死）。问题是，难度蘑菇就不觉得好像少了谁吗？（蘑菇：sakura five只有四个人不是常识吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 14474#       发表于 2024-8-29 09:37
+
+现在是多少小节？刚打的第八节,不太长就在灵脉石过期之前肝完了。
+

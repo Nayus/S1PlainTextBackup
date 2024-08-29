@@ -866,3 +866,21 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 还是说准备祭这一段时间不算新赛季？大祭典之后宣 ...</blockquote>
 都没预告，还不算吧
 
+
+*****
+
+####  KBAC  
+##### 5034#       发表于 2024-8-29 09:27
+
+<img src="https://img.saraba1st.com/forum/202408/29/092611oa55u3qak325z94u.png" referrerpolicy="no-referrer">
+
+<strong>img_0113.png</strong> (203.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 09:26 上传
+
+说是改善了延迟，但是总感觉明天更新之后会出状况<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -718,3 +718,16 @@ STEAM版已上架，国区定价88
 大部分人在5h内通关估计不成问题</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">3h体量是不是有点太小了
 
+
+*****
+
+####  第七軍伐戎処  
+##### 46#       发表于 2024-8-29 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66055778&amp;ptid=2160710" target="_blank">car123 发表于 2024-8-29 17:46</a>
+3h体量是不是有点太小了</blockquote>
+那是鼠标连击只看文本速度
+开自动模式10h吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

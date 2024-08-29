@@ -1527,3 +1527,14 @@ IGN终于把分憋出来了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  minysun  
+##### 146#       发表于 2024-8-29 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049352&amp;ptid=2191081" target="_blank">查克海耶斯 发表于 2024-8-29 08:47</a>
+显得索尼更傻了</blockquote>
+——这家公司的成员构成有相当一部分是棒鸡老兵。
+——棒鸡负责替SIE把关旗下的服务型游戏开发。
+

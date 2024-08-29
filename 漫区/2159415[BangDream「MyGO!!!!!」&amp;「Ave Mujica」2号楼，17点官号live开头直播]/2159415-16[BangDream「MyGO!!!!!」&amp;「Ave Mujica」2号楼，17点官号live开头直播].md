@@ -2871,3 +2871,69 @@ Ether听完后感觉就很平（）
 
 目前最好看就是2nd那個了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hitori酱  
+##### 22466#       发表于 2024-8-29 20:38
+
+节约宝宝小睦头这张好有感觉
+
+<img src="https://img.saraba1st.com/forum/202408/29/203837qmlp4orx8g8gxiim.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:38 上传
+
+*****
+
+####  星天观测  
+##### 22467#       发表于 2024-8-29 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057629&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-8-29 20:37</a>
+
+別急，別高興太早，下一首一定鬼</blockquote>
+至少土不是鬼了，鸡推，赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  九陌狂游  
+##### 22468#       发表于 2024-8-29 20:42
+
+吹死婊活吹死婊活<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22469#       发表于 2024-8-29 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057629&amp;ptid=2159415" target="_blank">御幸一也 发表于 2024-8-29 20:37</a>
+
+別急，別高興太早，下一首一定鬼</blockquote>
+下一首鬼了特典不是要灾难
+
+不信这一专不用ether图当特典<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22470#       发表于 2024-8-29 20:47
+
+我猜的不超过5000，好像不用出列（x）
+
+*****
+
+####  NODY  
+##### 22471#       发表于 2024-8-29 20:48
+
+<img src="https://img.saraba1st.com/forum/202408/29/204800tkcavkzs82uhb59t.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240829_204248.jpg</strong> (50.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:48 上传
+

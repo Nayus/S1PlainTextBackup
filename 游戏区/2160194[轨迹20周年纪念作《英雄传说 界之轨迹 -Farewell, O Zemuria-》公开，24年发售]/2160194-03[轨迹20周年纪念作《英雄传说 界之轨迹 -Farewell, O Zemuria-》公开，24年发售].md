@@ -2980,3 +2980,44 @@ a9采访呢
 
 那明天近藤念什么
 
+
+*****
+
+####  卢迪克  
+##### 3263#       发表于 2024-8-29 14:18
+
+ 本帖最后由 卢迪克 于 2024-8-29 14:19 编辑 
+<blockquote>Aeons 发表于 2024-8-29 14:16
+那明天近藤念什么</blockquote>
+
+说了玩空轨，界轨应该是二十周年访谈复读
+
+*****
+
+####  ravend233  
+##### 3264#       发表于 2024-8-29 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近藤：让我们念一下最新的谷子和各家店铺特典吧
+
+*****
+
+####  一步成诗  
+##### 3265#       发表于 2024-8-29 14:20
+
+不是写了玩空轨fc改吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3266#       发表于 2024-8-29 14:21
+
+有提到界轨，不会是op解析吧
+
+
+*****
+
+####  一步成诗  
+##### 3267#       发表于 2024-8-29 14:24
+
+封面标题都是空轨，界轨能讲五分钟就不错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

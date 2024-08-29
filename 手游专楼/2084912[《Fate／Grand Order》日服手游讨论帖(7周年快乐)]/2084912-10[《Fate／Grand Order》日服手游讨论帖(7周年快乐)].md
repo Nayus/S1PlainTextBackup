@@ -12750,3 +12750,14 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 幕间这样子也不像能当最终BOSS的，也有可能是第三部分新卡池，三破留给两个BB折算出来的友军形态 ...</blockquote>
 OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但OC3的她看起来是在摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 14502#       发表于 2024-8-29 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66046339&amp;ptid=2084912" target="_blank">poor 发表于 2024-8-28 20:23</a>
+
+奏三现在不打等减半再打会有什么损失吗？</blockquote>
+将来进主线物语或者在奏章中正常出现的话大概率是多发一次过关石头的
+

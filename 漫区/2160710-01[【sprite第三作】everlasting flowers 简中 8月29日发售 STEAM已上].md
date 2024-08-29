@@ -705,3 +705,16 @@ STEAM版已上架，国区定价88
 我个人觉得最好磕的是在车站告别的时候金毛的三次让步</blockquote>
 收尾还是太急了，要是能多加点内容，结尾再来个重逢就好了。
 
+
+*****
+
+####  car123  
+##### 45#       发表于 2024-8-29 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053970&amp;ptid=2160710" target="_blank">小延S 发表于 2024-8-29 15:19</a>
+
+3h通关 通的比较快 不过这文本量本身就少
+
+大部分人在5h内通关估计不成问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">3h体量是不是有点太小了
+

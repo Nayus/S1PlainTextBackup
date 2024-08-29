@@ -12739,3 +12739,14 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 感觉池里的bb迪拜还是不太对，怀疑锁的三破是藤蔓，前两个形态是她吃掉了两个BB数据后演出来的样子她自己说 ...</blockquote>
 幕间这样子也不像能当最终BOSS的，也有可能是第三部分新卡池，三破留给两个BB折算出来的友军形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14501#       发表于 2024-8-29 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053811&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-29 15:07</a>
+
+幕间这样子也不像能当最终BOSS的，也有可能是第三部分新卡池，三破留给两个BB折算出来的友军形态 ...</blockquote>
+OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但OC3的她看起来是在摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

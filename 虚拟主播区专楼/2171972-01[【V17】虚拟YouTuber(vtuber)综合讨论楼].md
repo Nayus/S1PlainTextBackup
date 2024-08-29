@@ -2337,3 +2337,18 @@ syl 最协前六两个全虹班，原来我虹才是真正的fps大箱
 
 另外前两天琉璃刚开始玩只狼的时候在FC里表示“只狼玩起来没原神难”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alcoholic1000  
+##### 643#       发表于 2024-8-29 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65954764&amp;ptid=2171972" target="_blank">fastary 发表于 2024-8-20 14:29</a>
+
+↑首播是有说自己打枪很牛，但也强调是以前的事了现在退化特别多，如果单纯自谦的话难道是枪男位？虽说现在 ...</blockquote>
+日本csgo不太流行，釈迦说可能是日本pc游戏流行的时间和csgo流行时间错开，新参难以加入
+
+csgoグローバルエリート，感受到了老人气息<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
+
+也有可能z世代10岁开始玩pc游戏
+

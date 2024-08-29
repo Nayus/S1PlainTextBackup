@@ -1751,3 +1751,25 @@ LO、 原画で参加させて頂きました！
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 792#         楼主| 发表于 2024-8-29 21:56
+
+#08 業物語 あせろらボナペティ 其ノ貮
+
+依然として繰り返し死んでいるスーサイドマスターは、食べる側だけでなく食べられる側にも意識改革が必要だと思いついた。アセロラ姫が懸命に変わろうとする姿を微笑ましく見ているスーサイドマスター。しかしトロピカレスクは、そんなあるじに対し思うところがあって……。
+
+脚本：大嶋実句
+
+絵コンテ：青柳隆平
+
+演出：志村 亮
+
+作画監督：伊藤良明・高野晃久・許有真・高橋みき・宮嶋仁志・清水勝祐・浅井昭人
+<img src="https://p.sda1.dev/19/ca3539324ca7b3214416dee1d91c937b/story_3658_photo_1724910010494624687.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/8ae88bdaca4b5b9fa4ba3841b91f8706/story_3658_photo_1724910010810626746.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/4e4f70df7bec87693c35c6eae9a0434f/story_3658_photo_1724910010997412737.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/3241e786317f030260bfec468a7293f8/story_3658_photo_172491001126793673.jpg" referrerpolicy="no-referrer">
+

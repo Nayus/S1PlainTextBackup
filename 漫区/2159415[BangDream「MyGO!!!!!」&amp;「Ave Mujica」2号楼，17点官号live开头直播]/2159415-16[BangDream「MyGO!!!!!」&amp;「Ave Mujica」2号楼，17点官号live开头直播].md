@@ -3106,3 +3106,15 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 2024-8-29 21:47 上传
 
+
+*****
+
+####  御幸一也  
+##### 22484#       发表于 2024-8-29 21:52
+
+ 本帖最后由 御幸一也 于 2024-8-29 21:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">無語 VT團作曲居然找了堀江晶太 雖然風評比較那個但感覺也比supalove厲害
+
+所以avemujica什麼時候能解僱supalove換個厲害的
+

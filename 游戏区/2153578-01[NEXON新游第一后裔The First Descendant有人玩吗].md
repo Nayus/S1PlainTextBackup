@@ -1333,3 +1333,19 @@ gaas是吸引更多人玩，一百人中有一个课金就好
 
 根据测试的人说，之前测试时模组格是可以随便更换类型的
 
+
+*****
+
+####  天王寺綯  
+##### 213#       发表于 2024-8-29 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050710&amp;ptid=2153578" target="_blank">jbjack1215 发表于 2024-8-29 10:37</a>
+刷子游戏一定会遇到内容匮乏的问题
+
+你遭不住那种500小时猛肝的玩家
+
+gaas是吸引更多人玩，一百人中有一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡槽这个他这次说了要优化成只要吃了光盘就能随意变更了
+但是没想到这是内测就有的机制吗
+看来还是在线数据教他做人了
+

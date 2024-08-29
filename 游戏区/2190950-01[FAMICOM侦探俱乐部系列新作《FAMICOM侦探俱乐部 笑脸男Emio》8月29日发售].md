@@ -2962,3 +2962,15 @@ Eurogamer 评价 3/5
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">蹲repo中
 
+
+*****
+
+####  Piano-Forest  
+##### 289#         楼主| 发表于 2024-8-29 10:55
+
+开发者采访（坂本贺勇、宫地香绪里）
+
+日：[https://www.nintendo.com/jp/interview/a7lqa/index.html](https://www.nintendo.com/jp/interview/a7lqa/index.html)
+
+英：[https://www.nintendo.com/us/what ... ective-club-part-1/](https://www.nintendo.com/us/whatsnew/ask-the-developer-vol-12-emio-the-smiling-man-famicom-detective-club-part-1/)
+

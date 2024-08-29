@@ -694,3 +694,14 @@ STEAM版已上架，国区定价88
 大部分人在5h内通关估计不成问题</blockquote>
 我个人觉得最好磕的是在车站告别的时候金毛的三次让步<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  HazukiShion  
+##### 44#       发表于 2024-8-29 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66054930&amp;ptid=2160710" target="_blank">Irn 发表于 2024-8-29 16:40</a>
+
+我个人觉得最好磕的是在车站告别的时候金毛的三次让步</blockquote>
+收尾还是太急了，要是能多加点内容，结尾再来个重逢就好了。
+

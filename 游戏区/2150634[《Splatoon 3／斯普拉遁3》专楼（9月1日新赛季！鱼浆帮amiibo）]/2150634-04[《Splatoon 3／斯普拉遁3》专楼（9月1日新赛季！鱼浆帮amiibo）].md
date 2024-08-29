@@ -1101,3 +1101,11 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 5051#       发表于 2024-8-29 17:25
+
+居然不是我猜的3亿，7亿这数字怎么来的
+

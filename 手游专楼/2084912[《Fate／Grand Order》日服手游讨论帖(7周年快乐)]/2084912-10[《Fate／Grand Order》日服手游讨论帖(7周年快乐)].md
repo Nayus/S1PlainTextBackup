@@ -12357,3 +12357,20 @@ BB十连双黄<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要说自己就是迦勒底的艾蕾
 
+
+*****
+
+####  TheLoof  
+##### 14469#       发表于 2024-8-29 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66048930&amp;ptid=2084912" target="_blank">森兰丸 发表于 2024-8-29 05:33</a>
+
+第一次进入沙漠时兽蕾跳反前的那段剧情没看懂
+
+BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要说 ...</blockquote>
+艾蕾说自己是迦勒底的艾蕾以后bb又找补了一下
+
+艾蕾回不去是因为灵基变了，而让她灵基变化的原因也在这里
+
+艾蕾应该是因为什么原因，过来以后和从者宇宙的自己融合了
+

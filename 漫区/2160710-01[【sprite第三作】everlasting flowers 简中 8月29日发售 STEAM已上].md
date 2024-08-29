@@ -681,3 +681,16 @@ STEAM版已上架，国区定价88
 
 诚也来了也得给我乖乖打游戏
 
+
+*****
+
+####  Irn  
+##### 43#       发表于 2024-8-29 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053970&amp;ptid=2160710" target="_blank">小延S 发表于 2024-8-29 15:19</a>
+
+3h通关 通的比较快 不过这文本量本身就少
+
+大部分人在5h内通关估计不成问题</blockquote>
+我个人觉得最好磕的是在车站告别的时候金毛的三次让步<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

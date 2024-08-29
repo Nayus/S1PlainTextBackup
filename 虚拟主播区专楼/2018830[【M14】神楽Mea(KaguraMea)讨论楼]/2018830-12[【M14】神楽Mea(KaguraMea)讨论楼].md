@@ -7445,3 +7445,31 @@ mea这把表现可能能拿mvp吧。
 
 —— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ablast  
+##### 17299#       发表于 2024-8-30 03:50
+
+这几天最难绷是day2训练赛的00:23:43主播同队的ramuchi提了一句ポピ様 是真没绷住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ablast  
+##### 17300#       发表于 2024-8-30 04:53
+
+虽然比赛实际上可能是菜鸡互啄 但其实很能理解咩咩激动的哭腔 刚刚去把隔壁kamito观战视角和自家たかや教练的视角看了 倒数第二盘确实热血激情 观战的在狂夸主台解说在狂夸自家教练和队友也在狂夸 这么多年最爱的ろる最爱的波比 这就是最爽时刻了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  掉头学姐  
+##### 17301#       发表于 2024-8-30 07:42
+
+我们是冠军
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

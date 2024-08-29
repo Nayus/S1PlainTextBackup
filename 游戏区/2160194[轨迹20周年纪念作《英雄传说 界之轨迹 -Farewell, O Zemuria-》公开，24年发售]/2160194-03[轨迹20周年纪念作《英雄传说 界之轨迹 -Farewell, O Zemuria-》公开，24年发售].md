@@ -2956,3 +2956,12 @@ a9采访呢
 
 生怕玩家体验之后不满意然后不买
 
+
+*****
+
+####  KevinGraham  
+##### 3260#       发表于 2024-8-29 13:51
+
+骂归骂，买归买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+至于宣发，还有啥讨论了，this is 加藤正幸
+

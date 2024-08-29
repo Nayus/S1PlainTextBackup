@@ -12634,3 +12634,17 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 感觉池里的bb迪拜还是不太对，怀疑锁的三破是藤蔓，前两个形态是她吃掉了两个BB数据后演出来的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她自己说要以最高级的形式和加勒底结缘登场，五星月癌比AE应该高级多了吧…
 
+
+*****
+
+####  TheLoof  
+##### 14492#       发表于 2024-8-29 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051576&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-29 11:39</a>
+
+快说说这9节文本量多大 是产能低如狗只能分上中下 还是容量爆炸 被迫分上中下 ...</blockquote>
+有句港剧，我估计上中下加在一起，都没有2.6灌的水多
+
+实际上上部分的故事作为开地图来说相当紧凑，感觉单纯就是为了拖时间
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

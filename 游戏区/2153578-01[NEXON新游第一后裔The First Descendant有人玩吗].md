@@ -1268,3 +1268,18 @@ Q：《终极弗雷娜》的更新出乎意料。《终极渥尔比》相对容�
 
 这游戏肉眼可见的内容匮乏，很多机制就是强行拉长在线时间的，要不然三两下就刷到头了
 
+
+*****
+
+####  yzqray  
+##### 210#       发表于 2024-8-29 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050053&amp;ptid=2153578" target="_blank">天王寺綯 发表于 2024-8-29 09:49</a>
+改了但是还是要刷，我是真的觉得这个环节纯多余
+要不你给碎片怪搞点可能掉落的副产品
+哪怕每一波出个黄血 ...</blockquote>
+熔炉boss可以刷地区掉落的红卡和特殊材料，我补水就这么出的
+而且今天改了以后打熔炉boss不消耗碎片，开核桃才消耗碎片，还可以了
+
+—— 来自 HUAWEI ALN-AL80, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

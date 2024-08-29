@@ -1484,3 +1484,14 @@ IGN终于把分憋出来了</blockquote>
 守望先 ...</blockquote>
 不是索尼做了8年，是做了7年然后去年被索尼收购
 
+
+*****
+
+####  查克海耶斯  
+##### 141#       发表于 2024-8-29 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66048551&amp;ptid=2191081" target="_blank">ultraseven 发表于 2024-8-29 01:14</a>
+
+不是索尼做了8年，是做了7年然后去年被索尼收购</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">显得索尼更傻了
+

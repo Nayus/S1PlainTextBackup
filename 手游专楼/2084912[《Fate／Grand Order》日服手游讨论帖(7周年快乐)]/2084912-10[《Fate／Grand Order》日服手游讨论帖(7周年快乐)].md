@@ -12728,3 +12728,14 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 当然越来越喜欢边写边制作的大菌也是人间之鉴，最近刚扒出来点2.7主体是22年10月以后才动工的证据
 
+
+*****
+
+####  DARKGRAY  
+##### 14500#       发表于 2024-8-29 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66052455&amp;ptid=2084912" target="_blank">克苏鲁系青骑士 发表于 2024-8-29 12:49</a>
+
+感觉池里的bb迪拜还是不太对，怀疑锁的三破是藤蔓，前两个形态是她吃掉了两个BB数据后演出来的样子她自己说 ...</blockquote>
+幕间这样子也不像能当最终BOSS的，也有可能是第三部分新卡池，三破留给两个BB折算出来的友军形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

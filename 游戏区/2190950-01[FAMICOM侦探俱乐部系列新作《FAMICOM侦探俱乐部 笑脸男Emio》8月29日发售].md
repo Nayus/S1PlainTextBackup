@@ -2925,3 +2925,14 @@ Eurogamer 评价 3/5
 想问一下没玩过前作直接玩本作有什么理解和剧情上的障碍吗？</blockquote>
 不会和故事核心有关，但对话中会非常直接的提到消失的继承人和身后少女里关于男女主的剧情
 
+
+*****
+
+####  啊冲_c  
+##### 285#       发表于 2024-8-29 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050113&amp;ptid=2190950" target="_blank">Sutrid 发表于 2024-8-29 09:54</a>
+
+不会和故事核心有关，但对话中会非常直接的提到消失的继承人和身后少女里关于男女主的剧情 ...</blockquote>
+感谢！这样看来还是需要补一下前作的
+

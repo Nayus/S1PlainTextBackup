@@ -12434,3 +12434,14 @@ BB都指出了现在这个兽蕾是从别的宇宙来的了为什么兽蕾还要
 现在是多少小节？刚打的第八节,不太长就在灵脉石过期之前肝完了。</blockquote>
 前篇开到9小节
 
+
+*****
+
+####  cenhr  
+##### 14476#       发表于 2024-8-29 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049879&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2024-8-29 09:36</a>
+
+话说新剧情已经坐实了BBlily就是糖果藤蔓本蔓，帝王花也作为我方强力外援登场（虽然只能待在都市区而且一天 ...</blockquote>
+现在是差香堇菜？热唇虽然在重新启动时被格式化，但也是强力打手<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

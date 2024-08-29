@@ -922,3 +922,16 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  绿冰  
+##### 5039#         楼主| 发表于 2024-8-29 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050723&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-8-29 10:38</a>
+
+理论上下赛季目录是会复刻前一年的装备的，复刻第一赛季目录的问题是前年的装备已经复刻一遍了……
+
+前作最 ...</blockquote>
+可能，就很简单，比如这赛季开始变成4个月一赛季
+

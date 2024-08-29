@@ -1017,3 +1017,28 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5045#       发表于 2024-8-29 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66052932&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-8-29 13:41</a>
+
+前几天复健，正好赶上月一活动，有一场碰到无印香槟+贴牌长热，被打得不能自理，结算一看自己10-10，对面香 ...</blockquote>
+审查者的总共三次改动
+
+1.相比之前，我们提高了射击时墨汁的飞溅数量。(射击时可以获得更多的涂抹点数)
+
+2.无印190-200
+
+3.相比之前，略微减少了子弹滴落的数量。
+
+* 玩家脚下产生的涂抹频率与之前保持一致。
+
+四舍五入约等于改回去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+无印先加强墨滴，削弱P数，再削弱墨滴，约等于原版本削弱了P数
+
+贴牌就是削回最开始审查者的体验吧，估计涂螃蟹坦克有点影响
+

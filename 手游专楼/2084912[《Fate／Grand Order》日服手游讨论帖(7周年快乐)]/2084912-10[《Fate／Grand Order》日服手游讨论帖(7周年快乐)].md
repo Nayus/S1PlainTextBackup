@@ -12588,3 +12588,28 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 基因飞升不是灵能飞升，用不到灵魂
 
+
+*****
+
+####  シャル  
+##### 14488#       发表于 2024-8-29 12:20
+
+ 本帖最后由 シャル 于 2024-8-29 12:22 编辑 
+<blockquote>cenhr 发表于 2024-8-29 12:13
+看现在的说法是一些天龙人受不了AI的分配和功能让他们失去了优越性？</blockquote>
+
+资本主义的终结吗
+
+但是这样的话一早就该停止AI
+
+
+*****
+
+####  cenhr  
+##### 14489#       发表于 2024-8-29 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66052135&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-29 12:20</a>
+
+资本主义的终结吗</blockquote>
+至少现在开的章透过回忆写出天龙人就是不满AI把人和人之间因为才能和资源的关系而产生的阶级搞没了，所以天龙人才决定停止AI运作。AI大概因此反抗而产生了导致9成人类灭亡的AI人类大战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

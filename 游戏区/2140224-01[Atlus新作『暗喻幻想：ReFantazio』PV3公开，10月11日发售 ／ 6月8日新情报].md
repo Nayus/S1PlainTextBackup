@@ -97,3 +97,13 @@ Fami通：
 
 persona伟大
 
+
+*****
+
+####  蓮華  
+##### 655#       发表于 2024-8-29 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66052977&amp;ptid=2140224" target="_blank">罗克萨斯 发表于 2024-8-29 13:47</a>
+都说人设不行，但大只粉毛兔耳萌娘凯瑟琳娜却让我冲爆了</blockquote>
+是不是真滴从凯瑟琳fullbody里穿越来的？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

@@ -12718,3 +12718,13 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 上部分结束以后，我方还剩哪几个，对方还剩哪几个，你就直接能接上</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别理 我有空 只是不想看没完的东西
 
+
+*****
+
+####  UNISONIA  
+##### 14499#       发表于 2024-8-29 14:55
+
+去年lasengle还特地说了下现在负责FGO的人员和falcom社员差不多人数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然越来越喜欢边写边制作的大菌也是人间之鉴，最近刚扒出来点2.7主体是22年10月以后才动工的证据
+

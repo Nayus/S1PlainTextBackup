@@ -3082,3 +3082,15 @@ a9采访呢
 
 黎轨卖得不行，在你法社看来这是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3275#       发表于 2024-8-29 15:04
+
+The Legend of Heroes: Trails in the Sky the 1st will be released for Nintendo Switch in 2025. This will be a remake of Trails in the Sky FC.
+
+The official website also confirmed that action combat will not be present like in Trails through Daybreak. Instead, striking foes on the field will initiate a command battle. Currently, only a Switch release is confirmed.
+
+The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japan for PlayStation 4 and PlayStation 5 on September 26, 2024. Clouded Leopard Entertainment will launch the title in Traditional Chinese and Koeran on the same date. This is planned to be the finale of the Calvard arc.
+

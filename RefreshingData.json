@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2140224": {
-    "totalreply": 660,
+    "totalreply": 661,
     "title": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售 ／ 6月8日新情报]",
     "newtitle": "[Atlus新作『暗喻幻想：ReFantazio』PV3公开，10月11日发售]",
-    "lastedit": 1724971212,
+    "lastedit": 1724972649,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -9621,10 +9621,10 @@
     "update": false
   },
   "2192892": {
-    "totalreply": 2724,
+    "totalreply": 2725,
     "title": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
     "newtitle": "[《尘白禁区》麻辣火锅营地，喜欢聊天的请进]",
-    "lastedit": 1724954171,
+    "lastedit": 1724972769,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -10215,10 +10215,10 @@
     "update": false
   },
   "2194673": {
-    "totalreply": 8792,
+    "totalreply": 8793,
     "title": "[【严重剧透慎入】《黑神话悟空》剧透讨论楼，成就奖杯名单泄露]",
     "newtitle": "[【剧透慎入】《黑神话悟空》可剧透攻略交流楼。剧情，各种隐藏要素均可直接讨论]",
-    "lastedit": 1724951898,
+    "lastedit": 1724972407,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15386,7 +15386,7 @@
     "newtitle": "[贰瓶勉新连载《塔之迷宫Tower Dungeon》]",
     "lastedit": 1724713087,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2196534": {
@@ -17307,10 +17307,10 @@
     "update": false
   },
   "2197116": {
-    "totalreply": 85,
+    "totalreply": 86,
     "title": "[关于＂风＂的实际发音]",
     "newtitle": "[关于＂风＂的实际发音]",
-    "lastedit": 1724964726,
+    "lastedit": 1724972770,
     "category": "外野",
     "active": true,
     "update": false
@@ -17730,11 +17730,20 @@
     "update": false
   },
   "2197207": {
-    "totalreply": 47,
+    "totalreply": 48,
     "title": "[该有的都得有，黑神话最恶心小怪投票]",
     "newtitle": "[该有的都得有，黑神话最恶心小怪投票]",
-    "lastedit": 1724971210,
+    "lastedit": 1724972648,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2196356": {
+    "totalreply": 41,
+    "title": "[三元、完达山、新希望、光明，哪个比较厉害]",
+    "newtitle": "[三元、完达山、新希望、光明，哪个比较厉害]",
+    "lastedit": 1724972771,
+    "category": "外野",
     "active": true,
     "update": false
   }

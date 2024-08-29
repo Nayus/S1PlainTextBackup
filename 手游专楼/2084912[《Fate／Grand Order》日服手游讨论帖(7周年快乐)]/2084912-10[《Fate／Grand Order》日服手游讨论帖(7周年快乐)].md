@@ -12626,3 +12626,11 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 就像漫威魔伦一族和叉人那样，换新身体和喝水一样简单</blockquote>
 缺一块就不是完整的人了，要是指望新身体形成新灵魂的话灌进去又会变得类似于戴比特<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  克苏鲁系青骑士  
+##### 14491#       发表于 2024-8-29 12:49
+
+感觉池里的bb迪拜还是不太对，怀疑锁的三破是藤蔓，前两个形态是她吃掉了两个BB数据后演出来的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她自己说要以最高级的形式和加勒底结缘登场，五星月癌比AE应该高级多了吧…
+

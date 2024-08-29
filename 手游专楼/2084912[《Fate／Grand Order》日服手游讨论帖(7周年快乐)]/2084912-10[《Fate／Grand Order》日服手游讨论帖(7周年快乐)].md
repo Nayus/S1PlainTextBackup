@@ -12663,3 +12663,38 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 
 我还是等完结了一起看算了 昨天打到9节就没了我还一楞
 
+
+*****
+
+####  jackyhuang  
+##### 14494#       发表于 2024-8-29 14:30
+
+看到ハルシネーション这个词一边想着片假名英语滚啊，查完一看原来叫幻觉
+那看来这个世界人类应该还没完全寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  onemoment  
+##### 14495#       发表于 2024-8-29 14:31
+
+服务器炸了？
+
+*****
+
+####  TheLoof  
+##### 14496#       发表于 2024-8-29 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053133&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-29 14:04</a>
+
+总结 产能菜如狗（
+
+我还是等完结了一起看算了 昨天打到9节就没了我还一楞 ...</blockquote>
+你实在没空的话，你找个人帮你理一下
+
+上部分结束以后，我方还剩哪几个，对方还剩哪几个，你就直接能接上
+
+中间有很多内容都是乐子剧情，正经剧情严格的说只有AI发展史需要注意一下，找个up看整理就行了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2937,3 +2937,25 @@ Ether听完后感觉就很平（）
 
 2024-8-29 20:48 上传
 
+
+*****
+
+####  御幸一也  
+##### 22472#       发表于 2024-8-29 20:50
+
+米澤喵夢本喵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 22473#       发表于 2024-8-29 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这mv把我转晕了
+
+但是1.6w粉，不是特别鬼图，还做了动态效果……我好像还挺满意的
+
+所以下一首真的要鬼图了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+ether没啥好说了，长谷川味听耳朵起茧了已经
+

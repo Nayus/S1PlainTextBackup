@@ -3159,3 +3159,11 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 长谷川的火和土感觉都还好啊
 
+
+*****
+
+####  星天观测  
+##### 22490#       发表于 2024-8-29 22:52
+
+土真挺不错的，而且神奇的是现在土mv播放已经4w了，这里面得有多少饿疯了的鸡腿啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1213,3 +1213,21 @@ Q：《终极弗雷娜》的更新出乎意料。《终极渥尔比》相对容�
 目前来说这游戏挺可惜，玩起来没问题，课金买衣服也没问题
 但制作组不怎么想释出玩法
 
+
+*****
+
+####  天王寺綯  
+##### 206#       发表于 2024-8-29 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049226&amp;ptid=2153578" target="_blank">jbjack1215 发表于 2024-8-29 08:29</a>
+韩游老问题
+真当人均黑咖啡养生
+如果你是冲着p甲去，那其实挺容易退坑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">感觉就是不能着急
+一着急心态就容易崩，另外就是掉落需要向wf学习
+
+最后就是我觉得他这个虚空碎片挺鸡肋的
+感觉就是完全为了增加你在线时间插进来的环节
+本来哨所刷核桃熔炉开核桃这一套循环就挺完整了
+不明白为啥插进来个刷碎片，碎片的怪又毛都不掉，一点儿副产品不给，纯纯拖时间...刷这个的过程真是要多无聊有多无聊
+

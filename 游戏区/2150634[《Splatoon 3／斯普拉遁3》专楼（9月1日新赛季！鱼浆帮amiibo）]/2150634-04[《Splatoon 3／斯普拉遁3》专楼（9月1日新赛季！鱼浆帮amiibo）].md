@@ -824,3 +824,45 @@ max三岗过了不出金<img src="https://static.saraba1st.com/image/smiley/face
 
 香槟，长热，铅笔，红桶，审查者，水泵全削了
 
+
+*****
+
+####  KBAC  
+##### 5030#       发表于 2024-8-29 09:15
+
+日本和周边地区X赛不让选艾洛眼了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+没有新内容追加，但是大祭典前还有一次更新，只能说还有戏但不多。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+依然有针对祭典的调整，看来以后祭典还是会有。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  墨染白泉  
+##### 5031#       发表于 2024-8-29 09:19
+
+rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KBAC  
+##### 5032#       发表于 2024-8-29 09:20
+
+丝毫没提下赛季怎么运营，最好奇的是下赛季目录怎么办。
+还是说准备祭这一段时间不算新赛季？大祭典之后宣布续期？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绿冰  
+##### 5033#         楼主| 发表于 2024-8-29 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66049659&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-8-29 09:20</a>
+
+丝毫没提下赛季怎么运营，最好奇的是下赛季目录怎么办。
+
+还是说准备祭这一段时间不算新赛季？大祭典之后宣 ...</blockquote>
+都没预告，还不算吧
+

@@ -3012,3 +3012,20 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 但是也不是没有画得好的画师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22479#       发表于 2024-8-29 21:34
+
+本来想说作为收官曲MV肯定得找个好画师吧，总不能是鬼图吧
+
+但一想到收官曲还是长谷川……好吧，不能擅自对wsd报以期待
+
+*****
+
+####  PDQ4  
+##### 22480#       发表于 2024-8-29 21:35
+
+这期是不是卖laychu了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

@@ -121,3 +121,14 @@ persona伟大
 【ATLUS Exclusive《暗喻幻想：ReFantazio》巡游世界篇】 
 [https://b23.tv/iZ2FEkh](https://b23.tv/iZ2FEkh)
 
+
+*****
+
+####  ナルバレック  
+##### 657#       发表于 2024-8-29 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053002&amp;ptid=2140224" target="_blank">smdzh2 发表于 2024-8-29 13:50</a>
+
+还记得东乡123吗，不能入队再戳xp有什么用</blockquote>
+东乡123原计划就是队友，最后STAFF觉得和真人设冲突了就改NPC了
+

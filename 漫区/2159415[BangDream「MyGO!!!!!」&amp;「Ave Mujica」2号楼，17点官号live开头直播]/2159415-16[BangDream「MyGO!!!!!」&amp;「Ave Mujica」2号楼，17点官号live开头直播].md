@@ -3167,3 +3167,11 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 土真挺不错的，而且神奇的是现在土mv播放已经4w了，这里面得有多少饿疯了的鸡腿啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22491#       发表于 2024-8-30 00:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">得看长谷川编的啥风格曲子吧？像Angles这种抒情曲真的挺好的
+

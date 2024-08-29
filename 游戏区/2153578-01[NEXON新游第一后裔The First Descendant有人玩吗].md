@@ -1387,3 +1387,12 @@ patch note
 
 新副本机制简直是惊为天人
 
+
+*****
+
+####  天王寺綯  
+##### 218#       发表于 2024-8-30 07:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真是没有不骂的
+韩国人是真的不会做游戏
+

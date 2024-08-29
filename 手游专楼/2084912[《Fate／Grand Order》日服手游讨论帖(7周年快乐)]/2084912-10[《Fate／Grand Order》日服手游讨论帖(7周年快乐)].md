@@ -12561,3 +12561,30 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 长生有终点，但是换躯体则没有</blockquote>
 理论上换也没用，灵魂会腐朽，于是AI搞不了第三法就搞出了灵魂数据化进网络？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cenhr  
+##### 14486#       发表于 2024-8-29 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051892&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2024-8-29 12:02</a>
+
+理论上换也没用，灵魂会腐朽，于是AI搞不了第三法就搞出了灵魂数据化进网络？ ...</blockquote>
+看现在的说法是一些天龙人受不了AI的分配和功能让他们失去了优越性？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  シャル  
+##### 14487#       发表于 2024-8-29 12:16
+
+<blockquote>DARKGRAY 发表于 2024-8-29 12:02
+理论上换也没用，灵魂会腐朽，于是AI搞不了第三法就搞出了灵魂数据化进网络？ ...</blockquote>
+
+换身体传思想记忆和人格就好了
+
+就像漫威魔伦一族和叉人那样，换新身体和喝水一样简单
+
+灵魂啥的跟着旧身体一起毁灭好了
+
+基因飞升不是灵能飞升，用不到灵魂
+

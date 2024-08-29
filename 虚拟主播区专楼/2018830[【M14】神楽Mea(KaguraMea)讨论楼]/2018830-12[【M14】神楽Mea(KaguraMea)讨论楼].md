@@ -7350,3 +7350,18 @@ mea这把表现可能能拿mvp吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大龙团那波真的觉醒了，太帅了我的宝
 
+
+*****
+
+####  古战场亡魂  
+##### 17288#       发表于 2024-8-29 23:22
+
+基本上第二局赢了，虽然不是开香槟，但是24分49的时间点领先7千4经济，人头13-4，团战比对方强多了。
+
+*****
+
+####  thisisaspider  
+##### 17289#       发表于 2024-8-29 23:24
+
+什么时候成为日服第一波比<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

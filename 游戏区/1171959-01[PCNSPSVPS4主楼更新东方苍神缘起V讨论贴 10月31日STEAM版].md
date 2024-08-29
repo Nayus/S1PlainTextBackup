@@ -2872,3 +2872,27 @@ https://store.steampowered.com/app/2101110/V/</blockquote>
 
 我发现steam上居然还提供英文但是ns上好像没有
 
+
+*****
+
+####  江戸前ルナ  
+##### 279#         楼主| 发表于 2024-8-29 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66058715&amp;ptid=1171959" target="_blank">requiem116 发表于 2024-8-29 22:48</a>
+
+整理电脑的时候发现了以前的周末版
+
+谷歌一搜果然还得是s1
+
+那么现在pc或者ns上的V版有汉化能用吗</blockquote>
+V版加了1/3的挑战内容，这些是周末版没当然是没汉化的。
+
+前面的应该能用，没啥区别的但问题是这游戏太冷了，没人去做移植（至少我没见过或听说过）
+
+*****
+
+####  希望之异热同心  
+##### 280#       发表于 2024-8-29 23:25
+
+steam版有汉化补丁么，买了ally不想再啃生肉了，ns玩幻少和TODR看日文看得我人麻了
+

@@ -2886,3 +2886,41 @@ ucg也去了，感觉下周会有界和空的宣发，噢，下周是9月了<img
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">序章也看不出什么有价值的信息
 
+
+*****
+
+####  宛若青空  
+##### 3254#       发表于 2024-8-29 10:36
+
+起码这次能知道是怎么个分线法了，大概率创那样的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3255#       发表于 2024-8-29 10:38
+
+A9拍的包装展示
+
+<img src="https://img.saraba1st.com/forum/202408/29/103818sbei9inoee5bbznw.png" referrerpolicy="no-referrer">
+
+<strong>PI@7)4JNBY%HZ]7IPGZS)82.png</strong> (696.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 10:38 上传
+
+*****
+
+####  Kojimaru  
+##### 3256#       发表于 2024-8-29 10:39
+
+<img src="https://img.saraba1st.com/forum/202408/29/103849vfqfxjvx3yfnnij3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 10:38 上传
+
+中文版试玩下周四评论解禁 <blockquote>活動中 Nihon Falcom 社長兼遊戲製作人近藤季洋與雲豹娛樂社長陳云云聯袂登台，詳細介紹了這次遊戲的特色，並接受媒體聯訪，進一步深入解答各種關於最新作《英雄傳說 界之軌跡 -告別塞姆利亞-》乃至前一日閃電發表的經典重製作品《英雄傳說 空之軌跡 the 1st》的提問。現場並開放《界之軌跡》的序章試玩。</blockquote>
+

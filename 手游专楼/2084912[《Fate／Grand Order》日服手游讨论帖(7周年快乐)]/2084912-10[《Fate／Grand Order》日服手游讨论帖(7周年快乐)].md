@@ -12613,3 +12613,16 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 资本主义的终结吗</blockquote>
 至少现在开的章透过回忆写出天龙人就是不满AI把人和人之间因为才能和资源的关系而产生的阶级搞没了，所以天龙人才决定停止AI运作。AI大概因此反抗而产生了导致9成人类灭亡的AI人类大战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14490#       发表于 2024-8-29 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66052082&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-29 12:16</a>
+
+换身体传思想记忆和人格就好了
+
+就像漫威魔伦一族和叉人那样，换新身体和喝水一样简单</blockquote>
+缺一块就不是完整的人了，要是指望新身体形成新灵魂的话灌进去又会变得类似于戴比特<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

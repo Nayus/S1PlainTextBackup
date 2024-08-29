@@ -3094,3 +3094,31 @@ The official website also confirmed that action combat will not be present like 
 
 The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japan for PlayStation 4 and PlayStation 5 on September 26, 2024. Clouded Leopard Entertainment will launch the title in Traditional Chinese and Koeran on the same date. This is planned to be the finale of the Calvard arc.
 
+
+*****
+
+####  卢迪克  
+##### 3276#       发表于 2024-8-29 16:03
+
+ 本帖最后由 卢迪克 于 2024-8-29 16:04 编辑 
+
+强颜欢笑
+
+<img src="https://img.saraba1st.com/forum/202408/29/160306alvwmugpz4gr04m1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240829_160137.jpg</strong> (52.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-29 16:03 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/160310yh9xxgprzjjtnn30.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1724918524057fbbe0bc6c8a98d9db760b1535142342125acc73b0e63ff094d1aab7980748b51.jpg</strong> (460.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-29 16:03 上传
+

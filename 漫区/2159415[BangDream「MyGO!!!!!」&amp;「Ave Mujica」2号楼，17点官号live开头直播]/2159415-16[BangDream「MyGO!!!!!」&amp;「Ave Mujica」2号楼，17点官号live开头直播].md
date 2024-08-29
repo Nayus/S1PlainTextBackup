@@ -3029,3 +3029,80 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 这期是不是卖laychu了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22481#       发表于 2024-8-29 21:42
+
+<img src="https://img.saraba1st.com/forum/202408/29/214206r8hndh8h8sogoolf.jpg" referrerpolicy="no-referrer">
+
+<strong>1724938906386.jpg</strong> (122.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/214218f33uof33396f9twe.jpg" referrerpolicy="no-referrer">
+
+<strong>1724938864881.jpg</strong> (340.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/214225me1lj81c2u2bg0b1.jpg" referrerpolicy="no-referrer">
+
+<strong>1724938912093.jpg</strong> (343.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/214238hubxxng1zn4u74i5.jpg" referrerpolicy="no-referrer">
+
+<strong>1724938902442.jpg</strong> (328.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:42 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/214245cbpwbmyplic5vvlk.jpg" referrerpolicy="no-referrer">
+
+<strong>1724938857969.jpg</strong> (315.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:42 上传
+
+*****
+
+####  skives  
+##### 22482#       发表于 2024-8-29 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66058046&amp;ptid=2159415" target="_blank">Aendst 发表于 2024-8-29 21:25</a>
+很难画，非常难
+
+地狱折磨级的发型，眼睛（五官）也很难还原味道
+
+演出服尤其那个裙子也非常复杂</blockquote>
+再加上面具 还要画成侧面站位
+难度又上升了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22483#       发表于 2024-8-29 21:47
+
+好羨慕 RAS的巡演KV太好看了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"> 
+
+而且名字還叫萬魔殿 好中二好喜歡<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202408/29/214727egtll3gq31qzzhgh.jpg" referrerpolicy="no-referrer">
+
+<strong>バンドリ！TV LIVE 2024 #230 54-51 screenshot.jpg</strong> (373.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 21:47 上传
+

@@ -81,3 +81,21 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 在常驻或轮换池扔狂气还不如为限定攒抽数。毕竟玛丽还没有瓦夜人格呢，说不定下季度就改轮到她了...
 
+
+*****
+
+####  Jamaisvu  
+##### 847#       发表于 2024-8-29 21:42
+
+瓦夜第一次的卡池角色是浮士德（悔恨ego）、鸿璐（吊钩事务所）、默尔索EGO（悔恨ego），
+
+第二次是奥提斯（魔弹ego），堂吉诃德（提灯ego）,
+
+第三次是辛克莱（哭泣之子菲利普），以实玛利EGO（翅振ego），罗佳EGO（血欲ego）。
+
+第四次有李箱（圣宣ego）、良秀（赤瞳ego）和未公布EGO。
+
+希斯克利夫和格里高尔中的某人即将迎来轮空<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+如果第二夜多出张卡就可以平均分配了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

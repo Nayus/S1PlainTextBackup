@@ -2770,3 +2770,104 @@ Ether听完后感觉就很平（）
 
 前奏的弦乐有几个小节甚至有点二次元偶像曲风的感觉（）
 
+
+*****
+
+####  hitori酱  
+##### 22458#       发表于 2024-8-29 20:31
+
+<img src="https://img.saraba1st.com/forum/202408/29/203035jlflbbf9lzc9zcd6.jpg" referrerpolicy="no-referrer">
+
+<strong>11111.jpg</strong> (306.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/203036iold4bpz9slbpfio.jpg" referrerpolicy="no-referrer">
+
+<strong>22222.jpg</strong> (252.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:30 上传
+
+有史以来画最好一次（？）
+
+
+*****
+
+####  skives  
+##### 22459#       发表于 2024-8-29 20:32
+
+祥子的脸还是不太行
+
+*****
+
+####  PDQ4  
+##### 22460#       发表于 2024-8-29 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是鬼图就可以了
+
+祥子只是脸看起来好像年纪大了一轮而已
+
+可能是去当光美变身回来临时参加的MV录制<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22461#       发表于 2024-8-29 20:36
+
+祥子是不是比较难画啊 感觉几套mv都不太行 
+2nd那次虽然找的是19万粉的画师  也很微妙<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22462#       发表于 2024-8-29 20:36
+
+以太感觉还可以，有点类似于最后一战然后我们就自由了的感觉
+
+新mv居然不是鬼图，我要有请前些天赌新画师不超过4000元的出列了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22463#       发表于 2024-8-29 20:36
+
+<img src="https://img.saraba1st.com/forum/202408/29/203647dvm4egw0jf8w153z.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_BENI(@bn12x20)_20240829-123231_1829135039592026185_photo.jpg</strong> (423.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:36 上传
+
+[https://x.com/bn12x20/status/1829135039592026185](https://x.com/bn12x20/status/1829135039592026185)
+
+*****
+
+####  御幸一也  
+##### 22464#       发表于 2024-8-29 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057621&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-29 20:36</a>
+
+以太感觉还可以，有点类似于最后一战然后我们就自由了的感觉
+
+新mv居然不是鬼图，我要有请前些天赌新画师不 ...</blockquote>
+別急，別高興太早，下一首一定鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22465#       发表于 2024-8-29 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057620&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-29 20:36</a>
+
+祥子是不是比较难画啊 感觉几套mv都不太行 
+
+2nd那次虽然找的是19万粉的画师  也很微妙 ...</blockquote>
+超級難畫吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前最好看就是2nd那個了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

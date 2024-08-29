@@ -2693,3 +2693,62 @@ EG回不来，迷你专黑色生日、假面舞会那几个作曲呢
 
 就记得长谷川了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  skives  
+##### 22451#       发表于 2024-8-29 19:59
+
+最喜欢水其次是火<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 22452#       发表于 2024-8-29 20:02
+
+ 本帖最后由 PDQ4 于 2024-8-29 20:03 编辑 
+
+MV也出了，什么延迟放送<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+万粉曲绘师，赢！
+
+*****
+
+####  NODY  
+##### 22453#       发表于 2024-8-29 20:04
+
+我倒是觉得以太是仅次于水了
+
+土的mv是2nd那个画师？有点像
+
+*****
+
+####  御幸一也  
+##### 22454#       发表于 2024-8-29 20:05
+
+不是鬼圖 贏
+
+<img src="https://img.saraba1st.com/forum/202408/29/200525nf5235cu55c19ih1.png" referrerpolicy="no-referrer">
+
+<strong>Ave Mujica - Symbol IV _ Earth (Official Music Video) 1-43 screenshot.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/200527eq6xjx4e1vjt1x9v.png" referrerpolicy="no-referrer">
+
+<strong>c428dba7-c54f-466e-9a47-2d4294cb1c41.png</strong> (267.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:05 上传
+
+*****
+
+####  skives  
+##### 22455#       发表于 2024-8-29 20:06
+
+初华画得不错
+

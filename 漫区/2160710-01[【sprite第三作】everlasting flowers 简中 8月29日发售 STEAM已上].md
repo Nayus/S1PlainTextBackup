@@ -744,3 +744,50 @@ STEAM版已上架，国区定价88
 开自动模式10h吧</blockquote>
 嗯，那还可以，不过体量也不算很大吧（没查文本量），后续看下评价再考虑买不买，最近时间打红烧的活动都不够<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小延S  
+##### 48#       发表于 2024-8-29 20:03
+
+<img src="https://img.saraba1st.com/forum/202408/29/200115loyavbbatltmy8os.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/200123oq7zmexgfrfmkee7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202408/29/200148i2nac0qelwecweni.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:01 上传
+
+不是姐 你搞前面一句就行 为什么非要变成雷老板
+
+<img src="https://img.saraba1st.com/forum/202408/29/200234krwteixpbbp4997b.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-29 20:02 上传
+
+*****
+
+####  小延S  
+##### 49#       发表于 2024-8-29 20:04
+
+收集了点赢面 希望漏油能补充一下
+

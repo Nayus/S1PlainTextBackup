@@ -1495,3 +1495,19 @@ IGN终于把分憋出来了</blockquote>
 不是索尼做了8年，是做了7年然后去年被索尼收购</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">显得索尼更傻了
 
+
+*****
+
+####  瓦格雷  
+##### 142#       发表于 2024-8-29 08:57
+
+据说这线上人数比某个国内出的太空枪枪枪的还少
+
+
+*****
+
+####  TANA  
+##### 143#       发表于 2024-8-29 09:02
+
+索爹：我涨价PS5也要养你啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

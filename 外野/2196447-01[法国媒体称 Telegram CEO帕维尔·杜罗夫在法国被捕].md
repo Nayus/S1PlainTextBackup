@@ -1542,3 +1542,11 @@ HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://stati
 
 “电报”目前约有9亿用户，是俄语地区最主要社交媒体平台之一，也是乌克兰危机中俄乌双方重要的发声平台。</blockquote>
 
+
+*****
+
+####  cyberalogo  
+##### 136#       发表于 2024-8-29 12:00
+
+留在法国就是坐以待毙，就看他有没有日产高管戈恩的胆量，赌一次冒险大逃亡了，即使是逃回俄罗斯也比在法国被榨干好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

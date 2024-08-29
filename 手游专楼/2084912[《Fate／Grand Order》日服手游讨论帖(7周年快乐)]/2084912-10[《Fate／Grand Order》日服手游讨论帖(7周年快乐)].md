@@ -12548,3 +12548,16 @@ CM好像没有莉莉丝，所以现在是差香堇菜？热唇虽然在重新启
 有一句“是为了替代人类制 ...</blockquote>
 一句是人类自己YY AI不安好心的就搞定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  DARKGRAY  
+##### 14485#       发表于 2024-8-29 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66051358&amp;ptid=2084912" target="_blank">シャル 发表于 2024-8-29 11:22</a>
+
+话说AI给天龙人搞出延命改造，缺不搞备份身体技术，怕不是故意的吧
+
+长生有终点，但是换躯体则没有</blockquote>
+理论上换也没用，灵魂会腐朽，于是AI搞不了第三法就搞出了灵魂数据化进网络？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2974,3 +2974,11 @@ Eurogamer 评价 3/5
 
 英：[https://www.nintendo.com/us/what ... ective-club-part-1/](https://www.nintendo.com/us/whatsnew/ask-the-developer-vol-12-emio-the-smiling-man-famicom-detective-club-part-1/)
 
+
+*****
+
+####  zyf199212  
+##### 290#       发表于 2024-8-29 14:49
+
+蹲蹲剧情评价，要不纯文字类游戏分就没有几个高的，本质就是电子小说
+

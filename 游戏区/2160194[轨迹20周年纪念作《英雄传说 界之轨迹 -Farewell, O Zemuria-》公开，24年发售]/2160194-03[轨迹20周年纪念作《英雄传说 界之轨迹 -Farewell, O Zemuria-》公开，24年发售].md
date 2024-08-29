@@ -2965,3 +2965,18 @@ a9采访呢
 骂归骂，买归买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 至于宣发，还有啥讨论了，this is 加藤正幸
 
+
+*****
+
+####  卢迪克  
+##### 3261#       发表于 2024-8-29 14:15
+
+官网没有更新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3262#       发表于 2024-8-29 14:16
+
+那明天近藤念什么
+

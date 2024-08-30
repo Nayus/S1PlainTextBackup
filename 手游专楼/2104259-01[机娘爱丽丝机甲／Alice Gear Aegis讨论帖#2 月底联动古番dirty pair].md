@@ -241,3 +241,14 @@
 
 问题是都和岛田闹翻了小裤裤还能联动吗？绕开岛田和角川谈不是激化矛盾吗？视觉图谁来画？不是岛田就是在承认aga和岛田不和了。
 
+
+*****
+
+####  江戸前ルナ  
+##### 1189#         楼主| 发表于 2024-8-30 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66061054&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-30 09:30</a>
+
+问题是都和岛田闹翻了小裤裤还能联动吗？绕开岛田和角川谈不是激化矛盾吗？视觉图谁来画？不是岛田就是在承 ...</blockquote>
+这次英国佬就是有岛田监修，然后上次夏莉和卢基尼我记得岛田也没画视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

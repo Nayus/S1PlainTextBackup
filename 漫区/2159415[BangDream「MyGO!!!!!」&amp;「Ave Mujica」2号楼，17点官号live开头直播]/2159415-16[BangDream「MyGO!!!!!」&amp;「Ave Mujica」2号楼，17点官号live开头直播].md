@@ -3215,3 +3215,19 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 symbol我印象最深的是2，旋律很抓耳，李子很适合唱这个风格
 
+
+*****
+
+####  基神的强袭自由  
+##### 22496#       发表于 2024-8-30 10:28
+
+<img src="https://img.saraba1st.com/forum/202408/30/102824ry4xtvwg4zuv4o4d.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4571.PNG</strong> (222.87 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 10:28 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

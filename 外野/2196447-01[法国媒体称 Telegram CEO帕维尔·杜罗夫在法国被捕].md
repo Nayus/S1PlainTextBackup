@@ -1583,3 +1583,11 @@ HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://stati
 怎么会有人觉得在hk东大就能忍住不出手的在眼皮子底下挖你家墙角，这还能让他跑了？ ...</blockquote>
 有啊，芝加哥学派当代旗手托马斯索维尔2012年就表示，HK虽然是东大管理，但是你球最目田的市场，当然有人也说了，这些过气的哈耶克粉丝懂什么目田<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hagane  
+##### 140#       发表于 2024-8-30 10:29
+
+别这样，前有汤不热现有tele，小姐诶微什么时候出app啊，这香火不能断啊
+

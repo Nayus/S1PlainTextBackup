@@ -3480,3 +3480,11 @@ ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗
 几个月前在日亚预定了电击20周年纪念版，后来特典出了图后觉得多出来的特典没意思想换成普通的电击版，结果 ...</blockquote>
 GEO的也是目前看来法是卖完了就不补，哎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3314#       发表于 2024-8-31 04:06
+
+说起来还真是op解析
+

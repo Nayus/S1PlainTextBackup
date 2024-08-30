@@ -840,3 +840,13 @@ NS 版不用，PS4 版估计也差不多吧。
 
 不过这两个的价格都是 6900 日元，比 Steam 贵太多了，真不建议在上面购买。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  OKKING  
+##### 55#       发表于 2024-8-30 10:16
+
+<blockquote>小延S 发表于 2024-8-29 20:28
+中文翻译我感觉一般般 我听译看到几个意思偏离的了</blockquote>
+没有国内互联网烂梗、没有常识性错误、没有漏翻、比AI强（人称代词不会普遍错误），在我这里就能得到“还行”的评价了
+

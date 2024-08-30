@@ -99,3 +99,18 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 如果第二夜多出张卡就可以平均分配了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 848#       发表于 2024-8-30 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66058194&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-8-29 21:42</a>
+
+瓦夜第一次的卡池角色是浮士德（悔恨ego）、鸿璐（吊钩事务所）、默尔索EGO（悔恨ego），
+
+第二次是奥提斯（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉第一轮整体会是人格和ego每个人都出一个然后开第二轮
+
+这期ego如果是补强度的话感觉会是虫he，虫除了苹果其他ego是真的没一个能用的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

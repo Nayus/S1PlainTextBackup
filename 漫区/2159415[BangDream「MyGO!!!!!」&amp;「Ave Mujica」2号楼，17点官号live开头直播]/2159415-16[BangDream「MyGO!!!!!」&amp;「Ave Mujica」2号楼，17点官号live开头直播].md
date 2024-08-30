@@ -3207,3 +3207,11 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 —— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
+
+*****
+
+####  光MIKAN  
+##### 22495#       发表于 2024-8-30 09:58
+
+symbol我印象最深的是2，旋律很抓耳，李子很适合唱这个风格
+

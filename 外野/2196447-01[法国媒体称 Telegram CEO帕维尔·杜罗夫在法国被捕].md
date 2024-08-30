@@ -1572,3 +1572,14 @@ HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://stati
 在一些知乎er口中，杜罗夫早就知道西方民主自由是虚假的，去法国前就确信自己会被逮捕，这 ...</blockquote>
 杜罗夫被捕前捋了捋胡子，他女儿就看明白了父亲这是暗示自己的罪名莫须有
 
+
+*****
+
+####  皮划艇日客人  
+##### 139#       发表于 2024-8-30 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66026550&amp;ptid=2196447" target="_blank">remedios010000 发表于 2024-8-27 09:41</a>
+
+怎么会有人觉得在hk东大就能忍住不出手的在眼皮子底下挖你家墙角，这还能让他跑了？ ...</blockquote>
+有啊，芝加哥学派当代旗手托马斯索维尔2012年就表示，HK虽然是东大管理，但是你球最目田的市场，当然有人也说了，这些过气的哈耶克粉丝懂什么目田<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

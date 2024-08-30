@@ -3165,3 +3165,20 @@ The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japa
 笑容逐渐消失.jpg
 真是风水轮流转啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3282#       发表于 2024-8-30 18:06
+
+其实没啥可以讨论的，云豹媒体界轨试玩给的还是艾约，今年发售的界轨起码也得印van和阿妮意思意思吧，黎恩凯文路法斯也行吧，而不是没登场的艾约，也就那样了
+
+10aecca3d978a71314ab03dbb340e1543410169.jpg
+(509.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/180614r7r7jf4v1812yj5p.jpg" referrerpolicy="no-referrer">
+

@@ -3471,3 +3471,35 @@ TGW，你们的皇帝回来了
 
 看了好多repo都说mujica最后大合唱的时候很嗨而且感情很好，尤其是节约特别活泼一直在跳舞，可惜得明年才能看到了
 
+
+*****
+
+####  NODY  
+##### 22516#       发表于 2024-8-31 00:11
+
+米泽和节约没发场T照
+
+<img src="https://img.saraba1st.com/forum/202408/31/001100ixls1112vxjpl5qc.jpg" referrerpolicy="no-referrer">
+
+<strong>GWOwikOaUAA7zKc.jpg</strong> (679.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:11 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/001100gd1m16ddkr368md8.jpg" referrerpolicy="no-referrer">
+
+<strong>GWPD7rSW4AAb_8M.jpg</strong> (292.94 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:11 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/001100r6u6vt850668t55e.jpg" referrerpolicy="no-referrer">
+
+<strong>GWPF2FxbYAALkpF.jpg</strong> (722.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 00:11 上传
+

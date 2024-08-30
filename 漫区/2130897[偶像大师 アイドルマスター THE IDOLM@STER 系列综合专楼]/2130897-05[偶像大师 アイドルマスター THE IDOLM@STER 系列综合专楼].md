@@ -3093,3 +3093,12 @@ T恤裤衩泡温泉<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">台风把我们的初心三人组首秀打到下周去了
 
+
+*****
+
+####  lunaticfool  
+##### 6292#       发表于 2024-8-31 00:07
+
+<img src="https://p.sda1.dev/19/1e54a061d26356830d6c76e60a954bca/image.jpg" referrerpolicy="no-referrer">
+.传奇退堂鼓冠军
+

@@ -1633,3 +1633,25 @@ IGN终于把分憋出来了</blockquote>
 
 把人物全换成死或生的妹子再加入爆甲爆衣效果能不能抢救回来？
 
+
+*****
+
+####  Vladimeow  
+##### 155#       发表于 2024-8-30 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66036841&amp;ptid=2191081" target="_blank">6x6z6w 发表于 2024-8-28 00:13</a>
+一个巴西画师在推上发了自己重新设计过的部分角色，id图上有  
+
+所以说搞zzzq的艺术家真的该死 ...</blockquote>
+这不看着顺眼多了
+
+
+*****
+
+####  ykyin09  
+##### 156#       发表于 2024-8-30 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在只想知道之前传言这个游戏把接下来的ps游戏开发全干停的是不是真的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

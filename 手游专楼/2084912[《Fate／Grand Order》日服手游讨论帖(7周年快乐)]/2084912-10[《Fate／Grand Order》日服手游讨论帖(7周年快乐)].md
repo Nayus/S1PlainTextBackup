@@ -12826,3 +12826,11 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">花了2天才打完....下一个阶段竟然要9月11号才开....还以为像活动一样每天都分阶段来开的
 
+
+*****
+
+####  cenhr  
+##### 14510#       发表于 2024-8-30 08:35
+
+如果后面透露水神给主角的卡真的有重要的信息，那么他把卡扔掉的行动就是SB了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -270,3 +270,25 @@ sayu的大家好挺标准的啊。队内有人就是不一样
 <img src="https://p.sda1.dev/19/8c8f5edddadc31216e332c9a87d6d739/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/2dfcef225c553fcae4046de1e9f63936/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  仟音一心  
+##### 20973#       发表于 2024-8-30 20:30
+
+大熊和奏艺人出道
+
+<img src="https://p.sda1.dev/19/6ee215d61880baee5caa0777a903f906/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/321fe342340abaff90d5c78669b57d23/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/c8abca5a367aa05cbde70afbf42b3ffe/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 20974#       发表于 2024-8-30 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66067354&amp;ptid=2078110" target="_blank">离心 发表于 2024-8-30 20:10</a>
+sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
+<img src="https://p.sda1.dev/19/f0d6005a2ad88d608942f25348f61982/image.jpg" referrerpolicy="no-referrer">
+

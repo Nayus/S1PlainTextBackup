@@ -567,3 +567,18 @@ Annapurna将为《控制2》提供50%的开发预算，并获得《控制》和�
 
 控制2再拖几年我的机器真的要跑不动了
 
+
+*****
+
+####  jedipiggy  
+##### 57#       发表于 2024-8-30 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58391802&amp;ptid=2104476" target="_blank">nozomitech 发表于 2022-11-11 20:22</a>
+
+我不想要控制2，我要量子破碎第二代啊！微软，再给一次机会吧。
+
+—— 来自 S1Fun ...</blockquote>
+卧槽 激动的握爪 终于找到喜欢这游戏的人了
+
+当年真的是喜欢的不行
+

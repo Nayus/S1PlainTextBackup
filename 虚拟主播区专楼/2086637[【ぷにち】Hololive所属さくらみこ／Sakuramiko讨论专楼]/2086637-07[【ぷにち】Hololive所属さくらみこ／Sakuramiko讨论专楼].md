@@ -7552,3 +7552,24 @@ live周边的先行发送部分竟然一个月就发送了，而live还有2个�
 
 晚上回来又没有七大豆不知道
 
+
+*****
+
+####  holoan  
+##### 9516#         楼主| 发表于 2024-8-30 16:38
+
+<img src="https://img.saraba1st.com/forum/202408/30/163813v74itptssihhd7db.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 16:38 上传
+
+*****
+
+####  holoan  
+##### 9517#         楼主| 发表于 2024-8-30 17:11
+
+今年开几场live了？
+

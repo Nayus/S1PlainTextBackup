@@ -3462,3 +3462,11 @@ ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  暗影吉他手  
+##### 3312#       发表于 2024-8-31 01:48
+
+几个月前在日亚预定了电击20周年纪念版，后来特典出了图后觉得多出来的特典没意思想换成普通的电击版，结果发现什么版本都没货了，那就这样认了当冤大头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

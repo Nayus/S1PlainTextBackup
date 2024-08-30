@@ -825,3 +825,18 @@ STEAM版已上架，国区定价88
 
 之后来看看点评，好像也没错过太多
 
+
+*****
+
+####  HazukiShion  
+##### 54#       发表于 2024-8-30 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66060486&amp;ptid=2160710" target="_blank">llysander 发表于 2024-8-30 08:25</a>
+
+断网看到弹出重连steam才能继续，直接点退款。 主机版什么样的？ns总不能要全程联网吧，实体pkg版呢？
+
+之 ...</blockquote>
+NS 版不用，PS4 版估计也差不多吧。
+
+不过这两个的价格都是 6900 日元，比 Steam 贵太多了，真不建议在上面购买。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

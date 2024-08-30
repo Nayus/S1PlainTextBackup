@@ -1164,3 +1164,20 @@ rpg只削了启动时间，没削暴风。小绿人安心了<img src="https://st
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  幽香  
+##### 5057#       发表于 2024-8-30 09:18
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+GWMHSm0aAAAgVl9.jfif
+(220.99 KB, 下载次数: 0)
+
+2024-8-30 09:14 上传
+
+点击文件名下载附件
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">长热最后的狂欢？不管怎么说上位打出这KD太恐怖了，不知道更新之后上5000还有望不。
+

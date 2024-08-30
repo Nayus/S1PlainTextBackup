@@ -1229,3 +1229,31 @@ GWMHSm0aAAAgVl9.jfif
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  KBAC  
+##### 5063#       发表于 2024-8-30 11:06
+
+2代的英雄武器3代刚出的时候就做了2D图标，到最后也没实装<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yanglian72  
+##### 5064#       发表于 2024-8-30 11:12
+
+7亿这目标乍看还是有点大，有没有人统计过最近几次大润在线参与人数？
+
+
+*****
+
+####  Ryuuseigun  
+##### 5065#       发表于 2024-8-30 11:14
+
+ 本帖最后由 Ryuuseigun 于 2024-8-30 11:15 编辑 
+
+卧槽熊老板送的投蛋器可以直接投进蛋框里<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+这下安心当K头战神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

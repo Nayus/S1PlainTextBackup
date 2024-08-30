@@ -3371,3 +3371,21 @@ fami期待榜20位，属于没人在乎了<img src="https://static.saraba1st.com
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">永远无法完结的界轨是吧
 
+
+*****
+
+####  古畑任三郎2015  
+##### 3303#       发表于 2024-8-30 22:43
+
+Van桑估计真要竞争历代最小丑主角了
+葱哥都要翻红了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  卢迪克  
+##### 3304#       发表于 2024-8-30 22:44
+
+播了三个小时也是真能水
+

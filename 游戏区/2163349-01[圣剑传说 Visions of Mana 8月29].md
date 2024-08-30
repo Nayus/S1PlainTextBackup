@@ -92,3 +92,13 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 看起来是CP绑定的设定？有没有打通关的勾RPG高手讲讲剧情有无雷 没雷就买了
 
+
+*****
+
+####  无论东西  
+##### 233#       发表于 2024-8-31 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66069934&amp;ptid=2163349" target="_blank">樽——見 发表于 2024-8-31 02:08</a>
+看起来是CP绑定的设定？有没有打通关的勾RPG高手讲讲剧情有无雷 没雷就买了 ...</blockquote>
+雷的标准是什么？cp反正男女主是出场即绑定
+

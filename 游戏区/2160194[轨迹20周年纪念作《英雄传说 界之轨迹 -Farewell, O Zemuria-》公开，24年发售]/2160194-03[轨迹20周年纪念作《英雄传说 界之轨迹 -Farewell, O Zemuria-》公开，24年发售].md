@@ -3299,3 +3299,14 @@ ns独占，界轨没有ns</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  卢迪克  
+##### 3295#       发表于 2024-8-30 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66067813&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-30 21:04</a>
+
+怎么回来一看近藤走了</blockquote>
+回家睡觉
+

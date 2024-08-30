@@ -726,3 +726,13 @@ wegame应该吧？国行ps5好像摆烂了过审归过审但国区没上新游�
 
 —— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+*****
+
+####  oahcihs  
+##### 79#       发表于 2024-8-30 21:19
+
+<img src="https://p.sda1.dev/19/af155aaa0b42ce05abf7389bb3ec8d62/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2303A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -186,3 +186,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face/159.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 468#       发表于 2024-8-30 22:20
+
+等等，这么多东西真的只有5.4g吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好可怕
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

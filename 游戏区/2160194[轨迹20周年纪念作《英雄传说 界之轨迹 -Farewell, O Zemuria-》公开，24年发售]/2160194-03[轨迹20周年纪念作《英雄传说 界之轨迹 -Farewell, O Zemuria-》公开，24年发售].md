@@ -3345,3 +3345,11 @@ fami期待榜20位，属于没人在乎了<img src="https://static.saraba1st.com
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  nozomitech  
+##### 3300#       发表于 2024-8-30 22:24
+
+大家乐观一点，空轨重制如果成功了就可以学隔壁生化危机一样搞软重启秽土重生了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

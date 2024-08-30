@@ -68,3 +68,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 要不是我误打误撞试出来了，每次重打boss都要看一遍播片实在受不了
 
+
+*****
+
+####  kalavinka  
+##### 230#       发表于 2024-8-30 12:00
+
+有没有玩到二转以后的评价一下这个战斗系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好玩就买了
+

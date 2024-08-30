@@ -1181,3 +1181,15 @@ GWMHSm0aAAAgVl9.jfif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">长热最后的狂欢？不管怎么说上位打出这KD太恐怖了，不知道更新之后上5000还有望不。
 
+
+*****
+
+####  KBAC  
+##### 5058#       发表于 2024-8-30 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65714860&amp;ptid=2150634" target="_blank">KBAC 发表于 2024-7-27 16:26</a>
+把名牌改成这个吧，比原来的好看，原来的种族歧视这个还有只黑鱿</blockquote>
+果然改成这个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

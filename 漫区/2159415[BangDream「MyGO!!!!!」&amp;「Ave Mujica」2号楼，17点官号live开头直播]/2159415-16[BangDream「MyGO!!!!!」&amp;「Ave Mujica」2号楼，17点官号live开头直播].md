@@ -3195,3 +3195,15 @@ ether3分25秒后的键盘和吉他，就是初祥在大do特do   ❤ (ɔˆз(
 
 9月除了以太mv/弄生日/3rd周边还有啥能期待的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rushsong  
+##### 22494#       发表于 2024-8-30 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66058602&amp;ptid=2159415" target="_blank">六道明 发表于 2024-8-29 22:30</a>
+长谷川的火和土感觉都还好啊</blockquote>
+主要靠编曲，但作曲来说旋律太平了，没啥记忆点
+
+—— 来自 vivo V2183A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+

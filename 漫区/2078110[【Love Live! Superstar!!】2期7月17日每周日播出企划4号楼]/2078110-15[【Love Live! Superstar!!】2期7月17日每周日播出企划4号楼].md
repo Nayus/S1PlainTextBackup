@@ -292,3 +292,15 @@ sayu的大家好挺标准的啊。队内有人就是不一样
 sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
 <img src="https://p.sda1.dev/19/f0d6005a2ad88d608942f25348f61982/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20975#       发表于 2024-8-30 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66067527&amp;ptid=2078110" target="_blank">仟音一心 发表于 2024-8-30 20:30</a>
+大熊和奏艺人出道</blockquote>
+财团B这是打算把星团其他人都收编吧
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

@@ -252,3 +252,18 @@
 问题是都和岛田闹翻了小裤裤还能联动吗？绕开岛田和角川谈不是激化矛盾吗？视觉图谁来画？不是岛田就是在承 ...</blockquote>
 这次英国佬就是有岛田监修，然后上次夏莉和卢基尼我记得岛田也没画视觉图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  不灭的旋律  
+##### 1190#       发表于 2024-8-30 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66061795&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2024-8-30 10:30</a>
+
+这次英国佬就是有岛田帮修，然后上次夏莉和卢基尼我记得岛田也没画视觉图</blockquote>
+上次联动的夏莉和夏莉的视觉图就是岛田最后一次为AGA干活吧。（不算之前东云生日贺图）
+
+岛田，海老川和柳濑三个人几乎同一年生又在同一行同一领域工作还开了工作室，关系好得很帮个忙不算什么。
+
+不过前一天30MM/MS系列新品发布会没岛田设计的新机，上一个新30MS是BUNBUN设计的女骑士，这次新公布的鬼娘的人设又是新找来的ANMI，我可以无端联想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

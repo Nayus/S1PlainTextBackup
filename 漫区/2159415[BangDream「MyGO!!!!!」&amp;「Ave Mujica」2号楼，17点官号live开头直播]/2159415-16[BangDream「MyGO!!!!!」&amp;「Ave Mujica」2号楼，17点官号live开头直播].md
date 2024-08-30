@@ -3447,3 +3447,11 @@ TGW，你们的皇帝回来了
 好像和萝的标题一样，都能联系上圣诞
 不知道会不会有关系
 
+
+*****
+
+####  星天观测  
+##### 22513#       发表于 2024-8-30 21:33
+
+玩的开心就好了，希望这几天都发点照片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

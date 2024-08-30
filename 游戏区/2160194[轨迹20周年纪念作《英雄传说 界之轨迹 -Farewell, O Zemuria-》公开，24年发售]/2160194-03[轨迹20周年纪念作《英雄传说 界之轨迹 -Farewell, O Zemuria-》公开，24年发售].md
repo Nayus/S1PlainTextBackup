@@ -3182,3 +3182,12 @@ The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japa
 
 <img src="https://img.saraba1st.com/forum/202408/30/180614r7r7jf4v1812yj5p.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3283#       发表于 2024-8-30 18:42
+
+所以为什么不登场
+感觉配合重置登场没什么问题
+

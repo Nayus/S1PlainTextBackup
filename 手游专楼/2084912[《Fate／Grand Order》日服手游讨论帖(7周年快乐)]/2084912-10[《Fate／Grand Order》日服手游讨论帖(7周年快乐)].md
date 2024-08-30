@@ -12834,3 +12834,14 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 
 如果后面透露水神给主角的卡真的有重要的信息，那么他把卡扔掉的行动就是SB了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  khxooo  
+##### 14511#       发表于 2024-8-30 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66060546&amp;ptid=2084912" target="_blank">cenhr 发表于 2024-8-30 08:35</a>
+
+如果后面透露水神给主角的卡真的有重要的信息，那么他把卡扔掉的行动就是SB了 ...</blockquote>
+据推测，给的那张卡很可能是3破语音中提到的搬屋申请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -7556,3 +7556,13 @@ mea抽象的点在于，她对于位置没啥意见，上单中单打野adc辅�
 
 甚至怀疑urc没交过女朋友不是草人设而是真的
 
+
+*****
+
+####  古战场亡魂  
+##### 17311#       发表于 2024-8-30 16:54
+
+[https://www.youtube.com/watch?v=0hlSwfW2tPM](https://www.youtube.com/watch?v=0hlSwfW2tPM)
+
+主办方已经剪辑好了……
+

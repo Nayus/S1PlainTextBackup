@@ -488,3 +488,14 @@ ft心爱的黄毛 新规里面可能不会领便当了
 
 魔蟹套无正2套阿斯兰套卡嘉莉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  水无定势  
+##### 1942#       发表于 2024-8-30 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66025560&amp;ptid=2178694" target="_blank">gundammarkⅡ 发表于 2024-8-27 06:49</a>
+
+不够厚嘴唇的画面还得修正成厚厚的嘴唇呢</blockquote>
+人物下巴有2个画面不那么尖的也给改尖了。
+

@@ -391,3 +391,13 @@ persona伟大
 
 多国大选年推这么一个选举为主题的游戏，ATLUS啥意思是能看出来，但是感觉蹭不上热点，热度越来越低。。。
 
+
+*****
+
+####  哎哟卧槽了  
+##### 666#       发表于 2024-8-30 12:50
+
+這不聖杯戰爭嗎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Google Pixel 2, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -1791,3 +1791,33 @@ LO、 原画で参加させて頂きました！
 <img src="https://p.sda1.dev/19/1725f4a945a7671f8ec54a5d38696631/005Rngazly1ht56k9k090j32ty1sfhdu.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/8d2b7cbf376c3d51d616f9d91793283e/005Rngazly1ht56kf57rtj32ty1sfqv6.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 795#       发表于 2024-8-30 19:30
+
+ 本帖最后由 0aleph37 于 2024-8-30 19:31 编辑 
+
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4e3.svg" height="1" id="aimg_Mozjz" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/) [#物語シリーズ<img src="https://abs.twimg.com/hashflags/BF-11471_Anime_ABEMA_18ce54aqujn_Hashmoji_20240705_20241007_Monogatari_2024_/BF-11471_Anime_ABEMA_18ce54aqujn_Hashmoji_20240705_20241007_Monogatari_2024_.png" referrerpolicy="no-referrer">"> 最新作 
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4e3.svg" height="1" id="aimg_Zh0H0" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d9.svg" height="1" id="aimg_qv2dY" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)100パーセント<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d8.svg" height="1" id="aimg_ylLZP" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)
+身近（ﾐﾁﾞｶ）で書かれた<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d5.svg" height="1" id="aimg_C6pUP" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)
+小説です。
+〈物語〉シリーズ初の短々編集
+『 [#短物語](https://x.com/hashtag/%E7%9F%AD%E7%89%A9%E8%AA%9E?src=hashtag_click) 』（ﾐｼﾞｶﾅﾓﾉｶﾞﾀﾘ）
+9/11発売です<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d6.svg" height="1" id="aimg_SwX68" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d6.svg" height="1" id="aimg_i00HO" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/1f4d6.svg" height="1" id="aimg_qVnG1" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)表紙を飾るのは、
+アニメO&amp;Mシーズンでも大活躍中
+[#斧乃木余接<img src="https://abs.twimg.com/hashflags/BF-11471_Anime_ABEMA_18ce54aqujn_Hashmoji_20240705_20241007_Monogatari_2024_/BF-11471_Anime_ABEMA_18ce54aqujn_Hashmoji_20240705_20241007_Monogatari_2024_.png" referrerpolicy="no-referrer">
+
+[#西尾維新](https://x.com/hashtag/%E8%A5%BF%E5%B0%BE%E7%B6%AD%E6%96%B0?src=hashtag_click) [#NISIOISIN](https://x.com/hashtag/NISIOISIN?src=hashtag_click)
+
+<img src="https://img.saraba1st.com/forum/202408/30/192848l5ub4canjml6v6rj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.51 MB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 19:28 上传
+
+【収録作一覧】ひたぎブッフェ／まよいルーム／するがコート／なでこプール／つばさソング／ひたぎネック／かれんアームレッグ／つきひエターナル／しのぶハウス／つばさボード／まよいキャッスル／ひたぎコイン／なでこミラー／しのぶサイエンス／ひたぎフィギュア／ひたぎサラマンダー /ひたぎスローイング／するがパレス／よつぎフューチャー／おうぎトラベル／するがニート／ろうかゴッド／しのぶフィギュア／かれんブラッシング／つきひブラッシング／こよみヒストリー／よつぎストレス／人として／どうかして／そして／どうして／心して／まよいウェルカム /  よつぎスノードーム／おうぎロードムービー／そだちペナルティ／しのぶトゥナイト／なでこパスト／しのぶフューチャー
+

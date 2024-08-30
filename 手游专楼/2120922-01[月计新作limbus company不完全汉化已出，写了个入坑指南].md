@@ -114,3 +114,113 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 这期ego如果是补强度的话感觉会是虫he，虫除了苹果其他ego是真的没一个能用的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 849#       发表于 2024-8-30 19:29
+
+瓦夜预告来啦，9.5开启！：
+
+赤瞳ego良秀：
+
+<img src="https://img.saraba1st.com/forum/202408/30/192726azzgg9hghsn94ghe.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192156.jpg</strong> (169.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/192726bg1a61g4rmee4ggv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192229.jpg</strong> (181.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+圣宣ego李箱：
+
+<img src="https://img.saraba1st.com/forum/202408/30/192726pfsf7mofqwsf0npo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192424.jpg</strong> (227.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/192727qf57t7k5k353tkzk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192449.jpg</strong> (242.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+格里高尔的EGO圣宣：
+
+<img src="https://img.saraba1st.com/forum/202408/30/192727daed7xxi0diez79x.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192332.jpg</strong> (260.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+（虫叔这身衣服感觉要跳晚安大小姐.）
+
+<img src="https://img.saraba1st.com/forum/202408/30/192727lczh6030ilh8xxci.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192309.jpg</strong> (251.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/192728l4z7hvm5qsghvbhv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192410.jpg</strong> (171.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+新播报员，HOD和黎明事务所三地鼠：
+
+<img src="https://img.saraba1st.com/forum/202408/30/192728oxqffjgzxgpfzbwb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192502.jpg</strong> (184.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+新的试炼作为补充包加入镜牢：
+
+<img src="https://img.saraba1st.com/forum/202408/30/192728ym55ftmjo1x38fjm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192519.jpg</strong> (183.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/192729eeqgxfz1a7os5cqq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240830_192533.jpg</strong> (154.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-8-30 19:27 上传
+

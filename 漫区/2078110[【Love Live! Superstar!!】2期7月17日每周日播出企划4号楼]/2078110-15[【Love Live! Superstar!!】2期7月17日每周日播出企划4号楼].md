@@ -249,3 +249,11 @@ CelticWhite老师在纽约见到了catchu</blockquote>
 
 鲤鱼这三语播报，哈哈，2.5次元企划里也找不出几个了。是不是给加班费啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  离心  
+##### 20971#       发表于 2024-8-30 20:10
+
+sayu的大家好挺标准的啊。队内有人就是不一样
+

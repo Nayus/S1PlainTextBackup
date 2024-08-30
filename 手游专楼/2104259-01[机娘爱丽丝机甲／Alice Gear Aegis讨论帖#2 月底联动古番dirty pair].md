@@ -223,3 +223,13 @@
 
 另一方面只要延续这种颓势，今年可能出的小裤裤北欧组一定会抽到的（大概<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰风血羽  
+##### 1187#       发表于 2024-8-30 09:03
+
+去年小裤裤是6月，不知道今年啥时候出
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

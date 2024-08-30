@@ -1275,3 +1275,15 @@ GWMHSm0aAAAgVl9.jfif
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5068#       发表于 2024-8-30 17:32
+
+更新后中加射程是不是能压香槟了？至此，香槟在后排组的统治力可算是稍稍降低一些了吧
+
+预想的香槟削射程和走速、RPG增加前摇、长热减小暴风半径都实现了，可见研究所并不是不懂怎么调整平衡性啊，就是有点懒了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

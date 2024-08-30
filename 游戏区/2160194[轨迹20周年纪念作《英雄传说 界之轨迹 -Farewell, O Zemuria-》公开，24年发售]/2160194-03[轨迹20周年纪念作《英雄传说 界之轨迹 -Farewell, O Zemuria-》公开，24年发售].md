@@ -3389,3 +3389,16 @@ Van桑估计真要竞争历代最小丑主角了
 
 播了三个小时也是真能水
 
+
+*****
+
+####  ravend233  
+##### 3305#       发表于 2024-8-30 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068677&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-8-30 22:43</a>
+Van桑估计真要竞争历代最小丑主角了
+葱哥都要翻红了</blockquote>
+近藤天天嘴van年龄太高所以黎轨卖不出去，已经是小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

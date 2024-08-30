@@ -3309,3 +3309,13 @@ QQ图片20240830105341.jpg
 
 还有elements的特典图到底花落谁家
 
+
+*****
+
+####  星天观测  
+##### 22501#       发表于 2024-8-30 14:22
+
+内心希望用土做，赌一把就用以太做，拉坨大的就用风吧
+
+方方面面的选择都照顾到了，这就是wsd的良苦用心吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

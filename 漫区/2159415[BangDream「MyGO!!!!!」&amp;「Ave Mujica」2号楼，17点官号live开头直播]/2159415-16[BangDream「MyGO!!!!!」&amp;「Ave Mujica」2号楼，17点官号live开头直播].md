@@ -3360,3 +3360,37 @@ ASL歌单，Doloris独唱绿袖子接ave mujica、假面舞会
 
 以李子公司的能力和她今年tie的动画数量，她明年没准真的能上asl独唱
 
+
+*****
+
+####  星天观测  
+##### 22506#       发表于 2024-8-30 16:42
+
+到时候佐佐木李子和ave mujica能不能合作一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skives  
+##### 22507#       发表于 2024-8-30 16:45
+
+怎么感觉颜色有点不正？
+
+是从mv截的图？
+
+<img src="https://img.saraba1st.com/forum/202408/30/164444eujjennv23nsas7a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9591.jpeg</strong> (780.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 16:44 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/164444pqxxrhztnrvtgxwu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9592.jpeg</strong> (528.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 16:44 上传
+

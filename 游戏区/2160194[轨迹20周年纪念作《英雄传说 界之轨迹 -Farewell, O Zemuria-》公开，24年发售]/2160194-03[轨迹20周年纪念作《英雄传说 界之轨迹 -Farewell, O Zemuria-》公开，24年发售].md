@@ -3423,3 +3423,14 @@ ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗<img src="ht
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  SuNR1sE364  
+##### 3308#       发表于 2024-8-31 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068953&amp;ptid=2160194" target="_blank">vickyeriko 发表于 2024-8-30 23:19</a>
+ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗
+这种放着系列最新作不宣传，疯狂给明年才出的炒冷饭作 ...</blockquote>
+因为最新作已经事实上无法对新人产生任何吸引力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你会花大几百块钱去看一个从来没看过的连续剧的ending吗
+

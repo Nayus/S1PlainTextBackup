@@ -3255,3 +3255,13 @@ ns独占，界轨没有ns</blockquote>
 
 有人挖出空pv上传于8月初。开发看起来相当早。怪不得界的服装那么敷衍，记得22年tgs近藤才刚在写伊苏x的剧本来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3291#       发表于 2024-8-30 20:46
+
+开始就有大的，之后序章试玩可以看看有没有说法。
+面具人是界轨新势力。
+剧本挺长说大概是历史第二？ 印象里之前第二是黎1。
+

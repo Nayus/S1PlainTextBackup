@@ -3411,3 +3411,15 @@ Van桑估计真要竞争历代最小丑主角了
 ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 这种放着系列最新作不宣传，疯狂给明年才出的炒冷饭作品大力宣传，就直接说以后就要靠情怀活着了不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3307#       发表于 2024-8-30 23:30
+
+ 本帖最后由 ravend233 于 2024-8-30 23:33 编辑 
+
+就你法社目前的对外口径来看，在他们眼里，空re，迷城新作，新伊苏，都是吸引小登扩大自己基本盘的手段，不管实际结果如何，他们的逻辑从黎1开始一直都是试图吸引小登，而老登只要继续爆金币当凯子就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在黎12宝石后你法社对共和国篇投入资源的效果相当有限，所以界轨摆了也很正常
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

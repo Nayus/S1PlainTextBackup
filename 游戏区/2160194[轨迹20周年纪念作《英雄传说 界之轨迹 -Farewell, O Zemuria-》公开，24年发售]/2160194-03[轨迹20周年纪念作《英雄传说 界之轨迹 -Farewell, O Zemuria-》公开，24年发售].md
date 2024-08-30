@@ -3191,3 +3191,42 @@ The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japa
 所以为什么不登场
 感觉配合重置登场没什么问题
 
+
+*****
+
+####  卢迪克  
+##### 3284#       发表于 2024-8-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66066667&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-30 18:42</a>
+
+所以为什么不登场
+
+感觉配合重置登场没什么问题</blockquote>
+ns独占，界轨没有ns<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3285#       发表于 2024-8-30 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66067147&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-30 19:48</a>
+ns独占，界轨没有ns</blockquote>
+进的迟了，看人说是开始说了独占？
+
+
+*****
+
+####  CAFc  
+##### 3286#       发表于 2024-8-30 19:56
+
+下周开始每周更新官网，tgs序章试玩，没了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ABR-AL60, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 3287#       发表于 2024-8-30 19:57
+
+每周更新有点，那为何不匀点
+

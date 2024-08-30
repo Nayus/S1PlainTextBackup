@@ -3265,3 +3265,26 @@ ns独占，界轨没有ns</blockquote>
 面具人是界轨新势力。
 剧本挺长说大概是历史第二？ 印象里之前第二是黎1。
 
+
+*****
+
+####  卢迪克  
+##### 3292#       发表于 2024-8-30 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66067663&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-30 20:46</a>
+
+开始就有大的，之后序章试玩可以看看有没有说法。
+
+面具人是界轨新势力。
+
+剧本挺长说大概是历史第二？ 印象 ...</blockquote>
+还以为卡特尔奶奶做的人造人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 3293#       发表于 2024-8-30 21:04
+
+怎么回来一看近藤走了
+

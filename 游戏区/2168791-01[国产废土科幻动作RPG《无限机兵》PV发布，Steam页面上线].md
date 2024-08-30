@@ -695,3 +695,13 @@ xbox不配拥有吗？</blockquote>
 
 过审是，要上国行PS5？要不要上wegame啊？
 
+
+*****
+
+####  医生狼多  
+##### 76#       发表于 2024-8-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66065833&amp;ptid=2168791" target="_blank">kyonkoism 发表于 2024-8-30 17:11</a>
+过审是，要上国行PS5？要不要上wegame啊？</blockquote>
+wegame应该吧？国行ps5好像摆烂了过审归过审但国区没上新游戏
+

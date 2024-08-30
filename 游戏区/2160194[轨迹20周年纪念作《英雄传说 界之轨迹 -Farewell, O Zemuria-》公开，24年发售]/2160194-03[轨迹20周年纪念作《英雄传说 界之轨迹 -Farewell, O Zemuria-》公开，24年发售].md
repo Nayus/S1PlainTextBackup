@@ -3488,3 +3488,110 @@ GEO的也是目前看来法是卖完了就不补，哎<img src="https://static.s
 
 说起来还真是op解析
 
+
+*****
+
+####  ravend233  
+##### 3315#       发表于 2024-8-30 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068677&amp;ptid=2160194" target="_blank">古畑任三郎2015 发表于 2024-8-30 22:43</a>
+Van桑估计真要竞争历代最小丑主角了
+葱哥都要翻红了</blockquote>
+近藤天天嘴van年龄太高所以黎轨卖不出去，已经是小丑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  vickyeriko  
+##### 3316#       发表于 2024-8-30 23:19
+
+ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这种放着系列最新作不宣传，疯狂给明年才出的炒冷饭作品大力宣传，就直接说以后就要靠情怀活着了不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3317#       发表于 2024-8-30 23:30
+
+ 本帖最后由 ravend233 于 2024-8-30 23:33 编辑 
+
+就你法社目前的对外口径来看，在他们眼里，空re，迷城新作，新伊苏，都是吸引小登扩大自己基本盘的手段，不管实际结果如何，他们的逻辑从黎1开始一直都是试图吸引小登，而老登只要继续爆金币当凯子就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在黎12宝石后你法社对共和国篇投入资源的效果相当有限，所以界轨摆了也很正常
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  SuNR1sE364  
+##### 3318#       发表于 2024-8-31 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068953&amp;ptid=2160194" target="_blank">vickyeriko 发表于 2024-8-30 23:19</a>
+ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗
+这种放着系列最新作不宣传，疯狂给明年才出的炒冷饭作 ...</blockquote>
+因为最新作已经事实上无法对新人产生任何吸引力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你会花大几百块钱去看一个从来没看过的连续剧的ending吗
+
+*****
+
+####  新世界的派蒙  
+##### 3319#       发表于 2024-8-31 01:23
+
+空轨RE我倾向于还是老登特攻，不会有啥水花的，能像SO2R捞个好口碑就不错了，销量不要想太多
+
+*****
+
+####  ParadiseMartyr  
+##### 3320#       发表于 2024-8-31 01:26
+
+ 本帖最后由 ParadiseMartyr 于 2024-8-31 01:28 编辑 
+
+真不一定，很多人入坑的契机还真有可能就是一个重制版。生化系列肉眼可见入新一堆。
+我在的群里至少有没接触过法老空的想试试
+虽然我个人也就是只玩过空轨fc伊苏8910的程度，反正空轨重置我是肯定买。
+空轨fc可能是我玩过的最早的jrpg…算是给我印象定型了，就是旅游公路片…
+
+不喜欢jrpg的从一开始就不会对这种游戏感兴趣，经过xb系列转化出来的一部分新一代jrpg玩家还真有可能试试
+
+
+*****
+
+####  ravend233  
+##### 3321#       发表于 2024-8-31 01:40
+
+ 本帖最后由 ravend233 于 2024-8-31 01:42 编辑 
+
+其实ff7销量不行的也是第二部的rb，re我记得还不错吧，这种有一定知名度的老作品remake ，至少第一部还是能吃到一定的尝鲜热度的
+
+而且就你法社目前这个玩家基数，空re卖到5w以上的实体版我觉得还是有机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再加上首发同步东亚和欧美版本以及数字版这些黑箱，凑凑比黎轨界轨强应该不难
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  暗影吉他手  
+##### 3322#       发表于 2024-8-31 01:48
+
+几个月前在日亚预定了电击20周年纪念版，后来特典出了图后觉得多出来的特典没意思想换成普通的电击版，结果发现什么版本都没货了，那就这样认了当冤大头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 3323#       发表于 2024-8-31 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66069868&amp;ptid=2160194" target="_blank">暗影吉他手 发表于 2024-8-31 01:48</a>
+几个月前在日亚预定了电击20周年纪念版，后来特典出了图后觉得多出来的特典没意思想换成普通的电击版，结果 ...</blockquote>
+GEO的也是目前看来法是卖完了就不补，哎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3324#       发表于 2024-8-31 04:06
+
+说起来还真是op解析
+
+*****
+
+####  卢迪克  
+##### 3325#       发表于 2024-8-31 07:18
+
+近藤又开始鬼话连篇，白之轨迹明明是创轨的预定名，哪是黎轨的预定名之一。
+

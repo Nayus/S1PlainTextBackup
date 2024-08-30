@@ -76,3 +76,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 有没有玩到二转以后的评价一下这个战斗系统<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好玩就买了
 
+
+*****
+
+####  sakuras88  
+##### 231#       发表于 2024-8-30 15:45
+
+感觉还是不是本时代的游戏，可惜了。
+

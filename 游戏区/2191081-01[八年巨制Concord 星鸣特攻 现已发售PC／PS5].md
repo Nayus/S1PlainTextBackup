@@ -1655,3 +1655,15 @@ IGN终于把分憋出来了</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  蓮華  
+##### 157#       发表于 2024-8-30 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66063151&amp;ptid=2191081" target="_blank">ykyin09 发表于 2024-8-30 12:24</a>
+现在只想知道之前传言这个游戏把接下来的ps游戏开发全干停的是不是真的
+
+论坛助手,iPhone ...</blockquote>
+听着不太像真的啊，难不成接下去的ps游戏全都是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

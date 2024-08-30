@@ -252,3 +252,15 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 其次，考虑到脑叶原版的紫考验都有群体黑伤，该不会是长线作战，不停地打紫黎明直到迎来紫正午（然后开局AOE灭队）吧……
 
+
+*****
+
+####  Yuzutea  
+##### 852#       发表于 2024-8-30 23:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能给狼夫爽的模式来了
+
+良这人格估计也带加减速度机制
+
+答案是超长线前三个角色速度差buff战斗！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1550,3 +1550,13 @@ HK是 这种安人眼里的“地缘政治”大国里啊<img src="https://stati
 
 留在法国就是坐以待毙，就看他有没有日产高管戈恩的胆量，赌一次冒险大逃亡了，即使是逃回俄罗斯也比在法国被榨干好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  再买自检星剁手  
+##### 137#       发表于 2024-8-30 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66012353&amp;ptid=2196447" target="_blank">青冥 发表于 2024-8-25 22:43</a>
+这位当年反出毛子国时是在社媒上公开发了对大帝的竖中指图的，大概觉得划清立场交了投名状就是自己人了， ...</blockquote>
+京子心善原来是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

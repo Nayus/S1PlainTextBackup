@@ -12845,3 +12845,14 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 如果后面透露水神给主角的卡真的有重要的信息，那么他把卡扔掉的行动就是SB了 ...</blockquote>
 据推测，给的那张卡很可能是3破语音中提到的搬屋申请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  beer  
+##### 14512#       发表于 2024-8-30 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66057098&amp;ptid=2084912" target="_blank">poor 发表于 2024-8-29 19:47</a>
+
+我记得说过继承进度的吧</blockquote>
+看似贴心的设计其实是为了少发石头，九周年运营也真是处处鸡贼
+

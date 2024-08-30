@@ -1287,3 +1287,14 @@ GWMHSm0aAAAgVl9.jfif
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  KBAC  
+##### 5069#       发表于 2024-8-31 01:15
+
+这次普通白天也会有金鲑鱼
+场地上一堆炮台铁球哥上场的时候依然自带炮台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

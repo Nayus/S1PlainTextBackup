@@ -383,3 +383,11 @@ persona伟大
 <img src="https://p.sda1.dev/19/710014a4a56ba30994a2919f0db739fd/0064O7Xmly1ht5s7qv17dj30od0wrdyk.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/5b8ebbfdc77f0358ff7c299b6ca0bd88/b70efc07e3e8293f9ccf2cfb24ee59aab0bfc531ba6adbb4cd74abf2eade2536.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  日日日日日野  
+##### 665#       发表于 2024-8-30 12:42
+
+多国大选年推这么一个选举为主题的游戏，ATLUS啥意思是能看出来，但是感觉蹭不上热点，热度越来越低。。。
+

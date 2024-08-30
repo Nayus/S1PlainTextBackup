@@ -3294,3 +3294,18 @@ QQ图片20240830105341.jpg
 
 2024-8-30 11:50 上传
 
+
+*****
+
+####  PDQ4  
+##### 22500#       发表于 2024-8-30 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66061210&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-8-30 09:42</a>
+
+算了，出都出完了，只能说希望以后的歌能换人
+
+9月除了以太mv/弄生日/3rd周边还有啥能期待的吗 ...</blockquote>
+可以期待10月快到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有elements的特典图到底花落谁家
+

@@ -257,3 +257,16 @@ CelticWhite老师在纽约见到了catchu</blockquote>
 
 sayu的大家好挺标准的啊。队内有人就是不一样
 
+
+*****
+
+####  仟音一心  
+##### 20972#       发表于 2024-8-30 20:16
+
+【【官方中字】LoveLive每一团的代表用中文说大家好 『LoveLive系列亚巡 ~伴你圆梦~』宣传视频-哔哩哔哩】 [https://b23.tv/YPMeq1W](https://b23.tv/YPMeq1W)
+<img src="https://p.sda1.dev/19/a512e70f20f7c318d168fa4c16512e99/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/44823af5cd7f1d47db4b27d7bc1865ef/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/00007e4e248ad89599af3dedb5eda9ac/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/8c8f5edddadc31216e332c9a87d6d739/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/2dfcef225c553fcae4046de1e9f63936/image.jpg" referrerpolicy="no-referrer">
+

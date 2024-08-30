@@ -1667,3 +1667,23 @@ IGN终于把分憋出来了</blockquote>
 论坛助手,iPhone ...</blockquote>
 听着不太像真的啊，难不成接下去的ps游戏全都是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  windtrack  
+##### 158#       发表于 2024-8-30 15:56
+
+我觉得这游戏挺成功的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+DEI机构拿到钱了
+
+LGBTQ+员工拿到钱了
+
+无非是游戏不好玩，索尼没挣到钱而已
+
+换个角度不就是索尼投了8个亿给DEI和LGBTQ+事业吗
+
+作为有社会责任感的跨国企业，这有啥问题
+
+你直接让索尼给LGBTQ+打钱董事会能同意吗
+

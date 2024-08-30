@@ -1216,3 +1216,16 @@ GWMHSm0aAAAgVl9.jfif
 
 7e由来：鲑鱼大迁徙70年一次，70后面再加7个0
 
+
+*****
+
+####  KBAC  
+##### 5062#       发表于 2024-8-30 10:55
+
+赛季轮换的通用图出来了，大的更新内容应该不用指望了。
+有人说有二代万圣节装备数据，那估计特殊祭典还会再轮一回。
+
+第二贴牌这个从一代常规就该有的东西真就到现在都不打算出吗？那么喜欢数字3武器却没有3种配置？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

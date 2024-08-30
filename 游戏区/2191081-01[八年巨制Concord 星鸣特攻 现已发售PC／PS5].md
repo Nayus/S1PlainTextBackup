@@ -1625,3 +1625,11 @@ IGN终于把分憋出来了</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66060244&amp;ptid=2191081" target="_blank">perfect_duck 发表于 2024-8-30 07:19</a></blockquote>
 有一说一，apex和concord丑得不分伯仲
 
+
+*****
+
+####  SillyGoose  
+##### 154#       发表于 2024-8-30 10:59
+
+把人物全换成死或生的妹子再加入爆甲爆衣效果能不能抢救回来？
+

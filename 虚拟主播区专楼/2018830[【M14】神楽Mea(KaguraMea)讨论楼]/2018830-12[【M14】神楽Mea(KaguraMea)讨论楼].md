@@ -7598,3 +7598,13 @@ mea抽象的点在于，她对于位置没啥意见，上单中单打野adc辅�
 
 —— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  sino__unnko3  
+##### 17314#       发表于 2024-8-30 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66066644&amp;ptid=2018830" target="_blank">TiHaru 发表于 2024-8-30 18:38</a>
+对对方也有好感但是被告白的时候就冷下来了，觉得“觉得自己喜欢上对方了”的时候的感觉是最好了，被告白反 ...</blockquote>
+对号入座指的可能是谁？她那段说直播的时候来消息这里唐突扯到结婚啥的原来是这么回事，但整个录播的机器翻译串起来还是感觉逻辑好混乱的说
+

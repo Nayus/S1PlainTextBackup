@@ -43,3 +43,29 @@
 还一个月发售了也没什么新情报释出，本来还以为会有个专属直面会，这作不会真的就是个小品作吧 ...</blockquote>
 这两天应该会有最终pv了，昨天官推介绍林克，意味着pv2的内容已经复读完了。8月30号有现场试玩，所以最近两天应该有消息了
 
+
+*****
+
+####  蓮華  
+##### 457#       发表于 2024-8-30 21:14
+
+[https://www.youtube.com/watch?v=xHALE0nvhl0](https://www.youtube.com/watch?v=xHALE0nvhl0)
+
+<img src="https://img.saraba1st.com/forum/202408/30/211348xyme946eqgmgh8pe.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240830211315.png</strong> (138.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 21:13 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/211348djj5va6z45zaug6g.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240830211320.png</strong> (137.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 21:13 上传
+
+造反了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

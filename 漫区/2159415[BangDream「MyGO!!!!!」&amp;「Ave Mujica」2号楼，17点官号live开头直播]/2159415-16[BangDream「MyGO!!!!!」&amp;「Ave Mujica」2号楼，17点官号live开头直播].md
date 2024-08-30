@@ -3402,3 +3402,39 @@ ASL歌单，Doloris独唱绿袖子接ave mujica、假面舞会
 
 喜报，asl难忘今宵脱面具了
 
+
+*****
+
+####  PDQ4  
+##### 22509#       发表于 2024-8-30 21:09
+
+ 本帖最后由 PDQ4 于 2024-8-30 21:10 编辑 
+
+鸡4th 「Adventus」
+
+<img src="https://img.saraba1st.com/forum/202408/30/211004ly28a22aw2zzu2xe.png" referrerpolicy="no-referrer">
+
+<strong>IMG_9102.png</strong> (69.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 21:10 上传
+
+来临？降临？
+
+*****
+
+####  skives  
+##### 22510#       发表于 2024-8-30 21:11
+
+Adventus是拉丁语，意思是到达，可能意味着。Adventus（仪式），皇帝正式抵达城市的仪式（通常，但并非总是，罗马）Adventus（艺术），描绘这一仪式的艺术惯例。
+
+TGW，你们的皇帝回来了
+
+*****
+
+####  NODY  
+##### 22511#       发表于 2024-8-30 21:12
+
+龙王归来是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -267,3 +267,16 @@
 
 不过前一天30MM/MS系列新品发布会没岛田设计的新机，上一个新30MS是BUNBUN设计的女骑士，这次新公布的鬼娘的人设又是新找来的ANMI，我可以无端联想吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  江戸前ルナ  
+##### 1191#         楼主| 发表于 2024-8-30 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66062527&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2024-8-30 11:29</a>
+
+上次联动的夏莉和夏莉的视觉图就是岛田最后一次为AGA干活吧。（不算之前东云生日贺图）
+
+岛田，海老川和柳 ...</blockquote>
+去看了下，应该就是岛田画的了，但是完全没提岛田亲绘，怪不得没印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

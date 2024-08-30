@@ -1257,3 +1257,11 @@ GWMHSm0aAAAgVl9.jfif
 卧槽熊老板送的投蛋器可以直接投进蛋框里<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 这下安心当K头战神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 5066#       发表于 2024-8-30 11:19
+
+近的可以直接投进蛋框，远的投蛋器跟铁球的一样，还是到蛋框附近
+

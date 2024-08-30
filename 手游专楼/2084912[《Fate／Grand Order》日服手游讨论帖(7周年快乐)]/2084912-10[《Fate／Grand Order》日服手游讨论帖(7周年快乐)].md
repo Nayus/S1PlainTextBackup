@@ -12867,3 +12867,14 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 据推测，给的那张卡很可能是3破语音中提到的搬屋申请</blockquote>
 蘑菇写的是那张卡资料都很模糊，但看得到一个移字，主角推测是移居证所以直接扔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大十字紅朔  
+##### 14514#       发表于 2024-8-30 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66059011&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2024-8-29 23:40</a>
+
+绝对有三期池子，不然两个月连带泳装就出这俩池子我是不信，最主要原因是这次主笔是蘑菇，不搞事那还叫蘑菇 ...</blockquote>
+说了就两期池子了，但是说的是会开其他活动
+

@@ -233,3 +233,11 @@ CelticWhite老师在纽约见到了catchu</blockquote>
 
 中文教室完结了，总共26期
 
+
+*****
+
+####  仟音一心  
+##### 20969#       发表于 2024-8-30 12:04
+
+<img src="https://p.sda1.dev/19/de5cedd1353941e5d7c447eb1eebf15d/image.jpg" referrerpolicy="no-referrer">
+

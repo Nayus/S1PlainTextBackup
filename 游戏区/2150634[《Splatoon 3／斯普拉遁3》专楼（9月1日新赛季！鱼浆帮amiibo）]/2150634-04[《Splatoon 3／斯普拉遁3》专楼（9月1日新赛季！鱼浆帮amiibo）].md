@@ -1265,3 +1265,13 @@ GWMHSm0aAAAgVl9.jfif
 
 近的可以直接投进蛋框，远的投蛋器跟铁球的一样，还是到蛋框附近
 
+
+*****
+
+####  KBAC  
+##### 5067#       发表于 2024-8-30 12:08
+
+看解包佬说的好像一代的刷偶像amiibo看偶像表演的功能真的回来了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

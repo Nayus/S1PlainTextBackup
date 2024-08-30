@@ -7498,3 +7498,37 @@ mea这把表现可能能拿mvp吧。
 这段太有主人公的感觉了。
 [https://x.com/i/status/1829316618369077525](https://x.com/i/status/1829316618369077525)
 
+
+*****
+
+####  十九号大侠  
+##### 17305#       发表于 2024-8-30 10:55
+
+伟大，无需多言
+
+*****
+
+####  呓亘  
+##### 17306#       发表于 2024-8-30 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66060079&amp;ptid=2018830" target="_blank">ablast 发表于 2024-8-30 04:53</a>
+ 虽然比赛实际上可能是菜鸡互啄 但其实很能理解咩咩激动的哭腔 刚刚去把隔壁kamito观战视角和自家たかや教练 ...</blockquote>
+好爽！请问有观战视角链接吗？
+
+*****
+
+####  古战场亡魂  
+##### 17307#       发表于 2024-8-30 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66062548&amp;ptid=2018830" target="_blank">呓亘 发表于 2024-8-30 11:31</a>
+
+好爽！请问有观战视角链接吗？</blockquote>
+搜しゃるる杯随便找，反正半决赛战败的两个队都开着连着麦看决赛。
+
+*****
+
+####  古战场亡魂  
+##### 17308#       发表于 2024-8-30 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">为了打比赛练习，两周瘦了4kg。
+

@@ -3353,3 +3353,21 @@ fami期待榜20位，属于没人在乎了<img src="https://static.saraba1st.com
 
 大家乐观一点，空轨重制如果成功了就可以学隔壁生化危机一样搞软重启秽土重生了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjk  
+##### 3301#       发表于 2024-8-30 22:30
+
+<blockquote>nozomitech 发表于 2024-8-30 22:24
+大家乐观一点，空轨重制如果成功了就可以学隔壁生化危机一样搞软重启秽土重生了皇国兴废，在此一役 ...</blockquote>
+重制一轮刚好换世代再重制一轮，最终作无限延后，轨迹完结悖论
+
+
+*****
+
+####  ravend233  
+##### 3302#       发表于 2024-8-30 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">永远无法完结的界轨是吧
+

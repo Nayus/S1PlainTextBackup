@@ -204,3 +204,40 @@
 
 信息量好大，等一个逐帧分析视频
 
+
+*****
+
+####  whfnet  
+##### 470#       发表于 2024-8-30 23:03
+
+<img src="https://img.saraba1st.com/forum/202408/30/230200ia8zhjrsrmkwk3v4.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240830230127.png</strong> (134.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/230200ui1w3o8hz29h11zd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240830230042.png</strong> (151.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 23:02 上传
+
+这两处应该是一个地方
+
+也就是
+
+打完“林克”后才拿到的剑
+
+可能会有很多个“林克”
+
+*****
+
+####  woui003woui  
+##### 471#       发表于 2024-8-30 23:07
+
+怎么还有27天？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

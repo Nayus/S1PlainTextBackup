@@ -3231,3 +3231,34 @@ symbol我印象最深的是2，旋律很抓耳，李子很适合唱这个风格
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  星天观测  
+##### 22497#       发表于 2024-8-30 10:54
+
+sumimi的歌上卡拉ok了
+
+不知道鸡里能不能再来一首，我还挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+QQ图片20240830105341.jpg
+(93.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 10:54 上传
+
+<img src="https://img.saraba1st.com/forum/202408/30/105409wbffnffopp1fpznf.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 大叶饺子| + 1|欢乐多|
+
+查看全部评分
+

@@ -3122,3 +3122,27 @@ The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japa
 由手机上传
 2024-8-29 16:03 上传
 
+
+*****
+
+####  新世界的派蒙  
+##### 3277#       发表于 2024-8-30 17:34
+
+今天有直播是么？翻了半天专楼发现掉后面去了，看来大伙真的没热情了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3278#       发表于 2024-8-30 17:36
+
+主要是空轨直播，而且没开，没啥好说的啊
+
+*****
+
+####  ravend233  
+##### 3279#       发表于 2024-8-30 17:39
+
+官网也没更新，怕不是展示一个限定版开箱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

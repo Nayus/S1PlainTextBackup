@@ -7573,3 +7573,28 @@ live周边的先行发送部分竟然一个月就发送了，而live还有2个�
 
 今年开几场live了？
 
+
+*****
+
+####  holoan  
+##### 9518#         楼主| 发表于 2024-8-30 17:26
+
+人家sololive前都是尽可能少活动做休养
+
+你特么是直接把各种活动日程拉满又开live又办大型企划搞成出道5年以来最忙的2个月，然后开sololive
+
+铁人啊
+
+*****
+
+####  holoan  
+##### 9519#         楼主| 发表于 2024-8-30 17:37
+
+<img src="https://img.saraba1st.com/forum/202408/30/173737v6ep6u5eduz44oiu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (471.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 17:37 上传
+

@@ -303,3 +303,14 @@ pv里内容量看着很大啊，怎么做到比织梦岛还小的
 
 就让塞尔达让世人知道,究竟谁才是海拉尔大陆最强剑士
 
+
+*****
+
+####  holomoon  
+##### 478#       发表于 2024-8-31 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068165&amp;ptid=2188108" target="_blank">heseran 发表于 2024-8-30 21:42</a>
+
+不知道最多可以制造几个复制品，这边放第三个的时候第一个（应该是）已经开始闪烁了 ...</blockquote>
+前面几个PV里有介绍，托利的能力能够扩展，当使用次数用尽时最先复制的物品会开始闪烁消失来回收次数
+

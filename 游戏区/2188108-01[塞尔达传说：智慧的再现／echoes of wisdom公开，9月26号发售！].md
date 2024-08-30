@@ -86,3 +86,35 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  heseran  
+##### 460#       发表于 2024-8-30 21:42
+
+<img src="https://img.saraba1st.com/forum/202408/30/214212hs7sqlh1zcd8zrqs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CDCEDBE5-6C8B-421B-AD83-ECA2E811A76E.jpeg</strong> (109.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 21:42 上传
+
+不知道最多可以制造几个复制品，这边放第三个的时候第一个（应该是）已经开始闪烁了
+
+*****
+
+####  医生狼多  
+##### 461#         楼主| 发表于 2024-8-30 21:44
+
+《塞尔达传说 智慧的再现》公布系列预告片漫游海拉鲁的方法之无之世界篇，介绍了本作中出现的神秘裂缝中的广阔世界。
+
+《塞尔达传说 智慧的再现》是以塞尔达公主为主角，通过借物（包括怪兽）来战斗的冒险游戏，预定于2024年9月26日发售。 http://t.cn/A6RaPmNK ​​​
+
+*****
+
+####  thez  
+##### 462#       发表于 2024-8-30 21:45
+
+元素太多了，看起来香爆
+

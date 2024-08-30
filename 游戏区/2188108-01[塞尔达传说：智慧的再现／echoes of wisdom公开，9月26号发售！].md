@@ -263,3 +263,28 @@
 
 横行霸道塞尔达，走到哪里抢到哪，难怪要被通缉抓起来<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  墨染白泉  
+##### 474#       发表于 2024-8-30 23:50
+
+pv里三个能力都漏了，十字键上是剑，左是发条道具，右是法杖
+
+<img src="https://img.saraba1st.com/forum/202408/30/235027oueioq0qroiwti07.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-30-23-49-46-37_149003a2d400f6adb210d7e357a3a646.jpg</strong> (276.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-30 23:50 上传
+
+下难道是召唤马吗
+
+*****
+
+####  墨染白泉  
+##### 475#       发表于 2024-8-30 23:52
+
+pv里内容量看着很大啊，怎么做到比织梦岛还小的
+

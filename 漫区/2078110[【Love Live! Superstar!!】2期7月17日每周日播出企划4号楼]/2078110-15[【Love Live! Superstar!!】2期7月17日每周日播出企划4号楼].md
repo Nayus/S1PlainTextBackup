@@ -241,3 +241,11 @@ CelticWhite老师在纽约见到了catchu</blockquote>
 
 <img src="https://p.sda1.dev/19/de5cedd1353941e5d7c447eb1eebf15d/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  cat1230  
+##### 20970#       发表于 2024-8-30 19:02
+
+鲤鱼这三语播报，哈哈，2.5次元企划里也找不出几个了。是不是给加班费啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+

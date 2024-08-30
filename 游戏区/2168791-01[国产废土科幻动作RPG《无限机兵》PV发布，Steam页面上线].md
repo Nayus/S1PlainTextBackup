@@ -716,3 +716,13 @@ wegame应该吧？国行ps5好像摆烂了过审归过审但国区没上新游�
 看了视频评论区都说是魂，不会又是魂类吧</blockquote>
 国单动作类很多都是魂，想要摆脱狼与魂的就一款失落之魂。
 
+
+*****
+
+####  rainsheep  
+##### 78#       发表于 2024-8-30 19:03
+
+国内不同平台的审核要单独过吧
+
+—— 来自 vivo V2241A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

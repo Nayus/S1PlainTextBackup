@@ -3146,3 +3146,22 @@ The Legend of Heroes Kai no Kiseki -Farewell O Zemuria- will be released in Japa
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3280#       发表于 2024-8-30 17:56
+
+ 本帖最后由 卢迪克 于 2024-8-30 17:58 编辑 
+
+界轨不是电击固定的带货环节吗，虽然电击今年界轨也是死活不补货，一股不想卖的态度<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 3281#       发表于 2024-8-30 17:56
+
+笑容逐渐消失.jpg
+真是风水轮流转啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -705,3 +705,14 @@ xbox不配拥有吗？</blockquote>
 过审是，要上国行PS5？要不要上wegame啊？</blockquote>
 wegame应该吧？国行ps5好像摆烂了过审归过审但国区没上新游戏
 
+
+*****
+
+####  Lokad  
+##### 77#       发表于 2024-8-30 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=65646737&amp;ptid=2168791" target="_blank">SchwarzX 发表于 2024-7-20 19:17</a>
+
+看了视频评论区都说是魂，不会又是魂类吧</blockquote>
+国单动作类很多都是魂，想要摆脱狼与魂的就一款失落之魂。
+

@@ -3352,3 +3352,11 @@ ASL歌单，Doloris独唱绿袖子接ave mujica、假面舞会
 
 我们doloris在asl独唱了，牌面牌面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22505#       发表于 2024-8-30 16:29
+
+以李子公司的能力和她今年tie的动画数量，她明年没准真的能上asl独唱
+

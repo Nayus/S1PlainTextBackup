@@ -3402,3 +3402,12 @@ Van桑估计真要竞争历代最小丑主角了
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  vickyeriko  
+##### 3306#       发表于 2024-8-30 23:19
+
+ff7remake销量都不理想，空轨re销量真的能振兴轨迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这种放着系列最新作不宣传，疯狂给明年才出的炒冷饭作品大力宣传，就直接说以后就要靠情怀活着了不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+

@@ -241,3 +241,15 @@
 
 怎么还有27天？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  发呆的龙虾  
+##### 472#       发表于 2024-8-30 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66068165&amp;ptid=2188108" target="_blank">heseran 发表于 2024-8-30 21:42</a>
+不知道最多可以制造几个复制品，这边放第三个的时候第一个（应该是）已经开始闪烁了 ...</blockquote>
+看头上的三角，有一幕好像头上有5个三角。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

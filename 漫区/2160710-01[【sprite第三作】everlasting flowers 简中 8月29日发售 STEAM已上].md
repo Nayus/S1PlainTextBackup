@@ -815,3 +815,13 @@ STEAM版已上架，国区定价88
 
 中文翻译我感觉一般般 我听译看到几个意思偏离的了
 
+
+*****
+
+####  llysander  
+##### 53#       发表于 2024-8-30 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 断网看到弹出重连steam才能继续，直接点退款。 主机版什么样的？ns总不能要全程联网吧，实体pkg版呢？
+
+之后来看看点评，好像也没错过太多
+

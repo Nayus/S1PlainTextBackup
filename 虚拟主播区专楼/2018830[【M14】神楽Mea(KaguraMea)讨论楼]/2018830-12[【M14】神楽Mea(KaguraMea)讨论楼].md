@@ -7532,3 +7532,17 @@ mea这把表现可能能拿mvp吧。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">为了打比赛练习，两周瘦了4kg。
 
+
+*****
+
+####  古战场亡魂  
+##### 17309#       发表于 2024-8-30 15:09
+
+ 本帖最后由 古战场亡魂 于 2024-8-30 15:10 编辑 
+
+mea抽象的点在于，她对于位置没啥意见，上单中单打野adc辅助她都玩。玩波比玩出上单打野中单三种用法。
+
+她英雄池最深的位置是辅助，其次是打野、其次中单、adc、上单。她上单英雄池反而是最少的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+它如果这次比赛位置是打野或者辅助，那对面根本ban不完。但是其他位置没上单波比的压制力。
+

@@ -4024,3 +4024,26 @@ pc不说 ps5肯定会上吧</blockquote>
 
 界1跟黎2一样都是拿来顶档期的，本来也不是该今年出的游戏，做不完很正常。
 
+
+*****
+
+####  ravend233  
+##### 3368#       发表于 2024-8-31 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66076628&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-31 22:32</a>
+界的出现直接跳到了90%，删除了1-2个本来会出的地区篇章，即便黎三一作够完结，也要考虑到这一层。
+
+预计75- ...</blockquote>
+找出一个阶段性结束的节点可能比较难，但是直接断章就很简单了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  zhouaa  
+##### 3369#       发表于 2024-8-31 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就一作还出了新的势力  你们也不怕烂尾啊
+
+这要是OP里各种大佬下场打对手戏还能想想  啥都没有的东西能讲个头
+

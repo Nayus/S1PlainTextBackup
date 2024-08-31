@@ -125,3 +125,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 转职系统和地图探索挺好玩的</blockquote>
 所以我用s1发帖养成了先发布再编辑的习惯<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  寺胖  
+##### 236#       发表于 2024-8-31 14:42
+
+还没买，不知道支不支持HDR？或者win11自动HDR支持的话也行啊，怕买来发现都不支持<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
+

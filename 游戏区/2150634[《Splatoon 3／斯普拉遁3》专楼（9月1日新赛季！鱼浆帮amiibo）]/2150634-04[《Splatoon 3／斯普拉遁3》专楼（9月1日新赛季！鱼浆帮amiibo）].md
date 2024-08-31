@@ -1331,3 +1331,13 @@ GWMHSm0aAAAgVl9.jfif
 
 一亿鱼蛋是大家合计的，一个金鳞片是每个人都有的，打个对折500万玩家参与，那一亿鱼蛋对应500万金鳞片，折合20：1，明明是熊老板大出血<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 5074#       发表于 2024-8-31 18:47
+
+灭龙区域之王的位置不保了，目前差了奶狗拉150分以上，我看他不时翻一下奶狗拉的XP记录，真的相当在意排名啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

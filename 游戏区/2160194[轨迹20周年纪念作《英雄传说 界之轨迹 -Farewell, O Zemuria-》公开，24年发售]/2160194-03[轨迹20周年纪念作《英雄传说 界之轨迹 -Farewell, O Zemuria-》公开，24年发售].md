@@ -3951,3 +3951,18 @@ pc不说 ps5肯定会上吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">再来一次黎2基本系列出脑了，也好，不用被这公司折腾了 
 
+
+*****
+
+####  卢迪克  
+##### 3361#       发表于 2024-8-31 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66074259&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-8-31 18:19</a>
+
+打开商店还是好歹20周年纪念作呢，就这宣传？
+
+估计真拿不出来</blockquote>
+就你是20周年是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+「軌跡シリーズ」が生誕20周年を迎えたことを記念し、シリーズ第1作『英雄伝説 空の軌跡FC（ファーストチャプター）』の完全フルリメイク版となる『英雄伝説 空の軌跡 the 1st（ザ・ファースト）』（仮称）を、2025年にNintendo Switch™用タイトルとして発売することをお知らせ致します。
+

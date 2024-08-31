@@ -112,3 +112,16 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 转职系统和地图探索挺好玩的
 
+
+*****
+
+####  小处不可随便  
+##### 235#       发表于 2024-8-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070435&amp;ptid=2163349" target="_blank">ky7913 发表于 2024-8-31 08:26</a>
+
+编辑了一大段东西没了……
+
+转职系统和地图探索挺好玩的</blockquote>
+所以我用s1发帖养成了先发布再编辑的习惯<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+

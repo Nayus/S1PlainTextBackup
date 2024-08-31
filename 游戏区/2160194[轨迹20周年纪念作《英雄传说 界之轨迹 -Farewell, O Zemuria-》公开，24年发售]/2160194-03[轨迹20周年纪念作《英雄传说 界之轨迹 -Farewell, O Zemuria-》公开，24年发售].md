@@ -3595,3 +3595,51 @@ GEO的也是目前看来法是卖完了就不补，哎<img src="https://static.s
 
 近藤又开始鬼话连篇，白之轨迹明明是创轨的预定名，哪是黎轨的预定名之一。
 
+
+*****
+
+####  卢迪克  
+##### 3326#       发表于 2024-8-31 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070656&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-31 09:20</a>
+
+游戏肯定做完了，一直不放料现在看估计整个八月都在准备空re需要的宣传物料和pv，根本没有人管界轨。提前 ...</blockquote>
+明明是为了jdk演唱卖周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3327#       发表于 2024-8-31 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070656&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-31 09:20</a>
+
+游戏肯定做完了，一直不放料现在看估计整个八月都在准备空re需要的宣传物料和pv，根本没有人管界轨。提前 ...</blockquote>
+做完了随便录段庭院实机都可以水半小时，现在要什么什么拿不出来，不像是宣发的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3328#       发表于 2024-8-31 09:24
+
+当天我记得说是xseed也没反应所以这么猜的
+
+*****
+
+####  nicholas30  
+##### 3329#       发表于 2024-8-31 09:25
+
+NS全球發行找老任合作就行了，問題是PC
+
+Falcom連steam首頁都懶得建，NIS的閃1和閃2至今在日區還是おま国<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3330#       发表于 2024-8-31 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070680&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-8-31 09:24</a>
+做完了随便录段庭院实机都可以水半小时，现在要什么什么拿不出来，不像是宣发的问题了 ...</blockquote>
+昨天直播目的是宣传空re，怎么可能给你播半小时界轨，充话费送的不要不识好歹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

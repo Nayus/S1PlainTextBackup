@@ -1323,3 +1323,11 @@ GWMHSm0aAAAgVl9.jfif
 一个亿鱼蛋换一个金鳞片
 抠死算了熊老板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  君往何处  
+##### 5073#       发表于 2024-8-31 15:46
+
+一亿鱼蛋是大家合计的，一个金鳞片是每个人都有的，打个对折500万玩家参与，那一亿鱼蛋对应500万金鳞片，折合20：1，明明是熊老板大出血<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

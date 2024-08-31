@@ -7598,3 +7598,27 @@ live周边的先行发送部分竟然一个月就发送了，而live还有2个�
 
 2024-8-30 17:37 上传
 
+
+*****
+
+####  holoan  
+##### 9520#         楼主| 发表于 2024-8-31 10:04
+
+我以为今天的现场活动没有画面转播看没想到她们自己直接开了个直播窗的
+
+<img src="https://img.saraba1st.com/forum/202408/31/100417ubvf01vb58ozvbbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (305.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 10:04 上传
+
+
+*****
+
+####  holoan  
+##### 9521#         楼主| 发表于 2024-8-31 15:48
+
+fbkmiko的组合开场介绍搞得像micomet的开场一样……
+

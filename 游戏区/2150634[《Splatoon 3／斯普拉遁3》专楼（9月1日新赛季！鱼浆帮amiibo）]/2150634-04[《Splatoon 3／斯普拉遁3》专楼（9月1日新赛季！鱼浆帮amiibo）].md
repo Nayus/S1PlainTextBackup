@@ -1298,3 +1298,11 @@ GWMHSm0aAAAgVl9.jfif
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  墨染白泉  
+##### 5070#       发表于 2024-8-31 13:01
+
+低保扭蛋两个金，打的低保岗给两个银。这下打岗真不如扭蛋了
+

@@ -414,3 +414,23 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 不过这招估计对敌是没伤害的
 
+
+*****
+
+####  thez  
+##### 490#       发表于 2024-8-31 17:35
+
+地图貌似至少是织梦岛的5倍？
+
+
+*****
+
+####  罗克萨斯  
+##### 491#       发表于 2024-8-31 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66073870&amp;ptid=2188108" target="_blank">thez 发表于 2024-8-31 17:35</a>
+地图貌似至少是织梦岛的5倍？</blockquote>
+我咋听说是4倍？其实4倍已经很大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

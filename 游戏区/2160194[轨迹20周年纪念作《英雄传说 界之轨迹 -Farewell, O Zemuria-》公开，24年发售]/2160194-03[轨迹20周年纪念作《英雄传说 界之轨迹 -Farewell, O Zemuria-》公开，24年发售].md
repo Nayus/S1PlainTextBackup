@@ -3824,3 +3824,11 @@ pc不说 ps5肯定会上吧</blockquote>
 空轨RE我倾向于还是老登特攻，不会有啥水花的，能像SO2R捞个好口碑就不错了，销量不要想太多 ...</blockquote>
 法也没指望能成功，他可是说京都迷城才是玩家该期待的东西。
 
+
+*****
+
+####  Aeons  
+##### 3346#       发表于 2024-8-31 17:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧说确定有界二，等媒体信息公开就知道了。 意思是有媒体采访消息渠道。
+

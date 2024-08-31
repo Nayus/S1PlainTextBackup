@@ -3703,3 +3703,46 @@ pc不说 ps5肯定会上吧</blockquote>
 但肯定有轨迹启动器玩家就买个ps5的 把 ...</blockquote>
 估计美版同步想找个平台宣发，索尼那边上不了，老任给了平台，就给限时独占了吧
 
+
+*****
+
+####  maojiashu  
+##### 3336#       发表于 2024-8-31 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070742&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-31 09:37</a>
+
+估计美版同步想找个平台宣发，索尼那边上不了，老任给了平台，就给限时独占了吧 ...</blockquote>
+等个官方消息好了
+
+不上ps的做法还是不可取的 新作ps独占 重制跑去ns独占是什么奇怪操作
+
+而且如果ns独占 任天堂不缺轨迹这个小ip 必然是法老控自己舔着脸去找的任天堂 不懂有什么必要 
+
+除非是说不独占就不给上ns
+
+*****
+
+####  ravend233  
+##### 3337#       发表于 2024-8-31 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070732&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-31 09:34</a>
+
+我全平台都有倒是无所谓
+
+想报老任大腿也能理解 毕竟装机量在那里
+
+但肯定有轨迹启动器玩家就买个ps5的 把 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉可能确实是为了蹭老任的宣发资源选择了独占，这次发布一堆欧美媒体都跟进了
+
+*****
+
+####  maojiashu  
+##### 3338#       发表于 2024-8-31 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070766&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-8-31 09:44</a>
+
+感觉可能确实是为了蹭老任的宣发资源选择了独占，这次发布一堆欧美媒体都跟进了 ...</blockquote>
+对欧美玩家来说这个就是4399类型吧
+
+社长对这个宣发竟然如此自信 值得丢弃ps大本营去蹭一个2分钟pv<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

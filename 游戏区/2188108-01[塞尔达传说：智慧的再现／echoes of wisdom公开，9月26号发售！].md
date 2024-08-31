@@ -314,3 +314,13 @@ pv里内容量看着很大啊，怎么做到比织梦岛还小的
 不知道最多可以制造几个复制品，这边放第三个的时候第一个（应该是）已经开始闪烁了 ...</blockquote>
 前面几个PV里有介绍，托利的能力能够扩展，当使用次数用尽时最先复制的物品会开始闪烁消失来回收次数
 
+
+*****
+
+####  GuDaZi  
+##### 479#       发表于 2024-8-31 08:09
+
+好像有人马老师。应该可以召唤人马老师作战吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

@@ -3643,3 +3643,63 @@ Falcom連steam首頁都懶得建，NIS的閃1和閃2至今在日區還是おま�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  maojiashu  
+##### 3331#       发表于 2024-8-31 09:30
+
+fc能是ns独占？真的假的 
+
+pc不说 ps5肯定会上吧
+
+*****
+
+####  卢迪克  
+##### 3332#       发表于 2024-8-31 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070710&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-31 09:30</a>
+
+fc能是ns独占？真的假的 
+
+pc不说 ps5肯定会上吧</blockquote>
+28号七星就说ps等几个月了吧，这作抱老任大腿的<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3333#       发表于 2024-8-31 09:33
+
+应该是ns限时独占，ps版估计等半年到一年吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  maojiashu  
+##### 3334#       发表于 2024-8-31 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070716&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-31 09:31</a>
+
+28号七星就说ps等几个月了吧，这作抱老任大腿的</blockquote>
+我全平台都有倒是无所谓
+
+想报老任大腿也能理解 毕竟装机量在那里
+
+但肯定有轨迹启动器玩家就买个ps5的 把经营这么多年的ps大本营又给扔了有点没看懂
+
+*****
+
+####  卢迪克  
+##### 3335#       发表于 2024-8-31 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070732&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-31 09:34</a>
+
+我全平台都有倒是无所谓
+
+想报老任大腿也能理解 毕竟装机量在那里
+
+但肯定有轨迹启动器玩家就买个ps5的 把 ...</blockquote>
+估计美版同步想找个平台宣发，索尼那边上不了，老任给了平台，就给限时独占了吧
+

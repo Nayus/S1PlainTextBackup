@@ -12965,3 +12965,13 @@ BB迪拜也出了……夏活三个五星都抽到了怎么一个四星都没有
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v3.0.0.81-alp ...</blockquote>
 毕竟学姐正在UP，让抽到的各位压力没那么大嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  森兰丸  
+##### 14523#       发表于 2024-8-31 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">新材料不是都有白方块兑换了么...能换的这些量足够给几个人升满技能了
+
+再往后新材料也就不再是新材料了
+

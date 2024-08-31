@@ -3707,3 +3707,13 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 2024-9-1 01:14 上传
 
+
+*****
+
+####  6030sylar  
+##### 22528#       发表于 2024-9-1 01:47
+
+两年前是不是鼻子没那么大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

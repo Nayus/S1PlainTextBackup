@@ -7655,3 +7655,30 @@ fbkmiko的组合开场介绍搞得像micomet的开场一样……
 
 这什么魔性背景
 
+
+*****
+
+####  holoan  
+##### 9524#         楼主| 发表于 2024-8-31 17:18
+
+<img src="https://img.saraba1st.com/forum/202408/31/171824cx7f5ncsy7d5i2s2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (174.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 17:18 上传
+
+*****
+
+####  holoan  
+##### 9525#         楼主| 发表于 2024-8-31 17:26
+
+<img src="https://img.saraba1st.com/forum/202408/31/172646dn3lmlkms41nmm7k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 17:26 上传
+

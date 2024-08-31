@@ -3832,3 +3832,46 @@ pc不说 ps5肯定会上吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧说确定有界二，等媒体信息公开就知道了。 意思是有媒体采访消息渠道。
 
+
+*****
+
+####  ravend233  
+##### 3347#       发表于 2024-8-31 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，明年空re+界2
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3348#       发表于 2024-8-31 17:31
+
+黎2没推进剧情已经浪费了一作的篇幅，如果真有界2......
+
+
+*****
+
+####  ravend233  
+##### 3349#       发表于 2024-8-31 17:33
+
+在现在这个节点出界2属实看不出在商业上有什么价值，怕不是有老登铁了心要坚持再出一部<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 3350#       发表于 2024-8-31 17:35
+
+小道消息，就当看看了
+
+*****
+
+####  ravend233  
+##### 3351#       发表于 2024-8-31 17:36
+
+感觉估计就是a9问能不能完结近藤又打太极吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

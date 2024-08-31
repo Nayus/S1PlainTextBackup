@@ -3222,3 +3222,17 @@ Maxwell's puzzling demon出了，大概率今年最佳解谜，但难度超高�
 
 https://store.steampowered.com/app/2770160/Maxwells_puzzling_demon/
 
+
+*****
+
+####  BRAVADO  
+##### 214#       发表于 2024-8-31 19:54
+
+ 本帖最后由 BRAVADO 于 2024-8-31 19:56 编辑 
+<blockquote>weiyun 发表于 2024-8-31 17:58
+Maxwell's puzzling demon出了，大概率今年最佳解谜，但难度超高。
+
+https://store.steampowered.com/app/27 ...</blockquote>
+
+昨天买了，草草清了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗？还是就是靠非常扎实的level design脱颖而出的。
+

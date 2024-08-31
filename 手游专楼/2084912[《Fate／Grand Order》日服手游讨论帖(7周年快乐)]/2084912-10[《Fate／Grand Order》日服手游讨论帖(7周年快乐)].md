@@ -12898,3 +12898,13 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BB迪拜也出了……夏活三个五星都抽到了怎么一个四星都没有的……
 
+
+*****
+
+####  cenhr  
+##### 14517#       发表于 2024-8-31 14:04
+
+不过蘑菇应该要想想新的结束方案了，毕竟无论怎么BB，藤丸一行采取的就是泛人类胜利的手段：挡路的全都宰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以樱井最后把兔子打去太空漫游是挺有新鲜感的
+

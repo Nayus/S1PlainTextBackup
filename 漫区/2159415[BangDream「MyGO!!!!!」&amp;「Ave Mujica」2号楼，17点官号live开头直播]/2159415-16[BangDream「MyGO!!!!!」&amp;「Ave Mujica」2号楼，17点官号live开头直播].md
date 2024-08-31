@@ -3717,3 +3717,11 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  前方暴雨预警  
+##### 22529#       发表于 2024-9-1 02:31
+
+哎？上面的意思是海铃的私服灵感来自NANA？
+

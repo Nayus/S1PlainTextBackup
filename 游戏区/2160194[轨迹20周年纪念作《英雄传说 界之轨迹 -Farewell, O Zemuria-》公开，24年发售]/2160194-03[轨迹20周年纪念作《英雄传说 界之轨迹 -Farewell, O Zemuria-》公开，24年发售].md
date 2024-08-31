@@ -3977,3 +3977,13 @@ pc不说 ps5肯定会上吧</blockquote>
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 3363#       发表于 2024-8-31 21:59
+
+那几个舅舅反正一直都在说有界2，加上目前的宣发给出的消息真有也不奇怪，只是我看不明白再水一个界2意义是啥，真就竹入打滚找近藤再要一年吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

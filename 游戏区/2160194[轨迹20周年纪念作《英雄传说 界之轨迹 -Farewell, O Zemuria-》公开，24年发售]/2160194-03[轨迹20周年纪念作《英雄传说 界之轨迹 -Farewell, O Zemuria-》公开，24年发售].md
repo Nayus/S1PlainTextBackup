@@ -3966,3 +3966,14 @@ pc不说 ps5肯定会上吧</blockquote>
 
 「軌跡シリーズ」が生誕20周年を迎えたことを記念し、シリーズ第1作『英雄伝説 空の軌跡FC（ファーストチャプター）』の完全フルリメイク版となる『英雄伝説 空の軌跡 the 1st（ザ・ファースト）』（仮称）を、2025年にNintendo Switch™用タイトルとして発売することをお知らせ致します。
 
+
+*****
+
+####  悠悠你心  
+##### 3362#       发表于 2024-8-31 21:03
+
+有界2？
+你法也差不多得了，真有的话祝他们越来越好吧，我先撤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

@@ -7622,3 +7622,36 @@ live周边的先行发送部分竟然一个月就发送了，而live还有2个�
 
 fbkmiko的组合开场介绍搞得像micomet的开场一样……
 
+
+*****
+
+####  holoan  
+##### 9522#         楼主| 发表于 2024-8-31 16:06
+
+<img src="https://img.saraba1st.com/forum/202408/31/160553yeqa9qx315qgdexe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 16:05 上传
+
+。。。。
+
+你何时蛀牙
+
+*****
+
+####  holoan  
+##### 9523#         楼主| 发表于 2024-8-31 16:14
+
+<img src="https://img.saraba1st.com/forum/202408/31/161445mqi5y90rbnqo7s9i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 16:14 上传
+
+这什么魔性背景
+

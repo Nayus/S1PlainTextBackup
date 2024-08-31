@@ -3547,3 +3547,68 @@ TGW，你们的皇帝回来了
 
 可惜只剩eve和hgm的了，不知道有hgm推漏油想不想捡漏。
 
+
+*****
+
+####  PDQ4  
+##### 22521#       发表于 2024-8-31 21:20
+
+ 本帖最后由 PDQ4 于 2024-8-31 21:21 编辑 
+
+怎么感觉这两位有点后劲，真该上市了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/31/212036t0mh1miz1tihggc0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9106.jpeg</strong> (372.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212036v9jo15xy1i91l0c9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9109.jpeg</strong> (408.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:20 上传
+
+*****
+
+####  PDQ4  
+##### 22522#       发表于 2024-8-31 21:23
+
+大图
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324b3l6t72l2653dzb7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9107.jpeg</strong> (258.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324ilcvnvpl91b6f8ss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9108.jpeg</strong> (273.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324w37mbu3bmm7d2o5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9110.jpeg</strong> (213.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212325tyhgsgwdxks31w6d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9111.jpeg</strong> (255.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+

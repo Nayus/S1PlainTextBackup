@@ -1361,3 +1361,21 @@ GWMHSm0aAAAgVl9.jfif
 
 那倒还不错
 
+
+*****
+
+####  罗克萨斯  
+##### 5077#       发表于 2024-8-31 20:27
+
+下个赛季每天从0点刷新了？！
+
+<img src="https://img.saraba1st.com/forum/202408/31/202737jsrlqq6sqsu24kc4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-31-20-26-07-753_com.nintendo.znca.jpg</strong> (870.9 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 20:27 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

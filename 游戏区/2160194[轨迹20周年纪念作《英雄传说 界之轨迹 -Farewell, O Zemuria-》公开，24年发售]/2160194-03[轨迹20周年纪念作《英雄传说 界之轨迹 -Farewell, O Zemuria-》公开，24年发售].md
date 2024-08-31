@@ -3792,3 +3792,25 @@ pc不说 ps5肯定会上吧</blockquote>
 法拉控的待遇完全留不住那么多人啦，从前至今都是如此。暗耻那可是上市公司，完全比不过 ...</blockquote>
 你这个例子举得就不对，首先Falcom也是上市公司，其次光荣2009年退市了，光荣脱裤魔也没上市，上市的是“光荣脱裤魔持股（コーエーテクモホールディングス）”。
 
+
+*****
+
+####  卢迪克  
+##### 3343#       发表于 2024-8-31 14:03
+
+<img src="https://img.saraba1st.com/forum/202408/31/140329gqtdjjmxitjimyy3.png" referrerpolicy="no-referrer">
+
+<strong>913ef16a7fe5a2a12ca898a47ec5efff(1).png</strong> (133.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 14:03 上传
+
+*****
+
+####  alucardcz  
+##### 3344#       发表于 2024-8-31 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66072608&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-31 14:03</a></blockquote>
+难崩。。这里恩不认识的人铁定以为是范爷的亲兄弟 哦不 双胞胎兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

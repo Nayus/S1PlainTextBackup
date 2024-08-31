@@ -3770,3 +3770,25 @@ pc不说 ps5肯定会上吧</blockquote>
 其实美版就给十秒，日版才有一分钟，还是跪舔换来的美版十秒画面和美任一则推文 ...</blockquote>
 难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  darkangel0224  
+##### 3341#       发表于 2024-8-31 10:09
+
+<blockquote>nicholas30 发表于 2024-8-28 20:08
+我看Falcom是已經不具備PC游戲開發能力了
+
+要是學暗榮那樣各個平台都留一手，也不至於銷量持續走低 ...</blockquote>
+法拉控的待遇完全留不住那么多人啦，从前至今都是如此。暗耻那可是上市公司，完全比不过
+
+
+*****
+
+####  Falcomfans  
+##### 3342#       发表于 2024-8-31 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070890&amp;ptid=2160194" target="_blank">darkangel0224 发表于 2024-8-31 10:09</a>
+法拉控的待遇完全留不住那么多人啦，从前至今都是如此。暗耻那可是上市公司，完全比不过 ...</blockquote>
+你这个例子举得就不对，首先Falcom也是上市公司，其次光荣2009年退市了，光荣脱裤魔也没上市，上市的是“光荣脱裤魔持股（コーエーテクモホールディングス）”。
+

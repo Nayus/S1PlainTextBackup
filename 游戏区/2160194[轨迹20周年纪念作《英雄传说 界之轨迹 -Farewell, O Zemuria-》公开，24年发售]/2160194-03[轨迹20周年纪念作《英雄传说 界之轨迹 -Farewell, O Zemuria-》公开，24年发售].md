@@ -3814,3 +3814,13 @@ pc不说 ps5肯定会上吧</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66072608&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-31 14:03</a></blockquote>
 难崩。。这里恩不认识的人铁定以为是范爷的亲兄弟 哦不 双胞胎兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3345#       发表于 2024-8-31 17:09
+
+<blockquote>新世界的派蒙 发表于 2024-8-31 01:23
+空轨RE我倾向于还是老登特攻，不会有啥水花的，能像SO2R捞个好口碑就不错了，销量不要想太多 ...</blockquote>
+法也没指望能成功，他可是说京都迷城才是玩家该期待的东西。
+

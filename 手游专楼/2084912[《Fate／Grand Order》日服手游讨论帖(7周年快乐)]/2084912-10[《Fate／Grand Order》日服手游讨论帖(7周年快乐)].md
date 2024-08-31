@@ -13002,3 +13002,16 @@ bb2宝了两个四星都没影...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年想抽泳装加雷斯结果来了一个剑刷一个罗兰，气得把他们都拆了
 
+
+*****
+
+####  被子十三  
+##### 14527#       发表于 2024-9-1 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66053395&amp;ptid=2084912" target="_blank">jackyhuang 发表于 2024-8-29 14:30</a>
+看到ハルシネーション这个词一边想着片假名英语滚啊，查完一看原来叫幻觉
+那看来这个世界人类应该还没完全 ...</blockquote>
+这是AI术语啊，指现在的大模型会时不时乱说话
+
+— from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+

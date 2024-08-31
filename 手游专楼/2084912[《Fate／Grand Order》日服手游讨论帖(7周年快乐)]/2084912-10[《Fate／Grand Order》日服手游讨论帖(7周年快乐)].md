@@ -12942,3 +12942,13 @@ BB迪拜也出了……夏活三个五星都抽到了怎么一个四星都没有
 
 说明你还不够，继续
 
+
+*****
+
+####  jackyhuang  
+##### 14521#       发表于 2024-8-31 16:15
+
+终之花上每日兑换了，怎么感觉有点快
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

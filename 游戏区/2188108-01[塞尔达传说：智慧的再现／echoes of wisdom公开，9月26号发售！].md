@@ -359,3 +359,16 @@ pv里内容量看着很大啊，怎么做到比织梦岛还小的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  liekong  
+##### 484#       发表于 2024-8-31 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070952&amp;ptid=2188108" target="_blank">罗克萨斯 发表于 2024-8-31 10:20</a>
+
+马云家预定了实体，说是1～3天内发货，深圳那边这么快就有货了？好久没买实体游戏了
+
+—— 来自 S1Fun ...</blockquote>
+深圳的货源一般是HK那边来的，HK是当天就肯定有现货的
+

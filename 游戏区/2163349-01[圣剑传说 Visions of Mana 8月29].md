@@ -133,3 +133,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 还没买，不知道支不支持HDR？或者win11自动HDR支持的话也行啊，怕买来发现都不支持<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 237#       发表于 2024-8-31 14:59
+
+虽然试玩已经预想到，但同武器种的职业必杀技也就换个特效真的省料啊
+

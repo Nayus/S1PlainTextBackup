@@ -3635,3 +3635,35 @@ TGW，你们的皇帝回来了
 
 两年前确实是已经组完队的阶段了
 
+
+*****
+
+####  滑稽Captain  
+##### 22526#       发表于 2024-8-31 23:25
+
+【セットリスト】
+
+1. 無路矢
+
+2. 砂寸奏～歌いましょう鳴らしましょう
+
+3. 迷星叫
+
+mygo和去年一样歌单是两首全曲+两个半首
+
+<img src="https://img.saraba1st.com/forum/202408/31/232221mzfl5m3wlpcyl1hu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/232231nss763okomsn7lss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (474.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 23:22 上传
+

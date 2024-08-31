@@ -4047,3 +4047,13 @@ pc不说 ps5肯定会上吧</blockquote>
 
 这要是OP里各种大佬下场打对手戏还能想想  啥都没有的东西能讲个头
 
+
+*****
+
+####  ravend233  
+##### 3370#       发表于 2024-8-31 23:21
+
+竹入特色就是只要还有篇幅总而言之先给你摊大饼无上限增加势力和角色数量，等到必须收网的时候一股脑往垃圾桶赛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

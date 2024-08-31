@@ -1872,3 +1872,37 @@ pashplus这个网站的通稿里写的本集分镜仍然有东富耶子，和官
 
 赢了
 
+
+*****
+
+####  Tachikoma88  
+##### 799#       发表于 2024-8-31 21:29
+
+总体还是很满意的，尴尬的就是现在沙发套缺少有实力的原画师，部分镜头不能很好的展现出来
+
+*****
+
+####  oi99o  
+##### 800#       发表于 2024-8-31 21:30
+
+你也万策尽？
+
+<img src="https://img.saraba1st.com/forum/202408/31/213030dhu6bbuy8d15kexc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:30 上传
+
+
+*****
+
+####  Tachikoma88  
+##### 801#       发表于 2024-8-31 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66076105&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-31 21:30</a>
+
+你也万策尽？</blockquote>
+其实这两集能看出来有不少镜头复用，反正物语万策尽是传统，更何况这季只有网络放送，用不着赶工期
+

@@ -304,3 +304,15 @@ sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  starring  
+##### 20976#       发表于 2024-8-31 18:28
+
+广州场票价出了
+<img src="https://p.sda1.dev/19/c3d330cbf99a0a58f51526f476fd24f1/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/3f766cd8520e39ee0e48bb24cad54eac/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

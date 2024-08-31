@@ -3149,3 +3149,14 @@ RELEASE：9/13(金)0:00</blockquote>
 <[strong>Onedrive</strong>](https://clr2.wfhtony.space/s/YA2h0)（←内附自购证明） PW：vα-liv-SOLOSept.2024_01
 <[strong>Google Drive</strong>](https://drive.google.com/file/d/1OhPFA52S8GKQK8QJM6zmXyVl6x4CytWT/view?usp=sharing)（←同上，内附自购证明）
 
+
+*****
+
+####  Ask_10A  
+##### 6295#       发表于 2024-8-31 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66069340&amp;ptid=2130897" target="_blank">lunaticfool 发表于 2024-8-31 00:07</a>
+
+.传奇退堂鼓冠军</blockquote>
+致敬传奇鼓手前辈岛村卯月
+

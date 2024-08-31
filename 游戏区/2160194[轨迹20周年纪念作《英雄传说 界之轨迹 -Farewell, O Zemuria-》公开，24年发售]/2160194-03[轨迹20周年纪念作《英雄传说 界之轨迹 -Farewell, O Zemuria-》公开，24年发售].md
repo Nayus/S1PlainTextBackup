@@ -3746,3 +3746,27 @@ pc不说 ps5肯定会上吧</blockquote>
 
 社长对这个宣发竟然如此自信 值得丢弃ps大本营去蹭一个2分钟pv<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3339#       发表于 2024-8-31 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070786&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-31 09:47</a>
+
+对欧美玩家来说这个就是4399类型吧
+
+社长对这个宣发竟然如此自信 值得丢弃ps大本营去蹭一个2分钟pv ...</blockquote>
+其实美版就给十秒，日版才有一分钟，还是跪舔换来的美版十秒画面和美任一则推文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maojiashu  
+##### 3340#       发表于 2024-8-31 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070799&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-8-31 09:50</a>
+
+其实美版就给十秒，日版才有一分钟，还是跪舔换来的美版十秒画面和美任一则推文 ...</blockquote>
+难绷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

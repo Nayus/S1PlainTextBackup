@@ -3110,3 +3110,42 @@ T恤裤衩泡温泉<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 音游米组新歌Master打不过<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我已经是个废人了吗
 
+
+*****
+
+####  wfhtony  
+##### 6294#       发表于 2024-8-31 13:47
+
+ 本帖最后由 wfhtony 于 2024-8-31 13:52 编辑 
+
+在无人在意的角落里，vα-liv企划（管马仕）之前公开过的SOLO曲开始发售了...
+
+具体日程如下：
+<img src="https://tc2.wfhtony.space/images/2024/08/31/2c07fc16ac6e70e554a9b93675bf158c.jpg" referrerpolicy="no-referrer">
+
+（↑ [官推](https://twitter.com/ASOBINOTES876/status/1829516005246472316)提供的封面图标反了）<blockquote>《ともすれば、(中略)アイドル》
+
+RELEASE：8/31(土)0:00
+
+《公転周期》
+
+RELEASE：9/9(月)0:00
+
+《群青イニシエーション》
+
+RELEASE：9/13(金)0:00</blockquote>
+另外，这三首SOLO下个月也会有实体CD版发售，收录的内容和Hi-Res版一样。
+
+<strong>曲目列表</strong><blockquote>01. <[strong>ともすれば、(中略)アイドル</strong>](https://mora.jp/package/43000033/PA00161153-0-2/)
+
+　作詞：七条レタス　作曲・編曲：D.watt
+
+　歌：[灯里愛夏](https://twitter.com/TomoriManaka)
+
+＊实际发售有附带伴奏（请参考[《电音部》](https://denonbu.jp/)的发行模式）。</blockquote>
+（via [企划官网](https://idolmaster-official.jp/va-liv)）
+以下内容需要积分高于 500 才可浏览
+<[strong>百度盘</strong>](https://pan.baidu.com/s/1k12P9NQGZpHRI2bfJLUcDA)(zip+[5%rr](http://hp.vector.co.jp/authors/VA021385/)) PW：avj8
+<[strong>Onedrive</strong>](https://clr2.wfhtony.space/s/YA2h0)（←内附自购证明） PW：vα-liv-SOLOSept.2024_01
+<[strong>Google Drive</strong>](https://drive.google.com/file/d/1OhPFA52S8GKQK8QJM6zmXyVl6x4CytWT/view?usp=sharing)（←同上，内附自购证明）
+

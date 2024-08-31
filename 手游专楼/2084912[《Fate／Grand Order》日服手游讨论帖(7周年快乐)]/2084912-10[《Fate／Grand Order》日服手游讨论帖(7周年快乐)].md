@@ -12919,3 +12919,26 @@ OC3要打什么才是最大的谜题。当年CCC有杀生院这个真boss，但O
 BB迪拜也出了……夏活三个五星都抽到了怎么一个四星都没有的……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇是这样的
 
+
+*****
+
+####  cenhr  
+##### 14519#       发表于 2024-8-31 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66072648&amp;ptid=2084912" target="_blank">alucardcz 发表于 2024-8-31 14:07</a>
+
+欧皇是这样的</blockquote>
+欧皇不应该是全部都在10抽内抽到吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  シャル  
+##### 14520#       发表于 2024-8-31 14:20
+
+<blockquote>v22325 发表于 2024-8-31 07:59
+BB迪拜也出了……夏活三个五星都抽到了怎么一个四星都没有的……</blockquote>
+我这两期全中大概270连
+
+说明你还不够，继续
+

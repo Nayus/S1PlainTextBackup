@@ -1387,3 +1387,21 @@ GWMHSm0aAAAgVl9.jfif
 
 龙虾能否在0点的蛤蜊上5000呢
 
+
+*****
+
+####  罗克萨斯  
+##### 5079#       发表于 2024-8-31 22:16
+
+加特林唯一神！让灭龙第一丢掉区域第一<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/31/221614xue9r4suu9el8eks.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-08-31-22-13-11-861_com.nintendo.znca-edit.jpg</strong> (260.95 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 22:16 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

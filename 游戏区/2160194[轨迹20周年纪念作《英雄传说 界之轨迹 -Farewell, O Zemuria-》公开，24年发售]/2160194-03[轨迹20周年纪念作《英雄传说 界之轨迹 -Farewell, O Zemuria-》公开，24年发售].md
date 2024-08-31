@@ -3901,3 +3901,53 @@ pc不说 ps5肯定会上吧</blockquote>
 
 先玩林克传说不急
 
+
+*****
+
+####  zhouaa  
+##### 3355#       发表于 2024-8-31 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准是社长看了下黎1和黎2的数据 发现新人没拉到  都是买了十年的大冤种在继续买    索性就放弃宣传了
+
+*****
+
+####  卢迪克  
+##### 3356#       发表于 2024-8-31 18:18
+
+我记得直播他自己早就说了界之轨迹系列吧.........大多数都有预期了吧
+
+*****
+
+####  ravend233  
+##### 3357#       发表于 2024-8-31 18:19
+
+削的也不止是宣发了，开发资源基本上也是能延用黎的就延用，当然逻辑基本就是黎1,2不够怎么努力都是那么多销量，那不如开摆得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  椎名mahuyo  
+##### 3358#       发表于 2024-8-31 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打开商店还是好歹20周年纪念作呢，就这宣传？
+
+估计真拿不出来
+
+
+*****
+
+####  ravend233  
+##### 3359#       发表于 2024-8-31 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Markorca  
+##### 3360#       发表于 2024-8-31 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">再来一次黎2基本系列出脑了，也好，不用被这公司折腾了 
+

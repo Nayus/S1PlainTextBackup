@@ -434,3 +434,26 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  clyde-wang  
+##### 492#       发表于 2024-8-31 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66073870&amp;ptid=2188108" target="_blank">thez 发表于 2024-8-31 17:35</a>
+地图貌似至少是织梦岛的5倍？</blockquote>
+老任的压缩技术又进步了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+*****
+
+####  clyde-wang  
+##### 493#       发表于 2024-8-31 18:15
+
+看了PAX的试玩感觉帧数稳定性上是比织梦岛要好的
+
+当然PV里还是有掉帧，不能抱有太大期望
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

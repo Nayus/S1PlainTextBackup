@@ -1914,3 +1914,27 @@ pashplus这个网站的通稿里写的本集分镜仍然有东富耶子，和官
 
 总集篇也是传统了
 
+
+*****
+
+####  oi99o  
+##### 803#       发表于 2024-8-31 21:46
+
+青柳：继续帮忙画了一点分镜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/31/214550mgpowkuso3nps4gs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (111.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/214558rki7lj42k2k2u2nd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.56 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:45 上传
+

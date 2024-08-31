@@ -3236,3 +3236,14 @@ https://store.steampowered.com/app/27 ...</blockquote>
 
 昨天买了，草草清了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗？还是就是靠非常扎实的level design脱颖而出的。
 
+
+*****
+
+####  weiyun  
+##### 215#         楼主| 发表于 2024-9-1 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66075038&amp;ptid=2017380" target="_blank">BRAVADO 发表于 2024-8-31 19:54</a>
+
+昨天买了，草草通了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗 ...</blockquote>
+有很多其他机制，第三大关就开始meta了，我才打到第四大关，感觉全通可能要50小时以上，有的字母关进入都挺难的。
+

@@ -324,3 +324,13 @@ pv里内容量看着很大啊，怎么做到比织梦岛还小的
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  罗克萨斯  
+##### 480#       发表于 2024-8-31 08:25
+
+这能力也太好用了，还能客串勇者，林克可以被塞尔达优化掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

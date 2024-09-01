@@ -4065,3 +4065,13 @@ pc不说 ps5肯定会上吧</blockquote>
 
 你轨也就负责垫档的命了。
 
+
+*****
+
+####  椎名mahuyo  
+##### 3372#       发表于 2024-9-1 10:33
+
+不过想想和塞尔达一起发售我估计先玩塞尔达去了，如果这界轨还玩断章我直接不买了，这预购特典也完全没兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

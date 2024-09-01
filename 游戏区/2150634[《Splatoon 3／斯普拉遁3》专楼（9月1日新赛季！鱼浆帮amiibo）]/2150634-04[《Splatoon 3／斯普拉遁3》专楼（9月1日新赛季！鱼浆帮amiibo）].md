@@ -1500,3 +1500,11 @@ GWWtMgQXgAIMcDH.jfif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我要还想抽第一赛季的金银蛋是不是没戏了？
 
+
+*****
+
+####  Ryuuseigun  
+##### 5089#       发表于 2024-9-2 01:16
+
+9.0更新修了网之后掉线频率史无前例，平均两把赛中/打工中掉线搞心态一绝，同样的网络配置没动过，之前匹配40s内进去连玩八小时可能就掉个三四把都是因为队友网络波动，这网修了个啥，把我能连上的bug修好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+

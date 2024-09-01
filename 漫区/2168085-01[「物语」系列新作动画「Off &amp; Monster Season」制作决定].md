@@ -1999,3 +1999,14 @@ pashplus这个网站的通稿里写的本集分镜仍然有东富耶子，和官
 
 一本正经的念着羞耻的台词（虽然是在说事实），搞得我看的憋笑。
 
+
+*****
+
+####  diamo  
+##### 810#       发表于 2024-9-1 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66076259&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-8-31 21:46</a>
+
+青柳：继续帮忙画了一点分镜</blockquote>
+It's true music<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

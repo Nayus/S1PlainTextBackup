@@ -1471,3 +1471,14 @@ GWWtMgQXgAIMcDH.jfif
 
 我甚至不知道缺了些啥
 
+
+*****
+
+####  KBAC  
+##### 5086#       发表于 2024-9-1 14:30
+
+这次更新比较谜的是减半了通过武器熟练度获取武器券的所需经验值，不知道是什么用意。
+这个渠道获取的武器券数量相当有限，用完就彻底没了（除非继续出新武器），是鼓励你拿去抽扭蛋呢？还是第二贴牌快出了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

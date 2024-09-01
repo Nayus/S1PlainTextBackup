@@ -2064,3 +2064,14 @@ It's true music<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 第8集熟肉有吗，巴哈这番給延期了</blockquote>
 b站上有
 
+
+*****
+
+####  [皆神孝介]  
+##### 817#       发表于 2024-9-2 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66085470&amp;ptid=2168085" target="_blank">siansian 发表于 2024-9-1 23:58</a>
+
+第8集熟肉有吗，巴哈这番給延期了</blockquote>
+[https://share.dmhy.org/topics/vi ... eason_08_1080p.html](https://share.dmhy.org/topics/view/678137_07_Monogatari_Series_Off_Monster_Season_08_1080p.html)
+

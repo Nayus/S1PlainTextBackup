@@ -3906,3 +3906,11 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 确实有类似的地方，但是这些元素放在一个设定是玩乐队的jk身上好像也比较常见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22540#       发表于 2024-9-1 14:06
+
+别给lisa联动别给lisa联动，让我攒点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

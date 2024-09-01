@@ -2431,3 +2431,33 @@ B开头的……一时想不起来<img src="https://static.saraba1st.com/image/s
 
 这个YAB给哪些虹V做了（混）曲来着？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  バーチャルS1er  
+##### 652#       发表于 2024-9-1 22:18
+
+<img src="https://img.saraba1st.com/forum/202409/01/221817sco1o2n8hcjkflok.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>qPE1uoL.jpeg</strong> (224.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 22:18 上传
+
+
+*****
+
+####  格林卡罗尔  
+##### 653#       发表于 2024-9-1 22:25
+
+下药的聊天记录是2022，还不能确定麦麦喝没喝过
+
+<img src="https://img.saraba1st.com/forum/202409/01/222605bge84ngbzg5gu3jg.png" referrerpolicy="no-referrer">
+
+<strong>2D849774A104F12B5F6F3306BA76E361.png</strong> (88.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 22:26 上传
+

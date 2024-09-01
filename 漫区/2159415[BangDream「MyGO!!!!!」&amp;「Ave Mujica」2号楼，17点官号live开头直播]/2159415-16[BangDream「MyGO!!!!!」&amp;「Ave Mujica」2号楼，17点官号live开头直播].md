@@ -4084,3 +4084,59 @@ soyo假扮sakiko挡刀结果没死，一切都是anno的计谋怎么样
 
 闹掰了以后这么久终于给够朋友费了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  太二EricGuo  
+##### 22559#       发表于 2024-9-1 22:19
+
+转隔壁
+1.第一条推文:
+
+madamesu
+
+·原文:マダミスはAve Mujica書くために行き始めたんだ一初出し情報マダミスは
+
+·翻烽:刃了写《Ave Mujica》 ，我幵始去参加謀茶之迷了~首次公幵的信息。
+
+2.第二条推文:
+
+·原文:マダミス、自分にとっては精神療法かもしれないなあ。人間ごっこをやって癒されているところがあるマダミス、自分にと
+
+·翻:対我来鋭，謀茶之迷可能是-神心理治疔。我在扮演人角色吋感受到了治愈。
+
+3.第三条推文:
+
+·原文:演じる気持ちを知りたくて、自主取材のつもりで行ったらハマった(笑)。そしたら、「ヤハノのフタリ」の久保ししゃや先生にお世話になることになって。マダミスを選んでよかったな、ご縁だなって(ひとりで勝手に)思った
+
+·翻逢:我想了解表演的感覚，原本打算作カ自主取材去体臉,結果入迷了(笑)。結果，逐得到了《ヤハノのフタリ》的久保ししゃ老師的幇助。真是太好了，迭拝了謀糸之迷，感党送是一神縁分(我自己一个人遠幺党得)。
+
+*****
+
+####  Aendst  
+##### 22560#       发表于 2024-9-1 22:19
+
+这什么火星文翻译<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  PDQ4  
+##### 22561#       发表于 2024-9-1 22:20
+
+但是独角兽仍然没有原谅鸡，她还是没有关注<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22562#       发表于 2024-9-1 22:22
+
+所以还是可以滑坡鸡剧本质量不行的是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22563#       发表于 2024-9-1 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看成品就是了，还是觉得是独角兽和柿本的爱恨情仇
+

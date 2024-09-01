@@ -990,3 +990,11 @@ cure majesty（
 
 下集，蓝毛狂犬堂堂登场！（话说我看P站百科说未来也要登场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
+
+*****
+
+####  jaewoongh_  
+##### 2104#       发表于 2024-9-1 13:01
+
+话说从这集开始都是找附近的动物变怪了啊，这集是前女友的龙猫，下集是彩叶喜欢的大象
+

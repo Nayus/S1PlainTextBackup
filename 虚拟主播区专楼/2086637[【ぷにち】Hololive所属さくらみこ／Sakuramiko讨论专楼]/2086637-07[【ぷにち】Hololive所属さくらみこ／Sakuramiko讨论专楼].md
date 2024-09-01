@@ -7821,3 +7821,25 @@ miko待机间的阴魂完全是24小时在线啊甚至比cover内“全天”监
 
 最后的0期，集合！
 
+
+*****
+
+####  holoan  
+##### 9538#         楼主| 发表于 2024-9-1 20:08
+
+永远七字母都在同一边
+
+0期生的联动画面
+
+*****
+
+####  holoan  
+##### 9539#         楼主| 发表于 2024-9-1 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66083169&amp;ptid=2086637" target="_blank">rs5621 发表于 2024-9-1 20:04</a>
+
+最后的0期，集合！</blockquote>
+说得像最后的晚餐一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">、
+
+萝卜刚才还上镜官台直播了，没事的
+

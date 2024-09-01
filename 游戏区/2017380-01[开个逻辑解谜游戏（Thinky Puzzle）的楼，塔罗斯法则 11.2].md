@@ -3247,3 +3247,13 @@ https://store.steampowered.com/app/27 ...</blockquote>
 昨天买了，草草通了world 1，我感觉作为一个类推箱，rule set稍稍有点平淡，后面有玩得很花的rule set吗 ...</blockquote>
 有很多其他机制，第三大关就开始meta了，我才打到第四大关，感觉全通可能要50小时以上，有的字母关进入都挺难的。
 
+
+*****
+
+####  infinitesimal7  
+##### 216#       发表于 2024-9-1 08:13
+
+Maxwell真好玩，很有可能是年度最佳了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

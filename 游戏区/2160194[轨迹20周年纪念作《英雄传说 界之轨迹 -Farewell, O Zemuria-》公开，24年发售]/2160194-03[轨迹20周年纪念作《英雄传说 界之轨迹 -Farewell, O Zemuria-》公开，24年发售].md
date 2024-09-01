@@ -4189,3 +4189,13 @@ pc不说 ps5肯定会上吧</blockquote>
 我觉得要做应该是fc+sc保底，起码sc素材复用成本不会多高，做做演出就完事了，3rd主要是占档期和开发资源， ...</blockquote>
 一路重制到闪之轨迹2
 
+
+*****
+
+####  古畑任三郎2015  
+##### 3384#       发表于 2024-9-1 16:47
+
+闪34＋创已经把克州几乎所有地图都做出来了，放着不用太难了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

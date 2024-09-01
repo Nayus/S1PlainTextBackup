@@ -502,3 +502,13 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 等一个NS2完整体验
 
+
+*****
+
+####  撒撒  
+##### 499#       发表于 2024-9-1 13:10
+
+《塞尔达传说：智慧的再现》PV3+Demo预告分析
+
+[https://www.bilibili.com/video/BV1eunfeeESR/](https://www.bilibili.com/video/BV1eunfeeESR/)
+

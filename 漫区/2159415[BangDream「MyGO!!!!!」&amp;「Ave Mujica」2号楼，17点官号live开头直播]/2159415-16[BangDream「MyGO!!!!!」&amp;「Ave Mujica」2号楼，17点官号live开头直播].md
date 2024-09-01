@@ -4026,3 +4026,19 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 都剧本杀了能不能真杀一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  约翰里德  
+##### 22552#       发表于 2024-9-1 21:46
+
+soyo假扮sakiko挡刀结果没死，一切都是anno的计谋怎么样
+
+*****
+
+####  Aendst  
+##### 22553#       发表于 2024-9-1 21:50
+
+用在舞台剧上的可能性很高，因为是某种扮演，所以大概是人偶相关的谁死了吧？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家人感觉不会到这一步……
+

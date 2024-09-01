@@ -2010,3 +2010,21 @@ pashplus这个网站的通稿里写的本集分镜仍然有东富耶子，和官
 青柳：继续帮忙画了一点分镜</blockquote>
 It's true music<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  秋雨灰灰  
+##### 811#       发表于 2024-9-1 19:35
+
+真是很美妙的一集啊！尤其是没有被unhappy创，咔咔
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  鬼谷ask  
+##### 812#       发表于 2024-9-1 19:42
+
+非常好一集，开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

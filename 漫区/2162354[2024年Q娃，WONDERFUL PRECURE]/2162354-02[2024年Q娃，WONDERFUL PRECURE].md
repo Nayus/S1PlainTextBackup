@@ -1085,3 +1085,16 @@ mayu哄龙猫那段是龙猫认出来mayu了才突然怒气max的吧<img src="ht
 
 不过这前女友一边社恐一边重的要死，要是能入队肯定能迸发出更多喜闻乐见的场面，可惜大妈没那个本事写啊
 
+
+*****
+
+####  pokemon最爱  
+##### 2109#       发表于 2024-9-1 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66082727&amp;ptid=2162354" target="_blank">上坂莲华 发表于 2024-9-1 19:09</a>
+
+mayu哄龙猫那段是龙猫认出来mayu了才突然怒气max的吧
+
+这集细想还是难绷，关系都好到能带着宠物互相到家里去 ...</blockquote>
+我觉得是知道，但是因为两边都社恐一旦对话中断就都没胆子主动挑起对话结果就卡死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

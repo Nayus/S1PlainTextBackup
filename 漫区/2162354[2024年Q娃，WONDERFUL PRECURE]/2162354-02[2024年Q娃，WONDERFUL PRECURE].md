@@ -980,3 +980,13 @@ cure majesty（
 你的女朋友跑去跟前女友复合了啊</blockquote>
 反正也会回到我得身边，我才不慌<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  pokemon最爱  
+##### 2103#       发表于 2024-9-1 12:06
+
+结果前女友也是个同款社恐，难怪之前两个人分手（雾）的原因那么奇怪怎么看都是个小事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下集，蓝毛狂犬堂堂登场！（话说我看P站百科说未来也要登场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+

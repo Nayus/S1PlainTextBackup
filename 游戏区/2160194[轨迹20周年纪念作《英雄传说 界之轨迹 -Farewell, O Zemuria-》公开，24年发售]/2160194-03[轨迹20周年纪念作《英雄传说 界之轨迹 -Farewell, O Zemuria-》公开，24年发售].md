@@ -4093,3 +4093,16 @@ pc不说 ps5肯定会上吧</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3375#       发表于 2024-9-1 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66079770&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-1 11:25</a>
+
+主要再水一部界2在商业上看不出任何好处，和闪轨还不一样特别是在公开明年发售空re后更看不出有什么价值了
+
+ ...</blockquote>
+给大法和老任端水
+

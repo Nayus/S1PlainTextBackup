@@ -3265,3 +3265,13 @@ Maxwell真好玩，很有可能是年度最佳了
 
 在第一大关就疯狂卡关……<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">怎么感觉比bean还难，明明规则没bean复杂结果死活想不通
 
+
+*****
+
+####  BRAVADO  
+##### 218#       发表于 2024-9-1 12:13
+
+<blockquote>weiyun 发表于 2024-9-1 00:27
+有很多其他机制，第三大关就开始meta了，我才打到第四大关，感觉全通可能要50小时以上，有的字母关进入都 ...</blockquote>
+好好，那可以先往前快速推进度了，谢谢！
+

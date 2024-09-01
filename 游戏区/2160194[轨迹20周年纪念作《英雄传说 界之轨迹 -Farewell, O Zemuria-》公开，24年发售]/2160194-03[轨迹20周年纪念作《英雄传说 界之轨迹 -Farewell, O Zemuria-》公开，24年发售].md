@@ -4178,3 +4178,14 @@ pc不说 ps5肯定会上吧</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3383#       发表于 2024-9-1 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66081583&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-1 16:15</a>
+
+我觉得要做应该是fc+sc保底，起码sc素材复用成本不会多高，做做演出就完事了，3rd主要是占档期和开发资源， ...</blockquote>
+一路重制到闪之轨迹2
+

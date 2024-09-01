@@ -332,3 +332,14 @@ sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
 
 看别的卖那么高，🐟那个价格感觉就是回本
 
+
+*****
+
+####  csolfans  
+##### 20979#       发表于 2024-9-1 18:04
+
+<img src="https://p.sda1.dev/19/f4dec5b2a65ef7752a5d504a11332b84/Image_1725184992517.jpg" referrerpolicy="no-referrer">
+大的要来？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

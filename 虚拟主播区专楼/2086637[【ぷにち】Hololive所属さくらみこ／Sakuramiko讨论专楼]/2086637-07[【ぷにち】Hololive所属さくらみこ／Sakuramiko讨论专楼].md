@@ -7915,3 +7915,32 @@ holo周年纪念直播，sora7周年纪念直播
 
 7号有新曲吧，憋了大半年了
 
+
+*****
+
+####  holoan  
+##### 9547#         楼主| 发表于 2024-9-1 21:51
+
+官频的会限壁纸以下内容需要积分高于 10000 才可浏览
+
+<img src="https://img.saraba1st.com/forum/202409/01/215104c8b0zh5z06ky90h1.png" referrerpolicy="no-referrer">
+
+<strong>24年9月会員特典_壁紙_PC用4Kサイズ.png</strong> (463.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 21:51 上传
+
+*****
+
+####  holoan  
+##### 9548#         楼主| 发表于 2024-9-1 23:28
+
+<img src="https://img.saraba1st.com/forum/202409/01/232757et31nevtjnrmmjvg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 23:27 上传
+

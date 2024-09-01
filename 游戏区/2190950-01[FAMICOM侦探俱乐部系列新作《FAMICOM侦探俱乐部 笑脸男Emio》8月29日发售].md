@@ -3108,3 +3108,11 @@ B 老任愿意 然后和KT合资，KT做
 
 步美人设是换了吗，没有以前漂亮了
 
+
+*****
+
+####  漫漫来  
+##### 305#       发表于 2024-9-1 23:29
+
+问下流程大概多久？我的卡带还在清关，不知道能不在宇宙机器人发售前打完<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

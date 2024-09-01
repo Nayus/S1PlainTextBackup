@@ -58,3 +58,11 @@ magnet:?xt=urn:btih:ddc749df0670f43fc0dd47d7476fd8605a3b8f7a
 《Garden of Remembrance》导演·山田尚子 爱丁堡映后访谈 整理记录
 [https://card.weibo.com/article/m/show/id/2309405073034993336396](https://card.weibo.com/article/m/show/id/2309405073034993336396)
 
+
+*****
+
+####  没取名啊  
+##### 60#       发表于 2024-9-1 23:30
+
+连着看了这个和魔法之星爱美云光中，感觉山田尚子被安浓高志完爆了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

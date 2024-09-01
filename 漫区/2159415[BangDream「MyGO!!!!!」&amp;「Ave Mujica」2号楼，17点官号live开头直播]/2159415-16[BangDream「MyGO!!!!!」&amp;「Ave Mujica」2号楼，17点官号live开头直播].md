@@ -4189,3 +4189,11 @@ madamesu
 
 别这样，我宁愿独角兽说的是剧本杀类似的叙事手法——直接分5人视角来讲故事最后拼真相？这疑似有点太罗生门了
 
+
+*****
+
+####  星天观测  
+##### 22568#       发表于 2024-9-1 23:26
+
+不如说鸡再怎么悬疑还是在邦世界里的，真要搞商战或者杀人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可思议
+

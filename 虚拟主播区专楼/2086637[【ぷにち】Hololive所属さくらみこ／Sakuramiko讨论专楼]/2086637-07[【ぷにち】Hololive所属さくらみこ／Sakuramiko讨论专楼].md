@@ -7754,3 +7754,30 @@ fbk累了换miko操作了
 
 miko待机间的阴魂完全是24小时在线啊甚至比cover内“全天”监视直播间的运营还要勤奋，miko在全天任何一个时间开待机窗之后一小时内一定会有anti带着没有被封的新开小号到达战场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9532#         楼主| 发表于 2024-9-1 12:45
+
+<img src="https://img.saraba1st.com/forum/202409/01/124553f4rnxvv4xevn8u5e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.58 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 12:45 上传
+
+*****
+
+####  holoan  
+##### 9533#         楼主| 发表于 2024-9-1 15:24
+
+<img src="https://img.saraba1st.com/forum/202409/01/152403m8oajbva0ioqilxw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 15:24 上传
+

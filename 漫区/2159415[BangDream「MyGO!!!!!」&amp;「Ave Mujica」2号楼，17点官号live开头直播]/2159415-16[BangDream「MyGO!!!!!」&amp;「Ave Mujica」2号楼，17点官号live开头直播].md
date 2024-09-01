@@ -3725,3 +3725,184 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 哎？上面的意思是海铃的私服灵感来自NANA？
 
+
+*****
+
+####  PDQ4  
+##### 22530#       发表于 2024-8-31 21:20
+
+ 本帖最后由 PDQ4 于 2024-8-31 21:21 编辑 
+
+怎么感觉这两位有点后劲，真该上市了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202408/31/212036t0mh1miz1tihggc0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9106.jpeg</strong> (372.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212036v9jo15xy1i91l0c9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9109.jpeg</strong> (408.72 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:20 上传
+
+*****
+
+####  PDQ4  
+##### 22531#       发表于 2024-8-31 21:23
+
+大图
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324b3l6t72l2653dzb7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9107.jpeg</strong> (258.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324ilcvnvpl91b6f8ss.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9108.jpeg</strong> (273.7 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212324w37mbu3bmm7d2o5l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9110.jpeg</strong> (213.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/212325tyhgsgwdxks31w6d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9111.jpeg</strong> (255.93 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 21:23 上传
+
+*****
+
+####  星天观测  
+##### 22532#       发表于 2024-8-31 21:31
+
+土mv播放量居然就18w了看来大火还挺满意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鳥栖朝  
+##### 22533#       发表于 2024-8-31 21:31
+
+ 本帖最后由 鳥栖朝 于 2024-8-31 21:42 编辑 
+
+梦以接受弄叫姐，像姐姐一样宠着弄，弄经常对梦以撒娇，求牵手的含金量
+
+*****
+
+####  滑稽Captain  
+##### 22534#       发表于 2024-8-31 22:53
+
+两年前确实是已经组完队的阶段了
+
+*****
+
+####  滑稽Captain  
+##### 22535#       发表于 2024-8-31 23:25
+
+【セットリスト】
+
+1. 無路矢
+
+2. 砂寸奏～歌いましょう鳴らしましょう
+
+3. 迷星叫
+
+mygo和去年一样歌单是两首全曲+两个半首
+
+<img src="https://img.saraba1st.com/forum/202408/31/232221mzfl5m3wlpcyl1hu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202408/31/232231nss763okomsn7lss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (474.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-8-31 23:22 上传
+
+*****
+
+####  NODY  
+##### 22536#       发表于 2024-9-1 01:15
+
+这个还真没注意到
+
+<img src="https://img.saraba1st.com/forum/202409/01/011444odqeo1mrf2q163z7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240901005302.png</strong> (59.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/01/011443o2llii28nanitoso.jpg" referrerpolicy="no-referrer">
+
+<strong>GV5zVBrbgAAC8as.jpg</strong> (119.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/01/011443wpxzxxxapwpxp55q.jpg" referrerpolicy="no-referrer">
+
+<strong>GV5zVBmakAAMPP2.jpg</strong> (118.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 01:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/01/011443tllaob1pmm9oorab.jpg" referrerpolicy="no-referrer">
+
+<strong>GV5zVBrasAACeqY.jpg</strong> (89.52 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 01:14 上传
+
+*****
+
+####  6030sylar  
+##### 22537#       发表于 2024-9-1 01:47
+
+两年前是不是鼻子没那么大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+
+*****
+
+####  前方暴雨预警  
+##### 22538#       发表于 2024-9-1 02:31
+
+哎？上面的意思是海铃的私服灵感来自NANA？
+
+*****
+
+####  星天观测  
+##### 22539#       发表于 2024-9-1 08:56
+
+确实有类似的地方，但是这些元素放在一个设定是玩乐队的jk身上好像也比较常见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

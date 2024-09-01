@@ -3922,3 +3922,14 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 9月了，上海live大概什么时候开票？
 
+
+*****
+
+####  rikaren  
+##### 22542#       发表于 2024-9-1 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66081130&amp;ptid=2159415" target="_blank">461757753 发表于 2024-9-1 14:55</a>
+
+9月了，上海live大概什么时候开票？</blockquote>
+按r的经验开票是live前半个月左右
+

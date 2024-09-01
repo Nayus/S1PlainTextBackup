@@ -1508,3 +1508,15 @@ GWWtMgQXgAIMcDH.jfif
 
 9.0更新修了网之后掉线频率史无前例，平均两把赛中/打工中掉线搞心态一绝，同样的网络配置没动过，之前匹配40s内进去连玩八小时可能就掉个三四把都是因为队友网络波动，这网修了个啥，把我能连上的bug修好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 5090#       发表于 2024-9-2 06:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66086092&amp;ptid=2150634" target="_blank">Ryuuseigun 发表于 2024-9-2 01:16</a>
+9.0更新修了网之后掉线频率史无前例，平均两把赛中/打工中掉线搞心态一绝，同样的网络配置没动过，之前匹配 ...</blockquote>
+原来不止我一个人这样，我插着线玩，掉线频率都明显比几个月前不插线来的高，而且平均匹配时间也增加了，是因为更新后对网络要求变高了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

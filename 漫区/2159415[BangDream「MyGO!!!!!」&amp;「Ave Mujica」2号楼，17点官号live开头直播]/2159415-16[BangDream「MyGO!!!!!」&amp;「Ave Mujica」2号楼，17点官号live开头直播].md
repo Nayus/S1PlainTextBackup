@@ -4197,3 +4197,35 @@ madamesu
 
 不如说鸡再怎么悬疑还是在邦世界里的，真要搞商战或者杀人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可思议
 
+
+*****
+
+####  ydsbbt  
+##### 22569#       发表于 2024-9-2 00:05
+
+独角兽提到的剧本杀里有两对双子，姐妹论爱好者可以去了解一下，万一有共通之处呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/02/000515aqk4l5aeh105ggc5.png" referrerpolicy="no-referrer">
+
+<strong>a488f04b-4c4e-429a-a400-e3573a6449e3.png</strong> (75.29 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/000527czanawjhcitc4hpa.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-09-02_00-03-29.jpg</strong> (18.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:05 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/000539kttt11j1rc5c51m4.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-09-02_00-04-16.jpg</strong> (40.2 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:05 上传
+

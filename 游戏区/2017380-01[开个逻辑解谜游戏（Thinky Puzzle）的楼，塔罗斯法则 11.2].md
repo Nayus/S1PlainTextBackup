@@ -3257,3 +3257,11 @@ Maxwell真好玩，很有可能是年度最佳了
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  莉可厨  
+##### 217#       发表于 2024-9-1 11:50
+
+在第一大关就疯狂卡关……<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">怎么感觉比bean还难，明明规则没bean复杂结果死活想不通
+

@@ -4083,3 +4083,13 @@ pc不说 ps5肯定会上吧</blockquote>
 
 楼友们还是太善良了，黎2对主线贡献是0的事你法都做出来了，你们居然还相信界轨一部把故事讲完？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3374#       发表于 2024-9-1 11:25
+
+主要再水一部界2在商业上看不出任何好处，和闪轨还不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别是在公开明年发售空re后更看不出有什么价值了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

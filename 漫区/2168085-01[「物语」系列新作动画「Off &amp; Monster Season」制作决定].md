@@ -1972,3 +1972,15 @@ pashplus这个网站的通稿里写的本集分镜仍然有东富耶子，和官
 
 在业物语用到的叙述性诡计是什么呀，就只是尊主的性别么？
 
+
+*****
+
+####  oi99o  
+##### 807#       发表于 2024-9-1 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66078948&amp;ptid=2168085" target="_blank">Icskari 发表于 2024-9-1 09:29</a>
+在业物语用到的叙述性诡计是什么呀，就只是尊主的性别么？</blockquote>
+对
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

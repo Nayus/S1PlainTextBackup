@@ -3933,3 +3933,26 @@ mygo和去年一样歌单是两首全曲+两个半首
 9月了，上海live大概什么时候开票？</blockquote>
 按r的经验开票是live前半个月左右
 
+
+*****
+
+####  穗波殊  
+##### 22543#       发表于 2024-9-1 18:56
+
+<img src="https://img.saraba1st.com/forum/202409/01/185629qycjfrsdy377636n.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1725188116662.jpg</strong> (205.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 18:56 上传
+
+睦群收的假药
+
+*****
+
+####  星天观测  
+##### 22544#       发表于 2024-9-1 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这是B站白鹭哥发的动态，你们搬倒是也来源一起搬了啊
+

@@ -13061,3 +13061,18 @@ bb2宝了两个四星都没影...
 
 一单没出狂那<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">还了900石满宝学姐的债
 
+
+*****
+
+####  保罗赫伯特  
+##### 14533#       发表于 2024-9-1 21:11
+
+回忆本连呼符都不送了，周年补偿的的120不会是预支了后面的石头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 14534#       发表于 2024-9-1 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么朝三暮四，那种事情不要啊 
+

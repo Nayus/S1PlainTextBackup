@@ -3116,3 +3116,14 @@ B 老任愿意 然后和KT合资，KT做
 
 问下流程大概多久？我的卡带还在清关，不知道能不在宇宙机器人发售前打完<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  olyvorw  
+##### 306#       发表于 2024-9-2 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66085120&amp;ptid=2190950" target="_blank">漫漫来 发表于 2024-9-1 23:29</a>
+
+问下流程大概多久？我的卡带还在清关，不知道能不在宇宙机器人发售前打完 ...</blockquote>
+8-10小时主线，还有30分钟左右添头的后日谈
+

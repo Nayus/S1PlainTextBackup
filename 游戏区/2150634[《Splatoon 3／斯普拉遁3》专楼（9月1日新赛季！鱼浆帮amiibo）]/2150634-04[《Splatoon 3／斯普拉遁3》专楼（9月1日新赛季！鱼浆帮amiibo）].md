@@ -1430,3 +1430,44 @@ GWWtMgQXgAIMcDH.jfif
 
 悉尼任天堂live的
 
+
+*****
+
+####  KBAC  
+##### 5082#       发表于 2024-9-1 13:20
+
+目录怎么是直接用的第二年的，第一年的东西就只能抽扭蛋了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+（还好我目录全都打满了）
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  罗克萨斯  
+##### 5083#       发表于 2024-9-1 13:22
+
+第一个赛季我一场没打，咋不从第一个赛季开始复刻<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KBAC  
+##### 5084#       发表于 2024-9-1 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66080597&amp;ptid=2150634" target="_blank">罗克萨斯 发表于 2024-9-1 13:22</a>
+第一个赛季我一场没打，咋不从第一个赛季开始复刻
+
+—— 来自 S1Fun</blockquote>
+过去没打就得不到，鱿鱼研究所直接告诉你重要的是“过去”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  苍蓝之枪  
+##### 5085#       发表于 2024-9-1 13:27
+
+我甚至不知道缺了些啥
+

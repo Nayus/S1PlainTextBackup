@@ -351,3 +351,15 @@ sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
 
 是不是今年愚人节说的展的预告……
 
+
+*****
+
+####  csolfans  
+##### 20981#       发表于 2024-9-1 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66082654&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-9-1 18:57</a>
+是不是今年愚人节说的展的预告……</blockquote>
+嘿……还真有可能
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

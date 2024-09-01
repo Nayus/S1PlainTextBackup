@@ -3982,3 +3982,18 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 堂堂复活
 
+
+*****
+
+####  滑稽Captain  
+##### 22547#       发表于 2024-9-1 21:32
+
+为了写mujica剧本开始去玩剧本杀，这样讲出来感觉有点好笑（
+
+*****
+
+####  PDQ4  
+##### 22548#       发表于 2024-9-1 21:35
+
+喷了，悬疑要素是这样出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

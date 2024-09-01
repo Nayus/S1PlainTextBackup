@@ -4199,3 +4199,11 @@ pc不说 ps5肯定会上吧</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  kanata  
+##### 3385#       发表于 2024-9-1 18:11
+
+玩完黎2没觉得有什么事是法老空做不出来的，这次直接给你复刻个闪3结局我都觉得挺正常的
+

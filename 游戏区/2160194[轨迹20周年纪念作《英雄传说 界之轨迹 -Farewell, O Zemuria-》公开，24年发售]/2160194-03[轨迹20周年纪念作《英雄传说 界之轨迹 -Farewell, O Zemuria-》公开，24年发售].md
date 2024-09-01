@@ -4075,3 +4075,11 @@ pc不说 ps5肯定会上吧</blockquote>
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  diectt  
+##### 3373#       发表于 2024-9-1 10:45
+
+楼友们还是太善良了，黎2对主线贡献是0的事你法都做出来了，你们居然还相信界轨一部把故事讲完？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

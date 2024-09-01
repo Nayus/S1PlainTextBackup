@@ -7726,3 +7726,31 @@ fbk累了换miko操作了
 
 2024-9-1 04:24 上传
 
+
+*****
+
+####  holoan  
+##### 9530#         楼主| 发表于 2024-9-1 04:24
+
+ 本帖最后由 holoan 于 2024-9-1 10:08 编辑 
+<blockquote>​​ダイヤの絵文字なにか意味があるのか？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202409/01/094827z2n4bhikvn24vh7s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.22 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 09:48 上传
+
+运营昨天已经提到9月7号的0期生live然而今天还要特地召集全员再做一次告知很明显有其他的内容
+
+要么是翻唱曲原创曲，要么有什么周年配套活动
+
+*****
+
+####  holoan  
+##### 9531#         楼主| 发表于 2024-9-1 10:45
+
+miko待机间的阴魂完全是24小时在线啊甚至比cover内“全天”监视直播间的运营还要勤奋，miko在全天任何一个时间开待机窗之后一小时内一定会有anti带着没有被封的新开小号到达战场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

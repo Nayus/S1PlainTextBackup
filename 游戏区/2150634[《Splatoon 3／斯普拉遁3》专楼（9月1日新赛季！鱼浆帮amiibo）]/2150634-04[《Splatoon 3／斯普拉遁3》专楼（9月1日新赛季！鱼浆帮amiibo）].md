@@ -1482,3 +1482,13 @@ GWWtMgQXgAIMcDH.jfif
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  罗克萨斯  
+##### 5087#       发表于 2024-9-1 20:36
+
+刚刚看到个最高XP3298的鹦鹉螺UP主4连负1胜定分2200多，好可怕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

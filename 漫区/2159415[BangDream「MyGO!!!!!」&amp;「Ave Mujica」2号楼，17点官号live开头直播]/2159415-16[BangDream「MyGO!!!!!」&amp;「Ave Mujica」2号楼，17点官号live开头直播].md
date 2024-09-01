@@ -4140,3 +4140,29 @@ madamesu
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看成品就是了，还是觉得是独角兽和柿本的爱恨情仇
 
+
+*****
+
+####  NODY  
+##### 22564#       发表于 2024-9-1 22:58
+
+终于看到画asl的了
+
+@bpdne
+
+<img src="https://img.saraba1st.com/forum/202409/01/225821rfq5mjqezmuamaza.jpg" referrerpolicy="no-referrer">
+
+<strong>GWZC-nGaYAAymJ4.jpg</strong> (165.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 22:58 上传
+
+
+*****
+
+####  星天观测  
+##### 22565#       发表于 2024-9-1 23:03
+
+初华的傻傻味还是这么浓厚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

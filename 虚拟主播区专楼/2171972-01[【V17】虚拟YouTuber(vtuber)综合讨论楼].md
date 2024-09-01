@@ -2469,3 +2469,11 @@ B开头的……一时想不起来<img src="https://static.saraba1st.com/image/s
 
 举报人是YAB的前社员的女朋友（非虹vtuber）
 
+
+*****
+
+####  aritaatsu222  
+##### 655#       发表于 2024-9-1 22:53
+
+歌投全在非公开，我要吐了
+

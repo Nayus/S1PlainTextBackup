@@ -4166,3 +4166,15 @@ pc不说 ps5肯定会上吧</blockquote>
 
 按舅舅爆料目前只是没有3rd的计划而已。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3382#       发表于 2024-9-1 16:15
+
+我觉得要做应该是fc+sc保底，起码sc素材复用成本不会多高，做做演出就完事了，3rd主要是占档期和开发资源，意义不大
+
+当然卖得好大概率是直接给你连零碧remake都安排了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

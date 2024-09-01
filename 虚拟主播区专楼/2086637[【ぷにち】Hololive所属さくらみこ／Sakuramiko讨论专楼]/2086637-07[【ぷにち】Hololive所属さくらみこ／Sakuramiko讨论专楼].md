@@ -7860,3 +7860,35 @@ syl 恰皮绰号开始流行起来了
 
 哦难怪，今天联动可能要2小时以上
 
+
+*****
+
+####  holoan  
+##### 9542#         楼主| 发表于 2024-9-1 20:58
+
+3分小豆
+
+*****
+
+####  holoan  
+##### 9543#         楼主| 发表于 2024-9-1 21:00
+
+<img src="https://img.saraba1st.com/forum/202409/01/210040ln5u99nlu6eznkel.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.15 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 21:00 上传
+
+*****
+
+####  holoan  
+##### 9544#         楼主| 发表于 2024-9-1 21:03
+
+9月7号当天
+
+holo周年纪念直播，sora7周年纪念直播
+
+全都是0期生live的前座<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

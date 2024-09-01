@@ -3956,3 +3956,13 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这是B站白鹭哥发的动态，你们搬倒是也来源一起搬了啊
 
+
+*****
+
+####  前方暴雨预警  
+##### 22545#       发表于 2024-9-1 21:04
+
+说到大丽花我只能联想其那个著名的谋杀案，经常被化用的梗概就是被分尸的女演员……啊，森美奈美，危！<img src="https://static.saraba1st.com/image/smiley/face/40.gif" referrerpolicy="no-referrer">
+
+以及日本最大的大丽花产地在宝冢——就是那个著名剧团所在的宝冢，虽然应该是巧合罢了。
+

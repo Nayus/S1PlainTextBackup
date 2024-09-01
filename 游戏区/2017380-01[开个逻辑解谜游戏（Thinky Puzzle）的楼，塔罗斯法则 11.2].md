@@ -3291,3 +3291,13 @@ Maxwell真好玩，很有可能是年度最佳了
 
 很多关暂时没做先突突到 world5 了，ruleset 的展开相当意料之外情理之中非常漂亮，以及才到第五大关就放出这种机制后面四个大关还有什么已经不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  weiyun  
+##### 221#         楼主| 发表于 2024-9-2 01:32
+
+<blockquote>铃森冬 发表于 2024-9-2 00:24
+很多关暂时没做先突突到 world5 了，ruleset 的展开相当意料之外情理之中非常漂亮，以及才到第五大关就放出 ...</blockquote>
+我也跳了好多关，现在在world 6各种卡关
+

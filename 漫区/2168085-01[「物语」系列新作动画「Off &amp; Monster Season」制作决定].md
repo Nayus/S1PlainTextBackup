@@ -2075,3 +2075,11 @@ b站上有
 第8集熟肉有吗，巴哈这番給延期了</blockquote>
 [https://share.dmhy.org/topics/vi ... eason_08_1080p.html](https://share.dmhy.org/topics/view/678137_07_Monogatari_Series_Off_Monster_Season_08_1080p.html)
 
+
+*****
+
+####  巴麻耒  
+##### 818#       发表于 2024-9-2 01:28
+
+大忍情史真多，还有个中二妹。。。
+

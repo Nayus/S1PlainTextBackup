@@ -1014,3 +1014,16 @@ cure majesty（
 
 2024-9-1 13:41 上传
 
+
+*****
+
+####  CureMiracle  
+##### 2106#       发表于 2024-9-1 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66080441&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-1 13:01</a>
+
+话说从这集开始都是找附近的动物变怪了啊，这集是前女友的龙猫，下集是彩叶喜欢的大象 ...</blockquote>
+我听说后辈还有一招用粉红色大象踹人的
+
+感谢我奶奶，小时候没有给我买大象的玩偶
+

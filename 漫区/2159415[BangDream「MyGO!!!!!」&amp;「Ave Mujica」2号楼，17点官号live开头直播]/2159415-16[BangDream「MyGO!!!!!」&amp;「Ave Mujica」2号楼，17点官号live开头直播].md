@@ -3997,3 +3997,32 @@ mygo和去年一样歌单是两首全曲+两个半首
 
 喷了，悬疑要素是这样出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22549#       发表于 2024-9-1 21:36
+
+那我太喜欢玩剧本杀了，来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aendst  
+##### 22550#       发表于 2024-9-1 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有杀人事件吗
+
+*****
+
+####  PDQ4  
+##### 22551#       发表于 2024-9-1 21:45
+
+死者候选人都有谁，开局可能就没有的祥妈，万众期待的祥爹，知名人物睦爹妈，其他三个人家里或许也有高手
+
+也可能是舞台上有人偶死了
+
+或者是象征意义上的过去的祥子死了
+
+都剧本杀了能不能真杀一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

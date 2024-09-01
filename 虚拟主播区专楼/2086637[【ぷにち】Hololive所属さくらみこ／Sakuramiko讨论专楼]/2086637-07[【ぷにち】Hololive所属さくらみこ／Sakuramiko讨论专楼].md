@@ -7892,3 +7892,26 @@ holo周年纪念直播，sora7周年纪念直播
 
 全都是0期生live的前座<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  holoan  
+##### 9545#         楼主| 发表于 2024-9-1 21:28
+
+<img src="https://img.saraba1st.com/forum/202409/01/212848ydgmcqqthqbgd711.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (196.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-1 21:28 上传
+
+*****
+
+####  holoan  
+##### 9546#         楼主| 发表于 2024-9-1 21:44
+
+没有其他发表了，怎么办
+
+7号有新曲吧，憋了大半年了
+

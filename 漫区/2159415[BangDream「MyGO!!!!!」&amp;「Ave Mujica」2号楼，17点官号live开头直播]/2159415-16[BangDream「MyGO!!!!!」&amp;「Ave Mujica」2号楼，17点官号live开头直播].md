@@ -4229,3 +4229,19 @@ madamesu
 
 2024-9-2 00:05 上传
 
+
+*****
+
+####  ydsbbt  
+##### 22570#       发表于 2024-9-2 00:15
+
+点进官网看到这句直接没绷住，这句式算是比较常见的，应该是巧合吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/02/001511m1jmx4gk4mkmj1n1.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-09-02_00-11-49.jpg</strong> (58.14 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:15 上传
+

@@ -2553,3 +2553,15 @@ YAB给管人做mix的历史可以说相当早了啊，而且也算有点名气�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么是麦麦...
 
+
+*****
+
+####  fastary  
+##### 663#       发表于 2024-9-2 00:19
+
+虹v非公开动作真快，因为事先提到虹所以有在关注风声吗
+
+偏偏还是个大物MIX师，涉及合作歌曲的视频全部自肃永久非公开的话那真的尸横遍野了
+
+一眼不破枝live已非公开，还好法外之地有存档<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

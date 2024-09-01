@@ -49,3 +49,12 @@ magnet:?xt=urn:btih:ddc749df0670f43fc0dd47d7476fd8605a3b8f7a
 
 没看出来黑发女有啥出场的必要
 
+
+*****
+
+####  Piano-Forest  
+##### 59#         楼主| 发表于 2024-9-1 21:22
+
+《Garden of Remembrance》导演·山田尚子 爱丁堡映后访谈 整理记录
+[https://card.weibo.com/article/m/show/id/2309405073034993336396](https://card.weibo.com/article/m/show/id/2309405073034993336396)
+

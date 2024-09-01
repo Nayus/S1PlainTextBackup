@@ -4149,3 +4149,20 @@ pc不说 ps5肯定会上吧</blockquote>
 
 重制版卖不好就没有后续
 
+
+*****
+
+####  zhouaa  
+##### 3380#       发表于 2024-9-1 15:58
+
+ 本帖最后由 zhouaa 于 2024-9-1 15:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这挺正常的吧  重制版1卖不好那肯定没有重制2  和FF7RE一个道理  剧情强关联续作重制只会越卖越底
+
+*****
+
+####  卢迪克  
+##### 3381#       发表于 2024-9-1 16:01
+
+按舅舅爆料目前只是没有3rd的计划而已。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

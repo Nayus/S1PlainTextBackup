@@ -2036,3 +2036,13 @@ It's true music<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 想去看小说了，直接看忍物语能接上吗？
 
+
+*****
+
+####  狼王卢比奥  
+##### 814#       发表于 2024-9-1 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66083735&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-9-1 21:10</a>
+想去看小说了，直接看忍物语能接上吗？</blockquote>
+能接上的
+

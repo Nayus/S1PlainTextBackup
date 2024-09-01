@@ -4042,3 +4042,28 @@ soyo假扮sakiko挡刀结果没死，一切都是anno的计谋怎么样
 用在舞台剧上的可能性很高，因为是某种扮演，所以大概是人偶相关的谁死了吧？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">家人感觉不会到这一步……
 
+
+*****
+
+####  豊川祥子  
+##### 22554#       发表于 2024-9-1 21:55
+
+敬請期待
+
+*****
+
+####  skives10  
+##### 22555#       发表于 2024-9-1 22:00
+
+把丰川家的老头全图图了
+
+
+*****
+
+####  PDQ4  
+##### 22556#       发表于 2024-9-1 22:01
+
+丰川家老头全没了不就要九子夺嫡了，家族伦理剧那种事情不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+虽然我也挺喜欢看二次元雷雨的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

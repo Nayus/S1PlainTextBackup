@@ -481,3 +481,16 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 看试玩感觉黑屏加载有点多, 尤其是塞尔达跳水脱出那里加载时间也太长, 特意拖进度条看一下刚刚好10秒。
 
+
+*****
+
+####  wondor1111  
+##### 497#       发表于 2024-9-1 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66074215&amp;ptid=2188108" target="_blank">clyde-wang 发表于 2024-8-31 18:14</a>
+
+老任的压缩技术又进步了
+
+—— 来自 鹅球 v3.1.88.3-alpha</blockquote>
+朱紫就挺明显了，这么多宝可梦材质还很好，结果储存压到很多人以为又是剑盾体量
+

@@ -510,3 +510,47 @@ Entergram的基本盘在主机那边吧，pc版做成r18那谁还买主机版
 
 这是有NTR？
 
+
+*****
+
+####  DARK_HGCG  
+##### 59#       发表于 2024-9-2 00:37
+
+哪里有穿成这样的外卖送货员啊
+
+<img src="https://img.saraba1st.com/forum/202409/02/003400eok74dxkbk0nzbqf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (389.75 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/003418zdeutrgrghwow7f4.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201090100-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (168.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+一共有七个特殊女鬼，每个人有1-3个剧情，触发方式是按一定顺序扔到指定地点受刑
+
+<img src="https://img.saraba1st.com/forum/202409/02/003435jxbopzmk1061gskz.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201175100-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (183.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/003443n94t3fapff4z0caa.jpg" referrerpolicy="no-referrer">
+
+<strong>2024090201180200-A2777AE226F816161B4B6FDC877F3D19.jpg</strong> (170.08 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 00:34 上传
+
+现在就不知道特殊女鬼没了能不能再捡回来……
+

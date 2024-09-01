@@ -4122,3 +4122,13 @@ pc不说 ps5肯定会上吧</blockquote>
 
 2024-9-1 15:14 上传
 
+
+*****
+
+####  古畑任三郎2015  
+##### 3377#       发表于 2024-9-1 15:42
+
+9月26日：我和科比合砍82分
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

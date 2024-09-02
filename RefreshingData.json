@@ -779,7 +779,7 @@
     "newtitle": "[『电锯人 第二部』Jump+ 2022年7月12日晚11点连载开启！]",
     "lastedit": 1725041538,
     "category": "漫区",
-    "active": true,
+    "active": false,
     "update": false
   },
   "1998862": {
@@ -7902,10 +7902,10 @@
     "update": false
   },
   "2050404": {
-    "totalreply": 63056,
+    "totalreply": 63058,
     "title": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
     "newtitle": "[东映完全新作原创动画『GIRLS BAND CRY』2024年4月]",
-    "lastedit": 1725299048,
+    "lastedit": 1725300847,
     "category": "漫区",
     "active": true,
     "update": false
@@ -8640,10 +8640,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 68481,
+    "totalreply": 68483,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1725300379,
+    "lastedit": 1725300968,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -9576,10 +9576,10 @@
     "update": false
   },
   "2192962": {
-    "totalreply": 1834,
+    "totalreply": 1835,
     "title": "[【明日方舟】国服15号楼 7.16集成战略#5 「萨卡兹的无终奇语」周六19点30夏活前瞻]",
     "newtitle": "[【明日方舟】国服15号楼 9.2 迷宫饭联动SS「泰拉饭」（本楼含YJWL动态交流）]",
-    "lastedit": 1725296898,
+    "lastedit": 1725300609,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -9621,10 +9621,10 @@
     "update": false
   },
   "2193382": {
-    "totalreply": 32794,
+    "totalreply": 32796,
     "title": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
     "newtitle": "[【集中楼】百合&amp;泛百合讨论专楼8.0]",
-    "lastedit": 1725300247,
+    "lastedit": 1725300608,
     "category": "漫区",
     "active": true,
     "update": false
@@ -14013,10 +14013,10 @@
     "update": false
   },
   "2196605": {
-    "totalreply": 395,
+    "totalreply": 396,
     "title": "[《黑神话：悟空》剧情满意度投票]",
     "newtitle": "[《黑神话：悟空》剧情满意度投票]",
-    "lastedit": 1725299774,
+    "lastedit": 1725300730,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17532,10 +17532,10 @@
     "update": false
   },
   "2197581": {
-    "totalreply": 59,
+    "totalreply": 60,
     "title": "[Project kv 讨论帖]",
     "newtitle": "[Project kv 讨论帖]",
-    "lastedit": 1725293784,
+    "lastedit": 1725300969,
     "category": "手游专楼",
     "active": true,
     "update": false
@@ -17595,10 +17595,10 @@
     "update": false
   },
   "2197665": {
-    "totalreply": 56,
+    "totalreply": 57,
     "title": "[中小学历史教材新增中印边境自卫反击战和对越边境自卫还击战等内容]",
     "newtitle": "[中小学历史教材新增中印边境自卫反击战和对越边境自卫还击战等内容]",
-    "lastedit": 1725293417,
+    "lastedit": 1725300729,
     "category": "外野",
     "active": true,
     "update": false
@@ -17708,6 +17708,15 @@
     "newtitle": "[魔兽也算剧情失控的典范了吧？不过IP剧情主控变更朝令夕改还满普遍的]",
     "lastedit": 1725300379,
     "category": "游戏区",
+    "active": true,
+    "update": false
+  },
+  "2188888": {
+    "totalreply": 48,
+    "title": "[十月天王山之战，来选出你心中分会更低的那个动画吧]",
+    "newtitle": "[十月天王山之战，来选出你心中分会更低的那个动画吧]",
+    "lastedit": 1725300849,
+    "category": "漫区",
     "active": true,
     "update": false
   }

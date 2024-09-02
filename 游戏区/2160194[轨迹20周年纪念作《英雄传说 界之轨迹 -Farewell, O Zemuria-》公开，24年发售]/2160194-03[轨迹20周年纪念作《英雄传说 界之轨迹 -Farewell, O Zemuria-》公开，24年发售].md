@@ -4863,3 +4863,28 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 社长这个访谈突出一个我不对任何问题进行有价值的回答和承诺，别问，问就是待定，防止因为一些原因调整计划导致被清算
 
+
+*****
+
+####  闭挂锁人  
+##### 3446#       发表于 2024-9-2 14:58
+
+这估摸着fc和sc两部能给你拆成4，5部吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 3447#       发表于 2024-9-2 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090463&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-2 14:53</a>
+
+目前PV我觉得挺可能就是拿NS2开发机录的，不过估计还有优化空间</blockquote>
+虽然画面确实眼前一亮得不像是NS上的，不过老任应该是不允许这样做的<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3448#       发表于 2024-9-2 15:01
+
+ysx的ns版销量也就那样，空re限时独占ns也是挺迷的
+

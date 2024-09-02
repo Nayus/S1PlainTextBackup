@@ -1749,3 +1749,16 @@ Callie (Alterna).bin
 
 但是为什么我周末要加班啊啊啊啊！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Pumpkin_ccc  
+##### 5108#       发表于 2024-9-2 23:11
+
+ 本帖最后由 Pumpkin_ccc 于 2024-9-2 23:15 编辑 
+
+[https://bbs.nga.cn/read.php?tid=41503030](https://bbs.nga.cn/read.php?tid=41503030)
+[https://bbs.nga.cn/read.php?tid=39570369](https://bbs.nga.cn/read.php?tid=39570369)
+
+新铭牌和旧的，可以查缺补漏，拉到下边的图
+

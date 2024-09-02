@@ -4772,3 +4772,20 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 去年ysx播的打沙虫
 
+
+*****
+
+####  洛克萨斯  
+##### 3437#       发表于 2024-9-2 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彻底投靠任地狱阵营了么
+
+*****
+
+####  ravend233  
+##### 3438#       发表于 2024-9-2 14:35
+
+等一个明年给索索做界2<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

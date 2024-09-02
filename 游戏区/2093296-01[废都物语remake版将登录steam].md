@@ -79,3 +79,33 @@
 
 已经秋天了，还没端上来？
 
+
+*****
+
+####  kuarwbwe  
+##### 594#       发表于 2024-9-2 14:28
+
+这太磨叽了，我准备先玩一下原版试试了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上古TITAN  
+##### 595#       发表于 2024-9-2 14:30
+
+看消息好几年了,怎么一直不出啊
+
+
+*****
+
+####  月海的秋鸟  
+##### 596#       发表于 2024-9-2 14:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">最近的jrpg都太狗屎了 ，快点端上来吧 ，原版真的太难安利了
+
+*****
+
+####  红魔馆的糖  
+##### 597#       发表于 2024-9-2 14:37
+
+上次申请没过，现在感觉没热情了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

@@ -549,3 +549,30 @@ b站已经有现场试玩视频。透露的信息还满多的。
 试玩视频里开局塞尔达只有3个碎片 官网的演示里有4个碎片 后面难道还可以随进度找更多的？ ...</blockquote>
 估计打大迷宫或者别的什么会给碎片，这作地图这么大肯定要给升级碎片数量的道具作为填充地图的收集奖励的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  a317216007  
+##### 504#       发表于 2024-9-2 09:19
+
+类似于王泪电池那样的对标智杖的核心gameplay资源吧，考虑到有3费的复制品，而演示似乎同屏上限也是3？所以我猜最大资源量可能是6个或者9个<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  绿冰  
+##### 505#       发表于 2024-9-2 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66087008&amp;ptid=2188108" target="_blank">a317216007 发表于 2024-9-2 08:50</a>
+
+这次的英雄模式应该跟前几作的英雄模式差不多，纯难度挑战的吧?</blockquote>
+众神系传统的，原版难度极高，众神2的英雄模式接近原版难度，这次应该也是
+
+*****
+
+####  罗克萨斯  
+##### 506#       发表于 2024-9-2 09:21
+
+英雄模式难度能比众神更难就更好了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

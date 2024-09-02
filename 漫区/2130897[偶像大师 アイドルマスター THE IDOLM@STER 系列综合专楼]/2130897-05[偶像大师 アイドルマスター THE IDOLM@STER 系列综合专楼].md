@@ -3225,3 +3225,11 @@ RELEASE：9/13(金)0:00</blockquote>
 
 看群里传的消息，cy也是不想打工了，资源也撤了不少
 
+
+*****
+
+####  ヒトニナル  
+##### 6301#       发表于 2024-9-3 06:33
+
+即便如此还是得超，就缺一张白fes卡就能齐我担当的图鉴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

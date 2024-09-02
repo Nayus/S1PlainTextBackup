@@ -1650,3 +1650,33 @@ Callie (Alterna).bin
 祭典衣服可以領了</blockquote>
 为什么我点进去进游戏什么都没有？
 
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 5099#       发表于 2024-9-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66089571&amp;ptid=2150634" target="_blank">小猪猪 发表于 2024-9-2 13:05</a>
+
+为什么我点进去进游戏什么都没有？</blockquote>
+在主页点击一下游戏新闻，在喷喷的祭典新闻底下点游玩游戏。
+
+*****
+
+####  hugosol  
+##### 5100#       发表于 2024-9-2 13:10
+
+看到b站有评论说更新之后裸连连不上了要上加速器，不好评价太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直观一点的感受是相杀的情况会少一点，被尸体打死的情况应该更少了
+
+大概是后台统计到网络环境不好的玩家都退游了，终于狠下心来把网络要求提高
+
+
+*****
+
+####  幽香  
+##### 5101#       发表于 2024-9-2 13:15
+
+用uu倒是没遇到自己掉线，至少更新后是这样
+

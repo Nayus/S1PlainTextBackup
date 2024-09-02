@@ -3493,3 +3493,13 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  苦瓜师傅  
+##### 276#       发表于 2024-9-2 13:16
+
+主机板什么垃垃圾画质 这UI……
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

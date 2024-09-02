@@ -4277,3 +4277,23 @@ ytb能搜到不同pl视角的详细流程（单人全长三小时），有兴趣
  ...</blockquote>
 我去，又是心又是杯的，这是双生女巫和双生巫女。
 
+
+*****
+
+####  LeonsCat  
+##### 22573#       发表于 2024-9-2 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66077923&amp;ptid=2159415" target="_blank">NODY 发表于 2024-9-1 01:15</a>
+
+这个还真没注意到</blockquote>
+这个我倒觉得是隔了一层的输出，大概是NANA-刻板印象-AM这样。
+
+
+*****
+
+####  LeonsCat  
+##### 22574#       发表于 2024-9-2 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66055642&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-29 17:36</a></blockquote>
+lisa为啥如此傻大姐……不如给她配个男装算了。
+

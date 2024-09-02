@@ -4247,3 +4247,11 @@ pc不说 ps5肯定会上吧</blockquote>
 
 界这情况剧情爆不爆不知道，玩家肯定是要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3390#       发表于 2024-9-2 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也没几个真情实感对你法有期待的玩家了，爆都爆不起来
+

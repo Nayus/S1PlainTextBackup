@@ -2702,3 +2702,27 @@ YAB给管人做mix的历史可以说相当早了啊，而且也算有点名气�
 
 想了一晚上不破这半年不播OP到底是不是知道了些什么，大概还是没有吧，时间点不和任何事件搭得上，他这不沾锅藏狗性格在观众什么都不知道的情况下也不可能有任何明着的表现，不然要是知道内幕真会恶心到我。
 
+
+*****
+
+####  シナモンロール  
+##### 675#       发表于 2024-9-2 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66087183&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-9-2 09:11</a>
+算一下巴说的被熟人背叛的时间点，正好和不破再也不用yab的时间点吻合(巴姐切割在23年夏，不破最后一次用ya ...</blockquote>
+这么说来是巴没跟彩虹说还是krkr不爆彩虹就准备一直捂盖子？
+
+*****
+
+####  Harunoharu  
+##### 676#       发表于 2024-9-2 09:36
+
+单纯人品不好有什么好爆的，巴自己又不知道被偷 拍了只是说“被很信任的人私下说闲话”
+
+*****
+
+####  aritaatsu222  
+##### 677#       发表于 2024-9-2 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你虹到底能不能提供点精神上的援助
+

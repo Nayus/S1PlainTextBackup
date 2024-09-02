@@ -7800,3 +7800,15 @@ image.png
 
 今天居然想着要raid了
 
+
+*****
+
+####  sino__unnko3  
+##### 17333#       发表于 2024-9-2 14:21
+
+终于下了，但是晚上还要播管子，致敬传奇耐播王麻酱
+
+你咩希望的彼氏选的英雄<img src="https://p.sda1.dev/19/497d530d1a4ab1dce4881d00eb9befe9/image.jpg" referrerpolicy="no-referrer">
+
+(为啥中途又唐突mbti了，这段没截到)
+

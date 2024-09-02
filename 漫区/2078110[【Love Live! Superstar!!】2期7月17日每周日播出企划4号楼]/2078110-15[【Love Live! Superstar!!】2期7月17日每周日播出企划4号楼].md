@@ -457,3 +457,30 @@ eupd这种傻逼公司怎么还没似啊
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  黒烨  
+##### 20992#       发表于 2024-9-2 20:15
+
+又换座位了，不会到时候付完钱也改吧
+
+
+*****
+
+####  离心  
+##### 20993#       发表于 2024-9-2 20:21
+
+ 本帖最后由 离心 于 2024-9-2 20:26 编辑 
+
+何止甚至都卖到2k了，真当冤大头了是吧
+
+1725279591562.jpg
+(358.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 20:20 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/202046yn0vf8x50zk3giqx.jpg" referrerpolicy="no-referrer">
+

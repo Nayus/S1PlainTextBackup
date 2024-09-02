@@ -1680,3 +1680,36 @@ Callie (Alterna).bin
 
 用uu倒是没遇到自己掉线，至少更新后是这样
 
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5102#       发表于 2024-9-2 13:53
+
+工服也可以領了
+
+<img src="https://img.saraba1st.com/forum/202409/02/135305rkkzkdo8eefln8kd.png" referrerpolicy="no-referrer">
+
+<strong>262682bb47fe1da48bb8c30a57abeaf9.png</strong> (281.89 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 13:53 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/135306yucrbb3ymeyr9uby.png" referrerpolicy="no-referrer">
+
+<strong>13444a1ff58c0222658e48b213597e28.png</strong> (219.57 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 13:53 上传
+
+*****
+
+####  KBAC  
+##### 5103#       发表于 2024-9-2 13:56
+
+加速器是奇游，移动网络，目前匹配速度和原来一样60秒左右，对战延迟确实改善了不少。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

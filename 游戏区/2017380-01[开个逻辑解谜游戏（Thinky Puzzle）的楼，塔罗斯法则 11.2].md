@@ -3301,3 +3301,15 @@ Maxwell真好玩，很有可能是年度最佳了
 很多关暂时没做先突突到 world5 了，ruleset 的展开相当意料之外情理之中非常漂亮，以及才到第五大关就放出 ...</blockquote>
 我也跳了好多关，现在在world 6各种卡关
 
+
+*****
+
+####  铃森冬  
+##### 222#       发表于 2024-9-3 03:43
+
+ 本帖最后由 铃森冬 于 2024-9-3 03:47 编辑 
+
+world7 终于跳了倒数第三个 tips, 后面不会还有更大的活吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+以及终于明白为啥 reset 的时候要做一个复位的动画了，跟这等着呢
+

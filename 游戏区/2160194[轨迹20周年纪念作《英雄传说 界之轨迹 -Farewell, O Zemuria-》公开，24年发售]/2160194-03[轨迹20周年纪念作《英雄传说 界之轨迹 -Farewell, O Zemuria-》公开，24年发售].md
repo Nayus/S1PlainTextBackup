@@ -4226,3 +4226,16 @@ pc不说 ps5肯定会上吧</blockquote>
 贴吧说确定有界二，等媒体信息公开就知道了。 意思是有媒体采访消息渠道。 ...</blockquote>
 他根据七星的话自己推的，没有媒体采访渠道<img src="https://p.inari.site/guest/24-09/02/66d50588aa1e6.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  无动于衷  
+##### 3388#       发表于 2024-9-2 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66082332&amp;ptid=2160194" target="_blank">kanata 发表于 2024-9-1 18:11</a>
+
+玩完黎2没觉得有什么事是法老空做不出来的，这次直接给你复刻个闪3结局我都觉得挺正常的 ...</blockquote>
+嗯写个结局不是问题，大不了看似解决了实际什么都没解决，但是咚那种演出你法大概不会敢做了
+
+还是那句话，全看玩家怎么理解
+

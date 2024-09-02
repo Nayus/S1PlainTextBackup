@@ -3224,3 +3224,34 @@ minoru通关，原来如此。</blockquote>
 
 —— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  リンリー・グー  
+##### 314#       发表于 2024-9-2 22:51
+
+一直想吐槽，少女连环杀人事件，听起来像狂暴少女似的，翻译成少女连环遇害事件更好吧
+
+还有神龙见首不见尾的惠美，虽然都读成magumi，但也可以读成emi
+
+还有，手机的原型应该是这个
+
+<img src="https://img.saraba1st.com/forum/202409/02/225111z7wluw8kp6fho8il.png" referrerpolicy="no-referrer">
+
+<strong>1725202153491.png</strong> (61.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-2 22:51 上传
+
+
+*****
+
+####  リンリー・グー  
+##### 315#       发表于 2024-9-2 22:54
+
+<blockquote>notqiao 发表于 2024-9-2 17:34
+消失在雪中的过去 估计因为版权问题 永无重见天日的机会了</blockquote>
+估计黑历史化了，emio的全名带着正统前缀Fc的，雪中的过去全名叫BS侦探俱乐部，没带FC前缀
+

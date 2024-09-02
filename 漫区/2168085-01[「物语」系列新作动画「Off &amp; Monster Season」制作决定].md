@@ -2216,3 +2216,17 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 真是绝杀。
 
+
+*****
+
+####  傘木希美  
+##### 830#       发表于 2024-9-2 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66093187&amp;ptid=2168085" target="_blank">5353 发表于 2024-9-2 20:04</a>
+当时说法，没有这第十二集，大家都要疑惑为什么不选班长了。
+
+真是绝杀。 ...</blockquote>
+我又再次被击沉了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">真好啊
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

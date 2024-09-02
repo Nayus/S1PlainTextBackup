@@ -1739,3 +1739,13 @@ Callie (Alterna).bin
 
 那个XP4900+的长热，上赛季没上XP5000有点可惜，这赛季可能性更低了
 
+
+*****
+
+####  xgazer  
+##### 5107#       发表于 2024-9-2 20:25
+
+活动工服好帅<img src="https://static.saraba1st.com/image/smiley/carton2017/176.png" referrerpolicy="no-referrer">
+
+但是为什么我周末要加班啊啊啊啊！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

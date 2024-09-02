@@ -4951,3 +4951,20 @@ nd上的应该都是实机
 
 不过黎2设定本说的都对不上，他也不在乎多打一次脸就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3455#       发表于 2024-9-2 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话采访大概率打太极，打太极就大概率有2了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 3456#       发表于 2024-9-2 20:35
+
+那之前也经常用黎之轨迹四个字指黎轨系列的，界轨二也是界轨
+

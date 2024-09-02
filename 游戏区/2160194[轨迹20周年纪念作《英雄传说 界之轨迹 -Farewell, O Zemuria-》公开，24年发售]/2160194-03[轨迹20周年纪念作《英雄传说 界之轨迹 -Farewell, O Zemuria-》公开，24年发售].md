@@ -4745,3 +4745,14 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 媒体采访应该周五
 
+
+*****
+
+####  卢迪克  
+##### 3434#       发表于 2024-9-2 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66089969&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-2 14:00</a>
+
+媒体采访有说这周周几发吗，不会都是周四吧</blockquote>
+巴哈上次发开箱视频时说4和5号发试玩视频
+

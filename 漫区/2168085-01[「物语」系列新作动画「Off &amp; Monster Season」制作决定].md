@@ -2104,3 +2104,13 @@ b站上有
 找了一下只有一个网友翻译版，看了两段实在看不下去啊搜不到台版或者大陆版的epu ...</blockquote>
 贴吧有资源整合贴吧，里面有epub啊
 
+
+*****
+
+####  plusfive  
+##### 821#       发表于 2024-9-2 16:12
+
+这季预计总共几话？
+
+—— 来自 Google Pixel 7, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

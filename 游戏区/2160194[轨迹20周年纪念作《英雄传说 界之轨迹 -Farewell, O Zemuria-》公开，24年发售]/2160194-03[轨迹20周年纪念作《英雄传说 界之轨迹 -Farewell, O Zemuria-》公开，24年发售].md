@@ -4690,3 +4690,18 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 等到tgs游戏都发售谁还要看啊笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3427#       发表于 2024-9-2 12:09
+
+好奇老任跟近藤说了什么，让他决定不在股东大会公开空轨
+
+*****
+
+####  Kojimaru  
+##### 3428#       发表于 2024-9-2 12:12
+
+大人的交易<img src="https://static.saraba1st.com/image/smiley/face2017/205.png" referrerpolicy="no-referrer">
+

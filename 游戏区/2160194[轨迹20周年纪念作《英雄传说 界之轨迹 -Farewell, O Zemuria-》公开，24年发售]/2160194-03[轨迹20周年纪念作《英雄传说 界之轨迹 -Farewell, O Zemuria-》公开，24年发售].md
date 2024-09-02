@@ -4721,3 +4721,11 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂了 为什么叫1st  因为FC还拆成两部
 
+
+*****
+
+####  hkguty  
+##### 3431#       发表于 2024-9-2 12:49
+
+竹兰不错
+

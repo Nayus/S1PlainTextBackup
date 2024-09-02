@@ -4818,3 +4818,48 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 你但凡3作并2作我都当你是条汉子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空的剧情要么FC+SC完整二合一，要么断在FC的结局吧，SC的剧情已经不太好找中断点了
 
+
+*****
+
+####  diectt  
+##### 3442#       发表于 2024-9-2 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090370&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-2 14:44</a>
+
+空的剧情要么FC+SC完整二合一，要么断在FC的结局吧，SC的剧情已经不太好找中断点了 ...</blockquote>
+是啊，3作有点拖，2作不好找断点，我还真挺好奇这次出来的成品是啥样
+
+不过大概率还是FC重制加点支线剧情，就是社长太极打惯了，不老实说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 3443#       发表于 2024-9-2 14:52
+
+空Re以NS为基准来做画面还是挺难受的......除非是偷偷以NS2为基准了
+
+*****
+
+####  ravend233  
+##### 3444#       发表于 2024-9-2 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090456&amp;ptid=2160194" target="_blank">宛若青空 发表于 2024-9-2 14:52</a>
+
+空Re以NS为基准来做画面还是挺难受的......除非是偷偷以NS2为基准了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前PV我觉得挺可能就是拿NS2开发机录的，不过估计还有优化空间
+
+
+*****
+
+####  ravend233  
+##### 3445#       发表于 2024-9-2 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090416&amp;ptid=2160194" target="_blank">diectt 发表于 2024-9-2 14:48</a>
+
+是啊，3作有点拖，2作不好找断点，我还真挺好奇这次出来的成品是啥样
+
+不过大概率还是FC重制加点支线剧情 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1ST估计就是FC加一些新内容，然后SC，3RD不一定有
+
+社长这个访谈突出一个我不对任何问题进行有价值的回答和承诺，别问，问就是待定，防止因为一些原因调整计划导致被清算
+

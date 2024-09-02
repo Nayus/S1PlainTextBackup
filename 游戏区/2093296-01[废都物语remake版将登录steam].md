@@ -109,3 +109,15 @@
 
 上次申请没过，现在感觉没热情了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 598#       发表于 2024-9-2 14:55
+
+22年年底TGS公布的，到现在也还没满2年其实还行
+
+这次申请测试了，希望能去试玩下<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
+
+（据说托这么久没消息其实也有和发行商谈得不顺利的关系在，游戏开发应该还是正常进度的）
+

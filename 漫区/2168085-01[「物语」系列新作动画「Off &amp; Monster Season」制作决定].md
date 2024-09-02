@@ -2083,3 +2083,13 @@ b站上有
 
 大忍情史真多，还有个中二妹。。。
 
+
+*****
+
+####  沼蝇  
+##### 819#       发表于 2024-9-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66084175&amp;ptid=2168085" target="_blank">狼王卢比奥 发表于 2024-9-1 21:57</a>
+能接上的</blockquote>
+找了一下只有一个网友翻译版，看了两段实在看不下去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

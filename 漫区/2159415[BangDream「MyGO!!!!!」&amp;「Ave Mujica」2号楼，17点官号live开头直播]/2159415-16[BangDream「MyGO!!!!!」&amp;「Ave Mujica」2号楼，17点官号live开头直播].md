@@ -4297,3 +4297,13 @@ ytb能搜到不同pl视角的详细流程（单人全长三小时），有兴趣
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66055642&amp;ptid=2159415" target="_blank">skives 发表于 2024-8-29 17:36</a></blockquote>
 lisa为啥如此傻大姐……不如给她配个男装算了。
 
+
+*****
+
+####  hitori酱  
+##### 22575#       发表于 2024-9-2 11:30
+
+ 本帖最后由 hitori酱 于 2024-9-2 11:31 编辑 
+
+昨天独角兽推文提到合作的久保よしや，就是Ave Mujica上线初期做那个很有意思的互动解谜游戏的制作人。Mujica动画本作的悬疑核心不一定就是杀人，不过肯定悬疑是重点了。
+

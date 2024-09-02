@@ -2093,3 +2093,14 @@ b站上有
 能接上的</blockquote>
 找了一下只有一个网友翻译版，看了两段实在看不下去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  0aleph37  
+##### 820#       发表于 2024-9-2 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088699&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-9-2 11:34</a>
+
+找了一下只有一个网友翻译版，看了两段实在看不下去啊搜不到台版或者大陆版的epu ...</blockquote>
+贴吧有资源整合贴吧，里面有epub啊
+

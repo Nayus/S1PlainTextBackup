@@ -3212,3 +3212,15 @@ minoru通关，原来如此。</blockquote>
 
 文字的进程和推理选择应该在系统存档里实时记录的，所谓的自动保存只是章节的选择而已
 
+
+*****
+
+####  ppa11  
+##### 313#       发表于 2024-9-2 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66092513&amp;ptid=2190950" target="_blank">ミズタ 发表于 2024-9-2 18:33</a>
+我所有的推理选项只要是错的，就习惯退回自动保存的点重新选，但是读档后快进你可以发现你看过的台词都可 ...</blockquote>
+好吧
+
+—— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

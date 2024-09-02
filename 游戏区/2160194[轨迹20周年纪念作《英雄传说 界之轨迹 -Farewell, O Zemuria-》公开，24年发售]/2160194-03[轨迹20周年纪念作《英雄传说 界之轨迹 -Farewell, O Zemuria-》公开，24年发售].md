@@ -4896,3 +4896,21 @@ ysx的ns版销量也就那样，空re限时独占ns也是挺迷的
 
 大概老任给了资源吧
 
+
+*****
+
+####  Kojimaru  
+##### 3450#       发表于 2024-9-2 15:19
+
+nd上的应该都是实机
+
+<img src="https://img.saraba1st.com/forum/202409/02/151704xe0zokskksis0mss.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 15:17 上传
+
+没道理你法拿得到ns2开发套件，gust拿不到<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">。空轨的画面跟ysx比其实差别不大，ns1能胜任也合理
+

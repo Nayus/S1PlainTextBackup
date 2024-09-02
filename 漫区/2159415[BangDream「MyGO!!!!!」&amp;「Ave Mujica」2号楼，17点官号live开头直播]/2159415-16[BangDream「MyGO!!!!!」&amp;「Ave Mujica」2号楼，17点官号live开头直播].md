@@ -4307,3 +4307,11 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 昨天独角兽推文提到合作的久保よしや，就是Ave Mujica上线初期做那个很有意思的互动解谜游戏的制作人。Mujica动画本作的悬疑核心不一定就是杀人，不过肯定悬疑是重点了。
 
+
+*****
+
+####  kivz  
+##### 22576#       发表于 2024-9-2 13:30
+
+这是哪？怎么就杀人了？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+

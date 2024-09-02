@@ -2230,3 +2230,11 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  鬼谷ask  
+##### 831#       发表于 2024-9-2 21:08
+
+我依然要疑惑为什么不选班长，该永不为奴了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -4368,3 +4368,11 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 所以海铃生日的7号也是取了nana的意思吗，这个真的有意思<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22583#       发表于 2024-9-2 21:08
+
+海铃的生日目前看是在谐音shi na吧，一群人当海希糖的
+

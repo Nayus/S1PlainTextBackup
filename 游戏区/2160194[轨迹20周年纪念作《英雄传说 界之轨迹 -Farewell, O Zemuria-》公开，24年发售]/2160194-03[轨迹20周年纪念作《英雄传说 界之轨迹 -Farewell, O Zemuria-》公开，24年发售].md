@@ -4988,3 +4988,20 @@ nd上的应该都是实机
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3459#       发表于 2024-9-2 21:04
+
+新人一打听续作这么shi，空re直接不买了，最后还是爆老登的米<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3460#       发表于 2024-9-2 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等明年一起暴死，你轨直接宣告系列腰斩，空sc re也不出了，这就是近藤的计划吗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

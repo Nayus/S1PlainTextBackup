@@ -415,3 +415,11 @@ sayu的大家好挺标准的啊。队内有人就是不一样</blockquote>
 
 —— 来自 OPPO PHN110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  黒烨  
+##### 20987#       发表于 2024-9-2 11:50
+
+eupd这种傻逼公司怎么还没似啊
+

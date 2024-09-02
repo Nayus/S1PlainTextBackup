@@ -2124,3 +2124,23 @@ b站上有
 找了一下只有一个网友翻译版，看了两段实在看不下去啊搜不到台版或者大陆版的epu ...</blockquote>
 LK上有台版的epub
 
+
+*****
+
+####  沼蝇  
+##### 823#       发表于 2024-9-2 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66092255&amp;ptid=2168085" target="_blank">狼王卢比奥 发表于 2024-9-2 18:05</a>
+LK上有台版的epub</blockquote>
+我上了快十年不上的轻国号搜了一下忍物语只有三个结果啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狼王卢比奥  
+##### 824#       发表于 2024-9-2 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66092305&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-9-2 18:10</a>
+我上了快十年不上的轻国号搜了一下忍物语只有三个结果啊是我的姿势不对吗 ...</blockquote>
+我也不懂了，去贴吧找吧，化物语吧或者物语系列吧
+

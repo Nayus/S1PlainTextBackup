@@ -3180,3 +3180,19 @@ minoru通关，原来如此。
 
 消失在雪中的过去 估计因为版权问题 永无重见天日的机会了
 
+
+*****
+
+####  ppa11  
+##### 311#       发表于 2024-9-2 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090164&amp;ptid=2190950" target="_blank">ミズタ 发表于 2024-9-2 14:21</a>
+20小时通关
+
+emio通关，这就丸辣？
+
+minoru通关，原来如此。</blockquote>
+为啥sl无效？
+
+—— 來自 realme RMX3700, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

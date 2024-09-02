@@ -5051,3 +5051,15 @@ A26的人物建模和画面比你轨强多了</blockquote>
 
 不是气球脸吗，其实也是闪创的滥觞了，伊苏x和空re终于可以上二次元的桌了
 
+
+*****
+
+####  悠悠你心  
+##### 3466#       发表于 2024-9-2 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66094199&amp;ptid=2160194" target="_blank">穆鲁番Logix 发表于 2024-9-2 21:59</a>
+A26的人物建模和画面比你轨强多了</blockquote>
+人物建模认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

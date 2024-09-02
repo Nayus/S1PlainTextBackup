@@ -1098,3 +1098,26 @@ mayu哄龙猫那段是龙猫认出来mayu了才突然怒气max的吧
 这集细想还是难绷，关系都好到能带着宠物互相到家里去 ...</blockquote>
 我觉得是知道，但是因为两边都社恐一旦对话中断就都没胆子主动挑起对话结果就卡死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  jaewoongh_  
+##### 2110#       发表于 2024-9-2 22:21
+
+9月
+
+<img src="https://img.saraba1st.com/forum/202409/02/222135ulcfcx1mufcfjv1i.jpg" referrerpolicy="no-referrer">
+
+<strong>6765fd79gy1ht9n6ov0opj21vo0y81j3.jpg</strong> (76.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 22:21 上传
+
+*****
+
+####  jaewoongh_  
+##### 2111#       发表于 2024-9-2 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真的不想再看整个秋季什么都不干，年后开始剧情暴走烂完的剧本了……
+

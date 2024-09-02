@@ -5023,3 +5023,31 @@ nd上的应该都是实机
 
 1把共和国和总统的东西收掉  2换其他舞台
 
+
+*****
+
+####  新世界的派蒙  
+##### 3463#       发表于 2024-9-2 22:15
+
+工作室的建模就别吹了.....平面脸就不说了，跑起来连动捕都不舍得下，评价为还不如手游A25<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 3464#       发表于 2024-9-2 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66094199&amp;ptid=2160194" target="_blank">穆鲁番Logix 发表于 2024-9-2 21:59</a>
+
+A26的人物建模和画面比你轨强多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得立绘爆了你轨，建模我喜欢界轨那个
+
+*****
+
+####  whzfjk  
+##### 3465#       发表于 2024-9-2 22:18
+
+<blockquote>新世界的派蒙 发表于 2024-9-2 22:15
+工作室的建模就别吹了.....平面脸就不说了，跑起来连动捕都不舍得下，评价为还不如手游A25 ...</blockquote>
+
+不是气球脸吗，其实也是闪创的滥觞了，伊苏x和空re终于可以上二次元的桌了
+

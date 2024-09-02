@@ -4542,3 +4542,24 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  kanata  
+##### 3421#       发表于 2024-9-2 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66086933&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-2 08:39</a>
+
+嗯写个结局不是问题，大不了看似解决了实际什么都没解决，但是咚那种演出你法大概不会敢做了
+
+还是那句话 ...</blockquote>
+本来对黎1的期待就是3部讲完都能算他知错能改了，但黎2出来后我就知道已经烂完了妥妥地下次还敢
+
+
+*****
+
+####  一步成诗  
+##### 3422#       发表于 2024-9-2 11:41
+
+共和国不讲四部怎么能体现出是和帝国一样的大国呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

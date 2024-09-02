@@ -13094,3 +13094,14 @@ bb2宝了两个四星都没影...
 
 — from OnePlus CPH2583, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+*****
+
+####  beer  
+##### 14537#       发表于 2024-9-2 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66081859&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-9-1 17:06</a>
+
+怎么莫名其妙又回顾</blockquote>
+好像是2.4动画化？
+

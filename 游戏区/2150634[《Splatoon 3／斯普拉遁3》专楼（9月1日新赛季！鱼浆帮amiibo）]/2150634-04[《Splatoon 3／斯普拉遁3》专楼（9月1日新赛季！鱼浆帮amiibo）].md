@@ -1770,3 +1770,11 @@ Callie (Alterna).bin
 
 下午喊人来看了宽带再挂上加速器和有限连接终于恢复成以前40s匹配不怎么掉线的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这次最终祭典➕大润想全勤一定得把网搞好点
 
+
+*****
+
+####  laosai13  
+##### 5110#       发表于 2024-9-3 02:30
+
+延迟好像好多了但是掉线频率高了，过于神必
+

@@ -4713,3 +4713,11 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 那岂不是上ND不要钱或者倒给钱了？
 
+
+*****
+
+####  zhouaa  
+##### 3430#       发表于 2024-9-2 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">懂了 为什么叫1st  因为FC还拆成两部
+

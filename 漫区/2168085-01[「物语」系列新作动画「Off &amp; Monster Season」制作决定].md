@@ -2169,3 +2169,24 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 这里可以看
 
+
+*****
+
+####  oi99o  
+##### 827#       发表于 2024-9-2 18:48
+
+ 本帖最后由 oi99o 于 2024-9-2 18:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66092305&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-9-2 18:10</a>
+
+我上了快十年不上的轻国号搜了一下忍物语只有三个结果啊是我的姿势不对吗 ...</blockquote>
+
+是只有三个，但第一个不就是台版epub吗
+
+<img src="https://img.saraba1st.com/forum/202409/02/184800mocjvjc48zvqoi45.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.55 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 18:48 上传
+

@@ -5005,3 +5005,11 @@ nd上的应该都是实机
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  穆鲁番Logix  
+##### 3461#       发表于 2024-9-2 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">A26的人物建模和画面比你轨强多了
+

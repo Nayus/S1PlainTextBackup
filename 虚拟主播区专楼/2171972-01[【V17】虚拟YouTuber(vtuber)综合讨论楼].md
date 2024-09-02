@@ -2990,3 +2990,13 @@ GWZYHf0WoAIANQY.jfif
 
 这个人和妻子刚过了结婚4周年还发了推没过多久然后就离婚和自己公司的这个V搞上了，真是败类啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 704#       发表于 2024-9-2 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不破，特别解释了op的事，好贴心，視聴者ファースト的好男人
+
+说是更多的事以后会限说但我猜也说不了多少，姑且等待
+

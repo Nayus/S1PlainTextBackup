@@ -7846,3 +7846,11 @@ image.png
 
 パチ屋のスロットで大負けをしてお金がなくなってしまい爆勝ちしてる隣の見知らぬ客のおじさんをその場で抜いてお金を貰う神●めあ
 
+
+*****
+
+####  TiHaru  
+##### 17338#       发表于 2024-9-2 23:54
+
+[https://www.twitch.tv/kagura0mea ... ng-BWZXvec6jEI6XYH0](https://www.twitch.tv/kagura0mea/clip/PeacefulCheerfulPigeonStoneLightning-BWZXvec6jEI6XYH0)
+

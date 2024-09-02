@@ -530,3 +530,11 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这次的英雄模式应该跟前几作的英雄模式差不多，纯难度挑战的吧?
 
+
+*****
+
+####  windhawind2  
+##### 502#       发表于 2024-9-2 09:01
+
+试玩视频里开局塞尔达只有3个碎片 官网的演示里有4个碎片 后面难道还可以随进度找更多的？
+

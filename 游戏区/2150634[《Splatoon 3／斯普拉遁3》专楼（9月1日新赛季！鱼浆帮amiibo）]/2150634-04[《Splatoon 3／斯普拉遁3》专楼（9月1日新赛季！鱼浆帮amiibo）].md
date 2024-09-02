@@ -1536,3 +1536,13 @@ GWWtMgQXgAIMcDH.jfif
 
 昨天打了几把工，捡蛋没延迟的感觉真好，匹配速度也还行，对战没打过不知道啥情况
 
+
+*****
+
+####  KBAC  
+##### 5093#       发表于 2024-9-2 08:58
+
+我这边更新前一天疯狂掉线，更新后反而变好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

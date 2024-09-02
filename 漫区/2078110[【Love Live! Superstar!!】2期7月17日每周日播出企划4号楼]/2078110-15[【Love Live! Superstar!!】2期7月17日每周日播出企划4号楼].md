@@ -447,3 +447,13 @@ eupd这种傻逼公司怎么还没似啊
 
 感觉在国内开二次元活动的大点的主办方没有不被骂的
 
+
+*****
+
+####  csolfans  
+##### 20991#       发表于 2024-9-2 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么大型的活动，肯定不可能是鱼工作室主导的。隔壁也有说到EUPD是amuse点名要求的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

@@ -2114,3 +2114,13 @@ b站上有
 
 —— 来自 Google Pixel 7, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  狼王卢比奥  
+##### 822#       发表于 2024-9-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088699&amp;ptid=2168085" target="_blank">沼蝇 发表于 2024-9-2 11:34</a>
+找了一下只有一个网友翻译版，看了两段实在看不下去啊搜不到台版或者大陆版的epu ...</blockquote>
+LK上有台版的epub
+

@@ -2908,3 +2908,36 @@ GWZYHf0WoAIANQY.jfif
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  karastar  
+##### 696#       发表于 2024-9-2 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66091576&amp;ptid=2171972" target="_blank">猫南北 发表于 2024-9-2 16:58</a>
+醒来就是大瓜。
+
+我的冷门Q群里都有转发这次的各种盗摄图了。</blockquote>
+什么群，太恶臭了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Achlys  
+##### 697#       发表于 2024-9-2 18:01
+
+<img src="https://img.saraba1st.com/forum/202409/02/180056eaya4kvztm4v6vvr.png" referrerpolicy="no-referrer">
+
+<strong>1000018095.png</strong> (334.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 18:00 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/180055uuj6uhu8gjgn7gpp.png" referrerpolicy="no-referrer">
+
+<strong>1000018096.png</strong> (323.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 18:00 上传
+

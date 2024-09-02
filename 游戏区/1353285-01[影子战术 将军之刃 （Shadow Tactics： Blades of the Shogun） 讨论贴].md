@@ -793,3 +793,15 @@ dlc比较短，作为独立本体也没有什么特别的优化或者新设计�
 
 本来在当策略版47整蛊玩，结果发现把武士打死了还会继续刷警卫<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqqwe  
+##### 77#       发表于 2024-9-2 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66091391&amp;ptid=1353285" target="_blank">Amelia_1812 发表于 2024-9-2 16:38</a>
+这游戏警卫是无限刷杀不完的吗
+
+本来在当策略版47整蛊玩，结果发现把武士打死了还会继续刷警卫 ...</blockquote>
+触发警报的那些会无限刷，无警报可以杀完的，我就这么打
+

@@ -2817,3 +2817,34 @@ GWZYHf0WoAIANQY.jfif
 
 离谱，我一个不看V的同学都给转这个事件的一些repo<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  三尖酸努努  
+##### 688#       发表于 2024-9-2 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66089485&amp;ptid=2171972" target="_blank">北山玖公 发表于 2024-9-2 12:57</a>
+能否根据此事再次论证你虹中人貌美如花</blockquote>
+夸的重点并不在长相
+
+*****
+
+####  三尖酸努努  
+##### 689#       发表于 2024-9-2 14:37
+
+真的是麦麦吗，这也太惨了
+
+*****
+
+####  北山玖公  
+##### 690#       发表于 2024-9-2 14:39
+
+看了一下回应，还搁这大变申呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Harunoharu  
+##### 691#       发表于 2024-9-2 14:42
+
+赶紧滚去坐牢吧，就是他那个小团体里的其他人只是单纯传播/旁观的话估计要不了了之了，恶心
+

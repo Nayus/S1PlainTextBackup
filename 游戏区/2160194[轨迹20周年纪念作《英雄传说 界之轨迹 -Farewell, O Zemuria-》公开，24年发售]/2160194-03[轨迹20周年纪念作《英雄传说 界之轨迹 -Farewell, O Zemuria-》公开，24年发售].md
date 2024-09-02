@@ -4789,3 +4789,32 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  diectt  
+##### 3439#       发表于 2024-9-2 14:40
+
+<blockquote>3. 空軌1st的意思代表是FC重製嗎? 社長表示還不能說</blockquote>
+你但凡3作并2作我都当你是条汉子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔方兄  
+##### 3440#       发表于 2024-9-2 14:43
+
+虾饺到底和任天堂达成什么py交易啊，很迷
+
+任天堂能看上这游戏？
+
+
+*****
+
+####  ravend233  
+##### 3441#       发表于 2024-9-2 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66090332&amp;ptid=2160194" target="_blank">diectt 发表于 2024-9-2 14:40</a>
+
+你但凡3作并2作我都当你是条汉子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空的剧情要么FC+SC完整二合一，要么断在FC的结局吧，SC的剧情已经不太好找中断点了
+

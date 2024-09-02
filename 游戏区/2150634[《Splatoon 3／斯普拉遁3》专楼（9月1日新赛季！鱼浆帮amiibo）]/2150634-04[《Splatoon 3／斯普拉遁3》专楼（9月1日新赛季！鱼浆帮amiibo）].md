@@ -1721,3 +1721,11 @@ Callie (Alterna).bin
 
 前两天我也是裸连的，今天必须加速器才上得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  藏獒·烨  
+##### 5105#       发表于 2024-9-2 17:16
+
+我一直是uu加速，更新完后队友掉线超级多
+

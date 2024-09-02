@@ -1554,3 +1554,78 @@ GWWtMgQXgAIMcDH.jfif
 
 我倒是体感该卡比的还是照样卡比，也许情况比以往减轻？不过打工跟以前差不多的样子
 
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5095#       发表于 2024-9-2 10:59
+
+祭典衣服可以領了
+
+<img src="https://img.saraba1st.com/forum/202409/02/105911owqo0lqajlljxz7f.png" referrerpolicy="no-referrer">
+
+<strong>eb9eef42b7b31b7657ae99f63b50fe12.png</strong> (317.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/105913b6iozebgn6mwmg6b.png" referrerpolicy="no-referrer">
+
+<strong>4530d64a9e7004eaa704d2a9c0e94486.png</strong> (302.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/105915kgpsfyw2ddds2gij.png" referrerpolicy="no-referrer">
+
+<strong>8e09b3b99412ccb63e498ca90d635784.png</strong> (318.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 10:59 上传
+
+*****
+
+####  0314f9b7d3430c8  
+##### 5096#       发表于 2024-9-2 11:00
+
+btw，新amiibo忘記發了
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Pearl (Side Order).bin
+(540 Bytes, 下载次数: 0)
+
+2024-9-2 10:59 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Marina (Side Order).bin
+(540 Bytes, 下载次数: 0)
+
+2024-9-2 10:59 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Marie (Alterna).bin
+(540 Bytes, 下载次数: 0)
+
+2024-9-2 10:59 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Callie (Alterna).bin
+(540 Bytes, 下载次数: 0)
+
+2024-9-2 10:59 上传
+
+点击文件名下载附件
+

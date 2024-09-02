@@ -4417,3 +4417,88 @@ pc不说 ps5肯定会上吧</blockquote>
 
 而且为什么要看鬼佬的N手情报，鬼佬的日语水平大多数还不如国人（）
 
+
+*****
+
+####  diectt  
+##### 3407#       发表于 2024-9-2 10:58
+
+其实我还挺喜欢空轨那套配珠子颜色数量开魔法的系统的（可能是记忆美化就是了）
+
+*****
+
+####  diectt  
+##### 3408#       发表于 2024-9-2 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088163&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-2 10:47</a>
+
+从公司整体的角度想不出再匀人手和资源给共和国篇出新作的价值，反正都开始设定集糊脸了，随便折腾一下也可 ...</blockquote>
+就是因为人手和资源有限才更要继续出，城镇人物模型做都做出来了，不用浪费了，用来垫工期正好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3409#       发表于 2024-9-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088325&amp;ptid=2160194" target="_blank">diectt 发表于 2024-9-2 10:59</a>
+
+就是因为人手和资源有限才更要继续出，城镇人物模型做都做出来了，不用浪费了，用来垫工期正好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在有空RE的情况下，一年一部我甚至找不到塞界2的位置，大概率真有只有和迷城或者空RE挤一年了，纯纯两头不讨好
+
+
+*****
+
+####  漆黑_残月  
+##### 3410#       发表于 2024-9-2 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66070786&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-8-31 09:47</a>
+
+对欧美玩家来说这个就是4399类型吧
+
+社长对这个宣发竟然如此自信 值得丢弃ps大本营去蹭一个2分钟pv ...</blockquote>
+PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,没有的话何谈大本营
+
+*****
+
+####  卢迪克  
+##### 3411#       发表于 2024-9-2 11:04
+
+来啦          
+
+37d12f2eb9389b50a17c8570c335e5dde7116e15.jpg
+(158.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/110351e52y4et49lly555t.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3412#       发表于 2024-9-2 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">九月初，应该是最后一期杂志力
+
+*****
+
+####  Aeons  
+##### 3413#       发表于 2024-9-2 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是反派吧
+
+*****
+
+####  ravend233  
+##### 3414#       发表于 2024-9-2 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常来说应该是反派，但是己方都有一大堆没介绍的情况下我不好说
+
+*****
+
+####  一步成诗  
+##### 3415#       发表于 2024-9-2 11:07
+
+呃虽然有是好事但是都9月了不应该省点钱买一期封面吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

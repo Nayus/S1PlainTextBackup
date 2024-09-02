@@ -2249,3 +2249,13 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 我依然要疑惑为什么不选班长，该永不为奴了</blockquote>
 垃圾对班长什么看法，看小扇对班长的态度就知道了啊…
 
+
+*****
+
+####  霖星  
+##### 833#       发表于 2024-9-2 23:30
+
+这集真是看的昏昏欲睡<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+所以忍是怎么去掉魔性BUFF的，变成吸血鬼了就没了么
+

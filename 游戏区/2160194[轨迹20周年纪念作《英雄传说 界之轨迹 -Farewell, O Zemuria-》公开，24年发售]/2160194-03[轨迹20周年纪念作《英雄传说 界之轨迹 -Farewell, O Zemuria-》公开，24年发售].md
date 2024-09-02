@@ -4978,3 +4978,13 @@ nd上的应该都是实机
 
 界2是板上钉钉了，某次采访说漏嘴黎轨系列和界轨系列了，宣发摆烂也能理解，来买的都是自愿的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3458#       发表于 2024-9-2 20:57
+
+这样吧，界1咚，明年空re+界2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

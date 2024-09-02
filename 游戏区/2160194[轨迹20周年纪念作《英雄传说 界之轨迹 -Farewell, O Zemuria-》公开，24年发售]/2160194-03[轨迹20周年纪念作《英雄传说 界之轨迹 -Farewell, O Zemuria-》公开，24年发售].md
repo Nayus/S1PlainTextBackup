@@ -4215,3 +4215,14 @@ pc不说 ps5肯定会上吧</blockquote>
 
 一想到下一个启用空轨re画风的新轨迹甚至能出现在 ns2 生命后半程，就感觉无限追轨悖论深不可测。
 
+
+*****
+
+####  Archer长羽  
+##### 3387#       发表于 2024-9-2 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66073770&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-8-31 17:23</a>
+
+贴吧说确定有界二，等媒体信息公开就知道了。 意思是有媒体采访消息渠道。 ...</blockquote>
+他根据七星的话自己推的，没有媒体采访渠道<img src="https://p.inari.site/guest/24-09/02/66d50588aa1e6.png" referrerpolicy="no-referrer">
+

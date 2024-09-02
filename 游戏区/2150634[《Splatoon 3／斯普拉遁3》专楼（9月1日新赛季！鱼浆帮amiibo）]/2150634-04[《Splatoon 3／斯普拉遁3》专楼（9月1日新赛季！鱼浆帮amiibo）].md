@@ -1762,3 +1762,11 @@ Callie (Alterna).bin
 
 新铭牌和旧的，可以查缺补漏，拉到下边的图
 
+
+*****
+
+####  Ryuuseigun  
+##### 5109#       发表于 2024-9-3 00:15
+
+下午喊人来看了宽带再挂上加速器和有限连接终于恢复成以前40s匹配不怎么掉线的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这次最终祭典➕大润想全勤一定得把网搞好点
+

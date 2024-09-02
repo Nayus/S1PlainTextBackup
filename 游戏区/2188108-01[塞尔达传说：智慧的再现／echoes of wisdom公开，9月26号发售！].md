@@ -538,3 +538,14 @@ b站已经有现场试玩视频。透露的信息还满多的。
 
 试玩视频里开局塞尔达只有3个碎片 官网的演示里有4个碎片 后面难道还可以随进度找更多的？
 
+
+*****
+
+####  kuarwbwe  
+##### 503#       发表于 2024-9-2 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66087098&amp;ptid=2188108" target="_blank">windhawind2 发表于 2024-9-2 09:01</a>
+
+试玩视频里开局塞尔达只有3个碎片 官网的演示里有4个碎片 后面难道还可以随进度找更多的？ ...</blockquote>
+估计打大迷宫或者别的什么会给碎片，这作地图这么大肯定要给升级碎片数量的道具作为填充地图的收集奖励的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

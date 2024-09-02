@@ -4239,3 +4239,11 @@ pc不说 ps5肯定会上吧</blockquote>
 
 还是那句话，全看玩家怎么理解
 
+
+*****
+
+####  一步成诗  
+##### 3389#       发表于 2024-9-2 09:08
+
+界这情况剧情爆不爆不知道，玩家肯定是要爆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

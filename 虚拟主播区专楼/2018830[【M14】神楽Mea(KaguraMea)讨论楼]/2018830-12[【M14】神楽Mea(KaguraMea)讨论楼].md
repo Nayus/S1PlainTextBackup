@@ -7838,3 +7838,11 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看主播玩游戏的数目超过了听主播直播唱歌的人数 怎么会这样
 
+
+*****
+
+####  TiHaru  
+##### 17337#       发表于 2024-9-2 22:39
+
+パチ屋のスロットで大負けをしてお金がなくなってしまい爆勝ちしてる隣の見知らぬ客のおじさんをその場で抜いてお金を貰う神●めあ
+

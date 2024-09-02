@@ -1729,3 +1729,13 @@ Callie (Alterna).bin
 
 我一直是uu加速，更新完后队友掉线超级多
 
+
+*****
+
+####  罗克萨斯  
+##### 5106#       发表于 2024-9-2 19:34
+
+[https://www.youtube.com/watch?v=Xi60henfK9E](https://www.youtube.com/watch?v=Xi60henfK9E)
+
+那个XP4900+的长热，上赛季没上XP5000有点可惜，这赛季可能性更低了
+

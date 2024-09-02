@@ -4255,3 +4255,27 @@ pc不说 ps5肯定会上吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也没几个真情实感对你法有期待的玩家了，爆都爆不起来
 
+
+*****
+
+####  Aeons  
+##### 3391#       发表于 2024-9-2 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66086853&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-2 08:23</a>
+他根据七星的话自己推的，没有媒体采访渠道</blockquote>
+哦真的牛批，猜的还“不能多说”吗
+
+*****
+
+####  Squall25  
+##### 3392#       发表于 2024-9-2 10:20
+
+他其实不是只靠七星的话推的。只不过七星属于破罐子破摔了，所以方便说是七星讲的。
+
+*****
+
+####  Aeons  
+##### 3393#       发表于 2024-9-2 10:21
+
+其实他们吧务群基本还是认识一点别的人
+

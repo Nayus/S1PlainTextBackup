@@ -264,3 +264,51 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 答案是超长线前三个角色速度差buff战斗！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Jamaisvu  
+##### 853#       发表于 2024-9-2 20:12
+
+搬一下新卡技能：
+
+<img src="https://img.saraba1st.com/forum/202409/02/200613tzqza6im4z9hwhpw.jpg" referrerpolicy="no-referrer">
+
+<strong>5a0f8035349b033bde3a9cf853ce36d3d539bd0d.jpg</strong> (545.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 20:06 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/200614al3cw9lwzmk30y7c.jpg" referrerpolicy="no-referrer">
+
+<strong>b4d69286e950352a49d3452a1543fbf2b2118b0d.jpg</strong> (394.24 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 20:06 上传
+
+蝶箱是特殊沉沦和特殊子弹，不过LCCB良秀的支援被动砍了，魔弹奥和蝶箱的子弹都无法被算作最后一发...
+
+<img src="https://img.saraba1st.com/forum/202409/02/200614dzyp66pqjxfjqp81.jpg" referrerpolicy="no-referrer">
+
+<strong>362bd3ed54e736d19e7cec2add504fc2d5626948.jpg</strong> (616.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 20:06 上传
+
+蜘蛛良是特殊出血和特殊充电，姑且先和犀牛默一起进纯血队吧？三技能看样子电量足够的话能自动转换。
+
+三个技能都是打击，狗粮本又添一员大将啊！
+
+<img src="https://img.saraba1st.com/forum/202409/02/200612vjqihfmm0wev3e30.jpg" referrerpolicy="no-referrer">
+
+<strong>3cdeeb176d224f4a49da13314ff790529822d17c.jpg</strong> (489.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 20:06 上传
+
+林顿虫的售后卡，觉醒释放时如果理智足够的话好像能多打一个币。
+

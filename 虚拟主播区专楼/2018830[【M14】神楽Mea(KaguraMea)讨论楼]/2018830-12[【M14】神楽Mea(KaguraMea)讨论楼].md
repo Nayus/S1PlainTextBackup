@@ -7812,3 +7812,11 @@ image.png
 
 (为啥中途又唐突mbti了，这段没截到)
 
+
+*****
+
+####  古战场亡魂  
+##### 17334#       发表于 2024-9-2 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">所有人都在往youtube搬运和剪辑大赛视频，就你最淡定，主业干干净净。
+

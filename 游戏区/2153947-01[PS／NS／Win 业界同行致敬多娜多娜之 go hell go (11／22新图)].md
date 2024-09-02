@@ -562,3 +562,67 @@ Entergram的基本盘在主机那边吧，pc版做成r18那谁还买主机版
 
 这游戏至今没有攻略站吧
 
+
+*****
+
+####  新HGCG  
+##### 61#       发表于 2024-9-2 11:19
+
+哦哦官方推特有UR女鬼能触发剧情的地点
+
+<img src="https://img.saraba1st.com/forum/202409/02/111321nmkmknsjyqggsvnw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111517x68d76uz75u8v8hp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:15 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111650c67xg0zqe76ese80.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.25 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111740jtz4842t4r2lyj2r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111801omr6kwfh60k00hg0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (173.67 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111843lzpehc0e5phh9tm5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.33 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:18 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/111906sdai7zryx3df77x7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (197.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 11:19 上传
+

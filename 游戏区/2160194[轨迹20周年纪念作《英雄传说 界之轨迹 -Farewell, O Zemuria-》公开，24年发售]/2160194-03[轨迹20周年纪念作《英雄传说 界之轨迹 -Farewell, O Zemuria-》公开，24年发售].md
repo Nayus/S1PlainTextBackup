@@ -4525,3 +4525,20 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 黎1就没有发售特辑，黎2和ysx才有
 
+
+*****
+
+####  Kojimaru  
+##### 3419#       发表于 2024-9-2 11:20
+
+意思是这次我法的发售特辑（×）和原神周年庆特辑贴贴失败，亚达哟<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 3420#       发表于 2024-9-2 11:25
+
+还想看e大师的专辑封面吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

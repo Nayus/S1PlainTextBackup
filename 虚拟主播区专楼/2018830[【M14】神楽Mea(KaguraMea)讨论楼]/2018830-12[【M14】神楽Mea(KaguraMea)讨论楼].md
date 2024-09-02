@@ -7830,3 +7830,11 @@ image.png
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ashero  
+##### 17336#       发表于 2024-9-2 21:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看主播玩游戏的数目超过了听主播直播唱歌的人数 怎么会这样
+

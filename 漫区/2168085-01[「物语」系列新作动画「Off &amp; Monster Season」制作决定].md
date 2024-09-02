@@ -2238,3 +2238,14 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 我依然要疑惑为什么不选班长，该永不为奴了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Unlight  
+##### 832#       发表于 2024-9-2 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66093676&amp;ptid=2168085" target="_blank">鬼谷ask 发表于 2024-9-2 21:08</a>
+
+我依然要疑惑为什么不选班长，该永不为奴了</blockquote>
+垃圾对班长什么看法，看小扇对班长的态度就知道了啊…
+

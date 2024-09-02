@@ -2201,3 +2201,18 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  5353  
+##### 829#       发表于 2024-9-2 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66093044&amp;ptid=2168085" target="_blank">傘木希美 发表于 2024-9-2 19:44</a>
+
+复习化物语，第十二集星空下的告白居然是
+
+翼与猫 其二啊</blockquote>
+当时说法，没有这第十二集，大家都要疑惑为什么不选班长了。
+
+真是绝杀。
+

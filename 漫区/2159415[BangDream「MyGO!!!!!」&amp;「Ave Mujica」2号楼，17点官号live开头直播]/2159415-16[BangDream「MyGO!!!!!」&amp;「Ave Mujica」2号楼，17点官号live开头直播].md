@@ -4315,3 +4315,18 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 这是哪？怎么就杀人了？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22577#       发表于 2024-9-2 13:53
+
+有立本人猜以太的mv会不会直接用3rd立绘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22578#       发表于 2024-9-2 13:56
+
+3rd立绘一图流mv 这辈子有了
+

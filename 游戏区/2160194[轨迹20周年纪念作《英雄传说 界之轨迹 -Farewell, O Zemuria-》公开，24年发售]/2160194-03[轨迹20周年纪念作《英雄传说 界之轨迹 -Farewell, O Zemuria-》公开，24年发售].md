@@ -4502,3 +4502,26 @@ PS大本营有什么好坚守的, PS5有什么JRPG在日本卖得很好的么,�
 
 呃虽然有是好事但是都9月了不应该省点钱买一期封面吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  一步成诗  
+##### 3416#       发表于 2024-9-2 11:10
+
+还是说发售特辑无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3417#       发表于 2024-9-2 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会还觉得还能再买一期吧，没那么多钱惹
+
+
+*****
+
+####  卢迪克  
+##### 3418#       发表于 2024-9-2 11:12
+
+黎1就没有发售特辑，黎2和ysx才有
+

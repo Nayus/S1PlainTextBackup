@@ -596,3 +596,21 @@ pv里有出现过四费的复制品
 类似于王泪电池那样的对标智杖的核心gameplay资源吧，考虑到有3费的复制品，而演示似乎同屏上限也是3？所以 ...</blockquote>
 pv里有出现过四费的复制品
 
+
+*****
+
+####  佛罗伦萨  
+##### 508#       发表于 2024-9-2 15:24
+
+与织梦岛的地图对比，约7.78倍。
+
+<img src="https://img.saraba1st.com/forum/202409/02/152236anl2v3f03jcq0nau.jpg" referrerpolicy="no-referrer">
+
+<strong>66666.jpg</strong> (18.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 15:22 上传
+
+【对比织梦岛和塞尔达新作的地图（最终版）】 [https://www.bilibili.com/video/B ... d11544ce04b701263dc](https://www.bilibili.com/video/BV1YgHkeXE9Y/?share_source=copy_web&amp;vd_source=e25a19f57372cd11544ce04b701263dc) 
+

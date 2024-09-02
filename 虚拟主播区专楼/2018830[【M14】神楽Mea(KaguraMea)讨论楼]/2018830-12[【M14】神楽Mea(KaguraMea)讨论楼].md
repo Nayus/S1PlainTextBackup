@@ -7751,3 +7751,44 @@ mea抽象的点在于，她对于位置没啥意见，上单中单打野adc辅�
 
 也就现在日本战队shg在抢s赛门票，肯定是最lol最有人气的时间。不过现在0-2了，输了可能流量马上不一样了。
 
+
+*****
+
+####  受菊  
+##### 17329#       发表于 2024-9-1 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">又开始了，之前你还说兔妈妈整天麻将，我看你也是整天LOL【
+
+*****
+
+####  TiHaru  
+##### 17330#       发表于 2024-9-2 03:45
+
+塔克夫新档，以后还会有らむち吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 17331#       发表于 2024-9-2 08:52
+
+ 本帖最后由 古战场亡魂 于 2024-9-2 08:56 编辑 
+
+重回2000境界。之前平时直播500，比赛700，比赛热度高的时候900。
+
+<img src="https://img.saraba1st.com/forum/202409/02/085147ffvmxbkjhfrrj3ri.png" referrerpolicy="no-referrer">
+
+<strong>1725238299395.png</strong> (5.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 08:51 上传
+
+image.png
+(11.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-2 08:56 上传
+
+<img src="https://img.saraba1st.com/forum/202409/02/085621o2ad0ag9zrfn0o9o.png" referrerpolicy="no-referrer">
+

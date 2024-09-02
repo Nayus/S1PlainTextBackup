@@ -4349,3 +4349,14 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 <img src="https://p.sda1.dev/19/0559be27f747e8d55744d6a8ce29ac0e/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/faf7121ea04dce2db776d62612d32899/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KokutouMikiya  
+##### 22581#       发表于 2024-9-2 20:42
+
+挺真的，海铃line头像长这样，以前还觉得这个红格子审美堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/da8dc5e79495229ae7b5e1abf6de1c8e/img-172528065322829ed85d281d2416cb05532023ac08a47e25169f8ec59ff2d399c8fa0f071dfc6.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9260, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+

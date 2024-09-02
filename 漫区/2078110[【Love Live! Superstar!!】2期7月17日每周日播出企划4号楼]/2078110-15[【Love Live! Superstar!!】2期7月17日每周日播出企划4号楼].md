@@ -484,3 +484,13 @@ eupd这种傻逼公司怎么还没似啊
 
 <img src="https://img.saraba1st.com/forum/202409/02/202046yn0vf8x50zk3giqx.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 20994#       发表于 2024-9-2 20:44
+
+座位票价又改了，EUPD真TM傻逼怎么还没死
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

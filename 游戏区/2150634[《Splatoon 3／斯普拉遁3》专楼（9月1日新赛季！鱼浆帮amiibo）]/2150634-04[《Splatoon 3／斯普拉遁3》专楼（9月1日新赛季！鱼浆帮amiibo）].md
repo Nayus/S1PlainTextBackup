@@ -1546,3 +1546,11 @@ GWWtMgQXgAIMcDH.jfif
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  幽香  
+##### 5094#       发表于 2024-9-2 10:53
+
+我倒是体感该卡比的还是照样卡比，也许情况比以往减轻？不过打工跟以前差不多的样子
+

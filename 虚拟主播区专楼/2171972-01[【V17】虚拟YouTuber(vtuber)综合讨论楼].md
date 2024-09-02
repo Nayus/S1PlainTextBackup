@@ -2744,3 +2744,13 @@ YAB给管人做mix的历史可以说相当早了啊，而且也算有点名气�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是当时一直在匂わせ说的是sky那次啊
 
+
+*****
+
+####  aritaatsu222  
+##### 680#       发表于 2024-9-2 10:49
+
+<blockquote>TiHaru 发表于 2024-9-2 10:42
+是不是当时一直在匂わせ说的是sky那次啊</blockquote>
+我当时一听就知道不是sky，巴分手后一直严守只字不提前对象原则，不过那时没有其他可怀疑对象加上crsk民疯癫被引到sky身上也算是意料内
+

@@ -16,3 +16,33 @@
 
 看着还不错。
 
+
+*****
+
+####  厄斯沃穆  
+##### 588#         楼主| 发表于 2024-9-2 12:04
+
+#废都物语重制版# #废都物语# #废都物语[超话]# 
+★线下测试志愿玩家招募★                                              
+                                            
+距离上一次测试已经过去一年了，期间我们收到了许多玩家的评论和私信，感受到了大家对废都物语重新版的热切期待。                                              
+那么在今年，线下测试再开！这一次我们同样邀请10名曾经玩过废都原作的玩家来感受重制版的全新风貌，另外邀请10名从未接触过原作的玩家来感受重制版的乐趣~                                              
+由于测试内容较多，时间较长，所以希望到场的你也有一定的耐心和体力哦~                                              
+                                                                                           
+★招募详情见图★
+
+[url=]https://weibo.com/7791171653/5074126939357628[/url]
+<img src="https://p.sda1.dev/19/dcef65c578e62d9348196ad6e8af56b4/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  DARILBALDE  
+##### 589#       发表于 2024-9-2 12:06
+
+还测试啊……啥时候能有DEMO呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+这个音乐和美术真是让人望眼欲穿啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

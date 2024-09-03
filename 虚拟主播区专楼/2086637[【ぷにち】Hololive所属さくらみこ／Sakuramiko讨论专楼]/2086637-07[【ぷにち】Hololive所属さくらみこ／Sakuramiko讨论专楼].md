@@ -8033,3 +8033,34 @@ panpiano还没开始卖肉卖B的那年的运动会
 
 星街先帮你探路是吧
 
+
+*****
+
+####  holoan  
+##### 9557#         楼主| 发表于 2024-9-3 20:22
+
+ 本帖最后由 holoan 于 2024-9-3 20:24 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/03/202221gz2hk3amhk56nl7a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (39.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 20:22 上传
+
+21小时，11回直播，3个月
+
+最强的2人了属于
+
+486：长篇RPG了属于
+
+*****
+
+####  holoan  
+##### 9558#         楼主| 发表于 2024-9-3 20:29
+
+[https://www.youtube.com/watch?v=AdlWEvp5c1o](https://www.youtube.com/watch?v=AdlWEvp5c1o)
+
+【手描き】真真真みこスバが鎖配信クリアしないと投稿できない動画【さくらみこ/大空スバル】
+

@@ -192,3 +192,57 @@ DQ3还是强啊。
 男主怎么像女的</blockquote>
 现在阿特拉斯就爱搞这个，p3p4p5主角都有女装登场过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 686#       发表于 2024-9-3 15:35
+
+要买也得是这游戏口碑良好加上出了完全版再买。其实这游戏我还挺期待的，最后整到现在这样真是说不出话。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cranberries  
+##### 687#       发表于 2024-9-3 15:37
+
+这游戏演示越多期待值越低，现在已经降到等评测了。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+
+*****
+
+####  voldovenom  
+##### 688#       发表于 2024-9-3 15:38
+
+我先来句难听的话，有没有人觉得这游戏的ui过渡和切换太乱太闪了？
+
+昨天看了巴哈的25分钟试玩，人物对话和战斗过程中的界面切换和技能选择动画做的有点失控了吧？怎么能这么闪，看了一会眼睛就开始抗议了。
+
+*****
+
+####  heseran  
+##### 689#       发表于 2024-9-3 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66100223&amp;ptid=2140224" target="_blank">Cranberries 发表于 2024-9-3 15:37</a>
+这游戏演示越多期待值越低，现在已经降到等评测了。
+
+—— 来自 鹅球 v3.0.86-alpha ...</blockquote>
+这个确实是，而且这演示什么的太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">铺天盖地地发。
+
+
+*****
+
+####  抽烟的猴  
+##### 690#       发表于 2024-9-3 15:44
+
+<blockquote>roxassix 发表于 2024-9-3 13:52
+是不是反正已经从微软凯子那拿了一笔了，剩下卖多卖少无所谓了！</blockquote>
+没上xgp，所以才说销量压力山大，a社还明说希望它成为p系列那种大招牌
+
+*****
+
+####  卡拉德利姆  
+##### 691#       发表于 2024-9-3 15:44
+
+我一开始就这么觉得 尤其是主角大头那个主菜单
+

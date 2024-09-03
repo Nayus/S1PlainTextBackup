@@ -5381,3 +5381,21 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">这真会有人买？
 
+
+*****
+
+####  妄想中毒  
+##### 3499#       发表于 2024-9-3 18:00
+
+把亚绿莎删了只留克洛搞不好都能卖的更多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3500#       发表于 2024-9-3 18:02
+
+不知道，可能会有怨种买吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

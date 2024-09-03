@@ -3268,3 +3268,11 @@ minoru通关，原来如此。</blockquote>
 日：https://www.nintendo.com/jp/interview/a7lqa/index.html</blockquote>
 官中：[https://www.nintendo.com.hk/interview/a7lqa/index.html](https://www.nintendo.com.hk/interview/a7lqa/index.html)
 
+
+*****
+
+####  bird-lay  
+##### 317#       发表于 2024-9-4 00:51
+
+故事真的太没劲了，而且推理要素基本为零，上当
+

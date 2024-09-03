@@ -307,3 +307,28 @@ steam的渠道费退么<img src="https://static.saraba1st.com/image/smiley/face2
 
 运营期间玩家流失最少的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yourSwaTer  
+##### 196#       发表于 2024-9-4 00:48
+
+哈哈哈哈笑死我了
+
+*****
+
+####  ナルバレック  
+##### 197#       发表于 2024-9-4 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104460&amp;ptid=2191081" target="_blank">Onelooker 发表于 2024-9-4 00:19</a>
+
+索尼这么大方啊，看来亏的还不够多</blockquote>
+今年土命2和老司机2大爆赚啊，应该可以匀平盈亏
+
+*****
+
+####  chillicez  
+##### 198#       发表于 2024-9-4 00:52
+
+有实体版吗，现在收藏一份是不是以后能升值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

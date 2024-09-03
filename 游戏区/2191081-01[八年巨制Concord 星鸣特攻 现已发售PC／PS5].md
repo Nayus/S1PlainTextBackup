@@ -744,3 +744,21 @@ f2p也撑不了多久，f2p要撑起这个游戏盈利那在线人数要达到�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
 
+
+*****
+
+####  canti  
+##### 243#       发表于 2024-9-4 02:05
+
+你们有谁还记得那个next level动画剧集，你索还买了一集做concord故事的，这下游戏先没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  yasen233  
+##### 244#       发表于 2024-9-4 02:12
+
+还记得sony夏季发布会的时候给这个游戏播了十几分钟的片。占了整个发布会差不多1/3的时间
+

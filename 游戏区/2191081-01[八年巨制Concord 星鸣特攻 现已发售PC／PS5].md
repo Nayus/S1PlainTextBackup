@@ -436,3 +436,156 @@ uncle Jim node head<img src="https://p.sda1.dev/19/2ec1c5a006208a8854b11a5bcf6e9
 
 （发完贴就看到楼上回复了）
 
+
+*****
+
+####  PingGuo233  
+##### 211#       发表于 2024-9-4 01:06
+
+老司机和土命是什么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  novyDC  
+##### 212#       发表于 2024-9-4 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104773&amp;ptid=2191081" target="_blank">PingGuo233 发表于 2024-09-04 01:06:49</a>
+老司机和土命是什么
+
+—— 来自</blockquote>地狱潜行者2 命运2
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  洛克萨斯  
+##### 213#       发表于 2024-9-4 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104758&amp;ptid=2191081" target="_blank">ナルバレック 发表于 2024-9-4 01:04</a>
+
+工作室吹牛逼的时候说成本是两个亿，基本上至少能把今年老司机和土命大爆赚的钱给完完整整的平账掉，100% ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么才两亿美金，亏的好少
+
+*****
+
+####  高町城管  
+##### 214#       发表于 2024-9-4 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我玩了二十多年电子游戏，这是见过的最奇葩的一次商业灾难，其他类似的情况要么投资没这么惊人，要么多少能卖个几十万套，要么不至于十几天就完蛋，从这个意义上来说这款游戏真是个电子游戏史上的奇迹
+
+—— 来自 Xiaomi 23116PN5BC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你好s1  
+##### 215#       发表于 2024-9-4 01:10
+
+只能说玩家实在是太少了，都不够它混一两个赛季再关闭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23073RPBFC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  RookieTnT  
+##### 216#       发表于 2024-9-4 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104784&amp;ptid=2191081" target="_blank">洛克萨斯 发表于 2024-9-4 01:08</a>
+
+怎么才两亿美金，亏的好少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你没算上宣发成本吧. 这东西也是大头
+
+*****
+
+####  BadYanL  
+##### 217#       发表于 2024-9-4 01:11
+
+已成笑柄，不必回炉了
+
+看看工作室能不能转型支援，帮bungie还是箭头什么的打工吧
+
+还是Sega有远见，鬣狗还没内测就砍了，省下不少宣发费
+
+*****
+
+####  PlasmaSnake  
+##### 218#       发表于 2024-9-4 01:11
+
+大锅扣到人走茶凉的吉姆舅舅头上，财务计提资产减值损失，其他人接着奏乐接着舞，明明是无人受伤的世界达成了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sherlock08  
+##### 219#       发表于 2024-9-4 01:12
+
+到这步我反而期待他们回炉重做能端出什么东西了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 220#       发表于 2024-9-4 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104797&amp;ptid=2191081" target="_blank">RookieTnT 发表于 2024-9-4 01:11</a>
+
+你没算上宣发成本吧. 这东西也是大头</blockquote>
+宣发和开发一比一的话也就四亿美金啊，感觉还不够索尼长记性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，要是传闻中的13e美金亏损感觉才能让索尼长长记性
+
+*****
+
+####  lilod  
+##### 221#       发表于 2024-9-4 01:12
+
+阿索有点难绷，这个月我免费帮阿索吹小机器人
+
+*****
+
+####  我不是夏承凛  
+##### 222#       发表于 2024-9-4 01:12
+
+https://job-boards.greenhouse.io/firewalk
+现在firewalk空缺的职位：
+
+Gameplay Technical Designer 技术策划
+Principal Level Designer 主关卡设计师
+Production Director 制作总监
+Senior Gameplay Engineer 高级游戏工程师
+Senior Live Ops Engineer 高级现场工程师
+Senior Systems Engineer 高级系统工程师
+Senior Viewmodel Animator 高级主视角模型动画师
+Technical Artist UI UI设计师
+
+看起来是团队几乎全被开了？
+
+*****
+
+####  草間野分  
+##### 223#       发表于 2024-9-4 01:13
+
+这玩意儿能撑两周我都觉得是奇迹了
+
+*****
+
+####  ナルバレック  
+##### 224#       发表于 2024-9-4 01:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104809&amp;ptid=2191081" target="_blank">我不是夏承凛 发表于 2024-9-4 01:12</a>
+
+https://job-boards.greenhouse.io/firewalk
+
+现在firewalk空缺的职位：</blockquote>
+这家工作室我记得本来就是一群从EA,暴雪和棒鸡跑出来的人，好像还有原先在暴雪的一个国**师吧，可能也被开了
+
+*****
+
+####  ナルバレック  
+##### 225#       发表于 2024-9-4 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104809&amp;ptid=2191081" target="_blank">我不是夏承凛 发表于 2024-9-4 01:12</a>
+
+https://job-boards.greenhouse.io/firewalk
+
+现在firewalk空缺的职位：</blockquote>
+这家工作室我记得本来就是一群从EA,暴雪和棒鸡跑出来的人，好像还有原先在暴雪的一个国 人 拳 师吧，可能也被开了
+

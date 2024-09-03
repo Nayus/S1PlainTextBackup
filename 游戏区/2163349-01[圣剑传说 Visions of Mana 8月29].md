@@ -200,3 +200,19 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  hugosol  
+##### 244#       发表于 2024-9-3 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102305&amp;ptid=2163349" target="_blank">fmban 发表于 2024-9-3 19:37</a>
+
+困难大概打了一半流程吧，最大的不满就两点
+
+一个是上下坐骑实在太墨迹，严重影响跑图体验；一个是宝箱99%是 ...</blockquote>
+种子槽道具看这个，其他宝箱随缘了
+[https://game8.jp/seiken-vom/636321](https://game8.jp/seiken-vom/636321)
+
+搞不懂为什么种子槽不像精灵器上限一样放主线奖励，这玩意影响太大了，漏掉总感觉很不爽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

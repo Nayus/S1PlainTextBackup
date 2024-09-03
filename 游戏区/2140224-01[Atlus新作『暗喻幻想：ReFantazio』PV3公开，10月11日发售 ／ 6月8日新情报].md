@@ -272,3 +272,24 @@ DQ3还是强啊。
 
 我猜这次应该会直接出DLC升级完全版，像P3R那样
 
+
+*****
+
+####  ff2077  
+##### 695#       发表于 2024-9-3 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66100234&amp;ptid=2140224" target="_blank">voldovenom 发表于 2024-9-3 15:38</a>
+我先来句难听的话，有没有人觉得这游戏的ui过渡和切换太乱太闪了？
+
+昨天看了巴哈的25分钟试玩，人物对话和 ...</blockquote>
+为了潮而潮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且他画面还加了脏兮兮的特效
+
+*****
+
+####  医生狼多  
+##### 696#       发表于 2024-9-3 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102459&amp;ptid=2140224" target="_blank">roxassix 发表于 2024-9-3 20:02</a>
+我看成天给微软站台还以为上xgp了</blockquote>
+微软拿了市场宣发权肯定是有给钱的，但肯定没给进xgp那么多就是了
+

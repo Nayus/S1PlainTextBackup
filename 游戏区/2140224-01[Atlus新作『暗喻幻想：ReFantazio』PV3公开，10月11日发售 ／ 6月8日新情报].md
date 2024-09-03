@@ -305,3 +305,15 @@ DQ3还是强啊。
 昨天看了巴哈的25分钟试玩，人物对话和 ...</blockquote>
 早就觉得是，这是我购买这游戏的最大障碍
 
+
+*****
+
+####  alviaze  
+##### 698#       发表于 2024-9-3 23:51
+
+虽然从有实机第一天就骂这画面锯齿严重，但是还是steam预购了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">希望只是xsx性能拉胯的问题
+
+其他倒没有特别想骂的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">放低期待也就是个persona without the heart
+
+卖不过p3r是铁定的，p3r带xgp首周100w的atlus社内记录估计能打破的就只有p4r和p6了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

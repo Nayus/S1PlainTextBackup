@@ -3009,3 +3009,13 @@ GWZYHf0WoAIANQY.jfif
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66092216&amp;ptid=2171972" target="_blank">Achlys 发表于 2024-9-2 18:01</a></blockquote>
 这是YAB的前妻？
 
+
+*****
+
+####  noHentai  
+##### 706#       发表于 2024-9-3 23:45
+
+YAB那家公司的声明里已经明确JC介入了，真涉及犯罪了肯定跑不掉。
+
+说起来刚爆出这事的时候才知道这家底下还挂着个V，如果没有狼狈为奸的话我只能对这倒霉孩子表示心疼了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

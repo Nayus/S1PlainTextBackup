@@ -165,3 +165,19 @@ DQ3还是强啊。
 
 不知道公司对销量预期是多少，卖不过p3r问题就大了
 
+
+*****
+
+####  walfeds  
+##### 683#       发表于 2024-9-3 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩还是要玩的，但感觉销量压力很大
+
+
+*****
+
+####  roxassix  
+##### 684#       发表于 2024-9-3 13:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是反正已经从微软凯子那拿了一笔了，剩下卖多卖少无所谓了！
+

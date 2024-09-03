@@ -5332,3 +5332,25 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 社长：《闪之轨迹》系列起初是一款让玩家体验一个人生活的角色扮演游戏，所以这个决定交给玩家。然而，就个人而言，我希望是亚莉莎。
 
+
+*****
+
+####  ravend233  
+##### 3494#       发表于 2024-9-3 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66101216&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-3 17:18</a>
+
+这周边的cp图突出一个 人不要脸 天下无敌
+
+上面那三个 但凡我磕其中某一个cp都买不了一点 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很多都是闪1时期积累的，后面剧情待遇跟多还是转移到你法社不做人（
+
+*****
+
+####  洛克萨斯  
+##### 3495#       发表于 2024-9-3 17:33
+
+所长和拐圣双手开花，野餐队和艾约葱头吃货一个萝卜一个坑，就桃花剑与众不同<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+明明可以亚里沙和黑兔一起组一家三口的
+

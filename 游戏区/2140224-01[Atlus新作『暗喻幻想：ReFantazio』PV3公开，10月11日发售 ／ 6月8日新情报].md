@@ -25,3 +25,11 @@
 
 越来越觉得这个“阿基态”不合口味，发售了先观望吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  空洞骑士  
+##### 669#       发表于 2024-9-3 09:25
+
+没立绘的王选角色感觉是纯炮灰定位啊。
+

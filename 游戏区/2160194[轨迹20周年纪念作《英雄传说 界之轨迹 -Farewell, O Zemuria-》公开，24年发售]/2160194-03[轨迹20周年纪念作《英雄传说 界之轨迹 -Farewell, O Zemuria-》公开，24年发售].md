@@ -5293,3 +5293,42 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 周年图不这么分怎么分
 
+
+*****
+
+####  maojiashu  
+##### 3491#       发表于 2024-9-3 17:18
+
+这周边的cp图突出一个 人不要脸 天下无敌
+
+上面那三个 但凡我磕其中某一个cp都买不了一点 
+
+最心疼牢莎 啥戏份没有被吐槽路人女主 天天还要被拉出来营业 
+
+究竟是谁在买黎莎cp啊 这能磕下去的真是神人了吧
+
+
+*****
+
+####  keiyoku  
+##### 3492#       发表于 2024-9-3 17:23
+
+为啥普遍觉得nd要送钱啊，不知道任和日本游戏公司沟通和独立游戏沟通有没有区别
+某个国产独立游戏上indie world后制作人提过事先完全不知道会插哪个位置也不知道时长多少，到底是独立介绍还是直接丢轮播露个脸都不清楚，最后压轴了
+
+*****
+
+####  卢迪克  
+##### 3493#       发表于 2024-9-3 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66101216&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-3 17:18</a>
+
+这周边的cp图突出一个 人不要脸 天下无敌
+
+上面那三个 但凡我磕其中某一个cp都买不了一点 </blockquote>
+社长：正是在下<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+您认为谁是黎恩最好的爱情对象？
+
+社长：《闪之轨迹》系列起初是一款让玩家体验一个人生活的角色扮演游戏，所以这个决定交给玩家。然而，就个人而言，我希望是亚莉莎。
+

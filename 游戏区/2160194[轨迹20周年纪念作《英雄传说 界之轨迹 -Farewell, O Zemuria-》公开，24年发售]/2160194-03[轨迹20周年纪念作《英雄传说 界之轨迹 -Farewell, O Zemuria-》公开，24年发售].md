@@ -5137,3 +5137,11 @@ A26的人物建模和画面比你轨强多了</blockquote>
 —— 来自 Xiaomi 23127PN0CC, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
 黑兔是店铺特典，港版人下人一边去（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 3474#       发表于 2024-9-3 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">一般路人看完界轨跟a26的立绘后，脑子正常都不会选你轨吧
+

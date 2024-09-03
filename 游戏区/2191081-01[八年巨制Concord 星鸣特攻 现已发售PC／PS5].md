@@ -231,3 +231,79 @@ steam的渠道费退么<img src="https://static.saraba1st.com/image/smiley/face2
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好听，全退也没几块钱吧
 
+
+*****
+
+####  蓮華  
+##### 186#       发表于 2024-9-4 00:39
+
+再开服务器电费都收不回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 187#       发表于 2024-9-4 00:39
+
+可惜，退款也花不了几个钱，不能看到万代硬花钱保蓝色协议每半年亏损就越逆天一样的乐子
+
+
+*****
+
+####  傻白的牌子  
+##### 188#       发表于 2024-9-4 00:44
+
+要是你打马楼的水平菜一点的话，可能你一周目要花的时间都比这游戏的完整生命周期长了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 189#       发表于 2024-9-4 00:44
+
+索尼这不亏麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  novem  
+##### 190#       发表于 2024-9-4 00:45
+
+免费也不可能有人玩，SONY应该来大陆市场锻炼一下什么是网游市场的残酷，还是不差钱
+
+*****
+
+####  mimighost  
+##### 191#       发表于 2024-9-4 00:45
+
+我看这个要怎么回锅
+
+*****
+
+####  新田義史  
+##### 192#       发表于 2024-9-4 00:45
+
+下架关服了还怎么骄傲啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leufon  
+##### 193#       发表于 2024-9-4 00:46
+
+没事，再造几个投名状<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 194#       发表于 2024-9-4 00:47
+
+乐
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  水野貴弘  
+##### 195#       发表于 2024-9-4 00:47
+
+运营期间玩家流失最少的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

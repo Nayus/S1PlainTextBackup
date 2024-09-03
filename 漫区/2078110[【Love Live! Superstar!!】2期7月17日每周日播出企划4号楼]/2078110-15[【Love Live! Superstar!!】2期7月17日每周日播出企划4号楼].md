@@ -502,3 +502,15 @@ eupd这种傻逼公司怎么还没似啊
 
 鱼这次5单加了to签活动，初动3309😷事务所还是挺准，没to可能还要难点
 
+
+*****
+
+####  csolfans  
+##### 20996#       发表于 2024-9-3 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66082654&amp;ptid=2078110" target="_blank">ViyViy 发表于 2024-9-1 18:57</a>
+是不是今年愚人节说的展的预告……</blockquote>
+原来是小花的第一二季讲解
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

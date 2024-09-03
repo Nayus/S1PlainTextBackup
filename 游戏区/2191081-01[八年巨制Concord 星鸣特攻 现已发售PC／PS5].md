@@ -151,3 +151,83 @@ steam的渠道费退么<img src="https://static.saraba1st.com/image/smiley/face2
 
 能不能申请个世界纪录<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  渡辺梨加  
+##### 175#       发表于 2024-9-4 00:28
+
+说明这游戏就是索尼交给DEI的投名状吧，
+
+*****
+
+####  黄昏现白骨  
+##### 176#       发表于 2024-9-4 00:29
+
+至少还能退款不是<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  461757753  
+##### 177#       发表于 2024-9-4 00:29
+
+我居然有点想买个玩玩，现在买能无条件退吗
+
+*****
+
+####  エーデルガルト  
+##### 178#       发表于 2024-9-4 00:30
+
+至此，已成艺术
+可以算是游戏史上耻辱柱级别的大事件了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vladimeow  
+##### 179#       发表于 2024-9-4 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赔偿一下精神损失费 谢谢
+
+
+*****
+
+####  SAKURAJIMAI  
+##### 180#       发表于 2024-9-4 00:32
+
+这才多久啊就崩了？<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+*****
+
+####  6x6z6w  
+##### 181#       发表于 2024-9-4 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">今年游戏界最大的乐子全都是索尼捅出来的
+
+*****
+
+####  check  
+##### 182#       发表于 2024-9-4 00:34
+
+笑死，太乐了 。青史留名了
+
+*****
+
+####  madcow  
+##### 183#       发表于 2024-9-4 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才卖出去几份啊退了也就退了
+
+*****
+
+####  弁天  
+##### 184#       发表于 2024-9-4 00:34
+
+艰难的决定来得这么快<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UmarIbnLaAhad  
+##### 185#       发表于 2024-9-4 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好听，全退也没几块钱吧
+

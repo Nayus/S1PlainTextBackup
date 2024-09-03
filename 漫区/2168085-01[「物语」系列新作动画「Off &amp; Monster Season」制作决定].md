@@ -2293,3 +2293,16 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  仟音一心  
+##### 837#       发表于 2024-9-3 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102572&amp;ptid=2168085" target="_blank">Yinacona 发表于 2024-9-3 20:16</a>
+这一季后续计划是怎样的，业完就忍物语？结还有机会吗，想看老苍了
+
+—— 来自 HUAWEI ELS-AN00, Android 1 ...</blockquote>
+好像业物语还做一个火怜·食人魔然后才是忍物语。
+为什么不做翼·睡眠啊？
+

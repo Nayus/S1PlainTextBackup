@@ -4467,3 +4467,11 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 不过earth好不容易找了了1.6万粉的画师，ether又倒回去……好吧一想到是武士道那么这么幽默也很正常
 
+
+*****
+
+####  星天观测  
+##### 22592#       发表于 2024-9-3 18:52
+
+我只能说earth的立绘我挺满意的，如果最后特典用这套那ether复用3rd我也可以接受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

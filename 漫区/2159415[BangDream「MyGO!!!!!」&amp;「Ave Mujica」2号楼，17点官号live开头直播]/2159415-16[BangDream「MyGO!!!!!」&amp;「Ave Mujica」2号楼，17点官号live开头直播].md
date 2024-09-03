@@ -4475,3 +4475,13 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 我只能说earth的立绘我挺满意的，如果最后特典用这套那ether复用3rd我也可以接受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PDQ4  
+##### 22593#       发表于 2024-9-3 21:23
+
+3rd立绘复用可能性不高吧
+
+特典在那呢，如果elements特典图选的土当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

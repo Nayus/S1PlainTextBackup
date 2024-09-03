@@ -3261,3 +3261,15 @@ RELEASE：9/13(金)0:00</blockquote>
 
 有二次元偶像厨们打底至少不至于亏本，还能混一个世界首家偶像题材MMO的美名，要我说还是狗代脑子太僵硬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  王九的哥哥  
+##### 6305#       发表于 2024-9-3 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102366&amp;ptid=2130897" target="_blank">Alleyht 发表于 2024-9-3 19:49</a>
+反正蓝色协议也死了，人手和服务器资源干脆拿来做个爱马仕乱炖MMO得了
+
+玩家扮演制作人兼粉丝，使用各种各样 ...</blockquote>
+你是否想找:ほめ春香
+

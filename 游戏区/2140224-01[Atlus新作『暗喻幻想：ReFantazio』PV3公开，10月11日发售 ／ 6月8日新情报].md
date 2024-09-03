@@ -264,3 +264,11 @@ DQ3还是强啊。
 没上xgp，所以才说销量压力山大，a社还明说希望它成为p系列那种大招牌</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看成天给微软站台还以为上xgp了
 
+
+*****
+
+####  hkguty  
+##### 694#       发表于 2024-9-3 22:02
+
+我猜这次应该会直接出DLC升级完全版，像P3R那样
+

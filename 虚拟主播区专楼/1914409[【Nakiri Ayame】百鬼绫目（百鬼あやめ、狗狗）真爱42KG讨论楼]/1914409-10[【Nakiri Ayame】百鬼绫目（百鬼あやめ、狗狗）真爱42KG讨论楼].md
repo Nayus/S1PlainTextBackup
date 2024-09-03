@@ -148,3 +148,13 @@ bsyl，绫总第二把开局游龙了<img src="https://static.saraba1st.com/imag
 
 绫总就得多用3D啊
 
+
+*****
+
+####  因为你不会  
+##### 14790#       发表于 2024-9-3 11:54
+
+ 本帖最后由 因为你不会 于 2024-9-3 11:55 编辑 
+
+绫总说亏毕业直播的时候哭惨了，突然想起以前虫蝗毕业的时候绫总搁那打lol被冲的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间过好快啊，周年快乐，绫总
+

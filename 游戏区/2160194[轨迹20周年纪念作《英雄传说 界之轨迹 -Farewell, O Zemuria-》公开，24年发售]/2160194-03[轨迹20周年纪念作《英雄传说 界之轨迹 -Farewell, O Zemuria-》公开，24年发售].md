@@ -5145,3 +5145,14 @@ A26的人物建模和画面比你轨强多了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">一般路人看完界轨跟a26的立绘后，脑子正常都不会选你轨吧
 
+
+*****
+
+####  卢迪克  
+##### 3475#       发表于 2024-9-3 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66096763&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-9-3 09:48</a>
+
+一般路人看完界轨跟a26的立绘后，脑子正常都不会选你轨吧</blockquote>
+都不是一个档期，不如担心被同是9.26的林克传说爆杀
+

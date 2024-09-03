@@ -7854,3 +7854,31 @@ image.png
 
 [https://www.twitch.tv/kagura0mea ... ng-BWZXvec6jEI6XYH0](https://www.twitch.tv/kagura0mea/clip/PeacefulCheerfulPigeonStoneLightning-BWZXvec6jEI6XYH0)
 
+
+*****
+
+####  TiHaru  
+##### 17339#       发表于 2024-9-2 22:39
+
+パチ屋のスロットで大負けをしてお金がなくなってしまい爆勝ちしてる隣の見知らぬ客のおじさんをその場で抜いてお金を貰う神●めあ
+
+*****
+
+####  TiHaru  
+##### 17340#       发表于 2024-9-2 23:54
+
+[https://www.twitch.tv/kagura0mea ... ng-BWZXvec6jEI6XYH0](https://www.twitch.tv/kagura0mea/clip/PeacefulCheerfulPigeonStoneLightning-BWZXvec6jEI6XYH0)
+
+*****
+
+####  伊悠  
+##### 17341#       发表于 2024-9-3 09:09
+
+<img src="https://img.saraba1st.com/forum/202409/03/090937sqtq6jqth9946mhm.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240903090929.jpg</strong> (380.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 09:09 上传
+

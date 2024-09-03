@@ -5071,3 +5071,14 @@ A26的人物建模和画面比你轨强多了</blockquote>
 
 序章就有重大事件发生这个话怎么那么耳熟呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  妮贝雅  
+##### 3468#       发表于 2024-9-3 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66096172&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-3 08:47</a>
+
+序章就有重大事件发生这个话怎么那么耳熟呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">喜欢我克洛斯贝尔统一国吗
+

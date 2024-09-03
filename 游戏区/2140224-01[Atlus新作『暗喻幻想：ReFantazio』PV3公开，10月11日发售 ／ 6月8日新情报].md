@@ -181,3 +181,14 @@ DQ3还是强啊。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是反正已经从微软凯子那拿了一笔了，剩下卖多卖少无所谓了！
 
+
+*****
+
+####  直钩  
+##### 685#       发表于 2024-9-3 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66097985&amp;ptid=2140224" target="_blank">woaimiyabi 发表于 2024-9-3 11:39</a>
+
+男主怎么像女的</blockquote>
+现在阿特拉斯就爱搞这个，p3p4p5主角都有女装登场过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

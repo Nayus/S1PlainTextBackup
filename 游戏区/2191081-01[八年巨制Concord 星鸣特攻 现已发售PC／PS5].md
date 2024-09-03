@@ -779,3 +779,17 @@ sony是支持不下去了，steam在昨天在线全员已经只能凑出2场比�
 
 都是作的，我到要看看这些工作室和市场作对他们还有多少弹药
 
+
+*****
+
+####  mimighost  
+##### 246#       发表于 2024-9-4 04:02
+
+era上面那些左逼笑死我了
+
+说索尼会给firewalk第二次机会应该会继续招人，挽救concord，或者开发新的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以老板决定炒了自己来背锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+果然都是一些一天都没工作过的five
+

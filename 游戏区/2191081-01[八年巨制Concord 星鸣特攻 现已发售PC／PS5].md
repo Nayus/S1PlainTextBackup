@@ -662,3 +662,65 @@ https://job-boards.greenhouse.io/firewalk
 
 带慈善家骚尼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  monikaca  
+##### 235#       发表于 2024-9-4 01:38
+
+<blockquote>洛克萨斯 发表于 2024-9-4 01:08
+怎么才两亿美金，亏的好少</blockquote>
+换个角度想，他们亏掉了三个黑神话，是不是就血亏了。
+
+*****
+
+####  FLZB  
+##### 236#       发表于 2024-9-4 01:39
+
+他甚至不愿改f2p，索尼就是大气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我要写个惨字  
+##### 237#       发表于 2024-9-4 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104898&amp;ptid=2191081" target="_blank">nailuo1993 发表于 2024-9-4 01:28</a>
+
+喷子们赢了，Concord死了，后面我忘了</blockquote>
+跟《幻》比起来少一道游戏媒体工序。
+
+机核当年吹《幻》被喷，西蒙是耍撂狠话“大不了我们以后不推任何处在开发期的游戏了”；后来吹《tlou2》，也发了道歉稿，西蒙却不敢说“大不了我们以后不推索尼游戏了”。
+
+不过像IGN这种脸皮太厚，可能不会有这种节目。
+
+*****
+
+####  UT99  
+##### 238#       发表于 2024-9-4 01:42
+
+话说之前不是亚马逊宣了个短篇动画集号称游戏版爱死机的吗，索尼还赞助了一集做concord剧情，现在动画还没播游戏似了，不敢想开播那天有多搞笑
+
+*****
+
+####  plok201  
+##### 239#       发表于 2024-9-4 01:43
+
+这一切都得从ABK收购说起<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这波zzzq就该让大企业狠狠的亏钱，最好是还有不服输的，继续弄，等亏钱的死光了就好起来了
+
+
+*****
+
+####  mimighost  
+##### 240#       发表于 2024-9-4 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104957&amp;ptid=2191081" target="_blank">FLZB 发表于 2024-9-4 01:39</a>
+
+他甚至不愿改f2p，索尼就是大气</blockquote>
+f2p也撑不了多久，f2p要撑起这个游戏盈利那在线人数要达到十几万的水平，按照1/50的安装比，这游戏至少要吸引500w来下载
+
+就现在这个鸟样，真是倒给钱都不一定有人来凑热闹
+
+只能把这游戏拆了，素材拿去开发新游戏。可惜这个concord又不是ff，se当时不得不救，sony说不定就把这游戏给盖了，挡没存在过
+

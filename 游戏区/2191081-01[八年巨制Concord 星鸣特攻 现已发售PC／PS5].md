@@ -332,3 +332,107 @@ steam的渠道费退么<img src="https://static.saraba1st.com/image/smiley/face2
 
 有实体版吗，现在收藏一份是不是以后能升值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  oznark  
+##### 199#       发表于 2024-9-4 00:56
+
+快进到下一步游戏光盘生产太多了，要拉到沙漠里去埋掉
+
+*****
+
+####  洛克萨斯  
+##### 200#       发表于 2024-9-4 00:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能算出索尼这个项目亏了多少么，好开心
+
+
+*****
+
+####  RookieTnT  
+##### 201#       发表于 2024-9-4 00:58
+
+瓦都是画好看的, 塞点同性恋进去. 反正看角色剧情的玩家没多少. 说到底角色不好看不是死罪. 不好玩才是死罪
+
+*****
+
+####  lilisipis  
+##### 202#       发表于 2024-9-4 00:58
+
+索尼现在派人帮黑猴优化还来得及
+
+*****
+
+####  gdh4chang  
+##### 203#       发表于 2024-9-4 00:59
+
+最速下葬传说
+
+*****
+
+####  苦瓜师傅  
+##### 204#       发表于 2024-9-4 00:59
+
+uncle Jim node head<img src="https://p.sda1.dev/19/2ec1c5a006208a8854b11a5bcf6e93fa/image.jpg" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  朔方原的星  
+##### 205#       发表于 2024-9-4 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104518&amp;ptid=2191081" target="_blank">Variks 发表于 2024-9-4 00:27</a>
+能不能申请个世界纪录</blockquote>
+搞不好还真能，这差不多是历史上最失败的3A游戏了吧
+
+*****
+
+####  lesson  
+##### 206#       发表于 2024-9-4 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我们也有00后的“ET”啦！历史重现
+
+*****
+
+####  barry.allen  
+##### 207#       发表于 2024-9-4 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104497&amp;ptid=2191081" target="_blank">蓮華 发表于 2024-9-4 00:24</a>
+
+反正也没卖出多少份吧</blockquote>
+有报道说是2w5
+
+和7年开发成本比是杯水车薪，如果是个独立游戏这个销量有赚。
+
+一个对比，Steam有个射击游戏Splitgate ，是结合了传送门+老光环多人战斗手感的游戏，制作组一共仨人，出过PS版，Steam巅峰在线人数2万多。现代已经在做2代了，这还是个免费游戏+季票皮肤收费模式的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rapture1st  
+##### 208#       发表于 2024-9-4 01:02
+
+好似喵好似喵
+
+*****
+
+####  ナルバレック  
+##### 209#       发表于 2024-9-4 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104721&amp;ptid=2191081" target="_blank">洛克萨斯 发表于 2024-9-4 00:57</a>
+
+能算出索尼这个项目亏了多少么，好开心</blockquote>
+工作室吹牛逼的时候说成本是两个亿，基本上至少能把今年老司机和土命大爆赚的钱给完完整整的平账掉，100%亏损比两个爆款更凶残，对索尼来说虽然今年GAAS有两个成功案例，但一个只有亏损没有盈利的GAAS项目显然很伤，应该财报利润比又会是御三家最低的
+
+*****
+
+####  yourSwaTer  
+##### 210#       发表于 2024-9-4 01:04
+
+有漏油能说下这游戏一共亏了多少吗
+-----
+
+（发完贴就看到楼上回复了）
+

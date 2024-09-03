@@ -3255,3 +3255,16 @@ minoru通关，原来如此。</blockquote>
 消失在雪中的过去 估计因为版权问题 永无重见天日的机会了</blockquote>
 估计黑历史化了，emio的全名带着正统前缀Fc的，雪中的过去全名叫BS侦探俱乐部，没带FC前缀
 
+
+*****
+
+####  Piano-Forest  
+##### 316#         楼主| 发表于 2024-9-3 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66050970&amp;ptid=2190950" target="_blank">Piano-Forest 发表于 2024-8-29 10:55</a>
+
+开发者采访（坂本贺勇、宫地香绪里）
+
+日：https://www.nintendo.com/jp/interview/a7lqa/index.html</blockquote>
+官中：[https://www.nintendo.com.hk/interview/a7lqa/index.html](https://www.nintendo.com.hk/interview/a7lqa/index.html)
+

@@ -5412,3 +5412,16 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 上面那三个 但凡我磕其中某一个cp都买不了一点 </blockquote>
 闪3开新七班就是falcom摆明旧七写烂了自生自灭的状态了，后面几乎官推就是黑兔亲女儿营业了，没有什么牢莎
 
+
+*****
+
+####  maojiashu  
+##### 3502#       发表于 2024-9-3 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66101666&amp;ptid=2160194" target="_blank">涂鸦恶魔 发表于 2024-9-3 18:11</a>
+
+闪3开新七班就是falcom摆明旧七写烂了自生自灭的状态了，后面几乎官推就是黑兔亲女儿营业了，没有什么牢 ...</blockquote>
+牢莎每次被拉出来营业和鞭尸一样
+
+真给我恶心坏了
+

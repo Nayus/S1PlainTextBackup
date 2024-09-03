@@ -4429,3 +4429,21 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 2024-9-3 11:18 上传
 
+
+*****
+
+####  御幸一也  
+##### 22588#       发表于 2024-9-3 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66089918&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-2 13:53</a>
+
+有立本人猜以太的mv会不会直接用3rd立绘</blockquote>
+是可以這麼省的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives10  
+##### 22589#       发表于 2024-9-3 13:27
+
+毕竟一个1st的主视觉图用了两个mv 无数特典 最后还出了立牌
+

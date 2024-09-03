@@ -54,3 +54,100 @@ LGBTQ+员工拿到钱了</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  chaucerling  
+##### 162#       发表于 2024-9-4 00:18
+
+能退款比EA有良心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Onelooker  
+##### 163#       发表于 2024-9-4 00:19
+
+索尼这么大方啊，看来亏的还不够多
+
+*****
+
+####  siebten  
+##### 164#       发表于 2024-9-4 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索尼大方
+
+*****
+
+####  kykawaiii  
+##### 165#       发表于 2024-9-4 00:21
+
+亏的还是太少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  frankCC  
+##### 166#       发表于 2024-9-4 00:21
+
+浩劫前夕4天下架，concord 14天下架，可得1C = 3.5浩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  melvin95  
+##### 167#       发表于 2024-9-4 00:22
+
+索尼大气啊，居然给退款<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 168#       发表于 2024-9-4 00:24
+
+反正也没卖出多少份吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  影魔王  
+##### 169#       发表于 2024-9-4 00:24
+
+已经结束叻
+
+*****
+
+####  banjia0815  
+##### 170#       发表于 2024-9-4 00:25
+
+看来索尼也是实在拉不下脸，半个月都没撑到，没出过这么丢人的第一方游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qsscwddv1  
+##### 171#       发表于 2024-9-4 00:25
+
+reddit上有个评论：
+
+“干嘛发公告呢，一个个私信玩家的不就行了”
+
+*****
+
+####  二阶堂真琉  
+##### 172#       发表于 2024-9-4 00:25
+
+年度好笑事件了这下
+
+*****
+
+####  TANA  
+##### 173#       发表于 2024-9-4 00:26
+
+steam的渠道费退么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Variks  
+##### 174#       发表于 2024-9-4 00:27
+
+能不能申请个世界纪录<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

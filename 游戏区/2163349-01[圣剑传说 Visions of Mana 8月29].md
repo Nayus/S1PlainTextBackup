@@ -216,3 +216,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 搞不懂为什么种子槽不像精灵器上限一样放主线奖励，这玩意影响太大了，漏掉总感觉很不爽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Kojimaru  
+##### 245#       发表于 2024-9-4 00:24
+
+公主这个劈叉骑在坐骑上让我跑图的时候有点挪不开眼啊，下作<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

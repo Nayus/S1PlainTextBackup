@@ -1778,3 +1778,22 @@ Callie (Alterna).bin
 
 延迟好像好多了但是掉线频率高了，过于神必
 
+
+*****
+
+####  shirolin  
+##### 5111#       发表于 2024-9-3 08:41
+
+昨晚发起的投票。
+看来各地网络状况差异还是挺大的。
+
+<img src="https://img.saraba1st.com/forum/202409/03/084104zzjjbiiluzhsijql.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240903-084039.png</strong> (379.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 08:41 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

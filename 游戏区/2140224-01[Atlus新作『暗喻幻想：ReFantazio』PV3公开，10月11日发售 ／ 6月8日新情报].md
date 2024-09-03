@@ -254,3 +254,13 @@ DQ3还是强啊。
 
 先玩P3F，这个等完全版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  roxassix  
+##### 693#       发表于 2024-9-3 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66100292&amp;ptid=2140224" target="_blank">抽烟的猴 发表于 2024-9-3 15:44</a>
+没上xgp，所以才说销量压力山大，a社还明说希望它成为p系列那种大招牌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看成天给微软站台还以为上xgp了
+

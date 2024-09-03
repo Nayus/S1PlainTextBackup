@@ -5433,3 +5433,13 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这系列就毁在卖角色上  法老空没有那个活还屡败屡战 
 
+
+*****
+
+####  ravend233  
+##### 3504#       发表于 2024-9-3 19:59
+
+你法社对于卖角色的理解就是后宫争宠，那咋办嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">赚不到钱应得的
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

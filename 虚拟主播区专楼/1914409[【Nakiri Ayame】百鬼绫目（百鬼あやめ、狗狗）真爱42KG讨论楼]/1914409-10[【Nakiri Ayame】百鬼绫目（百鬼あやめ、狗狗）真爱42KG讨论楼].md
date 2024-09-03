@@ -174,3 +174,15 @@ bsyl，绫总第二把开局游龙了<img src="https://static.saraba1st.com/imag
 
 刚进直播间，还挺震撼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  因为你不会  
+##### 14792#       发表于 2024-9-3 20:03
+
+ 本帖最后由 因为你不会 于 2024-9-3 20:07 编辑 
+
+[https://shop.hololivepro.com/products/nakiriayame_an6th](https://shop.hololivepro.com/products/nakiriayame_an6th)
+
+周年套装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

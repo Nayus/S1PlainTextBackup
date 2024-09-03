@@ -3276,3 +3276,11 @@ minoru通关，原来如此。</blockquote>
 
 故事真的太没劲了，而且推理要素基本为零，上当
 
+
+*****
+
+####  zaozaoxx  
+##### 318#       发表于 2024-9-4 01:23
+
+这故事都很难当社会派了，整个游戏最能看的只有最后一段制作水平还能看的长动画。可惜了这个谜面，人设也不是说无趣，但是情节的无效推进和推理严重匮乏是灾难级的。没玩的我真建议别买，剧本相当不如前作<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

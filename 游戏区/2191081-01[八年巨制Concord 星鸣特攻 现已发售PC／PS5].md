@@ -589,3 +589,54 @@ https://job-boards.greenhouse.io/firewalk
 现在firewalk空缺的职位：</blockquote>
 这家工作室我记得本来就是一群从EA,暴雪和棒鸡跑出来的人，好像还有原先在暴雪的一个国 人 拳 师吧，可能也被开了
 
+
+*****
+
+####  makece  
+##### 226#       发表于 2024-9-4 01:18
+
+来个尘白式重制就行吧 男的 zzzq设定全删了 女的全改成烧鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我不是夏承凛  
+##### 227#       发表于 2024-9-4 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104824&amp;ptid=2191081" target="_blank">ナルバレック 发表于 2024-9-4 01:15</a>
+这家工作室我记得本来就是一群从EA,暴雪和棒鸡跑出来的人，好像还有原先在暴雪的一个国**师吧，可能也被 ...</blockquote>
+估计是，哔哩哔哩和小红书已经销号跑路。
+
+
+*****
+
+####  RookieTnT  
+##### 228#       发表于 2024-9-4 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104840&amp;ptid=2191081" target="_blank">makece 发表于 2024-9-4 01:18</a>
+
+来个尘白式重制就行吧 男的 zzzq设定全删了 女的全改成烧鸡</blockquote>
+这游戏死罪是不好玩. 而且还是40刀.  一点点创新都没. 我为什么要去玩你这40刀的新游戏
+
+*****
+
+####  蒂芙尼的早餐  
+##### 229#       发表于 2024-9-4 01:24
+
+这游戏有单人模式吗 
+
+这事情太爆笑了我甚至想现在买一份藏几年说不定以后能高价卖给赛博品雪家 
+
+*****
+
+####  抹茶瓜  
+##### 230#       发表于 2024-9-4 01:27
+
+索索笑话 乐死我了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nailuo1993  
+##### 231#       发表于 2024-9-4 01:28
+
+喷子们赢了，Concord死了，后面我忘了
+

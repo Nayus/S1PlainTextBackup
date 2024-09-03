@@ -524,3 +524,11 @@ eupd这种傻逼公司怎么还没似啊
 鱼这次5单加了to签活动，初动3309😷事务所还是挺准，没to可能还要难点</blockquote>
 人还是那么些人，不会因为有to就一下子暴增，to只是个添头，而且现场限5套，还有买一套的人，复数大量购买也不会全部计入
 
+
+*****
+
+####  starring  
+##### 20998#       发表于 2024-9-3 19:02
+
+5单的初动比之前的低了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -724,3 +724,23 @@ f2p也撑不了多久，f2p要撑起这个游戏盈利那在线人数要达到�
 
 只能把这游戏拆了，素材拿去开发新游戏。可惜这个concord又不是ff，se当时不得不救，sony说不定就把这游戏给盖了，挡没存在过
 
+
+*****
+
+####  wolf1997  
+##### 241#       发表于 2024-9-4 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104475&amp;ptid=2191081" target="_blank">frankCC 发表于 2024-9-4 00:21</a>
+浩劫前夕4天下架，concord 14天下架，可得1C = 3.5浩</blockquote>
+浩劫前夕2023年12月8日开服、2024年1月22日关服，服务器开了45天，而星鸣特工仅14天就要关服了
+
+
+*****
+
+####  Shih0_Matsuri  
+##### 242#       发表于 2024-9-4 01:56
+
+想点好的，索尼今年亏成这样闹了这么多笑话，今年的野鸡奖tga应该没有索尼塞钱的踪迹了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.2-alpha
+

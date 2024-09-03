@@ -246,3 +246,11 @@ DQ3还是强啊。
 
 我一开始就这么觉得 尤其是主角大头那个主菜单
 
+
+*****
+
+####  蓮華  
+##### 692#       发表于 2024-9-3 16:03
+
+先玩P3F，这个等完全版<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

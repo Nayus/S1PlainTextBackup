@@ -5399,3 +5399,16 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  涂鸦恶魔  
+##### 3501#       发表于 2024-9-3 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66101216&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-3 17:18</a>
+
+这周边的cp图突出一个 人不要脸 天下无敌
+
+上面那三个 但凡我磕其中某一个cp都买不了一点 </blockquote>
+闪3开新七班就是falcom摆明旧七写烂了自生自灭的状态了，后面几乎官推就是黑兔亲女儿营业了，没有什么牢莎
+

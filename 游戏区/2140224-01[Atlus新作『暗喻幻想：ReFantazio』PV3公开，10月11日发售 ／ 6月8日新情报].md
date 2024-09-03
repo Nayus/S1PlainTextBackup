@@ -149,3 +149,11 @@ p3r日本十万 这作感觉日本首发就五六万了吧
 
 DQ3还是强啊。
 
+
+*****
+
+####  heseran  
+##### 681#       发表于 2024-9-3 12:44
+
+买还是要买的，但愿铁三角别让我太失望吧，不过现在我对这游戏的期待是有80分的水准就可以了，期待放低一些可以更好地享受游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

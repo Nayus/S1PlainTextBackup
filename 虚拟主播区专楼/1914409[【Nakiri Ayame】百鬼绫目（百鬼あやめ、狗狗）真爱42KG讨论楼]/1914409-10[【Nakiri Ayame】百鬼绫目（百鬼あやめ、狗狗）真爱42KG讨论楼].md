@@ -158,3 +158,19 @@ bsyl，绫总第二把开局游龙了<img src="https://static.saraba1st.com/imag
 
 绫总说亏毕业直播的时候哭惨了，突然想起以前虫蝗毕业的时候绫总搁那打lol被冲的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间过好快啊，周年快乐，绫总
 
+
+*****
+
+####  因为你不会  
+##### 14791#       发表于 2024-9-3 19:49
+
+<img src="https://img.saraba1st.com/forum/202409/03/194916p01tctu3qze217mb.jpg" referrerpolicy="no-referrer">
+
+<strong>搜狗截图20240903204857.jpg</strong> (313.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 19:49 上传
+
+刚进直播间，还挺震撼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

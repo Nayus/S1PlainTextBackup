@@ -13125,3 +13125,11 @@ bb2宝了两个四星都没影...
 
 这个爱迪生ALTER有什么意义吗，原版狮子头就很混沌了..一看就是不会实装的玩意
 
+
+*****
+
+####  khxooo  
+##### 14540#       发表于 2024-9-3 19:29
+
+心痒想开徐福的图鉴，谁知道1个10连3个直接来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

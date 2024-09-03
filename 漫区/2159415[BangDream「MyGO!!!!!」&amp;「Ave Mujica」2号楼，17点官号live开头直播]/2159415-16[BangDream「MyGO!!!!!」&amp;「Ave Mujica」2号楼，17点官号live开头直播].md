@@ -4457,3 +4457,13 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 <img src="https://p.sda1.dev/19/5b90b72c2bf3b9b55e51e3a99bc9154a/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/51a0e751f7165793831d05e02af7541c/image.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  前方暴雨预警  
+##### 22591#       发表于 2024-9-3 17:13
+
+就wsd那个一个1st视觉图糊弄两个MV的风格，真心挺可能把3rd复用。
+
+不过earth好不容易找了了1.6万粉的画师，ether又倒回去……好吧一想到是武士道那么这么幽默也很正常
+

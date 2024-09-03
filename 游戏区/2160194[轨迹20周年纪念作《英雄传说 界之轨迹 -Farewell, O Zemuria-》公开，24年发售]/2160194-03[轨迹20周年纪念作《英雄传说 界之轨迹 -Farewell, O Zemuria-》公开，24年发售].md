@@ -5115,3 +5115,25 @@ A26的人物建模和画面比你轨强多了</blockquote>
 
 还真可能来个序章全是老角色，方便宣传
 
+
+*****
+
+####  光之阶梯  
+##### 3472#       发表于 2024-9-3 09:42
+
+港版预购特典就一件黎老师衣服？黑兔的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ravend233  
+##### 3473#       发表于 2024-9-3 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66096714&amp;ptid=2160194" target="_blank">光之阶梯 发表于 2024-9-3 09:42</a>
+
+港版预购特典就一件黎老师衣服？黑兔的呢？
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 S1Next-鹅版 v2 ...</blockquote>
+黑兔是店铺特典，港版人下人一边去（<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

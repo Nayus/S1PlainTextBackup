@@ -5063,3 +5063,11 @@ A26的人物建模和画面比你轨强多了</blockquote>
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  一步成诗  
+##### 3467#       发表于 2024-9-3 08:47
+
+序章就有重大事件发生这个话怎么那么耳熟呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

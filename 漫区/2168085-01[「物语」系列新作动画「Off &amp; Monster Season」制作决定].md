@@ -2267,3 +2267,29 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 魔女的祝福被尊主吸走了，美丽公主美丽的内心也分割了
 
+
+*****
+
+####  Tachikoma88  
+##### 835#       发表于 2024-9-3 20:15
+
+<img src="https://img.saraba1st.com/forum/202409/03/201456ub8vtpbhprrfuu9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240903_201436_com.sina.weibo.jpg</strong> (177.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-3 20:14 上传
+
+物语马拉松可还行，会玩
+
+*****
+
+####  Yinacona  
+##### 836#       发表于 2024-9-3 20:16
+
+这一季后续计划是怎样的，业完就忍物语？结还有机会吗，想看老苍了
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

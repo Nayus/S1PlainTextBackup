@@ -640,3 +640,25 @@ https://job-boards.greenhouse.io/firewalk
 
 喷子们赢了，Concord死了，后面我忘了
 
+
+*****
+
+####  siebten  
+##### 232#       发表于 2024-9-4 01:29
+
+想起看着就很暴死的万代的高达进化起码还活了一年呢 比这游戏下架更快的应该就只有那个僵尸诈骗游戏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  巨馍蘸酱  
+##### 233#       发表于 2024-9-4 01:31
+
+看来是真没卖出去几份，全退了也没多少钱，还能挽回点口碑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smdzh2  
+##### 234#       发表于 2024-9-4 01:32
+
+带慈善家骚尼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -317,3 +317,11 @@ DQ3还是强啊。
 
 卖不过p3r是铁定的，p3r带xgp首周100w的atlus社内记录估计能打破的就只有p4r和p6了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PigMourne  
+##### 699#       发表于 2024-9-4 01:36
+
+a社要是出一个人设剧情画面都约等于0的树类似物再加上日程管理，让玩家纯玩系统，会不会比缝来缝去两头都想吃的暗喻幻想热度高？对我来说a社把rpg和日程管理做好就差不多值回票价了，3巨头的人设ui和bgm只是添头，就算拉了也不影响购买<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

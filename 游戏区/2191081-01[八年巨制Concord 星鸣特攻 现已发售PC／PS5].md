@@ -28,3 +28,29 @@ Epic Games Store – Epic Games Store 将在未来几天内向购买该游戏的
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  和菜头  
+##### 160#       发表于 2024-9-4 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66065043&amp;ptid=2191081" target="_blank">windtrack 发表于 2024-8-30 15:56</a>
+我觉得这游戏挺成功的
+
+DEI机构拿到钱了
+
+LGBTQ+员工拿到钱了</blockquote>
+笑死，只有索尼受伤的世界达成了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 161#       发表于 2024-9-4 00:09
+
+太幽默了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

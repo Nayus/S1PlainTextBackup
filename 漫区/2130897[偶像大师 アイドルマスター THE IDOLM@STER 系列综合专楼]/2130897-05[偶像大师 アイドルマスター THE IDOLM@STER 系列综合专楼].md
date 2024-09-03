@@ -3233,3 +3233,11 @@ RELEASE：9/13(金)0:00</blockquote>
 
 即便如此还是得超，就缺一张白fes卡就能齐我担当的图鉴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zqpm1235  
+##### 6302#       发表于 2024-9-3 09:25
+
+9年作为手游也算长寿了，不管是bn还是cy问题也该换代新游戏了
+

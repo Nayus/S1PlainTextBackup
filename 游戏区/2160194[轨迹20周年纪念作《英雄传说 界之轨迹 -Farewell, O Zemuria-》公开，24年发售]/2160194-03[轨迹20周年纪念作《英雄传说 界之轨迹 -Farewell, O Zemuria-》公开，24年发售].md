@@ -5082,3 +5082,36 @@ A26的人物建模和画面比你轨强多了</blockquote>
 序章就有重大事件发生这个话怎么那么耳熟呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">喜欢我克洛斯贝尔统一国吗
 
+
+*****
+
+####  悠悠你心  
+##### 3469#       发表于 2024-9-3 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66096172&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-3 08:47</a>
+序章就有重大事件发生这个话怎么那么耳熟呢</blockquote>
+喜欢我闪4老角色勇闯兰花塔吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  maojiashu  
+##### 3470#       发表于 2024-9-3 09:32
+
+这次会怎么安排戏份呢 
+
+黎老师人气那么高 不会和van桑平起平坐吧
+
+*****
+
+####  ravend233  
+##### 3471#       发表于 2024-9-3 09:35
+
+ 本帖最后由 ravend233 于 2024-9-3 09:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答案是行基神故事直接半路化生真主角
+
+还真可能来个序章全是老角色，方便宣传
+

@@ -1797,3 +1797,21 @@ Callie (Alterna).bin
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  罗克萨斯  
+##### 5112#       发表于 2024-9-3 09:25
+
+偶然看到XP3557的鹦鹉螺玩家配装，果然大家都差不多
+
+<img src="https://img.saraba1st.com/forum/202409/03/092548hpm6ko7mhm4z5n7d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>GWeAPKCWAAAvu2I.jpeg</strong> (134.54 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 09:25 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

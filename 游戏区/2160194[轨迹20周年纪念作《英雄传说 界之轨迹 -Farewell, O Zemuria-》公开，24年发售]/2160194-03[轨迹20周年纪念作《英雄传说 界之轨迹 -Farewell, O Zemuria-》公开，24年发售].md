@@ -5156,3 +5156,34 @@ A26的人物建模和画面比你轨强多了</blockquote>
 一般路人看完界轨跟a26的立绘后，脑子正常都不会选你轨吧</blockquote>
 都不是一个档期，不如担心被同是9.26的林克传说爆杀
 
+
+*****
+
+####  ravend233  
+##### 3476#       发表于 2024-9-3 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这需要担心吗，9.26除了最结晶的轨批谁玩界轨啊
+
+*****
+
+####  无动于衷  
+##### 3477#       发表于 2024-9-3 10:28
+
+<blockquote>Kojimaru 发表于 2024-9-3 09:48
+一般路人看完界轨跟a26的立绘后，脑子正常都不会选你轨吧</blockquote>
+a26普通版都卖9680了 ps5甚至跟ps4不同价（说明不白送）你选哪个
+
+*****
+
+####  菟原手兒奈  
+##### 3478#       发表于 2024-9-3 10:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等界2出来再一口气补吧，现在更期待伊苏新作，明年会有吗
+
+*****
+
+####  卢迪克  
+##### 3479#       发表于 2024-9-3 10:31
+
+19号售前特辑，也就是下周就结束角色介绍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

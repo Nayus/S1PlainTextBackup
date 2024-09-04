@@ -6526,3 +6526,11 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 看到赛里斯这经典立绘，只能微笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 3602#       发表于 2024-9-5 00:02
+
+看起来还出现了冰火双娃单独行动可控的场景，到底分了多少线啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

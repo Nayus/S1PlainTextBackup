@@ -13133,3 +13133,11 @@ bb2宝了两个四星都没影...
 
 心痒想开徐福的图鉴，谁知道1个10连3个直接来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  保罗赫伯特  
+##### 14541#       发表于 2024-9-4 17:56
+
+打奏三还多送石头了，后面应该还是有三池吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

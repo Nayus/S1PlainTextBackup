@@ -652,3 +652,15 @@ App权限申请与使用说明：[https://www.bilibili.com/blackboard/activity-4
 
 第三方信息共享清单：[https://www.bilibili.com/blackboard/activity-JDBsks4XG.html](https://www.bilibili.com/blackboard/activity-JDBsks4XG.html)
 
+
+*****
+
+####  hxy8241  
+##### 66#       发表于 2024-9-4 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66108785&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 13:32</a>
+首先不提我这种不给权限的，系统的麦克风权限在调用时在任务栏是有提示的 ...</blockquote>
+刚试了微信语音输入，没有任何其他提示。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

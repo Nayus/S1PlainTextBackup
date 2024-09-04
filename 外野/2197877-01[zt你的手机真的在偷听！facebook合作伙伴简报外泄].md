@@ -896,3 +896,13 @@ https://source.android.com/docs/c ...</blockquote>
 
 —— 来自 realme RMX3366, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  armedangel  
+##### 87#       发表于 2024-9-5 06:51
+
+找修手机主板的私人店把麦克风和相关传感器弄坏？
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+

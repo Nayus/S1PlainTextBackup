@@ -4748,3 +4748,33 @@ r那个太抽象了，能猜出来一两首歌曲可能相关吗？
 
 携带恋话可能性基本没有，烤的特供商曲一般不会卖版权，而且和5人也没关系，这个5人+手机能猜的范围太大了，我第一反应还是来打和连者，也看到有猜是yuyuyu的
 
+
+*****
+
+####  NODY  
+##### 22621#       发表于 2024-9-4 19:19
+
+<img src="https://img.saraba1st.com/forum/202409/04/191903ij20m09wxic0h1mo.jpg" referrerpolicy="no-referrer">
+
+<strong>GWnyDtIbgAAdb6g.jpg</strong> (645.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202409/04/191903rogpip0k399ge60i.jpg" referrerpolicy="no-referrer">
+
+<strong>GWnyDtDaIAAoeQC.jpg</strong> (574.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 19:19 上传
+
+
+*****
+
+####  鳥栖朝  
+##### 22622#       发表于 2024-9-4 19:22
+
+见证mujica吧禁止用大x/大x老师来称呼祥真是太爽了（虽然活跃人数有点少）
+

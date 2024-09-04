@@ -826,3 +826,34 @@ https://source.android.com/docs/c ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  gane1010  
+##### 80#       发表于 2024-9-4 16:47
+
+早几年欧美那边对隐私啥的还是很重视的  但是这几年经过厂商的驯化  对这方面也没以前那么重视了  只要能奶头乐 别的也无所谓 估计再经过一些年 国外的厂商可以向国内的靠齐了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adw667  
+##### 81#       发表于 2024-9-4 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109442&amp;ptid=2197877" target="_blank">Mr姜 发表于 2024-9-4 14:38</a>
+
+我用小米设置里就可以看应用流量消耗，这功能早集成到手机系统里了吧</blockquote>
+也是几点几分哪个程序用了多少流量的吗
+
+
+*****
+
+####  两袖清风和中堂  
+##### 82#       发表于 2024-9-4 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107711&amp;ptid=2197877" target="_blank">苍月·蓝 发表于 2024-9-4 11:59</a>
+手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得 ...</blockquote>
+企鹅雇佣了多少退休xx，整个线条上经手也不少，又有几个知道的？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

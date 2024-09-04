@@ -4709,3 +4709,18 @@ op会忘词吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.g
 
 翻了一圈好像没人猜萝的是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  御幸一也  
+##### 22616#       发表于 2024-9-4 16:56
+
+刺團的歌可不好唱呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rikaren  
+##### 22617#       发表于 2024-9-4 16:56
+
+r那个太抽象了，能猜出来一两首歌曲可能相关吗？
+

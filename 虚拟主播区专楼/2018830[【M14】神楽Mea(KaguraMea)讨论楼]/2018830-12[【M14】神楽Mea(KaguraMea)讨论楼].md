@@ -7882,3 +7882,34 @@ image.png
 
 2024-9-3 09:09 上传
 
+
+*****
+
+####  古战场亡魂  
+##### 17342#       发表于 2024-9-3 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好一个灵活组排，分别是日服20，日服45，日服101，日服882，还有日服14,734。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ablast  
+##### 17343#       发表于 2024-9-4 16:36
+
+原来经常一起玩的那个imp也是主播，老鼠台搜imp3
+然后居然是妹子，大师段的萌妹子，好难得
+
+—— 来自 samsung SM-F711U, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  古战场亡魂  
+##### 17344#       发表于 2024-9-4 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66110788&amp;ptid=2018830" target="_blank">ablast 发表于 2024-9-4 16:36</a>
+
+原来经常一起玩的那个imp也是主播，老鼠台搜imp3
+
+然后居然是妹子，大师段的萌妹子，好难得</blockquote>
+说不定哪天就加入vspo之类的团体了。
+

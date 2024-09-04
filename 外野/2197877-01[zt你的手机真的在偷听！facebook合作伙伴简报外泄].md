@@ -523,3 +523,16 @@ pdd当年靠的0day漏洞，还是没多久就被人发现了。你是觉得这�
 这帖说的不是窃听么? 到底是想讲窃听还是**.</blockquote>
 说的不是侵犯隐私权吗？
 
+
+*****
+
+####  wintel  
+##### 54#       发表于 2024-9-4 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107711&amp;ptid=2197877" target="_blank">苍月·蓝 发表于 2024-9-4 11:59</a>
+手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得 ...</blockquote>
+并夕夕内核提权公布之前，也没消息漏出来。公布之后，也不了了之了。
+你说之后没有人干类似的事儿，谁信啊。
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+

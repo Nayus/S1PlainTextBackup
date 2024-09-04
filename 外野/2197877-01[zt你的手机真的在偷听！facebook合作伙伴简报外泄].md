@@ -614,3 +614,41 @@ ai怎么可能是黑盒，你只能说原理没法解释清楚
 
 现在的手机续航都这么差，鬼知道厂商和他的广告联盟都在背后做什么
 
+
+*****
+
+####  hxy8241  
+##### 63#       发表于 2024-9-4 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107188&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 11:12</a>
+pdd当年靠的0day漏洞，还是没多久就被人发现了。你是觉得这帮互联网厂商能这么多年违规获取麦克风/陀螺仪 ...</blockquote>
+可是每个大厂都已经合法获取了陀螺仪麦克风权限了吧。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  gnihton314  
+##### 64#       发表于 2024-9-4 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66108766&amp;ptid=2197877" target="_blank">hxy8241 发表于 2024-9-4 13:30</a>
+
+可是每个大厂都已经合法获取了陀螺仪麦克风权限了吧。
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+首先不提我这种不给权限的，系统的麦克风权限在调用时在任务栏是有提示的
+
+
+*****
+
+####  Fuero  
+##### 65#       发表于 2024-9-4 13:35
+
+偷听效率太低了，日常生活中你授权共享的信息量要大得多，都写在用户协议里，以b站为例：
+
+哔哩哔哩隐私政策：[https://www.bilibili.com/blackboard/privacy-pc.html](https://www.bilibili.com/blackboard/privacy-pc.html)
+
+App权限申请与使用说明：[https://www.bilibili.com/blackboard/activity-4gdCkFG48T.html](https://www.bilibili.com/blackboard/activity-4gdCkFG48T.html)
+
+第三方信息共享清单：[https://www.bilibili.com/blackboard/activity-JDBsks4XG.html](https://www.bilibili.com/blackboard/activity-JDBsks4XG.html)
+

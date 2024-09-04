@@ -798,3 +798,31 @@ https://source.android.com/docs/c ...</blockquote>
 今天搜了一圈，他这个服务更像是已经有了一堆语音/录音数据和线上行为数据，然后根据需求用AI在语音数据中提取关键信息并和线上行为数据匹配，然后做一个可能的潜在用户名单给客户。
 没提到自己监控语音，但是数据来源很模糊，只是说多个第三方提供。难道是那些语音或者聊天app收集的？
 
+
+*****
+
+####  silentprayer  
+##### 78#       发表于 2024-9-4 16:35
+
+偷听技术上能不能做到？能
+
+偷听有没有好处？有
+
+被发现有没有处罚？没有
+
+所以，给我一个不偷听的理由？
+
+
+*****
+
+####  hxy8241  
+##### 79#       发表于 2024-9-4 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109882&amp;ptid=2197877" target="_blank">MeursaulT 发表于 2024-9-4 15:18</a>
+是不是有什么状态栏纯净模式之类的选项，华为开了这功能后也不显示，关了就有
+
+—— 来自 S1Fun ...</blockquote>
+好像没有。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

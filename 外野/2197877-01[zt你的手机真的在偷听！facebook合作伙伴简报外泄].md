@@ -857,3 +857,14 @@ https://source.android.com/docs/c ...</blockquote>
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  Mr姜  
+##### 83#       发表于 2024-9-4 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66110932&amp;ptid=2197877" target="_blank">adw667 发表于 2024-9-4 16:48</a>
+
+也是几点几分哪个程序用了多少流量的吗</blockquote>
+打开试了一下，是按照两个小时分段显示流量和WiFi数据消耗的
+

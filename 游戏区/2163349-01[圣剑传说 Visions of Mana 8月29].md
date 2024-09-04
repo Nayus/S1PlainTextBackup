@@ -275,3 +275,12 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109376&amp;ptid=2163349" target="_blank">Kojimaru 发表于 2024-9-4 14:32</a></blockquote>
 是pc版用mod去掉了强制虚化吗，ps5版酸了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ares  
+##### 250#       发表于 2024-9-4 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109376&amp;ptid=2163349" target="_blank">Kojimaru 发表于 2024-9-4 14:32</a></blockquote>
+这个大白腿就是本作最大的亮点了
+

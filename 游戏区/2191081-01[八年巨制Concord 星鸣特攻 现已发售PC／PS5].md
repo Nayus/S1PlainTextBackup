@@ -847,3 +847,18 @@ SONY这一招，把IGN架起来了，IGN以后可以换个打分体系了<img sr
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  freez  
+##### 252#       发表于 2024-9-4 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66106236&amp;ptid=2191081" target="_blank">evilpanda 发表于 2024-9-4 09:34</a>
+这游戏没实体版，若干年后收藏价值暴涨的机会也没有吧
+
+SONY这一招，把IGN架起来了，IGN以后可以换个打分体 ...</blockquote>
+不但有实体版甚至还有限量版ds手柄
+ebay上已经炒到150刀了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -918,3 +918,46 @@ ebay上已经炒到150刀了
 
 好似喵
 
+
+*****
+
+####  dfas0077  
+##### 259#       发表于 2024-9-4 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107228&amp;ptid=2191081" target="_blank">kuarwbwe 发表于 2024-9-4 11:16</a>
+
+我这种玩过国产手游的对这个产能根本不意外。因为国内这帮做手游的基本被欧美这帮搞lgbt的大厂同化了，情 ...</blockquote>
+这个扯到国内公司就没必要了，但凡去国内互联网企业上过班说不出这样的话
+
+
+*****
+
+####  方舟售票员  
+##### 260#       发表于 2024-9-4 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104784&amp;ptid=2191081" target="_blank">洛克萨斯 发表于 2024-9-4 01:08</a>
+怎么才两亿美金，亏的好少</blockquote>
+工作室算的成本多半只是开发成本 宣发的钱那都不敢想了 再加上给某些组织的保护费，呵呵了
+
+—— 来自 HUAWEI LIO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kuarwbwe  
+##### 261#       发表于 2024-9-4 11:53
+
+ 本帖最后由 kuarwbwe 于 2024-9-4 11:55 编辑 
+<blockquote>dfas0077 发表于 2024-9-4 11:47
+这个扯到国内公司就没必要了，但凡去国内互联网企业上过班说不出这样的话 ...</blockquote>
+首先国产手游厂和国内互联网企业是两种东西，这不是围中救美。
+
+再有就我知道的，散爆。搞弹性上班制，人员几百人，没加班，没产能。游戏就两个2d纸片人对对碰和一个3d战旗。就是典型的找了一堆不干活的薪水小偷的摸鱼厂。国产互联网企业有这样的？
+
+<img src="https://img.saraba1st.com/forum/202409/04/115441zd3ezpqxm3ipjuez.jpg" referrerpolicy="no-referrer">
+
+<strong>1000035938.jpg</strong> (264.37 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 11:54 上传
+

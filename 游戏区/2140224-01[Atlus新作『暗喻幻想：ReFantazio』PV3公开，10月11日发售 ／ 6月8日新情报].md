@@ -333,3 +333,11 @@ a社要是出一个人设剧情画面都约等于0的树类似物再加上日程
 
 JRPG荒好久了，下个月这作和沙加2重制是肯定要买的
 
+
+*****
+
+####  ikusakong  
+##### 701#       发表于 2024-9-4 07:51
+
+不看好，涉及zz戏的剧情感觉有点多呢，日本人搞zz戏都懂的幼稚的一批，还很有可能塞屎暴大雷<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+

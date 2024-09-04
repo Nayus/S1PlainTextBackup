@@ -862,3 +862,11 @@ ebay上已经炒到150刀了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  嘉术2015  
+##### 253#       发表于 2024-9-4 10:14
+
+看索尼亏钱比我赚钱还开心md<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

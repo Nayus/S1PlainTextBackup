@@ -664,3 +664,28 @@ App权限申请与使用说明：[https://www.bilibili.com/blackboard/activity-4
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  gnihton314  
+##### 67#       发表于 2024-9-4 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66108966&amp;ptid=2197877" target="_blank">hxy8241 发表于 2024-9-4 13:54</a>
+
+刚试了微信语音输入，没有任何其他提示。
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+这玩意儿是安卓12后AOSP里的东西，不可能没有。
+
+你按住语言输入键，屏幕右上角不会有绿色图标？
+
+*****
+
+####  even001  
+##### 68#       发表于 2024-9-4 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107711&amp;ptid=2197877" target="_blank">苍月·蓝 发表于 2024-9-4 11:59</a>
+
+手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得 ...</blockquote>
+泥潭上一个类似帖子里就有人说自己给手机语音识别项目做过数据标注
+

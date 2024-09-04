@@ -5990,3 +5990,42 @@ ns的伊苏x还得加载3-7秒，这次居然能无缝切换。
 
 更新了一些
 
+
+*****
+
+####  一步成诗  
+##### 3549#       发表于 2024-9-4 18:29
+
+博士和云老师居然有立绘，震撼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3550#       发表于 2024-9-4 18:31
+
+看起来不像好人
+
+45b471b54aed2e73b62ac30ec101a18b86d6fa25.jpg
+(139.96 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/04/183118hstgmftg4hes6cr2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一步成诗  
+##### 3551#       发表于 2024-9-4 18:32
+
+别说这两个都画得挺好的，可能enami就是画不了美型<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2042312  
+##### 3552#       发表于 2024-9-4 18:34
+
+怎么突然给博士来了个立绘。
+

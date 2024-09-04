@@ -878,3 +878,11 @@ https://source.android.com/docs/c ...</blockquote>
 
 你要是做个语音助手出来，在任意平台手机上都能随意指定多个唤醒词，小米华为三星苹果都得拜你为师
 
+
+*****
+
+####  棍机凹升龙  
+##### 85#       发表于 2024-9-4 18:30
+
+都是老话题了，只是这次他居然真的明面承认，吓坏了不作恶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

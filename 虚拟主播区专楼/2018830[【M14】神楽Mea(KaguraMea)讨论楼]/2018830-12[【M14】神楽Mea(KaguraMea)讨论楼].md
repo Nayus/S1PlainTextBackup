@@ -7913,3 +7913,35 @@ image.png
 然后居然是妹子，大师段的萌妹子，好难得</blockquote>
 说不定哪天就加入vspo之类的团体了。
 
+
+*****
+
+####  TiHaru  
+##### 17345#       发表于 2024-9-4 17:46
+
+<img src="https://img.saraba1st.com/forum/202409/04/174613pr9wga6ggg4wrgz4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_6417.jpeg</strong> (156.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 17:46 上传
+
+感觉比六字母真
+
+*****
+
+####  TiHaru  
+##### 17346#       发表于 2024-9-4 18:06
+
+这社不程度远超主播了，稍微听了一下杂谈感觉中卒水准的认知能力，主播到底从哪里收集到这些人的
+
+*****
+
+####  十九号大侠  
+##### 17347#       发表于 2024-9-4 18:17
+
+imp，鼠王，不会是噗噗的粉丝吧
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

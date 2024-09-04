@@ -4545,3 +4545,103 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 希望独角兽只是喜欢双子姐妹的解题氛围，比如说需要信任之类的
 
+
+*****
+
+####  仟音一心  
+##### 22599#       发表于 2024-9-3 13:44
+
+<img src="https://p.sda1.dev/19/88c6354666324703250e2ec084d4c6a0/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/5b90b72c2bf3b9b55e51e3a99bc9154a/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/19/51a0e751f7165793831d05e02af7541c/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  前方暴雨预警  
+##### 22600#       发表于 2024-9-3 17:13
+
+就wsd那个一个1st视觉图糊弄两个MV的风格，真心挺可能把3rd复用。
+
+不过earth好不容易找了了1.6万粉的画师，ether又倒回去……好吧一想到是武士道那么这么幽默也很正常
+
+
+*****
+
+####  星天观测  
+##### 22601#       发表于 2024-9-3 18:52
+
+我只能说earth的立绘我挺满意的，如果最后特典用这套那ether复用3rd我也可以接受了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PDQ4  
+##### 22602#       发表于 2024-9-3 21:23
+
+3rd立绘复用可能性不高吧
+
+特典在那呢，如果elements特典图选的土当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Aloereed  
+##### 22603#       发表于 2024-9-3 22:52
+
+嗯？楼主啥时候寄的？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ydsbbt  
+##### 22604#       发表于 2024-9-3 23:08
+
+转自群友
+
+<img src="https://img.saraba1st.com/forum/202409/03/230810ao7zo7o706qfxnll.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240903_230558.jpg</strong> (120.63 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 23:08 上传
+
+<img src="https://img.saraba1st.com/forum/202409/03/230757h3ekk3k3jz77k4kw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240903_230613.jpg</strong> (282.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-3 23:07 上传
+
+*****
+
+####  星天观测  
+##### 22605#       发表于 2024-9-3 23:20
+
+说实话就算这个剧本杀对鸡的剧情有一定干涉影响我感觉也是氛围或者解题思路上的，内容干涉的可能性应该比较小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  skives  
+##### 22606#       发表于 2024-9-3 23:23
+
+双重人格
+器官移植
+尸体处理
+
+*****
+
+####  前方暴雨预警  
+##### 22607#       发表于 2024-9-4 03:45
+
+器官移植双重人格这有点太典了，好在这是邦邦，如果是某个便宜剧本杀的话，看着这种线索我第一个反应就是对睦存在的真实性表示怀疑<img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">
+
+希望独角兽只是喜欢双子姐妹的解题氛围，比如说需要信任之类的
+
+*****
+
+####  星天观测  
+##### 22608#       发表于 2024-9-4 08:34
+
+如果祥子和睦之间有需要两人十分信任来解决的事情，感觉就要绕不开家族之类的了啊
+
+这还是我们邦多利吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

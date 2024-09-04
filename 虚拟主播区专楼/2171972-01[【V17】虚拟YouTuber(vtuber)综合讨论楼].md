@@ -3037,3 +3037,15 @@ YAB那家公司的声明里已经明确JC介入了，真涉及犯罪了肯定跑
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  艾特娜  
+##### 709#       发表于 2024-9-4 08:34
+
+<blockquote>格林卡罗尔 发表于 2024-9-4 07:56
+被yab艹过，id里写个处女丧失招摇过市也叫曝光，黑红营销吗
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 ...</blockquote>
+那是内部员工曝光的yab给她的备注吧
+

@@ -5475,3 +5475,19 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能你法觉得你轨玩家都是全推萌萌人
 
+
+*****
+
+####  Kojimaru  
+##### 3509#       发表于 2024-9-4 09:05
+
+界轨豪华版20周年特典也是这么配的，区别就是没把几个顶流单独拿出来罢了。我法美术资源很珍贵，一鱼得多吃<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/04/090340wr0i0dz4y5rk0bgk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (453.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 09:03 上传
+

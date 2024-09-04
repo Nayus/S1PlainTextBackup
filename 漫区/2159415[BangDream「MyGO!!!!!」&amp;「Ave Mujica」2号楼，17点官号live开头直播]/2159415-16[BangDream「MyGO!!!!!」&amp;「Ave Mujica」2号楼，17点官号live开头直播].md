@@ -4691,3 +4691,13 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 op会忘词吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  1a不解释  
+##### 22614#       发表于 2024-9-4 16:17
+
+录音室无呼吸义务都能唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

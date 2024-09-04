@@ -5528,3 +5528,20 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 还是教官服好看
 
+
+*****
+
+####  卢迪克  
+##### 3513#       发表于 2024-9-4 11:15
+
+今年没导力器语音吗
+
+*****
+
+####  宛若青空  
+##### 3514#       发表于 2024-9-4 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107219&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-4 11:15</a>
+今年没导力器语音吗</blockquote>
+看他后面卖不卖DLC了
+

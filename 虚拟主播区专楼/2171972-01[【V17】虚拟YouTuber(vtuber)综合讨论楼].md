@@ -3027,3 +3027,13 @@ YAB那家公司的声明里已经明确JC介入了，真涉及犯罪了肯定跑
 
 小春唱歌有实力的，也算是曝光了一波吧，就是视频全删了有点难绷
 
+
+*****
+
+####  格林卡罗尔  
+##### 708#       发表于 2024-9-4 07:56
+
+被yab艹过，id里写个处女丧失招摇过市也叫曝光，黑红营销吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -536,3 +536,25 @@ pdd当年靠的0day漏洞，还是没多久就被人发现了。你是觉得这�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  hugosol  
+##### 55#       发表于 2024-9-4 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107848&amp;ptid=2197877" target="_blank">niubility 发表于 2024-9-4 12:08</a>
+
+因为对这个链条上的绝大部分人来说，这个链条的具体实现都是个黑盒，就像现在ai行业链条上的绝大部分人都 ...</blockquote>
+ai怎么可能是黑盒，你只能说原理没法解释清楚
+
+非要类比应该是取款机里有个印度人，但银行相关从业人员都跟你说假的，我都没听说过有这回事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍月·蓝  
+##### 56#       发表于 2024-9-4 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107848&amp;ptid=2197877" target="_blank">niubility 发表于 2024-9-4 12:08</a>
+因为对这个链条上的绝大部分人来说，这个链条的具体实现都是个黑盒，就像现在ai行业链条上的绝大部分人都 ...</blockquote>
+不知道AI怎么运行但是知道自己在做AI，而且窃听－卖广告比AI研究具体多了，单单窃听这一项，里面所有参与的人都不知自己在做什么吗？还有合同等文字资料，这么可能是黑盒
+

@@ -5564,3 +5564,28 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 黎爷穿教官服，为啥黑兔没学生服穿<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3517#       发表于 2024-9-4 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107301&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-4 11:25</a>
+
+说起来这作有敏特，怎么没看到艾尔芬？
+
+不会就请佐藤聪美来配个龙套吧。
+
+虽然黎2也是请濑户麻莎美配个龙套 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这一部建模资源不够了，为界2做准备
+
+*****
+
+####  宛若青空  
+##### 3518#       发表于 2024-9-4 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107314&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-9-4 11:26</a>
+
+黎爷穿教官服，为啥黑兔没学生服穿</blockquote>
+说得对，GEO给什么旅行服为什么不给学生服<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
+

@@ -4786,3 +4786,18 @@ r那个太抽象了，能猜出来一两首歌曲可能相关吗？
 
 那我算是见证了为什么禁止吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  小日向美香  
+##### 22624#       发表于 2024-9-4 20:02
+
+没逛过avemujica吧，为什么禁止？
+
+*****
+
+####  skives  
+##### 22625#       发表于 2024-9-4 20:05
+
+mujica黑非要来mujica吧干嘛呢  自己的贴吧还不够折腾的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

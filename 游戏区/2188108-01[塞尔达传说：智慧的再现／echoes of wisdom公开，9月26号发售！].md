@@ -625,3 +625,13 @@ pv里有出现过四费的复制品
 pv里有出现过四费的复制品</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">居然有4费的，那是我看漏了，回头重看下PV
 
+
+*****
+
+####  JOJOROY  
+##### 510#       发表于 2024-9-4 22:17
+
+媒体Preview出了，玩了一个半小时大概到第一个迷宫结束。
+
+迷宫更像传统塞尔达，大世界依旧掉帧但比织梦岛有改善。
+

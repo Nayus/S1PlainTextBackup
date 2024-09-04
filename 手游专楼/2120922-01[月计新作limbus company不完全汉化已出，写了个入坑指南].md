@@ -312,3 +312,11 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 林顿虫的售后卡，觉醒释放时如果理智足够的话好像能多打一个币。
 
+
+*****
+
+####  erratic璃月  
+##### 854#       发表于 2024-9-4 17:30
+
+lccb良被削了，三破或能白嫖40狂气<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

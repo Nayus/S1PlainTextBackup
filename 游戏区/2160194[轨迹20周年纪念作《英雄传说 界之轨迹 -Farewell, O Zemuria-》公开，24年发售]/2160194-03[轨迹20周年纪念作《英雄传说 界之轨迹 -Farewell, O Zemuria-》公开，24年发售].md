@@ -6095,3 +6095,54 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 界轨只有4页杂志<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  zhouaa  
+##### 3558#       发表于 2024-9-4 18:58
+
+ 本帖最后由 zhouaa 于 2024-9-4 18:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">重置这个上色太鲜艳卡通我不太喜欢  是为了向NS平台风格看齐吗
+
+*****
+
+####  alucardcz  
+##### 3559#       发表于 2024-9-4 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以真的是ns独占？
+
+
+*****
+
+####  ravend233  
+##### 3560#       发表于 2024-9-4 19:03
+
+近藤反复强调是独占<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  ravend233  
+##### 3561#       发表于 2024-9-4 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66112466&amp;ptid=2160194" target="_blank">zhouaa 发表于 2024-9-4 18:58</a>
+重置这个上色太鲜艳卡通我不太喜欢  是为了向NS平台风格看齐吗</blockquote>
+吸引小登，你法觉得小登喜欢这种手游风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 3562#       发表于 2024-9-4 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66112466&amp;ptid=2160194" target="_blank">zhouaa 发表于 2024-9-4 18:58</a>
+
+重置这个上色太鲜艳卡通我不太喜欢  是为了向NS平台风格看齐吗</blockquote>
+為了展現旅途中的漂亮風景、小艾的元氣與天真爛漫...等
+
+主視覺圖與遊戲畫面採用比較生動(vivid)的色調來表現
+

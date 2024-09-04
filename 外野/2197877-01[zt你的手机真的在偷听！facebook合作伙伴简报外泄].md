@@ -886,3 +886,13 @@ https://source.android.com/docs/c ...</blockquote>
 
 都是老话题了，只是这次他居然真的明面承认，吓坏了不作恶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  月咏  
+##### 86#       发表于 2024-9-4 19:01
+
+操作系统搞监听是可以不留下任何痕迹的……
+
+—— 来自 realme RMX3366, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

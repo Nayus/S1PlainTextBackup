@@ -801,3 +801,13 @@ era上面那些左逼笑死我了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">8年制作就4个地图3个模式16个角色。。。这么点内容？
 
+
+*****
+
+####  evilpanda  
+##### 248#       发表于 2024-9-4 09:34
+
+这游戏没实体版，若干年后收藏价值暴涨的机会也没有吧
+
+SONY这一招，把IGN架起来了，IGN以后可以换个打分体系了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

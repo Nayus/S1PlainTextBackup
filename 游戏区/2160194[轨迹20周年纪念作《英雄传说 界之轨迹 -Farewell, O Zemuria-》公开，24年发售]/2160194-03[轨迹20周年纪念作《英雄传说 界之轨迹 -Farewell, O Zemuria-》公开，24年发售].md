@@ -5545,3 +5545,22 @@ emmmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 今年没导力器语音吗</blockquote>
 看他后面卖不卖DLC了
 
+
+*****
+
+####  卢迪克  
+##### 3515#       发表于 2024-9-4 11:25
+
+说起来这作有敏特，怎么没看到艾尔芬？
+
+不会就请佐藤聪美来配个龙套吧。
+
+虽然黎2也是请濑户麻莎美配个龙套。
+
+*****
+
+####  a2042312  
+##### 3516#       发表于 2024-9-4 11:26
+
+黎爷穿教官服，为啥黑兔没学生服穿<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

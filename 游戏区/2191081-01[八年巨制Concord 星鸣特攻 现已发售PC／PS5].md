@@ -896,3 +896,17 @@ ebay上已经炒到150刀了
 走了Concord，还有Fairgame$和马拉松候着，索索玩家的福分少不了</blockquote>
 所有LGBT在此集结 ?<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 257#       发表于 2024-9-4 11:16
+
+ 本帖最后由 kuarwbwe 于 2024-9-4 11:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66106126&amp;ptid=2191081" target="_blank">GMJ 发表于 2024-9-4 09:23</a>
+
+8年制作就4个地图3个模式16个角色。。。这么点内容？</blockquote>
+我这种玩过国产手游的对这个产能根本不意外。因为国内这帮做手游的基本被欧美这帮搞lgbt的大厂同化了，情况基本能反推。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这帮人肯定是平时不加班的，上班要摸鱼的，下班得早退的，休假是经常的，内斗要频繁的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

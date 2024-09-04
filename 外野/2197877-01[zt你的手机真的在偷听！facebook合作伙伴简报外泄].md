@@ -689,3 +689,42 @@ App权限申请与使用说明：[https://www.bilibili.com/blackboard/activity-4
 手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得 ...</blockquote>
 泥潭上一个类似帖子里就有人说自己给手机语音识别项目做过数据标注
 
+
+*****
+
+####  hxy8241  
+##### 69#       发表于 2024-9-4 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66108997&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 13:57</a>
+这玩意儿是安卓12后AOSP里的东西，不可能没有。
+
+你按住语言输入键，屏幕右上角不会有绿色图标？ ...</blockquote>
+我这手机应该是Android 14吧，任务栏没有任何变化。我语音都输入进去了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  gnihton314  
+##### 70#       发表于 2024-9-4 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109119&amp;ptid=2197877" target="_blank">hxy8241 发表于 2024-9-4 14:07</a>
+
+我这手机应该是Android 14吧，任务栏没有任何变化。我语音都输入进去了。
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+不是你用完给你提醒，是在调用麦克风期间，在状态栏会有绿色图标提醒
+[https://source.android.com/docs/ ... indicators?hl=zh-cn](https://source.android.com/docs/core/permissions/privacy-indicators?hl=zh-cn)
+
+
+*****
+
+####  niubility  
+##### 71#       发表于 2024-9-4 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66108526&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 13:06</a>
+你这不还是把网安工作者当傻子吗，你都想的到，他们想不到？</blockquote>
+说到国内网安团队我就更想笑了，没记错的话PDD那个事是国外团队爆出来的吧，国内团队事前事后有敢放个屁的么？而且PDD这次被爆也是做的太过火，之前做的恶心事不少也没见啥网安团队来曝光。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

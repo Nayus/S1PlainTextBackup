@@ -4675,3 +4675,11 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 我们大少女乐队时代真的要走到这一步吗
 
+
+*****
+
+####  akiomn  
+##### 22612#       发表于 2024-9-4 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空箱的地位和春日影差不多，大概不会翻空箱，命运之花应该是类似迷星叫这种的团歌？估计最后翻唱op或者ed吧
+

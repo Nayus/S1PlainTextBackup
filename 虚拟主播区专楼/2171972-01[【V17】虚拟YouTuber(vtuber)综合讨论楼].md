@@ -3079,3 +3079,11 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 小春不只是这个身份没救了估计往后转生也难吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 713#       发表于 2024-9-4 17:15
+
+那应该是专门为截图取乐而改的名，dc没当过mod还真不知道有这权限<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

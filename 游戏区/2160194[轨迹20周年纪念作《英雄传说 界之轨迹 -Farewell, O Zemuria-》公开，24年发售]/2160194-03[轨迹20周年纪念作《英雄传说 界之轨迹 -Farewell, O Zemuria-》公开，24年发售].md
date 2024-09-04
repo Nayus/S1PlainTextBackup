@@ -5890,3 +5890,24 @@ ns的伊苏x还得加载3-7秒，这次居然能无缝切换。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  ravend233  
+##### 3542#       发表于 2024-9-4 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109823&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-4 15:13</a>
+介绍斑鸠和教会组为什么没有妮娜，看来她是结社组了</blockquote>
+答案是妮娜塞在女演员的关系者里面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 3543#       发表于 2024-9-4 15:20
+
+本来的话所有关系者包括总统都没介绍。
+但是这次介绍了汉密尔顿。
+

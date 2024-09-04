@@ -776,3 +776,16 @@ https://source.android.com/docs/c ...</blockquote>
 塞班时代的360手机版有一个监控流量的悬浮窗，还有每个APP使用流量的记录，我换了4S就没见过这玩意了 ...</blockquote>
 我用小米设置里就可以看应用流量消耗，这功能早集成到手机系统里了吧
 
+
+*****
+
+####  MeursaulT  
+##### 76#       发表于 2024-9-4 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109242&amp;ptid=2197877" target="_blank">hxy8241 发表于 2024-9-4 14:18</a>
+确实没有，任务栏从前到后没有任何改变，任何。
+没有小尾巴了，手机型号是红魔9s，特意删掉这个功能实在 ...</blockquote>
+是不是有什么状态栏纯净模式之类的选项，华为开了这功能后也不显示，关了就有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

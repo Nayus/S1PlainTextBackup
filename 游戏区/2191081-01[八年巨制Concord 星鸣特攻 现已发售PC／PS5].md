@@ -811,3 +811,20 @@ era上面那些左逼笑死我了
 
 SONY这一招，把IGN架起来了，IGN以后可以换个打分体系了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TANA  
+##### 249#       发表于 2024-9-4 09:38
+
+走了Concord，还有Fairgame$和马拉松候着，索索玩家的福分少不了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 250#       发表于 2024-9-4 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不关心fairgame，我只关心马拉松
+
+马拉松的美术是真的好看
+

@@ -6029,3 +6029,45 @@ ns的伊苏x还得加载3-7秒，这次居然能无缝切换。
 
 怎么突然给博士来了个立绘。
 
+
+*****
+
+####  hkguty  
+##### 3553#       发表于 2024-9-4 18:40
+
+博士应该是那个北欧计划也就是主角团的克隆机器人集团的主导者吧
+
+*****
+
+####  卢迪克  
+##### 3554#       发表于 2024-9-4 18:41
+
+背后的画，和亚里欧契有点像，不过多了两画
+
+<img src="https://img.saraba1st.com/forum/202409/04/184129mdke8yd8y58882yg.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20240904_183933.png</strong> (6.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-4 18:41 上传
+
+<img src="https://img.saraba1st.com/forum/202409/04/184134x1izaepatyopdwyb.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240904_184013.jpg</strong> (43.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-4 18:41 上传
+
+*****
+
+####  zhouaa  
+##### 3555#       发表于 2024-9-4 18:41
+
+金魔鬼装就博士吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

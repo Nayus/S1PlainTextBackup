@@ -4645,3 +4645,20 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 这还是我们邦多利吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 22609#       发表于 2024-9-4 13:01
+
+翻唱gbc是空箱还是op
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  skives  
+##### 22610#       发表于 2024-9-4 13:03
+
+还是空之箱好 op没有键盘感觉没什么意思
+

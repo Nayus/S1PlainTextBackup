@@ -6358,3 +6358,52 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 黎1不是说起源不同吗，这会又是九曜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  alucardcz  
+##### 3583#       发表于 2024-9-4 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">到底有什么内部交易立绘还不换人 难道日本人那边对立绘很满意？
+
+*****
+
+####  Aeons  
+##### 3584#       发表于 2024-9-4 20:37
+
+继承九曜和九曜后裔大概是有区别吧
+
+*****
+
+####  zhouaa  
+##### 3585#       发表于 2024-9-4 20:38
+
+ 本帖最后由 zhouaa 于 2024-9-4 20:40 编辑 
+
+用老立绘说明是次要角色吧 剧情不重要   黑铁还露脸了
+
+*****
+
+####  Aeons  
+##### 3586#       发表于 2024-9-4 20:40
+
+总统也是老立绘啊。
+博士建模变立绘说明要开始重要了。
+
+
+*****
+
+####  悠悠你心  
+##### 3587#       发表于 2024-9-4 20:44
+
+说明黎2纯粹师姐随便玩，黎1那身才能代表身份做事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Aeons  
+##### 3588#       发表于 2024-9-4 20:46
+
+黎二剧情说过就是度假买的便装
+

@@ -254,3 +254,24 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kevinausting  
+##### 248#       发表于 2024-9-4 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102513&amp;ptid=2163349" target="_blank">苏斯赫查 发表于 2024-9-3 20:08</a>
+
+等等，初代有同伴的？我咋记得一直都是一个人，只有女主会偶尔跟着
+
+—— 来自 鹅球 v3.1.88.3-alpha ...</blockquote>
+是说GB那款吗？有好几个同伴但都是阶段性的，女主跟着的时间长一点，还能给回血，还有个矮人可以买东西，大部分时候都是一个人
+
+*****
+
+####  zqqwe  
+##### 249#       发表于 2024-9-4 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109376&amp;ptid=2163349" target="_blank">Kojimaru 发表于 2024-9-4 14:32</a></blockquote>
+是pc版用mod去掉了强制虚化吗，ps5版酸了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

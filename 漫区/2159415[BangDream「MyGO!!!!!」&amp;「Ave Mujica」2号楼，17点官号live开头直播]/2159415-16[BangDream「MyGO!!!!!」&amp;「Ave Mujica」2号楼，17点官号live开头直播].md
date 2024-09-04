@@ -4778,3 +4778,11 @@ r那个太抽象了，能猜出来一两首歌曲可能相关吗？
 
 见证mujica吧禁止用大x/大x老师来称呼祥真是太爽了（虽然活跃人数有点少）
 
+
+*****
+
+####  星天观测  
+##### 22623#       发表于 2024-9-4 19:33
+
+那我算是见证了为什么禁止吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

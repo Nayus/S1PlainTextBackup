@@ -1823,3 +1823,13 @@ Callie (Alterna).bin
 
 果然这网络修了个寂寞，日本那边直播看着也是还有各种掉线，好几个一起掉线也是有的，所以任天堂下代还是重点花钱解决下服务器问题吧。
 
+
+*****
+
+####  罗克萨斯  
+##### 5114#       发表于 2024-9-4 22:10
+
+XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟，被逼到去玩喷2<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

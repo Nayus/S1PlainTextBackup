@@ -4662,3 +4662,16 @@ lisa为啥如此傻大姐……不如给她配个男装算了。
 
 还是空之箱好 op没有键盘感觉没什么意思
 
+
+*****
+
+####  星天观测  
+##### 22611#       发表于 2024-9-4 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107395&amp;ptid=2159415" target="_blank">Akari 发表于 2024-9-4 11:33</a>
+
+肝脏移植还是没多大影响的www</blockquote>
+不是我的意思是涉及到器官移植的话好像和邦多利世界有点脱节了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我们大少女乐队时代真的要走到这一步吗
+

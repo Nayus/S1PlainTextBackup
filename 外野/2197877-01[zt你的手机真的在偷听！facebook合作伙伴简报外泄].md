@@ -728,3 +728,27 @@ App权限申请与使用说明：[https://www.bilibili.com/blackboard/activity-4
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  gnihton314  
+##### 72#       发表于 2024-9-4 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109166&amp;ptid=2197877" target="_blank">niubility 发表于 2024-9-4 14:11</a>
+
+说到国内网安团队我就更想笑了，没记错的话PDD那个事是国外团队爆出来的吧，国内团队事前事后有敢放个屁 ...</blockquote>
+pdd那是还真就是国内团队爆的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，卡巴只是验证了而已
+
+*****
+
+####  hxy8241  
+##### 73#       发表于 2024-9-4 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109144&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 14:08</a>
+不是你用完给你提醒，是在调用麦克风期间，在状态栏会有绿色图标提醒
+
+https://source.android.com/docs/c ...</blockquote>
+确实没有，任务栏从前到后没有任何改变，任何。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

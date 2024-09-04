@@ -7945,3 +7945,39 @@ imp，鼠王，不会是噗噗的粉丝吧
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  秋游刃  
+##### 17348#       发表于 2024-9-4 18:20
+
+ 本帖最后由 秋游刃 于 2024-9-4 18:40 编辑 
+
+噗噗是谁？反正这妹子挺喜欢拉普拉斯的。
+
+另外，她这两天直播提了几次mea。
+
+<img src="https://img.saraba1st.com/forum/202409/04/183701b0db4tlnwd4i4j44.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20240904183547.png</strong> (14.91 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 18:37 上传
+
+两个人认识挺早了。
+
+*****
+
+####  TiHaru  
+##### 17349#       发表于 2024-9-4 18:44
+
+意思都知道藏着不说是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 17350#       发表于 2024-9-4 18:51
+
+之前也没人在楼里问啊
+

@@ -765,3 +765,14 @@ https://source.android.com/docs/c ...</blockquote>
 
 而且从效益和效率上来说，也没必要。
 
+
+*****
+
+####  Mr姜  
+##### 75#       发表于 2024-9-4 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66105809&amp;ptid=2197877" target="_blank">adw667 发表于 2024-9-4 08:46</a>
+
+塞班时代的360手机版有一个监控流量的悬浮窗，还有每个APP使用流量的记录，我换了4S就没见过这玩意了 ...</blockquote>
+我用小米设置里就可以看应用流量消耗，这功能早集成到手机系统里了吧
+

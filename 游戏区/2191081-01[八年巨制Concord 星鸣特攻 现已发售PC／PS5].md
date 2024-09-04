@@ -870,3 +870,18 @@ ebay上已经炒到150刀了
 
 看索尼亏钱比我赚钱还开心md<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大鹅  
+##### 254#       发表于 2024-9-4 10:26
+
+好好好，请索尼继续努力。
+
+*****
+
+####  nordicvan  
+##### 255#       发表于 2024-9-4 10:26
+
+这游戏ign评7分 死亡搁浅6.8分？
+

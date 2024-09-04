@@ -551,3 +551,35 @@ eupd这种傻逼公司怎么还没似啊
 5单的初动比之前的低了</blockquote>
 没破圈没新粉老粉总不会越来越多只会越来越少。反正也是能发下一张的水平<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  starring  
+##### 21001#       发表于 2024-9-3 19:02
+
+5单的初动比之前的低了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 21002#       发表于 2024-9-3 19:58
+
+<img src="https://p.sda1.dev/19/32272554307af45dedbac77c865b1df6/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 21003#       发表于 2024-9-4 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102036&amp;ptid=2078110" target="_blank">starring 发表于 2024-9-3 19:02</a>
+
+5单的初动比之前的低了</blockquote>
+没破圈没新粉老粉总不会越来越多只会越来越少。反正也是能发下一张的水平<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 21004#       发表于 2024-9-4 10:52
+
+<img src="https://p.sda1.dev/19/6a05c351fc4912559b37e0bff5ca91f0/image.jpg" referrerpolicy="no-referrer">
+

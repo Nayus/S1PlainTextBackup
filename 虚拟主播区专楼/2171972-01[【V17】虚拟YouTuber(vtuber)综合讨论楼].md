@@ -3049,3 +3049,15 @@ YAB那家公司的声明里已经明确JC介入了，真涉及犯罪了肯定跑
 —— 来自 Xiaomi M2012K11AC, Android 11上的 ...</blockquote>
 那是内部员工曝光的yab给她的备注吧
 
+
+*****
+
+####  格林卡罗尔  
+##### 710#       发表于 2024-9-4 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66105725&amp;ptid=2171972" target="_blank">艾特娜 发表于 2024-9-4 08:34</a>
+那是内部员工曝光的yab给她的备注吧</blockquote>
+dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有号主能改的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

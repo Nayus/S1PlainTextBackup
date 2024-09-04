@@ -885,3 +885,14 @@ ebay上已经炒到150刀了
 
 这游戏ign评7分 死亡搁浅6.8分？
 
+
+*****
+
+####  Slyvan  
+##### 256#       发表于 2024-9-4 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66106275&amp;ptid=2191081" target="_blank">TANA 发表于 2024-9-4 09:38</a>
+
+走了Concord，还有Fairgame$和马拉松候着，索索玩家的福分少不了</blockquote>
+所有LGBT在此集结 ?<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

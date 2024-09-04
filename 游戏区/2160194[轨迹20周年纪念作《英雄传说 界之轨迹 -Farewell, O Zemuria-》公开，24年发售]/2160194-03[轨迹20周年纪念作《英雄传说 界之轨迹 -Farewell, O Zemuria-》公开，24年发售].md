@@ -6534,3 +6534,13 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 看起来还出现了冰火双娃单独行动可控的场景，到底分了多少线啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3603#       发表于 2024-9-5 00:34
+
+有一种一大堆不知道干嘛的支线当主线，然后每个支线剧情收一只表，最后终章挤牙膏解密一丁点东西然后咚了等界2的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

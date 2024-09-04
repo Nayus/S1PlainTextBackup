@@ -650,3 +650,37 @@ pv里有出现过四费的复制品</blockquote>
 
 Zeltik出息了，王泪和本作都有被英任邀请试玩
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 513#       发表于 2024-9-4 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望流程长一点
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kuarwbwe  
+##### 514#       发表于 2024-9-4 22:37
+
+ 本帖最后由 kuarwbwe 于 2024-9-4 22:40 编辑 
+
+估计能有30个小时的主线流程就不错了，我很想开香槟但不敢奶太大了。
+
+*****
+
+####  heseran  
+##### 515#       发表于 2024-9-4 22:38
+
+<img src="https://img.saraba1st.com/forum/202409/04/223835izicjixhx808c8o8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E479F8F1-FD5D-44D3-888B-F770855765A1.jpeg</strong> (38.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 22:38 上传
+
+太可爱了吧
+

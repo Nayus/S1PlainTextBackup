@@ -341,3 +341,11 @@ JRPG荒好久了，下个月这作和沙加2重制是肯定要买的
 
 不看好，涉及zz戏的剧情感觉有点多呢，日本人搞zz戏都懂的幼稚的一批，还很有可能塞屎暴大雷<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  laosai13  
+##### 702#       发表于 2024-9-5 02:21
+
+这作是不是没有谈恋爱内容，政治戏别搞得又太儿戏了。能有85分可以买来玩玩
+

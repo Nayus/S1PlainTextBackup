@@ -635,3 +635,18 @@ pv里有出现过四费的复制品</blockquote>
 
 迷宫更像传统塞尔达，大世界依旧掉帧但比织梦岛有改善。
 
+
+*****
+
+####  heseran  
+##### 511#       发表于 2024-9-4 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">希望国庆假期能收到卡带
+
+*****
+
+####  佛罗伦萨  
+##### 512#       发表于 2024-9-4 22:27
+
+Zeltik出息了，王泪和本作都有被英任邀请试玩
+

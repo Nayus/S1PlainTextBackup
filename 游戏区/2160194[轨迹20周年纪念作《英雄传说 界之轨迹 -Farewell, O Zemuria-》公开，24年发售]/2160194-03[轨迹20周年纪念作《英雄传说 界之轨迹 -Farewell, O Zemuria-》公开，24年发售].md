@@ -6224,3 +6224,47 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 怎么又这么快清晰图都有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  新世界的派蒙  
+##### 3567#       发表于 2024-9-4 20:08
+
+剑仙反手刀，难道你不要八叶了么
+
+*****
+
+####  alucardcz  
+##### 3568#       发表于 2024-9-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66112558&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-4 19:04</a>
+
+吸引小登，你法觉得小登喜欢这种手游风格
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家一查 什么后面还有这么多？甚至空轨都没做完 直接跑了  吸引个猫儿
+
+
+*****
+
+####  alucardcz  
+##### 3569#       发表于 2024-9-4 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66112537&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-4 19:03</a>
+
+近藤反复强调是独占
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望他说到做到  蒸汽都别上
+
+*****
+
+####  ravend233  
+##### 3570#       发表于 2024-9-4 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66113153&amp;ptid=2160194" target="_blank">alucardcz 发表于 2024-9-4 20:10</a>
+希望他说到做到  蒸汽都别上</blockquote>
+那当然是限时独占<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

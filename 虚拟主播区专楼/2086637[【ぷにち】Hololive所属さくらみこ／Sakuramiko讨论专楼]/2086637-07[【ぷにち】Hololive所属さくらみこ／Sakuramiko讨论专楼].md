@@ -8171,3 +8171,46 @@ GTA企划的可能性是存在的但是按以往STGR风的企划经验来说如�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有xjhx，这下xyz要来抢票啦
 
+
+*****
+
+####  holoan  
+##### 9569#         楼主| 发表于 2024-9-4 20:03
+
+ 本帖最后由 holoan 于 2024-9-4 20:07 编辑 
+
+完了
+
+最关键的周边追加发售情报没有
+
+这下真的慌了。
+
+*****
+
+####  holoan  
+##### 9570#         楼主| 发表于 2024-9-4 20:08
+
+嘉宾一般2首曲，
+
+大概安排在live中后吧
+
+七字母曲一首，另一首难不成是新原创曲
+
+*****
+
+####  holoan  
+##### 9571#         楼主| 发表于 2024-9-4 20:12
+
+<img src="https://img.saraba1st.com/forum/202409/04/201209jn9td3xiiiz8nsxy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 20:12 上传
+
+其实这个告知很早以前就有预告了，只是没想到活动时期安排到live以后有点远
+ <blockquote>🔽ゲスト
+
+みこだにぇー</blockquote>
+

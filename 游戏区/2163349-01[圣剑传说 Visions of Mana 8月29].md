@@ -292,3 +292,14 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 打到巴扎尼亚书塔的地图和BOSS战有点意思
 
+
+*****
+
+####  Dr.Web  
+##### 252#       发表于 2024-9-5 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64426286&amp;ptid=2163349" target="_blank">Dragon_Quest_U 发表于 2024-3-30 10:46</a>
+
+去了序列号就有一个问题，除了正作的Secret of Mana(2)，Trials of Mana(3)，以及Dawn of Mana (4)之外， ...</blockquote>
+这作是正统5代, 通关后标题会变成圣剑传说5
+

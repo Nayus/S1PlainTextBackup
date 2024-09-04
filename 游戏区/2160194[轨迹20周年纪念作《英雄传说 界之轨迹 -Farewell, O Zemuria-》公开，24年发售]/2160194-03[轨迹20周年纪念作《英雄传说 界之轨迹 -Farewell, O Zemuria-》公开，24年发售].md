@@ -6518,3 +6518,11 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 我觉得轨迹会买的都是老熟人了，难得上杂志当然是要拉新，为什么不学动漫杂志凹几个泳装模型占满四页
 
+
+*****
+
+####  smdzh2  
+##### 3601#       发表于 2024-9-4 23:46
+
+看到赛里斯这经典立绘，只能微笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

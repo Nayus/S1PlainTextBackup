@@ -238,3 +238,19 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 
 这游戏虽然建模精度不高，但整体环境美术细节算多了，在jrpg里看到这个画面我还挺开心的。
 
+
+*****
+
+####  Kojimaru  
+##### 247#       发表于 2024-9-4 14:32
+
+<img src="https://img.saraba1st.com/forum/202409/04/143154zvtfi3u3owwo5pwv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (912 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 14:31 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/113.png" referrerpolicy="no-referrer">
+

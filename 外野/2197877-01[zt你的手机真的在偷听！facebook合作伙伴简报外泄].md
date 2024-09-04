@@ -478,3 +478,48 @@ pdd当年靠的0day漏洞，还是没多久就被人发现了。你是觉得这�
 
 手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得上军事机密了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  niubility  
+##### 50#       发表于 2024-9-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107479&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 11:39</a>
+早在不知道多少个版本之前，麦克风/摄像头被调用时系统里就有实时提示了。而且你当广大安全研究人员是傻 ...</blockquote>
+你太高看国产系统厂商和太小看现在的App开发者了，很多广告联盟都是系统厂商主导的，给自己的广告联盟开个后门很容易。而且现在不通过麦克风识别语音的技术都公布很久了，你觉得app开发者会跟不上？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iqbsh38  
+##### 51#       发表于 2024-9-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66104173&amp;ptid=2197877" target="_blank">长征5号 发表于 2024-9-3 23:38</a>
+
+这就是升降摄像头手机现在看不到了的原因
+
+—— 来自 鹅球 v3.1.90</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/269.png" referrerpolicy="no-referrer">还在用K30无所畏惧
+
+*****
+
+####  niubility  
+##### 52#       发表于 2024-9-4 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107711&amp;ptid=2197877" target="_blank">苍月·蓝 发表于 2024-9-4 11:59</a>
+手机厂商、APP、数据分析的、分销的、卖广告的、中介等等，整个产业链有条不紊还一点消息都不露出来，比得 ...</blockquote>
+因为对这个链条上的绝大部分人来说，这个链条的具体实现都是个黑盒，就像现在ai行业链条上的绝大部分人都不懂ai是怎么运行起来的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  战斗鸡  
+##### 53#       发表于 2024-9-4 12:11
+
+<blockquote>百姫 发表于 2024-9-4 05:24
+这帖说的不是窃听么? 到底是想讲窃听还是**.</blockquote>
+说的不是侵犯隐私权吗？
+

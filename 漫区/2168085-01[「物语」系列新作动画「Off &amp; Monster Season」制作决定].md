@@ -2306,3 +2306,14 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 好像业物语还做一个火怜·食人魔然后才是忍物语。
 为什么不做翼·睡眠啊？
 
+
+*****
+
+####  神圣天使书记官  
+##### 838#       发表于 2024-9-4 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66102857&amp;ptid=2168085" target="_blank">仟音一心 发表于 2024-9-3 20:50</a>
+好像业物语还做一个火怜·食人魔然后才是忍物语。
+为什么不做翼·睡眠啊？ ...</blockquote>
+剧情接不上的先不做，后半段做的都是小忍相关的。
+

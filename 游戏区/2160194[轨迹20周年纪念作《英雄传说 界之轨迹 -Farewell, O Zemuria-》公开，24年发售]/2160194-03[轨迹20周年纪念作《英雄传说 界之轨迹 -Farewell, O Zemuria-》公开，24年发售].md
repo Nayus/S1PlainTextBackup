@@ -6562,3 +6562,116 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 我才想起来冰火娃那个单独的有可能是记忆石碑这样的内容。
 
+
+*****
+
+####  hkguty  
+##### 3606#       发表于 2024-9-4 21:38
+
+九曜众应该跟黎轨的魔王一样，看销量再决定讲不讲
+
+*****
+
+####  nozomitech  
+##### 3607#       发表于 2024-9-4 21:45
+
+笑死，就这点东西吗？没活可以不用上杂志<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  洛克萨斯  
+##### 3608#       发表于 2024-9-4 22:18
+
+东迷2快放情报让我洗洗眼，e大师的太..................
+
+*****
+
+####  卢迪克  
+##### 3609#       发表于 2024-9-4 23:28
+
+<img src="https://img.saraba1st.com/forum/202409/04/232809am9lt22e47akkjl6.jpg" referrerpolicy="no-referrer">
+
+<strong>img-172546344260831018ceb497d4efc3b5c11d60aa95932c235282143ddc746b0f91ac1ffe3a713.jpg</strong> (138.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-4 23:28 上传
+
+<img src="https://img.saraba1st.com/forum/202409/04/232842ezbfo8ez366wnwhf.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240904_232830.jpg</strong> (99.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-4 23:28 上传
+
+*****
+
+####  whzfjk  
+##### 3610#       发表于 2024-9-4 23:31
+
+我觉得轨迹会买的都是老熟人了，难得上杂志当然是要拉新，为什么不学动漫杂志凹几个泳装模型占满四页
+
+*****
+
+####  smdzh2  
+##### 3611#       发表于 2024-9-4 23:46
+
+看到赛里斯这经典立绘，只能微笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 3612#       发表于 2024-9-5 00:02
+
+看起来还出现了冰火双娃单独行动可控的场景，到底分了多少线啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3613#       发表于 2024-9-5 00:34
+
+有一种一大堆不知道干嘛的支线当主线，然后每个支线剧情收一只表，最后终章挤牙膏解密一丁点东西然后咚了等界2的美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  hkguty  
+##### 3614#       发表于 2024-9-5 01:00
+
+到现在也没提到分线，大概就是讲到哪个人切哪个的样子吧
+
+*****
+
+####  宛若青空  
+##### 3615#       发表于 2024-9-5 04:32
+
+分还是分的了，大概也就是那三条；
+
+我才想起来冰火娃那个单独的有可能是记忆石碑这样的内容。
+
+*****
+
+####  andychen  
+##### 3616#       发表于 2024-9-5 06:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088138&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-2 10:45</a>
+
+遗老要炸了</blockquote>
+这很正常，这是完全重制，演出是全新制作的，台本都得重新写了
+
+就算大量保留原台词也是两回事了
+
+*****
+
+####  andychen  
+##### 3617#       发表于 2024-9-5 06:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66088989&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-2 12:09</a>
+
+好奇老任跟近藤说了什么，让他决定不在股东大会公开空轨</blockquote>
+盲猜任地狱明年宣发要转向下代平台了，让第三方赶紧把本世代的游戏都公开出去
+

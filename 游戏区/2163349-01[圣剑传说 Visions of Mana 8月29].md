@@ -284,3 +284,11 @@ ps5开画质模式战斗也稳60帧，配合这舒适区的画风音乐看来能
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109376&amp;ptid=2163349" target="_blank">Kojimaru 发表于 2024-9-4 14:32</a></blockquote>
 这个大白腿就是本作最大的亮点了
 
+
+*****
+
+####  ky7913  
+##### 251#       发表于 2024-9-4 23:42
+
+打到巴扎尼亚书塔的地图和BOSS战有点意思
+

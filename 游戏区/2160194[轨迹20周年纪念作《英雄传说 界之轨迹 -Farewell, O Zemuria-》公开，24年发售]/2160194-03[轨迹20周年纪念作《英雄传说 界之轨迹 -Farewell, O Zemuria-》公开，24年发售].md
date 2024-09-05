@@ -8482,3 +8482,31 @@ Q. 另外，《Grim Garten》似乎是前作的《Marchen Garten》。一方面�
 差不多要发售了，就来了</blockquote>
 希望你以后再也不要出现了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3807#       发表于 2024-9-5 21:03
+
+Q.这是亚克莱德事务所的故事，为什么取名为“界之轨迹”，而不是“黎之轨迹3”？另外，Farewell、O Zemuria的副标题也意义深远，难道意味着轨迹系列即将结束吗？
+
+=因为是黎之轨迹2之后的故事，一开始公司内部也在以3进行。但是从整个轨迹系列来看，这是高潮部分，我觉得传达这种冲击力是不够的。另外，我还认为，每个用户喜欢的轨迹系列作品应该各不相同，为了牢牢传达这次的高潮位置，更不足以以黎之轨迹3命名。
+
+我一直在考虑如何用一个文字表达这些，但我想起了以前在零之轨迹、创之轨迹时提出的“界”这个字。在故事中，塞姆利亚大陆的常识被动摇，各种界限被打破，我认为符合这些主题的字是“界”，所以成为了现在的标题。副标题的情况是，正如前面所说，从打破塞姆利亚大陆人从前认为是常识的东西的界限的角度出发，才这样加上的。
+
+*****
+
+####  卢迪克  
+##### 3808#       发表于 2024-9-5 21:06
+
+副标题居然没有说请去游戏里确认
+
+*****
+
+####  smdzh2  
+##### 3809#       发表于 2024-9-5 21:06
+
+<img src="https://p.sda1.dev/19/3a818b091ba0f69872d6e80dac118f41/image.jpg" referrerpolicy="no-referrer">
+越看越<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+此时，某位金发女性还在为陷入苦境的帝国到处奔走<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

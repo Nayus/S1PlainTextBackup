@@ -475,3 +475,32 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 好在把经验书退给我了，三赛季开始还用过她，感觉能组呼吸队，谁知道正统呼吸队这么排外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在连当辅助都没位置了。
 
+
+*****
+
+####  Jamaisvu  
+##### 867#       发表于 2024-9-5 20:59
+
+151抽俩三星到手，开头连着三个十连分别出了环箱、剑箱和蝶箱，还都是第一位，李箱暖暖（误）。
+
+最后抽到的赤瞳良，十连普通链球连着一个绿镜（提灯唐），点开之后链球突然变绿跳抽卡动画，好刺激啊，堪比FGO<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+呀嘞呀嘞虫先不管了，反正镜牢我喜欢P（上次甚至把狂猎P死了，我都没反应过来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）。
+
+还剩两周十四天，看看每日单抽能不能出货吧，要真好用多补三十五抽换一个也行，反正瓦夜是指定抽卡活动嘛。
+
+
+*****
+
+####  Yuzutea  
+##### 868#       发表于 2024-9-5 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123991&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2024-9-5 20:59</a>
+
+151抽俩三星到手，开头连着三个十连分别出了环箱、剑箱和蝶箱，还都是第一位，李箱暖暖（误）。
+
+最后抽到的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虫挺强的，感觉比之前那几个多币ego强一个档次，打多就是强
+
+但是镜牢不需要开两回合也能秒，道中这东西拼点也拼不过，真要下次地铁有用感觉到时候拿箱子换也不迟
+

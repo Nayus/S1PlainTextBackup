@@ -8017,3 +8017,29 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 说起来葱头不是☀️青年了吗，小娜怎么还说他冷酷。</blockquote>
 凯文从来都是硬核狠人那波的啊
 
+
+*****
+
+####  zhouaa  
+##### 3757#       发表于 2024-9-5 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120009&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 14:52</a>
+
+说起来葱头不是☀️青年了吗，小娜怎么还说他冷酷。</blockquote>
+他小时候就是自闭少年吧  尝了两姐妹丼才变成现在这样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+小娜能看穿表象
+
+
+*****
+
+####  maojiashu  
+##### 3758#       发表于 2024-9-5 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120009&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 14:52</a>
+
+说起来葱头不是☀️青年了吗，小娜怎么还说他冷酷。</blockquote>
+葱头阳光不了一点吧
+
+黎恩都能苦大仇深的 葱头咋阳光的起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

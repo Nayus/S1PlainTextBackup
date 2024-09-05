@@ -8048,3 +8048,13 @@ imp，鼠王，不会是噗噗的粉丝吧
 
 我是打到第六章有点玩不下去了，只狼也是打到苇名一心不想玩了。
 
+
+*****
+
+####  sino__unnko3  
+##### 17359#       发表于 2024-9-5 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66119888&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2024-9-5 14:41</a>
+比较离谱是为啥会现在就改，是今天来突击黑神话？不然的话顶着这个标题转播歌回也太抽象了。 ...</blockquote>
+也有可能主包已经做好了连续撸撸几天的觉悟(
+

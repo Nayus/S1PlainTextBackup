@@ -337,3 +337,14 @@ vision就是v呗，五代没问题
 
 撒情况，种子上限只能给主角解锁？
 
+
+*****
+
+####  Dr.Web  
+##### 257#       发表于 2024-9-5 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66115516&amp;ptid=2163349" target="_blank">Dragon_Quest_U 发表于 2024-9-5 05:15</a>
+
+居然还有这个设定！有点神奇</blockquote>
+是的. 现在看回去Vision的V也是暗示了. 这样老ass们是不是要上了
+

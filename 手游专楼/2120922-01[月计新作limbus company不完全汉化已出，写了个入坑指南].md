@@ -392,3 +392,34 @@ syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 
 对这游戏设定和美术风格有点兴趣，想问下入坑的话搞初始有什么推荐吗？还是说有石头号之类的？
 
+
+*****
+
+####  Yuzutea  
+##### 861#       发表于 2024-9-5 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66119533&amp;ptid=2120922" target="_blank">菟原手兒奈 发表于 2024-9-5 14:03</a>
+
+对这游戏设定和美术风格有点兴趣，想问下入坑的话搞初始有什么推荐吗？还是说有石头号之类的？ ...</blockquote>
+想玩的舒服就去淘宝买个初始石头号
+
+会给你google号然后你自己换绑到steam
+
+最便宜的就行，什么人格都不用带
+
+这游戏所有东西都能靠一天一小时左右的刷本肝出来
+
+氪金点就每个season一张通行证，50多吧
+
+
+*****
+
+####  Yuzutea  
+##### 862#       发表于 2024-9-5 14:52
+
+ 本帖最后由 Yuzutea 于 2024-9-5 14:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测了一下沉沦和充能ego箱和良是能全吃的
+
+开局充能良是随机充到那两个
+

@@ -5095,3 +5095,13 @@ asl感想吧
 
 蜜柑反正和谁上生放都是全程掉线，聊一聊asl之类的应该就差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22653#       发表于 2024-9-5 22:24
+
+场贩的话确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那大火都有单独代表鸡上邦tv的经验了，轮到你了米泽队员
+

@@ -8231,3 +8231,26 @@ GTA企划的可能性是存在的但是按以往STGR风的企划经验来说如�
 
 fbkmicomet这3人从年初开始就一直在一起啊 线上线下全部
 
+
+*****
+
+####  holoan  
+##### 9574#         楼主| 发表于 2024-9-5 15:48
+
+<img src="https://img.saraba1st.com/forum/202409/05/154857w922ss62q2t2fsf4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (255.51 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 15:48 上传
+
+*****
+
+####  holoan  
+##### 9575#         楼主| 发表于 2024-9-5 22:20
+
+星街刚才说漏了点什么
+
+果然每次都是星街在漏机密
+

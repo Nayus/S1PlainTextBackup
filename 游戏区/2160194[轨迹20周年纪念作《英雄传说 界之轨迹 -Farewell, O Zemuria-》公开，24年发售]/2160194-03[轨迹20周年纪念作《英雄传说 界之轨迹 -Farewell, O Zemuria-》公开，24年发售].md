@@ -7666,3 +7666,49 @@ a379c71f4a3af562648678024c53b749(1).png
 
 女仆也是明确要填 就看那个空白期填不填
 
+
+*****
+
+####  Squall25  
+##### 3720#       发表于 2024-9-5 11:55
+
+ 本帖最后由 Squall25 于 2024-9-5 12:00 编辑 
+
+界2暂定档期就26年呗，会不会像伊苏10和京迷那样改不知道，压根没有排不出来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">因为空r和京迷挤在明年了
+
+
+*****
+
+####  zhouaa  
+##### 3721#       发表于 2024-9-5 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当连闪2不也是炸了 旧七都成了牺牲品  亚绿莎大概就死在这   不然起码有个艾利待遇
+
+*****
+
+####  ravend233  
+##### 3722#       发表于 2024-9-5 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118284&amp;ptid=2160194" target="_blank">无动于衷 发表于 2024-9-5 11:51</a>
+
+细数一下
+
+小正太的坑填完了</blockquote>
+搞笑艺人和女仆比较好填吧，MK社设定比较多绕不开，写MK就要写女仆，搞笑艺人主要就填个变身器的设定，其他人确实都废了
+
+*****
+
+####  ravend233  
+##### 3723#       发表于 2024-9-5 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">26界2，所以迷城是27嘛，那今年公开干嘛
+
+
+*****
+
+####  Aeons  
+##### 3724#       发表于 2024-9-5 12:03
+
+迷城25吧
+迷城都是10年一出，没必要这边破例
+

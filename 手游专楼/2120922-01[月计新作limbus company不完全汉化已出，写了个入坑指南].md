@@ -347,3 +347,32 @@ syl 有之前播音员没抽全的说下能不能换吗
 syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 能换，保底第二页
 
+
+*****
+
+####  Yuzutea  
+##### 857#       发表于 2024-9-5 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118188&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-9-5 11:45</a>
+
+能换，保底第二页</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想问的是灯泡能不能换来着
+
+不过池子能换的话应该换不了了吧
+
+后入坑想抽全的有难了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erratic璃月  
+##### 858#       发表于 2024-9-5 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118353&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-9-5 11:57</a>
+
+我想问的是灯泡能不能换来着
+
+不过池子能换的话应该换不了了吧
+
+后入坑想抽全的有难了 ...</blockquote>
+可以期待一手付费狂气直购<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

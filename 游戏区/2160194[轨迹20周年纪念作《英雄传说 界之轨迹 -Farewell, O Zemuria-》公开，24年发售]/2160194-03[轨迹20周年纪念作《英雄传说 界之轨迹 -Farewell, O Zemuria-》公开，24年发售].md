@@ -8255,3 +8255,21 @@ Q.黎之轨迹1虽然出现了前作角色，但没有引领剧情发展等，�
 
 有偷跑pv了？ 来个链接
 
+
+*****
+
+####  Archer长羽  
+##### 3783#       发表于 2024-9-5 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66121432&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-5 17:01</a>
+
+有偷跑pv了？ 来个链接</blockquote>
+看楼上有人发过了
+
+*****
+
+####  卢迪克  
+##### 3784#       发表于 2024-9-5 17:13
+
+界是曾经克州篇的预备名
+

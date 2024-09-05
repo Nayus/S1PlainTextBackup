@@ -783,3 +783,21 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量</blockquote>
 这作不少人觉得是奶粉作，外包作。而且看2d塞很多人一看这卖相就没兴趣了。1000万肯定没戏。除非评价口碑特别高。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  whzfjk  
+##### 526#       发表于 2024-9-5 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125276&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-5 23:17</a>
+
+这作不少人觉得是奶粉作，外包作。而且看2d塞很多人一看这卖相就没兴趣了。1000万肯定没戏。除非评价口碑 ...</blockquote>
+其实没跟织梦岛画风切割可能是个败笔，看到不少主播介绍时把这作定位成织梦岛的规格和体量。
+
+*****
+
+####  GuDaZi  
+##### 527#       发表于 2024-9-5 23:32
+
+看了几个试玩，单现在透露的部分就很不错。就看具体流程多少了
+

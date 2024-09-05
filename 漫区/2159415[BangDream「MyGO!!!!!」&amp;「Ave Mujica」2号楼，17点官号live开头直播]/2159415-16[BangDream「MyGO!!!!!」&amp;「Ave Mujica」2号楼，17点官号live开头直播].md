@@ -5143,3 +5143,20 @@ ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017
 
 这么惦记别团的队员干嘛呢
 
+
+*****
+
+####  PDQ4  
+##### 22658#       发表于 2024-9-5 23:30
+
+不知道3rd后还能不能看到鸡全员邦TV<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22659#       发表于 2024-9-5 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">就知道會有說這種話的人 典
+
+別想了key是ave mujica的key捏
+

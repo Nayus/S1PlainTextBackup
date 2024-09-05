@@ -8331,3 +8331,48 @@ Q.黎之轨迹1虽然出现了前作角色，但没有引领剧情发展等，�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  妄想中毒  
+##### 3791#       发表于 2024-9-5 19:47
+
+新系统ZOC和觉醒都加强了动作模式，要不下次真的做一部ARPG的轨迹吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3792#       发表于 2024-9-5 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66121166&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-5 16:39</a>
+Q.黎之轨迹1虽然出现了前作角色，但没有引领剧情发展等，为没有接触过轨迹系列的玩家着想。这次的《界之轨 ...</blockquote>
+这又是哪
+
+*****
+
+####  Aeons  
+##### 3793#       发表于 2024-9-5 19:49
+
+今天有电击是吗，会有啥内容吗，今天访谈毕竟是中韩媒体
+
+
+*****
+
+####  ravend233  
+##### 3794#       发表于 2024-9-5 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123138&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-9-5 19:47</a>
+新系统ZOC和觉醒都加强了动作模式，要不下次真的做一部ARPG的轨迹吧</blockquote>
+建议空re加入伊苏10的防反机制<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  卢迪克  
+##### 3795#       发表于 2024-9-5 19:54
+
+<blockquote>Aeons 发表于 2024-9-5 19:49
+这又是哪</blockquote>
+韩国好像，看别人发的
+

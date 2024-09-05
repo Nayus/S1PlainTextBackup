@@ -8068,3 +8068,15 @@ imp，鼠王，不会是噗噗的粉丝吧
 
 感觉实力差不多就到这边了，还不如去匹配多练练英雄。
 
+
+*****
+
+####  sino__unnko3  
+##### 17361#       发表于 2024-9-5 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66114522&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-9-4 23:15</a>
+这一段抱怨(？)粉丝来信的蹲个切片</blockquote>
+改封面了(虽然经典老登欠费美工)
+坏了会不会就在今天
+<img src="https://p.sda1.dev/19/d6fb90613d82f2f62a9a1fd1385b2939/image.jpg" referrerpolicy="no-referrer">
+

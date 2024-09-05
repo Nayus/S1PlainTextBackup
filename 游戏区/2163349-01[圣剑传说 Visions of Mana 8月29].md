@@ -383,3 +383,33 @@ vision就是v呗，五代没问题
 
 死人无所谓，破晓我不能接受的是男主一人体实验受害者搁那反思自己暴走弄死加害者，把老婆救回来直接删游戏不打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Dragon_Quest_U  
+##### 262#       发表于 2024-9-5 16:39
+
+<blockquote>Dr.Web 发表于 2024-9-5 14:48
+是的. 现在看回去Vision的V也是暗示了. 这样老ass们是不是要上了</blockquote>
+本来观望，现在确定必上车，准备海淘
+
+*****
+
+####  Kojimaru  
+##### 263#       发表于 2024-9-5 16:41
+
+只能说那段处理的非常草率，给我看笑了
+
+
+*****
+
+####  哎哟卧槽了  
+##### 264#       发表于 2024-9-5 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66121090&amp;ptid=2163349" target="_blank">西弗 发表于 2024-9-5 16:34</a>
+
+死人无所谓，破晓我不能接受的是男主一人体实验受害者搁那反思自己暴走弄死加害者，把老婆救回来直接删游戏 ...</blockquote>
+这里还是可以圆回来，因为男主就是大爱+恋爱脑的性格，虽然自己被抓去做实验，但暴走害死的还有无辜的人，而且自己情窦初开的女人也把他送走，自己承受后果，这样他是接受不了的。包括结局的原谅也能解释，毕竟他都把对面打趴了，谁知道原谅以后还有能力差点把希侬送走，看剧情也就是马后炮的反思觉得他应该杀伐果断。但他本来就不是尤利那种性格
+
+反而第四章那个原谅是最看不懂的..<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

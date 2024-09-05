@@ -6866,3 +6866,130 @@ ddcc22d209a7061594a86dc6880aebb319650ef5.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个被近藤这样说的是斯温
 
+
+*****
+
+####  ravend233  
+##### 3636#       发表于 2024-9-5 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117382&amp;ptid=2160194" target="_blank">天王寺凯伊姆 发表于 2024-9-5 10:46</a>
+
+空1st如果只有fc是不是铁暴死啊，那点量你在24年就做一部作品太看不起人了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">答案是明年空RE+界2
+
+*****
+
+####  Aeons  
+##### 3637#       发表于 2024-9-5 10:48
+
+这采访有点长
+
+*****
+
+####  卢迪克  
+##### 3638#       发表于 2024-9-5 10:49
+
+桃花剑      
+
+808d74f376e3b0df8f06021f74a70f75c3681d3b.jpg
+(230.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 10:49 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/104908jhh515ibevv0ehwr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3639#       发表于 2024-9-5 10:50
+
+你也不是人
+
+*****
+
+####  天王寺凯伊姆  
+##### 3640#       发表于 2024-9-5 10:50
+
+what can I say，菲这人气榜待遇过好了吧
+
+
+*****
+
+####  新世界的派蒙  
+##### 3641#       发表于 2024-9-5 10:51
+
+看这个样子，神气合一和凯文圣痕都要变成常驻技能，和魔装鬼一样花200NP变身回100NP
+
+*****
+
+####  Aeons  
+##### 3642#       发表于 2024-9-5 10:52
+
+不过我个人认为黎恩体内拥有多种力量，他既不是白也不是黑，那灰可能会更适合他
+
+what can i say，是范恩兄弟吗
+
+*****
+
+####  抽烟的猴  
+##### 3643#       发表于 2024-9-5 10:52
+
+都是白毛绿眼睛，是时候让黑兔这个后辈认清自己地位了
+
+*****
+
+####  洛克萨斯  
+##### 3644#       发表于 2024-9-5 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117412&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-5 10:49</a>
+
+桃花剑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">闪之轨迹的女主角是谁？
+
+*****
+
+####  天王寺凯伊姆  
+##### 3645#       发表于 2024-9-5 10:54
+
+有没有s技动画先偷跑一下啊，我要看黎轨引擎的无仞剑
+
+*****
+
+####  卢迪克  
+##### 3646#       发表于 2024-9-5 10:54
+
+身為八葉一刀流的祖師，他和黎恩以及靜名都有很大的關係，他也和大陸謎團的核心有很大的關係，他也正以他的立場在行動，這三位師徒之間的對話也是值得玩家注意的地方
+
+三高徒「漢彌爾頓博士」也和整個大陸有關，在《黎之軌跡》最後，她說了一段意味深長的話，這在這次的《界之軌跡》得到答案，角色上他是一位溫柔的老奶奶，但卻知曉許多事，特別是關於至寶的謎團
+
+
+*****
+
+####  卢迪克  
+##### 3647#       发表于 2024-9-5 10:54
+
+博士知晓至宝的事情
+
+*****
+
+####  ravend233  
+##### 3648#       发表于 2024-9-5 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117469&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-5 10:53</a>
+
+闪之轨迹的女主角是谁？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑兔都成帝国技术侧代表了，金发女路人删号吧
+
+*****
+
+####  AsLaevatein  
+##### 3649#       发表于 2024-9-5 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66112324&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-4 18:41</a>
+背后的画，和亚里欧契有点像，不过多了两画</blockquote>
+老头这背后估计是八叶的八片叶子的门派logo吧
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

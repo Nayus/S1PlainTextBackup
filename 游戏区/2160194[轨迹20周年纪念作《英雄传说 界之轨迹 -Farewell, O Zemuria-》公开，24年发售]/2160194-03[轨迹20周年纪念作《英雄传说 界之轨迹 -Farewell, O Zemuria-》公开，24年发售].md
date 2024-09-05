@@ -8669,3 +8669,24 @@ p.s. 我就喜欢杀人诛心
 差不多要发售了，就来了</blockquote>
 草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 3825#       发表于 2024-9-6 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120773&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 16:09</a>
+制裁异端在3rd是写星杯手册上的，而黎轨认为星杯本职是管理古代遗物，异端要归僧兵厅。
+个人觉得是对僧兵 ...</blockquote>
+不算吃书，早在空轨SC和3rd就提过星杯上级封圣省的职责是管理古代遗物，空轨派出葱头的名义是处理辉之环事件。也提了封圣省和僧兵厅互相不对付
+
+*****
+
+####  Aeons  
+##### 3826#       发表于 2024-9-6 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126396&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 03:42</a>
+不算吃书，早在空轨SC和3rd就提过星杯上级封圣省的职责是管理古代遗物，空轨派出葱头的名义是处理辉之环 ...</blockquote>
+我说的吃书是指僧兵厅在3rd时间是作为一个独立的防卫组织存在，与封圣典礼并列，现在为了让他们有剧情，设定成典礼省旗下的了，再加了处理异端，就能随便加剧情了，不然一群守大门的怎么给剧情。
+3rd设定本有结构图，就是并列的。
+

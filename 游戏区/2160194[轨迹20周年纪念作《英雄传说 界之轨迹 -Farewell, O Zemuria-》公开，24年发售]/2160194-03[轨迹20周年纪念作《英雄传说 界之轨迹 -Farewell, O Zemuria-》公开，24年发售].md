@@ -8043,3 +8043,22 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 
 黎恩都能苦大仇深的 葱头咋阳光的起来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3759#       发表于 2024-9-5 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可是凯文心结已解啊，还冷酷是否有点
+
+
+*****
+
+####  洛克萨斯  
+##### 3760#       发表于 2024-9-5 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120274&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 15:20</a>
+
+可是凯文心结已解啊，还冷酷是否有点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野餐队吃他一顿要他买单就破功了
+

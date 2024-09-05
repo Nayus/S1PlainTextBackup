@@ -436,3 +436,29 @@ syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  钟于123  
+##### 864#       发表于 2024-9-5 20:40
+
+为了蝶箱吃了一井，大败而归。
+
+
+*****
+
+####  Jamaisvu  
+##### 865#       发表于 2024-9-5 20:43
+
+<img src="https://img.saraba1st.com/forum/202409/05/203857mptkvagp3ka3imgg.jpg" referrerpolicy="no-referrer">
+
+<strong>20240905203702_1.jpg</strong> (398.1 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 20:38 上传
+
+圣宣箱的三破剧情里马库库的台词竟然用了脑叶公司的UI，真有情怀啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+（不知道其他箱子精是不是也这样）
+

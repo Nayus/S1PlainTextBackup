@@ -8465,3 +8465,20 @@ Q. 另外，《Grim Garten》似乎是前作的《Marchen Garten》。一方面�
 
 黎恩在帝国的故事结束了，但黎恩作为剑士的故事并没有结束，本次描述的是黎恩和云老师还有静奈作为剑士的故事
 
+
+*****
+
+####  Aeons  
+##### 3805#       发表于 2024-9-5 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">看了看今天没有直播啊，被漏油骗了
+
+*****
+
+####  红魔馆的糖  
+##### 3806#       发表于 2024-9-5 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123665&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-5 20:33</a>
+差不多要发售了，就来了</blockquote>
+希望你以后再也不要出现了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

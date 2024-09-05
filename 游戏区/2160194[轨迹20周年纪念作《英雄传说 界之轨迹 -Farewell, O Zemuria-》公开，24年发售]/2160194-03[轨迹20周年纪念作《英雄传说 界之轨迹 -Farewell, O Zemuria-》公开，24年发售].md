@@ -7875,3 +7875,20 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 <img src="https://img.saraba1st.com/forum/202409/05/133143whgb99g9bg4444e7.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3742#       发表于 2024-9-5 13:51
+
+進藤季洋說，相信很多玩家很開心的就是凱文再次登場，《空之軌跡 3rd》剛推出時，很多人無法理解他，後來相當受到歡迎，和黎恩是爭奪軌跡人氣 1、2 名的角色。而凱文身為異端制裁者，表示本作存在一位要他肅清的角色，這位角色是誰就等待劇情揭曉。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 3743#       发表于 2024-9-5 13:53
+
+把范恩制裁掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8398,3 +8398,21 @@ Q.黎之轨迹1虽然出现了前作角色，但没有引领剧情发展等，�
 
 只砍也太LOW了
 
+
+*****
+
+####  里恩  
+##### 3798#       发表于 2024-9-5 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66121130&amp;ptid=2160194" target="_blank">Archer长羽 发表于 2024-9-5 16:37</a>
+
+另外感觉要是黎恩输师傅赢师姐，谁都能接受；输师姐赢师傅，就很难绷</blockquote>
+师傅让我，师姐欺负我不好意思跟女生认真
+
+*****
+
+####  Aeons  
+##### 3799#       发表于 2024-9-5 20:12
+
+你怎么来了
+

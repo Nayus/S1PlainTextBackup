@@ -772,3 +772,14 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量</blockquote>
 千万销量难啊，我的预期是首周300万，生涯七八百万这样，定位类似于星之卡比探索发现。
 
+
+*****
+
+####  kuarwbwe  
+##### 525#       发表于 2024-9-5 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124441&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-5 21:47</a>
+
+媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量</blockquote>
+这作不少人觉得是奶粉作，外包作。而且看2d塞很多人一看这卖相就没兴趣了。1000万肯定没戏。除非评价口碑特别高。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

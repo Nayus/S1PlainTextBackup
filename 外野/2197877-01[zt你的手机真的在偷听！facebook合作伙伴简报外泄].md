@@ -1016,3 +1016,25 @@ https://source.android.com/docs/c ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
 
+
+*****
+
+####  moeful  
+##### 95#       发表于 2024-9-5 10:16
+
+有点过时了，我现在不对头发焦虑了还是不停在给我推送生发剂
+
+—— 来自 Sony SOV37, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  JetBrains  
+##### 96#       发表于 2024-9-5 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107009&amp;ptid=2197877" target="_blank">百猪夜行 发表于 2024-9-4 10:50</a>
+别的不说，之前PDD被曝出来的那个神秘部门在互联网上就根本没有他们的事迹，所以看到很多人斩钉截铁的说不 ...</blockquote>
+pdd 那次，H 系设备提权到能读 写/data/data，就为了改电池策略来保活，V 系手机提权到 uid 2000，到系统框架级权限，后面第三方有没有搞出来 root 就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

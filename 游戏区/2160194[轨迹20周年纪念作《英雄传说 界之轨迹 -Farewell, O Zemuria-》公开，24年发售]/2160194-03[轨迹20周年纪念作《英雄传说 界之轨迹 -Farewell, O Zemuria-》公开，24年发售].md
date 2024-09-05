@@ -7844,3 +7844,34 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 黎恩畢竟是閃軌的主角，因此存在感相當強烈，因此開發團隊製作時也注意到不要讓他搶走了全部的風采
 
+
+*****
+
+####  ravend233  
+##### 3739#       发表于 2024-9-5 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里爷线估计就是扯一下师姐，云，斑鸠，然后从云口中得知一些情报的安排
+
+*****
+
+####  Aeons  
+##### 3740#       发表于 2024-9-5 13:30
+
+这真要看黑神八叶云老头和核心有啥关系了，云老头神神叨叨的
+
+*****
+
+####  ravend233  
+##### 3741#       发表于 2024-9-5 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大金字有点。。土？（
+
+6F~1O$SS(9MLJ}9(ZOS@LB9.jpg
+(30.4 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 13:31 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/133143whgb99g9bg4444e7.jpg" referrerpolicy="no-referrer">
+

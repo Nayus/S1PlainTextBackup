@@ -376,3 +376,11 @@ syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 后入坑想抽全的有难了 ...</blockquote>
 可以期待一手付费狂气直购<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  冰原狼  
+##### 859#       发表于 2024-9-5 13:28
+
+抽了220，幸好最后五缺一，换了hod收工
+

@@ -13141,3 +13141,15 @@ bb2宝了两个四星都没影...
 
 打奏三还多送石头了，后面应该还是有三池吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  TheLoof  
+##### 14542#       发表于 2024-9-5 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66111841&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2024-9-4 17:56</a>
+
+打奏三还多送石头了，后面应该还是有三池吧</blockquote>
+有没有新角色不好说，公主复刻板上钉钉啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -918,3 +918,15 @@ https://source.android.com/docs/c ...</blockquote>
 我相信实际的逻辑关系是反过来的，广告投放影响潜意识——你做出购买决定——你意识到身边 ...</blockquote>
 太多人搞不清相关性和因果性，也都以为自己的生活很特别——实际上只不过是用算法扔几百个热门广告就能覆盖到的水平。
 
+
+*****
+
+####  fuckingworld  
+##### 89#       发表于 2024-9-5 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66105809&amp;ptid=2197877" target="_blank">adw667 发表于 2024-9-4 08:46</a>
+塞班时代的360手机版有一个监控流量的悬浮窗，还有每个APP使用流量的记录，我换了4S就没见过这玩意了 ...</blockquote>
+主要是因为以前流量太贵
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

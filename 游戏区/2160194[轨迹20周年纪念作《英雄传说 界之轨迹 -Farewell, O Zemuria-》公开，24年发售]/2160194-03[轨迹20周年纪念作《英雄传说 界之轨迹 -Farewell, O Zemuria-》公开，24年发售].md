@@ -8588,3 +8588,23 @@ p.s. 我就喜欢杀人诛心
 明显就心虚 这次界轨摆明工期压不住要出续作继续爆系列老登的米 空轨pv呈现出的效果要怎么吸引玩过现代高 ...</blockquote>
 就你最后这句话 ns 所有游戏都应该和 et 一个结局才对了
 
+
+*****
+
+####  オルガピピック  
+##### 3818#       发表于 2024-9-6 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125762&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-6 00:23</a>
+
+就你最后这句话 ns 所有游戏都应该和 et 一个结局才对了</blockquote>
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成啥样了 这次访谈还要强调一次是本社制作的属实难崩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 3819#       发表于 2024-9-6 00:34
+
+<blockquote>オルガピピック 发表于 2024-9-6 00:32
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成 ...</blockquote>
+以我对单机日厂二次元风格的观察，空轨re在ns上算是很有竞争力的了
+

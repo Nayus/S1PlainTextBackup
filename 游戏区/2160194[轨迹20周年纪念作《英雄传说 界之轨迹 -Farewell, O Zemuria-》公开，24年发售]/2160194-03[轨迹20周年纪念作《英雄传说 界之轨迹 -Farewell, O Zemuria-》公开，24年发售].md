@@ -7320,3 +7320,98 @@ a379c71f4a3af562648678024c53b749(1).png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  maojiashu  
+##### 3685#       发表于 2024-9-5 11:19
+
+艾莉已经算不上女路人了
+
+零碧轨主角团本来就少 戏份随便给给都路人不了
+
+闪4和创还跟着罗伊德 早就脱离路人身份啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 3686#       发表于 2024-9-5 11:19
+
+晓鸦觉醒，给师姐上buff了，黎恩的剑又要断了的感觉
+
+*****
+
+####  ravend233  
+##### 3687#       发表于 2024-9-5 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往好处想，亚莉莎大概率是备战界2最早的选手
+
+*****
+
+####  maojiashu  
+##### 3688#       发表于 2024-9-5 11:21
+
+思考牢莎不如思考一下莉丝
+
+莉丝：我铁正宫都不能出场 牢莎也配吗
+
+*****
+
+####  宛若青空  
+##### 3689#       发表于 2024-9-5 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117690&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-5 11:08</a>
+
+师傅持刀姿势有点别扭</blockquote>
+这个姿势大概是运动中的一幕，随时在变化的动作中
+
+
+*****
+
+####  Aeons  
+##### 3690#       发表于 2024-9-5 11:22
+
+让我想到最近nga的一个高楼帖了。 艾莉在零碧闪完结篇创轨有特殊性的，亚里沙是完全去除了，甚至采访还要压一下，唯一的排面就是近藤觉得他们很配很合适。
+
+*****
+
+####  夜漫群星  
+##### 3691#       发表于 2024-9-5 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往好点想，也许可以活在葱头的台词里，但是牢莎……我不好说
+
+*****
+
+####  一步成诗  
+##### 3692#       发表于 2024-9-5 11:24
+
+但本作的剧情并没有注水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 3693#       发表于 2024-9-5 11:24
+
+界2我罗爷会露脸吗
+
+*****
+
+####  洛克萨斯  
+##### 3694#       发表于 2024-9-5 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117904&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-9-5 11:24</a>
+
+界2我罗爷会露脸吗</blockquote>
+艾和罗肯定要来的吧，毕竟总得全主角一起聚一次
+
+*****
+
+####  Aeons  
+##### 3695#       发表于 2024-9-5 11:25
+
+实话说，为啥我觉得有界二，是因为情报期才这么觉得的。
+
+因为人太少了，对不起这个排场，光结社，闪四期间可说了基本全部要来。
+
+所以没来的人都可以指望界二。
+

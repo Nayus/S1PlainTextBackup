@@ -376,3 +376,11 @@ IGN 前瞻又暗戳戳地暗示了一下，这没有超展开大活我不信，�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Vladimeow  
+##### 705#       发表于 2024-9-5 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A家游戏购买的最大障碍永远都是-家人们 还是看看远处的皇家版吧
+

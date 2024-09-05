@@ -8077,3 +8077,42 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">黎恩范恩跟冷酷不太沾边吧
 
+
+*****
+
+####  悠悠你心  
+##### 3763#       发表于 2024-9-5 15:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凯文还在异端制裁呢，不冷酷能干这活？
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  aimujie  
+##### 3764#       发表于 2024-9-5 15:51
+
+葱头冷酷没毛病吧，不还在制裁异端<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ravend233  
+##### 3765#       发表于 2024-9-5 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他工作是这个嘛，虽然怕是最后也拿不到人头
+
+*****
+
+####  hkguty  
+##### 3766#       发表于 2024-9-5 15:53
+
+感觉觉醒3人里反而是黎恩的最普通
+
+*****
+
+####  aimujie  
+##### 3767#       发表于 2024-9-5 15:54
+
+李老师变身没有白毛之后少了点王霸之气
+

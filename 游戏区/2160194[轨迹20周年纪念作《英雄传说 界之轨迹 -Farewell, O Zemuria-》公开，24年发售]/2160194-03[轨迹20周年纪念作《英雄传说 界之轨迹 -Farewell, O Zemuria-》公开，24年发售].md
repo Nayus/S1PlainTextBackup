@@ -7917,3 +7917,18 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 再加一个以后主角队自己一桌都能凑够前后排了
 
+
+*****
+
+####  ravend233  
+##### 3747#       发表于 2024-9-5 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结社的新角色剧情那很难构成剧情冲突吧（）死了就死了，当然也不是不可能
+
+*****
+
+####  Aeons  
+##### 3748#       发表于 2024-9-5 14:16
+
+如果是友方那不是纯纯闹麻，都续作客串了可没有篇幅玩这套啊
+

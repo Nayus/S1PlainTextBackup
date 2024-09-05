@@ -356,3 +356,14 @@ vision就是v呗，五代没问题
 
 剧情怎么样？我特么之前看画面首发破晓传说，简直了，现在就有点PTSD<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  哎哟卧槽了  
+##### 259#       发表于 2024-9-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120715&amp;ptid=2163349" target="_blank">西弗 发表于 2024-9-5 16:04</a>
+
+剧情怎么样？我特么之前看画面首发破晓传说，简直了，现在就有点PTSD</blockquote>
+破晓的剧情除了第四章其他也没这么不堪吧....外星迷宫倒是真的有点烦躁，不过大部分位置的怪还是可以躲的
+

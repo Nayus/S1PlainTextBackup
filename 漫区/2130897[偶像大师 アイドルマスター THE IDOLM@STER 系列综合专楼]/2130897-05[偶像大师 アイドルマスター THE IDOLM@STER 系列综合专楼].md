@@ -3312,3 +3312,27 @@ RELEASE：9/13(金)0:00</blockquote>
 
 好抽象，这企划未来原来这么悲观吗，还以为有热度会好起来。
 
+
+*****
+
+####  天堂懵懂人  
+##### 6310#       发表于 2024-9-6 03:14
+
+<img src="https://img.saraba1st.com/forum/202409/06/030638v7uxjggwr77xujys.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2024-09-06_03-05-48.jpg</strong> (183.45 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 03:06 上传
+
+百万第九集片尾realy！！
+
+“ARE YOU READY!!←这部分的动作是只有百万动画改了一下？
+
+我翻了翻本家动画里应该和游戏是一样的，
+
+“ARE YOU READY!!
+
+I'M LADY!!”←到这个地方会有一个双臂从胸前伸张出去，比较接近的动作
+

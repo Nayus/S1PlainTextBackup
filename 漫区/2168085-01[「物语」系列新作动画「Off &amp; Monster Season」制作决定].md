@@ -2375,3 +2375,16 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 问个剧透的问题，尊主后来去见忍了么，感觉垃圾和尊主见面会很有趣。
 
+
+*****
+
+####  浅川雏羽  
+##### 844#       发表于 2024-9-6 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126273&amp;ptid=2168085" target="_blank">tide777 发表于 2024-9-6 02:25</a>
+问个剧透的问题，尊主后来去见忍了么，感觉垃圾和尊主见面会很有趣。</blockquote>
+忍物语就要见了
+后面死物语上也会见
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

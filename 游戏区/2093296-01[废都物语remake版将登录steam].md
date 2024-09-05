@@ -121,3 +121,13 @@
 
 （据说托这么久没消息其实也有和发行商谈得不顺利的关系在，游戏开发应该还是正常进度的）
 
+
+*****
+
+####  苇原雪道  
+##### 599#       发表于 2024-9-5 12:41
+
+今年内还有希望么<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -75,3 +75,18 @@
 
 官方推荐的工坊mod还是机翻啊
 
+
+*****
+
+####  库德里尔  
+##### 65#       发表于 2024-9-5 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118531&amp;ptid=2068019" target="_blank">llysander 发表于 2024-9-5 12:14</a>
+原版看似主副组合很多实质限制很死，而且职业其实做的也比较糊
+
+前期职业里先练着Warlock（一眼致敬赤魔 ...</blockquote>
+主要是探路刷级的时候一直挂着mastered的职业有点浪费lp 想把精通的挂到副职，选一套新主职练着
+但我不太会配，导致新的主职队没什么强度，连刷都刷不快，更别提推主线了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

@@ -13153,3 +13153,11 @@ bb2宝了两个四星都没影...
 有没有新角色不好说，公主复刻板上钉钉啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 14543#       发表于 2024-9-5 12:45
+
+菌圣的主线不用来给新角色带货有点浪费了吧
+

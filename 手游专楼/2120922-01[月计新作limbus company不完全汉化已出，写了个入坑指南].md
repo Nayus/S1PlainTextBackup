@@ -462,3 +462,16 @@ syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 
 （不知道其他箱子精是不是也这样）
 
+
+*****
+
+####  Jamaisvu  
+##### 866#       发表于 2024-9-5 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66111544&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2024-9-4 17:30</a>
+
+lccb良被削了，三破或能白嫖40狂气</blockquote>
+试了一下，回退后重新三破不再给狂气，限定初次奖励。
+
+好在把经验书退给我了，三赛季开始还用过她，感觉能组呼吸队，谁知道正统呼吸队这么排外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在连当辅助都没位置了。
+

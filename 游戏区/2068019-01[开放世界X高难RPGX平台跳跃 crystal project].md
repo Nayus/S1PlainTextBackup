@@ -90,3 +90,16 @@
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  linyc0010  
+##### 66#       发表于 2024-9-5 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118763&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-9-5 12:36</a>
+
+主要是探路刷级的时候一直挂着mastered的职业有点浪费lp 想把精通的挂到副职，选一套新主职练着
+
+但我不太 ...</blockquote>
+辅助功能有请，经验/LP/钱这三项可以分别调整获取百分比，没必要跟自己过不去
+

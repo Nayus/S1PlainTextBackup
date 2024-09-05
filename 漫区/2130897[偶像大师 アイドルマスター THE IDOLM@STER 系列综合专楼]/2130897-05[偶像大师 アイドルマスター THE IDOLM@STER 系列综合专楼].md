@@ -3304,3 +3304,11 @@ RELEASE：9/13(金)0:00</blockquote>
 
 透鸽真的是有内部爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  竹林深远梦归处  
+##### 6309#       发表于 2024-9-5 11:08
+
+好抽象，这企划未来原来这么悲观吗，还以为有热度会好起来。
+

@@ -7061,3 +7061,262 @@ what can i say，是范恩兄弟吗
 
 总感觉再让近藤这么口胡下去，这几年就会有说法：法老控懂个p的轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3658#       发表于 2024-9-5 11:04
+
+畫質非常高...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+他同時提到，因為昨天（8/26）在 Nintendo Direct 上公開的影片畫質非常高，有些玩家甚至懷疑這是外包給其他廠商做的。不過在此他可以跟大家保證，影片跟遊戲百分之百都是由 Nihon Falcom 內部製作的。
+
+*****
+
+####  ravend233  
+##### 3659#       发表于 2024-9-5 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从黎2开始不就是近藤懂个屁轨迹了嘛，事实上他也确实不懂；他有没有好好看过剧本现在都是未知数
+
+*****
+
+####  maojiashu  
+##### 3660#       发表于 2024-9-5 11:05
+
+师姐这就要垫了？ 看来也没多少牌面嘛
+
+*****
+
+####  ravend233  
+##### 3661#       发表于 2024-9-5 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117625&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-5 11:04</a>
+
+畫質非常高...
+
+他同時提到，因為昨天（8/26）在 Nintendo Direct 上公開的影片畫質非常高，有些玩家甚至懷 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空RE这也叫高画质？
+
+*****
+
+####  新世界的派蒙  
+##### 3662#       发表于 2024-9-5 11:05
+
+先小输师姐，然后师傅指导，后小赢师姐，然后顺带帮师姐打破了瓶颈，好了黎恩篇全都是要讲这个的，好充实的剧情
+
+*****
+
+####  ravend233  
+##### 3663#       发表于 2024-9-5 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">共和国篇角色给前作角色当垫子是光荣啊，不要不识好歹
+
+*****
+
+####  天王寺凯伊姆  
+##### 3664#       发表于 2024-9-5 11:06
+
+有来有往吧，毕竟是创轨把桃花剑垫了出厂的
+
+*****
+
+####  悠悠你心  
+##### 3665#       发表于 2024-9-5 11:07
+
+这访谈出来我感觉还是降低逾预期吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Kojimaru  
+##### 3666#       发表于 2024-9-5 11:07
+
+重新定义画质
+
+*****
+
+####  Aeons  
+##### 3667#       发表于 2024-9-5 11:07
+
+这也能算共和国篇角色吗
+不知道八叶黑神有啥大秘密，别大篇幅单纯门派之争那也太谔谔了
+
+*****
+
+####  maojiashu  
+##### 3668#       发表于 2024-9-5 11:08
+
+黎恩这次来共和国是啥理由 不会就是来开个会吧
+
+葱头还能编一下 反正红蓝菜鸡黎2脸都丢完了 再菜一点喊个大哥来也无可厚非
+
+*****
+
+####  洛克萨斯  
+##### 3669#       发表于 2024-9-5 11:08
+
+<img src="https://img.saraba1st.com/forum/202409/05/110757n7szoz87so7kd48k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149.68 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 11:07 上传
+
+师傅持刀姿势有点别扭
+
+*****
+
+####  卢迪克  
+##### 3670#       发表于 2024-9-5 11:08
+
+這是我們內部一直避談的問題，曾經試圖有要開會討論出排名，但針對每個現場都會有不同的想法，照常裡來判斷，雲卡法應該是最強的，但靜名有一些未知的力量，因此還是無法給出確切的答案。黎恩對上他們有一個具體的結果，但希望玩家不要以此當作確實的戰力參考。
+
+*****
+
+####  Aeons  
+##### 3671#       发表于 2024-9-5 11:08
+
+fami杂志说的是金凯德邀请，结合昨天的，大总统邀请吧
+
+
+*****
+
+####  maojiashu  
+##### 3672#       发表于 2024-9-5 11:10
+
+现在黎教头明面上的身份是啥 还是教头吗
+
+*****
+
+####  ravend233  
+##### 3673#       发表于 2024-9-5 11:11
+
+<img src="https://img.saraba1st.com/forum/202409/05/111058ofhfm43h0ip3ffpf.png" referrerpolicy="no-referrer">
+
+<strong>({5TM3`O`R2~_X7~MA~H]O4.png</strong> (15.23 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 11:10 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑兔又是代表财团又是代表RF的
+
+*****
+
+####  天王寺凯伊姆  
+##### 3674#       发表于 2024-9-5 11:11
+
+他们真的有组会讨论战力，我哭死（
+
+*****
+
+####  洛克萨斯  
+##### 3675#       发表于 2024-9-5 11:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的八叶齐聚一堂，大师兄二师兄，师侄和另一个师姐呢
+
+
+*****
+
+####  maojiashu  
+##### 3676#       发表于 2024-9-5 11:12
+
+黑兔代表rf也太难绷了
+
+牢莎这人算是彻底无了
+
+*****
+
+####  洛克萨斯  
+##### 3677#       发表于 2024-9-5 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117735&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-5 11:11</a>
+
+黑兔又是代表财团又是代表RF的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金发女路人这个帝国第一军工企业的二把手太尴尬了
+
+*****
+
+####  ravend233  
+##### 3678#       发表于 2024-9-5 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是你法社对过气角色的态度口牙
+
+*****
+
+####  椎名mahuyo  
+##### 3679#       发表于 2024-9-5 11:13
+
+社长在之前的访谈中提过本作会将剧情推进到系列的八九成左右，玩家会担心本作是否会因为追求推进度而导致剧情发展过快，使得玩家的体验过于紧促。
+
+近藤：我参与了本作最后的QA阶段，已经玩了一遍本作，我觉得在叙事的步调上并没有特别赶的感觉。剧情后半段会揭露很多谜团的真相，这时会有大量的情报提供给玩家，但我觉得这没有赶戏的感觉。云豹娱乐的陈云云女士有提到过，虽然本作会做到中文版同步发售，但本作的剧情并没有注水，反而是系列里剧情字数非常多的一款作品，在剧情的节奏和内容量方面都非常充实。
+
+是的，我们填了很多坑，但是挖了多少不告诉你
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  maojiashu  
+##### 3680#       发表于 2024-9-5 11:14
+
+说起来萌主和黎恩哪个大 体感是不是萌主小一点
+
+
+*****
+
+####  卢迪克  
+##### 3681#       发表于 2024-9-5 11:14
+
+ 本帖最后由 卢迪克 于 2024-9-5 11:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/05/111456ujm3hmlhbxz9axho.png" referrerpolicy="no-referrer">
+
+<strong>5be415c1de7a65015eb6e105911f825b(1).png</strong> (202.16 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 11:14 上传
+
+a379c71f4a3af562648678024c53b749(1).png
+(476.35 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 11:17 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/111739szgs28xe6gku5fxc.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Squall25  
+##### 3682#       发表于 2024-9-5 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117775&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-5 11:14</a>
+说起来萌主和黎恩哪个大 体感是不是萌主小一点</blockquote>
+萌主大一岁，黎恩和小艾同一年的
+
+*****
+
+####  洛克萨斯  
+##### 3683#       发表于 2024-9-5 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是女路人，亚里沙待遇比隔壁艾莉惨多了
+
+*****
+
+####  Kojimaru  
+##### 3684#       发表于 2024-9-5 11:17
+
+<img src="https://img.saraba1st.com/forum/202409/05/111716l5onxpuof5yhnz3w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.37 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 11:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

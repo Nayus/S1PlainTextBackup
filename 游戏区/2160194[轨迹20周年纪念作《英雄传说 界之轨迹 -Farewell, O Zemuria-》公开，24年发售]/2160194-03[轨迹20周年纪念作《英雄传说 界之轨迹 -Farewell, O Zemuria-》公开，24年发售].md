@@ -7962,3 +7962,25 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社长闪2也说过他打过游戏（
 
+
+*****
+
+####  抽烟的猴  
+##### 3751#       发表于 2024-9-5 14:35
+
+<blockquote>洛克萨斯 发表于 2024-9-5 14:06
+艾，罗，黎，凯，大少，范，约
+
+再加一个以后主角队自己一桌都能凑够前后排了 ...</blockquote>
+约哪来的资格上桌
+
+*****
+
+####  洛克萨斯  
+##### 3752#       发表于 2024-9-5 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66119825&amp;ptid=2160194" target="_blank">抽烟的猴 发表于 2024-9-5 14:35</a>
+
+约哪来的资格上桌</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就去掉咯，我觉得他也算主角就是了
+

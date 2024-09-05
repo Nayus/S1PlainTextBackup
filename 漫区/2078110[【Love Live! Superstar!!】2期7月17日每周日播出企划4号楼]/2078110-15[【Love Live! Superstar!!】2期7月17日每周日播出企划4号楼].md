@@ -630,3 +630,38 @@ eupd这种傻逼公司怎么还没似啊
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  starring  
+##### 21009#       发表于 2024-9-5 12:21
+
+1500，1200甚至现在还没卖完
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+
+*****
+
+####  lj205  
+##### 21010#       发表于 2024-9-5 13:36
+
+我就不凑热闹了，10月底参加鱼的FMT
+
+*****
+
+####  优妮可  
+##### 21011#       发表于 2024-9-5 14:17
+
+买的回流，估计很后了
+
+*****
+
+####  csolfans  
+##### 21012#       发表于 2024-9-5 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66119293&amp;ptid=2078110" target="_blank">lj205 发表于 2024-9-5 13:36</a>
+我就不凑热闹了，10月底参加鱼的FMT</blockquote>
+山顶难抢多了哈哈
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

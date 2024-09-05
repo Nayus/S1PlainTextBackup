@@ -2344,3 +2344,15 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 下周直接忍物语了，忍物语篇幅够写6话吗？</blockquote>
 忍物语是纯推理小说，中间解密部分拉长一点应该够吧。
 
+
+*****
+
+####  oi99o  
+##### 841#       发表于 2024-9-5 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66116078&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-9-5 08:49</a>
+下周直接忍物语了，忍物语篇幅够写6话吗？</blockquote>
+光看文本量的话忍比抚还要多出1/3，抚都做了5话了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

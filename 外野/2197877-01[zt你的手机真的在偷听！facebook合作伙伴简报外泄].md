@@ -930,3 +930,17 @@ https://source.android.com/docs/c ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  艾诺琳  
+##### 90#       发表于 2024-9-5 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66105708&amp;ptid=2197877" target="_blank">cosx 发表于 2024-9-4 08:31</a>
+每次看到这个话题我都要喊一声hey Siri</blockquote>
+每次看到你这个发言都想说一句，语音助手是有一块专门的芯片处理的
+
+要不你试试把你苹果手机唤醒词改成小爱同学
+
+你的意思是广告商为了这个专门在你手机安装了几十个关键词唤醒芯片？
+

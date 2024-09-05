@@ -4825,3 +4825,98 @@ mujica黑非要来mujica吧干嘛呢  自己的贴吧还不够折腾的吗<img
 
 再怎么解构，都是从骂人的话转过来的。
 
+
+*****
+
+####  rikaren  
+##### 22628#       发表于 2024-9-4 17:35
+
+去pjsk的wiki上看了下，是“携带恋话”吧，25时的曲子。
+
+*****
+
+####  rollingusagi  
+##### 22629#       发表于 2024-9-4 17:53
+
+携带恋话可能性基本没有，烤的特供商曲一般不会卖版权，而且和5人也没关系，这个5人+手机能猜的范围太大了，我第一反应还是来打和连者，也看到有猜是yuyuyu的
+
+*****
+
+####  NODY  
+##### 22630#       发表于 2024-9-4 19:19
+
+<img src="https://img.saraba1st.com/forum/202409/04/191903ij20m09wxic0h1mo.jpg" referrerpolicy="no-referrer">
+
+<strong>GWnyDtIbgAAdb6g.jpg</strong> (645.77 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202409/04/191903rogpip0k399ge60i.jpg" referrerpolicy="no-referrer">
+
+<strong>GWnyDtDaIAAoeQC.jpg</strong> (574.27 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 19:19 上传
+
+*****
+
+####  鳥栖朝  
+##### 22631#       发表于 2024-9-4 19:22
+
+ 本帖最后由 鳥栖朝 于 2024-9-4 19:50 编辑 
+
+见证avemujica吧禁止用大x/大x老师来称呼祥真是太爽了（虽然活跃人数有点少）
+
+*****
+
+####  星天观测  
+##### 22632#       发表于 2024-9-4 19:33
+
+那我算是见证了为什么禁止吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  小日向美香  
+##### 22633#       发表于 2024-9-4 20:02
+
+没逛过avemujica吧，为什么禁止？
+
+*****
+
+####  skives  
+##### 22634#       发表于 2024-9-4 20:05
+
+mujica黑非要来mujica吧干嘛呢  自己的贴吧还不够折腾的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22635#       发表于 2024-9-4 23:58
+
+<img src="https://img.saraba1st.com/forum/202409/04/235846nuwqs72lui844u87.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240904234840.jpg</strong> (170.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-4 23:58 上传
+
+*****
+
+####  御景  
+##### 22636#       发表于 2024-9-5 00:17
+
+其它地方管不了，有权限的地方也不管，那也敢说是粉丝吧吗？
+
+再怎么解构，都是从骂人的话转过来的。
+
+*****
+
+####  哈曼的YY  
+##### 22637#       发表于 2024-9-5 08:56
+
+来点某人不存在／是双重人格的假药
+

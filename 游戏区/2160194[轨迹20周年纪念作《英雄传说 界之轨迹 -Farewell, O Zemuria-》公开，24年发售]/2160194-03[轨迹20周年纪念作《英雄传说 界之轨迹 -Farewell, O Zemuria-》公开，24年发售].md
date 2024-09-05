@@ -7462,3 +7462,118 @@ a379c71f4a3af562648678024c53b749(1).png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么都没法解释为什么不是亚绿莎来  唯一能沾边的只有保证帝国组全白毛的纯净性了
 
+
+*****
+
+####  ravend233  
+##### 3701#       发表于 2024-9-5 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空轨RE编剧没啥活干，流程长度也不长，正好明年一个界2一个空RE
+
+*****
+
+####  Oshino  
+##### 3702#       发表于 2024-9-5 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">黎爷打师姐看起来还行，看偷跑如果剧情不是太雷的话就买一份
+
+*****
+
+####  Aeons  
+##### 3703#       发表于 2024-9-5 11:37
+
+托娃拿叉子的小图看着像🚬，难绷
+
+*****
+
+####  Aeons  
+##### 3704#       发表于 2024-9-5 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118082&amp;ptid=2160194" target="_blank">a2042312 发表于 2024-9-5 11:35</a>
+
+结社这次人也不少了，三个柱子，老大都来了。这次采访看完我是感觉没界2了。接下来几年也没轨迹的档期了 ...</blockquote>
+
+闪之轨迹3
+
+通过这次采访，发现有很多东西必须在游戏内才能确认，这次《闪之轨迹》系列真的会完结吗？
+
+近藤：也请你在游戏内确认这一点(笑)。
+
+闪之轨迹4
+
+闪4确实是完结篇
+
+创之轨迹
+
+下一作标题并非《创之轨迹2》，《创之轨迹》一作完结，请各位放心。
+
+界之轨迹
+
+《界之轨迹》会在一部作品完结吗？还是跟《黎之轨迹》《闪之轨迹》一样由多部作品构成？
+
+近藤：大家把《界之轨迹》玩完以后就知道了。
+
+你觉得是什么就是什么
+
+*****
+
+####  Aeons  
+##### 3705#       发表于 2024-9-5 11:40
+
+结社闪四说的是，马克邦铁机队，布鲁布兰卢西奥拉二姐回归，创轨二姐也说了下个任务见。
+
+而且这大概是结社最后一个计划了，三个柱子不如幻焰好吧。
+
+
+*****
+
+####  无动于衷  
+##### 3706#       发表于 2024-9-5 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117412&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-5 10:49</a>
+
+桃花剑</blockquote>
+一起抽过烟的关系（参考羁绊事件）
+
+*****
+
+####  sslink  
+##### 3707#       发表于 2024-9-5 11:43
+
+我觉得结社这次的戏份大部分都在回廊，至少新的那两个角色是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卢迪克  
+##### 3708#       发表于 2024-9-5 11:43
+
+在這些成員中，還有兩位的故事沒有解開，第一是亞妮艾絲，她在尋找的八創世到底是什麼東西？這次也會解得更加完整，另一個當然是主角范恩，他的身體為何寄宿著魔王的力量，這在這次也會稍微提到，這兩位將是《界之軌跡》中最令人矚目的角色。
+
+*****
+
+####  卢迪克  
+##### 3709#       发表于 2024-9-5 11:44
+
+两个，意思猫女，女仆，阿龙，菲利在黎2都讲完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3710#       发表于 2024-9-5 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事务所角色砍到只剩学妹和VAN有剧情不是早就有预期的（
+
+*****
+
+####  Markorca  
+##### 3711#       发表于 2024-9-5 11:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">如果没黎2大伙估计也不会那么急，只能说是自己作的
+
+*****
+
+####  Aeons  
+##### 3712#       发表于 2024-9-5 11:45
+
+别的还能说砍了，女仆不可能讲完，这你看op就知道了
+

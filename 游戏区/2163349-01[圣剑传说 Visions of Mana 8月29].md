@@ -413,3 +413,11 @@ vision就是v呗，五代没问题
 
 反而第四章那个原谅是最看不懂的..<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  88is88  
+##### 265#       发表于 2024-9-5 16:51
+
+破晓弱智原谅剧情就不说了，反正脑残剧情看多了也就那样。我反而觉得是上天后剧情开飞机感到比较不爽，有半种在玩异度装甲DISC2的感觉
+

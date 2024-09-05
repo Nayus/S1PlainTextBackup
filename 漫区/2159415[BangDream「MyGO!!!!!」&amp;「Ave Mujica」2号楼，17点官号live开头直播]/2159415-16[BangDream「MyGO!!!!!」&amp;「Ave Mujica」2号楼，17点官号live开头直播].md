@@ -5105,3 +5105,23 @@ asl感想吧
 
 那大火都有单独代表鸡上邦tv的经验了，轮到你了米泽队员
 
+
+*****
+
+####  ShikiM  
+##### 22654#       发表于 2024-9-5 22:43
+
+更想听羊姐唱ed的
+
+ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  russianbear  
+##### 22655#       发表于 2024-9-5 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124444&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-5 21:47</a>
+
+比起担心羊姐的live，我更好奇gbc的op有段特色鲜明的键盘solo，给mygo的乐器配置改编的话，要狠狠地军训青 ...</blockquote>
+建议去隔壁Ave Mujica借一个键盘手
+

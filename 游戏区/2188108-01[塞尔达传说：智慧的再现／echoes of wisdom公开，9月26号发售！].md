@@ -742,3 +742,11 @@ pdd上了，286还行
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是没有amiibo消息吗，和梦见岛的凑一对
 
+
+*****
+
+####  ColAMK  
+##### 522#       发表于 2024-9-5 21:47
+
+媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+

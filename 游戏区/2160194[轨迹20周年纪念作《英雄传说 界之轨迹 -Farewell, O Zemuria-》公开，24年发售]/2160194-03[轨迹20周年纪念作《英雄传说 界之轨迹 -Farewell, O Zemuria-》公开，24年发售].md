@@ -7907,3 +7907,13 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肯定是结社新人物吧，他都说了马克邦小丑也在名单
 
+
+*****
+
+####  洛克萨斯  
+##### 3746#       发表于 2024-9-5 14:06
+
+艾，罗，黎，凯，大少，范，约
+
+再加一个以后主角队自己一桌都能凑够前后排了
+

@@ -8568,3 +8568,23 @@ Q.这是亚克莱德事务所的故事，为什么取名为“界之轨迹”，
 
 p.s. 我就喜欢杀人诛心
 
+
+*****
+
+####  オルガピピック  
+##### 3816#       发表于 2024-9-6 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124221&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-5 21:23</a>
+
+对于近藤很失望，这么多访谈，没一个希望轨迹20周年能取得成功的回答，去年伊苏就有说 ...</blockquote>
+明显就心虚 这次界轨摆明工期压不住要出续作继续爆系列老登的米 空轨pv呈现出的效果要怎么吸引玩过现代高清游戏的小登<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 3817#       发表于 2024-9-6 00:23
+
+<blockquote>オルガピピック 发表于 2024-9-6 00:19
+明显就心虚 这次界轨摆明工期压不住要出续作继续爆系列老登的米 空轨pv呈现出的效果要怎么吸引玩过现代高 ...</blockquote>
+就你最后这句话 ns 所有游戏都应该和 et 一个结局才对了
+

@@ -5125,3 +5125,11 @@ ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017
 比起担心羊姐的live，我更好奇gbc的op有段特色鲜明的键盘solo，给mygo的乐器配置改编的话，要狠狠地军训青 ...</blockquote>
 建议去隔壁Ave Mujica借一个键盘手
 
+
+*****
+
+####  Aendst  
+##### 22656#       发表于 2024-9-5 23:04
+
+借什么借？这么喜欢借干脆直接换mujica唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一劳永逸
+

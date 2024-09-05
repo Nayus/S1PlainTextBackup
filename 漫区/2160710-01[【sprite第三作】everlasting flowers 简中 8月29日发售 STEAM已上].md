@@ -538,3 +538,69 @@ Everlasting Flowers Short Story机翻.txt
 
 「大好きな人たち」<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  利维豚  
+##### 60#         楼主| 发表于 2024-9-5 23:03
+
+OCR也有很多问题
+
+附上照片吧
+
+<img src="https://img.saraba1st.com/forum/202409/05/230207j0ssfyx8xq464c48.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193139.jpg</strong> (720.39 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230217tecefkeehfleizwj.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193217.jpg</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230226wby8sga551zodd5g.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193238.jpg</strong> (677.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230241er6slo760666r6lc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193308.jpg</strong> (756.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230256ic5lxz95n1mudnll.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193434.jpg</strong> (847.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230302l3to32jqom8zjjjz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193514.jpg</strong> (902.13 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/230307bw4kxw4mtjtxkwjm.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20240905_193545.jpg</strong> (691.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:03 上传
+

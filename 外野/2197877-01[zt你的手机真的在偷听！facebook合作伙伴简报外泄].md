@@ -906,3 +906,15 @@ https://source.android.com/docs/c ...</blockquote>
 
 — from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
 
+
+*****
+
+####  pzk  
+##### 88#       发表于 2024-9-5 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66107650&amp;ptid=2197877" target="_blank">gammatau 发表于 2024-9-4 11:54</a>
+窃听是不存在的
+
+我相信实际的逻辑关系是反过来的，广告投放影响潜意识——你做出购买决定——你意识到身边 ...</blockquote>
+太多人搞不清相关性和因果性，也都以为自己的生活很特别——实际上只不过是用算法扔几百个热门广告就能覆盖到的水平。
+

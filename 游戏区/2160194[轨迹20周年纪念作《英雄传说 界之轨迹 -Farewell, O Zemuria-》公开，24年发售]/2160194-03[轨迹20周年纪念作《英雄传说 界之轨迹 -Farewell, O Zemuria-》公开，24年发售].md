@@ -8658,3 +8658,14 @@ p.s. 我就喜欢杀人诛心
 记得还是被充分地折磨过了吧。但是他这精神可太坚韧了。</blockquote>
 是，虽然我这有点站着说话不腰疼了，但是范恩恢复过来后和艾蕾因卢尼一起还是挺开心的，是发现魔核没了还不安生才自暴自弃跑路的。
 
+
+*****
+
+####  Sylpheed  
+##### 3824#       发表于 2024-9-6 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123665&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-5 20:33</a>
+
+差不多要发售了，就来了</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

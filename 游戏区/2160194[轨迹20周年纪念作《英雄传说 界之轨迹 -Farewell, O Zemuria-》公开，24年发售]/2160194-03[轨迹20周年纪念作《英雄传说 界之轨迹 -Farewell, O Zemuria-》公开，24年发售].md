@@ -8690,3 +8690,120 @@ p.s. 我就喜欢杀人诛心
 我说的吃书是指僧兵厅在3rd时间是作为一个独立的防卫组织存在，与封圣典礼并列，现在为了让他们有剧情，设定成典礼省旗下的了，再加了处理异端，就能随便加剧情了，不然一群守大门的怎么给剧情。
 3rd设定本有结构图，就是并列的。
 
+
+*****
+
+####  whzfjk  
+##### 3827#       发表于 2024-9-6 00:23
+
+<blockquote>オルガピピック 发表于 2024-9-6 00:19
+明显就心虚 这次界轨摆明工期压不住要出续作继续爆系列老登的米 空轨pv呈现出的效果要怎么吸引玩过现代高 ...</blockquote>
+就你最后这句话 ns 所有游戏都应该和 et 一个结局才对了
+
+*****
+
+####  オルガピピック  
+##### 3828#       发表于 2024-9-6 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125762&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-6 00:23</a>
+
+就你最后这句话 ns 所有游戏都应该和 et 一个结局才对了</blockquote>
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成啥样了 这次访谈还要强调一次是本社制作的属实难崩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjk  
+##### 3829#       发表于 2024-9-6 00:34
+
+<blockquote>オルガピピック 发表于 2024-9-6 00:32
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成 ...</blockquote>
+以我对单机日厂二次元风格的观察，空轨re在ns上算是很有竞争力的了
+
+*****
+
+####  ravend233  
+##### 3830#       发表于 2024-9-6 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125808&amp;ptid=2160194" target="_blank">オルガピピック 发表于 2024-9-6 00:32</a>
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成 ...</blockquote>
+上来就和红绿帽子猛汉比是不是太过高看三线小厂了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 3831#       发表于 2024-9-6 00:45
+
+ 本帖最后由 Aeons 于 2024-9-6 00:50 编辑 
+
+중요하고 자주 듣는 질문이다. 계의 궤적에서는 적어도 한 사람과는 결판을 짓는다. 누구인지, 언제인지 말씀드리기는 어렵다. 결말이 행복한지 슬픈지 등도 포함해 기대해주시면 좋겠다.
+
+매우 중요한 질문이고, 또 가장 많이 듣는 질문이다(웃음). 계의 궤적에서는 적어도 한 사람과는 확실한 결과를 맞이한다. 누가 누구와 언제 어떻게 엮일지, 또 그것이 해피할지 슬플지는 직접 지켜봐주셨으면 한다.
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">原来上面的是韩媒问题和回复。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">机翻了下，关于学妹和剑女，近藤说至少会和一个人有结果，无论高兴或悲伤，希望大家都能接受。
+
+*****
+
+####  Archlich³  
+##### 3832#       发表于 2024-9-6 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120686&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 16:00</a>
+
+魔核是天生有的，dg是把范恩魔核抽出来了，如果没有折磨的话反而算是一件好事。
+
+范恩的困境不是后天带来的 ...</blockquote>
+记得还是被充分地折磨过了吧。但是他这精神可太坚韧了。
+
+*****
+
+####  Aeons  
+##### 3833#       发表于 2024-9-6 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125920&amp;ptid=2160194" target="_blank">Archlich³ 发表于 2024-9-6 00:50</a>
+
+记得还是被充分地折磨过了吧。但是他这精神可太坚韧了。</blockquote>
+是，虽然我这有点站着说话不腰疼了，但是范恩恢复过来后和艾蕾因卢尼一起还是挺开心的，是发现魔核没了还不安生才自暴自弃跑路的。
+
+*****
+
+####  Sylpheed  
+##### 3834#       发表于 2024-9-6 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123665&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-5 20:33</a>
+
+差不多要发售了，就来了</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 3835#       发表于 2024-9-6 03:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120773&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 16:09</a>
+制裁异端在3rd是写星杯手册上的，而黎轨认为星杯本职是管理古代遗物，异端要归僧兵厅。
+个人觉得是对僧兵 ...</blockquote>
+不算吃书，早在空轨SC和3rd就提过星杯上级封圣省的职责是管理古代遗物，空轨派出葱头的名义是处理辉之环事件。也提了封圣省和僧兵厅互相不对付
+
+*****
+
+####  Aeons  
+##### 3836#       发表于 2024-9-6 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126396&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 03:42</a>
+不算吃书，早在空轨SC和3rd就提过星杯上级封圣省的职责是管理古代遗物，空轨派出葱头的名义是处理辉之环 ...</blockquote>
+我说的吃书是指僧兵厅在3rd时间是作为一个独立的防卫组织存在，与封圣典礼并列，现在为了让他们有剧情，设定成典礼省旗下的了，再加了处理异端，就能随便加剧情了，不然一群守大门的怎么给剧情。
+3rd设定本有结构图，就是并列的。
+
+*****
+
+####  andychen  
+##### 3837#       发表于 2024-9-6 06:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126400&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 03:45</a>
+我说的吃书是指僧兵厅在3rd时间是作为一个独立的防卫组织存在，与封圣典礼并列，现在为了让他们有剧情， ...</blockquote>
+处理异端这部分既然明面上星杯是负责古代遗物管理的，那属于教会武装力量的僧兵厅管理是很自然的吧。这部分我觉得没啥问题
+
+至于从属关系这个我还真没注意过，不过僧兵厅之前一直在反复提及，典礼省反而几乎没出场过，要说加戏应该是准备给典礼省那边加。也许是在为后续法典国的内容做铺垫了
+

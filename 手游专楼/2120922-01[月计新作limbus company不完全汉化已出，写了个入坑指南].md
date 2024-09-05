@@ -320,3 +320,15 @@ PS：常驻角色池不建议抽太多，攒箱子直接换也能表达对角色
 
 lccb良被削了，三破或能白嫖40狂气<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Yuzutea  
+##### 855#       发表于 2024-9-5 11:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运气还行
+
+没到井就全出了
+
+syl 有之前播音员没抽全的说下能不能换吗
+

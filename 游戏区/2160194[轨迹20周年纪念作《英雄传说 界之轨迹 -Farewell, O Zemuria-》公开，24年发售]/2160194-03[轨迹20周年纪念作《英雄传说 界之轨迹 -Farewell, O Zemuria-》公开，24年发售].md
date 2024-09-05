@@ -7415,3 +7415,50 @@ a379c71f4a3af562648678024c53b749(1).png
 
 所以没来的人都可以指望界二。
 
+
+*****
+
+####  zhouaa  
+##### 3696#       发表于 2024-9-5 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黎恩大概是来看火箭发射的  需要帝国方有个见证人
+
+*****
+
+####  ravend233  
+##### 3697#       发表于 2024-9-5 11:32
+
+界2就可以大塞特塞老角色了
+
+什么这是共和国篇？谁关心共和国角色啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 3698#       发表于 2024-9-5 11:33
+
+闪四完结篇也有很多老角色，这是必然一环。
+理论上这作的危机正反排场都要比以前大。
+
+*****
+
+####  a2042312  
+##### 3699#       发表于 2024-9-5 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117932&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 11:25</a>
+
+实话说，为啥我觉得有界二，是因为情报期才这么觉得的，消息前我在这边说过认为是一作巨大容量。
+
+因为来的 ...</blockquote>
+结社这次人也不少了，三个柱子，老大都来了。这次采访看完我是感觉没界2了。接下来几年也没轨迹的档期了。
+
+*****
+
+####  zhouaa  
+##### 3700#       发表于 2024-9-5 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么都没法解释为什么不是亚绿莎来  唯一能沾边的只有保证帝国组全白毛的纯净性了
+

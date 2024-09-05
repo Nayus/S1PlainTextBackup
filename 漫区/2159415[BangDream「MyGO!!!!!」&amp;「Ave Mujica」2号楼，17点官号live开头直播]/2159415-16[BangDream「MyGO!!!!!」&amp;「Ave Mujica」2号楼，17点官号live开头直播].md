@@ -4977,3 +4977,49 @@ ppp箱活啊
 
 萝这个封面好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 22642#       发表于 2024-9-5 21:44
+
+喷了，萝怎么翻人狂热者
+
+*****
+
+####  rikaren  
+##### 22643#       发表于 2024-9-5 21:46
+
+<img src="https://img.saraba1st.com/forum/202409/05/214616khc126c216tck1yl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-42-06-15_149003a2d400f6adb210d7e357a3a646.jpg</strong> (246.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/214622lmsskjd3kj0h80h0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-43-22-91_149003a2d400f6adb210d7e357a3a646.jpg</strong> (271.65 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/214630fuakys5r595m5yes.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-44-26-34_149003a2d400f6adb210d7e357a3a646.jpg</strong> (290.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:46 上传
+
+*****
+
+####  前方暴雨预警  
+##### 22644#       发表于 2024-9-5 21:47
+
+比起担心羊姐的live，我更好奇gbc的op有段特色鲜明的键盘solo，给mygo的乐器配置改编的话，要狠狠地军训青木了
+
+快进到青木来唱而键盘部分放program<img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">
+

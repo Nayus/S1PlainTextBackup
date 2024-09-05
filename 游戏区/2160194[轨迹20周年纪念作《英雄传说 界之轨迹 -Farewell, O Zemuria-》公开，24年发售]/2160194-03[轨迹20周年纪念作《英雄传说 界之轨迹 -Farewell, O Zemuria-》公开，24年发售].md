@@ -8376,3 +8376,25 @@ Q.黎之轨迹1虽然出现了前作角色，但没有引领剧情发展等，�
 这又是哪</blockquote>
 韩国好像，看别人发的
 
+
+*****
+
+####  无动于衷  
+##### 3796#       发表于 2024-9-5 20:04
+
+<blockquote>妄想中毒 发表于 2024-9-5 19:47
+新系统ZOC和觉醒都加强了动作模式，要不下次真的做一部ARPG的轨迹吧</blockquote>
+只要动作模式的收益还那么扣扣缩缩就还是给回合制模式当陪衬
+
+*****
+
+####  里恩  
+##### 3797#       发表于 2024-9-5 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120596&amp;ptid=2160194" target="_blank">hkguty 发表于 2024-9-5 15:53</a>
+
+感觉觉醒3人里反而是黎恩的最普通</blockquote>
+至少给个里疾风
+
+只砍也太LOW了
+

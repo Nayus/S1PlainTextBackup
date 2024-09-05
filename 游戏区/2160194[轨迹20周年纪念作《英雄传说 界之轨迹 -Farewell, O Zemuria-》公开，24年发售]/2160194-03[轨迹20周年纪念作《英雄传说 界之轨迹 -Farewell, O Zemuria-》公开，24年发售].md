@@ -7749,3 +7749,34 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  光之阶梯  
+##### 3729#       发表于 2024-9-5 12:17
+
+牢莎真惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aimujie  
+##### 3730#       发表于 2024-9-5 12:18
+
+搞笑艺人身世可能当成创世的副作用就带过去了
+
+*****
+
+####  Aeons  
+##### 3731#       发表于 2024-9-5 12:21
+
+都去她老家了还怕没剧情？
+
+*****
+
+####  无动于衷  
+##### 3732#       发表于 2024-9-5 12:22
+
+主要还是玩家想看的和你法要填的是不是存在偏差 像小正太那种填的完美甚至还附带小惊喜的在你法的历史上是罕见的
+

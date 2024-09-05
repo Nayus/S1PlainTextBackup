@@ -702,3 +702,27 @@ Zeltik出息了，王泪和本作都有被英任邀请试玩
 
 实体预购送的特典一般，用之前存的8折eshop点卡买了
 
+
+*****
+
+####  撒撒  
+##### 518#       发表于 2024-9-5 20:27
+
+IGN《塞尔达传说：智慧的再现》最终前瞻（时长11分21秒，没有中文字幕，有剧透）
+
+[https://www.bilibili.com/video/BV1BxpMeqEse/](https://www.bilibili.com/video/BV1BxpMeqEse/)
+
+智慧的再现一部2D塞也能改变塞尔达传说的未来？
+[https://www.bilibili.com/video/BV1KhpTejEGv/](https://www.bilibili.com/video/BV1KhpTejEGv/)
+
+*****
+
+####  kuarwbwe  
+##### 519#       发表于 2024-9-5 20:28
+
+<blockquote>撒撒 发表于 2024-9-5 20:27
+IGN《塞尔达传说：智慧的再现》最终前瞻（时长11分21秒，没有中文字幕，有剧透）
+
+https://www.bilibili.co ...</blockquote>
+本来想看下面那个的，一看是这个游戏播报君，算了。
+

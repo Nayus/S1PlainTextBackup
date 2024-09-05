@@ -8440,3 +8440,28 @@ Q. 另外，《Grim Garten》似乎是前作的《Marchen Garten》。一方面�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Aeons  
+##### 3802#       发表于 2024-9-5 20:32
+
+95%过去的事其实不能叫设定
+
+*****
+
+####  里恩  
+##### 3803#       发表于 2024-9-5 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123413&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 20:12</a>
+
+你怎么来了</blockquote>
+差不多要发售了，就来了
+
+*****
+
+####  卢迪克  
+##### 3804#       发表于 2024-9-5 20:34
+
+黎恩在帝国的故事结束了，但黎恩作为剑士的故事并没有结束，本次描述的是黎恩和云老师还有静奈作为剑士的故事
+

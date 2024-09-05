@@ -3318,3 +3318,12 @@ minoru通关，原来如此。</blockquote>
 
 打完了，虽然故事算不上神作，但就是喜欢这种文字avg，希望能有续作，出一部买一部豪华供着
 
+
+*****
+
+####  漫漫来  
+##### 323#       发表于 2024-9-6 01:49
+
+打完了，这剧情太鸡儿变态了，第一次产生了“说不定我上写的更好”这种想法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+前11章感觉有效内容可能还不到1/5，男女主做了这么多工作结果打到最后就是纯纯的摄像头，这故事有他们没他们根本没区别，回头看每章结束后的推理部分有够小丑的，可以说是一点用也没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

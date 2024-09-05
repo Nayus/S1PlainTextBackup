@@ -2356,3 +2356,14 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  Piano-Forest  
+##### 842#         楼主| 发表于 2024-9-6 00:03
+
+[https://x.com/seryu_oekaki/status/1829875827796033852](https://x.com/seryu_oekaki/status/1829875827796033852)
+
+#物語シリーズ   📷 オフ&amp;モンスターシーズン 第8話 #業物語「あせろらボナペティ 其ノ貮」絵コンテを少しだけ手伝わせていただきました。今回もありがとうございました🙇
+<img src="https://p.sda1.dev/19/77a59e36f2dd5a86a8286b1190065c42/20240906_000215.jpg" referrerpolicy="no-referrer">
+

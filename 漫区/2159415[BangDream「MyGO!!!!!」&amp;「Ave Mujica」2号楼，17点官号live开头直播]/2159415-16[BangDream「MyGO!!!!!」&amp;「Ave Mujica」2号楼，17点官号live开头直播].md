@@ -5205,3 +5205,172 @@ ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017
 
 [https://x.com/baiyuBYY/status/1830993095284146312](https://x.com/baiyuBYY/status/1830993095284146312)
 
+
+*****
+
+####  星天观测  
+##### 22662#       发表于 2024-9-5 22:24
+
+场贩的话确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那大火都有单独代表鸡上邦tv的经验了，轮到你了米泽队员
+
+*****
+
+####  ShikiM  
+##### 22663#       发表于 2024-9-5 22:43
+
+更想听羊姐唱ed的
+
+ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  russianbear  
+##### 22664#       发表于 2024-9-5 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124444&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-5 21:47</a>
+
+比起担心羊姐的live，我更好奇gbc的op有段特色鲜明的键盘solo，给mygo的乐器配置改编的话，要狠狠地军训青 ...</blockquote>
+建议去隔壁Ave Mujica借一个键盘手
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测|-1|梦里|
+| -LYRE-|-1|你想踢掉狗里的谁？|
+| 御幸一也|-1|不借哈|
+
+查看全部评分
+
+*****
+
+####  Aendst  
+##### 22665#       发表于 2024-9-5 23:04
+
+借什么借？这么喜欢借干脆直接换mujica唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png">一劳永逸
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  星天观测  
+##### 22666#       发表于 2024-9-5 23:11
+
+借什么借，青木不是会键盘么，让青木来啊
+
+这么惦记别团的队员干嘛呢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 御幸一也| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  PDQ4  
+##### 22667#       发表于 2024-9-5 23:30
+
+不知道3rd后还能不能看到鸡全员邦TV<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22668#       发表于 2024-9-5 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">就知道會有說這種話的人 典
+
+別想了key是ave mujica的key捏
+
+*****
+
+####  御幸一也  
+##### 22669#       发表于 2024-9-5 23:40
+
+神降臨<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/05/172747ftn917a6q687mlqc.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_花畑(@htq_7)_20240904-200502_1831423246375514600_photo.jpg</strong> (193.3 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 17:27 上传
+
+[https://x.com/htq_7/status/1831423246375514600](https://x.com/htq_7/status/1831423246375514600)
+
+<img src="https://img.saraba1st.com/forum/202409/05/172754elzoizq0n1jnmkdj.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_花畑(@htq_7)_20240902-145011_1830619233505648776_photo.jpg</strong> (334.46 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 17:27 上传
+
+[https://x.com/htq_7/status/1830619233505648776](https://x.com/htq_7/status/1830619233505648776)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星天观测| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  御幸一也  
+##### 22670#       发表于 2024-9-5 23:40
+
+睦祥的神也降臨了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202409/05/172909h54c55pjvpjxks09.jpg" referrerpolicy="no-referrer">
+
+<strong>twitter_白／백🍧(@baiyuBYY)_20240903-153546_1830993095284146312_photo.jpg</strong> (297.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 17:29 上传
+
+[https://x.com/baiyuBYY/status/1830993095284146312](https://x.com/baiyuBYY/status/1830993095284146312)
+
+*****
+
+####  九陌狂游  
+##### 22671#       发表于 2024-9-6 07:18
+
+说起来gbc的键盘手和鼓手还能回归不，该不会真的要换人吧
+
+*****
+
+####  rikaren  
+##### 22672#       发表于 2024-9-6 07:19
+
+3rd后鸡全员邦tv不好说，毕竟是m，am，ppp三个团连着开live，更有可能三个主唱一起凑一期。
+

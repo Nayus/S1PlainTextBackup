@@ -957,3 +957,34 @@ https://source.android.com/docs/c ...</blockquote>
 
 为啥要唤醒，就不能定时开启识别语音？反正发烫的是你的手机。真不知道你们这些信誓旦旦认为不会有的是什么心态，不会真是相关利益者吧
 
+
+*****
+
+####  金泽龙  
+##### 92#       发表于 2024-9-5 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66110932&amp;ptid=2197877" target="_blank">adw667 发表于 2024-9-4 16:48</a>
+
+也是几点几分哪个程序用了多少流量的吗</blockquote>
+手机可能没有这么精细的统计了，但是你可以去运营商网站查询详单，几点几分几秒都能查出来。
+
+联通哪个APP用的流量都能显示，移动好像去营业厅也能打出来显示app的，我记得访问网址都是能打出来的。
+
+想神不知鬼不觉偷用点流量哪这么容易。
+
+<img src="https://img.saraba1st.com/forum/202409/05/100248vxxl5tlzxtsbtl0h.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240905095844.png</strong> (164.61 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/100248nsjjqoteaisznagi.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20240905100052.png</strong> (283.86 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 10:02 上传
+

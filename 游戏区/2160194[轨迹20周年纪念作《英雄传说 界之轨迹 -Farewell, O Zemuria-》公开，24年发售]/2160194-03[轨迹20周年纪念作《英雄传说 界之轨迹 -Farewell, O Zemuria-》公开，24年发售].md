@@ -7892,3 +7892,18 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 把范恩制裁掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 3744#       发表于 2024-9-5 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉候选名单就那么几个，VAN，马社相关，不知道哪来的那么多信息的大总统
+
+*****
+
+####  Aeons  
+##### 3745#       发表于 2024-9-5 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肯定是结社新人物吧，他都说了马克邦小丑也在名单
+

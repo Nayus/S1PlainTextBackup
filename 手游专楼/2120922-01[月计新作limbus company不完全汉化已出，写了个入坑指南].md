@@ -504,3 +504,18 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 但是镜牢不需要开两回合也能秒，道中这东西拼点也拼不过，真要下次地铁有用感觉到时候拿箱子换也不迟
 
+
+*****
+
+####  Jamaisvu  
+##### 869#       发表于 2024-9-5 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124046&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-9-5 21:05</a>
+
+虫挺强的，感觉比之前那几个多币ego强一个档次，打多就是强
+
+但是镜牢不需要开两回合也能秒，道中这东西拼 ...</blockquote>
+好的，我是觉得都快200抽了沉没成本不小，就想着要不要这次换了，毕竟卡池换是200纽，进店就400碎片了...
+
+对比下玛玛的振翅，好像确实强了不少，虽然不用侵蚀还是拼点苦手...其实我光看卡面就觉得这卡值得拥有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

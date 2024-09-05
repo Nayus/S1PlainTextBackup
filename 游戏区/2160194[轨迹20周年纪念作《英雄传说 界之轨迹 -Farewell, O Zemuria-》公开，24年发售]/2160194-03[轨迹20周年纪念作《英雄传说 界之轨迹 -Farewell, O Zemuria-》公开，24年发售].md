@@ -6774,3 +6774,95 @@ c1797ba30cf431ad55d6071b0d36acaf2fdd98d8.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这访谈看起来就是让大伙准备好明年玩界2的准备
 
+
+*****
+
+####  卢迪克  
+##### 3626#       发表于 2024-9-5 10:39
+
+希望透過《空之軌跡》重製版找到答案
+
+最後請談談剛發表的《空之軌跡》重製版
+
+A：上次在台北電玩展時，有提過想要有個讓軌跡系列入門的選項，當時在說的其實就是這款，畢竟軌跡持續 了20 年，當今主機不能玩這些老遊戲，在各國都有玩家問要從哪裡入門，基於這樣的考量選擇了這款作品。
+
+另外 JRPG 最近比較弱勢，在我們的觀察中，任天堂的玩家很多沒有玩 JRPG 作品，我們希望空之軌跡能成為他們的第一款 JRPG 作品。
+
+包括前面提到系統過於複雜，都希望可以透過這款作品找到主要答案，而角色魅力將是這款遊戲最大的賣點，因此希望可以完整呈現艾絲蒂爾、約書亞他們兩人的魅力，場景用色上是刻意比較鮮豔，有人看了甚至懷疑是外包，但這是錯誤的，100％ 由 FALCOM 開發。
+
+當年開發《空之軌跡》很多原班人馬都還在公司內，因此可說是以原班人馬的方式重製 20 年前的作品，長久下來無論是好的習慣、壞的習慣都有承襲下來，相信我們這次都會有所領悟，也請大家見證。
+
+*****
+
+####  aimujie  
+##### 3627#       发表于 2024-9-5 10:40
+
+实锤就是李鬼3，咚！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 3628#       发表于 2024-9-5 10:41
+
+一股空轨暴死，你轨就没了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3629#       发表于 2024-9-5 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">空RE暴死加上界轨那就真的没救了，所有旧作积累的人气全都无法变现，出新篇还不如直接出新IP
+
+*****
+
+####  天王寺凯伊姆  
+##### 3630#       发表于 2024-9-5 10:46
+
+空1st如果只有fc是不是铁暴死啊，那点量你在24年就做一部作品太看不起人了吧
+
+
+*****
+
+####  Kojimaru  
+##### 3631#       发表于 2024-9-5 10:46
+
+党争终于要画上句号了？<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer"> 还是故事中盘就要选择，如果是处刑变身后的学妹怎么也得是终章前吧
+
+*****
+
+####  a2042312  
+##### 3632#       发表于 2024-9-5 10:46
+
+20年老员工再做一遍啊，轨迹仙人
+
+*****
+
+####  卢迪克  
+##### 3633#       发表于 2024-9-5 10:46
+
+草        
+
+ddcc22d209a7061594a86dc6880aebb319650ef5.jpg
+(210.74 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 10:46 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/104625qggqz8xwjquxljg2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一步成诗  
+##### 3634#       发表于 2024-9-5 10:47
+
+葱头定位是准主角，龙王归来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3635#       发表于 2024-9-5 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个被近藤这样说的是斯温
+

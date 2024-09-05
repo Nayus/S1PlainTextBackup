@@ -7799,3 +7799,38 @@ https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
 
 序章是明天吗，我本来以为序章会是凯文那边，因为凯文和大少那边还要一个认识的过程
 
+
+*****
+
+####  卢迪克  
+##### 3735#       发表于 2024-9-5 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118719&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 12:30</a>
+
+序章是明天吗，我本来以为序章会是凯文那边，因为凯文和大少那边还要一个认识的过程 ...</blockquote>
+没有就黎恩那个，
+
+*****
+
+####  ky怪  
+##### 3736#       发表于 2024-9-5 13:09
+
+我信了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202409/05/130931yqqyvqs8q87eudre.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5315.jpeg</strong> (93.71 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 13:09 上传
+
+*****
+
+####  Aeons  
+##### 3737#       发表于 2024-9-5 13:10
+
+说的是本来以为啊
+
+所以想看看大概讲了啥，凯文大少见面还有点冲突，放到一章有点der
+

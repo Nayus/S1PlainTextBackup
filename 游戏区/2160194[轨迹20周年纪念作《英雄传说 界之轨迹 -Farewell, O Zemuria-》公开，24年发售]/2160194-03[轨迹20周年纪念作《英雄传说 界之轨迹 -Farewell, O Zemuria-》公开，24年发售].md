@@ -8062,3 +8062,18 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 可是凯文心结已解啊，还冷酷是否有点</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野餐队吃他一顿要他买单就破功了
 
+
+*****
+
+####  zhouaa  
+##### 3761#       发表于 2024-9-5 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轨迹这几个男角色哪个不是小时候遇点事变得冷酷     也就范恩晚了几年导致最后当主角也上了年纪
+
+*****
+
+####  Aeons  
+##### 3762#       发表于 2024-9-5 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">黎恩范恩跟冷酷不太沾边吧
+

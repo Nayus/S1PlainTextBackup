@@ -761,3 +761,14 @@ pdd上了，286还行
 pdd上了，286还行</blockquote>
 PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
+
+*****
+
+####  佛罗伦萨  
+##### 524#       发表于 2024-9-5 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124441&amp;ptid=2188108" target="_blank">ColAMK 发表于 2024-9-5 21:47</a>
+
+媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量</blockquote>
+千万销量难啊，我的预期是首周300万，生涯七八百万这样，定位类似于星之卡比探索发现。
+

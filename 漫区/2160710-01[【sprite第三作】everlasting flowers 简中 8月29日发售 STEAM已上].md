@@ -511,3 +511,22 @@ Story:四葩
 
 深菜と陽毬ちゃんが、私に笑顔を向けてくれる。後ろから太陽に照らされて、二人はいつもより卸いて見えた。
 
+
+*****
+
+####  利维豚  
+##### 58#         楼主| 发表于 2024-9-5 21:24
+
+以上为初回特典版内含VisualBook 中CHAPTER4 Short Story部分，使用OCR提取
+
+附使用[https://books.fishhawk.top/](https://books.fishhawk.top/)得到的有道机翻版本
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/text.gif" referrerpolicy="no-referrer">
+
+Everlasting Flowers Short Story机翻.txt
+
+2024-9-5 21:23 上传
+点击文件名下载附件
+
+15.33 KB, 下载次数: 0
+

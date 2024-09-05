@@ -423,3 +423,16 @@ syl 有之前播音员没抽全的说下能不能换吗</blockquote>
 
 开局充能良是随机充到那两个
 
+
+*****
+
+####  salic428  
+##### 863#       发表于 2024-9-5 18:36
+
+打开游戏，想都没想拿上六剑契队去普镜P
+结果进二层卡包看见没有商店就惊了，拿不到呼吸机
+道中手操吭哧瘪肚，拼尽全力无法战胜，关底AOE直接灭队
+不是你这个二层包怎么比四层的列车包还粪啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

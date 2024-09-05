@@ -52,3 +52,18 @@
 
 有中文了？开玩
 
+
+*****
+
+####  llysander  
+##### 63#       发表于 2024-9-5 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66115854&amp;ptid=2068019" target="_blank">库德里尔 发表于 2024-9-5 08:16</a>
+
+我现在是七个水晶，战僧牧法精通
+
+练副职的话怎么配比较好</blockquote>
+原版看似主副组合很多实质限制很死，而且职业其实做的也比较糊
+
+前期职业里先练着Warlock（一眼致敬赤魔那个），这是不确定和试错时的首选，最好全员都有方便搭配
+

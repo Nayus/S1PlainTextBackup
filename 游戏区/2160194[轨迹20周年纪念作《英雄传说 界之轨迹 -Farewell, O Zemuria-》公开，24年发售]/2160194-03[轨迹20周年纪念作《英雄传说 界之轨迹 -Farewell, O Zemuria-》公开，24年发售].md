@@ -7712,3 +7712,40 @@ a379c71f4a3af562648678024c53b749(1).png
 迷城25吧
 迷城都是10年一出，没必要这边破例
 
+
+*****
+
+####  卢迪克  
+##### 3725#       发表于 2024-9-5 12:07
+
+ 本帖最后由 卢迪克 于 2024-9-5 12:09 编辑 
+
+明年两作吧，空re明说老人制作，大量复用黎轨系统素材。小艾是剑女模组，小约是van和斯温的，东2美国访谈说全由新人制作，黎轨的学校改一改就可以用了。
+
+*****
+
+####  铁火辉夜  
+##### 3726#       发表于 2024-9-5 12:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">黑兔可爱
+
+*****
+
+####  卢迪克  
+##### 3727#       发表于 2024-9-5 12:10
+
+东2的pv看起来主角团立绘都画完了，我估计本来想今年上的
+
+
+*****
+
+####  悠悠你心  
+##### 3728#       发表于 2024-9-5 12:12
+
+ 本帖最后由 悠悠你心 于 2024-9-5 12:15 编辑 
+
+楼里怎么没人发这个？ 几位角色的新系统演示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+https://youtu.be/_QA-tAf2VkQ?si=HjBO6LxnpA7W8Po0
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

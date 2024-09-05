@@ -734,3 +734,11 @@ https://www.bilibili.co ...</blockquote>
 
 pdd上了，286还行
 
+
+*****
+
+####  清浦刹那  
+##### 521#       发表于 2024-9-5 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还是没有amiibo消息吗，和梦见岛的凑一对
+

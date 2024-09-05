@@ -4920,3 +4920,60 @@ mujica黑非要来mujica吧干嘛呢  自己的贴吧还不够折腾的吗<img
 
 来点某人不存在／是双重人格的假药
 
+
+*****
+
+####  rikaren  
+##### 22638#       发表于 2024-9-5 21:27
+
+<img src="https://img.saraba1st.com/forum/202409/05/212713zc48lhnodhced5hb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-26-18-83_149003a2d400f6adb210d7e357a3a646.jpg</strong> (237.22 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:27 上传
+
+ppp箱活啊
+
+*****
+
+####  rikaren  
+##### 22639#       发表于 2024-9-5 21:29
+
+ 本帖最后由 rikaren 于 2024-9-5 21:31 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/05/212939j1f0hq30hp7fflof.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-28-23-87_149003a2d400f6adb210d7e357a3a646.jpg</strong> (256.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:29 上传
+
+<img src="https://img.saraba1st.com/forum/202409/05/212948qfqoe96qsak83aqq.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2024-09-05-21-28-46-16_149003a2d400f6adb210d7e357a3a646.jpg</strong> (430.02 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:29 上传
+
+可爱
+
+*****
+
+####  akiomn  
+##### 22640#       发表于 2024-9-5 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真翻唱op啊
+羊姐对邦现场的唱op不会断气吧？
+
+
+*****
+
+####  星天观测  
+##### 22641#       发表于 2024-9-5 21:34
+
+萝这个封面好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

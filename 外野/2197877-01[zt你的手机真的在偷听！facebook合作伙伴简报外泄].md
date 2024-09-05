@@ -988,3 +988,31 @@ https://source.android.com/docs/c ...</blockquote>
 
 2024-9-5 10:02 上传
 
+
+*****
+
+####  金泽龙  
+##### 93#       发表于 2024-9-5 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66111550&amp;ptid=2197877" target="_blank">mirari 发表于 2024-9-4 17:31</a>
+
+泥潭还有这么多拿siri举例的
+
+你要是做个语音助手出来，在任意平台手机上都能随意指定多个唤醒词，小米华为 ...</blockquote>
+他们会告诉你可以唤醒词会偷偷更新的。
+
+关键是做的越多留下的痕迹就越多，暴露的几率就越大。
+
+*****
+
+####  JetBrains  
+##### 94#       发表于 2024-9-5 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66109144&amp;ptid=2197877" target="_blank">gnihton314 发表于 2024-9-4 14:08</a>
+不是你用完给你提醒，是在调用麦克风期间，在状态栏会有绿色图标提醒
+
+https://source.android.com/docs/c ...</blockquote>
+好心提醒下，别信任不是自己编译的操作系统，这个东西是有白名单的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不是 AOSP 别信这个东西，你有没有想过 O 系手机隔空手势，H 系手机对准条码跳转支付宝，使用时没有任何提示，用 adb 一看却有相关历史记录的问题
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

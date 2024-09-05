@@ -332,3 +332,18 @@ lccb良被削了，三破或能白嫖40狂气<img src="https://static.saraba1st.
 
 syl 有之前播音员没抽全的说下能不能换吗
 
+
+*****
+
+####  erratic璃月  
+##### 856#       发表于 2024-9-5 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118045&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2024-9-5 11:32</a>
+
+运气还行
+
+没到井就全出了
+
+syl 有之前播音员没抽全的说下能不能换吗</blockquote>
+能换，保底第二页
+

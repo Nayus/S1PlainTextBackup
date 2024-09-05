@@ -32,3 +32,11 @@ ED Card7 by堀口悠紀子
 大変だったけど楽しかった…参加できて嬉しいです…！よろしくお願い致します！
 <img src="https://p.sda1.dev/19/5de2d704121c474320d19a13ef5f4a20/20240906_000211.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  大丈夫萌大乃  
+##### 128#       发表于 2024-9-6 02:06
+
+我还以为亚托莉是女儿定位,这要是真人男主已经被抓走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -13161,3 +13161,14 @@ bb2宝了两个四星都没影...
 
 菌圣的主线不用来给新角色带货有点浪费了吧
 
+
+*****
+
+####  DARKGRAY  
+##### 14544#       发表于 2024-9-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66118853&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2024-9-5 12:45</a>
+
+菌圣的主线不用来给新角色带货有点浪费了吧</blockquote>
+就是泳装了，毕竟活动纯垫场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

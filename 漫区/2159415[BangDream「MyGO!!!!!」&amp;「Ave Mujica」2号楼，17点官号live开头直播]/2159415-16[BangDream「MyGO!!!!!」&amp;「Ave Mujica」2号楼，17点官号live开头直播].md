@@ -5133,3 +5133,13 @@ ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017
 
 借什么借？这么喜欢借干脆直接换mujica唱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一劳永逸
 
+
+*****
+
+####  星天观测  
+##### 22657#       发表于 2024-9-5 23:11
+
+借什么借，青木不是会键盘么，让青木来啊
+
+这么惦记别团的队员干嘛呢
+

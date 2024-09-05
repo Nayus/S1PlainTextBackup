@@ -6993,3 +6993,71 @@ what can i say，是范恩兄弟吗
 
 —— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  卢迪克  
+##### 3650#       发表于 2024-9-5 10:58
+
+最后就是时至宝被c博士给拆成8个创世吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜漫群星  
+##### 3651#       发表于 2024-9-5 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，亚里莎的地位呢，不会只有卖谷子的时候才想到吧，真的吗
+
+*****
+
+####  真飞鸟i  
+##### 3652#       发表于 2024-9-5 11:00
+
+师姐这作看起来要垫了，云师傅，师姐，黎恩强度排名社内认为常规应该是云师傅最强，然后这作黎恩和俩个人打有赢有输，应该就是赢师姐，输师傅了。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Aeons  
+##### 3653#       发表于 2024-9-5 11:01
+
+如果是这几个角色的话，照常理推断云·卡法伊是最强的，但是对于静名来讲，她可能有些能力是未知数。所以在这种情况下很难说谁才是最强的。
+
+啊 这话我以为是说静名比老头厉害
+
+*****
+
+####  diectt  
+##### 3654#       发表于 2024-9-5 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117469&amp;ptid=2160194" target="_blank">洛克萨斯 发表于 2024-9-5 10:53</a>
+
+闪之轨迹的女主角是谁？</blockquote>
+总体来看当然是小棉袄黑兔啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 3655#       发表于 2024-9-5 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">别叫别叫，没来的剑指界二
+
+*****
+
+####  ravend233  
+##### 3656#       发表于 2024-9-5 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66117558&amp;ptid=2160194" target="_blank">夜漫群星 发表于 2024-9-5 11:00</a>
+
+不是，亚里莎的地位呢，不会只有卖谷子的时候才想到吧，真的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连代表帝国的技术来开会都被人抢了，那属实除了卖谷再骗骗钱外都没有存在意义了
+
+*****
+
+####  diectt  
+##### 3657#       发表于 2024-9-5 11:04
+
+总感觉再让近藤这么口胡下去，这几年就会有说法：法老控懂个p的轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

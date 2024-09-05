@@ -348,3 +348,11 @@ vision就是v呗，五代没问题
 居然还有这个设定！有点神奇</blockquote>
 是的. 现在看回去Vision的V也是暗示了. 这样老ass们是不是要上了
 
+
+*****
+
+####  西弗  
+##### 258#       发表于 2024-9-5 16:04
+
+剧情怎么样？我特么之前看画面首发破晓传说，简直了，现在就有点PTSD<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+

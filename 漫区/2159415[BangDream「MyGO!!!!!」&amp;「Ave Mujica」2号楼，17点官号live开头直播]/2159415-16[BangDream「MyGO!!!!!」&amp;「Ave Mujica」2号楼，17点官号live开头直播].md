@@ -5078,3 +5078,20 @@ asl感想吧
 
 录音室战神连无呼吸义务都随便唱 何况区区gbc的op 估计对邦肯定不会唱这首了
 
+
+*****
+
+####  PDQ4  
+##### 22651#       发表于 2024-9-5 22:09
+
+应该是河口湖三连的场贩吧，ppp蝶鸡，狗可以说的太多了不知道要讲什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22652#       发表于 2024-9-5 22:10
+
+算了一下时间，差不多也该宣一下10月那三个live的场贩了，刚好ppp、蝶、鸡都在
+
+蜜柑反正和谁上生放都是全程掉线，聊一聊asl之类的应该就差不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

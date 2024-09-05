@@ -2317,3 +2317,30 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 为什么不做翼·睡眠啊？ ...</blockquote>
 剧情接不上的先不做，后半段做的都是小忍相关的。
 
+
+*****
+
+####  0aleph37  
+##### 839#       发表于 2024-9-5 08:49
+
+<img src="https://img.saraba1st.com/forum/202409/05/084803kb2ba8a20maaawas.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>11100478711725497271996.webp</strong> (39.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-5 08:48 上传
+
+下周直接忍物语了，忍物语篇幅够写6话吗？
+
+
+*****
+
+####  仟音一心  
+##### 840#       发表于 2024-9-5 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66116078&amp;ptid=2168085" target="_blank">0aleph37 发表于 2024-9-5 08:49</a>
+下周直接忍物语了，忍物语篇幅够写6话吗？</blockquote>
+忍物语是纯推理小说，中间解密部分拉长一点应该够吧。
+

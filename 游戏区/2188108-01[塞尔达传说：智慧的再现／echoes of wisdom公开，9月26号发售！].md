@@ -750,3 +750,14 @@ pdd上了，286还行
 
 媒体试玩评价如何，能开香槟不（我的预期是惊奇水平，90+分+千万销量<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  罗克萨斯  
+##### 523#       发表于 2024-9-5 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66123728&amp;ptid=2188108" target="_blank">医生狼多 发表于 2024-9-5 20:38</a>
+
+pdd上了，286还行</blockquote>
+PDD上的是香港直邮，预计5-7七天到手，等得有点久
+

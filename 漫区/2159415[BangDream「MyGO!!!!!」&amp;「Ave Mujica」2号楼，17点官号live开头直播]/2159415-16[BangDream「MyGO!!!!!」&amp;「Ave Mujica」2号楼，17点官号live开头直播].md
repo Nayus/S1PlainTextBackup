@@ -5031,3 +5031,50 @@ ppp箱活啊
 
 那你让杨姐干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22646#       发表于 2024-9-5 22:00
+
+下周有鸡，大概是两对前后辈，蜜柑喜欢李美丽，mika和梦以关系挺好（mika还教过梦以打鼓）
+
+<img src="https://img.saraba1st.com/forum/202409/05/215935vdjp9rjedjzsj1ey.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240905215845.png</strong> (148.64 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 21:59 上传
+
+*****
+
+####  rikaren  
+##### 22647#       发表于 2024-9-5 22:01
+
+<blockquote>rikaren 发表于 2024-9-5 21:46
+</blockquote>
+有个问题，咖啡店那组的中之人唱歌怎么样？
+
+*****
+
+####  星天观测  
+##### 22648#       发表于 2024-9-5 22:01
+
+可是梦以来要讲什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸡的东西已经全讲过了
+
+
+*****
+
+####  NODY  
+##### 22649#       发表于 2024-9-5 22:03
+
+asl感想吧
+
+*****
+
+####  skives  
+##### 22650#       发表于 2024-9-5 22:03
+
+录音室战神连无呼吸义务都随便唱 何况区区gbc的op 估计对邦肯定不会唱这首了
+

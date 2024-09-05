@@ -8608,3 +8608,15 @@ p.s. 我就喜欢杀人诛心
 就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成 ...</blockquote>
 以我对单机日厂二次元风格的观察，空轨re在ns上算是很有竞争力的了
 
+
+*****
+
+####  ravend233  
+##### 3820#       发表于 2024-9-6 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125808&amp;ptid=2160194" target="_blank">オルガピピック 发表于 2024-9-6 00:32</a>
+就横向对比空轨重制跟绿帽子 猛汉在ns上的模型和渲染你觉得是一个世代的游戏吗 更不要想象实机上表现会成 ...</blockquote>
+上来就和红绿帽子猛汉比是不是太过高看三线小厂了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

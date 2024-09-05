@@ -8620,3 +8620,41 @@ p.s. 我就喜欢杀人诛心
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  Aeons  
+##### 3821#       发表于 2024-9-6 00:45
+
+ 本帖最后由 Aeons 于 2024-9-6 00:49 编辑 
+
+중요하고 자주 듣는 질문이다. 계의 궤적에서는 적어도 한 사람과는 결판을 짓는다. 누구인지, 언제인지 말씀드리기는 어렵다. 결말이 행복한지 슬픈지 등도 포함해 기대해주시면 좋겠다.
+
+매우 중요한 질문이고, 또 가장 많이 듣는 질문이다(웃음). 계의 궤적에서는 적어도 한 사람과는 확실한 결과를 맞이한다. 누가 누구와 언제 어떻게 엮일지, 또 그것이 해피할지 슬플지는 직접 지켜봐주셨으면 한다.
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">原来上面的是韩媒问题和回复。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">关于学妹和剑女，近藤说至少会和一个人有结果，无论高兴或悲伤，希望大家都能接受。
+
+
+*****
+
+####  Archlich³  
+##### 3822#       发表于 2024-9-6 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120686&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 16:00</a>
+
+魔核是天生有的，dg是把范恩魔核抽出来了，如果没有折磨的话反而算是一件好事。
+
+范恩的困境不是后天带来的 ...</blockquote>
+记得还是被充分地折磨过了吧。但是他这精神可太坚韧了。
+
+*****
+
+####  Aeons  
+##### 3823#       发表于 2024-9-6 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125920&amp;ptid=2160194" target="_blank">Archlich³ 发表于 2024-9-6 00:50</a>
+
+记得还是被充分地折磨过了吧。但是他这精神可太坚韧了。</blockquote>
+是，虽然我这有点站着说话不腰疼了，但是范恩恢复过来后和艾蕾因卢尼一起还是挺开心的，是发现魔核没了还不安生才自暴自弃跑路的。
+

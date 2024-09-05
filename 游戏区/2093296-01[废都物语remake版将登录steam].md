@@ -157,3 +157,21 @@
 
 等cp30去看看，应该不会像暗喻幻想大排长龙吧
 
+
+*****
+
+####  西弗  
+##### 603#       发表于 2024-9-5 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">也不知道今年到底能不能出，还是说相信今年能出的我太乐观了
+
+
+*****
+
+####  Zami_two  
+##### 604#       发表于 2024-9-5 16:13
+
+今年出不来这种事情不要啊，每次想到快出了都急死了，已经在脑子里模拟了好几次五周目顺序和配置了<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

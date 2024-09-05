@@ -8145,3 +8145,47 @@ A：我最後階段有參與整個 QA 工作，我自己覺得敘事步調並沒
 
 范恩的困境不是后天带来的，是出身就不正。
 
+
+*****
+
+####  zhouaa  
+##### 3771#       发表于 2024-9-5 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点记不清了  他这个身世我当时看着觉得挺扯淡的
+
+*****
+
+####  ravend233  
+##### 3772#       发表于 2024-9-5 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120633&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-5 15:56</a>
+
+黎轨里面提到制裁异端正常是僧兵厅干的。
+
+僧兵看着都不冷酷啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骑士团和僧兵是两个体系两个指挥系统，骑士团也有自己的清洗负责人也很合理不是（
+
+*****
+
+####  Aeons  
+##### 3773#       发表于 2024-9-5 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66120742&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-5 16:06</a>
+骑士团和僧兵是两个体系两个指挥系统，骑士团也有自己的清洗负责人也很合理不是（ ...</blockquote>
+制裁异端在3rd是写星杯手册上的，而黎轨认为星杯本职是管理古代遗物，异端要归僧兵厅。
+个人觉得是对僧兵厅吃书的一种处理，因为不这么写，僧兵厅作为保卫法典国的，出什么门呢
+
+
+*****
+
+####  卢迪克  
+##### 3774#       发表于 2024-9-5 16:14
+
+<img src="https://img.saraba1st.com/forum/202409/05/161413affkaxypax92xfag.jpg" referrerpolicy="no-referrer">
+
+<strong>i1577429201.jpg</strong> (206.78 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 16:14 上传
+

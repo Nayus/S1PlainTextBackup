@@ -5538,3 +5538,12 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 
 很难想象pico里面mujica用假面形态会搭配什么生草剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  akiomn  
+##### 22686#       发表于 2024-9-6 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lsl就是标准的混子位啊，既不会c也不会爆。
+live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓子，蜜柑一般不会出错，lsl恰好是最没存在感的那个，出问题了也想不到她
+

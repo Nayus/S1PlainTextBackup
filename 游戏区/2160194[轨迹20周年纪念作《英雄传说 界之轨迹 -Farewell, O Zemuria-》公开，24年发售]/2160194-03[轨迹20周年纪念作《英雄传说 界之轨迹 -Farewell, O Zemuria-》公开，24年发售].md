@@ -9166,3 +9166,90 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 
 什么茄子
 
+
+*****
+
+####  铁火辉夜  
+##### 3874#       发表于 2024-9-6 10:58
+
+黑兔拿光剑大盾也太丑了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Falcomfans  
+##### 3875#       发表于 2024-9-6 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128126&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-6 10:53</a>
+啊？ 葱头声优换了啊 nooooooooo
+
+当年3rd 死亡制裁的那个低沉音给我帅麻了阳光/阴暗的声线切换也非常自如 
+
+ ...</blockquote>
+看了一下wiki，中尾良平已经多年没有作品了，怕不是退役了。
+
+*****
+
+####  Aeons  
+##### 3876#       发表于 2024-9-6 11:00
+
+葱头这个感觉有点油和黏
+
+*****
+
+####  ravend233  
+##### 3877#       发表于 2024-9-6 11:01
+
+<img src="https://img.saraba1st.com/forum/202409/06/110118w9p0f3925cfm0i5s.png" referrerpolicy="no-referrer">
+
+<strong>{E@[5NW9(ONXCN)CZ0~WB}0.png</strong> (86.5 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是亚莉莎的技能吗（不是
+
+
+*****
+
+####  天王寺凯伊姆  
+##### 3878#       发表于 2024-9-6 11:02
+
+<blockquote>Kojimaru 发表于 2024-9-6 10:23
+孩子们，我回来了</blockquote>
+那这一代无耻之心是谁
+
+*****
+
+####  卢迪克  
+##### 3879#       发表于 2024-9-6 11:04
+
+ 本帖最后由 卢迪克 于 2024-9-6 11:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挖槽，填坑了，虽然是mk重现的，只有狮子去过实地，但也是系列第一次出现东大陆的地盘是不是
+
+<img src="https://img.saraba1st.com/forum/202409/06/110313mlmqr5ooy1hqo4l1.jpg" referrerpolicy="no-referrer">
+
+<strong>94712122080B0896AAD6FAE56A28C7E5.jpg</strong> (100.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-6 11:03 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/110319t048xhuxvjx0u4j8.jpg" referrerpolicy="no-referrer">
+
+<strong>9CEFB0AC59DD300836AF6C88754E1A79.jpg</strong> (161.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-6 11:03 上传
+
+*****
+
+####  铁火辉夜  
+##### 3880#       发表于 2024-9-6 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">黎牢师出了帝国篇不苦大仇深看着好踏马自信
+

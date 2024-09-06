@@ -61,3 +61,13 @@
 
 等一手剧透，大概不会有什么邪恶大赛这种大活吧。
 
+
+*****
+
+####  仟音一心  
+##### 7533#       发表于 2024-9-6 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128006&amp;ptid=1959558" target="_blank">ads147147 发表于 2024-9-6 10:43</a>
+等一手剧透，大概不会有什么邪恶大赛这种大活吧。</blockquote>
+剧透看完了，没有雷请放心，但是比赛结果也没有揭晓。
+

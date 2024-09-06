@@ -902,3 +902,14 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 索索能捏着鼻子吹他们最瞧不起的4399机器人，我们2d塞这次上桌吃饭也不是不行 ...</blockquote>
 上桌起码也得等出分了、游戏出了再说吧，急啥。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  牛奶笛  
+##### 538#       发表于 2024-9-6 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66124278&amp;ptid=2188108" target="_blank">清浦刹那 发表于 2024-9-5 21:29</a>
+
+还是没有amiibo消息吗，和梦见岛的凑一对</blockquote>
+应该没了，不清楚为什么老任在世代末突然对Amiibo冷淡了。
+

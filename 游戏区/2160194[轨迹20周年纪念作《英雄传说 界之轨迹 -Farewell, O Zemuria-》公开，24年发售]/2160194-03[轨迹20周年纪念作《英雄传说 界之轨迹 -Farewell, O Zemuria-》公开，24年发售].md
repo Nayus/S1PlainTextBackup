@@ -9599,3 +9599,13 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 你们对我也太没信心了，我在游戏前期向来都不是全开的状态，希望后期应该会和范的鬼化一起联动后，再进化一 ...</blockquote>
 你不担心下自己会不会又被师姐打趴下么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 3918#       发表于 2024-9-6 17:30
+
+原来以为凯文的有s技星杯领域能完全防御的，结果黑兔的s技变完全防御了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

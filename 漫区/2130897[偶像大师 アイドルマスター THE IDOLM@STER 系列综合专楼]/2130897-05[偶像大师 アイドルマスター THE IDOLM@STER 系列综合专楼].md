@@ -3336,3 +3336,14 @@ RELEASE：9/13(金)0:00</blockquote>
 
 I'M LADY!!”←到这个地方会有一个双臂从胸前伸张出去，比较接近的动作
 
+
+*****
+
+####  Vacuolar  
+##### 6311#       发表于 2024-9-6 09:06
+
+打个广告
+
+s1论坛anisong乱战决赛正在进行，欢迎大家参与
+[https://bbs.saraba1st.com/2b/thread-2198020-1-1.html](https://bbs.saraba1st.com/2b/thread-2198020-1-1.html)
+

@@ -987,3 +987,20 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 可能让很多玩过人认为这个画风只能承载织梦岛这个（20年前的掌机）级别的游戏
 
+
+*****
+
+####  JOJOROY  
+##### 547#       发表于 2024-9-6 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128161&amp;ptid=2188108" target="_blank">牛奶笛 发表于 2024-9-6 10:57</a>
+应该没了，不清楚为什么老任在世代末突然对Amiibo冷淡了。</blockquote>
+不冷淡啊，昨天才发售了四个Amiibo
+
+*****
+
+####  伪宅ACer  
+##### 548#       发表于 2024-9-6 14:54
+
+传统2d塞本身也都不是大作啊 安心玩就是了 销量好自然会有大儒辨经 
+

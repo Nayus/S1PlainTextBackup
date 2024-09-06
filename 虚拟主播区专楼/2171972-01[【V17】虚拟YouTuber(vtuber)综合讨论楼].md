@@ -3095,3 +3095,14 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 3天62,673枚，我要封你做新的皇
 
+
+*****
+
+####  alcoholic1000  
+##### 715#       发表于 2024-9-6 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66129481&amp;ptid=2171972" target="_blank">aritaatsu222 发表于 2024-9-6 13:48</a>
+
+3天62,673枚，我要封你做新的皇</blockquote>
+不破3D披露时已经皇了（にじ界隈），好像是七个冲金盾的？
+

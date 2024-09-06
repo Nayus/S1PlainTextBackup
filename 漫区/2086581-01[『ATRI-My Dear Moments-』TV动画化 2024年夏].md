@@ -40,3 +40,13 @@ ED Card7 by堀口悠紀子
 
 我还以为亚托莉是女儿定位,这要是真人男主已经被抓走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  久井路路  
+##### 129#       发表于 2024-9-6 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126223&amp;ptid=2086581" target="_blank">大丈夫萌大乃 发表于 2024-9-6 02:06</a>
+我还以为亚托莉是女儿定位,这要是真人男主已经被抓走了</blockquote>
+要是真人的话亚托莉现在也不会长得这么刑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

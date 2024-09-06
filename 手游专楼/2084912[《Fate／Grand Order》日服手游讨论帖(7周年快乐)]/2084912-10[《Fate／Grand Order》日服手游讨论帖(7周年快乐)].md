@@ -13172,3 +13172,19 @@ bb2宝了两个四星都没影...
 菌圣的主线不用来给新角色带货有点浪费了吧</blockquote>
 就是泳装了，毕竟活动纯垫场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  v22325  
+##### 14545#       发表于 2024-9-6 16:18
+
+<img src="https://img.saraba1st.com/forum/202409/06/161738jbtz03gyttdhwh3g.jpg" referrerpolicy="no-referrer">
+
+<strong>1000017895.jpg</strong> (346.01 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 16:17 上传
+
+火力不够结果全是耐久队磨过去的……
+

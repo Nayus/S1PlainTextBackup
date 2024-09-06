@@ -9778,3 +9778,19 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 首发PC还能卖卖  PS顶流就10W 还不如闪的
 
+
+*****
+
+####  ravend233  
+##### 3938#       发表于 2024-9-6 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高达暖暖NS都卖了5W+，PS5；3W,PS4,1W
+
+
+*****
+
+####  aimujie  
+##### 3939#       发表于 2024-9-6 19:25
+
+开篇就是熟悉的味道，太熟悉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

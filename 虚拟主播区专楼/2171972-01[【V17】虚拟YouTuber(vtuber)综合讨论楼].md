@@ -3087,3 +3087,11 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 那应该是专门为截图取乐而改的名，dc没当过mod还真不知道有这权限<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  aritaatsu222  
+##### 714#       发表于 2024-9-6 13:48
+
+3天62,673枚，我要封你做新的皇
+

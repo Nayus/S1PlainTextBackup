@@ -5522,3 +5522,11 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 
 问题是夕莉部分李世林估计是弹不来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22684#       发表于 2024-9-6 13:48
+
+其实根本不用担心这个，因为对邦的换歌环节是两个乐队所有乐器一起上的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

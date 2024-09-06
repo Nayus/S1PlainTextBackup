@@ -47,3 +47,29 @@
 
 一提起bg戏个个嗤之以鼻，一提到告白个个摩拳擦掌。泥潭大友是这样的。
 
+
+*****
+
+####  Arson=desu  
+##### 2120#       发表于 2024-9-7 00:13
+
+ 本帖最后由 Arson=desu 于 2024-9-7 00:14 编辑 
+
+<img src="https://img.saraba1st.com/forum/202409/07/001155esaf8lutt0m6v6tt.webp" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>201556l82j3l2q553pl5nt.webp</strong> (271.04 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 00:11 上传
+
+这个kaiji君一眼烟雾弹，甚至大概率不是人，萨托鲁直接拉着猫组A上去了，这回怎么着也得是动真格的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wly  
+##### 2121#       发表于 2024-9-7 00:52
+
+草了，感觉告白那集主角还是猫组。期待拉满
+

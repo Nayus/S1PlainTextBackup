@@ -9902,3 +9902,22 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  卢迪克  
+##### 3950#       发表于 2024-9-6 22:20
+
+师姐和黎恩打是在占星术遗迹，看截图那时候冰火娃才27级，第二章吧
+
+
+*****
+
+####  alucardcz  
+##### 3951#       发表于 2024-9-6 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131942&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-6 19:18</a>
+
+高达暖暖NS都卖了5W+，PS5；3W,PS4,1W</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接全平台才是出路  等看看界和fcr能卖多少
+

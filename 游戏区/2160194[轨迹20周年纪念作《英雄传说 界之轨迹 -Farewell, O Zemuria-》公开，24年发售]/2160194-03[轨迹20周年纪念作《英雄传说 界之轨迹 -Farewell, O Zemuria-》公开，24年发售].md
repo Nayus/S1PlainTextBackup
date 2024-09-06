@@ -9284,3 +9284,28 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  无动于衷  
+##### 3884#       发表于 2024-9-6 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128273&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 11:10</a>
+
+树海是什么鬼，还有黎轨开始疑似暗示的双女神，该不会直接串到隔壁伊苏那去了吧 ...</blockquote>
+伊苏早就变成多神世界了，别老想着双子了
+
+*****
+
+####  hkguty  
+##### 3885#       发表于 2024-9-6 11:20
+
+看来就是主队伍梵，其他人有一条otherteam这样来推进吧
+
+*****
+
+####  hkguty  
+##### 3886#       发表于 2024-9-6 11:21
+
+黎恩这个新s，新的书法剑
+

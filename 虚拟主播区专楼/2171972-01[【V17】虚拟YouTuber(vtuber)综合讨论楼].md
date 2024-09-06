@@ -3135,3 +3135,19 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 不破3D披露时已经皇了（にじ界隈），好像是七个冲金盾的？</blockquote>
 葛皇王之力mini磨到年底也就6w4，我对不破预期本来是一哥二哥之间大概4w+的
 
+
+*****
+
+####  Devi_Lito  
+##### 719#       发表于 2024-9-6 23:25
+
+琉璃亲妈C104出的一大堆非公式周边质量好棒（狗牌可爱）
+
+<img src="https://img.saraba1st.com/forum/202409/06/232454hz3xc30fupypr4uy.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_6284.JPG</strong> (786.41 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:24 上传
+

@@ -71,3 +71,11 @@
 等一手剧透，大概不会有什么邪恶大赛这种大活吧。</blockquote>
 剧透看完了，没有雷请放心，但是比赛结果也没有揭晓。
 
+
+*****
+
+####  仟音一心  
+##### 7534#       发表于 2024-9-6 15:14
+
+<img src="https://s3.bmp.ovh/imgs/2024/09/06/8e2abb9aabe1076b.jpg" referrerpolicy="no-referrer">
+

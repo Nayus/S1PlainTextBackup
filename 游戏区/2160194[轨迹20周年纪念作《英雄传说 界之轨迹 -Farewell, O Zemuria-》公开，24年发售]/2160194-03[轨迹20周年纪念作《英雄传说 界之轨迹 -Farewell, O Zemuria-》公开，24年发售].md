@@ -9729,3 +9729,44 @@ mk这么高调，结果庭院又被抢了这合理吗？
 
 mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
+
+*****
+
+####  hkguty  
+##### 3933#       发表于 2024-9-6 19:01
+
+这么多人开场就在MK社聚会，看来MK社意料之外的真的是白的了，而且似乎有帝国的团队一起过来，应该是有合作
+
+
+*****
+
+####  卢迪克  
+##### 3934#       发表于 2024-9-6 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131585&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-6 18:26</a>
+
+先骗了再说，反正期待首周</blockquote>
+销量肯定没救，四年前圣剑3还有15万，今年的圣剑新作就剩四万<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ravend233  
+##### 3935#       发表于 2024-9-6 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131673&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 18:39</a>
+看人说，这次是完结，近藤不说完结是为了饥饿营销搞反转赚口碑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你近藤宣传伊苏和迷城反复强调一部完结，他会不知道在发售前明确一部完结的好处？打太极就是没法说呗
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  ravend233  
+##### 3936#       发表于 2024-9-6 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131849&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-6 19:04</a>
+销量肯定没救，四年前圣剑3还有15万，今年的圣剑新作就剩四万</blockquote>
+纯ps平台就这样了，看看5w结晶的纯度有没有80%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -850,3 +850,15 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 时隔11年的正统2D塞尔达，还是挺期待的
 
+
+*****
+
+####  八宫めぐる  
+##### 533#       发表于 2024-9-6 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125412&amp;ptid=2188108" target="_blank">kuarwbwe 发表于 2024-9-5 23:34</a>
+这个其实不是主要问题。真上手了，你游戏实际质量真的优秀，口碑上来了问题不大。
+
+2d塞最大的问题是这画风 ...</blockquote>
+索索能捏着鼻子吹他们最瞧不起的4399机器人，我们2d塞这次上桌吃饭也不是不行
+

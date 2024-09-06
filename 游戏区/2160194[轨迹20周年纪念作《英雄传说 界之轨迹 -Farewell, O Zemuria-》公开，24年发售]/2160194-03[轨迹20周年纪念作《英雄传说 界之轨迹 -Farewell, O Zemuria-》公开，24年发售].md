@@ -8835,3 +8835,79 @@ p.s. 我就喜欢杀人诛心
 
 记忆发生了混乱
 
+
+*****
+
+####  塔洛斯级  
+##### 3840#       发表于 2024-9-6 09:36
+
+<blockquote>每个用户喜欢的轨迹系列作品应该各不相同，为了牢牢传达这次的高潮位置，更不足以以黎之轨迹3命名。</blockquote>黎轨卖太差了所以换个名字的意思呗
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+
+*****
+
+####  卢迪克  
+##### 3841#       发表于 2024-9-6 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127341&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 09:31</a>
+
+哪里说的</blockquote>
+贴吧看的
+
+
+*****
+
+####  Aeons  
+##### 3842#       发表于 2024-9-6 09:40
+
+近藤说了开发中就是黎轨三，改名只是为了给内部和外部看，象征意义居多
+
+*****
+
+####  Aeons  
+##### 3843#       发表于 2024-9-6 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127421&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-6 09:39</a>
+贴吧看的</blockquote>
+有链接吗
+
+*****
+
+####  Kojimaru  
+##### 3844#       发表于 2024-9-6 09:42
+
+<img src="https://img.saraba1st.com/forum/202409/06/094218p8ngan8q69rr89r6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.98 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 09:42 上传
+
+起飞
+
+*****
+
+####  Aeons  
+##### 3845#       发表于 2024-9-6 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127359&amp;ptid=2160194" target="_blank">maojiashu 发表于 2024-9-6 09:32</a>
+草
+
+怎么是在利贝尔开的 我怎么印象中一直是国外 
+
+记忆发生了混乱</blockquote>
+因为初次提到是星座问题去国外出差吧
+
+*****
+
+####  卢迪克  
+##### 3846#       发表于 2024-9-6 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127440&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 09:41</a>
+
+有链接吗</blockquote>
+吸烟室     
+

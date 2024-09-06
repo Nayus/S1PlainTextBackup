@@ -8298,3 +8298,21 @@ fbkmicomet这3人从年初开始就一直在一起啊 线上线下全部
 
 一顶帽子把7大豆玩成海贼王
 
+
+*****
+
+####  holoan  
+##### 9578#         楼主| 发表于 2024-9-6 11:23
+
+昨晚的第三者视角，社内其他人员对七字母的一种认知
+[https://video.twimg.com/ext_tw_v ... IN6E00S1wxAg3UF.mp4](https://video.twimg.com/ext_tw_video/1831720867585220608/pu/vid/avc1/1272x720/HIN6E00S1wxAg3UF.mp4) <blockquote>🦆「どうしようみこめっと過激派にぶっ殺されたら」</blockquote>
+
+*****
+
+####  holoan  
+##### 9579#         楼主| 发表于 2024-9-6 19:55
+
+5个人的时候也还是分分钟七字母
+
+你们太粘了！！！！！
+

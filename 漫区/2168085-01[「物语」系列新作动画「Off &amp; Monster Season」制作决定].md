@@ -2388,3 +2388,13 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  0aleph37  
+##### 845#       发表于 2024-9-6 19:46
+
+【“既是完结也是开始的「物语」！”物语系列十周年朗读剧全场翻译】 [https://www.bilibili.com/video/B ... a77a62276ade38bcbc0](https://www.bilibili.com/video/BV127pGebEHx/?share_source=copy_web&amp;vd_source=15325085c1738a77a62276ade38bcbc0)
+
+物语十周年朗读剧终于出熟肉了
+

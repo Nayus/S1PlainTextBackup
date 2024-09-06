@@ -89,3 +89,43 @@
 <img src="https://p.sda1.dev/19/a50bbcc46bde927ce44b310da94bd508/20240906_220123.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/19/756d3a710875b26e0ad3dc4e0fcaeefc/20240906_220043.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Piano-Forest  
+##### 7536#       发表于 2024-9-6 22:09
+
+[https://x.com/MRN0093/status/1831882418640601525](https://x.com/MRN0093/status/1831882418640601525)
+
+- info -
+
+本日より公開の、映画「ラブライブ！虹ヶ咲学園スクールアイドル同好会 完結編 第1章」に参加させていただきました！
+
+めっちゃ嬉しい～どうぞよろしくお願いいたします🐏
+<img src="https://p.sda1.dev/19/e274797745771b6721e5c9201c330bef/20240906_220603.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/thinking4MIL/status/1831915964373594593](https://x.com/thinking4MIL/status/1831915964373594593)
+
+本日より公開の映画「ラブライブ！虹ヶ咲学園スクールアイドル同好会 完結編 第1章」作監と原画で参加してます！とっっっっってもいい作品なので是非見に行って下さい！！！
+<img src="https://p.sda1.dev/19/47f9262a0147e814c9aa2f44af1922ac/20240906_220611.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/rio9u9/status/1832005321260466625](https://x.com/rio9u9/status/1832005321260466625)
+
+虹ヶ咲スクールアイドル学園スクールアイドル同好会完結編第1章公開おめでとうございます
+<img src="https://p.sda1.dev/19/d7142f595c9c34aecd500922501ed1a4/20240906_220635.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/Ciel_anime315/status/1831981949495508996](https://x.com/Ciel_anime315/status/1831981949495508996)
+
+#えいがさき 第1章、少しですが第二原画で参加させていただきました！！
+
+クレジットに名前も載せていただきました…
+
+初の劇場版クレジットです！！
+
+初めてがニジガクなんて、幸せすぎて涙が止まりません😭
+
+本当に感謝しかありません！！
+
+最っ高の映画ですので、皆様もぜひ！！
+<img src="https://p.sda1.dev/19/8bc86f4196089e989183a02921891b9a/20240906_220641.jpg" referrerpolicy="no-referrer">
+

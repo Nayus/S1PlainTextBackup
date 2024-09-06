@@ -1847,3 +1847,17 @@ slice&amp;dice的解决方法是一个铸件会同时改掉骰子的好几个面
 HB本月进包，没有的可以去便宜收一个
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（又一个我还没怎么玩的精品id就进包了...）
 
+
+*****
+
+####  xiedua  
+##### 172#       发表于 2024-9-7 04:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66106787&amp;ptid=2153988" target="_blank">はちたや 发表于 2024-9-4 10:29</a>
+HB本月进包，没有的可以去便宜收一个
+
+（又一个我还没怎么玩的精品id就进包了...） ...</blockquote>
+请问一般在哪里收这种进包的游戏啊_(:з」∠)_
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -5547,3 +5547,18 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lsl就是标准的混子位啊，既不会c也不会爆。
 live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓子，蜜柑一般不会出错，lsl恰好是最没存在感的那个，出问题了也想不到她
 
+
+*****
+
+####  极速赛车手  
+##### 22687#       发表于 2024-9-6 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66125218&amp;ptid=2159415" target="_blank">星天观测 发表于 2024-9-5 23:11</a>
+
+借什么借，青木不是会键盘么，让青木来啊
+
+这么惦记别团的队员干嘛呢</blockquote>
+烂梗小鬼就是想ky拆你队罢了，键盘只是其中一个要素狩猎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且有些人玩烂梗也就算了，还要套个角色皮来玩，看的作呕<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+

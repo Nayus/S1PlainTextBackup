@@ -1012,3 +1012,14 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 看了试玩片段，这自由度比荒野王泪都要高的样子
 
+
+*****
+
+####  hu794  
+##### 550#       发表于 2024-9-6 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66130444&amp;ptid=2188108" target="_blank">桜庭ななみ 发表于 2024-9-6 16:01</a>
+
+看了试玩片段，这自由度比荒野王泪都要高的样子</blockquote>
+从官方预告来看自由度的话，应该是王国之泪&gt;智慧的在线≈旷野之息
+

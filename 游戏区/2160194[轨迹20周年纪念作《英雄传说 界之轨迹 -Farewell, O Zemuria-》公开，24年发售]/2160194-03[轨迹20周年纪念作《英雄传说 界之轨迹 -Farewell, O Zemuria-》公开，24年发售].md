@@ -9645,3 +9645,21 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 
 其实就是新版无仞剑，只不过数数变成了念字，不知道师姐那边新S是啥
 
+
+*****
+
+####  ravend233  
+##### 3923#       发表于 2024-9-6 18:14
+
+师姐按照惯例给个写书法的新s吧
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 3924#       发表于 2024-9-6 18:17
+
+疑似界二消息一出，面具人7号，开局所谓大的就是火箭接全明星寒暄，让人惊讶的面具人。
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">期待值down了
+

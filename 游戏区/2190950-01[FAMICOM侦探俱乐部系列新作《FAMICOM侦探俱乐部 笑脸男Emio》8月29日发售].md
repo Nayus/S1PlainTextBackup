@@ -3327,3 +3327,101 @@ minoru通关，原来如此。</blockquote>
 打完了，这剧情太鸡儿变态了，第一次产生了“说不定我上写的更好”这种想法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 前11章感觉有效内容可能还不到1/5，男女主做了这么多工作结果打到最后就是纯纯的摄像头，这故事有他们没他们根本没区别，回头看每章结束后的推理部分有够小丑的，可以说是一点用也没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  wfhtony  
+##### 324#       发表于 2024-9-7 00:23
+
+<img src="https://img.saraba1st.com/forum/202409/07/001215k5m5f8cyc4ayycf4.jpg" referrerpolicy="no-referrer">
+
+<strong>img010-m.jpg</strong> (895.84 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202409/07/001215ef5kfc2vunf2nvcf.jpg" referrerpolicy="no-referrer">
+
+<strong>img017-m.jpg</strong> (301.59 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 00:12 上传
+
+這次豪華版附贈的那本美術選集的最後，依然刊有 坂本賀勇 的後記+留言：
+
+<img src="https://img.saraba1st.com/forum/202409/06/235437c2z6siegutuetttz.jpg" referrerpolicy="no-referrer">
+
+<strong>img917.jpg</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235438x5l11d5ccccll1c4.jpg" referrerpolicy="no-referrer">
+
+<strong>img918.jpg</strong> (1.55 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235439f0pezasajz9j0090.jpg" referrerpolicy="no-referrer">
+
+<strong>img919.jpg</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235440p5xe4ox4yxx4k4kf.jpg" referrerpolicy="no-referrer">
+
+<strong>img920.jpg</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+以及本作的兩位主創/編劇（坂本賀勇 + 宮地香緒里）在開發階段的一些小片段（漫才小短劇）：
+
+<img src="https://img.saraba1st.com/forum/202409/06/235433gsc2bbcli20cvbve.jpg" referrerpolicy="no-referrer">
+
+<strong>img913.jpg</strong> (977.62 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235434pbrb38h36883butw.jpg" referrerpolicy="no-referrer">
+
+<strong>img914.jpg</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235435rc7g13cppcpv3sfx.jpg" referrerpolicy="no-referrer">
+
+<strong>img915.jpg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/235436e1o1tq55iijkicis.jpg" referrerpolicy="no-referrer">
+
+<strong>img916.jpg</strong> (1.14 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 23:54 上传
+
+本次豪華版附贈的音樂選集（和前作（重製版）一樣，這次的新曲譜寫+編曲全由 mages. 的 阿保剛 負責）：
+<img src="https://media.vgm.io/albums/69/141196/141196-9e106fe61795.jpg" referrerpolicy="no-referrer">
+以下内容需要积分高于 500 才可浏览
+
+【FLAC+CUE+LOG】
+[百毒盤](https://pan.baidu.com/s/1f0FYkbTgtP9lXGHW2e6zTw) PW：61cq
+[OneDrive](https://clr2.wfhtony.space/s/1OLF5)  PW：FCClub-2024OSTsele.
+

@@ -5572,3 +5572,28 @@ live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓�
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  星天观测  
+##### 22689#       发表于 2024-9-6 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66129935&amp;ptid=2159415" target="_blank">MASKA-1 发表于 2024-9-6 14:57</a>
+
+很难想象pico里面mujica用假面形态会搭配什么生草剧情</blockquote>
+参考第一季萝商量怎么创新的那集，感觉氛围很对的上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星天观测  
+##### 22690#       发表于 2024-9-6 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131493&amp;ptid=2159415" target="_blank">极速赛车手 发表于 2024-9-6 18:15</a>
+
+烂梗小鬼就是想ky拆你队罢了，键盘只是其中一个要素狩猎
+
+而且有些人玩烂梗也就算了，还要套个角色皮来玩， ...</blockquote>
+那是，到时候挨骂就说是角色想要祥子回来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+角色在动画里的成长全都喂狗了，只记得烂梗
+

@@ -9663,3 +9663,15 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 疑似界二消息一出，面具人7号，开局所谓大的就是火箭接全明星寒暄，让人惊讶的面具人。
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">期待值down了
 
+
+*****
+
+####  ravend233  
+##### 3925#       发表于 2024-9-6 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是早就有预期的事情，一堆日常剧情的摆拍截图出来谁信前半剧情是爆点连连的
+
+而且竹入的写法向来就是拖到终章再一口气开火车填坑，很多时候你打到终章之前都不知道他想写的谜底是啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

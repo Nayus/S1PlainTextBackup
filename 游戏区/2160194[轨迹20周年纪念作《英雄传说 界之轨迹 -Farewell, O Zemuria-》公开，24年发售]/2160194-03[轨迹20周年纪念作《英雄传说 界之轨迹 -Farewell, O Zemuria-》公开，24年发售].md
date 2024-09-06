@@ -9846,3 +9846,15 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  ravend233  
+##### 3945#       发表于 2024-9-6 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66132381&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 20:16</a>
+都怪这些来共和国的外国佬，要是本国人怎么会叫某国</blockquote>
+这开头寒暄和轨言轨语一股子闪轨味，只能说都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

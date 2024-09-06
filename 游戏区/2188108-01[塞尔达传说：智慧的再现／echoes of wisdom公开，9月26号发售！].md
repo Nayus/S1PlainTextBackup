@@ -940,3 +940,22 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 看到说地图规模是梦见岛的7倍多，如果是真的那体量应该还可以吧。
 
+
+*****
+
+####  哈尔摩尼亚N  
+##### 542#       发表于 2024-9-6 12:23
+
+主要是这画风＋公主主角很难让人意识到这是正统2D塞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  a317216007  
+##### 543#       发表于 2024-9-6 12:25
+
+很多玩家被所谓3A宣传太久了，看不起这种美术和渲染风格的游戏正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.86-alpha
+

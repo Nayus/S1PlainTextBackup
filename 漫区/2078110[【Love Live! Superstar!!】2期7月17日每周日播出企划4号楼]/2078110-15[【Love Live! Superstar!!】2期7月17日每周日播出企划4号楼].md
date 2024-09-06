@@ -665,3 +665,11 @@ eupd这种傻逼公司怎么还没似啊
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  cat1230  
+##### 21013#       发表于 2024-9-6 20:09
+
+鲤鱼这速度可以啊5单接6单，不过这歌初听还是不抓耳啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+

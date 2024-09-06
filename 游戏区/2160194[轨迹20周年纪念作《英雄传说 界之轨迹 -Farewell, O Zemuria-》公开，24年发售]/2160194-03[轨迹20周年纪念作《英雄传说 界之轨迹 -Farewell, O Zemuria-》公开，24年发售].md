@@ -9802,3 +9802,36 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为什么狮子要说某人，卡国要说某国/那个国家，序章真是全是典，也太过了吧
 
+
+*****
+
+####  新世界的派蒙  
+##### 3941#       发表于 2024-9-6 20:08
+
+序章目前的图没看到我第二喜欢的，台面上台面下
+
+*****
+
+####  ravend233  
+##### 3942#       发表于 2024-9-6 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66132016&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-6 19:29</a>
+为什么狮子要说某人，卡国要说某国/那个国家，序章真是全是典，也太过了吧 ...</blockquote>
+轨语不一直是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">他不这样写台词才奇怪了
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  Aeons  
+##### 3943#       发表于 2024-9-6 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66132361&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-6 20:13</a>
+
+轨语不一直是这样的吗他不这样写台词才奇怪了
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">都怪这些来共和国的外国佬，要是本国人怎么会叫某国
+

@@ -5420,3 +5420,28 @@ mygo的歌其实有很多主音吉他solo作为看点，只能青木来了，青
 
 她不会c，但也不会爆
 
+
+*****
+
+####  御幸一也  
+##### 22678#       发表于 2024-9-6 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128213&amp;ptid=2159415" target="_blank">ytttsuuuba 发表于 2024-9-6 11:03</a>
+
+第一次听gbc的歌，溜了好几遍op，op的键盘也太劲了，可以说是这首歌的灵魂了吧，太爽了。mujica大多数歌键 ...</blockquote>
+gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌都在秀存在感特別強，
+
+只能說可惜不是給avemujica的翻唱了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御幸一也  
+##### 22679#       发表于 2024-9-6 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128179&amp;ptid=2159415" target="_blank">前方暴雨预警 发表于 2024-9-6 10:59</a>
+
+有keyboard的乐队感觉不够柿本理解的朋克
+
+都上key了不玩点音色？都复杂音色了那就不是制作人说的简单纯粹连 ...</blockquote>
+直接放program？你是否在找：夢限大みゅーたいぷ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

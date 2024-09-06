@@ -5374,3 +5374,11 @@ ed感觉更对味点<img src="https://static.saraba1st.com/image/smiley/face2017
 
 3rd后鸡全员邦tv不好说，毕竟是m，am，ppp三个团连着开live，更有可能三个主唱一起凑一期。
 
+
+*****
+
+####  ytttsuuuba  
+##### 22673#       发表于 2024-9-6 10:54
+
+难道不是因为双吉他乐队更主流吗，没有键盘挺正常的。
+

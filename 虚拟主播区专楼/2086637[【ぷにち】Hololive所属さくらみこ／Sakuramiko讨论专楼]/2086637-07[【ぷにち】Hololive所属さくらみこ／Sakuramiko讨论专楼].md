@@ -8254,3 +8254,47 @@ fbkmicomet这3人从年初开始就一直在一起啊 线上线下全部
 
 果然每次都是星街在漏机密
 
+
+*****
+
+####  holoan  
+##### 9576#         楼主| 发表于 2024-9-5 23:27
+
+<img src="https://img.saraba1st.com/forum/202409/05/232624puiw7i8wo5uv438p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.44 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-5 23:26 上传
+
+不管什么游戏开飞机必起火的两个人
+[https://x.com/tomo_momoda/status/1831715298900373844](https://x.com/tomo_momoda/status/1831715298900373844)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  holoan  
+##### 9577#         楼主| 发表于 2024-9-6 10:50
+
+<img src="https://img.saraba1st.com/forum/202409/06/105013vano76ej6szndd6d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (540.21 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 10:50 上传
+
+一顶帽子把7大豆玩成海贼王
+

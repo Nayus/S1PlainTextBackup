@@ -5512,3 +5512,13 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 就像漏油讲的，朋克是最简略的流派，朋克乐队的组成一般也没有key <blockquote>パンクバンドの一般的構成としては、ギターが1人か2人、ベースが1人、ドラムが1人で、ボーカルは演奏者の1人が担当することもある。 </blockquote>
 一共就五个人主唱又不会乐器，让key把最标志性的吉他挤掉那还朋克吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  stygian  
+##### 22683#       发表于 2024-9-6 12:38
+
+键盘部分给青木重编成吉他，狠狠练倒也不是不行
+
+问题是夕莉部分李世林估计是弹不来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

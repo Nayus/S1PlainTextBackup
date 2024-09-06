@@ -1833,3 +1833,18 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  Ryuuseigun  
+##### 5115#       发表于 2024-9-6 23:41
+
+把加速器从雷神换成了UU就再也不掉线了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为了**大润
+
+*****
+
+####  heseran  
+##### 5116#       发表于 2024-9-6 23:43
+
+有人知道为什么用有线的话uu加速一直失败吗？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">之前一直是可以的，这几天想玩一下就不行了。
+

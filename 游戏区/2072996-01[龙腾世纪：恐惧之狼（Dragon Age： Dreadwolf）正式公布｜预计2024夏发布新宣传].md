@@ -22,3 +22,11 @@
 
 我只是觉得同样是暂停弹UI放队友技能，这UI实在是丑得花里胡哨了些，质量效应那种不是挺好的，不过该买还得买，圣歌我都首发了黄金还有什么不能买的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  PROCAINUM  
+##### 517#       发表于 2024-9-6 12:07
+
+战斗系统看上去好像还过得去，但生软的游戏主要还是看剧情和队友塑造，这作lead writer都换了，不知道咋样。预购就预购，如果褒姒大不了成生软最后一作，留作纪念也好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

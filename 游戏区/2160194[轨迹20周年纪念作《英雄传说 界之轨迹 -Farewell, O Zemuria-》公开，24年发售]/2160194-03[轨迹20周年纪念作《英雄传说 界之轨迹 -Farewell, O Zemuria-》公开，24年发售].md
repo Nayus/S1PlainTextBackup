@@ -9921,3 +9921,11 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 高达暖暖NS都卖了5W+，PS5；3W,PS4,1W</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接全平台才是出路  等看看界和fcr能卖多少
 
+
+*****
+
+####  里恩  
+##### 3952#       发表于 2024-9-6 22:26
+
+共和国剧情确实有点无聊的，整个大陆的核心矛盾明显不在共和国，只是顺便在共和国推进而已
+

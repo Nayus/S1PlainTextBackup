@@ -8957,3 +8957,38 @@ p.s. 我就喜欢杀人诛心
 
 序章操作凯文黎恩黑兔
 
+
+*****
+
+####  宛若青空  
+##### 3852#       发表于 2024-9-6 10:06
+
+<img src="https://img.saraba1st.com/forum/202409/06/100604i63a3usq65rao1js.jpg" referrerpolicy="no-referrer">
+
+<strong>0076T2oMgy1htd2dtvn0tj30rs0fmwha.jpg</strong> (92.03 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 10:06 上传
+
+标题画面，本次界轨菜单位置改回闪创那样的左边位置
+
+*****
+
+####  Aeons  
+##### 3853#       发表于 2024-9-6 10:08
+
+a9放了几个叙旧可笑死我了
+
+
+*****
+
+####  椎名mahuyo  
+##### 3854#       发表于 2024-9-6 10:12
+
+【《英雄传说 界之轨迹》巴士试玩14分钟实机影像-哔哩哔哩】 https://b23.tv/ICqLizQ
+
+哎哟序章视频来了
+
+—— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

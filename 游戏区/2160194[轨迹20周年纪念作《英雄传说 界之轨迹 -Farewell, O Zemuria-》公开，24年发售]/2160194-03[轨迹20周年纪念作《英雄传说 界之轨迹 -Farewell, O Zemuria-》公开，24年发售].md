@@ -9835,3 +9835,14 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">都怪这些来共和国的外国佬，要是本国人怎么会叫某国
 
+
+*****
+
+####  古畑任三郎2015  
+##### 3944#       发表于 2024-9-6 20:51
+
+不装了，反正都是你们这些人在买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那人那天那国那事你们肯定能听懂，听不懂的不配当我们客户<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

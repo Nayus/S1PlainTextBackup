@@ -1861,3 +1861,15 @@ HB本月进包，没有的可以去便宜收一个
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  谢枫华  
+##### 173#       发表于 2024-9-7 06:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66134745&amp;ptid=2153988" target="_blank">xiedua 发表于 2024-9-7 04:03</a>
+请问一般在哪里收这种进包的游戏啊_(:з」∠)_
+
+—— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
+steampy。
+

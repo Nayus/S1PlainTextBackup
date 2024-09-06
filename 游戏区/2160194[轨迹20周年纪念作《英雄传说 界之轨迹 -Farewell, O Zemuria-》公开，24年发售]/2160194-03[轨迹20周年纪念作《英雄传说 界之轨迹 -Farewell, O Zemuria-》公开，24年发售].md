@@ -8911,3 +8911,14 @@ p.s. 我就喜欢杀人诛心
 有链接吗</blockquote>
 吸烟室     
 
+
+*****
+
+####  卢迪克  
+##### 3847#       发表于 2024-9-6 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127090&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-6 09:05</a>
+
+估计是什么原本是背景板的死人，比如双剑那个多数猜测是大君</blockquote>
+其实还有大君是单手剑来着，不过考虑另外两个面具人拿着绿毛和卡西姆的武器，估计就是直接复用现有的技能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

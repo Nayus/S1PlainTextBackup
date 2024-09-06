@@ -17,3 +17,18 @@
 我真的不想再看整个秋季什么都不干，年后开始剧情暴走烂完的剧本了……</blockquote>
 现在是不止秋季，春夏季也没干什么
 
+
+*****
+
+####  それは奇跡です  
+##### 2116#       发表于 2024-9-6 15:14
+
+看到告白这个标题我好兴奋啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 2117#       发表于 2024-9-6 15:21
+
+怕不是向咩咩告白表达平日的谢意<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

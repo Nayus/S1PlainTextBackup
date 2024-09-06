@@ -9794,3 +9794,11 @@ mk虽然技术高，但干部太少了，就两个sc，女仆还一直在外面
 
 开篇就是熟悉的味道，太熟悉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 3940#       发表于 2024-9-6 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为什么狮子要说某人，卡国要说某国/那个国家，序章真是全是典，也太过了吧
+

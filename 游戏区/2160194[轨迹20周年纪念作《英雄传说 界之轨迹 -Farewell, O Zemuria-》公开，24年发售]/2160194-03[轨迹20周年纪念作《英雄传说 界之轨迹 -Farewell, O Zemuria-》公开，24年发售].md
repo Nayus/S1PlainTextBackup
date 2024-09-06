@@ -9464,3 +9464,30 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 牢黎开神气可以升档</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">师姐在对面也可以神气
 
+
+*****
+
+####  Aeons  
+##### 3903#       发表于 2024-9-6 13:23
+
+帽子说是7号执行者，是不是不太对得住他剧情
+
+*****
+
+####  低调不圆滑  
+##### 3904#       发表于 2024-9-6 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66129111&amp;ptid=2160194" target="_blank">Markorca 发表于 2024-9-6 12:46</a>
+
+师姐在对面也可以神气</blockquote>
+单纯说的游戏里倍率，师姐黎1黎2都不能开神气的
+
+*****
+
+####  ravend233  
+##### 3905#       发表于 2024-9-6 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">执行者也有一哥这种
+
+不过机翻韩语我印象里准确度是比较低的，还是具体再看看
+

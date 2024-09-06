@@ -24,3 +24,28 @@ Shahar 是希伯来语黎明的意思
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
 
+
+*****
+
+####  不灭的旋律  
+##### 1195#       发表于 2024-9-6 15:00
+
+新米调查任务夜露的能力又发动了大家就在猜是石头门还是小裤裤，结果是石头门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次新女演员是谁？麻油喜？总不能是小动物吧
+
+
+*****
+
+####  alialex  
+##### 1196#       发表于 2024-9-6 15:04
+
+新米调查任务的剧情原来还会不一样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alialex  
+##### 1197#       发表于 2024-9-6 15:04
+
+不一定有新人吧，要是有新卡池还得双up，猜一个菲利斯喵喵+香菜
+

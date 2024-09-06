@@ -5530,3 +5530,11 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 
 其实根本不用担心这个，因为对邦的换歌环节是两个乐队所有乐器一起上的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  MASKA-1  
+##### 22685#       发表于 2024-9-6 14:57
+
+很难想象pico里面mujica用假面形态会搭配什么生草剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

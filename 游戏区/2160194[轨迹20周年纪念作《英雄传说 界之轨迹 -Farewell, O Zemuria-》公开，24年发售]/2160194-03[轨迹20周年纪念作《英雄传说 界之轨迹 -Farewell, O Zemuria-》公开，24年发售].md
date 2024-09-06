@@ -9566,3 +9566,36 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 那也太没面子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 被打败后分别扑进黑兔和克洛胸怀里放声大哭吗
 
+
+*****
+
+####  洛克萨斯  
+##### 3914#       发表于 2024-9-6 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以八叶最强这次就能评出来了？风剑这个年富力强的二师兄打得过开了神气的师弟和师妹么
+
+*****
+
+####  里恩  
+##### 3915#       发表于 2024-9-6 17:19
+
+你们对我也太没信心了，我在游戏前期向来都不是全开的状态，希望后期应该会和范的鬼化一起联动后，再进化一次变身。凯文就全开圣痕这样
+
+*****
+
+####  新世界的派蒙  
+##### 3916#       发表于 2024-9-6 17:19
+
+黎老师和葱头应该会有第二S技吧，如果主角团和新角色都没第二S技我会有点失望.....
+
+
+*****
+
+####  洛克萨斯  
+##### 3917#       发表于 2024-9-6 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131101&amp;ptid=2160194" target="_blank">里恩 发表于 2024-9-6 17:19</a>
+
+你们对我也太没信心了，我在游戏前期向来都不是全开的状态，希望后期应该会和范的鬼化一起联动后，再进化一 ...</blockquote>
+你不担心下自己会不会又被师姐打趴下么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

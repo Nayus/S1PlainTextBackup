@@ -862,3 +862,16 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 2d塞最大的问题是这画风 ...</blockquote>
 索索能捏着鼻子吹他们最瞧不起的4399机器人，我们2d塞这次上桌吃饭也不是不行
 
+
+*****
+
+####  freedom12  
+##### 534#       发表于 2024-9-6 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66126989&amp;ptid=2188108" target="_blank">牛奶笛 发表于 2024-9-6 08:51</a>
+
+目前可能还有两个地方在藏，一个是第四种能力，野炊王泪都有四种基础能力，理念相似的话本作感觉也有。
+
+二 ...</blockquote>
+真心希望nds两作的雪人族能回归
+

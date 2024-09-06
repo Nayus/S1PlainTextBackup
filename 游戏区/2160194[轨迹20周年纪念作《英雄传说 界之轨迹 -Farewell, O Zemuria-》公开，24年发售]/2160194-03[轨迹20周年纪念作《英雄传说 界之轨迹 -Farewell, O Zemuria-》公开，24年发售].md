@@ -8922,3 +8922,38 @@ p.s. 我就喜欢杀人诛心
 估计是什么原本是背景板的死人，比如双剑那个多数猜测是大君</blockquote>
 其实还有大君是单手剑来着，不过考虑另外两个面具人拿着绿毛和卡西姆的武器，估计就是直接复用现有的技能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 3848#       发表于 2024-9-6 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127449&amp;ptid=2160194" target="_blank">Kojimaru 发表于 2024-9-6 09:42</a>
+起飞</blockquote>
+这次标题画面的菜单改到了左边？变回闪创那样了
+
+*****
+
+####  古畑任三郎2015  
+##### 3849#       发表于 2024-9-6 10:00
+
+不会就是方石里的人物复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+每章跑注水庭院迷宫，关底来个面具人摘面具，哦原来是你
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Aeons  
+##### 3850#       发表于 2024-9-6 10:02
+
+试玩视频
+
+*****
+
+####  Aeons  
+##### 3851#       发表于 2024-9-6 10:04
+
+序章操作凯文黎恩黑兔
+

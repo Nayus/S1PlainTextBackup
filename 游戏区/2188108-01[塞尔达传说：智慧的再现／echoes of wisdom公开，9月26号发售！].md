@@ -890,3 +890,15 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 这画风哪里不行了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  kuarwbwe  
+##### 537#       发表于 2024-9-6 10:18
+
+ 本帖最后由 kuarwbwe 于 2024-9-6 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66127389&amp;ptid=2188108" target="_blank">八宫めぐる 发表于 2024-9-6 09:36</a>
+
+索索能捏着鼻子吹他们最瞧不起的4399机器人，我们2d塞这次上桌吃饭也不是不行 ...</blockquote>
+上桌起码也得等出分了、游戏出了再说吧，急啥。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

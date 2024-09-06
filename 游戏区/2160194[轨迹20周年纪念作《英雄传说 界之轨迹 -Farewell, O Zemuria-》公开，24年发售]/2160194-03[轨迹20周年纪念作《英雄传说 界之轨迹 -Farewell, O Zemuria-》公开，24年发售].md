@@ -8992,3 +8992,52 @@ a9放了几个叙旧可笑死我了
 
 —— 来自 realme RMX3708, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+*****
+
+####  新世界的派蒙  
+##### 3855#       发表于 2024-9-6 10:18
+
+我了个六连疾风阿，你比风剑瘤三倍
+
+*****
+
+####  卢迪克  
+##### 3856#       发表于 2024-9-6 10:19
+
+ファミ通
+
+界の軌跡:22 PS5:82,37 PS4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+完蛋
+
+
+*****
+
+####  ravend233  
+##### 3857#       发表于 2024-9-6 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典叙旧
+
+*****
+
+####  Kojimaru  
+##### 3858#       发表于 2024-9-6 10:23
+
+<img src="https://img.saraba1st.com/forum/202409/06/102226pwfl1nl5bb5fmm84.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.47 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 10:22 上传
+
+孩子们，我回来了
+
+*****
+
+####  ravend233  
+##### 3859#       发表于 2024-9-6 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又改回了闪轨了属于是
+

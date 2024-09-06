@@ -5445,3 +5445,61 @@ gbc很多歌的key都編得很花，OP這首是編得最花的，幾乎整首歌
 都上key了不玩点音色？都复杂音色了那就不是制作人说的简单纯粹连 ...</blockquote>
 直接放program？你是否在找：夢限大みゅーたいぷ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22680#       发表于 2024-9-6 11:51
+
+虽然说很想猜一猜鸡进游戏了第一首翻唱给什么
+
+但是一想到明年鸡说不定周年后才进就觉得烦死了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NODY  
+##### 22681#       发表于 2024-9-6 11:51
+
+@suw4xsweetie
+
+<img src="https://img.saraba1st.com/forum/202409/06/115141bhmkxhkhfqk6orxu.jpg" referrerpolicy="no-referrer">
+
+<strong>GWwdOfZWYAAgkpH.jpg</strong> (272 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/115141drnlduaix88qjeyq.jpg" referrerpolicy="no-referrer">
+
+<strong>GWwdRizWYAEsdRe.jpg</strong> (321.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/115141uelz2lz1l1egl177.jpg" referrerpolicy="no-referrer">
+
+<strong>GWwdTc7XUAA7Zs5.jpg</strong> (235.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/115142ee1ihkegeoqqkoq5.jpg" referrerpolicy="no-referrer">
+
+<strong>GWwdYt4W0AA52kb.jpg</strong> (299.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202409/06/115143fb2bq72lc22c7w71.jpg" referrerpolicy="no-referrer">
+
+<strong>GWwecUBWIAAibv2.jpg</strong> (263.12 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-6 11:51 上传
+

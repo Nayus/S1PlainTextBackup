@@ -9324,3 +9324,102 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 
 那看来这个分线就是黎2式分线了，每章确保有事务所路线，然后另一条线帝国组和野餐队轮流来
 
+
+*****
+
+####  andychen  
+##### 3889#       发表于 2024-9-6 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128583&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-6 11:40</a>
+
+那看来这个分线就是黎2式分线了，每章确保有事务所路线，然后另一条线帝国组和野餐队轮流来 ...</blockquote>
+还有空碧两组人马吧，难道说空轨组加入帝国组，零碧组加入野餐队？
+
+*****
+
+####  Aeons  
+##### 3890#       发表于 2024-9-6 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128638&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 11:48</a>
+还有空碧两组人马吧，难道说空轨组加入帝国组，零碧组加入野餐队？</blockquote>
+哪来的空碧组
+
+*****
+
+####  一步成诗  
+##### 3891#       发表于 2024-9-6 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128638&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 11:48</a>
+
+还有空碧两组人马吧，难道说空轨组加入帝国组，零碧组加入野餐队？</blockquote>
+哪个情报说了有空零碧人马？
+
+*****
+
+####  悠悠你心  
+##### 3892#       发表于 2024-9-6 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128638&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 11:48</a>
+还有空碧两组人马吧，难道说空轨组加入帝国组，零碧组加入野餐队？</blockquote>
+为什么会有空碧组？是偷跑的消息吗？
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  andychen  
+##### 3893#       发表于 2024-9-6 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128645&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-6 11:49</a>
+
+哪个情报说了有空零碧人马？</blockquote>
+原来没有吗？
+
+我看宣传说50+可操作角色，只有闪轨+黎轨的话得从闪轨拉不少人过来了
+
+
+*****
+
+####  Aeons  
+##### 3894#       发表于 2024-9-6 11:52
+
+没说过50+
+
+*****
+
+####  卢迪克  
+##### 3895#       发表于 2024-9-6 11:54
+
+说起来他要出界2，为什么还要跳两个月？
+
+*****
+
+####  Aeons  
+##### 3896#       发表于 2024-9-6 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128694&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-6 11:54</a>
+说起来他要出界2，为什么还要跳两个月？</blockquote>
+7月协议破裂
+拉碧丝剧情提到1210年
+
+*****
+
+####  医生狼多  
+##### 3897#         楼主| 发表于 2024-9-6 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128663&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-6 11:51</a>
+原来没有吗？
+
+我看宣传说50+可操作角色，只有闪轨+黎轨的话得从闪轨拉不少人过来了 ...</blockquote>
+说的是没有创轨那样50+人，你看串了吧
+
+*****
+
+####  andychen  
+##### 3898#       发表于 2024-9-6 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66128705&amp;ptid=2160194" target="_blank">医生狼多 发表于 2024-9-6 11:56</a>
+
+说的是没有创轨那样50+人，你看串了吧</blockquote>
+哦，那是我搞错了
+

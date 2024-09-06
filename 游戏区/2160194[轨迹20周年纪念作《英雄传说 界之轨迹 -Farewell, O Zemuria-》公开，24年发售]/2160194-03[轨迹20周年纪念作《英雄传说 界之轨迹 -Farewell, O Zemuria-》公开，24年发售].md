@@ -9609,3 +9609,31 @@ cut-in裙子都飘到内裤上面了，但只给看一点点，有点色相但�
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  里恩  
+##### 3919#       发表于 2024-9-6 17:50
+
+<blockquote>洛克萨斯 发表于 2024-9-6 17:23
+你不担心下自己会不会又被师姐打趴下么</blockquote>
+之前，连剧情杀都不算，是台词杀，刀断是有很多还不能说的原因的啦
+
+*****
+
+####  ravend233  
+##### 3920#       发表于 2024-9-6 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66131102&amp;ptid=2160194" target="_blank">新世界的派蒙 发表于 2024-9-6 17:19</a>
+
+黎老师和葱头应该会有第二S技吧，如果主角团和新角色都没第二S技我会有点失望..... ...</blockquote>
+主角团应该有第二个S，新返场老角色不一定
+
+
+*****
+
+####  hkguty  
+##### 3921#       发表于 2024-9-6 17:53
+
+估计就是开了神气之后有一个加强版S技，没有别的了
+

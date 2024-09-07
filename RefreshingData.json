@@ -8631,10 +8631,10 @@
     "update": false
   },
   "2184782": {
-    "totalreply": 70405,
+    "totalreply": 70406,
     "title": "[【B89】VUP综合讨论楼]",
     "newtitle": "[【B90】VUP综合讨论楼]",
-    "lastedit": 1725670086,
+    "lastedit": 1725670446,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -8829,10 +8829,10 @@
     "update": false
   },
   "2186894": {
-    "totalreply": 34299,
+    "totalreply": 34300,
     "title": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
     "newtitle": "[【集中讨论】二游圈吃瓜／搬运／黑泥讨论楼，欢迎点燃大海]",
-    "lastedit": 1725669851,
+    "lastedit": 1725670213,
     "category": "手游战斗",
     "active": true,
     "update": false
@@ -9045,10 +9045,10 @@
     "update": false
   },
   "2082967": {
-    "totalreply": 433,
+    "totalreply": 434,
     "title": "[义妹生活 TV动画化 2024年7月]",
     "newtitle": "[义妹生活 TV动画化 2024年7月]",
-    "lastedit": 1725658929,
+    "lastedit": 1725670330,
     "category": "漫区",
     "active": true,
     "update": false
@@ -9765,10 +9765,10 @@
     "update": false
   },
   "2194561": {
-    "totalreply": 2243,
+    "totalreply": 2244,
     "title": "[【#11】hololive综合讨论楼]",
     "newtitle": "[【#11】hololive综合讨论楼]",
-    "lastedit": 1725642259,
+    "lastedit": 1725670689,
     "category": "虚拟主播区专楼",
     "active": true,
     "update": false
@@ -10076,7 +10076,7 @@
     "newtitle": "[被坛友欠钱，现在陷入僵局了怎么办]",
     "lastedit": 1725411009,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2195443": {
@@ -13608,10 +13608,10 @@
     "update": false
   },
   "2192045": {
-    "totalreply": 184,
+    "totalreply": 185,
     "title": "[战锤40k星际战士2剧透讨论楼]",
     "newtitle": "[战锤40k星际战士2剧透讨论楼]",
-    "lastedit": 1725669610,
+    "lastedit": 1725670213,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -15359,7 +15359,7 @@
     "newtitle": "[日本那种4、50层的塔楼要怎么维护养老？]",
     "lastedit": 1725411253,
     "category": "外野",
-    "active": true,
+    "active": false,
     "update": false
   },
   "2197623": {
@@ -16407,10 +16407,10 @@
     "update": false
   },
   "2197837": {
-    "totalreply": 64,
+    "totalreply": 65,
     "title": "[泥潭有用多邻国的嘛，感觉这个APP还挺魔性的]",
     "newtitle": "[泥潭有用多邻国的嘛，感觉这个APP还挺魔性的]",
-    "lastedit": 1725660729,
+    "lastedit": 1725670332,
     "category": "外野",
     "active": true,
     "update": false
@@ -16731,10 +16731,10 @@
     "update": false
   },
   "2197940": {
-    "totalreply": 66,
+    "totalreply": 67,
     "title": "[既然大家那么讨厌快慢刀，那就来玩忍龙2、神之手、doom永恒吧]",
     "newtitle": "[既然大家那么讨厌快慢刀，那就来玩忍龙2、神之手、doom永恒吧]",
-    "lastedit": 1725502109,
+    "lastedit": 1725670213,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -16965,10 +16965,10 @@
     "update": false
   },
   "2198041": {
-    "totalreply": 92,
+    "totalreply": 93,
     "title": "[河北一男子在国道骑行时被货车碾压身亡]",
     "newtitle": "[河北一男子在国道骑行时被货车碾压身亡]",
-    "lastedit": 1725667331,
+    "lastedit": 1725670690,
     "category": "外野",
     "active": true,
     "update": false
@@ -17199,10 +17199,10 @@
     "update": false
   },
   "2198089": {
-    "totalreply": 89,
+    "totalreply": 90,
     "title": "[评选一下最不受待见的arpg常见要素]",
     "newtitle": "[评选一下最不受待见的arpg常见要素]",
-    "lastedit": 1725660006,
+    "lastedit": 1725670210,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17316,10 +17316,10 @@
     "update": false
   },
   "2198167": {
-    "totalreply": 341,
+    "totalreply": 343,
     "title": "[宇宙机器人首开71家94分，ign9gs9]",
     "newtitle": "[宇宙机器人首开71家94分，ign9gs9]",
-    "lastedit": 1725669980,
+    "lastedit": 1725670567,
     "category": "游戏区",
     "active": true,
     "update": false
@@ -17770,6 +17770,15 @@
     "title": "[想要增肥求推荐能长肉的方法]",
     "newtitle": "[想要增肥求推荐能长肉的方法]",
     "lastedit": 1725669375,
+    "category": "外野",
+    "active": true,
+    "update": false
+  },
+  "2198354": {
+    "totalreply": 42,
+    "title": "[这年头最该学的是如何线上办公]",
+    "newtitle": "[这年头最该学的是如何线上办公]",
+    "lastedit": 1725670689,
     "category": "外野",
     "active": true,
     "update": false

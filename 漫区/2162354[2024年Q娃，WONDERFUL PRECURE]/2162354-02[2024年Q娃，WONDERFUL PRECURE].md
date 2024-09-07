@@ -99,3 +99,14 @@
 这个keiji君一眼烟雾弹，甚至大概率不是人，萨托鲁直接拉着猫组A上去了，这回怎么着也得是动真格的了吧 ...</blockquote>
 我最怕的是staff整个三角恋，麻油支持到最后套进去这种剧情<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arson=desu  
+##### 2125#       发表于 2024-9-7 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135778&amp;ptid=2162354" target="_blank">66367749 发表于 2024-9-7 10:39</a>
+我最怕的是staff整个三角恋，麻油支持到最后套进去这种剧情</blockquote>
+非得在这种都演了快四十话只剩十来集的时候搞这种直球垫脚石的烂活那我也说不出啥了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+主要悟人设的核心之一就是彩叶小姐的小男友，真经不起三角恋折腾，他到目前为止的待遇在整个系列的凡人男配里也算是最好的一个了，我觉得成田不至于这么搞他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

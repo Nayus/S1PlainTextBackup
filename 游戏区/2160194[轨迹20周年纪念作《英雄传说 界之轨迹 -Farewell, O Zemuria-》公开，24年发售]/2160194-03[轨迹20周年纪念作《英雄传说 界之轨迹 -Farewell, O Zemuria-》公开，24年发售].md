@@ -10230,3 +10230,20 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 就这屁大点事就打起来，这帮人就这点出息
 
+
+*****
+
+####  一步成诗  
+##### 3982#       发表于 2024-9-7 16:35
+
+最离谱的难道不是给人偶弄成非战斗单位了吗，不懂怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 3983#       发表于 2024-9-7 16:38
+
+闹麻了，到时候回廊还不是黎恩刷爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

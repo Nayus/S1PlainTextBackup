@@ -578,3 +578,37 @@ Native American 更常用吧
 是不是可以理解为，对广西人称呼他们为越南🐒的后裔？</blockquote>
 是柬埔寨人说越南人你们就是中国人的儿子
 
+
+*****
+
+####  荡寇将军张嶷  
+##### 61#       发表于 2024-9-7 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138403&amp;ptid=2198385" target="_blank">洪水熊猫大势去 发表于 2024-9-7 17:19</a>
+
+不至于卡壳吧，这点汴京都没有吗，原住民那是解放，其他国家那是奴役
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+没有，因为他憋了半天最后说出来的就是白人已经到美洲好几百年了，所以已经算是当地人<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">、
+
+感情他们的历史估计从1776年开始算。
+
+再说以现今美国人受的教育，即使是再大胆的白人也一样不敢说自己是来解放原住民的。<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  五性八卦  
+##### 62#       发表于 2024-9-7 17:53
+
+这种称呼对美国其实是好事，能很大程度消解种族主义的影响力，政府日后再下个定义，在美国多少年或者几代的人就算native，让民众更在乎文化概念上的美国，算是民族融合了。
+
+*****
+
+####  darkangel0224  
+##### 63#       发表于 2024-9-7 17:57
+
+<blockquote>TTAA 发表于 2024-9-7 16:41
+原来他们以前没有这种称呼？？像什么爱尔兰裔、德裔、英裔，总要有个统称吧，难道美国老白男都觉得自己土生 ...</blockquote>
+有这种思想定势的那一代人早入土了，你看《教父》都是啥时候的
+

@@ -1029,3 +1029,26 @@ https://www.bilibili.com/vi ...</blockquote>
 
 主要是因为美洲原住民原本就不是一个国家概念，存在着大量彼此之间有血海深仇的大小部落，而且由于习俗过于血腥，知识水平落后的时候原住民部落之间都不太能和解，学习了近代伦理知识后更是没法团结在一起了
 
+
+*****
+
+####  nekkihs2  
+##### 102#       发表于 2024-9-8 01:37
+
+What kind of American are you.jpg
+
+— from [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.0.87-alpha
+
+*****
+
+####  苦瓜柠檬茶  
+##### 103#       发表于 2024-9-8 01:40
+
+<blockquote>anfangzhan 发表于 2024-9-8 01:21
+哈？不是自称拉丁裔？</blockquote>
+你什么时候觉得拉丁裔不自认是白人？
+
+拉丁裔，又译为“拉美裔，西班牙语裔，西语裔”，美国拉丁裔全称西班牙裔和拉丁裔美国人（英语：Hispanic and Latino Americans）
+
+European American 甚至特意标明不包含 Latino。或者更易懂的，是北欧和南欧的关系
+

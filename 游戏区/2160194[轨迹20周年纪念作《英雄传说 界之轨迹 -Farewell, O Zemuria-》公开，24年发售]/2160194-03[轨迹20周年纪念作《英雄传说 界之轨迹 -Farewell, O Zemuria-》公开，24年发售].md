@@ -10453,3 +10453,11 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">黑兔的配音有问题吧，看试玩演示技能念得有气无力...........
 
+
+*****
+
+####  Aeons  
+##### 4004#       发表于 2024-9-8 01:24
+
+是吗，我倒觉得算亲切的，葱头这个因为我最近回顾了下3rd有点接受不了
+

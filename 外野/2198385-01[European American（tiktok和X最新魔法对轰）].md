@@ -1016,3 +1016,16 @@ https://www.bilibili.com/vi ...</blockquote>
 
 哈？不是自称拉丁裔？
 
+
+*****
+
+####  otaku21126  
+##### 101#       发表于 2024-9-8 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66136846&amp;ptid=2198385" target="_blank">循此苦旅 发表于 2024-9-7 13:02</a>
+
+所以印第安人认不认自己是美国人呢？</blockquote>
+印第安人或者说美洲原住民基本上既知道白人掠夺了原住民部落的土地，又认同自己是美国人
+
+主要是因为美洲原住民原本就不是一个国家概念，存在着大量彼此之间有血海深仇的大小部落，而且由于习俗过于血腥，知识水平落后的时候原住民部落之间都不太能和解，学习了近代伦理知识后更是没法团结在一起了
+

@@ -1865,3 +1865,26 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 —— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  苍蓝之枪  
+##### 5119#       发表于 2024-9-7 09:21
+
+黑夜反而不容易刷分了
+
+*****
+
+####  yanglian72  
+##### 5120#       发表于 2024-9-7 09:25
+
+官方标准还是定低了
+
+
+*****
+
+####  美式咖啡  
+##### 5121#       发表于 2024-9-7 09:25
+
+一次搞定218蛋<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
+

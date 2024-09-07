@@ -1143,3 +1143,64 @@ European American 如果能推广开来
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+*****
+
+####  tlygo54  
+##### 111#         楼主| 发表于 2024-9-8 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141771&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:05</a>
+颠倒是非黑白，墨西哥人多数的西班牙裔
+
+墨西哥土著是印加人和阿兹特克人，被杀光了 ...</blockquote>
+阿兹特克被杀光了那这是啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png">
+
+【【Aztec】墨西哥城中阿兹特克舞者表演-哔哩哔哩】 https://b23.tv/ynSyFvz
+
+蒙二的后代还在西班牙开枝散叶
+
+【阿兹特克贵胄--西班牙大贵族蒙特祖玛公爵在节目中赞美西班牙王室-哔哩哔哩】 https://b23.tv/LUQLX3b
+
+拿了个巨大家徽
+<img src="https://p.sda1.dev/19/6dcd46a279a9fcf7a1e087538c1c03bc/image.jpg" referrerpolicy="no-referrer">
+
+稍微有点纹章学知识就能读到左边的阿兹特克元素
+
+阿兹特克血统和道统都在，就是信烟雾镜的没那么多了，哪来的被杀光了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+只能说西班牙这种玩儿「天下主义」的不是盎撒土匪能碰瓷的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nexus1  
+##### 112#       发表于 2024-9-8 07:34
+
+<blockquote>苦瓜柠檬茶 发表于 2024-9-8 01:56
+European American 如果能推广开来
+
+以后也能整出个 European Australian</blockquote>
+至少现在已经有 japanese Korean 了
+
+*****
+
+####  苦瓜柠檬茶  
+##### 113#       发表于 2024-9-8 07:34
+
+<blockquote>tlygo54 发表于 2024-9-8 07:29
+阿兹特克被杀光了那这是啥
+
+【【Aztec】墨西哥城中阿兹特克舞者表演-哔哩哔哩】 https://b23.tv/ynSyFvz</blockquote>
+这和英国殖民印度、英国女王自称“女皇”有什么不一样？
+
+*****
+
+####  大哀之君  
+##### 114#       发表于 2024-9-8 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141771&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:05</a>
+颠倒是非黑白，墨西哥人多数的西班牙裔
+
+墨西哥土著是印加人和阿兹特克人，被杀光了 ...</blockquote>
+屁都不懂就少咧咧
+

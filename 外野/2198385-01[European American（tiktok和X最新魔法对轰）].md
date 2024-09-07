@@ -949,3 +949,15 @@ https://www.bilibili.com/vi ...</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  tlygo54  
+##### 95#         楼主| 发表于 2024-9-8 00:06
+
+<img src="https://p.sda1.dev/19/1c6b0b7a5605b4bfd81783f1c5c5e1c4/image.jpg" referrerpolicy="no-referrer">">
+老白男「我出生在美国所以我是美国人，你们这些想要寻根的人连自己咖喱人从哪来的都不知道」
+黑人「所以，你是欧裔美国人，懂了」
+
+感觉两边的话术都在朝着贴吧五艺发生趋同进化<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

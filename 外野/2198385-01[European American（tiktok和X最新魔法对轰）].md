@@ -425,3 +425,11 @@ Gay Or European<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 随着自诩原住民的墨西哥裔美国人越来越多，欧裔美国人这个说法迟早是要普及的
 
+
+*****
+
+####  valand  
+##### 45#       发表于 2024-9-7 15:47
+
+感觉像互联网域名后缀，cn，jp，ru哪些，美国是默认省略的，现在也要加上us了
+

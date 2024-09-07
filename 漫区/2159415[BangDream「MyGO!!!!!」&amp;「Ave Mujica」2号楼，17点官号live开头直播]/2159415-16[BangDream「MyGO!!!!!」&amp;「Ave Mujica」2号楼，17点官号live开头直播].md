@@ -5645,3 +5645,19 @@ live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓�
 
 确实，真让lsl上kb位了那肯定要有c的时候，这下就没法混了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ddy2811  
+##### 22696#       发表于 2024-9-7 15:48
+
+只要不上live，MyGO整个乐队就只用出一个羊吧
+
+
+*****
+
+####  skives  
+##### 22697#       发表于 2024-9-7 15:56
+
+李世林负责可爱就行了
+

@@ -3646,3 +3646,11 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">高情商的说，全是感情，没有技巧
 
+
+*****
+
+####  格雷殿下  
+##### 6349#       发表于 2024-9-7 15:57
+
+来点烤羊笑话
+

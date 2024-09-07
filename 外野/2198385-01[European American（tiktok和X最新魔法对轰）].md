@@ -1098,3 +1098,19 @@ European American 如果能推广开来
 
 以后也能整出个 European Australian
 
+
+*****
+
+####  执信校友  
+##### 108#       发表于 2024-9-8 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141771&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:05</a>
+颠倒是非黑白，墨西哥人多数的西班牙裔
+
+墨西哥土著是印加人和阿兹特克人，被杀光了 ...</blockquote>
+印加人：我家在安第斯山，咋到墨西哥了？
+
+且不说西班牙人对帮他们征服美洲的原住民一直待遇不低，其实拉丁美洲大部分人口至今依然是原住民后裔，很多人有殖民者血统，但纯原住民也并不在少数
+
+—— 来自 OnePlus PJD110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

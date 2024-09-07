@@ -526,3 +526,26 @@ Native American 更常用吧
 
 还不够，应该分成英裔美国人，德裔美国人，法裔美国人等等。也可以根据种族，什么昂撒，日耳曼，法兰克等等
 
+
+*****
+
+####  鹅大人  
+##### 56#       发表于 2024-9-7 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135364&amp;ptid=2198385" target="_blank">pyfhhh 发表于 2024-9-7 09:30</a>
+是不是可以理解为，对广西人称呼他们为越南🐒的后裔？</blockquote>
+应该说是对上海人说祖上是宁波的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  洪水熊猫大势去  
+##### 57#       发表于 2024-9-7 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135267&amp;ptid=2198385" target="_blank">荡寇将军张嶷 发表于 2024-9-7 09:18</a>
+老白男的确每次到这事件上就会卡壳。
+
+之前**上看到个会说中文的白人，喷中国边疆时候各种义正辞严抡大棒， ...</blockquote>
+不至于卡壳吧，这点汴京都没有吗，原住民那是解放，其他国家那是奴役
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

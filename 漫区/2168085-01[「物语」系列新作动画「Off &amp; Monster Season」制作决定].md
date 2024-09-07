@@ -2695,3 +2695,37 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 看了十周年朗读剧熟肉怎么贝木和荡漾那种藕断丝连的前任感比恋物语和副音轨里更强了
 
+
+*****
+
+####  0aleph37  
+##### 853#       发表于 2024-9-7 21:27
+
+忍物语pv放出了
+
+
+*****
+
+####  oi99o  
+##### 854#       发表于 2024-9-7 21:32
+
+草
+
+<img src="https://img.saraba1st.com/forum/202409/07/213209cf8k2vnjff4428v4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (666.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 21:32 上传
+
+*****
+
+####  Tachikoma88  
+##### 855#       发表于 2024-9-7 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140157&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-9-7 21:32</a>
+
+草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

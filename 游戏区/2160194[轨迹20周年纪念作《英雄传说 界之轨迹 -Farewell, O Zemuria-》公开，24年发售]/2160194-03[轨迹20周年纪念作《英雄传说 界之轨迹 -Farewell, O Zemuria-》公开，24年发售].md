@@ -10188,3 +10188,11 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 终章还有一次火箭射高达</blockquote>
 再来一次就没新鲜感冲击力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  反方向的波  
+##### 3977#       发表于 2024-9-7 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">老葱
+

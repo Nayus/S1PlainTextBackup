@@ -10268,3 +10268,13 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 —— 来自 鹅球 v3.0.0.82-alpha</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至串子都来了
 
+
+*****
+
+####  ravend233  
+##### 3986#       发表于 2024-9-7 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最好都别买，首周卖个3w暴死
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

@@ -10000,3 +10000,11 @@ A:這是我們收到最多的問題之一，至少有一個角色會有確定的
 但他仍覺得RPG非常有潛力 ...</blockquote><blockquote>对于近藤很失望，这么多访谈，没一个希望轨迹20周年能取得成功的回答，去年伊苏就有说</blockquote>
 没想到对空re说了，界轨已死勿念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  andychen  
+##### 3960#       发表于 2024-9-7 12:43
+
+界轨发售前准备复习下黎轨，NISA这PC移植做得真不错，画面比主机板提升了不少
+

@@ -665,3 +665,15 @@ Native American 更常用吧
 那不一样，不是310自己知道，破防不是这个破法
 是确信自己是310，但去办业务的时候被指出是假 证那种，就嗷的一声原地崩溃了
 
+
+*****
+
+####  中国科学院  
+##### 69#       发表于 2024-9-7 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138124&amp;ptid=2198385" target="_blank">星㐅影 发表于 2024-9-7 16:25</a>
+有个对美洲土著印第安人的称呼：local America
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+美洲本地人，没毛病
+

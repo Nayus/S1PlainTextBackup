@@ -626,3 +626,42 @@ Native American 更常用吧
 
 这个的前提也是欧罗巴人还能支楞起来。以前老美也热衷于寻根啊。现在为啥不寻了？还是欧洲太拉了呀。认个穷祖宗，丢不起这个脸面
 
+
+*****
+
+####  小野賢章  
+##### 65#       发表于 2024-9-7 18:15
+
+相当于“你讲话有苏北口音”是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  姊控  
+##### 66#       发表于 2024-9-7 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66136021&amp;ptid=2198385" target="_blank">pzk 发表于 2024-9-7 11:11</a>
+……？不懂破防的点，德裔爱尔兰裔意裔法裔啥的之前不也都这么说吗？</blockquote>
+以国家/民族专指和洲际泛指是有区别的，Irish American、Algerian American 这样的称呼只是单纯指出祖辈血缘，一般英文语境下比较中性。但是美国对「外族」惯用洲别通称，不管是 Chinese、Japanese、Korean 一律叫 Asian American，黑人更是统称 African American，拉美人统称 Latino。主流语境很少直接叫 Uruguayan American、Nigerian American，但却从来不用 European 统称白人。
+
+隐含的逻辑就是白人是正宗本土美国人，而其他种族都是外族，要加一个有 alienation 意味的洲别泛称。一旦提 European American 其实就指出了美国白人也是外族，违背了美国核心民族的认同构建。
+
+*****
+
+####  a.r.i.a  
+##### 67#       发表于 2024-9-7 18:19
+
+这下真的EA—challenge everything了
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 68#       发表于 2024-9-7 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135918&amp;ptid=2198385" target="_blank">荻花题叶 发表于 2024-9-7 10:56</a>
+被人发现身份证不是310开头，收件地址在彭浦新村？
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+那不一样，不是310自己知道，破防不是这个破法
+是确信自己是310，但去办业务的时候被指出是假 证那种，就嗷的一声原地崩溃了
+

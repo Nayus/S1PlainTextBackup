@@ -388,3 +388,15 @@ Gay Or European<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 本来就是，没有英国人哪有现在的美国<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  orz100  
+##### 42#       发表于 2024-9-7 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66136021&amp;ptid=2198385" target="_blank">pzk 发表于 2024-9-7 11:11</a>
+……？不懂破防的点，德裔爱尔兰裔意裔法裔啥的之前不也都这么说吗？</blockquote>
+我也没太懂，想了一下大概是老白男群体自诩正统原初美国人，本身就是美国人一词的标准解析。现在突然被人冠上欧裔的前缀跟你们这些有色攀附人种一样被打上分类标签。从此可不就破防了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

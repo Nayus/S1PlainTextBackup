@@ -1932,3 +1932,13 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 可惜打了两小时还没上金 最接近的是147<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  KBAC  
+##### 5127#       发表于 2024-9-7 12:24
+
+三代的美工真的是顾头不顾腚，大型跑广场一直都是bug最多的，像什么浮空屏幕、镜像贴图、谜之空气墙、放置物卡死人之类的bug一大堆，以前尚兴市大型跑广场的电车铃音效就有bug，这次连电车铃连带电车驶过的声音全都没了。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

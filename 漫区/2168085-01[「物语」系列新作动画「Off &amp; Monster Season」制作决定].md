@@ -2650,3 +2650,24 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  Tachikoma88  
+##### 850#       发表于 2024-9-7 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137280&amp;ptid=2168085" target="_blank">傘木希美 发表于 2024-9-7 14:12</a>
+
+说来漏油有没有推荐的mad
+
+今天翻收藏夹时突然找到以前存的
+
+【【MAD】忍酱邦邦物语【物语系列】-哔哩哔哩】  ...</blockquote>
+新房45°  BV13V411Z7ac
+
+【伤物语】只是一封极美的情书  BV1F4411V7Ub
+
+AMV 王牌情人 // Ace of Hearts// TOS 2020  BV1yz4y1z7JL
+
+【静止画MAD】过呼吸【伤物语】  BV1mr4y1r7Zi 
+

@@ -10027,3 +10027,41 @@ A:這是我們收到最多的問題之一，至少有一個角色會有確定的
 界轨发售前准备复习下黎轨，NISA这PC移植做得真不错，画面比主机板提升了不少 ...</blockquote>
 跟云豹的有差别ma? 之前不太能忍受场景建筑物锯齿的闪烁问题
 
+
+*****
+
+####  卢迪克  
+##### 3963#       发表于 2024-9-7 14:23
+
+<blockquote>一步成诗 发表于 2024-9-7 14:09
+虽然有点为难你法，但是看了下试玩的火箭发射部分是不是太寒酸了</blockquote>
+法社：没钱，凑合得了
+
+<img src="https://img.saraba1st.com/forum/202409/07/142314j79ntrztenttbbny.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240907_142223.jpg</strong> (97.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-7 14:23 上传
+
+<img src="https://img.saraba1st.com/forum/202409/07/142320n9g9d3ngumwdg7g8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240907_142123.jpg</strong> (89.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2024-9-7 14:23 上传
+
+*****
+
+####  ravend233  
+##### 3964#       发表于 2024-9-7 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137272&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-7 14:11</a>
+
+跟云豹的有差别ma? 之前不太能忍受场景建筑物锯齿的闪烁问题</blockquote>
+NISA的加了很多提升画质的调整，支持HDR等特性
+

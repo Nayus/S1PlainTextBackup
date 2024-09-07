@@ -2744,3 +2744,21 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 视觉图垃圾君和动画pv里的完全不像一个人
 
+
+*****
+
+####  rainsheep  
+##### 858#       发表于 2024-9-7 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140157&amp;ptid=2168085" target="_blank">oi99o 发表于 2024-9-7 21:32</a>
+
+草</blockquote>
+这么帅，向伤物语看齐了
+
+*****
+
+####  0aleph37  
+##### 859#       发表于 2024-9-7 22:09
+
+只有视觉图帅，PV里和花物语是一个造型水准吧
+

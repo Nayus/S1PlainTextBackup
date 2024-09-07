@@ -3819,3 +3819,33 @@ Setlist（-初心公演- 名古屋クラブクアトロ公演）：
 
 小美野居然没来推销那b礼包
 
+
+*****
+
+####  oznark  
+##### 6365#       发表于 2024-9-7 22:06
+
+<img src="https://img.saraba1st.com/forum/202409/07/070620fugs9qfu70y10vsv.png" referrerpolicy="no-referrer">
+
+<strong>L_H[UOX`]74A09LV}JKK4V8.png</strong> (678.42 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 22:06 上传
+
+<img src="https://img.saraba1st.com/forum/202409/07/070624ejuy0ayzpcj03wzk.png" referrerpolicy="no-referrer">
+
+<strong>Q`H[WM}KYRE@)]ZVYPVQZ%8.png</strong> (386.6 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 22:06 上传
+
+
+*****
+
+####  格雷殿下  
+##### 6366#       发表于 2024-9-7 22:11
+
+是我最喜欢的尖塔第四强者吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

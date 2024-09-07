@@ -10113,3 +10113,28 @@ NISA的加了很多提升画质的调整，支持HDR等特性
 主要宣传多次提到还以为是什么重头戏，结不仅放在序章还这么寒酸</blockquote>
 终章还有一次火箭射高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 3970#       发表于 2024-9-7 14:57
+
+怎么又是谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  c0x9z8  
+##### 3971#       发表于 2024-9-7 14:58
+
+还没发售坛友们就讨论了100页了，比大多数游戏都猛~<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ggyy0088  
+##### 3972#       发表于 2024-9-7 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137614&amp;ptid=2160194" target="_blank">c0x9z8 发表于 2024-9-7 14:58</a>
+还没发售坛友们就讨论了100页了，比大多数游戏都猛~</blockquote>
+老楼可是没有情报硬聊了2000层
+

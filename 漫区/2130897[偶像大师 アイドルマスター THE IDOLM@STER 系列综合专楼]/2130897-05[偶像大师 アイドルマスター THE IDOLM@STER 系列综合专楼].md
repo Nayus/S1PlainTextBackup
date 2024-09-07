@@ -3496,3 +3496,53 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 06. L.U.V // 薄井友里（＊新曲）
 
+
+*****
+
+####  BQlin  
+##### 6331#       发表于 2024-9-7 14:58
+
+问题来了，这组会有两首新歌吗，现在就china出了新曲，另外两位被全体曲占了位置
+
+*****
+
+####  北条早苗  
+##### 6332#       发表于 2024-9-7 14:59
+
+每个人都有solo2吧，还没实装
+
+*****
+
+####  BQlin  
+##### 6333#       发表于 2024-9-7 15:02
+
+主要是solo3，就算拿生日曲凑数那姐姐也是要少一首
+
+不知道是怎么安排
+
+
+*****
+
+####  BQlin  
+##### 6334#       发表于 2024-9-7 15:04
+
+还真拿生日曲顶上了
+
+表情管理是个大问题
+
+*****
+
+####  Serious  
+##### 6335#       发表于 2024-9-7 15:05
+
+我得了莉莉娅唱歌就想笑的病<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天羽木子  
+##### 6336#       发表于 2024-9-7 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">是我对万南产能太抱有信心了
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

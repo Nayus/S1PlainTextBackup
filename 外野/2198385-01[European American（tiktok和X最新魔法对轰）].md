@@ -549,3 +549,32 @@ Native American 更常用吧
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  芦-中-人  
+##### 58#       发表于 2024-9-7 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135195&amp;ptid=2198385" target="_blank">不努 发表于 2024-9-7 09:03</a>
+呼应African American和Asian American
+对仗很工整啊</blockquote>
+人家aa你ea啊
+
+*****
+
+####  芦-中-人  
+##### 59#       发表于 2024-9-7 17:41
+
+很好，还能挑起欧洲的矛盾，马上欧洲人就要出来说我们和美洲暴发户土老帽才不一样呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+快进到第二阶段
+
+
+*****
+
+####  芦-中-人  
+##### 60#       发表于 2024-9-7 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135364&amp;ptid=2198385" target="_blank">pyfhhh 发表于 2024-9-7 09:30</a>
+是不是可以理解为，对广西人称呼他们为越南🐒的后裔？</blockquote>
+是柬埔寨人说越南人你们就是中国人的儿子
+

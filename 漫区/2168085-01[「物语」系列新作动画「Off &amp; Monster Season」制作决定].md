@@ -2798,3 +2798,13 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 海报属于照骗了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  戦場ヶ原ひたぎ  
+##### 864#       发表于 2024-9-7 23:46
+
+什么，阿良良木君的海报成为了大家议论的中心，普通的震惊倒还好，楼上燕尾辫的小姑娘竟然说到“骗”这个字，这可是那个欺诈师的专用词汇，讲到可敬可爱可亲对谁都无比温柔的本作男主角，阿良良木君的头上，这就不可以坐视不管了。
+
+立刻修改你的用词，不然的话，哼哼，你的燕尾辫见不到明天的太阳了。<img src="https://static.saraba1st.com/image/smiley/carton2017/146.png" referrerpolicy="no-referrer">
+

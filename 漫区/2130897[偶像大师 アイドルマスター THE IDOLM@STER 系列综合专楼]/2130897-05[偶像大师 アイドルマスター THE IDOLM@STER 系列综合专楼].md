@@ -3403,3 +3403,57 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 编辑zsbdzsbd
 
+
+*****
+
+####  馬斯特壺  
+##### 6319#       发表于 2024-9-7 14:39
+
+白线反正游戏live都在破音，无所谓啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 6320#       发表于 2024-9-7 14:39
+
+唱得一脸痛苦
+
+
+*****
+
+####  北条早苗  
+##### 6321#       发表于 2024-9-7 14:39
+
+白线意料之中<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天羽木子  
+##### 6322#       发表于 2024-9-7 14:41
+
+怎么形容呢，虽然破音了，感觉莫名还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  Seeley  
+##### 6323#       发表于 2024-9-7 14:42
+
+大概是唱的比较拼命吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  馬斯特壺  
+##### 6324#       发表于 2024-9-7 14:43
+
+代哥，我富婆棒呢
+
+
+*****
+
+####  BQlin  
+##### 6325#       发表于 2024-9-7 14:45
+
+这个不错啊，还会和台下互动
+

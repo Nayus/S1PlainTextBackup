@@ -791,3 +791,18 @@ amigo都是好不好<img src="https://static.saraba1st.com/image/smiley/face2017
 我就很喜欢问美国来的同事他们是哪里人。一般都会答哪个州。然后我一般会追问，Where are you originally f ...</blockquote>
 然后他们什么反应？
 
+
+*****
+
+####  riczxc  
+##### 81#       发表于 2024-9-7 19:39
+
+ 本帖最后由 riczxc 于 2024-9-7 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139273&amp;ptid=2198385" target="_blank">中国科学院 发表于 2024-9-7 19:24</a>
+
+然后他们什么反应？</blockquote>
+
+暂时还好，有族谱的还会告诉我，他父亲那边是从西里西亚来的德国人，他妈那边有斯洛伐克人，也不知算不算奥匈。然后曾曾祖父是最后一代讲德语的（后来就被迫学英语了）
+
+有些就笼统告诉我是英国过来的，但也有本地人血统，因为有墨西哥的混血。
+

@@ -10247,3 +10247,24 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  ravend233  
+##### 3984#       发表于 2024-9-7 19:41
+
+上贴吧看了眼，属实闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  Aeons  
+##### 3985#       发表于 2024-9-7 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139404&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-7 19:41</a>
+上贴吧看了眼，属实闹麻了
+
+—— 来自 鹅球 v3.0.0.82-alpha</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至串子都来了
+

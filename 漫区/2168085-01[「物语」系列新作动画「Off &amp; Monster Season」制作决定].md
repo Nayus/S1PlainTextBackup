@@ -2638,3 +2638,15 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 改口这段看书的时候没啥感觉，看动画总觉得像个中二病入门，笑死
 
+
+*****
+
+####  傘木希美  
+##### 849#       发表于 2024-9-7 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">说来漏油有没有推荐的mad
+今天翻收藏夹时突然找到以前存的
+【【MAD】忍酱邦邦物语【物语系列】-哔哩哔哩】 https://b23.tv/Yrv520S
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

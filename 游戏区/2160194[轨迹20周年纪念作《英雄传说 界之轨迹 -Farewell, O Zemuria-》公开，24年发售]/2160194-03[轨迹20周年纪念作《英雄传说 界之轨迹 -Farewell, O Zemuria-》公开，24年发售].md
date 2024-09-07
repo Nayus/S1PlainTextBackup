@@ -10008,3 +10008,22 @@ A:這是我們收到最多的問題之一，至少有一個角色會有確定的
 
 界轨发售前准备复习下黎轨，NISA这PC移植做得真不错，画面比主机板提升了不少
 
+
+*****
+
+####  一步成诗  
+##### 3961#       发表于 2024-9-7 14:09
+
+虽然有点为难你法，但是看了下试玩的火箭发射部分是不是太寒酸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  whzfjk  
+##### 3962#       发表于 2024-9-7 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66136723&amp;ptid=2160194" target="_blank">andychen 发表于 2024-9-7 12:43</a>
+
+界轨发售前准备复习下黎轨，NISA这PC移植做得真不错，画面比主机板提升了不少 ...</blockquote>
+跟云豹的有差别ma? 之前不太能忍受场景建筑物锯齿的闪烁问题
+

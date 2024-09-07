@@ -1966,3 +1966,45 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 感谢金工大润，第一次一本
 
+
+*****
+
+####  秋月孝三  
+##### 5131#       发表于 2024-9-7 14:04
+
+大会场长得真像油田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  KBAC  
+##### 5132#       发表于 2024-9-7 14:04
+
+160，一本了
+这次比较怕野排涨潮出复数蛇鱼和锅盖，蛇鱼引不走就变成墙角惨案。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  KBAC  
+##### 5133#       发表于 2024-9-7 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137226&amp;ptid=2150634" target="_blank">秋月孝三 发表于 2024-9-7 14:04</a>
+大会场长得真像油田
+
+—— 来自 OPPO PDEM30, Android 13上的 S1Next-鹅版 v3.0.0.81-alpha ...</blockquote>
+哈哈我刚想说，真的是一眼油田青春版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Ryuuseigun  
+##### 5134#       发表于 2024-9-7 14:14
+
+这次的大润地图史上最简单，上窜下跳该给位置的地方都给了，堵在死路了也有逃命的机会（当然也有可能是投弹器的关系）
+这不是会做地图吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

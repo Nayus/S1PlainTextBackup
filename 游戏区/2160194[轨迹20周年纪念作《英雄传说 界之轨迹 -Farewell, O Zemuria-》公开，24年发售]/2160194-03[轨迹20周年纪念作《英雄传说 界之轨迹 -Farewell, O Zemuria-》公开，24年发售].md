@@ -10328,3 +10328,16 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 隔壁暗喻幻想预售甚至还不如界轨呢</blockquote>
 预售还不如界轨，那岂不是超级无敌大翻车预定<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  悠悠你心  
+##### 3992#       发表于 2024-9-7 21:59
+
+ 本帖最后由 悠悠你心 于 2024-9-7 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140282&amp;ptid=2160194" target="_blank">smdzh2 发表于 2024-9-7 21:46</a>
+预售还不如界轨，那岂不是超级无敌大翻车预定</blockquote>
+不至于吧，人家是全球多平台同步，照总销量再翻车也不会低到哪里去，你法还是别比了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+

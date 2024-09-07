@@ -677,3 +677,58 @@ Native American 更常用吧
 —— 来自 鹅球 v3.1.88.3</blockquote>
 美洲本地人，没毛病
 
+
+*****
+
+####  oznark  
+##### 70#       发表于 2024-9-7 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138163&amp;ptid=2198385" target="_blank">买码！注册！ 发表于 2024-9-7 01:33</a>
+其实是 American Indian</blockquote>
+美国人自己觉得把印第安人和印度人混成一个说法带歧视，就改成Native American了。
+
+主要是早年间美国人聊天说Indian的时候，有很多人会用食指指自己额头或者在后脑勺比三个手指头的方式用来区分
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  荡寇将军张嶷  
+##### 71#       发表于 2024-9-7 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138124&amp;ptid=2198385" target="_blank">星㐅影 发表于 2024-9-7 16:25</a>
+
+有个对美洲土著印第安人的称呼：local America
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+土著的话得叫native，local一般就是自己当地出生长大。
+
+
+*****
+
+####  saverok  
+##### 72#       发表于 2024-9-7 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135269&amp;ptid=2198385" target="_blank">moliyumi 发表于 2024-9-7 09:18</a>
+那么 美裔美国人 去哪里了呢</blockquote>
+amigo都是好不好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  喧嚣的风酱  
+##### 73#       发表于 2024-9-7 18:54
+
+美国是各个民族移民的美国，不仅仅是欧裔美国人的美国<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  荡寇将军张嶷  
+##### 74#       发表于 2024-9-7 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139047&amp;ptid=2198385" target="_blank">oznark 发表于 2024-9-7 18:47</a>
+
+美国人自己觉得把印第安人和印度人混成一个说法带歧视，就改成Native American了。
+
+主要是早年间美国人 ...</blockquote>
+哥伦布这混球+死不认错的固执狂<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
+

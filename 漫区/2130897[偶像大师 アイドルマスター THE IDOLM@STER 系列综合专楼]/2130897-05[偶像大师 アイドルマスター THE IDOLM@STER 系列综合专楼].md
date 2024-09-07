@@ -3740,3 +3740,19 @@ China的solo3！
 
 新歌都是有的,结果卡池端出这么一坨糊弄玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  magicc  
+##### 6361#       发表于 2024-9-7 18:46
+
+曲数才是最不用担心的吧，当然司马万代想不想给你抽就是另外一回事了
+
+
+*****
+
+####  Serious  
+##### 6362#       发表于 2024-9-7 18:53
+
+伊藤本音怎么样的，这还原度太高了
+

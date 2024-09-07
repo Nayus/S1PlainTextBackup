@@ -1924,3 +1924,11 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 因为太简单了所以都冲得太猛，结果团灭了
 
+
+*****
+
+####  maomaoying  
+##### 5126#       发表于 2024-9-7 12:16
+
+可惜打了两小时还没上金 最接近的是147<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+

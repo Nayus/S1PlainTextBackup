@@ -2835,3 +2835,20 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 — from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
 
+
+*****
+
+####  戦場ヶ原ひたぎ  
+##### 868#       发表于 2024-9-8 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141697&amp;ptid=2168085" target="_blank">浅川雏羽 发表于 2024-9-8 00:52</a>
+
+戏服怎么时间迟滞叫回阿良良木君了，你也是阿良良木了口牙
+
+论坛助手,iPhone ...</blockquote>
+不要移注意力，讲一些TV版的观众不知道的事情，他们的印象还停留在前面的物语系列十周年LIVE、阿良良木君终于要变成大学生的时刻。
+
+一下子进展到未来的“时间”，会Time slip 到小说原作的世界去的，你看老仓同学还读大学呢，啊不妙——
+
+太阳都升起两小时了，可惜
+

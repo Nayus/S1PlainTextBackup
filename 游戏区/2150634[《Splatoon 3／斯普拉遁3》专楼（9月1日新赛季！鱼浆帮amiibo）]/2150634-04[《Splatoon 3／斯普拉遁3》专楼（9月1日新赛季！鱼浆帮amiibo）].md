@@ -1904,3 +1904,15 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 本次最大敌人是柱子，碰到三刷这种事故编成最后就是满图柱子清不掉
 
+
+*****
+
+####  Humpy  
+##### 5124#       发表于 2024-9-7 11:08
+
+最爽的一次金工<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这么爽的打工应该早点端上来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

@@ -5637,3 +5637,11 @@ live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓�
 
 李世林和青木两个wsd嫡系肯定是一开始就定的，但李世林唱功一没有青木强二没有羊的特色，吉他方面又没有青木的技术当不了主音，只能给个纯节奏吉他位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星天观测  
+##### 22695#       发表于 2024-9-7 11:15
+
+确实，真让lsl上kb位了那肯定要有c的时候，这下就没法混了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

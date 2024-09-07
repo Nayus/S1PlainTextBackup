@@ -10288,3 +10288,11 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 隔壁暗喻幻想预售甚至还不如界轨呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  里恩  
+##### 3988#       发表于 2024-9-7 20:29
+
+当年上PSP救了法老控，这恩情要还到PS6吧
+

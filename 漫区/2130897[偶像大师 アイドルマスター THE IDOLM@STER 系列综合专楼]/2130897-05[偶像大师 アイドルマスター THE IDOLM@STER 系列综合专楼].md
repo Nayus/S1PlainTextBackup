@@ -3373,3 +3373,33 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 这三位角色音意外地还挺稳得住
 
+
+*****
+
+####  joshua1990  
+##### 6315#       发表于 2024-9-7 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">等会白线炸定了，夹角色音唱歌看得出贼难顶
+
+*****
+
+####  BQlin  
+##### 6316#       发表于 2024-9-7 14:28
+
+好像有个忘词了
+
+*****
+
+####  joshua1990  
+##### 6317#       发表于 2024-9-7 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">代哥字幕都标错人了，不上心呀
+
+
+*****
+
+####  Seeley  
+##### 6318#       发表于 2024-9-7 14:36
+
+编辑zsbdzsbd
+

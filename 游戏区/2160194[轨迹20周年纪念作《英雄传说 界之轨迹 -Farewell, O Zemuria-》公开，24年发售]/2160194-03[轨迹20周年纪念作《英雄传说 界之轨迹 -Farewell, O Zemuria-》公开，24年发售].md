@@ -10065,3 +10065,32 @@ A:這是我們收到最多的問題之一，至少有一個角色會有確定的
 跟云豹的有差别ma? 之前不太能忍受场景建筑物锯齿的闪烁问题</blockquote>
 NISA的加了很多提升画质的调整，支持HDR等特性
 
+
+*****
+
+####  ravend233  
+##### 3965#       发表于 2024-9-7 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美术，概念设计都没人了，还有技术层面导致做不好风景，丢火箭这种活观感肯定好不到拿去
+
+
+*****
+
+####  卢迪克  
+##### 3966#       发表于 2024-9-7 14:31
+
+ 本帖最后由 卢迪克 于 2024-9-7 14:35 编辑 
+
+丢火箭是最省的，有钱直接学其他rpg整台宇宙飞船载你飞出去。
+
+不过这种一般有打完最终boss后回程飞船坠毁的片段
+
+*****
+
+####  ravend233  
+##### 3967#       发表于 2024-9-7 14:35
+
+主要是这个火箭发射场美术设计太寒酸了吧，发射架也就是个简单的铁架子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火箭本身也缺乏细节
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

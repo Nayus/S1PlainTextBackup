@@ -2671,3 +2671,19 @@ AMV 王牌情人 // Ace of Hearts// TOS 2020  BV1yz4y1z7JL
 
 【静止画MAD】过呼吸【伤物语】  BV1mr4y1r7Zi 
 
+
+*****
+
+####  傘木希美  
+##### 851#       发表于 2024-9-7 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137353&amp;ptid=2168085" target="_blank">Tachikoma88 发表于 2024-9-7 14:20</a>
+新房45°  BV13V411Z7ac
+
+【伤物语】只是一封极美的情书  BV1F4411V7Ub
+
+AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
+多谢多谢<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

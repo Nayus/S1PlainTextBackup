@@ -10356,3 +10356,18 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 多平台也救不了多少
 
+
+*****
+
+####  闪熊鼠  
+##### 3994#       发表于 2024-9-7 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139610&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-9-7 20:17</a>
+
+日本跟着PS走真的是完全没前途啊
+
+隔壁暗喻幻想预售甚至还不如界轨呢</blockquote>
+暗喻幻想现在来看还早吧
+
+不是应该发售前一个月再看吗
+

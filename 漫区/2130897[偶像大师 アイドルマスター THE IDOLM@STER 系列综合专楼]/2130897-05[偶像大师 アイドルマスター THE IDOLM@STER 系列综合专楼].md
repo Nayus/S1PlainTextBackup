@@ -3630,3 +3630,19 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 花岩这唱功感觉有点问题
 
+
+*****
+
+####  Anatoly  
+##### 6347#       发表于 2024-9-7 15:40
+
+花岩这种录音室都只能大白嗓的那不是一定有问题（
+
+
+*****
+
+####  joshua1990  
+##### 6348#       发表于 2024-9-7 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">高情商的说，全是感情，没有技巧
+

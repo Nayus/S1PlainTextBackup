@@ -10196,3 +10196,12 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">老葱
 
+
+*****
+
+####  新世界的派蒙  
+##### 3978#       发表于 2024-9-7 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137670&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-7 15:06</a></blockquote>
+葱头为啥这么多技能，黎恩技能会是剧情解锁么
+

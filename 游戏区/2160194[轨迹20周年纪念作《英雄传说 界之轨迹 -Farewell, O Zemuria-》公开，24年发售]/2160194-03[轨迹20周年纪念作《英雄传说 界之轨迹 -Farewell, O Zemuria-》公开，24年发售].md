@@ -10278,3 +10278,13 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  椎名mahuyo  
+##### 3987#       发表于 2024-9-7 20:17
+
+日本跟着PS走真的是完全没前途啊
+
+隔壁暗喻幻想预售甚至还不如界轨呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -681,3 +681,14 @@ eupd这种傻逼公司怎么还没似啊
 
 睡觉前顺手看一眼，居然捡漏一张看台票，不知道谁放了两张出来
 
+
+*****
+
+####  starring  
+##### 21015#       发表于 2024-9-7 20:19
+
+sayu要出两首原创曲
+<img src="https://p.sda1.dev/19/2c517ba07d756cff0c3044635200f29f/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

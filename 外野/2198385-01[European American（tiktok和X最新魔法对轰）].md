@@ -433,3 +433,23 @@ Gay Or European<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 感觉像互联网域名后缀，cn，jp，ru哪些，美国是默认省略的，现在也要加上us了
 
+
+*****
+
+####  昵称怎么起  
+##### 46#       发表于 2024-9-7 15:58
+
+ 本帖最后由 昵称怎么起 于 2024-9-7 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135350&amp;ptid=2198385" target="_blank">基本农田 发表于 2024-9-7 09:29</a>
+
+所以你意思是一样的咯</blockquote>
+比起阿米，乾隆也不差啊。
+
+
+*****
+
+####  frankCC  
+##### 47#       发表于 2024-9-7 16:02
+
+乔峰有一天知道了自己其实叫萧峰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

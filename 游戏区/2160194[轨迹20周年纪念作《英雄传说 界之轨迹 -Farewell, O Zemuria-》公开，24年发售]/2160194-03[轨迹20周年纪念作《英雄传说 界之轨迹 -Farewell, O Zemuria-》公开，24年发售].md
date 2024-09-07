@@ -10177,3 +10177,14 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 不过RTX HDR在很多地方也非常违和，这游戏的二次元风格本来就不适合直接转换，最好还是SDR游玩
 
+
+*****
+
+####  一步成诗  
+##### 3976#       发表于 2024-9-7 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137579&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-7 14:54</a>
+
+终章还有一次火箭射高达</blockquote>
+再来一次就没新鲜感冲击力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

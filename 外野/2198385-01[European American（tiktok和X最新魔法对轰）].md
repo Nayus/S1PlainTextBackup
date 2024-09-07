@@ -732,3 +732,35 @@ amigo都是好不好<img src="https://static.saraba1st.com/image/smiley/face2017
 主要是早年间美国人 ...</blockquote>
 哥伦布这混球+死不认错的固执狂<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  乔伊  
+##### 75#       发表于 2024-9-7 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135812&amp;ptid=2198385" target="_blank">绚烂航迹云 发表于 2024-9-7 10:42</a>
+
+哪有本土美国人啊，美国人中占多数的都是欧洲移民，英国的法国的德国的意大利的爱尔兰的，叫欧洲裔美国人非 ...</blockquote>
+南斯拉夫裔细分法案 on the way <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  买码！注册！  
+##### 76#       发表于 2024-9-7 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139047&amp;ptid=2198385" target="_blank">oznark 发表于 2024-9-7 18:47</a>
+美国人自己觉得把印第安人和印度人混成一个说法带歧视，就改成Native American了。
+
+主要是早年间美国人 ...</blockquote>
+你这么说的时候，显然忽略了 Alaska Native、Native Hawaiian，当然这对于我们来说无关痛痒
+
+*****
+
+####  转生巨魔  
+##### 77#       发表于 2024-9-7 19:05
+
+这个喷不了，这是真欧洲中心主义
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

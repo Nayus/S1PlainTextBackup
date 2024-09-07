@@ -519,3 +519,25 @@ lccb良被削了，三破或能白嫖40狂气</blockquote>
 
 对比下玛玛的振翅，好像确实强了不少，虽然不用侵蚀还是拼点苦手...其实我光看卡面就觉得这卡值得拥有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  salic428  
+##### 870#       发表于 2024-9-7 19:03
+
+搬一个[有意思的讨论](https://redd.it/1fb1qpc)，关于目前人格技能的色组
+
+<img src="https://img.saraba1st.com/forum/202409/07/185632ntx954unbbfsgusg.png" referrerpolicy="no-referrer">
+
+<strong>Looking at the distribution of sin combinations in IDs.png</strong> (567.88 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 18:56 上传
+
+特别奇怪，最多组合的是暴食怠惰忧郁，但我自己下牢的时候经常感觉产生不了几个暴食（点名踢掉花箱的沉沦队和剑契呼吸队）
+
+看了下名单，有W箱7箱十默圣愚宝管家玛G奥二虫初始虫，看来是我玩震颤充能玩少了导致的（）
+
+不过个人感觉刚需暴食的E.G.O.本来也不多，道中常用的貌似也就狐雨和金苹果（优先级远不如盲目液袋这些刚需忧郁的）
+

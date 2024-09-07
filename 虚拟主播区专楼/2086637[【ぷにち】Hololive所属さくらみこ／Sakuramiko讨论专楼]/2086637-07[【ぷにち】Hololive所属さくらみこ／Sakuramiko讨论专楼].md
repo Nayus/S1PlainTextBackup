@@ -8420,3 +8420,40 @@ sololive的七字母大概一首唱miko的曲子一首唱星街的曲子，大�
 这3年以来最破产的一个月</blockquote>
 阿泡爆了多少米<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，量力而行啊
 
+
+*****
+
+####  holoan  
+##### 9590#         楼主| 发表于 2024-9-7 23:48
+
+<img src="https://img.saraba1st.com/forum/202409/07/234725yadnoqlwrzqhlwdw.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="800" zoomfile="https://img.saraba1st.com/forum/202409/07/234725yadnoqlwrzqhlwdw.png">
+
+<strong>image.png</strong> (110.82 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 23:47 上传
+
+喷了，我都没印象了这帮切片师硬是把以前的视频挖出来了
+
+*****
+
+####  holoan  
+##### 9591#         楼主| 发表于 2024-9-8 00:30
+
+<img src="https://img.saraba1st.com/forum/202409/08/002941xrk1lnlxsdigkdpx.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="570" zoomfile="https://img.saraba1st.com/forum/202409/08/002941xrk1lnlxsdigkdpx.png">
+
+<strong>image.png</strong> (12.34 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 00:29 上传
+
+<img src="https://img.saraba1st.com/forum/202409/08/003006ycbra7z5e9rrbzmb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.36 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 00:30 上传
+

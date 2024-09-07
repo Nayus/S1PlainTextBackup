@@ -10213,3 +10213,20 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不知道啊，给葱头的补偿吧
 
+
+*****
+
+####  一步成诗  
+##### 3980#       发表于 2024-9-7 16:25
+
+怎么回事啊，阿葱待遇那么差，第一次有3d建模，还被玩了十几年的梗，多两个技能也要吵吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无动于衷  
+##### 3981#       发表于 2024-9-7 16:27
+
+想想闪4客串的直接锁死装备回路
+
+就这屁大点事就打起来，这帮人就这点出息
+

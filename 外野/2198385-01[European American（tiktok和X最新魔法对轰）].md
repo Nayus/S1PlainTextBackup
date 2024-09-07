@@ -453,3 +453,34 @@ Gay Or European<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 乔峰有一天知道了自己其实叫萧峰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星㐅影  
+##### 48#       发表于 2024-9-7 16:25
+
+有个对美洲土著印第安人的称呼：local America<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  wenhaowu  
+##### 49#       发表于 2024-9-7 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138124&amp;ptid=2198385" target="_blank">星㐅影 发表于 2024-9-7 16:25</a>
+有个对美洲土著印第安人的称呼：local America
+
+—— 来自 鹅球 v3.1.88.3</blockquote>
+Native American 更常用吧
+
+— from OnePlus CPH2551, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  买码！注册！  
+##### 50#       发表于 2024-9-7 16:33
+
+其实是 American Indian
+

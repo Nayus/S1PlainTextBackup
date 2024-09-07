@@ -820,3 +820,12 @@ Nigger不能nigger变出African American
 
 既然 African American 和 Asian American都有了， European American 的诞生也只是顺水推舟的时间问题
 
+
+*****
+
+####  logiccat  
+##### 83#       发表于 2024-9-7 21:37
+
+B站链接点进去，旁边推荐给了我这个，点进去一看，holyshit……B站真是懂我！
+[https://www.bilibili.com/video/B ... ommend_more_video.0](https://www.bilibili.com/video/BV1Wy411h78c/?spm_id_from=333.788.recommend_more_video.0)<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

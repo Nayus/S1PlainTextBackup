@@ -10304,3 +10304,27 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 暗喻幻想卖相这么差的确有些跌眼镜，我甚至觉得最后要和SMT5V一桌，还比不上P3R
 
+
+*****
+
+####  无动于衷  
+##### 3990#       发表于 2024-9-7 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138179&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-7 16:35</a>
+
+最离谱的难道不是给人偶弄成非战斗单位了吗，不懂怎么想的</blockquote>
+感觉没想好拉碧丝的战斗模组，沿用创的斧子又很奇怪
+
+不过也不是以后不能补（通过DLC）
+
+*****
+
+####  smdzh2  
+##### 3991#       发表于 2024-9-7 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139610&amp;ptid=2160194" target="_blank">椎名mahuyo 发表于 2024-9-7 21:17</a>
+日本跟着PS走真的是完全没前途啊
+
+隔壁暗喻幻想预售甚至还不如界轨呢</blockquote>
+预售还不如界轨，那岂不是超级无敌大翻车预定<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+

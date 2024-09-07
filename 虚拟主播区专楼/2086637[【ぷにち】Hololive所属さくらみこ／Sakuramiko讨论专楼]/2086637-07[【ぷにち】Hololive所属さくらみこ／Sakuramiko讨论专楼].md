@@ -8394,3 +8394,29 @@ sololive的七字母大概一首唱miko的曲子一首唱星街的曲子，大�
 
 这3年以来最破产的一个月
 
+
+*****
+
+####  holoan  
+##### 9588#         楼主| 发表于 2024-9-7 21:19
+
+<img src="https://img.saraba1st.com/forum/202409/07/211943sc5o3yfop9f3p5fj.png" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" width="588" zoomfile="https://img.saraba1st.com/forum/202409/07/211943sc5o3yfop9f3p5fj.png">
+
+<strong>image.png</strong> (17.79 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 21:19 上传
+
+*****
+
+####  rs5621  
+##### 9589#       发表于 2024-9-7 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139937&amp;ptid=2086637" target="_blank">holoan 发表于 2024-9-7 21:06</a>
+
+破产的35P钱包
+
+这3年以来最破产的一个月</blockquote>
+阿泡爆了多少米<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，量力而行啊
+

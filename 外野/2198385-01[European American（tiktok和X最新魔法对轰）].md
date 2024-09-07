@@ -1052,3 +1052,49 @@ What kind of American are you.jpg
 
 European American 甚至特意标明不包含 Latino。或者更易懂的，是北欧和南欧的关系
 
+
+*****
+
+####  wszweill  
+##### 104#       发表于 2024-9-8 01:47
+
+ 本帖最后由 wszweill 于 2024-9-7 12:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138203&amp;ptid=2198385" target="_blank">TTAA 发表于 2024-9-7 03:41</a>
+
+原来他们以前没有这种称呼？？像什么爱尔兰裔、德裔、英裔，总要有个统称吧，难道美国老白男都觉得自己土生 ...</blockquote>
+不如说一般统计里面只有黑人是单列的African  American（应该还有Native American，忘了主流的表里怎么算了），比如亚裔就是 Asian，不叫Asian American，拉丁裔就是Hispanic，不叫Hispanic American。参考第一页的表就行了。
+
+African American虽然 源自平权运动，但是我觉得不少劳保对这个XX American 用法肯定还是贬义用法 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芦-中-人  
+##### 105#       发表于 2024-9-8 01:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141948&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:40</a>
+你什么时候觉得拉丁裔不自认是白人？
+
+拉丁裔，又译为“拉美裔，西班牙语裔，西语裔”，美国拉丁裔全称西 ...</blockquote>
+语言怎么就成了肤色了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+即便是美洲原住民界的殖人也是被称为“克里奥尔“，也只跟语言有关，
+连当地的殖人都不自称白人，更别提大多数当地百姓并不是殖人
+
+*****
+
+####  苦瓜柠檬茶  
+##### 106#       发表于 2024-9-8 01:51
+
+好端端的一个美洲能整整出北美洲和拉丁美洲的划分，本身是白人内部种族主义歧视的体现
+
+但这不代表拉丁美洲的“白人”们不自认是白人。或者反过来说，正因为拉丁裔自认是白人，才让拉丁裔没跟nigger 混在一起
+
+
+*****
+
+####  苦瓜柠檬茶  
+##### 107#       发表于 2024-9-8 01:56
+
+European American 如果能推广开来
+
+以后也能整出个 European Australian
+

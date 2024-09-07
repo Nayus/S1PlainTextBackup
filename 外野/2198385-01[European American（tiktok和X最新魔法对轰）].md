@@ -887,3 +887,13 @@ https://www.bilibili.com/vi ...</blockquote>
 哈哈前阵子刷到一个女的被白楠这么问了还被学了中国口音以后反问回去，然后开始很夸张地学鸡叫一样的伦敦 ...</blockquote>
 其实我也没有恶意，但是在流动人口多的城市长大，默认没有本地人所以肯定会问这么一句。
 
+
+*****
+
+####  tlygo54  
+##### 89#         楼主| 发表于 2024-9-7 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135809&amp;ptid=2198385" target="_blank">barry.allen 发表于 2024-9-7 10:42</a>
+其实美洲本地人+西班牙混血e的后拉丁裔才是美国真正隐藏的超大族裔，虽然政界曝光量不是很明显，但美国的确 ...</blockquote>
+毕竟是上百年「阿兹特克人向北移民」的自然延续，什么西进运动比起来就是小卡拉米<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

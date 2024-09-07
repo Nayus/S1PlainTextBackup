@@ -2788,3 +2788,13 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 牢历：孩子们，我回来了
 
+
+*****
+
+####  Sliurus  
+##### 863#       发表于 2024-9-7 23:17
+
+有一说一，除了带名字的那一幕大头照，远看还是挺帅的，比花物语那不男不女的造型好
+
+海报属于照骗了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+

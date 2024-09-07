@@ -5661,3 +5661,19 @@ live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓�
 
 李世林负责可爱就行了
 
+
+*****
+
+####  星天观测  
+##### 22698#       发表于 2024-9-7 22:14
+
+鸡要上lisani武道馆第二天
+
+<img src="https://img.saraba1st.com/forum/202409/07/221417uf7hhoiij1fpii7o.png" referrerpolicy="no-referrer">
+
+<strong>Q@Y@L4)3]TO[C58]P$[[_`M.png</strong> (147.32 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 22:14 上传
+

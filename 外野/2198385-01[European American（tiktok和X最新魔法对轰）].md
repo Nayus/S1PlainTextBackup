@@ -829,3 +829,16 @@ Nigger不能nigger变出African American
 B站链接点进去，旁边推荐给了我这个，点进去一看，holyshit……B站真是懂我！
 [https://www.bilibili.com/video/B ... ommend_more_video.0](https://www.bilibili.com/video/BV1Wy411h78c/?spm_id_from=333.788.recommend_more_video.0)<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Hydro  
+##### 84#       发表于 2024-9-7 22:20
+
+之前突然意识到个问题，非裔美国人到底是什么民族的，然后查了一下发现居然有"美利坚民族"这个说法
+
+基本上是基于殖民地和独立战争时期生活而形成的民族意识
+ <blockquote>1607年，一百多个英国殖民者在北美洲南端的东部海岸登陆，在詹姆斯河上游建立他们称作詹姆斯敦的据点。这些移民刚到北美的时候， 人地两生，衣食无着。在印第安人的帮助下，他们学会了种植当地的农作物。但是，当他们在北美大陆站稳脚跟后。英国在东起大西洋沿岸，西至阿巴拉契亚山脉的狭长地带建立了13个英属北美殖民地。殖民地的居民来自欧洲各国，起初以英格兰人最多，但德意志人和爱尔兰人后来居上 [1] ，人数超越了英格兰人。
+
+美国独立战争后，正是这种共同地域、共同经济生活、共同的信仰、共同的文化，促成了北美殖民地人民共同的心理特征，从而使他们形成为美利坚民族。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

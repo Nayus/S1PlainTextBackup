@@ -2762,3 +2762,21 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 只有视觉图帅，PV里和花物语是一个造型水准吧
 
+
+*****
+
+####  浅川雏羽  
+##### 860#       发表于 2024-9-7 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pv里甚至不如花物语，那个骚包的袖套风衣也没了
+
+*****
+
+####  Piano-Forest  
+##### 861#         楼主| 发表于 2024-9-7 22:16
+
+忍物语 PV：[https://youtu.be/F2ds1V5VeyQ](https://youtu.be/F2ds1V5VeyQ)
+
+9月14日(土)22時よりABEMAにて無料独占配信開始
+<img src="https://p.sda1.dev/19/a317ebeba0e3efdd88b429a7b1859d35/20240907_221451.jpg" referrerpolicy="no-referrer">
+

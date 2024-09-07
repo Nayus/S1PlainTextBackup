@@ -10341,3 +10341,18 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 —— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+*****
+
+####  抽烟的猴  
+##### 3993#       发表于 2024-9-7 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140374&amp;ptid=2160194" target="_blank">悠悠你心 发表于 2024-9-7 21:59</a>
+
+不至于吧，人家是全球多平台同步，照总销量再翻车也不会低到哪里去，你法还是别比了
+
+—— 来自 HONOR PG ...</blockquote>
+小黑盒之前上架了一个销量统计，全球预购暗喻幻想多一点的只有老钟和日本，其他国家査无此游戏
+
+多平台也救不了多少
+

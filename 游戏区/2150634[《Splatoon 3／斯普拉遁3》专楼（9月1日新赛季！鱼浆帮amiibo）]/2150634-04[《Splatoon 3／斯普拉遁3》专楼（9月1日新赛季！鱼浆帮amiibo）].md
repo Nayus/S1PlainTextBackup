@@ -1848,3 +1848,20 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 有人知道为什么用有线的话uu加速一直失败吗？<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">之前一直是可以的，这几天想玩一下就不行了。
 
+
+*****
+
+####  墨染白泉  
+##### 5117#       发表于 2024-9-7 09:10
+
+一小时5000w蛋，工批的力量
+
+*****
+
+####  秋月孝三  
+##### 5118#       发表于 2024-9-7 09:10
+
+一本线最水的一次
+
+—— 来自 OPPO PDEM30, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

@@ -5629,3 +5629,11 @@ live出问题了，第一时间想的是烤羊或者烤青木，然后轮到鼓�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+*****
+
+####  NODY  
+##### 22694#       发表于 2024-9-7 10:53
+
+李世林和青木两个wsd嫡系肯定是一开始就定的，但李世林唱功一没有青木强二没有羊的特色，吉他方面又没有青木的技术当不了主音，只能给个纯节奏吉他位了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

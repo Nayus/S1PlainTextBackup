@@ -2619,3 +2619,14 @@ https://books1.fishhawk.top/wenku/6450c30784972153850fa5bc
 
 　　「那个食材好像叫做『女高中生』？」
 
+
+*****
+
+####  傘木希美  
+##### 847#       发表于 2024-9-7 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">复习到伪物语，白金diaco真好啊
+再看到这里也是好感动<img src="https://p.sda1.dev/19/23a60808a35b51e876b565ecf94cf336/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
+

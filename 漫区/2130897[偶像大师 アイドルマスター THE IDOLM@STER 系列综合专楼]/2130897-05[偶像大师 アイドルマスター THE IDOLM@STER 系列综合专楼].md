@@ -3546,3 +3546,40 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 — from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  北条早苗  
+##### 6337#       发表于 2024-9-7 15:08
+
+都给花岩唱成痛苦面具了
+
+*****
+
+####  BQlin  
+##### 6338#       发表于 2024-9-7 15:10
+
+几首歌一直这样，还得多练练
+
+<img src="https://img.saraba1st.com/forum/202409/07/150918davm4qz4eg3ue33l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.38 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 15:09 上传
+
+*****
+
+####  rgauss  
+##### 6339#       发表于 2024-9-7 15:10
+
+全是感情
+
+*****
+
+####  rgauss  
+##### 6340#       发表于 2024-9-7 15:13
+
+真得喜欢莉波吧
+

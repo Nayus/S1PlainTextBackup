@@ -10138,3 +10138,42 @@ NISA的加了很多提升画质的调整，支持HDR等特性
 还没发售坛友们就讨论了100页了，比大多数游戏都猛~</blockquote>
 老楼可是没有情报硬聊了2000层
 
+
+*****
+
+####  Aeons  
+##### 3973#       发表于 2024-9-7 15:06
+
+<img src="https://img.saraba1st.com/forum/202409/07/150611pn6okjo6nekhuhhh.jpg" referrerpolicy="no-referrer">
+
+<strong>葱头.jpg</strong> (70.26 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 15:06 上传
+
+*****
+
+####  andychen  
+##### 3974#       发表于 2024-9-7 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137272&amp;ptid=2160194" target="_blank">whzfjk 发表于 2024-9-7 14:11</a>
+
+跟云豹的有差别ma? 之前不太能忍受场景建筑物锯齿的闪烁问题</blockquote>
+锯齿基本消灭干净，贴图和阴影精度也更高。不过把画质开满有点吃配置，另外就是得单独打汉化补丁
+
+云豹版别的不说，黎轨1不支持高帧率模式就直接不想玩了
+
+
+*****
+
+####  andychen  
+##### 3975#       发表于 2024-9-7 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137390&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-7 14:25</a>
+
+NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
+移植内置的HDR太简单粗暴了，会让画面整体亮度提升非常多，不如RTX HDR的效果
+
+不过RTX HDR在很多地方也非常违和，这游戏的二次元风格本来就不适合直接转换，最好还是SDR游玩
+

@@ -89,3 +89,13 @@
 
 上一次平林脚本还是ep27的野槌蛇，不知道会不会继续插科打诨下去，当然我个人是希望能致敬夹脚啦……
 
+
+*****
+
+####  66367749  
+##### 2124#       发表于 2024-9-7 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66134178&amp;ptid=2162354" target="_blank">Arson=desu 发表于 2024-9-7 00:13</a>
+这个keiji君一眼烟雾弹，甚至大概率不是人，萨托鲁直接拉着猫组A上去了，这回怎么着也得是动真格的了吧 ...</blockquote>
+我最怕的是staff整个三角恋，麻油支持到最后套进去这种剧情<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

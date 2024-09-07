@@ -3457,3 +3457,42 @@ s1论坛anisong乱战决赛正在进行，欢迎大家参与
 
 这个不错啊，还会和台下互动
 
+
+*****
+
+####  北条早苗  
+##### 6326#       发表于 2024-9-7 14:50
+
+后面两个不考虑唱的部分都还不错
+
+
+*****
+
+####  馬斯特壺  
+##### 6327#       发表于 2024-9-7 14:56
+
+除了没钞能力舞台外伊藤舞音表现还行吧，live还原度可以角色音也稳，虽然china曲子对歌力要求都不高就是了
+
+*****
+
+####  天羽木子  
+##### 6328#       发表于 2024-9-7 14:56
+
+这是没实装的solo2来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  joshua1990  
+##### 6329#       发表于 2024-9-7 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">solo2来乐
+
+*****
+
+####  wfhtony  
+##### 6330#       发表于 2024-9-7 14:58
+
+06. L.U.V // 薄井友里（＊新曲）
+

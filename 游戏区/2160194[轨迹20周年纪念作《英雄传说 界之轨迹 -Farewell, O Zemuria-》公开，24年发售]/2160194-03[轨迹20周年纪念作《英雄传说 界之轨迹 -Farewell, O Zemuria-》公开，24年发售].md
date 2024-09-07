@@ -10094,3 +10094,22 @@ NISA的加了很多提升画质的调整，支持HDR等特性
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
 
+
+*****
+
+####  一步成诗  
+##### 3968#       发表于 2024-9-7 14:45
+
+主要宣传多次提到还以为是什么重头戏，结不仅放在序章还这么寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卢迪克  
+##### 3969#       发表于 2024-9-7 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66137529&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-7 14:45</a>
+
+主要宣传多次提到还以为是什么重头戏，结不仅放在序章还这么寒酸</blockquote>
+终章还有一次火箭射高达<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

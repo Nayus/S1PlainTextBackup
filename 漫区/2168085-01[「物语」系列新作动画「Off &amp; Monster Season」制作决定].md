@@ -2729,3 +2729,18 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 草</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  糖皮质激素  
+##### 856#       发表于 2024-9-7 21:43
+
+怎么这PV看着有点泯啊，不会越做越差吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  molemole  
+##### 857#       发表于 2024-9-7 21:46
+
+视觉图垃圾君和动画pv里的完全不像一个人
+

@@ -3756,3 +3756,66 @@ China的solo3！
 
 伊藤本音怎么样的，这还原度太高了
 
+
+*****
+
+####  wfhtony  
+##### 6363#       发表于 2024-9-7 19:12
+
+ 本帖最后由 wfhtony 于 2024-9-7 19:14 编辑 
+
+本週NO KOMINO。
+
+Setlist（-初心公演- 名古屋クラブクアトロ公演）：
+
+・Overture + 1st block<blockquote>[開演前注意事項 // 十王邦夫（CV.大塚明夫）、根緒亜紗里（CV.古賀葵）]
+
+[Overture:《DEBUT LIVE 初 TOUR -序曲-》 // Kijibato]
+
+01. 初 // 全員
+
+02. Campus mode!! // 全員
+
+→ 開場MC（MC①）</blockquote>・2nd block<blockquote>03. 白線 // 花岩香奈
+
+04. Wonder Scale // 伊藤舞音
+
+05. clumsy trick // 薄井友里
+
+→ MC②
+
+06. L.U.V // 薄井友里（＊新曲）
+
+07. 日々、発見的ステップ！ // 伊藤舞音
+
+08. Wake up!! // 花岩香奈（＊2024年生日曲）
+
+→ MC③</blockquote>・3rd block + 安可<blockquote>09. キミとセミブルー // 全員
+
+10. Fragile Heart // 花岩香奈（＊新曲，晝場）
+
+10. ときめきのソルフェージュ // 伊藤舞音（＊新曲，夜場）
+
+→ MC④
+
+11. がむしゃらに行こう！ // 全員（＊晝場）
+
+11. Howling over the World // 全員（＊夜場）
+
+---安可---
+
+12. 冠菊 // 全員
+
+→ 安可MC
+
+13. 初 // 全員
+
+[終演後留言 // 十王邦夫（CV.大冢明夫）、根绪亜纱里（CV.古贺葵）]</blockquote>
+
+*****
+
+####  BQlin  
+##### 6364#       发表于 2024-9-7 19:13
+
+小美野居然没来推销那b礼包
+

@@ -9986,3 +9986,17 @@ A:這是我們收到最多的問題之一，至少有一個角色會有確定的
 
 所谓的王立宇宙军不会就只放个人造卫星吧
 
+
+*****
+
+####  卢迪克  
+##### 3959#       发表于 2024-9-7 10:04
+
+ 本帖最后由 卢迪克 于 2024-9-7 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135360&amp;ptid=2160194" target="_blank">卢迪克 发表于 2024-9-7 09:30</a>
+
+最後社長提到空軌重製在任天堂直播宣布消息，他也很驚訝，覺得JRPG目前聲勢不佳
+
+但他仍覺得RPG非常有潛力 ...</blockquote><blockquote>对于近藤很失望，这么多访谈，没一个希望轨迹20周年能取得成功的回答，去年伊苏就有说</blockquote>
+没想到对空re说了，界轨已死勿念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

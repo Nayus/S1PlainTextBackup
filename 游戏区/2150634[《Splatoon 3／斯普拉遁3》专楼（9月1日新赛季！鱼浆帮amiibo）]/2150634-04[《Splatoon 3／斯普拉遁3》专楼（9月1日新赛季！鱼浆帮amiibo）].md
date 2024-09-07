@@ -1888,3 +1888,11 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 一次搞定218蛋<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Ryuuseigun  
+##### 5122#       发表于 2024-9-7 10:04
+
+十点钟九千五百万，开工两小时一个亿，7亿配额也就14个小时一天都不要，工批魅力时刻<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

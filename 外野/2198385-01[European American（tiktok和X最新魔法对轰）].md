@@ -842,3 +842,48 @@ B站链接点进去，旁边推荐给了我这个，点进去一看，holyshit�
 
 美国独立战争后，正是这种共同地域、共同经济生活、共同的信仰、共同的文化，促成了北美殖民地人民共同的心理特征，从而使他们形成为美利坚民族。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  炽十二翼  
+##### 85#       发表于 2024-9-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140203&amp;ptid=2198385" target="_blank">logiccat 发表于 2024-9-7 21:37</a>
+
+B站链接点进去，旁边推荐给了我这个，点进去一看，holyshit……B站真是懂我！
+
+https://www.bilibili.com/vi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">摩多摩多
+
+*****
+
+####  riczxc  
+##### 86#       发表于 2024-9-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140527&amp;ptid=2198385" target="_blank">Hydro 发表于 2024-9-7 22:20</a>
+
+之前突然意识到个问题，非裔美国人到底是什么民族的，然后查了一下发现居然有"美利坚民族"这个说法
+
+基本上 ...</blockquote>
+所谓“公民民族主义”(civic nationalism)是在卡民族自决原则的bug，是搞分裂的思想武器。
+
+
+*****
+
+####  xqer1107  
+##### 87#       发表于 2024-9-7 22:40
+
+<blockquote>riczxc 发表于 2024-9-7 19:23
+我就很喜欢问美国来的同事他们是哪里人。一般都会答哪个州。然后我一般会追问，Where are you originally f ...</blockquote>
+哈哈前阵子刷到一个女的被白楠这么问了还被学了中国口音以后反问回去，然后开始很夸张地学鸡叫一样的伦敦腔，把男的整破防了
+
+*****
+
+####  riczxc  
+##### 88#       发表于 2024-9-7 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66140688&amp;ptid=2198385" target="_blank">xqer1107 发表于 2024-9-7 22:40</a>
+
+哈哈前阵子刷到一个女的被白楠这么问了还被学了中国口音以后反问回去，然后开始很夸张地学鸡叫一样的伦敦 ...</blockquote>
+其实我也没有恶意，但是在流动人口多的城市长大，默认没有本地人所以肯定会问这么一句。
+

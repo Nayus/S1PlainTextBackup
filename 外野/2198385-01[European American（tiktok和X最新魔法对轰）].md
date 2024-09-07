@@ -509,3 +509,12 @@ Native American 更常用吧
 
 提非裔美国人亚裔美国人的时候没想到有今天？
 
+
+*****
+
+####  纸皮  
+##### 54#       发表于 2024-9-7 16:59
+
+你以为你就是天生属于这个国家的，和那些长得就像别的族裔的外来者不一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">其实你们都一样是出生在这个地方的外来者而已
+

@@ -2194,3 +2194,13 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 7亿达成，接下来就看能到多高了，8亿有额外奖励的
 
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 5157#       发表于 2024-9-7 23:28
+
+一个金都没有，气晕
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

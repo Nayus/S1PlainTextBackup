@@ -897,3 +897,35 @@ https://www.bilibili.com/vi ...</blockquote>
 其实美洲本地人+西班牙混血e的后拉丁裔才是美国真正隐藏的超大族裔，虽然政界曝光量不是很明显，但美国的确 ...</blockquote>
 毕竟是上百年「阿兹特克人向北移民」的自然延续，什么西进运动比起来就是小卡拉米<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Mouwue  
+##### 90#       发表于 2024-9-7 23:26
+
+老早就觉得非裔美国人亚裔美国人这种称呼很奇怪了，明明大家都是从外地移民来的，说不定部分非洲、亚洲人来的要比一些欧洲移民早得多，却会因为肤色外表强调人祖籍，而且还被拿来当做种族平等用词
+
+*****
+
+####  ylns1314  
+##### 91#       发表于 2024-9-7 23:28
+
+<blockquote>In 1995, as part of a review of the Office of Management and Budget's Statistical Policy Directive No. 15 (Race and Ethnic Standards for Federal Statistics and Administrative Reporting), a survey was conducted of census recipients to determine their preferred terminology for the racial/ethnic groups defined in the Directive. For the White group, European American came a distant third, preferred by only 2.35% of panel interviewees, as opposed to White, which was preferred by 61.66%.</blockquote>
+
+95年人口普查的时候就开始调研要不要用这个词了，只是那个时候老白们就不愿意接受
+
+
+*****
+
+####  tlygo54  
+##### 92#         楼主| 发表于 2024-9-7 23:33
+
+这个串精彩到我还以为自己上的不是黑X而是4ch /a/版<img src="https://static.saraba1st.com/image/smiley/face2017/066.png">
+<img src="https://p.sda1.dev/19/6762508a78e23ffe63b9c83938d26132/image.jpg" referrerpolicy="no-referrer">
+
+从标题就巨魔完了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+然后老白男说用European American称呼他们是不打算好好说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后有色人种说「老子说的是正论你有什么问题」<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

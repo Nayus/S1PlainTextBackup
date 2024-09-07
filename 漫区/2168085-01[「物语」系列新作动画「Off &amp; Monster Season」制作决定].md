@@ -2825,3 +2825,13 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 想你了，牢历
 
+
+*****
+
+####  strider_oy  
+##### 867#       发表于 2024-9-8 05:22
+
+垃圾君这么帅，怪不得后宫这么多
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v3.0.0.81-alpha
+

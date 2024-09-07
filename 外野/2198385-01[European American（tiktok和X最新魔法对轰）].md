@@ -929,3 +929,23 @@ https://www.bilibili.com/vi ...</blockquote>
 
 然后有色人种说「老子说的是正论你有什么问题」<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  杜微  
+##### 93#       发表于 2024-9-7 23:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真的得说一句谁跳脚谁就是心里还有种族主义了
+
+*****
+
+####  Baccano  
+##### 94#       发表于 2024-9-7 23:42
+
+我早就想找个美国白人问他那些他们对亚裔最爱问的问题。
+“Where are you from?"
+"No,no,no. I mean where are you really from?"
+"Where are your parents from? German, England, Italy?"
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

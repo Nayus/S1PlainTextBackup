@@ -10381,3 +10381,20 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 记得世嘉舅舅米朵丽就爆过本来首发带ns2的，但ns2延期了。
 
+
+*****
+
+####  superlink  
+##### 3996#       发表于 2024-9-7 23:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">坑个啥，就那鬼人设，你但凡换成p系列的人物都有一堆人被骗去买
+
+—— 来自 vivo V2304A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+
+*****
+
+####  卢迪克  
+##### 3997#       发表于 2024-9-7 23:40
+
+比较诚实，直接说没恋爱要素了
+

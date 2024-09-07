@@ -1873,3 +1873,15 @@ HB本月进包，没有的可以去便宜收一个
 —— 来自 鹅球 v3.0.0.82-alpha ...</blockquote>
 steampy。
 
+
+*****
+
+####  xiedua  
+##### 174#       发表于 2024-9-8 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66134824&amp;ptid=2153988" target="_blank">谢枫华 发表于 2024-9-7 06:34</a>
+steampy。</blockquote>
+谢谢，买了～刚打通第一个角色
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

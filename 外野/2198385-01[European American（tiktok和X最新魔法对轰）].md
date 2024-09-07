@@ -961,3 +961,11 @@ https://www.bilibili.com/vi ...</blockquote>
 
 感觉两边的话术都在朝着贴吧五艺发生趋同进化<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Outsider223  
+##### 96#       发表于 2024-9-8 00:42
+
+老墨才是美洲真正的主人吧？他们身上不少印第安人玛雅人的血统，他们走线进美国感觉理所应当
+

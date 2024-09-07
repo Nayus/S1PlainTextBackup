@@ -806,3 +806,17 @@ amigo都是好不好<img src="https://static.saraba1st.com/image/smiley/face2017
 
 有些就笼统告诉我是英国过来的，但也有本地人血统，因为有墨西哥的混血。
 
+
+*****
+
+####  苦瓜柠檬茶  
+##### 82#       发表于 2024-9-7 21:21
+
+<blockquote>姊控 发表于 2024-9-7 18:17
+以国家/民族专指和洲际泛指是有区别的，Irish American、Algerian American 这样的称呼只是单纯指出祖辈 ...</blockquote>
+Nigger不能nigger变出African American
+
+香蕉人用Asian American  解构chinese
+
+既然 African American 和 Asian American都有了， European American 的诞生也只是顺水推舟的时间问题
+

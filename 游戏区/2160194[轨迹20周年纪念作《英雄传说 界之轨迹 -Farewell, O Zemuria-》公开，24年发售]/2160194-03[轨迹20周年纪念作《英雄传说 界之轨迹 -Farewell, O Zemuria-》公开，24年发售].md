@@ -10418,3 +10418,11 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 只能说我轨这种首发锁亚洲的独占游戏还是别跟a社这种大物比了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  hkguty  
+##### 4000#       发表于 2024-9-8 00:52
+
+跟轨迹比销量那真的是要大暴死了····可能现在奇幻题材都不怎么吃香了，新的那个圣剑传说也是一脸暴死相
+

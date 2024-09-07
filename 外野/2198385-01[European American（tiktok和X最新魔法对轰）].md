@@ -774,3 +774,20 @@ amigo都是好不好<img src="https://static.saraba1st.com/image/smiley/face2017
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  riczxc  
+##### 79#       发表于 2024-9-7 19:23
+
+我就很喜欢问美国来的同事他们是哪里人。一般都会答哪个州。然后我一般会追问，Where are you originally from? From which European country?
+
+*****
+
+####  中国科学院  
+##### 80#       发表于 2024-9-7 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139268&amp;ptid=2198385" target="_blank">riczxc 发表于 2024-9-7 19:23</a>
+我就很喜欢问美国来的同事他们是哪里人。一般都会答哪个州。然后我一般会追问，Where are you originally f ...</blockquote>
+然后他们什么反应？
+

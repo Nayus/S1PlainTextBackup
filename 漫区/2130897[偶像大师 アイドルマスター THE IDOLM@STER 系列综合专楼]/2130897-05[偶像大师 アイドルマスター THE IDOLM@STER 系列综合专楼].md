@@ -3849,3 +3849,21 @@ Setlist（-初心公演- 名古屋クラブクアトロ公演）：
 
 是我最喜欢的尖塔第四强者吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  yuuuuuuuu  
+##### 6367#       发表于 2024-9-7 22:24
+
+ 本帖最后由 yuuuuuuuu 于 2024-9-7 22:27 编辑 
+
+LisAni 学马怎么只上一个，而且连爱马仕的title都没有，直接from 初星学院
+
+<img src="https://img.saraba1st.com/forum/202409/07/222320z22wlrrfc2lefnyc.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0221.JPG</strong> (226.76 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-7 22:23 上传
+

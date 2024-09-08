@@ -1460,3 +1460,16 @@ He is gay and↑ European
 —— 来自 鹅球 v3.1.88.3 ...</blockquote>
 被发现户口是的籍贯不是上海是苏北呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  石之纷如  
+##### 138#       发表于 2024-9-8 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143049&amp;ptid=2198385" target="_blank">mixtycomeon 发表于 2024-9-8 10:37</a>
+
+这么类比不太对，汉人是汉文化的，不是血统或者地理的。
+
+而且这种写法是有歧义的，xx汉人到底是从xx地来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真要拿汉做比方的话，历史上有一批回族是汉族转过去的....
+

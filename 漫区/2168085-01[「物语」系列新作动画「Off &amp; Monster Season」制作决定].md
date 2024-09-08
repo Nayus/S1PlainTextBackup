@@ -2910,3 +2910,11 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 话说araragi hitagi念起来确实挺押韵的
 
+
+*****
+
+####  谁又在偷我流量  
+##### 873#       发表于 2024-9-8 11:09
+
+你说这是雅原小姐叫来的牛郎COS我都信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便也完美解释了这些年西尾剪掉的头发都去哪儿了
+

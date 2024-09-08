@@ -46,3 +46,24 @@
 
 原来有任务，那只能抓紧打了
 
+
+*****
+
+####  一个陆仁贾  
+##### 46733#       发表于 2024-9-8 11:08
+
+一想到后面还有三个奥尔加要打就无语，剧情里还预言难度更高<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+
+*****
+
+####  khxooo  
+##### 46734#       发表于 2024-9-8 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143265&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2024-9-8 11:08</a>
+一想到后面还有三个奥尔加要打就无语，剧情里还预言难度更高
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+水所长还可以吧，而且过关难度不大，但是全拿徽章那就非常考验BOX了。
+

@@ -2318,3 +2318,11 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 小裁判猫狂喜，下一作搞事的初始资本有了</blockquote>
 已经有图了，4代小裁判猫直接在剧情里玩无双<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/19/e7b1d99ed9a10028a7941d66f92fd387/Image_1725778646510.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苍蓝之枪  
+##### 5169#       发表于 2024-9-8 18:34
+
+真的得看脸，本来W1打了100多蛋，想着怎么都能破记录了，结果W2是烤架，整把垮掉
+

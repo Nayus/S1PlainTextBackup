@@ -280,3 +280,29 @@ A part修得挺好看的
 这个绿毛单马尾还是挺好认的，可能staff里有人就好这口杂鱼小白脸吧</blockquote>
 那不就是成田吗？
 
+
+*****
+
+####  Arson=desu  
+##### 2141#       发表于 2024-9-8 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66146355&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-8 18:12</a>
+
+那不就是成田吗？</blockquote>
+巴塔蜢蜢在天q里在就已经有自己的变身bank了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 2142#       发表于 2024-9-8 18:39
+
+呵呵 这集本质上是剧场版联动 让魔法组和天空组打酱油 结果士大夫又双开始塞私货了
+舞台剧五男人海报pose 真爱死蚂蚱也来客串<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 2143#       发表于 2024-9-8 18:43
+
+天Q反派全员都露背面了啊，我还只看着魔法组没留意到把它蒙蒙呢
+

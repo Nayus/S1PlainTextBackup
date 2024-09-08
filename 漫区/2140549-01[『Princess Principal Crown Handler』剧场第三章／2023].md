@@ -928,3 +928,14 @@ control那边派来接头的飞艇都被王国劫持了，实在想不出control
 
 听说第四章开始要每年一章了？那啥时候出完六章。。
 
+
+*****
+
+####  aptx8285144  
+##### 95#       发表于 2024-9-8 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142268&amp;ptid=2140549" target="_blank">神之叹息 发表于 2024-9-8 07:02</a>
+
+听说第四章开始要每年一章了？那啥时候出完六章。。</blockquote>
+听说有个制片人去世，不知道下一章什么时候公布
+

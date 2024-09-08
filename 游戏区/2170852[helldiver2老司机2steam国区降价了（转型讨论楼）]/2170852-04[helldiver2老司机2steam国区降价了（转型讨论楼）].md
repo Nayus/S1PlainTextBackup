@@ -76,3 +76,28 @@ Q. 您之前提到的测试又是怎么回事？
 
 等着拉一坨大的
 
+
+*****
+
+####  Lynn_C  
+##### 5323#       发表于 2024-9-9 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66149755&amp;ptid=2170852" target="_blank">ravend233 发表于 2024-9-9 00:18</a>
+降落到某些位置的ATAT也能直接偷发电机，然后就是拉增援有概率直接丢到撤离台上 ...</blockquote>
+看了下贴吧，有人说atat和铁幕坦克从运输机上就开始锁敌了，落地即射…这任务也太绝望了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ravend233  
+##### 5324#       发表于 2024-9-9 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66150030&amp;ptid=2170852" target="_blank">Lynn_C 发表于 2024-9-9 00:59</a>
+
+看了下贴吧，有人说atat和铁幕坦克从运输机上就开始锁敌了，落地即射…这任务也太绝望了
+
+论坛助手,iPhon ...</blockquote>
+需要人带飞猫最快速度解决掉这些高威胁单位
+

@@ -1042,3 +1042,14 @@ PDD上的是香港直邮，预计5-7七天到手，等得有点久
 
 日区买有中文吗
 
+
+*****
+
+####  skypiea  
+##### 553#       发表于 2024-9-8 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66144053&amp;ptid=2188108" target="_blank">laoccai47 发表于 2024-9-8 12:49</a>
+
+日区买有中文吗</blockquote>
+全区中文
+

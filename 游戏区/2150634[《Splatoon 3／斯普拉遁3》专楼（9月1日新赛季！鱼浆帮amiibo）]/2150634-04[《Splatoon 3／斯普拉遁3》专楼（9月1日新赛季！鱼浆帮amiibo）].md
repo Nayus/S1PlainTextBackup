@@ -2273,3 +2273,14 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  liekong  
+##### 5165#       发表于 2024-9-8 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142981&amp;ptid=2150634" target="_blank">墨染白泉 发表于 2024-9-8 10:27</a>
+
+最后可以多少亿呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小裁判猫狂喜，下一作搞事的初始资本有了
+

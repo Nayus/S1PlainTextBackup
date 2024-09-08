@@ -8265,3 +8265,64 @@ kasen线下撞夏露决赛的时候释迦还看了两眼直播，认知到上路
 
 波比王带飞evi（
 
+
+*****
+
+####  shmilyhua  
+##### 17382#       发表于 2024-9-7 02:53
+
+ 本帖最后由 shmilyhua 于 2024-9-7 03:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66134084&amp;ptid=2018830" target="_blank">sino__unnko3 发表于 2024-9-6 23:58</a>
+要是有推限自动录播机就好了，这人这波大主播联动完指不定晚上就开个推限，明天歌回再一转聊天回
+
+以及个人 ...</blockquote>
+github.com/HitomaruKonpaku/twspace-crawler/
+这个项目可以。
+
+想了一下，还是放出来吧，自录存档，自动更新。
+ftp.shmilyhua.com/download/KaguraMea_VoV/
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.1.88.3-alpha
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 5战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 许c24| + 1|好评加鹅|
+| sino__unnko3| + 1|好评加鹅|
+| TiHaru| + 2||
+| 秋游刃| + 1|好评加鹅|
+| 商博良| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  sino__unnko3  
+##### 17383#       发表于 2024-9-8 02:08
+
+ 本帖最后由 sino__unnko3 于 2024-9-8 04:23 编辑 
+
+无敌了你咩，27点开始直播是吧<img src="https://p.sda1.dev/19/f9c2913432a353ebfa4c8c7a8b022d13/image.jpg" referrerpolicy="no-referrer">">
+
+怎么又唐突MBTI<img src="https://p.sda1.dev/19/02da98481471f8726a92d2052ede2058/image.jpg" referrerpolicy="no-referrer">">
+
+这番深夜讲话挺深刻的
+
+呃呃，主包现在在讲相亲恰饭经历还是恋爱相谈所的传言
+
+什么哥斯拉和睡眠忘记恋爱之痛法()
+
+(顺便，软件预测今天主包O期到来()
+
+*****
+
+####  TiHaru  
+##### 17384#       发表于 2024-9-8 17:56
+
+感觉是见面互相打鸡血了
+

@@ -5820,3 +5820,33 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 往好处想至少不是风那个古埃及壁画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  NODY  
+##### 22714#       发表于 2024-9-8 19:14
+
+<img src="https://img.saraba1st.com/forum/202409/08/191358zkvv8sz2lfzkskms.jpg" referrerpolicy="no-referrer">
+
+<strong>GW8pxl-aMAExpZu_format=jpg&amp;name=large.jpg</strong> (314.8 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202409/08/191406gz296flvbrxufrfv.jpg" referrerpolicy="no-referrer">
+
+<strong>GW8pxlVbQAAIGNu_format=jpg&amp;name=large.jpg</strong> (303.05 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 19:14 上传
+
+<img src="https://img.saraba1st.com/forum/202409/08/191412nkr8v7yca46ackhk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20240908_191047.jpg</strong> (80.11 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 19:14 上传
+

@@ -11022,3 +11022,43 @@ ccd2706561b4a0a3c154258a4a91a11f88787536 (1).jpg
 
 黎2回溯写的和狗屎一样，界还好意思再来搞这个？你法是不是根本没发现黎2恶评如潮的原因在哪<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4054#       发表于 2024-9-8 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66146813&amp;ptid=2160194" target="_blank">妄想中毒 发表于 2024-9-8 19:03</a>
+黎2回溯写的和狗屎一样，界还好意思再来搞这个？你法是不是根本没发现黎2恶评如潮的原因在哪 ...</blockquote>
+就像闪轨每部都骂羁绊系统结果每部都给你超级加倍一样
+
+玩家反对什么什么就是做对了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  悠悠你心  
+##### 4055#       发表于 2024-9-8 19:12
+
+你法一队人的回溯已经一坨了，不敢想象三队人的回溯有多美<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ravend233  
+##### 4056#       发表于 2024-9-8 19:14
+
+说到底还是有可能是ui复用的，这个图是路线选择系统的ui，大家不要慌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  hkguty  
+##### 4057#       发表于 2024-9-8 19:17
+
+时之至宝不可能没回溯，而且这部就目前公布的截图就看到很多拿创世搞事的·······
+

@@ -10759,3 +10759,21 @@ ysx  发售前一月 3900+1800+1850，首周4.4
 
 你轨好歹味道还是那样，暗喻幻想真的是宣传越多观感越差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  宛若青空  
+##### 4031#       发表于 2024-9-8 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143307&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-8 11:13</a>
+都说法老控这次不补货，我看很多店铺都还没全切，那首周必定很精彩了</blockquote>
+日亚限定都切了，还好我下得早
+
+
+*****
+
+####  Aeons  
+##### 4032#       发表于 2024-9-8 14:05
+
+暗喻幻想看着确实有点难顶，不过你轨这个序章要素致死量也很难评
+

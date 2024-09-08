@@ -11288,3 +11288,44 @@ van被锁的角色是剑女？
 —— ...</blockquote>
 从哪部开始口碑崩盘销量腰斩的你心里没数？
 
+
+*****
+
+####  rulebreaker  
+##### 4084#       发表于 2024-9-9 00:08
+
+说的好，E大师背全锅。
+
+腰斩的不就是黎轨么，闪轨哪有这么惨的表现。创轨都还行呐。
+
+*****
+
+####  ravend233  
+##### 4085#       发表于 2024-9-9 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66149363&amp;ptid=2160194" target="_blank">nozomitech 发表于 2024-9-8 23:37</a>
+
+反正我是已经放弃首发了，剩下的老哥们加油</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">准备好赤石了
+
+*****
+
+####  ravend233  
+##### 4086#       发表于 2024-9-9 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66149646&amp;ptid=2160194" target="_blank">rulebreaker 发表于 2024-9-9 00:08</a>
+
+说的好，E大师背全锅。
+
+腰斩的不就是黎轨么，闪轨哪有这么惨的表现。创轨都还行呐。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪2-闪3也是对半砍
+
+大伙别急，界轨不是没有再次对半砍的可能<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4087#       发表于 2024-9-9 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">E大师：原来不换我是为了这个？
+

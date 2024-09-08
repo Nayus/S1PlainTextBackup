@@ -692,3 +692,11 @@ sayu要出两首原创曲
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.90
 
+
+*****
+
+####  梶原ひかり  
+##### 21016#       发表于 2024-9-8 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看虹咲剧场票房的推移...感觉要步星LIVE的后尘了 
+

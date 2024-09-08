@@ -11162,3 +11162,39 @@ van被锁的角色是剑女？
 
 毕竟没那个人气让事务所霍霍新作了
 
+
+*****
+
+####  一步成诗  
+##### 4070#       发表于 2024-9-8 21:36
+
+可是讲道理换新主角团还要投入资源做新人设新建模<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么看都是素材复用更划算
+
+*****
+
+####  ravend233  
+##### 4071#       发表于 2024-9-8 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果真把事务所的剧情和共和国篇主线剧情一部讲完，那继续出定义上就不能再称之为界2
+
+如果共和国篇没讲完但是事务所讲完了，事务所的角色高度绑定共和国篇，想拆也没得拆，实现起来很困难
+
+所以要么没有后文（或者还有个外传）要么事务所角色再写一部界2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  一步成诗  
+##### 4072#       发表于 2024-9-8 21:40
+
+反正我觉得界一部讲不完，咚了给你换主角未免太缺德了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 4073#       发表于 2024-9-8 21:42
+
+界轨属于共和国篇这个没什么可质疑的吧
+

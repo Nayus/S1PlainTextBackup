@@ -482,3 +482,15 @@ vision就是v呗，五代没问题
 —— 来自 vivo V2324 ...</blockquote>
 其实挺奇怪的，按理说卖相也不差，最近也没什么好的jrpg竞品，怎么这个经典ip会卖成这样的？
 
+
+*****
+
+####  clyde-wang  
+##### 272#       发表于 2024-9-9 04:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66150282&amp;ptid=2163349" target="_blank">woodey 发表于 2024-9-9 03:25</a>
+其实挺奇怪的，按理说卖相也不差，最近也没什么好的jrpg竞品，怎么这个经典ip会卖成这样的？ ...</blockquote>
+日本那边因为没上NS的缘故，之前有消息说是要上NS2，但是谁知道呢，至少目前来看PS5和Steam上的反响不算好，毕竟现在日本就是NS占据了7-8成的单机游戏市场平台
+
+基本盘如此，别的地区毕竟有黑猴在，而且这作也不能说没有缺点，卖的不好也是情理之中
+

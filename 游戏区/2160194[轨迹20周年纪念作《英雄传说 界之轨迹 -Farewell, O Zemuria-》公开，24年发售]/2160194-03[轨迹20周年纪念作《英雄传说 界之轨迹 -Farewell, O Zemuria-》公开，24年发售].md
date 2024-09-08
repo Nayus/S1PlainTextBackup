@@ -11070,3 +11070,11 @@ ccd2706561b4a0a3c154258a4a91a11f88787536 (1).jpg
 
 路人看到E大师人设直接跑了好嘛，根本不需要担心被这种东西劝退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Aeons  
+##### 4059#       发表于 2024-9-8 19:37
+
+反正这图是看不出回溯的，弯曲这个你看黎二的图和官网两个圆之间没事就弯曲啊
+

@@ -327,3 +327,26 @@ A part修得挺好看的
 天Q反派全员都露背面了啊，我还只看着魔法组没留意到把它蒙蒙呢</blockquote>
 我也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至凯瑟琳那里一开始我认成石榴了（
 
+
+*****
+
+####  成田良美  
+##### 2146#       发表于 2024-9-8 19:31
+
+ 本帖最后由 成田良美 于 2024-9-8 19:34 编辑 
+
+在塑造蚱蜢这方面高桥女士给了我很多指示
+
+平林女士来写剧本可能是因为我司人手紧缺<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Arson=desu  
+##### 2147#       发表于 2024-9-8 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66147040&amp;ptid=2162354" target="_blank">成田良美 发表于 2024-9-8 19:31</a>
+在塑造蚱蜢这方面高桥女士给了我很多指示
+
+平林女士来写剧本可能是因为我司人手紧缺 ...</blockquote>
+太变态了
+

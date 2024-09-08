@@ -5812,3 +5812,11 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真不愧是武士道
 
+
+*****
+
+####  星天观测  
+##### 22713#       发表于 2024-9-8 18:34
+
+往好处想至少不是风那个古埃及壁画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

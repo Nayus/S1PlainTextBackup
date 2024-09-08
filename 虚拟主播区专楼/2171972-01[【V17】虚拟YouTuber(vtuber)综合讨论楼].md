@@ -3159,3 +3159,11 @@ dc的备注是老下面メモ这一栏，最上面的是群组内名字，只有
 
 秋君也光速转生了，能蹭到大姐头的箱嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Harunoharu  
+##### 721#       发表于 2024-9-8 13:08
+
+等女神也毕业了再一起吧
+

@@ -10710,3 +10710,11 @@ dq依旧王者，ps版无数据
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
 
+
+*****
+
+####  遠い炎群  
+##### 4026#       发表于 2024-9-8 12:24
+
+界轨打开起码还是祖宗之法熟悉的味道，暗喻幻想pv越看越慌
+

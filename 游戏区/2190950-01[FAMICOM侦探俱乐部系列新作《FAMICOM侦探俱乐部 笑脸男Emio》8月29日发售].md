@@ -3433,3 +3433,11 @@ minoru通关，原来如此。</blockquote>
 
 打错编辑   
 
+
+*****
+
+####  绮陌  
+##### 326#       发表于 2024-9-9 01:33
+
+故事实在是太平庸了，小亮点不少但难以掩盖剧本的缺点，比起破案更应该享受的是每天回去开会的日常，最后饭都吃不上也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">   有步美调查剧情，有年下cp，整体流程也不长，还是很适合没事做的时候一口气推完的
+

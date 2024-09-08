@@ -10662,3 +10662,29 @@ dq依旧王者，ps版无数据
 由手机上传
 2024-9-8 11:21 上传
 
+
+*****
+
+####  ravend233  
+##### 4022#       发表于 2024-9-8 11:29
+
+ 本帖最后由 ravend233 于 2024-9-8 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143307&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-8 11:13</a>
+
+都说法老控这次不补货，我看很多店铺都还没全切，那首周必定很精彩了</blockquote>
+也就那几个特典还过得去的切了，WGO都没全切
+
+加上黎2的垃圾口碑必然导致路人跑路，5W怕是悬了
+
+不如直接来个3W，你法社直接界2当大结局
+
+*****
+
+####  一步成诗  
+##### 4023#       发表于 2024-9-8 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143438&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-8 11:29</a>
+
+也就那几个特典还过得去的切了，WGO都没全切</blockquote>
+3w然后界2换新主角集结历代所有角色打女神挣脱塞姆利亚大陆的箱庭世界，如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

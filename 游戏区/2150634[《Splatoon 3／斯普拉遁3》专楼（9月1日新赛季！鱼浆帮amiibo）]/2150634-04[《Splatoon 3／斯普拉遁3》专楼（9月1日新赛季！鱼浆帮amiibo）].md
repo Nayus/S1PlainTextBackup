@@ -2411,3 +2411,11 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 充电不知道要充多久，本想刷到800铜兑换个衣服出来
 
+
+*****
+
+####  xgazer  
+##### 5179#       发表于 2024-9-8 22:53
+
+上来就打个190蛋，打到500意思意思歇了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这图打头目联合也挺简单的
+

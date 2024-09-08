@@ -700,3 +700,14 @@ sayu要出两首原创曲
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看虹咲剧场票房的推移...感觉要步星LIVE的后尘了 
 
+
+*****
+
+####  靡宜  
+##### 21017#       发表于 2024-9-8 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66132334&amp;ptid=2078110" target="_blank">cat1230 发表于 2024-9-6 20:09</a>
+
+鲤鱼这速度可以啊5单接6单，不过这歌初听还是不抓耳啊</blockquote>
+广播听了一部分，反而高潮不是很喜欢，前面喜欢的
+

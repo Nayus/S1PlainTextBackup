@@ -11233,3 +11233,11 @@ van被锁的角色是剑女？
 回溯是舅舅还是推测啊，真回溯我要开始乐了</blockquote>
 就根据路线图发散的
 
+
+*****
+
+####  alucardcz  
+##### 4078#       发表于 2024-9-8 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 回想当年 大家刚刚打完闪1 对轨迹的未来充满了希望 那时候 谁都没想到一个闪轨居然能出4+1部 拖了整整7年
+

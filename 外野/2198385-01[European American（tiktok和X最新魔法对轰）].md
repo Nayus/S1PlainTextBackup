@@ -1347,3 +1347,14 @@ He is gay and↑ European
 就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在 ...</blockquote>
 引战是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  苦瓜柠檬茶  
+##### 128#       发表于 2024-9-8 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142764&amp;ptid=2198385" target="_blank">神圣天使书记官 发表于 2024-9-8 09:41</a>
+
+就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你的“咸豆腐脑”，加不加姜水
+

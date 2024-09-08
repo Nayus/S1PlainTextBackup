@@ -2379,3 +2379,27 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 重置给朋友抬轿没想到这次尾工600分环境如此恶劣<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  raii  
+##### 5176#       发表于 2024-9-8 21:04
+
+<img src="https://img.saraba1st.com/forum/202409/08/210438n83vprg3ronuux3u.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20240908210429.png</strong> (96.18 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 21:04 上传
+
+照这个势头16亿差不多
+
+
+*****
+
+####  清浦刹那  
+##### 5177#       发表于 2024-9-8 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">刚到700，是不是来不及了
+

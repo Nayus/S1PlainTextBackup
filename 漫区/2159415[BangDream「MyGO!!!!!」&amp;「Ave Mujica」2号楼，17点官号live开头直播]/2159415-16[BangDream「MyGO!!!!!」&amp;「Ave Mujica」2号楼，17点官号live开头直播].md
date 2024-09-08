@@ -5736,3 +5736,22 @@ mygo在day1（
 
 2024-9-8 13:29 上传
 
+
+*****
+
+####  星天观测  
+##### 22704#       发表于 2024-9-8 13:36
+
+ 本帖最后由 星天观测 于 2024-9-8 13:39 编辑 
+
+如果只猜单人的话我先投米泽一票<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+坏了，感觉不对，应该是梦以<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NODY  
+##### 22705#       发表于 2024-9-8 13:39
+
+看了一下是响社的频道，没准是节约
+

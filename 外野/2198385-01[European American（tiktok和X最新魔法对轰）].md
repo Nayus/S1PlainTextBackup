@@ -1504,3 +1504,15 @@ He is gay and↑ European
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
 
+
+*****
+
+####  orz100  
+##### 142#       发表于 2024-9-8 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142764&amp;ptid=2198385" target="_blank">神圣天使书记官 发表于 2024-9-8 09:41</a>
+就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在 ...</blockquote>
+其实没问题，通常有人说豆腐脑，我就默认他吃的咸口。因为我们这都叫豆腐花，定是甜口。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
+

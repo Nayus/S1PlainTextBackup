@@ -10741,3 +10741,13 @@ ysx  发售前一月 3900+1800+1850，首周4.4
 
 别五万了，超过四万就是成功
 
+
+*****
+
+####  ravend233  
+##### 4029#       发表于 2024-9-8 13:42
+
+大卖3w让加藤下决心把这东西直接腰斩埋了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

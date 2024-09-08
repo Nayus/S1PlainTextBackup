@@ -197,3 +197,24 @@ A part修得挺好看的
 
 至于年龄问题……法Q还可以勉强认为又是被BAN限制在结局前来客串，天Q组你们虐待儿童不给公主喂饱饭是吧怎么先用婴儿形象出现后来又变回长大后的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  猫屋敷ゆき  
+##### 2133#       发表于 2024-9-8 12:41
+
+外面的诱惑太多了
+
+茉优永远只能推我一个<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 2134#       发表于 2024-9-8 13:35
+
+前辈们为什么只是在旁边看着，难道真的背叛了吗，哦对你们五个人都不认识前辈，那算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集立意和表达太难绷了，神TM动物园的动物们保护动物园的围墙，神TM动物们欢笑的场所是动物园
+
+你但凡写个大象要伤人被动物们拦住不让它伤人也成啊，保护动物园到底是什么鬼，我看完已经不指望这群人能给日本狼讲的逻辑自治了
+

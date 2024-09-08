@@ -10509,3 +10509,14 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 
 你不知道另一个被爆破的楼早就一百层了，那时候连官网都没有
 
+
+*****
+
+####  ravend233  
+##### 4010#       发表于 2024-9-8 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142506&amp;ptid=2160194" target="_blank">一步成诗 发表于 2024-9-8 08:48</a>
+
+感觉就是游戏质量影响玩家生态圈，游戏越烂平时的讨论也就越没劲，本来发售前看玩家剧透啊不是，猜剧情是最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猜剧情目前放出的料屁都猜不出来，聊来聊去又聊回老角色和无聊党争去了，没意思
+

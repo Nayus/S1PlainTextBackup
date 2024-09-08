@@ -1358,3 +1358,11 @@ He is gay and↑ European
 就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你的“咸豆腐脑”，加不加姜水
 
+
+*****
+
+####  星花  
+##### 129#       发表于 2024-9-8 09:56
+
+不是在脑袋上插管子，直接吸的，怎么放调料？
+

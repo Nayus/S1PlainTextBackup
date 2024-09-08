@@ -2419,3 +2419,11 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 上来就打个190蛋，打到500意思意思歇了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这图打头目联合也挺简单的
 
+
+*****
+
+####  Nez  
+##### 5180#       发表于 2024-9-9 03:36
+
+好久没玩，烤架的血量是不是上调了，熊狙戳了好久都没死
+

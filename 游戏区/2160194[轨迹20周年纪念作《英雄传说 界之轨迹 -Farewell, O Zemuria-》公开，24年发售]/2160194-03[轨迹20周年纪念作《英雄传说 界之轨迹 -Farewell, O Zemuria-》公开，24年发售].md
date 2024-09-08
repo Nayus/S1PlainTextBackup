@@ -11275,3 +11275,16 @@ van被锁的角色是剑女？
 
 反正我是已经放弃首发了，剩下的老哥们加油<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  言嘉  
+##### 4083#       发表于 2024-9-8 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143547&amp;ptid=2160194" target="_blank">一夜秋风袭锦城 发表于 2024-9-8 11:43</a>
+
+还在闪轨透支商业价值，黎吹不拐闪轨不会说话了属于是，首周连着两部接近腰斩东西也怪闪轨做差了吗？
+
+—— ...</blockquote>
+从哪部开始口碑崩盘销量腰斩的你心里没数？
+

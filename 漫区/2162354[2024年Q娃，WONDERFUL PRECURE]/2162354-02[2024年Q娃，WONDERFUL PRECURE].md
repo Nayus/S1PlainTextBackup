@@ -243,3 +243,20 @@ A part修得挺好看的
 
 2024-9-8 16:30 上传
 
+
+*****
+
+####  pokemon最爱  
+##### 2137#       发表于 2024-9-8 16:47
+
+动画里这动物园又没有什么虐待动物的行为，比起野外环境对动物更友好没有什么问题（雾）
+
+*****
+
+####  66367749  
+##### 2138#       发表于 2024-9-8 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66145451&amp;ptid=2162354" target="_blank">湖静欲成冰 发表于 2024-9-8 16:31</a>
+为什么你在这里,staff在想什么啊.</blockquote>
+后面绿头发的是把它蒙蒙吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

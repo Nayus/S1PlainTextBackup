@@ -10813,3 +10813,12 @@ c4ea1b004a90f60339202e887c12b31bb251edd3.jpg
 
 <img src="https://img.saraba1st.com/forum/202409/08/165952gzmksbj4dbbitesk.jpg" referrerpolicy="no-referrer">
 
+
+*****
+
+####  keiyoku  
+##### 4036#       发表于 2024-9-8 17:20
+
+虽然我也嫌闪又臭又长，但黎轨自己都两部了，现在连着界三部卖得烂还能怪到闪头上挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黎轨自己开个还可以的头，然后黎2端出个答辩剧本把人干沉默，剧情剧情不好好写，卖点全集中在那破烂三角，你黎轨不死谁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

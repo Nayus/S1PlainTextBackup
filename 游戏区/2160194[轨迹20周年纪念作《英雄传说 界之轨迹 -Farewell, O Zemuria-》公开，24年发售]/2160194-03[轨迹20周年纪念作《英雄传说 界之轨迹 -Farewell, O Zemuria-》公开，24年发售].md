@@ -11101,3 +11101,46 @@ van被锁的角色是剑女？
 
 怎么可能没回溯，这就是口屎也得在共和国篇吃完吧
 
+
+*****
+
+####  卢迪克  
+##### 4063#       发表于 2024-9-8 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66147564&amp;ptid=2160194" target="_blank">Layvaten 发表于 2024-9-8 20:35</a>
+
+怎么可能没回溯，这就是口屎也得在共和国篇吃完吧</blockquote>
+要不然为什么ban了罗爷呢。琪雅：区区时间跳跃也敢放肆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 4064#       发表于 2024-9-8 21:01
+
+看到回溯 我开始期待了 能不能超越黎2 成为史中之史？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新世界的派蒙  
+##### 4065#       发表于 2024-9-8 21:02
+
+窝草，吓死我了真看成又玩时间回溯，我跪下了真的
+
+*****
+
+####  ravend233  
+##### 4066#       发表于 2024-9-8 21:04
+
+如果有界2而且还有回溯，超越黎2不是没可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+*****
+
+####  alucardcz  
+##### 4067#       发表于 2024-9-8 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没界2你信吗 我反正不信 当然名字不叫界2就不算界2的话（
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼在过个星期应该就不能进了 我还要等pc的界轨
+

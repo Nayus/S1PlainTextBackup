@@ -2371,3 +2371,11 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 
 W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌机模式也能玩啊.....
 
+
+*****
+
+####  Ryuuseigun  
+##### 5175#       发表于 2024-9-8 20:56
+
+重置给朋友抬轿没想到这次尾工600分环境如此恶劣<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+

@@ -2864,3 +2864,23 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+*****
+
+####  downnote  
+##### 870#       发表于 2024-9-8 09:29
+
+ 本帖最后由 downnote 于 2024-9-8 09:30 编辑 
+
+可能她在装嫩吧！难道是不想显摆树敌，关系一直没有变化的败犬记住亲疏长幼就行了，持续进攻的赢家要考虑的可就多了是吧。
+
+翻了一下以前整了一半的称呼表（忘记是从什么时候开始不弄了，毕竟后来很长时间我也没看小说了），的确某些称呼变化就单纯得多
+
+<img src="https://img.saraba1st.com/forum/202409/08/092508xkizb3iv3gvy73nt.png" referrerpolicy="no-referrer">
+
+<strong>人物称呼.png</strong> (91.17 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 09:25 上传
+

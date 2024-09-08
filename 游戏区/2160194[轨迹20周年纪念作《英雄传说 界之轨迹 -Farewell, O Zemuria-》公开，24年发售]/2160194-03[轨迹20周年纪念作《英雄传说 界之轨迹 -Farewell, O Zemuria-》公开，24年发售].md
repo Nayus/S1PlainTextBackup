@@ -10490,3 +10490,22 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 黑兔的配音有问题吧，看试玩演示技能念得有气无力...........</blockquote>
 好几年不配了忘记怎么配是常态，本质是音响监督的锅，如果你法有这个职位的话
 
+
+*****
+
+####  圣罗.希露温  
+##### 4008#       发表于 2024-9-8 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 迫真世界第一JRPG，没发售已经硬聊一百页了
+
+*****
+
+####  Falcomfans  
+##### 4009#       发表于 2024-9-8 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142701&amp;ptid=2160194" target="_blank">圣罗.希露温 发表于 2024-9-8 09:28</a>
+
+迫真世界第一JRPG，没发售已经硬聊一百页了</blockquote>
+
+你不知道另一个被爆破的楼早就一百层了，那时候连官网都没有
+

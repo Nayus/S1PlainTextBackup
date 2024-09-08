@@ -1301,3 +1301,22 @@ He is gay and↑ European
 那么 美裔美国人 去哪里了呢</blockquote>
 这个不兴说啊
 
+
+*****
+
+####  liquer  
+##### 124#       发表于 2024-9-8 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135752&amp;ptid=2198385" target="_blank">Jet.Black 发表于 2024-9-7 10:34</a>
+
+安徽裔南京人
+
+苏北裔上海人</blockquote>
+最贴切的估计是
+
+“宁波舌头”
+
+“苏州舌头”
+
+（上海人谈到上海本帮菜两种源于不同方向移民带来的不同烹调风格的用语）
+

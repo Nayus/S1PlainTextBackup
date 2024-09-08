@@ -2403,3 +2403,11 @@ W2打到一半手柄断电没绷住，赶紧从dock上抄起机器，原来掌�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">刚到700，是不是来不及了
 
+
+*****
+
+####  苍蓝之枪  
+##### 5178#       发表于 2024-9-8 21:18
+
+充电不知道要充多久，本想刷到800铜兑换个衣服出来
+

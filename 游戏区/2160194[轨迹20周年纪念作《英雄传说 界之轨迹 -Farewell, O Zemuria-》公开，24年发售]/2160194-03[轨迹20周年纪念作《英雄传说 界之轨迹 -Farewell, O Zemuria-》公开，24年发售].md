@@ -11257,3 +11257,21 @@ van被锁的角色是剑女？
 
 从邪恶的帝国变成了善良的帝国啊
 
+
+*****
+
+####  ravend233  
+##### 4081#       发表于 2024-9-8 23:29
+
+爱好和平所以自废武功的帝国罢了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  nozomitech  
+##### 4082#       发表于 2024-9-8 23:37
+
+反正我是已经放弃首发了，剩下的老哥们加油<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

@@ -10688,3 +10688,25 @@ dq依旧王者，ps版无数据
 也就那几个特典还过得去的切了，WGO都没全切</blockquote>
 3w然后界2换新主角集结历代所有角色打女神挣脱塞姆利亚大陆的箱庭世界，如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  卢迪克  
+##### 4024#       发表于 2024-9-8 11:36
+
+ 本帖最后由 卢迪克 于 2024-9-8 11:39 编辑 
+
+暗喻幻想打不过浪漫沙加2才是搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，comg也是浪漫沙加2压着界轨合暗喻幻想
+
+这作成绩看来会比星海6和圣剑好看了。
+
+
+*****
+
+####  一夜秋风袭锦城  
+##### 4025#       发表于 2024-9-8 11:43
+
+还在闪轨透支商业价值，黎吹不拐闪轨不会说话了属于是，首周连着两部接近腰斩东西也怪闪轨做差了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0-alpha
+

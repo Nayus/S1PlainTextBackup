@@ -1320,3 +1320,30 @@ He is gay and↑ European
 
 （上海人谈到上海本帮菜两种源于不同方向移民带来的不同烹调风格的用语）
 
+
+*****
+
+####  tlygo54  
+##### 125#         楼主| 发表于 2024-9-8 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142307&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 07:34</a>
+这和英国殖民印度、英国女王自称“女皇”有什么不一样？</blockquote>
+区别在于人家真是蒙特祖玛<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神圣天使书记官  
+##### 126#       发表于 2024-9-8 09:41
+
+就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在诋毁豆腐脑。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  24k纯帅  
+##### 127#       发表于 2024-9-8 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142764&amp;ptid=2198385" target="_blank">神圣天使书记官 发表于 2024-9-8 09:41</a>
+就好比在我看来，豆腐脑有两种，一种叫豆腐脑、一种叫甜豆腐脑。如果你跟我说“咸豆腐脑”，我会觉得你是在 ...</blockquote>
+引战是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

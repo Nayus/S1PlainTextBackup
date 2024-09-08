@@ -260,3 +260,23 @@ A part修得挺好看的
 为什么你在这里,staff在想什么啊.</blockquote>
 后面绿头发的是把它蒙蒙吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  Arson=desu  
+##### 2139#       发表于 2024-9-8 17:38
+
+ 本帖最后由 Arson=desu 于 2024-9-8 17:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66145851&amp;ptid=2162354" target="_blank">66367749 发表于 2024-9-8 17:23</a>
+后面绿头发的是把它蒙蒙吗</blockquote>
+这个绿毛单马尾还是挺好认的，可能staff里有人就好这口杂鱼小白脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jaewoongh_  
+##### 2140#       发表于 2024-9-8 18:12
+
+<blockquote>Arson=desu 发表于 2024-9-8 17:38
+这个绿毛单马尾还是挺好认的，可能staff里有人就好这口杂鱼小白脸吧</blockquote>
+那不就是成田吗？
+

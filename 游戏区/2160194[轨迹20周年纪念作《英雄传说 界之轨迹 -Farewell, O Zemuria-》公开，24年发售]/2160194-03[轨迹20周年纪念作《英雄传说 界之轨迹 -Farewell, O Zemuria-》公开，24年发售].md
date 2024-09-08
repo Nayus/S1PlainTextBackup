@@ -10981,3 +10981,21 @@ ccd2706561b4a0a3c154258a4a91a11f88787536 (1).jpg
 分线系统不上正刊说在免费版说，怕ui和黎2的一模一样大家看了不买？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得路人看不看都不会买，会买的看不看都会买
 
+
+*****
+
+####  卢迪克  
+##### 4049#       发表于 2024-9-8 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66146283&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-8 18:02</a>
+
+这熟悉的UI，还来是吧</blockquote>
+弯曲必有猫腻。不过应该是ui复用吧
+
+*****
+
+####  ravend233  
+##### 4050#       发表于 2024-9-8 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">已经有一大堆垃圾支线当主线的剧情填充篇幅，回溯水流程长度，终章随便给你填两个坑咚了的预感了
+

@@ -1489,3 +1489,18 @@ He is gay and↑ European
 
 点出默认值的不正当性，当然破防<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">高啊！妙。
 
+
+*****
+
+####  隰有苌楚  
+##### 141#       发表于 2024-9-8 12:24
+
+ 本帖最后由 隰有苌楚 于 2024-9-8 12:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143186&amp;ptid=2198385" target="_blank">长生久视 发表于 2024-9-8 10:56</a>
+这个看时间回溯长短，几百年，还是几千上万年，足够早的话，上海所在的陆地应该还不存在 ...</blockquote>
+哪用拉那么远，60年就能排除一大批人了(再说到底几十年才算分界线又有得争了
+
+再说#13要表达所说的群体的“喷别人来得晚”和“其实自己家也没早来多长”的反差，你这拉到几千上万年就属于打岔了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.89
+

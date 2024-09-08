@@ -11339,3 +11339,15 @@ van被锁的角色是剑女？
 
 说起来，到时候空轨R卖不出去还是要怪闪轨么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4089#       发表于 2024-9-9 00:34
+
+空r卖不掉当然是界轨一坨屎把新人吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+卖得好那就小登和遗老牛逼咯
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+

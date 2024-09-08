@@ -180,3 +180,20 @@ A part修得挺好看的
 
 第 32 集的 TVer 源（含日字）：magnet:?xt=urn:btih:79b4f78aaa384ba6fed456cbf48f21aebfd88e77
 
+
+*****
+
+####  离心  
+##### 2131#       发表于 2024-9-8 09:33
+
+魔法使组还是中学生模样吗？小哈又干了?有人变成婴儿逃票我不说，有老师和大学生变成中学生买学生票我也不说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pokemon最爱  
+##### 2132#       发表于 2024-9-8 10:12
+
+一般路过的摸鱼前辈草，不是魔法组摸鱼也就算了天空组你们是这么短的时间内已经逛完了动物园回家了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于年龄问题……法Q还可以勉强认为又是被BAN限制在结局前来客串，天Q组你们虐待儿童不给公主喂饱饭是吧怎么先用婴儿形象出现后来又变回长大后的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

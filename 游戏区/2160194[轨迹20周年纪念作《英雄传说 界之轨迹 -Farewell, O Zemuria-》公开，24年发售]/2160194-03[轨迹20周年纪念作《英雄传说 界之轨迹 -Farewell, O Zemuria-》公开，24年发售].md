@@ -10520,3 +10520,14 @@ NISA的加了很多提升画质的调整，支持HDR等特性</blockquote>
 感觉就是游戏质量影响玩家生态圈，游戏越烂平时的讨论也就越没劲，本来发售前看玩家剧透啊不是，猜剧情是最 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猜剧情目前放出的料屁都猜不出来，聊来聊去又聊回老角色和无聊党争去了，没意思
 
+
+*****
+
+####  一步成诗  
+##### 4011#       发表于 2024-9-8 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142858&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-8 10:00</a>
+
+猜剧情目前放出的料屁都猜不出来，聊来聊去又聊回老角色和无聊党争去了，没意思 ...</blockquote>
+毕竟反派和结社都不放情报确实没什么可以猜，真是水水又水水啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

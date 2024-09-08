@@ -1366,3 +1366,16 @@ He is gay and↑ European
 
 不是在脑袋上插管子，直接吸的，怎么放调料？
 
+
+*****
+
+####  barry.allen  
+##### 130#       发表于 2024-9-8 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138729&amp;ptid=2198385" target="_blank">darkangel0224 发表于 2024-9-7 18:05</a>
+
+这个的前提也是欧罗巴人还能支楞起来。以前老美也热衷于寻根啊。现在为啥不寻了？还是欧洲太拉了呀。认个 ...</blockquote>
+其实很多美国人是有美洲本土意识的，举个例子，美国Spike TV的有个关公战秦琼的电视节目《致命武士》，只要是有美洲战士（阿兹台客、印第安人啥的）打欧亚大陆的士兵，大概率是前者赢。
+
+大量美国白人网上挖个三四代恐怕也有印第安人或者拉丁裔血统，这点很多白人自己也知道，所以这个所谓族群细分更多是一种从上到下的政治工程，让下面人内斗保证权贵自己利益的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

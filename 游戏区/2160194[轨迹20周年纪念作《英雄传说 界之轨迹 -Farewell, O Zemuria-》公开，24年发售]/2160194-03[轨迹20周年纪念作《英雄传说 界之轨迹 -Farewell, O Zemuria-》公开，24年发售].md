@@ -11329,3 +11329,13 @@ van被锁的角色是剑女？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">E大师：原来不换我是为了这个？
 
+
+*****
+
+####  plok201  
+##### 4088#       发表于 2024-9-9 00:32
+
+闪轨腰斩的顶多是把自己赚来的粉丝斩了吧，没闪轨难道不是更惨么
+
+说起来，到时候空轨R卖不出去还是要怪闪轨么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

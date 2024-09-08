@@ -1524,3 +1524,16 @@ He is gay and↑ European
 
 感觉上海人应该能秒懂这里面的区别....<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  星㐅影  
+##### 144#       发表于 2024-9-8 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66139050&amp;ptid=2198385" target="_blank">荡寇将军张嶷 发表于 2024-9-7 18:47</a>
+土著的话得叫native，local一般就是自己当地出生长大。</blockquote>
+看字面确实，但是我这是好多年前听一个老美说的
+搞不好又是那种类似“哪种美国人”的事情<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
+

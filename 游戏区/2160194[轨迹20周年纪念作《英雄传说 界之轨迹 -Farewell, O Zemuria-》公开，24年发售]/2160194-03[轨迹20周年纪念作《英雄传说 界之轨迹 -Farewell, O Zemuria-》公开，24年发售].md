@@ -10718,3 +10718,18 @@ dq依旧王者，ps版无数据
 
 界轨打开起码还是祖宗之法熟悉的味道，暗喻幻想pv越看越慌
 
+
+*****
+
+####  卢迪克  
+##### 4027#       发表于 2024-9-8 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143438&amp;ptid=2160194" target="_blank">ravend233 发表于 2024-9-8 11:29</a>
+
+也就那几个特典还过得去的切了，WGO都没全切</blockquote>
+可以对比 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+界轨日亚数据是 发售前一月是3900+1600，
+
+ysx  发售前一月 3900+1800+1850，首周4.4
+

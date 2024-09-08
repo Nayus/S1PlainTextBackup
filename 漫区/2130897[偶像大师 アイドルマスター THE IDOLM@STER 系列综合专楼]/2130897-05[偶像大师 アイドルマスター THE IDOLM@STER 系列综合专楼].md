@@ -3885,3 +3885,14 @@ LisAni 学马怎么只上一个，而且连爱马仕的title都没有，直接fr
 
 看了一下nga提到 花岩香奈转生过一次，以前叫小林可奈，16年就在VIMS出道了，是SC那几个VIMS(峰田茉优，幸村惠理，凉本秋穗)的前辈，后来2019年废业，2020年转去俳协才改名叫花岩香奈的，实际声优出道已经有八年了。以前还试音过cg的西寺原琴歌
 
+
+*****
+
+####  joshua1990  
+##### 6370#       发表于 2024-9-8 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66144158&amp;ptid=2130897" target="_blank">zhwpjy 发表于 2024-9-8 13:02</a>
+
+看了一下nga提到 花岩香奈转生过一次，以前叫小林可奈，16年就在VIMS出道了，是SC那几个VIMS(峰田茉优，幸 ...</blockquote>
+谷了一下发现17年用这个艺名接受过采访，说10年前小学一年级的事，这么看实际年龄大概在24到25岁这段了
+

@@ -11198,3 +11198,38 @@ van被锁的角色是剑女？
 
 界轨属于共和国篇这个没什么可质疑的吧
 
+
+*****
+
+####  椎名mahuyo  
+##### 4074#       发表于 2024-9-8 21:47
+
+闪3咚了以后的确换主角了啊 主角变成新7班了
+
+那界1最后VAN变成恶魔变不回来了，学妹也变了陪她去了，咚的一下界2变成剑女主角救男人也不是不可能吧
+
+*****
+
+####  Aeons  
+##### 4075#       发表于 2024-9-8 21:49
+
+开始操控一下这种怎么能叫换。
+而且闪四我记得还有专门问近藤艾约罗伊德等人回归会不会抢黎恩主角戏份，回答是不会。
+
+*****
+
+####  keiyoku  
+##### 4076#       发表于 2024-9-8 21:51
+
+回溯是舅舅还是推测啊，真回溯我要开始乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeons  
+##### 4077#       发表于 2024-9-8 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66148188&amp;ptid=2160194" target="_blank">keiyoku 发表于 2024-9-8 21:51</a>
+回溯是舅舅还是推测啊，真回溯我要开始乐了</blockquote>
+就根据路线图发散的
+

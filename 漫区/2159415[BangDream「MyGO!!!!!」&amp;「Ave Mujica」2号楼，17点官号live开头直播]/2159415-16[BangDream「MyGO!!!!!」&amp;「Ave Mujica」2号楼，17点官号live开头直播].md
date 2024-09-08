@@ -5763,3 +5763,13 @@ mygo在day1（
 
 天音也有可能吧
 
+
+*****
+
+####  PDQ4  
+##### 22707#       发表于 2024-9-8 16:33
+
+看到偷跑3rd特典图是fire了，两眼一黑，是不是该谢谢不是风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ether mv用3rd图概率更高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

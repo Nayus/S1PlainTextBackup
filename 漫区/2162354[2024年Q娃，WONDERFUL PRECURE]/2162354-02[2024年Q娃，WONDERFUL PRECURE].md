@@ -218,3 +218,28 @@ A part修得挺好看的
 
 你但凡写个大象要伤人被动物们拦住不让它伤人也成啊，保护动物园到底是什么鬼，我看完已经不指望这群人能给日本狼讲的逻辑自治了
 
+
+*****
+
+####  leleq  
+##### 2135#       发表于 2024-9-8 16:18
+
+前辈们就是来旅个游的吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这两集反派都在说放自由……staff不会真觉得养在在动物园是什么正确的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  湖静欲成冰  
+##### 2136#       发表于 2024-9-8 16:31
+
+为什么你在这里,<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">staff在想什么啊.
+
+<img src="https://img.saraba1st.com/forum/202409/08/163027qssz1436647ns5wj.png" referrerpolicy="no-referrer">
+
+<strong>口瓜.png</strong> (144.48 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 16:30 上传
+

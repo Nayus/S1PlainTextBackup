@@ -1412,3 +1412,51 @@ He is gay and↑ European
 区别在于人家真是蒙特祖玛</blockquote>
 就以这个家徽讲，相当于把阿兹特克历史当作西班牙历史的一部分。不管蒙特祖玛真假，家徽上“阿兹特克”的历史不会早于西班牙殖民者到来前，这也是典型欧洲中心论述事，和港英旗差不多的东西。
 
+
+*****
+
+####  pzk  
+##### 134#       发表于 2024-9-8 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141771&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:05</a>
+颠倒是非黑白，墨西哥人多数的西班牙裔
+
+墨西哥土著是印加人和阿兹特克人，被杀光了 ...</blockquote>
+典中典之杀光了……且不说混血的，墨西哥现在都还有原住民自治区
+
+*****
+
+####  苦瓜柠檬茶  
+##### 135#       发表于 2024-9-8 10:56
+
+<blockquote>mixtycomeon 发表于 2024-9-8 10:37
+这么类比不太对，汉人是汉文化的，不是血统或者地理的。
+
+而且这种写法是有歧义的，xx汉人到底是从xx地来 ...</blockquote>
+
+国内有类似的，就是所谓的“汉地十八省”。
+
+只不过现在回旋镖干到美国，而且还很有可能是民主党针对红脖子下的套
+
+*****
+
+####  长生久视  
+##### 136#       发表于 2024-9-8 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135346&amp;ptid=2198385" target="_blank">二岩枫 发表于 2024-9-7 09:28</a>
+
+你想想一个在上海天天叫别人乡毋宁、臭外地的家伙，突然有一天被别人说自己爷爷奶奶姥爷姥姥的户口是从外 ...</blockquote>
+这个看时间回溯长短，几百年，还是几千上万年，足够早的话，上海所在的陆地应该还不存在<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  重巡羊舰  
+##### 137#       发表于 2024-9-8 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135918&amp;ptid=2198385" target="_blank">荻花题叶 发表于 2024-9-7 10:56</a>
+
+被人发现身份证不是310开头，收件地址在彭浦新村？
+
+—— 来自 鹅球 v3.1.88.3 ...</blockquote>
+被发现户口是的籍贯不是上海是苏北呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

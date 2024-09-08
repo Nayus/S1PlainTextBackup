@@ -11241,3 +11241,11 @@ van被锁的角色是剑女？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎 回想当年 大家刚刚打完闪1 对轨迹的未来充满了希望 那时候 谁都没想到一个闪轨居然能出4+1部 拖了整整7年
 
+
+*****
+
+####  smdzh2  
+##### 4079#       发表于 2024-9-8 22:18
+
+7年后帝国摇身一变沦为自废武功的小丑皇，这7年玩了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+

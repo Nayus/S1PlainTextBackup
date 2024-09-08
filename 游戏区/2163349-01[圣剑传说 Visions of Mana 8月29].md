@@ -459,3 +459,13 @@ vision就是v呗，五代没问题
 
 如果冈本真的解散了这工作室真可以说是坏事做尽。
 
+
+*****
+
+####  CyborgIP  
+##### 270#       发表于 2024-9-8 11:46
+
+算褒姒了吧，日本实体只有3重制1/3，steam在线峰值也只有一半。一年能卖50w就不错了
+
+—— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

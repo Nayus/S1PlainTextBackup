@@ -1214,3 +1214,16 @@ European American 如果能推广开来
 至少现在已经有 japanese Korean 了</blockquote>
 解构嘛，根据需要，以后也可以有  Osaka Japanese 和 Kyoto Japanese
 
+
+*****
+
+####  基本农田  
+##### 116#       发表于 2024-9-8 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66142008&amp;ptid=2198385" target="_blank">苦瓜柠檬茶 发表于 2024-9-8 01:56</a>
+European American 如果能推广开来
+
+以后也能整出个 European Australian</blockquote>
+澳洲因为历史短，有1/3自己是新移民，超过一半上一代是新移民，所以觉得自己是根正苗红Australian的人数少很多。
+再者，这叫法有什么问题
+

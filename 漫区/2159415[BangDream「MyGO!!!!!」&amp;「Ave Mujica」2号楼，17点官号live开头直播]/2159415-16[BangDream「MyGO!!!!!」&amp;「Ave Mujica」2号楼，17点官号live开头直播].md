@@ -5850,3 +5850,18 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 2024-9-8 19:14 上传
 
+
+*****
+
+####  鳥栖朝  
+##### 22715#       发表于 2024-9-8 21:27
+
+又一起去玩了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aendst  
+##### 22716#       发表于 2024-9-8 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

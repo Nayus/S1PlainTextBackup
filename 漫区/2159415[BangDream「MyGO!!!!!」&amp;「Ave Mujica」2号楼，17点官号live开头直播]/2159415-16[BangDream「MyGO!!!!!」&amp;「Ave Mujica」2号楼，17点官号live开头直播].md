@@ -5773,3 +5773,18 @@ mygo在day1（
 
 ether mv用3rd图概率更高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  rikaren  
+##### 22708#       发表于 2024-9-8 16:38
+
+啊这，幸好订的animate那家的，就是不知道海铃推现在如何。
+
+*****
+
+####  山ノ内花音  
+##### 22709#       发表于 2024-9-8 16:40
+
+wsd是不是吃屎长大的 fire那鬼图也能当特典啊
+

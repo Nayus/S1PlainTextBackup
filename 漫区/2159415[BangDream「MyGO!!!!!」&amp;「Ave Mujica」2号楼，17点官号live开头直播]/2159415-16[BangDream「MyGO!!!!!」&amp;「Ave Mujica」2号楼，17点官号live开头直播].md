@@ -5865,3 +5865,38 @@ fire的立绘全员恶人啊，没一个正眼看人🙃
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  鳥栖朝  
+##### 22717#       发表于 2024-9-8 22:36
+
+ 本帖最后由 鳥栖朝 于 2024-9-8 22:39 编辑 
+
+乐死了，avemujica吧蹦出一个自称是祥推鸡推，坚持黑称自由，还要引黑流量到mujica吧的。说是为了鸡好，给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">纯纯的不是蠢就是就是坏
+
+*****
+
+####  鳥栖朝  
+##### 22718#       发表于 2024-9-8 22:40
+
+现在还在激烈地和吧友PVP
+
+*****
+
+####  仟音一心  
+##### 22719#       发表于 2024-9-8 22:41
+
+<img src="https://p.sda1.dev/19/55cbaf93747a2e622367c7632875bcba/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星天观测  
+##### 22720#       发表于 2024-9-8 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66148627&amp;ptid=2159415" target="_blank">鳥栖朝 发表于 2024-9-8 22:36</a>
+
+乐死了，avemujica吧蹦出一个自称是祥推鸡推，坚持黑称自由（知道黑称原意），还要引黑流量到mujica吧的。 ...</blockquote>
+问题不大，吧务那边应该不会理他说的这些
+

@@ -1379,3 +1379,11 @@ He is gay and↑ European
 
 大量美国白人网上挖个三四代恐怕也有印第安人或者拉丁裔血统，这点很多白人自己也知道，所以这个所谓族群细分更多是一种从上到下的政治工程，让下面人内斗保证权贵自己利益的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  muderx  
+##### 131#       发表于 2024-9-8 10:33
+
+什么时候出欧裔细分法案？
+

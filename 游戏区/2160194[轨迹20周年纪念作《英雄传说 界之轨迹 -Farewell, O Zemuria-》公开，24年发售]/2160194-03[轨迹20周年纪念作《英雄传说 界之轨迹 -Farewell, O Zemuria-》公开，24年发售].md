@@ -11007,3 +11007,18 @@ ccd2706561b4a0a3c154258a4a91a11f88787536 (1).jpg
 
 回溯是必定的，少点没必要的回溯就行
 
+
+*****
+
+####  一步成诗  
+##### 4052#       发表于 2024-9-8 19:02
+
+原汁原味，我愿称之为《黎之轨迹2》2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 4053#       发表于 2024-9-8 19:03
+
+黎2回溯写的和狗屎一样，界还好意思再来搞这个？你法是不是根本没发现黎2恶评如潮的原因在哪<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

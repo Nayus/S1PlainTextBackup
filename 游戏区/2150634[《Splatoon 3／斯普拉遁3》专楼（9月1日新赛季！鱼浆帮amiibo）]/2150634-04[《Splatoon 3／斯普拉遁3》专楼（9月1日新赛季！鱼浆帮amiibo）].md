@@ -2337,3 +2337,11 @@ XP2800+的霓虹消防栓主播打到S负两百，然后掉线小黑屋10分钟�
 真的得看脸，本来W1打了100多蛋，想着怎么都能破记录了，结果W2是烤架，整把垮掉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这图烤架不是最好打的么，安全点那么多
 
+
+*****
+
+####  raii  
+##### 5171#       发表于 2024-9-8 19:26
+
+他是说烤架没法冲高蛋数，差不多70+到头了
+

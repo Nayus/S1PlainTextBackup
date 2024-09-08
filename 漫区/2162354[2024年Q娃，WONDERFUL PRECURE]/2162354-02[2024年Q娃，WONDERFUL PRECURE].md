@@ -306,3 +306,24 @@ A part修得挺好看的
 
 天Q反派全员都露背面了啊，我还只看着魔法组没留意到把它蒙蒙呢
 
+
+*****
+
+####  粉儿alice  
+##### 2144#       发表于 2024-9-8 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66146355&amp;ptid=2162354" target="_blank">jaewoongh_ 发表于 2024-9-8 18:12</a>
+那不就是成田吗？</blockquote>
+看过天空访谈的话 高桥麻树挺喜欢死蚂蚱的 今年也是她p
+成田你可以说她喜欢本平
+
+*****
+
+####  pokemon最爱  
+##### 2145#       发表于 2024-9-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66146660&amp;ptid=2162354" target="_blank">1096beam 发表于 2024-9-8 18:43</a>
+
+天Q反派全员都露背面了啊，我还只看着魔法组没留意到把它蒙蒙呢</blockquote>
+我也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至凯瑟琳那里一开始我认成石榴了（
+

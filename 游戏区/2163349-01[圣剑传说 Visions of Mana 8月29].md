@@ -469,3 +469,16 @@ vision就是v呗，五代没问题
 
 —— 来自 vivo V2324A, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+*****
+
+####  woodey  
+##### 271#       发表于 2024-9-9 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143579&amp;ptid=2163349" target="_blank">CyborgIP 发表于 2024-9-8 11:46</a>
+
+算褒姒了吧，日本实体只有3重制1/3，steam在线峰值也只有一半。一年能卖50w就不错了
+
+—— 来自 vivo V2324 ...</blockquote>
+其实挺奇怪的，按理说卖相也不差，最近也没什么好的jrpg竞品，怎么这个经典ip会卖成这样的？
+

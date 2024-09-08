@@ -2884,3 +2884,29 @@ AMV 王牌情人 // Ace of Hearts//  ...</blockquote>
 
 2024-9-8 09:25 上传
 
+
+*****
+
+####  Sliurus  
+##### 871#       发表于 2024-9-8 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66141222&amp;ptid=2168085" target="_blank">戦場ヶ原ひたぎ 发表于 2024-9-7 23:46</a>
+
+什么，阿良良木君的海报成为了大家议论的中心，普通的震惊倒还好，楼上燕尾辫的小姑娘竟然说到“骗”这个字 ...</blockquote>
+给您惹麻烦了，红豆泥私密马线，私密马线
+
+<img src="https://img.saraba1st.com/forum/202409/08/103518je1egq5q1m3eqe0q.gif" referrerpolicy="no-referrer">
+
+<strong>私密马赛.gif</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 10:35 上传
+
+*****
+
+####  Sliurus  
+##### 872#       发表于 2024-9-8 10:39
+
+话说araragi hitagi念起来确实挺押韵的
+

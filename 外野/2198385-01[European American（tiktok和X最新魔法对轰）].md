@@ -1387,3 +1387,28 @@ He is gay and↑ European
 
 什么时候出欧裔细分法案？
 
+
+*****
+
+####  mixtycomeon  
+##### 132#       发表于 2024-9-8 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66138191&amp;ptid=2198385" target="_blank">4396777 发表于 2024-9-7 16:38</a>
+南蛮汉人，东夷汉人，西戎汉人，北狄汉人，中原汉人，这下各位应该好理解了
+
+—— 来自 Xiaomi 22101316C,  ...</blockquote>
+这么类比不太对，汉人是汉文化的，不是血统或者地理的。
+而且这种写法是有歧义的，xx汉人到底是从xx地来的汉人还是现居xx地的汉人？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  苦瓜柠檬茶  
+##### 133#       发表于 2024-9-8 10:47
+
+<blockquote>tlygo54 发表于 2024-9-8 09:38
+区别在于人家真是蒙特祖玛</blockquote>
+就以这个家徽讲，相当于把阿兹特克历史当作西班牙历史的一部分。不管蒙特祖玛真假，家徽上“阿兹特克”的历史不会早于西班牙殖民者到来前，这也是典型欧洲中心论述事，和港英旗差不多的东西。
+

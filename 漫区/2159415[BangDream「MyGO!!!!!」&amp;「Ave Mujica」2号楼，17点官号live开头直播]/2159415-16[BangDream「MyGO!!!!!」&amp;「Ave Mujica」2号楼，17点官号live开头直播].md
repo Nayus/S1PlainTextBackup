@@ -5804,3 +5804,11 @@ wsd是不是吃屎长大的 fire那鬼图也能当特典啊
 
 fire的立绘全员恶人啊，没一个正眼看人🙃
 
+
+*****
+
+####  Aendst  
+##### 22712#       发表于 2024-9-8 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真不愧是武士道
+

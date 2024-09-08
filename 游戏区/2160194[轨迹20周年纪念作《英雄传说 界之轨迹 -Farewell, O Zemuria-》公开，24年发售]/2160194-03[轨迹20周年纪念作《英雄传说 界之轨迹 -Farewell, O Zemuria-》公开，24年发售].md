@@ -10822,3 +10822,44 @@ c4ea1b004a90f60339202e887c12b31bb251edd3.jpg
 虽然我也嫌闪又臭又长，但黎轨自己都两部了，现在连着界三部卖得烂还能怪到闪头上挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 黎轨自己开个还可以的头，然后黎2端出个答辩剧本把人干沉默，剧情剧情不好好写，卖点全集中在那破烂三角，你黎轨不死谁死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  ravend233  
+##### 4037#       发表于 2024-9-8 17:28
+
+黎1卖得稀烂是多方因素，和闪完结有一定原因，但是不止这一个原因
+
+黎2宣发上强度结果首周就比黎1高一点，累积没记错还更差了，那只能是说明黎2的宣发方向全错，路人看了连补个黎1再来玩黎2的兴致都没有，所以黎2在宣发什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+再到界轨，在黎2这坨大便之后还愿意冲首发的除了顶级结晶人还有什么人的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.0.0.82-alpha
+
+
+*****
+
+####  卢迪克  
+##### 4038#       发表于 2024-9-8 17:31
+
+ 本帖最后由 卢迪克 于 2024-9-8 17:33 编辑 
+
+  
+
+<img src="https://img.saraba1st.com/forum/202409/08/173132ppv1eeyvivpp91y9.jpg" referrerpolicy="no-referrer">
+
+<strong>ccd2706561b4a0a3c154258a4a91a11f88787536.jpg</strong> (95.53 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 17:31 上传
+
+ccd2706561b4a0a3c154258a4a91a11f88787536 (1).jpg
+(413.31 KB, 下载次数: 0)
+
+下载附件
+
+2024-9-8 17:33 上传
+
+<img src="https://img.saraba1st.com/forum/202409/08/173307ziwf7rdg7xkfydi5.jpg" referrerpolicy="no-referrer">
+

@@ -2096,3 +2096,13 @@ http://m.weibo.cn/status/5050982306418937?
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.1.88.3
 
+
+*****
+
+####  TiiTiiLL  
+##### 206#       发表于 2024-9-9 01:18
+
+后期男主战斗力确实有点成谜了，有点“只要让身体忽略限制就能变成超人”的感觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

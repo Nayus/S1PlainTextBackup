@@ -1281,3 +1281,23 @@ European American 如果能推广开来
 
 今天社会矛盾都激化了 就没人装着看得见国王的新衣了
 
+
+*****
+
+####  我特么吹爆  
+##### 122#       发表于 2024-9-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66136897&amp;ptid=2198385" target="_blank">cyberalogo 发表于 2024-9-7 13:13</a>
+Gay Or European</blockquote>
+He is gay and↑ European
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 123#       发表于 2024-9-8 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66135269&amp;ptid=2198385" target="_blank">moliyumi 发表于 2024-9-7 09:18</a>
+那么 美裔美国人 去哪里了呢</blockquote>
+这个不兴说啊
+

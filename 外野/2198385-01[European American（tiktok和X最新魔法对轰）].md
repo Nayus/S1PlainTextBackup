@@ -1516,3 +1516,11 @@ He is gay and↑ European
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v3.0.0.81-alpha
 
+
+*****
+
+####  konami521  
+##### 143#       发表于 2024-9-8 16:52
+
+感觉上海人应该能秒懂这里面的区别....<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

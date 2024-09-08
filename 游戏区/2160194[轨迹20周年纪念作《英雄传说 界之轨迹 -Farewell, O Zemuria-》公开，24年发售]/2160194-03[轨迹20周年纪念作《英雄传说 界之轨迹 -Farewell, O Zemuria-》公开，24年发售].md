@@ -10785,3 +10785,14 @@ ysx  发售前一月 3900+1800+1850，首周4.4
 
 冰火骑看起来到处跑啊，还有娱乐活动，剧情这么多
 
+
+*****
+
+####  卢迪克  
+##### 4034#       发表于 2024-9-8 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=66143326&amp;ptid=2160194" target="_blank">Aeons 发表于 2024-9-8 11:15</a>
+
+长篇必然，没啥说的，就是没人买，之前买了的现在不买了，怪谁没什么意义。 ...</blockquote>
+他要是肯出个漫画版都不至于落入这个境地
+
